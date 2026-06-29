@@ -1,13 +1,13 @@
 ### SB 4.26.18
 
-> नारद उवाच
-> पुरञ्जनः स्वमहिषीं निरीक्ष्यावधुतां भुवि ।
+> नारद उवाच\
+> पुरञ्जनः स्वमहिषीं निरीक्ष्यावधुतां भुवि ।\
 > तत्सङ्गोन्मथितज्ञानो वैक्लव्यं परमं ययौ ॥१८॥
 
-> nārada uvāca
-> purañjanaḥ sva-mahiṣīṁ
-> nirīkṣyāvadhutāṁ bhuvi
-> tat-saṅgonmathita-jñāno
+> nārada uvāca\
+> purañjanaḥ sva-mahiṣīṁ\
+> nirīkṣyāvadhutāṁ bhuvi\
+> tat-saṅgonmathita-jñāno\
 > vaiklavyaṁ paramaṁ yayau
 
 *nāradaḥ uvāca*—el gran sabio Nārada habló; *purañjanaḥ*—el rey Purañjana; *sva-mahiṣīm*—a su reina; *nirīkṣya*—después de ver; *avadhutām*—con el aspecto de una mendiga; *bhuvi*—en el suelo; *tat*—su; *saṅga*—con compañía; *unmathita*—animó; *jñānaḥ*—cuyo conocimiento; *vaiklavyam*—desconcierto; *paramam*—supremo; *yayau*—obtuvo.

@@ -1,13 +1,13 @@
 ### SB 7.8.1
 
-> श्रीनारद उवाच
-> अथ दैत्यसुताः सर्वे श्रुत्वा तदनुवर्णितम
+> श्रीनारद उवाच\
+> अथ दैत्यसुताः सर्वे श्रुत्वा तदनुवर्णितम\
 > जगृहुर्निरवद्यत्वान्नैव गुर्वनुशिक्षितम ॥१॥
 
-> śrī-nārada uvāca
-> atha daitya-sutāḥ sarve
-> śrutvā tad-anuvarṇitam
-> jagṛhur niravadyatvān
+> śrī-nārada uvāca\
+> atha daitya-sutāḥ sarve\
+> śrutvā tad-anuvarṇitam\
+> jagṛhur niravadyatvān\
 > naiva gurv-anuśikṣitam
 
 *śrī-nāradaḥ uvāca*—Śrī Nārada Muni dijo; *atha*—a continuación; *daitya-sutāḥ*—los hijos de los demonios (los compañeros de clase de Prahlāda Mahārāja); *sarve*—todos; *śrutvā*—escuchar; *tat*—por él (Prahlāda); *anuvarṇitam*—las afirmaciones acerca de la vida devocional; *jagṛhuḥ*—aceptaron; *niravadyatvāt*—debido a la utilidad suprema de aquellas instrucciones; *na*—no; *eva*—en verdad; *guru-anuśikṣitam*—lo que les fue enseñado por sus maestros.

@@ -1,22 +1,22 @@
 ### SB 1.16.32-33
 
-> ब्रह्मादयो बहुतिथं यदपाङ्गमोक्ष
-> कामास्तपः समचरन्भगवत्प्रपन्नाः ।
-> सा श्रीः स्ववासमरविन्दवनं विहाय
-> यत्पादसौभगमलं भजतेऽनुरक्ता ॥३२॥
-> तस्याहमब्जकुलिशाङ्कुशकेतुकेतैः
-> श्रीमत्पदैर्भगवतः समलङ्कृताङ्गी ।
-> त्रीनत्यरोच उपलभ्य ततो विभूतिं
+> ब्रह्मादयो बहुतिथं यदपाङ्गमोक्ष\
+> कामास्तपः समचरन्भगवत्प्रपन्नाः ।\
+> सा श्रीः स्ववासमरविन्दवनं विहाय\
+> यत्पादसौभगमलं भजतेऽनुरक्ता ॥३२॥\
+> तस्याहमब्जकुलिशाङ्कुशकेतुकेतैः\
+> श्रीमत्पदैर्भगवतः समलङ्कृताङ्गी ।\
+> त्रीनत्यरोच उपलभ्य ततो विभूतिं\
 > लोकान्स मां व्यसृजदुत्स्मयतीं तदन्ते ॥३३॥
 
-> brahmādayo bahu-tithaṁ yad-apāṅga-mokṣa-
-> kāmās tapaḥ samacaran bhagavat-prapannāḥ
-> sā śrīḥ sva-vāsam aravinda-vanaṁ vihāya
+> brahmādayo bahu-tithaṁ yad-apāṅga-mokṣa-\
+> kāmās tapaḥ samacaran bhagavat-prapannāḥ\
+> sā śrīḥ sva-vāsam aravinda-vanaṁ vihāya\
 > yat-pāda-saubhagam alaṁ bhajate 'nuraktā
 
-> tasyāham abja-kuliśāṅkuśa-ketu-ketaiḥ
-> śrīmat-padair bhagavataḥ samalaṅkṛtāṅgī
-> trīn atyaroca upalabhya tato vibhūtiṁ
+> tasyāham abja-kuliśāṅkuśa-ketu-ketaiḥ\
+> śrīmat-padair bhagavataḥ samalaṅkṛtāṅgī\
+> trīn atyaroca upalabhya tato vibhūtiṁ\
 > lokān sa māṁ vyasṛjad utsmayatīṁ tad-ante
 
 *brahma-ādayaḥ*—demigods such as Brahmā; *bahu-titham*—for many days; *yat*—of Lakṣmī, the goddess of fortune; *apāṅga-mokṣa*—glance of grace; *kāmāḥ*—being desirous of; *tapaḥ*—penances; *samacaran*—executing; *bhagavat*—unto the Personality of Godhead; *prapannāḥ*—surrendered; *sā*—she (the goddess of fortune); *śrīḥ*—Lakṣmījī; *sva-vāsam*—her own abode; *aravinda-vanam*—the forest of lotus flowers; *vihāya*—leaving aside; *yat*—whose; *pāda*—feet; *saubhagam*—all-blissful; *alam*—without hesitation; *bhajate*—worships; *anuraktā*—being attached; *tasya*—His; *aham*—myself; *abja*—lotus flower; *kuliśa*—thunderbolt; *aṅkuśa*—rod for driving elephants; *ketu*—flag; *ketaiḥ*—impressions; *śrīmat*—the owner of all opulence; *padaiḥ*—by the soles of the feet; *bhagavataḥ*—of the Personality of Godhead; *samalaṅkṛta-aṅgī*—one whose body is so decorated; *trīn*—three; *ati*—superseding; *aroce*—beautifully decorated; *upalabhya*—having obtained; *tataḥ*—thereafter; *vibhūtim*—specific powers; *lokān*—planetary systems; *saḥ*—He; *mām*—me; *vyasṛjat*—gave up; *utsmayatīm*—while feeling proud; *tat-ante*—at the end.

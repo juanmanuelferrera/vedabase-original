@@ -1,11 +1,11 @@
 ### SB 2.5.20
 
-> स एष भगवांल्लिङ्गैस्त्रिभिरेतैरधोक्षजः ।
+> स एष भगवांल्लिङ्गैस्त्रिभिरेतैरधोक्षजः ।\
 > स्वलक्षितगतिर्ब्रह्मन्सर्वेषां मम चेश्वरः ॥२०॥
 
-> sa eṣa bhagavāḹ liṅgais
-> tribhir etair adhokṣajaḥ
-> svalakṣita-gatir brahman
+> sa eṣa bhagavāḹ liṅgais\
+> tribhir etair adhokṣajaḥ\
+> svalakṣita-gatir brahman\
 > sarveṣāṁ mama ceśvaraḥ
 
 *saḥ*—He; *eṣaḥ*—this; *bhagavān*—the Personality of Godhead; *liṅgaiḥ*—by the symptoms; *tribhiḥ*—by the three; *etaiḥ*—by all these; *adhokṣajaḥ*—the Superseer Transcendence; *su-alakṣita*—veritably unseen; *gatiḥ*—movement; *brahman*—O Nārada; *sarveṣām*—of everyone; *mama*—mine; *ca*—as also; *īśvaraḥ*—the controller.

@@ -1,11 +1,11 @@
 ### SB 6.5.20
 
-> शास्त्रस्य पितुरादेशं यो न वेद निवर्तकम
+> शास्त्रस्य पितुरादेशं यो न वेद निवर्तकम\
 > कथं तदनुरूपाय गुणविस्रम्भ्युपक्रमेत ॥२०॥
 
-> śāstrasya pitur ādeśaṁ
-> yo na veda nivartakam
-> kathaṁ tad-anurūpāya
+> śāstrasya pitur ādeśaṁ\
+> yo na veda nivartakam\
+> kathaṁ tad-anurūpāya\
 > guṇa-visrambhy upakramet
 
 *śāstrasya*—de las Escrituras; *pituḥ*—del padre; *ādeśam*—la instrucción; *yaḥ*—aquel que; *na*—no; *veda*—entiende; *nivartakam*—que ponen fin al modo de vida materialista; *katham*—cómo; *tat-anurūpāya*—seguir la instrucción de los*śāstras*; *guṇa-visrambhī*—una persona enredada en las tres modalidades de la naturaleza material; *upakramet*—puede ocupar en la generación de descendencia.

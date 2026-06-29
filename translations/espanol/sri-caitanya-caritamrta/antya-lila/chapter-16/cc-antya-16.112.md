@@ -1,9 +1,9 @@
 ### CC Antya 16.112
 
-> তাতে এই দ্রব্যে কৃষ্ণাধর-স্পর্শ হৈল ।
+> তাতে এই দ্রব্যে কৃষ্ণাধর-স্পর্শ হৈল ।\
 > অধরের গুণ সব ইহাতে সঞ্চারিল ॥১১২॥
 
-> tāte ei dravye kṛṣṇādhara-sparśa haila
+> tāte ei dravye kṛṣṇādhara-sparśa haila\
 > adharera guṇa saba ihāte sañcārila
 
 *tāte*—por lo tanto; *ei dravye*—en estos ingredientes; *kṛṣṇa-adhara*—de los labios de Kṛṣṇa; *sparśa*—toque; *haila*—hubo; *adharera*—de los labios; *guṇa*—atributos; *saba*—todos; *ihāte*—en estos ingredientes; *sañcārila*—se transfirieron.

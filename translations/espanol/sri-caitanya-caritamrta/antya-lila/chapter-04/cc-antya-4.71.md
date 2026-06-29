@@ -1,9 +1,9 @@
 ### CC Antya 4.71
 
-> তার মধ্যে সর্বশ্রেষ্ঠ ন়াম-সঙ্কীর্তন ।
+> তার মধ্যে সর্বশ্রেষ্ঠ ন়াম-সঙ্কীর্তন ।\
 > নিরপরাধে নাম লৈলে পায় প্রেমধন ॥৭১॥
 
-> tāra madhye sarva-śreṣṭha nāma-saṅkīrtana
+> tāra madhye sarva-śreṣṭha nāma-saṅkīrtana\
 > niraparādhe nāma laile pāya prema-dhana
 
 *tāra madhye*—de los nueve tipos diferentes de servicio devocional; *sarva-śreṣṭha*—el más importante de todos; *nāma-saṅkīrtana*—el canto del santo nombre del Señor; *niraparādhe*—sin ofensas; *nāma laile*—si uno canta el santo nombre; *pāya*—obtiene; *prema-dhana*—el más valioso amor extático por Kṛṣṇa.

@@ -1,9 +1,9 @@
 ### CC Madhya 24.36
 
-> ‘ইত্থম্ভূত’-শব্দের অর্থ — পূর্ণানন্দময় ।
+> ‘ইত্থম্ভূত’-শব্দের অর্থ — পূর্ণানন্দময় ।\
 > যাঁর আগে ব্রহ্মানন্দ তৃণপ্রায় হয় ॥৩৬॥
 
-> 'ittham-bhūta'-śabdera artha--pūrṇānandamaya
+> 'ittham-bhūta'-śabdera artha--pūrṇānandamaya\
 > yāṅra āge brahmānanda tṛṇa-prāya haya
 
 *ittham-bhūta-śabdera artha*—el significado o sentido de la palabra ittham-bhūta; *pūrṇa-ānanda-maya*—colmado de bienaventuranza trascendental; *yāṅra āge*—ante la cual; *brahma-ānanda*—la bienaventuranza trascendental derivada del impersonalismo; *tṛṇa-prāya*—igual que una brizna de paja; *haya*—es.

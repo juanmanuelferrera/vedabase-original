@@ -1,9 +1,9 @@
 ### CC Madhya 5.42
 
-> বিপ্র বলে, — “সাক্ষী বোলাঞা করিবেক ন্যায় ।
+> বিপ্র বলে, — “সাক্ষী বোলাঞা করিবেক ন্যায় ।\
 > জিতি’ কন্যা লবে, মোর ব্যর্থ ধর্ম হয় ।।” ॥৪২॥
 
-> vipra bale,—"sākṣī bolāñā karibeka nyāya
+> vipra bale,—"sākṣī bolāñā karibeka nyāya\
 > jiti' kanyā labe, mora vyartha dharma haya"
 
 *viprabale*—the *brāhmaṇa* says; *sākṣī*—a witness; *bolāñā*—calling for; *karibeka*—there will be; *nyāya*—justice; *jiti'*—winning; *kanyā*—the daughter; *labe*—he will take; *mora*—my; *vyartha*—meaningless; *dharma*—religious principles; *haya*—will be.

@@ -1,10 +1,10 @@
 ### CC Madhya 21.43
 
-> ‘অন্তঃপুর’ — গোলোক-শ্রীবৃন্দাবন ।
+> ‘অন্তঃপুর’ — গোলোক-শ্রীবৃন্দাবন ।\
 > যাহাঁ নিত্যস্থিতি মাতাপিতা-বন্ধুগণ ॥৪৩॥
 
-> 'antaḥpura'--goloka-śrī-vṛndāvana
-> yāhāṅ nitya-sthiti mātā-pitā-bandhu-gaṇa
+> 'antaḥpura'--goloka-śrī-vṛndāvana\
+> yāhāṅ nitya-sthiti mātā-pitā-bandhu-gaṇa\
 > SYNONYMS
 
 *antaḥ-pura*—la morada interna; *goloka-śrī-vṛndāvana*—Goloka Vṛndāvana; *yāhāṅ*—donde; *nitya-sthiti*—residencia eterna; *mātā-pitā*—madre y padre; *bandhu-gaṇa*—y amigos.

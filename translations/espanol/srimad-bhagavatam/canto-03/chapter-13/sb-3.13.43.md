@@ -1,11 +1,11 @@
 ### SB 3.13.43
 
-> कः श्रद्दधीतान्यतमस्तव प्रभो रसां गताया भुव उद्विबर्हणम् ।
+> कः श्रद्दधीतान्यतमस्तव प्रभो रसां गताया भुव उद्विबर्हणम् ।\
 > न विस्मयोऽसौ त्वयि विश्वविस्मये यो माययेदं ससृजेऽतिविस्मयम् ॥४३॥
 
-> kaḥ śraddadhītānyatamas tava prabho
-> rasāṁ gatāyā bhuva udvibarhaṇam
-> na vismayo 'sau tvayi viśva-vismaye
+> kaḥ śraddadhītānyatamas tava prabho\
+> rasāṁ gatāyā bhuva udvibarhaṇam\
+> na vismayo 'sau tvayi viśva-vismaye\
 > yo māyayedaṁ sasṛje 'tivismayam
 
 *kaḥ*—¿quién más?; *śraddadhīta*—puede esforzarse; *anyatamaḥ*—alguien aparte de Ti; *tava*—Tu; *prabho*—¡oh, Señor!; *rasām*—en el agua; *gatāyāḥ*—mientras yacía en; *bhuvaḥ*—de la Tierra; *udvibarhaṇam*—liberación; *na*—nunca; *vismayaḥ*—maravilloso; *asau*—un acto así; *tvayi*—a Ti; *viśva*—universal; *vismaye*—lleno de maravillas; *yaḥ*—aquel que; *māyayā*—con las potencias; *idam*—esto; *sasṛje*—creada; *ativismayam*—superando todas las maravillas.

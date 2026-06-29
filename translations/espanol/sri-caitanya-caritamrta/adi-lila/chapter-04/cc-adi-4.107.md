@@ -1,9 +1,9 @@
 ### CC Adi 4.107
 
-> শেষলীলায় প্রভুর কৃষ্ণবিরহ-উন্মাদ ।
+> শেষলীলায় প্রভুর কৃষ্ণবিরহ-উন্মাদ ।\
 > ভ্রমময় চেষ্টা, আর প্রলাপময় বাদ ॥১০৭॥
 
-> śeṣa-līlāya prabhura kṛṣṇa-viraha-unmāda
+> śeṣa-līlāya prabhura kṛṣṇa-viraha-unmāda\
 > bhrama-maya ceṣṭā, āra pralāpa-maya vāda
 
 *śeṣa-līlāya*—en los pasatiempos finales; *prabhura*—del Señor Caitanya Mahāprabhu; *kṛṣṇa-viraha*—por la separación del Señor Kṛṣṇa; *unmāda*—la locura; *bhrama-maya*—erróneas; *ceṣṭā*—acciones; *āra*—y; *pralāpa-maya*—delirantes; *vāda*—palabras.

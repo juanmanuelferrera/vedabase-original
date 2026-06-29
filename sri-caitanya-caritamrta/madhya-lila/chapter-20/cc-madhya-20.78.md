@@ -1,9 +1,9 @@
 ### CC Madhya 20.78
 
-> তবে মিশ্র পুরাতন এক ধুতি দিল ।
+> তবে মিশ্র পুরাতন এক ধুতি দিল ।\
 > তেঁহো দুই বহির্বাস-কৌপীন করিল ॥৭৮॥
 
-> tabe miśra purātana eka dhuti dila
+> tabe miśra purātana eka dhuti dila\
 > teṅho dui bahirvāsa-kaupīna karila
 
 *tabe*—thereafter; *miśra*—Tapana Miśra; *purātana*—old; *eka*—one; *dhuti*—dhoti; *dila*—delivered; *teṅho*—he (Sanātana Gosvāmī); *dui*—two; *bahirvāsa*—outer coverings; *kaupīna*—underwear; *karila*—made.

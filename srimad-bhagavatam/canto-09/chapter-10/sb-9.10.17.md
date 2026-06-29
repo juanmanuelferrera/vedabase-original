@@ -1,13 +1,13 @@
 ### SB 9.10.17
 
-> सा वानरेन्द्रबलरुद्धविहारकोष्ठ
-> श्रीद्वारगोपुरसदोवलभीविटङ्का
-> निर्भज्यमानधिषणध्वजहेमकुम्भ
+> सा वानरेन्द्रबलरुद्धविहारकोष्ठ\
+> श्रीद्वारगोपुरसदोवलभीविटङ्का\
+> निर्भज्यमानधिषणध्वजहेमकुम्भ\
 > शृङ्गाटका गजकुलैर्ह्रदिनीव घूर्णा ॥१७॥
 
-> sā vānarendra-bala-ruddha-vihāra-koṣṭha-
-> śrī-dvāra-gopura-sado-valabhī-viṭaṅkā
-> nirbhajyamāna-dhiṣaṇa-dhvaja-hema-kumbha-
+> sā vānarendra-bala-ruddha-vihāra-koṣṭha-\
+> śrī-dvāra-gopura-sado-valabhī-viṭaṅkā\
+> nirbhajyamāna-dhiṣaṇa-dhvaja-hema-kumbha-\
 > śṛṅgāṭakā gaja-kulair hradinīva ghūrṇā
 
 *sā*—the place known as Laṅkā; *vānara-indra*—of the great chiefs of the monkeys; *bala*—by the strength; *ruddha*—stopped, encircled; *vihāra*—pleasure houses; *koṣṭha*—the places where food grains were stocked; *śrī*—the treasury houses; *dvāra*—the doors of palaces; *gopura*—the gates of the city; *sadaḥ*—the assembly houses; *valabhī*—the frontage of great palaces; *viṭaṅkā*—the rest houses for the pigeons; *nirbhajyamāna*—in the process of being dismantled; *dhiṣaṇa*—platforms; *dhvaja*—the flags; *hema-kumbha*—golden waterpots on the domes; *śṛṅgāṭakā*—and the crossroads; *gaja-kulaiḥ*—by herds of elephants; *hradinī*—a river; *iva*—like; *ghūrṇā*—agitated.

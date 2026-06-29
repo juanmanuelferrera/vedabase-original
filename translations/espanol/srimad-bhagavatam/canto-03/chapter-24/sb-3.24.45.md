@@ -1,11 +1,11 @@
 ### SB 3.24.45
 
-> वासुदेवे भगवति सर्वज्ञे प्रत्यगात्मनि ।
+> वासुदेवे भगवति सर्वज्ञे प्रत्यगात्मनि ।\
 > परेण भक्तिभावेन लब्धात्मा मुक्तबन्धनः ॥४५॥
 
-> vāsudeve bhagavati
-> sarva-jñe pratyag-ātmani
-> pareṇa bhakti-bhāvena
+> vāsudeve bhagavati\
+> sarva-jñe pratyag-ātmani\
+> pareṇa bhakti-bhāvena\
 > labdhātmā mukta-bandhanaḥ
 
 *vāsudeve*—a Vāsudeva; *bhagavati*—la Personalidad de Dios; *sarva-jñe*—omnisciente; *pratyak-ātmani*—la Superalma que está dentro de todos; *pareṇa*—trascendental; *bhakti-bhāvena*—mediante servicio devocional; *labdha-ātmā*—situado en sí mismo; *mukta-bandhanaḥ*—liberado del cautiverio material.

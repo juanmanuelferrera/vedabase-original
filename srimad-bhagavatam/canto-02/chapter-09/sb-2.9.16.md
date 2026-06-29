@@ -1,11 +1,11 @@
 ### SB 2.9.16
 
-> भृत्यप्रसादाभिमुखं दृगासवं प्रसन्नहासारुणलोचनाननम् ।
+> भृत्यप्रसादाभिमुखं दृगासवं प्रसन्नहासारुणलोचनाननम् ।\
 > किरीटिनं कुण्डलिनं चतुर्भुजं पीतांशुकं वक्षसि लक्षितं श्रिया ॥१६॥
 
-> bhṛtya-prasādābhimukhaṁ dṛg-āsavaṁ
-> prasanna-hāsāruṇa-locanānanam
-> kirīṭinaṁ kuṇḍalinaṁ catur-bhujaṁ
+> bhṛtya-prasādābhimukhaṁ dṛg-āsavaṁ\
+> prasanna-hāsāruṇa-locanānanam\
+> kirīṭinaṁ kuṇḍalinaṁ catur-bhujaṁ\
 > pītāṁśukaṁ vakṣasi lakṣitaṁ śriyā
 
 *bhṛtya*—the servitor; *prasāda*—affection; *abhimukham*—favorably facing; *dṛk*—the very sight; *āsavam*—an intoxication; *prasanna*—very much pleased; *hāsa*—smile; *aruṇa*—reddish; *locana*—eyes; *ānanam*—face; *kirīṭinam*—with helmet; *kuṇḍalinam*—with earrings; *catuḥ-bhujam*—with four hands; *pīta*—yellow; *aṁśukam*—dress; *vakṣasi*—on the chest; *lakṣitam*—marked; *śriyā*—with the goddess of fortune.

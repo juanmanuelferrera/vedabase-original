@@ -1,9 +1,9 @@
 ### CC Antya 3.248
 
-> “তিন দিন বঞ্চিলা আমা করি’ আশ্বাসন  ।
+> “তিন দিন বঞ্চিলা আমা করি’ আশ্বাসন  ।\
 > রাত্রি-দিনে নহে তোমার নাম-সমাপন ।।” ২৪৮ ॥২৪৮॥
 
-> "tina dina vañcilā āmā kari' āśvāsana
+> "tina dina vañcilā āmā kari' āśvāsana\
 > rātri-dine nahe tomāra nāma-samāpana"
 
 *tina dina*—for three days; *vañcilā*—you have cheated; *āmā*—me; *kari' āśvāsana*—giving assurance; *rātri-dine*—throughout the entire day and night; *nahe*—is not; *tomāra*—your; *nāma-samāpana*—finishing of the chanting of the holy name.

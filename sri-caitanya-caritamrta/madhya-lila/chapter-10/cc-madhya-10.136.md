@@ -1,9 +1,9 @@
 ### CC Madhya 10.136
 
-> এত শুনি’ সার্বভৌম প্রভুরে পুছিল ।
+> এত শুনি’ সার্বভৌম প্রভুরে পুছিল ।\
 > পুরী-গোসাঞি শূদ্র-সেবক কাঁহে ত’ রাখিল ॥১৩৬॥
 
-> eta śuni' sārvabhauma prabhure puchila
+> eta śuni' sārvabhauma prabhure puchila\
 > purī-gosāñi śūdra-sevaka kāṅhe ta' rākhila
 
 *eta śuni'*—hearing this; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *prabhure*—unto the Lord; *puchila*—inquired; *purī-gosāñi*—Īśvara Purī; *śūdra-sevaka*—a servant who is a *śūdra*; *kāṅhe ta'*—why; *rākhila*—kept.

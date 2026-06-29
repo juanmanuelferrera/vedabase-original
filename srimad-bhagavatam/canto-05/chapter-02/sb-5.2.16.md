@@ -1,13 +1,13 @@
 ### SB 5.2.16
 
-> न त्वां त्यजामि दयितं द्विजदेवदत्तं
-> यस्मिन्मनो दृगपि नो न वियाति लग्नम
-> मां चारुशृङ्ग्यर्हसि नेतुमनुव्रतं ते
+> न त्वां त्यजामि दयितं द्विजदेवदत्तं\
+> यस्मिन्मनो दृगपि नो न वियाति लग्नम\
+> मां चारुशृङ्ग्यर्हसि नेतुमनुव्रतं ते\
 > चित्तं यतः प्रतिसरन्तु शिवाः सचिव्यः ॥१६॥
 
-> na tvāṁ tyajāmi dayitaṁ dvija-deva-dattaṁ
-> yasmin mano dṛg api no na viyāti lagnam
-> māṁ cāru-śṛṅgy arhasi netum anuvrataṁ te
+> na tvāṁ tyajāmi dayitaṁ dvija-deva-dattaṁ\
+> yasmin mano dṛg api no na viyāti lagnam\
+> māṁ cāru-śṛṅgy arhasi netum anuvrataṁ te\
 > cittaṁ yataḥ pratisarantu śivāḥ sacivyaḥ
 
 *na*—not; *tvām*—you; *tyajāmi*—I shall give up; *dayitam*—very dear; *dvija-deva*—by Lord Brahmā, the demigod worshiped by the *brāhmaṇas*; *dattam*—given; *yasmin*—unto whom; *manaḥ*—mind; *dṛk*—eyes; *api*—also; *naḥ*—my; *na viyāti*—do not go away; *lagnam*—tightly attached; *mām*—me; *cāru-śṛṅgi*—O woman with beautiful raised breasts; *arhasi*—you ought; *netum*—to lead; *anuvratam*—follower; *te*—your; *cittam*—desire; *yataḥ*—wherever; *pratisarantu*—may follow; *śivāḥ*—favorable; *sacivyaḥ*—friends.

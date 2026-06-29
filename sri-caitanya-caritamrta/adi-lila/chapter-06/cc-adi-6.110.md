@@ -1,9 +1,9 @@
 ### CC Adi 6.110
 
-> নানা-ভক্তভাবে করেন স্বমাধুর্য পান ।
+> নানা-ভক্তভাবে করেন স্বমাধুর্য পান ।\
 > পূর্বে করিয়াছি এই সিদ্ধান্ত ব্যাখ্যান ॥১১০॥
 
-> nānā-bhakta-bhāve karena sva-mādhurya pāna
+> nānā-bhakta-bhāve karena sva-mādhurya pāna\
 > pūrve kariyāchi ei siddhānta vyākhyāna
 
 *nānā-bhakta-bhāve*—various emotions of a devotee; *karena*—does; *sva-mādhurya pāna*—drinking the sweetness of Himself; *pūrve*—formerly; *kariyāchi*—I discussed; *ei*—this; *siddhānta*—conclusion; *vyākhyāna*—the explanation.

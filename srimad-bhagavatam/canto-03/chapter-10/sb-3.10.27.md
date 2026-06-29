@@ -1,11 +1,11 @@
 ### SB 3.10.27
 
-> वैकृतास्त्रय एवैते देवसर्गश्च सत्तम ।
+> वैकृतास्त्रय एवैते देवसर्गश्च सत्तम ।\
 > वैकारिकस्तु यः प्रोक्तः कौमारस्तूभयात्मकः ॥२७॥
 
-> vaikṛtās traya evaite
-> deva-sargaś ca sattama
-> vaikārikas tu yaḥ proktaḥ
+> vaikṛtās traya evaite\
+> deva-sargaś ca sattama\
+> vaikārikas tu yaḥ proktaḥ\
 > kaumāras tūbhayātmakaḥ
 
 *vaikṛtāḥ*—creations of Brahmā; *trayaḥ*—three kinds; *eva*—certainly; *ete*—all these; *deva-sargaḥ*—appearance of the demigods; *ca*—also; *sattama*—O good Vidura; *vaikārikaḥ*—creation of demigods by nature; *tu*—but; *yaḥ*—which; *proktaḥ*—described before; *kaumāraḥ*—the four Kumāras; *tu*—but; *ubhaya-ātmakaḥ*—both ways (namely *vaikṛta* and *prākṛta*).

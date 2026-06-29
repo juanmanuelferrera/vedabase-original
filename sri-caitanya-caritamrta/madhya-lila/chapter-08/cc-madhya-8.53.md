@@ -1,9 +1,9 @@
 ### CC Madhya 8.53
 
-> যদ্যপি বিচ্ছেদ দোঁহার সহন না যায় ।
+> যদ্যপি বিচ্ছেদ দোঁহার সহন না যায় ।\
 > তথাপি দণ্ডবৎ করি’ চলিলা রামরায় ॥৫৩॥
 
-> yadyapi viccheda doṅhāra sahana nā yāya
+> yadyapi viccheda doṅhāra sahana nā yāya\
 > tathāpi daṇḍavat kari' calilā rāma-rāya
 
 *yadyapi*—although; *viccheda*—separation; *doṅhāra*—of both of them; *sahana*—toleration; *nā*—not; *yāya*—possible; *tathāpi*—still; *daṇḍavat*—obeisances; *kari'*—offering; *calilā*—departed; *rāma-rāya*—Rāmānanda Rāya.

@@ -1,11 +1,11 @@
 ### SB 1.13.14
 
-> कञ्चित्कालमथावात्सीत्सत्कृतो देववत्सुखम् ।
+> कञ्चित्कालमथावात्सीत्सत्कृतो देववत्सुखम् ।\
 > भ्रातुर्ज्येष्ठस्य श्रेयस्कृत्सर्वेषां सुखमावहन् ॥१४॥
 
-> kañcit kālam athāvātsīt
-> sat-kṛto devavat sukham
-> bhrātur jyeṣṭhasya śreyas-kṛt
+> kañcit kālam athāvātsīt\
+> sat-kṛto devavat sukham\
+> bhrātur jyeṣṭhasya śreyas-kṛt\
 > sarveṣāṁ sukham āvahan
 
 *kañcit*—por unos pocos días; *kālam*—tiempo; *atha*—así pues; *avātsīt*—residió; *sat-kṛtaḥ*—siendo bien tratado; *deva-vat*—tal como una personalidad divina; *sukham*—amenidades; *bhrātuḥ*—del hermano; *jyeṣṭhasya*—del mayor; *śreyaḥ-kṛt*—para hacerle el bien a él; *sarveṣām*—todos los demás; *sukham*—felicidad; *āvahan*—hizo posible.

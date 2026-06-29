@@ -1,11 +1,11 @@
 ### SB 9.22.25
 
-> क्षेत्रेऽप्रजस्य वै भ्रातुर्मात्रोक्तो बादरायणः
+> क्षेत्रेऽप्रजस्य वै भ्रातुर्मात्रोक्तो बादरायणः\
 > धृतराष्ट्रं च पाण्डुं च विदुरं चाप्यजीजनत ॥२५॥
 
-> kṣetre 'prajasya vai bhrātur
-> mātrokto bādarāyaṇaḥ
-> dhṛtarāṣṭraṁ ca pāṇḍuṁ ca
+> kṣetre 'prajasya vai bhrātur\
+> mātrokto bādarāyaṇaḥ\
+> dhṛtarāṣṭraṁ ca pāṇḍuṁ ca\
 > viduraṁ cāpy ajījanat
 
 *kṣetre*—in the wives and maidservant; *aprajasya*—of Vicitravīrya, who had no progeny; *vai*—indeed; *bhrātuḥ*—of the brother; *mātrā uktaḥ*—being ordered by the mother; *bādarāyaṇaḥ*—Vedavyāsa; *dhṛtarāṣṭram*—a son named Dhṛtarāṣṭra; *ca*—and; *pāṇḍum*—a son named Pāṇḍu; *ca*—also; *viduram*—a son named Vidura; *ca*—also; *api*—indeed; *ajījanat*—begot.

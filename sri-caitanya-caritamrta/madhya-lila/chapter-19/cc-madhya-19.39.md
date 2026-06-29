@@ -1,9 +1,9 @@
 ### CC Madhya 19.39
 
-> কেহ কান্দে, কেহ হাসে, কেহ নাচে, গায় ।
+> কেহ কান্দে, কেহ হাসে, কেহ নাচে, গায় ।\
 > ‘কৃষ্ণ’ ‘কৃষ্ণ’ বলি’ কেহ গড়াগড়ি যায় ॥৩৯॥
 
-> keha kānde, keha hāse, keha nāce, gāya
+> keha kānde, keha hāse, keha nāce, gāya\
 > 'kṛṣṇa' 'kṛṣṇa' bali' keha gaḍāgaḍi yāya
 
 *keha kānde*—some cried; *keha hāse*—some laughed; *keha nāce*—some danced; *gāya*—chanted; *kṛṣṇa kṛṣṇa bali'*—saying Kṛṣṇa, Kṛṣṇa; *keha*—some; *gaḍāgaḍi yāya*—rolled on the ground.

@@ -1,9 +1,9 @@
 ### CC Madhya 25.15
 
-> তবে মহাপ্রভু তাঁর নিমন্ত্রণ মানিলা ।
+> তবে মহাপ্রভু তাঁর নিমন্ত্রণ মানিলা ।\
 > আর দিন মধ্যাহ্ন করি’ তাঁর ঘরে গেলা ॥১৫॥
 
-> tabe mahāprabhu tāṅra nimantraṇa mānilā
+> tabe mahāprabhu tāṅra nimantraṇa mānilā\
 > āra dina madhyāhna kari' tāṅra ghare gelā
 
 *tabe*—after this; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅra*—his; *nimantraṇa*—invitation; *mānilā*—accepted; *āra dina*—the next day; *madhyāhna kari'*—after finishing His *madhyāhna* activities (taking bath and murmuring *mantras*); *tāṅra ghare gelā*—He went to the house of the Mahārāṣṭrian *brāhmaṇa.*

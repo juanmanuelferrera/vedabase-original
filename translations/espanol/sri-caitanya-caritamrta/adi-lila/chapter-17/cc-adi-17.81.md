@@ -1,9 +1,9 @@
 ### CC Adi 17.81
 
-> দেখিতে দেখিতে বৃক্ষ হইল ফলিত ।
+> দেখিতে দেখিতে বৃক্ষ হইল ফলিত ।\
 > পাকিল অনেক ফল, সবেই বিস্মিত ॥৮১॥
 
-> dekhite dekhite vṛkṣa ha-ila phalita
+> dekhite dekhite vṛkṣa ha-ila phalita\
 > pākila aneka phala, sabei vismita
 
 *dekhite dekhite*—mientras la gente observaba; *vṛkṣa*—el árbol; *ha-ila*—llegó a estar; *phalita*—completamente cargado de frutos; *pākila*—maduraron; *aneka*—muchos; *phala*—frutos; *sabei*—todos; *vismita*—llenos de asombro.

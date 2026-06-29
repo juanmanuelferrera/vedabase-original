@@ -1,9 +1,9 @@
 ### CC Adi 13.42
 
-> বিদ্যাপতি, জয়দেব, চণ্ডীদাসের গীত ।
+> বিদ্যাপতি, জয়দেব, চণ্ডীদাসের গীত ।\
 > আস্বাদেন রামানন্দ-স্বরূপ-সহিত ॥৪২॥
 
-> vidyāpati, jayadeva, caṇḍīdāsera gīta
+> vidyāpati, jayadeva, caṇḍīdāsera gīta\
 > āsvādena rāmānanda-svarūpa-sahita
 
 *vidyāpati*—el autor de nombre Vidyāpati; *jayadeva*—de nombre Jayadeva; *caṇḍīdāsera*—de nombre Caṇḍīdāsa; *gīta*—sus canciones; *āsvādena*—saborea; *rāmānanda*—de nombre Rāmānanda; *svarūpa*—de nombre Svarūpa; *sahita*—junto con.

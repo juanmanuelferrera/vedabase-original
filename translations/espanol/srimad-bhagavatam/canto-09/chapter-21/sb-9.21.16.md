@@ -1,11 +1,11 @@
 ### SB 9.21.16
 
-> स वै तेभ्यो नमस्कृत्य निःसङ्गो विगतस्पृहः
+> स वै तेभ्यो नमस्कृत्य निःसङ्गो विगतस्पृहः\
 > वासुदेवे भगवति भक्त्या चक्रे मनः परम ॥१६॥
 
-> sa vai tebhyo namaskṛtya
-> niḥsaṅgo vigata-spṛhaḥ
-> vāsudeve bhagavati
+> sa vai tebhyo namaskṛtya\
+> niḥsaṅgo vigata-spṛhaḥ\
+> vāsudeve bhagavati\
 > bhaktyā cakre manaḥ param
 
 *saḥ*—él (el rey Rantideva); *vai*—en verdad; *tebhyaḥ*—al Señor Brahmā, el Señor Śiva y los demás semidioses; *namaḥ-kṛtya*—ofrecer reverencias; *niḥsaṅgaḥ*—sin interés en recibir de ellos ninguna bendición; *vigata-spṛhaḥ*—libre por completo del deseo de poseer bienes materiales; *vāsudeve*—en el Señor Vāsudeva; *bhagavati*—el Señor Supremo; *bhaktyā*—con servicio devocional; *cakre*—fijó; *manaḥ*—la mente; *param*—como objetivo supremo de la vida.

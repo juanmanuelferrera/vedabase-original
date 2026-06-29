@@ -1,11 +1,11 @@
 ### SB 3.19.4
 
-> स तदा लब्धतीर्थोऽपि न बबाधे निरायुधम् ।
+> स तदा लब्धतीर्थोऽपि न बबाधे निरायुधम् ।\
 > मानयन्स मृधे धर्मं विष्वक्सेनं प्रकोपयन् ॥४॥
 
-> sa tadā labdha-tīrtho 'pi
-> na babādhe nirāyudham
-> mānayan sa mṛdhe dharmaṁ
+> sa tadā labdha-tīrtho 'pi\
+> na babādhe nirāyudham\
+> mānayan sa mṛdhe dharmaṁ\
 > viṣvaksenaṁ prakopayan
 
 *saḥ*—ese Hiraṇyākṣa; *tadā*—entonces; *labdha-tīrthaḥ*—habiendo conseguido una oportunidad excelente; *api*—aunque; *na*—no; *babādhe*—atacó; *nirāyudham*—sin tener armas; *mānayan*—respetando; *saḥ*—Hiraṇyākṣa; *mṛdhe*—en batalla; *dharmam*—el código de combate; *viṣvaksenam*—a la Suprema Personalidad de Dios; *prakopayan*—poniendo furioso.

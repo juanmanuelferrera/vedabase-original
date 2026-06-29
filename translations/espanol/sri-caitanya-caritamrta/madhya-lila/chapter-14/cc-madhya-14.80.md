@@ -1,9 +1,9 @@
 ### CC Madhya 14.80
 
-> বিদ্যানিধির জলকেলি স্বরূপের সনে ।
+> বিদ্যানিধির জলকেলি স্বরূপের সনে ।\
 > গুপ্ত-দত্তে জলকেলি করে দুইজনে ॥৮০॥
 
-> vidyānidhira jala-keli svarūpera sane
+> vidyānidhira jala-keli svarūpera sane\
 > gupta-datte jala-keli kare dui jane
 
 *vidyānidhira*—de Vidyānidhi; *jala-keli*—juegos acuáticos; *svarūpera sane*—con Svarūpa Dāmodara; *gupta-datte*—tanto Murāri Gupta como Vāsudeva Datta; *jala-keli*—juegos acuáticos; *kare*—hacen; *dui jane*—dos personas.

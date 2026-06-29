@@ -1,14 +1,14 @@
 ### SB 4.22.62
 
-> बृहस्पतिर्ब्रह्मवादे आत्मवत्त्वे स्वयं हरिः ।
-> भक्त्या गोगुरुविप्रेषु विष्वक्सेनानुवर्तिषु ।
+> बृहस्पतिर्ब्रह्मवादे आत्मवत्त्वे स्वयं हरिः ।\
+> भक्त्या गोगुरुविप्रेषु विष्वक्सेनानुवर्तिषु ।\
 > ह्रिया प्रश्रयशीलाभ्यामात्मतुल्यः परोद्यमे ॥६२॥
 
-> bṛhaspatir brahma-vāde
-> ātmavattve svayaṁ hariḥ
-> bhaktyā go-guru-vipreṣu
-> viṣvaksenānuvartiṣu
-> hriyā praśraya-śīlābhyām
+> bṛhaspatir brahma-vāde\
+> ātmavattve svayaṁ hariḥ\
+> bhaktyā go-guru-vipreṣu\
+> viṣvaksenānuvartiṣu\
+> hriyā praśraya-śīlābhyām\
 > ātma-tulyaḥ parodyame
 
 *bṛhaspatiḥ*—the priest of the heavenly planets; *brahma-vāde*—in the matter of spiritual understanding; *ātma-vattve*—in the matter of self-control; *svayam*—personally; *hariḥ*—the Supreme Personality of Godhead; *bhaktyā*—in devotion; *go*—cow; *guru*—spiritual master; *vipreṣu*—unto the *brāhmaṇas*; *viṣvaksena*—the Personality of Godhead; *anuvartiṣu*—followers; *hriyā*—by shyness; *praśraya-śīlābhyām*—by most gentle behavior; *ātma-tulyaḥ*—exactly like his personal interest; *para-udyame*—in the matter of philanthropic work.

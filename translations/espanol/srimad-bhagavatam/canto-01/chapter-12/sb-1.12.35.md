@@ -1,11 +1,11 @@
 ### SB 1.12.35
 
-> आहूतो भगवान्राज्ञा याजयित्वा द्विजैर्नृपम् ।
+> आहूतो भगवान्राज्ञा याजयित्वा द्विजैर्नृपम् ।\
 > उवास कतिचिन्मासान्सुहृदां प्रियकाम्यया ॥३५॥
 
-> āhūto bhagavān rājñā
-> yājayitvā dvijair nṛpam
-> uvāsa katicin māsān
+> āhūto bhagavān rājñā\
+> yājayitvā dvijair nṛpam\
+> uvāsa katicin māsān\
 > suhṛdāṁ priya-kāmyayā
 
 *āhūtaḥ*—siendo llamado por; *bhagavān*—el Señor Kṛṣṇa, la Personalidad de Dios; *rājñā*—por el rey; *yājayitvā*—haciendo que se ejecutara; *dvijaiḥ*—por los *brāhmaṇas* eruditos; *nṛpam*—en el nombre del rey; *uvāsa*—residió; *katicit*—unos cuantos; *māsān*—meses; *suhṛdām*—por el bien de los parientes; *priya-kāmyayā*—para placer.

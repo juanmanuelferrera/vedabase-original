@@ -1,11 +1,11 @@
 ### SB 7.7.45
 
-> किमेतैरात्मनस्तुच्छैः सह देहेन नश्वरैः
+> किमेतैरात्मनस्तुच्छैः सह देहेन नश्वरैः\
 > अनर्थैरर्थसङ्काशैर्नित्यानन्दरसोदधेः ॥४५॥
 
-> kim etair ātmanas tucchaiḥ
-> saha dehena naśvaraiḥ
-> anarthair artha-saṅkāśair
+> kim etair ātmanas tucchaiḥ\
+> saha dehena naśvaraiḥ\
+> anarthair artha-saṅkāśair\
 > nityānanda-rasodadheḥ
 
 *kim*—what is the use; *etaiḥ*—with all these; *ātmanaḥ*—for the real self; *tucchaiḥ*—which are most insignificant; *saha*—with; *dehena*—the body; *naśvaraiḥ*—perishable; *anarthaiḥ*—unwanted; *artha-saṅkāśaiḥ*—appearing as if needed; *nitya-ānanda*—of eternal happiness; *rasa*—of the nectar; *udadheḥ*—for the ocean.

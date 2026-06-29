@@ -1,13 +1,13 @@
 ### SB 3.21.22
 
-> ऋषिरुवाच
-> इत्यव्यलीकं प्रणुतोऽब्जनाभस्तमाबभाषे वचसामृतेन ।
+> ऋषिरुवाच\
+> इत्यव्यलीकं प्रणुतोऽब्जनाभस्तमाबभाषे वचसामृतेन ।\
 > सुपर्णपक्षोपरि रोचमानः प्रेमस्मितोद्वीक्षणविभ्रमद्भ्रूः ॥२२॥
 
-> ṛṣir uvāca
-> ity avyalīkaṁ praṇuto 'bja-nābhas
-> tam ābabhāṣe vacasāmṛtena
-> suparṇa-pakṣopari rocamānaḥ
+> ṛṣir uvāca\
+> ity avyalīkaṁ praṇuto 'bja-nābhas\
+> tam ābabhāṣe vacasāmṛtena\
+> suparṇa-pakṣopari rocamānaḥ\
 > prema-smitodvīkṣaṇa-vibhramad-bhrūḥ
 
 *ṛṣiḥ uvāca*—el gran sabio Maitreya dijo; *iti*—así; *avyalīkam*—sinceramente; *praṇutaḥ*—habiendo sido alabado; *abja-nābhaḥ*—el Señor Viṣṇu; *tam*—a Kardama Muni; *ābabhāṣe*—contestó; *vacasā*—con palabras; *amṛtena*—tan dulces como el néctar; *suparṇa*—de Garuḍa; *pakṣa*—los hombros; *upari*—sobre; *rocamānaḥ*—brillando; *prema*—de afecto; *smita*—con una sonrisa; *udvīkṣaṇa*—mirando; *vibhramat*—moviendo graciosamente; *bhrūḥ*—cejas.

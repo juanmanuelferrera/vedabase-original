@@ -1,11 +1,11 @@
 ### SB 1.15.20
 
-> सोऽहं नृपेन्द्र रहितः पुरुषोत्तमेन सख्या प्रियेण सुहृदा हृदयेन शून्यः ।
+> सोऽहं नृपेन्द्र रहितः पुरुषोत्तमेन सख्या प्रियेण सुहृदा हृदयेन शून्यः ।\
 > अध्वन्युरुक्रमपरिग्रहमङ्ग रक्षन्गोपैरसद्भिरबलेव विनिर्जितोऽस्मि ॥२०॥
 
-> so 'haṁ nṛpendra rahitaḥ puruṣottamena
-> sakhyā priyeṇa suhṛdā hṛdayena śūnyaḥ
-> adhvany urukrama-parigraham aṅga rakṣan
+> so 'haṁ nṛpendra rahitaḥ puruṣottamena\
+> sakhyā priyeṇa suhṛdā hṛdayena śūnyaḥ\
+> adhvany urukrama-parigraham aṅga rakṣan\
 > gopair asadbhir abaleva vinirjito 'smi
 
 *saḥ*—eso; *aham*—yo mismo; *nṛpa-indra*—¡oh, emperador!; *rahitaḥ*—privado de; *puruṣa-uttamena*—por el Señor Supremo; *sakhyā*—por mi amigo; *priyeṇa*—por mi muy querido; *suhṛdā*—por el bienqueriente; *hṛdayena*—por el corazón y el alma; *śūnyaḥ*—vacío; *adhvani*—recientemente; *urukrama-parigraham*—las esposas del todopoderoso; *aṅga*—cuerpos; *rakṣan*—mientras protegía; *gopaiḥ*—por los pastores de vacas; *asadbhiḥ*—por los infieles; *abalā iva*—como una débil mujer; *vinirjitaḥ asmi*—he sido derrotado.

@@ -1,11 +1,11 @@
 ### SB 8.21.34
 
-> विप्रलब्धो ददामीति त्वयाहं चाढ्यमानिना
+> विप्रलब्धो ददामीति त्वयाहं चाढ्यमानिना\
 > तद्व्यलीकफलं भुङ्क्ष्व निरयं कतिचित्समाः ॥३४॥
 
-> vipralabdho dadāmīti
-> tvayāhaṁ cāḍhya-māninā
-> tad vyalīka-phalaṁ bhuṅkṣva
+> vipralabdho dadāmīti\
+> tvayāhaṁ cāḍhya-māninā\
+> tad vyalīka-phalaṁ bhuṅkṣva\
 > nirayaṁ katicit samāḥ
 
 *vipralabdhaḥ*—now I am cheated; *dadāmi*—I promise I shall give you; *iti*—thus; *tvayā*—by you; *aham*—I am; *ca*—also; *āḍhya-māninā*—by being very proud of your opulence; *tat*—therefore; *vyalīka-phalam*—as a result of cheating; *bhuṅkṣva*—you enjoy; *nirayam*—in hellish life; *katicit*—a few; *samāḥ*—years.

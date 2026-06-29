@@ -1,11 +1,11 @@
 ### SB 6.18.14
 
-> शिरोऽहरद्यस्य हरिश्चक्रेण पिबतोऽमृतम
+> शिरोऽहरद्यस्य हरिश्चक्रेण पिबतोऽमृतम\
 > संह्रादस्य कृतिर्भार्या सूत पञ्चजनं ततः ॥१४॥
 
-> śiro 'harad yasya hariś
-> cakreṇa pibato 'mṛtam
-> saṁhrādasya kṛtir bhāryā-
+> śiro 'harad yasya hariś\
+> cakreṇa pibato 'mṛtam\
+> saṁhrādasya kṛtir bhāryā-\
 > sūta pañcajanaṁ tataḥ
 
 *śiraḥ*—la cabeza; *aharat*—cortó; *yasya*—de quien; *hariḥ*—Hari; *cakreṇa*—con el disco; *pibataḥ*—beber; *amṛtam*—néctar; *saṁhrādasya*—de Saṁhlāda; *kṛtiḥ*—Kṛti; *bhāryā*—la esposa; *asūta*—dio a luz a; *pañcajanam*—Pañcajana; *tataḥ*—de él.

@@ -1,9 +1,9 @@
 ### CC Adi 7.143
 
-> কৃষ্ণের চরণে হয় যদি অনুরাগ ।
+> কৃষ্ণের চরণে হয় যদি অনুরাগ ।\
 > কৃষ্ণ বিনু অন্যত্র তার নাহি রহে রাগ ॥১৪৩॥
 
-> kṛṣṇera caraṇe haya yadi anurāga
+> kṛṣṇera caraṇe haya yadi anurāga\
 > kṛṣṇa vinu anyatra tāra nāhi rahe rāga
 
 *kṛṣṇera*—of Kṛṣṇa; *caraṇe*—at the lotus feet; *haya*—becomes; *yadi*—if; *anurāga*—attachment; *kṛṣṇa*—the Supreme Personality of Godhead; *vinu*—without; *anyatra*—anywhere else; *tāra*—his; *nāhi*—there does not; *rahe*—remain; *rāga*—attachment.

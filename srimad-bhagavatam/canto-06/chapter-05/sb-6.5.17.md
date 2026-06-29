@@ -1,11 +1,11 @@
 ### SB 6.5.17
 
-> पञ्चविंशतितत्त्वानां पुरुषोऽद्भुतदर्पणः
+> पञ्चविंशतितत्त्वानां पुरुषोऽद्भुतदर्पणः\
 > अध्यात्ममबुधस्येह किमसत्कर्मभिर्भवेत ॥१७॥
 
-> pañca-viṁśati-tattvānāṁ
-> puruṣo 'dbhuta-darpaṇaḥ
-> adhyātmam abudhasyeha
+> pañca-viṁśati-tattvānāṁ\
+> puruṣo 'dbhuta-darpaṇaḥ\
+> adhyātmam abudhasyeha\
 > kim asat-karmabhir bhavet
 
 *pañca-viṁśati*—twenty-five; *tattvānām*—of the elements; *puruṣaḥ*—the Supreme Personality of Godhead; *adbhuta-darpaṇaḥ*—the wonderful manifester; *adhyātmam*—the overseer of all causes and effects; *abudhasya*—of one who does not know; *iha*—in this world; *kim asat-karmabhiḥ bhavet*—what can be the benefit of engaging in temporary fruitive activities.

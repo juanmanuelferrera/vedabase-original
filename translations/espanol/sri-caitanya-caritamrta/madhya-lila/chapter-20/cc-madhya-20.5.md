@@ -1,9 +1,9 @@
 ### CC Madhya 20.5
 
-> “তুমি এক জিন্দাপীর মহাভাগ্যবান্ ।
+> “তুমি এক জিন্দাপীর মহাভাগ্যবান্ ।\
 > কেতাব-কোরাণ-শাস্ত্রে আছে তোমার জ্ঞান ॥৫॥
 
-> "tumi eka jindā-pīra mahā-bhāgyavān
+> "tumi eka jindā-pīra mahā-bhāgyavān\
 > ketāba-korāṇa-śāstre āche tomāra jñāna
 
 *tumi*—tú; *eka jindā-pīra*—un santo viviente; *mahā-bhāgyavān*—muy afortunado; *ketāba*—libros; *korāṇa*—el Corán; *śāstre*—en las escrituras; *āche*—hay; *tomāra*—tu; *jñāna*—conocimiento.

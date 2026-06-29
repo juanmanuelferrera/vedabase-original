@@ -1,11 +1,11 @@
 ### Bg 3.30
 
-> मयि सर्वाणि कर्माणि संन्यस्याध्यात्मचेतसा ।
+> मयि सर्वाणि कर्माणि संन्यस्याध्यात्मचेतसा ।\
 > निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः ॥३०॥
 
-> mayi sarvāṇi karmāṇi
-> sannyasyādhyātma-cetasā
-> nirāśīr nirmamo bhūtvā
+> mayi sarvāṇi karmāṇi\
+> sannyasyādhyātma-cetasā\
+> nirāśīr nirmamo bhūtvā\
 > yudhyasva vigata-jvaraḥ
 
 *mayi*—unto Me; *sarvāṇi*—all sorts of; *karmāṇi*—activities; *sannyasya*—giving up completely; *adhyātma*—with full knowledge of the self; *cetasā*—consciousness; *nirāśīḥ*—without desire for profit; *nirmamaḥ*—without ownership; *bhūtvā*—so being; *yudhyasva*—fight; *vigata-jvaraḥ*—without being lethargic.

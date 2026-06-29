@@ -1,9 +1,9 @@
 ### CC Madhya 9.177
 
-> তাঁর সঙ্গে মহাপ্রভু করি ইষ্টগোষ্ঠী ।
+> তাঁর সঙ্গে মহাপ্রভু করি ইষ্টগোষ্ঠী ।\
 > তাঁর আজ্ঞা লঞা আইলা পুরী কামকোষ্ঠী ॥১৭৭॥
 
-> tāṅra saṅge mahāprabhu kari iṣṭagoṣṭhī
+> tāṅra saṅge mahāprabhu kari iṣṭagoṣṭhī\
 > tāṅra ājñā lañā āilā purī kāmakoṣṭhī
 
 *tāṅra saṅge*—with him; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *kari iṣṭa-goṣṭhī*—discussing spiritual subject matter; *tāṅra*—his; *ājñā*—order; *lañā*—taking; *āilā*—came; *purī kāmakoṣṭhī*—to Kāmakoṣṭhī-purī.

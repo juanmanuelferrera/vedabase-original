@@ -1,11 +1,11 @@
 ### SB 1.18.10
 
-> या याः कथा भगवतः कथनीयोरुकर्मणः ।
+> या याः कथा भगवतः कथनीयोरुकर्मणः ।\
 > गुणकर्माश्रयाः पुम्भिः संसेव्यास्ता बुभूषुभिः ॥१०॥
 
-> yā yāḥ kathā bhagavataḥ
-> kathanīyoru-karmaṇaḥ
-> guṇa-karmāśrayāḥ pumbhiḥ
+> yā yāḥ kathā bhagavataḥ\
+> kathanīyoru-karmaṇaḥ\
+> guṇa-karmāśrayāḥ pumbhiḥ\
 > saṁsevyās tā bubhūṣubhiḥ
 
 *yāḥ*—whatever; *yāḥ*—and whatsoever; *kathāḥ*—topics; *bhagavataḥ*—about the Personality of Godhead; *kathanīya*—were to be spoken by me; *uru-karmaṇaḥ*—of Him who acts wonderfully; *guṇa*—transcendental qualities; *karma*—uncommon deeds; *āśrayāḥ*—involving; *pumbhiḥ*—by persons; *saṁsevyāḥ*—ought to be heard; *tāḥ*—all of them; *bubhūṣubhiḥ*—by those who want their own welfare.

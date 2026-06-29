@@ -1,13 +1,13 @@
 ### SB 3.27.21
 
-> श्रीभगवानुवाच
-> अनिमित्तनिमित्तेन स्वधर्मेणामलात्मना ।
+> श्रीभगवानुवाच\
+> अनिमित्तनिमित्तेन स्वधर्मेणामलात्मना ।\
 > तीव्रया मयि भक्त्या च श्रुतसम्भृतया चिरम् ॥२१॥
 
-> śrī-bhagavān uvāca
-> animitta-nimittena
-> sva-dharmeṇāmalātmanā
-> tīvrayā mayi bhaktyā ca
+> śrī-bhagavān uvāca\
+> animitta-nimittena\
+> sva-dharmeṇāmalātmanā\
+> tīvrayā mayi bhaktyā ca\
 > śruta-sambhṛtayā ciram
 
 *śrī-bhagavān uvāca*—the Supreme Personality of Godhead said; *animitta-nimittena*—without desiring the fruits of activities; *sva-dharmeṇa*—by executing one's prescribed duties; *amala-ātmanā*—with a pure mind; *tīvrayā*—serious; *mayi*—unto Me; *bhaktyā*—by devotional service; *ca*—and; *śruta*—hearing; *sambhṛtayā*—endowed with; *ciram*—for a long time.

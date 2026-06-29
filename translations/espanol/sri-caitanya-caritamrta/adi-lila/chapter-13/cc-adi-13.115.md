@@ -1,13 +1,13 @@
 ### CC Adi 13.115
 
-> ভক্ষ্য, ভোজ্য, উপহার, সঙ্গে লইল বহু ভার,
-> শচীগৃহে হৈল উপনীত ।
-> দেখিয়া বালক-ঠাম, সাক্ষাৎ গোকুল-কান,
+> ভক্ষ্য, ভোজ্য, উপহার, সঙ্গে লইল বহু ভার,\
+> শচীগৃহে হৈল উপনীত ।\
+> দেখিয়া বালক-ঠাম, সাক্ষাৎ গোকুল-কান,\
 > বর্ণমাত্র দেখি বিপরীত ॥১১৫॥
 
-> bhakṣya, bhojya, upahāra, saṅge la-ila bahu bhāra,
-> śacī-gṛhe haila upanīta
-> dekhiyā bālaka-ṭhāma, sākṣāt gokula-kāna,
+> bhakṣya, bhojya, upahāra, saṅge la-ila bahu bhāra,\
+> śacī-gṛhe haila upanīta\
+> dekhiyā bālaka-ṭhāma, sākṣāt gokula-kāna,\
 > varṇa-mātra dekhi viparīta
 
 *bhakṣya*—alimentos; *bhojya*—alimentos fritos; *upahāra*—presentes; *saṅge*—con ella; *la-ila*—llevó; *bahu bhāra*—muchos paquetes; *śacī-gṛhe*—a la casa de madre Śacī; *haila*—fue; *upanīta*—llevado; *dekhiyā*—al ver; *bālaka-ṭhāma*—los rasgos del niño; *sākṣāt*—directamente; *gokula-kāna*—el Señor Kṛṣṇa de Gokula; *varṇa-mātra*—solamente el color; *dekhi*—al ver; *viparīta*—opuesto.

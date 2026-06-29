@@ -1,11 +1,11 @@
 ### SB 4.14.38
 
-> एवं मृशन्त ऋषयो धावतां सर्वतोदिशम् ।
+> एवं मृशन्त ऋषयो धावतां सर्वतोदिशम् ।\
 > पांसुः समुत्थितो भूरिश्चोराणामभिलुम्पताम् ॥३८॥
 
-> evaṁ mṛśanta ṛṣayo
-> dhāvatāṁ sarvato-diśam
-> pāṁsuḥ samutthito bhūriś
+> evaṁ mṛśanta ṛṣayo\
+> dhāvatāṁ sarvato-diśam\
+> pāṁsuḥ samutthito bhūriś\
 > corāṇām abhilumpatām
 
 *evam*—de este modo; *mṛśantaḥ*—mientras hacían consideraciones; *ṛṣayaḥ*—las grandes personas santas; *dhāvatām*—corriendo; *sarvataḥ-diśam*—de todas direcciones; *pāṁsuḥ*—polvo; *samutthitaḥ*—se levantó; *bhūriḥ*—mucho; *corāṇām*—de ladrones y maleantes; *abhilumpatām*—dedicados a saquear.

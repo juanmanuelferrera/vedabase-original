@@ -1,13 +1,13 @@
 ### SB 5.1.39
 
-> तस्य ह वा एते श्लोकाः
-> प्रियव्रतकृतं कर्म को नु कुर्याद्विनेश्वरम
+> तस्य ह वा एते श्लोकाः\
+> प्रियव्रतकृतं कर्म को नु कुर्याद्विनेश्वरम\
 > यो नेमिनिम्नैरकरोच्छायां घ्नन्सप्त वारिधीन ॥३८॥
 
-> tasya ha vā ete ślokāḥ—
-> priyavrata-kṛtaṁ karma
-> ko nu kuryād vineśvaram
-> yo nemi-nimnair akaroc
+> tasya ha vā ete ślokāḥ—\
+> priyavrata-kṛtaṁ karma\
+> ko nu kuryād vineśvaram\
+> yo nemi-nimnair akaroc\
 > chāyāṁ ghnan sapta vāridhīn
 
 *tasya*—his; *ha vā*—certainly; *ete*—all these; *ślokāḥ*—verses; *priyavrata*—by King Priyavrata; *kṛtam*—done; *karma*—activities; *kaḥ*—who; *nu*—then; *kuryāt*—can execute; *vinā*—without; *īśvaram*—the Supreme Personality of Godhead; *yaḥ*—one who; *nemi*—of the rim of the wheels of his chariot; *nimnaiḥ*—by the depressions; *akarot*—made; *chāyām*—darkness; *ghnan*—dissipating; *sapta*—seven; *vāridhīn*—oceans.

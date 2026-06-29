@@ -1,13 +1,13 @@
 ### CC Adi 8.25
 
-> তদশ্মসারং হৃদয়ং বতেদং,
-> যদ্গৃহ্যমাণৈর্হরিনামধেয়ৈঃ ।
-> ন বিক্রিয়েতাথ যদা বিকারো,
+> তদশ্মসারং হৃদয়ং বতেদং,\
+> যদ্গৃহ্যমাণৈর্হরিনামধেয়ৈঃ ।\
+> ন বিক্রিয়েতাথ যদা বিকারো,\
 > নেত্রে জলং গাত্ররুহেষু হর্ষঃ ॥২৫॥
 
-> tad aśma-sāraṁ hṛdayaṁ batedaṁ
-> yad gṛhyamāṇair hari-nāmadheyaiḥ
-> na vikriyetātha yadā vikāro
+> tad aśma-sāraṁ hṛdayaṁ batedaṁ\
+> yad gṛhyamāṇair hari-nāmadheyaiḥ\
+> na vikriyetātha yadā vikāro\
 > netre jalaṁ gātra-ruheṣu harṣaḥ
 
 *tat*—that; *aśma-sāram*—as hard as iron; *hṛdayam*—heart; *bata*—O; *idam*—this; *yat*—which; *gṛhyamāṇaiḥ*—in spite of taking the chanting; *hari-nāmadheyaiḥ*—meditating on the holy name of the Lord; *na*—does not; *vikriyeta*—change; *atha*—thus; *yadā*—when; *vikāraḥ*—transformation; *netre*—in the eyes; *jalam*—tears; *gātra-ruheṣu*—in the pores of the body; *harṣaḥ*—ecstasy.

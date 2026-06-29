@@ -1,9 +1,9 @@
 ### CC Madhya 16.8
 
-> দুঁহে কহে, — রথযাত্রা কর দরশন ৷
+> দুঁহে কহে, — রথযাত্রা কর দরশন ৷\
 > কার্তিক আইলে, তবে করিহ গমন ॥৮॥
 
-> duṅhe kahe,--ratha-yātrā kara daraśana
+> duṅhe kahe,--ratha-yātrā kara daraśana\
 > kārtika āile, tabe kariha gamana
 
 *duṅhe kahe*—ambos dijeron; *ratha-yātrā*—el festival de Ratha-yātrā; *kara daraśana*—por favor, preséncielo; *kārtika āile*—cuando llegue el mes de Kārttika; *tabe*—en ese momento; *kariha gamana*—podréis ir.

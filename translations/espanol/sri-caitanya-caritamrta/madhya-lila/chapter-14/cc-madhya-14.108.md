@@ -1,9 +1,9 @@
 ### CC Madhya 14.108
 
-> মহোত্সব কর তৈছে বিশেষ সম্ভার ।
+> মহোত্সব কর তৈছে বিশেষ সম্ভার ।\
 > দেখি’ মহাপ্রভুর যৈছে হয় চমৎকার ॥১০৮॥
 
-> mahotsava kara taiche viśeṣa sambhāra
+> mahotsava kara taiche viśeṣa sambhāra\
 > dekhi' mahāprabhura yaiche haya camatkāra
 
 *mahotsava*—el festival; *kara*—celebra; *taiche*—de tal modo; *viśeṣa sambhāra*—con gran suntuosidad; *dekhi'*—después de ver; *mahāprabhura*—del Señor Śrī Caitanya Mahāprabhu; *yaiche*—de manera que; *haya*—haya; *camatkāra*—asombro.

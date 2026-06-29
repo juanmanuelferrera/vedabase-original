@@ -1,13 +1,13 @@
 ### SB 1.13.37
 
-> सञ्जय उवाच
-> नाहं वेद व्यवसितं पित्रोर्वः कुलनन्दन ।
+> सञ्जय उवाच\
+> नाहं वेद व्यवसितं पित्रोर्वः कुलनन्दन ।\
 > गान्धार्या वा महाबाहो मुषितोऽस्मि महात्मभिः ॥३७॥
 
-> sañjaya uvāca
-> nāhaṁ veda vyavasitaṁ
-> pitror vaḥ kula-nandana
-> gāndhāryā vā mahā-bāho
+> sañjaya uvāca\
+> nāhaṁ veda vyavasitaṁ\
+> pitror vaḥ kula-nandana\
+> gāndhāryā vā mahā-bāho\
 > muṣito 'smi mahātmabhiḥ
 
 *sañjayaḥ uvāca*—Sañjaya said; *na*—not; *aham*—I; *veda*—know; *vyavasitam*—determination; *pitroḥ*—of your uncles; *vaḥ*—your; *kula-nandana*—O descendant of the Kuru dynasty; *gāndhāryāḥ*—of Gāndhārī; *vā*—or; *mahā-bāho*—O great King; *muṣitaḥ*—cheated; *asmi*—I have been; *mahā-ātmabhiḥ*—by those great souls.

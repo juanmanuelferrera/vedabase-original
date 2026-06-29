@@ -1,9 +1,9 @@
 ### CC Madhya 11.140
 
-> ছোট হঞা মুকুন্দ এবে হৈল আমার জ্যেষ্ঠ ।
+> ছোট হঞা মুকুন্দ এবে হৈল আমার জ্যেষ্ঠ ।\
 > তোমার কৃপাপাত্র তাতে সর্বগুণে শ্রেষ্ঠ ॥১৪০॥
 
-> choṭa hañā mukunda ebe haila āmāra jyeṣṭha
+> choṭa hañā mukunda ebe haila āmāra jyeṣṭha\
 > tomāra kṛpā-pātra tāte sarva-guṇe śreṣṭha
 
 *choṭa hañā*—being junior; *mukunda*—Mukunda; *ebe*—now; *haila*—has become; *āmāra*—my; *jyeṣṭha*—senior; *tomāra*—Your; *kṛpā-pātra*—favorite; *tāte*—therefore; *sarva-guṇe*—in all good qualities; *śreṣṭha*—superior.

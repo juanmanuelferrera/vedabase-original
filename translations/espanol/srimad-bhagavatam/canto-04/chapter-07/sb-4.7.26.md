@@ -1,15 +1,15 @@
 ### SB 4.7.26
 
-> दक्ष उवाच
-> शुद्धं स्वधाम्न्युपरताखिलबुद्ध्यवस्थं
-> चिन्मात्रमेकमभयं प्रतिषिध्य मायाम् ।
-> तिष्ठंस्तयैव पुरुषत्वमुपेत्य तस्याम्
+> दक्ष उवाच\
+> शुद्धं स्वधाम्न्युपरताखिलबुद्ध्यवस्थं\
+> चिन्मात्रमेकमभयं प्रतिषिध्य मायाम् ।\
+> तिष्ठंस्तयैव पुरुषत्वमुपेत्य तस्याम्\
 > आस्ते भवानपरिशुद्ध इवात्मतन्त्रः ॥२६॥
 
-> dakṣa uvāca
-> śuddhaṁ sva-dhāmny uparatākhila-buddhy-avasthaṁ
-> cin-mātram ekam abhayaṁ pratiṣidhya māyām
-> tiṣṭhaṁs tayaiva puruṣatvam upetya tasyām
+> dakṣa uvāca\
+> śuddhaṁ sva-dhāmny uparatākhila-buddhy-avasthaṁ\
+> cin-mātram ekam abhayaṁ pratiṣidhya māyām\
+> tiṣṭhaṁs tayaiva puruṣatvam upetya tasyām\
 > āste bhavān apariśuddha ivātma-tantraḥ
 
 *dakṣaḥ*—Dakṣa; *uvāca*—dijo; *śuddham*—puro; *sva-dhāmni*—en Tu propia morada; *uparata-akhila*—completamente rechazada; *buddhi-avastham*—posición de especulación mental; *cit-mātram*—completamente espiritual; *ekam*—uno y único; *abhayam*—libre de temor; *pratiṣidhya*—controlando; *māyām*—a la energía material; *tiṣṭhan*—situado; *tayā*—con ella (Māyā); *eva*—ciertamente; *puruṣatvam*—supervisor; *upetya*—que entra en; *tasyām*—en ella; *āste*—está presente; *bhavān*—Tu Señoría; *apariśuddhaḥ*—impuro; *iva*—como si; *ātma-tantraḥ*—autosuficiente.

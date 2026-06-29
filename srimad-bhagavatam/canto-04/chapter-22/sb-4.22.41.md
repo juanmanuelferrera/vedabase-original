@@ -1,13 +1,13 @@
 ### SB 4.22.41
 
-> मैत्रेय उवाच
-> स एवं ब्रह्मपुत्रेण कुमारेणात्ममेधसा ।
+> मैत्रेय उवाच\
+> स एवं ब्रह्मपुत्रेण कुमारेणात्ममेधसा ।\
 > दर्शितात्मगतिः सम्यक्प्रशस्योवाच तं नृपः ॥४१॥
 
-> maitreya uvāca
-> sa evaṁ brahma-putreṇa
-> kumāreṇātma-medhasā
-> darśitātma-gatiḥ samyak
+> maitreya uvāca\
+> sa evaṁ brahma-putreṇa\
+> kumāreṇātma-medhasā\
+> darśitātma-gatiḥ samyak\
 > praśasyovāca taṁ nṛpaḥ
 
 *maitreyaḥ uvāca*—the great sage Maitreya said; *saḥ*—the King; *evam*—thus; *brahma-putreṇa*—by the son of Lord Brahmā; *kumāreṇa*—by one of the Kumāras; *ātma-medhasā*—well versed in spiritual knowledge; *darśita*—being shown; *ātma-gatiḥ*—spiritual advancement; *samyak*—completely; *praśasya*—worshiping; *uvāca*—said; *tam*—unto him; *nṛpaḥ*—the King.

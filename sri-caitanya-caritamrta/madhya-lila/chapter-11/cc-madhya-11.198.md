@@ -1,9 +1,9 @@
 ### CC Madhya 11.198
 
-> আসি’ জগন্নাথের কৈল চূড়া দরশন ।
+> আসি’ জগন্নাথের কৈল চূড়া দরশন ।\
 > প্রভুর আবাসে আইলা করিতে ভোজন ॥১৯৮॥
 
-> āsi' jagannāthera kaila cūḍā daraśana
+> āsi' jagannāthera kaila cūḍā daraśana\
 > prabhura āvāse āilā karite bhojana
 
 *āsi'*—coming back; *jagannāthera*—of Lord Jagannātha; *kaila*—did; *cūḍā daraśana*—looking at the top of the temple; *prabhura*—of Lord Caitanya Mahāprabhu; *āvāse*—at the residence; *āilā*—came; *karite bhojana*—to take their luncheon.

@@ -1,13 +1,13 @@
 ### SB 3.16.7
 
-> यत्सेवया चरणपद्मपवित्ररेणुं
-> सद्यः क्षताखिलमलं प्रतिलब्धशीलम् ।
-> न श्रीर्विरक्तमपि मां विजहाति यस्याः
+> यत्सेवया चरणपद्मपवित्ररेणुं\
+> सद्यः क्षताखिलमलं प्रतिलब्धशीलम् ।\
+> न श्रीर्विरक्तमपि मां विजहाति यस्याः\
 > प्रेक्षालवार्थ इतरे नियमान्वहन्ति ॥७॥
 
-> yat-sevayā caraṇa-padma-pavitra-reṇuṁ
-> sadyaḥ kṣatākhila-malaṁ pratilabdha-śīlam
-> na śrīr viraktam api māṁ vijahāti yasyāḥ
+> yat-sevayā caraṇa-padma-pavitra-reṇuṁ\
+> sadyaḥ kṣatākhila-malaṁ pratilabdha-śīlam\
+> na śrīr viraktam api māṁ vijahāti yasyāḥ\
 > prekṣā-lavārtha itare niyamān vahanti
 
 *yat*—of whom; *sevayā*—by the service; *caraṇa*—feet; *padma*—lotus; *pavitra*—sacred; *reṇum*—the dust; *sadyaḥ*—immediately; *kṣata*—wiped out; *akhila*—all; *malam*—sins; *pratilabdha*—acquired; *śīlam*—disposition; *na*—not; *śrīḥ*—the goddess of fortune; *viraktam*—have no attachment; *api*—even though; *mām*—Me; *vijahāti*—leave; *yasyāḥ*—of the goddess of fortune; *prekṣā-lava-arthaḥ*—for obtaining a slight favor; *itare*—others, like Lord Brahmā; *niyamān*—sacred vows; *vahanti*—observe.

@@ -1,11 +1,11 @@
 ### SB 9.19.13
 
-> यत्पृथिव्यां व्रीहियवं हिरण्यं पशवः स्त्रियः
+> यत्पृथिव्यां व्रीहियवं हिरण्यं पशवः स्त्रियः\
 > न दुह्यन्ति मनःप्रीतिं पुंसः कामहतस्य ते ॥१३॥
 
-> yat pṛthivyāṁ vrīhi-yavaṁ
-> hiraṇyaṁ paśavaḥ striyaḥ
-> na duhyanti manaḥ-prītiṁ
+> yat pṛthivyāṁ vrīhi-yavaṁ\
+> hiraṇyaṁ paśavaḥ striyaḥ\
+> na duhyanti manaḥ-prītiṁ\
 > puṁsaḥ kāma-hatasya te
 
 *yat*—qué; *pṛthivyām*—dentro de este mundo; *vrīhi*—cereales, arroz; *yavam*—cebada; *hiraṇyam*—oro; *paśavaḥ*—animales; *striyaḥ*—esposas u otras mujeres; *na duhyanti*—no dan; *manaḥ-prītim*—satisfacción de la mente; *puṁsaḥ*—a una persona; *kāma-hatasya*—por haber caído víctima de los deseos de disfrute; *te*—ellos.

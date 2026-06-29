@@ -1,9 +1,9 @@
 ### CC Madhya 5.41
 
-> জ্ঞাতি লোক কহে, — ‘মোরা তোমাকে ছাড়িব ।’
+> জ্ঞাতি লোক কহে, — ‘মোরা তোমাকে ছাড়িব ।’\
 > স্ত্রী-পুত্র কহে, — ‘বিষ খাইয়া মরিব ।।’ ॥৪১॥
 
-> jñāti loka kahe,—'morā tomāke chāḍiba'
+> jñāti loka kahe,—'morā tomāke chāḍiba'\
 > strī-putra kahe,—'viṣa khāiyā mariba'
 
 *jñāti loka*—the relatives; *kahe*—answer; *morā*—we all; *tomāke*—you; *chāḍiba*—will give up; *strī*—wife; *putra*—sons; *kahe*—say; *viṣa*—poison; *khāiyā*—drinking; *mariba*—we shall die.

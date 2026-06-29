@@ -1,9 +1,9 @@
 ### CC Madhya 13.14
 
-> মহাপ্ৰভু ‘মণিমা’ ‘মণিমা’ করে ধ্বনি ।
+> মহাপ্ৰভু ‘মণিমা’ ‘মণিমা’ করে ধ্বনি ।\
 > নানা-বাদ্য-কোলাহলে কিছুই না শুনি ॥১৪॥
 
-> mahāprabhu 'maṇimā' 'maṇimā' kare dhvani
+> mahāprabhu 'maṇimā' 'maṇimā' kare dhvani\
 > nānā-vādya-kolāhale kichui nā śuni
 
 *mahāprabhu*—Śrī Caitanya Mahāprabhu; *maṇimā*—Maṇimā; *maṇimā*—Maṇimā; *kare*—makes; *dhvani*—the sound; *nānā*—various; *vādya*—of musical instruments; *kolāhale*—by the tumultuous sound; *kichui*—anything; *nā*—not; *śuni*—can hear.

@@ -1,13 +1,13 @@
 ### SB 3.7.1
 
-> श्रीशुक उवाच
-> एवं ब्रुवाणं मैत्रेयं द्वैपायनसुतो बुधः ।
+> श्रीशुक उवाच\
+> एवं ब्रुवाणं मैत्रेयं द्वैपायनसुतो बुधः ।\
 > प्रीणयन्निव भारत्या विदुरः प्रत्यभाषत ॥१॥
 
-> śrī-śuka uvāca
-> evaṁ bruvāṇaṁ maitreyaṁ
-> dvaipāyana-suto budhaḥ
-> prīṇayann iva bhāratyā
+> śrī-śuka uvāca\
+> evaṁ bruvāṇaṁ maitreyaṁ\
+> dvaipāyana-suto budhaḥ\
+> prīṇayann iva bhāratyā\
 > viduraḥ pratyabhāṣata
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—thus; *bruvāṇam*—speaking; *maitreyam*—unto the sage. Maitreya; *dvaipāyana-sutaḥ*—the son of Dvaipāyana; *budhaḥ*—learned; *prīṇayan*—in a pleasing manner; *iva*—as it was; *bhāratyā*—in the manner of a request; *viduraḥ*—Vidura; *pratyabhāṣata*—expressed.

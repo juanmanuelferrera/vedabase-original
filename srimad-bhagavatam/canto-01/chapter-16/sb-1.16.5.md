@@ -1,16 +1,16 @@
 ### SB 1.16.5
 
-> शौनक उवाच
-> कस्य हेतोर्निजग्राह कलिं दिग्विजये नृपः ।
-> नृदेवचिह्नधृक्षूद्र कोऽसौ गां यः पदाहनत् ।
+> शौनक उवाच\
+> कस्य हेतोर्निजग्राह कलिं दिग्विजये नृपः ।\
+> नृदेवचिह्नधृक्षूद्र कोऽसौ गां यः पदाहनत् ।\
 > तत्कथ्यतां महाभाग यदि कृष्णकथाश्रयम् ॥५॥
 
-> śaunaka uvāca
-> kasya hetor nijagrāha
-> kaliṁ digvijaye nṛpaḥ
-> nṛdeva-cihna-dhṛk śūdra-
-> ko 'sau gāṁ yaḥ padāhanat
-> tat kathyatāṁ mahā-bhāga
+> śaunaka uvāca\
+> kasya hetor nijagrāha\
+> kaliṁ digvijaye nṛpaḥ\
+> nṛdeva-cihna-dhṛk śūdra-\
+> ko 'sau gāṁ yaḥ padāhanat\
+> tat kathyatāṁ mahā-bhāga\
 > yadi kṛṣṇa-kathāśrayam
 
 *śaunakaḥ uvāca*—Śaunaka Ṛṣi said; *kasya*—for what; *hetoḥ*—reason; *nijagrāha*—sufficiently punished; *kalim*—the master of the age of Kali; *digvijaye*—during the time of his world tour; *nṛpaḥ*—the King; *nṛ-deva*—royal person; *cihna-dhṛk*—decorated like; *śūdrakaḥ*—lowest of the *śūdras*; *asau*—he; *gām*—cow; *yaḥ*—one who; *padā ahanat*—struck on the leg; *tat*—all that; *kathyatām*—please describe; *mahā-bhāga*—O greatly fortunate one; *yadi*—if, however; *kṛṣṇa*—about Kṛṣṇa; *kathā-āśrayam*—related with His topics.

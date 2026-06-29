@@ -1,9 +1,9 @@
 ### CC Adi 7.8
 
-> রাসাদি-বিলাসী, ব্রজললনা-নাগর ।
+> রাসাদি-বিলাসী, ব্রজললনা-নাগর ।\
 > আর যত সব দেখ, — তাঁর পরিকর ॥৮॥
 
-> rāsādi-vilāsī, vrajalalanā-nāgara
+> rāsādi-vilāsī, vrajalalanā-nāgara\
 > āra yata saba dekha,--tāṅra parikara
 
 *rāsa-ādi*—la danza del *rāsa*; *vilāsī*—el disfrutador; *vraja-lalanā*—las doncellas de Vṛndāvana; *nāgara*—el líder; *āra*—otros; *yata*—todos; *saba*—todos; *dekha*—hay que saber; *tāṅra*—Sus; *parikara*—asociados.

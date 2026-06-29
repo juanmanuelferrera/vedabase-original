@@ -1,11 +1,11 @@
 ### SB 8.5.10
 
-> पयोधिं येन निर्मथ्य सुराणां साधिता सुधा
+> पयोधिं येन निर्मथ्य सुराणां साधिता सुधा\
 > भ्रममाणोऽम्भसि धृतः कूर्मरूपेण मन्दरः ॥१०॥
 
-> payodhiṁ yena nirmathya
-> surāṇāṁ sādhitā sudhā
-> bhramamāṇo 'mbhasi dhṛtaḥ
+> payodhiṁ yena nirmathya\
+> surāṇāṁ sādhitā sudhā\
+> bhramamāṇo 'mbhasi dhṛtaḥ\
 > kūrma-rūpeṇa mandaraḥ
 
 *payodhim*—el océano de leche; *yena*—por quien; *nirmathya*—batiendo; *surāṇām*—de los semidioses; *sādhitā*—produjo; *sudhā*—néctar; *bhramamāṇaḥ*—ir de un lugar a otro; *ambhasi*—dentro del agua; *dhṛtaḥ*—permanecía; *kūrma-rūpeṇa*—en forma de tortuga; *mandaraḥ*—la montaña Mandara.

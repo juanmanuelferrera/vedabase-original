@@ -1,9 +1,9 @@
 ### CC Madhya 20.259
 
-> মায়া-দ্বারে সৃজে তেঁহো ব্রহ্মাণ্ডের গণ ।
+> মায়া-দ্বারে সৃজে তেঁহো ব্রহ্মাণ্ডের গণ ।\
 > জড়রূপা প্রকৃতি নহে ব্রহ্মাণ্ড-কারণ ॥২৫৯॥
 
-> māyā-dvāre sṛje teṅho brahmāṇḍera gaṇa
+> māyā-dvāre sṛje teṅho brahmāṇḍera gaṇa\
 > jaḍa-rūpā prakṛti nahe brahmāṇḍa-kāraṇa
 
 *māyā-dvāre*—por medio de la energía externa; *sṛje*—crea; *teṅho*—el Señor Saṅkarṣaṇa; *brahmāṇḍera gaṇa*—todos los grupos de universos; *jaḍa-rūpā*—de apariencia inerte; *prakṛti*—la energía material; *nahe*—no es; *brahmāṇḍa-kāraṇa*—la causa de la manifestación cósmica.

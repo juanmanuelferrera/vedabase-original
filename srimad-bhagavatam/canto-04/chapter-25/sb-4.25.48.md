@@ -1,11 +1,11 @@
 ### SB 4.25.48
 
-> नलिनी नालिनी च प्राग्द्वारावेकत्र निर्मिते ।
+> नलिनी नालिनी च प्राग्द्वारावेकत्र निर्मिते ।\
 > अवधूतसखस्ताभ्यां विषयं याति सौरभम् ॥४८॥
 
-> nalinī nālinī ca prāg
-> dvārāv ekatra nirmite
-> avadhūta-sakhas tābhyāṁ
+> nalinī nālinī ca prāg\
+> dvārāv ekatra nirmite\
+> avadhūta-sakhas tābhyāṁ\
 > viṣayaṁ yāti saurabham
 
 *nalinī*—of the name Nalinī; *nālinī*—of the name Nālinī; *ca*—also; *prāk*—eastern; *dvārau*—two gates; *ekatra*—in one place; *nirmite*—constructed; *avadhūta*—of the name Avadhūta; *sakhaḥ*—with his friend; *tābhyām*—by those two gates; *viṣayam*—place; *yāti*—used to go; *saurabham*—of the name Saurabha.

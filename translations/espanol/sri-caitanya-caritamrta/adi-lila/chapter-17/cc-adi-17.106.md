@@ -1,9 +1,9 @@
 ### CC Adi 17.106
 
-> পরমতত্ত্ব, পরব্রহ্ম, পরম-ঈশ্বর ।
+> পরমতত্ত্ব, পরব্রহ্ম, পরম-ঈশ্বর ।\
 > দেখি’ প্রভুর মূর্তি সর্বজ্ঞ হইল ফাঁফর ॥১০৬॥
 
-> parama-tattva, para-brahma, parama-īśvara
+> parama-tattva, para-brahma, parama-īśvara\
 > dekhi' prabhura mūrti sarva-jña ha-ila phāṅphara
 
 *parama-tattva*—la Verdad Suprema; *para-brahma*—el Brahman Supremo; *parama-īśvara*—el Señor Supremo; *dekhi'*—al ver; *prabhura*—del Señor; *mūrti*—forma; *sarva-jña*—el astrólogo omnisciente; *ha-ila*—quedó; *phāṅphara*—confundido.

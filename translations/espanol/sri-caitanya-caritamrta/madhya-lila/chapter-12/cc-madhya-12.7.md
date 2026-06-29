@@ -1,9 +1,9 @@
 ### CC Madhya 12.7
 
-> প্ৰভুর নিকটে আছে যত ভক্তগণ  ।
+> প্ৰভুর নিকটে আছে যত ভক্তগণ  ।\
 > মোর লাগি’ তাঁ-সবারে করিহ নিবেদন ॥৭॥
 
-> prabhura nikaṭe āche yata bhakta-gaṇa
+> prabhura nikaṭe āche yata bhakta-gaṇa\
 > mora lāgi' tāṅ-sabāre kariha nivedana
 
 *prabhura nikaṭe*—en el lugar de Śrī Caitanya Mahāprabhu; *āche*—están; *yata*—todos; *bhakta-gaṇa*—los devotos; *mora lāgi'*—en mi nombre; *tāṅ-sabāre*—a todos ellos; *kariha*—por favor, presenta; *nivedana*—una petición.

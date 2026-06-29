@@ -1,9 +1,9 @@
 ### CC Adi 15.14
 
-> ভাল হৈল, — বিশ্বরূপ সন্ন্যাস করিল ।
+> ভাল হৈল, — বিশ্বরূপ সন্ন্যাস করিল ।\
 > পিতৃকুল, মাতৃকুল, — দুই উদ্ধারিল ॥১৪॥
 
-> bhāla haila,—viśvarūpa sannyāsa karila
+> bhāla haila,—viśvarūpa sannyāsa karila\
 > pitṛ-kula, mātṛ-kula,—dui uddhārila
 
 *bhāla haila*—it is very good; *viśvarūpa*—of the name Viśvarūpa; *sannyāsa*—the renounced order of life; *karila*—has accepted; *pitṛ-kula*—father's family; *mātṛ-kula*—mother's family; *dui*—both of them; *uddhārila*—delivered.

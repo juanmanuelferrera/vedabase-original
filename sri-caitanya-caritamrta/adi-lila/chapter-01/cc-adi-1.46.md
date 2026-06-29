@@ -1,11 +1,11 @@
 ### CC Adi 1.46
 
-> আচার্যং মাং বিজানীয়ান্নাবমন্যেত কর্হিচিৎ ।
+> আচার্যং মাং বিজানীয়ান্নাবমন্যেত কর্হিচিৎ ।\
 > ন মর্ত্যবুদ্ধ্যাসূয়েত সর্বদেবময়ো গুরুঃ ॥৪৬॥
 
-> ācāryaṁ māṁ vijānīyān
-> nāvamanyeta karhicit
-> na martya-buddhyāsūyeta
+> ācāryaṁ māṁ vijānīyān\
+> nāvamanyeta karhicit\
+> na martya-buddhyāsūyeta\
 > sarva-deva-mayo guruḥ
 
 *ācāryam*—the spiritual master; *mām*—Myself; *vijānīyāt*—one should know; *na avamanyeta*—one should never disrespect; *karhicit*—at any time; *na*—never; *martya-buddhyā*—with the idea of his being an ordinary man; *asūyeta*—one should be envious; *sarva-deva*—of all demigods; *mayaḥ*—representative; *guruḥ*—the spiritual master.

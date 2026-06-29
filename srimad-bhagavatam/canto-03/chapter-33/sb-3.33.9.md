@@ -1,13 +1,13 @@
 ### SB 3.33.9
 
-> मैत्रेय उवाच
-> ईडितो भगवानेवं कपिलाख्यः परः पुमान् ।
+> मैत्रेय उवाच\
+> ईडितो भगवानेवं कपिलाख्यः परः पुमान् ।\
 > वाचाविक्लवयेत्याह मातरं मातृवत्सलः ॥९॥
 
-> maitreya uvāca
-> īḍito bhagavān evaṁ
-> kapilākhyaḥ paraḥ pumān
-> vācāviklavayety āha
+> maitreya uvāca\
+> īḍito bhagavān evaṁ\
+> kapilākhyaḥ paraḥ pumān\
+> vācāviklavayety āha\
 > mātaraṁ mātṛ-vatsalaḥ
 
 *maitreyaḥ uvāca*—Maitreya said; *īḍitaḥ*—praised; *bhagavān*—the Supreme Personality of Godhead; *evam*—thus; *kapila-ākhyaḥ*—named Kapila; *paraḥ*—supreme; *pumān*—person; *vācā*—with words; *aviklavayā*—grave; *iti*—thus; *āha*—replied; *mātaram*—to His mother; *mātṛ-vatsalaḥ*—very affectionate to His mother.

@@ -1,9 +1,9 @@
 ### CC Madhya 14.143
 
-> মানে কেহ হয় ‘ধীরা’, কেহ ত’ ‘অধীরা’ ।
+> মানে কেহ হয় ‘ধীরা’, কেহ ত’ ‘অধীরা’ ।\
 > এই তিন-ভেদে, কেহ হয় ‘ধীরাধীরা’ ॥১৪৩॥
 
-> māne keha haya 'dhīrā,' keha ta' 'adhīrā'
+> māne keha haya 'dhīrā,' keha ta' 'adhīrā'\
 > ei tina-bhede, keha haya 'dhīrādhīrā'
 
 *māne*—on the platform of jealous anger; *keha*—some women; *haya dhīra*—are very sober; *keha ta'*—and some of them; *adhīra*—very restless; *ei tina-bhede*—and there is a third division; *keha haya*—some are; *dhīra-adhīra*—a mixture of sober and restless.

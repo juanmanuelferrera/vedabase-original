@@ -1,9 +1,9 @@
 ### CC Madhya 12.123
 
-> সেই জল লঞা আপনে পান কৈল  ।
+> সেই জল লঞা আপনে পান কৈল  ।\
 > তাহা দেখি’ প্রভুর মনে দুঃখ রোষ হৈল ॥১২৩॥
 
-> sei jala lañā āpane pāna kaila
+> sei jala lañā āpane pāna kaila\
 > tāhā dekhi' prabhura mane duḥkha roṣa haila
 
 *sei jala*—that water; *lañā*—taking; *āpane*—personally; *pāna kaila*—drank; *tāhā dekhi'*—seeing that; *prabhura*—of the Lord; *mane*—in the mind; *duḥkha*—unhappiness; *roṣa*—anger; *haila*—there was.

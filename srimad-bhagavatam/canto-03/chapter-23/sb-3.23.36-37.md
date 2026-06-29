@@ -1,18 +1,18 @@
 ### SB 3.23.36-37
 
-> स तां कृतमलस्नानां विभ्राजन्तीमपूर्ववत् ।
-> आत्मनो बिभ्रतीं रूपं संवीतरुचिरस्तनीम् ॥३६॥
-> विद्याधरीसहस्रेण सेव्यमानां सुवाससम् ।
+> स तां कृतमलस्नानां विभ्राजन्तीमपूर्ववत् ।\
+> आत्मनो बिभ्रतीं रूपं संवीतरुचिरस्तनीम् ॥३६॥\
+> विद्याधरीसहस्रेण सेव्यमानां सुवाससम् ।\
 > जातभावो विमानं तदारोहयदमित्रहन् ॥३७॥
 
-> sa tāṁ kṛta-mala-snānāṁ
-> vibhrājantīm apūrvavat
-> ātmano bibhratīṁ rūpaṁ
+> sa tāṁ kṛta-mala-snānāṁ\
+> vibhrājantīm apūrvavat\
+> ātmano bibhratīṁ rūpaṁ\
 > saṁvīta-rucira-stanīm
 
-> vidyādharī-sahasreṇa
-> sevyamānāṁ suvāsasam
-> jāta-bhāvo vimānaṁ tad
+> vidyādharī-sahasreṇa\
+> sevyamānāṁ suvāsasam\
+> jāta-bhāvo vimānaṁ tad\
 > ārohayad amitra-han
 
 *saḥ*—the sage; *tām*—her (Devahūti); *kṛta-mala-snānām*—bathed clean; *vibhrājantīm*—shining forth; *apūrva-vat*—unprecedentedly; *ātmanaḥ*—her own; *bibhratīm*—possessing; *rūpam*—beauty; *saṁvīta*—girded; *rucira*—charming; *stanīm*—with breasts; *vidyādharī*—of Gandharva girls; *sahasreṇa*—by a thousand; *sevyamānām*—being waited upon; *su-vāsasam*—dressed in excellent robes; *jāta-bhāvaḥ*—struck with fondness; *vimānam*—airplane like a mansion; *tat*—that; *ārohayat*—he put her on board; *amitra-han*—O destroyer of the enemy.

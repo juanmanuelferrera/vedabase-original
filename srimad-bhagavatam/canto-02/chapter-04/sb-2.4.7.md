@@ -1,14 +1,14 @@
 ### SB 2.4.7
 
-> यथा गोपायति विभुर्यथा संयच्छते पुनः ।
-> यां यां शक्तिमुपाश्रित्य पुरुशक्तिः परः पुमान् ।
+> यथा गोपायति विभुर्यथा संयच्छते पुनः ।\
+> यां यां शक्तिमुपाश्रित्य पुरुशक्तिः परः पुमान् ।\
 > आत्मानं क्रीडयन्क्रीडन्करोति विकरोति च ॥७॥
 
-> yathā gopāyati vibhur
-> yathā saṁyacchate punaḥ
-> yāṁ yāṁ śaktim upāśritya
-> puru-śaktiḥ paraḥ pumān
-> ātmānaṁ krīḍayan krīḍan
+> yathā gopāyati vibhur\
+> yathā saṁyacchate punaḥ\
+> yāṁ yāṁ śaktim upāśritya\
+> puru-śaktiḥ paraḥ pumān\
+> ātmānaṁ krīḍayan krīḍan\
 > karoti vikaroti ca
 
 *yathā*—as; *gopāyati*—maintains; *vibhuḥ*—the great; *yathā*—as; *saṁyacchate*—winds up; *punaḥ*—again; *yām yām*—as; *śaktim*—energies; *upāśritya*—by employing; *puru-śaktiḥ*—the all-powerful; *paraḥ*—the Supreme; *pumān*—Personality of Godhead; *ātmānam*—plenary expansion; *krīḍayan*—having engaged them; *krīḍan*—as also personally being engaged; *karoti*—does them; *vikaroti*—and causes to be done; *ca*—and.

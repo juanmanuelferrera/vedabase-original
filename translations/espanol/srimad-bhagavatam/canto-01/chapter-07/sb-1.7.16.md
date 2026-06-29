@@ -1,11 +1,11 @@
 ### SB 1.7.16
 
-> तदा शुचस्ते प्रमृजामि भद्रे यद्ब्रह्मबन्धोः शिर आततायिनः ।
+> तदा शुचस्ते प्रमृजामि भद्रे यद्ब्रह्मबन्धोः शिर आततायिनः ।\
 > गाण्डीवमुक्तैर्विशिखैरुपाहरे त्वाक्रम्य यत्स्नास्यसि दग्धपुत्रा ॥१६॥
 
-> tadā śucas te pramṛjāmi bhadre
-> yad brahma-bandhoḥ śira ātatāyinaḥ
-> gāṇḍīva-muktair viśikhair upāhare
+> tadā śucas te pramṛjāmi bhadre\
+> yad brahma-bandhoḥ śira ātatāyinaḥ\
+> gāṇḍīva-muktair viśikhair upāhare\
 > tvākramya yat snāsyasi dagdha-putrā
 
 *tadā*—solo en ese momento; *śucaḥ*—lágrimas de aflicción; *te*—tus; *pramṛjāmi*—enjugaré; *bhadre*—¡oh, gentil dama!; *yat*—cuando; *brahma-bandhoḥ*—de un *brāhmaṇa* degradado; *śiraḥ*—cabeza; *ātatāyinaḥ*—del agresor; *gāṇḍīva-muktaiḥ*—disparado por el arco llamado Gāṇḍiva; *viśikhaiḥ*—por las flechas; *upāhare*—he de presentarte; *tvā*—tú misma; *ākramya*—montando en ella; *yat*—la cual; *snāsyasi*—bañarte; *dagdha-putrā*—después de quemar a los hijos.

@@ -1,11 +1,11 @@
 ### SB 8.7.12
 
-> तथासुरानाविशदासुरेण रूपेण तेषां बलवीर्यमीरयन
+> तथासुरानाविशदासुरेण रूपेण तेषां बलवीर्यमीरयन\
 > उद्दीपयन्देवगणांश्च विष्णुर्दैवेन नागेन्द्रमबोधरूपः ॥१२॥
 
-> upary agendraṁ giri-rāḍ ivānya
-> ākramya hastena sahasra-bāhuḥ
-> tasthau divi brahma-bhavendra-mukhyair
+> upary agendraṁ giri-rāḍ ivānya\
+> ākramya hastena sahasra-bāhuḥ\
+> tasthau divi brahma-bhavendra-mukhyair\
 > abhiṣṭuvadbhiḥ sumano-'bhivṛṣṭaḥ
 
 *upari*—on the top of; *agendram*—the big mountain; *giri-rāṭ*—the king of mountains; *iva*—like; *anyaḥ*—another; *ākramya*—catching; *hastena*—by one hand; *sahasra-bāhuḥ*—exhibiting thousands of hands; *tasthau*—situated; *divi*—in the sky; *brahma*—Lord Brahmā; *bhava*—Lord Śiva; *indra*—the King of heaven; *mukhyaiḥ*—headed by; *abhiṣṭuvadbhiḥ*—offered prayers to the Lord; *sumanaḥ*—by flowers; *abhivṛṣṭaḥ*—being showered.

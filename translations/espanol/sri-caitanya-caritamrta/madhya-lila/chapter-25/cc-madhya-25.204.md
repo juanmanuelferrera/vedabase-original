@@ -1,9 +1,9 @@
 ### CC Madhya 25.204
 
-> শুষ্ককাষ্ঠ আনি’ রায় বেচে মথুরাতে ।
+> শুষ্ককাষ্ঠ আনি’ রায় বেচে মথুরাতে ।\
 > পাঁচ ছয় পৈসা হয় এক এক বোঝাতে ॥২০৪॥
 
-> śuṣka-kāṣṭha āni' rāya vece mathurāte
+> śuṣka-kāṣṭha āni' rāya vece mathurāte\
 > pāṅca chaya paisā haya eka eka bojhāte
 
 *śuṣka-kāṣṭha āni'*—recogiendo leña seca del bosque; *rāya*—Subuddhi Rāya; *vece*—vende; *mathurāte*—en Mathurā; *pāṅca chaya*—cinco o seis; *paisā*—paisas; *haya*—son; *eka eka bojhāte*—a cambio de cada carga de leña seca.

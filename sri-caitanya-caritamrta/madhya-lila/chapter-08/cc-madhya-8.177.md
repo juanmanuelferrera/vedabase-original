@@ -1,9 +1,9 @@
 ### CC Madhya 8.177
 
-> মধ্য-বয়স, সখী-স্কন্ধে কর-ন্যাস ।
+> মধ্য-বয়স, সখী-স্কন্ধে কর-ন্যাস ।\
 > কৃষ্ণলীলা-মনোবৃত্তি-সখী আশপাশ ॥১৭৭॥
 
-> madhya-vayasa, sakhī-skandhe kara-nyāsa
+> madhya-vayasa, sakhī-skandhe kara-nyāsa\
 > kṛṣṇalīlā-manovṛtti-sakhī āśa-pāśa
 
 *madhya-vayasa*—adolescence; *sakhī*—of a friend; *skandhe*—on the shoulder; *kara*—hand; *nyāsa*—keeping; *kṛṣṇa*—of Lord Kṛṣṇa; *līlā*—the pastimes; *manaḥ*—of the mind; *vṛtti*—activities; *sakhī*—*gopīs*; *āśa-pāśa*—here and there.

@@ -1,9 +1,9 @@
 ### CC Madhya 17.31
 
-> প্রভু জল-কৃত্য করে, আগে হস্তী আইলা ।
+> প্রভু জল-কৃত্য করে, আগে হস্তী আইলা ।\
 > ‘কৃষ্ণ কহ’ বলি’ প্রভু জল ফেলি’ মারিলা ॥৩১॥
 
-> prabhu jala-kṛtya kare, āge hastī āilā
+> prabhu jala-kṛtya kare, āge hastī āilā\
 > 'kṛṣṇa kaha' bali' prabhu jala pheli' mārilā
 
 *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *jala-kṛtya kare*—se bañaba y recitaba el mantra Gāyatrī dentro del agua; *āge*—delante; *hastī*—los elefantes; *āilā*—llegaron; *kṛṣṇa kaha*—canta Hare Kṛṣṇa; *bali'*—diciendo; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *jala pheli'*—arrojando agua; *mārilā*—golpeó.

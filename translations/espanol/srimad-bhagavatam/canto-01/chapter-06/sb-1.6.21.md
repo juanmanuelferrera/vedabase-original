@@ -1,11 +1,11 @@
 ### SB 1.6.21
 
-> हन्तास्मिञ्जन्मनि भवान्मा मां द्रष्टुमिहार्हति ।
+> हन्तास्मिञ्जन्मनि भवान्मा मां द्रष्टुमिहार्हति ।\
 > अविपक्वकषायाणां दुर्दर्शोऽहं कुयोगिनाम् ॥२१॥
 
-> hantāsmiñ janmani bhavān
-> mā māṁ draṣṭum ihārhati
-> avipakva-kaṣāyāṇāṁ
+> hantāsmiñ janmani bhavān\
+> mā māṁ draṣṭum ihārhati\
+> avipakva-kaṣāyāṇāṁ\
 > durdarśo 'haṁ kuyoginām
 
 *hanta*—¡oh, Nārada!; *asmin*—esta; *janmani*—duración de la vida; *bhavān*—tú mismo; *mā*—no; *mām*—Mí; *draṣṭum*—ver; *iha*—aquí; *arhati*—mereces; *avipakva*—inmaduro; *kaṣāyāṇām*—suciedad material; *durdarśaḥ*—difícil de ser visto; *aham*—Yo; *kuyoginām*—incompleto en el servicio.

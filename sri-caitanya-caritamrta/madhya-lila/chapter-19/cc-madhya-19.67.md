@@ -1,9 +1,9 @@
 ### CC Madhya 19.67
 
-> ভট্ট মিলিবারে যায়, দুঁহে পলায় দূরে ।
+> ভট্ট মিলিবারে যায়, দুঁহে পলায় দূরে ।\
 > ‘অস্পৃশ্য পামর মুঞি, না ছুঁইহ মোরে ।।’ ॥ ৬৭ ॥
 
-> bhaṭṭa milibāre yāya, duṅhe palāya dūre
+> bhaṭṭa milibāre yāya, duṅhe palāya dūre\
 > 'aspṛśya pāmara muñi, nā chuṅiha more'
 
 *bhaṭṭa*—Vallabha Bhaṭṭa; *milibāre*—to meet; *yāya*—goes; *duṅhe*—the two brothers; *palāya*—ran away; *dūre*—to a distant place; *aspṛśya*—untouchable; *pāmara*—most fallen; *muñi*—I; *nā chuṅiha*—do not touch; *more*—me.

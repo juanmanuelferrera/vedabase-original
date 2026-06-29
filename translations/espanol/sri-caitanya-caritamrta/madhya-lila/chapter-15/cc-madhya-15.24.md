@@ -1,9 +1,9 @@
 ### CC Madhya 15.24
 
-> শিরের উপরে, পৃষ্ঠে, সম্মুখে, দুই-পাশে ।
+> শিরের উপরে, পৃষ্ঠে, সম্মুখে, দুই-পাশে ।\
 > পাদমধ্যে ফিরায় লগুড়, — দেখি’ লোক হাসে ॥২৪॥
 
-> śirera upare, pṛṣṭhe, sammukhe, dui-pāśe
+> śirera upare, pṛṣṭhe, sammukhe, dui-pāśe\
 > pāda-madhye phirāya laguḍa,--dekhi' loka hāse
 
 *śirera upare*—sobre la cabeza; *pṛṣṭhe*—detrás de la espalda; *sammukhe*—por delante; *dui-pāśe*—a ambos lados; *pāda-madhye*—entre las dos piernas; *phirāya*—hace girar; *laguḍa*—la vara; *dekhi'*—al ver; *loka hāse*—todas las personas se echaron a reír.

@@ -1,9 +1,9 @@
 ### CC Madhya 4.108
 
-> স্বপ্ন দেখি’ পুরী-গোসাঞির হৈল প্রেমাবেশ ।
+> স্বপ্ন দেখি’ পুরী-গোসাঞির হৈল প্রেমাবেশ ।\
 > প্রভু-আজ্ঞা পালিবারে গেলা পূর্বদেশ ॥১০৮॥
 
-> svapna dekhi' purī-gosāñira haila premāveśa
+> svapna dekhi' purī-gosāñira haila premāveśa\
 > prabhu-ājñā pālibāre gelā pūrva-deśa
 
 *svapna dekhi'*—tras ver el sueño; *purī-gosāñira*—de Mādhavendra Purī; *haila*—hubo; *prema-āveśa*—éxtasis debido al amor por Dios; *prabhu-ājñā*—la orden del Señor; *pālibāre*—para ejecutar; *gelā*—partió; *pūrva-deśa*—hacia los países orientales (Bengala).

@@ -1,9 +1,9 @@
 ### CC Antya 6.294
 
-> প্রভু কহে, — “এই শিলা কৃষ্ণের বিগ্রহ ।
+> প্রভু কহে, — “এই শিলা কৃষ্ণের বিগ্রহ ।\
 > ইঁহার সেবা কর তুমি করিয়া আগ্রহ ॥২৯৪॥
 
-> prabhu kahe,--"ei śilā kṛṣṇera vigraha
+> prabhu kahe,--"ei śilā kṛṣṇera vigraha\
 > iṅhāra sevā kara tumi kariyā āgraha
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *ei śilā*—esta piedra; *kṛṣṇera vigraha*—la forma del Señor Kṛṣṇa; *iṅhāra*—de esta; *sevā*—adoración; *kara*—haz; *tumi*—tú; *kariyā āgraha*—con gran afán.

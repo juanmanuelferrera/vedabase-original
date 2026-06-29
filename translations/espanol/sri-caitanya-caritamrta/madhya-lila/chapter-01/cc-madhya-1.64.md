@@ -1,9 +1,9 @@
 ### CC Madhya 1.64
 
-> মহাপ্রভু জগন্নাথের উপল-ভোগ দেখিয়া ।
+> মহাপ্রভু জগন্নাথের উপল-ভোগ দেখিয়া ।\
 > নিজগৃহে যা’ন এই তিনেরে মিলিয়া ॥৬৪॥
 
-> mahāprabhu jagannāthera upala-bhoga dekhiyā
+> mahāprabhu jagannāthera upala-bhoga dekhiyā\
 > nija-gṛhe yā'na ei tinere miliyā
 
 *mahāprabhu*—Śrī Caitanya Mahāprabhu; *jagannāthera*—del Señor Jagannātha; *upala-bhoga*—ofrenda de alimento sobre la piedra; *dekhiyā*—después de ver; *nija-gṛhe*—a Su propia residencia; *yā'na*—va; *ei*—estos; *tinere*—tres; *miliyā*—encontrándose.

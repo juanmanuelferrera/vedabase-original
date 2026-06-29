@@ -1,9 +1,9 @@
 ### CC Adi 7.137
 
-> মুখ্যার্থ ব্যাখ্যা কর, দেখি তোমার বল ।’
+> মুখ্যার্থ ব্যাখ্যা কর, দেখি তোমার বল ।’\
 > মুখ্যার্থে লাগাল প্রভু সূত্রসকল ॥১৩৭॥
 
-> mukhyārtha vyākhyā kara, dekhi tomāra bala'
+> mukhyārtha vyākhyā kara, dekhi tomāra bala'\
 > mukhyārthe lāgāla prabhu sūtra-sakala
 
 *mukhya-artha*—significado directo; *vyākhyā*—explicación; *kara*—haga; *dekhi*—veamos; *tomāra*—Su; *bala*—fuerza; *mukhya-arthe*—significado directo; *lāgāla*—comenzó; *prabhu*—el Señor; *sūtra-sakala*—todos los aforismos del Vedānta-sūtra.

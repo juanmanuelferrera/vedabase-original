@@ -1,18 +1,18 @@
 ### SB 7.7.19-20
 
-> आत्मा नित्योऽव्ययः शुद्ध एकः क्षेत्रज्ञअ आश्रयः
-> अविक्रियः स्वदृघेतुर्व्यापकोऽसङ्ग्यनावृतः ॥१९॥
-> एतैर्द्वादशभिर्विद्वानात्मनो लक्षणैः परैः
+> आत्मा नित्योऽव्ययः शुद्ध एकः क्षेत्रज्ञअ आश्रयः\
+> अविक्रियः स्वदृघेतुर्व्यापकोऽसङ्ग्यनावृतः ॥१९॥\
+> एतैर्द्वादशभिर्विद्वानात्मनो लक्षणैः परैः\
 > अहं ममेत्यसद्भावं देहादौ मोहजं त्यजेत ॥२०॥
 
-> ātmā nityo 'vyayaḥ śuddha
-> ekaḥ kṣetra-jña āśrayaḥ
-> avikriyaḥ sva-dṛg hetur
+> ātmā nityo 'vyayaḥ śuddha\
+> ekaḥ kṣetra-jña āśrayaḥ\
+> avikriyaḥ sva-dṛg hetur\
 > vyāpako 'saṅgy anāvṛtaḥ
 
-> etair dvādaśabhir vidvān
-> ātmano lakṣaṇaiḥ paraiḥ
-> ahaṁ mamety asad-bhāvaṁ
+> etair dvādaśabhir vidvān\
+> ātmano lakṣaṇaiḥ paraiḥ\
+> ahaṁ mamety asad-bhāvaṁ\
 > dehādau mohajaṁ tyajet
 
 *ātmā*—el alma espiritual, la parte de la Suprema Personalidad de Dios; *nityaḥ*—sin nacimiento ni muerte; *avyayaḥ*—sin posibilidad de decaimiento; *śuddhaḥ*—sin la contaminación material del apego y el desapego; *ekaḥ*—individuales; *kṣetra-jñaḥ*—que conoce y que, por lo tanto, es diferente del cuerpo material; *āśrayaḥ*—el fundamento original*; *avikriyaḥ*—que no experimenta cambios, como el cuerpo**; *sva-dṛk*—autoluminosa***; *hetuḥ*—la causa de todas las causas; *vyāpakaḥ*—que se difunde por todo el cuerpo en forma de conciencia; *asaṅgī*—que no depende del cuerpo (libre para transmigrar de un cuerpo a otro); *anāvṛtaḥ*—no cubierta por la contaminación material; *etaiḥ*—por todas estas; *dvādaśabhiḥ*—doce; *vidvān*—una persona que no es necia, sino que es perfectamente consciente de las cosas tal y como son; *ātmanaḥ*—del alma espiritual; *lakṣaṇaiḥ*—características; *paraiḥ*—trascendentales; *aham*—yo («yo soy el cuerpo»); *mama*—mío («todo lo relacionado con el cuerpo es mío»); *iti*—así; *asat-bhāvam*—un concepto falso de la vida; *deha-ādau*—identificarse con el cuerpo material, y, a partir de ahí, con la esposa, los hijos, la familia, la comunidad, la nación, etc.; *moha-jam*—producto del conocimiento ilusorio; *tyajet*—debe abandonar.

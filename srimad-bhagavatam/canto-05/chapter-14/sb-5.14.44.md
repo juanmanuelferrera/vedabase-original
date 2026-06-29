@@ -1,13 +1,13 @@
 ### SB 5.14.44
 
-> यो दुस्त्यजान्क्षितिसुतस्वजनार्थदारान
-> प्रार्थ्यां श्रियं सुरवरैः सदयावलोकाम
-> नैच्छन्नृपस्तदुचितं महतां मधुद्विट
+> यो दुस्त्यजान्क्षितिसुतस्वजनार्थदारान\
+> प्रार्थ्यां श्रियं सुरवरैः सदयावलोकाम\
+> नैच्छन्नृपस्तदुचितं महतां मधुद्विट\
 > सेवानुरक्तमनसामभवोऽपि फल्गुः ॥४४॥
 
-> yo dustyajān kṣiti-suta-svajanārtha-dārān
-> prārthyāṁ śriyaṁ sura-varaiḥ sadayāvalokām
-> naicchan nṛpas tad-ucitaṁ mahatāṁ madhudviṭ-
+> yo dustyajān kṣiti-suta-svajanārtha-dārān\
+> prārthyāṁ śriyaṁ sura-varaiḥ sadayāvalokām\
+> naicchan nṛpas tad-ucitaṁ mahatāṁ madhudviṭ-\
 > sevānurakta-manasām abhavo 'pi phalguḥ
 
 *yaḥ*—who; *dustyajān*—very difficult to give up; *kṣiti*—the earth; *suta*—children; *sva-jana-artha-dārān*—relatives, riches and a beautiful wife; *prārthyām*—desirable; *śriyam*—the goddess of fortune; *sura-varaiḥ*—by the best of the demigods; *sa-daya-avalokām*—whose merciful glance; *na*—not; *aicchat*—desired; *nṛpaḥ*—the King; *tat-ucitam*—this is quite befitting him; *mahatām*—of great personalities (*mahātmās*); *madhu-dviṭ*—of Lord Kṛṣṇa, who killed the demon Madhu; *sevā-anurakta*—attracted by the loving service; *manasām*—of those whose minds; *abhavaḥ api*—even the position of liberation; *phalguḥ*—insignificant.

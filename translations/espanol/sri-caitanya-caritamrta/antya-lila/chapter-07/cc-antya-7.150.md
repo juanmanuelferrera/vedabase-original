@@ -1,9 +1,9 @@
 ### CC Antya 7.150
 
-> পণ্ডিতের ঠাঞি চাহে মন্ত্রাদি শিখিতে ।
+> পণ্ডিতের ঠাঞি চাহে মন্ত্রাদি শিখিতে ।\
 > পণ্ডিত কহে, — “এই কর্ম নহে আমা হৈতে ॥১৫০॥
 
-> paṇḍitera ṭhāñi cāhe mantrādi śikhite
+> paṇḍitera ṭhāñi cāhe mantrādi śikhite\
 > paṇḍita kahe,--"ei karma nahe āmā haite
 
 *paṇḍitera ṭhāñi*—de Gadādhara Paṇḍita; *cāhe*—quería; *mantra-ādi śikhite*—ser iniciado; *paṇḍita kahe*—Gadādhara Paṇḍita dijo; *ei karma*—este trabajo; *nahe āmā haite*—no es posible para mí.

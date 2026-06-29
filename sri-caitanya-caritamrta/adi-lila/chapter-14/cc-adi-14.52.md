@@ -1,9 +1,9 @@
 ### CC Adi 14.52
 
-> ক্রোধে কন্যাগণ কহে — শুন, হে নিমাঞি ।
+> ক্রোধে কন্যাগণ কহে — শুন, হে নিমাঞি ।\
 > গ্রাম-সম্বন্ধে হও তুমি আমা সবার ভাই ॥৫২॥
 
-> krodhe kanyāgaṇa kahe—śuna, he nimāñi
+> krodhe kanyāgaṇa kahe—śuna, he nimāñi\
 > grāma-sambandhe hao tumi āmā sabāra bhāi
 
 *krodhe*—in anger; *kanyā-gaṇa*—all the girls; *kahe*—said; *śuna*—hear; *he*—O; *nimāñi*—of the name Nimāi; *grāma*—village; *sambandhe*—in relationship; *hao*—are; *tumi*—You; *āmā*—of us; *sabāra*—everyone; *bhāi*—the brother.

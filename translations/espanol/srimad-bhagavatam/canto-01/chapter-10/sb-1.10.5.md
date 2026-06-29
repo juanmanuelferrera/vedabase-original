@@ -1,11 +1,11 @@
 ### SB 1.10.5
 
-> नद्यः समुद्रा गिरयः सवनस्पतिवीरुधः ।
+> नद्यः समुद्रा गिरयः सवनस्पतिवीरुधः ।\
 > फलन्त्योषधयः सर्वाः काममन्वृतु तस्य वै ॥५॥
 
-> nadyaḥ samudrā girayaḥ
-> savanaspati-vīrudhaḥ
-> phalanty oṣadhayaḥ sarvāḥ
+> nadyaḥ samudrā girayaḥ\
+> savanaspati-vīrudhaḥ\
+> phalanty oṣadhayaḥ sarvāḥ\
 > kāmam anvṛtu tasya vai
 
 *nadyaḥ*—ríos; *samudrāḥ*—océanos; *girayaḥ*—colinas y montañas; *savanaspati*—vegetales; *vīrudhaḥ*—enredaderas; *phalanti*—activas; *oṣadhayaḥ*—drogas; *sarvāḥ*—todos; *kāmam*—cosas necesarias; *anvṛtu*—de la estación; *tasya*—para el rey; *vai*—ciertamente.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.155
 
-> স্বয়ং ভগবান্ কৃষ্ণ, ‘গোবিন্দ’ পর নাম ।
+> স্বয়ং ভগবান্ কৃষ্ণ, ‘গোবিন্দ’ পর নাম ।\
 > সর্বৈশ্বর্যপূর্ণ যাঁর গোলক — নিত্যধাম ॥১৫৫॥
 
-> svayaṁ bhagavān kṛṣṇa, 'govinda' para nāma
+> svayaṁ bhagavān kṛṣṇa, 'govinda' para nāma\
 > sarvaiśvarya-pūrṇa yāṅra goloka--nitya-dhāma
 
 *svayam*—personalmente; *bhagavān*—la Suprema Personalidad de Dios; *kṛṣṇa*—Kṛṣṇa; *govinda*—Govinda; *para nāma*—otro nombre; *sarva-aiśvarya-pūrṇa*—pleno de todas las opulencias; *yāṅra*—cuya; *goloka*—Goloka Vṛndāvana; *nitya-dhāma*—morada eterna.

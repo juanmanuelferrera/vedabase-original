@@ -1,9 +1,9 @@
 ### CC Madhya 22.75
 
-> সর্ব মহা-গুণগণ বৈষ্ণব-শরীরে ।
+> সর্ব মহা-গুণগণ বৈষ্ণব-শরীরে ।\
 > কৃষ্ণভক্তে কৃষ্ণের গুণ সকলি সঞ্চারে ॥৭৫॥
 
-> sarva mahā-guṇa-gaṇa vaiṣṇava-śarīre
+> sarva mahā-guṇa-gaṇa vaiṣṇava-śarīre\
 > kṛṣṇa-bhakte kṛṣṇera guṇa sakali sañcāre
 
 *sarva*—all; *mahā*—great; *guṇa-gaṇa*—transcendental qualities; *vaiṣṇava-śarīre*—in the bodies of Vaiṣṇavas; *kṛṣṇa-bhakte*—in the devotees of Lord Kṛṣṇa; *kṛṣṇera*—of Lord Kṛṣṇa; *guṇa*—the qualities; *sakali*—all; *sañcāre*—appear.

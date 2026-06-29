@@ -1,11 +1,11 @@
 ### CC Antya 4.178
 
-> জ্ঞানবিজ্ঞানতৃপ্তাত্মা কূটস্থো বিজিতেন্দ্রিয়ঃ ।
+> জ্ঞানবিজ্ঞানতৃপ্তাত্মা কূটস্থো বিজিতেন্দ্রিয়ঃ ।\
 > যুক্ত ইত্যুচ্যতে যোগী সমলোষ্ট্রাশ্মকাঞ্চনঃ ॥১৭৮॥
 
-> jñāna-vijñāna-tṛptātmā
-> kūṭastho vijitendriyaḥ
-> yukta ity ucyate yogī
+> jñāna-vijñāna-tṛptātmā\
+> kūṭastho vijitendriyaḥ\
+> yukta ity ucyate yogī\
 > sama-loṣṭrāśma-kāñcanaḥ
 
 *jñāna*—by acquired knowledge; *vijñāna*—realized knowledge; *tṛpta*—satisfied; *ātmā*—living entity; *kūṭa-sthaḥ*—fixed in his constitutional position; *vijita*—controlled; *indriyaḥ*—whose senses; *yuktaḥ*—in touch with the Supreme; *iti*—thus; *ucyate*—is said; *yogī*—a *yogī*; *sama*—equal; *loṣṭra*—pebbles; *aśma*—stone; *kāñcanaḥ*—gold.

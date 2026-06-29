@@ -1,9 +1,9 @@
 ### CC Adi 17.16
 
-> তবে নিত্যানন্দ-গোসাঞির ব্যাস-পূজন ।
+> তবে নিত্যানন্দ-গোসাঞির ব্যাস-পূজন ।\
 > নিত্যানন্দাবেশে কৈল মুষল ধারণ ॥১৬॥
 
-> tabe nityānanda-gosāñira vyāsa-pūjana
+> tabe nityānanda-gosāñira vyāsa-pūjana\
 > nityānandāveśe kaila muṣala dhāraṇa
 
 *tabe*—thereafter; *nityānanda*—of the name Nityānanda; *gosāñira*—of the Lord; *vyāsa-pūjana*—worshiping Vyāsadeva or the spiritual master; *nityānanda-āveśe*—in the ecstasy of becoming Nityānanda; *kaila*—did; *muṣala dhāraṇa*—carrying a plowlike weapon called a *muṣala.*

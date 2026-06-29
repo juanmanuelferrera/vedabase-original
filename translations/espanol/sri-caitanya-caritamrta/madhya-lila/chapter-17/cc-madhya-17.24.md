@@ -1,9 +1,9 @@
 ### CC Madhya 17.24
 
-> প্রসিদ্ধ পথ ছাড়ি’ প্রভু উপপথে চলিলা ।
+> প্রসিদ্ধ পথ ছাড়ি’ প্রভু উপপথে চলিলা ।\
 > ‘কটক’ ডাহিনে করি’ বনে প্রবেশিলা ॥২৪॥
 
-> prasiddha patha chāḍi' prabhu upapathe calilā
+> prasiddha patha chāḍi' prabhu upapathe calilā\
 > 'kaṭaka' ḍāhine kari' vane praveśilā
 
 *prasiddha*—conocido; *patha*—camino público; *chāḍi'*—abandonando; *prabhu*—Śrī Caitanya Mahāprabhu; *upapathe*—por un desvío; *calilā*—comenzó a caminar; *kaṭaka*—la ciudad de Kaṭaka; *ḍāhine*—al lado derecho; *kari'*—dejando; *vane*—en el bosque; *praveśilā*—entró.

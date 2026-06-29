@@ -1,13 +1,13 @@
 ### CC Antya 17.47
 
-> যেবা লক্ষ্মী-ঠাকুরাণী, তেঁহো যে কাকলী শুনি’,
-> কৃষ্ণ-পাশ আইসে প্রত্যাশায় ।
-> না পায় কৃষ্ণের সঙ্গ, বাড়ে তৃষ্ণা তরঙ্গ,
+> যেবা লক্ষ্মী-ঠাকুরাণী, তেঁহো যে কাকলী শুনি’,\
+> কৃষ্ণ-পাশ আইসে প্রত্যাশায় ।\
+> না পায় কৃষ্ণের সঙ্গ, বাড়ে তৃষ্ণা তরঙ্গ,\
 > তপ করে, তবু নাহি পায় ॥৪৭॥
 
-> yebā lakṣmī-ṭhākurāṇī, teṅho ye kākalī śuni',
-> kṛṣṇa-pāśa āise pratyāśāya
-> nā pāya kṛṣṇera saṅga, bāḍe tṛṣṇā-taraṅga,
+> yebā lakṣmī-ṭhākurāṇī, teṅho ye kākalī śuni',\
+> kṛṣṇa-pāśa āise pratyāśāya\
+> nā pāya kṛṣṇera saṅga, bāḍe tṛṣṇā-taraṅga,\
 > tapa kare, tabu nāhi pāya
 
 *yebā*—incluso; *lakṣmī-ṭhākurāṇī*—la diosa de la fortuna; *teṅho*—ella; *ye*—la cual; *kākalī*—vibración de la flauta; *śuni'*—oyendo; *kṛṣṇa-pāśa*—al Señor Kṛṣṇa; *āise*—viene; *pratyāśāya*—con gran esperanza; *nā pāya*—no obtiene; *kṛṣṇera saṅga*—la asociación con Kṛṣṇa; *bāḍe*—aumentan; *tṛṣṇā*—de sed; *taraṅga*—las olas; *tapa kare*—ejecuta austeridades; *tabu*—aun así; *nāhi pāya*—no obtiene.

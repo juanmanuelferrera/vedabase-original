@@ -1,11 +1,11 @@
 ### SB 3.27.5
 
-> अत एव शनैश्चित्तं प्रसक्तमसतां पथि ।
+> अत एव शनैश्चित्तं प्रसक्तमसतां पथि ।\
 > भक्तियोगेन तीव्रेण विरक्त्या च नयेद्वशम् ॥५॥
 
-> ata eva śanaiś cittaṁ
-> prasaktam asatāṁ pathi
-> bhakti-yogena tīvreṇa
+> ata eva śanaiś cittaṁ\
+> prasaktam asatāṁ pathi\
+> bhakti-yogena tīvreṇa\
 > viraktyā ca nayed vaśam
 
 *ataḥ eva*—therefore; *śanaiḥ*—gradually; *cittam*—mind, consciousness; *prasaktam*—attached; *asatām*—of material enjoyments; *pathi*—on the path; *bhakti-yogena*—by devotional service; *tīvreṇa*—very serious; *viraktyā*—without attachment; *ca*—and; *nayet*—he must bring; *vaśam*—under control.

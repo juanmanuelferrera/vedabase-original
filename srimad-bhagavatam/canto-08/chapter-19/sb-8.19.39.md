@@ -1,11 +1,11 @@
 ### SB 8.19.39
 
-> सत्यं पुष्पफलं विद्यादात्मवृक्षस्य गीयते
+> सत्यं पुष्पफलं विद्यादात्मवृक्षस्य गीयते\
 > वृक्षेऽजीवति तन्न स्यादनृतं मूलमात्मनः ॥३९॥
 
-> satyaṁ puṣpa-phalaṁ vidyād
-> ātma-vṛkṣasya gīyate
-> vṛkṣe 'jīvati tan na syād
+> satyaṁ puṣpa-phalaṁ vidyād\
+> ātma-vṛkṣasya gīyate\
+> vṛkṣe 'jīvati tan na syād\
 > anṛtaṁ mūlam ātmanaḥ
 
 *satyam*—the factual truth; *puṣpa-phalam*—the flower and the fruit; *vidyāt*—one should understand; *ātma-vṛkṣasya*—of the tree of the body; *gīyate*—as described in the *Vedas*; *vṛkṣe ajīvati*—if the tree is not living; *tat*—that (*puṣpa-phalam*); *na*—not; *syāt*—is possible; *anṛtam*—untruth; *mūlam*—the root; *ātmanaḥ*—of the body.

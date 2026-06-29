@@ -1,11 +1,11 @@
 ### Bg 3.39
 
-> आवृतं ज्ञानमेतेन ज्ञानिनो नित्यवैरिणा ।
+> आवृतं ज्ञानमेतेन ज्ञानिनो नित्यवैरिणा ।\
 > कामरूपेण कौन्तेय दुष्पूरेणानलेन च ॥३९॥
 
-> āvṛtaṁ jñānam etena
-> jñānino nitya-vairiṇā
-> kāma-rūpeṇa kaunteya
+> āvṛtaṁ jñānam etena\
+> jñānino nitya-vairiṇā\
+> kāma-rūpeṇa kaunteya\
 > duṣpūreṇānalena ca
 
 *āvṛtam*—cubierto; *jñānam*—conciencia pura; *etena*—por este; *jñāninaḥ*—del conocedor; *nitya-vairiṇā*—enemigo eterno; *kāma-rūpeṇa*—en forma de lujuria; *kaunteya*—¡oh, hijo de Kuntī!; *duṣpūreṇa*—nunca se satisfará; *analena*—por el fuego; *ca*—también.

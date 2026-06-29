@@ -1,14 +1,14 @@
 ### CC Antya 16.108-109
 
-> প্রভু কহে, — “এই সব হয় ‘প্রাকৃত’ দ্রব্য ।
-> ঐক্ষব, কর্পূর, মরিচ, এলাইচ, লবঙ্গ, গব্য ॥১০৮॥
-> রসবাস, গুড়ত্বক-আদি যত সব ।
+> প্রভু কহে, — “এই সব হয় ‘প্রাকৃত’ দ্রব্য ।\
+> ঐক্ষব, কর্পূর, মরিচ, এলাইচ, লবঙ্গ, গব্য ॥১০৮॥\
+> রসবাস, গুড়ত্বক-আদি যত সব ।\
 > ‘প্রাকৃত’ বস্তুর স্বাদ সবার অনুভব ॥১০৯॥
 
-> prabhu kahe,—"ei saba haya 'prākṛta' dravya
+> prabhu kahe,—"ei saba haya 'prākṛta' dravya\
 > aikṣava, karpūra, marica, elāica, lavaṅga, gavya
 
-> rasavāsa, guḍatvaka-ādi yata saba
+> rasavāsa, guḍatvaka-ādi yata saba\
 > 'prākṛta' vastura svāda sabāra anubhava
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *ei*—these; *saba*—all; *haya*—are; *prākṛta*—material; *dravya*—ingredients; *aikṣava*—sugar; *karpūra*—camphor; *marica*—black pepper; *elāica*—cardamom; *lavaṅga*—cloves; *gavya*—butter; *rasavāsa*—spices; *guḍatvaka*—licorice; *ādi*—and so on; *yata saba*—each and every one of them; *prākṛta*—material; *vastura*—of ingredients; *svāda*—taste; *sabāra*—everyone's; *anubhava*—experience.

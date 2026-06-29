@@ -1,9 +1,9 @@
 ### CC Antya 10.67
 
-> উড়িয়া-পদ মহাপ্রভুর মনে স্মৃতি হৈল ।
+> উড়িয়া-পদ মহাপ্রভুর মনে স্মৃতি হৈল ।\
 > স্বরূপেরে সেই পদ গাইতে আজ্ঞা দিল ॥৬৭॥
 
-> uḍiyā-pada mahāprabhura mane smṛti haila
+> uḍiyā-pada mahāprabhura mane smṛti haila\
 > svarūpere sei pada gāite ājñā dila
 
 *uḍiyā-pada*—a line of a song in the language of Orissa; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *mane*—in the mind; *smṛti haila*—was remembered; *svarūpere*—unto Svarūpa Dāmodara Gosvāmī; *sei pada*—that special line; *gāite*—to sing; *ājñā dila*—ordered.

@@ -1,11 +1,11 @@
 ### SB 7.2.42
 
-> इदं शरीरं पुरुषस्य मोहजं यथा पृथग्भौतिकमीयते गृहम
+> इदं शरीरं पुरुषस्य मोहजं यथा पृथग्भौतिकमीयते गृहम\
 > यथौदकैः पार्थिवतैजसैर्जनः कालेन जातो विकृतो विनश्यति ॥४२॥
 
-> idaṁ śarīraṁ puruṣasya mohajaṁ
-> yathā pṛthag bhautikam īyate gṛham
-> yathaudakaiḥ pārthiva-taijasair janaḥ
+> idaṁ śarīraṁ puruṣasya mohajaṁ\
+> yathā pṛthag bhautikam īyate gṛham\
+> yathaudakaiḥ pārthiva-taijasair janaḥ\
 > kālena jāto vikṛto vinaśyati
 
 *idam*—this; *śarīram*—body; *puruṣasya*—of the conditioned soul; *moha-jam*—born of ignorance; *yathā*—just as; *pṛthak*—separate; *bhautikam*—material; *īyate*—is seen; *gṛham*—a house; *yathā*—just as; *udakaiḥ*—with water; *pārthiva*—with earth; *taijasaiḥ*—and with fire; *janaḥ*—the conditioned soul; *kālena*—in due course of time; *jātaḥ*—born; *vikṛtaḥ*—transformed; *vinaśyati*—is vanquished.

@@ -1,11 +1,11 @@
 ### SB 2.2.11
 
-> विभूषितं मेखलयाङ्गुलीयकैर्महाधनैर्नूपुरकङ्कणादिभिः ।
+> विभूषितं मेखलयाङ्गुलीयकैर्महाधनैर्नूपुरकङ्कणादिभिः ।\
 > स्निग्धामलाकुञ्चितनीलकुन्तलैर्विरोचमानाननहासपेशलम् ॥११॥
 
-> vibhūṣitaṁ mekhalayāṅgulīyakair
-> mahā-dhanair nūpura-kaṅkaṇādibhiḥ
-> snigdhāmalākuñcita-nīla-kuntalair
+> vibhūṣitaṁ mekhalayāṅgulīyakair\
+> mahā-dhanair nūpura-kaṅkaṇādibhiḥ\
+> snigdhāmalākuñcita-nīla-kuntalair\
 > virocamānānana-hāsa-peśalam
 
 *vibhūṣitam*—well decorated; *mekhalayā*—with an ornamental wreath about the waist; *aṅgulīyakaiḥ*—by finger rings; *mahā-dhanaiḥ*—all highly valuable; *nūpura*—ringing leglets; *kaṅkaṇa-ādibhiḥ*—also by bangles; *snigdha*—slick; *amala*—spotless; *ākuñcita*—curling; *nīla*—bluish; *kuntalaiḥ*—hair; *virocamāna*—very pleasing; *ānana*—face; *hāsa*—smile; *peśalam*—beautiful.

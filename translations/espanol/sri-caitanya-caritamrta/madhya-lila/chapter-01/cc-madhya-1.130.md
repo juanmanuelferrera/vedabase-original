@@ -1,9 +1,9 @@
 ### CC Madhya 1.130
 
-> দামোদরস্বরূপ-মিলনে পরম আনন্দ ।
+> দামোদরস্বরূপ-মিলনে পরম আনন্দ ।\
 > শিখিমাহিতি-মিলন, রায় ভবানন্দ ॥১৩০॥
 
-> dāmodara-svarūpa-milane parama ānanda
+> dāmodara-svarūpa-milane parama ānanda\
 > śikhi-māhiti-milana, rāya bhavānanda
 
 *dāmodara-svarūpa*—Svarūpa Dāmodara; *milane*—en el encuentro; *parama*—gran; *ānanda*—dicha; *śikhi-māhiti*—de nombre Śikhi Māhiti; *milana*—encuentro; *rāya bhavānanda*—Bhavānanda, el padre de Rāmānanda Rāya.

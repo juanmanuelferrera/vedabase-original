@@ -1,11 +1,11 @@
 ### SB 1.15.36
 
-> यदा मुकुन्दो भगवानिमां महीं जहौ स्वतन्वा श्रवणीयसत्कथः ।
+> यदा मुकुन्दो भगवानिमां महीं जहौ स्वतन्वा श्रवणीयसत्कथः ।\
 > तदाहरेवाप्रतिबुद्धचेतसामभद्रहेतुः कलिरन्ववर्तत ॥३६॥
 
-> yadā mukundo bhagavān imāṁ mahīṁ
-> jahau sva-tanvā śravaṇīya-sat-kathaḥ
-> tadāhar evāpratibuddha-cetasām
+> yadā mukundo bhagavān imāṁ mahīṁ\
+> jahau sva-tanvā śravaṇīya-sat-kathaḥ\
+> tadāhar evāpratibuddha-cetasām\
 > abhadra-hetuḥ kalir anvavartata
 
 *yadā*—when; *mukundaḥ*—Lord Kṛṣṇa; *bhagavān*—the Personality of Godhead; *imām*—this; *mahīm*—earth; *jahau*—left; *sva-tanvā*—with His selfsame body; *śravaṇīya-sat-kathaḥ*—hearing about Him is worthwhile; *tadā*—at that time; *ahaḥ eva*—from the very day; *aprati-buddha-cetasām*—of those whose minds are not sufficiently developed; *abhadra-hetuḥ*—cause of all ill fortune; *kaliḥ anvavartata*—Kali fully manifested.

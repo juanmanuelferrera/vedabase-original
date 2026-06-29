@@ -1,9 +1,9 @@
 ### CC Adi 7.142
 
-> সেই সর্ববেদের ‘অভিধেয়’ নাম ।
+> সেই সর্ববেদের ‘অভিধেয়’ নাম ।\
 > সাধনভক্তি হৈতে হয় প্রেমের উদ্গম ॥১৪২॥
 
-> sei sarva-vedera 'abhidheya' nāma
+> sei sarva-vedera 'abhidheya' nāma\
 > sādhana-bhakti haite haya premera udgama
 
 *sei sarva-vedera*—esa es la esencia de toda la literatura Védica; *abhidheya nāma*—el proceso llamado abhidheya, o actividades devocionales; *sādhana-bhakti*—otro nombre de este proceso, «servicio devocional en la práctica»; *haite*—a partir de esto; *haya*—hay; *premera*—del amor por Dios; *udgama*—despertar.

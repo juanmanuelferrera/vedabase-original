@@ -1,9 +1,9 @@
 ### CC Antya 1.35
 
-> বৃন্দাবনে নাটকের আরম্ভ করিলা ।
+> বৃন্দাবনে নাটকের আরম্ভ করিলা ।\
 > মঙ্গলাচরণ ‘নান্দী-শ্লোক’ তথাই লিখিলা ॥৩৫॥
 
-> vṛndāvane nāṭakera ārambha karilā
+> vṛndāvane nāṭakera ārambha karilā\
 > maṅgalācaraṇa 'nāndī-śloka' tathāi likhilā
 
 *vṛndāvane*—at Vṛndāvana; *nāṭakera*—of the drama; *ārambha*—the beginning; *karilā*—wrote; *maṅgalācaraṇa*—invoking auspiciousness; *nāndī-śloka*—introductory verse; *tathāi*—there; *likhilā*—he wrote.

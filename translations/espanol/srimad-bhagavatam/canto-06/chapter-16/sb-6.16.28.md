@@ -1,11 +1,11 @@
 ### SB 6.16.28
 
-> ततः स सप्तरात्रान्ते विद्यया धार्यमाणया
+> ततः स सप्तरात्रान्ते विद्यया धार्यमाणया\
 > विद्याधराधिपत्यं च लेभेऽप्रतिहतं नृप ॥२८॥
 
-> tataḥ sa sapta-rātrānte
-> vidyayā dhāryamāṇayā
-> vidyādharādhipatyaṁ ca
+> tataḥ sa sapta-rātrānte\
+> vidyayā dhāryamāṇayā\
+> vidyādharādhipatyaṁ ca\
 > lebhe 'pratihataṁ nṛpa
 
 *tataḥ*—de esto; *saḥ*—él; *sapta-rātra-ante*—al cabo de siete noches; *vidyayā*—con las oraciones; *dhāryamāṇayā*—cuidadosamente practicadas; *vidyādhara-adhipatyam*—señorío sobre los *vidyādharas* (como resultado intermedio); *ca*—también; *lebhe*—obtuvo; *apratihatam*—sin apartarse de las instrucciones del maestro espiritual; *nṛpa*—¡oh, rey Parīkṣit!.

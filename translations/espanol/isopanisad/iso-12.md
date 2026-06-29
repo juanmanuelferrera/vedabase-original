@@ -1,11 +1,11 @@
 ### Īśo 12
 
-> अन्धं तमः प्रविशन्ति येऽसम्भूतिमुपासते।
+> अन्धं तमः प्रविशन्ति येऽसम्भूतिमुपासते।\
 > ततो भूय इव ते तमो य उ सम्भूत्याँ रताः॥१२॥
 
-> andhaṁ tamaḥ praviśanti
-> ye 'sambhūtim upāsate
-> tato bhūya iva te tamo
+> andhaṁ tamaḥ praviśanti\
+> ye 'sambhūtim upāsate\
+> tato bhūya iva te tamo\
 > ya u sambhūtyām ratāḥ
 
 *andham*—ignorancia; *tamaḥ*—oscuridad; *praviśanti*—entran en; *ye*—quienes; *asambhūtim*—semidioses; *upāsate*—adoran; *tataḥ*—que eso; *bhūyaḥ*—aún más; *iva*—como eso; *te*—aquellos; *tamaḥ*—oscuridad; *ye*—quienes; *u*—también; *sambhūtyām*—en el Absoluto; *ratāḥ*—ocupados.

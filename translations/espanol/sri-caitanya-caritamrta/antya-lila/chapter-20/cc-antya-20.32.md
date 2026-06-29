@@ -1,11 +1,11 @@
 ### CC Antya 20.32
 
-> অয়ি নন্দতনুজ কিঙ্করং পতিতং মাং বিষমে ভবাম্বুধৌ ।
+> অয়ি নন্দতনুজ কিঙ্করং পতিতং মাং বিষমে ভবাম্বুধৌ ।\
 > কৃপয়া তব পাদপঙ্কজস্থিতধূলীসদৃশং বিচিন্তয় ॥৩২॥
 
-> ayi nanda-tanuja kiṅkaraṁ
-> patitaṁ māṁ viṣame bhavāmbudhau
-> kṛpayā tava pāda-paṅkaja-
+> ayi nanda-tanuja kiṅkaraṁ\
+> patitaṁ māṁ viṣame bhavāmbudhau\
+> kṛpayā tava pāda-paṅkaja-\
 > sthita-dhūlī-sadṛśaṁ vicintaya
 
 *ayi*—oh, mi Señor; *nanda-tanuja*—el hijo de Nanda Mahārāja, Kṛṣṇa; *kiṅkaram*—el sirviente; *patitam*—caído; *mām*—a Mí; *viṣame*—horrible; *bhava-ambudhau*—en el océano de la nesciencia; *kṛpayā*—por misericordia sin causa; *tava*—Tus; *pāda-paṅkaja*—pies de loto; *sthita*—situada a; *dhūlī-sadṛśam*—como una partícula de polvo; *vicintaya*—por favor, considera.

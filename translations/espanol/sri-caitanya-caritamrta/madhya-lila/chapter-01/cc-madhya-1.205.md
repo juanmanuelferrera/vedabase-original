@@ -1,9 +1,9 @@
 ### CC Madhya 1.205
 
-> বামন যৈছে চাঁদ ধরিতে চাহে করে ।
+> বামন যৈছে চাঁদ ধরিতে চাহে করে ।\
 > তৈছে এই বাঞ্ছা মোর উঠয়ে অন্তরে ॥২০৫॥
 
-> vāmana yaiche cāṅda dharite cāhe kare
+> vāmana yaiche cāṅda dharite cāhe kare\
 > taiche ei vāñchā mora uṭhaye antare
 
 *vāmana*—un enano; *yaiche*—así como; *cāṅda*—la luna; *dharite*—atrapar; *cāhe*—quiere; *kare*—hace; *taiche*—de manera similar; *ei*—este; *vāñchā*—deseo; *mora*—nuestro; *uṭhaye*—despierta; *antare*—dentro de la mente.

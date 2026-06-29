@@ -1,11 +1,11 @@
 ### SB 3.1.38
 
-> कच्चिद्यशोधा रथयूथपानां गाण्डीवधन्वोपरतारिरास्ते ।
+> कच्चिद्यशोधा रथयूथपानां गाण्डीवधन्वोपरतारिरास्ते ।\
 > अलक्षितो यच्छरकूटगूढो मायाकिरातो गिरिशस्तुतोष ॥३८॥
 
-> kaccid yaśodhā ratha-yūthapānāṁ
-> gāṇḍīva-dhanvoparatārir āste
-> alakṣito yac-chara-kūṭa-gūḍho
+> kaccid yaśodhā ratha-yūthapānāṁ\
+> gāṇḍīva-dhanvoparatārir āste\
+> alakṣito yac-chara-kūṭa-gūḍho\
 > māyā-kirāto giriśas tutoṣa
 
 *kaccit*—whether; *yaśaḥ-dhā*—famous; *ratha-yūthapānām*—amongst the great chariot warriors; *gāṇḍīva-dhanvā*—carrying the Gāṇḍīva bow, Arjuna; *uparata-ariḥ*—one who has vanquished the enemies; *āste*—doing well; *alakṣitaḥ*—without being identified; *yat*—whose; *śara-kūṭa-gūḍhaḥ*—being covered by arrows; *māyā-kirātaḥ*—false hunter; *giriśaḥ*—Lord Śiva; *tutoṣa*—was satisfied.

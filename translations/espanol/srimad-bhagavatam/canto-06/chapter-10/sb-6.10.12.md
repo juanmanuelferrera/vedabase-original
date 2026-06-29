@@ -1,11 +1,11 @@
 ### SB 6.10.12
 
-> यताक्षासुमनोबुद्धिस्तत्त्वदृग्ध्वस्तबन्धनः
+> यताक्षासुमनोबुद्धिस्तत्त्वदृग्ध्वस्तबन्धनः\
 > आस्थितः परमं योगं न देहं बुबुधे गतम ॥१२॥
 
-> yatākṣāsu-mano-buddhis
-> tattva-dṛg dhvasta-bandhanaḥ
-> āsthitaḥ paramaṁ yogaṁ
+> yatākṣāsu-mano-buddhis\
+> tattva-dṛg dhvasta-bandhanaḥ\
+> āsthitaḥ paramaṁ yogaṁ\
 > na dehaṁ bubudhe gatam
 
 *yata*—controló; *akṣa*—los sentidos; *asu*—el aire vital; *manaḥ*—la mente; *buddhiḥ*—la inteligencia; *tattva-dṛk*—el que conoce las *tattvas*, es decir, las energías materiales y espirituales; *dhvasta-bandhanaḥ*—liberado de la atadura; *āsthitaḥ*—** situado en; *paramam*—el supremo; *yogam*—absorción, trance; *na*—no; *deham*—el cuerpo material; *bubudhe*—percibió; *gatam*—abandonado.

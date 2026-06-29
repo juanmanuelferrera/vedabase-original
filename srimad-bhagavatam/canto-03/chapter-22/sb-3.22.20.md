@@ -1,11 +1,11 @@
 ### SB 3.22.20
 
-> यतोऽभवद्विश्वमिदं विचित्रं संस्थास्यते यत्र च वावतिष्ठते ।
+> यतोऽभवद्विश्वमिदं विचित्रं संस्थास्यते यत्र च वावतिष्ठते ।\
 > प्रजापतीनां पतिरेष मह्यं परं प्रमाणं भगवाननन्तः ॥२०॥
 
-> yato 'bhavad viśvam idaṁ vicitraṁ
-> saṁsthāsyate yatra ca vāvatiṣṭhate
-> prajāpatīnāṁ patir eṣa mahyaṁ
+> yato 'bhavad viśvam idaṁ vicitraṁ\
+> saṁsthāsyate yatra ca vāvatiṣṭhate\
+> prajāpatīnāṁ patir eṣa mahyaṁ\
 > paraṁ pramāṇaṁ bhagavān anantaḥ
 
 *yataḥ*—from whom; *abhavat*—emanated; *viśvam*—creation; *idam*—this; *vicitram*—wonderful; *saṁsthāsyate*—will dissolve; *yatra*—in whom; *ca*—and; *vā*—or; *avatiṣṭhate*—presently exists; *prajā-patīnām*—of the Prajāpatis; *patiḥ*—the Lord; *eṣaḥ*—this; *mahyam*—to me; *param*—highest; *pramāṇam*—authority; *bhagavān*—Supreme Lord; *anantaḥ*—unlimited.

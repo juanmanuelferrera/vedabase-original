@@ -1,9 +1,9 @@
 ### CC Antya 3.89
 
-> এত শুনি’ প্রভুর মনে চমৎকার হৈল ।
+> এত শুনি’ প্রভুর মনে চমৎকার হৈল ।\
 > ‘মোর গূঢ়লীলা হরিদাস কেমনে জানিল ?’ ॥ ৮৯ ॥
 
-> eta śuni' prabhura mane camatkāra haila
+> eta śuni' prabhura mane camatkāra haila\
 > 'mora gūḍha-līlā haridāsa kemane jānila?'
 
 *eta śuni'*—hearing this; *prabhura*—of Śrī Caitanya Mahāprabhu; *mane*—in the mind; *camatkāra haila*—there was astonishment; *mora*—My; *gūḍha-līlā*—confidential pastimes; *haridāsa*—Haridāsa; *kemane*—how; *jānila*—has understood.

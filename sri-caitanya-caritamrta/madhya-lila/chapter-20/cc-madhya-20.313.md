@@ -1,11 +1,11 @@
 ### CC Madhya 20.313
 
-> হরির্হি নির্গুণঃ সাক্ষাৎ পুরুষঃ প্ৰকৃতেঃ পরঃ ।
+> হরির্হি নির্গুণঃ সাক্ষাৎ পুরুষঃ প্ৰকৃতেঃ পরঃ ।\
 > স সর্বদৃগুপদ্রষ্টা তং ভজন্নির্গুণো ভবেৎ ॥৩১৩॥
 
-> harir hi nirguṇaḥ sākṣāt
-> puruṣaḥ prakṛteḥ paraḥ
-> sa sarva-dṛg upadraṣṭā
+> harir hi nirguṇaḥ sākṣāt\
+> puruṣaḥ prakṛteḥ paraḥ\
+> sa sarva-dṛg upadraṣṭā\
 > taṁ bhajan nirguṇo bhavet
 
 *hariḥ*—the Supreme Personality of Godhead, Viṣṇu; *hi*—certainly; *nirguṇaḥ*—transcendental to all material qualities; *sākṣāt*—directly; *puruṣaḥ*—the supreme enjoyer; *prakṛteḥ*—material nature; *paraḥ*—beyond; *saḥ*—He; *sarva-dṛk*—the seer of everything; *upadraṣṭā*—the overseer of everything; *tam*—Him; *bhajan*—by worshiping; *nirguṇaḥ*—transcendental to material qualities; *bhavet*—one becomes.

@@ -1,11 +1,11 @@
 ### SB 3.23.2
 
-> विश्रम्भेणात्मशौचेन गौरवेण दमेन च ।
+> विश्रम्भेणात्मशौचेन गौरवेण दमेन च ।\
 > शुश्रूषया सौहृदेन वाचा मधुरया च भोः ॥२॥
 
-> viśrambheṇātma-śaucena
-> gauraveṇa damena ca
-> śuśrūṣayā sauhṛdena
+> viśrambheṇātma-śaucena\
+> gauraveṇa damena ca\
+> śuśrūṣayā sauhṛdena\
 > vācā madhurayā ca bhoḥ
 
 *viśrambheṇa*—con intimidad; *ātma-śaucena*—con pureza de mente y de cuerpo; *gauraveṇa*—con gran respeto; *damena*—con control de los sentidos; *ca*—y; *śuśrūṣayā*—con servicio; *sauhṛdena*—con amor; *vācā*—con palabras; *madhurayā*—dulces; *ca*—y; *bhoḥ*—¡oh, Vidura!.

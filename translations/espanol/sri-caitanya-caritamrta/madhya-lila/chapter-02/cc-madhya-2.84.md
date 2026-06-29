@@ -1,13 +1,13 @@
 ### CC Madhya 2.84
 
-> চৈতন্যলীলা-রত্ন-সার, স্বরূপের ভাণ্ডার,
-> তেঁহো থুইলা রঘুনাথের কণ্ঠে ।
-> তাহাঁ কিছু যে শুনিলুঁ, তাহা ইহাঁ বিস্তারিলুঁ,
+> চৈতন্যলীলা-রত্ন-সার, স্বরূপের ভাণ্ডার,\
+> তেঁহো থুইলা রঘুনাথের কণ্ঠে ।\
+> তাহাঁ কিছু যে শুনিলুঁ, তাহা ইহাঁ বিস্তারিলুঁ,\
 > ভক্তগণে দিলুঁ এই ভেটে ॥৮৪॥
 
-> caitanya-līlā-ratna-sāra, svarūpera bhāṇḍāra,
-> teṅho thuilā raghunāthera kaṇṭhe
-> tāhāṅ kichu ye śuniluṅ, tāhā ihāṅ vistāriluṅ,
+> caitanya-līlā-ratna-sāra, svarūpera bhāṇḍāra,\
+> teṅho thuilā raghunāthera kaṇṭhe\
+> tāhāṅ kichu ye śuniluṅ, tāhā ihāṅ vistāriluṅ,\
 > bhakta-gaṇe diluṅ ei bheṭe
 
 *caitanya-līlā*—los pasatiempos del Señor Caitanya; *ratna-sāra*—la joya más excelsa; *svarūpera*—de Svarūpa Dāmodara; *bhāṇḍāra*—del almacén; *teṅho*—él; *thuilā*—guardó; *raghunāthera kaṇṭhe*—en la garganta de Raghunātha dāsa Gosvāmī; *tāhāṅ*—allí; *kichu ye*—lo poco que; *śuniluṅ*—he oído; *tāhā*—eso únicamente; *ihāṅ*—en este libro; *vistāriluṅ*—he descrito; *bhakta-gaṇe*—a los devotos puros; *diluṅ*—entregué; *ei*—esta; *bheṭe*—presentación.

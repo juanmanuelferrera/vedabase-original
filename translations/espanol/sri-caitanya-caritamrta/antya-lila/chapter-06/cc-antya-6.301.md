@@ -1,9 +1,9 @@
 ### CC Antya 6.301
 
-> ‘প্রভুর স্বহস্ত-দত্ত গোবর্ধন-শিলা ।
+> ‘প্রভুর স্বহস্ত-দত্ত গোবর্ধন-শিলা ।\
 > এই চিন্তি’ রঘুনাথ প্রেমে ভাসি’ গেলা ॥৩০১॥
 
-> 'prabhura svahasta-datta govardhana-śilā
+> 'prabhura svahasta-datta govardhana-śilā\
 > ei cinti' raghunātha preme bhāsi' gelā
 
 *prabhura*—de Śrī Caitanya Mahāprabhu; *sva-hasta*—Su propia mano; *datta*—entregada por; *govardhana-śilā*—la piedra de la Colina Govardhana; *ei cinti'*—pensando esto; *raghunātha*—Raghunātha dāsa; *preme*—en amor extático; *bhāsi' gelā*—quedó inundado.

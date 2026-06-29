@@ -1,11 +1,11 @@
 ### Bg 2.34
 
-> अकीर्तिं चापि भूतानि कथयिष्यन्ति तेऽव्ययाम् ।
+> अकीर्तिं चापि भूतानि कथयिष्यन्ति तेऽव्ययाम् ।\
 > सम्भावितस्य चाकीर्तिर्मरणादतिरिच्यते ॥३४॥
 
-> akīrtiṁ cāpi bhūtāni
-> kaṭhayiṣyanti te'vyayām
-> sambhāvitasya cākīrtir
+> akīrtiṁ cāpi bhūtāni\
+> kaṭhayiṣyanti te'vyayām\
+> sambhāvitasya cākīrtir\
 > maraṇād atiricyate
 
 *akīrtim*—infamia; *ca*—también; *api*—por encima de todo; *bhūtāni*—toda la gente; *kathayiṣyanti*—hablará; *te*—de ti; *avyayām*—para siempre; *sambhāvitasya*—para un hombre respetable; *ca*—también; *akīrtiḥ*—mala fama; *maraṇāt*—que la muerte; *atiricyate*—se vuelve más que.

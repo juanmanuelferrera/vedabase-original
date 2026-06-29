@@ -1,9 +1,9 @@
 ### CC Madhya 18.137
 
-> এত বলি’ ঝাঁপ দিলা জলের উপরে ।
+> এত বলি’ ঝাঁপ দিলা জলের উপরে ।\
 > ডুবিয়া রহিলা প্রভু জলের ভিতরে ॥১৩৭॥
 
-> eta bali' jhāṅpa dilā jalera upare
+> eta bali' jhāṅpa dilā jalera upare\
 > ḍubiyā rahilā prabhu jalera bhitare
 
 *eta bali'*—saying this; *jhāṅpa dilā*—jumped; *jalera upare*—above the water; *ḍubiyā*—sinking; *rahilā*—remained; *prabhu*—Śrī Caitanya Mahāprabhu; *jalera bhitare*—within the water.

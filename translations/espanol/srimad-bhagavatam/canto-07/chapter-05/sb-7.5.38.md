@@ -1,11 +1,11 @@
 ### SB 7.5.38
 
-> सर्वैरुपायैर्हन्तव्यः सम्भोजशयनासनैः
+> सर्वैरुपायैर्हन्तव्यः सम्भोजशयनासनैः\
 > सुहृल्लिङ्गधरः शत्रुर्मुनेर्दुष्टमिवेन्द्रियम ॥३८॥
 
-> sarvair upāyair hantavyaḥ
-> sambhoja-śayanāsanaiḥ
-> suhṛl-liṅga-dharaḥ śatrur
+> sarvair upāyair hantavyaḥ\
+> sambhoja-śayanāsanaiḥ\
+> suhṛl-liṅga-dharaḥ śatrur\
 > muner duṣṭam ivendriyam
 
 *sarvaiḥ*—por todos; *upāyaiḥ*—los medios; *hantavyaḥ*—debe ser matado; *sambhoja*—por comer; *śayana*—acostarse; *āsanaiḥ*—por sentarse; *suhṛt-liṅga-dharaḥ*—que hace el papel de amigo; *śatruḥ*—un enemigo; *muneḥ*—de un gran sabio; *duṣṭam*—incontrolable; *iva*—como; *indriyam*—los sentidos.

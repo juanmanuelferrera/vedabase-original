@@ -1,11 +1,11 @@
 ### SB 8.6.11
 
-> त्वं माययात्माश्रयया स्वयेदं निर्माय विश्वं तदनुप्रविष्टः
+> त्वं माययात्माश्रयया स्वयेदं निर्माय विश्वं तदनुप्रविष्टः\
 > पश्यन्ति युक्ता मनसा मनीषिणो गुणव्यवायेऽप्यगुणं विपश्चितः ॥११॥
 
-> tvaṁ māyayātmāśrayayā svayedaṁ
-> nirmāya viśvaṁ tad-anupraviṣṭaḥ
-> paśyanti yuktā manasā manīṣiṇo
+> tvaṁ māyayātmāśrayayā svayedaṁ\
+> nirmāya viśvaṁ tad-anupraviṣṭaḥ\
+> paśyanti yuktā manasā manīṣiṇo\
 > guṇa-vyavāye 'py aguṇaṁ vipaścitaḥ
 
 *tvam*—Tu Señoría; *māyayā*—por Tu energía externa; *ātma-āśrayayā*—cuya existencia está bajo Tu refugio; *svayā*—que ha emanado de Ti mismo; *idam*—esto; *nirmāya*—para crear; *viśvam*—el universo entero; *tat*—en él; *anupraviṣṭaḥ*—Tú entras; *paśyanti*—ellos ven; *yuktāḥ*—las personas en contacto contigo; *manasā*—con una mente elevada; *manīṣiṇaḥ*—las personas de conciencia elevada; *guṇa*—de las cualidades materiales; *vyavāye*—en la transformación; *api*—aunque; *aguṇam*—que permaneces libre del contacto con las cualidades materiales; *vipaścitaḥ*—aquellos que son plenamente conscientes de la verdad del *śāstra*.​​​​​​​.

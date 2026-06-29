@@ -1,11 +1,11 @@
 ### SB 3.6.38
 
-> आत्मनोऽवसितो वत्स महिमा कविनादिना ।
+> आत्मनोऽवसितो वत्स महिमा कविनादिना ।\
 > संवत्सरसहस्रान्ते धिया योगविपक्कया ॥३८॥
 
-> ātmano 'vasito vatsa
-> mahimā kavinādinā
-> saṁvatsara-sahasrānte
+> ātmano 'vasito vatsa\
+> mahimā kavinādinā\
+> saṁvatsara-sahasrānte\
 > dhiyā yoga-vipakkayā
 
 *ātmanaḥ*—del Alma Suprema; *avasitaḥ*—conocido; *vatsa*—¡oh, mi querido hijo!; *mahimā*—glorias; *kavinā*—por el poeta Brahmā; *ādinā*—original; *saṁvatsara*—años celestiales; *sahasra-ante*—al cabo de mil; *dhiyā*—mediante la inteligencia; *yoga-vipakkayā*—mediante la meditación madura.

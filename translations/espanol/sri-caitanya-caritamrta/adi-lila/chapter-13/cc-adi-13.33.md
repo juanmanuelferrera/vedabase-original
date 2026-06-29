@@ -1,9 +1,9 @@
 ### CC Adi 13.33
 
-> চব্বিশ বৎসর ঐছে নবদ্বীপ-গ্রামে ।
+> চব্বিশ বৎসর ঐছে নবদ্বীপ-গ্রামে ।\
 > লওয়াইলা সর্বলোকে কৃষ্ণপ্রেম-নামে ॥৩৩॥
 
-> cabbiśa vatsara aiche navadvīpa-grāme
+> cabbiśa vatsara aiche navadvīpa-grāme\
 > laoyāilā sarva-loke kṛṣṇa-prema-nāme
 
 *cabbiśa*—veinticuatro; *vatsara*—años; *aiche*—de ese modo; *navadvīpa*—llamado Navadvīpa; *grāme*—en la aldea; *laoyāilā*—indujo; *sarva-loke*—a toda persona; *kṛṣṇa-prema*—amor por Kṛṣṇa; *nāme*—en el santo nombre.

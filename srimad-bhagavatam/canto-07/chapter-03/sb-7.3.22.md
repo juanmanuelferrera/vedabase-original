@@ -1,13 +1,13 @@
 ### SB 7.3.22
 
-> श्रीनारद उवाच
-> इत्युक्त्वादिभवो देवो भक्षिताङ्गं पिपीलिकैः
+> श्रीनारद उवाच\
+> इत्युक्त्वादिभवो देवो भक्षिताङ्गं पिपीलिकैः\
 > कमण्डलुजलेनौक्षद्दिव्येनामोघराधसा ॥२२॥
 
-> śrī-nārada uvāca
-> ity uktvādi-bhavo devo
-> bhakṣitāṅgaṁ pipīlikaiḥ
-> kamaṇḍalu-jalenaukṣad
+> śrī-nārada uvāca\
+> ity uktvādi-bhavo devo\
+> bhakṣitāṅgaṁ pipīlikaiḥ\
+> kamaṇḍalu-jalenaukṣad\
 > divyenāmogha-rādhasā
 
 *śrī-nāradaḥ uvāca*—Śrī Nārada Muni said; *iti*—thus; *uktvā*—saying; *ādi-bhavaḥ*—Lord Brahmā, the original living creature within this universe; *devaḥ*—the principal demigod; *bhakṣita-aṅgam*—Hiraṇyakaśipu's body, which had been almost completely eaten; *pipīlikaiḥ*—by the ants; *kamaṇḍalu*—from the special waterpot in the hands of Lord Brahmā; *jalena*—by water; *aukṣat*—sprinkled; *divyena*—which was spiritual, not ordinary; *amogha*—without fail; *rādhasā*—whose power.

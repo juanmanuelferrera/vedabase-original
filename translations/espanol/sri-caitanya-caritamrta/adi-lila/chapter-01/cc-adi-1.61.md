@@ -1,9 +1,9 @@
 ### CC Adi 1.61
 
-> ঈশ্বরস্বরূপ ভক্ত তাঁর অধিষ্ঠান ।
+> ঈশ্বরস্বরূপ ভক্ত তাঁর অধিষ্ঠান ।\
 > ভক্তের হৃদয়ে কৃষ্ণের সতত বিশ্রাম ॥৬১॥
 
-> īśvara-svarūpa bhakta tāṅra adhiṣṭhāna
+> īśvara-svarūpa bhakta tāṅra adhiṣṭhāna\
 > bhaktera hṛdaye kṛṣṇera satata viśrāma
 
 *īśvara*—la Suprema Personalidad de Dios; *svarūpa*—idéntico a; *bhakta*—el devoto puro; *tāṅra*—Su; *adhiṣṭhāna*—morada; *bhaktera*—del devoto; *hṛdaye*—en el corazón; *kṛṣṇera*—del Señor Kṛṣṇa; *satata*—siempre; *viśrāma*—el lugar de descanso.

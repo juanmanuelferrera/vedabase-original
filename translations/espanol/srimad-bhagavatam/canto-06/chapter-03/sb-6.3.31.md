@@ -1,11 +1,11 @@
 ### SB 6.3.31
 
-> तस्मात्सङ्कीर्तनं विष्णोर्जगन्मङ्गलमंहसाम
+> तस्मात्सङ्कीर्तनं विष्णोर्जगन्मङ्गलमंहसाम\
 > महतामपि कौरव्य विद्ध्यैकान्तिकनिष्कृतम ॥३१॥
 
-> tasmāt saṅkīrtanaṁ viṣṇor
-> jagan-maṅgalam aṁhasām
-> mahatām api kauravya
+> tasmāt saṅkīrtanaṁ viṣṇor\
+> jagan-maṅgalam aṁhasām\
+> mahatām api kauravya\
 > viddhy aikāntika-niṣkṛtam
 
 *tasmāt*—por lo tanto; *saṅkīrtanam*—el canto del santo nombre en congregación; *viṣṇoḥ*—del Señor Viṣṇu; *jagat-maṅgalam*—la práctica más auspiciosa del mundo material; *aṁhasām*—para actividades pecaminosas; *mahatām api*—aunque sean muy grandes; *kauravya*—¡oh, descendiente de la familia Kuru!; *viddhi*—entiende; *aikāntika*—la suprema; *niṣkṛtam*—expiación.

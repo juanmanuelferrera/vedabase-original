@@ -1,13 +1,13 @@
 ### CC Madhya 20.90-91
 
-> প্রভু কহে, — “ইহা আমি করিয়াছি বিচার ।
-> বিষয়-রোগ খণ্ডাইল কৃষ্ণ যে তোমার ॥৯০॥
+> প্রভু কহে, — “ইহা আমি করিয়াছি বিচার ।\
+> বিষয়-রোগ খণ্ডাইল কৃষ্ণ যে তোমার ॥৯০॥\
 > সে কেনে রাখিবে তোমার শেষ বিষয়-ভোগ ? রোগ খণ্ডি’ সদ্বৈদ্য না রাখে শেষ রোগ ॥৯১॥
 
-> prabhu kahe,—"ihā āmi kariyāchi vicāra
+> prabhu kahe,—"ihā āmi kariyāchi vicāra\
 > viṣaya-roga khaṇḍāila kṛṣṇa ye tomāra
 
-> se kene rākhibe tomāra śeṣa viṣaya-bhoga?
+> se kene rākhibe tomāra śeṣa viṣaya-bhoga?\
 > roga khaṇḍi' sad-vaidya nā rākhe śeṣa roga
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *ihā*—esto; *āmi*—Yo; *kariyāchi vicāra*—he meditado cuidadosamente; *viṣaya-roga*—la enfermedad de la atracción material; *khaṇḍāila*—ahora ha anulado; *kṛṣṇa*—el Señor Kṛṣṇa; *ye*—puesto que; *tomāra*—tuyo; *se*—el Señor Kṛṣṇa; *kene*—por qué; *rākhibe*—debería permitirte conservar; *tomāra*—tuya; *śeṣa*—última; *viṣaya-bhoga*—atracción por las cosas materiales; *roga khaṇḍi’*—tras curar la enfermedad; *sat-vaidya*—el buen médico; *nā rākhe*—no mantiene; *śeṣa*—la última parte; *roga*—enfermedad.

@@ -1,11 +1,11 @@
 ### CC Madhya 15.237
 
-> ত্বয়োপযুক্তস্রগ্ গন্ধবাসোঽলঙ্কারচর্চিতাঃ ।
+> ত্বয়োপযুক্তস্রগ্ গন্ধবাসোঽলঙ্কারচর্চিতাঃ ।\
 > উচ্ছিষ্টভোজিনো দাসাস্তব মায়াং জয়েম হি ॥২৩৭॥
 
-> tvayopayukta-srag-gandha-
-> vāso 'laṅkāra-carcitāḥ
-> ucchiṣṭa-bhojino dāsās
+> tvayopayukta-srag-gandha-\
+> vāso 'laṅkāra-carcitāḥ\
+> ucchiṣṭa-bhojino dāsās\
 > tava māyāṁ jayema hi
 
 *tvayā*—by You; *upayukta*—used; *srak*—flower garlands; *gandha*—scented substances like sandalwood pulp; *vāsaḥ*—garments; *alaṅkāra*—ornaments; *carcitāḥ*—being decorated with; *ucchiṣṭa*—remnants of food; *bhojinaḥ*—eating; *dāsāḥ*—servants; *tava*—Your; *māyām*—illusory energy; *jayema*—can conquer over; *hi*—certainly.

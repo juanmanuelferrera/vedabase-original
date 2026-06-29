@@ -1,11 +1,11 @@
 ### SB 9.21.17
 
-> ईश्वरालम्बनं चित्तं कुर्वतोऽनन्यराधसः
+> ईश्वरालम्बनं चित्तं कुर्वतोऽनन्यराधसः\
 > माया गुणमयी राजन्स्वप्नवत्प्रत्यलीयत ॥१७॥
 
-> īśvarālambanaṁ cittaṁ
-> kurvato 'nanya-rādhasaḥ
-> māyā guṇa-mayī rājan
+> īśvarālambanaṁ cittaṁ\
+> kurvato 'nanya-rādhasaḥ\
+> māyā guṇa-mayī rājan\
 > svapnavat pratyalīyata
 
 *īśvara-ālambanam*—refugiándose por entero a los pies de loto del Señor Supremo; *cittam*—su conciencia; *kurvataḥ*—fijar; *ananya-rādhasaḥ*—para Rantideva, que no aceptaba distracciones ni deseaba nada que no fuera el servicio del Señor Supremo; *māyā*—la energía ilusoria; *guṇa-mayī*—formada por las tres modalidades de la naturaleza; *rājan*—¡oh, Mahārāja Parīkṣit!; *svapna-vat*—como un sueño; *pratyalīyata*—fundida.

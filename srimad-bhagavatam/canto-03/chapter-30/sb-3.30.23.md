@@ -1,11 +1,11 @@
 ### SB 3.30.23
 
-> तत्र तत्र पतन्छ्रान्तो मूर्च्छितः पुनरुत्थितः ।
+> तत्र तत्र पतन्छ्रान्तो मूर्च्छितः पुनरुत्थितः ।\
 > पथा पापीयसा नीतस्तरसा यमसादनम् ॥२३॥
 
-> tatra tatra patañ chrānto
-> mūrcchitaḥ punar utthitaḥ
-> pathā pāpīyasā nītas
+> tatra tatra patañ chrānto\
+> mūrcchitaḥ punar utthitaḥ\
+> pathā pāpīyasā nītas\
 > tarasā yama-sādanam
 
 *tatra tatra*—here and there; *patan*—falling; *śrāntaḥ*—fatigued; *mūrcchitaḥ*—unconscious; *punaḥ*—again; *utthitaḥ*—risen; *pathā*—by the road; *pāpīyasā*—very inauspicious; *nītaḥ*—brought; *tarasā*—quickly; *yama-sādanam*—to the presence of Yamarāja.

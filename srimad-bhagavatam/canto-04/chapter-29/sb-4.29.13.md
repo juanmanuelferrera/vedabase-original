@@ -1,11 +1,11 @@
 ### SB 4.29.13
 
-> प्रवृत्तं च निवृत्तं च शास्त्रं पञ्चालसंज्ञितम् ।
+> प्रवृत्तं च निवृत्तं च शास्त्रं पञ्चालसंज्ञितम् ।\
 > पितृयानं देवयानं श्रोत्राच्छ्रुतधराद्व्रजेत् ॥१३॥
 
-> pravṛttaṁ ca nivṛttaṁ ca
-> śāstraṁ pañcāla-saṁjñitam
-> pitṛ-yānaṁ deva-yānaṁ
+> pravṛttaṁ ca nivṛttaṁ ca\
+> śāstraṁ pañcāla-saṁjñitam\
+> pitṛ-yānaṁ deva-yānaṁ\
 > śrotrāc chruta-dharād vrajet
 
 *pravṛttam*—the process of sense enjoyment; *ca*—also; *nivṛttam*—the process of detachment; *ca*—also; *śāstram*—scripture; *pañcāla*—Pañcāla; *saṁjñitam*—is described as; *pitṛ-yānam*—going to Pitṛloka; *deva-yānam*—going to Devaloka; *śrotrāt*—by hearing; *śruta-dharāt*—by the companion named Śrutadhara; *vrajet*—one can be elevated.

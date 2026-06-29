@@ -1,9 +1,9 @@
 ### CC Madhya 20.102
 
-> ‘কে আমি’, ‘কেনে আমায় জারে তাপত্রয়’ ।
+> ‘কে আমি’, ‘কেনে আমায় জারে তাপত্রয়’ ।\
 > ইহা নাহি জানি — ‘কেমনে হিত হয়’ ॥১০২॥
 
-> 'ke āmi', 'kene āmāya jāre tāpa-traya'
+> 'ke āmi', 'kene āmāya jāre tāpa-traya'\
 > ihā nāhi jāni—'kemane hita haya'
 
 *ke āmi*—who am I; *kene*—why; *āmāya*—unto me; *jāre*—give trouble; *tāpa-traya*—the three kinds of miserable conditions; *ihā*—this; *nāhi jāni*—I do not know; *kemane*—how; *hita*—my welfare; *haya*—there is.

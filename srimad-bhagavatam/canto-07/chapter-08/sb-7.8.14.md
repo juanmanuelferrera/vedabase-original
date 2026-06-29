@@ -1,11 +1,11 @@
 ### SB 7.8.14
 
-> सोऽहं विकत्थमानस्य शिरः कायाद्धरामि ते
+> सोऽहं विकत्थमानस्य शिरः कायाद्धरामि ते\
 > गोपायेत हरिस्त्वाद्य यस्ते शरणमीप्सितम ॥१४॥
 
-> evaṁ duruktair muhur ardayan ruṣā
-> sutaṁ mahā-bhāgavataṁ mahāsuraḥ
-> khaḍgaṁ pragṛhyotpatito varāsanāt
+> evaṁ duruktair muhur ardayan ruṣā\
+> sutaṁ mahā-bhāgavataṁ mahāsuraḥ\
+> khaḍgaṁ pragṛhyotpatito varāsanāt\
 > stambhaṁ tatāḍātibalaḥ sva-muṣṭinā
 
 *evam*—thus; *duruktaiḥ*—by harsh words; *muhuḥ*—constantly; *ardayan*—chastising; *ruṣā*—with unnecessary anger; *sutam*—his son; *mahā-bhāgavatam*—who was a most exalted devotee; *mahā-asuraḥ*—Hiraṇyakaśipu, the great demon; *khaḍgam*—sword; *pragṛhya*—taking up; *utpatitaḥ*—having gotten up; *vara-āsanāt*—from his exalted throne; *stambham*—the column; *tatāḍa*—struck; *ati-balaḥ*—very strong; *sva-muṣṭinā*—by his fist.

@@ -1,28 +1,28 @@
 ### SB 3.21.45-47
 
-> प्रविश्य तत्तीर्थवरमादिराजः सहात्मजः ।
-> ददर्श मुनिमासीनं तस्मिन्हुतहुताशनम् ॥४५॥
-> विद्योतमानं वपुषा तपस्युग्रयुजा चिरम् ।
-> नातिक्षामं भगवतः स्निग्धापाङ्गावलोकनात् ।
-> तद्व्याहृतामृतकला पीयूषश्रवणेन च ॥४६॥
-> प्रांशुं पद्मपलाशाक्षं जटिलं चीरवाससम् ।
+> प्रविश्य तत्तीर्थवरमादिराजः सहात्मजः ।\
+> ददर्श मुनिमासीनं तस्मिन्हुतहुताशनम् ॥४५॥\
+> विद्योतमानं वपुषा तपस्युग्रयुजा चिरम् ।\
+> नातिक्षामं भगवतः स्निग्धापाङ्गावलोकनात् ।\
+> तद्व्याहृतामृतकला पीयूषश्रवणेन च ॥४६॥\
+> प्रांशुं पद्मपलाशाक्षं जटिलं चीरवाससम् ।\
 > उपसंश्रित्य मलिनं यथार्हणमसंस्कृतम् ॥४७॥
 
-> praviśya tat tīrtha-varam
-> ādi-rājaḥ sahātmajaḥ
-> dadarśa munim āsīnaṁ
+> praviśya tat tīrtha-varam\
+> ādi-rājaḥ sahātmajaḥ\
+> dadarśa munim āsīnaṁ\
 > tasmin huta-hutāśanam
 
-> vidyotamānaṁ vapuṣā
-> tapasy ugra-yujā ciram
-> nātikṣāmaṁ bhagavataḥ
-> snigdhāpāṅgāvalokanāt
-> tad-vyāhṛtāmṛta-kalā-
+> vidyotamānaṁ vapuṣā\
+> tapasy ugra-yujā ciram\
+> nātikṣāmaṁ bhagavataḥ\
+> snigdhāpāṅgāvalokanāt\
+> tad-vyāhṛtāmṛta-kalā-\
 > pīyūṣa-śravaṇena ca
 
-> prāṁśuṁ padma-palāśākṣaṁ
-> jaṭilaṁ cīra-vāsasam
-> upasaṁśritya malinaṁ
+> prāṁśuṁ padma-palāśākṣaṁ\
+> jaṭilaṁ cīra-vāsasam\
+> upasaṁśritya malinaṁ\
 > yathārhaṇam asaṁskṛtam
 
 *praviśya*—entering; *tat*—that; *tīrtha-varam*—best of sacred places; *ādi-rājaḥ*—the first monarch (Svāyambhuva Manu); *saha-ātmajaḥ*—along with his daughter; *dadarśa*—saw; *munim*—the sage; *āsīnam*—sitting; *tasmin*—in the hermitage; *huta*—being offered oblations; *huta-aśanam*—the sacred fire; *vidyotamānam*—shining brilliantly; *vapuṣā*—by his body; *tapasi*—in penance; *ugra*—terribly; *yujā*—engaged in *yoga*; *ciram*—for a long time; *na*—not; *atikṣāmam*—very emaciated; *bhagavataḥ*—of the Lord; *snigdha*—affectionate; *apāṅga*—sidelong; *avalokanāt*—from the glance; *tat*—of Him; *vyāhṛta*—from the words; *amṛta-kalā*—moonlike; *pīyūṣa*—the nectar; *śravaṇena*—by hearing; *ca*—and; *prāṁśum*—tall; *padma*—lotus flower; *palāśa*—petal; *akṣam*—eyes; *jaṭilam*—matted locks; *cīra-vāsasam*—having rags for clothes; *upasaṁśritya*—having approached; *malinam*—soiled; *yathā*—like; *arhaṇam*—gem; *asaṁskṛtam*—unpolished.

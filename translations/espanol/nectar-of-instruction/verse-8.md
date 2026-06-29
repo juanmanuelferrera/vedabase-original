@@ -1,13 +1,13 @@
 ### 8
 
-> तन्नामरूपचरितादिसुकीर्तनानु-
-> स्मृत्योः क्रमेण रसनामनसी नियोज्य ।
-> तिष्ठन् व्रजे तदनुरागिजनानुगामी
+> तन्नामरूपचरितादिसुकीर्तनानु-\
+> स्मृत्योः क्रमेण रसनामनसी नियोज्य ।\
+> तिष्ठन् व्रजे तदनुरागिजनानुगामी\
 > कालं नयेदखिलमित्युपदेशसारम ॥८॥
 
-> tan-nāma-rūpa-caritādi-sukīrtanānu-
-> smṛtyoḥ krameṇa rasanā-manasī niyojya
-> tiṣṭhan vraje tad-anurāgi janānugāmī
+> tan-nāma-rūpa-caritādi-sukīrtanānu-\
+> smṛtyoḥ krameṇa rasanā-manasī niyojya\
+> tiṣṭhan vraje tad-anurāgi janānugāmī\
 > kālaṁ nayed akhilam ity upadeśa-sāram
 
 *tat*—del Señor Kṛṣṇa; *nāma*—el santo nombre; *rūpa*—forma; *carita-ādi*—carácter, pasatiempos, etc.; *su-kīrtana*—en discutir o cantar apropiadamente; *anusmṛtyoḥ*—y en recordar; *krameṇa*—gradualmente; *rasanā*—la lengua; *manasī*—y la mente; *niyojya*—ocupando; *tiṣṭhan*—residiendo; *vraje*—en Vraja; *tat*—al Señor Kṛṣṇa; *anurāgi*—apegados; *jana*—personas; *anugāmī*—siguiendo; *kālam*—tiempo; *nayet*—debe utilizar; *akhilam*—total; *iti*—así; *upadeśa*—de consejo o instrucción; *sāram*—la esencia.

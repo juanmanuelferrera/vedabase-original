@@ -1,9 +1,9 @@
 ### CC Adi 5.78
 
-> যদ্যপি কহিয়ে তাঁরে কৃষ্ণের ‘কলা’ করি ।
+> যদ্যপি কহিয়ে তাঁরে কৃষ্ণের ‘কলা’ করি ।\
 > মৎস্য-কূর্মাদ্যবতারের তিঁহো অবতারী ॥৭৮॥
 
-> yadyapi kahiye tāṅre kṛṣṇera 'kalā' kari
+> yadyapi kahiye tāṅre kṛṣṇera 'kalā' kari\
 > matsya-kūrmādy-avatārera tiṅho avatārī
 
 *yadyapi*—aunque; *kahiye*—digo; *tāṅre*—a Él; *kṛṣṇera*—del Señor Kṛṣṇa; *kalā*—parte de la parte; *kari*—considerando; *matsya*—la encarnación de pez; *kūrma-ādi*—la encarnación de tortuga y otras; *avatārera*—de todas esas encarnaciones; *tiṅho*—Él; *avatārī*—la fuente original.

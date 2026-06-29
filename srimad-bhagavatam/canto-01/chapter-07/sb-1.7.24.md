@@ -1,11 +1,11 @@
 ### SB 1.7.24
 
-> स एव जीवलोकस्य मायामोहितचेतसः ।
+> स एव जीवलोकस्य मायामोहितचेतसः ।\
 > विधत्से स्वेन वीर्येण श्रेयो धर्मादिलक्षणम् ॥२४॥
 
-> sa eva jīva-lokasya
-> māyā-mohita-cetasaḥ
-> vidhatse svena vīryeṇa
+> sa eva jīva-lokasya\
+> māyā-mohita-cetasaḥ\
+> vidhatse svena vīryeṇa\
 > śreyo dharmādi-lakṣaṇam
 
 *saḥ*—that Transcendence; *eva*—certainly; *jīva-lokasya*—of the conditioned living beings; *māyā-mohita*—captivated by the illusory energy; *cetasaḥ*—by the heart; *vidhatse*—execute; *svena*—by Your own; *vīryeṇa*—influence; *śreyaḥ*—ultimate good; *dharma-ādi*—four principles of liberation; *lakṣaṇam*—characterized by.

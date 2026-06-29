@@ -1,11 +1,11 @@
 ### SB 7.10.8
 
-> इन्द्रियाणि मनः प्राण आत्मा धर्मो धृतिर्मतिः
+> इन्द्रियाणि मनः प्राण आत्मा धर्मो धृतिर्मतिः\
 > ह्रीः श्रीस्तेजः स्मृतिः सत्यं यस्य नश्यन्ति जन्मना ॥८॥
 
-> indriyāṇi manaḥ prāṇa
-> ātmā dharmo dhṛtir matiḥ
-> hrīḥ śrīs tejaḥ smṛtiḥ satyaṁ
+> indriyāṇi manaḥ prāṇa\
+> ātmā dharmo dhṛtir matiḥ\
+> hrīḥ śrīs tejaḥ smṛtiḥ satyaṁ\
 > yasya naśyanti janmanā
 
 *indriyāṇi*—los sentidos; *manaḥ*—la mente; *prāṇaḥ*—el aire vital; *ātmā*—el cuerpo; *dharmaḥ*—la religión; *dhṛtiḥ*—la paciencia; *matiḥ*—la inteligencia; *hrīḥ*—el pudor; *śrīḥ*—la opulencia; *tejaḥ*—la fuerza; *smṛtiḥ*—la memoria; *satyam*—la veracidad; *yasya*—de cuyos deseos de disfrute; *naśyanti*—se arruinan; *janmanā*—desde el mismo momento de nacer.

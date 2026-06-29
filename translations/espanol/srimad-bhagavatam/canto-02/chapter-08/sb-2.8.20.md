@@ -1,11 +1,11 @@
 ### SB 2.8.20
 
-> योगेश्वरैश्वर्यगतिर्लिङ्गभङ्गस्तु योगिनाम् ।
+> योगेश्वरैश्वर्यगतिर्लिङ्गभङ्गस्तु योगिनाम् ।\
 > वेदोपवेदधर्माणामितिहासपुराणयोः ॥२०॥
 
-> yogeśvaraiśvarya-gatir
-> liṅga-bhaṅgas tu yoginām
-> vedopaveda-dharmāṇām
+> yogeśvaraiśvarya-gatir\
+> liṅga-bhaṅgas tu yoginām\
+> vedopaveda-dharmāṇām\
 > itihāsa-purāṇayoḥ
 
 *yoga-īśvara*—del amo de los poderes místicos; *aiśvarya*—opulencia; *gatiḥ*—avance; *liṅga*—cuerpo astral; *bhaṅgaḥ*—desapego; *tu*—pero; *yoginām*—de los místicos; *veda*—conocimiento trascendental; *upaveda*—conocimiento que sigue indirectamente el *Veda*; *dharmānām*—de las religiosidades; *itihāsa*—historia; *purāṇayoḥ*—de los *Purāṇas*.

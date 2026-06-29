@@ -1,21 +1,21 @@
 ### SB 9.11.13-14
 
-> सुबाहुः श्रुतसेनश्च शत्रुघ्नस्य बभूवतुः
-> गन्धर्वान्कोटिशो जघ्ने भरतो विजये दिशाम ॥१३॥
-> तदीयं धनमानीय सर्वं राज्ञए न्यवेदयत
-> शत्रुघ्नश्च मधोः पुत्रं लवणं नाम राक्षसम
+> सुबाहुः श्रुतसेनश्च शत्रुघ्नस्य बभूवतुः\
+> गन्धर्वान्कोटिशो जघ्ने भरतो विजये दिशाम ॥१३॥\
+> तदीयं धनमानीय सर्वं राज्ञए न्यवेदयत\
+> शत्रुघ्नश्च मधोः पुत्रं लवणं नाम राक्षसम\
 > हत्वा मधुवने चक्रे मथुरां नाम वै पुरीम ॥१४॥
 
-> subāhuḥ śrutasenaś ca
-> śatrughnasya babhūvatuḥ
-> gandharvān koṭiśo jaghne
+> subāhuḥ śrutasenaś ca\
+> śatrughnasya babhūvatuḥ\
+> gandharvān koṭiśo jaghne\
 > bharato vijaye diśām
 
-> tadīyaṁ dhanam ānīya
-> sarvaṁ rājñe nyavedayat
-> śatrughnaś ca madhoḥ putraṁ
-> lavaṇaṁ nāma rākṣasam
-> hatvā madhuvane cakre
+> tadīyaṁ dhanam ānīya\
+> sarvaṁ rājñe nyavedayat\
+> śatrughnaś ca madhoḥ putraṁ\
+> lavaṇaṁ nāma rākṣasam\
+> hatvā madhuvane cakre\
 > mathurāṁ nāma vai purīm
 
 *subāhuḥ*—Subāhu; *śrutasenaḥ*—Śrutasena; *ca*—también; *śatrughnasya*—del Señor Śatrughna; *babhūvatuḥ*—nacieron; *gandharvān*—a personas ligadas a los *gandharvas*, la mayoría de los cuales son falsarios; *koṭiśaḥ*—decenas de millones; *jaghne*—mató; *bharataḥ*—el Señor Bharata; *vijaye*—mientras conquistaba; *diśām*—todas las direcciones; *tadīyam*—de los *gandharvas*; *dhanam*—riquezas; *ānīya*—traer; *sarvam*—todo; *rājñe*—al rey (al Señor Rāmacandra); *nyavedayat*—ofreció; *śatrughnaḥ*—Śatrughna; *ca*—y; *madhoḥ*—de Madhu; *putram*—al hijo; *lavaṇam*—Lavaṇa; *nāma*—de nombre; *rākṣasam*—un caníbal; *hatvā*—por matar; *madhuvane*—en el gran bosque llamado Madhuvana; *cakre*—construyó; *mathurām*—Mathurā; *nāma*—llamada; *vai*—en verdad; *purīm*—una gran ciudad.

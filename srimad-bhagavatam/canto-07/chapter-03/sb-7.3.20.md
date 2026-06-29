@@ -1,11 +1,11 @@
 ### SB 7.3.20
 
-> व्यवसायेन तेऽनेन दुष्करेण मनस्विनाम
+> व्यवसायेन तेऽनेन दुष्करेण मनस्विनाम\
 > तपोनिष्ठेन भवताजितोऽहं दितिनन्दन ॥२०॥
 
-> vyavasāyena te 'nena
-> duṣkareṇa manasvinām
-> tapo-niṣṭhena bhavatā
+> vyavasāyena te 'nena\
+> duṣkareṇa manasvinām\
+> tapo-niṣṭhena bhavatā\
 > jito 'haṁ diti-nandana
 
 *vyavasāyena*—by determination; *te*—your; *anena*—this; *duṣkareṇa*—difficult to perform; *manasvinām*—even for great sages and saintly persons; *tapaḥ-niṣṭhena*—aimed at executing austerity; *bhavatā*—by you; *jitaḥ*—conquered; *aham*—I; *diti-nandana*—O son of Diti.

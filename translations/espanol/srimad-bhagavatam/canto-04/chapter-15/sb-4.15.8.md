@@ -1,11 +1,11 @@
 ### SB 4.15.8
 
-> शङ्खतूर्यमृदङ्गाद्या नेदुर्दुन्दुभयो दिवि ।
+> शङ्खतूर्यमृदङ्गाद्या नेदुर्दुन्दुभयो दिवि ।\
 > तत्र सर्व उपाजग्मुर्देवर्षिपितॄणां गणाः ॥८॥
 
-> śaṅkha-tūrya-mṛdaṅgādyā
-> nedur dundubhayo divi
-> tatra sarva upājagmur
+> śaṅkha-tūrya-mṛdaṅgādyā\
+> nedur dundubhayo divi\
+> tatra sarva upājagmur\
 > devarṣi-pitṝṇāṁ gaṇāḥ
 
 *śaṅkha*—caracolas; *tūrya*—cornetas; *mṛdaṅga*—tambores; *ādyāḥ*—etc.; *neduḥ*—resonaron; *dundubhayaḥ*—timbales; *divi*—en el espacio exterior; *tatra*—allí; *sarve*—todos; *upājagmuḥ*—vinieron; *deva-ṛṣi*—semidioses y sabios; *pitṝṇām*—de antepasados; *gaṇāḥ*—grupos.

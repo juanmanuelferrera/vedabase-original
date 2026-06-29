@@ -1,11 +1,11 @@
 ### SB 3.2.10
 
-> देवस्य मायया स्पृष्टा ये चान्यदसदाश्रिताः ।
+> देवस्य मायया स्पृष्टा ये चान्यदसदाश्रिताः ।\
 > भ्राम्यते धीर्न तद्वाक्यैरात्मन्युप्तात्मनो हरौ ॥१०॥
 
-> devasya māyayā spṛṣṭā
-> ye cānyad asad-āśritāḥ
-> bhrāmyate dhīr na tad-vākyair
+> devasya māyayā spṛṣṭā\
+> ye cānyad asad-āśritāḥ\
+> bhrāmyate dhīr na tad-vākyair\
 > ātmany uptātmano harau
 
 *devasya*—of the Personality of Godhead; *māyayā*—by the influence of external energy; *spṛṣṭāḥ*—infected; *ye*—all those; *ca*—and; *anyat*—others; *asat*—illusory; *āśritāḥ*—being taken to; *bhrāmyate*—bewilder; *dhīḥ*—intelligence; *na*—not; *tat*—of them; *vākyaiḥ*—by those words; *ātmani*—in the Supreme Self; *upta-ātmanaḥ*—surrendered souls; *harau*—unto the Lord.

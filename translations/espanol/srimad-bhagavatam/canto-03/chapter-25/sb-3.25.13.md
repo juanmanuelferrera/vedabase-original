@@ -1,13 +1,13 @@
 ### SB 3.25.13
 
-> श्रीभगवानुवाच
-> योग आध्यात्मिकः पुंसां मतो निःश्रेयसाय मे ।
+> श्रीभगवानुवाच\
+> योग आध्यात्मिकः पुंसां मतो निःश्रेयसाय मे ।\
 > अत्यन्तोपरतिर्यत्र दुःखस्य च सुखस्य च ॥१३॥
 
-> śrī-bhagavān uvāca
-> yoga ādhyātmikaḥ puṁsāṁ
-> mato niḥśreyasāya me
-> atyantoparatir yatra
+> śrī-bhagavān uvāca\
+> yoga ādhyātmikaḥ puṁsāṁ\
+> mato niḥśreyasāya me\
+> atyantoparatir yatra\
 > duḥkhasya ca sukhasya ca
 
 *śrī-bhagavān uvāca*—la Personalidad de Dios dijo; *yogaḥ*—el sistema de *yoga*; *ādhyātmikaḥ*—que se refiere al alma; *puṁsām*—de las entidades vivientes; *mataḥ*—es aprobado; *niḥśreyasāya*—para el beneficio supremo; *me*—por Mí; *atyanta*—completo; *uparatiḥ*—desapego; *yatra*—en el que; *duḥkhasya*—de la aflicción; *ca*—y; *sukhasya*—de la felicidad; *ca*—y.

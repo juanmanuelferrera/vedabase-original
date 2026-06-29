@@ -1,9 +1,9 @@
 ### CC Adi 10.11
 
-> চারি ভাই সবংশে করে চৈতন্যের সেবা ।
+> চারি ভাই সবংশে করে চৈতন্যের সেবা ।\
 > গৌরচন্দ্র বিনা নাহি জানে দেবী-দেবা ॥১১॥
 
-> cāri bhāi sa-vaṁśe kare caitanyera sevā
+> cāri bhāi sa-vaṁśe kare caitanyera sevā\
 > gauracandra vinā nāhi jāne devī-devā
 
 *cāri bhāi*—four brothers; *sa-vaṁśe*—with all family members; *kare*—do; *caitanyera*—of Lord Śrī Caitanya Mahāprabhu; *sevā*—service; *gauracandra*—Gaurasundara (Lord Caitanya Mahāprabhu); *vinā*—except; *nāhi jāne*—they do not know; *devī*—goddess; *devā*—or god.

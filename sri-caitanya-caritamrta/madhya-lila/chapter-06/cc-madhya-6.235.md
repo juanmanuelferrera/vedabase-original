@@ -1,13 +1,13 @@
 ### CC Madhya 6.235
 
-> যেষাং স এষ ভগবান্ দয়য়েদনন্তঃ
-> সর্বাত্মনাশ্রিতপদো যদি নির্ব্যলীকম্ ।
-> তে দুস্তরামতিতরন্তি চ দেবমায়াং
+> যেষাং স এষ ভগবান্ দয়য়েদনন্তঃ\
+> সর্বাত্মনাশ্রিতপদো যদি নির্ব্যলীকম্ ।\
+> তে দুস্তরামতিতরন্তি চ দেবমায়াং\
 > নৈষাং মমাহমিতিধীঃ শ্বশৃগালভক্ষ্যে ॥২৩৫॥
 
-> yeṣāṁ sa eṣa bhagavān dayayed anantaḥ
-> sarvātmanāśrita-pado yadi nirvyalīkam
-> te dustarām atitaranti ca deva-māyāṁ
+> yeṣāṁ sa eṣa bhagavān dayayed anantaḥ\
+> sarvātmanāśrita-pado yadi nirvyalīkam\
+> te dustarām atitaranti ca deva-māyāṁ\
 > naiṣāṁ mamāham iti dhīḥ śva-śṛgāla-bhakṣye
 
 *yeṣām*—unto those who are fully surrendered souls; *saḥ*—He; *eṣaḥ*—this; *bhagavān*—the Supreme Personality of Godhead; *dayayet*—may show mercy; *anantaḥ*—the unlimited; *sarva-ātmanā*—fully, without reservation; *āśrita-padaḥ*—those who have taken shelter of the Lord; *yadi*—if; *nirvyalīkam*—without duplicity; *te*—such persons; *dustarām*—insurmountable; *atitaranti*—surpass; *ca*—also; *deva-māyām*—the illusory material energy; *na*—not; *eṣām*—this; *mama aham*—"my" and "I"; *iti*—such; *dhīḥ*—intelligence; *śva-śṛgāla-bhakṣye*—in the body, which is to be eaten by dogs and jackals.

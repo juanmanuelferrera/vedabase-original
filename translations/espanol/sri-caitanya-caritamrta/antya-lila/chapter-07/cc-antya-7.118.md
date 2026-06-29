@@ -1,9 +1,9 @@
 ### CC Antya 7.118
 
-> নানা অবজ্ঞানে ভট্টে শোধেন ভগবান্ ।
+> নানা অবজ্ঞানে ভট্টে শোধেন ভগবান্ ।\
 > কৃষ্ণ যৈছে খণ্ডিলেন ইন্দ্রের অভিমান ॥১১৮॥
 
-> nānā avajñāne bhaṭṭe śodhena bhagavān
+> nānā avajñāne bhaṭṭe śodhena bhagavān\
 > kṛṣṇa yaiche khaṇḍilena indrera abhimāna
 
 *nānā*—diversas; *avajñāne*—mediante muestras de desaprobación; *bhaṭṭe*—a Vallabha Bhaṭṭa; *śodhena*—purifica; *bhagavān*—la Suprema Personalidad de Dios; *kṛṣṇa*—el Señor Kṛṣṇa; *yaiche*—así como; *khaṇḍilena*—destruyó; *indrera abhimāna*—el orgullo de Indra.

@@ -1,9 +1,9 @@
 ### CC Antya 12.50
 
-> শিবানন্দ যবে সেই বালকে মিলাইলা ।
+> শিবানন্দ যবে সেই বালকে মিলাইলা ।\
 > মহাপ্রভু পাদাঙ্গুষ্ঠ তার মুখে দিলা ॥৫০॥
 
-> śivānanda yabe sei bālake milāilā
+> śivānanda yabe sei bālake milāilā\
 > mahāprabhu pādāṅguṣṭha tāra mukhe dilā
 
 *śivānanda*—Śivānanda Sena; *yabe*—cuando; *sei*—a ese; *bālake*—niño; *milāilā*—presentó; *mahāprabhu*—Mahāprabhu; *pāda-aṅguṣṭha*—Su dedo del pie; *tāra*—su; *mukhe*—en la boca; *dilā*—puso.

@@ -1,9 +1,9 @@
 ### CC Adi 10.71
 
-> এই দুই-ঘরে প্রভু একাদশী দিনে ।
+> এই দুই-ঘরে প্রভু একাদশী দিনে ।\
 > বিষ্ণুর নৈবেদ্য মাগি’ খাইল আপনে ॥৭১॥
 
-> ei dui-ghare prabhu ekādaśī dine
+> ei dui-ghare prabhu ekādaśī dine\
 > viṣṇura naivedya māgi' khāila āpane
 
 *ei dui-ghare*—en estas dos casas; *prabhu*—el Señor; *ekādaśī dine*—en el día de Ekādaśī; *viṣṇura*—del Señor Viṣṇu; *naivedya*—alimento ofrecido al Señor Viṣṇu; *māgi'*—pidiendo; *khāila*—comió; *āpane*—personalmente.

@@ -1,11 +1,11 @@
 ### SB 3.12.29
 
-> तमधर्मे कृतमतिं विलोक्य पितरं सुताः ।
+> तमधर्मे कृतमतिं विलोक्य पितरं सुताः ।\
 > मरीचिमुख्या मुनयो विश्रम्भात्प्रत्यबोधयन् ॥२९॥
 
-> tam adharme kṛta-matiṁ
-> vilokya pitaraṁ sutāḥ
-> marīci-mukhyā munayo
+> tam adharme kṛta-matiṁ\
+> vilokya pitaraṁ sutāḥ\
+> marīci-mukhyā munayo\
 > viśrambhāt pratyabodhayan
 
 *tam*—a él; *adharme*—en cuestión de inmoralidad; *kṛta-matim*—con la mente de este modo entregada; *vilokya*—viendo así; *pitaram*—al padre; *sutāḥ*—hijos; *marīci-mukhyāḥ*—encabezados por Marīci; *munayaḥ*—sabios; *viśrambhāt*—con el debido respeto; *pratyabodhayan*—expusieron lo siguiente.

@@ -1,9 +1,9 @@
 ### CC Adi 10.139
 
-> তাঁর সিদ্ধিকালে দোঁহে তাঁর আজ্ঞা পাঞা ।
+> তাঁর সিদ্ধিকালে দোঁহে তাঁর আজ্ঞা পাঞা ।\
 > নীলাচলে প্রভুস্থানে মিলিল আসিয়া ॥১৩৯॥
 
-> tāṅra siddhi-kāle doṅhe tāṅra ājñā pāñā
+> tāṅra siddhi-kāle doṅhe tāṅra ājñā pāñā\
 > nīlācale prabhu-sthāne milila āsiyā
 
 *tāṅra siddhi-kāle*—en el momento de la partida de Īśvara Purī; *doṅhe*—los dos; *tāṅra*—su; *ājñā*—orden; *pāñā*—recibiendo; *nīlācale*—en Jagannātha Purī; *prabhu-sthāne*—donde el Señor Caitanya Mahāprabhu; *milila*—se encontraron; *āsiyā*—acudiendo allí.

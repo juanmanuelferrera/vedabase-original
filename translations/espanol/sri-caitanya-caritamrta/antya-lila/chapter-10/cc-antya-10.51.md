@@ -1,9 +1,9 @@
 ### CC Antya 10.51
 
-> পুনঃ ইহাঁ বর্ণিলে পুনরুক্তি হয় ।
+> পুনঃ ইহাঁ বর্ণিলে পুনরুক্তি হয় ।\
 > ব্যর্থ লিখন হয়, আর গ্রন্থ বাড়য় ॥৫১॥
 
-> punaḥ ihāṅ varṇile punarukti haya
+> punaḥ ihāṅ varṇile punarukti haya\
 > vyartha likhana haya, āra grantha bāḍaya
 
 *punaḥ*—de nuevo; *ihāṅ*—aquí; *varṇile*—si describo; *punaḥ-ukti haya*—será repetición; *vyartha*—inútil; *likhana*—escritura; *haya*—es; *āra*—y; *grantha bāḍaya*—aumenta el volumen del libro.

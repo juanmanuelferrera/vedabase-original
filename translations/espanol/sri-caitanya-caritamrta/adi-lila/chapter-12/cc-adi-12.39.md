@@ -1,9 +1,9 @@
 ### CC Adi 12.39
 
-> পূর্বে মহাপ্রভু মোরে করেন সম্মান ।
+> পূর্বে মহাপ্রভু মোরে করেন সম্মান ।\
 > দুঃখ পাই’ মনে আমি কৈলুঁ অনুমান ॥৩৯॥
 
-> pūrve mahāprabhu more karena sammāna
+> pūrve mahāprabhu more karena sammāna\
 > duḥkha pāi' mane āmi kailuṅ anumāna
 
 *pūrve*—anteriormente; *mahāprabhu*—el Señor Caitanya Mahāprabhu; *more*—a Mí; *karena*—hacía; *sammāna*—respeto; *duḥkha*—infeliz; *pāi'*—sintiéndose; *mane*—en la mente; *āmi*—Yo; *kailuṅ*—hice; *anumāna*—un plan.

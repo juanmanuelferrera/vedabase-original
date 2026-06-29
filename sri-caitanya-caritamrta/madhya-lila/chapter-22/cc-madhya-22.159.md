@@ -1,9 +1,9 @@
 ### CC Madhya 22.159
 
-> নিজাভীষ্ট কৃষ্ণপ্রেষ্ঠ পাছেত’ লাগিয়া ।
+> নিজাভীষ্ট কৃষ্ণপ্রেষ্ঠ পাছেত’ লাগিয়া ।\
 > নিরন্তর সেবা করে অন্তর্মনা হঞা ॥১৫৯॥
 
-> nijābhīṣṭa kṛṣṇa-preṣṭha pācheta' lāgiyā
+> nijābhīṣṭa kṛṣṇa-preṣṭha pācheta' lāgiyā\
 > nirantara sevā kare antarmanā hañā
 
 *nija-abhīṣṭa*—one's own choice; *kṛṣṇa-preṣṭha*—the servitor of Kṛṣṇa; *pācheta' lāgiyā*—following; *nirantara*—twenty-four hours a day; *sevā*—service; *kare*—executes; *antarmanā*—within the mind; *hañā*—being.

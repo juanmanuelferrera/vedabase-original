@@ -1,18 +1,18 @@
 ### SB 8.22.6-7
 
-> यस्मिन्वैरानुबन्धेन व्यूढेन विबुधेतराः
-> बहवो लेभिरे सिद्धिं यामु हैकान्तयोगिनः ॥६॥
-> तेनाहं निगृहीतोऽस्मि भवता भूरिकर्मणा
+> यस्मिन्वैरानुबन्धेन व्यूढेन विबुधेतराः\
+> बहवो लेभिरे सिद्धिं यामु हैकान्तयोगिनः ॥६॥\
+> तेनाहं निगृहीतोऽस्मि भवता भूरिकर्मणा\
 > बद्धश्च वारुणैः पाशैर्नातिव्रीडे न च व्यथे ॥७॥
 
-> yasmin vairānubandhena
-> vyūḍhena vibudhetarāḥ
-> bahavo lebhire siddhiṁ
+> yasmin vairānubandhena\
+> vyūḍhena vibudhetarāḥ\
+> bahavo lebhire siddhiṁ\
 > yām u haikānta-yoginaḥ
 
-> tenāhaṁ nigṛhīto 'smi
-> bhavatā bhūri-karmaṇā
-> baddhaś ca vāruṇaiḥ pāśair
+> tenāhaṁ nigṛhīto 'smi\
+> bhavatā bhūri-karmaṇā\
+> baddhaś ca vāruṇaiḥ pāśair\
 > nātivrīḍe na ca vyathe
 
 *yasmin*—a Ti; *vaira-anubandhena*—tratando constantemente como enemigo; *vyūḍhena*—firmemente establecidos en esa inteligencia; *vibudha-itarāḥ*—los demonios (los que no son semidioses); *bahavaḥ*—muchos de ellos; *lebhire*—alcanzaron; *siddhim*—perfección; *yām*—la cual; *u ha*—es bien conocida; *ekānta-yoginaḥ*—igual a los mayores logros de los grandes*yogīs* místicos; *tena*—por lo tanto; *aham*—yo; *nigṛhītaḥ asmi*—aunque estoy siendo castigado; *bhavatā*—por Tu Señoría; *bhūri-karmaṇā*—que puedes hacer muchas cosas maravillosas; *baddhaḥ ca*—me encuentro apresado y atado; *vāruṇaiḥ pāśaiḥ*—con las cuerdas de Varuṇa; *na ati-vrīḍe*—no me avergüenzo de ello en absoluto; *na ca vyathe*—ni sufro mucho.

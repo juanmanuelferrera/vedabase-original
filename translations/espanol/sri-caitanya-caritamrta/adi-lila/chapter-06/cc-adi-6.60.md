@@ -1,11 +1,11 @@
 ### CC Adi 6.60
 
-> মনসো বৃত্তয়ো নঃ স্যুঃ কৃষ্ণপাদাম্বুজাশ্রয়াঃ ।
+> মনসো বৃত্তয়ো নঃ স্যুঃ কৃষ্ণপাদাম্বুজাশ্রয়াঃ ।\
 > বাচোঽভিধায়িনীর্নাম্নাং কায়স্তৎপ্রহ্বণাদিষু ॥৬০॥
 
-> manaso vṛttayo naḥ syuḥ
-> kṛṣṇa-pādāmbujāśrayāḥ
-> vāco 'bhidhāyinīr nāmnāṁ
+> manaso vṛttayo naḥ syuḥ\
+> kṛṣṇa-pādāmbujāśrayāḥ\
+> vāco 'bhidhāyinīr nāmnāṁ\
 > kāyas tat-prahvaṇādiṣu
 
 *manasaḥ*—de la mente; *vṛttayaḥ*—actividades (pensar, sentir y querer); *naḥ*—de nosotros; *syuḥ*—que haya; *kṛṣṇa*—del Señor Kṛṣṇa; *pāda-ambuja*—los pies de loto; *āśrayāḥ*—refugiadas en; *vācaḥ*—las palabras; *abhidhāyinīḥ*—que pronuncian; *nāmnām*—de Sus santos nombres; *kāyaḥ*—el cuerpo; *tat*—ante Él; *prahvaṇa-ādiṣu*—postrándose, etc.

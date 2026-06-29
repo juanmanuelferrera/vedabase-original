@@ -1,13 +1,13 @@
 ### SB 3.23.8
 
-> अन्ये पुनर्भगवतो भ्रुव उद्विजृम्भ
-> विभ्रंशितार्थरचनाः किमुरुक्रमस्य ।
-> सिद्धासि भुङ्क्ष्व विभवान्निजधर्मदोहान्
+> अन्ये पुनर्भगवतो भ्रुव उद्विजृम्भ\
+> विभ्रंशितार्थरचनाः किमुरुक्रमस्य ।\
+> सिद्धासि भुङ्क्ष्व विभवान्निजधर्मदोहान्\
 > दिव्यान्नरैर्दुरधिगान्नृपविक्रियाभिः ॥८॥
 
-> anye punar bhagavato bhruva udvijṛmbha-
-> vibhraṁśitārtha-racanāḥ kim urukramasya
-> siddhāsi bhuṅkṣva vibhavān nija-dharma-dohān
+> anye punar bhagavato bhruva udvijṛmbha-\
+> vibhraṁśitārtha-racanāḥ kim urukramasya\
+> siddhāsi bhuṅkṣva vibhavān nija-dharma-dohān\
 > divyān narair duradhigān nṛpa-vikriyābhiḥ
 
 *anye*—others; *punaḥ*—again; *bhagavataḥ*—of the Lord; *bhruvaḥ*—of the eyebrows; *udvijṛmbha*—by the movement; *vibhraṁśita*—annihilated; *artha-racanāḥ*—material achievements; *kim*—what use; *urukramasya*—of Lord Viṣṇu (far-stepping); *siddhā*—successful; *asi*—you are; *bhuṅkṣva*—enjoy; *vibhavān*—the gifts; *nija-dharma*—by your own principles of devotion; *dohān*—gained; *divyān*—transcendental; *naraiḥ*—by persons; *duradhigān*—difficult to obtain; *nṛpa-vikriyābhiḥ*—proud of aristocracy.

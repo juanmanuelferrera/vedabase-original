@@ -1,11 +1,11 @@
 ### SB 3.29.14
 
-> स एव भक्तियोगाख्य आत्यन्तिक उदाहृतः ।
+> स एव भक्तियोगाख्य आत्यन्तिक उदाहृतः ।\
 > येनातिव्रज्य त्रिगुणं मद्भावायोपपद्यते ॥१४॥
 
-> sa eva bhakti-yogākhya
-> ātyantika udāhṛtaḥ
-> yenātivrajya tri-guṇaṁ
+> sa eva bhakti-yogākhya\
+> ātyantika udāhṛtaḥ\
+> yenātivrajya tri-guṇaṁ\
 > mad-bhāvāyopapadyate
 
 *saḥ*—este; *eva*—en verdad; *bhakti-yoga*—servicio devocional; *ākhyaḥ*—recibe el nombre; *ātyantikaḥ*—el nivel más elevado; *udāhṛtaḥ*—explicado; *yena*—por el cual; *ativrajya*—superando; *tri-guṇam*—las tres modalidades de la naturaleza material; *mat-bhāvāya*—a Mi estado trascendental; *upapadyate*—alcanza.

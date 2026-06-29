@@ -1,9 +1,9 @@
 ### CC Adi 17.144
 
-> দূর হইতে আইলা কাজী মাথা নোয়াইয়া ।
+> দূর হইতে আইলা কাজী মাথা নোয়াইয়া ।\
 > কাজীরে বসাইলা প্রভু সম্মান করিয়া ॥১৪৪॥
 
-> dūra ha-ite āilā kājī māthā noyāiyā
+> dūra ha-ite āilā kājī māthā noyāiyā\
 > kājīre vasāilā prabhu sammāna kariyā
 
 *dūra ha-ite*—from a distant place; *āilā*—came; *kājī*—the Kazi; *māthā*—head; *noyāiyā*—bowed down; *kājīre*—unto the Kazi; *vasāilā*—gave a seat; *prabhu*—the Lord; *sammāna*—respect; *kariyā*—offering.

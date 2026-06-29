@@ -1,9 +1,9 @@
 ### CC Madhya 24.220
 
-> এই চারি অর্থ সহ হইল ‘তেইশ’ অর্থ ।
+> এই চারি অর্থ সহ হইল ‘তেইশ’ অর্থ ।\
 > আর তিন অর্থ শুন পরম সমর্থ ॥২২০॥
 
-> ei cāri artha saha ha-ila 'teiśa' artha
+> ei cāri artha saha ha-ila 'teiśa' artha\
 > āra tina artha śuna parama samartha
 
 *ei*—estos; *cāri*—cuatro; *artha*—significados; *saha*—con; *ha-ila*—hubo; *teiśa artha*—veintitrés variedades distintas de acepciones; *āra tina artha*—otras tres acepciones; *śuna*—escucha; *parama samartha*—muy contundentes.

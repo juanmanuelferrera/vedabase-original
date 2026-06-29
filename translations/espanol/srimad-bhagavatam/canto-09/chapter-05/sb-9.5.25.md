@@ -1,11 +1,11 @@
 ### SB 9.5.25
 
-> एवं विधानेकगुणः स राजा परात्मनि ब्रह्मणि वासुदेवे
+> एवं विधानेकगुणः स राजा परात्मनि ब्रह्मणि वासुदेवे\
 > क्रियाकलापैः समुवाह भक्तिं ययाविरिञ्च्यान्निरयांश्चकार ॥२५॥
 
-> evaṁ vidhāneka-guṇaḥ sa rājā
-> parātmani brahmaṇi vāsudeve
-> kriyā-kalāpaiḥ samuvāha bhaktiṁ
+> evaṁ vidhāneka-guṇaḥ sa rājā\
+> parātmani brahmaṇi vāsudeve\
+> kriyā-kalāpaiḥ samuvāha bhaktiṁ\
 > yayāviriñcyān nirayāṁś cakāra
 
 *evam*—de este modo; *vidhā-aneka-guṇaḥ*—dotado con todo tipo de buenas cualidades; *saḥ*—él, Mahārāja Ambarīṣa; *rājā*—el rey; *para-ātmani*—a la Superalma; *brahmaṇi*—al Brahman; *vāsudeve*—a la Suprema Personalidad de Dios, Kṛṣṇa, Vāsudeva; *kriyā-kalāpaiḥ*—con actividades prácticas; *samuvāha*—llevó a cabo; *bhaktim*—servicio devocional; *yayā*—con esas actividades; *āviriñcyān*—comenzando con el planeta más elevado; *nirayān*—hasta los planetas infernales; *cakāra*—comprobó que hay peligro en todas partes.

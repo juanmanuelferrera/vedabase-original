@@ -1,9 +1,9 @@
 ### CC Adi 7.82
 
-> হাসায়, নাচায়, মোরে করায় ক্রন্দন ।
+> হাসায়, নাচায়, মোরে করায় ক্রন্দন ।\
 > এত শুনি’ গুরু হাসি বলিলা বচন ॥৮২॥
 
-> hāsāya, nācāya, more karāya krandana
+> hāsāya, nācāya, more karāya krandana\
 > eta śuni' guru hāsi balilā vacana
 
 *hāsāya*—me hace reír; *nācāya*—me hace danzar; *more*—a Mí; *karāya*—me hace; *krandana*—llorar; *eta*—así; *śuni'*—escuchando; *guru*—Mi maestro espiritual; *hāsi*—sonriendo; *balilā*—dijo; *vacana*—palabras.

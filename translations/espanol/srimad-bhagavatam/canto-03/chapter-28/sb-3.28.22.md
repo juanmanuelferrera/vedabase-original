@@ -1,13 +1,13 @@
 ### SB 3.28.22
 
-> यच्छौचनिःसृतसरित्प्रवरोदकेन
-> तीर्थेन मूर्ध्न्यधिकृतेन शिवः शिवोऽभूत् ।
-> ध्यातुर्मनःशमलशैलनिसृष्टवज्रं
+> यच्छौचनिःसृतसरित्प्रवरोदकेन\
+> तीर्थेन मूर्ध्न्यधिकृतेन शिवः शिवोऽभूत् ।\
+> ध्यातुर्मनःशमलशैलनिसृष्टवज्रं\
 > ध्यायेच्चिरं भगवतश्चरणारविन्दम् ॥२२॥
 
-> yac-chauca-niḥsṛta-sarit-pravarodakena
-> tīrthena mūrdhny adhikṛtena śivaḥ śivo 'bhūt
-> dhyātur manaḥ-śamala-śaila-nisṛṣṭa-vajraṁ
+> yac-chauca-niḥsṛta-sarit-pravarodakena\
+> tīrthena mūrdhny adhikṛtena śivaḥ śivo 'bhūt\
+> dhyātur manaḥ-śamala-śaila-nisṛṣṭa-vajraṁ\
 > dhyāyec ciraṁ bhagavataś caraṇāravindam
 
 *yat*—los pies de loto del Señor; *śauca*—lavando; *niḥsṛta*—salida de; *sarit-pravara*—del Ganges; *udakena*—por el agua; *tīrthena*—sagrada; *mūrdhni*—en la cabeza; *adhikṛtena*—llevada; *śivaḥ*—el Señor Śiva; *śivaḥ*—auspicioso; *abhūt*—se volvió; *dhyātuḥ*—del meditador; *manaḥ*—en la mente; *śamala-śaila*—la montaña de pecado; *nisṛṣṭa*—arrojado; *vajram*—rayo; *dhyāyet*—debe meditar; *ciram*—durante mucho tiempo; *bhagavataḥ*—del Señor; *caraṇa-aravindam*—en los pies de loto.

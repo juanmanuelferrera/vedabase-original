@@ -1,11 +1,11 @@
 ### SB 4.29.51
 
-> स वै प्रियतमश्चात्मा यतो न भयमण्वपि ।
+> स वै प्रियतमश्चात्मा यतो न भयमण्वपि ।\
 > इति वेद स वै विद्वान्यो विद्वान्स गुरुर्हरिः ॥५१॥
 
-> sa vai priyatamaś cātmā
-> yato na bhayam aṇv api
-> iti veda sa vai vidvān
+> sa vai priyatamaś cātmā\
+> yato na bhayam aṇv api\
+> iti veda sa vai vidvān\
 > yo vidvān sa gurur hariḥ
 
 *saḥ*—He; *vai*—certainly; *priya-tamaḥ*—the most dear; *ca*—also; *ātmā*—Supersoul; *yataḥ*—from whom; *na*—never; *bhayam*—fear; *aṇu*—little; *api*—even; *iti*—thus; *veda*—(one who) knows; *saḥ*—he; *vai*—certainly; *vidvān*—educated; *yaḥ*—he who; *vidvān*—educated; *saḥ*—he; *guruḥ*—spiritual master; *hariḥ*—not different from the Lord.

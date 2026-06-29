@@ -1,9 +1,9 @@
 ### CC Adi 2.86
 
-> ভ্রম, প্রমাদ, বিপ্রলিপ্সা, করণাপাটব ।
+> ভ্রম, প্রমাদ, বিপ্রলিপ্সা, করণাপাটব ।\
 > আর্ষ-বিজ্ঞবাক্যে নাহি দোষ এই সব ॥৮৬॥
 
-> bhrama, pramāda, vipralipsā, karaṇāpāṭava
+> bhrama, pramāda, vipralipsā, karaṇāpāṭava\
 > ārṣa-vijña-vākye nāhi doṣa ei saba
 
 *bhrama*—errores; *pramāda*—ilusión; *vipralipsā*—engaño; *karaṇa-apāṭava*—imperfección de los sentidos; *ārṣa*—de los sabios autoritativos; *vijña-vākye*—en las palabras sabias; *nāhi*—no; *doṣa*—defectos; *ei*—estos; *saba*—todos.

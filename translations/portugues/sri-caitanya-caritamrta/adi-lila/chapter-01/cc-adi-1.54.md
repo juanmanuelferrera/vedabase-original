@@ -1,8 +1,8 @@
 ### CC Adi 1.54
 
-> ṛte 'rthaṁ yat pratīyeta
-> na pratīyeta cātmani
-> tad vidyād ātmano māyāṁ
+> ṛte 'rthaṁ yat pratīyeta\
+> na pratīyeta cātmani\
+> tad vidyād ātmano māyāṁ\
 > yathābhāso yathā tamaḥ
 
 *ṛte*—sem; *artham*—valor; *yat*—aquilo que; *pratīyeta*—parece ser; *na*—não; *pratīyeta*—parece ser; *ca*—certamente; *ātmani*—em relação a Mim; *tat*—isso; *vidyāt*—deves saber; *ātmanaḥ*—Minha; *māyām*—energia ilusória; *yathā*—assim como; *ābhāsaḥ*—o reflexo; *yathā*—assim como; *tamaḥ*—a escuridão.

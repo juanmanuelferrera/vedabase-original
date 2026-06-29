@@ -1,9 +1,9 @@
 ### CC Antya 1.71
 
-> দুই ‘নান্দী’ ‘প্রস্তাবনা’, দুই ‘সংঘটনা’ ।
+> দুই ‘নান্দী’ ‘প্রস্তাবনা’, দুই ‘সংঘটনা’ ।\
 > পৃথক্ করিয়া লিখি করিয়া ভাবনা ॥৭১॥
 
-> dui'nāndī' 'prastāvanā', dui'saṁghaṭanā'
+> dui'nāndī' 'prastāvanā', dui'saṁghaṭanā'\
 > pṛthak kariyā likhi kariyā bhāvanā
 
 *dui nāndī*—two invocations of good fortune; *prastāvanā*—introductions; *dui*—two; *saṁghaṭanā*—chains of events; *pṛthak kariyā*—making separate; *likhi*—I shall write; *kariyā bhāvanā*—thinking about them.

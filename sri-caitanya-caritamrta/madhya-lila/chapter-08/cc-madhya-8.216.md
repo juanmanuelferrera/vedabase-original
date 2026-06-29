@@ -1,11 +1,11 @@
 ### CC Madhya 8.216
 
-> প্রেমৈব গোপরামাণাং কাম ইত্যগমৎ প্ৰথাম্ ।
+> প্রেমৈব গোপরামাণাং কাম ইত্যগমৎ প্ৰথাম্ ।\
 > ইত্যুদ্ধবাদয়োঽপ্যেতং বাঞ্ছন্তি ভগবৎপ্রিয়াঃ ॥২১৬॥
 
-> premaiva gopa-rāmāṇāṁ
-> kāma ity agamat prathām
-> ity uddhavādayo 'py etaṁ
+> premaiva gopa-rāmāṇāṁ\
+> kāma ity agamat prathām\
+> ity uddhavādayo 'py etaṁ\
 > vāñchanti bhagavat-priyāḥ
 
 *premā*—love of Godhead; *eva*—certainly; *gopa-rāmāṇām*—of all the *gopīs*; *kāmaḥ*—*lust*; *iti*—*thus*; *agamat*—became current; *prathām*—the process; *iti*—thus; *uddhava-ādayaḥ*—all devotees, headed by Uddhava; *api*—certainly; *etam*—this type of behavior; *vāñchanti*—desire; *bhagavat-priyāḥ*—those who are very, very dear to the Supreme Personality of Godhead.

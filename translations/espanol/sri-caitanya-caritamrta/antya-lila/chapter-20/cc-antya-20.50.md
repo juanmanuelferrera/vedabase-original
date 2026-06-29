@@ -1,13 +1,13 @@
 ### CC Antya 20.50
 
-> ছাড়ি’ অন্য নারীগণ, মোর বশ তনুমন,
-> মোর সৌভাগ্য প্রকট করিয়া ।
-> তা-সবারে দেয় পীড়া, আমা-সনে করে ক্রীড়া,
+> ছাড়ি’ অন্য নারীগণ, মোর বশ তনুমন,\
+> মোর সৌভাগ্য প্রকট করিয়া ।\
+> তা-সবারে দেয় পীড়া, আমা-সনে করে ক্রীড়া,\
 > সেই নারীগণে দেখাঞা ॥৫০॥
 
-> chāḍi' anya nārī-gaṇa, mora vaśa tanu-mana,
-> mora saubhāgya prakaṭa kariyā
-> tā-sabāre deya pīḍā, āmā-sane kare krīḍā,
+> chāḍi' anya nārī-gaṇa, mora vaśa tanu-mana,\
+> mora saubhāgya prakaṭa kariyā\
+> tā-sabāre deya pīḍā, āmā-sane kare krīḍā,\
 > sei nārī-gaṇe dekhāñā
 
 *chāḍi'*—abandonando; *anya*—otras; *nārī-gaṇa*—mujeres; *mora*—Mi; *vaśa*—control; *tanu-mana*—mente y cuerpo; *mora*—Mi; *saubhāgya*—fortuna; *prakaṭa kariyā*—manifestando; *tā-sabāre*—a todas ellas; *deya pīḍā*—da aflicción; *āmā-sane*—conmigo; *kare krīḍā*—realiza actividades amorosas; *sei nārī-gaṇe*—a esas mujeres; *dekhāñā*—mostrando.

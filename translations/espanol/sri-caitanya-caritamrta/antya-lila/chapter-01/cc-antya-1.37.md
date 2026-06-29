@@ -1,9 +1,9 @@
 ### CC Antya 1.37
 
-> এইমতে দুই ভাই গৌড়দেশে আইলা ।
+> এইমতে দুই ভাই গৌড়দেশে আইলা ।\
 > গৌড়ে আসি’ অনুপমের গঙ্গা-প্রাপ্তি হৈলা ॥৩৭॥
 
-> ei-mate dui bhāi gauḍa-deśe āilā
+> ei-mate dui bhāi gauḍa-deśe āilā\
 > gauḍe āsi' anupamera gaṅgā-prāpti hailā
 
 *ei-mate*—de esta manera; *dui bhāi*—Rūpa Gosvāmī y su hermano menor, Anupama; *gauḍa-deśe āilā*—llegaron a Bengala, conocida como Gauḍa-deśa; *gauḍe āsi'*—al llegar a Gauḍa; *anupamera*—de Anupama; *gaṅgā-prāpti hailā*—obtuvo el refugio de madre Ganges (falleció).

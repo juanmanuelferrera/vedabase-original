@@ -1,9 +1,9 @@
 ### CC Madhya 14.179
 
-> এই ভাব-যুক্ত দেখি’ রাধাস্য-নয়ন ।
+> এই ভাব-যুক্ত দেখি’ রাধাস্য-নয়ন ।\
 > সঙ্গম হইতে সুখ পায় কোটি-গুণ ॥১৭৯॥
 
-> ei bhāva-yukta dekhi' rādhāsya-nayana
+> ei bhāva-yukta dekhi' rādhāsya-nayana\
 > saṅgama ha-ite sukha pāya koṭi-guṇa
 
 *eibhāva*—with these ecstatic symptoms; *yukta*—combined together; *dekhi'*—seeing; *rādhā-asya-nayana*—the face and eyes of Śrīmatī Rādhārāṇī; *saṅgama ha-ite*—than direct embracing; *sukha pāya*—enjoys happiness; *koṭi-guṇa*—millions of times more.

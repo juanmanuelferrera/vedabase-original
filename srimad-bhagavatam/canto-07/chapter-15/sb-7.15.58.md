@@ -1,11 +1,11 @@
 ### SB 7.15.58
 
-> आबाधितोऽपि ह्याभासो यथा वस्तुतया स्मृतः
+> आबाधितोऽपि ह्याभासो यथा वस्तुतया स्मृतः\
 > दुर्घटत्वादैन्द्रियकं तद्वदर्थविकल्पितम ॥५८॥
 
-> ābādhito 'pi hy ābhāso
-> yathā vastutayā smṛtaḥ
-> durghaṭatvād aindriyakaṁ
+> ābādhito 'pi hy ābhāso\
+> yathā vastutayā smṛtaḥ\
+> durghaṭatvād aindriyakaṁ\
 > tadvad artha-vikalpitam
 
 *ābādhitaḥ*—rejected; *api*—although; *hi*—certainly; *ābhāsaḥ*—a reflection; *yathā*—as; *vastutayā*—a form of reality; *smṛtaḥ*—accepted; *durghaṭatvāt*—because of being very difficult to prove the reality; *aindriyakam*—knowledge derived from the senses; *tadvat*—similarly; *artha*—reality; *vikalpitam*—speculated or doubtful.

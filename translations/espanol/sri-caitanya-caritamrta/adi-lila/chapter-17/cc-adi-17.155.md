@@ -1,9 +1,9 @@
 ### CC Adi 17.155
 
-> কাজী কহে, — তোমার যৈছে বেদ-পুরাণ ।
+> কাজী কহে, — তোমার যৈছে বেদ-পুরাণ ।\
 > তৈছে আমার শাস্ত্র — কেতাব ‘কোরাণ’ ॥১৫৫॥
 
-> kājī kahe,--tomāra yaiche veda-purāṇa
+> kājī kahe,--tomāra yaiche veda-purāṇa\
 > taiche āmāra śāstra--ketāva 'korāṇa'
 
 *kājī kahe*—el Kazi respondió; *tomāra*—Tus; *yaiche*—así como; *veda-purāṇa*—los Vedas y Purāṇas; *taiche*—del mismo modo; *āmāra*—nuestra; *śāstra*—escritura; *ketāva*—el libro sagrado; *korāṇa*—el Corán.

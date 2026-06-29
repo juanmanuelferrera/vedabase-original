@@ -1,9 +1,9 @@
 ### CC Madhya 4.7
 
-> চৈতন্যমঙ্গলে যাহা করিল বর্ণন ।
+> চৈতন্যমঙ্গলে যাহা করিল বর্ণন ।\
 > সূত্ররূপে সেই লীলা করিয়ে সূচন ॥৭॥
 
-> caitanya-maṅgale yāhā karila varṇana
+> caitanya-maṅgale yāhā karila varṇana\
 > sūtra-rūpe sei līlā kariye sūcana
 
 *caitanya-maṅgale*—en el libro llamado Caitanya-maṅgala; *yāhā*—lo que; *karila varṇana*—ha descrito; *sūtra-rūpe*—en forma de sinopsis; *sei līlā*—esos pasatiempos; *kariye sūcana*—presentaré.

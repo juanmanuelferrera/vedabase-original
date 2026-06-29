@@ -1,9 +1,9 @@
 ### CC Madhya 1.100
 
-> নিত্যানন্দ, জগদানন্দ, দামোদর, মুকুন্দ ।
+> নিত্যানন্দ, জগদানন্দ, দামোদর, মুকুন্দ ।\
 > পাছে আসি’ মিলি’ সবে পাইল আনন্দ ॥১০০॥
 
-> nityānanda, jagadānanda, dāmodara, mukunda
+> nityānanda, jagadānanda, dāmodara, mukunda\
 > pāche āsi' mili' sabe pāila ānanda
 
 *nityānanda*—of the name Nityānanda; *jagadānanda*—of the name Jagadānanda; *dāmodara*—of the name Dāmodara; *mukunda*—of the name Mukunda; *pācheāsi'*—coming; *mili'*—meeting; *sabe*—all; *pāila*—got; *ānanda*—pleasure

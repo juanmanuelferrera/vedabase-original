@@ -1,9 +1,9 @@
 ### CC Madhya 3.7
 
-> প্রভু কহে, — সাধু এই ভিক্ষুর বচন ।
+> প্রভু কহে, — সাধু এই ভিক্ষুর বচন ।\
 > মুকুন্দ সেবন-ব্রত কৈল নির্ধারণ ॥৭॥
 
-> prabhu kahe--sādhu ei bhikṣura vacana
+> prabhu kahe--sādhu ei bhikṣura vacana\
 > mukunda sevana-vrata kaila nirdhāraṇa
 
 *prabhu kahe*—el Señor dijo; *sādhu*—muy purificadas; *ei*—estas; *bhikṣura*—del mendicante; *vacana*—palabras; *mukunda*—el Señor Kṛṣṇa; *sevana-vrata*—la decisión de servir; *kaila*—hizo; *nirdhāraṇa*—indicación.

@@ -1,13 +1,13 @@
 ### SB 3.18.13
 
-> मैत्रेय उवाच
-> सोऽधिक्षिप्तो भगवता प्रलब्धश्च रुषा भृशम् ।
+> मैत्रेय उवाच\
+> सोऽधिक्षिप्तो भगवता प्रलब्धश्च रुषा भृशम् ।\
 > आजहारोल्बणं क्रोधं क्रीड्यमानोऽहिराडिव ॥१३॥
 
-> maitreya uvāca
-> so 'dhikṣipto bhagavatā
-> pralabdhaś ca ruṣā bhṛśam
-> ājahārolbaṇaṁ krodhaṁ
+> maitreya uvāca\
+> so 'dhikṣipto bhagavatā\
+> pralabdhaś ca ruṣā bhṛśam\
+> ājahārolbaṇaṁ krodhaṁ\
 > krīḍyamāno 'hi-rāḍ iva
 
 *maitreyaḥ*—the great sage Maitreya; *uvāca*—said; *saḥ*—the demon; *adhikṣiptaḥ*—having been insulted; *bhagavatā*—by the Personality of Godhead; *pralabdhaḥ*—ridiculed; *ca*—and; *ruṣā*—angry; *bhṛśam*—greatly; *ājahāra*—collected; *ulbaṇam*—great; *krodham*—anger; *krīḍyamānaḥ*—being played with; *ahi-rāṭ*—a great cobra; *iva*—like.

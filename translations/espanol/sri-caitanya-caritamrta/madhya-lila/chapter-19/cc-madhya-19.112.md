@@ -1,9 +1,9 @@
 ### CC Madhya 19.112
 
-> যাঁর ইচ্ছা, প্ৰয়াগে যাঞা করিবে নিমন্ত্রণ’ ।
+> যাঁর ইচ্ছা, প্ৰয়াগে যাঞা করিবে নিমন্ত্রণ’ ।\
 > এত বলি’ প্রভু লঞা করিল গমন ॥১১২॥
 
-> yāṅra icchā, prayāge yāñā karibe nimantraṇa'
+> yāṅra icchā, prayāge yāñā karibe nimantraṇa'\
 > eta bali' prabhu lañā karila gamana
 
 *yāṅra*—de quien; *icchā*—hay un deseo; *prayāge yāñā*—yendo a Prayāga; *karibe*—podrá hacer; *nimantraṇa*—invitaciones; *eta bali'*—al decir esto; *prabhu lañā*—con Śrī Caitanya Mahāprabhu; *karila gamana*—partió hacia Prayāga.

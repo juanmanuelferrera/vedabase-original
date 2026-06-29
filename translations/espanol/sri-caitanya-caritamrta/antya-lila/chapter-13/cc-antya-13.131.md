@@ -1,9 +1,9 @@
 ### CC Antya 13.131
 
-> নিজ শিষ্যে কহি’ গোবিন্দের মন্দির করাইলা ।
+> নিজ শিষ্যে কহি’ গোবিন্দের মন্দির করাইলা ।\
 > বংশী, মকর কুণ্ডলাদি ‘ভূষণ’ করি’ দিলা ॥১৩১॥
 
-> nija śiṣye kahi' govindera mandira karāilā
+> nija śiṣye kahi' govindera mandira karāilā\
 > vaṁśī, makara, kuṇḍalādi 'bhūṣaṇa' kari' dilā
 
 *nija śiṣye*—a sus propios discípulos; *kahi'*—al hablar; *govindera*—del Señor Govinda; *mandira karāilā*—hizo construir un templo; *vaṁśī*—flauta; *makara kuṇḍala-ādi*—pendientes con forma de tiburón, etc.; *bhūṣaṇa*—ornamentos; *kari'*—preparando; *dilā*—dio.

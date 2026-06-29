@@ -1,9 +1,9 @@
 ### CC Madhya 9.285
 
-> mādhava-purīra śiṣya 'śrī-raṅga-purī' nāma
+> mādhava-purīra śiṣya 'śrī-raṅga-purī' nāma\
 > sei grāme vipra-gṛhe karena viśrāma
 
-> mādhava-purīra śiṣya 'śrī-raṅga-purī' nāma
+> mādhava-purīra śiṣya 'śrī-raṅga-purī' nāma\
 > sei grāme vipra-gṛhe karena viśrāma
 
 *mādhava-purīra śiṣya*—un discípulo de Mādhavendra Purī; *śrī-raṅga-purī*—Śrī Raṅga Purī; *nāma*—de nombre; *sei grāme*—en esa aldea; *vipra-gṛhe*—en la casa de un *brāhmaṇa*; *karena viśrāma*—descansa.

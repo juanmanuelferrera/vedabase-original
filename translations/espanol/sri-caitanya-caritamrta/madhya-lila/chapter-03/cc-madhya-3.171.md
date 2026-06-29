@@ -1,9 +1,9 @@
 ### CC Madhya 3.171
 
-> যাবৎ আচার্যগৃহে নিমাঞির অবস্থান ।
+> যাবৎ আচার্যগৃহে নিমাঞির অবস্থান ।\
 > মুঞি ভিক্ষা দিমু, সবাকারে মাগোঁ দান ॥১৭১॥
 
-> yāvat ācārya-gṛhe nimāñira avasthāna
+> yāvat ācārya-gṛhe nimāñira avasthāna\
 > muñi bhikṣā dimu, sabākāre māgoṅ dāna
 
 *yāvat*—mientras; *ācārya-gṛhe*—en la casa de Advaita Ācārya; *nimāñira*—de Śrī Caitanya Mahāprabhu; *avasthāna*—la estancia; *muñi*—yo; *bhikṣā dimu*—proporcionaré el alimento; *sabākāre*—a todos; *māgoṅ*—ruego; *dāna*—esta caridad.

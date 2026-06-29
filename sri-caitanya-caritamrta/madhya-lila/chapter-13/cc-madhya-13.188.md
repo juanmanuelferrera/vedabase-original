@@ -1,9 +1,9 @@
 ### CC Madhya 13.188
 
-> অবসর জানি’ আমি করিব নিবেদন ।
+> অবসর জানি’ আমি করিব নিবেদন ।\
 > সেইকালে যাই’ করিহ প্রভুর মিলন ॥১৮৮॥
 
-> avasara jāni' āmi kariba nivedana
+> avasara jāni' āmi kariba nivedana\
 > sei-kāle yāi' kariha prabhura milana
 
 *avasara jāni'*—understanding an opportune moment; *āmi*—I; *kariba*—shall do; *nivedana*—submission; *sei-kāle*—at that time; *yāi'*—coming; *kariha*—you do; *prabhura milana*—meeting with Lord Śrī Caitanya Mahāprabhu.

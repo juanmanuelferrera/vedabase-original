@@ -1,9 +1,9 @@
 ### CC Antya 4.61
 
-> প্রেমী ভক্ত বিয়োগে চাহে দেহ ছাড়িতে ।
+> প্রেমী ভক্ত বিয়োগে চাহে দেহ ছাড়িতে ।\
 > প্রেমে কৃষ্ণ মিলে, সেহ না পারে মরিতে ॥৬১॥
 
-> premī bhakta viyoge cāhe deha chāḍite
+> premī bhakta viyoge cāhe deha chāḍite\
 > preme kṛṣṇa mile, seha nā pāre marite
 
 *premī bhakta*—a devotee attached to Kṛṣṇa by love; *viyoge*—in separation; *cāhe*—wants; *deha chāḍite*—to give up the body; *preme*—by such ecstatic love; *kṛṣṇa mile*—one meets Kṛṣṇa; *seha*—such a devotee; *nā pāre marite*—cannot die.

@@ -1,11 +1,11 @@
 ### SB 6.3.16
 
-> यं वै न गोभिर्मनसासुभिर्वा हृदा गिरा वासुभृतो विचक्षते
+> यं वै न गोभिर्मनसासुभिर्वा हृदा गिरा वासुभृतो विचक्षते\
 > आत्मानमन्तर्हृदि सन्तमात्मनां चक्षुर्यथैवाकृतयस्ततः परम ॥१६॥
 
-> yaṁ vai na gobhir manasāsubhir vā
-> hṛdā girā vāsu-bhṛto vicakṣate
-> ātmānam antar-hṛdi santam ātmanāṁ
+> yaṁ vai na gobhir manasāsubhir vā\
+> hṛdā girā vāsu-bhṛto vicakṣate\
+> ātmānam antar-hṛdi santam ātmanāṁ\
 > cakṣur yathaivākṛtayas tataḥ param
 
 *yam*—a quien; *vai*—en verdad; *na*—no; *gobhiḥ*—con los sentidos; *manasā*—con la mente; *asubhiḥ*—con el aire vital; *vā*—o; *hṛdā*—con pensamientos; *girā*—con palabras; *vā*—o; *asu-bhṛtaḥ*—las entidades vivientes; *vicakṣate*—ven o conocen; *ātmānam*—a la Superalma; *antaḥ-hṛdi*—en lo más profundo del corazón; *santam*—existir; *ātmanām*—de las entidades vivientes; *cakṣuḥ*—los ojos; *yathā*—tal y como; *eva*—en verdad; *ākṛtayaḥ*—las distintas partes o miembros del cuerpo; *tataḥ*—que ellas; *param*—superior.

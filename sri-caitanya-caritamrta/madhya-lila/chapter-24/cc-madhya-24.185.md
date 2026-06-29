@@ -1,9 +1,9 @@
 ### CC Madhya 24.185
 
-> ‘চ’ — অবধারণে, ইহা ‘অপি’ — সমুচ্চয়ে ।
+> ‘চ’ — অবধারণে, ইহা ‘অপি’ — সমুচ্চয়ে ।\
 > ধৃতিমন্ত হঞা ভজে পক্ষি-মূর্খ-চয়ে ॥১৮৫॥
 
-> 'ca'—avadhāraṇe, ihā 'api'—samuccaye
+> 'ca'—avadhāraṇe, ihā 'api'—samuccaye\
 > dhṛtimanta hañā bhaje pakṣi-mūrkha-caye
 
 *ca*—the word *ca*; *avadhāraṇe*—in emphasis; *ihā*—here; *api*—the word *api*; *samuccaye*—in the sense of an aggregate; *dhṛtimanta*—fully saturated; *hañā*—becoming; *bhaje*—worship; *pakṣi-mūrkha-caye*—dull creatures like the birds, the most foolish.

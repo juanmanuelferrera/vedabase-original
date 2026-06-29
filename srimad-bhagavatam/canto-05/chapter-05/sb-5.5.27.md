@@ -1,11 +1,11 @@
 ### SB 5.5.27
 
-> मनोवचोदृक्करणेहितस्य साक्षात्कृतं मे परिबर्हणं हि
+> मनोवचोदृक्करणेहितस्य साक्षात्कृतं मे परिबर्हणं हि\
 > विना पुमान्येन महाविमोहात्कृतान्तपाशान्न विमोक्तुमीशेत ॥२७॥
 
-> mano-vaco-dṛk-karaṇehitasya
-> sākṣāt-kṛtaṁ me paribarhaṇaṁ hi
-> vinā pumān yena mahā-vimohāt
+> mano-vaco-dṛk-karaṇehitasya\
+> sākṣāt-kṛtaṁ me paribarhaṇaṁ hi\
+> vinā pumān yena mahā-vimohāt\
 > kṛtānta-pāśān na vimoktum īśet
 
 *manaḥ*—mind; *vacaḥ*—words; *dṛk*—sight; *karaṇa*—of the senses; *īhitasya*—of all activities (for maintenance of body, society, friendship and so on); *sākṣāt-kṛtam*—directly offered; *me*—of Me; *paribarhaṇam*—worship; *hi*—because; *vinā*—without; *pumān*—any person; *yena*—which; *mahā-vimohāt*—from the great illusion; *kṛtānta-pāśāt*—exactly like the stringent rope of Yamarāja; *na*—not; *vimoktum*—to become free; *īśet*—becomes able.

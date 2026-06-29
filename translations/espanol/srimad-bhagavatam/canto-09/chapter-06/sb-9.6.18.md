@@ -1,11 +1,11 @@
 ### SB 9.6.18
 
-> तस्येषुपाताभिमुखं युगान्ताग्निमिवोल्बणम
+> तस्येषुपाताभिमुखं युगान्ताग्निमिवोल्बणम\
 > विसृज्य दुद्रुवुर्दैत्या हन्यमानाः स्वमालयम ॥१८॥
 
-> tasyeṣu-pātābhimukhaṁ
-> yugāntāgnim ivolbaṇam
-> visṛjya dudruvur daityā
+> tasyeṣu-pātābhimukhaṁ\
+> yugāntāgnim ivolbaṇam\
+> visṛjya dudruvur daityā\
 > hanyamānāḥ svam ālayam
 
 *tasya*—sus (de Purañjaya); *iṣu-pāta*—el disparo de flechas; *abhimukham*—en frente de; *yuga-anta*—al final del milenio; *agnim*—las llamas; *iva*—iguales; *ulbaṇam*—feroces; *visṛjya*—abandonando el ataque; *dudruvuḥ*—huyeron corriendo; *daityāḥ*—todos los demonios; *hanyamānāḥ*—ser matados (por Purañjaya); *svam*—propia; *ālayam*—a la morada.

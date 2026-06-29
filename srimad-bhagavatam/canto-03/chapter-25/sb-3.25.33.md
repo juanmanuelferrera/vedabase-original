@@ -2,7 +2,7 @@
 
 > जरयत्याशु या कोशं निगीर्णमनलो यथ् ॥३३॥
 
-> jarayaty āśu yā kośaṁ
+> jarayaty āśu yā kośaṁ\
 > nigīrṇam analo yathā
 
 *jarayati*—dissolves; *āśu*—quickly; *yā*—which; *kośam*—the subtle body; *nigīrṇam*—things eaten; *analaḥ*—fire; *yathā*—as.

@@ -1,11 +1,11 @@
 ### SB 3.3.17
 
-> उत्तरायां धृतः पूरोर्वंशः साध्वभिमन्युना ।
+> उत्तरायां धृतः पूरोर्वंशः साध्वभिमन्युना ।\
 > स वै द्रौण्यस्त्रसम्प्लुष्टः पुनर्भगवता धृतः ॥१७॥
 
-> uttarāyāṁ dhṛtaḥ pūror
-> vaṁśaḥ sādhv-abhimanyunā
-> sa vai drauṇy-astra-sampluṣṭaḥ
+> uttarāyāṁ dhṛtaḥ pūror\
+> vaṁśaḥ sādhv-abhimanyunā\
+> sa vai drauṇy-astra-sampluṣṭaḥ\
 > punar bhagavatā dhṛtaḥ
 
 *uttarāyām*—unto Uttarā; *dhṛtaḥ*—conceived; *pūroḥ*—of Pūru; *vaṁśaḥ*—descendant; *sādhu-abhimanyunā*—by the hero Abhimanyu; *saḥ*—he; *vai*—certainly; *drauṇi-astra*—by the weapon of Drauṇi, the son of Droṇa; *sampluṣṭaḥ*—being burnt; *punaḥ*—again, for the second time; *bhagavatā*—by the Personality of Godhead; *dhṛtaḥ*—was protected.

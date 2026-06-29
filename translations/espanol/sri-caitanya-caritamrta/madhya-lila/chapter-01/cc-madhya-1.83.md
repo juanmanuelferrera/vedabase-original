@@ -1,9 +1,9 @@
 ### CC Madhya 1.83
 
-> ভাগবতের শ্লোক-গূঢ়ার্থ বিশদ করিঞা ।
+> ভাগবতের শ্লোক-গূঢ়ার্থ বিশদ করিঞা ।\
 > রূপ-গোসাঞি শ্লোক কৈল লোক বুঝাইঞা ॥৮৩॥
 
-> bhāgavatera śloka-gūḍhārtha viśada kariñā
+> bhāgavatera śloka-gūḍhārtha viśada kariñā\
 > rūpa-gosāñi śloka kaila loka bujhāiñā
 
 *bhāgavatera*—del Śrīmad-Bhāgavatam; *śloka*—el verso; *gūḍha-artha*—significado confidencial; *viśada*—descripción elaborada; *kariñā*—haciendo; *rūpa-gosāñi*—Śrīla Rūpa Gosvāmī; *śloka*—el verso; *kaila*—compuso; *loka*—la gente en general; *bujhāiñā*—haciendo comprender.

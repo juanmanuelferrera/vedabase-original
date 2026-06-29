@@ -1,9 +1,9 @@
 ### CC Adi 4.8
 
-> স্বয়ং-ভগবানের কর্ম নহে ভারহরণ ।
+> স্বয়ং-ভগবানের কর্ম নহে ভারহরণ ।\
 > স্থিতিকর্তা বিষ্ণু করেন জগৎপালন ॥৮॥
 
-> svayaṁ-bhagavānera karma nahe bhāra-haraṇa
+> svayaṁ-bhagavānera karma nahe bhāra-haraṇa\
 > sthiti-kartā viṣṇu karena jagat-pālana
 
 *svayam-bhagavānera*—of the original Supreme Personality of Godhead; *karma*—the business; *nahe*—is not; *bhāra-haraṇa*—taking away the burden; *sthiti-kartā*—the maintainer; *viṣṇu*—Lord Viṣṇu; *karena*—does; *jagat-pālana*—protection of the universe.

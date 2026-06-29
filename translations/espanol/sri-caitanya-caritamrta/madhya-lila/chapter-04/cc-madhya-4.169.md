@@ -1,9 +1,9 @@
 ### CC Madhya 4.169
 
-> গ্রীষ্মকাল-অন্তে পুনঃ নীলাচলে গেলা ।
+> গ্রীষ্মকাল-অন্তে পুনঃ নীলাচলে গেলা ।\
 > নীলাচলে চাতুর্মাস্য আনন্দে রহিলা ॥১৬৯॥
 
-> grīṣma-kāla-ante punaḥ nīlācale gelā
+> grīṣma-kāla-ante punaḥ nīlācale gelā\
 > nīlācale cāturmāsya ānande rahilā
 
 *grīṣma-kāla*—de la estación de verano; *ante*—al final; *punaḥ*—de nuevo; *nīlācale*—a Jagannātha Purī; *gelā*—fue; *nīlācale*—en Jagannātha Purī; *cātur-māsya*—los cuatro meses de votos; *ānande*—con gran placer; *rahilā*—permaneció.

@@ -1,11 +1,11 @@
 ### SB 2.1.17
 
-> अभ्यसेन्मनसा शुद्धं त्रिवृद्ब्रह्माक्षरं परम् ।
+> अभ्यसेन्मनसा शुद्धं त्रिवृद्ब्रह्माक्षरं परम् ।\
 > मनो यच्छेज्जितश्वासो ब्रह्मबीजमविस्मरन् ॥१७॥
 
-> abhyasen manasā śuddhaṁ
-> trivṛd-brahmākṣaraṁ param
-> mano yacchej jita-śvāso
+> abhyasen manasā śuddhaṁ\
+> trivṛd-brahmākṣaraṁ param\
+> mano yacchej jita-śvāso\
 > brahma-bījam avismaran
 
 *abhyaset*—uno debe practicar; *manasā*—con la mente; *śuddham*—sagrado; *tri-vṛt*—compuesto de las tres; *brahma-akṣaram*—letras trascendentales; *param*—lo supremo; *manaḥ*—la mente; *yacchet*—pon bajo control; *jita-śvāsaḥ*—regulando el aire de la respiración; *brahma*—absoluto; *bījam*—semilla; *avismaran*—sin ser olvidado.

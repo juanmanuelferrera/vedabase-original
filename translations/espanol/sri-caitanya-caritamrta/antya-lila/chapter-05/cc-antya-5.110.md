@@ -1,9 +1,9 @@
 ### CC Antya 5.110
 
-> দুই তিন দিন আচার্য আগ্রহ করিল ।
+> দুই তিন দিন আচার্য আগ্রহ করিল ।\
 > তাঁর আগ্রহে স্বরূপের শুনিতে ইচ্ছা হইল ॥১১০॥
 
-> dui tina dina ācārya āgraha karila
+> dui tina dina ācārya āgraha karila\
 > tāṅra āgrahe svarūpera śunite icchā ha-ila
 
 *dui tina dina*—durante dos o tres días; *ācārya*—Bhagavān Ācārya; *āgraha karila*—expresó su ardiente deseo; *tāṅra āgrahe*—por su insistencia; *svarūpera*—de Svarūpa Dāmodara; *śunite*—de escuchar; *icchā*—deseo; *ha-ila*—hubo.

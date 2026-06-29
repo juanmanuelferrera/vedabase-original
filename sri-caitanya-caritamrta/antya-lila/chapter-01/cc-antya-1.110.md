@@ -1,9 +1,9 @@
 ### CC Antya 1.110
 
-> ভক্তসঙ্গে কৈলা প্রভু দুঁহারে মিলন ।
+> ভক্তসঙ্গে কৈলা প্রভু দুঁহারে মিলন ।\
 > পিণ্ডাতে বসিলা প্রভু লঞা ভক্তগণ ॥১১০॥
 
-> bhakta-saṅge kailā prabhu duṅhāre milana
+> bhakta-saṅge kailā prabhu duṅhāre milana\
 > piṇḍāte vasilā prabhu lañā bhakta-gaṇa
 
 *bhakta-saṅge*—with His intimate associates; *kailā*—did; *prabhu*—Śrī Caitanya Mahāprabhu; *duṅhāre*—the two (Rūpa Gosvāmī and Haridāsa Ṭhākura); *milana*—meeting; *piṇḍāte*—on a raised place; *vasilā*—sat down; *prabhu*—Śrī Caitanya Mahāprabhu; *lañā bhakta-gaṇa*—with His personal devotees.

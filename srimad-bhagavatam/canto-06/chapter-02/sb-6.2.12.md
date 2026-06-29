@@ -1,11 +1,11 @@
 ### SB 6.2.12
 
-> नैकान्तिकं तद्धि कृतेऽपि निष्कृते मनः पुनर्धावति चेदसत्पथे
+> नैकान्तिकं तद्धि कृतेऽपि निष्कृते मनः पुनर्धावति चेदसत्पथे\
 > तत्कर्मनिर्हारमभीप्सतां हरेर्गुणानुवादः खलु सत्त्वभावनः ॥१२॥
 
-> naikāntikaṁ tad dhi kṛte 'pi niṣkṛte
-> manaḥ punar dhāvati ced asat-pathe
-> tat karma-nirhāram abhīpsatāṁ harer
+> naikāntikaṁ tad dhi kṛte 'pi niṣkṛte\
+> manaḥ punar dhāvati ced asat-pathe\
+> tat karma-nirhāram abhīpsatāṁ harer\
 > guṇānuvādaḥ khalu sattva-bhāvanaḥ
 
 *na*—not; *aikāntikam*—absolutely cleansed; *tat*—the heart; *hi*—because; *kṛte*—very nicely performed; *api*—although; *niṣkṛte*—atonement; *manaḥ*—the mind; *punaḥ*—again; *dhāvati*—runs; *cet*—if; *asat-pathe*—on the path of material activities; *tat*—therefore; *karma-nirhāram*—cessation of the fruitive reactions of material activities; *abhīpsatām*—for those who seriously want; *hareḥ*—of the Supreme Personality of Godhead; *guṇa-anuvādaḥ*—constant chanting of the glories; *khalu*—indeed; *sattva-bhāvanaḥ*—actually purifying one's existence.

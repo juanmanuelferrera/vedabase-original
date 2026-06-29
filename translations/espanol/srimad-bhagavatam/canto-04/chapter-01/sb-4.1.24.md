@@ -1,11 +1,11 @@
 ### SB 4.1.24
 
-> प्रणम्य दण्डवद्भूमावुपतस्थेऽर्हणाञ्जलिः ।
+> प्रणम्य दण्डवद्भूमावुपतस्थेऽर्हणाञ्जलिः ।\
 > वृषहंससुपर्णस्थान्स्वैः स्वैश्चिह्नैश्च चिह्नितान् ॥२४॥
 
-> praṇamya daṇḍavad bhūmāv
-> upatasthe 'rhaṇāñjaliḥ
-> vṛṣa-haṁsa-suparṇa-sthān
+> praṇamya daṇḍavad bhūmāv\
+> upatasthe 'rhaṇāñjaliḥ\
+> vṛṣa-haṁsa-suparṇa-sthān\
 > svaiḥ svaiś cihnaiś ca cihnitān
 
 *praṇamya*—ofreciendo reverencias; *daṇḍa-vat*—como una vara; *bhūmau*—en el suelo; *upatasthe*—se postró; *arhaṇa*—todo lo necesario para adorar; *añjaliḥ*—manos unidas; *vṛṣa*—toro; *haṁsa*—cisne; *suparṇa*—el ave Garuḍa; *sthān*—situados; *svaiḥ*—propio; *svaiḥ*—propio; *cihnaiḥ*—por símbolos; *ca*—y; *cihnitān*—siendo reconocidos.

@@ -1,6 +1,6 @@
 ### SB 5.19.17-18
 
-> एतासामपो भारत्यः प्रजा नामभिरेव पुनन्तीनामात्मना चोपस्पृशन्ति ॥१७॥
+> एतासामपो भारत्यः प्रजा नामभिरेव पुनन्तीनामात्मना चोपस्पृशन्ति ॥१७॥\
 > चन्द्रवसा ताम्रपर्णी अवटोदा कृतमाला वैहायसी कावेरी वेणी पयस्विनी शर्करावर्ता तुङ्गभद्राकृष्णावेण्या भीमरथी गोदावरी निर्विन्ध्या पयोष्णी तापी रेवा सुरसा नर्मदा चर्मण्वती सिन्धुरन्धःशोणश्च नदौ महानदी वेदस्मृतिरृषिकुल्या त्रिसामा कौशिकी मन्दाकिनी यमुना सरस्वती दृषद्वती गोमतीसरयू रोधस्वती सप्तवती सुषोमा शतद्रूश्चन्द्रभागा मरुद्वृधा वितस्ता असिक्नी विश्वेति महानद्यः ॥१८॥
 
 > etāsām apo bhāratyaḥ prajā nāmabhir eva punantīnām ātmanā copaspṛśanti; candravasā tāmraparṇī avaṭodā kṛtamālā vaihāyasī kāverī veṇī payasvinī śarkarāvartā tuṅgabhadrā kṛṣṇāveṇyā bhīmarathī godāvarī nirvindhyā payoṣṇī tāpī revā surasā narmadā carmaṇvatī sindhur andhaḥ śoṇaś ca nadau mahānadī vedasmṛtir ṛṣikulyā trisāmā kauśikī mandākinī yamunā sarasvatī dṛṣadvatī gomatī sarayū rodhasvatī saptavatī suṣomā śatadrūś candrabhāgā marudvṛdhā vitastā asiknī viśveti mahā-nadyaḥ.

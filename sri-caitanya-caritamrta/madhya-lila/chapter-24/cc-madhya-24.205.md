@@ -1,9 +1,9 @@
 ### CC Madhya 24.205
 
-> কৃষ্ণকৃপাদি-হেতু হৈতে সবার উদয় ।
+> কৃষ্ণকৃপাদি-হেতু হৈতে সবার উদয় ।\
 > কৃষ্ণগুণাকৃষ্ট হঞা তাঁহারে ভজয় ॥২০৫॥
 
-> kṛṣṇa-kṛpādi-hetu haite sabāra udaya
+> kṛṣṇa-kṛpādi-hetu haite sabāra udaya\
 > kṛṣṇa-guṇākṛṣṭa hañā tāṅhāre bhajaya
 
 *kṛṣṇa-kṛpā-ādi-hetu*—the reason of Kṛṣṇa's mercy; *haite*—from; *sabāra udaya*—anyone becomes a devotee; *kṛṣṇa-guṇa-ākṛṣṭa hañā*—being attracted by the transcendental qualities of Kṛṣṇa; *tāṅhāre*—Him; *bhajaya*—worship.

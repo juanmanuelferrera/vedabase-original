@@ -1,46 +1,46 @@
 ### SB 2.3.2-7
 
-> ब्रह्मवर्चसकामस्तु यजेत ब्रह्मणः पतिम् ।
-> इन्द्रमिन्द्रियकामस्तु प्रजाकामः प्रजापतीन् ॥२॥
-> देवीं मायां तु श्रीकामस्तेजस्कामो विभावसुम् ।
-> वसुकामो वसून्रुद्रान्वीर्यकामोऽथ वीर्यवान् ॥३॥
-> अन्नाद्यकामस्त्वदितिं स्वर्गकामोऽदितेः सुतान् ।
-> विश्वान्देवान्राज्यकामः साध्यान्संसाधको विशाम् ॥४॥
-> आयुष्कामोऽश्विनौ देवौ पुष्टिकाम इलां यजेत् ।
-> प्रतिष्ठाकामः पुरुषो रोदसी लोकमातरौ ॥५॥
-> रूपाभिकामो गन्धर्वान्स्त्रीकामोऽप्सर उर्वशीम् ।
-> आधिपत्यकामः सर्वेषां यजेत परमेष्ठिनम् ॥६॥
-> यज्ञं यजेद्यशस्कामः कोशकामः प्रचेतसम् ।
+> ब्रह्मवर्चसकामस्तु यजेत ब्रह्मणः पतिम् ।\
+> इन्द्रमिन्द्रियकामस्तु प्रजाकामः प्रजापतीन् ॥२॥\
+> देवीं मायां तु श्रीकामस्तेजस्कामो विभावसुम् ।\
+> वसुकामो वसून्रुद्रान्वीर्यकामोऽथ वीर्यवान् ॥३॥\
+> अन्नाद्यकामस्त्वदितिं स्वर्गकामोऽदितेः सुतान् ।\
+> विश्वान्देवान्राज्यकामः साध्यान्संसाधको विशाम् ॥४॥\
+> आयुष्कामोऽश्विनौ देवौ पुष्टिकाम इलां यजेत् ।\
+> प्रतिष्ठाकामः पुरुषो रोदसी लोकमातरौ ॥५॥\
+> रूपाभिकामो गन्धर्वान्स्त्रीकामोऽप्सर उर्वशीम् ।\
+> आधिपत्यकामः सर्वेषां यजेत परमेष्ठिनम् ॥६॥\
+> यज्ञं यजेद्यशस्कामः कोशकामः प्रचेतसम् ।\
 > विद्याकामस्तु गिरिशं दाम्पत्यार्थ उमां सतीम् ॥७॥
 
-> brahma-varcasa-kāmas tu
-> yajeta brahmaṇaḥ patim
-> indram indriya-kāmas tu
+> brahma-varcasa-kāmas tu\
+> yajeta brahmaṇaḥ patim\
+> indram indriya-kāmas tu\
 > prajā-kāmaḥ prajāpatīn
 
-> devīṁ māyāṁ tu śrī-kāmas
-> tejas-kāmo vibhāvasum
-> vasu-kāmo vasūn rudrān
+> devīṁ māyāṁ tu śrī-kāmas\
+> tejas-kāmo vibhāvasum\
+> vasu-kāmo vasūn rudrān\
 > vīrya-kāmo 'tha vīryavān
 
-> annādya-kāmas tv aditiṁ
-> svarga-kāmo 'diteḥ sutān
-> viśvān devān rājya-kāmaḥ
+> annādya-kāmas tv aditiṁ\
+> svarga-kāmo 'diteḥ sutān\
+> viśvān devān rājya-kāmaḥ\
 > sādhyān saṁsādhako viśām
 
-> āyuṣ-kāmo 'śvinau devau
-> puṣṭi-kāma ilāṁ yajet
-> pratiṣṭhā-kāmaḥ puruṣo
+> āyuṣ-kāmo 'śvinau devau\
+> puṣṭi-kāma ilāṁ yajet\
+> pratiṣṭhā-kāmaḥ puruṣo\
 > rodasī loka-mātarau
 
-> rūpābhikāmo gandharvān
-> strī-kāmo 'psara urvaśīm
-> ādhipatya-kāmaḥ sarveṣāṁ
+> rūpābhikāmo gandharvān\
+> strī-kāmo 'psara urvaśīm\
+> ādhipatya-kāmaḥ sarveṣāṁ\
 > yajeta parameṣṭhinam
 
-> yajñaṁ yajed yaśas-kāmaḥ
-> kośa-kāmaḥ pracetasam
-> vidyā-kāmas tu giriśaṁ
+> yajñaṁ yajed yaśas-kāmaḥ\
+> kośa-kāmaḥ pracetasam\
+> vidyā-kāmas tu giriśaṁ\
 > dāmpatyārtha umāṁ satīm
 
 *brahma*—el absoluto; *varcasa*—refulgencia; *kāmaḥ tu*—pero aquel que desea de esa manera; *yajeta*—adora; *brahmaṇaḥ*—de los *Vedas*; *patim*—el amo; *indram*—el rey del cielo; *indriya-kāmaḥ tu*—pero aquel que desea tener unos órganos de los sentidos fuertes; *prajā-kāmaḥ*—aquel que desea tener mucha descendencia; *prajāpatīn*—los *prajāpatis*; *devīm*—la diosa; *māyām*—a la que es ama del mundo material; *tu*—pero; *śrī-kāmaḥ*—aquel que desea belleza; *tejaḥ*—poder; *kāmaḥ*—aquel que desea eso; *vibhāvasum*—el dios del fuego; *vasu-kāmaḥ*—aquel que desea tener riquezas; *vasūn*—los semidioses *vasu*; *rudrān*—las expansiones *rudra* del Señor Śiva; *vīrya-kāmaḥ*—aquel que quiere tener una constitución muy fuerte; *atha*—por lo tanto; *vīryavān*—el muy poderoso; *anna-adya*—granos; *kāmaḥ*—aquel que desea eso; *tu*—pero; *aditim*—Aditi, la madre de los semidioses; *svarga*—cielo; *kāmaḥ*—deseando eso; *aditeḥ sutān*—los hijos de Aditi; *viśām*—Viśvadeva; *devān*—semidioses; *rājya-kāmaḥ*—aquellos que anhelan tener reinos; *sādhyān*—los semidioses *sādhya*; *saṁsādhakaḥ*—lo que complace los deseos; *viśvām*—de la comunidad mercantil; *āyuḥ-kāmaḥ*—deseoso de tener una larga vida; *aśvinau*—los dos semidioses conocidos como los hermanos Aśvini; *devau*—los dos semidioses; *puṣṭi-kāmaḥ*—aquel que desea tener un cuerpo de constitución fuerte; *ilām*—la Tierra; *yajet*—debe adorar; *pratiṣṭhā-kāmaḥ*—aquel que desea tener buena fama o estabilidad en un cargo; *puruṣaḥ*—esa clase de hombres; *rodasī*—el horizonte; *loka-mātarau*—y la Tierra; *rūpa*—belleza; *abhikāmaḥ*—ambicionando verdaderamente; *gandharvān*—los residentes del planeta Gandharva, los cuales son muy hermosos y expertos en cantar; *strī-kāmaḥ*—aquel que desea tener una buena esposa; *apsaraḥ urvaśīm*—las muchachas frívolas del reino celestial; *ādhipatya-kāmaḥ*—aquel que desea dominar a otros; *sarveṣām*—todo el mundo; *yajeta*—debe adorar; *parameṣṭhinam*—Brahmā, el líder del universo; *yajñam*—la Personalidad de Dios; *yajet*—debe adorar; *yaśaḥ-kāmaḥ*—aquel que desea ser famoso; *kośa-kāmaḥ*—aquel que desea tener un buen saldo bancario; *pracetasam*—el tesorero del cielo, conocido como Varuṇa; *vidyā-kāmaḥ tu*—pero aquel que desea tener educación; *giriśam*—el señor de los Himālayas, el Señor Śiva; *dāmpatya-arthaḥ*—y para el amor conyugal; *umām satīm*—la casta esposa del Señor Śiva, conocida como Umā.

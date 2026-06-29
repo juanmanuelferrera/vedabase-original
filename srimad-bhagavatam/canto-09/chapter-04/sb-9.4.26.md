@@ -1,11 +1,11 @@
 ### SB 9.4.26
 
-> स इत्थं भक्तियोगेन तपोयुक्तेन पार्थिवः
+> स इत्थं भक्तियोगेन तपोयुक्तेन पार्थिवः\
 > स्वधर्मेण हरिं प्रीणन्सर्वान्कामान्शनैर्जहौ ॥२६॥
 
-> sa itthaṁ bhakti-yogena
-> tapo-yuktena pārthivaḥ
-> sva-dharmeṇa hariṁ prīṇan
+> sa itthaṁ bhakti-yogena\
+> tapo-yuktena pārthivaḥ\
+> sva-dharmeṇa hariṁ prīṇan\
 > sarvān kāmān śanair jahau
 
 *saḥ*—he (Ambarīṣa Mahārāja); *ittham*—in this way; *bhakti-yogena*—by performing transcendental loving service to the Lord; *tapaḥ-yuktena*—which is simultaneously the best process of austerity; *pārthivaḥ*—the King; *sva-dharmeṇa*—by his constitutional activities; *harim*—unto the Supreme Lord; *prīṇan*—satisfying; *sarvān*—all varieties of; *kāmān*—material desires; *śanaiḥ*—gradually; *jahau*—gave up.

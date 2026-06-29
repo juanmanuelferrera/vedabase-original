@@ -1,9 +1,9 @@
 ### CC Madhya 15.83
 
-> সেই ভিতে হাত দিয়া ফল পরশিলা ৷
+> সেই ভিতে হাত দিয়া ফল পরশিলা ৷\
 > কৃষ্ণ-যোগ্য নহে, ফল অপবিত্র হৈলা ॥৮৩॥
 
-> sei bhite hāta diyā phala paraśilā
+> sei bhite hāta diyā phala paraśilā\
 > kṛṣṇa-yogya nahe, phala apavitra hailā
 
 *sei bhite*—en ese techo; *hāta diyā*—tocando con tu mano; *phala*—el fruto; *paraśilā*—tocaste; *kṛṣṇa-yogya nahe*—no es apto para ser ofrecido a Kṛṣṇa; *phala*—el fruto; *apavitra hailā*—se ha contaminado.

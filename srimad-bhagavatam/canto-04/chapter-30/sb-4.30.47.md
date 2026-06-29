@@ -1,11 +1,11 @@
 ### SB 4.30.47
 
-> तत्रावशिष्टा ये वृक्षा भीता दुहितरं तदा ।
+> तत्रावशिष्टा ये वृक्षा भीता दुहितरं तदा ।\
 > उज्जह्रुस्ते प्रचेतोभ्य उपदिष्टाः स्वयम्भुवा ॥४७॥
 
-> tatrāvaśiṣṭā ye vṛkṣā
-> bhītā duhitaraṁ tadā
-> ujjahrus te pracetobhya
+> tatrāvaśiṣṭā ye vṛkṣā\
+> bhītā duhitaraṁ tadā\
+> ujjahrus te pracetobhya\
 > upadiṣṭāḥ svayambhuvā
 
 *tatra*—there; *avaśiṣṭāḥ*—remaining; *ye*—which; *vṛkṣāḥ*—trees; *bhītāḥ*—being afraid; *duhitaram*—their daughter; *tadā*—at that time; *ujjahruḥ*—delivered; *te*—they; *pracetobhyaḥ*—unto the Pracetās; *upadiṣṭāḥ*—being advised; *svayambhuvā*—by Lord Brahmā.

@@ -1,11 +1,11 @@
 ### SB 6.16.20
 
-> आत्मानन्दानुभूत्यैव न्यस्तशक्त्यूर्मये नमः
+> आत्मानन्दानुभूत्यैव न्यस्तशक्त्यूर्मये नमः\
 > हृषीकेशाय महते नमस्तेऽनन्तमूर्तये ॥२०॥
 
-> ātmānandānubhūtyaiva
-> nyasta-śakty-ūrmaye namaḥ
-> hṛṣīkeśāya mahate
+> ātmānandānubhūtyaiva\
+> nyasta-śakty-ūrmaye namaḥ\
+> hṛṣīkeśāya mahate\
 > namas te 'nanta-mūrtaye
 
 *ātma-ānanda*—of Your personal bliss; *anubhūtyā*—by perception; *eva*—certainly; *nyasta*—given up; *śakti-ūrmaye*—the waves of material nature; *namaḥ*—respectful obeisances; *hṛṣīkeśāya*—unto the supreme controller of the senses; *mahate*—unto the Supreme; *namaḥ*—respectful obeisances; *te*—unto You; *ananta*—unlimited; *mūrtaye*—whose expansions.

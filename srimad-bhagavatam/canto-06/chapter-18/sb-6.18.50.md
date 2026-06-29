@@ -1,11 +1,11 @@
 ### SB 6.18.50
 
-> नोच्छिष्टास्पृष्टसलिला सन्ध्यायां मुक्तमूर्धजा
+> नोच्छिष्टास्पृष्टसलिला सन्ध्यायां मुक्तमूर्धजा\
 > अनर्चितासंयतवाक्नासंवीता बहिश्चरेत ॥५०॥
 
-> nocchiṣṭāspṛṣṭa-salilā
-> sandhyāyāṁ mukta-mūrdhajā
-> anarcitāsaṁyata-vāk
+> nocchiṣṭāspṛṣṭa-salilā\
+> sandhyāyāṁ mukta-mūrdhajā\
+> anarcitāsaṁyata-vāk\
 > nāsaṁvītā bahiś caret
 
 *na*—not; *ucchiṣṭā*—after eating; *aspṛṣṭa-salilā*—without washing; *sandhyāyām*—in the evening; *mukta-mūrdhajā*—with the hair loose; *anarcitā*—without ornaments; *asaṁyata-vāk*—without being grave; *na*—not; *asaṁvītā*—without being covered; *bahiḥ*—outside; *caret*—should go.

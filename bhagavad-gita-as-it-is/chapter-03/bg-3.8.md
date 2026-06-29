@@ -1,11 +1,11 @@
 ### Bg 3.8
 
-> नियतं कुरु कर्म त्वं कर्म ज्यायो ह्यकर्मणः ।
+> नियतं कुरु कर्म त्वं कर्म ज्यायो ह्यकर्मणः ।\
 > शरीरयात्रापि च ते न प्रसिद्ध्येदकर्मणः ॥८॥
 
-> niyataṁ kuru karma tvaṁ
-> karma jyāyo hy akarmaṇaḥ
-> śarīra-yātrāpi ca te
+> niyataṁ kuru karma tvaṁ\
+> karma jyāyo hy akarmaṇaḥ\
+> śarīra-yātrāpi ca te\
 > na prasiddhyed akarmaṇaḥ
 
 *niyatam*—prescribed; *kuru*—do; *karma*—duties; *tvam*—you; *karma*—work; *jyāyaḥ*—better; *hi*—than; *akarmaṇaḥ*—without work; *śarīra*—bodily; *yātrā*—maintenance; *api*—even; *ca*—also; *te*—your; *na*—never; *prasiddhyet*—effected; *akarmaṇaḥ*—without work.

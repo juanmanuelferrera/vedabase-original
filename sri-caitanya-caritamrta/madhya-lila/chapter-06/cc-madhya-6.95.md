@@ -1,9 +1,9 @@
 ### CC Madhya 6.95
 
-> অতএব ‘ত্রিযুগ’ করি’ কহি বিষ্ণুনাম ।
+> অতএব ‘ত্রিযুগ’ করি’ কহি বিষ্ণুনাম ।\
 > কলিযুগে অবতার নাহি, — শাস্ত্রজ্ঞান ॥৯৫॥
 
-> ataeva 'tri-yuga' kari' kahi viṣṇu-nāma
+> ataeva 'tri-yuga' kari' kahi viṣṇu-nāma\
 > kali-yuge avatāra nāhī,—śāstra-jñāna
 
 *ataeva*—therefore; *tri-yuga*—the Lord, who appears in three *yugas* only; *kari'*—making; *kahi*—we say; *viṣṇu-nāma*—the holy name of Lord Viṣṇu; *kali-yuge*—in the Age of Kali; *avatāra*—incarnation; *nāhi*—there is not; *śāstra-jñāna*—the verdict of the scriptures.

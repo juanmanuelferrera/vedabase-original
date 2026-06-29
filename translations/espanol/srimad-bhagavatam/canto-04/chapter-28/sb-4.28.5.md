@@ -1,11 +1,11 @@
 ### SB 4.28.5
 
-> तस्यां प्रपीड्यमानायामभिमानी पुरञ्जनः ।
+> तस्यां प्रपीड्यमानायामभिमानी पुरञ्जनः ।\
 > अवापोरुविधांस्तापान्कुटुम्बी ममताकुलः ॥५॥
 
-> tasyāṁ prapīḍyamānāyām
-> abhimānī purañjanaḥ
-> avāporu-vidhāṁs tāpān
+> tasyāṁ prapīḍyamānāyām\
+> abhimānī purañjanaḥ\
+> avāporu-vidhāṁs tāpān\
 > kuṭumbī mamatākulaḥ
 
 *tasyām*—cuando la ciudad; *prapīḍyamānāyām*—fue puesta en muchas dificultades; *abhimānī*—demasiado absorto; *purañjanaḥ*—el rey Purañjana; *avāpa*—obtuvo; *uru*—muchas; *vidhān*—clases; *tāpān*—dolores; *kuṭumbī*—hombre de familia; *mamatā-ākulaḥ*—demasiado absorto en el apego a la familia.

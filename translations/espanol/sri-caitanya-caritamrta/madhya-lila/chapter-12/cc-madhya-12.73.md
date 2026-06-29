@@ -1,9 +1,9 @@
 ### CC Madhya 12.73
 
-> তিনজন-পাশে প্রভু হাসিয়া কহিল ।
+> তিনজন-পাশে প্রভু হাসিয়া কহিল ।\
 > গুণ্ডিচা-মন্দির-মার্জন-সেবা মাগি’ নিল ॥৭৩॥
 
-> tina-jana-pāśe prabhu hāsiyā kahila
+> tina-jana-pāśe prabhu hāsiyā kahila\
 > guṇḍicā-mandira-mārjana-sevā māgi' nila
 
 *tina-jana-pāśe*—en presencia de las tres personas; *prabhu*—el Señor; *hāsiyā*—sonriendo; *kahila*—dijo; *guṇḍicā-mandira-mārjana*—de lavar el templo conocido como Guṇḍicā; *sevā*—servicio; *māgi' nila*—obtuvo solicitándolo.

@@ -1,11 +1,11 @@
 ### SB 8.24.38
 
-> मदीयं महिमानं च परं ब्रह्मेति शब्दितम
+> मदीयं महिमानं च परं ब्रह्मेति शब्दितम\
 > वेत्स्यस्यनुगृहीतं मे सम्प्रश्नैर्विवृतं हृदि ॥३८॥
 
-> madīyaṁ mahimānaṁ ca
-> paraṁ brahmeti śabditam
-> vetsyasy anugṛhītaṁ me
+> madīyaṁ mahimānaṁ ca\
+> paraṁ brahmeti śabditam\
+> vetsyasy anugṛhītaṁ me\
 > sampraśnair vivṛtaṁ hṛdi
 
 *madīyam*—relativas a Mí; *mahimānam*—las glorias; *ca*—y; *param brahma*—el Brahman Supremo, la Verdad Absoluta; *iti*—así; *śabditam*—conocidas; *vetsyasi*—entenderás; *anugṛhītam*—favorecido; *me*—por Mí; *sampraśnaiḥ*—con preguntas; *vivṛtam*—explicadas con todo detalle; *hṛdi*—dentro del corazón.

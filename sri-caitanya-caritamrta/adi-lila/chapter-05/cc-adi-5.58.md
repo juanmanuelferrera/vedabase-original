@@ -1,9 +1,9 @@
 ### CC Adi 5.58
 
-> সেই ত’ মায়ার দুইবিধ অবস্থিতি ।
+> সেই ত’ মায়ার দুইবিধ অবস্থিতি ।\
 > জগতের উপাদান ‘প্রধান’, প্রকৃতি ॥৫৮॥
 
-> sei ta' māyāra dui-vidha avasthiti
+> sei ta' māyāra dui-vidha avasthiti\
 > jagatera upādāna 'pradhāna', prakṛti
 
 *sei*—that; *ta'*—certainly; *māyāra*—of the material energy; *dui-vidha*—two varieties; *avasthiti*—existence; *jagatera*—of the material world; *upādāna*—the ingredients; *pradhāna*—named *pradhāna*; *prakṛti*—material nature.

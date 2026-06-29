@@ -1,11 +1,11 @@
 ### SB 6.7.40
 
-> यया गुप्तः सहस्राक्षो जिग्येऽसुरचमूर्विभुः
+> यया गुप्तः सहस्राक्षो जिग्येऽसुरचमूर्विभुः\
 > तां प्राह स महेन्द्राय विश्वरूप उदारधीः ॥४०॥
 
-> yayā guptaḥ sahasrākṣo
-> jigye 'sura-camūr vibhuḥ
-> tāṁ prāha sa mahendrāya
+> yayā guptaḥ sahasrākṣo\
+> jigye 'sura-camūr vibhuḥ\
+> tāṁ prāha sa mahendrāya\
 > viśvarūpa udāra-dhīḥ
 
 *yayā*—by which; *guptaḥ*—protected; *sahasra-akṣaḥ*—the thousand-eyed demigod, Indra; *jigye*—conquered; *asura*—of the demons; *camūḥ*—military power; *vibhuḥ*—becoming very powerful; *tām*—that; *prāha*—spoke; *saḥ*—he; *mahendrāya*—unto the King of heaven, Mahendra; *viśvarūpaḥ*—Viśvarūpa; *udāra-dhīḥ*—very broad-minded.

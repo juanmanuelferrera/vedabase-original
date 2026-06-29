@@ -138,12 +138,34 @@ def derive_target(ref):
 
 def field(v): return (v or '').strip()
 
+def hardbreak_block(block):
+    """Add a CommonMark hard break (\\) to each blockquote line except the last in
+    the block, so consecutive `>` lines render line-by-line instead of joining."""
+    lines = block.split('\n')
+    if len(lines) <= 1: return block
+    return '\n'.join(
+        l + '\\' if (i < len(lines)-1 and l.lstrip().startswith('>') and not l.rstrip().endswith('\\'))
+        else l
+        for i, l in enumerate(lines))
+
+def hardbreak_field(field_text):
+    """Apply hardbreak_block to each blank-line-separated group in a śloka field,
+    preserving the gaps the scans use between verse groups (e.g. combined verses)."""
+    if not field_text: return field_text
+    return '\n\n'.join(hardbreak_block(b) for b in field_text.split('\n\n'))
+
 def render_row(row, heading, mode):
     """Render one row to Markdown: heading, then Devanāgarī/Bengali śloka, IAST
-    transliteration, synonyms, translation, purport (each verbatim, empty ones skipped)."""
+    transliteration, synonyms, translation, purport. The śloka blockquotes keep the
+    scans' line layout via hard line breaks; other fields are verbatim; empties skipped."""
     parts = [heading] if heading else []
-    order = ('devanagari', 'verse_text', 'synonyms', 'translation', 'purport')
-    body = [field(row.get(k)) for k in order]
+    body = [
+        hardbreak_field(field(row.get('devanagari'))),
+        hardbreak_field(field(row.get('verse_text'))),
+        field(row.get('synonyms')),
+        field(row.get('translation')),
+        field(row.get('purport')),
+    ]
     body = [b for b in body if b]
     return ('\n\n'.join(parts + body)).rstrip() + '\n'
 

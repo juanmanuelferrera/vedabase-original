@@ -1,9 +1,9 @@
 ### CC Adi 10.140
 
-> গুরুর সম্বন্ধে মান্য কৈল দুঁহাকারে ।
+> গুরুর সম্বন্ধে মান্য কৈল দুঁহাকারে ।\
 > তাঁর আজ্ঞা মানি’ সেবা দিলেন দোঁহারে ॥১৪০॥
 
-> gurura sambandhe mānya kaila duṅhākāre
+> gurura sambandhe mānya kaila duṅhākāre\
 > tāṅra ājñā māni' sevā dilena doṅhāre
 
 *gurura sambandhe*—in relationship with His spiritual master; *mānya*—honor; *kaila*—offered; *duṅhākāre*—to both of them; *tāṅra ājñā*—his order; *māni'*—accepting; *sevā*—service; *dilena*—gave them; *doṅhāre*—the two of them.

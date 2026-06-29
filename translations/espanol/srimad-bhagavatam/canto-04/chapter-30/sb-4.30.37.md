@@ -1,11 +1,11 @@
 ### SB 4.30.37
 
-> तेषां विचरतां पद्भ्यां तीर्थानां पावनेच्छया ।
+> तेषां विचरतां पद्भ्यां तीर्थानां पावनेच्छया ।\
 > भीतस्य किं न रोचेत तावकानां समागमः ॥३७॥
 
-> teṣāṁ vicaratāṁ padbhyāṁ
-> tīrthānāṁ pāvanecchayā
-> bhītasya kiṁ na roceta
+> teṣāṁ vicaratāṁ padbhyāṁ\
+> tīrthānāṁ pāvanecchayā\
+> bhītasya kiṁ na roceta\
 > tāvakānāṁ samāgamaḥ
 
 *teṣām*—de ellos; *vicaratām*—que viajan; *padbhyām*—con sus pies; *tīrthānām*—a los lugares sagrados; *pāvana-icchayā*—con deseo de purificar; *bhītasya*—a la persona materialista que siempre está llena de temor; *kim*—por qué; *na*—no; *roceta*—complace; *tāvakānām*—de Tus devotos; *samāgamaḥ*—encontrar.

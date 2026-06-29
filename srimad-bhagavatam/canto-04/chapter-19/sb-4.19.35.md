@@ -1,11 +1,11 @@
 ### SB 4.19.35
 
-> क्रतुर्विरमतामेष देवेषु दुरवग्रहः ।
+> क्रतुर्विरमतामेष देवेषु दुरवग्रहः ।\
 > धर्मव्यतिकरो यत्र पाखण्डैरिन्द्रनिर्मितैः ॥३५॥
 
-> kratur viramatām eṣa
-> deveṣu duravagrahaḥ
-> dharma-vyatikaro yatra
+> kratur viramatām eṣa\
+> deveṣu duravagrahaḥ\
+> dharma-vyatikaro yatra\
 > pākhaṇḍair indra-nirmitaiḥ
 
 *kratuḥ*—the sacrifice; *viramatām*—let it stop; *eṣaḥ*—this; *deveṣu*—amongst the demigods; *duravagrahaḥ*—addiction to unwanted things; *dharma-vyatikaraḥ*—violation of religious principles; *yatra*—where; *pākhaṇḍaiḥ*—by sinful activities; *indra*—by the King of heaven; *nirmitaiḥ*—manufactured.

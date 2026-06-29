@@ -1,9 +1,9 @@
 ### CC Antya 6.63
 
-> উদ্ধারণ দত্ত আদি যত নিজগণ ।
+> উদ্ধারণ দত্ত আদি যত নিজগণ ।\
 > উপরে বসিলা সব, কে করে গণন ? ॥ ৬৩ ॥
 
-> uddhāraṇa datta ādi yata nija-gaṇa
+> uddhāraṇa datta ādi yata nija-gaṇa\
 > upare vasilā saba, ke kare gaṇana?
 
 *uddhāraṇa datta*—Uddhāraṇa Datta; *ādi*—y otras personas similares; *yata nija gaṇa*—todos los asociados personales; *upare*—arriba; *vasilā*—se sentaron; *saba*—todos; *ke*—quién; *kare gaṇana*—puede contar.

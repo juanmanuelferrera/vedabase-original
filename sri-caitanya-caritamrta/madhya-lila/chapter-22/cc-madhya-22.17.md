@@ -1,9 +1,9 @@
 ### CC Madhya 22.17
 
-> কৃষ্ণভক্তি হয় অভিধেয়-প্রধান ।
+> কৃষ্ণভক্তি হয় অভিধেয়-প্রধান ।\
 > ভক্তিমুখ-নিরীক্ষক কর্ম-যোগ-জ্ঞান ॥১৭॥
 
-> kṛṣṇa-bhakti haya abhidheya-pradhāna
+> kṛṣṇa-bhakti haya abhidheya-pradhāna\
 > bhakti-mukha-nirīkṣaka karma-yoga-jñāna
 
 *kṛṣṇa-bhakti*—devotional service to Lord Kṛṣṇa; *haya*—is; *abhidheya-pradhāna*—the chief function of the living entity; *bhakti-mukha*—of the face of devotional service; *nirīkṣaka*—observers; *karma-yoga-jñāna*—fruitive activities, mystic yoga and speculative knowledge.

@@ -1,11 +1,11 @@
 ### SB 9.14.26
 
-> अपश्यन्नुर्वशीमिन्द्रो गन्धर्वान्समचोदयत
+> अपश्यन्नुर्वशीमिन्द्रो गन्धर्वान्समचोदयत\
 > उर्वशीरहितं मह्यमास्थानं नातिशोभते ॥२६॥
 
-> apaśyann urvaśīm indro
-> gandharvān samacodayat
-> urvaśī-rahitaṁ mahyam
+> apaśyann urvaśīm indro\
+> gandharvān samacodayat\
+> urvaśī-rahitaṁ mahyam\
 > āsthānaṁ nātiśobhate
 
 *apaśyan*—sin ver; *urvaśīm*—a Urvaśī; *indraḥ*—el rey del planeta celestial; *gandharvān*—a los *gandharvas*; *samacodayat*—instruyó; *urvaśī-rahitam*—sin Urvaśī; *mahyam*—mía; *āsthānam*—morada; *na*—no; *atiśobhate*—parece hermosa.

@@ -1,13 +1,13 @@
 ### CC Madhya 8.149
 
-> অপরিকলিতপূর্বঃ কশ্চমৎকারকারী
-> স্ফুরতি মম গরীয়ানেষ মাধুর্যপূরঃ ৷
-> অয়মহমপি হন্ত প্রেক্ষ্য যং লুব্ধচেতাঃ
+> অপরিকলিতপূর্বঃ কশ্চমৎকারকারী\
+> স্ফুরতি মম গরীয়ানেষ মাধুর্যপূরঃ ৷\
+> অয়মহমপি হন্ত প্রেক্ষ্য যং লুব্ধচেতাঃ\
 > সরভসমুপভোক্তুং কাময়ে রাধিকেব ৷৷ ১৪৯ ৷৷ ॥১৪৯॥
 
-> aparikalita-pūrvaḥ kaś camatkāra-kārī
-> sphurati mama garīyān eṣa mādhurya-pūraḥ
-> ayam aham api hanta prekṣya yaṁ lubdha-cetāḥ
+> aparikalita-pūrvaḥ kaś camatkāra-kārī\
+> sphurati mama garīyān eṣa mādhurya-pūraḥ\
+> ayam aham api hanta prekṣya yaṁ lubdha-cetāḥ\
 > sa-rabhasam upabhoktuṁ kāmaye rādhikeva
 
 *aparikalita-pūrvaḥ*—no experimentado anteriormente; *kaḥ*—quién; *camatkāra-kārī*—que causa asombro; *sphurati*—se manifiesta; *mama*—Mía; *garīyān*—más grande; *eṣaḥ*—esta; *mādhurya-pūraḥ*—abundancia de dulzura; *ayam*—este; *aham*—Yo; *api*—incluso; *hanta*—¡ay!; *prekṣya*—contemplando; *yam*—lo cual; *lubdha-cetāḥ*—con Mi mente fascinada; *sa-rabhasam*—impetuosamente; *upabhoktum*—disfrutar; *kāmaye*—deseo; *rādhikā iva*—como Śrīmatī Rādhārāṇī.

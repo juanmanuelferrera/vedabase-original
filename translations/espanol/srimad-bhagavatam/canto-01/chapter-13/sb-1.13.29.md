@@ -1,11 +1,11 @@
 ### SB 1.13.29
 
-> एवं राजा विदुरेणानुजेन प्रज्ञाचक्षुर्बोधित आजमीढः ।
+> एवं राजा विदुरेणानुजेन प्रज्ञाचक्षुर्बोधित आजमीढः ।\
 > छित्त्वा स्वेषु स्नेहपाशान्द्रढिम्नो निश्चक्राम भ्रातृसन्दर्शिताध्वा ॥२९॥
 
-> evaṁ rājā vidureṇānujena
-> prajñā-cakṣur bodhita ājamīḍhaḥ
-> chittvā sveṣu sneha-pāśān draḍhimno
+> evaṁ rājā vidureṇānujena\
+> prajñā-cakṣur bodhita ājamīḍhaḥ\
+> chittvā sveṣu sneha-pāśān draḍhimno\
 > niścakrāma bhrātṛ-sandarśitādhvā
 
 *evam*—así pues; *rājā*—el rey Dhṛtarāṣṭra; *vidureṇa anujena*—por Vidura, su hermano menor; *prajñā*—conocimiento introspectivo; *cakṣuḥ*—ojos; *bodhitaḥ*—siendo entendido; *ājamīḍhaḥ*—Dhṛtarāṣṭra, vástago de la familia de Ajamīḍha; *chittvā*—rompiendo; *sveṣu*—en relación con los parientes; *sneha-pāśān*—la fuerte red del afecto; *draḍhimnaḥ*—por la tenacidad; *niścakrāma*—salió; *bhrātṛ*—por su hermano; *sandarśita*—en dirección a; *adhvā*—la senda de la liberación.

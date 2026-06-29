@@ -1,11 +1,11 @@
 ### SB 8.14.5
 
-> ततो धर्मं चतुष्पादं मनवो हरिणोदिताः
+> ततो धर्मं चतुष्पादं मनवो हरिणोदिताः\
 > युक्ताः सञ्चारयन्त्यद्धा स्वे स्वे काले महीं नृप ॥५॥
 
-> tato dharmaṁ catuṣpādaṁ
-> manavo hariṇoditāḥ
-> yuktāḥ sañcārayanty addhā
+> tato dharmaṁ catuṣpādaṁ\
+> manavo hariṇoditāḥ\
+> yuktāḥ sañcārayanty addhā\
 > sve sve kāle mahīṁ nṛpa
 
 *tataḥ*—thereafter (at the end of Kali-yuga); *dharmam*—the religious principle; *catuḥ-pādam*—in four parts; *manavaḥ*—all the Manus; *hariṇā*—by the Supreme Personality of Godhead; *uditāḥ*—being instructed; *yuktāḥ*—being engaged; *sañcārayanti*—reestablish; *addhā*—directly; *sve sve*—in their own; *kāle*—time; *mahīm*—within this world; *nṛpa*—O King.

@@ -1,18 +1,18 @@
 ### SB 6.3.20-21
 
-> स्वयम्भूर्नारदः शम्भुः कुमारः कपिलो मनुः
-> प्रह्लादो जनको भीष्मो बलिर्वैयासकिर्वयम ॥२०॥
-> द्वादशैते विजानीमो धर्मं भागवतं भटाः
+> स्वयम्भूर्नारदः शम्भुः कुमारः कपिलो मनुः\
+> प्रह्लादो जनको भीष्मो बलिर्वैयासकिर्वयम ॥२०॥\
+> द्वादशैते विजानीमो धर्मं भागवतं भटाः\
 > गुह्यं विशुद्धं दुर्बोधं यं ज्ञआत्वामृतमश्नुते ॥२१॥
 
-> svayambhūr nāradaḥ śambhuḥ
-> kumāraḥ kapilo manuḥ
-> prahlādo janako bhīṣmo
+> svayambhūr nāradaḥ śambhuḥ\
+> kumāraḥ kapilo manuḥ\
+> prahlādo janako bhīṣmo\
 > balir vaiyāsakir vayam
 
-> dvādaśaite vijānīmo
-> dharmaṁ bhāgavataṁ bhaṭāḥ
-> guhyaṁ viśuddhaṁ durbodhaṁ
+> dvādaśaite vijānīmo\
+> dharmaṁ bhāgavataṁ bhaṭāḥ\
+> guhyaṁ viśuddhaṁ durbodhaṁ\
 > yaṁ jñātvāmṛtam aśnute
 
 *svayambhūḥ*—el Señor Brahmā; *nāradaḥ*—el gran santo Nārada; *śambhuḥ*—el Señor Śiva; *kumāraḥ*—los cuatro Kumāras; *kapilaḥ*—el Señor Kapila; *manuḥ*—Svāyambhuva Manu; *prahlādaḥ*—Prahlāda Mahārāja; *janakaḥ*—Janaka Mahārāja; *bhīṣmaḥ*—el abuelo Bhīṣma; *baliḥ*—Bali Mahārāja; *vaiyāsakiḥ*—Śukadeva, el hijo de Vyāsadeva; *vayam*—nosotros; *dvādaśa*—doce; *ete*—estos; *vijānīmaḥ*—conocemos; *dharmam*—principios religiosos verdaderos; *bhāgavatam*—que enseñan a la persona cómo amar a la Suprema Personalidad de Dios; *bhaṭāḥ*—¡oh, mis queridos sirvientes!; *guhyam*—muy confidencial; *viśuddham*—trascendental, no contaminado por las modalidades materiales de la naturaleza; *durbodham*—que no es fácil de comprender; *yam*—el cual; *jñātvā*—comprendiendo; *amṛtam*—vida eterna; *aśnute*—disfruta.

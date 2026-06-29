@@ -1,11 +1,11 @@
 ### CC Adi 14.5
 
-> বন্দে চৈতন্যকৃষ্ণস্য বাল্যলীলাং মনোহরাম্ ।
+> বন্দে চৈতন্যকৃষ্ণস্য বাল্যলীলাং মনোহরাম্ ।\
 > লৌকিকীমপি তামীশ-চেষ্টয়া বলিতান্তরাম্ ॥৫॥
 
-> vande caitanya-kṛṣṇasya
-> bālya-līlāṁ mano-harām
-> laukikīm api tām īśa-
+> vande caitanya-kṛṣṇasya\
+> bālya-līlāṁ mano-harām\
+> laukikīm api tām īśa-\
 > ceṣṭayā valitāntarām
 
 *vande*—I worship; *caitanya-kṛṣṇasya*—of Lord Caitanya, who is Kṛṣṇa Himself; *bālya-līlā*—pastimes of childhood; *manaḥ-harām*—which are so beautiful; *laukikīm*—appearing ordinary; *api*—although; *tām*—those; *īśa-ceṣṭayā*—by manifestation of supreme authority; *valita-antarām*—quite fit although appearing differently.

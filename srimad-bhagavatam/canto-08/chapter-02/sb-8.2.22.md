@@ -1,11 +1,11 @@
 ### SB 8.2.22
 
-> वृका वराहा महिषर्क्षशल्या गोपुच्छशालावृकमर्कटाश्च
+> वृका वराहा महिषर्क्षशल्या गोपुच्छशालावृकमर्कटाश्च\
 > अन्यत्र क्षुद्रा हरिणाः शशादयश्चरन्त्यभीता यदनुग्रहेण ॥२२॥
 
-> vṛkā varāhā mahiṣarkṣa-śalyā
-> gopuccha-śālāvṛka-markaṭāś ca
-> anyatra kṣudrā hariṇāḥ śaśādayaś
+> vṛkā varāhā mahiṣarkṣa-śalyā\
+> gopuccha-śālāvṛka-markaṭāś ca\
+> anyatra kṣudrā hariṇāḥ śaśādayaś\
 > caranty abhītā yad-anugraheṇa
 
 *vṛkāḥ*—foxes; *varāhāḥ*—boars; *mahiṣa*—buffalos; *ṛkṣa*—bears; *śalyāḥ*—porcupines; *gopuccha*—a type of deer; *śālāvṛka*—wolves; *markaṭāḥ*—monkeys; *ca*—and; *anyatra*—elsewhere; *kṣudrāḥ*—small animals; *hariṇāḥ*—deer; *śaśa-ādayaḥ*—rabbits and others; *caranti*—roaming (in the forest); *abhītāḥ*—without fear; *yat-anugraheṇa*—by the mercy of that elephant.

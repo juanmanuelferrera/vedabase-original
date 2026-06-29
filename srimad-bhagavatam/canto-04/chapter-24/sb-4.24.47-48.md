@@ -1,18 +1,18 @@
 ### SB 4.24.47-48
 
-> प्रीतिप्रहसितापाङ्गमलकै रूपशोभितम् ।
-> लसत्पङ्कजकिञ्जल्क दुकूलं मृष्टकुण्डलम् ॥४७॥
-> स्फुरत्किरीटवलय हारनूपुरमेखलम् ।
+> प्रीतिप्रहसितापाङ्गमलकै रूपशोभितम् ।\
+> लसत्पङ्कजकिञ्जल्क दुकूलं मृष्टकुण्डलम् ॥४७॥\
+> स्फुरत्किरीटवलय हारनूपुरमेखलम् ।\
 > शङ्खचक्रगदापद्म मालामण्युत्तमर्द्धिमत् ॥४८॥
 
-> prīti-prahasitāpāṅgam
-> alakai rūpa-śobhitam
-> lasat-paṅkaja-kiñjalka-
+> prīti-prahasitāpāṅgam\
+> alakai rūpa-śobhitam\
+> lasat-paṅkaja-kiñjalka-\
 > dukūlaṁ mṛṣṭa-kuṇḍalam
 
-> sphurat-kirīṭa-valaya-
-> hāra-nūpura-mekhalam
-> śaṅkha-cakra-gadā-padma-
+> sphurat-kirīṭa-valaya-\
+> hāra-nūpura-mekhalam\
+> śaṅkha-cakra-gadā-padma-\
 > mālā-maṇy-uttamarddhimat
 
 *prīti*—merciful; *prahasita*—smiling; *apāṅgam*—sidelong glance; *alakaiḥ*—with curling hair; *rūpa*—beauty; *śobhitam*—increased; *lasat*—glittering; *paṅkaja*—of the lotus; *kiñjalka*—saffron; *dukūlam*—clothing; *mṛṣṭa*—glittering; *kuṇḍalam*—earrings; *sphurat*—shiny; *kirīṭa*—helmet; *valaya*—bangles; *hāra*—necklace; *nūpura*—ankle bells; *mekhalam*—belt; *śaṅkha*—conchshell; *cakra*—wheel; *gadā*—club; *padma*—lotus flower; *mālā*—garland; *maṇi*—pearls; *uttama*—first class; *ṛddhi-mat*—still more beautified on account of this.

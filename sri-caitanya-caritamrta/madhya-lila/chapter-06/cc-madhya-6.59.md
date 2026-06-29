@@ -1,9 +1,9 @@
 ### CC Madhya 6.59
 
-> আমি বালক-সন্ন্যাসী — ভাল-মন্দ নাহি জানি ।
+> আমি বালক-সন্ন্যাসী — ভাল-মন্দ নাহি জানি ।\
 > তোমার আশ্রয় নিলুঁ, গুরু করি’ মানি ॥৫৯॥
 
-> āmi bālaka-sannyāsī—bhānda-manda nāhi jāni
+> āmi bālaka-sannyāsī—bhānda-manda nāhi jāni\
 > tomāra āśraya niluṅ, guru kari' māni
 
 *āmi*—I; *bālaka-sannyāsī*—a young *sannyāsī*; *bhānda-manda*—good and bad; *nāhi*—not; *jāni*—know; *tomāra*—your; *āśraya*—shelter; *niluṅ*—have taken; *guru*—spiritual master; *kari'*—taking as; *māni*—I accept.

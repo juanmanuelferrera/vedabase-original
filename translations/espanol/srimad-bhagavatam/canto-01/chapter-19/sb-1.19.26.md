@@ -1,11 +1,11 @@
 ### SB 1.19.26
 
-> तं द्व्यष्टवर्षं सुकुमारपाद करोरुबाह्वंसकपोलगात्रम् ।
+> तं द्व्यष्टवर्षं सुकुमारपाद करोरुबाह्वंसकपोलगात्रम् ।\
 > चार्वायताक्षोन्नसतुल्यकर्ण सुभ्र्वाननं कम्बुसुजातकण्ठम् ॥२६॥
 
-> taṁ dvyaṣṭa-varṣaṁ su-kumāra-pāda-
-> karoru-bāhv-aṁsa-kapola-gātram
-> cārv-āyatākṣonnasa-tulya-karṇa-
+> taṁ dvyaṣṭa-varṣaṁ su-kumāra-pāda-\
+> karoru-bāhv-aṁsa-kapola-gātram\
+> cārv-āyatākṣonnasa-tulya-karṇa-\
 > subhrv-ānanaṁ kambu-sujāta-kaṇṭham
 
 *tam*—a él; *dvi-aṣṭa*—dieciséis; *varṣam*—años; *su-kumāra*—delicado; *pāda*—piernas; *kara*—manos; *ūru*—muslos; *bāhu*—brazos; *aṁsa*—hombros; *kapola*—frente; *gātram*—cuerpo; *cāru*—hermoso; *āyata*—amplio; *akṣa*—ojos; *unnasa*—nariz alta; *tulya*—similar; *karṇa*—orejas; *subhru*—bellas cejas; *ānanam*—cara; *kambu*—caracola; *sujāta*—bien formado; *kaṇṭham*—cuello.

@@ -1,11 +1,11 @@
 ### CC Adi 3.81
 
-> অন্তঃকৃষ্ণং বহির্গৌরং দর্শিতাঙ্গাদিবৈভবম্ ।
+> অন্তঃকৃষ্ণং বহির্গৌরং দর্শিতাঙ্গাদিবৈভবম্ ।\
 > কলৌ সংকীর্তনাদ্যৈঃ স্ম কৃষ্ণচৈতন্যমাশ্রিতাঃ ॥৮১॥
 
-> antaḥ kṛṣṇaṁ bahir gauraṁ
-> darśitāṅgādi-vaibhavam
-> kalau saṅkīrtanādyaiḥ sma
+> antaḥ kṛṣṇaṁ bahir gauraṁ\
+> darśitāṅgādi-vaibhavam\
+> kalau saṅkīrtanādyaiḥ sma\
 > kṛṣṇa-caitanyam āśritāḥ
 
 *antaḥ*—internamente; *kṛṣṇam*—el Señor Kṛṣṇa; *bahiḥ*—externamente; *gauram*—de tez clara; *darśita*—exhibidas; *aṅga*—miembros; *ādi*—empezando por; *vaibhavam*—expansiones; *kalau*—en la era de Kali; *saṅkīrtana-ādyaiḥ*—mediante el canto congregacional, etc.; *sma*—ciertamente; *kṛṣṇa-caitanyam*—al Señor Caitanya Mahāprabhu; *āśritāḥ*—refugiados.

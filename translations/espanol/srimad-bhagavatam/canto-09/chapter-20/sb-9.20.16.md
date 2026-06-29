@@ -1,11 +1,11 @@
 ### SB 9.20.16
 
-> ओमित्युक्ते यथाधर्ममुपयेमे शकुन्तलाम
+> ओमित्युक्ते यथाधर्ममुपयेमे शकुन्तलाम\
 > गान्धर्वविधिना राजा देशकालविधानवित ॥१६॥
 
-> om ity ukte yathā-dharmam
-> upayeme śakuntalām
-> gāndharva-vidhinā rājā
+> om ity ukte yathā-dharmam\
+> upayeme śakuntalām\
+> gāndharva-vidhinā rājā\
 > deśa-kāla-vidhānavit
 
 *om iti ukte*—pronunciando el *praṇava* védico, invocando a la Suprema Personalidad de Dios como testigo del matrimonio; *yathā-dharmam*—en estricta conformidad con los principios de la religión (porque Nārāyaṇa también es testigo en los matrimonios religiosos comunes); *upayeme*—se casó; *śakuntalām*—con aquella muchacha, Śakuntalā; *gāndharva-vidhinā*—mediante el principio regulativo de los *gandharvas*, sin apartarse de los principios religiosos; *rājā*—Mahārāja Duṣmanta; *deśa-kāla-vidhāna-vit*—con plena consciencia de sus deberes en función del momento, la posición y el objetivo.

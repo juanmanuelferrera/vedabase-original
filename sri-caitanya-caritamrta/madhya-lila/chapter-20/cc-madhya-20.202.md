@@ -1,9 +1,9 @@
 ### CC Madhya 20.202
 
-> দ্বাদশ-তিলক-মন্ত্র এই দ্বাদশ নাম ।
+> দ্বাদশ-তিলক-মন্ত্র এই দ্বাদশ নাম ।\
 > আচমনে এই নামে স্পর্শি তত্তৎস্থান ॥২০২॥
 
-> dvādaśa-tilaka-mantra ei dvādaśa nāma
+> dvādaśa-tilaka-mantra ei dvādaśa nāma\
 > ācamane ei nāme sparśi tat-tat-sthāna
 
 *dvādaśa-tilaka*—for twelve marks of tilaka; *mantra*—the mantra; *ei*—these; *dvādaśa nāma*—twelve names; *ācamane*—in washing with water; *ei nāme*—with these names; *sparśi*—we touch; *tat-tat-sthāna*—the respective places.

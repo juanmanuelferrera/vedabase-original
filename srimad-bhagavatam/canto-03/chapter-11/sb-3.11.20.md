@@ -1,11 +1,11 @@
 ### SB 3.11.20
 
-> सन्ध्यासन्ध्यांशयोरन्तर्यः कालः शतसङ्ख्ययोः ।
+> सन्ध्यासन्ध्यांशयोरन्तर्यः कालः शतसङ्ख्ययोः ।\
 > तमेवाहुर्युगं तज्ज्ञा यत्र धर्मो विधीयते ॥२०॥
 
-> sandhyā-sandhyāṁśayor antar
-> yaḥ kālaḥ śata-saṅkhyayoḥ
-> tam evāhur yugaṁ taj-jñā
+> sandhyā-sandhyāṁśayor antar\
+> yaḥ kālaḥ śata-saṅkhyayoḥ\
+> tam evāhur yugaṁ taj-jñā\
 > yatra dharmo vidhīyate
 
 *sandhyā*—transitional period before; *sandhyā-aṁśayoḥ*—and transitional period after; *antaḥ*—within; *yaḥ*—that which; *kālaḥ*—duration of time; *śata-saṅkhyayoḥ*—hundreds of years; *tam eva*—that period; *āhuḥ*—they call; *yugam*—millennium; *tat-jñāḥ*—the expert astronomers; *yatra*—wherein; *dharmaḥ*—religion; *vidhīyate*—is performed.

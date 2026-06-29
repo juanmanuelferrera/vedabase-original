@@ -1,11 +1,11 @@
 ### Bg 5.12
 
-> युक्तः कर्मफलं त्यक्त्वा शान्तिमाप्नोति नैष्ठिकीम् ।
+> युक्तः कर्मफलं त्यक्त्वा शान्तिमाप्नोति नैष्ठिकीम् ।\
 > अयुक्तः कामकारेण फले सक्तो निबध्यते ॥१२॥
 
-> yuktaḥ karma-phalaṁ tyaktvā
-> śāntim āpnoti naiṣṭhikīm
-> ayuktaḥ kāma-kāreṇa
+> yuktaḥ karma-phalaṁ tyaktvā\
+> śāntim āpnoti naiṣṭhikīm\
+> ayuktaḥ kāma-kāreṇa\
 > phale sakto nibadhyate
 
 *yuktaḥ*—one who is engaged in devotional service; *karma-phalam*—the results of all activities; *tyaktvā*—giving up; *śāntim*—perfect peace; *āpnoti*—achieves; *naiṣṭhikīm*—unflinching; *ayuktaḥ*—one who is not in Kṛṣṇa consciousness; *kāma-kāreṇa*—for enjoying the result of work; *phale*—in the result; *saktaḥ*—attached; *nibadhyate*—becomes entangled.

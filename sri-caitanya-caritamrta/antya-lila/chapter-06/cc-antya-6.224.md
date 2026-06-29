@@ -1,9 +1,9 @@
 ### CC Antya 6.224
 
-> বৈরাগী হঞা যেবা করে পরাপেক্ষা ।
+> বৈরাগী হঞা যেবা করে পরাপেক্ষা ।\
 > কার্যসিদ্ধি নহে, কৃষ্ণ করেন উপেক্ষা ॥২২৪॥
 
-> vairāgī hañā yebā kare parāpeksā
+> vairāgī hañā yebā kare parāpeksā\
 > kārya-siddhi nahe, kṛṣṇa karena upekṣā
 
 *vairāgī hañā*—being in the renounced order; *yebā*—anyone who; *kare*—does; *parāpekṣā*—dependence on others; *kārya-siddhi nahe*—he does not become successful; *kṛṣṇa*—Lord Kṛṣṇa; *karena upekṣā*—neglects.

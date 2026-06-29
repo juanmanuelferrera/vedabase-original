@@ -1,11 +1,11 @@
 ### SB 6.6.12
 
-> द्रोणस्याभिमतेः पत्न्या हर्षशोकभयादयः
+> द्रोणस्याभिमतेः पत्न्या हर्षशोकभयादयः\
 > प्राणस्योर्जस्वती भार्या सह आयुः पुरोजवः ॥१२॥
 
-> prāṇasyorjasvatī bhāryā
-> saha āyuḥ purojavaḥ
-> dhruvasya bhāryā dharaṇir
+> prāṇasyorjasvatī bhāryā\
+> saha āyuḥ purojavaḥ\
+> dhruvasya bhāryā dharaṇir\
 > asūta vividhāḥ puraḥ
 
 *prāṇasya*—de Prāṇa; *ūrjasvatī*—Ūrjasvatī; *bhāryā*—la esposa; *sahaḥ*—Saha; *āyuḥ*—Āyus; *purojavaḥ*—Purojava; *dhruvasya*—de Dhruva; *bhāryā*—la esposa; *dharaṇiḥ*—Dharaṇi; *asūta*—dio a luz a; *vividhāḥ*—las diversas; *puraḥ*—ciudades y pueblos.

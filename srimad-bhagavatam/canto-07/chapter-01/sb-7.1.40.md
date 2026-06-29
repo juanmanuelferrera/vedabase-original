@@ -1,11 +1,11 @@
 ### SB 7.1.40
 
-> हतो हिरण्यकशिपुर्हरिणा सिंहरूपिणा
+> हतो हिरण्यकशिपुर्हरिणा सिंहरूपिणा\
 > हिरण्याक्षो धरोद्धारे बिभ्रता शौकरं वपुः ॥४०॥
 
-> jajñāte tau diteḥ putrau
-> daitya-dānava-vanditau
-> hiraṇyakaśipur jyeṣṭho
+> jajñāte tau diteḥ putrau\
+> daitya-dānava-vanditau\
+> hiraṇyakaśipur jyeṣṭho\
 > hiraṇyākṣo 'nujas tataḥ
 
 *jajñāte*—were born; *tau*—the two; *diteḥ*—of Diti; *putrau*—the sons; *daitya-dānava*—by all the demons; *vanditau*—being worshiped; *hiraṇyakaśipuḥ*—Hiraṇyakaśipu; *jyeṣṭhaḥ*—the elder; *hiraṇyākṣaḥ*—Hiraṇyākṣa; *anujaḥ*—the younger; *tataḥ*—thereafter.

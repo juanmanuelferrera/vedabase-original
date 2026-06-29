@@ -1,13 +1,13 @@
 ### SB 7.9.42
 
-> को न्वत्र तेऽखिलगुरो भगवन्प्रयास
-> उत्तारणेऽस्य भवसम्भवलोपहेतोः
-> मूढेषु वै महदनुग्रह आर्तबन्धो
+> को न्वत्र तेऽखिलगुरो भगवन्प्रयास\
+> उत्तारणेऽस्य भवसम्भवलोपहेतोः\
+> मूढेषु वै महदनुग्रह आर्तबन्धो\
 > किं तेन ते प्रियजनाननुसेवतां नः ॥४२॥
 
-> ko nv atra te 'khila-guro bhagavan prayāsa
-> uttāraṇe 'sya bhava-sambhava-lopa-hetoḥ
-> mūḍheṣu vai mahad-anugraha ārta-bandho
+> ko nv atra te 'khila-guro bhagavan prayāsa\
+> uttāraṇe 'sya bhava-sambhava-lopa-hetoḥ\
+> mūḍheṣu vai mahad-anugraha ārta-bandho\
 > kiṁ tena te priya-janān anusevatāṁ naḥ
 
 *kaḥ*—what is that; *nu*—indeed; *atra*—in this matter; *te*—of Your Lordship; *akhila-guro*—O supreme spiritual master of the entire creation; *bhagavan*—O Supreme Lord, O Personality of Godhead; *prayāsaḥ*—endeavor; *uttāraṇe*—for the deliverance of these fallen souls; *asya*—of this; *bhava-sambhava*—of creation and maintenance; *lopa*—and of annihilation; *hetoḥ*—of the cause; *mūḍheṣu*—unto the foolish persons rotting in this material world; *vai*—indeed; *mahat-anugrahaḥ*—compassion by the Supreme; *ārta-bandho*—O friend of the suffering living entities; *kim*—what is the difficulty; *tena*—with that; *te*—of Your Lordship; *priya-janān*—the dear persons (devotees); *anusevatām*—of those always engaged in serving; *naḥ*—like us (who are so engaged).

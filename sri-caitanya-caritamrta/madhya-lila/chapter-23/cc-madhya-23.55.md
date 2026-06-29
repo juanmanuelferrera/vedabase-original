@@ -1,9 +1,9 @@
 ### CC Madhya 23.55
 
-> সখ্য-বাৎসল্য-রতি পায় ‘অনুরাগ’-সীমা ।
+> সখ্য-বাৎসল্য-রতি পায় ‘অনুরাগ’-সীমা ।\
 > সুবলাদ্যের ‘ভাব’ পর্যন্ত প্রেমের মহিমা ॥৫৫॥
 
-> sakhya-vātsalya-rati pāya 'anurāga'-sīmā
+> sakhya-vātsalya-rati pāya 'anurāga'-sīmā\
 > subalādyera 'bhāva' paryanta premera mahimā
 
 *sakhya*—in friendship; *vātsalya*—in paternal affection; *rati*—affection; *pāya*—obtains; *anurāga-sīmā*—up to the limit of subordinate spontaneous love; *subala-ādyera*—of friends like Subala and others; *bhāva*—ecstatic love; *paryanta*—up to; *premera mahimā*—the glory of the love of Godhead.

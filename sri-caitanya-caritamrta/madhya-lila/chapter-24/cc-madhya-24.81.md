@@ -1,11 +1,11 @@
 ### CC Madhya 24.81
 
-> বদন্তি তত্তত্ত্ববিদস্তত্ত্বং যজ্জ্ঞানমদ্বয়ম্ ।
+> বদন্তি তত্তত্ত্ববিদস্তত্ত্বং যজ্জ্ঞানমদ্বয়ম্ ।\
 > ব্রহ্মেতি পরমাত্মেতি ভগবানিতি শব্দ্যতে ॥৮১॥
 
-> vadanti tat tattva-vidas
-> tattvaṁ yaj jñānam advayam
-> brahmeti paramātmeti
+> vadanti tat tattva-vidas\
+> tattvaṁ yaj jñānam advayam\
+> brahmeti paramātmeti\
 > bhagavān iti śabdyate
 
 *vadanti*—they say; *tat*—that; *tattva-vidaḥ*—learned souls; *tattvam*—the Absolute Truth; *yat*—which; *jñānam*—knowledge; *advayam*—nondual; *brahma*—Brahman; *iti*—thus; *paramātmā*—Paramātmā; *iti*—thus; *bhagavān*—Bhagavān; *iti*—thus; *śabdyate*—is known.

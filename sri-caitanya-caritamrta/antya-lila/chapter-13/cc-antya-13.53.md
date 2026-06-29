@@ -2,7 +2,7 @@
 
 > “কাহাঁ পাইলা তুমি এই রাতুল বসন ?” ‘মুকুন্দ-সরস্বতী’ দিল, — কহে সনাতন ॥৫৩॥
 
-> "kāhāṅ pāilā tumi ei rātula vasana?"
+> "kāhāṅ pāilā tumi ei rātula vasana?"\
 > 'mukunda-sarasvatī' dila,—kahe sanātana
 
 *kāhāṅ*—where; *pāilā*—did get; *tumi*—you; *ei*—this; *rātula vasana*—red cloth; *mukunda-sarasvatī dila*—Mukunda Sarasvatī gave; *kahe sanātana*—Sanātana replied.

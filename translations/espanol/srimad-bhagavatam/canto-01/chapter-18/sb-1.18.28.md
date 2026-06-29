@@ -1,11 +1,11 @@
 ### SB 1.18.28
 
-> अलब्धतृणभूम्यादिरसम्प्राप्तार्घ्यसूनृतः ।
+> अलब्धतृणभूम्यादिरसम्प्राप्तार्घ्यसूनृतः ।\
 > अवज्ञातमिवात्मानं मन्यमानश्चुकोप ह ॥२८॥
 
-> alabdha-tṛṇa-bhūmy-ādir
-> asamprāptārghya-sūnṛtaḥ
-> avajñātam ivātmānaṁ
+> alabdha-tṛṇa-bhūmy-ādir\
+> asamprāptārghya-sūnṛtaḥ\
+> avajñātam ivātmānaṁ\
 > manyamānaś cukopa ha
 
 *alabdha*—al no recibir; *tṛṇa*—asiento de paja; *bhūmi*—lugar; *ādiḥ*—etcétera; *asamprāpta*—mal recibido; *arghya*—agua para recibir; *sūnṛtaḥ*—palabras gratas; *avajñātam*—desdeñado así; *iva*—de ese modo; *ātmānam*—personalmente; *manyamānaḥ*—pensando así; *cukopa*—se enfureció; *ha*—de esa manera.

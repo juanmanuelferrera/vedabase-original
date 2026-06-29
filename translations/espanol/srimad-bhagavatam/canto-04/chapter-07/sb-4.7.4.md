@@ -1,11 +1,11 @@
 ### SB 4.7.4
 
-> पूषा तु यजमानस्य दद्भिर्जक्षतु पिष्टभुक् ।
+> पूषा तु यजमानस्य दद्भिर्जक्षतु पिष्टभुक् ।\
 > देवाः प्रकृतसर्वाङ्गा ये म उच्छेषणं ददुः ॥४॥
 
-> pūṣā tu yajamānasya
-> dadbhir jakṣatu piṣṭa-bhuk
-> devāḥ prakṛta-sarvāṅgā
+> pūṣā tu yajamānasya\
+> dadbhir jakṣatu piṣṭa-bhuk\
+> devāḥ prakṛta-sarvāṅgā\
 > ye ma uccheṣaṇaṁ daduḥ
 
 *pūṣā*—Pūṣā; *tu*—pero; *yajamānasya*—del ejecutor del sacrificio; *dadbhiḥ*—con los dientes; *jakṣatu*—masticar; *piṣṭa-bhuk*—comiendo harina; *devāḥ*—los semidioses; *prakṛta*—hecho; *sarva-aṅgāḥ*—completo; *ye*—quien; *me*—a mí; *uccheṣaṇam*—una parte del sacrificio; *daduḥ*—dieron.

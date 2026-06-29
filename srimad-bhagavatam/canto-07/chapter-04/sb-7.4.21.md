@@ -1,11 +1,11 @@
 ### SB 7.4.21
 
-> तस्योग्रदण्डसंविग्नाः सर्वे लोकाः सपालकाः
+> तस्योग्रदण्डसंविग्नाः सर्वे लोकाः सपालकाः\
 > अन्यत्रालब्धशरणाः शरणं ययुरच्युतम ॥२१॥
 
-> tasyogra-daṇḍa-saṁvignāḥ
-> sarve lokāḥ sapālakāḥ
-> anyatrālabdha-śaraṇāḥ
+> tasyogra-daṇḍa-saṁvignāḥ\
+> sarve lokāḥ sapālakāḥ\
+> anyatrālabdha-śaraṇāḥ\
 > śaraṇaṁ yayur acyutam
 
 *tasya*—of him (Hiraṇyakaśipu); *ugra-daṇḍa*—by the very fearful chastisement; *saṁvignāḥ*—disturbed; *sarve*—all; *lokāḥ*—the planets; *sa-pālakāḥ*—with their principal rulers; *anyatra*—anywhere else; *alabdha*—not obtaining; *śaraṇāḥ*—shelter; *śaraṇam*—for shelter; *yayuḥ*—approached; *acyutam*—the Supreme Personality of Godhead.

@@ -1,11 +1,11 @@
 ### CC Madhya 8.60
 
-> যত্ করোষি যদশ্নাসি যজ্জুহোষি দদাসি যত্ ৷
+> যত্ করোষি যদশ্নাসি যজ্জুহোষি দদাসি যত্ ৷\
 > যত্তপস্যসি কৌন্তেয় তত্ কুরুষ্ব মদর্পণম্ ৷৷ ৬০ ৷৷ ॥৬০॥
 
-> yat karoṣi yad aśnāsi
-> yaj juhoṣi dadāsi yat
-> yat tapasyasi kaunteya
+> yat karoṣi yad aśnāsi\
+> yaj juhoṣi dadāsi yat\
+> yat tapasyasi kaunteya\
 > tat kuruṣva mad-arpaṇam
 
 *yat*—lo que sea que; *karoṣi*—hagas; *yat*—lo que sea que; *aśnāsi*—comas; *yat*—lo que sea que; *juhoṣi*—ofrezcas en sacrificio; *dadāsi*—des en caridad; *yat*—lo que sea que; *yat*—lo que sea que; *tapasyasi*—practiques como austeridad; *kaunteya*—¡oh, hijo de Kuntī!; *tat*—eso; *kuruṣva*—hazlo; *mat*—a Mí; *arpaṇam*—como ofrenda.

@@ -1,11 +1,11 @@
 ### SB 3.16.4
 
-> तद्वः प्रसादयाम्यद्य ब्रह्म दैवं परं हि मे ।
+> तद्वः प्रसादयाम्यद्य ब्रह्म दैवं परं हि मे ।\
 > तद्धीत्यात्मकृतं मन्ये यत्स्वपुम्भिरसत्कृताः ॥४॥
 
-> tad vaḥ prasādayāmy adya
-> brahma daivaṁ paraṁ hi me
-> tad dhīty ātma-kṛtaṁ manye
+> tad vaḥ prasādayāmy adya\
+> brahma daivaṁ paraṁ hi me\
+> tad dhīty ātma-kṛtaṁ manye\
 > yat sva-pumbhir asat-kṛtāḥ
 
 *tat*—therefore; *vaḥ*—you sages; *prasādayāmi*—I am seeking your forgiveness; *adya*—just now; *brahma*—the *brāhmaṇas*; *daivam*—most beloved personalities; *param*—highest; *hi*—because; *me*—My; *tat*—that offense; *hi*—because; *iti*—thus; *ātma-kṛtam*—done by Me; *manye*—I consider; *yat*—which; *sva-pumbhiḥ*—by My own attendants; *asat-kṛtāḥ*—having been disrespected.

@@ -1,13 +1,13 @@
 ### SB 8.16.18
 
-> श्रीशुक उवाच
-> एवमभ्यर्थितोऽदित्या कस्तामाह स्मयन्निव
+> श्रीशुक उवाच\
+> एवमभ्यर्थितोऽदित्या कस्तामाह स्मयन्निव\
 > अहो मायाबलं विष्णोः स्नेहबद्धमिदं जगत ॥१८॥
 
-> śrī-śuka uvāca
-> evam abhyarthito 'dityā
-> kas tām āha smayann iva
-> aho māyā-balaṁ viṣṇoḥ
+> śrī-śuka uvāca\
+> evam abhyarthito 'dityā\
+> kas tām āha smayann iva\
+> aho māyā-balaṁ viṣṇoḥ\
 > sneha-baddham idaṁ jagat
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—in this way; *abhyarthitaḥ*—being requested; *adityā*—by Aditi; *kaḥ*—Kaśyapa Muni; *tām*—unto her; *āha*—said; *smayan*—smiling; *iva*—just like; *aho*—alas; *māyā-balam*—the influence of the illusory energy; *viṣṇoḥ*—of Lord Viṣṇu; *sneha-baddham*—influenced by this affection; *idam*—this; *jagat*—whole world.

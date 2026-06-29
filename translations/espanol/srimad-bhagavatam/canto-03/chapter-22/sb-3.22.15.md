@@ -1,13 +1,13 @@
 ### SB 3.22.15
 
-> ऋषिरुवाच
-> बाढमुद्वोढुकामोऽहमप्रत्ता च तवात्मजा ।
+> ऋषिरुवाच\
+> बाढमुद्वोढुकामोऽहमप्रत्ता च तवात्मजा ।\
 > आवयोरनुरूपोऽसावाद्यो वैवाहिको विधिः ॥१५॥
 
-> ṛṣir uvāca
-> bāḍham udvoḍhu-kāmo 'ham
-> aprattā ca tavātmajā
-> āvayor anurūpo 'sāv
+> ṛṣir uvāca\
+> bāḍham udvoḍhu-kāmo 'ham\
+> aprattā ca tavātmajā\
+> āvayor anurūpo 'sāv\
 > ādyo vaivāhiko vidhiḥ
 
 *ṛṣiḥ*—el gran sabio Kardama; *uvāca*—dijo; *bāḍham*—muy bien; *udvoḍhu-kāmaḥ*—deseoso de casarme; *aham*—yo; *aprattā*—no prometida a nadie; *ca*—y; *tava*—tu; *ātma-jā*—hija; *āvayoḥ*—de nosotros dos; *anurūpaḥ*—apropiado; *asau*—esto; *ādyaḥ*—primero; *vaivāhikaḥ*—de matrimonio; *vidhiḥ*—ceremonia ritual.

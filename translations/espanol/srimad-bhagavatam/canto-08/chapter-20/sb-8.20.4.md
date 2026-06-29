@@ -1,11 +1,11 @@
 ### SB 8.20.4
 
-> न ह्यसत्यात्परोऽधर्म इति होवाच भूरियम
+> न ह्यसत्यात्परोऽधर्म इति होवाच भूरियम\
 > सर्वं सोढुमलं मन्ये ऋतेऽलीकपरं नरम ॥४॥
 
-> na hy asatyāt paro 'dharma
-> iti hovāca bhūr iyam
-> sarvaṁ soḍhum alaṁ manye
+> na hy asatyāt paro 'dharma\
+> iti hovāca bhūr iyam\
+> sarvaṁ soḍhum alaṁ manye\
 > ṛte 'līka-paraṁ naram
 
 *na*—no; *hi*—en verdad; *asatyāt*—que el impulso de mentir; *paraḥ*—más; *adharmaḥ*—irreligión; *iti*—así; *ha uvāca*—en verdad ha hablado; *bhūḥ*—madre Tierra; *iyam*—esto; *sarvam*—todo; *soḍhum*—soportar; *alam*—puedo; *manye*—aunque pienso; *ṛte*—excepto; *alīka-param*—el más abominable mentiroso; *naram*—un ser humano.

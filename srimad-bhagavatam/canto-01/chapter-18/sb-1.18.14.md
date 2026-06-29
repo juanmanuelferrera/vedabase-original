@@ -1,11 +1,11 @@
 ### SB 1.18.14
 
-> को नाम तृप्येद्रसवित्कथायां महत्तमैकान्तपरायणस्य ।
+> को नाम तृप्येद्रसवित्कथायां महत्तमैकान्तपरायणस्य ।\
 > नान्तं गुणानामगुणस्य जग्मुर्योगेश्वरा ये भवपाद्ममुख्याः ॥१४॥
 
-> ko nāma tṛpyed rasavit kathāyāṁ
-> mahattamaikānta-parāyaṇasya
-> nāntaṁ guṇānām aguṇasya jagmur
+> ko nāma tṛpyed rasavit kathāyāṁ\
+> mahattamaikānta-parāyaṇasya\
+> nāntaṁ guṇānām aguṇasya jagmur\
 > yogeśvarā ye bhava-pādma-mukhyāḥ
 
 *kaḥ*—who is he; *nāma*—specifically; *tṛpyet*—get full satisfaction; *rasa-vit*—expert in relishing mellow nectar; *kathāyām*—in the topics of; *mahat-tama*—the greatest amongst the living beings; *ekānta*—exclusively; *parāyaṇasya*—of one who is the shelter of; *na*—never; *antam*—end; *guṇānām*—of attributes; *aguṇasya*—of the Transcendence; *jagmuḥ*—could ascertain; *yoga-īśvarāḥ*—the lords of mystic power; *ye*—all they; *bhava*—Lord Śiva; *pādma*—Lord Brahmā; *mukhyāḥ*—heads.

@@ -1,13 +1,13 @@
 ### CC Madhya 8.266
 
-> জন্মাদ্যস্য যতোঽন্বয়াদিতরতশ্চার্থেষ্বভিজ্ঞঃ স্বরাট্
-> তেনে ব্রহ্ম হৃদা য আদিকবয়ে মুহ্যন্তি যৎ সূরয়ঃ ৷
-> তেজোবারিমৃদাং যথা বিনিময়ো যত্র ত্রিসর্গোঽমৃষা
+> জন্মাদ্যস্য যতোঽন্বয়াদিতরতশ্চার্থেষ্বভিজ্ঞঃ স্বরাট্\
+> তেনে ব্রহ্ম হৃদা য আদিকবয়ে মুহ্যন্তি যৎ সূরয়ঃ ৷\
+> তেজোবারিমৃদাং যথা বিনিময়ো যত্র ত্রিসর্গোঽমৃষা\
 > ধাম্না স্বেন সদা নিরস্তকুহকং সত্যং পরং ধীমহি ৷৷ ২৬৬ ৷৷ ॥২৬৬॥
 
-> janmādy asya yato 'nvayād itarataś cārtheṣv abhijñaḥ sva-rāṭ
-> tene brahma hṛdā ya ādi-kavaye muhyanti yat sūrayaḥ
-> tejo-vāri-mṛdāṁ yathā vinimayo yatra tri-sargo 'mṛṣā
+> janmādy asya yato 'nvayād itarataś cārtheṣv abhijñaḥ sva-rāṭ\
+> tene brahma hṛdā ya ādi-kavaye muhyanti yat sūrayaḥ\
+> tejo-vāri-mṛdāṁ yathā vinimayo yatra tri-sargo 'mṛṣā\
 > dhāmnā svena sadā nirasta-kuhakaṁ satyaṁ paraṁ dhīmahi
 
 *janma-ādi*—la creación, el mantenimiento y la disolución; *asya*—de este (el universo); *yataḥ*—de quien; *anvayāt*—directamente, desde la conexión espiritual; *itarataḥ*—indirectamente, desde la ausencia de contacto material; *ca*—también; *artheṣu*—en todos los asuntos; *abhijñaḥ*—perfectamente conocedor; *sva-rāṭ*—independiente; *tene*—impartió; *brahma*—la Verdad Absoluta; *hṛdā*—a través del corazón; *yaḥ*—quien; *ādi-kavaye*—al Señor Brahmā; *muhyanti*—quedan confundidos; *yat*—en quien; *sūrayaḥ*—grandes personalidades como el Señor Brahmā y otros semidioses o grandes *brāhmaṇas*; *tejaḥ-vāri-mṛdām*—del fuego, el agua y la tierra; *yathā*—como; *vinimayaḥ*—el intercambio; *yatra*—en quien; *tri-sargaḥ*—la creación material de las tres modalidades; *amṛṣā*—real; *dhāmnā*—con la morada; *svena*—Su propia y personal; *sadā*—siempre; *nirasta-kuhakam*—desprovista de toda ilusión; *satyam*—la verdad; *param*—absoluta; *dhīmahi*—meditemos.

@@ -1,9 +1,9 @@
 ### CC Antya 4.214
 
-> একবৎসর রূপ-গোসাঞির গৌড়ে বিলম্ব হৈল ।
+> একবৎসর রূপ-গোসাঞির গৌড়ে বিলম্ব হৈল ।\
 > কুটুম্বের ‘স্থিতি’-অর্থ বিভাগ করি’ দিল ॥২১৪॥
 
-> eka-vatsara rūpa-gosāñira gauḍe vilamba haila
+> eka-vatsara rūpa-gosāñira gauḍe vilamba haila\
 > kuṭumbera 'sthiti'-artha vibhāga kari' dila
 
 *eka-vatsara*—for one year; *rūpa-gosāñira*—of Śrīla Rūpa Gosvāmī; *gauḍe*—in Bengal; *vilamba*—delay; *haila*—there was; *kuṭumbera*—of the relatives; *sthiti-artha*—wealth for maintenance; *vibhāga*—shares; *kari'*—making; *dila*—gave.

@@ -1,11 +1,11 @@
 ### SB 6.15.6
 
-> भूतैर्भूतानि भूतेशः सृजत्यवति हन्ति च
+> भूतैर्भूतानि भूतेशः सृजत्यवति हन्ति च\
 > आत्मसृष्टैरस्वतन्त्रैरनपेक्षोऽपि बालवत ॥६॥
 
-> bhūtair bhūtāni bhūteśaḥ
-> sṛjaty avati hanti ca
-> ātma-sṛṣṭair asvatantrair
+> bhūtair bhūtāni bhūteśaḥ\
+> sṛjaty avati hanti ca\
+> ātma-sṛṣṭair asvatantrair\
 > anapekṣo 'pi bālavat
 
 *bhūtaiḥ*—por algunos seres vivos; *bhūtāni*—otras entidades vivientes; *bhūta-īśaḥ*—la Suprema Personalidad de Dios, el amo de todo; *sṛjati*—crea; *avati*—mantiene; *hanti*—mata; *ca*—también; *ātma-sṛṣṭaiḥ*—que son creados por Él; *asvatantraiḥ*—no independientes; *anapekṣaḥ*—no interesado (en la creación); *api*—aunque; *bāla-vat*—como un niño.

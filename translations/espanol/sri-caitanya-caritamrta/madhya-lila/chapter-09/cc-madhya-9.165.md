@@ -1,9 +1,9 @@
 ### CC Madhya 9.165
 
-> প্রভুর বিয়োগে ভট্ট হৈল অচেতন ৷
+> প্রভুর বিয়োগে ভট্ট হৈল অচেতন ৷\
 > এই রঙ্গলীলা করে শচীর নন্দন ৷৷ ১৬৫ ৷৷ ॥১৬৫॥
 
-> prabhura viyoge bhaṭṭa haila acetana
+> prabhura viyoge bhaṭṭa haila acetana\
 > ei raṅga-līlā kare śacīra nandana
 
 *prabhura viyoge*—a causa de la separación de Śrī Caitanya Mahāprabhu; *bhaṭṭa*—Veṅkaṭa Bhaṭṭa; *haila*—se volvió; *acetana*—inconsciente; *ei*—este; *raṅga-līlā*—pasatiempo en Śrī Raṅga-kṣetra; *kare*—realiza; *śacīra nandana*—el hijo de madre Śacī.

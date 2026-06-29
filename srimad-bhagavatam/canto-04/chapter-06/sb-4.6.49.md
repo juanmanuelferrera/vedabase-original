@@ -1,11 +1,11 @@
 ### SB 4.6.49
 
-> भवांस्तु पुंसः परमस्य मायया दुरन्तयास्पृष्टमतिः समस्तदृक् ।
+> भवांस्तु पुंसः परमस्य मायया दुरन्तयास्पृष्टमतिः समस्तदृक् ।\
 > तया हतात्मस्वनुकर्मचेतःस्वनुग्रहं कर्तुमिहार्हसि प्रभो ॥४९॥
 
-> bhavāṁs tu puṁsaḥ paramasya māyayā
-> durantayāspṛṣṭa-matiḥ samasta-dṛk
-> tayā hatātmasv anukarma-cetaḥsv
+> bhavāṁs tu puṁsaḥ paramasya māyayā\
+> durantayāspṛṣṭa-matiḥ samasta-dṛk\
+> tayā hatātmasv anukarma-cetaḥsv\
 > anugrahaṁ kartum ihārhasi prabho
 
 *bhavān*—Your Lordship; *tu*—but; *puṁsaḥ*—of the person; *paramasya*—the supreme; *māyayā*—by the material energy; *durantayā*—of great potency; *aspṛṣṭa*—unaffected; *matiḥ*—intelligence; *samasta-dṛk*—seer or knower of everything; *tayā*—by the same illusory energy; *hata-ātmasu*—bewildered at heart; *anukarma-cetaḥsu*—whose hearts are attracted by fruitive activities; *anugraham*—mercy; *kartum*—to do; *iha*—in this case; *arhasi*—desire; *prabho*—O lord.

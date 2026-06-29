@@ -1,11 +1,11 @@
 ### SB 4.14.2
 
-> वीरमातरमाहूय सुनीथां ब्रह्मवादिनः ।
+> वीरमातरमाहूय सुनीथां ब्रह्मवादिनः ।\
 > प्रकृत्यसम्मतं वेनमभ्यषिञ्चन्पतिं भुवः ॥२॥
 
-> vīra-mātaram āhūya
-> sunīthāṁ brahma-vādinaḥ
-> prakṛty-asammataṁ venam
+> vīra-mātaram āhūya\
+> sunīthāṁ brahma-vādinaḥ\
+> prakṛty-asammataṁ venam\
 > abhyaṣiñcan patiṁ bhuvaḥ
 
 *vīra*—de Vena; *mātaram*—la madre; *āhūya*—llamar; *sunīthām*—de nombre Sunīthā; *brahma-vādinaḥ*—los grandes sabios eruditos en los *Vedas*; *prakṛti*—por los ministros; *asammatam*—sin la aprobación de; *venam*—a Vena; *abhyaṣiñcan*—coronaron; *patim*—señor; *bhuvaḥ*—del mundo.

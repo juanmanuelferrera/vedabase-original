@@ -1,11 +1,11 @@
 ### SB 3.6.15
 
-> निर्भिन्ने अक्षिणी त्वष्टा लोकपालोऽविशद्विभोः ।
+> निर्भिन्ने अक्षिणी त्वष्टा लोकपालोऽविशद्विभोः ।\
 > चक्षुषांशेन रूपाणां प्रतिपत्तिर्यतो भवेत् ॥१५॥
 
-> nirbhinne akṣiṇī tvaṣṭā
-> loka-pālo 'viśad vibhoḥ
-> cakṣuṣāṁśena rūpāṇāṁ
+> nirbhinne akṣiṇī tvaṣṭā\
+> loka-pālo 'viśad vibhoḥ\
+> cakṣuṣāṁśena rūpāṇāṁ\
 > pratipattir yato bhavet
 
 *nirbhinne*—thus being separated; *akṣiṇī*—the eyes; *tvaṣṭā*—the sun; *loka-pālaḥ*—director of light; *aviśat*—entered; *vibhoḥ*—of the great; *cakṣuṣā aṁśena*—by the part of the eyesight; *rūpāṇām*—of the forms; *pratipattiḥ*—experience; *yataḥ*—by which; *bhavet*—becomes.

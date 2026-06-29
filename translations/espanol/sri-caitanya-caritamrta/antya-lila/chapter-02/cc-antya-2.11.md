@@ -1,9 +1,9 @@
 ### CC Antya 2.11
 
-> প্রভুরে দেখিয়া যায় ‘বৈষ্ণব’ হঞা ।
+> প্রভুরে দেখিয়া যায় ‘বৈষ্ণব’ হঞা ।\
 > কৃষ্ণ বলি’ নাচে সব প্রেমাবিষ্ট হঞা ॥১১॥
 
-> prabhure dekhiyā yāya 'vaiṣṇava' hañā
+> prabhure dekhiyā yāya 'vaiṣṇava' hañā\
 > kṛṣṇa bali' nāce saba premāviṣṭa hañā
 
 *prabhure dekhiyā*—al ver al Señor; *yāya*—regresan; *vaiṣṇava hañā*—habiéndose convertido en devotos de la Suprema Personalidad de Dios, Kṛṣṇa; *kṛṣṇa bali'*—cantando Kṛṣṇa; *nāce*—danzan; *saba*—todos ellos; *prema-āviṣṭa hañā*—arrobados por el amor extático.

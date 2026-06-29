@@ -1,11 +1,11 @@
 ### SB 9.10.34
 
-> उपगीयमानचरितः शतधृत्यादिभिर्मुदा
+> उपगीयमानचरितः शतधृत्यादिभिर्मुदा\
 > गोमूत्रयावकं श्रुत्वा भ्रातरं वल्कलाम्बरम ॥३४॥
 
-> go-mūtra-yāvakaṁ śrutvā
-> bhrātaraṁ valkalāmbaram
-> mahā-kāruṇiko 'tapyaj
+> go-mūtra-yāvakaṁ śrutvā\
+> bhrātaraṁ valkalāmbaram\
+> mahā-kāruṇiko 'tapyaj\
 > jaṭilaṁ sthaṇḍile-śayam
 
 *go-mūtra-yāvakam*—comer cebada hervida en orina de vaca; *śrutvā*—al escuchar; *bhrātaram*—Su hermano Bharata; *valkala-ambaram*—cubierto con cortezas de árbol; *mahā-kāruṇikaḥ*—el supremamente misericordioso Señor Rāmacandra; *atapyat*—lamentó mucho; *jaṭilam*—con el cabello enmarañado; *sthaṇḍile-śayam*—acostarse en un esterilla de hierba, *kuśāsana*.

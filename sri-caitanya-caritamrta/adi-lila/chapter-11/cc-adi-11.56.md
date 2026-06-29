@@ -1,9 +1,9 @@
 ### CC Adi 11.56
 
-> সর্বশাখা-শ্রেষ্ঠ বীরভদ্র গোসাঞি ।
+> সর্বশাখা-শ্রেষ্ঠ বীরভদ্র গোসাঞি ।\
 > তাঁর উপশাখা যত, তার অন্ত নাই ॥৫৬॥
 
-> sarvaśākhā-śreṣṭha vīrabhadra gosāñi
+> sarvaśākhā-śreṣṭha vīrabhadra gosāñi\
 > tāṅra upaśākhā yata, tāra anta nāi
 
 *sarva-śākhā-śreṣṭha*—the best of all the branches; *vīrabhadra gosāñi*—of the name Vīrabhadra Gosāñi; *tāṅra upaśākhā*—His subbranches; *yata*—all; *tāra*—of them; *anta*—limit; *nāi*—there is not.

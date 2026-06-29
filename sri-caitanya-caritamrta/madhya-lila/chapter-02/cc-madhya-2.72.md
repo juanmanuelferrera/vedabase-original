@@ -1,13 +1,13 @@
 ### CC Madhya 2.72
 
-> স্তম্ভ, কম্প, প্রস্বেদ, বৈবর্ণ্য, অশ্রু, স্বরভেদ,
-> দেহ হৈল পুলকে ব্যাপিত ।
-> হাসে, কান্দে, নাচে, গায়, উঠি’ ইতি উতি ধায়,
+> স্তম্ভ, কম্প, প্রস্বেদ, বৈবর্ণ্য, অশ্রু, স্বরভেদ,\
+> দেহ হৈল পুলকে ব্যাপিত ।\
+> হাসে, কান্দে, নাচে, গায়, উঠি’ ইতি উতি ধায়,\
 > ক্ষণে ভূমে পড়িয়া মূর্চ্ছিত ॥৭২॥
 
-> stambha, kampa, prasveda, vaivarṇya, aśru, svara-bheda,
-> deha haila pulake vyāpita
-> hāse, kānde, nāce, gāya, uṭhi' iti uti dhāya,
+> stambha, kampa, prasveda, vaivarṇya, aśru, svara-bheda,\
+> deha haila pulake vyāpita\
+> hāse, kānde, nāce, gāya, uṭhi' iti uti dhāya,\
 > kṣaṇe bhūme paḍiyā mūrcchita
 
 *stambha*—being stunned; *kampa*—trembling; *prasveda*—perspiration; *vaivarṇya*—fading away of the color; *aśru*—tears; *svara-bheda*—choking of the voice; *deha*—body; *haila*—was; *pulake*—in joy; *vyāpita*—pervaded; *hāse*—laughs; *kānde*—cries; *nāce*—dances; *gāya*—sings; *uṭhi'*—getting up; *iti uti*—here and there; *dhāya*—runs; *kṣaṇe*—sometimes; *bhūme*—on the ground; *paḍiyā*—falling down; *mūrcchita*—unconscious.

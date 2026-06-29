@@ -1,9 +1,9 @@
 ### CC Madhya 25.64
 
-> “হরয়ে নমঃ কৃষ্ণ যাদবায় নমঃ ।
+> “হরয়ে নমঃ কৃষ্ণ যাদবায় নমঃ ।\
 > গোপাল গোবিন্দ রাম শ্রীমধুসূদন ।।” ॥ ৬৪ ॥
 
-> "haraye namaḥ kṛṣṇa yādavāya namaḥ
+> "haraye namaḥ kṛṣṇa yādavāya namaḥ\
 > gopāla govinda rāma śrī-madhusūdana"
 
 *haraye*—a la Suprema Personalidad de Dios; *namaḥ*—reverencias; *kṛṣṇa*—el Señor Kṛṣṇa; *yādavāya*—al descendiente de la familia Yadu; *namaḥ*—reverencias; *gopāla*—Gopāla; *govinda*—Govinda; *rāma*—Rāma; *śrī-madhusūdana*—Śrī Madhusūdana.

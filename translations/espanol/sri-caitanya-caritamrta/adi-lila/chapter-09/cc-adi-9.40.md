@@ -1,9 +1,9 @@
 ### CC Adi 9.40
 
-> জগৎ ব্যাপিয়া মোর হবে পুণ্য খ্যাতি ।
+> জগৎ ব্যাপিয়া মোর হবে পুণ্য খ্যাতি ।\
 > সুখী হইয়া লোক মোর গাহিবেক কীর্তি ॥৪০॥
 
-> jagat vyāpiyā mora habe puṇya khyāti
+> jagat vyāpiyā mora habe puṇya khyāti\
 > sukhī ha-iyā loka mora gāhibeka kīrti
 
 *jagat vyāpiyā*—extendiéndose por todo el mundo; *mora*—Mi; *habe*—habrá; *puṇya*—piadosa; *khyāti*—reputación; *sukhī*—felices; *ha-iyā*—volviéndose; *loka*—toda la gente; *mora*—Mi; *gāhibeka*—glorificarán; *kīrti*—reputación.

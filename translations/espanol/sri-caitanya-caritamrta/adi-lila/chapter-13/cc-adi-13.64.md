@@ -1,9 +1,9 @@
 ### CC Adi 13.64
 
-> গীতা-ভাগবত কহে আচার্য-গোসাঞি ।
+> গীতা-ভাগবত কহে আচার্য-গোসাঞি ।\
 > জ্ঞান-কর্ম নিন্দি’ করে ভক্তির বড়াই ॥৬৪॥
 
-> gītā-bhāgavata kahe ācārya-gosāñi
+> gītā-bhāgavata kahe ācārya-gosāñi\
 > jñāna-karma nindi' kare bhaktira baḍāi
 
 *gītā*—el *Bhagavad-gītā*; *bhāgavata*—el *Śrīmad-Bhāgavatam*; *kahe*—recita; *ācārya-gosāñi*—Advaita Ācārya; *jñāna*—el sendero de la especulación filosófica; *karma*—actividades fruitivas; *nindi'*—criticando; *kare*—establece; *bhaktira*—del servicio devocional; *baḍāi*—excelencia.

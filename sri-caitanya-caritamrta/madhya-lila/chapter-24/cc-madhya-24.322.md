@@ -1,9 +1,9 @@
 ### CC Madhya 24.322
 
-> এই মত কহিলুঁ এক শ্লোকের ব্যাখ্যান ।
+> এই মত কহিলুঁ এক শ্লোকের ব্যাখ্যান ।\
 > বাতুলের প্রলাপ করি’ কে করে প্রমাণ ? ॥ ৩২২ ॥
 
-> ei mata kahiluṅ eka ślokera vyākhyāna
+> ei mata kahiluṅ eka ślokera vyākhyāna\
 > vātulera pralāpa kari' ke kare pramāṇa?
 
 *ei mata*—in this way; *kahiluṅ*—I have spoken; *eka*—one; *ślokera*—of a verse; *vyākhyāna*—the explanation; *vātulera pralāpa*—the talking of a madman; *kari'*—doing; *ke kare pramāṇa*—who will accept this as evidential proof.

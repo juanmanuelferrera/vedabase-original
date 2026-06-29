@@ -1,11 +1,11 @@
 ### SB 4.22.43
 
-> निष्पादितश्च कार्त्स्न्येन भगवद्भिर्घृणालुभिः ।
+> निष्पादितश्च कार्त्स्न्येन भगवद्भिर्घृणालुभिः ।\
 > साधूच्छिष्टं हि मे सर्वमात्मना सह किं ददे ॥४३॥
 
-> niṣpāditaś ca kārtsnyena
-> bhagavadbhir ghṛṇālubhiḥ
-> sādhūcchiṣṭaṁ hi me sarvam
+> niṣpāditaś ca kārtsnyena\
+> bhagavadbhir ghṛṇālubhiḥ\
+> sādhūcchiṣṭaṁ hi me sarvam\
 > ātmanā saha kiṁ dade
 
 *niṣpāditaḥ ca*—also the order is properly carried out; *kārtsnyena*—in full; *bhagavadbhiḥ*—by the representatives of the Supreme Personality of Godhead; *ghṛṇālubhiḥ*—by the most compassionate; *sādhu-ucchiṣṭam*—remnants of the foodstuffs of saintly persons; *hi*—certainly; *me*—mine; *sarvam*—everything; *ātmanā*—heart and soul; *saha*—with; *kim*—what; *dade*—shall give.

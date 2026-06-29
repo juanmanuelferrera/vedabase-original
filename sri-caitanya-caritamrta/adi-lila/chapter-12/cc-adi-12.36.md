@@ -1,9 +1,9 @@
 ### CC Adi 12.36
 
-> গোবিন্দেরে আজ্ঞা দিল, — “ইঁহা আজি হৈতে ।
+> গোবিন্দেরে আজ্ঞা দিল, — “ইঁহা আজি হৈতে ।\
 > বাউলিয়া বিশ্বাসে এথা না দিবে আসিতে ।।” ॥ ৩৬ ॥
 
-> govindere ājñā dila,—"iṅhā āji haite
+> govindere ājñā dila,—"iṅhā āji haite\
 > bāuliyā viśvāse ethā nā dibe āsite"
 
 *govindere*—unto Govinda; *ājñā dila*—ordered; *iṅhā*—to this place; *āji*—today; *haite*—from; *bāuliyā*—the Māyāvādī; *viśvāse*—unto Kamalākānta Viśvāsa; *ethā*—here; *nā*—do not; *dibe*—allow; *āsite*—to come.

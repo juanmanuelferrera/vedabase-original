@@ -1,11 +1,11 @@
 ### SB 2.9.21
 
-> वरं वरय भद्रं ते वरेशं माभिवाञ्छितम् ।
+> वरं वरय भद्रं ते वरेशं माभिवाञ्छितम् ।\
 > ब्रह्मञ्छ्रेयःपरिश्रामः पुंसां मद्दर्शनावधिः ॥२१॥
 
-> varaṁ varaya bhadraṁ te
-> vareśaṁ mābhivāñchitam
-> brahmañ chreyaḥ-pariśrāmaḥ
+> varaṁ varaya bhadraṁ te\
+> vareśaṁ mābhivāñchitam\
+> brahmañ chreyaḥ-pariśrāmaḥ\
 > puṁsāṁ mad-darśanāvadhiḥ
 
 *varam*—benediction; *varaya*—just ask from; *bhadram*—auspicious; *te*—unto you; *vara-īśam*—the giver of all benediction; *mā* (*mām*)—from Me; *abhivāñchitam*—wishing; *brahman*—O Brahmā; *śreyaḥ*—the ultimate success; *pariśrāmaḥ*—for all penances; *puṁsām*—for everyone; *mat*—My; *darśana*—realization; *avadhiḥ*—up to the limit of.

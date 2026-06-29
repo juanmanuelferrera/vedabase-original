@@ -1,9 +1,9 @@
 ### CC Madhya 5.97
 
-> হাসিঞা গোপাল কহে, — “শুনহ, ব্রাহ্মণ ।
+> হাসিঞা গোপাল কহে, — “শুনহ, ব্রাহ্মণ ।\
 > তোমার পাছে পাছে আমি করিব গমন ॥৯৭॥
 
-> hāsiñā gopāla kahe,--"śunaha, brāhmaṇa
+> hāsiñā gopāla kahe,--"śunaha, brāhmaṇa\
 > tomāra pāche pāche āmi kariba gamana
 
 *hāsiñā*—sonriendo; *gopāla*—el Señor Gopāla; *kahe*—dice; *śunaha*—solo escucha; *brāhmaṇa*—oh, Mi querido brāhmaṇa; *tomāra*—tú; *pāche pāche*—detrás; *āmi*—Yo; *kariba*—haré; *gamana*—caminar.

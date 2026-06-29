@@ -1,9 +1,9 @@
 ### CC Adi 5.18
 
-> সর্বগ, অনন্ত, বিভু, কৃষ্ণতনুসম ।
+> সর্বগ, অনন্ত, বিভু, কৃষ্ণতনুসম ।\
 > উপর্যধো ব্যাপিয়াছে, নাহিক নিয়ম ॥১৮॥
 
-> sarvaga, ananta, vibhu, kṛṣṇa-tanu-sama
+> sarvaga, ananta, vibhu, kṛṣṇa-tanu-sama\
 > upary-adho vyāpiyāche, nāhika niyama
 
 *sarva-ga*—all-pervading; *ananta*—unlimited; *vibhu*—the greatest; *kṛṣṇa-tanu-sama*—exactly like the transcendental body of Kṛṣṇa; *upari-adhaḥ*—up and down; *vyāpiyāche*—expanded; *nāhika*—there is no; *niyama*—regulation.

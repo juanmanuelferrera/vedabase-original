@@ -1,9 +1,9 @@
 ### CC Madhya 4.37
 
-> গ্রামের লোক আনি’ আমা কাঢ়’ কুঞ্জ হৈতে ৷
+> গ্রামের লোক আনি’ আমা কাঢ়’ কুঞ্জ হৈতে ৷\
 > পর্বত-উপরি লঞা রাখ ভালমতে ॥৩৭॥
 
-> grāmera loka āni' āmā kāḍha' kuñja haite
+> grāmera loka āni' āmā kāḍha' kuñja haite\
 > parvata-upari lañā rākha bhāla-mate
 
 *grāmera*—de la aldea; *loka*—la gente; *āni'*—trayendo; *āmā*—a Mí; *kāḍha'*—saca; *kuñja haite*—de este matorral; *parvata-upari*—en la cima de la colina; *lañā*—llevándome; *rākha*—ponme; *bhāla-mate*—muy bien.

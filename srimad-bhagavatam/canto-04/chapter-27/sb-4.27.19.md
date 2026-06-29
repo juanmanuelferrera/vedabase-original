@@ -1,11 +1,11 @@
 ### SB 4.27.19
 
-> कालस्य दुहिता काचित्त्रिलोकीं वरमिच्छती ।
+> कालस्य दुहिता काचित्त्रिलोकीं वरमिच्छती ।\
 > पर्यटन्ती न बर्हिष्मन्प्रत्यनन्दत कश्चन ॥१९॥
 
-> kālasya duhitā kācit
-> tri-lokīṁ varam icchatī
-> paryaṭantī na barhiṣman
+> kālasya duhitā kācit\
+> tri-lokīṁ varam icchatī\
+> paryaṭantī na barhiṣman\
 > pratyanandata kaścana
 
 *kālasya*—of formidable Time; *duhitā*—the daughter; *kācit*—someone; *tri-lokīm*—within the three worlds; *varam*—husband; *icchatī*—desiring; *paryaṭantī*—traveling all over the universe; *na*—never; *barhiṣman*—O King Prācīnabarhiṣat; *pratyanandata*—accepted her proposal; *kaścana*—anyone.

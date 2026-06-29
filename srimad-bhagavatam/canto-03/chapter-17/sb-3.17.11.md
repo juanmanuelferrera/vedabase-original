@@ -1,11 +1,11 @@
 ### SB 3.17.11
 
-> खराश्च कर्कशैः क्षत्तः खुरैर्घ्नन्तो धरातलम् ।
+> खराश्च कर्कशैः क्षत्तः खुरैर्घ्नन्तो धरातलम् ।\
 > खार्काररभसा मत्ताः पर्यधावन्वरूथशः ॥११॥
 
-> kharāś ca karkaśaiḥ kṣattaḥ
-> khurair ghnanto dharā-talam
-> khārkāra-rabhasā mattāḥ
+> kharāś ca karkaśaiḥ kṣattaḥ\
+> khurair ghnanto dharā-talam\
+> khārkāra-rabhasā mattāḥ\
 > paryadhāvan varūthaśaḥ
 
 *kharāḥ*—asses; *ca*—and; *karkaśaiḥ*—hard; *kṣattaḥ*—O Vidura; *khuraiḥ*—with their hooves; *ghnantaḥ*—striking; *dharā-talam*—the surface of the earth; *khāḥ-kāra*—braying; *rabhasāḥ*—wildly engaged in; *mattāḥ*—mad; *paryadhāvan*—ran hither and thither; *varūthaśaḥ*—in herds.

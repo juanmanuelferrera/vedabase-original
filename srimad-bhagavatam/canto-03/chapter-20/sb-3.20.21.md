@@ -1,11 +1,11 @@
 ### SB 3.20.21
 
-> देवस्तानाह संविग्नो मा मां जक्षत रक्षत ।
+> देवस्तानाह संविग्नो मा मां जक्षत रक्षत ।\
 > अहो मे यक्षरक्षांसि प्रजा यूयं बभूविथ ॥२१॥
 
-> devas tān āha saṁvigno
-> mā māṁ jakṣata rakṣata
-> aho me yakṣa-rakṣāṁsi
+> devas tān āha saṁvigno\
+> mā māṁ jakṣata rakṣata\
+> aho me yakṣa-rakṣāṁsi\
 > prajā yūyaṁ babhūvitha
 
 *devaḥ*—Lord Brahmā; *tān*—to them; *āha*—said; *saṁvignaḥ*—being anxious; *mā*—do not; *mām*—me; *jakṣata*—eat; *rakṣata*—protect; *aho*—oh; *me*—my; *yakṣa-rakṣāṁsi*—O Yakṣas and Rākṣasas; *prajāḥ*—sons; *yūyam*—you; *babhūvitha*—were born.

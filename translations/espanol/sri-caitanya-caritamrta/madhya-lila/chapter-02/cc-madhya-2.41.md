@@ -1,13 +1,13 @@
 ### CC Madhya 2.41
 
-> পুনঃ কহে, — হায় হায়, শুন, স্বরূপ-রামরায়,
-> এই মোর হৃদয়-নিশ্চয় ।
-> শুনি, করহ বিচার, হয়, নয় — কহ সার,
+> পুনঃ কহে, — হায় হায়, শুন, স্বরূপ-রামরায়,\
+> এই মোর হৃদয়-নিশ্চয় ।\
+> শুনি, করহ বিচার, হয়, নয় — কহ সার,\
 > এত বলি’ শ্লোক উচ্চারয় ॥৪১॥
 
-> punaḥ kahe,--hāya hāya, śuna, svarūpa-rāmarāya,
-> ei mora hṛdaya-niścaya
-> śuni karaha vicāra, haya, naya--kaha sāra,
+> punaḥ kahe,--hāya hāya, śuna, svarūpa-rāmarāya,\
+> ei mora hṛdaya-niścaya\
+> śuni karaha vicāra, haya, naya--kaha sāra,\
 > eta bali' śloka uccāraya
 
 *punaḥ*—de nuevo; *kahe*—dice; *hāya hāya*—¡ay, ay!; *śuna*—escuchad; *svarūpa-rāma-rāya*—Mi querido Svarūpa Dāmodara y Rāmānanda Rāya; *ei*—esta; *mora*—Mi; *hṛdaya-niścaya*—la certeza de Mi corazón; *śuni*—al oír; *karaha*—haced; *vicāra*—juicio; *haya, naya*—correcto o no; *kaha sāra*—decidme la esencia; *eta bali'*—diciendo esto; *śloka*—otro verso; *uccāraya*—recita.

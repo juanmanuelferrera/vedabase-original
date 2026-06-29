@@ -1,11 +1,11 @@
 ### SB 4.8.22
 
-> तमेव वत्साश्रय भृत्यवत्सलं मुमुक्षुभिर्मृग्यपदाब्जपद्धतिम् ।
+> तमेव वत्साश्रय भृत्यवत्सलं मुमुक्षुभिर्मृग्यपदाब्जपद्धतिम् ।\
 > अनन्यभावे निजधर्मभाविते मनस्यवस्थाप्य भजस्व पूरुषम् ॥२२॥
 
-> tam eva vatsāśraya bhṛtya-vatsalaṁ
-> mumukṣubhir mṛgya-padābja-paddhatim
-> ananya-bhāve nija-dharma-bhāvite
+> tam eva vatsāśraya bhṛtya-vatsalaṁ\
+> mumukṣubhir mṛgya-padābja-paddhatim\
+> ananya-bhāve nija-dharma-bhāvite\
 > manasy avasthāpya bhajasva pūruṣam
 
 *tam*—Him; *eva*—also; *vatsa*—my dear boy; *āśraya*—take shelter; *bhṛtya-vatsalam*—of the Supreme Personality of Godhead, who is very kind to His devotees; *mumukṣubhiḥ*—also by persons desiring liberation; *mṛgya*—to be sought; *pada-abja*—lotus feet; *paddhatim*—system; *ananya-bhāve*—in an unflinching situation; *nija-dharma-bhāvite*—being situated in one's original constitutional position; *manasi*—unto the mind; *avasthāpya*—placing; *bhajasva*—go on executing devotional service; *pūruṣam*—the Supreme Person.

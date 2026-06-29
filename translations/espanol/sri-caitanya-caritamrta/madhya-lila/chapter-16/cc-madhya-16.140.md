@@ -1,9 +1,9 @@
 ### CC Madhya 16.140
 
-> আমার সঙ্গে রহিতে চাহ, — বাঞ্ছ নিজ-সুখ ।
+> আমার সঙ্গে রহিতে চাহ, — বাঞ্ছ নিজ-সুখ ।\
 > তোমার দুই ধর্ম যায়, — আমার হয় ‘দুঃখ’ ॥১৪০॥
 
-> āmāra saṅge rahite cāha,--vāñcha nija-sukha
+> āmāra saṅge rahite cāha,--vāñcha nija-sukha\
 > tomāra dui dharma yāya,--āmāra haya 'duḥkha'
 
 *āmāra saṅge*—conmigo; *rahite*—permanecer; *cāha*—quieres; *vāñcha*—deseas; *nija-sukha*—tu propia complacencia de los sentidos; *tomāra*—tus; *dui dharma*—dos principios; *yāya*—se pierden; *āmāra*—para Mí; *haya*—hay; *duḥkha*—infelicidad.

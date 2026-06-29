@@ -1,11 +1,11 @@
 ### SB 1.4.3
 
-> कस्मिन्युगे प्रवृत्तेयं स्थाने वा केन हेतुना ।
+> कस्मिन्युगे प्रवृत्तेयं स्थाने वा केन हेतुना ।\
 > कुतः सञ्चोदितः कृष्णः कृतवान्संहितां मुनिः ॥३॥
 
-> kasmin yuge pravṛtteyaṁ
-> sthāne vā kena hetunā
-> kutaḥ sañcoditaḥ kṛṣṇaḥ
+> kasmin yuge pravṛtteyaṁ\
+> sthāne vā kena hetunā\
+> kutaḥ sañcoditaḥ kṛṣṇaḥ\
 > kṛtavān saṁhitāṁ muniḥ
 
 *kasmin*—in which; *yuge*—period; *pravṛttā*—was begun; *iyam*—this; *sthāne*—in the place; *vā*—or; *kena*—on what; *hetunā*—ground; *kutaḥ*—wherefrom; *sañcoditaḥ*—inspired by; *kṛṣṇaḥ*—Kṛṣṇa-dvaipāyana Vyāsa; *kṛtavān*—compiled; *saṁhitām*—Vedic literature; *muniḥ*—the learned.

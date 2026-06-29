@@ -1,9 +1,9 @@
 ### CC Madhya 25.90
 
-> তুমি ত’ ঈশ্বর, তোমার আছে সর্বশক্তি ।
+> তুমি ত’ ঈশ্বর, তোমার আছে সর্বশক্তি ।\
 > সংক্ষেপরূপে কহ তুমি শুনিতে হয় মতি ॥৯০॥
 
-> tumi ta' īśvara, tomāra āche sarva-śakti
+> tumi ta' īśvara, tomāra āche sarva-śakti\
 > saṅkṣepa-rūpe kaha tumi śunite haya mati
 
 *tumi ta'*—en verdad Tú eres; *īśvara*—el Señor Supremo; *tomāra*—Tuyas; *āche*—hay; *sarva-śakti*—todas las potencias; *saṅkṣepa-rūpe*—brevemente; *kaha*—por favor explica; *tumi*—Tú; *śunite haya mati*—deseo escuchar.

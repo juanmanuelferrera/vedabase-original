@@ -1,9 +1,9 @@
 ### CC Madhya 17.64
 
-> পরম সন্তোষ প্রভুর বন্য-ভোজনে ।
+> পরম সন্তোষ প্রভুর বন্য-ভোজনে ।\
 > মহাসুখ পান, যে দিন রহেন নির্জনে ॥৬৪॥
 
-> parama santoṣa prabhura vanya-bhojane
+> parama santoṣa prabhura vanya-bhojane\
 > mahā-sukha pāna, ye dina rahena nirjane
 
 *parama*—very much; *santoṣa*—satisfaction; *prabhura*—of the Lord; *vanya-bhojane*—in eating vegetables collected from the forest; *mahā-sukha pāna*—gets great happiness; *ye dina*—on which day; *rahena*—stays; *nirjane*—in a solitary place.

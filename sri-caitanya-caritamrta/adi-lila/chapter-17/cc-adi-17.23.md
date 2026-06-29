@@ -1,9 +1,9 @@
 ### CC Adi 17.23
 
-> দার্ঢ্য লাগি’ ‘হরের্নাম’-উক্তি তিনবার ।
+> দার্ঢ্য লাগি’ ‘হরের্নাম’-উক্তি তিনবার ।\
 > জড় লোক বুঝাইতে পুনঃ ‘এব’-কার ॥২৩॥
 
-> dārḍhya lāgi' 'harer nāma'-ukti tina-vāra
+> dārḍhya lāgi' 'harer nāma'-ukti tina-vāra\
 > jaḍa loka bujhāite punaḥ 'eva'-kāra
 
 *dārḍhya lāgi'*—in the matter of emphasizing; *harer nāma*—of the holy name of Lord Hari; *ukti*—there is utterance; *tina-vāra*—three times; *jaḍa loka*—ordinary common people; *bujhāite*—just to make them understand; *punaḥ*—again; *eva-kāra*—the word *eva,* or "certainly."

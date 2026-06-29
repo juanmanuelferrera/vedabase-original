@@ -1,11 +1,11 @@
 ### SB 1.6.15
 
-> तस्मिन्निर्मनुजेऽरण्ये पिप्पलोपस्थ आश्रितः ।
+> तस्मिन्निर्मनुजेऽरण्ये पिप्पलोपस्थ आश्रितः ।\
 > आत्मनात्मानमात्मस्थं यथाश्रुतमचिन्तयम् ॥१५॥
 
-> tasmin nirmanuje 'raṇye
-> pippalopastha āśritaḥ
-> ātmanātmānam ātmasthaṁ
+> tasmin nirmanuje 'raṇye\
+> pippalopastha āśritaḥ\
+> ātmanātmānam ātmasthaṁ\
 > yathā-śrutam acintayam
 
 *tasmin*—in that; *nirmanuje*—without human habitation; *araṇye*—in the forest; *pippala*—banyan tree; *upasthe*—sitting under it; *āśritaḥ*—taking shelter of; *ātmanā*—by intelligence; *ātmānam*—the Supersoul; *ātma-stham*—situated within myself; *yathā-śrutam*—as I had heard it from the liberated souls; *acintayam*—thought over.

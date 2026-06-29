@@ -1,9 +1,9 @@
 ### CC Antya 2.103
 
-> ‘মোর নামে শিখি-মাহিতির ভগিনী-স্থানে গিয়া  ।
+> ‘মোর নামে শিখি-মাহিতির ভগিনী-স্থানে গিয়া  ।\
 > শুক্লচাউল এক মান আনহ মাগিয়া ।।” ১০৩ ॥১০৩॥
 
-> 'mora nāme śikhi-māhitira bhaginī-sthāne giyā
+> 'mora nāme śikhi-māhitira bhaginī-sthāne giyā\
 > śukla-cāula eka māna ānaha māgiyā'
 
 *mora nāme*—in my name; *śikhi-māhitira*—of Śikhi Māhiti; *bhaginī-sthāne*—at the place of the sister; *giyā*—going; *śukla-cāula*—white rice; *eka māna*—the measurement of one *māna*; *ānaha*—please bring; *māgiyā*—requesting.

@@ -1,11 +1,11 @@
 ### SB 8.16.26
 
-> सिनीवाल्यां मृदालिप्य स्नायात्क्रोडविदीर्णया
+> सिनीवाल्यां मृदालिप्य स्नायात्क्रोडविदीर्णया\
 > यदि लभ्येत वै स्रोतस्येतं मन्त्रमुदीरयेत ॥२६॥
 
-> sinīvālyāṁ mṛdālipya
-> snāyāt kroḍa-vidīrṇayā
-> yadi labhyeta vai srotasy
+> sinīvālyāṁ mṛdālipya\
+> snāyāt kroḍa-vidīrṇayā\
+> yadi labhyeta vai srotasy\
 > etaṁ mantram udīrayet
 
 *sinīvālyām*—en el día de Luna nueva; *mṛdā*—con tierra; *ālipya*—ungir el cuerpo; *snāyāt*—se debe bañar; *kroḍa-vidīrṇayā*—escarbada por el colmillo de un jabalí; *yadi*—si; *labhyeta*—se puede conseguir; *vai*—en verdad; *srotasi*—en la corriente de un río; *etam mantram*—este *mantra*; *udīrayet*—se debe cantar.

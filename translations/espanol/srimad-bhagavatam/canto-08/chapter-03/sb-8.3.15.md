@@ -1,11 +1,11 @@
 ### SB 8.3.15
 
-> नमो नमस्तेऽखिलकारणाय निष्कारणायाद्भुतकारणाय
+> नमो नमस्तेऽखिलकारणाय निष्कारणायाद्भुतकारणाय\
 > सर्वागमाम्नायमहार्णवाय नमोऽपवर्गाय परायणाय ॥१५॥
 
-> namo namas te 'khila-kāraṇāya
-> niṣkāraṇāyādbhuta-kāraṇāya
-> sarvāgamāmnāya-mahārṇavāya
+> namo namas te 'khila-kāraṇāya\
+> niṣkāraṇāyādbhuta-kāraṇāya\
+> sarvāgamāmnāya-mahārṇavāya\
 > namo 'pavargāya parāyaṇāya
 
 *namaḥ*—ofrezco mis respetuosas reverencias; *namaḥ*—de nuevo ofrezco mis respetuosas reverencias; *te*—a Ti; *akhila-kāraṇāya*—a la causa suprema de todo; *niṣkāraṇāya*—a Ti, que no tienes causa; *adbhuta-kāraṇāya*—la maravillosa causa de todo; *sarva*—todo; *āgama-āmnāya*—al origen del sistema *paramparā* de todo el conocimiento védico; *mahā-arṇavāya*—el gran océano de conocimiento, o el gran océano en que vierten sus aguas todos los ríos del conocimiento; *namaḥ*—ofrezco mis reverencias; *apavargāya*—a Ti, que puedes dar la salvación, la liberación; *para-ayaṇāya*—el refugio de todos los trascendentalistas.

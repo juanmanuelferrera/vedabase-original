@@ -1,13 +1,13 @@
 ### CC Madhya 2.66
 
-> উন্মাদের লক্ষণ, করায় কৃষ্ণ-স্ফুরণ,
-> ভাবাবেশে উঠে প্রণয় মান ।
-> সোল্লুণ্ঠ-বচন-রীতি, মান, গর্ব, ব্যাজ-স্তুতি,
+> উন্মাদের লক্ষণ, করায় কৃষ্ণ-স্ফুরণ,\
+> ভাবাবেশে উঠে প্রণয় মান ।\
+> সোল্লুণ্ঠ-বচন-রীতি, মান, গর্ব, ব্যাজ-স্তুতি,\
 > কভু নিন্দা, কভু বা সম্মান ॥৬৬॥
 
-> unmādera lakṣaṇa, karāya kṛṣṇa-sphuraṇa,
-> bhāvāveśe uṭhe praṇaya māna
-> solluṇṭha-vacana-rīti, māna, garva, vyāja-stuti,
+> unmādera lakṣaṇa, karāya kṛṣṇa-sphuraṇa,\
+> bhāvāveśe uṭhe praṇaya māna\
+> solluṇṭha-vacana-rīti, māna, garva, vyāja-stuti,\
 > kabhu nindā, kabhu vā sammāna
 
 *unmādera lakṣaṇa*—the symptoms of madness; *karāya*—causes; *kṛṣṇa*—Lord Kṛṣṇa; *sphuraṇa*—impetus; *bhāva-āveśe*—in an ecstatic condition; *uṭhe*—awakens; *praṇaya*—love; *māna*—disdain; *solluṇṭha-vacana*—of disrespect by sweet words; *rīti*—the way; *māna*—honor; *garva*—pride; *vyāja-stuti*—indirect prayer; *kabhu*—sometimes; *nindā*—blasphemy; *kabhu*—sometimes; *vā*—or; *sammāna*—honor.

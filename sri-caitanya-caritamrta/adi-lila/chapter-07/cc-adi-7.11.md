@@ -1,9 +1,9 @@
 ### CC Adi 7.11
 
-> কৃষ্ণমাধুর্যের এক অদ্ভুত স্বভাব ।
+> কৃষ্ণমাধুর্যের এক অদ্ভুত স্বভাব ।\
 > আপনা আস্বাদিতে কৃষ্ণ করে ভক্তভাব ॥১১॥
 
-> kṛṣṇa-mādhuryera eka adbhuta svabhāva
+> kṛṣṇa-mādhuryera eka adbhuta svabhāva\
 > āpanā āsvādite kṛṣṇa kare bhakta-bhāva
 
 *kṛṣṇa-mādhuryera*—the supreme pleasure potency of Kṛṣṇa; *eka*—is one; *adbhuta*—wonderful; *svabhāva*—nature; *āpanā*—Himself; *āsvādite*—to taste; *kṛṣṇa*—the Supreme Personality of Godhead; *kare*—does; *bhakta-bhāva*—accept the form of a devotee.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.35
 
-> ঈশান কহে, — “এক মোহর আছে অবশেষ ।”
+> ঈশান কহে, — “এক মোহর আছে অবশেষ ।”\
 > গোসাঞি কহে, — “মোহর লঞা যাহ’ তুমি দেশ ।।” ॥ ৩৫ ॥
 
-> īśāna kahe,—"eka mohara āche avaśeṣa"
+> īśāna kahe,—"eka mohara āche avaśeṣa"\
 > gosāñi kahe,—"mohara lañā yāha' tumi deśa"
 
 *īśāna kahe*—Īśāna replied; *eka*—one; *mohara*—gold coin; *āche*—is; *avaśeṣa*—left; *gosāñi*—Sanātana Gosvāmī; *kahe*—replied; *mohara lañā*—taking this gold coin; *yāha*—return; *tumi*—you; *deśa*—to your country.

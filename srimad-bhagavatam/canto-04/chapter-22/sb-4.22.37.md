@@ -1,13 +1,13 @@
 ### SB 4.22.37
 
-> तत्त्वं नरेन्द्र जगतामथ तस्थूषां च
-> देहेन्द्रियासुधिषणात्मभिरावृतानाम् ।
-> यः क्षेत्रवित्तपतया हृदि विश्वगाविः
+> तत्त्वं नरेन्द्र जगतामथ तस्थूषां च\
+> देहेन्द्रियासुधिषणात्मभिरावृतानाम् ।\
+> यः क्षेत्रवित्तपतया हृदि विश्वगाविः\
 > प्रत्यक्चकास्ति भगवांस्तमवेहि सोऽस्मि ॥३७॥
 
-> tat tvaṁ narendra jagatām atha tasthūṣāṁ ca
-> dehendriyāsu-dhiṣaṇātmabhir āvṛtānām
-> yaḥ kṣetravit-tapatayā hṛdi viśvag āviḥ
+> tat tvaṁ narendra jagatām atha tasthūṣāṁ ca\
+> dehendriyāsu-dhiṣaṇātmabhir āvṛtānām\
+> yaḥ kṣetravit-tapatayā hṛdi viśvag āviḥ\
 > pratyak cakāsti bhagavāṁs tam avehi so 'smi
 
 *tat*—therefore; *tvam*—you; *nara-indra*—O best of kings; *jagatām*—of the moving; *atha*—therefore; *tasthūṣām*—the immovable; *ca*—also; *deha*—body; *indriya*—senses; *asu*—life air; *dhiṣaṇā*—by consideration; *ātmabhiḥ*—self-realization; *āvṛtānām*—those who are covered in that way; *yaḥ*—one who; *kṣetra-vit*—knower of the field; *tapatayā*—by controlling; *hṛdi*—within the heart; *viśvak*—everywhere; *āviḥ*—manifest; *pratyak*—in every hair follicle; *cakāsti*—shining; *bhagavān*—the Supreme Personality of Godhead; *tam*—unto Him; *avehi*—try to understand; *saḥ asmi*—I am that.

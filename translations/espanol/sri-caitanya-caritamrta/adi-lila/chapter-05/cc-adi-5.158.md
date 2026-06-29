@@ -1,9 +1,9 @@
 ### CC Adi 5.158
 
-> আর এক শুন তাঁর কৃপার মহিমা ।
+> আর এক শুন তাঁর কৃপার মহিমা ।\
 > অধম জীবেরে চঢ়াইল ঊর্ধ্বসীমা ॥১৫৮॥
 
-> āra eka śuna tāṅra kṛpāra mahimā
+> āra eka śuna tāṅra kṛpāra mahimā\
 > adhama jīvere caḍhāila ūrdhva-sīmā
 
 *āra*—otra; *eka*—una; *śuna*—escuchad por favor; *tāṅra kṛpāra mahimā*—la gloria de Su misericordia; *adhama jīvere*—a la entidad viviente caída; *caḍhāila*—elevó; *ūrdhva-sīmā*—hasta el límite más alto.

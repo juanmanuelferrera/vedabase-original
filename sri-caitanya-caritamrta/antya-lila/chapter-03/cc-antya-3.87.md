@@ -1,9 +1,9 @@
 ### CC Antya 3.87
 
-> যে কহে, — ‘চৈতন্য-মহিমা মোর গোচর হয়’  ।
+> যে কহে, — ‘চৈতন্য-মহিমা মোর গোচর হয়’  ।\
 > সে জানুক, মোর পুনঃ এই ত’ নিশ্চয় ॥৮৭॥
 
-> ye kahe,—caitanya-mahimā mora gocara haya'
+> ye kahe,—caitanya-mahimā mora gocara haya'\
 > se jānuka, mora punaḥ ei ta' niścaya
 
 *ye kahe*—whoever says; *caitanya-mahimā*—the glories of Śrī Caitanya Mahāprabhu; *mora gocara*—known to me; *haya*—are; *se jānuka*—he may know; *mora*—of me; *punaḥ*—again; *ei ta' niścaya*—this is the decision;

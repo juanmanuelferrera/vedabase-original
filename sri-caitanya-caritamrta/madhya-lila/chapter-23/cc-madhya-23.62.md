@@ -1,9 +1,9 @@
 ### CC Madhya 23.62
 
-> ‘সম্ভোগ’-‘বিপ্রলম্ভ’-ভেদে দ্বিবিধ শৃঙ্গার ।
+> ‘সম্ভোগ’-‘বিপ্রলম্ভ’-ভেদে দ্বিবিধ শৃঙ্গার ।\
 > সম্ভোগের অনন্ত অঙ্গ, নাহি অন্ত তার ॥৬২॥
 
-> 'sambhoga'-'vipralambha'-bhede dvividha śṛṅgāra
+> 'sambhoga'-'vipralambha'-bhede dvividha śṛṅgāra\
 > sambhogera ananta aṅga, nāhi anta tāra
 
 *sambhoga*—of meeting (enjoyment together); *vipralambha*—of separation; *bhede*—in two divisions; *dvi-vidha śṛṅgāra*—two kinds of conjugal love; *sambhogera*—of the stage of *sambhoga,* or meeting; *ananta aṅga*—unlimited parts; *nāhi*—not; *anta*—an end; *tāra*—of that.

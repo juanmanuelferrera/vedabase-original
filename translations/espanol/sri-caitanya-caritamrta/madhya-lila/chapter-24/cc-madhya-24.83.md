@@ -1,9 +1,9 @@
 ### CC Madhya 24.83
 
-> জ্ঞানমার্গে — নির্বিশেষ-ব্রহ্ম প্রকাশে ।
+> জ্ঞানমার্গে — নির্বিশেষ-ব্রহ্ম প্রকাশে ।\
 > যোগমার্গে — অন্তর্যামী-স্বরূপেতে ভাসে ॥৮৩॥
 
-> jñāna-mārge--nirviśeṣa-brahma prakāśe
+> jñāna-mārge--nirviśeṣa-brahma prakāśe\
 > yoga-mārge--antaryāmi-svarūpete bhāse
 
 *jñāna-mārge*—el proceso de especulación filosófica; *nirviśeṣa-brahma*—la refulgencia del Brahman impersonal; *prakāśe*—se manifiesta; *yoga-mārge*—mediante la práctica del yoga místico; *antaryāmi-svarūpete*—en el aspecto localizado, la Superalma; *bhāse*—aparece.

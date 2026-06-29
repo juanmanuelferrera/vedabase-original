@@ -1,11 +1,11 @@
 ### SB 6.5.24
 
-> स भूयः पाञ्चजन्यायामजेन परिसान्त्वितः
+> स भूयः पाञ्चजन्यायामजेन परिसान्त्वितः\
 > पुत्रानजनयद्दक्षः सवलाश्वान्सहस्रिणः ॥२४॥
 
-> sa bhūyaḥ pāñcajanyāyām
-> ajena parisāntvitaḥ
-> putrān ajanayad dakṣaḥ
+> sa bhūyaḥ pāñcajanyāyām\
+> ajena parisāntvitaḥ\
+> putrān ajanayad dakṣaḥ\
 > savalāśvān sahasriṇaḥ
 
 *saḥ*—Prajāpati Dakṣa; *bhūyaḥ*—de nuevo; *pāñcajanyāyām*—en el vientre de su esposa Asiknī, Pāñcajanī; *ajena*—por el Señor Brahmā; *parisāntvitaḥ*—calmado; *putrān*—hijos; *ajanayat*—engendró; *dakṣaḥ*—Prajāpati Dakṣa; *savalāśvān*—llamados Savalāśvas; *sahasriṇaḥ*—en número de mil.

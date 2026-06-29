@@ -1,9 +1,9 @@
 ### CC Madhya 11.46
 
-> প্রতাপরুদ্র ছাড়ি’ করিবে জগৎ নিস্তার ।
+> প্রতাপরুদ্র ছাড়ি’ করিবে জগৎ নিস্তার ।\
 > এই প্রতিজ্ঞা করি’ করিয়াছেন অবতার ? ৪৬ ॥
 
-> pratāparudra chāḍi' karibe jagat nistāra
+> pratāparudra chāḍi' karibe jagat nistāra\
 > ei pratijñā kari' kariyāchena avatāra?
 
 *pratāparudra chāḍi'*—except for Pratāparudra; *karibe*—He will do; *jagat*—of the whole universe; *nistāra*—deliverance; *ei pratijñā*—this promise; *kari'*—making; *kariyāchena*—has made; *avatāra*—incarnation.

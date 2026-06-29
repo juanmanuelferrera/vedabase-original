@@ -1,9 +1,9 @@
 ### CC Madhya 16.108
 
-> ঐছে তাঁহারে কৃপা কৈল গৌররায় ।
+> ঐছে তাঁহারে কৃপা কৈল গৌররায় ।\
 > “প্রতাপরুদ্র-সংত্রাতা” নাম হৈল যায় ॥১০৮॥
 
-> aiche tāṅhāre kṛpā kaila gaurarāya
+> aiche tāṅhāre kṛpā kaila gaurarāya\
 > "pratāparudra-santrātā" nāma haila yāya
 
 *aiche*—such; *tāṅhāre*—unto the King; *kṛpā*—mercy; *kaila*—showed; *gaurarāya*—Śrī Caitanya Mahāprabhu; *pratāparudra-santrātā*—the deliverer of Mahārāja Pratāparudra; *nāma*—the name; *haila*—became; *yāya*—by which.

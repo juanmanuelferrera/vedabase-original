@@ -1,13 +1,13 @@
 ### CC Madhya 2.22
 
-> যে মদন তনুহীন, পরদ্রোহে পরবীণ,
-> বাণ সন্ধে অনুক্ষণ ।
-> অবলার শরীরে, বিন্ধি’ কৈল জরজরে,
+> যে মদন তনুহীন, পরদ্রোহে পরবীণ,\
+> বাণ সন্ধে অনুক্ষণ ।\
+> অবলার শরীরে, বিন্ধি’ কৈল জরজরে,\
 > দুঃখ দেয়, না লয় জীবন ॥২২॥
 
-> ye madana tanu-hīna, para-drohe paravīṇa,
-> pāṅca bāṇa sandhe anukṣaṇa
-> abalāra śarīre, vindhi' kaila jarajare,
+> ye madana tanu-hīna, para-drohe paravīṇa,\
+> pāṅca bāṇa sandhe anukṣaṇa\
+> abalāra śarīre, vindhi' kaila jarajare,\
 > duḥkha deya, nā laya jīvana
 
 *ye madana*—that Cupid; *tanu-hīna*—without a body; *para-drohe*—in putting others in difficulty; *paravīṇa*—very expert; *pāṅca*—five; *bāṇa*—arrows; *sandhe*—fixes; *anukṣaṇa*—constantly; *abalāra*—of an innocent woman; *śarīre*—in the body; *vindhi'*—piercing; *kaila*—made; *jarajare*—almost invalid; *duḥkha deya*—gives tribulation; *nā*—does not; *laya*—take; *jīvana*—the life.

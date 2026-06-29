@@ -1,11 +1,11 @@
 ### SB 8.16.49
 
-> वर्जयेदसदालापं भोगानुच्चावचांस्तथा
+> वर्जयेदसदालापं भोगानुच्चावचांस्तथा\
 > अहिंस्रः सर्वभूतानां वासुदेवपरायणः ॥४९॥
 
-> varjayed asad-ālāpaṁ
-> bhogān uccāvacāṁs tathā
-> ahiṁsraḥ sarva-bhūtānāṁ
+> varjayed asad-ālāpaṁ\
+> bhogān uccāvacāṁs tathā\
+> ahiṁsraḥ sarva-bhūtānāṁ\
 > vāsudeva-parāyaṇaḥ
 
 *varjayet*—one should give up; *asat-ālāpam*—unnecessary talk on material subject matters; *bhogān*—sense gratification; *ucca-avacān*—superior or inferior; *tathā*—as well as; *ahiṁsraḥ*—without being envious; *sarva-bhūtānām*—of all living entities; *vāsudeva-parāyaṇaḥ*—simply being a devotee of Lord Vāsudeva.

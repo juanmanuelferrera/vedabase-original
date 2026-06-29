@@ -1,9 +1,9 @@
 ### CC Adi 14.50
 
-> কন্যারে কহে, — আমা পূজ, আমি দিব বর ।
+> কন্যারে কহে, — আমা পূজ, আমি দিব বর ।\
 > গঙ্গা-দুর্গা — দাসী মোর, মহেশ-কিঙ্কর ॥৫০॥
 
-> kanyāre kahe,—āmā pūja, āmi diba vara
+> kanyāre kahe,—āmā pūja, āmi diba vara\
 > gaṅgā-durgā—dāsī mora, maheśa—kiṅkara
 
 *kanyāre kahe*—addressing the girls, the Lord would say; *āmā pūja*—"Worship Me"; *āmi*—I; *diba*—shall give; *vara*—nice husband; *gaṅgā*—the Ganges; *durgā*—Goddess Durgā; *dāsī*—maidservants; *mora*—My; *maheśa*—Lord Śiva; *kiṅkara*—servant.

@@ -1,11 +1,11 @@
 ### SB 9.1.33
 
-> तत ऊर्ध्वं वनं तद्वै पुरुषा वर्जयन्ति हि
+> तत ऊर्ध्वं वनं तद्वै पुरुषा वर्जयन्ति हि\
 > सा चानुचरसंयुक्ता विचचार वनाद्वनम ॥३३॥
 
-> tata ūrdhvaṁ vanaṁ tad vai
-> puruṣā varjayanti hi
-> sā cānucara-saṁyuktā
+> tata ūrdhvaṁ vanaṁ tad vai\
+> puruṣā varjayanti hi\
+> sā cānucara-saṁyuktā\
 > vicacāra vanād vanam
 
 *tataḥ ūrdhvam*—from that time onward; *vanam*—forest; *tat*—that; *vai*—in particular; *puruṣāḥ*—males; *varjayanti*—do not enter; *hi*—indeed; *sā*—Sudyumna in the form of a woman; *ca*—also; *anucara-saṁyuktā*—accompanied by his companions; *vicacāra*—walked; *vanāt vanam*—within the forest from one place to another.

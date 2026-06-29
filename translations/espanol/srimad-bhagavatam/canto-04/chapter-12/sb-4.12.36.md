@@ -1,11 +1,11 @@
 ### SB 4.12.36
 
-> यद्भ्राजमानं स्वरुचैव सर्वतो लोकास्त्रयो ह्यनु विभ्राजन्त एते ।
+> यद्भ्राजमानं स्वरुचैव सर्वतो लोकास्त्रयो ह्यनु विभ्राजन्त एते ।\
 > यन्नाव्रजन्जन्तुषु येऽननुग्रहा व्रजन्ति भद्राणि चरन्ति येऽनिशम् ॥३६॥
 
-> yad bhrājamānaṁ sva-rucaiva sarvato
-> lokās trayo hy anu vibhrājanta ete
-> yan nāvrajañ jantuṣu ye 'nanugrahā
+> yad bhrājamānaṁ sva-rucaiva sarvato\
+> lokās trayo hy anu vibhrājanta ete\
+> yan nāvrajañ jantuṣu ye 'nanugrahā\
 > vrajanti bhadrāṇi caranti ye 'niśam
 
 *yat*—planeta que; *bhrājamānam*—luminoso; *sva-rucā*—con luz propia; *eva*—solamente; *sarvataḥ*—en todas partes; *lokāḥ*—sistemas planetarios; *trayaḥ*—tres; *hi*—ciertamente; *anu*—por consiguiente; *vibhrājante*—despiden luz; *ete*—esos; *yat*—planeta que; *na*—no; *avrajan*—han llegado; *jantuṣu*—a las entidades vivientes; *ye*—aquellos que; *ananugrahāḥ*—no misericordiosas; *vrajanti*—llegan; *bhadrāṇi*—actividades benéficas; *caranti*—se ocupan en; *ye*—los que; *aniśam*—sin interrupción.

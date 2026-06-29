@@ -1,13 +1,13 @@
 ### SB 9.4.56
 
-> श्रीशङ्कर उवाच
-> वयं न तात प्रभवाम भूम्नि यस्मिन्परेऽन्येऽप्यजजीवकोशाः
+> श्रीशङ्कर उवाच\
+> वयं न तात प्रभवाम भूम्नि यस्मिन्परेऽन्येऽप्यजजीवकोशाः\
 > भवन्ति काले न भवन्ति हीदृशाः सहस्रशो यत्र वयं भ्रमामः ॥५६॥
 
-> śrī-śaṅkara uvāca
-> vayaṁ na tāta prabhavāma bhūmni
-> yasmin pare 'nye 'py aja-jīva-kośāḥ
-> bhavanti kāle na bhavanti hīdṛśāḥ
+> śrī-śaṅkara uvāca\
+> vayaṁ na tāta prabhavāma bhūmni\
+> yasmin pare 'nye 'py aja-jīva-kośāḥ\
+> bhavanti kāle na bhavanti hīdṛśāḥ\
 > sahasraśo yatra vayaṁ bhramāmaḥ
 
 *śrī-śaṅkaraḥ uvāca*—Lord Śiva said; *vayam*—we; *na*—not; *tāta*—O my dear son; *prabhavāmaḥ*—sufficiently able; *bhūmni*—unto the great Supreme Personality of Godhead; *yasmin*—in whom; *pare*—in the Transcendence; *anye*—others; *api*—even; *aja*—Lord Brahmā; *jīva*—living entities; *kośāḥ*—the universes; *bhavanti*—can become; *kāle*—in due course of time; *na*—not; *bhavanti*—can become; *hi*—indeed; *īdṛśāḥ*—like this; *sahasraśaḥ*—many thousands and millions; *yatra*—wherein; *vayam*—all of us; *bhramāmaḥ*—are rotating.

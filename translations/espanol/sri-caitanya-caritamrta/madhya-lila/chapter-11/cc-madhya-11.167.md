@@ -1,9 +1,9 @@
 ### CC Madhya 11.167
 
-> jagannātha-sevakera mora sparśa nāhi haya
+> jagannātha-sevakera mora sparśa nāhi haya\
 > tāhāṅ paḍi' rahoṅ,-mora ei vāñchā haya
 
-> jagannātha-sevakera mora sparśa nāhi haya
+> jagannātha-sevakera mora sparśa nāhi haya\
 > tāhāṅ paḍi' rahoṅ,-mora ei vāñchā haya
 
 *jagannātha-sevakera*—de los sirvientes del Señor Jagannātha; *mora*—mi; *sparśa*—tocar; *nāhi*—no; *haya*—ocurre; *tāhāṅ*—allí; *paḍi' rahoṅ*—me quedo; *mora*—mi; *ei*—este; *vāñchā*—deseo; *haya*—es.

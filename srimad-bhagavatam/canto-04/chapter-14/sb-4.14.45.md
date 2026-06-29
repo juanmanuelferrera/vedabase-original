@@ -1,11 +1,11 @@
 ### SB 4.14.45
 
-> तं तु तेऽवनतं दीनं किं करोमीति वादिनम् ।
+> तं तु तेऽवनतं दीनं किं करोमीति वादिनम् ।\
 > निषीदेत्यब्रुवंस्तात स निषादस्ततोऽभवत् ॥४५॥
 
-> taṁ tu te 'vanataṁ dīnaṁ
-> kiṁ karomīti vādinam
-> niṣīdety abruvaṁs tāta
+> taṁ tu te 'vanataṁ dīnaṁ\
+> kiṁ karomīti vādinam\
+> niṣīdety abruvaṁs tāta\
 > sa niṣādas tato 'bhavat
 
 *tam*—unto him; *tu*—then; *te*—the sages; *avanatam*—bowed down; *dīnam*—meek; *kim*—what; *karomi*—shall I do; *iti*—thus; *vādinam*—inquiring; *niṣīda*—just sit down; *iti*—thus; *abruvan*—they replied; *tāta*—my dear Vidura; *saḥ*—he; *niṣādaḥ*—of the name Niṣāda; *tataḥ*—thereafter; *abhavat*—became.

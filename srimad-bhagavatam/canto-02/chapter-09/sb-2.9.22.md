@@ -1,11 +1,11 @@
 ### SB 2.9.22
 
-> मनीषितानुभावोऽयं मम लोकावलोकनम् ।
+> मनीषितानुभावोऽयं मम लोकावलोकनम् ।\
 > यदुपश्रुत्य रहसि चकर्थ परमं तपः ॥२२॥
 
-> manīṣitānubhāvo 'yaṁ
-> mama lokāvalokanam
-> yad upaśrutya rahasi
+> manīṣitānubhāvo 'yaṁ\
+> mama lokāvalokanam\
+> yad upaśrutya rahasi\
 > cakartha paramaṁ tapaḥ
 
 *manīṣita*—ingenuity; *anubhāvaḥ*—perception; *ayam*—this; *mama*—My; *loka*—abode; *avalokanam*—seeing by actual experience; *yat*—because; *upaśrutya*—hearing; *rahasi*—in great penance; *cakartha*—having performed; *paramam*—highest; *tapaḥ*—penance.

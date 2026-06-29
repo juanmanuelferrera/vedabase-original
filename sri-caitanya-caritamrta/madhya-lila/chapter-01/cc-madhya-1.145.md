@@ -1,9 +1,9 @@
 ### CC Madhya 1.145
 
-> গুণ্ডিচাতে নৃত্য-অন্তে কৈল জলকেলি ।
+> গুণ্ডিচাতে নৃত্য-অন্তে কৈল জলকেলি ।\
 > হেরা-পঞ্চমীতে দেখিল লক্ষ্মীদেবীর কেলী ॥১৪৫॥
 
-> guṇḍicāte nṛtya-ante kaila jala-keli
+> guṇḍicāte nṛtya-ante kaila jala-keli\
 > herā-pañcamīte dekhila lakṣmī-devīra kelī
 
 *guṇḍicāte*—in the neighborhood of the Guṇḍicā temple; *nṛtya-ante*—after dancing; *kaila*—performed; *jala-keli*—sporting in the water; *herā-pañcamīte*—on the day of Herā-pañcamī; *dekhila*—saw; *lakṣmī-devīra*—of the goddess of fortune; *kelī*—activities.

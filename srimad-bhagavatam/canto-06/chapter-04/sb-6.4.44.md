@@ -1,11 +1,11 @@
 ### SB 6.4.44
 
-> प्रीतोऽहं ते प्रजानाथ यत्तेऽस्योद्बृंहणं तपः
+> प्रीतोऽहं ते प्रजानाथ यत्तेऽस्योद्बृंहणं तपः\
 > ममैष कामो भूतानां यद्भूयासुर्विभूतयः ॥४४॥
 
-> prīto 'haṁ te prajā-nātha
-> yat te 'syodbṛṁhaṇaṁ tapaḥ
-> mamaiṣa kāmo bhūtānāṁ
+> prīto 'haṁ te prajā-nātha\
+> yat te 'syodbṛṁhaṇaṁ tapaḥ\
+> mamaiṣa kāmo bhūtānāṁ\
 > yad bhūyāsur vibhūtayaḥ
 
 *prītaḥ*—very much pleased; *aham*—I; *te*—with you; *prajā-nātha*—O king of population; *yat*—because; *te*—your; *asya*—of this material world; *udbṛṁhaṇam*—causing increase; *tapaḥ*—austerity; *mama*—My; *eṣaḥ*—this; *kāmaḥ*—desire; *bhūtānām*—of the living entities; *yat*—which; *bhūyāsuḥ*—may there be; *vibhūtayaḥ*—advancement in all respects.

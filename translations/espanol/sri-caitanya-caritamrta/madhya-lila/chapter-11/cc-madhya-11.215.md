@@ -1,9 +1,9 @@
 ### CC Madhya 11.215
 
-> চারিদিকে চারি সম্প্রদায় করেন কীর্তন ৷
+> চারিদিকে চারি সম্প্রদায় করেন কীর্তন ৷\
 > মধ্যে নৃত্য করে প্রভু শচীর নন্দন ৷৷ ২১৫ ৷৷ ॥২১৫॥
 
-> cāri-dike cāri sampradāya karena kīrtana
+> cāri-dike cāri sampradāya karena kīrtana\
 > madhye nṛtya kare prabhu śacīra nandana
 
 *cāri-dike*—en las cuatro direcciones; *cāri*—cuatro; *sampradāya*—grupos; *karena*—realizaron; *kīrtana*—canto congregacional; *madhye*—en el centro; *nṛtya kare*—danza; *prabhu*—Śrī Caitanya Mahāprabhu; *śacīra nandana*—el hijo de madre Śacī.

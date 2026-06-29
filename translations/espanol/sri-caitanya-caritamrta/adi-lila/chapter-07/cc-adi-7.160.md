@@ -1,9 +1,9 @@
 ### CC Adi 7.160
 
-> লোক নিস্তারিয়া প্রভুর চলিতে হৈল মন ।
+> লোক নিস্তারিয়া প্রভুর চলিতে হৈল মন ।\
 > বৃন্দাবনে পাঠাইলা শ্রীসনাতন ॥১৬০॥
 
-> loka nistāriyā prabhura calite haila mana
+> loka nistāriyā prabhura calite haila mana\
 > vṛndāvane pāṭhāilā śrī-sanātana
 
 *loka*—a la gente; *nistāriyā*—liberando; *prabhura*—del Señor; *calite*—de partir; *haila*—se volvió; *mana*—mente; *vṛndāvane*—hacia Vṛndāvana; *pāṭhāilā*—envió; *śrī-sanātana*—Sanātana Gosvāmī.

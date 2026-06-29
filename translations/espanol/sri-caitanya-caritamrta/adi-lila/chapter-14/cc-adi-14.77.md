@@ -1,9 +1,9 @@
 ### CC Adi 14.77
 
-> শচী বলে, — যাহ, পুত্র, বোলাহ বাপেরে ।
+> শচী বলে, — যাহ, পুত্র, বোলাহ বাপেরে ।\
 > মাতৃ-আজ্ঞা পাইয়া প্রভু চলিলা বাহিরে ॥৭৭॥
 
-> śacī bale,--yāha, putra, bolāha bāpere
+> śacī bale,--yāha, putra, bolāha bāpere\
 > mātṛ-ājñā pāiyā prabhu calilā bāhire
 
 *śacī bale*—la madre Śacī dijo; *yāha*—ve; *putra*—hijo mío; *bolāha*—llama; *bāpere*—a Tu padre; *mātṛ-ājñā*—la orden de Su madre; *pāiyā*—recibiendo; *prabhu*—el Señor; *calilā*—fue; *bāhire*—afuera.

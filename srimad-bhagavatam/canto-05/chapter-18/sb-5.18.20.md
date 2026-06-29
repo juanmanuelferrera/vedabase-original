@@ -1,11 +1,11 @@
 ### SB 5.18.20
 
-> स वै पतिः स्यादकुतोभयः स्वयं समन्ततः पाति भयातुरं जनम
+> स वै पतिः स्यादकुतोभयः स्वयं समन्ततः पाति भयातुरं जनम\
 > स एक एवेतरथा मिथो भयं नैवात्मलाभादधि मन्यते परम ॥२०॥
 
-> sa vai patiḥ syād akutobhayaḥ svayaṁ
-> samantataḥ pāti bhayāturaṁ janam
-> sa eka evetarathā mitho bhayaṁ
+> sa vai patiḥ syād akutobhayaḥ svayaṁ\
+> samantataḥ pāti bhayāturaṁ janam\
+> sa eka evetarathā mitho bhayaṁ\
 > naivātmalābhād adhi manyate param
 
 *saḥ*—he; *vai*—indeed; *patiḥ*—a husband; *syāt*—would be; *akutaḥ-bhayaḥ*—who is not fearful of anyone; *svayam*—self-sufficient; *samantataḥ*—entirely; *pāti*—maintains; *bhaya-āturam*—who is very afraid; *janam*—a person; *saḥ*—therefore he; *ekaḥ*—one; *eva*—only; *itarathā*—otherwise; *mithaḥ*—from one another; *bhayam*—fear; *na*—not; *eva*—indeed; *ātma-lābhāt*—than the attainment of You; *adhi*—greater; *manyate*—is accepted; *param*—other thing.

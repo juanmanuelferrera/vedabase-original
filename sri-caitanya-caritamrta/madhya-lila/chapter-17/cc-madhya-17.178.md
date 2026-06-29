@@ -1,11 +1,11 @@
 ### CC Madhya 17.178
 
-> যদ্যদাচরতি শ্রেষ্ঠস্তত্তদেবেতরো জনঃ ।
+> যদ্যদাচরতি শ্রেষ্ঠস্তত্তদেবেতরো জনঃ ।\
 > স যৎ প্ৰমাণং কুরুতে লোকস্তদনুবর্ততে ॥১৭৮॥
 
-> yad yad ācarati śreṣṭhas
-> tat tad evetaro janaḥ
-> sa yat pramāṇaṁ kurute
+> yad yad ācarati śreṣṭhas\
+> tat tad evetaro janaḥ\
+> sa yat pramāṇaṁ kurute\
 > lokas tad anuvartate
 
 *yat yat*—however; *ācarati*—behaves; *śreṣṭaḥ*—the best man; *tat tat*—that; *eva*—certainly; *itaraḥ*—the lesser; *janaḥ*—men; *saḥ*—he; *yat*—which; *pramāṇam*—standard; *kurute*—shows; *lokaḥ*—the people; *tat*—that; *anuvartate*—follow.

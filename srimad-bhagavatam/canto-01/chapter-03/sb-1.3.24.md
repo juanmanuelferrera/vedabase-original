@@ -1,11 +1,11 @@
 ### SB 1.3.24
 
-> ततः कलौ सम्प्रवृत्ते सम्मोहाय सुरद्विषाम् ।
+> ततः कलौ सम्प्रवृत्ते सम्मोहाय सुरद्विषाम् ।\
 > बुद्धो नाम्नाञ्जनसुतः कीकटेषु भविष्यति ॥२४॥
 
-> tataḥ kalau sampravṛtte
-> sammohāya sura-dviṣām
-> buddho nāmnāñjana-sutaḥ
+> tataḥ kalau sampravṛtte\
+> sammohāya sura-dviṣām\
+> buddho nāmnāñjana-sutaḥ\
 > kīkaṭeṣu bhaviṣyati
 
 *tataḥ*—thereafter; *kalau*—the age of Kali; *sampravṛtte*—having ensued; *sammohāya*—for the purpose of deluding; *sura*—the theists; *dviṣām*—those who are envious; *buddhaḥ*—Lord Buddha; *nāmnā*—of the name; *añjana-sutaḥ*—whose mother was Añjanā; *kīkaṭeṣu*—in the province of Gayā (Bihar); *bhaviṣyati*—will take place.

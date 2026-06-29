@@ -1,11 +1,11 @@
 ### SB 1.15.15
 
-> यो भीष्मकर्णगुरुशल्यचमूष्वदभ्र राजन्यवर्यरथमण्डलमण्डितासु ।
+> यो भीष्मकर्णगुरुशल्यचमूष्वदभ्र राजन्यवर्यरथमण्डलमण्डितासु ।\
 > अग्रेचरो मम विभो रथयूथपानामायुर्मनांसि च दृशा सह ओज आर्च्छत् ॥१५॥
 
-> yo bhīṣma-karṇa-guru-śalya-camūṣv adabhra-
-> rājanya-varya-ratha-maṇḍala-maṇḍitāsu
-> agrecaro mama vibho ratha-yūthapānām
+> yo bhīṣma-karṇa-guru-śalya-camūṣv adabhra-\
+> rājanya-varya-ratha-maṇḍala-maṇḍitāsu\
+> agrecaro mama vibho ratha-yūthapānām\
 > āyur manāṁsi ca dṛśā saha oja ārcchat
 
 *yaḥ*—it is He only; *bhīṣma*—Bhīṣma; *karṇa*—Karṇa; *guru*—Droṇācārya; *śalya*—Śalya; *camūṣu*—in the midst of the military phalanx; *adabhra*—immense; *rājanya-varya*—great royal princes; *ratha-maṇḍala*—chain of chariots; *maṇḍitāsu*—being decorated with; *agre caraḥ*—going forward; *mama*—of mine; *vibho*—O great King; *ratha-yūtha-pānām*—all the charioteers; *āyuḥ*—duration of life or fruitive activities; *manāṁsi*—mental upsurges; *ca*—also; *dṛśā*—by glance; *sahaḥ*—power; *ojaḥ*—strength; *ārcchat*—withdrew.

@@ -1,11 +1,11 @@
 ### SB 8.20.12
 
-> यद्यप्यसावधर्मेण मां बध्नीयादनागसम
+> यद्यप्यसावधर्मेण मां बध्नीयादनागसम\
 > तथाप्येनं न हिंसिष्ये भीतं ब्रह्मतनुं रिपुम ॥१२॥
 
-> yadyapy asāv adharmeṇa
-> māṁ badhnīyād anāgasam
-> tathāpy enaṁ na hiṁsiṣye
+> yadyapy asāv adharmeṇa\
+> māṁ badhnīyād anāgasam\
+> tathāpy enaṁ na hiṁsiṣye\
 > bhītaṁ brahma-tanuṁ ripum
 
 *yadyapi*—aunque; *asau*—el Señor Viṣṇu; *adharmeṇa*—con engaños, sin seguir las pautas de buena conducta; *mām*—a mí; *badhnīyāt*—mata; *anāgasam*—aunque no he pecado; *tathāpi*—aun así; *enam*—contra Él; *na*—no; *hiṁsiṣye*—tomaré ninguna represalia; *bhītam*—puesto que tiene miedo; *brahma-tanum*—que ha adoptado la forma de un *brāhmaṇa-brahmacārī*; *ripum*—aunque es mi enemigo.

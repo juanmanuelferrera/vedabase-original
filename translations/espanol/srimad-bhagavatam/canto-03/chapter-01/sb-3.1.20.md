@@ -1,11 +1,11 @@
 ### SB 3.1.20
 
-> इत्थं व्रजन्भारतमेव वर्षं कालेन यावद्गतवान्प्रभासम् ।
+> इत्थं व्रजन्भारतमेव वर्षं कालेन यावद्गतवान्प्रभासम् ।\
 > तावच्छशास क्षितिमेक चक्राम्लेकातपत्रामजितेन पार्थः ॥२०॥
 
-> itthaṁ vrajan bhāratam eva varṣaṁ
-> kālena yāvad gatavān prabhāsam
-> tāvac chaśāsa kṣitim eka cakrām
+> itthaṁ vrajan bhāratam eva varṣaṁ\
+> kālena yāvad gatavān prabhāsam\
+> tāvac chaśāsa kṣitim eka cakrām\
 > ekātapatrām ajitena pārthaḥ
 
 *ittham*—así; *vrajan*—mientras viajaba; *bhāratam*—la India; *eva*—únicamente; *varṣam*—el terreno; *kālena*—a su debido tiempo; *yāvat*—cuando; *gatavān*—visitó; *prabhāsam*—Prabhāsa, el lugar de peregrinaje; *tāvat*—en ese entonces; *śaśāsa*—regía; *kṣitim*—el mundo; *eka-cakrām*—mediante una sola fuerza militar; *eka*—una; *ātapatrām*—bandera; *ajitena*—por la misericordia del inconquistable Kṛṣṇa; *pārthaḥ*—Mahārāja Yudhiṣṭhira.

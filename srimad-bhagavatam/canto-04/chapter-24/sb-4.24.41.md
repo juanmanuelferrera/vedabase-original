@@ -1,11 +1,11 @@
 ### SB 4.24.41
 
-> प्रवृत्ताय निवृत्ताय पितृदेवाय कर्मणे ।
+> प्रवृत्ताय निवृत्ताय पितृदेवाय कर्मणे ।\
 > नमोऽधर्मविपाकाय मृत्यवे दुःखदाय च ॥४१॥
 
-> pravṛttāya nivṛttāya
-> pitṛ-devāya karmaṇe
-> namo 'dharma-vipākāya
+> pravṛttāya nivṛttāya\
+> pitṛ-devāya karmaṇe\
+> namo 'dharma-vipākāya\
 > mṛtyave duḥkha-dāya ca
 
 *pravṛttāya*—inclination; *nivṛttāya*—disinclination; *pitṛ-devāya*—unto the master of Pitṛloka; *karmaṇe*—unto the resultant action of fruitive activities; *namaḥ*—offering respects; *adharma*—irreligious; *vipākāya*—unto the result; *mṛtyave*—unto death; *duḥkha-dāya*—the cause of all kinds of miserable conditions; *ca*—also.

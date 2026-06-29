@@ -1,13 +1,13 @@
 ### SB 6.2.1
 
-> श्रीबादरायणिरुवाच
-> एवं ते भगवद्दूता यमदूताभिभाषितम
+> श्रीबादरायणिरुवाच\
+> एवं ते भगवद्दूता यमदूताभिभाषितम\
 > उपधार्याथ तान्राजन्प्रत्याहुर्नयकोविदाः ॥१॥
 
-> śrī-bādarāyaṇir uvāca
-> evaṁ te bhagavad-dūtā
-> yamadūtābhibhāṣitam
-> upadhāryātha tān rājan
+> śrī-bādarāyaṇir uvāca\
+> evaṁ te bhagavad-dūtā\
+> yamadūtābhibhāṣitam\
+> upadhāryātha tān rājan\
 > pratyāhur naya-kovidāḥ
 
 *śrī-bādarāyaṇiḥ uvāca*—Śukadeva Gosvāmī, el hijo de Vyāsadeva, dijo; *evam*—así; *te*—ellos; *bhagavat-dūtāḥ*—los sirvientes del Señor Viṣṇu; *yamadūta*—por los sirvientes de Yamarāja; *abhibhāṣitam*—lo que fue hablado; *upadhārya*—escuchar; *atha*—entonces; *tān*—a ellos; *rājan*—¡oh, rey!; *pratyāhuḥ*—contestaron debidamente; *naya-kovidāḥ*—bien versados en la argumentación y en la lógica.

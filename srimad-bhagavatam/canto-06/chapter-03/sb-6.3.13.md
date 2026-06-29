@@ -1,11 +1,11 @@
 ### SB 6.3.13
 
-> यो नामभिर्वाचि जनं निजायां बध्नाति तन्त्र्यामिव दामभिर्गाः
+> यो नामभिर्वाचि जनं निजायां बध्नाति तन्त्र्यामिव दामभिर्गाः\
 > यस्मै बलिं त इमे नामकर्म निबन्धबद्धाश्चकिता वहन्ति ॥१३॥
 
-> yo nāmabhir vāci janaṁ nijāyāṁ
-> badhnāti tantryām iva dāmabhir gāḥ
-> yasmai baliṁ ta ime nāma-karma-
+> yo nāmabhir vāci janaṁ nijāyāṁ\
+> badhnāti tantryām iva dāmabhir gāḥ\
+> yasmai baliṁ ta ime nāma-karma-\
 > nibandha-baddhāś cakitā vahanti
 
 *yaḥ*—He who; *nāmabhiḥ*—by different names; *vāci*—to the Vedic language; *janam*—all people; *nijāyām*—which has emanated from Himself; *badhnāti*—binds; *tantryām*—to a rope; *iva*—like; *dāmabhiḥ*—by cords; *gāḥ*—bulls; *yasmai*—unto whom; *balim*—a small presentation of taxes; *te*—all of them; *ime*—these; *nāma-karma*—of names and different activities; *nibandha*—by the obligations; *baddhāḥ*—bound; *cakitāḥ*—being fearful; *vahanti*—carry.

@@ -1,9 +1,9 @@
 ### CC Antya 18.67
 
-> এবে ভয় গেল, তোমার মন হৈল স্থিরে ।
+> এবে ভয় গেল, তোমার মন হৈল স্থিরে ।\
 > কাহাঁ তাঁরে উঠাঞাছ, দেখাহ আমারে ।।” ॥ ৬৭ ॥
 
-> ebe bhaya gela, tomāra mana haila sthire
+> ebe bhaya gela, tomāra mana haila sthire\
 > kāhāṅ tāṅre uṭhāñācha, dekhāha āmāre"
 
 *ebe*—now; *bhaya*—fear; *gela*—has gone; *tomāra*—your; *mana*—mind; *haila*—has become; *sthire*—pacified; *kāhāṅ*—where; *tāṅre*—Him; *uṭhāñācha*—have you lifted; *dekhāha*—please show; *āmāre*—me.

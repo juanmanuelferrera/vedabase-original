@@ -1,9 +1,9 @@
 ### CC Madhya 16.244
 
-> দেখি’ তাঁর পিতা-মাতা বড় সুখ পাইল ।
+> দেখি’ তাঁর পিতা-মাতা বড় সুখ পাইল ।\
 > তাঁহার আবরণ কিছু শিথিল হইল ॥২৪৪॥
 
-> dekhi' tāṅra pitā-mātā baḍa sukha pāila
+> dekhi' tāṅra pitā-mātā baḍa sukha pāila\
 > tāṅhāra āvaraṇa kichu śithila ha-ila
 
 *dekhi'*—al ver; *tāṅra*—sus; *pitā-mātā*—padre y madre; *baḍa*—mucha; *sukha*—felicidad; *pāila*—sintieron; *tāṅhāra āvaraṇa*—la estricta vigilancia sobre él; *kichu*—algo; *śithila ha-ila*—se relajó.

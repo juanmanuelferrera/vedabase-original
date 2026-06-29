@@ -1,11 +1,11 @@
 ### SB 8.18.13
 
-> तं वटुं वामनं दृष्ट्वा मोदमाना महर्षयः
+> तं वटुं वामनं दृष्ट्वा मोदमाना महर्षयः\
 > कर्माणि कारयामासुः पुरस्कृत्य प्रजापतिम ॥१३॥
 
-> taṁ vaṭuṁ vāmanaṁ dṛṣṭvā
-> modamānā maharṣayaḥ
-> karmāṇi kārayām āsuḥ
+> taṁ vaṭuṁ vāmanaṁ dṛṣṭvā\
+> modamānā maharṣayaḥ\
+> karmāṇi kārayām āsuḥ\
 > puraskṛtya prajāpatim
 
 *tam*—Him; *vaṭum*—the *brahmacārī*; *vāmanam*—dwarf; *dṛṣṭvā*—seeing; *modamānāḥ*—in a happy mood; *mahā-ṛṣayaḥ*—the great saintly persons; *karmāṇi*—ritualistic ceremonies; *kārayām āsuḥ*—performed; *puraskṛtya*—keeping in front; *prajāpatim*—Kaśyapa Muni, the Prajāpati.

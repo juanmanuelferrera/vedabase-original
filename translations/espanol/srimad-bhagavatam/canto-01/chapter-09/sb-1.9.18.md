@@ -1,11 +1,11 @@
 ### SB 1.9.18
 
-> एष वै भगवान्साक्षादाद्यो नारायणः पुमान् ।
+> एष वै भगवान्साक्षादाद्यो नारायणः पुमान् ।\
 > मोहयन्मायया लोकं गूढश्चरति वृष्णिषु ॥१८॥
 
-> eṣa vai bhagavān sākṣād
-> ādyo nārāyaṇaḥ pumān
-> mohayan māyayā lokaṁ
+> eṣa vai bhagavān sākṣād\
+> ādyo nārāyaṇaḥ pumān\
+> mohayan māyayā lokaṁ\
 > gūḍhaś carati vṛṣṇiṣu
 
 *eṣaḥ*—este; *vai*—positivamente; *bhagavān*—la Personalidad de Dios; *sākṣāt*—original; *ādyaḥ*—el primer; *nārāyaṇaḥ*—el Señor Supremo (que se acuesta en el agua); *pumān*—el supremo disfrutador; *mohayan*—desconcertante; *māyayā*—por Su energía, creada por Él mismo; *lokam*—los planetas; *gūḍhaḥ*—quien es inconcebible; *carati*—se desenvuelve; *vṛṣṇiṣu*—en el seno de la familia Vṛṣṇi.

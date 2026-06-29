@@ -1,9 +1,9 @@
 ### CC Antya 16.139
 
-> ‘কহ রাম-রায়, কিছু শুনিতে হয় মন’ ।
+> ‘কহ রাম-রায়, কিছু শুনিতে হয় মন’ ।\
 > ভাব জানি’ পড়ে রায় গোপীর বচন ॥১৩৯॥
 
-> 'kaha rāma-rāya, kichu śunite haya mana'
+> 'kaha rāma-rāya, kichu śunite haya mana'\
 > bhāva jāni' paḍe rāya gopīra vacana
 
 *kaha*—speak; *rāma-rāya*—Rāmānanda Rāya; *kichu*—something; *śunite*—to hear; *haya mana*—I wish; *bhāva*—the situation; *jāni'*—understanding; *paḍe rāya*—Rāmānanda Rāya cites; *gopīra vacana*—the words of the *gopīs.*

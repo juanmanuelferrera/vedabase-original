@@ -1,13 +1,13 @@
 ### SB 3.20.9
 
-> विदुर उवाच
-> प्रजापतिपतिः सृष्ट्वा प्रजासर्गे प्रजापतीन् ।
+> विदुर उवाच\
+> प्रजापतिपतिः सृष्ट्वा प्रजासर्गे प्रजापतीन् ।\
 > किमारभत मे ब्रह्मन्प्रब्रूह्यव्यक्तमार्गवित् ॥९॥
 
-> vidura uvāca
-> prajāpati-patiḥ sṛṣṭvā
-> prajā-sarge prajāpatīn
-> kim ārabhata me brahman
+> vidura uvāca\
+> prajāpati-patiḥ sṛṣṭvā\
+> prajā-sarge prajāpatīn\
+> kim ārabhata me brahman\
 > prabrūhy avyakta-mārga-vit
 
 *viduraḥ uvāca*—Vidura said; *prajāpati-patiḥ*—Lord Brahmā; *sṛṣṭvā*—after creating; *prajā-sarge*—for the purpose of creating living beings; *prajāpatīn*—the Prajāpatis; *kim*—what; *ārabhata*—started; *me*—to me; *brahman*—O holy sage; *prabrūhi*—tell; *avyakta-mārga-vit*—knower of that which we do not know.

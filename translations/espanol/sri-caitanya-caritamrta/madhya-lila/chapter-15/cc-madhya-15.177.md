@@ -1,9 +1,9 @@
 ### CC Madhya 15.177
 
-> তার এক রাই-নাশে হানি নাহি মানি ।
+> তার এক রাই-নাশে হানি নাহি মানি ।\
 > ঐছে এক অণ্ড-নাশে কৃষ্ণের নাহি হানি ॥১৭৭॥
 
-> tāra eka rāi-nāśe hāni nāhi māni
+> tāra eka rāi-nāśe hāni nāhi māni\
 > aiche eka aṇḍa-nāśe kṛṣṇera nāhi hāni
 
 *tāra*—de ella; *eka*—una; *rāi-nāśe*—pérdida de una semilla de mostaza; *hāni*—pérdida; *nāhi*—no; *māni*—advierte; *aiche*—de ese modo; *eka*—un; *aṇḍa*—universo; *nāśe*—al perderse; *kṛṣṇera*—de Kṛṣṇa; *nāhi hāni*—no hay pérdida.

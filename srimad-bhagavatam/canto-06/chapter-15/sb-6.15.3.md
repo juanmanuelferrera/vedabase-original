@@ -1,11 +1,11 @@
 ### SB 6.15.3
 
-> यथा प्रयान्ति संयान्ति स्रोतोवेगेन बालुकाः
+> यथा प्रयान्ति संयान्ति स्रोतोवेगेन बालुकाः\
 > संयुज्यन्ते वियुज्यन्ते तथा कालेन देहिनः ॥३॥
 
-> yathā prayānti saṁyānti
-> sroto-vegena bālukāḥ
-> saṁyujyante viyujyante
+> yathā prayānti saṁyānti\
+> sroto-vegena bālukāḥ\
+> saṁyujyante viyujyante\
 > tathā kālena dehinaḥ
 
 *yathā*—just as; *prayānti*—move apart; *saṁyānti*—come together; *srotaḥ-vegena*—by the force of waves; *bālukāḥ*—the small particles of sand; *saṁyujyante*—they are united; *viyujyante*—they are separated; *tathā*—similarly; *kālena*—by time; *dehinaḥ*—the living entities who have accepted material bodies.

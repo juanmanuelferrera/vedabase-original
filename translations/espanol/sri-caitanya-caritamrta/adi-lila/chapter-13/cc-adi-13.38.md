@@ -1,9 +1,9 @@
 ### CC Adi 13.38
 
-> তার মধ্যে ছয় বৎসর ভক্তগণ-সঙ্গে ।
+> তার মধ্যে ছয় বৎসর ভক্তগণ-সঙ্গে ।\
 > প্রেমভক্তি লওয়াইল নৃত্য-গীত-রঙ্গে ॥৩৮॥
 
-> tāra madhye chaya vatsara bhaktagaṇa-saṅge
+> tāra madhye chaya vatsara bhaktagaṇa-saṅge\
 > prema-bhakti laoyāila nṛtya-gīta-raṅge
 
 *tāra madhye*—de eso; *chaya vatsara*—seis años; *bhakta-gaṇa-saṅge*—junto con los devotos; *prema-bhakti*—amor por Kṛṣṇa; *laoyāila*—indujo; *nṛtya*—danza; *gīta*—canto; *raṅge*—en dicha trascendental.

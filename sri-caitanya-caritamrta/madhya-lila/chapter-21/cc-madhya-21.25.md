@@ -1,9 +1,9 @@
 ### CC Madhya 21.25
 
-> “যে কহে — ‘কৃষ্ণের বৈভব মুঞি সব জানোঁ’  ।
+> “যে কহে — ‘কৃষ্ণের বৈভব মুঞি সব জানোঁ’  ।\
 > সে জানুক, — কায়মনে মুঞি এই মানোঁ ॥২৫॥
 
-> "ye kahe—'kṛṣṇera vaibhava muñi saba jānoṅ'
+> "ye kahe—'kṛṣṇera vaibhava muñi saba jānoṅ'\
 > se jānuka,—kāya-mane muñi ei mānoṅ
 
 *ye kahe*—if anyone says; *kṛṣṇera*—of Lord Kṛṣṇa; *vaibhava*—opulences; *muñi*—I; *saba*—all; *jānoṅ*—know; *se jānuka*—let him know; *kāya-mane*—by my body and mind; *muñi*—myself; *ei*—this; *mānoṅ*—accept.

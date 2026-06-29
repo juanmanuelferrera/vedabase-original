@@ -1,11 +1,11 @@
 ### CC Antya 3.64
 
-> ম্রিয়মাণো হরের্নাম গৃণন্ পুত্রোপচারিতম্ ।
+> ম্রিয়মাণো হরের্নাম গৃণন্ পুত্রোপচারিতম্ ।\
 > অজামিলোঽপ্যগাদ্ধাম কিমুত শ্রদ্ধয়া গৃণন্ ॥৬৪॥
 
-> mriyamāṇo harer nāma
-> gṛṇan putropacāritam
-> ajāmilo 'py agād dhāma
+> mriyamāṇo harer nāma\
+> gṛṇan putropacāritam\
+> ajāmilo 'py agād dhāma\
 > kim uta śraddhayā gṛṇan
 
 *mriyamāṇaḥ*—dying; *hareḥ nāma*—the holy name of the Supreme Lord; *gṛṇan*—chanting; *putra-upacāritam*—though spoken for his son; *ajāmilaḥ*—Ajāmila; *api*—also; *agāt*—attained; *dhāma*—the spiritual world; *kim uta*—what to speak of; *śraddhayā*—with faith and reverence; *gṛṇan*—chanting;

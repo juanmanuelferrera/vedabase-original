@@ -1,9 +1,9 @@
 ### CC Madhya 14.137
 
-> মানিনী নিরুৎসাহে ছাড়ে বিভূষণ ।
+> মানিনী নিরুৎসাহে ছাড়ে বিভূষণ ।\
 > ভূমে বসি’ নখে লেখে, মলিন-বদন ॥১৩৭॥
 
-> māninī nirutsāhe chāḍe vibhūṣaṇa
+> māninī nirutsāhe chāḍe vibhūṣaṇa\
 > bhūme vasi' nakhe lekhe, malina-vadana
 
 *māninī*—proud, egoistic woman; *nirutsāhe*—because of disappointment; *chāḍe*—gives up; *vibhūṣaṇa*—all kinds of ornaments; *bhūme vasi'*—sitting on the floor; *nakhe*—with the nails; *lekhe*—marks lines; *malina-vadana*—with a morose face.

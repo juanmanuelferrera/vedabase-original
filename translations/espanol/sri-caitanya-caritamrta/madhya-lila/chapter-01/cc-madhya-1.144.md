@@ -1,9 +1,9 @@
 ### CC Madhya 1.144
 
-> উপবনে কৈল প্রভু বিবিধ বিলাস ।
+> উপবনে কৈল প্রভু বিবিধ বিলাস ।\
 > প্ৰভুর অভিষেক কৈল বিপ্র কৃষ্ণদাস ॥১৪৪॥
 
-> upavane kaila prabhu vividha vilāsa
+> upavane kaila prabhu vividha vilāsa\
 > prabhura abhiṣeka kaila vipra kṛṣṇadāsa
 
 *upavane*—en el jardín junto al camino; *kaila*—realizó; *prabhu*—el Señor Caitanya Mahāprabhu; *vividha*—diversas; *vilāsa*—pasatiempos; *prabhura*—del Señor Caitanya Mahāprabhu; *abhiṣeka*—baño ceremonial; *kaila*—realizó; *vipra*—el brāhmaṇa; *kṛṣṇadāsa*—de nombre Kṛṣṇadāsa.

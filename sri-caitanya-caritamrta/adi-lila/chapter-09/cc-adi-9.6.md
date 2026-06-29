@@ -1,11 +1,11 @@
 ### CC Adi 9.6
 
-> মালাকারঃ স্বয়ং কৃষ্ণপ্রেমামরতরুঃ স্বয়ম্ ।
+> মালাকারঃ স্বয়ং কৃষ্ণপ্রেমামরতরুঃ স্বয়ম্ ।\
 > দাতা ভোক্তা তৎফলানাং যস্তং চৈতন্যমাশ্রয়ে ॥৬॥
 
-> mālā-kāraḥ svayaṁ kṛṣṇa-
-> premāmara-taruḥ svayam
-> dātā bhoktā tat-phalānāṁ
+> mālā-kāraḥ svayaṁ kṛṣṇa-\
+> premāmara-taruḥ svayam\
+> dātā bhoktā tat-phalānāṁ\
 > yas taṁ caitanyam āśraye
 
 *mālā-kāraḥ*—gardener; *svayam*—Himself; *kṛṣṇa*—Lord Kṛṣṇa; *prema*—love; *amara*—transcendental; *taruḥ*—tree; *svayam*—Himself; *dātā*—giver; *bhoktā*—enjoyer; *tat-phalānām*—of all the fruits of that tree; *yaḥ*—one who; *tam*—unto Him; *caitanyam*—Lord Caitanya Mahāprabhu; *āśraye*—I take shelter.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.169
 
-> এই ‘শুদ্ধভক্তি’ — ইহা হৈতে ‘প্রেমা’ হয় ।
+> এই ‘শুদ্ধভক্তি’ — ইহা হৈতে ‘প্রেমা’ হয় ।\
 > পঞ্চরাত্রে, ভাগবতে এই লক্ষণ কয় ॥১৬৯॥
 
-> ei 'śuddha-bhakti'--ihā haite 'premā' haya
+> ei 'śuddha-bhakti'--ihā haite 'premā' haya\
 > pañcarātre, bhāgavate ei lakṣaṇa kaya
 
 *ei*—este; *śuddha-bhakti*—servicio devocional puro; *ihā haite*—del cual; *premā*—amor puro por Kṛṣṇa; *haya*—existe; *pañcarātre*—en la literatura Védica conocida como los *Pañcarātras*; *bhāgavate*—también en el *Śrīmad-Bhāgavatam*; *ei*—estos; *lakṣaṇa*—síntomas; *kaya*—se describen.

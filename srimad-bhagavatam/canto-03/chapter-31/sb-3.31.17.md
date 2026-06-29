@@ -1,13 +1,13 @@
 ### SB 3.31.17
 
-> देह्यन्यदेहविवरे जठराग्निनासृग्
-> विण्मूत्रकूपपतितो भृशतप्तदेहः ।
-> इच्छन्नितो विवसितुं गणयन्स्वमासान्
+> देह्यन्यदेहविवरे जठराग्निनासृग्\
+> विण्मूत्रकूपपतितो भृशतप्तदेहः ।\
+> इच्छन्नितो विवसितुं गणयन्स्वमासान्\
 > निर्वास्यते कृपणधीर्भगवन्कदा नु ॥१७॥
 
-> dehy anya-deha-vivare jaṭharāgnināsṛg-
-> viṇ-mūtra-kūpa-patito bhṛśa-tapta-dehaḥ
-> icchann ito vivasituṁ gaṇayan sva-māsān
+> dehy anya-deha-vivare jaṭharāgnināsṛg-\
+> viṇ-mūtra-kūpa-patito bhṛśa-tapta-dehaḥ\
+> icchann ito vivasituṁ gaṇayan sva-māsān\
 > nirvāsyate kṛpaṇa-dhīr bhagavan kadā nu
 
 *dehī*—the embodied soul; *anya-deha*—of another body; *vivare*—in the abdomen; *jaṭhara*—of the stomach; *agninā*—by the fire; *asṛk*—of blood; *viṭ*—stool; *mūtra*—and urine; *kūpa*—in a pool; *patitaḥ*—fallen; *bhṛśa*—strongly; *tapta*—scorched; *dehaḥ*—his body; *icchan*—desiring; *itaḥ*—from that place; *vivasitum*—to get out; *gaṇayan*—counting; *svamāsān*—his months; *nirvāsyate*—will be released; *kṛpaṇa-dhīḥ*—person of miserly intelligence; *bhagavan*—O Lord; *kadā*—when; *nu*—indeed.

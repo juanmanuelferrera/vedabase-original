@@ -1,11 +1,11 @@
 ### SB 7.10.4
 
-> नान्यथा तेऽखिलगुरो घटेत करुणात्मनः
+> नान्यथा तेऽखिलगुरो घटेत करुणात्मनः\
 > यस्त आशिष आशास्ते न स भृत्यः स वै वणिक ॥४॥
 
-> nānyathā te 'khila-guro
-> ghaṭeta karuṇātmanaḥ
-> yas ta āśiṣa āśāste
+> nānyathā te 'khila-guro\
+> ghaṭeta karuṇātmanaḥ\
+> yas ta āśiṣa āśāste\
 > na sa bhṛtyaḥ sa vai vaṇik
 
 *na*—no; *anyathā*—de otra manera; *te*—de Ti; *akhila-guro*—¡oh, instructor de la creación entera!; *ghaṭeta*—eso puede suceder; *karuṇā-ātmanaḥ*—la Persona Suprema, que es sumamente bondadoso con Sus devotos; *yaḥ*—toda persona que; *te*—de Ti; *āśiṣaḥ*—beneficios materiales; *āśāste*—desea (a cambio de servirte); *na*—no; *saḥ*—esa persona; *bhṛtyaḥ*—un servidor; *saḥ*—esa persona; *vai*—en verdad; *vaṇik*—un comerciante (que desea beneficios materiales de sus negocios).

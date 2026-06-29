@@ -1,13 +1,13 @@
 ### CC Madhya 21.123
 
-> যস্যাননং মকরকুণ্ডলচারুকর্ণ-
-> ভ্রাজৎকপোলসুভগং সবিলাসহাসম্ ।
-> নিত্যোৎসবং ন ততৃপুর্দৃশিভিঃ পিবন্ত্যো
+> যস্যাননং মকরকুণ্ডলচারুকর্ণ-\
+> ভ্রাজৎকপোলসুভগং সবিলাসহাসম্ ।\
+> নিত্যোৎসবং ন ততৃপুর্দৃশিভিঃ পিবন্ত্যো\
 > নার্যো নরাশ্চ মুদিতাঃ কুপিতা নিমেশ্চ ॥১২৩॥
 
-> yasyānanaṁ makara-kuṇḍala-cāru-karṇa-
-> bhrājat-kapola-subhagaṁ savilāsa-hāsam
-> nityotsavaṁ na tatṛpur dṛśibhiḥ pibantyo
+> yasyānanaṁ makara-kuṇḍala-cāru-karṇa-\
+> bhrājat-kapola-subhagaṁ savilāsa-hāsam\
+> nityotsavaṁ na tatṛpur dṛśibhiḥ pibantyo\
 > nāryo narāś ca muditāḥ kupitā nimeś ca
 
 *yasya*—of Kṛṣṇa; *ānanam*—face; *makara-kuṇḍala*—by earrings resembling sharks; *cāru*—beautified; *karṇa*—the ears; *bhrājat*—shining; *kapola*—cheeks; *subhagam*—delicate; *sa-vilāsa-hāsam*—smiling with an enjoying spirit; *nitya-utsavam*—in which there are eternal festivities of joy; *na*—not; *tatṛpuḥ*—satisfied; *dṛśibhiḥ*—by the eyes; *pibantyaḥ*—drinking; *nāryaḥ*—all the women; *narāḥ*—the men; *ca*—and; *muditāḥ*—very pleased; *kupitāḥ*—very angry; *nimeḥ*—at the creator of the blinking of the eyes; *ca*—also.

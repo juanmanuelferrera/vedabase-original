@@ -1,11 +1,11 @@
 ### SB 4.20.37
 
-> भगवानपि राजर्षेः सोपाध्यायस्य चाच्युतः ।
+> भगवानपि राजर्षेः सोपाध्यायस्य चाच्युतः ।\
 > हरन्निव मनोऽमुष्य स्वधाम प्रत्यपद्यत ॥३७॥
 
-> bhagavān api rājarṣeḥ
-> sopādhyāyasya cācyutaḥ
-> harann iva mano 'muṣya
+> bhagavān api rājarṣeḥ\
+> sopādhyāyasya cācyutaḥ\
+> harann iva mano 'muṣya\
 > sva-dhāma pratyapadyata
 
 *bhagavān*—the Supreme Personality of Godhead; *api*—also; *rāja-ṛṣeḥ*—of the saintly King; *sa-upādhyāyasya*—along with all the priests; *ca*—also; *acyutaḥ*—the infallible Lord; *haran*—captivating; *iva*—indeed; *manaḥ*—the mind; *amuṣya*—of him; *sva-dhāma*—to His abode; *pratyapadyata*—returned.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.125
 
-> ‘তদীয়’ — তুলসী, বৈষ্ণব, মথুরা, ভাগবত ।
+> ‘তদীয়’ — তুলসী, বৈষ্ণব, মথুরা, ভাগবত ।\
 > এই চারির সেবা হয় কৃষ্ণের অভিমত ॥১২৫॥
 
-> 'tadīya'—tulasī, vaiṣṇava, mathurā, bhāgavata
+> 'tadīya'—tulasī, vaiṣṇava, mathurā, bhāgavata\
 > ei cārira sevā haya kṛṣṇera abhimata
 
 *tadīya*—related to the Lord; *tulasī*—*tulasī* leaves; *vaiṣṇava*—devotees; *mathurā*—the birthplace of Kṛṣṇa; *bhāgavata*—*Śrīmad-Bhāgavatam*; *ei cārira*—of these four; *sevā*—the service; *haya*—is; *kṛṣṇera abhimata*—the desire of Kṛṣṇa.

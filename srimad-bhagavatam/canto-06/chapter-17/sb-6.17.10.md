@@ -1,11 +1,11 @@
 ### SB 6.17.10
 
-> इत्यतद्वीर्यविदुषि ब्रुवाणे बह्वशोभनम
+> इत्यतद्वीर्यविदुषि ब्रुवाणे बह्वशोभनम\
 > रुषाह देवी धृष्टाय निर्जितात्माभिमानिने ॥१०॥
 
-> ity atad-vīrya-viduṣi
-> bruvāṇe bahv-aśobhanam
-> ruṣāha devī dhṛṣṭāya
+> ity atad-vīrya-viduṣi\
+> bruvāṇe bahv-aśobhanam\
+> ruṣāha devī dhṛṣṭāya\
 > nirjitātmābhimānine
 
 *iti*—thus; *a-tat-vīrya-viduṣi*—when Citraketu, who did not know the prowess of Lord Śiva; *bruvāṇe*—spoke; *bahu-aśobhanam*—that which is not up to the standard of etiquette (the criticism of the exalted Lord Śiva); *ruṣā*—with anger; *āha*—said; *devī*—the goddess Pārvatī; *dhṛṣṭāya*—unto Citraketu, who was quite shameless; *nirjita-ātma*—as one who has controlled his senses; *abhimānine*—thinking of himself.

@@ -1,11 +1,11 @@
 ### SB 6.8.14
 
-> दुर्गेष्वटव्याजिमुखादिषु प्रभुः पायान्नृसिंहोऽसुरयूथपारिः
+> दुर्गेष्वटव्याजिमुखादिषु प्रभुः पायान्नृसिंहोऽसुरयूथपारिः\
 > विमुञ्चतो यस्य महाट्टहासं दिशो विनेदुर्न्यपतंश्च गर्भाः ॥१४॥
 
-> durgeṣv aṭavy-āji-mukhādiṣu prabhuḥ
-> pāyān nṛsiṁho 'sura-yūthapāriḥ
-> vimuñcato yasya mahāṭṭa-hāsaṁ
+> durgeṣv aṭavy-āji-mukhādiṣu prabhuḥ\
+> pāyān nṛsiṁho 'sura-yūthapāriḥ\
+> vimuñcato yasya mahāṭṭa-hāsaṁ\
 > diśo vinedur nyapataṁś ca garbhāḥ
 
 *durgeṣu*—en lugares peligrosos de recorrer; *aṭavi*—en la espesura del bosque; *āji-mukha-ādiṣu*—en el frente de batalla, etc.; *prabhuḥ*—el Señor Supremo; *pāyāt*—que Él proteja; *nṛsiṁhaḥ*—el Señor Nṛsiṁhadeva; *asura-yūthapa*—de Hiraṇyakaśipu, el líder de los demonios; *ariḥ*—el enemigo; *vimuñcataḥ*—soltar; *yasya*—de quien; *mahā-aṭṭa-hāsam*—grandes y espantosas risas; *diśaḥ*—todas las direcciones; *vineduḥ*—que resonaron a través de; *nyapatan*—cayeron; *ca*—y; *garbhāḥ*—los fetos de las esposas de los demonios.

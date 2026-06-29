@@ -1,9 +1,9 @@
 ### CC Madhya 16.238
 
-> মর্কট-বৈরাগ্য না কর লোক দেখাঞা ।
+> মর্কট-বৈরাগ্য না কর লোক দেখাঞা ।\
 > যথাযোগ্য বিষয় ভুঞ্জ’ অনাসক্ত হঞা ॥২৩৮॥
 
-> markaṭa-vairāgya nā kara loka dekhāñā
+> markaṭa-vairāgya nā kara loka dekhāñā\
 > yathā-yogya viṣaya bhuñja' anāsakta hañā
 
 *markaṭa-vairāgya*—monkey renunciation; *nā kara*—do not do; *loka*—to the people; *dekhāñā*—showing off; *yathā-yogya*—as it is befitting; *viṣaya*—material things; *bhuñja'*—enjoy; *anāsakta*—without attachment; *hañā*—being.

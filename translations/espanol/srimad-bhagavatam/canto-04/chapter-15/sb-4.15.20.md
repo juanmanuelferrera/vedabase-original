@@ -1,11 +1,11 @@
 ### SB 4.15.20
 
-> सिन्धवः पर्वता नद्यो रथवीथीर्महात्मनः ।
+> सिन्धवः पर्वता नद्यो रथवीथीर्महात्मनः ।\
 > सूतोऽथ मागधो वन्दी तं स्तोतुमुपतस्थिरे ॥२०॥
 
-> sindhavaḥ parvatā nadyo
-> ratha-vīthīr mahātmanaḥ
-> sūto 'tha māgadho vandī
+> sindhavaḥ parvatā nadyo\
+> ratha-vīthīr mahātmanaḥ\
+> sūto 'tha māgadho vandī\
 > taṁ stotum upatasthire
 
 *sindhavaḥ*—los mares; *parvatāḥ*—las montañas; *nadyaḥ*—los ríos; *ratha-vīthīḥ*—los senderos para el paso de la cuadriga; *mahā-ātmanaḥ*—de la gran alma; *sūtaḥ*—un profesional que ofrece alabanzas; *atha*—entonces; *māgadhaḥ*—un bardo profesional; *vandī*—un profesional que ofrece oraciones; *tam*—a él; *stotum*—para alabar; *upatasthite*—se presentaron.

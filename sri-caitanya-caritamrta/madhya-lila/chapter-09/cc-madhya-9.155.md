@@ -1,9 +1,9 @@
 ### CC Madhya 9.155
 
-> এক ঈশ্বর — ভক্তের ধ্যান-অনুরূপ ।
+> এক ঈশ্বর — ভক্তের ধ্যান-অনুরূপ ।\
 > একই বিগ্রহে করে নানাকার রূপ ॥১৫৫॥
 
-> eka īśvara—bhaktera dhyāna-anurūpa
+> eka īśvara—bhaktera dhyāna-anurūpa\
 > eka-i vigrahe kare nānākāra rūpa
 
 *eka īśvara*—the Lord is one; *bhaktera*—of the devotees; *dhyāna*—meditation; *anurūpa*—according to; *eka-i*—one; *vigrahe*—in form; *kare*—exhibits; *nānā-ākāra*—different; *rūpa*—forms.

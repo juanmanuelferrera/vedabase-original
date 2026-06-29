@@ -1,15 +1,15 @@
 ### SB 5.15.16
 
-> tatrāyaṁ ślokaḥ—
-> praiyavrataṁ vaṁśam imaṁ
-> virajaś caramodbhavaḥ
-> akarod aty-alaṁ kīrtyā
+> tatrāyaṁ ślokaḥ—\
+> praiyavrataṁ vaṁśam imaṁ\
+> virajaś caramodbhavaḥ\
+> akarod aty-alaṁ kīrtyā\
 > viṣṇuḥ sura-gaṇaṁ yathā
 
-> tatrāyaṁ ślokaḥ—
-> praiyavrataṁ vaṁśam imaṁ
-> virajaś caramodbhavaḥ
-> akarod aty-alaṁ kīrtyā
+> tatrāyaṁ ślokaḥ—\
+> praiyavrataṁ vaṁśam imaṁ\
+> virajaś caramodbhavaḥ\
+> akarod aty-alaṁ kīrtyā\
 > viṣṇuḥ sura-gaṇaṁ yathā
 
 *tatra*—en relación con él; *ayam ślokaḥ*—es famoso este verso; *praiyavratam*—que viene del rey Priyavrata; *vaṁśam*—la dinastía; *imam*—este; *virajaḥ*—el rey Viraja; *carama-udbhavaḥ*—la fuente de cien hijos (encabezados por Śatajit); *akarot*—adornada; *ati-alam*—mucho; *kīrtyā*—por su fama; *viṣṇuḥ*—el Señor Viṣṇu, la Suprema Personalidad de Dios; *sura-gaṇam*—a los semidioses; *yathā*—como.

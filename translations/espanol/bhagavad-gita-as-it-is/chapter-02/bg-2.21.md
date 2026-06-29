@@ -1,11 +1,11 @@
 ### Bg 2.21
 
-> वेदाविनाशिनं नित्यं य एनमजमव्ययम् ।
+> वेदाविनाशिनं नित्यं य एनमजमव्ययम् ।\
 > कथं स पुरुषः पार्थ कं घातयति हन्ति कम् ॥२१॥
 
-> vedāvināśinaṁ nityaṁ
-> ya enam ajam avyayam
-> kaṭhaṁ sa puruṣaḥ pārtha
+> vedāvināśinaṁ nityaṁ\
+> ya enam ajam avyayam\
+> kaṭhaṁ sa puruṣaḥ pārtha\
 > kaṁ ghātayati hanti kam
 
 *veda*—con conocimiento; *avināśinam*—indestructible; *nityam*—siempre; *yaḥ*—aquel que; *enam*—este (alma); *ajam*—que no nace; *avyayam*—inmutable; *katham*—cómo; *saḥ*—él; *puruṣaḥ*—persona; *pārtha*—¡oh, Pārtha (Arjuna)!; *kam*—a quién; *ghātayati*—hiere; *hanti*—mata; *kam*—a quién.

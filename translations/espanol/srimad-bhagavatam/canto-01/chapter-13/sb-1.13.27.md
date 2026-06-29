@@ -1,11 +1,11 @@
 ### SB 1.13.27
 
-> यः स्वकात्परतो वेह जातनिर्वेद आत्मवान् ।
+> यः स्वकात्परतो वेह जातनिर्वेद आत्मवान् ।\
 > हृदि कृत्वा हरिं गेहात्प्रव्रजेत्स नरोत्तमः ॥२७॥
 
-> yaḥ svakāt parato veha
-> jāta-nirveda ātmavān
-> hṛdi kṛtvā hariṁ gehāt
+> yaḥ svakāt parato veha\
+> jāta-nirveda ātmavān\
+> hṛdi kṛtvā hariṁ gehāt\
 > pravrajet sa narottamaḥ
 
 *yaḥ*—todo aquel que; *svakāt*—por su propio acto de despertarse; *parataḥ vā*—o por oír a otro; *iha*—aquí en este mundo; *jāta*—se vuelve; *nirvedaḥ*—indiferente al apego material; *ātmavān*—conciencia; *hṛdi*—dentro del corazón; *kṛtvā*—habiendo sido tomado por; *harim*—la Personalidad de Dios; *gehāt*—del hogar; *pravrajet*—se va; *saḥ*—él es; *nara-uttamaḥ*—el ser humano de primera.

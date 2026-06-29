@@ -1,9 +1,9 @@
 ### CC Madhya 25.9
 
-> কোন প্রকারে পারোঁ যদি একত্র করিতে  ।
+> কোন প্রকারে পারোঁ যদি একত্র করিতে  ।\
 > ইহা দেখি’ সন্ন্যাসিগণ হবে ইহাঁর ভক্তে ॥৯॥
 
-> kona prakāre pāroṅ yadi ekatra karite
+> kona prakāre pāroṅ yadi ekatra karite\
 > ihā dekhi' sannyāsi-gaṇa habe iṅhāra bhakte
 
 *kona prakāre*—by some means; *pāroṅ*—I am able; *yadi*—if; *ekatra karite*—to assemble; *ihā dekhi'*—by seeing this (Śrī Caitanya Mahāprabhu's personal characteristics); *sannyāsi-gaṇa*—the Māyāvādī *sannyāsīs* of Vārāṇasī; *habe*—will become; *iṅhāra bhakte*—His devotees.

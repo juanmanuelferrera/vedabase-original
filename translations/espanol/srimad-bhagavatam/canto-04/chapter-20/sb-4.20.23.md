@@ -1,13 +1,13 @@
 ### SB 4.20.23
 
-> पृथुरुवाच
-> वरान्विभो त्वद्वरदेश्वराद्बुधः कथं वृणीते गुणविक्रियात्मनाम् ।
+> पृथुरुवाच\
+> वरान्विभो त्वद्वरदेश्वराद्बुधः कथं वृणीते गुणविक्रियात्मनाम् ।\
 > ये नारकाणामपि सन्ति देहिनां तानीश कैवल्यपते वृणे न च ॥२३॥
 
-> pṛthur uvāca
-> varān vibho tvad varadeśvarād budhaḥ
-> kathaṁ vṛṇīte guṇa-vikriyātmanām
-> ye nārakāṇām api santi dehināṁ
+> pṛthur uvāca\
+> varān vibho tvad varadeśvarād budhaḥ\
+> kathaṁ vṛṇīte guṇa-vikriyātmanām\
+> ye nārakāṇām api santi dehināṁ\
 > tān īśa kaivalya-pate vṛṇe na ca
 
 *pṛthuḥ uvāca*—Pṛthu Mahārāja dijo; *varān*—bendiciones; *vibho*—mi querido Señor Supremo; *tvat*—de Ti; *vara-da-īśvarāt*—de la Suprema Personalidad de Dios, el más elevado entre los que conceden bendiciones; *budhaḥ*—una persona erudita; *katham*—cómo; *vṛṇīte*—podría pedir; *guṇa-vikriyā*—confundida por las modalidades de la naturaleza material; *ātmanām*—de las entidades vivientes; *ye*—lo cual; *nārakāṇām*—de las entidades vivientes que viven en el infierno; *api*—también; *santi*—existe; *dehinām*—de los que poseen un cuerpo; *tān*—todos esos; *īśa*—¡oh, Señor Supremo!; *kaivalya-pate*—¡oh, Tú, que concedes la fusión en la existencia del Señor!; *vṛṇe*—pido; *na*—no; *ca*—también.

@@ -1,9 +1,9 @@
 ### CC Antya 4.206
 
-> এইমত সনাতন রহে প্রভু-স্থানে ।
+> এইমত সনাতন রহে প্রভু-স্থানে ।\
 > কৃষ্ণচৈতন্য-গুণ-কথা হরিদাস-সনে ॥২০৬॥
 
-> ei-mata sanātana rahe prabhu-sthāne
+> ei-mata sanātana rahe prabhu-sthāne\
 > kṛṣṇa-caitanya-guṇa-kathā haridāsa-sane
 
 *ei-mata*—in this way; *sanātana*—Sanātana Gosvāmī; *rahe*—remained; *prabhu-sthāne*—at the shelter of Śrī Caitanya Mahāprabhu; *kṛṣṇa-caitanya*—of Lord Śrī Caitanya Mahāprabhu; *guṇa*—of the attributes; *kathā*—discussion; *haridāsa-sane*—with Haridāsa Ṭhākura.

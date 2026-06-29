@@ -1,9 +1,9 @@
 ### CC Antya 20.34
 
-> কৃপা করি’ কর মোরে পদধূলি-সম ।
+> কৃপা করি’ কর মোরে পদধূলি-সম ।\
 > তোমার সেবক করোঁ তোমার সেবন ।।” ॥ ৩৪ ॥
 
-> kṛpā kari' kara more pada-dhūli-sama
+> kṛpā kari' kara more pada-dhūli-sama\
 > tomāra sevaka karoṅ tomāra sevana"
 
 *kṛpā kari'*—being merciful; *kara*—make; *more*—Me; *pada-dhūli-sama*—like a particle of dust at Your lotus feet; *tomāra sevaka*—as I am Your eternal servant; *karoṅ*—let Me be engaged; *tomāra sevana*—in Your service.

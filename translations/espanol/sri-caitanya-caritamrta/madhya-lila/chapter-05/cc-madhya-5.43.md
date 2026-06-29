@@ -1,9 +1,9 @@
 ### CC Madhya 5.43
 
-> পুত্র বলে, — “প্রতিমা সাক্ষী, সেহ দূর দেশে ৷
+> পুত্র বলে, — “প্রতিমা সাক্ষী, সেহ দূর দেশে ৷\
 > কে তোমার সাক্ষী দিবে, চিন্তা কর কিসে ॥৪৩॥
 
-> putra bale,--"pratimā sākṣī, seha dūra deśe
+> putra bale,--"pratimā sākṣī, seha dūra deśe\
 > ke tomāra sākṣī dibe, cintā kara kise
 
 *putra bale*—su hijo dice; *pratimā*—la Deidad; *sākṣī*—testigo; *seha*—Él también; *dūra*—lejano; *deśe*—en un país; *ke*—quién; *tomāra*—de ti; *sākṣī*—testigo; *dibe*—dará; *cintā*—ansiedad; *kara*—tienes; *kise*—por qué.

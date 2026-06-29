@@ -1,11 +1,11 @@
 ### SB 8.15.16
 
-> सभाचत्वररथ्याढ्यां विमानैर्न्यर्बुदैर्युताम
+> सभाचत्वररथ्याढ्यां विमानैर्न्यर्बुदैर्युताम\
 > शृङ्गाटकैर्मणिमयैर्वज्रविद्रुमवेदिभिः ॥१६॥
 
-> sabhā-catvara-rathyāḍhyāṁ
-> vimānair nyarbudair yutām
-> śṛṅgāṭakair maṇimayair
+> sabhā-catvara-rathyāḍhyāṁ\
+> vimānair nyarbudair yutām\
+> śṛṅgāṭakair maṇimayair\
 > vajra-vidruma-vedibhiḥ
 
 *sabhā*—casas de juntas; *catvara*—patios; *rathya*—y vías públicas; *āḍhyām*—opulenta; *vimānaiḥ*—con aviones; *nyarbudaiḥ*—no menos de diez *karors* (cien millones); *yutām*—dotada de; *śṛṅga-ātakaiḥ*—con encrucijadas; *maṇi-mayaiḥ*—hechas de perlas; *vajra*—hechos de diamante; *vidruma*—y coral; *vedibhiḥ*—con lugares para sentarse.

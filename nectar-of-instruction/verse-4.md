@@ -1,11 +1,11 @@
 ### 4
 
-> ददाति प्रतिगृह्णाति गृह्यामाख्याति पृच्छति ।
+> ददाति प्रतिगृह्णाति गृह्यामाख्याति पृच्छति ।\
 > भुङ्क्ते भोजयते चैव षड्विधं प्रीतिलक्षणम् ॥४॥
 
-> dadāti pratigṛhṇāti
-> guhyam ākhyāti pṛcchati
-> bhuṅkte bhojayate caiva
+> dadāti pratigṛhṇāti\
+> guhyam ākhyāti pṛcchati\
+> bhuṅkte bhojayate caiva\
 > ṣaḍ-vidhaṁ prīti-lakṣaṇam
 
 *dadāti*—gives charity; *pratigṛhṇāti*—accepts in return; *guhyam*—confidential topics; *ākhyāti*—explains; *pṛcchati*—enquires; *bhuṅkte*—eats; *bhojayate*—feeds; *ca*—also; *eva*—certainly; *ṣaṭ-vidham*—six kinds; *prīti*—of love; *lakṣaṇam*—symptoms.

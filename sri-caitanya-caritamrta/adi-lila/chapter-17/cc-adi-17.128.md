@@ -1,9 +1,9 @@
 ### CC Adi 17.128
 
-> আর যদি কীর্তন করিতে লাগ পাইমু ।
+> আর যদি কীর্তন করিতে লাগ পাইমু ।\
 > সর্বস্ব দণ্ডিয়া তার জাতি যে লইমু ॥১২৮॥
 
-> āra yadi kīrtana karite lāga pāimu
+> āra yadi kīrtana karite lāga pāimu\
 > sarvasva daṇḍiyā tāra jāti ye la-imu
 
 *āra*—again; *yadi*—if; *kīrtana*—chanting of the Hare Kṛṣṇa *mahā-mantra*; *karite*—to do; *lāga*—contact; *pāimu*—I shall take; *sarva-sva*—all possessions; *daṇḍiyā*—chastising; *tāra*—his; *jāti*—caste; *ye*—that; *la-imu*—I shall take.

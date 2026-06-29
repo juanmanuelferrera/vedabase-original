@@ -1,11 +1,11 @@
 ### SB 4.3.23
 
-> सत्त्वं विशुद्धं वसुदेवशब्दितं यदीयते तत्र पुमानपावृतः ।
+> सत्त्वं विशुद्धं वसुदेवशब्दितं यदीयते तत्र पुमानपावृतः ।\
 > सत्त्वे च तस्मिन्भगवान्वासुदेवो ह्यधोक्षजो मे नमसा विधीयते ॥२३॥
 
-> sattvaṁ viśuddhaṁ vasudeva-śabditaṁ
-> yad īyate tatra pumān apāvṛtaḥ
-> sattve ca tasmin bhagavān vāsudevo
+> sattvaṁ viśuddhaṁ vasudeva-śabditaṁ\
+> yad īyate tatra pumān apāvṛtaḥ\
+> sattve ca tasmin bhagavān vāsudevo\
 > hy adhokṣajo me namasā vidhīyate
 
 *sattvam*—conciencia; *viśuddham*—pura; *vasudeva*—*vasudeva*; *śabditam*—conocida con el nombre de; *yat*—porque; *īyate*—Se revela; *tatra*—allí; *pumān*—la Persona Suprema; *apāvṛtaḥ*—sin ningún tipo de cubierta; *sattve*—en conciencia; *ca*—y; *tasmin*—en esa; *bhagavān*—la Suprema Personalidad de Dios; *vāsudevaḥ*—Vāsudeva; *hi*—porque; *adhokṣajaḥ*—trascendental; *me*—por mí; *namasā*—con reverencias; *vidhīyate*—adorado.

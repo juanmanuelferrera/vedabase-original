@@ -1,11 +1,11 @@
 ### SB 7.8.29
 
-> विष्वक्स्फुरन्तं ग्रहणातुरं हरिर्व्यालो यथाखुं कुलिशाक्षतत्वचम
+> विष्वक्स्फुरन्तं ग्रहणातुरं हरिर्व्यालो यथाखुं कुलिशाक्षतत्वचम\
 > द्वार्यूरुमापत्य ददार लीलया नखैर्यथाहिं गरुडो महाविषम ॥२९॥
 
-> viṣvak sphurantaṁ grahaṇāturaṁ harir
-> vyālo yathākhuṁ kuliśākṣata-tvacam
-> dvāry ūrum āpatya dadāra līlayā
+> viṣvak sphurantaṁ grahaṇāturaṁ harir\
+> vyālo yathākhuṁ kuliśākṣata-tvacam\
+> dvāry ūrum āpatya dadāra līlayā\
 > nakhair yathāhiṁ garuḍo mahā-viṣam
 
 *viṣvak*—en todas direcciones; *sphurantam*—moviendo sus miembros; *grahaṇa-āturam*—afligido por haber sido capturado; *hariḥ*—la Suprema Personalidad de Dios, Nṛsiṁhadeva; *vyālaḥ*—una serpiente; *yathā*—como; *ākhum*—a un ratón; *kuliśa-akṣata*—a quien ni siquiera el rayo de Indra podía herir; *tvacam*—cuya piel; *dvāri*—en el umbral de la puerta; *ūrum*—sobre Sus muslos; *āpatya*—poniendo; *dadāra*—atravesó; *līlayā*—con gran facilidad; *nakhaiḥ*—con las uñas; *yathā*—tal como; *ahim*—a una serpiente; *garuḍaḥ*—Garuḍa, el portador del Señor Viṣṇu; *mahā-viṣam*—muy venenosa.

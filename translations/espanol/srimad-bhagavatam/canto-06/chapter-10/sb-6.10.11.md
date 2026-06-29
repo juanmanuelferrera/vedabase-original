@@ -1,13 +1,13 @@
 ### SB 6.10.11
 
-> श्रीबादरायणिरुवाच
-> एवं कृतव्यवसितो दध्यङ्ङ्आथर्वणस्तनुम
+> श्रीबादरायणिरुवाच\
+> एवं कृतव्यवसितो दध्यङ्ङ्आथर्वणस्तनुम\
 > परे भगवति ब्रह्मण्यात्मानं सन्नयन्जहौ ॥११॥
 
-> śrī-bādarāyaṇir uvāca
-> evaṁ kṛta-vyavasito
-> dadhyaṅṅ ātharvaṇas tanum
-> pare bhagavati brahmaṇy
+> śrī-bādarāyaṇir uvāca\
+> evaṁ kṛta-vyavasito\
+> dadhyaṅṅ ātharvaṇas tanum\
+> pare bhagavati brahmaṇy\
 > ātmānaṁ sannayañ jahau
 
 *śrī-bādarāyaṇiḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *evam*—así; *kṛta-vyavasitaḥ*—confirmando qué hacer (en cuanto a dar su cuerpo a los semidioses); *dadhya*—Dadhīci Muni; *ātharvaṇaḥ*—el hijo de Atharvā; *tanum*—su cuerpo; *pare*—a la Suprema; *bhagavati*—Personalidad de Dios; *brahmaṇi*—el Brahman Supremo; *ātmānam*—a sí mismo, el alma espiritual; *sannayan*—ofreciendo; *jahau*—abandonó.

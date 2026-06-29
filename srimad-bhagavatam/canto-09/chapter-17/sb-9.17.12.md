@@ -1,11 +1,11 @@
 ### SB 9.17.12
 
-> ततः शान्तरजो जज्ञए कृतकृत्यः स आत्मवान
+> ततः शान्तरजो जज्ञए कृतकृत्यः स आत्मवान\
 > रजेः पञ्चशतान्यासन्पुत्राणाममितौजसाम ॥१२॥
 
-> tataḥ śāntarajo jajñe
-> kṛta-kṛtyaḥ sa ātmavān
-> rajeḥ pañca-śatāny āsan
+> tataḥ śāntarajo jajñe\
+> kṛta-kṛtyaḥ sa ātmavān\
+> rajeḥ pañca-śatāny āsan\
 > putrāṇām amitaujasām
 
 *tataḥ*—from Citrakṛt; *śāntarajaḥ*—a son named Śāntaraja; *jajñe*—was born; *kṛta-kṛtyaḥ*—performed all kinds of ritualistic ceremonies; *saḥ*—he; *ātmavān*—a self-realized soul; *rajeḥ*—of Rajī; *pañca-śatāni*—five hundred; *āsan*—there were; *putrāṇām*—sons; *amita-ojasām*—very, very powerful.

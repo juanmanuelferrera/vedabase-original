@@ -1,11 +1,11 @@
 ### SB 4.18.7
 
-> अपालितानादृता च भवद्भिर्लोकपालकैः ।
+> अपालितानादृता च भवद्भिर्लोकपालकैः ।\
 > चोरीभूतेऽथ लोकेऽहं यज्ञार्थेऽग्रसमोषधीः ॥७॥
 
-> apālitānādṛtā ca
-> bhavadbhir loka-pālakaiḥ
-> corī-bhūte 'tha loke 'haṁ
+> apālitānādṛtā ca\
+> bhavadbhir loka-pālakaiḥ\
+> corī-bhūte 'tha loke 'haṁ\
 > yajñārthe 'grasam oṣadhīḥ
 
 *apālitā*—sin recibir los debidos cuidados; *anādṛtā*—estar desatendida; *ca*—también; *bhavadbhiḥ*—como tu gracia; *loka-pālakaiḥ*—por los gobernadores o reyes; *corī-bhūte*—asaltada por ladrones; *atha*—por lo tanto; *loke*—este mundo; *aham*—yo; *yajña-arthe*—con objeto de celebrar sacrificios; *agrasam*—he ocultado; *oṣadhīḥ*—todas las hierbas y cereales.

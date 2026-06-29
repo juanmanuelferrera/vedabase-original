@@ -1,9 +1,9 @@
 ### CC Madhya 1.189
 
-> নীচ-জাতি, নীচ-সঙ্গী, করি নীচ কাজ ।
+> নীচ-জাতি, নীচ-সঙ্গী, করি নীচ কাজ ।\
 > তোমার অগ্রেতে প্রভু কহিতে বাসি লাজ ॥১৮৯॥
 
-> nīca-jāti, nīca-saṅgī, kari nīca kāja
+> nīca-jāti, nīca-saṅgī, kari nīca kāja\
 > tomāra agrete prabhu kahite vāsi lāja
 
 *nīca-jāti*—clasificados entre los caídos; *nīca-saṅgī*—asociados con almas caídas; *kari*—realizamos; *nīca*—abominables; *kāja*—trabajos; *tomāra*—de Ti; *agrete*—delante; *prabhu*—¡oh, Señor!; *kahite*—decir; *vāsi*—sentimos; *lāja*—vergüenza.

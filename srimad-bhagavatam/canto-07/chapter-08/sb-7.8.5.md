@@ -1,12 +1,12 @@
 ### SB 7.8.5
 
-> प्रश्रयावनतं दान्तं बद्धाञ्जलिमवस्थितम
+> प्रश्रयावनतं दान्तं बद्धाञ्जलिमवस्थितम\
 > सर्पः पदाहत इव श्वसन्प्रकृतिदारुणः ॥५॥
 
-> śrī-hiraṇyakaśipur uvāca
-> he durvinīta mandātman
-> kula-bheda-karādhama
-> stabdhaṁ mac-chāsanodvṛttaṁ
+> śrī-hiraṇyakaśipur uvāca\
+> he durvinīta mandātman\
+> kula-bheda-karādhama\
+> stabdhaṁ mac-chāsanodvṛttaṁ\
 > neṣye tvādya yama-kṣayam
 
 *śrī-hiraṇyakaśipuḥ uvāca*—the blessed Hiraṇyakaśipu said; *he*—O; *durvinīta*—most impudent; *manda-ātman*—O stupid fool; *kula-bheda-kara*—who are bringing about a disruption in the family; *adhama*—O lowest of mankind; *stabdham*—most obstinate; *mat-śāsana*—from my ruling; *udvṛttam*—going astray; *neṣye*—I shall bring; *tvā*—you; *adya*—today; *yama-kṣayam*—to the place of Yamarāja, the superintendent of death.

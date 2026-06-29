@@ -1,14 +1,14 @@
 ### SB 1.15.43
 
-> चीरवासा निराहारो बद्धवाङ्मुक्तमूर्धजः ।
-> दर्शयन्नात्मनो रूपं जडोन्मत्तपिशाचवत् ।
+> चीरवासा निराहारो बद्धवाङ्मुक्तमूर्धजः ।\
+> दर्शयन्नात्मनो रूपं जडोन्मत्तपिशाचवत् ।\
 > अनवेक्षमाणो निरगादशृण्वन्बधिरो यथा ॥४३॥
 
-> cīra-vāsā nirāhāro
-> baddha-vāṅ mukta-mūrdhajaḥ
-> darśayann ātmano rūpaṁ
-> jaḍonmatta-piśācavat
-> anavekṣamāṇo niragād
+> cīra-vāsā nirāhāro\
+> baddha-vāṅ mukta-mūrdhajaḥ\
+> darśayann ātmano rūpaṁ\
+> jaḍonmatta-piśācavat\
+> anavekṣamāṇo niragād\
 > aśṛṇvan badhiro yathā
 
 *cīra-vāsāḥ*—accepted torn clothing; *nirāhāraḥ*—gave up all solid foodstuff; *baddha-vāk*—stopped talking; *mukta-mūrdhajaḥ*—untied his hair; *darśayan*—began to show; *ātmanaḥ*—of himself; *rūpam*—bodily features; *jaḍa*—inert; *unmatta*—mad; *piśāca-vat*—just like an urchin; *anavekṣamāṇaḥ*—without waiting for; *niragāt*—was situated; *aśṛṇvan*—without hearing; *badhiraḥ*—just like a deaf man; *yathā*—as if.

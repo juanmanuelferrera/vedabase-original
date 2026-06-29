@@ -1,9 +1,9 @@
 ### CC Madhya 6.77
 
-> শুনি’ গোপীনাথ-মুকুন্দ দুঁহে দুঃখী হৈলা ।
+> শুনি’ গোপীনাথ-মুকুন্দ দুঁহে দুঃখী হৈলা ।\
 > গোপীনাথাচার্য কিছু কহিতে লাগিলা ॥৭৭॥
 
-> śuni' gopīnātha-mukunda duṅhe duḥkhā hailā
+> śuni' gopīnātha-mukunda duṅhe duḥkhā hailā\
 > gopīnāthācārya kichu kahite lāgilā
 
 *śuni'*—al oír; *gopīnātha-mukunda*—Gopīnātha Ācārya y Mukunda Datta; *duṅhe*—ambos; *duḥkhā*—infelices; *hailā*—se volvieron; *gopīnātha-ācārya*—de nombre Gopīnātha Ācārya; *kichu*—algo; *kahite*—a hablar; *lāgilā*—comenzó.

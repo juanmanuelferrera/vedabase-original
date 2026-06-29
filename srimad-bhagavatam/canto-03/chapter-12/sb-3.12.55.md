@@ -2,7 +2,7 @@
 
 > तदा मिथुनधर्मेण प्रजा ह्येधाम्बभूविर् ॥५५॥
 
-> tadā mithuna-dharmeṇa
+> tadā mithuna-dharmeṇa\
 > prajā hy edhām babhūvire
 
 *tadā*—at that time; *mithuna*—sex life; *dharmeṇa*—according to regulative principles; *prajāḥ*—generations; *hi*—certainly; *edhām*—increased; *babhūvire*—took place.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.163
 
-> চাতুর্মাস্য পূর্ণ হৈল, ভট্ট-আজ্ঞা লঞা ।
+> চাতুর্মাস্য পূর্ণ হৈল, ভট্ট-আজ্ঞা লঞা ।\
 > দক্ষিণ চলিলা প্রভু শ্রীরঙ্গ দেখিয়া ॥১৬৩॥
 
-> cāturmāsya pūrṇa haila, bhaṭṭa-ājñā lañā
+> cāturmāsya pūrṇa haila, bhaṭṭa-ājñā lañā\
 > dakṣiṇa calilā prabhu śrī-raṅga dekhiyā
 
 *cāturmāsya*—the period of Cāturmāsya; *pūrṇa haila*—became completed; *bhaṭṭa-ājñā lañā*—taking permission from Veṅkaṭa Bhaṭṭa; *dakṣiṇa*—south; *calilā*—proceeded; *prabhu*—Śrī Caitanya Mahāprabhu; *śrī-raṅga dekhiyā*—visiting Śrī Raṅga.

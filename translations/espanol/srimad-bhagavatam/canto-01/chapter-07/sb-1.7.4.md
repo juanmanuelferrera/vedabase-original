@@ -1,11 +1,11 @@
 ### SB 1.7.4
 
-> भक्तियोगेन मनसि सम्यक्प्रणिहितेऽमले ।
+> भक्तियोगेन मनसि सम्यक्प्रणिहितेऽमले ।\
 > अपश्यत्पुरुषं पूर्णं मायां च तदपाश्रयम् ॥४॥
 
-> bhakti-yogena manasi
-> samyak praṇihite 'male
-> apaśyat puruṣaṁ pūrṇaṁ
+> bhakti-yogena manasi\
+> samyak praṇihite 'male\
+> apaśyat puruṣaṁ pūrṇaṁ\
 > māyāṁ ca tad-apāśrayam
 
 *bhakti*—servicio devocional; *yogena*—mediante el proceso de vincularse; *manasi*—en la mente; *samyak*—perfectamente; *praṇihite*—ocupada en y fija en; *amale*—sin ningún vestigio de materia; *apaśyat*—vio; *puruṣam*—la Personalidad de Dios; *pūrṇam*—absoluta; *māyām*—energía; *ca*—también; *tat*—Su; *apāśrayam*—bajo completo control.

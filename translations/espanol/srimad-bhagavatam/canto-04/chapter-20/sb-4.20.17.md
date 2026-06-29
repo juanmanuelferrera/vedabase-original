@@ -1,13 +1,13 @@
 ### SB 4.20.17
 
-> मैत्रेय उवाच
-> स इत्थं लोकगुरुणा विष्वक्सेनेन विश्वजित् ।
+> मैत्रेय उवाच\
+> स इत्थं लोकगुरुणा विष्वक्सेनेन विश्वजित् ।\
 > अनुशासित आदेशं शिरसा जगृहे हरेः ॥१७॥
 
-> maitreya uvāca
-> sa itthaṁ loka-guruṇā
-> viṣvaksenena viśva-jit
-> anuśāsita ādeśaṁ
+> maitreya uvāca\
+> sa itthaṁ loka-guruṇā\
+> viṣvaksenena viśva-jit\
+> anuśāsita ādeśaṁ\
 > śirasā jagṛhe hareḥ
 
 *maitreyaḥ uvāca*—Maitreya dijo; *saḥ*—él; *ittham*—de esta forma; *loka-guruṇā*—por el maestro supremo de todas las gentes; *viṣvaksenena*—por la Personalidad de Dios; *viśva-jit*—el conquistador del mundo (Mahārāja Pṛthu); *anuśāsitaḥ*—habiendo recibido la orden; *ādeśam*—instrucciones; *śirasā*—sobre la cabeza; *jagṛhe*—aceptó; *hareḥ*—de la Personalidad de Dios.

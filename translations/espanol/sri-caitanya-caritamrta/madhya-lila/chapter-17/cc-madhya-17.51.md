@@ -1,9 +1,9 @@
 ### CC Madhya 17.51
 
-> তথাপি তাঁর দর্শন-শ্রবণ-প্রভাবে  ।
+> তথাপি তাঁর দর্শন-শ্রবণ-প্রভাবে  ।\
 > সকল দেশের লোক হইল ‘বৈষ্ণবে’ ॥৫১॥
 
-> tathāpi tāṅra darśana-śravaṇa-prabhāve
+> tathāpi tāṅra darśana-śravaṇa-prabhāve\
 > sakala deśera loka ha-ila 'vaiṣṇave'
 
 *tathāpi*—aun así; *tāṅra*—Su; *darśana*—de ver; *śravaṇa*—de oír; *prabhāve*—por la potencia; *sakala*—todos los; *deśera*—de los países; *loka*—la gente; *ha-ila*—se convirtieron en; *vaiṣṇave*—devotos puros del Señor.

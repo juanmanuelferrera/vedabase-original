@@ -1,11 +1,11 @@
 ### SB 4.11.2
 
-> सन्धीयमान एतस्मिन्माया गुह्यकनिर्मिताः ।
+> सन्धीयमान एतस्मिन्माया गुह्यकनिर्मिताः ।\
 > क्षिप्रं विनेशुर्विदुर क्लेशा ज्ञानोदये यथा ॥२॥
 
-> sandhīyamāna etasmin
-> māyā guhyaka-nirmitāḥ
-> kṣipraṁ vineśur vidura
+> sandhīyamāna etasmin\
+> māyā guhyaka-nirmitāḥ\
+> kṣipraṁ vineśur vidura\
 > kleśā jñānodaye yathā
 
 *sandhīyamāne*—while joining to his bow; *etasmin*—this *nārārayaṇāstra*; *māyāḥ*—the illusions; *guhyaka-nirmitāḥ*—created by the Yakṣas; *kṣipram*—very soon; *vineśuḥ*—were destroyed; *vidura*—O Vidura; *kleśāḥ*—illusory pains and pleasures; *jñāna-udaye*—upon the arising of knowledge; *yathā*—just as.

@@ -1,11 +1,11 @@
 ### SB 3.30.14
 
-> तत्राप्यजातनिर्वेदो भ्रियमाणः स्वयम्भृतैः ।
+> तत्राप्यजातनिर्वेदो भ्रियमाणः स्वयम्भृतैः ।\
 > जरयोपात्तवैरूप्यो मरणाभिमुखो गृहे ॥१४॥
 
-> tatrāpy ajāta-nirvedo
-> bhriyamāṇaḥ svayam bhṛtaiḥ
-> jarayopātta-vairūpyo
+> tatrāpy ajāta-nirvedo\
+> bhriyamāṇaḥ svayam bhṛtaiḥ\
+> jarayopātta-vairūpyo\
 > maraṇābhimukho gṛhe
 
 *tatra*—ahí; *api*—aunque; *ajāta*—que no surge; *nirvedaḥ*—aversión; *bhriyamāṇaḥ*—ser mantenido; *svayam*—por él mismo; *bhṛtaiḥ*—por aquellos que fueron mantenidos; *jarayā*—por la vejez; *upātta*—obtenida; *vairūpyaḥ*—deformación; *maraṇa*—muerte; *abhimukhaḥ*—aproximándose; *gṛhe*—en el hogar.

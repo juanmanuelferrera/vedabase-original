@@ -1,9 +1,9 @@
 ### CC Madhya 5.24
 
-> ব্রাহ্মণ-সেবায় কৃষ্ণের প্রীতি বড় হয় ।
+> ব্রাহ্মণ-সেবায় কৃষ্ণের প্রীতি বড় হয় ।\
 > তাঁহার সন্তোষ ভক্তি-সম্পদ্ বাড়য় ।।” ॥২৪॥
 
-> brāhmaṇa-sevāya kṛṣṇera prīti baḍa haya
+> brāhmaṇa-sevāya kṛṣṇera prīti baḍa haya\
 > tāṅhāra santoṣe bhakti-sampad bāḍaya"
 
 *brāhmaṇa-sevāya*—by rendering service to a *brāhmaṇa*; *kṛṣṇera*—of Lord Kṛṣṇa; *prīti*—the satisfaction; *baḍa*—very great; *haya*—is; *tāṅhāra santoṣe*—by pleasing the Lord; *bhakti*—of devotional service; *sampad*—the opulence; *bāḍaya*—increases.

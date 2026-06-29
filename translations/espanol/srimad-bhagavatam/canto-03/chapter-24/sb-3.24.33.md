@@ -1,11 +1,11 @@
 ### SB 3.24.33
 
-> परं प्रधानं पुरुषं महान्तं कालं कविं त्रिवृतं लोकपालम् ।
+> परं प्रधानं पुरुषं महान्तं कालं कविं त्रिवृतं लोकपालम् ।\
 > आत्मानुभूत्यानुगतप्रपञ्चं स्वच्छन्दशक्तिं कपिलं प्रपद्ये ॥३३॥
 
-> paraṁ pradhānaṁ puruṣaṁ mahāntaṁ
-> kālaṁ kaviṁ tri-vṛtaṁ loka-pālam
-> ātmānubhūtyānugata-prapañcaṁ
+> paraṁ pradhānaṁ puruṣaṁ mahāntaṁ\
+> kālaṁ kaviṁ tri-vṛtaṁ loka-pālam\
+> ātmānubhūtyānugata-prapañcaṁ\
 > svacchanda-śaktiṁ kapilaṁ prapadye
 
 *param*—trascendental; *pradhānam*—suprema; *puruṣam*—persona; *mahāntam*—que es el origen del mundo material; *kālam*—que es el tiempo; *kavim*—con conocimiento completo; *tri-vṛtam*—tres modalidades de la naturaleza material; *loka-pālam*—que es el sustentador de todos los universos; *ātma*—en Sí mismo; *anubhūtya*—mediante la potencia interna; *anugata*—disueltas; *prapañcam*—cuyas manifestaciones materiales; *sva-chanda*—independientemente; *śaktim*—que es poderoso; *kapilam*—al Señor Kapila; *prapadye*—me entrego.

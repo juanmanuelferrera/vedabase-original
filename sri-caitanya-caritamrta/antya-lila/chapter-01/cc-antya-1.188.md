@@ -1,11 +1,11 @@
 ### CC Antya 1.188
 
-> হরিমুদ্দিশতে রজোভরঃ, পুরতঃ সঙ্গময়ত্যমুং তমঃ ।
+> হরিমুদ্দিশতে রজোভরঃ, পুরতঃ সঙ্গময়ত্যমুং তমঃ ।\
 > ব্রজবামদৃশাং ন পদ্ধতিঃ, প্রকটা সর্বদৃশঃ শ্রুতেরপি ॥১৮৮॥
 
-> harim uddiśate rajo-bharaḥ
-> purataḥ saṅgamayaty amuṁ tamaḥ
-> vrajavāma-dṛśāṁ na paddhatiḥ
+> harim uddiśate rajo-bharaḥ\
+> purataḥ saṅgamayaty amuṁ tamaḥ\
+> vrajavāma-dṛśāṁ na paddhatiḥ\
 > prakaṭā sarva-dṛśaḥ śruter api
 
 *harim*—Kṛṣṇa; *uddiśate*—it indicates; *rajaḥ-bharaḥ*—dust from the cows,; *purataḥ*—in front; *saṅgamayati*—causes to meet; *amum*—Kṛṣṇa; *tamaḥ*—the darkness; *vrajavāma-dṛśām*—of the damsels of Vṛndāvana; *na*—not; *paddhatiḥ*—the course of activities; *prakaṭā*—manifested; *sarva-dṛśaḥ*—who know everything; *śruteḥ*—of the *Vedas*; *api*—as well as.

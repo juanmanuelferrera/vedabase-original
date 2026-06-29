@@ -1,11 +1,11 @@
 ### SB 9.20.17
 
-> अमोघवीर्यो राजर्षिर्महिष्यां वीर्यमादधे
+> अमोघवीर्यो राजर्षिर्महिष्यां वीर्यमादधे\
 > श्वोभूते स्वपुरं यातः कालेनासूत सा सुतम ॥१७॥
 
-> amogha-vīryo rājarṣir
-> mahiṣyāṁ vīryam ādadhe
-> śvo-bhūte sva-puraṁ yātaḥ
+> amogha-vīryo rājarṣir\
+> mahiṣyāṁ vīryam ādadhe\
+> śvo-bhūte sva-puraṁ yātaḥ\
 > kālenāsūta sā sutam
 
 *amogha-vīryaḥ*—una persona cuya emisión de semen nunca es en vano o, en otras palabras, que tiene que engendrar un hijo; *rāja-ṛṣiḥ*—el santo rey Duṣmanta; *mahiṣyām*—en la reina, Śakuntalā (después de casarse, Śakuntalā era la reina); *vīryam*—el semen; *ādadhe*—puso; *śvaḥ-bhūte*—por la mañana; *sva-puram*—a su palacio; *yātaḥ*—regresó; *kālena*—a su debido tiempo; *asūta*—dio a luz; *sā*—ella (Śakuntalā); *sutam*—un hijo.

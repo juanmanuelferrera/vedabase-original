@@ -1,11 +1,11 @@
 ### SB 8.1.18
 
-> तांस्तथावसितान्वीक्ष्य यज्ञअः सर्वगतो हरिः
+> तांस्तथावसितान्वीक्ष्य यज्ञअः सर्वगतो हरिः\
 > यामैः परिवृतो देवैर्हत्वाशासत्त्रिविष्टपम ॥१८॥
 
-> tāṁs tathāvasitān vīkṣya
-> yajñaḥ sarva-gato hariḥ
-> yāmaiḥ parivṛto devair
+> tāṁs tathāvasitān vīkṣya\
+> yajñaḥ sarva-gato hariḥ\
+> yāmaiḥ parivṛto devair\
 > hatvāśāsat tri-viṣṭapam
 
 *tān*—the demons and Rākṣasas; *tathā*—in that way; *avasitān*—who were determined to devour Svāyambhuva Manu; *vīkṣya*—upon observing; *yajñaḥ*—Lord Viṣṇu, known as Yajña; *sarva-gataḥ*—who is seated in everyone's heart; *hariḥ*—the Supreme Personality of Godhead; *yāmaiḥ*—with His sons named the Yāmas; *parivṛtaḥ*—surrounded; *devaiḥ*—by the demigods; *hatvā*—after killing (the demons); *aśāsat*—ruled (taking the post of Indra); *tri-viṣṭapam*—the heavenly planets.

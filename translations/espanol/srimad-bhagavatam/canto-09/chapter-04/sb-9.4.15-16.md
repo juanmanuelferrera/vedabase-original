@@ -1,20 +1,20 @@
 ### SB 9.4.15-16
 
-> श्रीशुक उवाच
-> अम्बरीषो महाभागः सप्तद्वीपवतीं महीम
-> अव्ययां च श्रियं लब्ध्वा विभवं चातुलं भुवि ॥१५॥
-> मेनेऽतिदुर्लभं पुंसां सर्वं तत्स्वप्नसंस्तुतम
+> श्रीशुक उवाच\
+> अम्बरीषो महाभागः सप्तद्वीपवतीं महीम\
+> अव्ययां च श्रियं लब्ध्वा विभवं चातुलं भुवि ॥१५॥\
+> मेनेऽतिदुर्लभं पुंसां सर्वं तत्स्वप्नसंस्तुतम\
 > विद्वान्विभवनिर्वाणं तमो विशति यत्पुमान ॥१६॥
 
-> śrī-śuka uvāca
-> ambarīṣo mahā-bhāgaḥ
-> sapta-dvīpavatīṁ mahīm
-> avyayāṁ ca śriyaṁ labdhvā
+> śrī-śuka uvāca\
+> ambarīṣo mahā-bhāgaḥ\
+> sapta-dvīpavatīṁ mahīm\
+> avyayāṁ ca śriyaṁ labdhvā\
 > vibhavaṁ cātulaṁ bhuvi
 
-> mene 'tidurlabhaṁ puṁsāṁ
-> sarvaṁ tat svapna-saṁstutam
-> vidvān vibhava-nirvāṇaṁ
+> mene 'tidurlabhaṁ puṁsāṁ\
+> sarvaṁ tat svapna-saṁstutam\
+> vidvān vibhava-nirvāṇaṁ\
 > tamo viśati yat pumān
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *ambarīṣaḥ*—el rey Ambarīṣa; *mahā-bhāgaḥ*—el muy afortunado rey; *sapta-dvīpa-vatīm*—compuesto de siete islas; *mahīm*—el mundo entero; *avyayām ca*—e inagotable; *śriyam*—belleza; *labdhvā*—tras alcanzar; *vibhavam ca*—y opulencias; *atulam*—ilimitadas; *bhuvi*—en esta Tierra; *mene*—decidió; *ati-durlabham*—que rara vez se logra; *puṁsām*—de muchas personas; *sarvam*—todo (él había obtenido); *tat*—lo que; *svapna-saṁstutam*—como imaginado en un sueño; *vidvān*—entender completamente; *vibhava-nirvāṇam*—la aniquilación de esa opulencia; *tamaḥ*—ignorancia; *viśati*—caída en; *yat*—debido a la cual; *pumān*—una persona.

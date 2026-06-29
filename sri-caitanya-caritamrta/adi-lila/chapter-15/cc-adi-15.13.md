@@ -1,9 +1,9 @@
 ### CC Adi 15.13
 
-> শুনি’ শচী-মিশ্রের দুঃখী হৈল মন ।
+> শুনি’ শচী-মিশ্রের দুঃখী হৈল মন ।\
 > তবে প্রভু মাতা-পিতার কৈল আশ্বাসন ॥১৩॥
 
-> śuni, śacī-miśrera duḥkhī haila mana
+> śuni, śacī-miśrera duḥkhī haila mana\
 > tabe prabhu mātā-pitāra kaila āśvāsana
 
 *śuni'*—hearing this; *śacī*—of mother Śacī; *miśrera*—and of Jagannātha Miśra; *duḥkhī*—very unhappy; *haila*—became; *mana*—minds; *tabe*—at that time; *prabhu*—Lord Caitanya Mahāprabhu; *mātā-pitāra*—of the parents; *kaila*—did; *āśvāsana*—pacification.

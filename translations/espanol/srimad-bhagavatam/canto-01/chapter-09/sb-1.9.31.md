@@ -1,11 +1,11 @@
 ### SB 1.9.31
 
-> विशुद्धया धारणया हताशुभस्तदीक्षयैवाशु गतायुधश्रमः ।
+> विशुद्धया धारणया हताशुभस्तदीक्षयैवाशु गतायुधश्रमः ।\
 > निवृत्तसर्वेन्द्रियवृत्तिविभ्रमस्तुष्टाव जन्यं विसृजञ्जनार्दनम् ॥३१॥
 
-> viśuddhayā dhāraṇayā hatāśubhas
-> tad-īkṣayaivāśu gatā-yudha-śramaḥ
-> nivṛtta-sarvendriya-vṛtti-vibhramas
+> viśuddhayā dhāraṇayā hatāśubhas\
+> tad-īkṣayaivāśu gatā-yudha-śramaḥ\
+> nivṛtta-sarvendriya-vṛtti-vibhramas\
 > tuṣṭāva janyaṁ visṛjañ janārdanam
 
 *viśuddhayā*—mediante la purificada; *dhāraṇayā*—meditación; *hata-aśubhaḥ*—aquel que ha reducido al mínimo las cualidades desfavorables de la existencia material; *tat*—Él; *īkṣayā*—mirando; *eva*—simplemente; *āśu*—inmediatamente; *gatā*—habiéndose ido; *yudha*—de las flechas; *śramaḥ*—fatiga; *nivṛtta*—siendo detenido; *sarva*—todos; *indriya*—sentidos; *vṛtti*—actividades; *vibhramaḥ*—estando muy dedicados; *tuṣṭāva*—oró; *janyam*—el tabernáculo material; *visṛjan*—mientras abandonaba; *janārdanam*—al controlador de los seres vivientes.

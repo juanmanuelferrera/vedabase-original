@@ -1,11 +1,11 @@
 ### SB 8.10.5
 
-> तत्र दैवासुरो नाम रणः परमदारुणः
+> तत्र दैवासुरो नाम रणः परमदारुणः\
 > रोधस्युदन्वतो राजंस्तुमुलो रोमहर्षणः ॥५॥
 
-> tatra daivāsuro nāma
-> raṇaḥ parama-dāruṇaḥ
-> rodhasy udanvato rājaṁs
+> tatra daivāsuro nāma\
+> raṇaḥ parama-dāruṇaḥ\
+> rodhasy udanvato rājaṁs\
 > tumulo roma-harṣaṇaḥ
 
 *tatra*—there (at the beach of the ocean of milk); *daiva*—the demigods; *asuraḥ*—the demons; *nāma*—as they are celebrated; *raṇaḥ*—fighting; *parama*—very much; *dāruṇaḥ*—fierce; *rodhasi*—on the beach of the sea; *udanvataḥ*—of the ocean of milk; *rājan*—O King; *tumulaḥ*—tumultuous; *roma-harṣaṇaḥ*—hair standing on the body.

@@ -1,11 +1,11 @@
 ### SB 4.17.33
 
-> सर्गादि योऽस्यानुरुणद्धि शक्तिभिर्द्रव्यक्रियाकारकचेतनात्मभिः ।
+> सर्गादि योऽस्यानुरुणद्धि शक्तिभिर्द्रव्यक्रियाकारकचेतनात्मभिः ।\
 > तस्मै समुन्नद्धनिरुद्धशक्तये नमः परस्मै पुरुषाय वेधसे ॥३३॥
 
-> sargādi yo 'syānuruṇaddhi śaktibhir
-> dravya-kriyā-kāraka-cetanātmabhiḥ
-> tasmai samunnaddha-niruddha-śaktaye
+> sargādi yo 'syānuruṇaddhi śaktibhir\
+> dravya-kriyā-kāraka-cetanātmabhiḥ\
+> tasmai samunnaddha-niruddha-śaktaye\
 > namaḥ parasmai puruṣāya vedhase
 
 *sarga-ādi*—creación, mantenimiento y disolución; *yaḥ*—el que; *asya*—del mundo material; *anuruṇaddhi*—causa; *śaktibhiḥ*—por medio de Sus propias potencias; *dravya*—elementos físicos; *kriyā*—sentidos; *kāraka*—semidioses controladores; *cetanā*—inteligencia; *ātmabhiḥ*—consistente en el falso ego; *tasmai*—a Él; *samunnaddha*—manifiesto; *niruddha*—en potencia; *śaktaye*—el que posee esas energías; *namaḥ*—reverencias; *parasmai*—a la trascendental; *puruṣāya*—Suprema Personalidad de Dios; *vedhase*—a la causa de todas las causas.

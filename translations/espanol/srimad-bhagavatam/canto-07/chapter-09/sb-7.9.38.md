@@ -1,13 +1,13 @@
 ### SB 7.9.38
 
-> इत्थं नृतिर्यगृषिदेवझषावतारैर
-> लोकान्विभावयसि हंसि जगत्प्रतीपान
-> धर्मं महापुरुष पासि युगानुवृत्तं
+> इत्थं नृतिर्यगृषिदेवझषावतारैर\
+> लोकान्विभावयसि हंसि जगत्प्रतीपान\
+> धर्मं महापुरुष पासि युगानुवृत्तं\
 > छन्नः कलौ यदभवस्त्रियुगोऽथ स त्वम ॥३८॥
 
-> itthaṁ nṛ-tiryag-ṛṣi-deva-jhaṣāvatārair
-> lokān vibhāvayasi haṁsi jagat pratīpān
-> dharmaṁ mahā-puruṣa pāsi yugānuvṛttaṁ
+> itthaṁ nṛ-tiryag-ṛṣi-deva-jhaṣāvatārair\
+> lokān vibhāvayasi haṁsi jagat pratīpān\
+> dharmaṁ mahā-puruṣa pāsi yugānuvṛttaṁ\
 > channaḥ kalau yad abhavas tri-yugo 'tha sa tvam
 
 *ittham*—de este modo; *nṛ*—en forma de ser humano (como el Señor Kṛṣṇa y el Señor Rāmacandra); *tiryak*—en forma de animales (como el jabalí); *ṛṣi*—como un gran santo (Paraśurāma); *deva*—como semidioses; *jhaṣa*—como un ser acuático (el pez o la tortuga); *avatāraiḥ*—con esas diferentes encarnaciones; *lokān*—todos los sistemas planetarios; *vibhāvayasi*—Tú proteges; *haṁsi*—Tú (a veces) matas; *jagat pratīpān*—a personas que simplemente crean problemas en el mundo; *dharmam*—los principios de la religión; *mahā-puruṣa*—¡oh, gran personalidad!; *pāsi*—Tú proteges; *yuga-anuvṛttam*—conforme a los distintos milenios; *channaḥ*—cubierto; *kalau*—en la era de Kali; *yat*—desde que; *abhavaḥ*—ha habido (y habrá en el futuro); *tri-yugaḥ*—llamado Triyuga; *atha*—por lo tanto; *saḥ*—la misma personalidad; *tvam*—Tú.

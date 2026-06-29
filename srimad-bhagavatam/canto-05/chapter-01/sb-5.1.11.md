@@ -1,13 +1,13 @@
 ### SB 5.1.11
 
-> श्रीभगवानुवाच
-> निबोध तातेदमृतं ब्रवीमि मासूयितुं देवमर्हस्यप्रमेयम
+> श्रीभगवानुवाच\
+> निबोध तातेदमृतं ब्रवीमि मासूयितुं देवमर्हस्यप्रमेयम\
 > वयं भवस्ते तत एष महर्षिर्वहाम सर्वे विवशा यस्य दिष्टम ॥११॥
 
-> śrī-bhagavān uvāca
-> nibodha tātedam ṛtaṁ bravīmi
-> māsūyituṁ devam arhasy aprameyam
-> vayaṁ bhavas te tata eṣa maharṣir
+> śrī-bhagavān uvāca\
+> nibodha tātedam ṛtaṁ bravīmi\
+> māsūyituṁ devam arhasy aprameyam\
+> vayaṁ bhavas te tata eṣa maharṣir\
 > vahāma sarve vivaśā yasya diṣṭam
 
 *śrī-bhagavān uvāca*—the supreme person, Lord Brahmā, said; *nibodha*—kindly hear with attention; *tāta*—my dear son; *idam*—this; *ṛtam*—true; *bravīmi*—I am speaking; *mā*—not; *asūyitum*—to be jealous of; *devam*—the Supreme Personality of Godhead; *arhasi*—you ought; *aprameyam*—who is beyond our experimental knowledge; *vayam*—we; *bhavaḥ*—Lord Śiva; *te*—your; *tataḥ*—father; *eṣaḥ*—this; *mahā-ṛṣiḥ*—Nārada; *vahāmaḥ*—carry out; *sarve*—all; *vivaśāḥ*—unable to deviate; *yasya*—of whom; *diṣṭam*—the order.

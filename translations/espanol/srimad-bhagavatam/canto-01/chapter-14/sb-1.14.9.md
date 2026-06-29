@@ -1,11 +1,11 @@
 ### SB 1.14.9
 
-> यस्मान्नः सम्पदो राज्यं दाराः प्राणाः कुलं प्रजाः ।
+> यस्मान्नः सम्पदो राज्यं दाराः प्राणाः कुलं प्रजाः ।\
 > आसन्सपत्नविजयो लोकाश्च यदनुग्रहात् ॥९॥
 
-> yasmān naḥ sampado rājyaṁ
-> dārāḥ prāṇāḥ kulaṁ prajāḥ
-> āsan sapatna-vijayo
+> yasmān naḥ sampado rājyaṁ\
+> dārāḥ prāṇāḥ kulaṁ prajāḥ\
+> āsan sapatna-vijayo\
 > lokāś ca yad-anugrahāt
 
 *yasmāt*—de quien; *naḥ*—nuestra; *sampadaḥ*—opulencia; *rājyam*—reino; *dārāḥ*—buenas esposas; *prāṇāḥ*—existencia de la vida; *kulam*—dinastía; *prajāḥ*—súbditos; *āsan*—se ha hecho posible; *sapatna*—competidores; *vijayaḥ*—conquistando; *lokāḥ*—futura ubicación en planetas superiores; *ca*—y; *yat*—cuya; *anugrahāt*—por la misericordia de.

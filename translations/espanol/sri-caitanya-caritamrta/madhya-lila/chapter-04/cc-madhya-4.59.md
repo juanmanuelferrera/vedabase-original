@@ -1,9 +1,9 @@
 ### CC Madhya 4.59
 
-> তুলসী আদি, পুষ্প, বস্ত্র আইল অনেক ।
+> তুলসী আদি, পুষ্প, বস্ত্র আইল অনেক ।\
 > আপনে মাধবপুরী কৈল অভিষেক ॥৫৯॥
 
-> tulasī ādi, puṣpa, vastra āila aneka
+> tulasī ādi, puṣpa, vastra āila aneka\
 > āpane mādhava-purī kaila abhiṣeka
 
 *tulasī*—hojas de tulasī; *ādi*—y otras cosas; *puṣpa*—flores; *vastra*—prendas; *āila*—llegaron; *aneka*—en gran cantidad; *āpane*—personalmente; *mādhava-purī*—Śrī Mādhavendra Purī; *kaila*—realizó; *abhiṣeka*—el baño de la Deidad al comienzo de la ceremonia de instalación.

@@ -1,11 +1,11 @@
 ### Bg 9.17
 
-> पिताहमस्य जगतो माता धाता पितामहः ।
+> पिताहमस्य जगतो माता धाता पितामहः ।\
 > वेद्यं पवित्रमोंकार ऋक्साम यजुरेव च ॥१७॥
 
-> pitāham asya jagato
-> mātā dhātā pitāmahaḥ
-> vedyaṁ pavitram oṁkāra
+> pitāham asya jagato\
+> mātā dhātā pitāmahaḥ\
+> vedyaṁ pavitram oṁkāra\
 > ṛk sāma yajur eva ca
 
 *pitā*—padre; *aham*—Yo; *asya*—de este; *jagataḥ*—del universo; *mātā*—madre; *dhātā*—el que apoya; *pitāmahaḥ*—abuelo; *vedyam*—lo que ha de conocerse; *pavitram*—aquello que purifica; *omkāraḥ*—la sílaba om; *ṛk*—el Ṛg-veda; *sāma*—el Sāma-veda; *yajuḥ*—el Yajur-veda; *eva*—ciertamente; *ca*—y.

@@ -1,11 +1,11 @@
 ### SB 5.5.25
 
-> मत्तोऽप्यनन्तात्परतः परस्मात्स्वर्गापवर्गाधिपतेर्न किञ्चित
+> मत्तोऽप्यनन्तात्परतः परस्मात्स्वर्गापवर्गाधिपतेर्न किञ्चित\
 > येषां किमु स्यादितरेण तेषामकिञ्चनानां मयि भक्तिभाजाम ॥२५॥
 
-> matto 'py anantāt parataḥ parasmāt
-> svargāpavargādhipater na kiñcit
-> yeṣāṁ kim u syād itareṇa teṣām
+> matto 'py anantāt parataḥ parasmāt\
+> svargāpavargādhipater na kiñcit\
+> yeṣāṁ kim u syād itareṇa teṣām\
 > akiñcanānāṁ mayi bhakti-bhājām
 
 *mattaḥ*—de Mí; *api*—incluso; *anantāt*—de fuerza y opulencia ilimitadas; *parataḥ parasmāt*—superior al más elevado; *svarga-apavarga-adhipateḥ*—capaz de otorgar la felicidad que se obtiene por vivir en el reino celestial, por lograr la liberación o por el disfrute de las comodidades materiales seguido de la liberación; *na*—no; *kiñcit*—nada; *yeṣām*—de quien; *kim*—qué necesidad; *u*—¡oh!; *syāt*—puede haber; *itareṇa*—con cualquier otra; *teṣām*—de ellas; *akiñcanānām*—sin necesidades, o sin posesiones; *mayi*—a Mí; *bhakti-bhājām*—ejecutar servicio devocional.

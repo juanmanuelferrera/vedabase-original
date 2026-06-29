@@ -1,9 +1,9 @@
 ### CC Antya 3.25
 
-> মাতার গৃহে রহ যাই মাতার চরণে ।
+> মাতার গৃহে রহ যাই মাতার চরণে ।\
 > তোমার আগে নহিবে কারো স্বচ্ছন্দাচরণে ॥২৫॥
 
-> mātāra gṛhe raha yāi mātāra caraṇe
+> mātāra gṛhe raha yāi mātāra caraṇe\
 > tomāra āge nahibe kāro svacchandācaraṇe
 
 *mātāra*—of My mother; *gṛhe*—at the home; *raha*—stay; *yāi*—going; *mātāra caraṇe*—at the shelter of My mother's lotus feet; *tomāra āge*—in front of you; *nahibe*—there will not be; *kāro*—of anyone; *svacchanda-ācaraṇe*—independent activities.

@@ -1,11 +1,11 @@
 ### SB 9.14.11
 
-> ममायं न तवेत्युच्चैस्तस्मिन्विवदमानयोः
+> ममायं न तवेत्युच्चैस्तस्मिन्विवदमानयोः\
 > पप्रच्छुरृषयो देवा नैवोचे व्रीडिता तु सा ॥११॥
 
-> mamāyaṁ na tavety uccais
-> tasmin vivadamānayoḥ
-> papracchur ṛṣayo devā
+> mamāyaṁ na tavety uccais\
+> tasmin vivadamānayoḥ\
+> papracchur ṛṣayo devā\
 > naivoce vrīḍitā tu sā
 
 *mama*—mine; *ayam*—this (child); *na*—not; *tava*—yours; *iti*—thus; *uccaiḥ*—very loudly; *tasmin*—for the child; *vivadamānayoḥ*—when the two parties were fighting; *papracchuḥ*—inquired (from Tārā); *ṛṣayaḥ*—all the saintly persons; *devāḥ*—all the demigods; *na*—not; *eva*—indeed; *uce*—said anything; *vrīḍitā*—being ashamed; *tu*—indeed; *sā*—Tārā.

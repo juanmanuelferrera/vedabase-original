@@ -1,11 +1,11 @@
 ### SB 7.11.17
 
-> जघन्यो नोत्तमां वृत्तिमनापदि भजेन्नरः
+> जघन्यो नोत्तमां वृत्तिमनापदि भजेन्नरः\
 > ऋते राजन्यमापत्सु सर्वेषामपि सर्वशः ॥१७॥
 
-> jaghanyo nottamāṁ vṛttim
-> anāpadi bhajen naraḥ
-> ṛte rājanyam āpatsu
+> jaghanyo nottamāṁ vṛttim\
+> anāpadi bhajen naraḥ\
+> ṛte rājanyam āpatsu\
 > sarveṣām api sarvaśaḥ
 
 *jaghanyaḥ*—low (person); *na*—not; *uttamām*—high; *vṛttim*—means of livelihood; *anāpadi*—when there is no social upheaval; *bhajet*—may accept; *naraḥ*—a man; *ṛte*—except; *rājanyam*—the profession of the *kṣatriyas*; *āpatsu*—at times of emergency; *sarveṣām*—of everyone in every status of life; *api*—certainly; *sarvaśaḥ*—all professions or occupational duties.

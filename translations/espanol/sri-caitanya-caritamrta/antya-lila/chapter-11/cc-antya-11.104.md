@@ -1,9 +1,9 @@
 ### CC Antya 11.104
 
-> আপনে শ্রীহস্তে কৃপায় তাঁরে বালু দিলা ।
+> আপনে শ্রীহস্তে কৃপায় তাঁরে বালু দিলা ।\
 > আপনে প্রসাদ মাগি’ মহোৎসব কৈলা ॥১০৪॥
 
-> āpane śrī-haste kṛpāya tāṅre vālu dilā
+> āpane śrī-haste kṛpāya tāṅre vālu dilā\
 > āpane prasāda māgi' mahotsava kailā
 
 *āpane*—personalmente; *śrī-haste*—con Sus manos trascendentales; *kṛpāya*—por Su misericordia sin causa; *tāṅre*—a él; *vālu dilā*—cubrió con arena; *āpane*—personalmente; *prasāda māgi'*—pidiendo prasādam; *mahotsava kailā*—realizó un gran festival.

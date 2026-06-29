@@ -1,9 +1,9 @@
 ### CC Madhya 24.200
 
-> ‘আত্মা’-শব্দে ‘স্বভাব’ কহে, তাতে যেই রমে ।
+> ‘আত্মা’-শব্দে ‘স্বভাব’ কহে, তাতে যেই রমে ।\
 > আত্মারাম জীব যত স্থাবর-জঙ্গমে ॥২০০॥
 
-> 'ātmā'-śabde 'svabhāva' kahe, tāte yei rame
+> 'ātmā'-śabde 'svabhāva' kahe, tāte yei rame\
 > ātmārāma jīva yata sthāvara-jaṅgame
 
 *ātmā-śabde*—con la palabra ātmā; *svabhāva*—naturaleza; *kahe*—a veces se dice; *tāte*—en eso; *yei rame*—aquel que se deleita; *ātmārāma*—llamado ātmārāma; *jīva*—las entidades vivientes; *yata*—todas ellas; *sthāvara-jaṅgame*—las móviles y las inmóviles.

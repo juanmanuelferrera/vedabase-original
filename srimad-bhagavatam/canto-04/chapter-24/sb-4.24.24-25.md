@@ -1,18 +1,18 @@
 ### SB 4.24.24-25
 
-> तर्ह्येव सरसस्तस्मान्निष्क्रामन्तं सहानुगम् ।
-> उपगीयमानममर प्रवरं विबुधानुगैः ॥२४॥
-> तप्तहेमनिकायाभं शितिकण्ठं त्रिलोचनम् ।
+> तर्ह्येव सरसस्तस्मान्निष्क्रामन्तं सहानुगम् ।\
+> उपगीयमानममर प्रवरं विबुधानुगैः ॥२४॥\
+> तप्तहेमनिकायाभं शितिकण्ठं त्रिलोचनम् ।\
 > प्रसादसुमुखं वीक्ष्य प्रणेमुर्जातकौतुकाः ॥२५॥
 
-> tarhy eva sarasas tasmān
-> niṣkrāmantaṁ sahānugam
-> upagīyamānam amara-
+> tarhy eva sarasas tasmān\
+> niṣkrāmantaṁ sahānugam\
+> upagīyamānam amara-\
 > pravaraṁ vibudhānugaiḥ
 
-> tapta-hema-nikāyābhaṁ
-> śiti-kaṇṭhaṁ tri-locanam
-> prasāda-sumukhaṁ vīkṣya
+> tapta-hema-nikāyābhaṁ\
+> śiti-kaṇṭhaṁ tri-locanam\
+> prasāda-sumukhaṁ vīkṣya\
 > praṇemur jāta-kautukāḥ
 
 *tarhi*—in that very moment; *eva*—certainly; *sarasaḥ*—from the water; *tasmāt*—therefrom; *niṣkrāmantam*—coming out; *saha-anugam*—accompanied by great souls; *upagīyamānam*—glorified by the followers; *amara-pravaram*—the chief of the demigods; *vibudha-anugaiḥ*—followed by his associates; *tapta-hema*—molten gold; *nikāya-ābham*—bodily features; *śiti-kaṇṭham*—blue throat; *tri-locanam*—with three eyes; *prasāda*—merciful; *su-mukham*—beautiful face; *vīkṣya*—seeing; *praṇemuḥ*—offered obeisances; *jāta*—aroused; *kautukāḥ*—being amazed by the situation.

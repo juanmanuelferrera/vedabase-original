@@ -1,11 +1,11 @@
 ### SB 9.13.7
 
-> गन्धवस्तुषु तद्देहं निधाय मुनिसत्तमाः
+> गन्धवस्तुषु तद्देहं निधाय मुनिसत्तमाः\
 > समाप्ते सत्रयागे च देवानूचुः समागतान ॥७॥
 
-> gandha-vastuṣu tad-dehaṁ
-> nidhāya muni-sattamāḥ
-> samāpte satra-yāge ca
+> gandha-vastuṣu tad-dehaṁ\
+> nidhāya muni-sattamāḥ\
+> samāpte satra-yāge ca\
 > devān ūcuḥ samāgatān
 
 *gandha-vastuṣu*—en sustancias muy fragantes; *tat-deham*—el cuerpo de Mahārāja Nimi; *nidhāya*—haber conservado; *muni-sattamāḥ*—todos los grandes sabios allí reunidos; *samāpte satra-yāge*—al final del sacrificio que recibe el nombre de *satra*; *ca*—también; *devān*—a todos los semidioses; *ūcuḥ*—rogaron o hablaron; *samāgatān*—que estaban allí reunidos.

@@ -1,11 +1,11 @@
 ### SB 4.16.6
 
-> वसु काल उपादत्ते काले चायं विमुञ्चति ।
+> वसु काल उपादत्ते काले चायं विमुञ्चति ।\
 > समः सर्वेषु भूतेषु प्रतपन्सूर्यवद्विभुः ॥६॥
 
-> vasu kāla upādatte
-> kāle cāyaṁ vimuñcati
-> samaḥ sarveṣu bhūteṣu
+> vasu kāla upādatte\
+> kāle cāyaṁ vimuñcati\
+> samaḥ sarveṣu bhūteṣu\
 > pratapan sūryavad vibhuḥ
 
 *vasu*—riches; *kāle*—in due course of time; *upādatte*—exacts; *kāle*—in due course of time; *ca*—also; *ayam*—this King Pṛthu; *vimuñcati*—returns; *samaḥ*—equal; *sarveṣu*—to all; *bhūteṣu*—living entities; *pratapan*—shining; *sūrya-vat*—like the sun-god; *vibhuḥ*—powerful.

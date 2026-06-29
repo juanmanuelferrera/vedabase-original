@@ -1,11 +1,11 @@
 ### SB 2.6.25
 
-> वस्तून्योषधयः स्नेहा रसलोहमृदो जलम् ।
+> वस्तून्योषधयः स्नेहा रसलोहमृदो जलम् ।\
 > ऋचो यजूंषि सामानि चातुर्होत्रं च सत्तम ॥२५॥
 
-> vastūny oṣadhayaḥ snehā
-> rasa-loha-mṛdo jalam
-> ṛco yajūṁṣi sāmāni
+> vastūny oṣadhayaḥ snehā\
+> rasa-loha-mṛdo jalam\
+> ṛco yajūṁṣi sāmāni\
 > cātur-hotraṁ ca sattama
 
 *vastūni*—utensils; *oṣadhayaḥ*—grains; *snehāḥ*—clarified butter; *rasa-loha-mṛdaḥ*—honey, gold and earth; *jalam*—water; *ṛcaḥ*—the *Ṛg Veda*; *yajūṁṣi*—the *Yajur Veda*; *sāmāni*—the *Sāma Veda*; *cātuḥ-hotram*—four persons conducting the performance; *ca*—all these; *sattama*—O most pious one.

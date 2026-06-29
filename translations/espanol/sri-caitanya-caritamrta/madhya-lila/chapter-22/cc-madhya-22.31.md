@@ -1,9 +1,9 @@
 ### CC Madhya 22.31
 
-> কৃষ্ণ — সূর্যসম, মায়া হয় অন্ধকার ।
+> কৃষ্ণ — সূর্যসম, মায়া হয় অন্ধকার ।\
 > যাহাঁ কৃষ্ণ, তাহাঁ নাহি মায়ার অধিকার ॥৩১॥
 
-> kṛṣṇa--sūrya-sama; māyā haya andhakāra
+> kṛṣṇa--sūrya-sama; māyā haya andhakāra\
 > yāhāṅ kṛṣṇa, tāhāṅ nāhi māyāra adhikāra
 
 *kṛṣṇa*—Kṛṣṇa, la Suprema Personalidad de Dios; *sūrya-sama*—como el sol; *māyā*—la energía ilusoria; *haya*—es; *andhakāra*—oscuridad; *yāhāṅ kṛṣṇa*—dondequiera que esté Kṛṣṇa; *tāhāṅ*—allí; *nāhi*—no; *māyāra*—de la māyā, o la oscuridad de la ilusión; *adhikāra*—la jurisdicción.

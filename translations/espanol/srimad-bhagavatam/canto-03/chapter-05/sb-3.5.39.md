@@ -1,13 +1,13 @@
 ### SB 3.5.39
 
-> देवा ऊचुः
-> नमाम ते देव पदारविन्दं प्रपन्नतापोपशमातपत्रम् ।
+> देवा ऊचुः\
+> नमाम ते देव पदारविन्दं प्रपन्नतापोपशमातपत्रम् ।\
 > यन्मूलकेता यतयोऽञ्जसोरु संसारदुःखं बहिरुत्क्षिपन्ति ॥३९॥
 
-> devā ūcuḥ
-> namāma te deva padāravindaṁ
-> prapanna-tāpopaśamātapatram
-> yan-mūla-ketā yatayo 'ñjasoru-
+> devā ūcuḥ\
+> namāma te deva padāravindaṁ\
+> prapanna-tāpopaśamātapatram\
+> yan-mūla-ketā yatayo 'ñjasoru-\
 > saṁsāra-duḥkhaṁ bahir utkṣipanti
 
 *devāḥ ūcuḥ*—los semidioses dijeron; *namāma*—ofrecemos nuestras respetuosas reverencias; *te*—Tus; *deva*—¡oh, Señor!; *pada-aravindam*—pies de loto; *prapanna*—entregado; *tāpa*—aflicción; *upaśama*—suprime; *ātapatram*—paraguas; *yat-mūla-ketāḥ*—refugio de los pies de loto; *yatayaḥ*—grandes sabios; *añjasā*—totalmente; *uru*—grandes; *saṁsāra-duḥkham*—miserias de la existencia material; *bahiḥ*—fuera; *utkṣipanti*—arrojar a la fuerza.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.105
 
-> সত্যরাজ বলে, — বৈষ্ণব চিনিব কেমনে ?
+> সত্যরাজ বলে, — বৈষ্ণব চিনিব কেমনে ?\
 > কে বৈষ্ণব, কহ তাঁর সামান্য লক্ষণে ॥১০৫॥
 
-> satyarāja bale,--vaiṣṇava ciniba kemane?
+> satyarāja bale,--vaiṣṇava ciniba kemane?\
 > ke vaiṣṇava, kaha tāṅra sāmānya lakṣaṇe
 
 *satyarāja bale*—Satyarāja Khān dijo; *vaiṣṇava*—un vaiṣṇava; *ciniba kemane*—¿cómo lo reconoceré?; *ke vaiṣṇava*—quién es un vaiṣṇava; *kaha*—por favor dime; *tāṅra*—de él; *sāmānya lakṣaṇe*—los síntomas comunes.

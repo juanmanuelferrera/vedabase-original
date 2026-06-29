@@ -1,9 +1,9 @@
 ### CC Antya 2.111
 
-> প্রভু কহে, — ‘কোন্ যাই’ মাগিয়া আনিল ?’
+> প্রভু কহে, — ‘কোন্ যাই’ মাগিয়া আনিল ?’\
 > ছোট-হরিদাসের নাম আচার্য কহিল ॥১১১॥
 
-> prabhu kahe,--'kon yāi' māgiyā ānila?'
+> prabhu kahe,--'kon yāi' māgiyā ānila?'\
 > choṭa-haridāsera nāma ācārya kahila
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *kon yāi'*—quién fue; *māgiyā*—a pedir; *ānila*—trajo; *choṭa-haridāsera*—de Haridāsa el menor; *nāma*—el nombre; *ācārya kahila*—Bhagavān Ācārya informó.

@@ -1,11 +1,11 @@
 ### SB 1.18.27
 
-> विप्रकीर्णजटाच्छन्नं रौरवेणाजिनेन च ।
+> विप्रकीर्णजटाच्छन्नं रौरवेणाजिनेन च ।\
 > विशुष्यत्तालुरुदकं तथाभूतमयाचत ॥२७॥
 
-> viprakīrṇa-jaṭācchannaṁ
-> rauraveṇājinena ca
-> viśuṣyat-tālur udakaṁ
+> viprakīrṇa-jaṭācchannaṁ\
+> rauraveṇājinena ca\
+> viśuṣyat-tālur udakaṁ\
 > tathā-bhūtam ayācata
 
 *viprakīrṇa*—all scattered; *jaṭa-ācchannam*—covered with compressed, long hair; *rauraveṇa*—by the skin of a stag; *ajinena*—by the skin; *ca*—also; *viśuṣyat*—dried up; *tāluḥ*—palate; *udakam*—water; *tathā-bhūtam*—in that state; *ayācata*—asked for.

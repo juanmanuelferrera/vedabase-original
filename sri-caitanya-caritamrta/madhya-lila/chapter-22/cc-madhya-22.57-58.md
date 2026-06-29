@@ -1,18 +1,18 @@
 ### CC Madhya 22.57-58
 
-> সর্বগুহ্যতমং ভূয়ঃ শৃণু মে পরমং বচঃ ।
-> ইষ্টোঽসি মে দৃঢ়মিতি ততো বক্ষ্যামি তে হিতম্ ॥৫৭॥
-> মন্মনা ভব মদ্ভক্তো মদ্যাজী মাং নমস্কুরু ।
+> সর্বগুহ্যতমং ভূয়ঃ শৃণু মে পরমং বচঃ ।\
+> ইষ্টোঽসি মে দৃঢ়মিতি ততো বক্ষ্যামি তে হিতম্ ॥৫৭॥\
+> মন্মনা ভব মদ্ভক্তো মদ্যাজী মাং নমস্কুরু ।\
 > মামেবৈষ্যসি সত্যং তে প্রতিজানে প্রিয়োঽসি মে ॥৫৮॥
 
-> sarva-guhyatamaṁ bhūyaḥ
-> śṛṇu me paramaṁ vacaḥ
-> iṣṭo 'si me dṛḍham iti
+> sarva-guhyatamaṁ bhūyaḥ\
+> śṛṇu me paramaṁ vacaḥ\
+> iṣṭo 'si me dṛḍham iti\
 > tato vakṣyāmi te hitam
 
-> man-manā bhava mad-bhakto
-> mad-yājī māṁ namaskuru
-> mām evaiṣyasi satyaṁ te
+> man-manā bhava mad-bhakto\
+> mad-yājī māṁ namaskuru\
+> mām evaiṣyasi satyaṁ te\
 > pratijāne priyo 'si me
 
 *sarva-guhya-tamam*—most confidential of all; *bhūyaḥ*—again; *śṛṇu*—hear; *me*—My; *paramam vacaḥ*—supreme instruction; *iṣṭaḥ*—beloved; *asi*—you are; *me*—My; *dṛḍham iti*—very firmly; *tataḥ*—therefore; *vakṣyāmi*—I shall speak; *te*—to you; *hitam*—words of benediction; *mat-manāḥ*—whose mind is always on Me; *bhava*—become; *mat-bhaktaḥ*—My devotee; *mat-yājī*—My worshiper; *mām*—unto Me; *namaskuru*—offer obeisances; *mām eva*—to Me only; *eṣyasi*—you will come; *satyam*—truly; *te*—to you; *pratijāne*—I promise; *priyaḥ asi*—you are dear; *me*—My.

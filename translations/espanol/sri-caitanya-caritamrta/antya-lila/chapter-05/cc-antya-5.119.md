@@ -1,9 +1,9 @@
 ### CC Antya 5.119
 
-> পূর্ণ-ষড়শ্বৈর্য চৈতন্য — স্বয়ং ভগবান্ ।
+> পূর্ণ-ষড়শ্বৈর্য চৈতন্য — স্বয়ং ভগবান্ ।\
 > তাঁরে কৈলি ক্ষুদ্র জীব স্ফুলিঙ্গ-সমান !! ॥ ১১৯ ॥
 
-> pūrṇa-ṣaḍ-aiśvarya caitanya--svayaṁ bhagavān
+> pūrṇa-ṣaḍ-aiśvarya caitanya--svayaṁ bhagavān\
 > tāṅre kaili kṣudra jīva sphuliṅga-samāna!!
 
 *pūrṇa*—completas; *ṣaṭ-aiśvarya*—que posee seis opulencias; *caitanya*—el Señor Śrī Caitanya Mahāprabhu; *svayam*—Él mismo; *bhagavān*—la Suprema Personalidad de Dios; *tāṅre*—a Él; *kaili*—has hecho; *kṣudra jīva*—una entidad viviente ordinaria; *sphuliṅga-samāna*—exactamente igual a una chispa.

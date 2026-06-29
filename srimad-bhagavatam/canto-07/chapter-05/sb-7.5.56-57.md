@@ -1,18 +1,18 @@
 ### SB 7.5.56-57
 
-> ते तु तद्गौरवात्सर्वे त्यक्तक्रीडापरिच्छदाः
-> बाला अदूषितधियो द्वन्द्वारामेरितेहितैः ॥५६॥
-> पर्युपासत राजेन्द्र तन्न्यस्तहृदयेक्षणाः
+> ते तु तद्गौरवात्सर्वे त्यक्तक्रीडापरिच्छदाः\
+> बाला अदूषितधियो द्वन्द्वारामेरितेहितैः ॥५६॥\
+> पर्युपासत राजेन्द्र तन्न्यस्तहृदयेक्षणाः\
 > तानाह करुणो मैत्रो महाभागवतोऽसुरः ॥५७॥
 
-> te tu tad-gauravāt sarve
-> tyakta-krīḍā-paricchadāḥ
-> bālā adūṣita-dhiyo
+> te tu tad-gauravāt sarve\
+> tyakta-krīḍā-paricchadāḥ\
+> bālā adūṣita-dhiyo\
 > dvandvārāmeritehitaiḥ
 
-> paryupāsata rājendra
-> tan-nyasta-hṛdayekṣaṇāḥ
-> tān āha karuṇo maitro
+> paryupāsata rājendra\
+> tan-nyasta-hṛdayekṣaṇāḥ\
+> tān āha karuṇo maitro\
 > mahā-bhāgavato 'suraḥ
 
 *te*—they; *tu*—indeed; *tat-gauravāt*—from great respect for the words of Prahlāda Mahārāja (due to his being a devotee); *sarve*—all of them; *tyakta*—having given up; *krīḍā-paricchadāḥ*—toys for playing; *bālāḥ*—the boys; *adūṣita-dhiyaḥ*—whose intelligence was not as polluted (as that of their fathers); *dvandva*—in duality; *ārāma*—of those taking pleasure (the instructors, namely Ṣaṇḍa and Amarka); *īrita*—by the instructions; *īhitaiḥ*—and actions; *paryupāsata*—sat down around; *rāja-indra*—O King Yudhiṣṭhira; *tat*—unto him; *nyasta*—having given up; *hṛdaya-īkṣaṇāḥ*—their hearts and eyes; *tān*—unto them; *āha*—spoke; *karuṇaḥ*—very merciful; *maitraḥ*—a real friend; *mahā-bhāgavataḥ*—a most exalted devotee; *asuraḥ*—Prahlāda Mahārāja, although born of an *asura* father.

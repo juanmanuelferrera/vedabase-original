@@ -1,11 +1,11 @@
 ### SB 3.31.37
 
-> तत्सृष्टसृष्टसृष्टेषु को न्वखण्डितधीः पुमान् ।
+> तत्सृष्टसृष्टसृष्टेषु को न्वखण्डितधीः पुमान् ।\
 > ऋषिं नारायणमृते योषिन्मय्येह मायया ॥३७॥
 
-> tat-sṛṣṭa-sṛṣṭa-sṛṣṭeṣu
-> ko nv akhaṇḍita-dhīḥ pumān
-> ṛṣiṁ nārāyaṇam ṛte
+> tat-sṛṣṭa-sṛṣṭa-sṛṣṭeṣu\
+> ko nv akhaṇḍita-dhīḥ pumān\
+> ṛṣiṁ nārāyaṇam ṛte\
 > yoṣin-mayyeha māyayā
 
 *tat*—por Brahmā; *sṛṣṭa-sṛṣṭa-sṛṣṭeṣu*—entre todas las entidades vivientes generadas; *kaḥ*—quien; *nu*—en verdad; *akhaṇḍita*—no distraída; *dhīḥ*—su inteligencia; *pumān*—varón; *ṛṣim*—el sabio; *nārāyaṇam*—Nārāyaṇa; *ṛte*—excepto; *yoṣit-mayyā*—en la forma de una mujer; *iha*—aquí; *māyayā*—por *māyā.*.

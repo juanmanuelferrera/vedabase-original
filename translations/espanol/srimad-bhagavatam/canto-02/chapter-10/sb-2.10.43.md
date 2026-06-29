@@ -1,11 +1,11 @@
 ### SB 2.10.43
 
-> ततः कालाग्निरुद्रात्मा यत्सृष्टमिदमात्मनः ।
+> ततः कालाग्निरुद्रात्मा यत्सृष्टमिदमात्मनः ।\
 > सन्नियच्छति तत्काले घनानीकमिवानिलः ॥४३॥
 
-> tataḥ kālāgni-rudrātmā
-> yat sṛṣṭam idam ātmanaḥ
-> sanniyacchati tat kāle
+> tataḥ kālāgni-rudrātmā\
+> yat sṛṣṭam idam ātmanaḥ\
+> sanniyacchati tat kāle\
 > ghanānīkam ivānilaḥ
 
 *tataḥ*—después de eso, el final; *kāla*—destrucción; *agni*—fuego; *rudra-ātmā*—en la forma de Rudra; *yat*—todo lo que; *sṛṣṭam*—creado; *idam*—todos estos; *ātmanaḥ*—de Sus propios; *sam*—completamente; *niyacchati*—aniquila; *tat kāle*—al final del milenio; *ghana-anīkam*—grupos de nubes; *iva*—como aquel de; *anilaḥ*—aire.

@@ -1,11 +1,11 @@
 ### SB 7.14.29
 
-> यत्र यत्र हरेरर्चा स देशः श्रेयसां पदम
+> यत्र यत्र हरेरर्चा स देशः श्रेयसां पदम\
 > यत्र गङ्गादयो नद्यः पुराणेषु च विश्रुताः ॥२९॥
 
-> yatra yatra harer arcā
-> sa deśaḥ śreyasāṁ padam
-> yatra gaṅgādayo nadyaḥ
+> yatra yatra harer arcā\
+> sa deśaḥ śreyasāṁ padam\
+> yatra gaṅgādayo nadyaḥ\
 > purāṇeṣu ca viśrutāḥ
 
 *yatra yatra*—wherever; *hareḥ*—of the Supreme Personality of Godhead, Kṛṣṇa; *arcā*—the Deity is worshiped; *saḥ*—that; *deśaḥ*—place, country or neighborhood; *śreyasām*—of all auspiciousness; *padam*—the place; *yatra*—wherever; *gaṅgā-ādayaḥ*—like the Ganges, Yamunā, Narmadā and Kāverī; *nadyaḥ*—sacred rivers; *purāṇeṣu*—in the *purāṇas* (supplementary Vedic literature); *ca*—also; *viśrutāḥ*—are celebrated.

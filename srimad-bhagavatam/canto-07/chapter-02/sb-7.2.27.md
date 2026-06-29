@@ -1,11 +1,11 @@
 ### SB 7.2.27
 
-> अत्राप्युदाहरन्तीममितिहासं पुरातनम
+> अत्राप्युदाहरन्तीममितिहासं पुरातनम\
 > यमस्य प्रेतबन्धूनां संवादं तं निबोधत ॥२७॥
 
-> atrāpy udāharantīmam
-> itihāsaṁ purātanam
-> yamasya preta-bandhūnāṁ
+> atrāpy udāharantīmam\
+> itihāsaṁ purātanam\
+> yamasya preta-bandhūnāṁ\
 > saṁvādaṁ taṁ nibodhata
 
 *atra*—in this connection; *api*—indeed; *udāharanti*—they cite; *imam*—this; *itihāsam*—history; *purātanam*—very old; *yamasya*—of Yamarāja, the superintendent of death, who gives judgment after death; *preta-bandhūnām*—of the friends of a dead man; *saṁvādam*—discussion; *tam*—that; *nibodhata*—try to understand.

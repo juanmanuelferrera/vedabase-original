@@ -1,11 +1,11 @@
 ### SB 4.25.30
 
-> यदेष मापाङ्गविखण्डितेन्द्रियं सव्रीडभावस्मितविभ्रमद्भ्रुवा ।
+> यदेष मापाङ्गविखण्डितेन्द्रियं सव्रीडभावस्मितविभ्रमद्भ्रुवा ।\
 > त्वयोपसृष्टो भगवान्मनोभवः प्रबाधतेऽथानुगृहाण शोभने ॥३०॥
 
-> yad eṣa māpāṅga-vikhaṇḍitendriyaṁ
-> savrīḍa-bhāva-smita-vibhramad-bhruvā
-> tvayopasṛṣṭo bhagavān mano-bhavaḥ
+> yad eṣa māpāṅga-vikhaṇḍitendriyaṁ\
+> savrīḍa-bhāva-smita-vibhramad-bhruvā\
+> tvayopasṛṣṭo bhagavān mano-bhavaḥ\
 > prabādhate 'thānugṛhāṇa śobhane
 
 *yat*—because; *eṣaḥ*—this; *mā*—me; *apāṅga*—by your glances; *vikhaṇḍita*—agitated; *indriyam*—whose senses or mind; *sa-vrīḍa*—with shyness; *bhāva*—affection; *smita*—smiling; *vibhramat*—bewildering; *bhruvā*—with eyebrows; *tvayā*—by you; *upasṛṣṭaḥ*—being influenced; *bhagavān*—the most powerful; *manaḥ-bhavaḥ*—cupid; *prabādhate*—is harassing; *atha*—therefore; *anugṛhāṇa*—be merciful; *śobhane*—O very beautiful one.

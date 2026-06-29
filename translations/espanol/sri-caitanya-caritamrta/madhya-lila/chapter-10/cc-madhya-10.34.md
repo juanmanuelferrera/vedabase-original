@@ -1,9 +1,9 @@
 ### CC Madhya 10.34
 
-> তবে মহাপ্রভু তাহাঁ বসিলা আসনে ৷
+> তবে মহাপ্রভু তাহাঁ বসিলা আসনে ৷\
 > চৌদিকে বসিলা নিত্যানন্দাদি ভক্তগণে ৷৷ ৩৪ ৷৷ ॥৩৪॥
 
-> tabe mahāprabhu tāhāṅ vasilā āsane
+> tabe mahāprabhu tāhāṅ vasilā āsane\
 > caudike vasilā nityānandādi bhakta-gaṇe
 
 *tabe*—en ese momento; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāhāṅ*—allí; *vasilā*—Se sentó; *āsane*—en Su asiento; *cau-dike*—a los cuatro lados; *vasilā*—se sentaron; *nityānanda-ādi*—encabezados por el Señor Nityānanda; *bhakta-gaṇe*—todos los devotos.

@@ -1,11 +1,11 @@
 ### SB 3.29.39
 
-> न चास्य कश्चिद्दयितो न द्वेष्यो न च बान्धवः ।
+> न चास्य कश्चिद्दयितो न द्वेष्यो न च बान्धवः ।\
 > आविशत्यप्रमत्तोऽसौ प्रमत्तं जनमन्तकृत् ॥३९॥
 
-> na cāsya kaścid dayito
-> na dveṣyo na ca bāndhavaḥ
-> āviśaty apramatto 'sau
+> na cāsya kaścid dayito\
+> na dveṣyo na ca bāndhavaḥ\
+> āviśaty apramatto 'sau\
 > pramattaṁ janam anta-kṛt
 
 *na*—not; *ca*—and; *asya*—of the Supreme Personality of Godhead; *kaścit*—anyone; *dayitaḥ*—dear; *na*—not; *dveṣyaḥ*—enemy; *na*—not; *ca*—and; *bāndhavaḥ*—friend; *āviśati*—approaches; *apramattaḥ*—attentive; *asau*—He; *pramattam*—inattentive; *janam*—persons; *anta-kṛt*—the destroyer.

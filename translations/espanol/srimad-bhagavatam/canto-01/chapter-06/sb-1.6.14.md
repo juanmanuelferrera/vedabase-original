@@ -1,11 +1,11 @@
 ### SB 1.6.14
 
-> परिश्रान्तेन्द्रियात्माहं तृट्परीतो बुभुक्षितः ।
+> परिश्रान्तेन्द्रियात्माहं तृट्परीतो बुभुक्षितः ।\
 > स्नात्वा पीत्वा ह्रदे नद्या उपस्पृष्टो गतश्रमः ॥१४॥
 
-> pariśrāntendriyātmāhaṁ
-> tṛṭ-parīto bubhukṣitaḥ
-> snātvā pītvā hrade nadyā
+> pariśrāntendriyātmāhaṁ\
+> tṛṭ-parīto bubhukṣitaḥ\
+> snātvā pītvā hrade nadyā\
 > upaspṛṣṭo gata-śramaḥ
 
 *pariśrānta*—estando cansado; *indriya*—físicamente; *ātmā*—mentalmente; *aham*—yo; *tṛṭ-parītaḥ*—estando sediento; *bubhukṣitaḥ*—y hambriento; *snātvā*—bañándome; *pītvā*—y también bebiendo agua; *hrade*—en el lago; *nadyāḥ*—de un río; *upaspṛṣṭaḥ*—estando en contacto con; *gata*—mitigué.

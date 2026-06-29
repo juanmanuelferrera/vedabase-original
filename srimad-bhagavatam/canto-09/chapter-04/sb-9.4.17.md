@@ -1,11 +1,11 @@
 ### SB 9.4.17
 
-> वासुदेवे भगवति तद्भक्तेषु च साधुषु
+> वासुदेवे भगवति तद्भक्तेषु च साधुषु\
 > प्राप्तो भावं परं विश्वं येनेदं लोष्ट्रवत्स्मृतम ॥१७॥
 
-> vāsudeve bhagavati
-> tad-bhakteṣu ca sādhuṣu
-> prāpto bhāvaṁ paraṁ viśvaṁ
+> vāsudeve bhagavati\
+> tad-bhakteṣu ca sādhuṣu\
+> prāpto bhāvaṁ paraṁ viśvaṁ\
 > yenedaṁ loṣṭravat smṛtam
 
 *vāsudeve*—unto the all-pervading Supreme Personality; *bhagavati*—unto the Supreme Personality of Godhead; *tat-bhakteṣu*—unto His devotees; *ca*—also; *sādhuṣu*—unto the saintly persons; *prāptaḥ*—one who has achieved; *bhāvam*—reverence and devotion; *param*—transcendental; *viśvam*—the whole material universe; *yena*—by which (spiritual consciousness); *idam*—this; *loṣṭra-vat*—as insignificant as a piece of stone; *smṛtam*—is accepted (by such devotees).

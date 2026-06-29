@@ -1,9 +1,9 @@
 ### CC Madhya 8.15
 
-> তাঁর সঙ্গে বহু আইলা বৈদিক ব্রাহ্মণ ।
+> তাঁর সঙ্গে বহু আইলা বৈদিক ব্রাহ্মণ ।\
 > বিধিমতে কৈল তেঁহো স্নানাদি-তর্পণ ॥১৫॥
 
-> tāṅra saṅge bahu āilā vaidika brāhmaṇa
+> tāṅra saṅge bahu āilā vaidika brāhmaṇa\
 > vidhi-mate kaila teṅho snānādi-tarpaṇa
 
 *tāṅra saṅge*—with him; *bahu*—many; *āilā*—came; *vaidika*—following the Vedic principles; *brāhmaṇa*—*brāhmaṇas*; *vidhi-mate*—according to ritualistic ceremonies; *kaila*—did; *teṅho*—he, Śrīla Rāmānanda Rāya; *snāna-ādi-tarpaṇa*—bathing and offering oblations, etc.

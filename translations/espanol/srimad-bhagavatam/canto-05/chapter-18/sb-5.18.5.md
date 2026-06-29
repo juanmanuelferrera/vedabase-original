@@ -1,11 +1,11 @@
 ### SB 5.18.5
 
-> विश्वोद्भवस्थाननिरोधकर्म ते ह्यकर्तुरङ्गीकृतमप्यपावृतः
+> विश्वोद्भवस्थाननिरोधकर्म ते ह्यकर्तुरङ्गीकृतमप्यपावृतः\
 > युक्तं न चित्रं त्वयि कार्यकारणे सर्वात्मनि व्यतिरिक्ते च वस्तुतः ॥५॥
 
-> viśvodbhava-sthāna-nirodha-karma te
-> hy akartur aṅgīkṛtam apy apāvṛtaḥ
-> yuktaṁ na citraṁ tvayi kārya-kāraṇe
+> viśvodbhava-sthāna-nirodha-karma te\
+> hy akartur aṅgīkṛtam apy apāvṛtaḥ\
+> yuktaṁ na citraṁ tvayi kārya-kāraṇe\
 > sarvātmani vyatirikte ca vastutaḥ
 
 *viśva*—del universo entero; *udbhava*—de la creación; *sthāna*—del mantenimiento; *nirodha*—de la aniquilación; *karma*—esas actividades; *te*—de Ti (¡oh, querido Señor!); *hi*—en verdad; *akartuḥ*—aparte; *aṅgīkṛtam*—aun así aceptado por las Escrituras védicas; *api*—aunque; *apāvṛtaḥ*—sin contacto con todas esas actividades; *yuktam*—apropiado; *na*—no; *citram*—maravilloso; *tvayi*—en Ti; *kārya-kāraṇe*—la causa original de todos los efectos; *sarva-ātmani*—en todos los aspectos; *vyatirikte*—aparte; *ca*—también; *vastutaḥ*—la sustancia original.

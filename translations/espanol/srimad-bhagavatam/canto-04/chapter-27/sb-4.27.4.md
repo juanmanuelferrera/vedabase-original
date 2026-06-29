@@ -1,11 +1,11 @@
 ### SB 4.27.4
 
-> शयान उन्नद्धमदो महामना महार्हतल्पे महिषीभुजोपधिः ।
+> शयान उन्नद्धमदो महामना महार्हतल्पे महिषीभुजोपधिः ।\
 > तामेव वीरो मनुते परं यतस्तमोऽभिभूतो न निजं परं च यत् ॥४॥
 
-> śayāna unnaddha-mado mahā-manā
-> mahārha-talpe mahiṣī-bhujopadhiḥ
-> tām eva vīro manute paraṁ yatas
+> śayāna unnaddha-mado mahā-manā\
+> mahārha-talpe mahiṣī-bhujopadhiḥ\
+> tām eva vīro manute paraṁ yatas\
 > tamo-'bhibhūto na nijaṁ paraṁ ca yat
 
 *śayānaḥ*—acostado; *unnaddha-madaḥ*—cada vez más cubierto por la ilusión; *mahā-manāḥ*—situado en un nivel de conciencia elevado; *mahā-arha-talpe*—en una lujosa cama; *mahiṣī*—de la reina; *bhuja*—brazos; *upadhiḥ*—almohada; *tām*—a ella; *eva*—ciertamente; *vīraḥ*—el héroe; *manute*—consideró; *param*—el objetivo de la vida; *yataḥ*—del cual; *tamaḥ*—por ignorancia; *abhibhūtaḥ*—cubierto; *na*—no; *nijam*—su verdadero ser; *param*—la Suprema Personalidad de Dios; *ca*—y; *yat*—que.

@@ -1,11 +1,11 @@
 ### SB 7.2.22
 
-> नित्य आत्माव्ययः शुद्धः सर्वगः सर्ववित्परः
+> नित्य आत्माव्ययः शुद्धः सर्वगः सर्ववित्परः\
 > धत्तेऽसावात्मनो लिङ्गं मायया विसृजन्गुणान ॥२२॥
 
-> nitya ātmāvyayaḥ śuddhaḥ
-> sarvagaḥ sarva-vit paraḥ
-> dhatte 'sāv ātmano liṅgaṁ
+> nitya ātmāvyayaḥ śuddhaḥ\
+> sarvagaḥ sarva-vit paraḥ\
+> dhatte 'sāv ātmano liṅgaṁ\
 > māyayā visṛjan guṇān
 
 *nityaḥ*—eternal; *ātmā*—spirit soul; *avyayaḥ*—inexhaustible; *śuddhaḥ*—with no material tinge; *sarva-gaḥ*—qualified to go anywhere in the material or spiritual worlds; *sarva-vit*—full of knowledge; *paraḥ*—transcendental to material conditions; *dhatte*—accepts; *asau*—that *ātmā,* or living being; *ātmanaḥ*—of the self; *liṅgam*—a body; *māyayā*—by the material energy; *visṛjan*—creating; *guṇān*—various material qualities.

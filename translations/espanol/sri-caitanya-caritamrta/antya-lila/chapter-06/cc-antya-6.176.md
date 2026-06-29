@@ -1,9 +1,9 @@
 ### CC Antya 6.176
 
-> এথা তাঁর সেবক রক্ষক তাঁরে না দেখিয়া ।
+> এথা তাঁর সেবক রক্ষক তাঁরে না দেখিয়া ।\
 > তাঁর গুরুপাশে বার্তা পুছিলেন গিয়া ॥১৭৬॥
 
-> ethā tāṅra sevaka rakṣaka tāṅre nā dekhiyā
+> ethā tāṅra sevaka rakṣaka tāṅre nā dekhiyā\
 > tāṅra guru-pāśe vārtā puchilena giyā
 
 *ethā*—aquí, en su hogar; *tāṅra*—su; *sevaka*—sirviente; *rakṣaka*—vigilante; *tāṅre*—a él; *nā dekhiyā*—al no verlo; *tāṅra guru-pāśe*—a su maestro espiritual; *vārtā*—noticias; *puchilena*—preguntaron; *giyā*—acudiendo.

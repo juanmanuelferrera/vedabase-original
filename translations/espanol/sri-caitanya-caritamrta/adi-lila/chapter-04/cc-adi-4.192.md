@@ -1,9 +1,9 @@
 ### CC Adi 4.192
 
-> গোপী-শোভা দেখি’ কৃষ্ণের শোভা বাঢ়ে যত ।
+> গোপী-শোভা দেখি’ কৃষ্ণের শোভা বাঢ়ে যত ।\
 > কৃষ্ণ-শোভা দেখি’ গোপীর শোভা বাঢ়ে তত ॥১৯২॥
 
-> gopī-śobhā dekhi' kṛṣṇera śobhā bāḍhe yata
+> gopī-śobhā dekhi' kṛṣṇera śobhā bāḍhe yata\
 > kṛṣṇa-śobhā dekhi' gopīra śobhā bāḍhe tata
 
 *gopī-śobhā*—la belleza de las gopīs; *dekhi'*—al ver; *kṛṣṇera*—del Señor Kṛṣṇa; *śobhā*—la belleza; *bāḍhe*—aumenta; *yata*—cuanto; *kṛṣṇa-śobhā*—la belleza del Señor Kṛṣṇa; *dekhi'*—al ver; *gopīra*—de las gopīs; *śobhā*—la belleza; *bāḍhe*—aumenta; *tata*—otro tanto.

@@ -1,11 +1,11 @@
 ### SB 9.14.21
 
-> एतावुरणकौ राजन्न्यासौ रक्षस्व मानद
+> एतावुरणकौ राजन्न्यासौ रक्षस्व मानद\
 > संरंस्ये भवता साकं श्लाघ्यः स्त्रीणां वरः स्मृतः ॥२१॥
 
-> etāv uraṇakau rājan
-> nyāsau rakṣasva mānada
-> saṁraṁsye bhavatā sākaṁ
+> etāv uraṇakau rājan\
+> nyāsau rakṣasva mānada\
+> saṁraṁsye bhavatā sākaṁ\
 > ślāghyaḥ strīṇāṁ varaḥ smṛtaḥ
 
 *etau*—a estos dos; *uraṇakau*—corderos; *rājan*—¡oh, rey Purūravā!; *nyāsau*—que han caído; *rakṣasva*—por favor, protege; *māna-da*—¡oh, tú, que honras plenamente a un huésped o visitante!; *saṁraṁsye*—disfrutaré de la unión sexual; *bhavatā sākam*—en tu compañía; *ślāghyaḥ*—superior; *strīṇām*—de una mujer; *varaḥ*—esposo; *smṛtaḥ*—se dice.

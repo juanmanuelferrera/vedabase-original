@@ -1,9 +1,9 @@
 ### CC Madhya 4.62
 
-> পুনঃ তৈল দিয়া কৈল শ্রীঅঙ্গ চিক্কণ ।
+> পুনঃ তৈল দিয়া কৈল শ্রীঅঙ্গ চিক্কণ ।\
 > শঙ্খ-গন্ধোদকে কৈল স্নান সমাধান ॥৬২॥
 
-> punaḥ taila diya kaila śrī-aṅga cikkaṇa
+> punaḥ taila diya kaila śrī-aṅga cikkaṇa\
 > śaṅkha-gandhodake kaila snāna samādhāna
 
 *punaḥ*—de nuevo; *taila diyā*—con aceite; *kaila*—hizo; *śrī-aṅga*—el cuerpo de la Deidad; *cikkaṇa*—reluciente; *śaṅkha-gandha-udake*—en agua perfumada con flores y pasta de sándalo y guardada dentro de una caracola; *kaila*—realizó; *snāna*—baño; *samādhāna*—ejecución.

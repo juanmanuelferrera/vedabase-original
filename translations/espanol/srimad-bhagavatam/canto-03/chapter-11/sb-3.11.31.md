@@ -1,11 +1,11 @@
 ### SB 3.11.31
 
-> तावत्त्रिभुवनं सद्यः कल्पान्तैधितसिन्धवः ।
+> तावत्त्रिभुवनं सद्यः कल्पान्तैधितसिन्धवः ।\
 > प्लावयन्त्युत्कटाटोप चण्डवातेरितोर्मयः ॥३१॥
 
-> tāvat tri-bhuvanaṁ sadyaḥ
-> kalpāntaidhita-sindhavaḥ
-> plāvayanty utkaṭāṭopa-
+> tāvat tri-bhuvanaṁ sadyaḥ\
+> kalpāntaidhita-sindhavaḥ\
+> plāvayanty utkaṭāṭopa-\
 > caṇḍa-vāteritormayaḥ
 
 *tāvat*—entonces; *tri-bhuvanam*—los tres mundos; *sadyaḥ*—inmediatamente después; *kalpa-anta*—al comienzo de la devastación; *edhita*—inflados; *sindhavaḥ*—todos los océanos; *plāvayanti*—inundan; *utkaṭa*—violenta; *āṭopa*—agitación; *caṇḍa*—huracán; *vāta*—por vientos; *īrita*—soplados; *ūrmayaḥ*—olas.

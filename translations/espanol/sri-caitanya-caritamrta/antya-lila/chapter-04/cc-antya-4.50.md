@@ -1,9 +1,9 @@
 ### CC Antya 4.50
 
-> এত বলি’ মহাপ্রভু উঠিয়া চলিলা ।
+> এত বলি’ মহাপ্রভু উঠিয়া চলিলা ।\
 > গোবিন্দ-দ্বারায় দুঁহে প্রসাদ পাঠাইলা ॥৫০॥
 
-> eta bali' mahāprabhu uṭhiyā calilā
+> eta bali' mahāprabhu uṭhiyā calilā\
 > govinda-dvārāya duṅhe prasāda pāṭhāilā
 
 *eta bali'*—diciendo esto; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *uṭhiyā calilā*—se levantó y se fue; *govinda-dvārāya*—a través de Govinda; *duṅhe*—a ambos; *prasāda pāṭhāilā*—envió prasāda.

@@ -1,11 +1,11 @@
 ### SB 3.26.16
 
-> प्रभावं पौरुषं प्राहुः कालमेके यतो भयम् ।
+> प्रभावं पौरुषं प्राहुः कालमेके यतो भयम् ।\
 > अहङ्कारविमूढस्य कर्तुः प्रकृतिमीयुषः ॥१६॥
 
-> prabhāvaṁ pauruṣaṁ prāhuḥ
-> kālam eke yato bhayam
-> ahaṅkāra-vimūḍhasya
+> prabhāvaṁ pauruṣaṁ prāhuḥ\
+> kālam eke yato bhayam\
+> ahaṅkāra-vimūḍhasya\
 > kartuḥ prakṛtim īyuṣaḥ
 
 *prabhāvam*—the influence; *pauruṣam*—of the Supreme Personality of Godhead; *prāhuḥ*—they have said; *kālam*—the time factor; *eke*—some; *yataḥ*—from which; *bhayam*—fear; *ahaṅkāra-vimūḍhasya*—deluded by false ego; *kartuḥ*—of the individual soul; *prakṛtim*—material nature; *īyuṣaḥ*—having contacted.

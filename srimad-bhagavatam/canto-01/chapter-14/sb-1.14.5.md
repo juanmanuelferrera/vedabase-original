@@ -1,11 +1,11 @@
 ### SB 1.14.5
 
-> निमित्तान्यत्यरिष्टानि काले त्वनुगते नृणाम् ।
+> निमित्तान्यत्यरिष्टानि काले त्वनुगते नृणाम् ।\
 > लोभाद्यधर्मप्रकृतिं दृष्ट्वोवाचानुजं नृपः ॥५॥
 
-> nimittāny atyariṣṭāni
-> kāle tv anugate nṛṇām
-> lobhādy-adharma-prakṛtiṁ
+> nimittāny atyariṣṭāni\
+> kāle tv anugate nṛṇām\
+> lobhādy-adharma-prakṛtiṁ\
 > dṛṣṭvovācānujaṁ nṛpaḥ
 
 *nimittāni*—causes; *ati*—very serious; *ariṣṭāni*—bad omens; *kāle*—in course of time; *tu*—but; *anugate*—passing away; *nṛṇām*—of humanity at large; *lobha-ādi*—such as greed; *adharma*—irreligious; *prakṛtim*—habits; *dṛṣṭvā*—having observed; *uvāca*—said; *anujam*—younger brother; *nṛpaḥ*—the King.

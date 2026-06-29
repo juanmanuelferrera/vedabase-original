@@ -1,11 +1,11 @@
 ### SB 1.8.48
 
-> अहो मे पश्यताज्ञानं हृदि रूढं दुरात्मनः ।
+> अहो मे पश्यताज्ञानं हृदि रूढं दुरात्मनः ।\
 > पारक्यस्यैव देहस्य बह्व्यो मेऽक्षौहिणीर्हताः ॥४८॥
 
-> aho me paśyatājñānaṁ
-> hṛdi rūḍhaṁ durātmanaḥ
-> pārakyasyaiva dehasya
+> aho me paśyatājñānaṁ\
+> hṛdi rūḍhaṁ durātmanaḥ\
+> pārakyasyaiva dehasya\
 > bahvyo me 'kṣauhiṇīr hatāḥ
 
 *aho*—O; *me*—my; *paśyata*—just see; *ajñānam*—ignorance; *hṛdi*—in the heart; *rūḍham*—situated in; *durātmanaḥ*—of the sinful; *pārakyasya*—meant for others; *eva*—certainly; *dehasya*—of the body; *bahvyaḥ*—many, many; *me*—by me; *akṣauhiṇīḥ*—combination of military phalanxes; *hatāḥ*—killed.

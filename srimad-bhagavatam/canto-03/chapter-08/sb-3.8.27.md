@@ -1,11 +1,11 @@
 ### SB 3.8.27
 
-> मुखेन लोकार्तिहरस्मितेन परिस्फुरत्कुण्डलमण्डितेन ।
+> मुखेन लोकार्तिहरस्मितेन परिस्फुरत्कुण्डलमण्डितेन ।\
 > शोणायितेनाधरबिम्बभासा प्रत्यर्हयन्तं सुनसेन सुभ्र्वा ॥२७॥
 
-> mukhena lokārti-hara-smitena
-> parisphurat-kuṇḍala-maṇḍitena
-> śoṇāyitenādhara-bimba-bhāsā
+> mukhena lokārti-hara-smitena\
+> parisphurat-kuṇḍala-maṇḍitena\
+> śoṇāyitenādhara-bimba-bhāsā\
 > pratyarhayantaṁ sunasena subhrvā
 
 *mukhena*—by a gesture of the face; *loka-ārti-hara*—vanquisher of the distress of the devotees; *smitena*—by smiling; *parisphurat*—dazzling; *kuṇḍala*—earrings; *maṇḍitena*—decorated with; *śoṇāyitena*—acknowledging; *adhara*—of His lips; *bimba*—reflection; *bhāsā*—rays; *pratyarhayantam*—reciprocating; *su-nasena*—by His pleasing nose; *su-bhrvā*—and pleasing eyebrows.

@@ -1,11 +1,11 @@
 ### SB 7.5.35
 
-> अयं मे भ्रातृहा सोऽयं हित्वा स्वान्सुहृदोऽधमः
+> अयं मे भ्रातृहा सोऽयं हित्वा स्वान्सुहृदोऽधमः\
 > पितृव्यहन्तुः पादौ यो विष्णोर्दासवदर्चति ॥३५॥
 
-> ayaṁ me bhrātṛ-hā so 'yaṁ
-> hitvā svān suhṛdo 'dhamaḥ
-> pitṛvya-hantuḥ pādau yo
+> ayaṁ me bhrātṛ-hā so 'yaṁ\
+> hitvā svān suhṛdo 'dhamaḥ\
+> pitṛvya-hantuḥ pādau yo\
 > viṣṇor dāsavad arcati
 
 *ayam*—este; *me*—mío; *bhrātṛ-hā*—asesino del hermano; *saḥ*—él; *ayam*—este; *hitvā*—abandonar; *svān*—propios; *suhṛdaḥ*—bienquerientes; *adhamaḥ*—muy bajo; *pitṛvya-hantuḥ*—de aquel que mató a su tío Hiraṇyākṣa; *pādau*—a los dos pies; *yaḥ*—el que; *viṣṇoḥ*—del Señor Viṣṇu; *dāsa-vat*—como un sirviente; *arcati*—sirve.

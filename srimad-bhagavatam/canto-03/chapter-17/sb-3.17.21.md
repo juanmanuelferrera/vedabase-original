@@ -1,11 +1,11 @@
 ### SB 3.17.21
 
-> तं वीक्ष्य दुःसहजवं रणत्काञ्चननूपुरम् ।
+> तं वीक्ष्य दुःसहजवं रणत्काञ्चननूपुरम् ।\
 > वैजयन्त्या स्रजा जुष्टमंसन्यस्तमहागदम् ॥२१॥
 
-> taṁ vīkṣya duḥsaha-javaṁ
-> raṇat-kāñcana-nūpuram
-> vaijayantyā srajā juṣṭam
+> taṁ vīkṣya duḥsaha-javaṁ\
+> raṇat-kāñcana-nūpuram\
+> vaijayantyā srajā juṣṭam\
 > aṁsa-nyasta-mahā-gadam
 
 *tam*—him; *vīkṣya*—having seen; *duḥsaha*—difficult to control; *javam*—temper; *raṇat*—tinkling; *kāñcana*—gold; *nūpuram*—anklets; *vaijayantyā srajā*—with a *vaijayantī* garland; *juṣṭam*—adorned; *aṁsa*—on his shoulder; *nyasta*—rested; *mahā-gadam*—a huge mace.

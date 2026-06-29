@@ -1,9 +1,9 @@
 ### CC Adi 17.221
 
-> প্রভু কহে, — এক দান মাগিয়ে তোমায় ।
+> প্রভু কহে, — এক দান মাগিয়ে তোমায় ।\
 > সংকীর্তন বাদ যৈছে নহে নদীয়ায় ॥২২১॥
 
-> prabhu kahe,--eka dāna māgiye tomāya
+> prabhu kahe,--eka dāna māgiye tomāya\
 > saṅkīrtana vāda yaiche nahe nadīyāya
 
 *prabhu kahe*—el Señor dijo; *eka*—una; *dāna*—caridad; *māgiye*—Te pido; *tomāya*—a ti; *saṅkīrtana*—el canto del mantra Hare Kṛṣṇa; *vāda*—oposición; *yaiche*—de tal modo que; *nahe*—no haya; *nadīyāya*—en el distrito de Nadia.

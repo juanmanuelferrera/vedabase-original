@@ -1,13 +1,13 @@
 ### SB 7.15.45
 
-> यावन्नृकायरथमात्मवशोपकल्पं
-> धत्ते गरिष्ठचरणार्चनया निशातम
-> ज्ञआनासिमच्युतबलो दधदस्तशत्रुः
+> यावन्नृकायरथमात्मवशोपकल्पं\
+> धत्ते गरिष्ठचरणार्चनया निशातम\
+> ज्ञआनासिमच्युतबलो दधदस्तशत्रुः\
 > स्वानन्दतुष्ट उपशान्त इदं विजह्यात ॥४५॥
 
-> yāvan nṛ-kāya-ratham ātma-vaśopakalpaṁ
-> dhatte gariṣṭha-caraṇārcanayā niśātam
-> jñānāsim acyuta-balo dadhad asta-śatruḥ
+> yāvan nṛ-kāya-ratham ātma-vaśopakalpaṁ\
+> dhatte gariṣṭha-caraṇārcanayā niśātam\
+> jñānāsim acyuta-balo dadhad asta-śatruḥ\
 > svānanda-tuṣṭa upaśānta idaṁ vijahyāt
 
 *yāvat*—mientras; *nṛ-kāya*—este cuerpo de forma humana; *ratham*—considerado una cuadriga; *ātma-vaśa*—que depende de nuestro control; *upakalpam*—en el que hay muchas otras partes subordinadas; *dhatte*—se poseen; *gariṣṭha-caraṇa*—los pies de loto de los superiores (el maestro espiritual y sus antecesores); *arcanayā*—por servir; *niśātam*—afilada; *jñāna-asim*—la espada o arma del conocimiento; *acyuta-balaḥ*—por la fuerza trascendental de Kṛṣṇa; *dadhat*—sostener; *asta-śatruḥ*—hasta que el enemigo es derrotado; *sva-ānanda-tuṣṭaḥ*—plenamente satisfechos con la bienaventuranza trascendental; *upaśāntaḥ*—la conciencia limpia de toda contaminación material; *idam*—este cuerpo; *vijahyā*—se debe abandonar.

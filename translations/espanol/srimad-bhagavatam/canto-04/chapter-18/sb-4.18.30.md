@@ -1,11 +1,11 @@
 ### SB 4.18.30
 
-> अथास्मिन्भगवान्वैन्यः प्रजानां वृत्तिदः पिता ।
+> अथास्मिन्भगवान्वैन्यः प्रजानां वृत्तिदः पिता ।\
 > निवासान्कल्पयां चक्रे तत्र तत्र यथार्हतः ॥३०॥
 
-> athāsmin bhagavān vainyaḥ
-> prajānāṁ vṛttidaḥ pitā
-> nivāsān kalpayāṁ cakre
+> athāsmin bhagavān vainyaḥ\
+> prajānāṁ vṛttidaḥ pitā\
+> nivāsān kalpayāṁ cakre\
 > tatra tatra yathārhataḥ
 
 *atha*—de ese modo; *asmin*—en el planeta Tierra; *bhagavān*—la Personalidad de Dios; *vainyaḥ*—hijo de Vena; *prajānām*—de los ciudadanos; *vṛttidaḥ*—que da empleo; *pitā*—un padre; *nivāsān*—residencias; *kalpayām*—adecuadas; *cakre*—hizo; *tatra tatra*—aquí y allá; *yathā*—como; *arhataḥ*—deseables, adecuadas.

@@ -1,13 +1,13 @@
 ### SB 3.23.9
 
-> एवं ब्रुवाणमबलाखिलयोगमाया
-> विद्याविचक्षणमवेक्ष्य गताधिरासीत् ।
-> सम्प्रश्रयप्रणयविह्वलया गिरेषद्
+> एवं ब्रुवाणमबलाखिलयोगमाया\
+> विद्याविचक्षणमवेक्ष्य गताधिरासीत् ।\
+> सम्प्रश्रयप्रणयविह्वलया गिरेषद्\
 > व्रीडावलोकविलसद्धसिताननाह ॥९॥
 
-> evaṁ bruvāṇam abalākhila-yogamāyā-
-> vidyā-vicakṣaṇam avekṣya gatādhir āsīt
-> sampraśraya-praṇaya-vihvalayā gireṣad-
+> evaṁ bruvāṇam abalākhila-yogamāyā-\
+> vidyā-vicakṣaṇam avekṣya gatādhir āsīt\
+> sampraśraya-praṇaya-vihvalayā gireṣad-\
 > vrīḍāvaloka-vilasad-dhasitānanāha
 
 *evam*—de este modo; *bruvāṇam*—hablando; *abalā*—la mujer; *akhila*—todas; *yoga-māyā*—de la ciencia trascendental; *vidyā-vicakṣaṇam*—excelente en el conocimiento; *avekṣya*—después de escuchar; *gata-ādhiḥ*—satisfecha; *āsīt*—se sentía; *sampraśraya*—con humildad; *praṇaya*—y con amor; *vihvalayā*—ahogada; *girā*—con una voz; *īṣat*—levemente; *vrīḍā*—tímida; *avaloka*—con una mirada; *vilasat*—luminosa; *hasita*—sonriendo; *ānanā*—su rostro; *āha*—ella habló.

@@ -1,9 +1,9 @@
 ### CC Adi 9.44
 
-> মালী মনুষ্য আমার নাহি রাজ্য-ধন ।
+> মালী মনুষ্য আমার নাহি রাজ্য-ধন ।\
 > ফল-ফুল দিয়া করি’ পুণ্য উপার্জন ॥৪৪॥
 
-> mālī manuṣya āmāra nāhi rājya-dhana
+> mālī manuṣya āmāra nāhi rājya-dhana\
 > phala-phula diyā kari' puṇya upārjana
 
 *mālī*—jardinero; *manuṣya*—hombre; *āmāra*—Mío; *nāhi*—no hay; *rājya*—reino; *dhana*—riqueza; *phala*—fruto; *phula*—flores; *diyā*—dando; *kari'*—hago; *puṇya*—piedad; *upārjana*—logro.

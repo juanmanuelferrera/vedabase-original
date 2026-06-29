@@ -1,9 +1,9 @@
 ### CC Madhya 7.43
 
-> নানা কৃষ্ণবার্তা কহি’ কহিল তাঁহারে ৷
+> নানা কৃষ্ণবার্তা কহি’ কহিল তাঁহারে ৷\
 > ‘তোমার ঠাঞি আইলাঙ আজ্ঞা মাগিবারে ৷৷ ৪৩ ৷৷ ॥৪৩॥
 
-> nānā kṛṣṇa-vārtā kahi' kahila tāṅhāre
+> nānā kṛṣṇa-vārtā kahi' kahila tāṅhāre\
 > 'tomāra ṭhāñi āilāṅ ājñā māgibāre
 
 *nānā*—diversos; *kṛṣṇa-vārtā*—temas acerca del Señor Kṛṣṇa; *kahi'*—conversando; *kahila*—Le informó; *tāṅhāre*—a Sārvabhauma Bhaṭṭācārya; *tomāra ṭhāñi*—a tu lugar; *āilāṅ*—he venido; *ājñā*—orden; *māgibāre*—a pedir.

@@ -1,11 +1,11 @@
 ### SB 8.19.40
 
-> तद्यथा वृक्ष उन्मूलः शुष्यत्युद्वर्ततेऽचिरात
+> तद्यथा वृक्ष उन्मूलः शुष्यत्युद्वर्ततेऽचिरात\
 > एवं नष्टानृतः सद्य आत्मा शुष्येन्न संशयः ॥४०॥
 
-> tad yathā vṛkṣa unmūlaḥ
-> śuṣyaty udvartate 'cirāt
-> evaṁ naṣṭānṛtaḥ sadya
+> tad yathā vṛkṣa unmūlaḥ\
+> śuṣyaty udvartate 'cirāt\
+> evaṁ naṣṭānṛtaḥ sadya\
 > ātmā śuṣyen na saṁśayaḥ
 
 *tat*—por lo tanto; *yathā*—como; *vṛkṣaḥ*—un árbol; *unmūlaḥ*—al ser arrancado de raíz; *śuṣyati*—se seca; *udvartate*—cae; *acirāt*—muy pronto; *evam*—de este modo; *naṣṭa*—perdido; *anṛtaḥ*—el cuerpo temporal; *sadyaḥ*—inmediatamente; *ātmā*—el cuerpo; *śuṣyet*—se seca; *na*—no; *saṁśayaḥ*—ninguna duda.

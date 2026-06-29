@@ -1,11 +1,11 @@
 ### SB 7.15.68
 
-> यथा हि यूयं नृपदेव दुस्त्यजादापद्गणादुत्तरतात्मनः प्रभोः
+> यथा हि यूयं नृपदेव दुस्त्यजादापद्गणादुत्तरतात्मनः प्रभोः\
 > यत्पादपङ्केरुहसेवया भवानहारषीन्निर्जितदिग्गजः क्रतून ॥६८॥
 
-> yathā hi yūyaṁ nṛpa-deva dustyajād
-> āpad-gaṇād uttaratātmanaḥ prabhoḥ
-> yat-pāda-paṅkeruha-sevayā bhavān
+> yathā hi yūyaṁ nṛpa-deva dustyajād\
+> āpad-gaṇād uttaratātmanaḥ prabhoḥ\
+> yat-pāda-paṅkeruha-sevayā bhavān\
 > ahāraṣīn nirjita-dig-gajaḥ kratūn
 
 *yathā*—como; *hi*—en verdad; *yūyam*—todos ustedes (los Pāṇḍavas); *nṛpa-deva*—¡oh, señor de los reyes, seres humanos y semidioses!; *dustyajāt*—insuperables; *āpat*—condiciones de peligro; *gaṇāt*—de todas; *uttarata*—han huido; *ātmanaḥ*—propio; *prabhoḥ*—del Señor; *yat-pāda-paṅkeruha*—cuyos pies de loto; *sevayā*—por servir; *bhavān*—ustedes mismos; *ahāraṣīt*—han realizado; *nirjita*—derrotar; *dik-gajaḥ*—a los más poderosos enemigos, que eran como elefantes; *kratūn*—ceremonias rituales.

@@ -1,9 +1,9 @@
 ### CC Adi 17.49
 
-> লোক সব উদ্ধারিতে তোমার অবতার ।
+> লোক সব উদ্ধারিতে তোমার অবতার ।\
 > মুঞি বড় দুখী, মোরে করহ উদ্ধার ॥৪৯॥
 
-> loka saba uddhārite tomāra avatāra
+> loka saba uddhārite tomāra avatāra\
 > muñi baḍa dukhī, more karaha uddhāra
 
 *loka*—personas; *saba*—todas; *uddhārite*—para liberar; *tomāra*—Tu; *avatāra*—encarnación; *muñi*—yo (soy); *baḍa*—muy; *dukhī*—desdichado; *more*—a mí; *karaha*—por favor, haz; *uddhāra*—liberación.

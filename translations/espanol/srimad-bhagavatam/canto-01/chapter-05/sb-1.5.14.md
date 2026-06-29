@@ -1,11 +1,11 @@
 ### SB 1.5.14
 
-> ततोऽन्यथा किञ्चन यद्विवक्षतः पृथग्दृशस्तत्कृतरूपनामभिः ।
+> ततोऽन्यथा किञ्चन यद्विवक्षतः पृथग्दृशस्तत्कृतरूपनामभिः ।\
 > न कर्हिचित्क्वापि च दुःस्थिता मतिर्लभेत वाताहतनौरिवास्पदम् ॥१४॥
 
-> tato 'nyathā kiñcana yad vivakṣataḥ
-> pṛthag dṛśas tat-kṛta-rūpa-nāmabhiḥ
-> na karhicit kvāpi ca duḥsthitā matir
+> tato 'nyathā kiñcana yad vivakṣataḥ\
+> pṛthag dṛśas tat-kṛta-rūpa-nāmabhiḥ\
+> na karhicit kvāpi ca duḥsthitā matir\
 > labheta vātāhata-naur ivāspadam
 
 *tataḥ*—de eso; *anyathā*—aparte; *kiñcana*—algo; *yat*—todo lo que; *vivakṣataḥ*—deseando describir; *pṛthak*—separadamente; *dṛśaḥ*—visión; *tat-kṛta*—reacciona ante esto; *rūpa*—forma; *nāmabhiḥ*—mediante nombres; *na karhicit*—nunca; *kvāpi*—cualquier; *ca*—y; *duḥsthitā matiḥ*—mente oscilante; *labheta*—gana; *vāta-āhata*—perturbado por el viento; *nauḥ*—bote; *iva*—como; *āspadam*—lugar.

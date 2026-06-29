@@ -1,9 +1,9 @@
 ### CC Madhya 8.218
 
-> নিজেন্দ্রিয়সুখবাঞ্ছা নাহি গোপিকার ।
+> নিজেন্দ্রিয়সুখবাঞ্ছা নাহি গোপিকার ।\
 > কৃষ্ণে সুখ দিতে করে সঙ্গম-বিহার ॥২১৮॥
 
-> nijendriya-sukha-vāñchā nāhi gopikāra
+> nijendriya-sukha-vāñchā nāhi gopikāra\
 > kṛṣṇe sukha dite kare saṅgama-vihāra
 
 *nija-indriya-sukha*—for personal sense gratification; *vāñchā*—the desire; *nāhi*—there is not; *gopikāra*—of the *gopīs*; *kṛṣṇe*—unto Kṛṣṇa; *sukha*—happiness; *dite*—to give; *kare*—do; *saṅgama-vihāra*—mingling and enjoying with Kṛṣṇa.

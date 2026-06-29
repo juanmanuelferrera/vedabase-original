@@ -1,9 +1,9 @@
 ### CC Madhya 14.39
 
-> পাঁতি পাঁতি করি’ ভক্তগণে বসাইলা ।
+> পাঁতি পাঁতি করি’ ভক্তগণে বসাইলা ।\
 > পরিবেশন করিবারে আপনে লাগিলা ॥৩৯॥
 
-> pāṅti pāṅti kari' bhakta-gaṇe vasāilā
+> pāṅti pāṅti kari' bhakta-gaṇe vasāilā\
 > pariveśana karibāre āpane lāgilā
 
 *pāṅti pāṅti kari'*—in different lines; *bhakta-gaṇe*—all the devotees; *vasāilā*—made seated; *pariveśana*—distribution; *karibāre*—to do; *āpane*—personally; *lāgilā*—began.

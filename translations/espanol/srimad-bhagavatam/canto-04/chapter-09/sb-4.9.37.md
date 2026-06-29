@@ -1,11 +1,11 @@
 ### SB 4.9.37
 
-> आकर्ण्यात्मजमायान्तं सम्परेत्य यथागतम् ।
+> आकर्ण्यात्मजमायान्तं सम्परेत्य यथागतम् ।\
 > राजा न श्रद्दधे भद्रमभद्रस्य कुतो मम ॥३७॥
 
-> ākarṇyātma-jam āyāntaṁ
-> samparetya yathāgatam
-> rājā na śraddadhe bhadram
+> ākarṇyātma-jam āyāntaṁ\
+> samparetya yathāgatam\
+> rājā na śraddadhe bhadram\
 > abhadrasya kuto mama
 
 *ākarṇya*—habiendo escuchado; *ātma-jam*—su hijo; *āyāntam*—de regreso; *samparetya*—después de morir; *yathā*—como si; *āgatam*—regresar; *rājā*—el rey Uttānapāda; *na*—no; *śraddadhe*—tuvo la menor confianza; *bhadram*—buena fortuna; *abhadrasya*—del impío; *kutaḥ*—de dónde; *mama*—mi.

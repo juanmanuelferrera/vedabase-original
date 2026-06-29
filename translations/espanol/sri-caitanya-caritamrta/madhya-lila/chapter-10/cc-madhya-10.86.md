@@ -1,9 +1,9 @@
 ### CC Madhya 10.86
 
-> আচার্যের সবে কৈল চরণ বন্দন ৷
+> আচার্যের সবে কৈল চরণ বন্দন ৷\
 > আচার্য-গোসাঁই সবারে কৈল আলিঙ্গন ৷৷ ৮৬ ৷৷ ॥৮৬॥
 
-> ācāryera sabe kaila caraṇa vandana
+> ācāryera sabe kaila caraṇa vandana\
 > ācārya-gosāñi sabāre kaila āliṅgana
 
 *ācāryera*—de Advaita Ācārya; *sabe*—todos; *kaila*—hicieron; *caraṇa vandana*—ofrecer reverencias a los pies de loto; *ācārya-gosāñi*—Advaita Ācārya; *sabāre*—a todos; *kaila*—hizo; *āliṅgana*—abrazar.

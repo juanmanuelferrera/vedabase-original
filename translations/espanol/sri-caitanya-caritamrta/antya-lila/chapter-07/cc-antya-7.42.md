@@ -1,13 +1,13 @@
 ### CC Antya 7.42
 
-> পতিসুতান্বয়ভ্রাতৃবান্ধবা-
-> নতিবিলঙ্ঘ্য তেঽন্ত্যচ্যুতাগতাঃ ।
-> গতিবিদস্তবোদ্গীতমোহিতাঃ
+> পতিসুতান্বয়ভ্রাতৃবান্ধবা-\
+> নতিবিলঙ্ঘ্য তেঽন্ত্যচ্যুতাগতাঃ ।\
+> গতিবিদস্তবোদ্গীতমোহিতাঃ\
 > কিতব যোষিতঃ কস্ত্যজেন্নিশি ॥৪২॥
 
-> pati-sutānvaya-bhrātṛ-bāndhavān
-> ativilaṅghya te 'nty acyutāgatāḥ
-> gati-vidas tavodgīta-mohitāḥ
+> pati-sutānvaya-bhrātṛ-bāndhavān\
+> ativilaṅghya te 'nty acyutāgatāḥ\
+> gati-vidas tavodgīta-mohitāḥ\
 > kitava yoṣitaḥ kas tyajen niśi
 
 *pati*—esposos; *suta*—hijos; *anvaya*—familia; *bhrātṛ*—hermanos; *bāndhavān*—amigos; *ativilaṅghya*—sin preocuparse por; *te*—Tu; *anti*—querido refugio; *acyuta*—¡oh, infalible!; *āgatāḥ*—han venido; *gati-vidaḥ*—que conocen todo de nuestras actividades; *tava*—de Ti; *udgīta*—por el canto de la flauta; *mohitāḥ*—atraídas; *kitava*—¡oh, gran embaucador!; *yoṣitaḥ*—mujeres hermosas; *kaḥ*—quién; *tyajet*—abandonaría; *niśi*—en la oscuridad de la noche.

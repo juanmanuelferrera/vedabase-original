@@ -1,11 +1,11 @@
 ### SB 4.1.18
 
-> तस्मिन्प्रसूनस्तबक पलाशाशोककानने ।
+> तस्मिन्प्रसूनस्तबक पलाशाशोककानने ।\
 > वार्भिः स्रवद्भिरुद्घुष्टे निर्विन्ध्यायाः समन्ततः ॥१८॥
 
-> tasmin prasūna-stabaka-
-> palāśāśoka-kānane
-> vārbhiḥ sravadbhir udghuṣṭe
+> tasmin prasūna-stabaka-\
+> palāśāśoka-kānane\
+> vārbhiḥ sravadbhir udghuṣṭe\
 > nirvindhyāyāḥ samantataḥ
 
 *tasmin*—in that; *prasūna-stabaka*—bunches of flowers; *palāśa*—*palāśa* trees; *aśoka*—*aśoka* trees; *kānane*—in the forest garden; *vārbhiḥ*—by the waters; *sravadbhiḥ*—flowing; *udghuṣṭe*—in sound; *nirvindhyāyāḥ*—of the River Nirvindhyā; *samantataḥ*—everywhere.

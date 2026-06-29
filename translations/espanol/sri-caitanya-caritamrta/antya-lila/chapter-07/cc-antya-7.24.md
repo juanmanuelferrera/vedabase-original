@@ -1,9 +1,9 @@
 ### CC Antya 7.24
 
-> তাতে প্রেমভক্তি — ‘পুরুষার্থ-শিরোমণি’ ।
+> তাতে প্রেমভক্তি — ‘পুরুষার্থ-শিরোমণি’ ।\
 > রাগমার্গে প্রেমভক্তি ‘সর্বাধিক’ জানি ॥২৪॥
 
-> tāte prema-bhakti--'puruṣārtha-śiromaṇi'
+> tāte prema-bhakti--'puruṣārtha-śiromaṇi'\
 > rāga-mārge prema-bhakti 'sarvādhika' jāni
 
 *tāte*—por lo tanto; *prema-bhakti*—servicio devocional en amor extático; *puruṣārtha*—de todas las metas de la vida humana; *śiromaṇi*—la joya de la corona; *rāga-mārge*—en el sendero del amor espontáneo; *prema-bhakti*—amor por Kṛṣṇa; *sarva-adhika*—la más elevada de todas; *jāni*—puedo comprender.

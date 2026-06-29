@@ -1,9 +1,9 @@
 ### CC Madhya 11.72
 
-> আমি কাহো নাহি চিনি, চিনিতে মন হয় ।
+> আমি কাহো নাহি চিনি, চিনিতে মন হয় ।\
 > গোপীনাথাচার্য সবারে করা’বে পরিচয় ॥৭২॥
 
-> āmi kāho nāhi cini, cinite mana haya
+> āmi kāho nāhi cini, cinite mana haya\
 > gopīnāthācārya sabāre karā'be paricaya
 
 *āmi*—I; *kāho*—anyone; *nāhi*—do not; *cini*—know; *cinite mana haya*—I desire to know; *gopīnātha-ācārya*—Gopīnātha Ācārya; *sabāre*—all of them; *karā'be paricaya*—will identify.

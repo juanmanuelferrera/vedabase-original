@@ -1,10 +1,10 @@
 ### CC Madhya 24.291
 
-> অজাতরতি সাধকভক্ত, — এ চারি প্রকার ।
+> অজাতরতি সাধকভক্ত, — এ চারি প্রকার ।\
 > বিধিমার্গে ভক্তে ষোড়শ ভেদ প্রচার ॥২৯১॥
 
-> ajāta-rati sādhaka-bhakta,--e cāri prakāra
-> vidhi-mārge bhakte ṣoḍaśa bheda pracāra
+> ajāta-rati sādhaka-bhakta,--e cāri prakāra\
+> vidhi-mārge bhakte ṣoḍaśa bheda pracāra\
 > SYNONYMS
 
 *ajāta-rati sādhaka-bhakta*—devotos inmaduros dedicados al servicio devocional; *e cāri prakāra*—también hay las mismas cuatro variedades; *vidhi-mārge*—en el sendero del servicio devocional regulativo; *bhakte*—devotos; *ṣoḍaśa bheda pracāra*—hay dieciséis variedades.

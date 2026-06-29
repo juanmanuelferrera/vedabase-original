@@ -1,9 +1,9 @@
 ### CC Adi 1.45
 
-> গুরু কৃষ্ণরূপ হন শাস্ত্রের প্রমাণে ।
+> গুরু কৃষ্ণরূপ হন শাস্ত্রের প্রমাণে ।\
 > গুরুরূপে কৃষ্ণ কৃপা করেন ভক্তগণে ॥৪৫॥
 
-> guru kṛṣṇa-rūpa hana śāstrera pramāṇe
+> guru kṛṣṇa-rūpa hana śāstrera pramāṇe\
 > guru-rūpe kṛṣṇa kṛpā karena bhakta-gaṇe
 
 *guru*—el maestro espiritual; *kṛṣṇa-rūpa*—idéntico a Kṛṣṇa; *hana*—es; *śāstrera*—de las escrituras reveladas; *pramāṇe*—según la evidencia; *guru-rūpe*—en la forma del maestro espiritual; *kṛṣṇa*—el Señor Śrī Kṛṣṇa; *kṛpā*—misericordia; *karena*—distribuye; *bhakta-gaṇe*—a Sus devotos.

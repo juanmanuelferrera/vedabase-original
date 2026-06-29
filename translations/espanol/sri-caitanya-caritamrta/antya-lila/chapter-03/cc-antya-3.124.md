@@ -1,9 +1,9 @@
 ### CC Antya 3.124
 
-> “কোটিনামগ্রহণ-যজ্ঞ করি একমাসে  ।
+> “কোটিনামগ্রহণ-যজ্ঞ করি একমাসে  ।\
 > এই দীক্ষা করিয়াছি, হৈল আসি’ শেষে ॥১২৪॥
 
-> "koṭi-nāma-grahaṇa-yajña kari eka-māse
+> "koṭi-nāma-grahaṇa-yajña kari eka-māse\
 > ei dīkṣā kariyāchi, haila āsi' śeṣe
 
 *koṭi-nāma-grahaṇa*—cantar diez millones de nombres; *yajña*—tal sacrificio; *kari*—realizo; *eka-māse*—en un mes; *ei*—este; *dīkṣā*—voto; *kariyāchi*—he tomado; *haila*—fue; *āsi'*—acercándose; *śeṣe*—al final.

@@ -1,13 +1,13 @@
 ### SB 1.13.8
 
-> युधिष्ठिर उवाच
-> अपि स्मरथ नो युष्मत्पक्षच्छायासमेधितान् ।
+> युधिष्ठिर उवाच\
+> अपि स्मरथ नो युष्मत्पक्षच्छायासमेधितान् ।\
 > विपद्गणाद्विषाग्न्यादेर्मोचिता यत्समातृकाः ॥८॥
 
-> yudhiṣṭhira uvāca
-> api smaratha no yuṣmat-
-> pakṣa-cchāyā-samedhitān
-> vipad-gaṇād viṣāgnyāder
+> yudhiṣṭhira uvāca\
+> api smaratha no yuṣmat-\
+> pakṣa-cchāyā-samedhitān\
+> vipad-gaṇād viṣāgnyāder\
 > mocitā yat samātṛkāḥ
 
 *yudhiṣṭhiraḥ uvāca*—Mahārāja Yudhiṣṭhira said; *api*—whether; *smaratha*—you remember; *naḥ*—us; *yuṣmat*—from you; *pakṣa*—partiality towards us like the wings of a bird; *chāyā*—protection; *samedhitān*—we who were brought up by you; *vipat-gaṇāt*—from various types of calamities; *viṣa*—by administration of poison; *agni-ādeḥ*—by setting on fire; *mocitāḥ*—released from; *yat*—what you have done; *sa*—along with; *mātṛkāḥ*—our mother.

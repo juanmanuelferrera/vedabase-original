@@ -1,9 +1,9 @@
 ### CC Madhya 18.7
 
-> সব গোপী হৈতে রাধা কৃষ্ণের প্রেয়সী ।
+> সব গোপী হৈতে রাধা কৃষ্ণের প্রেয়সী ।\
 > তৈছে রাধাকুণ্ড প্রিয় ‘প্রিয়ার সরসী’ ॥৭॥
 
-> saba gopī haite rādhā kṛṣṇera preyasī
+> saba gopī haite rādhā kṛṣṇera preyasī\
 > taiche rādhā-kuṇḍa priya 'priyāra sarasi'
 
 *saba*—todas; *gopī*—las gopīs; *haite*—de; *rādhā*—Rādhārāṇī; *kṛṣṇera*—del Señor Kṛṣṇa; *preyasī*—la más amada; *taiche*—de manera similar; *rādhā-kuṇḍa*—Rādhā-kuṇḍa; *priya*—muy querido; *priyāra sarasī*—el lago de la más amada Rādhārāṇī.

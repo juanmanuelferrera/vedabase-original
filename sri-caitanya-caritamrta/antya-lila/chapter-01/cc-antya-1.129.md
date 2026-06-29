@@ -1,9 +1,9 @@
 ### CC Antya 1.129
 
-> রায় কহে, — ‘কহ ইষ্টদেবের বর্ণন’ ।
+> রায় কহে, — ‘কহ ইষ্টদেবের বর্ণন’ ।\
 > প্রভুর সঙ্কোচে রূপ না করে পঠন ॥১২৯॥
 
-> rāya kahe,—'kaha iṣṭa-devera varṇana'
+> rāya kahe,—'kaha iṣṭa-devera varṇana'\
 > prabhura saṅkoce rūpa nā kare paṭhana
 
 *rāya kahe*—Rāmānanda Rāya says; *kaha*—now speak; *iṣṭa-devera varṇana*—description of your worshipable Deity; *prabhura saṅkoce*—embarrassment in the presence of Śrī Caitanya Mahāprabhu; *rūpa*—Rūpa Gosvāmī; *nā kare*—does not do; *paṭhana*—recitation.

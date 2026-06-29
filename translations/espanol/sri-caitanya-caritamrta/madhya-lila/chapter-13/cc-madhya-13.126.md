@@ -1,9 +1,9 @@
 ### CC Madhya 13.126
 
-> অবশেষে রাধা কৃষ্ণে করে নিবেদন  ।
+> অবশেষে রাধা কৃষ্ণে করে নিবেদন  ।\
 > সেই তুমি, সেই আমি, সেই নব সঙ্গম ॥১২৬॥
 
-> aveśeṣe rādhā kṛṣṇe kare nivedana
+> aveśeṣe rādhā kṛṣṇe kare nivedana\
 > sei tumi, sei āmi, sei nava saṅgama
 
 *avaśeṣe*—al final; *rādhā*—Śrīmatī Rādhārāṇī; *kṛṣṇe*—al Señor Kṛṣṇa; *kare*—hace; *nivedana*—súplica; *sei tumi*—Tú eres el mismo Kṛṣṇa; *sei āmi*—Yo soy la misma Rādhārāṇī; *sei nava saṅgama*—nos encontramos con el mismo espíritu renovado del comienzo.

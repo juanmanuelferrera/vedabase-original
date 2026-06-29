@@ -1,11 +1,11 @@
 ### SB 4.6.37
 
-> उपविष्टं दर्भमय्यां बृस्यां ब्रह्म सनातनम् ।
+> उपविष्टं दर्भमय्यां बृस्यां ब्रह्म सनातनम् ।\
 > नारदाय प्रवोचन्तं पृच्छते शृण्वतां सताम् ॥३७॥
 
-> upaviṣṭaṁ darbhamayyāṁ
-> bṛsyāṁ brahma sanātanam
-> nāradāya pravocantaṁ
+> upaviṣṭaṁ darbhamayyāṁ\
+> bṛsyāṁ brahma sanātanam\
+> nāradāya pravocantaṁ\
 > pṛcchate śṛṇvatāṁ satām
 
 *upaviṣṭam*—seated; *darbha-mayyām*—made of *darbha,* straw; *bṛsyām*—on a mattress; *brahma*—the Absolute Truth; *sanātanam*—the eternal; *nāradāya*—unto Nārada; *pravocantam*—speaking; *pṛcchate*—asking; *śṛṇvatām*—listening; *satām*—of the great sages.

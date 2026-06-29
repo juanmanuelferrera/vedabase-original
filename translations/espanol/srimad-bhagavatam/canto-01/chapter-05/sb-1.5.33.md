@@ -1,11 +1,11 @@
 ### SB 1.5.33
 
-> आमयो यश्च भूतानां जायते येन सुव्रत ।
+> आमयो यश्च भूतानां जायते येन सुव्रत ।\
 > तदेव ह्यामयं द्रव्यं न पुनाति चिकित्सितम् ॥३३॥
 
-> āmayo yaś ca bhūtānāṁ
-> jāyate yena suvrata
-> tad eva hy āmayaṁ dravyaṁ
+> āmayo yaś ca bhūtānāṁ\
+> jāyate yena suvrata\
+> tad eva hy āmayaṁ dravyaṁ\
 > na punāti cikitsitam
 
 *āmayaḥ*—enfermedades; *yaḥ ca*—cualesquiera; *bhūtānām*—del ser viviente; *jāyate*—se logra; *yena*—por medio de; *suvrata*—¡oh, buen alma!; *tat*—esa; *eva*—misma; *hi*—indudablemente; *āmayam*—enfermedad; *dravyam*—cosas; *na*—¿no es cierto?; *punāti*—cura; *cikitsitam*—tratada con.

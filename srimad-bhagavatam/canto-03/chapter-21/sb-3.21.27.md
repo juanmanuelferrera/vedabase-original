@@ -1,11 +1,11 @@
 ### SB 3.21.27
 
-> आत्मजामसितापाङ्गीं वयःशीलगुणान्विताम् ।
+> आत्मजामसितापाङ्गीं वयःशीलगुणान्विताम् ।\
 > मृगयन्तीं पतिं दास्यत्यनुरूपाय ते प्रभो ॥२७॥
 
-> ātmajām asitāpāṅgīṁ
-> vayaḥ-śīla-guṇānvitām
-> mṛgayantīṁ patiṁ dāsyaty
+> ātmajām asitāpāṅgīṁ\
+> vayaḥ-śīla-guṇānvitām\
+> mṛgayantīṁ patiṁ dāsyaty\
 > anurūpāya te prabho
 
 *ātma-jām*—his own daughter; *asita*—black; *apāṅgīm*—eyes; *vayaḥ*—grown-up age; *śīla*—with character; *guṇa*—with good qualities; *anvitām*—endowed; *mṛgayantīm*—searching for; *patim*—a husband; *dāsyati*—he will give; *anurūpāya*—who are suitable; *te*—unto you; *prabho*—My dear sir.

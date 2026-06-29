@@ -1,11 +1,11 @@
 ### Bg 6.47
 
-> योगिनामपि सर्वेषां मद्गतेनान्तरात्मना ।
+> योगिनामपि सर्वेषां मद्गतेनान्तरात्मना ।\
 > श्रद्धावान्भजते यो मां स मे युक्ततमो मतः ॥४७॥
 
-> yoginām api sarveṣām
-> mad-gatenāntarātmanā
-> śraddhāvān bhajate yo māṁ
+> yoginām api sarveṣām\
+> mad-gatenāntarātmanā\
+> śraddhāvān bhajate yo māṁ\
 > sa me yuktatamo mataḥ
 
 *yoginām*—de todos los yogīs; *api*—también; *sarveṣām*—todos los tipos de; *matgatena*—morando en Mí; *antaḥ ātmanā*—siempre pensando en Mí, dentro de sí; *śraddhāvān*—con plena fe; *bhajate*—rinde un amoroso servicio trascendental; *yaḥ*—aquel que; *mām*—a Mí (el Señor Supremo); *saḥ*—él; *me*—Mío; *yuktatamaḥ*—el yogī más grande; *mataḥ*—se considera.

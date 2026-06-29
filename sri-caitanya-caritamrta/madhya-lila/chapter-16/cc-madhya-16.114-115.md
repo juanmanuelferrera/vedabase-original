@@ -1,14 +1,14 @@
 ### CC Madhya 16.114-115
 
-> এক নব্য-নৌকা আনি’ রাখহ নদী-তীরে ।
-> যাহাঁ স্নান করি’ প্রভু যা’ন নদী-পারে ॥১১৪॥
-> তাহাঁ স্তম্ভ রোপণ কর ‘মহাতীর্থ’ করি’ ।
+> এক নব্য-নৌকা আনি’ রাখহ নদী-তীরে ।\
+> যাহাঁ স্নান করি’ প্রভু যা’ন নদী-পারে ॥১১৪॥\
+> তাহাঁ স্তম্ভ রোপণ কর ‘মহাতীর্থ’ করি’ ।\
 > নিত্য স্নান করিব তাঁহা, তাহাঁ যেন মরি ॥১১৫॥
 
-> eka navya-naukā āni' rākhaha nadī-tīre
+> eka navya-naukā āni' rākhaha nadī-tīre\
 > yāhāṅ snāna kari' prabhu yā'na nadī-pāre
 
-> tāhāṅ stambha ropaṇa kara 'mahā-tīrtha' kari'
+> tāhāṅ stambha ropaṇa kara 'mahā-tīrtha' kari'\
 > nitya snāna kariba tāhāṅ, tāhāṅ yena mari
 
 *eka*—one; *navya*—new; *naukā*—boat; *āni'*—bringing; *rākhaha*—keep; *nadī-tīre*—on the bank of the river; *yāhāṅ*—where; *snāna kari'*—taking bath; *prabhu*—Śrī Caitanya Mahāprabhu; *yā'na*—goes; *nadī-pāre*—on the other bank of the river; *tāhāṅ*—there; *stambha*—a memorial column; *ropaṇa kara*—establish; *mahā-tīrtha kari'*—making that place a great place of pilgrimage; *nitya*—daily; *snāna kariba*—I shall bathe; *tāhāṅ*—there; *tāhāṅ*—there; *yena mari*—let me die.

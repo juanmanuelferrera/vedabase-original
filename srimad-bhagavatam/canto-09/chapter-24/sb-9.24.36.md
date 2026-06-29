@@ -1,11 +1,11 @@
 ### SB 9.24.36
 
-> तं सात्यजन्नदीतोये कृच्छ्राल्लोकस्य बिभ्यती
+> तं सात्यजन्नदीतोये कृच्छ्राल्लोकस्य बिभ्यती\
 > प्रपितामहस्तामुवाह पाण्डुर्वै सत्यविक्रमः ॥३६॥
 
-> taṁ sātyajan nadī-toye
-> kṛcchrāl lokasya bibhyatī
-> prapitāmahas tām uvāha
+> taṁ sātyajan nadī-toye\
+> kṛcchrāl lokasya bibhyatī\
+> prapitāmahas tām uvāha\
 > pāṇḍur vai satya-vikramaḥ
 
 *tam*—that child; *sā*—she (Kuntī); *atyajat*—gave up; *nadī-toye*—in the water of the river; *kṛcchrāt*—with great repentance; *lokasya*—of the people in general; *bibhyatī*—fearing; *prapitāmahaḥ*—(your) great-grandfather; *tām*—her (Kuntī); *uvāha*—married; *pāṇḍuḥ*—the king known as Pāṇḍu; *vai*—indeed; *satya-vikramaḥ*—very pious and chivalrous.

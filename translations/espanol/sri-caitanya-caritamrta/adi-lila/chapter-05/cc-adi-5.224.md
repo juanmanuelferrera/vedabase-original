@@ -1,13 +1,13 @@
 ### CC Adi 5.224
 
-> স্মেরাং ভঙ্গীত্রয়পরিচিতাং সাচিবিস্তীর্ণদৃষ্টিং
-> বংশীন্যস্তাধরকিশলয়ামুজ্জ্বলাং চন্দ্রকেণ ।
-> গোবিন্দাখ্যাং হরিতনুমিতঃ কেশিতীর্থোপকণ্ঠে
+> স্মেরাং ভঙ্গীত্রয়পরিচিতাং সাচিবিস্তীর্ণদৃষ্টিং\
+> বংশীন্যস্তাধরকিশলয়ামুজ্জ্বলাং চন্দ্রকেণ ।\
+> গোবিন্দাখ্যাং হরিতনুমিতঃ কেশিতীর্থোপকণ্ঠে\
 > মা প্রেক্ষিষ্ঠাস্তব যদি সখে বন্ধুসঙ্গেঽস্তি রঙ্গঃ ॥২২৪॥
 
-> smerāṁ bhaṅgī-traya-paricitāṁ sāci-vistīrṇa-dṛṣṭiṁ
-> vaṁśī-nyastādhara-kiśalayām ujjvalāṁ candrakeṇa
-> govindākhyāṁ hari-tanum itaḥ keśī-tīrthopakaṇṭhe
+> smerāṁ bhaṅgī-traya-paricitāṁ sāci-vistīrṇa-dṛṣṭiṁ\
+> vaṁśī-nyastādhara-kiśalayām ujjvalāṁ candrakeṇa\
+> govindākhyāṁ hari-tanum itaḥ keśī-tīrthopakaṇṭhe\
 > mā prekṣiṣṭhās tava yadi sakhe bandhu-saṅge 'sti raṅgaḥ
 
 *smerām*—sonriente; *bhaṅgī-traya-paricitām*—curvado en tres lugares, a saber, el cuello, la cintura y las rodillas; *sāci-vistīrṇa-dṛṣṭim*—con una amplia mirada de soslayo; *vaṁśī*—sobre la flauta; *nyasta*—colocados; *adhara*—labios; *kiśalayām*—recién florecidos; *ujjvalām*—muy brillante; *candrakeṇa*—por la luz de la luna; *govinda-ākhyām*—llamado el Señor Govinda; *hari-tanum*—el cuerpo trascendental del Señor; *itaḥ*—aquí; *keśī-tīrtha-upakaṇṭhe*—a la orilla del Yamunā, en las cercanías de Keśīghāṭa; *mā*—no; *prekṣiṣṭhāḥ*—mires; *tava*—tu; *yadi*—si; *sakhe*—¡oh, querido amigo!; *bandhu-saṅge*—a los amigos mundanos; *asti*—hay; *raṅgaḥ*—apego.

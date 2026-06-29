@@ -1,11 +1,11 @@
 ### SB 1.3.22
 
-> नरदेवत्वमापन्नः सुरकार्यचिकीर्षया ।
+> नरदेवत्वमापन्नः सुरकार्यचिकीर्षया ।\
 > समुद्रनिग्रहादीनि चक्रे वीर्याण्यतः परम् ॥२२॥
 
-> nara-devatvam āpannaḥ
-> sura-kārya-cikīrṣayā
-> samudra-nigrahādīni
+> nara-devatvam āpannaḥ\
+> sura-kārya-cikīrṣayā\
+> samudra-nigrahādīni\
 > cakre vīryāṇy ataḥ param
 
 *nara*—ser humano; *devatvam*—divinidad; *āpannaḥ*—habiendo asumido la forma de; *sura*—los semidioses; *kārya*—actividades; *cikīrṣayā*—con el propósito de realizar; *samudra*—el Océano Índico; *nigraha-ādīni*—controlando, etc.; *cakre*—realizó; *vīryāṇi*—proezas sobrehumanas; *ataḥ param*—después.

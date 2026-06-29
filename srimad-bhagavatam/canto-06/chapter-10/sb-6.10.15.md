@@ -1,11 +1,11 @@
 ### SB 6.10.15
 
-> वृत्रमभ्यद्रवच्छत्रुमसुरानीकयूथपैः
+> वृत्रमभ्यद्रवच्छत्रुमसुरानीकयूथपैः\
 > पर्यस्तमोजसा राजन्क्रुद्धो रुद्र इवान्तकम ॥१५॥
 
-> vṛtram abhyadravac chatrum
-> asurānīka-yūthapaiḥ
-> paryastam ojasā rājan
+> vṛtram abhyadravac chatrum\
+> asurānīka-yūthapaiḥ\
+> paryastam ojasā rājan\
 > kruddho rudra ivāntakam
 
 *vṛtram*—Vṛtrāsura; *abhyadravat*—attacked; *śatrum*—the enemy; *asura-anīka-yūthapaiḥ*—by the commanders or captains of the soldiers of the *asuras*; *paryastam*—surrounded; *ojasā*—with great force; *rājan*—O King; *kruddhaḥ*—being angry; *rudraḥ*—an incarnation of Lord Śiva; *iva*—like; *antakam*—Antaka, or Yamarāja.

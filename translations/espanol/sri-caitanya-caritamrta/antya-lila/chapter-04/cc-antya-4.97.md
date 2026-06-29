@@ -1,9 +1,9 @@
 ### CC Antya 4.97
 
-> ভক্তিসিদ্ধান্ত, শাস্ত্র-আচার-নির্ণয়  ।
+> ভক্তিসিদ্ধান্ত, শাস্ত্র-আচার-নির্ণয়  ।\
 > তোমা-দ্বারে করাইবেন, বুঝিলুঁ আশয় ॥৯৭॥
 
-> bhakti-siddhānta, śāstra-ācāra-nirṇaya
+> bhakti-siddhānta, śāstra-ācāra-nirṇaya\
 > tomā-dvāre karāibena, bujhiluṅ āśaya
 
 *bhakti-siddhānta*—decisión conclusiva en el servicio devocional; *śāstra*—conforme a las prescripciones de las escrituras; *ācāra-nirṇaya*—determinación de la conducta; *tomā-dvāre*—por medio de ti; *karāibena*—hará que se haga; *bujhiluṅ*—puedo comprender; *āśaya*—Su deseo.

@@ -1,11 +1,11 @@
 ### SB 1.5.31
 
-> येनैवाहं भगवतो वासुदेवस्य वेधसः ।
+> येनैवाहं भगवतो वासुदेवस्य वेधसः ।\
 > मायानुभावमविदं येन गच्छन्ति तत्पदम् ॥३१॥
 
-> yenaivāhaṁ bhagavato
-> vāsudevasya vedhasaḥ
-> māyānubhāvam avidaṁ
+> yenaivāhaṁ bhagavato\
+> vāsudevasya vedhasaḥ\
+> māyānubhāvam avidaṁ\
 > yena gacchanti tat-padam
 
 *yena*—by which; *eva*—certainly; *aham*—I; *bhagavataḥ*—of the Personality of Godhead; *vāsudevasya*—of Lord Śrī Kṛṣṇa; *vedhasaḥ*—of the supreme creator; *māyā*—energy; *anubhāvam*—influence; *avidam*—easily understood; *yena*—by which; *gacchanti*—they go; *tat-padam*—at the lotus feet of the Lord.

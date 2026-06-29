@@ -1,9 +1,9 @@
 ### CC Adi 2.93
 
-> আশ্রয় জানিতে কহি এ নব পদার্থ ।
+> আশ্রয় জানিতে কহি এ নব পদার্থ ।\
 > এ নবের উৎপত্তি-হেতু সেই আশ্রয়ার্থ ॥৯৩॥
 
-> āśraya jānite kahi e nava padārtha
+> āśraya jānite kahi e nava padārtha\
 > e navera utpatti-hetu sei āśrayārtha
 
 *āśraya*—el refugio último; *jānite*—para conocer; *kahi*—trato; *e*—estas; *nava*—nueve; *pada-artha*—categorías; *e*—estas; *navera*—de las nueve; *utpatti*—del origen; *hetu*—causa; *sei*—esa; *āśraya*—del refugio; *artha*—el significado.

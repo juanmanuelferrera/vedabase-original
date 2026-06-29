@@ -1,11 +1,11 @@
 ### SB 1.13.13
 
-> नन्वप्रियं दुर्विषहं नृणां स्वयमुपस्थितम् ।
+> नन्वप्रियं दुर्विषहं नृणां स्वयमुपस्थितम् ।\
 > नावेदयत्सकरुणो दुःखितान्द्रष्टुमक्षमः ॥१३॥
 
-> nanv apriyaṁ durviṣahaṁ
-> nṛṇāṁ svayam upasthitam
-> nāvedayat sakaruṇo
+> nanv apriyaṁ durviṣahaṁ\
+> nṛṇāṁ svayam upasthitam\
+> nāvedayat sakaruṇo\
 > duḥkhitān draṣṭum akṣamaḥ
 
 *nanu*—en realidad; *apriyam*—desagradable; *durviṣaham*—intolerable; *nṛṇām*—de la humanidad; *svayam*—a su manera; *upasthitam*—aparición; *na*—no; *āvedayat*—expresó; *sakaruṇaḥ*—compasivo; *duḥkhitān*—afligido; *draṣṭum*—ver; *akṣamaḥ*—incapaz.

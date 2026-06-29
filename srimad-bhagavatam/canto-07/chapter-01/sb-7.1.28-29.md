@@ -1,18 +1,18 @@
 ### SB 7.1.28-29
 
-> एवं कृष्णे भगवति मायामनुज ईश्वरे
-> वैरेण पूतपाप्मानस्तमापुरनुचिन्तया ॥२८॥
-> कामाद्द्वेषाद्भयात्स्नेहाद्यथा भक्त्येश्वरे मनः
+> एवं कृष्णे भगवति मायामनुज ईश्वरे\
+> वैरेण पूतपाप्मानस्तमापुरनुचिन्तया ॥२८॥\
+> कामाद्द्वेषाद्भयात्स्नेहाद्यथा भक्त्येश्वरे मनः\
 > आवेश्य तदघं हित्वा बहवस्तद्गतिं गताः ॥२९॥
 
-> kīṭaḥ peśaskṛtā ruddhaḥ
-> kuḍyāyāṁ tam anusmaran
-> saṁrambha-bhaya-yogena
+> kīṭaḥ peśaskṛtā ruddhaḥ\
+> kuḍyāyāṁ tam anusmaran\
+> saṁrambha-bhaya-yogena\
 > vindate tat-svarūpatām
 
-> evaṁ kṛṣṇe bhagavati
-> māyā-manuja īśvare
-> vaireṇa pūta-pāpmānas
+> evaṁ kṛṣṇe bhagavati\
+> māyā-manuja īśvare\
+> vaireṇa pūta-pāpmānas\
 > tam āpur anucintayā
 
 *kīṭaḥ*—the grassworm; *peśaskṛtā*—by a bee; *ruddhaḥ*—confined; *kuḍyāyām*—in a hole in a wall; *tam*—that (bee); *anusmaran*—thinking of; *saṁrambha-bhaya-yogena*—through intense fear and enmity; *vindate*—attains; *tat*—of that bee; *sva-rūpatām*—the same form; *evam*—thus; *kṛṣṇe*—in Kṛṣṇa; *bhagavati*—the Personality of Godhead; *māyā-manuje*—who appeared by His own energy in His eternal humanlike form; *īśvare*—the Supreme; *vaireṇa*—by enmity; *pūta-pāpmānaḥ*—those purified of sins; *tam*—Him; *āpuḥ*—attained; *anucintayā*—by thinking of.

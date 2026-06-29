@@ -1,11 +1,11 @@
 ### SB 4.5.8
 
-> वाता न वान्ति न हि सन्ति दस्यवः प्राचीनबर्हिर्जीवति होग्रदण्डः ।
+> वाता न वान्ति न हि सन्ति दस्यवः प्राचीनबर्हिर्जीवति होग्रदण्डः ।\
 > गावो न काल्यन्त इदं कुतो रजो लोकोऽधुना किं प्रलयाय कल्पते ॥८॥
 
-> vātā na vānti na hi santi dasyavaḥ
-> prācīna-barhir jīvati hogra-daṇḍaḥ
-> gāvo na kālyanta idaṁ kuto rajo
+> vātā na vānti na hi santi dasyavaḥ\
+> prācīna-barhir jīvati hogra-daṇḍaḥ\
+> gāvo na kālyanta idaṁ kuto rajo\
 > loko 'dhunā kiṁ pralayāya kalpate
 
 *vātāḥ*—the winds; *na vānti*—are not blowing; *na*—not; *hi*—because; *santi*—are possible; *dasyavaḥ*—plunderers; *prācīna-barhiḥ*—old King Barhi; *jīvati*—is living; *ha*—still; *ugra-daṇḍaḥ*—who would sternly punish; *gāvaḥ*—the cows; *na kālyante*—are not being driven; *idam*—this; *kutaḥ*—from where; *rajaḥ*—dust; *lokaḥ*—the planet; *adhunā*—now; *kim*—is it; *pralayāya*—for dissolution; *kalpate*—to be considered ready.

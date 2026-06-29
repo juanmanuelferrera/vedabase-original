@@ -1,11 +1,11 @@
 ### SB 6.18.41
 
-> शरत्पद्मोत्सवं वक्त्रं वचश्च श्रवणामृतम
+> शरत्पद्मोत्सवं वक्त्रं वचश्च श्रवणामृतम\
 > हृदयं क्षुरधाराभं स्त्रीणां को वेद चेष्टितम ॥४१॥
 
-> śarat-padmotsavaṁ vaktraṁ
-> vacaś ca śravaṇāmṛtam
-> hṛdayaṁ kṣura-dhārābhaṁ
+> śarat-padmotsavaṁ vaktraṁ\
+> vacaś ca śravaṇāmṛtam\
+> hṛdayaṁ kṣura-dhārābhaṁ\
 > strīṇāṁ ko veda ceṣṭitam
 
 *śarat*—en el otoño; *padma*—una flor de loto; *utsavam*—que florece; *vaktram*—rostro; *vacaḥ*—palabras; *ca*—y; *śravaṇa*—al oído; *amṛtam*—que dan placer; *hṛdayam*—corazón; *kṣura-dhārā*—el filo de una navaja; *ābham*—como; *strīṇām*—de mujeres; *kaḥ*—quién; *veda*—conoce; *ceṣṭitam*—la conducta.

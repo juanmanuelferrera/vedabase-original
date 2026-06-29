@@ -1,6 +1,6 @@
 ### CC Adi 1.35
 
-> mantra-guru āra yata śikṣā-guru-gaṇa
+> mantra-guru āra yata śikṣā-guru-gaṇa\
 > tāṅhāra caraṇa āge kariye vandana
 
 *mantra-guru*—o mestre espiritual iniciador; *āra*—e também; *yata*—tantos (quantos haja); *śikṣā-guru-gaṇa*—todos os mestres espirituais instrutores; *tāṅhāra*—de todos eles; *caraṇa*—aos pés de lótus; *āge*—a princípio; *kariye*—eu ofereço; *vandana*—respeitosas reverências.

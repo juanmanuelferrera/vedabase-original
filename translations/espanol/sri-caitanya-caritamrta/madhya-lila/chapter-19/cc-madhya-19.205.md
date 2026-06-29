@@ -1,11 +1,11 @@
 ### CC Madhya 19.205
 
-> তং মত্বাত্মজমব্যক্তং মর্ত্যলিঙ্গমধোক্ষজম্ ।
+> তং মত্বাত্মজমব্যক্তং মর্ত্যলিঙ্গমধোক্ষজম্ ।\
 > গোপিকোলূখলে দাম্না ববন্ধ প্রাকৃতং যথা ॥২০৫॥
 
-> taṁ matvātmajam avyaktaṁ
-> martya-liṅgam adhokṣajam
-> gopikolūkhale dāmnā
+> taṁ matvātmajam avyaktaṁ\
+> martya-liṅgam adhokṣajam\
+> gopikolūkhale dāmnā\
 > babandha prākṛtaṁ yathā
 
 *tam*—a Él (Kṛṣṇa); *matvā*—considerando; *ātmajam*—su propio hijo; *avyaktam*—no manifestado; *martya-liṅgam*—manifestado como si fuera perecedero; *adhokṣajam*—más allá de la percepción de los sentidos; *gopikā*—la madre Yaśodā; *ulūkhale*—al mortero; *dāmnā*—con una cuerda; *babandha*—ató; *prākṛtam*—un niño corriente; *yathā*—como.

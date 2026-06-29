@@ -1,13 +1,13 @@
 ### SB 3.14.2
 
-> विदुर उवाच
-> तेनैव तु मुनिश्रेष्ठ हरिणा यज्ञमूर्तिना ।
+> विदुर उवाच\
+> तेनैव तु मुनिश्रेष्ठ हरिणा यज्ञमूर्तिना ।\
 > आदिदैत्यो हिरण्याक्षो हत इत्यनुशुश्रुम ॥२॥
 
-> vidura uvāca
-> tenaiva tu muni-śreṣṭha
-> hariṇā yajña-mūrtinā
-> ādi-daityo hiraṇyākṣo
+> vidura uvāca\
+> tenaiva tu muni-śreṣṭha\
+> hariṇā yajña-mūrtinā\
+> ādi-daityo hiraṇyākṣo\
 > hata ity anuśuśruma
 
 *viduraḥ uvāca*—Śrī Vidura dijo; *tena*—por Él; *eva*—ciertamente; *tu*—pero; *muni-śreṣṭha*—¡oh, mejor entre los sabios!; *hariṇā*—por la Personalidad de Dios; *yajña-mūrtinā*—la forma de los sacrificios; *ādi*—original; *daityaḥ*—demonio; *hiraṇyākṣaḥ*—de nombre Hiraṇyākṣa; *hataḥ*—muerto; *iti*—así; *anuśuśruma*—oído en sucesión.

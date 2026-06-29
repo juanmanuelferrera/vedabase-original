@@ -1,9 +1,9 @@
 ### CC Antya 8.15
 
-> “শুনি, চৈতন্যগণ করে বহুত ভক্ষণ ।
+> “শুনি, চৈতন্যগণ করে বহুত ভক্ষণ ।\
 > ‘সত্য’ সেই বাক্য, — সাক্ষাৎ দেখিলুঁ এখন ॥১৫॥
 
-> "śuni, caitanya-gaṇa kare bahuta bhakṣaṇa
+> "śuni, caitanya-gaṇa kare bahuta bhakṣaṇa\
 > 'satya' sei vākya,—sākṣāt dekhiluṅ ekhana
 
 *śuni*—I have heard; *caitanya-gaṇa*—the followers of Śrī Caitanya Mahāprabhu; *kare bahuta bhakṣaṇa*—eat more than necessary; *satya*—true; *sei vākya*—that statement; *sākṣāt*—directly; *dekhiluṅ*—I have seen; *ekhana*—now.

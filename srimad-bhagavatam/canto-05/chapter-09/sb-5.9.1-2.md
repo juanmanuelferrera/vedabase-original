@@ -1,10 +1,10 @@
 ### SB 5.9.1-2
 
-> श्रीशुक उवाच
-> अथ कस्यचिद्द्विजवरस्याङ्गिरःप्रवरस्य शमदमतपःस्वाध्यायाध्ययनत्यागसन्तोषतितिक्षाप्रश्रयविद्यानसूयात्मज्ञआनानन्दयुक्तस्यात्मसदृशश्रुतशीलाचाररूपौदार्यगुणा नव सोदर्याअङ्गजा बभूवुर्मिथुनं च यवीयस्यां भार्यायाम्यस्तु तत्र पुमांस्तं परमभागवतं राजर्षिप्रवरं भरतमुत्सृष्टमृगशरीरं चरमशरीरेण विप्रत्वं गतमाहुः ॥१॥
+> श्रीशुक उवाच\
+> अथ कस्यचिद्द्विजवरस्याङ्गिरःप्रवरस्य शमदमतपःस्वाध्यायाध्ययनत्यागसन्तोषतितिक्षाप्रश्रयविद्यानसूयात्मज्ञआनानन्दयुक्तस्यात्मसदृशश्रुतशीलाचाररूपौदार्यगुणा नव सोदर्याअङ्गजा बभूवुर्मिथुनं च यवीयस्यां भार्यायाम्यस्तु तत्र पुमांस्तं परमभागवतं राजर्षिप्रवरं भरतमुत्सृष्टमृगशरीरं चरमशरीरेण विप्रत्वं गतमाहुः ॥१॥\
 > तत्रापि स्वजनसङ्गाच्च भृशमुद्विजमानो भगवतः कर्मबन्धविध्वंसनश्रवणस्मरणगुणविवरणचरणारविन्दयुगलं मनसा विदधदात्मनः प्रतिघातमाशङ्कमानो भगवदअनुग्रहेणानुस्मृतस्वपूर्वजन्मावलिरात्मानमुन्मत्तजडान्धबधिरस्वरूपेण दर्शयामासलोकस्य ॥२॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > atha kasyacid dvija-varasyāṅgiraḥ-pravarasya śama-dama-tapaḥ-svādhyāyādhyayana-tyāga-santoṣa-titikṣā-praśraya-vidyānasūyātma-jñānānanda-yuktasyātma-sadṛśa-śruta-śīlācāra-rūpaudārya-guṇā nava sodaryā aṅgajā babhūvur mithunaṁ ca yavīyasyāṁ bhāryāyām yas tu tatra pumāṁs taṁ parama-bhāgavataṁ rājarṣi-pravaraṁ bharatam utsṛṣṭa-mṛga-śarīraṁ carama-śarīreṇa vipratvaṁ gatam āhuḥ.
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī continued to speak; *atha*—thereafter; *kasyacit*—of some; *dvija-varasya*—*brāhmaṇa*; *aṅgiraḥ-pravarasya*—who came in the dynasty of the great saint Aṅgirā; *śama*—control of the mind; *dama*—control of the senses; *tapaḥ*—practice of austerities and penances; *svādhyāya*—recitation of the Vedic literatures; *adhyayana*—studying; *tyāga*—renunciation; *santoṣa*—satisfaction; *titikṣā*—tolerance; *praśraya*—very gentle; *vidyā*—knowledge; *anasūya*—without envy; *ātma-jñāna-ānanda*—satisfied in self-realization; *yuktasya*—who was qualified with; *ātma-sadṛśa*—and exactly like himself; *śruta*—in education; *śīla*—in character; *ācāra*—in behavior; *rūpa*—in beauty; *audārya*—in magnanimity; *guṇāḥ*—possessing all these qualities; *nava sa-udaryāḥ*—nine brothers born of the same womb; *aṅga-jāḥ*—sons; *babhūvuḥ*—were born; *mithunam*—a twin brother and sister; *ca*—and; *yavīyasyām*—in the youngest; *bhāryāyām*—wife; *yaḥ*—who; *tu*—but; *tatra*—there; *pumān*—the male child; *tam*—him; *parama-bhāgavatam*—the most exalted devotee; *rāja-ṛṣi*—of saintly kings; *pravaram*—most honored; *bharatam*—Bharata Mahārāja; *utsṛṣṭa*—having given up; *mṛga-śarīram*—the body of a deer; *carama-śarīreṇa*—with the last body; *vipratvam*—being a *brāhmaṇa*; *gatam*—obtained; *āhuḥ*—they said.

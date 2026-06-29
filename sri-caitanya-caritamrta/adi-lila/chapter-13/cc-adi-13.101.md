@@ -1,13 +1,13 @@
 ### CC Adi 13.101
 
-> জগৎ আনন্দময়, দেখি’ মনে সবিস্ময়,
-> ঠারেঠোরে কহে হরিদাস ।
-> তোমার ঐছন রঙ্গ, মোর মন পরসন্ন,
+> জগৎ আনন্দময়, দেখি’ মনে সবিস্ময়,\
+> ঠারেঠোরে কহে হরিদাস ।\
+> তোমার ঐছন রঙ্গ, মোর মন পরসন্ন,\
 > দেখি — কিছু কার্যে আছে ভাস ॥১০১॥
 
-> jagat ānandamaya, dekhi' mane sa-vismaya,
-> ṭhāreṭhore kahe haridāsa
-> tomāra aichana raṅga, mora mana parasanna,
+> jagat ānandamaya, dekhi' mane sa-vismaya,\
+> ṭhāreṭhore kahe haridāsa\
+> tomāra aichana raṅga, mora mana parasanna,\
 > dekhi—kichu kārye āche bhāsa
 
 *jagat*—the whole world; *ānanda-maya*—full of pleasure; *dekhi'*—seeing; *mane*—within the mind; *sa-vismaya*—with amazement; *ṭhāreṭhore*—by direct and indirect indications; *kahe*—says; *haridāsa*—Haridāsa Ṭhākura; *tomāra*—Your; *aichana*—that kind of; *raṅga*—performance; *mora*—my; *mana*—mind; *parasanna*—very much pleased; *dekhi*—I can understand; *kichu*—something; *kārye*—in work; *āche*—there is; *bhāsa*—indication.

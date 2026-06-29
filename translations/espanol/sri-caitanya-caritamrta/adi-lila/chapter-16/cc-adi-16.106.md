@@ -1,9 +1,9 @@
 ### CC Adi 16.106
 
-> সরস্বতী স্বপ্নে তাঁরে উপদেশ কৈল ।
+> সরস্বতী স্বপ্নে তাঁরে উপদেশ কৈল ।\
 > সাক্ষাৎ ঈশ্বর করি’ প্রভুকে জানিল ॥১০৬॥
 
-> sarasvatī svapne tāṅre upadeśa kaila
+> sarasvatī svapne tāṅre upadeśa kaila\
 > sākṣāt īśvara kari' prabhuke jānila
 
 *sarasvatī*—la madre Sarasvatī; *svapne*—en un sueño; *tāṅre*—a él; *upadeśa*—instrucción; *kaila*—dio; *sākṣāt*—directamente; *īśvara*—la Persona Suprema; *kari'*—aceptando; *prabhuke*—al Señor; *jānila*—comprendió.

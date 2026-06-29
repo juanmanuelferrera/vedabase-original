@@ -1,9 +1,9 @@
 ### CC Madhya 10.157
 
-> anyere anya kaha, nāhi tomāra jñāna
+> anyere anya kaha, nāhi tomāra jñāna\
 > bhāratī-gosāñi kene paribena cāma
 
-> anyere anya kaha, nāhi tomāra jñāna
+> anyere anya kaha, nāhi tomāra jñāna\
 > bhāratī-gosāñi kene paribena cāma
 
 *anyere*—a otro; *anya kaha*—hablas de otra persona; *nāhi*—no hay; *tomāra*—tu; *jñāna*—conocimiento; *bhāratī*—Brahmānanda Bhāratī; *gosāñi*—mi maestro espiritual; *kene*—por qué; *paribena*—habría de vestir; *cāma*—piel.

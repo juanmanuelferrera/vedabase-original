@@ -1,11 +1,11 @@
 ### Bg 9.31
 
-> क्षिप्रं भवति धर्मात्मा शश्वच्छान्तिं निगच्छति ।
+> क्षिप्रं भवति धर्मात्मा शश्वच्छान्तिं निगच्छति ।\
 > कौन्तेय प्रतिजानीहि न मे भक्तः प्रणश्यति ॥३१॥
 
-> kṣipraṁ bhavati dharmātmā
-> śaśvac-chāntiṁ nigacchati
-> kaunteya pratijānīhi
+> kṣipraṁ bhavati dharmātmā\
+> śaśvac-chāntiṁ nigacchati\
+> kaunteya pratijānīhi\
 > na me bhaktaḥ praṇaśyati
 
 *kṣipram*—very soon; *bhavati*—becomes; *dharma-ātmā*—righteous; *śaśvat-śāntim*—lasting peace; *nigacchati*—attains; *kaunteya*—O son of Kuntī; *pratijānīhi*—justly declare; *na*—never; *me*—Mine; *bhaktaḥ*—devotee; *praṇaśyati*—perishes.

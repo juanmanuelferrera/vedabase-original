@@ -1,11 +1,11 @@
 ### Bg 1.15
 
-> पाञ्चजन्यं हृषीकेशो देवदत्तं धनञ्जयः ।
+> पाञ्चजन्यं हृषीकेशो देवदत्तं धनञ्जयः ।\
 > पौण्ड्रं दध्मौ महाशङ्खं भीमकर्मा वृकोदरः ॥१५॥
 
-> pāñcajanyaṁ hṛṣīkeśo
-> devadattaṁ dhanañjayaḥ
-> pauṇḍraṁ dadhmau mahā-śaṅkhaṁ
+> pāñcajanyaṁ hṛṣīkeśo\
+> devadattaṁ dhanañjayaḥ\
+> pauṇḍraṁ dadhmau mahā-śaṅkhaṁ\
 > bhīma-karmā vṛkodaraḥ
 
 *pāñcajanyam*—la caracola llamada Pāñcajanya; *hṛṣīkeśaḥ*—Hṛṣīkeśa (Kṛṣṇa, el Señor que dirige los sentidos de los devotos); *devadattam*—la caracola llamada Devadatta; *dhananjayaḥ*—Dhanañjaya (Arjuna, el conquistador de riquezas); *pauṇḍram*—la caracola llamada Pauṇḍra; *dadhmau*—hizo sonar; *mahā-śaṅkham*—la aterradora caracola; *bhīma-karmā*—aquel que realiza tareas hercúleas; *vṛkodaraḥ*—el comedor voraz (Bhīma).

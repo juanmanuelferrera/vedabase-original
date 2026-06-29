@@ -1,13 +1,13 @@
 ### CC Antya 16.123
 
-> আছুক নারীর কায, কহিতে বাসিয়ে লাজ,
-> তোমার অধর বড় ধৃষ্ট-রায় ।
-> পুরুষে করে আকর্ষণ, আপনা পিয়াইতে মন,
+> আছুক নারীর কায, কহিতে বাসিয়ে লাজ,\
+> তোমার অধর বড় ধৃষ্ট-রায় ।\
+> পুরুষে করে আকর্ষণ, আপনা পিয়াইতে মন,\
 > অন্যরস সব পাসরায় ॥১২৩॥
 
-> āchuka nārīra kāya, kahite vāsiye lāja,
-> tomāra adhara baḍa dhṛṣṭa-rāya
-> puruṣe kare ākarṣaṇa, āpanā piyāite mana,
+> āchuka nārīra kāya, kahite vāsiye lāja,\
+> tomāra adhara baḍa dhṛṣṭa-rāya\
+> puruṣe kare ākarṣaṇa, āpanā piyāite mana,\
 > anya-rasa saba pāsarāya
 
 *āchuka*—dejemos aparte; *nārīra*—de las mujeres; *kāya*—los cuerpos; *kahite*—al hablar; *vāsiye*—siento; *lāja*—vergüenza; *tomāra*—Tus; *adhara*—labios; *baḍa*—muy; *dhṛṣṭa-rāya*—descarados; *puruṣe*—al varón; *kare ākarṣaṇa*—atraen; *āpanā*—a sí mismos; *piyāite*—haciendo beber; *mana*—mente; *anya-rasa*—otros sabores; *saba*—todos; *pāsarāya*—hacen olvidar.

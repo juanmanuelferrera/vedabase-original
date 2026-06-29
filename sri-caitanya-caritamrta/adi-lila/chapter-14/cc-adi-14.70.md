@@ -1,9 +1,9 @@
 ### CC Adi 14.70
 
-> এইমত লীলা করি’ দুঁহে গেলা ঘরে ।
+> এইমত লীলা করি’ দুঁহে গেলা ঘরে ।\
 > গম্ভীর চৈতন্য-লীলা কে বুঝিতে পারে ॥৭০॥
 
-> ei-mata līlā kari' duṅhe gelā ghare
+> ei-mata līlā kari' duṅhe gelā ghare\
 > gambhīra caitanya-līlā ke bujhite pāre
 
 *ei-mata*—in this way; *līlā*—pastimes; *kari'*—executing; *duṅhe*—both of them; *gelā*—returned; *ghare*—home; *gambhīra*—very grave; *caitanya-līlā*—the pastimes of Lord Caitanya; *ke*—who; *bujhite*—to understand; *pāre*—is able.

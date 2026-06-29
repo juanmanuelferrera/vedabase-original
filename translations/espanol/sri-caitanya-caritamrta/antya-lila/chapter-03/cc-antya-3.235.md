@@ -1,9 +1,9 @@
 ### CC Antya 3.235
 
-> যোড়-হাতে হরিদাসের বন্দিলা চরণ  ।
+> যোড়-হাতে হরিদাসের বন্দিলা চরণ  ।\
 > দ্বারে বসি’ কহে কিছু মধুর বচন ॥২৩৫॥
 
-> yoḍa-hāte haridāsera vandilā caraṇa
+> yoḍa-hāte haridāsera vandilā caraṇa\
 > dvāre vasi' kahe kichu madhura vacana
 
 *yoḍa-hāte*—con las manos juntas; *haridāsera*—de Haridāsa Ṭhākura; *vandilā caraṇa*—ofreció oraciones a sus pies de loto; *dvāre vasi'*—sentándose en la puerta; *kahe*—dice; *kichu*—algunas; *madhura vacana*—dulces palabras.

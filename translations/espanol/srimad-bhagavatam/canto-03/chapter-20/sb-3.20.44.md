@@ -1,11 +1,11 @@
 ### SB 3.20.44
 
-> सिद्धान्विद्याधरांश्चैव तिरोधानेन सोऽसृजत् ।
+> सिद्धान्विद्याधरांश्चैव तिरोधानेन सोऽसृजत् ।\
 > तेभ्योऽददात्तमात्मानमन्तर्धानाख्यमद्भुतम् ॥४४॥
 
-> siddhān vidyādharāṁś caiva
-> tirodhānena so 'sṛjat
-> tebhyo 'dadāt tam ātmānam
+> siddhān vidyādharāṁś caiva\
+> tirodhānena so 'sṛjat\
+> tebhyo 'dadāt tam ātmānam\
 > antardhānākhyam adbhutam
 
 *siddhān*—a los *siddhas*; *vidyādharān*—a los *vidyādharas*; *ca eva*—y también; *tirodhānena*—con la facultad de permanecer oculto a la vista; *saḥ*—el Señor Brahmā; *asṛjat*—creó; *tebhyaḥ*—a ellos; *adadāt*—dio; *tam ātmānam*—esa forma suya; *antardhāna-ākhyam*—denominada Antardhāna; *adbhutam*—maravillosa.

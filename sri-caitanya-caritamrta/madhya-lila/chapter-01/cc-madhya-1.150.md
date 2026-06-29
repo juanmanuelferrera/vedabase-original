@@ -1,9 +1,9 @@
 ### CC Madhya 1.150
 
-> আসি’ বিদ্যাবাচস্পতির গৃহেতে রহিলা ।
+> আসি’ বিদ্যাবাচস্পতির গৃহেতে রহিলা ।\
 > প্রভুরে দেখিতে লোকসংঘট্ট হইলা ॥১৫০॥
 
-> āsi' vidyā-vācaspatira gṛhete rahilā
+> āsi' vidyā-vācaspatira gṛhete rahilā\
 > prabhure dekhite loka-saṅghaṭṭa ha-ilā
 
 *āsi'*—coming to Bengal; *vidyā-vācaspatira*—of Vidyā-vācaspati; *gṛhete*—at the home; *rahilā*—remained; *prabhure*—unto Lord Caitanya Mahāprabhu; *dekhite*—to see; *loka-saṅghaṭṭa*—crowds of men; *ha-ilā*—there were.

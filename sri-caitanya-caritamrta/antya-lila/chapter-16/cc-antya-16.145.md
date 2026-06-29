@@ -1,13 +1,13 @@
 ### CC Antya 16.145
 
-> যার ধন, না কহে তারে, পান করে বলাৎকারে,
-> পিতে তারে ডাকিয়া জানায় ।
-> তার তপস্যার ফল, দেখ ইহার ভাগ্য-বল,
+> যার ধন, না কহে তারে, পান করে বলাৎকারে,\
+> পিতে তারে ডাকিয়া জানায় ।\
+> তার তপস্যার ফল, দেখ ইহার ভাগ্য-বল,\
 > ইহার উচ্ছিষ্ট মহাজনে খায় ॥১৪৫॥
 
-> yāra dhana, nā kahe tāre, pāna kare balātkāre,
-> pite tāre ḍākiyā jānāya
-> tāra tapasyāra phala, dekha ihāra bhāgya-bala,
+> yāra dhana, nā kahe tāre, pāna kare balātkāre,\
+> pite tāre ḍākiyā jānāya\
+> tāra tapasyāra phala, dekha ihāra bhāgya-bala,\
 > ihāra ucchiṣṭa mahā-jane khāya
 
 *yāra*—of whom; *dhana*—the property; *nā kahe*—does not speak; *tāre*—to them; *pāna kare*—drinks; *balātkāre*—by force; *pite*—while drinking; *tāre*—unto them; *ḍākiyā*—calling loudly; *jānāya*—informs; *tāra*—its; *tapasyāra*—of austerities; *phala*—result; *dekha*—see; *ihāra*—its; *bhāgya-bala*—strength of fortune; *ihāra*—its; *ucchiṣṭa*—remnants; *mahā-jane*—great personalities; *khāya*—drink.

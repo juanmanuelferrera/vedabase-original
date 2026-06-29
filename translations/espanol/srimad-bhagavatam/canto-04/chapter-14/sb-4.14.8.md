@@ -1,11 +1,11 @@
 ### SB 4.14.8
 
-> अहो उभयतः प्राप्तं लोकस्य व्यसनं महत् ।
+> अहो उभयतः प्राप्तं लोकस्य व्यसनं महत् ।\
 > दारुण्युभयतो दीप्ते इव तस्करपालयोः ॥८॥
 
-> aho ubhayataḥ prāptaṁ
-> lokasya vyasanaṁ mahat
-> dāruṇy ubhayato dīpte
+> aho ubhayataḥ prāptaṁ\
+> lokasya vyasanaṁ mahat\
+> dāruṇy ubhayato dīpte\
 > iva taskara-pālayoḥ
 
 *aho*—¡ay!; *ubhayataḥ*—en ambas direcciones; *prāptam*—recibido; *lokasya*—de la gente en general; *vyasanam*—peligro; *mahat*—grande; *dāruṇi*—un tronco; *ubhayataḥ*—en ambos lados; *dīpte*—ardiendo; *iva*—como; *taskara*—de ladrones y maleantes; *pālayoḥ*—y del rey.

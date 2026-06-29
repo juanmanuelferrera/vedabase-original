@@ -1,11 +1,11 @@
 ### SB 7.12.6
 
-> सुशीलो मितभुग्दक्षः श्रद्दधानो जितेन्द्रियः
+> सुशीलो मितभुग्दक्षः श्रद्दधानो जितेन्द्रियः\
 > यावदर्थं व्यवहरेत्स्त्रीषु स्त्रीनिर्जितेषु च ॥६॥
 
-> suśīlo mita-bhug dakṣaḥ
-> śraddadhāno jitendriyaḥ
-> yāvad-arthaṁ vyavaharet
+> suśīlo mita-bhug dakṣaḥ\
+> śraddadhāno jitendriyaḥ\
+> yāvad-arthaṁ vyavaharet\
 > strīṣu strī-nirjiteṣu ca
 
 *su-śīlaḥ*—muy cortés y educado; *mita-bhuk*—comiendo solo lo que necesita, ni más ni menos; *dakṣaḥ*—experto o sin pereza, siempre activo; *śraddadhānaḥ*—con plena fe en las instrucciones del *śāstra* y del maestro espiritual; *jita-indriyaḥ*—con perfecto control de los sentidos; *yāvat-artham*—lo necesario; *vyavaharet*—debe comportarse externamente; *strīṣu*—a las mujeres; *strī-nirjiteṣu*—hombres dominados por mujeres; *ca*—también.

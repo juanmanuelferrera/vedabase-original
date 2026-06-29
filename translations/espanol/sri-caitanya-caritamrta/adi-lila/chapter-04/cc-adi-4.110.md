@@ -1,9 +1,9 @@
 ### CC Adi 4.110
 
-> যবে যেই ভাব উঠে প্রভুর অন্তর ।
+> যবে যেই ভাব উঠে প্রভুর অন্তর ।\
 > সেই গীতি-শ্লোকে সুখ দেন দামোদর ॥১১০॥
 
-> yabe yei bhāva uṭhe prabhura antara
+> yabe yei bhāva uṭhe prabhura antara\
 > sei gīti-śloke sukha dena dāmodara
 
 *yabe*—cuando; *yei*—ese; *bhāva*—sentir; *uṭhe*—surgía; *prabhura*—del Señor Caitanya Mahāprabhu; *antara*—en el corazón; *sei*—con esa; *gīti*—canción; *śloke*—o verso; *sukha*—felicidad; *dena*—daba; *dāmodara*—Svarūpa Dāmodara.

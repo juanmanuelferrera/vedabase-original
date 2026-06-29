@@ -1,11 +1,11 @@
 ### SB 3.31.11
 
-> नाथमान ऋषिर्भीतः सप्तवध्रिः कृताञ्जलिः ।
+> नाथमान ऋषिर्भीतः सप्तवध्रिः कृताञ्जलिः ।\
 > स्तुवीत तं विक्लवया वाचा येनोदरेऽर्पितः ॥११॥
 
-> nāthamāna ṛṣir bhītaḥ
-> sapta-vadhriḥ kṛtāñjaliḥ
-> stuvīta taṁ viklavayā
+> nāthamāna ṛṣir bhītaḥ\
+> sapta-vadhriḥ kṛtāñjaliḥ\
+> stuvīta taṁ viklavayā\
 > vācā yenodare 'rpitaḥ
 
 *nāthamānaḥ*—appealing; *ṛṣiḥ*—the living entity; *bhītaḥ*—frightened; *sapta-vadhriḥ*—bound by the seven layers; *kṛta-añjaliḥ*—with folded hands; *stuvīta*—prays; *tam*—to the Lord; *viklavayā*—faltering; *vācā*—with words; *yena*—by whom; *udare*—in the womb; *arpitaḥ*—he was placed.

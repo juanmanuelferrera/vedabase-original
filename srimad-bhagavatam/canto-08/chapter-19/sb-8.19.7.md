@@ -1,11 +1,11 @@
 ### SB 8.19.7
 
-> निशम्य तद्वधं भ्राता हिरण्यकशिपुः पुरा
+> निशम्य तद्वधं भ्राता हिरण्यकशिपुः पुरा\
 > हन्तुं भ्रातृहणं क्रुद्धो जगाम निलयं हरेः ॥७॥
 
-> niśamya tad-vadhaṁ bhrātā
-> hiraṇyakaśipuḥ purā
-> hantuṁ bhrātṛ-haṇaṁ kruddho
+> niśamya tad-vadhaṁ bhrātā\
+> hiraṇyakaśipuḥ purā\
+> hantuṁ bhrātṛ-haṇaṁ kruddho\
 > jagāma nilayaṁ hareḥ
 
 *niśamya*—after hearing; *tat-vadham*—the killing of Hiraṇyākṣa; *bhrātā*—the brother; *hiraṇyakaśipuḥ*—Hiraṇyakaśipu; *purā*—formerly; *hantum*—just to kill; *bhrātṛ-haṇam*—the killer of his brother; *kruddhaḥ*—very angry; *jagāma*—went; *nilayam*—to the residence; *hareḥ*—of the Supreme Personality of Godhead.

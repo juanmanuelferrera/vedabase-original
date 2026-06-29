@@ -1,9 +1,9 @@
 ### CC Madhya 11.169
 
-> হেনকালে কাশীমিশ্র, পড়িছা, — দুই জন ।
+> হেনকালে কাশীমিশ্র, পড়িছা, — দুই জন ।\
 > আসিয়া করিল প্রভুর চরণ বন্দন ॥১৬৯॥
 
-> hena-kāle kāśī-miśra, paḍichā,-dui jana
+> hena-kāle kāśī-miśra, paḍichā,-dui jana\
 > āsiyā karila prabhura caraṇa vandana
 
 *hena-kāle*—at this time; *kāśī-miśra*—Kāśī Miśra; *paḍichā*—the superintendent; *dui jana*—two persons; *āsiyā*—coming; *karila*—did; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *caraṇa vandana*—worshiping the lotus feet.

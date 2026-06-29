@@ -1,9 +1,9 @@
 ### CC Adi 10.22
 
-> প্রীত্যে করিতে চাহে প্রভুর লালন-পালন ।
+> প্রীত্যে করিতে চাহে প্রভুর লালন-পালন ।\
 > বৈরাগ্য-লোক-ভয়ে প্রভু না মানে কখন ॥২২॥
 
-> prītye karite cāhe prabhura lālana-pālana
+> prītye karite cāhe prabhura lālana-pālana\
 > vairāgya-loka-bhaye prabhu nā māne kakhana
 
 *prītye*—por intimidad o afecto; *karite*—hacer; *cāhe*—quería; *prabhura*—del Señor; *lālana-pālana*—atención y cuidado; *vairāgya*—renunciación; *loka-bhaye*—por temor a la opinión pública; *prabhu*—el Señor; *nā*—no; *māne*—aceptaba; *kakhana*—jamás.

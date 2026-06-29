@@ -1,11 +1,11 @@
 ### SB 2.6.42
 
-> आद्योऽवतारः पुरुषः परस्य कालः स्वभावः सदसन्मनश्च ।
+> आद्योऽवतारः पुरुषः परस्य कालः स्वभावः सदसन्मनश्च ।\
 > द्रव्यं विकारो गुण इन्द्रियाणि विराट्स्वराट्स्थास्नु चरिष्णु भूम्नः ॥४२॥
 
-> ādyo 'vatāraḥ puruṣaḥ parasya
-> kālaḥ svabhāvaḥ sad-asan-manaś ca
-> dravyaṁ vikāro guṇa indriyāṇi
+> ādyo 'vatāraḥ puruṣaḥ parasya\
+> kālaḥ svabhāvaḥ sad-asan-manaś ca\
+> dravyaṁ vikāro guṇa indriyāṇi\
 > virāṭ svarāṭ sthāsnu cariṣṇu bhūmnaḥ
 
 *ādyaḥ*—first; *avatāraḥ*—incarnation; *puruṣaḥ*—Kāraṇārṇavaśāyī Viṣṇu; *parasya*—of the Lord; *kālaḥ*—time; *svabhāvaḥ*—space; *sat*—result; *asat*—cause; *manaḥ*—mind; *ca*—also; *dravyam*—elements; *vikāraḥ*—material ego; *guṇaḥ*—modes of nature; *indriyāṇi*—senses; *virāṭ*—the complete whole body; *svarāṭ*—Garbhodakaśāyī Viṣṇu; *sthāsnu*—immovable; *cariṣṇu*—movable; *bhūmnaḥ*—of the Supreme Lord.

@@ -1,11 +1,11 @@
 ### SB 9.19.15
 
-> यदा न कुरुते भावं सर्वभूतेष्वमङ्गलम
+> यदा न कुरुते भावं सर्वभूतेष्वमङ्गलम\
 > समदृष्टेस्तदा पुंसः सर्वाः सुखमया दिशः ॥१५॥
 
-> yadā na kurute bhāvaṁ
-> sarva-bhūteṣv amaṅgalam
-> sama-dṛṣṭes tadā puṁsaḥ
+> yadā na kurute bhāvaṁ\
+> sarva-bhūteṣv amaṅgalam\
+> sama-dṛṣṭes tadā puṁsaḥ\
 > sarvāḥ sukhamayā diśaḥ
 
 *yadā*—when; *na*—not; *kurute*—does; *bhāvam*—a different attitude of attachment or envy; *sarva-bhūteṣu*—to all living entities; *amaṅgalam*—inauspicious; *sama-dṛṣṭeḥ*—because of being equipoised; *tadā*—at that time; *puṁsaḥ*—of the person; *sarvāḥ*—all; *sukha-mayāḥ*—in a happy condition; *diśaḥ*—directions.

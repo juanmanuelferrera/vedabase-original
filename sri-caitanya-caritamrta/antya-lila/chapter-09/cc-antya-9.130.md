@@ -1,9 +1,9 @@
 ### CC Antya 9.130
 
-> “তোমার কিঙ্কর এই সব মোর কুল ।
+> “তোমার কিঙ্কর এই সব মোর কুল ।\
 > এ বিপদে রাখি’ প্রভু, পুনঃ নিলা মূল ॥১৩০॥
 
-> "tomāra kiṅkara ei saba mora kula
+> "tomāra kiṅkara ei saba mora kula\
 > e vipade rākhi' prabhu, punaḥ nilā mūla
 
 *tomāra kiṅkara*—your servants; *ei saba*—all these; *mora kula*—my family; *e vipade*—in this great danger; *rākhi'*—by saving; *prabhu*—my Lord; *punaḥ*—again; *nilā mūla*—have purchased.

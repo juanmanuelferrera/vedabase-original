@@ -1,11 +1,11 @@
 ### SB 3.21.17
 
-> लोकांश्च लोकानुगतान्पशूंश्च हित्वा श्रितास्ते चरणातपत्रम् ।
+> लोकांश्च लोकानुगतान्पशूंश्च हित्वा श्रितास्ते चरणातपत्रम् ।\
 > परस्परं त्वद्गुणवादसीधु पीयूषनिर्यापितदेहधर्माः ॥१७॥
 
-> lokāṁś ca lokānugatān paśūṁś ca
-> hitvā śritās te caraṇātapatram
-> parasparaṁ tvad-guṇa-vāda-sīdhu-
+> lokāṁś ca lokānugatān paśūṁś ca\
+> hitvā śritās te caraṇātapatram\
+> parasparaṁ tvad-guṇa-vāda-sīdhu-\
 > pīyūṣa-niryāpita-deha-dharmāḥ
 
 *lokān*—worldly affairs; *ca*—and; *loka-anugatān*—the followers of worldly affairs; *paśūn*—beastly; *ca*—and; *hitvā*—having given up; *śritāḥ*—taken shelter; *te*—Your; *caraṇa*—of lotus feet; *ātapatram*—the umbrella; *parasparam*—with one another; *tvat*—Your; *guṇa*—of qualities; *vāda*—by discussion; *sīdhu*—intoxicating; *pīyūṣa*—by the nectar; *niryāpita*—extinguished; *deha-dharmāḥ*—the primary necessities of the body.

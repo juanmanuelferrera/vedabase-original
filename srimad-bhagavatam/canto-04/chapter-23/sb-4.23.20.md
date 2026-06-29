@@ -1,11 +1,11 @@
 ### SB 4.23.20
 
-> अतीव भर्तुर्व्रतधर्मनिष्ठया शुश्रूषया चार्षदेहयात्रया ।
+> अतीव भर्तुर्व्रतधर्मनिष्ठया शुश्रूषया चार्षदेहयात्रया ।\
 > नाविन्दतार्तिं परिकर्शितापि सा प्रेयस्करस्पर्शनमाननिर्वृतिः ॥२०॥
 
-> atīva bhartur vrata-dharma-niṣṭhayā
-> śuśrūṣayā cārṣa-deha-yātrayā
-> nāvindatārtiṁ parikarśitāpi sā
+> atīva bhartur vrata-dharma-niṣṭhayā\
+> śuśrūṣayā cārṣa-deha-yātrayā\
+> nāvindatārtiṁ parikarśitāpi sā\
 > preyaskara-sparśana-māna-nirvṛtiḥ
 
 *atīva*—very much; *bhartuḥ*—of the husband; *vrata-dharma*—vow to serve him; *niṣṭhayā*—by determination; *śuśrūṣayā*—by serving; *ca*—also; *ārṣa*—like the great saintly sages; *deha*—body; *yātrayā*—living condition; *na*—did not; *avindata*—perceive; *ārtim*—any difficulty; *parikarśitā api*—although transformed to become lean and thin; *sā*—she; *preyaḥ-kara*—very pleasing; *sparśana*—touching; *māna*—engaged; *nirvṛtiḥ*—pleasure.

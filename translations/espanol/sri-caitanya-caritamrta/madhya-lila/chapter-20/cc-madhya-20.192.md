@@ -1,9 +1,9 @@
 ### CC Madhya 20.192
 
-> পুনঃ কৃষ্ণ চতুর্ব্যূহ লঞা পূর্বরূপে ৷
+> পুনঃ কৃষ্ণ চতুর্ব্যূহ লঞা পূর্বরূপে ৷\
 > পরব্যোম-মধ্যে বৈসে নারায়ণরূপে ॥১৯২॥
 
-> punaḥ kṛṣṇa catur-vyūha lañā pūrva-rūpe
+> punaḥ kṛṣṇa catur-vyūha lañā pūrva-rūpe\
 > paravyoma-madhye vaise nārāyaṇa-rūpe
 
 *punaḥ*—de nuevo; *kṛṣṇa*—Kṛṣṇa; *catuḥ-vyūha*—las expansiones cuádruples; *lañā*—tomando; *pūrva-rūpe*—como anteriormente; *paravyoma-madhye*—en la región del paravyoma; *vaise*—reside; *nārāyaṇa-rūpe*—en la forma de Nārāyaṇa de cuatro brazos.

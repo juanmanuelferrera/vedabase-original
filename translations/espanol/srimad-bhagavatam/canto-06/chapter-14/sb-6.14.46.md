@@ -1,11 +1,11 @@
 ### SB 6.14.46
 
-> सा शयानमुपव्रज्य दृष्ट्वा चोत्तारलोचनम
+> सा शयानमुपव्रज्य दृष्ट्वा चोत्तारलोचनम\
 > प्राणेन्द्रियात्मभिस्त्यक्तं हतास्मीत्यपतद्भुवि ॥४६॥
 
-> sā śayānam upavrajya
-> dṛṣṭvā cottāra-locanam
-> prāṇendriyātmabhis tyaktaṁ
+> sā śayānam upavrajya\
+> dṛṣṭvā cottāra-locanam\
+> prāṇendriyātmabhis tyaktaṁ\
 > hatāsmīty apatad bhuvi
 
 *sā*—ella (la sirvienta); *śayānam*—acostado; *upavrajya*—ir a; *dṛṣṭvā*—ver; *ca*—también; *uttāra-locanam*—con los ojos en blanco (como los cadáveres); *prāṇa-indriya-ātmabhiḥ*—por el aire vital, los sentidos y la mente; *tyaktam*—abandonado; *hatā asmi*—¡ahora estoy perdida!; *iti*—así; *apatat*—cayó; *bhuvi*—al suelo.

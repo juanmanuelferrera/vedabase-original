@@ -1,11 +1,11 @@
 ### SB 4.8.16
 
-> सोत्सृज्य धैर्यं विललाप शोक दावाग्निना दावलतेव बाला ।
+> सोत्सृज्य धैर्यं विललाप शोक दावाग्निना दावलतेव बाला ।\
 > वाक्यं सपत्न्याः स्मरती सरोज श्रिया दृशा बाष्पकलामुवाह ॥१६॥
 
-> sotsṛjya dhairyaṁ vilalāpa śoka-
-> dāvāgninā dāva-lateva bālā
-> vākyaṁ sapatnyāḥ smaratī saroja-
+> sotsṛjya dhairyaṁ vilalāpa śoka-\
+> dāvāgninā dāva-lateva bālā\
+> vākyaṁ sapatnyāḥ smaratī saroja-\
 > śriyā dṛśā bāṣpa-kalām uvāha
 
 *sā*—ella; *utsṛjya*—abandonando; *dhairyam*—paciencia; *vilalāpa*—se lamentó; *śoka-dāva-agninā*—por el fuego del dolor; *dāva-latā iva*—como hojas quemadas; *bālā*—la mujer; *vākyam*—las palabras; *sa-patnyāḥ*—habladas por su coesposa; *smaratī*—recordar; *saroja-śriyā*—un rostro tan hermoso como el loto; *dṛśā*—por mirar; *bāṣpa-kalām*—sollozando; *uvāha*—dijo.

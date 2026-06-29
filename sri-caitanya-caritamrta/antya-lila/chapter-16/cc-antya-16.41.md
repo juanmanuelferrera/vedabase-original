@@ -1,9 +1,9 @@
 ### CC Antya 16.41
 
-> সিংহদ্বারের উত্তরদিকে কপাটের আড়ে ।
+> সিংহদ্বারের উত্তরদিকে কপাটের আড়ে ।\
 > বাইশ ‘পাহাচ’-তলে আছে এক নিম্ন গাড়ে ॥৪১॥
 
-> siṁha-dvārera uttara-dike kapāṭera āḍe
+> siṁha-dvārera uttara-dike kapāṭera āḍe\
 > bāiśa 'pāhāca'-tale āche eka nimna gāḍe
 
 *siṁha-dvārera*—of the Siṁha-dvāra; *uttara-dike*—on the northern side; *kapāṭera āḍe*—behind the door; *bāiśa 'pāhāca'*—of the twenty-two steps; *tale*—at the bottom; *āche*—there is; *eka*—one; *nimna*—low; *gāḍe*—ditch.

@@ -1,11 +1,11 @@
 ### SB 4.24.10
 
-> यस्येदं देवयजनमनुयज्ञं वितन्वतः ।
+> यस्येदं देवयजनमनुयज्ञं वितन्वतः ।\
 > प्राचीनाग्रैः कुशैरासीदास्तृतं वसुधातलम् ॥१०॥
 
-> yasyedaṁ deva-yajanam
-> anuyajñaṁ vitanvataḥ
-> prācīnāgraiḥ kuśair āsīd
+> yasyedaṁ deva-yajanam\
+> anuyajñaṁ vitanvataḥ\
+> prācīnāgraiḥ kuśair āsīd\
 > āstṛtaṁ vasudhā-talam
 
 *yasya*—whose; *idam*—this; *deva-yajanam*—satisfying the demigods by sacrifices; *anuyajñam*—continually sacrificing; *vitanvataḥ*—executing; *prācīna-agraiḥ*—keeping the *kuśa* grass facing toward the eastern side; *kuśaiḥ*—the *kuśa* grass; *āsīt*—remained; *āstṛtam*—scattered; *vasudhā-talam*—all over the surface of the globe.

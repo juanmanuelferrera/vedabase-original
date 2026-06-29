@@ -1,13 +1,13 @@
 ### SB 1.9.43
 
-> सूत उवाच
-> कृष्ण एवं भगवति मनोवाग्दृष्टिवृत्तिभिः ।
+> सूत उवाच\
+> कृष्ण एवं भगवति मनोवाग्दृष्टिवृत्तिभिः ।\
 > आत्मन्यात्मानमावेश्य सोऽन्तःश्वास उपारमत् ॥४३॥
 
-> sūta uvāca
-> kṛṣṇa evaṁ bhagavati
-> mano-vāg-dṛṣṭi-vṛttibhiḥ
-> ātmany ātmānam āveśya
+> sūta uvāca\
+> kṛṣṇa evaṁ bhagavati\
+> mano-vāg-dṛṣṭi-vṛttibhiḥ\
+> ātmany ātmānam āveśya\
 > so 'ntaḥśvāsa upāramat
 
 *sūtaḥ uvāca*—Sūta Gosvāmī said; *kṛṣṇe*—Lord Kṛṣṇa, the Supreme Personality of Godhead; *evam*—only; *bhagavati*—unto Him; *manaḥ*—with mind; *vāk*—speech; *dṛṣṭi*—sight; *vṛttibhiḥ*—activities; *ātmani*—unto the Supersoul; *ātmānam*—the living being; *āveśya*—having merged in; *saḥ*—he; *antaḥ-śvāsaḥ*—inhaling; *upāramat*—became silent.

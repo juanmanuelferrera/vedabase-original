@@ -1,9 +1,9 @@
 ### CC Antya 12.138
 
-> কিছু বলিতে নারেন প্রভু, খায়েন তরাসে ।
+> কিছু বলিতে নারেন প্রভু, খায়েন তরাসে ।\
 > না খাইলে জগদানন্দ করিবে উপবাসে ॥১৩৮॥
 
-> kichu balite nārena prabhu, khāyena tarāse
+> kichu balite nārena prabhu, khāyena tarāse\
 > nā khāile jagadānanda karibe upavāse
 
 *kichu*—nada; *balite nārena*—no podía decir; *prabhu*—Śrī Caitanya Mahāprabhu; *khāyena*—come; *tarāse*—por temor; *nā khāile*—si no comía; *jagadānanda*—Jagadānanda Paṇḍita; *karibe upavāse*—ayunaría.

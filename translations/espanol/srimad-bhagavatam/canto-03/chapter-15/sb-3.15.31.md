@@ -1,13 +1,13 @@
 ### SB 3.15.31
 
-> ताभ्यां मिषत्स्वनिमिषेषु निषिध्यमानाः
-> स्वर्हत्तमा ह्यपि हरेः प्रतिहारपाभ्याम् ।
-> ऊचुः सुहृत्तमदिदृक्षितभङ्ग ईषत्
+> ताभ्यां मिषत्स्वनिमिषेषु निषिध्यमानाः\
+> स्वर्हत्तमा ह्यपि हरेः प्रतिहारपाभ्याम् ।\
+> ऊचुः सुहृत्तमदिदृक्षितभङ्ग ईषत्\
 > कामानुजेन सहसा त उपप्लुताक्षाः ॥३१॥
 
-> tābhyāṁ miṣatsv animiṣeṣu niṣidhyamānāḥ
-> svarhattamā hy api hareḥ pratihāra-pābhyām
-> ūcuḥ suhṛttama-didṛkṣita-bhaṅga īṣat
+> tābhyāṁ miṣatsv animiṣeṣu niṣidhyamānāḥ\
+> svarhattamā hy api hareḥ pratihāra-pābhyām\
+> ūcuḥ suhṛttama-didṛkṣita-bhaṅga īṣat\
 > kāmānujena sahasā ta upaplutākṣāḥ
 
 *tābhyām*—por aquellos dos porteros; *miṣatsu*—mientras miraban; *animiṣeṣu*—semidioses que vivían en Vaikuṇṭha; *niṣidhyamānāḥ*—prohibiéndoseles; *su-arhattamāḥ*—las personas que, con mucho, eran las más aptas; *hi api*—aunque; *hareḥ*—de Hari, la Suprema Personalidad de Dios; *pratihāra-pābhyām*—por los dos porteros; *ūcuḥ*—dijeron; *suhṛt-tama*—más querido; *didṛkṣita*—gran deseo por ver; *bhaṅge*—impedimento; *īṣat*—leve; *kāma-anujena*—por el hermano menor de la lujuria (ira); *sahasā*—de súbito; *te*—aquellos grandes sabios; *upapluta*—excitados; *akṣāḥ*—ojos.

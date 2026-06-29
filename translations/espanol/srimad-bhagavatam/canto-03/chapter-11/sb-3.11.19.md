@@ -1,11 +1,11 @@
 ### SB 3.11.19
 
-> चत्वारि त्रीणि द्वे चैकं कृतादिषु यथाक्रमम् ।
+> चत्वारि त्रीणि द्वे चैकं कृतादिषु यथाक्रमम् ।\
 > सङ्ख्यातानि सहस्राणि द्विगुणानि शतानि च ॥१९॥
 
-> catvāri trīṇi dve caikaṁ
-> kṛtādiṣu yathā-kramam
-> saṅkhyātāni sahasrāṇi
+> catvāri trīṇi dve caikaṁ\
+> kṛtādiṣu yathā-kramam\
+> saṅkhyātāni sahasrāṇi\
 > dvi-guṇāni śatāni ca
 
 *catvāri*—cuatro; *trīṇi*—tres; *dve*—dos; *ca*—también; *ekam*—uno; *kṛta-ādiṣu*—en la era de Satya; *yathā-kramam*—y otras siguientes; *saṅkhyātāni*—haciendo un total de; *sahasrāṇi*—miles; *dvi-guṇāni*—dos veces; *śatāni*—cientos; *ca*—también.

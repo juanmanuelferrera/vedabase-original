@@ -1,9 +1,9 @@
 ### CC Adi 6.28
 
-> জীব নিস্তারিল কৃষ্ণভক্তি করি’ দান ।
+> জীব নিস্তারিল কৃষ্ণভক্তি করি’ দান ।\
 > গীতা-ভাগবতে কৈল ভক্তির ব্যাখ্যান ॥২৮॥
 
-> jīva nistārila kṛṣṇa-bhakti kari' dāna
+> jīva nistārila kṛṣṇa-bhakti kari' dāna\
 > gītā-bhāgavate kaila bhaktira vyākhyāna
 
 *jīva*—the living entities; *nistārila*—delivered; *kṛṣṇa-bhakti*—devotional service to Lord Kṛṣṇa; *kari'*—making; *dāna*—gift; *gītā-bhāgavate*—in the *Bhagavad-gītā* and *Śrīmad-Bhāgavatam*; *kaila*—performed; *bhaktira vyākhyāna*—explanation of devotional service.

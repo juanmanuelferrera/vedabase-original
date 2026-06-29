@@ -1,25 +1,25 @@
 ### SB 4.29.23-25
 
-> आधयो व्याधयस्तस्य सैनिका यवनाश्चराः ।
-> भूतोपसर्गाशुरयः प्रज्वारो द्विविधो ज्वरः ॥२३॥
-> एवं बहुविधैर्दुःखैर्दैवभूतात्मसम्भवैः ।
-> क्लिश्यमानः शतं वर्षं देहे देही तमोवृतः ॥२४॥
-> प्राणेन्द्रियमनोधर्मानात्मन्यध्यस्य निर्गुणः ।
+> आधयो व्याधयस्तस्य सैनिका यवनाश्चराः ।\
+> भूतोपसर्गाशुरयः प्रज्वारो द्विविधो ज्वरः ॥२३॥\
+> एवं बहुविधैर्दुःखैर्दैवभूतात्मसम्भवैः ।\
+> क्लिश्यमानः शतं वर्षं देहे देही तमोवृतः ॥२४॥\
+> प्राणेन्द्रियमनोधर्मानात्मन्यध्यस्य निर्गुणः ।\
 > शेते कामलवान्ध्यायन्ममाहमिति कर्मकृत् ॥२५॥
 
-> ādhayo vyādhayas tasya
-> sainikā yavanāś carāḥ
-> bhūtopasargāśu-rayaḥ
+> ādhayo vyādhayas tasya\
+> sainikā yavanāś carāḥ\
+> bhūtopasargāśu-rayaḥ\
 > prajvāro dvi-vidho jvaraḥ
 
-> evaṁ bahu-vidhair duḥkhair
-> daiva-bhūtātma-sambhavaiḥ
-> kliśyamānaḥ śataṁ varṣaṁ
+> evaṁ bahu-vidhair duḥkhair\
+> daiva-bhūtātma-sambhavaiḥ\
+> kliśyamānaḥ śataṁ varṣaṁ\
 > dehe dehī tamo-vṛtaḥ
 
-> prāṇendriya-mano-dharmān
-> ātmany adhyasya nirguṇaḥ
-> śete kāma-lavān dhyāyan
+> prāṇendriya-mano-dharmān\
+> ātmany adhyasya nirguṇaḥ\
+> śete kāma-lavān dhyāyan\
 > mamāham iti karma-kṛt
 
 *ādhayaḥ*—disturbances of the mind; *vyādhayaḥ*—disturbances of the body, or diseases; *tasya*—of Yavaneśvara; *sainikāḥ*—soldiers; *yavanāḥ*—Yavanas; *carāḥ*—followers; *bhūta*—of living entities; *upasarga*—at the time of distress; *āśu*—very soon; *rayaḥ*—very powerful; *prajvāraḥ*—named Prajvāra; *dvi-vidhaḥ*—two kinds; *jvaraḥ*—fever; *evam*—thus; *bahu-vidhaiḥ*—of different varieties; *duḥkhaiḥ*—by tribulations; *daiva*—by providence; *bhūta*—by other living entities; *ātma*—by the body and mind; *sambhavaiḥ*—produced; *kliśyamānaḥ*—subjected to sufferings; *śatam*—hundred; *varṣam*—years; *dehe*—in the body; *dehī*—the living entity; *tamaḥ-vṛtaḥ*—covered by material existence; *prāṇa*—of life; *indriya*—of the senses; *manaḥ*—of the mind; *dharmān*—characteristics; *ātmani*—unto the soul; *adhyasya*—wrongly attributing; *nirguṇaḥ*—although transcendental; *śete*—lies down; *kāma*—of sense enjoyment; *lavān*—on fragments; *dhyāyan*—meditating; *mama*—mine; *aham*—I; *iti*—thus; *karma-kṛt*—the actor.

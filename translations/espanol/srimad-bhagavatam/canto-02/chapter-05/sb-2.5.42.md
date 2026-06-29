@@ -1,11 +1,11 @@
 ### SB 2.5.42
 
-> भूर्लोकः कल्पितः पद्भ्यां भुवर्लोकोऽस्य नाभितः ।
+> भूर्लोकः कल्पितः पद्भ्यां भुवर्लोकोऽस्य नाभितः ।\
 > स्वर्लोकः कल्पितो मूर्ध्ना इति वा लोककल्पना ॥४२॥
 
-> bhūrlokaḥ kalpitaḥ padbhyāṁ
-> bhuvarloko 'sya nābhitaḥ
-> svarlokaḥ kalpito mūrdhnā
+> bhūrlokaḥ kalpitaḥ padbhyāṁ\
+> bhuvarloko 'sya nābhitaḥ\
+> svarlokaḥ kalpito mūrdhnā\
 > iti vā loka-kalpanā
 
 *bhūrlokaḥ*—todo el sistema planetario, desde Pātāla hasta el sistema planetario terrestre; *kalpitaḥ*—imaginado; *padbhyām*—que se encuentra en las piernas; *bhuvarlokaḥ*—el sistema planetario Bhuvarloka; *asya*—de la forma universal del Señor; *nābhitaḥ*—de la región unbilicoabdominal; *svarlokaḥ*—el sistema planetario superior que comienza con los planetas celestiales; *kalpitaḥ*—imaginado; *mūrdhnā*—desde el pecho hasta la cabeza; *iti*—así; *vā*—o; *loka*—los sistemas planetarios; *kalpanā*—imaginación.

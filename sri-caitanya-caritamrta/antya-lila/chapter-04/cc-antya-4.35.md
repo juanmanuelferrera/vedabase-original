@@ -1,9 +1,9 @@
 ### CC Antya 4.35
 
-> কৃষ্ণভজন কর তুমি আমা-দুহাঁর সঙ্গে  ।
+> কৃষ্ণভজন কর তুমি আমা-দুহাঁর সঙ্গে  ।\
 > তিন ভাই একত্র রহিমু কৃষ্ণকথা-রঙ্গে ।।” ৩৫ ॥৩৫॥
 
-> kṛṣṇa-bhajana kara tumi āmā-duṅhāra saṅge
+> kṛṣṇa-bhajana kara tumi āmā-duṅhāra saṅge\
 > tina bhāi ekatra rahimu kṛṣṇa-kathā-raṅge"
 
 *kṛṣṇa-bhajana*—devotional service to Lord Kṛṣṇa; *kara*—engage in; *tumi*—you; *āmā-duṅhāra*—the two of us; *saṅge*—with; *tina bhāi*—three brothers; *ekatra*—in one place; *rahimu*—we shall stay; *kṛṣṇa-kathā*—of the pastimes of Lord Kṛṣṇa; *raṅge*—in enjoyment.

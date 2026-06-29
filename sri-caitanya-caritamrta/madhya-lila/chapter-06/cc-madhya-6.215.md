@@ -1,9 +1,9 @@
 ### CC Madhya 6.215
 
-> স্তুতি শুনি’ মহাপ্রভু নিজ বাসা আইলা ।
+> স্তুতি শুনি’ মহাপ্রভু নিজ বাসা আইলা ।\
 > ভট্টাচার্য আচার্য-দ্বারে ভিক্ষা করাইলা ॥২১৫॥
 
-> stuti śuni' mahāprabhu nija vāsā āilā
+> stuti śuni' mahāprabhu nija vāsā āilā\
 > bhaṭṭācārya ācārya-dvāre bhikṣā karāilā
 
 *stuti śuni'*—after hearing the prayers; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *nija*—own; *vāsā*—to the residence; *āilā*—returned; *bhaṭṭācārya*—Sārvabhauma Bhaṭṭācārya; *ācārya-dvāre*—through Gopīnātha Ācārya; *bhikṣā*—luncheon; *karāilā*—induced to take.

@@ -1,11 +1,11 @@
 ### CC Madhya 25.133
 
-> ভগবানেক আসেদমগ্র আত্মাত্মনাং বিভুঃ ।
+> ভগবানেক আসেদমগ্র আত্মাত্মনাং বিভুঃ ।\
 > আত্মেচ্ছানুগতাবাত্মা অনানামত্যুপলক্ষণঃ ॥১৩৩॥
 
-> bhagavān eka āsedam
-> agra ātmātmanāṁ vibhuḥ
-> ātmecchānugatāv ātmā
+> bhagavān eka āsedam\
+> agra ātmātmanāṁ vibhuḥ\
+> ātmecchānugatāv ātmā\
 > anānāmaty-upalakṣaṇaḥ
 
 *bhagavān*—the Supreme Personality of Godhead; *ekaḥ*—only; *āsa*—was; *idam*—this universe; *agre*—before (before the creation of this cosmic manifestation); *ātmā*—the living force; *ātmanām*—of all the living entities; *vibhuḥ*—the Supreme Lord; *ātma*—of the Supreme; *icchā*—the will; *anugatau*—according to; *ātmā*—the Supersoul; *anānāmati-upalakṣaṇaḥ*—who is not realized by persons having many angles of vision.

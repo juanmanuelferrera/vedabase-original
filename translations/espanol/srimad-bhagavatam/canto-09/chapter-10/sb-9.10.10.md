@@ -1,13 +1,13 @@
 ### SB 9.10.10
 
-> सीताकथाश्रवणदीपितहृच्छयेन
-> सृष्टं विलोक्य नृपते दशकन्धरेण
-> जघ्नेऽद्भुतैणवपुषाश्रमतोऽपकृष्टो
+> सीताकथाश्रवणदीपितहृच्छयेन\
+> सृष्टं विलोक्य नृपते दशकन्धरेण\
+> जघ्नेऽद्भुतैणवपुषाश्रमतोऽपकृष्टो\
 > मारीचमाशु विशिखेन यथा कमुग्रः ॥१०॥
 
-> sītā-kathā-śravaṇa-dīpita-hṛc-chayena
-> sṛṣṭaṁ vilokya nṛpate daśa-kandhareṇa
-> jaghne 'dbhutaiṇa-vapuṣāśramato 'pakṛṣṭo
+> sītā-kathā-śravaṇa-dīpita-hṛc-chayena\
+> sṛṣṭaṁ vilokya nṛpate daśa-kandhareṇa\
+> jaghne 'dbhutaiṇa-vapuṣāśramato 'pakṛṣṭo\
 > mārīcam āśu viśikhena yathā kam ugraḥ
 
 *sītā-kathā*—temas relacionados con Sītādevī; *śravaṇa*—por escuchar; *dīpita*—agitado; *hṛt-śayena*—deseos lujuriosos en la mente de Rāvaṇa; *sṛṣṭam*—creado; *vilokya*—al ver aquel; *nṛpate*—¡oh, rey Parīkṣit!; *daśa-kandhareṇa*—por Rāvaṇa, que tenía diez cabezas; *jaghne*—el Señor mató; *adbhuta-eṇa-vapuṣā*—por un ciervo hecho de oro; *āśramataḥ*—de Su *āśrama*; *apakṛṣṭaḥ*—alejado una cierta distancia; *mārīcam*—al demonio Mārīca, que había adoptado la forma de un ciervo; *āśu*—inmediatamente; *viśikhena*—con una flecha afilada; *yathā*—como; *kam*—a Dakṣa; *ugraḥ*—el Señor Śiva.

@@ -1,9 +1,9 @@
 ### CC Adi 3.40
 
-> কলিযুগে যুগধর্ম — নামের প্রচার ।
+> কলিযুগে যুগধর্ম — নামের প্রচার ।\
 > তথি লাগি’ পীতবর্ণ চৈতন্যাবতার ॥৪০॥
 
-> kali-yuge yuga-dharma—nāmera pracāra
+> kali-yuge yuga-dharma—nāmera pracāra\
 > tathi lāgi' pīta-varṇa caitanyāvatāra
 
 *kali-yuge*—in the Age of Kali; *yuga-dharma*—the religious practice for the age; *nāmera*—of the holy name; *pracāra*—propagation; *tathi*—this; *lāgi'*—for; *pīta-varṇa*—having a yellow color; *caitanya-avatāra*—the incarnation of Lord Caitanya.

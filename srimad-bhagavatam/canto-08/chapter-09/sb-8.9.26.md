@@ -1,11 +1,11 @@
 ### SB 8.9.26
 
-> शिरस्त्वमरतां नीतमजो ग्रहमचीकॢपत
+> शिरस्त्वमरतां नीतमजो ग्रहमचीकॢपत\
 > यस्तु पर्वणि चन्द्रार्कावभिधावति वैरधीः ॥२६॥
 
-> śiras tv amaratāṁ nītam
-> ajo graham acīkḷpat
-> yas tu parvaṇi candrārkāv
+> śiras tv amaratāṁ nītam\
+> ajo graham acīkḷpat\
+> yas tu parvaṇi candrārkāv\
 > abhidhāvati vaira-dhīḥ
 
 *śiraḥ*—the head; *tu*—of course; *amaratām*—immortality; *nītam*—having obtained; *ajaḥ*—Lord Brahmā; *graham*—as one of the planets; *acīkḷpat*—recognized; *yaḥ*—the same Rāhu; *tu*—indeed; *parvaṇi*—during the periods of the full moon and dark moon; *candra-arkau*—both the moon and the sun; *abhidhāvati*—chases; *vaira-dhīḥ*—because of animosity.

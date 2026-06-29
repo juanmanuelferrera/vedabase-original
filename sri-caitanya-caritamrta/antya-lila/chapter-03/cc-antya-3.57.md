@@ -1,9 +1,9 @@
 ### CC Antya 3.57
 
-> অজামিল পুত্রে বোলায় বলি ‘নারায়ণ’ ।
+> অজামিল পুত্রে বোলায় বলি ‘নারায়ণ’ ।\
 > বিষ্ণুদূত আসি’ ছাড়ায় তাহার বন্ধন ॥৫৭॥
 
-> ajāmila putre bolāya bali 'nārāyaṇa'
+> ajāmila putre bolāya bali 'nārāyaṇa'\
 > viṣṇu-dūta āsi' chāḍāya tāhāra bandhana
 
 *ajāmila*—Ajāmila; *putre*—unto his son; *bolāya*—calls; *bali*—saying; *nārāyaṇa*—the holy name of Nārāyaṇa; *viṣṇu-dūta*—the attendants of Lord Viṣṇu; *āsi*—coming; *chāḍāya*—remove; *tāhāra*—of him; *bandhana*—the bonds.

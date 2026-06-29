@@ -1,9 +1,9 @@
 ### CC Antya 8.11
 
-> জগন্নাথের প্রসাদ আনিলা ভিক্ষার লাগিয়া ।
+> জগন্নাথের প্রসাদ আনিলা ভিক্ষার লাগিয়া ।\
 > যথেষ্ট ভিক্ষা করিলা তেঁহো নিন্দার লাগিয়া ॥১১॥
 
-> jagannāthera prasāda ānilā bhikṣāra lāgiyā
+> jagannāthera prasāda ānilā bhikṣāra lāgiyā\
 > yatheṣṭa bhikṣā karilā teṅho nindāra lāgiyā
 
 *jagannāthera prasāda*—remanentes del alimento del Señor Jagannātha; *ānilā*—trajo; *bhikṣāra lāgiyā*—para alimentar; *yatheṣṭa bhikṣā karilā*—comió suntuosamente; *teṅho*—él; *nindāra lāgiyā*—para encontrar algún defecto.

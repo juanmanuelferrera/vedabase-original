@@ -1,9 +1,9 @@
 ### CC Madhya 16.251
 
-> সেই সব লোক পথে করেন সেবন ৷
+> সেই সব লোক পথে করেন সেবন ৷\
 > সুখে নীলাচল আইলা শচীর নন্দন ॥২৫১॥
 
-> sei saba loka pathe karena sevana
+> sei saba loka pathe karena sevana\
 > sukhe nīlācala āilā śacīra nandana
 
 *sei saba loka*—todas esas personas; *pathe*—en el camino; *karena sevana*—prestaron todo tipo de servicio; *sukhe*—con gran felicidad; *nīlācala*—a Jagannātha Purī; *āilā*—volvió; *śacīra nandana*—el hijo de madre Śacī.

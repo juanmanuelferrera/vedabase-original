@@ -1,9 +1,9 @@
 ### CC Madhya 19.65
 
-> তবে ভট্ট মহাপ্রভুরে নিমন্ত্রণ কৈলা ।
+> তবে ভট্ট মহাপ্রভুরে নিমন্ত্রণ কৈলা ।\
 > মহাপ্রভু দুইভাই তাঁহারে মিলাইলা ॥৬৫॥
 
-> tabe bhaṭṭa mahāprabhure nimantraṇa kaila
+> tabe bhaṭṭa mahāprabhure nimantraṇa kaila\
 > mahāprabhu dui-bhāi tāṅhāre milāilā
 
 *tabe*—entonces; *bhaṭṭa*—Vallabha Bhaṭṭa; *mahāprabhure*—Śrī Caitanya Mahāprabhu; *nimantraṇa kailā*—invitó; *mahāprabhu*—Śrī Caitanya.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.67
 
-> প্রভু বলে — বৈস তিনে করিয়ে ভোজন ।
+> প্রভু বলে — বৈস তিনে করিয়ে ভোজন ।\
 > আচার্য কহে — আমি করিব পরিবেশন ॥৬৭॥
 
-> prabhu bale—vaisa tine kariye bhojana
+> prabhu bale—vaisa tine kariye bhojana\
 > ācārya kahe—āmi kariba pariveśana
 
 *prabhubale*—Lord Caitanya Mahāprabhu said; *vaisa*—sit down; *tine*—in the three places; *kariye*—do; *bhojana*—eating; *ācārya kahe*—Advaita Ācārya replied; *āmi kariba pariveśana*—I shall distribute.

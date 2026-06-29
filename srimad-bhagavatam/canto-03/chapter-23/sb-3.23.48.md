@@ -1,11 +1,11 @@
 ### SB 3.23.48
 
-> अतः सा सुषुवे सद्यो देवहूतिः स्त्रियः प्रजाः ।
+> अतः सा सुषुवे सद्यो देवहूतिः स्त्रियः प्रजाः ।\
 > सर्वास्ताश्चारुसर्वाङ्ग्यो लोहितोत्पलगन्धयः ॥४८॥
 
-> ataḥ sā suṣuve sadyo
-> devahūtiḥ striyaḥ prajāḥ
-> sarvās tāś cāru-sarvāṅgyo
+> ataḥ sā suṣuve sadyo\
+> devahūtiḥ striyaḥ prajāḥ\
+> sarvās tāś cāru-sarvāṅgyo\
 > lohitotpala-gandhayaḥ
 
 *ataḥ*—then; *sā*—she; *suṣuve*—gave birth; *sadyaḥ*—on the same day; *devahūtiḥ*—Devahūti; *striyaḥ*—females; *prajāḥ*—progeny; *sarvāḥ*—all; *tāḥ*—they; *cāru-sarva-aṅgyaḥ*—charming in every limb; *lohita*—red; *utpala*—like the lotus; *gandhayaḥ*—fragrant.

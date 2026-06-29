@@ -1,9 +1,9 @@
 ### CC Madhya 25.173
 
-> বারাণসী-গ্রামে যদি কোলাহল হৈল ৷
+> বারাণসী-গ্রামে যদি কোলাহল হৈল ৷\
 > শুনি’ গ্রামী দেশী লোক আসিতে লাগিল ৷৷ ১৭৩ ৷৷ ॥১৭৩॥
 
-> vārāṇasī-grāme yadi kolāhala haila
+> vārāṇasī-grāme yadi kolāhala haila\
 > śuni' grāmī deśī loka āsite lāgila
 
 *vārāṇasī-grāme*—en la ciudad de Vārāṇasī; *yadi*—cuando; *kolāhala haila*—se difundió la noticia; *śuni'*—al oír; *grāmī*—de las aldeas; *deśī*—de los pueblos; *loka āsite lāgila*—la gente comenzó a acudir en tropel.

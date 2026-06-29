@@ -1,9 +1,9 @@
 ### CC Madhya 17.22
 
-> প্রাতঃকালে ভক্তগণ প্রভু না দেখিয়া ।
+> প্রাতঃকালে ভক্তগণ প্রভু না দেখিয়া ।\
 > অন্বেষণ করি’ ফিরে ব্যাকুল হঞা ॥২২॥
 
-> prātaḥ-kāle bhakta-gaṇa prabhu nā dekhiyā
+> prātaḥ-kāle bhakta-gaṇa prabhu nā dekhiyā\
 > anveṣaṇa kari' phire vyākula hañā
 
 *prātaḥ-kāle*—early in the morning; *bhakta-gaṇa*—all the devotees; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *nā dekhiyā*—not seeing; *anveṣaṇa kari'*—searching; *phire*—wander; *vyākula hañā*—becoming very anxious.

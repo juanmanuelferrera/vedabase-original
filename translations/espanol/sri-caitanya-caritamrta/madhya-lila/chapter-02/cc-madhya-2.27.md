@@ -1,13 +1,13 @@
 ### CC Madhya 2.27
 
-> এতেক বিলাপ করি’, বিষাদে শ্রীগৌরহরি,
-> উঘাড়িয়া দুঃখের কপাট ।
-> ভাবের তরঙ্গ-বলে, নানারূপে মন চলে,
+> এতেক বিলাপ করি’, বিষাদে শ্রীগৌরহরি,\
+> উঘাড়িয়া দুঃখের কপাট ।\
+> ভাবের তরঙ্গ-বলে, নানারূপে মন চলে,\
 > আর এক শ্লোক কৈল পাঠ ॥২৭॥
 
-> eteka vilāpa kari', viṣāde śrī-gaurahari,
-> ughāḍiyā duḥkhera kapāṭa
-> bhāvera taraṅga-bale, nānā-rūpe mana cale,
+> eteka vilāpa kari', viṣāde śrī-gaurahari,\
+> ughāḍiyā duḥkhera kapāṭa\
+> bhāvera taraṅga-bale, nānā-rūpe mana cale,\
 > āra eka śloka kaila pāṭha
 
 *eteka*—de esta manera; *vilāpa*—lamentación; *kari'*—haciendo; *viṣāde*—en la tristeza; *śrī-gaurahari*—el Señor Śrī Caitanya Mahāprabhu; *ughāḍiyā*—abriendo; *duḥkhera*—de la infelicidad; *kapāṭa*—puertas; *bhāvera*—del éxtasis; *taraṅga-bale*—por la fuerza de las olas; *nānā-rūpe*—de diversas maneras; *mana*—Su mente; *cale*—vaga; *āra eka*—otro; *śloka*—verso; *kaila*—hizo; *pāṭha*—recitar.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.267
 
-> ব্রহ্মাণ্ড-ভিতরে হয় চৌদ্দ ভুবন  ।
+> ব্রহ্মাণ্ড-ভিতরে হয় চৌদ্দ ভুবন  ।\
 > চৌদ্দভুবনে বৈসে যত জীবগণ ॥২৬৭॥
 
-> brahmāṇḍa-bhitare haya caudda bhuvana
+> brahmāṇḍa-bhitare haya caudda bhuvana\
 > caudda-bhuvane vaise yata jīva-gaṇa
 
 *brahmāṇḍa-bhitare*—within the universe; *haya*—there are; *cauddabhuvana*—fourteen planetary systems; *caudda-bhuvane*—in those fourteen planetary systems; *vaise*—reside; *yata*—as many as there are; *jīva-gaṇa*—living entities.

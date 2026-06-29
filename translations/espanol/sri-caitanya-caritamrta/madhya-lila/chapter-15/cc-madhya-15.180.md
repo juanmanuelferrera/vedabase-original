@@ -1,13 +1,13 @@
 ### CC Madhya 15.180
 
-> জয় জয় জহ্যজামজিত দোষগৃভীতগুণাং
-> ত্বমসি যদাত্মনা সমবরুদ্ধসমস্তভগঃ ৷
-> অগজগদোকসামখিলশক্ত্যববোধক তে
+> জয় জয় জহ্যজামজিত দোষগৃভীতগুণাং\
+> ত্বমসি যদাত্মনা সমবরুদ্ধসমস্তভগঃ ৷\
+> অগজগদোকসামখিলশক্ত্যববোধক তে\
 > ক্বচিদজয়াত্মনা চ চরতোঽনুচরেন্নিগমঃ ।।” ॥ ১৮০ ॥
 
-> jaya jaya jahy ajām ajita doṣa-gṛbhīta-guṇāṁ
-> tvam asi yad ātmanā samavaruddha-samasta-bhagaḥ
-> aga-jagad-okasām akhila-śakty-avabodhaka te
+> jaya jaya jahy ajām ajita doṣa-gṛbhīta-guṇāṁ\
+> tvam asi yad ātmanā samavaruddha-samasta-bhagaḥ\
+> aga-jagad-okasām akhila-śakty-avabodhaka te\
 > kvacid ajayātmanā ca carato 'nucaren nigamaḥ"
 
 *jaya jaya*—¡glorifícate, por favor!; *jahi*—por favor, conquista; *ajām*—la nesciencia, la māyā; *ajita*—¡oh, inconquistable!; *doṣa*—defectuosas; *gṛbhīta-guṇām*—por las cuales se aceptan las cualidades; *tvam*—Tú; *asi*—eres; *yat*—porque; *ātmanā*—por Tu potencia interna; *samavaruddha*—poseyendo; *samasta-bhagaḥ*—toda clase de opulencias; *aga*—inmóviles; *jagat*—móviles; *okasām*—de las entidades vivientes encarnadas; *akhila*—de todas; *śakti*—las potencias; *avabodhaka*—amo; *te*—Tú; *kvacit*—a veces; *ajayā*—por la energía externa; *ātmanā*—de Ti mismo; *ca*—también; *carataḥ*—manifestando pasatiempos (por Tu mirada); *anucaret*—confirman; *nigamaḥ*—todos los Vedas.

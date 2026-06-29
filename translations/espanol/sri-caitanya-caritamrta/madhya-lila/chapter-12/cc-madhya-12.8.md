@@ -1,9 +1,9 @@
 ### CC Madhya 12.8
 
-> সেই সব দয়ালু মোরে হঞা সদয়  ।
+> সেই সব দয়ালু মোরে হঞা সদয়  ।\
 > মোর লাগি’ প্রভুপদে করিবে বিনয় ॥৮॥
 
-> sei saba dayālu more hañā sadaya
+> sei saba dayālu more hañā sadaya\
 > mora lāgi' prabhu-pade karibe vinaya
 
 *sei saba*—todos ellos; *dayālu*—misericordiosos; *more*—conmigo; *hañā*—siendo; *sa-daya*—favorablemente dispuestos; *mora lāgi'*—en mi nombre; *prabhu-pade*—a los pies de loto del Señor Śrī Caitanya Mahāprabhu; *karibe*—harán; *vinaya*—humilde súplica.

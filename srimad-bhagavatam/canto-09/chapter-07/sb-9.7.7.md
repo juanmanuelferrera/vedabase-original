@@ -1,11 +1,11 @@
 ### SB 9.7.7
 
-> त्रैशङ्कवो हरिश्चन्द्रो विश्वामित्रवसिष्ठयोः
+> त्रैशङ्कवो हरिश्चन्द्रो विश्वामित्रवसिष्ठयोः\
 > यन्निमित्तमभूद्युद्धं पक्षिणोर्बहुवार्षिकम ॥७॥
 
-> traiśaṅkavo hariścandro
-> viśvāmitra-vasiṣṭhayoḥ
-> yan-nimittam abhūd yuddhaṁ
+> traiśaṅkavo hariścandro\
+> viśvāmitra-vasiṣṭhayoḥ\
+> yan-nimittam abhūd yuddhaṁ\
 > pakṣiṇor bahu-vārṣikam
 
 *traiśaṅkavaḥ*—the son of Triśaṅku; *hariścandraḥ*—by the name Hariścandra; *viśvāmitra-vasiṣṭhayoḥ*—between Viśvāmitra and Vasiṣṭha; *yat-nimittam*—because of Hariścandra; *abhūt*—there was; *yuddham*—a great fight; *pakṣiṇoḥ*—both of whom had been converted into birds; *bahu-vārṣikam*—for many years.

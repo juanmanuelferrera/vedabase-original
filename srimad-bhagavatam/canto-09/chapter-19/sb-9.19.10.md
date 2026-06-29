@@ -1,11 +1,11 @@
 ### SB 9.19.10
 
-> तस्य तत्र द्विजः कश्चिदजास्वाम्यच्छिनद्रुषा
+> तस्य तत्र द्विजः कश्चिदजास्वाम्यच्छिनद्रुषा\
 > लम्बन्तं वृषणं भूयः सन्दधेऽर्थाय योगवित ॥१०॥
 
-> tasya tatra dvijaḥ kaścid
-> ajā-svāmy acchinad ruṣā
-> lambantaṁ vṛṣaṇaṁ bhūyaḥ
+> tasya tatra dvijaḥ kaścid\
+> ajā-svāmy acchinad ruṣā\
+> lambantaṁ vṛṣaṇaṁ bhūyaḥ\
 > sandadhe 'rthāya yogavit
 
 *tasya*—of the he-goat; *tatra*—thereupon; *dvijaḥ*—*brāhmaṇa*; *kaścit*—some; *ajā-svāmī*—the maintainer of another she-goat; *acchinat*—castrated, made effeminate; *ruṣā*—out of anger; *lambantam*—long; *vṛṣaṇam*—testicles; *bhūyaḥ*—again; *sandadhe*—joined; *arthāya*—for self-interest; *yoga-vit*—expert in the power of mystic *yoga.*

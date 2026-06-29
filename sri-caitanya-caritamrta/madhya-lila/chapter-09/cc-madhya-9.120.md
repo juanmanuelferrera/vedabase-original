@@ -1,9 +1,9 @@
 ### CC Madhya 9.120
 
-> প্রভু কহে, — দোষ নাহি, ইহা আমি জানি ।
+> প্রভু কহে, — দোষ নাহি, ইহা আমি জানি ।\
 > রাস না পাইল লক্ষ্মী, শাস্ত্রে ইহা শুনি ॥১২০॥
 
-> prabhu kahe,—doṣa nāhi, ihā āmi jāni
+> prabhu kahe,—doṣa nāhi, ihā āmi jāni\
 > rāsa nā pāila lakṣmī, śāstre ihā śuni
 
 *prabhukahe*—the Lord replied; *doṣa nāhi*—there is no fault; *ihā āmi jāni*—this I know; *rāsa nā pāila lakṣmī*—Lakṣmī, the goddess of fortune, could not join the *rāsa* dance; *śāstre ihā śuni*—we get this information from revealed scriptures.

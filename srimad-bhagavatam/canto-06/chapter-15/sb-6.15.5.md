@@ -1,11 +1,11 @@
 ### SB 6.15.5
 
-> वयं च त्वं च ये चेमे तुल्यकालाश्चराचराः
+> वयं च त्वं च ये चेमे तुल्यकालाश्चराचराः\
 > जन्ममृत्योर्यथा पश्चात्प्राङ्नैवमधुनापि भोः ॥५॥
 
-> vayaṁ ca tvaṁ ca ye ceme
-> tulya-kālāś carācarāḥ
-> janma-mṛtyor yathā paścāt
+> vayaṁ ca tvaṁ ca ye ceme\
+> tulya-kālāś carācarāḥ\
+> janma-mṛtyor yathā paścāt\
 > prāṅ naivam adhunāpi bhoḥ
 
 *vayam*—we (the great sages and the ministers and adherents of the King); *ca*—and; *tvam*—you; *ca*—also; *ye*—who; *ca*—also; *ime*—these; *tulya-kālāḥ*—assembled at the same time; *cara-acarāḥ*—moving and not moving; *janma*—birth; *mṛtyoḥ*—and death; *yathā*—just as; *paścāt*—after; *prāk*—before; *na*—not; *evam*—thus; *adhunā*—at present; *api*—although; *bhoḥ*—O King.

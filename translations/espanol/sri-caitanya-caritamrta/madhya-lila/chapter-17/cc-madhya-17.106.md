@@ -1,9 +1,9 @@
 ### CC Madhya 17.106
 
-> “এক সন্ন্যাসী আইলা জগন্নাথ হৈতে ।
+> “এক সন্ন্যাসী আইলা জগন্নাথ হৈতে ।\
 > তাঁহার মহিমা-প্রতাপ না পারি বর্ণিতে ॥১০৬॥
 
-> "eka sannyāsī āilā jagannātha haite
+> "eka sannyāsī āilā jagannātha haite\
 > tāṅhāra mahimā-pratāpa nā pāri varṇite
 
 *eka*—un; *sannyāsī*—persona en la orden de renuncia; *āilā*—ha venido; *jagannātha haite*—de Jagannātha Purī; *tāṅhāra*—Sus; *mahimā*—glorias; *pratāpa*—influencia; *nā pāri varṇite*—no puedo describir.

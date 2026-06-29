@@ -1,9 +1,9 @@
 ### CC Madhya 9.255
 
-> সাধ্য-সাধন আমি না জানি ভালমতে ৷
+> সাধ্য-সাধন আমি না জানি ভালমতে ৷\
 > সাধ্য-সাধন-শ্রেষ্ঠ জানাহ আমাতে ৷৷ ২৫৫ ৷৷ ॥২৫৫॥
 
-> sādhya-sādhana āmi nā jāni bhāla-mate
+> sādhya-sādhana āmi nā jāni bhāla-mate\
 > sādhya-sādhana-śreṣṭha jānāha āmāte
 
 *sādhya-sādhana*—la meta de la vida y cómo alcanzarla; *āmi*—Yo; *nā*—no; *jāni*—sé; *bhāla-mate*—muy bien; *sādhya-sādhana*—la meta de la vida y cómo alcanzarla; *śreṣṭha*—el mejor; *jānāha*—sírvase explicar; *āmāte*—a Mí.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.237
 
-> এত বলি’ প্রভু তাঁরে কৈলা আলিঙ্গন ।
+> এত বলি’ প্রভু তাঁরে কৈলা আলিঙ্গন ।\
 > বারাণসী চলিবারে প্রভুর হৈল মন ॥২৩৭॥
 
-> eta bali' prabhu tāṅre kailā āliṅgana
+> eta bali' prabhu tāṅre kailā āliṅgana\
 > vārāṇasī calibāre prabhura haila mana
 
 *eta bali'*—saying this; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—unto Rūpa Gosvāmī; *kailā*—did; *āliṅgana*—embracing; *vārāṇasī*—toward Benares; *calibāre*—to go; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *haila*—was; *mana*—the mind.

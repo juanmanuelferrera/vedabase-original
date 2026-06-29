@@ -1,11 +1,11 @@
 ### SB 8.21.4
 
-> धातुः कमण्डलुजलं तदुरुक्रमस्य पादावनेजनपवित्रतया नरेन्द्र
+> धातुः कमण्डलुजलं तदुरुक्रमस्य पादावनेजनपवित्रतया नरेन्द्र\
 > स्वर्धुन्यभून्नभसि सा पतती निमार्ष्टि लोकत्रयं भगवतो विशदेव कीर्तिः ॥४॥
 
-> dhātuḥ kamaṇḍalu-jalaṁ tad urukramasya
-> pādāvanejana-pavitratayā narendra
-> svardhuny abhūn nabhasi sā patatī nimārṣṭi
+> dhātuḥ kamaṇḍalu-jalaṁ tad urukramasya\
+> pādāvanejana-pavitratayā narendra\
+> svardhuny abhūn nabhasi sā patatī nimārṣṭi\
 > loka-trayaṁ bhagavato viśadeva kīrtiḥ
 
 *dhātuḥ*—of Lord Brahmā; *kamaṇḍalu-jalam*—water from the *kamaṇḍalu*; *tat*—that; *urukramasya*—of Lord Viṣṇu; *pāda-avanejana-pavitratayā*—because of washing the lotus feet of Lord Viṣṇu and thus being transcendentally pure; *nara-indra*—O King; *svardhunī*—the river named Svardhunī of the celestial world; *abhūt*—so became; *nabhasi*—in outer space; *sā*—that water; *patatī*—flowing down; *nimārṣṭi*—purifying; *loka-trayam*—the three worlds; *bhagavataḥ*—of the Supreme Personality of Godhead; *viśadā*—so purified; *iva*—just like; *kīrtiḥ*—the fame or the glorious activities.

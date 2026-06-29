@@ -1,11 +1,11 @@
 ### SB 9.11.35
 
-> तस्मिन्स भगवान्रामः स्निग्धया प्रिययेष्टया
+> तस्मिन्स भगवान्रामः स्निग्धया प्रिययेष्टया\
 > रेमे स्वारामधीराणामृषभः सीतया किल ॥३५॥
 
-> tasmin sa bhagavān rāmaḥ
-> snigdhayā priyayeṣṭayā
-> reme svārāma-dhīrāṇām
+> tasmin sa bhagavān rāmaḥ\
+> snigdhayā priyayeṣṭayā\
+> reme svārāma-dhīrāṇām\
 > ṛṣabhaḥ sītayā kila
 
 *tasmin*—en ese palacio celestial; *saḥ*—Él; *bhagavān*—la Suprema Personalidad de Dios; *rāmaḥ*—el Señor Rāmacandra; *snigdhayā*—siempre complacido con el comportamiento de ella; *priyayā iṣṭayā*—con Su muy querida esposa; *reme*—disfrutó; *sva-ārāma*—placer personal; *dhīrāṇām*—de las personas más sabias y eruditas; *ṛṣabhaḥ*—el mejor; *sītayā*—con madre Sītā; *kila*—en verdad.

@@ -1,11 +1,11 @@
 ### SB 4.21.40
 
-> पुमान्लभेतानतिवेलमात्मनः प्रसीदतोऽत्यन्तशमं स्वतः स्वयम् ।
+> पुमान्लभेतानतिवेलमात्मनः प्रसीदतोऽत्यन्तशमं स्वतः स्वयम् ।\
 > यन्नित्यसम्बन्धनिषेवया ततः परं किमत्रास्ति मुखं हविर्भुजाम् ॥४०॥
 
-> pumāḹ labhetānativelam ātmanaḥ
-> prasīdato 'tyanta-śamaṁ svataḥ svayam
-> yan-nitya-sambandha-niṣevayā tataḥ
+> pumāḹ labhetānativelam ātmanaḥ\
+> prasīdato 'tyanta-śamaṁ svataḥ svayam\
+> yan-nitya-sambandha-niṣevayā tataḥ\
 > paraṁ kim atrāsti mukhaṁ havir-bhujām
 
 *pumān*—a person; *labheta*—can achieve; *anati-velam*—without delay; *ātmanaḥ*—of his soul; *prasīdataḥ*—being satisfied; *atyanta*—the greatest; *śamam*—peace; *svataḥ*—automatically; *svayam*—personally; *yat*—whose; *nitya*—regular; *sambandha*—relationship; *niṣevayā*—by dint of service; *tataḥ*—after that; *param*—superior; *kim*—what; *atra*—here; *asti*—there is; *mukham*—happiness; *haviḥ*—clarified butter; *bhujām*—those who drink.

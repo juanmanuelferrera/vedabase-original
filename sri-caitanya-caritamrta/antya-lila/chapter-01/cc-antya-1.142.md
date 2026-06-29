@@ -1,13 +1,13 @@
 ### CC Antya 1.142
 
-> একস্য শ্রুতমেব লুম্পতি মতিং কৃষ্ণেতি নামাক্ষরং
-> সান্দ্রোন্মাদ-পরম্পরামুপনয়ত্যন্যস্য বংশীকলঃ ।
-> এষ স্নিগ্ধঘনদ্যুতির্মনসি মে লগ্নঃ পটে বীক্ষণাৎ
+> একস্য শ্রুতমেব লুম্পতি মতিং কৃষ্ণেতি নামাক্ষরং\
+> সান্দ্রোন্মাদ-পরম্পরামুপনয়ত্যন্যস্য বংশীকলঃ ।\
+> এষ স্নিগ্ধঘনদ্যুতির্মনসি মে লগ্নঃ পটে বীক্ষণাৎ\
 > কষ্টং ধিক্ পুরুষত্রয়ে রতিরভূন্মন্যে মৃতিঃ শ্রেয়সী ॥১৪২॥
 
-> ekasya śrutam eva lumpati matiṁ kṛṣṇeti nāmākṣaraṁ
-> sāndronmāda-paramparām upanayaty anyas ya vaṁśī-kalaḥ
-> eṣa snigdha-ghana-dyutir manasi me lagnaḥ paṭe vīkṣaṇāt
+> ekasya śrutam eva lumpati matiṁ kṛṣṇeti nāmākṣaraṁ\
+> sāndronmāda-paramparām upanayaty anyas ya vaṁśī-kalaḥ\
+> eṣa snigdha-ghana-dyutir manasi me lagnaḥ paṭe vīkṣaṇāt\
 > kaṣṭaṁ dhik puruṣa-traye ratir abhūn manye mṛtiḥ śreyasī
 
 *ekasya*—of one person; *śrutam*—heard; *eva*—certainly; *lumpati*—take away; *matim*—the mind; *kṛṣṇa iti*—Kṛṣṇa; *nāma-akṣaram*—the letters of the name; *sāndra-unmāda*—of intense madness; *paramparām*—a shower; *upanayati*—brings; *anyasya*—of another; *vaṁśī-kalaḥ*—the sound vibration of the flute; *eṣaḥ*—this third one; *snigdha*—giving love; *ghana-dyutiḥ*—lightninglike effulgence; *manasi*—in the mind; *me*—My; *lagnaḥ*—attachment; *paṭe*—in the picture; *vīkṣaṇāt*—by seeing; *kaṣṭam dhik*—oh, shame upon Me; *puruṣa-traye*—to three persons; *ratiḥ*—attachment; *abhūt*—has appeared; *manye*—I think; *mṛtiḥ*—death; *śreyasī*—better.

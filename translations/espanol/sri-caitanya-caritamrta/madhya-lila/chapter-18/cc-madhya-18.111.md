@@ -1,9 +1,9 @@
 ### CC Madhya 18.111
 
-> প্রভু কহে, — ‘বিষ্ণু’ ‘বিষ্ণু’, ইহা না কহিবা !
+> প্রভু কহে, — ‘বিষ্ণু’ ‘বিষ্ণু’, ইহা না কহিবা !\
 > জীবাধমে ‘কৃষ্ণ’-জ্ঞান কভু না করিবা ! ॥ ১১১ ॥
 
-> prabhu kahe,--'viṣṇu' 'viṣṇu' ihā nā kahibā!
+> prabhu kahe,--'viṣṇu' 'viṣṇu' ihā nā kahibā!\
 > jīvādhame 'kṛṣṇa'-jñāna kabhu nā karibā!
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu respondió; *viṣṇu viṣṇu*—¡oh, Viṣṇu, Viṣṇu!; *ihā*—esto; *nā kahibā*—no digáis; *jīva-adhame*—almas condicionadas caídas; *kṛṣṇa-jñāna*—aceptar como el Señor Kṛṣṇa; *kabhu*—jamás; *nā karibā*—no hagáis.

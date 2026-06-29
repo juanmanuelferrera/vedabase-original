@@ -1,9 +1,9 @@
 ### CC Madhya 11.231
 
-> চারি জনের নৃত্য দেখিতে প্রভুর অভিলাষ ।
+> চারি জনের নৃত্য দেখিতে প্রভুর অভিলাষ ।\
 > সেই অভিলাষে করে ঐশ্বর্য প্রকাশ ॥২৩১॥
 
-> cāri janera nṛtya dekhite prabhura abhilāṣa
+> cāri janera nṛtya dekhite prabhura abhilāṣa\
 > sei abhilāṣe kare aiśvarya prakāśa
 
 *cāri janera*—of the four persons; *nṛtya*—dancing; *dekhite*—to see; *prabhura*—of Śrī Caitanya Mahāprabhu; *abhilāṣa*—desire; *sei abhilāṣe*—for that purpose; *kare*—does; *aiśvarya prakāśa*—exhibition of a miracle.

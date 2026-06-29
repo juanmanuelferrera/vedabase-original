@@ -1,11 +1,11 @@
 ### SB 3.6.20
 
-> गुदं पुंसो विनिर्भिन्नं मित्रो लोकेश आविशत् ।
+> गुदं पुंसो विनिर्भिन्नं मित्रो लोकेश आविशत् ।\
 > पायुनांशेन येनासौ विसर्गं प्रतिपद्यते ॥२०॥
 
-> gudaṁ puṁso vinirbhinnaṁ
-> mitro lokeśa āviśat
-> pāyunāṁśena yenāsau
+> gudaṁ puṁso vinirbhinnaṁ\
+> mitro lokeśa āviśat\
+> pāyunāṁśena yenāsau\
 > visargaṁ pratipadyate
 
 *gudam*—evacuating outlet; *puṁsaḥ*—of the gigantic form; *vinirbhinnam*—being separately manifested; *mitraḥ*—the sun-god; *loka-īśaḥ*—the director named Mitra; *āviśat*—entered; *pāyunā aṁśena*—with the partial evacuation process; *yena*—by which; *asau*—the living entity; *visargam*—evacuation; *pratipadyate*—performs.

@@ -1,11 +1,11 @@
 ### CC Adi 7.6
 
-> পঞ্চতত্ত্বাত্মকং কৃষ্ণং ভক্তরূপ-স্বরূপকম্ ।
+> পঞ্চতত্ত্বাত্মকং কৃষ্ণং ভক্তরূপ-স্বরূপকম্ ।\
 > ভক্তাবতারং ভক্তাখ্যং নমামি ভক্তশক্তিকম্ ॥৬॥
 
-> pañca-tattvātmakaṁ kṛṣṇaṁ
-> bhakta-rūpa-svarūpakam
-> bhaktāvatāraṁ bhaktākhyaṁ
+> pañca-tattvātmakaṁ kṛṣṇaṁ\
+> bhakta-rūpa-svarūpakam\
+> bhaktāvatāraṁ bhaktākhyaṁ\
 > namāmi bhakta-śaktikam
 
 *pañca-tattva-ātmakam*—comprehending the five transcendental subject matters; *kṛṣṇam*—unto Lord Kṛṣṇa; *bhakta-rūpa*—in the form of a devotee; *svarūpakam*—in the expansion of a devotee; *bhakta-avatāram*—in the incarnation of a devotee; *bhakta-ākhyam*—known as a devotee; *namāmi*—I offer my obeisances; *bhakta-śaktikam*—the energy of the Supreme Personality of Godhead.

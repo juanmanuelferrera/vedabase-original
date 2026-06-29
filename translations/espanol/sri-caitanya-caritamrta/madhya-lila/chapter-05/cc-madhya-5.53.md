@@ -1,9 +1,9 @@
 ### CC Madhya 5.53
 
-> ঠেঞা দেখি’ সেই বিপ্র পলাঞা গেল ।
+> ঠেঞা দেখি’ সেই বিপ্র পলাঞা গেল ।\
 > আর দিন গ্রামের লোক একত্র করিল ॥৫৩॥
 
-> ṭheñā dekhi' sei vipra palāñā gela
+> ṭheñā dekhi' sei vipra palāñā gela\
 > āra dina grāmera loka ekatra karila
 
 *ṭheñā dekhi'*—al ver el palo en su mano; *sei vipra*—el joven brāhmaṇa; *palāñā gela*—huyó de aquel lugar; *āra dina*—al día siguiente; *grāmera loka*—los habitantes de la aldea; *ekatra karila*—reunió en un lugar.

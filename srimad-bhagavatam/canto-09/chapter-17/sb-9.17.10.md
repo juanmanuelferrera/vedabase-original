@@ -1,11 +1,11 @@
 ### SB 9.17.10
 
-> इतीमे काशयो भूपाः क्षत्रवृद्धान्वयायिनः
+> इतीमे काशयो भूपाः क्षत्रवृद्धान्वयायिनः\
 > राभस्य रभसः पुत्रो गम्भीरश्चाक्रियस्ततः ॥१०॥
 
-> itīme kāśayo bhūpāḥ
-> kṣatravṛddhānvayāyinaḥ
-> rābhasya rabhasaḥ putro
+> itīme kāśayo bhūpāḥ\
+> kṣatravṛddhānvayāyinaḥ\
+> rābhasya rabhasaḥ putro\
 > gambhīraś cākriyas tataḥ
 
 *iti*—thus; *ime*—all of them; *kāśayaḥ*—born in the dynasty of Kāśi; *bhūpāḥ*—kings; *kṣatravṛddha-anvaya-āyinaḥ*—also within the dynasty of Kṣatravṛddha; *rābhasya*—from Rābha; *rabhasaḥ*—Rabhasa; *putraḥ*—a son; *gambhīraḥ*—Gambhīra; *ca*—also; *akriyaḥ*—Akriya; *tataḥ*—from him.

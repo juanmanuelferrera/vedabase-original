@@ -1,11 +1,11 @@
 ### SB 7.7.23
 
-> देहस्तु सर्वसङ्घातो जगत्तस्थुरिति द्विधा
+> देहस्तु सर्वसङ्घातो जगत्तस्थुरिति द्विधा\
 > अत्रैव मृग्यः पुरुषो नेति नेतीत्यतत्त्यजन ॥२३॥
 
-> dehas tu sarva-saṅghāto
-> jagat tasthur iti dvidhā
-> atraiva mṛgyaḥ puruṣo
+> dehas tu sarva-saṅghāto\
+> jagat tasthur iti dvidhā\
+> atraiva mṛgyaḥ puruṣo\
 > neti netīty atat tyajan
 
 *dehaḥ*—the body; *tu*—but; *sarva-saṅghātaḥ*—the combination of all the twenty-four elements; *jagat*—seen to be moving; *tasthuḥ*—and standing in one place; *iti*—thus; *dvidhā*—two kinds; *atra eva*—in this matter; *mṛgyaḥ*—to be searched for; *puruṣaḥ*—the living entity, the soul; *na*—not; *iti*—thus; *na*—not; *iti*—thus; *iti*—in this way; *atat*—what is not spirit; *tyajan*—giving up.

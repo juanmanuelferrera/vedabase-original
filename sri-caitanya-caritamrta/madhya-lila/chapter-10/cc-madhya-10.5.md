@@ -1,9 +1,9 @@
 ### CC Madhya 10.5
 
-> শুনিলাঙ তোমার ঘরে এক মহাশয় ।
+> শুনিলাঙ তোমার ঘরে এক মহাশয় ।\
 > গৌড় হইতে আইলা, তেঁহো মহা-কৃপাময় ॥৫॥
 
-> śunilāṅa tomāra ghare eka mahāśaya
+> śunilāṅa tomāra ghare eka mahāśaya\
 > gauḍa ha-ite āilā, teṅho mahā-kṛpāmaya
 
 *śunilāṅa*—I have heard; *tomāra*—your; *ghare*—at home; *eka*—one; *mahāśaya*—great personality; *gauḍa ha-ite*—from Bengal; *āilā*—has come; *teṅho*—He; *mahā-kṛpā-maya*—very merciful.

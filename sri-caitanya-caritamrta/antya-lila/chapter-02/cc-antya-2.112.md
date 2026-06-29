@@ -1,9 +1,9 @@
 ### CC Antya 2.112
 
-> অন্ন প্রশংসিয়া প্রভু ভোজন করিলা  ।
+> অন্ন প্রশংসিয়া প্রভু ভোজন করিলা  ।\
 > নিজগৃহে আসি’ গোবিন্দেরে আজ্ঞা দিলা ॥১১২॥
 
-> anna praśaṁsiyā prabhu bhojana karilā
+> anna praśaṁsiyā prabhu bhojana karilā\
 > nija-gṛhe āsi' govindere ājñā dilā
 
 *anna praśaṁsiyā*—praising the rice; *prabhu*—Śrī Caitanya Mahāprabhu; *bhojana karilā*—partook of the *prasāda*; *nija-gṛhe*—to His own residence; *āsi'*—coming back; *govindere*—to Govinda; *ājñā dilā*—He gave order.

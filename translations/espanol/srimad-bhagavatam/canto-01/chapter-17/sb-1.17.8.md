@@ -1,11 +1,11 @@
 ### SB 1.17.8
 
-> न जातु कौरवेन्द्राणां दोर्दण्डपरिरम्भिते ।
+> न जातु कौरवेन्द्राणां दोर्दण्डपरिरम्भिते ।\
 > भूतलेऽनुपतन्त्यस्मिन्विना ते प्राणिनां शुचः ॥८॥
 
-> na jātu kauravendrāṇāṁ
-> dordaṇḍa-parirambhite
-> bhū-tale 'nupatanty asmin
+> na jātu kauravendrāṇāṁ\
+> dordaṇḍa-parirambhite\
+> bhū-tale 'nupatanty asmin\
 > vinā te prāṇināṁ śucaḥ
 
 *na*—no; *jātu*—en ningún momento; *kaurava-indrāṇām*—de los reyes de la dinastía Kuru; *dordaṇḍa*—la fuerza de los brazos; *parirambhite*—protegido; *bhū-tale*—en la superficie de la Tierra; *anupatanti*—sufriendo; *asmin*—hasta ahora; *vinā*—con excepción de; *te*—ti; *prāṇinām*—del ser viviente; *śucaḥ*—lágrimas en los ojos.

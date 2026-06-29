@@ -1,9 +1,9 @@
 ### CC Adi 5.192
 
-> শিঙ্গা বাঁশী বাজায় কেহ, কেহ নাচে গায় ।
+> শিঙ্গা বাঁশী বাজায় কেহ, কেহ নাচে গায় ।\
 > সেবক যোগায় তাম্বূল, চামর ঢুলায় ॥১৯২॥
 
-> śiṅgā vāṁśī bājāya keha, keha nāce gāya
+> śiṅgā vāṁśī bājāya keha, keha nāce gāya\
 > sevaka yogāya tāmbūla, cāmara ḍhulāya
 
 *śiṅgā vāṁśī*—horns and flutes; *bājāya*—play; *keha*—some; *keha*—some of them; *nāce*—dance; *gāya*—sing; *sevaka*—a servant; *yogāya*—supplies; *tāmbūla*—betel nut; *cāmara*—fan; *ḍhulāya*—moves.

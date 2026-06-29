@@ -1,11 +1,11 @@
 ### SB 3.31.42
 
-> तामात्मनो विजानीयात्पत्यपत्यगृहात्मकम् ।
+> तामात्मनो विजानीयात्पत्यपत्यगृहात्मकम् ।\
 > दैवोपसादितं मृत्युं मृगयोर्गायनं यथा ॥४२॥
 
-> tām ātmano vijānīyāt
-> paty-apatya-gṛhātmakam
-> daivopasāditaṁ mṛtyuṁ
+> tām ātmano vijānīyāt\
+> paty-apatya-gṛhātmakam\
+> daivopasāditaṁ mṛtyuṁ\
 > mṛgayor gāyanaṁ yathā
 
 *tām*—the Lord's *māyā*; *ātmanaḥ*—of herself; *vijānīyāt*—she should know; *pati*—husband; *apatya*—children; *gṛha*—house; *ātmakam*—consisting of; *daiva*—by the authority of the Lord; *upasāditam*—brought about; *mṛtyum*—death; *mṛgayoḥ*—of the hunter; *gāyanam*—the singing; *yathā*—as.

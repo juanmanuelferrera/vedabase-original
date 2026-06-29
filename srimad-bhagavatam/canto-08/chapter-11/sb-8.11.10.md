@@ -1,13 +1,13 @@
 ### SB 8.11.10
 
-> श्रीशुक उवाच
-> इत्याक्षिप्य विभुं वीरो नाराचैर्वीरमर्दनः
+> श्रीशुक उवाच\
+> इत्याक्षिप्य विभुं वीरो नाराचैर्वीरमर्दनः\
 > आकर्णपूर्णैरहनदाक्षेपैराह तं पुनः ॥१०॥
 
-> śrī-śuka uvāca
-> ity ākṣipya vibhuṁ vīro
-> nārācair vīra-mardanaḥ
-> ākarṇa-pūrṇairahanad
+> śrī-śuka uvāca\
+> ity ākṣipya vibhuṁ vīro\
+> nārācair vīra-mardanaḥ\
+> ākarṇa-pūrṇairahanad\
 > ākṣepair āha taṁ punaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *iti*—thus; *ākṣipya*—chastising; *vibhum*—unto King Indra; *vīraḥ*—the valiant Bali Mahārāja; *nārācaiḥ*—by the arrows named *nārācas*; *vīra-mardanaḥ*—Bali Mahārāja, who could subdue even great heros; *ākarṇa-pūrṇaiḥ*—drawn up to his ear; *ahanat*—attacked; *ākṣepaiḥ*—by words of chastisement; *āha*—said; *tam*—unto him; *punaḥ*—again.

@@ -1,11 +1,11 @@
 ### Bg 3.11
 
-> देवान्भावयतानेन ते देवा भावयन्तु वः ।
+> देवान्भावयतानेन ते देवा भावयन्तु वः ।\
 > परस्परं भावयन्तः श्रेयः परमवाप्स्यथ ॥११॥
 
-> devān bhāvayatānena
-> te devā bhāvayantu vaḥ
-> parasparaṁ bhāvayantaḥ
+> devān bhāvayatānena\
+> te devā bhāvayantu vaḥ\
+> parasparaṁ bhāvayantaḥ\
 > śreyaḥ param avāpsyatha
 
 *devān*—demigods; *bhāvayata*—having been pleased; *anena*—by this sacrifice; *te*—those; *devāḥ*—the demigods; *bhāvayantu*—will please; *vaḥ*—you; *parasparam*—mutual; *bhāvayantaḥ*—pleasing one another; *sreyaḥ*—benediction; *param*—the supreme; *avāpsyatha*—do you achieve.

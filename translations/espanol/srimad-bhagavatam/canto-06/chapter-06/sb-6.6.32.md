@@ -1,11 +1,11 @@
 ### SB 6.6.32
 
-> स्वर्भानोः सुप्रभां कन्यामुवाह नमुचिः किल
+> स्वर्भानोः सुप्रभां कन्यामुवाह नमुचिः किल\
 > वृषपर्वणस्तु शर्मिष्ठां ययातिर्नाहुषो बली ॥३२॥
 
-> svarbhānoḥ suprabhāṁ kanyām
-> uvāha namuciḥ kila
-> vṛṣaparvaṇas tu śarmiṣṭhāṁ
+> svarbhānoḥ suprabhāṁ kanyām\
+> uvāha namuciḥ kila\
+> vṛṣaparvaṇas tu śarmiṣṭhāṁ\
 > yayātir nāhuṣo balī
 
 *svarbhānoḥ*—de Svarbhānu; *suprabhām*—Suprabhā; *kanyām*—la hija; *uvāha*—casada; *namuciḥ*—Namuci; *kila*—en verdad; *vṛṣaparvaṇaḥ*—de Vṛṣaparvā; *tu*—pero; *śarmiṣṭhām*—Śarmiṣṭhā; *yayātiḥ*—el rey Yayāti; *nāhuṣaḥ*—el hijo de Nahuṣa; *balī*—muy poderoso.

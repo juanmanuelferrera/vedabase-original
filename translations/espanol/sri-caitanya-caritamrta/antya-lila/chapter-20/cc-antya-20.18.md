@@ -1,9 +1,9 @@
 ### CC Antya 20.18
 
-> খাইতে শুইতে যথা তথা নাম লয় ।
+> খাইতে শুইতে যথা তথা নাম লয় ।\
 > কাল-দেশ-নিয়ম নাহি, সর্ব সিদ্ধি হয় ॥১৮॥
 
-> khāite śuite yathā tathā nāma laya
+> khāite śuite yathā tathā nāma laya\
 > kāla-deśa-niyama nāhi, sarva siddhi haya
 
 *khāite*—comiendo; *śuite*—acostado; *yathā*—como; *tathā*—así; *nāma laya*—uno toma el santo nombre; *kāla*—en tiempo; *deśa*—en lugar; *niyama*—regulación; *nāhi*—no hay; *sarva siddhi haya*—se alcanza toda perfección.

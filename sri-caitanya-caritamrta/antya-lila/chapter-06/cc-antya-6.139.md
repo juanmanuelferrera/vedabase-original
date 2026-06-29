@@ -1,9 +1,9 @@
 ### CC Antya 6.139
 
-> “তুমি যে করাইলা এই পুলিন-ভোজন  ।
+> “তুমি যে করাইলা এই পুলিন-ভোজন  ।\
 > তোমায় কৃপা করি’ গৌর কৈলা আগমন ॥১৩৯॥
 
-> "tumi ye karāilā ei pulina-bhojana
+> "tumi ye karāilā ei pulina-bhojana\
 > tomāya kṛpā kari' gaura kailā āgamana
 
 *tumi*—you; *ye*—that; *karāilā*—caused to do; *ei*—this; *pulina-bhojana*—picnic on the bank of the Ganges; *tomāya*—unto you; *kṛpā kari'*—being merciful; *gaura*—Lord Śrī Caitanya Mahāprabhu; *kailā āgamana*—came.

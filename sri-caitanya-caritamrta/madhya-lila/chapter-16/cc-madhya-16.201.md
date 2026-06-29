@@ -1,9 +1,9 @@
 ### CC Madhya 16.201
 
-> অলৌকিক লীলা করে শ্রীকৃষ্ণচৈতন্য ।
+> অলৌকিক লীলা করে শ্রীকৃষ্ণচৈতন্য ।\
 > যেই ইহা শুনে তাঁর জন্ম, দেহ ধন্য ॥২০১॥
 
-> alaukika līlā kare śrī-kṛṣṇa-caitanya
+> alaukika līlā kare śrī-kṛṣṇa-caitanya\
 > yei ihā śune tāṅra janma, deha dhanya
 
 *alaukika*—uncommon; *līlā*—pastimes; *kare*—performs; *śrī-kṛṣṇa-caitanya*—Śrī Caitanya Mahāprabhu; *yei*—anyone who; *ihā*—this; *śune*—hears; *tāṅra*—his; *janma*—birth; *deha*—body; *dhanya*—glorified.

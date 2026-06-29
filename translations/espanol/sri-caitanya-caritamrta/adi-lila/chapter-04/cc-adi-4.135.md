@@ -1,9 +1,9 @@
 ### CC Adi 4.135
 
-> কভু যদি এই প্রেমার হইয়ে আশ্রয় ।
+> কভু যদি এই প্রেমার হইয়ে আশ্রয় ।\
 > তবে এই প্রেমানন্দের অনুভব হয় ॥১৩৫॥
 
-> kabhu yadi ei premāra ha-iye āśraya
+> kabhu yadi ei premāra ha-iye āśraya\
 > tabe ei premānandera anubhava haya
 
 *kabhu*—en algún momento; *yadi*—si; *ei*—este; *premāra*—del amor; *ha-iye*—Me convierto; *āśraya*—la morada; *tabe*—entonces; *ei*—este; *prema-ānandera*—del gozo del amor; *anubhava*—experiencia; *haya*—hay.

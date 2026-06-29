@@ -1,13 +1,13 @@
 ### SB 3.20.36
 
-> नैकत्र ते जयति शालिनि पादपद्मं
-> घ्नन्त्या मुहुः करतलेन पतत्पतङ्गम् ।
-> मध्यं विषीदति बृहत्स्तनभारभीतं
+> नैकत्र ते जयति शालिनि पादपद्मं\
+> घ्नन्त्या मुहुः करतलेन पतत्पतङ्गम् ।\
+> मध्यं विषीदति बृहत्स्तनभारभीतं\
 > शान्तेव दृष्टिरमला सुशिखासमूहः ॥३६॥
 
-> naikatra te jayati śālini pāda-padmaṁ
-> ghnantyā muhuḥ kara-talena patat-pataṅgam
-> madhyaṁ viṣīdati bṛhat-stana-bhāra-bhītaṁ
+> naikatra te jayati śālini pāda-padmaṁ\
+> ghnantyā muhuḥ kara-talena patat-pataṅgam\
+> madhyaṁ viṣīdati bṛhat-stana-bhāra-bhītaṁ\
 > śānteva dṛṣṭir amalā suśikhā-samūhaḥ
 
 *na*—no; *ekatra*—en un lugar; *te*—tú; *jayati*—permaneces; *śālini*—¡oh, hermosa mujer!; *pāda-padmam*—pies de loto; *ghnantyāḥ*—golpeando; *muhuḥ*—una y otra vez; *kara-talena*—con la palma de la mano; *patat*—botando; *pataṅgam*—la pelota; *madhyam*—cintura; *viṣīdati*—se fatiga; *bṛhat*—bien crecidos; *stana*—de tus pechos; *bhāra*—por el peso; *bhītam*—oprimida; *śāntā iva*—como fatigada; *dṛṣṭiḥ*—visión; *amalā*—clara; *su*—hermosa; *śikhā*—tu cabello; *samūhaḥ*—melena.

@@ -1,11 +1,11 @@
 ### SB 4.4.19
 
-> न वेदवादाननुवर्तते मतिः स्व एव लोके रमतो महामुनेः ।
+> न वेदवादाननुवर्तते मतिः स्व एव लोके रमतो महामुनेः ।\
 > यथा गतिर्देवमनुष्ययोः पृथक्स्व एव धर्मे न परं क्षिपेत्स्थितः ॥१९॥
 
-> na veda-vādān anuvartate matiḥ
-> sva eva loke ramato mahā-muneḥ
-> yathā gatir deva-manuṣyayoḥ pṛthak
+> na veda-vādān anuvartate matiḥ\
+> sva eva loke ramato mahā-muneḥ\
+> yathā gatir deva-manuṣyayoḥ pṛthak\
 > sva eva dharme na paraṁ kṣipet sthitaḥ
 
 *na*—not; *veda-vādān*—rules and regulations of the *Vedas*; *anuvartate*—follow; *matiḥ*—the mind; *sve*—in his own; *eva*—certainly; *loke*—in the self; *ramataḥ*—enjoying; *mahā-muneḥ*—of elevated transcendentalists; *yathā*—as; *gatiḥ*—the way; *deva-manuṣyayoḥ*—of the men and the demigods; *pṛthak*—separately; *sve*—in your own; *eva*—alone; *dharme*—occupational duty; *na*—not; *param*—another; *kṣipet*—should criticize; *sthitaḥ*—being situated.

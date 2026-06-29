@@ -1,11 +1,11 @@
 ### SB 7.6.19
 
-> न ह्यच्युतं प्रीणयतो बह्वायासोऽसुरात्मजाः
+> न ह्यच्युतं प्रीणयतो बह्वायासोऽसुरात्मजाः\
 > आत्मत्वात्सर्वभूतानां सिद्धत्वादिह सर्वतः ॥१९॥
 
-> na hy acyutaṁ prīṇayato
-> bahv-āyāso 'surātmajāḥ
-> ātmatvāt sarva-bhūtānāṁ
+> na hy acyutaṁ prīṇayato\
+> bahv-āyāso 'surātmajāḥ\
+> ātmatvāt sarva-bhūtānāṁ\
 > siddhatvād iha sarvataḥ
 
 *na*—not; *hi*—indeed; *acyutam*—the infallible Supreme Personality of Godhead; *prīṇayataḥ*—satisfying; *bahu*—much; *āyāsaḥ*—endeavor; *asura-ātma-jāḥ*—O sons of demons; *ātmatvāt*—because of being intimately related as the Supersoul; *sarva-bhūtānām*—of all living entities; *siddhatvāt*—because of being established; *iha*—in this world; *sarvataḥ*—in all directions, in all times and from all angles of vision.

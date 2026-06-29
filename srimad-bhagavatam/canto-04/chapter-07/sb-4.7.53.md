@@ -1,11 +1,11 @@
 ### SB 4.7.53
 
-> यथा पुमान्न स्वाङ्गेषु शिरःपाण्यादिषु क्वचित् ।
+> यथा पुमान्न स्वाङ्गेषु शिरःपाण्यादिषु क्वचित् ।\
 > पारक्यबुद्धिं कुरुते एवं भूतेषु मत्परः ॥५३॥
 
-> yathā pumān na svāṅgeṣu
-> śiraḥ-pāṇy-ādiṣu kvacit
-> pārakya-buddhiṁ kurute
+> yathā pumān na svāṅgeṣu\
+> śiraḥ-pāṇy-ādiṣu kvacit\
+> pārakya-buddhiṁ kurute\
 > evaṁ bhūteṣu mat-paraḥ
 
 *yathā*—as; *pumān*—a person; *na*—not; *sva-aṅgeṣu*—in his own body; *śiraḥ-pāṇi-ādiṣu*—between the head and the hands and other parts of the body; *kvacit*—sometimes; *pārakya-buddhim*—differentiation; *kurute*—make; *evam*—thus; *bhūteṣu*—among living entities; *mat-paraḥ*—My devotee.

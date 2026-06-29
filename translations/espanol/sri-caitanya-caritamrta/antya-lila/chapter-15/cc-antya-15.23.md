@@ -1,13 +1,13 @@
 ### CC Antya 15.23
 
-> কৃষ্ণের অধরামৃত, তাতে কর্পূর মন্দস্মিত,
-> স্ব-মাধুর্যে হরে নারীর মন ।
-> অন্যত্র ছাড়ায় লোভ, না পাইলে মনে ক্ষোভ,
+> কৃষ্ণের অধরামৃত, তাতে কর্পূর মন্দস্মিত,\
+> স্ব-মাধুর্যে হরে নারীর মন ।\
+> অন্যত্র ছাড়ায় লোভ, না পাইলে মনে ক্ষোভ,\
 > ব্রজনারীগণের মূলধন ।।” ॥ ২৩ ॥
 
-> kṛṣṇera adharāmṛta, tāte karpūra manda-smita,
-> sva-mādhurye hare nārīra mana
-> anyatra chāḍāya lobha, nā pāile mane kṣobha,
+> kṛṣṇera adharāmṛta, tāte karpūra manda-smita,\
+> sva-mādhurye hare nārīra mana\
+> anyatra chāḍāya lobha, nā pāile mane kṣobha,\
 > vraja-nārī-gaṇera mūla-dhana"
 
 *kṛṣṇera*—del Señor Kṛṣṇa; *adhara-amṛta*—la dulzura de los labios; *tāte*—con eso; *karpūra*—alcanfor; *manda-smita*—sonrisa suave; *sva-mādhurye*—por Su dulzura; *hare*—atrae; *nārīra mana*—las mentes de todas las mujeres; *anyatra*—en cualquier otra parte; *chāḍāya*—vence; *lobha*—la codicia; *nā pāile*—sin obtener; *mane*—en la mente; *kṣobha*—gran agitación; *vraja-nārī-gaṇera*—de todas las gopīs de Vṛndāvana; *mūla-dhana*—riqueza.

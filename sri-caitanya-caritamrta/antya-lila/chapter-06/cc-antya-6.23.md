@@ -1,9 +1,9 @@
 ### CC Antya 6.23
 
-> বিশেষে কায়স্থ-বুদ্ধ্যে অন্তরে করে ডর ।
+> বিশেষে কায়স্থ-বুদ্ধ্যে অন্তরে করে ডর ।\
 > মুখে তর্জে গর্জে, মারিতে সভয় অন্তর ॥২৩॥
 
-> viśeṣe kāyastha-buddhye antare kare ḍara
+> viśeṣe kāyastha-buddhye antare kare ḍara\
 > mukhe tarje garje, mārite sabhaya antara
 
 *viśeṣe*—specifically; *kāyastha-buddhye*—considering a kāyastha; *antare*—within his heart; *kare ḍara*—is afraid; *mukhe*—with his mouth; *tarje garje*—threatens; *mārite*—to beat; *sa-bhaya*—afraid; *antara*—at heart.

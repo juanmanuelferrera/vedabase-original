@@ -1,11 +1,11 @@
 ### SB 7.7.18
 
-> जन्माद्याः षडिमे भावा दृष्टा देहस्य नात्मनः
+> जन्माद्याः षडिमे भावा दृष्टा देहस्य नात्मनः\
 > फलानामिव वृक्षस्य कालेनेश्वरमूर्तिना ॥१८॥
 
-> janmādyāḥ ṣaḍ ime bhāvā
-> dṛṣṭā dehasya nātmanaḥ
-> phalānām iva vṛkṣasya
+> janmādyāḥ ṣaḍ ime bhāvā\
+> dṛṣṭā dehasya nātmanaḥ\
+> phalānām iva vṛkṣasya\
 > kāleneśvara-mūrtinā
 
 *janma-ādyāḥ*—comenzando con el nacimiento; *ṣaṭ*—los seis (nacimiento, existencia, crecimiento, transformación, decaimiento y, finalmente, muerte); *ime*—todas estas; *bhāvāḥ*—distintas condiciones del cuerpo; *dṛṣṭāḥ*—vistas; *dehasya*—del cuerpo; *na*—no; *ātmanaḥ*—del alma; *phalānām*—de los frutos; *iva*—como; *vṛkṣasya*—de un árbol; *kālena*—con el paso del tiempo; *īśvara-mūrtinā*—cuya forma es la capacidad de transformar o controlar las actividades del cuerpo.

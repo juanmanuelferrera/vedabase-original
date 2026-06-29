@@ -1,9 +1,9 @@
 ### CC Adi 13.27
 
-> বিবাহ করিলে হৈল নবীন যৌবন ।
+> বিবাহ করিলে হৈল নবীন যৌবন ।\
 > সর্বত্র লওয়াইল প্রভু নাম-সংকীর্তন ॥২৭॥
 
-> vivāha karile haila navīna yauvana
+> vivāha karile haila navīna yauvana\
 > sarvatra laoyāila prabhu nāma-saṅkīrtana
 
 *vivāha karile*—después de casarse; *haila*—comenzó; *navīna*—nueva; *yauvana*—juventud; *sarvatra*—en todas partes; *laoyāila*—indujo a aceptar; *prabhu*—el Señor; *nāma-saṅkīrtana*—el movimiento de saṅkīrtana.

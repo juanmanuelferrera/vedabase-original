@@ -1,13 +1,13 @@
 ### SB 5.11.1
 
-> ब्राह्मण उवाच
-> अकोविदः कोविदवादवादान्वदस्यथो नातिविदां वरिष्ठः
+> ब्राह्मण उवाच\
+> अकोविदः कोविदवादवादान्वदस्यथो नातिविदां वरिष्ठः\
 > न सूरयो हि व्यवहारमेनं तत्त्वावमर्शेन सहामनन्ति ॥१॥
 
-> brāhmaṇa uvāca
-> akovidaḥ kovida-vāda-vādān
-> vadasy atho nāti-vidāṁ variṣṭhaḥ
-> na sūrayo hi vyavahāram enaṁ
+> brāhmaṇa uvāca\
+> akovidaḥ kovida-vāda-vādān\
+> vadasy atho nāti-vidāṁ variṣṭhaḥ\
+> na sūrayo hi vyavahāram enaṁ\
 > tattvāvamarśena sahāmananti
 
 *brāhmaṇaḥ uvāca*—el *brāhmaṇa* dijo; *akovidaḥ*—sin tener experiencia; *kovida-vāda-vādān*—palabras empleadas por personas de experiencia; *vadasi*—estás hablando; *atho*—por lo tanto; *na*—no; *ati-vidām*—de los que son muy expertos; *variṣṭhaḥ*—lo más importante; *na*—no; *sūrayaḥ*—esas personas inteligentes; *hi*—en verdad; *vyavahāram*—comportamiento social y mundano; *enam*—eso; *tattva*—de la verdad; *avamarśena*—lúcido juicio de la inteligencia; *saha*—con; *āmananti*—hablan.

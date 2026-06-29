@@ -1,11 +1,11 @@
 ### SB 3.19.21
 
-> बहुभिर्यक्षरक्षोभिः पत्त्यश्वरथकुञ्जरैः ।
+> बहुभिर्यक्षरक्षोभिः पत्त्यश्वरथकुञ्जरैः ।\
 > आततायिभिरुत्सृष्टा हिंस्रा वाचोऽतिवैशसाः ॥२१॥
 
-> bahubhir yakṣa-rakṣobhiḥ
-> patty-aśva-ratha-kuñjaraiḥ
-> ātatāyibhir utsṛṣṭā
+> bahubhir yakṣa-rakṣobhiḥ\
+> patty-aśva-ratha-kuñjaraiḥ\
+> ātatāyibhir utsṛṣṭā\
 > hiṁsrā vāco 'tivaiśasāḥ
 
 *bahubhiḥ*—por muchos; *yakṣa-rakṣobhiḥ*—*yakṣas* y *rākṣasas*; *patti*—avanzando a pie; *aśva*—sobre caballos; *ratha*—en carruajes; *kuñjaraiḥ*—o en elefantes; *ātatāyibhiḥ*—groseras; *utsṛṣṭāḥ*—eran pronunciadas; *hiṁsrāḥ*—crueles; *vācaḥ*—palabras; *ati-vaiśasāḥ*—sanguinarias.

@@ -1,11 +1,11 @@
 ### SB 1.16.3
 
-> आजहाराश्वमेधांस्त्रीन्गङ्गायां भूरिदक्षिणान् ।
+> आजहाराश्वमेधांस्त्रीन्गङ्गायां भूरिदक्षिणान् ।\
 > शारद्वतं गुरुं कृत्वा देवा यत्राक्षिगोचराः ॥३॥
 
-> ājahārāśva-medhāṁs trīn
-> gaṅgāyāṁ bhūri-dakṣiṇān
-> śāradvataṁ guruṁ kṛtvā
+> ājahārāśva-medhāṁs trīn\
+> gaṅgāyāṁ bhūri-dakṣiṇān\
+> śāradvataṁ guruṁ kṛtvā\
 > devā yatrākṣi-gocarāḥ
 
 *ājahāra*—performed; *aśva-medhān*—horse sacrifices; *trīn*—three; *gaṅgāyām*—the bank of the Ganges; *bhūri*—sufficiently; *dakṣiṇān*—rewards; *śāradvatam*—unto Kṛpācārya; *gurum*—spiritual master; *kṛtvā*—having selected; *devāḥ*—the demigods; *yatra*—wherein; *akṣi*—eyes; *gocarāḥ*—within the purview.

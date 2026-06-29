@@ -1,9 +1,9 @@
 ### CC Adi 16.44
 
-> প্রভু কহে, দেবের বরে তুমি — ‘কবিবর’ ।
+> প্রভু কহে, দেবের বরে তুমি — ‘কবিবর’ ।\
 > ঐছে দেবের বরে কেহো হয় ‘শ্রুতিধর’ ॥৪৪॥
 
-> prabhu kahe, devera vare tumi—'kavi-vara'
+> prabhu kahe, devera vare tumi—'kavi-vara'\
 > aiche devera vare keho haya 'śrutidhara'
 
 *prabhu*—the Lord; *kahe*—replied; *devera*—of a superior power; *vare*—by benediction; *tumi*—you; *kavi-vara*—the most elevated poet; *aiche*—similarly; *devera*—of the Lord; *vare*—by the benediction; *keho*—someone; *haya*—becomes; *śruti-dhara*—one who can immediately remember.

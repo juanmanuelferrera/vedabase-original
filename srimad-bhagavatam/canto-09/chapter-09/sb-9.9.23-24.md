@@ -1,18 +1,18 @@
 ### SB 9.9.23-24
 
-> रक्षःकृतं तद्विदित्वा चक्रे द्वादशवार्षिकम
-> सोऽप्यपोऽञ्जलिमादाय गुरुं शप्तुं समुद्यतः ॥२३॥
-> वारितो मदयन्त्यापो रुशतीः पादयोर्जहौ
+> रक्षःकृतं तद्विदित्वा चक्रे द्वादशवार्षिकम\
+> सोऽप्यपोऽञ्जलिमादाय गुरुं शप्तुं समुद्यतः ॥२३॥\
+> वारितो मदयन्त्यापो रुशतीः पादयोर्जहौ\
 > दिशः खमवनीं सर्वं पश्यन्जीवमयं नृपः ॥२४॥
 
-> rakṣaḥ-kṛtaṁ tad viditvā
-> cakre dvādaśa-vārṣikam
-> so 'py apo-'ñjalim ādāya
+> rakṣaḥ-kṛtaṁ tad viditvā\
+> cakre dvādaśa-vārṣikam\
+> so 'py apo-'ñjalim ādāya\
 > guruṁ śaptuṁ samudyataḥ
 
-> vārito madayantyāpo
-> ruśatīḥ pādayor jahau
-> diśaḥ kham avanīṁ sarvaṁ
+> vārito madayantyāpo\
+> ruśatīḥ pādayor jahau\
+> diśaḥ kham avanīṁ sarvaṁ\
 > paśyañ jīvamayaṁ nṛpaḥ
 
 *rakṣaḥ-kṛtam*—having been done by the Rākṣasa only; *tat*—that serving of human flesh; *viditvā*—after understanding; *cakre*—(Vasiṣṭha) performed; *dvādaśa-vārṣikam*—twelve years of penance for atonement; *saḥ*—that Saudāsa; *api*—also; *apaḥ-añjalim*—a palmful of water; *ādāya*—taking; *gurum*—his spiritual master, Vasiṣṭha; *śaptum*—to curse; *samudyataḥ*—was preparing; *vāritaḥ*—being forbidden; *madayantyā*—by his wife, who was also known as Madayantī; *apaḥ*—water; *ruśatīḥ*—strong by chanting of a *mantra*; *pādayoḥ jahau*—threw on his legs; *diśaḥ*—all directions; *kham*—in the sky; *avanīm*—on the surface of the world; *sarvam*—everywhere; *paśyan*—seeing; *jīva-mayam*—full of living entities; *nṛpaḥ*—the King.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.210
 
-> পত্র লঞা পুনঃ দক্ষিণ-মথুরা আইলা ৷
+> পত্র লঞা পুনঃ দক্ষিণ-মথুরা আইলা ৷\
 > রামদাস বিপ্রে সেই পত্র আনি দিলা ৷৷ ২১০ ৷৷ ॥২১০॥
 
-> patra lañā punaḥ dakṣiṇa-mathurā āilā
+> patra lañā punaḥ dakṣiṇa-mathurā āilā\
 > rāmadāsa vipre sei patra āni dilā
 
 *patra lañā*—tomando esas hojas; *punaḥ*—de nuevo; *dakṣiṇa-mathurā*—a la Mathurā del sur; *āilā*—vino; *rāmadāsa vipre*—al brāhmaṇa conocido como Rāmadāsa; *sei patra*—esas hojas; *āni*—trayendo de vuelta; *dilā*—entregó.

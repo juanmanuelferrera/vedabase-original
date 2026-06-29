@@ -1,11 +1,11 @@
 ### SB 4.14.19
 
-> तस्य राज्ञो महाभाग भगवान्भूतभावनः ।
+> तस्य राज्ञो महाभाग भगवान्भूतभावनः ।\
 > परितुष्यति विश्वात्मा तिष्ठतो निजशासने ॥१९॥
 
-> tasya rājño mahā-bhāga
-> bhagavān bhūta-bhāvanaḥ
-> parituṣyati viśvātmā
+> tasya rājño mahā-bhāga\
+> bhagavān bhūta-bhāvanaḥ\
+> parituṣyati viśvātmā\
 > tiṣṭhato nija-śāsane
 
 *tasya*—with him; *rājñaḥ*—the king; *mahā-bhāga*—O noble one; *bhagavān*—the Supreme Personality of Godhead; *bhūta-bhāvanaḥ*—who is the original cause of the cosmic manifestation; *parituṣyati*—becomes satisfied; *viśva-ātmā*—the Supersoul of the entire universe; *tiṣṭhataḥ*—being situated; *nija-śāsane*—in his own governing situation.

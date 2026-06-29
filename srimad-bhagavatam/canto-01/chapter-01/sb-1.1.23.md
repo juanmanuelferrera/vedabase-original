@@ -1,11 +1,11 @@
 ### SB 1.1.23
 
-> ब्रूहि योगेश्वरे कृष्णे ब्रह्मण्ये धर्मवर्मणि ।
+> ब्रूहि योगेश्वरे कृष्णे ब्रह्मण्ये धर्मवर्मणि ।\
 > स्वां काष्ठामधुनोपेते धर्मः कं शरणं गतः ॥२३॥
 
-> brūhi yogeśvare kṛṣṇe
-> brahmaṇye dharma-varmaṇi
-> svāṁ kāṣṭhām adhunopete
+> brūhi yogeśvare kṛṣṇe\
+> brahmaṇye dharma-varmaṇi\
+> svāṁ kāṣṭhām adhunopete\
 > dharmaḥ kaṁ śaraṇaṁ gataḥ
 
 *brūhi*—please tell; *yoga-īśvare*—the Lord of all mystic powers; *kṛṣṇe*—Lord Kṛṣṇa; *brahmaṇye*—the Absolute Truth; *dharma*—religion; *varmaṇi*—protector; *svām*—own; *kāṣṭhām*—abode; *adhunā*—nowadays; *upete*—having gone away; *dharmaḥ*—religion; *kam*—unto whom; *śaraṇam*—shelter; *gataḥ*—gone.

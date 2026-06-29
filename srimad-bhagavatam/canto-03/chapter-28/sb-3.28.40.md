@@ -1,11 +1,11 @@
 ### SB 3.28.40
 
-> यथोल्मुकाद्विस्फुलिङ्गाद्धूमाद्वापि स्वसम्भवात् ।
+> यथोल्मुकाद्विस्फुलिङ्गाद्धूमाद्वापि स्वसम्भवात् ।\
 > अप्यात्मत्वेनाभिमताद्यथाग्निः पृथगुल्मुकात् ॥४०॥
 
-> yatholmukād visphuliṅgād
-> dhūmād vāpi sva-sambhavāt
-> apy ātmatvenābhimatād
+> yatholmukād visphuliṅgād\
+> dhūmād vāpi sva-sambhavāt\
+> apy ātmatvenābhimatād\
 > yathāgniḥ pṛthag ulmukāt
 
 *yathā*—as; *ulmukāt*—from the flames; *visphuliṅgāt*—from the sparks; *dhūmāt*—from the smoke; *vā*—or; *api*—even; *sva-sambhavāt*—produced from itself; *api*—although; *ātmatvena*—by nature; *abhimatāt*—intimately connected; *yathā*—as; *agniḥ*—the fire; *pṛthak*—different; *ulmukāt*—from the flames.

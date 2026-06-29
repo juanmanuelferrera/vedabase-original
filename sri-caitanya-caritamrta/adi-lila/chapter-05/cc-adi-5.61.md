@@ -1,9 +1,9 @@
 ### CC Adi 5.61
 
-> অতএব কৃষ্ণ মূল-জগত্কারণ ।
+> অতএব কৃষ্ণ মূল-জগত্কারণ ।\
 > প্রকৃতি — কারণ যৈছে অজাগলস্তন ॥৬১॥
 
-> ataeva kṛṣṇa mūla-jagat-kāraṇa
+> ataeva kṛṣṇa mūla-jagat-kāraṇa\
 > prakṛti—kāraṇa yaiche ajā-gala-stana
 
 *ataeva*—therefore; *kṛṣṇa*—Lord Kṛṣṇa; *mūla*—original; *jagat-kāraṇa*—the cause of the cosmic manifestation; *prakṛti*—material nature; *kāraṇa*—cause; *yaiche*—exactly like; *ajā-gala-stana*—nipples on the neck of a goat.

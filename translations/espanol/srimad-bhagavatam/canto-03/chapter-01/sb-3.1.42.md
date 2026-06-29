@@ -1,11 +1,11 @@
 ### SB 3.1.42
 
-> सोऽहं हरेर्मर्त्यविडम्बनेन दृशो नृणां चालयतो विधातुः ।
+> सोऽहं हरेर्मर्त्यविडम्बनेन दृशो नृणां चालयतो विधातुः ।\
 > नान्योपलक्ष्यः पदवीं प्रसादाच्चरामि पश्यन्गतविस्मयोऽत्र ॥४२॥
 
-> so 'haṁ harer martya-viḍambanena
-> dṛśo nṛṇāṁ cālayato vidhātuḥ
-> nānyopalakṣyaḥ padavīṁ prasādāc
+> so 'haṁ harer martya-viḍambanena\
+> dṛśo nṛṇāṁ cālayato vidhātuḥ\
+> nānyopalakṣyaḥ padavīṁ prasādāc\
 > carāmi paśyan gata-vismayo 'tra
 
 *saḥ aham*—por lo tanto, yo; *hareḥ*—de la Personalidad de Dios; *martya*—en este mundo mortal; *viḍambanena*—sin ser reconocido; *dṛśaḥ*—a la vista; *nṛṇām*—de la gente en general; *cālayataḥ*—que confunde; *vidhātuḥ*—para poder hacerlo; *na*—no; *anya*—otro; *upalakṣyaḥ*—visto por otros; *padavīm*—glorias; *prasādāt*—por la gracia de; *carāmi*—viajo; *paśyan*—por ver; *gata-vismayaḥ*—sin lugar a dudas; *atra*—en cuanto a eso.

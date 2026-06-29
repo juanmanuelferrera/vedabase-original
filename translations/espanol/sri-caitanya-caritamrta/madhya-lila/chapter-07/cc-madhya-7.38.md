@@ -1,9 +1,9 @@
 ### CC Madhya 7.38
 
-> প্রেমাবেশে পথে তুমি হবে অচেতন ৷
+> প্রেমাবেশে পথে তুমি হবে অচেতন ৷\
 > এ-সব সামগ্রী তোমার কে করে রক্ষণ ৷৷ ৩৮ ৷৷ ॥৩৮॥
 
-> premāveśe pathe tumi habe acetana
+> premāveśe pathe tumi habe acetana\
 > e-saba sāmagrī tomāra ke kare rakṣaṇa
 
 *prema-āveśe*—en éxtasis de amor por Dios; *pathe*—en el camino; *tumi*—Tú; *habe*—quedarás; *acetana*—inconsciente; *e-saba*—todas estas; *sāmagrī*—pertenencias; *tomāra*—Tuyas; *ke*—quién; *kare*—hace; *rakṣaṇa*—protección.

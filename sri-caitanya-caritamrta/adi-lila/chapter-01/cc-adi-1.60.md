@@ -1,13 +1,13 @@
 ### CC Adi 1.60
 
-> সতাং প্রসঙ্গান্মম বীর্যসংবিদো
-> ভবন্তি হৃৎকর্ণরসায়নাঃ কথাঃ ।
-> তজ্জোষণাদাশ্বপবর্গবর্ত্মনি
+> সতাং প্রসঙ্গান্মম বীর্যসংবিদো\
+> ভবন্তি হৃৎকর্ণরসায়নাঃ কথাঃ ।\
+> তজ্জোষণাদাশ্বপবর্গবর্ত্মনি\
 > শ্রদ্ধা রতির্ভক্তিরনুক্রমিষ্যতি ॥৬০॥
 
-> satāṁ prasaṅgān mama vīrya-saṁvido
-> bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ
-> taj-joṣaṇād āśv apavarga-vartmani
+> satāṁ prasaṅgān mama vīrya-saṁvido\
+> bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ\
+> taj-joṣaṇād āśv apavarga-vartmani\
 > śraddhā ratir bhaktir anukramiṣyati
 
 *satām*—of the devotees; *prasaṅgāt*—by intimate association; *mama*—of Me; *vīrya-saṁvidaḥ*—talks full of spiritual potency; *bhavanti*—appear; *hṛt*—to the heart; *karṇa*—and to the ears; *rasa-āyanāḥ*—a source of sweetness; *kathāḥ*—talks; *tat*—of them; *joṣaṇāt*—from proper cultivation; *āśu*—quickly; *apavarga*—of liberation; *vartmani*—on the path; *śraddhā*—faith; *ratiḥ*—attraction; *bhaktiḥ*—love; *anukramiṣyati*—will follow one after another.

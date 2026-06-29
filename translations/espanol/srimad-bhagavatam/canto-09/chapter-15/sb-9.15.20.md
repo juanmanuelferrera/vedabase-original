@@ -1,11 +1,11 @@
 ### SB 9.15.20
 
-> स्त्रीरत्नैरावृतः क्रीडन्रेवाम्भसि मदोत्कटः
+> स्त्रीरत्नैरावृतः क्रीडन्रेवाम्भसि मदोत्कटः\
 > वैजयन्तीं स्रजं बिभ्रद्रुरोध सरितं भुजैः ॥२०॥
 
-> strī-ratnair āvṛtaḥ krīḍan
-> revāmbhasi madotkaṭaḥ
-> vaijayantīṁ srajaṁ bibhrad
+> strī-ratnair āvṛtaḥ krīḍan\
+> revāmbhasi madotkaṭaḥ\
+> vaijayantīṁ srajaṁ bibhrad\
 > rurodha saritaṁ bhujaiḥ
 
 *strī-ratnaiḥ*—por hermosas mujeres; *āvṛtaḥ*—rodeado; *krīḍan*—disfrutar; *revā-ambhasi*—en las aguas del río Revā, o Narmadā; *mada-utkaṭaḥ*—demasiado envanecido de su opulencia; *vaijayantīm srajam*—el collar de flores del vencedor; *bibhrat*—adornado con; *rurodha*—detuvo el flujo; *saritam*—del río; *bhujaiḥ*—con sus brazos.

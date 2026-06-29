@@ -1,9 +1,9 @@
 ### CC Antya 2.95
 
-> বৈষ্ণব হঞা যেবা শারীরক-ভাষ্য শুনে ।
+> বৈষ্ণব হঞা যেবা শারীরক-ভাষ্য শুনে ।\
 > সেব্য-সেবক-ভাব ছাড়ি’ আপনারে ‘ঈশ্বর’ মানে ॥৯৫॥
 
-> vaiṣṇava hañā yebā śārīraka-bhāṣya śune
+> vaiṣṇava hañā yebā śārīraka-bhāṣya śune\
 > sevya-sevaka-bhāva chāḍi' āpanāre 'īśvara' māne
 
 *vaiṣṇava hañā*—being a Vaiṣṇava; *yebā*—anyone who; *śārīraka-bhāṣya*—the Māyāvāda commentary *Śārīraka-bhāṣya*; *śune*—listens to; *sevya-sevaka-bhāva*—the Kṛṣṇa conscious attitude that the Lord is the master and the living entity is His servant; *chāḍi'*—giving up; *āpanāre*—himself; *īśvara*—the Supreme Lord; *māne*—considers.

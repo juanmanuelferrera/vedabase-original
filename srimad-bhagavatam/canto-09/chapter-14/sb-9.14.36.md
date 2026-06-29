@@ -1,13 +1,13 @@
 ### SB 9.14.36
 
-> उर्वश्युवाच
-> मा मृथाः पुरुषोऽसि त्वं मा स्म त्वाद्युर्वृका इमे
+> उर्वश्युवाच\
+> मा मृथाः पुरुषोऽसि त्वं मा स्म त्वाद्युर्वृका इमे\
 > क्वापि सख्यं न वै स्त्रीणां वृकाणां हृदयं यथा ॥३६॥
 
-> urvaśy uvāca
-> mā mṛthāḥ puruṣo 'si tvaṁ
-> mā sma tvādyur vṛkā ime
-> kvāpi sakhyaṁ na vai strīṇāṁ
+> urvaśy uvāca\
+> mā mṛthāḥ puruṣo 'si tvaṁ\
+> mā sma tvādyur vṛkā ime\
+> kvāpi sakhyaṁ na vai strīṇāṁ\
 > vṛkāṇāṁ hṛdayaṁ yathā
 
 *urvaśī uvāca*—Urvaśī said; *mā*—do not; *mṛthāḥ*—give up your life; *puruṣaḥ*—male; *asi*—are; *tvam*—you; *mā sma*—do not allow it; *tvā*—unto you; *adyuḥ*—may eat; *vṛkāḥ*—the foxes; *ime*—these senses (do not be under the control of your senses); *kva api*—anywhere; *sakhyam*—friendship; *na*—not; *vai*—indeed; *strīṇām*—of women; *vṛkāṇām*—of the foxes; *hṛdayam*—the heart; *yathā*—as.

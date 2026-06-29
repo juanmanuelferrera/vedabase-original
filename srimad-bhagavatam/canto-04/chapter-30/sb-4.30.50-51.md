@@ -1,18 +1,18 @@
 ### SB 4.30.50-51
 
-> यो जायमानः सर्वेषां तेजस्तेजस्विनां रुचा ।
-> स्वयोपादत्त दाक्ष्याच्च कर्मणां दक्षमब्रुवन् ॥५०॥
-> तं प्रजासर्गरक्षायामनादिरभिषिच्य च ।
+> यो जायमानः सर्वेषां तेजस्तेजस्विनां रुचा ।\
+> स्वयोपादत्त दाक्ष्याच्च कर्मणां दक्षमब्रुवन् ॥५०॥\
+> तं प्रजासर्गरक्षायामनादिरभिषिच्य च ।\
 > युयोज युयुजेऽन्यांश्च स वै सर्वप्रजापतीन् ॥५१॥
 
-> yo jāyamānaḥ sarveṣāṁ
-> tejas tejasvināṁ rucā
-> svayopādatta dākṣyāc ca
+> yo jāyamānaḥ sarveṣāṁ\
+> tejas tejasvināṁ rucā\
+> svayopādatta dākṣyāc ca\
 > karmaṇāṁ dakṣam abruvan
 
-> taṁ prajā-sarga-rakṣāyām
-> anādir abhiṣicya ca
-> yuyoja yuyuje 'nyāṁś ca
+> taṁ prajā-sarga-rakṣāyām\
+> anādir abhiṣicya ca\
+> yuyoja yuyuje 'nyāṁś ca\
 > sa vai sarva-prajāpatīn
 
 *yaḥ*—one who; *jāyamānaḥ*—just after his birth; *sarveṣām*—of all; *tejaḥ*—the brilliance; *tejasvinām*—brilliant; *rucā*—by effulgence; *svayā*—his; *upādatta*—covered; *dākṣyāt*—from being expert; *ca*—and; *karmaṇām*—in fruitive activities; *dakṣam*—Dakṣa; *abruvan*—was called; *tam*—him; *prajā*—living beings; *sarga*—generating; *rakṣāyām*—in the matter of maintaining; *anādiḥ*—the firstborn, Lord Brahmā; *abhiṣicya*—having appointed; *ca*—also; *yuyoja*—engaged; *yuyuje*—engaged; *anyān*—others; *ca*—and; *saḥ*—he; *vai*—certainly; *sarva*—all; *prajā-patīn*—progenitors of living entities.

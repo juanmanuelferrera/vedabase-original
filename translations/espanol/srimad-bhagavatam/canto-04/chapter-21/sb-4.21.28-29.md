@@ -1,18 +1,18 @@
 ### SB 4.21.28-29
 
-> मनोरुत्तानपादस्य ध्रुवस्यापि महीपतेः ।
-> प्रियव्रतस्य राजर्षेरङ्गस्यास्मत्पितुः पितुः ॥२८॥
-> ईदृशानामथान्येषामजस्य च भवस्य च ।
+> मनोरुत्तानपादस्य ध्रुवस्यापि महीपतेः ।\
+> प्रियव्रतस्य राजर्षेरङ्गस्यास्मत्पितुः पितुः ॥२८॥\
+> ईदृशानामथान्येषामजस्य च भवस्य च ।\
 > प्रह्लादस्य बलेश्चापि कृत्यमस्ति गदाभृता ॥२९॥
 
-> manor uttānapādasya
-> dhruvasyāpi mahīpateḥ
-> priyavratasya rājarṣer
+> manor uttānapādasya\
+> dhruvasyāpi mahīpateḥ\
+> priyavratasya rājarṣer\
 > aṅgasyāsmat-pituḥ pituḥ
 
-> īdṛśānām athānyeṣām
-> ajasya ca bhavasya ca
-> prahlādasya baleś cāpi
+> īdṛśānām athānyeṣām\
+> ajasya ca bhavasya ca\
+> prahlādasya baleś cāpi\
 > kṛtyam asti gadābhṛtā
 
 *manoḥ*—de Manu (Svāyambhuva Manu); *uttānapādasya*—de Uttānapāda, el padre de Dhruva Mahārāja; *dhruvasya*—de Dhruva Mahārāja; *api*—ciertamente; *mahī-pateḥ*—del gran rey; *priyavratasya*—de Priyavrata, en la familia de Mahārāja Dhruva; *rājarṣeḥ*—de grandes reyes santos; *aṅgasya*—de nombre Aṅga; *asmat*—mí; *pituḥ*—de mi padre; *pituḥ*—del padre; *īdṛśānām*—de esas personalidades; *atha*—también; *anyeṣām*—de otros; *ajasya*—del inmortal supremo; *ca*—también; *bhavasya*—de las entidades vivientes; *ca*—también; *prahlādasya*—de Mahārāja Prahlāda; *baleḥ*—de Mahārāja Bali; *ca*—también; *api*—ciertamente; *kṛtyam*—reconocido por ellos; *asti*—hay; *gadā-bhṛtā*—la Suprema Personalidad de Dios, el portador de la maza.

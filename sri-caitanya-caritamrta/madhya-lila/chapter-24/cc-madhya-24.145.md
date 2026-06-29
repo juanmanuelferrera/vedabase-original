@@ -1,9 +1,9 @@
 ### CC Madhya 24.145
 
-> এই ছয় আত্মারাম কৃষ্ণেরে ভজয় ।
+> এই ছয় আত্মারাম কৃষ্ণেরে ভজয় ।\
 > পৃথক্ পৃথক্ চ-কারে ইহা ‘অপি’র অর্থ কয় ॥১৪৫॥
 
-> ei chaya ātmārāma kṛṣṇere bhajaya
+> ei chaya ātmārāma kṛṣṇere bhajaya\
 > pṛthak pṛthak ca-kāre ihā 'api'ra artha kaya
 
 *ei chaya*—all these six; *ātmārāma*—transcendentalists; *kṛṣṇere bhajaya*—render service to Kṛṣṇa; *pṛthak pṛthak*—separately; *ca-kāre*—in the use of the word *ca*; *ihā*—here; *'api'ra*—of the word *api*; *artha*—meaning; *kaya*—says.

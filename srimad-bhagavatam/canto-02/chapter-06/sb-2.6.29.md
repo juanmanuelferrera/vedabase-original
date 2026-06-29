@@ -1,11 +1,11 @@
 ### SB 2.6.29
 
-> ततस्ते भ्रातर इमे प्रजानां पतयो नव ।
+> ततस्ते भ्रातर इमे प्रजानां पतयो नव ।\
 > अयजन्व्यक्तमव्यक्तं पुरुषं सुसमाहिताः ॥२९॥
 
-> tatas te bhrātara ime
-> prajānāṁ patayo nava
-> ayajan vyaktam avyaktaṁ
+> tatas te bhrātara ime\
+> prajānāṁ patayo nava\
+> ayajan vyaktam avyaktaṁ\
 > puruṣaṁ su-samāhitāḥ
 
 *tataḥ*—thereafter; *te*—your; *bhrātaraḥ*—brothers; *ime*—these; *prajānām*—of the living creatures; *patayaḥ*—masters; *nava*—nine; *ayajan*—performed; *vyaktam*—manifested; *avyaktam*—nonmanifested; *puruṣam*—personalities; *su-samāhitāḥ*—with proper rituals.

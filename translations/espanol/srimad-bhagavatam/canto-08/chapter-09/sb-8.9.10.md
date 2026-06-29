@@ -1,11 +1,11 @@
 ### SB 8.9.10
 
-> सालावृकाणां स्त्रीणां च स्वैरिणीनां सुरद्विषः
+> सालावृकाणां स्त्रीणां च स्वैरिणीनां सुरद्विषः\
 > सख्यान्याहुरनित्यानि नूत्नं नूत्नं विचिन्वताम ॥१०॥
 
-> sālāvṛkāṇāṁ strīṇāṁ ca
-> svairiṇīnāṁ sura-dviṣaḥ
-> sakhyāny āhur anityāni
+> sālāvṛkāṇāṁ strīṇāṁ ca\
+> svairiṇīnāṁ sura-dviṣaḥ\
+> sakhyāny āhur anityāni\
 > nūtnaṁ nūtnaṁ vicinvatām
 
 *sālāvṛkāṇām*—de monos, chacales y perros; *strīṇām ca*—y de mujeres; *svairiṇīnām*—en especial las mujeres que son independientes; *sura-dviṣaḥ*—¡oh, demonios!; *sakhyāni*—amistad; *āhuḥ*—se dice; *anityāni*—temporal; *nūtnam*—nuevos amigos; *nūtnam*—nuevos amigos; *vicinvatām*—todos los cuales están pensando.

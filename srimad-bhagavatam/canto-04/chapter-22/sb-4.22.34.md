@@ -1,11 +1,11 @@
 ### SB 4.22.34
 
-> न कुर्यात्कर्हिचित्सङ्गं तमस्तीव्रं तितीरिषुः ।
+> न कुर्यात्कर्हिचित्सङ्गं तमस्तीव्रं तितीरिषुः ।\
 > धर्मार्थकाममोक्षाणां यदत्यन्तविघातकम् ॥३४॥
 
-> na kuryāt karhicit saṅgaṁ
-> tamas tīvraṁ titīriṣuḥ
-> dharmārtha-kāma-mokṣāṇāṁ
+> na kuryāt karhicit saṅgaṁ\
+> tamas tīvraṁ titīriṣuḥ\
+> dharmārtha-kāma-mokṣāṇāṁ\
 > yad atyanta-vighātakam
 
 *na*—do not; *kuryāt*—act; *karhicit*—at any time; *saṅgam*—association; *tamaḥ*—ignorance; *tīvram*—with great speed; *titīriṣuḥ*—persons who desire to cross over nescience; *dharma*—religion; *artha*—economic development; *kāma*—sense gratification; *mokṣāṇām*—of salvation; *yat*—that which; *atyanta*—very much; *vighātakam*—obstruction or stumbling block.

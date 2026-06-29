@@ -1,11 +1,11 @@
 ### SB 6.13.7
 
-> हयमेधेन पुरुषं परमात्मानमीश्वरम
+> हयमेधेन पुरुषं परमात्मानमीश्वरम\
 > इष्ट्वा नारायणं देवं मोक्ष्यसेऽपि जगद्वधात ॥७॥
 
-> hayamedhena puruṣaṁ
-> paramātmānam īśvaram
-> iṣṭvā nārāyaṇaṁ devaṁ
+> hayamedhena puruṣaṁ\
+> paramātmānam īśvaram\
+> iṣṭvā nārāyaṇaṁ devaṁ\
 > mokṣyase 'pi jagad-vadhāt
 
 *hayamedhena*—by the sacrifice known as *aśvamedha*; *puruṣam*—the Supreme Person; *paramātmānam*—the Supersoul; *īśvaram*—the supreme controller; *iṣṭvā*—worshiping; *nārāyaṇam*—Lord Nārāyaṇa; *devam*—the Supreme Lord; *mokṣyase*—you will be liberated; *api*—even; *jagat-vadhāt*—from the sin for killing the whole world.

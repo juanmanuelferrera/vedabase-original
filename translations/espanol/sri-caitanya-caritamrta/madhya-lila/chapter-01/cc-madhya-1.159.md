@@ -1,9 +1,9 @@
 ### CC Madhya 1.159
 
-> শীতল সমীর বহে নানা গন্ধ লঞা ।
+> শীতল সমীর বহে নানা গন্ধ লঞা ।\
 > ‘কানাইর নাটশালা’ পর্যন্ত লইল বান্ধিঞা ॥১৫৯॥
 
-> śītala samīra vahe nānā gandha lañā
+> śītala samīra vahe nānā gandha lañā\
 > 'kānāira nāṭaśālā' paryanta la-ila bāndhiñā
 
 *śītala*—muy frescas; *samīra*—brisas; *vahe*—soplando; *nānā*—diversas; *gandha*—fragancias; *lañā*—llevando; *kānāira nāṭa-śālā*—el lugar llamado Kānāi Nāṭaśālā; *paryanta*—hasta; *la-ila*—llevó; *bāndhiñā*—construyendo.

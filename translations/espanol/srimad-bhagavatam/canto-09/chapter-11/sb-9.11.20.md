@@ -1,13 +1,13 @@
 ### SB 9.11.20
 
-> नेदं यशो रघुपतेः सुरयाचञ्अयात्त
-> लीलातनोरधिकसाम्यविमुक्तधाम्नः
-> रक्षोवधो जलधिबन्धनमस्त्रपूगैः
+> नेदं यशो रघुपतेः सुरयाचञ्अयात्त\
+> लीलातनोरधिकसाम्यविमुक्तधाम्नः\
+> रक्षोवधो जलधिबन्धनमस्त्रपूगैः\
 > किं तस्य शत्रुहनने कपयः सहायाः ॥२०॥
 
-> nedaṁ yaśo raghupateḥ sura-yācñayātta-
-> līlā-tanor adhika-sāmya-vimukta-dhāmnaḥ
-> rakṣo-vadho jaladhi-bandhanam astra-pūgaiḥ
+> nedaṁ yaśo raghupateḥ sura-yācñayātta-\
+> līlā-tanor adhika-sāmya-vimukta-dhāmnaḥ\
+> rakṣo-vadho jaladhi-bandhanam astra-pūgaiḥ\
 > kiṁ tasya śatru-hanane kapayaḥ sahāyāḥ
 
 *na*—no; *idam*—todos estos; *yaśaḥ*—fama; *raghu-pateḥ*—del Señor Rāmacandra; *sura-yācñayā*—por las oraciones de los semidioses; *ātta-līlā-tanoḥ*—cuyo cuerpo espiritual está siempre ocupado en diversos pasatiempos; *adhika-sāmya-vimukta-dhāmnaḥ*—nadie es igual ni más grande que Él; *rakṣaḥ-vadhaḥ*—matar al *rākṣasa* (Rāvaṇa); *jaladhi-bandhanam*—construir un puente sobre el océano; *astra-pūgaiḥ*—con arco y flechas; *kim*—si; *tasya*—Su; *śatru-hanane*—en matar a los enemigos; *kapayaḥ*—los monos; *sahāyāḥ*—asistentes.

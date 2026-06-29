@@ -1,11 +1,11 @@
 ### SB 5.18.33
 
-> यस्मिन्नसङ्ख्येयविशेषनाम रूपाकृतौ कविभिः कल्पितेयम
+> यस्मिन्नसङ्ख्येयविशेषनाम रूपाकृतौ कविभिः कल्पितेयम\
 > सङ्ख्या यया तत्त्वदृशापनीयते तस्मै नमः साङ्ख्यनिदर्शनाय ते इति ॥३३॥
 
-> yasminn asaṅkhyeya-viśeṣa-nāma-
-> rūpākṛtau kavibhiḥ kalpiteyam
-> saṅkhyā yayā tattva-dṛśāpanīyate
+> yasminn asaṅkhyeya-viśeṣa-nāma-\
+> rūpākṛtau kavibhiḥ kalpiteyam\
+> saṅkhyā yayā tattva-dṛśāpanīyate\
 > tasmai namaḥ sāṅkhya-nidarśanāya te iti
 
 *yasmin*—en Ti (la Suprema Personalidad de Dios); *asaṅkhyeya*—incontables; *viśeṣa*—particulares; *nāma*—nombres; *rūpa*—formas; *ākṛtau*—con rasgos corporales; *kavibhiḥ*—por grandes personas eruditas; *kalpitā*—imaginados; *iyam*—ese; *saṅkhyā*—número; *yayā*—por el cual; *tattva*—de la verdad; *dṛśā*—con conocimiento; *apanīyate*—se extrae; *tasmai*—a Él; *namaḥ*—reverencias respetuosas; *sāṅkhya-nidarśanāya*—que es quien revela este conocimiento numérico; *te*—a Ti; *iti*—así.

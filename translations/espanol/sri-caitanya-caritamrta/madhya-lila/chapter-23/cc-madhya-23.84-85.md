@@ -1,15 +1,15 @@
 ### CC Madhya 23.84-85
 
-> লীলা প্রেম্ণা প্রিয়াধিক্যং মাধুর্যং বেণুরূপয়োঃ ।
-> ইত্যসাধারণং প্রোক্তং গোবিন্দস্য চতুষ্টয়ম্ ॥৮৪॥
+> লীলা প্রেম্ণা প্রিয়াধিক্যং মাধুর্যং বেণুরূপয়োঃ ।\
+> ইত্যসাধারণং প্রোক্তং গোবিন্দস্য চতুষ্টয়ম্ ॥৮৪॥\
 > এবং গুণাশ্চতুর্ভেদাশ্চতুঃষষ্টিরুদাহৃতাঃ ॥৮৫॥
 
-> līlā premṇā priyādhikyaṁ
-> mādhuryaṁ veṇu-rūpayoḥ
-> ity asādhāraṇaṁ proktaṁ
+> līlā premṇā priyādhikyaṁ\
+> mādhuryaṁ veṇu-rūpayoḥ\
+> ity asādhāraṇaṁ proktaṁ\
 > govindasya catuṣṭayam
 
-> evaṁ guṇāś catur-bhedāś
+> evaṁ guṇāś catur-bhedāś\
 > catuḥ-ṣaṣṭir udāhṛtāḥ
 
 *līlā*—pasatiempos; *premṇā*—con amor trascendental; *priya-ādhikyam*—abundancia de devotos muy elevados; *mādhuryam*—dulzura; *veṇu-rūpayoḥ*—de la flauta y de la belleza de Kṛṣṇa; *iti*—así; *asādhāraṇam*—extraordinarios; *proktam*—dicho; *govindasya*—del Señor Kṛṣṇa; *catuṣṭayam*—cuatro rasgos especiales; *evam*—de ese modo; *guṇāḥ*—cualidades trascendentales; *catuḥ-bhedāḥ*—con cuatro divisiones; *catuḥ-ṣaṣṭiḥ*—sesenta y cuatro; *udāhṛtāḥ*—declaradas.

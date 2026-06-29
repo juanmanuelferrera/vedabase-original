@@ -1,9 +1,9 @@
 ### CC Adi 7.23
 
-> পাত্রাপাত্র-বিচার নাহি, নাহি স্থানাস্থান ।
+> পাত্রাপাত্র-বিচার নাহি, নাহি স্থানাস্থান ।\
 > যেই যাঁহা পায়, তাঁহা করে প্রেমদান ॥২৩॥
 
-> pātrāpātra-vicāra nāhi, nāhi sthānāsthāna
+> pātrāpātra-vicāra nāhi, nāhi sthānāsthāna\
 > yei yāṅhā pāya, tāṅhā kare prema-dāna
 
 *pātra*—recipient; *apātra*—not a recipient; *vicāra*—consideration; *nāhi*—there is none; *nāhi*—there is none; *sthāna*—favorable place; *asthāna*—unfavorable place; *yei*—anyone; *yāṅhā*—wherever; *pāya*—gets the opportunity; *tāṅhā*—there only; *kare*—does; *prema-dāna*—distribution of love of Godhead.

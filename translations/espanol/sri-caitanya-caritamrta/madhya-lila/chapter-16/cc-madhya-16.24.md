@@ -1,9 +1,9 @@
 ### CC Madhya 16.24
 
-> আচার্যরত্ন-সঙ্গে চলে তাঁহার গৃহিণী ।
+> আচার্যরত্ন-সঙ্গে চলে তাঁহার গৃহিণী ।\
 > তাঁহার প্রেমের কথা কহিতে না জানি ॥২৪॥
 
-> ācāryaratna-saṅge cale tāṅhāra gṛhiṇī
+> ācāryaratna-saṅge cale tāṅhāra gṛhiṇī\
 > tāṅhāra premera kathā kahite nā jāni
 
 *ācāryaratna-saṅge*—con Candraśekhara; *cale*—va; *tāṅhāra*—su; *gṛhiṇī*—esposa; *tāṅhāra*—su; *premera kathā*—la descripción del amor extático; *kahite*—hablar; *nā jāni*—no sé cómo.

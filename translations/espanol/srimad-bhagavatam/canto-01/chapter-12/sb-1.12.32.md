@@ -1,11 +1,11 @@
 ### SB 1.12.32
 
-> यक्ष्यमाणोऽश्वमेधेन ज्ञातिद्रोहजिहासया ।
+> यक्ष्यमाणोऽश्वमेधेन ज्ञातिद्रोहजिहासया ।\
 > राजा लब्धधनो दध्यौ नान्यत्र करदण्डयोः ॥३२॥
 
-> yakṣyamāṇo 'śvamedhena
-> jñāti-droha-jihāsayā
-> rājā labdha-dhano dadhyau
+> yakṣyamāṇo 'śvamedhena\
+> jñāti-droha-jihāsayā\
+> rājā labdha-dhano dadhyau\
 > nānyatra kara-daṇḍayoḥ
 
 *yakṣyamāṇaḥ*—deseando ejecutar; *aśvamedhena*—mediante la ceremonia del sacrificio de caballo; *jñāti-droha*—peleando con familiares; *jihāsayā*—para liberarse; *rājā*—el rey Yudhiṣṭhira; *labdha-dhanaḥ*—para obtener algunas riquezas; *dadhyau*—pensó en ello; *na anyatra*—de lo contrario no; *kara-daṇḍayoḥ*—impuestos y multas.

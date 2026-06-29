@@ -1,9 +1,9 @@
 ### CC Adi 7.92
 
-> নাচ, গাও, ভক্তসঙ্গে কর সংকীর্তন ।
+> নাচ, গাও, ভক্তসঙ্গে কর সংকীর্তন ।\
 > কৃষ্ণনাম উপদেশি’ তার’ সর্বজন ॥৯২॥
 
-> nāca, gāo, bhakta-saṅge kara saṅkīrtana
+> nāca, gāo, bhakta-saṅge kara saṅkīrtana\
 > kṛṣṇa-nāma upadeśi' tāra' sarva-jana
 
 *nāca*—sigue danzando; *gāo*—canta; *bhakta-saṅge*—en la compañía de devotos; *kara*—continúa; *saṅkīrtana*—el canto del santo nombre en asamblea; *kṛṣṇa-nāma*—el santo nombre de Kṛṣṇa; *upadeśi'*—instruyendo; *tāra'*—libera; *sarva-jana*—a todas las almas caídas.

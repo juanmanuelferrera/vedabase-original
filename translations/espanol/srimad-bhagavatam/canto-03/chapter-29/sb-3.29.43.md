@@ -1,11 +1,11 @@
 ### SB 3.29.43
 
-> नभो ददाति श्वसतां पदं यन्नियमाददः ।
+> नभो ददाति श्वसतां पदं यन्नियमाददः ।\
 > लोकं स्वदेहं तनुते महान्सप्तभिरावृतम् ॥४३॥
 
-> nabho dadāti śvasatāṁ
-> padaṁ yan-niyamād adaḥ
-> lokaṁ sva-dehaṁ tanute
+> nabho dadāti śvasatāṁ\
+> padaṁ yan-niyamād adaḥ\
+> lokaṁ sva-dehaṁ tanute\
 > mahān saptabhir āvṛtam
 
 *nabhaḥ*—el cielo; *dadāti*—da; *śvasatām*—a las entidades vivientes; *padam*—morada; *yat*—de quien (la Suprema Personalidad de Dios); *niyamāt*—bajo el control; *adaḥ*—ese; *lokam*—el universo; *sva-deham*—propio cuerpo; *tanute*—expande; *mahān*—el *mahat-tattva*; *saptabhiḥ*—con las siete (capas); *āvṛtam*—cubierto.

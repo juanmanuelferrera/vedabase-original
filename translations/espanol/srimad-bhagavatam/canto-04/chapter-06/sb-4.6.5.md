@@ -1,11 +1,11 @@
 ### SB 4.6.5
 
-> अथापि यूयं कृतकिल्बिषा भवं ये बर्हिषो भागभाजं परादुः ।
+> अथापि यूयं कृतकिल्बिषा भवं ये बर्हिषो भागभाजं परादुः ।\
 > प्रसादयध्वं परिशुद्धचेतसा क्षिप्रप्रसादं प्रगृहीताङ्घ्रिपद्मम् ॥५॥
 
-> athāpi yūyaṁ kṛta-kilbiṣā bhavaṁ
-> ye barhiṣo bhāga-bhājaṁ parāduḥ
-> prasādayadhvaṁ pariśuddha-cetasā
+> athāpi yūyaṁ kṛta-kilbiṣā bhavaṁ\
+> ye barhiṣo bhāga-bhājaṁ parāduḥ\
+> prasādayadhvaṁ pariśuddha-cetasā\
 > kṣipra-prasādaṁ pragṛhītāṅghri-padmam
 
 *atha api*—con todo; *yūyam*—todos ustedes; *kṛta-kilbiṣāḥ*—haber cometido ofensas; *bhavam*—al Señor Śiva; *ye*—todos ustedes; *barhiṣaḥ*—del sacrificio; *bhāga-bhājam*—con derecho a una parte; *parāduḥ*—han excluido; *prasādayadhvam*—todos ustedes deben satisfacer; *pariśuddha-cetasā*—sin reparos en su mente; *kṣipra-prasādam*—rápida misericordia; *pragṛhīta-aṅghri-padmam*—siendo sus pies de loto el refugio aceptado.

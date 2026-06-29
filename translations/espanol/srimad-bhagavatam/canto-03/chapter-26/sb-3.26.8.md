@@ -1,11 +1,11 @@
 ### SB 3.26.8
 
-> कार्यकारणकर्तृत्वे कारणं प्रकृतिं विदुः ।
+> कार्यकारणकर्तृत्वे कारणं प्रकृतिं विदुः ।\
 > भोक्तृत्वे सुखदुःखानां पुरुषं प्रकृतेः परम् ॥८॥
 
-> kārya-kāraṇa-kartṛtve
-> kāraṇaṁ prakṛtiṁ viduḥ
-> bhoktṛtve sukha-duḥkhānāṁ
+> kārya-kāraṇa-kartṛtve\
+> kāraṇaṁ prakṛtiṁ viduḥ\
+> bhoktṛtve sukha-duḥkhānāṁ\
 > puruṣaṁ prakṛteḥ param
 
 *kārya*—el cuerpo; *kāraṇa*—los sentidos; *kartṛtve*—en relación con los semidioses; *kāraṇam*—la causa; *prakṛtim*—la naturaleza material; *viduḥ*—los eruditos entienden; *bhoktṛtve*—en relación con la percepción; *sukha*—de felicidad; *duḥkhānām*—y de aflicción; *puruṣam*—el alma espiritual; *prakṛteḥ*—a la naturaleza material; *param*—trascendental.

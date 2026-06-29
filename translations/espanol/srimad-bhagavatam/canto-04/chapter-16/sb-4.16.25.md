@@ -1,11 +1,11 @@
 ### SB 4.16.25
 
-> एष स्वसद्मोपवने समेत्य सनत्कुमारं भगवन्तमेकम् ।
+> एष स्वसद्मोपवने समेत्य सनत्कुमारं भगवन्तमेकम् ।\
 > आराध्य भक्त्यालभतामलं तज्ज्ञानं यतो ब्रह्म परं विदन्ति ॥२५॥
 
-> eṣa sva-sadmopavane sametya
-> sanat-kumāraṁ bhagavantam ekam
-> ārādhya bhaktyālabhatāmalaṁ taj
+> eṣa sva-sadmopavane sametya\
+> sanat-kumāraṁ bhagavantam ekam\
+> ārādhya bhaktyālabhatāmalaṁ taj\
 > jñānaṁ yato brahma paraṁ vidanti
 
 *eṣaḥ*—este rey; *sva-sadma*—de su palacio; *upavane*—en el jardín; *sametya*—encuentro; *sanat-kumāram*—con Sanat-kumāra; *bhagavantam*—el adorable; *ekam*—solo; *ārādhya*—adorar; *bhaktyā*—con devoción; *alabhata*—logrará; *amalam*—sin contaminación; *tat*—ese; *jñānam*—conocimiento trascendental; *yataḥ*—por el cual; *brahma*—espíritu; *param*—supremo, trascendental; *vidanti*—disfrutan, conocen.

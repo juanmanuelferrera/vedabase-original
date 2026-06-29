@@ -1,14 +1,14 @@
 ### SB 4.26.15
 
-> न तथैतर्हि रोचन्ते गृहेषु गृहसम्पदः ।
-> यदि न स्याद्गृहे माता पत्नी वा पतिदेवता ।
+> न तथैतर्हि रोचन्ते गृहेषु गृहसम्पदः ।\
+> यदि न स्याद्गृहे माता पत्नी वा पतिदेवता ।\
 > व्यङ्गे रथ इव प्राज्ञः को नामासीत दीनवत् ॥१५॥
 
-> na tathaitarhi rocante
-> gṛheṣu gṛha-sampadaḥ
-> yadi na syād gṛhe mātā
-> patnī vā pati-devatā
-> vyaṅge ratha iva prājñaḥ
+> na tathaitarhi rocante\
+> gṛheṣu gṛha-sampadaḥ\
+> yadi na syād gṛhe mātā\
+> patnī vā pati-devatā\
+> vyaṅge ratha iva prājñaḥ\
 > ko nāmāsīta dīnavat
 
 *na*—no; *tathā*—como antes; *etarhi*—en este momento; *rocante*—resulta agradable; *gṛheṣu*—en el hogar; *gṛha-sampadaḥ*—todos los enseres domésticos; *yadi*—si; *na*—no; *syāt*—hay; *gṛhe*—en el hogar; *mātā*—madre; *patnī*—esposa; *vā*—o; *pati-devatā*—dedicada al esposo; *vyaṅge*—sin ruedas; *rathe*—en un carro; *iva*—como; *prājñaḥ*—hombre erudito; *kaḥ*—quién es ese; *nāma*—en verdad; *āsīta*—se sentaría; *dīna-vat*—como una criatura muy pobre.

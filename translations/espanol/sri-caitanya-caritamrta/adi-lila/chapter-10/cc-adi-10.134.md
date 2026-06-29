@@ -1,9 +1,9 @@
 ### CC Adi 10.134
 
-> এই পঞ্চ পুত্র তোমার মোর প্রিয়পাত্র ।
+> এই পঞ্চ পুত্র তোমার মোর প্রিয়পাত্র ।\
 > রামানন্দ সহ মোর দেহ-ভেদ মাত্র ॥১৩৪॥
 
-> ei pañca putra tomāra mora priyapātra
+> ei pañca putra tomāra mora priyapātra\
 > rāmānanda saha mora deha-bheda mātra
 
 *ei*—estos; *pañca*—cinco; *putra*—hijos; *tomāra*—tuyos; *mora*—Míos; *priya-pātra*—muy queridos; *rāmānanda saha*—con Śrī Rāmānanda Rāya; *mora*—Mi; *deha-bheda*—diferencia corporal; *mātra*—solamente.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.250
 
-> যাবৎ তোমার হয় কাশীপুরে স্থিতি ।
+> যাবৎ তোমার হয় কাশীপুরে স্থিতি ।\
 > মোর ঘর বিনা ভিক্ষা না করিবা কতি ॥২৫০॥
 
-> yāvat tomāra haya kāśī-pure sthiti
+> yāvat tomāra haya kāśī-pure sthiti\
 > mora ghara vinā bhikṣā nā karibā kati
 
 *yāvat*—as long as; *tomāra*—Your; *haya*—there is; *kāśī-pure*—at Vārāṇasī; *sthiti*—stay; *mora ghara*—my place; *vinā*—except; *bhikṣā*—lunch; *nā karibā*—kindly do not take; *kati*—anywhere.

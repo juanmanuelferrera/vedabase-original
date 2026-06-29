@@ -1,11 +1,11 @@
 ### SB 7.3.14
 
-> इति विज्ञआपितो देवैर्भगवानात्मभूर्नृप
+> इति विज्ञआपितो देवैर्भगवानात्मभूर्नृप\
 > परितो भृगुदक्षाद्यैर्ययौ दैत्येश्वराश्रमम ॥१४॥
 
-> iti vijñāpito devair
-> bhagavān ātmabhūr nṛpa
-> parito bhṛgu-dakṣādyair
+> iti vijñāpito devair\
+> bhagavān ātmabhūr nṛpa\
+> parito bhṛgu-dakṣādyair\
 > yayau daityeśvarāśramam
 
 *iti*—thus; *vijñāpitaḥ*—informed; *devaiḥ*—by all the demigods; *bhagavān*—the most powerful; *ātma-bhūḥ*—Lord Brahmā, who was born from the lotus flower; *nṛpa*—O King; *paritaḥ*—being surrounded; *bhṛgu*—by Bhṛgu; *dakṣa*—Dakṣa; *ādyaiḥ*—and others; *yayau*—went; *daitya-īśvara*—of Hiraṇyakaśipu, the King of the Daityas; *āśramam*—to the place of austerity.

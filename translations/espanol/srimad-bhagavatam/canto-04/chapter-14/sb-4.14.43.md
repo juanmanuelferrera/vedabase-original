@@ -1,11 +1,11 @@
 ### SB 4.14.43
 
-> विनिश्चित्यैवमृषयो विपन्नस्य महीपतेः ।
+> विनिश्चित्यैवमृषयो विपन्नस्य महीपतेः ।\
 > ममन्थुरूरुं तरसा तत्रासीद्बाहुको नरः ॥४३॥
 
-> viniścityaivam ṛṣayo
-> vipannasya mahīpateḥ
-> mamanthur ūruṁ tarasā
+> viniścityaivam ṛṣayo\
+> vipannasya mahīpateḥ\
+> mamanthur ūruṁ tarasā\
 > tatrāsīd bāhuko naraḥ
 
 *viniścitya*—decidir; *evam*—de este modo; *ṛṣayaḥ*—los grandes sabios; *vipannasya*—muerto; *mahī-pateḥ*—del rey; *mamanthuḥ*—agitaron; *ūrum*—los muslos; *tarasā*—con un poder específico; *tatra*—como resultado; *āsīt*—nació; *bāhukaḥ*—llamada Bāhuka (enano); *naraḥ*—una persona.

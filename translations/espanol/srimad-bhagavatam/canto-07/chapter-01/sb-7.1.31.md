@@ -1,11 +1,11 @@
 ### SB 7.1.31
 
-> कतमोऽपि न वेनः स्यात्पञ्चानां पुरुषं प्रति
+> कतमोऽपि न वेनः स्यात्पञ्चानां पुरुषं प्रति\
 > तस्मात्केनाप्युपायेन मनः कृष्णे निवेशयेत ॥३१॥
 
-> gopyaḥ kāmād bhayāt kaṁso
-> dveṣāc caidyādayo nṛpāḥ
-> sambandhād vṛṣṇayaḥ snehād
+> gopyaḥ kāmād bhayāt kaṁso\
+> dveṣāc caidyādayo nṛpāḥ\
+> sambandhād vṛṣṇayaḥ snehād\
 > yūyaṁ bhaktyā vayaṁ vibho
 
 *gopyaḥ*—las *gopīs*; *kāmāt*—por deseos lujuriosos; *bhayāt*—por temor; *kaṁsaḥ*—el rey Kaṁsa; *dveṣāt*—por envidia; *caidya-ādayaḥ*—Śiśupāla y otros; *nṛpāḥ*—reyes; *sambandhāt*—por parentesco; *vṛṣṇayaḥ*—los Vṛṣṇis o los Yādavas; *snehāt*—por afecto; *yūyam*—ustedes (los Pāṇḍavas); *bhaktyā*—por servicio devocional; *vayam*—nosotros; *vibho*—¡oh, gran rey!.

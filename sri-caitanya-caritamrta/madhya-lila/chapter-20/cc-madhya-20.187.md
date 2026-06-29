@@ -1,9 +1,9 @@
 ### CC Madhya 20.187
 
-> ব্রজে গোপভাব রামের, পুরে ক্ষত্রিয়-ভাবন ।
+> ব্রজে গোপভাব রামের, পুরে ক্ষত্রিয়-ভাবন ।\
 > বর্ণ-বেশ-ভেদ, তাতে ‘বিলাস’ তাঁর নাম ॥১৮৭॥
 
-> vraje gopa-bhāva rāmera, pure kṣatriya-bhāvana
+> vraje gopa-bhāva rāmera, pure kṣatriya-bhāvana\
 > varṇa-veśa-bheda, tāte 'vilāsa' tāṅra nāma
 
 *vraje*—in Vṛndāvana; *gopa-bhāva*—emotion of a cowherd boy; *rāmera*—of Balarāma; *pure*—in Dvārakā; *kṣatriya-bhāvana*—the emotion of a kṣatriya; *varṇa-veśa-bheda*—by differences of dress and color; *tāte*—therefore; *vilāsa*—pastime expansion; *tāṅra nāma*—His name.

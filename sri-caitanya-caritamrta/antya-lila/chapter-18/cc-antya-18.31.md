@@ -1,9 +1,9 @@
 ### CC Antya 18.31
 
-> কোণার্কের দিকে প্রভুরে তরঙ্গে লঞা যায় ।
+> কোণার্কের দিকে প্রভুরে তরঙ্গে লঞা যায় ।\
 > কভু ডুবাঞা রাখে, কভু ভাসাঞা লঞা যায় ॥৩১॥
 
-> koṇārkera dike prabhure taraṅge lañā yāya
+> koṇārkera dike prabhure taraṅge lañā yāya\
 > kabhu ḍubāñā rākhe, kabhu bhāsāñā lañā yāya
 
 *koṇārkera dike*—toward the Koṇārka temple; *prabhure*—Śrī Caitanya Mahāprabhu; *taraṅge*—the waves; *lañā yāya*—take away; *kabhu*—sometimes; *ḍubāñā*—causing to sink; *rākhe*—keep; *kabhu*—sometimes; *bhāsāñā*—floating; *lañā yāya*—take away.

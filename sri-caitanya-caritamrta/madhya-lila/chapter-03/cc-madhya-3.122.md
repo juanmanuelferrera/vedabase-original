@@ -1,9 +1,9 @@
 ### CC Madhya 3.122
 
-> আচার্য উঠাইল প্ৰভুকে করিতে নর্তন ।
+> আচার্য উঠাইল প্ৰভুকে করিতে নর্তন ।\
 > পদ শুনি’ প্ৰভুর অঙ্গ না যায় ধারণ ॥১২২॥
 
-> ācārya uṭhāila prabhuke karite nartana
+> ācārya uṭhāila prabhuke karite nartana\
 > pada śuni' prabhura aṅga nā yāya dhāraṇa
 
 *ācārya*—Advaita Ācārya; *uṭhāila*—raised; *prabhuke*—the Lord; *karite*—to do; *nartana*—dancing; *pada śuni'*—by hearing the stanzas; *prabhura*—of the Lord; *aṅga*—the body; *nā*—not; *yāya*—possible; *dhāraṇa*—to hold.

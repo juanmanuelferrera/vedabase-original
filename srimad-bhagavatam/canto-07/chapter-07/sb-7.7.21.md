@@ -1,11 +1,11 @@
 ### SB 7.7.21
 
-> स्वर्णं यथा ग्रावसु हेमकारः क्षेत्रेषु योगैस्तदभिज्ञअ आप्नुयात
+> स्वर्णं यथा ग्रावसु हेमकारः क्षेत्रेषु योगैस्तदभिज्ञअ आप्नुयात\
 > क्षेत्रेषु देहेषु तथात्मयोगैरध्यात्मविद्ब्रह्मगतिं लभेत ॥२१॥
 
-> svarṇaṁ yathā grāvasu hema-kāraḥ
-> kṣetreṣu yogais tad-abhijña āpnuyāt
-> kṣetreṣu deheṣu tathātma-yogair
+> svarṇaṁ yathā grāvasu hema-kāraḥ\
+> kṣetreṣu yogais tad-abhijña āpnuyāt\
+> kṣetreṣu deheṣu tathātma-yogair\
 > adhyātma-vid brahma-gatiṁ labheta
 
 *svarṇam*—gold; *yathā*—just as; *grāvasu*—in the stones of gold ore; *hema-kāraḥ*—the expert who knows about gold; *kṣetreṣu*—in the gold mines; *yogaiḥ*—by various processes; *tat-abhijñaḥ*—an expert who can understand where gold is; *āpnuyāt*—very easily obtains; *kṣetreṣu*—within the material fields; *deheṣu*—the human bodies and all the rest of the 8,400,000 different bodily forms; *tathā*—similarly; *ātma-yogaiḥ*—by spiritual processes; *adhyātma-vit*—one who is expert in understanding the distinction between spirit and matter; *brahma-gatim*—perfection in spiritual life; *labheta*—may obtain.

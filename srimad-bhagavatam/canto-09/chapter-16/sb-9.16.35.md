@@ -1,14 +1,14 @@
 ### SB 9.16.35
 
-> ज्येष्ठं मन्त्रदृशं चक्रुस्त्वामन्वञ्चो वयं स्म हि
-> विश्वामित्रः सुतानाह वीरवन्तो भविष्यथ
+> ज्येष्ठं मन्त्रदृशं चक्रुस्त्वामन्वञ्चो वयं स्म हि\
+> विश्वामित्रः सुतानाह वीरवन्तो भविष्यथ\
 > ये मानं मेऽनुगृह्णन्तो वीरवन्तमकर्त माम ॥३५॥
 
-> jyeṣṭhaṁ mantra-dṛśaṁ cakrus
-> tvām anvañco vayaṁ sma hi
-> viśvāmitraḥ sutān āha
-> vīravanto bhaviṣyatha
-> ye mānaṁ me 'nugṛhṇanto
+> jyeṣṭhaṁ mantra-dṛśaṁ cakrus\
+> tvām anvañco vayaṁ sma hi\
+> viśvāmitraḥ sutān āha\
+> vīravanto bhaviṣyatha\
+> ye mānaṁ me 'nugṛhṇanto\
 > vīravantam akarta mām
 
 *jyeṣṭham*—the eldest; *mantra-dṛśam*—a seer of *mantras*; *cakruḥ*—they accepted; *tvām*—you; *anvañcaḥ*—have agreed to follow; *vayam*—we; *sma*—indeed; *hi*—certainly; *viśvāmitraḥ*—the great sage Viśvāmitra; *sutān*—to the obedient sons; *āha*—said; *vīra-vantaḥ*—fathers of sons; *bhaviṣyatha*—become in the future; *ye*—all of you who; *mānam*—honor; *me*—my; *anugṛhṇantaḥ*—accepted; *vīra-vantam*—the father of good sons; *akarta*—you have made; *mām*—me.

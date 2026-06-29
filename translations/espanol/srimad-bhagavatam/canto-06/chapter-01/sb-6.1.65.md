@@ -1,11 +1,11 @@
 ### SB 6.1.65
 
-> विप्रां स्वभार्यामप्रौढां कुले महति लम्भिताम
+> विप्रां स्वभार्यामप्रौढां कुले महति लम्भिताम\
 > विससर्जाचिरात्पापः स्वैरिण्यापाङ्गविद्धधीः ॥६५॥
 
-> viprāṁ sva-bhāryām aprauḍhāṁ
-> kule mahati lambhitām
-> visasarjācirāt pāpaḥ
+> viprāṁ sva-bhāryām aprauḍhāṁ\
+> kule mahati lambhitām\
+> visasarjācirāt pāpaḥ\
 > svairiṇyāpāṅga-viddha-dhīḥ
 
 *viprām*—la hija de un *brāhmaṇa*; *sva-bhāryām*—su esposa; *aprauḍhām*—no muy mayor (joven); *kule*—de una familia; *mahati*—muy respetable; *lambhitām*—casado; *visasarja*—abandonó; *acirāt*—muy pronto; *pāpaḥ*—siendo pecaminoso; *svairiṇyā*—de la prostituta; *apāṅga-viddha-dhīḥ*—con la inteligencia herida por la lujuriosa mirada.

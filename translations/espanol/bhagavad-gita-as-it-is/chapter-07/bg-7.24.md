@@ -1,11 +1,11 @@
 ### Bg 7.24
 
-> अव्यक्तं व्यक्तिमापन्नं मन्यन्ते मामबुद्धयः ।
+> अव्यक्तं व्यक्तिमापन्नं मन्यन्ते मामबुद्धयः ।\
 > परं भावमजानन्तो ममाव्ययमनुत्तमम् ॥२४॥
 
-> avyaktaṁ vyaktim āpannaṁ
-> manyante mām abuddhayaḥ
-> paraṁ bhāvam ajānanto
+> avyaktaṁ vyaktim āpannaṁ\
+> manyante mām abuddhayaḥ\
+> paraṁ bhāvam ajānanto\
 > mamāvyayam anuttamam
 
 *avyaktam*—no manifestado; *vyaktim*—personalidad; *āpannam*—lograda; *manyante*—piensan; *mām*—a Mí; *abuddhayaḥ*—personas poco inteligentes; *param*—supremo; *bhāvam*—existencia; *ajānantaḥ*—sin saber; *mama*—Mí; *avyayam*—imperecedero; *anuttamam*—lo más fino.

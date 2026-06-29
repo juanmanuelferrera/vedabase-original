@@ -1,6 +1,6 @@
 ### CC Adi 1.38
 
-> bhagavānera bhakta yata śrīvāsa pradhāna
+> bhagavānera bhakta yata śrīvāsa pradhāna\
 > tāṅ'-sabhāra pāda-padme sahasra praṇāma
 
 *bhagavānera*—da Suprema Personalidade de Deus; *bhakta*—os devotos; *yata*—tantos (quantos haja); *śrīvāsa pradhāna*—encabeçados por Śrī Śrīvāsa; *tāṅ'-sabhāra*—de todos eles; *pāda-padme*—aos pés de lótus; *sahasra*—milhares; *praṇāma*—respeitosas reverências.

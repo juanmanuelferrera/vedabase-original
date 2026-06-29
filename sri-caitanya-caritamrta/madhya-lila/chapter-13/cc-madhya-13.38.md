@@ -1,9 +1,9 @@
 ### CC Madhya 13.38
 
-> অদ্বৈতেরে নৃত্য করিবারে আজ্ঞা দিল ।
+> অদ্বৈতেরে নৃত্য করিবারে আজ্ঞা দিল ।\
 > শ্রীবাস — প্রধান আর সম্প্রদায় কৈল ॥৩৮॥
 
-> advaitere nṛtya karibāre ājñā dila
+> advaitere nṛtya karibāre ājñā dila\
 > śrīvāsa-pradhāna āra sampradāya kaila
 
 *advaitere*—unto Advaita Ācārya; *nṛtya*—dancing; *karibāre*—for performing; *ājñā*—order; *dila*—gave; *śrīvāsa*—Śrīvāsa Ṭhākura; *pradhāna*—chief; *āra*—another; *sampradāya*—group; *kaila*—formed.

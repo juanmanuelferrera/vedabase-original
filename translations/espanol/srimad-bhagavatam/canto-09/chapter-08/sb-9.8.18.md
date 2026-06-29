@@ -1,11 +1,11 @@
 ### SB 9.8.18
 
-> एवं वृत्तः परित्यक्तः पित्रा स्नेहमपोह्य वै
+> एवं वृत्तः परित्यक्तः पित्रा स्नेहमपोह्य वै\
 > योगैश्वर्येण बालांस्तान्दर्शयित्वा ततो ययौ ॥१८॥
 
-> ayodhyā-vāsinaḥ sarve
-> bālakān punar āgatān
-> dṛṣṭvā visismire rājan
+> ayodhyā-vāsinaḥ sarve\
+> bālakān punar āgatān\
+> dṛṣṭvā visismire rājan\
 > rājā cāpy anvatapyata
 
 *ayodhyā-vāsinaḥ*—los habitantes de Ayodhyā; *sarve*—todos ellos; *bālakān*—sus hijos; *punaḥ*—de nuevo; *āgatān*—haber vuelto a la vida; *dṛṣṭvā*—después de ver eso; *visismire*—quedaron atónitos; *rājan*—¡oh, rey Parīkṣit!; *rājā*—el rey Sagara; *ca*—también; *api*—en verdad; *anvatapyata*—lamentó mucho (la ausencia de su hijo).

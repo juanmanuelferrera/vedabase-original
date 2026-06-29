@@ -1,13 +1,13 @@
 ### SB 4.17.9
 
-> मैत्रेय उवाच
-> यदाभिषिक्तः पृथुरङ्ग विप्रैरामन्त्रितो जनतायाश्च पालः ।
+> मैत्रेय उवाच\
+> यदाभिषिक्तः पृथुरङ्ग विप्रैरामन्त्रितो जनतायाश्च पालः ।\
 > प्रजा निरन्ने क्षितिपृष्ठ एत्य क्षुत्क्षामदेहाः पतिमभ्यवोचन् ॥९॥
 
-> maitreya uvāca
-> yadābhiṣiktaḥ pṛthur aṅga viprair
-> āmantrito janatāyāś ca pālaḥ
-> prajā niranne kṣiti-pṛṣṭha etya
+> maitreya uvāca\
+> yadābhiṣiktaḥ pṛthur aṅga viprair\
+> āmantrito janatāyāś ca pālaḥ\
+> prajā niranne kṣiti-pṛṣṭha etya\
 > kṣut-kṣāma-dehāḥ patim abhyavocan
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya dijo; *yadā*—cuando; *abhiṣiktaḥ*—fue sentado en el trono; *pṛthuḥ*—el rey Pṛthu; *aṅga*—mi querido Vidura; *vipraiḥ*—por los *brāhmaṇas*; *āmantritaḥ*—fue proclamado; *janatāyāḥ*—del pueblo; *ca*—también; *pālaḥ*—el protector; *prajāḥ*—los ciudadanos; *niranne*—careciendo de cereales; *kṣiti-pṛṣṭhe*—la superficie del globo; *etya*—acercándose; *kṣut*—por hambre; *kṣāma*—delgados; *dehāḥ*—sus cuerpos; *patim*—al protector; *abhyavocan*—dijeron.

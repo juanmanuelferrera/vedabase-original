@@ -1,11 +1,11 @@
 ### SB 7.4.17
 
-> रत्नाकराश्च रत्नौघांस्तत्पत्न्यश्चोहुरूर्मिभिः
+> रत्नाकराश्च रत्नौघांस्तत्पत्न्यश्चोहुरूर्मिभिः\
 > क्षारसीधुघृतक्षौद्र दधिक्षीरामृतोदकाः ॥१७॥
 
-> ratnākarāś ca ratnaughāṁs
-> tat-patnyaś cohur ūrmibhiḥ
-> kṣāra-sīdhu-ghṛta-kṣaudra-
+> ratnākarāś ca ratnaughāṁs\
+> tat-patnyaś cohur ūrmibhiḥ\
+> kṣāra-sīdhu-ghṛta-kṣaudra-\
 > dadhi-kṣīrāmṛtodakāḥ
 
 *ratnākarāḥ*—los mares y océanos; *ca*—y; *ratna-oghān*—diversos tipos de gemas y piedras preciosas; *tat-patnyaḥ*—las esposas de los mares y océanos, es decir, los ríos; *ca*—también; *ūhuḥ*—llevadas; *ūrmibhiḥ*—por sus olas; *kṣāra*—el océano salado; *sīdhu*—el océano de vino; *ghṛta*—el océano de mantequilla clarificada; *kṣaudra*—el océano de jugo de caña; *dadhi*—el océano de yogur; *kṣīra*—el océano de leche; *amṛta*—y el océano muy dulce; *udakāḥ*—agua.

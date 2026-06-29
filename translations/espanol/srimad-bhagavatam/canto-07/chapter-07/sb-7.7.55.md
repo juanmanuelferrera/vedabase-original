@@ -1,11 +1,11 @@
 ### SB 7.7.55
 
-> एतावानेव लोकेऽस्मिन्पुंसः स्वार्थः परः स्मृतः
+> एतावानेव लोकेऽस्मिन्पुंसः स्वार्थः परः स्मृतः\
 > एकान्तभक्तिर्गोविन्दे यत्सर्वत्र तदीक्षणम ॥५५॥
 
-> etāvān eva loke 'smin
-> puṁsaḥ svārthaḥ paraḥ smṛtaḥ
-> ekānta-bhaktir govinde
+> etāvān eva loke 'smin\
+> puṁsaḥ svārthaḥ paraḥ smṛtaḥ\
+> ekānta-bhaktir govinde\
 > yat sarvatra tad-īkṣaṇam
 
 *etāvān*—esto; *eva*—ciertamente; *loke asmin*—en el mundo material; *puṁsaḥ*—de la entidad viviente; *sva-arthaḥ*—el verdadero interés personal; *paraḥ*—trascendental; *smṛtaḥ*—considerado; *ekānta-bhaktiḥ*—servicio devocional puro; *govinde*—a Govinda; *yat*—el cual; *sarvatra*—en todas partes; *tat-īkṣaṇam*—ver la relación con Govinda, Kṛṣṇa.

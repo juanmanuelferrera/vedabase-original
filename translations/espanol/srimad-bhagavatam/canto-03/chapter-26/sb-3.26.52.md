@@ -1,14 +1,14 @@
 ### SB 3.26.52
 
-> एतदण्डं विशेषाख्यं क्रमवृद्धैर्दशोत्तरैः ।
-> तोयादिभिः परिवृतं प्रधानेनावृतैर्बहिः ।
+> एतदण्डं विशेषाख्यं क्रमवृद्धैर्दशोत्तरैः ।\
+> तोयादिभिः परिवृतं प्रधानेनावृतैर्बहिः ।\
 > यत्र लोकवितानोऽयं रूपं भगवतो हरेः ॥५२॥
 
-> etad aṇḍaṁ viśeṣākhyaṁ
-> krama-vṛddhair daśottaraiḥ
-> toyādibhiḥ parivṛtaṁ
-> pradhānenāvṛtair bahiḥ
-> yatra loka-vitāno 'yaṁ
+> etad aṇḍaṁ viśeṣākhyaṁ\
+> krama-vṛddhair daśottaraiḥ\
+> toyādibhiḥ parivṛtaṁ\
+> pradhānenāvṛtair bahiḥ\
+> yatra loka-vitāno 'yaṁ\
 > rūpaṁ bhagavato hareḥ
 
 *etat*—este; *aṇḍam*—huevo; *viśeṣa-ākhyam*—denominado *viśeṣa*; *krama*—una tras otra; *vṛddhaiḥ*—aumentada; *daśa*—diez veces; *uttaraiḥ*—mayor; *toya-ādibhiḥ*—por el agua y las restantes; *parivṛtam*—envuelta; *pradhānena*—por el *pradhāna*; *āvṛtaiḥ*—cubierta; *bahiḥ*—en el exterior; *yatra*—donde; *loka-vitānaḥ*—la extensión de los sistemas planetarios; *ayam*—esta; *rūpam*—forma; *bhagavataḥ*—de la Suprema Personalidad de Dios; *hareḥ*—del Señor Hari.

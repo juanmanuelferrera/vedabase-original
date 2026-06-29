@@ -1,11 +1,11 @@
 ### SB 1.3.26
 
-> अवतारा ह्यसङ्ख्येया हरेः सत्त्वनिधेर्द्विजाः ।
+> अवतारा ह्यसङ्ख्येया हरेः सत्त्वनिधेर्द्विजाः ।\
 > यथाविदासिनः कुल्याः सरसः स्युः सहस्रशः ॥२६॥
 
-> avatārā hy asaṅkhyeyā
-> hareḥ sattva-nidher dvijāḥ
-> yathāvidāsinaḥ kulyāḥ
+> avatārā hy asaṅkhyeyā\
+> hareḥ sattva-nidher dvijāḥ\
+> yathāvidāsinaḥ kulyāḥ\
 > sarasaḥ syuḥ sahasraśaḥ
 
 *avatārāḥ*—incarnations; *hi*—certainly; *asaṅkhyeyāḥ*—innumerable; *hareḥ*—of Hari, the Lord; *sattva-nidheḥ*—of the ocean of goodness; *dvijāḥ*—the *brāhmaṇas*; *yathā*—as it is; *avidāsinaḥ*—inexhaustible; *kulyāḥ*—rivulets; *sarasaḥ*—of vast lakes; *syuḥ*—are; *sahasraśaḥ*—thousands of.

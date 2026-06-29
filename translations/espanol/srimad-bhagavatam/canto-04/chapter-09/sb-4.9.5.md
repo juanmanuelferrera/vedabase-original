@@ -1,11 +1,11 @@
 ### SB 4.9.5
 
-> स वै तदैव प्रतिपादितां गिरं दैवीं परिज्ञातपरात्मनिर्णयः ।
+> स वै तदैव प्रतिपादितां गिरं दैवीं परिज्ञातपरात्मनिर्णयः ।\
 > तं भक्तिभावोऽभ्यगृणादसत्वरं परिश्रुतोरुश्रवसं ध्रुवक्षितिः ॥५॥
 
-> sa vai tadaiva pratipāditāṁ giraṁ
-> daivīṁ parijñāta-parātma-nirṇayaḥ
-> taṁ bhakti-bhāvo 'bhyagṛṇād asatvaraṁ
+> sa vai tadaiva pratipāditāṁ giraṁ\
+> daivīṁ parijñāta-parātma-nirṇayaḥ\
+> taṁ bhakti-bhāvo 'bhyagṛṇād asatvaraṁ\
 > pariśrutoru-śravasaṁ dhruva-kṣitiḥ
 
 *saḥ*—Dhruva Mahārāja; *vai*—ciertamente; *tadā*—en ese momento; *eva*—preciso; *pratipāditām*—habiendo obtenido; *giram*—el habla; *daivīm*—trascendental; *parijñāta*—entendió; *para-ātma*—del Alma Suprema; *nirṇayaḥ*—la conclusión; *tam*—al Señor; *bhakti-bhāvaḥ*—situado en servicio devocional; *abhyagṛṇāt*—ofreció oraciones; *asatvaram*—sin conclusiones precipitadas; *pariśruta*—ampliamente conocida; *uru-śravasam*—cuya fama; *dhruva-kṣitiḥ*—Dhruva, cuyo planeta no sería destruido.

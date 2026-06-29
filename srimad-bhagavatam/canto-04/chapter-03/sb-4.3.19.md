@@ -1,11 +1,11 @@
 ### SB 4.3.19
 
-> तथारिभिर्न व्यथते शिलीमुखैः शेतेऽर्दिताङ्गो हृदयेन दूयता ।
+> तथारिभिर्न व्यथते शिलीमुखैः शेतेऽर्दिताङ्गो हृदयेन दूयता ।\
 > स्वानां यथा वक्रधियां दुरुक्तिभिर्दिवानिशं तप्यति मर्मताडितः ॥१९॥
 
-> tathāribhir na vyathate śilīmukhaiḥ
-> śete 'rditāṅgo hṛdayena dūyatā
-> svānāṁ yathā vakra-dhiyāṁ duruktibhir
+> tathāribhir na vyathate śilīmukhaiḥ\
+> śete 'rditāṅgo hṛdayena dūyatā\
+> svānāṁ yathā vakra-dhiyāṁ duruktibhir\
 > divā-niśaṁ tapyati marma-tāḍitaḥ
 
 *tathā*—so; *aribhiḥ*—enemy; *na*—not; *vyathate*—is hurt; *śilīmukhaiḥ*—by the arrows; *śete*—rests; *ardita*—aggrieved; *aṅgaḥ*—a part; *hṛdayena*—by the heart; *dūyatā*—grieving; *svānām*—of relatives; *yathā*—as; *vakra-dhiyām*—deceitful; *duruktibhiḥ*—by harsh words; *divā-niśam*—day and night; *tapyati*—suffers; *marma-tāḍitaḥ*—one whose feelings are hurt.

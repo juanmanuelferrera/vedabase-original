@@ -1,9 +1,9 @@
 ### CC Madhya 5.54
 
-> সব লোক বড়বিপ্রে ডাকিয়া আনিল ।
+> সব লোক বড়বিপ্রে ডাকিয়া আনিল ।\
 > তবে সেই লঘুবিপ্র কহিতে লাগিল ॥৫৪॥
 
-> saba loka baḍa-vipre ḍākiyā ānila
+> saba loka baḍa-vipre ḍākiyā ānila\
 > tabe sei laghu-vipra kahite lāgila
 
 *saba loka*—todos los habitantes de la aldea; *baḍa-vipre*—al brāhmaṇa mayor; *ḍākiyā*—llamando; *ānila*—trajeron; *tabe*—entonces; *sei laghu-vipra*—el brāhmaṇa joven; *kahite lāgila*—comenzó a hablar.

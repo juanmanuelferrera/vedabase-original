@@ -1,11 +1,11 @@
 ### SB 3.14.40
 
-> प्राणिनां हन्यमानानां दीनानामकृतागसाम् ।
+> प्राणिनां हन्यमानानां दीनानामकृतागसाम् ।\
 > स्त्रीणां निगृह्यमाणानां कोपितेषु महात्मसु ॥४०॥
 
-> prāṇināṁ hanyamānānāṁ
-> dīnānām akṛtāgasām
-> strīṇāṁ nigṛhyamāṇānāṁ
+> prāṇināṁ hanyamānānāṁ\
+> dīnānām akṛtāgasām\
+> strīṇāṁ nigṛhyamāṇānāṁ\
 > kopiteṣu mahātmasu
 
 *prāṇinām*—cuando los seres vivos; *hanyamānānām*—siendo muertos; *dīnānām*—de los pobres; *akṛta-āgasām*—de los libres de culpa; *strīṇām*—de las mujeres; *nigṛhyamāṇānām*—siendo torturadas; *kopiteṣu*—siendo enfurecidos; *mahātmasu*—cuando las grandes almas.

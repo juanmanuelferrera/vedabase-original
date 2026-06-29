@@ -1,9 +1,9 @@
 ### CC Antya 20.105
 
-> দ্বিতীয়ে — ছোট-হরিদাসে করাইলা শিক্ষণ ।
+> দ্বিতীয়ে — ছোট-হরিদাসে করাইলা শিক্ষণ ।\
 > তার মধ্যে শিবানন্দের আশ্চর্য দর্শন ॥১০৫॥
 
-> dvitīye--choṭa-haridāse karāilā śikṣana
+> dvitīye--choṭa-haridāse karāilā śikṣana\
 > tāra madhye śivānandera āścarya darśana
 
 *dvitīye*—en el segundo capítulo; *choṭa-haridāse*—al joven Haridāsa; *karāilā śikṣaṇa*—le enseñó muy estrictamente; *tāra madhye*—dentro de ese capítulo; *śivānandera*—de Śivānanda Sena; *āścarya darśana*—la visión maravillosa.

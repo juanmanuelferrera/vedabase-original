@@ -1,13 +1,13 @@
 ### SB 6.3.33
 
-> कृष्णाङ्घ्रिपद्ममधुलिण्न पुनर्विसृष्ट
-> मायागुणेषु रमते वृजिनावहेषु
-> अन्यस्तु कामहत आत्मरजः प्रमार्ष्टुम
+> कृष्णाङ्घ्रिपद्ममधुलिण्न पुनर्विसृष्ट\
+> मायागुणेषु रमते वृजिनावहेषु\
+> अन्यस्तु कामहत आत्मरजः प्रमार्ष्टुम\
 > ईहेत कर्म यत एव रजः पुनः स्यात ॥३३॥
 
-> kṛṣṇāṅghri-padma-madhu-liṇ na punar visṛṣṭa-
-> māyā-guṇeṣu ramate vṛjināvaheṣu
-> anyas tu kāma-hata ātma-rajaḥ pramārṣṭum
+> kṛṣṇāṅghri-padma-madhu-liṇ na punar visṛṣṭa-\
+> māyā-guṇeṣu ramate vṛjināvaheṣu\
+> anyas tu kāma-hata ātma-rajaḥ pramārṣṭum\
 > īheta karma yata eva rajaḥ punaḥ syāt
 
 *kṛṣṇa-aṅghri-padma*—de los pies de loto del Señor Kṛṣṇa; *madhu*—la miel; *liṭ*—el que lame; *na*—no; *punaḥ*—de nuevo; *visṛṣṭa*—que ya ha renunciado; *māyā-guṇeṣu*—en las modalidades materiales de la naturaleza; *ramate*—desea disfrutar; *vṛjina-avaheṣu*—que trae sufrimiento; *anyaḥ*—otro; *tu*—sin embargo; *kāma-hataḥ*—hechizado por los deseos de disfrute; *ātma-rajaḥ*—la infección del pecado en el corazón; *pramārṣṭum*—para limpiar; *īheta*—puede realizar; *karma*—actividades; *yataḥ*—tras las cuales; *eva*—en verdad; *rajaḥ*—la actividad pecaminosa; *punaḥ*—de nuevo; *syāt*—aparece.

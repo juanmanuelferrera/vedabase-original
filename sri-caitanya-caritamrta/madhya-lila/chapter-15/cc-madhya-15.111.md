@@ -1,9 +1,9 @@
 ### CC Madhya 15.111
 
-> “অতএব যাঁর মুখে এক কৃষ্ণনাম ।
+> “অতএব যাঁর মুখে এক কৃষ্ণনাম ।\
 > সেই ত’ বৈষ্ণব, করিহ তাঁহার সম্মান ।।” ॥১১১॥
 
-> "ataeva yāṅra mukhe eka kṛṣṇa-nāma
+> "ataeva yāṅra mukhe eka kṛṣṇa-nāma\
 > sei ta' vaiṣṇava, kariha tāṅhāra sammāna"
 
 *ataeva*—therefore; *yāṅra mukhe*—in whose mouth; *eka*—one; *kṛṣṇa-nāma*—the holy name of Kṛṣṇa; *sei ta' vaiṣṇava*—he is a Vaiṣṇava; *kariha*—offer; *tāṅhāra*—to him; *sammāna*—respect.

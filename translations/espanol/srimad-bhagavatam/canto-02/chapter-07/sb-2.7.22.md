@@ -1,13 +1,13 @@
 ### SB 2.7.22
 
-> क्षत्रं क्षयाय विधिनोपभृतं महात्मा
-> ब्रह्मध्रुगुज्झितपथं नरकार्तिलिप्सु ।
-> उद्धन्त्यसाववनिकण्टकमुग्रवीर्यस्
+> क्षत्रं क्षयाय विधिनोपभृतं महात्मा\
+> ब्रह्मध्रुगुज्झितपथं नरकार्तिलिप्सु ।\
+> उद्धन्त्यसाववनिकण्टकमुग्रवीर्यस्\
 > त्रिःसप्तकृत्व उरुधारपरश्वधेन ॥२२॥
 
-> kṣatraṁ kṣayāya vidhinopabhṛtaṁ mahātmā
-> brahma-dhrug ujjhita-pathaṁ narakārti-lipsu
-> uddhanty asāv avanikaṇṭakam ugra-vīryas
+> kṣatraṁ kṣayāya vidhinopabhṛtaṁ mahātmā\
+> brahma-dhrug ujjhita-pathaṁ narakārti-lipsu\
+> uddhanty asāv avanikaṇṭakam ugra-vīryas\
 > triḥ-sapta-kṛtva urudhāra-paraśvadhena
 
 *kṣatram*—la orden real; *kṣayāya*—con objeto de disminuir; *vidhinā*—por el destino; *upabhṛtam*—aumentó de proporción; *mahātmā*—el Señor, en la forma del gran sabio Paraśurāma; *brahma-dhruk*—la última verdad en Brahman; *ujjhita-patham*—aquellos que han abandonado el sendero de la Verdad Absoluta; *naraka-ārti-lipsu*—deseosos de sufrir dolores en el infierno; *uddhanti*—exige; *asau*—todas esas; *avanikaṇṭakam*—espinas del mundo; *ugra-vīryaḥ*—horriblemente poderosas; *triḥ-sapta*—tres veces siete; *kṛtvaḥ*—realizó; *urudhāra*—muy afilada; *paraśvadhena*—mediante la gran hachuela.

@@ -1,11 +1,11 @@
 ### SB 2.10.19
 
-> विवक्षोर्मुखतो भूम्नो वह्निर्वाग्व्याहृतं तयोः ।
+> विवक्षोर्मुखतो भूम्नो वह्निर्वाग्व्याहृतं तयोः ।\
 > जले चैतस्य सुचिरं निरोधः समजायत ॥१९॥
 
-> vivakṣor mukhato bhūmno
-> vahnir vāg vyāhṛtaṁ tayoḥ
-> jale caitasya suciraṁ
+> vivakṣor mukhato bhūmno\
+> vahnir vāg vyāhṛtaṁ tayoḥ\
+> jale caitasya suciraṁ\
 > nirodhaḥ samajāyata
 
 *vivakṣoḥ*—when there was a need to speak; *mukhataḥ*—from the mouth; *bhūmnaḥ*—of the Supreme; *vahniḥ*—fire or the controlling deity of fire; *vāk*—vibration; *vyāhṛtam*—speeches; *tayoḥ*—by both; *jale*—in the water; *ca*—however; *etasya*—of all these; *suciram*—a very, very long time; *nirodhaḥ*—suspension; *samajāyata*—did continue.

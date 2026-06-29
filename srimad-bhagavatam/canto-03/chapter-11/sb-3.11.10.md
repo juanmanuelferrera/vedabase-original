@@ -1,11 +1,11 @@
 ### SB 3.11.10
 
-> यामाश्चत्वारश्चत्वारो मर्त्यानामहनी उभे ।
+> यामाश्चत्वारश्चत्वारो मर्त्यानामहनी उभे ।\
 > पक्षः पञ्चदशाहानि शुक्लः कृष्णश्च मानद ॥१०॥
 
-> yāmāś catvāraś catvāro
-> martyānām ahanī ubhe
-> pakṣaḥ pañca-daśāhāni
+> yāmāś catvāraś catvāro\
+> martyānām ahanī ubhe\
+> pakṣaḥ pañca-daśāhāni\
 > śuklaḥ kṛṣṇaś ca mānada
 
 *yāmāḥ*—three hours; *catvāraḥ*—four; *catvāraḥ*—and four; *martyānām*—of the human beings; *ahanī*—duration of day; *ubhe*—both day and night; *pakṣaḥ*—fortnight; *pañca-daśa*—fifteen; *ahāni*—days; *śuklaḥ*—white; *kṛṣṇaḥ*—black; *ca*—also; *mānada*—measured.

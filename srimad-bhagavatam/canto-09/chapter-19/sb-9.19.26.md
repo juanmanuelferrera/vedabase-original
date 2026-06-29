@@ -1,11 +1,11 @@
 ### SB 9.19.26
 
-> श्रुत्वा गाथां देवयानी मेने प्रस्तोभमात्मनः
+> श्रुत्वा गाथां देवयानी मेने प्रस्तोभमात्मनः\
 > स्त्रीपुंसोः स्नेहवैक्लव्यात्परिहासमिवेरितम ॥२६॥
 
-> śrutvā gāthāṁ devayānī
-> mene prastobham ātmanaḥ
-> strī-puṁsoḥ sneha-vaiklavyāt
+> śrutvā gāthāṁ devayānī\
+> mene prastobham ātmanaḥ\
+> strī-puṁsoḥ sneha-vaiklavyāt\
 > parihāsam iveritam
 
 *śrutvā*—hearing; *gāthām*—the narration; *devayānī*—Queen Devayānī, the wife of Mahārāja Yayāti; *mene*—understood; *prastobham ātmanaḥ*—when instructed for her self-realization; *strī-puṁsoḥ*—between the husband and wife; *sneha-vaiklavyāt*—from an exchange of love and affection; *parihāsam*—a funny joke or story; *iva*—like; *īritam*—spoken (by Mahārāja Yayāti).

@@ -1,11 +1,11 @@
 ### SB 8.1.25
 
-> धर्मस्य सूनृतायां तु भगवान्पुरुषोत्तमः
+> धर्मस्य सूनृतायां तु भगवान्पुरुषोत्तमः\
 > सत्यसेन इति ख्यातो जातः सत्यव्रतैः सह ॥२५॥
 
-> dharmasya sūnṛtāyāṁ tu
-> bhagavān puruṣottamaḥ
-> satyasena iti khyāto
+> dharmasya sūnṛtāyāṁ tu\
+> bhagavān puruṣottamaḥ\
+> satyasena iti khyāto\
 > jātaḥ satyavrataiḥ saha
 
 *dharmasya*—del semidiós encargado de la religión; *sūnṛtāyām*—en el vientre de su esposa, llamada Sūnṛtā; *tu*—en verdad; *bhagavān*—la Suprema Personalidad de Dios; *puruṣa-uttamaḥ*—la Suprema Personalidad de Dios; *satyasenaḥ*—Satyasena; *iti*—así; *khyātaḥ*—famoso; *jātaḥ*—nació; *satyavrataiḥ*—los Satyavratas; *saha*—con.

@@ -1,11 +1,11 @@
 ### SB 9.14.37
 
-> स्त्रियो ह्यकरुणाः क्रूरा दुर्मर्षाः प्रियसाहसाः
+> स्त्रियो ह्यकरुणाः क्रूरा दुर्मर्षाः प्रियसाहसाः\
 > घ्नन्त्यल्पार्थेऽपि विश्रब्धं पतिं भ्रातरमप्युत ॥३७॥
 
-> striyo hy akaruṇāḥ krūrā
-> durmarṣāḥ priya-sāhasāḥ
-> ghnanty alpārthe 'pi viśrabdhaṁ
+> striyo hy akaruṇāḥ krūrā\
+> durmarṣāḥ priya-sāhasāḥ\
+> ghnanty alpārthe 'pi viśrabdhaṁ\
 > patiṁ bhrātaram apy uta
 
 *striyaḥ*—women; *hi*—indeed; *akaruṇāḥ*—merciless; *krūrāḥ*—cunning; *durmarṣāḥ*—intolerant; *priya-sāhasāḥ*—for their own pleasure they can do anything; *ghnanti*—they kill; *alpa-arthe*—for a slight reason; *api*—indeed; *viśrabdham*—faithful; *patim*—husband; *bhrātaram*—brother; *api*—also; *uta*—it is said.

@@ -1,11 +1,11 @@
 ### SB 1.2.10
 
-> कामस्य नेन्द्रियप्रीतिर्लाभो जीवेत यावता ।
+> कामस्य नेन्द्रियप्रीतिर्लाभो जीवेत यावता ।\
 > जीवस्य तत्त्वजिज्ञासा नार्थो यश्चेह कर्मभिः ॥१०॥
 
-> kāmasya nendriya-prītir
-> lābho jīveta yāvatā
-> jīvasya tattva-jijñāsā
+> kāmasya nendriya-prītir\
+> lābho jīveta yāvatā\
+> jīvasya tattva-jijñāsā\
 > nārtho yaś ceha karmabhiḥ
 
 *kāmasya*—of desires; *na*—not; *indriya*—senses; *prītiḥ*—satisfaction; *lābhaḥ*—gain; *jīveta*—self-preservation; *yāvatā*—so much so; *jīvasya*—of the living being; *tattva*—the Absolute Truth; *jijñāsā*—inquiries; *na*—not; *arthaḥ*—end; *yaḥ ca iha*—whatsoever else; *karmabhiḥ*—by occupational activities.

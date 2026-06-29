@@ -1,9 +1,9 @@
 ### CC Antya 11.69
 
-> তাঁরে বালু দিয়া উপরে পিণ্ডা বাঁধাইলা ।
+> তাঁরে বালু দিয়া উপরে পিণ্ডা বাঁধাইলা ।\
 > চৌদিকে পিণ্ডের মহা আবরণ কৈলা ॥৬৯॥
 
-> tāṅre vālu diyā upare piṇḍā bāṅdhāilā
+> tāṅre vālu diyā upare piṇḍā bāṅdhāilā\
 > caudike piṇḍera mahā āvaraṇa kailā
 
 *tāṅre*—sobre el cuerpo de Haridāsa Ṭhākura; *vālu*—arena; *diyā*—echando; *upare*—encima; *piṇḍā bāṅdhāilā*—construyeron una plataforma; *cau-dike*—por todos lados; *piṇḍera*—de la plataforma; *mahā āvaraṇa kailā*—hicieron una gran cerca protectora.

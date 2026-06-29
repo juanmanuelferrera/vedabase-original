@@ -1,9 +1,9 @@
 ### CC Antya 10.128
 
-> গোবিন্দ বলে, — ‘রাঘবের ঝালি মাত্র আছে’ ।
+> গোবিন্দ বলে, — ‘রাঘবের ঝালি মাত্র আছে’ ।\
 > প্রভু কহে, — ‘আজি রহু, তাহা দেখিমু পাছে’ ॥১২৮॥
 
-> govinda bale,—'rāghavera jhāli mātra āche'
+> govinda bale,—'rāghavera jhāli mātra āche'\
 > prabhu kahe,—'āji rahu, tāhā dekhimu pāche'
 
 *govinda bale*—Govinda replied; *rāghavera jhāli*—the bags given by Rāghava; *mātra*—only; *āche*—there is; *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *āji*—today; *rahu*—let remain; *tāhā*—that; *dekhimu*—I shall see; *pāche*—later.

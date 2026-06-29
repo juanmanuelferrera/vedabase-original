@@ -1,11 +1,11 @@
 ### SB 3.26.49
 
-> परस्य दृश्यते धर्मो ह्यपरस्मिन्समन्वयात् ।
+> परस्य दृश्यते धर्मो ह्यपरस्मिन्समन्वयात् ।\
 > अतो विशेषो भावानां भूमावेवोपलक्ष्यते ॥४९॥
 
-> parasya dṛśyate dharmo
-> hy aparasmin samanvayāt
-> ato viśeṣo bhāvānāṁ
+> parasya dṛśyate dharmo\
+> hy aparasmin samanvayāt\
+> ato viśeṣo bhāvānāṁ\
 > bhūmāv evopalakṣyate
 
 *parasya*—de la causa; *dṛśyate*—se observa; *dharmaḥ*—las características; *hi*—ciertamente; *aparasmin*—en el efecto; *samanvayāt*—en orden; *ataḥ*—de aquí; *viśeṣaḥ*—la característica distintiva; *bhāvānām*—de todos los elementos; *bhūmau*—en tierra; *eva*—sola; *upalakṣyate*—se observa.

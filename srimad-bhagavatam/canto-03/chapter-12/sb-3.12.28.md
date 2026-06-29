@@ -1,11 +1,11 @@
 ### SB 3.12.28
 
-> वाचं दुहितरं तन्वीं स्वयम्भूर्हरतीं मनः ।
+> वाचं दुहितरं तन्वीं स्वयम्भूर्हरतीं मनः ।\
 > अकामां चकमे क्षत्तः सकाम इति नः श्रुतम् ॥२८॥
 
-> vācaṁ duhitaraṁ tanvīṁ
-> svayambhūr haratīṁ manaḥ
-> akāmāṁ cakame kṣattaḥ
+> vācaṁ duhitaraṁ tanvīṁ\
+> svayambhūr haratīṁ manaḥ\
+> akāmāṁ cakame kṣattaḥ\
 > sa-kāma iti naḥ śrutam
 
 *vācam*—Vāk; *duhitaram*—unto the daughter; *tanvīm*—born of his body; *svayambhūḥ*—Brahmā; *haratīm*—attracting; *manaḥ*—his mind; *akāmām*—without being sexually inclined; *cakame*—desired; *kṣattaḥ*—O Vidura; *sa-kāmaḥ*—being sexually inclined; *iti*—thus; *naḥ*—we; *śrutam*—have heard.

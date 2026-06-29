@@ -1,9 +1,9 @@
 ### CC Madhya 6.35
 
-> সবে মেলি’ ধরি তাঁরে সুস্থির করিল ।
+> সবে মেলি’ ধরি তাঁরে সুস্থির করিল ।\
 > ঈশ্বর-সেবক মালা-প্রসাদ আনি’ দিল ॥৩৫॥
 
-> sabe meli' dhari tāṅre susthira karila
+> sabe meli' dhari tāṅre susthira karila\
 > īśvara-sevaka mālā-prasāda āni' dila
 
 *sabe meli'*—reuniéndose todos juntos; *dhari*—sujetaron; *tāṅre*—a Él; *su-sthira*—firme; *karila*—hicieron; *īśvara-sevaka*—el sacerdote de la Deidad; *mālā*—guirnalda; *prasāda*—ofrenda; *āni*—trayendo; *dila*—dio.

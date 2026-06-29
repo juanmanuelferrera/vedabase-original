@@ -1,9 +1,9 @@
 ### CC Adi 4.53
 
-> ভাবগ্রহণের হেতু কৈল ধর্ম স্থাপন ।
+> ভাবগ্রহণের হেতু কৈল ধর্ম স্থাপন ।\
 > তার মুখ্য হেতু কহি, শুন সর্বজন ॥৫৩॥
 
-> bhāva-grahaṇera hetu kaila dharma-sthāpana
+> bhāva-grahaṇera hetu kaila dharma-sthāpana\
 > tāra mukhya hetu kahi, śuna sarva-jana
 
 *bhāva-grahaṇera*—of accepting the mood; *hetu*—the reason; *kaila*—did; *dharma*—religion; *sthāpana*—establishing; *tāra*—of that; *mukhya*—principal; *hetu*—reason; *kahi*—I say; *śuna*—please hear; *sarva-jana*—everyone.

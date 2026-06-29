@@ -1,11 +1,11 @@
 ### SB 4.31.10
 
-> किं जन्मभिस्त्रिभिर्वेह शौक्रसावित्रयाज्ञिकैः ।
+> किं जन्मभिस्त्रिभिर्वेह शौक्रसावित्रयाज्ञिकैः ।\
 > कर्मभिर्वा त्रयीप्रोक्तैः पुंसोऽपि विबुधायुषा ॥१०॥
 
-> kiṁ janmabhis tribhir veha
-> śaukra-sāvitra-yājñikaiḥ
-> karmabhir vā trayī-proktaiḥ
+> kiṁ janmabhis tribhir veha\
+> śaukra-sāvitra-yājñikaiḥ\
+> karmabhir vā trayī-proktaiḥ\
 > puṁso 'pi vibudhāyuṣā
 
 *kim*—de qué sirve; *janmabhiḥ*—de nacimientos; *tribhiḥ*—tres; *vā*—o; *iha*—en este mundo; *śaukra*—por semen; *sāvitra*—por iniciación; *yājñikaiḥ*—por volverse un *brāhmaṇa* perfecto; *karmabhiḥ*—por actividades; *vā*—o; *trayī*—en los *Vedas*; *proktaiḥ*—instruido; *puṁsaḥ*—de un ser humano; *api*—incluso; *vibhuda*—de los semidioses; *āyuṣā*—con una duración de vida.

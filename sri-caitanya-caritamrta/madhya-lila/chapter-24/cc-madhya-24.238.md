@@ -1,9 +1,9 @@
 ### CC Madhya 24.238
 
-> “গোসাঞি, প্রয়াণ-পথ ছাড়ি’ কেনে আইলা ।
+> “গোসাঞি, প্রয়াণ-পথ ছাড়ি’ কেনে আইলা ।\
 > তোমা দেখি’ মোর লক্ষ্য মৃগ পলাইলা ।।” ॥ ২৩৮ ॥
 
-> "gosāñi, prayāṇa-patha chāḍi' kene āilā
+> "gosāñi, prayāṇa-patha chāḍi' kene āilā\
 > tomā dekhi' mora lakṣya mṛga palāilā"
 
 *gosāñi*—O great saintly person; *prayāṇa-patha chāḍi'*—leaving aside the general path; *kene*—why; *āilā*—have you come; *tomā dekhi'*—seeing you; *mora lakṣya*—my targets; *mṛga*—the animals; *palāilā*—fled.

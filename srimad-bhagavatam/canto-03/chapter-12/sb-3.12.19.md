@@ -1,11 +1,11 @@
 ### SB 3.12.19
 
-> तपसैव परं ज्योतिर्भगवन्तमधोक्षजम् ।
+> तपसैव परं ज्योतिर्भगवन्तमधोक्षजम् ।\
 > सर्वभूतगुहावासमञ्जसा विन्दते पुमान् ॥१९॥
 
-> tapasaiva paraṁ jyotir
-> bhagavantam adhokṣajam
-> sarva-bhūta-guhāvāsam
+> tapasaiva paraṁ jyotir\
+> bhagavantam adhokṣajam\
+> sarva-bhūta-guhāvāsam\
 > añjasā vindate pumān
 
 *tapasā*—by penance; *eva*—only; *param*—the supreme; *jyotiḥ*—light; *bhagavantam*—unto the Personality of Godhead; *adhokṣajam*—He who is beyond the approach of the senses; *sarva-bhūta-guhā-āvāsam*—residing in the heart of all living entities; *añjasā*—completely; *vindate*—can know; *pumān*—a person.

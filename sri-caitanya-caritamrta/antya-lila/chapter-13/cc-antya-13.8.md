@@ -1,9 +1,9 @@
 ### CC Antya 13.8
 
-> এক তূলী-বালিস গোবিন্দের হাতে দিলা ।
+> এক তূলী-বালিস গোবিন্দের হাতে দিলা ।\
 > ‘প্রভুরে শোয়াইহ ইহায়’ — তাহারে কহিলা ॥৮॥
 
-> eka tulī-bālisa govindera hāte dilā
+> eka tulī-bālisa govindera hāte dilā\
 > 'prabhure śoyāiha ihāya'—tāhāre kahilā
 
 *eka*—one; *tulī-bālisa*—quilt and pillow; *govindera*—of Govinda; *hāte*—in the hand; *dilā*—delivered; *prabhure*—Śrī Caitanya Mahāprabhu; *śoyāiha*—ask to lie down; *ihāya*—on this; *tāhāre*—to him; *kahilā*—said.

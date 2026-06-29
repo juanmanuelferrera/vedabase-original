@@ -1,13 +1,13 @@
 ### SB 3.25.1
 
-> शौनक उवाच
-> कपिलस्तत्त्वसङ्ख्याता भगवानात्ममायया ।
+> शौनक उवाच\
+> कपिलस्तत्त्वसङ्ख्याता भगवानात्ममायया ।\
 > जातः स्वयमजः साक्षादात्मप्रज्ञप्तये नृणाम् ॥१॥
 
-> śaunaka uvāca
-> kapilas tattva-saṅkhyātā
-> bhagavān ātma-māyayā
-> jātaḥ svayam ajaḥ sākṣād
+> śaunaka uvāca\
+> kapilas tattva-saṅkhyātā\
+> bhagavān ātma-māyayā\
+> jātaḥ svayam ajaḥ sākṣād\
 > ātma-prajñaptaye nṛṇām
 
 *śaunakaḥ uvāca*—Śrī Śaunaka dijo; *kapilaḥ*—el Señor Kapila; *tattva*—de la verdad; *saṅkhyātā*—el expositor; *bhagavān*—la Suprema Personalidad de Dios; *ātma-māyayā*—por medio de Su potencia interna; *jātaḥ*—nació; *svayam*—Él mismo; *ajaḥ*—innaciente; *sākṣāt*—en persona; *ātma-prajñaptaye*—para diseminar conocimiento trascendental; *nṛṇām*—para la raza humana.

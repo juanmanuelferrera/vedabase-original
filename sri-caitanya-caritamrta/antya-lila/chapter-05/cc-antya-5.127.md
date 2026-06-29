@@ -1,11 +1,11 @@
 ### CC Antya 5.127
 
-> “হ্লাদিন্যা সম্বিদাশ্লিষ্টঃ সচ্চিদানন্দ ঈশ্বরঃ ।
+> “হ্লাদিন্যা সম্বিদাশ্লিষ্টঃ সচ্চিদানন্দ ঈশ্বরঃ ।\
 > স্বাবিদ্যা-সংবৃতো জীবঃ সংক্লেশনিকরাকরঃ ।।” ॥ ১২৭ ॥
 
-> "hlādinyā samvidāśliṣṭaḥ
-> sac-cid-ānanda-īśvaraḥ
-> svāvidyā saṁvṛto jīvaḥ
+> "hlādinyā samvidāśliṣṭaḥ\
+> sac-cid-ānanda-īśvaraḥ\
+> svāvidyā saṁvṛto jīvaḥ\
 > saṅkleśa-nikārākara"
 
 *hlādinyā*—by the *hlādinī* potency; *samvidā*—by the *samvit* potency; *āśliṣṭaḥ*—surrounded; *sat-cit-ānanda*—always transcendentally blissful; *īśvaraḥ*—the Supreme Controller; *sva*—own; *avidyā*—by ignorance; *saṁvṛtaḥ*—surrounded; *jīvaḥ*—the living entity; *saṅkleśa*—of the three fold miseries; *nikāra*—of the multitude; *ākara*—the mine.

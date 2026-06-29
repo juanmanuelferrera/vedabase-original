@@ -1,11 +1,11 @@
 ### CC Antya 6.239
 
-> তৃণাদপি সুনীচেন তরোরিব সহিষ্ণুনা ।
+> তৃণাদপি সুনীচেন তরোরিব সহিষ্ণুনা ।\
 > অমানিনা মানদেন কীর্তনীয়ঃ সদা হরিঃ ।।” ॥ ২৩৯ ॥
 
-> tṛṇād api sunīcena
-> taror iva sahiṣṇunā
-> amāninā mānadena
+> tṛṇād api sunīcena\
+> taror iva sahiṣṇunā\
+> amāninā mānadena\
 > kīrtanīyaḥ sadā hariḥ"
 
 *tṛṇāt api*—than downtrodden grass; *sunīcena*—being lower; *taroḥ*—than a tree; *iva*—indeed; *sahiṣṇunā*—with more tolerance; *amāninā*—without being puffed up by false pride; *mānadena*—giving respect to all; *kīrtanīyaḥ*—to be chanted; *sadā*—always; *hariḥ*—the holy name of the Lord.

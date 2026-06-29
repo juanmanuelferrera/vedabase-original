@@ -1,13 +1,13 @@
 ### CC Adi 5.71
 
-> যস্যৈকনিশ্বসিত-কালমথাবলম্ব্য
-> জীবন্তি লোমবিলজা জগদণ্ডনাথাঃ ।
-> বিষ্ণুর্মহান্ স ইহ যস্য কলাবিশেষো
+> যস্যৈকনিশ্বসিত-কালমথাবলম্ব্য\
+> জীবন্তি লোমবিলজা জগদণ্ডনাথাঃ ।\
+> বিষ্ণুর্মহান্ স ইহ যস্য কলাবিশেষো\
 > গোবিন্দমাদিপুরুষং তমহং ভজামি ॥৭১॥
 
-> yasyaika-niśvasita-kālam athāvalambya
-> jīvanti loma-vila-jā jagad-aṇḍa-nāthāḥ
-> viṣṇur mahān sa iha yasya kalā-viśeṣo
+> yasyaika-niśvasita-kālam athāvalambya\
+> jīvanti loma-vila-jā jagad-aṇḍa-nāthāḥ\
+> viṣṇur mahān sa iha yasya kalā-viśeṣo\
 > govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 *yasya*—cuya; *eka*—una; *niśvasita*—de aliento; *kālam*—duración; *atha*—así; *avalambya*—refugiándose en; *jīvanti*—viven; *loma-vila-jāḥ*—nacidos de los poros del vello; *jagat-aṇḍa-nāthāḥ*—los señores de los universos (los Brahmās); *viṣṇuḥ mahān*—el Señor Supremo, Mahā-Viṣṇu; *saḥ*—ese; *iha*—aquí; *yasya*—cuya; *kalā-viśeṣaḥ*—porción particular plenaria o expansión; *govindam*—el Señor Govinda; *ādi-puruṣam*—la persona original; *tam*—a Él; *aham*—yo; *bhajāmi*—adoro.

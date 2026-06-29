@@ -1,9 +1,9 @@
 ### CC Antya 15.52
 
-> প্রিয়া-মুখে ভৃঙ্গ পড়ে, তাহা নিবারিতে ।
+> প্রিয়া-মুখে ভৃঙ্গ পড়ে, তাহা নিবারিতে ।\
 > লীলাপদ্ম চালাইতে হৈল অন্যচিত্তে ॥৫২॥
 
-> priyā-mukhe bhṛṅga paḍe, tāhā nivārite
+> priyā-mukhe bhṛṅga paḍe, tāhā nivārite\
 > līlā-padma cālāite haila anya-citte
 
 *priyā-mukhe*—sobre el rostro de Su amada; *bhṛṅga*—los abejorros; *paḍe*—caen; *tāhā*—eso; *nivārite*—para impedirlo; *līlā*—los pasatiempos; *padma*—la flor de loto; *cālāite*—al agitar; *haila*—estaba; *anya-citte*—con la mente distraída.

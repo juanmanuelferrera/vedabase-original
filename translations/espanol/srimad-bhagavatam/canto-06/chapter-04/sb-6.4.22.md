@@ -1,11 +1,11 @@
 ### SB 6.4.22
 
-> अस्तौषीद्धंसगुह्येन भगवन्तमधोक्षजम
+> अस्तौषीद्धंसगुह्येन भगवन्तमधोक्षजम\
 > तुभ्यं तदभिधास्यामि कस्यातुष्यद्यथा हरिः ॥२२॥
 
-> astauṣīd dhaṁsa-guhyena
-> bhagavantam adhokṣajam
-> tubhyaṁ tad abhidhāsyāmi
+> astauṣīd dhaṁsa-guhyena\
+> bhagavantam adhokṣajam\
+> tubhyaṁ tad abhidhāsyāmi\
 > kasyātuṣyad yathā hariḥ
 
 *astauṣīt*—satisfizo; *haṁsa-guhyena*—con las famosas oraciones llamadas *Haṁsa-guhya*; *bhagavantam*—a la Suprema Personalidad de Dios; *adhokṣajam*—que está fuera del alcance de los sentidos; *tubhyam*—a ti; *tat*—eso; *abhidhāsyāmi*—yo explicaré; *kasya*—con Dakṣa, el *prajāpati*; *atuṣyat*—Se sintió satisfecho; *yathā*—como; *hariḥ*—la Suprema Personalidad de Dios.

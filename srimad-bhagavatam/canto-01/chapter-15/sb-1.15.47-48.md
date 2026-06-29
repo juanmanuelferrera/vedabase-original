@@ -1,18 +1,18 @@
 ### SB 1.15.47-48
 
-> तद्ध्यानोद्रिक्तया भक्त्या विशुद्धधिषणाः परे ।
-> तस्मिन्नारायणपदे एकान्तमतयो गतिम् ॥४७॥
-> अवापुर्दुरवापां ते असद्भिर्विषयात्मभिः ।
+> तद्ध्यानोद्रिक्तया भक्त्या विशुद्धधिषणाः परे ।\
+> तस्मिन्नारायणपदे एकान्तमतयो गतिम् ॥४७॥\
+> अवापुर्दुरवापां ते असद्भिर्विषयात्मभिः ।\
 > विधूतकल्मषा स्थानं विरजेनात्मनैव हि ॥४८॥
 
-> tad-dhyānodriktayā bhaktyā
-> viśuddha-dhiṣaṇāḥ pare
-> tasmin nārāyaṇa-pade
+> tad-dhyānodriktayā bhaktyā\
+> viśuddha-dhiṣaṇāḥ pare\
+> tasmin nārāyaṇa-pade\
 > ekānta-matayo gatim
 
-> avāpur duravāpāṁ te
-> asadbhir viṣayātmabhiḥ
-> vidhūta-kalmaṣā sthānaṁ
+> avāpur duravāpāṁ te\
+> asadbhir viṣayātmabhiḥ\
+> vidhūta-kalmaṣā sthānaṁ\
 > virajenātmanaiva hi
 
 *tat*—that; *dhyāna*—positive meditation; *utriktayā*—being freed from; *bhaktyā*—by a devotional attitude; *viśuddha*—purified; *dhiṣaṇāḥ*—by intelligence; *pare*—unto the Transcendence; *tasmin*—in that; *nārāyaṇa*—the Personality of Godhead Śrī Kṛṣṇa; *pade*—unto the lotus feet; *ekānta-matayaḥ*—of those who are fixed in the Supreme, who is one; *gatim*—destination; *avāpuḥ*—attained; *duravāpām*—very difficult to obtain; *te*—by them; *asadbhiḥ*—by the materialists; *viṣaya-ātmabhiḥ*—absorbed in material needs; *vidhūta*—washed off; *kalmaṣāḥ*—material contaminations; *sthānam*—abode; *virajena*—without material passion; *ātmanā eva*—by the selfsame body; *hi*—certainly.

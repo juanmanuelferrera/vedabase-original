@@ -1,11 +1,11 @@
 ### SB 5.13.13
 
-> अन्योन्यवित्तव्यतिषङ्गवृद्ध वैरानुबन्धो विवहन्मिथश्च
+> अन्योन्यवित्तव्यतिषङ्गवृद्ध वैरानुबन्धो विवहन्मिथश्च\
 > अध्वन्यमुष्मिन्नुरुकृच्छ्रवित्त बाधोपसर्गैर्विहरन्विपन्नः ॥१३॥
 
-> anyonya-vitta-vyatiṣaṅga-vṛddha-
-> vairānubandho vivahan mithaś ca
-> adhvany amuṣminn uru-kṛcchra-vitta-
+> anyonya-vitta-vyatiṣaṅga-vṛddha-\
+> vairānubandho vivahan mithaś ca\
+> adhvany amuṣminn uru-kṛcchra-vitta-\
 > bādhopasargair viharan vipannaḥ
 
 *anyonya*—with one another; *vitta-vyatiṣaṅga*—by monetary transactions; *vṛddha*—increased; *vaira-anubandhaḥ*—one is encumbered by enmity; *vivahan*—sometimes marrying; *mithaḥ*—one another; *ca*—and; *adhvani*—on the path of material existence; *amuṣmin*—that; *uru-kṛcchra*—by great difficulties; *vitta-bādha*—by scarcity of money; *upasargaiḥ*—by diseases; *viharan*—wandering; *vipannaḥ*—one becomes fully embarrassed.

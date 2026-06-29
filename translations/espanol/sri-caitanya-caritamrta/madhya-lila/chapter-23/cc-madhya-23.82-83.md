@@ -1,18 +1,18 @@
 ### CC Madhya 23.82-83
 
-> সর্বাদ্ভুতচমৎকার-লীলাকল্লোলবারিধিঃ ।
-> অতুল্যমধুরপ্রেম-মণ্ডিতপ্রিয়মণ্ডলঃ ॥৮২॥
-> ত্রিজগন্মানসাকর্ষি-মুরলীকলকূজিতঃ ।
+> সর্বাদ্ভুতচমৎকার-লীলাকল্লোলবারিধিঃ ।\
+> অতুল্যমধুরপ্রেম-মণ্ডিতপ্রিয়মণ্ডলঃ ॥৮২॥\
+> ত্রিজগন্মানসাকর্ষি-মুরলীকলকূজিতঃ ।\
 > অসমানোর্ধ্বরূপশ্রী-বিস্মাপিতচরাচরঃ ॥৮৩॥
 
-> sarvādbhuta-camatkāra-
-> līlā-kallola-vāridhiḥ
-> atulya-madhura-prema-
+> sarvādbhuta-camatkāra-\
+> līlā-kallola-vāridhiḥ\
+> atulya-madhura-prema-\
 > maṇḍita-priya-maṇḍalaḥ
 
-> trijagan-mānasākarṣi-
-> muralī-kala-kūjitaḥ
-> asamānordhva-rūpa-śrī-
+> trijagan-mānasākarṣi-\
+> muralī-kala-kūjitaḥ\
+> asamānordhva-rūpa-śrī-\
 > vismāpita-carācaraḥ
 
 *sarva-adbhuta-camatkāra*—que causan asombro a todos; *līlā*—de pasatiempos; *kallola*—lleno de olas; *vāridhiḥ*—un océano; *atulya-madhura-prema*—con amor conyugal incomparable; *maṇḍita*—adornado; *priya-maṇḍalaḥ*—con un círculo de personalidades favoritas; *tri-jagat*—de los tres mundos; *mānasa-ākarṣi*—que atrae la mente; *muralī*—de la flauta; *kala-kūjitaḥ*—el melodioso sonido; *asamāna-ūrdhva*—sin igual e insuperable; *rūpa*—con belleza; *śrī*—y opulencia; *vismāpita-cara-acaraḥ*—que asombra a las entidades vivientes móviles e inmóviles.

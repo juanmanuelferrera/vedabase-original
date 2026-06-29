@@ -1,13 +1,13 @@
 ### SB 4.6.42
 
-> ब्रह्मोवाच
-> आने त्वामीशं विश्वस्य जगतो योनिबीजयोः ।
+> ब्रह्मोवाच\
+> आने त्वामीशं विश्वस्य जगतो योनिबीजयोः ।\
 > शक्तेः शिवस्य च परं यत्तद्ब्रह्मा निरन्तरम् ॥४२॥
 
-> brahmovāca
-> jāne tvām īśaṁ viśvasya
-> jagato yoni-bījayoḥ
-> śakteḥ śivasya ca paraṁ
+> brahmovāca\
+> jāne tvām īśaṁ viśvasya\
+> jagato yoni-bījayoḥ\
+> śakteḥ śivasya ca paraṁ\
 > yat tad brahma nirantaram
 
 *brahmā uvāca*—Lord Brahmā said; *jāne*—I know; *tvām*—you (Lord Śiva); *īśam*—the controller; *viśvasya*—of the entire material manifestation; *jagataḥ*—of the cosmic manifestation; *yoni-bījayoḥ*—of both the mother and father; *śakteḥ*—of potency; *śivasya*—of Śiva; *ca*—and; *param*—the Supreme; *yat*—which; *tat*—that; *brahma*—without change; *nirantaram*—with no material qualities.

@@ -1,9 +1,9 @@
 ### CC Adi 10.163
 
-> সংক্ষেপে কহিল মহাপ্রভুর ভক্তগণ ।
+> সংক্ষেপে কহিল মহাপ্রভুর ভক্তগণ ।\
 > সমগ্র বলিতে নারে ‘সহস্র-বদন’ ॥১৬৩॥
 
-> saṅkṣepe kahila mahāprabhura bhakta-gaṇa
+> saṅkṣepe kahila mahāprabhura bhakta-gaṇa\
 > samagra balite nāre 'sahasra-vadana'
 
 *saṅkṣepe*—in brief; *kahila*—described; *mahāprabhura*—of Lord Caitanya Mahāprabhu; *bhakta-gaṇa*—the devotees; *samagra*—all; *balite*—to speak; *nāre*—cannot; *sahasra-vadana*—Lord Śeṣa, who has thousands of mouths.

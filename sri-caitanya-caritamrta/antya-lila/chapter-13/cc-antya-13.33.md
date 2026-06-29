@@ -1,9 +1,9 @@
 ### CC Antya 13.33
 
-> স্বরূপ-গোসাঞির বোলে প্রভু আজ্ঞা দিলা ।
+> স্বরূপ-গোসাঞির বোলে প্রভু আজ্ঞা দিলা ।\
 > জগদানন্দে বোলাঞা তাঁরে শিখাইলা ॥৩৩॥
 
-> svarūpa-gosāñira bole prabhu ājñā dilā
+> svarūpa-gosāñira bole prabhu ājñā dilā\
 > jagadānande bolāñā tāṅre śikhāilā
 
 *svarūpa-gosāñira*—of Svarūpa Dāmodara Gosvāmī; *bole*—on the request; *prabhu*—Śrī Caitanya Mahāprabhu; *ājñā dilā*—gave permission; *jagadānande*—to Jagadānanda Paṇḍita; *bolāñā*—calling; *tāṅre*—to him; *śikhāilā*—gave instructions.

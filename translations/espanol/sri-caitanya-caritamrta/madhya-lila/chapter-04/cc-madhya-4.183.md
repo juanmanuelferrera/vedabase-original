@@ -1,9 +1,9 @@
 ### CC Madhya 4.183
 
-> উৎকলের দানী রাখে চন্দন দেখিঞা ।
+> উৎকলের দানী রাখে চন্দন দেখিঞা ।\
 > তাহাঁ এড়াইল রাজপত্র দেখাঞা ॥১৮৩॥
 
-> utkalera dānī rākhe candana dekhiñā
+> utkalera dānī rākhe candana dekhiñā\
 > tāhāṅ eḍāila rāja-patra dekhāñā
 
 *utkalera*—de Orissa; *dānī*—oficial recaudador; *rākhe*—retiene; *candana*—sándalo; *dekhiñā*—al ver; *tāhāṅ*—allí; *eḍāila*—escapó; *rāja-patra*—documento del gobierno; *dekhāñā*—mostrando.

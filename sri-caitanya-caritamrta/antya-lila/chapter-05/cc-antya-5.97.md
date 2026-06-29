@@ -1,9 +1,9 @@
 ### CC Antya 5.97
 
-> ‘রসাভাস’ হয় যদি ‘সিদ্ধান্তবিরোধ’ ।
+> ‘রসাভাস’ হয় যদি ‘সিদ্ধান্তবিরোধ’ ।\
 > সহিতে না পারে প্রভু, মনে হয় ক্রোধ ॥৯৭॥
 
-> 'rasābhāsa' haya yadi 'siddhānta-virodha'
+> 'rasābhāsa' haya yadi 'siddhānta-virodha'\
 > sahite nā pāre prabhu, mane haya krodha
 
 *rasa-ābhāsa*—overlapping of transcendental mellows; *haya*—there is; *yadi*—if; *siddhānta-virodha*—against the principles of the bhakti cult; *sahite nā pāre*—cannot tolerate; *prabhu*—Śrī Caitanya Mahāprabhu; *mane*—within the mind; *haya*—is; *krodha*—anger.

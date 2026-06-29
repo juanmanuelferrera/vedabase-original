@@ -1,10 +1,10 @@
 ### SB 5.3.4-5
 
-> ऋत्विज ऊचुः
-> अर्हसि मुहुरर्हत्तमार्हणमस्माकमनुपथानां नमो नम इत्येतावत्सदुपशिक्षितं कोऽर्हति पुमान्प्रकृतिगुणव्यतिकरमतिरनीश ईश्वरस्य परस्य प्रकृतिपुरुषयोरर्वाक्तनाभिर्नामरूपाकृतिभी रूपनिरूपणम्सकलजननिकायवृजिननिरसनशिवतमप्रवरगुणगणैकदेशकथनादृते ॥४॥
+> ऋत्विज ऊचुः\
+> अर्हसि मुहुरर्हत्तमार्हणमस्माकमनुपथानां नमो नम इत्येतावत्सदुपशिक्षितं कोऽर्हति पुमान्प्रकृतिगुणव्यतिकरमतिरनीश ईश्वरस्य परस्य प्रकृतिपुरुषयोरर्वाक्तनाभिर्नामरूपाकृतिभी रूपनिरूपणम्सकलजननिकायवृजिननिरसनशिवतमप्रवरगुणगणैकदेशकथनादृते ॥४॥\
 > परिजनानुरागविरचितशबलसंशब्दसलिलसितकिसलयतुलसिकादूर्वाङ्कुरैरपि सम्भृतयासपर्यया किल परम परितुष्यसि ॥५॥
 
-> ṛtvija ūcuḥ
+> ṛtvija ūcuḥ\
 > arhasi muhur arhattamārhaṇam asmākam anupathānāṁ namo nama ity etāvat sad-upaśikṣitaṁ ko 'rhati pumān prakṛti-guṇa-vyatikara-matir anīśa īśvarasya parasya prakṛti-puruṣayor arvāktanābhir nāma-rūpākṛtibhī rūpa-nirūpaṇam; sakala-jana-nikāya-vṛjina-nirasana-śivatama-pravara-guṇa-gaṇaika-deśa-kathanād ṛte.
 
 *ṛtvijaḥ ūcuḥ*—los sacerdotes dijeron; *arhasi*—por favor (acepta); *muhuḥ*—una y otra vez; *arhat-tama*—¡oh, Tú, objeto supremo de adoración!; *arhaṇam*—ofrenda de adoración; *asmākam*—de nosotros; *anupathānām*—que somos Tus sirvientes; *namaḥ*—reverencias respetuosas; *namaḥ*—reverencias respetuosas; *iti*—de ese modo; *etāvat*—hasta ahí; *sat*—por elevadas personalidades; *upaśikṣitam*—enseñado; *kaḥ*—qué; *arhati*—puede (hacer); *pumān*—el hombre; *prakṛti*—de la naturaleza material; *guṇa*—de las modalidades; *vyatikara*—en las transformaciones; *matiḥ*—cuya mente (está absorta); *anīśaḥ*—que es completamente incapaz; *īśvarasya*—de la Suprema Personalidad de Dios; *parasya*—más allá; *prakṛti-puruṣayoḥ*—el ámbito de las tres modalidades de la naturaleza material; *arvāktanābhiḥ*—que no llegan hasta, o que son del mundo material; *nāma-rūpa-ākṛtibhiḥ*—con nombres, formas y cualidades; *rūpa*—de Tu naturaleza o posición; *nirūpaṇam*—indagación, percepción; *sakala*—todas; *jana-nikāya*—de la humanidad; *vṛjina*—acciones pecaminosas; *nirasana*—eliminan; *śivatama*—sumamente auspiciosas; *pravara*—excelentes; *guṇa-gaṇa*—de las cualidades trascendentales; *eka-deśa*—una parte; *kathanāt*—hablando; *ṛte*—excepto.

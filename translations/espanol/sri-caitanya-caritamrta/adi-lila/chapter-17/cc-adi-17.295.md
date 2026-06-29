@@ -1,9 +1,9 @@
 ### CC Adi 17.295
 
-> সেই নন্দসূত — ইহঁ চৈতন্য-গোসাঞি ।
+> সেই নন্দসূত — ইহঁ চৈতন্য-গোসাঞি ।\
 > সেই বলদেব — ইহঁ নিত্যানন্দ ভাই ॥২৯৫॥
 
-> sei nanda-suta--ihaṅ caitanya-gosāñi
+> sei nanda-suta--ihaṅ caitanya-gosāñi\
 > sei baladeva--ihaṅ nityānanda bhāi
 
 *sei nanda-suta*—el mismo hijo de Nanda Mahārāja; *ihaṅ*—ahora; *caitanya-gosāñi*—Caitanya Mahāprabhu; *sei baladeva*—el mismísimo Baladeva; *ihaṅ*—ahora; *nityānanda bhāi*—Nityānanda Prabhu, el hermano de Śrī Caitanya Mahāprabhu.

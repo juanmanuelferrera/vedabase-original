@@ -1,11 +1,11 @@
 ### SB 3.1.43
 
-> नूनं नृपाणां त्रिमदोत्पथानां महीं मुहुश्चालयतां चमूभिः ।
+> नूनं नृपाणां त्रिमदोत्पथानां महीं मुहुश्चालयतां चमूभिः ।\
 > वधात्प्रपन्नार्तिजिहीर्षयेशोऽप्युपैक्षताघं भगवान्कुरूणाम् ॥४३॥
 
-> nūnaṁ nṛpāṇāṁ tri-madotpathānāṁ
-> mahīṁ muhuś cālayatāṁ camūbhiḥ
-> vadhāt prapannārti-jihīrṣayeśo
+> nūnaṁ nṛpāṇāṁ tri-madotpathānāṁ\
+> mahīṁ muhuś cālayatāṁ camūbhiḥ\
+> vadhāt prapannārti-jihīrṣayeśo\
 > 'py upaikṣatāghaṁ bhagavān kurūṇām
 
 *nūnam*—of course; *nṛpāṇām*—of the kings; *tri*—three; *mada-utpathānām*—going astray out of false pride; *mahīm*—earth; *muhuḥ*—constantly; *cālayatām*—agitating; *camūbhiḥ*—by movement of soldiers; *vadhāt*—from the act of killing; *prapanna*—surrendered; *ārti-jihīrṣaya*—willing to relieve the distress of the sufferers; *īśaḥ*—the Lord; *api*—in spite of; *upaikṣata*—waited; *agham*—offenses; *bhagavān*—the Supreme Lord; *kurūṇām*—of the Kurus.

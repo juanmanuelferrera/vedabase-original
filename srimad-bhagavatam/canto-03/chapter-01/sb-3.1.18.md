@@ -1,11 +1,11 @@
 ### SB 3.1.18
 
-> पुरेषु पुण्योपवनाद्रिकुञ्जेष्वपङ्कतोयेषु सरित्सरःसु ।
+> पुरेषु पुण्योपवनाद्रिकुञ्जेष्वपङ्कतोयेषु सरित्सरःसु ।\
 > अनन्तलिङ्गैः समलङ्कृतेषु चचार तीर्थायतनेष्वनन्यः ॥१८॥
 
-> pureṣu puṇyopavanādri-kuñjeṣv
-> apaṅka-toyeṣu sarit-saraḥsu
-> ananta-liṅgaiḥ samalaṅkṛteṣu
+> pureṣu puṇyopavanādri-kuñjeṣv\
+> apaṅka-toyeṣu sarit-saraḥsu\
+> ananta-liṅgaiḥ samalaṅkṛteṣu\
 > cacāra tīrthāyataneṣv ananyaḥ
 
 *pureṣu*—holy places like Ayodhyā, Dvārakā and Mathurā; *puṇya*—piety; *upa-vana*—the parks; *adri*—hill; *kuñjeṣu*—in the orchards; *apaṅka*—without sin; *toyeṣu*—in the water; *sarit*—river; *saraḥsu*—lakes; *ananta-liṅgaiḥ*—the forms of the Unlimited; *samalaṅkṛteṣu*—being so decorated; *cacāra*—executed; *tīrtha*—places of pilgrimage; *āyataneṣu*—holy lands; *ananyaḥ*—alone or seeing Kṛṣṇa alone.

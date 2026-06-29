@@ -1,9 +1,9 @@
 ### CC Antya 6.92
 
-> যত দ্রব্য লঞা আইসে, সব মূল্য করি’ লয় ।
+> যত দ্রব্য লঞা আইসে, সব মূল্য করি’ লয় ।\
 > তার দ্রব্য মূল্য দিয়া তাহারে খাওয়ায় ॥৯২॥
 
-> yata dravya lañā āise, saba mūlya kari' laya
+> yata dravya lañā āise, saba mūlya kari' laya\
 > tāra dravya mūlya diyā tāhāre khāoyāya
 
 *yata dravya*—todos los artículos; *lañā*—trayendo; *āise*—vienen; *saba*—todo; *mūlya kari' laya*—Raghunātha lo compró; *tāra dravya*—de sus mercancías; *mūlya diyā*—pagando el precio; *tāhāre khāoyāya*—les dio de comer.

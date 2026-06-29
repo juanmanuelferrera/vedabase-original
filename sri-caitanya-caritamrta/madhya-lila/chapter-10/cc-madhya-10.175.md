@@ -1,9 +1,9 @@
 ### CC Madhya 10.175
 
-> আজন্ম করিনু মুঞি ‘নিরাকার’-ধ্যান ।
+> আজন্ম করিনু মুঞি ‘নিরাকার’-ধ্যান ।\
 > তোমা দেখি’ ‘কৃষ্ণ’ হৈল মোর বিদ্যমান ॥১৭৫॥
 
-> ājanma karinu muñi 'nirākāra'-dhyāna
+> ājanma karinu muñi 'nirākāra'-dhyāna\
 > tomā dekhi' 'kṛṣṇa' haila mora vidyamāna
 
 *ā-janma*—since my birth; *karinu*—have done; *muñi*—I; *nirākāra-dhyāna*—meditation on impersonal Brahman; *tomā dekhi'*—by seeing You; *kṛṣṇa*—Lord Kṛṣṇa; *haila*—became; *mora*—my; *vidyamāna*—experience.

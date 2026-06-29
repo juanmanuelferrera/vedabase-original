@@ -1,11 +1,11 @@
 ### SB 4.8.56
 
-> लब्ध्वा द्रव्यमयीमर्चां क्षित्यम्ब्वादिषु वार्चयेत् ।
+> लब्ध्वा द्रव्यमयीमर्चां क्षित्यम्ब्वादिषु वार्चयेत् ।\
 > आभृतात्मा मुनिः शान्तो यतवाङ्मितवन्यभुक् ॥५६॥
 
-> labdhvā dravyamayīm arcāṁ
-> kṣity-ambv-ādiṣu vārcayet
-> ābhṛtātmā muniḥ śānto
+> labdhvā dravyamayīm arcāṁ\
+> kṣity-ambv-ādiṣu vārcayet\
+> ābhṛtātmā muniḥ śānto\
 > yata-vāṅ mita-vanya-bhuk
 
 *labdhvā*—obtener; *dravya-mayīm*—hecha de elementos físicos; *arcām*—Deidad adorable; *kṣiti*—tierra; *ambu*—agua; *ādiṣu*—empezando con; *vā*—o; *arcayet*—adorar; *ābhṛta-ātmā*—el que tiene pleno dominio de sí mismo; *muniḥ*—una gran personalidad; *śāntaḥ*—pacíficamente; *yata-vāk*—dominando la fuerza del habla; *mita*—frugal; *vanya-bhuk*—comer lo que se encuentre en el bosque.

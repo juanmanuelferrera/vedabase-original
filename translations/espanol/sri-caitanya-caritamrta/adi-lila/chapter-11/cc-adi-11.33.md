@@ -1,9 +1,9 @@
 ### CC Adi 11.33
 
-> নবদ্বীপে পুরুষোত্তম পণ্ডিত মহাশয় ।
+> নবদ্বীপে পুরুষোত্তম পণ্ডিত মহাশয় ।\
 > নিত্যানন্দ-নামে যাঁর মহোন্মাদ হয় ॥৩৩॥
 
-> navadvīpe puruṣottama paṇḍita mahāśaya
+> navadvīpe puruṣottama paṇḍita mahāśaya\
 > nityānanda-nāme yāṅra mahonmāda haya
 
 *navadvīpe puruṣottama*—Puruṣottama de Navadvīpa; *paṇḍita mahāśaya*—un erudito muy instruido; *nityānanda-nāme*—al oír el nombre del Señor Nityānanda Prabhu; *yāṅra*—cuyo; *mahā-unmāda*—gran éxtasis; *haya*—se produce.

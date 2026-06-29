@@ -1,9 +1,9 @@
 ### CC Adi 10.104
 
-> ইঁহা-সবার যৈছে হৈল প্রভুর মিলন ।
+> ইঁহা-সবার যৈছে হৈল প্রভুর মিলন ।\
 > আগে বিস্তারিয়া তাহা করিব বর্ণন ॥১০৪॥
 
-> iṅhā-sabāra yaiche haila prabhura milana
+> iṅhā-sabāra yaiche haila prabhura milana\
 > āge vistāriyā tāhā kariba varṇana
 
 *iṅhā*—de ellos; *sabāra*—de todos; *yaiche*—como; *haila*—sucedió; *prabhura*—de Śrī Caitanya Mahāprabhu; *milana*—encuentro; *āge*—más adelante; *vistāriyā*—expandiendo; *tāhā*—eso; *kariba*—haré; *varṇana*—descripción.

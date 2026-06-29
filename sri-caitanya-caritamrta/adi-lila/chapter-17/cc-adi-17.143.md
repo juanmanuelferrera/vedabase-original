@@ -1,9 +1,9 @@
 ### CC Adi 17.143
 
-> তবে মহাপ্রভু তার দ্বারেতে বসিলা ।
+> তবে মহাপ্রভু তার দ্বারেতে বসিলা ।\
 > ভব্যলোক পাঠাইয়া কাজীরে বোলাইলা ॥১৪৩॥
 
-> tabe mahāprabhu tāra dvārete vasilā
+> tabe mahāprabhu tāra dvārete vasilā\
 > bhavya-loka pāṭhāiyā kājīre bolāilā
 
 *tabe*—thereafter; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāra dvārete*—at the Kazi's door; *vasilā*—sat down; *bhavya-loka*—respectable persons; *pāṭhāiyā*—sending; *kājīre*—unto the Kazi; *bolāilā*—had them call.

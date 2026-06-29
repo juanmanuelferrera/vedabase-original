@@ -1,11 +1,11 @@
 ### SB 4.4.29
 
-> अहो अनात्म्यं महदस्य पश्यत प्रजापतेर्यस्य चराचरं प्रजाः ।
+> अहो अनात्म्यं महदस्य पश्यत प्रजापतेर्यस्य चराचरं प्रजाः ।\
 > जहावसून्यद्विमतात्मजा सती मनस्विनी मानमभीक्ष्णमर्हति ॥२९॥
 
-> aho anātmyaṁ mahad asya paśyata
-> prajāpater yasya carācaraṁ prajāḥ
-> jahāv asūn yad-vimatātmajā satī
+> aho anātmyaṁ mahad asya paśyata\
+> prajāpater yasya carācaraṁ prajāḥ\
+> jahāv asūn yad-vimatātmajā satī\
 > manasvinī mānam abhīkṣṇam arhati
 
 *aho*—¡oh!; *anātmyam*—desdén; *mahat*—grande; *asya*—de Dakṣa; *paśyata*—tan solo mira; *prajāpateḥ*—del *prajāpati*; *yasya*—de quien; *cara-acaram*—todas las entidades vivientes; *prajāḥ*—descendencia; *jahau*—abandonó; *asūn*—el cuerpo; *yat*—por quien; *vimatā*—no respetada; *ātma-jā*—su propia hija; *satī*—Satī; *manasvinī*—voluntariamente; *mānam*—respeto; *abhīkṣṇam*—repetidamente; *arhati*—merecido.

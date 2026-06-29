@@ -1,13 +1,13 @@
 ### SB 9.18.40
 
-> श्रीयदुरुवाच
-> नोत्सहे जरसा स्थातुमन्तरा प्राप्तया तव
+> श्रीयदुरुवाच\
+> नोत्सहे जरसा स्थातुमन्तरा प्राप्तया तव\
 > अविदित्वा सुखं ग्राम्यं वैतृष्ण्यं नैति पूरुषः ॥४०॥
 
-> śrī-yadur uvāca
-> notsahe jarasā sthātum
-> antarā prāptayā tava
-> aviditvā sukhaṁ grāmyaṁ
+> śrī-yadur uvāca\
+> notsahe jarasā sthātum\
+> antarā prāptayā tava\
+> aviditvā sukhaṁ grāmyaṁ\
 > vaitṛṣṇyaṁ naiti pūruṣaḥ
 
 *śrī-yaduḥ uvāca*—Yadu, el hijo mayor de Yayāti, contestó; *na utsahe*—no estoy entusiasta; *jarasā*—con tu vejez e invalidez; *sthātum*—permanecer; *antarā*—mientras dura la juventud; *prāptayā*—aceptada; *tava*—tuya; *aviditvā*—sin experimentar; *sukham*—felicidad; *grāmyam*—material o corporal; *vaitṛṣṇyam*—indiferencia hacia el disfrute material; *na*—no; *eti*—alcanza; *pūruṣaḥ*—una persona.

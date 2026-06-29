@@ -1,11 +1,11 @@
 ### SB 9.3.22
 
-> एवं ब्रुवाणं पितरं स्मयमाना शुचिस्मिता
+> एवं ब्रुवाणं पितरं स्मयमाना शुचिस्मिता\
 > उवाच तात जामाता तवैष भृगुनन्दनः ॥२२॥
 
-> evaṁ bruvāṇaṁ pitaraṁ
-> smayamānā śuci-smitā
-> uvāca tāta jāmātā
+> evaṁ bruvāṇaṁ pitaraṁ\
+> smayamānā śuci-smitā\
+> uvāca tāta jāmātā\
 > tavaiṣa bhṛgu-nandanaḥ
 
 *evam*—de este modo; *bruvāṇam*—que estaba hablando y riñéndole; *pitaram*—a su padre; *smayamānā*—sonriente (pues era casta); *śuci-smitā*—entre risas; *uvāca*—contestó; *tāta*—¡oh, mi querido padre!; *jāmātā*—yerno; *tava*—tuyo; *eṣaḥ*—este joven; *bhṛgu-nandanaḥ*—es Cyavana Muni (y ningún otro).

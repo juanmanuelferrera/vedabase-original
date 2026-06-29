@@ -1,9 +1,9 @@
 ### CC Antya 7.102
 
-> আচার্যাদি-আগে ভট্ট যবে যবে যায় ।
+> আচার্যাদি-আগে ভট্ট যবে যবে যায় ।\
 > রাজহংস-মধ্যে যেন রহে বকপ্রায় ॥১০২॥
 
-> ācāryādi-āge bhaṭṭa yabe yabe yāya
+> ācāryādi-āge bhaṭṭa yabe yabe yāya\
 > rājahaṁsa-madhye yena rahe baka-prāya
 
 *ācārya-ādi-āge*—ante Advaita Ācārya y los demás; *bhaṭṭa*—Vallabha Bhaṭṭa; *yabe yabe*—cada vez que; *yāya*—iba; *rāja-haṁsa-madhye*—en una sociedad de cisnes blancos; *yena*—como; *rahe*—permanecía; *baka-prāya*—como un pato.

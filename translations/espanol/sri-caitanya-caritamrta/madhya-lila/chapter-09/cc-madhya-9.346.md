@@ -1,9 +1,9 @@
 ### CC Madhya 9.346
 
-> জগন্নাথ-দরশন প্রেমাবেশে কৈল ৷
+> জগন্নাথ-দরশন প্রেমাবেশে কৈল ৷\
 > কম্প-স্বেদ-পুলকাশ্রুতে শরীর ভাসিল ৷৷ ৩৪৬ ৷৷ ॥৩৪৬॥
 
-> jagannātha-daraśana premāveśe kaila
+> jagannātha-daraśana premāveśe kaila\
 > kampa-sveda-pulakāśrute śarīra bhāsila
 
 *jagannātha-daraśana*—la visita al Señor Jagannātha; *prema-āveśe*—en amor extático; *kaila*—realizó; *kampa*—temblor; *sveda*—transpiración; *pulaka*—júbilo; *aśrute*—con lágrimas; *śarīra*—todo el cuerpo; *bhāsila*—se inundó.

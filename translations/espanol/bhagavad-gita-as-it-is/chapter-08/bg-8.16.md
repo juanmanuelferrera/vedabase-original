@@ -1,11 +1,11 @@
 ### Bg 8.16
 
-> आब्रह्मभुवनाल्लोकाः पुनरावर्तिनोऽर्जुन ।
+> आब्रह्मभुवनाल्लोकाः पुनरावर्तिनोऽर्जुन ।\
 > मामुपेत्य तु कौन्तेय पुनर्जन्म न विद्यते ॥१६॥
 
-> ābrahma-bhuvanāl lokāḥ
-> punar āvartino'rjuna
-> mām upetya tu kaunteya
+> ābrahma-bhuvanāl lokāḥ\
+> punar āvartino'rjuna\
+> mām upetya tu kaunteya\
 > punar janma na vidyate
 
 *ābrahma*—hasta el planeta Brahmaloka; *bhuvanāt*—de los sistemas planetarios; *lokāḥ*—planetas; *punaḥ*—de nuevo; *āvartinaḥ*—regresar; *arjuna*—¡oh, Arjuna!; *mām*—a Mí; *upetya*—llegando; *tu*—pero; *kaunteya*—¡oh, hijo de Kuntī!; *punaḥ janma*—volver a nacer; *na*—nunca; *vidyate*—ocurre.

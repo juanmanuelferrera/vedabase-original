@@ -1,11 +1,11 @@
 ### SB 8.24.26
 
-> नैवं वीर्यो जलचरो दृष्टोऽस्माभिः श्रुतोऽपि वा
+> नैवं वीर्यो जलचरो दृष्टोऽस्माभिः श्रुतोऽपि वा\
 > यो भवान्योजनशतमह्नाभिव्यानशे सरः ॥२६॥
 
-> naivaṁ vīryo jalacaro
-> dṛṣṭo 'smābhiḥ śruto 'pi vā
-> yo bhavān yojana-śatam
+> naivaṁ vīryo jalacaro\
+> dṛṣṭo 'smābhiḥ śruto 'pi vā\
+> yo bhavān yojana-śatam\
 > ahnābhivyānaśe saraḥ
 
 *na*—no; *evam*—así; *vīryaḥ*—poderoso; *jala-caraḥ*—ser acuático; *dṛṣṭaḥ*—visto; *asmābhiḥ*—por nosotros; *śrutaḥ api*—ni escuchado de; *vā*—o; *yaḥ*—quien; *bhavān*—Tu Señoría; *yojana-śatam*—cientos de kilómetros; *ahnā*—en un día; *abhivyānaśe*—aumentar; *saraḥ*—agua.

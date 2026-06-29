@@ -1,9 +1,9 @@
 ### CC Madhya 6.52
 
-> ‘বিশ্বম্ভর’ — নাম ইঁহার, তাঁর ইঁহো পুত্র ।
+> ‘বিশ্বম্ভর’ — নাম ইঁহার, তাঁর ইঁহো পুত্র ।\
 > নীলাম্বর চক্রবর্তীর হয়েন দৌহিত্র ॥৫২॥
 
-> 'viśvambhara'--nāma iṅhāra, tāṅra iṅho putra
+> 'viśvambhara'--nāma iṅhāra, tāṅra iṅho putra\
 > nīlāmbara cakravartīra hayena dauhitra
 
 *viśvambhara*—de nombre Viśvambhara; *nāma*—el nombre; *iṅhāra*—Su; *tāṅra*—de Jagannātha Miśra; *iṅho*—Él; *putra*—hijo; *nīlāmbara cakravartīra*—de Nīlāmbara Cakravartī; *hayena*—es; *dauhitra*—nieto (hijo de la hija).

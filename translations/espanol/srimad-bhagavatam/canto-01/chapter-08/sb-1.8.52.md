@@ -1,11 +1,11 @@
 ### SB 1.8.52
 
-> यथा पङ्केन पङ्काम्भः सुरया वा सुराकृतम् ।
+> यथा पङ्केन पङ्काम्भः सुरया वा सुराकृतम् ।\
 > भूतहत्यां तथैवैकां न यज्ञैर्मार्ष्टुमर्हति ॥५२॥
 
-> yathā paṅkena paṅkāmbhaḥ
-> surayā vā surākṛtam
-> bhūta-hatyāṁ tathaivaikāṁ
+> yathā paṅkena paṅkāmbhaḥ\
+> surayā vā surākṛtam\
+> bhūta-hatyāṁ tathaivaikāṁ\
 > na yajñair mārṣṭum arhati
 
 *yathā*—tanto como; *paṅkena*—por el lodo; *paṅka-ambhaḥ*—agua mezclada con lodo; *surayā*—por el vino; *vā*—tampoco; *surākṛtam*—impureza causada por el ligero contacto con el vino; *bhūta-hatyām*—matanza de animales; *tathā*—así; *eva*—ciertamente; *ekām*—uno; *na*—nunca; *yajñaiḥ*—mediante los sacrificios prescritos; *mārṣṭum*—contrarrestar; *arhati*—vale la pena.

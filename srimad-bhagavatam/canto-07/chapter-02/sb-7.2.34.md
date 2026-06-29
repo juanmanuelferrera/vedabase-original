@@ -1,11 +1,11 @@
 ### SB 7.2.34
 
-> त्वया कृतज्ञएन वयं महीपते कथं विना स्याम सुहृत्तमेन ते
+> त्वया कृतज्ञएन वयं महीपते कथं विना स्याम सुहृत्तमेन ते\
 > तत्रानुयानं तव वीर पादयोः शुश्रूषतीनां दिश यत्र यास्यसि ॥३४॥
 
-> tvayā kṛtajñena vayaṁ mahī-pate
-> kathaṁ vinā syāma suhṛttamena te
-> tatrānuyānaṁ tava vīra pādayoḥ
+> tvayā kṛtajñena vayaṁ mahī-pate\
+> kathaṁ vinā syāma suhṛttamena te\
+> tatrānuyānaṁ tava vīra pādayoḥ\
 > śuśrūṣatīnāṁ diśa yatra yāsyasi
 
 *tvayā*—you; *kṛtajñena*—a most grateful personality; *vayam*—we; *mahī-pate*—O King; *katham*—how; *vinā*—without; *syāma*—shall exist; *suhṛt-tamena*—the best of our friends; *te*—of you; *tatra*—there; *anuyānam*—the following; *tava*—of you; *vīra*—O hero; *pādayoḥ*—of the lotus feet; *śuśrūṣatīnām*—of those engaging in the service; *diśa*—please order; *yatra*—where; *yāsyasi*—you will go.

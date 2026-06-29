@@ -1,13 +1,13 @@
 ### SB 4.22.39
 
-> यत्पादपङ्कजपलाशविलासभक्त्या
-> कर्माशयं ग्रथितमुद्ग्रथयन्ति सन्तः ।
-> तद्वन्न रिक्तमतयो यतयोऽपि रुद्ध
+> यत्पादपङ्कजपलाशविलासभक्त्या\
+> कर्माशयं ग्रथितमुद्ग्रथयन्ति सन्तः ।\
+> तद्वन्न रिक्तमतयो यतयोऽपि रुद्ध\
 > स्रोतोगणास्तमरणं भज वासुदेवम् ॥३९॥
 
-> yat-pāda-paṅkaja-palāśa-vilāsa-bhaktyā
-> karmāśayaṁ grathitam udgrathayanti santaḥ
-> tadvan na rikta-matayo yatayo 'pi ruddha-
+> yat-pāda-paṅkaja-palāśa-vilāsa-bhaktyā\
+> karmāśayaṁ grathitam udgrathayanti santaḥ\
+> tadvan na rikta-matayo yatayo 'pi ruddha-\
 > sroto-gaṇās tam araṇaṁ bhaja vāsudevam
 
 *yat*—whose; *pāda*—feet; *paṅkaja*—lotus; *palāśa*—petals or toes; *vilāsa*—enjoyment; *bhaktyā*—by devotional service; *karma*—fruitive activities; *āśayam*—desire; *grathitam*—hard knot; *udgrathayanti*—root out; *santaḥ*—devotees; *tat*—that; *vat*—like; *na*—never; *rikta-matayaḥ*—persons devoid of devotional service; *yatayaḥ*—ever-increasingly trying; *api*—even though; *ruddha*—stopped; *srotaḥ-gaṇāḥ*—the waves of sense enjoyment; *tam*—unto Him; *araṇam*—worthy to take shelter; *bhaja*—engage in devotional service; *vāsudevam*—unto Kṛṣṇa, the son of Vasudeva.

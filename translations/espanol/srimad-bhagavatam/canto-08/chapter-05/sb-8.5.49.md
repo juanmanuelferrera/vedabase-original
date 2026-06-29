@@ -1,11 +1,11 @@
 ### SB 8.5.49
 
-> यथा हि स्कन्धशाखानां तरोर्मूलावसेचनम
+> यथा हि स्कन्धशाखानां तरोर्मूलावसेचनम\
 > एवमाराधनं विष्णोः सर्वेषामात्मनश्च हि ॥४९॥
 
-> yathā hi skandha-śākhānāṁ
-> taror mūlāvasecanam
-> evam ārādhanaṁ viṣṇoḥ
+> yathā hi skandha-śākhānāṁ\
+> taror mūlāvasecanam\
+> evam ārādhanaṁ viṣṇoḥ\
 > sarveṣām ātmanaś ca hi
 
 *yathā*—como; *hi*—en verdad; *skandha*—del tronco; *śākhānām*—y de las ramas; *taroḥ*—de un árbol; *mūla*—la raíz; *avasecanam*—regar; *evam*—de este modo; *ārādhanam*—adoración; *viṣṇoḥ*—del Señor Viṣṇu; *sarveṣām*—de todos; *ātmanaḥ*—de la Superalma; *ca*—también; *hi*—en verdad.

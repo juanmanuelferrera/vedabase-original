@@ -1,9 +1,9 @@
 ### CC Antya 15.26
 
-> সেই দুইজন প্রভুরে করে আশ্বাসন ।
+> সেই দুইজন প্রভুরে করে আশ্বাসন ।\
 > স্বরূপ গায়, রায় করে শ্লোক পঠন ॥২৬॥
 
-> sei dui-jana prabhure kare āśvāsana
+> sei dui-jana prabhure kare āśvāsana\
 > svarūpa gāya, rāya kare śloka paṭhana
 
 *sei*—those; *dui-jana*—two persons; *prabhure*—to Śrī Caitanya Mahāprabhu; *kare*—do; *āśvāsana*—pacification; *svarūpa gāya*—Svarūpa Dāmodara sings; *rāya*—Rāmānanda Rāya; *kare*—does; *śloka paṭhana*—recitation of verses.

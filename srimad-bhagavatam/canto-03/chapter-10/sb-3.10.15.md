@@ -1,11 +1,11 @@
 ### SB 3.10.15
 
-> आद्यस्तु महतः सर्गो गुणवैषम्यमात्मनः ।
+> आद्यस्तु महतः सर्गो गुणवैषम्यमात्मनः ।\
 > द्वितीयस्त्वहमो यत्र द्रव्यज्ञानक्रियोदयः ॥१५॥
 
-> ādyas tu mahataḥ sargo
-> guṇa-vaiṣamyam ātmanaḥ
-> dvitīyas tv ahamo yatra
+> ādyas tu mahataḥ sargo\
+> guṇa-vaiṣamyam ātmanaḥ\
+> dvitīyas tv ahamo yatra\
 > dravya-jñāna-kriyodayaḥ
 
 *ādyaḥ*—the first; *tu*—but; *mahataḥ*—of the total emanation from the Lord; *sargaḥ*—creation; *guṇa-vaiṣamyam*—interaction of the material modes; *ātmanaḥ*—of the Supreme; *dvitīyaḥ*—the second; *tu*—but; *ahamaḥ*—false ego; *yatra*—wherein; *dravya*—material ingredients; *jñāna*—material knowledge; *kriyā-udayaḥ*—awakening of activities (work).

@@ -1,11 +1,11 @@
 ### SB 3.24.28
 
-> बहुजन्मविपक्वेन सम्यग्योगसमाधिना ।
+> बहुजन्मविपक्वेन सम्यग्योगसमाधिना ।\
 > द्रष्टुं यतन्ते यतयः शून्यागारेषु यत्पदम् ॥२८॥
 
-> bahu-janma-vipakvena
-> samyag-yoga-samādhinā
-> draṣṭuṁ yatante yatayaḥ
+> bahu-janma-vipakvena\
+> samyag-yoga-samādhinā\
+> draṣṭuṁ yatante yatayaḥ\
 > śūnyāgāreṣu yat-padam
 
 *bahu*—muchos; *janma*—después de nacimientos; *vipakvena*—que es maduro; *samyak*—perfecto; *yoga-samādhinā*—mediante el trance yóguico; *draṣṭum*—para ver; *yatante*—se esfuerzan; *yatayaḥ*—los *yogīs*; *śūnya-agāreṣu*—en lugares apartados; *yat*—cuyos; *padam*—pies.

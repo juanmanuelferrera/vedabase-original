@@ -1,11 +1,11 @@
 ### SB 3.5.19
 
-> नैतच्चित्रं त्वयि क्षत्तर्बादरायणवीर्यजे ।
+> नैतच्चित्रं त्वयि क्षत्तर्बादरायणवीर्यजे ।\
 > गृहीतोऽनन्यभावेन यत्त्वया हरिरीश्वरः ॥१९॥
 
-> naitac citraṁ tvayi kṣattar
-> bādarāyaṇa-vīryaje
-> gṛhīto 'nanya-bhāvena
+> naitac citraṁ tvayi kṣattar\
+> bādarāyaṇa-vīryaje\
+> gṛhīto 'nanya-bhāvena\
 > yat tvayā harir īśvaraḥ
 
 *na*—never; *etat*—such inquiries; *citram*—very wonderful; *tvayi*—in you; *kṣattaḥ*—O Vidura; *bādarāyaṇa*—of Vyāsadeva; *vīrya-je*—born from the semen; *gṛhītaḥ*—accepted; *ananya-bhāvena*—without deviation from the thought; *yat*—because; *tvayā*—by you; *hariḥ*—the Personality of Godhead; *īśvaraḥ*—the Lord.

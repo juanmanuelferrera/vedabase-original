@@ -1,11 +1,11 @@
 ### SB 2.2.17
 
-> न यत्र कालोऽनिमिषां परः प्रभुः कुतो नु देवा जगतां य ईशिरे ।
+> न यत्र कालोऽनिमिषां परः प्रभुः कुतो नु देवा जगतां य ईशिरे ।\
 > न यत्र सत्त्वं न रजस्तमश्च न वै विकारो न महान्प्रधानम् ॥१७॥
 
-> na yatra kālo 'nimiṣāṁ paraḥ prabhuḥ
-> kuto nu devā jagatāṁ ya īśire
-> na yatra sattvaṁ na rajas tamaś ca
+> na yatra kālo 'nimiṣāṁ paraḥ prabhuḥ\
+> kuto nu devā jagatāṁ ya īśire\
+> na yatra sattvaṁ na rajas tamaś ca\
 > na vai vikāro na mahān pradhānam
 
 *na*—no; *yatra*—en el que; *kālaḥ*—el tiempo destructor; *animiṣām*—de los semidioses celestiales; *paraḥ*—superior; *prabhuḥ*—controlador; *kutaḥ*—donde hay; *nu*—ciertamente; *devāḥ*—los semidioses; *jagatām*—las criaturas mundanas; *ye*—esas; *īśire*—reglas; *na*—no; *yatra*—ahí; *sattvam*—bondad mundana; *na*—ni; *rajaḥ*—pasión mundana; *tamaḥ*—ignorancia mundana; *ca*—también; *na*—ni; *vai*—ciertamente; *vikāraḥ*—transformación; *na*—ni; *mahān*—el océano Causal material; *pradhānam*—la naturaleza material.

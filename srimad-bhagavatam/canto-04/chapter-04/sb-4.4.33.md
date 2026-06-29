@@ -1,11 +1,11 @@
 ### SB 4.4.33
 
-> अध्वर्युणा हूयमाने देवा उत्पेतुरोजसा ।
+> अध्वर्युणा हूयमाने देवा उत्पेतुरोजसा ।\
 > ऋभवो नाम तपसा सोमं प्राप्ताः सहस्रशः ॥३३॥
 
-> adhvaryuṇā hūyamāne
-> devā utpetur ojasā
-> ṛbhavo nāma tapasā
+> adhvaryuṇā hūyamāne\
+> devā utpetur ojasā\
+> ṛbhavo nāma tapasā\
 > somaṁ prāptāḥ sahasraśaḥ
 
 *adhvaryuṇā*—by the priest, Bhṛgu; *hūyamāne*—oblations being offered; *devāḥ*—demigods; *utpetuḥ*—became manifested; *ojasā*—with great strength; *ṛbhavaḥ*—the Ṛbhus; *nāma*—named; *tapasā*—by penance; *somam*—Soma; *prāptāḥ*—having achieved; *sahasraśaḥ*—by the thousands.

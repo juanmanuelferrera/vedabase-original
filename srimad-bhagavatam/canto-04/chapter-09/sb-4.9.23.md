@@ -1,11 +1,11 @@
 ### SB 4.9.23
 
-> त्वद्भ्रातर्युत्तमे नष्टे मृगयायां तु तन्मनाः ।
+> त्वद्भ्रातर्युत्तमे नष्टे मृगयायां तु तन्मनाः ।\
 > अन्वेषन्ती वनं माता दावाग्निं सा प्रवेक्ष्यति ॥२३॥
 
-> tvad-bhrātary uttame naṣṭe
-> mṛgayāyāṁ tu tan-manāḥ
-> anveṣantī vanaṁ mātā
+> tvad-bhrātary uttame naṣṭe\
+> mṛgayāyāṁ tu tan-manāḥ\
+> anveṣantī vanaṁ mātā\
 > dāvāgniṁ sā pravekṣyati
 
 *tvat*—your; *bhrātari*—brother; *uttame*—Uttama; *naṣṭe*—being killed; *mṛgayāyām*—in hunting; *tu*—then; *tat-manāḥ*—being too afflicted; *anveṣantī*—while searching out; *vanam*—in the forest; *mātā*—the mother; *dāva-agnim*—in the forest fire; *sā*—she; *pravekṣyati*—will enter.

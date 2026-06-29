@@ -1,9 +1,9 @@
 ### CC Adi 5.116
 
-> সেই বিষ্ণু হয় যাঁর অংশাংশের অংশ ।
+> সেই বিষ্ণু হয় যাঁর অংশাংশের অংশ ।\
 > সেই প্রভু নিত্যানন্দ — সর্ব-অবতংস ॥১১৬॥
 
-> sei viṣṇu haya yāṅra aṁśāṁśera aṁśa
+> sei viṣṇu haya yāṅra aṁśāṁśera aṁśa\
 > sei prabhu nityānanda—sarva-avataṁsa
 
 *sei*—that; *viṣṇu*—Lord Viṣṇu; *haya*—is; *yāṅra*—whose; *aṁśa-aṁśera*—of the part of the plenary part; *aṁśa*—part; *sei*—that; *prabhu*—Lord; *nityānanda*—Nityānanda; *sarva-avataṁsa*—the source of all incarnations.

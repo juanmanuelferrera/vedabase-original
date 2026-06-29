@@ -1,11 +1,11 @@
 ### SB 4.9.3
 
-> तद्दर्शनेनागतसाध्वसः क्षिताववन्दताङ्गं विनमय्य दण्डवत् ।
+> तद्दर्शनेनागतसाध्वसः क्षिताववन्दताङ्गं विनमय्य दण्डवत् ।\
 > दृग्भ्यां प्रपश्यन्प्रपिबन्निवार्भकश्चुम्बन्निवास्येन भुजैरिवाश्लिषन् ॥३॥
 
-> tad-darśanenāgata-sādhvasaḥ kṣitāv
-> avandatāṅgaṁ vinamayya daṇḍavat
-> dṛgbhyāṁ prapaśyan prapibann ivārbhakaś
+> tad-darśanenāgata-sādhvasaḥ kṣitāv\
+> avandatāṅgaṁ vinamayya daṇḍavat\
+> dṛgbhyāṁ prapaśyan prapibann ivārbhakaś\
 > cumbann ivāsyena bhujair ivāśliṣan
 
 *tat-darśanena*—after seeing the Lord; *āgata-sādhvasaḥ*—Dhruva Mahārāja, being greatly confused; *kṣitau*—on the ground; *avandata*—offered obeisances; *aṅgam*—his body; *vinamayya*—prostrating; *daṇḍavat*—just like a rod; *dṛgbhyām*—with his eyes; *prapaśyan*—looking upon; *prapiban*—drinking; *iva*—like; *arbhakaḥ*—the boy; *cumban*—kissing; *iva*—like; *āsyena*—with his mouth; *bhujaiḥ*—with his arms; *iva*—like; *āśliṣan*—embracing.

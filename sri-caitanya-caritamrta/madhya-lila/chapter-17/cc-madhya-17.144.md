@@ -1,9 +1,9 @@
 ### CC Madhya 17.144
 
-> ভাবকালি বেচিতে আমি আইলাঙ কাশীপুরে ।
+> ভাবকালি বেচিতে আমি আইলাঙ কাশীপুরে ।\
 > গ্রাহক নাহি, না বিকায়, লঞা যাব ঘরে ॥১৪৪॥
 
-> bhāvakāli vecite āmi āilāṅa kāśīpure
+> bhāvakāli vecite āmi āilāṅa kāśīpure\
 > grāhaka nāhi, nā vikāya, lañā yāba ghare
 
 *bhāvakāli*—devotional sentiments; *vecite*—to sell; *āmi*—I; *āilāṅa*—came; *kāśīpure*—to the city of Kāśī; *grāhaka nāhi*—there is no customer; *nā vikāya*—do not sell; *lañā yāba ghare*—then I must take my commodity back home.

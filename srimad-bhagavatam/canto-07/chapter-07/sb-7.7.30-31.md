@@ -1,18 +1,18 @@
 ### SB 7.7.30-31
 
-> गुरुशुश्रूषया भक्त्या सर्वलब्धार्पणेन च
-> सङ्गेन साधुभक्तानामीश्वराराधनेन च ॥३०॥
-> श्रद्धया तत्कथायां च कीर्तनैर्गुणकर्मणाम
+> गुरुशुश्रूषया भक्त्या सर्वलब्धार्पणेन च\
+> सङ्गेन साधुभक्तानामीश्वराराधनेन च ॥३०॥\
+> श्रद्धया तत्कथायां च कीर्तनैर्गुणकर्मणाम\
 > तत्पादाम्बुरुहध्यानात्तल्लिङ्गेक्षार्हणादिभिः ॥३१॥
 
-> guru-śuśrūṣayā bhaktyā
-> sarva-labdhārpaṇena ca
-> saṅgena sādhu-bhaktānām
+> guru-śuśrūṣayā bhaktyā\
+> sarva-labdhārpaṇena ca\
+> saṅgena sādhu-bhaktānām\
 > īśvarārādhanena ca
 
-> śraddhayā tat-kathāyāṁ ca
-> kīrtanair guṇa-karmaṇām
-> tat-pādāmburuha-dhyānāt
+> śraddhayā tat-kathāyāṁ ca\
+> kīrtanair guṇa-karmaṇām\
+> tat-pādāmburuha-dhyānāt\
 > tal-liṅgekṣārhaṇādibhiḥ
 
 *guru-śuśrūṣayā*—by rendering service to the bona fide spiritual master; *bhaktyā*—with faith and devotion; *sarva*—all; *labdha*—of material gains; *arpaṇena*—by offering (to the *guru,* or to Kṛṣṇa through the spiritual master); *ca*—and; *saṅgena*—by the association; *sādhu-bhaktānām*—of devotees and saintly persons; *īśvara*—of the Supreme Personality of Godhead; *ārādhanena*—by the worship; *ca*—and; *śraddhayā*—with great faith; *tat-kathāyām*—in discourses about the Lord; *ca*—and; *kīrtanaiḥ*—by glorifications; *guṇa-karmaṇām*—of the transcendental qualities and activities of the Lord; *tat*—His; *pāda-amburuha*—on the lotus feet; *dhyānāt*—by meditation; *tat*—His; *liṅga*—forms (Deities); *īkṣa*—observing; *arhaṇa-ādibhiḥ*—and by worshiping.

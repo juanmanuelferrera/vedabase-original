@@ -1,11 +1,11 @@
 ### SB 6.13.21
 
-> स वाजिमेधेन यथोदितेन वितायमानेन मरीचिमिश्रैः
+> स वाजिमेधेन यथोदितेन वितायमानेन मरीचिमिश्रैः\
 > इष्ट्वाधियज्ञअं पुरुषं पुराणमिन्द्रो महानास विधूतपापः ॥२१॥
 
-> sa vājimedhena yathoditena
-> vitāyamānena marīci-miśraiḥ
-> iṣṭvādhiyajñaṁ puruṣaṁ purāṇam
+> sa vājimedhena yathoditena\
+> vitāyamānena marīci-miśraiḥ\
+> iṣṭvādhiyajñaṁ puruṣaṁ purāṇam\
 > indro mahān āsa vidhūta-pāpaḥ
 
 *saḥ*—he (Indra); *vājimedhena*—by the *aśvamedha* sacrifice; *yathā*—just as; *uditena*—described; *vitāyamānena*—being performed; *marīci-miśraiḥ*—by the priests, headed by Marīci; *iṣṭvā*—worshiping; *adhiyajñam*—the Supreme Supersoul; *puruṣam purāṇam*—the original Personality of Godhead; *indraḥ*—King Indra; *mahān*—worshipable; *āsa*—became; *vidhūta-pāpaḥ*—being cleansed of all sinful reactions.

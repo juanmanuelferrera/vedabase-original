@@ -1,9 +1,9 @@
 ### CC Antya 9.132
 
-> ‘নেতধটী’-মাথে গোপীনাথ চরণে পড়িলা ।
+> ‘নেতধটী’-মাথে গোপীনাথ চরণে পড়িলা ।\
 > রাজার কৃপা-বৃত্তান্ত সকল কহিলা ॥১৩২॥
 
-> 'netadhaṭī'-māthe gopīnātha caraṇe paḍilā
+> 'netadhaṭī'-māthe gopīnātha caraṇe paḍilā\
 > rājāra kṛpā-vṛttānta sakala kahilā
 
 *netadhaṭī-māthe*—con la cubierta de seda sobre la cabeza; *gopīnātha*—Gopīnātha Paṭṭanāyaka; *caraṇe paḍilā*—cayó a los pies de loto; *rājāra*—del rey; *kṛpā-vṛttānta*—el relato de la misericordia; *sakala*—todo; *kahilā*—narró.

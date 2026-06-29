@@ -1,9 +1,9 @@
 ### CC Adi 13.35
 
-> তার মধ্যে নীলাচলে ছয় বৎসর ।
+> তার মধ্যে নীলাচলে ছয় বৎসর ।\
 > নৃত্য, গীত, প্রেমভক্তি-দান নিরন্তর ॥৩৫॥
 
-> tāra madhye nīlācale chaya vatsara
+> tāra madhye nīlācale chaya vatsara\
 > nṛtya, gīta, premabhakti-dāna nirantara
 
 *tāra madhye*—de esos veinticuatro años; *nīlācale*—mientras permanecía en Jagannātha Purī; *chaya vatsara*—continuamente durante seis años; *nṛtya*—danza; *gīta*—canto; *prema-bhakti*—amor por Kṛṣṇa; *dāna*—distribución; *nirantara*—siempre.

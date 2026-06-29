@@ -1,11 +1,11 @@
 ### SB 5.1.2
 
-> न नूनं मुक्तसङ्गानां तादृशानां द्विजर्षभ
+> न नूनं मुक्तसङ्गानां तादृशानां द्विजर्षभ\
 > गृहेष्वभिनिवेशोऽयं पुंसां भवितुमर्हति ॥२॥
 
-> na nūnaṁ mukta-saṅgānāṁ
-> tādṛśānāṁ dvijarṣabha
-> gṛheṣv abhiniveśo 'yaṁ
+> na nūnaṁ mukta-saṅgānāṁ\
+> tādṛśānāṁ dvijarṣabha\
+> gṛheṣv abhiniveśo 'yaṁ\
 > puṁsāṁ bhavitum arhati
 
 *na*—no; *nūnam*—sin duda; *mukta-saṅgānām*—que están libres de apego; *tādṛśānām*—esos; *dvija-ṛṣabha*—¡oh, tú, el más grande de los *brāhmaṇas*!; *gṛheṣu*—a la vida familiar; *abhiniveśaḥ*—apego excesivo; *ayam*—este; *puṁsām*—de personas; *bhavitum*—estar; *arhati*—es posible.

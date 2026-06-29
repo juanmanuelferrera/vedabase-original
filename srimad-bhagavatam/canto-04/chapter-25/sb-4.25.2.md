@@ -1,11 +1,11 @@
 ### SB 4.25.2
 
-> रुद्रगीतं भगवतः स्तोत्रं सर्वे प्रचेतसः ।
+> रुद्रगीतं भगवतः स्तोत्रं सर्वे प्रचेतसः ।\
 > जपन्तस्ते तपस्तेपुर्वर्षाणामयुतं जले ॥२॥
 
-> rudra-gītaṁ bhagavataḥ
-> stotraṁ sarve pracetasaḥ
-> japantas te tapas tepur
+> rudra-gītaṁ bhagavataḥ\
+> stotraṁ sarve pracetasaḥ\
+> japantas te tapas tepur\
 > varṣāṇām ayutaṁ jale
 
 *rudra-gītam*—the song sung by Lord Śiva; *bhagavataḥ*—of the Lord; *stotram*—prayer; *sarve*—all; *pracetasaḥ*—the princes known as the Pracetās; *japantaḥ*—reciting; *te*—all of them; *tapaḥ*—austerity; *tepuḥ*—executed; *varṣāṇām*—of years; *ayutam*—ten thousand; *jale*—within the water.

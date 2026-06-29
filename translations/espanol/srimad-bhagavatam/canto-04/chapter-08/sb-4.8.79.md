@@ -1,11 +1,11 @@
 ### SB 4.8.79
 
-> यदैकपादेन स पार्थिवार्भकस्तस्थौ तदङ्गुष्ठनिपीडिता मही ।
+> यदैकपादेन स पार्थिवार्भकस्तस्थौ तदङ्गुष्ठनिपीडिता मही ।\
 > ननाम तत्रार्धमिभेन्द्रधिष्ठिता तरीव सव्येतरतः पदे पदे ॥७९॥
 
-> yadaika-pādena sa pārthivārbhakas
-> tasthau tad-aṅguṣṭha-nipīḍitā mahī
-> nanāma tatrārdham ibhendra-dhiṣṭhitā
+> yadaika-pādena sa pārthivārbhakas\
+> tasthau tad-aṅguṣṭha-nipīḍitā mahī\
+> nanāma tatrārdham ibhendra-dhiṣṭhitā\
 > tarīva savyetarataḥ pade pade
 
 *yadā*—cuando; *eka*—con una; *pādena*—pierna; *saḥ*—Dhruva Mahārāja; *pārthiva*—del rey; *arbhakaḥ*—el hijo; *tasthau*—se mantenía sobre; *tat-aṅguṣṭha*—el dedo gordo de su pie; *nipīḍitā*—bajo la presión; *mahī*—la Tierra; *nanāma*—se inclinaba; *tatra*—entonces; *ardham*—mitad; *ibha-indra*—el rey de los elefantes; *dhiṣṭhitā*—estando situado; *tarī iva*—como una barca; *savya-itarataḥ*—a derecha e izquierda; *pade pade*—con cada paso.

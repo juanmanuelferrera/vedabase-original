@@ -1,11 +1,11 @@
 ### SB 3.11.36
 
-> तस्यैव चान्ते कल्पोऽभूद्यं पाद्ममभिचक्षते ।
+> तस्यैव चान्ते कल्पोऽभूद्यं पाद्ममभिचक्षते ।\
 > यद्धरेर्नाभिसरस आसील्लोकसरोरुहम् ॥३६॥
 
-> tasyaiva cānte kalpo 'bhūd
-> yaṁ pādmam abhicakṣate
-> yad dharer nābhi-sarasa
+> tasyaiva cānte kalpo 'bhūd\
+> yaṁ pādmam abhicakṣate\
+> yad dharer nābhi-sarasa\
 > āsīl loka-saroruham
 
 *tasya*—del Brāhma-kalpa; *eva*—ciertamente; *ca*—también; *ante*—al final de; *kalpaḥ*—milenio; *abhūt*—comenzó a existir; *yam*—el cual; *pādmam*—Pādma; *abhicakṣate*—se denomina; *yat*—en el cual; *hareḥ*—de la Personalidad de Dios; *nābhi*—en el ombligo; *sarasaḥ*—del receptáculo de agua; *āsīt*—había; *loka*—del universo; *saroruham*—loto.

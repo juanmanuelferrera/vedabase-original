@@ -1,11 +1,11 @@
 ### SB 1.2.7
 
-> वासुदेवे भगवति भक्तियोगः प्रयोजितः ।
+> वासुदेवे भगवति भक्तियोगः प्रयोजितः ।\
 > जनयत्याशु वैराग्यं ज्ञानं च यदहैतुकम् ॥७॥
 
-> vāsudeve bhagavati
-> bhakti-yogaḥ prayojitaḥ
-> janayaty āśu vairāgyaṁ
+> vāsudeve bhagavati\
+> bhakti-yogaḥ prayojitaḥ\
+> janayaty āśu vairāgyaṁ\
 > jñānaṁ ca yad ahaitukam
 
 *vāsudeve*—unto Kṛṣṇa; *bhagavati*—unto the Personality of Godhead; *bhakti-yogaḥ*—contact of devotional service; *prayojitaḥ*—being applied; *janayati*—does produce; *āśu*—very soon; *vairāgyam*—detachment; *jñānam*—knowledge; *ca*—and; *yat*—that which; *ahaitukam*—causeless.

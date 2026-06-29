@@ -1,9 +1,9 @@
 ### CC Antya 7.106
 
-> শুনি’ প্রভু কহেন, — “তুমি না জান ধর্মমর্ম ।
+> শুনি’ প্রভু কহেন, — “তুমি না জান ধর্মমর্ম ।\
 > স্বামি-আজ্ঞা পালে, — এই পতিব্রতা-ধর্ম ॥১০৬॥
 
-> śuni' prabhu kahena,—"tumi nā jāna dharma-marma
+> śuni' prabhu kahena,—"tumi nā jāna dharma-marma\
 > svāmi-ājñā pāle,—ei pati-vratā-dharma
 
 *śuni'*—hearing; *prabhu kahena*—Śrī Caitanya Mahāprabhu said; *tumi*—you; *nā jāna*—do not know; *dharma-marma*—real religious principles; *svāmi*—of the husband; *ājñā*—order; *pāle*—obeys; *ei*—this; *pati-vratā-dharma*—the religious principle of a chaste woman.

@@ -1,11 +1,11 @@
 ### SB 1.2.4
 
-> नारायणं नमस्कृत्य नरं चैव नरोत्तमम् ।
+> नारायणं नमस्कृत्य नरं चैव नरोत्तमम् ।\
 > देवीं सरस्वतीं व्यासं ततो जयमुदीरयेत् ॥४॥
 
-> nārāyaṇaṁ namaskṛtya
-> naraṁ caiva narottamam
-> devīṁ sarasvatīṁ vyāsaṁ
+> nārāyaṇaṁ namaskṛtya\
+> naraṁ caiva narottamam\
+> devīṁ sarasvatīṁ vyāsaṁ\
 > tato jayam udīrayet
 
 *nārāyaṇam*—la Personalidad de Dios; *namaḥ-kṛtya*—después de ofrecer respetuosas reverencias; *naram ca eva*—y Nārāyaṇa Ṛṣi; *nara-uttamam*—el ser humano supremo; *devīm*—la diosa; *sarasvatīm*—el ama del conocimiento; *vyāsam*—Vyāsadeva; *tataḥ*—después; *jayam*—todo lo que está hecho para conquistar; *udīrayet*—anúnciese.

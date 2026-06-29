@@ -1,11 +1,11 @@
 ### SB 6.4.9
 
-> अन्नं चराणामचरा ह्यपदः पादचारिणाम
+> अन्नं चराणामचरा ह्यपदः पादचारिणाम\
 > अहस्ता हस्तयुक्तानां द्विपदां च चतुष्पदः ॥९॥
 
-> annaṁ carāṇām acarā
-> hy apadaḥ pāda-cāriṇām
-> ahastā hasta-yuktānāṁ
+> annaṁ carāṇām acarā\
+> hy apadaḥ pāda-cāriṇām\
+> ahastā hasta-yuktānāṁ\
 > dvi-padāṁ ca catuṣ-padaḥ
 
 *annam*—alimento; *carāṇām*—de los que se desplazan mediante alas; *acarāḥ*—los inmóviles (frutas y flores); *hi*—en verdad; *apadaḥ*—las entidades vivientes sin patas, como la hierba; *pāda-cāriṇām*—de los animales que caminan sobre sus patas, como la vaca y el búfalo; *ahastāḥ*—animales sin manos; *hasta-yuktānām*—de los animales con manos, como el tigre; *dvi-padām*—de los seres humanos, que tienen dos piernas; *ca*—y; *catuḥ-padaḥ*—los animales de cuatro patas, como el ciervo.

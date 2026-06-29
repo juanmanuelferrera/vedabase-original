@@ -1,9 +1,9 @@
 ### CC Madhya 10.168
 
-> ‘ব্যাপ্য’ ‘ব্যাপক’-ভাবে ‘জীব’-‘ব্রহ্মে’ জানি ।
+> ‘ব্যাপ্য’ ‘ব্যাপক’-ভাবে ‘জীব’-‘ব্রহ্মে’ জানি ।\
 > জীব — ব্যাপ্য, ব্রহ্ম — ব্যাপক, শাস্ত্রেতে বাখানি ॥১৬৮॥
 
-> 'vyāpya' 'vyāpaka'-bhāve 'jīva'-'brahme' jāni
+> 'vyāpya' 'vyāpaka'-bhāve 'jīva'-'brahme' jāni\
 > jīva-vyāpya, brahma-vyāpaka, śāstrete vākhāni
 
 *vyāpya*—localized; *vyāpaka*—all-pervading; *bhāve*—in this way; *jīva*—living entity; *brahme*—the Supreme Lord; *jāni*—I know; *jīva*—the living entity; *vyāpya*—localized; *brahma*—the Supreme Lord; *vyāpaka*—all-pervading; *śāstrete*—in the revealed scripture; *vākhāni*—description.

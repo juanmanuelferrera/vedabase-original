@@ -1,11 +1,11 @@
 ### SB 4.10.15
 
-> नदत्सु यातुधानेषु जयकाशिष्वथो मृधे ।
+> नदत्सु यातुधानेषु जयकाशिष्वथो मृधे ।\
 > उदतिष्ठद्रथस्तस्य नीहारादिव भास्करः ॥१५॥
 
-> nadatsu yātudhāneṣu
-> jaya-kāśiṣv atho mṛdhe
-> udatiṣṭhad rathas tasya
+> nadatsu yātudhāneṣu\
+> jaya-kāśiṣv atho mṛdhe\
+> udatiṣṭhad rathas tasya\
 > nīhārād iva bhāskaraḥ
 
 *nadatsu*—while exclaiming; *yātudhāneṣu*—the ghostly Yakṣas; *jaya-kāśiṣu*—proclaiming victory; *atho*—then; *mṛdhe*—in the fighting; *udatiṣṭhat*—appeared; *rathaḥ*—the chariot; *tasya*—of Dhruva Mahārāja; *nīhārāt*—from the mist; *iva*—like; *bhāskaraḥ*—the sun.

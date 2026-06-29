@@ -1,11 +1,11 @@
 ### CC Antya 1.184
 
-> নটতা কিরাতরাজং নিহত্য রঙ্গস্থলে কলানিধিনা ।
+> নটতা কিরাতরাজং নিহত্য রঙ্গস্থলে কলানিধিনা ।\
 > সময়ে তেন বিধেয়ং গুণবতি তারাকরগ্রহণম্ ॥১৮৪॥
 
-> naṭatā kirāta-rājaṁ
-> nihatya raṅga-sthale kalā-nidhinā
-> samaye tena vidheyaṁ
+> naṭatā kirāta-rājaṁ\
+> nihatya raṅga-sthale kalā-nidhinā\
+> samaye tena vidheyaṁ\
 > guṇavati tārā-kara-grahaṇam
 
 *naṭatā*—danzando en el escenario; *kirāta-rājam*—el gobernante de los kirātas (hombres incivilizados), Kaṁsa; *nihatya*—matando; *raṅga-sthale*—en el escenario; *kalā-nidhinā*—el amo de todas las artes; *samaye*—en el momento; *tena*—por Él; *vidheyam*—que ha de hacerse; *guṇa-vati*—en el momento oportuno; *tārā-kara*—de la mano de Tārā (Rādhā); *grahaṇam*—la aceptación.

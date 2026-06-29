@@ -1,9 +1,9 @@
 ### CC Madhya 8.68
 
-> প্রভু কহে, — “এহো হয়, আগে কহ আর ৷”
+> প্রভু কহে, — “এহো হয়, আগে কহ আর ৷”\
 > রায় কহে, — “প্রেমভক্তি — সর্বসাধ্যসার ৷৷” ৬৮ ৷৷ ॥৬৮॥
 
-> prabhu kahe,--"eho haya, āge kaha āra"
+> prabhu kahe,--"eho haya, āge kaha āra"\
 > rāya kahe, "prema-bhakti--sarva-sādhya-sāra"
 
 *prabhu kahe*—el Señor dijo; *eho haya*—eso está bien; *āge kaha āra*—di algo más; *rāya kahe*—Rāya respondió; *prema-bhakti*—amor extático en el servicio devocional al Señor; *sarva-sādhya-sāra*—la esencia de toda perfección.

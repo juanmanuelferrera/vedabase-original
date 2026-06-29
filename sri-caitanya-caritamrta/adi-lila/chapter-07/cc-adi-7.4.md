@@ -1,9 +1,9 @@
 ### CC Adi 7.4
 
-> পঞ্চতত্ত্ব অবতীর্ণ চৈতন্যের সঙ্গে ।
+> পঞ্চতত্ত্ব অবতীর্ণ চৈতন্যের সঙ্গে ।\
 > পঞ্চতত্ত্ব লঞা করেন সংকীর্তন রঙ্গে ॥৪॥
 
-> pañca-tattva avatīrṇa caitanyera saṅge
+> pañca-tattva avatīrṇa caitanyera saṅge\
 > pañca-tattva lañā karena saṅkīrtana raṅge
 
 *pañca-tattva*—these five *tattvas*; *avatīrṇa*—advented; *caitanyera*—with Caitanya Mahāprabhu; *saṅge*—in company with; *pañca-tattva*—the same five subjects; *lañā*—taking with Himself; *karena*—He does; *saṅkīrtana*—the *saṅkīrtana* movement; *raṅge*—in great pleasure.

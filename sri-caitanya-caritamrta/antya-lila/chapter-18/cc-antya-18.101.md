@@ -1,13 +1,13 @@
 ### CC Antya 18.101
 
-> পুনরপি কৈল স্নান, শুষ্কবস্ত্র পরিধান,
-> রত্ন-মন্দিরে কৈলা আগমন ।
-> বৃন্দা-কৃত সম্ভার, গন্ধপুষ্প-অলঙ্কার,
+> পুনরপি কৈল স্নান, শুষ্কবস্ত্র পরিধান,\
+> রত্ন-মন্দিরে কৈলা আগমন ।\
+> বৃন্দা-কৃত সম্ভার, গন্ধপুষ্প-অলঙ্কার,\
 > বন্যবেশ করিল রচন ॥১০১॥
 
-> punarapi kaila snāna, śuṣka-vastra paridhāna,
-> ratna-mandire kailā āgamana
-> vṛndā-kṛta sambhāra, gandha-puṣpa-alaṅkāra,
+> punarapi kaila snāna, śuṣka-vastra paridhāna,\
+> ratna-mandire kailā āgamana\
+> vṛndā-kṛta sambhāra, gandha-puṣpa-alaṅkāra,\
 > vanya-veśa karila racana
 
 *punarapi*—again; *kaila*—took; *snāna*—bath; *śuṣka-vastra*—dry cloth; *paridhāna*—putting on; *ratna-mandire*—in a small house of jewels; *kailā*—did; *āgamana*—arrival; *vṛndā-kṛta*—arranged by the *gopī* Vṛndā; *sambhāra*—all kinds of articles; *gandha-puṣpa-alaṅkāra*—scented flowers and ornaments; *vanya-veśa*—forest dress; *karila*—did; *racana*—arrangement.

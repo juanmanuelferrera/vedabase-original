@@ -1,9 +1,9 @@
 ### CC Madhya 13.19
 
-> রথের সাজনি দেখি’ লোকে চমৎকার ।
+> রথের সাজনি দেখি’ লোকে চমৎকার ।\
 > নব হেমময় রথ — সুমেরু-আকার ॥১৯॥
 
-> rathera sājani dekhi' loke camatkāra
+> rathera sājani dekhi' loke camatkāra\
 > nava hemamaya ratha-sumeru-ākāra
 
 *rathera*—del carro; *sājani*—decoración; *dekhi'*—al ver; *loke*—todos; *camatkāra*—asombrados; *nava*—nuevo; *hema-maya*—dorado; *ratha*—carro de procesión; *sumeru-ākāra*—tan alto como la montaña Sumeru.

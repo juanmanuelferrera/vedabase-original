@@ -1,13 +1,13 @@
 ### SB 1.11.1
 
-> सूत उवाच
-> आनर्तान्स उपव्रज्य स्वृद्धाञ्जनपदान्स्वकान् ।
+> सूत उवाच\
+> आनर्तान्स उपव्रज्य स्वृद्धाञ्जनपदान्स्वकान् ।\
 > दध्मौ दरवरं तेषां विषादं शमयन्निव ॥१॥
 
-> sūta uvāca
-> ānartān sa upavrajya
-> svṛddhāñ jana-padān svakān
-> dadhmau daravaraṁ teṣāṁ
+> sūta uvāca\
+> ānartān sa upavrajya\
+> svṛddhāñ jana-padān svakān\
+> dadhmau daravaraṁ teṣāṁ\
 > viṣādaṁ śamayann iva
 
 *sūtaḥ uvāca*—Sūta Gosvāmī dijo; *ānartān*—el país conocido como Ānartān (Dvārakā); *saḥ*—Él; *upavrajya*—llegando a la frontera de; *svṛddhān*—muy próspera; *jana-padān*—ciudad; *svakān*—Su propia; *dadhmau*—hizo sonar; *daravaram*—la auspiciosa caracola (Pāñcajanya); *teṣām*—de ellos; *viṣādam*—abatimiento; *śamayan*—apaciguando; *iva*—aparentemente.

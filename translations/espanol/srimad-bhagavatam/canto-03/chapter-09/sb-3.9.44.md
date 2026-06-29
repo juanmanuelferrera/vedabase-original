@@ -1,13 +1,13 @@
 ### SB 3.9.44
 
-> मैत्रेय उवाच
-> तस्मा एवं जगत्स्रष्ट्रे प्रधानपुरुषेश्वरः ।
+> मैत्रेय उवाच\
+> तस्मा एवं जगत्स्रष्ट्रे प्रधानपुरुषेश्वरः ।\
 > व्यज्येदं स्वेन रूपेण कञ्जनाभस्तिरोदधे ॥४४॥
 
-> maitreya uvāca
-> tasmā evaṁ jagat-sraṣṭre
-> pradhāna-puruṣeśvaraḥ
-> vyajyedaṁ svena rūpeṇa
+> maitreya uvāca\
+> tasmā evaṁ jagat-sraṣṭre\
+> pradhāna-puruṣeśvaraḥ\
+> vyajyedaṁ svena rūpeṇa\
 > kañja-nābhas tirodadhe
 
 *maitreyaḥ uvāca*—el sabio Maitreya dijo; *tasmai*—a él; *evam*—así pues; *jagat-sraṣṭre*—al creador del universo; *pradhāna-puruṣa-īśvaraḥ*—el Señor primigenio, la Personalidad de Dios; *vyajya idam*—después de instruir esto; *svena*—en Su persona; *rūpeṇa*—mediante la forma; *kañja-nābhaḥ*—la Personalidad de Dios, Nārāyaṇa; *tirodadhe*—desapareció.

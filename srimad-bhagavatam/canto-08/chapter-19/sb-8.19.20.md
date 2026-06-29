@@ -1,11 +1,11 @@
 ### SB 8.19.20
 
-> न पुमान्मामुपव्रज्य भूयो याचितुमर्हति
+> न पुमान्मामुपव्रज्य भूयो याचितुमर्हति\
 > तस्माद्वृत्तिकरीं भूमिं वटो कामं प्रतीच्छ मे ॥२०॥
 
-> na pumān mām upavrajya
-> bhūyo yācitum arhati
-> tasmād vṛttikarīṁ bhūmiṁ
+> na pumān mām upavrajya\
+> bhūyo yācitum arhati\
+> tasmād vṛttikarīṁ bhūmiṁ\
 > vaṭo kāmaṁ pratīccha me
 
 *na*—not; *pumān*—any person; *mām*—unto me; *upavrajya*—after approaching; *bhūyaḥ*—again; *yācitum*—to beg; *arhati*—deserves; *tasmāt*—therefore; *vṛtti-karīm*—suitable to maintain Yourself; *bhūmim*—such land; *vaṭo*—O small *brahmacārī*; *kāmam*—according to the necessities of life; *pratīccha*—take; *me*—from me.

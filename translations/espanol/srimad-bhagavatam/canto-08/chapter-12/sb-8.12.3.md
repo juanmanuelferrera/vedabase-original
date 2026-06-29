@@ -1,11 +1,11 @@
 ### SB 8.12.3
 
-> सभाजितो भगवता सादरं सोमया भवः
+> सभाजितो भगवता सादरं सोमया भवः\
 > सूपविष्ट उवाचेदं प्रतिपूज्य स्मयन्हरिम ॥३॥
 
-> sabhājito bhagavatā
-> sādaraṁ somayā bhavaḥ
-> sūpaviṣṭa uvācedaṁ
+> sabhājito bhagavatā\
+> sādaraṁ somayā bhavaḥ\
+> sūpaviṣṭa uvācedaṁ\
 > pratipūjya smayan harim
 
 *sabhājitaḥ*—bien recibido; *bhagavatā*—por la Suprema Personalidad de Dios; *sa-ādaram*—con gran respeto (como corresponde al Señor Śiva); *sa-umayā*—con Umā; *bhavaḥ*—el Señor Śambhu (el Señor Śiva); *su-upaviṣṭaḥ*—cómodamente sentado; *vāca*—dijo; *idam*—esto; *pratipūjya*—ofrecer respeto; *smayan*—sonriendo; *harim*—al Señor.

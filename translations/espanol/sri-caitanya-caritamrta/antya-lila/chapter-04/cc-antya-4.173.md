@@ -1,9 +1,9 @@
 ### CC Antya 4.173
 
-> অপ্রাকৃত-দেহ তোমার ‘প্রাকৃত’ কভু নয় ।
+> অপ্রাকৃত-দেহ তোমার ‘প্রাকৃত’ কভু নয় ।\
 > তথাপি তোমার তাতে প্রাকৃত-বুদ্ধি হয় ॥১৭৩॥
 
-> aprākṛta-deha tomāra 'prākṛta' kabhu naya
+> aprākṛta-deha tomāra 'prākṛta' kabhu naya\
 > tathāpi tomāra tāte prākṛta-buddhi haya
 
 *aprākṛta*—trascendental; *deha*—cuerpo; *tomāra*—tu; *prākṛta*—material; *kabhu naya*—nunca es; *tathāpi*—aun así; *tomāra*—tu; *tāte*—en eso; *prākṛta-buddhi*—concepción como material; *haya*—es.

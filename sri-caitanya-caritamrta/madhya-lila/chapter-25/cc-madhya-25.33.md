@@ -1,9 +1,9 @@
 ### CC Madhya 25.33
 
-> ‘ব্ৰহ্ম’-শব্দে কহে ‘ষড়ৈশ্বর্যপূর্ণ ভগবান্’ ।
+> ‘ব্ৰহ্ম’-শব্দে কহে ‘ষড়ৈশ্বর্যপূর্ণ ভগবান্’ ।\
 > তাঁরে ‘নির্বিশেষ’ স্থাপি, ‘পূর্ণতা’ হয় হান ॥৩৩॥
 
-> 'brahma'-śabde kahe 'ṣaḍ-aiśvarya-pūrṇa bhagavān'
+> 'brahma'-śabde kahe 'ṣaḍ-aiśvarya-pūrṇa bhagavān'\
 > tāṅre 'nirviśeṣa' sthāpi, 'pūrṇatā' haya hāna
 
 *brahma-śabde*—by the word *brahma*; *kahe*—is meant; *ṣaṭ-aiśvarya-pūrṇa bhagavān*—the Supreme Personality of Godhead, full in all six opulences; *tāṅre*—Him; *nirviśeṣa sthāpi*—if we make impersonal; *pūrṇatā haya hāna*—His completeness becomes damaged.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.38
 
-> প্রেমাবেশে তিন দিন আছ উপবাস ।
+> প্রেমাবেশে তিন দিন আছ উপবাস ।\
 > আজি মোর ঘরে ভিক্ষা, চল মোর বাস ॥৩৮॥
 
-> premāveśe tina dina ācha upavāsa
+> premāveśe tina dina ācha upavāsa\
 > āji mora ghare bhikṣā, cala mora vāsa
 
 *prema-āveśe*—in the ecstasy of love; *tina dina*—three days; *ācha*—You are; *upavāsa*—fasting; *āji*—today; *mora*—My; *ghare*—at the house; *bhikṣā*—alms; *cala*—kindly come; *mora vāsa*—to My residence.

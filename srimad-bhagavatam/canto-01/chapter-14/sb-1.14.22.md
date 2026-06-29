@@ -1,11 +1,11 @@
 ### SB 1.14.22
 
-> इति चिन्तयतस्तस्य दृष्टारिष्टेन चेतसा ।
+> इति चिन्तयतस्तस्य दृष्टारिष्टेन चेतसा ।\
 > राज्ञः प्रत्यागमद्ब्रह्मन्यदुपुर्याः कपिध्वजः ॥२२॥
 
-> iti cintayatas tasya
-> dṛṣṭāriṣṭena cetasā
-> rājñaḥ pratyāgamad brahman
+> iti cintayatas tasya\
+> dṛṣṭāriṣṭena cetasā\
+> rājñaḥ pratyāgamad brahman\
 > yadu-puryāḥ kapi-dhvajaḥ
 
 *iti*—thus; *cintayataḥ*—while thinking to himself; *tasya*—he; *dṛṣṭā*—by observing; *ariṣṭena*—bad omens; *cetasā*—by the mind; *rājñaḥ*—the King; *prati*—back; *āgamat*—came; *brahman*—O *brāhmaṇa*; *yadu-puryāḥ*—from the kingdom of the Yadus; *kapi-dhvajaḥ*—Arjuna.

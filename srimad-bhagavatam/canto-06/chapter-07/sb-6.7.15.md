@@ -1,11 +1,11 @@
 ### SB 6.7.15
 
-> अथाहममराचार्यमगाधधिषणं द्विजम
+> अथाहममराचार्यमगाधधिषणं द्विजम\
 > प्रसादयिष्ये निशठः शीर्ष्णा तच्चरणं स्पृशन ॥१५॥
 
-> athāham amarācāryam
-> agādha-dhiṣaṇaṁ dvijam
-> prasādayiṣye niśaṭhaḥ
+> athāham amarācāryam\
+> agādha-dhiṣaṇaṁ dvijam\
+> prasādayiṣye niśaṭhaḥ\
 > śīrṣṇā tac-caraṇaṁ spṛśan
 
 *atha*—therefore; *aham*—I; *amara-ācāryam*—the spiritual master of the demigods; *agādha-dhiṣaṇam*—whose spiritual knowledge is deep; *dvijam*—the perfect *brāhmaṇa*; *prasādayiṣye*—I shall please; *niśaṭhaḥ*—without duplicity; *śīrṣṇā*—with my head; *tat-caraṇam*—his lotus feet; *spṛśan*—touching.

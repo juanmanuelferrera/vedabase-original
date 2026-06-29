@@ -1,9 +1,9 @@
 ### CC Antya 2.16
 
-> আম্বুয়া-মুলুকে হয় নকুল-ব্রহ্মচারী ।
+> আম্বুয়া-মুলুকে হয় নকুল-ব্রহ্মচারী ।\
 > পরম-বৈষ্ণব তেঁহো বড় অধিকারী ॥১৬॥
 
-> āmbuyā-muluke haya nakula-brahmacārī
+> āmbuyā-muluke haya nakula-brahmacārī\
 > parama-vaiṣṇava teṅho baḍa adhikārī
 
 *āmbuyā-muluke*—en la provincia conocida como Āmbuyā; *haya*—se encontraba; *nakula-brahmacārī*—una persona conocida como Nakula Brahmacārī; *parama-vaiṣṇava*—un devoto perfectamente puro; *teṅho*—él; *baḍa adhikārī*—muy avanzado en el servicio devocional.

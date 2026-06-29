@@ -1,13 +1,13 @@
 ### SB 4.5.1
 
-> मैत्रेय उवाच
-> भवो भवान्या निधनं प्रजापतेरसत्कृताया अवगम्य नारदात् ।
+> मैत्रेय उवाच\
+> भवो भवान्या निधनं प्रजापतेरसत्कृताया अवगम्य नारदात् ।\
 > स्वपार्षदसैन्यं च तदध्वरर्भुभिर्विद्रावितं क्रोधमपारमादधे ॥१॥
 
-> maitreya uvāca
-> bhavo bhavānyā nidhanaṁ prajāpater
-> asat-kṛtāyā avagamya nāradāt
-> sva-pārṣada-sainyaṁ ca tad-adhvararbhubhir
+> maitreya uvāca\
+> bhavo bhavānyā nidhanaṁ prajāpater\
+> asat-kṛtāyā avagamya nāradāt\
+> sva-pārṣada-sainyaṁ ca tad-adhvararbhubhir\
 > vidrāvitaṁ krodham apāram ādadhe
 
 *maitreyaḥ uvāca*—Maitreya dijo; *bhavaḥ*—el Señor Śiva; *bhavānyāḥ*—de Satī; *nidhanam*—la muerte; *prajāpateḥ*—debida a Prajāpati Dakṣa; *asat-kṛtāyāḥ*—habiendo sido insultada; *avagamya*—escuchar acerca de; *nāradāt*—de labios de Nārada; *sva-pārṣada-sainyam*—los soldados de sus propios aliados; *ca*—y; *tat-adhvara*—(producidos de) su (de Dakṣa) sacrificio; *ṛbhubhiḥ*—por los *ṛbhus*; *vidrāvitam*—fueron expulsados; *krodham*—ira; *apāram*—sin límite; *ādadhe*—mostró.

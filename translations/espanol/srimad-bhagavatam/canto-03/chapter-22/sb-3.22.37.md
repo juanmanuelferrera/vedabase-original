@@ -1,11 +1,11 @@
 ### SB 3.22.37
 
-> शारीरा मानसा दिव्या वैयासे ये च मानुषाः ।
+> शारीरा मानसा दिव्या वैयासे ये च मानुषाः ।\
 > भौतिकाश्च कथं क्लेशा बाधन्ते हरिसंश्रयम् ॥३७॥
 
-> śārīrā mānasā divyā
-> vaiyāse ye ca mānuṣāḥ
-> bhautikāś ca kathaṁ kleśā
+> śārīrā mānasā divyā\
+> vaiyāse ye ca mānuṣāḥ\
+> bhautikāś ca kathaṁ kleśā\
 > bādhante hari-saṁśrayam
 
 *śārīrāḥ*—pertenecientes al cuerpo; *mānasāḥ*—pertenecientes a la mente; *divyāḥ*—pertenecientes a poderes sobrenaturales (semidioses); *vaiyāse*—¡oh, Vidura!; *ye*—aquellas; *ca*—y; *mānuṣāḥ*—que pertenecen a otros hombres; *bhautikāḥ*—pertenecientes a otros seres vivos; *ca*—y; *katham*—cómo; *kleśāḥ*—miserias; *bādhante*—pueden afectar; *hari-saṁśrayam*—a aquel que se ha refugiado en el Señor Kṛṣṇa.

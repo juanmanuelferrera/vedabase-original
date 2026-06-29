@@ -1,11 +1,11 @@
-> kaumāra ācaret prājño
-> dharmān bhāgavatān iha
-> durlabhaṁ mānuṣaṁ janma
-> tad apy adhruvam arthadam
-> [[sb/7/6/1|(SB 7.6.1)]]
-> tad-vāg-visargo janatāgha-viplavo
-> yasmin prati-ślokam abaddhavaty api
-> nāmāny anantasya yaśo 'ṅkitāni yac
+> kaumāra ācaret prājño\
+> dharmān bhāgavatān iha\
+> durlabhaṁ mānuṣaṁ janma\
+> tad apy adhruvam arthadam\
+> [[sb/7/6/1|(SB 7.6.1)]]\
+> tad-vāg-visargo janatāgha-viplavo\
+> yasmin prati-ślokam abaddhavaty api\
+> nāmāny anantasya yaśo 'ṅkitāni yac\
 > chṛṇvanti gāyanti gṛṇanti sādhavaḥ
 
 Prefacio

@@ -1,11 +1,11 @@
 ### CC Adi 3.91
 
-> দ্বৌ ভূতসর্গৌ লোকেঽস্মিন্ দৈব আসুর এব চ ।
+> দ্বৌ ভূতসর্গৌ লোকেঽস্মিন্ দৈব আসুর এব চ ।\
 > বিষ্ণুভক্তঃ স্মৃতো দৈব আসুরস্তদ্বিপর্যয়ঃ ॥৯১॥
 
-> dvau bhūta-sargau loke 'smin
-> daiva āsura eva ca
-> viṣṇu-bhaktaḥ smṛto daiva
+> dvau bhūta-sargau loke 'smin\
+> daiva āsura eva ca\
+> viṣṇu-bhaktaḥ smṛto daiva\
 > āsuras tad-viparyayaḥ
 
 *dvau*—two; *bhūta*—of the living beings; *sargau*—dispositions; *loke*—in the world; *asmin*—in this; *daivaḥ*—godly; *āsuraḥ*—demoniac; *eva*—certainly; *ca*—and; *viṣṇu-bhaktaḥ*—a devotee of Lord Viṣṇu; *smṛtaḥ*—remembered; *daivaḥ*—godly; *āsuraḥ*—demoniac; *tat-viparyayaḥ*—the opposite of that.

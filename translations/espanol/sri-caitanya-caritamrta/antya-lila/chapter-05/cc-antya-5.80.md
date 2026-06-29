@@ -1,9 +1,9 @@
 ### CC Antya 5.80
 
-> ‘গৃহস্থ’ হঞা নহে রায় ষড়্বর্গের বশে ।
+> ‘গৃহস্থ’ হঞা নহে রায় ষড়্বর্গের বশে ।\
 > ‘বিষয়ী’ হঞা সন্ন্যাসীরে উপদেশে ॥৮০॥
 
-> 'gṛhastha' hañā nahe rāya ṣaḍ-vargera vaśe
+> 'gṛhastha' hañā nahe rāya ṣaḍ-vargera vaśe\
 > 'viṣayī' hañā sannyāsīre upadeśe
 
 *gṛhastha hañā*—siendo un cabeza de familia; *nahe*—no está; *rāya*—Rāmānanda Rāya; *ṣaṭ-vargera vaśe*—bajo el control de los seis tipos de cambio corporal; *viṣayī hañā*—siendo un hombre de dinero; *sannyāsīre upadeśe*—aconseja a personas de la orden de vida renunciada.

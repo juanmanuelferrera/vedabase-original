@@ -1,11 +1,11 @@
 ### SB 7.9.5
 
-> स्वपादमूले पतितं तमर्भकं विलोक्य देवः कृपया परिप्लुतः
+> स्वपादमूले पतितं तमर्भकं विलोक्य देवः कृपया परिप्लुतः\
 > उत्थाप्य तच्छीर्ष्ण्यदधात्कराम्बुजं कालाहिवित्रस्तधियां कृताभयम ॥५॥
 
-> sva-pāda-mūle patitaṁ tam arbhakaṁ
-> vilokya devaḥ kṛpayā pariplutaḥ
-> utthāpya tac-chīrṣṇy adadhāt karāmbujaṁ
+> sva-pāda-mūle patitaṁ tam arbhakaṁ\
+> vilokya devaḥ kṛpayā pariplutaḥ\
+> utthāpya tac-chīrṣṇy adadhāt karāmbujaṁ\
 > kālāhi-vitrasta-dhiyāṁ kṛtābhayam
 
 *sva-pāda-mūle*—a Sus pies de loto; *patitam*—postrado; *tam*—a él (a Prahlāda Mahārāja); *arbhakam*—que no era más que un niño pequeño; *vilokya*—viendo; *devaḥ*—el Señor Nṛsiṁhadeva; *kṛpayā*—por Su misericordia sin causa; *pariplutaḥ*—muy afligido (en éxtasis); *utthāpya*—levantando; *tat-śīrṣṇi*—sobre su cabeza; *adadhāt*—puso; *kara-ambujam*—Su mano de loto; *kāla-ahi*—de la mortífera serpiente del tiempo (que puede causar la muerte inmediata); *vitrasta*—temerosas; *dhiyām*—a todos aquellos cuyas mentes; *kṛta-abhayam*—que libera del temor.

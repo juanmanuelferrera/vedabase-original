@@ -1,9 +1,9 @@
 ### CC Adi 6.43
 
-> সেই অভিমান-সুখে আপনা পাসরে ।
+> সেই অভিমান-সুখে আপনা পাসরে ।\
 > ‘কৃষ্ণদাস’ হও — জীবে উপদেশ করে ॥৪৩॥
 
-> sei abhimāna-sukhe āpanā pāsare
+> sei abhimāna-sukhe āpanā pāsare\
 > 'kṛṣṇa-dāsa' hao—jīve upadeśa kare
 
 *sei*—that; *abhimāna-sukhe*—in the happiness of that conception; *āpanā*—Himself; *pāsare*—He forgets; *kṛṣṇa-dāsa hao*—You are servants of Lord Kṛṣṇa; *jīve*—the living beings; *upadeśa kare*—He instructs.

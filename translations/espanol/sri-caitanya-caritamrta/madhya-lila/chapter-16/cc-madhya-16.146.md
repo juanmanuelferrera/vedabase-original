@@ -1,9 +1,9 @@
 ### CC Madhya 16.146
 
-> এইমত প্রভু তোমার বিচ্ছেদ সহিয়া ।
+> এইমত প্রভু তোমার বিচ্ছেদ সহিয়া ।\
 > তোমার প্রতিজ্ঞা রক্ষা কৈল যত্ন করিয়া ।।” ॥ ১৪৬ ॥
 
-> ei-mata prabhu tomāra viccheda sahiyā
+> ei-mata prabhu tomāra viccheda sahiyā\
 > tomāra pratijñā rakṣā kaila yatna kariyā"
 
 *ei-mata*—de este modo; *prabhu*—Śrī Caitanya Mahāprabhu; *tomāra*—de ti; *viccheda sahiyā*—tolerando la separación; *tomāra pratijñā*—tu voto; *rakṣā kaila*—protegió; *yatna kariyā*—con gran empeño.

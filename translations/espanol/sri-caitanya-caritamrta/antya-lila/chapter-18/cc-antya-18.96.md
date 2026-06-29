@@ -1,13 +1,13 @@
 ### CC Antya 18.96
 
-> উঠিল বহু রক্তোৎপল, পৃথক্ পৃথক্ যুগল,
-> পদ্মগণের কৈল নিবারণ ।
-> ‘পদ্ম’ চাহে লুটি’ নিতে, ‘উৎপল’ চাহে রাখিতে’,
+> উঠিল বহু রক্তোৎপল, পৃথক্ পৃথক্ যুগল,\
+> পদ্মগণের কৈল নিবারণ ।\
+> ‘পদ্ম’ চাহে লুটি’ নিতে, ‘উৎপল’ চাহে রাখিতে’,\
 > ‘চক্রবাক’ লাগি’ দুঁহার রণ ॥৯৬॥
 
-> uṭhila bahu raktotpala, pṛthak pṛthak yugala,
-> padma-gaṇera kaila nivāraṇa
-> 'padma' cāhe luṭi' nite, 'utpala' cāhe rākhite',
+> uṭhila bahu raktotpala, pṛthak pṛthak yugala,\
+> padma-gaṇera kaila nivāraṇa\
+> 'padma' cāhe luṭi' nite, 'utpala' cāhe rākhite',\
 > 'cakravāka' lāgi' duṅhāra raṇa
 
 *uṭhila*—surgieron; *bahu*—muchos; *rakta-utpala*—lotos rojos; *pṛthak pṛthak*—separados; *yugala*—parejas; *padma-gaṇera*—de los lotos azulados; *kaila*—hicieron; *nivāraṇa*—obstrucción; *padma*—los lotos azules; *cāhe*—quieren; *luṭi'*—robando; *nite*—llevarse; *utpala*—los lotos rojos; *cāhe rākhite'*—querían proteger; *cakravāka lāgi'*—por los pájaros cakravāka; *duṅhāra*—entre los dos (los lotos rojos y azules); *raṇa*—lucha.

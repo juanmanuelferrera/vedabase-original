@@ -1,13 +1,13 @@
 ### CC Madhya 21.142
 
-> ধ্বনি — বড় উদ্ধত, পতিব্রতার ভাঙ্গে ব্রত,
-> পতি কোল হৈতে টানি’ আনে ।
-> বৈকুণ্ঠের লক্ষ্মীগণে, যেই করে আকর্ষণে,
+> ধ্বনি — বড় উদ্ধত, পতিব্রতার ভাঙ্গে ব্রত,\
+> পতি কোল হৈতে টানি’ আনে ।\
+> বৈকুণ্ঠের লক্ষ্মীগণে, যেই করে আকর্ষণে,\
 > তার আগে কেবা গোপীগণে ॥১৪২॥
 
-> dhvani—baḍa uddhata, pativratāra bhāṅge vrata,
-> pati-kola haite ṭāni' āne
-> vaikuṇṭhera lakṣmī-gaṇe, yei kare ākarṣaṇe,
+> dhvani—baḍa uddhata, pativratāra bhāṅge vrata,\
+> pati-kola haite ṭāni' āne\
+> vaikuṇṭhera lakṣmī-gaṇe, yei kare ākarṣaṇe,\
 > tāra āge kebā gopī-gaṇe
 
 *dhvani*—vibration; *baḍa*—very much; *uddhata*—aggressive; *pati-vratāra*—of chaste wives; *bhāṅge*—breaks; *vrata*—the vow; *pati*—of the husband; *kola*—the lap; *haite*—from; *ṭāni'*—taking; *āne*—brings; *vaikuṇṭhera*—of the Vaikuṇṭha planets; *lakṣmī-gaṇe*—all the goddesses of fortune; *yei*—that which; *kare ākarṣaṇe*—attracts; *tāra*—of that; *āge*—in front; *kebā*—what to speak of; *gopī-gaṇe*—the *gopīs* of Vṛndāvana.

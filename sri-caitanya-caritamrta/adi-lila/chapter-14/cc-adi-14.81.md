@@ -1,9 +1,9 @@
 ### CC Adi 14.81
 
-> কিবা কোলাহল করে, বুঝিতে না পারি ।
+> কিবা কোলাহল করে, বুঝিতে না পারি ।\
 > কাহাকে বা স্তুতি করে — অনুমান করি ॥৮১॥
 
-> kibā kelāhala kare, bujhite nā pāri
+> kibā kelāhala kare, bujhite nā pāri\
 > kāhāke vā stuti kare—anumāna kari
 
 *kibā*—what; *kelāhala*—rowdy sounds; *kare*—they make; *bujhite*—to understand; *nā*—not; *pāri*—I am able; *kāhāke*—to whom; *vā*—or; *stuti*—prayer; *kare*—they offer; *anumāna*—guess; *kari*—I do.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.40
 
-> সমুদ্রস্নান করি’ মহাপ্রভু শীঘ্র আইলা ।
+> সমুদ্রস্নান করি’ মহাপ্রভু শীঘ্র আইলা ।\
 > চরণ পাখালি’ প্রভু আসনে বসিলা ॥৪০॥
 
-> samudra-snāna kari' mahāprabhu śīghra āilā
+> samudra-snāna kari' mahāprabhu śīghra āilā\
 > caraṇa pākhāli' prabhu āsane vasilā
 
 *samudra-snāna*—a bath in the sea; *kari'*—taking; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *śīghra*—very soon; *āilā*—returned; *caraṇa*—feet; *pākhāli'*—washing; *prabhu*—Lord Caitanya Mahāprabhu; *āsane*—on a seat; *vasilā*—sat.

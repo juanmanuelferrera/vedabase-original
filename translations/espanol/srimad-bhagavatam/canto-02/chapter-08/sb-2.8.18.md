@@ -1,11 +1,11 @@
 ### SB 2.8.18
 
-> नृणां साधारणो धर्मः सविशेषश्च यादृशः ।
+> नृणां साधारणो धर्मः सविशेषश्च यादृशः ।\
 > श्रेणीनां राजर्षीणां च धर्मः कृच्छ्रेषु जीवताम् ॥१८॥
 
-> nṛṇāṁ sādhāraṇo dharmaḥ
-> saviśeṣaś ca yādṛśaḥ
-> śreṇīnāṁ rājarṣīṇāṁ ca
+> nṛṇāṁ sādhāraṇo dharmaḥ\
+> saviśeṣaś ca yādṛśaḥ\
+> śreṇīnāṁ rājarṣīṇāṁ ca\
 > dharmaḥ kṛcchreṣu jīvatām
 
 *nṛṇām*—de la sociedad humana; *sādhāraṇaḥ*—general; *dharmaḥ*—afiliación religiosa; *sa-viśeṣaḥ*—específica; *ca*—también; *yādṛśaḥ*—tal como son; *śreṇīnām*—de las tres clases particulares; *rājarṣīṇām*—de la santa orden real; *ca*—también; *dharmaḥ*—ocupación obligatoria; *kṛcchreṣu*—en cuanto a las condiciones de aflicción; *jīvatām*—de los seres vivientes.

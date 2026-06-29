@@ -1,9 +1,9 @@
 ### CC Madhya 3.86
 
-> তুমি খেতে পার দশ-বিশ মানের অন্ন ।
+> তুমি খেতে পার দশ-বিশ মানের অন্ন ।\
 > আমি তাহা কাঁহা পাব দরিদ্র ব্রাহ্মণ ॥৮৬॥
 
-> tumi khete pāra daśa-viśa mānera anna
+> tumi khete pāra daśa-viśa mānera anna\
 > āmi tāhā kāṅhā pāba daridra brāhmaṇa
 
 *tumi*—Tú; *khete*—comer; *pāra*—puedes; *daśa-viśa*—diez o veinte; *mānera*—de la medida de un *māna*; *anna*—arroz; *āmi*—yo; *tāhā*—eso; *kāṅhā*—dónde; *pāba*—obtendré; *daridra*—empobrecido; *brāhmaṇa*—*brāhmaṇa*.

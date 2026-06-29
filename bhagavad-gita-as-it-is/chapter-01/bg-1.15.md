@@ -1,11 +1,11 @@
 ### Bg 1.15
 
-> पाञ्चजन्यं हृषीकेशो देवदत्तं धनञ्जयः ।
+> पाञ्चजन्यं हृषीकेशो देवदत्तं धनञ्जयः ।\
 > पौण्ड्रं दध्मौ महाशङ्खं भीमकर्मा वृकोदरः ॥१५॥
 
-> pāñcajanyaṁ hṛṣīkeśo
-> devadattaṁ dhanañjayaḥ
-> pauṇḍraṁ dadhmau mahā-śaṅkhaṁ
+> pāñcajanyaṁ hṛṣīkeśo\
+> devadattaṁ dhanañjayaḥ\
+> pauṇḍraṁ dadhmau mahā-śaṅkhaṁ\
 > bhīma-karmā vṛkodaraḥ
 
 *pāñcajanyam*—the conchshell named Pāñcajanya; *hṛṣīkeśaḥ*—Hṛṣīkeśa (Kṛṣṇa, the Lord who directs the senses of the devotees); *devadattam*—the conchshell named Devadatta; *dhanañjayaḥ*—Dhanañjaya (Arjuna, the winner of wealth); *pauṇḍram*—the conch named Pauṇḍram; *dadhmau*—blew; *mahā-śaṅkham*—the terrific conchshell; *bhīma-karmā*—one who performs Herculean tasks; *vṛkodaraḥ*—the voracious eater (Bhīma).

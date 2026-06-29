@@ -1,11 +1,11 @@
 ### SB 1.19.14
 
-> तस्यैव मेऽघस्य परावरेशो व्यासक्तचित्तस्य गृहेष्वभीक्ष्णम् ।
+> तस्यैव मेऽघस्य परावरेशो व्यासक्तचित्तस्य गृहेष्वभीक्ष्णम् ।\
 > निर्वेदमूलो द्विजशापरूपो यत्र प्रसक्तो भयमाशु धत्ते ॥१४॥
 
-> tasyaiva me 'ghasya parāvareśo
-> vyāsakta-cittasya gṛheṣv abhīkṣṇam
-> nirveda-mūlo dvija-śāpa-rūpo
+> tasyaiva me 'ghasya parāvareśo\
+> vyāsakta-cittasya gṛheṣv abhīkṣṇam\
+> nirveda-mūlo dvija-śāpa-rūpo\
 > yatra prasakto bhayam āśu dhatte
 
 *tasya*—his; *eva*—certainly; *me*—mine; *aghasya*—of the sinful; *parā*—transcendental; *avara*—mundane; *īśaḥ*—controller, the Supreme Lord; *vyāsakta*—overly attached; *cittasya*—of the mind; *gṛheṣu*—to family affairs; *abhīkṣṇam*—always; *nirveda-mūlaḥ*—the source of detachment; *dvija-śāpa*—cursing by the *brāhmaṇa*; *rūpaḥ*—form of; *yatra*—whereupon; *prasaktaḥ*—one who is affected; *bhayam*—fearfulness; *āśu*—very soon; *dhatte*—take place.

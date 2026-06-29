@@ -1,9 +1,9 @@
 ### CC Adi 10.107
 
-> শ্রীনাথ পণ্ডিত — প্রভুর কৃপার ভাজন ।
+> শ্রীনাথ পণ্ডিত — প্রভুর কৃপার ভাজন ।\
 > যাঁর কৃষ্ণসেবা দেখি’ বশ ত্রিভুবন ॥১০৭॥
 
-> śrīnātha paṇḍita—prabhura kṛpāra bhājana
+> śrīnātha paṇḍita—prabhura kṛpāra bhājana\
 > yāṅra kṛṣṇa-sevā dekhi' vaśa tri-bhuvana
 
 *śrīnātha paṇḍita*—of the name Śrīnātha Paṇḍita; *prabhura*—of the Lord; *kṛpāra*—of mercy; *bhājana*—receiver; *yāṅra*—whose; *kṛṣṇa-sevā*—worship of Lord Kṛṣṇa; *dekhi'*—seeing; *vaśa*—subjugated; *tri-bhuvana*—all the three worlds.

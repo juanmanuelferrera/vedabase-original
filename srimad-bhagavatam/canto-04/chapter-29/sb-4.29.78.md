@@ -1,11 +1,11 @@
 ### SB 4.29.78
 
-> यदाक्षैश्चरितान्ध्यायन्कर्माण्याचिनुतेऽसकृत् ।
+> यदाक्षैश्चरितान्ध्यायन्कर्माण्याचिनुतेऽसकृत् ।\
 > सति कर्मण्यविद्यायां बन्धः कर्मण्यनात्मनः ॥७८॥
 
-> yadākṣaiś caritān dhyāyan
-> karmāṇy ācinute 'sakṛt
-> sati karmaṇy avidyāyāṁ
+> yadākṣaiś caritān dhyāyan\
+> karmāṇy ācinute 'sakṛt\
+> sati karmaṇy avidyāyāṁ\
 > bandhaḥ karmaṇy anātmanaḥ
 
 *yadā*—when; *akṣaiḥ*—by the senses; *caritān*—pleasures enjoyed; *dhyāyan*—thinking of; *karmāṇi*—activities; *ācinute*—performs; *asakṛt*—always; *sati karmaṇi*—when material affairs continue; *avidyāyām*—under illusion; *bandhaḥ*—bondage; *karmaṇi*—in activity; *anātmanaḥ*—of the material body.

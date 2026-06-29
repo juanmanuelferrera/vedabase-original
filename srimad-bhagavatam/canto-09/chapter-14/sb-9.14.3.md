@@ -1,11 +1,11 @@
 ### SB 9.14.3
 
-> तस्य दृग्भ्योऽभवत्पुत्रः सोमोऽमृतमयः किल
+> तस्य दृग्भ्योऽभवत्पुत्रः सोमोऽमृतमयः किल\
 > विप्रौषध्युडुगणानां ब्रह्मणा कल्पितः पतिः ॥३॥
 
-> tasya dṛgbhyo 'bhavat putraḥ
-> somo 'mṛtamayaḥ kila
-> viprauṣadhy-uḍu-gaṇānāṁ
+> tasya dṛgbhyo 'bhavat putraḥ\
+> somo 'mṛtamayaḥ kila\
+> viprauṣadhy-uḍu-gaṇānāṁ\
 > brahmaṇā kalpitaḥ patiḥ
 
 *tasya*—of him, Atri, the son of Brahmā; *dṛgbhyaḥ*—from the tears of jubilation from the eyes; *abhavat*—was born; *putraḥ*—a son; *somaḥ*—the moon-god; *amṛta-mayaḥ*—full of soothing rays; *kila*—indeed; *vipra*—of the *brāhmaṇas*; *oṣadhi*—of the drugs; *uḍu-gaṇānām*—and of the luminaries; *brahmaṇā*—by Lord Brahmā; *kalpitaḥ*—was appointed or designated; *patiḥ*—the supreme director.

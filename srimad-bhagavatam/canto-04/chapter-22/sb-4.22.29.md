@@ -1,11 +1,11 @@
 ### SB 4.22.29
 
-> निमित्ते सति सर्वत्र जलादावपि पूरुषः ।
+> निमित्ते सति सर्वत्र जलादावपि पूरुषः ।\
 > आत्मनश्च परस्यापि भिदां पश्यति नान्यदा ॥२९॥
 
-> nimitte sati sarvatra
-> jalādāv api pūruṣaḥ
-> ātmanaś ca parasyāpi
+> nimitte sati sarvatra\
+> jalādāv api pūruṣaḥ\
+> ātmanaś ca parasyāpi\
 > bhidāṁ paśyati nānyadā
 
 *nimitte*—on account of causes; *sati*—being; *sarvatra*—everywhere; *jala-ādau api*—water and other reflecting media; *pūruṣaḥ*—the person; *ātmanaḥ*—oneself; *ca*—and; *parasya api*—another's self; *bhidām*—differentiation; *paśyati*—sees; *na anyadā*—there is no other reason.

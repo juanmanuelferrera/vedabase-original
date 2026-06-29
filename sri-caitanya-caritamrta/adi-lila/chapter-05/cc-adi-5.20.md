@@ -1,9 +1,9 @@
 ### CC Adi 5.20
 
-> চিন্তামণিভূমি, কল্পবৃক্ষময় বন ।
+> চিন্তামণিভূমি, কল্পবৃক্ষময় বন ।\
 > চর্মচক্ষে দেখে তারে প্রপঞ্চের সম ॥২০॥
 
-> cintāmaṇi-bhūmi, kalpa-vṛkṣa-maya vana
+> cintāmaṇi-bhūmi, kalpa-vṛkṣa-maya vana\
 > carma-cakṣe dekhe tāre prapañcera sama
 
 *cintāmaṇi-bhūmi*—the land of touchstone; *kalpa-vṛkṣa-maya*—full of desire trees; *vana*—forests; *carma-cakṣe*—the material eyes; *dekhe*—see; *tāre*—it; *prapañcera sama*—equal to the material creation.

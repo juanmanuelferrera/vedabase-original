@@ -1,11 +1,11 @@
 ### SB 4.14.24
 
-> अवजानन्त्यमी मूढा नृपरूपिणमीश्वरम् ।
+> अवजानन्त्यमी मूढा नृपरूपिणमीश्वरम् ।\
 > नानुविन्दन्ति ते भद्रमिह लोके परत्र च ॥२४॥
 
-> avajānanty amī mūḍhā
-> nṛpa-rūpiṇam īśvaram
-> nānuvindanti te bhadram
+> avajānanty amī mūḍhā\
+> nṛpa-rūpiṇam īśvaram\
+> nānuvindanti te bhadram\
 > iha loke paratra ca
 
 *avajānanti*—disrespect; *amī*—those (who); *mūḍhāḥ*—being ignorant; *nṛpa-rūpiṇam*—in the form of the king; *īśvaram*—the Personality of Godhead; *na*—not; *anuvindanti*—experience; *te*—they; *bhadram*—happiness; *iha*—in this; *loke*—world; *paratra*—after death; *ca*—also.

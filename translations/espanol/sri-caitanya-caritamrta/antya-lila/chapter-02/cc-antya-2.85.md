@@ -1,9 +1,9 @@
 ### CC Antya 2.85
 
-> সখ্যভাবাক্রান্ত-চিত্ত, গোপ-অবতার ।
+> সখ্যভাবাক্রান্ত-চিত্ত, গোপ-অবতার ।\
 > স্বরূপ-গোসাঞি-সহ সখ্য-ব্যবহার ॥৮৫॥
 
-> sakhya-bhāvākrānta-citta, gopa-avatāra
+> sakhya-bhāvākrānta-citta, gopa-avatāra\
 > svarūpa-gosāñi-saha sakhya-vyavahāra
 
 *sakhya-bhāva*—por el amor fraternal; *ākrānta*—abrumado; *citta*—el corazón; *gopa-avatāra*—una encarnación de uno de los pastorcillos de vacas; *svarūpa-gosāñi-saha*—con Svarūpa Dāmodara; *sakhya-vyavahāra*—tratos propios de un amigo.

@@ -1,13 +1,13 @@
 ### SB 3.16.20
 
-> यं वै विभूतिरुपयात्यनुवेलमन्यैर्
-> अर्थार्थिभिः स्वशिरसा धृतपादरेणुः ।
-> धन्यार्पिताङ्घ्रितुलसीनवदामधाम्नो
+> यं वै विभूतिरुपयात्यनुवेलमन्यैर्\
+> अर्थार्थिभिः स्वशिरसा धृतपादरेणुः ।\
+> धन्यार्पिताङ्घ्रितुलसीनवदामधाम्नो\
 > लोकं मधुव्रतपतेरिव कामयाना ॥२०॥
 
-> yaṁ vai vibhūtir upayāty anuvelam anyair
-> arthārthibhiḥ sva-śirasā dhṛta-pāda-reṇuḥ
-> dhanyārpitāṅghri-tulasī-nava-dāma-dhāmno
+> yaṁ vai vibhūtir upayāty anuvelam anyair\
+> arthārthibhiḥ sva-śirasā dhṛta-pāda-reṇuḥ\
+> dhanyārpitāṅghri-tulasī-nava-dāma-dhāmno\
 > lokaṁ madhuvrata-pater iva kāma-yānā
 
 *yam*—a quien; *vai*—ciertamente; *vibhūtiḥ*—Lakṣmī, la diosa de la fortuna; *upayāti*—sirve; *anuvelam*—ocasionalmente; *anyaiḥ*—por otros; *artha*—bien material; *arthibhiḥ*—por aquellos que desean; *sva-śirasā*—sobre sus propias cabezas; *dhṛta*—aceptando; *pāda*—de los pies; *reṇuḥ*—el polvo; *dhanya*—por los devotos; *arpita*—ofrecidas; *aṅghri*—a Tus pies; *tulasī*—de hojas de *tulasī*; *nava*—fresca; *dāma*—en la guirnalda; *dhāmnaḥ*—tener un lugar; *lokam*—el lugar; *madhu-vrata-pateḥ*—del rey de las abejas; *iva*—como; *kāma-yānā*—desea ardientemente obtener.

@@ -1,9 +1,9 @@
 ### CC Madhya 25.195
 
-> প্রায়শ্চিত্ত পুছিলা তিঁহো পণ্ডিতের গণে ।
+> প্রায়শ্চিত্ত পুছিলা তিঁহো পণ্ডিতের গণে ।\
 > তাঁরা কহে, — তপ্ত-ঘৃত খাঞা ছাড়’ প্রাণে ॥১৯৫॥
 
-> prāyaścitta puchilā tiṅho paṇḍitera gaṇe
+> prāyaścitta puchilā tiṅho paṇḍitera gaṇe\
 > tāṅrā kahe,-tapta-ghṛta khāñā chāḍa' prāṇe
 
 *prāyaścitta*—atonement; *puchilā*—inquired; *tiṅho*—he; *paṇḍitera gaṇe*—among the learned scholars or *brāhmaṇa-paṇḍitas* in Vārāṇasī; *tāṅrā kahe*—they advised; *tapta-ghṛta*—hot clarified butter; *khāñā*—drinking; *chāḍa'*—give up; *prāṇe*—your life.

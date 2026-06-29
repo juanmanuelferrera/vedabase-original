@@ -1,13 +1,13 @@
 ### SB 3.15.26
 
-> तद्विश्वगुर्वधिकृतं भुवनैकवन्द्यं
-> दिव्यं विचित्रविबुधाग्र्यविमानशोचिः ।
-> आपुः परां मुदमपूर्वमुपेत्य योग
+> तद्विश्वगुर्वधिकृतं भुवनैकवन्द्यं\
+> दिव्यं विचित्रविबुधाग्र्यविमानशोचिः ।\
+> आपुः परां मुदमपूर्वमुपेत्य योग\
 > मायाबलेन मुनयस्तदथो विकुण्ठम् ॥२६॥
 
-> tad viśva-gurv-adhikṛtaṁ bhuvanaika-vandyaṁ
-> divyaṁ vicitra-vibudhāgrya-vimāna-śociḥ
-> āpuḥ parāṁ mudam apūrvam upetya yoga-
+> tad viśva-gurv-adhikṛtaṁ bhuvanaika-vandyaṁ\
+> divyaṁ vicitra-vibudhāgrya-vimāna-śociḥ\
+> āpuḥ parāṁ mudam apūrvam upetya yoga-\
 > māyā-balena munayas tad atho vikuṇṭham
 
 *tat*—then; *viśva-guru*—by the teacher of the universe, the Supreme Personality of Godhead; *adhikṛtam*—predominated; *bhuvana*—of the planets; *eka*—alone; *vandyam*—worthy to be worshiped; *divyam*—spiritual; *vicitra*—highly decorated; *vibudha-agrya*—of the devotees (who are the best of the learned); *vimāna*—of the airplanes; *śociḥ*—illuminated; *āpuḥ*—attained; *parām*—the highest; *mudam*—happiness; *apūrvam*—unprecedented; *upetya*—having attained; *yoga-māyā*—by spiritual potency; *balena*—by the influence; *munayaḥ*—the sages; *tat*—Vaikuṇṭha; *atho*—that; *vikuṇṭham*—Viṣṇu.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.129
 
-> ‘সন্ন্যাসী’ বলিয়া মোরে না করিহ বঞ্চন ৷
+> ‘সন্ন্যাসী’ বলিয়া মোরে না করিহ বঞ্চন ৷\
 > কৃষ্ণ-রাধা-তত্ত্ব কহি’ পূর্ণ কর মন ৷৷ ১২৯ ৷৷ ॥১২৯॥
 
-> 'sannyāsī' baliyā more nā kariha vañcana
+> 'sannyāsī' baliyā more nā kariha vañcana\
 > kṛṣṇa-rādhā-tattva kahi' pūrṇa kara mana
 
 *sannyāsī*—una persona en la orden de vida de renuncia; *baliyā*—tomando como; *more*—a Mí; *nā kariha*—no hagas; *vañcana*—engaño; *kṛṣṇa-rādhā-tattva*—la verdad acerca de Rādhā-Kṛṣṇa; *kahi'*—describiendo; *pūrṇa*—completa; *kara*—haz; *mana*—mi mente.

@@ -1,9 +1,9 @@
 ### CC Antya 9.117
 
-> প্রভু কহে, — “কাশীমিশ্র, কি তুমি করিলা ?
+> প্রভু কহে, — “কাশীমিশ্র, কি তুমি করিলা ?\
 > রাজ-প্রতিগ্রহ তুমি আমা’ করাইলা ?” ॥ ১১৭ ॥
 
-> prabhu kahe,--"kāśī-miśra, ki tumi karilā?
+> prabhu kahe,--"kāśī-miśra, ki tumi karilā?\
 > rāja-pratigraha tumi āmā' karāilā?"
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *kāśī-miśra*—Mi querido Kāśī Miśra; *ki*—qué; *tumi karilā*—has hecho; *rāja-pratigraha*—recibir del rey; *tumi*—tú; *āmā'*—a Mí; *karāilā*—Me has hecho.

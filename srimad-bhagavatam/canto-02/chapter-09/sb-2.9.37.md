@@ -1,11 +1,11 @@
 ### SB 2.9.37
 
-> एतन्मतं समातिष्ठ परमेण समाधिना ।
+> एतन्मतं समातिष्ठ परमेण समाधिना ।\
 > भवान्कल्पविकल्पेषु न विमुह्यति कर्हिचित् ॥३७॥
 
-> etan mataṁ samātiṣṭha
-> parameṇa samādhinā
-> bhavān kalpa-vikalpeṣu
+> etan mataṁ samātiṣṭha\
+> parameṇa samādhinā\
+> bhavān kalpa-vikalpeṣu\
 > na vimuhyati karhicit
 
 *etat*—this; *matam*—the conclusion; *samātiṣṭha*—remain fixed; *parameṇa*—by the supreme; *samādhinā*—concentration of the mind; *bhavān*—yourself; *kalpa*—intermediate devastation; *vikalpeṣu*—in the final devastation; *na vimuhyati*—will never bewilder; *karhicit*—anything like complacence.

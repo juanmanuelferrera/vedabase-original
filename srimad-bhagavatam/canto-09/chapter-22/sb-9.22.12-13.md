@@ -1,18 +1,18 @@
 ### SB 9.22.12-13
 
-> देवापिः शान्तनुस्तस्य बाह्लीक इति चात्मजाः
-> पितृराज्यं परित्यज्य देवापिस्तु वनं गतः ॥१२॥
-> अभवच्छान्तनू राजा प्राङ्महाभिषसंज्ञइतः
+> देवापिः शान्तनुस्तस्य बाह्लीक इति चात्मजाः\
+> पितृराज्यं परित्यज्य देवापिस्तु वनं गतः ॥१२॥\
+> अभवच्छान्तनू राजा प्राङ्महाभिषसंज्ञइतः\
 > यं यं कराभ्यां स्पृशति जीर्णं यौवनमेति सः ॥१३॥
 
-> devāpiḥ śāntanus tasya
-> bāhlīka iti cātmajāḥ
-> pitṛ-rājyaṁ parityajya
+> devāpiḥ śāntanus tasya\
+> bāhlīka iti cātmajāḥ\
+> pitṛ-rājyaṁ parityajya\
 > devāpis tu vanaṁ gataḥ
 
-> abhavac chāntanū rājā
-> prāṅ mahābhiṣa-saṁjñitaḥ
-> yaṁ yaṁ karābhyāṁ spṛśati
+> abhavac chāntanū rājā\
+> prāṅ mahābhiṣa-saṁjñitaḥ\
+> yaṁ yaṁ karābhyāṁ spṛśati\
 > jīrṇaṁ yauvanam eti saḥ
 
 *devāpiḥ*—Devāpi; *śāntanuḥ*—Śāntanu; *tasya*—of him (Pratīpa); *bāhlīkaḥ*—Bāhlīka; *iti*—thus; *ca*—also; *ātma-jāḥ*—the sons; *pitṛ-rājyam*—the father's property, the kingdom; *parityajya*—rejecting; *devāpiḥ*—Devāpi, the eldest; *tu*—indeed; *vanam*—to the forest; *gataḥ*—left; *abhavat*—was; *śāntanuḥ*—Śāntanu; *rājā*—the king; *prāk*—before; *mahābhiṣa*—Mahābhiṣa; *saṁjñitaḥ*—most celebrated; *yam yam*—whomever; *karābhyām*—with his hands; *spṛśati*—touched; *jīrṇam*—although very old; *yauvanam*—youth; *eti*—attained; *saḥ*—he.

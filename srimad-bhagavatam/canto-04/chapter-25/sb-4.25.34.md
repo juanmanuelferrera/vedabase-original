@@ -1,11 +1,11 @@
 ### SB 4.25.34
 
-> इहाद्य सन्तमात्मानं विदाम न ततः परम् ।
+> इहाद्य सन्तमात्मानं विदाम न ततः परम् ।\
 > येनेयं निर्मिता वीर पुरी शरणमात्मनः ॥३४॥
 
-> ihādya santam ātmānaṁ
-> vidāma na tataḥ param
-> yeneyaṁ nirmitā vīra
+> ihādya santam ātmānaṁ\
+> vidāma na tataḥ param\
+> yeneyaṁ nirmitā vīra\
 > purī śaraṇam ātmanaḥ
 
 *iha*—here; *adya*—today; *santam*—existing; *ātmānam*—living entities; *vidāma*—that much we know; *na*—not; *tataḥ param*—beyond that; *yena*—by whom; *iyam*—this; *nirmitā*—created; *vīra*—O great hero; *purī*—city; *śaraṇam*—resting place; *ātmanaḥ*—of all living entities.

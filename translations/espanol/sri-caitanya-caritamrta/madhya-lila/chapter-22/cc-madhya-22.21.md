@@ -1,9 +1,9 @@
 ### CC Madhya 22.21
 
-> কেবল জ্ঞান ‘মুক্তি’ দিতে নারে ভক্তি বিনে ।
+> কেবল জ্ঞান ‘মুক্তি’ দিতে নারে ভক্তি বিনে ।\
 > কৃষ্ণোন্মুখে সেই মুক্তি হয় বিনা জ্ঞানে ॥২১॥
 
-> kevala jñāna'mukti' dite nāre bhakti vine
+> kevala jñāna'mukti' dite nāre bhakti vine\
 > kṛṣṇonmukhe sei mukti haya vinā jñāne
 
 *kevala*—solo; *jñāna*—conocimiento especulativo; *mukti*—liberación; *dite*—dar; *nāre*—no es capaz; *bhakti vine*—sin servicio devocional; *kṛṣṇa-unmukhe*—si uno está apegado al servicio del Señor Kṛṣṇa; *sei mukti*—esa liberación; *haya*—aparece; *vinā*—sin; *jñāne*—conocimiento.

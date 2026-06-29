@@ -1,11 +1,11 @@
 ### SB 6.4.34
 
-> यः प्राकृतैरज्ञआनपथैर्जनानां यथाशयं देहगतो विभाति
+> यः प्राकृतैरज्ञआनपथैर्जनानां यथाशयं देहगतो विभाति\
 > यथानिलः पार्थिवमाश्रितो गुणं स ईश्वरो मे कुरुतां मनोरथम ॥३४॥
 
-> yaḥ prākṛtair jñāna-pathair janānāṁ
-> yathāśayaṁ deha-gato vibhāti
-> yathānilaḥ pārthivam āśrito guṇaṁ
+> yaḥ prākṛtair jñāna-pathair janānāṁ\
+> yathāśayaṁ deha-gato vibhāti\
+> yathānilaḥ pārthivam āśrito guṇaṁ\
 > sa īśvaro me kurutāṁ manoratham
 
 *yaḥ*—who; *prākṛtaiḥ*—lower grade; *jñāna-pathaiḥ*—by the paths of worship; *janānām*—of all living entities; *yathā-āśayam*—according to the desire; *deha-gataḥ*—situated within the core of the heart; *vibhāti*—manifests; *yathā*—just as; *anilaḥ*—the air; *pārthivam*—earthly; *āśritaḥ*—receiving; *guṇam*—the quality (like flavor and color); *saḥ*—He; *īśvaraḥ*—the Supreme Personality of Godhead; *me*—my; *kurutām*—may He fulfill; *manoratham*—desire (for devotional service).

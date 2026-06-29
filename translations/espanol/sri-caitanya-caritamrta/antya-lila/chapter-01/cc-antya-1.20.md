@@ -1,9 +1,9 @@
 ### CC Antya 1.20
 
-> একদিন শিবানন্দে ঘাটিয়ালে রাখিলা ।
+> একদিন শিবানন্দে ঘাটিয়ালে রাখিলা ।\
 > কুক্কুরকে ভাত দিতে সেবক পাসরিলা ॥২০॥
 
-> eka-dina śivānande ghāṭiyāle rākhila
+> eka-dina śivānande ghāṭiyāle rākhila\
 > kukkurake bhāta dite sevaka pāsarilā
 
 *eka-dina*—un día; *śivānande*—Śivānanda Sena; *ghāṭiyāle*—el cobrador de peaje; *rākhilā*—retuvo; *kukkurake*—al perro; *bhāta dite*—suministrar arroz; *sevaka*—el sirviente; *pāsarilā*—se olvidó.

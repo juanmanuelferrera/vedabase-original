@@ -1,11 +1,11 @@
 ### SB 1.12.28
 
-> जिज्ञासितात्मयाथार्थ्यो मुनेर्व्याससुतादसौ ।
+> जिज्ञासितात्मयाथार्थ्यो मुनेर्व्याससुतादसौ ।\
 > हित्वेदं नृप गङ्गायां यास्यत्यद्धाकुतोभयम् ॥२८॥
 
-> jijñāsitātma-yāthārthyo
-> muner vyāsa-sutād asau
-> hitvedaṁ nṛpa gaṅgāyāṁ
+> jijñāsitātma-yāthārthyo\
+> muner vyāsa-sutād asau\
+> hitvedaṁ nṛpa gaṅgāyāṁ\
 > yāsyaty addhākutobhayam
 
 *jijñāsita*—having inquired of; *ātma-yāthārthyaḥ*—right knowledge of one's own self; *muneḥ*—from the learned philosopher; *vyāsa-sutāt*—the son of Vyāsa; *asau*—he; *hitvā*—quitting; *idam*—this material attachment; *nṛpa*—O King; *gaṅgāyām*—on the bank of the Ganges; *yāsyati*—will go; *addhā*—directly; *akutaḥ-bhayam*—the life of fearlessness.

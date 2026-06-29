@@ -1,11 +1,11 @@
 ### SB 3.24.46
 
-> आत्मानं सर्वभूतेषु भगवन्तमवस्थितम् ।
+> आत्मानं सर्वभूतेषु भगवन्तमवस्थितम् ।\
 > अपश्यत्सर्वभूतानि भगवत्यपि चात्मनि ॥४६॥
 
-> ātmānaṁ sarva-bhūteṣu
-> bhagavantam avasthitam
-> apaśyat sarva-bhūtāni
+> ātmānaṁ sarva-bhūteṣu\
+> bhagavantam avasthitam\
+> apaśyat sarva-bhūtāni\
 > bhagavaty api cātmani
 
 *ātmānam*—the Supersoul; *sarva-bhūteṣu*—in all living beings; *bhagavantam*—the Supreme Personality of Godhead; *avasthitam*—situated; *apaśyat*—he saw; *sarva-bhūtāni*—all living beings; *bhagavati*—in the Supreme Personality of Godhead; *api*—moreover; *ca*—and; *ātmani*—on the Supersoul.

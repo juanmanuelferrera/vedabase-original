@@ -1,11 +1,11 @@
 ### SB 3.17.29
 
-> स एवमुत्सिक्तमदेन विद्विषा दृढं प्रलब्धो भगवानपां पतिः ।
+> स एवमुत्सिक्तमदेन विद्विषा दृढं प्रलब्धो भगवानपां पतिः ।\
 > रोषं समुत्थं शमयन्स्वया धिया व्यवोचदङ्गोपशमं गता वयम् ॥२९॥
 
-> sa evam utsikta-madena vidviṣā
-> dṛḍhaṁ pralabdho bhagavān apāṁ patiḥ
-> roṣaṁ samutthaṁ śamayan svayā dhiyā
+> sa evam utsikta-madena vidviṣā\
+> dṛḍhaṁ pralabdho bhagavān apāṁ patiḥ\
+> roṣaṁ samutthaṁ śamayan svayā dhiyā\
 > vyavocad aṅgopaśamaṁ gatā vayam
 
 *saḥ*—Varuṇa; *evam*—thus; *utsikta*—puffed up; *madena*—with vanity; *vidviṣā*—by the enemy; *dṛḍham*—deeply; *pralabdhaḥ*—mocked; *bhagavān*—worshipful; *apām*—of the waters; *patiḥ*—the lord; *roṣam*—anger; *samuttham*—sprung up; *śamayan*—controlling; *svayā dhiyā*—by his reason; *vyavocat*—he replied; *aṅga*—O dear one; *upaśamam*—desisting from warfare; *gatāḥ*—gone; *vayam*—we.

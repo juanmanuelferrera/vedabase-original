@@ -1,11 +1,11 @@
 ### Bg 5.26
 
-> कामक्रोधवियुक्तानां यतीनां यतचेतसाम् ।
+> कामक्रोधवियुक्तानां यतीनां यतचेतसाम् ।\
 > अभितो ब्रह्मनिर्वाणं वर्तते विदितात्मनाम् ॥२६॥
 
-> kāma-krodha-vimuktānāṁ
-> yatīnāṁ yata-cetasām
-> abhito brahma-nirvāṇaṁ
+> kāma-krodha-vimuktānāṁ\
+> yatīnāṁ yata-cetasām\
+> abhito brahma-nirvāṇaṁ\
 > vartate viditātmanām
 
 *kāma*—deseos; *krodha*—ira; *vimuktānām*—de aquellos que están así liberados; *yatīnām*—de las personas santas; *yata-cetasām*—de personas que tienen pleno control de la mente; *abhitaḥ*—asegurado en el futuro cercano; *brahma-nirvāṇam*—liberación en el Supremo; *vartate*—está ahí; *vidita-ātmanām*—de aquellos que están autorrealizados.

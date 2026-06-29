@@ -1,9 +1,9 @@
 ### CC Madhya 7.18
 
-> প্রভু কহে, “আমি — নর্তক, তুমি — সূত্রধার ।
+> প্রভু কহে, “আমি — নর্তক, তুমি — সূত্রধার ।\
 > তুমি যৈছে নাচাও, তৈছে নর্তন আমার ॥১৮॥
 
-> prabhu kahe, "āmi—nartaka, tumi—sūtra-dhāra
+> prabhu kahe, "āmi—nartaka, tumi—sūtra-dhāra\
 > tumi yaiche nācāo, taiche nartana āmāra
 
 *prabhukahe*—the Lord replied; *āmi*—I; *nartaka*—a dancer; *tumi*—You; *sūtra-dhāra*—wire-puller; *tumi*—You; *yaiche*—just as; *nācāo*—make dance; *taiche*—in that way; *nartana*—dancing; *āmāra*—My.

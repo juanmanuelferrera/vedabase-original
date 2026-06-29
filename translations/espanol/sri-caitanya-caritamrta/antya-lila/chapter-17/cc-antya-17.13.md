@@ -1,9 +1,9 @@
 ### CC Antya 17.13
 
-> এথা গোবিন্দ মহাপ্রভুর শব্দ না পাঞা ।
+> এথা গোবিন্দ মহাপ্রভুর শব্দ না পাঞা ।\
 > স্বরূপেরে বোলাইল কপাট খুলিয়া ॥১৩॥
 
-> ethā govinda mahāprabhura śabda nā pāñā
+> ethā govinda mahāprabhura śabda nā pāñā\
 > svarūpere bolāila kapāṭa khuliyā
 
 *ethā*—aquí; *govinda*—Govinda; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *śabda*—sonido; *nā pāñā*—al no percibir; *svarūpere*—a Svarūpa Dāmodara Gosvāmī; *bolāila*—llamó; *kapāṭa*—las puertas; *khuliyā*—abriendo.

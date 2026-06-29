@@ -1,9 +1,9 @@
 ### CC Madhya 5.125
 
-> তাঁহার মহিষী আইলা গোপাল-দর্শনে ।
+> তাঁহার মহিষী আইলা গোপাল-দর্শনে ।\
 > ভক্তি করি’ বহু অলঙ্কার কৈল সমর্পণে ॥১২৫॥
 
-> tāṅhāra mahiṣī āilā gopāla-darśane
+> tāṅhāra mahiṣī āilā gopāla-darśane\
 > bhakti kari' bahu alaṅkāra kaila samarpaṇe
 
 *tāṅhāramahiṣī*—his Queen; *āilā*—came; *gopāla-darśane*—to see the Gopāla Deity; *bhakti kari'*—in great devotion; *bahu*—various; *alaṅkāra*—of ornaments; *kaila*—made; *samarpaṇe*—presentation.

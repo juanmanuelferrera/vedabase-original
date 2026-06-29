@@ -1,9 +1,9 @@
 ### CC Adi 16.89
 
-> পড়ুয়া বালক কৈল মোর বুদ্ধি লোপ ।
+> পড়ুয়া বালক কৈল মোর বুদ্ধি লোপ ।\
 > জানি — সরস্বতী মোরে করিয়াছেন কোপ ॥৮৯॥
 
-> paḍuyā bālaka kaila mora buddhi lopa
+> paḍuyā bālaka kaila mora buddhi lopa\
 > jāni--sarasvatī more kariyāchena kopa
 
 *paḍuyā*—estudiante; *bālaka*—un muchacho; *kaila*—hizo; *mora*—mi; *buddhi*—inteligencia; *lopa*—desaparecida; *jāni*—puedo comprender; *sarasvatī*—la madre Sarasvatī; *more*—conmigo; *kariyāchena*—debe haberse; *kopa*—enfadado.

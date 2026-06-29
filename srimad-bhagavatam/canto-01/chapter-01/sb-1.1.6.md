@@ -1,13 +1,13 @@
 ### SB 1.1.6
 
-> ऋषय ऊचुः
-> त्वया खलु पुराणानि सेतिहासानि चानघ ।
+> ऋषय ऊचुः\
+> त्वया खलु पुराणानि सेतिहासानि चानघ ।\
 > आख्यातान्यप्यधीतानि धर्मशास्त्राणि यान्युत ॥६॥
 
-> ṛṣaya ūcuḥ
-> tvayā khalu purāṇāni
-> setihāsāni cānagha
-> ākhyātāny apy adhītāni
+> ṛṣaya ūcuḥ\
+> tvayā khalu purāṇāni\
+> setihāsāni cānagha\
+> ākhyātāny apy adhītāni\
 > dharma-śāstrāṇi yāny uta
 
 *ṛṣayaḥ*—the sages; *ūcuḥ*—said; *tvayā*—by you; *khalu*—undoubtedly; *purāṇāni*—the supplements to the *Vedas* with illustrative narrations; *sa-itihāsāni*—along with the histories; *ca*—and; *anagha*—freed from all vices; *ākhyātāni*—explained; *api*—although; *adhītāni*—well read; *dharma-śāstrāṇi*—scriptures giving right directions to progressive life; *yāni*—all these; *uta*—said.

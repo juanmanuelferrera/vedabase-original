@@ -1,11 +1,11 @@
 ### SB 3.30.2
 
-> यं यमर्थमुपादत्ते दुःखेन सुखहेतवे ।
+> यं यमर्थमुपादत्ते दुःखेन सुखहेतवे ।\
 > तं तं धुनोति भगवान्पुमान्छोचति यत्कृते ॥२॥
 
-> yaṁ yam artham upādatte
-> duḥkhena sukha-hetave
-> taṁ taṁ dhunoti bhagavān
+> yaṁ yam artham upādatte\
+> duḥkhena sukha-hetave\
+> taṁ taṁ dhunoti bhagavān\
 > pumāñ chocati yat-kṛte
 
 *yam yam*—whatever; *artham*—object; *upādatte*—one acquires; *duḥkhena*—with difficulty; *sukha-hetave*—for happiness; *tam tam*—that; *dhunoti*—destroys; *bhagavān*—the Supreme Personality of Godhead; *pumān*—the person; *śocati*—laments; *yat-kṛte*—for which reason.

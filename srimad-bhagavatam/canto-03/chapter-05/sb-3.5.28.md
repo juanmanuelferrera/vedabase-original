@@ -1,11 +1,11 @@
 ### SB 3.5.28
 
-> सोऽप्यंशगुणकालात्मा भगवद्दृष्टिगोचरः ।
+> सोऽप्यंशगुणकालात्मा भगवद्दृष्टिगोचरः ।\
 > आत्मानं व्यकरोदात्मा विश्वस्यास्य सिसृक्षया ॥२८॥
 
-> so 'py aṁśa-guṇa-kālātmā
-> bhagavad-dṛṣṭi-gocaraḥ
-> ātmānaṁ vyakarod ātmā
+> so 'py aṁśa-guṇa-kālātmā\
+> bhagavad-dṛṣṭi-gocaraḥ\
+> ātmānaṁ vyakarod ātmā\
 > viśvasyāsya sisṛkṣayā
 
 *saḥ*—*mahat-tattva*; *api*—also; *aṁśa*—*puruṣa* plenary expansion; *guṇa*—chiefly the quality of ignorance; *kāla*—the duration of time; *ātmā*—full consciousness; *bhagavat*—the Personality of Godhead; *dṛṣṭi-gocaraḥ*—range of sight; *ātmānam*—many different forms; *vyakarot*—differentiated; *ātmā*—reservoir; *viśvasya*—the would-be entities; *asya*—of this; *sisṛkṣayā*—generates the false ego.

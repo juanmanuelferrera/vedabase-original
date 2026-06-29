@@ -1,9 +1,9 @@
 ### CC Madhya 24.111
 
-> ভক্তদেহ পাইলে হয় গুণের স্মরণ ।
+> ভক্তদেহ পাইলে হয় গুণের স্মরণ ।\
 > গুণাকৃষ্ট হঞা করে নির্মল ভজন ॥১১১॥
 
-> bhakta-deha pāile haya guṇera smaraṇa
+> bhakta-deha pāile haya guṇera smaraṇa\
 > guṇākṛṣṭa hañā kare nirmala bhajana
 
 *bhakta-deha*—el cuerpo de un devoto; *pāile*—cuando se obtiene; *haya*—hay; *guṇera smaraṇa*—recuerdo de las cualidades trascendentales; *guṇa-ākṛṣṭa hañā*—siendo atraído por las cualidades trascendentales; *kare*—lleva a cabo; *nirmala bhajana*—servicio devocional puro.

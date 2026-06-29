@@ -1,9 +1,9 @@
 ### CC Antya 3.236
 
-> “জগতের বন্ধু তুমি রূপগুণবান্  ।
+> “জগতের বন্ধু তুমি রূপগুণবান্  ।\
 > তব সঙ্গ লাগি’ মোর এথাকে প্রয়াণ ॥২৩৬॥
 
-> "jagatera bandhu tumi rūpa-guṇavān
+> "jagatera bandhu tumi rūpa-guṇavān\
 > tava saṅga lāgi' mora ethāke prayāṇa
 
 *jagatera*—of the whole world; *bandhu*—friend; *tumi*—you; *rūpa-guṇa-vān*—so beautiful and qualified; *tava saṅga*—your union; *lāgi'*—for; *mora*—my; *ethāke prayāṇa*—coming here.

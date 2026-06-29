@@ -1,13 +1,13 @@
 ### SB 2.7.20
 
-> चक्रं च दिक्ष्वविहतं दशसु स्वतेजो
-> मन्वन्तरेषु मनुवंशधरो बिभर्ति ।
-> दुष्टेषु राजसु दमं व्यदधात्स्वकीर्तिं
+> चक्रं च दिक्ष्वविहतं दशसु स्वतेजो\
+> मन्वन्तरेषु मनुवंशधरो बिभर्ति ।\
+> दुष्टेषु राजसु दमं व्यदधात्स्वकीर्तिं\
 > सत्ये त्रिपृष्ठ उशतीं प्रथयंश्चरित्रैः ॥२०॥
 
-> cakraṁ ca dikṣv avihataṁ daśasu sva-tejo
-> manvantareṣu manu-vaṁśa-dharo bibharti
-> duṣṭeṣu rājasu damaṁ vyadadhāt sva-kīrtiṁ
+> cakraṁ ca dikṣv avihataṁ daśasu sva-tejo\
+> manvantareṣu manu-vaṁśa-dharo bibharti\
+> duṣṭeṣu rājasu damaṁ vyadadhāt sva-kīrtiṁ\
 > satye tri-pṛṣṭha uśatīṁ prathayaṁś caritraiḥ
 
 *cakram*—the Sudarśana wheel of the Lord; *ca*—as well as; *dikṣu*—in all directions; *avihatam*—without being deterred; *daśasu*—ten sides; *sva-tejaḥ*—personal strength; *manvantareṣu*—in different incarnations of Manu; *manu-vaṁśa-dharaḥ*—as the descendant of the Manu dynasty; *bibharti*—rules over; *duṣṭeṣu*—unto the miscreants; *rājasu*—upon the kings of that type; *damam*—subjection; *vyadadhāt*—performed; *sva-kīrtim*—personal glories; *satye*—in the Satyaloka planet; *tri-pṛṣṭhe*—the three planetary systems; *uśatīm*—glorious; *prathayan*—established; *caritraiḥ*—characteristics.

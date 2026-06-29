@@ -1,11 +1,11 @@
 ### SB 1.18.16
 
-> स वै महाभागवतः परीक्षिद्येनापवर्गाख्यमदभ्रबुद्धिः ।
+> स वै महाभागवतः परीक्षिद्येनापवर्गाख्यमदभ्रबुद्धिः ।\
 > ज्ञानेन वैयासकिशब्दितेन भेजे खगेन्द्रध्वजपादमूलम् ॥१६॥
 
-> sa vai mahā-bhāgavataḥ parīkṣid
-> yenāpavargākhyam adabhra-buddhiḥ
-> jñānena vaiyāsaki-śabditena
+> sa vai mahā-bhāgavataḥ parīkṣid\
+> yenāpavargākhyam adabhra-buddhiḥ\
+> jñānena vaiyāsaki-śabditena\
 > bheje khagendra-dhvaja-pāda-mūlam
 
 *saḥ*—he; *vai*—certainly; *mahā-bhāgavataḥ*—first-class devotee; *parīkṣit*—the King; *yena*—by which; *apavarga-ākhyam*—by the name of liberation; *adabhra*—fixed; *buddhiḥ*—intelligence; *jñānena*—by knowledge; *vaiyāsaki*—the son of Vyāsa; *śabditena*—vibrated by; *bheje*—taken to; *khaga-indra*—Garuḍa, the king of the birds; *dhvaja*—flag; *pāda-mūlam*—soles of the feet.

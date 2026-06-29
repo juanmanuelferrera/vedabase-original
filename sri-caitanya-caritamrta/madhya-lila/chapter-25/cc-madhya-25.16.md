@@ -1,9 +1,9 @@
 ### CC Madhya 25.16
 
-> তাহাঁ যৈছে কৈলা প্রভু সন্ন্যাসীর নিস্তার ।
+> তাহাঁ যৈছে কৈলা প্রভু সন্ন্যাসীর নিস্তার ।\
 > পঞ্চতত্ত্বাখ্যানে তাহা করিয়াছি বিস্তার ॥১৬॥
 
-> tāhāṅ yaiche kailā prabhu sannyāsīra nistāra
+> tāhāṅ yaiche kailā prabhu sannyāsīra nistāra\
 > pañca-tattvākhyāne tāhā kariyāchi vistāra
 
 *tāhāṅ*—there; *yaiche*—how; *kailā*—performed; *prabhu*—Śrī Caitanya Mahāprabhu; *sannyāsīra*—of the Māyāvādī *sannyāsīs*; *nistāra*—deliverance; *pañca-tattva-ākhyāne*—in describing the glories of the Pañca-tattva (Śrī Kṛṣṇa Caitanya, Prabhu Nityānanda, Śrī Advaita, Gadādhara and Śrīvāsa); *tāhā*—that subject matter; *kariyāchi vistāra*—have described elaborately.

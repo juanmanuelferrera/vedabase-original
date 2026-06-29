@@ -1,9 +1,9 @@
 ### CC Madhya 3.216
 
-> গঙ্গাতীরে-তীরে প্রভু চারিজন-সাথে ।
+> গঙ্গাতীরে-তীরে প্রভু চারিজন-সাথে ।\
 > নীলাদ্রি চলিলা প্রভু ছত্রভোগ-পথে ॥২১৬॥
 
-> gaṅgā-tīre-tīre prabhu cāri-jana-sāthe
+> gaṅgā-tīre-tīre prabhu cāri-jana-sāthe\
 > nīlādri calilā prabhu chatrabhoga-pathe
 
 *gaṅgā-tīre-tīre*—on the banks of the Ganges; *prabhu*—the Lord; *cāri-jana-sāthe*—with the other four persons; *nīlādri*—to Jagannātha Purī; *calilā*—proceeded; *prabhu*—the Lord; *chatrabhoga-pathe*—on the path of Chatrabhoga.

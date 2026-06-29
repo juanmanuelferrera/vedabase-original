@@ -1,11 +1,11 @@
 ### SB 4.25.38
 
-> कं नु त्वदन्यं रमये ह्यरतिज्ञमकोविदम् ।
+> कं नु त्वदन्यं रमये ह्यरतिज्ञमकोविदम् ।\
 > असम्परायाभिमुखमश्वस्तनविदं पशुम् ॥३८॥
 
-> kaṁ nu tvad-anyaṁ ramaye
-> hy arati-jñam akovidam
-> asamparāyābhimukham
+> kaṁ nu tvad-anyaṁ ramaye\
+> hy arati-jñam akovidam\
+> asamparāyābhimukham\
 > aśvastana-vidaṁ paśum
 
 *kaṁ*—unto whom; *nu*—then; *tvat*—than you; *anyaṁ*—other; *ramaye*—I shall allow to enjoy; *hi*—certainly; *arati-jñam*—without knowledge of sex enjoyment; *akovidam*—therefore almost foolish; *asamparāya*—without knowledge of the next life; *abhimukham*—looking forward; *aśvastana-vidam*—one who does not know what is happening next; *paśum*—like animals.

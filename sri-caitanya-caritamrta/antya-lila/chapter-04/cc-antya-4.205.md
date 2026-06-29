@@ -1,9 +1,9 @@
 ### CC Antya 4.205
 
-> দুঁহে আলিঙ্গিয়া প্রভু গেলা নিজালয় ।
+> দুঁহে আলিঙ্গিয়া প্রভু গেলা নিজালয় ।\
 > প্রভুর গুণ কহে দুঁহে হঞা প্রেমময় ॥২০৫॥
 
-> duṅhe āliṅgiyā prabhu gelā nijālaya
+> duṅhe āliṅgiyā prabhu gelā nijālaya\
 > prabhura guṇa kahe duṅhe hañā prema-maya
 
 *duṅhe*—both of them; *āliṅgiyā*—embracing; *prabhu*—Śrī Caitanya Mahāprabhu; *gelā*—departed; *nija-ālaya*—for His place; *prabhura guṇa*—attributes of Śrī Caitanya Mahāprabhu; *kahe*—discussed; *duṅhe*—both of them; *hañā*—being; *prema-maya*—overwhelmed by ecstasy.

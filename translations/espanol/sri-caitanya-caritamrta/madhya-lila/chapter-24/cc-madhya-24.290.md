@@ -1,10 +1,10 @@
 ### CC Madhya 24.290
 
-> সাধনসিদ্ধ — দাস, সখা, গুরু, কান্তাগণ ।
+> সাধনসিদ্ধ — দাস, সখা, গুরু, কান্তাগণ ।\
 > জাতরতি সাধকভক্ত — চারিবিধ জন ॥২৯০॥
 
-> sādhana-siddha--dāsa, sakhā, guru, kānta-gaṇa
-> jāta-rati sādhaka-bhakta--cāri-vidha jana
+> sādhana-siddha--dāsa, sakhā, guru, kānta-gaṇa\
+> jāta-rati sādhaka-bhakta--cāri-vidha jana\
 > SYNONYMS
 
 *sādhana-siddha*—aquellos que han perfeccionado su vida mediante el servicio devocional; *dāsa*—sirvientes; *sakhā*—amigos; *guru*—superiores; *kāntā-gaṇa*—amadas doncellas; *jāta-rati sādhaka-bhakta*—devotos que han madurado mediante el servicio devocional; *cāri-vidha jana*—también son de cuatro variedades.

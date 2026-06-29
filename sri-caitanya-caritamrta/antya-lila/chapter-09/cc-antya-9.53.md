@@ -1,9 +1,9 @@
 ### CC Antya 9.53
 
-> ‘ক্রমে ক্রমে দিমু, আর যত কিছু পারি  ।
+> ‘ক্রমে ক্রমে দিমু, আর যত কিছু পারি  ।\
 > অবিচারে প্রাণ লহ, — কি বলিতে পারি ?’ ৫৩ ॥৫৩॥
 
-> 'krame krame dimu, āra yata kichu pāri
+> 'krame krame dimu, āra yata kichu pāri\
 > avicāre prāṇa laha,—ki balite pāri?'
 
 *krame krame*—gradually; *dimu*—I shall pay; *āra*—more; *yata*—as much; *kichu*—any; *pāri*—I can; *avicāre*—without consideration; *prāṇa laha*—you take my life; *ki balite pāri*—what can I say.

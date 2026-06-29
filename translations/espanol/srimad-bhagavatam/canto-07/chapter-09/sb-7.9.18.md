@@ -1,13 +1,13 @@
 ### SB 7.9.18
 
-> सोऽहं प्रियस्य सुहृदः परदेवताया
-> लीलाकथास्तव नृसिंह विरिञ्चगीताः
-> अञ्जस्तितर्म्यनुगृणन्गुणविप्रमुक्तो
+> सोऽहं प्रियस्य सुहृदः परदेवताया\
+> लीलाकथास्तव नृसिंह विरिञ्चगीताः\
+> अञ्जस्तितर्म्यनुगृणन्गुणविप्रमुक्तो\
 > दुर्गाणि ते पदयुगालयहंससङ्गः ॥१८॥
 
-> so 'haṁ priyasya suhṛdaḥ paradevatāyā
-> līlā-kathās tava nṛsiṁha viriñca-gītāḥ
-> añjas titarmy anugṛṇan guṇa-vipramukto
+> so 'haṁ priyasya suhṛdaḥ paradevatāyā\
+> līlā-kathās tava nṛsiṁha viriñca-gītāḥ\
+> añjas titarmy anugṛṇan guṇa-vipramukto\
 > durgāṇi te pada-yugālaya-haṁsa-saṅgaḥ
 
 *saḥ*—eso; *aham*—yo (Prahlāda Mahārāja); *priyasya*—del muy querido; *suhṛdaḥ*—bienqueriente; *paradevatāyāḥ*—de la Suprema Personalidad de Dios; *līlā-kathāḥ*—narraciones de los pasatiempos; *tava*—Tuyos; *nṛsiṁha*—¡oh, mi Señor Nṛsiṁhadeva!; *viriñca-gītāḥ*—dados por el Señor Brahmā mediante la sucesión discipular; *añjaḥ*—fácilmente; *titarmi*—cruzaré; *anugṛṇan*—describir constantemente; *guṇa*—por las modalidades de la naturaleza material; *vipramuktaḥ*—específicamente libre de contaminación; *durgāṇi*—todas las condiciones de vida miserables; *te*—de Ti; *pada-yuga-ālaya*—completamente absorto en meditar en los pies de loto; *haṁsa-saṅgaḥ*—en compañía de los *haṁsas*, las personas liberadas (sin relación con las actividades materiales).

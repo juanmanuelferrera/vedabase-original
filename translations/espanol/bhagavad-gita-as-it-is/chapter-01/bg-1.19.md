@@ -1,11 +1,11 @@
 ### Bg 1.19
 
-> स घोषो धार्तराष्ट्राणां हृदयानि व्यदारयत् ।
+> स घोषो धार्तराष्ट्राणां हृदयानि व्यदारयत् ।\
 > नभश्च पृथिवीं चैव तुमुलोऽभ्यनुनादयन् ॥१९॥
 
-> sa ghoṣo dhārtarāṣṭrāṇāṁ
-> hṛdayāni vyadārayat
-> nabhaś ca pṛthivīṁ caiva
+> sa ghoṣo dhārtarāṣṭrāṇāṁ\
+> hṛdayāni vyadārayat\
+> nabhaś ca pṛthivīṁ caiva\
 > tumulo'bhyanunādayan
 
 *saḥ*—esa; *ghoṣaḥ*—vibración; *dhārtarāṣṭrāṇām*—de los hijos de Dhṛtarāṣṭra; *hṛdayāni*—corazones; *vyadārayat*—destrozó; *nabhaḥ*—el cielo; *ca*—también; *pṛthivīm*—la superficie de la Tierra; *ca*—también; *eva*—ciertamente; *tumulaḥ*—estrepitoso; *abhyanunādayan*—resonando.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.16
 
-> এত বলি’ সবে গেলা মহাপ্ৰভুর স্থানে ।
+> এত বলি’ সবে গেলা মহাপ্ৰভুর স্থানে ।\
 > কহিতে উন্মুখ সবে, না কহে বচনে ॥১৬॥
 
-> eta bali' sabe gelā mahāprabhura sthāne
+> eta bali' sabe gelā mahāprabhura sthāne\
 > kahite unmukha sabe, nā kahe vacane
 
 *eta bali'*—decidiendo así; *sabe*—todos ellos; *gelā*—fueron; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *sthāne*—al lugar; *kahite*—hablar; *unmukha*—dispuestos; *sabe*—todos; *nā*—no; *kahe*—dicen; *vacane*—ninguna palabra.

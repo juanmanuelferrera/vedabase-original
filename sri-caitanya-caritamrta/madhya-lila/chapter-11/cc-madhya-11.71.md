@@ -2,7 +2,7 @@
 
 > ভট্ট কহে, — অট্টালিকায় কর আরোহণ । গোপীনাথ চিনে সবারে, করাবে দরশন । আমি কাহো নাহি চিনি, চিনিতে মন হয় । গোপীনাথাচার্য সবারে করা’বে পরিচয় ॥৭১॥
 
-> bhaṭṭa kahe,-aṭṭālikāya kara ārohaṇa
+> bhaṭṭa kahe,-aṭṭālikāya kara ārohaṇa\
 > gopīnātha cine sabāre, karābe daraśana
 
 *bhaṭṭa kahe*—the Bhaṭṭācārya said; *aṭṭālikāya*—on the roof of the palace; *kara ārohaṇa*—just go up; *gopīnātha*—Gopīnātha Ācārya; *cine*—knows; *sabāre*—everyone; *karābe daraśana*—he will show.

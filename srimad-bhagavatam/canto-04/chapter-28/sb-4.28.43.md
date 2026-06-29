@@ -1,11 +1,11 @@
 ### SB 4.28.43
 
-> पतिं परमधर्मज्ञं वैदर्भी मलयध्वजम् ।
+> पतिं परमधर्मज्ञं वैदर्भी मलयध्वजम् ।\
 > प्रेम्णा पर्यचरद्धित्वा भोगान्सा पतिदेवता ॥४३॥
 
-> patiṁ parama-dharma-jñaṁ
-> vaidarbhī malayadhvajam
-> premṇā paryacarad dhitvā
+> patiṁ parama-dharma-jñaṁ\
+> vaidarbhī malayadhvajam\
+> premṇā paryacarad dhitvā\
 > bhogān sā pati-devatā
 
 *patim*—her husband; *parama*—supreme; *dharma-jñam*—knower of religious principles; *vaidarbhī*—the daughter of Vidarbha; *malaya-dhvajam*—named Malayadhvaja; *premṇā*—with love and affection; *paryacarat*—served in devotion; *hitvā*—giving up; *bhogān*—sense enjoyments; *sā*—she; *pati-devatā*—accepting her husband as the Supreme Lord.

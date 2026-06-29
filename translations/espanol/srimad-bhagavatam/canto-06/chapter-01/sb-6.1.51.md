@@ -1,11 +1,11 @@
 ### SB 6.1.51
 
-> तदेतत्षोडशकलं लिङ्गं शक्तित्रयं महत
+> तदेतत्षोडशकलं लिङ्गं शक्तित्रयं महत\
 > धत्तेऽनुसंसृतिं पुंसि हर्षशोकभयार्तिदाम ॥५१॥
 
-> tad etat ṣoḍaśa-kalaṁ
-> liṅgaṁ śakti-trayaṁ mahat
-> dhatte 'nusaṁsṛtiṁ puṁsi
+> tad etat ṣoḍaśa-kalaṁ\
+> liṅgaṁ śakti-trayaṁ mahat\
+> dhatte 'nusaṁsṛtiṁ puṁsi\
 > harṣa-śoka-bhayārtidām
 
 *tat*—por lo tanto; *etat*—este; *ṣoḍaśa-kalam*—hecho de dieciséis partes (los diez sentidos, la mente y los cinco objetos de los sentidos); *liṅgam*—el cuerpo sutil; *śakti-trayam*—el efecto de las tres modalidades de la naturaleza material; *mahat*—insuperable; *dhatte*—da; *anusaṁsṛtim*—rotación y transmigración casi perpetua por distintos cuerpos; *puṁsi*—a la entidad viviente; *harṣa*—júbilo; *śoka*—lamentación; *bhaya*—miedo; *ārti*—miseria; *dām*—que da.

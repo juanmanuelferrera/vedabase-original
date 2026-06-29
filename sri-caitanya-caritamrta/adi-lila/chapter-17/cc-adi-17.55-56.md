@@ -1,14 +1,14 @@
 ### CC Adi 17.55-56
 
-> সন্ন্যাস করিয়া যবে প্রভু নীলাচলে গেলা ।
-> তথা হৈতে যবে কুলিয়া গ্রামে আইলা ॥৫৫॥
-> তবে সেই পাপী প্রভুর লইল শরণ ।
+> সন্ন্যাস করিয়া যবে প্রভু নীলাচলে গেলা ।\
+> তথা হৈতে যবে কুলিয়া গ্রামে আইলা ॥৫৫॥\
+> তবে সেই পাপী প্রভুর লইল শরণ ।\
 > হিত উপদেশ কৈল হইয়া করুণ ॥৫৬॥
 
-> sannyāsa kariyā yabe prabhu nīlācale gelā
+> sannyāsa kariyā yabe prabhu nīlācale gelā\
 > tathā haite yabe kuliyā grāme āilā
 
-> tabe sei pāpī prabhura la-ila śaraṇa
+> tabe sei pāpī prabhura la-ila śaraṇa\
 > hita upadeśa kaila ha-iyā karuṇa
 
 *sannyāsa kariyā*—after accepting the renounced order of life; *yabe*—when; *prabhu*—Lord Caitanya Mahāprabhu; *nīlācale*—to Jagannātha Purī; *gelā*—went; *tathā haite*—from there; *yabe*—when; *kuliyā*—of the name Kuliyā; *grāme*—to the village; *āilā*—came back; *tabe*—at that time; *sei*—that; *pāpī*—sinful man; *prabhura*—of the Lord; *la-ila*—took; *śaraṇa*—shelter; *hita*—beneficial; *upadeśa*—advice; *kaila*—gave; *ha-iyā*—becoming; *karuṇa*—merciful.

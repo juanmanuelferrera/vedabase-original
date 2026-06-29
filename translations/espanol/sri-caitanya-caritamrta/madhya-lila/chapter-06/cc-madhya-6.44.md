@@ -1,9 +1,9 @@
 ### CC Madhya 6.44
 
-> পীঠা-পানা দেহ তুমি ইঁহা-সবাকারে ।
+> পীঠা-পানা দেহ তুমি ইঁহা-সবাকারে ।\
 > তবে ভট্টাচার্য কহে যুড়ি’ দুই করে ॥৪৪॥
 
-> pīṭhā-pānā deha tumi iṅhā-sabākāre
+> pīṭhā-pānā deha tumi iṅhā-sabākāre\
 > tabe bhaṭṭācārya kahe yuḍi' dui kare
 
 *pīṭhā-pānā*—pasteles y leche condensada; *deha*—da; *tumi*—tú; *iṅhā-sabākāre*—a todos estos devotos; *tabe*—en ese momento; *bhaṭṭācārya*—Sārvabhauma Bhaṭṭācārya; *kahe*—dijo; *yuḍi'*—juntando; *dui kare*—las dos manos.

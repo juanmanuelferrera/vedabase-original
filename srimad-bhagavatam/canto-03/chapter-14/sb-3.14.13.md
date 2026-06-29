@@ -1,11 +1,11 @@
 ### SB 3.14.13
 
-> पुरा पिता नो भगवान्दक्षो दुहितृवत्सलः ।
+> पुरा पिता नो भगवान्दक्षो दुहितृवत्सलः ।\
 > कं वृणीत वरं वत्सा इत्यपृच्छत नः पृथक् ॥१३॥
 
-> purā pitā no bhagavān
-> dakṣo duhitṛ-vatsalaḥ
-> kaṁ vṛṇīta varaṁ vatsā
+> purā pitā no bhagavān\
+> dakṣo duhitṛ-vatsalaḥ\
+> kaṁ vṛṇīta varaṁ vatsā\
 > ity apṛcchata naḥ pṛthak
 
 *purā*—in days long ago; *pitā*—father; *naḥ*—our; *bhagavān*—the most opulent; *dakṣaḥ*—Dakṣa; *duhitṛ-vatsalaḥ*—affectionate to his daughters; *kam*—unto whom; *vṛṇīta*—you want to accept; *varam*—your husband; *vatsāḥ*—O my children; *iti*—thus; *apṛcchata*—inquired; *naḥ*—us; *pṛthak*—separately.

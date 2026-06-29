@@ -1,11 +1,11 @@
 ### SB 1.3.39
 
-> अथेह धन्या भगवन्त इत्थं यद्वासुदेवेऽखिललोकनाथे ।
+> अथेह धन्या भगवन्त इत्थं यद्वासुदेवेऽखिललोकनाथे ।\
 > कुर्वन्ति सर्वात्मकमात्मभावं न यत्र भूयः परिवर्त उग्रः ॥३९॥
 
-> atheha dhanyā bhagavanta itthaṁ
-> yad vāsudeve 'khila-loka-nāthe
-> kurvanti sarvātmakam ātma-bhāvaṁ
+> atheha dhanyā bhagavanta itthaṁ\
+> yad vāsudeve 'khila-loka-nāthe\
+> kurvanti sarvātmakam ātma-bhāvaṁ\
 > na yatra bhūyaḥ parivarta ugraḥ
 
 *atha*—de esa manera; *iha*—en este mundo; *dhanyāḥ*—con éxito; *bhagavantaḥ*—perfectamente consciente; *ittham*—semejante; *yat*—que; *vāsudeve*—a la Personalidad de Dios; *akhila*—que lo abarca todo; *loka-nāthe*—al propietario de todos los universos; *kurvanti*—inspira; *sarva-ātmakam*—cien por ciento; *ātma*—espíritu; *bhāvam*—éxtasis; *na*—nunca; *yatra*—en el cual; *bhūyaḥ*—de nuevo; *parivartaḥ*—repetición; *ugraḥ*—espantoso.

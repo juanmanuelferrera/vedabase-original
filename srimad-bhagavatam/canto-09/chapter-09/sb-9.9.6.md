@@ -1,13 +1,13 @@
 ### SB 9.9.6
 
-> श्रीभगीरथ उवाच
-> साधवो न्यासिनः शान्ता ब्रह्मिष्ठा लोकपावनाः
+> श्रीभगीरथ उवाच\
+> साधवो न्यासिनः शान्ता ब्रह्मिष्ठा लोकपावनाः\
 > हरन्त्यघं तेऽङ्गसङ्गात्तेष्वास्ते ह्यघभिद्धरिः ॥६॥
 
-> śrī-bhagīratha uvāca
-> sādhavo nyāsinaḥ śāntā
-> brahmiṣṭhā loka-pāvanāḥ
-> haranty aghaṁ te 'ṅga-saṅgāt
+> śrī-bhagīratha uvāca\
+> sādhavo nyāsinaḥ śāntā\
+> brahmiṣṭhā loka-pāvanāḥ\
+> haranty aghaṁ te 'ṅga-saṅgāt\
 > teṣv āste hy agha-bhid dhariḥ
 
 *śrī-bhagīrathaḥ uvāca*—Bhagīratha said; *sādhavaḥ*—saintly persons; *nyāsinaḥ*—*sannyāsīs*; *śāntāḥ*—peaceful, free from material disturbances; *brahmiṣṭhāḥ*—expert in following the regulative principles of Vedic scripture; *loka-pāvanāḥ*—who are engaged in delivering the entire world from a fallen condition; *haranti*—shall remove; *agham*—the reactions of sinful life; *te*—of you (mother Ganges); *aṅga-saṅgāt*—by bathing in the Ganges water; *teṣu*—within themselves; *āste*—there is; *hi*—indeed; *agha-bhit*—the Supreme Personality, who can vanquish all sinful activities; *hariḥ*—the Lord.

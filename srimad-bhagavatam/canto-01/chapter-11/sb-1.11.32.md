@@ -1,11 +1,11 @@
 ### SB 1.11.32
 
-> तमात्मजैर्दृष्टिभिरन्तरात्मना दुरन्तभावाः परिरेभिरे पतिम् ।
+> तमात्मजैर्दृष्टिभिरन्तरात्मना दुरन्तभावाः परिरेभिरे पतिम् ।\
 > निरुद्धमप्यास्रवदम्बु नेत्रयोर्विलज्जतीनां भृगुवर्य वैक्लवात् ॥३२॥
 
-> tam ātmajair dṛṣṭibhir antarātmanā
-> duranta-bhāvāḥ parirebhire patim
-> niruddham apy āsravad ambu netrayor
+> tam ātmajair dṛṣṭibhir antarātmanā\
+> duranta-bhāvāḥ parirebhire patim\
+> niruddham apy āsravad ambu netrayor\
 > vilajjatīnāṁ bhṛgu-varya vaiklavāt
 
 *tam*—Him (the Lord); *ātma-jaiḥ*—by the sons; *dṛṣṭibhiḥ*—by the sight; *antara-ātmanā*—by the innermost part of the heart; *duranta-bhāvāḥ*—insuperable ecstasy; *parirebhire*—embraced; *patim*—husband; *niruddham*—choked up; *api*—in spite of; *āsravat*—tears; *ambu*—like drops of water; *netrayoḥ*—from the eyes; *vilajjatīnām*—of those situated in shyness; *bhṛgu-varya*—O chief of the Bhṛgus; *vaiklavāt*—inadvertently.

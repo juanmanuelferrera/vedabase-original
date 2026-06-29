@@ -1,11 +1,11 @@
 ### SB 8.15.31
 
-> तस्मान्निलयमुत्सृज्य यूयं सर्वे त्रिविष्टपम
+> तस्मान्निलयमुत्सृज्य यूयं सर्वे त्रिविष्टपम\
 > यात कालं प्रतीक्षन्तो यतः शत्रोर्विपर्ययः ॥३१॥
 
-> eṣa vipra-balodarkaḥ
-> sampraty ūrjita-vikramaḥ
-> teṣām evāpamānena
+> eṣa vipra-balodarkaḥ\
+> sampraty ūrjita-vikramaḥ\
+> teṣām evāpamānena\
 > sānubandho vinaṅkṣyati
 
 *eṣaḥ*—this (Bali Mahārāja); *vipra-bala-udarkaḥ*—flourishing because of the brahminical power invested in him; *samprati*—at the present moment; *ūrjita-vikramaḥ*—extremely powerful; *teṣām*—of the same *brāhmaṇas*; *eva*—indeed; *apamānena*—by insult; *sa-anubandhaḥ*—with friends and assistants; *vinaṅkṣyati*—will be vanquished.

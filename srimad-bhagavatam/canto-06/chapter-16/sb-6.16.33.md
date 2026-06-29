@@ -1,11 +1,11 @@
 ### SB 6.16.33
 
-> ततः समाधाय मनो मनीषया बभाष एतत्प्रतिलब्धवागसौ
+> ततः समाधाय मनो मनीषया बभाष एतत्प्रतिलब्धवागसौ\
 > नियम्य सर्वेन्द्रियबाह्यवर्तनं जगद्गुरुं सात्वतशास्त्रविग्रहम ॥३३॥
 
-> tataḥ samādhāya mano manīṣayā
-> babhāṣa etat pratilabdha-vāg asau
-> niyamya sarvendriya-bāhya-vartanaṁ
+> tataḥ samādhāya mano manīṣayā\
+> babhāṣa etat pratilabdha-vāg asau\
+> niyamya sarvendriya-bāhya-vartanaṁ\
 > jagad-guruṁ sātvata-śāstra-vigraham
 
 *tataḥ*—thereafter; *samādhāya*—controlling; *manaḥ*—the mind; *manīṣayā*—by his intelligence; *babhāṣa*—spoke; *etat*—this; *pratilabdha*—recovering; *vāk*—speech; *asau*—that one (King Citraketu); *niyamya*—controlling; *sarva-indriya*—of all the senses; *bāhya*—external; *vartanam*—the wandering; *jagat-gurum*—who is the spiritual master of everyone; *sātvata*—of devotional service; *śāstra*—of the holy scriptures; *vigraham*—the personified form.

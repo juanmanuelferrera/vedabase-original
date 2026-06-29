@@ -1,11 +1,11 @@
 ### SB 4.12.48
 
-> प्रयतः कीर्तयेत्प्रातः समवाये द्विजन्मनाम् ।
+> प्रयतः कीर्तयेत्प्रातः समवाये द्विजन्मनाम् ।\
 > सायं च पुण्यश्लोकस्य ध्रुवस्य चरितं महत् ॥४८॥
 
-> prayataḥ kīrtayet prātaḥ
-> samavāye dvi-janmanām
-> sāyaṁ ca puṇya-ślokasya
+> prayataḥ kīrtayet prātaḥ\
+> samavāye dvi-janmanām\
+> sāyaṁ ca puṇya-ślokasya\
 > dhruvasya caritaṁ mahat
 
 *prayataḥ*—with great care; *kīrtayet*—one should chant; *prātaḥ*—in the morning; *samavāye*—in the association; *dvi-janmanām*—of the twice-born; *sāyam*—in the evening; *ca*—also; *puṇya-ślokasya*—of sacred renown; *dhruvasya*—of Dhruva; *caritam*—character; *mahat*—great.

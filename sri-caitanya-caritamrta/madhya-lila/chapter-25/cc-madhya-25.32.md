@@ -1,13 +1,13 @@
 ### CC Madhya 25.32
 
-> যেঽন্যেঽরবিন্দাক্ষ বিমুক্তমানিন-
-> স্ত্বয্যস্তভাবাদবিশুদ্ধবুদ্ধয়ঃ ।
-> আরুহ্য কৃচ্ছ্রেণ পরং পদং ততঃ
+> যেঽন্যেঽরবিন্দাক্ষ বিমুক্তমানিন-\
+> স্ত্বয্যস্তভাবাদবিশুদ্ধবুদ্ধয়ঃ ।\
+> আরুহ্য কৃচ্ছ্রেণ পরং পদং ততঃ\
 > পতন্ত্যধোঽনাদৃতযুষ্মদঙ্ঘ্রয়ঃ ॥৩২॥
 
-> ye 'nye 'ravindākṣa vimukta-māninas
-> tvayy asta-bhāvād aviśuddha-buddhayaḥ
-> āruhya kṛcchreṇa paraṁ padaṁ tataḥ
+> ye 'nye 'ravindākṣa vimukta-māninas\
+> tvayy asta-bhāvād aviśuddha-buddhayaḥ\
+> āruhya kṛcchreṇa paraṁ padaṁ tataḥ\
 > patanty adho 'nādṛta-yuṣmad-aṅghrayaḥ
 
 *ye*—all those who; *anye*—others (nondevotees); *aravinda-akṣa*—O lotus-eyed one; *vimukta-māninaḥ*—who consider themselves liberated; *tvayi*—unto You; *asta-bhāvāt*—without devotion; *aviśuddha-buddhayaḥ*—whose intelligence is not purified; *āruhya*—having ascended; *kṛcchreṇa*—by severe austerities and penances; *param padam*—to the supreme position; *tataḥ*—from there; *patanti*—fall; *adhaḥ*—down; *anādṛta*—without respecting; *yuṣmat*—Your; *aṅghrayaḥ*—lotus feet.

@@ -1,13 +1,13 @@
 ### CC Madhya 13.137
 
-> অন্যের হৃদয় — মন, মোর মন — বৃন্দাবন,
-> ‘মনে’ ‘বনে’ এক করি’ জানি ।
-> তাহাঁ তোমার পদদ্বয়, করাহ যদি উদয়,
+> অন্যের হৃদয় — মন, মোর মন — বৃন্দাবন,\
+> ‘মনে’ ‘বনে’ এক করি’ জানি ।\
+> তাহাঁ তোমার পদদ্বয়, করাহ যদি উদয়,\
 > তবে তোমার পূর্ণ কৃপা মানি ॥১৩৭॥
 
-> anyera hṛda ya-mana, mora mana-vṛndāvana,
-> 'mane' 'vane' eka kari' jāni
-> tāhāṅ tomāra pada-dvaya, karāha yadi udaya,
+> anyera hṛda ya-mana, mora mana-vṛndāvana,\
+> 'mane' 'vane' eka kari' jāni\
+> tāhāṅ tomāra pada-dvaya, karāha yadi udaya,\
 > tabe tomāra pūrṇa kṛpā māni
 
 *anyera*—de otros; *hṛdaya*—consciencia; *mana*—mente; *mora mana*—Mi mente; *vṛndāvana*—conciencia de Vṛndāvana; *mane*—con la mente; *vane*—con Vṛndāvana; *eka kari'*—como una sola cosa; *jāni*—considero; *tāhāṅ*—allí, en Vṛndāvana; *tomāra*—Tus; *pada-dvaya*—dos pies de loto; *karāha*—haces; *yadi*—si; *udaya*—aparición; *tabe*—entonces; *tomāra*—Tu; *pūrṇa*—completa; *kṛpā*—misericordia; *māni*—acepto.

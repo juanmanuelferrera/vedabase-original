@@ -1,11 +1,11 @@
 ### SB 9.9.3
 
-> दर्शयामास तं देवी प्रसन्ना वरदास्मि ते
+> दर्शयामास तं देवी प्रसन्ना वरदास्मि ते\
 > इत्युक्तः स्वमभिप्रायं शशंसावनतो नृपः ॥३॥
 
-> darśayām āsa taṁ devī
-> prasannā varadāsmi te
-> ity uktaḥ svam abhiprāyaṁ
+> darśayām āsa taṁ devī\
+> prasannā varadāsmi te\
+> ity uktaḥ svam abhiprāyaṁ\
 > śaśaṁsāvanato nṛpaḥ
 
 *darśayām āsa*—appeared; *tam*—unto him, King Bhagīratha; *devī*—mother Ganges; *prasannā*—being very much satisfied; *varadā asmi*—I shall bless with my benediction; *te*—unto you; *iti uktaḥ*—thus being addressed; *svam*—his own; *abhiprāyam*—desire; *śaśaṁsa*—explained; *avanataḥ*—very respectfully bowing down; *nṛpaḥ*—the King (Bhagīratha).

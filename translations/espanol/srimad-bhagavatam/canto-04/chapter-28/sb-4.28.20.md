@@ -1,11 +1,11 @@
 ### SB 4.28.20
 
-> प्रबोधयति माविज्ञं व्युषिते शोककर्शिता ।
+> प्रबोधयति माविज्ञं व्युषिते शोककर्शिता ।\
 > वर्त्मैतद्गृहमेधीयं वीरसूरपि नेष्यति ॥२०॥
 
-> prabodhayati māvijñaṁ
-> vyuṣite śoka-karśitā
-> vartmaitad gṛha-medhīyaṁ
+> prabodhayati māvijñaṁ\
+> vyuṣite śoka-karśitā\
+> vartmaitad gṛha-medhīyaṁ\
 > vīra-sūr api neṣyati
 
 *prabodhayati*—da buen consejo; *mā*—a mí; *avijñam*—necio; *vyuṣite*—cuando yo estaba lejos; *śoka*—por aflicción; *karśitā*—afligida y marchitándose; *vartma*—sendero; *etat*—este; *gṛha-medhīyam*—de responsabilidades domésticas; *vīra-sūḥ*—la madre de grandes héroes; *api*—aunque; *neṣyati*—¿podrá ejecutar?.

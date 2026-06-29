@@ -1,11 +1,11 @@
 ### SB 7.7.24
 
-> अन्वयव्यतिरेकेण विवेकेनोशतात्मना
+> अन्वयव्यतिरेकेण विवेकेनोशतात्मना\
 > स्वर्गस्थानसमाम्नायैर्विमृशद्भिरसत्वरैः ॥२४॥
 
-> anvaya-vyatirekeṇa
-> vivekenośatātmanā
-> svarga-sthāna-samāmnāyair
+> anvaya-vyatirekeṇa\
+> vivekenośatātmanā\
+> svarga-sthāna-samāmnāyair\
 > vimṛśadbhir asatvaraiḥ
 
 *anvaya*—directly; *vyatirekeṇa*—and indirectly; *vivekena*—by mature discrimination; *uśatā*—purified; *ātmanā*—with the mind; *svarga*—creation; *sthāna*—maintenance; *samāmnāyaiḥ*—and with destruction; *vimṛśadbhiḥ*—by those making a serious analysis; *asat-varaiḥ*—very sober.

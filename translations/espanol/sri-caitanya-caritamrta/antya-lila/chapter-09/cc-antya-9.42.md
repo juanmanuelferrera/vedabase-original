@@ -1,9 +1,9 @@
 ### CC Antya 9.42
 
-> শুনি’ প্রভুর গণ প্রভুরে করে অনুনয় ।
+> শুনি’ প্রভুর গণ প্রভুরে করে অনুনয় ।\
 > প্রভু কহে, — “আমি ভিক্ষুক, আমা হৈতে কিছু নয় ॥৪২॥
 
-> śuni' prabhura gaṇa prabhure kare anunaya
+> śuni' prabhura gaṇa prabhure kare anunaya\
 > prabhu kahe,--"āmi bhikṣuka, āmā haite kichu naya
 
 *śuni'*—al oír; *prabhura gaṇa*—los devotos del Señor; *prabhure kare anunaya*—suplicaron al Señor; *prabhu kahe*—el Señor Śrī Caitanya Mahāprabhu dijo; *āmi bhikṣuka*—soy un mendigo; *āmā haite kichu naya*—no Me es posible hacer nada.

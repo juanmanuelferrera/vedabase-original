@@ -1,11 +1,11 @@
 ### SB 6.2.26
 
-> अहो मे परमं कष्टमभूदविजितात्मनः
+> अहो मे परमं कष्टमभूदविजितात्मनः\
 > येन विप्लावितं ब्रह्म वृषल्यां जायतात्मना ॥२६॥
 
-> aho me paramaṁ kaṣṭam
-> abhūd avijitātmanaḥ
-> yena viplāvitaṁ brahma
+> aho me paramaṁ kaṣṭam\
+> abhūd avijitātmanaḥ\
+> yena viplāvitaṁ brahma\
 > vṛṣalyāṁ jāyatātmanā
 
 *aho*—alas; *me*—my; *paramam*—extreme; *kaṣṭam*—miserable condition; *abhūt*—became; *avijita-ātmanaḥ*—because my senses were uncontrolled; *yena*—by which; *viplāvitam*—destroyed; *brahma*—all my brahminical qualifications; *vṛṣalyām*—through a *śūdrāṇī,* a maidservant; *jāyatā*—being born; *ātmanā*—by me.

@@ -1,11 +1,11 @@
 ### CC Adi 1.53
 
-> অহমেবাসমেবাগ্রে নান্যদ্ যৎ সদসৎপরম্ ।
+> অহমেবাসমেবাগ্রে নান্যদ্ যৎ সদসৎপরম্ ।\
 > পশ্চাদহং যদেতচ্চ যোঽবশিষ্যেত সোঽস্ম্যহম্ ॥৫৩॥
 
-> aham evāsam evāgre
-> nānyad yat sad-asat param
-> paścād ahaṁ yad etac ca
+> aham evāsam evāgre\
+> nānyad yat sad-asat param\
+> paścād ahaṁ yad etac ca\
 > yo 'vaśiṣyeta so 'smy aham
 
 *aham*—Yo, la Personalidad de Dios; *eva*—ciertamente; *āsam*—existía; *eva*—únicamente; *agre*—antes de la creación; *na*—nunca; *anyat*—ninguna otra cosa; *yat*—la cual; *sat*—el efecto; *asat*—la causa; *param*—lo supremo; *paścāt*—al final; *aham*—Yo, la Personalidad de Dios; *yat*—lo cual; *etat*—esta creación; *ca*—también; *yaḥ*—quien; *avaśiṣyeta*—permanece; *saḥ*—ese; *asmi*—soy; *aham*—Yo, la Personalidad de Dios.

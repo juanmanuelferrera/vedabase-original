@@ -1,13 +1,13 @@
 ### SB 3.19.1
 
-> मैत्रेय उवाच
-> अवधार्य विरिञ्चस्य निर्व्यलीकामृतं वचः ।
+> मैत्रेय उवाच\
+> अवधार्य विरिञ्चस्य निर्व्यलीकामृतं वचः ।\
 > प्रहस्य प्रेमगर्भेण तदपाङ्गेन सोऽग्रहीत् ॥१॥
 
-> maitreya uvāca
-> avadhārya viriñcasya
-> nirvyalīkāmṛtaṁ vacaḥ
-> prahasya prema-garbheṇa
+> maitreya uvāca\
+> avadhārya viriñcasya\
+> nirvyalīkāmṛtaṁ vacaḥ\
+> prahasya prema-garbheṇa\
 > tad apāṅgena so 'grahīt
 
 *maitreyaḥ uvāca*—Maitreya said; *avadhārya*—after hearing; *viriñcasya*—of Lord Brahmā; *nirvyalīka*—free from all sinful purposes; *amṛtam*—nectarean; *vacaḥ*—words; *prahasya*—heartily laughing; *prema-garbheṇa*—laden with love; *tat*—those words; *apāṅgena*—with a glance; *saḥ*—the Supreme Personality of Godhead; *agrahīt*—accepted.

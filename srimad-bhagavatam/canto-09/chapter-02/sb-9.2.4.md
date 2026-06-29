@@ -1,11 +1,11 @@
 ### SB 9.2.4
 
-> एकदा प्राविशद्गोष्ठं शार्दूलो निशि वर्षति
+> एकदा प्राविशद्गोष्ठं शार्दूलो निशि वर्षति\
 > शयाना गाव उत्थाय भीतास्ता बभ्रमुर्व्रजे ॥४॥
 
-> ekadā prāviśad goṣṭhaṁ
-> śārdūlo niśi varṣati
-> śayānā gāva utthāya
+> ekadā prāviśad goṣṭhaṁ\
+> śārdūlo niśi varṣati\
+> śayānā gāva utthāya\
 > bhītās tā babhramur vraje
 
 *ekadā*—once upon a time; *prāviśat*—entered; *goṣṭham*—the land of the cowshed; *śārdūlaḥ*—a tiger; *niśi*—at night; *varṣati*—while it was raining; *śayānāḥ*—lying down; *gāvaḥ*—cows; *utthāya*—getting up; *bhītāḥ*—fearing; *tāḥ*—all of them; *babhramuḥ*—scattered here and there; *vraje*—in the land surrounding the cowshed.

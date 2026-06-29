@@ -1,11 +1,11 @@
 ### SB 3.7.34
 
-> दानस्य तपसो वापि यच्चेष्टापूर्तयोः फलम् ।
+> दानस्य तपसो वापि यच्चेष्टापूर्तयोः फलम् ।\
 > प्रवासस्थस्य यो धर्मो यश्च पुंस उतापदि ॥३४॥
 
-> dānasya tapaso vāpi
-> yac ceṣṭā-pūrtayoḥ phalam
-> pravāsa-sthasya yo dharmo
+> dānasya tapaso vāpi\
+> yac ceṣṭā-pūrtayoḥ phalam\
+> pravāsa-sthasya yo dharmo\
 > yaś ca puṁsa utāpadi
 
 *dānasya*—de caridad; *tapasaḥ*—de penitencia; *vāpi*—lago; *yat*—aquello que; *ca*—y; *iṣṭā*—esfuerzo; *pūrtayoḥ*—de estanques de agua; *phalam*—resultado fruitivo; *pravāsa-sthasya*—aquel que está lejos del hogar; *yaḥ*—aquello que; *dharmaḥ*—deber; *yaḥ ca*—y lo cual; *puṁsaḥ*—del hombre; *uta*—descrito; *āpadi*—en peligro.

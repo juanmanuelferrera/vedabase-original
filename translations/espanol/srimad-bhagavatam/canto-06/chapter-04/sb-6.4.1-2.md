@@ -1,20 +1,20 @@
 ### SB 6.4.1-2
 
-> श्रीराजोवाच
-> देवासुरनृणां सर्गो नागानां मृगपक्षिणाम
-> सामासिकस्त्वया प्रोक्तो यस्तु स्वायम्भुवेऽन्तरे ॥१॥
-> तस्यैव व्यासमिच्छामि ज्ञआतुं ते भगवन्यथा
+> श्रीराजोवाच\
+> देवासुरनृणां सर्गो नागानां मृगपक्षिणाम\
+> सामासिकस्त्वया प्रोक्तो यस्तु स्वायम्भुवेऽन्तरे ॥१॥\
+> तस्यैव व्यासमिच्छामि ज्ञआतुं ते भगवन्यथा\
 > अनुसर्गं यया शक्त्या ससर्ज भगवान्परः ॥२॥
 
-> śrī-rājovāca
-> devāsura-nṛṇāṁ sargo
-> nāgānāṁ mṛga-pakṣiṇām
-> sāmāsikas tvayā prokto
+> śrī-rājovāca\
+> devāsura-nṛṇāṁ sargo\
+> nāgānāṁ mṛga-pakṣiṇām\
+> sāmāsikas tvayā prokto\
 > yas tu svāyambhuve 'ntare
 
-> tasyaiva vyāsam icchāmi
-> jñātuṁ te bhagavan yathā
-> anusargaṁ yayā śaktyā
+> tasyaiva vyāsam icchāmi\
+> jñātuṁ te bhagavan yathā\
+> anusargaṁ yayā śaktyā\
 > sasarja bhagavān paraḥ
 
 *śrī-rājā uvāca*—el rey dijo; *deva-asura-nṛṇām*—de los semidioses, los demonios y los seres humanos; *sargaḥ*—la creación; *nāgānām*—de las *nāgas* (entidades vivientes serpentinas); *mṛga-pakṣiṇām*—de los animales y las aves; *sāmāsikaḥ*—brevemente; *tvayā*—por ti; *proktaḥ*—descrita; *yaḥ*—que; *tu*—sin embargo; *svāyambhuve*—de Svāyambhuva Manu; *antare*—dentro del período; *tasya*—de esto; *eva*—en verdad; *vyāsam*—la narración detallada; *icchāmi*—deseo; *jñātum*—conocer; *te*—de ti; *bhagavan*—¡oh, mi señor!; *yathā*—así como; *anusargam*—la creación secundaria; *yayā*—por la cual; *śaktyā*—potencia; *sasarja*—creó; *bhagavān*—la Suprema Personalidad de Dios; *paraḥ*—trascendental.

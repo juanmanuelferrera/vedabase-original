@@ -1,9 +1,9 @@
 ### CC Madhya 3.190
 
-> ঘরে যাঞা কর সদা কৃষ্ণসংকীর্তন ।
+> ঘরে যাঞা কর সদা কৃষ্ণসংকীর্তন ।\
 > কৃষ্ণনাম, কৃষ্ণকথা, কৃষ্ণ আরাধন ॥১৯০॥
 
-> ghare yāñā kara sadā kṛṣṇa-saṅkīrtana
+> ghare yāñā kara sadā kṛṣṇa-saṅkīrtana\
 > kṛṣṇa-nāma, kṛṣṇa-kathā, kṛṣṇa ārādhana
 
 *ghareyāñā*—returning home; *kara*—kindly do; *sadā*—always; *kṛṣṇa-saṅkīrtana*—chanting of the holy name of the Lord; *kṛṣṇa-nāma*—the holy name of the Lord; *kṛṣṇa-kathā*—discussion of Kṛṣṇa's pastimes; *kṛṣṇa*—of Lord Kṛṣṇa; *ārādhana*—worshiping.

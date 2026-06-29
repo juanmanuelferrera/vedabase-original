@@ -1,9 +1,9 @@
 ### CC Adi 7.65
 
-> আপনে প্রকাশানন্দ হাতেতে ধরিয়া ।
+> আপনে প্রকাশানন্দ হাতেতে ধরিয়া ।\
 > বসাইলা সভামধ্যে সম্মান করিয়া ॥৬৫॥
 
-> āpane prakāśānanda hātete dhariyā
+> āpane prakāśānanda hātete dhariyā\
 > vasāilā sabhā-madhye sammāna kariyā
 
 *āpane*—personally; *prakāśānanda*—Prakāśānanda; *hātete*—by His hand; *dhariyā*—capturing; *vasāilā*—made Him sit; *sabhā-madhye*—in the assembly of; *sammāna*—with great respect; *kariyā*—offering Him.

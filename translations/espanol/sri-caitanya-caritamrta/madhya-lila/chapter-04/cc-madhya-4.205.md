@@ -1,9 +1,9 @@
 ### CC Madhya 4.205
 
-> ঠাকুরে শয়ন করাঞা পূজারী হৈল বাহির ।
+> ঠাকুরে শয়ন করাঞা পূজারী হৈল বাহির ।\
 > প্রভুর আগে আনি’ দিল প্রসাদ বার ক্ষীর ॥২০৫॥
 
-> ṭhākure śayana karāñā pūjārī haila bāhira
+> ṭhākure śayana karāñā pūjārī haila bāhira\
 > prabhura āge āni' dila prasāda bāra kṣīra
 
 *ṭhākure*—la Deidad; *śayana*—acostándose; *karāñā*—haciendo que lo hiciera; *pūjārī*—el sacerdote; *haila*—estuvo; *bāhira*—fuera del templo; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *āge*—delante; *āni'*—trayendo; *dila*—ofreció; *prasāda*—los remanentes de comida; *bāra*—doce; *kṣīra*—ollas de arroz con leche dulce.

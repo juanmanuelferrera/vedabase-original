@@ -1,9 +1,9 @@
 ### CC Madhya 14.178
 
-> দধি, খণ্ড, ঘৃত, মধু, মরীচ, কর্পূর ।
+> দধি, খণ্ড, ঘৃত, মধু, মরীচ, কর্পূর ।\
 > এলাচি-মিলনে যৈছে রসালা মধুর ॥১৭৮॥
 
-> dadhi, khaṇḍa, ghṛta, madhu, marīca, karpūra
+> dadhi, khaṇḍa, ghṛta, madhu, marīca, karpūra\
 > elāci-milane yaiche rasālā madhura
 
 *dadhi*—yogurt; *khaṇḍa*—candy; *ghṛta*—ghee; *madhu*—honey; *marīca*—black pepper; *karpūra*—camphor; *elāci*—cardamom; *milane*—by combining together; *yaiche*—as; *rasālā*—very tasteful; *madhura*—and sweet.

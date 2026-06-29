@@ -1,9 +1,9 @@
 ### CC Madhya 14.253
 
-> প্রতি বৎসর গুণ্ডিচাতে ভক্তগণ-সঙ্গে ।
+> প্রতি বৎসর গুণ্ডিচাতে ভক্তগণ-সঙ্গে ।\
 > পট্টডোরী লঞা আইসে অতি বড় রঙ্গে ॥২৫৩॥
 
-> prati vatsara guṇḍicāte bhakta-gaṇa-saṅge
+> prati vatsara guṇḍicāte bhakta-gaṇa-saṅge\
 > paṭṭa-ḍorī lañā āise ati baḍa raṅge
 
 *prati vatsara*—cada año; *guṇḍicāte*—a la ceremonia de limpieza del templo de Guṇḍicā; *bhakta-gaṇa-saṅge*—con otros devotos; *paṭṭa-ḍorī*—cuerdas de seda; *lañā*—llevando; *āise*—venían; *ati*—extremadamente; *baḍa*—gran; *raṅge*—con alegría.

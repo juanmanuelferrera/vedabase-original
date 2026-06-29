@@ -1,9 +1,9 @@
 ### CC Madhya 1.239
 
-> দিন চার কাশীতে রহি’ গেলা বৃন্দাবন ।
+> দিন চার কাশীতে রহি’ গেলা বৃন্দাবন ।\
 > মথুরা দেখিয়া দেখে দ্বাদশ কানন ॥২৩৯॥
 
-> dina cāra kāśīte rahi' gelā vṛndāvana
+> dina cāra kāśīte rahi' gelā vṛndāvana\
 > mathurā dekhiyā dekhe dvādaśa kānana
 
 *dinacāra*—only four days; *kāśīte*—at Benares; *rahi'*—remaining; *gelā*—started for; *vṛndāvana*—the holy place Vṛndāvana; *mathurā*—the holy place Mathurā; *dekhiyā*—after seeing; *dekhe*—visits; *dvādaśa*—twelve; *kānana*—forests.

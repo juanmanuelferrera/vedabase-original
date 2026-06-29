@@ -1,11 +1,11 @@
 ### SB 8.3.17
 
-> मादृक्प्रपन्नपशुपाशविमोक्षणाय मुक्ताय भूरिकरुणाय नमोऽलयाय
+> मादृक्प्रपन्नपशुपाशविमोक्षणाय मुक्ताय भूरिकरुणाय नमोऽलयाय\
 > स्वांशेन सर्वतनुभृन्मनसि प्रतीत प्रत्यग्दृशे भगवते बृहते नमस्ते ॥१७॥
 
-> mādṛk prapanna-paśu-pāśa-vimokṣaṇāya
-> muktāya bhūri-karuṇāya namo 'layāya
-> svāṁśena sarva-tanu-bhṛn-manasi pratīta-
+> mādṛk prapanna-paśu-pāśa-vimokṣaṇāya\
+> muktāya bhūri-karuṇāya namo 'layāya\
+> svāṁśena sarva-tanu-bhṛn-manasi pratīta-\
 > pratyag-dṛśe bhagavate bṛhate namas te
 
 *mādṛk*—como yo; *prapanna*—entregado; *paśu*—un animal; *pāśa*—del enredo; *vimokṣaṇāya*—a aquel que libera; *muktāya*—al Supremo, que está libre de todo contacto con la contaminación de la naturaleza material; *bhūri-karuṇāya*—que eres ilimitadamente misericordioso; *namaḥ*—ofrezco mis respetuosas reverencias; *alayāya*—que nunca distraes Tu atención o estás ocioso (en lo que se refiere a mi liberación); *sva-aṁśena*—mediante Tu aspecto parcial como Paramātmā; *sarva*—de todas; *tanu-bhṛt*—las entidades vivientes encarnadas en la naturaleza material; *manasi*—en la mente; *pratīta*—que eres reconocido; *pratyak-dṛśe*—como el observador directo (de todas las actividades); *bhagavate*—a la Suprema Personalidad de Dios; *bṛhate*—que eres ilimitado; *namaḥ*—ofrezco mis respetuosas reverencias; *te*—a Ti.

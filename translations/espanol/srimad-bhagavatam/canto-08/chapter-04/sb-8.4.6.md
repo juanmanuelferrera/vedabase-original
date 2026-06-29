@@ -1,11 +1,11 @@
 ### SB 8.4.6
 
-> गजेन्द्रो भगवत्स्पर्शाद्विमुक्तोऽज्ञआनबन्धनात
+> गजेन्द्रो भगवत्स्पर्शाद्विमुक्तोऽज्ञआनबन्धनात\
 > प्राप्तो भगवतो रूपं पीतवासाश्चतुर्भुजः ॥६॥
 
-> gajendro bhagavat-sparśād
-> vimukto 'jñāna-bandhanāt
-> prāpto bhagavato rūpaṁ
+> gajendro bhagavat-sparśād\
+> vimukto 'jñāna-bandhanāt\
+> prāpto bhagavato rūpaṁ\
 > pīta-vāsāś catur-bhujaḥ
 
 *gajendraḥ*—el rey de los elefantes, Gajendra; *bhagavat-sparśāt*—por haber sido tocado por la mano de la Suprema Personalidad de Dios; *vimuktaḥ*—fue liberado de inmediato; *ajñāna-bandhanāt*—de todas las clases de ignorancia, y en especial del concepto corporal de la vida; *prāptaḥ*—obtuvo; *bhagavataḥ*—de la Suprema Personalidad de Dios; *rūpam*—el mismo aspecto corporal; *pīta-vāsāḥ*—vestido con ropas amarillas; *catuḥ-bhujaḥ*—y con cuatro brazos, con la caracola, el disco, la maza y la flor de loto.

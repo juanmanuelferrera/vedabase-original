@@ -1,9 +1,9 @@
 ### CC Madhya 4.130
 
-> স্বপ্ন দেখি’ পূজারী উঠি’ করিলা বিচার ।
+> স্বপ্ন দেখি’ পূজারী উঠি’ করিলা বিচার ।\
 > স্নান করি’ কপাট খুলি, মুক্ত কৈল দ্বার ॥১৩০॥
 
-> svapna dekhi' pūjārī uṭhi' karilā vicāra
+> svapna dekhi' pūjārī uṭhi' karilā vicāra\
 > snāna kari' kapāṭa khuli, mukta kaila dvāra
 
 *svapna dekhi'*—después de ver el sueño; *pūjārī*—el sacerdote; *uṭhi'*—levantándose; *karilā*—hizo; *vicāra*—consideraciones; *snāna kari'*—bañándose antes de entrar en la sala de la Deidad; *kapāṭa*—la puerta; *khuli*—abriendo; *mukta*—abiertas; *kaila*—hizo; *dvāra*—las puertas.

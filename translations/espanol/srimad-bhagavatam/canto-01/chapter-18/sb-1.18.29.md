@@ -1,11 +1,11 @@
 ### SB 1.18.29
 
-> अभूतपूर्वः सहसा क्षुत्तृड्भ्यामर्दितात्मनः ।
+> अभूतपूर्वः सहसा क्षुत्तृड्भ्यामर्दितात्मनः ।\
 > ब्राह्मणं प्रत्यभूद्ब्रह्मन्मत्सरो मन्युरेव च ॥२९॥
 
-> abhūta-pūrvaḥ sahasā
-> kṣut-tṛḍbhyām arditātmanaḥ
-> brāhmaṇaṁ praty abhūd brahman
+> abhūta-pūrvaḥ sahasā\
+> kṣut-tṛḍbhyām arditātmanaḥ\
+> brāhmaṇaṁ praty abhūd brahman\
 > matsaro manyur eva ca
 
 *abhūta-pūrvaḥ*—sin precedentes; *sahasā*—circunstancialmente; *kṣut*—hambre; *tṛḍbhyām*—así como también por la sed; *ardita*—estando afligido; *ātmanaḥ*—de su ser; *brāhmaṇam*—a un *brāhmaṇa*; *prati*—en contra; *abhūt*—se puso; *brahman*—¡oh, *brāhmaṇas*!; *matsaraḥ*—envidioso; *manyuḥ*—furioso; *eva*—así pues; *ca*—y.

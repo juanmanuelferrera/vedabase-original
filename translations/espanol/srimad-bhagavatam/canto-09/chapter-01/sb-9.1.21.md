@@ -1,11 +1,11 @@
 ### SB 9.1.21
 
-> एवं व्यवसितो राजन्भगवान्स महायशाः
+> एवं व्यवसितो राजन्भगवान्स महायशाः\
 > अस्तौषीदादिपुरुषमिलायाः पुंस्त्वकाम्यया ॥२१॥
 
-> evaṁ vyavasito rājan
-> bhagavān sa mahā-yaśāḥ
-> astauṣīd ādi-puruṣam
+> evaṁ vyavasito rājan\
+> bhagavān sa mahā-yaśāḥ\
+> astauṣīd ādi-puruṣam\
 > ilāyāḥ puṁstva-kāmyayā
 
 *evam*—así; *vyavasitaḥ*—decidiendo; *rājan*—¡oh, rey Parīkṣit!; *bhagavān*—el muy poderoso; *saḥ*—Vasiṣṭha; *mahā-yaśāḥ*—muy famoso; *astauṣīt*—ofreció oraciones; *ādi-puruṣam*—a la Persona Suprema, el Señor Viṣṇu; *ilāyāḥ*—de Ilā; *puṁstva-kāmyayā*—para la transformación en varón.

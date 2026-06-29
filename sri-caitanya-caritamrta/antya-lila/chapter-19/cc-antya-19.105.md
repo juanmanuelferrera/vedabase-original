@@ -1,11 +1,11 @@
 ### CC Antya 19.105
 
-> ধন্যস্যায়ং নবঃ প্রেমা যস্যোন্মীলতি চেতসি ।
+> ধন্যস্যায়ং নবঃ প্রেমা যস্যোন্মীলতি চেতসি ।\
 > অন্তর্বাণীভিরপ্যস্য মুদ্রা সুষ্ঠু সুদুর্গমা ॥১০৫॥
 
-> dhanyasyāyaṁ navaḥ premā
-> yasyonmīlati cetasi
-> antarvāṇībhir apy asya
+> dhanyasyāyaṁ navaḥ premā\
+> yasyonmīlati cetasi\
+> antarvāṇībhir apy asya\
 > mudrā suṣṭhu sudurgamā
 
 *dhanyasya*—of a most fortunate person; *ayam*—this; *navaḥ*—new; *prema*—love of Godhead; *yasya*—of whom; *unmīlati*—manifests; *cetasi*—in the heart; *antarvāṇībhiḥ*—by persons well versed in *śāstras*; *api*—even; *asya*—of him; *mudrā*—the symptoms; *suṣṭhu*—exceedingly; *sudurgamā*—difficult to understand.

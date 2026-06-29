@@ -1,9 +1,9 @@
 ### CC Antya 3.147
 
-> বৈষ্ণবধর্ম নিন্দা করে, বৈষ্ণব-অপমান ।
+> বৈষ্ণবধর্ম নিন্দা করে, বৈষ্ণব-অপমান ।\
 > বহুদিনের অপরাধে পাইল পরিণাম ॥১৪৭॥
 
-> vaiṣṇava-dharma nindā kare, vaiṣṇava-apamāna
+> vaiṣṇava-dharma nindā kare, vaiṣṇava-apamāna\
 > bahu-dinera aparādhe pāila pariṇāma
 
 *vaiṣṇava-dharma*—the cult of Vaiṣṇavism; *nindā kare*—blasphemes; *vaiṣṇava apamāna*—insults to the devotees; *bahu-dinera*—for a long time; *aparādhe*—by offensive activities; *pāila*—got; *pariṇāma*—the resultant action.

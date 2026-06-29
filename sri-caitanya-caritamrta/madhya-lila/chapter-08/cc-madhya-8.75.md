@@ -1,11 +1,11 @@
 ### CC Madhya 8.75
 
-> ইত্থং সতাং ব্রহ্মসুখানুভূত্যা দাস্যং গতানাং পরদৈবতেন ।
+> ইত্থং সতাং ব্রহ্মসুখানুভূত্যা দাস্যং গতানাং পরদৈবতেন ।\
 > মায়াশ্রিতানাং নরদারকেণ সার্ধং বিজহ্রুঃ কৃতপুণ্যপুঞ্জাঃ ॥৭৫॥
 
-> itthaṁ satāṁ brahma-sukhānubhūtyā
-> dāsyaṁ gatānāṁ para-daivatena
-> māyāśritānāṁ nara-dārakeṇa
+> itthaṁ satāṁ brahma-sukhānubhūtyā\
+> dāsyaṁ gatānāṁ para-daivatena\
+> māyāśritānāṁ nara-dārakeṇa\
 > sākaṁ vijahruḥ kṛta-puṇya-puñjāḥ
 
 *ittham*—in this way; *satām*—of persons who prefer the impersonal feature of the Lord; *brahma*—of the impersonal effulgence; *sukha*—by the happiness; *anubhūtyā*—who is realized; *dāsyam*—the mode of servitude; *gatānām*—of those who have accepted; *para-daivatena*—who is the supreme worshipable Deity; *māyā-āśritānām*—for ordinary persons under the clutches the of external energy; *nara-dārakeṇa*—with Him, who is like a boy of this material world; *sākam*—in friendship; *vijahruḥ*—played; *kṛta-puṇya-puñjāḥ*—those who have accumulated volumes of pious activities.

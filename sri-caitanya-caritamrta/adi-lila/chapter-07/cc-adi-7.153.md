@@ -1,9 +1,9 @@
 ### CC Adi 7.153
 
-> চন্দ্রশেখর, তপন মিশ্র, আর সনাতন ।
+> চন্দ্রশেখর, তপন মিশ্র, আর সনাতন ।\
 > শুনি’ দেখি’ আনন্দিত সবাকার মন ॥১৫৩॥
 
-> candraśekhara, tapana miśra, āra sanātana
+> candraśekhara, tapana miśra, āra sanātana\
 > śuni' dekhi' ānandita sabākāra mana
 
 *candraśekhara*—of the name Candraśekhara; *tapanamiśra*—of the name Tapana Miśra; *āra*—and; *sanātana*—of the name Sanātana; *śuni'*—hearing; *dekhi'*—seeing; *ānandita*—very pleased; *sabākāra*—all of them; *mana*—minds.

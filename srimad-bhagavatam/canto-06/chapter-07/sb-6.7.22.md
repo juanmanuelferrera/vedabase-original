@@ -1,11 +1,11 @@
 ### SB 6.7.22
 
-> तस्यायमनयस्यासीत्परेभ्यो वः पराभवः
+> तस्यायमनयस्यासीत्परेभ्यो वः पराभवः\
 > प्रक्षीणेभ्यः स्ववैरिभ्यः समृद्धानां च यत्सुराः ॥२२॥
 
-> tasyāyam anayasyāsīt
-> parebhyo vaḥ parābhavaḥ
-> prakṣīṇebhyaḥ sva-vairibhyaḥ
+> tasyāyam anayasyāsīt\
+> parebhyo vaḥ parābhavaḥ\
+> prakṣīṇebhyaḥ sva-vairibhyaḥ\
 > samṛddhānāṁ ca yat surāḥ
 
 *tasya*—that; *ayam*—this; *anayasya*—of your ungrateful activity; *āsīt*—was; *parebhyaḥ*—by others; *vaḥ*—of all of you; *parābhavaḥ*—the defeat; *prakṣīṇebhyaḥ*—although they were weak; *sva-vairibhyaḥ*—by your own enemies, who were previously defeated by you; *samṛddhānām*—being yourselves very opulent; *ca*—and; *yat*—which; *surāḥ*—O demigods.

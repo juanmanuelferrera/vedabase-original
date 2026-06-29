@@ -1,11 +1,11 @@
 ### SB 8.17.27
 
-> त्वमादिरन्तो भुवनस्य मध्यमनन्तशक्तिं पुरुषं यमाहुः
+> त्वमादिरन्तो भुवनस्य मध्यमनन्तशक्तिं पुरुषं यमाहुः\
 > कालो भवानाक्षिपतीश विश्वं स्रोतो यथान्तः पतितं गभीरम ॥२७॥
 
-> tvam ādir anto bhuvanasya madhyam
-> ananta-śaktiṁ puruṣaṁ yam āhuḥ
-> kālo bhavān ākṣipatīśa viśvaṁ
+> tvam ādir anto bhuvanasya madhyam\
+> ananta-śaktiṁ puruṣaṁ yam āhuḥ\
+> kālo bhavān ākṣipatīśa viśvaṁ\
 > sroto yathāntaḥ patitaṁ gabhīram
 
 *tvam*—Tu Señoría; *ādiḥ*—la causa original; *antaḥ*—la causa de la disolución; *bhuvanasya*—del universo; *madhyam*—el sostenimiento de esta manifestación; *ananta-śaktim*—el receptáculo de ilimitadas potencias; *puruṣam*—la Persona Suprema; *yam*—a quien; *āhuḥ*—ellos dicen; *kālaḥ*—el principio del tiempo eterno; *bhavān*—Tu Señoría; *ākṣipati*—atraer; *īśa*—el Señor Supremo; *viśvam*—todo el universo; *strotaḥ*—olas; *yathā*—como; *antaḥ patitam*—caídas dentro del agua; *gabhīram*—muy profunda.

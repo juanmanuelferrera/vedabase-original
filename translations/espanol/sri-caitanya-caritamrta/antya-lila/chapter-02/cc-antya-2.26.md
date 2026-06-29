@@ -1,9 +1,9 @@
 ### CC Antya 2.26
 
-> অসংখ্য লোকের ঘটা, — কেহ আইসে যায় ।
+> অসংখ্য লোকের ঘটা, — কেহ আইসে যায় ।\
 > লোকের সংঘট্টে কেহ দর্শন না পায় ॥২৬॥
 
-> asaṅkhya lokera ghaṭā,--keha āise yāya
+> asaṅkhya lokera ghaṭā,--keha āise yāya\
 > lokera saṅghaṭṭe keha darśana nā pāya
 
 *asaṅkhya lokera ghaṭā*—una gran multitud de personas; *keha*—algunos; *āise*—vienen; *yāya*—van; *lokera saṅghaṭṭe*—en la gran multitud de personas; *keha*—algunos de ellos; *darśana nā pāya*—no podían ver a Nakula Brahmacārī.

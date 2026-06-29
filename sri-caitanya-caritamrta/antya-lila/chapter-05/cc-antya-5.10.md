@@ -1,11 +1,11 @@
 ### CC Antya 5.10
 
-> ধর্মঃ স্বনুষ্ঠিতঃ পুংসাং বিষ্বক্সেনকথাসু যঃ ।
+> ধর্মঃ স্বনুষ্ঠিতঃ পুংসাং বিষ্বক্সেনকথাসু যঃ ।\
 > নোৎপাদয়েদ্যদি রতিং শ্রম এব হি কেবলম্ ॥১০॥
 
-> dharmaḥ svanuṣṭhitaḥ puṁsāṁ
-> viṣvaksena-kathāsu yaḥ
-> notpādayed yadi ratiṁ
+> dharmaḥ svanuṣṭhitaḥ puṁsāṁ\
+> viṣvaksena-kathāsu yaḥ\
+> notpādayed yadi ratiṁ\
 > śrama eva hi kevalam
 
 *dharmaḥ*—execution of the system of *varṇa* and *āśrama*; *su-anuṣṭhitaḥ*—properly executed; *puṁsām*—of men; *viṣvaksena-kathāsu*—in talks about Viṣvaksena, or Kṛṣṇa; *yaḥ*—which; *na*—not; *utpādayet*—awakens; *yadi*—if; *ratim*—taste; *śrama*—labor; *eva*—without doubt; *hi*—certainly; *kevalam*—only.

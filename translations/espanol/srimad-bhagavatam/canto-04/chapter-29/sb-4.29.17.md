@@ -1,11 +1,11 @@
 ### SB 4.29.17
 
-> यथा यथा विक्रियते गुणाक्तो विकरोति वा ।
+> यथा यथा विक्रियते गुणाक्तो विकरोति वा ।\
 > तथा तथोपद्रष्टात्मा तद्वृत्तीरनुकार्यते ॥१७॥
 
-> yathā yathā vikriyate
-> guṇākto vikaroti vā
-> tathā tathopadraṣṭātmā
+> yathā yathā vikriyate\
+> guṇākto vikaroti vā\
+> tathā tathopadraṣṭātmā\
 > tad-vṛttīr anukāryate
 
 *yathā yathā*—tal como; *vikriyate*—se agita; *guṇa-aktaḥ*—en contacto con las modalidades de la naturaleza; *vikaroti*—al hacer; *vā*—o; *tathā tathā*—de manera similar; *upadraṣṭā*—observador; *ātmā*—el alma; *tat*—de la inteligencia; *vṛttīḥ*—ocupaciones; *anukāryate*—imita.

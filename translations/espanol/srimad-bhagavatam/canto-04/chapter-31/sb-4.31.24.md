@@ -1,11 +1,11 @@
 ### SB 4.31.24
 
-> तेऽपि तन्मुखनिर्यातं यशो लोकमलापहम् ।
+> तेऽपि तन्मुखनिर्यातं यशो लोकमलापहम् ।\
 > हरेर्निशम्य तत्पादं ध्यायन्तस्तद्गतिं ययुः ॥२४॥
 
-> te 'pi tan-mukha-niryātaṁ
-> yaśo loka-malāpaham
-> harer niśamya tat-pādaṁ
+> te 'pi tan-mukha-niryātaṁ\
+> yaśo loka-malāpaham\
+> harer niśamya tat-pādaṁ\
 > dhyāyantas tad-gatiṁ yayuḥ
 
 *te*—los Pracetās; *api*—también; *tat*—de Nārada; *mukha*—de la boca; *niryātam*—pronunciada; *yaśaḥ*—glorificación; *loka*—del mundo; *mala*—pecados; *apaham*—destruir; *hareḥ*—del Señor Hari; *niśamya*—habiendo escuchado; *tat*—del Señor; *pādam*—pies; *dhyāyantaḥ*—meditando en; *tat-gatim*—a Su morada; *yayuḥ*—fueron.

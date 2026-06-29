@@ -1,9 +1,9 @@
 ### CC Madhya 25.18
 
-> যে দিবস প্রভু সন্ন্যাসীরে কৃপা কৈল ।
+> যে দিবস প্রভু সন্ন্যাসীরে কৃপা কৈল ।\
 > সে দিবস হৈতে গ্রামে কোলাহল হৈল ॥১৮॥
 
-> ye divasa prabhu sannyāsīre kṛpā kaila
+> ye divasa prabhu sannyāsīre kṛpā kaila\
 > se divasa haite grāme kolāhala haila
 
 *ye divasa*—the day when; *prabhu*—Śrī Caitanya Mahāprabhu; *sannyāsīre*—to the Māyāvādī *sannyāsīs*; *kṛpā kaila*—showed His mercy; *se divasa haite*—beginning from that day; *grāme*—in the locality; *kolāhala haila*—there were many talks about this incident.

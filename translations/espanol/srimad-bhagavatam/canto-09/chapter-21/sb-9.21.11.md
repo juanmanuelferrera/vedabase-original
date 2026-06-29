@@ -1,11 +1,11 @@
 ### SB 9.21.11
 
-> तस्य तां करुणां वाचं निशम्य विपुलश्रमाम
+> तस्य तां करुणां वाचं निशम्य विपुलश्रमाम\
 > कृपया भृशसन्तप्त इदमाहामृतं वचः ॥११॥
 
-> tasya tāṁ karuṇāṁ vācaṁ
-> niśamya vipula-śramām
-> kṛpayā bhṛśa-santapta
+> tasya tāṁ karuṇāṁ vācaṁ\
+> niśamya vipula-śramām\
+> kṛpayā bhṛśa-santapta\
 > idam āhāmṛtaṁ vacaḥ
 
 *tasya*—de él (del *caṇḍāla*); *tām*—aquellas; *karuṇām*—lastimosas; *vācam*—palabras; *niśamya*—al escuchar; *vipula*—mucho; *śramām*—fatigado; *kṛpayā*—por la compasión; *bhṛśa-santaptaḥ*—muy conmovido; *idam*—estas; *āha*—habló; *amṛtam*—muy dulces; *vacaḥ*—palabras.

@@ -1,14 +1,14 @@
 ### CC Madhya 25.36
 
-> নাতঃ পরং পরম যদ্ভবতঃ স্বরূপ-
-> মানন্দমাত্রমবিকল্পমবিদ্ধবর্চঃ ।
-> পশ্যামি বিশ্বসৃজমেকমবিশ্বমাত্মন্
+> নাতঃ পরং পরম যদ্ভবতঃ স্বরূপ-\
+> মানন্দমাত্রমবিকল্পমবিদ্ধবর্চঃ ।\
+> পশ্যামি বিশ্বসৃজমেকমবিশ্বমাত্মন্\
 > ভূতেন্দ্রিয়াত্মকমদস্ত উপাশ্রিতোঽস্মি ॥৩৬॥
 
-> nātaḥ paraṁ parama yad bhavataḥ svarūpam
-> ānanda-mātram avikalpam aviddha-varcaḥ
-> paśyāmi viśva-sṛjam ekam aviśvam ātman
-> bhūtendriyātmakam adas ta upāśrito 'smi
+> nātaḥ paraṁ parama yad bhavataḥ svarūpam\
+> ānanda-mātram avikalpam aviddha-varcaḥ\
+> paśyāmi viśva-sṛjam ekam aviśvam ātman\
+> bhūtendriyātmakam adas ta upāśrito 'smi\
 > SYNONYMS
 
 *na*—no; *ataḥ*—que esta; *param*—más suprema; *parama*—¡oh, Supremo!; *yat*—la cual; *bhavataḥ*—de Tu Señoría; *sva-rūpam*—la forma personal; *ānanda*—de bienaventuranza trascendental; *mātram*—solamente; *avikalpam*—donde no hay creación; *aviddha*—sin contaminación; *varcaḥ*—que posee refulgencia; *paśyāmi*—veo; *viśva-sṛjam ekam*—quien solo ha creado este universo; *aviśvam*—que no pertenece al mundo material destructible; *ātman*—¡oh, Alma Suprema!; *bhūta-indriya-ātmakam*—la causa original de los sentidos y las entidades vivientes; *adaḥ*—trascendental; *te*—a Ti; *upāśritaḥ asmi*—tomo pleno refugio.

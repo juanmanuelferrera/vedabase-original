@@ -1,9 +1,9 @@
 ### CC Madhya 12.195
 
-> হেন তোমার সঙ্গে মোর একত্রে ভোজন ।
+> হেন তোমার সঙ্গে মোর একত্রে ভোজন ।\
 > না জানি, তোমার সঙ্গে কৈছে হয় মন ॥১৯৫॥
 
-> hena tomāra saṅge mora ekatre bhojana
+> hena tomāra saṅge mora ekatre bhojana\
 > nā jāni, tomāra saṅge kaiche haya mana
 
 *hena*—thus; *tomāra*—Your; *saṅge*—in association; *mora*—My; *ekatre*—together; *bhojana*—eating; *nā jāni*—I do not know; *tomāra saṅge*—by Your association; *kaiche*—how; *haya mana*—My mind will turn.

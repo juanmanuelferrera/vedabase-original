@@ -1,14 +1,14 @@
 ### Bg 8.28
 
-> वेदेषु यज्ञेषु तपःसु चैव
-> दानेषु यत्पुण्यफलं प्रदिष्टम् ।
-> अत्येति तत्सर्वमिदं विदित्वा
+> वेदेषु यज्ञेषु तपःसु चैव\
+> दानेषु यत्पुण्यफलं प्रदिष्टम् ।\
+> अत्येति तत्सर्वमिदं विदित्वा\
 > योगी परं स्थानमुपैति चाद्यम् ॥२८॥
 
-> vedezu Yajezu TaPa"Sau cEv
-> vedeṣu yajñeṣu tapaḥsu caiva
-> dāneṣu yat puṇya-phalaṁ pradiṣṭam
-> atyeti tat sarvam idaṁ viditvā
+> vedezu Yajezu TaPa"Sau cEv\
+> vedeṣu yajñeṣu tapaḥsu caiva\
+> dāneṣu yat puṇya-phalaṁ pradiṣṭam\
+> atyeti tat sarvam idaṁ viditvā\
 > yogī paraṁ sthānam upaiti cādyam
 
 *vedeṣu*—en el estudio de los Vedas; *yajñeṣu*—en las realizaciones de yajña, sacrificio; *tapaḥsu*—someterse a diferentes tipos de austeridades; *ca*—también; *eva*—ciertamente; *dāneṣu*—al dar caridad; *yat*—aquello que; *puṇya-phalam*—el resultado del trabajo piadoso; *pradiṣṭam*—dirigido; *atyeti*—supera; *tat*—todos esos; *sarvam idam*—todos los que ya se han descrito; *viditvā*—sabiendo; *yogī*—el devoto; *param*—suprema; *sthānam*—morada; *upaiti*—alcanza la paz; *ca*—también; *ādyam*—original.

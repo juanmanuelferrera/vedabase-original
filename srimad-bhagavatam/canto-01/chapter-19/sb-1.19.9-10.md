@@ -1,18 +1,18 @@
 ### SB 1.19.9-10
 
-> अत्रिर्वसिष्ठश्च्यवनः शरद्वानरिष्टनेमिर्भृगुरङ्गिराश्च ।
-> पराशरो गाधिसुतोऽथ राम उतथ्य इन्द्रप्रमदेध्मवाहौ ॥९॥
-> मेधातिथिर्देवल आर्ष्टिषेणो भारद्वाजो गौतमः पिप्पलादः ।
+> अत्रिर्वसिष्ठश्च्यवनः शरद्वानरिष्टनेमिर्भृगुरङ्गिराश्च ।\
+> पराशरो गाधिसुतोऽथ राम उतथ्य इन्द्रप्रमदेध्मवाहौ ॥९॥\
+> मेधातिथिर्देवल आर्ष्टिषेणो भारद्वाजो गौतमः पिप्पलादः ।\
 > मैत्रेय और्वः कवषः कुम्भयोनिर्द्वैपायनो भगवान्नारदश्च ॥१०॥
 
-> atrir vasiṣṭhaś cyavanaḥ śaradvān
-> ariṣṭanemir bhṛgur aṅgirāś ca
-> parāśaro gādhi-suto 'tha rāma
+> atrir vasiṣṭhaś cyavanaḥ śaradvān\
+> ariṣṭanemir bhṛgur aṅgirāś ca\
+> parāśaro gādhi-suto 'tha rāma\
 > utathya indrapramadedhmavāhau
 
-> medhātithir devala ārṣṭiṣeṇo
-> bhāradvājo gautamaḥ pippalādaḥ
-> maitreya aurvaḥ kavaṣaḥ kumbhayonir
+> medhātithir devala ārṣṭiṣeṇo\
+> bhāradvājo gautamaḥ pippalādaḥ\
+> maitreya aurvaḥ kavaṣaḥ kumbhayonir\
 > dvaipāyano bhagavān nāradaś ca
 
 *atri* to *nārada*—all names of the different saintly personalities who arrived there from different parts of the universe.

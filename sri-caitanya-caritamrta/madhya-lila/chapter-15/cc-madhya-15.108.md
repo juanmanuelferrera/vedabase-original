@@ -1,9 +1,9 @@
 ### CC Madhya 15.108
 
-> দীক্ষা-পুরশ্চর্যা-বিধি অপেক্ষা না করে ।
+> দীক্ষা-পুরশ্চর্যা-বিধি অপেক্ষা না করে ।\
 > জিহ্বা-স্পর্শে আ-চণ্ডাল সবারে উদ্ধারে ॥১০৮॥
 
-> dīkṣā-puraścaryā-vidhi apekṣā nā kare
+> dīkṣā-puraścaryā-vidhi apekṣā nā kare\
 > jihvā-sparśe ā-caṇḍāla sabāre uddhāre
 
 *dīkṣā*—initiation; *puraścaryā*—activities before initiation; *vidhi*—regulative principles; *apekṣā*—reliance on; *nā*—not; *kare*—does; *jihvā*—the tongue; *sparśe*—by touching; *ā-caṇḍāla*—even to the lowest of men, the *caṇḍāla*; *sabāre*—everyone; *uddhāre*—delivers.

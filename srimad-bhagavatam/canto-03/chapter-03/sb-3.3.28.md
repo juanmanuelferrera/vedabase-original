@@ -1,11 +1,11 @@
 ### SB 3.3.28
 
-> अन्नं चोरुरसं तेभ्यो दत्त्वा भगवदर्पणम् ।
+> अन्नं चोरुरसं तेभ्यो दत्त्वा भगवदर्पणम् ।\
 > गोविप्रार्थासवः शूराः प्रणेमुर्भुवि मूर्धभिः ॥२८॥
 
-> annaṁ coru-rasaṁ tebhyo
-> dattvā bhagavad-arpaṇam
-> go-viprārthāsavaḥ śūrāḥ
+> annaṁ coru-rasaṁ tebhyo\
+> dattvā bhagavad-arpaṇam\
+> go-viprārthāsavaḥ śūrāḥ\
 > praṇemur bhuvi mūrdhabhiḥ
 
 *annam*—foodstuff; *ca*—also; *uru-rasam*—highly delicious; *tebhyaḥ*—unto the *brāhmaṇas*; *dattvā*—after supplying; *bhagavat-arpaṇam*—which was first offered to the Personality of Godhead; *go*—cows; *vipra*—*brāhmaṇas*; *artha*—purpose; *asavaḥ*—purpose of living; *śūrāḥ*—all the valiant *kṣatriyas*; *praṇemuḥ*—offered obeisances; *bhuvi*—touching the ground; *mūrdhabhiḥ*—with their heads.

@@ -1,13 +1,13 @@
 ### SB 3.15.12
 
-> ब्रह्मोवाच
-> मानसा मे सुता युष्मत् पूर्वजाः सनकादयः ।
+> ब्रह्मोवाच\
+> मानसा मे सुता युष्मत् पूर्वजाः सनकादयः ।\
 > चेरुर्विहायसा लोकाल्लोकेषु विगतस्पृहाः ॥१२॥
 
-> brahmovāca
-> mānasā me sutā yuṣmat-
-> pūrvajāḥ sanakādayaḥ
-> cerur vihāyasā lokāl
+> brahmovāca\
+> mānasā me sutā yuṣmat-\
+> pūrvajāḥ sanakādayaḥ\
+> cerur vihāyasā lokāl\
 > lokeṣu vigata-spṛhāḥ
 
 *brahmā uvāca*—Lord Brahmā said; *mānasāḥ*—born from the mind; *me*—my; *sutāḥ*—sons; *yuṣmat*—than you; *pūrva-jāḥ*—born previously; *sanaka-ādayaḥ*—headed by Sanaka; *ceruḥ*—traveled; *vihāyasā*—by traveling in outer space or flying in the sky; *lokān*—to the material and spiritual worlds; *lokeṣu*—among the people; *vigata-spṛhāḥ*—without any desire.

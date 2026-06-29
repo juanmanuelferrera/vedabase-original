@@ -1,11 +1,11 @@
 ### SB 1.13.47
 
-> अहस्तानि सहस्तानामपदानि चतुष्पदाम् ।
+> अहस्तानि सहस्तानामपदानि चतुष्पदाम् ।\
 > फल्गूनि तत्र महतां जीवो जीवस्य जीवनम् ॥४७॥
 
-> ahastāni sahastānām
-> apadāni catuṣ-padām
-> phalgūni tatra mahatāṁ
+> ahastāni sahastānām\
+> apadāni catuṣ-padām\
+> phalgūni tatra mahatāṁ\
 > jīvo jīvasya jīvanam
 
 *ahastāni*—aquellos que están desprovistos de manos; *sa-hastānām*—de aquellos que están dotados de manos; *apadāni*—aquellos que están desprovistos de piernas; *catuḥ-padām*—de aquellos que tienen cuatro piernas; *phalgūni*—aquellos que son débiles; *tatra*—ahí; *mahatām*—del poderoso; *jīvaḥ*—el ser viviente; *jīvasya*—del ser viviente; *jīvanam*—subsistencia.

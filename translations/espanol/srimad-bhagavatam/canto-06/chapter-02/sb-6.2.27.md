@@ -1,11 +1,11 @@
 ### SB 6.2.27
 
-> धिङ्मां विगर्हितं सद्भिर्दुष्कृतं कुलकज्जलम
+> धिङ्मां विगर्हितं सद्भिर्दुष्कृतं कुलकज्जलम\
 > हित्वा बालां सतीं योऽहं सुरापीमसतीमगाम ॥२७॥
 
-> dhiṅ māṁ vigarhitaṁ sadbhir
-> duṣkṛtaṁ kula-kajjalam
-> hitvā bālāṁ satīṁ yo 'haṁ
+> dhiṅ māṁ vigarhitaṁ sadbhir\
+> duṣkṛtaṁ kula-kajjalam\
+> hitvā bālāṁ satīṁ yo 'haṁ\
 > surā-pīm asatīm agām
 
 *dhik mām*—que la mayor condena caiga sobre mí; *vigarhitam*—condenado; *sadbhiḥ*—por hombres honestos; *duṣkṛtam*—que ha cometido actos pecaminosos; *kula-kajjalam*—que ha difamado la tradición familiar; *hitvā*—** abandonando; *bālām*—a una joven esposa; *satīm*—casta; *yaḥ*—quien; *aham*—yo; *surāpīm*—con una mujer habituada al vino; *asatīm*—impúdica; *agām*—tuve relaciones sexuales.

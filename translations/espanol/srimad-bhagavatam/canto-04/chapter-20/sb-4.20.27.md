@@ -1,11 +1,11 @@
 ### SB 4.20.27
 
-> अथाभजे त्वाखिलपूरुषोत्तमं गुणालयं पद्मकरेव लालसः ।
+> अथाभजे त्वाखिलपूरुषोत्तमं गुणालयं पद्मकरेव लालसः ।\
 > अप्यावयोरेकपतिस्पृधोः कलिर्न स्यात्कृतत्वच्चरणैकतानयोः ॥२७॥
 
-> athābhaje tvākhila-pūruṣottamaṁ
-> guṇālayaṁ padma-kareva lālasaḥ
-> apy āvayor eka-pati-spṛdhoḥ kalir
+> athābhaje tvākhila-pūruṣottamaṁ\
+> guṇālayaṁ padma-kareva lālasaḥ\
+> apy āvayor eka-pati-spṛdhoḥ kalir\
 > na syāt kṛta-tvac-caraṇaika-tānayoḥ
 
 *atha*—por lo tanto; *ābhaje*—me ocuparé en servicio devocional; *tvā*—a Ti; *akhila*—que lo incluye todo; *pūruṣa-uttamam*—la Suprema Personalidad de Dios; *guṇa-ālayam*—el receptáculo de todas las cualidades trascendentales; *padma-karā*—la diosa de la fortuna, que lleva una flor de loto en la mano; *iva*—como; *lālasaḥ*—estando deseoso; *api*—en verdad; *āvayoḥ*—de Lakṣmī y de mí; *eka-pati*—único amo; *spṛdhoḥ*—competir; *kaliḥ*—riña; *na*—no; *syāt*—que ocurra; *kṛta*—haber hecho; *tvat-caraṇa*—a Tus pies de loto; *eka-tānayoḥ*—atención única.

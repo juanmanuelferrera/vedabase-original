@@ -1,13 +1,13 @@
 ### SB 8.22.18
 
-> श्रीशुक उवाच
-> तस्यानुशृण्वतो राजन्प्रह्रादस्य कृताञ्जलेः
+> श्रीशुक उवाच\
+> तस्यानुशृण्वतो राजन्प्रह्रादस्य कृताञ्जलेः\
 > हिरण्यगर्भो भगवानुवाच मधुसूदनम ॥१८॥
 
-> śrī-śuka uvāca
-> tasyānuśṛṇvato rājan
-> prahrādasya kṛtāñjaleḥ
-> hiraṇyagarbho bhagavān
+> śrī-śuka uvāca\
+> tasyānuśṛṇvato rājan\
+> prahrādasya kṛtāñjaleḥ\
+> hiraṇyagarbho bhagavān\
 > uvāca madhusūdanam
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *tasya*—de Prahlāda Mahārāja; *anuśṛṇvataḥ*—de manera que pudiera oír; *rājan*—¡oh, rey Parīkṣit!; *prahrādasya*—de Prahlāda Mahārāja; *kṛta-añjaleḥ*—que estaba de pie con las manos juntas; *hiraṇyagarbhaḥ*—el Señor Brahmā; *bhagavān*—el muy poderoso; *uvāca*—dijo; *madhusūdanam*—a Madhusūdana, la Personalidad de Dios.

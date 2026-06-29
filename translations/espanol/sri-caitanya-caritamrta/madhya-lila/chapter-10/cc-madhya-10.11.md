@@ -1,9 +1,9 @@
 ### CC Madhya 10.11
 
-> tīrtha pavitra karite kare tīrtha-bhramaṇa
+> tīrtha pavitra karite kare tīrtha-bhramaṇa\
 > sei chale nistāraye sāṁsārika jana
 
-> tīrtha pavitra karite kare tīrtha-bhramaṇa
+> tīrtha pavitra karite kare tīrtha-bhramaṇa\
 > sei chale nistāraye sāṁsārika jana
 
 *tīrtha*—lugares sagrados; *pavitra karite*—para purificar; *kare*—hace; *tīrtha-bhramaṇa*—peregrinación por lugares santos; *sei chale*—con ese pretexto; *nistāraye*—libera; *sāṁsārika*—condicionadas; *jana*—almas.

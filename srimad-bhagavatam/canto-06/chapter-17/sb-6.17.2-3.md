@@ -1,18 +1,18 @@
 ### SB 6.17.2-3
 
-> स लक्षं वर्षलक्षाणामव्याहतबलेन्द्रियः
-> स्तूयमानो महायोगी मुनिभिः सिद्धचारणैः ॥२॥
-> कुलाचलेन्द्रद्रोणीषु नानासङ्कल्पसिद्धिषु
+> स लक्षं वर्षलक्षाणामव्याहतबलेन्द्रियः\
+> स्तूयमानो महायोगी मुनिभिः सिद्धचारणैः ॥२॥\
+> कुलाचलेन्द्रद्रोणीषु नानासङ्कल्पसिद्धिषु\
 > रेमे विद्याधरस्त्रीभिर्गापयन्हरिमीश्वरम ॥३॥
 
-> sa lakṣaṁ varṣa-lakṣāṇām
-> avyāhata-balendriyaḥ
-> stūyamāno mahā-yogī
+> sa lakṣaṁ varṣa-lakṣāṇām\
+> avyāhata-balendriyaḥ\
+> stūyamāno mahā-yogī\
 > munibhiḥ siddha-cāraṇaiḥ
 
-> kulācalendra-droṇīṣu
-> nānā-saṅkalpa-siddhiṣu
-> reme vidyādhara-strībhir
+> kulācalendra-droṇīṣu\
+> nānā-saṅkalpa-siddhiṣu\
+> reme vidyādhara-strībhir\
 > gāpayan harim īśvaram
 
 *saḥ*—he (Citraketu); *lakṣam*—one hundred thousand; *varṣa*—of years; *lakṣāṇām*—one hundred thousand; *avyāhata*—without hindrance; *bala-indriyaḥ*—whose strength and power of the senses; *stūyamānaḥ*—being praised; *mahā-yogī*—the great mystic *yogī*; *munibhiḥ*—by saintly persons; *siddha-cāraṇaiḥ*—by the Siddhas and Cāraṇas; *kulācalendra-droṇīṣu*—within the valleys of the great mountain known as Kulācalendra, or Sumeru; *nānā-saṅkalpa-siddhiṣu*—where one becomes perfect in all kinds of mystic power; *reme*—enjoyed; *vidyādhara-strībhiḥ*—with the women of the Vidyādhara planet; *gāpayan*—causing to praise; *harim*—the Supreme Personality of Godhead, Hari; *īśvaram*—the controller.

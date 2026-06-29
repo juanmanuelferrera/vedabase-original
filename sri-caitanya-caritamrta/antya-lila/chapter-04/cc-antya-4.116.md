@@ -1,9 +1,9 @@
 ### CC Antya 4.116
 
-> জ্যৈষ্ঠমাসে প্রভু যমেশ্বর-টোটা আইলা ।
+> জ্যৈষ্ঠমাসে প্রভু যমেশ্বর-টোটা আইলা ।\
 > ভক্ত-অনুরোধে তাহাঁ ভিক্ষা যে করিলা ॥১১৬॥
 
-> jyaiṣṭha-māse prabhu yameśvara-ṭoṭā āilā
+> jyaiṣṭha-māse prabhu yameśvara-ṭoṭā āilā\
 > bhakta-anurodhe tāhāṅ bhikṣā ye karilā
 
 *jyaiṣṭha-māse*—during the month of May-June; *prabhu*—Śrī Caitanya Mahāprabhu; *yameśvara-ṭoṭā*—to the garden of Lord Śiva, Yameśvara; *āilā*—came; *bhakta-anurodhe*—on the request of the devotees; *tāhāṅ*—there; *bhikṣā ye karilā*—accepted *prasāda.*

@@ -1,13 +1,13 @@
 ### CC Madhya 21.110
 
-> মাধুর্য ভগবত্তা-সার, ব্রজে কৈল পরচার,
-> তাহা শুক — ব্যাসের নন্দন ।
-> স্থানে স্থানে ভাগবতে, বর্ণিয়াছে জানাইতে,
+> মাধুর্য ভগবত্তা-সার, ব্রজে কৈল পরচার,\
+> তাহা শুক — ব্যাসের নন্দন ।\
+> স্থানে স্থানে ভাগবতে, বর্ণিয়াছে জানাইতে,\
 > তাহা শুনি’ মাতে ভক্তগণ ॥১১০॥
 
-> mādhurya bhagavattā-sāra, vraje kaila paracāra,
-> tāhā śuka—vyāsera nandana
-> sthāne sthāne bhāgavate, varṇiyāche jānāite,
+> mādhurya bhagavattā-sāra, vraje kaila paracāra,\
+> tāhā śuka—vyāsera nandana\
+> sthāne sthāne bhāgavate, varṇiyāche jānāite,\
 > tāhā śuni' māte bhakta-gaṇa
 
 *mādhurya*—sweetness; *bhagavattā-sāra*—the quintessence of the Supreme Personality of Godhead; *vraje*—in Vṛndāvana; *kaila*—did; *paracāra*—propagation; *tāhā*—that; *śuka*—Śukadeva Gosvāmī; *vyāsera nandana*—the son of Vyāsadeva; *sthāne sthāne*—in different places; *bhāgavate*—in *Śrīmad-Bhāgavatam*; *varṇiyāche*—has described; *jānāite*—in order to explain; *tāhā śuni'*—hearing those statements; *māte*—become maddened; *bhakta-gaṇa*—all the devotees.

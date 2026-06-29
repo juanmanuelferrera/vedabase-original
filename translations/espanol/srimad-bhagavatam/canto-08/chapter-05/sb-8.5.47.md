@@ -1,11 +1,11 @@
 ### SB 8.5.47
 
-> क्लेशभूर्यल्पसाराणि कर्माणि विफलानि वा
+> क्लेशभूर्यल्पसाराणि कर्माणि विफलानि वा\
 > देहिनां विषयार्तानां न तथैवार्पितं त्वयि ॥४७॥
 
-> kleśa-bhūry-alpa-sārāṇi
-> karmāṇi viphalāni vā
-> dehināṁ viṣayārtānāṁ
+> kleśa-bhūry-alpa-sārāṇi\
+> karmāṇi viphalāni vā\
+> dehināṁ viṣayārtānāṁ\
 > na tathaivārpitaṁ tvayi
 
 *kleśa*—dificultad; *bhūri*—mucha; *alpa*—muy poco; *sārāṇi*—buen resultado; *karmāṇi*—actividades; *viphalāni*—frustración; *vā*—o; *dehinām*—de personas; *viṣaya-artānām*—que están deseosas de disfrutar del mundo material; *na*—no; *tathā*—así; *eva*—en verdad; *arpitam*—dedicadas; *tvayi*—a Tu Señoría.

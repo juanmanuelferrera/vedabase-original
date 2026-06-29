@@ -1,9 +1,9 @@
 ### CC Madhya 7.27
 
-> লোকাপেক্ষা নাহি ইঁহার কৃষ্ণকৃপা হৈতে ।
+> লোকাপেক্ষা নাহি ইঁহার কৃষ্ণকৃপা হৈতে ।\
 > আমি লোকাপেক্ষা কভু না পারি ছাড়িতে ॥২৭॥
 
-> lokāpekṣā nāhi iṅhāra kṛṣṇa-kṛpā haite
+> lokāpekṣā nāhi iṅhāra kṛṣṇa-kṛpā haite\
 > āmi lokāpekṣā kabhu nā pāri chāḍite
 
 *loka-apekṣā*—care for society; *nāhi*—there is none; *iṅhāra*—of Dāmodara; *kṛṣṇa-kṛpā*—the mercy of the Lord; *haite*—from; *āmi*—I; *loka-apekṣā*—dependence on public opinion; *kabhu*—at any time; *nā*—not; *pāri*—able; *chāḍite*—to give up.

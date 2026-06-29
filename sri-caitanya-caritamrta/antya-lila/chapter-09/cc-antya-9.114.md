@@ -1,9 +1,9 @@
 ### CC Antya 9.114
 
-> বিষয়-সুখ দিতে প্রভুর নাহি মনোবল ।
+> বিষয়-সুখ দিতে প্রভুর নাহি মনোবল ।\
 > নিবেদন-প্রভাবেহ তবু ফলে এত ফল ॥১১৪॥
 
-> viṣaya-sukha dite prabhura nāhi manobala
+> viṣaya-sukha dite prabhura nāhi manobala\
 > nivedana-prabhāveha tabu phale eta phala
 
 *viṣaya*—of material opulence; *sukha*—happiness; *dite*—award; *prabhura*—of Śrī Caitanya Mahāprabhu; *nāhi*—is not; *manobala*—desire; *nivedana-prabhāveha*—simply because He was informed about it; *tabu*—still; *phale eta phala*—so much of a result was obtained.

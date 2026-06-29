@@ -1,11 +1,11 @@
 ### SB 3.28.5
 
-> मौनं सदासनजयः स्थैर्यं प्राणजयः शनैः ।
+> मौनं सदासनजयः स्थैर्यं प्राणजयः शनैः ।\
 > प्रत्याहारश्चेन्द्रियाणां विषयान्मनसा हृदि ॥५॥
 
-> maunaṁ sad-āsana-jayaḥ
-> sthairyaṁ prāṇa-jayaḥ śanaiḥ
-> pratyāhāraś cendriyāṇāṁ
+> maunaṁ sad-āsana-jayaḥ\
+> sthairyaṁ prāṇa-jayaḥ śanaiḥ\
+> pratyāhāraś cendriyāṇāṁ\
 > viṣayān manasā hṛdi
 
 *maunam*—silencio; *sat*—buenas; *āsana*—posturas yóguicas; *jayaḥ*—controlar; *sthairyam*—constancia; *prāṇa-jayaḥ*—controlar el aire vital; *śanaiḥ*—gradualmente; *pratyāhāraḥ*—retraimiento; *ca*—y; *indriyāṇām*—de los sentidos; *viṣayāt*—de los objetos de los sentidos; *manasā*—con la mente; *hṛdi*—en el corazón.

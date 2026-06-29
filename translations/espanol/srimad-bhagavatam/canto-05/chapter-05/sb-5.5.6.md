@@ -1,11 +1,11 @@
 ### SB 5.5.6
 
-> एवं मनः कर्मवशं प्रयुङ्क्ते अविद्ययात्मन्युपधीयमाने
+> एवं मनः कर्मवशं प्रयुङ्क्ते अविद्ययात्मन्युपधीयमाने\
 > प्रीतिर्न यावन्मयि वासुदेवे न मुच्यते देहयोगेन तावत ॥६॥
 
-> evaṁ manaḥ karma-vaśaṁ prayuṅkte
-> avidyayātmany upadhīyamāne
-> prītir na yāvan mayi vāsudeve
+> evaṁ manaḥ karma-vaśaṁ prayuṅkte\
+> avidyayātmany upadhīyamāne\
+> prītir na yāvan mayi vāsudeve\
 > na mucyate deha-yogena tāvat
 
 *evam*—así; *manaḥ*—la mente; *karma-vaśam*—subyugada por las actividades fruitivas; *prayuṅkte*—actúa; *avidyayā*—por ignorancia; *ātmani*—cuando la entidad viviente; *upadhīyamāne*—se ve cubierta; *prītiḥ*—amor; *na*—no; *yāvat*—mientras que; *mayi*—a Mí; *vāsudeve*—Vāsudeva, Kṛṣṇa; *na*—no; *mucyate*—se libera; *deha-yogena*—del contacto con el cuerpo material; *tāvat*—mientras.

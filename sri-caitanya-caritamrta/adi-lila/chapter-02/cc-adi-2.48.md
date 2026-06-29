@@ -1,9 +1,9 @@
 ### CC Adi 2.48
 
-> ব্রহ্মা কহে — জলে জীবে যেই নারায়ণ ।
+> ব্রহ্মা কহে — জলে জীবে যেই নারায়ণ ।\
 > সে সব তোমার অংশ — এ সত্য বচন ॥৪৮॥
 
-> brahmā kahe—jale jīve yei nārāyaṇa
+> brahmā kahe—jale jīve yei nārāyaṇa\
 > se saba tomāra aṁśa—e satya vacana
 
 *brahmā*—Lord Brahmā; *kahe*—says; *jale*—in the water; *jīve*—in the living being; *yei*—who; *nārāyaṇa*—Nārāyaṇa; *se*—They; *saba*—all; *tomāra*—Your; *aṁśa*—plenary part; *e*—this; *satya*—truthful; *vacana*—word.

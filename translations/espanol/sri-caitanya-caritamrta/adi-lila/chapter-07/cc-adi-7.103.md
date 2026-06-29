@@ -1,9 +1,9 @@
 ### CC Adi 7.103
 
-> ইহা শুনি’ বলে সর্ব সন্ন্যাসীর গণ ।
+> ইহা শুনি’ বলে সর্ব সন্ন্যাসীর গণ ।\
 > তোমাকে দেখিয়ে যৈছে সাক্ষাৎ নারায়ণ ॥১০৩॥
 
-> ihā śuni' bale sarva sannyāsīra gaṇa
+> ihā śuni' bale sarva sannyāsīra gaṇa\
 > tomāke dekhiye yaiche sākṣāt nārāyaṇa
 
 *ihā*—esto; *śuni'*—escuchando; *bale*—hablaron; *sarva*—todos; *sannyāsīra*—de los *sannyāsīs* māyāvādīs; *gaṇa*—grupo; *tomāke*—a Ti; *dekhiye*—vemos; *yaiche*—exactamente como; *sākṣāt*—directamente; *nārāyaṇa*—la Suprema Personalidad de Dios.

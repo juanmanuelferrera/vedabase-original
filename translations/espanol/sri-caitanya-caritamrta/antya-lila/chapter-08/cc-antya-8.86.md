@@ -1,9 +1,9 @@
 ### CC Antya 8.86
 
-> তবে সবে মেলি’ প্রভুরে বহু যত্ন কৈলা ।
+> তবে সবে মেলি’ প্রভুরে বহু যত্ন কৈলা ।\
 > সবার আগ্রহে প্রভু অর্ধেক রাখিলা ॥৮৬॥
 
-> tabe sabe meli' prabhure bahu yatna kailā
+> tabe sabe meli' prabhure bahu yatna kailā\
 > sabāra āgrahe prabhu ardheka rākhilā
 
 *tabe*—después; *sabe meli'*—cuando todos los devotos se reunieron; *prabhure*—a Śrī Caitanya Mahāprabhu; *bahu yatna kailā*—suplicaron fervientemente; *sabāra āgrahe*—debido al fervor de todos ellos; *prabhu*—Śrī Caitanya Mahāprabhu; *ardheka rākhilā*—aceptó la mitad.

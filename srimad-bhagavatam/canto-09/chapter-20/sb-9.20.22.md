@@ -1,11 +1,11 @@
 ### SB 9.20.22
 
-> रेतोधाः पुत्रो नयति नरदेव यमक्षयात
+> रेतोधाः पुत्रो नयति नरदेव यमक्षयात\
 > त्वं चास्य धाता गर्भस्य सत्यमाह शकुन्तला ॥२२॥
 
-> reto-dhāḥ putro nayati
-> naradeva yama-kṣayāt
-> tvaṁ cāsya dhātā garbhasya
+> reto-dhāḥ putro nayati\
+> naradeva yama-kṣayāt\
+> tvaṁ cāsya dhātā garbhasya\
 > satyam āha śakuntalā
 
 *retaḥ-dhāḥ*—a person who discharges semen; *putraḥ*—the son; *nayati*—saves; *nara-deva*—O King (Mahārāja Duṣmanta); *yama-kṣayāt*—from punishment by Yamarāja, or from the custody of Yamarāja; *tvam*—your good self; *ca*—and; *asya*—of this child; *dhātā*—the creator; *garbhasya*—of the embryo; *satyam*—truthfully; *āha*—said; *śakuntalā*—your wife, Śakuntalā.

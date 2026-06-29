@@ -1,9 +1,9 @@
 ### CC Adi 12.14
 
-> চৈতন্য গোসাঞির গুরু — কেশব ভারতী ।
+> চৈতন্য গোসাঞির গুরু — কেশব ভারতী ।\
 > এই পিতার বাক্য শুনি’ দুঃখ পাইল অতি ॥১৪॥
 
-> caitanya-gosāñira guru—keśava bhāratī
+> caitanya-gosāñira guru—keśava bhāratī\
 > ei pitāra vākya śuni' duḥkha pāila ati
 
 *caitanya*—Lord Caitanya; *gosāñira*—the spiritual master; *guru*—His spiritual master; *keśava bhāratī*—of the name Keśava Bhāratī; *ei*—these; *pitāra*—his father's; *vākya*—words; *śuni'*—hearing; *duḥkha*—unhappiness; *pāila*—got; *ati*—very much.

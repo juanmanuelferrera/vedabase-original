@@ -1,9 +1,9 @@
 ### CC Antya 2.124
 
-> প্রভু কহে, — “মোর বশ নহে মোর মন ।
+> প্রভু কহে, — “মোর বশ নহে মোর মন ।\
 > প্রকৃতিসম্ভাষী বৈরাগী না করে দর্শন ॥১২৪॥
 
-> prabhu kahe,--"mora vaśa nahe mora mana
+> prabhu kahe,--"mora vaśa nahe mora mana\
 > prakṛti-sambhāṣī vairāgī nā kare darśana
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *mora vaśa*—bajo Mi control; *nahe*—no está; *mora*—Mi; *mana*—mente; *prakṛti-sambhāṣī*—alguien que conversa con mujeres; *vairāgī*—una persona en la orden de renuncia; *nā kare darśana*—no quiere ver.

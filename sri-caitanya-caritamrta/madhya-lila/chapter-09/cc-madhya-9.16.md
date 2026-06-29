@@ -1,9 +1,9 @@
 ### CC Madhya 9.16
 
-> রামদাস মহাদেবে করিল দরশন ।
+> রামদাস মহাদেবে করিল দরশন ।\
 > অহোবল-নৃসিংহেরে করিলা গমন ॥১৬॥
 
-> rāmadāsa mahādeve karila daraśana
+> rāmadāsa mahādeve karila daraśana\
 > ahovala-nṛsiṁhere karilā gamana
 
 *rāma-dāsa*—Rāmadāsa; *mahā-deve*—of Mahādeva; *karila*—did; *daraśana*—seeing; *ahovala-nṛsiṁhere*—to Ahovala-nṛsiṁha; *karilā*—did; *gamana*—going.

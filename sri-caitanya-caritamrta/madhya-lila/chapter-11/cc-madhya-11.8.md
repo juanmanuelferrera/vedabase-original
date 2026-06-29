@@ -1,13 +1,13 @@
 ### CC Madhya 11.8
 
-> নিষ্কিঞ্চনস্য ভগবদ্ভজনোন্মুখস্য
-> পারং পরং জিগমিষোর্ভবসাগরস্য ।
-> সন্দর্শনং বিষয়িণামথ যোষিতাঞ্চ
+> নিষ্কিঞ্চনস্য ভগবদ্ভজনোন্মুখস্য\
+> পারং পরং জিগমিষোর্ভবসাগরস্য ।\
+> সন্দর্শনং বিষয়িণামথ যোষিতাঞ্চ\
 > হা হন্ত হন্ত বিষভক্ষণতোঽপ্যসাধু ॥৮॥
 
-> niṣkiñcanaṣya bhagavad-bhajanonmukhasya
-> pāraṁ paraṁ jigamiṣor bhava-sāgarasya
-> sandarśanaṁ viṣayiṇām atha yoṣitāṁ ca
+> niṣkiñcanaṣya bhagavad-bhajanonmukhasya\
+> pāraṁ paraṁ jigamiṣor bhava-sāgarasya\
+> sandarśanaṁ viṣayiṇām atha yoṣitāṁ ca\
 > hā hanta hanta viṣa-bhakṣaṇato 'py asādhu
 
 *niṣkiñcanasya*—of a person who has completely detached himself from material enjoyment; *bhagavat*—the Supreme Personality of Godhead; *bhajana*—in serving; *unmukhasya*—who is eager to be engaged; *pāram*—to the other side; *param*—distant; *jigamiṣoḥ*—who is desiring to go; *bhava-sāgarasya*—of the ocean of material existence; *sandarśanam*—the seeing (for some material purpose); *viṣayiṇām*—of persons engaged in material activities; *atha*—as well as; *yoṣitām*—of women; *ca*—also; *hā*—alas; *hanta hanta*—expression of great lamentation; *viṣa-bhakṣaṇataḥ*—than the act of drinking poison; *api*—even; *asādhu*—more abominable.

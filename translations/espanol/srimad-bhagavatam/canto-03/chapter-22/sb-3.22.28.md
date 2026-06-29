@@ -1,11 +1,11 @@
 ### SB 3.22.28
 
-> तमायान्तमभिप्रेत्य ब्रह्मावर्तात्प्रजाः पतिम् ।
+> तमायान्तमभिप्रेत्य ब्रह्मावर्तात्प्रजाः पतिम् ।\
 > गीतसंस्तुतिवादित्रैः प्रत्युदीयुः प्रहर्षिताः ॥२८॥
 
-> tam āyāntam abhipretya
-> brahmāvartāt prajāḥ patim
-> gīta-saṁstuti-vāditraiḥ
+> tam āyāntam abhipretya\
+> brahmāvartāt prajāḥ patim\
+> gīta-saṁstuti-vāditraiḥ\
 > pratyudīyuḥ praharṣitāḥ
 
 *tam*—a él; *āyāntam*—que estaba llegando; *abhipretya*—sabiendo que; *brahmāvartāt*—de Brahmāvarta; *prajāḥ*—sus súbditos; *patim*—a su señor; *gīta-saṁstuti-vāditraiḥ*—con canciones, alabanzas e instrumentos musicales; *pratyudīyuḥ*—salieron a recibir; *praharṣitāḥ*—rebosantes de júbilo.

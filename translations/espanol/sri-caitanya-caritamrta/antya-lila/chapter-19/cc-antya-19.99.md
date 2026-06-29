@@ -1,13 +1,13 @@
 ### CC Antya 19.99
 
-> এইমত গৌরহরি, গন্ধে কৈল মন চুরি,
-> ভৃঙ্গপ্রায় ইতি-উতি ধায় ।
-> যায় বৃক্ষলতা-পাশে, কৃষ্ণ স্ফুরে — সেই আশে,
+> এইমত গৌরহরি, গন্ধে কৈল মন চুরি,\
+> ভৃঙ্গপ্রায় ইতি-উতি ধায় ।\
+> যায় বৃক্ষলতা-পাশে, কৃষ্ণ স্ফুরে — সেই আশে,\
 > কৃষ্ণ না পায়, গন্ধমাত্র পায় ॥৯৯॥
 
-> ei-mata gaurahari, gandhe kaila mana curi,
-> bhṛṅga-prāya iti-uti dhāya
-> yāya vṛkṣa-latā-pāśe, kṛṣṇa sphure--sei āśe,
+> ei-mata gaurahari, gandhe kaila mana curi,\
+> bhṛṅga-prāya iti-uti dhāya\
+> yāya vṛkṣa-latā-pāśe, kṛṣṇa sphure--sei āśe,\
 > kṛṣṇa nā pāya, gandha-mātra pāya
 
 *ei-mata*—de este modo; *gaurahari*—Śrī Caitanya Mahāprabhu; *gandhe*—por la fragancia; *kaila*—se produjo; *mana curi*—el robo de la mente; *bhṛṅga-prāya*—como un abejorro; *iti-uti dhāya*—corre de aquí para allá; *yāya*—va; *vṛkṣa-latā-pāśe*—junto a los árboles y las enredaderas; *kṛṣṇa sphure*—el Señor Kṛṣṇa aparecerá; *sei āśe*—con esa esperanza; *kṛṣṇa nā pāya*—no encuentra a Kṛṣṇa; *gandha-mātra pāya*—solo percibe la fragancia.

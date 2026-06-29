@@ -1,9 +1,9 @@
 ### CC Antya 19.73
 
-> নিরন্তর ঘুমায় শঙ্কর শীঘ্র-চেতন ।
+> নিরন্তর ঘুমায় শঙ্কর শীঘ্র-চেতন ।\
 > বসি’ পাদ চাপি’ করে রাত্রি-জাগরণ ॥৭৩॥
 
-> nirantara ghumāya śaṅkara śīghra-cetana
+> nirantara ghumāya śaṅkara śīghra-cetana\
 > vasi' pāda cāpi' kare rātri-jāgaraṇa
 
 *nirantara*—incessantly; *ghumāya*—sleeps; *śaṅkara*—Śaṅkara; *śīghra*—very quickly; *cetana*—waking up; *vasi'*—sitting; *pāda cāpi'*—massaging the legs; *kare*—does; *rātri-jāgaraṇa*—keeps awake at night.

@@ -1,11 +1,11 @@
 ### SB 4.27.17
 
-> क्षीयमाणे स्वसम्बन्धे एकस्मिन्बहुभिर्युधा ।
+> क्षीयमाणे स्वसम्बन्धे एकस्मिन्बहुभिर्युधा ।\
 > चिन्तां परां जगामार्तः सराष्ट्रपुरबान्धवः ॥१७॥
 
-> kṣīyamāṇe sva-sambandhe
-> ekasmin bahubhir yudhā
-> cintāṁ parāṁ jagāmārtaḥ
+> kṣīyamāṇe sva-sambandhe\
+> ekasmin bahubhir yudhā\
+> cintāṁ parāṁ jagāmārtaḥ\
 > sa-rāṣṭra-pura-bāndhavaḥ
 
 *kṣīyamāṇe*—when he became weak; *sva-sambandhe*—his intimate friend; *ekasmin*—alone; *bahubhiḥ*—with many warriors; *yudhā*—by battle; *cintām*—anxiety; *parām*—very great; *jagāma*—obtained; *ārtaḥ*—being aggrieved; *sa*—along with; *rāṣṭra*—of the kingdom; *pura*—of the city; *bāndhavaḥ*—friends and relatives.

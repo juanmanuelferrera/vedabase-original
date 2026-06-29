@@ -1,11 +1,11 @@
 ### Bg 5.14
 
-> न कर्तृत्वं न कर्माणि लोकस्य सृजति प्रभुः ।
+> न कर्तृत्वं न कर्माणि लोकस्य सृजति प्रभुः ।\
 > न कर्मफलसंयोगं स्वभावस्तु प्रवर्तते ॥१४॥
 
-> na kartṛtvaṁ na karmāṇi
-> lokasya sṛjati prabhuḥ
-> na karma-phala-saṁyogaṁ
+> na kartṛtvaṁ na karmāṇi\
+> lokasya sṛjati prabhuḥ\
+> na karma-phala-saṁyogaṁ\
 > svabhāvas tu pravartate
 
 *na*—nunca; *kartṛtvam*—propiedad; *na*—ni; *karmāṇi*—actividades; *lokasya*—de la gente; *sṛjati*—crea; *prabhuḥ*—el amo de la ciudad del cuerpo; *na*—ni; *karma-phala*—los resultados de las actividades; *saṁyogam*—conexión; *svabhāvaḥ*—las modalidades de la naturaleza material; *tu*—pero; *pravartate*—actúa.

@@ -1,9 +1,9 @@
 ### CC Antya 16.105
 
-> প্রভুর ইঙ্গিতে গোবিন্দ প্রসাদ আনিলা ।
+> প্রভুর ইঙ্গিতে গোবিন্দ প্রসাদ আনিলা ।\
 > পুরী-ভারতীরে প্রভু কিছু পাঠাইলা ॥১০৫॥
 
-> prabhura iṅgite govinda prasāda ānilā
+> prabhura iṅgite govinda prasāda ānilā\
 > purī-bhāratīre prabhu kichu pāṭhāilā
 
 *prabhura iṅgite*—por indicación de Śrī Caitanya Mahāprabhu; *govinda*—Govinda; *prasāda ānilā*—trajo los restos de la comida del Señor Jagannātha; *purī*—a Paramānanda Purī; *bhāratīre*—a Brahmānanda Bhāratī; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *kichu*—algo; *pāṭhāilā*—envió.

@@ -1,11 +1,11 @@
 ### Bg 2.3
 
-> क्लैब्यं मा स्म गमः पार्थ नैतत्त्वय्युपपद्यते ।
+> क्लैब्यं मा स्म गमः पार्थ नैतत्त्वय्युपपद्यते ।\
 > क्षुद्रं हृदयदौर्बल्यं त्यक्त्वोत्तिष्ठ परन्तप ॥३॥
 
-> klaibyaṁ mā sma gamaḥ pārtha
-> naitat tvayy upapadyate
-> kṣudraṁ hṛdaya-daurbalyaṁ
+> klaibyaṁ mā sma gamaḥ pārtha\
+> naitat tvayy upapadyate\
+> kṣudraṁ hṛdaya-daurbalyaṁ\
 > tyaktvottiṣṭha parantapa
 
 *klaibyam*—impotence; *mā*—do not; *sma*—take it; *gamaḥ*—go in; *pārtha*—O son of Pṛthā; *na*—never; *etat*—like this; *tvayi*—unto you; *upapadyate*—is befitting; *kṣudram*—very little; *hṛdaya*—heart; *daurbalyam*—weakness; *tyaktvā*—giving up; *uttiṣṭha*—get up; *parantapa*—O chastiser of the enemies.

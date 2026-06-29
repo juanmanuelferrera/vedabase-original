@@ -1,11 +1,11 @@
 ### SB 5.13.10
 
-> कर्हि स्म चित्क्षुद्ररसान्विचिन्वंस्तन्मक्षिकाभिर्व्यथितो विमानः
+> कर्हि स्म चित्क्षुद्ररसान्विचिन्वंस्तन्मक्षिकाभिर्व्यथितो विमानः\
 > तत्रातिकृच्छ्रात्प्रतिलब्धमानो बलाद्विलुम्पन्त्यथ तं ततोऽन्ये ॥१०॥
 
-> karhi sma cit kṣudra-rasān vicinvaṁs
-> tan-makṣikābhir vyathito vimānaḥ
-> tatrāti-kṛcchrāt pratilabdhamāno
+> karhi sma cit kṣudra-rasān vicinvaṁs\
+> tan-makṣikābhir vyathito vimānaḥ\
+> tatrāti-kṛcchrāt pratilabdhamāno\
 > balād vilumpanty atha taṁ tato 'nye
 
 *karhi sma cit*—a veces; *kṣudra*—muy insignificante; *rasān*—disfrute sexual; *vicinvan*—en busca de; *tat*—de esas mujeres; *makṣikābhiḥ*—por abejas, o los esposos o parientes; *vyathitaḥ*—muy afligido; *vimānaḥ*—insultado; *tatra*—en eso; *ati*—mucho; *kṛcchrāt*—con dificultad por gastar dinero; *pratilabdhamānaḥ*—obtener disfrute sexual; *balāt*—por la fuerza; *vilumpanti*—raptada; *atha*—a continuación; *tam*—al objeto de disfrute sensual (la mujer); *tataḥ*—de él; *anye*—otro libertino.

@@ -1,13 +1,13 @@
 ### CC Adi 5.72
 
-> ক্বাহং তমো-মহদহং-খ-চরাগ্নিবার্ভূ-
-> সংবেষ্টিতাণ্ডঘট-সপ্তবিতস্তিকায়ঃ ।
-> ক্বেদৃগ্বিধাঽবিগণিতাণ্ডপরাণুচর্যা-
+> ক্বাহং তমো-মহদহং-খ-চরাগ্নিবার্ভূ-\
+> সংবেষ্টিতাণ্ডঘট-সপ্তবিতস্তিকায়ঃ ।\
+> ক্বেদৃগ্বিধাঽবিগণিতাণ্ডপরাণুচর্যা-\
 > বাতাধ্বরোমবিবরস্য চ তে মহিত্বম্ ॥৭২॥
 
-> kvāhaṁ tamo-mahad-ahaṁ-kha-carāgni-vār-bhū-
-> saṁveṣṭitāṇḍa-ghaṭa-sapta-vitasti-kāyaḥ
-> kvedṛg-vidhāvigaṇitāṇḍa-parāṇu-caryā-
+> kvāhaṁ tamo-mahad-ahaṁ-kha-carāgni-vār-bhū-\
+> saṁveṣṭitāṇḍa-ghaṭa-sapta-vitasti-kāyaḥ\
+> kvedṛg-vidhāvigaṇitāṇḍa-parāṇu-caryā-\
 > vātādhva-roma-vivarasya ca te mahitvam
 
 *kva*—dónde; *aham*—yo; *tamaḥ*—la naturaleza material; *mahat*—la energía material total; *aham*—ego falso; *kha*—éter; *cara*—aire; *agni*—fuego; *vāḥ*—agua; *bhū*—tierra; *saṁveṣṭita*—rodeado por; *aṇḍa-ghaṭa*—un universo semejante a una vasija; *sapta-vitasti*—siete *vitastis*; *kāyaḥ*—cuerpo; *kva*—dónde; *īdṛk*—tal; *vidha*—como; *avigaṇita*—ilimitados; *aṇḍa*—universos; *para-aṇu-caryā*—moviéndose como polvo atómico; *vāta-adhva*—los conductos de aire; *roma*—del vello del cuerpo; *vivarasya*—de los poros; *ca*—también; *te*—Tu; *mahitvam*—grandeza.

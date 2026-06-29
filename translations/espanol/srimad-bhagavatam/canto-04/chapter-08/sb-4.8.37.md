@@ -1,11 +1,11 @@
 ### SB 4.8.37
 
-> पदं त्रिभुवनोत्कृष्टं जिगीषोः साधु वर्त्म मे ।
+> पदं त्रिभुवनोत्कृष्टं जिगीषोः साधु वर्त्म मे ।\
 > ब्रूह्यस्मत्पितृभिर्ब्रह्मन्नन्यैरप्यनधिष्ठितम् ॥३७॥
 
-> padaṁ tri-bhuvanotkṛṣṭaṁ
-> jigīṣoḥ sādhu vartma me
-> brūhy asmat-pitṛbhir brahmann
+> padaṁ tri-bhuvanotkṛṣṭaṁ\
+> jigīṣoḥ sādhu vartma me\
+> brūhy asmat-pitṛbhir brahmann\
 > anyair apy anadhiṣṭhitam
 
 *padam*—posición; *tri-bhuvana*—los tres mundos; *utkṛṣṭam*—la mejor; *jigīṣoḥ*—deseoso; *sādhu*—honesta; *vartma*—vía; *me*—a mí; *brūhi*—por favor, dime; *asmat*—nuestros; *pitṛbhiḥ*—por los antepasados, el padre y el abuelo; *brahman*—¡oh, gran *brāhmaṇa*!; *anyaiḥ*—por otros; *api*—incluso; *anadhiṣṭhitam*—no adquirida.

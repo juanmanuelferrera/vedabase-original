@@ -1,14 +1,14 @@
 ### SB 6.19.13
 
-> गुणव्यक्तिरियं देवी व्यञ्जको गुणभुग्भवान
-> त्वं हि सर्वशरीर्यात्मा श्रीः शरीरेन्द्रियाशयाः
+> गुणव्यक्तिरियं देवी व्यञ्जको गुणभुग्भवान\
+> त्वं हि सर्वशरीर्यात्मा श्रीः शरीरेन्द्रियाशयाः\
 > नामरूपे भगवती प्रत्ययस्त्वमपाश्रयः ॥१३॥
 
-> guṇa-vyaktir iyaṁ devī
-> vyañjako guṇa-bhug bhavān
-> tvaṁ hi sarva-śarīry ātmā
-> śrīḥ śarīrendriyāśayāḥ
-> nāma-rūpe bhagavatī
+> guṇa-vyaktir iyaṁ devī\
+> vyañjako guṇa-bhug bhavān\
+> tvaṁ hi sarva-śarīry ātmā\
+> śrīḥ śarīrendriyāśayāḥ\
+> nāma-rūpe bhagavatī\
 > pratyayas tvam apāśrayaḥ
 
 *guṇa-vyaktiḥ*—el receptáculo de actividades; *iyam*—esta; *devī*—diosa; *vyañjakaḥ*—quien manifiesta; *guṇa-bhuk*—el disfrutador de las cualidades; *bhavān*—Tú; *tvam*—Tú; *hi*—en verdad; *sarva-śarīrī ātmā*—la Superalma de todas las entidades vivientes; *śrīḥ*—la diosa de la fortuna; *śarīra*—el cuerpo; *indriya*—los sentidos; *āśayāḥ*—y la mente; *nāma*—nombre; *rūpe*—y forma; *bhagavatī*—Lakṣmī; *pratyayaḥ*—la causa de la manifestación; *tvam*—Tú; *apāśrayaḥ*—el sostén.

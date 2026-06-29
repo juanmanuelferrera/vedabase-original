@@ -1,11 +1,11 @@
 ### SB 4.19.13
 
-> अत्रिणा चोदितो हन्तुं पृथुपुत्रो महारथः ।
+> अत्रिणा चोदितो हन्तुं पृथुपुत्रो महारथः ।\
 > अन्वधावत सङ्क्रुद्धस्तिष्ठ तिष्ठेति चाब्रवीत् ॥१३॥
 
-> atriṇā codito hantuṁ
-> pṛthu-putro mahā-rathaḥ
-> anvadhāvata saṅkruddhas
+> atriṇā codito hantuṁ\
+> pṛthu-putro mahā-rathaḥ\
+> anvadhāvata saṅkruddhas\
 > tiṣṭha tiṣṭheti cābravīt
 
 *atriṇā*—por el gran sabio Atri; *coditaḥ*—siendo incitado; *hantum*—para matar; *pṛthu-putraḥ*—el hijo del rey Pṛthu; *mahā-rathaḥ*—un gran héroe; *anvadhāvata*—siguió; *saṅkruddhaḥ*—estando muy iracundo; *tiṣṭha tiṣṭha*—espera, espera; *iti*—de este modo; *ca*—también; *abravīt*—él dijo.

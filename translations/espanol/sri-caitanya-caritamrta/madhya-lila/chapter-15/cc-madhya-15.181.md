@@ -1,9 +1,9 @@
 ### CC Madhya 15.181
 
-> এই মত সর্বভক্তের কহি’ সব গুণ ।
+> এই মত সর্বভক্তের কহি’ সব গুণ ।\
 > সবারে বিদায় দিল করি’ আলিঙ্গন ॥১৮১॥
 
-> ei mata sarva-bhaktera kahi' saba guṇa
+> ei mata sarva-bhaktera kahi' saba guṇa\
 > sabāre vidāya dila kari' āliṅgana
 
 *ei mata*—de esta manera; *sarva-bhaktera*—de todos los devotos; *kahi'*—describiendo; *saba guṇa*—todas las buenas cualidades; *sabāre*—a todos; *vidāya dila*—se despidió; *kari' āliṅgana*—abrazando.

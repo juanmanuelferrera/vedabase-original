@@ -1,11 +1,11 @@
 ### SB 7.4.45
 
-> पुत्रान्विप्रतिकूलान्स्वान्पितरः पुत्रवत्सलाः
+> पुत्रान्विप्रतिकूलान्स्वान्पितरः पुत्रवत्सलाः\
 > उपालभन्ते शिक्षार्थं नैवाघमपरो यथा ॥४५॥
 
-> putrān vipratikūlān svān
-> pitaraḥ putra-vatsalāḥ
-> upālabhante śikṣārthaṁ
+> putrān vipratikūlān svān\
+> pitaraḥ putra-vatsalāḥ\
+> upālabhante śikṣārthaṁ\
 > naivāgham aparo yathā
 
 *putrān*—hijos; *vipratikūlān*—que actúan en contra de la voluntad del padre; *svān*—sus propios; *pitaraḥ*—padres; *putra-vatsalāḥ*—que sienten mucho cariño por los hijos; *upālabhante*—castigan; *śikṣa-artham*—para darles una lección; *na*—no; *eva*—en verdad; *agham*—castigo; *aparaḥ*—un enemigo; *yathā*—como.

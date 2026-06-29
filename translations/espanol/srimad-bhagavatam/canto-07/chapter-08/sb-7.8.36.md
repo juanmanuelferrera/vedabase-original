@@ -1,11 +1,11 @@
 ### SB 7.8.36
 
-> तदा विमानावलिभिर्नभस्तलं दिदृक्षतां सङ्कुलमास नाकिनाम
+> तदा विमानावलिभिर्नभस्तलं दिदृक्षतां सङ्कुलमास नाकिनाम\
 > सुरानका दुन्दुभयोऽथ जघ्निरे गन्धर्वमुख्या ननृतुर्जगुः स्त्रियः ॥३६॥
 
-> tadā vimānāvalibhir nabhastalaṁ
-> didṛkṣatāṁ saṅkulam āsa nākinām
-> surānakā dundubhayo 'tha jaghnire
+> tadā vimānāvalibhir nabhastalaṁ\
+> didṛkṣatāṁ saṅkulam āsa nākinām\
+> surānakā dundubhayo 'tha jaghnire\
 > gandharva-mukhyā nanṛtur jaguḥ striyaḥ
 
 *tadā*—en aquel momento; *vimāna-āvalibhiḥ*—con distintos tipos de aviones; *nabhastalam*—el cielo; *didṛkṣatām*—deseosos de ver; *saṅkulam*—en multitud; *āsa*—fueron; *nākinām*—de los semidioses; *sura-ānakāḥ*—los tambores de los semidioses; *dundubhayaḥ*—los timbales; *atha*—también; *jaghnire*—fueron tocados; *gandharva-mukhyāḥ*—los jefes de Gandharvaloka; *nanṛtuḥ*—comenzaron a danzar; *jaguḥ*—cantar; *striyaḥ*—cortesanas celestiales.

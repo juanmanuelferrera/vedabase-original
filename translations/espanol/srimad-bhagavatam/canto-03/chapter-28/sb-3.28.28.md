@@ -1,13 +1,13 @@
 ### SB 3.28.28
 
-> कौमोदकीं भगवतो दयितां स्मरेत
-> दिग्धामरातिभटशोणितकर्दमेन ।
-> मालां मधुव्रतवरूथगिरोपघुष्टां
+> कौमोदकीं भगवतो दयितां स्मरेत\
+> दिग्धामरातिभटशोणितकर्दमेन ।\
+> मालां मधुव्रतवरूथगिरोपघुष्टां\
 > चैत्यस्य तत्त्वममलं मणिमस्य कण्ठे ॥२८॥
 
-> kaumodakīṁ bhagavato dayitāṁ smareta
-> digdhām arāti-bhaṭa-śoṇita-kardamena
-> mālāṁ madhuvrata-varūtha-giropaghuṣṭāṁ
+> kaumodakīṁ bhagavato dayitāṁ smareta\
+> digdhām arāti-bhaṭa-śoṇita-kardamena\
+> mālāṁ madhuvrata-varūtha-giropaghuṣṭāṁ\
 > caityasya tattvam amalaṁ maṇim asya kaṇṭhe
 
 *kaumodakīm*—la maza llamada Kaumodakī; *bhagavataḥ*—para la Personalidad de Dios; *dayitām*—muy querida; *smareta*—debe recordar; *digdhām*—untada; *arāti*—de los enemigos; *bhaṭa*—soldados; *śoṇita-kardamena*—con las manchas de sangre; *mālām*—el collar de flores; *madhuvrata*—de abejorros; *varūtha*—de un enjambre; *girā*—con el sonido; *upaghuṣṭām*—rodeado; *caityasya*—de la entidad viviente; *tattvam*—principio, verdad; *amalam*—pura; *maṇim*—el collar de perlas; *asya*—del Señor; *kaṇṭhe*—en el cuello.

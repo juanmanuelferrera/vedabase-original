@@ -1,11 +1,11 @@
 ### SB 4.12.30
 
-> तदोत्तानपदः पुत्रो ददर्शान्तकमागतम् ।
+> तदोत्तानपदः पुत्रो ददर्शान्तकमागतम् ।\
 > मृत्योर्मूर्ध्नि पदं दत्त्वा आरुरोहाद्भुतं गृहम् ॥३०॥
 
-> tadottānapadaḥ putro
-> dadarśāntakam āgatam
-> mṛtyor mūrdhni padaṁ dattvā
+> tadottānapadaḥ putro\
+> dadarśāntakam āgatam\
+> mṛtyor mūrdhni padaṁ dattvā\
 > ārurohādbhutaṁ gṛham
 
 *tadā*—entonces; *uttānapadaḥ*—del rey Uttānapāda; *putraḥ*—hijo; *dadarśa*—pudo ver; *antakam*—a la personificación de la muerte; *āgatam*—se dirigía hacia él; *mṛtyoḥ mūrdhni*—en la cabeza de la muerte; *padam*—pies; *dattvā*—poniendo; *āruroha*—subió; *adbhutam*—maravilloso; *gṛham*—al avión, que parecía una gran casa.

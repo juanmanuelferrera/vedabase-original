@@ -1,9 +1,9 @@
 ### CC Madhya 13.113
 
-> “সেই ত পরাণ-নাথ পাইনু ।
+> “সেই ত পরাণ-নাথ পাইনু ।\
 > যাহা লাগি’ মদন-দহনে ঝুরি’ গেনু ।।” ১১৩ ।। ধ্রু ।। ॥১১৩॥
 
-> "sei ta parāṇa-nātha pāinu
+> "sei ta parāṇa-nātha pāinu\
 > yāhā lāgi' madana-dahane jhuri' genu"
 
 *sei ta*—en verdad ese; *parāṇa-nātha*—el Señor de Mi vida; *pāinu*—he conseguido; *yāhā lāgi'*—por quien; *madana-dahane*—quemándome por Cupido; *jhuri' genu*—me consumí.

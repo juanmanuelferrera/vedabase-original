@@ -1,13 +1,13 @@
 ### SB 3.16.22
 
-> धर्मस्य ते भगवतस्त्रियुग त्रिभिः स्वैः
-> पद्भिश्चराचरमिदं द्विजदेवतार्थम् ।
-> नूनं भृतं तदभिघाति रजस्तमश्च
+> धर्मस्य ते भगवतस्त्रियुग त्रिभिः स्वैः\
+> पद्भिश्चराचरमिदं द्विजदेवतार्थम् ।\
+> नूनं भृतं तदभिघाति रजस्तमश्च\
 > सत्त्वेन नो वरदया तनुवा निरस्य ॥२२॥
 
-> dharmasya te bhagavatas tri-yuga tribhiḥ svaiḥ
-> padbhiś carācaram idaṁ dvija-devatārtham
-> nūnaṁ bhṛtaṁ tad-abhighāti rajas tamaś ca
+> dharmasya te bhagavatas tri-yuga tribhiḥ svaiḥ\
+> padbhiś carācaram idaṁ dvija-devatārtham\
+> nūnaṁ bhṛtaṁ tad-abhighāti rajas tamaś ca\
 > sattvena no varadayā tanuvā nirasya
 
 *dharmasya*—of the personification of all religion; *te*—of You; *bhagavataḥ*—of the Supreme Personality of Godhead; *tri-yuga*—You who are manifest in all three millenniums; *tribhiḥ*—by three; *svaiḥ*—Your own; *padbhiḥ*—feet; *cara-acaram*—animate and inanimate; *idam*—this universe; *dvija*—the twice-born; *devatā*—the demigods; *artham*—for the sake of; *nūnam*—however; *bhṛtam*—protected; *tat*—those feet; *abhighāti*—destroying; *rajaḥ*—the mode of passion; *tamaḥ*—the mode of ignorance; *ca*—and; *sattvena*—of pure goodness; *naḥ*—unto us; *vara-dayā*—bestowing all blessings; *tanuvā*—by Your transcendental form; *nirasya*—driving away.

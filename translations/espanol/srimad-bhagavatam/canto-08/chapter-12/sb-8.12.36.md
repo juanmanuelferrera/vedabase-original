@@ -1,11 +1,11 @@
 ### SB 8.12.36
 
-> अथावगतमाहात्म्य आत्मनो जगदात्मनः
+> अथावगतमाहात्म्य आत्मनो जगदात्मनः\
 > अपरिज्ञएयवीर्यस्य न मेने तदु हाद्भुतम ॥३६॥
 
-> athāvagata-māhātmya
-> ātmano jagad-ātmanaḥ
-> aparijñeya-vīryasya
+> athāvagata-māhātmya\
+> ātmano jagad-ātmanaḥ\
+> aparijñeya-vīryasya\
 > na mene tad u hādbhutam
 
 *atha*—así; *avagata*—completamente convencido acerca de; *māhātmyaḥ*—la grandeza; *ātmanaḥ*—de él mismo; *jagat-ātmanaḥ*—y de la Suprema Personalidad de Dios; *aparijñeya-vīryasya*—que posee ilimitada potencia; *na*—no; *mene*—consideró; *tat*—las milagrosas actividades de la Suprema Personalidad de Dios, que le había confundido; *u ha*—ciertamente; *adbhutam*—maravillosas.​​​​​​​.

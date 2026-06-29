@@ -2,7 +2,7 @@
 
 > “অধম, পামর মুই হীন জীবাধম ! মোর ইচ্ছা হয় — পাঙ চৈতন্য-চরণ ॥১২৮॥
 
-> "adhama, pāmara mui hīna jīvādhama!
+> "adhama, pāmara mui hīna jīvādhama!\
 > mora icchā haya--pāṅa caitanya-caraṇa
 
 *adhama*—el más caído; *pāmara*—el más pecaminoso; *mui*—yo; *hīna*—condenado; *jīva-adhama*—el más bajo de todos los seres vivientes; *mora*—mi; *icchā*—deseo; *haya*—es; *pāṅa*—pueda obtener; *caitanya-caraṇa*—el refugio de los pies de loto de Śrī Caitanya Mahāprabhu.

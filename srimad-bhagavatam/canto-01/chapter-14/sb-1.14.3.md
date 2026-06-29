@@ -1,11 +1,11 @@
 ### SB 1.14.3
 
-> कालस्य च गतिं रौद्रां विपर्यस्तर्तुधर्मिणः ।
+> कालस्य च गतिं रौद्रां विपर्यस्तर्तुधर्मिणः ।\
 > पापीयसीं नृणां वार्तां क्रोधलोभानृतात्मनाम् ॥३॥
 
-> kālasya ca gatiṁ raudrāṁ
-> viparyastartu-dharmiṇaḥ
-> pāpīyasīṁ nṛṇāṁ vārtāṁ
+> kālasya ca gatiṁ raudrāṁ\
+> viparyastartu-dharmiṇaḥ\
+> pāpīyasīṁ nṛṇāṁ vārtāṁ\
 > krodha-lobhānṛtātmanām
 
 *kālasya*—of eternal time; *ca*—also; *gatim*—direction; *raudrām*—fearful; *viparyasta*—reversed; *ṛtu*—seasonal; *dharmiṇaḥ*—regularities; *pāpīyasīm*—sinful; *nṛṇām*—of the human being; *vārtām*—means of livelihood; *krodha*—anger; *lobha*—greed; *anṛta*—falsehood; *ātmanām*—of the people.

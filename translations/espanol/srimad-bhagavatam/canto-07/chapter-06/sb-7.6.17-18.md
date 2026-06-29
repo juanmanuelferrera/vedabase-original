@@ -1,18 +1,18 @@
 ### SB 7.6.17-18
 
-> यतो न कश्चित्क्व च कुत्रचिद्वा दीनः स्वमात्मानमलं समर्थः
-> विमोचितुं कामदृशां विहार क्रीडामृगो यन्निगडो विसर्गः ॥१७॥
-> ततो विदूरात्परिहृत्य दैत्या दैत्येषु सङ्गं विषयात्मकेषु
+> यतो न कश्चित्क्व च कुत्रचिद्वा दीनः स्वमात्मानमलं समर्थः\
+> विमोचितुं कामदृशां विहार क्रीडामृगो यन्निगडो विसर्गः ॥१७॥\
+> ततो विदूरात्परिहृत्य दैत्या दैत्येषु सङ्गं विषयात्मकेषु\
 > उपेत नारायणमादिदेवं स मुक्तसङ्गैरिषितोऽपवर्गः ॥१८॥
 
-> yato na kaścit kva ca kutracid vā
-> dīnaḥ svam ātmānam alaṁ samarthaḥ
-> vimocituṁ kāma-dṛśāṁ vihāra-
+> yato na kaścit kva ca kutracid vā\
+> dīnaḥ svam ātmānam alaṁ samarthaḥ\
+> vimocituṁ kāma-dṛśāṁ vihāra-\
 > krīḍā-mṛgo yan-nigaḍo visargaḥ
 
-> tato vidūrāt parihṛtya daityā
-> daityeṣu saṅgaṁ viṣayātmakeṣu
-> upeta nārāyaṇam ādi-devaṁ
+> tato vidūrāt parihṛtya daityā\
+> daityeṣu saṅgaṁ viṣayātmakeṣu\
+> upeta nārāyaṇam ādi-devaṁ\
 > sa mukta-saṅgair iṣito 'pavargaḥ
 
 *yataḥ*—debido a; *na*—nunca; *kaścit*—nadie; *kva*—en ningún lugar; *ca*—también; *kutracit*—en ningún momento; *vā*—o; *dīnaḥ*—de escaso conocimiento; *svam*—propio; *ātmānam*—ser; *alam*—en exceso; *samarthaḥ*—capaz; *vimocitum*—liberarse; *kāma-dṛśām*—de mujeres lujuriosas; *vihāra*—en el disfrute sexual; *krīḍā-mṛgaḥ*—un donjuán; *yat*—en quien; *nigaḍaḥ*—que son los grilletes del cautiverio material; *visargaḥ*—las expansiones de las relaciones familiares; *tataḥ*—en esas circunstancias; *vidūrāt*—de muy lejos; *parihṛtya*—abandonar; *daityāḥ*—¡oh, amigos míos, hijos de los demonios!; *daityeṣu*—entre los demonios; *saṅgam*—compañía; *viṣaya-ātma-keṣu*—adictos en exceso al disfrute de los sentidos; *upeta*—debemos acudir; *nārāyaṇam*—al Señor Nārāyaṇa, la Suprema Personalidad de Dios; *ādi-devam*—el origen de todos los semidioses; *saḥ*—Él; *mukta-saṅgaiḥ*—con la compañía de personas liberadas; *iṣitaḥ*—deseada; *apavargaḥ*—la senda de la liberación.

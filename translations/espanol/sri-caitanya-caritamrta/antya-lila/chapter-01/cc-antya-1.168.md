@@ -1,13 +1,13 @@
 ### CC Antya 1.168
 
-> মহেন্দ্রমণিমণ্ডলীমদবিড়ম্বিদেহদ্যুতি-
-> র্ব্রজেন্দ্রকুলচন্দ্রমাঃ স্ফুরতি কোঽপি নব্যো যুবা ।
-> সখি স্থিরকুলাঙ্গনা-নিকর-নীবি-বন্ধার্গল-
+> মহেন্দ্রমণিমণ্ডলীমদবিড়ম্বিদেহদ্যুতি-\
+> র্ব্রজেন্দ্রকুলচন্দ্রমাঃ স্ফুরতি কোঽপি নব্যো যুবা ।\
+> সখি স্থিরকুলাঙ্গনা-নিকর-নীবি-বন্ধার্গল-\
 > চ্ছিদাকরণ-কৌতুকী জয়তি যস্য বংশীধ্বনিঃ ॥১৬৮॥
 
-> mahendra-maṇi-maṇḍalī-mada-viḍambi-deha-dyutir
-> vrajendra-kula-candramāḥ sphurati ko 'pi navyo yuvā
-> sakhi sthira-kulāṅganā-nikara-nīvi-bandhārgala-
+> mahendra-maṇi-maṇḍalī-mada-viḍambi-deha-dyutir\
+> vrajendra-kula-candramāḥ sphurati ko 'pi navyo yuvā\
+> sakhi sthira-kulāṅganā-nikara-nīvi-bandhārgala-\
 > cchidākaraṇa-kautukī jayati yasya vaṁśī-dhvaniḥ
 
 *mahendra-maṇi*—de joyas del nombre mahendra-maṇi; *maṇḍalī*—de conjuntos; *mada-viḍambi*—que derrota el orgullo; *deha-dyutiḥ*—aquel cuyo resplandor corporal; *vrajendra-kula-candramāḥ*—la luna de la familia de Vrajarāja (Nanda Mahārāja); *sphurati*—se manifiesta; *kaḥ api*—algún; *navyaḥ yuvā*—persona recién llegada a la juventud; *sakhi*—¡oh, querida amiga mía!; *sthira*—firmes; *kula-aṅganā*—de damas de familia; *nikara*—de grupos; *nīvi-bandha-argala*—de los impedimentos como vestidos ceñidos y cinturones; *cchidā-karaṇa*—al causar el corte; *kautukī*—muy astuto; *jayati*—¡todas las glorias!; *yasya*—de quien; *vaṁśī-dhvaniḥ*—a la vibración de la flauta.

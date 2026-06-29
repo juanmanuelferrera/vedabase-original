@@ -1,11 +1,11 @@
 ### SB 4.14.6
 
-> न यष्टव्यं न दातव्यं न होतव्यं द्विजाः क्वचित् ।
+> न यष्टव्यं न दातव्यं न होतव्यं द्विजाः क्वचित् ।\
 > इति न्यवारयद्धर्मं भेरीघोषेण सर्वशः ॥६॥
 
-> na yaṣṭavyaṁ na dātavyaṁ
-> na hotavyaṁ dvijāḥ kvacit
-> iti nyavārayad dharmaṁ
+> na yaṣṭavyaṁ na dātavyaṁ\
+> na hotavyaṁ dvijāḥ kvacit\
+> iti nyavārayad dharmaṁ\
 > bherī-ghoṣeṇa sarvaśaḥ
 
 *na*—no; *yaṣṭavyam*—no se puede celebrar ningún sacrificio; *na*—no; *dātavyam*—no se puede dar nada en caridad; *na*—no; *hotavyam*—no se puede ofrecer mantequilla clarificada; *dvijāḥ*—¡oh, nacido por segunda vez!; *kvacit*—en ningún momento; *iti*—de este modo; *nyavārayat*—detuvo; *dharmam*—los procedimientos de los principios religiosos; *bherī*—de timbales; *ghoṣeṇa*—con el sonido; *sarvaśaḥ*—por todas partes.

@@ -1,11 +1,11 @@
 ### SB 3.26.47
 
-> नभोगुणविशेषोऽर्थो यस्य तच्छ्रोत्रमुच्यते ।
+> नभोगुणविशेषोऽर्थो यस्य तच्छ्रोत्रमुच्यते ।\
 > वायोर्गुणविशेषोऽर्थो यस्य तत्स्पर्शनं विदुः ॥४७॥
 
-> nabho-guṇa-viśeṣo 'rtho
-> yasya tac chrotram ucyate
-> vāyor guṇa-viśeṣo 'rtho
+> nabho-guṇa-viśeṣo 'rtho\
+> yasya tac chrotram ucyate\
+> vāyor guṇa-viśeṣo 'rtho\
 > yasya tat sparśanaṁ viduḥ
 
 *nabhaḥ-guṇa-viśeṣaḥ*—the distinctive characteristic of sky (sound); *arthaḥ*—object of perception; *yasya*—whose; *tat*—that; *śrotram*—the auditory sense; *ucyate*—is called; *vāyoḥ guṇa-viśeṣaḥ*—the distinctive characteristic of air (touch); *arthaḥ*—object of perception; *yasya*—whose; *tat*—that; *sparśanam*—the tactile sense; *viduḥ*—they know.

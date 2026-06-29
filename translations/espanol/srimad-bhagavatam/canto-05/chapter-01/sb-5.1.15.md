@@ -1,11 +1,11 @@
 ### SB 5.1.15
 
-> ईशाभिसृष्टं ह्यवरुन्ध्महेऽङ्ग दुःखं सुखं वा गुणकर्मसङ्गात
+> ईशाभिसृष्टं ह्यवरुन्ध्महेऽङ्ग दुःखं सुखं वा गुणकर्मसङ्गात\
 > आस्थाय तत्तद्यदयुङ्क्त नाथश्चक्षुष्मतान्धा इव नीयमानाः ॥१५॥
 
-> īśābhisṛṣṭaṁ hy avarundhmahe 'ṅga
-> duḥkhaṁ sukhaṁ vā guṇa-karma-saṅgāt
-> āsthāya tat tad yad ayuṅkta nāthaś
+> īśābhisṛṣṭaṁ hy avarundhmahe 'ṅga\
+> duḥkhaṁ sukhaṁ vā guṇa-karma-saṅgāt\
+> āsthāya tat tad yad ayuṅkta nāthaś\
 > cakṣuṣmatāndhā iva nīyamānāḥ
 
 *īśa-abhisṛṣṭam*—creado o dado por el Señor; *hi*—ciertamente; *avarundhmahe*—tenemos que aceptar; *aṅga*—mi querido Priyavrata; *duḥkham*—aflicción; *sukham*—felicidad; *vā*—o; *guṇa-karma*—con cualidad y actividad; *saṅgāt*—por contacto; *āsthāya*—situados en; *tat tat*—esa condición; *yat*—cuerpo que; *ayuṅkta*—Él dio; *nāthaḥ*—el Señor Supremo; *cakṣuṣmatā*—por una persona con ojos; *andhāḥ*—hombres ciegos; *iva*—como; *nīyamānāḥ*—guiados.

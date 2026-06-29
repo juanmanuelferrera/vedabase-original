@@ -1,9 +1,9 @@
 ### CC Antya 20.124
 
-> তার মধ্যে প্রভুর সিংহদ্বারে পতন ।
+> তার মধ্যে প্রভুর সিংহদ্বারে পতন ।\
 > অস্থি-সন্ধি-ত্যাগ, অনুভাবের উদ্গম ॥১২৪॥
 
-> tāra madhye prabhura siṁha-dvāre patana
+> tāra madhye prabhura siṁha-dvāre patana\
 > asthi-sandhi-tyāga, anubhāvera udgama
 
 *tāra madhye*—en ese capítulo; *prabhura*—de Śrī Caitanya Mahāprabhu; *siṁha-dvāre patana*—la caída junto a la puerta de Siṁha-dvāra; *asthi-sandhi*—de las articulaciones de los huesos; *tyāga*—separación; *anubhāvera udgama*—el despertar de un trance y emoción.

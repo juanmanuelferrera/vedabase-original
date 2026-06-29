@@ -1,11 +1,11 @@
 ### SB 3.21.10
 
-> किरीटिनं कुण्डलिनं शङ्खचक्रगदाधरम् ।
+> किरीटिनं कुण्डलिनं शङ्खचक्रगदाधरम् ।\
 > श्वेतोत्पलक्रीडनकं मनःस्पर्शस्मितेक्षणम् ॥१०॥
 
-> kirīṭinaṁ kuṇḍalinaṁ
-> śaṅkha-cakra-gadā-dharam
-> śvetotpala-krīḍanakaṁ
+> kirīṭinaṁ kuṇḍalinaṁ\
+> śaṅkha-cakra-gadā-dharam\
+> śvetotpala-krīḍanakaṁ\
 > manaḥ-sparśa-smitekṣaṇam
 
 *kirīṭinam*—adornado con una corona; *kuṇḍalinam*—llevando pendientes; *śaṅkha*—concha; *cakra*—disco; *gadā*—maza; *dharam*—sosteniendo; *śveta*—blanco; *utpala*—nenúfar; *krīḍanakam*—juguete; *manaḥ*—corazón; *sparśa*—tocando; *smita*—sonriendo; *īkṣaṇam*—y mirando.

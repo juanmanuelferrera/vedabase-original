@@ -1,11 +1,11 @@
 ### SB 3.20.34
 
-> कासि कस्यासि रम्भोरु को वार्थस्तेऽत्र भामिनि ।
+> कासि कस्यासि रम्भोरु को वार्थस्तेऽत्र भामिनि ।\
 > रूपद्रविणपण्येन दुर्भगान्नो विबाधसे ॥३४॥
 
-> kāsi kasyāsi rambhoru
-> ko vārthas te 'tra bhāmini
-> rūpa-draviṇa-paṇyena
+> kāsi kasyāsi rambhoru\
+> ko vārthas te 'tra bhāmini\
+> rūpa-draviṇa-paṇyena\
 > durbhagān no vibādhase
 
 *kā*—quién; *asi*—eres tú; *kasya*—a quién perteneces; *asi*—eres tú; *rambhoru*—¡oh, hermosa!; *kaḥ*—qué; *vā*—o; *arthaḥ*—objetivo; *te*—tu; *atra*—aquí; *bhāmini*—¡oh, dama apasionada!; *rūpa*—belleza; *draviṇa*—sin precio; *paṇyena*—con la mercancía; *durbhagān*—desafortunados; *naḥ*—a nosotros; *vibādhase*—atormentas.

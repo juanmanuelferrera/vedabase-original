@@ -1,9 +1,9 @@
 ### CC Antya 2.87
 
-> ঘরে ভাত করি’ করেন বিবিধ ব্যঞ্জন ।
+> ঘরে ভাত করি’ করেন বিবিধ ব্যঞ্জন ।\
 > একলে গোসাঞি লঞা করান ভোজন ॥৮৭॥
 
-> ghare bhāta kari' karena vividha vyañjana
+> ghare bhāta kari' karena vividha vyañjana\
 > ekale gosāñi lañā karāna bhojana
 
 *ghare*—en casa; *bhāta kari'*—preparando arroz; *karena*—prepara; *vividha vyañjana*—diversas variedades de verduras; *ekale*—a solas; *gosāñi lañā*—llevando a Śrī Caitanya Mahāprabhu; *karāna bhojana*—Le hace comer.

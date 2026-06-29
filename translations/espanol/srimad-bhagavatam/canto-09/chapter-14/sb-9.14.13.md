@@ -1,11 +1,11 @@
 ### SB 9.14.13
 
-> ब्रह्मा तां रह आहूय समप्राक्षीच्च सान्त्वयन
+> ब्रह्मा तां रह आहूय समप्राक्षीच्च सान्त्वयन\
 > सोमस्येत्याह शनकैः सोमस्तं तावदग्रहीत ॥१३॥
 
-> brahmā tāṁ raha āhūya
-> samaprākṣīc ca sāntvayan
-> somasyety āha śanakaiḥ
+> brahmā tāṁ raha āhūya\
+> samaprākṣīc ca sāntvayan\
+> somasyety āha śanakaiḥ\
 > somas taṁ tāvad agrahīt
 
 *brahmā*—el Señor Brahmā; *tām*—a ella, Tārā; *rahaḥ*—a un lugar apartado; *āhūya*—llevándola; *samaprākṣīt*—preguntó en detalle; *ca*—y; *sāntvayan*—calmando; *somasya*—este hijo pertenece a Soma, el dios de la Luna; *iti*—así; *āha*—contestó ella; *śanakaiḥ*—muy despacio; *somaḥ*—Soma; *tam*—el niño; *tāvat*—inmediatamente; *agrahīt*—se encargó de.

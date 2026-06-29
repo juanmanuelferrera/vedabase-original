@@ -1,11 +1,11 @@
 ### Bg 9.27
 
-> यत्करोषि यदश्नासि यज्जुहोषि ददासि यत् ।
+> यत्करोषि यदश्नासि यज्जुहोषि ददासि यत् ।\
 > यत्तपस्यसि कौन्तेय तत्कुरुष्व मदर्पणम् ॥२७॥
 
-> yat karoṣi yad aśnāsi
-> yaj juhoṣi dadāsi yat
-> yat tapasyasi kaunteya
+> yat karoṣi yad aśnāsi\
+> yaj juhoṣi dadāsi yat\
+> yat tapasyasi kaunteya\
 > tat kuruṣva mad arpaṇam
 
 *yat*—que; *karoṣi*—hagas; *yat*—todo lo que; *aśnāsi*—comas; *yat*—todo lo que; *juhoṣi*—ofrezcas; *dadāsi*—regales; *yat*—todo lo que; *yat*—todo lo que; *tapasyasi*—austeridades que realices; *kaunteya*—¡oh, hijo de Kuntī!; *tat*—eso; *kuruṣva*—hazlo; *mat*—a Mí; *arpaṇam*—ofrenda.

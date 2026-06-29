@@ -1,9 +1,9 @@
 ### CC Adi 17.294
 
-> সেই ব্রজেশ্বর — ইহঁ জগন্নাথ পিতা ।
+> সেই ব্রজেশ্বর — ইহঁ জগন্নাথ পিতা ।\
 > সেই ব্রজেশ্বরী — ইহঁ শচীদেবী মাতা ॥২৯৪॥
 
-> sei vrajeśvara--ihaṅ jagannātha pitā
+> sei vrajeśvara--ihaṅ jagannātha pitā\
 > sei vrajeśvarī--ihaṅ śacīdevī mātā
 
 *sei*—ese; *vrajeśvara*—el rey de Vraja; *ihaṅ*—ahora; *jagannātha*—Jagannātha Miśra; *pitā*—el padre del Señor Caitanya Mahāprabhu; *sei*—esa; *vrajeśvarī*—la reina de Vraja; *ihaṅ*—ahora; *śacīdevī*—Śacīdevī; *mātā*—la madre de Śrī Caitanya Mahāprabhu.

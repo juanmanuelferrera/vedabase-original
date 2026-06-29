@@ -1,9 +1,9 @@
 ### CC Madhya 10.102
 
-> আর দিনে আইলা স্বরূপ দামোদর ।
+> আর দিনে আইলা স্বরূপ দামোদর ।\
 > প্রভুর অত্যন্ত মর্মী, রসের সাগর ॥১০২॥
 
-> āra dine āilā svarūpa dāmodara
+> āra dine āilā svarūpa dāmodara\
 > prabhura atyanta marmī, rasera sāgara
 
 *āra dine*—next day; *āilā*—came; *svarūpa dāmodara*—Svarūpa Dāmodara; *prabhura*—of Śrī Caitanya Mahāprabhu; *atyanta*—very; *marmī*—intimate friend; *rasera*—of transcendental mellows; *sāgara*—ocean.

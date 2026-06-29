@@ -1,9 +1,9 @@
 ### CC Adi 13.46
 
-> দামোদর-স্বরূপ, আর গুপ্ত মুরারি।
+> দামোদর-স্বরূপ, আর গুপ্ত মুরারি।\
 > মুখ্যমুখ্যলীলা সূত্রে লিখিয়াছে বিচারি’ ॥৪৬॥
 
-> dāmodara-svarūpa, āra gupta murāri
+> dāmodara-svarūpa, āra gupta murāri\
 > mukhya-mukhya-līlā sūtre likhiyāche vicāri'
 
 *dāmodara-svarūpa*—de nombre Svarūpa Dāmodara; *āra*—y; *gupta murāri*—de nombre Murāri Gupta; *mukhya-mukhya*—los más importantes; *līlā*—pasatiempos; *sūtre*—en notas; *likhiyāche*—han escrito; *vicāri'*—tras deliberación madura.

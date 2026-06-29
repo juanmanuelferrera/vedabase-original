@@ -1,11 +1,11 @@
 ### SB 3.1.13
 
-> स एष दोषः पुरुषद्विडास्ते गृहान्प्रविष्टो यमपत्यमत्या ।
+> स एष दोषः पुरुषद्विडास्ते गृहान्प्रविष्टो यमपत्यमत्या ।\
 > पुष्णासि कृष्णाद्विमुखो गतश्रीस्त्यजाश्वशैवं कुलकौशलाय ॥१३॥
 
-> sa eṣa doṣaḥ puruṣa-dviḍ āste
-> gṛhān praviṣṭo yam apatya-matyā
-> puṣṇāsi kṛṣṇād vimukho gata-śrīs
+> sa eṣa doṣaḥ puruṣa-dviḍ āste\
+> gṛhān praviṣṭo yam apatya-matyā\
+> puṣṇāsi kṛṣṇād vimukho gata-śrīs\
 > tyajāśv aśaivaṁ kula-kauśalāya
 
 *saḥ*—he; *eṣaḥ*—this; *doṣaḥ*—offense personified; *puruṣa-dviṭ*—envious of Lord Kṛṣṇa; *āste*—exists; *gṛhān*—household; *praviṣṭaḥ*—entered; *yam*—whom; *apatya-matyā*—thinking to be your son; *puṣṇāsi*—maintaining; *kṛṣṇāt*—from Kṛṣṇa; *vimukhaḥ*—in opposition; *gata-śrīḥ*—devoid of everything auspicious; *tyaja*—give up; *āśu*—as soon as possible; *aśaivam*—inauspicious; *kula*—family; *kauśalāya*—for the sake of.

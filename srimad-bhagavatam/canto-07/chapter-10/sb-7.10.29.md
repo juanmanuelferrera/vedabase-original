@@ -1,11 +1,11 @@
 ### SB 7.10.29
 
-> एतद्वपुस्ते भगवन्ध्यायतः परमात्मनः
+> एतद्वपुस्ते भगवन्ध्यायतः परमात्मनः\
 > सर्वतो गोप्तृ सन्त्रासान्मृत्योरपि जिघांसतः ॥२९॥
 
-> etad vapus te bhagavan
-> dhyāyataḥ paramātmanaḥ
-> sarvato goptṛ santrāsān
+> etad vapus te bhagavan\
+> dhyāyataḥ paramātmanaḥ\
+> sarvato goptṛ santrāsān\
 > mṛtyor api jighāṁsataḥ
 
 *etat*—this; *vapuḥ*—body; *te*—Your; *bhagavan*—O Supreme Personality of Godhead; *dhyāyataḥ*—those who meditate upon; *parama-ātmanaḥ*—of the Supreme Person; *sarvataḥ*—from everywhere; *goptṛ*—the protector; *santrāsāt*—from all kinds of fear; *mṛtyoḥ api*—even from fear of death; *jighāṁsataḥ*—if one is envied by an enemy.

@@ -1,9 +1,9 @@
 ### CC Adi 2.77
 
-> যৈছে কহি, — এই বিপ্র পরম পণ্ডিত ।
+> যৈছে কহি, — এই বিপ্র পরম পণ্ডিত ।\
 > বিপ্র — অনুবাদ, ইহার বিধেয় — পাণ্ডিত্য ॥৭৭॥
 
-> yaiche kahi,—ei vipra parama paṇḍita
+> yaiche kahi,—ei vipra parama paṇḍita\
 > vipra—anuvāda, ihāra vidheya—pāṇḍitya
 
 *yaiche*—just as; *kahi*—I say; *ei*—this; *vipra*—*brāhmaṇa*; *parama*—great; *paṇḍita*—learned man; *vipra*—the *brāhmaṇa*; *anuvāda*—subject; *ihāra*—of this; *vidheya*—predicate; *pāṇḍitya*—erudition.

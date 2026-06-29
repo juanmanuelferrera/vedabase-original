@@ -1,15 +1,15 @@
 ### SB 4.7.13
 
-> दक्ष उवाच
-> भूयाननुग्रह अहो भवता कृतो मे
-> दण्डस्त्वया मयि भृतो यदपि प्रलब्धः ।
-> न ब्रह्मबन्धुषु च वां भगवन्नवज्ञा
+> दक्ष उवाच\
+> भूयाननुग्रह अहो भवता कृतो मे\
+> दण्डस्त्वया मयि भृतो यदपि प्रलब्धः ।\
+> न ब्रह्मबन्धुषु च वां भगवन्नवज्ञा\
 > तुभ्यं हरेश्च कुत एव धृतव्रतेषु ॥१३॥
 
-> dakṣa uvāca
-> bhūyān anugraha aho bhavatā kṛto me
-> daṇḍas tvayā mayi bhṛto yad api pralabdhaḥ
-> na brahma-bandhuṣu ca vāṁ bhagavann avajñā
+> dakṣa uvāca\
+> bhūyān anugraha aho bhavatā kṛto me\
+> daṇḍas tvayā mayi bhṛto yad api pralabdhaḥ\
+> na brahma-bandhuṣu ca vāṁ bhagavann avajñā\
 > tubhyaṁ hareś ca kuta eva dhṛta-vrateṣu
 
 *dakṣaḥ*—el rey Dakṣa; *uvāca*—dijo; *bhūyān*—muy grande; *anugrahaḥ*—favor; *aho*—¡ay!; *bhavatā*—por ti; *kṛtaḥ*—hecho; *me*—a mí; *daṇḍaḥ*—castigo; *tvayā*—por ti; *mayi*—a mí; *bhṛtaḥ*—hecho; *yat api*—aunque; *pralabdhaḥ*—derrotado; *na*—ni; *brahma-bandhuṣu*—a un *brāhmaṇa* incompetente; *ca*—también; *vām*—ustedes dos; *bhagavan*—mi señor; *avajñā*—abandono; *tubhyam*—de ustedes; *hareḥ ca*—del Señor Viṣṇu; *kutaḥ*—donde; *eva*—ciertamente; *dhṛta-vrateṣu*—el que celebra un sacrificio.

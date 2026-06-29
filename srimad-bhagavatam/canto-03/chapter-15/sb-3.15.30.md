@@ -1,13 +1,13 @@
 ### SB 3.15.30
 
-> तान्वीक्ष्य वातरशनांश्चतुरः कुमारान्
-> वृद्धान्दशार्धवयसो विदितात्मतत्त्वान् ।
-> वेत्रेण चास्खलयतामतदर्हणांस्तौ
+> तान्वीक्ष्य वातरशनांश्चतुरः कुमारान्\
+> वृद्धान्दशार्धवयसो विदितात्मतत्त्वान् ।\
+> वेत्रेण चास्खलयतामतदर्हणांस्तौ\
 > तेजो विहस्य भगवत्प्रतिकूलशीलौ ॥३०॥
 
-> tān vīkṣya vāta-raśanāṁś caturaḥ kumārān
-> vṛddhān daśārdha-vayaso viditātma-tattvān
-> vetreṇa cāskhalayatām atad-arhaṇāṁs tau
+> tān vīkṣya vāta-raśanāṁś caturaḥ kumārān\
+> vṛddhān daśārdha-vayaso viditātma-tattvān\
+> vetreṇa cāskhalayatām atad-arhaṇāṁs tau\
 > tejo vihasya bhagavat-pratikūla-śīlau
 
 *tān*—them; *vīkṣya*—after seeing; *vāta-raśanān*—naked; *caturaḥ*—four; *kumārān*—boys; *vṛddhān*—aged; *daśa-ardha*—five years; *vayasaḥ*—appearing as of the age; *vidita*—had realized; *ātma-tattvān*—the truth of the self; *vetreṇa*—with their staffs; *ca*—also; *askhalayatām*—forbade; *a-tat-arhaṇān*—not deserving such from them; *tau*—those two porters; *tejaḥ*—glories; *vihasya*—disregarding the etiquette; *bhagavat-pratikūla-śīlau*—having a nature displeasing to the Lord.

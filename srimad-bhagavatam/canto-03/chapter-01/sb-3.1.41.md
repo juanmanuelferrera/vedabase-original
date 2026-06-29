@@ -1,11 +1,11 @@
 ### SB 3.1.41
 
-> सौम्यानुशोचे तमधःपतन्तं भ्रात्रे परेताय विदुद्रुहे यः ।
+> सौम्यानुशोचे तमधःपतन्तं भ्रात्रे परेताय विदुद्रुहे यः ।\
 > निर्यापितो येन सुहृत्स्वपुर्या अहं स्वपुत्रान्समनुव्रतेन ॥४१॥
 
-> saumyānuśoce tam adhaḥ-patantaṁ
-> bhrātre paretāya vidudruhe yaḥ
-> niryāpito yena suhṛt sva-puryā
+> saumyānuśoce tam adhaḥ-patantaṁ\
+> bhrātre paretāya vidudruhe yaḥ\
+> niryāpito yena suhṛt sva-puryā\
 > ahaṁ sva-putrān samanuvratena
 
 *saumya*—O gentle one; *anuśoce*—I lament; *tam*—him; *adhaḥ-patantam*—gliding down; *bhrātre*—on his brother's; *paretāya*—death; *vidudruhe*—revolted against; *yaḥ*—one who; *niryāpitaḥ*—driven out; *yena*—by whom; *suhṛt*—well-wisher; *sva-puryāḥ*—from his own house; *aham*—myself; *sva-putrān*—with his own sons; *samanu-vratena*—accepting the same line of action.

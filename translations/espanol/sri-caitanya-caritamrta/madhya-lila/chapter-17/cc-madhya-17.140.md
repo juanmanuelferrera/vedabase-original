@@ -1,11 +1,11 @@
 ### CC Madhya 17.140
 
-> আত্মারামাশ্চ মুনয়ো নির্গ্রন্থা অপ্যুরুক্রমে ।
+> আত্মারামাশ্চ মুনয়ো নির্গ্রন্থা অপ্যুরুক্রমে ।\
 > কুর্বন্ত্যহৈতুকীং ভক্তিমিত্থম্ভূতগুণো হরিঃ ॥১৪০॥
 
-> ātmārāmāś ca munayo
-> nirgranthā apy urukrame
-> kurvanty ahaitukīṁ bhaktim
+> ātmārāmāś ca munayo\
+> nirgranthā apy urukrame\
+> kurvanty ahaitukīṁ bhaktim\
 > ittham-bhūta-guṇo hariḥ
 
 *ātma-ārāmaḥ*—personas que se complacen en estar trascendentalmente situadas en el servicio del Señor; *ca*—también; *munayaḥ*—grandes personas santas que han rechazado completamente las aspiraciones materiales, las actividades fruitivas, etc.; *nirgranthāḥ*—sin interés en ningún deseo material; *api*—ciertamente; *urukrame*—a la Suprema Personalidad de Dios, Kṛṣṇa, cuyas actividades son maravillosas; *kurvanti*—ejecutan; *ahaitukīm*—sin causa, o sin deseos materiales; *bhaktim*—servicio devocional; *ittham-bhūta*—tan maravilloso como para atraer la atención de los autosatisfechos; *guṇaḥ*—quien posee cualidades trascendentales; *hariḥ*—la Suprema Personalidad de Dios.

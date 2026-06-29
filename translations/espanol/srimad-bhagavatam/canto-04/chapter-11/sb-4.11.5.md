@@ -1,11 +1,11 @@
 ### SB 4.11.5
 
-> स तान्पृषत्कैरभिधावतो मृधे निकृत्तबाहूरुशिरोधरोदरान् ।
+> स तान्पृषत्कैरभिधावतो मृधे निकृत्तबाहूरुशिरोधरोदरान् ।\
 > निनाय लोकं परमर्कमण्डलं व्रजन्ति निर्भिद्य यमूर्ध्वरेतसः ॥५॥
 
-> sa tān pṛṣatkair abhidhāvato mṛdhe
-> nikṛtta-bāhūru-śirodharodarān
-> nināya lokaṁ param arka-maṇḍalaṁ
+> sa tān pṛṣatkair abhidhāvato mṛdhe\
+> nikṛtta-bāhūru-śirodharodarān\
+> nināya lokaṁ param arka-maṇḍalaṁ\
 > vrajanti nirbhidya yam ūrdhva-retasaḥ
 
 *saḥ*—él (Dhruva Mahārāja); *tān*—a todos los *yakṣas*; *pṛṣatkaiḥ*—con sus flechas; *abhidhāvataḥ*—que avanzaban; *mṛdhe*—en el campo de batalla; *nikṛtta*—siendo separados; *bāhu*—brazos; *ūru*—muslos; *śiraḥ-dhara*—cuellos; *udarān*—y vientres; *nināya*—envió; *lokam*—al planeta; *param*—supremo; *arka-maṇḍalam*—el globo solar; *vrajanti*—ir; *nirbhidya*—hiriendo; *yam*—al cual; *ūrdhva-retasaḥ*—aquellos que nunca emiten semen.

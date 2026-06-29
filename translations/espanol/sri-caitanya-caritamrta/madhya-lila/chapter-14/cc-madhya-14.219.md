@@ -1,9 +1,9 @@
 ### CC Madhya 14.219
 
-> বৃন্দাবনে সাহজিক যে সম্পৎসিন্ধু ।
+> বৃন্দাবনে সাহজিক যে সম্পৎসিন্ধু ।\
 > দ্বারকা-বৈকুণ্ঠ-সম্পত্ — তার এক বিন্দু ॥২১৯॥
 
-> vṛndāvane sāhajika ye sampat-sindhu
+> vṛndāvane sāhajika ye sampat-sindhu\
 > dvārakā-vaikuṇṭha-sampat-tāra eka bindu
 
 *vṛndāvane*—en Vṛndāvana; *sāhajika*—natural; *ye*—cualquier; *sampat-sindhu*—océano de opulencia; *dvārakā*—de Dvārakā; *vaikuṇṭha-sampat*—toda la opulencia del mundo espiritual; *tāra*—de eso; *eka bindu*—una gota.

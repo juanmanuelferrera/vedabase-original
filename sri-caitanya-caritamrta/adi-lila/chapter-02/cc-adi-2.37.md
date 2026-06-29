@@ -1,9 +1,9 @@
 ### CC Adi 2.37
 
-> পৃথ্বী যৈছে ঘটকুলের কারণ আশ্রয় ।
+> পৃথ্বী যৈছে ঘটকুলের কারণ আশ্রয় ।\
 > জীবের নিদান তুমি, তুমি সর্বাশ্রয় ॥৩৭॥
 
-> pṛthvī yaiche ghaṭa-kulera kāraṇa āśraya
+> pṛthvī yaiche ghaṭa-kulera kāraṇa āśraya\
 > jīvera nidāna tumi, tumi sarvāśraya
 
 *pṛthvī*—the earth; *yaiche*—just as; *ghaṭa*—of earthen pots; *kulera*—of the multitude; *kāraṇa*—the cause; *āśraya*—the shelter; *jīvera*—of the living beings; *nidāna*—root cause; *tumi*—You; *tumi*—You; *sarva-āśraya*—shelter of all.

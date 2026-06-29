@@ -1,11 +1,11 @@
 ### SB 1.18.9
 
-> उपवर्णितमेतद्वः पुण्यं पारीक्षितं मया ।
+> उपवर्णितमेतद्वः पुण्यं पारीक्षितं मया ।\
 > वासुदेवकथोपेतमाख्यानं यदपृच्छत ॥९॥
 
-> upavarṇitam etad vaḥ
-> puṇyaṁ pārīkṣitaṁ mayā
-> vāsudeva-kathopetam
+> upavarṇitam etad vaḥ\
+> puṇyaṁ pārīkṣitaṁ mayā\
+> vāsudeva-kathopetam\
 > ākhyānaṁ yad apṛcchata
 
 *upavarṇitam*—almost everything described; *etat*—all these; *vaḥ*—unto you; *puṇyam*—pious; *pārīkṣitam*—about Mahārāja Parīkṣit; *mayā*—by me; *vāsudeva*—of Lord Kṛṣṇa; *kathā*—narrations; *upetam*—in connection with; *ākhyānam*—statements; *yat*—what; *apṛcchata*—you asked from me.

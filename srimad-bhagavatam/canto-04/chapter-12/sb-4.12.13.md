@@ -1,11 +1,11 @@
 ### SB 4.12.13
 
-> षट्त्रिंशद्वर्षसाहस्रं शशास क्षितिमण्डलम् ।
+> षट्त्रिंशद्वर्षसाहस्रं शशास क्षितिमण्डलम् ।\
 > भोगैः पुण्यक्षयं कुर्वन्नभोगैरशुभक्षयम् ॥१३॥
 
-> ṣaṭ-triṁśad-varṣa-sāhasraṁ
-> śaśāsa kṣiti-maṇḍalam
-> bhogaiḥ puṇya-kṣayaṁ kurvann
+> ṣaṭ-triṁśad-varṣa-sāhasraṁ\
+> śaśāsa kṣiti-maṇḍalam\
+> bhogaiḥ puṇya-kṣayaṁ kurvann\
 > abhogair aśubha-kṣayam
 
 *ṣaṭ-triṁśat*—thirty-six; *varṣa*—years; *sāhasram*—thousand; *śaśāsa*—ruled; *kṣiti-maṇḍalam*—the earth planet; *bhogaiḥ*—by enjoyment; *puṇya*—of reactions of pious activities; *kṣayam*—diminution; *kurvan*—doing; *abhogaiḥ*—by austerities; *aśubha*—of inauspicious reactions; *kṣayam*—diminution.

@@ -2,9 +2,9 @@
 
 > বৈক্লব্যবাষ্পকলয়া পুলকীকৃতাঙ্গাঃ ॥৮৮॥
 
-> yac ca vrajanty animiṣām ṛṣabhānuvṛttyā
-> dūre-yamā hy upari naḥ spṛhaṇīya-śīlāḥ
-> bhartur mithaḥ suyaśasaḥ kathanānurāga-
+> yac ca vrajanty animiṣām ṛṣabhānuvṛttyā\
+> dūre-yamā hy upari naḥ spṛhaṇīya-śīlāḥ\
+> bhartur mithaḥ suyaśasaḥ kathanānurāga-\
 > vaiklavya-bāṣpa-kalayā pulakīkṛtāṅgāḥ
 
 *yat*—al cual; *ca*—también; *vrajanti*—van; *animiṣām*—de los semidioses; *ṛṣabha-anuvṛttyā*—mediante la práctica de los mejores medios de vida espiritual; *dūre*—manteniendo a distancia; *yamāḥ*—los principios regulativos; *hi*—ciertamente; *upari*—por encima; *naḥ*—de nosotros; *spṛhaṇīya-śīlāḥ*—decorados con cualidades deseables; *bhartuḥ*—del amo; *mithaḥ*—mutuamente; *su-yaśasaḥ*—que posee todas las cualidades trascendentales; *kathana-anurāga*—atraídos por las conversaciones; *vaiklavya*—transformación; *bāṣpa-kalayā*—con lágrimas en los ojos; *pulakīkṛta*—júbilo; *aṅgāḥ*—miembros corporales.

@@ -1,11 +1,11 @@
 ### SB 5.12.13
 
-> यत्रोत्तमश्लोकगुणानुवादः प्रस्तूयते ग्राम्यकथाविघातः
+> यत्रोत्तमश्लोकगुणानुवादः प्रस्तूयते ग्राम्यकथाविघातः\
 > निषेव्यमाणोऽनुदिनं मुमुक्षोर्मतिं सतीं यच्छति वासुदेवे ॥१३॥
 
-> yatrottamaśloka-guṇānuvādaḥ
-> prastūyate grāmya-kathā-vighātaḥ
-> niṣevyamāṇo 'nudinaṁ mumukṣor
+> yatrottamaśloka-guṇānuvādaḥ\
+> prastūyate grāmya-kathā-vighātaḥ\
+> niṣevyamāṇo 'nudinaṁ mumukṣor\
 > matiṁ satīṁ yacchati vāsudeve
 
 *yatra*—in which place (in the presence of exalted devotees); *uttama-śloka-guṇa-anuvādaḥ*—discussion of the pastimes and glories of the Supreme Personality of Godhead; *prastūyate*—is presented; *grāmya-kathā-vighātaḥ*—due to which there is no chance of talking of worldly matters; *niṣevyamāṇaḥ*—being heard very seriously; *anudinam*—day after day; *mumukṣoḥ*—of persons who are very serious about getting out of material entanglement; *matim*—meditation; *satīm*—pure and simple; *yacchati*—is turned; *vāsudeve*—unto the lotus feet of Lord Vāsudeva.

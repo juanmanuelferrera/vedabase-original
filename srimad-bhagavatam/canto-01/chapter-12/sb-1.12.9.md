@@ -1,14 +1,14 @@
 ### SB 1.12.9
 
-> श्रीमद्दीर्घचतुर्बाहुं तप्तकाञ्चनकुण्डलम् ।
-> क्षतजाक्षं गदापाणिमात्मनः सर्वतो दिशम् ।
+> श्रीमद्दीर्घचतुर्बाहुं तप्तकाञ्चनकुण्डलम् ।\
+> क्षतजाक्षं गदापाणिमात्मनः सर्वतो दिशम् ।\
 > परिभ्रमन्तमुल्काभां भ्रामयन्तं गदां मुहुः ॥९॥
 
-> śrīmad-dīrgha-catur-bāhuṁ
-> tapta-kāñcana-kuṇḍalam
-> kṣatajākṣaṁ gadā-pāṇim
-> ātmanaḥ sarvato diśam
-> paribhramantam ulkābhāṁ
+> śrīmad-dīrgha-catur-bāhuṁ\
+> tapta-kāñcana-kuṇḍalam\
+> kṣatajākṣaṁ gadā-pāṇim\
+> ātmanaḥ sarvato diśam\
+> paribhramantam ulkābhāṁ\
 > bhrāmayantaṁ gadāṁ muhuḥ
 
 *śrīmat*—enriched; *dīrgha*—prolonged; *catuḥ-bāhum*—four-handed; *tapta-kāñcana*—molten gold; *kuṇḍalam*—earrings; *kṣataja-akṣam*—eyes with the redness of blood; *gadā-pāṇim*—hand with a club; *ātmanaḥ*—own; *sarvataḥ*—all; *diśam*—around; *paribhramantam*—loitering; *ulkābhām*—like shooting stars; *bhrāmayantam*—encircling; *gadām*—the club; *muhuḥ*—constantly.

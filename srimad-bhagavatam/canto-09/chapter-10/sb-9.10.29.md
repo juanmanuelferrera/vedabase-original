@@ -1,13 +1,13 @@
 ### SB 9.10.29
 
-> श्रीशुक उवाच
-> स्वानां विभीषणश्चक्रे कोसलेन्द्रानुमोदितः
+> श्रीशुक उवाच\
+> स्वानां विभीषणश्चक्रे कोसलेन्द्रानुमोदितः\
 > पितृमेधविधानेन यदुक्तं साम्परायिकम ॥२९॥
 
-> śrī-śuka uvāca
-> svānāṁ vibhīṣaṇaś cakre
-> kosalendrānumoditaḥ
-> pitṛ-medha-vidhānena
+> śrī-śuka uvāca\
+> svānāṁ vibhīṣaṇaś cakre\
+> kosalendrānumoditaḥ\
+> pitṛ-medha-vidhānena\
 > yad uktaṁ sāmparāyikam
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *svānām*—of his own family members; *vibhīṣaṇaḥ*—Vibhīṣaṇa, the brother of Rāvaṇa and devotee of Lord Rāmacandra; *cakre*—executed; *kosala-indra-anumoditaḥ*—approved by the King of Kosala, Lord Rāmacandra; *pitṛ-medha-vidhānena*—by the funeral ceremony performed by the son after the death of his father or some family member; *yat uktam*—which have been prescribed; *sāmparāyikam*—duties to be performed after a person's death to save him from the path to hell.

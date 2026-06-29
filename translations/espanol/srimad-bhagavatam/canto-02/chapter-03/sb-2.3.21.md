@@ -1,11 +1,11 @@
 ### SB 2.3.21
 
-> भारः परं पट्टकिरीटजुष्टमप्युत्तमाङ्गं न नमेन्मुकुन्दम् ।
+> भारः परं पट्टकिरीटजुष्टमप्युत्तमाङ्गं न नमेन्मुकुन्दम् ।\
 > शावौ करौ नो कुरुते सपर्यां हरेर्लसत्काञ्चनकङ्कणौ वा ॥२१॥
 
-> bhāraḥ paraṁ paṭṭa-kirīṭa-juṣṭam
-> apy uttamāṅgaṁ na namen mukundam
-> śāvau karau no kurute saparyāṁ
+> bhāraḥ paraṁ paṭṭa-kirīṭa-juṣṭam\
+> apy uttamāṅgaṁ na namen mukundam\
+> śāvau karau no kurute saparyāṁ\
 > harer lasat-kāñcana-kaṅkaṇau vā
 
 *bhāraḥ*—una gran carga; *param*—pesada; *paṭṭa*—seda; *kirīṭa*—turbante; *juṣṭam*—vestido con; *api*—incluso; *uttama*—superior; *aṅgam*—partes del cuerpo; *na*—nunca; *namet*—postran; *mukundam*—el Señor Śrī Kṛṣṇa, el salvador; *śāvau*—cadáveres; *karau*—manos; *no*—no; *kurute*—realizan; *saparyām*—adoración; *hareḥ*—de la Personalidad de Dios; *lasat*—brillantes; *kāñcana*—hechos de oro; *kaṅkaṇau*—brazaletes; *vā*—aunque.

@@ -1,11 +1,11 @@
 ### SB 4.13.45
 
-> कस्तं प्रजापदेशं वै मोहबन्धनमात्मनः ।
+> कस्तं प्रजापदेशं वै मोहबन्धनमात्मनः ।\
 > पण्डितो बहु मन्येत यदर्थाः क्लेशदा गृहाः ॥४५॥
 
-> kas taṁ prajāpadeśaṁ vai
-> moha-bandhanam ātmanaḥ
-> paṇḍito bahu manyeta
+> kas taṁ prajāpadeśaṁ vai\
+> moha-bandhanam ātmanaḥ\
+> paṇḍito bahu manyeta\
 > yad-arthāḥ kleśadā gṛhāḥ
 
 *kaḥ*—quién; *tam*—a él; *prajā-apadeśam*—hijo solo de nombre; *vai*—ciertamente; *moha*—de ilusión; *bandhanam*—cautiverio; *ātmanaḥ*—para el alma; *paṇḍitaḥ*—hombre inteligente; *bahu manyeta*—daría algún valor; *yat-arthāḥ*—debido al cual; *kleśa-dāḥ*—lleno de dolor; *gṛhāḥ*—el hogar.

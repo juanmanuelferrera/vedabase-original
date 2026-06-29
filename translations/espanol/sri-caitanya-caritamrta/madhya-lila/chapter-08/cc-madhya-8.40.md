@@ -1,11 +1,11 @@
 ### CC Madhya 8.40
 
-> মহদ্বিচলনং নৄণাং গৃহিণাং দীনচেতসাম্ ৷
+> মহদ্বিচলনং নৄণাং গৃহিণাং দীনচেতসাম্ ৷\
 > নিঃশ্রেয়সায় ভগবন্নান্যথা কল্পতে ক্বচিৎ ৷৷ ৪০ ৷৷ ॥৪০॥
 
-> mahad-vicalanaṁ nṛṇāṁ
-> gṛhiṇāṁ dīna-cetasām
-> niḥśreyasāya bhagavan
+> mahad-vicalanaṁ nṛṇāṁ\
+> gṛhiṇāṁ dīna-cetasām\
+> niḥśreyasāya bhagavan\
 > nānyathā kalpate kvacit
 
 *mahat-vicalanam*—el peregrinar de las personas santas; *nṛṇām*—de los seres humanos; *gṛhiṇām*—que son jefes de familia; *dīna-cetasām*—de mente baja; *niḥśreyasāya*—para el beneficio supremo; *bhagavan*—¡oh, mi Señor!; *na anyathā*—ningún otro propósito; *kalpate*—uno imagina; *kvacit*—en ningún momento.

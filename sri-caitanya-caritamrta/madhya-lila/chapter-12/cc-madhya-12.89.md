@@ -1,9 +1,9 @@
 ### CC Madhya 12.89
 
-> এইমত ভক্তগণ করি’ নিজ বাসে ।
+> এইমত ভক্তগণ করি’ নিজ বাসে ।\
 > তৃণ, ধূলি বাহিরে ফেলায় পরম হরিষে ॥৮৯॥
 
-> ei-mata bhakta-gaṇa kari' nija-vāse
+> ei-mata bhakta-gaṇa kari' nija-vāse\
 > tṛṇa, dhūli bāhire phelāya parama hariṣe
 
 *ei-mata*—similarly; *bhakta-gaṇa*—all the devotees; *kari'*—doing; *nija-vāse*—in their own cloths; *tṛṇa*—straw; *dhūli*—dust; *bāhire phelāya*—throw outside; *parama hariṣe*—with great jubilation.

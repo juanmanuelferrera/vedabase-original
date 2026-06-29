@@ -1,11 +1,11 @@
 ### SB 5.10.21
 
-> दृष्टः श्रमः कर्मत आत्मनो वै भर्तुर्गन्तुर्भवतश्चानुमन्ये
+> दृष्टः श्रमः कर्मत आत्मनो वै भर्तुर्गन्तुर्भवतश्चानुमन्ये\
 > यथासतोदानयनाद्यभावात्समूल इष्टो व्यवहारमार्गः ॥२१॥
 
-> dṛṣṭaḥ śramaḥ karmata ātmano vai
-> bhartur gantur bhavataś cānumanye
-> yathāsatodānayanādy-abhāvāt
+> dṛṣṭaḥ śramaḥ karmata ātmano vai\
+> bhartur gantur bhavataś cānumanye\
+> yathāsatodānayanādy-abhāvāt\
 > samūla iṣṭo vyavahāra-mārgaḥ
 
 *dṛṣṭaḥ*—it is experienced by everyone; *śramaḥ*—fatigue; *karmataḥ*—from acting in some way; *ātmanaḥ*—of the soul; *vai*—indeed; *bhartuḥ*—of one who is carrying the palanquin; *gantuḥ*—of one who is moving; *bhavataḥ*—of yourself; *ca*—and; *anumanye*—I guess like that; *yathā*—as much as; *asatā*—with something that is not an actual fact; *uda*—of water; *ānayana-ādi*—of the bringing and other such tasks; *abhāvāt*—from the absence; *sa-mūlaḥ*—based on evidence; *iṣṭaḥ*—respected; *vyavahāra-mārgaḥ*—phenomenon.

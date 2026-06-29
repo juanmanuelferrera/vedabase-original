@@ -1,9 +1,9 @@
 ### CC Antya 7.117
 
-> জগতের হিত লাগি’ গৌর-অবতার ।
+> জগতের হিত লাগি’ গৌর-অবতার ।\
 > অন্তরের অভিমান জানেন তাহার ॥১১৭॥
 
-> jagatera hita lāgi' gaura-avatāra
+> jagatera hita lāgi' gaura-avatāra\
 > antarera abhimāna jānena tāhāra
 
 *jagatera*—of the entire world; *hita lāgi'*—for the benefit; *gaura-avatāra*—the incarnation of Śrī Caitanya Mahāprabhu; *antarera abhimāna*—internal pride; *jānena*—understands; *tāhāra*—his.

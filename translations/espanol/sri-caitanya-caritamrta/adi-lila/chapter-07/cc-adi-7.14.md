@@ -1,9 +1,9 @@
 ### CC Adi 7.14
 
-> এক মহাপ্রভু, আর প্রভু দুইজন ।
+> এক মহাপ্রভু, আর প্রভু দুইজন ।\
 > দুই প্রভু সেবে মহাপ্রভুর চরণ ॥১৪॥
 
-> eka mahāprabhu, āra prabhu duijana
+> eka mahāprabhu, āra prabhu duijana\
 > dui prabhu seve mahāprabhura caraṇa
 
 *eka mahāprabhu*—un Mahāprabhu, o el predominador supremo; *āra prabhu duijana*—y los otros dos (Nityānanda y Advaita) son dos prabhus (amos); *dui prabhu*—los dos prabhus (Nityānanda y Advaita Gosāñi); *seve*—sirven; *mahāprabhura*—del predominador supremo, el Señor Caitanya Mahāprabhu; *caraṇa*—los pies de loto.

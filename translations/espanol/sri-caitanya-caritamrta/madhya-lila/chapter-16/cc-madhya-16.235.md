@@ -2,7 +2,7 @@
 
 > ‘রক্ষকের হাতে মুঞি কেমনে ছুটিব ! কেমনে প্রভুর সঙ্গে নীলাচলে যাব ?’ ২৩৫ ॥২৩৫॥
 
-> 'rakṣakera hāte muñi kemane chuṭiba!
+> 'rakṣakera hāte muñi kemane chuṭiba!\
 > kemane prabhura saṅge nīlācale yāba?'
 
 *rakṣakera hāte*—de las garras de los vigilantes; *muñi*—yo; *kemane*—cómo; *chuṭiba*—me liberaré; *kemane*—cómo; *prabhura saṅge*—con Śrī Caitanya Mahāprabhu; *nīlācale*—a Jagannātha Purī; *yāba*—iré.

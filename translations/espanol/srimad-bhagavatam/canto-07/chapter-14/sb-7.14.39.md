@@ -1,11 +1,11 @@
 ### SB 7.14.39
 
-> दृष्ट्वा तेषां मिथो नृणामवज्ञआनात्मतां नृप
+> दृष्ट्वा तेषां मिथो नृणामवज्ञआनात्मतां नृप\
 > त्रेतादिषु हरेरर्चा क्रियायै कविभिः कृता ॥३९॥
 
-> dṛṣṭvā teṣāṁ mitho nṛṇām
-> avajñānātmatāṁ nṛpa
-> tretādiṣu harer arcā
+> dṛṣṭvā teṣāṁ mitho nṛṇām\
+> avajñānātmatāṁ nṛpa\
+> tretādiṣu harer arcā\
 > kriyāyai kavibhiḥ kṛtā
 
 *dṛṣṭvā*—tras ver en la práctica; *teṣām*—entre los *brāhmaṇas* y *vaiṣṇavas*; *mithaḥ*—mutuamente; *nṛṇām*—de la sociedad humana; *avajñāna-ātmatām*—el comportamiento falto de respeto mutuo; *nṛpa*—¡oh, rey!; *tretā-ādiṣu*—comenzando en Tretā-yuga; *hareḥ*—de la Suprema Personalidad de Dios; *arcā*—la adoración de la Deidad (en el templo); *kriyāyai*—a fin de establecer el proceso de adoración; *kavibhiḥ*—por personas eruditas; *kṛtā*—se ha hecho.

@@ -1,18 +1,18 @@
 ### SB 6.1.13-14
 
-> तपसा ब्रह्मचर्येण शमेन च दमेन च
-> त्यागेन सत्यशौचाभ्यां यमेन नियमेन वा ॥१३॥
-> देहवाग्बुद्धिजं धीरा धर्मज्ञआः श्रद्धयान्विताः
+> तपसा ब्रह्मचर्येण शमेन च दमेन च\
+> त्यागेन सत्यशौचाभ्यां यमेन नियमेन वा ॥१३॥\
+> देहवाग्बुद्धिजं धीरा धर्मज्ञआः श्रद्धयान्विताः\
 > क्षिपन्त्यघं महदपि वेणुगुल्ममिवानलः ॥१४॥
 
-> tapasā brahmacaryeṇa
-> śamena ca damena ca
-> tyāgena satya-śaucābhyāṁ
+> tapasā brahmacaryeṇa\
+> śamena ca damena ca\
+> tyāgena satya-śaucābhyāṁ\
 > yamena niyamena vā
 
-> deha-vāg-buddhijaṁ dhīrā
-> dharmajñāḥ śraddhayānvitāḥ
-> kṣipanty aghaṁ mahad api
+> deha-vāg-buddhijaṁ dhīrā\
+> dharmajñāḥ śraddhayānvitāḥ\
+> kṣipanty aghaṁ mahad api\
 > veṇu-gulmam ivānalaḥ
 
 *tapasā*—mediante la austeridad o rechazo voluntario del disfrute material; *brahmacaryeṇa*—con el celibato (la primera austeridad); *śamena*—mediante el control de la mente; *ca*—y; *damena*—mediante el perfecto control de los sentidos; *ca*—y; *tyāgena*—con donaciones voluntarias de caridad para buenas causas; *satya*—mediante la veracidad; *śaucābhyām*—y porseguir los principios regulativos para mantener la limpieza externa e interna; *yamena*—evitando las maldiciones y la violencia; *niyamena*—con el canto regular del santo nombre del Señor; *vā*—y; *deha-vāk-buddhi-jam*—cometidos con el cuerpo, las palabras y la inteligencia; *dhīrāḥ*—las personas sobrias; *dharma-jñāḥ*—perfectamente imbuidos del conocimiento de los principios religiosos; *śraddhayā anvitāḥ*—dotadas de fe; *kṣipanti*—destruyen; *agham*—todo tipo de actividades pecaminosas; *mahat api*—aunque muy grandes y abominables; *veṇu-gulmam*—las enredaderas secas bajo los bambúes; *iva*—como; *analaḥ*—fuego.

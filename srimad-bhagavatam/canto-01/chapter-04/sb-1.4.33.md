@@ -1,11 +1,11 @@
 ### SB 1.4.33
 
-> तमभिज्ञाय सहसा प्रत्युत्थायागतं मुनिः ।
+> तमभिज्ञाय सहसा प्रत्युत्थायागतं मुनिः ।\
 > पूजयामास विधिवन्नारदं सुरपूजितम् ॥३३॥
 
-> tam abhijñāya sahasā
-> pratyutthāyāgataṁ muniḥ
-> pūjayām āsa vidhivan
+> tam abhijñāya sahasā\
+> pratyutthāyāgataṁ muniḥ\
+> pūjayām āsa vidhivan\
 > nāradaṁ sura-pūjitam
 
 *tam abhijñāya*—seeing the good fortune of his (Nārada's) arrival; *sahasā*—all of a sudden; *pratyutthāya*—getting up; *āgatam*—arrived at; *muniḥ*—Vyāsadeva; *pūjayām āsa*—worship; *vidhi-vat*—with the same respect as offered to Vidhi (Brahmā); *nāradam*—to Nārada; *sura-pūjitam*—worshiped by the demigods.

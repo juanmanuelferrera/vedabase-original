@@ -1,11 +1,11 @@
 ### SB 6.1.19
 
-> सकृन्मनः कृष्णपदारविन्दयोर्निवेशितं तद्गुणरागि यैरिह
+> सकृन्मनः कृष्णपदारविन्दयोर्निवेशितं तद्गुणरागि यैरिह\
 > न ते यमं पाशभृतश्च तद्भटान्स्वप्नेऽपि पश्यन्ति हि चीर्णनिष्कृताः ॥१९॥
 
-> sakṛn manaḥ kṛṣṇa-padāravindayor
-> niveśitaṁ tad-guṇa-rāgi yair iha
-> na te yamaṁ pāśa-bhṛtaś ca tad-bhaṭān
+> sakṛn manaḥ kṛṣṇa-padāravindayor\
+> niveśitaṁ tad-guṇa-rāgi yair iha\
+> na te yamaṁ pāśa-bhṛtaś ca tad-bhaṭān\
 > svapne 'pi paśyanti hi cīrṇa-niṣkṛtāḥ
 
 *sakṛt*—once only; *manaḥ*—the mind; *kṛṣṇa-pada-aravindayoḥ*—unto the two lotus feet of Lord Kṛṣṇa; *niveśitam*—completely surrendered; *tat*—of Kṛṣṇa; *guṇa-rāgi*—which is somewhat attached to the qualities, name, fame and paraphernalia; *yaiḥ*—by whom; *iha*—in this world; *na*—not; *te*—such persons; *yamam*—Yamarāja, the superintendent of death; *pāśa-bhṛtaḥ*—those who carry ropes (to catch sinful persons); *ca*—and; *tat*—his; *bhaṭān*—order carriers; *svapne api*—even in dreams; *paśyanti*—see; *hi*—indeed; *cīrṇa-niṣkṛtāḥ*—who have performed the right type of atonement.

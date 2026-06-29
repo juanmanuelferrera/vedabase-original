@@ -1,9 +1,9 @@
 ### CC Madhya 16.33
 
-> তাঁর লাগি’ গোপীনাথ ক্ষীর চুরি কৈল  ।
+> তাঁর লাগি’ গোপীনাথ ক্ষীর চুরি কৈল  ।\
 > মহাপ্ৰভুর মুখে আগে এ কথা শুনিল ॥৩৩॥
 
-> tāṅra lāgi' gopīnātha kṣīra curi kaila
+> tāṅra lāgi' gopīnātha kṣīra curi kaila\
 > mahāprabhura mukhe āge e kathā śunila
 
 *tāṅra lāgi'*—por él (Mādhavendra Purī); *gopīnātha*—la Deidad llamada Gopīnātha; *kṣīra*—leche condensada; *curi*—robando; *kaila*—hizo; *mahāprabhura mukhe*—de boca de Śrī Caitanya Mahāprabhu; *āge*—anteriormente; *e kathā*—este suceso; *śunila*—oyeron.

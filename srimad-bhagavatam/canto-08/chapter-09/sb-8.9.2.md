@@ -1,11 +1,11 @@
 ### SB 8.9.2
 
-> अहो रूपमहो धाम अहो अस्या नवं वयः
+> अहो रूपमहो धाम अहो अस्या नवं वयः\
 > इति ते तामभिद्रुत्य पप्रच्छुर्जातहृच्छयाः ॥२॥
 
-> aho rūpam aho dhāma
-> aho asyā navaṁ vayaḥ
-> iti te tām abhidrutya
+> aho rūpam aho dhāma\
+> aho asyā navaṁ vayaḥ\
+> iti te tām abhidrutya\
 > papracchur jāta-hṛc-chayāḥ
 
 *aho*—how wonderful; *rūpam*—Her beauty; *aho*—how wonderful; *dhāma*—Her bodily luster; *aho*—how wonderful; *asyāḥ*—of Her; *navam*—new; *vayaḥ*—beautiful age; *iti*—in this way; *te*—those demons; *tām*—unto the beautiful woman; *abhidrutya*—going before Her hastily; *papracchuḥ*—inquired from Her; *jāta-hṛt-śayāḥ*—their hearts being filled with lust to enjoy Her.

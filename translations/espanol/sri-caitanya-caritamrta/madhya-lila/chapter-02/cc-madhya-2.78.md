@@ -1,13 +1,13 @@
 ### CC Madhya 2.78
 
-> পুরীর বাৎসল্য মুখ্য, রামানন্দের শুদ্ধসখ্য,
-> গোবিন্দাদ্যের শুদ্ধদাস্যরস ।
-> গদাধর, জগদানন্দ, স্বরূপের মুখ্য রসানন্দ,
+> পুরীর বাৎসল্য মুখ্য, রামানন্দের শুদ্ধসখ্য,\
+> গোবিন্দাদ্যের শুদ্ধদাস্যরস ।\
+> গদাধর, জগদানন্দ, স্বরূপের মুখ্য রসানন্দ,\
 > এই চারি ভাবে প্রভু বশ ॥৭৮॥
 
-> purīra vātsalya mukhya, rāmānandera śuddha-sakhya,
-> govindādyera śuddha-dāsya-rasa
-> gadādhara, jagadānanda, svarūpera mukhya rasānanda,
+> purīra vātsalya mukhya, rāmānandera śuddha-sakhya,\
+> govindādyera śuddha-dāsya-rasa\
+> gadādhara, jagadānanda, svarūpera mukhya rasānanda,\
 > ei cāri bhāve prabhu vaśa
 
 *purīra*—de Paramānanda Purī; *vātsalya*—afecto paternal; *mukhya*—principalmente; *rāmānandera*—de Rāya Rāmānanda; *śuddha-sakhya*—amistad pura; *govinda-ādyera*—de Govinda y otros; *śuddha-dāsya-rasa*—la melosidad pura e inmaculada del servicio; *gadādhara*—Gadādhara Paṇḍita; *jagadānanda*—Jagadānanda Paṇḍita; *svarūpera*—de Svarūpa Dāmodara; *mukhya*—principalmente; *rasa-ānanda*—saborear el placer del amor conyugal; *ei*—estas; *cāri*—en cuatro; *bhāve*—condiciones extáticas; *prabhu*—el Señor; *vaśa*—quedó obligado.

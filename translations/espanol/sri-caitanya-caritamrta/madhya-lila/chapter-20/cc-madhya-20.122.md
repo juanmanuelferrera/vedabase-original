@@ -1,9 +1,9 @@
 ### CC Madhya 20.122
 
-> মায়ামুগ্ধ জীবের নাহি স্বতঃ কৃষ্ণজ্ঞান ৷
+> মায়ামুগ্ধ জীবের নাহি স্বতঃ কৃষ্ণজ্ঞান ৷\
 > জীবেরে কৃপায় কৈলা কৃষ্ণ বেদ-পুরাণ ৷৷ ১২২ ৷৷ ॥১২২॥
 
-> māyā-mugdha jīvera nāhi svataḥ kṛṣṇa-jñāna
+> māyā-mugdha jīvera nāhi svataḥ kṛṣṇa-jñāna\
 > jīvere kṛpāya kailā kṛṣṇa veda-purāṇa
 
 *māyā-mugdha*—embelesada por la energía ilusoria; *jīvera*—del alma condicionada; *nāhi*—no hay; *svataḥ*—automáticamente; *kṛṣṇa-jñāna*—conocimiento de Kṛṣṇa; *jīvere*—al alma condicionada; *kṛpāya*—por misericordia; *kailā*—presentó; *kṛṣṇa*—el Señor Kṛṣṇa; *veda-purāṇa*—la literatura Védica y los Purāṇas (suplementos de la literatura Védica).

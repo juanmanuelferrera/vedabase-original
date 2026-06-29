@@ -1,11 +1,11 @@
 ### SB 6.19.25
 
-> एतच्चरित्वा विधिवद्व्रतं विभोरभीप्सितार्थं लभते पुमानिह
+> एतच्चरित्वा विधिवद्व्रतं विभोरभीप्सितार्थं लभते पुमानिह\
 > स्त्री चैतदास्थाय लभेत सौभगं श्रियं प्रजां जीवपतिं यशो गृहम ॥२५॥
 
-> etac caritvā vidhivad vrataṁ vibhor
-> abhīpsitārthaṁ labhate pumān iha
-> strī caitad āsthāya labheta saubhagaṁ
+> etac caritvā vidhivad vrataṁ vibhor\
+> abhīpsitārthaṁ labhate pumān iha\
+> strī caitad āsthāya labheta saubhagaṁ\
 > śriyaṁ prajāṁ jīva-patiṁ yaśo gṛham
 
 *etat*—este; *caritvā*—celebrar; *vidhi-vat*—conforme a los mandamientos del *śāstra*; *vratam*—voto; *vibhoḥ*—del Señor; *abhīpsita*—deseado; *artham*—objeto; *labhate*—obtiene; *pumān*—un hombre; *iha*—en esta vida; *strī*—una mujer; *ca*—y; *etat*—este; *āsthāya*—llevar a cabo; *labheta*—puede obtener; *saubhagam*—buena fortuna; *śriyam*—opulencia; *prajām*—descendencia; *jīva-patim*—un esposo de larga vida; *yaśaḥ*—buena reputación; *gṛham*—un hogar.

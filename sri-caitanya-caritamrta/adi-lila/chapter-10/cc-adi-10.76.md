@@ -1,9 +1,9 @@
 ### CC Adi 10.76
 
-> গোপীনাথ সিংহ — এক চৈতন্যের দাস ।
+> গোপীনাথ সিংহ — এক চৈতন্যের দাস ।\
 > অক্রূর বলি’ প্রভু যাঁরে কৈলা পরিহাস ॥৭৬॥
 
-> gopīnātha siṁha—eka caitanyera dāsa
+> gopīnātha siṁha—eka caitanyera dāsa\
 > akrūra bali' prabhu yāṅre kailā parihāsa
 
 *gopīnātha siṁha*—of the name of Gopīnātha Siṁha; *eka*—one; *caitanyeradāsa*—servant of Lord Caitanya; *akrūrabali'*—famous as Akrūra; *prabhu*—the Lord; *yāṅre*—whom; *kaila*—did; *parihāsa*—joking.

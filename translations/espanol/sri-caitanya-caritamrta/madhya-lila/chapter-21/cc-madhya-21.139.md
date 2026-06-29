@@ -1,11 +1,11 @@
 ### CC Madhya 21.139
 
-> মধুর হৈতে সুমধুর, তাহা হৈতে সুমধুর, তাহা হৈতে অতি সুমধুর  ।
+> মধুর হৈতে সুমধুর, তাহা হৈতে সুমধুর, তাহা হৈতে অতি সুমধুর  ।\
 > আপনার এক কণে, ব্যাপে সব ত্রিভুবনে, দশদিক্ ব্যাপে যার পূর ॥১৩৯॥
 
-> madhura haite sumadhura, tāhā haite sumadhura,
-> tāhā haite ati sumadhura
-> āpanāra eka kaṇe, vyāpe saba tribhuvane,
+> madhura haite sumadhura, tāhā haite sumadhura,\
+> tāhā haite ati sumadhura\
+> āpanāra eka kaṇe, vyāpe saba tribhuvane,\
 > daśa-dik vyāpe yāra pūra
 
 *madhura haite su-madhura*—más dulce que lo dulce; *tāhā haite*—que eso; *su-madhura*—aún más dulce; *tāhā haite*—que eso; *ati su-madhura*—todavía mucho más dulce; *āpanāra*—de Sí mismo; *eka kaṇe*—con una partícula; *vyāpe*—se difunde; *saba*—por todos; *tri-bhuvane*—los tres mundos; *daśa-dik*—las diez direcciones; *vyāpe*—se difunde; *yāra*—cuya; *pūra*—la ciudad de la belleza de Kṛṣṇa.

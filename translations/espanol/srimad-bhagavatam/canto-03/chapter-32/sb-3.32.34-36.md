@@ -1,25 +1,25 @@
 ### SB 3.32.34-36
 
-> क्रियया क्रतुभिर्दानैस्तपःस्वाध्यायमर्शनैः ।
-> आत्मेन्द्रियजयेनापि सन्न्यासेन च कर्मणाम् ॥३४॥
-> योगेन विविधाङ्गेन भक्तियोगेन चैव हि ।
-> धर्मेणोभयचिह्नेन यः प्रवृत्तिनिवृत्तिमान् ॥३५॥
-> आत्मतत्त्वावबोधेन वैराग्येण दृढेन च ।
+> क्रियया क्रतुभिर्दानैस्तपःस्वाध्यायमर्शनैः ।\
+> आत्मेन्द्रियजयेनापि सन्न्यासेन च कर्मणाम् ॥३४॥\
+> योगेन विविधाङ्गेन भक्तियोगेन चैव हि ।\
+> धर्मेणोभयचिह्नेन यः प्रवृत्तिनिवृत्तिमान् ॥३५॥\
+> आत्मतत्त्वावबोधेन वैराग्येण दृढेन च ।\
 > ईयते भगवानेभिः सगुणो निर्गुणः स्वदृक् ॥३६॥
 
-> kriyayā kratubhir dānais
-> tapaḥ-svādhyāya-marśanaiḥ
-> ātmendriya-jayenāpi
+> kriyayā kratubhir dānais\
+> tapaḥ-svādhyāya-marśanaiḥ\
+> ātmendriya-jayenāpi\
 > sannyāsena ca karmaṇām
 
-> yogena vividhāṅgena
-> bhakti-yogena caiva hi
-> dharmeṇobhaya-cihnena
+> yogena vividhāṅgena\
+> bhakti-yogena caiva hi\
+> dharmeṇobhaya-cihnena\
 > yaḥ pravṛtti-nivṛttimān
 
-> ātma-tattvāvabodhena
-> vairāgyeṇa dṛḍhena ca
-> īyate bhagavān ebhiḥ
+> ātma-tattvāvabodhena\
+> vairāgyeṇa dṛḍhena ca\
+> īyate bhagavān ebhiḥ\
 > saguṇo nirguṇaḥ sva-dṛk
 
 *kriyayā*—mediante actividades fruitivas; *kratubhiḥ*—mediante la ejecución de sacrificios; *dānaiḥ*—mediante la caridad; *tapaḥ*—austeridades; *svādhyāya*—el estudio de las Escrituras védicas; *marśanaiḥ*—y por medio de la investigación filosófica; *ātma-indriya-jayena*—mediante el control de la mente y los sentidos; *api*—también; *sannyāsena*—mediante la renunciación; *ca*—y; *karmaṇām*—de actividades fruitivas; *yogena*—por medio de la práctica del *yoga*; *vividha-aṅgena*—de distintas partes; *bhakti-yogena*—por medio del servicio devocional; *ca*—y; *eva*—ciertamente; *hi*—en verdad; *dharmeṇa*—por medio de los deberes prescritos; *ubhaya-cihnena*—teniendo ambas características; *yaḥ*—el cual; *pravṛtti*—apego; *nivṛtti-mān*—conteniendo desapego; *ātma-tattva*—la ciencia de la autorrealización; *avabodhena*—entendiendo; *vairāgyeṇa*—por medio del desapego; *dṛḍhena*—fuerte; *ca*—y; *īyate*—se percibe; *bhagavān*—a la Suprema Personalidad de Dios; *ebhiḥ*—por estas; *sa-guṇaḥ*—en el mundo material; *nirguṇaḥ*—más allá de las modalidades materiales; *sva-dṛk*—aquel que ve su posición constitucional.

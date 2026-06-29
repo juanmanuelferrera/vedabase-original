@@ -1,9 +1,9 @@
 ### CC Adi 16.48
 
-> প্রতিভার কাব্য তোমার দেবতা সন্তোষে ।
+> প্রতিভার কাব্য তোমার দেবতা সন্তোষে ।\
 > ভালমতে বিচারিলে জানি গুণদোষে ॥৪৮॥
 
-> pratibhāra kāvya tomāra devatā santoṣe
+> pratibhāra kāvya tomāra devatā santoṣe\
 > bhāla-mate vicārile jāni guṇa-doṣe
 
 *pratibhāra*—of ingenuity; *kāvya*—poetry; *tomāra*—your; *devatā*—the Lord; *santoṣe*—satisfies; *bhāla-mate*—scrutinizingly; *vicārile*—on analyzing; *jāni*—I know; *guṇa-doṣe*—there are faults and good qualities also.

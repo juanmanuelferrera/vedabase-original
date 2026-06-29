@@ -1,11 +1,11 @@
 ### Bg 9.10
 
-> मयाध्यक्षेण प्रकृतिः सूयते सचराचरम् ।
+> मयाध्यक्षेण प्रकृतिः सूयते सचराचरम् ।\
 > हेतुनानेन कौन्तेय जगद्विपरिवर्तते ॥१०॥
 
-> mayādhyakṣeṇa prakṛtiḥ
-> sūyate sa-carācaram
-> hetunānena kaunteya
+> mayādhyakṣeṇa prakṛtiḥ\
+> sūyate sa-carācaram\
+> hetunānena kaunteya\
 > jagad viparivartate
 
 *mayā*—por Mí; *adhyakṣeṇa*—mediante la superintendencia; *prakṛtiḥ*—la naturaleza material; *sūyate*—manifiesta; *sa*—con; *carācaram*—móviles e inmóviles; *hetunā*—por esta razón; *anena*—esta; *kaunteya*—¡oh, hijo de Kuntī!; *jagat*—la manifestación cósmica; *viparivartate*—está funcionando.

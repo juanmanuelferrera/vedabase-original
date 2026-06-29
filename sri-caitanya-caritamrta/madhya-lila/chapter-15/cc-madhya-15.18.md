@@ -1,9 +1,9 @@
 ### CC Madhya 15.18
 
-> দধিদুগ্ধ-ভার সবে নিজ-স্কন্ধে করি’  ।
+> দধিদুগ্ধ-ভার সবে নিজ-স্কন্ধে করি’  ।\
 > মহোত্সব-স্থানে আইলা বলি ‘হরি’ ‘হরি’ ॥১৮॥
 
-> dadhi-dugdha-bhāra sabe nija-skandhe kari'
+> dadhi-dugdha-bhāra sabe nija-skandhe kari'\
 > mahotsava-sthāne āilā bali 'hari' 'hari'
 
 *dadhi-dugdha*—of milk and yogurt; *bhāra*—carriers; *sabe*—all of them; *nija-skandhe*—on their shoulders; *kari'*—keeping; *mahotsava-sthāne*—to the place of the festival; *āilā*—came; *bali hari hari*—chanting Hari, Hari.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.101
 
-> তবে সার্বভৌমে প্রভু প্রসাদ করিল ।
+> তবে সার্বভৌমে প্রভু প্রসাদ করিল ।\
 > আপন-ঈশ্বরমূর্তি তাঁরে দেখাইল ॥১০১॥
 
-> tabe sārvabhaume prabhu prasāda karila
+> tabe sārvabhaume prabhu prasāda karila\
 > āpana-īśvara-mūrti tāṅre dekhāila
 
 *tabe*—entonces; *sārvabhaume*—a Sārvabhauma Bhaṭṭācārya; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *prasāda karila*—concedió Su misericordia; *āpana*—Su propia; *īśvara-mūrti*—forma original como el Señor; *tāṅre*—a él; *dekhāila*—mostró.

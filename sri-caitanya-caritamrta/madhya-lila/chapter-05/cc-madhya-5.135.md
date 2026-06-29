@@ -1,9 +1,9 @@
 ### CC Madhya 5.135
 
-> গোপালের আগে যবে প্রভুর হয় স্থিতি ।
+> গোপালের আগে যবে প্রভুর হয় স্থিতি ।\
 > ভক্তগণে দেখে — যেন দুঁহে একমূর্তি ॥১৩৫॥
 
-> gopālera āge yabe prabhura haya sthiti
+> gopālera āge yabe prabhura haya sthiti\
 > bhakta-gaṇe dekhe—yena duṅhe eka-mūrti
 
 *gopāleraāge*—in front of Gopāla; *yabe*—when; *prabhura*—of Lord Caitanya Mahāprabhu; *haya*—is; *sthiti*—situation; *bhakta-gaṇe*—all the devotees; *dekhe*—see; *yena*—as if; *duṅhe*—both of Them; *eka-mūrti*—one form.

@@ -1,11 +1,11 @@
 ### SB 4.5.12
 
-> बह्वेवमुद्विग्नदृशोच्यमाने जनेन दक्षस्य मुहुर्महात्मनः ।
+> बह्वेवमुद्विग्नदृशोच्यमाने जनेन दक्षस्य मुहुर्महात्मनः ।\
 > उत्पेतुरुत्पाततमाः सहस्रशो भयावहा दिवि भूमौ च पर्यक् ॥१२॥
 
-> bahv evam udvigna-dṛśocyamāne
-> janena dakṣasya muhur mahātmanaḥ
-> utpetur utpātatamāḥ sahasraśo
+> bahv evam udvigna-dṛśocyamāne\
+> janena dakṣasya muhur mahātmanaḥ\
+> utpetur utpātatamāḥ sahasraśo\
 > bhayāvahā divi bhūmau ca paryak
 
 *bahu*—tanto; *evam*—de esta manera; *udvigna-dṛśā*—con miradas nerviosas; *ucyamāne*—mientras se decía esto; *janena*—por las personas (reunidas en el sacrificio); *dakṣasya*—de Dakṣa; *muhuḥ*—una y otra vez; *mahā-ātmanaḥ*—con voluntad de hierro; *utpetuḥ*—aparecieron; *utpāta-tamāḥ*—señales muy poderosas; *sahasraśaḥ*—por miles; *bhaya-āvahāḥ*—que producían miedo; *divi*—en el cielo; *bhūmau*—en la Tierra; *ca*—y; *paryak*—de todas partes.

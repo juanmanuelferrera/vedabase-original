@@ -1,11 +1,11 @@
 ### SB 3.21.50
 
-> नूनं चङ्क्रमणं देव सतां संरक्षणाय ते ।
+> नूनं चङ्क्रमणं देव सतां संरक्षणाय ते ।\
 > वधाय चासतां यस्त्वं हरेः शक्तिर्हि पालिनी ॥५०॥
 
-> nūnaṁ caṅkramaṇaṁ deva
-> satāṁ saṁrakṣaṇāya te
-> vadhāya cāsatāṁ yas tvaṁ
+> nūnaṁ caṅkramaṇaṁ deva\
+> satāṁ saṁrakṣaṇāya te\
+> vadhāya cāsatāṁ yas tvaṁ\
 > hareḥ śaktir hi pālinī
 
 *nūnam*—surely; *caṅkramaṇam*—the tour; *deva*—O lord; *satām*—of the virtuous; *saṁrakṣaṇāya*—for the protection; *te*—your; *vadhāya*—for killing; *ca*—and; *asatām*—of the demons; *yaḥ*—the person who; *tvam*—you; *hareḥ*—of the Supreme Personality of Godhead; *śaktiḥ*—the energy; *hi*—since; *pālinī*—protecting.

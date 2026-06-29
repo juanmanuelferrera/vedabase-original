@@ -1,11 +1,11 @@
 ### SB 6.16.55
 
-> येन प्रसुप्तः पुरुषः स्वापं वेदात्मनस्तदा
+> येन प्रसुप्तः पुरुषः स्वापं वेदात्मनस्तदा\
 > सुखं च निर्गुणं ब्रह्म तमात्मानमवेहि माम ॥५५॥
 
-> yena prasuptaḥ puruṣaḥ
-> svāpaṁ vedātmanas tadā
-> sukhaṁ ca nirguṇaṁ brahma
+> yena prasuptaḥ puruṣaḥ\
+> svāpaṁ vedātmanas tadā\
+> sukhaṁ ca nirguṇaṁ brahma\
 > tam ātmānam avehi mām
 
 *yena*—por quien (el Brahman Supremo); *prasuptaḥ*—durmiendo; *purusaḥ*—un hombre; *svāpam*—lo soñado; *veda*—conoce; *ātmanaḥ*—de sí mismo; *tadā*—en ese momento; *sukham*—felicidad; *ca*—también; *nirguṇam*—sin contacto con el entorno material; *brahma*—el espíritu supremo; *tam*—a Él; *ātmānam*—al que penetra; *avehi*—debes conocer; *mām*—a Mí.

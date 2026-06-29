@@ -1,11 +1,11 @@
 ### SB 4.14.34
 
-> इत्थं व्यवसिता हन्तुमृषयो रूढमन्यवः ।
+> इत्थं व्यवसिता हन्तुमृषयो रूढमन्यवः ।\
 > निजघ्नुर्हुङ्कृतैर्वेनं हतमच्युतनिन्दया ॥३४॥
 
-> itthaṁ vyavasitā hantum
-> ṛṣayo rūḍha-manyavaḥ
-> nijaghnur huṅkṛtair venaṁ
+> itthaṁ vyavasitā hantum\
+> ṛṣayo rūḍha-manyavaḥ\
+> nijaghnur huṅkṛtair venaṁ\
 > hatam acyuta-nindayā
 
 *ittham*—de este modo; *vyavasitāḥ*—decidieron; *hantum*—matar; *ṛṣayaḥ*—los sabios; *rūḍha*—manifestaron; *manyavaḥ*—su ira; *nijaghnuḥ*—mataron; *hum-kṛtaiḥ*—con palabras de enfado o el sonido *hum*; *venam*—al rey Vena; *hatam*—muerto; *acyuta*—contra la Suprema Personalidad de Dios; *nindayā*—por la blasfemia.

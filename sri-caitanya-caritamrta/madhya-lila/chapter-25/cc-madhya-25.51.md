@@ -1,9 +1,9 @@
 ### CC Madhya 25.51
 
-> ‘ন্যায়’ কহে, — ‘পরমাণু হৈতে বিশ্ব হয়’ ।
+> ‘ন্যায়’ কহে, — ‘পরমাণু হৈতে বিশ্ব হয়’ ।\
 > ‘মায়াবাদী’ নির্বিশেষ-ব্রহ্মে ‘হেতু’ কয় ॥৫১॥
 
-> 'nyāya' kahe,-'paramāṇu haite viśva haya'
+> 'nyāya' kahe,-'paramāṇu haite viśva haya'\
 > 'māyāvādī' nirviśeṣa-brahme 'hetu' kaya
 
 *nyāya kahe*—the philosophers following logic say; *paramāṇu*—the atom; *haite*—from; *viśva haya*—the cosmic manifestation has come; *māyāvādī*—the Māyāvādī philosophers, impersonalists; *nirviśeṣa-brahme*—in the impersonal Brahman effulgence; *hetu*—the cause; *kaya*—say.

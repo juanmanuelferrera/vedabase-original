@@ -1,11 +1,11 @@
 ### CC Madhya 21.137
 
-> সনাতন, কৃষ্ণমাধুর্য — অমৃতের সিন্ধু ।
-> মোর মন — সন্নিপাতি, সব পিতে করে মতি,
+> সনাতন, কৃষ্ণমাধুর্য — অমৃতের সিন্ধু ।\
+> মোর মন — সন্নিপাতি, সব পিতে করে মতি,\
 > দুর্দৈব-বৈদ্য না দেয় এক বিন্দু ।। ১৩৭ ।। ধ্রু ।। ॥১৩৭॥
 
-> sanātana, kṛṣṇa-mādhurya--amṛtera sindhu
-> mora mana--sannipāti, saba pite kare mati,
+> sanātana, kṛṣṇa-mādhurya--amṛtera sindhu\
+> mora mana--sannipāti, saba pite kare mati,\
 > durdaiva-vaidya nā deya eka bindu
 
 *sanātana*—¡oh, Mi querido Sanātana!; *kṛṣṇa-mādhurya*—la dulzura del Señor Kṛṣṇa; *amṛtera sindhu*—un océano de ambrosía; *mora mana*—Mi mente; *sannipāti*—una enfermedad de convulsiones; *saba*—todo; *pite*—beber; *kare*—hace; *mati*—deseo; *durdaiva-vaidya*—un médico que reprime; *nā*—no; *deya*—da; *eka*—una; *bindu*—gota.

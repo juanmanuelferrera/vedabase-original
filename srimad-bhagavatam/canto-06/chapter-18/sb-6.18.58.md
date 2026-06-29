@@ -1,11 +1,11 @@
 ### SB 6.18.58
 
-> एवं तस्या व्रतस्थाया व्रतच्छिद्रं हरिर्नृप
+> एवं तस्या व्रतस्थाया व्रतच्छिद्रं हरिर्नृप\
 > प्रेप्सुः पर्यचरज्जिह्मो मृगहेव मृगाकृतिः ॥५८॥
 
-> evaṁ tasyā vrata-sthāyā
-> vrata-cchidraṁ harir nṛpa
-> prepsuḥ paryacaraj jihmo
+> evaṁ tasyā vrata-sthāyā\
+> vrata-cchidraṁ harir nṛpa\
+> prepsuḥ paryacaraj jihmo\
 > mṛga-heva mṛgākṛtiḥ
 
 *evam*—thus; *tasyāḥ*—of her; *vrata-sthāyāḥ*—who was faithfully discharging her vow; *vrata-chidram*—a fault in the execution of the vow; *hariḥ*—Indra; *nṛpa*—O King; *prepsuḥ*—desiring to find; *paryacarat*—served; *jihmaḥ*—deceitful; *mṛga-hā*—a hunter; *iva*—like; *mṛga-ākṛtiḥ*—in the form of a deer.

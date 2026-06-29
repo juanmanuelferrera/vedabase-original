@@ -1,13 +1,13 @@
 ### CC Antya 15.69
 
-> পুনঃ কহে, — ‘হায় হায়, পড় পড় রামরায়’,
-> কহে প্রভু গদ্গদ আখ্যানে ।
-> রামানন্দ পড়ে শ্লোক, শুনি’ প্রভুর হর্ষ-শোক,
+> পুনঃ কহে, — ‘হায় হায়, পড় পড় রামরায়’,\
+> কহে প্রভু গদ্গদ আখ্যানে ।\
+> রামানন্দ পড়ে শ্লোক, শুনি’ প্রভুর হর্ষ-শোক,\
 > আপনে প্রভু করেন ব্যাখ্যানে ॥৬৯॥
 
-> punaḥ kahe,--'hāya hāya, paḍa paḍa rāma-raya',
-> kahe prabhu gadgada ākhyāne
-> rāmānanda paḍe śloka, śuni' prabhura harṣa-śoka,
+> punaḥ kahe,--'hāya hāya, paḍa paḍa rāma-raya',\
+> kahe prabhu gadgada ākhyāne\
+> rāmānanda paḍe śloka, śuni' prabhura harṣa-śoka,\
 > āpane prabhu karena vyākhyāne
 
 *punaḥ*—de nuevo; *kahe*—dice; *hāya hāya*—¡ay, ay!; *paḍa paḍa*—sigue leyendo; *rāma-rāya*—Rāmānanda Rāya; *kahe*—dice; *prabhu*—Śrī Caitanya Mahāprabhu; *gadgada ākhyāne*—con voz entrecortada; *rāmānanda*—Rāmānanda Rāya; *paḍe*—lee; *śloka*—un verso; *śuni'*—al oír; *prabhura*—de Śrī Caitanya Mahāprabhu; *harṣa-śoka*—júbilo y lamento; *āpane*—personalmente; *prabhu*—Śrī Caitanya Mahāprabhu; *karena vyākhyāne*—explica.

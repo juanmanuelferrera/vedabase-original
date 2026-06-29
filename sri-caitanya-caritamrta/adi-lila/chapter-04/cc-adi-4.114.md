@@ -1,9 +1,9 @@
 ### CC Adi 4.114
 
-> রাধিকাদি লঞা কৈল রাসাদি-বিলাস ।
+> রাধিকাদি লঞা কৈল রাসাদি-বিলাস ।\
 > বাঞ্ছা ভরি’ আস্বাদিল রসের নির্যাস ॥১১৪॥
 
-> rādhikādi lañā kaila rāsādi-vilāsa
+> rādhikādi lañā kaila rāsādi-vilāsa\
 > vāñchā bhari' āsvādila rasera niryāsa
 
 *rādhikā-ādi*—Śrīmatī Rādhārāṇī and the other *gopīs*; *lañā*—taking along; *kaila*—did; *rāsa-ādi*—beginning with the *rāsa* dance; *vilāsa*—pastimes; *vāñchā bhari'*—fulfilling desires; *āsvādila*—He tasted; *rasera*—of mellow; *niryāsa*—the essence.

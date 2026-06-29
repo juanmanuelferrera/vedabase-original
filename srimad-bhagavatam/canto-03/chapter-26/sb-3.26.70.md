@@ -1,11 +1,11 @@
 ### SB 3.26.70
 
-> चित्तेन हृदयं चैत्यः क्षेत्रज्ञः प्राविशद्यदा ।
+> चित्तेन हृदयं चैत्यः क्षेत्रज्ञः प्राविशद्यदा ।\
 > विराट्तदैव पुरुषः सलिलादुदतिष्ठत ॥७०॥
 
-> cittena hṛdayaṁ caityaḥ
-> kṣetra-jñaḥ prāviśad yadā
-> virāṭ tadaiva puruṣaḥ
+> cittena hṛdayaṁ caityaḥ\
+> kṣetra-jñaḥ prāviśad yadā\
+> virāṭ tadaiva puruṣaḥ\
 > salilād udatiṣṭhata
 
 *cittena*—along with reason, consciousness; *hṛdayam*—the heart; *caityaḥ*—the deity presiding over consciousness; *kṣetra-jñaḥ*—the knower of the field; *prāviśat*—entered; *yadā*—when; *virāṭ*—the *virāṭ-puruṣa*; *tadā*—then; *eva*—just; *puruṣaḥ*—the Cosmic Being; *salilāt*—from the water; *udatiṣṭhata*—arose.

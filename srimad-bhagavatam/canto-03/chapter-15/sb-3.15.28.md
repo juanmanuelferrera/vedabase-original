@@ -1,13 +1,13 @@
 ### SB 3.15.28
 
-> मत्तद्विरेफवनमालिकया निवीतौ
-> विन्यस्तयासितचतुष्टयबाहुमध्ये ।
-> वक्त्रं भ्रुवा कुटिलया स्फुटनिर्गमाभ्यां
+> मत्तद्विरेफवनमालिकया निवीतौ\
+> विन्यस्तयासितचतुष्टयबाहुमध्ये ।\
+> वक्त्रं भ्रुवा कुटिलया स्फुटनिर्गमाभ्यां\
 > रक्तेक्षणेन च मनाग्रभसं दधानौ ॥२८॥
 
-> matta-dvirepha-vanamālikayā nivītau
-> vinyastayāsita-catuṣṭaya-bāhu-madhye
-> vaktraṁ bhruvā kuṭilayā sphuṭa-nirgamābhyāṁ
+> matta-dvirepha-vanamālikayā nivītau\
+> vinyastayāsita-catuṣṭaya-bāhu-madhye\
+> vaktraṁ bhruvā kuṭilayā sphuṭa-nirgamābhyāṁ\
 > raktekṣaṇena ca manāg rabhasaṁ dadhānau
 
 *matta*—intoxicated; *dvi-repha*—bees; *vana-mālikayā*—with a garland of fresh flowers; *nivītau*—hanging on the neck; *vinyastayā*—placed around; *asita*—blue; *catuṣṭaya*—four; *bāhu*—hands; *madhye*—between; *vaktram*—face; *bhruvā*—with their eyebrows; *kuṭilayā*—arched; *sphuṭa*—snorting; *nirgamābhyām*—breathing; *rakta*—reddish; *īkṣaṇena*—with eyes; *ca*—and; *manāk*—somewhat; *rabhasam*—agitated; *dadhānau*—glanced over.

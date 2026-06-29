@@ -1,13 +1,13 @@
 ### SB 2.1.23
 
-> श्रीशुक उवाच
-> जितासनो जितश्वासो जितसङ्गो जितेन्द्रियः ।
+> श्रीशुक उवाच\
+> जितासनो जितश्वासो जितसङ्गो जितेन्द्रियः ।\
 > स्थूले भगवतो रूपे मनः सन्धारयेद्धिया ॥२३॥
 
-> śrī-śuka uvāca
-> jitāsano jita-śvāso
-> jita-saṅgo jitendriyaḥ
-> sthūle bhagavato rūpe
+> śrī-śuka uvāca\
+> jitāsano jita-śvāso\
+> jita-saṅgo jitendriyaḥ\
+> sthūle bhagavato rūpe\
 > manaḥ sandhārayed dhiyā
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī dijo; *jita-āsanaḥ*—manera controlada de sentarse; *jita-śvāsaḥ*—proceso respiratorio controlado; *jita-saṅgaḥ*—compañía controlada; *jita-indriyaḥ*—sentidos controlados; *sthūle*—en la materia burda; *bhagavataḥ*—a la Personalidad de Dios; *rūpe*—en el aspecto de; *manaḥ*—la mente; *sandhārayet*—debe aplicar; *dhiyā*—mediante la inteligencia.

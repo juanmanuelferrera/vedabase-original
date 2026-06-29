@@ -1,13 +1,13 @@
 ### SB 4.12.28
 
-> मैत्रेय उवाच
-> निशम्य वैकुण्ठनियोज्यमुख्ययोर्मधुच्युतं वाचमुरुक्रमप्रियः ।
+> मैत्रेय उवाच\
+> निशम्य वैकुण्ठनियोज्यमुख्ययोर्मधुच्युतं वाचमुरुक्रमप्रियः ।\
 > कृताभिषेकः कृतनित्यमङ्गलो मुनीन्प्रणम्याशिषमभ्यवादयत् ॥२८॥
 
-> maitreya uvāca
-> niśamya vaikuṇṭha-niyojya-mukhyayor
-> madhu-cyutaṁ vācam urukrama-priyaḥ
-> kṛtābhiṣekaḥ kṛta-nitya-maṅgalo
+> maitreya uvāca\
+> niśamya vaikuṇṭha-niyojya-mukhyayor\
+> madhu-cyutaṁ vācam urukrama-priyaḥ\
+> kṛtābhiṣekaḥ kṛta-nitya-maṅgalo\
 > munīn praṇamyāśiṣam abhyavādayat
 
 *maitreyaḥ uvāca*—the great sage Maitreya said; *niśamya*—after hearing; *vaikuṇṭha*—of the Lord; *niyojya*—associates; *mukhyayoḥ*—of the chief; *madhu-cyutam*—like pouring honey; *vācam*—speeches; *urukrama-priyaḥ*—Dhruva Mahārāja, who was very dear to the Lord; *kṛta-abhiṣekaḥ*—took his sacred bath; *kṛta*—performed; *nitya-maṅgalaḥ*—his daily spiritual duties; *munīn*—to the sages; *praṇamya*—having offered obeisances; *āśiṣam*—blessings; *abhyavādayat*—accepted.

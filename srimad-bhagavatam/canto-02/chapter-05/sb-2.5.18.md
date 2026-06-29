@@ -1,11 +1,11 @@
 ### SB 2.5.18
 
-> सत्त्वं रजस्तम इति निर्गुणस्य गुणास्त्रयः ।
+> सत्त्वं रजस्तम इति निर्गुणस्य गुणास्त्रयः ।\
 > स्थितिसर्गनिरोधेषु गृहीता मायया विभोः ॥१८॥
 
-> sattvaṁ rajas tama iti
-> nirguṇasya guṇās trayaḥ
-> sthiti-sarga-nirodheṣu
+> sattvaṁ rajas tama iti\
+> nirguṇasya guṇās trayaḥ\
+> sthiti-sarga-nirodheṣu\
 > gṛhītā māyayā vibhoḥ
 
 *sattvam*—the mode of goodness; *rajaḥ*—the mode of passion; *tamaḥ*—the mode of ignorance; *iti*—all these; *nirguṇasya*—of the Transcendence; *guṇāḥ trayaḥ*—are three qualities; *sthiti*—maintenance; *sarga*—creation; *nirodheṣu*—in destruction; *gṛhītāḥ*—accepted; *māyayā*—by the external energy; *vibhoḥ*—of the Supreme.

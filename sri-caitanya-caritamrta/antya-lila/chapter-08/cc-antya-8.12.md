@@ -1,9 +1,9 @@
 ### CC Antya 8.12
 
-> ভিক্ষা করি’ কহে পুরী, — “শুন, জগদানন্দ ।
+> ভিক্ষা করি’ কহে পুরী, — “শুন, জগদানন্দ ।\
 > অবশেষ প্রসাদ তুমি করহ ভক্ষণ ।।” ॥ ১২ ॥
 
-> bhikṣā kari' kahe purī,—"śuna, jagadānanda
+> bhikṣā kari' kahe purī,—"śuna, jagadānanda\
 > avaśeṣa prasāda tumi karaha bhakṣaṇa"
 
 *bhikṣā kari'*—after finishing the lunch; *kahe purī*—Rāmacandra Purī began to speak; *śuna, jagadānanda*—my dear Jagadānanda, just hear; *avaśeṣa prasāda*—the remaining *prasāda*; *tumi*—you; *karaha bhakṣaṇa*—eat.

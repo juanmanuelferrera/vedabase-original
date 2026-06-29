@@ -1,13 +1,13 @@
 ### SB 4.7.33
 
-> पत्न्य ऊचुः
-> यज्ञोऽयं तव यजनाय केन सृष्टो विध्वस्तः पशुपतिनाद्य दक्षकोपात् ।
+> पत्न्य ऊचुः\
+> यज्ञोऽयं तव यजनाय केन सृष्टो विध्वस्तः पशुपतिनाद्य दक्षकोपात् ।\
 > तं नस्त्वं शवशयनाभशान्तमेधं यज्ञात्मन्नलिनरुचा दृशा पुनीहि ॥३३॥
 
-> patnya ūcuḥ
-> yajño 'yaṁ tava yajanāya kena sṛṣṭo
-> vidhvastaḥ paśupatinādya dakṣa-kopāt
-> taṁ nas tvaṁ śava-śayanābha-śānta-medhaṁ
+> patnya ūcuḥ\
+> yajño 'yaṁ tava yajanāya kena sṛṣṭo\
+> vidhvastaḥ paśupatinādya dakṣa-kopāt\
+> taṁ nas tvaṁ śava-śayanābha-śānta-medhaṁ\
 > yajñātman nalina-rucā dṛśā punīhi
 
 *patnyaḥ ūcuḥ*—the wives of the executors of the sacrifice said; *yajñaḥ*—the sacrifice; *ayam*—this; *tava*—Your; *yajanāya*—worshiping; *kena*—by Brahmā; *sṛṣṭaḥ*—arranged; *vidhvastaḥ*—devastated; *paśupatinā*—by Lord Śiva; *adya*—today; *dakṣa-kopāt*—from anger at Dakṣa; *tam*—it; *naḥ*—our; *tvam*—You; *śava-śayana*—dead bodies; *ābha*—like; *śānta-medham*—the still sacrificial animals; *yajña-ātman*—O Lord of sacrifice; *nalina*—lotus; *rucā*—beautiful; *dṛśā*—by the vision of Your eyes; *punīhi*—sanctify.

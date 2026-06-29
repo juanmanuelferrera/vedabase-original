@@ -1,6 +1,6 @@
 ### CC Adi 1.82
 
-> bhakta ādi krame kaila sabhāra vandana
+> bhakta ādi krame kaila sabhāra vandana\
 > e-sabhāra vandana sarva-śubhera kāraṇa
 
 *bhakta*—os devotos; *ādi*—e assim por diante; *krame*—em ordem; *kaila*—fiz; *sabhāra*—da assembleia; *vandana*—adoração; *e-sabhāra*—desta assembleia; *vandana*—adoração; *sarva-śubhera*—de toda boa fortuna; *kāraṇa*—a fonte.

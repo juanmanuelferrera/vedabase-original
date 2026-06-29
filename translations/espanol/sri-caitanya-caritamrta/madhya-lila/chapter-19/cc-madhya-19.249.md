@@ -1,9 +1,9 @@
 ### CC Madhya 19.249
 
-> ভিক্ষা করাঞা মিশ্র কহে প্রভু-পায় ধরি’ ।
+> ভিক্ষা করাঞা মিশ্র কহে প্রভু-পায় ধরি’ ।\
 > এক ভিক্ষা মাগি, মোরে দেহ’ কৃপা করি’ ॥২৪৯॥
 
-> bhikṣā karāñā miśra kahe prabhu-pāya dhari'
+> bhikṣā karāñā miśra kahe prabhu-pāya dhari'\
 > eka bhikṣā māgi, more deha' kṛpā kari'
 
 *bhikṣā karāñā*—después de ofrecer el almuerzo; *miśra*—Tapana Miśra; *kahe*—dijo; *prabhu*—del Señor Śrī Caitanya Mahāprabhu; *pāya*—los pies de loto; *dhari'*—tocando; *eka bhikṣā*—un favor; *māgi*—le ruego; *more*—a mí; *deha'*—concédame por favor; *kṛpā kari'*—por Su misericordia sin causa.

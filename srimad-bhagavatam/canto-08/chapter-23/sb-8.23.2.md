@@ -1,13 +1,13 @@
 ### SB 8.23.2
 
-> श्रीबलिरुवाच
-> अहो प्रणामाय कृतः समुद्यमः प्रपन्नभक्तार्थविधौ समाहितः
+> श्रीबलिरुवाच\
+> अहो प्रणामाय कृतः समुद्यमः प्रपन्नभक्तार्थविधौ समाहितः\
 > यल्लोकपालैस्त्वदनुग्रहोऽमरैरलब्धपूर्वोऽपसदेऽसुरेऽर्पितः ॥२॥
 
-> śrī-balir uvāca
-> aho praṇāmāya kṛtaḥ samudyamaḥ
-> prapanna-bhaktārtha-vidhau samāhitaḥ
-> yal loka-pālais tvad-anugraho 'marair
+> śrī-balir uvāca\
+> aho praṇāmāya kṛtaḥ samudyamaḥ\
+> prapanna-bhaktārtha-vidhau samāhitaḥ\
+> yal loka-pālais tvad-anugraho 'marair\
 > alabdha-pūrvo 'pasade 'sure 'rpitaḥ
 
 *śrī-baliḥ uvāca*—Bali Mahārāja said; *aho*—alas; *praṇāmāya*—to offer my respectful obeisances; *kṛtaḥ*—I did; *samudyamaḥ*—only an endeavor; *prapanna-bhakta-artha-vidhau*—in the regulative principles observed by pure devotees; *samāhitaḥ*—is capable; *yat*—that; *loka-pālaiḥ*—by the leaders of various planets; *tvat-anugrahaḥ*—Your causeless mercy; *amaraiḥ*—by the demigods; *alabdha-pūrvaḥ*—not achieved previously; *apasade*—unto a fallen person like me; *asure*—belonging to the *asura* community; *arpitaḥ*—endowed.

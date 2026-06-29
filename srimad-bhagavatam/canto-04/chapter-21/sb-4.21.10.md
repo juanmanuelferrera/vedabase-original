@@ -1,11 +1,11 @@
 ### SB 4.21.10
 
-> को न्वस्य कीर्तिं न शृणोत्यभिज्ञो यद्विक्रमोच्छिष्टमशेषभूपाः ।
+> को न्वस्य कीर्तिं न शृणोत्यभिज्ञो यद्विक्रमोच्छिष्टमशेषभूपाः ।\
 > लोकाः सपाला उपजीवन्ति काममद्यापि तन्मे वद कर्म शुद्धम् ॥१०॥
 
-> ko nv asya kīrtiṁ na śṛṇoty abhijño
-> yad-vikramocchiṣṭam aśeṣa-bhūpāḥ
-> lokāḥ sa-pālā upajīvanti kāmam
+> ko nv asya kīrtiṁ na śṛṇoty abhijño\
+> yad-vikramocchiṣṭam aśeṣa-bhūpāḥ\
+> lokāḥ sa-pālā upajīvanti kāmam\
 > adyāpi tan me vada karma śuddham
 
 *kaḥ*—who; *nu*—but; *asya*—King Pṛthu; *kīrtim*—glorious activities; *na śṛṇoti*—does not hear; *abhijñaḥ*—intelligent; *yat*—his; *vikrama*—chivalry; *ucchiṣṭam*—remnants; *aśeṣa*—innumerable; *bhūpāḥ*—kings; *lokāḥ*—planets; *sa-pālāḥ*—with their demigods; *upajīvanti*—execute livelihood; *kāmam*—desired objects; *adya api*—up to that; *tat*—that; *me*—unto me; *vada*—please speak; *karma*—activities; *śuddham*—auspicious.

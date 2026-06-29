@@ -1,11 +1,11 @@
 ### SB 3.30.21
 
-> तयोर्निर्भिन्नहृदयस्तर्जनैर्जातवेपथुः ।
+> तयोर्निर्भिन्नहृदयस्तर्जनैर्जातवेपथुः ।\
 > पथि श्वभिर्भक्ष्यमाण आर्तोऽघं स्वमनुस्मरन् ॥२१॥
 
-> tayor nirbhinna-hṛdayas
-> tarjanair jāta-vepathuḥ
-> pathi śvabhir bhakṣyamāṇa
+> tayor nirbhinna-hṛdayas\
+> tarjanair jāta-vepathuḥ\
+> pathi śvabhir bhakṣyamāṇa\
 > ārto 'ghaṁ svam anusmaran
 
 *tayoḥ*—of the Yamadūtas; *nirbhinna*—broken; *hṛdayaḥ*—his heart; *tarjanaiḥ*—by the threatening; *jāta*—arisen; *vepathuḥ*—trembling; *pathi*—on the road; *śvabhiḥ*—by dogs; *bhakṣyamāṇaḥ*—being bitten; *ārtaḥ*—distressed; *agham*—sins; *svam*—his; *anusmaran*—remembering.

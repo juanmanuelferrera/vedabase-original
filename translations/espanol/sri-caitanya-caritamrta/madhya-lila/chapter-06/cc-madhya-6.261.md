@@ -1,11 +1,11 @@
 ### CC Madhya 6.261
 
-> তত্তেঽনুকম্পাং সুসমীক্ষমাণো ভুঞ্জান এবাত্মকৃতং বিপাকম্ ।
+> তত্তেঽনুকম্পাং সুসমীক্ষমাণো ভুঞ্জান এবাত্মকৃতং বিপাকম্ ।\
 > হৃদ্বাগ্বপুর্ভির্বিদধন্নমস্তে জীবেত যো ভক্তিপদে স দায়ভাক্ ॥২৬১॥
 
-> tat te 'nukampāṁ su-samīkṣamāṇo
-> bhuñjāna evātma-kṛtaṁ vipākam
-> hṛd-vāg-vapurbhir vidadhan namas te
+> tat te 'nukampāṁ su-samīkṣamāṇo\
+> bhuñjāna evātma-kṛtaṁ vipākam\
+> hṛd-vāg-vapurbhir vidadhan namas te\
 > jīveta yo bhakti-pade sa dāya-bhāk
 
 *tat*—por lo tanto; *te*—Tu; *anukampām*—compasión; *su-samīkṣamāṇaḥ*—esperando; *bhuñjānaḥ*—soportando; *eva*—ciertamente; *ātma-kṛtam*—hechas por uno mismo; *vipākam*—resultados fruitivos; *hṛt*—con el corazón; *vāk*—palabras; *vapurbhiḥ*—y cuerpo; *vidadhan*—ofreciendo; *namaḥ*—reverencias; *te*—a Ti; *jīveta*—que viva; *yaḥ*—cualquiera que; *bhakti-pade*—en el servicio devocional; *saḥ*—él; *dāya-bhāk*—un candidato genuino.

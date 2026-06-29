@@ -1,13 +1,13 @@
 ### SB 7.8.41
 
-> श्रीरुद्र उवाच
-> कोपकालो युगान्तस्ते हतोऽयमसुरोऽल्पकः
+> श्रीरुद्र उवाच\
+> कोपकालो युगान्तस्ते हतोऽयमसुरोऽल्पकः\
 > तत्सुतं पाह्युपसृतं भक्तं ते भक्तवत्सल ॥४१॥
 
-> śrī-rudra uvāca
-> kopa-kālo yugāntas te
-> hato 'yam asuro 'lpakaḥ
-> tat-sutaṁ pāhy upasṛtaṁ
+> śrī-rudra uvāca\
+> kopa-kālo yugāntas te\
+> hato 'yam asuro 'lpakaḥ\
+> tat-sutaṁ pāhy upasṛtaṁ\
 > bhaktaṁ te bhakta-vatsala
 
 *śrī-rudraḥ uvāca*—Lord Śiva offered his prayer; *kopa-kālaḥ*—the right time for Your anger (for the purpose of annihilating the universe); *yuga-antaḥ*—the end of the millennium; *te*—by You; *hataḥ*—killed; *ayam*—this; *asuraḥ*—great demon; *alpakaḥ*—very insignificant; *tat-sutam*—his son (Prahlāda Mahārāja); *pāhi*—just protect; *upasṛtam*—who is surrendered and standing nearby; *bhaktam*—devotee; *te*—of Your Lordship; *bhakta-vatsala*—O my Lord, who are so affectionate to Your devotee.

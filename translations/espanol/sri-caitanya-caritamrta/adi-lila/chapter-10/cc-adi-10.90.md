@@ -1,9 +1,9 @@
 ### CC Adi 10.90
 
-> শাস্ত্রদৃষ্ট্যে কৈল লুপ্ততীর্থের উদ্ধার ।
+> শাস্ত্রদৃষ্ট্যে কৈল লুপ্ততীর্থের উদ্ধার ।\
 > বৃন্দাবনে কৈল শ্রীমূর্তি-সেবার প্রচার ॥৯০॥
 
-> śāstra-dṛṣṭye kaila lupta-tīrthera uddhāra
+> śāstra-dṛṣṭye kaila lupta-tīrthera uddhāra\
 > vṛndāvane kaila śrīmūrti-sevāra pracāra
 
 *śāstra-dṛṣṭye*—conforme a las indicaciones de las escrituras reveladas; *kaila*—hicieron; *lupta*—olvidados; *tīrthera*—de los lugares de peregrinaje; *uddhāra*—excavación; *vṛndāvane*—en Vṛndāvana; *kaila*—hicieron; *śrī-mūrti*—de la Deidad; *sevāra*—de la adoración; *pracāra*—propagación.

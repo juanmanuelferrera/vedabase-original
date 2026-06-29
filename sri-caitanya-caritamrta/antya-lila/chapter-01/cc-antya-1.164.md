@@ -1,13 +1,13 @@
 ### CC Antya 1.164
 
-> রুন্ধন্নম্বুভৃতশ্চমৎকৃতিপরং কুর্বন্মুহুস্তুম্বুরুং
-> ধ্যানাদন্তরয়ন্ সনন্দনমুখান্ বিস্মাপয়ন্ বেধসম্ ।
-> ঔৎসুক্যাবলিভির্বলিং চটুলয়ন্ ভোগীন্দ্রমাঘূর্ণয়ন্
+> রুন্ধন্নম্বুভৃতশ্চমৎকৃতিপরং কুর্বন্মুহুস্তুম্বুরুং\
+> ধ্যানাদন্তরয়ন্ সনন্দনমুখান্ বিস্মাপয়ন্ বেধসম্ ।\
+> ঔৎসুক্যাবলিভির্বলিং চটুলয়ন্ ভোগীন্দ্রমাঘূর্ণয়ন্\
 > ভিন্দন্নণ্ডকটাহভিত্তিমভিতো বভ্রাম বংশীধ্বনিঃ ॥১৬৪॥
 
-> rundhann ambu-bhṛtaś camatkṛti-paraṁ kurvan muhus tumburuṁ
-> dhyānād antarayan sanandana-mukhān vismāpayan vedhasam
-> autsukyāvalibhir baliṁ caṭulayan bhogīndram āghūrṇayan
+> rundhann ambu-bhṛtaś camatkṛti-paraṁ kurvan muhus tumburuṁ\
+> dhyānād antarayan sanandana-mukhān vismāpayan vedhasam\
+> autsukyāvalibhir baliṁ caṭulayan bhogīndram āghūrṇayan\
 > bhindann aṇḍa-kaṭāha-bhittim abhito babhrāma vaṁśī-dhvaniḥ
 
 *rundhan*—blocking; *ambu-bhṛtaḥ*—the clouds bearing rain; *camatkṛti-param*—full of wonder; *kurvan*—making; *muhuḥ*—at every moment; *tumburum*—the King of the Gandharvas, Tumburu; *dhyānāt*—from meditation; *antarayan*—disturbing; *sanandana-mukhān*—the great saintly persons headed by Sanandana; *vismāpayan*—causing wonder; *vedhasam*—even to Lord Brahmā; *autsukya-āvalibhiḥ*—with thoughts of curiosity; *balim*—King Bali; *caṭulayan*—agitating; *bhogī-indram*—the King of the Nāgas; *āghūrṇayan*—whirling around; *bhindan*—penetrating; *aṇḍa-kaṭāha-bhittim*—the strong coverings of the universe; *abhitaḥ*—all around; *babhrāma*—circulated; *vaṁśī-dhvaniḥ*—the transcendental vibration of the flute.

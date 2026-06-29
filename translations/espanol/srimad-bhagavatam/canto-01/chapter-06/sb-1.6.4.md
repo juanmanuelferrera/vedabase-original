@@ -1,11 +1,11 @@
 ### SB 1.6.4
 
-> प्राक्कल्पविषयामेतां स्मृतिं ते मुनिसत्तम ।
+> प्राक्कल्पविषयामेतां स्मृतिं ते मुनिसत्तम ।\
 > न ह्येष व्यवधात्काल एष सर्वनिराकृतिः ॥४॥
 
-> prāk-kalpa-viṣayām etāṁ
-> smṛtiṁ te muni-sattama
-> na hy eṣa vyavadhāt kāla
+> prāk-kalpa-viṣayām etāṁ\
+> smṛtiṁ te muni-sattama\
+> na hy eṣa vyavadhāt kāla\
 > eṣa sarva-nirākṛtiḥ
 
 *prāk*—anterior; *kalpa*—la duración del día de Brahmā; *viṣayām*—asunto en cuestión; *etām*—todos estos; *smṛtim*—recuerdo; *te*—tuyo; *muni-sattama*—¡oh, gran sabio!; *na*—no; *hi*—indudablemente; *eṣaḥ*—todos estos; *vyavadhāt*—hizo ninguna diferencia; *kālaḥ*—transcurso del tiempo; *eṣaḥ*—todos estos; *sarva*—todo; *nirākṛtiḥ*—aniquilación.

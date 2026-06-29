@@ -1,9 +1,9 @@
 ### CC Madhya 20.234
 
-> শ্ৰীনৃসিংহ — চক্রপদ্মগদাশঙ্খধর ।
+> শ্ৰীনৃসিংহ — চক্রপদ্মগদাশঙ্খধর ।\
 > জনার্দন — পদ্মচক্রশঙ্খগদাকর ॥২৩৪॥
 
-> śrī-nṛsiṁha--cakra-padma-gadā-śaṅkha-dhara
+> śrī-nṛsiṁha--cakra-padma-gadā-śaṅkha-dhara\
 > janārdana--padma-cakra-śaṅkha-gadā-kara
 
 *śrī-nṛsiṁha*—el Señor Nṛsiṁha; *cakra*—disco; *padma*—loto; *gadā*—maza; *śaṅkha*—caracola; *dhara*—que sostiene; *janārdana*—el Señor Janārdana; *padma*—loto; *cakra*—disco; *śaṅkha*—caracola; *gadā*—maza; *kara*—en las manos.

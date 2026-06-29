@@ -1,13 +1,13 @@
 ### SB 6.3.4
 
-> यमदूता ऊचुः
-> कति सन्तीह शास्तारो जीवलोकस्य वै प्रभो
+> यमदूता ऊचुः\
+> कति सन्तीह शास्तारो जीवलोकस्य वै प्रभो\
 > त्रैविध्यं कुर्वतः कर्म फलाभिव्यक्तिहेतवः ॥४॥
 
-> yamadūtā ūcuḥ
-> kati santīha śāstāro
-> jīva-lokasya vai prabho
-> trai-vidhyaṁ kurvataḥ karma
+> yamadūtā ūcuḥ\
+> kati santīha śāstāro\
+> jīva-lokasya vai prabho\
+> trai-vidhyaṁ kurvataḥ karma\
 > phalābhivyakti-hetavaḥ
 
 *yamadūtāḥ ūcuḥ*—los mensajeros de Yamarāja dijeron; *kati*—cuántos; *santi*—** hay; *iha*—en este mundo; *śāstāraḥ*—controladores o gobernantes; *jīva-lokasya*—del mundo material; *vai*—en verdad; *prabho*—¡oh, señor!; *trai-vidhyam*—bajo las tres modalidades de la naturaleza material; *kurvataḥ*—realizar; *karma*—actividad; *phala*—de los resultados; *abhivyakti*—de la manifestación; *hetavaḥ*—causas.

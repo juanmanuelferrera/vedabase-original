@@ -1,13 +1,13 @@
 ### SB 4.7.2
 
-> महादेव उवाच
-> नाघं प्रजेश बालानां वर्णये नानुचिन्तये ।
+> महादेव उवाच\
+> नाघं प्रजेश बालानां वर्णये नानुचिन्तये ।\
 > देवमायाभिभूतानां दण्डस्तत्र धृतो मया ॥२॥
 
-> mahādeva uvāca
-> nāghaṁ prajeśa bālānāṁ
-> varṇaye nānucintaye
-> deva-māyābhibhūtānāṁ
+> mahādeva uvāca\
+> nāghaṁ prajeśa bālānāṁ\
+> varṇaye nānucintaye\
+> deva-māyābhibhūtānāṁ\
 > daṇḍas tatra dhṛto mayā
 
 *mahādevaḥ*—Lord Śiva; *uvāca*—said; *na*—not; *agham*—offense; *prajā-īśa*—O lord of created beings; *bālānām*—of the children; *varṇaye*—I regard; *na*—not; *anucintaye*—I consider; *deva-māyā*—the external energy of the Lord; *abhibhūtānām*—of those deluded by; *daṇḍaḥ*—rod; *tatra*—there; *dhṛtaḥ*—used; *mayā*—by me.

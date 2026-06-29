@@ -1,13 +1,13 @@
 ### SB 4.31.8
 
-> मैत्रेय उवाच
-> इति प्रचेतसां पृष्टो भगवान्नारदो मुनिः ।
+> मैत्रेय उवाच\
+> इति प्रचेतसां पृष्टो भगवान्नारदो मुनिः ।\
 > भगवत्युत्तमश्लोक आविष्टात्माब्रवीन्नृपान् ॥८॥
 
-> maitreya uvāca
-> iti pracetasāṁ pṛṣṭo
-> bhagavān nārado muniḥ
-> bhagavaty uttama-śloka
+> maitreya uvāca\
+> iti pracetasāṁ pṛṣṭo\
+> bhagavān nārado muniḥ\
+> bhagavaty uttama-śloka\
 > āviṣṭātmābravīn nṛpān
 
 *maitreyaḥ uvāca*—Maitreya dijo; *iti*—así; *pracetasām*—por los Pracetās; *pṛṣṭaḥ*—preguntado; *bhagavān*—el gran devoto de la Suprema Personalidad de Dios; *nāradaḥ*—Nārada; *muniḥ*—muy reflexivo; *bhagavati*—en la Suprema Personalidad de Dios; *uttama-śloke*—de fama excelente; *āviṣṭa*—absorta; *ātmā*—cuya mente; *abravīt*—respondió; *nṛpān*—a los reyes.

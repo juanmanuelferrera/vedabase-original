@@ -1,11 +1,11 @@
 ### CC Madhya 8.188
 
-> বিদগ্ধো নবতারুণ্যঃ পরিহাস-বিশারদঃ ।
+> বিদগ্ধো নবতারুণ্যঃ পরিহাস-বিশারদঃ ।\
 > নিশ্চিন্তো ধীরললিতঃ স্যাৎ প্রায়ঃ প্রেয়সীবশঃ ॥১৮৮॥
 
-> vidagdho nava-tāruṇyaḥ
-> parihāsa-viśāradaḥ
-> niścinto dhīra-lalitaḥ
+> vidagdho nava-tāruṇyaḥ\
+> parihāsa-viśāradaḥ\
+> niścinto dhīra-lalitaḥ\
 > syāt prāyaḥ preyasī-vaśaḥ
 
 *vidagdhaḥ*—clever; *nava-tāruṇyaḥ*—always freshly youthful; *parihāsa*—in joking; *viśāradaḥ*—expert; *niścintaḥ*—without anxiety; *dhīra-lalitaḥ*—a hero in loving affairs; *syāt*—is; *prāyaḥ*—almost always; *preyasī-vaśaḥ*—one who keeps His girlfriends subjugated.

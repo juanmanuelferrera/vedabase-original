@@ -1,11 +1,11 @@
 ### Bg 6.30
 
-> यो मां पश्यति सर्वत्र सर्वं च मयि पश्यति ।
+> यो मां पश्यति सर्वत्र सर्वं च मयि पश्यति ।\
 > तस्याहं न प्रणश्यामि स च मे न प्रणश्यति ॥३०॥
 
-> yo māṁ paśyati sarvatra
-> sarvaṁ ca mayi paśyati
-> tasyāhaṁ na praṇaśyāmi
+> yo māṁ paśyati sarvatra\
+> sarvaṁ ca mayi paśyati\
+> tasyāhaṁ na praṇaśyāmi\
 > sa ca me na praṇaśyati
 
 *yaḥ*—quienquiera; *mām*—Mí; *paśyati*—ve; *sarvatra*—en todas partes; *sarvam*—todo; *ca*—y; *mayi*—en Mí; *paśyati*—ve; *tasya*—suyo; *aham*—Yo; *na*—no; *praṇaśyāmi*—estoy perdido; *saḥ*—él; *ca*—también; *me*—a Mí; *na*—ni; *praṇaśyati*—está perdido.

@@ -1,14 +1,14 @@
 ### SB 9.18.29
 
-> पित्रा दत्ता देवयान्यै शर्मिष्ठा सानुगा तदा
-> स्वानां तत्सङ्कटं वीक्ष्य तदर्थस्य च गौरवम
+> पित्रा दत्ता देवयान्यै शर्मिष्ठा सानुगा तदा\
+> स्वानां तत्सङ्कटं वीक्ष्य तदर्थस्य च गौरवम\
 > देवयानीं पर्यचरत्स्त्रीसहस्रेण दासवत ॥२९॥
 
-> pitrā dattā devayānyai
-> śarmiṣṭhā sānugā tadā
-> svānāṁ tat saṅkaṭaṁ vīkṣya
-> tad-arthasya ca gauravam
-> devayānīṁ paryacarat
+> pitrā dattā devayānyai\
+> śarmiṣṭhā sānugā tadā\
+> svānāṁ tat saṅkaṭaṁ vīkṣya\
+> tad-arthasya ca gauravam\
+> devayānīṁ paryacarat\
 > strī-sahasreṇa dāsavat
 
 *pitrā*—por el padre; *dattā*—dada; *devayānyai*—a Devayānī, la hija de Śukrācārya; *śarmiṣṭhā*—la hija de Vṛṣaparvā; *sa-anugā*—con sus amigas; *tadā*—en esa ocasión; *svānām*—de su propia; *tat*—esa; *saṅkaṭam*—posición peligrosa; *vīkṣya*—al observar; *tat*—de él; *arthasya*—del beneficio; *ca*—también; *gauravam*—la grandeza; *devayānīm*—a Devayānī; *paryacarat*—sirvió; *strī-sahasreṇa*—con miles de mujeres más; *dāsa-vat*—actuando como esclava.

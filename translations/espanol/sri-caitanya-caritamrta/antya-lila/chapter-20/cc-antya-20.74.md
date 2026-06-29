@@ -1,9 +1,9 @@
 ### CC Antya 20.74
 
-> তাঁর ত্যক্ত ‘অবশেষ’ সংক্ষেপে কহিল ।
+> তাঁর ত্যক্ত ‘অবশেষ’ সংক্ষেপে কহিল ।\
 > লীলার বাহুল্যে গ্রন্থ তথাপি বাড়িল ॥৭৪॥
 
-> tāṅra tyakta 'avaśeṣa' saṅkṣepe kahila
+> tāṅra tyakta 'avaśeṣa' saṅkṣepe kahila\
 > līlāra bāhulye grantha tathāpi bāḍila
 
 *tāṅra*—de él; *tyakta*—omitidos; *aveśeṣa*—lo restante; *saṅkṣepe kahila*—he descrito muy brevemente; *līlāra bāhulye*—debido a la abundancia de pasatiempos; *grantha*—este libro; *tathāpi*—aun así; *bāḍila*—ha aumentado.

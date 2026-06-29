@@ -1,9 +1,9 @@
 ### CC Madhya 24.244
 
-> নারদ কহে, — ‘একবস্তু মাগি তোমার স্থানে’ ।
+> নারদ কহে, — ‘একবস্তু মাগি তোমার স্থানে’ ।\
 > ব্যাধ কহে, — “মৃগাদি লহ, যেই তোমার মনে ॥২৪৪॥
 
-> nārada kahe,--'eka-vastu māgi tomāra sthāne'
+> nārada kahe,--'eka-vastu māgi tomāra sthāne'\
 > vyādha kahe,--"mṛgādi laha, yei tomāra mane
 
 *nārada kahe*—Nārada Muni dijo; *eka-vastu māgi*—deseo pedirte una cosa; *tomāra sthāne*—a ti; *vyādha kahe*—el cazador respondió; *mṛga-ādi laha*—llevad algunos de los animales cazados; *yei tomāra mane*—lo que deseéis.

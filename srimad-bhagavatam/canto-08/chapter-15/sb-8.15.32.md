@@ -1,11 +1,11 @@
 ### SB 8.15.32
 
-> एष विप्रबलोदर्कः सम्प्रत्यूर्जितविक्रमः
+> एष विप्रबलोदर्कः सम्प्रत्यूर्जितविक्रमः\
 > तेषामेवापमानेन सानुबन्धो विनङ्क्ष्यति ॥३२॥
 
-> evaṁ sumantritārthās te
-> guruṇārthānudarśinā
-> hitvā tri-viṣṭapaṁ jagmur
+> evaṁ sumantritārthās te\
+> guruṇārthānudarśinā\
+> hitvā tri-viṣṭapaṁ jagmur\
 > gīrvāṇāḥ kāma-rūpiṇaḥ
 
 *evam*—thus; *su-mantrita*—being well advised; *arthāḥ*—about duties; *te*—they (the demigods); *guruṇā*—by their spiritual master; *artha-anudarśinā*—whose instructions were quite befitting; *hitvā*—giving up; *tri-viṣṭapam*—the heavenly kingdom; *jagmuḥ*—went; *gīrvāṇāḥ*—the demigods; *kāma-rūpiṇaḥ*—who could assume any form they liked.

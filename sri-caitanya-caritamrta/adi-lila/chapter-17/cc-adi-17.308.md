@@ -1,11 +1,11 @@
 ### CC Adi 17.308
 
-> অচিন্ত্যাঃ খলু যে ভাবা ন তাংস্তর্কেণ যোজয়েৎ ।
+> অচিন্ত্যাঃ খলু যে ভাবা ন তাংস্তর্কেণ যোজয়েৎ ।\
 > প্রকৃতিভ্যঃ পরং যচ্চ তদচিন্ত্যস্য লক্ষণম ॥৩০৮॥
 
-> acintyāḥ khalu ye bhāvā
-> na tāṁs tarkeṇa yojayet
-> prakṛtibhyaḥ paraṁ yac ca
+> acintyāḥ khalu ye bhāvā\
+> na tāṁs tarkeṇa yojayet\
+> prakṛtibhyaḥ paraṁ yac ca\
 > tad acintyasya lakṣaṇam
 
 *acintyāḥ*—inconceivable; *khalu*—certainly; *ye*—those; *bhāvaḥ*—subject matters; *na*—not; *tān*—them; *tarkeṇa*—by argument; *yojayet*—one may understand; *prakṛtibhyaḥ*—to material nature; *param*—transcendental; *yat*—that which; *ca*—and; *tat*—that; *acintyasya*—of the inconceivable; *lakṣaṇam*—a symptom.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.34
 
-> সার্বভৌমে তোমার কৃপা, — তার এই চিহ্ন ।
+> সার্বভৌমে তোমার কৃপা, — তার এই চিহ্ন ।\
 > অস্পৃশ্য স্পর্শিলে হঞা তাঁর প্রেমাধীন ॥৩৪॥
 
-> sārvabhaume tomāra kṛpā,—tāra ei cihna
+> sārvabhaume tomāra kṛpā,—tāra ei cihna\
 > aspṛśya sparśile hañā tāṅra premādhīna
 
 *sārvabhaume*—unto Sārvabhauma Bhaṭṭācārya; *tomāra*—Your; *kṛpā*—mercy; *tāra*—of such mercy; *ei*—this; *cihna*—the symptom; *aspṛśya*—untouchable; *sparśile*—You have touched; *hañā*—becoming; *tāṅra*—his; *prema-adhīna*—influenced by love.

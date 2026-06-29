@@ -1,11 +1,11 @@
 ### SB 9.22.20
 
-> वीरयूथाग्रणीर्येन रामोऽपि युधि तोषितः
+> वीरयूथाग्रणीर्येन रामोऽपि युधि तोषितः\
 > शान्तनोर्दासकन्यायां जज्ञए चित्राङ्गदः सुतः ॥२०॥
 
-> vīra-yūthāgraṇīr yena
-> rāmo 'pi yudhi toṣitaḥ
-> śāntanor dāsa-kanyāyāṁ
+> vīra-yūthāgraṇīr yena\
+> rāmo 'pi yudhi toṣitaḥ\
+> śāntanor dāsa-kanyāyāṁ\
 > jajñe citrāṅgadaḥ sutaḥ
 
 *vīra-yūtha-agraṇīḥ*—Bhīṣmadeva, el más poderoso de todos los guerreros; *yena*—por quien; *rāmaḥ api*—el propio Paraśurāma, la encarnación de Dios; *yudhi*—en un combate; *toṣitaḥ*—quedó satisfecho (al ser derrotado por Bhīṣmadeva); *śāntanoḥ*—por Śāntanu; *dāsa-kanyāyām*—en el vientre de Satyavatī, tenida por hija de un *śūdra*; *jajñe*—nació; *citrāṅgadaḥ*—Citrāṅgada; *sutaḥ*—un hijo.

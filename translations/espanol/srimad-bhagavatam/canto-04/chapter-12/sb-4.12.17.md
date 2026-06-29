@@ -1,13 +1,13 @@
 ### SB 4.12.17
 
-> तस्यां विशुद्धकरणः शिववार्विगाह्य
-> बद्ध्वासनं जितमरुन्मनसाहृताक्षः ।
-> स्थूले दधार भगवत्प्रतिरूप एतद्
+> तस्यां विशुद्धकरणः शिववार्विगाह्य\
+> बद्ध्वासनं जितमरुन्मनसाहृताक्षः ।\
+> स्थूले दधार भगवत्प्रतिरूप एतद्\
 > ध्यायंस्तदव्यवहितो व्यसृजत्समाधौ ॥१७॥
 
-> tasyāṁ viśuddha-karaṇaḥ śiva-vār vigāhya
-> baddhvāsanaṁ jita-marun manasāhṛtākṣaḥ
-> sthūle dadhāra bhagavat-pratirūpa etad
+> tasyāṁ viśuddha-karaṇaḥ śiva-vār vigāhya\
+> baddhvāsanaṁ jita-marun manasāhṛtākṣaḥ\
+> sthūle dadhāra bhagavat-pratirūpa etad\
 > dhyāyaṁs tad avyavahito vyasṛjat samādhau
 
 *tasyām*—en Badarikāśrama; *viśuddha*—purificó; *karaṇaḥ*—sus sentidos; *śiva*—pura; *vāḥ*—agua; *vigāhya*—bañarse en; *baddhvā*—habiendo establecido; *āsanam*—un lugar para sentarse; *jita*—controlado; *marut*—el proceso respiratorio; *manasā*—con la mente; *āhṛta*—retraidos; *akṣaḥ*—los sentidos; *sthūle*—físicos; *dadhāra*—concentrados; *bhagavat-pratirūpe*—en la forma exacta del Señor; *etat*—la mente; *dhyāyan*—meditando en; *tat*—aquella; *avyavahitaḥ*—sin cesar; *vyasṛjat*—entró; *samādhau*—en trance.

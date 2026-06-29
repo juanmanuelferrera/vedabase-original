@@ -1,9 +1,9 @@
 ### CC Adi 12.34
 
-> আচার্যেরে স্থাপিয়াছে করিয়া ঈশ্বর ।
+> আচার্যেরে স্থাপিয়াছে করিয়া ঈশ্বর ।\
 > ইথে দোষ নাহি, আচার্য — দৈবত ঈশ্বর ॥৩৪॥
 
-> ācāryere sthāpiyāche kariyā īśvara
+> ācāryere sthāpiyāche kariyā īśvara\
 > ithe doṣa nāhi, ācārya—daivata īśvara
 
 *ācāryere*—unto Śrī Advaita Ācārya; *sthāpiyāche*—he established; *kariyā*—mentioning; *īśvara*—as the Supreme Personality of Godhead; *ithe*—in this; *doṣa*—fault; *nāhi*—there is not; *ācārya*—Advaita Ācārya; *daivataīśvara*—He is actually the Supreme Personality of Godhead.

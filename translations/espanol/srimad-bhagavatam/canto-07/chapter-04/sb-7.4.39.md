@@ -1,11 +1,11 @@
 ### SB 7.4.39
 
-> क्वचिद्रुदति वैकुण्ठ चिन्ताशबलचेतनः
+> क्वचिद्रुदति वैकुण्ठ चिन्ताशबलचेतनः\
 > क्वचिद्धसति तच्चिन्ता ह्लाद उद्गायति क्वचित ॥३९॥
 
-> kvacid rudati vaikuṇṭha-
-> cintā-śabala-cetanaḥ
-> kvacid dhasati tac-cintā-
+> kvacid rudati vaikuṇṭha-\
+> cintā-śabala-cetanaḥ\
+> kvacid dhasati tac-cintā-\
 > hlāda udgāyati kvacit
 
 *kvacit*—a veces; *rudati*—llora; *vaikuṇṭha-cintā*—con el pensamiento de Kṛṣṇa; *śabala-cetanaḥ*—cuya mente estaba confundida; *kvacit*—a veces; *hasati*—ríe; *tat-cintā*—al pensar en Él; *āhlādaḥ*—lleno de júbilo; *udgāyati*—canta en voz muy alta; *kvacit*—a veces.

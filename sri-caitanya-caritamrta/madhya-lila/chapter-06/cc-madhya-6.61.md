@@ -1,9 +1,9 @@
 ### CC Madhya 6.61
 
-> আজি যে হৈল আমার বড়ই বিপত্তি ।
+> আজি যে হৈল আমার বড়ই বিপত্তি ।\
 > তাহা হৈতে কৈলে তুমি আমার অব্যাহতি ।।” ॥ ৬১ ॥
 
-> āji ye haila āmāra baḍa-i vipatti
+> āji ye haila āmāra baḍa-i vipatti\
 > tāhā haite kaile tumi āmāra avyāhati"
 
 *āji*—today; *ye*—that which; *haila*—happened; *āmāra*—My; *baḍa-i*—very great; *vipatti*—obstacle; *tāhā*—that danger; *haite*—from; *kaile*—did; *tumi*—you; *āmāra*—My; *avyāhati*—relief.

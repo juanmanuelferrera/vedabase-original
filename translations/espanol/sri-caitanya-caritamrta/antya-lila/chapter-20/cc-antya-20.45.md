@@ -1,9 +1,9 @@
 ### CC Antya 20.45
 
-> এত ভাবে রাধার মন অস্থির হইলা ।
+> এত ভাবে রাধার মন অস্থির হইলা ।\
 > সখীগণ-আগে প্রৌঢ়ি-শ্লোক যে পড়িলা ॥৪৫॥
 
-> eta bhāve rādhāra mana asthira ha-ilā
+> eta bhāve rādhāra mana asthira ha-ilā\
 > sakhī-gaṇa-āge prauḍhi-śloka ye paḍilā
 
 *eta bhāve*—en ese estado de ánimo; *rādhāra*—de Śrīmatī Rādhārāṇī; *mana*—la mente; *asthira ha-ilā*—se agitó; *sakhī-gaṇa-āge*—ante las amigas, las gopīs; *prauḍhi-śloka*—verso devocional avanzado; *ye*—el cual; *paḍilā*—Ella recitó.

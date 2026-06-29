@@ -1,9 +1,9 @@
 ### CC Antya 1.137
 
-> রায় কহে, — “প্ররোচনাদি কহ দেখি, শুনি ?”
+> রায় কহে, — “প্ররোচনাদি কহ দেখি, শুনি ?”\
 > রূপ কহে, — মহাপ্রভুর শ্রবণেচ্ছা জানি ॥১৩৭॥
 
-> rāya kahe,—"prarocanādi kaha dekhi, śuni?"
+> rāya kahe,—"prarocanādi kaha dekhi, śuni?"\
 > rūpa kahe,—"mahāprabhura śravaṇecchā jāni"
 
 *rāya kahe*—Śrīla Rāmānanda Rāya says; *prarocanādi kaha*—please recite the *prarocanā*; *dekhi*—I shall see; *śuni*—and hear; *rūpa kahe*—Śrīla Rūpa Gosāñi replies; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *śravaṇa-icchā*—desired to hear; *jāni*—I think.

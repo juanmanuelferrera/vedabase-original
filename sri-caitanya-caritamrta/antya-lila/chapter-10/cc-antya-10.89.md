@@ -1,9 +1,9 @@
 ### CC Antya 10.89
 
-> তবে গোবিন্দ বহির্বাস তাঁর উপরে দিয়া ।
+> তবে গোবিন্দ বহির্বাস তাঁর উপরে দিয়া ।\
 > ভিতর-ঘরে গেলা মহাপ্রভুরে লঙ্ঘিয়া ॥৮৯॥
 
-> tabe govinda bahirvāsa tāṅra upare diyā
+> tabe govinda bahirvāsa tāṅra upare diyā\
 > bhitara-ghare gelā mahāprabhure laṅghiyā
 
 *tabe*—then; *govinda*—Govinda; *bahirvāsa*—outward wrapper; *tāṅra upare*—over Him; *diyā*—spreading; *bhitara-ghare*—within the room; *gelā*—went; *mahāprabhure laṅghiyā*—crossing Śrī Caitanya Mahāprabhu.

@@ -1,9 +1,9 @@
 ### CC Antya 13.87
 
-> প্রভু কহে, — “গোবিন্দ, মোর সঙ্গে রহিবা ।
+> প্রভু কহে, — “গোবিন্দ, মোর সঙ্গে রহিবা ।\
 > যাহাঁ তাহাঁ মোর রক্ষায় সাবধান হইবা ।।” ॥ ৮৭ ॥
 
-> prabhu kahe,--"govinda, mora saṅge rahibā
+> prabhu kahe,--"govinda, mora saṅge rahibā\
 > yāhāṅ tāhāṅ mora rakṣāya sāvadhāna ha-ibā"
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *govinda*—Mi querido Govinda; *mora saṅge rahibā*—debes permanecer siempre conmigo; *yāhāṅ tāhāṅ*—en todo lugar; *mora*—Mi; *rakṣāya*—para la protección; *sāvadhāna ha-ibā*—debes tener mucho cuidado.

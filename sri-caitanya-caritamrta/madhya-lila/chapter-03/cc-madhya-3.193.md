@@ -1,9 +1,9 @@
 ### CC Madhya 3.193
 
-> সবা বিদায় দিয়া প্রভু চলিতে কৈল মন ।
+> সবা বিদায় দিয়া প্রভু চলিতে কৈল মন ।\
 > হরিদাস কান্দি’ কহে করুণ বচন ॥১৯৩॥
 
-> sabā vidāya diyā prabhu calite kaila mana
+> sabā vidāya diyā prabhu calite kaila mana\
 > haridāsa kāndi' kahe karuṇa vacana
 
 *sabā vidāya diyā*—asking everyone to return home; *prabhu*—the Lord; *calite*—to go; *kaila*—decided; *mana*—the mind; *haridāsa kāndi'*—Haridāsa Ṭhākura began to cry; *kahe*—says; *karuṇa*—pathetic; *vacana*—words.

@@ -1,13 +1,13 @@
 ### SB 4.8.35
 
-> ध्रुव उवाच
-> सोऽयं शमो भगवता सुखदुःखहतात्मनाम् ।
+> ध्रुव उवाच\
+> सोऽयं शमो भगवता सुखदुःखहतात्मनाम् ।\
 > दर्शितः कृपया पुंसां दुर्दर्शोऽस्मद्विधैस्तु यः ॥३५॥
 
-> dhruva uvāca
-> so 'yaṁ śamo bhagavatā
-> sukha-duḥkha-hatātmanām
-> darśitaḥ kṛpayā puṁsāṁ
+> dhruva uvāca\
+> so 'yaṁ śamo bhagavatā\
+> sukha-duḥkha-hatātmanām\
+> darśitaḥ kṛpayā puṁsāṁ\
 > durdarśo 'smad-vidhais tu yaḥ
 
 *dhruvaḥ uvāca*—Dhruva Mahārāja dijo; *saḥ*—esa; *ayam*—este; *śamaḥ*—equilibrio de la mente; *bhagavatā*—por Tu Señoría; *sukha-duḥkha*—felicidad y miserias; *hata-ātmanām*—los que están afectados; *darśitaḥ*—mostrada; *kṛpayā*—por misericordia; *puṁsām*—de la gente; *durdarśaḥ*—muy difícil de percibir; *asmat-vidhaiḥ*—por personas como nosotros; *tu*—pero; *yaḥ*—todo lo que has dicho.

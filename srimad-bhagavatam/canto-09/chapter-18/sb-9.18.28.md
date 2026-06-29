@@ -1,11 +1,11 @@
 ### SB 9.18.28
 
-> तथेत्यवस्थिते प्राह देवयानी मनोगतम
+> तथेत्यवस्थिते प्राह देवयानी मनोगतम\
 > पित्रा दत्ता यतो यास्ये सानुगा यातु मामनु ॥२८॥
 
-> tathety avasthite prāha
-> devayānī manogatam
-> pitrā dattā yato yāsye
+> tathety avasthite prāha\
+> devayānī manogatam\
+> pitrā dattā yato yāsye\
 > sānugā yātu mām anu
 
 *tathā iti*—when King Vṛṣaparvā agreed to Śukrācārya's proposal; *avasthite*—the situation being settled in this way; *prāha*—said; *devayānī*—the daughter of Śukrācārya; *manogatam*—her desire; *pitrā*—by the father; *dattā*—given; *yataḥ*—to whomever; *yāsye*—I shall go; *sa-anugā*—with her friends; *yātu*—shall go; *mām anu*—as my follower or servant.

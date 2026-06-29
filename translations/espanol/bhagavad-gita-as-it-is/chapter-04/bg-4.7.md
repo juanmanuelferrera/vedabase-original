@@ -1,11 +1,11 @@
 ### Bg 4.7
 
-> यदा यदा हि धर्मस्य ग्लानिर्भवति भारत ।
+> यदा यदा हि धर्मस्य ग्लानिर्भवति भारत ।\
 > अभ्युत्थानमधर्मस्य तदात्मानं सृजाम्यहम् ॥७॥
 
-> yadā yadā hi dharmasya
-> glānir bhavati bhārata
-> abhyutthānam adharmasya
+> yadā yadā hi dharmasya\
+> glānir bhavati bhārata\
+> abhyutthānam adharmasya\
 > tadātmānaṁ sṛjāmyaham
 
 *yadā*—cuandoquiera; *yadā*—dondequiera; *hi*—ciertamente; *dharmasya*—de la religión; *glāniḥ*—discrepancias; *bhavati*—se manifiesta, se vuelve; *bhārata*—¡oh, descendiente de Bharata!; *abhyutthānam*—predominio; *adharmasya*—de la irreligión; *tadā*—en ese momento; *ātmānam*—ser; *sṛjāmi*—manifiesto; *aham*—Yo.

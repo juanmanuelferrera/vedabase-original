@@ -1,14 +1,14 @@
 ### SB 6.16.14
 
-> बालघ्न्यो व्रीडितास्तत्र बालहत्याहतप्रभाः
-> बालहत्याव्रतं चेरुर्ब्राह्मणैर्यन्निरूपितम
+> बालघ्न्यो व्रीडितास्तत्र बालहत्याहतप्रभाः\
+> बालहत्याव्रतं चेरुर्ब्राह्मणैर्यन्निरूपितम\
 > यमुनायां महाराज स्मरन्त्यो द्विजभाषितम ॥१४॥
 
-> bāla-ghnyo vrīḍitās tatra
-> bāla-hatyā-hata-prabhāḥ
-> bāla-hatyā-vrataṁ cerur
-> brāhmaṇair yan nirūpitam
-> yamunāyāṁ mahārāja
+> bāla-ghnyo vrīḍitās tatra\
+> bāla-hatyā-hata-prabhāḥ\
+> bāla-hatyā-vrataṁ cerur\
+> brāhmaṇair yan nirūpitam\
+> yamunāyāṁ mahārāja\
 > smarantyo dvija-bhāṣitam
 
 *bāla-ghnyaḥ*—las asesinas del niño; *vrīḍitāḥ*—muy avergonzadas; *tatra*—allí; *bāla-hatyā*—por haber matado al niño; *hata*—haber perdido; *prabhāḥ*—todo el lustre corporal; *bāla-hatyā-vratam*—la expiación por el asesinato del niño; *ceruḥ*—cumplieron; *brāhmaṇaiḥ*—por los sacerdotes; *yat*—la cual; *nirūpitam*—descrita; *yamunāyām*—en el río Yamunā; *mahā-rāja*—¡oh, rey Parīkṣit!; *smarantyaḥ*—recordando; *dvija-bhāṣitam*—lo que había dicho el *brāhmaṇa*.

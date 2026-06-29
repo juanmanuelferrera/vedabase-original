@@ -1,9 +1,9 @@
 ### CC Antya 1.21
 
-> রাত্রে আসি’ শিবানন্দ ভোজনের কালে ।
+> রাত্রে আসি’ শিবানন্দ ভোজনের কালে ।\
 > ‘কুক্কুর পাঞাছে ভাত?’ — সেবকে পুছিলে ॥২১॥
 
-> rātre asi' śivānanda bhojanera kale
+> rātre asi' śivānanda bhojanera kale\
 > 'kukkura pāñāche bhāta?'—sevake puchile
 
 *rātre āsi'*—returning at night; *śivānanda*—Śivānanda Sena; *bhojanera kāle*—at the time of eating; *kukkura*—the dog; *pāñāche*—has gotten; *bhāta*—rice; *sevake*—from the servant; *puchile*—he inquired.

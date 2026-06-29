@@ -1,11 +1,11 @@
 ### SB 3.32.7
 
-> सूर्यद्वारेण ते यान्ति पुरुषं विश्वतोमुखम् ।
+> सूर्यद्वारेण ते यान्ति पुरुषं विश्वतोमुखम् ।\
 > परावरेशं प्रकृतिमस्योत्पत्त्यन्तभावनम् ॥७॥
 
-> sūrya-dvāreṇa te yānti
-> puruṣaṁ viśvato-mukham
-> parāvareśaṁ prakṛtim
+> sūrya-dvāreṇa te yānti\
+> puruṣaṁ viśvato-mukham\
+> parāvareśaṁ prakṛtim\
 > asyotpatty-anta-bhāvanam
 
 *sūrya-dvāreṇa*—siguiendo el sendero de la iluminación; *te*—ellos; *yānti*—se dirigen; *puruṣam*—a la Personalidad de Dios; *viśvataḥ-mukham*—cuyo rostro mira hacia todas partes; *para-avara-īśam*—el propietario de los mundos materiales y espirituales; *prakṛtim*—la causa material; *asya*—del mundo; *utpatti*—de la manifestación; *anta*—de la disolución; *bhāvanam*—la causa.

@@ -1,13 +1,13 @@
 ### SB 3.9.26
 
-> मैत्रेय उवाच
-> स्वसम्भवं निशाम्यैवं तपोविद्यासमाधिभिः ।
+> मैत्रेय उवाच\
+> स्वसम्भवं निशाम्यैवं तपोविद्यासमाधिभिः ।\
 > यावन्मनोवचः स्तुत्वा विरराम स खिन्नवत् ॥२६॥
 
-> maitreya uvāca
-> sva-sambhavaṁ niśāmyaivaṁ
-> tapo-vidyā-samādhibhiḥ
-> yāvan mano-vacaḥ stutvā
+> maitreya uvāca\
+> sva-sambhavaṁ niśāmyaivaṁ\
+> tapo-vidyā-samādhibhiḥ\
+> yāvan mano-vacaḥ stutvā\
 > virarāma sa khinnavat
 
 *maitreyaḥ uvāca*—the great sage Maitreya said; *sva-sambhavam*—the source of his appearance; *niśāmya*—by seeing; *evam*—thus; *tapaḥ*—penance; *vidyā*—knowledge; *samādhibhiḥ*—as also by concentration of the mind; *yāvat*—as far as possible; *manaḥ*—mind; *vacaḥ*—words; *stutvā*—having prayed; *virarāma*—became silent; *saḥ*—he (Brahmā); *khinna-vat*—as if tired.

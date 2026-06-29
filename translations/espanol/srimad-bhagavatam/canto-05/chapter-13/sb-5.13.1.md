@@ -1,13 +1,13 @@
 ### SB 5.13.1
 
-> ब्राह्मण उवाच
-> दुरत्ययेऽध्वन्यजया निवेशितो रजस्तमःसत्त्वविभक्तकर्मदृक
+> ब्राह्मण उवाच\
+> दुरत्ययेऽध्वन्यजया निवेशितो रजस्तमःसत्त्वविभक्तकर्मदृक\
 > स एष सार्थोऽर्थपरः परिभ्रमन्भवाटवीं याति न शर्म विन्दति ॥१॥
 
-> brāhmaṇa uvāca
-> duratyaye 'dhvany ajayā niveśito
-> rajas-tamaḥ-sattva-vibhakta-karmadṛk
-> sa eṣa sārtho 'rtha-paraḥ paribhraman
+> brāhmaṇa uvāca\
+> duratyaye 'dhvany ajayā niveśito\
+> rajas-tamaḥ-sattva-vibhakta-karmadṛk\
+> sa eṣa sārtho 'rtha-paraḥ paribhraman\
 > bhavāṭavīṁ yāti na śarma vindati
 
 *brāhmaṇaḥ uvāca*—el *brāhmaṇa* Jaḍa Bharata continuó hablando; *duratyaye*—que es muy difícil de atravesar; *adhvani*—en el sendero de las actividades fruitivas (realizar acciones en esta vida, y mediante ellas crear un cuerpo en la siguiente, y de ese modo someterse continuamente al ciclo de nacimientos y muertes); *ajayā*—por *māyā,* la energía externa de la Suprema Personalidad de Dios; *niveśitaḥ*—que se hace entrar; *rajaḥ-tamaḥ-sattva-vibhakta-karma-dṛk*—el alma condicionada que solo ve actividades fruitivas que producen beneficios inmediatos, y los resultados de esas actividades, que, en función de las modalidades de la bondad, la pasión y la ignorancia, se dividen en tres grupos; *saḥ*—él; *eṣaḥ*—esta; *sa-arthaḥ*—la entidad viviente que busca erróneamente la complacencia de los sentidos; *artha-paraḥ*—deseosa de ganar riquezas; *paribhraman*—vagando por todas partes; *bhava-aṭavīm*—en el bosque de *bhava,* es decir, el bosque del ciclo de nacimientos y muertes; *yāti*—entra; *na*—no; *śarma*—felicidad; *vindati*—obtiene.

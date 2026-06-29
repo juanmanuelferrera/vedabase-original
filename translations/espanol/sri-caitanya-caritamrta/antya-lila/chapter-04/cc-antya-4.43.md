@@ -1,9 +1,9 @@
 ### CC Antya 4.43
 
-> তবে আমি-দুঁহে তারে আলিঙ্গন কৈলুঁ ।
+> তবে আমি-দুঁহে তারে আলিঙ্গন কৈলুঁ ।\
 > ‘সাধু, দৃঢ়ভক্তি তোমার’ — কহি’ প্রশংসিলুঁ ॥৪৩॥
 
-> tabe āmi-duṅhe tāre āliṅgana kailuṅ
+> tabe āmi-duṅhe tāre āliṅgana kailuṅ\
 > 'sādhu, dṛḍha-bhakti tomāra '--kahi' praśaṁsiluṅ
 
 *tabe*—en ese momento; *āmi-duṅhe*—ambos; *tāre*—a él; *āliṅgana kailuṅ*—abrazamos; *sādhu*—muy bien; *dṛḍha*—muy firme; *bhakti*—devoción; *tomāra*—tuya; *kahi'*—diciendo; *praśaṁsiluṅ*—alabamos.

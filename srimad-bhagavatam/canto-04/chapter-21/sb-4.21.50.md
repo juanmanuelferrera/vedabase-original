@@ -1,11 +1,11 @@
 ### SB 4.21.50
 
-> नात्यद्भुतमिदं नाथ तवाजीव्यानुशासनम् ।
+> नात्यद्भुतमिदं नाथ तवाजीव्यानुशासनम् ।\
 > प्रजानुरागो महतां प्रकृतिः करुणात्मनाम् ॥५०॥
 
-> nātyadbhutam idaṁ nātha
-> tavājīvyānuśāsanam
-> prajānurāgo mahatāṁ
+> nātyadbhutam idaṁ nātha\
+> tavājīvyānuśāsanam\
+> prajānurāgo mahatāṁ\
 > prakṛtiḥ karuṇātmanām
 
 *na*—not; *ati*—very great; *adbhutam*—wonderful; *idam*—this; *nātha*—O lord; *tava*—your; *ājīvya*—source of income; *anuśāsanam*—ruling over the citizens; *prajā*—citizens; *anurāgaḥ*—affection; *mahatām*—of the great; *prakṛtiḥ*—nature; *karuṇa*—merciful; *ātmanām*—of the living entities.

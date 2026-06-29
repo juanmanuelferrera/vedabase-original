@@ -1,11 +1,11 @@
 ### SB 7.13.44
 
-> आत्मानुभूतौ तां मायां जुहुयात्सत्यदृङ्मुनिः
+> आत्मानुभूतौ तां मायां जुहुयात्सत्यदृङ्मुनिः\
 > ततो निरीहो विरमेत्स्वानुभूत्यात्मनि स्थितः ॥४४॥
 
-> ātmānubhūtau tāṁ māyāṁ
-> juhuyāt satya-dṛṅ muniḥ
-> tato nirīho viramet
+> ātmānubhūtau tāṁ māyāṁ\
+> juhuyāt satya-dṛṅ muniḥ\
+> tato nirīho viramet\
 > svānubhūty-ātmani sthitaḥ
 
 *ātma-anubhūtau*—a la autorrealización; *tām*—ese; *māyām*—el ego falso de la existencia material; *juhuyāt*—debe ofrecer como oblación; *satya-dṛk*—aquel que ha comprendido realmente la Verdad Suprema; *muniḥ*—esa persona introspectiva; *tataḥ*—debido a esa autorrealización; *nirīhaḥ*—sin deseos materiales; *viramet*—debe retirarse por completo de las actividades materiales; *sva-anubhūti-ātmani*—en la autorrealización; *sthitaḥ*—situada de ese modo.

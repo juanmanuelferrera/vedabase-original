@@ -1,21 +1,21 @@
 ### SB 9.14.17-18
 
-> मित्रावरुणयोः शापादापन्ना नरलोकताम
-> निशम्य पुरुषश्रेष्ठं कन्दर्पमिव रूपिणम
-> धृतिं विष्टभ्य ललना उपतस्थे तदन्तिके ॥१७॥
-> स तां विलोक्य नृपतिर्हर्षेणोत्फुल्ललोचनः
+> मित्रावरुणयोः शापादापन्ना नरलोकताम\
+> निशम्य पुरुषश्रेष्ठं कन्दर्पमिव रूपिणम\
+> धृतिं विष्टभ्य ललना उपतस्थे तदन्तिके ॥१७॥\
+> स तां विलोक्य नृपतिर्हर्षेणोत्फुल्ललोचनः\
 > उवाच श्लक्ष्णया वाचा देवीं हृष्टतनूरुहः ॥१८॥
 
-> mitrā-varuṇayoḥ śāpād
-> āpannā nara-lokatām
-> niśamya puruṣa-śreṣṭhaṁ
+> mitrā-varuṇayoḥ śāpād\
+> āpannā nara-lokatām\
+> niśamya puruṣa-śreṣṭhaṁ\
 > kandarpam iva rūpiṇam
 
-> dhṛtiṁ viṣṭabhya lalanā
-> upatasthe tad-antike
-> sa tāṁ vilokya nṛpatir
-> harṣeṇotphulla-locanaḥ
-> uvāca ślakṣṇayā vācā
+> dhṛtiṁ viṣṭabhya lalanā\
+> upatasthe tad-antike\
+> sa tāṁ vilokya nṛpatir\
+> harṣeṇotphulla-locanaḥ\
+> uvāca ślakṣṇayā vācā\
 > devīṁ hṛṣṭa-tanūruhaḥ
 
 *mitrā-varuṇayoḥ*—of Mitra and Varuṇa; *śāpāt*—by the curse; *āpannā*—having obtained; *nara-lokatām*—the habits of a human being; *niśamya*—thus seeing; *puruṣa-śreṣṭham*—the best of males; *kandarpam iva*—like Cupid; *rūpiṇam*—having beauty; *dhṛtim*—patience, forbearance; *viṣṭabhya*—accepting; *lalanā*—that woman; *upatasthe*—approached; *tat-antike*—near to him; *saḥ*—he, Purūravā; *tām*—her; *vilokya*—by seeing; *nṛpatiḥ*—the King; *harṣeṇa*—with great jubilation; *utphulla-locanaḥ*—whose eyes became very bright; *uvāca*—said; *ślakṣṇayā*—very mild; *vācā*—by words; *devīm*—unto the demigoddess; *hṛṣṭa-tanūruhaḥ*—the hairs on whose body were standing in jubilation.

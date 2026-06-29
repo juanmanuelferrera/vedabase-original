@@ -1,11 +1,11 @@
 ### SB 7.6.3
 
-> सुखमैन्द्रियकं दैत्या देहयोगेन देहिनाम
+> सुखमैन्द्रियकं दैत्या देहयोगेन देहिनाम\
 > सर्वत्र लभ्यते दैवाद्यथा दुःखमयत्नतः ॥३॥
 
-> sukham aindriyakaṁ daityā
-> deha-yogena dehinām
-> sarvatra labhyate daivād
+> sukham aindriyakaṁ daityā\
+> deha-yogena dehinām\
+> sarvatra labhyate daivād\
 > yathā duḥkham ayatnataḥ
 
 *sukham*—felicidad; *aindriyakam*—en relación con los sentidos materiales; *daityāḥ*—¡oh, queridos amigos nacidos en familias demoníacas!; *deha-yogena*—debido a poseer un determinado tipo de cuerpo material; *dehinām*—de todas las entidades vivientes corporificadas; *sarvatra*—en todas partes (en todas las formas de vida); *labhyate*—puede obtenerse; *daivāt*—por disposición superior; *yathā*—tal como; *duḥkham*—infelicidad; *ayatnataḥ*—sin esfuerzo.

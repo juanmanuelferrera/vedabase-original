@@ -1,11 +1,11 @@
 ### SB 4.12.10
 
-> अथायजत यज्ञेशं क्रतुभिर्भूरिदक्षिणैः ।
+> अथायजत यज्ञेशं क्रतुभिर्भूरिदक्षिणैः ।\
 > द्रव्यक्रियादेवतानां कर्म कर्मफलप्रदम् ॥१०॥
 
-> athāyajata yajñeśaṁ
-> kratubhir bhūri-dakṣiṇaiḥ
-> dravya-kriyā-devatānāṁ
+> athāyajata yajñeśaṁ\
+> kratubhir bhūri-dakṣiṇaiḥ\
+> dravya-kriyā-devatānāṁ\
 > karma karma-phala-pradam
 
 *atha*—a continuación; *ayajata*—adoró; *yajña-īśam*—al amo de los sacrificios; *kratubhiḥ*—con ceremonias de sacrificio; *bhūri*—grandes; *dakṣiṇaiḥ*—donaciones de caridad; *dravya-kriyā-devatānām*—de (sacrificios que incluyen distintos) útiles, actividades y semidioses; *karma*—el objetivo; *karma-phala*—el resultado de actividades; *pradam*—que concede.

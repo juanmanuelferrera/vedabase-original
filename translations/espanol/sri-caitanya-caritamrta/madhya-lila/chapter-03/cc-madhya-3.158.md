@@ -1,9 +1,9 @@
 ### CC Madhya 3.158
 
-> সবাকারে বাসা দিল — ভক্ষ্য, অন্নপান  ।
+> সবাকারে বাসা দিল — ভক্ষ্য, অন্নপান  ।\
 > বহুদিন আচার্য-গোসাঞি কৈল সমাধান ॥১৫৮॥
 
-> sabākāre vāsā dila--bhakṣya, anna-pāna
+> sabākāre vāsā dila--bhakṣya, anna-pāna\
 > bahu-dina ācārya-gosāñi kaila samādhāna
 
 *sabākāre*—a todos ellos; *vāsā dila*—dio alojamiento; *bhakṣya*—comestibles; *anna-pāna*—alimentos y bebida; *bahu-dina*—durante muchos días; *ācārya-gosāñi*—Advaita Ācārya; *kaila*—hizo; *samādhāna*—disposición.

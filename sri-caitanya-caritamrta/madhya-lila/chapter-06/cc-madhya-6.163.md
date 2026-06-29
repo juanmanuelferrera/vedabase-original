@@ -1,9 +1,9 @@
 ### CC Madhya 6.163
 
-> গীতাশাস্ত্রে জীবরূপ ‘শক্তি’ করি’ মানে ।
+> গীতাশাস্ত্রে জীবরূপ ‘শক্তি’ করি’ মানে ।\
 > হেন জীবে ‘ভেদ’ কর ঈশ্বরের সনে ॥১৬৩॥
 
-> gītā-śāstre jīva-rūpa 'śakti' kari' māne
+> gītā-śāstre jīva-rūpa 'śakti' kari' māne\
 > hena jīve 'bheda' kara īśvarera sane
 
 *gītā-śāstre*—in the *Bhagavad-gītā*; *jīva-rūpa*—the identity of the living entity; *śakti*—potency; *kari'*—making; *māne*—accepts; *hena*—such; *jīve*—living entity; *bheda*—different; *kara*—you make; *īśvarera*—the Supreme Personality of Godhead; *sane*—with.

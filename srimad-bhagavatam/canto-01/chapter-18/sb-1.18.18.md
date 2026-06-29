@@ -1,13 +1,13 @@
 ### SB 1.18.18
 
-> सूत उवाच
-> अहो वयं जन्मभृतोऽद्य हास्म वृद्धानुवृत्त्यापि विलोमजाताः ।
+> सूत उवाच\
+> अहो वयं जन्मभृतोऽद्य हास्म वृद्धानुवृत्त्यापि विलोमजाताः ।\
 > दौष्कुल्यमाधिं विधुनोति शीघ्रं महत्तमानामभिधानयोगः ॥१८॥
 
-> sūta uvāca
-> aho vayaṁ janma-bhṛto 'dya hāsma
-> vṛddhānuvṛttyāpi viloma-jātāḥ
-> dauṣkulyam ādhiṁ vidhunoti śīghraṁ
+> sūta uvāca\
+> aho vayaṁ janma-bhṛto 'dya hāsma\
+> vṛddhānuvṛttyāpi viloma-jātāḥ\
+> dauṣkulyam ādhiṁ vidhunoti śīghraṁ\
 > mahattamānām abhidhāna-yogaḥ
 
 *sūtaḥ uvāca*—Sūta Gosvāmī said; *aho*—how; *vayam*—we; *janma-bhṛtaḥ*—promoted in birth; *adya*—today; *ha*—clearly; *āsma*—have become; *vṛddha-anuvṛttyā*—by serving those who are advanced in knowledge; *api*—although; *viloma-jātāḥ*—born in a mixed caste; *dauṣkulyam*—disqualification of birth; *ādhim*—sufferings; *vidhunoti*—purifies; *śīghram*—very soon; *mahat-tamānām*—of those who are great; *abhidhāna*—conversation; *yogaḥ*—connection.

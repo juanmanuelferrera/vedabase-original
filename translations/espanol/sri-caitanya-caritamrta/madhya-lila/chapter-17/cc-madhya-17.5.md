@@ -1,9 +1,9 @@
 ### CC Madhya 17.5
 
-> রাত্র্যে উঠি’ বনপথে পলাঞা যাব ।
+> রাত্র্যে উঠি’ বনপথে পলাঞা যাব ।\
 > একাকী যাইব, কাহোঁ সঙ্গে না লইব ॥৫॥
 
-> rātrye uṭhi' vana-pathe palāñā yāba
+> rātrye uṭhi' vana-pathe palāñā yāba\
 > ekākī yāiba, kāhoṅ saṅge nā la-iba
 
 *rātrye uṭhi'*—levantándose de noche; *vana-pathe*—por el camino del bosque; *palāñā yāba*—me iré en secreto; *ekākī yāiba*—iré solo; *kāhoṅ*—a nadie; *saṅge*—conmigo; *nā la-iba*—no llevaré.

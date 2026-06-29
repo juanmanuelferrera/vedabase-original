@@ -1,9 +1,9 @@
 ### CC Adi 12.78
 
-> শাখা-উপশাখা, তার নাহিক গণন ।
+> শাখা-উপশাখা, তার নাহিক গণন ।\
 > কিছুমাত্র কহি’ করি দিগ্দরশন ॥৭৮॥
 
-> śākhā-upaśākhā, tāra nāhika gaṇana
+> śākhā-upaśākhā, tāra nāhika gaṇana\
 > kichu-mātra kahi' kari dig-daraśana
 
 *śākhā-upaśākhā*—ramas y subramas; *tāra*—de ellas; *nāhika*—no hay; *gaṇana*—enumeración posible; *kichu-mātra*—algo acerca de ellas; *kahi'*—describiendo; *kari*—simplemente estoy dando; *dig-daraśana*—un destello de la dirección.

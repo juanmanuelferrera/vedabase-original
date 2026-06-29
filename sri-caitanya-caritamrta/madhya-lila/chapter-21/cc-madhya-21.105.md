@@ -1,13 +1,13 @@
 ### CC Madhya 21.105
 
-> ভূষণের ভূষণ অঙ্গ, তাহেঁ ললিত ত্রিভঙ্গ,
-> তাহার উপর ভ্রূধনু-নর্তন ।
-> তেরছে নেত্রান্ত বাণ, তার দৃঢ় সন্ধান,
+> ভূষণের ভূষণ অঙ্গ, তাহেঁ ললিত ত্রিভঙ্গ,\
+> তাহার উপর ভ্রূধনু-নর্তন ।\
+> তেরছে নেত্রান্ত বাণ, তার দৃঢ় সন্ধান,\
 > বিন্ধে রাধা-গোপীগণ-মন ॥১০৫॥
 
-> bhūṣaṇera bhūṣaṇa aṅga, tāheṅ lalita tribhaṅga,
-> tāhāra upara bhrūdhanu-nartana
-> terache netrānta bāṇa, tāra dṛḍha sandhāna,
+> bhūṣaṇera bhūṣaṇa aṅga, tāheṅ lalita tribhaṅga,\
+> tāhāra upara bhrūdhanu-nartana\
+> terache netrānta bāṇa, tāra dṛḍha sandhāna,\
 > vindhe rādhā-gopī-gaṇa-mana
 
 *bhūṣaṇera*—of the ornament; *bhūṣaṇa*—the ornament; *aṅga*—the limbs of the body; *tāheṅ*—that feature; *lalita*—delicate; *tri-bhaṅga*—bent in three places; *tāhāra upara*—above that; *bhrū-dhanu-nartana*—dancing of the eyebrows; *terache*—crooked; *netra-anta*—the end of the eye; *bāṇa*—arrow; *tāra*—of that arrow; *dṛḍha*—strong; *sandhāna*—fixing; *vindhe*—pierces; *rādhā*—of Śrīmatī Rādhārāṇī; *gopī-gaṇa*—of the *gopīs* also; *mana*—the minds.

@@ -1,11 +1,11 @@
 ### SB 3.24.47
 
-> इच्छाद्वेषविहीनेन सर्वत्र समचेतसा ।
+> इच्छाद्वेषविहीनेन सर्वत्र समचेतसा ।\
 > भगवद्भक्तियुक्तेन प्राप्ता भागवती गतिः ॥४७॥
 
-> icchā-dveṣa-vihīnena
-> sarvatra sama-cetasā
-> bhagavad-bhakti-yuktena
+> icchā-dveṣa-vihīnena\
+> sarvatra sama-cetasā\
+> bhagavad-bhakti-yuktena\
 > prāptā bhāgavatī gatiḥ
 
 *icchā*—deseo; *dveṣa*—y aversión; *vihīnena*—liberado de; *sarvatra*—en todas partes; *sama*—igual; *cetasā*—con la mente; *bhagavat*—a la Personalidad de Dios; *bhakti-yuktena*—desempeñando servicio devocional; *prāptā*—fue obtenido; *bhāgavatī gatiḥ*—el destino del devoto (ir de regreso al hogar, de vuelta a Dios).

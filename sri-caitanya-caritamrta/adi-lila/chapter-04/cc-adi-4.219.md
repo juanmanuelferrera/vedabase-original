@@ -1,11 +1,11 @@
 ### CC Adi 4.219
 
-> কংসারিরপি সংসারবাসনাবদ্ধশৃঙ্খলাম্ ।
+> কংসারিরপি সংসারবাসনাবদ্ধশৃঙ্খলাম্ ।\
 > রাধামাধায় হৃদয়ে তত্যাজ ব্রজসুন্দরীঃ ॥২১৯॥
 
-> kaṁsārir api saṁsāra-
-> vāsanā-baddha-śṛṅkhalām
-> rādhām ādhāya hṛdaye
+> kaṁsārir api saṁsāra-\
+> vāsanā-baddha-śṛṅkhalām\
+> rādhām ādhāya hṛdaye\
 > tatyāja vraja-sundarīḥ
 
 *kaṁsa-ariḥ*—Lord Kṛṣṇa, the enemy of Kaṁsa; *api*—moreover; *saṁsāra*—for the essence of enjoyment (*rāsa-līlā*); *vāsanā*—by the desire; *baddha*—tied on; *śṛṅkhalām*—who was like the chains; *rādhām*—Śrīmatī Rādhārāṇī; *ādhāya*—taking; *hṛdaye*—in the heart; *tatyāja*—left aside; *vraja-sundarīḥ*—the other *gopīs.*

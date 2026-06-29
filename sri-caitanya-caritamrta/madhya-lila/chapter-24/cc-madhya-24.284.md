@@ -1,9 +1,9 @@
 ### CC Madhya 24.284
 
-> আর অর্থ শুন, যাহা — অর্থের ভাণ্ডার ।
+> আর অর্থ শুন, যাহা — অর্থের ভাণ্ডার ।\
 > স্থূলে ‘দুই’ অর্থ, সূক্ষ্মে ‘বত্রিশ’ প্রকার ॥২৮৪॥
 
-> āra artha śuna, yāhā—arthera bhāṇḍāra
+> āra artha śuna, yāhā—arthera bhāṇḍāra\
 > sthūle 'dui' artha, sūkṣme 'batriśa' prakāra
 
 *āra*—another; *artha*—import; *śuna*—hear; *yāhā*—which; *arthera bhāṇḍāra*—storehouse of knowledge; *sthūle*—grossly; *dui artha*—two meanings; *sūkṣme*—by a subtle import; *batriśa*—thirty-two; *prakāra*—varieties.

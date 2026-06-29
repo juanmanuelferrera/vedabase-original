@@ -1,11 +1,11 @@
 ### SB 6.1.50
 
-> पञ्चभिः कुरुते स्वार्थान्पञ्च वेदाथ पञ्चभिः
+> पञ्चभिः कुरुते स्वार्थान्पञ्च वेदाथ पञ्चभिः\
 > एकस्तु षोडशेन त्रीन्स्वयं सप्तदशोऽश्नुते ॥५०॥
 
-> pañcabhiḥ kurute svārthān
-> pañca vedātha pañcabhiḥ
-> ekas tu ṣoḍaśena trīn
+> pañcabhiḥ kurute svārthān\
+> pañca vedātha pañcabhiḥ\
+> ekas tu ṣoḍaśena trīn\
 > svayaṁ saptadaśo 'śnute
 
 *pañcabhiḥ*—con los cinco sentidos para la acción (voz, brazos, piernas, ano y genitales); *kurute*—realiza; *sva-arthān*—sus intereses o deseos; *pañca*—los cinco objetos de los sentidos (sonido, forma, tacto, aroma y gusto); *veda*—conoce; *atha*—así; *pañcabhiḥ*—por los cinco sentidos de percepción (oído, visión, olfato, gusto y sensación); *ekaḥ*—el único; *tu*—pero; *ṣoḍaśena*—con esos quince elementos y la mente; *trīn*—de las tres categorías de la experiencia (felicidad, aflicción y una mezcla de ambas); *svayam*—él, la propia entidad viviente; *saptadaśaḥ*—el factor decimoséptimo; *aśnute*—disfruta.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.70
 
-> আচার্যাদি ভক্ত করে প্রভুরে নিমন্ত্রণ ।
+> আচার্যাদি ভক্ত করে প্রভুরে নিমন্ত্রণ ।\
 > তাহাঁ তাহাঁ ভিক্ষা করে লঞা ভক্তগণ ॥৭০॥
 
-> ācāryādi bhakta kare prabhure nimantraṇa
+> ācāryādi bhakta kare prabhure nimantraṇa\
 > tāhāṅ tāhāṅ bhikṣā kare lañā bhakta-gaṇa
 
 *ācārya-ādi*—headed by Advaita Ācārya; *bhakta*—devotees; *kare*—do; *prabhure*—unto Śrī Caitanya Mahāprabhu; *nimantraṇa*—invitation; *tāhāṅ tāhāṅ*—here and there; *bhikṣā kare*—takes His lunch; *lañā*—taking; *bhakta-gaṇa*—all the devotees.

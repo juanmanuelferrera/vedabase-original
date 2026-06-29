@@ -1,13 +1,13 @@
 ### SB 4.31.30
 
-> श्रीशुक उवाच
-> इत्यानम्य तमामन्त्र्य विदुरो गजसाह्वयम् ।
+> श्रीशुक उवाच\
+> इत्यानम्य तमामन्त्र्य विदुरो गजसाह्वयम् ।\
 > स्वानां दिदृक्षुः प्रययौ ज्ञातीनां निर्वृताशयः ॥३०॥
 
-> śrī-śuka uvāca
-> ity ānamya tam āmantrya
-> viduro gajasāhvayam
-> svānāṁ didṛkṣuḥ prayayau
+> śrī-śuka uvāca\
+> ity ānamya tam āmantrya\
+> viduro gajasāhvayam\
+> svānāṁ didṛkṣuḥ prayayau\
 > jñātīnāṁ nirvṛtāśayaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *iti*—así; *ānamya*—ofrecer reverencias; *tam*—a Maitreya; *āmantrya*—con su permiso; *viduraḥ*—Vidura; *gaja-sāhvayam*—la ciudad de Hastināpura; *svānām*—propios; *didṛkṣuḥ*—deseando ver; *prayayau*—dejó aquel lugar; *jñātīnām*—de sus parientes; *nirvṛta-āśayaḥ*—libre de deseos materiales.

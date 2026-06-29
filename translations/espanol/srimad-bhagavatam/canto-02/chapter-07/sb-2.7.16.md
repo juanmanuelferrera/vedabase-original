@@ -1,13 +1,13 @@
 ### SB 2.7.16
 
-> श्रुत्वा हरिस्तमरणार्थिनमप्रमेयश्
-> चक्रायुधः पतगराजभुजाधिरूढः ।
-> चक्रेण नक्रवदनं विनिपाट्य तस्माद्
+> श्रुत्वा हरिस्तमरणार्थिनमप्रमेयश्\
+> चक्रायुधः पतगराजभुजाधिरूढः ।\
+> चक्रेण नक्रवदनं विनिपाट्य तस्माद्\
 > धस्ते प्रगृह्य भगवान्कृपयोज्जहार ॥१६॥
 
-> śrutvā haris tam araṇārthinam aprameyaś
-> cakrāyudhaḥ patagarāja-bhujādhirūḍhaḥ
-> cakreṇa nakra-vadanaṁ vinipāṭya tasmād
+> śrutvā haris tam araṇārthinam aprameyaś\
+> cakrāyudhaḥ patagarāja-bhujādhirūḍhaḥ\
+> cakreṇa nakra-vadanaṁ vinipāṭya tasmād\
 > dhaste pragṛhya bhagavān kṛpayojjahāra
 
 *śrutvā*—por oír; *hariḥ*—la Personalidad de Dios; *tam*—él; *araṇa-arthinam*—aquel que necesita ayuda; *aprameyaḥ*—el ilimitadamente poderoso Señor; *cakra*—disco; *āyudhaḥ*—equipado con Su arma; *pataga-rāja*—el rey de los pájaros (Garuḍa); *bhuja-adhirūḍhaḥ*—encontrándose sentado en las alas de; *cakreṇa*—por el disco; *nakra-vadanam*—la boca del cocodrilo; *vinipāṭya*—cortando en dos; *tasmāt*—de la boca del cocodrilo; *haste*—en las manos; *pragṛhya*—asiendo la trompa; *bhagavān*—la Personalidad de Dios; *kṛpayā*—debido a la misericordia sin causa; *ujjahāra*—lo salvó a él.

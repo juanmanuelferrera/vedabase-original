@@ -1,9 +1,9 @@
 ### CC Antya 4.216
 
-> সব মনঃকথা গোসাঞি করি’ নির্বাহণ ।
+> সব মনঃকথা গোসাঞি করি’ নির্বাহণ ।\
 > নিশ্চিন্ত হঞা শীঘ্র আইলা বৃন্দাবন ॥২১৬॥
 
-> saba manaḥ-kathā gosāñi kari' nirvāhaṇa
+> saba manaḥ-kathā gosāñi kari' nirvāhaṇa\
 > niścinta hañā śīghra āilā vṛndāvana
 
 *saba*—all; *manaḥ-kathā*—decisions; *gosāñi*—Rūpa Gosvāmī; *kari' nirvāhaṇa*—executing properly; *niścinta hañā*—being freed from all anxiety; *śīghra āilā*—very soon returned; *vṛndāvana*—to Vṛndāvana.

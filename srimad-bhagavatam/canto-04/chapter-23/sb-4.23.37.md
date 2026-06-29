@@ -1,11 +1,11 @@
 ### SB 4.23.37
 
-> मुक्तान्यसङ्गो भगवत्यमलां भक्तिमुद्वहन् ।
+> मुक्तान्यसङ्गो भगवत्यमलां भक्तिमुद्वहन् ।\
 > वैन्यस्य चरितं पुण्यं शृणुयाच्छ्रावयेत्पठेत् ॥३७॥
 
-> muktānya-saṅgo bhagavaty
-> amalāṁ bhaktim udvahan
-> vainyasya caritaṁ puṇyaṁ
+> muktānya-saṅgo bhagavaty\
+> amalāṁ bhaktim udvahan\
+> vainyasya caritaṁ puṇyaṁ\
 > śṛṇuyāc chrāvayet paṭhet
 
 *mukta-anya-saṅgaḥ*—being freed from all material contamination; *bhagavati*—unto the Supreme Personality of Godhead; *amalām*—unalloyed; *bhaktim*—devotional service; *udvahan*—carrying out; *vainyasya*—of the son of Mahārāja Vena; *caritam*—character; *puṇyam*—pious; *śṛṇuyāt*—must hear; *śrāvayet*—must induce others to hear; *paṭhet*—and go on reading.

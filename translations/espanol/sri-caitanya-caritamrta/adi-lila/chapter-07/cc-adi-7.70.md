@@ -1,9 +1,9 @@
 ### CC Adi 7.70
 
-> প্রভাবে দেখিয়ে তোমা সাক্ষাৎ নারায়ণ ।
+> প্রভাবে দেখিয়ে তোমা সাক্ষাৎ নারায়ণ ।\
 > হীনাচার কর কেনে, ইথে কি কারণ ॥৭০॥
 
-> prabhāve dekhiye tomā sākṣāt nārāyaṇa
+> prabhāve dekhiye tomā sākṣāt nārāyaṇa\
 > hīnācāra kara kene, ithe ki kāraṇa
 
 *prabhāve*—por Tu opulencia; *dekhiye*—veo; *tomā*—a Ti; *sākṣāt*—directamente; *nārāyaṇa*—la Suprema Personalidad de Dios; *hīna-ācāra*—comportamiento de clase inferior; *kara*—haces; *kene*—por qué; *ithe*—en esto; *ki*—cuál es; *kāraṇa*—la razón.

@@ -1,9 +1,9 @@
 ### CC Antya 5.69
 
-> প্রভুর চরণ বন্দে উল্লসিত-মনে ।
+> প্রভুর চরণ বন্দে উল্লসিত-মনে ।\
 > প্রভু কহে, — ‘কৃষ্ণকথা হইল শ্রবণে’ ? ॥ ৬৯ ॥
 
-> prabhura caraṇa vande ullasita-mane
+> prabhura caraṇa vande ullasita-mane\
 > prabhu kake,--'kṛṣṇa-kathā ha-ila śravaṇe'?
 
 *prabhura*—de Śrī Caitanya Mahāprabhu; *caraṇa*—los pies de loto; *vande*—adora; *ullasita-mane*—con gran felicidad; *prabhu kahe*—Śrī Caitanya Mahāprabhu dice; *kṛṣṇa-kathā*—temas acerca de Kṛṣṇa; *ha-ila śravaṇe*—escuchaste.

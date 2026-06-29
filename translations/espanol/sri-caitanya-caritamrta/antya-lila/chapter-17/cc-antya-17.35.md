@@ -1,13 +1,13 @@
 ### CC Antya 17.35
 
-> কৈলা জগতে বেণুধ্বনি, সিদ্ধমন্ত্রা যোগিনী,
-> দূতী হঞা মোহে নারী-মন ।
-> মহোৎকণ্ঠা বাড়াঞা, আর্যপথ ছাড়াঞা,
+> কৈলা জগতে বেণুধ্বনি, সিদ্ধমন্ত্রা যোগিনী,\
+> দূতী হঞা মোহে নারী-মন ।\
+> মহোৎকণ্ঠা বাড়াঞা, আর্যপথ ছাড়াঞা,\
 > আনি’ তোমায় করে সমর্পণ ॥৩৫॥
 
-> kailā jagate veṇu-dhvani, siddha-mantrā yoginī,
-> dūtī hañā mohe nārī-mana
-> mahotkaṇṭhā bāḍāñā, ārya-patha chāḍāñā,
+> kailā jagate veṇu-dhvani, siddha-mantrā yoginī,\
+> dūtī hañā mohe nārī-mana\
+> mahotkaṇṭhā bāḍāñā, ārya-patha chāḍāñā,\
 > āni' tomāya kare samarpaṇa
 
 *kailā*—has hecho; *jagate*—en el mundo; *veṇu-dhvani*—la vibración de la flauta; *siddha-mantrā*—perfecta en el canto de mantras; *yoginī*—una mística femenina; *dūtī*—una mensajera; *hañā*—siendo; *mohe*—encanta; *nārī-mana*—las mentes de las mujeres; *mahā-utkaṇṭhā*—gran ansiedad; *bāḍāñā*—aumentando; *ārya-patha*—los principios regulativos; *chāḍāñā*—induciendo a abandonar; *āni'*—trayendo; *tomāya*—a Ti; *kare samarpaṇa*—entrega.

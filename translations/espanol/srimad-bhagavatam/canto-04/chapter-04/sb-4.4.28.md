@@ -1,11 +1,11 @@
 ### SB 4.4.28
 
-> तत्पश्यतां खे भुवि चाद्भुतं महधा हेति वादः सुमहानजायत ।
+> तत्पश्यतां खे भुवि चाद्भुतं महधा हेति वादः सुमहानजायत ।\
 > हन्त प्रिया दैवतमस्य देवी जहावसून्केन सती प्रकोपिता ॥२८॥
 
-> tat paśyatāṁ khe bhuvi cādbhutaṁ mahad
-> hā heti vādaḥ sumahān ajāyata
-> hanta priyā daivatamasya devī
+> tat paśyatāṁ khe bhuvi cādbhutaṁ mahad\
+> hā heti vādaḥ sumahān ajāyata\
+> hanta priyā daivatamasya devī\
 > jahāv asūn kena satī prakopitā
 
 *tat*—eso; *paśyatām*—de los que habían visto; *khe*—en el cielo; *bhuvi*—en la Tierra; *ca*—y; *adbhutam*—maravilloso; *mahat*—grande; *hā hā*—¡oh!, ¡oh!; *iti*—de este modo; *vādaḥ*—clamor; *su-mahān*—tumultuoso; *ajāyata*—ocurrido; *hanta*—¡ay!; *priyā*—la querida; *daiva-tamasya*—del semidiós más respetable (el Señor Śiva); *devī*—Satī; *jahau*—abandonó; *asūn*—la vida; *kena*—por Dakṣa; *satī*—Satī; *prakopitā*—enfadada.

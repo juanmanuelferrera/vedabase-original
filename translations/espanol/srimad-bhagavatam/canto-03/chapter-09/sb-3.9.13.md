@@ -1,13 +1,13 @@
 ### SB 3.9.13
 
-> पुंसामतो विविधकर्मभिरध्वराद्यैर्
-> दानेन चोग्रतपसा परिचर्यया च ।
-> आराधनं भगवतस्तव सत्क्रियार्थो
+> पुंसामतो विविधकर्मभिरध्वराद्यैर्\
+> दानेन चोग्रतपसा परिचर्यया च ।\
+> आराधनं भगवतस्तव सत्क्रियार्थो\
 > धर्मोऽर्पितः कर्हिचिद्म्रियते न यत्र ॥१३॥
 
-> puṁsām ato vividha-karmabhir adhvarādyair
-> dānena cogra-tapasā paricaryayā ca
-> ārādhanaṁ bhagavatas tava sat-kriyārtho
+> puṁsām ato vividha-karmabhir adhvarādyair\
+> dānena cogra-tapasā paricaryayā ca\
+> ārādhanaṁ bhagavatas tava sat-kriyārtho\
 > dharmo 'rpitaḥ karhicid mriyate na yatra
 
 *puṁsām*—de la gente; *ataḥ*—por lo tanto; *vividha-karmabhiḥ*—mediante diversas actividades fruitivas; *adhvara-ādyaiḥ*—mediante la ejecución de rituales védicos; *dānena*—mediante caridades; *ca*—y; *ugra*—muy ardua; *tapasā*—austeridad; *paricaryayā*—mediante servicio trascendental; *ca*—también; *ārādhanam*—adoración; *bhagavataḥ*—de la Personalidad de Dios; *tava*—Tuya; *sat-kriyā-arthaḥ*—simplemente para complacer a Tu Señoría; *dharmaḥ*—religión; *arpitaḥ*—ofrecido así; *karhicit*—en cualquier momento; *mriyate*—vence; *na*—nunca; *yatra*—ahí.

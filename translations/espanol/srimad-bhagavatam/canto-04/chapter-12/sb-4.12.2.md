@@ -1,13 +1,13 @@
 ### SB 4.12.2
 
-> धनद उवाच
-> भो भोः क्षत्रियदायाद परितुष्टोऽस्मि तेऽनघ ।
+> धनद उवाच\
+> भो भोः क्षत्रियदायाद परितुष्टोऽस्मि तेऽनघ ।\
 > यत्त्वं पितामहादेशाद्वैरं दुस्त्यजमत्यजः ॥२॥
 
-> dhanada uvāca
-> bho bhoḥ kṣatriya-dāyāda
-> parituṣṭo 'smi te 'nagha
-> yat tvaṁ pitāmahādeśād
+> dhanada uvāca\
+> bho bhoḥ kṣatriya-dāyāda\
+> parituṣṭo 'smi te 'nagha\
+> yat tvaṁ pitāmahādeśād\
 > vairaṁ dustyajam atyajaḥ
 
 *dhana-daḥ uvāca*—el tesorero de los semidioses (Kuvera) dijo; *bhoḥ bhoḥ*—¡oh!; *kṣatriya-dāyāda*—¡oh, hijo de *kṣatriya*!; *parituṣṭaḥ*—muy contento; *asmi*—yo estoy; *te*—contigo; *anagha*—¡oh, intachable!; *yat*—porque; *tvam*—tú; *pitāmaha*—de tu abuelo; *ādeśāt*—siguiendo la instrucción; *vairam*—enemistad; *dustyajam*—difícil de eliminar; *atyajaḥ*—has abandonado.

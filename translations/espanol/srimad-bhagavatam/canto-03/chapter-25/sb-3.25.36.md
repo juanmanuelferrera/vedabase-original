@@ -1,11 +1,11 @@
 ### SB 3.25.36
 
-> तैर्दर्शनीयावयवैरुदार विलासहासेक्षितवामसूक्तैः ।
+> तैर्दर्शनीयावयवैरुदार विलासहासेक्षितवामसूक्तैः ।\
 > हृतात्मनो हृतप्राणांश्च भक्तिरनिच्छतो मे गतिमण्वीं प्रयुङ्क्ते ॥३६॥
 
-> tair darśanīyāvayavair udāra-
-> vilāsa-hāsekṣita-vāma-sūktaiḥ
-> hṛtātmano hṛta-prāṇāṁś ca bhaktir
+> tair darśanīyāvayavair udāra-\
+> vilāsa-hāsekṣita-vāma-sūktaiḥ\
+> hṛtātmano hṛta-prāṇāṁś ca bhaktir\
 > anicchato me gatim aṇvīṁ prayuṅkte
 
 *taiḥ*—por esas formas; *darśanīya*—encantadoras; *avayavaiḥ*—cuyos miembros; *udāra*—ensalzados; *vilāsa*—pasatiempos; *hāsa*—sonrientes; *īkṣita*—miradas; *vāma*—placenteras; *sūktaiḥ*—cuyas deliciosas palabras; *hṛta*—cautivadas; *ātmanaḥ*—sus mentes; *hṛta*—cautivadas; *prāṇān*—sus sentidos; *ca*—y; *bhaktiḥ*—servicio devocional; *anicchataḥ*—sin desearlo; *me*—Mía; *gatim*—morada; *aṇvīm*—sutil; *prayuṅkte*—se garantiza.

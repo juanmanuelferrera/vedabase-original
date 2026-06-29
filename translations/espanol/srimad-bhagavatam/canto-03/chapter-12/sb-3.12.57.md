@@ -1,11 +1,11 @@
 ### SB 3.12.57
 
-> आकूतिं रुचये प्रादात्कर्दमाय तु मध्यमाम् ।
+> आकूतिं रुचये प्रादात्कर्दमाय तु मध्यमाम् ।\
 > दक्षायादात्प्रसूतिं च यत आपूरितं जगत् ॥५७॥
 
-> ākūtiṁ rucaye prādāt
-> kardamāya tu madhyamām
-> dakṣāyādāt prasūtiṁ ca
+> ākūtiṁ rucaye prādāt\
+> kardamāya tu madhyamām\
+> dakṣāyādāt prasūtiṁ ca\
 > yata āpūritaṁ jagat
 
 *ākūtim*—la hija llamada Ākūti; *rucaye*—al sabio Ruci; *prādāt*—entregó; *kardamāya*—al sabio Kardama; *tu*—pero; *madhyamām*—la mediana (Devahūti); *dakṣāya*—a Dakṣa; *adāt*—entregó; *prasūtim*—la hija menor; *ca*—también; *yataḥ*—de donde; *āpūritam*—se llena; *jagat*—el mundo entero.

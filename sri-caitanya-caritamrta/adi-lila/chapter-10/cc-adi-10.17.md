@@ -1,9 +1,9 @@
 ### CC Adi 10.17
 
-> বক্রেশ্বর পণ্ডিত — প্রভুর বড় প্রিয় ভৃত্য ।
+> বক্রেশ্বর পণ্ডিত — প্রভুর বড় প্রিয় ভৃত্য ।\
 > এক-ভাবে চব্বিশ প্রহর যাঁর নৃত্য ॥১৭॥
 
-> vakreśvara paṇḍita—prabhura baḍa priya bhṛtya
+> vakreśvara paṇḍita—prabhura baḍa priya bhṛtya\
 > eka-bhāve cabbiśa prahara yāṅra nṛtya
 
 *vakreśvara paṇḍita*—of the name Vakreśvara Paṇḍita; *prabhura*—of the Lord; *baḍa*—very; *priya*—dear; *bhṛtya*—servant; *eka-bhāve*—continuously in the same ecstasy; *cabbiśa*—twenty-four; *prahara*—a duration of time comprising three hours; *yāṅra*—whose; *nṛtya*—dancing.

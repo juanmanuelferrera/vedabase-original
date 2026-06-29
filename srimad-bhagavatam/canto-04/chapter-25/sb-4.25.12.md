@@ -1,11 +1,11 @@
 ### SB 4.25.12
 
-> न साधु मेने ताः सर्वा भूतले यावतीः पुरः ।
+> न साधु मेने ताः सर्वा भूतले यावतीः पुरः ।\
 > कामान्कामयमानोऽसौ तस्य तस्योपपत्तये ॥१२॥
 
-> na sādhu mene tāḥ sarvā
-> bhūtale yāvatīḥ puraḥ
-> kāmān kāmayamāno 'sau
+> na sādhu mene tāḥ sarvā\
+> bhūtale yāvatīḥ puraḥ\
+> kāmān kāmayamāno 'sau\
 > tasya tasyopapattaye
 
 *na*—never; *sādhu*—good; *mene*—thought; *tāḥ*—them; *sarvāḥ*—all; *bhū-tale*—on this earth; *yāvatīḥ*—all kinds of; *puraḥ*—residential houses; *kāmān*—objects for sense enjoyment; *kāmayamānaḥ*—desiring; *asau*—that King; *tasya*—his; *tasya*—his; *upapattaye*—for obtaining.

@@ -1,9 +1,9 @@
 ### CC Adi 1.68
 
-> দুইরূপে হয় ভগবানের প্রকাশ ।
+> দুইরূপে হয় ভগবানের প্রকাশ ।\
 > একে ত’ প্রকাশ হয়, আরে ত’ বিলাস ॥৬৮॥
 
-> dui-rūpe haya bhagavānera prakāśa
+> dui-rūpe haya bhagavānera prakāśa\
 > eke ta' prakāśa haya, āre ta' vilāsa
 
 *dui-rūpe*—en dos formas; *haya*—son; *bhagavānera*—de la Suprema Personalidad de Dios; *prakāśa*—manifestaciones; *eke*—en una; *ta'*—ciertamente; *prakāśa*—manifestación; *haya*—es; *āre*—en la otra; *ta'*—ciertamente; *vilāsa*—ocupada en pasatiempos.

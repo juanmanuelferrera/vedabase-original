@@ -1,11 +1,11 @@
 ### SB 2.7.50
 
-> सोऽयं तेऽभिहितस्तात भगवान्विश्वभावनः ।
+> सोऽयं तेऽभिहितस्तात भगवान्विश्वभावनः ।\
 > समासेन हरेर्नान्यदन्यस्मात्सदसच्च यत् ॥५०॥
 
-> so 'yaṁ te 'bhihitas tāta
-> bhagavān viśva-bhāvanaḥ
-> samāsena harer nānyad
+> so 'yaṁ te 'bhihitas tāta\
+> bhagavān viśva-bhāvanaḥ\
+> samāsena harer nānyad\
 > anyasmāt sad-asac ca yat
 
 *saḥ*—that; *ayam*—the same; *te*—unto you; *abhihitaḥ*—explained by me; *tāta*—my dear son; *bhagavān*—the Personality of Godhead; *viśva-bhāvanaḥ*—the creator of the manifested worlds; *samāsena*—in brief; *hareḥ*—without Hari, the Lord; *na*—never; *anyat*—anything else; *anyasmāt*—being the cause of; *sat*—manifested or phenomenal; *asat*—noumenal; *ca*—and; *yat*—whatever there may be.

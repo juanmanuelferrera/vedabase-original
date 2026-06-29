@@ -1,9 +1,9 @@
 ### CC Madhya 9.4
 
-> সেই সব তীর্থ স্পর্শি’ মহাতীর্থ কৈল ৷
+> সেই সব তীর্থ স্পর্শি’ মহাতীর্থ কৈল ৷\
 > সেই ছলে সেই দেশের লোক নিস্তারিল ৷৷ ৪ ৷৷ ॥৪॥
 
-> sei saba tīrtha sparśi' mahā-tīrtha kaila
+> sei saba tīrtha sparśi' mahā-tīrtha kaila\
 > sei chale sei deśera loka nistārila
 
 *sei saba*—todos aquellos; *tīrtha*—lugares santos; *sparśi'*—tocando; *mahā-tīrtha*—grandes lugares de peregrinaje; *kaila*—los convirtió en; *sei chale*—con ese pretexto; *sei deśera*—de esas tierras; *loka*—la gente; *nistārila*—liberó.

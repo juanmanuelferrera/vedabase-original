@@ -1,9 +1,9 @@
 ### CC Madhya 25.194
 
-> তবে সুবুদ্ধি-রায় সেই ‘ছদ্ম’ পাঞা ।
+> তবে সুবুদ্ধি-রায় সেই ‘ছদ্ম’ পাঞা ।\
 > বারাণসী আইলা, সব বিষয় ছাড়িয়া ॥১৯৪॥
 
-> tabe subuddhi-rāya sei 'chadma' pāñā
+> tabe subuddhi-rāya sei 'chadma' pāñā\
 > vārāṇasī āilā, saba viṣaya chādiyā
 
 *tabe*—upon this; *subuddhi-rāya*—Subuddhi Rāya; *sei*—that; *chadma*—plea; *pāñā*—getting an opportunity; *vārāṇasī āilā*—came to Vārāṇasī; *saba*—all; *viṣaya chādiyā*—giving up the implications of material activities.

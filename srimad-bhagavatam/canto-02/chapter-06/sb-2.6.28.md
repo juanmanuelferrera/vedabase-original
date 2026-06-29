@@ -1,11 +1,11 @@
 ### SB 2.6.28
 
-> इति सम्भृतसम्भारः पुरुषावयवैरहम् ।
+> इति सम्भृतसम्भारः पुरुषावयवैरहम् ।\
 > तमेव पुरुषं यज्ञं तेनैवायजमीश्वरम् ॥२८॥
 
-> iti sambhṛta-sambhāraḥ
-> puruṣāvayavair aham
-> tam eva puruṣaṁ yajñaṁ
+> iti sambhṛta-sambhāraḥ\
+> puruṣāvayavair aham\
+> tam eva puruṣaṁ yajñaṁ\
 > tenaivāyajam īśvaram
 
 *iti*—thus; *sambhṛta*—executed; *sambhāraḥ*—equipped myself well; *puruṣa*—the Personality of Godhead; *avayavaiḥ*—by the parts and parcels; *aham*—I; *tam eva*—unto Him; *puruṣam*—the Personality of Godhead; *yajñam*—the enjoyer of all sacrifices; *tena eva*—by all those; *ayajam*—worshiped; *īśvaram*—the supreme controller.

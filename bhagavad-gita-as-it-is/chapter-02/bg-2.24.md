@@ -1,11 +1,11 @@
 ### Bg 2.24
 
-> अच्छेद्योऽयमदाह्योऽयमक्लेद्योऽशोष्य एव च ।
+> अच्छेद्योऽयमदाह्योऽयमक्लेद्योऽशोष्य एव च ।\
 > नित्यः सर्वगतः स्थाणुरचलोऽयं सनातनः ॥२४॥
 
-> acchedyo 'yam adāhyo 'yam
-> akledyo 'śoṣya eva ca
-> nityaḥ sarva-gataḥ sthāṇur
+> acchedyo 'yam adāhyo 'yam\
+> akledyo 'śoṣya eva ca\
+> nityaḥ sarva-gataḥ sthāṇur\
 > acalo 'yaṁ sanātanaḥ
 
 *acchedyaḥ*—unbreakable; *ayam*—this soul; *adāhyaḥ*—cannot be burned; *ayam*—this soul; *akledyaḥ*—insoluble; *aśoṣyaḥ*—cannot be dried; *eva*—certainly; *ca*—and; *nityaḥ*—everlasting; *sarva-gataḥ*—all-pervading; *sthāṇuḥ*—unchangeable; *acalaḥ*—immovable; *ayam*—this soul; *sanātanaḥ*—eternally the same.

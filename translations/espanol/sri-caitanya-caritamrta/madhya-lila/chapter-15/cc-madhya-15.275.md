@@ -1,9 +1,9 @@
 ### CC Madhya 15.275
 
-> ‘মাৎসর্য’-চণ্ডাল কেনে ইহাঁ বসাইলে  ।
+> ‘মাৎসর্য’-চণ্ডাল কেনে ইহাঁ বসাইলে  ।\
 > পরম পবিত্র স্থান অপবিত্র কৈলে ॥২৭৫॥
 
-> 'mātsarya'-caṇḍāla kene ihāṅ vasāile
+> 'mātsarya'-caṇḍāla kene ihāṅ vasāile\
 > parama pavitra sthāna apavitra kaile
 
 *mātsarya*—envidia; *caṇḍāla*—el más bajo de los hombres; *kene*—por qué; *ihāṅ*—aquí; *vasāile*—permitiste sentarse; *parama pavitra*—sumamente purificado; *sthāna*—lugar; *apavitra*—impuro; *kaile*—has hecho.

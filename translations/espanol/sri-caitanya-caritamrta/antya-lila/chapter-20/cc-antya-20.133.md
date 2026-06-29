@@ -1,9 +1,9 @@
 ### CC Antya 20.133
 
-> ভাব-শাবল্যে পুনঃ কৈলা প্রলপন ।
+> ভাব-শাবল্যে পুনঃ কৈলা প্রলপন ।\
 > কর্ণামৃত-শ্লোকের অর্থ কৈলা বিবরণ ॥১৩৩॥
 
-> bhāva-śābalye punaḥ kailā pralapana
+> bhāva-śābalye punaḥ kailā pralapana\
 > karṇāmṛta-ślokera artha kailā vivaraṇa
 
 *bhāva-śābalye*—por la confluencia de todas las emociones extáticas; *punaḥ*—de nuevo; *kailā pralapana*—habló como un loco; *karṇāmṛta-ślokera*—de un verso del Kṛṣṇa-karṇāmṛta; *artha*—el significado; *kailā vivaraṇa*—describió en detalle.

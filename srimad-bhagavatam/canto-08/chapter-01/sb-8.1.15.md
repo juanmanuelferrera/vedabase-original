@@ -1,11 +1,11 @@
 ### SB 8.1.15
 
-> ईहते भगवानीशो न हि तत्र विसज्जते
+> ईहते भगवानीशो न हि तत्र विसज्जते\
 > आत्मलाभेन पूर्णार्थो नावसीदन्ति येऽनु तम ॥१५॥
 
-> īhate bhagavān īśo
-> na hi tatra visajjate
-> ātma-lābhena pūrṇārtho
+> īhate bhagavān īśo\
+> na hi tatra visajjate\
+> ātma-lābhena pūrṇārtho\
 > nāvasīdanti ye 'nu tam
 
 *īhate*—engages in activities of creation, maintenance and annihilation; *bhagavān*—the Supreme Personality of Godhead, Kṛṣṇa; *īśaḥ*—the supreme controller; *na*—not; *hi*—indeed; *tatra*—in such activities; *visajjate*—He becomes entangled; *ātma-lābhena*—because of His own gain; *pūrṇa-arthaḥ*—who is self-satisfied; *na*—not; *avasīdanti*—are disheartened; *ye*—persons who; *anu*—follow; *tam*—the Supreme Personality of Godhead.

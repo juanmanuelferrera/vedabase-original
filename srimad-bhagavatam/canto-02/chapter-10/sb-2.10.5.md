@@ -1,11 +1,11 @@
 ### SB 2.10.5
 
-> अवतारानुचरितं हरेश्चास्यानुवर्तिनाम् ।
+> अवतारानुचरितं हरेश्चास्यानुवर्तिनाम् ।\
 > पुंसामीशकथाः प्रोक्ता नानाख्यानोपबृंहिताः ॥५॥
 
-> avatārānucaritaṁ
-> hareś cāsyānuvartinām
-> puṁsām īśa-kathāḥ proktā
+> avatārānucaritaṁ\
+> hareś cāsyānuvartinām\
+> puṁsām īśa-kathāḥ proktā\
 > nānākhyānopabṛṁhitāḥ
 
 *avatāra*—incarnation of Godhead; *anucaritam*—activities; *hareḥ*—of the Personality of Godhead; *ca*—also; *asya*—of His; *anuvartinām*—followers; *puṁsām*—of the persons; *īśa-kathāḥ*—the science of God; *proktāḥ*—is said; *nānā*—various; *ākhyāna*—narrations; *upabṛṁhitāḥ*—described.

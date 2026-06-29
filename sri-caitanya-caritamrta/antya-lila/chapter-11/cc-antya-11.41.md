@@ -1,9 +1,9 @@
 ### CC Antya 11.41
 
-> আমা-হেন যদি এক কীট মরি’ গেল ।
+> আমা-হেন যদি এক কীট মরি’ গেল ।\
 > এক পিপীলিকা মৈলে পৃথ্বীর কাহাঁ হানি হৈল ? ॥ ৪১ ॥
 
-> āmā-hena yadi eka kīṭa mari' gela
+> āmā-hena yadi eka kīṭa mari' gela\
 > eka pipīlikā maile pṛthvīra kāhāṅ hāni haila?
 
 *āmā-hena*—like me; *yadi*—if; *eka*—one; *kīṭa*—insect; *mari' gela*—dies; *eka*—one; *pipīlikā*—ant; *maile*—if he dies; *pṛthvīra*—of the earth; *kāhāṅ*—where; *hāni haila*—is there any loss.

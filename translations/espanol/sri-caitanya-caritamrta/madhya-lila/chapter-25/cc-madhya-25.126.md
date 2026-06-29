@@ -1,11 +1,11 @@
 ### CC Madhya 25.126
 
-> যথা মহান্তি ভূতানি ভূতেষূচ্চাবচেষ্বনু ।
+> যথা মহান্তি ভূতানি ভূতেষূচ্চাবচেষ্বনু ।\
 > প্রবিষ্টান্যপ্রবিষ্টানি তথা তেষু ন তেষ্বহম্ ॥১২৬॥
 
-> yathā mahānti bhūtāni
-> bhūteṣūccāvaceṣv anu
-> praviṣṭāny apraviṣṭāni
+> yathā mahānti bhūtāni\
+> bhūteṣūccāvaceṣv anu\
+> praviṣṭāny apraviṣṭāni\
 > tathā teṣu na teṣv aham
 
 *yathā*—así como; *mahānti*—los universales; *bhūtāni*—elementos; *bhūteṣu*—en las entidades vivientes; *ucca-avaceṣu*—tanto gigantescas como diminutas; *anu*—después; *praviṣṭāni*—situados internamente; *apraviṣṭāni*—situados externamente; *tathā*—así; *teṣu*—en ellos; *na*—no; *teṣu*—en ellos; *aham*—Yo.

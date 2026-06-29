@@ -1,9 +1,9 @@
 ### CC Adi 7.112
 
-> তাঁহার বিভূতি, দেহ, — সব চিদাকার ।
+> তাঁহার বিভূতি, দেহ, — সব চিদাকার ।\
 > চিদ্বিভূতি আচ্ছাদি’ তাঁরে কহে ‘নিরাকার’ ॥১১২॥
 
-> tāṅhāra vibhūti, deha,—saba cid-ākāra
+> tāṅhāra vibhūti, deha,—saba cid-ākāra\
 > cid-vibhūti ācchādi' tāṅre kahe 'nirākāra'
 
 *tāṅhāra*—His (the Supreme Personality of Godhead's); *vibhūti*—spiritual power; *deha*—body; *saba*—everything; *cit-ākāra*—spiritual form; *cit-vibhūti*—spiritual opulence; *ācchādi'*—covering; *tāṅre*—Him; *kahe*—says; *nirākāra*—without form.

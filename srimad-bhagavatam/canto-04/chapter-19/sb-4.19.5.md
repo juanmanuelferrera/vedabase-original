@@ -1,11 +1,11 @@
 ### SB 4.19.5
 
-> सिद्धा विद्याधरा दैत्या दानवा गुह्यकादयः ।
+> सिद्धा विद्याधरा दैत्या दानवा गुह्यकादयः ।\
 > सुनन्दनन्दप्रमुखाः पार्षदप्रवरा हरेः ॥५॥
 
-> siddhā vidyādharā daityā
-> dānavā guhyakādayaḥ
-> sunanda-nanda-pramukhāḥ
+> siddhā vidyādharā daityā\
+> dānavā guhyakādayaḥ\
+> sunanda-nanda-pramukhāḥ\
 > pārṣada-pravarā hareḥ
 
 *siddhāḥ*—the residents of Siddhaloka; *vidyādharāḥ*—the residents of Vidyādhara-loka; *daityāḥ*—the demoniac descendants of Diti; *dānavāḥ*—the *asuras*; *guhyaka-ādayaḥ*—the Yakṣas, etc.; *sunanda-nanda-pramukhāḥ*—headed by Sunanda and Nanda, the chief of Lord Viṣṇu's associates from Vaikuṇṭha; *pārṣada*—associates; *pravarāḥ*—most respectful; *hareḥ*—of the Supreme Personality of Godhead.

@@ -1,13 +1,13 @@
 ### SB 6.18.22
 
-> श्रीसूत उवाच
-> तद्विष्णुरातस्य स बादरायणिर्वचो निशम्यादृतमल्पमर्थवत
+> श्रीसूत उवाच\
+> तद्विष्णुरातस्य स बादरायणिर्वचो निशम्यादृतमल्पमर्थवत\
 > सभाजयन्सन्निभृतेन चेतसा जगाद सत्रायण सर्वदर्शनः ॥२२॥
 
-> śrī-sūta uvāca
-> tad viṣṇurātasya sa bādarāyaṇir
-> vaco niśamyādṛtam alpam arthavat
-> sabhājayan san nibhṛtena cetasā
+> śrī-sūta uvāca\
+> tad viṣṇurātasya sa bādarāyaṇir\
+> vaco niśamyādṛtam alpam arthavat\
+> sabhājayan san nibhṛtena cetasā\
 > jagāda satrāyaṇa sarva-darśanaḥ
 
 *śrī-sūtaḥ uvāca*—Śrī Sūta Gosvāmī dijo; *tat*—esas; *viṣṇurātasya*—de Mahārāja Parīkṣit; *saḥ*—él; *bādarāyaṇiḥ*—Śukadeva Gosvāmī; *vacaḥ*—palabras; *niśamya*—escuchar; *ādṛtam*—respetuosas; *alpam*—breves; *artha-vat*—llenas de significado; *sabhājayan san*—alabar; *nibhṛtena cetasā*—con gran placer; *jagāda*—contestó; *satrāyaṇa*—¡oh, Śaunaka!; *sarva-darśanaḥ*—que es consciente de todo.

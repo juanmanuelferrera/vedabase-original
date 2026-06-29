@@ -1,18 +1,18 @@
 ### SB 3.29.11-12
 
-> मद्गुणश्रुतिमात्रेण मयि सर्वगुहाशये ।
-> मनोगतिरविच्छिन्ना यथा गङ्गाम्भसोऽम्बुधौ ॥११॥
-> लक्षणं भक्तियोगस्य निर्गुणस्य ह्युदाहृतम् ।
+> मद्गुणश्रुतिमात्रेण मयि सर्वगुहाशये ।\
+> मनोगतिरविच्छिन्ना यथा गङ्गाम्भसोऽम्बुधौ ॥११॥\
+> लक्षणं भक्तियोगस्य निर्गुणस्य ह्युदाहृतम् ।\
 > अहैतुक्यव्यवहिता या भक्तिः पुरुषोत्तमे ॥१२॥
 
-> mad-guṇa-śruti-mātreṇa
-> mayi sarva-guhāśaye
-> mano-gatir avicchinnā
+> mad-guṇa-śruti-mātreṇa\
+> mayi sarva-guhāśaye\
+> mano-gatir avicchinnā\
 > yathā gaṅgāmbhaso 'mbudhau
 
-> lakṣaṇaṁ bhakti-yogasya
-> nirguṇasya hy udāhṛtam
-> ahaituky avyavahitā
+> lakṣaṇaṁ bhakti-yogasya\
+> nirguṇasya hy udāhṛtam\
+> ahaituky avyavahitā\
 > yā bhaktiḥ puruṣottame
 
 *mat*—de Mí; *guṇa*—cualidades; *śruti*—por escuchar; *mātreṇa*—tan solo; *mayi*—hacia Mí; *sarva-guhā-āśaye*—residiendo en el corazón de todos; *manaḥ-gatiḥ*—el curso del corazón; *avicchinnā*—continúa; *yathā*—como; *gaṅgā*—del Ganges; *ambhasaḥ*—del agua; *ambudhau*—hacia el mar; *lakṣaṇam*—la manifestación; *bhakti-yogasya*—del servicio devocional; *nirguṇasya*—sin mezcla; *hi*—en verdad; *udāhṛtam*—exhibida; *ahaitukī*—sin causa; *avyavahitā*—no separado; *yā*—el cual; *bhaktiḥ*—servicio devocional; *puruṣa-uttame*—hacia la Suprema Personalidad de Dios.

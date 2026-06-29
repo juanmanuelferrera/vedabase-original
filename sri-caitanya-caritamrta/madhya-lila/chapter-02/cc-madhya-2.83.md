@@ -1,13 +1,13 @@
 ### CC Madhya 2.83
 
-> কহিবার কথা নহে, কহিলে কেহ না বুঝয়ে,
-> ঐছে চিত্র চৈতন্যের রঙ্গ ।
-> সেই সে বুঝিতে পারে, চৈতন্যের কৃপা যাঁরে,
+> কহিবার কথা নহে, কহিলে কেহ না বুঝয়ে,\
+> ঐছে চিত্র চৈতন্যের রঙ্গ ।\
+> সেই সে বুঝিতে পারে, চৈতন্যের কৃপা যাঁরে,\
 > হয় তাঁর দাসানুদাস-সঙ্গ ॥৮৩॥
 
-> kahibāra kathā nahe, kahile keha nā bujhaye,
-> aiche citra caitanyera raṅga
-> sei se bujhite pāre, caitanyera kṛpā yāṅre,
+> kahibāra kathā nahe, kahile keha nā bujhaye,\
+> aiche citra caitanyera raṅga\
+> sei se bujhite pāre, caitanyera kṛpā yāṅre,\
 > haya tāṅra dāsānudāsa-saṅga
 
 *kahibāra kathā nahe*—not a subject matter to describe freely; *kahile*—if spoken; *keha*—someone; *nā bujhaye*—not understands; *aiche*—in that way; *citra*—wonderful; *caitanyera*—of Śrī Caitanya Mahāprabhu; *raṅga*—pastimes; *sei se*—whoever; *bujhite*—to understand; *pāre*—is able; *caitanyera*—of Lord Śrī Caitanya Mahāprabhu; *kṛpā*—the mercy; *yāṅre*—unto whom; *haya*—becomes; *tāṅra*—His; *dāsa-anudāsa-saṅga*—association with the servant of the servant.

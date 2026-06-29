@@ -1,11 +1,11 @@
 ### SB 3.22.16
 
-> कामः स भूयान्नरदेव तेऽस्याः पुत्र्याः समाम्नायविधौ प्रतीतः ।
+> कामः स भूयान्नरदेव तेऽस्याः पुत्र्याः समाम्नायविधौ प्रतीतः ।\
 > क एव ते तनयां नाद्रियेत स्वयैव कान्त्या क्षिपतीमिव श्रियम् ॥१६॥
 
-> kāmaḥ sa bhūyān naradeva te 'syāḥ
-> putryāḥ samāmnāya-vidhau pratītaḥ
-> ka eva te tanayāṁ nādriyeta
+> kāmaḥ sa bhūyān naradeva te 'syāḥ\
+> putryāḥ samāmnāya-vidhau pratītaḥ\
+> ka eva te tanayāṁ nādriyeta\
 > svayaiva kāntyā kṣipatīm iva śriyam
 
 *kāmaḥ*—deseo; *saḥ*—ese; *bhūyāt*—que se cumpla; *nara-deva*—¡oh, rey!; *te*—tu; *asyāḥ*—esta; *putryāḥ*—de la hija; *samāmnāya-vidhau*—en el proceso de las Escrituras védicas; *pratītaḥ*—reconocido; *kaḥ*—quién; *eva*—de hecho; *te*—a tu; *tanayām*—hija; *na ādriyeta*—no adoraría; *svayā*—por su propio; *eva*—solo; *kāntyā*—brillo corporal; *kṣipatīm*—superando; *iva*—como si; *śriyam*—adornos.

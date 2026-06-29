@@ -1,9 +1,9 @@
 ### CC Madhya 4.189
 
-> পরীক্ষা করিতে গোপাল কৈল আজ্ঞা দান ।
+> পরীক্ষা করিতে গোপাল কৈল আজ্ঞা দান ।\
 > পরীক্ষা করিয়া শেষে হৈল দয়াবান্ ॥১৮৯॥
 
-> parīkṣā karite gopāla kaila ājñā dāna
+> parīkṣā karite gopāla kaila ājñā dāna\
 > parīkṣā kariyā śeṣe haila dayāvān
 
 *parīkṣā*—test; *karite*—to make; *gopāla*—Lord Gopāla; *kaila*—did; *ājñā*—the order; *dāna*—giving; *parīkṣā*—the test; *kariyā*—making; *śeṣe*—at the end; *haila*—became; *dayā-vān*—merciful.

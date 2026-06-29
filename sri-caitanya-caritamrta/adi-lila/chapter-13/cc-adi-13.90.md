@@ -1,9 +1,9 @@
 ### CC Adi 13.90
 
-> সিংহ-রাশি, সিংহ-লগ্ন, উচ্চ গ্রহগণ ।
+> সিংহ-রাশি, সিংহ-লগ্ন, উচ্চ গ্রহগণ ।\
 > ষড়্বর্গ, অষ্টবর্গ, সর্ব সুলক্ষণ ॥৯০॥
 
-> siṁha-rāśi, siṁha-lagna, ucca graha-gaṇa
+> siṁha-rāśi, siṁha-lagna, ucca graha-gaṇa\
 > ṣaḍ-varga, aṣṭa-varga, sarva sulakṣaṇa
 
 *siṁha*—the lion; *rāśi*—sign of the zodiac; *siṁha*—the lion; *lagna*—birth moment; *ucca*—high; *graha-gaṇa*—all planets; *ṣaṭ-varga*—six area; *aṣṭa-varga*—eight area; *sarva*—all; *su-lakṣaṇa*—auspiciousness.

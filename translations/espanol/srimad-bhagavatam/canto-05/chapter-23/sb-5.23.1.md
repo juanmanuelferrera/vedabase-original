@@ -1,9 +1,9 @@
 ### SB 5.23.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > अथ तस्मात्परतस्त्रयोदशलक्षयोजनान्तरतो यत्तद्विष्णोः परमं पदमभिवदन्ति यत्रह महाभागवतो ध्रुव औत्तानपादिरग्निनेन्द्रेण प्रजापतिना कश्यपेन धर्मेण च समकालयुग्भिःसबहुमानं दक्षिणतः क्रियमाण इदानीमपि कल्पजीविनामाजीव्य उपास्ते तस्येहानुभाव उपवर्णितः ॥१॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > atha tasmāt paratas trayodaśa-lakṣa-yojanāntarato yat tad viṣṇoḥ paramaṁ padam abhivadanti yatra ha mahā-bhāgavato dhruva auttānapādir agninendreṇa prajāpatinā kaśyapena dharmeṇa ca samakāla-yugbhiḥ sabahu-mānaṁ dakṣiṇataḥ kriyamāṇa idānīm api kalpa-jīvinām ājīvya upāste tasyehānubhāva upavarṇitaḥ.
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *atha*—a continuación; *tasmāt*—de la esfera de las siete estrellas; *parataḥ*—más allá de eso; *trayodaśa-lakṣa-yojana-antarataḥ*—otros 1.300.000 *yojanas*; *yat*—el cual; *tat*—esa; *viṣṇoḥ paramam padam*—la morada suprema del Señor Viṣṇu, o los pies de loto del Señor Viṣṇu; *abhivadanti*—los *mantras del Ṛg Veda* alaban; *yatra*—sobre el cual; *ha*—en efecto; *mahā-bhāgavataḥ*—el gran devoto; *dhruvaḥ*—Mahārāja Dhruva; *auttānapādiḥ*—el hijo de Mahārāja Uttānapāda; *agninā*—por el dios del fuego; *indreṇa*—por el rey celestial, Indra; *prajāpatinā*—por el Prajāpati; *kaśyapena*—por Kaśyapa; *dharmeṇa*—por Dharmarāja; *ca*—también; *samakāla-yugbhiḥ*—que actúan en ese momento; *sa-bahu-mānam*—siempre con respeto; *dakṣiṇataḥ*—por el lado derecho; *kriyamāṇaḥ*—siendo circunvalado; *idānīm*—ahora; *api*—incluso; *kalpa-jīvinām*—de las entidades vivientes que existen al final de la creación; *ājīvyaḥ*—la fuente de vida; *upāste*—permanece; *tasya*—su; *iha*—aquí; *anubhāvaḥ*—grandeza en el desempeño del servicio devocional; *upavarṇitaḥ*—ya descrita (en el Cuarto Canto del *Śrīmad-Bhāgavatam*).

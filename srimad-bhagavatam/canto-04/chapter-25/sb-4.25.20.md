@@ -1,11 +1,11 @@
 ### SB 4.25.20
 
-> यदृच्छयागतां तत्र ददर्श प्रमदोत्तमाम् ।
+> यदृच्छयागतां तत्र ददर्श प्रमदोत्तमाम् ।\
 > भृत्यैर्दशभिरायान्तीमेकैकशतनायकैः ॥२०॥
 
-> yadṛcchayāgatāṁ tatra
-> dadarśa pramadottamām
-> bhṛtyair daśabhir āyāntīm
+> yadṛcchayāgatāṁ tatra\
+> dadarśa pramadottamām\
+> bhṛtyair daśabhir āyāntīm\
 > ekaika-śata-nāyakaiḥ
 
 *yadṛcchayā*—all of a sudden, without engagement; *āgatām*—arrived; *tatra*—there; *dadarśa*—he saw; *pramadā*—one woman; *uttamām*—very beautiful; *bhṛtyaiḥ*—surrounded by servants; *daśabhiḥ*—ten; *āyāntīm*—coming forward; *eka-eka*—each one of them; *śata*—of hundreds; *nāyakaiḥ*—the leaders.

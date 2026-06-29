@@ -1,9 +1,9 @@
 ### CC Madhya 20.371
 
-> সনকাদ্যে ‘জ্ঞান’-শক্তি, নারদে শক্তি ‘ভক্তি’  ।
+> সনকাদ্যে ‘জ্ঞান’-শক্তি, নারদে শক্তি ‘ভক্তি’  ।\
 > ব্রহ্মায় ‘সৃষ্টি’-শক্তি, অনন্তে ‘ভূ-ধারণ’-শক্তি ॥৩৭১॥
 
-> sanakādye 'jñāna'-śakti, nārade śakti 'bhakti'
+> sanakādye 'jñāna'-śakti, nārade śakti 'bhakti'\
 > brahmāya 'sṛṣṭi'-śakti, anante 'bhū-dhāraṇa'-śakti
 
 *sanaka-ādye*—en los cuatro Kumāras; *jñāna-śakti*—el poder del conocimiento; *nārade*—en Nārada Muni; *śakti*—el poder; *bhakti*—del servicio devocional; *brahmāya*—en el Señor Brahmā; *sṛṣṭi-śakti*—el poder de la creación; *anante*—en el Señor Ananta; *bhū-dhāraṇa-śakti*—el poder de sostener los planetas.

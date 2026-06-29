@@ -1,13 +1,13 @@
 ### SB 3.9.16
 
-> यो वा अहं च गिरिशश्च विभुः स्वयं च
-> स्थित्युद्भवप्रलयहेतव आत्ममूलम् ।
-> भित्त्वा त्रिपाद्ववृध एक उरुप्ररोहस्
+> यो वा अहं च गिरिशश्च विभुः स्वयं च\
+> स्थित्युद्भवप्रलयहेतव आत्ममूलम् ।\
+> भित्त्वा त्रिपाद्ववृध एक उरुप्ररोहस्\
 > तस्मै नमो भगवते भुवनद्रुमाय ॥१६॥
 
-> yo vā ahaṁ ca giriśaś ca vibhuḥ svayaṁ ca
-> sthity-udbhava-pralaya-hetava ātma-mūlam
-> bhittvā tri-pād vavṛdha eka uru-prarohas
+> yo vā ahaṁ ca giriśaś ca vibhuḥ svayaṁ ca\
+> sthity-udbhava-pralaya-hetava ātma-mūlam\
+> bhittvā tri-pād vavṛdha eka uru-prarohas\
 > tasmai namo bhagavate bhuvana-drumāya
 
 *yaḥ*—one who; *vai*—certainly; *aham ca*—also I; *giriśaḥ ca*—also Śiva; *vibhuḥ*—the Almighty; *svayam*—personality (as Viṣṇu); *ca*—and; *sthiti*—maintenance; *udbhava*—creation; *pralaya*—dissolution; *hetavaḥ*—the causes; *ātma-mūlam*—self-rooted; *bhittvā*—having penetrated; *tri-pāt*—three trunks; *vavṛdhe*—grew; *ekaḥ*—one without a second; *uru*—many; *prarohaḥ*—branches; *tasmai*—unto Him; *namaḥ*—obeisances; *bhagavate*—unto the Personality of Godhead; *bhuvana-drumāya*—unto the tree of the planetary system.

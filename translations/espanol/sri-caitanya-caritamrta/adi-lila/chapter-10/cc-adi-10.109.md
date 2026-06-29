@@ -1,9 +1,9 @@
 ### CC Adi 10.109
 
-> কৃষ্ণদাস বৈদ্য, আর পণ্ডিত-শেখর ।
+> কৃষ্ণদাস বৈদ্য, আর পণ্ডিত-শেখর ।\
 > কবিচন্দ্র, আর কীর্তনীয়া ষষ্ঠীবর ॥১০৯॥
 
-> kṛṣṇadāsa vaidya, āra paṇḍita-śekhara
+> kṛṣṇadāsa vaidya, āra paṇḍita-śekhara\
 > kavicandra, āra kīrtanīyā ṣaṣṭhīvara
 
 *kṛṣṇadāsa vaidya*—de nombre Kṛṣṇadāsa Vaidya; *āra*—y; *paṇḍita-śekhara*—de nombre Paṇḍita Śekhara; *kavicandra*—de nombre Kavicandra; *āra*—y; *kīrtanīyā*—ejecutante de kīrtana; *ṣaṣṭhīvara*—de nombre Ṣaṣṭhīvara.

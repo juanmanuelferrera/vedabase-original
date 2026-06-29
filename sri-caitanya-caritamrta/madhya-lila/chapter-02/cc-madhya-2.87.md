@@ -1,13 +1,13 @@
 ### CC Madhya 2.87
 
-> যেবা নাহি বুঝে কেহ, শুনিতে শুনিতে সেহ,
-> কি অদ্ভুত চৈতন্যচরিত ।
-> কৃষ্ণে উপজিবে প্রীতি, জানিবে রসের রীতি,
+> যেবা নাহি বুঝে কেহ, শুনিতে শুনিতে সেহ,\
+> কি অদ্ভুত চৈতন্যচরিত ।\
+> কৃষ্ণে উপজিবে প্রীতি, জানিবে রসের রীতি,\
 > শুনিলেই বড় হয় হিত ॥৮৭॥
 
-> yebā nāhi bujhe keha, śunite śunite seha,
-> ki adbhuta caitanya-carita
-> kṛṣṇe upajibe prīti, jānibe rasera rīti,
+> yebā nāhi bujhe keha, śunite śunite seha,\
+> ki adbhuta caitanya-carita\
+> kṛṣṇe upajibe prīti, jānibe rasera rīti,\
 > śunilei baḍa haya hita
 
 *yebā*—whoever; *nāhi*—does not; *bujhe*—understand; *keha*—someone; *śunite śunite*—hearing and hearing; *seha*—he; *ki*—what; *adbhuta*—wonderful; *caitanya-carita*—pastimes of Lord Śrī Caitanya Mahāprabhu; *kṛṣṇe*—unto Kṛṣṇa; *upajibe*—will develop; *prīti*—love; *jānibe*—he will understand; *rasera*—of transcendental mellows; *rīti*—the ways; *śunilei*—simply by hearing; *baḍa*—great; *haya*—there is; *hita*—benefit.

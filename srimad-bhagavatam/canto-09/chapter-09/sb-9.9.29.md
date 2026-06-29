@@ -1,14 +1,14 @@
 ### SB 9.9.29
 
-> एष हि ब्राह्मणो विद्वांस्तपःशीलगुणान्वितः
-> आरिराधयिषुर्ब्रह्म महापुरुषसंज्ञइतम
+> एष हि ब्राह्मणो विद्वांस्तपःशीलगुणान्वितः\
+> आरिराधयिषुर्ब्रह्म महापुरुषसंज्ञइतम\
 > सर्वभूतात्मभावेन भूतेष्वन्तर्हितं गुणैः ॥२९॥
 
-> eṣa hi brāhmaṇo vidvāṁs
-> tapaḥ-śīla-guṇānvitaḥ
-> ārirādhayiṣur brahma
-> mahā-puruṣa-saṁjñitam
-> sarva-bhūtātma-bhāvena
+> eṣa hi brāhmaṇo vidvāṁs\
+> tapaḥ-śīla-guṇānvitaḥ\
+> ārirādhayiṣur brahma\
+> mahā-puruṣa-saṁjñitam\
+> sarva-bhūtātma-bhāvena\
 > bhūteṣv antarhitaṁ guṇaiḥ
 
 *eṣaḥ*—this; *hi*—indeed; *brāhmaṇaḥ*—a qualified *brāhmaṇa*; *vidvān*—learned in Vedic knowledge; *tapaḥ*—austerity; *śīla*—good behavior; *guṇa-anvitaḥ*—endowed with all good qualities; *ārirādhayiṣuḥ*—desiring to be engaged in worshiping; *brahma*—the Supreme Brahman; *mahā-puruṣa*—the Supreme Person, Kṛṣṇa; *saṁjñitam*—known as; *sarva-bhūta*—of all living entities; *ātma-bhāvena*—as the Supersoul; *bhūteṣu*—in every living entity; *antarhitam*—within the core of the heart; *guṇaiḥ*—by qualities.

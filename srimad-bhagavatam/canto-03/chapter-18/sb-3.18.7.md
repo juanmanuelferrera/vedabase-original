@@ -1,11 +1,11 @@
 ### SB 3.18.7
 
-> तं निःसरन्तं सलिलादनुद्रुतो हिरण्यकेशो द्विरदं यथा झषः ।
+> तं निःसरन्तं सलिलादनुद्रुतो हिरण्यकेशो द्विरदं यथा झषः ।\
 > करालदंष्ट्रोऽशनिनिस्वनोऽब्रवीद्गतह्रियां किं त्वसतां विगर्हितम् ॥७॥
 
-> taṁ niḥsarantaṁ salilād anudruto
-> hiraṇya-keśo dviradaṁ yathā jhaṣaḥ
-> karāla-daṁṣṭro 'śani-nisvano 'bravīd
+> taṁ niḥsarantaṁ salilād anudruto\
+> hiraṇya-keśo dviradaṁ yathā jhaṣaḥ\
+> karāla-daṁṣṭro 'śani-nisvano 'bravīd\
 > gata-hriyāṁ kiṁ tv asatāṁ vigarhitam
 
 *tam*—Him; *niḥsarantam*—coming out; *salilāt*—from the water; *anudrutaḥ*—chased; *hiraṇya-keśaḥ*—having golden hair; *dviradam*—an elephant; *yathā*—as; *jhaṣaḥ*—a crocodile; *karāla-daṁṣṭraḥ*—having fearful teeth; *aśani-nisvanaḥ*—roaring like thunder; *abravīt*—he said; *gata-hriyām*—for those who are shameless; *kim*—what; *tu*—indeed; *asatām*—for the wretches; *vigarhitam*—reproachable.

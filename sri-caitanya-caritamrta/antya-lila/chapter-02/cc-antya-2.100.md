@@ -1,9 +1,9 @@
 ### CC Antya 2.100
 
-> লজ্জা-ভয় পাঞা আচার্য মৌন হইলা ।
+> লজ্জা-ভয় পাঞা আচার্য মৌন হইলা ।\
 > আর দিন গোপালেরে দেশে পাঠাইলা ॥১০০॥
 
-> lajjā-bhaya pāñā ācārya mauna ha-ilā
+> lajjā-bhaya pāñā ācārya mauna ha-ilā\
 > āra dina gopālere deśe pāṭhāilā
 
 *lajjā-bhaya*—fear and shame; *pāñā*—getting; *ācārya*—Bhagavān Ācārya; *mauna ha-ilā*—became silent; *āra dina*—the next day; *gopālere*—Gopāla Bhaṭṭācārya; *deśe*—to his own country; *pāṭhāilā*—sent.

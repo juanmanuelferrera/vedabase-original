@@ -1,18 +1,18 @@
 ### SB 1.14.35-36
 
-> मङ्गलाय च लोकानां क्षेमाय च भवाय च ।
-> आस्ते यदुकुलाम्भोधावाद्योऽनन्तसखः पुमान् ॥३५॥
-> यद्बाहुदण्डगुप्तायां स्वपुर्यां यदवोऽर्चिताः ।
+> मङ्गलाय च लोकानां क्षेमाय च भवाय च ।\
+> आस्ते यदुकुलाम्भोधावाद्योऽनन्तसखः पुमान् ॥३५॥\
+> यद्बाहुदण्डगुप्तायां स्वपुर्यां यदवोऽर्चिताः ।\
 > क्रीडन्ति परमानन्दं महापौरुषिका इव ॥३६॥
 
-> maṅgalāya ca lokānāṁ
-> kṣemāya ca bhavāya ca
-> āste yadu-kulāmbhodhāv
+> maṅgalāya ca lokānāṁ\
+> kṣemāya ca bhavāya ca\
+> āste yadu-kulāmbhodhāv\
 > ādyo 'nanta-sakhaḥ pumān
 
-> yad bāhu-daṇḍa-guptāyāṁ
-> sva-puryāṁ yadavo 'rcitāḥ
-> krīḍanti paramānandaṁ
+> yad bāhu-daṇḍa-guptāyāṁ\
+> sva-puryāṁ yadavo 'rcitāḥ\
+> krīḍanti paramānandaṁ\
 > mahā-pauruṣikā iva
 
 *maṅgalāya*—for all good; *ca*—also; *lokānām*—of all the planets; *kṣemāya*—for protection; *ca*—and; *bhavāya*—for elevation; *ca*—also; *āste*—is there; *yadu-kula-ambhodhau*—in the ocean of the Yadu dynasty; *ādyaḥ*—the original; *ananta-sakhaḥ*—in the company of Ananta (Balarāma); *pumān*—the supreme enjoyer; *yat*—whose; *bāhu-daṇḍa-guptāyām*—being protected by His arms; *sva-puryām*—in His own city; *yadavaḥ*—the members of the Yadu family; *arcitāḥ*—as they deserve; *krīḍanti*—are relishing; *parama-ānandam*—transcendental pleasure; *mahā-pauruṣikāḥ*—the residents of the spiritual sky; *iva*—like.

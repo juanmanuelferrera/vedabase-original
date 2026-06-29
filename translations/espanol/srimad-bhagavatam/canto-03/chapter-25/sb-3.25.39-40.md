@@ -1,18 +1,18 @@
 ### SB 3.25.39-40
 
-> इमं लोकं तथैवामुमात्मानमुभयायिनम् ।
-> आत्मानमनु ये चेह ये रायः पशवो गृहाः ॥३९॥
-> विसृज्य सर्वानन्यांश्च मामेवं विश्वतोमुखम् ।
+> इमं लोकं तथैवामुमात्मानमुभयायिनम् ।\
+> आत्मानमनु ये चेह ये रायः पशवो गृहाः ॥३९॥\
+> विसृज्य सर्वानन्यांश्च मामेवं विश्वतोमुखम् ।\
 > भजन्त्यनन्यया भक्त्या तान्मृत्योरतिपारये ॥४०॥
 
-> imaṁ lokaṁ tathaivāmum
-> ātmānam ubhayāyinam
-> ātmānam anu ye ceha
+> imaṁ lokaṁ tathaivāmum\
+> ātmānam ubhayāyinam\
+> ātmānam anu ye ceha\
 > ye rāyaḥ paśavo gṛhāḥ
 
-> visṛjya sarvān anyāṁś ca
-> mām evaṁ viśvato-mukham
-> bhajanty ananyayā bhaktyā
+> visṛjya sarvān anyāṁś ca\
+> mām evaṁ viśvato-mukham\
+> bhajanty ananyayā bhaktyā\
 > tān mṛtyor atipāraye
 
 *imam*—este; *lokam*—mundo; *tathā*—en efecto; *eva*—ciertamente; *amum*—ese mundo; *ātmānam*—el cuerpo sutil; *ubhaya*—en ambos; *ayinam*—viajando; *ātmānam*—el cuerpo; *anu*—en relación con; *ye*—aquellos que; *ca*—también; *iha*—en este mundo; *ye*—aquello que; *rāyaḥ*—riquezas; *paśavaḥ*—vacas; *gṛhāḥ*—casas; *visṛjya*—habiendo abandonado; *sarvān*—todo; *anyān*—lo demás; *ca*—y; *mām*—a Mí; *evam*—de este modo; *viśvataḥ-mukham*—el omnipresente Señor del universo; *bhajanti*—ellos adoran; *ananyayā*—ininterrumpido; *bhaktyā*—con servicio devocional; *tān*—a ellos; *mṛtyoḥ*—de la muerte; *atipāraye*—Yo llevo al otro lado.

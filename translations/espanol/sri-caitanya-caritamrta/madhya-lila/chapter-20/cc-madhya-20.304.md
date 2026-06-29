@@ -1,13 +1,13 @@
 ### CC Madhya 20.304
 
-> ভাস্বান্ যথাশ্মসকলেষু নিজেষু তেজঃ
-> স্বীয়ং কিয়ৎ প্রকটয়ত্যপি তদ্বদত্র ।
-> ব্রহ্মা য এষ জগদণ্ডবিধানকর্তা
+> ভাস্বান্ যথাশ্মসকলেষু নিজেষু তেজঃ\
+> স্বীয়ং কিয়ৎ প্রকটয়ত্যপি তদ্বদত্র ।\
+> ব্রহ্মা য এষ জগদণ্ডবিধানকর্তা\
 > গোবিন্দমাদিপুরুষং তমহং ভজামি ॥৩০৪॥
 
-> bhāsvān yathāśma-sakaleṣu nijeṣu tejaḥ
-> svīyaṁ kiyat prakaṭayaty api tadvad atra
-> brahmā ya eṣa jagad-aṇḍa-vidhāna-kartā
+> bhāsvān yathāśma-sakaleṣu nijeṣu tejaḥ\
+> svīyaṁ kiyat prakaṭayaty api tadvad atra\
+> brahmā ya eṣa jagad-aṇḍa-vidhāna-kartā\
 > govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 *bhāsvān*—el sol luminoso; *yathā*—así como; *aśma-sakaleṣu*—en diversos tipos de piedras preciosas; *nijeṣu*—su propia; *tejaḥ*—brillantez; *svīyam*—su propia; *kiyat*—hasta cierto grado; *prakaṭayati*—manifiesta; *api*—también; *tadvat*—de manera similar; *atra*—aquí; *brahmā*—el Señor Brahmā; *yaḥ*—quien; *eṣaḥ*—el Señor; *jagat-aṇḍa-vidhāna-kartā*—se convierte en el jefe del universo; *govindam ādi-puruṣam*—el Señor Govinda, la Suprema Personalidad de Dios original; *tam*—a Él; *aham*—yo; *bhajāmi*—adoro.

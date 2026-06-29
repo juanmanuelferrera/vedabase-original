@@ -1,11 +1,11 @@
 ### SB 6.16.21
 
-> वचस्युपरतेऽप्राप्य य एको मनसा सह
+> वचस्युपरतेऽप्राप्य य एको मनसा सह\
 > अनामरूपश्चिन्मात्रः सोऽव्यान्नः सदसत्परः ॥२१॥
 
-> vacasy uparate 'prāpya
-> ya eko manasā saha
-> anāma-rūpaś cin-mātraḥ
+> vacasy uparate 'prāpya\
+> ya eko manasā saha\
+> anāma-rūpaś cin-mātraḥ\
 > so 'vyān naḥ sad-asat-paraḥ
 
 *vacasi*—cuando las palabras; *uparate*—cesan; *aprāpya*—sin alcanzar el objetivo; *yaḥ*—aquel que; *ekaḥ*—uno sin par; *manasā*—la mente; *saha*—con; *anāma*—sin nombre material; *rūpaḥ*—o forma material; *cit-mātraḥ*—completamente espiritual; *saḥ*—Él; *avyāt*—tenga la bondad de proteger; *naḥ*—a nosotros; *sat-asat-paraḥ*—que es la causa de todas las causas (la causa suprema).

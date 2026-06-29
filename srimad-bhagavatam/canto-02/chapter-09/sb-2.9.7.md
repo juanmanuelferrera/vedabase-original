@@ -1,11 +1,11 @@
 ### SB 2.9.7
 
-> निशम्य तद्वक्तृदिदृक्षया दिशो विलोक्य तत्रान्यदपश्यमानः ।
+> निशम्य तद्वक्तृदिदृक्षया दिशो विलोक्य तत्रान्यदपश्यमानः ।\
 > स्वधिष्ण्यमास्थाय विमृश्य तद्धितं तपस्युपादिष्ट इवादधे मनः ॥७॥
 
-> niśamya tad-vaktṛ-didṛkṣayā diśo
-> vilokya tatrānyad apaśyamānaḥ
-> svadhiṣṇyam āsthāya vimṛśya tad-dhitaṁ
+> niśamya tad-vaktṛ-didṛkṣayā diśo\
+> vilokya tatrānyad apaśyamānaḥ\
+> svadhiṣṇyam āsthāya vimṛśya tad-dhitaṁ\
 > tapasy upādiṣṭa ivādadhe manaḥ
 
 *niśamya*—after hearing; *tat*—that; *vaktṛ*—the speaker; *didṛkṣayā*—just to find out who spoke; *diśaḥ*—all sides; *vilokya*—seeing; *tatra*—there; *anyat*—any other; *apaśyamānaḥ*—not to be found; *svadhiṣṇyam*—on his lotus seat; *āsthāya*—sit down; *vimṛśya*—thinking; *tat*—it; *hitam*—welfare; *tapasi*—in penance; *upādiṣṭaḥ*—as he was instructed; *iva*—in pursuance of; *ādadhe*—gave; *manaḥ*—attention.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.49
 
-> তর্কং-প্রধান বৌদ্ধশাস্ত্র ‘নব মতে’ ৷
+> তর্কং-প্রধান বৌদ্ধশাস্ত্র ‘নব মতে’ ৷\
 > তর্কেই খণ্ডিল প্রভু, না পারে স্থাপিতে ৷৷ ৪৯ ৷৷ ॥৪৯॥
 
-> tarka-pradhāna bauddha-śāstra 'nava mate'
+> tarka-pradhāna bauddha-śāstra 'nava mate'\
 > tarkei khaṇḍila prabhu, nā pāre sthāpite
 
 *tarka-pradhāna*—basadas en la argumentación; *bauddha-śāstra*—las escrituras del culto budista; *nava mate*—en nueve principios básicos; *tarkei*—mediante argumentos; *khaṇḍila*—refutó; *prabhu*—Śrī Caitanya Mahāprabhu; *nā*—no; *pāre*—pueden; *sthāpite*—establecer.

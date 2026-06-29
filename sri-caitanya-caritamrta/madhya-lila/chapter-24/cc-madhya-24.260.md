@@ -1,9 +1,9 @@
 ### CC Madhya 24.260
 
-> নদী-তীরে একখানি কুটীর করিয়া  ।
+> নদী-তীরে একখানি কুটীর করিয়া  ।\
 > তার আগে একপিণ্ডি তুলসী রোপিয়া ॥২৬০॥
 
-> nadī-tīre eka-khāni kuṭīra kariyā
+> nadī-tīre eka-khāni kuṭīra kariyā\
 > tāra āge eka-piṇḍi tulasī ropiyā
 
 *nadī-tīre*—on the bank of the river; *eka-khāni*—just one; *kuṭīra*—a cottage; *kariyā*—constructing; *tāra āge*—just in front of the cottage; *eka-piṇḍi*—one raised platform; *tulasī*—a tulasī plant; *ropiyā*—growing.

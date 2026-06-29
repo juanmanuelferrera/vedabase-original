@@ -1,11 +1,11 @@
 ### SB 3.27.10
 
-> निवृत्तबुद्ध्यवस्थानो दूरीभूतान्यदर्शनः ।
+> निवृत्तबुद्ध्यवस्थानो दूरीभूतान्यदर्शनः ।\
 > उपलभ्यात्मनात्मानं चक्षुषेवार्कमात्मदृक् ॥१०॥
 
-> nivṛtta-buddhy-avasthāno
-> dūrī-bhūtānya-darśanaḥ
-> upalabhyātmanātmānaṁ
+> nivṛtta-buddhy-avasthāno\
+> dūrī-bhūtānya-darśanaḥ\
+> upalabhyātmanātmānaṁ\
 > cakṣuṣevārkam ātma-dṛk
 
 *nivṛtta*—trascendidos; *buddhi-avasthānaḥ*—los estados de conciencia material; *dūrī-bhūta*—muy lejos; *anya*—demás; *darśanaḥ*—conceptos de la vida; *upalabhya*—habiendo comprendido; *ātmanā*—con su intelecto purificado; *ātmānam*—su propio ser; *cakṣuṣā*—con los ojos; *iva*—como; *arkam*—el sol; *ātma-dṛk*—la persona autorrealizada.

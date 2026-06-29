@@ -1,11 +1,11 @@
 ### CC Madhya 1.203
 
-> ন মৃষা পরমার্থমেব মে, শৃণু বিজ্ঞাপনমেকমগ্রতঃ ।
+> ন মৃষা পরমার্থমেব মে, শৃণু বিজ্ঞাপনমেকমগ্রতঃ ।\
 > যদি মে ন দয়িষ্যসে তদা, দয়নীয়স্তব নাথ দুর্লভঃ ॥২০৩॥
 
-> na mṛṣā paramārtham eva me
-> śṛṇu vijñāpanam ekam agrataḥ
-> yadi me na dayiṣyase tadā
+> na mṛṣā paramārtham eva me\
+> śṛṇu vijñāpanam ekam agrataḥ\
+> yadi me na dayiṣyase tadā\
 > dayanīyas tava nātha durlabhaḥ
 
 *na*—not; *mṛṣā*—untruth; *parama-artham*—full of meaning; *eva*—certainly; *me*—my; *śṛṇu*—kindly hear; *vijñāpanam*—submission; *ekam*—one; *agrataḥ*—first; *yadi*—if; *me*—unto me; *nadayiṣyase*—You will not show mercy; *tadā*—then; *dayanīyaḥ*—candidate for mercy; *tava*—Your; *nātha*—O Lord; *durlabhaḥ*—difficult to find.

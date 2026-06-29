@@ -1,9 +1,9 @@
 ### CC Madhya 11.176
 
-> সেই ঘর আমাকে দেহ’ — আছে প্রয়োজন ।
+> সেই ঘর আমাকে দেহ’ — আছে প্রয়োজন ।\
 > নিভৃতে বসিয়া তাহাঁ করিব স্মরণ ॥১৭৬॥
 
-> sei ghara āmāke deha'-āche prayojana
+> sei ghara āmāke deha'-āche prayojana\
 > nibhṛte vasiyā tāhāṅ kariba smaraṇa
 
 *sei ghara*—that room; *āmāke deha'*—please give to Me; *āche prayojana*—there is necessity; *nibhṛte*—in the solitary place; *vasiyā*—sitting; *tāhāṅ*—there; *kariba smaraṇa*—I shall remember the lotus feet of the Lord.

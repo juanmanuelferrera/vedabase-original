@@ -1,13 +1,13 @@
 ### CC Adi 8.19
 
-> রাজন্ পতির্গুরুরলং ভবতাং যদূনাং
-> দৈবং প্রিয়ঃ কুলপতিঃ ক্ব চ কিঙ্করো বঃ ।
-> অস্ত্বেবমঙ্গ ভগবান্ ভজতাং মুকুন্দো
+> রাজন্ পতির্গুরুরলং ভবতাং যদূনাং\
+> দৈবং প্রিয়ঃ কুলপতিঃ ক্ব চ কিঙ্করো বঃ ।\
+> অস্ত্বেবমঙ্গ ভগবান্ ভজতাং মুকুন্দো\
 > মুক্তিং দদাতি কর্হিচিৎ স্ম ন ভক্তিযোগম্ ॥১৯॥
 
-> rājan patir gurur alaṁ bhavatāṁ yadūnāṁ
-> daivaṁ priyaḥ kula-patiḥ kva ca kiṅkaro vaḥ
-> astv evam aṅga bhagavān bhajatāṁ mukundo
+> rājan patir gurur alaṁ bhavatāṁ yadūnāṁ\
+> daivaṁ priyaḥ kula-patiḥ kva ca kiṅkaro vaḥ\
+> astv evam aṅga bhagavān bhajatāṁ mukundo\
 > muktiṁ dadāti karhicit sma na bhakti-yogam
 
 *rājan*—¡oh, Rey!; *patiḥ*—amo; *guruḥ*—maestro espiritual; *alam*—ciertamente; *bhavatām*—de vosotros; *yadūnām*—de los Yadus; *daivam*—Dios; *priyaḥ*—muy querido; *kula-patiḥ*—cabeza de la familia; *kva*—incluso a veces; *ca*—también; *kiṅkaraḥ*—portador de órdenes; *vaḥ*—de vosotros; *astu*—así es; *evam*—así; *aṅga*—sin embargo; *bhagavān*—la Suprema Personalidad de Dios; *bhajatām*—de quienes están en servicio devocional; *mukundaḥ*—el Señor Kṛṣṇa; *muktim*—liberación; *dadāti*—da; *karhicit*—a veces; *sma*—ciertamente; *na*—no; *bhakti-yogam*—servicio devocional.

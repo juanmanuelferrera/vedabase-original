@@ -1,11 +1,11 @@
 ### SB 5.14.43
 
-> यो दुस्त्यजान्दारसुतान्सुहृद्राज्यं हृदिस्पृशः
+> यो दुस्त्यजान्दारसुतान्सुहृद्राज्यं हृदिस्पृशः\
 > जहौ युवैव मलवदुत्तमश्लोकलालसः ॥४३॥
 
-> yo dustyajān dāra-sutān
-> suhṛd rājyaṁ hṛdi-spṛśaḥ
-> jahau yuvaiva malavad
+> yo dustyajān dāra-sutān\
+> suhṛd rājyaṁ hṛdi-spṛśaḥ\
+> jahau yuvaiva malavad\
 > uttamaśloka-lālasaḥ
 
 *yaḥ*—el mismo Jaḍa Bharata que en el pasado había sido Mahārāja Bharata, el hijo de Mahārāja Ṛṣabhadeva; *dustyajān*—muy difíciles de abandonar; *dāra-sutān*—a la esposa y los hijos, o la vida familiar muy opulenta; *suhṛt*—amigos y bienquerientes; *rājyam*—un reino que abarcaba el mundo entero; *hṛdi-spṛśaḥ*—lo que está en lo más hondo del corazón; *jahau*—abandonó; *yuvā eva*—aunque todavía era joven; *mala-vat*—como excremento; *uttama-śloka-lālasaḥ*—que estaba tan deseoso de servir a la Suprema Personalidad de Dios, a quien se conoce como Uttamaśloka.

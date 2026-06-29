@@ -1,13 +1,13 @@
 ### SB 3.4.1
 
-> उद्धव उवाच
-> अथ ते तदनुज्ञाता भुक्त्वा पीत्वा च वारुणीम् ।
+> उद्धव उवाच\
+> अथ ते तदनुज्ञाता भुक्त्वा पीत्वा च वारुणीम् ।\
 > तया विभ्रंशितज्ञाना दुरुक्तैर्मर्म पस्पृशुः ॥१॥
 
-> uddhava uvāca
-> atha te tad-anujñātā
-> bhuktvā pītvā ca vāruṇīm
-> tayā vibhraṁśita-jñānā
+> uddhava uvāca\
+> atha te tad-anujñātā\
+> bhuktvā pītvā ca vāruṇīm\
+> tayā vibhraṁśita-jñānā\
 > duruktair marma paspṛśuḥ
 
 *uddhavaḥ uvāca*—Uddhava dijo; *atha*—después; *te*—ellos (los Yādavas); *tat*—por los *brāhmaṇas*; *anujñātāḥ*—habiéndoseles permitido; *bhuktvā*—después de comer; *pītvā*—beber; *ca*—y; *vāruṇīm*—licor; *tayā*—por eso; *vibhraṁśita-jñānāḥ*—estando desprovistos de conocimiento; *duruktaiḥ*—con palabras ásperas; *marma*—lo más íntimo del corazón; *paspṛśuḥ*—tocaron.

@@ -1,9 +1,9 @@
 ### CC Adi 17.266
 
-> প্রণতিতে হ’বে ইহার অপরাধ ক্ষয় ।
+> প্রণতিতে হ’বে ইহার অপরাধ ক্ষয় ।\
 > নির্মল হৃদয়ে ভক্তি করাইব উদয় ॥২৬৬॥
 
-> praṇatite habe ihāra aparādha kṣaya
+> praṇatite habe ihāra aparādha kṣaya\
 > nirmala hṛdaye bhakti karāiba udaya
 
 *praṇatite*—by offering obeisances; *habe*—there will be; *ihāra*—of such offenders; *aparādha*—the offenses; *kṣaya*—destruction; *nirmala*—pure; *hṛdaye*—in the heart; *bhakti*—devotional service; *karāiba*—I shall cause; *udaya*—the rising.

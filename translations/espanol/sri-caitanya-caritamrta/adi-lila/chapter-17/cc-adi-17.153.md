@@ -1,9 +1,9 @@
 ### CC Adi 17.153
 
-> প্রভু কহে, — গোদুগ্ধ খাও, গাভী তোমার মাতা ।
+> প্রভু কহে, — গোদুগ্ধ খাও, গাভী তোমার মাতা ।\
 > বৃষ অন্ন উপজায়, তাতে তেঁহো পিতা ॥১৫৩॥
 
-> prabhu kahe,--go-dugdha khāo, gābhī tomāra mātā
+> prabhu kahe,--go-dugdha khāo, gābhī tomāra mātā\
 > vṛṣa anna upajāya, tāte teṅho pitā
 
 *prabhu kahe*—el Señor dijo; *go-dugdha khāo*—bebes leche de vaca; *gābhī*—la vaca (es); *tomāra*—tu; *mātā*—madre; *vṛṣa*—el toro; *anna*—granos; *upajaya*—produce; *tāte*—por lo tanto; *teṅho*—él; *pitā*—(es) tu padre.

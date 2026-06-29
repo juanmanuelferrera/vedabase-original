@@ -1,11 +1,11 @@
 ### SB 3.26.3
 
-> अनादिरात्मा पुरुषो निर्गुणः प्रकृतेः परः ।
+> अनादिरात्मा पुरुषो निर्गुणः प्रकृतेः परः ।\
 > प्रत्यग्धामा स्वयंज्योतिर्विश्वं येन समन्वितम् ॥३॥
 
-> anādir ātmā puruṣo
-> nirguṇaḥ prakṛteḥ paraḥ
-> pratyag-dhāmā svayaṁ-jyotir
+> anādir ātmā puruṣo\
+> nirguṇaḥ prakṛteḥ paraḥ\
+> pratyag-dhāmā svayaṁ-jyotir\
 > viśvaṁ yena samanvitam
 
 *anādiḥ*—without a beginning; *ātmā*—the Supreme Soul; *puruṣaḥ*—the Personality of Godhead; *nirguṇaḥ*—transcendental to the material modes of nature; *prakṛteḥ paraḥ*—beyond this material world; *pratyak-dhāmā*—perceivable everywhere; *svayam-jyotiḥ*—self-effulgent; *viśvam*—the entire creation; *yena*—by whom; *samanvitam*—is maintained.

@@ -1,11 +1,11 @@
 ### SB 2.8.28
 
-> प्राह भागवतं नाम पुराणं ब्रह्मसम्मितम् ।
+> प्राह भागवतं नाम पुराणं ब्रह्मसम्मितम् ।\
 > ब्रह्मणे भगवत्प्रोक्तं ब्रह्मकल्प उपागते ॥२८॥
 
-> prāha bhāgavataṁ nāma
-> purāṇaṁ brahma-sammitam
-> brahmaṇe bhagavat-proktaṁ
+> prāha bhāgavataṁ nāma\
+> purāṇaṁ brahma-sammitam\
+> brahmaṇe bhagavat-proktaṁ\
 > brahma-kalpa upāgate
 
 *prāha*—he said; *bhāgavatam*—the science of the Personality of Godhead; *nāma*—of the name; *purāṇam*—the supplement of the *Vedas*; *brahma-sammitam*—just in pursuance of the *Vedas*; *brahmaṇe*—unto Lord Brahmā; *bhagavat-proktam*—was spoken by the Personality of Godhead; *brahma-kalpe*—the millennium in which Brahmā was first generated; *upāgate*—just in the beginning.

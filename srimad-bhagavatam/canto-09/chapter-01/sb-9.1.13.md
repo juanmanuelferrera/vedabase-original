@@ -1,11 +1,11 @@
 ### SB 9.1.13
 
-> अप्रजस्य मनोः पूर्वं वसिष्ठो भगवान्किल
+> अप्रजस्य मनोः पूर्वं वसिष्ठो भगवान्किल\
 > मित्रावरुणयोरिष्टिं प्रजार्थमकरोद्विभुः ॥१३॥
 
-> aprajasya manoḥ pūrvaṁ
-> vasiṣṭho bhagavān kila
-> mitrā-varuṇayor iṣṭiṁ
+> aprajasya manoḥ pūrvaṁ\
+> vasiṣṭho bhagavān kila\
+> mitrā-varuṇayor iṣṭiṁ\
 > prajārtham akarod vibhuḥ
 
 *aprajasya*—of he who had no son; *manoḥ*—of Manu; *pūrvam*—formerly; *vasiṣṭhaḥ*—the great saint Vasiṣṭha; *bhagavān*—powerful; *kila*—indeed; *mitrā-varuṇayoḥ*—of the demigods named Mitra and Varuṇa; *iṣṭim*—a sacrifice; *prajā-artham*—for the sake of getting sons; *akarot*—executed; *vibhuḥ*—the great person.

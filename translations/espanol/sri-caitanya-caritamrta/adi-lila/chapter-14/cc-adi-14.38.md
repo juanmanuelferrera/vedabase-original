@@ -1,9 +1,9 @@
 ### CC Adi 14.38
 
-> চোরে লঞা গেল প্রভুকে বাহিরে পাইয়া ।
+> চোরে লঞা গেল প্রভুকে বাহিরে পাইয়া ।\
 > তার স্কন্ধে চড়ি’ আইলা তারে ভুলাইয়া ॥৩৮॥
 
-> core lañā gela prabhuke bāhire pāiyā
+> core lañā gela prabhuke bāhire pāiyā\
 > tāra skandhe caḍi' āilā tāre bhulāiyā
 
 *core*—dos ladrones; *lañā*—llevándose; *gela*—se fueron; *prabhuke*—al Señor; *bāhire*—afuera; *pāiyā*—al encontrarlo; *tāra*—sus; *skandhe*—sobre los hombros; *caḍi'*—subiéndose; *āilā*—regresó; *tāre*—a ellos; *bhulāiyā*—despistando.

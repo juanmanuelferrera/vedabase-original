@@ -1,9 +1,9 @@
 ### CC Madhya 6.170
 
-> ‘পরিণাম-বাদ’ — ব্যাস-সূত্রের সম্মত ।
+> ‘পরিণাম-বাদ’ — ব্যাস-সূত্রের সম্মত ।\
 > অচিন্ত্যশক্তি ঈশ্বর জগদ্রূপে পরিণত ॥১৭০॥
 
-> 'pariṇāma-vāda'--vyāsa-sūtrera sammata
+> 'pariṇāma-vāda'--vyāsa-sūtrera sammata\
 > acintya-śakti īśvara jagad-rūpe pariṇata
 
 *pariṇāma-vāda*—la teoría de la transformación; *vyāsa-sūtrera*—del Vedānta-sūtra; *sammata*—propósito; *acintya-śakti*—poder inconcebible; *īśvara*—la Suprema Personalidad de Dios; *jagat-rūpe*—en la forma de la manifestación cósmica; *pariṇata*—transformada.

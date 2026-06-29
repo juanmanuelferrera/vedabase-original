@@ -1,11 +1,11 @@
 ### SB 4.24.20
 
-> ससमुद्रमुप विस्तीर्णमपश्यन्सुमहत्सरः ।
+> ससमुद्रमुप विस्तीर्णमपश्यन्सुमहत्सरः ।\
 > महन्मन इव स्वच्छं प्रसन्नसलिलाशयम् ॥२०॥
 
-> sa-samudram upa vistīrṇam
-> apaśyan sumahat saraḥ
-> mahan-mana iva svacchaṁ
+> sa-samudram upa vistīrṇam\
+> apaśyan sumahat saraḥ\
+> mahan-mana iva svacchaṁ\
 > prasanna-salilāśayam
 
 *sa-samudram*—almost near the ocean; *upa*—more or less; *vistīrṇam*—very wide and long; *apaśyan*—they saw; *su-mahat*—very great; *saraḥ*—reservoir of water; *mahat*—great soul; *manaḥ*—mind; *iva*—like; *su-accham*—clear; *prasanna*—joyful; *salila*—water; *āśayam*—taken shelter of.

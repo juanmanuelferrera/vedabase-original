@@ -1,9 +1,9 @@
 ### CC Madhya 10.123
 
-> স্বরূপ কহে, — প্রভু, মোর ক্ষম’ অপরাধ ৷
+> স্বরূপ কহে, — প্রভু, মোর ক্ষম’ অপরাধ ৷\
 > তোমা ছাড়ি’ অন্যত্র গেনু, করিনু প্রমাদ ৷৷ ১২৩ ৷৷ ॥১২৩॥
 
-> svarūpa kahe,-prabhu, mora kṣama' aparādha
+> svarūpa kahe,-prabhu, mora kṣama' aparādha\
 > tomā chāḍi' anyatra genu, karinu pramāda
 
 *svarūpa kahe*—Svarūpa Dāmodara dijo; *prabhu*—mi Señor; *mora*—mi; *kṣama'*—por favor perdona; *aparādha*—ofensa; *tomā*—a Ti; *chāḍi'*—abandonando; *anyatra*—a otro lugar; *genu*—fui; *karinu*—he cometido; *pramāda*—un gran error.

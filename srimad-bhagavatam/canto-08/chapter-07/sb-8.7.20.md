@@ -1,11 +1,11 @@
 ### SB 8.7.20
 
-> तदुग्रवेगं दिशि दिश्युपर्यधो विसर्पदुत्सर्पदसह्यमप्रति
+> तदुग्रवेगं दिशि दिश्युपर्यधो विसर्पदुत्सर्पदसह्यमप्रति\
 > भीताः प्रजा दुद्रुवुरङ्ग सेश्वरा अरक्ष्यमाणाः शरणं सदाशिवम ॥२०॥
 
-> vilokya taṁ deva-varaṁ tri-lokyā
-> bhavāya devyābhimataṁ munīnām
-> āsīnam adrāv apavarga-hetos
+> vilokya taṁ deva-varaṁ tri-lokyā\
+> bhavāya devyābhimataṁ munīnām\
+> āsīnam adrāv apavarga-hetos\
 > tapo juṣāṇaṁ stutibhiḥ praṇemuḥ
 
 *vilokya*—observing; *tam*—him; *deva-varam*—the best of the demigods; *tri-lokyāḥ*—of the three worlds; *bhavāya*—for the flourishing; *devyā*—with his wife, Bhavānī; *abhimatam*—accepted by; *munīnām*—great saintly persons; *āsīnam*—sitting together; *adrau*—from the top of Kailāsa Hill; *apavarga-hetoḥ*—desiring liberation; *tapaḥ*—in austerity; *juṣāṇam*—being served by them; *stutibhiḥ*—by prayers; *praṇemuḥ*—offered their respectful obeisances.

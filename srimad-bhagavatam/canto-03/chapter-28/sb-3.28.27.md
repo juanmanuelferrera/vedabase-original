@@ -1,13 +1,13 @@
 ### SB 3.28.27
 
-> बाहूंश्च मन्दरगिरेः परिवर्तनेन
-> निर्णिक्तबाहुवलयानधिलोकपालान् ।
-> सञ्चिन्तयेद्दशशतारमसह्यतेजः
+> बाहूंश्च मन्दरगिरेः परिवर्तनेन\
+> निर्णिक्तबाहुवलयानधिलोकपालान् ।\
+> सञ्चिन्तयेद्दशशतारमसह्यतेजः\
 > शङ्खं च तत्करसरोरुहराजहंसम् ॥२७॥
 
-> bāhūṁś ca mandara-gireḥ parivartanena
-> nirṇikta-bāhu-valayān adhiloka-pālān
-> sañcintayed daśa-śatāram asahya-tejaḥ
+> bāhūṁś ca mandara-gireḥ parivartanena\
+> nirṇikta-bāhu-valayān adhiloka-pālān\
+> sañcintayed daśa-śatāram asahya-tejaḥ\
 > śaṅkhaṁ ca tat-kara-saroruha-rāja-haṁsam
 
 *bāhūn*—the arms; *ca*—and; *mandara-gireḥ*—of Mount Mandara; *parivartanena*—by the revolving; *nirṇikta*—polished; *bāhu-valayān*—the arm ornaments; *adhiloka-pālān*—the source of the controllers of the universe; *sañcintayet*—one should meditate on; *daśa-śata-aram*—the Sudarśana disc (ten hundred spokes); *asahya-tejaḥ*—dazzling luster; *śaṅkham*—the conch; *ca*—also; *tat-kara*—in the hand of the Lord; *saroruha*—lotuslike; *rāja-haṁsam*—like a swan.

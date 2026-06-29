@@ -1,9 +1,9 @@
 ### CC Madhya 20.103
 
-> ‘সাধ্য’-‘সাধন’-তত্ত্ব পুছিতে না জানি ।
+> ‘সাধ্য’-‘সাধন’-তত্ত্ব পুছিতে না জানি ।\
 > কৃপা করি’ সব তত্ত্ব কহ ত’ আপনি ।।” ॥ ১০৩ ॥
 
-> 'sādhya'-'sādhana'-tattva puchite nā jāni
+> 'sādhya'-'sādhana'-tattva puchite nā jāni\
 > kṛpā kari' saba tattva kaha ta' āpani"
 
 *sādhya*—of the goal of spiritual life; *sādhana*—of the process of obtaining that goal; *tattva*—truth; *puchite*—to inquire; *nā jāni*—I do not know; *kṛpā kari'*—by Your causeless mercy; *saba tattva*—all such truths; *kaha ta' āpani*—please personally explain to me.

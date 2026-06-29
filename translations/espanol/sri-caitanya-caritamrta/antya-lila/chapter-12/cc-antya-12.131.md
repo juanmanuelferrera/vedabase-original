@@ -2,7 +2,7 @@
 
 > “ক্রোধাবেশের পাকের হয় ঐছে স্বাদ ! এই ত’ জানিয়ে তোমায় কৃষ্ণের ‘প্রসাদ’ ॥১৩১॥
 
-> "krodhāveśera pākera haya aiche svāda!
+> "krodhāveśera pākera haya aiche svāda!\
 > ei ta' jāniye tomāya kṛṣṇera 'prasāda'
 
 *krodha-āveśera*—estando de humor iracundo; *pākera*—de la cocina; *haya*—hay; *aiche*—tal; *svāda*—sabor; *ei ta'*—por esta razón; *jāniye*—puedo comprender; *tomāya*—hacia ti; *kṛṣṇera prasāda*—la misericordia de Kṛṣṇa.

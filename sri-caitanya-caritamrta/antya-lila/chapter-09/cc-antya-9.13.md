@@ -1,9 +1,9 @@
 ### CC Antya 9.13
 
-> একদিন লোক আসি’ প্রভুরে নিবেদিল ।
+> একদিন লোক আসি’ প্রভুরে নিবেদিল ।\
 > গোপীনাথেরে ‘বড় জানা’ চাঙ্গে চড়াইল ॥১৩॥
 
-> eka-dina loka āsi' prabhure nivedila
+> eka-dina loka āsi' prabhure nivedila\
 > gopīnāthere 'baḍa jānā' cāṅge caḍāila
 
 *eka-dina*—one day; *loka*—people; *āsi'*—coming; *prabhure*—to Śrī Caitanya Mahāprabhu; *nivedila*—informed; *gopīnāthere*—Gopīnātha Paṭṭanāyaka; *baḍa jānā*—the eldest son of King Pratāparudra; *cāṅge caḍāila*—was raised on the *cāṅga.*

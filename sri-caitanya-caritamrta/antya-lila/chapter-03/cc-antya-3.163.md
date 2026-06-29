@@ -1,9 +1,9 @@
 ### CC Antya 3.163
 
-> জাতি-ধন-জন খানের সকল লইল ।
+> জাতি-ধন-জন খানের সকল লইল ।\
 > বহুদিন পর্যন্ত গ্রাম উজাড় রহিল ॥১৬৩॥
 
-> jāti-dhana-jana khānera sakala la-ila
+> jāti-dhana-jana khānera sakala la-ila\
 > bahu-dina paryanta grāma ujāḍa rahila
 
 *jāti*—birthright; *dhana*—riches; *jana*—followers; *khānera*—of Rāmacandra Khān; *sakala*—everything; *la-ila*—he took away; *bahu-dina*—a long time; *paryanta*—for; *grāma*—the village; *ujāḍa rahila*—remained deserted.

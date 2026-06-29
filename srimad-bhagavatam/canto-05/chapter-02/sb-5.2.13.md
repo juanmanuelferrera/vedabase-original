@@ -1,13 +1,13 @@
 ### SB 5.2.13
 
-> का वात्मवृत्तिरदनाद्धविरङ्ग वाति
-> विष्णोः कलास्यनिमिषोन्मकरौ च कर्णौ
-> उद्विग्नमीनयुगलं द्विजपङ्क्तिशोचिर
+> का वात्मवृत्तिरदनाद्धविरङ्ग वाति\
+> विष्णोः कलास्यनिमिषोन्मकरौ च कर्णौ\
+> उद्विग्नमीनयुगलं द्विजपङ्क्तिशोचिर\
 > आसन्नभृङ्गनिकरं सर इन्मुखं ते ॥१३॥
 
-> kā vātma-vṛttir adanād dhavir aṅga vāti
-> viṣṇoḥ kalāsy animiṣonmakarau ca karṇau
-> udvigna-mīna-yugalaṁ dvija-paṅkti-śocir
+> kā vātma-vṛttir adanād dhavir aṅga vāti\
+> viṣṇoḥ kalāsy animiṣonmakarau ca karṇau\
+> udvigna-mīna-yugalaṁ dvija-paṅkti-śocir\
 > āsanna-bhṛṅga-nikaraṁ sara in mukhaṁ te
 
 *kā*—what; *vā*—and; *ātma-vṛttiḥ*—food for maintenance of the body; *adanāt*—by the chewing (of betel); *haviḥ*—pure sacrificial ingredients; *aṅga*—my dear friend; *vāti*—emanate; *viṣṇoḥ*—of Lord Viṣṇu; *kalā*—expansion of the body; *asi*—you are; *animiṣa*—without blinking; *unmakarau*—two brilliant sharks; *ca*—also; *karṇau*—two ears; *udvigna*—restless; *mīna-yugalam*—possessing two fish; *dvija-paṅkti*—of lines of teeth; *śociḥ*—beauty; *āsanna*—nearby; *bhṛṅga-nikaram*—possessing swarms of bumblebees; *saraḥ it*—like a lake; *mukham*—face; *te*—your.

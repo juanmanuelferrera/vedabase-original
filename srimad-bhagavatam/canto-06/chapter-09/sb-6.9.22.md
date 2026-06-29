@@ -1,11 +1,11 @@
 ### SB 6.9.22
 
-> अविस्मितं तं परिपूर्णकामं स्वेनैव लाभेन समं प्रशान्तम
+> अविस्मितं तं परिपूर्णकामं स्वेनैव लाभेन समं प्रशान्तम\
 > विनोपसर्पत्यपरं हि बालिशः श्वलाङ्गुलेनातितितर्ति सिन्धुम ॥२२॥
 
-> avismitaṁ taṁ paripūrṇa-kāmaṁ
-> svenaiva lābhena samaṁ praśāntam
-> vinopasarpaty aparaṁ hi bāliśaḥ
+> avismitaṁ taṁ paripūrṇa-kāmaṁ\
+> svenaiva lābhena samaṁ praśāntam\
+> vinopasarpaty aparaṁ hi bāliśaḥ\
 > śva-lāṅgulenātititarti sindhum
 
 *avismitam*—who is never struck with wonder; *tam*—Him; *paripūrṇa-kāmam*—who is fully satisfied; *svena*—by His own; *eva*—indeed; *lābhena*—achievements; *samam*—equipoised; *praśāntam*—very steady; *vinā*—without; *upasarpati*—approaches; *aparam*—another; *hi*—indeed; *bāliśaḥ*—a fool; *śva*—of a dog; *lāṅgulena*—by the tail; *atititarti*—wants to cross; *sindhum*—the sea.

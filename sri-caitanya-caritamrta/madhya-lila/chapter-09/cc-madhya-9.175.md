@@ -1,9 +1,9 @@
 ### CC Madhya 9.175
 
-> শিব-দুর্গা রহে তাহাঁ ব্রাহ্মণের বেশে ।
+> শিব-দুর্গা রহে তাহাঁ ব্রাহ্মণের বেশে ।\
 > মহাপ্রভু দেখি’ দোঁহার হইল উল্লাসে ॥১৭৫॥
 
-> śiva-durgā rahe tāhāṅ brāhmaṇera veśe
+> śiva-durgā rahe tāhāṅ brāhmaṇera veśe\
 > mahāprabhu dekhi' doṅhāra ha-ila ullāse
 
 *śiva-durgā*—Lord Śiva and his wife, Durgā; *rahe tāhāṅ*—stayed there; *brāhmaṇera veśe*—in the dress of *brāhmaṇas*; *mahāprabhu dekhi'*—seeing Śrī Caitanya Mahāprabhu; *doṅhāra*—of both of them; *ha-ila*—there was; *ullāse*—great pleasure.

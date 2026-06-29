@@ -1,9 +1,9 @@
 ### CC Madhya 4.123
 
-> অযাচিত-বৃত্তি পুরী — বিরক্ত, উদাস ।
+> অযাচিত-বৃত্তি পুরী — বিরক্ত, উদাস ।\
 > অযাচিত পাইলে খা’ন, নহে উপবাস ॥১২৩॥
 
-> ayācita-vṛtti purī--virakta, udāsa
+> ayācita-vṛtti purī--virakta, udāsa\
 > ayācita pāile khā'na, nahe upavāsa
 
 *ayācita-vṛtti*—acostumbrado a no mendigar; *purī*—Mādhavendra Purī; *virakta*—desapegado; *udāsa*—indiferente; *ayācita*—sin mendigar; *pāile*—si obtiene; *khā'na*—come; *nahe*—si no; *upavāsa*—ayuno.

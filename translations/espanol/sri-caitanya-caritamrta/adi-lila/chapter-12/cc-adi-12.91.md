@@ -1,9 +1,9 @@
 ### CC Adi 12.91
 
-> এই তিন স্কন্ধের কৈলুঁ শাখার গণন ।
+> এই তিন স্কন্ধের কৈলুঁ শাখার গণন ।\
 > যাঁ-সবা-স্মরণে ভববন্ধ-বিমোচন ॥৯১॥
 
-> ei tina skandhera kailuṅ śākhāra gaṇana
+> ei tina skandhera kailuṅ śākhāra gaṇana\
 > yāṅ-sabā-smaraṇe bhava-bandha-vimocana
 
 *ei tina*—de todos estos tres; *skandhera*—troncos; *kailuṅ*—describí; *śākhāra gaṇana*—enumeración de las ramas; *yāṅ-sabā*—a todos ellos; *smaraṇe*—recordando; *bhava-bandha*—del cautiverio en el mundo material; *vimocana*—liberación.

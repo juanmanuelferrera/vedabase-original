@@ -1,9 +1,9 @@
 ### CC Madhya 25.207
 
-> রূপ-গোসাঞি, আইলে তাঁরে বহু প্রীতি কৈলা ।
+> রূপ-গোসাঞি, আইলে তাঁরে বহু প্রীতি কৈলা ।\
 > আপন-সঙ্গে লঞা ‘দ্বাদশ বন’ দেখাইলা ॥২০৭॥
 
-> rūpa-gosāñi, āile tāṅre bahu prīti kailā
+> rūpa-gosāñi, āile tāṅre bahu prīti kailā\
 > āpana-saṅge lañā 'dvādaśa vana' dekhāilā
 
 *rūpa-gosāñi*—Rūpa Gosāñi; *āile*—cuando llegó a Mathurā; *tāṅre*—a él; *bahu*—mucho; *prīti*—amor; *kailā*—mostró; *āpana-saṅge lañā*—llevando personalmente a Rūpa Gosvāmī consigo; *dvādaśa vana*—los doce bosques de Vṛndāvana; *dekhāilā*—mostró.

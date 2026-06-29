@@ -1,11 +1,11 @@
 ### SB 2.5.37
 
-> पुरुषस्य मुखं ब्रह्म क्षत्रमेतस्य बाहवः ।
+> पुरुषस्य मुखं ब्रह्म क्षत्रमेतस्य बाहवः ।\
 > ऊर्वोर्वैश्यो भगवतः पद्भ्यां शूद्रो व्यजायत ॥३७॥
 
-> puruṣasya mukhaṁ brahma
-> kṣatram etasya bāhavaḥ
-> ūrvor vaiśyo bhagavataḥ
+> puruṣasya mukhaṁ brahma\
+> kṣatram etasya bāhavaḥ\
+> ūrvor vaiśyo bhagavataḥ\
 > padbhyāṁ śūdro vyajāyata
 
 *puruṣasya*—of the Supreme Personality of Godhead; *mukham*—mouth; *brahma*—is the *brāhmaṇas*; *kṣatram*—the royal order; *etasya*—of Him; *bāhavaḥ*—the arms; *ūrvoḥ*—the thighs; *vaiśyaḥ*—are the mercantile men; *bhagavataḥ*—of the Personality of Godhead; *padbhyām*—from His legs; *śūdraḥ*—the laborer class; *vyajāyata*—became manifested.

@@ -1,28 +1,28 @@
 ### SB 9.20.24-26
 
-> चक्रं दक्षिणहस्तेऽस्य पद्मकोशोऽस्य पादयोः
-> ईजे महाभिषेकेण सोऽभिषिक्तोऽधिराड्विभुः ॥२४॥
-> पञ्चपञ्चाशता मेध्यैर्गङ्गायामनु वाजिभिः
-> मामतेयं पुरोधाय यमुनामनु च प्रभुः ॥२५॥
-> अष्टसप्ततिमेध्याश्वान्बबन्ध प्रददद्वसु
-> भरतस्य हि दौष्मन्तेरग्निः साचीगुणे चितः
+> चक्रं दक्षिणहस्तेऽस्य पद्मकोशोऽस्य पादयोः\
+> ईजे महाभिषेकेण सोऽभिषिक्तोऽधिराड्विभुः ॥२४॥\
+> पञ्चपञ्चाशता मेध्यैर्गङ्गायामनु वाजिभिः\
+> मामतेयं पुरोधाय यमुनामनु च प्रभुः ॥२५॥\
+> अष्टसप्ततिमेध्याश्वान्बबन्ध प्रददद्वसु\
+> भरतस्य हि दौष्मन्तेरग्निः साचीगुणे चितः\
 > सहस्रं बद्वशो यस्मिन्ब्राह्मणा गा विभेजिरे ॥२६॥
 
-> cakraṁ dakṣiṇa-haste 'sya
-> padma-kośo 'sya pādayoḥ
-> īje mahābhiṣekeṇa
+> cakraṁ dakṣiṇa-haste 'sya\
+> padma-kośo 'sya pādayoḥ\
+> īje mahābhiṣekeṇa\
 > so 'bhiṣikto 'dhirāḍ vibhuḥ
 
-> pañca-pañcāśatā medhyair
-> gaṅgāyām anu vājibhiḥ
-> māmateyaṁ purodhāya
+> pañca-pañcāśatā medhyair\
+> gaṅgāyām anu vājibhiḥ\
+> māmateyaṁ purodhāya\
 > yamunām anu ca prabhuḥ
 
-> aṣṭa-saptati-medhyāśvān
-> babandha pradadad vasu
-> bharatasya hi dauṣmanter
-> agniḥ sācī-guṇe citaḥ
-> sahasraṁ badvaśo yasmin
+> aṣṭa-saptati-medhyāśvān\
+> babandha pradadad vasu\
+> bharatasya hi dauṣmanter\
+> agniḥ sācī-guṇe citaḥ\
+> sahasraṁ badvaśo yasmin\
 > brāhmaṇā gā vibhejire
 
 *cakram*—the mark of Kṛṣṇa's disc; *dakṣiṇa-haste*—on the palm of the right hand; *asya*—of him (Bharata); *padma-kośaḥ*—the mark of the whorl of a lotus; *asya*—of him; *pādayoḥ*—on the soles of the feet; *īje*—worshiped the Supreme Personality of Godhead; *mahā-abhiṣekeṇa*—by a grand Vedic ritualistic ceremony; *saḥ*—he (Mahārāja Bharata); *abhiṣiktaḥ*—being promoted; *adhirāṭ*—to the topmost position of a ruler; *vibhuḥ*—the master of everything; *pañca-pañcāśatā*—fifty-five; *medhyaiḥ*—fit for sacrifices; *gaṅgāyām anu*—from the mouth of the Ganges to the source; *vājibhiḥ*—with horses; *māmateyam*—the great sage Bhṛgu; *purodhāya*—making him the great priest; *yamunām*—on the bank of the Yamunā; *anu*—in regular order; *ca*—also; *prabhuḥ*—the supreme master, Mahārāja Bharata; *aṣṭa-saptati*—seventy-eight; *medhya-aśvān*—horses fit for sacrifice; *babandha*—he bound; *pradadat*—gave in charity; *vasu*—riches; *bharatasya*—of Mahārāja Bharata; *hi*—indeed; *dauṣmanteḥ*—the son of Mahārāja Duṣmanta; *agniḥ*—the sacrificial fire; *sācī-guṇe*—on an excellent site; *citaḥ*—established; *sahasram*—thousands; *badvaśaḥ*—by the number of one *badva* (one *badva* equals 13,084); *yasmin*—in which sacrifices; *brāhmaṇāḥ*—all the *brāhmaṇas* present; *gāḥ*—the cows; *vibhejire*—received their respective share.

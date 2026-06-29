@@ -1,11 +1,11 @@
 ### SB 2.2.30
 
-> स भूतसूक्ष्मेन्द्रियसन्निकर्षं मनोमयं देवमयं विकार्यम् ।
+> स भूतसूक्ष्मेन्द्रियसन्निकर्षं मनोमयं देवमयं विकार्यम् ।\
 > संसाद्य गत्या सह तेन याति विज्ञानतत्त्वं गुणसन्निरोधम् ॥३०॥
 
-> sa bhūta-sūkṣmendriya-sannikarṣaṁ
-> manomayaṁ devamayaṁ vikāryam
-> saṁsādya gatyā saha tena yāti
+> sa bhūta-sūkṣmendriya-sannikarṣaṁ\
+> manomayaṁ devamayaṁ vikāryam\
+> saṁsādya gatyā saha tena yāti\
 > vijñāna-tattvaṁ guṇa-sannirodham
 
 *saḥ*—él (el devoto); *bhūta*—las burdas; *sūkṣma*—y las sutiles; *indriya*—sentidos; *sannikarṣam*—el punto de la neutralización; *manaḥ-mayam*—el plano mental; *deva-mayam*—en el plano de la modalidad de la bondad; *vikāryam*—egoísmo; *saṁsādya*—superando; *gatyā*—mediante el progreso; *saha*—junto con; *tena*—ellos; *yāti*—va; *vijñāna*—conocimiento perfecto; *tattvam*—verdad; *guṇa*—las modalidades materiales; *sannirodham*—suspendidas por completo.

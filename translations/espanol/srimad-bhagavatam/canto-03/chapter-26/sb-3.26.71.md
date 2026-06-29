@@ -1,11 +1,11 @@
 ### SB 3.26.71
 
-> यथा प्रसुप्तं पुरुषं प्राणेन्द्रियमनोधियः ।
+> यथा प्रसुप्तं पुरुषं प्राणेन्द्रियमनोधियः ।\
 > प्रभवन्ति विना येन नोत्थापयितुमोजसा ॥७१॥
 
-> yathā prasuptaṁ puruṣaṁ
-> prāṇendriya-mano-dhiyaḥ
-> prabhavanti vinā yena
+> yathā prasuptaṁ puruṣaṁ\
+> prāṇendriya-mano-dhiyaḥ\
+> prabhavanti vinā yena\
 > notthāpayitum ojasā
 
 *yathā*—tal como; *prasuptam*—durmiendo; *puruṣam*—un hombre; *prāṇa*—el aire vital; *indriya*—los sentidos para trabajar y registrar conocimiento; *manaḥ*—la mente; *dhiyaḥ*—la inteligencia; *prabhavanti*—pueden; *vinā*—sin; *yena*—a quien (la Superalma); *na*—no; *utthāpayitum*—despertar; *ojasā*—por su propio poder.

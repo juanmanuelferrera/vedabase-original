@@ -1,11 +1,11 @@
 ### CC Antya 20.155
 
-> শ্রীমন্মদনগোপাল-গোবিন্দদেব-তুষ্টয়ে ।
+> শ্রীমন্মদনগোপাল-গোবিন্দদেব-তুষ্টয়ে ।\
 > চৈতন্যার্পিতমস্ত্বেতচ্চৈতন্যচরিতামৃতম্ ॥১৫৫॥
 
-> śrīman-madana-gopāla-
-> govindadeva-tuṣṭaye
-> caitanyārpitam astv etac
+> śrīman-madana-gopāla-\
+> govindadeva-tuṣṭaye\
+> caitanyārpitam astv etac\
 > caitanya-caritāmṛtam
 
 *śrīmat*—todohermos; *madana-gopāla*—de la Deidad Madana-mohana; *govinda-deva*—de la Deidad Śrī Govindadeva en Vṛndāvana; *tuṣṭaye*—para la satisfacción; *caitanya-arpitam*—ofrecido a Śrī Caitanya Mahāprabhu; *astu*—que así sea; *etat*—este libro; *caitanya-caritāmṛtam*—que contiene las actividades nectáreas del Señor Śrī Caitanya Mahāprabhu.

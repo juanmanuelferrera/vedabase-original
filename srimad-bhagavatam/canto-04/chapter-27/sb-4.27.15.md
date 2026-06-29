@@ -1,11 +1,11 @@
 ### SB 4.27.15
 
-> ते चण्डवेगानुचराः पुरञ्जनपुरं यदा ।
+> ते चण्डवेगानुचराः पुरञ्जनपुरं यदा ।\
 > हर्तुमारेभिरे तत्र प्रत्यषेधत्प्रजागरः ॥१५॥
 
-> te caṇḍavegānucarāḥ
-> purañjana-puraṁ yadā
-> hartum ārebhire tatra
+> te caṇḍavegānucarāḥ\
+> purañjana-puraṁ yadā\
+> hartum ārebhire tatra\
 > pratyaṣedhat prajāgaraḥ
 
 *te*—all of them; *caṇḍavega*—of Caṇḍavega; *anucarāḥ*—followers; *purañjana*—of King Purañjana; *puram*—city; *yadā*—when; *hartum*—to plunder; *ārebhire*—began; *tatra*—there; *pratyaṣedhat*—defended; *prajāgaraḥ*—the big serpent.

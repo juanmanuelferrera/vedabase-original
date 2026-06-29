@@ -1,11 +1,11 @@
 ### SB 4.28.17
 
-> अहं ममेति स्वीकृत्य गृहेषु कुमतिर्गृही ।
+> अहं ममेति स्वीकृत्य गृहेषु कुमतिर्गृही ।\
 > दध्यौ प्रमदया दीनो विप्रयोग उपस्थिते ॥१७॥
 
-> ahaṁ mameti svīkṛtya
-> gṛheṣu kumatir gṛhī
-> dadhyau pramadayā dīno
+> ahaṁ mameti svīkṛtya\
+> gṛheṣu kumatir gṛhī\
+> dadhyau pramadayā dīno\
 > viprayoga upasthite
 
 *aham*—yo; *mama*—mío; *iti*—así; *svī-kṛtya*—aceptar; *gṛheṣu*—en el hogar; *ku-matiḥ*—cuya mente está llena de pensamientos desagradables; *gṛhī*—el casado; *dadhyau*—vuelve su atención hacia; *pramadayā*—con su esposa; *dīnaḥ*—muy pobre; *viprayoge*—en el momento de la separación; *upasthite*—ocurrió.

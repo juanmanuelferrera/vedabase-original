@@ -1,9 +1,9 @@
 ### CC Adi 8.22
 
-> অদ্যাপিহ দেখ চৈতন্য-নাম যেই লয় ।
+> অদ্যাপিহ দেখ চৈতন্য-নাম যেই লয় ।\
 > কৃষ্ণ-প্রেমে পুলকাশ্রু-বিহ্বল সে হয় ॥২২॥
 
-> adyāpiha dekha caitanya-nāma yei laya
+> adyāpiha dekha caitanya-nāma yei laya\
 > kṛṣṇa-preme pulakāśru-vihvala se haya
 
 *adyāpiha*—even up to date; *dekha*—you see; *caitanya-nāma*—Lord Śrī Caitanya Mahāprabhu's name; *yei*—anyone; *laya*—who takes; *kṛṣṇa-preme*—in love of Kṛṣṇa; *pulaka-aśru*—tears in ecstasy; *vihvala*—overwhelmed; *se*—he; *haya*—becomes.

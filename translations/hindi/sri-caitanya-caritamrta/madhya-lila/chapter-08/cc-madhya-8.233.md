@@ -1,9 +1,9 @@
 ### CC Madhya 8.233
 
-> এত শুনি’ প্রভু তাঁরে কৈল আলিঙ্গন ।
+> এত শুনি’ প্রভু তাঁরে কৈল আলিঙ্গন ।\
 > দুই জনে গলাগলি করেন ক্রন্দন ॥২৩৩॥
 
-> eta śuni' prabhu tāṅre kaila āliṅgana
+> eta śuni' prabhu tāṅre kaila āliṅgana\
 > dui jane galāgali karena krandana
 
 *eta śuni'*—इतना सुनकर; *prabhu*—भगवान् श्रीचैतन्य महाप्रभु; *tāṅre*—रामानन्द राय को; *kaila*—किया; *āliṅgana*—आलिंगन; *dui jane*—दोनों ही; *galāgali*—गले लगकर; *karena*—लगे; *krandana*—रुदन करने।

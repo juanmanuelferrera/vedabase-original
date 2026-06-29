@@ -1,13 +1,13 @@
 ### SB 1.16.10
 
-> सूत उवाच
-> यदा परीक्षित्कुरुजाङ्गलेऽवसत्कलिं प्रविष्टं निजचक्रवर्तिते ।
+> सूत उवाच\
+> यदा परीक्षित्कुरुजाङ्गलेऽवसत्कलिं प्रविष्टं निजचक्रवर्तिते ।\
 > निशम्य वार्तामनतिप्रियां ततः शरासनं संयुगशौण्डिराददे ॥१०॥
 
-> sūta uvāca
-> yadā parīkṣit kuru-jāṅgale 'vasat
-> kaliṁ praviṣṭaṁ nija-cakravartite
-> niśamya vārtām anatipriyāṁ tataḥ
+> sūta uvāca\
+> yadā parīkṣit kuru-jāṅgale 'vasat\
+> kaliṁ praviṣṭaṁ nija-cakravartite\
+> niśamya vārtām anatipriyāṁ tataḥ\
 > śarāsanaṁ saṁyuga-śauṇḍir ādade
 
 *sūtaḥ uvāca*—Sūta Gosvāmī said; *yadā*—when; *parīkṣit*—Mahārāja Parīkṣit; *kuru-jāṅgale*—in the capital of Kuru's empire; *avasat*—was residing; *kalim*—the symptoms of the age of Kali; *praviṣṭam*—entered; *nija-cakravartite*—within his jurisdiction; *niśamya*—thus hearing; *vārtām*—news; *anati-priyām*—not very palatable; *tataḥ*—thereafter; *śarāsanam*—arrows and bow; *saṁyuga*—having gotten a chance for; *śauṇḍiḥ*—martial activities; *ādade*—took up.

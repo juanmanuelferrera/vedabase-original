@@ -1,9 +1,9 @@
 ### CC Adi 17.265
 
-> অতএব অবশ্য আমি সন্ন্যাস করিব ।
+> অতএব অবশ্য আমি সন্ন্যাস করিব ।\
 > সন্ন্যাসি-বুদ্ধ্যে মোরে প্রণত হইব ॥২৬৫॥
 
-> ataeva avaśya āmi sannyāsa kariba
+> ataeva avaśya āmi sannyāsa kariba\
 > sannyāsi-buddhye more praṇata ha-iba
 
 *ataeva*—therefore; *avaśya*—certainly; *āmi*—I; *sannyāsa*—the renounced order of life; *kariba*—shall accept; *sannyāsi-buddhye*—by thinking of Me as a *sannyāsī*; *more*—unto Me; *praṇata*—bow down; *ha-iba*—they shall do.

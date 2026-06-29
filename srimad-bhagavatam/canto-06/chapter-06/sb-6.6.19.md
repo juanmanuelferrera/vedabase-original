@@ -1,11 +1,11 @@
 ### SB 6.6.19
 
-> रुद्रस्य पार्षदाश्चान्ये घोराः प्रेतविनायकाः
+> रुद्रस्य पार्षदाश्चान्ये घोराः प्रेतविनायकाः\
 > प्रजापतेरङ्गिरसः स्वधा पत्नी पितॄनथ ॥१९॥
 
-> prajāpater aṅgirasaḥ
-> svadhā patnī pitṝn atha
-> atharvāṅgirasaṁ vedaṁ
+> prajāpater aṅgirasaḥ\
+> svadhā patnī pitṝn atha\
+> atharvāṅgirasaṁ vedaṁ\
 > putratve cākarot satī
 
 *prajāpateḥ aṅgirasaḥ*—of another *prajāpati,* known as Aṅgirā; *svadhā*—Svadhā; *patnī*—his wife; *pitṝn*—the Pitās; *atha*—thereafter; *atharva-āṅgirasam*—Atharvāṅgirasa; *vedam*—the personified *Veda*; *putratve*—as the son; *ca*—and; *akarot*—accepted; *satī*—Satī.

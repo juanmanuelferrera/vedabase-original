@@ -1,9 +1,9 @@
 ### CC Madhya 6.152
 
-> ষড়ৈশ্বর্যপূর্ণানন্দ-বিগ্রহ যাঁহার ।
+> ষড়ৈশ্বর্যপূর্ণানন্দ-বিগ্রহ যাঁহার ।\
 > হেন-ভগবানে তুমি কহ নিরাকার? ॥১৫২॥
 
-> ṣaḍ-aiśvarya-pūrṇānanda-vigraha yāṅhāra
+> ṣaḍ-aiśvarya-pūrṇānanda-vigraha yāṅhāra\
 > hena-bhagavāne tumi kaha nirākāra ?
 
 *ṣaṭ-aiśvarya-pūrṇa*—with six opulences in full; *ānanda*—blissful; *vigraha*—form; *yāṅhāra*—whose; *hena-bhagavāne*—unto that Supreme Personality of Godhead; *tumi*—you; *kaha*—said; *nirākāra*—without any form.

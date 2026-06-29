@@ -1,11 +1,11 @@
 ### SB 8.5.2
 
-> पञ्चमो रैवतो नाम मनुस्तामससोदरः
+> पञ्चमो रैवतो नाम मनुस्तामससोदरः\
 > बलिविन्ध्यादयस्तस्य सुता हार्जुनपूर्वकाः ॥२॥
 
-> pañcamo raivato nāma
-> manus tāmasa-sodaraḥ
-> bali-vindhyādayas tasya
+> pañcamo raivato nāma\
+> manus tāmasa-sodaraḥ\
+> bali-vindhyādayas tasya\
 > sutā hārjuna-pūrvakāḥ
 
 *pañcamaḥ*—el quinto; *raivataḥ*—Raivata; *nāma*—de nombre; *manuḥ*—*manu*; *tāmasa-sodaraḥ*—el hermano de Tāmasa Manu; *bali*—Bali; *vindhya*—Vindhya; *ādayaḥ*—y demás; *tasya*—sus; *sutāḥ*—hijos; *ha*—ciertamente; *arjuna*—Arjuna; *pūrvakāḥ*—sus principales hijos.

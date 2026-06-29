@@ -1,11 +1,11 @@
 ### SB 3.31.28
 
-> इत्येवं शैशवं भुक्त्वा दुःखं पौगण्डमेव च ।
+> इत्येवं शैशवं भुक्त्वा दुःखं पौगण्डमेव च ।\
 > अलब्धाभीप्सितोऽज्ञानादिद्धमन्युः शुचार्पितः ॥२८॥
 
-> ity evaṁ śaiśavaṁ bhuktvā
-> duḥkhaṁ paugaṇḍam eva ca
-> alabdhābhīpsito 'jñānād
+> ity evaṁ śaiśavaṁ bhuktvā\
+> duḥkhaṁ paugaṇḍam eva ca\
+> alabdhābhīpsito 'jñānād\
 > iddha-manyuḥ śucārpitaḥ
 
 *iti evam*—in this way; *śaiśavam*—childhood; *bhuktvā*—having undergone; *duḥkham*—distress; *paugaṇḍam*—boyhood; *eva*—even; *ca*—and; *alabdha*—not achieved; *abhīpsitaḥ*—he whose desires; *ajñānāt*—due to ignorance; *iddha*—kindled; *manyuḥ*—his anger; *śucā*—by sorrow; *arpitaḥ*—overcome.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.68
 
-> মুকুন্দদত্ত লঞা আইলা সার্বভৌম স্থানে ।
+> মুকুন্দদত্ত লঞা আইলা সার্বভৌম স্থানে ।\
 > সার্বভৌম কিছু তাঁরে বলিলা বচনে ॥৬৮॥
 
-> mukunda-datta lañā āilā sārvabhauma sthāne
+> mukunda-datta lañā āilā sārvabhauma sthāne\
 > sārvabhauma kichu tāṅre balilā vacane
 
 *mukunda-datta*—de nombre Mukunda Datta; *lañā*—llevando; *āilā*—fue; *sārvabhauma*—de Sārvabhauma Bhaṭṭācārya; *sthāne*—al lugar; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *kichu*—algo; *tāṅre*—a Mukunda Datta; *balilā*—dijo; *vacane*—en palabras.

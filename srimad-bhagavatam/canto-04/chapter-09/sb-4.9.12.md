@@ -1,13 +1,13 @@
 ### SB 4.9.12
 
-> ते न स्मरन्त्यतितरां प्रियमीश मर्त्यं
-> ये चान्वदः सुतसुहृद्गृहवित्तदाराः ।
-> ये त्वब्जनाभ भवदीयपदारविन्द
+> ते न स्मरन्त्यतितरां प्रियमीश मर्त्यं\
+> ये चान्वदः सुतसुहृद्गृहवित्तदाराः ।\
+> ये त्वब्जनाभ भवदीयपदारविन्द\
 > सौगन्ध्यलुब्धहृदयेषु कृतप्रसङ्गाः ॥१२॥
 
-> te na smaranty atitarāṁ priyam īśa martyaṁ
-> ye cānv adaḥ suta-suhṛd-gṛha-vitta-dārāḥ
-> ye tv abja-nābha bhavadīya-padāravinda-
+> te na smaranty atitarāṁ priyam īśa martyaṁ\
+> ye cānv adaḥ suta-suhṛd-gṛha-vitta-dārāḥ\
+> ye tv abja-nābha bhavadīya-padāravinda-\
 > saugandhya-lubdha-hṛdayeṣu kṛta-prasaṅgāḥ
 
 *te*—they; *na*—never; *smaranti*—remember; *atitarām*—highly; *priyam*—dear; *īśa*—O Lord; *martyam*—material body; *ye*—they who; *ca*—also; *anu*—in relationship with; *adaḥ*—that; *suta*—sons; *suhṛt*—friends; *gṛha*—home; *vitta*—wealth; *dārāḥ*—and wife; *ye*—those who; *tu*—then; *abja-nābha*—O Lord who have a lotus navel; *bhavadīya*—of Your; *pada-aravinda*—lotus feet; *saugandhya*—the fragrance; *lubdha*—have achieved; *hṛdayeṣu*—with devotees whose hearts; *kṛta-prasaṅgāḥ*—have association.

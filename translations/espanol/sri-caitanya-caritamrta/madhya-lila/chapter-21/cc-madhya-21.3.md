@@ -1,9 +1,9 @@
 ### CC Madhya 21.3
 
-> সর্ব স্বরূপের ধাম — পরব্যোম-ধামে ।
+> সর্ব স্বরূপের ধাম — পরব্যোম-ধামে ।\
 > পৃথক্ পৃথক্ বৈকুণ্ঠ সব, নাহিক গণনে ॥৩॥
 
-> sarva svarūpera dhāma--paravyoma-dhāme
+> sarva svarūpera dhāma--paravyoma-dhāme\
 > pṛthak pṛthak vaikuṇṭha saba, nāhika gaṇane
 
 *sarva*—todas; *svarūpera*—de las formas personales; *dhāma*—morada; *para-vyoma-dhāme*—en el cielo espiritual; *pṛthak pṛthak*—separados; *vaikuṇṭha*—planetas Vaikuṇṭha; *saba*—todos; *nāhika gaṇane*—no hay forma de contarlos.

@@ -1,9 +1,9 @@
 ### CC Antya 1.122
 
-> সবে বলে, — ‘নাম-মহিমা শুনিয়াছি অপার ।
+> সবে বলে, — ‘নাম-মহিমা শুনিয়াছি অপার ।\
 > এমন মাধুর্য কেহ নাহি বর্ণে আর ।।’ ॥ ১২২ ॥
 
-> sabe bale,--'nāma-mahimā śuniyāchi apāra
+> sabe bale,--'nāma-mahimā śuniyāchi apāra\
 > emana mādhurya keha nāhi varṇe āra'
 
 *sabe bale*—todos dijeron; *nāma-mahimā*—las glorias de cantar el santo nombre; *śuniyāchi*—hemos oído; *apāra*—muchas veces; *emana*—esta clase de; *mādhurya*—dulzura; *keha*—alguien; *nāhi*—no; *varṇe*—describe; *āra*—otro.

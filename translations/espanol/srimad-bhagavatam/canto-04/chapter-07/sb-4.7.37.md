@@ -1,13 +1,13 @@
 ### SB 4.7.37
 
-> लोकपाला ऊचुः
-> दृष्टः किं नो दृग्भिरसद्ग्रहैस्त्वं प्रत्यग्द्रष्टा दृश्यते येन विश्वम् ।
+> लोकपाला ऊचुः\
+> दृष्टः किं नो दृग्भिरसद्ग्रहैस्त्वं प्रत्यग्द्रष्टा दृश्यते येन विश्वम् ।\
 > माया ह्येषा भवदीया हि भूमन्यस्त्वं षष्ठः पञ्चभिर्भासि भूतैः ॥३७॥
 
-> lokapālā ūcuḥ
-> dṛṣṭaḥ kiṁ no dṛgbhir asad-grahais tvaṁ
-> pratyag-draṣṭā dṛśyate yena viśvam
-> māyā hy eṣā bhavadīyā hi bhūman
+> lokapālā ūcuḥ\
+> dṛṣṭaḥ kiṁ no dṛgbhir asad-grahais tvaṁ\
+> pratyag-draṣṭā dṛśyate yena viśvam\
+> māyā hy eṣā bhavadīyā hi bhūman\
 > yas tvaṁ ṣaṣṭhaḥ pañcabhir bhāsi bhūtaiḥ
 
 *loka-pālāḥ*—los gobernantes de los diversos planetas; *ūcuḥ*—dijeron; *dṛṣṭaḥ*—visto; *kim*—si; *naḥ*—por nosotros; *dṛgbhiḥ*—con los sentidos materiales; *asat-grahaiḥ*—revelando la manifestación cósmica; *tvam*—Tú; *pratyak-draṣṭā*—testigo interior; *dṛśyate*—es visto; *yena*—por quien; *viśvam*—el universo; *māyā*—mundo material; *hi*—ciertamente; *eṣā*—este; *bhavadīyā*—Tu; *hi*—ciertamente; *bhūman*—¡oh, poseedor del universo!; *yaḥ*—porque; *tvam*—Tú; *ṣaṣṭhaḥ*—el sexto; *pañcabhiḥ*—con los cinco; *bhāsi*—apareces; *bhūtaiḥ*—con los elementos.

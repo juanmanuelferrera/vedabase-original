@@ -1,9 +1,9 @@
 ### CC Antya 1.90
 
-> স্বরূপ কহে — “যাতে এই শ্লোক দেখিলুঁ ।
+> স্বরূপ কহে — “যাতে এই শ্লোক দেখিলুঁ ।\
 > তুমি করিয়াছ কৃপা, তবঁহি জানিলু ॥৯০॥
 
-> svarūpa kahe—"yāte ei śloka dekhiluṅ
+> svarūpa kahe—"yāte ei śloka dekhiluṅ\
 > tumi kariyācha kṛpā, tavaṅhi jānilu
 
 *svarūpa kahe*—Svarūpa Dāmodara says; *yāte*—since; *eiśloka*—this verse; *dekhiluṅ*—I have seen; *tumi*—You; *kariyācha kṛpā*—have bestowed Your mercy; *tavaṅhi*—immediately; *jānilu*—I could understand.

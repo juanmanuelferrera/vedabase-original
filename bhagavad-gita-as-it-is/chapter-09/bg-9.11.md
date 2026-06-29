@@ -1,11 +1,11 @@
 ### Bg 9.11
 
-> अवजानन्ति मां मूढा मानुषीं तनुमाश्रितम् ।
+> अवजानन्ति मां मूढा मानुषीं तनुमाश्रितम् ।\
 > परं भावमजानन्तो मम भूतमहेश्वरम् ॥११॥
 
-> avajānanti māṁ mūḍhā
-> mānuṣīṁ tanum āśritam
-> paraṁ bhāvam ajānanto
+> avajānanti māṁ mūḍhā\
+> mānuṣīṁ tanum āśritam\
+> paraṁ bhāvam ajānanto\
 > mama bhūta-maheśvaram
 
 *avajānanti*—deride; *mām*—Me; *mūḍhāḥ*—foolish men; *mānuṣīm*—in a human form; *tanum*—body; *āśritam*—assuming; *param*—transcendental; *bhāvam*—nature; *ajānantaḥ*—not knowing; *mama*—Mine; *bhūta*—everything that be; *maheśvaram*—supreme proprietor.

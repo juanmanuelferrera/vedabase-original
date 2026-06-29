@@ -1,11 +1,11 @@
 ### SB 3.22.6
 
-> दिष्ट्या मे भगवान्दृष्टो दुर्दर्शो योऽकृतात्मनाम् ।
+> दिष्ट्या मे भगवान्दृष्टो दुर्दर्शो योऽकृतात्मनाम् ।\
 > दिष्ट्या पादरजः स्पृष्टं शीर्ष्णा मे भवतः शिवम् ॥६॥
 
-> diṣṭyā me bhagavān dṛṣṭo
-> durdarśo yo 'kṛtātmanām
-> diṣṭyā pāda-rajaḥ spṛṣṭaṁ
+> diṣṭyā me bhagavān dṛṣṭo\
+> durdarśo yo 'kṛtātmanām\
+> diṣṭyā pāda-rajaḥ spṛṣṭaṁ\
 > śīrṣṇā me bhavataḥ śivam
 
 *diṣṭyā*—por buena fortuna; *me*—mía; *bhagavān*—todopoderoso; *dṛṣṭaḥ*—se ve; *durdarśaḥ*—que no es fácil ver; *yaḥ*—quien; *akṛta-ātmanām*—de aquellos que no han controlado la mente y los sentidos; *diṣṭyā*—por mi buena fortuna; *pāda-rajaḥ*—el polvo de los pies; *spṛṣṭam*—tocado; *śīrṣṇā*—con la cabeza; *me*—mi; *bhavataḥ*—tus; *śivam*—que causan todo lo auspicioso.

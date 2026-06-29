@@ -1,9 +1,9 @@
 ### CC Antya 13.101
 
-> দণ্ডপরণাম করি’ ভট্ট পড়িলা চরণে ।
+> দণ্ডপরণাম করি’ ভট্ট পড়িলা চরণে ।\
 > প্রভু ‘রঘুনাথ’ জানি কৈলা আলিঙ্গনে ॥১০১॥
 
-> daṇḍa-paraṇāma kari' bhaṭṭa paḍilā caraṇe
+> daṇḍa-paraṇāma kari' bhaṭṭa paḍilā caraṇe\
 > prabhu 'raghunātha' jāni kailā āliṅgane
 
 *daṇḍa-paraṇāma kari'*—offering obeisances by falling down on the ground; *bhaṭṭa*—Raghunātha Bhaṭṭa; *paḍilā caraṇe*—fell at the lotus feet; *prabhu*—Śrī Caitanya Mahāprabhu; *raghunātha*—Raghunātha Bhaṭṭa; *jāni*—knowing; *kailā āliṅgane*—embraced.

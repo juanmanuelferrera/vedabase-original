@@ -1,13 +1,13 @@
 ### CC Antya 19.48
 
-> অরে বিধি অকরুণ, দেখাঞা কৃষ্ণানন,
-> নেত্র-মন লোভাইলা মোর ।
-> ক্ষণেকে করিতে পান, কাড়ি’ নিলা অন্য স্থান,
+> অরে বিধি অকরুণ, দেখাঞা কৃষ্ণানন,\
+> নেত্র-মন লোভাইলা মোর ।\
+> ক্ষণেকে করিতে পান, কাড়ি’ নিলা অন্য স্থান,\
 > পাপ কৈলি ‘দত্ত-অপহার’ ॥৪৮॥
 
-> are vidhi akaruṇa, dekhāñā kṛṣṇānana,
-> netra-mana lobhāilā mora
-> kṣaṇeke karite pāna, kāḍi' nilā anya sthāna,
+> are vidhi akaruṇa, dekhāñā kṛṣṇānana,\
+> netra-mana lobhāilā mora\
+> kṣaṇeke karite pāna, kāḍi' nilā anya sthāna,\
 > pāpa kaili 'datta-apahāra'
 
 *are*—oh; *vidhi*—Providence; *akaruṇa*—most unkind; *dekhāñā*—showing; *kṛṣṇa-ānana*—the beautiful face of Kṛṣṇa; *netra-mana*—mind and eyes; *lobhāilā*—have made greedy; *mora*—My; *kṣaṇeke karite pāna*—drinking only for a moment; *kāḍi' nilā*—took it away; *anya sthāna*—to another place; *pāpa kaili*—have performed a most sinful act; *datta-apahāra*—taking back things given in charity.

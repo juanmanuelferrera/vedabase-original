@@ -1,13 +1,13 @@
 ### SB 6.17.27
 
-> श्रीरुद्र उवाच
-> दृष्टवत्यसि सुश्रोणि हरेरद्भुतकर्मणः
+> श्रीरुद्र उवाच\
+> दृष्टवत्यसि सुश्रोणि हरेरद्भुतकर्मणः\
 > माहात्म्यं भृत्यभृत्यानां निःस्पृहाणां महात्मनाम ॥२७॥
 
-> śrī-rudra uvāca
-> dṛṣṭavaty asi suśroṇi
-> harer adbhuta-karmaṇaḥ
-> māhātmyaṁ bhṛtya-bhṛtyānāṁ
+> śrī-rudra uvāca\
+> dṛṣṭavaty asi suśroṇi\
+> harer adbhuta-karmaṇaḥ\
+> māhātmyaṁ bhṛtya-bhṛtyānāṁ\
 > niḥspṛhāṇāṁ mahātmanām
 
 *śrī-rudraḥ uvāca*—el Señor Śiva dijo; *dṛṣṭavatī asi*—has visto; *su-śroṇi*—¡oh, hermosa Pārvatī; *hareḥ*—de la Suprema Personalidad de Dios; *adbhuta-karmanaḥ*—cuyos actos son maravillosos; *māhātmyam*—la grandeza; *bhṛtya-bhṛtyānām*—de los sirvientes de los sirvientes; *niḥspṛhāṇām*—que no ambicionan la complacencia de los sentidos; *māhātmanām*—grandes almas.

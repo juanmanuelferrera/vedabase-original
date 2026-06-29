@@ -1,9 +1,9 @@
 ### CC Madhya 9.338
 
-> আলালনাথে আসি’ কৃষ্ণদাসে পাঠাইল ।
+> আলালনাথে আসি’ কৃষ্ণদাসে পাঠাইল ।\
 > নিত্যানন্দ-আদি নিজগণে বোলাইল ॥৩৩৮॥
 
-> ālālanāthe āsi' kṛṣṇadāse pāṭhāila
+> ālālanāthe āsi' kṛṣṇadāse pāṭhāila\
 > nityānanda-ādi nija-gaṇe bolāila
 
 *ālālanāthe*—to the place known as Ālālanātha; *āsi'*—coming; *kṛṣṇadāse*—Kṛṣṇadāsa, His assistant; *pāṭhāila*—sent ahead; *nityānanda*—Lord Nityānanda; *ādi*—and others; *nija-gaṇe*—personal associates; *bolāila*—called for.

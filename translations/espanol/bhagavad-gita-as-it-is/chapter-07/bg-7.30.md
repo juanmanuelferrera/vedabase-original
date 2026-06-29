@@ -1,11 +1,11 @@
 ### Bg 7.30
 
-> साधिभूताधिदैवं मां साधियज्ञं च ये विदुः ।
+> साधिभूताधिदैवं मां साधियज्ञं च ये विदुः ।\
 > प्रयाणकालेऽपि च मां ते विदुर्युक्तचेतसः ॥३०॥
 
-> sādhibhūtādhidaivaṁ māṁ
-> sādhiyajñaṁ ca ye viduḥ
-> prayāṇa-kāle'pi ca māṁ
+> sādhibhūtādhidaivaṁ māṁ\
+> sādhiyajñaṁ ca ye viduḥ\
+> prayāṇa-kāle'pi ca māṁ\
 > te vidur yukta-cetasaḥ
 
 *sa-adhibhūta*—el principio que gobierna la manifestación material; *adhidaivam*—el fundamento de todos los semidioses; *mām*—a Mí; *sa-adhiyajñam*—sustentados todos los sacrificios; *ca*—también; *ye*—aquellos; *viduḥ*—saben; *prayāṇa*—de la muerte; *kāle*—en ese momento; *api*—incluso; *ca*—y; *mām*—a Mí; *te*—ellos; *viduḥ*—conocen; *yukta-cetasaḥ*—con mente firme.

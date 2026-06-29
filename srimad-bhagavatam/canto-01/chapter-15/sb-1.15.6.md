@@ -1,11 +1,11 @@
 ### SB 1.15.6
 
-> यस्य क्षणवियोगेन लोको ह्यप्रियदर्शनः ।
+> यस्य क्षणवियोगेन लोको ह्यप्रियदर्शनः ।\
 > उक्थेन रहितो ह्येष मृतकः प्रोच्यते यथा ॥६॥
 
-> yasya kṣaṇa-viyogena
-> loko hy apriya-darśanaḥ
-> ukthena rahito hy eṣa
+> yasya kṣaṇa-viyogena\
+> loko hy apriya-darśanaḥ\
+> ukthena rahito hy eṣa\
 > mṛtakaḥ procyate yathā
 
 *yasya*—whose; *kṣaṇa*—a moment; *viyogena*—by separation; *lokaḥ*—all the universes; *hi*—certainly; *apriya-darśanaḥ*—everything appears unfavorable; *ukthena*—by life; *rahitaḥ*—being devoid of; *hi*—certainly; *eṣaḥ*—all these bodies; *mṛtakaḥ*—dead bodies; *procyate*—are designated; *yathā*—as it were.

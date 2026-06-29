@@ -1,9 +1,9 @@
 ### CC Antya 10.43
 
-> সেইকালে মহাপ্রভু ভক্তগণ-সঙ্গে ।
+> সেইকালে মহাপ্রভু ভক্তগণ-সঙ্গে ।\
 > নরেন্দ্রে আইলা দেখিতে জলকেলি-রঙ্গে ॥৪৩॥
 
-> sei-kāle mahāprabhu bhakta-gaṇa-saṅge
+> sei-kāle mahāprabhu bhakta-gaṇa-saṅge\
 > narendre āilā dekhite jala-keli-raṅge
 
 *sei-kāle*—at that time; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *bhakta-gaṇa-saṅge*—with His devotees; *narendre āilā*—arrived at the Narendra Lake; *dekhite*—to see; *jala-keli*—the pastimes on the water; *raṅge*—in great jubilation.

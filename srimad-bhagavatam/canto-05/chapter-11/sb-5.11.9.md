@@ -1,11 +1,11 @@
 ### SB 5.11.9
 
-> एकादशासन्मनसो हि वृत्तय आकूतयः पञ्च धियोऽभिमानः
+> एकादशासन्मनसो हि वृत्तय आकूतयः पञ्च धियोऽभिमानः\
 > मात्राणि कर्माणि पुरं च तासां वदन्ति हैकादश वीर भूमीः ॥९॥
 
-> ekādaśāsan manaso hi vṛttaya
-> ākūtayaḥ pañca dhiyo 'bhimānaḥ
-> mātrāṇi karmāṇi puraṁ ca tāsāṁ
+> ekādaśāsan manaso hi vṛttaya\
+> ākūtayaḥ pañca dhiyo 'bhimānaḥ\
+> mātrāṇi karmāṇi puraṁ ca tāsāṁ\
 > vadanti haikādaśa vīra bhūmīḥ
 
 *ekādaśa*—eleven; *āsan*—there are; *manasaḥ*—of the mind; *hi*—certainly; *vṛttayaḥ*—activities; *ākūtayaḥ*—senses of action; *pañca*—five; *dhiyaḥ*—senses for gathering knowledge; *abhimānaḥ*—the false ego; *mātrāṇi*—different sense objects; *karmāṇi*—different material activities; *puram ca*—and the body, society, nation, family or place of nativity; *tāsām*—of those functions; *vadanti*—they say; *ha*—oh; *ekādaśa*—eleven; *vīra*—O hero; *bhūmīḥ*—fields of activity.

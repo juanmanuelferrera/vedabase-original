@@ -1,11 +1,11 @@
 ### Bg 9.13
 
-> महात्मानस्तु मां पार्थ दैवीं प्रकृतिमाश्रिताः ।
+> महात्मानस्तु मां पार्थ दैवीं प्रकृतिमाश्रिताः ।\
 > भजन्त्यनन्यमनसो ज्ञात्वा भूतादिमव्ययम् ॥१३॥
 
-> mahātmānas tu māṁ pārtha
-> daivīṁ prakṛtim āśritāḥ
-> bhajanty ananya-manaso
+> mahātmānas tu māṁ pārtha\
+> daivīṁ prakṛtim āśritāḥ\
+> bhajanty ananya-manaso\
 > jñātvā bhūtādim avyayam
 
 *mahātmānaḥ*—the great souls; *tu*—but; *mām*—unto Me; *pārtha*—O son of Pṛthā; *daivīm*—divine; *prakṛtim*—nature; *āśritāḥ*—taken shelter of; *bhajanti*—render service; *ananya-manasaḥ*—without deviation of the mind; *jñātvā*—knowing; *bhūta*—creation; *ādim*—original; *avyayam*—inexhaustible.

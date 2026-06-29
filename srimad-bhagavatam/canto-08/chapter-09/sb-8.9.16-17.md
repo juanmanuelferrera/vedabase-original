@@ -1,18 +1,18 @@
 ### SB 8.9.16-17
 
-> प्राङ्मुखेषूपविष्टेषु सुरेषु दितिजेषु च
-> धूपामोदितशालायांजुष्टायां माल्यदीपकैः ॥१६॥
-> तस्यां नरेन्द्र करभोरुरुशद्दुकूल श्रोणीतटालसगतिर्मदविह्वलाक्षी
+> प्राङ्मुखेषूपविष्टेषु सुरेषु दितिजेषु च\
+> धूपामोदितशालायांजुष्टायां माल्यदीपकैः ॥१६॥\
+> तस्यां नरेन्द्र करभोरुरुशद्दुकूल श्रोणीतटालसगतिर्मदविह्वलाक्षी\
 > सा कूजती कनकनूपुरशिञ्जितेन कुम्भस्तनी कलसपाणिरथाविवेश ॥१७॥
 
-> prāṅ-mukheṣūpaviṣṭeṣu
-> sureṣu ditijeṣu ca
-> dhūpāmodita-śālāyāṁ
+> prāṅ-mukheṣūpaviṣṭeṣu\
+> sureṣu ditijeṣu ca\
+> dhūpāmodita-śālāyāṁ\
 > juṣṭāyāṁ mālya-dīpakaiḥ
 
-> tasyāṁ narendra karabhorur uśad-dukūla-
-> śroṇī-taṭālasa-gatir mada-vihvalākṣī
-> sā kūjatī kanaka-nūpura-śiñjitena
+> tasyāṁ narendra karabhorur uśad-dukūla-\
+> śroṇī-taṭālasa-gatir mada-vihvalākṣī\
+> sā kūjatī kanaka-nūpura-śiñjitena\
 > kumbha-stanī kalasa-pāṇir athāviveśa
 
 *prāk-mukheṣu*—facing east; *upaviṣṭeṣu*—were sitting on their respective seats; *sureṣu*—all the demigods; *diti-jeṣu*—the demons; *ca*—also; *dhūpa-āmodita-śālāyām*—in the arena, which was full of the smoke of incense; *juṣṭāyām*—fully decorated; *mālya-dīpakaiḥ*—with flower garlands and lamps; *tasyām*—in that arena; *nara-indra*—O King; *karabha-ūruḥ*—having thighs resembling the trunks of elephants; *uśat-dukūla*—dressed with a very beautiful sari; *śroṇī-taṭa*—because of big hips; *alasa-gatiḥ*—stepping very slowly; *mada-vihvala-akṣī*—whose eyes were restless because of youthful pride; *sā*—She; *kūjatī*—tinkling; *kanaka-nūpura*—of golden ankle bells; *śiñjitena*—with the sound; *kumbha-stanī*—a woman whose breasts were like water jugs; *kalasa-pāṇiḥ*—holding a waterpot in Her hand; *atha*—thus; *āviveśa*—entered the arena.

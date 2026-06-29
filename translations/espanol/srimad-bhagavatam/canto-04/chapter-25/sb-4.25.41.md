@@ -1,11 +1,11 @@
 ### SB 4.25.41
 
-> का नाम वीर विख्यातं वदान्यं प्रियदर्शनम् ।
+> का नाम वीर विख्यातं वदान्यं प्रियदर्शनम् ।\
 > न वृणीत प्रियं प्राप्तं मादृशी त्वादृशं पतिम् ॥४१॥
 
-> kā nāma vīra vikhyātaṁ
-> vadānyaṁ priya-darśanam
-> na vṛṇīta priyaṁ prāptaṁ
+> kā nāma vīra vikhyātaṁ\
+> vadānyaṁ priya-darśanam\
+> na vṛṇīta priyaṁ prāptaṁ\
 > mādṛśī tvādṛśaṁ patim
 
 *kā*—quién; *nāma*—en verdad; *vīra*—mi querido héroe; *vikhyātam*—famoso; *vadānyam*—magnánimo; *priya-darśanam*—hermoso; *na*—no; *vṛṇīta*—aceptaría; *priyam*—fácilmente; *prāptam*—obtenido; *mādṛśī*—como yo; *tvādṛśam*—como tú; *patim*—esposo.

@@ -1,11 +1,11 @@
 ### SB 3.32.41
 
-> श्रद्दधानाय भक्ताय विनीतायानसूयवे ।
+> श्रद्दधानाय भक्ताय विनीतायानसूयवे ।\
 > भूतेषु कृतमैत्राय शुश्रूषाभिरताय च ॥४१॥
 
-> śraddadhānāya bhaktāya
-> vinītāyānasūyave
-> bhūteṣu kṛta-maitrāya
+> śraddadhānāya bhaktāya\
+> vinītāyānasūyave\
+> bhūteṣu kṛta-maitrāya\
 > śuśrūṣābhiratāya ca
 
 *śraddadhānāya*—faithful; *bhaktāya*—to the devotee; *vinītāya*—respectful; *anasūyave*—nonenvious; *bhūteṣu*—to all living entities; *kṛta-maitrāya*—friendly; *śuśrūṣā*—faithful service; *abhiratāya*—eager to render; *ca*—and.

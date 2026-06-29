@@ -1,11 +1,11 @@
 ### SB 3.6.12
 
-> तस्याग्निरास्यं निर्भिन्नं लोकपालोऽविशत्पदम् ।
+> तस्याग्निरास्यं निर्भिन्नं लोकपालोऽविशत्पदम् ।\
 > वाचा स्वांशेन वक्तव्यं ययासौ प्रतिपद्यते ॥१२॥
 
-> tasyāgnir āsyaṁ nirbhinnaṁ
-> loka-pālo 'viśat padam
-> vācā svāṁśena vaktavyaṁ
+> tasyāgnir āsyaṁ nirbhinnaṁ\
+> loka-pālo 'viśat padam\
+> vācā svāṁśena vaktavyaṁ\
 > yayāsau pratipadyate
 
 *tasya*—Su; *agniḥ*—fuego; *āsyam*—boca; *nirbhinnam*—separado así; *loka-pālaḥ*—los directores de los asuntos materiales; *aviśat*—entraron; *padam*—posiciones respectivas; *vācā*—mediante palabras; *sva-aṁśena*—por la parte propia de uno; *vaktavyam*—discursos; *yayā*—mediante los cuales; *asau*—ellos; *pratipadyate*—expresan.

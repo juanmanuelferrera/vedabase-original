@@ -1,9 +1,9 @@
 ### CC Madhya 6.240
 
-> দণ্ডবৎ করি’ কৈল বহুবিধ স্তুতি ।
+> দণ্ডবৎ করি’ কৈল বহুবিধ স্তুতি ।\
 > দৈন্য করি’ কহে নিজ পূর্বদুর্মতি ॥২৪০॥
 
-> daṇḍavat kari' kaila bahu-vidha stuti
+> daṇḍavat kari' kaila bahu-vidha stuti\
 > dainya kari' kahe nija pūrva-durmati
 
 *daṇḍavat kari'*—after offering obeisances by falling flat on the ground; *kaila*—he did; *bahu-vidha*—various types of; *stuti*—prayers; *dainya kari'*—in great humbleness; *kahe*—describes; *nija*—his personal; *pūrva-durmati*—previous bad disposition.

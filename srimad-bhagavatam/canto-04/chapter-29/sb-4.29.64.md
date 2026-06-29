@@ -1,11 +1,11 @@
 ### SB 4.29.64
 
-> नानुभूतं क्व चानेन देहेनादृष्टमश्रुतम् ।
+> नानुभूतं क्व चानेन देहेनादृष्टमश्रुतम् ।\
 > कदाचिदुपलभ्येत यद्रूपं यादृगात्मनि ॥६४॥
 
-> nānubhūtaṁ kva cānena
-> dehenādṛṣṭam aśrutam
-> kadācid upalabhyeta
+> nānubhūtaṁ kva cānena\
+> dehenādṛṣṭam aśrutam\
+> kadācid upalabhyeta\
 > yad rūpaṁ yādṛg ātmani
 
 *na*—never; *anubhūtam*—experienced; *kva*—at any time; *ca*—also; *anena dehena*—by this body; *adṛṣṭam*—never seen; *aśrutam*—never heard; *kadācit*—sometimes; *upalabhyeta*—may be experienced; *yat*—which; *rūpam*—form; *yādṛk*—whatever kind; *ātmani*—in the mind.

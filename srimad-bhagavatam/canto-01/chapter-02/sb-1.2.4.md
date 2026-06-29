@@ -1,11 +1,11 @@
 ### SB 1.2.4
 
-> नारायणं नमस्कृत्य नरं चैव नरोत्तमम् ।
+> नारायणं नमस्कृत्य नरं चैव नरोत्तमम् ।\
 > देवीं सरस्वतीं व्यासं ततो जयमुदीरयेत् ॥४॥
 
-> nārāyaṇaṁ namaskṛtya
-> naraṁ caiva narottamam
-> devīṁ sarasvatīṁ vyāsaṁ
+> nārāyaṇaṁ namaskṛtya\
+> naraṁ caiva narottamam\
+> devīṁ sarasvatīṁ vyāsaṁ\
 > tato jayam udīrayet
 
 *nārāyaṇam*—the Personality of Godhead; *namaḥ-kṛtya*—after offering respectful obeisances; *naram ca eva*—and Nārāyaṇa Ṛṣi; *nara-uttamam*—the supermost human being; *devīm*—the goddess; *sarasvatīm*—the mistress of learning; *vyāsam*—Vyāsadeva; *tataḥ*—thereafter; *jayam*—all that is meant for conquering; *udīrayet*—be announced.

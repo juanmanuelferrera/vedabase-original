@@ -1,9 +1,9 @@
 ### CC Madhya 1.271
 
-> ঔদ্ধত্য করিতে হৈল সবাকার মন ।
+> ঔদ্ধত্য করিতে হৈল সবাকার মন ।\
 > স্বতন্ত্র হইয়া সবে নাশা’বে ভুবন ॥২৭১॥
 
-> auddhatya karite haila sabākāra mana
+> auddhatya karite haila sabākāra mana\
 > svatantra ha-iyā sabe nāśā 'be bhuvana
 
 *auddhatya*—impudence; *karite*—to do; *haila*—was; *sabākāra*—of all of you; *mana*—the mind; *svatantra*—independent; *ha-iyā*—becoming; *sabe*—all of you; *nāśā 'be*—will spoil; *bhuvana*—the whole world.

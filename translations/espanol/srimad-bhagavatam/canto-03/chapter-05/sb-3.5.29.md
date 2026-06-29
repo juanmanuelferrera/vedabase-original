@@ -1,14 +1,14 @@
 ### SB 3.5.29
 
-> महत्तत्त्वाद्विकुर्वाणादहंतत्त्वं व्यजायत ।
-> कार्यकारणकर्त्रात्मा भूतेन्द्रियमनोमयः ।
+> महत्तत्त्वाद्विकुर्वाणादहंतत्त्वं व्यजायत ।\
+> कार्यकारणकर्त्रात्मा भूतेन्द्रियमनोमयः ।\
 > वैकारिकस्तैजसश्च तामसश्चेत्यहं त्रिधा ॥२९॥
 
-> mahat-tattvād vikurvāṇād
-> ahaṁ-tattvaṁ vyajāyata
-> kārya-kāraṇa-kartrātmā
-> bhūtendriya-mano-mayaḥ
-> vaikārikas taijasaś ca
+> mahat-tattvād vikurvāṇād\
+> ahaṁ-tattvaṁ vyajāyata\
+> kārya-kāraṇa-kartrātmā\
+> bhūtendriya-mano-mayaḥ\
+> vaikārikas taijasaś ca\
 > tāmasaś cety ahaṁ tridhā
 
 *mahat*—la gran; *tattvāt*—de la verdad causal; *vikurvāṇāt*—siendo transformada; *aham*—ego falso; *tattvam*—verdad material; *vyajāyata*—llegó a manifestarse; *kārya*—efectos; *kāraṇa*—causa; *kartṛ*—autor; *ātmā*—alma o fuente; *bhūta*—ingredientes materiales; *indriya*—sentidos; *manaḥ-mayaḥ*—revoloteando en el plano mental; *vaikārikaḥ*—la modalidad de la bondad; *taijasaḥ*—la modalidad de la pasión; *ca*—y; *tāmasaḥ*—la modalidad de la ignorancia; *ca*—y; *iti*—de esa manera; *aham*—ego falso; *tridhā*—tres clases.

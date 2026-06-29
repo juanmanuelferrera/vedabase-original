@@ -1,9 +1,9 @@
 ### CC Madhya 3.114
 
-> কি কহিব রে সখি আজুক আনন্দ ওর ।
+> কি কহিব রে সখি আজুক আনন্দ ওর ।\
 > চিরদিনে মাধব মন্দিরে মোর ।। ১১৪ ।। ধ্রু ।। ॥১১৪॥
 
-> ki kahiba re sakhī ājuka ānanda ora
+> ki kahiba re sakhī ājuka ānanda ora\
 > cira-dine mādhava mandire mora
 
 *ki*—what; *kahiba*—shall I say; *re*—O; *sakhī*—My dear friends; *ājuka*—today; *ānanda*—pleasure; *ora*—the limit; *cira-dine*—after many days; *mādhava*—Lord Kṛṣṇa; *mandire*—in the temple; *mora*—My.

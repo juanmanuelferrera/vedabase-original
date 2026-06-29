@@ -1,13 +1,13 @@
 ### SB 3.22.2
 
-> मनुरुवाच
-> ब्रह्मासृजत्स्वमुखतो युष्मानात्मपरीप्सया ।
+> मनुरुवाच\
+> ब्रह्मासृजत्स्वमुखतो युष्मानात्मपरीप्सया ।\
 > छन्दोमयस्तपोविद्या योगयुक्तानलम्पटान् ॥२॥
 
-> manur uvāca
-> brahmāsṛjat sva-mukhato
-> yuṣmān ātma-parīpsayā
-> chandomayas tapo-vidyā-
+> manur uvāca\
+> brahmāsṛjat sva-mukhato\
+> yuṣmān ātma-parīpsayā\
+> chandomayas tapo-vidyā-\
 > yoga-yuktān alampaṭān
 
 *manuḥ*—Manu; *uvāca*—dijo; *brahmā*—el Señor Brahmā; *asṛjat*—creó; *sva-mukhataḥ*—de su rostro; *yuṣmān*—a ustedes (*brāhmaṇas*); *ātma-parīpsayā*—para protegerse expandiendo; *chandaḥ-mayaḥ*—la forma de los *Vedas*; *tapaḥ-vidyā-yoga-yuktān*—llenos de austeridad, conocimiento y poder místico; *alampaṭān*—con aversión por la complacencia de los sentidos.

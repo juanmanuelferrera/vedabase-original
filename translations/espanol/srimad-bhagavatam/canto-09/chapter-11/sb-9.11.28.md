@@ -1,11 +1,11 @@
 ### SB 9.11.28
 
-> पूगैः सवृन्तै रम्भाभिः पट्टिकाभिः सुवाससाम
+> पूगैः सवृन्तै रम्भाभिः पट्टिकाभिः सुवाससाम\
 > आदर्शैरंशुकैः स्रग्भिः कृतकौतुकतोरणाम ॥२८॥
 
-> pūgaiḥ savṛntai rambhābhiḥ
-> paṭṭikābhiḥ suvāsasām
-> ādarśair aṁśukaiḥ sragbhiḥ
+> pūgaiḥ savṛntai rambhābhiḥ\
+> paṭṭikābhiḥ suvāsasām\
+> ādarśair aṁśukaiḥ sragbhiḥ\
 > kṛta-kautuka-toraṇām
 
 *pūgaiḥ*—con beteles; *sa-vṛntaiḥ*—con ramos de flores y frutas; *rambhābhiḥ*—con bananos; *paṭṭikābhiḥ*—con banderas; *su-vāsasām*—adornados con telas llenas de colorido; *ādarśaiḥ*—con espejos; *aṁśukaiḥ*—con telas; *sragbhiḥ*—con guirnaldas de flores; *kṛta-kautuka*—que construidos de forma auspiciosa; *toraṇām*—con portales de recepción.

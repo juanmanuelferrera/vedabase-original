@@ -1,9 +1,9 @@
 ### CC Madhya 10.186
 
-> প্রভুকে লঞা করা’ন ঈশ্বর দরশন ৷
+> প্রভুকে লঞা করা’ন ঈশ্বর দরশন ৷\
 > আগে লোক-ভিড় সব করি’ নিবারণ ৷৷ ১৮৬ ৷৷ ॥১৮৬॥
 
-> prabhuke lañā karā'na īśvara daraśana
+> prabhuke lañā karā'na īśvara daraśana\
 > āge loka-bhiḍa saba kari' nivāraṇa
 
 *prabhuke*—a Śrī Caitanya Mahāprabhu; *lañā*—llevándolo; *karā'na*—ayuda en; *īśvara daraśana*—la visita al Señor Jagannātha; *āge*—por delante; *loka-bhiḍa*—multitudes de personas; *saba*—toda; *kari' nivāraṇa*—conteniendo.

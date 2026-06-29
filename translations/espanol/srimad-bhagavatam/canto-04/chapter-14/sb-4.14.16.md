@@ -1,11 +1,11 @@
 ### SB 4.14.16
 
-> स ते मा विनशेद्वीर प्रजानां क्षेमलक्षणः ।
+> स ते मा विनशेद्वीर प्रजानां क्षेमलक्षणः ।\
 > यस्मिन्विनष्टे नृपतिरैश्वर्यादवरोहति ॥१६॥
 
-> sa te mā vinaśed vīra
-> prajānāṁ kṣema-lakṣaṇaḥ
-> yasmin vinaṣṭe nṛpatir
+> sa te mā vinaśed vīra\
+> prajānāṁ kṣema-lakṣaṇaḥ\
+> yasmin vinaṣṭe nṛpatir\
 > aiśvaryād avarohati
 
 *saḥ*—esa vida espiritual; *te*—por ti; *mā*—no; *vinaśet*—que se eche a perder; *vīra*—¡oh, héroe!; *prajānām*—de la gente; *kṣema-lakṣaṇaḥ*—la causa de la prosperidad; *yasmin*—que; *vinaṣṭe*—ser arruinada; *nṛpatiḥ*—el rey; *aiśvaryāt*—de la opulencia; *avarohati*—cae.

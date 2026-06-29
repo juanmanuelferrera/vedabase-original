@@ -1,11 +1,11 @@
 ### SB 3.16.15
 
-> ते योगमाययारब्ध पारमेष्ठ्यमहोदयम् ।
+> ते योगमाययारब्ध पारमेष्ठ्यमहोदयम् ।\
 > प्रोचुः प्राञ्जलयो विप्राः प्रहृष्टाः क्षुभितत्वचः ॥१५॥
 
-> te yoga-māyayārabdha-
-> pārameṣṭhya-mahodayam
-> procuḥ prāñjalayo viprāḥ
+> te yoga-māyayārabdha-\
+> pārameṣṭhya-mahodayam\
+> procuḥ prāñjalayo viprāḥ\
 > prahṛṣṭāḥ kṣubhita-tvacaḥ
 
 *te*—those; *yoga-māyayā*—through His internal potency; *ārabdha*—had been revealed; *pārameṣṭhya*—of the Supreme Personality of Godhead; *mahā-udayam*—multiglories; *procuḥ*—spoke; *prāñjalayaḥ*—with folded hands; *viprāḥ*—the four *brāhmaṇas*; *prahṛṣṭāḥ*—extremely delighted; *kṣubhita-tvacaḥ*—hair standing on end.

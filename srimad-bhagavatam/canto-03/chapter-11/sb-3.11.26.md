@@ -1,11 +1,11 @@
 ### SB 3.11.26
 
-> एष दैनन्दिनः सर्गो ब्राह्मस्त्रैलोक्यवर्तनः ।
+> एष दैनन्दिनः सर्गो ब्राह्मस्त्रैलोक्यवर्तनः ।\
 > तिर्यङ्नृपितृदेवानां सम्भवो यत्र कर्मभिः ॥२६॥
 
-> eṣa dainan-dinaḥ sargo
-> brāhmas trailokya-vartanaḥ
-> tiryaṅ-nṛ-pitṛ-devānāṁ
+> eṣa dainan-dinaḥ sargo\
+> brāhmas trailokya-vartanaḥ\
+> tiryaṅ-nṛ-pitṛ-devānāṁ\
 > sambhavo yatra karmabhiḥ
 
 *eṣaḥ*—all these creations; *dainam-dinaḥ*—daily; *sargaḥ*—creation; *brāhmaḥ*—in terms of the days of Brahmā; *trailokya-vartanaḥ*—revolution of the three worlds; *tiryak*—animals lower than the human beings; *nṛ*—human beings; *pitṛ*—of the Pitā planets; *devānām*—of the demigods; *sambhavaḥ*—appearance; *yatra*—wherein; *karmabhiḥ*—in the cycle of fruitive activities.

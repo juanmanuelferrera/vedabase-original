@@ -1,11 +1,11 @@
 ### SB 5.18.12
 
-> यस्यास्ति भक्तिर्भगवत्यकिञ्चना सर्वैर्गुणैस्तत्र समासते सुराः
+> यस्यास्ति भक्तिर्भगवत्यकिञ्चना सर्वैर्गुणैस्तत्र समासते सुराः\
 > हरावभक्तस्य कुतो महद्गुणा मनोरथेनासति धावतो बहिः ॥१२॥
 
-> yasyāsti bhaktir bhagavaty akiñcanā
-> sarvair guṇais tatra samāsate surāḥ
-> harāv abhaktasya kuto mahad-guṇā
+> yasyāsti bhaktir bhagavaty akiñcanā\
+> sarvair guṇais tatra samāsate surāḥ\
+> harāv abhaktasya kuto mahad-guṇā\
 > manorathenāsati dhāvato bahiḥ
 
 *yasya*—of whom; *asti*—there is; *bhaktiḥ*—devotional service; *bhagavati*—to the Supreme Personality of Godhead; *akiñcanā*—without any motive; *sarvaiḥ*—with all; *guṇaiḥ*—good qualities; *tatra*—there (in that person); *samāsate*—reside; *surāḥ*—all the demigods; *harau*—unto the Supreme Personality of Godhead; *abhaktasya*—of a person who is not devoted; *kutaḥ*—where; *mahat-guṇāḥ*—good qualities; *manorathena*—by mental speculation; *asati*—in the temporary material world; *dhāvataḥ*—who is running; *bahiḥ*—outside.

@@ -1,13 +1,13 @@
 ### CC Madhya 2.45
 
-> ন প্রেমগন্ধোঽস্তি দরাপি মে হরৌ
-> ক্রন্দামি সৌভাগ্যভরং প্রকাশিতুম্ ।
-> বংশীবিলাস্যাননলোকনং বিনা
+> ন প্রেমগন্ধোঽস্তি দরাপি মে হরৌ\
+> ক্রন্দামি সৌভাগ্যভরং প্রকাশিতুম্ ।\
+> বংশীবিলাস্যাননলোকনং বিনা\
 > বিভর্মি যৎ প্রাণপতঙ্গকান্ বৃথা ॥৪৫॥
 
-> na prema-gandho 'sti darāpi me harau
-> krandāmi saubhāgya-bharaṁ prakāśitum
-> vaṁśī-vilāsy-ānana-lokanaṁ vinā
+> na prema-gandho 'sti darāpi me harau\
+> krandāmi saubhāgya-bharaṁ prakāśitum\
+> vaṁśī-vilāsy-ānana-lokanaṁ vinā\
 > bibharmi yat prāṇa-pataṅgakān vṛthā
 
 *na*—never; *prema-gandhaḥ*—a scent of love of Godhead; *asti*—there is; *darā api*—even in a slight proportion; *me*—My; *harau*—in the Supreme Personality of Godhead; *krandāmi*—I cry; *saubhāgya-bharam*—the volume of My fortune; *prakāśitum*—to exhibit; *vaṁśī-vilāsi*—of the great flute-player; *ānana*—at the face; *lokanam*—looking; *vinā*—without; *bibharmi*—I carry; *yat*—because; *prāṇa-pataṅgakān*—My insectlike life; *vṛthā*—with no purpose.

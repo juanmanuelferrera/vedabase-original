@@ -1,11 +1,11 @@
 ### SB 4.24.66
 
-> प्रमत्तमुच्चैरिति कृत्यचिन्तया प्रवृद्धलोभं विषयेषु लालसम् ।
+> प्रमत्तमुच्चैरिति कृत्यचिन्तया प्रवृद्धलोभं विषयेषु लालसम् ।\
 > त्वमप्रमत्तः सहसाभिपद्यसे क्षुल्लेलिहानोऽहिरिवाखुमन्तकः ॥६६॥
 
-> pramattam uccair iti kṛtya-cintayā
-> pravṛddha-lobhaṁ viṣayeṣu lālasam
-> tvam apramattaḥ sahasābhipadyase
+> pramattam uccair iti kṛtya-cintayā\
+> pravṛddha-lobhaṁ viṣayeṣu lālasam\
+> tvam apramattaḥ sahasābhipadyase\
 > kṣul-lelihāno 'hir ivākhum antakaḥ
 
 *pramattam*—personas que están locas; *uccaiḥ*—en voz alta; *iti*—de esa forma; *kṛtya*—hacerse; *cintayā*—con ese deseo; *pravṛddha*—muy avanzada; *lobham*—codicia; *viṣayeṣu*—en disfrute material; *lālasam*—con ese deseo; *tvam*—Tu Señoría; *apramattaḥ*—por completo en el plano trascendental; *sahasā*—de súbito; *abhipadyase*—las caza; *kṣut*—hambrienta; *lelihānaḥ*—por la codiciosa lengua; *ahiḥ*—serpiente; *iva*—como; *ākhum*—ratón; *antakaḥ*—destructor.

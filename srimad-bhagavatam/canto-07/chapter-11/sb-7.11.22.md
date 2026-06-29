@@ -1,11 +1,11 @@
 ### SB 7.11.22
 
-> शौर्यं वीर्यं धृतिस्तेजस्त्यागश्चात्मजयः क्षमा
+> शौर्यं वीर्यं धृतिस्तेजस्त्यागश्चात्मजयः क्षमा\
 > ब्रह्मण्यता प्रसादश्च सत्यं च क्षत्रलक्षणम ॥२२॥
 
-> śauryaṁ vīryaṁ dhṛtis tejas
-> tyāgaś cātmajayaḥ kṣamā
-> brahmaṇyatā prasādaś ca
+> śauryaṁ vīryaṁ dhṛtis tejas\
+> tyāgaś cātmajayaḥ kṣamā\
+> brahmaṇyatā prasādaś ca\
 > satyaṁ ca kṣatra-lakṣaṇam
 
 *śauryam*—power in battle; *vīryam*—being unconquerable; *dhṛtiḥ*—patience (even in reverses, a *kṣatriya* is very grave); *tejaḥ*—ability to defeat others; *tyāgaḥ*—giving charity; *ca*—and; *ātma-jayaḥ*—not being overwhelmed by bodily necessities; *kṣamā*—forgiveness; *brahmaṇyatā*—faithfulness to the brahminical principles; *prasādaḥ*—jolliness in any condition of life; *ca*—and; *satyam ca*—and truthfulness; *kṣatra-lakṣaṇam*—these are the symptoms of a *kṣatriya.*

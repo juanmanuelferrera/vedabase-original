@@ -1,9 +1,9 @@
 ### CC Madhya 8.187
 
-> রায় কহে, — কৃষ্ণ হয় ‘ধীর-ললিত’ ৷
+> রায় কহে, — কৃষ্ণ হয় ‘ধীর-ললিত’ ৷\
 > নিরন্তর কামক্রীড়া — যাঁহার চরিত ৷৷ ১৮৭ ৷৷ ॥১৮৭॥
 
-> rāya kahe,--kṛṣṇa haya 'dhīra-lalita'
+> rāya kahe,--kṛṣṇa haya 'dhīra-lalita'\
 > nirantara kāma-krīḍā--yāṅhāra carita
 
 *rāya kahe*—Rāmānanda Rāya respondió; *kṛṣṇa*—el Señor Kṛṣṇa; *haya*—es; *dhīra-lalita*—una persona capaz de mantener siempre subyugada a su amada mediante distintas cualidades; *nirantara*—constantemente; *kāma-krīḍā*—pasatiempos de disfrute sexual; *yāṅhāra*—de quien; *carita*—el carácter.

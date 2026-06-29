@@ -1,11 +1,11 @@
 ### SB 4.26.23
 
-> सा त्वं मुखं सुदति सुभ्र्वनुरागभार व्रीडाविलम्बविलसद्धसितावलोकम् ।
+> सा त्वं मुखं सुदति सुभ्र्वनुरागभार व्रीडाविलम्बविलसद्धसितावलोकम् ।\
 > नीलालकालिभिरुपस्कृतमुन्नसं नः स्वानां प्रदर्शय मनस्विनि वल्गुवाक्यम् ॥२३॥
 
-> sā tvaṁ mukhaṁ sudati subhrv anurāga-bhāra-
-> vrīḍā-vilamba-vilasad-dhasitāvalokam
-> nīlālakālibhir upaskṛtam unnasaṁ naḥ
+> sā tvaṁ mukhaṁ sudati subhrv anurāga-bhāra-\
+> vrīḍā-vilamba-vilasad-dhasitāvalokam\
+> nīlālakālibhir upaskṛtam unnasaṁ naḥ\
 > svānāṁ pradarśaya manasvini valgu-vākyam
 
 *sā*—esa (tú, mi esposa); *tvam*—tú; *mukham*—tu cara; *su-dati*—de hermosos dientes; *su-bhru*—de hermosas cejas; *anurāga*—apego; *bhāra*—cargado con; *vrīḍā*—timidez femenina; *vilamba*—colgante; *vilasat*—brillante; *hasita*—sonreír; *avalokam*—con miradas; *nīla*—azulado; *alaka*—con cabello; *alibhiḥ*—de abeja; *upaskṛtam*—con esa hermosura; *unnasam*—de preciosa nariz; *naḥ*—a mí; *svānām*—que soy tuyo; *pradarśaya*—por favor, muéstrame; *manasvini*—¡oh, dama pensativa!; *valgu-vākyam*—con dulces palabras.

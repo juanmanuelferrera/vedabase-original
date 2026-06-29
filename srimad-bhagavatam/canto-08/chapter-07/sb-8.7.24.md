@@ -1,11 +1,11 @@
 ### SB 8.7.24
 
-> गुणमय्या स्वशक्त्यास्य सर्गस्थित्यप्ययान्विभो
+> गुणमय्या स्वशक्त्यास्य सर्गस्थित्यप्ययान्विभो\
 > धत्से यदा स्वदृग्भूमन्ब्रह्मविष्णुशिवाभिधाम ॥२४॥
 
-> tvaṁ brahma paramaṁ guhyaṁ
-> sad-asad-bhāva-bhāvanam
-> nānā-śaktibhir ābhātas
+> tvaṁ brahma paramaṁ guhyaṁ\
+> sad-asad-bhāva-bhāvanam\
+> nānā-śaktibhir ābhātas\
 > tvam ātmā jagad-īśvaraḥ
 
 *tvam*—Your Lordship; *brahma*—impersonal Brahman; *paramam*—supreme; *guhyam*—confidential; *sat-asat-bhāva-bhāvanam*—the cause of varieties of creation, its cause and effect; *nānā-śaktibhiḥ*—with varieties of potencies; *ābhātaḥ*—manifest; *tvam*—you are; *ātmā*—the Supersoul; *jagat-īśvaraḥ*—the Supreme Personality of Godhead.

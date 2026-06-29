@@ -1,13 +1,13 @@
 ### CC Madhya 8.190
 
-> বাচা সূচিতশর্বরীরতিকলা-প্রাগল্ভ্যয়া রাধিকাং
-> ব্রীড়াকুঞ্চিত-লোচনাং বিরচয়ন্নগ্রে সখীনামসৌ ।
-> তদ্বক্ষোরুহচিত্রকেলিমকরীপাণ্ডিত্যপারং গতঃ
+> বাচা সূচিতশর্বরীরতিকলা-প্রাগল্ভ্যয়া রাধিকাং\
+> ব্রীড়াকুঞ্চিত-লোচনাং বিরচয়ন্নগ্রে সখীনামসৌ ।\
+> তদ্বক্ষোরুহচিত্রকেলিমকরীপাণ্ডিত্যপারং গতঃ\
 > কৈশোরং সফলীকরোতি কলয়ন্ কুঞ্জে বিহারং হরিঃ ॥১৯০॥
 
-> vācā sūcita-śarvarī-rati-kalā-prāgalbhyayā rādhikāṁ
-> vrīḍā-kuñcita-locanāṁ viracayann agre sakhīnām asau
-> tad-vakṣoruha-citra-keli-makarī-pāṇḍitya-pāraṁ gataḥ
+> vācā sūcita-śarvarī-rati-kalā-prāgalbhyayā rādhikāṁ\
+> vrīḍā-kuñcita-locanāṁ viracayann agre sakhīnām asau\
+> tad-vakṣoruha-citra-keli-makarī-pāṇḍitya-pāraṁ gataḥ\
 > kaiśoraṁ saphalī-karoti kalayan kuñje vihāraṁ hariḥ
 
 *vācā*—by speech; *sūcita*—revealing; *śarvarī*—of the night; *rati*—in amorous pastimes; *kalā*—of the portion; *prāgalbhyayā*—the importance; *rādhikām*—Śrīmatī Rādhārāṇī; *vrīḍā*—from shame; *kuñcita-locanām*—having Her eyes closed; *viracayan*—making; *agre*—before; *sakhīnām*—Her friends; *asau*—that one; *tat*—of Her; *vakṣaḥ-ruha*—on the breasts; *citra-keli*—with variegated pastimes; *makarī*—in drawing dolphins; *pāṇḍitya*—of cleverness; *pāram*—the limit; *gataḥ*—who reached; *kaiśoram*—adolescence; *sa-phalī-karoti*—makes successful; *kalayan*—performing; *kuñje*—in the bushes; *vihāram*—pastimes; *hariḥ*—the Supreme Personality of Godhead.

@@ -1,11 +1,11 @@
 ### SB 4.24.13
 
-> प्राचीनबर्हिषः पुत्राः शतद्रुत्यां दशाभवन् ।
+> प्राचीनबर्हिषः पुत्राः शतद्रुत्यां दशाभवन् ।\
 > तुल्यनामव्रताः सर्वे धर्मस्नाताः प्रचेतसः ॥१३॥
 
-> prācīnabarhiṣaḥ putrāḥ
-> śatadrutyāṁ daśābhavan
-> tulya-nāma-vratāḥ sarve
+> prācīnabarhiṣaḥ putrāḥ\
+> śatadrutyāṁ daśābhavan\
+> tulya-nāma-vratāḥ sarve\
 > dharma-snātāḥ pracetasaḥ
 
 *prācīnabarhiṣaḥ*—of King Prācīnabarhi; *putrāḥ*—sons; *śatadrutyām*—in the womb of Śatadruti; *daśa*—ten; *abhavan*—became manifest; *tulya*—equally; *nāma*—name; *vratāḥ*—vow; *sarve*—all; *dharma*—religiosity; *snātāḥ*—completely merged in; *pracetasaḥ*—all of them being designated as Pracetās.

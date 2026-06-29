@@ -1,9 +1,9 @@
 ### CC Madhya 16.202
 
-> সেই নৌকা চড়ি’ প্রভু আইলা ‘পানিহাটি’ ।
+> সেই নৌকা চড়ি’ প্রভু আইলা ‘পানিহাটি’ ।\
 > নাবিকেরে পরাইল নিজ-কৃপা-সাটি ॥২০২॥
 
-> sei naukā caḍi' prabhu āilā 'pānihāṭi'
+> sei naukā caḍi' prabhu āilā 'pānihāṭi'\
 > nāvikere parāila nija-kṛpā-sāṭī
 
 *sei naukā caḍi'*—boarding the same boat; *prabhu*—Śrī Caitanya Mahāprabhu; *āilā*—reached; *pānihāṭi*—the place named Pānihāṭi; *nāvikere*—the captain of the boat; *parāila*—He put on; *nija-kṛpā-sāṭī*—His own used cloth as special mercy.

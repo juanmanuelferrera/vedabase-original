@@ -1,9 +1,9 @@
 ### CC Antya 1.48
 
-> ‘রূপ দণ্ডবৎ করে’, — হরিদাস কহিলা ।
+> ‘রূপ দণ্ডবৎ করে’, — হরিদাস কহিলা ।\
 > হরিদাসে মিলি’ প্রভু রূপে আলিঙ্গিলা ॥৪৮॥
 
-> 'rūpa daṇḍavat kare',--haridāsa kahilā
+> 'rūpa daṇḍavat kare',--haridāsa kahilā\
 > haridāse mili' prabhu rūpe āliṅgilā
 
 *rūpa*—Rūpa Gosvāmī; *daṇḍavat kare*—Te ofrece reverencias; *hari-dāsa kahilā*—Haridāsa informó a Śrī Caitanya Mahāprabhu; *hari-dāse mili'*—tras encontrarse con Haridāsa; *prabhu*—Śrī Caitanya Mahāprabhu; *rūpe āliṅgilā*—abrazó a Rūpa Gosvāmī.

@@ -1,9 +1,9 @@
 ### CC Adi 7.68
 
-> সন্ন্যাসী হইয়া কর নর্তন-গায়ন ।
+> সন্ন্যাসী হইয়া কর নর্তন-গায়ন ।\
 > ভাবুক সব সঙ্গে লঞা কর সংকীর্তন ॥৬৮॥
 
-> sannyāsī ha-iyā kara nartana-gāyana
+> sannyāsī ha-iyā kara nartana-gāyana\
 > bhāvuka saba saṅge lañā kara saṅkīrtana
 
 *sannyāsī*—the renounced order of life; *ha-iyā*—accepting; *kara*—You do; *nartana-gāyana*—dancing and chanting; *bhāvuka*—fanatics; *saba*—all; *saṅge*—in Your company; *lañā*—accepting them; *kara*—You do; *saṅkīrtana*—chanting of the holy name of the Lord.

@@ -1,11 +1,11 @@
 ### SB 3.29.5
 
-> लोकस्य मिथ्याभिमतेरचक्षुषश्चिरं प्रसुप्तस्य तमस्यनाश्रये ।
+> लोकस्य मिथ्याभिमतेरचक्षुषश्चिरं प्रसुप्तस्य तमस्यनाश्रये ।\
 > श्रान्तस्य कर्मस्वनुविद्धया धिया त्वमाविरासीः किल योगभास्करः ॥५॥
 
-> lokasya mithyābhimater acakṣuṣaś
-> ciraṁ prasuptasya tamasy anāśraye
-> śrāntasya karmasv anuviddhayā dhiyā
+> lokasya mithyābhimater acakṣuṣaś\
+> ciraṁ prasuptasya tamasy anāśraye\
+> śrāntasya karmasv anuviddhayā dhiyā\
 > tvam āvirāsīḥ kila yoga-bhāskaraḥ
 
 *lokasya*—de las entidades vivientes; *mithyā-abhimateḥ*—bajo la ilusión del ego falso; *acakṣuṣaḥ*—ciegas; *ciram*—durante muchísimo tiempo; *prasuptasya*—durmiendo; *tamasi*—en la oscuridad; *anāśraye*—sin refugio; *śrāntasya*—fatigadas; *karmasu*—a las actividades materiales; *anuviddhayā*—apegada; *dhiyā*—con la inteligencia; *tvam*—Tú; *āvirāsīḥ*—has aparecido; *kila*—en verdad; *yoga*—del sistema de *yoga*; *bhāskaraḥ*—el sol.

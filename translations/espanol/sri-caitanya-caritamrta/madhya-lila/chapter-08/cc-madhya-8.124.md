@@ -1,9 +1,9 @@
 ### CC Madhya 8.124
 
-> প্রভু কহে, — মায়াবাদী আমি ত’ সন্ন্যাসী ৷
+> প্রভু কহে, — মায়াবাদী আমি ত’ সন্ন্যাসী ৷\
 > ভক্তিতত্ত্ব নাহি জানি, মায়াবাদে ভাসি ৷৷ ১২৪ ৷৷ ॥১২৪॥
 
-> prabhu kahe,--māyāvādī āmi ta' sannyāsī
+> prabhu kahe,--māyāvādī āmi ta' sannyāsī\
 > bhakti-tattva nāhi jāni, māyāvāde bhāsi
 
 *prabhu kahe*—el Señor dijo; *māyāvādī*—seguidor de la filosofía māyāvāda; *āmi*—Yo; *ta'*—ciertamente; *sannyāsī*—una persona en la orden de renuncia; *bhakti-tattva*—las verdades del amoroso servicio trascendental; *nāhi*—no; *jāni*—conozco; *māyāvāde*—en la filosofía del impersonalismo; *bhāsi*—floto.

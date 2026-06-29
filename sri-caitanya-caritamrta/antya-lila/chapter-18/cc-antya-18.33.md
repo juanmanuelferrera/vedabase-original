@@ -1,9 +1,9 @@
 ### CC Antya 18.33
 
-> ইহাঁ স্বরূপাদিগণ প্রভু না দেখিয়া ।
+> ইহাঁ স্বরূপাদিগণ প্রভু না দেখিয়া ।\
 > ‘কাহাঁ গেলা প্রভু?’ কহে চমকিত হঞা ॥৩৩॥
 
-> ihāṅ svarūpādi-gaṇa prabhu nā dekhiyā
+> ihāṅ svarūpādi-gaṇa prabhu nā dekhiyā\
 > 'kāhāṅ gelā prabhu?' kahe camakita hañā
 
 *ihāṅ*—here; *svarūpa-ādi-gaṇa*—the devotees headed by Svarūpa Dāmodara; *prabhu*—Śrī Caitanya Mahāprabhu; *nā dekhiyā*—not seeing; *kāhāṅ*—where; *gelā*—has gone; *prabhu*—Śrī Caitanya Mahāprabhu; *kahe*—say; *camakita hañā*—being astonished.

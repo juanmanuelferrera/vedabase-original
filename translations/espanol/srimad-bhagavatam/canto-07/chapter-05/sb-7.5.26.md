@@ -1,11 +1,11 @@
 ### SB 7.5.26
 
-> ब्रह्मबन्धो किमेतत्ते विपक्षं श्रयतासता
+> ब्रह्मबन्धो किमेतत्ते विपक्षं श्रयतासता\
 > असारं ग्राहितो बालो मामनादृत्य दुर्मते ॥२६॥
 
-> brahma-bandho kim etat te
-> vipakṣaṁ śrayatāsatā
-> asāraṁ grāhito bālo
+> brahma-bandho kim etat te\
+> vipakṣaṁ śrayatāsatā\
+> asāraṁ grāhito bālo\
 > mām anādṛtya durmate
 
 *brahma-bandho*—¡oh, hijo inepto de un *brāhmaṇa*!; *kim etat*—qué es esto; *te*—por ti; *vipakṣam*—el bando de mis enemigos; *śrayatā*—refugiándote en; *asatā*—más que malvado; *asāram*—estupidez; *grāhitaḥ*—enseñado; *bālaḥ*—el niño; *mām*—a mí; *anādṛtya*—sin preocuparte de; *durmate*—¡oh, necio maestro!.

@@ -1,11 +1,11 @@
 ### SB 8.7.11
 
-> सुरासुरेन्द्रैर्भुजवीर्यवेपितं परिभ्रमन्तं गिरिमङ्ग पृष्ठतः
+> सुरासुरेन्द्रैर्भुजवीर्यवेपितं परिभ्रमन्तं गिरिमङ्ग पृष्ठतः\
 > बिभ्रत्तदावर्तनमादिकच्छपो मेनेऽङ्गकण्डूयनमप्रमेयः ॥११॥
 
-> tathāsurān āviśad āsureṇa
-> rūpeṇa teṣāṁ bala-vīryam īrayan
-> uddīpayan deva-gaṇāṁś ca viṣṇur
+> tathāsurān āviśad āsureṇa\
+> rūpeṇa teṣāṁ bala-vīryam īrayan\
+> uddīpayan deva-gaṇāṁś ca viṣṇur\
 > daivena nāgendram abodha-rūpaḥ
 
 *tathā*—a continuación; *asurān*—en los demonios; *āviśat*—entró; *āsureṇa*—por la cualidad de la pasión; *rūpeṇa*—en esa forma; *teṣām*—de ellos; *bala-vīryam*—fuerza y energía; *īrayan*—aumentar; *uddīpayan*—animar; *deva-gaṇān*—a los semidioses; *ca*—también; *viṣṇuḥ*—el Señor Viṣṇu; *daivena*—por el aspecto de la bondad; *nāga-indram*—en el rey de las serpientes, Vāsuki; *abodha-rūpaḥ*—por la cualidad de la ignorancia.

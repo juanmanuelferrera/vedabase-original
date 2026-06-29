@@ -1,13 +1,13 @@
 ### SB 7.13.1
 
-> श्रीनारद उवाच
-> कल्पस्त्वेवं परिव्रज्य देहमात्रावशेषितः
+> श्रीनारद उवाच\
+> कल्पस्त्वेवं परिव्रज्य देहमात्रावशेषितः\
 > ग्रामैकरात्रविधिना निरपेक्षश्चरेन्महीम ॥१॥
 
-> śrī-nārada uvāca
-> kalpas tv evaṁ parivrajya
-> deha-mātrāvaśeṣitaḥ
-> grāmaika-rātra-vidhinā
+> śrī-nārada uvāca\
+> kalpas tv evaṁ parivrajya\
+> deha-mātrāvaśeṣitaḥ\
+> grāmaika-rātra-vidhinā\
 > nirapekṣaś caren mahīm
 
 *śrī-nāradaḥ uvāca*—Śrī Nārada Muni dijo; *kalpaḥ*—la persona capacitada para someterse a las austeridades de *sannyāsa*, la orden de vida de renuncia, o para dedicarse al estudio del conocimiento trascendental; *tu*—pero; *evam*—de este modo (como antes se explicó); *parivrajya*—comprendiendo perfectamente su identidad espiritual, y viajando así de un lugar a otro; *deha-mātra*—manteniendo el cuerpo solamente; *avaśeṣitaḥ*—por último; *grāma*—en una aldea; *eka*—una sola; *rātra*—de pasar una noche; *vidhinā*—en el proceso; *nirapekṣaḥ*—sin depender de nada material; *caret*—debe ir de un lugar a otro; *mahīm*—sobre la Tierra.

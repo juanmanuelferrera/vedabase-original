@@ -1,11 +1,11 @@
 ### SB 3.14.47
 
-> यत्प्रसादादिदं विश्वं प्रसीदति यदात्मकम् ।
+> यत्प्रसादादिदं विश्वं प्रसीदति यदात्मकम् ।\
 > स स्वदृग्भगवान्यस्य तोष्यतेऽनन्यया दृशा ॥४७॥
 
-> yat-prasādād idaṁ viśvaṁ
-> prasīdati yad-ātmakam
-> sa sva-dṛg bhagavān yasya
+> yat-prasādād idaṁ viśvaṁ\
+> prasīdati yad-ātmakam\
+> sa sva-dṛg bhagavān yasya\
 > toṣyate 'nanyayā dṛśā
 
 *yat*—por cuya; *prasādāt*—misericordia de; *idam*—este; *viśvam*—universo; *prasīdati*—se vuelve feliz; *yat*—cuya; *ātmakam*—por Su omnipotencia; *saḥ*—Él; *sva-dṛk*—cuidado especial por Sus devotos; *bhagavān*—la Suprema Personalidad de Dios; *yasya*—cuyo; *toṣyate*—Se satisface; *ananyayā*—sin desviación; *dṛśā*—mediante la inteligencia.

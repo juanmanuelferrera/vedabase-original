@@ -1,11 +1,11 @@
 ### SB 4.7.11
 
-> भवस्तवाय कृतधीर्नाशक्नोदनुरागतः ।
+> भवस्तवाय कृतधीर्नाशक्नोदनुरागतः ।\
 > औत्कण्ठ्याद्बाष्पकलया सम्परेतां सुतां स्मरन् ॥११॥
 
-> bhava-stavāya kṛta-dhīr
-> nāśaknod anurāgataḥ
-> autkaṇṭhyād bāṣpa-kalayā
+> bhava-stavāya kṛta-dhīr\
+> nāśaknod anurāgataḥ\
+> autkaṇṭhyād bāṣpa-kalayā\
 > samparetāṁ sutāṁ smaran
 
 *bhava-stavāya*—for praying to Lord Śiva; *kṛta-dhīḥ*—although decided; *na*—never; *aśaknot*—was able; *anurāgataḥ*—by feeling; *autkaṇṭhyāt*—because of eagerness; *bāṣpa-kalayā*—with tears in the eyes; *samparetām*—dead; *sutām*—daughter; *smaran*—remembering.

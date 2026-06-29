@@ -1,13 +1,13 @@
 ### SB 3.9.15
 
-> यस्यावतारगुणकर्मविडम्बनानि
-> नामानि येऽसुविगमे विवशा गृणन्ति ।
-> तेऽनैकजन्मशमलं सहसैव हित्वा
+> यस्यावतारगुणकर्मविडम्बनानि\
+> नामानि येऽसुविगमे विवशा गृणन्ति ।\
+> तेऽनैकजन्मशमलं सहसैव हित्वा\
 > संयान्त्यपावृतामृतं तमजं प्रपद्ये ॥१५॥
 
-> yasyāvatāra-guṇa-karma-viḍambanāni
-> nāmāni ye 'su-vigame vivaśā gṛṇanti
-> te 'naika-janma-śamalaṁ sahasaiva hitvā
+> yasyāvatāra-guṇa-karma-viḍambanāni\
+> nāmāni ye 'su-vigame vivaśā gṛṇanti\
+> te 'naika-janma-śamalaṁ sahasaiva hitvā\
 > saṁyānty apāvṛtāmṛtaṁ tam ajaṁ prapadye
 
 *yasya*—whose; *avatāra*—incarnations; *guṇa*—transcendental qualities; *karma*—activities; *viḍambanāni*—all mysterious; *nāmāni*—transcendental names; *ye*—those; *asu-vigame*—while quitting this life; *vivaśāḥ*—automatically; *gṛṇanti*—invoke; *te*—they; *anaika*—many; *janma*—births; *śamalam*—accumulated sins; *sahasā*—immediately; *eva*—certainly; *hitvā*—giving up; *saṁyānti*—obtain; *apāvṛta*—open; *amṛtam*—immortality; *tam*—Him; *ajam*—the unborn; *prapadye*—I take shelter.

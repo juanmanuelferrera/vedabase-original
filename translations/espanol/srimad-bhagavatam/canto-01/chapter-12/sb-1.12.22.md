@@ -1,11 +1,11 @@
 ### SB 1.12.22
 
-> मृगेन्द्र इव विक्रान्तो निषेव्यो हिमवानिव ।
+> मृगेन्द्र इव विक्रान्तो निषेव्यो हिमवानिव ।\
 > तितिक्षुर्वसुधेवासौ सहिष्णुः पितराविव ॥२२॥
 
-> mṛgendra iva vikrānto
-> niṣevyo himavān iva
-> titikṣur vasudhevāsau
+> mṛgendra iva vikrānto\
+> niṣevyo himavān iva\
+> titikṣur vasudhevāsau\
 > sahiṣṇuḥ pitarāv iva
 
 *mṛgendraḥ*—el león; *iva*—como; *vikrāntaḥ*—poderoso; *niṣevyaḥ*—digno de uno refugiarse; *himavān*—los montes Himālaya; *iva*—como; *titikṣuḥ*—condescendencia; *vasudhā iva*—como la Tierra; *asau*—el niño; *sahiṣṇuḥ*—tolerante; *pitarau*—padres; *iva*—como.

@@ -1,9 +1,9 @@
 ### CC Madhya 13.124
 
-> পূর্বে যৈছে কুরুক্ষেত্রে সব গোপীগণ  ।
+> পূর্বে যৈছে কুরুক্ষেত্রে সব গোপীগণ  ।\
 > কৃষ্ণের দর্শন পাঞা আনন্দিত মন ॥১২৪॥
 
-> pūrve yaiche kurukṣetre saba gopī-gaṇa
+> pūrve yaiche kurukṣetre saba gopī-gaṇa\
 > kṛṣṇera darśana pāñā ānandita mana
 
 *pūrve yaiche*—como anteriormente; *kuru-kṣetre*—en el lugar sagrado conocido como Kurukṣetra; *saba gopī-gaṇa*—todas las gopīs de Vṛndāvana; *kṛṣṇera*—del Señor Kṛṣṇa; *darśana*—encuentro; *pāñā*—al obtener; *ānandita mana*—muy complacidas en la mente.

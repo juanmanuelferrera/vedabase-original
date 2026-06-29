@@ -1,9 +1,9 @@
 ### CC Antya 3.204
 
-> সভা-সহিতে হরিদাসের পড়িলা চরণে  ।
+> সভা-সহিতে হরিদাসের পড়িলা চরণে  ।\
 > হরিদাস হাসি’ কহে মধুর-বচনে ॥২০৪॥
 
-> sabhā-sahite haridāsera paḍilā caraṇe
+> sabhā-sahite haridāsera paḍilā caraṇe\
 > haridāsa hāsi' kahe madhura-vacane
 
 *sabhā-sahite*—con todos los miembros de la asamblea; *haridāsera*—de Haridāsa Ṭhākura; *paḍilā caraṇe*—cayeron a los pies de loto; *haridāsa*—Haridāsa Ṭhākura; *hāsi'*—sonriendo; *kahe*—dijo; *madhura-vacane*—con voz dulce.

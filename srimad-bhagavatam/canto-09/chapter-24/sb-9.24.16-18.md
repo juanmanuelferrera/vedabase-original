@@ -1,25 +1,25 @@
 ### SB 9.24.16-18
 
-> आसङ्गः सारमेयश्च मृदुरो मृदुविद्गिरिः
-> धर्मवृद्धः सुकर्मा च क्षेत्रोपेक्षोऽरिमर्दनः ॥१६॥
-> शत्रुघ्नो गन्धमादश्च प्रतिबाहुश्च द्वादश
-> तेषां स्वसा सुचाराख्या द्वावक्रूरसुतावपि ॥१७॥
-> देववानुपदेवश्च तथा चित्ररथात्मजाः
+> आसङ्गः सारमेयश्च मृदुरो मृदुविद्गिरिः\
+> धर्मवृद्धः सुकर्मा च क्षेत्रोपेक्षोऽरिमर्दनः ॥१६॥\
+> शत्रुघ्नो गन्धमादश्च प्रतिबाहुश्च द्वादश\
+> तेषां स्वसा सुचाराख्या द्वावक्रूरसुतावपि ॥१७॥\
+> देववानुपदेवश्च तथा चित्ररथात्मजाः\
 > पृथुर्विदूरथाद्याश्च बहवो वृष्णिनन्दनाः ॥१८॥
 
-> āsaṅgaḥ sārameyaś ca
-> mṛduro mṛduvid giriḥ
-> dharmavṛddhaḥ sukarmā ca
+> āsaṅgaḥ sārameyaś ca\
+> mṛduro mṛduvid giriḥ\
+> dharmavṛddhaḥ sukarmā ca\
 > kṣetropekṣo 'rimardanaḥ
 
-> śatrughno gandhamādaś ca
-> pratibāhuś ca dvādaśa
-> teṣāṁ svasā sucārākhyā
+> śatrughno gandhamādaś ca\
+> pratibāhuś ca dvādaśa\
+> teṣāṁ svasā sucārākhyā\
 > dvāv akrūra-sutāv api
 
-> devavān upadevaś ca
-> tathā citrarathātmajāḥ
-> pṛthur vidūrathādyāś ca
+> devavān upadevaś ca\
+> tathā citrarathātmajāḥ\
+> pṛthur vidūrathādyāś ca\
 > bahavo vṛṣṇi-nandanāḥ
 
 *āsaṅgaḥ*—Āsaṅga; *sārameyaḥ*—Sārameya; *ca*—also; *mṛduraḥ*—Mṛdura; *mṛduvit*—Mṛduvit; *giriḥ*—Giri; *dharmavṛddhaḥ*—Dharmavṛddha; *sukarmā*—Sukarmā; *ca*—also; *kṣetropekṣaḥ*—Kṣetropekṣa; *arimardanaḥ*—Arimardana; *śatrughnaḥ*—Śatrughna; *gandhamādaḥ*—Gandhamāda; *ca*—and; *pratibāhuḥ*—Pratibāhu; *ca*—and; *dvādaśa*—twelve; *teṣām*—of them; *svasā*—sister; *sucārā*—Sucārā; *ākhyā*—well known; *dvau*—two; *akrūra*—of Akrūra; *sutau*—sons; *api*—also; *devavān*—Devavān; *upadevaḥ ca*—and Upadeva; *tathā*—thereafter; *citraratha-ātmajāḥ*—the sons of Citraratha; *pṛthuḥ vidūratha*—Pṛthu and Vidūratha; *ādyāḥ*—beginning with; *ca*—also; *bahavaḥ*—many; *vṛṣṇi-nandanāḥ*—the sons of Vṛṣṇi.

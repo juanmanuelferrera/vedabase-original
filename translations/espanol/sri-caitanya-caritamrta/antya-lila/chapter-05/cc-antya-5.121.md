@@ -1,9 +1,9 @@
 ### CC Antya 5.121
 
-> আর এক করিয়াছ পরম ‘প্রমাদ’ !
+> আর এক করিয়াছ পরম ‘প্রমাদ’ !\
 > দেহ-দেহি-ভেদ ঈশ্বরে কৈলে ‘অপরাধ’ ! ॥ ১২১ ॥
 
-> āra eka kariyācha parama 'pramāda'!
+> āra eka kariyācha parama 'pramāda'!\
 > deha-dehi-bheda īśvare kaile 'aparādha'!
 
 *āra eka*—otra más; *kariyācha*—has cometido; *parama*—la suprema; *pramāda*—ilusión; *deha-dehi-bheda*—la distinción entre el cuerpo y el alma; *īśvare*—en Su Señoría; *kaile*—has cometido; *aparādha*—una ofensa.

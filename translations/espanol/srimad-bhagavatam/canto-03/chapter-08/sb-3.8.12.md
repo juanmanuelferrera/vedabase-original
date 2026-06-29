@@ -1,11 +1,11 @@
 ### SB 3.8.12
 
-> चतुर्युगानां च सहस्रमप्सु स्वपन्स्वयोदीरितया स्वशक्त्या ।
+> चतुर्युगानां च सहस्रमप्सु स्वपन्स्वयोदीरितया स्वशक्त्या ।\
 > कालाख्ययासादितकर्मतन्त्रो लोकानपीतान्ददृशे स्वदेहे ॥१२॥
 
-> catur-yugānāṁ ca sahasram apsu
-> svapan svayodīritayā sva-śaktyā
-> kālākhyayāsādita-karma-tantro
+> catur-yugānāṁ ca sahasram apsu\
+> svapan svayodīritayā sva-śaktyā\
+> kālākhyayāsādita-karma-tantro\
 > lokān apītān dadṛśe sva-dehe
 
 *catuḥ*—cuatro; *yugānām*—de los milenios; *ca*—también; *sahasram*—mil; *apsu*—en el agua; *svapan*—soñando mientras duerme; *svayā*—con Su potencia interna; *udīritayā*—para desarrollo adicional; *sva-śaktyā*—mediante Su propia energía; *kāla-ākhyayā*—de nombre *kāla*; *āsādita*—ocupado en esa forma; *karma-tantraḥ*—en lo referente a las actividades fruitivas; *lokān*—el conjunto de las entidades vivientes; *apītān*—azulado; *dadṛśe*—lo vio así; *sva-dehe*—en Su propio cuerpo.

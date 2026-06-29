@@ -2,7 +2,7 @@
 
 > অক্রূরের লোক আইসে প্রভুরে দেখিতে ৷ লোক-ভিড়ে স্বচ্ছন্দে নারে ‘কীর্তন’ করিতে ॥৭৯॥
 
-> akrūrera loka āise prabhure dekhite
+> akrūrera loka āise prabhure dekhite\
 > loka-bhiḍe svacchande nāre 'kīrtana' karite
 
 *akrūrera loka*—la gente de Akrūra-tīrtha; *āise*—venía; *prabhure*—a Śrī Caitanya Mahāprabhu; *dekhite*—a ver; *loka-bhiḍe*—debido a tal multitud de personas; *svacchande*—sin perturbación; *nāre*—no podía; *kīrtana karite*—realizar el kīrtana.

@@ -1,9 +1,9 @@
 ### CC Adi 7.93
 
-> এত বলি’ এক শ্লোক শিখাইল মোরে ।
+> এত বলি’ এক শ্লোক শিখাইল মোরে ।\
 > ভাগবতের সার এই — বলে বারে বারে ॥৯৩॥
 
-> eta bali' eka śloka śikhāila more
+> eta bali' eka śloka śikhāila more\
 > bhāgavatera sāra ei--bale vāre vāre
 
 *eta bali'*—diciendo esto; *eka*—un; *śloka*—verso; *śikhāila*—enseñó; *more*—a Mí; *bhāgavatera*—del *Śrīmad-Bhāgavatam*; *sāra*—esencia; *ei*—esta es; *bale*—dijo; *vāre vāre*—una y otra vez.

@@ -1,9 +1,9 @@
 ### CC Madhya 23.57
 
-> ‘রূঢ়’, ‘অধিরূঢ়’ ভাব — কেবল ‘মধুরে’ ।
+> ‘রূঢ়’, ‘অধিরূঢ়’ ভাব — কেবল ‘মধুরে’ ।\
 > মহিষীগণের ‘রূঢ়’, ‘অধিরূঢ়’ গোপিকা-নিকরে ॥৫৭॥
 
-> 'rūḍha', 'adhirūḍha' bhāva—kevala 'madhure'
+> 'rūḍha', 'adhirūḍha' bhāva—kevala 'madhure'\
 > mahiṣī-gaṇera 'rūḍha', 'adhirūḍha' gopikā-nikare
 
 *rūḍha*—advanced; *adhirūḍha*—highly advanced; *bhāva*—ecstasy; *kevala*—only; *madhure*—in the transcendental mellow of conjugal love; *mahiṣī-gaṇera*—of the queens of Dvārakā; *rūḍha*—advanced; *adhirūḍha*—highly advanced; *gopikā-nikare*—among the *gopīs.*

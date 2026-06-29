@@ -1,11 +1,11 @@
 ### SB 7.10.61
 
-> विलोक्य भग्नसङ्कल्पं विमनस्कं वृषध्वजम
+> विलोक्य भग्नसङ्कल्पं विमनस्कं वृषध्वजम\
 > तदायं भगवान्विष्णुस्तत्रोपायमकल्पयत ॥६१॥
 
-> vilokya bhagna-saṅkalpaṁ
-> vimanaskaṁ vṛṣa-dhvajam
-> tadāyaṁ bhagavān viṣṇus
+> vilokya bhagna-saṅkalpaṁ\
+> vimanaskaṁ vṛṣa-dhvajam\
+> tadāyaṁ bhagavān viṣṇus\
 > tatropāyam akalpayat
 
 *vilokya*—al ver; *bhagna-saṅkalpam*—desanimado; *vimanaskam*—sumamente desdichado; *vṛṣa-dhvajam*—al Señor Śiva; *tadā*—en ese momento; *ayam*—este; *bhagavān*—la Suprema Personalidad de Dios; *viṣṇuḥ*—el Señor Viṣṇu; *tatra*—acerca del pozo de néctar; *upāyam*—medios (cómo poner fin a); *akalpayat*—pensó en.

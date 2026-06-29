@@ -1,11 +1,11 @@
 ### SB 1.6.35
 
-> यमादिभिर्योगपथैः कामलोभहतो मुहुः ।
+> यमादिभिर्योगपथैः कामलोभहतो मुहुः ।\
 > मुकुन्दसेवया यद्वत्तथात्माद्धा न शाम्यति ॥३५॥
 
-> yamādibhir yoga-pathaiḥ
-> kāma-lobha-hato muhuḥ
-> mukunda-sevayā yadvat
+> yamādibhir yoga-pathaiḥ\
+> kāma-lobha-hato muhuḥ\
+> mukunda-sevayā yadvat\
 > tathātmāddhā na śāmyati
 
 *yama-ādibhiḥ*—by the process of practicing self-restraint; *yoga-pathaiḥ*—by the system of *yoga* (mystic bodily power to attain the godly stage); *kāma*—desires for sense satisfaction; *lobha*—lust for satisfaction of the senses; *hataḥ*—curbed; *muhuḥ*—always; *mukunda*—the Personality of Godhead; *sevayā*—by the service of; *yadvat*—as it is; *tathā*—like that; *ātmā*—the soul; *addhā*—for all practical purposes; *na*—does not; *śāmyati*—be satisfied.

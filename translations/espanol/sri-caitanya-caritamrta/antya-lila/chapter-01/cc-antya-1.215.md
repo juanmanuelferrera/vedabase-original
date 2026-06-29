@@ -1,9 +1,9 @@
 ### CC Antya 1.215
 
-> শ্রীরূপ প্রভুপদে নীলাচলে রহিলা ।
+> শ্রীরূপ প্রভুপদে নীলাচলে রহিলা ।\
 > দোলযাত্রা প্রভুসঙ্গে আনন্দে দেখিলা ॥২১৫॥
 
-> śrī-rūpa prabhu-pade nīlācale rahilā
+> śrī-rūpa prabhu-pade nīlācale rahilā\
 > dola-yātrā prabhu-saṅge ānande dekhilā
 
 *śrī-rūpa*—Śrīla Rūpa Gosvāmī; *prabhu-pade*—a los pies de Śrī Caitanya Mahāprabhu; *nīlācale*—en Jagannātha Purī; *rahilā*—permaneció; *dola-yātrā*—el festival de Dola-yātrā; *prabhu-saṅge*—con Śrī Caitanya Mahāprabhu; *ānande*—con gran felicidad; *dekhilā*—vio.

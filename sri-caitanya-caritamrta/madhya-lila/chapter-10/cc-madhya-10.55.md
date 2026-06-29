@@ -1,9 +1,9 @@
 ### CC Madhya 10.55
 
-> নিজ-গৃহ-বিত্ত-ভৃত্য-পঞ্চপুত্র-সনে ।
+> নিজ-গৃহ-বিত্ত-ভৃত্য-পঞ্চপুত্র-সনে ।\
 > আত্মা সমর্পিলুঁ আমি তোমার চরণে ॥৫৫॥
 
-> nija-gṛha-vitta-bhṛtya-pañca-putra-sane
+> nija-gṛha-vitta-bhṛtya-pañca-putra-sane\
 > ātmā samarpiluṅ āmi tomāra caraṇe
 
 *nija*—own; *gṛha*—house; *vitta*—wealth; *bhṛtya*—servants; *pañca-putra*—five sons; *sane*—with; *ātmā*—self; *samarpiluṅ*—surrender; *āmi*—I; *tomāra*—Your; *caraṇe*—at the lotus feet.

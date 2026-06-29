@@ -1,11 +1,11 @@
 ### SB 1.8.8
 
-> गन्तुं कृतमतिर्ब्रह्मन्द्वारकां रथमास्थितः ।
+> गन्तुं कृतमतिर्ब्रह्मन्द्वारकां रथमास्थितः ।\
 > उपलेभेऽभिधावन्तीमुत्तरां भयविह्वलाम् ॥८॥
 
-> gantuṁ kṛtamatir brahman
-> dvārakāṁ ratham āsthitaḥ
-> upalebhe 'bhidhāvantīm
+> gantuṁ kṛtamatir brahman\
+> dvārakāṁ ratham āsthitaḥ\
+> upalebhe 'bhidhāvantīm\
 > uttarāṁ bhaya-vihvalām
 
 *gantum*—justo cuando deseaba partir; *kṛtamatiḥ*—habiendo decidido; *brahman*—¡oh, *brāhmaṇa*!; *dvārakām*—hacia Dvārakā; *ratham*—en la cuadriga; *āsthitaḥ*—sentado; *upalebhe*—vio; *abhidhāvantīm*—acercándose apresuradamente; *uttarām*—Uttarā; *bhaya-vihvalām*—teniendo miedo.

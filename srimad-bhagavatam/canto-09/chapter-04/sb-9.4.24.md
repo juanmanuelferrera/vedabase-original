@@ -1,11 +1,11 @@
 ### SB 9.4.24
 
-> स्वर्गो न प्रार्थितो यस्य मनुजैरमरप्रियः
+> स्वर्गो न प्रार्थितो यस्य मनुजैरमरप्रियः\
 > शृण्वद्भिरुपगायद्भिरुत्तमश्लोकचेष्टितम ॥२४॥
 
-> svargo na prārthito yasya
-> manujair amara-priyaḥ
-> śṛṇvadbhir upagāyadbhir
+> svargo na prārthito yasya\
+> manujair amara-priyaḥ\
+> śṛṇvadbhir upagāyadbhir\
 > uttamaśloka-ceṣṭitam
 
 *svargaḥ*—life in the heavenly planets; *na*—not; *prārthitaḥ*—a subject for aspiration; *yasya*—of whom (Ambarīṣa Mahārāja); *manujaiḥ*—by the citizens; *amara-priyaḥ*—very dear even to the demigods; *śṛṇvadbhiḥ*—who were accustomed to hear; *upagāyadbhiḥ*—and accustomed to chant; *uttamaśloka*—of the Supreme Personality of Godhead; *ceṣṭitam*—about the glorious activities.

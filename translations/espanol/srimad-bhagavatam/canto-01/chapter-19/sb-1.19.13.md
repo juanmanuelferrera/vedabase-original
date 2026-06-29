@@ -1,13 +1,13 @@
 ### SB 1.19.13
 
-> राजोवाच
-> अहो वयं धन्यतमा नृपाणां महत्तमानुग्रहणीयशीलाः ।
+> राजोवाच\
+> अहो वयं धन्यतमा नृपाणां महत्तमानुग्रहणीयशीलाः ।\
 > राज्ञां कुलं ब्राह्मणपादशौचाद्दूराद्विसृष्टं बत गर्ह्यकर्म ॥१३॥
 
-> rājovāca
-> aho vayaṁ dhanyatamā nṛpāṇāṁ
-> mahattamānugrahaṇīya-śīlāḥ
-> rājñāṁ kulaṁ brāhmaṇa-pāda-śaucād
+> rājovāca\
+> aho vayaṁ dhanyatamā nṛpāṇāṁ\
+> mahattamānugrahaṇīya-śīlāḥ\
+> rājñāṁ kulaṁ brāhmaṇa-pāda-śaucād\
 > dūrād visṛṣṭaṁ bata garhya-karma
 
 *rājā uvāca*—el afortunado rey dijo; *aho*—¡ah!; *vayam*—nosotros; *dhanya-tamāḥ*—sumamente agradecidos; *nṛpāṇām*—de todos los reyes; *mahat-tama*—de las grandes almas; *anugrahaṇīya-śīlāḥ*—formados para recibir favores; *rājñām*—de las monárquicas; *kulam*—órdenes; *brāhmaṇa-pāda*—pies de los *brāhmaṇas*; *śaucāt*—desecho que queda después de limpiar; *dūrāt*—a distancia; *visṛṣṭam*—siempre dejado fuera; *bata*—debido a; *garhya*—reprochable; *karma*—actividades.

@@ -1,11 +1,11 @@
 ### SB 6.5.40
 
-> नेत्थं पुंसां विरागः स्यात्त्वया केवलिना मृषा
+> नेत्थं पुंसां विरागः स्यात्त्वया केवलिना मृषा\
 > मन्यसे यद्युपशमं स्नेहपाशनिकृन्तनम ॥४०॥
 
-> netthaṁ puṁsāṁ virāgaḥ syāt
-> tvayā kevalinā mṛṣā
-> manyase yady upaśamaṁ
+> netthaṁ puṁsāṁ virāgaḥ syāt\
+> tvayā kevalinā mṛṣā\
+> manyase yady upaśamaṁ\
 > sneha-pāśa-nikṛntanam
 
 *na*—no; *ittham*—de este modo; *puṁsām*—de personas; *virāgaḥ*—renunciación; *syāt*—es posible; *tvayā*—por ti; *kevalinā mṛṣā*—que tienes conocimiento falso; *manyase*—tú crees; *yadi*—si; *upaśamam*—renunciación al disfrute material; *sneha-pāśa*—los nudos del afecto; *nikṛntanam*—cortar.

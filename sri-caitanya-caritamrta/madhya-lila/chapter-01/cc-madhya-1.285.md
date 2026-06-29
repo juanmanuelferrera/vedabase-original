@@ -1,9 +1,9 @@
 ### CC Madhya 1.285
 
-> ব্রহ্মানন্দ-ভারতীর ঘুচাইল চর্মাম্বর ।
+> ব্রহ্মানন্দ-ভারতীর ঘুচাইল চর্মাম্বর ।\
 > এই মত লীলা কৈল ছয় বৎসর ॥২৮৫॥
 
-> brahmānanda-bhāratīra ghucāila carmāmbara
+> brahmānanda-bhāratīra ghucāila carmāmbara\
 > ei mata līlā kaila chaya vatsara
 
 *brahmānanda-bhāratīra*—of Brahmānanda Bhāratī; *ghucāila*—vanquished; *carma-ambara*—dress of skin; *ei mata*—in this way; *līlā*—pastimes; *kaila*—performed; *chayavatsara*—six years.

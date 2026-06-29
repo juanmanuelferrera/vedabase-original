@@ -1,9 +1,9 @@
 ### CC Antya 12.108
 
-> প্রভু কহে, — “সন্ন্যাসীর নাহি তৈলে অধিকার ।
+> প্রভু কহে, — “সন্ন্যাসীর নাহি তৈলে অধিকার ।\
 > তাহাতে সুগন্ধি তৈল, — পরম ধিক্কার ! ॥ ১০৮ ॥
 
-> prabhu kahe,—"sannyāsīra nāhi taile adhikāra
+> prabhu kahe,—"sannyāsīra nāhi taile adhikāra\
 > tāhāte sugandhi taila,—parama dhikkāra!
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu replied; *sannyāsīra*—for a *sannyāsī*; *nāhi*—there is not; *taile*—with oil; *adhikāra*—use; *tāhāte*—over and above this; *su-gandhi taila*—perfumed oil; *parama dhik-kāra*—immediately to be rejected.

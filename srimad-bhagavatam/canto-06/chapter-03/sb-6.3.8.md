@@ -1,11 +1,11 @@
 ### SB 6.3.8
 
-> तस्य ते विहितो दण्डो न लोके वर्ततेऽधुना
+> तस्य ते विहितो दण्डो न लोके वर्ततेऽधुना\
 > चतुर्भिरद्भुतैः सिद्धैराज्ञआ ते विप्रलम्भिता ॥८॥
 
-> tasya te vihito daṇḍo
-> na loke vartate 'dhunā
-> caturbhir adbhutaiḥ siddhair
+> tasya te vihito daṇḍo\
+> na loke vartate 'dhunā\
+> caturbhir adbhutaiḥ siddhair\
 > ājñā te vipralambhitā
 
 *tasya*—of the influence; *te*—of you; *vihitaḥ*—ordained; *daṇḍaḥ*—punishment; *na*—not; *loke*—within this world; *vartate*—exists; *adhunā*—now; *caturbhiḥ*—by four; *adbhutaiḥ*—very wonderful; *siddhaiḥ*—perfected persons; *ājñā*—the order; *te*—your; *vipralambhitā*—surpassed.

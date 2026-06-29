@@ -1,9 +1,9 @@
 ### CC Madhya 25.183
 
-> কাঁথা-করঙ্গিয়া মোর কাঙ্গাল ভক্তগণ ।
+> কাঁথা-করঙ্গিয়া মোর কাঙ্গাল ভক্তগণ ।\
 > বৃন্দাবনে আইলে তাঁদের করিহ পালন ॥১৮৩॥
 
-> kāṅthā-karaṅgiyā mora kāṅgāla bhakta-gaṇa
+> kāṅthā-karaṅgiyā mora kāṅgāla bhakta-gaṇa\
 > vṛndāvane āile tāṅdera kariha pālana
 
 *kāṅthā*—torn quilt; *karaṅgiyā*—a small waterpot; *mora*—My; *kāṅgāla*—poor; *bhakta-gaṇa*—devotees; *vṛndāvane āile*—when they come to Vṛndāvana; *tāṅdera*—of all of them; *kariha pālana*—take care.

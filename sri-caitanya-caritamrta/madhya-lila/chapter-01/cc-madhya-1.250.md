@@ -1,9 +1,9 @@
 ### CC Madhya 1.250
 
-> প্রতিবর্ষ আইসেন তাহাঁ গৌড়ের ভক্তগণ ।
+> প্রতিবর্ষ আইসেন তাহাঁ গৌড়ের ভক্তগণ ।\
 > চারি মাস রহে প্রভুর সঙ্গে সম্মিলন ॥২৫০॥
 
-> prativarṣa āisena tāhāṅ gauḍera bhakta-gaṇa
+> prativarṣa āisena tāhāṅ gauḍera bhakta-gaṇa\
 > cāri māsa rahe prabhura saṅge sammilana
 
 *prativarṣa*—each year; *āisena*—visit; *tāhāṅ*—there; *gauḍera*—of Bengal; *bhakta-gaṇa*—all the devotees; *cāri*—four; *māsa*—months; *rahe*—remain; *prabhura*—Lord Caitanya Mahāprabhu; *saṅge*—with; *sammilana*—meeting.

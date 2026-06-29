@@ -1,11 +1,11 @@
 ### CC Adi 3.39
 
-> দ্বাপরে ভগবান্ শ্যামঃ পীতবাসা নিজায়ুধঃ ।
+> দ্বাপরে ভগবান্ শ্যামঃ পীতবাসা নিজায়ুধঃ ।\
 > শ্রীবৎসাদিভিরঙ্কৈশ্চ লক্ষণৈরুপলক্ষিতঃ ॥৩৯॥
 
-> dvāpare bhagavān śyāmaḥ
-> pīta-vāsā nijāyudhaḥ
-> śrī-vatsādibhir aṅkaiś ca
+> dvāpare bhagavān śyāmaḥ\
+> pīta-vāsā nijāyudhaḥ\
+> śrī-vatsādibhir aṅkaiś ca\
 > lakṣaṇair upalakṣitaḥ
 
 *dvāpare*—en el Dvāpara-yuga; *bhagavān*—la Suprema Personalidad de Dios; *śyāmaḥ*—negruzco; *pīta-vāsāḥ*—vestido con ropajes amarillos; *nija*—propias; *āyudhaḥ*—con armas; *śrīvatsa-ādibhiḥ*—tales como Śrīvatsa; *aṅkaiḥ*—con marcas corporales; *ca*—y; *lakṣaṇaiḥ*—con características externas tales como la joya Kaustubha; *upalakṣitaḥ*—caracterizado.

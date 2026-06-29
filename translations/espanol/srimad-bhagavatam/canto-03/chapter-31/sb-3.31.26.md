@@ -1,11 +1,11 @@
 ### SB 3.31.26
 
-> शायितोऽशुचिपर्यङ्के जन्तुः स्वेदजदूषिते ।
+> शायितोऽशुचिपर्यङ्के जन्तुः स्वेदजदूषिते ।\
 > नेशः कण्डूयनेऽङ्गानामासनोत्थानचेष्टने ॥२६॥
 
-> śāyito 'śuci-paryaṅke
-> jantuḥ svedaja-dūṣite
-> neśaḥ kaṇḍūyane 'ṅgānām
+> śāyito 'śuci-paryaṅke\
+> jantuḥ svedaja-dūṣite\
+> neśaḥ kaṇḍūyane 'ṅgānām\
 > āsanotthāna-ceṣṭane
 
 *śāyitaḥ*—acostado; *aśuci-paryaṅke*—en un lecho inmundo; *jantuḥ*—el niño; *sveda-ja*—con criaturas nacidas del sudor; *dūṣite*—infestado; *na īśaḥ*—incapaz de; *kaṇḍūyane*—rascarse; *aṅgānām*—sus miembros; *āsana*—sentarse; *utthāna*—levantarse; *ceṣṭane*—o moverse.

@@ -1,11 +1,11 @@
 ### SB 3.2.34
 
-> शरच्छशिकरैर्मृष्टं मानयन्रजनीमुखम् ।
+> शरच्छशिकरैर्मृष्टं मानयन्रजनीमुखम् ।\
 > गायन्कलपदं रेमे स्त्रीणां मण्डलमण्डनः ॥३४॥
 
-> śarac-chaśi-karair mṛṣṭaṁ
-> mānayan rajanī-mukham
-> gāyan kala-padaṁ reme
+> śarac-chaśi-karair mṛṣṭaṁ\
+> mānayan rajanī-mukham\
+> gāyan kala-padaṁ reme\
 > strīṇāṁ maṇḍala-maṇḍanaḥ
 
 *śarat*—autumn; *śaśi*—of the moon; *karaiḥ*—by the shining; *mṛṣṭam*—brightened; *mānayan*—thinking so; *rajanī-mukham*—the face of the night; *gāyan*—singing; *kala-padam*—pleasing songs; *reme*—enjoyed; *strīṇām*—of the women; *maṇḍala-maṇḍanaḥ*—as the central beauty of the assembly of women.

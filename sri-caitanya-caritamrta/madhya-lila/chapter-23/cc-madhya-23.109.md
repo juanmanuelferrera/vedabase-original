@@ -1,11 +1,11 @@
 ### CC Madhya 23.109
 
-> অনপেক্ষঃ শুচির্দক্ষ উদাসীনো গতব্যথঃ ।
+> অনপেক্ষঃ শুচির্দক্ষ উদাসীনো গতব্যথঃ ।\
 > সর্বারম্ভপরিত্যাগী যো মে ভক্তঃ স মে প্রিয়ঃ ॥১০৯॥
 
-> anapekṣaḥ śucir dakṣa
-> udāsīno gata-vyathaḥ
-> sarvārambha-parityāgī
+> anapekṣaḥ śucir dakṣa\
+> udāsīno gata-vyathaḥ\
+> sarvārambha-parityāgī\
 > yo me bhaktaḥ sa me priyaḥ
 
 *anapekṣaḥ*—indifferent; *śuciḥ*—clean; *dakṣaḥ*—expert in executing devotional service; *udāsīnaḥ*—without affection for anything material; *gata-vyathaḥ*—liberated from all material distress; *sarva-ārambha*—all kinds of endeavor; *parityāgī*—completely rejecting; *yaḥ*—anyone who; *me*—My; *bhaktaḥ*—devotee; *saḥ*—he; *me priyaḥ*—very dear to Me.

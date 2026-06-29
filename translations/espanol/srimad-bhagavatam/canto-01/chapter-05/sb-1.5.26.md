@@ -1,11 +1,11 @@
 ### SB 1.5.26
 
-> तत्रान्वहं कृष्णकथाः प्रगायतामनुग्रहेणाशृणवं मनोहराः ।
+> तत्रान्वहं कृष्णकथाः प्रगायतामनुग्रहेणाशृणवं मनोहराः ।\
 > ताः श्रद्धया मेऽनुपदं विशृण्वतः प्रियश्रवस्यङ्ग ममाभवद्रुचिः ॥२६॥
 
-> tatrānvahaṁ kṛṣṇa-kathāḥ pragāyatām
-> anugraheṇāśṛṇavaṁ manoharāḥ
-> tāḥ śraddhayā me 'nupadaṁ viśṛṇvataḥ
+> tatrānvahaṁ kṛṣṇa-kathāḥ pragāyatām\
+> anugraheṇāśṛṇavaṁ manoharāḥ\
+> tāḥ śraddhayā me 'nupadaṁ viśṛṇvataḥ\
 > priyaśravasy aṅga mamābhavad ruciḥ
 
 *tatra*—en seguida; *anu*—cada día; *aham*—yo; *kṛṣṇa-kathāḥ*—narración acerca de las actividades del Señor Kṛṣṇa; *pragāyatām*—describiendo; *anugraheṇa*—por misericordia sin causa; *aśṛṇavam*—prestando oídos; *manaḥ-harāḥ*—atractivo; *tāḥ*—esos; *śraddhayā*—respetuosamente; *me*—a mí; *anupadam*—cada paso; *viśṛṇvataḥ*—oyendo atentamente; *priyaśravasi*—de la Personalidad de Dios; *aṅga*—¡oh, Vyāsadeva!; *mama*—mío; *abhavat*—se volvió; *ruciḥ*—gusto.

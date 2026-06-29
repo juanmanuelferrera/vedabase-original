@@ -1,11 +1,11 @@
 ### SB 8.11.22
 
-> शताभ्यां मातलिं पाको रथं सावयवं पृथक
+> शताभ्यां मातलिं पाको रथं सावयवं पृथक\
 > सकृत्सन्धानमोक्षेण तदद्भुतमभूद्रणे ॥२२॥
 
-> śatābhyāṁ mātaliṁ pāko
-> rathaṁ sāvayavaṁ pṛthak
-> sakṛt sandhāna-mokṣeṇa
+> śatābhyāṁ mātaliṁ pāko\
+> rathaṁ sāvayavaṁ pṛthak\
+> sakṛt sandhāna-mokṣeṇa\
 > tad adbhutam abhūd raṇe
 
 *śatābhyām*—with two hundred arrows; *mātalim*—unto the chariot driver Mātali; *pākaḥ*—the demon named Pāka; *ratham*—the chariot; *sa-avayavam*—with all paraphernalia; *pṛthak*—separately; *sakṛt*—once, at one time; *sandhāna*—by yoking the arrows to the bow; *mokṣeṇa*—and releasing; *tat*—such an action; *adbhutam*—wonderful; *abhūt*—so became; *raṇe*—on the battlefield.

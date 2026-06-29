@@ -1,9 +1,9 @@
 ### CC Adi 7.84
 
-> কৃষ্ণবিষয়ক প্রেমা — পরম পুরুষার্থ ।
+> কৃষ্ণবিষয়ক প্রেমা — পরম পুরুষার্থ ।\
 > যার আগে তৃণতুল্য চারি পুরুষার্থ ॥৮৪॥
 
-> kṛṣṇa-viṣayaka premā--parama puruṣārtha
+> kṛṣṇa-viṣayaka premā--parama puruṣārtha\
 > yāra āge tṛṇa-tulya cāri puruṣārtha
 
 *kṛṣṇa-viṣayaka*—referente a Kṛṣṇa; *premā*—amor; *parama*—la más elevada; *puruṣa-artha*—meta de la vida; *yāra*—cuyo; *āge*—ante; *tṛṇa-tulya*—como la hierba en la calle; *cāri*—cuatro; *puruṣa-artha*—metas.

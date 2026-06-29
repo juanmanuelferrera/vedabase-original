@@ -1,11 +1,11 @@
 ### SB 4.28.6
 
-> कन्योपगूढो नष्टश्रीः कृपणो विषयात्मकः ।
+> कन्योपगूढो नष्टश्रीः कृपणो विषयात्मकः ।\
 > नष्टप्रज्ञो हृतैश्वर्यो गन्धर्वयवनैर्बलात् ॥६॥
 
-> kanyopagūḍho naṣṭa-śrīḥ
-> kṛpaṇo viṣayātmakaḥ
-> naṣṭa-prajño hṛtaiśvaryo
+> kanyopagūḍho naṣṭa-śrīḥ\
+> kṛpaṇo viṣayātmakaḥ\
+> naṣṭa-prajño hṛtaiśvaryo\
 > gandharva-yavanair balāt
 
 *kanyā*—by the daughter of Time; *upagūḍhaḥ*—being embraced; *naṣṭa-śrīḥ*—bereft of all beauty; *kṛpaṇaḥ*—miser; *viṣaya-ātmakaḥ*—addicted to sense gratification; *naṣṭa-prajñaḥ*—bereft of intelligence; *hṛta-aiśvaryaḥ*—bereft of opulence; *gandharva*—by the Gandharvas; *yavanaiḥ*—and by the Yavanas; *balāt*—by force.

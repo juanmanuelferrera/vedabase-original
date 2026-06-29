@@ -1,9 +1,9 @@
 ### CC Antya 2.15
 
-> এইমত আবেশে তারিল ত্রিভুবন ।
+> এইমত আবেশে তারিল ত্রিভুবন ।\
 > গৌড়ে যৈছে আবেশ, করি দিগ্ দরশন ॥১৫॥
 
-> ei-mata āveśe tārila tribhuvana
+> ei-mata āveśe tārila tribhuvana\
 > gauḍe yaiche āveśa, kari dig daraśana
 
 *ei-mata*—in this way; *āveśe*—by empowering; *tārila tri-bhuvana*—delivered the entire three worlds; *gauḍe*—in Bengal; *yaiche*—how; *āveśa*—empowering; *kari dik daraśana*—I shall describe in brief.

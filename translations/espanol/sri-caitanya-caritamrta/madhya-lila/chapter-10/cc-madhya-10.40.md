@@ -1,9 +1,9 @@
 ### CC Madhya 10.40
 
-> tṛṣita cātaka yaiche kare hāhākāra
+> tṛṣita cātaka yaiche kare hāhākāra\
 > taiche ei saba,-sabe kara aṅgīkāra
 
-> tṛṣita cātaka yaiche kare hāhākāra
+> tṛṣita cātaka yaiche kare hāhākāra\
 > taiche ei saba,—sabe kara aṅgīkāra
 
 *tṛṣita*—sediento; *cātaka*—el pájaro cātaka; *yaiche*—tal como; *kare*—hace; *hāhā-kāra*—vibración de decepción; *taiche*—de manera similar; *ei saba*—todos estos; *sabe*—a todos ellos; *kara aṅgīkāra*—acepta bondadosamente.

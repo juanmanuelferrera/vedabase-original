@@ -1,9 +1,9 @@
 ### SB 5.6.1
 
-> राजोवाच
+> राजोवाच\
 > न नूनं भगव आत्मारामाणां योगसमीरितज्ञआनावभर्जितकर्मबीजानामैश्वर्याणि पुनःक्लेशदानि भवितुमर्हन्ति यदृच्छयोपगतानि ॥१॥
 
-> rājovāca
+> rājovāca\
 > na nūnaṁ bhagava ātmārāmāṇāṁ yoga-samīrita-jñānāvabharjita-karma-bījānām aiśvaryāṇi punaḥ kleśadāni bhavitum arhanti yadṛc-chayopagatāni.
 
 *rājā uvāca*—el rey Parīkṣit preguntó; *na*—no; *nūnam*—en verdad; *bhagavaḥ*—¡oh, poderosísimo Śukadeva Gosvāmī!; *ātmārāmāṇām*—de los devotos puros simplemente dedicados al servicio devocional; *yoga-samīrita*—alcanzados mediante la práctica del *yoga*; *jñāna*—por el conocimiento; *avabharjita*—quemadas; *karma-bījānām*—de aquellos cuyas semillas de actividades fruitivas; *aiśvaryāṇi*—los poderes místicos; *punaḥ*—de nuevo; *kleśadāni*—fuentes de aflicción; *bhavitum*—convertirse; *arhanti*—pueden; *yadṛcchayā*—automáticamente; *upagatāni*—obtenidos.

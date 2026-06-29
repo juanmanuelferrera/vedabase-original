@@ -1,13 +1,13 @@
 ### SB 1.4.11
 
-> नमन्ति यत्पादनिकेतमात्मनः
-> शिवाय हानीय धनानि शत्रवः ।
-> कथं स वीरः श्रियमङ्ग दुस्त्यजां
+> नमन्ति यत्पादनिकेतमात्मनः\
+> शिवाय हानीय धनानि शत्रवः ।\
+> कथं स वीरः श्रियमङ्ग दुस्त्यजां\
 > युवैषतोत्स्रष्टुमहो सहासुभिः ॥११॥
 
-> namanti yat-pāda-niketam ātmanaḥ
-> śivāya hānīya dhanāni śatravaḥ
-> kathaṁ sa vīraḥ śriyam aṅga dustyajāṁ
+> namanti yat-pāda-niketam ātmanaḥ\
+> śivāya hānīya dhanāni śatravaḥ\
+> kathaṁ sa vīraḥ śriyam aṅga dustyajāṁ\
 > yuvaiṣatotsraṣṭum aho sahāsubhiḥ
 
 *namanti*—postrarse; *yat-pāda*—cuyos pies; *niketam*—bajo; *ātmanaḥ*—propio; *śivāya*—bienestar; *hānīya*—solía provocar; *dhanāni*—riqueza; *śatravaḥ*—enemigos; *katham*—por qué razón; *saḥ*—él; *vīraḥ*—el caballeroso; *śriyam*—opulencias; *aṅga*—¡oh!; *dustyajām*—insuperable; *yuvā*—en plena juventud; *aiṣata*—deseó; *utsraṣṭum*—dejar; *aho*—exclamación; *saha*—con; *asubhiḥ*—vida.

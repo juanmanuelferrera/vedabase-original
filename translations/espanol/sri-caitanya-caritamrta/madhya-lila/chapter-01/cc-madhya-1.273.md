@@ -1,9 +1,9 @@
 ### CC Madhya 1.273
 
-> জয় জয় মহাপ্রভু — ব্রজেন্দ্রকুমার ।
+> জয় জয় মহাপ্রভু — ব্রজেন্দ্রকুমার ।\
 > জগৎ তারিতে প্রভু, তোমার অবতার ॥২৭৩॥
 
-> jaya jaya mahāprabhu--vrajendra-kumāra
+> jaya jaya mahāprabhu--vrajendra-kumāra\
 > jagat tārite prabhu, tomāra avatāra
 
 *jaya jaya mahāprabhu*—todas las glorias al Señor Caitanya Mahāprabhu; *vrajendra-kumāra*—originalmente el Señor Kṛṣṇa, el hijo de Mahārāja Nanda; *jagat*—el mundo entero; *tārite*—para liberar; *prabhu*—el Señor; *tomāra*—Tu; *avatāra*—encarnación.

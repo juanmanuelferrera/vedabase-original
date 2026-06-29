@@ -1,9 +1,9 @@
 ### CC Antya 6.188
 
-> বার দিনে চলি’ গেলা শ্রীপুরুষোত্তম ।
+> বার দিনে চলি’ গেলা শ্রীপুরুষোত্তম ।\
 > পথে তিনদিন মাত্র করিলা ভোজন ॥১৮৮॥
 
-> bāra dine cali' gelā śrī-puruṣottama
+> bāra dine cali' gelā śrī-puruṣottama\
 > pathe tina-dina mātra karilā bhojana
 
 *bāra dine*—durante doce días; *cali'*—viajando; *gelā*—llegó; *śrī-puruṣottama*—Jagannātha Purī, o Nīlācala, el lugar de Puruṣottama; *pathe*—en el camino; *tina-dina*—durante tres días; *mātra*—solo; *karilā bhojana*—comió.

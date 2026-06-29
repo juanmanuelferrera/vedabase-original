@@ -1,11 +1,11 @@
 ### SB 3.13.3
 
-> चरितं तस्य राजर्षेरादिराजस्य सत्तम ।
+> चरितं तस्य राजर्षेरादिराजस्य सत्तम ।\
 > ब्रूहि मे श्रद्दधानाय विष्वक्सेनाश्रयो ह्यसौ ॥३॥
 
-> caritaṁ tasya rājarṣer
-> ādi-rājasya sattama
-> brūhi me śraddadhānāya
+> caritaṁ tasya rājarṣer\
+> ādi-rājasya sattama\
+> brūhi me śraddadhānāya\
 > viṣvaksenāśrayo hy asau
 
 *caritam*—character; *tasya*—his; *rājarṣeḥ*—of the saintly king; *ādi-rājasya*—of the original king; *sattama*—O most pious one; *brūhi*—kindly speak; *me*—unto me; *śraddadhānāya*—unto one eager to receive; *viṣvaksena*—of the Personality of Godhead; *āśrayaḥ*—one who has taken shelter; *hi*—certainly; *asau*—that king.

@@ -1,11 +1,11 @@
 ### CC Madhya 20.138
 
-> ভক্ত্যাহমেকয়া গ্রাহ্যঃ শ্রদ্ধয়াত্মা প্রিয়ঃ সতাম্ ।
+> ভক্ত্যাহমেকয়া গ্রাহ্যঃ শ্রদ্ধয়াত্মা প্রিয়ঃ সতাম্ ।\
 > ভক্তিঃ পুনাতি মন্নিষ্ঠা শ্বপাকানপি সম্ভবাৎ ॥১৩৮॥
 
-> bhaktyāham ekayā grāhyaḥ
-> śraddhayātmā priyaḥ satām
-> bhaktiḥ punāti man-niṣṭhā
+> bhaktyāham ekayā grāhyaḥ\
+> śraddhayātmā priyaḥ satām\
+> bhaktiḥ punāti man-niṣṭhā\
 > śva-pākān api sambhavāt
 
 *bhaktyā*—by devotional service; *aham*—I, the Supreme Personality of Godhead; *ekayā*—unflinching; *grāhyaḥ*—obtainable; *śraddhayā*—by faith; *ātmā*—the most dear; *priyaḥ*—to be served; *satām*—by the devotees; *bhaktiḥ*—the devotional service; *punāti*—purifies; *mat-niṣṭhā*—fixed only on Me; *śva-pākān*—the lowest of human beings, who are accustomed to eat dogs; *api*—certainly; *sambhavāt*—from all faults due to birth and other circumstances.

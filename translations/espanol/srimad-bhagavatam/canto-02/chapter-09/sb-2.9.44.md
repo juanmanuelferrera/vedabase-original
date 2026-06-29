@@ -1,11 +1,11 @@
 ### SB 2.9.44
 
-> तस्मा इदं भागवतं पुराणं दशलक्षणम् ।
+> तस्मा इदं भागवतं पुराणं दशलक्षणम् ।\
 > प्रोक्तं भगवता प्राह प्रीतः पुत्राय भूतकृत् ॥४४॥
 
-> tasmā idaṁ bhāgavataṁ
-> purāṇaṁ daśa-lakṣaṇam
-> proktaṁ bhagavatā prāha
+> tasmā idaṁ bhāgavataṁ\
+> purāṇaṁ daśa-lakṣaṇam\
+> proktaṁ bhagavatā prāha\
 > prītaḥ putrāya bhūta-kṛt
 
 *tasmai*—luego; *idam*—este; *bhāgavatam*—las glorias del Señor, o la ciencia del Señor; *purāṇam*—suplemento védico; *daśa-lakṣaṇam*—diez características; *proktam*—descrito; *bhagavatā*—por la Personalidad de Dios; *prāha*—dijo; *prītaḥ*—con satisfacción; *putrāya*—al hijo; *bhūta-kṛt*—el creador del universo.

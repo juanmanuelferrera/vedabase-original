@@ -1,11 +1,11 @@
 ### Bg 2.66
 
-> नास्ति बुद्धिरयुक्तस्य न चायुक्तस्य भावना ।
+> नास्ति बुद्धिरयुक्तस्य न चायुक्तस्य भावना ।\
 > न चाभावयतः शान्तिरशान्तस्य कुतः सुखम् ॥६६॥
 
-> nāsti buddhir ayuktasya
-> na cāyuktasya bhāvanā
-> na cābhāvayataḥ śāntir
+> nāsti buddhir ayuktasya\
+> na cāyuktasya bhāvanā\
+> na cābhāvayataḥ śāntir\
 > aśāntasya kutaḥ sukham
 
 *na asti*—no puede haber; *buddhiḥ*—inteligencia trascendental; *ayuktasya*—de aquel que no está conectado (con la de conciencia de Kṛṣṇa); *na*—tampoco; *ca*—y; *ayuktasya*—de aquel que está desprovisto de conciencia de Kṛṣṇa; *bhāvanā*—la mente fija en la felicidad; *na*—tampoco; *ca*—y; *abhāvayataḥ*—aquel que no está fijo; *śāntiḥ*—paz; *aśāntasya*—del que no tiene paz; *kutaḥ*—dónde hay; *sukham*—felicidad.

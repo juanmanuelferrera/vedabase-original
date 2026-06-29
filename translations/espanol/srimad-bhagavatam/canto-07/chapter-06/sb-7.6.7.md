@@ -1,11 +1,11 @@
 ### SB 7.6.7
 
-> मुग्धस्य बाल्ये कैशोरे क्रीडतो याति विंशतिः
+> मुग्धस्य बाल्ये कैशोरे क्रीडतो याति विंशतिः\
 > जरया ग्रस्तदेहस्य यात्यकल्पस्य विंशतिः ॥७॥
 
-> mugdhasya bālye kaiśore
-> krīḍato yāti viṁśatiḥ
-> jarayā grasta-dehasya
+> mugdhasya bālye kaiśore\
+> krīḍato yāti viṁśatiḥ\
+> jarayā grasta-dehasya\
 > yāty akalpasya viṁśatiḥ
 
 *mugdhasya*—de una persona confundida o que no posee conocimiento perfecto; *bālye*—en la infancia; *kaiśore*—en la adolescencia; *krīḍataḥ*—jugando; *yāti*—pasa; *viṁśatiḥ*—veinte años; *jarayā*—por la invalidez; *grasta-dehasya*—de una persona dominada; *yāti*—pasa; *akalpasya*—sin determinación, incapaz ni de realizar actividades materiales; *viṁśatiḥ*—otros veinte años.

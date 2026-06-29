@@ -1,11 +1,11 @@
 ### SB 8.17.24
 
-> अदितेर्धिष्ठितं गर्भं भगवन्तं सनातनम
+> अदितेर्धिष्ठितं गर्भं भगवन्तं सनातनम\
 > हिरण्यगर्भो विज्ञआय समीडे गुह्यनामभिः ॥२४॥
 
-> aditer dhiṣṭhitaṁ garbhaṁ
-> bhagavantaṁ sanātanam
-> hiraṇyagarbho vijñāya
+> aditer dhiṣṭhitaṁ garbhaṁ\
+> bhagavantaṁ sanātanam\
+> hiraṇyagarbho vijñāya\
 > samīḍe guhya-nāmabhiḥ
 
 *aditeḥ*—into the womb of Aditi; *dhiṣṭhitam*—being established; *garbham*—pregnancy; *bhagavantam*—unto the Supreme Personality of Godhead; *sanātanam*—who is eternal; *hiraṇyagarbhaḥ*—Lord Brahmā; *vijñāya*—knowing this; *samīḍe*—offered prayers; *guhya-nāmabhiḥ*—with transcendental names.

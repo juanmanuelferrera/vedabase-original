@@ -1,9 +1,9 @@
 ### CC Antya 13.88
 
-> এত বলি’ লেউটি’ প্রভু গেলা নিজ-স্থানে ।
+> এত বলি’ লেউটি’ প্রভু গেলা নিজ-স্থানে ।\
 > শুনি’ মহা-ভয় হইল স্বরূপাদি-মনে ॥৮৮॥
 
-> eta bali' leuṭi' prabhu gelā nija-sthāne
+> eta bali' leuṭi' prabhu gelā nija-sthāne\
 > śuni' mahā-bhaya ha-ila svarūpādi-mane
 
 *eta bali'*—saying this; *leuṭi'*—returning; *prabhu*—Śrī Caitanya Mahāprabhu; *gelā*—went; *nija-sthāne*—to His own place; *śuni'*—hearing; *mahā-bhaya*—great fear; *ha-ila*—there was; *svarūpa-ādi-mane*—in the minds of Svarūpa Dāmodara and other attendants.

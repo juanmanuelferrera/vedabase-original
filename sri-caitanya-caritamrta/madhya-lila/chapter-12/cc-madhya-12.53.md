@@ -1,9 +1,9 @@
 ### CC Madhya 12.53
 
-> প্রভু কহে, — পূর্ণ যৈছে দুগ্ধের কলস  ।
+> প্রভু কহে, — পূর্ণ যৈছে দুগ্ধের কলস  ।\
 > সুরাবিন্দু-পাতে কেহ না করে পরশ ॥৫৩॥
 
-> prabhu kahe,-pūrṇa yaiche dugdhera kalasa
+> prabhu kahe,-pūrṇa yaiche dugdhera kalasa\
 > surā-bindu-pāte keha nā kare paraśa
 
 *prabhukahe*—the Lord replied; *pūrṇa*—completely filled; *yaiche*—just as; *dugdhera*—of milk; *kalasa*—container; *surā-bindu-pāte*—with simply a drop of liquor; *keha*—anyone; *nā kare*—does not; *paraśa*—touch.

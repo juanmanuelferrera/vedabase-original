@@ -1,9 +1,9 @@
 ### CC Adi 15.30
 
-> শচীর ইঙ্গিতে সম্বন্ধ করিল ঘটন ।
+> শচীর ইঙ্গিতে সম্বন্ধ করিল ঘটন ।\
 > লক্ষ্মীকে বিবাহ কৈল শচীর নন্দন ॥৩০॥
 
-> śacīra iṅgite sambandha karila ghaṭana
+> śacīra iṅgite sambandha karila ghaṭana\
 > lakṣmīke vivāha kaila śacīra nandana
 
 *śacīra iṅgite*—by the indication of mother Śacī; *sambandha*—the relationship; *karila*—made; *ghaṭana*—possible; *lakṣmīke*—unto Lakṣmīdevī; *vivāha*—marriage; *kaila*—executed; *śacīra nandana*—the son of mother Śacī.

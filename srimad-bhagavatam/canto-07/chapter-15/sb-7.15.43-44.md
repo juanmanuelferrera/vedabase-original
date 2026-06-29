@@ -1,18 +1,18 @@
 ### SB 7.15.43-44
 
-> रागो द्वेषश्च लोभश्च शोकमोहौ भयं मदः
-> मानोऽवमानोऽसूया च माया हिंसा च मत्सरः ॥४३॥
-> रजः प्रमादः क्षुन्निद्रा शत्रवस्त्वेवमादयः
+> रागो द्वेषश्च लोभश्च शोकमोहौ भयं मदः\
+> मानोऽवमानोऽसूया च माया हिंसा च मत्सरः ॥४३॥\
+> रजः प्रमादः क्षुन्निद्रा शत्रवस्त्वेवमादयः\
 > रजस्तमःप्रकृतयः सत्त्वप्रकृतयः क्वचित ॥४४॥
 
-> rāgo dveṣaś ca lobhaś ca
-> śoka-mohau bhayaṁ madaḥ
-> māno 'vamāno 'sūyā ca
+> rāgo dveṣaś ca lobhaś ca\
+> śoka-mohau bhayaṁ madaḥ\
+> māno 'vamāno 'sūyā ca\
 > māyā hiṁsā ca matsaraḥ
 
-> rajaḥ pramādaḥ kṣun-nidrā
-> śatravas tv evam ādayaḥ
-> rajas-tamaḥ-prakṛtayaḥ
+> rajaḥ pramādaḥ kṣun-nidrā\
+> śatravas tv evam ādayaḥ\
+> rajas-tamaḥ-prakṛtayaḥ\
 > sattva-prakṛtayaḥ kvacit
 
 *rāgaḥ*—attachment; *dveṣaḥ*—hostility; *ca*—also; *lobhaḥ*—greed; *ca*—also; *śoka*—lamentation; *mohau*—illusion; *bhayam*—fear; *madaḥ*—madness; *mānaḥ*—false prestige; *avamānaḥ*—insult; *asūyā*—finding fault with others; *ca*—also; *māyā*—deception; *hiṁsā*—envy; *ca*—also; *matsaraḥ*—intolerance; *rajaḥ*—passion; *pramādaḥ*—bewilderment; *kṣut*—hunger; *nidrā*—sleep; *śatravaḥ*—enemies; *tu*—indeed; *evam ādayaḥ*—even other such conceptions of life; *rajaḥ-tamaḥ*—because of the conception of passion and ignorance; *prakṛtayaḥ*—causes; *sattva*—because of the conception of goodness; *prakṛtayaḥ*—causes; *kvacit*—sometimes.

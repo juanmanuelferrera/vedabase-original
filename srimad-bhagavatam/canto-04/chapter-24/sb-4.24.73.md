@@ -1,11 +1,11 @@
 ### SB 4.24.73
 
-> ते वयं नोदिताः सर्वे प्रजासर्गे प्रजेश्वराः ।
+> ते वयं नोदिताः सर्वे प्रजासर्गे प्रजेश्वराः ।\
 > अनेन ध्वस्ततमसः सिसृक्ष्मो विविधाः प्रजाः ॥७३॥
 
-> te vayaṁ noditāḥ sarve
-> prajā-sarge prajeśvarāḥ
-> anena dhvasta-tamasaḥ
+> te vayaṁ noditāḥ sarve\
+> prajā-sarge prajeśvarāḥ\
+> anena dhvasta-tamasaḥ\
 > sisṛkṣmo vividhāḥ prajāḥ
 
 *te*—by him; *vayam*—all of us; *noditāḥ*—ordered; *sarve*—all; *prajā-sarge*—at the time of creating population; *prajā-īśvarāḥ*—the controllers of all living entities; *anena*—by this; *dhvasta-tamasaḥ*—being freed from all kinds of ignorance; *sisṛkṣmaḥ*—we created; *vividhāḥ*—various kinds of; *prajāḥ*—living entities.

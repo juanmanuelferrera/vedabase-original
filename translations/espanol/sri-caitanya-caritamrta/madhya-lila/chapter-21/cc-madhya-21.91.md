@@ -1,9 +1,9 @@
 ### CC Madhya 21.91
 
-> গোলোকাখ্য গোকুল, মথুরা, দ্বারাবতী ।
+> গোলোকাখ্য গোকুল, মথুরা, দ্বারাবতী ।\
 > এই তিন লোকে কৃষ্ণের সহজে নিত্যস্থিতি ॥৯১॥
 
-> golokākhya gokula, mathurā, dvārāvatī
+> golokākhya gokula, mathurā, dvārāvatī\
 > ei tina loke kṛṣṇera sahaje nitya-sthiti
 
 *goloka-ākhya*—llamado Goloka; *gokula*—Gokula; *mathurā*—Mathurā; *dvārāvatī*—Dvārakā; *ei tina loke*—en estos tres lugares; *kṛṣṇera*—del Señor Kṛṣṇa; *sahaje*—de manera natural; *nitya-sthiti*—residencia eterna.

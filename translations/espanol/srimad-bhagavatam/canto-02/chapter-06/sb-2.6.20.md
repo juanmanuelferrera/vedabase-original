@@ -1,11 +1,11 @@
 ### SB 2.6.20
 
-> पादास्त्रयो बहिश्चासन्नप्रजानां य आश्रमाः ।
+> पादास्त्रयो बहिश्चासन्नप्रजानां य आश्रमाः ।\
 > अन्तस्त्रिलोक्यास्त्वपरो गृहमेधोऽबृहद्व्रतः ॥२०॥
 
-> pādās trayo bahiś cāsann
-> aprajānāṁ ya āśramāḥ
-> antas tri-lokyās tv aparo
+> pādās trayo bahiś cāsann\
+> aprajānāṁ ya āśramāḥ\
+> antas tri-lokyās tv aparo\
 > gṛha-medho 'bṛhad-vrataḥ
 
 *pādāḥ trayaḥ*—el cosmos de las tres cuartas partes de la energía del Señor; *bahiḥ*—situado así, más allá; *ca*—y para todos; *āsan*—fueron; *aprajānām*—de aquellos que no están destinados a renacer; *ye*—aquellos; *āśramāḥ*—la orden de vida; *antaḥ*—dentro; *trilokyāḥ*—de los tres mundos; *tu*—pero; *aparaḥ*—otros; *gṛhamedhaḥ*—apegados a la vida familiar; *abṛhat-vrataḥ*—sin seguir estrictamente un voto de celibato.

@@ -1,14 +1,14 @@
 ### CC Madhya 15.54-55
 
-> একদিন শাল্যন্ন, ব্যঞ্জন পাঁচ-সাত ।
-> শাক, মোচা-ঘণ্ট, ভৃষ্ট-পটোল-নিম্বপাত ॥৫৪॥
-> লেম্বু-আদাখণ্ড, দধি, দুগ্ধ, খণ্ড-সার ।
+> একদিন শাল্যন্ন, ব্যঞ্জন পাঁচ-সাত ।\
+> শাক, মোচা-ঘণ্ট, ভৃষ্ট-পটোল-নিম্বপাত ॥৫৪॥\
+> লেম্বু-আদাখণ্ড, দধি, দুগ্ধ, খণ্ড-সার ।\
 > শালগ্ৰামে সমর্পিলেন বহু উপহার ॥৫৫॥
 
-> eka-dina śālyanna, vyañjana pāṅca-sāta
+> eka-dina śālyanna, vyañjana pāṅca-sāta\
 > śāka, mocā-ghaṇṭa, bhṛṣṭa-paṭola-nimba-pāta
 
-> lembu-ādā-khaṇḍa, dadhi, dugdha, khaṇḍa-sāra
+> lembu-ādā-khaṇḍa, dadhi, dugdha, khaṇḍa-sāra\
 > śālagrāme samarpilena bahu upahāra
 
 *eka-dina*—un día; *śāli-anna*—arroz cocido del tipo *śāli*; *vyañjana*—estofados de hortaliza; *pāṅca-sāta*—cinco o siete variedades; *śāka*—espinacas; *mocā-ghaṇṭa*—*curry* de flores de banano; *bhṛṣṭa*—fritas; *paṭola*—hortalizas *paṭola*; *nimba-pāta*—con hojas de árbol de *nimba*; *lembu*—limón; *ādā-khaṇḍa*—trozos de jengibre; *dadhi*—yogur; *dugdha*—leche; *khaṇḍa-sāra*—azúcar cande; *śālagrāme*—al Señor Viṣṇu en la forma de la *śālagrāma*; *samarpilena*—ofreció; *bahu upahāra*—muchos otros alimentos de toda clase.

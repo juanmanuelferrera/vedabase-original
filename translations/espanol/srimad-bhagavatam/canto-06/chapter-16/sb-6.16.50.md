@@ -1,13 +1,13 @@
 ### SB 6.16.50
 
-> श्रीभगवानुवाच
-> यन्नारदाङ्गिरोभ्यां ते व्याहृतं मेऽनुशासनम
+> श्रीभगवानुवाच\
+> यन्नारदाङ्गिरोभ्यां ते व्याहृतं मेऽनुशासनम\
 > संसिद्धोऽसि तया राजन्विद्यया दर्शनाच्च मे ॥५०॥
 
-> śrī-bhagavān uvāca
-> yan nāradāṅgirobhyāṁ te
-> vyāhṛtaṁ me 'nuśāsanam
-> saṁsiddho 'si tayā rājan
+> śrī-bhagavān uvāca\
+> yan nāradāṅgirobhyāṁ te\
+> vyāhṛtaṁ me 'nuśāsanam\
+> saṁsiddho 'si tayā rājan\
 > vidyayā darśanāc ca me
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios, Saṅkarṣaṇa, contestó; *yat*—la cual; *nārada-aṅgirobhyām*—por los grandes sabios Nārada y Aṅgirā; *te*—a ti; *vyāhṛtam*—hablada; *me*—de Mí; *anuśāsanam*—la adoración; *saṁsiddhaḥ*—completamente perfeccionado; *asi*—estás; *tayā*—con ese; *rājan*—¡oh, rey!; *vidyayā*—*mantra*; *darśanāt*—de la visión directa; *ca*—así como; *me*—de Mí.

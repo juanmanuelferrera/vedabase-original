@@ -1,11 +1,11 @@
 ### SB 9.4.21
 
-> एवं सदा कर्मकलापमात्मनः परेऽधियज्ञए भगवत्यधोक्षजे
+> एवं सदा कर्मकलापमात्मनः परेऽधियज्ञए भगवत्यधोक्षजे\
 > सर्वात्मभावं विदधन्महीमिमां तन्निष्ठविप्राभिहितः शशास ह ॥२१॥
 
-> evaṁ sadā karma-kalāpam ātmanaḥ
-> pare 'dhiyajñe bhagavaty adhokṣaje
-> sarvātma-bhāvaṁ vidadhan mahīm imāṁ
+> evaṁ sadā karma-kalāpam ātmanaḥ\
+> pare 'dhiyajñe bhagavaty adhokṣaje\
+> sarvātma-bhāvaṁ vidadhan mahīm imāṁ\
 > tan-niṣṭha-viprābhihitaḥ śaśāsa ha
 
 *evam*—thus (living a devotional life); *sadā*—always; *karma-kalāpam*—the prescribed occupational duties as a *kṣatriya* king; *ātmanaḥ*—of himself, personally (the head of the state); *pare*—unto the supreme transcendence; *adhiyajñe*—unto the supreme proprietor, the supreme enjoyer; *bhagavati*—unto the Supreme Personality of Godhead; *adhokṣaje*—unto Him who is beyond material sense perception; *sarva-ātma-bhāvam*—all different varieties of devotional service; *vidadhat*—executing, offering; *mahīm*—the planet earth; *imām*—this; *tat-niṣṭha*—who are faithful devotees of the Lord; *vipra*—by such *brāhmaṇas*; *abhihitaḥ*—directed; *śaśāsa*—ruled; *ha*—in the past.

@@ -1,9 +1,9 @@
 ### CC Madhya 24.333
 
-> গোপীচন্দন-মাল্য-ধৃতি, তুলসী-আহরণ ।
+> গোপীচন্দন-মাল্য-ধৃতি, তুলসী-আহরণ ।\
 > বস্ত্র-পীঠ-গৃহ-সংস্কার, কৃষ্ণ-প্রবোধন ॥৩৩৩॥
 
-> gopīcandana-mālya-dhṛti, tulasī-āharaṇa
+> gopīcandana-mālya-dhṛti, tulasī-āharaṇa\
 > vastra-pīṭha-gṛha-saṁskāra, kṛṣṇa-prabodhana
 
 *gopī-candana*—gopī-candana (available in Vṛndāvana and Dvārakā); *mālya*—beads on the neck; *dhṛti*—wearing regularly; *tulasī-āharaṇa*—collecting *tulasī* leaves; *vastra*—cloth; *pīṭha*—temple; *gṛha*—the house; *saṁskāra*—cleansing; *kṛṣṇa-prabodhana*—awakening the Deity of Lord Kṛṣṇa.

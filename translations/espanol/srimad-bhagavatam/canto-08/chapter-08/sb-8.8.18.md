@@ -1,11 +1,11 @@
 ### SB 8.8.18
 
-> ततः कृतस्वस्त्ययनोत्पलस्रजं नदद्द्विरेफां परिगृह्य पाणिना
+> ततः कृतस्वस्त्ययनोत्पलस्रजं नदद्द्विरेफां परिगृह्य पाणिना\
 > चचाल वक्त्रं सुकपोलकुण्डलं सव्रीडहासं दधती सुशोभनम ॥१८॥
 
-> stana-dvayaṁ cātikṛśodarī samaṁ
-> nirantaraṁ candana-kuṅkumokṣitam
-> tatas tato nūpura-valgu śiñjitair
+> stana-dvayaṁ cātikṛśodarī samaṁ\
+> nirantaraṁ candana-kuṅkumokṣitam\
+> tatas tato nūpura-valgu śiñjitair\
 > visarpatī hema-lateva sā babhau
 
 *stana-dvayam*—sus dos pechos; *ca*—también; *ati-kṛśa-udarī*—con la parte media del cuerpo muy fina; *samam*—con igualdad; *nirantaram*—constantemente; *candana-kuṅkuma*—con pasta de sándalo y *kuṅkuma*, un polvo rojizo; *ukṣitam*—ungidos; *tataḥ tataḥ*—de un lugar a otro; *nūpura*—de campanitas tobilleras; *valgu*—muy hermosa; *śiñjitaiḥ*—con el suave resonar; *visarpatī*—caminar; *hema-latā*—una enredadera de oro; *iva*—exactamente igual; *sā*—la diosa de la fortuna; *babhau*—parecía.

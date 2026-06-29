@@ -1,11 +1,11 @@
 ### SB 4.12.9
 
-> तस्य प्रीतेन मनसा तां दत्त्वैडविडस्ततः ।
+> तस्य प्रीतेन मनसा तां दत्त्वैडविडस्ततः ।\
 > पश्यतोऽन्तर्दधे सोऽपि स्वपुरं प्रत्यपद्यत ॥९॥
 
-> tasya prītena manasā
-> tāṁ dattvaiḍaviḍas tataḥ
-> paśyato 'ntardadhe so 'pi
+> tasya prītena manasā\
+> tāṁ dattvaiḍaviḍas tataḥ\
+> paśyato 'ntardadhe so 'pi\
 > sva-puraṁ pratyapadyata
 
 *tasya*—con Dhruva; *prītena*—estar muy complacido; *manasā*—con aquella mentalidad; *tām*—aquel recuerdo; *dattvā*—habiendo dado; *aiḍaviḍaḥ*—Kuvera, hijo de Iḍaviḍā; *tataḥ*—a continuación; *paśyataḥ*—mientras Dhruva le estaba mirando; *antardadhe*—desapareció; *saḥ*—él (Dhruva); *api*—también; *sva-puram*—a su ciudad; *pratyapadyata*—regresó.

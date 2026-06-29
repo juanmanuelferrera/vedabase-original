@@ -1,13 +1,13 @@
 ### Bg 1.46
 
-> सञ्जय उवाच ।
-> एवमुक्त्वार्जुनः सङ्ख्ये रथोपस्थ उपाविशत् ।
+> सञ्जय उवाच ।\
+> एवमुक्त्वार्जुनः सङ्ख्ये रथोपस्थ उपाविशत् ।\
 > विसृज्य सशरं चापं शोकसंविग्नमानसः ॥४६॥
 
-> sañjaya uvāca
-> evam uktvārjunaḥ saṅkhye
-> rathopastha upāviśat
-> visṛjya sa-śaraṁ cāpaṁ
+> sañjaya uvāca\
+> evam uktvārjunaḥ saṅkhye\
+> rathopastha upāviśat\
+> visṛjya sa-śaraṁ cāpaṁ\
 > śoka-saṁvigna-mānasaḥ
 
 *sañjayaḥ*—Sañjaya; *uvāca*—dijo; *evam*—así pues; *uktvā*—diciendo; *arjunaḥ*—Arjuna; *saṅkhye*—en el campo de batalla; *ratha*—de la cuadriga; *upasthaḥ*—situado en; *upāviśat*—se sentó de nuevo; *visṛjya*—dejando a un lado; *sa-śaram*—junto con las flechas; *cāpam*—el arco; *śoka*—lamentación; *saṁvigna*—aflicción; *mānasaḥ*—en la mente.

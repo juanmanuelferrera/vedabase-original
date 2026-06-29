@@ -1,11 +1,11 @@
 ### SB 1.7.8
 
-> स संहितां भागवतीं कृत्वानुक्रम्य चात्मजम् ।
+> स संहितां भागवतीं कृत्वानुक्रम्य चात्मजम् ।\
 > शुकमध्यापयामास निवृत्तिनिरतं मुनिः ॥८॥
 
-> sa saṁhitāṁ bhāgavatīṁ
-> kṛtvānukramya cātma-jam
-> śukam adhyāpayām āsa
+> sa saṁhitāṁ bhāgavatīṁ\
+> kṛtvānukramya cātma-jam\
+> śukam adhyāpayām āsa\
 > nivṛtti-nirataṁ muniḥ
 
 *saḥ*—esa; *saṁhitām*—Escritura védica; *bhāgavatīm*—en relación con la Personalidad de Dios; *kṛtvā*—habiendo hecho; *anukramya*—mediante la corrección y la repetición; *ca*—y; *ātma-jam*—su propio hijo; *śukam*—Śukadeva Gosvāmī; *adhyāpayām āsa*—enseñó; *nivṛtti*—sendero de la autorrealización; *niratam*—dedicado; *muniḥ*—el sabio.

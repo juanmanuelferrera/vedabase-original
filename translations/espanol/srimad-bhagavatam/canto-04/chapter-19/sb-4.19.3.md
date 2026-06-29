@@ -1,11 +1,11 @@
 ### SB 4.19.3
 
-> यत्र यज्ञपतिः साक्षाद्भगवान्हरिरीश्वरः ।
+> यत्र यज्ञपतिः साक्षाद्भगवान्हरिरीश्वरः ।\
 > अन्वभूयत सर्वात्मा सर्वलोकगुरुः प्रभुः ॥३॥
 
-> yatra yajña-patiḥ sākṣād
-> bhagavān harir īśvaraḥ
-> anvabhūyata sarvātmā
+> yatra yajña-patiḥ sākṣād\
+> bhagavān harir īśvaraḥ\
+> anvabhūyata sarvātmā\
 > sarva-loka-guruḥ prabhuḥ
 
 *yatra*—donde; *yajña-patiḥ*—el disfrutador de todos los sacrificios; *sākṣāt*—directamente; *bhagavān*—la Suprema Personalidad de Dios; *hariḥ*—el Señor Viṣṇu; *īśvaraḥ*—el controlador supremo; *anvabhūyata*—Se hizo visible; *sarva-ātmā*—la Superalma de todos; *sarva-loka-guruḥ*—el amo de todos los planetas, o el maestro de todos; *prabhuḥ*—el propietario.

@@ -1,11 +1,11 @@
 ### Bg 2.69
 
-> या निशा सर्वभूतानां तस्यां जागर्ति संयमी ।
+> या निशा सर्वभूतानां तस्यां जागर्ति संयमी ।\
 > यस्यां जाग्रति भूतानि सा निशा पश्यतो मुनेः ॥६९॥
 
-> yā niśā sarva-bhūtānāṁ
-> tasyāṁ jāgarti saṁyamī
-> yasyāṁ jāgrati bhūtāni
+> yā niśā sarva-bhūtānāṁ\
+> tasyāṁ jāgarti saṁyamī\
+> yasyāṁ jāgrati bhūtāni\
 > sā niśā paśyato muneḥ
 
 *yā*—que; *niśā*—es noche; *sarva*—todas; *bhūtānām*—de las entidades vivientes; *tasyām*—en eso; *jāgarti*—en vela; *saṁyamī*—el autocontrolado; *yasyām*—en el cual; *jāgrati*—despiertos; *bhūtāni*—todos los seres; *sā*—eso es; *niśā*—noche; *paśyataḥ*—para el introspectivo; *muneḥ*—sabio.

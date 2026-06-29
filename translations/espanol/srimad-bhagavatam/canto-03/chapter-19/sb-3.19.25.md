@@ -1,11 +1,11 @@
 ### SB 3.19.25
 
-> तं मुष्टिभिर्विनिघ्नन्तं वज्रसारैरधोक्षजः ।
+> तं मुष्टिभिर्विनिघ्नन्तं वज्रसारैरधोक्षजः ।\
 > करेण कर्णमूलेऽहन्यथा त्वाष्ट्रं मरुत्पतिः ॥२५॥
 
-> taṁ muṣṭibhir vinighnantaṁ
-> vajra-sārair adhokṣajaḥ
-> kareṇa karṇa-mūle 'han
+> taṁ muṣṭibhir vinighnantaṁ\
+> vajra-sārair adhokṣajaḥ\
+> kareṇa karṇa-mūle 'han\
 > yathā tvāṣṭraṁ marut-patiḥ
 
 *tam*—Hiraṇyākṣa; *muṣṭibhiḥ*—con sus puños; *vinighnantam*—golpeando; *vajra-sāraiḥ*—tan fuertes como un rayo; *adhokṣajaḥ*—Śrī Adhokṣaja; *kareṇa*—con la mano; *karṇa-mūle*—en la raíz de la oreja; *ahan*—golpeó; *yathā*—como; *tvāṣṭram*—al demonio Vṛtra (hijo de Tvaṣṭā); *marut-patiḥ*—Indra (señor de los *maruts*).

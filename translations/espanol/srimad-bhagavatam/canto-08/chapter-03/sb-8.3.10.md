@@ -1,11 +1,11 @@
 ### SB 8.3.10
 
-> नम आत्मप्रदीपाय साक्षिणे परमात्मने
+> नम आत्मप्रदीपाय साक्षिणे परमात्मने\
 > नमो गिरां विदूराय मनसश्चेतसामपि ॥१०॥
 
-> nama ātma-pradīpāya
-> sākṣiṇe paramātmane
-> namo girāṁ vidūrāya
+> nama ātma-pradīpāya\
+> sākṣiṇe paramātmane\
+> namo girāṁ vidūrāya\
 > manasaś cetasām api
 
 *namaḥ*—ofrezco mis respetuosas reverencias; *ātma-pradīpāya*—a aquel que es autorrefulgente, o que da iluminación a las entidades vivientes; *sākṣiṇe*—que está en el corazón de todos como testigo; *parama-ātmane*—al Alma Suprema, la Superalma; *namaḥ*—ofrezco mis respetuosas reverencias; *girām*—con palabras; *vidūrāya*—a quien es imposible alcanzar; *manasaḥ*—con la mente; *cetasām*—o con la conciencia; *api*—incluso.

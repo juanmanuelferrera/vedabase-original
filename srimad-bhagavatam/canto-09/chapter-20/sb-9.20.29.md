@@ -1,11 +1,11 @@
 ### SB 9.20.29
 
-> भरतस्य महत्कर्म न पूर्वे नापरे नृपाः
+> भरतस्य महत्कर्म न पूर्वे नापरे नृपाः\
 > नैवापुर्नैव प्राप्स्यन्ति बाहुभ्यां त्रिदिवं यथा ॥२९॥
 
-> bharatasya mahat karma
-> na pūrve nāpare nṛpāḥ
-> naivāpur naiva prāpsyanti
+> bharatasya mahat karma\
+> na pūrve nāpare nṛpāḥ\
+> naivāpur naiva prāpsyanti\
 > bāhubhyāṁ tridivaṁ yathā
 
 *bharatasya*—of Mahārāja Bharata, the son of Mahārāja Duṣmanta; *mahat*—very great, exalted; *karma*—activities; *na*—neither; *pūrve*—previously; *na*—nor; *apare*—after his time; *nṛpāḥ*—kings as a class; *na*—neither; *eva*—certainly; *āpuḥ*—attained; *na*—nor; *eva*—certainly; *prāpsyanti*—will get; *bāhubhyām*—by the strength of his arms; *tri-divam*—the heavenly planets; *yathā*—as.

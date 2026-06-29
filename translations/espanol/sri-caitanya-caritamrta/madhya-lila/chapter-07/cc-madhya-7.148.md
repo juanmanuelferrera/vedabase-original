@@ -1,9 +1,9 @@
 ### CC Madhya 7.148
 
-> কৃষ্ণ উপদেশি’ কর জীবের নিস্তার ৷
+> কৃষ্ণ উপদেশি’ কর জীবের নিস্তার ৷\
 > অচিরাতে কৃষ্ণ তোমা করিবেন অঙ্গীকার ৷৷” ১৪৮ ৷৷ ॥১৪৮॥
 
-> kṛṣṇa upadeśi' kara jīvera nistāra
+> kṛṣṇa upadeśi' kara jīvera nistāra\
 > acirāte kṛṣṇa tomā karibena aṅgīkāra"
 
 *kṛṣṇa upadeśi'*—instruyendo acerca de Kṛṣṇa; *kara*—haz; *jīvera*—de todas las entidades vivientes; *nistāra*—la liberación; *acirāte*—muy pronto; *kṛṣṇa*—el Señor Kṛṣṇa; *tomā*—a ti; *karibena*—te hará; *aṅgīkāra*—aceptación.

@@ -1,9 +1,9 @@
 ### CC Adi 17.126
 
-> এতকাল কেহ নাহি কৈল হিন্দুয়ানি ।
+> এতকাল কেহ নাহি কৈল হিন্দুয়ানি ।\
 > এবে যে উদ্যম চালাও কার বল জানি’ ॥১২৬॥
 
-> eta-kāla keha nāhi kaila hinduyāni
+> eta-kāla keha nāhi kaila hinduyāni\
 > ebe ye udyama cālāo kāra bala jāni'
 
 *eta-kāla*—so long; *keha*—anyone; *nāhi*—not; *kaila*—performed; *hinduyāni*—regulative principles of the Hindus; *ebe*—now; *ye*—that; *udyama*—endeavor; *cālāo*—you propagate; *kāra*—whose; *bala*—strength; *jāni'*—I want to know.

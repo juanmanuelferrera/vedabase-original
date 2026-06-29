@@ -1,9 +1,9 @@
 ### CC Adi 2.9
 
-> ‘নন্দসুত’ বলি, যাঁরে ভাগবতে গাই ।
+> ‘নন্দসুত’ বলি, যাঁরে ভাগবতে গাই ।\
 > সেই কৃষ্ণ অবতীর্ণ চৈতন্যগোসাঞি ॥৯॥
 
-> 'nanda-suta' bali' yāṅre bhāgavate gāi
+> 'nanda-suta' bali' yāṅre bhāgavate gāi\
 > sei kṛṣṇa avatīrṇa caitanya-gosāñi
 
 *nanda-suta*—el hijo de Nanda Mahārāja; *bali'*—como; *yāṅre*—quien; *bhāgavate*—en el *Śrīmad-Bhāgavatam*; *gāi*—se canta; *sei*—ese; *kṛṣṇa*—el Señor Kṛṣṇa; *avatīrṇa*—descendido; *caitanya-gosāñi*—el Señor Caitanya Mahāprabhu.

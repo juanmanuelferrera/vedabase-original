@@ -1,11 +1,11 @@
 ### SB 1.6.11
 
-> स्फीताञ्जनपदांस्तत्र पुरग्रामव्रजाकरान् ।
+> स्फीताञ्जनपदांस्तत्र पुरग्रामव्रजाकरान् ।\
 > खेटखर्वटवाटीश्च वनान्युपवनानि च ॥११॥
 
-> sphītāñ janapadāṁs tatra
-> pura-grāma-vrajākarān
-> kheṭa-kharvaṭa-vāṭīś ca
+> sphītāñ janapadāṁs tatra\
+> pura-grāma-vrajākarān\
+> kheṭa-kharvaṭa-vāṭīś ca\
 > vanāny upavanāni ca
 
 *sphītān*—muy florecientes; *jana-padān*—metrópolis; *tatra*—allí; *pura*—pueblos; *grāma*—aldeas; *vraja*—grandes granjas; *ākarān*—campos de minerales (minas); *kheṭa*—tierras agrícolas; *kharvaṭa*—valles; *vāṭīḥ*—jardines de flores; *ca*—y; *vanāni*—bosques; *upavanāni*—viveros; *ca*—y.

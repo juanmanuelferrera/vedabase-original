@@ -1,11 +1,11 @@
 ### SB 8.12.20
 
-> दिक्षु भ्रमत्कन्दुकचापलैर्भृशं प्रोद्विग्नतारायतलोललोचनाम
+> दिक्षु भ्रमत्कन्दुकचापलैर्भृशं प्रोद्विग्नतारायतलोललोचनाम\
 > स्वकर्णविभ्राजितकुण्डलोल्लसत्कपोलनीलालकमण्डिताननाम ॥२०॥
 
-> dikṣu bhramat-kanduka-cāpalair bhṛśaṁ
-> prodvigna-tārāyata-lola-locanām
-> sva-karṇa-vibhrājita-kuṇḍalollasat-
+> dikṣu bhramat-kanduka-cāpalair bhṛśaṁ\
+> prodvigna-tārāyata-lola-locanām\
+> sva-karṇa-vibhrājita-kuṇḍalollasat-\
 > kapola-nīlālaka-maṇḍitānanām
 
 *dikṣu*—in all directions; *bhramat*—moving; *kanduka*—of the ball; *cāpalaiḥ*—restlessness; *bhṛśam*—now and then; *prodvigna*—full of anxieties; *tāra*—eyes; *āyata*—broad; *lola*—restless; *locanām*—with such eyes; *sva-karṇa*—on Her own two ears; *vibhrājita*—illuminating; *kuṇḍala*—earrings; *ullasat*—shining; *kapola*—cheeks; *nīla*—bluish; *alaka*—with hair; *maṇḍita*—was decorated; *ānanām*—face.

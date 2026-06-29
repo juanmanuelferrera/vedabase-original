@@ -1,11 +1,11 @@
 ### SB 2.9.11
 
-> श्यामावदाताः शतपत्रलोचनाः पिशङ्गवस्त्राः सुरुचः सुपेशसः ।
+> श्यामावदाताः शतपत्रलोचनाः पिशङ्गवस्त्राः सुरुचः सुपेशसः ।\
 > सर्वे चतुर्बाहव उन्मिषन्मणि प्रवेकनिष्काभरणाः सुवर्चसः ॥११॥
 
-> śyāmāvadātāḥ śata-patra-locanāḥ
-> piśaṅga-vastrāḥ surucaḥ supeśasaḥ
-> sarve catur-bāhava unmiṣan-maṇi-
+> śyāmāvadātāḥ śata-patra-locanāḥ\
+> piśaṅga-vastrāḥ surucaḥ supeśasaḥ\
+> sarve catur-bāhava unmiṣan-maṇi-\
 > praveka-niṣkābharaṇāḥ suvarcasaḥ
 
 *śyāma*—azulado como el cielo; *avadātāḥ*—resplandeciente; *śata-patra*—flor de loto; *locanāḥ*—ojos; *piśaṅga*—amarillenta; *vastrāḥ*—ropa; *su-rucaḥ*—muy atractivos; *su-peśasaḥ*—volviéndose jóvenes; *sarve*—todos ellos; *catuḥ*—cuatro; *bāhavaḥ*—manos; *unmiṣan*—brillo creciente; *maṇi*—perlas; *praveka*—calidad superior; *niṣka-ābharaṇāḥ*—medallones decorativos; *su-varcasaḥ*—refulgentes.

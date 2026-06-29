@@ -1,11 +1,11 @@
 ### SB 4.6.32
 
-> स योजनशतोत्सेधः पादोनविटपायतः ।
+> स योजनशतोत्सेधः पादोनविटपायतः ।\
 > पर्यक्कृताचलच्छायो निर्नीडस्तापवर्जितः ॥३२॥
 
-> sa yojana-śatotsedhaḥ
-> pādona-viṭapāyataḥ
-> paryak-kṛtācala-cchāyo
+> sa yojana-śatotsedhaḥ\
+> pādona-viṭapāyataḥ\
+> paryak-kṛtācala-cchāyo\
 > nirnīḍas tāpa-varjitaḥ
 
 *saḥ*—ese árbol de los banianos; *yojana-śata*—cien *yojanas* (mil trescientos kilómetros); *utsedhaḥ*—altura; *pāda-ūna*—una cuarta parte menos (unos mil kilómetros); *viṭapa*—con las ramas; *āyataḥ*—extendidas; *paryak*—alrededor; *kṛta*—hecha; *acala*—uniforme; *chāyaḥ*—la sombra; *nirnīḍaḥ*—sin nidos de pájaros; *tāpa-varjitaḥ*—sin calor.

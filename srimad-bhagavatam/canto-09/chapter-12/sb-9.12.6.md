@@ -1,11 +1,11 @@
 ### SB 9.12.6
 
-> सोऽसावास्ते योगसिद्धः कलापग्राममास्थितः
+> सोऽसावास्ते योगसिद्धः कलापग्राममास्थितः\
 > कलेरन्ते सूर्यवंशं नष्टं भावयिता पुनः ॥६॥
 
-> so 'sāv āste yoga-siddhaḥ
-> kalāpa-grāmam āsthitaḥ
-> kaler ante sūrya-vaṁśaṁ
+> so 'sāv āste yoga-siddhaḥ\
+> kalāpa-grāmam āsthitaḥ\
+> kaler ante sūrya-vaṁśaṁ\
 > naṣṭaṁ bhāvayitā punaḥ
 
 *saḥ*—he; *asau*—the personality known as Maru; *āste*—still existing; *yoga-siddhaḥ*—perfection in the power of mystic *yoga*; *kalāpa-grāmam*—the place named Kalāpa-grāma; *āsthitaḥ*—he is still living there; *kaleḥ*—of this Kali-yuga; *ante*—at the end; *sūrya-vaṁśam*—the descendants of the sun-god; *naṣṭam*—after being lost; *bhāvayitā*—Maru will begin by begetting a son; *punaḥ*—again.

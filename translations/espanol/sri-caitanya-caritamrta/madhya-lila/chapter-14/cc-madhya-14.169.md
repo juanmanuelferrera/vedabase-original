@@ -1,9 +1,9 @@
 ### CC Madhya 14.169
 
-> এত ভাবভূষায় ভূষিত শ্রীরাধার অঙ্গ ।
+> এত ভাবভূষায় ভূষিত শ্রীরাধার অঙ্গ ।\
 > দেখিতে উথলে কৃষ্ণসুখাব্ধি-তরঙ্গ ॥১৬৯॥
 
-> eta bhāva-bhūṣāya bhūṣita śrī-rādhāra aṅga
+> eta bhāva-bhūṣāya bhūṣita śrī-rādhāra aṅga\
 > dekhite uthale kṛṣṇa-sukhābdhi-taraṅga
 
 *eta*—tantos; *bhāva-bhūṣāya*—con los ornamentos de éxtasis; *bhūṣita*—adornado; *śrī-rādhāra*—de Śrīmatī Rādhārāṇī; *aṅga*—el cuerpo; *dekhite*—al contemplar; *uthale*—se despiertan; *kṛṣṇa-sukha-abdhi*—del océano de felicidad de Kṛṣṇa; *taraṅga*—olas.

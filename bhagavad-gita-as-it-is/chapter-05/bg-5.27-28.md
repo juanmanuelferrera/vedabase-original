@@ -1,18 +1,18 @@
 ### Bg 5.27-28
 
-> स्पर्शान्कृत्वा बहिर्बाह्यांश्चक्षुश्चैवान्तरे भ्रुवोः ।
-> प्राणापानौ समौ कृत्वा नासाभ्यन्तरचारिणौ ॥२७॥
-> यतेन्द्रियमनोबुद्धिर्मुनिर्मोक्षपरायणः ।
+> स्पर्शान्कृत्वा बहिर्बाह्यांश्चक्षुश्चैवान्तरे भ्रुवोः ।\
+> प्राणापानौ समौ कृत्वा नासाभ्यन्तरचारिणौ ॥२७॥\
+> यतेन्द्रियमनोबुद्धिर्मुनिर्मोक्षपरायणः ।\
 > विगतेच्छाभयक्रोधो यः सदा मुक्त एव सः ॥२८॥
 
-> sparśān kṛtvā bahir bāhyāṁś
-> cakṣuś caivāntare bhruvoḥ
-> prāṇāpānau samau kṛtvā
+> sparśān kṛtvā bahir bāhyāṁś\
+> cakṣuś caivāntare bhruvoḥ\
+> prāṇāpānau samau kṛtvā\
 > nāsābhyantara-cāriṇau
 
-> yatendriya-mano-buddhir
-> munir mokṣa-parāyaṇaḥ
-> vigatecchā-bhaya-krodho
+> yatendriya-mano-buddhir\
+> munir mokṣa-parāyaṇaḥ\
+> vigatecchā-bhaya-krodho\
 > yaḥ sadā mukta eva saḥ
 
 *sparśān*—external sense objects, such as sound, etc.; *kṛtvā*—doing so; *bahiḥ*—external; *bāhyān*—unnecessary; *cakṣuḥ*—eyes; *ca*—also; *eva*—certainly; *antare*—within; *bhruvoḥ*—of the eyebrows; *prāṇa-apānau*—up-and down-moving air; *samau*—in suspension; *kṛtvā*—doing so; *nāsā-abhyantara*—within the nostrils; *cāriṇau*—blowing; *yata*—controlled; *indriya*—senses; *manaḥ*—mind; *buddhih*—intelligence; *muniḥ*—the transcendentalist; *mokṣa*—liberation; *parāyaṇaḥ*—being so destined; *vigata*—discarded; *icchā*—wishes; *bhaya*—fear; *krodhaḥ*—anger; *yaḥ*—one who; *sadā*—always; *muktaḥ*—liberated; *eva*—certainly; *saḥ*—he is.

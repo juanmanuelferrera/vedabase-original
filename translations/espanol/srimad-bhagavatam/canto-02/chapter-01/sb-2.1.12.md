@@ -1,11 +1,11 @@
 ### SB 2.1.12
 
-> किं प्रमत्तस्य बहुभिः परोक्षैर्हायनैरिह ।
+> किं प्रमत्तस्य बहुभिः परोक्षैर्हायनैरिह ।\
 > वरं मुहूर्तं विदितं घटते श्रेयसे यतः ॥१२॥
 
-> kiṁ pramattasya bahubhiḥ
-> parokṣair hāyanair iha
-> varaṁ muhūrtaṁ viditaṁ
+> kiṁ pramattasya bahubhiḥ\
+> parokṣair hāyanair iha\
+> varaṁ muhūrtaṁ viditaṁ\
 > ghaṭate śreyase yataḥ
 
 *kim*—cuál es; *pramattasya*—de los confundidos; *bahubhiḥ*—por muchos; *parokṣaiḥ*—sin experiencia; *hāyanaiḥ*—años; *iha*—en este mundo; *varam*—mejor; *muhūrtam*—un momento; *viditam*—consciente; *ghaṭate*—uno puede tratar de conseguir; *śreyase*—en lo referente al bien supremo; *yataḥ*—mediante eso.

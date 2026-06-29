@@ -1,9 +1,9 @@
 ### CC Antya 15.43
 
-> আগে মৃগীগণ দেখি’ কৃষ্ণাঙ্গগন্ধ পাঞা ।
+> আগে মৃগীগণ দেখি’ কৃষ্ণাঙ্গগন্ধ পাঞা ।\
 > তার মুখ দেখি’ পুছেন নির্ণয় করিয়া ॥৪৩॥
 
-> āge mṛgī-gaṇa dekhi' kṛṣṇāṅga-gandha pāñā
+> āge mṛgī-gaṇa dekhi' kṛṣṇāṅga-gandha pāñā\
 > tāra mukha dekhi' puchena nirṇaya kariyā
 
 *āge*—in front; *mṛgī-gaṇa*—the deer; *dekhi'*—seeing; *kṛṣṇa-aṅga-gandha*—the aroma of Kṛṣṇa's body; *pāñā*—getting; *tāra mukha*—their faces; *dekhi'*—seeing; *puchena*—inquire; *nirṇaya kariyā*—making certain.

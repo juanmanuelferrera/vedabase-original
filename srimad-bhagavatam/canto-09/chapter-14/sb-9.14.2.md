@@ -1,11 +1,11 @@
 ### SB 9.14.2
 
-> सहस्रशिरसः पुंसो नाभिह्रदसरोरुहात
+> सहस्रशिरसः पुंसो नाभिह्रदसरोरुहात\
 > जातस्यासीत्सुतो धातुरत्रिः पितृसमो गुणैः ॥२॥
 
-> sahasra-śirasaḥ puṁso
-> nābhi-hrada-saroruhāt
-> jātasyāsīt suto dhātur
+> sahasra-śirasaḥ puṁso\
+> nābhi-hrada-saroruhāt\
+> jātasyāsīt suto dhātur\
 > atriḥ pitṛ-samo guṇaiḥ
 
 *sahasra-śirasaḥ*—who has thousands of heads; *puṁsaḥ*—of Lord Viṣṇu (Garbhodakaśāyī Viṣṇu); *nābhi-hrada-saroruhāt*—from the lotus produced from the lake of the navel; *jātasya*—who appeared; *āsīt*—there was; *sutaḥ*—a son; *dhātuḥ*—of Lord Brahmā; *atriḥ*—by the name Atri; *pitṛ-samaḥ*—like his father; *guṇaiḥ*—qualified.

@@ -1,11 +1,11 @@
 ### SB 9.4.22
 
-> ईजेऽश्वमेधैरधियज्ञअमीश्वरं महाविभूत्योपचिताङ्गदक्षिणैः
+> ईजेऽश्वमेधैरधियज्ञअमीश्वरं महाविभूत्योपचिताङ्गदक्षिणैः\
 > ततैर्वसिष्ठासितगौतमादिभिर्धन्वन्यभिस्रोतमसौ सरस्वतीम ॥२२॥
 
-> īje 'śvamedhair adhiyajñam īśvaraṁ
-> mahā-vibhūtyopacitāṅga-dakṣiṇaiḥ
-> tatair vasiṣṭhāsita-gautamādibhir
+> īje 'śvamedhair adhiyajñam īśvaraṁ\
+> mahā-vibhūtyopacitāṅga-dakṣiṇaiḥ\
+> tatair vasiṣṭhāsita-gautamādibhir\
 > dhanvany abhisrotam asau sarasvatīm
 
 *īje*—worshiped; *aśvamedhaiḥ*—by performing the horse sacrifice *yajñas*; *adhiyajñam*—to satisfy the master of all *yajñas*; *īśvaram*—the Supreme Personality of Godhead; *mahā-vibhūtyā*—with great opulence; *upacita-aṅga-dakṣiṇaiḥ*—with all prescribed paraphernalia and contributions of *dakṣiṇā* to the *brāhmaṇas*; *tataiḥ*—executed; *vasiṣṭha-asita-gautama-ādibhiḥ*—by such *brāhmaṇas* as Vasiṣṭha, Asita and Gautama; *dhanvani*—in the desert; *abhisrotam*—inundated by the water of the river; *asau*—Mahārāja Ambarīṣa; *sarasvatīm*—on the bank of the Sarasvatī.

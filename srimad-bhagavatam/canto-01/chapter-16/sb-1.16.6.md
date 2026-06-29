@@ -1,11 +1,11 @@
 ### SB 1.16.6
 
-> अथवास्य पदाम्भोज मकरन्दलिहां सताम् ।
+> अथवास्य पदाम्भोज मकरन्दलिहां सताम् ।\
 > किमन्यैरसदालापैरायुषो यदसद्व्ययः ॥६॥
 
-> athavāsya padāmbhoja-
-> makaranda-lihāṁ satām
-> kim anyair asad-ālāpair
+> athavāsya padāmbhoja-\
+> makaranda-lihāṁ satām\
+> kim anyair asad-ālāpair\
 > āyuṣo yad asad-vyayaḥ
 
 *athavā*—otherwise; *asya*—of His (Lord Kṛṣṇa's); *pada-ambhoja*—lotus feet; *makaranda-lihām*—of those who lick the honey from such a lotus flower; *satām*—of those who are to exist eternally; *kim anyaiḥ*—what is the use of anything else; *asat*—illusory; *ālāpaiḥ*—topics; *āyuṣaḥ*—of the duration of life; *yat*—that which is; *asat-vyayaḥ*—unnecessary waste of life.

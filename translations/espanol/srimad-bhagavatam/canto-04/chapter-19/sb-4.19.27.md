@@ -1,11 +1,11 @@
 ### SB 4.19.27
 
-> तमृत्विजः शक्रवधाभिसन्धितं विचक्ष्य दुष्प्रेक्ष्यमसह्यरंहसम् ।
+> तमृत्विजः शक्रवधाभिसन्धितं विचक्ष्य दुष्प्रेक्ष्यमसह्यरंहसम् ।\
 > निवारयामासुरहो महामते न युज्यतेऽत्रान्यवधः प्रचोदितात् ॥२७॥
 
-> tam ṛtvijaḥ śakra-vadhābhisandhitaṁ
-> vicakṣya duṣprekṣyam asahya-raṁhasam
-> nivārayām āsur aho mahā-mate
+> tam ṛtvijaḥ śakra-vadhābhisandhitaṁ\
+> vicakṣya duṣprekṣyam asahya-raṁhasam\
+> nivārayām āsur aho mahā-mate\
 > na yujyate 'trānya-vadhaḥ pracoditāt
 
 *tam*—al rey Pṛthu; *ṛtvijaḥ*—los sacerdotes; *śakra-vadha*—matar al rey del cielo; *abhisandhitam*—se disponía; *vicakṣya*—habiendo observado; *duṣprekṣyam*—de aspecto aterrador; *asahya*—insoportable; *raṁhasam*—cuya velocidad; *nivārayām āsuḥ*—prohibieron; *aho*—¡oh!; *mahā-mate*—¡oh, gran alma!; *na*—no; *yujyate*—es digno de ti; *atra*—en este recinto de sacrificios; *anya*—a otros; *vadhaḥ*—matar; *pracoditāt*—por así ordenarlo las Escrituras.

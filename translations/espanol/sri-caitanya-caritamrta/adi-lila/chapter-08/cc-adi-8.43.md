@@ -1,9 +1,9 @@
 ### CC Adi 8.43
 
-> অতএব ভজ, লোক, চৈতন্য-নিত্যানন্দ ।
+> অতএব ভজ, লোক, চৈতন্য-নিত্যানন্দ ।\
 > খণ্ডিবে সংসার-দুঃখ, পাবে প্রেমানন্দ ॥৪৩॥
 
-> ataeva bhaja, loka, caitanya-nityānanda
+> ataeva bhaja, loka, caitanya-nityānanda\
 > khaṇḍibe saṁsāra-duḥkha, pābe premānanda
 
 *ataeva*—por lo tanto; *bhaja*—adorad; *loka*—¡oh, gente en general!; *caitanya*—al Señor Śrī Caitanya Mahāprabhu; *nityānanda*—a Nityānanda Prabhu; *khaṇḍibe*—destruirá; *saṁsāra-duḥkha*—la condición miserable de la existencia material; *pābe*—obtendrá; *premānanda*—la bienaventuranza trascendental del servicio devocional.

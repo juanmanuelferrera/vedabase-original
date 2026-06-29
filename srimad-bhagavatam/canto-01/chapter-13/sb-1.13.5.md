@@ -1,11 +1,11 @@
 ### SB 1.13.5
 
-> प्रत्युज्जग्मुः प्रहर्षेण प्राणं तन्व इवागतम् ।
+> प्रत्युज्जग्मुः प्रहर्षेण प्राणं तन्व इवागतम् ।\
 > अभिसङ्गम्य विधिवत्परिष्वङ्गाभिवादनैः ॥५॥
 
-> pratyujjagmuḥ praharṣeṇa
-> prāṇaṁ tanva ivāgatam
-> abhisaṅgamya vidhivat
+> pratyujjagmuḥ praharṣeṇa\
+> prāṇaṁ tanva ivāgatam\
+> abhisaṅgamya vidhivat\
 > pariṣvaṅgābhivādanaiḥ
 
 *prati*—towards; *ujjagmuḥ*—went; *praharṣeṇa*—with great delight; *prāṇam*—life; *tanvaḥ*—of the body; *iva*—like; *āgatam*—returned; *abhisaṅgamya*—approaching; *vidhi-vat*—in due form; *pariṣvaṅga*—embracing; *abhivādanaiḥ*—by obeisances.

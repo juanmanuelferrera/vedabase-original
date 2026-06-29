@@ -1,11 +1,11 @@
 ### SB 6.16.52
 
-> लोके विततमात्मानं लोकं चात्मनि सन्ततम
+> लोके विततमात्मानं लोकं चात्मनि सन्ततम\
 > उभयं च मया व्याप्तं मयि चैवोभयं कृतम ॥५२॥
 
-> loke vitatam ātmānaṁ
-> lokaṁ cātmani santatam
-> ubhayaṁ ca mayā vyāptaṁ
+> loke vitatam ātmānaṁ\
+> lokaṁ cātmani santatam\
+> ubhayaṁ ca mayā vyāptaṁ\
 > mayi caivobhayaṁ kṛtam
 
 *loke*—en el mundo material; *vitatam*—expandida (en el espíritu de disfrute material); *ātmānam*—la entidad viviente; *lokam*—el mundo material; *ca*—también; *ātmani*—en la entidad viviente; *santatam*—difundido; *ubhayam*—ambos (el mundo material de elementos materiales, y la entidad viviente); *ca*—y; *mayā*—por Mí; *vyāptam*—penetrados; *mayi*—en Mí; *ca*—también; *eva*—en verdad; *ubhayam*—ambos; *kṛtam*—creados.

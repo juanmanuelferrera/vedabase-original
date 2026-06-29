@@ -2,7 +2,7 @@
 
 > ‘কাঁহা বস্তু খাও সবে, মোরে না দেহ’ কেনে ?’ এত বলি’ এক গ্রাস করিলা ভক্ষণে ॥৩২২॥
 
-> kāṅhā vastu khāo sabe, more nā deha' kene?'
+> kāṅhā vastu khāo sabe, more nā deha' kene?'\
 > eta bali' eka grāsa karilā bhakṣaṇe
 
 *kāṅhā*—qué; *vastu*—cosas; *khāo*—coméis; *sabe*—todos; *more*—a Mí; *nā deha' kene*—por qué no Me dais; *eta bali'*—diciendo esto; *eka grāsa*—un bocado; *karilā bhakṣaṇe*—comió.

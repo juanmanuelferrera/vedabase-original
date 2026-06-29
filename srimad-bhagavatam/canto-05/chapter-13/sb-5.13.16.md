@@ -1,11 +1,11 @@
 ### SB 5.13.16
 
-> प्रसज्जति क्वापि लताभुजाश्रयस्तदाश्रयाव्यक्तपदद्विजस्पृहः
+> प्रसज्जति क्वापि लताभुजाश्रयस्तदाश्रयाव्यक्तपदद्विजस्पृहः\
 > क्वचित्कदाचिद्धरिचक्रतस्त्रसन्सख्यं विधत्ते बककङ्कगृध्रैः ॥१६॥
 
-> prasajjati kvāpi latā-bhujāśrayas
-> tad-āśrayāvyakta-pada-dvija-spṛhaḥ
-> kvacit kadācid dhari-cakratas trasan
+> prasajjati kvāpi latā-bhujāśrayas\
+> tad-āśrayāvyakta-pada-dvija-spṛhaḥ\
+> kvacit kadācid dhari-cakratas trasan\
 > sakhyaṁ vidhatte baka-kaṅka-gṛdhraiḥ
 
 *prasajjati*—becomes more and more attached; *kvāpi*—sometimes; *latā-bhuja-āśrayaḥ*—who takes shelter of the soft arms of his beautiful wife which are like creepers; *tat-āśraya*—who are sheltered by such creepers; *avyakta-pada*—who sing unclear songs; *dvija-spṛhaḥ*—desiring to hear birds; *kvacit*—sometimes; *kadācit*—somewhere; *hari-cakrataḥ trasan*—being afraid of the roaring sound of a lion; *sakhyam*—friendship; *vidhatte*—makes; *baka-kaṅka-gṛdhraiḥ*—with cranes, herons and vultures.

@@ -1,11 +1,11 @@
 ### SB 4.25.49
 
-> मुख्या नाम पुरस्ताद्द्वास्तयापणबहूदनौ ।
+> मुख्या नाम पुरस्ताद्द्वास्तयापणबहूदनौ ।\
 > विषयौ याति पुरराड्रसज्ञविपणान्वितः ॥४९॥
 
-> mukhyā nāma purastād dvās
-> tayāpaṇa-bahūdanau
-> viṣayau yāti pura-rāḍ
+> mukhyā nāma purastād dvās\
+> tayāpaṇa-bahūdanau\
+> viṣayau yāti pura-rāḍ\
 > rasajña-vipaṇānvitaḥ
 
 *mukhyā*—the chief; *nāma*—called; *purastāt*—on the eastern side; *dvāḥ*—gate; *tayā*—by that; *āpaṇa*—of the name Āpaṇa; *bahūdanau*—of the name Bahūdana; *viṣayau*—two places; *yāti*—used to go; *pura-rāṭ*—the King of the city (Purañjana); *rasa-jña*—of the name Rasajña; *vipaṇa*—of the name Vipaṇa; *anvitaḥ*—along with.

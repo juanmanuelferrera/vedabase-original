@@ -1,9 +1,9 @@
 ### CC Madhya 6.89
 
-> আচার্য কহে, — “বস্তু-বিষয়ে হয় বস্তু-জ্ঞান ।
+> আচার্য কহে, — “বস্তু-বিষয়ে হয় বস্তু-জ্ঞান ।\
 > বস্তুতত্ত্ব-জ্ঞান হয় কৃপাতে প্রমাণ ॥৮৯॥
 
-> ācārya kahe,—"vastu-viṣaye haya vastu-jñāna
+> ācārya kahe,—"vastu-viṣaye haya vastu-jñāna\
 > vastu-tattva-jñāna haya kṛpāte pramāṇa
 
 *ācārya kahe*—Gopīnātha Ācārya replied; *vastu-viṣaye*—in the matter of the summum bonum; *haya*—there is; *vastu-jñāna*—knowledge of the Supreme; *vastu-tattva*—of the Absolute Truth; *jñāna*—knowledge; *haya*—is; *kṛpāte*—of the mercy; *pramāṇa*—the evidence.

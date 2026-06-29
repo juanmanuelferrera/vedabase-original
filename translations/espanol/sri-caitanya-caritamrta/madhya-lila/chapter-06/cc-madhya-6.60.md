@@ -1,9 +1,9 @@
 ### CC Madhya 6.60
 
-> তোমার সঙ্গ লাগি’ মোর ইহাঁ আগমন ।
+> তোমার সঙ্গ লাগি’ মোর ইহাঁ আগমন ।\
 > সর্বপ্রকারে করিবে আমায় পালন ॥৬০॥
 
-> tomāra saṅga lāgi' mora ihāṅ āgamana
+> tomāra saṅga lāgi' mora ihāṅ āgamana\
 > sarva-prakāre karibe āmāya pālana
 
 *tomāra*—tu; *saṅga*—asociación; *lāgi'*—con el fin de; *mora*—Mi; *ihāṅ*—aquí; *āgamana*—llegada; *sarva-prakāre*—en todos los aspectos; *karibe*—harás; *āmāya*—a Mí; *pālana*—mantener.

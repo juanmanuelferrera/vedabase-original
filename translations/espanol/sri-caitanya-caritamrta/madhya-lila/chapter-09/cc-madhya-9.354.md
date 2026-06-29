@@ -1,9 +1,9 @@
 ### CC Madhya 9.354
 
-> প্রভু তাঁরে পাঠাইল ভোজন করিতে ৷
+> প্রভু তাঁরে পাঠাইল ভোজন করিতে ৷\
 > সেই রাত্রি তাঁর ঘরে রহিলা তাঁর প্রীতে ৷৷ ৩৫৪ ৷৷ ॥৩৫৪॥
 
-> prabhu tāṅre pāṭhāila bhojana karite
+> prabhu tāṅre pāṭhāila bhojana karite\
 > sei rātri tāṅra ghare rahilā tāṅra prīte
 
 *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a él; *pāṭhāila*—envió; *bhojana karite*—a tomar el almuerzo; *sei rātri*—esa noche; *tāṅra ghare*—en su casa; *rahilā*—permaneció; *tāṅra prīte*—solo para complacerlo.

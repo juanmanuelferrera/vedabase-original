@@ -1,11 +1,11 @@
 ### SB 2.10.11
 
-> तास्ववात्सीत्स्वसृष्टासु सहस्रं परिवत्सरान् ।
+> तास्ववात्सीत्स्वसृष्टासु सहस्रं परिवत्सरान् ।\
 > तेन नारायणो नाम यदापः पुरुषोद्भवाः ॥११॥
 
-> tāsv avātsīt sva-sṛṣṭāsu
-> sahasraṁ parivatsarān
-> tena nārāyaṇo nāma
+> tāsv avātsīt sva-sṛṣṭāsu\
+> sahasraṁ parivatsarān\
+> tena nārāyaṇo nāma\
 > yad āpaḥ puruṣodbhavāḥ
 
 *tāsu*—in that; *avātsīt*—resided; *sva*—own; *sṛṣṭāsu*—in the matter of creation; *sahasram*—one thousand; *parivatsarān*—years of His measurement; *tena*—for that reason; *nārāyaṇaḥ*—the Personality of Godhead named Nārāyaṇa; *nāma*—name; *yat*—because; *āpaḥ*—water; *puruṣa-udbhavāḥ*—emanated from the Supreme Person.

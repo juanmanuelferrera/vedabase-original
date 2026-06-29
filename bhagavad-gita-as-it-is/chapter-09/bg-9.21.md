@@ -1,13 +1,13 @@
 ### Bg 9.21
 
-> ते तं भुक्त्वा स्वर्गलोकं विशालं
-> क्षीणे पुण्ये मर्त्यलोकं विशन्ति ।
-> एवं त्रयीधर्ममनुप्रपन्ना
+> ते तं भुक्त्वा स्वर्गलोकं विशालं\
+> क्षीणे पुण्ये मर्त्यलोकं विशन्ति ।\
+> एवं त्रयीधर्ममनुप्रपन्ना\
 > गतागतं कामकामा लभन्ते ॥२१॥
 
-> te taṁ bhuktvā svarga-lokaṁ viśālaṁ
-> kṣīṇe puṇye martya-lokaṁ viśanti
-> evaṁ trayī-dharmam anuprapannā
+> te taṁ bhuktvā svarga-lokaṁ viśālaṁ\
+> kṣīṇe puṇye martya-lokaṁ viśanti\
+> evaṁ trayī-dharmam anuprapannā\
 > gatāgataṁ kāma-kāmā labhante
 
 *te*—they; *tam*—that; *bhuktvā*—enjoying; *svarga-lokam*—heaven; *viśālam*—vast; *kṣīṇe*—being exhausted; *puṇye*—merits; *martya-lokam*—mortal earth; *viśanti*—fall down; *evam*—thus; *trayī*—three *Vedas*; *dharmam*—doctrines; *anuprapannāḥ*—following; *gata-agatam*—death and birth; *kāma-kāmāḥ*—desiring sense enjoyments; *labhante*—attain.

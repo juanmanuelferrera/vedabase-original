@@ -1,11 +1,11 @@
 ### SB 4.27.13
 
-> चण्डवेग इति ख्यातो गन्धर्वाधिपतिर्नृप ।
+> चण्डवेग इति ख्यातो गन्धर्वाधिपतिर्नृप ।\
 > गन्धर्वास्तस्य बलिनः षष्ट्युत्तरशतत्रयम् ॥१३॥
 
-> caṇḍavega iti khyāto
-> gandharvādhipatir nṛpa
-> gandharvās tasya balinaḥ
+> caṇḍavega iti khyāto\
+> gandharvādhipatir nṛpa\
+> gandharvās tasya balinaḥ\
 > ṣaṣṭy-uttara-śata-trayam
 
 *caṇḍavegaḥ*—Caṇḍavega; *iti*—de este modo; *khyātaḥ*—famoso; *gandharva*—perteneciente a Gandharvaloka; *adhipatiḥ*—rey; *nṛpa*—¡oh, rey!; *gandharvāḥ*—otros *gandharvas*; *tasya*—sus; *balinaḥ*—solados muy poderosos; *ṣaṣṭi*—sesenta; *uttara*—más de; *śata*—cien; *trayam*—tres.

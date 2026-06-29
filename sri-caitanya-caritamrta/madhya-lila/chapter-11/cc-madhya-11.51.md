@@ -1,9 +1,9 @@
 ### CC Madhya 11.51
 
-> ভট্টাচার্য কহে — দেব না কর বিষাদ ।
+> ভট্টাচার্য কহে — দেব না কর বিষাদ ।\
 > তোমারে প্রভুর অবশ্য হইবে প্রসাদ ॥৫১॥
 
-> bhaṭṭācārya kahe-deva nā kara viṣāda
+> bhaṭṭācārya kahe-deva nā kara viṣāda\
 > tomāre prabhura avaśya ha-ibe prasāda
 
 *bhaṭṭācārya kahe*—the Bhaṭṭācārya said; *deva*—O King; *nā kara viṣāda*—do not be worried; *tomāre*—unto you; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *avaśya*—certainly; *ha-ibe*—there must be; *prasāda*—mercy.

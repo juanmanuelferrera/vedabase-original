@@ -1,11 +1,11 @@
 ### SB 9.11.10
 
-> इति लोकाद्बहुमुखाद्दुराराध्यादसंविदः
+> इति लोकाद्बहुमुखाद्दुराराध्यादसंविदः\
 > पत्या भीतेन सा त्यक्ता प्राप्ता प्राचेतसाश्रमम ॥१०॥
 
-> iti lokād bahu-mukhād
-> durārādhyād asaṁvidaḥ
-> patyā bhītena sā tyaktā
+> iti lokād bahu-mukhād\
+> durārādhyād asaṁvidaḥ\
+> patyā bhītena sā tyaktā\
 > prāptā prācetasāśramam
 
 *iti*—thus; *lokāt*—from persons; *bahu-mukhāt*—who can talk nonsensically in various ways; *durārādhyāt*—whom it is very difficult to stop; *asaṁvidaḥ*—who are without full knowledge; *patyā*—by the husband; *bhītena*—being afraid; *sā*—mother Sītā; *tyaktā*—was abandoned; *prāptā*—went; *prācetasa-āśramam*—to the hermitage of Prācetasa (Vālmīki Muni).

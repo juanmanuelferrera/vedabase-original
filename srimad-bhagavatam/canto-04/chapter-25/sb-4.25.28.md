@@ -1,11 +1,11 @@
 ### SB 4.25.28
 
-> त्वं ह्रीर्भवान्यस्यथ वाग्रमा पतिं विचिन्वती किं मुनिवद्रहो वने ।
+> त्वं ह्रीर्भवान्यस्यथ वाग्रमा पतिं विचिन्वती किं मुनिवद्रहो वने ।\
 > त्वदङ्घ्रिकामाप्तसमस्तकामं क्व पद्मकोशः पतितः कराग्रात् ॥२८॥
 
-> tvaṁ hrīr bhavāny asy atha vāg ramā patiṁ
-> vicinvatī kiṁ munivad raho vane
-> tvad-aṅghri-kāmāpta-samasta-kāmaṁ
+> tvaṁ hrīr bhavāny asy atha vāg ramā patiṁ\
+> vicinvatī kiṁ munivad raho vane\
+> tvad-aṅghri-kāmāpta-samasta-kāmaṁ\
 > kva padma-kośaḥ patitaḥ karāgrāt
 
 *tvam*—you; *hrīḥ*—shyness; *bhavānī*—the wife of Lord Śiva; *asi*—are; *atha*—rather; *vāk*—Sarasvatī, the goddess of learning; *ramā*—the goddess of fortune; *patim*—husband; *vicinvatī*—searching after, thinking of; *kim*—are you; *muni-vat*—like a sage; *rahaḥ*—in this lonely place; *vane*—in the forest; *tvat-aṅghri*—your feet; *kāma*—desiring; *āpta*—achieved; *samasta*—all; *kāmam*—desirable things; *kva*—where is; *padma-kośaḥ*—the lotus flower; *patitaḥ*—fallen; *kara*—of the hand; *agrāt*—from the front portion, or palm.

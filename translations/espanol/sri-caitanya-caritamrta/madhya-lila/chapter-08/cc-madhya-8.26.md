@@ -1,9 +1,9 @@
 ### CC Madhya 8.26
 
-> এই ত’ সন্ন্যাসীর তেজ দেখি ব্রহ্মসম ৷
+> এই ত’ সন্ন্যাসীর তেজ দেখি ব্রহ্মসম ৷\
 > শূদ্রে আলিঙ্গিয়া কেনে করেন ক্রন্দন ৷৷ ২৬ ৷৷ ॥২৬॥
 
-> ei ta' sannyāsīra teja dekhi brahma-sama
+> ei ta' sannyāsīra teja dekhi brahma-sama\
 > śūdre āliṅgiyā kene karena krandana
 
 *ei ta'*—esto en verdad; *sannyāsīra*—del *sannyāsī*, Śrī Caitanya Mahāprabhu; *teja*—fulgor corporal; *dekhi*—vemos; *brahma-sama*—exactamente como el Brahman; *śūdre*—a un *śūdra*, u obrero; *āliṅgiyā*—abrazando; *kene*—¿por qué?; *karena*—hace; *krandana*—llorando.

@@ -1,13 +1,13 @@
 ### CC Madhya 24.207
 
-> গা গোপকৈরনুবনং নয়তোরুদার-
-> বেণুস্বনৈঃ কলপদৈস্তনুভৃৎসু সখ্যঃ ।
-> অস্পন্দনং গতিমতাং পুলকস্তরূণাং
+> গা গোপকৈরনুবনং নয়তোরুদার-\
+> বেণুস্বনৈঃ কলপদৈস্তনুভৃৎসু সখ্যঃ ।\
+> অস্পন্দনং গতিমতাং পুলকস্তরূণাং\
 > নির্যোগপাশকৃতলক্ষণয়োর্বিচিত্রম্ ॥২০৭॥
 
-> gā gopakair anuvanaṁ nayator udāra-
-> veṇu-svanaiḥ kala-padais tanu-bhṛtsu sakhyaḥ
-> aspandanaṁ gatimatāṁ pulakas tarūṇāṁ
+> gā gopakair anuvanaṁ nayator udāra-\
+> veṇu-svanaiḥ kala-padais tanu-bhṛtsu sakhyaḥ\
+> aspandanaṁ gatimatāṁ pulakas tarūṇāṁ\
 > niryoga-pāśa-kṛta-lakṣaṇayor vicitram
 
 *gāḥ*—the cows; *gopakaiḥ*—with the cowherd boys; *anuvanam*—to each forest; *nayatoḥ*—leading; *udāra*—very liberal; *veṇu-svanaiḥ*—by the vibrations of the flutes; *kala-padaiḥ*—having sweet tones; *tanu-bhṛtsu*—among the living entities; *sakhyaḥ*—O friends; *aspandanam*—the lack of movement; *gatimatām*—of those living entities that can move; *pulakaḥ*—the ecstatic jubilation; *tarūṇām*—of the otherwise nonmoving trees; *niryoga-pāśa*—the ropes for binding the rear legs of the cows; *kṛta-lakṣaṇayoḥ*—of those two (Kṛṣṇa and Balarāma), who are characterized by; *vicitram*—wonderful.

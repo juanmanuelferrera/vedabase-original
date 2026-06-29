@@ -1,11 +1,11 @@
 ### SB 9.14.46
 
-> तस्य निर्मन्थनाज्जातो जातवेदा विभावसुः
+> तस्य निर्मन्थनाज्जातो जातवेदा विभावसुः\
 > त्रय्या स विद्यया राज्ञआ पुत्रत्वे कल्पितस्त्रिवृत ॥४६॥
 
-> tasya nirmanthanāj jāto
-> jāta-vedā vibhāvasuḥ
-> trayyā sa vidyayā rājñā
+> tasya nirmanthanāj jāto\
+> jāta-vedā vibhāvasuḥ\
+> trayyā sa vidyayā rājñā\
 > putratve kalpitas tri-vṛt
 
 *tasya*—de Purūravā; *nirmanthanāt*—debido a la interacción; *jātaḥ*—nació; *jāta-vedāḥ*—destinado al disfrute material conforme a los principios védicos; *vibhāvasuḥ*—un fuego; *trayyā*—siguiendo los principios védicos; *saḥ*—el fuego; *vidyayā*—con ese proceso; *rājñā*—por el rey; *putratve*—nacer un hijo; *kalpitaḥ*—se volvió; *tri-vṛt*—las tres letras *a-u-m* unidas en la palabra *oṁ*.

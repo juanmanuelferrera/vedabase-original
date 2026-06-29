@@ -1,11 +1,11 @@
 ### SB 9.6.4
 
-> क्षुवतस्तु मनोर्जज्ञए इक्ष्वाकुर्घ्राणतः सुतः
+> क्षुवतस्तु मनोर्जज्ञए इक्ष्वाकुर्घ्राणतः सुतः\
 > तस्य पुत्रशतज्येष्ठा विकुक्षिनिमिदण्डकाः ॥४॥
 
-> kṣuvatas tu manor jajñe
-> ikṣvākur ghrāṇataḥ sutaḥ
-> tasya putra-śata-jyeṣṭhā
+> kṣuvatas tu manor jajñe\
+> ikṣvākur ghrāṇataḥ sutaḥ\
+> tasya putra-śata-jyeṣṭhā\
 > vikukṣi-nimi-daṇḍakāḥ
 
 *kṣuvataḥ*—mientras estornudaba; *tu*—pero; *manoḥ*—de Manu; *jajñe*—nació; *ikṣvākuḥ*—llamado Ikṣvāku; *ghrāṇataḥ*—de las fosas nasales; *sutaḥ*—el hijo; *tasya*—de Ikṣvāku; *putra-śata*—cien hijos; *jyeṣṭhāḥ*—destacados; *vikukṣi*—llamado Vikukṣi; *nimi*—llamado Nimi; *daṇḍakāḥ*—llamado Daṇḍakā.

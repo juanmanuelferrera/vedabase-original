@@ -1,13 +1,13 @@
 ### SB 3.27.1
 
-> श्रीभगवानुवाच
-> प्रकृतिस्थोऽपि पुरुषो नाज्यते प्राकृतैर्गुणैः ।
+> श्रीभगवानुवाच\
+> प्रकृतिस्थोऽपि पुरुषो नाज्यते प्राकृतैर्गुणैः ।\
 > अविकारादकर्तृत्वान्निर्गुणत्वाज्जलार्कवत् ॥१॥
 
-> śrī-bhagavān uvāca
-> prakṛti-stho 'pi puruṣo
-> nājyate prākṛtair guṇaiḥ
-> avikārād akartṛtvān
+> śrī-bhagavān uvāca\
+> prakṛti-stho 'pi puruṣo\
+> nājyate prākṛtair guṇaiḥ\
+> avikārād akartṛtvān\
 > nirguṇatvāj jalārkavat
 
 *śrī-bhagavān uvāca*—la Personalidad de Dios dijo; *prakṛti-sthaḥ*—residiendo en el cuerpo material; *api*—aunque; *puruṣaḥ*—la entidad viviente; *na*—no; *ajyate*—es influida; *prākṛtaiḥ*—de la naturaleza material; *guṇaiḥ*—por las modalidades; *avikārāt*—por ser inmutable; *akartṛtvāt*—por estar liberada del sentimiento de propiedad; *nirguṇatvāt*—por estar libre de la influencia de las cualidades de la naturaleza material; *jala*—sobre el agua; *arkavat*—como el sol.

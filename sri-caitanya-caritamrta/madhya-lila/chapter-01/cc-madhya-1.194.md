@@ -1,9 +1,9 @@
 ### CC Madhya 1.194
 
-> সবে এক দোষ তার, হয় পাপাচার ।
+> সবে এক দোষ তার, হয় পাপাচার ।\
 > পাপরাশি দহে নামাভাসেই তোমার ॥১৯৪॥
 
-> sabe eka doṣa tāra, haya pāpācāra
+> sabe eka doṣa tāra, haya pāpācāra\
 > pāpa-rāśi dahe nāmābhāsei tomāra
 
 *sabe*—in all; *eka*—one only; *doṣa*—fault; *tāra*—of them; *haya*—they are; *pāpa-ācāra*—attached to sinful activities; *pāpa-rāśi*—volumes of sinful activities; *dahe*—become burned; *nāma-ābhāsei*—simply by the dim reflection of chanting the holy name; *tomāra*—of Your Lordship.

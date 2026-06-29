@@ -1,11 +1,11 @@
 ### SB 6.13.11
 
-> तयेन्द्रः स्मासहत्तापं निर्वृतिर्नामुमाविशत
+> तयेन्द्रः स्मासहत्तापं निर्वृतिर्नामुमाविशत\
 > ह्रीमन्तं वाच्यतां प्राप्तं सुखयन्त्यपि नो गुणाः ॥११॥
 
-> tayendraḥ smāsahat tāpaṁ
-> nirvṛtir nāmum āviśat
-> hrīmantaṁ vācyatāṁ prāptaṁ
+> tayendraḥ smāsahat tāpaṁ\
+> nirvṛtir nāmum āviśat\
+> hrīmantaṁ vācyatāṁ prāptaṁ\
 > sukhayanty api no guṇāḥ
 
 *tayā*—por esa acción; *indraḥ*—el rey Indra; *sma*—en verdad; *asahat*—padeció; *tāpam*—sufrimiento; *nirvṛtiḥ*—felicidad; *na*—no; *amum*—en él; *āviśat*—entró; *hrīmantam*—el que se avergüenza; *vācyatām*—mala fama; *prāptam*—obtener; *sukhayanti*—da placer; *api*—aunque; *no*—no; *guṇāḥ*—buenas cualidades, como poseer opulencia.

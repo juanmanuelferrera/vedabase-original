@@ -1,11 +1,11 @@
 ### SB 9.6.13
 
-> कृतान्त आसीत्समरो देवानां सह दानवैः
+> कृतान्त आसीत्समरो देवानां सह दानवैः\
 > पार्ष्णिग्राहो वृतो वीरो देवैर्दैत्यपराजितैः ॥१३॥
 
-> kṛtānta āsīt samaro
-> devānāṁ saha dānavaiḥ
-> pārṣṇigrāho vṛto vīro
+> kṛtānta āsīt samaro\
+> devānāṁ saha dānavaiḥ\
+> pārṣṇigrāho vṛto vīro\
 > devair daitya-parājitaiḥ
 
 *kṛta-antaḥ*—una guerra devastadora; *āsīt*—hubo; *samaraḥ*—un combate; *devānām*—de los semidioses; *saha*—con; *dānavaiḥ*—los demonios; *pārṣṇigrāhaḥ*—un buen asistente; *vṛtaḥ*—aceptaron; *vīraḥ*—un héroe; *devaiḥ*—por los semidioses; *daitya*—por los demonios; *parājitaiḥ*—que habían sido vencidos.

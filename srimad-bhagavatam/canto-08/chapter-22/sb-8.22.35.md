@@ -1,11 +1,11 @@
 ### SB 8.22.35
 
-> रक्षिष्ये सर्वतोऽहं त्वां सानुगं सपरिच्छदम
+> रक्षिष्ये सर्वतोऽहं त्वां सानुगं सपरिच्छदम\
 > सदा सन्निहितं वीर तत्र मां द्रक्ष्यते भवान ॥३५॥
 
-> rakṣiṣye sarvato 'haṁ tvāṁ
-> sānugaṁ saparicchadam
-> sadā sannihitaṁ vīra
+> rakṣiṣye sarvato 'haṁ tvāṁ\
+> sānugaṁ saparicchadam\
+> sadā sannihitaṁ vīra\
 > tatra māṁ drakṣyate bhavān
 
 *rakṣiṣye*—shall protect; *sarvataḥ*—in all respects; *aham*—I; *tvām*—you; *sa-anugam*—with your associates; *sa-paricchadam*—with your paraphernalia; *sadā*—always; *sannihitam*—situated nearby; *vīra*—O great hero; *tatra*—there, in your place; *mām*—Me; *drakṣyate*—will be able to see; *bhavān*—you.

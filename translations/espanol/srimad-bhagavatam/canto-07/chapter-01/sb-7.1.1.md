@@ -1,13 +1,13 @@
 ### SB 7.1.1
 
-> श्रीराजोवाच
-> समः प्रियः सुहृद्ब्रह्मन्भूतानां भगवान्स्वयम
+> श्रीराजोवाच\
+> समः प्रियः सुहृद्ब्रह्मन्भूतानां भगवान्स्वयम\
 > इन्द्रस्यार्थे कथं दैत्यानवधीद्विषमो यथा ॥१॥
 
-> śrī-rājovāca
-> samaḥ priyaḥ suhṛd brahman
-> bhūtānāṁ bhagavān svayam
-> indrasyārthe kathaṁ daityān
+> śrī-rājovāca\
+> samaḥ priyaḥ suhṛd brahman\
+> bhūtānāṁ bhagavān svayam\
+> indrasyārthe kathaṁ daityān\
 > avadhīd viṣamo yathā
 
 *śrī-rājā uvāca*—Mahārāja Parīkṣit dijo; *samaḥ*—ecuánime; *priyaḥ*—querido; *suhṛt*—amigo; *brahman*—¡oh, *brāhmaṇa*! (Śukadeva); *bhūtānām*—hacia todas las entidades vivientes; *bhagavān*—el Señor Supremo, Viṣṇu; *svayam*—Él mismo; *indrasya*—de Indra; *arthe*—para beneficio; *katham*—cómo; *daityān*—a los demonios; *avadhīt*—mató; *viṣamaḥ*—partidista; *yathā*—como si.

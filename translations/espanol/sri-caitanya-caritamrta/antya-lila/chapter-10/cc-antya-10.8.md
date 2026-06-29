@@ -1,9 +1,9 @@
 ### CC Antya 10.8
 
-> আজ্ঞা-পালনে কৃষ্ণের যৈছে পরিতোষ ।
+> আজ্ঞা-পালনে কৃষ্ণের যৈছে পরিতোষ ।\
 > প্রেমে আজ্ঞা ভাঙ্গিলে হয় কোটিসুখ-পোষ ॥৮॥
 
-> ājñā-pālane kṛṣṇera yaiche paritoṣa
+> ājñā-pālane kṛṣṇera yaiche paritoṣa\
 > preme ājñā bhāṅgile haya koṭi-sukha-poṣa
 
 *ājñā-pālane*—al cumplir la orden; *kṛṣṇera*—del Señor Kṛṣṇa; *yaiche*—así como; *paritoṣa*—felicidad; *preme*—en amor extático; *ājñā bhāṅgile*—cuando uno desobedece la orden; *haya*—hay; *koṭi-sukha-poṣa*—millones de veces más felicidad.

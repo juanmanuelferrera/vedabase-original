@@ -1,11 +1,11 @@
 ### SB 1.5.6
 
-> स वै भवान्वेद समस्तगुह्यमुपासितो यत्पुरुषः पुराणः ।
+> स वै भवान्वेद समस्तगुह्यमुपासितो यत्पुरुषः पुराणः ।\
 > परावरेशो मनसैव विश्वं सृजत्यवत्यत्ति गुणैरसङ्गः ॥६॥
 
-> sa vai bhavān veda samasta-guhyam
-> upāsito yat puruṣaḥ purāṇaḥ
-> parāvareśo manasaiva viśvaṁ
+> sa vai bhavān veda samasta-guhyam\
+> upāsito yat puruṣaḥ purāṇaḥ\
+> parāvareśo manasaiva viśvaṁ\
 > sṛjaty avaty atti guṇair asaṅgaḥ
 
 *saḥ*—thus; *vai*—certainly; *bhavān*—yourself; *veda*—know; *samasta*—all-inclusive; *guhyam*—confidential; *upāsitaḥ*—devotee of; *yat*—because; *puruṣaḥ*—the Personality of Godhead; *purāṇaḥ*—the oldest; *parāvareśaḥ*—the controller of the material and spiritual worlds; *manasā*—mind; *eva*—only; *viśvam*—the universe; *sṛjati*—creates; *avati atti*—annihilates; *guṇaiḥ*—by the qualitative matter; *asaṅgaḥ*—unattached.

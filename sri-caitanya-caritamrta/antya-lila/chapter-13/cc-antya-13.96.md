@@ -1,9 +1,9 @@
 ### CC Antya 13.96
 
-> “তুমি বড় লোক, পণ্ডিত, মহাভাগবতে ।
+> “তুমি বড় লোক, পণ্ডিত, মহাভাগবতে ।\
 > সেবা না করিহ, সুখে চল মোর সাথে ।।” ॥ ৯৬ ॥
 
-> "tumi baḍa loka, paṇḍita, mahā-bhāgavate
+> "tumi baḍa loka, paṇḍita, mahā-bhāgavate\
 > sevā nā kariha, sukhe cala mora sāthe"
 
 *tumi*—you; *baḍa loka*—a great personality; *paṇḍita*—a learned scholar; *mahā-bhāgavate*—a great devotee; *sevā nā kariha*—please do not serve; *sukhe*—happily; *cala*—go; *mora sāthe*—with me.

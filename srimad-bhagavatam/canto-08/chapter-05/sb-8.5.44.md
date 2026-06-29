@@ -1,11 +1,11 @@
 ### SB 8.5.44
 
-> नमोऽस्तु तस्मा उपशान्तशक्तये स्वाराज्यलाभप्रतिपूरितात्मने
+> नमोऽस्तु तस्मा उपशान्तशक्तये स्वाराज्यलाभप्रतिपूरितात्मने\
 > गुणेषु मायारचितेषु वृत्तिभिर्न सज्जमानाय नभस्वदूतये ॥४४॥
 
-> namo 'stu tasmā upaśānta-śaktaye
-> svārājya-lābha-pratipūritātmane
-> guṇeṣu māyā-raciteṣu vṛttibhir
+> namo 'stu tasmā upaśānta-śaktaye\
+> svārājya-lābha-pratipūritātmane\
+> guṇeṣu māyā-raciteṣu vṛttibhir\
 > na sajjamānāya nabhasvad-ūtaye
 
 *namaḥ*—our respectful obeisances; *astu*—let there be; *tasmai*—unto Him; *upaśānta-śaktaye*—who does not endeavor to achieve anything else, who is free from restlessness; *svārājya*—completely independent; *lābha*—of all gains; *pratipūrita*—fully achieved; *ātmane*—unto the Supreme Personality of Godhead; *guṇeṣu*—of the material world, which is moving because of the three modes of nature; *māyā-raciteṣu*—things created by the external energy; *vṛttibhiḥ*—by such activities of the senses; *na sajjamānāya*—one who does not become attached, or one who is above material pains and pleasures; *nabhasvat*—the air; *ūtaye*—unto the Lord, who has created this material world as His pastime.

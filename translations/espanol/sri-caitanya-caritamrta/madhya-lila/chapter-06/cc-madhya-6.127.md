@@ -1,9 +1,9 @@
 ### CC Madhya 6.127
 
-> সন্ন্যাসীর ধর্ম লাগি’ শ্রবণ মাত্র করি  ।
+> সন্ন্যাসীর ধর্ম লাগি’ শ্রবণ মাত্র করি  ।\
 > তুমি যেই অর্থ কর, বুঝিতে না পারি ।।” ১২৭ ॥১২৭॥
 
-> sannyāsīra dharma lāgi' śravaṇa mātra kari
+> sannyāsīra dharma lāgi' śravaṇa mātra kari\
 > tumi yei artha kara, bujhite nā pāri"
 
 *sannyāsīra*—de quien está en la orden de renuncia; *dharma*—la ocupación; *lāgi'*—por razón de; *śravaṇa*—escucha; *mātra*—solamente; *kari*—hago; *tumi*—tú; *yei*—cualquier; *artha*—significado; *kara*—presentas; *bujhite*—comprender; *nā*—no; *pāri*—puedo.

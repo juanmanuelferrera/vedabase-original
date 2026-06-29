@@ -1,11 +1,11 @@
 ### SB 6.5.35
 
-> चुक्रोध नारदायासौ पुत्रशोकविमूर्च्छितः
+> चुक्रोध नारदायासौ पुत्रशोकविमूर्च्छितः\
 > देवर्षिमुपलभ्याह रोषाद्विस्फुरिताधरः ॥३५॥
 
-> cukrodha nāradāyāsau
-> putra-śoka-vimūrcchitaḥ
-> devarṣim upalabhyāha
+> cukrodha nāradāyāsau\
+> putra-śoka-vimūrcchitaḥ\
+> devarṣim upalabhyāha\
 > roṣād visphuritādharaḥ
 
 *cukrodha*—became very angry; *nāradāya*—at the great sage Nārada Muni; *asau*—that one (Dakṣa); *putra-śoka*—due to lamentation for the loss of his children; *vimūrcchitaḥ*—almost fainting; *devarṣim*—the great sage Devarṣi Nārada; *upalabhya*—seeing; *āha*—he said; *roṣāt*—out of great anger; *visphurita*—trembling; *adharaḥ*—whose lips.

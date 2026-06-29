@@ -1,14 +1,14 @@
 ### SB 7.15.53
 
-> इन्द्रियाणि मनस्यूर्मौ वाचि वैकारिकं मनः
-> वाचं वर्णसमाम्नाये तमोंकारे स्वरे न्यसेत
+> इन्द्रियाणि मनस्यूर्मौ वाचि वैकारिकं मनः\
+> वाचं वर्णसमाम्नाये तमोंकारे स्वरे न्यसेत\
 > ओंकारं बिन्दौ नादे तं तं तु प्राणे महत्यमुम ॥५३॥
 
-> indriyāṇi manasy ūrmau
-> vāci vaikārikaṁ manaḥ
-> vācaṁ varṇa-samāmnāye
-> tam oṁkāre svare nyaset
-> oṁkāraṁ bindau nāde taṁ
+> indriyāṇi manasy ūrmau\
+> vāci vaikārikaṁ manaḥ\
+> vācaṁ varṇa-samāmnāye\
+> tam oṁkāre svare nyaset\
+> oṁkāraṁ bindau nāde taṁ\
 > taṁ tu prāṇe mahaty amum
 
 *indriyāṇi*—los sentidos (para la acción y para adquirir conocimiento); *manasi*—en la mente; *ūrmau*—en las olas del rechazo y la aceptación; *vāci*—en las palabras; *vaikārikam*—contaminada por cambios; *manaḥ*—la mente; *vācam*—las palabras; *varṇa-samāmnāye*—en el agregado de todos los alfabetos; *tam*—en la vibración; *oṁkāre*—en la concisa forma de *oṁkāra*; *svare*—en la vibración; *nyaset*—se debe abandonar; *oṁkāram*—la concisa vibración sonora; *bindau*—en el punto de *oṁkāra*; *nāde*—en la vibración sonora; *tam*—ese; *tam*—ese (vibración sonora); *tu*—en verdad; *prāṇe*—en el aire vital; *mahati*—al Supremo; *amum*—la entidad viviente.

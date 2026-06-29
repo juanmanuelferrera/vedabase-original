@@ -1,9 +1,9 @@
 ### CC Adi 17.100
 
-> মহেশ-আবেশ হৈলা শচীর নন্দন ।
+> মহেশ-আবেশ হৈলা শচীর নন্দন ।\
 > তার স্কন্ধে চড়ি নৃত্য কৈল বহুক্ষণ ॥১০০॥
 
-> maheśa-āveśa hailā śacīra nandana
+> maheśa-āveśa hailā śacīra nandana\
 > tāra skandhe caḍi nṛtya kaila bahu-kṣaṇa
 
 *maheśa-aveśa*—in the mood of Lord Śiva; *hailā*—became; *śacīra*—of mother Śacī; *nandana*—son; *tāra skandhe*—on his shoulder; *caḍi*—getting on; *nṛtya*—dance; *kaila*—did; *bahu-kṣaṇa*—for a long time.

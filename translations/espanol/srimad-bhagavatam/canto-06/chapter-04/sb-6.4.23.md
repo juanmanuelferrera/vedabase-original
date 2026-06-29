@@ -1,13 +1,13 @@
 ### SB 6.4.23
 
-> श्रीप्रजापतिरुवाच
-> नमः परायावितथानुभूतये गुणत्रयाभासनिमित्तबन्धवे
+> श्रीप्रजापतिरुवाच\
+> नमः परायावितथानुभूतये गुणत्रयाभासनिमित्तबन्धवे\
 > अदृष्टधाम्ने गुणतत्त्वबुद्धिभिर्निवृत्तमानाय दधे स्वयम्भुवे ॥२३॥
 
-> śrī-prajāpatir uvāca
-> namaḥ parāyāvitathānubhūtaye
-> guṇa-trayābhāsa-nimitta-bandhave
-> adṛṣṭa-dhāmne guṇa-tattva-buddhibhir
+> śrī-prajāpatir uvāca\
+> namaḥ parāyāvitathānubhūtaye\
+> guṇa-trayābhāsa-nimitta-bandhave\
+> adṛṣṭa-dhāmne guṇa-tattva-buddhibhir\
 > nivṛtta-mānāya dadhe svayambhuve
 
 *śrī-prajāpatiḥ uvāca*—el *prajāpati* Dakṣa dijo; *namaḥ*—reverencias respetuosas; *parāya*—a la Realidad Trascendental; *avitatha*—correcta; *anubhūtaye*—a Aquel cuya potencia espiritual hace que sea posible percibirle; *guṇa-traya*—de las tres modalidades de la naturaleza material; *ābhāsa*—de las entidades vivientes que tienen la apariencia; *nimitta*—y de la energía material; *bandhave*—al controlador; *adṛṣṭa-dhāmne*—a quien no Se percibe en Su morada; *guṇa-tattva-buddhibhiḥ*—por las almas condicionadas, cuya pobre inteligencia les dicta que la auténtica verdad se halla en las manifestaciones de las tres modalidades de la naturaleza material; *nivṛtta-mānāya*—que ha superado todas las medidas y cálculos materiales; *dadhe*—yo ofrezco; *svayambhuve*—al Señor Supremo, que Se manifiesta sin otra causa que Él mismo.

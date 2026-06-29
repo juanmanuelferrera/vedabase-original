@@ -1,9 +1,9 @@
 ### CC Antya 5.13
 
-> “দুই দেব-কন্যা হয় পরম-সুন্দরী  ।
+> “দুই দেব-কন্যা হয় পরম-সুন্দরী  ।\
 > নৃত্য-গীতে সুনিপুণা, বয়সে কিশোরী ॥১৩॥
 
-> "dui deva-kanyā haya parama-sundarī
+> "dui deva-kanyā haya parama-sundarī\
 > nṛtya-gīte sunipuṇā, vayase kiśorī
 
 *dui*—two; *deva-kanyā*—dancing girls; *haya*—are; *parama-sundarī*—very, very beautiful; *nṛtya-gīte*—in singing and dancing; *su-nipuṇā*—very expert; *vayase*—in age; *kiśorī*—very young.

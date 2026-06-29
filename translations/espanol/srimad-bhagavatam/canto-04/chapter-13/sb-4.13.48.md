@@ -1,11 +1,11 @@
 ### SB 4.13.48
 
-> विज्ञाय निर्विद्य गतं पतिं प्रजाः पुरोहितामात्यसुहृद्गणादयः ।
+> विज्ञाय निर्विद्य गतं पतिं प्रजाः पुरोहितामात्यसुहृद्गणादयः ।\
 > विचिक्युरुर्व्यामतिशोककातरा यथा निगूढं पुरुषं कुयोगिनः ॥४८॥
 
-> vijñāya nirvidya gataṁ patiṁ prajāḥ
-> purohitāmātya-suhṛd-gaṇādayaḥ
-> vicikyur urvyām atiśoka-kātarā
+> vijñāya nirvidya gataṁ patiṁ prajāḥ\
+> purohitāmātya-suhṛd-gaṇādayaḥ\
+> vicikyur urvyām atiśoka-kātarā\
 > yathā nigūḍhaṁ puruṣaṁ kuyoginaḥ
 
 *vijñāya*—después de saber; *nirvidya*—sintiendo indiferencia; *gatam*—se había ido; *patim*—el rey; *prajāḥ*—todos los ciudadanos; *purohita*—sacerdotes; *a mātya*—ministros; *suhṛt*—amigos; *gaṇa-ādayaḥ*—y gente en general; *vicikyuḥ*—buscaron; *urvyām*—en la Tierra; *ati-śoka-kātarāḥ*—sintiéndose muy apenados; *yathā*—tal como; *nigūḍham*—oculta; *puruṣam*—a la Superalma; *ku-yoginaḥ*—místicos inexpertos.

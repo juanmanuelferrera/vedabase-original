@@ -1,9 +1,9 @@
 ### CC Madhya 22.13
 
-> সেই দোষে মায়া-পিশাচী দণ্ড করে তারে ।
+> সেই দোষে মায়া-পিশাচী দণ্ড করে তারে ।\
 > আধ্যাত্মিকাদি তাপত্রয় তারে জারি’ মারে ॥১৩॥
 
-> sei doṣe māyā-piśācī daṇḍa kare tāre
+> sei doṣe māyā-piśācī daṇḍa kare tāre\
 > ādhyātmikādi tāpa-traya tāre jāri, māre
 
 *sei doṣe*—debido a esta falta; *māyā-piśācī*—la bruja conocida como la energía externa; *daṇḍa kare*—castiga; *tāre*—a él; *ādhyātmika-ādi*—comenzando por las que se refieren al cuerpo y la mente; *tāpa-traya*—las tres clases de sufrimientos; *tāre*—a él; *jāri'*—quemándolo; *māre*—le causa dolor.

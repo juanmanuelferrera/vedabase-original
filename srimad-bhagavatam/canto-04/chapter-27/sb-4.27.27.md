@@ -1,11 +1,11 @@
 ### SB 4.27.27
 
-> कालकन्योदितवचो निशम्य यवनेश्वरः ।
+> कालकन्योदितवचो निशम्य यवनेश्वरः ।\
 > चिकीर्षुर्देवगुह्यं स सस्मितं तामभाषत ॥२७॥
 
-> kāla-kanyodita-vaco
-> niśamya yavaneśvaraḥ
-> cikīrṣur deva-guhyaṁ sa
+> kāla-kanyodita-vaco\
+> niśamya yavaneśvaraḥ\
+> cikīrṣur deva-guhyaṁ sa\
 > sasmitaṁ tām abhāṣata
 
 *kāla-kanyā*—by the daughter of Time; *udita*—expressed; *vacaḥ*—words; *niśamya*—hearing; *yavana-īśvaraḥ*—the King of the Yavanas; *cikīrṣuḥ*—desiring to execute; *deva*—of providence; *guhyam*—confidential duty; *saḥ*—he; *sa-smitam*—smilingly; *tām*—her; *abhāṣata*—addressed.

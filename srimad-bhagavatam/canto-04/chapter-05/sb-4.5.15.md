@@ -1,11 +1,11 @@
 ### SB 4.5.15
 
-> रुरुजुर्यज्ञपात्राणि तथैकेऽग्नीननाशयन् ।
+> रुरुजुर्यज्ञपात्राणि तथैकेऽग्नीननाशयन् ।\
 > कुण्डेष्वमूत्रयन्केचिद्बिभिदुर्वेदिमेखलाः ॥१५॥
 
-> rurujur yajña-pātrāṇi
-> tathaike 'gnīn anāśayan
-> kuṇḍeṣv amūtrayan kecid
+> rurujur yajña-pātrāṇi\
+> tathaike 'gnīn anāśayan\
+> kuṇḍeṣv amūtrayan kecid\
 > bibhidur vedi-mekhalāḥ
 
 *rurujuḥ*—broke; *yajña-pātrāṇi*—the pots used in the sacrifice; *tathā*—so; *eke*—some; *agnīn*—the sacrificial fires; *anāśayan*—extinguished; *kuṇḍeṣu*—on the sacrificial arenas; *amūtrayan*—passed urine; *kecit*—some; *bibhiduḥ*—tore down; *vedi-mekhalāḥ*—the boundary lines of the sacrificial arena.

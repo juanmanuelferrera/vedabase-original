@@ -1,11 +1,11 @@
 ### SB 7.1.8
 
-> जयकाले तु सत्त्वस्य देवर्षीन्रजसोऽसुरान
+> जयकाले तु सत्त्वस्य देवर्षीन्रजसोऽसुरान\
 > तमसो यक्षरक्षांसि तत्कालानुगुणोऽभजत ॥८॥
 
-> jaya-kāle tu sattvasya
-> devarṣīn rajaso 'surān
-> tamaso yakṣa-rakṣāṁsi
+> jaya-kāle tu sattvasya\
+> devarṣīn rajaso 'surān\
+> tamaso yakṣa-rakṣāṁsi\
 > tat-kālānuguṇo 'bhajat
 
 *jaya-kāle*—in the time of prominence; *tu*—indeed; *sattvasya*—of goodness; *deva*—the demigods; *ṛṣīn*—and the sages; *rajasaḥ*—of passion; *asurān*—the demons; *tamasaḥ*—of ignorance; *yakṣa-rakṣāṁsi*—the Yakṣas and Rākṣasas; *tat-kāla-anuguṇaḥ*—according to the particular time; *abhajat*—fostered.

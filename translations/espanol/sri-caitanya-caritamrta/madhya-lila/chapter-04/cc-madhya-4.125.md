@@ -1,9 +1,9 @@
 ### CC Madhya 4.125
 
-> গ্রামের শূন্যহাটে বসি’ করেন কীর্তন ।
+> গ্রামের শূন্যহাটে বসি’ করেন কীর্তন ।\
 > এথা পূজারী করাইল ঠাকুরে শয়ন ॥১২৫॥
 
-> grāmera śūnya-hāṭe vasi' karena kīrtana
+> grāmera śūnya-hāṭe vasi' karena kīrtana\
 > ethā pūjārī karāila ṭhākure śayana
 
 *grāmera*—de la aldea; *śūnya-hāṭe*—en la plaza vacía del mercado; *vasi'*—sentándose; *karena*—realiza; *kīrtana*—canto; *ethā*—en el templo; *pūjārī*—el sacerdote; *karāila*—dispuso; *ṭhākure*—la Deidad; *śayana*—acostarse.

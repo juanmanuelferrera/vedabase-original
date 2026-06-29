@@ -1,15 +1,15 @@
 ### SB 3.16.26
 
-> श्रीभगवानुवाच
-> एतौ सुरेतरगतिं प्रतिपद्य सद्यः
-> संरम्भसम्भृतसमाध्यनुबद्धयोगौ ।
-> भूयः सकाशमुपयास्यत आशु यो वः
+> श्रीभगवानुवाच\
+> एतौ सुरेतरगतिं प्रतिपद्य सद्यः\
+> संरम्भसम्भृतसमाध्यनुबद्धयोगौ ।\
+> भूयः सकाशमुपयास्यत आशु यो वः\
 > शापो मयैव निमितस्तदवेत विप्राः ॥२६॥
 
-> śrī-bhagavān uvāca
-> etau suretara-gatiṁ pratipadya sadyaḥ
-> saṁrambha-sambhṛta-samādhy-anubaddha-yogau
-> bhūyaḥ sakāśam upayāsyata āśu yo vaḥ
+> śrī-bhagavān uvāca\
+> etau suretara-gatiṁ pratipadya sadyaḥ\
+> saṁrambha-sambhṛta-samādhy-anubaddha-yogau\
+> bhūyaḥ sakāśam upayāsyata āśu yo vaḥ\
 > śāpo mayaiva nimitas tad aveta viprāḥ
 
 *śrī-bhagavān uvāca*—the Supreme Personality of Godhead replied; *etau*—these two doorkeepers; *sura-itara*—demoniac; *gatim*—the womb; *pratipadya*—obtaining; *sadyaḥ*—quickly; *saṁrambha*—by anger; *sambhṛta*—intensified; *samādhi*—concentration of mind; *anubaddha*—firmly; *yogau*—united with Me; *bhūyaḥ*—again; *sakāśam*—to My presence; *upayāsyataḥ*—shall return; *āśu*—shortly; *yaḥ*—which; *vaḥ*—of you; *śāpaḥ*—curse; *mayā*—by Me; *eva*—alone; *nimitaḥ*—ordained; *tat*—that; *aveta*—know; *viprāḥ*—O *brāhmaṇas.*

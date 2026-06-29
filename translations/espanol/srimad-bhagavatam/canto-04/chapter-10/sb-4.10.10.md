@@ -1,11 +1,11 @@
 ### SB 4.10.10
 
-> तेऽपि चामुममृष्यन्तः पादस्पर्शमिवोरगाः ।
+> तेऽपि चामुममृष्यन्तः पादस्पर्शमिवोरगाः ।\
 > शरैरविध्यन्युगपद्द्विगुणं प्रचिकीर्षवः ॥१०॥
 
-> te 'pi cāmum amṛṣyantaḥ
-> pāda-sparśam ivoragāḥ
-> śarair avidhyan yugapad
+> te 'pi cāmum amṛṣyantaḥ\
+> pāda-sparśam ivoragāḥ\
+> śarair avidhyan yugapad\
 > dvi-guṇaṁ pracikīrṣavaḥ
 
 *te*—los *yakṣas*; *api*—también; *ca*—y; *amum*—a Dhruva; *amṛṣyantaḥ*—no pudiendo soportar; *pāda-sparśam*—ser tocadas por los pies; *iva*—como; *uragāḥ*—serpientes; *śaraiḥ*—con flechas; *avidhyan*—dispararon; *yugapat*—a la vez; *dvi-guṇam*—el doble; *pracikīrṣavaḥ*—tratando de desquitarse.

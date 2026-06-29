@@ -1,11 +1,11 @@
 ### SB 2.2.19
 
-> इत्थं मुनिस्तूपरमेद्व्यवस्थितो विज्ञानदृग्वीर्यसुरन्धिताशयः ।
+> इत्थं मुनिस्तूपरमेद्व्यवस्थितो विज्ञानदृग्वीर्यसुरन्धिताशयः ।\
 > स्वपार्ष्णिनापीड्य गुदं ततोऽनिलं स्थानेषु षट्सून्नमयेज्जितक्लमः ॥१९॥
 
-> itthaṁ munis tūparamed vyavasthito
-> vijñāna-dṛg-vīrya-surandhitāśayaḥ
-> sva-pārṣṇināpīḍya gudaṁ tato 'nilaṁ
+> itthaṁ munis tūparamed vyavasthito\
+> vijñāna-dṛg-vīrya-surandhitāśayaḥ\
+> sva-pārṣṇināpīḍya gudaṁ tato 'nilaṁ\
 > sthāneṣu ṣaṭsūnnamayej jita-klamaḥ
 
 *ittham*—así pues, mediante la comprensión Brahman; *muniḥ*—el filósofo; *tu*—pero; *uparamet*—debe retirarse; *vyavasthitaḥ*—bien situado; *vijñāna-dṛk*—por medio del conocimiento científico; *vīrya*—fuerza; *su-randhita*—bien regulado; *āśayaḥ*—el objetivo de la vida; *sva-pārṣṇinā*—con el talón del pie; *āpīḍya*—obstruyendo; *gudam*—el orificio del aire; *tataḥ*—después; *anilam*—el aire vital; *sthāneṣu*—en los lugares; *ṣaṭsu*—seis principales; *unnamayet*—debe ser elevado; *jita-klamaḥ*—mediante la extinción de los deseos materiales.

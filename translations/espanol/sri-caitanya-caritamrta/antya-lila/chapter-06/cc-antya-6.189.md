@@ -1,9 +1,9 @@
 ### CC Antya 6.189
 
-> স্বরূপাদি-সহ গোসাঞি আছেন বসিয়া ।
+> স্বরূপাদি-সহ গোসাঞি আছেন বসিয়া ।\
 > হেনকালে রঘুনাথ মিলিল আসিয়া ॥১৮৯॥
 
-> svarūpādi-saha gosāñi āchena vasiyā
+> svarūpādi-saha gosāñi āchena vasiyā\
 > hena-kāle raghunātha milila āsiyā
 
 *svarūpa-ādi-saha*—en compañía de los devotos, encabezados por Svarūpa Dāmodara; *gosāñi*—el Señor Śrī Caitanya Mahāprabhu; *āchena vasiyā*—estaba sentado; *hena-kāle*—en ese momento; *raghunātha*—Raghunātha dāsa; *milila*—se encontró; *āsiyā*—llegando.

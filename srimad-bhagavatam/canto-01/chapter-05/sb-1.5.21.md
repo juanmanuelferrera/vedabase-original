@@ -1,11 +1,11 @@
 ### SB 1.5.21
 
-> त्वमात्मनात्मानमवेह्यमोघदृक्परस्य पुंसः परमात्मनः कलाम् ।
+> त्वमात्मनात्मानमवेह्यमोघदृक्परस्य पुंसः परमात्मनः कलाम् ।\
 > अजं प्रजातं जगतः शिवाय तन्महानुभावाभ्युदयोऽधिगण्यताम् ॥२१॥
 
-> tvam ātmanātmānam avehy amogha-dṛk
-> parasya puṁsaḥ paramātmanaḥ kalām
-> ajaṁ prajātaṁ jagataḥ śivāya tan
+> tvam ātmanātmānam avehy amogha-dṛk\
+> parasya puṁsaḥ paramātmanaḥ kalām\
+> ajaṁ prajātaṁ jagataḥ śivāya tan\
 > mahānubhāvābhyudayo 'dhigaṇyatām
 
 *tvam*—yourself; *ātmanā*—by your own self; *ātmānam*—the Supersoul; *avehi*—search out; *amogha-dṛk*—one who has perfect vision; *parasya*—of the Transcendence; *puṁsaḥ*—the Personality of Godhead; *paramātmanaḥ*—of the Supreme Lord; *kalām*—plenary part; *ajam*—birthless; *prajātam*—have taken birth; *jagataḥ*—of the world; *śivāya*—for the well-being; *tat*—that; *mahā-anubhāva*—of the Supreme Personality of Godhead Śrī Kṛṣṇa; *abhyudayaḥ*—pastimes; *adhigaṇya-tām*—describe most vividly.

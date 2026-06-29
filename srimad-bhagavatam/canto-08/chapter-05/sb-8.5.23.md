@@ -1,11 +1,11 @@
 ### SB 8.5.23
 
-> अयं च तस्य स्थितिपालनक्षणः सत्त्वं जुषाणस्य भवाय देहिनाम
+> अयं च तस्य स्थितिपालनक्षणः सत्त्वं जुषाणस्य भवाय देहिनाम\
 > तस्माद्व्रजामः शरणं जगद्गुरुं स्वानां स नो धास्यति शं सुरप्रियः ॥२३॥
 
-> ayaṁ ca tasya sthiti-pālana-kṣaṇaḥ
-> sattvaṁ juṣāṇasya bhavāya dehinām
-> tasmād vrajāmaḥ śaraṇaṁ jagad-guruṁ
+> ayaṁ ca tasya sthiti-pālana-kṣaṇaḥ\
+> sattvaṁ juṣāṇasya bhavāya dehinām\
+> tasmād vrajāmaḥ śaraṇaṁ jagad-guruṁ\
 > svānāṁ sa no dhāsyati śaṁ sura-priyaḥ
 
 *ayam*—this period; *ca*—also; *tasya*—of the Supreme Personality of Godhead; *sthiti-pālana-kṣaṇaḥ*—the time for maintenance, or for establishing His rule; *sattvam*—the mode of goodness; *juṣāṇasya*—accepting (now, without waiting); *bhavāya*—for the increased development or establishment; *dehinām*—of all living entities who accept material bodies; *tasmāt*—therefore; *vrajāmaḥ*—let us take; *śaraṇam*—shelter; *jagat-gurum*—at the lotus feet of the Supreme Personality of Godhead, who is the universal teacher; *svānām*—His own persons; *saḥ*—He (the Supreme Personality of Godhead); *naḥ*—unto us; *dhāsyati*—will give; *śam*—the good fortune we need; *sura-priyaḥ*—because He is naturally very dear to the devotees.

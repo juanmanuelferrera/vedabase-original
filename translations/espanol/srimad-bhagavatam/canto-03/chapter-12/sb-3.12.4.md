@@ -1,11 +1,11 @@
 ### SB 3.12.4
 
-> सनकं च सनन्दं च सनातनमथात्मभूः ।
+> सनकं च सनन्दं च सनातनमथात्मभूः ।\
 > सनत्कुमारं च मुनीन्निष्क्रियानूर्ध्वरेतसः ॥४॥
 
-> sanakaṁ ca sanandaṁ ca
-> sanātanam athātmabhūḥ
-> sanat-kumāraṁ ca munīn
+> sanakaṁ ca sanandaṁ ca\
+> sanātanam athātmabhūḥ\
+> sanat-kumāraṁ ca munīn\
 > niṣkriyān ūrdhva-retasaḥ
 
 *sanakam*—Sanaka; *ca*—también; *sanandam*—Sananda; *ca*—y; *sanātanam*—Sanātana; *atha*—a continuación; *ātma-bhūḥ*—Brahmā, que nace por sí mismo; *sanat-kumāram*—Sanat-kumāra; *ca*—también; *munīn*—los grandes sabios; *niṣkriyān*—libres de toda acción fruitiva; *ūrdhva-retasaḥ*—aquellos cuyo semen fluye hacia arriba.

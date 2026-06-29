@@ -1,11 +1,11 @@
 ### SB 7.13.8
 
-> न शिष्याननुबध्नीत ग्रन्थान्नैवाभ्यसेद्बहून
+> न शिष्याननुबध्नीत ग्रन्थान्नैवाभ्यसेद्बहून\
 > न व्याख्यामुपयुञ्जीत नारम्भानारभेत्क्वचित ॥८॥
 
-> na śiṣyān anubadhnīta
-> granthān naivābhyased bahūn
-> na vyākhyām upayuñjīta
+> na śiṣyān anubadhnīta\
+> granthān naivābhyased bahūn\
+> na vyākhyām upayuñjīta\
 > nārambhān ārabhet kvacit
 
 *na*—not; *śiṣyān*—disciples; *anubadhnīta*—one should induce for material benefit; *granthān*—unnecessary literatures; *na*—not; *eva*—certainly; *abhyaset*—should try to understand or cultivate; *bahūn*—many; *na*—nor; *vyākhyām*—discourses; *upayuñjīta*—should make as a means of livelihood; *na*—nor; *ārambhān*—unnecessary opulences; *ārabhet*—should attempt to increase; *kvacit*—at any time.

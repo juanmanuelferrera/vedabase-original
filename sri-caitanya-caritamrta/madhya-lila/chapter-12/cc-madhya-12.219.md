@@ -1,9 +1,9 @@
 ### CC Madhya 12.219
 
-> দর্শন-আনন্দে প্রভু সব পাসরিলা ।
+> দর্শন-আনন্দে প্রভু সব পাসরিলা ।\
 > ভক্তগণ মধ্যাহ্ন করিতে প্রভুরে লঞা গেলা ॥২১৯॥
 
-> darśana-ānande prabhu saba pāsarilā
+> darśana-ānande prabhu saba pāsarilā\
 > bhakta-gaṇa madhyāhna karite prabhure lañā gelā
 
 *darśana-ānande*—because of pleasure due to seeing the face of the Lord; *prabhu*—Śrī Caitanya Mahāprabhu; *saba*—everything; *pāsarilā*--forgot; *bhakta-gaṇa*—the devotees; *madhyāhna*—noontime lunch; *karite*—to accept; *prabhure*—Śrī Caitanya Mahāprabhu; *lañā gelā*—took.

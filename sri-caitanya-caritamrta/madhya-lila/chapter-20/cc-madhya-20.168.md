@@ -1,9 +1,9 @@
 ### CC Madhya 20.168
 
-> মহিষী-বিবাহে হৈল বহুবিধ মূর্তি ।
+> মহিষী-বিবাহে হৈল বহুবিধ মূর্তি ।\
 > ‘প্রাভব প্রকাশ’ — এই শাস্ত্র-পরসিদ্ধি ॥১৬৮॥
 
-> mahiṣī-vivāhe haila bahu-vidha mūrti
+> mahiṣī-vivāhe haila bahu-vidha mūrti\
 > 'prābhava prakāśa'—ei śāstra-parasiddhi
 
 *mahiṣī-vivāhe*—in the matter of marrying 16,108 wives at Dvārakā; *haila*—there were; *bahu-vidha mūrti*—many forms; *prābhava prakāśa*—called *prābhava-prakāśa*; *ei*—this; *śāstra-parasiddhi*—determined by reference to the revealed scriptures.

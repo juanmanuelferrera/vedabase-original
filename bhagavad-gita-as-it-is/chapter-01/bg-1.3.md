@@ -1,11 +1,11 @@
 ### Bg 1.3
 
-> पश्यैतां पाण्डुपुत्राणामाचार्य महतीं चमूम् ।
+> पश्यैतां पाण्डुपुत्राणामाचार्य महतीं चमूम् ।\
 > व्यूढां द्रुपदपुत्रेण तव शिष्येण धीमता ॥३॥
 
-> paśyaitāṁ pāṇḍu-putrāṇām
-> ācārya mahatīṁ camūm
-> vyūḍhāṁ drupada-putreṇa
+> paśyaitāṁ pāṇḍu-putrāṇām\
+> ācārya mahatīṁ camūm\
+> vyūḍhāṁ drupada-putreṇa\
 > tava śiṣyeṇa dhīmatā
 
 *paśya*—behold; *etām*—this; *pāṇḍu-putrāṇām*—of the sons of Pāṇḍu; *ācārya*—O teacher; *mahatīm*—great; *camūm*—military force; *vyuḍham*—arranged; *drupada-putreṇa*—by the son of Drupada; *tava*—your; *śiṣyeṇa*—disciple; *dhīmatā*—very intelligent.

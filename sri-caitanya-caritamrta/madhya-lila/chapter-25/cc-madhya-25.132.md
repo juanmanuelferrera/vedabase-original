@@ -1,11 +1,11 @@
 ### CC Madhya 25.132
 
-> বদন্তি তত্তত্ত্ববিদস্তত্ত্বং যজ্জ্ঞানমদ্বয়ম্ ।
+> বদন্তি তত্তত্ত্ববিদস্তত্ত্বং যজ্জ্ঞানমদ্বয়ম্ ।\
 > ব্রহ্মেতি পরমাত্মেতি ভগবানিতি শব্দ্যতে ॥১৩২॥
 
-> vadanti tat tattva-vidas
-> tattvaṁ yaj jñānam advayam
-> brahmeti paramātmeti
+> vadanti tat tattva-vidas\
+> tattvaṁ yaj jñānam advayam\
+> brahmeti paramātmeti\
 > bhagavān iti śabdyate
 
 *vadanti*—they say; *tat*—that; *tattva-vidaḥ*—those who know the Absolute Truth; *tattvam*—the ultimate goal; *yat*—which; *jñānam advayam*—identical knowledge; *brahma iti*—as the impersonal Brahman; *paramātmā iti*—as the Supersoul; *bhagavān iti*—as the Supreme Personality of Godhead; *śabdyate*—it is described.

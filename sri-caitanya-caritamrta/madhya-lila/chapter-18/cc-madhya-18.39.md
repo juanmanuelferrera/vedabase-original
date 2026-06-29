@@ -1,9 +1,9 @@
 ### CC Madhya 18.39
 
-> এইমত তিনদিন গোপালে দেখিলা ।
+> এইমত তিনদিন গোপালে দেখিলা ।\
 > চতুর্থ-দিবসে গোপাল স্বমন্দিরে গেলা ॥৩৯॥
 
-> ei-mata tina-dina gopāle dekhilā
+> ei-mata tina-dina gopāle dekhilā\
 > caturtha-divase gopāla svamandire gelā
 
 *ei-mata*—in this way; *tina-dina*—for three days; *gopāle*—Gopāla; *dekhilā*—saw; *caturtha-divase*—on the fourth day; *gopāla*—the Deity Gopāla; *sva-mandire*—in His own temple; *gelā*—returned.

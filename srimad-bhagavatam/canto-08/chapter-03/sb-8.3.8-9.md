@@ -1,18 +1,18 @@
 ### SB 8.3.8-9
 
-> न विद्यते यस्य च जन्म कर्म वा न नामरूपे गुणदोष एव वा
-> तथापि लोकाप्ययसम्भवाय यः स्वमायया तान्यनुकालमृच्छति ॥८॥
-> तस्मै नमः परेशाय ब्रह्मणेऽनन्तशक्तये
+> न विद्यते यस्य च जन्म कर्म वा न नामरूपे गुणदोष एव वा\
+> तथापि लोकाप्ययसम्भवाय यः स्वमायया तान्यनुकालमृच्छति ॥८॥\
+> तस्मै नमः परेशाय ब्रह्मणेऽनन्तशक्तये\
 > अरूपायोरुरूपाय नम आश्चर्यकर्मणे ॥९॥
 
-> na vidyate yasya ca janma karma vā
-> na nāma-rūpe guṇa-doṣa eva vā
-> tathāpi lokāpyaya-sambhavāya yaḥ
+> na vidyate yasya ca janma karma vā\
+> na nāma-rūpe guṇa-doṣa eva vā\
+> tathāpi lokāpyaya-sambhavāya yaḥ\
 > sva-māyayā tāny anukālam ṛcchati
 
-> tasmai namaḥ pareśāya
-> brahmaṇe 'nanta-śaktaye
-> arūpāyoru-rūpāya
+> tasmai namaḥ pareśāya\
+> brahmaṇe 'nanta-śaktaye\
+> arūpāyoru-rūpāya\
 > nama āścarya-karmaṇe
 
 *na*—not; *vidyate*—there is; *yasya*—of whom (the Supreme Personality of Godhead); *ca*—also; *janma*—birth; *karma*—activities; *vā*—or; *na*—nor; *nāma-rūpe*—any material name or material form; *guṇa*—qualities; *doṣaḥ*—fault; *eva*—certainly; *vā*—either; *tathāpi*—still; *loka*—of this cosmic manifestation; *apyaya*—who is the destruction; *sambhavāya*—and creation; *yaḥ*—He who; *sva-māyayā*—by His own potency; *tāni*—activities; *anukālam*—eternally; *ṛcchati*—accepts; *tasmai*—unto Him; *namaḥ*—I offer my obeisances; *para*—transcendental; *īśāya*—who is the supreme controller; *brahmaṇe*—who is the Supreme Brahman (Parabrahman); *ananta-śaktaye*—with unlimited potency; *arūpāya*—possessing no material form; *uru-rūpāya*—possessing various forms as incarnations; *namaḥ*—I offer my obeisances; *āścarya-karmaṇe*—whose activities are wonderful.

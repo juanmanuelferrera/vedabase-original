@@ -1,11 +1,11 @@
 ### SB 6.6.2
 
-> षष्टिं सञ्जनयामास दुहितॄः पितृवत्सलाः
+> षष्टिं सञ्जनयामास दुहितॄः पितृवत्सलाः\
 > दश धर्माय कायादाद्द्विषट्त्रिणव चेन्दवे ॥२॥
 
-> daśa dharmāya kāyādād
-> dvi-ṣaṭ tri-ṇava cendave
-> bhūtāṅgiraḥ-kṛśāśvebhyo
+> daśa dharmāya kāyādād\
+> dvi-ṣaṭ tri-ṇava cendave\
+> bhūtāṅgiraḥ-kṛśāśvebhyo\
 > dve dve tārkṣyāya cāparāḥ
 
 *daśa*—ten; *dharmāya*—unto King Dharma, Yamarāja; *kāya*—unto Kaśyapa; *adāt*—gave; *dvi-ṣaṭ*—twice six and one (thirteen); *tri-nava*—thrice nine (twenty-seven); *ca*—also; *indave*—unto the moon-god; *bhūta-aṅgiraḥ-kṛśāśvebhyaḥ*—unto Bhūta, Aṅgirā and Kṛśāśva; *dve dve*—two each; *tārkṣyāya*—again unto Kaśyapa; *ca*—and; *aparāḥ*—the balance.

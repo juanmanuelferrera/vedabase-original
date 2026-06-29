@@ -1,9 +1,9 @@
 ### CC Madhya 1.20
 
-> তাহাঁ যেই লীলা, তার ‘মধ্যলীলা’ নাম ।
+> তাহাঁ যেই লীলা, তার ‘মধ্যলীলা’ নাম ।\
 > তার পাছে লীলা — ‘অন্ত্যলীলা’ অভিধান ॥২০॥
 
-> tāhāṅ yei līlā, tāra 'madhya-līlā' nāma
+> tāhāṅ yei līlā, tāra 'madhya-līlā' nāma\
 > tāra pāche līlā--'antya-līlā' abhidhāna
 
 *tāhāṅ*—en esos lugares; *yei līlā*—todos los pasatiempos; *tāra*—de esos; *madhya-līlā*—los pasatiempos intermedios; *nāma*—denominados; *tāra pāche līlā*—todos los pasatiempos posteriores a ese periodo; *antya-līlā*—últimos pasatiempos; *abhidhāna*—la nomenclatura.

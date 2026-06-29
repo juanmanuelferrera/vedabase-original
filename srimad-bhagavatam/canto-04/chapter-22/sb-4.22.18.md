@@ -1,13 +1,13 @@
 ### SB 4.22.18
 
-> सनत्कुमार उवाच
-> साधु पृष्टं महाराज सर्वभूतहितात्मना ।
+> सनत्कुमार उवाच\
+> साधु पृष्टं महाराज सर्वभूतहितात्मना ।\
 > भवता विदुषा चापि साधूनां मतिरीदृशी ॥१८॥
 
-> sanat-kumāra uvāca
-> sādhu pṛṣṭaṁ mahārāja
-> sarva-bhūta-hitātmanā
-> bhavatā viduṣā cāpi
+> sanat-kumāra uvāca\
+> sādhu pṛṣṭaṁ mahārāja\
+> sarva-bhūta-hitātmanā\
+> bhavatā viduṣā cāpi\
 > sādhūnāṁ matir īdṛśī
 
 *sanat-kumāraḥ uvāca*—Sanat-kumāra said; *sādhu*—saintly; *pṛṣṭam*—question; *mahārāja*—my dear King; *sarva-bhūta*—all living entities; *hita-ātmanā*—by one who desires good for all; *bhavatā*—by you; *viduṣā*—well learned; *ca*—and; *api*—although; *sādhūnām*—of the saintly persons; *matiḥ*—intelligence; *īdṛśī*—like this.

@@ -1,18 +1,18 @@
 ### SB 1.14.32-33
 
-> तथैवानुचराः शौरेः श्रुतदेवोद्धवादयः ।
-> सुनन्दनन्दशीर्षण्या ये चान्ये सात्वतर्षभाः ॥३२॥
-> अपि स्वस्त्यासते सर्वे रामकृष्णभुजाश्रयाः ।
+> तथैवानुचराः शौरेः श्रुतदेवोद्धवादयः ।\
+> सुनन्दनन्दशीर्षण्या ये चान्ये सात्वतर्षभाः ॥३२॥\
+> अपि स्वस्त्यासते सर्वे रामकृष्णभुजाश्रयाः ।\
 > अपि स्मरन्ति कुशलमस्माकं बद्धसौहृदाः ॥३३॥
 
-> tathaivānucarāḥ śaureḥ
-> śrutadevoddhavādayaḥ
-> sunanda-nanda-śīrṣaṇyā
+> tathaivānucarāḥ śaureḥ\
+> śrutadevoddhavādayaḥ\
+> sunanda-nanda-śīrṣaṇyā\
 > ye cānye sātvatarṣabhāḥ
 
-> api svasty āsate sarve
-> rāma-kṛṣṇa-bhujāśrayāḥ
-> api smaranti kuśalam
+> api svasty āsate sarve\
+> rāma-kṛṣṇa-bhujāśrayāḥ\
+> api smaranti kuśalam\
 > asmākaṁ baddha-sauhṛdāḥ
 
 *tathā eva*—igualmente; *anucarāḥ*—compañeros constantes; *śaureḥ*—del Señor Kṛṣṇa tales como; *śrutadeva*—Śrutadeva; *uddhava-ādayaḥ*—Uddhava y otros; *sunanda*—Sunanda; *nanda*—Nanda; *śīrṣaṇyāḥ*—otros líderes; *ye*—todos ellos; *ca*—y; *anye*—otros; *sātvata*—almas liberadas; *ṛṣabhāḥ*—los mejores hombres; *api*—si; *svasti*—yendo bien; *āsate*—están; *sarve*—todos ellos; *rāma*—Balarāma; *kṛṣṇa*—el Señor Kṛṣṇa; *bhuja-āśrayāḥ*—bajo la protección de; *api*—si también; *smaranti*—recuerdan; *kuśalam*—bienestar; *asmākam*—acerca de nosotros; *baddha-sauhṛdāḥ*—vinculados por una amistad eterna.

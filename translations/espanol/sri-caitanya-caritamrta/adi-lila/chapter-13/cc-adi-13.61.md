@@ -1,9 +1,9 @@
 ### CC Adi 13.61
 
-> রাঢ়দেশে জন্মিলা ঠাকুর নিত্যানন্দ ।
+> রাঢ়দেশে জন্মিলা ঠাকুর নিত্যানন্দ ।\
 > গঙ্গাদাস পণ্ডিত, গুপ্ত মুরারি, মুকুন্দ ॥৬১॥
 
-> rāḍhadeśe janmilā ṭhākura nityānanda
+> rāḍhadeśe janmilā ṭhākura nityānanda\
 > gaṅgādāsa paṇḍita, gupta murāri, mukunda
 
 *rāḍha-deśe*—el lugar donde no hay Ganges; *janmilā*—nació; *ṭhākura nityānanda*—Nityānanda Prabhu; *gaṅgādāsa paṇḍita*—de nombre Gaṅgādāsa Paṇḍita; *gupta murāri*—de nombre Murāri Gupta; *mukunda*—de nombre Mukunda.

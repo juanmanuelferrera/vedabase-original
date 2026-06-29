@@ -1,11 +1,11 @@
 ### SB 8.9.25
 
-> चक्रेण क्षुरधारेण जहार पिबतः शिरः
+> चक्रेण क्षुरधारेण जहार पिबतः शिरः\
 > हरिस्तस्य कबन्धस्तु सुधयाप्लावितोऽपतत ॥२५॥
 
-> cakreṇa kṣura-dhāreṇa
-> jahāra pibataḥ śiraḥ
-> haris tasya kabandhas tu
+> cakreṇa kṣura-dhāreṇa\
+> jahāra pibataḥ śiraḥ\
+> haris tasya kabandhas tu\
 > sudhayāplāvito 'patat
 
 *cakreṇa*—by the disc; *kṣura-dhāreṇa*—which was sharp like a razor; *jahāra*—cut off; *pibataḥ*—while drinking nectar; *śiraḥ*—the head; *hariḥ*—the Supreme Personality of Godhead; *tasya*—of that Rāhu; *kabandhaḥ tu*—but the headless body; *sudhayā*—by the nectar; *aplāvitaḥ*—without being touched; *apatat*—immediately fell dead.

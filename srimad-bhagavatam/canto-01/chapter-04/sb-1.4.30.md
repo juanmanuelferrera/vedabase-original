@@ -1,11 +1,11 @@
 ### SB 1.4.30
 
-> तथापि बत मे दैह्यो ह्यात्मा चैवात्मना विभुः ।
+> तथापि बत मे दैह्यो ह्यात्मा चैवात्मना विभुः ।\
 > असम्पन्न इवाभाति ब्रह्मवर्चस्य सत्तमः ॥३०॥
 
-> tathāpi bata me daihyo
-> hy ātmā caivātmanā vibhuḥ
-> asampanna ivābhāti
+> tathāpi bata me daihyo\
+> hy ātmā caivātmanā vibhuḥ\
+> asampanna ivābhāti\
 > brahma-varcasya sattamaḥ
 
 *tathāpi*—although; *bata*—defect; *me*—mine; *daihyaḥ*—situated in the body; *hi*—certainly; *ātmā*—living being; *ca*—and; *eva*—even; *ātmanā*—myself; *vibhuḥ*—sufficient; *asampannaḥ*—wanting in; *iva ābhāti*—it appears to be; *brahma-varcasya*—of the Vedāntists; *sattamaḥ*—the supreme.

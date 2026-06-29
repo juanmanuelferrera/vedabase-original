@@ -1,9 +1,9 @@
 ### CC Adi 13.41
 
-> শ্রীরাধার প্রলাপ যৈছে উদ্ধব-দর্শনে ।
+> শ্রীরাধার প্রলাপ যৈছে উদ্ধব-দর্শনে ।\
 > সেইমত উন্মাদ-প্রলাপ করে রাত্রি-দিনে ॥৪১॥
 
-> śrī-rādhāra pralāpa yaiche uddhava-darśane
+> śrī-rādhāra pralāpa yaiche uddhava-darśane\
 > seimata unmāda-pralāpa kare rātri-dine
 
 *śrī-rādhāra*—de Śrīmatī Rādhārāṇī; *pralāpa*—hablar; *yaiche*—como Ella lo hacía; *uddhava-darśane*—al encontrarse con Uddhava; *sei-mata*—exactamente así; *unmāda*—locura; *pralāpa*—hablar incoherentemente; *kare*—hace; *rātri-dine*—día y noche.

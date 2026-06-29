@@ -1,11 +1,11 @@
 ### SB 4.25.56
 
-> एवं कर्मसु संसक्तः कामात्मा वञ्चितोऽबुधः ।
+> एवं कर्मसु संसक्तः कामात्मा वञ्चितोऽबुधः ।\
 > महिषी यद्यदीहेत तत्तदेवान्ववर्तत ॥५६॥
 
-> evaṁ karmasu saṁsaktaḥ
-> kāmātmā vañcito 'budhaḥ
-> mahiṣī yad yad īheta
+> evaṁ karmasu saṁsaktaḥ\
+> kāmātmā vañcito 'budhaḥ\
+> mahiṣī yad yad īheta\
 > tat tad evānvavartata
 
 *evam*—así; *karmasu*—en actividades fruitivas; *saṁsaktaḥ*—estando demasiado apegado; *kāma-ātmā*—lujurioso; *vañcitaḥ*—engañado; *abudhaḥ*—poco inteligente; *mahiṣī*—la reina; *yat yat*—todo lo que; *īheta*—ella desease; *tat tat*—todo eso; *eva*—ciertamente; *anvavartata*—él seguía.

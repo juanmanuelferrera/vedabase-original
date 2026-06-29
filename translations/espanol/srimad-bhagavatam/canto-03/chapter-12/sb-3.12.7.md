@@ -1,11 +1,11 @@
 ### SB 3.12.7
 
-> धिया निगृह्यमाणोऽपि भ्रुवोर्मध्यात्प्रजापतेः ।
+> धिया निगृह्यमाणोऽपि भ्रुवोर्मध्यात्प्रजापतेः ।\
 > सद्योऽजायत तन्मन्युः कुमारो नीललोहितः ॥७॥
 
-> dhiyā nigṛhyamāṇo 'pi
-> bhruvor madhyāt prajāpateḥ
-> sadyo 'jāyata tan-manyuḥ
+> dhiyā nigṛhyamāṇo 'pi\
+> bhruvor madhyāt prajāpateḥ\
+> sadyo 'jāyata tan-manyuḥ\
 > kumāro nīla-lohitaḥ
 
 *dhiyā*—con inteligencia; *nigṛhyamāṇaḥ*—siendo controlada; *api*—a pesar de; *bhruvoḥ*—de las cejas; *madhyāt*—de entre; *prajāpateḥ*—de Brahmā; *sadyaḥ*—al momento; *ajāyata*—generó; *tat*—su; *manyuḥ*—ira; *kumāraḥ*—un niño; *nīla-lohitaḥ*—mezcla de azul y rojo.

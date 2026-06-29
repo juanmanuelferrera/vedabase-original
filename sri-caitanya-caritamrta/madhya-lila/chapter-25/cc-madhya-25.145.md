@@ -2,7 +2,7 @@
 
 > সর্ব-বেদেতিহাসানাং সারং সারং সমুদ্ধৃতম্ ॥১৪৫॥
 
-> sarva-vedetihāsānāṁ
+> sarva-vedetihāsānāṁ\
 > sāraṁ sāraṁ samuddhṛtam
 
 *sarva-veda*—of all Vedic literature; *itihāsānām*—of historical literature; *sāram sāram*—the essence of the essence; *samuddhṛtam*—is collected (in *Śrīmad-Bhāgavatam*).

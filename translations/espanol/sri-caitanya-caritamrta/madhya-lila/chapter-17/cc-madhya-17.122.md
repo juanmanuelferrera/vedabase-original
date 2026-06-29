@@ -1,9 +1,9 @@
 ### CC Madhya 17.122
 
-> এত শুনি’ সেই বিপ্র মহাদুঃখ পাইলা ।
+> এত শুনি’ সেই বিপ্র মহাদুঃখ পাইলা ।\
 > ‘কৃষ্ণ’ ‘কৃষ্ণ’ কহি’ তথা হৈতে উঠি’ গেলা ॥১২২॥
 
-> eta śuni' sei vipra mahā-duḥkha pāilā
+> eta śuni' sei vipra mahā-duḥkha pāilā\
 > 'kṛṣṇa' 'kṛṣṇa' kahi' tathā haite uṭhi' gelā
 
 *eta śuni'*—al escuchar esto; *sei vipra*—aquel brāhmaṇa; *mahā-duḥkha pāilā*—se afligió mucho; *kṛṣṇa kṛṣṇa kahi'*—pronunciando el santo nombre del Señor Kṛṣṇa; *tathā haite*—de allí; *uṭhi' gelā*—se levantó y se marchó.

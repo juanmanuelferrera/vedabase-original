@@ -1,11 +1,11 @@
 ### SB 7.15.54
 
-> अग्निः सूर्यो दिवा प्राह्णः शुक्लो राकोत्तरं स्वराट
+> अग्निः सूर्यो दिवा प्राह्णः शुक्लो राकोत्तरं स्वराट\
 > विश्वोऽथ तैजसः प्राज्ञअस्तुर्य आत्मा समन्वयात ॥५४॥
 
-> agniḥ sūryo divā prāhṇaḥ
-> śuklo rākottaraṁ sva-rāṭ
-> viśvo 'tha taijasaḥ prājñas
+> agniḥ sūryo divā prāhṇaḥ\
+> śuklo rākottaraṁ sva-rāṭ\
+> viśvo 'tha taijasaḥ prājñas\
 > turya ātmā samanvayāt
 
 *agniḥ*—fire; *sūryaḥ*—sun; *divā*—day; *prāhṇaḥ*—the end of the day; *śuklaḥ*—the bright fortnight of the moon; *rāka*—the full moon at the end of the *śukla-pakṣa*; *uttaram*—the period when the sun passes to the north; *sva-rāṭ*—the Supreme Brahman or Lord Brahmā; *viśvaḥ*—gross designation; *atha*—Brahmaloka, the ultimate in material enjoyment; *taijasaḥ*—subtle designation; *prājñaḥ*—the witness in the causal designation; *turyaḥ*—transcendental; *ātmā*—the soul; *samanvayāt*—as a natural consequence.

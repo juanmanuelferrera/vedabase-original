@@ -1,9 +1,9 @@
 ### CC Madhya 16.54
 
-> পূর্ববত্ রথযাত্রা কৈল দরশন ।
+> পূর্ববত্ রথযাত্রা কৈল দরশন ।\
 > হেরাপঞ্চমী-যাত্রা দেখে লঞা ভক্তগণ ॥৫৪॥
 
-> pūrvavat ratha-yātrā kaila daraśana
+> pūrvavat ratha-yātrā kaila daraśana\
 > herā-pañcamī-yātrā dekhe lañā bhakta-gaṇa
 
 *pūrva-vat*—como el año anterior; *ratha-yātrā*—el festival de las carrozas; *kaila daraśana*—contemplaron; *herā-pañcamī-yātrā*—el festival de Herā-pañcamī; *dekhe*—contempla; *lañā bhakta-gaṇa*—con todos los devotos.

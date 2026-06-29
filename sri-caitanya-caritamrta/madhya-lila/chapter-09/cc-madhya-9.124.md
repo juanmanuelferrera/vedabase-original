@@ -1,9 +1,9 @@
 ### CC Madhya 9.124
 
-> শ্রুতি পায়, লক্ষ্মী না পায়, ইথে কি কারণ ।
+> শ্রুতি পায়, লক্ষ্মী না পায়, ইথে কি কারণ ।\
 > ভট্ট কহে, — ইহা প্রবেশিতে নারে মোর মন ॥১২৪॥
 
-> śruti pāya, lakṣmī nā pāya, ithe ki kāraṇa
+> śruti pāya, lakṣmī nā pāya, ithe ki kāraṇa\
 > bhaṭṭa kahe,—ihā praveśite nāre mora mana
 
 *śruti pāya*—the Vedic authorities got admission; *lakṣmī nā pāya*—and the goddess of fortune could not get admission; *ithe ki kāraṇa*—what must be the reason for this; *bhaṭṭa kahe*—Veṅkaṭa Bhaṭṭa replied; *ihā*—this; *praveśite*—to enter; *nāre*—is not able; *mora*—my; *mana*—mind.

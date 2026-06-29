@@ -1,9 +1,9 @@
 ### CC Madhya 17.175
 
-> তবে বিপ্র প্রভুরে লঞা আইলা নিজ-ঘরে ।
+> তবে বিপ্র প্রভুরে লঞা আইলা নিজ-ঘরে ।\
 > আপন-ইচ্ছায় প্রভুর নানা সেবা করে ॥১৭৫॥
 
-> tabe vipra prabhure lañā āilā nija-ghare
+> tabe vipra prabhure lañā āilā nija-ghare\
 > āpana-icchāya prabhura nānā sevā kare
 
 *tabe*—thereafter; *vipra*—the *brāhmaṇa*; *prabhure*—Śrī Caitanya Mahāprabhu; *lañā*—taking; *āilā*—came back; *nija-ghare*—to his home; *āpana-icchāya*—by his own will; *prabhura*—of Śrī Caitanya Mahāprabhu; *nānā*—various; *sevā*—services; *kare*—rendered.

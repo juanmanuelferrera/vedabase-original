@@ -1,11 +1,11 @@
 ### SB 3.31.43
 
-> देहेन जीवभूतेन लोकाल्लोकमनुव्रजन् ।
+> देहेन जीवभूतेन लोकाल्लोकमनुव्रजन् ।\
 > भुञ्जान एव कर्माणि करोत्यविरतं पुमान् ॥४३॥
 
-> dehena jīva-bhūtena
-> lokāl lokam anuvrajan
-> bhuñjāna eva karmāṇi
+> dehena jīva-bhūtena\
+> lokāl lokam anuvrajan\
+> bhuñjāna eva karmāṇi\
 > karoty avirataṁ pumān
 
 *dehena*—on account of the body; *jīva-bhūtena*—possessed by the living entity; *lokāt*—from one planet; *lokam*—to another planet; *anuvrajan*—wandering; *bhuñjānaḥ*—enjoying; *eva*—so; *karmāṇi*—fruitive activities; *karoti*—he does; *aviratam*—incessantly; *pumān*—the living entity.

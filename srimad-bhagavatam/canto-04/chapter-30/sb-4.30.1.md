@@ -1,13 +1,13 @@
 ### SB 4.30.1
 
-> विदुर उवाच
-> ये त्वयाभिहिता ब्रह्मन्सुताः प्राचीनबर्हिषः ।
+> विदुर उवाच\
+> ये त्वयाभिहिता ब्रह्मन्सुताः प्राचीनबर्हिषः ।\
 > ते रुद्रगीतेन हरिं सिद्धिमापुः प्रतोष्य काम् ॥१॥
 
-> vidura uvāca
-> ye tvayābhihitā brahman
-> sutāḥ prācīnabarhiṣaḥ
-> te rudra-gītena hariṁ
+> vidura uvāca\
+> ye tvayābhihitā brahman\
+> sutāḥ prācīnabarhiṣaḥ\
+> te rudra-gītena hariṁ\
 > siddhim āpuḥ pratoṣya kām
 
 *viduraḥ uvāca*—Vidura said; *ye*—those who; *tvayā*—by you; *abhihitāḥ*—were spoken about; *brahman*—O *brāhmaṇa*; *sutāḥ*—sons; *prācīnabarhiṣaḥ*—of King Prācīnabarhi; *te*—all of them; *rudra-gītena*—by the song composed by Lord Śiva; *harim*—the Lord; *siddhim*—success; *āpuḥ*—achieved; *pratoṣya*—having satisfied; *kām*—what.

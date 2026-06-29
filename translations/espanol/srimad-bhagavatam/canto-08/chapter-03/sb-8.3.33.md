@@ -1,13 +1,13 @@
 ### SB 8.3.33
 
-> तं वीक्ष्य पीडितमजः सहसावतीर्य
-> सग्राहमाशु सरसः कृपयोज्जहार
-> ग्राहाद्विपाटितमुखादरिणा गजेन्द्रं
+> तं वीक्ष्य पीडितमजः सहसावतीर्य\
+> सग्राहमाशु सरसः कृपयोज्जहार\
+> ग्राहाद्विपाटितमुखादरिणा गजेन्द्रं\
 > संपश्यतां हरिरमूमुचदुच्छ्रियाणाम ॥३३॥
 
-> taṁ vīkṣya pīḍitam ajaḥ sahasāvatīrya
-> sa-grāham āśu sarasaḥ kṛpayojjahāra
-> grāhād vipāṭita-mukhād ariṇā gajendraṁ
+> taṁ vīkṣya pīḍitam ajaḥ sahasāvatīrya\
+> sa-grāham āśu sarasaḥ kṛpayojjahāra\
+> grāhād vipāṭita-mukhād ariṇā gajendraṁ\
 > saṁpaśyatāṁ harir amūmucad ucchriyāṇām
 
 *tam*—a él (a Gajendra); *vīkṣya*—al ver (en aquella condición); *pīḍitam*—que sufría mucho; *ajaḥ*—el innaciente, la Suprema Personalidad de Dios; *sahasā*—de repente; *avatīrya*—bajando (de la espalda de Garuḍa); *sa-grāham*—con el cocodrilo; *āśu*—inmediatamente; *sarasaḥ*—del agua; *kṛpayā*—por Su gran misericordia; *ujjahāra*—sacó; *grāhāt*—del cocodrilo; *vipāṭita*—separó; *mukhāt*—de la boca; *ariṇā*—con el disco; *gajendram*—a Gajendra; *sampaśyatām*—que estaban mirando; *hariḥ*—la Suprema Personalidad de Dios; *amūm*—a él (a Gajendra); *ucat*—salvó; *ucchriyāṇām*—en presencia de todos los semidioses.

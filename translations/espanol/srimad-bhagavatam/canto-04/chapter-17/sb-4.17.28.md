@@ -1,11 +1,11 @@
 ### SB 4.17.28
 
-> एवं मन्युमयीं मूर्तिं कृतान्तमिव बिभ्रतम् ।
+> एवं मन्युमयीं मूर्तिं कृतान्तमिव बिभ्रतम् ।\
 > प्रणता प्राञ्जलिः प्राह मही सञ्जातवेपथुः ॥२८॥
 
-> evaṁ manyumayīṁ mūrtiṁ
-> kṛtāntam iva bibhratam
-> praṇatā prāñjaliḥ prāha
+> evaṁ manyumayīṁ mūrtiṁ\
+> kṛtāntam iva bibhratam\
+> praṇatā prāñjaliḥ prāha\
 > mahī sañjāta-vepathuḥ
 
 *evam*—de este modo; *manyu-mayīm*—muy iracunda; *mūrtim*—forma; *kṛta-antam*—la personificación de la muerte, Yamarāja; *iva*—como; *bibhratam*—poseyendo; *praṇatā*—se rindió; *prāñjaliḥ*—con las manos juntas; *prāha*—dijo; *mahī*—el planeta Tierra; *sañjāta*—levantada; *vepathuḥ*—temblor en su cuerpo.

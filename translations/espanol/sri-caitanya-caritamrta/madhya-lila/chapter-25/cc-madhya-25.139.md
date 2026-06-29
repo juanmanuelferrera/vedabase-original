@@ -1,9 +1,9 @@
 ### CC Madhya 25.139
 
-> এবে শুন, প্রেম, যেই — মূল ‘প্রয়োজন’ ।
+> এবে শুন, প্রেম, যেই — মূল ‘প্রয়োজন’ ।\
 > পুলকাশ্রু-নৃত্য-গীত — যাহার লক্ষণ ॥১৩৯॥
 
-> ebe śuna, prema, yei-mūla 'prayojana'
+> ebe śuna, prema, yei-mūla 'prayojana'\
 > pulakāśru-nṛtya-gīta-yāhāra lakṣaṇa
 
 *ebe śuna*—ahora escuchad; *prema*—amor por Dios; *yei*—el cual; *mūla prayojana*—el objetivo principal; *pulaka-aśru-nṛtya-gīta*—temblor del cuerpo, lágrimas en los ojos, danza y canto; *yāhāra lakṣaṇa*—los síntomas de los cuales.

@@ -1,11 +1,11 @@
 ### SB 2.5.39
 
-> ग्रीवायां जनलोकोऽस्य तपोलोकः स्तनद्वयात् ।
+> ग्रीवायां जनलोकोऽस्य तपोलोकः स्तनद्वयात् ।\
 > मूर्धभिः सत्यलोकस्तु ब्रह्मलोकः सनातनः ॥३९॥
 
-> grīvāyāṁ janaloko 'sya
-> tapolokaḥ stana-dvayāt
-> mūrdhabhiḥ satyalokas tu
+> grīvāyāṁ janaloko 'sya\
+> tapolokaḥ stana-dvayāt\
+> mūrdhabhiḥ satyalokas tu\
 > brahmalokaḥ sanātanaḥ
 
 *grīvāyām*—hasta el cuello; *janalokaḥ*—el sistema planetario Janaloka; *asya*—de Él; *tapolokaḥ*—el sistema planetario Tapoloka; *stana-dvayāt*—comenzando desde el pecho; *mūrdhabhiḥ*—por la cabeza; *satyalokaḥ*—el sistema planetario Satyaloka; *tu*—pero; *brahmaloka*—los planetas espirituales; *sanātanaḥ*—eternos.

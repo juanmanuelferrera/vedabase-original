@@ -1,11 +1,11 @@
 ### SB 3.8.16
 
-> तस्यां स चाम्भोरुहकर्णिकायामवस्थितो लोकमपश्यमानः ।
+> तस्यां स चाम्भोरुहकर्णिकायामवस्थितो लोकमपश्यमानः ।\
 > परिक्रमन्व्योम्नि विवृत्तनेत्रश्चत्वारि लेभेऽनुदिशं मुखानि ॥१६॥
 
-> tasyāṁ sa cāmbho-ruha-karṇikāyām
-> avasthito lokam apaśyamānaḥ
-> parikraman vyomni vivṛtta-netraś
+> tasyāṁ sa cāmbho-ruha-karṇikāyām\
+> avasthito lokam apaśyamānaḥ\
+> parikraman vyomni vivṛtta-netraś\
 > catvāri lebhe 'nudiśaṁ mukhāni
 
 *tasyām*—in that; *saḥ*—Brahmā; *ca*—and; *ambhaḥ*—water; *ruha-karṇikāyām*—whorl of the lotus; *avasthitaḥ*—being situated; *lokam*—the world; *apaśyamānaḥ*—without being able to see; *parikraman*—circumambulating; *vyomni*—in space; *vivṛtta-netraḥ*—while moving the eyes; *catvāri*—four; *lebhe*—achieved; *anudiśam*—in terms of direction; *mukhāni*—heads.

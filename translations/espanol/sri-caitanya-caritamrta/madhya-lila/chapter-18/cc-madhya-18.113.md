@@ -1,9 +1,9 @@
 ### CC Madhya 18.113
 
-> জীব, ঈশ্বর-তত্ত্ব — কভু নহে ‘সম’ ।
+> জীব, ঈশ্বর-তত্ত্ব — কভু নহে ‘সম’ ।\
 > জ্বলদগ্নিরাশি যৈছে স্ফুলিঙ্গের ‘কণ’ ॥১১৩॥
 
-> jīva, īśvara-tattva--kabhu nahe 'sama'
+> jīva, īśvara-tattva--kabhu nahe 'sama'\
 > jvalad-agni-rāśi yaiche sphuliṅgera 'kaṇa'
 
 *jīva*—una entidad viviente; *īśvara-tattva*—y la Suprema Personalidad de Dios; *kabhu*—en ningún momento; *nahe*—no; *sama*—iguales; *jvalat-agni-rāśi*—gran llama; *yaiche*—como; *sphuliṅgera*—de una chispa; *kaṇa*—porción fragmentaria.

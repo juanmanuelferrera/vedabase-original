@@ -1,11 +1,11 @@
 ### SB 8.16.23
 
-> आदिश त्वं द्विजश्रेष्ठ विधिं तदुपधावनम
+> आदिश त्वं द्विजश्रेष्ठ विधिं तदुपधावनम\
 > आशु तुष्यति मे देवः सीदन्त्याः सह पुत्रकैः ॥२३॥
 
-> ādiśa tvaṁ dvija-śreṣṭha
-> vidhiṁ tad-upadhāvanam
-> āśu tuṣyati me devaḥ
+> ādiśa tvaṁ dvija-śreṣṭha\
+> vidhiṁ tad-upadhāvanam\
+> āśu tuṣyati me devaḥ\
 > sīdantyāḥ saha putrakaiḥ
 
 *ādiśa*—just instruct me; *tvam*—O my husband; *dvija-śreṣṭha*—O best of the *brāhmaṇas*; *vidhim*—the regulative principles; *tat*—the Lord; *upadhāvanam*—the process of worshiping; *āśu*—very soon; *tuṣyati*—becomes satisfied; *me*—unto me; *devaḥ*—the Lord; *sīdantyāḥ*—now lamenting; *saha*—with; *putrakaiḥ*—all my sons, the demigods.

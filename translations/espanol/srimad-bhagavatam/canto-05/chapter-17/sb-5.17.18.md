@@ -1,11 +1,11 @@
 ### SB 5.17.18
 
-> न यस्य मायागुणचित्तवृत्तिभिर्निरीक्षतो ह्यण्वपि दृष्टिरज्यते
+> न यस्य मायागुणचित्तवृत्तिभिर्निरीक्षतो ह्यण्वपि दृष्टिरज्यते\
 > ईशे यथा नोऽजितमन्युरंहसां कस्तं न मन्येत जिगीषुरात्मनः ॥१८॥
 
-> bhaje bhajanyāraṇa-pāda-paṅkajaṁ
-> bhagasya kṛtsnasya paraṁ parāyaṇam
-> bhakteṣv alaṁ bhāvita-bhūta-bhāvanaṁ
+> bhaje bhajanyāraṇa-pāda-paṅkajaṁ\
+> bhagasya kṛtsnasya paraṁ parāyaṇam\
+> bhakteṣv alaṁ bhāvita-bhūta-bhāvanaṁ\
 > bhavāpahaṁ tvā bhava-bhāvam īśvaram
 
 *bhaje*—yo adoro; *bhajanya*—¡oh, Señor adorable!; *araṇa-pāda-paṅkajam*—cuyos pies de loto protegen a Sus devotos de todas las situaciones temibles; *bhagasya*—de opulencias; *kṛtsnasya*—de todas las diversidades (riqueza, fama, fuerza, conocimiento, belleza y renunciación); *param*—el mejor; *parāyaṇam*—el refugio supremo; *bhakteṣu*—para los devotos; *alam*—inestimable; *bhāvita-bhūta-bhāvanam*—que manifiesta Sus diversas formas para la satisfacción de Sus devotos; *bhava-apaham*—que detiene el ciclo de nacimientos y muertes para los devotos; *tvā*—a Ti; *bhava-bhāvam*—que eres el origen de la creación material; *īśvaram*—a la Suprema Personalidad de Dios.

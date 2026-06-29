@@ -1,18 +1,18 @@
 ### SB 7.2.7-8
 
-> तस्य त्यक्तस्वभावस्य घृणेर्मायावनौकसः
-> भजन्तं भजमानस्य बालस्येवास्थिरात्मनः ॥७॥
-> मच्छूलभिन्नग्रीवस्य भूरिणा रुधिरेण वै
+> तस्य त्यक्तस्वभावस्य घृणेर्मायावनौकसः\
+> भजन्तं भजमानस्य बालस्येवास्थिरात्मनः ॥७॥\
+> मच्छूलभिन्नग्रीवस्य भूरिणा रुधिरेण वै\
 > असृक्प्रियं तर्पयिष्ये भ्रातरं मे गतव्यथः ॥८॥
 
-> tasya tyakta-svabhāvasya
-> ghṛṇer māyā-vanaukasaḥ
-> bhajantaṁ bhajamānasya
+> tasya tyakta-svabhāvasya\
+> ghṛṇer māyā-vanaukasaḥ\
+> bhajantaṁ bhajamānasya\
 > bālasyevāsthirātmanaḥ
 
-> mac-chūla-bhinna-grīvasya
-> bhūriṇā rudhireṇa vai
-> asṛk-priyaṁ tarpayiṣye
+> mac-chūla-bhinna-grīvasya\
+> bhūriṇā rudhireṇa vai\
+> asṛk-priyaṁ tarpayiṣye\
 > bhrātaraṁ me gata-vyathaḥ
 
 *tasya*—de Él (la Suprema Personalidad de Dios); *tyakta-svabhāvasya*—que ha abandonado Su posición natural (de ser ecuánime con todos); *ghṛṇeḥ*—muy abominable; *māyā*—bajo la influencia de la energía ilusoria; *vana-okasaḥ*—comportándose exactamente como un animal de la jungla; *bhajantam*—al devoto ocupado en servicio devocional; *bhajamānasya*—ser adorado; *bālasya*—un niño; *iva*—como; *asthira-ātmanaḥ*—que es siempre inquieto e inestable; *mat*—mío; *śūla*—con el tridente; *bhinna*—separado; *grīvasya*—cuyo cuello; *bhūriṇā*—abundante; *rudhireṇa*—con sangre; *vai*—en verdad; *asṛk-priyam*—a quien le gustaba la sangre; *tarpayiṣye*—complaceré; *bhrātaram*—hermano; *me*—mío; *gata-vyathaḥ*—logrando también yo la paz.

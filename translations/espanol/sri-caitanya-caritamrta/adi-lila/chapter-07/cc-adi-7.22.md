@@ -1,9 +1,9 @@
 ### CC Adi 7.22
 
-> পুনঃ পুনঃ পিয়াইয়া হয় মহামত্ত ।
+> পুনঃ পুনঃ পিয়াইয়া হয় মহামত্ত ।\
 > নাচে, কান্দে, হাসে, গায়, যৈছে মদমত্ত ॥২২॥
 
-> punaḥ punaḥ piyāiyā haya mahāmatta
+> punaḥ punaḥ piyāiyā haya mahāmatta\
 > nāce, kānde, hāse, gāya, yaiche mada-matta
 
 *punaḥ punaḥ*—una y otra vez; *piyāiyā*—haciendo beber; *haya*—se vuelve; *mahā-matta*—sumamente extático; *nāce*—danza; *kānde*—llora; *hāse*—ríe; *gāya*—canta; *yaiche*—como si; *mada-matta*—uno estuviera ebrio.

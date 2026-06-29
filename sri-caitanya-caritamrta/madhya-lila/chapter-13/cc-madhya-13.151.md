@@ -1,13 +1,13 @@
 ### CC Madhya 13.151
 
-> তোমা-সবার প্রেমরসে, আমাকে করিল বশে,
-> আমি তোমার অধীন কেবল ।
-> তোমা-সবা ছাড়াঞা, আমা দূর-দেশে লঞা,
+> তোমা-সবার প্রেমরসে, আমাকে করিল বশে,\
+> আমি তোমার অধীন কেবল ।\
+> তোমা-সবা ছাড়াঞা, আমা দূর-দেশে লঞা,\
 > রাখিয়াছে দুর্দৈব প্রবল ॥১৫১॥
 
-> tomā-sabāra prema-rase, āmāke karila vaśe,
-> āmi tomāra adhīna kevala
-> tomā-sabā chāḍāñā, āmā dūra-deśe lañā,
+> tomā-sabāra prema-rase, āmāke karila vaśe,\
+> āmi tomāra adhīna kevala\
+> tomā-sabā chāḍāñā, āmā dūra-deśe lañā,\
 > rākhiyāche durdaiva prabala
 
 *tomā-sabāra*—of all of you; *prema-rase*—by the ecstasy and mellows of loving affairs; *āmāke*—Me; *karila*—you have made; *vaśe*—subservient; *āmi*—I; *tomāra*—of you; *adhīna*—subservient; *kevala*—only; *tomā-sabā*—from all of you; *chāḍāñā*—separating; *āmā*—Me; *dūra-deśe*—to distant countries; *lañā*—taking; *rākhiyāche*—has kept; *durdaiva*—misfortune; *prabala*—very powerful.

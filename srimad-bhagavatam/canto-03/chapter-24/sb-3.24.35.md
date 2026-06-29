@@ -1,13 +1,13 @@
 ### SB 3.24.35
 
-> श्रीभगवानुवाच
-> मया प्रोक्तं हि लोकस्य प्रमाणं सत्यलौकिके ।
+> श्रीभगवानुवाच\
+> मया प्रोक्तं हि लोकस्य प्रमाणं सत्यलौकिके ।\
 > अथाजनि मया तुभ्यं यदवोचमृतं मुने ॥३५॥
 
-> śrī-bhagavān uvāca
-> mayā proktaṁ hi lokasya
-> pramāṇaṁ satya-laukike
-> athājani mayā tubhyaṁ
+> śrī-bhagavān uvāca\
+> mayā proktaṁ hi lokasya\
+> pramāṇaṁ satya-laukike\
+> athājani mayā tubhyaṁ\
 > yad avocam ṛtaṁ mune
 
 *śrī-bhagavān uvāca*—the Supreme Personality of Godhead said; *mayā*—by Me; *proktam*—spoken; *hi*—in fact; *lokasya*—for the people; *pramāṇam*—authority; *satya*—spoken in scripture; *laukike*—and in ordinary speech; *atha*—therefore; *ajani*—there was birth; *mayā*—by Me; *tubhyam*—to you; *yat*—that which; *avocam*—I said; *ṛtam*—true; *mune*—O sage.

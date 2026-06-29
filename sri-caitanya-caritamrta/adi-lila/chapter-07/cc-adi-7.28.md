@@ -1,9 +1,9 @@
 ### CC Adi 7.28
 
-> যত যত প্রেমবৃষ্টি করে পঞ্চজনে ।
+> যত যত প্রেমবৃষ্টি করে পঞ্চজনে ।\
 > তত তত বাঢ়ে জল, ব্যাপে ত্রিভুবনে ॥২৮॥
 
-> yata yata prema-vṛṣṭi kare pañca-jane
+> yata yata prema-vṛṣṭi kare pañca-jane\
 > tata tata bāḍhe jala, vyāpe tri-bhuvane
 
 *yata*—as many; *yata*—so many; *prema-vṛṣṭi*—showers of love of Godhead; *kare*—causes; *pañca-jane*—the five members of the Pañca-tattva; *tatatata*—as much as; *bāḍhe*—increases; *jala*—water; *vyāpe*—spreads; *tri-bhuvane*—all over the three worlds.

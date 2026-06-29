@@ -1,9 +1,9 @@
 ### CC Madhya 3.70
 
-> প্রভু কহে — সন্ন্যাসীর ভক্ষ্য নহে উপকরণ ।
+> প্রভু কহে — সন্ন্যাসীর ভক্ষ্য নহে উপকরণ ।\
 > ইহা খাইলে কৈছে হয় ইন্দ্রিয় বারণ ॥৭০॥
 
-> prabhu kahe--sannyāsīra bhakṣya nahe upakaraṇa
+> prabhu kahe--sannyāsīra bhakṣya nahe upakaraṇa\
 > ihā khāile kaiche haya indriya vāraṇa
 
 *prabhu kahe*—el Señor dijo; *sannyāsīra*—por un *sannyāsī*; *bhakṣya*—para ser comido; *nahe*—esto no es; *upakaraṇa*—variedades de comida; *ihā*—esto; *khāile*—si come; *kaiche*—¿cómo?; *haya*—hay; *indriya*—sentidos; *vāraṇa*—control.

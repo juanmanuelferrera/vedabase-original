@@ -2,7 +2,7 @@
 
 > उत्स्रोतसस्तमःप्राया अन्तःस्पर्शा विशेषिण ॥२०॥
 
-> utsrotasas tamaḥ-prāyā
+> utsrotasas tamaḥ-prāyā\
 > antaḥ-sparśā viśeṣiṇaḥ
 
 *utsrotasaḥ*—they seek their subsistence upwards; *tamaḥ-prāyāḥ*—almost unconscious; *antaḥ-sparśāḥ*—slightly feeling within; *viśeṣiṇaḥ*—with varieties of manifestation.

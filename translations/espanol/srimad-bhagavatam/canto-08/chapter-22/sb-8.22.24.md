@@ -1,13 +1,13 @@
 ### SB 8.22.24
 
-> श्रीभगवानुवाच
-> ब्रह्मन्यमनुगृह्णामि तद्विशो विधुनोम्यहम
+> श्रीभगवानुवाच\
+> ब्रह्मन्यमनुगृह्णामि तद्विशो विधुनोम्यहम\
 > यन्मदः पुरुषः स्तब्धो लोकं मां चावमन्यते ॥२४॥
 
-> śrī-bhagavān uvāca
-> brahman yam anugṛhṇāmi
-> tad-viśo vidhunomy aham
-> yan-madaḥ puruṣaḥ stabdho
+> śrī-bhagavān uvāca\
+> brahman yam anugṛhṇāmi\
+> tad-viśo vidhunomy aham\
+> yan-madaḥ puruṣaḥ stabdho\
 > lokaṁ māṁ cāvamanyate
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *brahman*—¡oh, Señor Brahmā!; *yam*—a cualquiera que; *anugṛhṇāmi*—Yo muestro Mi misericordia; *tat*—su; *viśaḥ*—opulencia material o riquezas; *vidhunomi*—quito; *aham*—Yo; *yat-madaḥ*—con prestigio falso debido al dinero; *puruṣaḥ*—esa persona; *stabdhaḥ*—que no razona; *lokam*—de los tres mundos; *mām ca*—de Mí también; *avamanyate*—se burla.

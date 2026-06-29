@@ -1,11 +1,11 @@
 ### SB 6.7.39
 
-> सुरद्विषां श्रियं गुप्तामौशनस्यापि विद्यया
+> सुरद्विषां श्रियं गुप्तामौशनस्यापि विद्यया\
 > आच्छिद्यादान्महेन्द्राय वैष्णव्या विद्यया विभुः ॥३९॥
 
-> sura-dviṣāṁ śriyaṁ guptām
-> auśanasyāpi vidyayā
-> ācchidyādān mahendrāya
+> sura-dviṣāṁ śriyaṁ guptām\
+> auśanasyāpi vidyayā\
+> ācchidyādān mahendrāya\
 > vaiṣṇavyā vidyayā vibhuḥ
 
 *sura-dviṣām*—of the enemies of the demigods; *śriyam*—the opulence; *guptām*—protected; *auśanasya*—of Śukrācārya; *api*—although; *vidyayā*—by the talents; *ācchidya*—collecting; *adāt*—delivered; *mahā-indrāya*—unto King Indra; *vaiṣṇavyā*—of Lord Viṣṇu; *vidyayā*—by a prayer; *vibhuḥ*—the most powerful Viśvarūpa.

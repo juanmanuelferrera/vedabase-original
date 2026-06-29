@@ -1,9 +1,9 @@
 ### CC Adi 17.101
 
-> আর দিন এক ভিক্ষুক আইলা মাগিতে ।
+> আর দিন এক ভিক্ষুক আইলা মাগিতে ।\
 > প্রভুর নৃত্য দেখি নৃত্য লাগিল করিতে ॥১০১॥
 
-> āra dina eka bhikṣuka āilā māgite
+> āra dina eka bhikṣuka āilā māgite\
 > prabhura nṛtya dekhi nṛtya lāgila karite
 
 *āra*—another; *dina*—day; *eka*—one; *bhikṣuka*—beggar; *āilā*—came; *māgite*—to beg; *prabhura*—of the Lord; *nṛtya*—dancing; *dekhi*—seeing; *nṛtya*—dancing; *lāgila*—began; *karite*—to perform.

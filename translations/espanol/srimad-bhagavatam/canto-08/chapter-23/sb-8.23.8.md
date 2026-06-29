@@ -1,13 +1,13 @@
 ### SB 8.23.8
 
-> चित्रं तवेहितमहोऽमितयोगमाया
-> लीलाविसृष्टभुवनस्य विशारदस्य
-> सर्वात्मनः समदृशोऽविषमः स्वभावो
+> चित्रं तवेहितमहोऽमितयोगमाया\
+> लीलाविसृष्टभुवनस्य विशारदस्य\
+> सर्वात्मनः समदृशोऽविषमः स्वभावो\
 > भक्तप्रियो यदसि कल्पतरुस्वभावः ॥८॥
 
-> citraṁ tavehitam aho 'mita-yogamāyā-
-> līlā-visṛṣṭa-bhuvanasya viśāradasya
-> sarvātmanaḥ samadṛśo 'viṣamaḥ svabhāvo
+> citraṁ tavehitam aho 'mita-yogamāyā-\
+> līlā-visṛṣṭa-bhuvanasya viśāradasya\
+> sarvātmanaḥ samadṛśo 'viṣamaḥ svabhāvo\
 > bhakta-priyo yad asi kalpataru-svabhāvaḥ
 
 *citram*—muy maravillosas; *tava īhitam*—todas Tus actividades; *aho*—¡ay!; *amita*—ilimitada; *yogamāyā*—de Tu potencia espiritual; *līlā*—por los pasatiempos; *visṛṣṭa-bhuvanasya*—de Tu Señoría, por quien han sido creados todos los universos; *viśāradasya*—de Tu Señoría, que eres experto en todo; *sarva-ātmanaḥ*—de Tu Señoría, que todo lo penetras; *sama-dṛśaḥ*—y que eres ecuánime con todos; *aviṣamaḥ*—sin diferencias; *svabhāvaḥ*—que Te caracteriza; *bhakta-priyaḥ*—cuando las circunstancias lo requieren, favoreces a Tus devotos; *yat*—puesto que; *asi*—Tú eres; *kalpataru-svabhāvaḥ*—con la característica del árbol de deseos.

@@ -1,9 +1,9 @@
 ### CC Antya 2.167
 
-> এইমত লীলা করে শচীর নন্দন ।
+> এইমত লীলা করে শচীর নন্দন ।\
 > যাহা শুনি’ ভক্তগণের যুড়ায় কর্ণ-মন ॥১৬৭॥
 
-> ei-mata līlā kare śacīra nandana
+> ei-mata līlā kare śacīra nandana\
 > yāhā śuni' bhakta-gaṇera yuḍāya karṇa-mana
 
 *ei-mata*—de esta manera; *līlā kare*—continúa ejecutando pasatiempos; *śacīra nandana*—el hijo de madre Śacī; *yāhā śuni'*—al escuchar los cuales; *bhakta-gaṇera*—de los devotos; *yuḍāya*—satisface; *karṇa-mana*—los oídos y la mente.

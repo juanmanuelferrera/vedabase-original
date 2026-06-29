@@ -1,11 +1,11 @@
 ### SB 3.33.13
 
-> सा चापि तनयोक्तेन योगादेशेन योगयुक् ।
+> सा चापि तनयोक्तेन योगादेशेन योगयुक् ।\
 > तस्मिन्नाश्रम आपीडे सरस्वत्याः समाहिता ॥१३॥
 
-> sā cāpi tanayoktena
-> yogādeśena yoga-yuk
-> tasminn āśrama āpīḍe
+> sā cāpi tanayoktena\
+> yogādeśena yoga-yuk\
+> tasminn āśrama āpīḍe\
 > sarasvatyāḥ samāhitā
 
 *sā*—ella; *ca*—y; *api*—también; *tanaya*—por su hijo; *uktena*—habladas; *yoga-ādeśena*—con las enseñanzas sobre el *yoga*; *yoga-yuk*—ocupada en *bhakti-yoga*; *tasmin*—en aquella; *āśrame*—ermita; *āpīḍe*—la corona de flores; *sarasvatyāḥ*—del Sarasvatī; *samāhitā*—fija en *samādhi.*.

@@ -1,9 +1,9 @@
 ### CC Madhya 18.93
 
-> প্রভু দেখি’ করিল লোক চরণ বন্দন ।
+> প্রভু দেখি’ করিল লোক চরণ বন্দন ।\
 > প্রভু কহে, — কাহাঁ হৈতে করিলা আগমন ? ॥ ৯৩ ॥
 
-> prabhu dekhi' karila loka caraṇa vandana
+> prabhu dekhi' karila loka caraṇa vandana\
 > prabhu kahe,--kāhāṅ haite karilā āgamana?
 
 *prabhu dekhi'*—al ver al Señor Śrī Caitanya Mahāprabhu; *karila*—ofrecieron; *loka*—la gente; *caraṇa vandana*—reverencias a Sus pies de loto; *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *kāhāṅ haite*—de dónde; *karilā āgamana*—habéis venido.

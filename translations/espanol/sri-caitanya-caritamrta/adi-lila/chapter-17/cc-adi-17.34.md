@@ -1,9 +1,9 @@
 ### CC Adi 17.34
 
-> তবে প্রভু শ্রীবাসের গৃহে নিরন্তর ।
+> তবে প্রভু শ্রীবাসের গৃহে নিরন্তর ।\
 > রাত্রে সংকীর্তন কৈল এক সম্বৎসর ॥৩৪॥
 
-> tabe prabhu śrīvāsera gṛhe nirantara
+> tabe prabhu śrīvāsera gṛhe nirantara\
 > rātre saṅkīrtana kaila eka saṁvatsara
 
 *tabe*—después de eso; *prabhu*—el Señor, Śrī Caitanya Mahāprabhu; *śrīvāsera*—de Śrīvāsa Ṭhākura; *gṛhe*—en la casa; *nirantara*—siempre; *rātre*—por la noche; *saṅkīrtana*—canto congregacional del mahā-mantra Hare Kṛṣṇa; *kaila*—realizó; *eka saṁvatsara*—un año entero.

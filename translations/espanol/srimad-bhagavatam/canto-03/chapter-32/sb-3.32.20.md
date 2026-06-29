@@ -1,11 +1,11 @@
 ### SB 3.32.20
 
-> दक्षिणेन पथार्यम्णः पितृलोकं व्रजन्ति ते ।
+> दक्षिणेन पथार्यम्णः पितृलोकं व्रजन्ति ते ।\
 > प्रजामनु प्रजायन्ते श्मशानान्तक्रियाकृतः ॥२०॥
 
-> dakṣiṇena pathāryamṇaḥ
-> pitṛ-lokaṁ vrajanti te
-> prajām anu prajāyante
+> dakṣiṇena pathāryamṇaḥ\
+> pitṛ-lokaṁ vrajanti te\
+> prajām anu prajāyante\
 > śmaśānānta-kriyā-kṛtaḥ
 
 *dakṣiṇena*—meridional; *pathā*—por el sendero; *aryamṇaḥ*—del Sol; *pitṛ-lokam*—a Pitṛloka; *vrajanti*—van; *te*—ellos; *prajām*—sus familias; *anu*—junto con; *prajāyante*—ellos nacen; *śmaśāna*—el crematorio; *anta*—al final; *kriyā*—actividades fruitivas; *kṛtaḥ*—ejecutando.

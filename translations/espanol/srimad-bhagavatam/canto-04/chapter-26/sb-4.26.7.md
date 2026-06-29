@@ -1,11 +1,11 @@
 ### SB 4.26.7
 
-> य एवं कर्म नियतं विद्वान्कुर्वीत मानवः ।
+> य एवं कर्म नियतं विद्वान्कुर्वीत मानवः ।\
 > कर्मणा तेन राजेन्द्र ज्ञानेन न स लिप्यते ॥७॥
 
-> ya evaṁ karma niyataṁ
-> vidvān kurvīta mānavaḥ
-> karmaṇā tena rājendra
+> ya evaṁ karma niyataṁ\
+> vidvān kurvīta mānavaḥ\
+> karmaṇā tena rājendra\
 > jñānena na sa lipyate
 
 *yaḥ*—todo el que; *evam*—de este modo; *karma*—actividades; *niyatam*—reguladas; *vidvān*—erudito; *kurvīta*—debe ejecutar; *mānavaḥ*—un ser humano; *karmaṇā*—con esas actividades; *tena*—por esto; *rāja-indra*—¡oh, rey!; *jñānena*—con el avance en el conocimiento; *na*—nunca; *saḥ*—él; *lipyate*—se complica.

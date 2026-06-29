@@ -1,13 +1,13 @@
 ### SB 4.7.14
 
-> विद्यातपोव्रतधरान्मुखतः स्म विप्रान्
-> ब्रह्मात्मतत्त्वमवितुं प्रथमं त्वमस्राक् ।
-> तद्ब्राह्मणान्परम सर्वविपत्सु पासि
+> विद्यातपोव्रतधरान्मुखतः स्म विप्रान्\
+> ब्रह्मात्मतत्त्वमवितुं प्रथमं त्वमस्राक् ।\
+> तद्ब्राह्मणान्परम सर्वविपत्सु पासि\
 > पालः पशूनिव विभो प्रगृहीतदण्डः ॥१४॥
 
-> vidyā-tapo-vrata-dharān mukhataḥ sma viprān
-> brahmātma-tattvam avituṁ prathamaṁ tvam asrāk
-> tad brāhmaṇān parama sarva-vipatsu pāsi
+> vidyā-tapo-vrata-dharān mukhataḥ sma viprān\
+> brahmātma-tattvam avituṁ prathamaṁ tvam asrāk\
+> tad brāhmaṇān parama sarva-vipatsu pāsi\
 > pālaḥ paśūn iva vibho pragṛhīta-daṇḍaḥ
 
 *vidyā*—learning; *tapaḥ*—austerities; *vrata*—vows; *dharān*—the followers; *mukhataḥ*—from the mouth; *sma*—was; *viprān*—the *brāhmaṇas*; *brahmā*—Lord Brahmā; *ātma-tattvam*—self-realization; *avitum*—to disseminate; *prathamam*—first; *tvam*—you; *asrāk*—created; *tat*—therefore; *brāhmaṇān*—the *brāhmaṇas*; *parama*—O great one; *sarva*—all; *vipatsu*—in dangers; *pāsi*—you protect; *pālaḥ*—like the protector; *paśūn*—the animals; *iva*—like; *vibho*—O great one; *pragṛhīta*—taking in hand; *daṇḍaḥ*—a stick.

@@ -1,9 +1,9 @@
 ### CC Adi 17.238
 
-> তাহি মধ্যে ছয়ঋতু লীলার বর্ণন ।
+> তাহি মধ্যে ছয়ঋতু লীলার বর্ণন ।\
 > মধুপান, রাসোৎসব, জলকেলি কথন ॥২৩৮॥
 
-> tāhi madhye chaya-ṛtu līlāra varṇana
+> tāhi madhye chaya-ṛtu līlāra varṇana\
 > madhu-pāna, rāsotsava, jala-keli kathana
 
 *tāhi madhye*—durante ello; *chaya-ṛtu*—las seis estaciones; *līlāra*—de los pasatiempos; *varṇana*—descripción; *madhu-pāna*—beber miel; *rāsa-utsava*—bailar el rāsa-līlā; *jala-keli*—nadar en el Yamunā; *kathana*—narraciones.

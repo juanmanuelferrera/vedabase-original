@@ -2,7 +2,7 @@
 
 > “ক্ষেত্রজ্ঞ আত্মা পুরুষঃ প্রধানং প্রকৃতিঃ স্ত্রিয়াম্ ।।” ॥ ৩০৯ ॥
 
-> "kṣetrajña ātmā puruṣaḥ
+> "kṣetrajña ātmā puruṣaḥ\
 > pradhānaṁ prakṛtiḥ striyām"
 
 *kṣetra-jñaḥ*—the word *kṣetrajña*; *ātmā*—the living entity; *puruṣaḥ*—the enjoyer; *pradhānam*—the chief; *prakṛtiḥ*—the material nature; *striyām*—in the feminine gender.

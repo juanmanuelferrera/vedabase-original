@@ -1,9 +1,9 @@
 ### CC Adi 4.189
 
-> এ বিরোধের এক মাত্র দেখি সমাধান ।
+> এ বিরোধের এক মাত্র দেখি সমাধান ।\
 > গোপিকার সুখ কৃষ্ণসুখে পর্যবসান ॥১৮৯॥
 
-> e virodhera eka mātra dekhi samādhāna
+> e virodhera eka mātra dekhi samādhāna\
 > gopikāra sukha kṛṣṇa-sukhe paryavasāna
 
 *e*—this; *virodhera*—of the contradiction; *eka*—one; *mātra*—only; *dekhi*—I see; *samādhāna*—solution; *gopikāra*—of the *gopīs*; *sukha*—the happiness; *kṛṣṇa-sukhe*—in the happiness of Lord Kṛṣṇa; *paryavasāna*—the conclusion.

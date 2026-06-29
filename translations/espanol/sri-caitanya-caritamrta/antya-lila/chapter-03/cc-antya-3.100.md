@@ -1,9 +1,9 @@
 ### CC Antya 3.100
 
-> নির্জন-বনে কুটির করি’ তুলসী সেবন ।
+> নির্জন-বনে কুটির করি’ তুলসী সেবন ।\
 > রাত্রি-দিনে তিন লক্ষ নাম-সঙ্কীর্তন ॥১০০॥
 
-> nirjana-vane kuṭira kari' tulasī sevana
+> nirjana-vane kuṭira kari' tulasī sevana\
 > rātri-dine tina lakṣa nāma-saṅkīrtana
 
 *nirjana-vane*—en un bosque solitario; *kuṭira*—una cabaña; *kari'*—construyendo; *tulasī*—la planta de *tulasī*; *sevana*—adorar; *rātri-dine*—durante todo el día y la noche; *tina*—tres; *lakṣa*—cien mil; *nāma-saṅkīrtana*—canto del santo nombre.

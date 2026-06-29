@@ -1,13 +1,13 @@
 ### CC Madhya 2.71
 
-> মোর বাক্য নিন্দা মানি, কৃষ্ণ ছাড়ি’ গেলা জানি,
-> শুন, মোর এ স্তুতি-বচন ।
-> নয়নের অভিরাম, তুমি মোর ধন-প্রাণ,
+> মোর বাক্য নিন্দা মানি, কৃষ্ণ ছাড়ি’ গেলা জানি,\
+> শুন, মোর এ স্তুতি-বচন ।\
+> নয়নের অভিরাম, তুমি মোর ধন-প্রাণ,\
 > হাহা পুনঃ দেহ দরশন ॥৭১॥
 
-> mora vākya nindā māni, kṛṣṇa chāḍi' gelā jāni,
-> śuna, mora e stuti-vacana
-> nayanera abhirāma, tumi mora dhana-prāṇa,
+> mora vākya nindā māni, kṛṣṇa chāḍi' gelā jāni,\
+> śuna, mora e stuti-vacana\
+> nayanera abhirāma, tumi mora dhana-prāṇa,\
 > hā-hā punaḥ deha daraśana
 
 *mora*—Mis; *vākya*—palabras; *nindā*—blasfemia; *māni*—aceptando; *kṛṣṇa*—el Señor Kṛṣṇa; *chāḍi'*—abandonando; *gelā*—se marchó; *jāni*—Yo sé; *śuna*—escucha; *mora*—Mi; *e*—esta; *stuti-vacana*—palabras de alabanza; *nayanera*—de los ojos; *abhirāma*—la satisfacción; *tumi*—Tú eres; *mora*—Mi; *dhana-prāṇa*—riqueza y vida; *hā-hā*—¡ay!; *punaḥ*—de nuevo; *deha*—concédeme; *daraśana*—audiencia.

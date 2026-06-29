@@ -1,13 +1,13 @@
 ### SB 3.16.20
 
-> यं वै विभूतिरुपयात्यनुवेलमन्यैर्
-> अर्थार्थिभिः स्वशिरसा धृतपादरेणुः ।
-> धन्यार्पिताङ्घ्रितुलसीनवदामधाम्नो
+> यं वै विभूतिरुपयात्यनुवेलमन्यैर्\
+> अर्थार्थिभिः स्वशिरसा धृतपादरेणुः ।\
+> धन्यार्पिताङ्घ्रितुलसीनवदामधाम्नो\
 > लोकं मधुव्रतपतेरिव कामयाना ॥२०॥
 
-> yaṁ vai vibhūtir upayāty anuvelam anyair
-> arthārthibhiḥ sva-śirasā dhṛta-pāda-reṇuḥ
-> dhanyārpitāṅghri-tulasī-nava-dāma-dhāmno
+> yaṁ vai vibhūtir upayāty anuvelam anyair\
+> arthārthibhiḥ sva-śirasā dhṛta-pāda-reṇuḥ\
+> dhanyārpitāṅghri-tulasī-nava-dāma-dhāmno\
 > lokaṁ madhuvrata-pater iva kāma-yānā
 
 *yam*—whom; *vai*—certainly; *vibhūtiḥ*—Lakṣmī, the goddess of fortune; *upayāti*—waits upon; *anuvelam*—occasionally; *anyaiḥ*—by others; *artha*—material facility; *arthibhiḥ*—by those who desire; *sva-śirasā*—on their own heads; *dhṛta*—accepting; *pāda*—of the feet; *reṇuḥ*—the dust; *dhanya*—by the devotees; *arpita*—offered; *aṅghri*—at Your feet; *tulasī*—of *tulasī* leaves; *nava*—fresh; *dāma*—on the garland; *dhāmnaḥ*—having a place; *lokam*—the place; *madhu-vrata-pateḥ*—of the king of the bees; *iva*—like; *kāma-yānā*—is anxious to secure.

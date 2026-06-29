@@ -1,11 +1,11 @@
 ### SB 3.19.2
 
-> ततः सपत्नं मुखतश्चरन्तमकुतोभयम् ।
+> ततः सपत्नं मुखतश्चरन्तमकुतोभयम् ।\
 > जघानोत्पत्य गदया हनावसुरमक्षजः ॥२॥
 
-> tataḥ sapatnaṁ mukhataś
-> carantam akuto-bhayam
-> jaghānotpatya gadayā
+> tataḥ sapatnaṁ mukhataś\
+> carantam akuto-bhayam\
+> jaghānotpatya gadayā\
 > hanāv asuram akṣajaḥ
 
 *tataḥ*—then; *sapatnam*—enemy; *mukhataḥ*—in front of Him; *carantam*—stalking; *akutaḥ-bhayam*—fearlessly; *jaghāna*—struck; *utpatya*—after springing up; *gadayā*—with His mace; *hanau*—at the chin; *asuram*—the demon; *akṣa-jaḥ*—the Lord, who was born from the nostril of Brahmā.

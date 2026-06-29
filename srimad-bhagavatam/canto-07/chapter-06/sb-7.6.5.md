@@ -1,11 +1,11 @@
 ### SB 7.6.5
 
-> ततो यतेत कुशलः क्षेमाय भवमाश्रितः
+> ततो यतेत कुशलः क्षेमाय भवमाश्रितः\
 > शरीरं पौरुषं यावन्न विपद्येत पुष्कलम ॥५॥
 
-> tato yateta kuśalaḥ
-> kṣemāya bhavam āśritaḥ
-> śarīraṁ pauruṣaṁ yāvan
+> tato yateta kuśalaḥ\
+> kṣemāya bhavam āśritaḥ\
+> śarīraṁ pauruṣaṁ yāvan\
 > na vipadyeta puṣkalam
 
 *tataḥ*—therefore; *yateta*—should endeavor; *kuśalaḥ*—an intelligent man interested in the ultimate goal of life; *kṣemāya*—for the real benefit of life, or for liberation from material bondage; *bhavam āśritaḥ*—who is in material existence; *śarīram*—the body; *pauruṣam*—human; *yāvat*—as long as; *na*—not; *vipadyeta*—fails; *puṣkalam*—stout and strong.

@@ -1,9 +1,9 @@
 ### CC Antya 17.64
 
-> একদিনে যত হয় ভাবের বিকার ।
+> একদিনে যত হয় ভাবের বিকার ।\
 > সহস্রমুখে বর্ণে যদি, নাহি পায় পার ॥৬৪॥
 
-> eka-dine yata haya bhāvera vikāra
+> eka-dine yata haya bhāvera vikāra\
 > sahasra-mukhe varṇe yadi, nāhi pāya pāra
 
 *eka-dine*—en un solo día; *yata haya*—tantas como hay; *bhāvera*—del éxtasis; *vikāra*—transformaciones; *sahasra-mukhe*—con miles de bocas; *varṇe yadi*—si describe; *nāhi pāya*—no puede alcanzar; *pāra*—el límite.

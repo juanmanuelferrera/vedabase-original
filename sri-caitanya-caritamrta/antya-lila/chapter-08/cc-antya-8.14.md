@@ -1,9 +1,9 @@
 ### CC Antya 8.14
 
-> আগ্রহ করিয়া পুনঃ পুনঃ খাওয়াইল ।
+> আগ্রহ করিয়া পুনঃ পুনঃ খাওয়াইল ।\
 > আচমন কৈলে নিন্দা করিতে লাগিল ॥১৪॥
 
-> āgraha kariyā punaḥ punaḥ khāoyāila
+> āgraha kariyā punaḥ punaḥ khāoyāila\
 > ācamana kaile nindā karite lāgila
 
 *āgraha kariyā*—with eagerness; *punaḥ punaḥ*—again and again; *khāoyāila*—fed; *ācamana kaile*—when he had washed his hands and mouth; *nindā karite lāgila*—began to criticize.

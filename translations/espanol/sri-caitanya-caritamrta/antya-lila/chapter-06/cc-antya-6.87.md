@@ -1,9 +1,9 @@
 ### CC Antya 6.87
 
-> ‘হরি’ ‘হরি’ বলি’ বৈষ্ণব করয়ে ভোজন ।
+> ‘হরি’ ‘হরি’ বলি’ বৈষ্ণব করয়ে ভোজন ।\
 > পুলিন-ভোজন সবার হইল স্মরণ ॥৮৭॥
 
-> 'hari' 'hari' bali' vaiṣṇava karaye bhojana
+> 'hari' 'hari' bali' vaiṣṇava karaye bhojana\
 > pulina-bhojana sabāra ha-ila smaraṇa
 
 *hari hari bali'*—cantando Hari, Hari; *vaiṣṇava*—todos los vaiṣṇavas; *karaye bhojana*—comen; *pulina-bhojana*—comer en la ribera del Yamunā; *sabāra ha-ila smaraṇa*—todos pudieron recordar.

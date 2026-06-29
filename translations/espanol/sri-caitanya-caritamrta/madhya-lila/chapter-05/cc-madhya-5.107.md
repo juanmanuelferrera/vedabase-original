@@ -1,9 +1,9 @@
 ### CC Madhya 5.107
 
-> ব্রাহ্মণেরে কহে, — “তুমি যাহ নিজ-ঘর ।
+> ব্রাহ্মণেরে কহে, — “তুমি যাহ নিজ-ঘর ।\
 > এথায় রহিব আমি, না যাব অতঃপর ।।” ॥ ১০৭ ॥
 
-> brāhmaṇere kahe,--"tumi yāha nija-ghara
+> brāhmaṇere kahe,--"tumi yāha nija-ghara\
 > ethāya rahiba āmi, nā yāba ataḥpara"
 
 *brāhmaṇere kahe*—le dijo al brāhmaṇa; *tumi*—tú; *yāha*—ve; *nija-ghara*—a tu propia casa; *ethāya*—aquí, en este lugar; *rahiba*—Me quedaré; *āmi*—Yo; *nā*—no; *yāba*—iré; *ataḥpara*—de aquí en adelante.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.283
 
-> রঘুনাথ-দাস নিত্যানন্দ-পাশে গেলা ।
+> রঘুনাথ-দাস নিত্যানন্দ-পাশে গেলা ।\
 > চিড়া-দধি-মহোৎসব তাহাঁই করিলা ॥২৮৩॥
 
-> raghunātha-dāsa nityānanda-pāśe gelā
+> raghunātha-dāsa nityānanda-pāśe gelā\
 > ciḍā-dadhi-mahotsava tāhāṅi karilā
 
 *raghunātha-dāsa*—of the name Raghunātha dāsa; *nityānanda*—Lord Nityānanda; *pāśe*—near; *gelā*—went; *ciḍā*—chipped rice; *dadhi*—curd; *mahotsava*—festival; *tāhāṅi*—there; *karilā*—performed.

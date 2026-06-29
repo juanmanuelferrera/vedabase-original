@@ -1,9 +1,9 @@
 ### CC Adi 17.89
 
-> কীর্তন করিতে প্রভু আইল মেঘগণ ।
+> কীর্তন করিতে প্রভু আইল মেঘগণ ।\
 > আপন-ইচ্ছায় কৈল মেঘ নিবারণ ॥৮৯॥
 
-> kīrtana karite prabhu āila megha-gaṇa
+> kīrtana karite prabhu āila megha-gaṇa\
 > āpana-icchāya kaila megha nivāraṇa
 
 *kīrtana*—*saṅkīrtana*; *karite*—performing; *prabhu*—the Lord; *āila*—there was; *megha-gaṇa*—bunches of clouds; *āpana-icchāya*—by self-will; *kaila*—made; *megha*—of the clouds; *nivāraṇa*—stopping.

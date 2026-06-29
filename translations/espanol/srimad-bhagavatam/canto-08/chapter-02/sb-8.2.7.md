@@ -1,11 +1,11 @@
 ### SB 8.2.7
 
-> नानारण्यपशुव्रात सङ्कुलद्रोण्यलङ्कृतः
+> नानारण्यपशुव्रात सङ्कुलद्रोण्यलङ्कृतः\
 > चित्रद्रुमसुरोद्यान कलकण्ठविहङ्गमः ॥७॥
 
-> nānāraṇya-paśu-vrāta-
-> saṅkula-droṇy-alaṅkṛtaḥ
-> citra-druma-surodyāna-
+> nānāraṇya-paśu-vrāta-\
+> saṅkula-droṇy-alaṅkṛtaḥ\
+> citra-druma-surodyāna-\
 > kalakaṇṭha-vihaṅgamaḥ
 
 *nānā*—con diversidad de; *araṇya-paśu*—animales salvajes; *vrāta*—con multitud; *saṅkula*—llenos; *droṇi*—con valles; *alaṅkṛtaḥ*—adornados de gran belleza; *citra*—con diversidad de; *druma*—árboles; *sura-udyāna*—en jardines cuidados por los semidioses; *kalakaṇṭha*—de dulces trinos; *vihaṅgamaḥ*—pájaros.

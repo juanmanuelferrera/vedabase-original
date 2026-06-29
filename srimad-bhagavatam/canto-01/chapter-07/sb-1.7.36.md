@@ -1,11 +1,11 @@
 ### SB 1.7.36
 
-> मत्तं प्रमत्तमुन्मत्तं सुप्तं बालं स्त्रियं जडम् ।
+> मत्तं प्रमत्तमुन्मत्तं सुप्तं बालं स्त्रियं जडम् ।\
 > प्रपन्नं विरथं भीतं न रिपुं हन्ति धर्मवित् ॥३६॥
 
-> mattaṁ pramattam unmattaṁ
-> suptaṁ bālaṁ striyaṁ jaḍam
-> prapannaṁ virathaṁ bhītaṁ
+> mattaṁ pramattam unmattaṁ\
+> suptaṁ bālaṁ striyaṁ jaḍam\
+> prapannaṁ virathaṁ bhītaṁ\
 > na ripuṁ hanti dharma-vit
 
 *mattam*—careless; *pramattam*—intoxicated; *unmattam*—insane; *suptam*—asleep; *bālam*—boy; *striyam*—woman; *jaḍam*—foolish; *prapannam*—surrendered; *viratham*—one who has lost his chariot; *bhītam*—afraid; *na*—not; *ripum*—enemy; *hanti*—kill; *dharma-vit*—one who knows the principles of religion.

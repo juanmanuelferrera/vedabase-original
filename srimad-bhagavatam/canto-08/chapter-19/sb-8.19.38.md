@@ -1,11 +1,11 @@
 ### SB 8.19.38
 
-> अत्रापि बह्वृचैर्गीतं शृणु मेऽसुरसत्तम
+> अत्रापि बह्वृचैर्गीतं शृणु मेऽसुरसत्तम\
 > सत्यमोमिति यत्प्रोक्तं यन्नेत्याहानृतं हि तत ॥३८॥
 
-> atrāpi bahvṛcair gītaṁ
-> śṛṇu me 'sura-sattama
-> satyam om iti yat proktaṁ
+> atrāpi bahvṛcair gītaṁ\
+> śṛṇu me 'sura-sattama\
+> satyam om iti yat proktaṁ\
 > yan nety āhānṛtaṁ hi tat
 
 *atra api*—in this regard also (in deciding what is truth and what is not truth); *bahu-ṛcaiḥ*—by the *śruti-mantras* known as *Bahvṛca-śruti,* which are evidence from the *Vedas*; *gītam*—what has been spoken; *śṛṇu*—just hear; *me*—from me; *asura-sattama*—O best of the *asuras*; *satyam*—the truth is; *om iti*—preceded by the word *oṁ*; *yat*—that which; *proktam*—has been spoken; *yat*—that which is; *na*—not preceded by *oṁ*; *iti*—thus; *āha*—it is said; *anṛtam*—untruth; *hi*—indeed; *tat*—that.

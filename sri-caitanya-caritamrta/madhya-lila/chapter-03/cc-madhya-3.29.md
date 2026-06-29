@@ -1,9 +1,9 @@
 ### CC Madhya 3.29
 
-> এত বলি’ নমস্করি’ কৈল গঙ্গাস্নান ।
+> এত বলি’ নমস্করি’ কৈল গঙ্গাস্নান ।\
 > এক কৌপীন, নাহি দ্বিতীয় পরিধান ॥২৯॥
 
-> eta bali' namaskari' kaila gaṅgā-snāna
+> eta bali' namaskari' kaila gaṅgā-snāna\
 > eka kaupīna, nāhi dvitīya paridhāna
 
 *etabali'*—saying this; *namaskari'*—offering obeisances; *kaila*—did; *gaṅgā-snāna*—bathing in the Ganges; *eka kaupīna*—only one piece of underwear; *nāhi*—there was not; *dvitīya*—second; *paridhāna*—garment.

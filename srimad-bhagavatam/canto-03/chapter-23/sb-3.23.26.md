@@ -1,11 +1,11 @@
 ### SB 3.23.26
 
-> सान्तः सरसि वेश्मस्थाः शतानि दश कन्यकाः ।
+> सान्तः सरसि वेश्मस्थाः शतानि दश कन्यकाः ।\
 > सर्वाः किशोरवयसो ददर्शोत्पलगन्धयः ॥२६॥
 
-> sāntaḥ sarasi veśma-sthāḥ
-> śatāni daśa kanyakāḥ
-> sarvāḥ kiśora-vayaso
+> sāntaḥ sarasi veśma-sthāḥ\
+> śatāni daśa kanyakāḥ\
+> sarvāḥ kiśora-vayaso\
 > dadarśotpala-gandhayaḥ
 
 *sā*—she; *antaḥ*—inside; *sarasi*—in the lake; *veśma-sthāḥ*—situated in a house; *śatāni daśa*—ten hundred; *kanyakāḥ*—girls; *sarvāḥ*—all; *kiśora-vayasaḥ*—in the prime of youth; *dadarśa*—she saw; *utpala*—like lotuses; *gandhayaḥ*—fragrant.

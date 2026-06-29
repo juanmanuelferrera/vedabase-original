@@ -1,11 +1,11 @@
 ### SB 3.20.18
 
-> ससर्ज च्छाययाविद्यां पञ्चपर्वाणमग्रतः ।
+> ससर्ज च्छाययाविद्यां पञ्चपर्वाणमग्रतः ।\
 > तामिस्रमन्धतामिस्रं तमो मोहो महातमः ॥१८॥
 
-> sasarja cchāyayāvidyāṁ
-> pañca-parvāṇam agrataḥ
-> tāmisram andha-tāmisraṁ
+> sasarja cchāyayāvidyāṁ\
+> pañca-parvāṇam agrataḥ\
+> tāmisram andha-tāmisraṁ\
 > tamo moho mahā-tamaḥ
 
 *sasarja*—created; *chāyayā*—with his shadow; *avidyām*—ignorance; *pañca-parvāṇam*—five varieties; *agrataḥ*—first of all; *tāmisram*—*tāmisra*; *andha-tāmisram*—*andha-tāmisra*; *tamaḥ*—*tamas*; *mohaḥ*—*moha*; *mahā-tamaḥ*—*mahā-tamas,* or *mahā-moha.*

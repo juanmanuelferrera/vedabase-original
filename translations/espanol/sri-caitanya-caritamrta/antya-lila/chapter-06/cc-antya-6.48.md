@@ -1,9 +1,9 @@
 ### CC Antya 6.48
 
-> প্রভু বোলায়, তেঁহো নিকটে না করে গমন ।
+> প্রভু বোলায়, তেঁহো নিকটে না করে গমন ।\
 > আকর্ষিয়া তাঁর মাথে প্রভু ধরিলা চরণ ॥৪৮॥
 
-> prabhu bolāya, teṅho nikaṭe nā kare gamana
+> prabhu bolāya, teṅho nikaṭe nā kare gamana\
 > ākarṣiyā tāṅra māthe prabhu dharilā caraṇa
 
 *prabhu bolāya*—el Señor lo llama; *teṅho*—él; *nikaṭe*—cerca; *nā kare gamana*—no se acerca; *ākarṣiyā*—atrayéndolo; *tāṅra māthe*—sobre su cabeza; *prabhu*—Nityānanda Prabhu; *dharilā caraṇa*—colocó Sus pies.

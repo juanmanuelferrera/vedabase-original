@@ -1,9 +1,9 @@
 ### CC Adi 17.253
 
-> পড়ুয়া সহস্র যাহাঁ পড়ে একঠাঞি ।
+> পড়ুয়া সহস্র যাহাঁ পড়ে একঠাঞি ।\
 > প্রভুর বৃত্তান্ত দ্বিজ কহে তাহাঁ যাই ॥২৫৩॥
 
-> paḍuyā sahasra yāhāṅ paḍe eka-ṭhāñi
+> paḍuyā sahasra yāhāṅ paḍe eka-ṭhāñi\
 > prabhura vṛttānta dvija kahe tāhāṅ yāi
 
 *paḍuyā*—students; *sahasra*—a thousand; *yāhāṅ*—where; *paḍe*—they study; *eka-thāñi*—in one place; *prabhura*—of the Lord; *vṛttānta*—incident; *dvija*—the *brāhmaṇa*; *kahe*—says; *tāhāṅ*—there; *yāi*—he goes.

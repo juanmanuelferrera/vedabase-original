@@ -1,9 +1,9 @@
 ### CC Madhya 10.133
 
-> সিদ্ধিপ্রাপ্তিকালে গোসাঞি আজ্ঞা কৈল মোরে ।
+> সিদ্ধিপ্রাপ্তিকালে গোসাঞি আজ্ঞা কৈল মোরে ।\
 > কৃষ্ণচৈতন্য-নিকটে রহি সেবিহ তাঁহারে ॥১৩৩॥
 
-> siddha-prāpti-kāle gosāñi ājñā kaila more
+> siddha-prāpti-kāle gosāñi ājñā kaila more\
 > kṛṣṇa-caitanya-nikaṭe rahi seviha tāṅhāre
 
 *siddhi-prāpti-kāle*—at the time of his departure from this mortal world to achieve the highest perfection of life; *gosāñi*—my spiritual master; *ājñā*—order; *kaila*—made; *more*—unto me; *kṛṣṇa-caitanya-nikaṭe*—at the place of Śrī Kṛṣṇa Caitanya; *rahi*—remaining; *seviha*—render service; *tāṅhāre*—unto Him.

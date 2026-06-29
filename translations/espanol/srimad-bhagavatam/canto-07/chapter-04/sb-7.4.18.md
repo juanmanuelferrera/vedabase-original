@@ -1,11 +1,11 @@
 ### SB 7.4.18
 
-> शैला द्रोणीभिराक्रीडं सर्वर्तुषु गुणान्द्रुमाः
+> शैला द्रोणीभिराक्रीडं सर्वर्तुषु गुणान्द्रुमाः\
 > दधार लोकपालानामेक एव पृथग्गुणान ॥१८॥
 
-> śailā droṇībhir ākrīḍaṁ
-> sarvartuṣu guṇān drumāḥ
-> dadhāra loka-pālānām
+> śailā droṇībhir ākrīḍaṁ\
+> sarvartuṣu guṇān drumāḥ\
+> dadhāra loka-pālānām\
 > eka eva pṛthag guṇān
 
 *śailāḥ*—las colinas y montañas; *droṇībhiḥ*—con los valles que las separan; *ākrīḍam*—parques de recreo para Hiraṇyakaśipu; *sarva*—todas; *ṛtuṣu*—en las estaciones del año; *guṇān*—distintas cualidades (frutas y flores); *drumāḥ*—las plantas y árboles; *dadhāra*—realizaba; *loka-pālānām*—de otros semidioses encargados de distintos departamentos de las actividades de la naturaleza; *ekaḥ*—él solo; *eva*—en verdad; *pṛthak*—diferentes; *guṇān*—cualidades.

@@ -1,18 +1,18 @@
 ### SB 6.2.24-25
 
-> अजामिलोऽप्यथाकर्ण्य दूतानां यमकृष्णयोः
-> धर्मं भागवतं शुद्धं त्रैवेद्यं च गुणाश्रयम ॥२४॥
-> भक्तिमान्भगवत्याशु माहात्म्यश्रवणाद्धरेः
+> अजामिलोऽप्यथाकर्ण्य दूतानां यमकृष्णयोः\
+> धर्मं भागवतं शुद्धं त्रैवेद्यं च गुणाश्रयम ॥२४॥\
+> भक्तिमान्भगवत्याशु माहात्म्यश्रवणाद्धरेः\
 > अनुतापो महानासीत्स्मरतोऽशुभमात्मनः ॥२५॥
 
-> ajāmilo 'py athākarṇya
-> dūtānāṁ yama-kṛṣṇayoḥ
-> dharmaṁ bhāgavataṁ śuddhaṁ
+> ajāmilo 'py athākarṇya\
+> dūtānāṁ yama-kṛṣṇayoḥ\
+> dharmaṁ bhāgavataṁ śuddhaṁ\
 > trai-vedyaṁ ca guṇāśrayam
 
-> bhaktimān bhagavaty āśu
-> māhātmya-śravaṇād dhareḥ
-> anutāpo mahān āsīt
+> bhaktimān bhagavaty āśu\
+> māhātmya-śravaṇād dhareḥ\
+> anutāpo mahān āsīt\
 > smarato 'śubham ātmanaḥ
 
 *ajāmilaḥ*—Ajāmila; *api*—also; *atha*—thereafter; *ākarṇya*—hearing; *dūtānām*—of the order carriers; *yama-kṛṣṇayoḥ*—of Yamarāja and Lord Kṛṣṇa; *dharmam*—actual religious principles; *bhāgavatam*—as described in *Śrīmad-Bhāgavatam,* or concerning the relationship between the living being and the Supreme Personality of Godhead; *śuddham*—pure; *trai-vedyam*—mentioned in three *Vedas*; *ca*—also; *guṇa-aśrayam*—material religion, under the modes of material nature; *bhakti-mān*—a pure devotee (cleansed of the modes of material nature); *bhagavati*—unto the Supreme Personality of Godhead; *āśu*—immediately; *māhātmya*—glorification of the name, fame, etc.; *śravaṇāt*—because of hearing; *hareḥ*—of Lord Hari; *anutāpaḥ*—regret; *mahān*—very great; *āsīt*—there was; *smarataḥ*—remembering; *aśubham*—all the inglorious activities; *ātmanaḥ*—done by himself.

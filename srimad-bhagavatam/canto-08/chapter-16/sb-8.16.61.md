@@ -1,11 +1,11 @@
 ### SB 8.16.61
 
-> त एव नियमाः साक्षात्त एव च यमोत्तमाः
+> त एव नियमाः साक्षात्त एव च यमोत्तमाः\
 > तपो दानं व्रतं यज्ञओ येन तुष्यत्यधोक्षजः ॥६१॥
 
-> ta eva niyamāḥ sākṣāt
-> ta eva ca yamottamāḥ
-> tapo dānaṁ vrataṁ yajño
+> ta eva niyamāḥ sākṣāt\
+> ta eva ca yamottamāḥ\
+> tapo dānaṁ vrataṁ yajño\
 > yena tuṣyaty adhokṣajaḥ
 
 *te*—that is; *eva*—indeed; *niyamāḥ*—all regulative principles; *sākṣāt*—directly; *te*—that is; *eva*—indeed; *ca*—also; *yama-uttamāḥ*—the best process of controlling the senses; *tapaḥ*—austerities; *dānam*—charity; *vratam*—observing vows; *yajñaḥ*—sacrifice; *yena*—by which process; *tuṣyati*—is very pleased; *adhokṣajaḥ*—the Supreme Lord, who is not perceived by material senses.

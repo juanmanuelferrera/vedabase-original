@@ -1,9 +1,9 @@
 ### CC Madhya 15.169
 
-> তুমি যাঁর হিত বাঞ্ছ’, সে হৈল ‘বৈষ্ণব’ ।
+> তুমি যাঁর হিত বাঞ্ছ’, সে হৈল ‘বৈষ্ণব’ ।\
 > বৈষ্ণবের পাপ কৃষ্ণ দূর করে সব ॥১৬৯॥
 
-> tumi yāṅra hita vāñcha', se haila 'vaiṣṇava'
+> tumi yāṅra hita vāñcha', se haila 'vaiṣṇava'\
 > vaiṣṇavera pāpa kṛṣṇa dūra kare saba
 
 *tumi*—tú; *yāṅra*—de quien; *hita vāñcha'*—deseas el bienestar; *se*—esa persona; *haila*—inmediatamente se convierte; *vaiṣṇava*—en devoto; *vaiṣṇavera*—de un vaiṣṇava; *pāpa*—la vida pecaminosa accidental; *kṛṣṇa*—el Señor Kṛṣṇa; *dūra kare*—destruye; *saba*—toda.

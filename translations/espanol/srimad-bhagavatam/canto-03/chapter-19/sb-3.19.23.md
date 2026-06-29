@@ -1,11 +1,11 @@
 ### SB 3.19.23
 
-> तदा दितेः समभवत्सहसा हृदि वेपथुः ।
+> तदा दितेः समभवत्सहसा हृदि वेपथुः ।\
 > स्मरन्त्या भर्तुरादेशं स्तनाच्चासृक्प्रसुस्रुवे ॥२३॥
 
-> tadā diteḥ samabhavat
-> sahasā hṛdi vepathuḥ
-> smarantyā bhartur ādeśaṁ
+> tadā diteḥ samabhavat\
+> sahasā hṛdi vepathuḥ\
+> smarantyā bhartur ādeśaṁ\
 > stanāc cāsṛk prasusruve
 
 *tadā*—en aquel instante; *diteḥ*—de Diti; *samabhavat*—ocurrió; *sahasā*—repentinamente; *hṛdi*—en el corazón; *vepathuḥ*—un estremecimiento; *smarantyāḥ*—recordando; *bhartuḥ*—de Kaśyapa, su esposo; *ādeśam*—las palabras; *stanāt*—de su pecho; *ca*—y; *asṛk*—sangre; *prasusruve*—manó.

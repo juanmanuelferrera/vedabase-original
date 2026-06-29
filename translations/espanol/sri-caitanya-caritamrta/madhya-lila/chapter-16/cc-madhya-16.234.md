@@ -1,9 +1,9 @@
 ### CC Madhya 16.234
 
-> সাত দিন শান্তিপুরে প্রভু-সঙ্গে রহে  ।
+> সাত দিন শান্তিপুরে প্রভু-সঙ্গে রহে  ।\
 > রাত্রি-দিবসে এই মনঃকথা কহে ॥২৩৪॥
 
-> sāta dina śāntipure prabhu-saṅge rahe
+> sāta dina śāntipure prabhu-saṅge rahe\
 > rātri-divase ei manaḥ-kathā kahe
 
 *sāta dina*—durante siete días; *śāntipure*—en Śāntipura; *prabhu-saṅge*—en compañía de Śrī Caitanya Mahāprabhu; *rahe*—permaneció; *rātri-divase*—tanto de día como de noche; *ei*—estos; *manaḥ-kathā*—pensamientos en su mente; *kahe*—dice.

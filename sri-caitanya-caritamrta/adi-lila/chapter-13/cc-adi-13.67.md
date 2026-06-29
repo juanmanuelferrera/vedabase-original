@@ -1,9 +1,9 @@
 ### CC Adi 13.67
 
-> কিন্তু সর্বলোক দেখি’ কৃষ্ণবহির্মুখ ।
+> কিন্তু সর্বলোক দেখি’ কৃষ্ণবহির্মুখ ।\
 > বিষয়ে নিমগ্ন লোক দেখি’ পায় দুঃখ ॥৬৭॥
 
-> kintu sarva-loka dekhi' kṛṣṇa-bahirmukha
+> kintu sarva-loka dekhi' kṛṣṇa-bahirmukha\
 > viṣaye nimagna loka dekhi' pāya duḥkha
 
 *kintu*—but; *sarva-loka*—all people; *dekhi'*—seeing; *kṛṣṇa-bahirmukha*—without Kṛṣṇa consciousness; *viṣaye*—material enjoyment; *nimagna*—merged; *loka*—all people; *dekhi'*—seeing; *pāya duḥkha*—felt pained.

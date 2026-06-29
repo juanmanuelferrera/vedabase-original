@@ -1,13 +1,13 @@
 ### SB 4.23.12
 
-> छिन्नान्यधीरधिगतात्मगतिर्निरीहस्
-> तत्तत्यजेऽच्छिनदिदं वयुनेन येन ।
-> तावन्न योगगतिभिर्यतिरप्रमत्तो
+> छिन्नान्यधीरधिगतात्मगतिर्निरीहस्\
+> तत्तत्यजेऽच्छिनदिदं वयुनेन येन ।\
+> तावन्न योगगतिभिर्यतिरप्रमत्तो\
 > यावद्गदाग्रजकथासु रतिं न कुर्यात् ॥१२॥
 
-> chinnānya-dhīr adhigatātma-gatir nirīhas
-> tat tatyaje 'cchinad idaṁ vayunena yena
-> tāvan na yoga-gatibhir yatir apramatto
+> chinnānya-dhīr adhigatātma-gatir nirīhas\
+> tat tatyaje 'cchinad idaṁ vayunena yena\
+> tāvan na yoga-gatibhir yatir apramatto\
 > yāvad gadāgraja-kathāsu ratiṁ na kuryāt
 
 *chinna*—being separated; *anya-dhīḥ*—all other concepts of life (the bodily concept of life); *adhigata*—being firmly convinced; *ātma-gatiḥ*—the ultimate goal of spiritual life; *nirīhaḥ*—desireless; *tat*—that; *tatyaje*—gave up; *acchinat*—he had cut; *idam*—this; *vayunena*—with the knowledge; *yena*—by which; *tāvat*—so long; *na*—never; *yoga-gatibhiḥ*—the practice of the mystic *yoga* system; *yatiḥ*—the practicer; *apramattaḥ*—without any illusion; *yāvat*—so long; *gadāgraja*—of Kṛṣṇa; *kathāsu*—words; *ratim*—attraction; *na*—never; *kuryāt*—do it.

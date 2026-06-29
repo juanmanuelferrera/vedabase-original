@@ -1,11 +1,11 @@
 ### SB 1.11.31
 
-> पत्न्यः पतिं प्रोष्य गृहानुपागतं विलोक्य सञ्जातमनोमहोत्सवाः ।
+> पत्न्यः पतिं प्रोष्य गृहानुपागतं विलोक्य सञ्जातमनोमहोत्सवाः ।\
 > उत्तस्थुरारात्सहसासनाशयात्साकं व्रतैर्व्रीडितलोचनाननाः ॥३१॥
 
-> patnyaḥ patiṁ proṣya gṛhānupāgataṁ
-> vilokya sañjāta-mano-mahotsavāḥ
-> uttasthur ārāt sahasāsanāśayāt
+> patnyaḥ patiṁ proṣya gṛhānupāgataṁ\
+> vilokya sañjāta-mano-mahotsavāḥ\
+> uttasthur ārāt sahasāsanāśayāt\
 > sākaṁ vratair vrīḍita-locanānanāḥ
 
 *patnyaḥ*—las damas (esposas del Señor Śrī Kṛṣṇa); *patim*—esposo; *proṣya*—que estaba lejos del hogar; *gṛha-anupāgatam*—ahora regresó al hogar; *vilokya*—viendo así; *sañjāta*—habiendo desarrollado; *manaḥ-mahā-utsavāḥ*—un sentido de ceremonia jubilosa dentro de la mente; *uttasthuḥ*—se levantaron; *ārāt*—a distancia; *sahasā*—repentinamente; *āsanā*—de los asientos; *āśayāt*—del estado de meditación; *sākam*—junto con; *vrataiḥ*—el voto; *vrīḍita*—mirando tímidamente; *locana*—ojos; *ānanāḥ*—con esas caras.

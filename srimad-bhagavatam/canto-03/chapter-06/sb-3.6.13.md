@@ -1,11 +1,11 @@
 ### SB 3.6.13
 
-> निर्भिन्नं तालु वरुणो लोकपालोऽविशद्धरेः ।
+> निर्भिन्नं तालु वरुणो लोकपालोऽविशद्धरेः ।\
 > जिह्वयांशेन च रसं ययासौ प्रतिपद्यते ॥१३॥
 
-> nirbhinnaṁ tālu varuṇo
-> loka-pālo 'viśad dhareḥ
-> jihvayāṁśena ca rasaṁ
+> nirbhinnaṁ tālu varuṇo\
+> loka-pālo 'viśad dhareḥ\
+> jihvayāṁśena ca rasaṁ\
 > yayāsau pratipadyate
 
 *nirbhinnam*—separated; *tālu*—palate; *varuṇaḥ*—the deity controlling water; *loka-pālaḥ*—director of the planets; *aviśat*—entered; *hareḥ*—of the Lord; *jihvayā aṁśena*—with the part of the tongue; *ca*—also; *rasam*—tastes; *yayā*—by which; *asau*—the living entity; *pratipadyate*—expresses.

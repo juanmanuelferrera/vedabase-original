@@ -1,11 +1,11 @@
 ### SB 8.11.6
 
-> सोऽहं दुर्मायिनस्तेऽद्य वज्रेण शतपर्वणा
+> सोऽहं दुर्मायिनस्तेऽद्य वज्रेण शतपर्वणा\
 > शिरो हरिष्ये मन्दात्मन्घटस्व ज्ञआतिभिः सह ॥६॥
 
-> so 'haṁ durmāyinas te 'dya
-> vajreṇa śata-parvaṇā
-> śiro hariṣye mandātman
+> so 'haṁ durmāyinas te 'dya\
+> vajreṇa śata-parvaṇā\
+> śiro hariṣye mandātman\
 > ghaṭasva jñātibhiḥ saha
 
 *saḥ*—I am the same powerful person; *aham*—I; *durmāyinaḥ*—of you, who can perform so much jugglery with illusions; *te*—of you; *adya*—today; *vajreṇa*—by the thunderbolt; *śata-parvaṇā*—which has hundreds of sharp edges; *śiraḥ*—the head; *hariṣye*—I shall separate; *manda-ātman*—O you with a poor fund of knowledge; *ghaṭasva*—just try to exist on this battlefield; *jñātibhiḥ saha*—with your relatives and assistants.

@@ -1,9 +1,9 @@
 ### CC Madhya 4.178
 
-> পুরীর প্রেম-পরাকাষ্ঠা করহ বিচার ।
+> পুরীর প্রেম-পরাকাষ্ঠা করহ বিচার ।\
 > অলৌকিক প্রেম চিত্তে লাগে চমৎকার ॥১৭৮॥
 
-> purīra prema-parākāṣṭhā karaha vicāra
+> purīra prema-parākāṣṭhā karaha vicāra\
 > alaukika prema citte lāge camatkāra
 
 *purīra*—de Mādhavendra Purī; *prema-parā-kāṣṭhā*—el criterio de amor intenso por Dios; *karaha*—haced; *vicāra*—juicio; *alaukika*—extraordinario; *prema*—amor por Dios; *citte*—en la mente; *lāge*—produce; *camatkāra*—asombro.

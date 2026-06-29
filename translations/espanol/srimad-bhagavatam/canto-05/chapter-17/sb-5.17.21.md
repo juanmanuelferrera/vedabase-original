@@ -1,11 +1,11 @@
 ### SB 5.17.21
 
-> यस्याद्य आसीद्गुणविग्रहो महान्विज्ञआनधिष्ण्यो भगवानजः किल
+> यस्याद्य आसीद्गुणविग्रहो महान्विज्ञआनधिष्ण्यो भगवानजः किल\
 > यत्सम्भवोऽहं त्रिवृता स्वतेजसा वैकारिकं तामसमैन्द्रियं सृजे ॥२१॥
 
-> yam āhur asya sthiti-janma-saṁyamaṁ
-> tribhir vihīnaṁ yam anantam ṝṣayaḥ
-> na veda siddhārtham iva kvacit sthitaṁ
+> yam āhur asya sthiti-janma-saṁyamaṁ\
+> tribhir vihīnaṁ yam anantam ṝṣayaḥ\
+> na veda siddhārtham iva kvacit sthitaṁ\
 > bhū-maṇḍalaṁ mūrdha-sahasra-dhāmasu
 
 *yam*—a quien; *āhuḥ*—ellos dicen; *asya*—del mundo material; *sthiti*—el mantenimiento; *janma*—la creación; *saṁyamam*—la aniquilación; *tribhiḥ*—esas tres; *vihīnam*—sin; *yam*—que; *anantam*—ilimitado; *ṛṣayaḥ*—todos los grandes sabios; *na*—no; *veda*—siente; *siddha-artham*—una semilla de mostaza; *iva*—como; *kvacit*—donde; *sthitam*—situado; *bhū-maṇḍalam*—el universo; *mūrdha-sahasra-dhāmasu*—en los cientos de miles de capuchas del Señor.

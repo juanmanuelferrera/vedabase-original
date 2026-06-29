@@ -1,9 +1,9 @@
 ### SB 5.1.5
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > बाढमुक्तं भगवत उत्तमश्लोकस्य श्रीमच्चरणारविन्दमकरन्दरस आवेशितचेतसोभागवतपरमहंसदयितकथां किञ्चिदन्तरायविहतां स्वां शिवतमां पदवीं न प्रायेण हिन्वन्ति ॥५॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > bāḍham uktaṁ bhagavata uttamaślokasya śrīmac-caraṇāravinda-makaranda-rasa āveśita-cetaso bhāgavata-paramahaṁsa-dayita-kathāṁ kiñcid antarāya-vihatāṁ svāṁ śivatamāṁ padavīṁ na prāyeṇa hinvanti.
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *bāḍham*—correcto; *uktam*—lo que has dicho; *bhagavataḥ*—de la Personalidad de Dios; *uttama-ślokasya*—a quien se alaba con versos excelentes; *śrīmat-caraṇa-aravinda*—de los pies, que son como las más fragantes y hermosas flores de loto; *makaranda*—miel; *rase*—en el néctar; *āveśita*—absortos; *cetasaḥ*—cuyos corazones; *bhāgavata*—a los devotos; *paramahaṁsa*—personas liberadas; *dayita*—agradable; *kathām*—glorificación; *kiñcit*—a veces; *antarāya*—por obstáculos; *vihatām*—impedida; *svām*—propia; *śiva-tamām*—muy excelsa; *padavīm*—posición; *na*—no; *prāyeṇa*—casi siempre; *hinvanti*—abandonan.

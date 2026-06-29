@@ -1,11 +1,11 @@
 ### SB 2.3.18
 
-> तरवः किं न जीवन्ति भस्त्राः किं न श्वसन्त्युत ।
+> तरवः किं न जीवन्ति भस्त्राः किं न श्वसन्त्युत ।\
 > न खादन्ति न मेहन्ति किं ग्रामे पशवोऽपरे ॥१८॥
 
-> taravaḥ kiṁ na jīvanti
-> bhastrāḥ kiṁ na śvasanty uta
-> na khādanti na mehanti
+> taravaḥ kiṁ na jīvanti\
+> bhastrāḥ kiṁ na śvasanty uta\
+> na khādanti na mehanti\
 > kiṁ grāme paśavo 'pare
 
 *taravaḥ*—los árboles; *kim*—acaso; *na*—no; *jīvanti*—viven; *bhastrāḥ*—fuelles; *kim*—acaso; *na*—no; *śvasanti*—respiran; *uta*—también; *na*—no; *khādanti*—comen; *na*—no; *mehanti*—arrojan semen; *kim*—acaso; *grāme*—en la localidad; *paśavaḥ*—ser viviente que es como una bestia; *apare*—otros.

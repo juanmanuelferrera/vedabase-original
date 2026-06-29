@@ -1,9 +1,9 @@
 ### CC Madhya 25.210
 
-> এথা সনাতন গোসাঞি প্রয়াগে আসিয়া ।
+> এথা সনাতন গোসাঞি প্রয়াগে আসিয়া ।\
 > মথুরা আইলা সরান রাজপথ দিয়া ॥২১০॥
 
-> ethā sanātana gosāñi prayāge āsiyā
+> ethā sanātana gosāñi prayāge āsiyā\
 > mathurā āilā sarāna rāja-patha diyā
 
 *ethā*—here (at the other end); *sanātana gosāñi*—Sanātana Gosāñi; *prayāge āsiyā*—coming to Prayāga; *mathurā āilā*—he reached Vṛndāvana; *sarāna*—directly; *rāja-patha diyā*—on the government road or public road.

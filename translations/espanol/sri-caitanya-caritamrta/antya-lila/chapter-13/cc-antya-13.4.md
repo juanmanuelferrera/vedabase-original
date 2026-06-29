@@ -1,9 +1,9 @@
 ### CC Antya 13.4
 
-> কৃষ্ণবিচ্ছেদে দুঃখে ক্ষীণ মন-কায় ।
+> কৃষ্ণবিচ্ছেদে দুঃখে ক্ষীণ মন-কায় ।\
 > ভাবাবেশে প্রভু কভু প্রফুল্লিত হয় ॥৪॥
 
-> kṛṣṇa-vicchede duḥkhe kṣīṇa mana-kāya
+> kṛṣṇa-vicchede duḥkhe kṣīṇa mana-kāya\
 > bhāvāveśe prabhu kabhu praphullita haya
 
 *kṛṣṇa-vicchede*—debido a la separación de Kṛṣṇa; *duḥkhe*—en infelicidad; *kṣīṇa*—delgado; *mana-kāya*—mente y cuerpo; *bhāva-āveśe*—por amor extático; *prabhu*—Śrī Caitanya Mahāprabhu; *kabhu*—a veces; *praphullita haya*—se pone saludable y desarrollado.

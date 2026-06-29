@@ -1,11 +1,11 @@
 ### SB 7.2.43
 
-> यथानलो दारुषु भिन्न ईयते यथानिलो देहगतः पृथक्स्थितः
+> यथानलो दारुषु भिन्न ईयते यथानिलो देहगतः पृथक्स्थितः\
 > यथा नभः सर्वगतं न सज्जते तथा पुमान्सर्वगुणाश्रयः परः ॥४३॥
 
-> yathānalo dāruṣu bhinna īyate
-> yathānilo deha-gataḥ pṛthak sthitaḥ
-> yathā nabhaḥ sarva-gataṁ na sajjate
+> yathānalo dāruṣu bhinna īyate\
+> yathānilo deha-gataḥ pṛthak sthitaḥ\
+> yathā nabhaḥ sarva-gataṁ na sajjate\
 > tathā pumān sarva-guṇāśrayaḥ paraḥ
 
 *yathā*—tal como; *analaḥ*—el fuego; *dāruṣu*—en leña; *bhinnaḥ*—separado; *īyate*—se percibe; *yathā*—tal como; *anilaḥ*—el aire; *deha-gataḥ*—dentro del cuerpo; *pṛthak*—separado; *sthitaḥ*—situado; *yathā*—tal como; *nabhaḥ*—el cielo; *sarva-gatam*—omnipresente; *na*—no; *sajjate*—se mezcla; *tathā*—del mismo modo; *pumān*—la entidad viviente; *sarva-guṇa-āśrayaḥ*—aunque ahora refugio de las modalidades de la naturaleza material; *paraḥ*—trascendental a la contaminación material.

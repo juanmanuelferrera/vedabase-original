@@ -1,14 +1,14 @@
 ### SB 3.12.47
 
-> स्पर्शस्तस्याभवज्जीवः स्वरो देह उदाहृत ।
-> ऊष्माणमिन्द्रियाण्याहुरन्तःस्था बलमात्मनः ।
+> स्पर्शस्तस्याभवज्जीवः स्वरो देह उदाहृत ।\
+> ऊष्माणमिन्द्रियाण्याहुरन्तःस्था बलमात्मनः ।\
 > स्वराः सप्त विहारेण भवन्ति स्म प्रजापतेः ॥४७॥
 
-> sparśas tasyābhavaj jīvaḥ
-> svaro deha udāhṛta
-> ūṣmāṇam indriyāṇy āhur
-> antaḥ-sthā balam ātmanaḥ
-> svarāḥ sapta vihāreṇa
+> sparśas tasyābhavaj jīvaḥ\
+> svaro deha udāhṛta\
+> ūṣmāṇam indriyāṇy āhur\
+> antaḥ-sthā balam ātmanaḥ\
+> svarāḥ sapta vihāreṇa\
 > bhavanti sma prajāpateḥ
 
 *sparśaḥ*—the set of letters from *ka* to *ma*; *tasya*—his; *abhavat*—became; *jīvaḥ*—the soul; *svaraḥ*—vowels; *dehaḥ*—his body; *udāhṛtaḥ*—are expressed; *ūṣmāṇam*—the letters *śa, ṣa, sa* and *ha*; *indriyāṇi*—the senses; *āhuḥ*—are called; *antaḥ-sthāḥ*—the set of letters so known (*ya, ra, la* and *va*); *balam*—energy; *ātmanaḥ*—of his self; *svarāḥ*—music; *sapta*—seven; *vihāreṇa*—by the sensual activities; *bhavanti sma*—became manifested; *prajāpateḥ*—of the lord of the living entities.

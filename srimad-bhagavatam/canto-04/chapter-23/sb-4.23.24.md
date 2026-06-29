@@ -1,11 +1,11 @@
 ### SB 4.23.24
 
-> कुर्वत्यः कुसुमासारं तस्मिन्मन्दरसानुनि ।
+> कुर्वत्यः कुसुमासारं तस्मिन्मन्दरसानुनि ।\
 > नदत्स्वमरतूर्येषु गृणन्ति स्म परस्परम् ॥२४॥
 
-> kurvatyaḥ kusumāsāraṁ
-> tasmin mandara-sānuni
-> nadatsv amara-tūryeṣu
+> kurvatyaḥ kusumāsāraṁ\
+> tasmin mandara-sānuni\
+> nadatsv amara-tūryeṣu\
 > gṛṇanti sma parasparam
 
 *kurvatyaḥ*—just showering; *kusuma-āsāram*—showers of flowers; *tasmin*—in that; *mandara*—of Mandara Hill; *sānuni*—on the top; *nadatsu*—vibrating; *amara-tūryeṣu*—beating of the drums of the demigods; *gṛṇanti sma*—they were talking; *parasparam*—amongst themselves as follows.

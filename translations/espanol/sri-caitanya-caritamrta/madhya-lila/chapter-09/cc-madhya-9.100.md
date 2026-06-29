@@ -1,9 +1,9 @@
 ### CC Madhya 9.100
 
-> arjunere kahitechena hita-upadeśa
+> arjunere kahitechena hita-upadeśa\
 > tāṅre dekhi' haya mora ānanda-āveśa
 
-> arjunere kahitechena hita-upadeśa
+> arjunere kahitechena hita-upadeśa\
 > tāṅre dekhi' haya mora ānanda-āveśa
 
 *arjunere*—a Arjuna; *kahitechena*—Le está hablando; *hita-upadeśa*—buena instrucción; *tāṅre*—a Él; *dekhi'*—al ver; *haya*—hay; *mora*—mi; *ānanda*—felicidad trascendental; *āveśa*—éxtasis.

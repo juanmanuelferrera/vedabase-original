@@ -1,9 +1,9 @@
 ### CC Madhya 6.208
 
-> অশ্রু, স্তম্ভ, পুলক, স্বেদ, কম্প থরহরি ।
+> অশ্রু, স্তম্ভ, পুলক, স্বেদ, কম্প থরহরি ।\
 > নাচে, গায়, কান্দে, পড়ে প্রভু-পদ ধরি’ ॥২০৮॥
 
-> aśru, stambha, pulaka, sveda, kampa tharahari
+> aśru, stambha, pulaka, sveda, kampa tharahari\
 > nāce, gāya, kānde, paḍe prabhu-pada dhari'
 
 *aśru*—tears; *stambha*—a stunned condition; *pulaka*—standing of hair; *sveda*—perspiration; *kampa*—trembling; *tharahari*—with great shaking; *nāce*—dances; *gāya*—sings; *kānde*—cries; *paḍe*—falls down; *prabhu-pada*—the lotus feet of the Lord; *dhari'*—catching.

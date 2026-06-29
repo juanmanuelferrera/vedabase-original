@@ -1,11 +1,11 @@
 ### CC Adi 2.1
 
-> শ্রীচৈতন্যপ্রভুং বন্দে বালোঽপি যদনুগ্রহাৎ ।
+> শ্রীচৈতন্যপ্রভুং বন্দে বালোঽপি যদনুগ্রহাৎ ।\
 > তরেন্নানমতগ্রাহব্যাপ্তং সিদ্ধান্তসাগরম্ ॥১॥
 
-> śrī-caitanya-prabhuṁ vande
-> bālo 'pi yad-anugrahāt
-> taren nānā-mata-grāha-
+> śrī-caitanya-prabhuṁ vande\
+> bālo 'pi yad-anugrahāt\
+> taren nānā-mata-grāha-\
 > vyāptaṁ siddhānta-sāgaram
 
 *śrī-caitanya-prabhum*—al Señor Śrī Caitanya Mahāprabhu; *vande*—ofrezco reverencias; *bālaḥ*—un niño ignorante; *api*—incluso; *yat*—de quien; *anugrahāt*—por la misericordia; *taret*—puede cruzar; *nānā*—de diversas; *mata*—teorías; *grāha*—los cocodrilos; *vyāptam*—lleno de; *siddhānta*—de conclusiones; *sāgaram*—el océano.

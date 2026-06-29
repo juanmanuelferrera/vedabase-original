@@ -1,11 +1,11 @@
 ### SB 3.21.3
 
-> तस्य वै दुहिता ब्रह्मन्देवहूतीति विश्रुता ।
+> तस्य वै दुहिता ब्रह्मन्देवहूतीति विश्रुता ।\
 > पत्नी प्रजापतेरुक्ता कर्दमस्य त्वयानघ ॥३॥
 
-> tasya vai duhitā brahman
-> devahūtīti viśrutā
-> patnī prajāpater uktā
+> tasya vai duhitā brahman\
+> devahūtīti viśrutā\
+> patnī prajāpater uktā\
 > kardamasya tvayānagha
 
 *tasya*—de ese Manu; *vai*—en verdad; *duhitā*—la hija; *brahman*—¡oh, santo *brāhmaṇa*!; *devahūti*—llamada Devahūti; *iti*—así; *viśrutā*—fue conocida; *patnī*—esposa; *prajāpateḥ*—del señor de los seres creados; *uktā*—se ha hablado de; *kardamasya*—de Kardama Muni; *tvayā*—por ti; *anagha*—¡oh, persona sin pecado!.

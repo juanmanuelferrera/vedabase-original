@@ -1,11 +1,11 @@
 ### SB 6.7.9
 
-> ततो निर्गत्य सहसा कविराङ्गिरसः प्रभुः
+> ततो निर्गत्य सहसा कविराङ्गिरसः प्रभुः\
 > आययौ स्वगृहं तूष्णीं विद्वान्श्रीमदविक्रियाम ॥९॥
 
-> tato nirgatya sahasā
-> kavir āṅgirasaḥ prabhuḥ
-> āyayau sva-gṛhaṁ tūṣṇīṁ
+> tato nirgatya sahasā\
+> kavir āṅgirasaḥ prabhuḥ\
+> āyayau sva-gṛhaṁ tūṣṇīṁ\
 > vidvān śrī-mada-vikriyām
 
 *tataḥ*—thereafter; *nirgatya*—going out; *sahasā*—suddenly; *kaviḥ*—the great learned sage; *āṅgirasaḥ*—Bṛhaspati; *prabhuḥ*—the master of the demigods; *āyayau*—returned; *sva-gṛham*—to his home; *tūṣṇīm*—being silent; *vidvān*—having known; *śrī-mada-vikriyām*—deterioration because of madness due to opulence.

@@ -1,11 +1,11 @@
 ### SB 6.11.12
 
-> न सन्नवाहाय विषण्णचेतसे प्रायुङ्क्त भूयः स गदां महात्मा
+> न सन्नवाहाय विषण्णचेतसे प्रायुङ्क्त भूयः स गदां महात्मा\
 > इन्द्रोऽमृतस्यन्दिकराभिमर्श वीतव्यथक्षतवाहोऽवतस्थे ॥१२॥
 
-> na sanna-vāhāya viṣaṇṇa-cetase
-> prāyuṅkta bhūyaḥ sa gadāṁ mahātmā
-> indro 'mṛta-syandi-karābhimarśa-
+> na sanna-vāhāya viṣaṇṇa-cetase\
+> prāyuṅkta bhūyaḥ sa gadāṁ mahātmā\
+> indro 'mṛta-syandi-karābhimarśa-\
 > vīta-vyatha-kṣata-vāho 'vatasthe
 
 *na*—not; *sanna*—fatigued; *vāhāya*—upon him whose carrier; *viṣaṇṇa-cetase*—morose in the core of his heart; *prāyuṅkta*—used; *bhūyaḥ*—again; *saḥ*—he (Vṛtrāsura); *gadām*—the club; *mahā-ātmā*—the great soul (who refrained from striking Indra with the club when he saw Indra morose and aggrieved); *indraḥ*—Indra; *amṛta-syandi-kara*—of his hand, which produces nectar; *abhimarśa*—by the touch; *vīta*—was relieved; *vyatha*—from pains; *kṣata*—and cuts; *vāhaḥ*—whose carrier elephant; *avatasthe*—stood there.

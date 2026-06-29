@@ -1,9 +1,9 @@
 ### CC Antya 4.139
 
-> অপরাধ হয় মোর, নাহিক নিস্তার ।
+> অপরাধ হয় মোর, নাহিক নিস্তার ।\
 > জগন্নাথেহ না দেখিয়ে, — এ দুঃখ অপার ॥১৩৯॥
 
-> aparādha haya mora, nāhika nistāra
+> aparādha haya mora, nāhika nistāra\
 > jagannātheha nā dekhiye,--e duḥkha apāra
 
 *aparādha*—ofensa; *haya*—hay; *mora*—mía; *nāhika nistāra*—no hay liberación; *jagannātheha*—también al Señor Jagannātha; *nā dekhiye*—no puedo ver; *e*—esta; *duḥkha apāra*—gran infelicidad.

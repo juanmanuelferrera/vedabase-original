@@ -1,13 +1,13 @@
 ### CC Antya 20.53
 
-> যে নারীরে বাঞ্ছে কৃষ্ণ, তার রূপে সতৃষ্ণ,
-> তারে না পাঞা হয় দুঃখী ।
-> মুই তার পায় পড়ি’, লঞা যাঙ হাতে ধরি’,
+> যে নারীরে বাঞ্ছে কৃষ্ণ, তার রূপে সতৃষ্ণ,\
+> তারে না পাঞা হয় দুঃখী ।\
+> মুই তার পায় পড়ি’, লঞা যাঙ হাতে ধরি’,\
 > ক্রীড়া করাঞা তাঁরে করোঁ সুখী ॥৫৩॥
 
-> ye nārīre vāñche kṛṣṇa, tāra rūpe satṛṣṇa,
-> tāre nā pāñā haya duḥkhī
-> mui tāra pāya paḍi', lañā yāṅa hāte dhari',
+> ye nārīre vāñche kṛṣṇa, tāra rūpe satṛṣṇa,\
+> tāre nā pāñā haya duḥkhī\
+> mui tāra pāya paḍi', lañā yāṅa hāte dhari',\
 > krīḍā karāñā tāṅre karoṅ sukhī
 
 *ye nārīre*—the woman whom; *vāñche kṛṣṇa*—Kṛṣṇa desires to have in His company; *tāra rūpe satṛṣṇa*—attracted to her beauty; *tāre*—her; *nā pāñā*—not getting; *haya duḥkhī*—becomes unhappy; *mui*—I; *tāra pāya paḍi'*—falling down at her feet; *lañā yāṅa*—taking, go; *hāte dhari'*—catching the hand; *krīḍā*—pastimes; *karāñā*—bringing about; *tāṅre*—Lord Kṛṣṇa; *karoṅ sukhī*—I make happy.

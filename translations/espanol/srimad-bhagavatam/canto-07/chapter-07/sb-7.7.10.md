@@ -1,13 +1,13 @@
 ### SB 7.7.10
 
-> श्रीनारद उवाच
-> अयं निष्किल्बिषः साक्षान्महाभागवतो महान
+> श्रीनारद उवाच\
+> अयं निष्किल्बिषः साक्षान्महाभागवतो महान\
 > त्वया न प्राप्स्यते संस्थामनन्तानुचरो बली ॥१०॥
 
-> śrī-nārada uvāca
-> ayaṁ niṣkilbiṣaḥ sākṣān
-> mahā-bhāgavato mahān
-> tvayā na prāpsyate saṁsthām
+> śrī-nārada uvāca\
+> ayaṁ niṣkilbiṣaḥ sākṣān\
+> mahā-bhāgavato mahān\
+> tvayā na prāpsyate saṁsthām\
 > anantānucaro balī
 
 *śrī-nāradaḥ uvāca*—el gran santo Nārada Muni dijo; *ayam*—este (el niño dentro del vientre); *niṣkilbiṣaḥ*—completamente libre de pecado; *sākṣāt*—directamente; *mahā-bhāgavataḥ*—un devoto santo; *mahān*—muy grande; *tvayā*—por ti; *na*—no; *prāpsyate*—obtendrás; *saṁsthām*—su muerte; *ananta*—de la Suprema Personalidad de Dios; *anucaraḥ*—un sirviente; *balī*—enormemente poderoso.

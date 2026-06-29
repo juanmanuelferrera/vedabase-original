@@ -1,9 +1,9 @@
 ### CC Madhya 13.187
 
-> তোমার উপরে প্ৰভুর সুপ্রসন্ন মন ।
+> তোমার উপরে প্ৰভুর সুপ্রসন্ন মন ।\
 > তোমা লক্ষ্য করি’ শিখায়েন নিজ গণ ॥১৮৭॥
 
-> tomāra upare prabhura suprasanna mana
+> tomāra upare prabhura suprasanna mana\
 > tomā lakṣya kari' śikhāyena nija gaṇa
 
 *tomāra upare*—contigo; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *su-prasanna*—muy complacida; *mana*—la mente; *tomā*—a ti; *lakṣya kari'*—señalándote; *śikhāyena*—Él enseña; *nija gaṇa*—a Sus asociados personales.

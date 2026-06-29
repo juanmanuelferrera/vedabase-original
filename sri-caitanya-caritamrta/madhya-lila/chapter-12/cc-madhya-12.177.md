@@ -1,9 +1,9 @@
 ### CC Madhya 12.177
 
-> সার্বভৌমে প্রভু বসাঞাছেন বাম-পাশে ।
+> সার্বভৌমে প্রভু বসাঞাছেন বাম-পাশে ।\
 > দুই ভক্তের স্নেহ দেখি’ সার্বভৌম হাসে ॥১৭৭॥
 
-> sārvabhaume prabhu vasāñāchena vāma-pāśe
+> sārvabhaume prabhu vasāñāchena vāma-pāśe\
 > dui bhaktera sneha dekhi' sārvabhauma hāse
 
 *sārvabhaume*—Sārvabhauma Bhaṭṭācārya; *prabhu*—the Lord; *vasāñāchena*—made to sit; *vāma-pāśe*—on His left side; *dui bhaktera*—of the two devotees; *sneha*—the affection; *dekhi'*—seeing; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *hāse*—smiles.

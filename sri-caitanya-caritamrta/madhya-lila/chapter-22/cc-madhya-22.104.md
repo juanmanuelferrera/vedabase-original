@@ -1,9 +1,9 @@
 ### CC Madhya 22.104
 
-> এবে সাধনভক্তি-লক্ষণ শুন, সনাতন ।
+> এবে সাধনভক্তি-লক্ষণ শুন, সনাতন ।\
 > যাহা হৈতে পাই কৃষ্ণপ্রেম-মহাধন ॥১০৪॥
 
-> ebe sādhana-bhakti-lakṣaṇa śuna, sanātana
+> ebe sādhana-bhakti-lakṣaṇa śuna, sanātana\
 > yāhā haite pāi kṛṣṇa-prema-mahā-dhana
 
 *ebe*—now; *sādhana-bhakti*—regulative principles for executing devotional service; *lakṣaṇa*—the symptoms; *śuna*—please hear; *sanātana*—My dear Sanātana; *yāhā haite*—from which; *pāi*—one can get; *kṛṣṇa-prema-mahā-dhana*—the most valuable treasure of love for Kṛṣṇa.

@@ -1,11 +1,11 @@
 ### SB 3.20.10
 
-> ये मरीच्यादयो विप्रा यस्तु स्वायम्भुवो मनुः ।
+> ये मरीच्यादयो विप्रा यस्तु स्वायम्भुवो मनुः ।\
 > ते वै ब्रह्मण आदेशात्कथमेतदभावयन् ॥१०॥
 
-> ye marīcy-ādayo viprā
-> yas tu svāyambhuvo manuḥ
-> te vai brahmaṇa ādeśāt
+> ye marīcy-ādayo viprā\
+> yas tu svāyambhuvo manuḥ\
+> te vai brahmaṇa ādeśāt\
 > katham etad abhāvayan
 
 *ye*—those; *marīci-ādayaḥ*—great sages headed by Marīci; *viprāḥ*—*brāhmaṇas*; *yaḥ*—who; *tu*—indeed; *svāyambhuvaḥ manuḥ*—and Svāyambhuva Manu; *te*—they; *vai*—indeed; *brahmaṇaḥ*—of Lord Brahmā; *ādeśāt*—by the order; *katham*—how; *etat*—this universe; *abhāvayan*—evolved.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.140
 
-> সকল-সদ্গুণ-বৃন্দ-রত্ন-রত্নাকর  ।
+> সকল-সদ্গুণ-বৃন্দ-রত্ন-রত্নাকর  ।\
 > বিদগ্ধ, চতুর, ধীর, রসিক-শেখর ॥১৪০॥
 
-> sakala-sadguṇa-vṛnda-ratna-ratnākara
+> sakala-sadguṇa-vṛnda-ratna-ratnākara\
 > vidagdha, catura, dhīra, rasika-śekhara
 
 *sakala*—all; *sat-guṇa*—transcendental qualities; *vṛnda*—multitude; *ratna*—of gems; *ratna-ākara*—the mine; *vidagdha*—intelligent; *catura*—expert; *dhīra*—sober; *rasika-śekhara*—master of all humor.

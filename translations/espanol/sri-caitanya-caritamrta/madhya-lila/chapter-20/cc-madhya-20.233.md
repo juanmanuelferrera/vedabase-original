@@ -1,9 +1,9 @@
 ### CC Madhya 20.233
 
-> পুরুষোত্তম — চক্রপদ্মশঙ্খগদাধর ।
+> পুরুষোত্তম — চক্রপদ্মশঙ্খগদাধর ।\
 > শ্রীঅচ্যুত — গদাপদ্মচক্রশঙ্খধর ॥২৩৩॥
 
-> puruṣottama--cakra-padma-śaṅkha-gadā-dhara
+> puruṣottama--cakra-padma-śaṅkha-gadā-dhara\
 > śrī-acyuta--gadā-padma-cakra-śaṅkha-dhara
 
 *puruṣottama*—el Señor Puruṣottama; *cakra*—disco; *padma*—loto; *śaṅkha*—caracola; *gadā*—maza; *dhara*—que sostiene; *śrī-acyuta*—el Señor Acyuta; *gadā*—maza; *padma*—loto; *cakra*—disco; *śaṅkha*—caracola; *dhara*—que sostiene.

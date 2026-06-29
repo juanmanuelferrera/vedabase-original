@@ -1,11 +1,11 @@
 ### SB 3.5.47
 
-> तथापरे चात्मसमाधियोग बलेन जित्वा प्रकृतिं बलिष्ठाम् ।
+> तथापरे चात्मसमाधियोग बलेन जित्वा प्रकृतिं बलिष्ठाम् ।\
 > त्वामेव धीराः पुरुषं विशन्ति तेषां श्रमः स्यान्न तु सेवया ते ॥४७॥
 
-> tathāpare cātma-samādhi-yoga-
-> balena jitvā prakṛtiṁ baliṣṭhām
-> tvām eva dhīrāḥ puruṣaṁ viśanti
+> tathāpare cātma-samādhi-yoga-\
+> balena jitvā prakṛtiṁ baliṣṭhām\
+> tvām eva dhīrāḥ puruṣaṁ viśanti\
 > teṣāṁ śramaḥ syān na tu sevayā te
 
 *tathā*—as far as; *apare*—others; *ca*—also; *ātma-samādhi*—transcendental self-realization; *yoga*—means; *balena*—by the strength of; *jitvā*—conquering; *prakṛtim*—acquired nature or modes of nature; *baliṣṭhām*—very powerful; *tvām*—You; *eva*—only; *dhīrāḥ*—pacified; *puruṣam*—person; *viśanti*—enters into; *teṣām*—for them; *śramaḥ*—much labor; *syāt*—has to be taken; *na*—never; *tu*—but; *sevayā*—by serving; *te*—of You.

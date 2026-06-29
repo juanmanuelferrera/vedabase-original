@@ -1,9 +1,9 @@
 ### CC Madhya 1.122
 
-> অনবসরে জগন্নাথের না পাঞা দরশন ।
+> অনবসরে জগন্নাথের না পাঞা দরশন ।\
 > বিরহে আলালনাথ করিলা গমন ॥১২২॥
 
-> anavasare jagannāthera nā pāñā daraśana
+> anavasare jagannāthera nā pāñā daraśana\
 > virahe ālālanātha karilā gamana
 
 *anavasare*—during the absence; *jagannāthera*—of Lord Jagannātha; *nā*—not; *pāñā*—getting; *daraśana*—visit; *virahe*—in separation; *ālālanātha*—of the place named Ālālanātha; *karilā*—did; *gamana*—going.

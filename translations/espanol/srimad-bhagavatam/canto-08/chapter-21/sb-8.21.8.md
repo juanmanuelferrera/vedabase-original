@@ -1,11 +1,11 @@
 ### SB 8.21.8
 
-> जाम्बवानृक्षराजस्तु भेरीशब्दैर्मनोजवः
+> जाम्बवानृक्षराजस्तु भेरीशब्दैर्मनोजवः\
 > विजयं दिक्षु सर्वासु महोत्सवमघोषयत ॥८॥
 
-> jāmbavān ṛkṣa-rājas tu
-> bherī-śabdair mano-javaḥ
-> vijayaṁ dikṣu sarvāsu
+> jāmbavān ṛkṣa-rājas tu\
+> bherī-śabdair mano-javaḥ\
+> vijayaṁ dikṣu sarvāsu\
 > mahotsavam aghoṣayat
 
 *jāmbavān*—que se llamaba Jāmbavān; *ṛkṣa-rājaḥ tu*—también el rey con forma de oso; *bherī-śabdaiḥ*—haciendo sonar el bugle; *manaḥ-javaḥ*—con la mente llena de éxtasis; *vijayam*—victoria; *dikṣu*—en todas direcciones; *sarvāsu*—por todas partes; *mahā-utsavam*—fiesta; *aghoṣayat*—proclamó.

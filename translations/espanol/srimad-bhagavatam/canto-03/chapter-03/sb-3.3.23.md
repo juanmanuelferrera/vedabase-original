@@ -1,11 +1,11 @@
 ### SB 3.3.23
 
-> दैवाधीनेषु कामेषु दैवाधीनः स्वयं पुमान् ।
+> दैवाधीनेषु कामेषु दैवाधीनः स्वयं पुमान् ।\
 > को विश्रम्भेत योगेन योगेश्वरमनुव्रतः ॥२३॥
 
-> daivādhīneṣu kāmeṣu
-> daivādhīnaḥ svayaṁ pumān
-> ko viśrambheta yogena
+> daivādhīneṣu kāmeṣu\
+> daivādhīnaḥ svayaṁ pumān\
+> ko viśrambheta yogena\
 > yogeśvaram anuvrataḥ
 
 *daiva*—sobrenatural; *adhīneṣu*—estando controlado; *kāmeṣu*—en el disfrute de los sentidos; *daiva-adhīnaḥ*—controlada por fuerza sobrenatural; *svayam*—ella misma; *pumān*—entidad viviente; *kaḥ*—quienquiera; *viśrambheta*—puede tener fe en; *yogena*—mediante el servicio devocional; *yogeśvaram*—el Señor Supremo; *anuvrataḥ*—sirviendo.

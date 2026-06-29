@@ -1,11 +1,11 @@
 ### SB 1.2.32
 
-> यथा ह्यवहितो वह्निर्दारुष्वेकः स्वयोनिषु ।
+> यथा ह्यवहितो वह्निर्दारुष्वेकः स्वयोनिषु ।\
 > नानेव भाति विश्वात्मा भूतेषु च तथा पुमान् ॥३२॥
 
-> yathā hy avahito vahnir
-> dāruṣv ekaḥ sva-yoniṣu
-> nāneva bhāti viśvātmā
+> yathā hy avahito vahnir\
+> dāruṣv ekaḥ sva-yoniṣu\
+> nāneva bhāti viśvātmā\
 > bhūteṣu ca tathā pumān
 
 *yathā*—tanto como; *hi*—exactamente igual que; *avahitaḥ*—sobrecargado de; *vahniḥ*—fuego; *dāruṣu*—en la madera; *ekaḥ*—uno; *sva-yoniṣu*—la fuente de la manifestación; *nānā iva*—como entidades diferentes; *bhāti*—ilumina; *viśva-ātmā*—el Señor en la forma de Paramātmā; *bhūteṣu*—en las entidades vivientes; *ca*—y; *tathā*—de la misma manera; *pumān*—la Persona Absoluta.

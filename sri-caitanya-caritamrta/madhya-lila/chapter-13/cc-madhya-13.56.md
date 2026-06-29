@@ -1,9 +1,9 @@
 ### CC Madhya 13.56
 
-> প্রতাপরুদ্রের হৈল পরম বিস্ময় ।
+> প্রতাপরুদ্রের হৈল পরম বিস্ময় ।\
 > দেখিতে বিবশ রাজা হৈল প্রেমময় ॥৫৬॥
 
-> pratāparudrera haila parama vismaya
+> pratāparudrera haila parama vismaya\
 > dekhite vivaśa rājā haila premamaya
 
 *pratāparudrera*—of King Pratāparudra; *haila*—there was; *parama*—very much; *vismaya*—astonishment; *dekhite*—to see; *vivaśa*—inactive; *rājā*—the King; *haila*—became; *prema-maya*—in ecstatic love.

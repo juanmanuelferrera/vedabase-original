@@ -1,11 +1,11 @@
 ### SB 4.11.13
 
-> तितिक्षया करुणया मैत्र्या चाखिलजन्तुषु ।
+> तितिक्षया करुणया मैत्र्या चाखिलजन्तुषु ।\
 > समत्वेन च सर्वात्मा भगवान्सम्प्रसीदति ॥१३॥
 
-> titikṣayā karuṇayā
-> maitryā cākhila-jantuṣu
-> samatvena ca sarvātmā
+> titikṣayā karuṇayā\
+> maitryā cākhila-jantuṣu\
+> samatvena ca sarvātmā\
 > bhagavān samprasīdati
 
 *titikṣayā*—con tolerancia; *karuṇayā*—con misericordia; *maitryā*—con amistad; *ca*—también; *akhila*—universal; *jantuṣu*—a las entidades vivientes; *samatvena*—con equilibrio; *ca*—también; *sarva-ātmā*—la Superalma; *bhagavān*—la Personalidad de Dios; *samprasīdati*—Se siente muy satisfecho.

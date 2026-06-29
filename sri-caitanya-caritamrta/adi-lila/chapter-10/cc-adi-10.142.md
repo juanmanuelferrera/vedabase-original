@@ -1,9 +1,9 @@
 ### CC Adi 10.142
 
-> অপরশ যায় গোসাঞি মনুষ্য-গহনে ।
+> অপরশ যায় গোসাঞি মনুষ্য-গহনে ।\
 > মনুষ্য ঠেলি’ পথ করে কাশী বলবানে ॥১৪২॥
 
-> aparaśa yāya gosāñi manuṣya-gahane
+> aparaśa yāya gosāñi manuṣya-gahane\
 > manuṣya ṭheli' patha kare kāśī balavāne
 
 *aparaśa*—untouched; *yāya*—goes; *gosāñi*—Śrī Caitanya Mahāprabhu; *manuṣya-gahane*—in the crowd; *manuṣyaṭheli'*—pushing the crowd of men; *pathakare*—clears the way; *kāśī*—Kāśīśvara; *balavāne*—very strong.

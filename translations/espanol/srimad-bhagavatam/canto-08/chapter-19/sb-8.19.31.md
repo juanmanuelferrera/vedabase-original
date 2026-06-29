@@ -1,11 +1,11 @@
 ### SB 8.19.31
 
-> प्रतिश्रुतं त्वयैतस्मै यदनर्थमजानता
+> प्रतिश्रुतं त्वयैतस्मै यदनर्थमजानता\
 > न साधु मन्ये दैत्यानां महानुपगतोऽनयः ॥३१॥
 
-> pratiśrutaṁ tvayaitasmai
-> yad anartham ajānatā
-> na sādhu manye daityānāṁ
+> pratiśrutaṁ tvayaitasmai\
+> yad anartham ajānatā\
+> na sādhu manye daityānāṁ\
 > mahān upagato 'nayaḥ
 
 *pratiśrutam*—prometida; *tvayā*—por ti; *etasmai*—a Él; *yat anartham*—lo cual es repugnante; *ajānatā*—por ti, que no tienes conocimiento; *na*—no; *sādhu*—muy bueno; *manye*—me parece; *daityānām*—de los demonios; *mahān*—grande; *upagataḥ*—se ha obtenido; *anayaḥ*—mala fortuna.

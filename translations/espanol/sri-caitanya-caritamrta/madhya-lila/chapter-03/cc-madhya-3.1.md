@@ -1,13 +1,13 @@
 ### CC Madhya 3.1
 
-> ন্যাসং বিধায়োৎপ্রণয়োঽথ গৌরো
-> বৃন্দাবনং গন্তুমনা ভ্রমাদ্ যঃ ।
-> রাঢ়ে ভ্রমন্ শান্তিপুরীময়িত্বা
+> ন্যাসং বিধায়োৎপ্রণয়োঽথ গৌরো\
+> বৃন্দাবনং গন্তুমনা ভ্রমাদ্ যঃ ।\
+> রাঢ়ে ভ্রমন্ শান্তিপুরীময়িত্বা\
 > ললাস ভক্তৈরিহ তং নতোঽস্মি ॥১॥
 
-> nyāsaṁ vidhāyotpraṇayo 'tha gauro
-> vṛndāvanaṁ gantu-manā bhramād yaḥ
-> rāḍhe bhraman śānti-purīm ayitvā
+> nyāsaṁ vidhāyotpraṇayo 'tha gauro\
+> vṛndāvanaṁ gantu-manā bhramād yaḥ\
+> rāḍhe bhraman śānti-purīm ayitvā\
 > lalāsa bhaktair iha taṁ nato 'smi
 
 *nyāsam*—las ceremonias rituales regulares de la orden de *sannyāsa*; *vidhāya*—tras aceptar; *utpraṇayaḥ*—despertar del intenso amor por Kṛṣṇa; *atha*—así; *gauraḥ*—Śrī Caitanya Mahāprabhu; *vṛndāvanam*—a Vṛndāvana; *gantu-manāḥ*—con la intención de ir; *bhramāt*—aparentemente por error; *yaḥ*—quien; *rāḍhe*—en la región conocida como Rāḍha; *bhraman*—deambulando; *śānti-purīm*—a Śāntipura; *ayitvā*—yendo; *lalāsa*—disfrutó; *bhaktaiḥ*—con los devotos; *iha*—aquí; *tam*—a Él; *nataḥ asmi*—le ofrezco mis respetuosas reverencias.

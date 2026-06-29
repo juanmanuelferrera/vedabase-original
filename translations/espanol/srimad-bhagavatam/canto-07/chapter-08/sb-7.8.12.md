@@ -1,12 +1,12 @@
 ### SB 7.8.12
 
-> श्रीहिरण्यकशिपुरुवाच
-> व्यक्तं त्वं मर्तुकामोऽसि योऽतिमात्रं विकत्थसे
+> श्रीहिरण्यकशिपुरुवाच\
+> व्यक्तं त्वं मर्तुकामोऽसि योऽतिमात्रं विकत्थसे\
 > मुमूर्षूणां हि मन्दात्मन्ननु स्युर्विक्लवा गिरः ॥१२॥
 
-> yas tvayā manda-bhāgyokto
-> mad-anyo jagad-īśvaraḥ
-> kvāsau yadi sa sarvatra
+> yas tvayā manda-bhāgyokto\
+> mad-anyo jagad-īśvaraḥ\
+> kvāsau yadi sa sarvatra\
 > kasmāt stambhe na dṛśyate
 
 *yaḥ*—ese que; *tvayā*—por ti; *manda-bhāgya*—¡oh, desafortunado!; *uktaḥ*—descrito; *mat-anyaḥ*—aparte de mí; *jagat-īśvaraḥ*—el controlador supremo del universo; *kva*—dónde; *asau*—ese; *yadi*—si; *saḥ*—Él; *sarvatra*—en todas partes (omnipresente); *kasmāt*—por qué; *stambhe*—en la columna que tengo delante; *na dṛśyate*—no se ve.

@@ -1,9 +1,9 @@
 ### CC Adi 11.20
 
-> মুরারি-চৈতন্যদাসের অলৌকিক লীলা ।
+> মুরারি-চৈতন্যদাসের অলৌকিক লীলা ।\
 > ব্যাঘ্র-গালে চড় মারে, সর্প-সনে খেলা ॥২০॥
 
-> murāri-caitanya-dāsera alaukika līlā
+> murāri-caitanya-dāsera alaukika līlā\
 > vyāghra-gāle caḍa māre, sarpa-sane khelā
 
 *murāri*—de nombre Murāri; *caitanya-dāsera*—del sirviente de Śrī Caitanya Mahāprabhu; *alaukika*—extraordinarios; *līlā*—pasatiempos; *vyāghra*—tigre; *gāle*—en la mejilla; *caḍa māre*—da bofetadas; *sarpa*—una serpiente; *sane*—con; *khelā*—jugando.

@@ -1,11 +1,11 @@
 ### CC Madhya 23.27
 
-> হরৌ রতিং বহন্নেষ নরেন্দ্রাণাং শিখামণিঃ ।
+> হরৌ রতিং বহন্নেষ নরেন্দ্রাণাং শিখামণিঃ ।\
 > ভিক্ষামটন্নরিপুরে শ্বপাকমপি বন্দতে ॥২৭॥
 
-> harau ratiṁ vahann eṣa
-> narendrāṇāṁ śikhāmaṇiḥ
-> bhikṣām aṭann ari-pure
+> harau ratiṁ vahann eṣa\
+> narendrāṇāṁ śikhāmaṇiḥ\
+> bhikṣām aṭann ari-pure\
 > śva-pākam api vandate
 
 *harau*—hacia la Suprema Personalidad de Dios; *ratim*—afecto; *vahan*—llevando; *eṣaḥ*—este; *nara-indrāṇām*—de todos los reyes; *śikhā-maṇiḥ*—brillante joya de la corona; *bhikṣām*—mendigando limosnas; *aṭan*—deambulando; *ari-pure*—incluso en la ciudad de los enemigos; *śva-pākam*—los *caṇḍālas* de quinta clase; *api*—incluso; *vandate*—adora.

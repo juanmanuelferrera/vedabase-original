@@ -1,11 +1,11 @@
 ### SB 4.6.41
 
-> तथापरे सिद्धगणा महर्षिभिर्ये वै समन्तादनु नीललोहितम् ।
+> तथापरे सिद्धगणा महर्षिभिर्ये वै समन्तादनु नीललोहितम् ।\
 > नमस्कृतः प्राह शशाङ्कशेखरं कृतप्रणामं प्रहसन्निवात्मभूः ॥४१॥
 
-> tathāpare siddha-gaṇā maharṣibhir
-> ye vai samantād anu nīlalohitam
-> namaskṛtaḥ prāha śaśāṅka-śekharaṁ
+> tathāpare siddha-gaṇā maharṣibhir\
+> ye vai samantād anu nīlalohitam\
+> namaskṛtaḥ prāha śaśāṅka-śekharaṁ\
 > kṛta-praṇāmaṁ prahasann ivātmabhūḥ
 
 *tathā*—también; *apare*—los demás; *siddha-gaṇāḥ*—los *siddhas*; *mahā-ṛṣibhiḥ*—junto con los grandes sabios; *ye*—quienes; *vai*—ciertamente; *samantāt*—de todas partes; *anu*—después; *nīlalohitam*—al Señor Śiva; *namaskṛtaḥ*—haciendo reverencias; *prāha*—dijo; *śaśāṅka-śekharam*—al Señor Śiva; *kṛta-praṇāmam*—habiendo hecho reverencias; *prahasan*—sonriendo; *iva*—como; *ātmabhūḥ*—el Señor Brahmā.

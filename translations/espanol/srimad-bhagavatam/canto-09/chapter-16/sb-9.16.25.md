@@ -1,11 +1,11 @@
 ### SB 9.16.25
 
-> जामदग्न्योऽपि भगवान्रामः कमललोचनः
+> जामदग्न्योऽपि भगवान्रामः कमललोचनः\
 > आगामिन्यन्तरे राजन्वर्तयिष्यति वै बृहत ॥२५॥
 
-> jāmadagnyo 'pi bhagavān
-> rāmaḥ kamala-locanaḥ
-> āgāminy antare rājan
+> jāmadagnyo 'pi bhagavān\
+> rāmaḥ kamala-locanaḥ\
+> āgāminy antare rājan\
 > vartayiṣyati vai bṛhat
 
 *jāmadagnyaḥ*—el hijo de Jamadagni; *api*—también; *bhagavān*—la Personalidad de Dios; *rāmaḥ*—el Señor Paraśurāma; *kamala-locanaḥ*—cuyos ojos son como pétalos de loto; *āgāmini*—venir; *antare*—en el *manvantara*, el período de un *manu*; *rājan*—¡oh, rey Parīkṣit!; *vartayiṣyati*—expondrá; *vai*—en verdad; *bṛhat*—el conocimiento védico.

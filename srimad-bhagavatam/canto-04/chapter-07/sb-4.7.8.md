@@ -1,11 +1,11 @@
 ### SB 4.7.8
 
-> विधाय कार्त्स्न्येन च तद्यदाह भगवान्भवः ।
+> विधाय कार्त्स्न्येन च तद्यदाह भगवान्भवः ।\
 > सन्दधुः कस्य कायेन सवनीयपशोः शिरः ॥८॥
 
-> vidhāya kārtsnyena ca tad
-> yad āha bhagavān bhavaḥ
-> sandadhuḥ kasya kāyena
+> vidhāya kārtsnyena ca tad\
+> yad āha bhagavān bhavaḥ\
+> sandadhuḥ kasya kāyena\
 > savanīya-paśoḥ śiraḥ
 
 *vidhāya*—executing; *kārtsnyena*—all in all; *ca*—also; *tat*—that; *yat*—which; *āha*—was said; *bhagavān*—the Lord; *bhavaḥ*—Śiva; *sandadhuḥ*—executed; *kasya*—of the living (Dakṣa); *kāyena*—with the body; *savanīya*—meant for sacrifice; *paśoḥ*—of the animal; *śiraḥ*—head.

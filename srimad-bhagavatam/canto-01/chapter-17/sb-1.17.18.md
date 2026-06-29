@@ -1,11 +1,11 @@
 ### SB 1.17.18
 
-> न वयं क्लेशबीजानि यतः स्युः पुरुषर्षभ ।
+> न वयं क्लेशबीजानि यतः स्युः पुरुषर्षभ ।\
 > पुरुषं तं विजानीमो वाक्यभेदविमोहिताः ॥१८॥
 
-> na vayaṁ kleśa-bījāni
-> yataḥ syuḥ puruṣarṣabha
-> puruṣaṁ taṁ vijānīmo
+> na vayaṁ kleśa-bījāni\
+> yataḥ syuḥ puruṣarṣabha\
+> puruṣaṁ taṁ vijānīmo\
 > vākya-bheda-vimohitāḥ
 
 *na*—not; *vayam*—we; *kleśa-bījāni*—the root cause of sufferings; *yataḥ*—wherefrom; *syuḥ*—it so happens; *puruṣa-ṛṣabha*—O greatest of all human beings; *puruṣam*—the person; *tam*—that; *vijānīmaḥ*—know; *vākya-bheda*—difference of opinion; *vimohitāḥ*—bewildered by.

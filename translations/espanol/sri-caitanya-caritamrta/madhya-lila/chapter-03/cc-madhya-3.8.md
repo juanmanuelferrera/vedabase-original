@@ -1,9 +1,9 @@
 ### CC Madhya 3.8
 
-> পরাত্মনিষ্ঠা-মাত্র বেষ-ধারণ ।
+> পরাত্মনিষ্ঠা-মাত্র বেষ-ধারণ ।\
 > মুকুন্দ-সেবায় হয় সংসার-তারণ ॥৮॥
 
-> parātma-niṣṭhā-mātra veṣa-dhāraṇa
+> parātma-niṣṭhā-mātra veṣa-dhāraṇa\
 > mukunda-sevāya haya saṁsāra-tāraṇa
 
 *para-ātma-niṣṭhā-mātra*—solo para la determinación de servir a Kṛṣṇa; *veṣa-dhāraṇa*—el cambio de vestimenta; *mukunda-sevāya*—sirviendo a Mukunda; *haya*—se produce; *saṁsāra-tāraṇa*—la liberación de esta esclavitud material.

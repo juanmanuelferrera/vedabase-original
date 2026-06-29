@@ -1,11 +1,11 @@
 ### SB 1.5.30
 
-> ज्ञानं गुह्यतमं यत्तत्साक्षाद्भगवतोदितम् ।
+> ज्ञानं गुह्यतमं यत्तत्साक्षाद्भगवतोदितम् ।\
 > अन्ववोचन्गमिष्यन्तः कृपया दीनवत्सलाः ॥३०॥
 
-> jñānaṁ guhyatamaṁ yat tat
-> sākṣād bhagavatoditam
-> anvavocan gamiṣyantaḥ
+> jñānaṁ guhyatamaṁ yat tat\
+> sākṣād bhagavatoditam\
+> anvavocan gamiṣyantaḥ\
 > kṛpayā dīna-vatsalāḥ
 
 *jñānam*—knowledge; *guhyatamam*—most confidential; *yat*—what is; *tat*—that; *sākṣāt*—directly; *bhagavatā uditam*—propounded by the Lord Himself; *anvavocan*—gave instruction; *gamiṣyantaḥ*—while departing from; *kṛpayā*—by causeless mercy; *dīna-vatsalāḥ*—those who are very kind to the poor and meek.

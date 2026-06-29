@@ -1,11 +1,11 @@
 ### SB 4.8.63
 
-> तपोवनं गते तस्मिन्प्रविष्टोऽन्तःपुरं मुनिः ।
+> तपोवनं गते तस्मिन्प्रविष्टोऽन्तःपुरं मुनिः ।\
 > अर्हितार्हणको राज्ञा सुखासीन उवाच तम् ॥६३॥
 
-> tapo-vanaṁ gate tasmin
-> praviṣṭo 'ntaḥ-puraṁ muniḥ
-> arhitārhaṇako rājñā
+> tapo-vanaṁ gate tasmin\
+> praviṣṭo 'ntaḥ-puraṁ muniḥ\
+> arhitārhaṇako rājñā\
 > sukhāsīna uvāca tam
 
 *tapaḥ-vanam*—the forest path where Dhruva Mahārāja executed his austerity; *gate*—having thus approached; *tasmin*—there; *praviṣṭaḥ*—having entered; *antaḥ-puram*—within the private house; *muniḥ*—the great sage Nārada; *arhita*—being worshiped; *arhaṇakaḥ*—by respectful behavior; *rājñā*—by the King; *sukha-āsīnaḥ*—when he comfortably sat on his seat; *uvāca*—said; *tam*—unto him (the King).

@@ -1,9 +1,9 @@
 ### CC Adi 2.99
 
-> কিশোরস্বরূপ কৃষ্ণ স্বয়ং অবতারী ।
+> কিশোরস্বরূপ কৃষ্ণ স্বয়ং অবতারী ।\
 > ক্রীড়া করে এই ছয়-রূপে বিশ্ব ভরি’ ॥৯৯॥
 
-> kiśora-svarūpa kṛṣṇa svayaṁ avatārī
+> kiśora-svarūpa kṛṣṇa svayaṁ avatārī\
 > krīḍā kare ei chaya-rūpe viśva bhari'
 
 *kiśora-svarūpa*—cuya verdadera naturaleza es la de un adolescente; *kṛṣṇa*—el Señor Kṛṣṇa; *svayam*—Él Mismo; *avatārī*—la fuente de todas las encarnaciones; *krīḍā kare*—Él juega; *ei*—estas; *chaya-rūpe*—en seis formas; *viśva*—los universos; *bhari'*—manteniendo.

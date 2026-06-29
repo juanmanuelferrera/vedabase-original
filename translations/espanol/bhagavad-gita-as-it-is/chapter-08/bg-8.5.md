@@ -1,11 +1,11 @@
 ### Bg 8.5
 
-> अन्तकाले च मामेव स्मरन्मुक्त्वा कलेवरम् ।
+> अन्तकाले च मामेव स्मरन्मुक्त्वा कलेवरम् ।\
 > यः प्रयाति स मद्भावं याति नास्त्यत्र संशयः ॥५॥
 
-> anta-kāle ca mām eva
-> smaran muktvā kalevaram
-> yaḥ prayāti sa mad-bhāvaṁ
+> anta-kāle ca mām eva\
+> smaran muktvā kalevaram\
+> yaḥ prayāti sa mad-bhāvaṁ\
 > yāti nāsty atra saṁśayaḥ
 
 *anta-kāle*—al final de la vida; *ca*—también; *mām*—a Mí; *eva*—ciertamente; *smaran*—recordando; *muktvā*—abandonando; *kalevaram*—el cuerpo; *yaḥ*—aquel que; *prayāti*—va; *saḥ*—él; *mad-bhāvam*—Mi naturaleza; *yāti*—alcanza; *na*—no; *asti*—hay; *atra*—aquí; *saṁśayaḥ*—duda.

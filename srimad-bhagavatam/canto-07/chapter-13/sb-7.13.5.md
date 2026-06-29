@@ -1,11 +1,11 @@
 ### SB 7.13.5
 
-> सुप्तिप्रबोधयोः सन्धावात्मनो गतिमात्मदृक
+> सुप्तिप्रबोधयोः सन्धावात्मनो गतिमात्मदृक\
 > पश्यन्बन्धं च मोक्षं च मायामात्रं न वस्तुतः ॥५॥
 
-> supti-prabodhayoḥ sandhāv
-> ātmano gatim ātma-dṛk
-> paśyan bandhaṁ ca mokṣaṁ ca
+> supti-prabodhayoḥ sandhāv\
+> ātmano gatim ātma-dṛk\
+> paśyan bandhaṁ ca mokṣaṁ ca\
 > māyā-mātraṁ na vastutaḥ
 
 *supti*—in the state of unconsciousness; *prabodhayoḥ*—and in the state of consciousness; *sandhau*—in the state of marginal existence; *ātmanaḥ*—of oneself; *gatim*—the movement; *ātma-dṛk*—one who can actually see the self; *paśyan*—always trying to see or understand; *bandham*—the conditional state of life; *ca*—and; *mokṣam*—the liberated state of life; *ca*—also; *māyā-mātram*—only illusion; *na*—not; *vastutaḥ*—in fact.

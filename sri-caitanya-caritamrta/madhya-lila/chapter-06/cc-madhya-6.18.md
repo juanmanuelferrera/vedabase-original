@@ -1,9 +1,9 @@
 ### CC Madhya 6.18
 
-> নদীয়া-নিবাসী, বিশারদের জামাতা ।
+> নদীয়া-নিবাসী, বিশারদের জামাতা ।\
 > মহাপ্রভুর ভক্ত তেঁহো প্রভুতত্ত্বজ্ঞাতা ॥১৮॥
 
-> nadīyā-nivāsī, viśāradera jāmātā
+> nadīyā-nivāsī, viśāradera jāmātā\
 > mahāprabhura bhakta teṅho prabhu-tattva-jñātā
 
 *nadīyā-nivāsī*—an inhabitant of Nadīyā; *viśāradera*—of Viśārada; *jāmātā*—the son-in-law; *mahāprabhura bhakta*—a devotee of Lord Caitanya Mahāprabhu; *teṅho*—he; *prabhu-tattva-jñātā*—a knower of the true identity of Śrī Caitanya Mahāprabhu.

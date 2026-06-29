@@ -1,9 +1,9 @@
 ### CC Antya 6.288
 
-> শঙ্করানন্দ-সরস্বতী বৃন্দাবন হৈতে আইলা ।
+> শঙ্করানন্দ-সরস্বতী বৃন্দাবন হৈতে আইলা ।\
 > তেঁহ সেই শিলা-গুঞ্জামালা লঞা গেলা ॥২৮৮॥
 
-> śaṅkarānanda-sarasvatī vṛndāvana haite āilā
+> śaṅkarānanda-sarasvatī vṛndāvana haite āilā\
 > teṅha sei śilā-guñjā-mālā lañā gelā
 
 *śaṅkarānanda-sarasvatī*—uno de los devotos de Śrī Caitanya Mahāprabhu; *vṛndāvana haite*—de Vṛndāvana; *āilā*—vino; *teṅha*—él; *sei*—esa; *śilā-guñjā-mālā*—la piedra y la guirnalda de pequeñas caracolas; *lañā*—tomando; *gelā*—fue.

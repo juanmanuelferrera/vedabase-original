@@ -1,9 +1,9 @@
 ### CC Antya 6.59
 
-> ধুতি পরি’ প্রভু যদি পিণ্ডাতে বসিলা ।
+> ধুতি পরি’ প্রভু যদি পিণ্ডাতে বসিলা ।\
 > সাতকুণ্ডী বিপ্র তাঁর আগেতে ধরিলা ॥৫৯॥
 
-> dhuti pari' prabhu yadi piṇḍāte vasilā
+> dhuti pari' prabhu yadi piṇḍāte vasilā\
 > sāta-kuṇḍī vipra tāṅra āgete dharilā
 
 *dhuti pari'*—poniéndose un paño nuevo; *prabhu*—el Señor Nityānanda; *yadi*—cuando; *piṇḍāte vasilā*—se sentó en una plataforma elevada; *sāta-kuṇḍī*—las siete grandes vasijas de barro; *vipra*—el *brāhmaṇa*; *tāṅra āgete*—ante Él; *dharilā*—colocó.

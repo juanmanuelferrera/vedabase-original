@@ -1,9 +1,9 @@
 ### CC Adi 10.106
 
-> শঙ্করারণ্য — আচার্য-বৃক্ষের এক শাখা ।
+> শঙ্করারণ্য — আচার্য-বৃক্ষের এক শাখা ।\
 > মুকুন্দ, কাশীনাথ, রুদ্র, — উপশাখা লেখা ॥১০৬॥
 
-> śaṅkarāraṇya--ācārya-vṛkṣera eka śākhā
+> śaṅkarāraṇya--ācārya-vṛkṣera eka śākhā\
 > mukunda, kāśīnātha, rudra--upaśākhā lekhā
 
 *śaṅkarāraṇya*—de nombre Śaṅkarāraṇya; *ācārya-vṛkṣera*—del árbol de ācāryas; *eka*—una; *śākhā*—rama; *mukunda*—de nombre Mukunda; *kāśīnātha*—de nombre Kāśīnātha; *rudra*—de nombre Rudra; *upaśākhā lekhā*—se les considera sub-ramas.

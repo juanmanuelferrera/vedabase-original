@@ -1,9 +1,9 @@
 ### CC Madhya 17.215
 
-> পুনঃ শারী কহে শুকে করি’ পরিহাস ।
+> পুনঃ শারী কহে শুকে করি’ পরিহাস ।\
 > তাহা শুনি’ প্রভুর হৈল বিস্ময়-প্রেমোল্লাস ॥২১৫॥
 
-> punaḥ śārī kahe śuke kari' parihāsa
+> punaḥ śārī kahe śuke kari' parihāsa\
 > tāhā śuni' prabhura haila vismaya-premollāsa
 
 *punaḥ*—de nuevo; *śārī kahe*—la loro hembra dijo; *śuke*—al loro macho; *kari' parihāsa*—en broma; *tāhā śuni'*—al escuchar eso; *prabhura*—de Śrī Caitanya Mahāprabhu; *haila*—hubo; *vismaya*—maravilloso; *prema-ullāsa*—despertar de amor extático.

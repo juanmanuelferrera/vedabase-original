@@ -1,11 +1,11 @@
 ### Bg 9.12
 
-> मोघाशा मोघकर्माणो मोघज्ञाना विचेतसः ।
+> मोघाशा मोघकर्माणो मोघज्ञाना विचेतसः ।\
 > राक्षसीमासुरीं चैव प्रकृतिं मोहिनीं श्रिताः ॥१२॥
 
-> moghāśā mogha-karmāṇo
-> mogha-jñānā vicetasaḥ
-> rākṣasīm āsurīṁ caiva
+> moghāśā mogha-karmāṇo\
+> mogha-jñānā vicetasaḥ\
+> rākṣasīm āsurīṁ caiva\
 > prakṛtiṁ mohinīṁ śritāḥ
 
 *moghāśāḥ*—esperanzas frustradas; *mogha-karmāṇaḥ*—frustrados en las actividades fruitivas; *mogha-jñānāḥ*—frustrados en el conocimiento; *vicetasaḥ*—confundidos; *rākṣasīm*—demoniacos; *āsurīm*—ateos; *ca*—y; *eva*—ciertamente; *prakṛtim*—naturaleza; *mohinīm*—desconcertante; *śritāḥ*—refugiándose en.

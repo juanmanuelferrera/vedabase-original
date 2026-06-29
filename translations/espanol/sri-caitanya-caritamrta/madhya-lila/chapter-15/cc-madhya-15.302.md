@@ -1,9 +1,9 @@
 ### CC Madhya 15.302
 
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ৷
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ৷\
 > চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৩০২॥
 
-> śrī-rūpa-raghunātha-pade yāra āśa
+> śrī-rūpa-raghunātha-pade yāra āśa\
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
 
 *śrī-rūpa*—Śrī Rūpa Gosvāmī; *raghunātha*—Śrīla Raghunātha dāsa Gosvāmī; *pade*—a los pies de loto; *yāra*—cuya; *āśa*—aspiración; *caitanya-caritāmṛta*—el libro llamado Caitanya-caritāmṛta; *kahe*—describe; *kṛṣṇadāsa*—Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī.

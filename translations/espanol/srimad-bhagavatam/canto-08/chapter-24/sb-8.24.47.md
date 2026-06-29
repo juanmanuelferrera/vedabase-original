@@ -1,11 +1,11 @@
 ### SB 8.24.47
 
-> जनोऽबुधोऽयं निजकर्मबन्धनः सुखेच्छया कर्म समीहतेऽसुखम
+> जनोऽबुधोऽयं निजकर्मबन्धनः सुखेच्छया कर्म समीहतेऽसुखम\
 > यत्सेवया तां विधुनोत्यसन्मतिं ग्रन्थिं स भिन्द्याद्धृदयं स नो गुरुः ॥४७॥
 
-> jano 'budho 'yaṁ nija-karma-bandhanaḥ
-> sukhecchayā karma samīhate 'sukham
-> yat-sevayā tāṁ vidhunoty asan-matiṁ
+> jano 'budho 'yaṁ nija-karma-bandhanaḥ\
+> sukhecchayā karma samīhate 'sukham\
+> yat-sevayā tāṁ vidhunoty asan-matiṁ\
 > granthiṁ sa bhindyād dhṛdayaṁ sa no guruḥ
 
 *janaḥ*—el alma condicionada sujeta al nacimiento y la muerte; *abudhaḥ*—muy necio por haber aceptado que el cuerpo es el ser; *ayam*—él; *nija-karma-bandhanaḥ*—que recibe distintas formas corporales como resultado de sus actividades pecaminosas; *sukha-icchayā*—con el deseo de ser feliz en el mundo material; *karma*—actividades fruitivas; *samīhate*—planea; *asukham*—pero solo para obtener sufrimiento; *yat-sevayā*—por ofrecer servicio a quien; *tām*—el enredo del *karma*; *vidhunoti*—limpia; *asat-matim*—la mentalidad impura (aceptar que el cuerpo es el ser); *granthim*—nudo apretado; *saḥ*—Su Señoría la Suprema Personalidad de Dios; *bhindyāt*—ser cortado; *hṛdayam*—en lo profundo del corazón; *saḥ*—Él (el Señor); *naḥ*—nuestro; *guruḥ*—el maestro espiritual supremo.

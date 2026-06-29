@@ -1,12 +1,12 @@
 ### CC Madhya 21.51
 
-> তস্যাঃ পারে পরব্যোম ত্রিপাদ্ভূতং সনাতনম্ ।
+> তস্যাঃ পারে পরব্যোম ত্রিপাদ্ভূতং সনাতনম্ ।\
 > অমৃতং শাশ্বতং নিত্যমনন্তং পরমং পদম্ ॥৫১॥
 
-> tasyāḥ pāre paravyoma
-> tripād-bhūtaṁ sanātanam
-> amṛtaṁ śāśvataṁ nityam
-> anantaṁ paramaṁ padam
+> tasyāḥ pāre paravyoma\
+> tripād-bhūtaṁ sanātanam\
+> amṛtaṁ śāśvataṁ nityam\
+> anantaṁ paramaṁ padam\
 > SYNONYMS
 
 *tasyāḥ pāre*—en la otra orilla del río Virajā; *para-vyoma*—el cielo espiritual; *tri-pād-bhūtam*—que existe como tres cuartas partes de la opulencia del Señor Supremo; *sanātanam*—eterno; *amṛtam*—sin deterioro; *śāśvatam*—sin estar sujeto al control del tiempo; *nityam*—existente constantemente; *anantam*—ilimitado; *paramam*—supremo; *padam*—morada.

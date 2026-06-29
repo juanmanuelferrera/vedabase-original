@@ -1,11 +1,11 @@
 ### SB 3.5.15
 
-> तदस्य कौषारव शर्मदातुर्हरेः कथामेव कथासु सारम् ।
+> तदस्य कौषारव शर्मदातुर्हरेः कथामेव कथासु सारम् ।\
 > उद्धृत्य पुष्पेभ्य इवार्तबन्धो शिवाय नः कीर्तय तीर्थकीर्तेः ॥१५॥
 
-> tad asya kauṣārava śarma-dātur
-> hareḥ kathām eva kathāsu sāram
-> uddhṛtya puṣpebhya ivārta-bandho
+> tad asya kauṣārava śarma-dātur\
+> hareḥ kathām eva kathāsu sāram\
+> uddhṛtya puṣpebhya ivārta-bandho\
 > śivāya naḥ kīrtaya tīrtha-kīrteḥ
 
 *tat*—therefore; *asya*—His; *kauṣārava*—O Maitreya; *śarma-dātuḥ*—of one who awards good fortune; *hareḥ*—of the Lord; *kathām*—topics; *eva*—only; *kathāsu*—of all topics; *sāram*—the essence; *uddhṛtya*—by quoting; *puṣpebhyaḥ*—from the flowers; *iva*—like that; *ārta-bandho*—O friend of the distressed; *śivāya*—for welfare; *naḥ*—of us; *kīrtaya*—kindly describe; *tīrtha*—pilgrimage; *kīrteḥ*—of glorious.

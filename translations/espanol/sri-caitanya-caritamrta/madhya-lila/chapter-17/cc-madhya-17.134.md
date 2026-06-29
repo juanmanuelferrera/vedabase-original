@@ -1,9 +1,9 @@
 ### CC Madhya 17.134
 
-> অতএব কৃষ্ণের ‘নাম’, ‘দেহ’, ‘বিলাস’ ।
+> অতএব কৃষ্ণের ‘নাম’, ‘দেহ’, ‘বিলাস’ ।\
 > প্রাকৃতেন্দ্রিয়-গ্রাহ্য নহে, হয় স্বপ্রকাশ ॥১৩৪॥
 
-> ataeva kṛṣṇera 'nāma', 'deha', 'vilāsa'
+> ataeva kṛṣṇera 'nāma', 'deha', 'vilāsa'\
 > prākṛtendriya-grāhya nahe, haya sva-prakāśa
 
 *ataeva*—por lo tanto; *kṛṣṇera*—del Señor Kṛṣṇa; *nāma*—el santo nombre; *deha*—el cuerpo espiritual; *vilāsa*—los pasatiempos; *prākṛta-indriya*—por los sentidos burdos hechos de materia; *grāhya*—perceptible; *nahe*—no; *haya*—son; *sva-prakāśa*—automanifestados.

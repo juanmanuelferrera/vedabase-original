@@ -1,11 +1,11 @@
 ### SB 3.14.19
 
-> यामाहुरात्मनो ह्यर्धं श्रेयस्कामस्य मानिनि ।
+> यामाहुरात्मनो ह्यर्धं श्रेयस्कामस्य मानिनि ।\
 > यस्यां स्वधुरमध्यस्य पुमांश्चरति विज्वरः ॥१९॥
 
-> yām āhur ātmano hy ardhaṁ
-> śreyas-kāmasya mānini
-> yasyāṁ sva-dhuram adhyasya
+> yām āhur ātmano hy ardhaṁ\
+> śreyas-kāmasya mānini\
+> yasyāṁ sva-dhuram adhyasya\
 > pumāṁś carati vijvaraḥ
 
 *yām*—the wife who; *āhuḥ*—is said; *ātmanaḥ*—of the body; *hi*—thus; *ardham*—half; *śreyaḥ*—welfare; *kāmasya*—of all desires; *mānini*—O respectful one; *yasyām*—in whom; *sva-dhuram*—all responsibilities; *adhyasya*—entrusting; *pumān*—a man; *carati*—moves; *vijvaraḥ*—without anxiety.

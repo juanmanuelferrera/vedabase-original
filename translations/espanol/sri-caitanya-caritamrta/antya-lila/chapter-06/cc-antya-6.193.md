@@ -1,9 +1,9 @@
 ### CC Antya 6.193
 
-> প্রভু কহে, — “কৃষ্ণকৃপা বলিষ্ঠ সবা হৈতে ।
+> প্রভু কহে, — “কৃষ্ণকৃপা বলিষ্ঠ সবা হৈতে ।\
 > তোমারে কাড়িল বিষয়-বিষ্ঠা-গর্ত হৈতে ।।” ॥ ১৯৩ ॥
 
-> prabhu kahe,--"kṛṣṇa-kṛpā baliṣṭha sabā haite
+> prabhu kahe,--"kṛṣṇa-kṛpā baliṣṭha sabā haite\
 > tomāre kāḍila viṣaya-viṣṭhā-garta haite"
 
 *prabhu kahe*—el Señor Śrī Caitanya Mahāprabhu dijo; *kṛṣṇa-kṛpā*—la misericordia del Señor Kṛṣṇa; *baliṣṭha*—más poderosa; *sabā haite*—que cualquier otra cosa; *tomāre*—a ti; *kāḍila*—Él te ha liberado; *viṣaya*—del disfrute material; *viṣṭhā*—de excremento; *garta*—la fosa; *haite*—de.

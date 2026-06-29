@@ -1,11 +1,11 @@
 ### SB 4.19.37
 
-> भवान्परित्रातुमिहावतीर्णो धर्मं जनानां समयानुरूपम् ।
+> भवान्परित्रातुमिहावतीर्णो धर्मं जनानां समयानुरूपम् ।\
 > वेनापचारादवलुप्तमद्य तद्देहतो विष्णुकलासि वैन्य ॥३७॥
 
-> bhavān paritrātum ihāvatīrṇo
-> dharmaṁ janānāṁ samayānurūpam
-> venāpacārād avaluptam adya
+> bhavān paritrātum ihāvatīrṇo\
+> dharmaṁ janānāṁ samayānurūpam\
+> venāpacārād avaluptam adya\
 > tad-dehato viṣṇu-kalāsi vainya
 
 *bhavān*—Your Majesty; *paritrātum*—just to deliver; *iha*—in this world; *avatīrṇaḥ*—incarnated; *dharmam*—religious system; *janānām*—of the people in general; *samaya-anurūpam*—according to the time and circumstances; *vena-apacārāt*—by the misdeeds of King Vena; *avaluptam*—almost vanished; *adya*—at the present moment; *tat*—his; *dehataḥ*—from the body; *viṣṇu*—of Lord Viṣṇu; *kalā*—part of a plenary portion; *asi*—you are; *vainya*—O son of King Vena.

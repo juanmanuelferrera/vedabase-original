@@ -1,9 +1,9 @@
 ### CC Antya 5.44
 
-> কিন্তু শাস্ত্রদৃষ্ট্যে এক করি অনুমান ।
+> কিন্তু শাস্ত্রদৃষ্ট্যে এক করি অনুমান ।\
 > শ্রীভাগবত-শাস্ত্র — তাহাতে প্রমাণ ॥৪৪॥
 
-> kintu śāstra-dṛṣṭye eka kari anumāna
+> kintu śāstra-dṛṣṭye eka kari anumāna\
 > śrī-bhāgavata-śāstra--tāhāte pramāṇa
 
 *kintu*—pero; *śāstra-dṛṣṭye*—conforme a las indicaciones del śāstra; *eka*—una; *kari anumāna*—hago una conjetura; *śrī-bhāgavata-śāstra*—el *Śrīmad-Bhāgavatam*, la escritura Védica; *tāhāte*—a ese respecto; *pramāṇa*—evidencia.

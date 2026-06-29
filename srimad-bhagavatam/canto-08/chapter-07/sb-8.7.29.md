@@ -1,11 +1,11 @@
 ### SB 8.7.29
 
-> कुक्षिः समुद्रा गिरयोऽस्थिसङ्घा रोमाणि सर्वौषधिवीरुधस्ते
+> कुक्षिः समुद्रा गिरयोऽस्थिसङ्घा रोमाणि सर्वौषधिवीरुधस्ते\
 > छन्दांसि साक्षात्तव सप्त धातवस्त्रयीमयात्मन्हृदयं सर्वधर्मः ॥२९॥
 
-> mukhāni pañcopaniṣadas taveśa
-> yais triṁśad-aṣṭottara-mantra-vargaḥ
-> yat tac chivākhyaṁ paramātma-tattvaṁ
+> mukhāni pañcopaniṣadas taveśa\
+> yais triṁśad-aṣṭottara-mantra-vargaḥ\
+> yat tac chivākhyaṁ paramātma-tattvaṁ\
 > deva svayaṁ-jyotir avasthitis te
 
 *mukhāni*—faces; *pañca*—five; *upaniṣadaḥ*—Vedic literatures; *tava*—your; *īśa*—O lord; *yaiḥ*—by which; *triṁśat-aṣṭa-uttara-mantra-vargaḥ*—in the category of thirty-eight important Vedic *mantras*; *yat*—that; *tat*—as it is; *śiva-ākhyam*—celebrated by the name Śiva; *paramātma-tattvam*—which ascertain the truth about Paramātmā; *deva*—O lord; *svayam-jyotiḥ*—self-illuminated; *avasthitiḥ*—situation; *te*—of Your Lordship.

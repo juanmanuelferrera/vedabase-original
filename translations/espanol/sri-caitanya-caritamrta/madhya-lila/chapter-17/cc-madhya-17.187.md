@@ -1,9 +1,9 @@
 ### CC Madhya 17.187
 
-> তবে সেই বিপ্র প্রভুকে ভিক্ষা করাইল ।
+> তবে সেই বিপ্র প্রভুকে ভিক্ষা করাইল ।\
 > মধুপুরীর লোক সব প্রভুকে দেখিতে আইল ॥১৮৭॥
 
-> tabe sei vipra prabhuke bhikṣā karāila
+> tabe sei vipra prabhuke bhikṣā karāila\
 > madhu-purīra loka saba prabhuke dekhite āila
 
 *tabe*—después de eso; *sei vipra*—aquel brāhmaṇa; *prabhuke*—al Señor Śrī Caitanya Mahāprabhu; *bhikṣā karāila*—dio almuerzo; *madhu-purīra*—de Mathurā; *loka*—la gente en general; *saba*—toda; *prabhuke*—a Śrī Caitanya Mahāprabhu; *dekhite āila*—vino a ver.

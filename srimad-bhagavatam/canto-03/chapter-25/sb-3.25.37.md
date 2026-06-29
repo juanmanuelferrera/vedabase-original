@@ -1,11 +1,11 @@
 ### SB 3.25.37
 
-> अथो विभूतिं मम मायाविनस्तामैश्वर्यमष्टाङ्गमनुप्रवृत्तम् ।
+> अथो विभूतिं मम मायाविनस्तामैश्वर्यमष्टाङ्गमनुप्रवृत्तम् ।\
 > श्रियं भागवतीं वास्पृहयन्ति भद्रां परस्य मे तेऽश्नुवते तु लोके ॥३७॥
 
-> atho vibhūtiṁ mama māyāvinas tām
-> aiśvaryam aṣṭāṅgam anupravṛttam
-> śriyaṁ bhāgavatīṁ vāspṛhayanti bhadrāṁ
+> atho vibhūtiṁ mama māyāvinas tām\
+> aiśvaryam aṣṭāṅgam anupravṛttam\
+> śriyaṁ bhāgavatīṁ vāspṛhayanti bhadrāṁ\
 > parasya me te 'śnuvate tu loke
 
 *atho*—then; *vibhūtim*—opulence; *mama*—of Me; *māyāvinaḥ*—of the Lord of *māyā*; *tām*—that; *aiśvaryam*—mystic perfection; *aṣṭa-aṅgam*—consisting of eight parts; *anupravṛttam*—following; *śriyam*—splendor; *bhāgavatīm*—of the kingdom of God; *vā*—or; *aspṛhayanti*—they do not desire; *bhadrām*—blissful; *parasya*—of the Supreme Lord; *me*—of Me; *te*—those devotees; *aśnuvate*—enjoy; *tu*—but; *loke*—in this life.

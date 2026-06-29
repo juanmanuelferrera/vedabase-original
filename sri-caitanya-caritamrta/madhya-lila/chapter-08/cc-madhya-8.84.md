@@ -1,11 +1,11 @@
 ### CC Madhya 8.84
 
-> যথোত্তরমসৌ স্বাদবিশেষোল্লাসময্যপি ।
+> যথোত্তরমসৌ স্বাদবিশেষোল্লাসময্যপি ।\
 > রতির্বাসনয়া স্বাদ্বী ভাসতে কাপি কস্যচিত্ ॥৮৪॥
 
-> yathottaram asau svāda-
-> viśeṣollāsa-mayy api
-> ratir vāsanayā svādvī
+> yathottaram asau svāda-\
+> viśeṣollāsa-mayy api\
+> ratir vāsanayā svādvī\
 > bhāsate kāpi kasyacit
 
 *yathā uttaram*—one after another; *asau*—that; *svāda-viśeṣa*—of particular tastes; *ullāsa*—pleasing; *mayī*—empowered with; *api*—although; *ratiḥ*—love; *vāsanayā*—by desire; *svādvī*—sweet; *bhāsate*—appears; *kā api*—someone; *kasyacit*—one of them.

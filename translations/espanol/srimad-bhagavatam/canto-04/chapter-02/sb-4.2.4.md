@@ -1,13 +1,13 @@
 ### SB 4.2.4
 
-> मैत्रेय उवाच
-> पुरा विश्वसृजां सत्रे समेताः परमर्षयः ।
+> मैत्रेय उवाच\
+> पुरा विश्वसृजां सत्रे समेताः परमर्षयः ।\
 > तथामरगणाः सर्वे सानुगा मुनयोऽग्नयः ॥४॥
 
-> maitreya uvāca
-> purā viśva-sṛjāṁ satre
-> sametāḥ paramarṣayaḥ
-> tathāmara-gaṇāḥ sarve
+> maitreya uvāca\
+> purā viśva-sṛjāṁ satre\
+> sametāḥ paramarṣayaḥ\
+> tathāmara-gaṇāḥ sarve\
 > sānugā munayo 'gnayaḥ
 
 *maitreyaḥ uvāca*—el sabio Maitreya dijo; *purā*—en el pasado (en tiempos de Svāyambhuva Manu); *viśva-sṛjām*—de los creadores del universo; *satre*—en un sacrificio; *sametāḥ*—se reunieron; *parama-ṛṣayaḥ*—los grandes sabios; *tathā*—y también; *amara-gaṇāḥ*—los semidioses; *sarve*—todos; *sa-anugāḥ*—con sus seguidores; *munayaḥ*—los filósofos; *agnayaḥ*—los dioses del fuego.

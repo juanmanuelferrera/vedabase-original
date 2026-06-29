@@ -1,11 +1,11 @@
 ### SB 3.14.21
 
-> न वयं प्रभवस्तां त्वामनुकर्तुं गृहेश्वरि ।
+> न वयं प्रभवस्तां त्वामनुकर्तुं गृहेश्वरि ।\
 > अप्यायुषा वा कार्त्स्न्येन ये चान्ये गुणगृध्नवः ॥२१॥
 
-> na vayaṁ prabhavas tāṁ tvām
-> anukartuṁ gṛheśvari
-> apy āyuṣā vā kārtsnyena
+> na vayaṁ prabhavas tāṁ tvām\
+> anukartuṁ gṛheśvari\
+> apy āyuṣā vā kārtsnyena\
 > ye cānye guṇa-gṛdhnavaḥ
 
 *na*—nunca; *vayam*—nosotros; *prabhavaḥ*—somos capaces; *tām*—esto; *tvām*—a ti; *anukartum*—hacer lo mismo; *gṛha-īśvari*—¡oh, reina del hogar!; *api*—a pesar de; *āyuṣā*—por la duración de la vida; *vā*—o (en la siguiente vida); *kārtsnyena*—entera; *ye*—quien; *ca*—también; *anye*—otros; *guṇa-gṛdhnavaḥ*—aquellos que son capaces de reconocer cualidades.

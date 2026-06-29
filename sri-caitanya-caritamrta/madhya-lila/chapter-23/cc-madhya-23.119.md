@@ -1,9 +1,9 @@
 ### CC Madhya 23.119
 
-> তবে সনাতন প্রভুর চরণে ধরিয়া ।
+> তবে সনাতন প্রভুর চরণে ধরিয়া ।\
 > নিবেদন করে দন্তে তৃণ-গুচ্ছ লঞা ॥১১৯॥
 
-> tabe sanātana prabhura caraṇe dhariyā
+> tabe sanātana prabhura caraṇe dhariyā\
 > nivedana kare dante tṛṇa-guccha lañā
 
 *tabe*—at that time; *sanātana*—Sanātana Gosvāmī; *prabhura*—of Śrī Caitanya Mahāprabhu; *caraṇe dhariyā*—catching the lotus feet; *nivedana kare*—submits a petition; *dante*—in the teeth; *tṛṇa-guccha*—a bunch of straw; *lañā*—taking.

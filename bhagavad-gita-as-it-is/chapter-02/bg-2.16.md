@@ -1,11 +1,11 @@
 ### Bg 2.16
 
-> नासतो विद्यते भावो नाभावो विद्यते सतः ।
+> नासतो विद्यते भावो नाभावो विद्यते सतः ।\
 > उभयोरपि दृष्टोऽन्तस्त्वनयोस्तत्त्वदर्शिभिः ॥१६॥
 
-> nāsato vidyate bhāvo
-> nābhāvo vidyate sataḥ
-> ubhayor api dṛṣṭo 'ntas
+> nāsato vidyate bhāvo\
+> nābhāvo vidyate sataḥ\
+> ubhayor api dṛṣṭo 'ntas\
 > tv anayos tattva-darśibhiḥ
 
 *na*—never; *asataḥ*—of the nonexistent; *vidyate*—there is; *bhāvaḥ*—endurance; *na*—never; *abhāvaḥ*—changing quality; *vidyate*—there is; *sataḥ*—of the eternal; *ubhayoḥ*—of the two; *api*—verily; *dṛṣṭaḥ*—observed; *antaḥ*—conclusion; *tu*—but; *anayoḥ*—of them; *tattva*—truth; *darśibhiḥ*—by the seers.

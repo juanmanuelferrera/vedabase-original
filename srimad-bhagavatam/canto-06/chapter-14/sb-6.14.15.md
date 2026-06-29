@@ -1,11 +1,11 @@
 ### SB 6.14.15
 
-> तं पूजयित्वा विधिवत्प्रत्युत्थानार्हणादिभिः
+> तं पूजयित्वा विधिवत्प्रत्युत्थानार्हणादिभिः\
 > कृतातिथ्यमुपासीदत्सुखासीनं समाहितः ॥१५॥
 
-> taṁ pūjayitvā vidhivat
-> pratyutthānārhaṇādibhiḥ
-> kṛtātithyam upāsīdat
+> taṁ pūjayitvā vidhivat\
+> pratyutthānārhaṇādibhiḥ\
+> kṛtātithyam upāsīdat\
 > sukhāsīnaṁ samāhitaḥ
 
 *tam*—him; *pūjayitvā*—after worshiping; *vidhi-vat*—according to the rules and regulations for receiving exalted guests; *pratyutthāna*—by standing from the throne; *arhaṇa-ādibhiḥ*—offering worship and so on; *kṛta-atithyam*—who was given hospitality; *upāsīdat*—sat down near; *sukha-āsīnam*—who was seated very comfortably; *samāhitaḥ*—controlling his mind and senses.

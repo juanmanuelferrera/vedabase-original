@@ -1,11 +1,11 @@
 ### SB 9.9.12
 
-> यज्जलस्पर्शमात्रेण ब्रह्मदण्डहता अपि
+> यज्जलस्पर्शमात्रेण ब्रह्मदण्डहता अपि\
 > सगरात्मजा दिवं जग्मुः केवलं देहभस्मभिः ॥१२॥
 
-> yaj-jala-sparśa-mātreṇa
-> brahma-daṇḍa-hatā api
-> sagarātmajā divaṁ jagmuḥ
+> yaj-jala-sparśa-mātreṇa\
+> brahma-daṇḍa-hatā api\
+> sagarātmajā divaṁ jagmuḥ\
 > kevalaṁ deha-bhasmabhiḥ
 
 *yat-jala*—whose water; *sparśa-mātreṇa*—simply by touching; *brahma-daṇḍa-hatāḥ*—those who were condemned for offending *brahma,* the self; *api*—although; *sagara-ātmajāḥ*—the sons of Sagara; *divam*—to the heavenly planets; *jagmuḥ*—went; *kevalam*—only; *deha-bhasmabhiḥ*—by the remaining ashes of their burnt bodies.

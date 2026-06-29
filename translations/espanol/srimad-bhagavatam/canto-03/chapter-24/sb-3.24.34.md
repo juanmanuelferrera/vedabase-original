@@ -1,11 +1,11 @@
 ### SB 3.24.34
 
-> अ स्माभिपृच्छेऽद्य पतिं प्रजानां त्वयावतीर्णर्ण उताप्तकामः ।
+> अ स्माभिपृच्छेऽद्य पतिं प्रजानां त्वयावतीर्णर्ण उताप्तकामः ।\
 > परिव्रजत्पदवीमास्थितोऽहं चरिष्ये त्वां हृदि युञ्जन्विशोकः ॥३४॥
 
-> ā smābhipṛcche 'dya patiṁ prajānāṁ
-> tvayāvatīrṇarṇa utāpta-kāmaḥ
-> parivrajat-padavīm āsthito 'haṁ
+> ā smābhipṛcche 'dya patiṁ prajānāṁ\
+> tvayāvatīrṇarṇa utāpta-kāmaḥ\
+> parivrajat-padavīm āsthito 'haṁ\
 > cariṣye tvāṁ hṛdi yuñjan viśokaḥ
 
 *ā sma abhipṛcche*—yo estoy preguntando; *adya*—ahora; *patim*—al Señor; *prajānām*—de todos los seres creados; *tvayā*—por Ti; *avatīrṇa-ṛṇaḥ*—libre de deudas; *uta*—y; *āpta*—satisfechos; *kāmaḥ*—deseos; *parivrajat*—de mendigo itinerante; *padavīm*—el sendero; *āsthitaḥ*—adoptando; *aham*—yo; *cariṣye*—vagaré; *tvām*—a Ti; *hṛdi*—en mi corazón; *yuñjan*—manteniendo; *viśokaḥ*—libre de lamentación.

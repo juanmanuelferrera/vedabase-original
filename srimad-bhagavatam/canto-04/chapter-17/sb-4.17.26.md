@@ -1,11 +1,11 @@
 ### SB 4.17.26
 
-> पुमान्योषिदुत क्लीब आत्मसम्भावनोऽधमः ।
+> पुमान्योषिदुत क्लीब आत्मसम्भावनोऽधमः ।\
 > भूतेषु निरनुक्रोशो नृपाणां तद्वधोऽवधः ॥२६॥
 
-> pumān yoṣid uta klība
-> ātma-sambhāvano 'dhamaḥ
-> bhūteṣu niranukrośo
+> pumān yoṣid uta klība\
+> ātma-sambhāvano 'dhamaḥ\
+> bhūteṣu niranukrośo\
 > nṛpāṇāṁ tad-vadho 'vadhaḥ
 
 *pumān*—a man; *yoṣit*—a woman; *uta*—also; *klībaḥ*—a eunuch; *ātma-sambhāvanaḥ*—interested in self -maintenance; *adhamaḥ*—lowest of humankind; *bhūteṣu*—to other living entities; *niranukrośaḥ*—without compassion; *nṛpāṇām*—for the kings; *tat*—of him; *vadhaḥ*—killing; *avadhaḥ*—not killing.

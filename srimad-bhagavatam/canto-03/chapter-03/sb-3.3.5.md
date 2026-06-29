@@ -1,11 +1,11 @@
 ### SB 3.3.5
 
-> प्रियं प्रभुर्ग्राम्य इव प्रियाया विधित्सुरार्च्छद्द्युतरुं यदर्थे ।
+> प्रियं प्रभुर्ग्राम्य इव प्रियाया विधित्सुरार्च्छद्द्युतरुं यदर्थे ।\
 > वज्र्याद्रवत्तं सगणो रुषान्धः क्रीडामृगो नूनमयं वधूनाम् ॥५॥
 
-> priyaṁ prabhur grāmya iva priyāyā
-> vidhitsur ārcchad dyutaruṁ yad-arthe
-> vajry ādravat taṁ sa-gaṇo ruṣāndhaḥ
+> priyaṁ prabhur grāmya iva priyāyā\
+> vidhitsur ārcchad dyutaruṁ yad-arthe\
+> vajry ādravat taṁ sa-gaṇo ruṣāndhaḥ\
 > krīḍā-mṛgo nūnam ayaṁ vadhūnām
 
 *priyam*—of the dear wife; *prabhuḥ*—the Lord; *grāmyaḥ*—ordinary living being; *iva*—in the manner of; *priyāyāḥ*—just to please; *vidhitsuḥ*—wishing; *ārcchat*—brought about; *dyutarum*—the *pārijāta* flower tree; *yat*—for which; *arthe*—in the matter of; *vajrī*—Indra, the King of heaven; *ādravat tam*—went forward to fight with Him; *sa-gaṇaḥ*—with full strength; *ruṣā*—in anger; *andhaḥ*—blind; *krīḍā-mṛgaḥ*—henpecked; *nūnam*—of course; *ayam*—this; *vadhūnām*—of the wives.

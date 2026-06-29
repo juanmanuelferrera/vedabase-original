@@ -1,9 +1,9 @@
 ### CC Adi 16.19
 
-> এই মত বঙ্গের লোকের কৈলা মহা হিত ।
+> এই মত বঙ্গের লোকের কৈলা মহা হিত ।\
 > ‘নাম’ দিয়া ভক্ত কৈল, পড়াঞা পণ্ডিত ॥১৯॥
 
-> ei mata baṅgera lokera kailā mahā hita
+> ei mata baṅgera lokera kailā mahā hita\
 > 'nāma' diyā bhakta kaila, paḍāñā paṇḍita
 
 *ei mata*—in this way; *baṅgera*—of East Bengal; *lokera*—of the people; *kailā*—contributed; *mahā*—great; *hita*—benefit; *nāma*—the holy name of the Lord; *diyā*—giving them; *bhakta*—devotees; *kaila*—made them; *paḍāñā*—by educating them; *paṇḍita*—learned scholars.

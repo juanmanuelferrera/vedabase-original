@@ -1,13 +1,13 @@
 ### SB 3.15.49
 
-> कामं भवः स्ववृजिनैर्निरयेषु नः स्ताच्
-> चेतोऽलिवद्यदि नु ते पदयो रमेत ।
-> वाचश्च नस्तुलसिवद्यदि तेऽङ्घ्रिशोभाः
+> कामं भवः स्ववृजिनैर्निरयेषु नः स्ताच्\
+> चेतोऽलिवद्यदि नु ते पदयो रमेत ।\
+> वाचश्च नस्तुलसिवद्यदि तेऽङ्घ्रिशोभाः\
 > पूर्येत ते गुणगणैर्यदि कर्णरन्ध्रः ॥४९॥
 
-> kāmaṁ bhavaḥ sva-vṛjinair nirayeṣu naḥ stāc
-> ceto 'livad yadi nu te padayo rameta
-> vācaś ca nas tulasivad yadi te 'ṅghri-śobhāḥ
+> kāmaṁ bhavaḥ sva-vṛjinair nirayeṣu naḥ stāc\
+> ceto 'livad yadi nu te padayo rameta\
+> vācaś ca nas tulasivad yadi te 'ṅghri-śobhāḥ\
 > pūryeta te guṇa-gaṇair yadi karṇa-randhraḥ
 
 *kāmam*—tanto como merezcamos; *bhavaḥ*—nacimiento; *sva-vṛjinaiḥ*—por nuestras propias actividades pecaminosas; *nirayeṣu*—en nacimientos bajos; *naḥ*—nuestro; *stāt*—que sea; *cetaḥ*—mentes; *ali-vat*—como abejas; *yadi*—si; *nu*—quizá; *te*—Tus; *padayoḥ*—a Tus pies de loto; *rameta*—están ocupadas; *vācaḥ*—palabras; *ca*—y; *naḥ*—nuestras; *tulasi-vat*—como las hojas de *tulasī*; *yadi*—si; *te*—Tus; *aṅghri*—a Tus pies de loto; *śobhāḥ*—embellecidos; *pūryeta*—están llenos; *te*—Tus; *guṇa-gaṇaiḥ*—por cualidades trascendentales; *yadi*—si; *karṇa-randhraḥ*—los orificios de los oídos.

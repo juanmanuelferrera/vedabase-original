@@ -1,11 +1,11 @@
 ### SB 4.24.28
 
-> यः परं रंहसः साक्षात्त्रिगुणाज्जीवसंज्ञितात् ।
+> यः परं रंहसः साक्षात्त्रिगुणाज्जीवसंज्ञितात् ।\
 > भगवन्तं वासुदेवं प्रपन्नः स प्रियो हि मे ॥२८॥
 
-> yaḥ paraṁ raṁhasaḥ sākṣāt
-> tri-guṇāj jīva-saṁjñitāt
-> bhagavantaṁ vāsudevaṁ
+> yaḥ paraṁ raṁhasaḥ sākṣāt\
+> tri-guṇāj jīva-saṁjñitāt\
+> bhagavantaṁ vāsudevaṁ\
 > prapannaḥ sa priyo hi me
 
 *yaḥ*—todo el que; *param*—trascendental; *raṁhasaḥ*—del controlador; *sākṣāt*—directamente; *tri-guṇāt*—de las tres modalidades de la naturaleza material; *jīva-saṁjñitāt*—entidades vivientes que reciben el nombre de *jīvas*; *bhagavantam*—a la Suprema Personalidad de Dios; *vāsudevam*—a Kṛṣṇa; *prapannaḥ*—entregado; *saḥ*—él; *priyaḥ*—muy querido; *hi*—indudablemente; *me*—de mí.

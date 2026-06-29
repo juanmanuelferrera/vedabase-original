@@ -1,9 +1,9 @@
 ### CC Madhya 20.294
 
-> তৃতীয়-পুরুষ বিষ্ণু — ‘গুণ-অবতার’ ।
+> তৃতীয়-পুরুষ বিষ্ণু — ‘গুণ-অবতার’ ।\
 > দুই অবতার-ভিতর গণনা তাঁহার ॥২৯৪॥
 
-> tṛtīya-puruṣa viṣṇu—'guṇa-avatāra'
+> tṛtīya-puruṣa viṣṇu—'guṇa-avatāra'\
 > dui avatāra-bhitara gaṇanā tāṅhāra
 
 *tṛtīya-puruṣa*—the third Personality; *viṣṇu*—Lord Viṣṇu; *guṇa-avatāra*—the incarnation of the material quality of goodness; *dui avatāra-bhitara*—within the two incarnations; *gaṇanā-tāṅhāra*—He is designated.

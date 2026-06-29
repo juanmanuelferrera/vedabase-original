@@ -1,11 +1,11 @@
 ### SB 7.15.10
 
-> द्रव्ययज्ञऐर्यक्ष्यमाणं दृष्ट्वा भूतानि बिभ्यति
+> द्रव्ययज्ञऐर्यक्ष्यमाणं दृष्ट्वा भूतानि बिभ्यति\
 > एष माकरुणो हन्यादतजज्ञओ ह्यसुतृप्ध्रुवम ॥१०॥
 
-> dravya-yajñair yakṣyamāṇaṁ
-> dṛṣṭvā bhūtāni bibhyati
-> eṣa mākaruṇo hanyād
+> dravya-yajñair yakṣyamāṇaṁ\
+> dṛṣṭvā bhūtāni bibhyati\
+> eṣa mākaruṇo hanyād\
 > ataj-jño hy asu-tṛp dhruvam
 
 *dravya-yajñaiḥ*—con animales y otras cosas comestibles; *yakṣyamāṇam*—la persona ocupada en esos sacrificios; *dṛṣṭvā*—por ver; *bhūtāni*—las entidades vivientes (animales); *bibhyati*—sienten miedo; *eṣaḥ*—esa persona (el que realiza el sacrificio); *mā*—a nosotros; *akaruṇaḥ*—que es inhumana y despiadada; *hanyāt*—va a matar; *a-tat-jñaḥ*—muy ignorante; *hi*—en verdad; *asu-tṛp*—que se siente muy satisfecho matando a otros; *dhruvam*—ciertamente.

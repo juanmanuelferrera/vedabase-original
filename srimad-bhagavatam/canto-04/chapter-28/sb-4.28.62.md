@@ -1,11 +1,11 @@
 ### SB 4.28.62
 
-> अहं भवान्न चान्यस्त्वं त्वमेवाहं विचक्ष्व भोः ।
+> अहं भवान्न चान्यस्त्वं त्वमेवाहं विचक्ष्व भोः ।\
 > न नौ पश्यन्ति कवयश्छिद्रं जातु मनागपि ॥६२॥
 
-> ahaṁ bhavān na cānyas tvaṁ
-> tvam evāhaṁ vicakṣva bhoḥ
-> na nau paśyanti kavayaś
+> ahaṁ bhavān na cānyas tvaṁ\
+> tvam evāhaṁ vicakṣva bhoḥ\
+> na nau paśyanti kavayaś\
 > chidraṁ jātu manāg api
 
 *aham*—I; *bhavān*—you; *na*—not; *ca*—also; *anyaḥ*—different; *tvam*—you; *tvam*—you; *eva*—certainly; *aham*—as I am; *vicakṣva*—just observe; *bhoḥ*—My dear friend; *na*—not; *nau*—of us; *paśyanti*—do observe; *kavayaḥ*—learned scholars; *chidram*—faulty differentiation; *jātu*—at any time; *manāk*—in a small degree; *api*—even.

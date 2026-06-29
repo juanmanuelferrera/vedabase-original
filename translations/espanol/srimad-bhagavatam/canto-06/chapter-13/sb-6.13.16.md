@@ -1,11 +1,11 @@
 ### SB 6.13.16
 
-> तावत्त्रिणाकं नहुषः शशास विद्यातपोयोगबलानुभावः
+> तावत्त्रिणाकं नहुषः शशास विद्यातपोयोगबलानुभावः\
 > स सम्पदैश्वर्यमदान्धबुद्धिर्नीतस्तिरश्चां गतिमिन्द्रपत्न्या ॥१६॥
 
-> tāvat triṇākaṁ nahuṣaḥ śaśāsa
-> vidyā-tapo-yoga-balānubhāvaḥ
-> sa sampad-aiśvarya-madāndha-buddhir
+> tāvat triṇākaṁ nahuṣaḥ śaśāsa\
+> vidyā-tapo-yoga-balānubhāvaḥ\
+> sa sampad-aiśvarya-madāndha-buddhir\
 > nītas tiraścāṁ gatim indra-patnyā
 
 *tāvat*—mientras; *triṇākam*—el planeta celestial; *nahuṣaḥ*—Nahuṣa; *śaśāsa*—gobernó; *vidyā*—por educación; *tapaḥ*—austeridades; *yoga*—poder místico; *bala*—y fuerza; *anubhāvaḥ*—estando dotado; *saḥ*—él (Nahuṣa); *sampat*—de tanta riqueza; *aiśvarya*—y opulencia; *mada*—por la locura; *andha*—cegada; *buddhiḥ*—su inteligencia; *nītaḥ*—fue llevado; *tiraścām*—de una serpiente; *gatim*—al destino; *indra-patnyā*—por la esposa de Indra, Śacīdevī.

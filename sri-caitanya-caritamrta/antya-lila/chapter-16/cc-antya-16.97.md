@@ -1,9 +1,9 @@
 ### CC Antya 16.97
 
-> প্রভু কহে, — “এই যে দিলা কৃষ্ণাধরামৃত ।
+> প্রভু কহে, — “এই যে দিলা কৃষ্ণাধরামৃত ।\
 > ব্রহ্মাদি-দুর্লভ এই নিন্দয়ে ‘অমৃত’ ॥৯৭॥
 
-> prabhu kahe,—"ei ye dilā kṛṣṇādharāmṛta
+> prabhu kahe,—"ei ye dilā kṛṣṇādharāmṛta\
 > brahmādi-durlabha ei nindaye 'amṛta'
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *ei*—this; *ye*—which; *dilā*—you have given; *kṛṣṇa*—of Lord Kṛṣṇa; *adhara-amṛta*—nectar from the lips; *brahmā-ādi*—by the demigods, headed by Lord Brahmā; *durlabha*—difficult to obtain; *ei*—this; *nindaye*—defeats; *amṛta*—nectar.

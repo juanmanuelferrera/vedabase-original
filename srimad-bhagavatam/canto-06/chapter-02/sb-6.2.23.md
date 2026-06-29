@@ -1,11 +1,11 @@
 ### SB 6.2.23
 
-> तं विवक्षुमभिप्रेत्य महापुरुषकिङ्कराः
+> तं विवक्षुमभिप्रेत्य महापुरुषकिङ्कराः\
 > सहसा पश्यतस्तस्य तत्रान्तर्दधिरेऽनघ ॥२३॥
 
-> taṁ vivakṣum abhipretya
-> mahāpuruṣa-kiṅkarāḥ
-> sahasā paśyatas tasya
+> taṁ vivakṣum abhipretya\
+> mahāpuruṣa-kiṅkarāḥ\
+> sahasā paśyatas tasya\
 > tatrāntardadhire 'nagha
 
 *tam*—him (Ajāmila); *vivakṣum*—desiring to speak; *abhipretya*—understanding; *mahāpuruṣa-kiṅkarāḥ*—the order carriers of Lord Viṣṇu; *sahasā*—suddenly; *paśyataḥ tasya*—while he looked on; *tatra*—there; *antardadhire*—disappeared; *anagha*—O sinless Mahārāja Parīkṣit.

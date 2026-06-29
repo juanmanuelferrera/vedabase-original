@@ -1,9 +1,9 @@
 ### CC Antya 3.51
 
-> ইহা-সবার কোন্ মতে হইবে নিস্তার ?
+> ইহা-সবার কোন্ মতে হইবে নিস্তার ?\
 > তাহার হেতু না দেখিয়ে, — এ দুঃখ অপার ।।” ॥ ৫১ ॥
 
-> ihā-sabāra kon mate ha-ibe nistāra?
+> ihā-sabāra kon mate ha-ibe nistāra?\
 > tāhāra hetu nā dekhiye,--e duḥkha apāra"
 
 *ihā-sabāra*—de todos estos *yavanas*; *kon mate*—de qué manera; *ha-ibe nistāra*—habrá liberación; *tāhāra hetu*—la causa de dicha liberación; *nā dekhiye*—no veo; *e duḥkha apāra*—es Mi gran infelicidad.

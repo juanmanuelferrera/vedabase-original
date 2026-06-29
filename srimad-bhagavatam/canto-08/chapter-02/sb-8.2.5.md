@@ -1,11 +1,11 @@
 ### SB 8.2.5
 
-> सिद्धचारणगन्धर्वैर्विद्याधरमहोरगैः
+> सिद्धचारणगन्धर्वैर्विद्याधरमहोरगैः\
 > किन्नरैरप्सरोभिश्च क्रीडद्भिर्जुष्टकन्दरः ॥५॥
 
-> siddha-cāraṇa-gandharvair
-> vidyādhara-mahoragaiḥ
-> kinnarair apsarobhiś ca
+> siddha-cāraṇa-gandharvair\
+> vidyādhara-mahoragaiḥ\
+> kinnarair apsarobhiś ca\
 > krīḍadbhir juṣṭa-kandaraḥ
 
 *siddha*—by the inhabitants of Siddhaloka; *cāraṇa*—the inhabitants of Cāraṇaloka; *gandharvaiḥ*—the inhabitants of Gandharvaloka; *vidyādhara*—the inhabitants of Vidyādhara-loka; *mahā-uragaiḥ*—the inhabitants of the serpent *loka*; *kinnaraiḥ*—the Kinnaras; *apsarobhiḥ*—the Apsarās; *ca*—and; *krīḍadbhiḥ*—who were engaged in sporting; *juṣṭa*—enjoyed; *kandaraḥ*—the caves.

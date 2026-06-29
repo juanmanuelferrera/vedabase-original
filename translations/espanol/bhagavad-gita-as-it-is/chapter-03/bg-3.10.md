@@ -1,11 +1,11 @@
 ### Bg 3.10
 
-> सहयज्ञाः प्रजाः सृष्ट्वा पुरोवाच प्रजापतिः ।
+> सहयज्ञाः प्रजाः सृष्ट्वा पुरोवाच प्रजापतिः ।\
 > अनेन प्रसविष्यध्वमेष वोऽस्त्विष्टकामधुक् ॥१०॥
 
-> saha-yajñāḥ prajāḥ sṛṣṭvā
-> purovāca prajāpatiḥ
-> anena prasaviṣyadhvam
+> saha-yajñāḥ prajāḥ sṛṣṭvā\
+> purovāca prajāpatiḥ\
+> anena prasaviṣyadhvam\
 > eṣa vo'stv iṣṭa-kāma-dhuk
 
 *saha*—junto con; *yajñāḥ*—sacrificios; *prajāḥ*—generaciones; *sṛṣṭvā*—creando; *purā*—antiguamente; *uvāca*—dijo; *prajā-patiḥ*—el Señor de las criaturas; *anena*—con esto; *prasaviṣyadhvam*—sed cada vez más prósperos; *eṣaḥ*—ciertamente; *vaḥ*—vosotros; *astu*—que sea; *iṣṭa*—todo lo deseable; *kāma-dhuk*—el que otorga.

@@ -1,11 +1,11 @@
 ### SB 7.2.12
 
-> यत्र यत्र द्विजा गावो वेदा वर्णाश्रमक्रियाः
+> यत्र यत्र द्विजा गावो वेदा वर्णाश्रमक्रियाः\
 > तं तं जनपदं यात सन्दीपयत वृश्चत ॥१२॥
 
-> yatra yatra dvijā gāvo
-> vedā varṇāśrama-kriyāḥ
-> taṁ taṁ janapadaṁ yāta
+> yatra yatra dvijā gāvo\
+> vedā varṇāśrama-kriyāḥ\
+> taṁ taṁ janapadaṁ yāta\
 > sandīpayata vṛścata
 
 *yatra yatra*—dondequiera; *dvijāḥ*—los *brāhmaṇas*; *gāvaḥ*—las vacas protegidas; *vedāḥ*—la cultura védica; *varṇa-āśrama*—de la civilización *ārya* de cuatro *varṇas* y cuatro *āśramas*; *kriyāḥ*—las actividades; *tam tam*—a esa; *jana-padam*—a la ciudad o pueblo; *yāta*—vayan; *sandīpayata*—prendan fuego; *vṛścata*—corten (todos los árboles).

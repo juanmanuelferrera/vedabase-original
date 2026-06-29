@@ -1,9 +1,9 @@
 ### CC Madhya 18.140
 
-> আজি আমি আছিলাঙ উঠাইলুঁ প্রভুরে ।
+> আজি আমি আছিলাঙ উঠাইলুঁ প্রভুরে ।\
 > বৃন্দাবনে ডুবেন যদি, কে উঠাবে তাঁরে ? ॥ ১৪০ ॥
 
-> āji āmi āchilāṅa uṭhāiluṅ prabhure
+> āji āmi āchilāṅa uṭhāiluṅ prabhure\
 > vṛndāvane ḍubena yadi, ke uṭhābe tāṅre?
 
 *āji*—hoy; *āmi*—yo; *āchilāṅa*—estaba presente; *uṭhāiluṅ*—saqué; *prabhure*—a Śrī Caitanya Mahāprabhu; *vṛndāvane*—en Vṛndāvana; *ḍubena yadi*—si se ahoga; *ke uṭhābe tāṅre*—quién Lo sacará.

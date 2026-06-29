@@ -1,11 +1,11 @@
 ### SB 8.4.5
 
-> सोऽनुकम्पित ईशेन परिक्रम्य प्रणम्य तम
+> सोऽनुकम्पित ईशेन परिक्रम्य प्रणम्य तम\
 > लोकस्य पश्यतो लोकं स्वमगान्मुक्तकिल्बिषः ॥५॥
 
-> so 'nukampita īśena
-> parikramya praṇamya tam
-> lokasya paśyato lokaṁ
+> so 'nukampita īśena\
+> parikramya praṇamya tam\
+> lokasya paśyato lokaṁ\
 > svam agān mukta-kilbiṣaḥ
 
 *saḥ*—él (el rey Hūhū); *anukampitaḥ*—favorecido; *īśena*—por el Señor Supremo; *parikramya*—caminar alrededor; *praṇamya*—ofrecer reverencias; *tam*—a Él; *lokasya*—todos los semidioses y hombres; *paśyataḥ*—mientras veían; *lokam*—al planeta; *svam*—su propio; *agāt*—regresó; *mukta*—liberado; *kilbiṣaḥ*—de las reacciones de su pecado.

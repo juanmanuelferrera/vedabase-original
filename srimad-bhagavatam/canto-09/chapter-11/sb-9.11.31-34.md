@@ -1,32 +1,32 @@
 ### SB 9.11.31-34
 
-> अथ प्रविष्टः स्वगृहं जुष्टं स्वैः पूर्वराजभिः
-> अनन्ताखिलकोषाढ्यमनर्घ्योरुपरिच्छदम ॥३१॥
-> विद्रुमोदुम्बरद्वारैर्वैदूर्यस्तम्भपङ्क्तिभिः
-> स्थलैर्मारकतैः स्वच्छैर्भ्राजत्स्फटिकभित्तिभिः ॥३२॥
-> चित्रस्रग्भिः पट्टिकाभिर्वासोमणिगणांशुकैः
-> मुक्ताफलैश्चिदुल्लासैः कान्तकामोपपत्तिभिः ॥३३॥
-> धूपदीपैः सुरभिभिर्मण्डितं पुष्पमण्डनैः
+> अथ प्रविष्टः स्वगृहं जुष्टं स्वैः पूर्वराजभिः\
+> अनन्ताखिलकोषाढ्यमनर्घ्योरुपरिच्छदम ॥३१॥\
+> विद्रुमोदुम्बरद्वारैर्वैदूर्यस्तम्भपङ्क्तिभिः\
+> स्थलैर्मारकतैः स्वच्छैर्भ्राजत्स्फटिकभित्तिभिः ॥३२॥\
+> चित्रस्रग्भिः पट्टिकाभिर्वासोमणिगणांशुकैः\
+> मुक्ताफलैश्चिदुल्लासैः कान्तकामोपपत्तिभिः ॥३३॥\
+> धूपदीपैः सुरभिभिर्मण्डितं पुष्पमण्डनैः\
 > स्त्रीपुम्भिः सुरसङ्काशैर्जुष्टं भूषणभूषणैः ॥३४॥
 
-> atha praviṣṭaḥ sva-gṛhaṁ
-> juṣṭaṁ svaiḥ pūrva-rājabhiḥ
-> anantākhila-koṣāḍhyam
+> atha praviṣṭaḥ sva-gṛhaṁ\
+> juṣṭaṁ svaiḥ pūrva-rājabhiḥ\
+> anantākhila-koṣāḍhyam\
 > anarghyoruparicchadam
 
-> vidrumodumbara-dvārair
-> vaidūrya-stambha-paṅktibhiḥ
-> sthalair mārakataiḥ svacchair
+> vidrumodumbara-dvārair\
+> vaidūrya-stambha-paṅktibhiḥ\
+> sthalair mārakataiḥ svacchair\
 > bhrājat-sphaṭika-bhittibhiḥ
 
-> citra-sragbhiḥ paṭṭikābhir
-> vāso-maṇi-gaṇāṁśukaiḥ
-> muktā-phalaiś cid-ullāsaiḥ
+> citra-sragbhiḥ paṭṭikābhir\
+> vāso-maṇi-gaṇāṁśukaiḥ\
+> muktā-phalaiś cid-ullāsaiḥ\
 > kānta-kāmopapattibhiḥ
 
-> dhūpa-dīpaiḥ surabhibhir
-> maṇḍitaṁ puṣpa-maṇḍanaiḥ
-> strī-pumbhiḥ sura-saṅkāśair
+> dhūpa-dīpaiḥ surabhibhir\
+> maṇḍitaṁ puṣpa-maṇḍanaiḥ\
+> strī-pumbhiḥ sura-saṅkāśair\
 > juṣṭaṁ bhūṣaṇa-bhūṣaṇaiḥ
 
 *atha*—thereafter; *praviṣṭaḥ*—He entered; *sva-gṛham*—His own palace; *juṣṭam*—occupied; *svaiḥ*—by His own family members; *pūrva-rājabhiḥ*—by the previous members of the royal family; *ananta*—unlimited; *akhila*—everywhere; *koṣa*—treasury; *āḍhyam*—prosperous; *anarghya*—priceless; *uru*—high; *paricchadam*—paraphernalia; *vidruma*—of coral; *udumbara-dvāraiḥ*—with the two sides of the doors; *vaidūrya-stambha*—with pillars of *vaidūrya-maṇi*; *paṅktibhiḥ*—in a line; *sthalaiḥ*—with floors; *mārakataiḥ*—made of *marakata* stone; *svacchaiḥ*—very cleanly polished; *bhrājat*—dazzling; *sphaṭika*—marble; *bhittibhiḥ*—foundations; *citra-sragbhiḥ*—with varieties of flower garlands; *paṭṭikābhiḥ*—with flags; *vāsaḥ*—clothing; *maṇi-gaṇa-aṁśukaiḥ*—by various effulgent and valuable stones; *muktā-phalaiḥ*—with pearls; *cit-ullāsaiḥ*—increasing celestial pleasure; *kānta-kāma*—fulfilling one's desires; *upapattibhiḥ*—by such paraphernalia; *dhūpa-dīpaiḥ*—with incense and lamps; *surabhibhiḥ*—very fragrant; *maṇḍitam*—decorated; *puṣpa-maṇḍanaiḥ*—by bunches of various flowers; *strī-pumbhiḥ*—by men and women; *sura-saṅkāśaiḥ*—appearing like the demigods; *juṣṭam*—full of; *bhūṣaṇa-bhūṣaṇaiḥ*—whose bodies beautified their ornaments.

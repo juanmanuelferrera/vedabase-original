@@ -1,9 +1,9 @@
 ### CC Adi 10.80
 
-> কুলীনগ্রামবাসী সত্যরাজ, রামানন্দ ।
+> কুলীনগ্রামবাসী সত্যরাজ, রামানন্দ ।\
 > যদুনাথ, পুরুষোত্তম, শঙ্কর, বিদ্যানন্দ ॥৮০॥
 
-> kulīnagrāma-vāsī satyarāja, rāmānanda
+> kulīnagrāma-vāsī satyarāja, rāmānanda\
 > yadunātha, puruṣottama, śaṅkara, vidyānanda
 
 *kulīna-grāma-vāsī*—the inhabitants of Kulīna-grāma; *satyarāja*—of the name Satyarāja; *rāmānanda*—of the name Rāmānanda; *yadunātha*—of the name Yadunātha; *puruṣottama*—of the name Puruṣottama; *śaṅkara*—of the name Śaṅkara; *vidyānanda*—of the name Vidyānanda.

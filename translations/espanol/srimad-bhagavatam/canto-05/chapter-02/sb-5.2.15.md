@@ -1,13 +1,13 @@
 ### SB 5.2.15
 
-> रूपं तपोधन तपश्चरतां तपोघ्नं
-> ह्येतत्तु केन तपसा भवतोपलब्धम
-> चर्तुं तपोऽर्हसि मया सह मित्र मह्यं
+> रूपं तपोधन तपश्चरतां तपोघ्नं\
+> ह्येतत्तु केन तपसा भवतोपलब्धम\
+> चर्तुं तपोऽर्हसि मया सह मित्र मह्यं\
 > किं वा प्रसीदति स वै भवभावनो मे ॥१५॥
 
-> rūpaṁ tapodhana tapaś caratāṁ tapoghnaṁ
-> hy etat tu kena tapasā bhavatopalabdham
-> cartuṁ tapo 'rhasi mayā saha mitra mahyaṁ
+> rūpaṁ tapodhana tapaś caratāṁ tapoghnaṁ\
+> hy etat tu kena tapasā bhavatopalabdham\
+> cartuṁ tapo 'rhasi mayā saha mitra mahyaṁ\
 > kiṁ vā prasīdati sa vai bhava-bhāvano me
 
 *rūpam*—belleza; *tapaḥ-dhana*—¡oh, tú, el mejor entre los sabios que ejecutan austeridades!; *tapaḥ caratām*—de personas que se dedican a la ejecución de austeridades y penitencias; *tapaḥ-ghnam*—que echa por tierra las austeridades; *hi*—ciertamente; *etat*—esta; *tu*—en verdad; *kena*—por la cual; *tapasā*—austeridad; *bhavatā*—por ti; *upalabdham*—obtenida; *cartum*—para hacer; *tapaḥ*—austeridad; *arhasi*—debes; *mayā saha*—conmigo; *mitra*—mi querido amigo; *mahyam*—a mí; *kim vā*—o quizás; *prasīdati*—está complacido; *saḥ*—él; *vai*—ciertamente; *bhava-bhāvanaḥ*—el creador del universo; *me*—conmigo.

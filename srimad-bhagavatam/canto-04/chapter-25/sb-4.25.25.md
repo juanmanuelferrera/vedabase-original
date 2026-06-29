@@ -1,11 +1,11 @@
 ### SB 4.25.25
 
-> तामाह ललितं वीरः सव्रीडस्मितशोभनाम् ।
+> तामाह ललितं वीरः सव्रीडस्मितशोभनाम् ।\
 > स्निग्धेनापाङ्गपुङ्खेन स्पृष्टः प्रेमोद्भ्रमद्भ्रुवा ॥२५॥
 
-> tām āha lalitaṁ vīraḥ
-> savrīḍa-smita-śobhanām
-> snigdhenāpāṅga-puṅkhena
+> tām āha lalitaṁ vīraḥ\
+> savrīḍa-smita-śobhanām\
+> snigdhenāpāṅga-puṅkhena\
 > spṛṣṭaḥ premodbhramad-bhruvā
 
 *tām*—unto her; *āha*—addressed; *lalitam*—very gently; *vīraḥ*—the hero; *sa-vrīḍa*—with shyness; *smita*—smiling; *śobhanām*—very beautiful; *snigdhena*—by sex desire; *apāṅga-puṅkhena*—by the arrow of glancing; *spṛṣṭaḥ*—thus pierced; *prema-udbhramat*—exciting love; *bhruvā*—by the eyebrows.

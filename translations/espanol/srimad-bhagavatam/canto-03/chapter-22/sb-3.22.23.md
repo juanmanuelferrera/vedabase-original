@@ -1,11 +1,11 @@
 ### SB 3.22.23
 
-> शतरूपा महाराज्ञी पारिबर्हान्महाधनान् ।
+> शतरूपा महाराज्ञी पारिबर्हान्महाधनान् ।\
 > दम्पत्योः पर्यदात्प्रीत्या भूषावासः परिच्छदान् ॥२३॥
 
-> śatarūpā mahā-rājñī
-> pāribarhān mahā-dhanān
-> dampatyoḥ paryadāt prītyā
+> śatarūpā mahā-rājñī\
+> pāribarhān mahā-dhanān\
+> dampatyoḥ paryadāt prītyā\
 > bhūṣā-vāsaḥ paricchadān
 
 *śatarūpā*—Śatarūpā; *mahā-rājñī*—la emperatriz; *pāribarhān*—dote; *mahā-dhanān*—valiosos regalos; *dam-patyoḥ*—a la novia y el novio; *paryadāt*—dio; *prītyā*—por afecto; *bhūṣā*—adornos; *vāsaḥ*—vestidos; *paricchadān*—artículos de uso doméstico.

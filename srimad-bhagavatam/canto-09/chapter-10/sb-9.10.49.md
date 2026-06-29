@@ -1,11 +1,11 @@
 ### SB 9.10.49
 
-> जटा निर्मुच्य विधिवत्कुलवृद्धैः समं गुरुः
+> जटा निर्मुच्य विधिवत्कुलवृद्धैः समं गुरुः\
 > अभ्यषिञ्चद्यथैवेन्द्रं चतुःसिन्धुजलादिभिः ॥४९॥
 
-> evaṁ kṛta-śiraḥ-snānaḥ
-> suvāsāḥ sragvy-alaṅkṛtaḥ
-> svalaṅkṛtaiḥ suvāsobhir
+> evaṁ kṛta-śiraḥ-snānaḥ\
+> suvāsāḥ sragvy-alaṅkṛtaḥ\
+> svalaṅkṛtaiḥ suvāsobhir\
 > bhrātṛbhir bhāryayā babhau
 
 *evam*—thus; *kṛta-śiraḥ-snānaḥ*—having completely bathed, washing the head; *su-vāsāḥ*—being nicely dressed; *sragvi-alaṅkṛtaḥ*—being decorated with a garland; *su-alaṅkṛtaiḥ*—decorated nicely; *su-vāsobhiḥ*—dressed nicely; *bhrātṛbhiḥ*—with His brothers; *bhāryayā*—and with His wife, Sītā; *babhau*—the Lord became very brilliant.

@@ -1,9 +1,9 @@
 ### CC Madhya 11.58
 
-> রামানন্দ রায়, আজি তোমার প্রেম-গুণ ।
+> রামানন্দ রায়, আজি তোমার প্রেম-গুণ ।\
 > প্রভু-আগে কহিতে প্রভুর ফিরি’ গেল মন ॥৫৮॥
 
-> rāmānanda rāya, āji tomāra prema-guṇa
+> rāmānanda rāya, āji tomāra prema-guṇa\
 > prabhu-āge kahite prabhura phiri' gela mana
 
 *rāmānanda rāya*—Rāmānanda Rāya; *āji*—today; *tomāra*—your; *prema-guṇa*—quality of love; *prabhu-āge*—in front of the Lord; *kahite*—when he described; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *phiri' gela*—became changed; *mana*—the mind.

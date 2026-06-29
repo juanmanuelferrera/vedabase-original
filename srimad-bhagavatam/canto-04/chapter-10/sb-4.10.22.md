@@ -1,11 +1,11 @@
 ### SB 4.10.22
 
-> इति ब्रुवंश्चित्ररथः स्वसारथिं यत्तः परेषां प्रतियोगशङ्कितः ।
+> इति ब्रुवंश्चित्ररथः स्वसारथिं यत्तः परेषां प्रतियोगशङ्कितः ।\
 > शुश्राव शब्दं जलधेरिवेरितं नभस्वतो दिक्षु रजोऽन्वदृश्यत ॥२२॥
 
-> iti bruvaṁś citra-rathaḥ sva-sārathiṁ
-> yattaḥ pareṣāṁ pratiyoga-śaṅkitaḥ
-> śuśrāva śabdaṁ jaladher iveritaṁ
+> iti bruvaṁś citra-rathaḥ sva-sārathiṁ\
+> yattaḥ pareṣāṁ pratiyoga-śaṅkitaḥ\
+> śuśrāva śabdaṁ jaladher iveritaṁ\
 > nabhasvato dikṣu rajo 'nvadṛśyata
 
 *iti*—thus; *bruvan*—talking; *citra-rathaḥ*—Dhruva Mahārāja, whose chariot was very beautiful; *sva-sārathim*—to his charioteer; *yattaḥ*—being on guard; *pareṣām*—from his enemies; *pratiyoga*—counterattack; *śaṅkitaḥ*—being apprehensive; *śuśrāva*—heard; *śabdam*—sound; *jaladheḥ*—from the ocean; *iva*—as if; *īritam*—resounded; *nabhasvataḥ*—because of wind; *dikṣu*—in all directions; *rajaḥ*—dust; *anu*—then; *adṛśyata*—was perceived.

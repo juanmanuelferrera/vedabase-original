@@ -1,9 +1,9 @@
 ### CC Antya 18.59
 
-> ওথা না যাইহ, আমি নিষেধি তোমারে ।
+> ওথা না যাইহ, আমি নিষেধি তোমারে ।\
 > তাহাঁ গেলে সেই ভূত লাগিবে সবারে ।।” ॥ ৫৯ ॥
 
-> othā nā yāiha, āmi niṣedhi tomāre
+> othā nā yāiha, āmi niṣedhi tomāre\
 > tāhāṅ gele sei bhūta lāgibe sabāre"
 
 *othā*—allí; *nā yāiha*—no vayáis; *āmi*—yo; *niṣedhi*—prohíbo; *tomāre*—a vosotros; *tāhāṅ*—allí; *gele*—si vais; *sei bhūta*—ese fantasma; *lāgibe*—atrapará; *sabāre*—a todos vosotros.

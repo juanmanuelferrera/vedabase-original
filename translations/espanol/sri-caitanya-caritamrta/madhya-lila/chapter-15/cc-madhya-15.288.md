@@ -1,9 +1,9 @@
 ### CC Madhya 15.288
 
-> উঠ, স্নান কর, দেখ জগন্নাথ-মুখ ।
+> উঠ, স্নান কর, দেখ জগন্নাথ-মুখ ।\
 > শীঘ্র আসি, ভোজন কর, তবে মোর সুখ ॥২৮৮॥
 
-> uṭha, snāna kara, dekha jagannātha-mukha
+> uṭha, snāna kara, dekha jagannātha-mukha\
 > śīghra āsi, bhojana kara, tabe mora sukha
 
 *uṭha*—levántate; *snāna kara*—toma tu baño; *dekha*—ve; *jagannātha-mukha*—el rostro del Señor Jagannātha; *śīghra āsi*—volviendo muy pronto; *bhojana kara*—toma tu almuerzo; *tabe mora sukha*—entonces seré muy feliz.

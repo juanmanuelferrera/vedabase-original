@@ -1,9 +1,9 @@
 ### CC Adi 11.29
 
-> পরমেশ্বরদাস — নিত্যানন্দৈক-শরণ ।
+> পরমেশ্বরদাস — নিত্যানন্দৈক-শরণ ।\
 > কৃষ্ণভক্তি পায়, তাঁরে যে করে স্মরণ ॥২৯॥
 
-> parameśvara-dāsa—nityānandaika-śaraṇa
+> parameśvara-dāsa—nityānandaika-śaraṇa\
 > kṛṣṇa-bhakti pāya, tāṅre ye kare smaraṇa
 
 *parameśvara-dāsa*—of the name Parameśvara dāsa; *nityānanda-eka-śaraṇa*—completely surrendered to the lotus feet of Nityānanda; *kṛṣṇa-bhakti pāya*—gets love of Kṛṣṇa; *tāṅre*—him; *ye*—anyone; *kare*—does; *smaraṇa*—remembering.

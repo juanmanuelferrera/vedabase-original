@@ -1,9 +1,9 @@
 ### CC Madhya 12.12
 
-> সবারে মিলিয়া কহিল রাজ-বিবরণ ।
+> সবারে মিলিয়া কহিল রাজ-বিবরণ ।\
 > পিছে সেই পত্রী সবারে করাইল দরশন ॥১২॥
 
-> sabāre miliyā kahila rāja-vivaraṇa
+> sabāre miliyā kahila rāja-vivaraṇa\
 > piche sei patrī sabāre karāila daraśana
 
 *sabāre*—everyone; *miliyā*—meeting; *kahila*—said; *rāja-vivaraṇa*—description of the King's desire; *piche*—later; *sei patrī*—that letter; *sabāre*—unto everyone; *karāila daraśana*—showed.

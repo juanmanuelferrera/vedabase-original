@@ -1,9 +1,9 @@
 ### CC Madhya 13.174
 
-> দেখিতে আকর্ষয়ে সবার চিত্ত-মন ।
+> দেখিতে আকর্ষয়ে সবার চিত্ত-মন ।\
 > প্রেমামৃতবৃষ্ট্যে প্রভু সিঞ্চে সবার মন ॥১৭৪॥
 
-> dekhite ākarṣaye sabāra citta-mana
+> dekhite ākarṣaye sabāra citta-mana\
 > premāmṛta-vṛṣṭye prabhu siñce sabāra mana
 
 *dekhite*—by seeing; *ākarṣaye*—attracts; *sabāra*—of everyone; *citta-mana*—mind and consciousness; *prema-amṛta-vṛṣṭye*—by pouring of the nectar of transcendental love for God; *prabhu*—Śrī Caitanya Mahāprabhu; *siñce*—sprinkled; *sabāra*—everyone's; *mana*—mind.

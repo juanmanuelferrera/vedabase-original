@@ -1,9 +1,9 @@
 ### CC Madhya 21.63
 
-> কৃষ্ণ মান্য-পূজা করি’ তাঁরে প্রশ্ন কৈল ।
+> কৃষ্ণ মান্য-পূজা করি’ তাঁরে প্রশ্ন কৈল ।\
 > ‘কি লাগি’ তোমার ইহাঁ আগমন হৈল ?’ ॥ ৬৩ ॥
 
-> kṛṣṇa mānya-pūjā kari' tāṅre praśna kaila
+> kṛṣṇa mānya-pūjā kari' tāṅre praśna kaila\
 > 'ki lāgi' tomāra ihāṅ āgamana haila?'
 
 *kṛṣṇa*—el Señor Kṛṣṇa; *mānya-pūjā*—respeto y adoración; *kari'*—mostrando; *tāṅre*—a él; *praśna kaila*—le hizo una pregunta; *ki lāgi'*—por qué razón; *tomāra*—tu; *ihāṅ*—aquí; *āgamana haila*—fue la llegada.

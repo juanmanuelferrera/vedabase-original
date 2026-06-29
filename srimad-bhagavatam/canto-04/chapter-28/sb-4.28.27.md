@@ -1,11 +1,11 @@
 ### SB 4.28.27
 
-> अनन्तपारे तमसि मग्नो नष्टस्मृतिः समाः ।
+> अनन्तपारे तमसि मग्नो नष्टस्मृतिः समाः ।\
 > शाश्वतीरनुभूयार्तिं प्रमदासङ्गदूषितः ॥२७॥
 
-> ananta-pāre tamasi
-> magno naṣṭa-smṛtiḥ samāḥ
-> śāśvatīr anubhūyārtiṁ
+> ananta-pāre tamasi\
+> magno naṣṭa-smṛtiḥ samāḥ\
+> śāśvatīr anubhūyārtiṁ\
 > pramadā-saṅga-dūṣitaḥ
 
 *ananta-pāre*—unlimitedly expanded; *tamasi*—in the material existence of darkness; *magnaḥ*—being merged; *naṣṭa-smṛtiḥ*—bereft of all intelligence; *samāḥ*—for many years; *śāśvatīḥ*—practically eternally; *anubhūya*—experiencing; *ārtim*—the threefold miseries; *pramadā*—of women; *saṅga*—by association; *dūṣitaḥ*—being contaminated.

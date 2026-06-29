@@ -1,9 +1,9 @@
 ### CC Madhya 13.100
 
-> সুভদ্রা-বলরামের হৃদয়ে উল্লাস ।
+> সুভদ্রা-বলরামের হৃদয়ে উল্লাস ।\
 > নৃত্য দেখি’ দুই জনার শ্রীমুখেতে হাস ॥১০০॥
 
-> subhadrā-balarāmera hṛdaye ullāsa
+> subhadrā-balarāmera hṛdaye ullāsa\
 > nṛtya dekhi' dui janāra śrī-mukhete hāsa
 
 *subhadrā*—de la diosa Subhadrā; *balarāmera*—y de Balarāma; *hṛdaye*—en los corazones; *ullāsa*—éxtasis; *nṛtya*—danza; *dekhi'*—al ver; *dui janāra*—de las dos personas; *śrī-mukhete*—en los hermosos rostros; *hāsa*—sonrisa.

@@ -1,11 +1,11 @@
 ### SB 9.24.32
 
-> साप दुर्वाससो विद्यां देवहूतीं प्रतोषितात
+> साप दुर्वाससो विद्यां देवहूतीं प्रतोषितात\
 > तस्या वीर्यपरीक्षार्थमाजुहाव रविं शुचिः ॥३२॥
 
-> sāpa durvāsaso vidyāṁ
-> deva-hūtīṁ pratoṣitāt
-> tasyā vīrya-parīkṣārtham
+> sāpa durvāsaso vidyāṁ\
+> deva-hūtīṁ pratoṣitāt\
+> tasyā vīrya-parīkṣārtham\
 > ājuhāva raviṁ śuciḥ
 
 *sā*—she (Kuntī, or Pṛthā); *āpa*—achieved; *durvāsasaḥ*—from the great sage Durvāsā; *vidyām*—mystic power; *deva-hūtīm*—calling any demigod; *pratoṣitāt*—who was satisfied; *tasyāḥ*—with that (particular mystic power); *vīrya*—potency; *parīkṣa-artham*—just to examine; *ājuhāva*—called for; *ravim*—the sun-god; *śuciḥ*—the pious (Pṛthā).

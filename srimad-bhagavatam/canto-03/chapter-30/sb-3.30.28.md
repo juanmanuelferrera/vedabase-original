@@ -1,11 +1,11 @@
 ### SB 3.30.28
 
-> यास्तामिस्रान्धतामिस्रा रौरवाद्याश्च यातनाः ।
+> यास्तामिस्रान्धतामिस्रा रौरवाद्याश्च यातनाः ।\
 > भुङ्क्ते नरो वा नारी वा मिथः सङ्गेन निर्मिताः ॥२८॥
 
-> yās tāmisrāndha-tāmisrā
-> rauravādyāś ca yātanāḥ
-> bhuṅkte naro vā nārī vā
+> yās tāmisrāndha-tāmisrā\
+> rauravādyāś ca yātanāḥ\
+> bhuṅkte naro vā nārī vā\
 > mithaḥ saṅgena nirmitāḥ
 
 *yāḥ*—which; *tāmisra*—the name of a hell; *andha-tāmisrāḥ*—the name of a hell; *raurava*—the name of a hell; *ādyāḥ*—and so on; *ca*—and; *yātanāḥ*—punishments; *bhuṅkte*—undergoes; *naraḥ*—man; *vā*—or; *nārī*—woman; *vā*—or; *mithaḥ*—mutual; *saṅgena*—by association; *nirmitāḥ*—caused.

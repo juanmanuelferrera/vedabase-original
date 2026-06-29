@@ -1,11 +1,11 @@
 ### SB 6.11.4
 
-> किं व उच्चरितैर्मातुर्धावद्भिः पृष्ठतो हतैः
+> किं व उच्चरितैर्मातुर्धावद्भिः पृष्ठतो हतैः\
 > न हि भीतवधः श्लाघ्यो न स्वर्ग्यः शूरमानिनाम ॥४॥
 
-> kiṁ va uccaritair mātur
-> dhāvadbhiḥ pṛṣṭhato hataiḥ
-> na hi bhīta-vadhaḥ ślāghyo
+> kiṁ va uccaritair mātur\
+> dhāvadbhiḥ pṛṣṭhato hataiḥ\
+> na hi bhīta-vadhaḥ ślāghyo\
 > na svargyaḥ śūra-māninām
 
 *kim*—what is the benefit; *vaḥ*—for you; *uccaritaiḥ*—with those like the stool; *mātuḥ*—of the mother; *dhāvadbhiḥ*—running away; *pṛṣṭhataḥ*—from the back; *hataiḥ*—killed; *na*—not; *hi*—certainly; *bhīta-vadhaḥ*—the killing of a person who is afraid; *ślāghyaḥ*—glorious; *na*—nor; *svargyaḥ*—leading to the heavenly planets; *śūra-māninām*—of persons who consider themselves heroes.

@@ -1,11 +1,11 @@
 ### SB 4.6.46
 
-> न वै सतां त्वच्चरणार्पितात्मनां भूतेषु सर्वेष्वभिपश्यतां तव ।
+> न वै सतां त्वच्चरणार्पितात्मनां भूतेषु सर्वेष्वभिपश्यतां तव ।\
 > भूतानि चात्मन्यपृथग्दिदृक्षतां प्रायेण रोषोऽभिभवेद्यथा पशुम् ॥४६॥
 
-> na vai satāṁ tvac-caraṇārpitātmanāṁ
-> bhūteṣu sarveṣv abhipaśyatāṁ tava
-> bhūtāni cātmany apṛthag-didṛkṣatāṁ
+> na vai satāṁ tvac-caraṇārpitātmanāṁ\
+> bhūteṣu sarveṣv abhipaśyatāṁ tava\
+> bhūtāni cātmany apṛthag-didṛkṣatāṁ\
 > prāyeṇa roṣo 'bhibhaved yathā paśum
 
 *na*—not; *vai*—but; *satām*—of the devotees; *tvat-caraṇa-arpita-ātmanām*—of those who are completely surrendered at your lotus feet; *bhūteṣu*—among living entities; *sarveṣu*—all varieties; *abhipaśyatām*—perfectly seeing; *tava*—your; *bhūtāni*—living entities; *ca*—and; *ātmani*—in the Supreme; *apṛthak*—nondifferent; *didṛkṣatām*—those who see like that; *prāyeṇa*—almost always; *roṣaḥ*—anger; *abhibhavet*—takes place; *yathā*—exactly like; *paśum*—the animals.

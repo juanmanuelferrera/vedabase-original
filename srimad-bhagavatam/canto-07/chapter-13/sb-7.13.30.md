@@ -1,11 +1,11 @@
 ### SB 7.13.30
 
-> आध्यात्मिकादिभिर्दुःखैरविमुक्तस्य कर्हिचित
+> आध्यात्मिकादिभिर्दुःखैरविमुक्तस्य कर्हिचित\
 > मर्त्यस्य कृच्छ्रोपनतैरर्थैः कामैः क्रियेत किम ॥३०॥
 
-> dehādibhir daiva-tantrair
-> ātmanaḥ sukham īhataḥ
-> duḥkhātyayaṁ cānīśasya
+> dehādibhir daiva-tantrair\
+> ātmanaḥ sukham īhataḥ\
+> duḥkhātyayaṁ cānīśasya\
 > kriyā moghāḥ kṛtāḥ kṛtāḥ
 
 *deha-ādibhiḥ*—with the body, mind, ego and intelligence; *daiva-tantraiḥ*—under the control of superior power; *ātmanaḥ*—of the self; *sukham*—happiness; *īhataḥ*—searching after; *duḥkha-atyayam*—diminution of miserable conditions; *ca*—also; *anīśasya*—of the living entity fully under the control of material nature; *kriyāḥ*—plans and activities; *moghāḥ kṛtāḥ kṛtāḥ*—become baffled again and again.

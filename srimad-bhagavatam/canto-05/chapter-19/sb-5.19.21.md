@@ -1,13 +1,13 @@
 ### SB 5.19.21
 
-> एतदेव हि देवा गायन्ति
-> अहो अमीषां किमकारि शोभनं प्रसन्न एषां स्विदुत स्वयं हरिः
+> एतदेव हि देवा गायन्ति\
+> अहो अमीषां किमकारि शोभनं प्रसन्न एषां स्विदुत स्वयं हरिः\
 > यैर्जन्म लब्धं नृषु भारताजिरे मुकुन्दसेवौपयिकं स्पृहा हि नः ॥२१॥
 
-> etad eva hi devā gāyanti—
-> aho amīṣāṁ kim akāri śobhanaṁ
-> prasanna eṣāṁ svid uta svayaṁ hariḥ
-> yair janma labdhaṁ nṛṣu bhāratājire
+> etad eva hi devā gāyanti—\
+> aho amīṣāṁ kim akāri śobhanaṁ\
+> prasanna eṣāṁ svid uta svayaṁ hariḥ\
+> yair janma labdhaṁ nṛṣu bhāratājire\
 > mukunda-sevaupayikaṁ spṛhā hi naḥ
 
 *etat*—this; *eva*—indeed; *hi*—certainly; *devāḥ*—all the demigods; *gāyanti*—chant; *aho*—oh; *amīṣām*—of these inhabitants of Bhāratavarṣa; *kim*—what; *akāri*—was done; *śobhanam*—pious, beautiful activities; *prasannaḥ*—pleased; *eṣām*—upon them; *svit*—or; *uta*—it is said; *svayam*—personally; *hariḥ*—the Supreme Personality of Godhead; *yaiḥ*—by whom; *janma*—birth; *labdham*—obtained; *nṛṣu*—in human society; *bhārata-ajire*—in the courtyard of Bhārata-varṣa; *mukunda*—the Supreme Personality of Godhead, who can offer liberation; *sevā-aupayikam*—which is the means of serving; *spṛhā*—desire; *hi*—indeed; *naḥ*—our.

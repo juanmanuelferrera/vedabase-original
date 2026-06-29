@@ -1,14 +1,14 @@
 ### CC Adi 6.105-106
 
-> ভক্তভাব অঙ্গীকরি’ বলরাম, লক্ষ্মণ ।
-> অদ্বৈত, নিত্যানন্দ, শেষ, সঙ্কর্ষণ ॥১০৫॥
-> কৃষ্ণের মাধুর্যরসামৃত করে পান ।
+> ভক্তভাব অঙ্গীকরি’ বলরাম, লক্ষ্মণ ।\
+> অদ্বৈত, নিত্যানন্দ, শেষ, সঙ্কর্ষণ ॥১০৫॥\
+> কৃষ্ণের মাধুর্যরসামৃত করে পান ।\
 > সেই সুখে মত্ত, কিছু নাহি জানে আন ॥১০৬॥
 
-> bhakta-bhāva aṅgīkari' balarāma, lakṣmaṇa
+> bhakta-bhāva aṅgīkari' balarāma, lakṣmaṇa\
 > advaita, nityānanda, śeṣa, saṅkarṣaṇa
 
-> kṛṣṇera mādhurya-rasāmṛta kare pāna
+> kṛṣṇera mādhurya-rasāmṛta kare pāna\
 > sei sukhe matta, kichu nāhi jāne āna
 
 *bhakta-bhāva*—la noción de ser un devoto; *aṅgīkari’*—aceptando; *balarāma*—el Señor Balarāma; *lakṣmaṇa*—Śrī Lakṣmaṇa; *advaita*—Śrī Advaita Ācārya; *nityānanda*—Śrī Nityānanda; *śeṣa*—Śrī Śeṣa; *saṅkarṣaṇa*—Śrī Saṅkarṣaṇa; *kṛṣṇera*—de Śrī Kṛṣṇa; *mādhurya*—dicha trascendental; *rasa-amṛta*—el néctar de tal sabor; *kare pāna*—Ellos beben; *sei sukhe*—con esa felicidad; *matta*—locos; *kichu*—cualquier cosa; *nāhi*—no; *jāne*—conocen; *āna*—otra.

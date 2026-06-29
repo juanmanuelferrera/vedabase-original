@@ -1,13 +1,13 @@
 ### SB 8.16.24
 
-> श्रीकश्यप उवाच
-> एतन्मे भगवान्पृष्टः प्रजाकामस्य पद्मजः
+> श्रीकश्यप उवाच\
+> एतन्मे भगवान्पृष्टः प्रजाकामस्य पद्मजः\
 > यदाह ते प्रवक्ष्यामि व्रतं केशवतोषणम ॥२४॥
 
-> śrī-kaśyapa uvāca
-> etan me bhagavān pṛṣṭaḥ
-> prajā-kāmasya padmajaḥ
-> yad āha te pravakṣyāmi
+> śrī-kaśyapa uvāca\
+> etan me bhagavān pṛṣṭaḥ\
+> prajā-kāmasya padmajaḥ\
+> yad āha te pravakṣyāmi\
 > vrataṁ keśava-toṣaṇam
 
 *śrī-kaśyapaḥ uvāca*—Kaśyapa Muni dijo; *etat*—esto; *me*—por mí; *bhagavān*—el muy poderoso; *pṛṣṭaḥ*—cuando fue preguntado; *prajā-kāmasya*—con el deseo de tener descendencia; *padma-jaḥ*—el Señor Brahmā, que ha nacido de una flor de loto; *yat*—todo lo que; *āha*—él dijo; *te*—a ti; *pravakṣyāmi*—explicaré; *vratam*—en forma de adoración; *keśava-toṣaṇam*—mediante la cual se satisface a Keśava, la Suprema Personalidad de Dios.

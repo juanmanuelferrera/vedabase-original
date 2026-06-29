@@ -1,9 +1,9 @@
 ### CC Madhya 13.24
 
-> তাঁহার সম্মতি লঞা ভক্তে সুখ দিতে ।
+> তাঁহার সম্মতি লঞা ভক্তে সুখ দিতে ।\
 > রথে চড়ি’ বাহির হৈল বিহার করিতে ॥২৪॥
 
-> tāṅhāra sammati lañā bhakte sukha dite
+> tāṅhāra sammati lañā bhakte sukha dite\
 > rathe caḍi' bāhira haila vihāra karite
 
 *tāṅhāra sammati*—su permiso; *lañā*—tomando; *bhakte*—a los devotos; *sukha dite*—para complacer; *rathe caḍi'*—montando en el carro; *bāhira haila*—salió; *vihāra karite*—para realizar pasatiempos.

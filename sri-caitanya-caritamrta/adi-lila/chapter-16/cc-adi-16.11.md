@@ -1,9 +1,9 @@
 ### CC Adi 16.11
 
-> বহুশাস্ত্রে বহুবাক্যে চিত্তে ভ্রম হয় ।
+> বহুশাস্ত্রে বহুবাক্যে চিত্তে ভ্রম হয় ।\
 > সাধ্য-সাধন শ্রেষ্ঠ না হয় নিশ্চয় ॥১১॥
 
-> bahu-śāstre bahu-vākye citte bhrama haya
+> bahu-śāstre bahu-vākye citte bhrama haya\
 > sādhya-sādhana śreṣṭha nā haya niścaya
 
 *bahu-śāstre*—by many books or scriptures; *bahu-vākye*—by many versions of many persons; *citte*—within the heart; *bhrama*—doubt; *haya*—there is; *sādhya-sādhana*—objective and means; *śreṣṭha*—about the best; *nā*—not; *haya*—there is; *niścaya*—certainty.

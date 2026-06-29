@@ -1,11 +1,11 @@
 ### SB 1.18.47
 
-> अपापेषु स्वभृत्येषु बालेनापक्वबुद्धिना ।
+> अपापेषु स्वभृत्येषु बालेनापक्वबुद्धिना ।\
 > पापं कृतं तद्भगवान्सर्वात्मा क्षन्तुमर्हति ॥४७॥
 
-> apāpeṣu sva-bhṛtyeṣu
-> bālenāpakva-buddhinā
-> pāpaṁ kṛtaṁ tad bhagavān
+> apāpeṣu sva-bhṛtyeṣu\
+> bālenāpakva-buddhinā\
+> pāpaṁ kṛtaṁ tad bhagavān\
 > sarvātmā kṣantum arhati
 
 *apāpeṣu*—unto one who is completely free from all sins; *sva-bhṛtyeṣu*—unto one who is subordinate and deserves to be protected; *bālena*—by a child; *apakva*—who is immature; *buddhinā*—by intelligence; *pāpam*—sinful act; *kṛtam*—has been done; *tat bhagavān*—therefore the Personality of Godhead; *sarva-ātmā*—who is all-pervading; *kṣantum*—just to pardon; *arhati*—deserve.

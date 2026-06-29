@@ -1,11 +1,11 @@
 ### SB 6.3.32
 
-> शृण्वतां गृणतां वीर्याण्युद्दामानि हरेर्मुहुः
+> शृण्वतां गृणतां वीर्याण्युद्दामानि हरेर्मुहुः\
 > यथा सुजातया भक्त्या शुद्ध्येन्नात्मा व्रतादिभिः ॥३२॥
 
-> śṛṇvatāṁ gṛṇatāṁ vīryāṇy
-> uddāmāni harer muhuḥ
-> yathā sujātayā bhaktyā
+> śṛṇvatāṁ gṛṇatāṁ vīryāṇy\
+> uddāmāni harer muhuḥ\
+> yathā sujātayā bhaktyā\
 > śuddhyen nātmā vratādibhiḥ
 
 *śṛṇvatām*—of those hearing; *gṛṇatām*—and chanting; *vīryāṇi*—the wonderful activities; *uddāmāni*—able to counteract sin; *hareḥ*—of the Supreme Personality of Godhead; *muhuḥ*—always; *yathā*—as; *su-jātayā*—easily brought forth; *bhaktyā*—by devotional service; *śuddhyet*—may be purified; *na*—not; *ātmā*—the heart and soul; *vrata-ādibhiḥ*—by performing ritualistic ceremonies.

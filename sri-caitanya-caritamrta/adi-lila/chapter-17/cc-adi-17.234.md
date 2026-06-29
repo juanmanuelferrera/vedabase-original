@@ -1,9 +1,9 @@
 ### CC Adi 17.234
 
-> শুনি’ প্রভু ‘বল’ ‘বল’ বলেন আবেশে ।
+> শুনি’ প্রভু ‘বল’ ‘বল’ বলেন আবেশে ।\
 > শ্রীবাস বর্ণেন বৃন্দাবন-লীলারসে ॥২৩৪॥
 
-> śuni' prabhu 'bala' 'bala' balena āveśe
+> śuni' prabhu 'bala' 'bala' balena āveśe\
 > śrīvāsa varṇena vṛndāvana-līlā-rase
 
 *śuni'*—hearing; *prabhu*—the Lord; *bala bala*—go on speaking, go on speaking; *balena*—He says; *āveśe*—in ecstasy; *śrīvāsa*—Śrīvāsa Ṭhākura; *varṇena*—describes; *vṛndāvana*—of Vṛndāvana; *līlā-rase*—the transcendental mellow of the pastimes.

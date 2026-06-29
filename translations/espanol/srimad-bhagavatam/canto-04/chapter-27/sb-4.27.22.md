@@ -1,11 +1,11 @@
 ### SB 4.27.22
 
-> मयि संरभ्य विपुल मदाच्छापं सुदुःसहम् ।
+> मयि संरभ्य विपुल मदाच्छापं सुदुःसहम् ।\
 > स्थातुमर्हसि नैकत्र मद्याच्ञाविमुखो मुने ॥२२॥
 
-> mayi saṁrabhya vipula-
-> madāc chāpaṁ suduḥsaham
-> sthātum arhasi naikatra
+> mayi saṁrabhya vipula-\
+> madāc chāpaṁ suduḥsaham\
+> sthātum arhasi naikatra\
 > mad-yācñā-vimukho mune
 
 *mayi*—a mí; *saṁrabhya*—habiéndose irritado; *vipula*—ilimitada; *madāt*—por ilusión; *śāpam*—maldición; *su-duḥsaham*—insoportable; *sthātum arhasi*—puedes quedarte; *na*—nunca; *ekatra*—en un lugar; *mat*—mi; *yācñā*—ruego; *vimukhaḥ*—habiendo rechazado; *mune*—¡oh, gran sabio!.

@@ -1,11 +1,11 @@
 ### SB 4.22.24
 
-> अहिंसया पारमहंस्यचर्यया स्मृत्या मुकुन्दाचरिताग्र्यसीधुना ।
+> अहिंसया पारमहंस्यचर्यया स्मृत्या मुकुन्दाचरिताग्र्यसीधुना ।\
 > यमैरकामैर्नियमैश्चाप्यनिन्दया निरीहया द्वन्द्वतितिक्षया च ॥२४॥
 
-> ahiṁsayā pāramahaṁsya-caryayā
-> smṛtyā mukundācaritāgrya-sīdhunā
-> yamair akāmair niyamaiś cāpy anindayā
+> ahiṁsayā pāramahaṁsya-caryayā\
+> smṛtyā mukundācaritāgrya-sīdhunā\
+> yamair akāmair niyamaiś cāpy anindayā\
 > nirīhayā dvandva-titikṣayā ca
 
 *ahiṁsayā*—by nonviolence; *pāramahaṁsya-caryayā*—by following in the footsteps of great *ācāryas*; *smṛtyā*—by remembering; *mukunda*—the Supreme Personality of Godhead; *ācarita-agrya*—simply preaching His activities; *sīdhunā*—by the nectar; *yamaiḥ*—by following regulative principles; *akāmaiḥ*—without material desires; *niyamaiḥ*—by strictly following the rules and regulations; *ca*—also; *api*—certainly; *anindayā*—without blaspheming; *nirīhayā*—living simply, plain living; *dvandva*—duality; *titikṣayā*—by tolerance; *ca*—and.

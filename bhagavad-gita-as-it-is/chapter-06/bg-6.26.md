@@ -1,11 +1,11 @@
 ### Bg 6.26
 
-> यतो यतो निश्चरति मनश्चञ्चलमस्थिरम् ।
+> यतो यतो निश्चरति मनश्चञ्चलमस्थिरम् ।\
 > ततस्ततो नियम्यैतदात्मन्येव वशं नयेत् ॥२६॥
 
-> yato yato niścalati
-> manaś cañcalam asthiram
-> tatas tato niyamyaitad
+> yato yato niścalati\
+> manaś cañcalam asthiram\
+> tatas tato niyamyaitad\
 > ātmany eva vaśaṁ nayet
 
 *yataḥ*—whatever; *yataḥ*—wherever; *niścalati*—verily agitated; *manaḥ*—the mind; *cañcalam*—flickering; *asthiram*—unsteady; *tataḥ*—from there; *tataḥ*—and thereafter; *niyamya*—regulating; *etat*—this; *ātmani*—in the self; *eva*—certainly; *vaśam*—control; *nayet*—must bring in.

@@ -1,14 +1,14 @@
 ### CC Adi 7.18-19
 
-> যাঁ-সবা লঞা প্রভুর নিত্য বিহার ।
-> যাঁ-সবা লঞা প্রভুর কীর্তন-প্রচার ॥১৮॥
-> যাঁ-সবা লঞা করেন প্রেম আস্বাদন ।
+> যাঁ-সবা লঞা প্রভুর নিত্য বিহার ।\
+> যাঁ-সবা লঞা প্রভুর কীর্তন-প্রচার ॥১৮॥\
+> যাঁ-সবা লঞা করেন প্রেম আস্বাদন ।\
 > যাঁ-সবা লঞা দান করে প্রেমধন ॥১৯॥
 
-> yāṅ-sabā lañā prabhura nitya vihāra
+> yāṅ-sabā lañā prabhura nitya vihāra\
 > yāṅ-sabā lañā prabhura kīrtana-pracāra
 
-> yāṅ-sabā lañā karena prema āsvādana
+> yāṅ-sabā lañā karena prema āsvādana\
 > yāṅ-sabā lañā dāna kare prema-dhana
 
 *yāṅ-sabā*—todos; *lañā*—siendo acompañados; *prabhura*—por el Señor; *nitya*—eterno; *vihāra*—pasatiempo; *yāṅ-sabā*—todos aquellos que son; *lañā*—siendo acompañados; *prabhura*—por el Señor; *kīrtana*—*saṅkīrtana*; *pracāra*—movimiento; *yāṅ-sabā*—personas con quienes; *lañā*—en compañía; *karena*—Él hace; *prema*—amor por Dios; *āsvādana*—saborea; *yāṅ-sabā*—aquellos que son; *lañā*—en compañía; *dāna kare*—da en caridad; *prema-dhana*—amor por Dios.

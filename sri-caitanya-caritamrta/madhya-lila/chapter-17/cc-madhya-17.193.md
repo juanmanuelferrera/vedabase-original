@@ -1,9 +1,9 @@
 ### CC Madhya 17.193
 
-> মধুবন, তাল, কুমুদ, বহুলা-বন গেলা ।
+> মধুবন, তাল, কুমুদ, বহুলা-বন গেলা ।\
 > তাহাঁ তাহাঁ স্নান করি’ প্রেমাবিষ্ট হৈলা ॥১৯৩॥
 
-> madhu-vana, tāla, kumuda, bahulā-vana gelā
+> madhu-vana, tāla, kumuda, bahulā-vana gelā\
 > tāhāṅ tāhāṅ snāna kari' premāviṣṭa hailā
 
 *madhu-vana*—Madhuvana; *tāla*—Tālavana; *kumuda*—Kumudavana; *bahulā-vana*—Bahulāvana; *gelā*—He visited; *tāhāṅ tāhāṅ*—here and there; *snāna kari'*—taking bath; *prema-āviṣṭa hailā*—became overwhelmed by ecstatic love.

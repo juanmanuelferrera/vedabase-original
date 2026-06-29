@@ -1,11 +1,11 @@
 ### SB 3.8.10
 
-> उदाप्लुतं विश्वमिदं तदासीद्यन्निद्रयामीलितदृङ्न्यमीलयत् ।
+> उदाप्लुतं विश्वमिदं तदासीद्यन्निद्रयामीलितदृङ्न्यमीलयत् ।\
 > अहीन्द्रतल्पेऽधिशयान एकः कृतक्षणः स्वात्मरतौ निरीहः ॥१०॥
 
-> udāplutaṁ viśvam idaṁ tadāsīd
-> yan nidrayāmīlita-dṛṅ nyamīlayat
-> ahīndra-talpe 'dhiśayāna ekaḥ
+> udāplutaṁ viśvam idaṁ tadāsīd\
+> yan nidrayāmīlita-dṛṅ nyamīlayat\
+> ahīndra-talpe 'dhiśayāna ekaḥ\
 > kṛta-kṣaṇaḥ svātma-ratau nirīhaḥ
 
 *uda*—water; *āplutam*—submerged in; *viśvam*—the three worlds; *idam*—this; *tadā*—at that time; *āsīt*—it so remained; *yat*—in which; *nidrayā*—in slumber; *amīlita*—closed; *dṛk*—eyes; *nyamīlayat*—not completely closed; *ahi-indra*—the great snake Ananta; *talpe*—on the bed of; *adhiśayānaḥ*—lying on; *ekaḥ*—alone; *kṛta-kṣaṇaḥ*—being engaged; *sva-ātma-ratau*—enjoying in His internal potency; *nirīhaḥ*—without any part of external energy.

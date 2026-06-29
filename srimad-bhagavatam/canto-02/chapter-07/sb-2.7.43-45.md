@@ -1,31 +1,31 @@
 ### SB 2.7.43-45
 
-> वेदाहमङ्ग परमस्य हि योगमायां
-> यूयं भवश्च भगवानथ दैत्यवर्यः ।
-> पत्नी मनोः स च मनुश्च तदात्मजाश्च
-> प्राचीनबर्हिरृभुरङ्ग उत ध्रुवश्च ॥४३॥
-> इक्ष्वाकुरैलमुचुकुन्दविदेहगाधि
-> रघ्वम्बरीषसगरा गयनाहुषाद्याः ।
-> मान्धात्रलर्कशतधन्वनुरन्तिदेवा
-> देवव्रतो बलिरमूर्त्तरयो दिलीपः ॥४४॥
-> सौभर्युतङ्कशिबिदेवलपिप्पलाद
-> सारस्वतोद्धवपराशरभूरिषेणाः ।
-> येऽन्ये विभीषणहनूमदुपेन्द्रदत्त
+> वेदाहमङ्ग परमस्य हि योगमायां\
+> यूयं भवश्च भगवानथ दैत्यवर्यः ।\
+> पत्नी मनोः स च मनुश्च तदात्मजाश्च\
+> प्राचीनबर्हिरृभुरङ्ग उत ध्रुवश्च ॥४३॥\
+> इक्ष्वाकुरैलमुचुकुन्दविदेहगाधि\
+> रघ्वम्बरीषसगरा गयनाहुषाद्याः ।\
+> मान्धात्रलर्कशतधन्वनुरन्तिदेवा\
+> देवव्रतो बलिरमूर्त्तरयो दिलीपः ॥४४॥\
+> सौभर्युतङ्कशिबिदेवलपिप्पलाद\
+> सारस्वतोद्धवपराशरभूरिषेणाः ।\
+> येऽन्ये विभीषणहनूमदुपेन्द्रदत्त\
 > पार्थार्ष्टिषेणविदुरश्रुतदेववर्याः ॥४५॥
 
-> vedāham aṅga paramasya hi yoga-māyāṁ
-> yūyaṁ bhavaś ca bhagavān atha daitya-varyaḥ
-> patnī manoḥ sa ca manuś ca tad-ātmajāś ca
+> vedāham aṅga paramasya hi yoga-māyāṁ\
+> yūyaṁ bhavaś ca bhagavān atha daitya-varyaḥ\
+> patnī manoḥ sa ca manuś ca tad-ātmajāś ca\
 > prācīnabarhir ṛbhur aṅga uta dhruvaś ca
 
-> ikṣvākur aila-mucukunda-videha-gādhi-
-> raghv-ambarīṣa-sagarā gaya-nāhuṣādyāḥ
-> māndhātr-alarka-śatadhanv-anu-rantidevā
+> ikṣvākur aila-mucukunda-videha-gādhi-\
+> raghv-ambarīṣa-sagarā gaya-nāhuṣādyāḥ\
+> māndhātr-alarka-śatadhanv-anu-rantidevā\
 > devavrato balir amūrttarayo dilīpaḥ
 
-> saubhary-utaṅka-śibi-devala-pippalāda-
-> sārasvatoddhava-parāśara-bhūriṣeṇāḥ
-> ye 'nye vibhīṣaṇa-hanūmad-upendradatta-
+> saubhary-utaṅka-śibi-devala-pippalāda-\
+> sārasvatoddhava-parāśara-bhūriṣeṇāḥ\
+> ye 'nye vibhīṣaṇa-hanūmad-upendradatta-\
 > pārthārṣṭiṣeṇa-vidura-śrutadeva-varyāḥ
 
 *veda*—know it; *aham*—myself; *aṅga*—O Nārada; *paramasya*—of the Supreme; *hi*—certainly; *yoga-māyām*—potency; *yūyam*—yourself; *bhavaḥ*—Śiva; *ca*—and; *bhagavān*—the great demigod; *atha*—as also; *daitya-varyaḥ*—Prahlāda Mahārāja, the great devotee of the Lord born in the family of an atheist; *patnī*—Śatarūpā; *manoḥ*—of Manu; *saḥ*—he; *ca*—also; *manuḥ*—Svāyambhuva; *ca*—and; *tat-ātma-jāḥ ca*—and his children like Priyavrata, Uttānapāda, Devahūti, etc.; *prācīnabarhiḥ*—Prācīnabarhi; *ṛbhuḥ*—Ṛbhu; *aṅgaḥ*—Aṅga; *uta*—even; *dhruvaḥ*—Dhruva; *ca*—and; *ikṣvākuḥ*—Ikṣvāku; *aila*—Aila; *mucukunda*—Mucukunda; *videha*—Mahārāja Janaka; *gādhi*—Gādhi; *raghu*—Raghu; *ambarīṣa*—Ambarīṣa; *sagarāḥ*—Sagara; *gaya*—Gaya; *nāhuṣa*—Nāhuṣa; *ādyāḥ*—and so on; *māndhātṛ*—Māndhātā; *alarka*—Alarka; *śatadhanu*—Śatadhanu; *anu*—Anu; *rantidevāḥ*—Rantideva; *devavrataḥ*—Bhīṣma; *baliḥ*—Bali; *amūrttarayaḥ*—Amūrttaraya; *dilīpaḥ*—Dilīpa; *saubhari*—Saubhari; *utaṅka*—Utaṅka; *śibi*—Śibi; *devala*—Devala; *pippalāda*—Pippalāda; *sārasvata*—Sārasvata; *uddhava*—Uddhava; *parāśara*—Parāśara; *bhūriṣeṇāḥ*—Bhūriṣeṇa; *ye*—those who; *anye*—others; *vibhīṣaṇa*—Vibhīṣaṇa; *hanūmat*—Hanumān; *upendra-datta*—Śukadeva Gosvāmī; *pārtha*—Arjuna; *ārṣṭiṣeṇa*—Arṣṭiṣeṇa; *vidura*—Vidura; *śrutadeva*—Śrutadeva; *varyāḥ*—the foremost.

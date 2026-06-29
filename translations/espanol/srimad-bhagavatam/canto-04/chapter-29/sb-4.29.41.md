@@ -1,11 +1,11 @@
 ### SB 4.29.41
 
-> एतैरुपद्रुतो नित्यं जीवलोकः स्वभावजैः ।
+> एतैरुपद्रुतो नित्यं जीवलोकः स्वभावजैः ।\
 > न करोति हरेर्नूनं कथामृतनिधौ रतिम् ॥४१॥
 
-> etair upadruto nityaṁ
-> jīva-lokaḥ svabhāvajaiḥ
-> na karoti harer nūnaṁ
+> etair upadruto nityaṁ\
+> jīva-lokaḥ svabhāvajaiḥ\
+> na karoti harer nūnaṁ\
 > kathāmṛta-nidhau ratim
 
 *etaiḥ*—por esas; *upadrutaḥ*—perturbada; *nityam*—siempre; *jīva-lokaḥ*—el alma condicionada en el mundo material; *sva-bhāva-jaiḥ*—natural; *na karoti*—no hace; *hareḥ*—de la Suprema Personalidad de Dios; *nūnam*—ciertamente; *kathā*—de las palabras; *amṛta*—de néctar; *nidhau*—en el océano; *ratim*—apego.

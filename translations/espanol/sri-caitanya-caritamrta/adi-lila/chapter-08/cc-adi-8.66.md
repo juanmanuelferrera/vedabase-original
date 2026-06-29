@@ -1,9 +1,9 @@
 ### CC Adi 8.66
 
-> কাশীশ্বর গোসাঞির শিষ্য — গোবিন্দ গোসাঞি ।
+> কাশীশ্বর গোসাঞির শিষ্য — গোবিন্দ গোসাঞি ।\
 > গোবিন্দের প্রিয়সেবক তাঁর সম নাঞি ॥৬৬॥
 
-> kāśīśvara gosāñira śiṣya--govinda gosāñi
+> kāśīśvara gosāñira śiṣya--govinda gosāñi\
 > govindera priya-sevaka tāṅra sama nāñi
 
 *kāśīśvara gosāñira*—de Kāśīśvara Gosvāmī; *śiṣya*—discípulo; *govinda*—de nombre Govinda; *gosāñi*—maestro espiritual; *govindera*—de Govinda; *priya-sevaka*—servidor más íntimo; *tāṅra*—su; *sama*—igual; *nāñi*—no hay ninguno.

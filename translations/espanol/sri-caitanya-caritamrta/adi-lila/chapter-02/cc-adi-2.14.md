@@ -1,13 +1,13 @@
 ### CC Adi 2.14
 
-> যস্য প্রভা প্রভবতো জগদণ্ডকোটি-
-> কোটিষ্বশেষবসুধাদিবিভূতিভিন্নম্ ।
-> তদ্ব্রহ্ম নিষ্কলমনন্তমশেষভূতং
+> যস্য প্রভা প্রভবতো জগদণ্ডকোটি-\
+> কোটিষ্বশেষবসুধাদিবিভূতিভিন্নম্ ।\
+> তদ্ব্রহ্ম নিষ্কলমনন্তমশেষভূতং\
 > গোবিন্দমাদিপুরুষং তমহং ভজামি ॥১৪॥
 
-> yasya prabhā prabhavato jagad-aṇḍa-koṭi-
-> koṭīṣv aśeṣa-vasudhādi-vibhūti-bhinnam
-> tad brahma niṣkalam anantam aśeṣa-bhūtaṁ
+> yasya prabhā prabhavato jagad-aṇḍa-koṭi-\
+> koṭīṣv aśeṣa-vasudhādi-vibhūti-bhinnam\
+> tad brahma niṣkalam anantam aśeṣa-bhūtaṁ\
 > govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 *yasya*—de quien; *prabhā*—la refulgencia; *prabhavataḥ*—de aquel que sobresale en poder; *jagat-aṇḍa*—de universos; *koṭi-koṭīṣu*—en millones y millones; *aśeṣa*—ilimitadas; *vasudhā-ādi*—con planetas, etc.; *vibhūti*—con opulencias; *bhinnam*—volviéndose variegado; *tat*—ese; *brahma*—Brahman; *niṣkalam*—sin partes; *anantam*—ilimitado; *aśeṣa-bhūtam*—siendo completo; *govindam*—al Señor Govinda; *ādi-puruṣam*—la persona original; *tam*—a Él; *aham*—yo; *bhajāmi*—adoro.

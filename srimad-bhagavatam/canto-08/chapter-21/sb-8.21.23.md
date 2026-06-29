@@ -1,11 +1,11 @@
 ### SB 8.21.23
 
-> भवद्भिर्निर्जिता ह्येते बहुशोऽनुचरा हरेः
+> भवद्भिर्निर्जिता ह्येते बहुशोऽनुचरा हरेः\
 > दैवेनर्द्धैस्त एवाद्य युधि जित्वा नदन्ति नः ॥२३॥
 
-> bhavadbhir nirjitā hy ete
-> bahuśo 'nucarā hareḥ
-> daivenarddhais ta evādya
+> bhavadbhir nirjitā hy ete\
+> bahuśo 'nucarā hareḥ\
+> daivenarddhais ta evādya\
 > yudhi jitvā nadanti naḥ
 
 *bhavadbhiḥ*—by all of you demons; *nirjitāḥ*—have been defeated; *hi*—indeed; *ete*—all these soldiers of the demigods; *bahuśaḥ*—in great number; *anucarāḥ*—followers; *hareḥ*—of Lord Viṣṇu; *daivena*—by providence; *ṛddhaiḥ*—whose opulence was increased; *te*—they (the demigods); *eva*—indeed; *adya*—today; *yudhi*—in the fight; *jitvā*—defeating; *nadanti*—are vibrating in jubilation; *naḥ*—us.

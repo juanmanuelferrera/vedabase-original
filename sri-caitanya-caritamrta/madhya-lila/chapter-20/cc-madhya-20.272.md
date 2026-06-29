@@ -1,9 +1,9 @@
 ### CC Madhya 20.272
 
-> সেই পুরুষ মায়া-পানে করে অবধান ।
+> সেই পুরুষ মায়া-পানে করে অবধান ।\
 > প্রকৃতি ক্ষোভিত করি’ করে বীর্যের আধান ॥২৭২॥
 
-> sei puruṣa māyā-pāne kare avadhāna
+> sei puruṣa māyā-pāne kare avadhāna\
 > prakṛti kṣobhita kari' kare vīryera ādhāna
 
 *sei puruṣa*—that Supreme Personality of Godhead; *māyā-pāne*—toward māyā; *kare avadhāna*—glances; *prakṛti*—the material nature; *kṣobhita kari'*—making agitated; *kare*—impregnates; *vīryera*—of the semina; *ādhāna*—injection.

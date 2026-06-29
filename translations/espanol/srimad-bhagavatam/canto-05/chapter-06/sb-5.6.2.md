@@ -1,9 +1,9 @@
 ### SB 5.6.2
 
-> ऋषिरुवाच
+> ऋषिरुवाच\
 > सत्यमुक्तं किन्त्विह वा एके न मनसोऽद्धा विश्रम्भमनवस्थानस्य शठकिरात इवसङ्गच्छन्ते ॥२॥
 
-> ṛṣir uvāca
+> ṛṣir uvāca\
 > satyam uktaṁ kintv iha vā eke na manaso 'ddhā viśrambham anavasthānasya śaṭha-kirāta iva saṅgacchante.
 
 *ṛṣiḥ uvāca*—Śukadeva Gosvāmī dijo; *satyam*—lo correcto; *uktam*—has dicho; *kintu*—pero; *iha*—en el mundo material; *vā*—o; *eke*—algún; *na*—no; *manasaḥ*—de la mente; *addhā*—directamente; *viśrambham*—fiel; *anavasthānasya*—que es inestable; *śaṭha*—muy astuto; *kirātaḥ*—un cazador; *iva*—como; *saṅgacchante*—se vuelve.

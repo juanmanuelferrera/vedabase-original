@@ -1,11 +1,11 @@
 ### SB 4.29.47
 
-> तस्मात्कर्मसु बर्हिष्मन्नज्ञानादर्थकाशिषु ।
+> तस्मात्कर्मसु बर्हिष्मन्नज्ञानादर्थकाशिषु ।\
 > मार्थदृष्टिं कृथाः श्रोत्र स्पर्शिष्वस्पृष्टवस्तुषु ॥४७॥
 
-> tasmāt karmasu barhiṣmann
-> ajñānād artha-kāśiṣu
-> mārtha-dṛṣṭiṁ kṛthāḥ śrotra-
+> tasmāt karmasu barhiṣmann\
+> ajñānād artha-kāśiṣu\
+> mārtha-dṛṣṭiṁ kṛthāḥ śrotra-\
 > sparśiṣv aspṛṣṭa-vastuṣu
 
 *tasmāt*—por lo tanto; *karmasu*—en actividades fruitivas; *barhiṣman*—¡oh, rey Prācīnabarhiṣat!; *ajñānāt*—por ignorancia; *artha-kāśiṣu*—en el resplandeciente resultado fruitivo; *mā*—nunca; *artha-dṛṣṭim*—considerar que son el objetivo de la vida; *kṛthāḥ*—hacer; *śrotra-sparśiṣu*—agradable al oído; *aspṛṣṭa*—sin tocar; *vastuṣu*—verdadero interés.

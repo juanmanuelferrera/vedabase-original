@@ -1,9 +1,9 @@
 ### CC Madhya 12.180
 
-> কাহাঁ ভট্টাচার্যের পূর্ব জড়-ব্যবহার  ।
+> কাহাঁ ভট্টাচার্যের পূর্ব জড়-ব্যবহার  ।\
 > কাহাঁ এই পরমানন্দ, — করহ বিচার ॥১৮০॥
 
-> kāhāṅ bhaṭṭācāryera pūrva jaḍa-vyavahāra
+> kāhāṅ bhaṭṭācāryera pūrva jaḍa-vyavahāra\
 > kāhāṅ ei paramānanda,-karaha vicāra
 
 *kāhāṅ*—where; *bhaṭṭācāryera*—of Sārvabhauma Bhaṭṭācārya; *pūrva*—previous; *jaḍa-vyavahāra*—material behavior; *kāhāṅ*—where; *ei*—this; *parama-ānanda*—transcendental bliss; *karaha vicāra*—just try to consider.

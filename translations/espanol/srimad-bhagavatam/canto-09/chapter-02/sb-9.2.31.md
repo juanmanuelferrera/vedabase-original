@@ -1,11 +1,11 @@
 ### SB 9.2.31
 
-> तं भेजेऽलम्बुषा देवी भजनीयगुणालयम
+> तं भेजेऽलम्बुषा देवी भजनीयगुणालयम\
 > वराप्सरा यतः पुत्राः कन्या चेलविलाभवत ॥३१॥
 
-> taṁ bheje 'lambuṣā devī
-> bhajanīya-guṇālayam
-> varāpsarā yataḥ putrāḥ
+> taṁ bheje 'lambuṣā devī\
+> bhajanīya-guṇālayam\
+> varāpsarā yataḥ putrāḥ\
 > kanyā celavilābhavat
 
 *tam*—a él (a Tṛṇabindu); *bheje*—aceptó por esposo; *alambuṣā*—la muchacha Alambuṣā; *devī*—diosa; *bhajanīya*—digna de aceptar; *guṇa-ālayam*—receptáculo de todas las buenas cualidades; *vara-apsarāḥ*—la mejor de las *apsarās*; *yataḥ*—de quien (de Tṛṇabindu); *putrāḥ*—algunos hijos; *kanyā*—una hija; *ca*—y; *ilavilā*—llamada Ilavilā; *abhavat*—nació.

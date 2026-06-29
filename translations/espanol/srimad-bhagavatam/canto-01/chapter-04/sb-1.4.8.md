@@ -1,11 +1,11 @@
 ### SB 1.4.8
 
-> स गोदोहनमात्रं हि गृहेषु गृहमेधिनाम् ।
+> स गोदोहनमात्रं हि गृहेषु गृहमेधिनाम् ।\
 > अवेक्षते महाभागस्तीर्थीकुर्वंस्तदाश्रमम् ॥८॥
 
-> sa go-dohana-mātraṁ hi
-> gṛheṣu gṛha-medhinām
-> avekṣate mahā-bhāgas
+> sa go-dohana-mātraṁ hi\
+> gṛheṣu gṛha-medhinām\
+> avekṣate mahā-bhāgas\
 > tīrthī-kurvaṁs tad āśramam
 
 *saḥ*—él (Śukadeva Gosvāmī); *go-dohana-mātram*—solo por el tiempo que tarda ordeñar la vaca; *hi*—ciertamente; *gṛheṣu*—en la casa; *gṛha-medhinām*—de las personas casadas; *avekṣate*—espera; *mahā-bhāgaḥ*—el más afortunado de todos; *tīrthī*—peregrinaje; *kurvan*—transformando; *tat āśramam*—la residencia.

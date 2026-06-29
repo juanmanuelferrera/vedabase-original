@@ -1,11 +1,11 @@
 ### SB 8.19.23
 
-> सप्तद्वीपाधिपतयो नृपा वैण्यगयादयः
+> सप्तद्वीपाधिपतयो नृपा वैण्यगयादयः\
 > अर्थैः कामैर्गता नान्तं तृष्णाया इति नः श्रुतम ॥२३॥
 
-> sapta-dvīpādhipatayo
-> nṛpā vaiṇya-gayādayaḥ
-> arthaiḥ kāmair gatā nāntaṁ
+> sapta-dvīpādhipatayo\
+> nṛpā vaiṇya-gayādayaḥ\
+> arthaiḥ kāmair gatā nāntaṁ\
 > tṛṣṇāyā iti naḥ śrutam
 
 *sapta-dvīpa-adhipatayaḥ*—those who are proprietors of the seven islands; *nṛpāḥ*—such kings; *vaiṇya-gaya-ādayaḥ*—Mahārāja Pṛthu, Mahārāja Gaya and others; *arthaiḥ*—for fulfillment of ambition; *kāmaiḥ*—for satisfying one's desires; *gatāḥ na*—could not reach; *antam*—the end; *tṛṣṇāyāḥ*—of their ambitions; *iti*—thus; *naḥ*—by Us; *śrutam*—has been heard.

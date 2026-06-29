@@ -1,13 +1,13 @@
 ### CC Madhya 19.165
 
-> ঋদ্ধা সিদ্ধিব্রজ-বিজয়িতা সত্যধর্মা সমাধি-
-> র্ব্রহ্মানন্দো গুরুরপি চমৎকারয়ত্যেব তাবৎ ।
-> যাবৎ প্রেম্ণাং মধুরিপু-বশীকার-সিদ্ধৌষধীনাং
+> ঋদ্ধা সিদ্ধিব্রজ-বিজয়িতা সত্যধর্মা সমাধি-\
+> র্ব্রহ্মানন্দো গুরুরপি চমৎকারয়ত্যেব তাবৎ ।\
+> যাবৎ প্রেম্ণাং মধুরিপু-বশীকার-সিদ্ধৌষধীনাং\
 > গন্ধোঽপ্যন্তঃকরণসরণী-পান্থতাং ন প্রযাতি ॥১৬৫॥
 
-> ṛddhā siddhi-vraja-vijayitā satya-dharmā samādhir
-> brahmānando gurur api camatkārayaty eva tāvat
-> yāvat premṇāṁ madhu-ripu-vaśīkāra-siddhauṣadhīnāṁ
+> ṛddhā siddhi-vraja-vijayitā satya-dharmā samādhir\
+> brahmānando gurur api camatkārayaty eva tāvat\
+> yāvat premṇāṁ madhu-ripu-vaśīkāra-siddhauṣadhīnāṁ\
 > gandho 'py antaḥ-karaṇa-saraṇī-pānthatāṁ na prayāti
 
 *ṛddhā*—excelente; *siddhi-vraja*—de los grupos de perfecciones materiales de los *yogīs* (*aṇimā*, *laghimā*, *prāpti*, etc.); *vijayitā*—la victoria; *satya-dharmā*—los principios religiosos de la perfección (*satya*, *śama*, *titikṣā*, etc.); *samādhiḥ*—la perfección yóguica de la meditación; *brahma-ānandaḥ*—la vida espiritualmente bienaventurada del monista; *guruḥ*—muy importante en consideraciones materiales; *api*—aunque; *camatkārayati*—parecen muy importantes; *eva*—solo; *tāvat*—hasta entonces; *yāvat*—mientras; *premṇām*—del amor por Kṛṣṇa; *madhu-ripu*—de Kṛṣṇa, el enemigo del demonio Madhu; *vaśīkāra*—para controlar; *siddha-auṣadhīnām*—que es como hierbas perfectas capaces de controlar serpientes; *gandhaḥ*—una ligera fragancia; *api*—incluso; *antaḥ-karaṇa-saraṇī-pānthatām*—un viajero en el sendero del corazón; *na prayāti*—no se convierte.

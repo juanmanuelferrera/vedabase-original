@@ -1,11 +1,11 @@
 ### SB 7.7.50
 
-> देवोऽसुरो मनुष्यो वा यक्षो गन्धर्व एव वा
+> देवोऽसुरो मनुष्यो वा यक्षो गन्धर्व एव वा\
 > भजन्मुकुन्दचरणं स्वस्तिमान्स्याद्यथा वयम ॥५०॥
 
-> devo 'suro manuṣyo vā
-> yakṣo gandharva eva vā
-> bhajan mukunda-caraṇaṁ
+> devo 'suro manuṣyo vā\
+> yakṣo gandharva eva vā\
+> bhajan mukunda-caraṇaṁ\
 > svastimān syād yathā vayam
 
 *devaḥ*—un semidiós; *asuraḥ*—un demonio; *manuṣyaḥ*—un ser humano; *vā*—o; *yakṣaḥ*—un *yakṣa* (miembro de una especie demoníaca); *gandharvaḥ*—un *gandharva*; *eva*—en verdad; *vā*—o; *bhajan*—ofrecer servicio; *mukunda-caraṇam*—a los pies de loto de Mukunda, el Señor Kṛṣṇa, que puede dar la liberación; *svasti-mān*—pleno de todo lo auspicioso; *syāt*—se vuelve; *yathā*—tal como; *vayam*—nosotros (Prahlāda Mahārāja).

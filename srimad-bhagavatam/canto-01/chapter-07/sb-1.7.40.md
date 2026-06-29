@@ -1,13 +1,13 @@
 ### SB 1.7.40
 
-> सूत उवाच
-> एवं परीक्षता धर्मं पार्थः कृष्णेन चोदितः ।
+> सूत उवाच\
+> एवं परीक्षता धर्मं पार्थः कृष्णेन चोदितः ।\
 > नैच्छद्धन्तुं गुरुसुतं यद्यप्यात्महनं महान् ॥४०॥
 
-> sūta uvāca
-> evaṁ parīkṣatā dharmaṁ
-> pārthaḥ kṛṣṇena coditaḥ
-> naicchad dhantuṁ guru-sutaṁ
+> sūta uvāca\
+> evaṁ parīkṣatā dharmaṁ\
+> pārthaḥ kṛṣṇena coditaḥ\
+> naicchad dhantuṁ guru-sutaṁ\
 > yadyapy ātma-hanaṁ mahān
 
 *sūtaḥ*—Sūta Gosvāmī; *uvāca*—said; *evam*—this; *parīkṣatā*—being examined; *dharmam*—in the matter of duty; *pārthaḥ*—Śrī Arjuna; *kṛṣṇena*—by Lord Kṛṣṇa; *coditaḥ*—being encouraged; *na aicchat*—did not like; *hantum*—to kill; *guru-sutam*—the son of his teacher; *yadyapi*—although; *ātma-hanam*—murderer of sons; *mahān*—very great.

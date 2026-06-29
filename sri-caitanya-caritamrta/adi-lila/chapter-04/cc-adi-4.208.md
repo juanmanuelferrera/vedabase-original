@@ -1,11 +1,11 @@
 ### CC Adi 4.208
 
-> মৎসেবয়া প্রতীতং তে সালোক্যাদি-চতুষ্টয়ম্ ।
+> মৎসেবয়া প্রতীতং তে সালোক্যাদি-চতুষ্টয়ম্ ।\
 > নেচ্ছন্তি সেবয়া পূর্ণাঃ কুতোঽন্যৎ কালবিপ্লুতম্ ॥২০৮॥
 
-> mat-sevayā pratītaṁ te
-> sālokyādi-catuṣṭayam
-> necchanti sevayā pūrṇāḥ
+> mat-sevayā pratītaṁ te\
+> sālokyādi-catuṣṭayam\
+> necchanti sevayā pūrṇāḥ\
 > kuto 'nyat kāla-viplutam
 
 *mat*—of Me; *sevayā*—by service; *pratītam*—obtained; *te*—they; *sālokya-ādi*—liberation, beginning *sālokya*; *catuṣṭayam*—four kinds of; *na icchanti*—do not desire; *sevayā*—by service; *pūrṇāḥ*—complete; *kutaḥ*—where; *anyat*—other things; *kāla-viplutam*—which are lost in time.

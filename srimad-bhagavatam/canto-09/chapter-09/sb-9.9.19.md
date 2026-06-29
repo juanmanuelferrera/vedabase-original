@@ -1,13 +1,13 @@
 ### SB 9.9.19
 
-> श्रीराजोवाच
-> किं निमित्तो गुरोः शापः सौदासस्य महात्मनः
+> श्रीराजोवाच\
+> किं निमित्तो गुरोः शापः सौदासस्य महात्मनः\
 > एतद्वेदितुमिच्छामः कथ्यतां न रहो यदि ॥१९॥
 
-> śrī-rājovāca
-> kiṁ nimitto guroḥ śāpaḥ
-> saudāsasya mahātmanaḥ
-> etad veditum icchāmaḥ
+> śrī-rājovāca\
+> kiṁ nimitto guroḥ śāpaḥ\
+> saudāsasya mahātmanaḥ\
+> etad veditum icchāmaḥ\
 > kathyatāṁ na raho yadi
 
 *śrī-rājā uvāca*—King Parīkṣit said; *kim nimittaḥ*—for what reason; *guroḥ*—of the spiritual master; *śāpaḥ*—curse; *saudāsasya*—of Saudāsa; *mahā-ātmanaḥ*—of the great soul; *etat*—this; *veditum*—to know; *icchāmaḥ*—I wish; *kathyatām*—please tell me; *na*—not; *rahaḥ*—confidential; *yadi*—if.

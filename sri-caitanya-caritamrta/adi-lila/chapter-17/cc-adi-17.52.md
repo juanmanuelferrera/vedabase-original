@@ -1,9 +1,9 @@
 ### CC Adi 17.52
 
-> শ্রীবাসে করাইলি তুই ভবানী-পূজন ।
+> শ্রীবাসে করাইলি তুই ভবানী-পূজন ।\
 > কোটি জন্ম হবে তোর রৌরবে পতন ॥৫২॥
 
-> śrīvāse karāili tui bhavānī-pūjana
+> śrīvāse karāili tui bhavānī-pūjana\
 > koṭi janma habe tora raurave patana
 
 *śrīvāse*—unto Śrīvāsa Ṭhākura; *karāili*—you have caused to do; *tui*—you; *bhavānī-pūjana*—worshiping the goddess Bhavānī; *koṭi janma*—for ten million births; *habe*—there will be; *tora*—your; *raurave*—in hell; *patana*—fall down.

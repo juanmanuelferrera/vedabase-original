@@ -1,11 +1,11 @@
 ### SB 9.15.15
 
-> दृप्तं क्षत्रं भुवो भारमब्रह्मण्यमनीनशत
+> दृप्तं क्षत्रं भुवो भारमब्रह्मण्यमनीनशत\
 > रजस्तमोवृतमहन्फल्गुन्यपि कृतेऽंहसि ॥१५॥
 
-> dṛptaṁ kṣatraṁ bhuvo bhāram
-> abrahmaṇyam anīnaśat
-> rajas-tamo-vṛtam ahan
+> dṛptaṁ kṣatraṁ bhuvo bhāram\
+> abrahmaṇyam anīnaśat\
+> rajas-tamo-vṛtam ahan\
 > phalguny api kṛte 'ṁhasi
 
 *dṛptam*—muy orgullosos; *kṣatram*—los *kṣatriyas*, la clase gobernante; *bhuvaḥ*—de la Tierra; *bhāram*—carga; *abrahmaṇyam*—pecaminosos, que no hacían caso de los principios religiosos establecidos por los *brāhmaṇas*; *anīnaśat*—expulsó o exterminó; *rajaḥ-tamaḥ*—por las cualidades de la pasión y la ignorancia; *vṛtam*—cubiertos; *ahan*—mató; *phalguni*—no muy grande; *api*—aunque; *kṛte*—había sido cometida; *aṁhasi*—una ofensa.

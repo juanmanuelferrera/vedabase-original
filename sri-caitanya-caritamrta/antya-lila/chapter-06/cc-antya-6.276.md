@@ -1,9 +1,9 @@
 ### CC Antya 6.276
 
-> উপরোধে প্রভু মোর মানেন নিমন্ত্রণ ।
+> উপরোধে প্রভু মোর মানেন নিমন্ত্রণ ।\
 > না মানিলে দুঃখী হইবেক মূর্খ জন ॥২৭৬॥
 
-> uparodhe prabhu mora mānena nimantraṇa
+> uparodhe prabhu mora mānena nimantraṇa\
 > nā mānile duḥkhī ha-ibeka mūrkha jana
 
 *uparodhe*—by my request; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *mora*—my; *mānena*—accepts; *nimantraṇa*—invitation; *nā mānile*—if He does not accept; *duḥkhī*—unhappy; *ha-ibeka*—will become; *mūrkha jana*—foolish person.

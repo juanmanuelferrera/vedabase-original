@@ -1,9 +1,9 @@
 ### CC Madhya 2.15
 
-> কাহাঁ মোর প্রাণনাথ মুরলীবদন ।
+> কাহাঁ মোর প্রাণনাথ মুরলীবদন ।\
 > কাহাঁ করোঁ কাহাঁ পাঙ ব্রজেন্দ্রনন্দন ॥১৫॥
 
-> kāhāṅ mora prāṇa-nātha muralī-vadana
+> kāhāṅ mora prāṇa-nātha muralī-vadana\
 > kāhāṅ karoṅ kāhāṅ pāṅ vrajendra-nandana
 
 *kāhāṅ*—dónde; *mora*—Mi; *prāṇa-nātha*—Señor de la vida; *muralī-vadana*—que toca la flauta; *kāhāṅ*—qué; *karoṅ*—haré; *kāhāṅ*—dónde; *pāṅ*—encontraré; *vrajendra-nandana*—el hijo del Mahārāja Nanda.

@@ -1,11 +1,11 @@
 ### SB 4.4.17
 
-> कर्णौ पिधाय निरयाद्यदकल्प ईशे धर्मावितर्यसृणिभिर्नृभिरस्यमाने ।
+> कर्णौ पिधाय निरयाद्यदकल्प ईशे धर्मावितर्यसृणिभिर्नृभिरस्यमाने ।\
 > छिन्द्यात्प्रसह्य रुशतीमसतीं प्रभुश्चेज्जिह्वामसूनपि ततो विसृजेत्स धर्मः ॥१७॥
 
-> karṇau pidhāya nirayād yad akalpa īśe
-> dharmāvitary asṛṇibhir nṛbhir asyamāne
-> chindyāt prasahya ruśatīm asatīṁ prabhuś cej
+> karṇau pidhāya nirayād yad akalpa īśe\
+> dharmāvitary asṛṇibhir nṛbhir asyamāne\
+> chindyāt prasahya ruśatīm asatīṁ prabhuś cej\
 > jihvām asūn api tato visṛjet sa dharmaḥ
 
 *karṇau*—both ears; *pidhāya*—blocking; *nirayāt*—one should go away; *yat*—if; *akalpaḥ*—unable; *īśe*—the master; *dharma-avitari*—the controller of religion; *asṛṇibhiḥ*—by irresponsible; *nṛbhiḥ*—persons; *asyamāne*—being blasphemed; *chindyāt*—he should cut; *prasahya*—by force; *ruśatīm*—vilifying; *asatīm*—of the blasphemer; *prabhuḥ*—one is able; *cet*—if; *jihvām*—tongue; *asūn*—(his own) life; *api*—certainly; *tataḥ*—then; *visṛjet*—should give up; *saḥ*—that; *dharmaḥ*—is the process.

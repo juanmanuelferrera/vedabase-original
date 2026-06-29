@@ -1,11 +1,11 @@
 ### SB 4.12.32
 
-> स च स्वर्लोकमारोक्ष्यन्सुनीतिं जननीं ध्रुवः ।
+> स च स्वर्लोकमारोक्ष्यन्सुनीतिं जननीं ध्रुवः ।\
 > अन्वस्मरदगं हित्वा दीनां यास्ये त्रिविष्टपम् ॥३२॥
 
-> sa ca svarlokam ārokṣyan
-> sunītiṁ jananīṁ dhruvaḥ
-> anvasmarad agaṁ hitvā
+> sa ca svarlokam ārokṣyan\
+> sunītiṁ jananīṁ dhruvaḥ\
+> anvasmarad agaṁ hitvā\
 > dīnāṁ yāsye tri-viṣṭapam
 
 *saḥ*—he; *ca*—also; *svaḥ-lokam*—to the celestial planet; *ārokṣyan*—about to ascend; *sunītim*—Sunīti; *jananīm*—mother; *dhruvaḥ*—Dhruva Mahārāja; *anvasmarat*—immediately remembered; *agam*—difficult to attain; *hitvā*—leaving behind; *dīnām*—poor; *yāsye*—I shall go; *tri-viṣṭapam*—to the Vaikuṇṭha planet.

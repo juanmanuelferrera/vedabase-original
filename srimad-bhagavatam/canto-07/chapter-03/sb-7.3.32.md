@@ -1,11 +1,11 @@
 ### SB 7.3.32
 
-> त्वत्तः परं नापरमप्यनेजदेजच्च किञ्चिद्व्यतिरिक्तमस्ति
+> त्वत्तः परं नापरमप्यनेजदेजच्च किञ्चिद्व्यतिरिक्तमस्ति\
 > विद्याः कलास्ते तनवश्च सर्वा हिरण्यगर्भोऽसि बृहत्त्रिपृष्ठः ॥३२॥
 
-> tvattaḥ paraṁ nāparam apy anejad
-> ejac ca kiñcid vyatiriktam asti
-> vidyāḥ kalās te tanavaś ca sarvā
+> tvattaḥ paraṁ nāparam apy anejad\
+> ejac ca kiñcid vyatiriktam asti\
+> vidyāḥ kalās te tanavaś ca sarvā\
 > hiraṇyagarbho 'si bṛhat tri-pṛṣṭhaḥ
 
 *tvattaḥ*—from you; *param*—higher; *na*—not; *aparam*—lower; *api*—even; *anejat*—not moving; *ejat*—moving; *ca*—and; *kiñcit*—anything; *vyatiriktam*—separate; *asti*—there is; *vidyāḥ*—knowledge; *kalāḥ*—its parts; *te*—of you; *tanavaḥ*—features of the body; *ca*—and; *sarvāḥ*—all; *hiraṇya-garbhaḥ*—the one who keeps the universe within his abdomen; *asi*—you are; *bṛhat*—greater than the greatest; *tri-pṛṣṭhaḥ*—transcendental to the three modes of material nature.

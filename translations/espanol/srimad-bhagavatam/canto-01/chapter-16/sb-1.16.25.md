@@ -1,13 +1,13 @@
 ### SB 1.16.25
 
-> धरण्युवाच
-> भवान्हि वेद तत्सर्वं यन्मां धर्मानुपृच्छसि ।
+> धरण्युवाच\
+> भवान्हि वेद तत्सर्वं यन्मां धर्मानुपृच्छसि ।\
 > चतुर्भिर्वर्तसे येन पादैर्लोकसुखावहैः ॥२५॥
 
-> dharaṇy uvāca
-> bhavān hi veda tat sarvaṁ
-> yan māṁ dharmānupṛcchasi
-> caturbhir vartase yena
+> dharaṇy uvāca\
+> bhavān hi veda tat sarvaṁ\
+> yan māṁ dharmānupṛcchasi\
+> caturbhir vartase yena\
 > pādair loka-sukhāvahaiḥ
 
 *dharaṇī uvāca*—la madre Tierra respondió; *bhavān*—su buena persona; *hi*—ciertamente; *veda*—sepa; *tat sarvam*—todo lo que me ha preguntado; *yat*—eso; *mām*—a mí; *dharma*—¡oh, personalidad de los principios religiosos!; *anupṛcchasi*—ha preguntado una tras otra; *caturbhiḥ*—por cuatro; *vartase*—usted existe; *yena*—por lo cual; *pādaiḥ*—por las patas; *loka*—en todos y cada uno de los planetas; *sukha-āvahaiḥ*—aumentando la felicidad.

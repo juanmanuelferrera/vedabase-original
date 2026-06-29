@@ -1,11 +1,11 @@
 ### SB 8.3.19
 
-> यं धर्मकामार्थविमुक्तिकामा भजन्त इष्टां गतिमाप्नुवन्ति
+> यं धर्मकामार्थविमुक्तिकामा भजन्त इष्टां गतिमाप्नुवन्ति\
 > किं चाशिषो रात्यपि देहमव्ययं करोतु मेऽदभ्रदयो विमोक्षणम ॥१९॥
 
-> yaṁ dharma-kāmārtha-vimukti-kāmā
-> bhajanta iṣṭāṁ gatim āpnuvanti
-> kiṁ cāśiṣo rāty api deham avyayaṁ
+> yaṁ dharma-kāmārtha-vimukti-kāmā\
+> bhajanta iṣṭāṁ gatim āpnuvanti\
+> kiṁ cāśiṣo rāty api deham avyayaṁ\
 > karotu me 'dabhra-dayo vimokṣaṇam
 
 *yam*—a la Suprema Personalidad de Dios, quien; *dharma-kāma-artha-vimukti-kāmāḥ*—personas que desean los cuatro principios consistentes en la religión, el crecimiento económico, la complacencia de los sentidos y la salvación; *bhajantaḥ*—por adorar; *iṣṭām*—el objetivo; *gatim*—el destino; *āpnuvanti*—pueden alcanzar; *kim*—qué decir de; *ca*—también; *āśiṣaḥ*—otras bendiciones; *rāti*—Él concede; *api*—incluso; *deham*—un cuerpo; *avyayam*—espiritual; *karotu*—que Él conceda bendición; *me*—a mí; *adabhra-dayaḥ*—la Suprema Personalidad de Dios, que es ilimitadamente misericordioso; *vimokṣaṇam*—la liberación del peligro que ahora me acosa, y la liberación del mundo material.

@@ -1,11 +1,11 @@
 ### SB 4.23.36
 
-> विजयाभिमुखो राजा श्रुत्वैतदभियाति यान् ।
+> विजयाभिमुखो राजा श्रुत्वैतदभियाति यान् ।\
 > बलिं तस्मै हरन्त्यग्रे राजानः पृथवे यथा ॥३६॥
 
-> vijayābhimukho rājā
-> śrutvaitad abhiyāti yān
-> baliṁ tasmai haranty agre
+> vijayābhimukho rājā\
+> śrutvaitad abhiyāti yān\
+> baliṁ tasmai haranty agre\
 > rājānaḥ pṛthave yathā
 
 *vijaya-abhimukhaḥ*—one who is about to start for victory; *rājā*—king; *śrutvā*—hearing; *etat*—this; *abhiyāti*—starts; *yān*—on the chariot; *balim*—taxes; *tasmai*—unto him; *haranti*—present; *agre*—before; *rājānaḥ*—other kings; *pṛthave*—unto King Pṛthu; *yathā*—as it was done.

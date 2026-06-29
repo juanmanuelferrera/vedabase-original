@@ -1,11 +1,11 @@
 ### SB 6.16.45
 
-> अथ भगवन्वयमधुना त्वदवलोकपरिमृष्टाशयमलाः
+> अथ भगवन्वयमधुना त्वदवलोकपरिमृष्टाशयमलाः\
 > सुरऋषिणा यत्कथितं तावकेन कथमन्यथा भवति ॥४५॥
 
-> atha bhagavan vayam adhunā
-> tvad-avaloka-parimṛṣṭāśaya-malāḥ
-> sura-ṛṣiṇā yat kathitaṁ
+> atha bhagavan vayam adhunā\
+> tvad-avaloka-parimṛṣṭāśaya-malāḥ\
+> sura-ṛṣiṇā yat kathitaṁ\
 > tāvakena katham anyathā bhavati
 
 *atha*—therefore; *bhagavan*—O Supreme Personality of Godhead; *vayam*—we; *adhunā*—at the present moment; *tvat-avaloka*—by seeing You; *parimṛṣṭa*—wiped away; *āśaya-malāḥ*—contaminated desires in the heart; *sura-ṛṣiṇā*—by the great sage of the demigods (Nārada); *yat*—which; *kathitam*—spoken; *tāvakena*—who is Your devotee; *katham*—how; *anyathā*—otherwise; *bhavati*—can it be.

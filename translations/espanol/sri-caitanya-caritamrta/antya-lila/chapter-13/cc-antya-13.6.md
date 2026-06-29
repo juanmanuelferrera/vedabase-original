@@ -1,9 +1,9 @@
 ### CC Antya 13.6
 
-> দেখি’ সব ভক্তগণ মহাদুঃখ পায় ।
+> দেখি’ সব ভক্তগণ মহাদুঃখ পায় ।\
 > সহিতে নারে জগদানন্দ, সৃজিলা উপায় ॥৬॥
 
-> dekhi' saba bhakta-gaṇa mahā-duḥkha pāya
+> dekhi' saba bhakta-gaṇa mahā-duḥkha pāya\
 > sahite nāre jagadānanda, sṛjilā upāya
 
 *dekhi'*—al ver; *saba bhakta-gaṇa*—todos los devotos; *mahā-duḥkha*—gran infelicidad; *pāya*—reciben; *sahite*—tolerar; *nāre*—era incapaz; *jagadānanda*—Jagadānanda Paṇḍita; *sṛjilā upāya*—ideó un medio.

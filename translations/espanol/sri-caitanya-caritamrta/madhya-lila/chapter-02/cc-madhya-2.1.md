@@ -1,11 +1,11 @@
 ### CC Madhya 2.1
 
-> বিচ্ছেদেঽস্মিন্ প্ৰভোরন্ত্যলীলা-সূত্রানুবর্ণনে ।
+> বিচ্ছেদেঽস্মিন্ প্ৰভোরন্ত্যলীলা-সূত্রানুবর্ণনে ।\
 > গৌরস্য কৃষ্ণবিচ্ছেদপ্ৰলাপাদ্যনুবর্ণ্যতে ॥১॥
 
-> vicchede 'smin prabhor antya-
-> līlā-sūtrānuvarṇane
-> gaurasya kṛṣṇa-viccheda-
+> vicchede 'smin prabhor antya-\
+> līlā-sūtrānuvarṇane\
+> gaurasya kṛṣṇa-viccheda-\
 > pralāpādy anuvarṇyate
 
 *vicchede*—en el capítulo; *asmin*—este; *prabhoḥ*—del Señor; *antya-līlā*—de la última división de Sus pasatiempos; *sūtra*—de una sinopsis; *anuvarṇane*—en lo referente a la descripción; *gaurasya*—del Señor Śrī Caitanya Mahāprabhu; *kṛṣṇa-viccheda*—de la separación de Kṛṣṇa; *pralāpa*—locura; *ādi*—otros temas; *anuvarṇyate*—se describe.

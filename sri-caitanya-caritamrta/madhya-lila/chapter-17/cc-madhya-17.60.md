@@ -1,9 +1,9 @@
 ### CC Madhya 17.60
 
-> যাহাঁ বিপ্র নাহি তাহাঁ ‘শূদ্রমহাজন’ ।
+> যাহাঁ বিপ্র নাহি তাহাঁ ‘শূদ্রমহাজন’ ।\
 > আসি’ সবে ভট্টাচার্যে করে নিমন্ত্রণ ॥৬০॥
 
-> yāhāṅ vipra nāhi tāhāṅ 'śūdra-mahājana'
+> yāhāṅ vipra nāhi tāhāṅ 'śūdra-mahājana'\
 > āsi' sabe bhaṭṭācārye kare nimantraṇa
 
 *yāhāṅ*—wherever; *vipra*—*brāhmaṇa*; *nāhi*—there is not; *tāhāṅ*—there; *śūdra-mahā-jana*—devotees born in families other than *brāhmaṇa*; *āsi'*—coming; *sabe*—all of them; *bhaṭṭācārye*—to Balabhadra Bhaṭṭācārya; *kare nimantraṇa*—make invitation.

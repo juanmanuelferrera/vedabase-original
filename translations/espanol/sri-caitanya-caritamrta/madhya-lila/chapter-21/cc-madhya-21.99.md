@@ -1,9 +1,9 @@
 ### CC Madhya 21.99
 
-> ঐশ্বর্য কহিতে প্রভুর কৃষ্ণস্ফূর্তি হৈল ।
+> ঐশ্বর্য কহিতে প্রভুর কৃষ্ণস্ফূর্তি হৈল ।\
 > মাধুর্যে মজিল মন, এক শ্লোক পড়িল ॥৯৯॥
 
-> aiśvarya kahite prabhura kṛṣṇa-sphūrti haila
+> aiśvarya kahite prabhura kṛṣṇa-sphūrti haila\
 > mādhurye majila mana, eka śloka paḍila
 
 *aiśvarya kahite*—mientras describía la opulencia; *prabhura*—de Śrī Caitanya Mahāprabhu; *kṛṣṇa-sphūrti*—despertar del amor por Kṛṣṇa; *haila*—hubo; *mādhurye*—en la dulzura del amor conyugal; *majila mana*—la mente se sumergió; *eka*—un; *śloka*—verso; *paḍila*—recitó.

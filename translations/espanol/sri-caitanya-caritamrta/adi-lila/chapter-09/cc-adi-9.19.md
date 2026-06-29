@@ -1,9 +1,9 @@
 ### CC Adi 9.19
 
-> একৈক শাখাতে উপশাখা শত শত ।
+> একৈক শাখাতে উপশাখা শত শত ।\
 > যত উপজিল শাখা কে গণিবে কত ॥১৯॥
 
-> ekaika śākhāte upaśākhā śata śata
+> ekaika śākhāte upaśākhā śata śata\
 > yata upajila śākhā ke gaṇibe kata
 
 *ekaika*—cada rama; *śākhāte*—en la rama; *upaśākhā*—subramas; *śata śata*—cientos y cientos; *yata*—todas; *upajila*—crecieron; *śākhā*—ramas; *ke*—quién; *gaṇibe*—puede contar; *kata*—cuántas.

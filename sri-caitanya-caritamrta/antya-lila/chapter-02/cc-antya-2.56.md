@@ -1,9 +1,9 @@
 ### CC Antya 2.56
 
-> তবে তাঁরে এথা আমি আনিব সত্বর ।
+> তবে তাঁরে এথা আমি আনিব সত্বর ।\
 > নিশ্চয় কহিলাঙ, কিছু সন্দেহ না কর ॥৫৬॥
 
-> tabe tāṅre ethā āmi āniba satvara
+> tabe tāṅre ethā āmi āniba satvara\
 > niścaya kahilāṅa, kichu sandeha nā kara
 
 *tabe*—in this way; *tāṅre*—Him; *ethā*—here; *āmi*—I; *āniba satvara*—shall bring very soon; *niścaya*—with certainty; *kahilāṅa*—I spoke; *kichu sandeha nā kara*—do not be doubtful.

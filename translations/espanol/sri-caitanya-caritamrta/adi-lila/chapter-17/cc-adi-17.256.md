@@ -1,9 +1,9 @@
 ### CC Adi 17.256
 
-> পুনঃ যদি ঐছে করে মারিব তাহারে ।
+> পুনঃ যদি ঐছে করে মারিব তাহারে ।\
 > কোন্ বা মানুষ হয়, কি করিতে পারে ॥২৫৬॥
 
-> punaḥ yadi aiche kare māriba tāhare
+> punaḥ yadi aiche kare māriba tāhare\
 > kon vā mānuṣa haya, ki karite pāre
 
 *punaḥ*—de nuevo; *yadi*—si; *aiche*—así; *kare*—hace; *māriba*—golpearemos; *tāhare*—a Él; *kon*—quién; *vā*—o; *mānuṣa*—el hombre; *haya*—es; *ki*—qué; *karite*—hacer; *pāre*—puede.

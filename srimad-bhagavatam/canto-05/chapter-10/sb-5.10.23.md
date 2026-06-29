@@ -1,11 +1,11 @@
 ### SB 5.10.23
 
-> शास्ताभिगोप्ता नृपतिः प्रजानां यः किङ्करो वै न पिनष्टि पिष्टम
+> शास्ताभिगोप्ता नृपतिः प्रजानां यः किङ्करो वै न पिनष्टि पिष्टम\
 > स्वधर्ममाराधनमच्युतस्य यदीहमानो विजहात्यघौघम ॥२३॥
 
-> śāstābhigoptā nṛpatiḥ prajānāṁ
-> yaḥ kiṅkaro vai na pinaṣṭi piṣṭam
-> sva-dharmam ārādhanam acyutasya
+> śāstābhigoptā nṛpatiḥ prajānāṁ\
+> yaḥ kiṅkaro vai na pinaṣṭi piṣṭam\
+> sva-dharmam ārādhanam acyutasya\
 > yad īhamāno vijahāty aghaugham
 
 *śāstā*—the governor; *abhigoptā*—a well-wisher of the citizens as a father is the well-wisher of his children; *nṛ-patiḥ*—the king; *prajānām*—of the citizens; *yaḥ*—one who; *kiṅkaraḥ*—order carrier; *vai*—indeed; *na*—not; *pinaṣṭi piṣṭam*—grinds what is already ground; *sva-dharmam*—one's own occupational duty; *ārādhanam*—worshiping; *acyutasya*—of the Supreme Personality of Godhead; *yat*—which; *īhamānaḥ*—performing; *vijahāti*—they are released from; *agha-ogham*—all kinds of sinful activity and faulty action.

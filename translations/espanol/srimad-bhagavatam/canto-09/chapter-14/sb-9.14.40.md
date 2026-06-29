@@ -1,11 +1,11 @@
 ### SB 9.14.40
 
-> अन्तर्वत्नीमुपालक्ष्य देवीं स प्रययौ पुरीम
+> अन्तर्वत्नीमुपालक्ष्य देवीं स प्रययौ पुरीम\
 > पुनस्तत्र गतोऽब्दान्ते उर्वशीं वीरमातरम ॥४०॥
 
-> antarvatnīm upālakṣya
-> devīṁ sa prayayau purīm
-> punas tatra gato 'bdānte
+> antarvatnīm upālakṣya\
+> devīṁ sa prayayau purīm\
+> punas tatra gato 'bdānte\
 > urvaśīṁ vīra-mātaram
 
 *antarvatnīm*—preñada; *upālakṣya*—al observar; *devīm*—a Urvaśī; *saḥ*—él, el rey Purūravā; *prayayau*—regresó; *purīm*—a su palacio; *punaḥ*—de nuevo; *tatra*—en aquel mismo lugar; *gataḥ*—fue; *abda-ante*—al final del año; *urvaśīm*—a Urvaśī; *vīra-mātaram*—madre de un hijo *kṣatriya*.

@@ -1,11 +1,11 @@
 ### Bg 2.35
 
-> भयाद्रणादुपरतं मंस्यन्ते त्वां महारथाः ।
+> भयाद्रणादुपरतं मंस्यन्ते त्वां महारथाः ।\
 > येषां च त्वं बहुमतो भूत्वा यास्यसि लाघवम् ॥३५॥
 
-> bhayād raṇād uparataṁ
-> maṁsyante tvāṁ mahā-rathāḥ
-> yeṣāṁ ca tvaṁ bahu-mato
+> bhayād raṇād uparataṁ\
+> maṁsyante tvāṁ mahā-rathāḥ\
+> yeṣāṁ ca tvaṁ bahu-mato\
 > bhūtvā yāsyasi lāghavam
 
 *bhayāt*—por temor; *raṇāt*—del campo de batalla; *uparatam*—cesó; *maṁsyante*—considerarán; *tvām*—a ti; *mahā-rathāḥ*—los grandes generales; *yeṣām*—de aquellos que; *ca*—también; *tvam*—tú; *bahu-mataḥ*—en gran estima; *bhūtvā*—se volverá; *yāsyasi*—irás; *lāghavam*—disminuido en valor.

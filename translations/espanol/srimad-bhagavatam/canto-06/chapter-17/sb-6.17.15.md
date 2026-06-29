@@ -1,11 +1,11 @@
 ### SB 6.17.15
 
-> अतः पापीयसीं योनिमासुरीं याहि दुर्मते
+> अतः पापीयसीं योनिमासुरीं याहि दुर्मते\
 > यथेह भूयो महतां न कर्ता पुत्र किल्बिषम ॥१५॥
 
-> ataḥ pāpīyasīṁ yonim
-> āsurīṁ yāhi durmate
-> yatheha bhūyo mahatāṁ
+> ataḥ pāpīyasīṁ yonim\
+> āsurīṁ yāhi durmate\
+> yatheha bhūyo mahatāṁ\
 > na kartā putra kilbiṣam
 
 *ataḥ*—por lo tanto; *pāpīyasīm*—más pecaminosas; *yonim*—a las especies de vida; *āsurīm*—demoníacas; *yāhi*—ve; *durmate*—¡oh, insolente!; *yathā*—de modo que; *iha*—en este mundo; *bhūyaḥ*—de nuevo; *mahatām*—a grandes personalidades; *na*—no; *kartā*—cometas; *putra*—mi querido hijo; *kilbiṣam*—ninguna ofensa.

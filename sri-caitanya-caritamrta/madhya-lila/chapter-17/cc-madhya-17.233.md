@@ -1,9 +1,9 @@
 ### CC Madhya 17.233
 
-> জগৎ ভাসিল চৈতন্যলীলার পাথারে ।
+> জগৎ ভাসিল চৈতন্যলীলার পাথারে ।\
 > যাঁর যত শক্তি তত পাথারে সাঁতারে ॥২৩৩॥
 
-> jagat bhāsila caitanya-līlāra pāthāre
+> jagat bhāsila caitanya-līlāra pāthāre\
 > yāṅra yata śakti tata pāthāre sāṅtāre
 
 *jagat*—the whole world; *bhāsila*—floated; *caitanya-līlāra*—of the pastimes of Śrī Caitanya Mahāprabhu; *pāthāre*—in the inundation; *yāṅra*—of whom; *yata*—as much; *śakti*—power; *tata*—that much; *pāthāre*—in the inundation; *sāṅtāre*—swims.

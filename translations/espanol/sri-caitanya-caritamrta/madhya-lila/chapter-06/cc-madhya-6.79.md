@@ -1,9 +1,9 @@
 ### CC Madhya 6.79
 
-> তাহাতে বিখ্যাত ইঁহো পরম-ঈশ্বর ।
+> তাহাতে বিখ্যাত ইঁহো পরম-ঈশ্বর ।\
 > অজ্ঞ-স্থানে কিছু নহে বিজ্ঞের গোচর ।।’ ॥ ৭৯ ॥
 
-> tāhāte vikhyāta iṅho parama-īśvara
+> tāhāte vikhyāta iṅho parama-īśvara\
 > ajña-sthāne kichu nahe vijñera gocara'
 
 *tāhāte*—por lo tanto; *vikhyāta*—célebre; *iṅho*—el Señor Caitanya Mahāprabhu; *parama-īśvara*—la Suprema Personalidad de Dios; *ajña-sthāne*—ante una persona ignorante; *kichu*—algo; *nahe*—no; *vijñera*—de la persona que sabe; *gocara*—información.

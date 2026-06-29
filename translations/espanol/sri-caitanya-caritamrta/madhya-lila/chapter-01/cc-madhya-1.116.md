@@ -1,9 +1,9 @@
 ### CC Madhya 1.116
 
-> তবে প্রভু কৈল সপ্ততাল বিমোচন ।
+> তবে প্রভু কৈল সপ্ততাল বিমোচন ।\
 > সেতুবন্ধে স্নান, রামেশ্বর দরশন ॥১১৬॥
 
-> tabe prabhu kaila sapta-tāla vimocana
+> tabe prabhu kaila sapta-tāla vimocana\
 > setubandhe snāna, rāmeśvara daraśana
 
 *tabe*—después; *prabhu*—el Señor; *kaila*—hizo; *sapta-tāla-vimocana*—la liberación de los árboles Sapta-tāla; *setubandhe*—en Cabo Comorín; *snāna*—baño; *rāmeśvara*—templo de Rāmeśvara; *daraśana*—visita.

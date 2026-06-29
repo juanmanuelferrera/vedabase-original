@@ -1,11 +1,11 @@
 ### SB 3.19.22
 
-> प्रादुष्कृतानां मायानामासुरीणां विनाशयत् ।
+> प्रादुष्कृतानां मायानामासुरीणां विनाशयत् ।\
 > सुदर्शनास्त्रं भगवान्प्रायुङ्क्त दयितं त्रिपात् ॥२२॥
 
-> prāduṣkṛtānāṁ māyānām
-> āsurīṇāṁ vināśayat
-> sudarśanāstraṁ bhagavān
+> prāduṣkṛtānāṁ māyānām\
+> āsurīṇāṁ vināśayat\
+> sudarśanāstraṁ bhagavān\
 > prāyuṅkta dayitaṁ tri-pāt
 
 *prāduṣkṛtānām*—displayed; *māyānām*—the magical forces; *āsurīṇām*—displayed by the demon; *vināśayat*—desiring to destroy; *sudarśana-astram*—the Sudarśana weapon; *bhagavān*—the Supreme Personality of Godhead; *prāyuṅkta*—threw; *dayitam*—beloved; *tri-pāt*—the enjoyer of all sacrifices.

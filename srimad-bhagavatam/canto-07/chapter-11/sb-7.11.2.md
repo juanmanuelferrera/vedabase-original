@@ -1,13 +1,13 @@
 ### SB 7.11.2
 
-> श्रीयुधिष्ठिर उवाच
-> भगवन्श्रोतुमिच्छामि नृणां धर्मं सनातनम
+> श्रीयुधिष्ठिर उवाच\
+> भगवन्श्रोतुमिच्छामि नृणां धर्मं सनातनम\
 > वर्णाश्रमाचारयुतं यत्पुमान्विन्दते परम ॥२॥
 
-> śrī-yudhiṣṭhira uvāca
-> bhagavan śrotum icchāmi
-> nṛṇāṁ dharmaṁ sanātanam
-> varṇāśramācāra-yutaṁ
+> śrī-yudhiṣṭhira uvāca\
+> bhagavan śrotum icchāmi\
+> nṛṇāṁ dharmaṁ sanātanam\
+> varṇāśramācāra-yutaṁ\
 > yat pumān vindate param
 
 *śrī-yudhiṣṭhiraḥ uvāca*—Mahārāja Yudhiṣṭhira inquired; *bhagavan*—O my lord; *śrotum*—to hear; *icchāmi*—I wish; *nṛṇām*—of human society; *dharmam*—the occupational duties; *sanātanam*—common and eternal (for everyone); *varṇa-āśrama-ācāra-yutam*—based on the principles of the four divisions of society and the four divisions of spiritual advancement; *yat*—from which; *pumān*—the people in general; *vindate*—can enjoy very peacefully; *param*—the supreme knowledge (by which one can attain devotional service).

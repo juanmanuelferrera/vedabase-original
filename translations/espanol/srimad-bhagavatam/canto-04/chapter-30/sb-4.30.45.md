@@ -1,11 +1,11 @@
 ### SB 4.30.45
 
-> ततोऽग्निमारुतौ राजन्नमुञ्चन्मुखतो रुषा ।
+> ततोऽग्निमारुतौ राजन्नमुञ्चन्मुखतो रुषा ।\
 > महीं निर्वीरुधं कर्तुं संवर्तक इवात्यये ॥४५॥
 
-> tato 'gni-mārutau rājann
-> amuñcan mukhato ruṣā
-> mahīṁ nirvīrudhaṁ kartuṁ
+> tato 'gni-mārutau rājann\
+> amuñcan mukhato ruṣā\
+> mahīṁ nirvīrudhaṁ kartuṁ\
 > saṁvartaka ivātyaye
 
 *tataḥ*—a continuación; *agni*—fuego; *mārutau*—y aire; *rājan*—¡oh, rey!; *amuñcan*—emitieron; *mukhataḥ*—de sus bocas; *ruṣā*—llevados por la ira; *mahīm*—la Tierra; *nirvīrudham*—sin árboles; *kartum*—para hacer; *saṁvartakaḥ*—el fuego de la devastación; *iva*—como; *atyaye*—en el momento de la devastación.

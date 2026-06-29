@@ -1,9 +1,9 @@
 ### CC Madhya 12.74
 
-> পড়িছা কহে, — আমি-সব সেবক তোমার ।
+> পড়িছা কহে, — আমি-সব সেবক তোমার ।\
 > যে তোমার ইচ্ছা সেই কর্তব্য আমার ॥৭৪॥
 
-> paḍichā kahe,-āmi-saba sevaka tomāra
+> paḍichā kahe,-āmi-saba sevaka tomāra\
 > ye tomāra icchā sei kartavya āmāra
 
 *paḍichā kahe*—el superintendente dijo; *āmi-saba*—todos nosotros; *sevaka tomāra*—Tus sirvientes; *ye tomāra*—lo que sea Tu; *icchā*—deseo; *sei*—eso; *kartavya āmāra*—es nuestro deber.

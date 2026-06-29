@@ -1,11 +1,11 @@
 ### SB 2.6.30
 
-> ततश्च मनवः काले ईजिरे ऋषयोऽपरे ।
+> ततश्च मनवः काले ईजिरे ऋषयोऽपरे ।\
 > पितरो विबुधा दैत्या मनुष्याः क्रतुभिर्विभुम् ॥३०॥
 
-> tataś ca manavaḥ kāle
-> ījire ṛṣayo 'pare
-> pitaro vibudhā daityā
+> tataś ca manavaḥ kāle\
+> ījire ṛṣayo 'pare\
+> pitaro vibudhā daityā\
 > manuṣyāḥ kratubhir vibhum
 
 *tataḥ*—luego; *ca*—también; *manavaḥ*—los *manus*, los padres de la humanidad; *kāle*—en el debido transcurso del tiempo; *ījire*—adoró; *ṛṣayaḥ*—grandes sabios; *apare*—otros; *pitaraḥ*—los antepasados; *vibhudhāḥ*—los eruditos entendidos; *daityāḥ*—grandes devotos de los semidioses; *manuṣyāḥ*—la humanidad; *kratubhiḥ vibhum*—por la ejecución de sacrificios para complacer al Señor Supremo.

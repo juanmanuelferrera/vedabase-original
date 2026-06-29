@@ -1,9 +1,9 @@
 ### CC Antya 9.148
 
-> তারা সবে যদি কৃপা করিতে সাধিল ।
+> তারা সবে যদি কৃপা করিতে সাধিল ।\
 > ‘আমা’ হৈতে কিছু নহে — প্রভু তবে কহিল ॥১৪৮॥
 
-> tārā sabe yadi kṛpā karite sādhila
+> tārā sabe yadi kṛpā karite sādhila\
 > 'āmā' haite kichu nahe—prabhu tabe kahila
 
 *tārā*—they; *sabe*—all; *yadi*—when; *kṛpā karite*—to show mercy; *sādhila*—requested; *āmā haite kichu nahe*—I cannot do anything; *prabhu*—Lord Caitanya; *tabe*—then; *kahila*—replied.

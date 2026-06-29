@@ -1,11 +1,11 @@
 ### SB 3.24.32
 
-> त्वां सूरिभिस्तत्त्वबुभुत्सयाद्धा सदाभिवादार्हणपादपीठम् ।
+> त्वां सूरिभिस्तत्त्वबुभुत्सयाद्धा सदाभिवादार्हणपादपीठम् ।\
 > ऐश्वर्यवैराग्ययशोऽवबोध वीर्यश्रिया पूर्तमहं प्रपद्ये ॥३२॥
 
-> tvāṁ sūribhis tattva-bubhutsayāddhā
-> sadābhivādārhaṇa-pāda-pīṭham
-> aiśvarya-vairāgya-yaśo-'vabodha-
+> tvāṁ sūribhis tattva-bubhutsayāddhā\
+> sadābhivādārhaṇa-pāda-pīṭham\
+> aiśvarya-vairāgya-yaśo-'vabodha-\
 > vīrya-śriyā pūrtam ahaṁ prapadye
 
 *tvām*—unto You; *sūribhiḥ*—by the great sages; *tattva*—the Absolute Truth; *bubhutsayā*—with a desire to understand; *addhā*—certainly; *sadā*—always; *abhivāda*—of worshipful respects; *arhaṇa*—which are worthy; *pāda*—of Your feet; *pīṭham*—to the seat; *aiśvarya*—opulence; *vairāgya*—renunciation; *yaśaḥ*—fame; *avabodha*—knowledge; *vīrya*—strength; *śriyā*—with beauty; *pūrtam*—who are full; *aham*—I; *prapadye*—surrender.

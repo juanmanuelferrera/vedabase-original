@@ -1,11 +1,11 @@
 ### SB 1.7.47
 
-> मा रोदीदस्य जननी गौतमी पतिदेवता ।
+> मा रोदीदस्य जननी गौतमी पतिदेवता ।\
 > यथाहं मृतवत्सार्ता रोदिम्यश्रुमुखी मुहुः ॥४७॥
 
-> mā rodīd asya jananī
-> gautamī pati-devatā
-> yathāhaṁ mṛta-vatsārtā
+> mā rodīd asya jananī\
+> gautamī pati-devatā\
+> yathāhaṁ mṛta-vatsārtā\
 > rodimy aśru-mukhī muhuḥ
 
 *mā*—no; *rodīt*—hagas llorar; *asya*—su; *jananī*—madre; *gautamī*—la esposa de Droṇa; *pati-devatā*—casta; *yathā*—como he; *aham*—yo misma; *mṛta-vatsā*—aquel cuyo hijo está muerto; *ārtā*—afligida; *rodimi*—llorando; *aśru-mukhī*—lágrimas en los ojos; *muhuḥ*—constantemente.

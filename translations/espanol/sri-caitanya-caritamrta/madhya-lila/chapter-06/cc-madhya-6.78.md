@@ -1,9 +1,9 @@
 ### CC Madhya 6.78
 
-> ‘ভট্টাচার্য তুমি ইঁহার না জান মহিমা ।
+> ‘ভট্টাচার্য তুমি ইঁহার না জান মহিমা ।\
 > ভগবত্তা-লক্ষণের ইঁহাতেই সীমা ॥৭৮॥
 
-> 'bhaṭṭācārya' tumi iṅhāra nā jāna mahimā
+> 'bhaṭṭācārya' tumi iṅhāra nā jāna mahimā\
 > bhagavattā-lakṣaṇera iṅhātei sīmā
 
 *bhaṭṭācārya*—mi querido Bhaṭṭācārya; *tumi*—tú; *iṅhāra*—del Señor Caitanya Mahāprabhu; *nā*—no; *jāna*—conoces; *mahimā*—la grandeza; *bhagavattā*—de ser la Suprema Personalidad de Dios; *lakṣaṇera*—de los síntomas; *iṅhātei*—en Él; *sīmā*—el grado más elevado.

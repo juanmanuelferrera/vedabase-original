@@ -1,11 +1,11 @@
 ### SB 1.6.31
 
-> अन्तर्बहिश्च लोकांस्त्रीन्पर्येम्यस्कन्दितव्रतः ।
+> अन्तर्बहिश्च लोकांस्त्रीन्पर्येम्यस्कन्दितव्रतः ।\
 > अनुग्रहान्महाविष्णोरविघातगतिः क्वचित् ॥३१॥
 
-> antar bahiś ca lokāṁs trīn
-> paryemy askandita-vrataḥ
-> anugrahān mahā-viṣṇor
+> antar bahiś ca lokāṁs trīn\
+> paryemy askandita-vrataḥ\
+> anugrahān mahā-viṣṇor\
 > avighāta-gatiḥ kvacit
 
 *antaḥ*—en el mundo trascendental; *bahiḥ*—en el mundo material; *ca*—y; *lokān*—planetas; *trīn*—tres (divisiones); *paryemi*—viajo; *askandita*—ininterrumpido; *vrataḥ*—voto; *anugrahāt*—por la misericordia sin causa; *mahā-viṣṇoḥ*—del Mahā Viṣṇu (Kāraṇodakaśāyī Viṣṇu); *avighāta*—sin restricción; *gatiḥ*—entrada; *kvacit*—en cualquier momento.

@@ -1,9 +1,9 @@
 ### CC Madhya 4.184
 
-> ম্লেচ্ছদেশ দূর পথ, জগাতি অপার ।
+> ম্লেচ্ছদেশ দূর পথ, জগাতি অপার ।\
 > কেমতে চন্দন নিব — নাহি এ বিচার ॥১৮৪॥
 
-> mleccha-deśa dūra patha, jagāti apāra
+> mleccha-deśa dūra patha, jagāti apāra\
 > ke-mate candana niba--nāhi e vicāra
 
 *mleccha-deśa*—los países gobernados por musulmanes; *dūra patha*—largo viaje; *jagāti*—vigilantes; *apāra*—innumerables; *ke-mate*—cómo; *candana*—el sándalo; *niba*—llevaré; *nāhi*—no hubo; *e*—esta; *vicāra*—consideración.

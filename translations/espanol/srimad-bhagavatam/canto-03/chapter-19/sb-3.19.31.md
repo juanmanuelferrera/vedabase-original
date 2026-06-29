@@ -1,13 +1,13 @@
 ### SB 3.19.31
 
-> मैत्रेय उवाच
-> एवं हिरण्याक्षमसह्यविक्रमं स सादयित्वा हरिरादिसूकरः ।
+> मैत्रेय उवाच\
+> एवं हिरण्याक्षमसह्यविक्रमं स सादयित्वा हरिरादिसूकरः ।\
 > जगाम लोकं स्वमखण्डितोत्सवं समीडितः पुष्करविष्टरादिभिः ॥३१॥
 
-> maitreya uvāca
-> evaṁ hiraṇyākṣam asahya-vikramaṁ
-> sa sādayitvā harir ādi-sūkaraḥ
-> jagāma lokaṁ svam akhaṇḍitotsavaṁ
+> maitreya uvāca\
+> evaṁ hiraṇyākṣam asahya-vikramaṁ\
+> sa sādayitvā harir ādi-sūkaraḥ\
+> jagāma lokaṁ svam akhaṇḍitotsavaṁ\
 > samīḍitaḥ puṣkara-viṣṭarādibhiḥ
 
 *maitreyaḥ uvāca*—Śrī Maitreya dijo; *evam*—de esta manera; *hiraṇyākṣam*—Hiraṇyākṣa; *asahya-vikramam*—muy poderoso; *saḥ*—el Señor; *sādayitvā*—tras matar; *hariḥ*—la Suprema Personalidad de Dios; *ādi-sūkaraḥ*—el origen de la especie de los jabalíes; *jagāma*—regresó; *lokam*—a Su morada; *svam*—propia; *akhaṇḍita*—ininterrumpido; *utsavam*—festival; *samīḍitaḥ*—siendo alabado; *puṣkara-viṣṭara*—asiento de loto (por Brahmā, cuyo asiento es un loto); *ādibhiḥ*—y los demás.

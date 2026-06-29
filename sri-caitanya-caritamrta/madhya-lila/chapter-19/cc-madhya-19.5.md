@@ -1,9 +1,9 @@
 ### CC Madhya 19.5
 
-> কৃষ্ণমন্ত্রে করাইল দুই পুরশ্চরণ ।
+> কৃষ্ণমন্ত্রে করাইল দুই পুরশ্চরণ ।\
 > অচিরাৎ পাইবারে চৈতন্য-চরণ ॥৫॥
 
-> kṛṣṇa-mantre karāila dui puraścaraṇa
+> kṛṣṇa-mantre karāila dui puraścaraṇa\
 > acirāt pāibāre caitanya-caraṇa
 
 *kṛṣṇa-mantre*—in the holy *mantra* Hare Kṛṣṇa; *karāila*—caused to perform; *dui*—two; *puraścaraṇa*—religious ceremonies; *acirāt*—without delay; *pāibāre*—to get; *caitanya-caraṇa*—the shelter of the lotus feet of Śrī Caitanya Mahāprabhu.

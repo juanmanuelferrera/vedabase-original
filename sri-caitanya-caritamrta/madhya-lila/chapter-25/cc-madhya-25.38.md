@@ -1,13 +1,13 @@
 ### CC Madhya 25.38
 
-> তদ্বা ইদং ভুবনমঙ্গল মঙ্গলায়
-> ধ্যানে স্ম নো দরশিতং ত উপাসকানাম্ ।
-> তস্মৈ নমো ভগবতেঽনুবিধেম তুভ্যং
+> তদ্বা ইদং ভুবনমঙ্গল মঙ্গলায়\
+> ধ্যানে স্ম নো দরশিতং ত উপাসকানাম্ ।\
+> তস্মৈ নমো ভগবতেঽনুবিধেম তুভ্যং\
 > যোঽনাদৃতো নরকভাগ ভিরসৎপ্ৰসঙ্গৈঃ ॥৩৮॥
 
-> tad vā idaṁ bhuvana-maṅgala maṅgalāya
-> dhyāne sma no daraśitaṁ ta upāsakānām
-> tasmai namo bhagavate 'nuvidhema tubhyaṁ
+> tad vā idaṁ bhuvana-maṅgala maṅgalāya\
+> dhyāne sma no daraśitaṁ ta upāsakānām\
+> tasmai namo bhagavate 'nuvidhema tubhyaṁ\
 > yo 'nādṛto naraka-bhāgbhir asat-prasaṅgaiḥ
 
 *tat*—that; *vā*—or; *idam*—this; *bhuvana-maṅgala*—O most auspicious of the entire world; *maṅgalāya*—for the benefit; *dhyāne*—in meditation; *sma*—certainly; *naḥ*—of us; *daraśitam*—manifested; *te*—by You; *upāsakānām*—of devotees engaged in devotional service; *tasmai*—unto Him; *namaḥ*—all obeisances; *bhagavate*—the Supreme Personality of Godhead; *anuvidhema*—we offer obeisances, following in the footsteps of the *ācāryas*; *tubhyam*—unto You; *yaḥ*—who is; *anādṛtaḥ*—not much appreciated; *naraka-bhāgbhiḥ*—by persons who are destined to go to a hellish condition of life; *asat-prasaṅgaiḥ*—who discuss the Supreme Personality of Godhead illogically.

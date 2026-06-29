@@ -1,11 +1,11 @@
 ### SB 5.19.7
 
-> न जन्म नूनं महतो न सौभगं न वाङ्न बुद्धिर्नाकृतिस्तोषहेतुः
+> न जन्म नूनं महतो न सौभगं न वाङ्न बुद्धिर्नाकृतिस्तोषहेतुः\
 > तैर्यद्विसृष्टानपि नो वनौकसश्चकार सख्ये बत लक्ष्मणाग्रजः ॥७॥
 
-> na janma nūnaṁ mahato na saubhagaṁ
-> na vāṅ na buddhir nākṛtis toṣa-hetuḥ
-> tair yad visṛṣṭān api no vanaukasaś
+> na janma nūnaṁ mahato na saubhagaṁ\
+> na vāṅ na buddhir nākṛtis toṣa-hetuḥ\
+> tair yad visṛṣṭān api no vanaukasaś\
 > cakāra sakhye bata lakṣmaṇāgrajaḥ
 
 *na*—not; *janma*—birth in a very polished, aristocratic family; *nūnam*—indeed; *mahataḥ*—of the Supreme Personality of Godhead; *na*—nor; *saubhagam*—great fortune; *na*—nor; *vāk*—an elegant manner of speaking; *na*—nor; *buddhiḥ*—sharpness of intelligence; *na*—not; *ākṛtiḥ*—features of the body; *toṣa-hetuḥ*—the cause of pleasure to the Lord; *taiḥ*—by all those above-mentioned qualities; *yat*—because; *visṛṣṭān*—rejected; *api*—although; *naḥ*—us; *vana-okasaḥ*—the inhabitants of the forest; *cakāra*—accepted; *sakhye*—in friendship; *bata*—alas; *lakṣmaṇa-agra-jaḥ*—Lord Śrī Rāmacandra, the elder brother of Lakṣmaṇa.

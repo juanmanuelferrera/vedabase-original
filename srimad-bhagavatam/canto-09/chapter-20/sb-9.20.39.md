@@ -1,11 +1,11 @@
 ### SB 9.20.39
 
-> चोद्यमाना सुरैरेवं मत्वा वितथमात्मजम
+> चोद्यमाना सुरैरेवं मत्वा वितथमात्मजम\
 > व्यसृजन्मरुतोऽबिभ्रन्दत्तोऽयं वितथेऽन्वये ॥३९॥
 
-> codyamānā surair evaṁ
-> matvā vitatham ātmajam
-> vyasṛjan maruto 'bibhran
+> codyamānā surair evaṁ\
+> matvā vitatham ātmajam\
+> vyasṛjan maruto 'bibhran\
 > datto 'yaṁ vitathe 'nvaye
 
 *codyamānā*—although Mamatā was encouraged (to maintain the child); *suraiḥ*—by the demigods; *evam*—in this way; *matvā*—considering; *vitatham*—purposeless; *ātmajam*—her own child; *vyasṛjat*—rejected; *marutaḥ*—the demigods known as the Maruts; *abibhran*—maintained (the child); *dattaḥ*—the same child was given; *ayam*—this; *vitathe*—was disappointed; *anvaye*—when the dynasty of Mahārāja Bharata.

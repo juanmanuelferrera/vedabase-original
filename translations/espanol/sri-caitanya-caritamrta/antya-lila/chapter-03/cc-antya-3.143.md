@@ -1,9 +1,9 @@
 ### CC Antya 3.143
 
-> বেশ্যার চরিত্র দেখি’ লোকে চমৎকার ।
+> বেশ্যার চরিত্র দেখি’ লোকে চমৎকার ।\
 > হরিদাসের মহিমা কহে করি’ নমস্কার ॥১৪৩॥
 
-> veśyāra caritra dekhi' loke camatkāra
+> veśyāra caritra dekhi' loke camatkāra\
 > haridāsera mahimā kahe kari' namaskāra
 
 *veśyāra*—de la prostituta; *caritra*—carácter; *dekhi'*—viendo; *loke*—todas las personas; *camatkāra*—asombradas; *haridāsera*—de Ṭhākura Haridāsa; *mahimā*—glorias; *kahe*—hablan; *kari' namaskāra*—ofreciendo reverencias.

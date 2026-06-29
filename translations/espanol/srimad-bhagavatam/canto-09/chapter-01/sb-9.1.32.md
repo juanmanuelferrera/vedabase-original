@@ -1,11 +1,11 @@
 ### SB 9.1.32
 
-> तदिदं भगवानाह प्रियायाः प्रियकाम्यया
+> तदिदं भगवानाह प्रियायाः प्रियकाम्यया\
 > स्थानं यः प्रविशेदेतत्स वै योषिद्भवेदिति ॥३२॥
 
-> tad idaṁ bhagavān āha
-> priyāyāḥ priya-kāmyayā
-> sthānaṁ yaḥ praviśed etat
+> tad idaṁ bhagavān āha\
+> priyāyāḥ priya-kāmyayā\
+> sthānaṁ yaḥ praviśed etat\
 > sa vai yoṣid bhaved iti
 
 *tat*—debido a; *idam*—esto; *bhagavān*—el Señor Śiva; *āha*—dijo; *priyāyāḥ*—de su querida esposa; *priya-kāmyayā*—para el placer; *sthānam*—lugar; *yaḥ*—todo aquel que; *praviśet*—entre; *etat*—aquí; *saḥ*—esa persona; *vai*—en verdad; *yoṣit*—mujer; *bhavet*—se volverá; *iti*—así.

@@ -1,13 +1,13 @@
 ### CC Antya 17.72
 
-> অনুদঘাট্য দ্বারত্রয়মুরু চ ভিত্তিত্রয়মহো
-> বিলঙ্ঘ্যোচ্চৈঃ কালিঙ্গিক-সুরভিমধ্যে নিপতিতঃ ।
-> তনূদ্যৎসঙ্কোচাৎ কমঠ ইব কৃষ্ণোরুবিরহাদ্
+> অনুদঘাট্য দ্বারত্রয়মুরু চ ভিত্তিত্রয়মহো\
+> বিলঙ্ঘ্যোচ্চৈঃ কালিঙ্গিক-সুরভিমধ্যে নিপতিতঃ ।\
+> তনূদ্যৎসঙ্কোচাৎ কমঠ ইব কৃষ্ণোরুবিরহাদ্\
 > বিরাজন্ গৌরাঙ্গো হৃদয় উদয়ন্মাং মদয়তি ॥৭২॥
 
-> anudghāṭya dvāra-trayam uru ca bhitti-trayam aho
-> vilaṅghyoccaiḥ kāliṅgika-surabhi-madhye nipatitaḥ
-> tanūdyat-saṅkocāt kamaṭha iva kṛṣṇoru-virahād
+> anudghāṭya dvāra-trayam uru ca bhitti-trayam aho\
+> vilaṅghyoccaiḥ kāliṅgika-surabhi-madhye nipatitaḥ\
+> tanūdyat-saṅkocāt kamaṭha iva kṛṣṇoru-virahād\
 > virājan gaurāṅgo hṛdaya udayan māṁ madayati
 
 *anudghāṭya*—without opening; *dvāra-trayam*—the three doors; *uru*—strong; *ca*—and; *bhitti-trayam*—three walls; *aho*—how wonderful; *vilaṅghya*—crossing over; *uccaiḥ*—very high; *kāliṅgika*—of Kāliṅga-deśa, which is in the district of Tailaṅga; *surabhi-madhye*—among the cows; *nipatitaḥ*—fallen down; *tanu-udyat-saṅkocāt*—by contracting within the body; *kamaṭhaḥ*—a tortoise; *iva*—like; *kṛṣṇa-uru-virahāt*—because of strong feelings of separation from Kṛṣṇa; *virājan*—appearing; *gaurāṅgaḥ*—Lord Śrī Caitanya Mahāprabhu; *hṛdaye*—in my heart; *udayan*—rising; *mām*—me; *madayati*—maddens.

@@ -1,9 +1,9 @@
 ### CC Antya 5.106
 
-> কৃষ্ণলীলা, গৌরলীলা সে করে বর্ণন ।
+> কৃষ্ণলীলা, গৌরলীলা সে করে বর্ণন ।\
 > গৌর-পাদপদ্ম যাঁর হয় প্রাণ-ধন ॥১০৬॥
 
-> kṛṣṇa-līlā, gaura-līlā se kare varṇana
+> kṛṣṇa-līlā, gaura-līlā se kare varṇana\
 > gaura-pāda-padma yāṅra haya prāṇa-dhana
 
 *kṛṣṇa-līlā*—los pasatiempos del Señor Kṛṣṇa; *gaura-līlā*—los pasatiempos del Señor Śrī Caitanya Mahāprabhu; *se*—él; *kare varṇana*—describe; *gaura-pāda-padma*—los pies de loto del Señor Śrī Caitanya Mahāprabhu; *yāṅra*—cuya; *haya*—es; *prāṇa-dhana*—la vida y el alma.

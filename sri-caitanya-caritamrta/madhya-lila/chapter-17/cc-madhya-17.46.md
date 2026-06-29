@@ -1,9 +1,9 @@
 ### CC Madhya 17.46
 
-> ‘ঝাড়িখণ্ডে’ স্থাবর-জঙ্গম আছে যত ।
+> ‘ঝাড়িখণ্ডে’ স্থাবর-জঙ্গম আছে যত ।\
 > কৃষ্ণনাম দিয়া কৈল প্রেমেতে উন্মত্ত ॥৪৬॥
 
-> 'jhārikhaṇḍe' sthāvara-jaṅgama āche yata
+> 'jhārikhaṇḍe' sthāvara-jaṅgama āche yata\
 > kṛṣṇa-nāma diyā kaila premete unmatta
 
 *jhārikhaṇḍe*—in the place known as Jhārikhaṇḍa; *sthāvara-jaṅgama*—moving and not moving; *āche*—there are; *yata*—all; *kṛṣṇa-nāma diyā*—giving them the holy name of Lord Kṛṣṇa; *kaila*—made; *premete*—in ecstasy; *unmatta*—mad.

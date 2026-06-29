@@ -1,13 +1,13 @@
 ### SB 7.9.48
 
-> त्वं वायुरग्निरवनिर्वियदम्बु मात्राः
-> प्राणेन्द्रियाणि हृदयं चिदनुग्रहश्च
-> सर्वं त्वमेव सगुणो विगुणश्च भूमन
+> त्वं वायुरग्निरवनिर्वियदम्बु मात्राः\
+> प्राणेन्द्रियाणि हृदयं चिदनुग्रहश्च\
+> सर्वं त्वमेव सगुणो विगुणश्च भूमन\
 > नान्यत्त्वदस्त्यपि मनोवचसा निरुक्तम ॥४८॥
 
-> tvaṁ vāyur agnir avanir viyad ambu mātrāḥ
-> prāṇendriyāṇi hṛdayaṁ cid anugrahaś ca
-> sarvaṁ tvam eva saguṇo viguṇaś ca bhūman
+> tvaṁ vāyur agnir avanir viyad ambu mātrāḥ\
+> prāṇendriyāṇi hṛdayaṁ cid anugrahaś ca\
+> sarvaṁ tvam eva saguṇo viguṇaś ca bhūman\
 > nānyat tvad asty api mano-vacasā niruktam
 
 *tvam*—Tú (eres); *vāyuḥ*—el aire; *agniḥ*—el fuego; *avaniḥ*—la tierra; *viyat*—el cielo; *ambu*—el agua; *mātrāḥ*—los objetos de los sentidos; *prāṇa*—los aires vitales; *indriyāṇi*—los sentidos; *hṛdayam*—la mente; *cit*—la conciencia; *anugrahaḥ ca*—y el ego falso, o los semidioses; *sarvam*—todo; *tvam*—Tú; *eva*—solamente; *sa-guṇaḥ*—la naturaleza material con sus tres modalidades; *viguṇaḥ*—la chispa espiritual y la Superalma, que están más allá de la naturaleza material; *ca*—y; *bhūman*—¡oh, mi gran Señor!; *na*—no; *anyat*—otro; *tvat*—que Tú; *asti*—es; *api*—aunque; *manaḥ-vacasā*—con la mente y las palabras; *niruktam*—todo lo manifestado.

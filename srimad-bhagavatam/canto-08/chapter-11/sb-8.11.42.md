@@ -1,11 +1,11 @@
 ### SB 8.11.42
 
-> अन्येऽप्येवं प्रतिद्वन्द्वान्वाय्वग्निवरुणादयः
+> अन्येऽप्येवं प्रतिद्वन्द्वान्वाय्वग्निवरुणादयः\
 > सूदयामासुरसुरान्मृगान्केसरिणो यथा ॥४२॥
 
-> anye 'py evaṁ pratidvandvān
-> vāyv-agni-varuṇādayaḥ
-> sūdayām āsur asurān
+> anye 'py evaṁ pratidvandvān\
+> vāyv-agni-varuṇādayaḥ\
+> sūdayām āsur asurān\
 > mṛgān kesariṇo yathā
 
 *anye*—others; *api*—also; *evam*—in this way; *pratidvandvān*—the opposing party of belligerants; *vāyu*—the demigod known as Vāyu; *agni*—the demigod known as Agni; *varuṇa-ādayaḥ*—the demigod known as Varuṇa and others; *sūdayām āsuḥ*—began to kill vigorously; *asurān*—all the demons; *mṛgān*—deer; *kesariṇaḥ*—lions; *yathā*—just as.

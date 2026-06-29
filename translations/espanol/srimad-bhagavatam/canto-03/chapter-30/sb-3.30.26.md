@@ -1,11 +1,11 @@
 ### SB 3.30.26
 
-> जीवतश्चान्त्राभ्युद्धारः श्वगृध्रैर्यमसादने ।
+> जीवतश्चान्त्राभ्युद्धारः श्वगृध्रैर्यमसादने ।\
 > सर्पवृश्चिकदंशाद्यैर्दशद्भिश्चात्मवैशसम् ॥२६॥
 
-> jīvataś cāntrābhyuddhāraḥ
-> śva-gṛdhrair yama-sādane
-> sarpa-vṛścika-daṁśādyair
+> jīvataś cāntrābhyuddhāraḥ\
+> śva-gṛdhrair yama-sādane\
+> sarpa-vṛścika-daṁśādyair\
 > daśadbhiś cātma-vaiśasam
 
 *jīvataḥ*—vivo; *ca*—y; *antra*—de sus entrañas; *abhyuddhāraḥ*—arrancar; *śva-gṛdhraiḥ*—por perros y buitres; *yama-sādane*—en la morada de Yamarāja; *sarpa*—por serpientes; *vṛścika*—escorpiones; *daṁśa*—mosquitos; *ādyaiḥ*—y otros; *daśadbhiḥ*—morder; *ca*—y; *ātma-vaiśasam*—tormento de su persona.

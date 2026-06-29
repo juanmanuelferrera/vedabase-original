@@ -1,25 +1,25 @@
 ### SB 3.21.52-54
 
-> न यदा रथमास्थाय जैत्रं मणिगणार्पितम् ।
-> विस्फूर्जच्चण्डकोदण्डो रथेन त्रासयन्नघान् ॥५२॥
-> स्वसैन्यचरणक्षुण्णं वेपयन्मण्डलं भुवः ।
-> विकर्षन्बृहतीं सेनां पर्यटस्यंशुमानिव ॥५३॥
-> तदैव सेतवः सर्वे वर्णाश्रमनिबन्धनाः ।
+> न यदा रथमास्थाय जैत्रं मणिगणार्पितम् ।\
+> विस्फूर्जच्चण्डकोदण्डो रथेन त्रासयन्नघान् ॥५२॥\
+> स्वसैन्यचरणक्षुण्णं वेपयन्मण्डलं भुवः ।\
+> विकर्षन्बृहतीं सेनां पर्यटस्यंशुमानिव ॥५३॥\
+> तदैव सेतवः सर्वे वर्णाश्रमनिबन्धनाः ।\
 > भगवद्रचिता राजन्भिद्येरन्बत दस्युभिः ॥५४॥
 
-> na yadā ratham āsthāya
-> jaitraṁ maṇi-gaṇārpitam
-> visphūrjac-caṇḍa-kodaṇḍo
+> na yadā ratham āsthāya\
+> jaitraṁ maṇi-gaṇārpitam\
+> visphūrjac-caṇḍa-kodaṇḍo\
 > rathena trāsayann aghān
 
-> sva-sainya-caraṇa-kṣuṇṇaṁ
-> vepayan maṇḍalaṁ bhuvaḥ
-> vikarṣan bṛhatīṁ senāṁ
+> sva-sainya-caraṇa-kṣuṇṇaṁ\
+> vepayan maṇḍalaṁ bhuvaḥ\
+> vikarṣan bṛhatīṁ senāṁ\
 > paryaṭasy aṁśumān iva
 
-> tadaiva setavaḥ sarve
-> varṇāśrama-nibandhanāḥ
-> bhagavad-racitā rājan
+> tadaiva setavaḥ sarve\
+> varṇāśrama-nibandhanāḥ\
+> bhagavad-racitā rājan\
 > bhidyeran bata dasyubhiḥ
 
 *na*—no; *yadā*—cuando; *ratham*—en el carruaje; *āsthāya*—habiendo montado; *jaitram*—victorioso; *maṇi*—de joyas; *gaṇa*—con adornos; *arpitam*—guarnecido; *visphūrjat*—tañendo; *caṇḍa*—un temible sonido, apropiado para castigar a criminales; *kodaṇḍaḥ*—arco; *rathena*—con la presencia de ese carro; *trāsayan*—amenazando; *aghān*—a todos los delincuentes; *sva-sainya*—de tus soldados; *caraṇa*—con los pies; *kṣuṇṇam*—marcando el paso; *vepayan*—haciendo temblar; *maṇḍalam*—el globo; *bhuvaḥ*—de la Tierra; *vikarṣan*—dirigiendo; *bṛhatīm*—gran; *senām*—ejército; *paryaṭasi*—tú patrullas; *aṁśumān*—el brillante Sol; *iva*—como; *tadā*—entonces; *eva*—ciertamente; *setavaḥ*—códigos religiosos; *sarve*—todos; *varṇa*—de *varṇas*; *āśrama*—de *āśramas*; *nibandhanāḥ*—obligaciones; *bhagavat*—por el Señor; *racitāḥ*—creados; *rājan*—¡oh, rey!; *bhidyeran*—las romperían; *bata*—¡ay!; *dasyubhiḥ*—los granujas.

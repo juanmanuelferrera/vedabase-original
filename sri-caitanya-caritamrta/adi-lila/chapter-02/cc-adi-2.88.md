@@ -1,9 +1,9 @@
 ### CC Adi 2.88
 
-> যাঁর ভগবত্তা হৈতে অন্যের ভগবত্তা ।
+> যাঁর ভগবত্তা হৈতে অন্যের ভগবত্তা ।\
 > ‘স্বয়ং-ভগবান্’-শব্দের তাহাতেই সত্তা ॥৮৮॥
 
-> yāṅra bhagavattā haite anyera bhagavattā
+> yāṅra bhagavattā haite anyera bhagavattā\
 > 'svayaṁ-bhagavān'-śabdera tāhātei sattā
 
 *yāṅra*—of whom; *bhagavattā*—the quality of being the Supreme Personality of Godhead; *haite*—from; *anyera*—of others; *bhagavattā*—the quality of being the Supreme Personality of Godhead; *svayam-bhagavān-śabdera*—of the word *svayaṁ-bhagavān*; *tāhātei*—in that; *sattā*—the presence.

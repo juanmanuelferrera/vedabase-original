@@ -1,11 +1,11 @@
 ### SB 3.28.13
 
-> प्रसन्नवदनाम्भोजं पद्मगर्भारुणेक्षणम् ।
+> प्रसन्नवदनाम्भोजं पद्मगर्भारुणेक्षणम् ।\
 > नीलोत्पलदलश्यामं शङ्खचक्रगदाधरम् ॥१३॥
 
-> prasanna-vadanāmbhojaṁ
-> padma-garbhāruṇekṣaṇam
-> nīlotpala-dala-śyāmaṁ
+> prasanna-vadanāmbhojaṁ\
+> padma-garbhāruṇekṣaṇam\
+> nīlotpala-dala-śyāmaṁ\
 > śaṅkha-cakra-gadā-dharam
 
 *prasanna*—cheerful; *vadana*—countenance; *ambhojam*—lotuslike; *padma-garbha*—the interior of a lotus; *aruṇa*—ruddy; *īkṣaṇam*—with eyes; *nīla-utpala*—blue lotus; *dala*—petals; *śyāmam*—swarthy; *śaṅkha*—conch; *cakra*—discus; *gadā*—club; *dharam*—bearing.

@@ -1,11 +1,11 @@
 ### SB 8.11.17
 
-> तस्य तत्पूजयन्कर्म यन्तुर्दानवसत्तमः
+> तस्य तत्पूजयन्कर्म यन्तुर्दानवसत्तमः\
 > शूलेन ज्वलता तं तु स्मयमानोऽहनन्मृधे ॥१७॥
 
-> tasya tat pūjayan karma
-> yantur dānava-sattamaḥ
-> śūlena jvalatā taṁ tu
+> tasya tat pūjayan karma\
+> yantur dānava-sattamaḥ\
+> śūlena jvalatā taṁ tu\
 > smayamāno 'hanan mṛdhe
 
 *tasya*—of Mātali; *tat*—that service (bringing the chariot before Indra); *pūjayan*—appreciating; *karma*—such service to the master; *yantuḥ*—of the chariot driver; *dānava-sat-tamaḥ*—the best of the demons, namely Jambhāsura; *śūlena*—by his trident; *jvalatā*—which was blazing fire; *tam*—Mātali; *tu*—indeed; *smayamānaḥ*—smiling; *ahanat*—struck; *mṛdhe*—in the battle.

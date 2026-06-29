@@ -1,9 +1,9 @@
 ### CC Adi 8.39
 
-> মনুষ্যে রচিতে নারে ঐছে গ্রন্থ ধন্য ।
+> মনুষ্যে রচিতে নারে ঐছে গ্রন্থ ধন্য ।\
 > বৃন্দাবনদাস-মুখে বক্তা শ্রীচৈতন্য ॥৩৯॥
 
-> manuṣye racite nāre aiche grantha dhanya
+> manuṣye racite nāre aiche grantha dhanya\
 > vṛndāvana-dāsa-mukhe vaktā śrī-caitanya
 
 *manuṣye*—un ser humano; *racite*—compilar; *nāre*—no puede; *aiche*—tal; *grantha*—libro; *dhanya*—tan glorioso; *vṛndāvana-dāsa*—el autor, Śrīla Vṛndāvana dāsa Ṭhākura; *mukhe*—de su boca; *vaktā*—orador; *śrī-caitanya*—el Señor Śrī Caitanya Mahāprabhu.

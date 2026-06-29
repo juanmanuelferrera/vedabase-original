@@ -1,9 +1,9 @@
 ### CC Antya 3.166
 
-> হিরণ্য, গোবর্ধন — দুই মুলুকের মজুমদার ।
+> হিরণ্য, গোবর্ধন — দুই মুলুকের মজুমদার ।\
 > তার পুরোহিত — ‘বলরাম’ নাম তাঁর ॥১৬৬॥
 
-> hiraṇya, govardhana--dui mulukera majumadāra
+> hiraṇya, govardhana--dui mulukera majumadāra\
 > tāra purohita--'balarāma' nāma tāṅra
 
 *hiraṇya*—Hiraṇya; *govardhana*—Govardhana; *dui*—dos; *mulukera*—de ese país; *majumadāra*—tesoreros del gobierno; *tāra*—su; *purohita*—sacerdote; *balarāma*—Balarāma; *nāma*—nombre; *tāṅra*—su.

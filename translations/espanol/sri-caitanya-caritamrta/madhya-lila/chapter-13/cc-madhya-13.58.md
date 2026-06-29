@@ -1,9 +1,9 @@
 ### CC Madhya 13.58
 
-> সার্বভৌম-সঙ্গে রাজা করে ঠারাঠারি ।
+> সার্বভৌম-সঙ্গে রাজা করে ঠারাঠারি ।\
 > আর কেহ নাহি জানে চৈতন্যের চুরি ॥৫৮॥
 
-> sārvabhauma-saṅge rājā kare ṭhārāṭhāri
+> sārvabhauma-saṅge rājā kare ṭhārāṭhāri\
 > āra keha nāhi jāne caitanyera curi
 
 *sārvabhauma-saṅge*—con Sārvabhauma Bhaṭṭācārya; *rājā*—el rey; *kare*—hace; *ṭhārāṭhāri*—señas; *āra*—además; *keha*—nadie; *nāhi*—no; *jāne*—conoce; *caitanyera*—del Señor Śrī Caitanya Mahāprabhu; *curi*—trucos.

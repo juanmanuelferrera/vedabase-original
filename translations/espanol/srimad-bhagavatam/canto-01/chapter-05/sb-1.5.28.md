@@ -1,11 +1,11 @@
 ### SB 1.5.28
 
-> इत्थं शरत्प्रावृषिकावृतू हरेर्विशृण्वतो मेऽनुसवं यशोऽमलम् ।
+> इत्थं शरत्प्रावृषिकावृतू हरेर्विशृण्वतो मेऽनुसवं यशोऽमलम् ।\
 > सङ्कीर्त्यमानं मुनिभिर्महात्मभिर्भक्तिः प्रवृत्तात्मरजस्तमोपहा ॥२८॥
 
-> itthaṁ śarat-prāvṛṣikāv ṛtū harer
-> viśṛṇvato me 'nusavaṁ yaśo 'malam
-> saṅkīrtyamānaṁ munibhir mahātmabhir
+> itthaṁ śarat-prāvṛṣikāv ṛtū harer\
+> viśṛṇvato me 'nusavaṁ yaśo 'malam\
+> saṅkīrtyamānaṁ munibhir mahātmabhir\
 > bhaktiḥ pravṛttātma-rajas-tamopahā
 
 *ittham*—así pues; *śarat*—otoño; *prāvṛṣikau*—estación lluviosa; *ṛtū*—dos estaciones; *hareḥ*—del Señor; *viśṛṇvataḥ*—oyendo continuamente; *me*—yo mismo; *anusavam*—constantemente; *yaśaḥ amalam*—glorias puras; *saṅkīrtyamānam*—cantadas por; *munibhiḥ*—los grandes sabios; *mahā-ātmabhiḥ*—grandes almas; *bhaktiḥ*—servicio devocional; *pravṛttā*—comenzó a fluir; *ātma*—ser viviente; *rajaḥ*—modalidad de la pasión; *tama*—modalidad de la ignorancia; *upahā*—desvaneciéndose.

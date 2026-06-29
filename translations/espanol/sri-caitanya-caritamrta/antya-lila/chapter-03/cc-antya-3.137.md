@@ -1,9 +1,9 @@
 ### CC Antya 3.137
 
-> নিরন্তর নাম লও, কর তুলসী সেবন ।
+> নিরন্তর নাম লও, কর তুলসী সেবন ।\
 > অচিরাৎ পাবে তবে কৃষ্ণের চরণ ।।” ॥ ১৩৭ ॥
 
-> nirantara nāma lao, kara tulasī sevana
+> nirantara nāma lao, kara tulasī sevana\
 > acirāt pābe tabe kṛṣṇera caraṇa"
 
 *nirantara*—las veinticuatro horas del día; *nāma lao*—canta el mahā-mantra Hare Kṛṣṇa; *kara*—realiza; *tulasī sevana*—adoración de la planta de tulasī; *acirāt*—muy pronto; *pābe*—obtendrás; *tabe*—entonces; *kṛṣṇera caraṇa*—los pies de loto de Kṛṣṇa.

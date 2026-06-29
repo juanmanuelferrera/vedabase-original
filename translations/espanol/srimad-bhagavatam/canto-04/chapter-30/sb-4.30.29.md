@@ -1,11 +1,11 @@
 ### SB 4.30.29
 
-> येनोपशान्तिर्भूतानां क्षुल्लकानामपीहताम् ।
+> येनोपशान्तिर्भूतानां क्षुल्लकानामपीहताम् ।\
 > अन्तर्हितोऽन्तर्हृदये कस्मान्नो वेद नाशिषः ॥२९॥
 
-> yenopaśāntir bhūtānāṁ
-> kṣullakānām apīhatām
-> antarhito 'ntar-hṛdaye
+> yenopaśāntir bhūtānāṁ\
+> kṣullakānām apīhatām\
+> antarhito 'ntar-hṛdaye\
 > kasmān no veda nāśiṣaḥ
 
 *yena*—proceso por el cual; *upaśāntiḥ*—satisfacción de todos los deseos; *bhūtānām*—de las entidades vivientes; *kṣullakānām*—muy caídas; *api*—aunque; *īhatām*—desear muchas cosas; *antarhitaḥ*—ocultas; *antaḥ-hṛdaye*—en lo profundo del corazón; *kasmāt*—por qué; *naḥ*—nuestros; *veda*—conoce; *na*—no; *āśiṣaḥ*—deseos.

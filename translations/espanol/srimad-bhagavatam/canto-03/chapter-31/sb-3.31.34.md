@@ -1,11 +1,11 @@
 ### SB 3.31.34
 
-> तेष्वशान्तेषु मूढेषु खण्डितात्मस्वसाधुषु ।
+> तेष्वशान्तेषु मूढेषु खण्डितात्मस्वसाधुषु ।\
 > सङ्गं न कुर्याच्छोच्येषु योषित्क्रीडामृगेषु च ॥३४॥
 
-> teṣv aśānteṣu mūḍheṣu
-> khaṇḍitātmasv asādhuṣu
-> saṅgaṁ na kuryāc chocyeṣu
+> teṣv aśānteṣu mūḍheṣu\
+> khaṇḍitātmasv asādhuṣu\
+> saṅgaṁ na kuryāc chocyeṣu\
 > yoṣit-krīḍā-mṛgeṣu ca
 
 *teṣu*—con aquellos; *aśānteṣu*—groseros; *mūḍheṣu*—necios; *khaṇḍita-ātmasu*—carentes de autorrealización; *asādhuṣu*—malvados; *saṅgam*—relación; *na*—no; *kuryāt*—debe hacer; *śocyeṣu*—despreciables; *yoṣit*—de mujeres; *krīḍā-mṛgeṣu*—perros bailarines; *ca*—y.

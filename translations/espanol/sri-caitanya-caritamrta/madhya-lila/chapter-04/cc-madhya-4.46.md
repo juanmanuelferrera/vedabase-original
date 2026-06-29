@@ -1,9 +1,9 @@
 ### CC Madhya 4.46
 
-> ক্ষণেক রোদন করি, মন কৈল ধীর ।
+> ক্ষণেক রোদন করি, মন কৈল ধীর ।\
 > আজ্ঞা-পালন লাগি’ হইলা সুস্থির ॥৪৬॥
 
-> kṣaṇeka rodana kari, mana kaila dhīra
+> kṣaṇeka rodana kari, mana kaila dhīra\
 > ājñā-pālana lāgi' ha-ilā susthira
 
 *kṣaṇeka*—durante algún tiempo; *rodana kari*—llorando; *mana*—la mente; *kaila*—hizo; *dhīra*—calmada; *ājñā*—la orden; *pālana*—de cumplir; *lāgi'*—con el fin de; *ha-ilā*—se volvió; *su-sthira*—sereno.

@@ -1,11 +1,11 @@
 ### SB 4.2.13
 
-> लुप्तक्रियायाशुचये मानिने भिन्नसेतवे ।
+> लुप्तक्रियायाशुचये मानिने भिन्नसेतवे ।\
 > अनिच्छन्नप्यदां बालां शूद्रायेवोशतीं गिरम् ॥१३॥
 
-> lupta-kriyāyāśucaye
-> mānine bhinna-setave
-> anicchann apy adāṁ bālāṁ
+> lupta-kriyāyāśucaye\
+> mānine bhinna-setave\
+> anicchann apy adāṁ bālāṁ\
 > śūdrāyevośatīṁ giram
 
 *lupta-kriyāya*—not observing rules and regulations; *aśucaye*—impure; *mānine*—proud; *bhinna-setave*—having broken all rules of civility; *anicchan*—not desiring; *api*—although; *adām*—handed over; *bālām*—my daughter; *śūdrāya*—unto a *śūdra*; *iva*—as; *uśatīm giram*—the message of the *Vedas.*

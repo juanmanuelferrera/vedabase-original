@@ -1,11 +1,11 @@
 ### SB 3.4.19
 
-> इत्यावेदितहार्दाय मह्यं स भगवान्परः ।
+> इत्यावेदितहार्दाय मह्यं स भगवान्परः ।\
 > आदिदेशारविन्दाक्ष आत्मनः परमां स्थितिम् ॥१९॥
 
-> ity āvedita-hārdāya
-> mahyaṁ sa bhagavān paraḥ
-> ādideśāravindākṣa
+> ity āvedita-hārdāya\
+> mahyaṁ sa bhagavān paraḥ\
+> ādideśāravindākṣa\
 > ātmanaḥ paramāṁ sthitim
 
 *iti āvedita*—thus being prayed to by me; *hārdāya*—from the core of my heart; *mahyam*—unto me; *saḥ*—He; *bhagavān*—the Personality of Godhead; *paraḥ*—Supreme; *ādideśa*—instructed; *aravinda-akṣaḥ*—the lotus-eyed; *ātmanaḥ*—of Himself; *paramām*—transcendental; *sthitim*—situation.

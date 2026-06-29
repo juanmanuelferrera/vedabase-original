@@ -1,11 +1,11 @@
 ### SB 4.25.45
 
-> सप्तोपरि कृता द्वारः पुरस्तस्यास्तु द्वे अधः ।
+> सप्तोपरि कृता द्वारः पुरस्तस्यास्तु द्वे अधः ।\
 > पृथग्विषयगत्यर्थं तस्यां यः कश्चनेश्वरः ॥४५॥
 
-> saptopari kṛtā dvāraḥ
-> puras tasyās tu dve adhaḥ
-> pṛthag-viṣaya-gaty-arthaṁ
+> saptopari kṛtā dvāraḥ\
+> puras tasyās tu dve adhaḥ\
+> pṛthag-viṣaya-gaty-arthaṁ\
 > tasyāṁ yaḥ kaścaneśvaraḥ
 
 *sapta*—seven; *upari*—up; *kṛtāḥ*—made; *dvāraḥ*—gates; *puraḥ*—of the city; *tasyāḥ*—that; *tu*—then; *dve*—two; *adhaḥ*—down; *pṛthak*—different; *viṣaya*—to places; *gati-artham*—for going; *tasyām*—in that city; *yaḥ*—one who; *kaścana*—whoever; *īśvaraḥ*—governor.

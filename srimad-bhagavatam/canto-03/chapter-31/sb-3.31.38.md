@@ -1,11 +1,11 @@
 ### SB 3.31.38
 
-> बलं मे पश्य मायायाः स्त्रीमय्या जयिनो दिशाम् ।
+> बलं मे पश्य मायायाः स्त्रीमय्या जयिनो दिशाम् ।\
 > या करोति पदाक्रान्तान्भ्रूविजृम्भेण केवलम् ॥३८॥
 
-> balaṁ me paśya māyāyāḥ
-> strī-mayyā jayino diśām
-> yā karoti padākrāntān
+> balaṁ me paśya māyāyāḥ\
+> strī-mayyā jayino diśām\
+> yā karoti padākrāntān\
 > bhrūvi-jṛmbheṇa kevalam
 
 *balam*—the strength; *me*—My; *paśya*—behold; *māyāyāḥ*—of *māyā*; *strī-mayyāḥ*—in the shape of a woman; *jayinaḥ*—conquerors; *diśām*—of all directions; *yā*—who; *karoti*—makes; *pada-ākrāntān*—following at her heels; *bhrūvi*—of her eyebrows; *jṛmbheṇa*—by the movement; *kevalam*—merely.

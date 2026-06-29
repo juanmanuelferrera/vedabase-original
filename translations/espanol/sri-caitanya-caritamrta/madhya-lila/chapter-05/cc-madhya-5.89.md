@@ -1,9 +1,9 @@
 ### CC Madhya 5.89
 
-> কন্যা পাব, — মোর মনে ইহা নাহি সুখ ।
+> কন্যা পাব, — মোর মনে ইহা নাহি সুখ ।\
 > ব্রাহ্মণের প্রতিজ্ঞা যায় — এই বড় দুঃখ ॥৮৯॥
 
-> kanyā pāba,--mora mane ihā nāhi sukha
+> kanyā pāba,--mora mane ihā nāhi sukha\
 > brāhmaṇera pratijñā yāya--ei baḍa duḥkha
 
 *kanyā pāba*—obtendré a la hija; *mora*—mi; *mane*—en la mente; *ihā*—esto; *nāhi*—no hay; *sukha*—felicidad; *brāhmaṇera*—de un brāhmaṇa puro; *pratijñā*—la promesa; *yāya*—se pierde; *ei*—esto; *baḍa*—muy grande; *duḥkha*—infelicidad.

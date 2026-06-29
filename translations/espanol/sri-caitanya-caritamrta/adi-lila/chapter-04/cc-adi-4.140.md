@@ -1,9 +1,9 @@
 ### CC Adi 4.140
 
-> যদ্যপি নির্মল রাধার সৎপ্রেমদর্পণ ।
+> যদ্যপি নির্মল রাধার সৎপ্রেমদর্পণ ।\
 > তথাপি স্বচ্ছতা তার বাঢ়ে ক্ষণে ক্ষণ ॥১৪০॥
 
-> yadyapi nirmala rādhāra sat-prema-darpaṇa
+> yadyapi nirmala rādhāra sat-prema-darpaṇa\
 > tathāpi svacchatā tāra bāḍhe kṣaṇe kṣaṇa
 
 *yadyapi*—aunque; *nirmala*—puro; *rādhāra*—de Śrīmatī Rādhārāṇī; *sat-prema*—de amor genuino; *darpaṇa*—el espejo; *tathāpi*—aun así; *svacchatā*—transparencia; *tāra*—de ese; *bāḍhe*—aumenta; *kṣaṇe kṣaṇa*—a cada instante.

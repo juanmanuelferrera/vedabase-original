@@ -1,12 +1,12 @@
 ### SB 7.1.33
 
-> श्रीयुधिष्ठिर उवाच
-> कीदृशः कस्य वा शापो हरिदासाभिमर्शनः
+> श्रीयुधिष्ठिर उवाच\
+> कीदृशः कस्य वा शापो हरिदासाभिमर्शनः\
 > अश्रद्धेय इवाभाति हरेरेकान्तिनां भवः ॥३३॥
 
-> mātṛ-ṣvasreyo vaś caidyo
-> dantavakraś ca pāṇḍava
-> pārṣada-pravarau viṣṇor
+> mātṛ-ṣvasreyo vaś caidyo\
+> dantavakraś ca pāṇḍava\
+> pārṣada-pravarau viṣṇor\
 > vipra-śāpāt pada-cyutau
 
 *mātṛ-svasreyaḥ*—the son of the mother's sister (Śiśupāla); *vaḥ*—your; *caidyaḥ*—King Śiśupāla; *dantavakraḥ*—Dantavakra; *ca*—and; *pāṇḍava*—O Pāṇḍava; *pārṣada-pravarau*—two exalted attendants; *viṣṇoḥ*—of Viṣṇu; *vipra*—by *brāhmaṇas*; *śāpāt*—because of a curse; *pada*—from their position in Vaikuṇṭha; *cyutau*—fallen.

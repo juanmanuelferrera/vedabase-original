@@ -1,9 +1,9 @@
 ### CC Madhya 25.17
 
-> গ্রন্থ বাড়ে, পুনরুক্তি হয় ত’ কথন ।
+> গ্রন্থ বাড়ে, পুনরুক্তি হয় ত’ কথন ।\
 > তাহাঁ যে না লিখিলুঁ, তাহা করিয়ে লিখন ॥১৭॥
 
-> grantha bāḍe, punarukti haya ta' kathana
+> grantha bāḍe, punarukti haya ta' kathana\
 > tāhāṅ ye nā likhiluṅ, tāhā kariye likhana
 
 *grantha*—el tamaño del libro; *bāḍe*—aumenta; *punaḥ-ukti*—repetición; *haya*—sería; *ta' kathana*—de temas ya descritos; *tāhāṅ*—allí (en el Séptimo Capítulo); *ye*—lo que; *nā likhiluṅ*—no he descrito; *tāhā*—eso; *kariye likhana*—estoy escribiendo.

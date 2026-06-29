@@ -1,11 +1,11 @@
 ### SB 4.19.31
 
-> तदिदं पश्यत महद् धर्मव्यतिकरं द्विजाः ।
+> तदिदं पश्यत महद् धर्मव्यतिकरं द्विजाः ।\
 > इन्द्रेणानुष्ठितं राज्ञः कर्मैतद्विजिघांसता ॥३१॥
 
-> tad idaṁ paśyata mahad-
-> dharma-vyatikaraṁ dvijāḥ
-> indreṇānuṣṭhitaṁ rājñaḥ
+> tad idaṁ paśyata mahad-\
+> dharma-vyatikaraṁ dvijāḥ\
+> indreṇānuṣṭhitaṁ rājñaḥ\
 > karmaitad vijighāṁsatā
 
 *tat*—entonces; *idam*—esta; *paśyata*—vean; *mahat*—gran; *dharma*—de la vida religiosa; *vyatikaram*—violación; *dvijāḥ*—¡oh, grandes *brāhmaṇas*!; *indreṇa*—por Indra; *anuṣṭhitam*—llevada a cabo; *rājñaḥ*—del rey; *karma*—actividad; *etat*—este sacrificio; *vijighāṁsatā*—deseando impedir.

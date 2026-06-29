@@ -1,9 +1,9 @@
 ### CC Madhya 5.70
 
-> কন্যা দিতে নারিবে, হবে অসত্য-বচন ।
+> কন্যা দিতে নারিবে, হবে অসত্য-বচন ।\
 > পুনরপি কহে বিপ্র করিয়া যতন ॥৭০॥
 
-> kanyā dite nāribe, habe asatya-vacana
+> kanyā dite nāribe, habe asatya-vacana\
 > punarapi kahe vipra kariyā yatana
 
 *kanyā*—daughter; *dite*—to give; *nāribe*—you will not be able; *habe*—it will become; *asatya-vacana*—a false statement; *punarapi*—again; *kahe*—he says; *vipra*—the *brāhmaṇa*; *kariyā yatana*—with great attention.

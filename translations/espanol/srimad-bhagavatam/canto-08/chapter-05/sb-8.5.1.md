@@ -1,13 +1,13 @@
 ### SB 8.5.1
 
-> श्रीशुक उवाच
-> राजन्नुदितमेतत्ते हरेः कर्माघनाशनम
+> श्रीशुक उवाच\
+> राजन्नुदितमेतत्ते हरेः कर्माघनाशनम\
 > गजेन्द्रमोक्षणं पुण्यं रैवतं त्वन्तरं शृणु ॥१॥
 
-> śrī-śuka uvāca
-> rājann uditam etat te
-> hareḥ karmāgha-nāśanam
-> gajendra-mokṣaṇaṁ puṇyaṁ
+> śrī-śuka uvāca\
+> rājann uditam etat te\
+> hareḥ karmāgha-nāśanam\
+> gajendra-mokṣaṇaṁ puṇyaṁ\
 > raivataṁ tv antaraṁ śṛṇu
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *rājan*—¡oh, rey!; *uditam*—ya explicado; *etat*—esta; *te*—a ti; *hareḥ*—del Señor; *karma*—actividad; *agha-nāśanam*—que al escucharla podemos liberarnos de toda desdicha; *gajendra-mokṣaṇam*—la liberación de Gajendra, el rey de los elefantes; *puṇyam*—muy piadosa cuando se escucha y se explica; *raivatam*—acerca de Raivata Manu; *tu*—pero; *antaram*—en este milenio; *śṛṇu*—ten la bondad de escuchar.

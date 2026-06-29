@@ -1,11 +1,11 @@
 ### SB 6.4.25
 
-> देहोऽसवोऽक्षा मनवो भूतमात्रामात्मानमन्यं च विदुः परं यत
+> देहोऽसवोऽक्षा मनवो भूतमात्रामात्मानमन्यं च विदुः परं यत\
 > सर्वं पुमान्वेद गुणांश्च तजज्ञओ न वेद सर्वज्ञअमनन्तमीडे ॥२५॥
 
-> deho 'savo 'kṣā manavo bhūta-mātrām
-> ātmānam anyaṁ ca viduḥ paraṁ yat
-> sarvaṁ pumān veda guṇāṁś ca taj-jño
+> deho 'savo 'kṣā manavo bhūta-mātrām\
+> ātmānam anyaṁ ca viduḥ paraṁ yat\
+> sarvaṁ pumān veda guṇāṁś ca taj-jño\
 > na veda sarva-jñam anantam īḍe
 
 *dehaḥ*—this body; *asavaḥ*—the life airs; *akṣāḥ*—the different senses; *manavaḥ*—the mind, understanding, intellect and ego; *bhūta-mātrām*—the five gross material elements and the sense objects (form, taste, sound and so on); *ātmānam*—themselves; *anyam*—any other; *ca*—and; *viduḥ*—know; *param*—beyond; *yat*—that which; *sarvam*—everything; *pumān*—the living being; *veda*—knows; *guṇān*—the qualities of the material nature; *ca*—and; *tat-jñaḥ*—knowing those things; *na*—not; *veda*—knows; *sarva-jñam*—unto the omniscient; *anantam*—the unlimited; *īḍe*—I offer my respectful obeisances.

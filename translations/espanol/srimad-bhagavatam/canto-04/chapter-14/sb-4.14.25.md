@@ -1,11 +1,11 @@
 ### SB 4.14.25
 
-> को यज्ञपुरुषो नाम यत्र वो भक्तिरीदृशी ।
+> को यज्ञपुरुषो नाम यत्र वो भक्तिरीदृशी ।\
 > भर्तृस्नेहविदूराणां यथा जारे कुयोषिताम् ॥२५॥
 
-> ko yajña-puruṣo nāma
-> yatra vo bhaktir īdṛśī
-> bhartṛ-sneha-vidūrāṇāṁ
+> ko yajña-puruṣo nāma\
+> yatra vo bhaktir īdṛśī\
+> bhartṛ-sneha-vidūrāṇāṁ\
 > yathā jāre kuyoṣitām
 
 *kaḥ*—quién (es); *yajña-puruṣaḥ*—el disfrutador de todos los sacrificios; *nāma*—de nombre; *yatra*—a quien; *vaḥ*—ustedes; *bhaktiḥ*—servicio devocional; *īdṛśī*—tan grande; *bhartṛ*—para el esposo; *sneha*—afecto; *vidūrāṇām*—privado de; *yathā*—como; *jāre*—al amante; *ku-yoṣitām*—de mujeres infieles.

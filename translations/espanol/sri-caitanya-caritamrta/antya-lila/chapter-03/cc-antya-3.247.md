@@ -1,9 +1,9 @@
 ### CC Antya 3.247
 
-> তৃতীয় দিবসের রাত্রি-শেষ যবে হৈল  ।
+> তৃতীয় দিবসের রাত্রি-শেষ যবে হৈল  ।\
 > ঠাকুরের স্থানে নারী কহিতে লাগিল ॥২৪৭॥
 
-> tṛtīya divasera rātri-śeṣa yabe haila
+> tṛtīya divasera rātri-śeṣa yabe haila\
 > ṭhākurera sthāne nārī kahite lāgila
 
 *tṛtīya divasera*—del tercer día; *rātri-śeṣa*—el final de la noche; *yabe*—cuando; *haila*—hubo; *ṭhākurera*—de Haridāsa Ṭhākura; *sthāne*—en el lugar; *nārī*—la mujer; *kahite lāgila*—comenzó a hablar.

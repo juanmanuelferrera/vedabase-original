@@ -1,11 +1,11 @@
 ### SB 6.2.11
 
-> न निष्कृतैरुदितैर्ब्रह्मवादिभिस्तथा विशुद्ध्यत्यघवान्व्रतादिभिः
+> न निष्कृतैरुदितैर्ब्रह्मवादिभिस्तथा विशुद्ध्यत्यघवान्व्रतादिभिः\
 > यथा हरेर्नामपदैरुदाहृतैस्तदुत्तमश्लोकगुणोपलम्भकम ॥११॥
 
-> na niṣkṛtair uditair brahma-vādibhis
-> tathā viśuddhyaty aghavān vratādibhiḥ
-> yathā harer nāma-padair udāhṛtais
+> na niṣkṛtair uditair brahma-vādibhis\
+> tathā viśuddhyaty aghavān vratādibhiḥ\
+> yathā harer nāma-padair udāhṛtais\
 > tad uttamaśloka-guṇopalambhakam
 
 *na*—no; *niṣkṛtaiḥ*—con los procesos de expiación; *uditaiḥ*—prescritos; *brahma-vādibhiḥ*—por sabios eruditos, como Manu; *tathā*—en esa medida; *viśuddhyati*—se purifica; *agha-vān*—el pecador; *vrata-ādibhiḥ*—por seguir los votos y principios regulativos; *yathā*—como; *hareḥ*—del Señor Hari; *nāma-padaiḥ*—con las sílabas del santo nombre; *udāhṛtaiḥ*—cantadas; *tat*—eso; *uttamaśloka*—de la Suprema Personalidad de Dios; *guṇa*—de las cualidades trascendentales; *upalambhakam*—recordándonos.

@@ -1,9 +1,9 @@
 ### CC Madhya 17.74
 
-> সনাতন-মুখে কৃষ্ণ আমা শিখাইলা ।
+> সনাতন-মুখে কৃষ্ণ আমা শিখাইলা ।\
 > তাহা বিঘ্ন করি’ বনপথে লঞা আইলা ॥৭৪॥
 
-> sanātana-mukhe kṛṣṇa āmā śikhāilā
+> sanātana-mukhe kṛṣṇa āmā śikhāilā\
 > tāhā vighna kari' vana-pathe lañā āilā
 
 *sanātana-mukhe*—de labios de Sanātana; *kṛṣṇa*—el Señor Kṛṣṇa; *āmā*—a Mí; *śikhāilā*—dio instrucciones; *tāhā*—eso; *vighna kari'*—creando un impedimento; *vana-pathe*—por el sendero del bosque; *lañā*—llevando; *āilā*—vino.

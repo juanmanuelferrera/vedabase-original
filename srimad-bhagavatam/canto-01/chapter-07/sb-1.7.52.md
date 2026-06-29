@@ -1,11 +1,11 @@
 ### SB 1.7.52
 
-> निशम्य भीमगदितं द्रौपद्याश्च चतुर्भुजः ।
+> निशम्य भीमगदितं द्रौपद्याश्च चतुर्भुजः ।\
 > आलोक्य वदनं सख्युरिदमाह हसन्निव ॥५२॥
 
-> niśamya bhīma-gaditaṁ
-> draupadyāś ca catur-bhujaḥ
-> ālokya vadanaṁ sakhyur
+> niśamya bhīma-gaditaṁ\
+> draupadyāś ca catur-bhujaḥ\
+> ālokya vadanaṁ sakhyur\
 > idam āha hasann iva
 
 *niśamya*—just after hearing; *bhīma*—Bhīma; *gaditam*—spoken by; *draupadyāḥ*—of Draupadī; *ca*—and; *catuḥ-bhujaḥ*—the four-handed (Personality of Godhead); *ālokya*—having seen; *vadanam*—the face; *sakhyuḥ*—of His friend; *idam*—this; *āha*—said; *hasan*—smiling; *iva*—as it.

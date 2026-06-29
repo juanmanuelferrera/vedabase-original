@@ -1,11 +1,11 @@
 ### SB 4.2.31
 
-> एष एव हि लोकानां शिवः पन्थाः सनातनः ।
+> एष एव हि लोकानां शिवः पन्थाः सनातनः ।\
 > यं पूर्वे चानुसन्तस्थुर्यत्प्रमाणं जनार्दनः ॥३१॥
 
-> eṣa eva hi lokānāṁ
-> śivaḥ panthāḥ sanātanaḥ
-> yaṁ pūrve cānusantasthur
+> eṣa eva hi lokānāṁ\
+> śivaḥ panthāḥ sanātanaḥ\
+> yaṁ pūrve cānusantasthur\
 > yat-pramāṇaṁ janārdanaḥ
 
 *eṣaḥ*—the *Vedas*; *eva*—certainly; *hi*—for; *lokānām*—of all people; *śivaḥ*—auspicious; *panthāḥ*—path; *sanātanaḥ*—eternal; *yam*—which (Vedic path); *pūrve*—in the past; *ca*—and; *anusantasthuḥ*—was rigidly followed; *yat*—in which; *pramāṇam*—the evidence; *janārdanaḥ*—Janārdana.

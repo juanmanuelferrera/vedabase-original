@@ -1,9 +1,9 @@
 ### CC Madhya 16.289
 
-> সহস্র-বদনে কহে আপনে ‘অনন্ত’ ।
+> সহস্র-বদনে কহে আপনে ‘অনন্ত’ ।\
 > তবু এক লীলার তেঁহো নাহি পায় অন্ত ॥২৮৯॥
 
-> sahasra-vadane kahe āpane 'ananta'
+> sahasra-vadane kahe āpane 'ananta'\
 > tabu eka līlāra teṅho nāhi pāya anta
 
 *sahasra-vadane*—in thousands of mouths; *kahe*—speaks; *āpane*—personally; *ananta*—Anantadeva; *tabu*—still; *eka līlāra*—of one pastime only; *teṅho*—He (Anantadeva); *nāhi*—not; *pāya*—gets; *anta*—the end.

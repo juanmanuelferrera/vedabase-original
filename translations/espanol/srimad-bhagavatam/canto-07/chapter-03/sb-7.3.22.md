@@ -1,13 +1,13 @@
 ### SB 7.3.22
 
-> श्रीनारद उवाच
-> इत्युक्त्वादिभवो देवो भक्षिताङ्गं पिपीलिकैः
+> श्रीनारद उवाच\
+> इत्युक्त्वादिभवो देवो भक्षिताङ्गं पिपीलिकैः\
 > कमण्डलुजलेनौक्षद्दिव्येनामोघराधसा ॥२२॥
 
-> śrī-nārada uvāca
-> ity uktvādi-bhavo devo
-> bhakṣitāṅgaṁ pipīlikaiḥ
-> kamaṇḍalu-jalenaukṣad
+> śrī-nārada uvāca\
+> ity uktvādi-bhavo devo\
+> bhakṣitāṅgaṁ pipīlikaiḥ\
+> kamaṇḍalu-jalenaukṣad\
 > divyenāmogha-rādhasā
 
 *śrī-nāradaḥ uvāca*—Śrī Nārada Muni dijo; *iti*—así; *uktvā*—diciendo; *ādi-bhavaḥ*—el Señor Brahmā, la criatura viviente original del universo; *devaḥ*—el principal semidiós; *bhakṣita-aṅgam*—el cuerpo de Hiraṇyakaśipu, que había sido comido casi por entero; *pipīlikaiḥ*—por las hormigas; *kamaṇḍalu*—del cántaro especial del Señor Brahmā; *jalena*—con agua; *aukṣat*—salpicó; *divyena*—que era espiritual, no común; *amogha*—infalible; *rādhasā*—cuyo poder.

@@ -1,11 +1,11 @@
 ### SB 7.8.18
 
-> सत्यं विधातुं निजभृत्यभाषितं व्याप्तिं च भूतेष्वखिलेषु चात्मनः
+> सत्यं विधातुं निजभृत्यभाषितं व्याप्तिं च भूतेष्वखिलेषु चात्मनः\
 > अदृश्यतात्यद्भुतरूपमुद्वहन्स्तम्भे सभायां न मृगं न मानुषम ॥१८॥
 
-> sa sattvam enaṁ parito vipaśyan
-> stambhasya madhyād anunirjihānam
-> nāyaṁ mṛgo nāpi naro vicitram
+> sa sattvam enaṁ parito vipaśyan\
+> stambhasya madhyād anunirjihānam\
+> nāyaṁ mṛgo nāpi naro vicitram\
 > aho kim etan nṛ-mṛgendra-rūpam
 
 *saḥ*—él (Hiraṇyakaśipu, el rey de los *daityas*); *sattvam*—ser vivo; *enam*—aquel; *paritaḥ*—a su alrededor; *vipaśyan*—mirando; *stambhasya*—de la columna; *madhyāt*—del centro; *anunirjihānam*—habiendo salido; *na*—no; *ayam*—este; *mṛgaḥ*—animal; *na*—no; *api*—en verdad; *naraḥ*—ser humano; *vicitram*—muy maravilloso; *aho*—¡ay!; *kim*—qué; *etat*—esta; *nṛ-mṛga-indra-rūpam*—la forma que era a la vez un hombre y el rey de los animales, el león.

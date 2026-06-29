@@ -1,9 +1,9 @@
 ### CC Madhya 12.43
 
-> প্রভুপদে প্রেমভক্তি জানাইল রাজার ।
+> প্রভুপদে প্রেমভক্তি জানাইল রাজার ।\
 > প্রসঙ্গ পাঞা ঐছে কহে বারবার ॥৪৩॥
 
-> prabhu-pade prema-bhakti jānāila rājāra
+> prabhu-pade prema-bhakti jānāila rājāra\
 > prasaṅga pāñā aiche kahe bāra-bāra
 
 *prabhu-pade*—a los pies de loto del Señor; *prema-bhakti*—amor extático; *jānāila*—informó; *rājāra*—del rey; *prasaṅga*—conversación; *pāñā*—obteniendo; *aiche*—así; *kahe*—dice; *bāra-bāra*—una y otra vez.

@@ -1,11 +1,11 @@
 ### SB 4.16.15
 
-> रञ्जयिष्यति यल्लोकमयमात्मविचेष्टितैः ।
+> रञ्जयिष्यति यल्लोकमयमात्मविचेष्टितैः ।\
 > अथामुमाहू राजानं मनोरञ्जनकैः प्रजाः ॥१५॥
 
-> rañjayiṣyati yal lokam
-> ayam ātma-viceṣṭitaiḥ
-> athāmum āhū rājānaṁ
+> rañjayiṣyati yal lokam\
+> ayam ātma-viceṣṭitaiḥ\
+> athāmum āhū rājānaṁ\
 > mano-rañjanakaiḥ prajāḥ
 
 *rañjayiṣyati*—will please; *yat*—because; *lokam*—the entire world; *ayam*—this King; *ātma*—personal; *viceṣṭitaiḥ*—by activities; *atha*—therefore; *amum*—him; *āhuḥ*—they call; *rājānam*—the King; *manaḥ-rañjanakaiḥ*—very pleasing to the mind; *prajāḥ*—the citizens.

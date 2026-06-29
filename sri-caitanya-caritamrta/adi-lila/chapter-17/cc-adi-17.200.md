@@ -1,9 +1,9 @@
 ### CC Adi 17.200
 
-> সেই হৈতে জিহ্বা মোর বলে ‘হরি’ ‘হরি’ ।
+> সেই হৈতে জিহ্বা মোর বলে ‘হরি’ ‘হরি’ ।\
 > ইচ্ছা নাহি, তবু বলে, — কি উপায় করি ॥২০০॥
 
-> sei haite jihvā mora bale 'hari' 'hari'
+> sei haite jihvā mora bale 'hari' 'hari'\
 > icchā nāhi, tabu bale,—ki upāya kari
 
 *seihaite*—from that time; *jihvā*—tongue; *mora*—my; *bale*—says; *harihari*—the vibration "Hari, Hari"; *icchā*—desire; *nāhi*—there is none; *tabu*—still; *bale*—says; *ki*—what; *upāya*—means; *kari*—I may do.

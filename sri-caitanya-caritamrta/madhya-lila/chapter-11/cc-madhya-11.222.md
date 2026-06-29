@@ -1,9 +1,9 @@
 ### CC Madhya 11.222
 
-> অশ্রু, পুলক, কম্প, স্বেদ, গম্ভীর হুঙ্কার ।
+> অশ্রু, পুলক, কম্প, স্বেদ, গম্ভীর হুঙ্কার ।\
 > প্রেমের বিকার দেখি’ লোকে চমত্কার ॥২২২॥
 
-> aśru, pulaka, kampa, sveda, gambhīra huṅkāra
+> aśru, pulaka, kampa, sveda, gambhīra huṅkāra\
 > premera vikāra dekhi' loke camatkāra
 
 *aśru*—tears; *pulaka*—jubilation; *kampa*—trembling; *sveda*—perspiration; *gambhīra huṅkāra*—deep resounding; *premera*—of ecstatic love; *vikāra*—transformation; *dekhi'*—seeing; *loke*—all the people; *camatkāra*—were astonished.

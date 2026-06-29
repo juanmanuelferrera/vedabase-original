@@ -1,11 +1,11 @@
 ### SB 1.8.13
 
-> व्यसनं वीक्ष्य तत्तेषामनन्यविषयात्मनाम् ।
+> व्यसनं वीक्ष्य तत्तेषामनन्यविषयात्मनाम् ।\
 > सुदर्शनेन स्वास्त्रेण स्वानां रक्षां व्यधाद्विभुः ॥१३॥
 
-> vyasanaṁ vīkṣya tat teṣām
-> ananya-viṣayātmanām
-> sudarśanena svāstreṇa
+> vyasanaṁ vīkṣya tat teṣām\
+> ananya-viṣayātmanām\
+> sudarśanena svāstreṇa\
 > svānāṁ rakṣāṁ vyadhād vibhuḥ
 
 *vyasanam*—gran peligro; *vīkṣya*—habiendo observado; *tat*—eso; *teṣām*—de ellos; *ananya*—ningún otro; *viṣaya*—en medio; *ātmanām*—inclinado así; *sudarśanena*—mediante la rueda de Śrī Kṛṣṇa; *sva-astreṇa*—mediante el arma; *svānām*—de Sus propios devotos; *rakṣām*—protección; *vyadhāt*—lo hizo; *vibhuḥ*—el Todopoderoso.

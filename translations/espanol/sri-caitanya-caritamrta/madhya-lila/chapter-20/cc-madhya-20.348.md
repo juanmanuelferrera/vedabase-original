@@ -1,9 +1,9 @@
 ### CC Madhya 20.348
 
-> পূর্ববৎ লিখি যবে গুণাবতারগণ ।
+> পূর্ববৎ লিখি যবে গুণাবতারগণ ।\
 > অসংখ্য সংখ্যা তাঁর, না হয় গণন ॥৩৪৮॥
 
-> pūrvavat likhi yabe guṇāvatāra-gaṇa
+> pūrvavat likhi yabe guṇāvatāra-gaṇa\
 > asaṅkhya saṅkhyā tāṅra, nā haya gaṇana
 
 *pūrva-vat*—como anteriormente; *likhi*—escribo; *yabe*—cuando; *guṇa-avatāra-gaṇa*—encarnaciones de las modalidades de la naturaleza material; *asaṅkhya*—innumerables; *saṅkhya*—conteo; *tāṅra*—de ellas; *nā haya gaṇana*—no es posible contarlas en realidad.

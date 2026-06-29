@@ -1,13 +1,13 @@
 ### SB 7.9.9
 
-> मन्ये धनाभिजनरूपतपःश्रुतौजस
-> तेजःप्रभावबलपौरुषबुद्धियोगाः
-> नाराधनाय हि भवन्ति परस्य पुंसो
+> मन्ये धनाभिजनरूपतपःश्रुतौजस\
+> तेजःप्रभावबलपौरुषबुद्धियोगाः\
+> नाराधनाय हि भवन्ति परस्य पुंसो\
 > भक्त्या तुतोष भगवान्गजयूथपाय ॥९॥
 
-> manye dhanābhijana-rūpa-tapaḥ-śrutaujas-
-> tejaḥ-prabhāva-bala-pauruṣa-buddhi-yogāḥ
-> nārādhanāya hi bhavanti parasya puṁso
+> manye dhanābhijana-rūpa-tapaḥ-śrutaujas-\
+> tejaḥ-prabhāva-bala-pauruṣa-buddhi-yogāḥ\
+> nārādhanāya hi bhavanti parasya puṁso\
 > bhaktyā tutoṣa bhagavān gaja-yūtha-pāya
 
 *manye*—I consider; *dhana*—riches; *abhijana*—aristocratic family; *rūpa*—personal beauty; *tapaḥ*—austerity; *śruta*—knowledge from studying the *Vedas*; *ojaḥ*—sensory prowess; *tejaḥ*—bodily effulgence; *prabhāva*—influence; *bala*—bodily strength; *pauruṣa*—diligence; *buddhi*—intelligence; *yogāḥ*—mystic power; *na*—not; *ārādhanāya*—for satisfying; *hi*—indeed; *bhavanti*—are; *parasya*—of the transcendent; *puṁsaḥ*—Supreme Personality of Godhead; *bhaktyā*—simply by devotional service; *tutoṣa*—was satisfied; *bhagavān*—the Supreme Personality of Godhead; *gaja-yūtha-pāya*—unto the King of elephants (Gajendra).

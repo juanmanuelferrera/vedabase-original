@@ -1,11 +1,11 @@
 ### SB 2.4.8
 
-> नूनं भगवतो ब्रह्मन्हरेरद्भुतकर्मणः ।
+> नूनं भगवतो ब्रह्मन्हरेरद्भुतकर्मणः ।\
 > दुर्विभाव्यमिवाभाति कविभिश्चापि चेष्टितम् ॥८॥
 
-> nūnaṁ bhagavato brahman
-> harer adbhuta-karmaṇaḥ
-> durvibhāvyam ivābhāti
+> nūnaṁ bhagavato brahman\
+> harer adbhuta-karmaṇaḥ\
+> durvibhāvyam ivābhāti\
 > kavibhiś cāpi ceṣṭitam
 
 *nūnam*—still insufficient; *bhagavataḥ*—of the Personality of Godhead; *brahman*—O learned *brāhmaṇa*; *hareḥ*—of the Lord; *adbhuta*—wonderful; *karmaṇaḥ*—one who acts; *durvibhāvyam*—inconceivable; *iva*—like that; *ābhāti*—appears; *kavibhiḥ*—even by the highly learned; *ca*—also; *api*—in spite of; *ceṣṭitam*—being endeavored for.

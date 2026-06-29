@@ -1,11 +1,11 @@
 ### SB 6.2.35
 
-> सोऽहं तथा यतिष्यामि यतचित्तेन्द्रियानिलः
+> सोऽहं तथा यतिष्यामि यतचित्तेन्द्रियानिलः\
 > यथा न भूय आत्मानमन्धे तमसि मज्जये ॥३५॥
 
-> so 'haṁ tathā yatiṣyāmi
-> yata-cittendriyānilaḥ
-> yathā na bhūya ātmānam
+> so 'haṁ tathā yatiṣyāmi\
+> yata-cittendriyānilaḥ\
+> yathā na bhūya ātmānam\
 > andhe tamasi majjaye
 
 *saḥ*—such a person; *aham*—I; *tathā*—in that way; *yatiṣyāmi*—I shall endeavor; *yata-citta-indriya*—controlling the mind and senses; *anilaḥ*—and the internal airs; *yathā*—so that; *na*—not; *bhūyaḥ*—again; *ātmānam*—my soul; *andhe*—in darkness; *tamasi*—in ignorance; *majjaye*—I drown.

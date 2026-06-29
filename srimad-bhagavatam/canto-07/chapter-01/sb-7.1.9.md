@@ -1,11 +1,11 @@
 ### SB 7.1.9
 
-> ज्योतिरादिरिवाभाति सङ्घातान्न विविच्यते
+> ज्योतिरादिरिवाभाति सङ्घातान्न विविच्यते\
 > विदन्त्यात्मानमात्मस्थं मथित्वा कवयोऽन्ततः ॥९॥
 
-> jyotir-ādir ivābhāti
-> saṅghātān na vivicyate
-> vidanty ātmānam ātma-sthaṁ
+> jyotir-ādir ivābhāti\
+> saṅghātān na vivicyate\
+> vidanty ātmānam ātma-sthaṁ\
 > mathitvā kavayo 'ntataḥ
 
 *jyotiḥ*—fire; *ādiḥ*—and other elements; *iva*—just as; *ābhāti*—appear; *saṅghātāt*—from the bodies of demigods and others; *na*—not; *vivicyate*—are distinguished; *vidanti*—perceive; *ātmānam*—the Supersoul; *ātma-stham*—situated in the heart; *mathitvā*—by discerning; *kavayaḥ*—expert thinkers; *antataḥ*—within.

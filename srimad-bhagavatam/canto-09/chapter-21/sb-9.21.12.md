@@ -1,11 +1,11 @@
 ### SB 9.21.12
 
-> न कामयेऽहं गतिमीश्वरात्परामष्टर्द्धियुक्तामपुनर्भवं वा
+> न कामयेऽहं गतिमीश्वरात्परामष्टर्द्धियुक्तामपुनर्भवं वा\
 > आर्तिं प्रपद्येऽखिलदेहभाजामन्तःस्थितो येन भवन्त्यदुःखाः ॥१२॥
 
-> na kāmaye 'haṁ gatim īśvarāt parām
-> aṣṭarddhi-yuktām apunar-bhavaṁ vā
-> ārtiṁ prapadye 'khila-deha-bhājām
+> na kāmaye 'haṁ gatim īśvarāt parām\
+> aṣṭarddhi-yuktām apunar-bhavaṁ vā\
+> ārtiṁ prapadye 'khila-deha-bhājām\
 > antaḥ-sthito yena bhavanty aduḥkhāḥ
 
 *na*—not; *kāmaye*—desire; *aham*—I; *gatim*—destination; *īśvarāt*—from the Supreme Personality of Godhead; *parām*—great; *aṣṭa-ṛddhi-yuktām*—composed of the eight kinds of mystic perfection; *apunaḥ-bhavam*—cessation of repeated birth (liberation, salvation); *vā*—either; *ārtim*—sufferings; *prapadye*—I accept; *akhila-deha-bhājām*—of all living entities; *antaḥ-sthitaḥ*—staying among them; *yena*—by which; *bhavanti*—they become; *aduḥkhāḥ*—without distress.

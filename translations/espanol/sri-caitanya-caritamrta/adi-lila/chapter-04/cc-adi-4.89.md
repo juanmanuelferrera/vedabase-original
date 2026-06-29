@@ -1,9 +1,9 @@
 ### CC Adi 4.89
 
-> অতএব সর্বপূজ্যা, পরম-দেবতা ।
+> অতএব সর্বপূজ্যা, পরম-দেবতা ।\
 > সর্বপালিকা, সর্ব-জগতের মাতা ॥৮৯॥
 
-> ataeva sarva-pūjyā, parama-devatā
+> ataeva sarva-pūjyā, parama-devatā\
 > sarva-pālikā, sarva jagatera mātā
 
 *ataeva*—por lo tanto; *sarva-pūjyā*—adorable por todos; *parama*—suprema; *devatā*—diosa; *sarva-pālikā*—la protectora de todos; *sarva jagatera*—de todos los universos; *mātā*—la madre.

@@ -1,9 +1,9 @@
 ### CC Adi 7.108
 
-> উপনিষৎ-সহিত সূত্র কহে যেই তত্ত্ব ।
+> উপনিষৎ-সহিত সূত্র কহে যেই তত্ত্ব ।\
 > মুখ্যবৃত্ত্যে সেই অর্থ পরম মহত্ত্ব ॥১০৮॥
 
-> upaniṣat-sahita sūtra kahe yei tattva
+> upaniṣat-sahita sūtra kahe yei tattva\
 > mukhya-vṛttye sei artha parama mahattva
 
 *upaniṣat*—la versión Védica autorizada; *sahita*—junto con; *sūtra*—el *Vedānta-sūtra*; *kahe*—se dice; *yei*—el tema; *tattva*—en verdad; *mukhya-vṛttye*—por comprensión directa; *sei*—esa verdad; *artha*—significado; *parama*—suprema; *mahattva*—gloria.

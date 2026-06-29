@@ -1,9 +1,9 @@
 ### CC Madhya 21.7
 
-> অনন্ত বৈকুণ্ঠ-পরব্যোম যার দলশ্রেণী ।
+> অনন্ত বৈকুণ্ঠ-পরব্যোম যার দলশ্রেণী ।\
 > সর্বোপরি কৃষ্ণলোক ‘কর্ণিকার’ গণি ॥৭॥
 
-> ananta vaikuṇṭha-paravyoma yāra dala-śreṇī
+> ananta vaikuṇṭha-paravyoma yāra dala-śreṇī\
 > sarvopari kṛṣṇaloka 'karṇikāra' gaṇi
 
 *ananta*—ilimitados; *vaikuṇṭha*—planetas Vaikuṇṭha; *para-vyoma*—el cielo espiritual; *yāra*—del cual; *dala-śreṇī*—los grupos de pétalos exteriores; *sarva-upari*—en la porción más elevada del cielo espiritual; *kṛṣṇa-loka*—la morada del Señor Kṛṣṇa; *karṇikāra gaṇi*—consideramos el verticilo de la flor de loto.

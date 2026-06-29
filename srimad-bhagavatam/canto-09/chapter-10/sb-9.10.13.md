@@ -1,13 +1,13 @@
 ### SB 9.10.13
 
-> यद्रोषविभ्रमविवृत्तकटाक्षपात
-> सम्भ्रान्तनक्रमकरो भयगीर्णघोषः
-> सिन्धुः शिरस्यर्हणं परिगृह्य रूपी
+> यद्रोषविभ्रमविवृत्तकटाक्षपात\
+> सम्भ्रान्तनक्रमकरो भयगीर्णघोषः\
+> सिन्धुः शिरस्यर्हणं परिगृह्य रूपी\
 > पादारविन्दमुपगम्य बभाष एतत ॥१३॥
 
-> yad-roṣa-vibhrama-vivṛtta-kaṭākṣa-pāta-
-> sambhrānta-nakra-makaro bhaya-gīrṇa-ghoṣaḥ
-> sindhuḥ śirasy arhaṇaṁ parigṛhya rūpī
+> yad-roṣa-vibhrama-vivṛtta-kaṭākṣa-pāta-\
+> sambhrānta-nakra-makaro bhaya-gīrṇa-ghoṣaḥ\
+> sindhuḥ śirasy arhaṇaṁ parigṛhya rūpī\
 > pādāravindam upagamya babhāṣa etat
 
 *yat-roṣa*—whose anger; *vibhrama*—induced by; *vivṛtta*—turned; *kaṭākṣa-pāta*—by the glance; *sambhrānta*—agitated; *nakra*—crocodiles; *makaraḥ*—and sharks; *bhaya-gīrṇa-ghoṣaḥ*—whose loud sound was silenced through fear; *sindhuḥ*—the ocean; *śirasi*—on his head; *arhaṇam*—all paraphernalia for worshiping the Lord; *parigṛhya*—carrying; *rūpī*—taking form; *pāda-aravindam*—the lotus feet of the Lord; *upagamya*—reaching; *babhāṣa*—said; *etat*—the following.

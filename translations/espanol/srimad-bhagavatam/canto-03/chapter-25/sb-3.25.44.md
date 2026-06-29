@@ -1,11 +1,11 @@
 ### SB 3.25.44
 
-> एतावानेव लोकेऽस्मिन्पुंसां निःश्रेयसोदयः ।
+> एतावानेव लोकेऽस्मिन्पुंसां निःश्रेयसोदयः ।\
 > तीव्रेण भक्तियोगेन मनो मय्यर्पितं स्थिरम् ॥४४॥
 
-> etāvān eva loke 'smin
-> puṁsāṁ niḥśreyasodayaḥ
-> tīvreṇa bhakti-yogena
+> etāvān eva loke 'smin\
+> puṁsāṁ niḥśreyasodayaḥ\
+> tīvreṇa bhakti-yogena\
 > mano mayy arpitaṁ sthiram
 
 *etāvān eva*—solo así; *loke asmin*—en este mundo; *puṁsām*—de los hombres; *niḥśreyasa*—la perfección final de la vida; *udayaḥ*—la consecución de; *tīvreṇa*—intensa; *bhakti-yogena*—mediante la práctica del servicio devocional; *manaḥ*—mente; *mayi*—en Mí; *arpitam*—fija; *sthiram*—estable.

@@ -1,13 +1,13 @@
 ### SB 5.14.42
 
-> तस्येदमुपगायन्ति
-> आर्षभस्येह राजर्षेर्मनसापि महात्मनः
+> तस्येदमुपगायन्ति\
+> आर्षभस्येह राजर्षेर्मनसापि महात्मनः\
 > नानुवर्त्मार्हति नृपो मक्षिकेव गरुत्मतः ॥४२॥
 
-> tasyedam upagāyanti—
-> ārṣabhasyeha rājarṣer
-> manasāpi mahātmanaḥ
-> nānuvartmārhati nṛpo
+> tasyedam upagāyanti—\
+> ārṣabhasyeha rājarṣer\
+> manasāpi mahātmanaḥ\
+> nānuvartmārhati nṛpo\
 > makṣikeva garutmataḥ
 
 *tasya*—of Jaḍa Bharata; *idam*—this glorification; *upagāyanti*—they sing; *ārṣabhasya*—of the son of Ṛṣabhadeva; *iha*—here; *rāja-ṛṣeḥ*—of the great saintly King; *manasā api*—even by the mind; *mahā-ātmanaḥ*—of the great personality Jaḍa Bharata; *na*—not; *anuvartma arhati*—able to follow the path; *nṛpaḥ*—any king; *makṣikā*—a fly; *iva*—like; *garutmataḥ*—of Garuḍa, the carrier of the Supreme Personality of Godhead.

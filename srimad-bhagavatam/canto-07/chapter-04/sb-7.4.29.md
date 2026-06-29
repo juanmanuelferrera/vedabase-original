@@ -1,13 +1,13 @@
 ### SB 7.4.29
 
-> श्रीनारद उवाच
-> इत्युक्ता लोकगुरुणा तं प्रणम्य दिवौकसः
+> श्रीनारद उवाच\
+> इत्युक्ता लोकगुरुणा तं प्रणम्य दिवौकसः\
 > न्यवर्तन्त गतोद्वेगा मेनिरे चासुरं हतम ॥२९॥
 
-> śrī-nārada uvāca
-> ity uktā loka-guruṇā
-> taṁ praṇamya divaukasaḥ
-> nyavartanta gatodvegā
+> śrī-nārada uvāca\
+> ity uktā loka-guruṇā\
+> taṁ praṇamya divaukasaḥ\
+> nyavartanta gatodvegā\
 > menire cāsuraṁ hatam
 
 *śrī-nāradaḥ uvāca*—the great saint Nārada Muni said; *iti*—thus; *uktāḥ*—addressed; *loka-guruṇā*—by the supreme spiritual master of everyone; *tam*—unto Him; *praṇamya*—offering obeisances; *divaukasaḥ*—all the demigods; *nyavartanta*—returned; *gata-udvegāḥ*—relieved of all anxieties; *menire*—they considered; *ca*—also; *asuram*—the demon (Hiraṇyakaśipu); *hatam*—killed.

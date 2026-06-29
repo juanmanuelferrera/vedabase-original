@@ -1,18 +1,18 @@
 ### SB 2.5.40-41
 
-> तत्कट्यां चातलं कॢप्तमूरुभ्यां वितलं विभोः ।
-> जानुभ्यां सुतलं शुद्धं जङ्घाभ्यां तु तलातलम् ॥४०॥
-> महातलं तु गुल्फाभ्यां प्रपदाभ्यां रसातलम् ।
+> तत्कट्यां चातलं कॢप्तमूरुभ्यां वितलं विभोः ।\
+> जानुभ्यां सुतलं शुद्धं जङ्घाभ्यां तु तलातलम् ॥४०॥\
+> महातलं तु गुल्फाभ्यां प्रपदाभ्यां रसातलम् ।\
 > पातालं पादतलत इति लोकमयः पुमान् ॥४१॥
 
-> tat-kaṭyāṁ cātalaṁ kḷptam
-> ūrubhyāṁ vitalaṁ vibhoḥ
-> jānubhyāṁ sutalaṁ śuddhaṁ
+> tat-kaṭyāṁ cātalaṁ kḷptam\
+> ūrubhyāṁ vitalaṁ vibhoḥ\
+> jānubhyāṁ sutalaṁ śuddhaṁ\
 > jaṅghābhyāṁ tu talātalam
 
-> mahātalaṁ tu gulphābhyāṁ
-> prapadābhyāṁ rasātalam
-> pātālaṁ pāda-talata
+> mahātalaṁ tu gulphābhyāṁ\
+> prapadābhyāṁ rasātalam\
+> pātālaṁ pāda-talata\
 > iti lokamayaḥ pumān
 
 *tat*—en Su; *kaṭyām*—cintura; *ca*—también; *atalam*—el primer sistema planetario que se encuentra por debajo de la Tierra; *kḷptam*—situado; *ūrubhyām*—en los muslos; *vitalam*—el segundo sistema planetario que se encuentra por debajo; *vibhoḥ*—el Señor; *jānubhyām*—en los tobillos; *sutalam*—el tercer sistema planetario que se encuentra por debajo; *śuddham*—purificado; *jaṅghābhyām*—en las junturas; *tu*—pero; *talātalam*—el cuarto sistema que se encuentra por debajo; *mahātalam*—el quinto sistema planetario que se encuentra por debajo; *tu*—pero; *gulphābhyān*—situado en las pantorrillas; *prapadābhyām*—en la porción superior o delantera de los pies; *rasātalam*—el sexto sistema planetario que se encuentra por debajo; *pātālam*—el séptimo sistema planetario que se encuentra por debajo; *pāda-talataḥ*—en la parte inferior o en las plantas de los pies; *iti*—así pues; *lokamayaḥ*—llena de sistemas planetarios; *pumān*—el Señor.

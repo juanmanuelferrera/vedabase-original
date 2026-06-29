@@ -1,11 +1,11 @@
 ### SB 6.5.22
 
-> स्वरब्रह्मणि निर्भात हृषीकेशपदाम्बुजे
+> स्वरब्रह्मणि निर्भात हृषीकेशपदाम्बुजे\
 > अखण्डं चित्तमावेश्य लोकाननुचरन्मुनिः ॥२२॥
 
-> svara-brahmaṇi nirbhāta-
-> hṛṣīkeśa-padāmbuje
-> akhaṇḍaṁ cittam āveśya
+> svara-brahmaṇi nirbhāta-\
+> hṛṣīkeśa-padāmbuje\
+> akhaṇḍaṁ cittam āveśya\
 > lokān anucaran muniḥ
 
 *svara-brahmaṇi*—en sonido espiritual; *nirbhāta*—poniendo con nitidez ante la mente; *hṛṣīkeśa*—de la Suprema Personalidad de Dios, Kṛṣṇa, el amo de los sentidos; *padāmbuje*—los pies de loto; *akhaṇḍam*—inquebrantable; *cittam*—conciencia; *āveśya*—ocupar; *lokān*—todos los sistemas planetarios; *anucarat*—viajó por; *muniḥ*—el gran sabio Nārada Muni.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.58
 
-> আরতির কালে দুই প্রভু বোলাইল ।
+> আরতির কালে দুই প্রভু বোলাইল ।\
 > প্রভু-সঙ্গে সবে আসি’ আরতি দেখিল ॥৫৮॥
 
-> āratira kāle dui prabhu bolāila
+> āratira kāle dui prabhu bolāila\
 > prabhu-saṅge sabe āsi' ārati dekhila
 
 *āratira kāle*—durante el momento del *ārati*; *dui prabhu*—el Señor Nityānanda y Śrī Caitanya Mahāprabhu; *bolāila*—llamó; *prabhu-saṅge*—con los Señores; *sabe*—todas las demás personas; *āsi'*—acudiendo allí; *ārati*—la ceremonia del *ārati*; *dekhila*—observaron.

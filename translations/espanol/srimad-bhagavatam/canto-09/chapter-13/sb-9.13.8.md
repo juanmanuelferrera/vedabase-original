@@ -1,11 +1,11 @@
 ### SB 9.13.8
 
-> राज्ञओ जीवतु देहोऽयं प्रसन्नाः प्रभवो यदि
+> राज्ञओ जीवतु देहोऽयं प्रसन्नाः प्रभवो यदि\
 > तथेत्युक्ते निमिः प्राह मा भून्मे देहबन्धनम ॥८॥
 
-> rājño jīvatu deho 'yaṁ
-> prasannāḥ prabhavo yadi
-> tathety ukte nimiḥ prāha
+> rājño jīvatu deho 'yaṁ\
+> prasannāḥ prabhavo yadi\
+> tathety ukte nimiḥ prāha\
 > mā bhūn me deha-bandhanam
 
 *rājñaḥ*—del rey; *jīvatu*—que cobre nueva vida; *dehaḥ ayam*—este cuerpo (ahora conservado); *prasannāḥ*—muy complacidos; *prabhavaḥ*—capaces de hacerlo; *yadi*—si; *tathā*—que así sea; *iti*—así; *ukte*—cuando fue contestado (por los semidioses); *nimiḥ*—Mahārāja Nimi; *prāha*—dijo; *mā bhūt*—no lo hagan; *me*—mi; *deha-bandhanam*—nuevo aprisionamiento en un cuerpo material.

@@ -1,11 +1,11 @@
 ### SB 3.29.21
 
-> अहं सर्वेषु भूतेषु भूतात्मावस्थितः सदा ।
+> अहं सर्वेषु भूतेषु भूतात्मावस्थितः सदा ।\
 > तमवज्ञाय मां मर्त्यः कुरुतेऽर्चाविडम्बनम् ॥२१॥
 
-> ahaṁ sarveṣu bhūteṣu
-> bhūtātmāvasthitaḥ sadā
-> tam avajñāya māṁ martyaḥ
+> ahaṁ sarveṣu bhūteṣu\
+> bhūtātmāvasthitaḥ sadā\
+> tam avajñāya māṁ martyaḥ\
 > kurute 'rcā-viḍambanam
 
 *aham*—I; *sarveṣu*—in all; *bhūteṣu*—living entities; *bhūta-ātmā*—the Supersoul in all beings; *avasthitaḥ*—situated; *sadā*—always; *tam*—that Supersoul; *avajñāya*—disregarding; *mām*—Me; *martyaḥ*—a mortal man; *kurute*—performs; *arcā*—of worship of the Deity; *viḍambanam*—imitation.

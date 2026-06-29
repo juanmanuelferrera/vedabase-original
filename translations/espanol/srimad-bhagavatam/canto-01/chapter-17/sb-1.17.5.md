@@ -1,11 +1,11 @@
 ### SB 1.17.5
 
-> कस्त्वं मच्छरणे लोके बलाद्धंस्यबलान्बली ।
+> कस्त्वं मच्छरणे लोके बलाद्धंस्यबलान्बली ।\
 > नरदेवोऽसि वेषेण नटवत्कर्मणाद्विजः ॥५॥
 
-> kas tvaṁ mac-charaṇe loke
-> balād dhaṁsy abalān balī
-> nara-devo 'si veṣeṇa
+> kas tvaṁ mac-charaṇe loke\
+> balād dhaṁsy abalān balī\
+> nara-devo 'si veṣeṇa\
 > naṭavat karmaṇādvijaḥ
 
 *kaḥ*—quién eres; *tvam*—tú; *mat*—mi; *śaraṇe*—bajo la protección; *loke*—en este mundo; *balāt*—a la fuerza; *haṁsi*—matando; *abalān*—aquellos que están indefensos; *balī*—aunque lleno de fuerza; *nara-devaḥ*—hombre-dios; *asi*—pareces ser; *veṣeṇa*—por tu ropa; *naṭa-vat*—como un actor de teatro; *karmaṇā*—por actos; *advi-jaḥ*—un hombre que, por cultura, no ha nacido por segunda vez.

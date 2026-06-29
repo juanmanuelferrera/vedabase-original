@@ -1,13 +1,13 @@
 ### SB 5.14.45
 
-> यज्ञआय धर्मपतये विधिनैपुणाय
-> योगाय साङ्ख्यशिरसे प्रकृतीश्वराय
-> नारायणाय हरये नम इत्युदारं
+> यज्ञआय धर्मपतये विधिनैपुणाय\
+> योगाय साङ्ख्यशिरसे प्रकृतीश्वराय\
+> नारायणाय हरये नम इत्युदारं\
 > हास्यन्मृगत्वमपि यः समुदाजहार ॥४५॥
 
-> yajñāya dharma-pataye vidhi-naipuṇāya
-> yogāya sāṅkhya-śirase prakṛtīśvarāya
-> nārāyaṇāya haraye nama ity udāraṁ
+> yajñāya dharma-pataye vidhi-naipuṇāya\
+> yogāya sāṅkhya-śirase prakṛtīśvarāya\
+> nārāyaṇāya haraye nama ity udāraṁ\
 > hāsyan mṛgatvam api yaḥ samudājahāra
 
 *yajñāya*—a la Suprema Personalidad de Dios, que disfruta de los resultados de todos los grandes sacrificios; *dharma-pataye*—al maestro que expone los principios religiosos; *vidhi-naipuṇāya*—que da al devoto la inteligencia para ser experto en seguir los principios regulativos; *yogāya*—la personificación del *yoga* místico; *sāṅkhya-śirase*—que enseñó la filosofía*sāṅkhya,* o que verdaderamente da a conocer el *sāṅkhya* a la gente del mundo; *prakṛti-īśvarāya*—el controlador supremo de la manifestación cósmica; *nārāyaṇāya*—el lugar en que reposan las innumerables entidades vivientes (*nara* significa «las entidades vivientes», y *ayana* significa «el refugio»); *haraye*—a la Suprema Personalidad de Dios, a quien se conoce con el nombre de Hari; *namaḥ*—reverencias respetuosas; *iti*—así; *udāram*—en voz muy alta; *hāsyan*—sonriendo; *mṛgatvam api*—aunque en el cuerpo de un ciervo; *yaḥ*—quien; *samudājahāra*—cantó.

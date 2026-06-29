@@ -1,9 +1,9 @@
 ### CC Madhya 11.102
 
-> ভট্ট কহে, — তাঁর কৃপা-লেশ হয় যাঁরে ।
+> ভট্ট কহে, — তাঁর কৃপা-লেশ হয় যাঁরে ।\
 > সেই সে তাঁহারে ‘কৃষ্ণ’ করি’ লইতে পারে ॥১০২॥
 
-> bhaṭṭa kahe,-tāṅra kṛpā-leśa haya yāṅre
+> bhaṭṭa kahe,-tāṅra kṛpā-leśa haya yāṅre\
 > sei se tāṅhāre 'kṛṣṇa' kari' la-ite pāre
 
 *bhaṭṭa kahe*—Sārvabhauma Bhaṭṭācārya said; *tāṅra kṛpā*—of Lord Caitanya's mercy; *leśa*—even a fraction; *haya*—there is; *yāṅre*—unto whom; *sei se*—that person only; *tāṅhāre*—Lord Śrī Caitanya Mahāprabhu; *kṛṣṇa kari'*—accepting as Kṛṣṇa; *la-ite pāre*—can take up.

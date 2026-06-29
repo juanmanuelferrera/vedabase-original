@@ -1,18 +1,18 @@
 ### SB 8.18.24-25
 
-> मौञ्ज्या मेखलया वीतमुपवीताजिनोत्तरम
-> जटिलं वामनं विप्रं मायामाणवकं हरिम ॥२४॥
-> प्रविष्टं वीक्ष्य भृगवः सशिष्यास्ते सहाग्निभिः
+> मौञ्ज्या मेखलया वीतमुपवीताजिनोत्तरम\
+> जटिलं वामनं विप्रं मायामाणवकं हरिम ॥२४॥\
+> प्रविष्टं वीक्ष्य भृगवः सशिष्यास्ते सहाग्निभिः\
 > प्रत्यगृह्णन्समुत्थाय सङ्क्षिप्तास्तस्य तेजसा ॥२५॥
 
-> mauñjyā mekhalayā vītam
-> upavītājinottaram
-> jaṭilaṁ vāmanaṁ vipraṁ
+> mauñjyā mekhalayā vītam\
+> upavītājinottaram\
+> jaṭilaṁ vāmanaṁ vipraṁ\
 > māyā-māṇavakaṁ harim
 
-> praviṣṭaṁ vīkṣya bhṛgavaḥ
-> saśiṣyās te sahāgnibhiḥ
-> pratyagṛhṇan samutthāya
+> praviṣṭaṁ vīkṣya bhṛgavaḥ\
+> saśiṣyās te sahāgnibhiḥ\
+> pratyagṛhṇan samutthāya\
 > saṅkṣiptās tasya tejasā
 
 *mauñjyā*—made of *muñja* straw; *mekhalayā*—with a belt; *vītam*—circled; *upavīta*—sacred thread; *ajina-uttaram*—wearing a deerskin upper garment; *jaṭilam*—having matted locks of hair; *vāmanam*—Lord Vāmana; *vipram*—a *brāhmaṇa*; *māyā-māṇavakam*—the illusory son of a human being; *harim*—the Supreme Personality of Godhead; *praviṣṭam*—entered; *vīkṣya*—seeing; *bhṛgavaḥ*—the priests who were descendants of Bhṛgu; *sa-śiṣyāḥ*—with their disciples; *te*—all of them; *saha-agnibhiḥ*—with the fire sacrifice; *pratyagṛhṇan*—properly welcomed; *samutthāya*—standing up; *saṅkṣiptāḥ*—being diminished; *tasya*—His; *tejasā*—by brilliance.

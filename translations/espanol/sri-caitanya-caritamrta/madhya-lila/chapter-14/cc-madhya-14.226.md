@@ -1,9 +1,9 @@
 ### CC Madhya 14.226
 
-> লক্ষ্মী জিনি’ গুণ যাহাঁ লক্ষ্মীর সমাজ ।
+> লক্ষ্মী জিনি’ গুণ যাহাঁ লক্ষ্মীর সমাজ ।\
 > কৃষ্ণ-বংশী করে যাহাঁ প্রিয়সখী-কায ॥২২৬॥
 
-> lakṣmī jini' guṇa yāhāṅ lakṣmīra samāja
+> lakṣmī jini' guṇa yāhāṅ lakṣmīra samāja\
 > kṛṣṇa-vaṁśī kare yāhāṅ priya-sakhī-kāya
 
 *lakṣmī*—la diosa de la fortuna; *jini'*—superando; *guṇa*—cualidades; *yāhāṅ*—donde; *lakṣmīra samāja*—la sociedad de las gopīs; *kṛṣṇa-vaṁśī*—la flauta del Señor Śrī Kṛṣṇa; *kare*—en Su mano; *yāhāṅ*—donde; *priya-sakhī-kāya*—una querida compañera.

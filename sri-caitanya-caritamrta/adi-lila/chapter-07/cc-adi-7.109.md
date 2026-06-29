@@ -1,9 +1,9 @@
 ### CC Adi 7.109
 
-> গৌণ-বৃত্ত্যে যেবা ভাষ্য করিল আচার্য ।
+> গৌণ-বৃত্ত্যে যেবা ভাষ্য করিল আচার্য ।\
 > তাহার শ্রবণে নাশ হয় সর্ব কার্য ॥১০৯॥
 
-> gauṇa-vṛttye yebā bhāṣya karila ācārya
+> gauṇa-vṛttye yebā bhāṣya karila ācārya\
 > tāhāra śravaṇe nāśa haya sarva kārya
 
 *gauṇa-vṛttye*—by indirect meanings; *yebā*—which; *bhāṣya*—commentary; *karila*—prepared; *ācārya*—Śaṅkarācārya; *tāhāra*—its; *śravaṇe*—hearing; *nāśa*—destruction; *haya*—becomes; *sarva*—all; *kārya*—business.

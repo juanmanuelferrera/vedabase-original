@@ -1,9 +1,9 @@
 ### CC Antya 6.191
 
-> প্রভু কহেন, — ‘আইস’, তেঁহো ধরিলা চরণ ।
+> প্রভু কহেন, — ‘আইস’, তেঁহো ধরিলা চরণ ।\
 > উঠি’ প্রভু কৃপায় তাঁরে কৈলা আলিঙ্গন ॥১৯১॥
 
-> prabhu kahena,—'āisa;, teṅho dharilā caraṇa
+> prabhu kahena,—'āisa;, teṅho dharilā caraṇa\
 > uṭhi' prabhu kṛpāya tāṅre kailā āliṅgana
 
 *prabhu kahena*—the Lord said; *āisa*—come here; *teṅho*—he; *dharilā caraṇa*—caught His lotus feet; *uṭhi'*—standing up; *prabhu*—the Lord; *kṛpāya*—out of mercy; *tāṅre*—him; *kailā āliṅgana*—embraced.

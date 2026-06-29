@@ -1,9 +1,9 @@
 ### CC Madhya 9.158
 
-> agādha īśvara-līlā kichui nā jāni
+> agādha īśvara-līlā kichui nā jāni\
 > tumi yei kaha, sei satya kari' māni
 
-> agādha īśvara-līlā kichui nā jāni
+> agādha īśvara-līlā kichui nā jāni\
 > tumi yei kaha, sei satya kari' māni
 
 *agādha*—insondable; *īśvara-līlā*—pasatiempos del Señor; *kichui*—nada; *nā jāni*—no sé; *tumi*—Tú; *yei*—lo que; *kaha*—dices; *sei satya*—eso es correcto; *kari' māni*—lo acepto.

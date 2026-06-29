@@ -1,13 +1,13 @@
 ### SB 3.28.23
 
-> जानुद्वयं जलजलोचनया जनन्या
-> लक्ष्म्याखिलस्य सुरवन्दितया विधातुः ।
-> ऊर्वोर्निधाय करपल्लवरोचिषा यत्
+> जानुद्वयं जलजलोचनया जनन्या\
+> लक्ष्म्याखिलस्य सुरवन्दितया विधातुः ।\
+> ऊर्वोर्निधाय करपल्लवरोचिषा यत्\
 > संलालितं हृदि विभोरभवस्य कुर्यात् ॥२३॥
 
-> jānu-dvayaṁ jalaja-locanayā jananyā
-> lakṣmyākhilasya sura-vanditayā vidhātuḥ
-> ūrvor nidhāya kara-pallava-rociṣā yat
+> jānu-dvayaṁ jalaja-locanayā jananyā\
+> lakṣmyākhilasya sura-vanditayā vidhātuḥ\
+> ūrvor nidhāya kara-pallava-rociṣā yat\
 > saṁlālitaṁ hṛdi vibhor abhavasya kuryāt
 
 *jānu-dvayam*—hasta las rodillas; *jalaja-locanayā*—de ojos de loto; *jananyā*—madre; *lakṣmyā*—por Lakṣmī; *akhilasya*—del universo entero; *sura-vanditayā*—adorada por los semidioses; *vidhātuḥ*—de Brahmā; *ūrvoḥ*—a los muslos; *nidhāya*—habiendo situado; *kara-pallava-rociṣā*—con sus lustrosos dedos; *yat*—los cuales; *saṁlālitam*—recibiendo masaje; *hṛdi*—en el corazón; *vibhoḥ*—del Señor; *abhavasya*—trascendental a la existencia material; *kuryāt*—debe meditar.

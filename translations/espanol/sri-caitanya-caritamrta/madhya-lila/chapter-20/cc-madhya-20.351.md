@@ -1,9 +1,9 @@
 ### CC Madhya 20.351
 
-> ‘অতি ক্ষুদ্র জীব মুঞি নীচ, নীচাচার ।
+> ‘অতি ক্ষুদ্র জীব মুঞি নীচ, নীচাচার ।\
 > কেমনে জানিব কলিতে কোন্ অবতার ?’ ॥ ৩৫১ ॥
 
-> 'ati kṣudra jīva muñi nīca, nīcācāra
+> 'ati kṣudra jīva muñi nīca, nīcācāra\
 > kemane jāniba kalite kon avatāra?'
 
 *ati*—muy; *kṣudra*—insignificante, sin importancia; *jīva*—entidad viviente; *muñi*—yo; *nīca*—bajo; *nīca-ācāra*—de conducta muy abominable; *kemane*—cómo; *jāniba*—sabré; *kalite*—en esta era; *kon avatāra*—quién es la encarnación.

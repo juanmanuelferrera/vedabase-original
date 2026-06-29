@@ -1,11 +1,11 @@
 ### SB 2.6.22
 
-> यस्मादण्डं विराड्जज्ञे भूतेन्द्रियगुणात्मकः ।
+> यस्मादण्डं विराड्जज्ञे भूतेन्द्रियगुणात्मकः ।\
 > तद्द्रव्यमत्यगाद्विश्वं गोभिः सूर्य इवातपन् ॥२२॥
 
-> yasmād aṇḍaṁ virāḍ jajñe
-> bhūtendriya-guṇātmakaḥ
-> tad dravyam atyagād viśvaṁ
+> yasmād aṇḍaṁ virāḍ jajñe\
+> bhūtendriya-guṇātmakaḥ\
+> tad dravyam atyagād viśvaṁ\
 > gobhiḥ sūrya ivātapan
 
 *yasmāt*—from whom; *aṇḍam*—the universal globes; *virāṭ*—and the gigantic universal form; *jajñe*—appeared; *bhūta*—elements; *indriya*—senses; *guṇa-ātmakaḥ*—qualitative; *tat dravyam*—the universes and the universal form, etc.; *atyagāt*—surpassed; *viśvam*—all the universes; *gobhiḥ*—by the rays; *sūryaḥ*—the sun; *iva*—like; *ātapan*—distributed rays and heat.

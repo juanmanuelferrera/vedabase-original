@@ -1,9 +1,9 @@
 ### CC Madhya 10.6
 
-> তোমারে বহু কৃপা কৈলা, কহে সর্বজন ৷
+> তোমারে বহু কৃপা কৈলা, কহে সর্বজন ৷\
 > কৃপা করি’ করাহ মোরে তাঁহার দর্শন ৷৷ ৬ ৷৷ ॥৬॥
 
-> tomāre bahu kṛpā kailā, kahe sarva-jana
+> tomāre bahu kṛpā kailā, kahe sarva-jana\
 > kṛpā kari' karāha more tāṅhāra darśana
 
 *tomāre*—contigo; *bahu kṛpā*—gran misericordia; *kailā*—mostró; *kahe*—dice; *sarva-jana*—todo el mundo; *kṛpā kari'*—siendo misericordioso; *karāha*—arréglame; *more*—para mí; *tāṅhāra*—Su; *darśana*—una entrevista.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.17
 
-> শুনি’ সবে জানিলা এই মহাপ্রভুর কার্য ।
+> শুনি’ সবে জানিলা এই মহাপ্রভুর কার্য ।\
 > হেনকালে আইলা তাহাঁ গোপীনাথাচার্য ॥১৭॥
 
-> śuni' sabe jānilā ei mahāprabhura kārya
+> śuni' sabe jānilā ei mahāprabhura kārya\
 > hena-kāle āilā tāhāṅ gopīnāthācārya
 
 *śuni'*—hearing this; *sabe*—all the devotees; *jānilā*—could understand; *ei*—this; *mahāprabhura*—of Lord Caitanya Mahāprabhu; *kārya*—the activities; *hena-kāle*—at that time; *āilā*—came; *tāhāṅ*—there; *gopīnātha-ācārya*—of the name Gopīnātha Ācārya.

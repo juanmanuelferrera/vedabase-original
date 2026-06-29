@@ -1,13 +1,13 @@
 ### SB 4.4.1
 
-> मैत्रेय उवाच
-> एतावदुक्त्वा विरराम शङ्करः पत्न्यङ्गनाशं ह्युभयत्र चिन्तयन् ।
+> मैत्रेय उवाच\
+> एतावदुक्त्वा विरराम शङ्करः पत्न्यङ्गनाशं ह्युभयत्र चिन्तयन् ।\
 > सुहृद्दिदृक्षुः परिशङ्किता भवान्निष्क्रामती निर्विशती द्विधास सा ॥१॥
 
-> maitreya uvāca
-> etāvad uktvā virarāma śaṅkaraḥ
-> patny-aṅga-nāśaṁ hy ubhayatra cintayan
-> suhṛd-didṛkṣuḥ pariśaṅkitā bhavān
+> maitreya uvāca\
+> etāvad uktvā virarāma śaṅkaraḥ\
+> patny-aṅga-nāśaṁ hy ubhayatra cintayan\
+> suhṛd-didṛkṣuḥ pariśaṅkitā bhavān\
 > niṣkrāmatī nirviśatī dvidhāsa sā
 
 *maitreyaḥ uvāca*—Maitreya said; *etāvat*—so much; *uktvā*—after speaking; *virarāma*—was silent; *śaṅkaraḥ*—Lord Śiva; *patnī-aṅga-nāśam*—the destruction of the body of his wife; *hi*—since; *ubhayatra*—in both cases; *cintayan*—understanding; *suhṛt-didṛkṣuḥ*—being anxious to see her relatives; *pariśaṅkitā*—being afraid; *bhavāt*—of Śiva; *niṣkrāmatī*—moving out; *nirviśatī*—moving in; *dvidhā*—divided; *āsa*—was; *sā*—she (Satī).

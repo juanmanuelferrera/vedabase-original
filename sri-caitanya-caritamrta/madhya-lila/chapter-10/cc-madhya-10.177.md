@@ -1,9 +1,9 @@
 ### CC Madhya 10.177
 
-> বিল্বমঙ্গল কৈল যৈছে দশা আপনার ।
+> বিল্বমঙ্গল কৈল যৈছে দশা আপনার ।\
 > ইহাঁ দেখি’ সেই দশা হইল আমার ॥১৭৭॥
 
-> bilvamaṅgala kaila yaiche daśā āpanāra
+> bilvamaṅgala kaila yaiche daśā āpanāra\
 > ihāṅ dekhi' sei daśā ha-ila āmāra
 
 *bilvamaṅgala*—Bilvamaṅgala; *kaila*—did; *yaiche*—as; *daśā*—condition; *āpanāra*—his own; *ihāṅ*—here; *dekhi'*—I see; *sei daśā*—that condition; *ha-ila*—became; *āmāra*—mine.

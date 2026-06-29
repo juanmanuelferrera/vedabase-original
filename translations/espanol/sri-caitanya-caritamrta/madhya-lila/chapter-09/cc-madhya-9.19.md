@@ -1,9 +1,9 @@
 ### CC Madhya 9.19
 
-> সেই বিপ্র রামনাম নিরন্তর লয় ৷
+> সেই বিপ্র রামনাম নিরন্তর লয় ৷\
 > ‘রাম’ ‘রাম’ বিনা অন্য বাণী না কহয় ৷৷ ১৯ ৷৷ ॥১৯॥
 
-> sei vipra rāma-nāma nirantara laya
+> sei vipra rāma-nāma nirantara laya\
 > 'rāma''rāma' vinā anya vāṇī nā kahaya
 
 *sei vipra*—ese *brāhmaṇa*; *rāma-nāma*—el santo nombre del Señor Rāmacandra; *nirantara*—constantemente; *laya*—canta; *rāma rāma*—los santos nombres Rāma Rāma; *vinā*—sin; *anya*—otra; *vāṇī*—vibración; *nā*—no; *kahaya*—habla.

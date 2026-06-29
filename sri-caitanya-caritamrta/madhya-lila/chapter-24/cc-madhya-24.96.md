@@ -1,9 +1,9 @@
 ### CC Madhya 24.96
 
-> এই চারি সুকৃতি হয় মহাভাগ্যবান্ ।
+> এই চারি সুকৃতি হয় মহাভাগ্যবান্ ।\
 > তত্তৎকামাদি ছাড়ি’ হয় শুদ্ধভক্তিমান্ ॥৯৬॥
 
-> ei cāri sukṛti haya mahā-bhāgyavān
+> ei cāri sukṛti haya mahā-bhāgyavān\
 > tat-tat-kāmādi chāḍi' haya śuddha-bhaktimān
 
 *ei cāri*—these four persons; *sukṛti*—pious men; *haya*—are; *mahā-bhāgyavān*—highly fortunate; *tat-tat*—those respective; *kāma-ādi*—aspirations; *chāḍi'*—giving up; *haya*—become; *śuddha-bhaktimān*—pure devotees.

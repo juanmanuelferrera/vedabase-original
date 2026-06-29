@@ -1,11 +1,11 @@
 ### SB 9.2.17
 
-> धृष्टाद्धार्ष्टमभूत्क्षत्रं ब्रह्मभूयं गतं क्षितौ
+> धृष्टाद्धार्ष्टमभूत्क्षत्रं ब्रह्मभूयं गतं क्षितौ\
 > नृगस्य वंशः सुमतिर्भूतज्योतिस्ततो वसुः ॥१७॥
 
-> dhṛṣṭād dhārṣṭam abhūt kṣatraṁ
-> brahma-bhūyaṁ gataṁ kṣitau
-> nṛgasya vaṁśaḥ sumatir
+> dhṛṣṭād dhārṣṭam abhūt kṣatraṁ\
+> brahma-bhūyaṁ gataṁ kṣitau\
+> nṛgasya vaṁśaḥ sumatir\
 > bhūtajyotis tato vasuḥ
 
 *dhṛṣṭāt*—from Dhṛṣṭa, another son of Manu; *dhārṣṭam*—a caste of the name Dhārṣṭa; *abhūt*—was produced; *kṣatram*—belonging to the *kṣatriya* group; *brahma-bhūyam*—the position of *brāhmaṇas*; *gatam*—had achieved; *kṣitau*—on the surface of the world; *nṛgasya*—of Nṛga, another son of Manu; *vaṁśaḥ*—the dynasty; *sumatiḥ*—of the name Sumati; *bhūtajyotiḥ*—of the name Bhūtajyoti; *tataḥ*—thereafter; *vasuḥ*—by the name Vasu.

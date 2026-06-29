@@ -1,11 +1,11 @@
 ### SB 7.7.47
 
-> कर्माण्यारभते देही देहेनात्मानुवर्तिना
+> कर्माण्यारभते देही देहेनात्मानुवर्तिना\
 > कर्मभिस्तनुते देहमुभयं त्वविवेकतः ॥४७॥
 
-> karmāṇy ārabhate dehī
-> dehenātmānuvartinā
-> karmabhis tanute deham
+> karmāṇy ārabhate dehī\
+> dehenātmānuvartinā\
+> karmabhis tanute deham\
 > ubhayaṁ tv avivekataḥ
 
 *karmāṇi*—actividades fruitivas materiales; *ārabhate*—comienza; *dehī*—la entidad viviente que ha recibido un determinado tipo de cuerpo; *dehena*—con ese cuerpo; *ātma-anuvartinā*—que ha recibido conforme a su deseo y a las actividades que ha realizado en el pasado; *karmabhiḥ*—con esas actividades materiales; *tanute*—expande; *deham*—otro cuerpo; *ubhayam*—ambos; *tu*—en verdad; *avivekataḥ*—debidos a la ignorancia.

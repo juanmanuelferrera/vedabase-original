@@ -1,11 +1,11 @@
 ### SB 7.3.35
 
-> यदि दास्यस्यभिमतान्वरान्मे वरदोत्तम
+> यदि दास्यस्यभिमतान्वरान्मे वरदोत्तम\
 > भूतेभ्यस्त्वद्विसृष्टेभ्यो मृत्युर्मा भून्मम प्रभो ॥३५॥
 
-> yadi dāsyasy abhimatān
-> varān me varadottama
-> bhūtebhyas tvad-visṛṣṭebhyo
+> yadi dāsyasy abhimatān\
+> varān me varadottama\
+> bhūtebhyas tvad-visṛṣṭebhyo\
 > mṛtyur mā bhūn mama prabho
 
 *yadi*—si; *dāsyasi*—tú vas a darme; *abhimatān*—las deseadas; *varān*—bendiciones; *me*—a mí; *varada-uttama*—¡oh, tú, el mejor de quienes otorgan bendiciones!; *bhūtebhyaḥ*—de las entidades vivientes; *tvat*—por ti; *visṛṣṭebhyaḥ*—que son creados; *mṛtyuḥ*—muerte; *mā*—no; *bhūt*—que sea; *mama*—mía; *prabho*—¡oh, mi señor!.

@@ -1,9 +1,9 @@
 ### CC Madhya 25.72
 
-> প্রভু কহে, — ‘তুমি জগদ্গুরু পূজ্যতম ।
+> প্রভু কহে, — ‘তুমি জগদ্গুরু পূজ্যতম ।\
 > আমি তোমার না হই ‘শিষ্যের শিষ্য’ সম ॥৭২॥
 
-> prabhu kahe,-'tumi jagad-guru pūjyatama
+> prabhu kahe,-'tumi jagad-guru pūjyatama\
 > āmi tomāra nā ha-i 'śiṣyera śiṣya' sama
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu continued to speak; *tumi*—you; *jagat-guru*—the spiritual master of the whole world; *pūjya-tama*—the most worshipable; *āmi*—I; *tomāra*—your; *nā ha-i*—am not; *śiṣyera śiṣya sama*—equal to the disciple of the disciple.

@@ -1,11 +1,11 @@
 ### Bg 7.13
 
-> त्रिभिर्गुणमयैर्भावैरेभिः सर्वमिदं जगत् ।
+> त्रिभिर्गुणमयैर्भावैरेभिः सर्वमिदं जगत् ।\
 > मोहितं नाभिजानाति मामेभ्यः परमव्ययम् ॥१३॥
 
-> tribhir guṇa-mayair bhāvair
-> ebhiḥ sarvam idaṁ jagat
-> mohitaṁ nābhijānāti
+> tribhir guṇa-mayair bhāvair\
+> ebhiḥ sarvam idaṁ jagat\
+> mohitaṁ nābhijānāti\
 > mām ebhyaḥ param avyayam
 
 *tribhiḥ*—three; *guṇamayaiḥ*—by the three *guṇas*; *bhāvaiḥ*—state of being; *ebhiḥ*—all this; *sarvam*—the whole world; *idam*—in this world; *jagat*—universe; *mohitam*—deluded; *na abhijānāti*—do not know; *mām*—unto Me; *ebhyaḥ*—above these; *param*—the Supreme; *avyayam*—inexhaustible.

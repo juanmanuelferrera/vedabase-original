@@ -1,9 +1,9 @@
 ### CC Madhya 1.191
 
-> পতিত-পাবন-হেতু তোমার অবতার ।
+> পতিত-পাবন-হেতু তোমার অবতার ।\
 > আমা-বই জগতে, পতিত নাহি আর ॥১৯১॥
 
-> patita-pāvana-hetu tomāra avatāra
+> patita-pāvana-hetu tomāra avatāra\
 > āmā-ba-i jagate, patita nāhi āra
 
 *patita-pāvana*—liberación de los caídos; *hetu*—con el propósito de; *tomāra*—Tu; *avatāra*—encarnación; *āmā-ba-i*—más que nosotros; *jagate*—en este mundo; *patita*—caídos; *nāhi*—no hay; *āra*—más.

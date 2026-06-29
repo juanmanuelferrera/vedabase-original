@@ -1,11 +1,11 @@
 ### SB 8.8.37
 
-> लिप्सन्तः सर्ववस्तूनि कलसं तरसाहरन
+> लिप्सन्तः सर्ववस्तूनि कलसं तरसाहरन\
 > नीयमानेऽसुरैस्तस्मिन्कलसेऽमृतभाजने ॥३७॥
 
-> iti tad-dainyam ālokya
-> bhagavān bhṛtya-kāma-kṛt
-> mā khidyata mitho 'rthaṁ vaḥ
+> iti tad-dainyam ālokya\
+> bhagavān bhṛtya-kāma-kṛt\
+> mā khidyata mitho 'rthaṁ vaḥ\
 > sādhayiṣye sva-māyayā
 
 *iti*—de ese modo; *tat*—de los semidioses; *dainyam*—la pesadumbre; *ālokya*—al ver; *bhagavān*—la Suprema Personalidad de Dios; *bhṛtya-kāma-kṛt*—que siempre está dispuesto a satisfacer los deseos de Sus sirvientes; *mā khidyata*—no estén tristes; *mithaḥ*—con una disputa; *artham*—para obtener el néctar; *vaḥ*—para todos ustedes; *sādhayiṣye*—llevaré a cabo; *sva-māyayā*—con Mi propia energía.

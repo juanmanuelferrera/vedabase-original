@@ -1,11 +1,11 @@
 ### SB 3.18.9
 
-> परानुषक्तं तपनीयोपकल्पं महागदं काञ्चनचित्रदंशम् ।
+> परानुषक्तं तपनीयोपकल्पं महागदं काञ्चनचित्रदंशम् ।\
 > मर्माण्यभीक्ष्णं प्रतुदन्तं दुरुक्तैः प्रचण्डमन्युः प्रहसंस्तं बभाषे ॥९॥
 
-> parānuṣaktaṁ tapanīyopakalpaṁ
-> mahā-gadaṁ kāñcana-citra-daṁśam
-> marmāṇy abhīkṣṇaṁ pratudantaṁ duruktaiḥ
+> parānuṣaktaṁ tapanīyopakalpaṁ\
+> mahā-gadaṁ kāñcana-citra-daṁśam\
+> marmāṇy abhīkṣṇaṁ pratudantaṁ duruktaiḥ\
 > pracaṇḍa-manyuḥ prahasaṁs taṁ babhāṣe
 
 *parā*—from behind; *anuṣaktam*—who followed very closely; *tapanīya-upakalpam*—who had a considerable amount of gold ornaments; *mahā-gadam*—with a great mace; *kāñcana*—golden; *citra*—beautiful; *daṁśam*—armor; *marmāṇi*—the core of the heart; *abhīkṣṇam*—constantly; *pratudantam*—piercing; *duruktaiḥ*—by abusive words; *pracaṇḍa*—terrible; *manyuḥ*—anger; *prahasan*—laughing; *tam*—to him; *babhāṣe*—He said.

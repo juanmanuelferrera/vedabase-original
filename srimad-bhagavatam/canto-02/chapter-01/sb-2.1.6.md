@@ -1,11 +1,11 @@
 ### SB 2.1.6
 
-> एतावान्साङ्ख्ययोगाभ्यां स्वधर्मपरिनिष्ठया ।
+> एतावान्साङ्ख्ययोगाभ्यां स्वधर्मपरिनिष्ठया ।\
 > जन्मलाभः परः पुंसामन्ते नारायणस्मृतिः ॥६॥
 
-> etāvān sāṅkhya-yogābhyāṁ
-> sva-dharma-pariniṣṭhayā
-> janma-lābhaḥ paraḥ puṁsām
+> etāvān sāṅkhya-yogābhyāṁ\
+> sva-dharma-pariniṣṭhayā\
+> janma-lābhaḥ paraḥ puṁsām\
 > ante nārāyaṇa-smṛtiḥ
 
 *etāvān*—all these; *sāṅkhya*—complete knowledge of matter and spirit; *yogābhyām*—knowledge of mystic power; *sva-dharma*—particular occupational duty; *pariniṣṭhayā*—by full perception; *janma*—birth; *lābhaḥ*—gain; *paraḥ*—the supreme; *puṁsām*—of a person; *ante*—at the end; *nārāyaṇa*—the Personality of Godhead; *smṛtiḥ*—remembrance.

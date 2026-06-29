@@ -1,11 +1,11 @@
 ### SB 8.9.24
 
-> देवलिङ्गप्रतिच्छन्नः स्वर्भानुर्देवसंसदि
+> देवलिङ्गप्रतिच्छन्नः स्वर्भानुर्देवसंसदि\
 > प्रविष्टः सोममपिबच्चन्द्रार्काभ्यां च सूचितः ॥२४॥
 
-> deva-liṅga-praticchannaḥ
-> svarbhānur deva-saṁsadi
-> praviṣṭaḥ somam apibac
+> deva-liṅga-praticchannaḥ\
+> svarbhānur deva-saṁsadi\
+> praviṣṭaḥ somam apibac\
 > candrārkābhyāṁ ca sūcitaḥ
 
 *deva-liṅga-praticchannaḥ*—disfrazándose con ropas de semidiós; *svarbhānuḥ*—Rāhu (que ataca y eclipsa al Sol y la Luna); *deva-saṁsadi*—en el grupo de los semidioses; *praviṣṭaḥ*—habiendo entrado; *somam*—el néctar; *apibat*—bebió; *candra-arkābhyām*—por el Sol y la Luna; *ca*—y; *sūcitaḥ*—fue descubierto.

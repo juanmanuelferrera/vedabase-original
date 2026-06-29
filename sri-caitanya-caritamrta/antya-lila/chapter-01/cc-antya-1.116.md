@@ -1,9 +1,9 @@
 ### CC Antya 1.116
 
-> আমাতে সঞ্চারি’ পূর্বে কহিলা সিদ্ধান্ত ।
+> আমাতে সঞ্চারি’ পূর্বে কহিলা সিদ্ধান্ত ।\
 > যে সব সিদ্ধান্তে ব্রহ্মা নাহি পায় অন্ত ॥১১৬॥
 
-> āmāte sañcāri' pūrve kahilā siddhānta
+> āmāte sañcāri' pūrve kahilā siddhānta\
 > ye saba siddhānte brahmā nāhi pāya anta
 
 *āmāte*—within me; *sañcāri'*—creating all logical truths; *pūrve*—previously; *kahilā*—You express; *siddhānta*—conclusive statements; *ye*—which; *saba*—all of; *siddhānte*—conclusive statements; *brahmā*—even Lord Brahmā; *nāhi pāya anta*—cannot understand the limit.

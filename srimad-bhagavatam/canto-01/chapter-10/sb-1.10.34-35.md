@@ -1,18 +1,18 @@
 ### SB 1.10.34-35
 
-> कुरुजाङ्गलपाञ्चालान्शूरसेनान्सयामुनान् ।
-> ब्रह्मावर्तं कुरुक्षेत्रं मत्स्यान्सारस्वतानथ ॥३४॥
-> मरुधन्वमतिक्रम्य सौवीराभीरयोः परान् ।
+> कुरुजाङ्गलपाञ्चालान्शूरसेनान्सयामुनान् ।\
+> ब्रह्मावर्तं कुरुक्षेत्रं मत्स्यान्सारस्वतानथ ॥३४॥\
+> मरुधन्वमतिक्रम्य सौवीराभीरयोः परान् ।\
 > आनर्तान्भार्गवोपागाच्छ्रान्तवाहो मनाग्विभुः ॥३५॥
 
-> kuru-jāṅgala-pāñcālān
-> śūrasenān sayāmunān
-> brahmāvartaṁ kurukṣetraṁ
+> kuru-jāṅgala-pāñcālān\
+> śūrasenān sayāmunān\
+> brahmāvartaṁ kurukṣetraṁ\
 > matsyān sārasvatān atha
 
-> maru-dhanvam atikramya
-> sauvīrābhīrayoḥ parān
-> ānartān bhārgavopāgāc
+> maru-dhanvam atikramya\
+> sauvīrābhīrayoḥ parān\
+> ānartān bhārgavopāgāc\
 > chrāntavāho manāg vibhuḥ
 
 *kuru-jāṅgala*—the province of Delhi; *pāñcālān*—part of the province Punjab; *śūrasenān*—part of the province of Uttar Pradesh; *sa*—with; *yāmunān*—the districts on the bank of the Yamunā; *brahmāvartam*—part of northern Uttar Pradesh; *kurukṣetram*—the place where the battle was fought; *matsyān*—the province Matsyā; *sārasvatān*—part of Punjab; *atha*—and so on; *maru*—Rajasthan, the land of deserts; *dhanvam*—Madhya Pradesh, where water is very scanty; *ati-kramya*—after passing; *sauvīra*—Saurastra; *ābhīrayoḥ*—part of Gujarat; *parān*—western side; *ānartān*—the province of Dvārakā; *bhārgava*—O Śaunaka; *upāgāt*—overtaken by; *śrānta*—fatigue; *vāhaḥ*—the horses; *manāk vibhuḥ*—slightly, because of the long journey.

@@ -1,11 +1,11 @@
 ### SB 5.18.22
 
-> मत्प्राप्तयेऽजेशसुरासुरादयस्तप्यन्त उग्रं तप ऐन्द्रिये धियः
+> मत्प्राप्तयेऽजेशसुरासुरादयस्तप्यन्त उग्रं तप ऐन्द्रिये धियः\
 > ऋते भवत्पादपरायणान्न मां विन्दन्त्यहं त्वद्धृदया यतोऽजित ॥२२॥
 
-> mat-prāptaye 'jeśa-surāsurādayas
-> tapyanta ugraṁ tapa aindriye dhiyaḥ
-> ṛte bhavat-pāda-parāyaṇān na māṁ
+> mat-prāptaye 'jeśa-surāsurādayas\
+> tapyanta ugraṁ tapa aindriye dhiyaḥ\
+> ṛte bhavat-pāda-parāyaṇān na māṁ\
 > vindanty ahaṁ tvad-dhṛdayā yato 'jita
 
 *mat-prāptaye*—para obtener misericordia; *aja*—el Señor Brahmā; *īśa*—el Señor Śiva; *sura*—los demás semidioses, encabezados por el rey Indra, Candra y Varuṇa; *asura-ādayaḥ*—así como los demonios; *tapyante*—se someten; *ugram*—rigurosa; *tapaḥ*—austeridad; *aindriye dhiyaḥ*—cuyas mentes están absortas en pensar en un placer superior de los sentidos; *ṛte*—a menos que; *bhavat-pāda-parāyaṇāt*—aquel que está completa y únicamente ocupado en el servicio de los pies de loto del Señor Supremo; *na*—no; *mām*—a mí; *vindanti*—obtienen; *aham*—yo; *tvat*—en Ti; *hṛdayāḥ*—cuyos corazones; *yataḥ*—por lo tanto; *ajita*—¡oh, inconquistable!.

@@ -1,9 +1,9 @@
 ### CC Antya 1.22
 
-> কুক্কুর নাহি পায় ভাত শুনি’ দুঃখী হৈলা ।
+> কুক্কুর নাহি পায় ভাত শুনি’ দুঃখী হৈলা ।\
 > কুক্কুর চাহিতে দশ-মনুষ্য পাঠাইলা ॥২২॥
 
-> kukkura nāhi pāya bhāta śuni' duḥkhī hailā
+> kukkura nāhi pāya bhāta śuni' duḥkhī hailā\
 > kukkura cāhite daśa-manuṣya pāṭhāilā
 
 *kukkura*—el perro; *nāhi*—no; *pāya*—recibió; *bhāta*—arroz; *śuni'*—al oír; *duḥkhī hailā*—Śivānanda Sena se entristeció mucho; *kukkura cāhite*—para buscar al perro; *daśa-manuṣya*—diez hombres; *pāṭhāilā*—envió.

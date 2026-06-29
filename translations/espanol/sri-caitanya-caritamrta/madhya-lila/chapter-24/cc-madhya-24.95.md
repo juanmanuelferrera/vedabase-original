@@ -1,9 +1,9 @@
 ### CC Madhya 24.95
 
-> আর্ত, অর্থার্থী, — দুই সকাম-ভিতরে গণি ।
+> আর্ত, অর্থার্থী, — দুই সকাম-ভিতরে গণি ।\
 > জিজ্ঞাসু, জ্ঞানী, — দুই মোক্ষকাম মানি ॥৯৫॥
 
-> ārta, arthārthī,--dui sakāma-bhitare gaṇi
+> ārta, arthārthī,--dui sakāma-bhitare gaṇi\
 > jijñāsu, jñānī,--dui mokṣa-kāma māni
 
 *ārta*—afligido; *artha-arthī*—deseoso de dinero; *dui*—dos personas; *sakāma-bhitare*—en la división de las actividades materiales; *gaṇi*—consideramos; *jijñāsu*—inquisitivo; *jñānī*—en busca de conocimiento; *dui*—dos; *mokṣa-kāma*—trascendentalistas que buscan conocimiento espiritual para la liberación; *māni*—considero.

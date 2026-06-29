@@ -1,9 +1,9 @@
 ### CC Madhya 20.150
 
-> বৈকুণ্ঠ, ব্রহ্মাণ্ডগণ — শক্তি-কার্য হয় ।
+> বৈকুণ্ঠ, ব্রহ্মাণ্ডগণ — শক্তি-কার্য হয় ।\
 > স্বরূপশক্তি শক্তি-কার্যের — কৃষ্ণ সমাশ্রয় ॥১৫০॥
 
-> vaikuṇṭha, brahmāṇḍa-gaṇa—śakti-kārya ha ya
+> vaikuṇṭha, brahmāṇḍa-gaṇa—śakti-kārya ha ya\
 > svarūpa-śakti śakti-kāryera—kṛṣṇa samāśraya
 
 *vaikuṇṭha*—the spiritual world; *brahmāṇḍa-gaṇa*—universes of the material world; *śakti-kārya haya*—they are all activities of Kṛṣṇa's potencies; *svarūpa-śakti*—of the internal potency; *śakti-kāryera*—of the activities of the external potency; *kṛṣṇa*—Lord Kṛṣṇa; *samāśraya*—the original source.

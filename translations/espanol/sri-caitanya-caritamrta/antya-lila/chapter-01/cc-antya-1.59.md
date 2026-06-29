@@ -1,9 +1,9 @@
 ### CC Antya 1.59
 
-> প্রতিদিন আসি’ রূপে করেন মিলনে ।
+> প্রতিদিন আসি’ রূপে করেন মিলনে ।\
 > মন্দিরে যে প্রসাদ পান, দেন দুই জনে ॥৫৯॥
 
-> pratidina āsi' rūpe karena milane
+> pratidina āsi' rūpe karena milane\
 > mandire ye prasāda pāna, dena dui jane
 
 *pratidina*—cada día; *āsi'*—acudiendo; *rūpe*—a Rūpa Gosvāmī; *karena milane*—Caitanya Mahāprabhu se encuentra; *mandire*—en el templo de Jagannātha; *ye*—cualquier; *prasāda pāna*—prasādam que recibe; *dena*—da; *dui jane*—a dos personas, Śrīla Rūpa Gosvāmī y Haridāsa Ṭhākura.

@@ -1,11 +1,11 @@
 ### SB 1.17.2
 
-> वृषं मृणालधवलं मेहन्तमिव बिभ्यतम् ।
+> वृषं मृणालधवलं मेहन्तमिव बिभ्यतम् ।\
 > वेपमानं पदैकेन सीदन्तं शूद्रताडितम् ॥२॥
 
-> vṛṣaṁ mṛṇāla-dhavalaṁ
-> mehantam iva bibhyatam
-> vepamānaṁ padaikena
+> vṛṣaṁ mṛṇāla-dhavalaṁ\
+> mehantam iva bibhyatam\
+> vepamānaṁ padaikena\
 > sīdantaṁ śūdra-tāḍitam
 
 *vṛṣam*—the bull; *mṛṇāla-dhavalam*—as white as a white lotus; *mehantam*—urinating; *iva*—as if; *bibhyatam*—being too afraid; *vepamānam*—trembling; *padā ekena*—standing on only one leg; *sīdantam*—terrified; *śūdra-tāḍitam*—being beaten by a *śūdra.*

@@ -1,11 +1,11 @@
 ### Bg 4.14
 
-> न मां कर्माणि लिम्पन्ति न मे कर्मफले स्पृहा ।
+> न मां कर्माणि लिम्पन्ति न मे कर्मफले स्पृहा ।\
 > इति मां योऽभिजानाति कर्मभिर्न स बध्यते ॥१४॥
 
-> na māṁ karmāṇi limpanti
-> na me karma-phale spṛhā
-> iti māṁ yo'bhijānāti
+> na māṁ karmāṇi limpanti\
+> na me karma-phale spṛhā\
+> iti māṁ yo'bhijānāti\
 > karmabhir na sa badhyate
 
 *na*—nunca; *mām*—a Mí; *karmāṇi*—toda clase de trabajos; *limpanti*—afectan; *na*—ni; *me*—Mí; *karma-phale*—en la acción fruitiva; *spṛhā*—aspiración; *iti*—así; *mām*—a Mí; *yaḥ*—aquel que; *abhijānāti*—sabe; *karmabhiḥ*—mediante la reacción de dicho trabajo; *na*—nunca hace; *saḥ*—él; *badhyate*—se enreda.

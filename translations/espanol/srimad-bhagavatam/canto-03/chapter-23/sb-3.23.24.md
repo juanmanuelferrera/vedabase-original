@@ -1,11 +1,11 @@
 ### SB 3.23.24
 
-> सा तद्भर्तुः समादाय वचः कुवलयेक्षणा ।
+> सा तद्भर्तुः समादाय वचः कुवलयेक्षणा ।\
 > सरजं बिभ्रती वासो वेणीभूतांश्च मूर्धजान् ॥२४॥
 
-> sā tad bhartuḥ samādāya
-> vacaḥ kuvalayekṣaṇā
-> sarajaṁ bibhratī vāso
+> sā tad bhartuḥ samādāya\
+> vacaḥ kuvalayekṣaṇā\
+> sarajaṁ bibhratī vāso\
 > veṇī-bhūtāṁś ca mūrdhajān
 
 *sā*—ella; *tat*—entonces; *bhartuḥ*—de su esposo; *samādāya*—aceptando; *vacaḥ*—las palabras; *kuvalaya-īkṣaṇā*—la de ojos de loto; *sa-rajam*—sucio; *bibhratī*—llevando; *vāsaḥ*—vestido; *veṇī-bhūtān*—enmarañado; *ca*—y; *mūrdha-jān*—cabello.

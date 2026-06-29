@@ -1,13 +1,13 @@
 ### CC Madhya 2.88
 
-> ভাগবত — শ্লোকময়, টীকা তার সংস্কৃত হয়,
-> তবু কৈছে বুঝে ত্রিভুবন ।
-> ইহাঁ শ্লোক দুই চারি, তার ব্যাখ্যা ভাষা করি,
+> ভাগবত — শ্লোকময়, টীকা তার সংস্কৃত হয়,\
+> তবু কৈছে বুঝে ত্রিভুবন ।\
+> ইহাঁ শ্লোক দুই চারি, তার ব্যাখ্যা ভাষা করি,\
 > কেনে না বুঝিবে সর্বজন ॥৮৮॥
 
-> bhāgavata--śloka-maya, ṭīkā tāra saṁskṛta haya,
-> tabu kaiche bujhe tri-bhuvana
-> ihāṅ śloka dui cāri, tāra vyākhyā bhāṣā kari,
+> bhāgavata--śloka-maya, ṭīkā tāra saṁskṛta haya,\
+> tabu kaiche bujhe tri-bhuvana\
+> ihāṅ śloka dui cāri, tāra vyākhyā bhāṣā kari,\
 > kene nā bujhibe sarva-jana
 
 *bhāgavata*—el Śrīmad-Bhāgavatam; *śloka-maya*—lleno de versos sánscritos; *ṭīkā*—los comentarios; *tāra*—de él; *saṁskṛta*—en lengua sánscrita; *haya*—están; *tabu*—aun así; *kaiche*—cómo; *bujhe*—entiende; *tri-bhuvana*—el mundo entero; *ihāṅ*—en este; *śloka*—versos; *dui cāri*—unos pocos; *tāra*—de ellos; *vyākhyā*—explicación; *bhāṣā*—en lenguaje sencillo; *kari*—hago; *kene*—por qué; *nā*—no; *bujhibe*—comprenderán; *sarva-jana*—todas las personas.

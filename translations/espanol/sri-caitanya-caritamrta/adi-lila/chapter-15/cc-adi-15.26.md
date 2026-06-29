@@ -1,9 +1,9 @@
 ### CC Adi 15.26
 
-> গৃহিণী বিনা গৃহধর্ম না হয় শোভন ।
+> গৃহিণী বিনা গৃহধর্ম না হয় শোভন ।\
 > এত চিন্তি’ বিবাহ করিতে হৈল মন ॥২৬॥
 
-> gṛhiṇī vinā gṛha-dharma nā haya śobhana
+> gṛhiṇī vinā gṛha-dharma nā haya śobhana\
 > eta cinti' vivāha karite haila mana
 
 *gṛhiṇī*—esposa; *vinā*—sin; *gṛha-dharma*—deberes de la vida familiar; *nā*—no; *haya*—resultan; *śobhana*—adecuados; *eta cinti'*—pensando así; *vivāha*—matrimonio; *karite*—realizar; *haila*—se decidió; *mana*—la mente.

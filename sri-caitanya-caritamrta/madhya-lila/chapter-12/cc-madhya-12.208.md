@@ -1,9 +1,9 @@
 ### CC Madhya 12.208
 
-> প্রভুর আগে পুরী, ভারতী, — দুঁহার গমন ।
+> প্রভুর আগে পুরী, ভারতী, — দুঁহার গমন ।\
 > স্বরূপ, অদ্বৈত, — দুঁহের পার্শ্বে দুইজন ॥২০৮॥
 
-> prabhura āge purī, bhāratī,-duṅhāra gamana
+> prabhura āge purī, bhāratī,-duṅhāra gamana\
 > svarūpa, advaita,-duṅhera pārśve dui-jana
 
 *prabhura āge*—in front of Lord Śrī Caitanya Mahāprabhu; *purī*—Paramānanda Purī; *bhāratī*—Brahmānanda Bhāratī; *duṅhāra gamana*—first they went; *svarūpa*—Svarūpa Dāmodara; *advaita*—Advaita Ācārya; *duṅhera*—of both; *pārśve*—on the two sides; *dui-jana*—two persons.

@@ -1,11 +1,11 @@
 ### SB 3.4.15
 
-> को न्वीश ते पादसरोजभाजां सुदुर्लभोऽर्थेषु चतुर्ष्वपीह ।
+> को न्वीश ते पादसरोजभाजां सुदुर्लभोऽर्थेषु चतुर्ष्वपीह ।\
 > तथापि नाहं प्रवृणोमि भूमन्भवत्पदाम्भोजनिषेवणोत्सुकः ॥१५॥
 
-> ko nv īśa te pāda-saroja-bhājāṁ
-> sudurlabho 'rtheṣu caturṣv apīha
-> tathāpi nāhaṁ pravṛṇomi bhūman
+> ko nv īśa te pāda-saroja-bhājāṁ\
+> sudurlabho 'rtheṣu caturṣv apīha\
+> tathāpi nāhaṁ pravṛṇomi bhūman\
 > bhavat-padāmbhoja-niṣevaṇotsukaḥ
 
 *kaḥ nu īśa*—¡oh, mi Señor!; *te*—Tus; *pāda-saroja-bhājām*—de los devotos ocupados en el amoroso y trascendental servicio de Tus pies de loto; *su-durlabhaḥ*—muy difícil de obtener; *artheṣu*—en lo referente a; *caturṣu*—en los cuatro objetivos; *api*—a pesar de; *iha*—en este mundo; *tathā api*—sin embargo; *na*—no; *aham*—yo; *pravṛṇomi*—prefiero; *bhūman*—¡oh, Tú, el grande!; *bhavat*—Tus; *pada-ambhoja*—pies de loto; *niṣevaṇa-utsukaḥ*—ansioso de servir.

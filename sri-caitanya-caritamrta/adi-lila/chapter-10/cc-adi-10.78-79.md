@@ -1,14 +1,14 @@
 ### CC Adi 10.78-79
 
-> খণ্ডবাসী মুকুন্দদাস, শ্রীরঘুনন্দন ।
-> নরহরিদাস, চিরঞ্জীব, সুলোচন ॥৭৮॥
-> এই সব মহাশাখা — চৈতন্য-কৃপাধাম ।
+> খণ্ডবাসী মুকুন্দদাস, শ্রীরঘুনন্দন ।\
+> নরহরিদাস, চিরঞ্জীব, সুলোচন ॥৭৮॥\
+> এই সব মহাশাখা — চৈতন্য-কৃপাধাম ।\
 > প্রেম-ফল-ফুল করে যাহাঁ তাহাঁ দান ॥৭৯॥
 
-> khaṇḍavāsī mukunda-dāsa, śrī-raghunandana
+> khaṇḍavāsī mukunda-dāsa, śrī-raghunandana\
 > narahari-dāsa, cirañjīva, sulocana
 
-> ei saba mahāśākhā—caitanya-kṛpādhāma
+> ei saba mahāśākhā—caitanya-kṛpādhāma\
 > prema-phala-phula kare yāhāṅ tāhāṅ dāna
 
 *khaṇḍa-vāsī mukunda-dāsa*—of the name Mukunda dāsa; *śrī-raghunandana*—of the name Raghunandana; *narahari-dāsa*—of the name Narahari dāsa; *cirañjīva*—of the name Cirañjīva; *sulocana*—of the name Sulocana; *eisaba*—all of them; *mahā-śākhā*—great branches; *caitanya-kṛpā-dhāma*—of Lord Śrī Caitanya Mahāprabhu, the reservoir of mercy; *prema*—love of God; *phala*—fruit; *phula*—flower; *kare*—does; *yāhāṅ*—anywhere; *tāhāṅ*—everywhere; *dāna*—distribution.

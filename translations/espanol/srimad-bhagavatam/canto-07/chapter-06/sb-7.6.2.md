@@ -1,11 +1,11 @@
 ### SB 7.6.2
 
-> यथा हि पुरुषस्येह विष्णोः पादोपसर्पणम
+> यथा हि पुरुषस्येह विष्णोः पादोपसर्पणम\
 > यदेष सर्वभूतानां प्रिय आत्मेश्वरः सुहृत ॥२॥
 
-> yathā hi puruṣasyeha
-> viṣṇoḥ pādopasarpaṇam
-> yad eṣa sarva-bhūtānāṁ
+> yathā hi puruṣasyeha\
+> viṣṇoḥ pādopasarpaṇam\
+> yad eṣa sarva-bhūtānāṁ\
 > priya ātmeśvaraḥ suhṛt
 
 *yathā*—a fin de; *hi*—en verdad; *puruṣasya*—de una entidad viviente; *iha*—aquí; *viṣṇoḥ*—del Señor Viṣṇu, la Suprema Personalidad de Dios; *pāda-upasarpaṇam*—acudir a los pies de loto; *yat*—debido a; *eṣaḥ*—este; *sarva-bhūtānām*—de todas las entidades vivientes; *priyaḥ*—el ser querido; *ātma-īśvaraḥ*—el señor del alma, la Superalma; *suhṛt*—el mejor amigo y bienqueriente.

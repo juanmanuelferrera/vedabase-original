@@ -1,18 +1,18 @@
 ### SB 7.12.13-14
 
-> उषित्वैवं गुरुकुले द्विजोऽधीत्यावबुध्य च
-> त्रयीं साङ्गोपनिषदं यावदर्थं यथाबलम ॥१३॥
-> दत्त्वा वरमनुज्ञआतो गुरोः कामं यदीश्वरः
+> उषित्वैवं गुरुकुले द्विजोऽधीत्यावबुध्य च\
+> त्रयीं साङ्गोपनिषदं यावदर्थं यथाबलम ॥१३॥\
+> दत्त्वा वरमनुज्ञआतो गुरोः कामं यदीश्वरः\
 > गृहं वनं वा प्रविशेत्प्रव्रजेत्तत्र वा वसेत ॥१४॥
 
-> uṣitvaivaṁ guru-kule
-> dvijo 'dhītyāvabudhya ca
-> trayīṁ sāṅgopaniṣadaṁ
+> uṣitvaivaṁ guru-kule\
+> dvijo 'dhītyāvabudhya ca\
+> trayīṁ sāṅgopaniṣadaṁ\
 > yāvad-arthaṁ yathā-balam
 
-> dattvā varam anujñāto
-> guroḥ kāmaṁ yadīśvaraḥ
-> gṛhaṁ vanaṁ vā praviśet
+> dattvā varam anujñāto\
+> guroḥ kāmaṁ yadīśvaraḥ\
+> gṛhaṁ vanaṁ vā praviśet\
 > pravrajet tatra vā vaset
 
 *uṣitvā*—residing; *evam*—in this way; *guru-kule*—under the care of the spiritual master; *dvi-jaḥ*—the twice-born, namely the *brāhmaṇas, kṣatriyas* and *vaiśyas*; *adhītya*—studying Vedic literature; *avabudhya*—understanding it properly; *ca*—and; *trayīm*—the Vedic literatures; *sa-aṅga*—along with supplementary parts; *upaniṣadam*—as well as the *Upaniṣads*; *yāvat-artham*—as far as possible; *yathā-balam*—as far as one can, according to one's ability; *dattvā*—giving; *varam*—remuneration; *anujñātaḥ*—being asked; *guroḥ*—of the spiritual master; *kāmam*—desires; *yadi*—if; *īśvaraḥ*—capable; *gṛham*—household life; *vanam*—retired life; *vā*—either; *praviśet*—one should enter; *pravrajet*—or get out of; *tatra*—there; *vā*—either; *vaset*—should reside.

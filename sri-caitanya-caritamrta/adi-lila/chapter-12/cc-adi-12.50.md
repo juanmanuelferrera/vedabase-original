@@ -1,9 +1,9 @@
 ### CC Adi 12.50
 
-> প্রতিগ্রহ কভু না করিবে রাজধন ।
+> প্রতিগ্রহ কভু না করিবে রাজধন ।\
 > বিষয়ীর অন্ন খাইলে দুষ্ট হয় মন ॥৫০॥
 
-> pratigraha kabhu nā karibe rāja-dhana
+> pratigraha kabhu nā karibe rāja-dhana\
 > viṣayīra anna khāile duṣṭa haya mana
 
 *pratigraha*—acceptance of alms; *kabhu*—at any time; *nā*—not; *karibe*—should do; *rāja-dhana*—charity by kings; *viṣayīra*—of men who are materialistic; *anna*—food; *khāile*—by eating; *duṣṭa*—polluted; *haya*—becomes; *mana*—mind.

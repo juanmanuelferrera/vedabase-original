@@ -1,9 +1,9 @@
 ### CC Adi 4.248
 
-> এই মত জগতের সুখে আমি হেতু ।
+> এই মত জগতের সুখে আমি হেতু ।\
 > রাধিকার রূপগুণ আমার জীবাতু ॥২৪৮॥
 
-> ei mata jagatera sukhe āmi hetu
+> ei mata jagatera sukhe āmi hetu\
 > rādhikāra rūpa-guṇa āmāra jīvātu
 
 *ei mata*—in this way; *jagatera*—of the whole world; *sukhe*—in the matter of happiness; *āmi*—I am; *hetu*—the cause; *rādhikāra*—of Śrīmatī Rādhārāṇī; *rūpa-guṇa*—beauty and attributes; *āmāra*—My; *jīvātu*—life and soul.

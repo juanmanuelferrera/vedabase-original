@@ -1,9 +1,9 @@
 ### CC Madhya 13.17
 
-> উত্তম হঞা রাজা করে তুচ্ছ সেবন ।
+> উত্তম হঞা রাজা করে তুচ্ছ সেবন ।\
 > অতএব জগন্নাথের কৃপার ভাজন ॥১৭॥
 
-> uttama hañā rājā kare tuccha sevana
+> uttama hañā rājā kare tuccha sevana\
 > ataeva jagannāthera kṛpāra bhājana
 
 *uttama hañā*—although very respectable; *rājā*—the King; *kare*—accepts; *tuccha*—menial; *sevana*—service; *ataeva*—therefore; *jagannāthera*—of Lord Jagannātha; *kṛpāra*—in the matter of mercy; *bhājana*—suitable candidate.

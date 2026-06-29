@@ -1,11 +1,11 @@
 ### SB 9.14.43
 
-> स्थालीं न्यस्य वने गत्वा गृहानाध्यायतो निशि
+> स्थालीं न्यस्य वने गत्वा गृहानाध्यायतो निशि\
 > त्रेतायां सम्प्रवृत्तायां मनसि त्रय्यवर्तत ॥४३॥
 
-> sthālīṁ nyasya vane gatvā
-> gṛhān ādhyāyato niśi
-> tretāyāṁ sampravṛttāyāṁ
+> sthālīṁ nyasya vane gatvā\
+> gṛhān ādhyāyato niśi\
+> tretāyāṁ sampravṛttāyāṁ\
 > manasi trayy avartata
 
 *sthālīm*—a la mujer Agnisthālī; *nyasya*—abandonar inmediatamente; *vane*—en el bosque; *gatvā*—al regresar; *gṛhān*—al hogar; *ādhyāyataḥ*—se puso a meditar; *niśi*—toda la noche; *tretāyām*—cuando el milenio Tretā; *sampravṛttāyām*—estaba a punto de comenzar; *manasi*—en su mente; *trayī*—los principios de los tres *Vedas*; *avartata*—se revelaron.

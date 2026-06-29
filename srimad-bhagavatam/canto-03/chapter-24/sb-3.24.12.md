@@ -1,13 +1,13 @@
 ### SB 3.24.12
 
-> ब्रह्मोवाच
-> त्वया मेऽपचितिस्तात कल्पिता निर्व्यलीकतः ।
+> ब्रह्मोवाच\
+> त्वया मेऽपचितिस्तात कल्पिता निर्व्यलीकतः ।\
 > यन्मे सञ्जगृहे वाक्यं भवान्मानद मानयन् ॥१२॥
 
-> brahmovāca
-> tvayā me 'pacitis tāta
-> kalpitā nirvyalīkataḥ
-> yan me sañjagṛhe vākyaṁ
+> brahmovāca\
+> tvayā me 'pacitis tāta\
+> kalpitā nirvyalīkataḥ\
+> yan me sañjagṛhe vākyaṁ\
 > bhavān mānada mānayan
 
 *brahmā*—Lord Brahmā; *uvāca*—said; *tvayā*—by you; *me*—my; *apacitiḥ*—worship; *tāta*—O son; *kalpitā*—is accomplished; *nirvyalīkataḥ*—without duplicity; *yat*—since; *me*—my; *sañjagṛhe*—have completely accepted; *vākyam*—instructions; *bhavān*—you; *māna-da*—O Kardama (one who offers honor to others); *mānayan*—respecting.

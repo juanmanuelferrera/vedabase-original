@@ -1,11 +1,11 @@
 ### SB 2.8.21
 
-> सम्प्लवः सर्वभूतानां विक्रमः प्रतिसङ्क्रमः ।
+> सम्प्लवः सर्वभूतानां विक्रमः प्रतिसङ्क्रमः ।\
 > इष्टापूर्तस्य काम्यानां त्रिवर्गस्य च यो विधिः ॥२१॥
 
-> samplavaḥ sarva-bhūtānāṁ
-> vikramaḥ pratisaṅkramaḥ
-> iṣṭā-pūrtasya kāmyānāṁ
+> samplavaḥ sarva-bhūtānāṁ\
+> vikramaḥ pratisaṅkramaḥ\
+> iṣṭā-pūrtasya kāmyānāṁ\
 > tri-vargasya ca yo vidhiḥ
 
 *samplavaḥ*—el medio perfecto o la devastación completa; *sarva-bhūtānām*—de todos los seres vivientes; *vikramaḥ*—poder o situación específicos; *pratisaṅkramaḥ*—destrucción última; *iṣṭā*—ejecución de rituales védicos; *pūrtasya*—actos piadosos en términos de la religión; *kāmyānām*—rituales para el desarrollo económico; *tri-vargasya*—los tres medios que consisten en la religión, el desarrollo económico y la satisfacción de los sentidos; *ca*—también; *yaḥ*—cualquiera que sea; *vidhiḥ*—procedimientos.

@@ -1,9 +1,9 @@
 ### CC Adi 12.93
 
-> অতএব তাঁ-সবার বন্দিয়ে চরণ ।
+> অতএব তাঁ-সবার বন্দিয়ে চরণ ।\
 > চৈতন্য-মালীর কহি লীলা-অনুক্রম ॥৯৩॥
 
-> ataeva tāṅ-sabāra vandiye caraṇa
+> ataeva tāṅ-sabāra vandiye caraṇa\
 > caitanya-mālīra kahi līlā-anukrama
 
 *ataeva*—por lo tanto; *tāṅ-sabāra*—de todos ellos; *vandiye*—ofrezco oraciones; *caraṇa*—a los pies de loto; *caitanya-mālīra*—del jardinero conocido como Śrī Caitanya Mahāprabhu; *kahi*—relato; *līlā-anukrama*—los pasatiempos en orden cronológico.

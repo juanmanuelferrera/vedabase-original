@@ -1,11 +1,11 @@
 ### SB 9.3.21
 
-> कथं मतिस्तेऽवगतान्यथा सतां कुलप्रसूते कुलदूषणं त्विदम
+> कथं मतिस्तेऽवगतान्यथा सतां कुलप्रसूते कुलदूषणं त्विदम\
 > बिभर्षि जारं यदपत्रपा कुलं पितुश्च भर्तुश्च नयस्यधस्तमः ॥२१॥
 
-> kathaṁ matis te 'vagatānyathā satāṁ
-> kula-prasūte kula-dūṣaṇaṁ tv idam
-> bibharṣi jāraṁ yad apatrapā kulaṁ
+> kathaṁ matis te 'vagatānyathā satāṁ\
+> kula-prasūte kula-dūṣaṇaṁ tv idam\
+> bibharṣi jāraṁ yad apatrapā kulaṁ\
 > pituś ca bhartuś ca nayasy adhas tamaḥ
 
 *katham*—cómo; *matiḥ te*—tu conciencia; *avagatā*—ha bajado; *anyathā*—de otro modo; *satām*—de la muy respetable; *kula-prasūte*—¡oh, hija mía!, nacida en la familia; *kula-dūṣaṇam*—que eres la degradación de la familia; *tu*—pero; *idam*—a este; *bibharṣi*—mantienes; *jāram*—un amante; *yat*—cómo es; *apatrapā*—sin vergüenza; *kulam*—a la dinastía; *pituḥ*—de tu padre; *ca*—y; *bhartuḥ*—de tu esposo; *ca*—y; *nayasi*—estás haciendo descender; *adhaḥ tamaḥ*—hacia la oscuridad del infierno.

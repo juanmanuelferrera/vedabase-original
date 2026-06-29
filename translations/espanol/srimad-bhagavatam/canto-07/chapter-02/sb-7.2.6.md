@@ -1,11 +1,11 @@
 ### SB 7.2.6
 
-> सपत्नैर्घातितः क्षुद्रैर्भ्राता मे दयितः सुहृत
+> सपत्नैर्घातितः क्षुद्रैर्भ्राता मे दयितः सुहृत\
 > पार्ष्णिग्राहेण हरिणा समेनाप्युपधावनैः ॥६॥
 
-> sapatnair ghātitaḥ kṣudrair
-> bhrātā me dayitaḥ suhṛt
-> pārṣṇi-grāheṇa hariṇā
+> sapatnair ghātitaḥ kṣudrair\
+> bhrātā me dayitaḥ suhṛt\
+> pārṣṇi-grāheṇa hariṇā\
 > samenāpy upadhāvanaiḥ
 
 *sapatnaiḥ*—por los enemigos*; *ghātitaḥ*—matado; *kṣudraiḥ*—de poder insignificante; *bhrātā*—hermano; *me*—a mi; *dayitaḥ*—muy querido; *suhṛt*—amigo; *pārṣṇi-grāheṇa*—atacando por la espalda; *hariṇā*—por la Suprema Personalidad de Dios; *samena*—ecuánime con todos (tanto semidioses como demonios); *api*—** aunque; *upadhāvanaiḥ*—por los adoradores, los semidioses.

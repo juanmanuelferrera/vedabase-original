@@ -1,9 +1,9 @@
 ### CC Madhya 15.196
 
-> আর অষ্ট সন্ন্যাসীর ভিক্ষা দুই দুই দিবসে ।
+> আর অষ্ট সন্ন্যাসীর ভিক্ষা দুই দুই দিবসে ।\
 > এক একদিন, এক এক জনে পূর্ণ হইল মাসে ॥১৯৬॥
 
-> āra aṣṭa sannyāsīra bhikṣā dui dui divase
+> āra aṣṭa sannyāsīra bhikṣā dui dui divase\
 > eka eka-dina, eka eka jane pūrṇa ha-ila māse
 
 *āra*—other; *aṣṭa*—eight; *sannyāsīra*—of *sannyāsīs*; *bhikṣā*—invitation for lunch; *dui dui divase*—two days each; *eka eka-dina*—on each day; *eka eka jane*—one person; *pūrṇa*—filled; *ha-ila*—will be; *māse*—the month.

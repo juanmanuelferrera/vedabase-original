@@ -1,13 +1,13 @@
 ### CC Antya 20.52
 
-> না গণি আপন-দুঃখ, সবে বাঞ্ছি তাঁর সুখ,
-> তাঁর সুখ — আমার তাৎপর্য ।
-> মোরে যদি দিয়া দুঃখ, তাঁর হৈল মহাসুখ,
+> না গণি আপন-দুঃখ, সবে বাঞ্ছি তাঁর সুখ,\
+> তাঁর সুখ — আমার তাৎপর্য ।\
+> মোরে যদি দিয়া দুঃখ, তাঁর হৈল মহাসুখ,\
 > সেই দুঃখ — মোর সুখবর্য ॥৫২॥
 
-> nā gaṇi āpana-duḥkha, sabe vāñchi tāṅra sukha,
-> tāṅra sukha—āmāra tātparya
-> more yadi diyā duḥkha, tāṅra haila mahā-sukha,
+> nā gaṇi āpana-duḥkha, sabe vāñchi tāṅra sukha,\
+> tāṅra sukha—āmāra tātparya\
+> more yadi diyā duḥkha, tāṅra haila mahā-sukha,\
 > sei duḥkha—mora sukha-varya
 
 *nā*—not; *gaṇi*—I count; *āpana-duḥkha*—own personal misery; *sabe*—only; *vāñchi*—I desire; *tāṅra sukha*—His happiness; *tāṅra sukha*—His happiness; *āmāra tātparya*—the aim of My life; *more*—unto Me; *yadi*—if; *diyā duḥkha*—giving distress; *tāṅra*—His; *haila*—there was; *mahā-sukha*—great happiness; *sei duḥkha*—that unhappiness; *mora sukha-varya*—the best of My happiness.

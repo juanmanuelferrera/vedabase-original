@@ -1,9 +1,9 @@
 ### CC Madhya 6.151
 
-> অতএব শ্রুতি কহে, ব্রহ্ম — সবিশেষ ।
+> অতএব শ্রুতি কহে, ব্রহ্ম — সবিশেষ ।\
 > ‘মুখ্য’ ছাড়ি’ ‘লক্ষণা’তে মানে নির্বিশেষ ॥১৫১॥
 
-> ataeva śruti kahe, brahma--saviśeṣa
+> ataeva śruti kahe, brahma--saviśeṣa\
 > 'mukhya' chāḍi' 'lakṣaṇā'te māne nirviśeṣa
 
 *ataeva*—por lo tanto; *śruti*—los mantras Védicos; *kahe*—dicen; *brahma*—la Verdad Absoluta; *sa-viśeṣa*—personal; *mukhya*—significado directo; *chāḍi'*—abandonando; *lakṣaṇā'te*—mediante interpretación; *māne*—aceptan; *nirviśeṣa*—impersonal.

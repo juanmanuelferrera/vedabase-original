@@ -1,18 +1,18 @@
 ### SB 6.18.33-34
 
-> पतिरेव हि नारीणां दैवतं परमं स्मृतम
-> मानसः सर्वभूतानां वासुदेवः श्रियः पतिः ॥३३॥
-> स एव देवतालिङ्गैर्नामरूपविकल्पितैः
+> पतिरेव हि नारीणां दैवतं परमं स्मृतम\
+> मानसः सर्वभूतानां वासुदेवः श्रियः पतिः ॥३३॥\
+> स एव देवतालिङ्गैर्नामरूपविकल्पितैः\
 > इज्यते भगवान्पुम्भिः स्त्रीभिश्च पतिरूपधृक ॥३४॥
 
-> patir eva hi nārīṇāṁ
-> daivataṁ paramaṁ smṛtam
-> mānasaḥ sarva-bhūtānāṁ
+> patir eva hi nārīṇāṁ\
+> daivataṁ paramaṁ smṛtam\
+> mānasaḥ sarva-bhūtānāṁ\
 > vāsudevaḥ śriyaḥ patiḥ
 
-> sa eva devatā-liṅgair
-> nāma-rūpa-vikalpitaiḥ
-> ijyate bhagavān pumbhiḥ
+> sa eva devatā-liṅgair\
+> nāma-rūpa-vikalpitaiḥ\
+> ijyate bhagavān pumbhiḥ\
 > strībhiś ca pati-rūpa-dhṛk
 
 *patiḥ*—el esposo; *eva*—en verdad; *hi*—ciertamente; *nārīṇām*—de las mujeres; *daivatam*—semidiós; *paramam*—supremo; *smṛtam*—es considerado; *mānasaḥ*—situado en el corazón; *sarva-bhūtānām*—de todas las entidades vivientes; *vāsudevaḥ*—Vāsudeva; *śriyaḥ*—de la diosa de la fortuna; *patiḥ*—el esposo; *saḥ*—Él; *eva*—ciertamente; *devatā-liṅgaiḥ*—por las formas de los semidioses; *nāma*—nombres; *rūpa*—formas; *vikalpitaiḥ*—concebidos; *ijyate*—es adorado; *bhagavān*—la Suprema Personalidad de Dios; *pumbhiḥ*—por hombres; *strībhiḥ*—por mujeres; *ca*—también; *pati-rūpa-dhṛk*—en la forma del marido.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.136
 
-> নৃসিংহ মন্দির-ভিতর-বাহির শোধিল ।
+> নৃসিংহ মন্দির-ভিতর-বাহির শোধিল ।\
 > ক্ষণেক বিশ্রাম করি’ নৃত্য আরম্ভিল ॥১৩৬॥
 
-> nṛsiṁha-mandira-bhitara-bāhira śodhila
+> nṛsiṁha-mandira-bhitara-bāhira śodhila\
 > kṣaṇeka viśrāma kari' nṛtya ārambhila
 
 *nṛsiṁha-mandira*—el templo de Nṛsiṁhadeva; *bhitara*—interior; *bāhira*—exterior; *śodhila*—limpió; *kṣaṇeka*—unos instantes; *viśrāma*—descanso; *kari'*—después de tomar; *nṛtya*—danza; *ārambhila*—comenzó.

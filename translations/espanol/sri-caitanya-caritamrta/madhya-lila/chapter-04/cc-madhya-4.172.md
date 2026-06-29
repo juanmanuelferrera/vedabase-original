@@ -1,9 +1,9 @@
 ### CC Madhya 4.172
 
-> দুগ্ধদান-ছলে কৃষ্ণ যাঁরে দেখা দিল ।
+> দুগ্ধদান-ছলে কৃষ্ণ যাঁরে দেখা দিল ।\
 > তিনবারে স্বপ্নে আসি’ যাঁরে আজ্ঞা কৈল ॥১৭২॥
 
-> dugdha-dāna-chale kṛṣṇa yāṅre dekhā dila
+> dugdha-dāna-chale kṛṣṇa yāṅre dekhā dila\
 > tina-bāre svapne āsi' yāṅre ājñā kaila
 
 *dugdha-dāna-chale*—con el pretexto de entregar leche; *kṛṣṇa*—el Señor Kṛṣṇa; *yāṅre*—ante quien; *dekhā dila*—Se manifestó; *tina-bāre*—tres veces; *svapne*—en sueños; *āsi'*—viniendo; *yāṅre*—a quien; *ājñā*—orden; *kaila*—dio.

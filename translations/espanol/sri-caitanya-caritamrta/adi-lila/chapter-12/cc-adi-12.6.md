@@ -1,9 +1,9 @@
 ### CC Adi 12.6
 
-> সেই স্কন্ধে যত প্রেমফল উপজিল ।
+> সেই স্কন্ধে যত প্রেমফল উপজিল ।\
 > সেই কৃষ্ণপ্রেমফলে জগৎ ভরিল ॥৬॥
 
-> sei skandhe yata prema-phala upajila
+> sei skandhe yata prema-phala upajila\
 > sei kṛṣṇa-prema-phale jagat bharila
 
 *sei skandhe*—en esa rama; *yata*—todos; *prema-phala*—frutos de amor por Dios; *upajila*—crecieron; *sei*—esos; *kṛṣṇa-prema-phale*—frutos de amor por Kṛṣṇa; *jagat*—el mundo entero; *bharila*—inundaron.

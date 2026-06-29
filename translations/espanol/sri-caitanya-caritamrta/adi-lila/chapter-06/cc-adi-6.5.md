@@ -1,11 +1,11 @@
 ### CC Adi 6.5
 
-> অদ্বৈতং হরিণাদ্বৈতাদাচার্যং ভক্তিশংসনাৎ ।
+> অদ্বৈতং হরিণাদ্বৈতাদাচার্যং ভক্তিশংসনাৎ ।\
 > ভক্তাবতারমীশং তমদ্বৈতাচার্যমাশ্রয়ে ॥৫॥
 
-> advaitaṁ hariṇādvaitād
-> ācāryaṁ bhakti-śaṁsanāt
-> bhaktāvatāram īśaṁ tam
+> advaitaṁ hariṇādvaitād\
+> ācāryaṁ bhakti-śaṁsanāt\
+> bhaktāvatāram īśaṁ tam\
 > advaitācāryam āśraye
 
 *advaitam*—conocido como Advaita; *hariṇā*—con el Señor Hari; *advaitāt*—por no ser diferente; *ācāryam*—conocido como Ācārya; *bhakti-śaṁsanāt*—por la propagación del servicio devocional a Śrī Kṛṣṇa; *bhakta-avatāram*—la encarnación como devoto; *īśam*—al Señor Supremo; *tam*—a Él; *advaita-ācāryam*—a Advaita Ācārya; *āśraye*—me refugio.

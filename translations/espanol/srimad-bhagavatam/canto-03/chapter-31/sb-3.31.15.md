@@ -1,13 +1,13 @@
 ### SB 3.31.15
 
-> यन्माययोरुगुणकर्मनिबन्धनेऽस्मिन्
-> सांसारिके पथि चरंस्तदभिश्रमेण ।
-> नष्टस्मृतिः पुनरयं प्रवृणीत लोकं
+> यन्माययोरुगुणकर्मनिबन्धनेऽस्मिन्\
+> सांसारिके पथि चरंस्तदभिश्रमेण ।\
+> नष्टस्मृतिः पुनरयं प्रवृणीत लोकं\
 > युक्त्या कया महदनुग्रहमन्तरेण ॥१५॥
 
-> yan-māyayoru-guṇa-karma-nibandhane 'smin
-> sāṁsārike pathi caraṁs tad-abhiśrameṇa
-> naṣṭa-smṛtiḥ punar ayaṁ pravṛṇīta lokaṁ
+> yan-māyayoru-guṇa-karma-nibandhane 'smin\
+> sāṁsārike pathi caraṁs tad-abhiśrameṇa\
+> naṣṭa-smṛtiḥ punar ayaṁ pravṛṇīta lokaṁ\
 > yuktyā kayā mahad-anugraham antareṇa
 
 *yat*—del Señor; *māyayā*—por la *māyā*; *uru-guṇa*—que surge de las grandes modalidades; *karma*—actividades; *nibandhane*—con ataduras; *asmin*—este; *sāṁsārike*—del ciclo de nacimientos y muertes; *pathi*—en el sendero; *caran*—vagando; *tat*—de él; *abhiśrameṇa*—con grandes sufrimientos; *naṣṭa*—perdida; *smṛtiḥ*—memoria; *punaḥ*—de nuevo; *ayam*—esta entidad viviente; *pravṛṇīta*—puede comprender; *lokam*—su verdadera naturaleza; *yuktyā kayā*—por qué medios; *mahat-anugraham*—la misericordia del Señor; *antareṇa*—sin.

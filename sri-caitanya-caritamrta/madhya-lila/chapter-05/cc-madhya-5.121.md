@@ -1,9 +1,9 @@
 ### CC Madhya 5.121
 
-> সেই রাজা জিনি’ নিল তাঁর সিংহাসন ।
+> সেই রাজা জিনি’ নিল তাঁর সিংহাসন ।\
 > ‘মাণিক্য-সিংহাসন’ নাম অনেক রতন ॥১২১॥
 
-> sei rājā jini' nila tāṅra siṁhāsana
+> sei rājā jini' nila tāṅra siṁhāsana\
 > 'māṇikya-siṁhāsana' nāma aneka ratana
 
 *seirājā*—that King (Mahārāja Puruṣottama-deva); *jini'*—conquering; *nila*—took; *tāṅra*—his; *siṁha-āsana*—the throne; *māṇikya-siṁhāsana*—the throne known as Māṇikya-siṁhāsana; *nāma*—named; *aneka*—various; *ratana*—bedecked with jewels.

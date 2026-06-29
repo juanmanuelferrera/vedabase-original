@@ -1,13 +1,13 @@
 ### CC Adi 6.73
 
-> চৈদ্যায় মার্পয়িতুমুদ্যত-কার্মুকেষু
-> রাজস্বজেয়-ভটশেখরিতাঙ্ঘ্রিরেণুঃ ।
-> নিন্যে মৃগেন্দ্র ইব ভাগমজাবিযূথা-
+> চৈদ্যায় মার্পয়িতুমুদ্যত-কার্মুকেষু\
+> রাজস্বজেয়-ভটশেখরিতাঙ্ঘ্রিরেণুঃ ।\
+> নিন্যে মৃগেন্দ্র ইব ভাগমজাবিযূথা-\
 > ত্তচ্ছ্রীনিকেত-চরণোঽস্তু মমার্চনায় ॥৭৩॥
 
-> caidyāya mārpayitum udyata-kārmukeṣu
-> rājasv ajeya-bhaṭa-śekharitāṅghri-reṇuḥ
-> ninye mṛgendra iva bhāgam ajāvi-yūthāt
+> caidyāya mārpayitum udyata-kārmukeṣu\
+> rājasv ajeya-bhaṭa-śekharitāṅghri-reṇuḥ\
+> ninye mṛgendra iva bhāgam ajāvi-yūthāt\
 > tac chrī-niketa-caraṇo 'stu mamārcanāya
 
 *caidyāya*—unto Śiśupāla; *mā*—me; *arpayitum*—to deliver or to give in charity; *udyata*—upraised; *kārmukeṣu*—whose bows and arrows; *rājasu*—among the kings headed by Jarāsandha; *ajeya*—unconquerable; *bhaṭa*—of the soldiers; *śekharita-aṅghri-reṇuḥ*—the dust of whose lotus feet is the crown; *ninye*—forcibly took; *mṛga-indraḥ*—the lion; *iva*—like; *bhāgam*—the share; *aja*—of the goats; *avi*—and sheep; *yūthāt*—from the midst; *tat*—that; *śrī-niketana*—of the shelter of the goddess of fortune; *caraṇaḥ*—the lotus feet; *astu*—let there be; *mama*—my; *arcanāya*—for worshiping.

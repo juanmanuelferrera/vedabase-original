@@ -1,11 +1,11 @@
 ### CC Madhya 19.213
 
-> শমো মন্নিষ্ঠতা বুদ্ধের্দম ইন্দ্রিয়সংযমঃ ।
+> শমো মন্নিষ্ঠতা বুদ্ধের্দম ইন্দ্রিয়সংযমঃ ।\
 > তিতিক্ষা দুঃখসংমর্ষো জিহ্বোপস্থজয়ো ধৃতিঃ ॥২১৩॥
 
-> śamo man-niṣṭhatā buddher
-> dama indriya-saṁyamaḥ
-> titikṣā duḥkha-sammarṣo
+> śamo man-niṣṭhatā buddher\
+> dama indriya-saṁyamaḥ\
+> titikṣā duḥkha-sammarṣo\
 > jihvopastha-jayo dhṛtiḥ
 
 *śamaḥ*—neutralidad; *mat-niṣṭhatā*—apego por Mí; *buddheḥ*—de la inteligencia; *damaḥ*—autocontrol; *indriya-saṁyamaḥ*—controlar las actividades de los sentidos; *titikṣā*—tolerancia; *duḥkha*—de la infelicidad; *sammarṣaḥ*—resistencia; *jihvā*—la lengua; *upastha*—y el impulso de los genitales; *jayaḥ*—conquistar; *dhṛtiḥ*—control.

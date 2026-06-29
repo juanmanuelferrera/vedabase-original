@@ -1,9 +1,9 @@
 ### CC Madhya 5.22
 
-> মহাকুলীন তুমি — বিদ্যা-ধনাদি-প্রবীণ ।
+> মহাকুলীন তুমি — বিদ্যা-ধনাদি-প্রবীণ ।\
 > আমি অকুলীন, আর ধন-বিদ্যা-হীন ॥২২॥
 
-> mahā-kulīna tumi—vidyā-dhanādi-pravīṇa
+> mahā-kulīna tumi—vidyā-dhanādi-pravīṇa\
 > āmi akulīna, āra dhana-vidyā-hīna
 
 *mahā-kulīna*—highly aristocratic; *tumi*—you; *vidyā*—education; *dhana-ādi*—riches; *pravīṇa*—enriched; *āmi*—I; *akulīna*—not aristocratic; *āra*—and; *dhana-vidyā-hīna*—without any wealth and education.

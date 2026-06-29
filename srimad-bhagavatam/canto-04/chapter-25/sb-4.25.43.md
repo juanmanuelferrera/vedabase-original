@@ -1,13 +1,13 @@
 ### SB 4.25.43
 
-> नारद उवाच
-> इति तौ दम्पती तत्र समुद्य समयं मिथः ।
+> नारद उवाच\
+> इति तौ दम्पती तत्र समुद्य समयं मिथः ।\
 > तां प्रविश्य पुरीं राजन्मुमुदाते शतं समाः ॥४३॥
 
-> nārada uvāca
-> iti tau dam-patī tatra
-> samudya samayaṁ mithaḥ
-> tāṁ praviśya purīṁ rājan
+> nārada uvāca\
+> iti tau dam-patī tatra\
+> samudya samayaṁ mithaḥ\
+> tāṁ praviśya purīṁ rājan\
 > mumudāte śataṁ samāḥ
 
 *nāradaḥ uvāca*—the great sage Nārada spoke; *iti*—thus; *tau*—they; *dam-patī*—husband and wife; *tatra*—there; *samudya*—being equally enthusiastic; *samayam*—accepting one another; *mithaḥ*—mutually; *tām*—in that place; *praviśya*—entering; *purīm*—in that city; *rājan*—O King; *mumudāte*—they enjoyed life; *śatam*—one hundred; *samāḥ*—years.

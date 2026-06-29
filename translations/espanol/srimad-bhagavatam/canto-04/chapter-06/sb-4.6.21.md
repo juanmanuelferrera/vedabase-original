@@ -1,11 +1,11 @@
 ### SB 4.6.21
 
-> कर्णान्त्रैकपदाश्वास्यैर्निर्जुष्टं वृकनाभिभिः ।
+> कर्णान्त्रैकपदाश्वास्यैर्निर्जुष्टं वृकनाभिभिः ।\
 > कदलीखण्डसंरुद्ध नलिनीपुलिनश्रियम् ॥२१॥
 
-> karṇāntraikapadāśvāsyair
-> nirjuṣṭaṁ vṛka-nābhibhiḥ
-> kadalī-khaṇḍa-saṁruddha-
+> karṇāntraikapadāśvāsyair\
+> nirjuṣṭaṁ vṛka-nābhibhiḥ\
+> kadalī-khaṇḍa-saṁruddha-\
 > nalinī-pulina-śriyam
 
 *karṇāntra*—por el *karṇāntra*; *ekapada*—el *ekapada*; *aśvāsyaiḥ*—por el *aśvāsya*; *nirjuṣṭam*—disfrutada a plenitud; *vṛka-nābhibhiḥ*—por el ciervo *vṛka* y el *nābhi,* o ciervo *kastūrī*; *kadalī*—de plataneros; *khaṇḍa*—con grupos; *saṁruddha*—cubierta; *nalinī*—de lagunas llenas de flores de loto; *pulina*—con las orillas arenosas; *śriyam*—muy hermosos.

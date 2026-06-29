@@ -1,9 +1,9 @@
 ### CC Madhya 18.19
 
-> হরিদেব-আগে নাচে প্রেমে মত্ত হঞা ।
+> হরিদেব-আগে নাচে প্রেমে মত্ত হঞা ।\
 > সব লোক দেখিতে আইল আশ্চর্য শুনিয়া ॥১৯॥
 
-> harideva-āge nāce preme matta hañā
+> harideva-āge nāce preme matta hañā\
 > saba loka dekhite āila āścarya śuniyā
 
 *hari-deva-āge*—ante Harideva; *nāce*—danza; *preme*—en amor extático; *matta hañā*—volviéndose enloquecido; *saba loka*—toda la gente; *dekhite*—a ver; *āila*—acudió; *āścarya*—maravillosas; *śuniyā*—al oír.

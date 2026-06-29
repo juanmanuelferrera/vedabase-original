@@ -1,6 +1,6 @@
 ### CC Adi 1.94
 
-> kṛṣṇa-bhaktira bādhaka—yata śubhāśubha karma
+> kṛṣṇa-bhaktira bādhaka—yata śubhāśubha karma\
 > seha eka jīvera ajñāna-tamo-dharma
 
 *kṛṣṇa-bhaktira*—do serviço devocional a Kṛṣṇa; *bādhaka*—obstáculo; *yata*—todas; *śubha-aśubha*—auspiciosa ou inauspiciosa; *karma*—atividade; *seha*—essa; *eka*—uma; *jīvera*—da entidade viva; *ajñāna-tamaḥ*—da escuridão da ignorância; *dharma*—o caráter.

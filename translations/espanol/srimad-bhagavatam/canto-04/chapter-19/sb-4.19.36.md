@@ -1,11 +1,11 @@
 ### SB 4.19.36
 
-> एभिरिन्द्रोपसंसृष्टैः पाखण्डैर्हारिभिर्जनम् ।
+> एभिरिन्द्रोपसंसृष्टैः पाखण्डैर्हारिभिर्जनम् ।\
 > ह्रियमाणं विचक्ष्वैनं यस्ते यज्ञध्रुगश्वमुट् ॥३६॥
 
-> ebhir indropasaṁsṛṣṭaiḥ
-> pākhaṇḍair hāribhir janam
-> hriyamāṇaṁ vicakṣvainaṁ
+> ebhir indropasaṁsṛṣṭaiḥ\
+> pākhaṇḍair hāribhir janam\
+> hriyamāṇaṁ vicakṣvainaṁ\
 > yas te yajña-dhrug aśva-muṭ
 
 *ebhiḥ*—por esas; *indra-upasaṁsṛṣṭaiḥ*—creadas por el rey del cielo, Indra; *pākhaṇḍaiḥ*—actividades pecaminosas; *hāribhiḥ*—muy atractivas para el corazón; *janam*—la gente en general; *hriyamāṇam*—siendo descarriada; *vicakṣva*—fíjate; *enam*—estas; *yaḥ*—el que; *te*—tu; *yajña-dhruk*—creando perturbaciones en la celebración del sacrificio; *aśva-muṭ*—quien robó el caballo.

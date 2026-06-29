@@ -1,18 +1,18 @@
 ### SB 7.10.65-66
 
-> आत्मनोऽन्यस्य वा दिष्टं दैवेनापोहितुं द्वयोः
-> अथासौ शक्तिभिः स्वाभिः शम्भोः प्राधानिकं व्यधात ॥६५॥
-> धर्मज्ञआनविरक्त्यृद्धि तपोविद्याक्रियादिभिः
+> आत्मनोऽन्यस्य वा दिष्टं दैवेनापोहितुं द्वयोः\
+> अथासौ शक्तिभिः स्वाभिः शम्भोः प्राधानिकं व्यधात ॥६५॥\
+> धर्मज्ञआनविरक्त्यृद्धि तपोविद्याक्रियादिभिः\
 > रथं सूतं ध्वजं वाहान्धनुर्वर्मशरादि यत ॥६६॥
 
-> athāsau śaktibhiḥ svābhiḥ
-> śambhoḥ prādhānikaṁ vyadhāt
-> dharma-jñāna-virakty-ṛddhi-
+> athāsau śaktibhiḥ svābhiḥ\
+> śambhoḥ prādhānikaṁ vyadhāt\
+> dharma-jñāna-virakty-ṛddhi-\
 > tapo-vidyā-kriyādibhiḥ
 
-> rathaṁ sūtaṁ dhvajaṁ vāhān
-> dhanur varma-śarādi yat
-> sannaddho ratham āsthāya
+> rathaṁ sūtaṁ dhvajaṁ vāhān\
+> dhanur varma-śarādi yat\
+> sannaddho ratham āsthāya\
 > śaraṁ dhanur upādade
 
 *atha*—thereafter; *asau*—He (Lord Kṛṣṇa); *śaktibhiḥ*—by His potencies; *svābhiḥ*—personal; *śambhoḥ*—of Lord Śiva; *prādhānikam*—ingredients; *vyadhāt*—created; *dharma*—religion; *jñāna*—knowledge; *virakti*—renunciation; *ṛddhi*—opulence; *tapaḥ*—austerity; *vidyā*—education; *kriyā*—activities; *ādibhiḥ*—by all these and other transcendental opulences; *ratham*—chariot; *sūtam*—charioteer; *dhvajam*—flag; *vāhān*—horses and elephants; *dhanuḥ*—bow; *varma*—shield; *śara-ādi*—arrows and so on; *yat*—everything that was required; *sannaddhaḥ*—equipped; *ratham*—on the chariot; *āsthāya*—seated; *śaram*—arrow; *dhanuḥ*—unto the bow; *upādade*—joined.

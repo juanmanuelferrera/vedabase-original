@@ -1,11 +1,11 @@
 ### Bg 1.42
 
-> दोषैरेतैः कुलघ्नानां वर्णसङ्करकारकैः ।
+> दोषैरेतैः कुलघ्नानां वर्णसङ्करकारकैः ।\
 > उत्साद्यन्ते जातिधर्माः कुलधर्माश्च शाश्वताः ॥४२॥
 
-> doṣair etaiḥ kula-ghnānāṁ
-> varṇa-saṅkara-kārakaiḥ
-> utsādyante jāti-dharmāḥ
+> doṣair etaiḥ kula-ghnānāṁ\
+> varṇa-saṅkara-kārakaiḥ\
+> utsādyante jāti-dharmāḥ\
 > kula-dharmāś ca śāśvatāḥ
 
 *doṣaiḥ*—por dichas faltas; *etaiḥ*—todos estos; *kula-ghnānām*—del destructor de la familia; *varṇa-saṅkara*—hijos no deseados; *kārakaiḥ*—por los que hacen; *utsādyante*—causan devastación; *jāti-dharmāḥ*—proyectos de la comunidad; *kula-dharmāḥ*—tradiciones familiares; *ca*—también; *śāśvatāḥ*—eterno.

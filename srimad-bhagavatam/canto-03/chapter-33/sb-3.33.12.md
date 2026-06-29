@@ -1,13 +1,13 @@
 ### SB 3.33.12
 
-> मैत्रेय उवाच
-> इति प्रदर्श्य भगवान्सतीं तामात्मनो गतिम् ।
+> मैत्रेय उवाच\
+> इति प्रदर्श्य भगवान्सतीं तामात्मनो गतिम् ।\
 > स्वमात्रा ब्रह्मवादिन्या कपिलोऽनुमतो ययौ ॥१२॥
 
-> maitreya uvāca
-> iti pradarśya bhagavān
-> satīṁ tām ātmano gatim
-> sva-mātrā brahma-vādinyā
+> maitreya uvāca\
+> iti pradarśya bhagavān\
+> satīṁ tām ātmano gatim\
+> sva-mātrā brahma-vādinyā\
 > kapilo 'numato yayau
 
 *maitreyaḥ uvāca*—Maitreya said; *iti*—thus; *pradarśya*—after instructing; *bhagavān*—the Supreme Personality of Godhead; *satīm*—venerable; *tām*—that; *ātmanaḥ*—of self-realization; *gatim*—path; *sva-mātrā*—from His mother; *brahma-vādinyā*—self-realized; *kapilaḥ*—Lord Kapila; *anumataḥ*—took permission; *yayau*—left.

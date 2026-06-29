@@ -1,11 +1,11 @@
 ### SB 7.15.15
 
-> धर्मार्थमपि नेहेत यात्रार्थं वाधनो धनम
+> धर्मार्थमपि नेहेत यात्रार्थं वाधनो धनम\
 > अनीहानीहमानस्य महाहेरिव वृत्तिदा ॥१५॥
 
-> dharmārtham api neheta
-> yātrārthaṁ vādhano dhanam
-> anīhānīhamānasya
+> dharmārtham api neheta\
+> yātrārthaṁ vādhano dhanam\
+> anīhānīhamānasya\
 > mahāher iva vṛttidā
 
 *dharma-artham*—en religión o crecimiento económico; *api*—en verdad; *na*—no; *īheta*—debe tratar de obtener; *yātrā-artham*—solo para mantener juntos el cuerpo y el alma; *vā*—o; *adhanaḥ*—el que no tiene riquezas; *dhanam*—dinero; *anīhā*—la ausencia de deseos; *anīhamānasya*—de la persona que no se esfuerza por ganarse el sustento; *mahā-aheḥ*—la gran serpiente llamada pitón; *iva*—como; *vṛtti-dā*—que obtiene su sustento sin esfuerzo.

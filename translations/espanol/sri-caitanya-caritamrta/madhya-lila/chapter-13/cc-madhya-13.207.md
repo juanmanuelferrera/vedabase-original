@@ -1,13 +1,13 @@
 ### CC Madhya 13.207
 
-> রথারূঢ়স্যারাদধিপদবি নীলাচলপতে-
-> রদভ্রপ্রেমোর্মিস্ফু রিতনটনোল্লাসবিবশঃ ।
-> সহর্ষং গায়দ্ভিঃ পরিবৃত-তনুর্বৈষ্ণবজনৈঃ
+> রথারূঢ়স্যারাদধিপদবি নীলাচলপতে-\
+> রদভ্রপ্রেমোর্মিস্ফু রিতনটনোল্লাসবিবশঃ ।\
+> সহর্ষং গায়দ্ভিঃ পরিবৃত-তনুর্বৈষ্ণবজনৈঃ\
 > স চৈতন্যঃ কিং মে পুনরপি দৃশোর্যাস্যতি পদম্ ॥২০৭॥
 
-> rathārūḍhasyārād adhipadavi nīlācala-pater
-> adabhra-premormi-sphurita-naṭanollāsa-vivaśaḥ
-> saharṣaṁ gāyadbhiḥ parivṛta-tanur vaiṣṇava-janaiḥ
+> rathārūḍhasyārād adhipadavi nīlācala-pater\
+> adabhra-premormi-sphurita-naṭanollāsa-vivaśaḥ\
+> saharṣaṁ gāyadbhiḥ parivṛta-tanur vaiṣṇava-janaiḥ\
 > sa caitanyaḥ kiṁ me punar api dṛśor yāsyati padam
 
 *ratha-ārūḍhasya*—del Señor Supremo, quien fue colocado sobre el carro; *ārāt*—delante; *adhipadavi*—por el camino principal; *nīlācala-pateḥ*—del Señor Jagannātha, el Señor de Nīlācala; *adabhra*—grandes; *prema-urmi*—por oleadas de amor por Dios; *sphurita*—que se manifestó; *naṭana-ullāsa-vivaśaḥ*—abrumado por la dicha trascendental de la danza; *sa-harṣam*—con gran júbilo; *gāyadbhiḥ*—que cantaban; *parivṛta*—rodeado; *tanuḥ*—cuerpo; *vaiṣṇava-janaiḥ*—por los devotos; *saḥ caitanyaḥ*—aquel Señor Śrī Caitanya Mahāprabhu; *kim*—si acaso; *me*—mía; *punaḥ api*—de nuevo; *dṛśoḥ*—de la visión; *yāsyati*—entrará; *padam*—en la senda.

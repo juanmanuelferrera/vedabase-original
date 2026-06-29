@@ -1,17 +1,17 @@
 ### SB 2.7.47
 
-> शश्वत्प्रशान्तमभयं प्रतिबोधमात्रं
-> शुद्धं समं सदसतः परमात्मतत्त्वम् ।
-> शब्दो न यत्र पुरुकारकवान्क्रियार्थो
-> माया परैत्यभिमुखे च विलज्जमाना
-> तद्वै पदं भगवतः परमस्य पुंसो
+> शश्वत्प्रशान्तमभयं प्रतिबोधमात्रं\
+> शुद्धं समं सदसतः परमात्मतत्त्वम् ।\
+> शब्दो न यत्र पुरुकारकवान्क्रियार्थो\
+> माया परैत्यभिमुखे च विलज्जमाना\
+> तद्वै पदं भगवतः परमस्य पुंसो\
 > ब्रह्मेति यद्विदुरजस्रसुखं विशोकम् ॥४७॥
 
-> śaśvat praśāntam abhayaṁ pratibodha-mātraṁ
-> śuddhaṁ samaṁ sad-asataḥ paramātma-tattvam
-> śabdo na yatra puru-kārakavān kriyārtho
-> māyā paraity abhimukhe ca vilajjamānā
-> tad vai padaṁ bhagavataḥ paramasya puṁso
+> śaśvat praśāntam abhayaṁ pratibodha-mātraṁ\
+> śuddhaṁ samaṁ sad-asataḥ paramātma-tattvam\
+> śabdo na yatra puru-kārakavān kriyārtho\
+> māyā paraity abhimukhe ca vilajjamānā\
+> tad vai padaṁ bhagavataḥ paramasya puṁso\
 > brahmeti yad vidur ajasra-sukhaṁ viśokam
 
 *śaśvat*—eternal; *praśāntam*—without disturbance; *abhayam*—without fear; *pratibodha-mātram*—a consciousness opposed to the material counterpart; *śuddham*—uncontaminated; *samam*—without distinction; *sat-asataḥ*—of the cause and effect; *paramātma-tattvam*—the principle of primeval cause; *śabdaḥ*—speculative sound; *na*—not; *yatra*—where there is; *puru-kārakavān*—resulting in fruitive action; *kriyā-arthaḥ*—for the matter of sacrifice; *māyā*—illusion; *paraiti*—flies away; *abhimukhe*—in front of; *ca*—also; *vilajjamānā*—being ashamed of; *tat*—that; *vai*—is certainly; *padam*—ultimate phase; *bhagavataḥ*—of the Personality of Godhead; *paramasya*—of the Supreme; *puṁsaḥ*—of the person; *brahma*—the Absolute; *iti*—thus; *yat*—which; *viduḥ*—known as; *ajasra*—unlimited; *sukham*—happiness; *viśokam*—without grief.

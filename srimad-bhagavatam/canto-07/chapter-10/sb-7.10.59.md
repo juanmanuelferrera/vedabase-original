@@ -1,11 +1,11 @@
 ### SB 7.10.59
 
-> तैः स्पृष्टा व्यसवः सर्वे निपेतुः स्म पुरौकसः
+> तैः स्पृष्टा व्यसवः सर्वे निपेतुः स्म पुरौकसः\
 > तानानीय महायोगी मयः कूपरसेऽक्षिपत ॥५९॥
 
-> taiḥ spṛṣṭā vyasavaḥ sarve
-> nipetuḥ sma puraukasaḥ
-> tān ānīya mahā-yogī
+> taiḥ spṛṣṭā vyasavaḥ sarve\
+> nipetuḥ sma puraukasaḥ\
+> tān ānīya mahā-yogī\
 > mayaḥ kūpa-rase 'kṣipat
 
 *taiḥ*—by those (fiery arrows); *spṛṣṭāḥ*—being attacked or being touched; *vyasavaḥ*—without life; *sarve*—all the demons; *nipetuḥ*—fell down; *sma*—formerly; *pura-okasaḥ*—being the inhabitants of the above-mentioned three residential airplanes; *tān*—all of them; *ānīya*—bringing; *mahā-yogī*—the great mystic; *mayaḥ*—Maya Dānava; *kūpa-rase*—in the well of nectar (created by the great mystic Maya); *akṣipat*—put.

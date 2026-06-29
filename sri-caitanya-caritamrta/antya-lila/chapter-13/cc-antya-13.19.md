@@ -1,9 +1,9 @@
 ### CC Antya 13.19
 
-> এইমত দুই কৈলা ওড়ন-পাড়নে ।
+> এইমত দুই কৈলা ওড়ন-পাড়নে ।\
 > অঙ্গীকার কৈলা প্রভু অনেক যতনে ॥১৯॥
 
-> ei-mata dui kailā oḍana-pāḍane
+> ei-mata dui kailā oḍana-pāḍane\
 > aṅgīkāra kailā prabhu aneka yatane
 
 *ei-mata*—in this way; *dui*—two pieces; *kailā*—made; *oḍana-pāḍane*—one for bedding, one for the pillow; *aṅgīkāra kailā*—did accept; *prabhu*—Śrī Caitanya Mahāprabhu; *aneka yatane*—after much endeavor.

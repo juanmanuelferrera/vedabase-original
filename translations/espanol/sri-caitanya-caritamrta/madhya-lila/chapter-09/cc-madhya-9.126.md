@@ -1,9 +1,9 @@
 ### CC Madhya 9.126
 
-> তুমি সাক্ষাৎ সেই কৃষ্ণ, জান নিজকর্ম ৷
+> তুমি সাক্ষাৎ সেই কৃষ্ণ, জান নিজকর্ম ৷\
 > যারে জানাহ, সেই জানে তোমার লীলামর্ম ৷৷ ১২৬ ৷৷ ॥১২৬॥
 
-> tumi sākṣāt sei kṛṣṇa, jāna nija-karma
+> tumi sākṣāt sei kṛṣṇa, jāna nija-karma\
 > yāre jānāha, sei jāne tomāra līlā-marma
 
 *tumi*—Tú; *sākṣāt*—directamente; *sei*—ese; *kṛṣṇa*—la Suprema Personalidad de Dios; *jāna*—conoces; *nija-karma*—Tus actividades; *yāre jānāha*—y a quien se lo das a conocer; *sei*—esa persona; *jāne*—conoce; *tomāra*—Tus; *līlā-marma*—el propósito de los pasatiempos.

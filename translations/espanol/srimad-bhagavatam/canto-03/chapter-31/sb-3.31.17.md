@@ -1,13 +1,13 @@
 ### SB 3.31.17
 
-> देह्यन्यदेहविवरे जठराग्निनासृग्
-> विण्मूत्रकूपपतितो भृशतप्तदेहः ।
-> इच्छन्नितो विवसितुं गणयन्स्वमासान्
+> देह्यन्यदेहविवरे जठराग्निनासृग्\
+> विण्मूत्रकूपपतितो भृशतप्तदेहः ।\
+> इच्छन्नितो विवसितुं गणयन्स्वमासान्\
 > निर्वास्यते कृपणधीर्भगवन्कदा नु ॥१७॥
 
-> dehy anya-deha-vivare jaṭharāgnināsṛg-
-> viṇ-mūtra-kūpa-patito bhṛśa-tapta-dehaḥ
-> icchann ito vivasituṁ gaṇayan sva-māsān
+> dehy anya-deha-vivare jaṭharāgnināsṛg-\
+> viṇ-mūtra-kūpa-patito bhṛśa-tapta-dehaḥ\
+> icchann ito vivasituṁ gaṇayan sva-māsān\
 > nirvāsyate kṛpaṇa-dhīr bhagavan kadā nu
 
 *dehī*—el alma corporificada; *anya-deha*—de otro cuerpo; *vivare*—en el abdomen; *jaṭhara*—del estómago; *agninā*—por el fuego; *asṛk*—de sangre; *viṭ*—excremento; *mūtra*—y orina; *kūpa*—en un charco; *patitaḥ*—caída; *bhṛśa*—fuertemente; *tapta*—abrasado; *dehaḥ*—su cuerpo; *icchan*—deseando; *itaḥ*—de ese lugar; *vivasitum*—salir; *gaṇayan*—contando; *svamāsān*—sus meses; *nirvāsyate*—será liberada; *kṛpaṇa-dhīḥ*—persona de inteligencia avarienta; *bhagavan*—¡oh, Señor!; *kadā*—cuándo; *nu*—en verdad.

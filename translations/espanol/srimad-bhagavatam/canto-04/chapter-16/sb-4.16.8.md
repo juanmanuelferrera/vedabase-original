@@ -1,11 +1,11 @@
 ### SB 4.16.8
 
-> देवेऽवर्षत्यसौ देवो नरदेववपुर्हरिः ।
+> देवेऽवर्षत्यसौ देवो नरदेववपुर्हरिः ।\
 > कृच्छ्रप्राणाः प्रजा ह्येष रक्षिष्यत्यञ्जसेन्द्रवत् ॥८॥
 
-> deve 'varṣaty asau devo
-> naradeva-vapur hariḥ
-> kṛcchra-prāṇāḥ prajā hy eṣa
+> deve 'varṣaty asau devo\
+> naradeva-vapur hariḥ\
+> kṛcchra-prāṇāḥ prajā hy eṣa\
 > rakṣiṣyaty añjasendravat
 
 *deve*—cuando el semidiós (Indra); *avarṣati*—no provea de lluvia; *asau*—ese; *devaḥ*—Mahārāja Pṛthu; *nara-deva*—del rey; *vapuḥ*—con el cuerpo; *hariḥ*—la Suprema Personalidad de Dios; *kṛcchra-prāṇāḥ*—entidades vivientes que sufren; *prajāḥ*—los ciudadanos; *hi*—ciertamente; *eṣaḥ*—este; *rakṣiṣyati*—protegerá; *añjasā*—sin dificultad; *indra-vat*—como el rey Indra.

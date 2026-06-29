@@ -1,11 +1,11 @@
 ### SB 3.33.20
 
-> हित्वा तदीप्सिततममप्याखण्डलयोषिताम् ।
+> हित्वा तदीप्सिततममप्याखण्डलयोषिताम् ।\
 > किञ्चिच्चकार वदनं पुत्रविश्लेषणातुरा ॥२०॥
 
-> hitvā tad īpsitatamam
-> apy ākhaṇḍala-yoṣitām
-> kiñcic cakāra vadanaṁ
+> hitvā tad īpsitatamam\
+> apy ākhaṇḍala-yoṣitām\
+> kiñcic cakāra vadanaṁ\
 > putra-viśleṣaṇāturā
 
 *hitvā*—habiendo abandonado; *tat*—esa casa familiar; *īpsita-tamam*—muy deseable; *api*—incluso; *ākhaṇḍala-yoṣitām*—por las esposas del Señor Indra; *kiñcit cakāra vadanam*—su rostro mostraba una expresión triste; *putra-viśleṣaṇa*—por estar separada de su hijo; *āturā*—afligida.

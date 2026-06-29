@@ -1,11 +1,11 @@
 ### CC Adi 17.1
 
-> বন্দে স্বৈরাদ্ভুতেহং তং চৈতন্যং যত্প্রসাদতঃ ।
+> বন্দে স্বৈরাদ্ভুতেহং তং চৈতন্যং যত্প্রসাদতঃ ।\
 > যবনাঃ সুমনায়ন্তে কৃষ্ণনামপ্রজল্পকাঃ ॥১॥
 
-> vande svairādbhutehaṁ taṁ
-> caitanyaṁ yat-prasādataḥ
-> yavanāḥ sumanāyante
+> vande svairādbhutehaṁ taṁ\
+> caitanyaṁ yat-prasādataḥ\
+> yavanāḥ sumanāyante\
 > kṛṣṇa-nāma-prajalpakāḥ
 
 *vande*—permítaseme ofrecer mis reverencias; *svaira*—completamente independiente; *adbhuta*—y poco comunes; *īham*—cuyas actividades; *tam*—a Él; *caitanyam*—Śrī Caitanya Mahāprabhu; *yat*—de quien; *prasādataḥ*—por la misericordia; *yavanāḥ*—incluso los impuros; *sumanāyante*—se transforman en caballeros; *kṛṣṇa-nāma*—del santo nombre del Señor Kṛṣṇa; *prajalpakāḥ*—que se dedican al canto.

@@ -1,11 +1,11 @@
 ### SB 9.19.17
 
-> मात्रा स्वस्रा दुहित्रा वा नाविविक्तासनो भवेत
+> मात्रा स्वस्रा दुहित्रा वा नाविविक्तासनो भवेत\
 > बलवानिन्द्रियग्रामो विद्वांसमपि कर्षति ॥१७॥
 
-> mātrā svasrā duhitrā vā
-> nāviviktāsano bhavet
-> balavān indriya-grāmo
+> mātrā svasrā duhitrā vā\
+> nāviviktāsano bhavet\
+> balavān indriya-grāmo\
 > vidvāṁsam api karṣati
 
 *mātrā*—with one's mother; *svasrā*—with one's sister; *duhitrā*—with ones own daughter; *vā*—either; *na*—not; *avivikta-āsanaḥ*—seated closely on one seat; *bhavet*—one should be; *balavān*—very strong; *indriya-grāmaḥ*—the group of senses; *vidvāṁsam*—the very learned and advanced person; *api*—even; *karṣati*—agitates.

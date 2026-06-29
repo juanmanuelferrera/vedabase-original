@@ -1,11 +1,11 @@
 ### SB 2.9.29
 
-> भगवच्छिक्षितमहं करवाणि ह्यतन्द्रितः ।
+> भगवच्छिक्षितमहं करवाणि ह्यतन्द्रितः ।\
 > नेहमानः प्रजासर्गं बध्येयं यदनुग्रहात् ॥२९॥
 
-> bhagavac-chikṣitam ahaṁ
-> karavāṇi hy atandritaḥ
-> nehamānaḥ prajā-sargaṁ
+> bhagavac-chikṣitam ahaṁ\
+> karavāṇi hy atandritaḥ\
+> nehamānaḥ prajā-sargaṁ\
 > badhyeyaṁ yad-anugrahāt
 
 *bhagavat*—by the Personality of Godhead; *śikṣitam*—taught; *aham*—myself; *karavāṇi*—by acting; *hi*—certainly; *atandritaḥ*—instrumental; *na*—never; *ihamānaḥ*—although acting; *prajā-sargam*—generation of the living entities; *badhyeyam*—be conditioned; *yat*—as a matter of fact; *anugrahāt*—by the mercy of.

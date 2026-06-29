@@ -1,9 +1,9 @@
 ### CC Adi 7.128
 
-> ‘প্রণব’ সে মহাবাক্য — বেদের নিদান ।
+> ‘প্রণব’ সে মহাবাক্য — বেদের নিদান ।\
 > ঈশ্বরস্বরূপ প্রণব সর্ববিশ্ব-ধাম ॥১২৮॥
 
-> 'praṇava' se mahāvākya--vedera nidāna
+> 'praṇava' se mahāvākya--vedera nidāna\
 > īśvara-svarūpa praṇava sarva-viśva-dhāma
 
 *praṇava*—el oṁkāra; *se*—ese; *mahā-vākya*—vibración sonora trascendental; *vedera*—de los Vedas; *nidāna*—principio básico; *īśvara-svarūpa*—representación directa de la Suprema Personalidad de Dios; *praṇava*—oṁkāra; *sarva-viśva*—de todos los universos; *dhāma*—es el reservorio.

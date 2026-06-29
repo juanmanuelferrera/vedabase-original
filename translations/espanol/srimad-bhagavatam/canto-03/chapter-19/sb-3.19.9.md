@@ -1,11 +1,11 @@
 ### SB 3.19.9
 
-> पदा सव्येन तां साधो भगवान्यज्ञसूकरः ।
+> पदा सव्येन तां साधो भगवान्यज्ञसूकरः ।\
 > लीलया मिषतः शत्रोः प्राहरद्वातरंहसम् ॥९॥
 
-> padā savyena tāṁ sādho
-> bhagavān yajña-sūkaraḥ
-> līlayā miṣataḥ śatroḥ
+> padā savyena tāṁ sādho\
+> bhagavān yajña-sūkaraḥ\
+> līlayā miṣataḥ śatroḥ\
 > prāharad vāta-raṁhasam
 
 *padā*—con Su pata; *savyena*—izquierda; *tām*—esa maza; *sādho*—¡oh, Vidura!; *bhagavān*—la Suprema Personalidad de Dios; *yajña-sūkaraḥ*—en Su forma de jabalí, disfrutador de todo sacrificio; *līlayā*—como jugando; *miṣataḥ*—mirando; *śatroḥ*—de Su enemigo (Hiraṇyākṣa); *prāharat*—desvió; *vāta-raṁhasam*—con la fuerza de una tempestad.

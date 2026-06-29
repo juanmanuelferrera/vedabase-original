@@ -1,9 +1,9 @@
 ### CC Madhya 7.49
 
-> স্বতন্ত্র-ঈশ্বর তুমি করিবে গমন ৷
+> স্বতন্ত্র-ঈশ্বর তুমি করিবে গমন ৷\
 > দিন কথো রহ, দেখি তোমার চরণ’ ৷৷ ৪৯ ৷৷ ॥৪৯॥
 
-> svatantra-īśvara tumi karibe gamana
+> svatantra-īśvara tumi karibe gamana\
 > dina katho raha, dekhi tomāra caraṇa'
 
 *svatantra-īśvara*—la Suprema Personalidad de Dios independiente; *tumi*—Tú; *karibe*—harás; *gamana*—partida; *dina*—días; *katho*—algunos; *raha*—por favor quédate; *dekhi*—pueda ver; *tomāra caraṇa*—Tus pies de loto.

@@ -1,11 +1,11 @@
 ### SB 8.3.26
 
-> सोऽहं विश्वसृजं विश्वमविश्वं विश्ववेदसम
+> सोऽहं विश्वसृजं विश्वमविश्वं विश्ववेदसम\
 > विश्वात्मानमजं ब्रह्म प्रणतोऽस्मि परं पदम ॥२६॥
 
-> so 'haṁ viśva-sṛjaṁ viśvam
-> aviśvaṁ viśva-vedasam
-> viśvātmānam ajaṁ brahma
+> so 'haṁ viśva-sṛjaṁ viśvam\
+> aviśvaṁ viśva-vedasam\
+> viśvātmānam ajaṁ brahma\
 > praṇato 'smi paraṁ padam
 
 *saḥ*—that; *aham*—I (the person desiring release from material life); *viśva-sṛjam*—unto Him who has created this cosmic manifestation; *viśvam*—who is Himself the whole cosmic presentation; *aviśvam*—although He is transcendental to the cosmic manifestation; *viśva-vedasam*—who is the knower or ingredient of this universal manifestation; *viśva-ātmānam*—the soul of the universe; *ajam*—who is never born, eternally existing; *brahma*—the Supreme; *praṇataḥ asmi*—I offer my respectful obeisances; *param*—who is transcendental; *padam*—the shelter.

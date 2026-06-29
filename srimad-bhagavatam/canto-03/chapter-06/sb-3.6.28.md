@@ -1,11 +1,11 @@
 ### SB 3.6.28
 
-> आत्यन्तिकेन सत्त्वेन दिवं देवाः प्रपेदिरे ।
+> आत्यन्तिकेन सत्त्वेन दिवं देवाः प्रपेदिरे ।\
 > धरां रजःस्वभावेन पणयो ये च ताननु ॥२८॥
 
-> ātyantikena sattvena
-> divaṁ devāḥ prapedire
-> dharāṁ rajaḥ-svabhāvena
+> ātyantikena sattvena\
+> divaṁ devāḥ prapedire\
+> dharāṁ rajaḥ-svabhāvena\
 > paṇayo ye ca tān anu
 
 *ātyantikena*—excessive; *sattvena*—by the mode of goodness; *divam*—in the higher planets; *devāḥ*—the demigods; *prapedire*—have been situated; *dharām*—on the earth; *rajaḥ*—the mode of passion; *svabhāvena*—by nature; *paṇayaḥ*—the human being; *ye*—all those; *ca*—also; *tān*—their; *anu*—subordinate.

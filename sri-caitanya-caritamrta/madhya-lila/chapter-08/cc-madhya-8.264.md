@@ -1,9 +1,9 @@
 ### CC Madhya 8.264
 
-> এত তত্ত্ব মোর চিত্তে কৈলে প্রকাশন ।
+> এত তত্ত্ব মোর চিত্তে কৈলে প্রকাশন ।\
 > ব্রহ্মাকে বেদ যেন পড়াইল নারায়ণ ॥২৬৪॥
 
-> eta tattva mora citte kaile prakāśana
+> eta tattva mora citte kaile prakāśana\
 > brahmāke veda yena paḍāila nārāyaṇa
 
 *etatattva*—all these varieties of truth; *mora citte*—in my heart; *kaile*—you did; *prakāśana*—manifesting; *brahmāke*—unto Lord Brahmā; *veda*—the Vedic knowledge; *yena*—as; *paḍāila*—taught; *nārāyaṇa*—the Supreme Lord.

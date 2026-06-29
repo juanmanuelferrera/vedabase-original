@@ -1,8 +1,8 @@
 ### CC Adi 1.48
 
-> naivopayanty apacitiṁ kavayas taveśa
-> brahmāyuṣāpi kṛtam ṛddha-mudaḥ smarantaḥ
-> yo 'ntar bahis tanu-bhṛtām aśubhaṁ vidhunvann
+> naivopayanty apacitiṁ kavayas taveśa\
+> brahmāyuṣāpi kṛtam ṛddha-mudaḥ smarantaḥ\
+> yo 'ntar bahis tanu-bhṛtām aśubhaṁ vidhunvann\
 > ācārya-caittya-vapuṣā sva-gatiṁ vyanakti
 
 *na eva*—de modo algum; *upayanti*—são capazes de expressar; *apacitim*—sua gratidão; *kavayaḥ*—devotos eruditos; *tava*—Vossa; *īśa*—ó Senhor; *brahma-āyuṣā*—com uma duração de vida igual à do Senhor Brahmā; *api*—apesar de; *kṛtam*—obra magnânima; *ṛddha*—aumentada; *mudaḥ*—alegria; *smarantaḥ*—lembrando; *yaḥ*—que; *antaḥ*—por dentro; *bahiḥ*—por fora; *tanu-bhṛtām*—daqueles que são corporificados; *aśubham*—infortúnio; *vidhunvan*—dissipando; *ācārya*—do mestre espiritual; *caittya*—da Superalma; *vapuṣā*—pelas formas; *sva*—próprio; *gatim*—senda; *vyanakti*—mostra.

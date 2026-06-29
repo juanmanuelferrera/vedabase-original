@@ -1,9 +1,9 @@
 ### CC Madhya 8.138
 
-> বৃন্দাবনে ‘অপ্রাকৃত নবীন মদন’ ৷
+> বৃন্দাবনে ‘অপ্রাকৃত নবীন মদন’ ৷\
 > কামগায়ত্রী কামবীজে যাঁর উপাসন ৷৷ ১৩৮ ৷৷ ॥১৩৮॥
 
-> vṛndāvane 'aprākṛta navīna madana'
+> vṛndāvane 'aprākṛta navīna madana'\
 > kāma-gāyatrī kāma-bīje yāṅra upāsana
 
 *vṛndāvane*—en Vṛndāvana; *aprākṛta*—espiritual; *navīna*—nuevo; *madana*—Cupido; *kāma-gāyatrī*—himnos de deseo; *kāma-bīje*—por la semilla espiritual del deseo llamada *klīm*; *yāṅra*—de quien; *upāsana*—la adoración.

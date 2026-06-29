@@ -1,9 +1,9 @@
 ### CC Madhya 11.79
 
-> তবে গোবিন্দ দণ্ডবৎ কৈল আচার্যেরে ।
+> তবে গোবিন্দ দণ্ডবৎ কৈল আচার্যেরে ।\
 > তাঁরে নাহি চিনে আচার্য, পুছিল দামোদরে ॥৭৯॥
 
-> tabe govinda daṇḍavat kaila ācāryere
+> tabe govinda daṇḍavat kaila ācāryere\
 > tāṅre nāhi cine ācārya, puchila dāmodare
 
 *tabe*—at that time; *govinda*—Govinda; *daṇḍavat*—falling flat to offer obeisances; *kaila*—did; *ācāryere*—unto Advaita Ācārya; *tāṅre*—him; *nāhi*—not; *cine*—recognized; *ācārya*—Advaita Ācārya; *puchila*—inquired; *dāmodare*—to Svarūpa Dāmodara.

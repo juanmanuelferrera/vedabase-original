@@ -1,18 +1,18 @@
 ### SB 6.2.36-37
 
-> विमुच्य तमिमं बन्धमविद्याकामकर्मजम
-> सर्वभूतसुहृच्छान्तो मैत्रः करुण आत्मवान ॥३६॥
-> मोचये ग्रस्तमात्मानं योषिन्मय्यात्ममायया
+> विमुच्य तमिमं बन्धमविद्याकामकर्मजम\
+> सर्वभूतसुहृच्छान्तो मैत्रः करुण आत्मवान ॥३६॥\
+> मोचये ग्रस्तमात्मानं योषिन्मय्यात्ममायया\
 > विक्रीडितो ययैवाहं क्रीडामृग इवाधमः ॥३७॥
 
-> vimucya tam imaṁ bandham
-> avidyā-kāma-karmajam
-> sarva-bhūta-suhṛc chānto
+> vimucya tam imaṁ bandham\
+> avidyā-kāma-karmajam\
+> sarva-bhūta-suhṛc chānto\
 > maitraḥ karuṇa ātmavān
 
-> mocaye grastam ātmānaṁ
-> yoṣin-mayyātma-māyayā
-> vikrīḍito yayaivāhaṁ
+> mocaye grastam ātmānaṁ\
+> yoṣin-mayyātma-māyayā\
+> vikrīḍito yayaivāhaṁ\
 > krīḍā-mṛga ivādhamaḥ
 
 *vimucya*—haberse liberado de; *tam*—eso; *imam*—este; *bandham*—cautiverio; *avidyā*—debido a la ignorancia; *kāma*—debido al deseo de disfrute; *karma-jam*—** causado por actividades; *sarva-bhūta*—de todas las entidades vivientes; *suhṛt*—** amigo; *śāntaḥ*—muy pacífico; *maitraḥ*—amistosamente; *karuṇaḥ*—misericordioso; *ātma-vān*—autorrealizado; *mocaye*—me desenredaré; *grastam*—enjaulada; *ātmānam*—mi alma; *yoṣit-mayyā*—en la forma de la mujer; *ātma-māyayā*—por la energía ilusoria del Señor; *vikrīḍitaḥ*—como un juguete; *yayā*—por el cual; *eva*—ciertamente; *aham*—yo; *krīḍā-mṛgaḥ*—un animal amaestrado; *iva*—como; *adhamaḥ*—tan degradado.

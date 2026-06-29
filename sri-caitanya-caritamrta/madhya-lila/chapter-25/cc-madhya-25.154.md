@@ -1,9 +1,9 @@
 ### CC Madhya 25.154
 
-> নিরন্তর কর কৃষ্ণনাম-সংকীর্তন ।
+> নিরন্তর কর কৃষ্ণনাম-সংকীর্তন ।\
 > হেলায় মুক্তি পাবে, পাবে প্রেমধন ॥১৫৪॥
 
-> nirantara kara kṛṣṇa-nāma-saṅkīrtana
+> nirantara kara kṛṣṇa-nāma-saṅkīrtana\
 > helāya mukti pābe, pābe prema-dhana
 
 *nirantara kara*—constantly perform; *kṛṣṇa-nāma-saṅkīrtana*—the chanting of the holy name of Kṛṣṇa; *helāya*—very easily; *mukti pābe*—you will get liberation; *pābe prema-dhana*—you will achieve the highest goal, ecstatic love of Kṛṣṇa.

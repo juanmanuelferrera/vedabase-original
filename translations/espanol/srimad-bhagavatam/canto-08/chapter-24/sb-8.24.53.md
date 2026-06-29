@@ -1,11 +1,11 @@
 ### SB 8.24.53
 
-> तं त्वामहं देववरं वरेण्यं प्रपद्य ईशं प्रतिबोधनाय
+> तं त्वामहं देववरं वरेण्यं प्रपद्य ईशं प्रतिबोधनाय\
 > छिन्ध्यर्थदीपैर्भगवन्वचोभिर्ग्रन्थीन्हृदय्यान्विवृणु स्वमोकः ॥५३॥
 
-> tvaṁ tvām ahaṁ deva-varaṁ vareṇyaṁ
-> prapadya īśaṁ pratibodhanāya
-> chindhy artha-dīpair bhagavan vacobhir
+> tvaṁ tvām ahaṁ deva-varaṁ vareṇyaṁ\
+> prapadya īśaṁ pratibodhanāya\
+> chindhy artha-dīpair bhagavan vacobhir\
 > granthīn hṛdayyān vivṛṇu svam okaḥ
 
 *tvam*—qué glorioso eres; *tvām*—a Ti; *aham*—yo mismo; *deva-varam*—adorado por los semidioses; *vareṇyam*—el más grande de todos; *prapadye*—entregarse por completo; *īśam*—al controlador supremo; *pratibodhanāya*—para entender el objetivo supremo de la vida; *chindhi*—corta; *artha-dīpaiḥ*—con la luz de la instrucción llena de significado; *bhagavan*—¡oh, Señor Supremo!; *vacobhiḥ*—con Tus palabras; *granthīn*—los nudos; *hṛdayyān*—fijos en lo más profundo del corazón; *vivṛṇu*—por favor, explica; *svam okaḥ*—mi destino en la vida.

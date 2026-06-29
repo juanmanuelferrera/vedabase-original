@@ -1,9 +1,9 @@
 ### CC Madhya 24.275
 
-> জল আনি’ ভক্ত্যে দোঁহার পাদ প্রক্ষালিল ।
+> জল আনি’ ভক্ত্যে দোঁহার পাদ প্রক্ষালিল ।\
 > সেই জল স্ত্রী-পুরুষে পিয়া শিরে লইল ॥২৭৫॥
 
-> jala āni' bhaktye doṅhāra pāda prakṣālila
+> jala āni' bhaktye doṅhāra pāda prakṣālila\
 > sei jala strī-puruṣe piyā śire la-ila
 
 *jala āni'*—trayendo agua; *bhaktye*—con gran devoción; *doṅhāra*—de ambos; *pāda prakṣālila*—lavó los pies; *sei jala*—esa agua; *strī-puruṣe*—marido y mujer; *piyā*—bebiendo; *śire la-ila*—se la pusieron sobre la cabeza.

@@ -1,11 +1,11 @@
 ### SB 1.3.32
 
-> अतः परं यदव्यक्तमव्यूढगुणबृंहितम् ।
+> अतः परं यदव्यक्तमव्यूढगुणबृंहितम् ।\
 > अदृष्टाश्रुतवस्तुत्वात्स जीवो यत्पुनर्भवः ॥३२॥
 
-> ataḥ paraṁ yad avyaktam
-> avyūḍha-guṇa-bṛṁhitam
-> adṛṣṭāśruta-vastutvāt
+> ataḥ paraṁ yad avyaktam\
+> avyūḍha-guṇa-bṛṁhitam\
+> adṛṣṭāśruta-vastutvāt\
 > sa jīvo yat punar-bhavaḥ
 
 *ataḥ*—this; *param*—beyond; *yat*—which; *avyaktam*—unmanifested; *avyūḍha*—without formal shape; *guṇa-bṛṁhitam*—affected by the qualities; *adṛṣṭa*—unseen; *aśruta*—unheard; *vastutvāt*—being like that; *saḥ*—that; *jīvaḥ*—living being; *yat*—that which; *punaḥ-bhavaḥ*—takes birth repeatedly.

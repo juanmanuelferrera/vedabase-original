@@ -1,9 +1,9 @@
 ### CC Antya 2.96
 
-> মহাভাগবত যেই, কৃষ্ণ প্রাণধন যার ।
+> মহাভাগবত যেই, কৃষ্ণ প্রাণধন যার ।\
 > মায়াবাদ-শ্রবণে চিত্ত অবশ্য ফিরে তাঁর ।।” ॥ ৯৬ ॥
 
-> mahā-bhāgavata yei, kṛṣṇa prāṇa-dhana yāra
+> mahā-bhāgavata yei, kṛṣṇa prāṇa-dhana yāra\
 > māyāvāda-śravaṇe citta avaśya phire tāṅra"
 
 *mahā-bhāgavata yei*—aquel que es un devoto sumamente elevado; *kṛṣṇa*—el Señor Kṛṣṇa; *prāṇa-dhana yāra*—cuya vida y alma; *māyāvāda-śravaṇe*—al escuchar la filosofía Māyāvāda; *citta*—el corazón; *avaśya*—ciertamente; *phire*—cambia; *tāṅra*—su.

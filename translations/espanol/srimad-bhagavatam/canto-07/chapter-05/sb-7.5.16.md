@@ -1,11 +1,11 @@
 ### SB 7.5.16
 
-> आनीयतामरे वेत्रमस्माकमयशस्करः
+> आनीयतामरे वेत्रमस्माकमयशस्करः\
 > कुलाङ्गारस्य दुर्बुद्धेश्चतुर्थोऽस्योदितो दमः ॥१६॥
 
-> ānīyatām are vetram
-> asmākam ayaśaskaraḥ
-> kulāṅgārasya durbuddheś
+> ānīyatām are vetram\
+> asmākam ayaśaskaraḥ\
+> kulāṅgārasya durbuddheś\
 > caturtho 'syodito damaḥ
 
 *ānīyatām*—que se traiga; *are*—¡oh!; *vetram*—la vara; *asmākam*—de nosotros; *ayaśaskaraḥ*—que trae mala reputación; *kula-aṅgārasya*—del que es la escoria de la dinastía; *durbuddheḥ*—de mala inteligencia; *caturthaḥ*—el cuarto; *asya*—para él; *uditaḥ*—declarado; *damaḥ*—castigo (la vara, *argumentum ad baculum*).

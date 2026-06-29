@@ -1,11 +1,11 @@
 ### SB 8.13.13
 
-> दत्त्वेमां याचमानाय विष्णवे यः पदत्रयम
+> दत्त्वेमां याचमानाय विष्णवे यः पदत्रयम\
 > राद्धमिन्द्रपदं हित्वा ततः सिद्धिमवाप्स्यति ॥१३॥
 
-> dattvemāṁ yācamānāya
-> viṣṇave yaḥ pada-trayam
-> rāddham indra-padaṁ hitvā
+> dattvemāṁ yācamānāya\
+> viṣṇave yaḥ pada-trayam\
+> rāddham indra-padaṁ hitvā\
 > tataḥ siddhim avāpsyati
 
 *dattvā*—giving in charity; *imām*—this entire universe; *yācamānāya*—who was begging from him; *viṣṇave*—unto Lord Viṣṇu; *yaḥ*—Bali Mahārāja; *pada-trayam*—three paces of land; *rāddham*—achieved; *indra-padam*—the post of Indra; *hitvā*—giving up; *tataḥ*—thereafter; *siddhim*—perfection; *avāpsyati*—will achieve.

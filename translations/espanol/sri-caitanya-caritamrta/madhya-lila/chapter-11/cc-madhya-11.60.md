@@ -1,9 +1,9 @@
 ### CC Madhya 11.60
 
-> স্নানযাত্রা কবে হবে পুছিল ভট্টেরে ৷
+> স্নানযাত্রা কবে হবে পুছিল ভট্টেরে ৷\
 > ভট্ট কহে, — তিন দিন আছয়ে যাত্রারে ৷৷ ৬০ ৷৷ ॥৬০॥
 
-> snāna-yātrā kabe habe puchila bhaṭṭere
+> snāna-yātrā kabe habe puchila bhaṭṭere\
 > bhaṭṭa kahe,-tina dina āchaye yātrāre
 
 *snāna-yātrā*—la ceremonia de baño del Señor Jagannātha; *kabe*—cuándo; *habe*—será; *puchila*—preguntó; *bhaṭṭere*—al Bhaṭṭācārya; *bhaṭṭa kahe*—el Bhaṭṭācārya dijo; *tina dina*—tres días; *āchaye*—quedan todavía; *yātrāre*—para el festival.

@@ -1,14 +1,14 @@
 ### SB 7.4.46
 
-> किमुतानुवशान्साधूंस्तादृशान्गुरुदेवतान
-> एतत्कौतूहलं ब्रह्मन्नस्माकं विधम प्रभो
+> किमुतानुवशान्साधूंस्तादृशान्गुरुदेवतान\
+> एतत्कौतूहलं ब्रह्मन्नस्माकं विधम प्रभो\
 > पितुः पुत्राय यद्द्वेषो मरणाय प्रयोजितः ॥४६॥
 
-> kim utānuvaśān sādhūṁs
-> tādṛśān guru-devatān
-> etat kautūhalaṁ brahmann
-> asmākaṁ vidhama prabho
-> pituḥ putrāya yad dveṣo
+> kim utānuvaśān sādhūṁs\
+> tādṛśān guru-devatān\
+> etat kautūhalaṁ brahmann\
+> asmākaṁ vidhama prabho\
+> pituḥ putrāya yad dveṣo\
 > maraṇāya prayojitaḥ
 
 *kim uta*—much less; *anuvaśān*—to obedient and perfect sons; *sādhūn*—great devotees; *tādṛśān*—of that sort; *guru-devatān*—honoring the father as the Supreme Personality of Godhead; *etat*—this; *kautūhalam*—doubt; *brahman*—O *brāhmaṇa*; *asmākam*—of us; *vidhama*—dissipate; *prabho*—O my lord; *pituḥ*—of the father; *putrāya*—unto the son; *yat*—which; *dveṣaḥ*—envy; *maraṇāya*—for killing; *prayojitaḥ*—applied.

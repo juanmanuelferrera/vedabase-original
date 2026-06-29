@@ -1,11 +1,11 @@
 ### SB 3.31.35
 
-> न तथास्य भवेन्मोहो बन्धश्चान्यप्रसङ्गतः ।
+> न तथास्य भवेन्मोहो बन्धश्चान्यप्रसङ्गतः ।\
 > योषित्सङ्गाद्यथा पुंसो यथा तत्सङ्गिसङ्गतः ॥३५॥
 
-> na tathāsya bhaven moho
-> bandhaś cānya-prasaṅgataḥ
-> yoṣit-saṅgād yathā puṁso
+> na tathāsya bhaven moho\
+> bandhaś cānya-prasaṅgataḥ\
+> yoṣit-saṅgād yathā puṁso\
 > yathā tat-saṅgi-saṅgataḥ
 
 *na*—not; *tathā*—in that manner; *asya*—of this man; *bhavet*—may arise; *mohaḥ*—infatuation; *bandhaḥ*—bondage; *ca*—and; *anya-prasaṅgataḥ*—from attachment to any other object; *yoṣit-saṅgāt*—from attachment to women; *yathā*—as; *puṁsaḥ*—of a man; *yathā*—as; *tat-saṅgi*—of men who are fond of women; *saṅgataḥ*—from the fellowship.

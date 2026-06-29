@@ -1,9 +1,9 @@
 ### CC Madhya 3.165
 
-> বাল্যকাল হৈতে তোমার যে কৈলুঁ সেবন  ।
+> বাল্যকাল হৈতে তোমার যে কৈলুঁ সেবন  ।\
 > তার এই ফল মোরে দেহ নারায়ণ ॥১৬৫॥
 
-> bālya-kāla haite tomāra ye kailuṅ sevana
+> bālya-kāla haite tomāra ye kailuṅ sevana\
 > tāra ei phala more deha nārāyaṇa
 
 *bālya-kāla haite*—from my childhood; *tomāra*—Your; *ye*—whatever; *kailuṅ*—I have done; *sevana*—service; *tāra*—of that; *ei phala*—this result; *more*—unto me; *deha*—kindly award; *nārāyaṇa*—O Supreme Lord.

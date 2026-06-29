@@ -1,11 +1,11 @@
 ### SB 8.15.4
 
-> तं ब्राह्मणा भृगवः प्रीयमाणा अयाजयन्विश्वजिता त्रिणाकम
+> तं ब्राह्मणा भृगवः प्रीयमाणा अयाजयन्विश्वजिता त्रिणाकम\
 > जिगीषमाणं विधिनाभिषिच्य महाभिषेकेण महानुभावाः ॥४॥
 
-> taṁ brāhmaṇā bhṛgavaḥ prīyamāṇā
-> ayājayan viśvajitā tri-ṇākam
-> jigīṣamāṇaṁ vidhinābhiṣicya
+> taṁ brāhmaṇā bhṛgavaḥ prīyamāṇā\
+> ayājayan viśvajitā tri-ṇākam\
+> jigīṣamāṇaṁ vidhinābhiṣicya\
 > mahābhiṣekeṇa mahānubhāvāḥ
 
 *tam*—sobre él (Bali Mahārāja); *brāhmaṇāḥ*—todos los *brāhmaṇas*; *bhṛgavaḥ*—los descendientes de Bhṛgu Muni; *prīyamāṇāḥ*—muy complacidos; *ayājayan*—le ocuparon en la celebración de un sacrificio; *viśvajitā*—denominado *viśvajit*; *tri-nākam*—los planetas celestiales; *jigīṣamāṇam*—deseoso de conquistar; *vidhinā*—conforme a los principios regulativos; *abhiṣicya*—después de purificar; *mahā-abhiṣekeṇa*—bañándole en una gran ceremonia de *abhiṣeka*; *mahā-anubhāvāḥ*—los *brāhmaṇas* excelsos.

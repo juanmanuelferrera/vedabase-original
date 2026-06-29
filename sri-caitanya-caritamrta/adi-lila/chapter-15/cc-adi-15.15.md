@@ -1,9 +1,9 @@
 ### CC Adi 15.15
 
-> আমি ত’ করিব তোমা’ দুঁহার সেবন ।
+> আমি ত’ করিব তোমা’ দুঁহার সেবন ।\
 > শুনিয়া সন্তুষ্ট হৈল পিতা-মাতার মন ॥১৫॥
 
-> āmi ta' kariba tomā' duṅhara sevana
+> āmi ta' kariba tomā' duṅhara sevana\
 > śuniyā santuṣṭa haila pitā-mātāra mana
 
 *āmi ta'*—I; *kariba*—shall do; *tomā*—for you; *duṅhāra*—both; *sevana*—service; *śuniyā*—after hearing; *santuṣṭa*—pleased; *haila*—became; *pitā-mātāra mana*—the parents' minds.

@@ -1,32 +1,32 @@
 ### SB 7.4.9-12
 
-> यत्र विद्रुमसोपाना महामारकता भुवः
-> यत्र स्फाटिककुड्यानि वैदूर्यस्तम्भपङ्क्तयः ॥९॥
-> यत्र चित्रवितानानि पद्मरागासनानि च
-> पयःफेननिभाः शय्या मुक्तादामपरिच्छदाः ॥१०॥
-> कूजद्भिर्नूपुरैर्देव्यः शब्दयन्त्य इतस्ततः
-> रत्नस्थलीषु पश्यन्ति सुदतीः सुन्दरं मुखम ॥११॥
-> तस्मिन्महेन्द्रभवने महाबलो महामना निर्जितलोक एकराट
+> यत्र विद्रुमसोपाना महामारकता भुवः\
+> यत्र स्फाटिककुड्यानि वैदूर्यस्तम्भपङ्क्तयः ॥९॥\
+> यत्र चित्रवितानानि पद्मरागासनानि च\
+> पयःफेननिभाः शय्या मुक्तादामपरिच्छदाः ॥१०॥\
+> कूजद्भिर्नूपुरैर्देव्यः शब्दयन्त्य इतस्ततः\
+> रत्नस्थलीषु पश्यन्ति सुदतीः सुन्दरं मुखम ॥११॥\
+> तस्मिन्महेन्द्रभवने महाबलो महामना निर्जितलोक एकराट\
 > रेमेऽभिवन्द्याङ्घ्रियुगः सुरादिभिः प्रतापितैरूर्जितचण्डशासनः ॥१२॥
 
-> yatra vidruma-sopānā
-> mahā-mārakatā bhuvaḥ
-> yatra sphāṭika-kuḍyāni
+> yatra vidruma-sopānā\
+> mahā-mārakatā bhuvaḥ\
+> yatra sphāṭika-kuḍyāni\
 > vaidūrya-stambha-paṅktayaḥ
 
-> yatra citra-vitānāni
-> padmarāgāsanāni ca
-> payaḥ-phena-nibhāḥ śayyā
+> yatra citra-vitānāni\
+> padmarāgāsanāni ca\
+> payaḥ-phena-nibhāḥ śayyā\
 > muktādāma-paricchadāḥ
 
-> kūjadbhir nūpurair devyaḥ
-> śabda-yantya itas tataḥ
-> ratna-sthalīṣu paśyanti
+> kūjadbhir nūpurair devyaḥ\
+> śabda-yantya itas tataḥ\
+> ratna-sthalīṣu paśyanti\
 > sudatīḥ sundaraṁ mukham
 
-> tasmin mahendra-bhavane mahā-balo
-> mahā-manā nirjita-loka eka-rāṭ
-> reme 'bhivandyāṅghri-yugaḥ surādibhiḥ
+> tasmin mahendra-bhavane mahā-balo\
+> mahā-manā nirjita-loka eka-rāṭ\
+> reme 'bhivandyāṅghri-yugaḥ surādibhiḥ\
 > pratāpitair ūrjita-caṇḍa-śāsanaḥ
 
 *yatra*—donde (el palacio del rey Indra); *vidruma-sopānāḥ*—escaleras hechas de coral; *mahā-mārakatāḥ*—esmeralda; *bhuvaḥ*—suelos; *yatra*—donde; *sphāṭika*—cristal; *kuḍyāni*—paredes; *vaidūrya*—de piedra *vaidūrya*; *stambha*—de pilares; *paṅktayaḥ*—hileras; *yatra*—donde; *citra*—maravillosos; *vitānāni*—doseles; *padmarāga*—tachonados de rubíes; *āsanāni*—asientos; *ca*—también; *payaḥ*—de leche; *phena*—la espuma; *nibhāḥ*—como; *śayyāḥ*—camas; *muktādāma*—de perlas; *paricchadāḥ*—con flecos; *kūjadbhiḥ*—tintineantes; *nūpuraiḥ*—con campanitas tobilleras; *devyaḥ*—damas celestiales; *śabda-yantyaḥ*—produciendo dulces sonidos; *itaḥ tataḥ*—aquí y allá; *ratna-sthalīṣu*—en lugares decorados con joyas y gemas; *paśyanti*—ven; *su-datīḥ*—de hermosos dientes; *sundaram*—muy hermosos; *mukham*—rostros; *tasmin*—en ese; *mahendra-bhavane*—el palacio del rey celestial; *mahā-balaḥ*—el muy poderoso; *mahā-manāḥ*—muy reflexivo; *nirjita-lokaḥ*—que tenía a todo el mundo bajo control; *eka-rāṭ*—el poderoso dictador; *reme*—disfrutaba; *abhivandya*—adorados; *aṅghri-yugaḥ*—cuyos dos pies; *sura-ādibhiḥ*—por los semidioses; *pratāpitaiḥ*—perturbados; *ūrjita*—más de lo que se esperaría; *caṇḍa*—riguroso; *śāsanaḥ*—cuyo gobierno.

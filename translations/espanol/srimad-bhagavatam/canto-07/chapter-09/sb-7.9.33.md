@@ -1,13 +1,13 @@
 ### SB 7.9.33
 
-> तस्यैव ते वपुरिदं निजकालशक्त्या
-> सञ्चोदितप्रकृतिधर्मण आत्मगूढम
-> अम्भस्यनन्तशयनाद्विरमत्समाधेर
+> तस्यैव ते वपुरिदं निजकालशक्त्या\
+> सञ्चोदितप्रकृतिधर्मण आत्मगूढम\
+> अम्भस्यनन्तशयनाद्विरमत्समाधेर\
 > नाभेरभूत्स्वकणिकावटवन्महाब्जम ॥३३॥
 
-> tasyaiva te vapur idaṁ nija-kāla-śaktyā
-> sañcodita-prakṛti-dharmaṇa ātma-gūḍham
-> ambhasy ananta-śayanād viramat-samādher
+> tasyaiva te vapur idaṁ nija-kāla-śaktyā\
+> sañcodita-prakṛti-dharmaṇa ātma-gūḍham\
+> ambhasy ananta-śayanād viramat-samādher\
 > nābher abhūt sva-kaṇikā-vaṭavan-mahābjam
 
 *tasya*—de esa Suprema Personalidad de Dios; *eva*—ciertamente; *te*—de Ti; *vapuḥ*—el cuerpo cósmico; *idam*—este (universo); *nija-kāla-śaktyā*—por el poderoso factor tiempo; *sañcodita*—agitadas; *prakṛti-dharmaṇaḥ*—de Él, por quien las tres *guṇas*, o cualidades de la naturaleza material; *ātma-gūḍham*—latente en Ti; *ambhasi*—en el agua que recibe el nombre de océano Causal; *ananta-śayanāt*—del lecho denominado Ananta (otro aspecto de Ti mismo); *viramat-samādheḥ*—habiendo despertado del *samādhi* (trance yóguico); *nābheḥ*—del ombligo; *abhūt*—apareció; *sva-kaṇikā*—de la semilla; *vaṭa-vat*—como el gran árbol de los banianos; *mahā-abjam*—el gran loto de los mundos (ha crecido del mismo modo).

@@ -1,9 +1,9 @@
 ### CC Antya 10.27
 
-> শালিকাচুটি-ধান্যের ‘আতপ’ চিড়া করি’ ।
+> শালিকাচুটি-ধান্যের ‘আতপ’ চিড়া করি’ ।\
 > নূতন-বস্ত্রের বড় কুথলী সব ভরি’ ॥২৭॥
 
-> śālikācuṭi-dhānyera 'ātapa' ciḍā kari'
+> śālikācuṭi-dhānyera 'ātapa' ciḍā kari'\
 > nūtana-vastrera baḍa kuthalī saba bhari'
 
 *śālikācuṭi-dhānyera*—de un tipo de arroz fino; *ātapa*—secado al sol; *ciḍā kari'*—haciendo arroz aplanado; *nūtana-vastrera*—de tela nueva; *baḍa kuthalī*—una bolsa grande; *saba*—todo; *bhari'*—llenando.

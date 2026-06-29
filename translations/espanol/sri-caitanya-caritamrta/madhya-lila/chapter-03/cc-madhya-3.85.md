@@ -1,9 +1,9 @@
 ### CC Madhya 3.85
 
-> “ভ্রষ্ট অবধূত তুমি, উদর ভরিতে ।
+> “ভ্রষ্ট অবধূত তুমি, উদর ভরিতে ।\
 > সন্ন্যাস লইয়াছ, বুঝি, ব্রাহ্মণ দণ্ডিতে ॥৮৫॥
 
-> bhraṣṭa avadhūta tumi, udara bharite
+> bhraṣṭa avadhūta tumi, udara bharite\
 > sannyāsa la-iyācha, bujhi, brāhmaṇa daṇḍite
 
 *bhraṣṭa avadhūta*—*paramahaṁsa* rechazado; *tumi*—Tú; *udara bharite*—para llenarte el estómago; *sannyāsa la-iyācha*—has aceptado la orden de vida de renuncia; *bujhi*—comprendo; *brāhmaṇa daṇḍite*—para causar molestias a un *brāhmaṇa*.

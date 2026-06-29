@@ -1,9 +1,9 @@
 ### CC Madhya 16.237
 
-> “স্থির হঞা ঘরে যাও, না হও বাতুল  ।
+> “স্থির হঞা ঘরে যাও, না হও বাতুল  ।\
 > ক্রমে ক্রমে পায় লোক ভবসিন্ধুকূল ॥২৩৭॥
 
-> "sthira hañā ghare yāo, nā hao vātula
+> "sthira hañā ghare yāo, nā hao vātula\
 > krame krame pāya loka bhava-sindhu-kūla
 
 *sthira hañā*—being patient; *ghare yāo*—go back home; *nā*—do not; *hao*—become; *vātula*—crazy; *krame krame*—gradually; *pāya*—gets; *loka*—a person; *bhava-sindhu-kūla*—the far shore of the ocean of material existence.

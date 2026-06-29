@@ -1,9 +1,9 @@
 ### CC Madhya 5.119
 
-> এই মত বিদ্যানগরে সাক্ষিগোপাল ।
+> এই মত বিদ্যানগরে সাক্ষিগোপাল ।\
 > সেবা অঙ্গীকার করি’ আছেন চিরকাল ॥১১৯॥
 
-> ei mata vidyānagare sākṣi-gopāla
+> ei mata vidyānagare sākṣi-gopāla\
 > sevā aṅgīkāra kari' āchena cira-kāla
 
 *ei mata*—de este modo; *vidyānagare*—en la ciudad de Vidyānagara; *sākṣi-gopāla*—Gopāla el testigo; *sevā*—servicio; *aṅgīkāra*—aceptación; *kari'*—haciendo; *āchena*—permanece; *cira-kāla*—por largo tiempo.

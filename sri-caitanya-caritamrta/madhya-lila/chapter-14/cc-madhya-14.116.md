@@ -1,9 +1,9 @@
 ### CC Madhya 14.116
 
-> রসবিশেষ প্রভুর শুনিতে মন হৈল ।
+> রসবিশেষ প্রভুর শুনিতে মন হৈল ।\
 > ঈষত্ হাসিয়া প্রভু স্বরূপে পুছিল ॥১১৬॥
 
-> rasa-viśeṣa prabhura śunite mana haila
+> rasa-viśeṣa prabhura śunite mana haila\
 > īṣat hāsiyā prabhu svarūpe puchila
 
 *rasa-viśeṣa*—a particular mellow; *prabhura*—of Śrī Caitanya Mahāprabhu; *śunite*—to hear; *mana haila*—there was a desire; *īṣat hāsiyā*—smiling mildly; *prabhu*—Śrī Caitanya Mahāprabhu; *svarūpe puchila*—inquired from Svarūpa Dāmodara.

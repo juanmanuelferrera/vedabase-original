@@ -1,11 +1,11 @@
 ### SB 3.6.32
 
-> विशोऽवर्तन्त तस्योर्वोर्लोकवृत्तिकरीर्विभोः ।
+> विशोऽवर्तन्त तस्योर्वोर्लोकवृत्तिकरीर्विभोः ।\
 > वैश्यस्तदुद्भवो वार्तां नृणां यः समवर्तयत् ॥३२॥
 
-> viśo 'vartanta tasyorvor
-> loka-vṛttikarīr vibhoḥ
-> vaiśyas tad-udbhavo vārtāṁ
+> viśo 'vartanta tasyorvor\
+> loka-vṛttikarīr vibhoḥ\
+> vaiśyas tad-udbhavo vārtāṁ\
 > nṛṇāṁ yaḥ samavartayat
 
 *viśaḥ*—means of living by production and distribution; *avartanta*—generated; *tasya*—His (the gigantic form's); *ūrvoḥ*—from the thighs; *loka-vṛttikarīḥ*—means of livelihood; *vibhoḥ*—of the Lord; *vaiśyaḥ*—the mercantile community; *tat*—their; *udbhavaḥ*—orientation; *vārtām*—means of living; *nṛṇām*—of all men; *yaḥ*—one who; *samavartayat*—executed.

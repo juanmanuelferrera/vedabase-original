@@ -1,18 +1,18 @@
 ### SB 6.4.27-28
 
-> मनीषिणोऽन्तर्हृदि सन्निवेशितं स्वशक्तिभिर्नवभिश्च त्रिवृद्भिः
-> वह्निं यथा दारुणि पाञ्चदश्यं मनीषया निष्कर्षन्ति गूढम ॥२७॥
-> स वै ममाशेषविशेषमाया निषेधनिर्वाणसुखानुभूतिः
+> मनीषिणोऽन्तर्हृदि सन्निवेशितं स्वशक्तिभिर्नवभिश्च त्रिवृद्भिः\
+> वह्निं यथा दारुणि पाञ्चदश्यं मनीषया निष्कर्षन्ति गूढम ॥२७॥\
+> स वै ममाशेषविशेषमाया निषेधनिर्वाणसुखानुभूतिः\
 > स सर्वनामा स च विश्वरूपः प्रसीदतामनिरुक्तात्मशक्तिः ॥२८॥
 
-> manīṣiṇo 'ntar-hṛdi sanniveśitaṁ
-> sva-śaktibhir navabhiś ca trivṛdbhiḥ
-> vahniṁ yathā dāruṇi pāñcadaśyaṁ
+> manīṣiṇo 'ntar-hṛdi sanniveśitaṁ\
+> sva-śaktibhir navabhiś ca trivṛdbhiḥ\
+> vahniṁ yathā dāruṇi pāñcadaśyaṁ\
 > manīṣayā niṣkarṣanti gūḍham
 
-> sa vai mamāśeṣa-viśeṣa-māyā-
-> niṣedha-nirvāṇa-sukhānubhūtiḥ
-> sa sarva-nāmā sa ca viśva-rūpaḥ
+> sa vai mamāśeṣa-viśeṣa-māyā-\
+> niṣedha-nirvāṇa-sukhānubhūtiḥ\
+> sa sarva-nāmā sa ca viśva-rūpaḥ\
 > prasīdatām aniruktātma-śaktiḥ
 
 *manīṣiṇaḥ*—grandes *brāhmaṇas* eruditos que celebran ceremonias y sacrificios rituales; *antaḥ-hṛdi*—en lo profundo del corazón; *sanniveśitam*—situado; *sva-śaktibhiḥ*—con Sus propias potencias espirituales; *navabhiḥ*—también con las nueve potencias materiales (la naturaleza material, la energía material total, el ego, la mente y los cinco objetos de los sentidos); *ca*—y (los cinco elementos materiales densos y los diez sentidos para la acción y para adquirir conocimiento); *trivṛdbhiḥ*—por las tres modalidades materiales de la naturaleza; *vahnim*—fuego; *yathā*—tal como; *dāruṇi*—dentro de la leña; *pāñcadaśyam*—producido por cantar los quince himnos que reciben el nombre de *mantras sāmidhenī*; *manīṣayā*—con la inteligencia purificada; *niṣkarṣanti*—extrae; *gūḍham*—aunque no se manifiesta; *saḥ*—esa Suprema Personalidad de Dios; *vai*—en verdad; *mama*—hacia mí; *aśeṣa*—todas; *viśeṣa*—diversidades; *māyā*—de la energía ilusoria; *niṣedha*—mediante el proceso de negación; *nirvāṇa*—de liberación; *sukha-anubhūtiḥ*—a quien se comprende por medio de la felicidad trascendental; *saḥ*—esa Suprema Personalidad de Dios; *sarva-nāmā*—que es la fuente de todos los nombres; *saḥ*—esa Suprema Personalidad de Dios; *ca*—también; *viśva-rūpaḥ*—la gigantesca forma del universo; *prasīdatām*—que Él sea misericordioso; *anirukta*—inconcebible; *ātma-śaktiḥ*—el receptáculo de todas las potencias espirituales.

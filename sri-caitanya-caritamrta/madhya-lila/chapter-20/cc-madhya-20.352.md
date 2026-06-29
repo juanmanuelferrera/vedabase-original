@@ -1,9 +1,9 @@
 ### CC Madhya 20.352
 
-> প্রভু কহে, — “অন্যাবতার শাস্ত্র-দ্বারে জানি ।
+> প্রভু কহে, — “অন্যাবতার শাস্ত্র-দ্বারে জানি ।\
 > কলিতে অবতার তৈছে শাস্ত্রবাক্যে মানি ॥৩৫২॥
 
-> prabhu kahe,—"anyāvatāra śāstra-dvāre jāni
+> prabhu kahe,—"anyāvatāra śāstra-dvāre jāni\
 > kalite avatāra taiche śāstra-vākye māni
 
 *prabhu kahe*—Lord Śrī Caitanya Mahāprabhu said; *anya-avatāra*—the incarnations in other yugas; *śāstra-dvāre jāni*—one has to accept by reference to the śāstras; *kalite*—in this Age of Kali; *avatāra*—incarnation; *taiche*—similarly; *śāstra-vākye māni*—one has to accept according to the description of revealed scriptures.

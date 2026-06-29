@@ -1,11 +1,11 @@
 ### SB 3.24.40
 
-> मात्र आध्यात्मिकीं विद्यां शमनीं सर्वकर्मणाम् ।
+> मात्र आध्यात्मिकीं विद्यां शमनीं सर्वकर्मणाम् ।\
 > वितरिष्ये यया चासौ भयं चातितरिष्यति ॥४०॥
 
-> mātra ādhyātmikīṁ vidyāṁ
-> śamanīṁ sarva-karmaṇām
-> vitariṣye yayā cāsau
+> mātra ādhyātmikīṁ vidyāṁ\
+> śamanīṁ sarva-karmaṇām\
+> vitariṣye yayā cāsau\
 > bhayaṁ cātitariṣyati
 
 *mātre*—a Mi madre; *ādhyātmikīm*—que abre la puerta de la vida espiritual; *vidyām*—conocimiento; *śamanīm*—terminando; *sarva-karmaṇām*—todas las actividades fruitivas; *vitariṣye*—Yo daré; *yayā*—por el cual; *ca*—también; *asau*—ella; *bhayam*—temor; *ca*—también; *atitariṣyati*—superará.

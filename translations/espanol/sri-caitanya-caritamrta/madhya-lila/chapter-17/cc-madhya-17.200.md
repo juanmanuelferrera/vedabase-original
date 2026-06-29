@@ -1,9 +1,9 @@
 ### CC Madhya 17.200
 
-> প্রভু দেখি’ বৃন্দাবনের বৃক্ষ-লতাগণে ।
+> প্রভু দেখি’ বৃন্দাবনের বৃক্ষ-লতাগণে ।\
 > অঙ্কুর-পুলক, মধু-অশ্রু বরিষণে ॥২০০॥
 
-> prabhu dekhi' vṛndāvanera vṛkṣa-latā-gaṇe
+> prabhu dekhi' vṛndāvanera vṛkṣa-latā-gaṇe\
 > aṅkura pulaka, madhu-aśru variṣaṇe
 
 *prabhu*—Śrī Caitanya Mahāprabhu; *dekhi'*—al ver; *vṛndāvanera*—de Vṛndāvana; *vṛkṣa-latā-gaṇe*—los árboles y enredaderas; *aṅkura*—ramitas; *pulaka*—jubilosos; *madhu-aśru*—lágrimas en forma de miel; *variṣaṇe*—derraman.

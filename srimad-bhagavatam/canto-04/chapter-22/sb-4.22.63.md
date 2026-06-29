@@ -1,11 +1,11 @@
 ### SB 4.22.63
 
-> कीर्त्योर्ध्वगीतया पुम्भिस्त्रैलोक्ये तत्र तत्र ह ।
+> कीर्त्योर्ध्वगीतया पुम्भिस्त्रैलोक्ये तत्र तत्र ह ।\
 > प्रविष्टः कर्णरन्ध्रेषु स्त्रीणां रामः सतामिव ॥६३॥
 
-> kīrtyordhva-gītayā pumbhis
-> trailokye tatra tatra ha
-> praviṣṭaḥ karṇa-randhreṣu
+> kīrtyordhva-gītayā pumbhis\
+> trailokye tatra tatra ha\
+> praviṣṭaḥ karṇa-randhreṣu\
 > strīṇāṁ rāmaḥ satām iva
 
 *kīrtyā*—by reputation; *ūrdhva-gītayā*—by loud declaration; *pumbhiḥ*—by the general public; *trai-lokye*—all over the universe; *tatra tatra*—here and there; *ha*—certainly; *praviṣṭaḥ*—entering; *karṇa-randhreṣu*—in the aural holes; *strīṇām*—of the women; *rāmaḥ*—Lord Rāmacandra; *satām*—of the devotees; *iva*—like.

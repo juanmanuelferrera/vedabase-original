@@ -1,9 +1,9 @@
 ### CC Adi 17.218
 
-> ‘হরি’ ‘কৃষ্ণ’ ‘নারায়ণ’ — লৈলে তিন নাম ।
+> ‘হরি’ ‘কৃষ্ণ’ ‘নারায়ণ’ — লৈলে তিন নাম ।\
 > বড় ভাগ্যবান্ তুমি, বড় পুণ্যবান ॥২১৮॥
 
-> 'hari' 'kṛṣṇa' 'nārāyaṇa'--laile tina nāma
+> 'hari' 'kṛṣṇa' 'nārāyaṇa'--laile tina nāma\
 > baḍa bhāgyavān tumi, baḍa puṇyavān
 
 *hari kṛṣṇa nārāyaṇa*—los santos nombres del Señor Hari, el Señor Kṛṣṇa y el Señor Nārāyaṇa; *laile*—has tomado; *tina*—tres; *nāma*—santos nombres; *baḍa*—muy; *bhāgyavān*—afortunado; *tumi*—tú eres; *baḍa*—muy; *puṇyavān*—piadoso.

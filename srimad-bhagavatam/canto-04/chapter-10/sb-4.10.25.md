@@ -1,11 +1,11 @@
 ### SB 4.10.25
 
-> ततः खेऽदृश्यत गिरिर्निपेतुः सर्वतोदिशम् ।
+> ततः खेऽदृश्यत गिरिर्निपेतुः सर्वतोदिशम् ।\
 > गदापरिघनिस्त्रिंश मुसलाः साश्मवर्षिणः ॥२५॥
 
-> tataḥ khe 'dṛśyata girir
-> nipetuḥ sarvato-diśam
-> gadā-parigha-nistriṁśa-
+> tataḥ khe 'dṛśyata girir\
+> nipetuḥ sarvato-diśam\
+> gadā-parigha-nistriṁśa-\
 > musalāḥ sāśma-varṣiṇaḥ
 
 *tataḥ*—thereafter; *khe*—in the sky; *adṛśyata*—was visible; *giriḥ*—a mountain; *nipetuḥ*—fell down; *sarvataḥ-diśam*—from all directions; *gadā*—clubs; *parigha*—iron bludgeons; *nistriṁśa*—swords; *musalāḥ*—maces; *sa-aśma*—great pieces of stone; *varṣiṇaḥ*—with a shower of.

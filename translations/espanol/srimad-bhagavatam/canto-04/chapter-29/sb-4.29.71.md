@@ -1,11 +1,11 @@
 ### SB 4.29.71
 
-> सुप्तिमूर्च्छोपतापेषु प्राणायनविघाततः ।
+> सुप्तिमूर्च्छोपतापेषु प्राणायनविघाततः ।\
 > नेहतेऽहमिति ज्ञानं मृत्युप्रज्वारयोरपि ॥७१॥
 
-> supti-mūrcchopatāpeṣu
-> prāṇāyana-vighātataḥ
-> nehate 'ham iti jñānaṁ
+> supti-mūrcchopatāpeṣu\
+> prāṇāyana-vighātataḥ\
+> nehate 'ham iti jñānaṁ\
 > mṛtyu-prajvārayor api
 
 *supti*—en estado de sueño profundo; *mūrccha*—desmayarse; *upatāpeṣu*—o en una gran conmoción; *prāṇa-ayana*—del movimiento del aire vital; *vighātataḥ*—de impedimento; *na*—no; *īhate*—piensa en; *aham*—yo; *iti*—así; *jñānam*—conocimiento; *mṛtyu*—cuando muere; *prajvārayoḥ*—o durante una fiebre elevada; *api*—también.

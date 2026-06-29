@@ -1,11 +1,11 @@
 ### SB 9.24.2
 
-> रोमपादसुतो बभ्रुर्बभ्रोः कृतिरजायत
+> रोमपादसुतो बभ्रुर्बभ्रोः कृतिरजायत\
 > उशिकस्तत्सुतस्तस्माच्चेदिश्चैद्यादयो नृपाः ॥२॥
 
-> romapāda-suto babhrur
-> babhroḥ kṛtir ajāyata
-> uśikas tat-sutas tasmāc
+> romapāda-suto babhrur\
+> babhroḥ kṛtir ajāyata\
+> uśikas tat-sutas tasmāc\
 > cediś caidyādayo nṛpāḥ
 
 *romapāda-sutaḥ*—el hijo de Romapāda; *babhruḥ*—Babhru; *babhroḥ*—de Babhru; *kṛtiḥ*—Kṛti; *ajāyata*—nació; *uśikaḥ*—Uśika; *tat-sutaḥ*—el hijo de Kṛti; *tasmāt*—de él (de Uśika); *cediḥ*—Cedi; *caidya*—Caidya (Damaghoṣa); *ādayaḥ*—y otros; *nṛpāḥ*—reyes.

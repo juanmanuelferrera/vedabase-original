@@ -1,9 +1,9 @@
 ### CC Madhya 15.100
 
-> “নন্দনন্দন কৃষ্ণ — মোর প্রাণনাথ” ।
+> “নন্দনন্দন কৃষ্ণ — মোর প্রাণনাথ” ।\
 > এই বাক্যে বিকাইনু তাঁর বংশের হাত ॥১০০॥
 
-> "nandanandana kṛṣṇa--mora prāṇa-nātha"
+> "nandanandana kṛṣṇa--mora prāṇa-nātha"\
 > ei vākye vikāinu tāṅra vaṁśera hāta
 
 *nanda-nandana kṛṣṇa*—Kṛṣṇa, el hijo de Nanda Mahārāja; *mora prāṇa-nātha*—mi vida y alma; *ei vākye*—por esta declaración; *vikāinu*—me vendí; *tāṅra*—de él; *vaṁśera hāta*—en las manos de los descendientes.

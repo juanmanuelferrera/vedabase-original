@@ -1,9 +1,9 @@
 ### CC Madhya 12.149
 
-> শুনিতেই গোপালের হইল চেতন ।
+> শুনিতেই গোপালের হইল চেতন ।\
 > ‘হরি’ বলি’ নৃত্য করে সর্বভক্তগণ ॥১৪৯॥
 
-> śunitei gopālera ha-ila cetana
+> śunitei gopālera ha-ila cetana\
 > 'hari' bali' nṛtya kare sarva-bhakta-gaṇa
 
 *śunitei*—al oír; *gopālera*—de Śrī Gopāla; *ha-ila*—hubo; *cetana*—conciencia; *hari bali'*—cantando el santo nombre de Hari; *nṛtya kare*—danzaron; *sarva-bhakta-gaṇa*—todos los devotos.

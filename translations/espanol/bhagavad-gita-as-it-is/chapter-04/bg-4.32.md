@@ -1,11 +1,11 @@
 ### Bg 4.32
 
-> एवं बहुविधा यज्ञा वितता ब्रह्मणो मुखे ।
+> एवं बहुविधा यज्ञा वितता ब्रह्मणो मुखे ।\
 > कर्मजान्विद्धि तान्सर्वानेवं ज्ञात्वा विमोक्ष्यसे ॥३२॥
 
-> evaṁ bahu-vidhā yajñā
-> vitatā brahmaṇo mukhe
-> karma-jān viddhi tān sarvān
+> evaṁ bahu-vidhā yajñā\
+> vitatā brahmaṇo mukhe\
+> karma-jān viddhi tān sarvān\
 > evaṁ jñātvā vimokṣyase
 
 *evam*—así pues; *bahu-vidhāḥ*—diversas clases de; *yajñāḥ*—sacrificios; *vitatāḥ*—difundidos; *brahmaṇaḥ*—de los Vedas; *mukhe*—de frente a; *karma-jān*—nacido del trabajo; *viddhi*—debes saber; *tān*—ellos; *sarvān*—todos; *evam*—así; *jñātvā*—sabiendo; *vimokṣyase*—ser liberado.

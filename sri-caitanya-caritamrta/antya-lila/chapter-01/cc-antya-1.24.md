@@ -1,9 +1,9 @@
 ### CC Antya 1.24
 
-> প্রভাতে কুক্কুর চাহি’ কাঁহা না পাইল ।
+> প্রভাতে কুক্কুর চাহি’ কাঁহা না পাইল ।\
 > সকল বৈষ্ণবের মনে চমৎকার হৈল ॥২৪॥
 
-> prabhāte kukkura cāhi' kāṅhā nā pāila
+> prabhāte kukkura cāhi' kāṅhā nā pāila\
 > sakala vaiṣṇavera mane camatkāra haila
 
 *prabhāte*—in the morning; *kukkura*—the dog; *cāhi'*—looking for; *kāṅhā*—anywhere; *nā pāila*—not found; *sakala vaiṣṇavera*—of all the Vaiṣṇavas present; *mane*—in the minds; *camatkāra haila*—there was great astonishment.

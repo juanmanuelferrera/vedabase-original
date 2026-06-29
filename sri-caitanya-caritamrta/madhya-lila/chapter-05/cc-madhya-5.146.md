@@ -1,9 +1,9 @@
 ### CC Madhya 5.146
 
-> হাসে, কান্দে, নাচে প্রভু হুঙ্কার গর্জন ।
+> হাসে, কান্দে, নাচে প্রভু হুঙ্কার গর্জন ।\
 > তিনক্রোশ পথ হৈল — সহস্র যোজন ॥১৪৬॥
 
-> hāse, kānde, nāce prabhu huṅkāra garjana
+> hāse, kānde, nāce prabhu huṅkāra garjana\
 > tina-krośa patha haila—sahasra yojana
 
 *hāse*—laughs; *kānde*—cries; *nāce*—dances; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *huṅkāra*—ecstatic vibrations; *garjana*—resonations; *tina-krośa*—six miles; *patha*—the way; *haila*—became; *sahasra yojana*—thousands of miles.

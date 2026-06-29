@@ -1,11 +1,11 @@
 ### SB 8.8.2
 
-> तामग्निहोत्रीमृषयो जगृहुर्ब्रह्मवादिनः
+> तामग्निहोत्रीमृषयो जगृहुर्ब्रह्मवादिनः\
 > यज्ञअस्य देवयानस्य मेध्याय हविषे नृप ॥२॥
 
-> tām agni-hotrīm ṛṣayo
-> jagṛhur brahma-vādinaḥ
-> yajñasya deva-yānasya
+> tām agni-hotrīm ṛṣayo\
+> jagṛhur brahma-vādinaḥ\
+> yajñasya deva-yānasya\
 > medhyāya haviṣe nṛpa
 
 *tām*—de esa vaca; *agni-hotrīm*—absolutamente indispensable para la producción de yogur, leche y *ghī* para ofrecer como oblaciones en el fuego; *ṛṣayaḥ*—los sabios que celebran esos sacrificios; *jagṛhuḥ*—se encargaron; *brahma-vādinaḥ*—debido a que esos sabios conocen las ceremonias rituales védicas; *yajñasya*—de sacrificio; *deva-yānasya*—que satisface el deseo de elevarse a los sistemas planetarios superiores y a Brahmaloka; *medhyāya*—adecuada para ofrecer oblaciones; *haviṣe*—para obtener mantequilla clarificada pura; *nṛpa*—¡oh, rey!.

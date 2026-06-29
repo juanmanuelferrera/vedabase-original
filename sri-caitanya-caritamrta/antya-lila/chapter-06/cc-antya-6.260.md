@@ -1,9 +1,9 @@
 ### CC Antya 6.260
 
-> শিবানন্দ কহে, — “তুমি সব যাইতে নারিবা ।
+> শিবানন্দ কহে, — “তুমি সব যাইতে নারিবা ।\
 > আমি যাই যবে, আমার সঙ্গে যাইবা ॥২৬০॥
 
-> śivānanda kahe,—"tumi saba yāite nāribā
+> śivānanda kahe,—"tumi saba yāite nāribā\
 > āmi yāi yabe, āmāra saṅge yāibā
 
 *śivānanda kahe*—Śivānanda Sena said; *tumi*—you; *saba*—all; *yāite nāribā*—cannot go; *āmi yāi*—I go; *yabe*—when; *āmāra saṅge*—with me; *yāibā*—you will go.

@@ -1,6 +1,6 @@
 ### CC Adi 1.32
 
-> kṛṣṇa, guru, bhakta, śakti, avatāra, prakāśa
+> kṛṣṇa, guru, bhakta, śakti, avatāra, prakāśa\
 > kṛṣṇa ei chaya-rūpe karena vilāsa
 
 *kṛṣṇa*—o Senhor Supremo, Śrī Kṛṣṇa; *guru*—os mestres espirituais; *bhakta*—os devotos; *śakti*—as potências; *avatāra*—as encarnações; *prakāśa*—porções plenárias; *kṛṣṇa*—o Senhor Kṛṣṇa; *ei chaya-rūpe*—nestes seis aspectos; *karena vilāsa*—desfruta.

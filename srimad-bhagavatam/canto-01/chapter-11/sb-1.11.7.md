@@ -1,11 +1,11 @@
 ### SB 1.11.7
 
-> भवाय नस्त्वं भव विश्वभावन त्वमेव माताथ सुहृत्पतिः पिता ।
+> भवाय नस्त्वं भव विश्वभावन त्वमेव माताथ सुहृत्पतिः पिता ।\
 > त्वं सद्गुरुर्नः परमं च दैवतं यस्यानुवृत्त्या कृतिनो बभूविम ॥७॥
 
-> bhavāya nas tvaṁ bhava viśva-bhāvana
-> tvam eva mātātha suhṛt-patiḥ pitā
-> tvaṁ sad-gurur naḥ paramaṁ ca daivataṁ
+> bhavāya nas tvaṁ bhava viśva-bhāvana\
+> tvam eva mātātha suhṛt-patiḥ pitā\
+> tvaṁ sad-gurur naḥ paramaṁ ca daivataṁ\
 > yasyānuvṛttyā kṛtino babhūvima
 
 *bhavāya*—for welfare; *naḥ*—for us; *tvam*—Your Lordship; *bhava*—just become; *viśva-bhāvana*—the creator of the universe; *tvam*—Your Lordship; *eva*—certainly; *mātā*—mother; *atha*—as also; *suhṛt*—well-wisher; *patiḥ*—husband; *pitā*—father; *tvam*—Your Lordship; *sat-guruḥ*—spiritual master; *naḥ*—our; *paramam*—the supreme; *ca*—and; *daivatam*—worshipable Deity; *yasya*—whose; *anuvṛttyā*—following in the footsteps; *kṛtinaḥ*—successful; *babhūvima*—we have become.

@@ -1,9 +1,9 @@
 ### CC Adi 12.88
 
-> চক্রবর্তী শিবানন্দ সদা ব্রজবাসী ।
+> চক্রবর্তী শিবানন্দ সদা ব্রজবাসী ।\
 > মহাশাখা-মধ্যে তেঁহো সুদৃঢ় বিশ্বাসী ॥৮৮॥
 
-> cakravartī śivānanda sadā vrajavāsī
+> cakravartī śivānanda sadā vrajavāsī\
 > mahāśākhā-madhye teṅho sudṛḍha viśvāsī
 
 *cakravartī śivānanda*—de nombre Śivānanda Cakravartī; *sadā*—siempre; *vraja-vāsī*—residente de Vṛndāvana; *mahā-śākhā-madhye*—entre las grandes ramas; *teṅho*—él es; *sudṛḍha viśvāsī*—poseedor de firme fe.

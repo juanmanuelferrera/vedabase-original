@@ -1,9 +1,9 @@
 ### CC Antya 4.160
 
-> আমার উপদেষ্টা তুমি — প্রামাণিক আর্য ।
+> আমার উপদেষ্টা তুমি — প্রামাণিক আর্য ।\
 > তোমারেহ উপদেশে — বালকা করে ঐছে কার্য ।।” ॥ ১৬০ ॥
 
-> āmāra upadeṣṭā tumi--prāmāṇika ārya
+> āmāra upadeṣṭā tumi--prāmāṇika ārya\
 > tomāreha upadeśe--bālakā kare aiche kārya
 
 *āmāra*—Mi; *upadeṣṭā*—consejero; *tumi*—tú; *prāmāṇika ārya*—persona autorizada; *tomāreha*—incluso a ti; *upadeśe*—aconseja; *bālakā*—muchacho; *kare*—hace; *aiche*—tal; *kārya*—negocio.

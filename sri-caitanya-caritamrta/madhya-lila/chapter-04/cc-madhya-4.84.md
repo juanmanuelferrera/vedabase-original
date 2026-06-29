@@ -1,9 +1,9 @@
 ### CC Madhya 4.84
 
-> সবে বসি’ ক্রমে ক্রমে ভোজন করিল ।
+> সবে বসি’ ক্রমে ক্রমে ভোজন করিল ।\
 > ব্রাহ্মণ-ব্রাহ্মণীগণে আগে খাওয়াইল ॥৮৪॥
 
-> sabe vasi' krame krame bhojana karila
+> sabe vasi' krame krame bhojana karila\
 > brāhmaṇa-brāhmaṇī-gaṇe āge khāoyāila
 
 *sabe*—all; *vasi'*—sitting; *krame krame*—by and by; *bhojana karila*—honored *prasāda* and ate it; *brāhmaṇa-brāhmaṇī-gaṇe*—the *brāhmaṇas* and their wives; *āge*—first; *khāoyāila*—were fed.

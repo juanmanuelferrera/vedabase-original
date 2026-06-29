@@ -1,13 +1,13 @@
 ### SB 6.1.1
 
-> श्रीपरीक्षिदुवाच
-> निवृत्तिमार्गः कथित आदौ भगवता यथा
+> श्रीपरीक्षिदुवाच\
+> निवृत्तिमार्गः कथित आदौ भगवता यथा\
 > क्रमयोगोपलब्धेन ब्रह्मणा यदसंसृतिः ॥१॥
 
-> śrī-parīkṣid uvāca
-> nivṛtti-mārgaḥ kathita
-> ādau bhagavatā yathā
-> krama-yogopalabdhena
+> śrī-parīkṣid uvāca\
+> nivṛtti-mārgaḥ kathita\
+> ādau bhagavatā yathā\
+> krama-yogopalabdhena\
 > brahmaṇā yad asaṁsṛtiḥ
 
 *śrī-parīkṣit uvāca*—Mahārāja Parīkṣit said; *nivṛtti-mārgaḥ*—the path of liberation; *kathitaḥ*—described; *ādau*—in the beginning; *bhagavatā*—by Your Holiness; *yathā*—duly; *krama*—gradually; *yoga-upalabdhena*—obtained by the *yoga* process; *brahmaṇā*—along with Lord Brahmā (after reaching Brahmaloka); *yat*—by which way; *asaṁsṛtiḥ*—cessation of the repetition of birth and death.

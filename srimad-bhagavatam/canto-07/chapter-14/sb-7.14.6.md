@@ -1,11 +1,11 @@
 ### SB 7.14.6
 
-> ज्ञआतयः पितरौ पुत्रा भ्रातरः सुहृदोऽपरे
+> ज्ञआतयः पितरौ पुत्रा भ्रातरः सुहृदोऽपरे\
 > यद्वदन्ति यदिच्छन्ति चानुमोदेत निर्ममः ॥६॥
 
-> jñātayaḥ pitarau putrā
-> bhrātaraḥ suhṛdo 'pare
-> yad vadanti yad icchanti
+> jñātayaḥ pitarau putrā\
+> bhrātaraḥ suhṛdo 'pare\
+> yad vadanti yad icchanti\
 > cānumodeta nirmamaḥ
 
 *jñātayaḥ*—relatives, family members; *pitarau*—the father and mother; *putrāḥ*—children; *bhrātaraḥ*—brothers; *suhṛdaḥ*—friends; *apare*—and others; *yat*—whatever; *vadanti*—they suggest (in regard to one's means of livelihood); *yat*—whatever; *icchanti*—they wish; *ca*—and; *anumodeta*—he should agree; *nirmamaḥ*—but without taking them seriously.

@@ -1,9 +1,9 @@
 ### CC Madhya 13.195
 
-> আগে নৃত্য করে গৌর লঞা ভক্তগণ ।
+> আগে নৃত্য করে গৌর লঞা ভক্তগণ ।\
 > রথ রাখি’ জগন্নাথ করেন দরশন ॥১৯৫॥
 
-> āge nṛtya kare gaura lañā bhakta-gaṇa
+> āge nṛtya kare gaura lañā bhakta-gaṇa\
 > ratha rākhi' jagannātha karena daraśana
 
 *āge*—delante; *nṛtya kare*—danza; *gaura*—Śrī Caitanya Mahāprabhu; *lañā*—acompañado por; *bhakta-gaṇa*—los devotos; *ratha rākhi'*—tras detener el carro; *jagannātha*—el Señor Jagannātha; *karena daraśana*—observa.

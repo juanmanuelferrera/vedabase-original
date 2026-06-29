@@ -1,9 +1,9 @@
 ### CC Adi 5.86
 
-> প্রকৃতি-সহিতে তাঁর উভয় সম্বন্ধ ।
+> প্রকৃতি-সহিতে তাঁর উভয় সম্বন্ধ ।\
 > তথাপি প্রকৃতি-সহ নাহি স্পর্শগন্ধ ॥৮৬॥
 
-> prakṛti-sahite tāṅra ubhaya sambandha
+> prakṛti-sahite tāṅra ubhaya sambandha\
 > tathāpi prakṛti-saha nāhi sparśa-gandha
 
 *prakṛti-sahite*—con la energía material; *tāṅra*—Su; *ubhaya sambandha*—ambas relaciones; *tathāpi*—aun así; *prakṛti-saha*—con la naturaleza material; *nāhi*—no hay; *sparśa-gandha*—ni el más leve contacto.

@@ -1,11 +1,11 @@
 ### SB 4.13.44
 
-> यतः पापीयसी कीर्तिरधर्मश्च महान्नृणाम् ।
+> यतः पापीयसी कीर्तिरधर्मश्च महान्नृणाम् ।\
 > यतो विरोधः सर्वेषां यत आधिरनन्तकः ॥४४॥
 
-> yataḥ pāpīyasī kīrtir
-> adharmaś ca mahān nṛṇām
-> yato virodhaḥ sarveṣāṁ
+> yataḥ pāpīyasī kīrtir\
+> adharmaś ca mahān nṛṇām\
+> yato virodhaḥ sarveṣāṁ\
 > yata ādhir anantakaḥ
 
 *yataḥ*—a causa de un mal hijo; *pāpīyasī*—pecador; *kīrtiḥ*—reputación; *adharmaḥ*—irreligión; *ca*—también; *mahān*—gran; *nṛṇām*—de hombres; *yataḥ*—de lo cual; *virodhaḥ*—disputas; *sarveṣām*—de toda la gente; *yataḥ*—de lo cual; *ādhiḥ*—ansiedad; *anantakaḥ*—sin fin.

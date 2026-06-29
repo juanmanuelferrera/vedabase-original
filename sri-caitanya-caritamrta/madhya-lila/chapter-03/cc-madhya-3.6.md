@@ -1,13 +1,13 @@
 ### CC Madhya 3.6
 
-> এতাং স আস্থায় পরাত্মনিষ্ঠা-
-> মধ্যাসিতাং পূর্বতমৈর্মহদ্ভিঃ ।
-> অহং তরিষ্যামি দুরন্তপারং
+> এতাং স আস্থায় পরাত্মনিষ্ঠা-\
+> মধ্যাসিতাং পূর্বতমৈর্মহদ্ভিঃ ।\
+> অহং তরিষ্যামি দুরন্তপারং\
 > তমো মুকুন্দাঙ্ঘ্রিনিষেবয়ৈব ॥৬॥
 
-> etāṁ sa āsthāya parātma-niṣṭhām
-> adhyāsitāṁ pūrvatamair mahadbhiḥ
-> ahaṁ tariṣyāmi duranta-pāraṁ
+> etāṁ sa āsthāya parātma-niṣṭhām\
+> adhyāsitāṁ pūrvatamair mahadbhiḥ\
+> ahaṁ tariṣyāmi duranta-pāraṁ\
 > tamo mukundāṅghri-niṣevayaiva
 
 *etām*—this; *saḥ*—such; *āsthāya*—being completely fixed in; *para-ātma-niṣṭhām*—devotion to the Supreme Person, Kṛṣṇa; *adhyāsitām*—worshiped; *pūrva-tamaiḥ*—by previous; *mahadbhiḥ*—*ācāryas*; *aham*—I; *tariṣyāmi*—shall cross over; *duranta-pāram*—the insurmountable; *tamaḥ*—the ocean of nescience; *mukunda-aṅghri*—of the lotus feet of Mukunda; *niṣevayā*—by worship; *eva*—certainly.

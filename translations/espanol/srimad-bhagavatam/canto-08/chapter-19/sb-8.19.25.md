@@ -1,11 +1,11 @@
 ### SB 8.19.25
 
-> पुंसोऽयं संसृतेर्हेतुरसन्तोषोऽर्थकामयोः
+> पुंसोऽयं संसृतेर्हेतुरसन्तोषोऽर्थकामयोः\
 > यदृच्छयोपपन्नेन सन्तोषो मुक्तये स्मृतः ॥२५॥
 
-> puṁso 'yaṁ saṁsṛter hetur
-> asantoṣo 'rtha-kāmayoḥ
-> yadṛcchayopapannena
+> puṁso 'yaṁ saṁsṛter hetur\
+> asantoṣo 'rtha-kāmayoḥ\
+> yadṛcchayopapannena\
 > santoṣo muktaye smṛtaḥ
 
 *puṁsaḥ*—de la entidad viviente; *ayam*—esta; *saṁsṛteḥ*—de la continuación de la existencia material; *hetuḥ*—la causa; *asantoṣaḥ*—insatisfacción con lo que se le ha destinado; *artha-kāmayoḥ*—para satisfacer los deseos de disfrute y tener cada vez más dinero; *yadṛcchayā*—con el don del destino; *upapannena*—que se ha obtenido; *santoṣaḥ*—satisfacción; *muktaye*—para la liberación; *smṛtaḥ*—se considera que es apto.

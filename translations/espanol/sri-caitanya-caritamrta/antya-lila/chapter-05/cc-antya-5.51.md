@@ -1,9 +1,9 @@
 ### CC Antya 5.51
 
-> রাগানুগ-মার্গে জানি রায়ের ভজন ।
+> রাগানুগ-মার্গে জানি রায়ের ভজন ।\
 > সিদ্ধদেহ তুল্য, তাতে ‘প্রাকৃত’ নহে মন ॥৫১॥
 
-> rāgānuga-mārge jāni rāyera bhajana
+> rāgānuga-mārge jāni rāyera bhajana\
 > siddha-deha-tulya, tāte 'prākṛta' nahe mana
 
 *rāgānuga-mārge*—en la senda del amor espontáneo por Kṛṣṇa; *jāni*—podemos comprender; *rāyera bhajana*—el servicio devocional de Rāmānanda Rāya; *siddha-deha*—cuerpo espiritual; *tulya*—equivalente a; *tāte*—por lo tanto; *prākṛta*—material; *nahe*—no está; *mana*—mente.

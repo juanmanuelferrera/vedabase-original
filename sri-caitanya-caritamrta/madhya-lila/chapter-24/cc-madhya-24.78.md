@@ -2,7 +2,7 @@
 
 > আততত্বাচ্চ মাতৃত্বাদাত্মা হি পরমো হরিঃ ॥৭৮॥
 
-> ātatatvāc ca mātṛtvād
+> ātatatvāc ca mātṛtvād\
 > ātmā hi paramo hariḥ
 
 *ātatatvāt*—due to being all-pervading; *ca*—and; *mātṛtvāt*—due to being the progenitor; *ātmā*—the soul; *hi*—certainly; *paramaḥ*—supreme; *hariḥ*—the Supreme Personality of Godhead.

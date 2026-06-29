@@ -1,11 +1,11 @@
 ### SB 4.11.32
 
-> येनोपसृष्टात्पुरुषाल्लोक उद्विजते भृशम् ।
+> येनोपसृष्टात्पुरुषाल्लोक उद्विजते भृशम् ।\
 > न बुधस्तद्वशं गच्छेदिच्छन्नभयमात्मनः ॥३२॥
 
-> yenopasṛṣṭāt puruṣāl
-> loka udvijate bhṛśam
-> na budhas tad-vaśaṁ gacched
+> yenopasṛṣṭāt puruṣāl\
+> loka udvijate bhṛśam\
+> na budhas tad-vaśaṁ gacched\
 > icchann abhayam ātmanaḥ
 
 *yena*—por la cual; *upasṛṣṭāt*—ser superado; *puruṣāt*—por la persona; *lokaḥ*—todos; *udvijate*—se aterrorizan; *bhṛśam*—mucho; *na*—nunca; *budhaḥ*—una persona cultivada; *tat*—de la ira; *vaśam*—bajo el control; *gacchet*—debe ir; *icchan*—desear; *abhayam*—ausencia de temor, liberación; *ātmanaḥ*—del ser.

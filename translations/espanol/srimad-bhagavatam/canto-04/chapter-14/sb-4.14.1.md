@@ -1,13 +1,13 @@
 ### SB 4.14.1
 
-> मैत्रेय उवाच
-> भृग्वादयस्ते मुनयो लोकानां क्षेमदर्शिनः ।
+> मैत्रेय उवाच\
+> भृग्वादयस्ते मुनयो लोकानां क्षेमदर्शिनः ।\
 > गोप्तर्यसति वै नॄणां पश्यन्तः पशुसाम्यताम् ॥१॥
 
-> maitreya uvāca
-> bhṛgv-ādayas te munayo
-> lokānāṁ kṣema-darśinaḥ
-> goptary asati vai nṝṇāṁ
+> maitreya uvāca\
+> bhṛgv-ādayas te munayo\
+> lokānāṁ kṣema-darśinaḥ\
+> goptary asati vai nṝṇāṁ\
 > paśyantaḥ paśu-sāmyatām
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya continuó; *bhṛgu-ādayaḥ*—encabezados por Bhṛgu; *te*—todos ellos; *munayaḥ*—los grandes sabios; *lokānām*—de la gente; *kṣema-darśinaḥ*—que siempre aspiran al bienestar; *goptari*—el rey; *asati*—en ausencia de; *vai*—ciertamente; *nṝṇām*—de todos los ciudadanos; *paśyantaḥ*—habiendo entendido; *paśu-sāmyatām*—existencia en el nivel de los animales.

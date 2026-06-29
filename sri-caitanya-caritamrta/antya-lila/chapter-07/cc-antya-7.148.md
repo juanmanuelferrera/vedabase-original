@@ -1,9 +1,9 @@
 ### CC Antya 7.148
 
-> বল্লভ-ভট্টের হয় বাৎসল্য-উপাসন  ।
+> বল্লভ-ভট্টের হয় বাৎসল্য-উপাসন  ।\
 > বালগোপাল-মন্ত্রে তেঁহো করেন সেবন ॥১৪৮॥
 
-> vallabha-bhaṭṭera haya vātsalya-upāsana
+> vallabha-bhaṭṭera haya vātsalya-upāsana\
 > bāla-gopāla-mantre teṅho karena sevana
 
 *vallabha-bhaṭṭera*—of Vallabha Bhaṭṭa; *haya*—there is; *vātsalya-upāsana*—worship as a parent; *bāla-gopāla-mantre*—with the *mantra* of Bāla-gopāla, child Kṛṣṇa; *teṅho*—he; *karena*—practices; *sevana*—worship.

@@ -1,9 +1,9 @@
 ### CC Madhya 25.265
 
-> কৃষ্ণতত্ত্ব, ভক্তিতত্ত্ব, প্রেমতত্ত্ব সার ।
+> কৃষ্ণতত্ত্ব, ভক্তিতত্ত্ব, প্রেমতত্ত্ব সার ।\
 > ভাবতত্ত্ব, রসতত্ত্ব, লীলাতত্ত্ব আর ॥২৬৫॥
 
-> kṛṣṇa-tattva, bhakti-tattva, prema-tattva sāra
+> kṛṣṇa-tattva, bhakti-tattva, prema-tattva sāra\
 > bhāva-tattva, rasa-tattva, līlā-tattva āra
 
 *kṛṣṇa-tattva*—the truth of Kṛṣṇa; *bhakti-tattva*—the truth of devotional service; *prema-tattva*—the truth of ecstatic love of Godhead; *sāra*—the essence; *bhāva-tattva*—the emotional truth; *rasa-tattva*—the truth of transcendental mellow; *līlā-tattva*—the truth of pastimes of the Lord; *āra*—also.

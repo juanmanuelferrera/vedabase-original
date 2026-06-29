@@ -1,11 +1,11 @@
 ### SB 6.18.19
 
-> मरुतश्च दितेः पुत्राश्चत्वारिंशन्नवाधिकाः
+> मरुतश्च दितेः पुत्राश्चत्वारिंशन्नवाधिकाः\
 > त आसन्नप्रजाः सर्वे नीता इन्द्रेण सात्मताम ॥१९॥
 
-> marutaś ca diteḥ putrāś
-> catvāriṁśan navādhikāḥ
-> ta āsann aprajāḥ sarve
+> marutaś ca diteḥ putrāś\
+> catvāriṁśan navādhikāḥ\
+> ta āsann aprajāḥ sarve\
 > nītā indreṇa sātmatām
 
 *marutaḥ*—the Maruts; *ca*—and; *diteḥ*—of Diti; *putrāḥ*—sons; *catvāriṁśat*—forty; *nava-adhikāḥ*—plus nine; *te*—they; *āsan*—were; *aprajāḥ*—without sons; *sarve*—all; *nītāḥ*—were brought; *indreṇa*—by Indra; *sa-ātmatām*—to the position of demigods.

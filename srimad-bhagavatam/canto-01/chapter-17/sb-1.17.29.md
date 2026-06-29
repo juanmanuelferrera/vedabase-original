@@ -1,11 +1,11 @@
 ### SB 1.17.29
 
-> तं जिघांसुमभिप्रेत्य विहाय नृपलाञ्छनम् ।
+> तं जिघांसुमभिप्रेत्य विहाय नृपलाञ्छनम् ।\
 > तत्पादमूलं शिरसा समगाद्भयविह्वलः ॥२९॥
 
-> taṁ jighāṁsum abhipretya
-> vihāya nṛpa-lāñchanam
-> tat-pāda-mūlaṁ śirasā
+> taṁ jighāṁsum abhipretya\
+> vihāya nṛpa-lāñchanam\
+> tat-pāda-mūlaṁ śirasā\
 > samagād bhaya-vihvalaḥ
 
 *tam*—him; *jighāṁsum*—willing to kill; *abhipretya*—knowing it well; *vihāya*—leaving aside; *nṛpa-lāñchanam*—the dress of a king; *tat-pāda-mūlam*—at his feet; *śirasā*—by the head; *samagāt*—fully surrendered; *bhaya-vihvalaḥ*—under pressure of fearfulness.

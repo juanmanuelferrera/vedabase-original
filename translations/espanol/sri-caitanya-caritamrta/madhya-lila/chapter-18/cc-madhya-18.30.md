@@ -1,9 +1,9 @@
 ### CC Madhya 18.30
 
-> বিপ্রগৃহে গোপালের নিভৃতে সেবন ।
+> বিপ্রগৃহে গোপালের নিভৃতে সেবন ।\
 > গ্রাম উজাড় হৈল, পলাইল সর্বজন ॥৩০॥
 
-> vipra-gṛhe gopālera nibhṛte sevana
+> vipra-gṛhe gopālera nibhṛte sevana\
 > grāma ujāḍa haila, palāila sarva-jana
 
 *vipra-gṛhe*—en la casa de un *brāhmaṇa*; *gopālera*—del Señor Gopāla; *nibhṛte*—muy secretamente; *sevana*—adoración; *grāma*—la aldea; *ujāḍa haila*—quedó desierta; *palāila*—huyeron; *sarva-jana*—todas las personas.

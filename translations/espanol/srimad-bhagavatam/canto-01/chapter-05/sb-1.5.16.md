@@ -1,11 +1,11 @@
 ### SB 1.5.16
 
-> विचक्षणोऽस्यार्हति वेदितुं विभोरनन्तपारस्य निवृत्तितः सुखम् ।
+> विचक्षणोऽस्यार्हति वेदितुं विभोरनन्तपारस्य निवृत्तितः सुखम् ।\
 > प्रवर्तमानस्य गुणैरनात्मनस्ततो भवान्दर्शय चेष्टितं विभोः ॥१६॥
 
-> vicakṣaṇo 'syārhati vedituṁ vibhor
-> ananta-pārasya nivṛttitaḥ sukham
-> pravartamānasya guṇair anātmanas
+> vicakṣaṇo 'syārhati vedituṁ vibhor\
+> ananta-pārasya nivṛttitaḥ sukham\
+> pravartamānasya guṇair anātmanas\
 > tato bhavān darśaya ceṣṭitaṁ vibhoḥ
 
 *vicakṣaṇaḥ*—muy experto; *asya*—de él; *arhati*—merece; *veditum*—entender; *vibhoḥ*—del Señor; *ananta-pārasya*—del ilimitado; *nivṛttitaḥ*—retirado de; *sukham*—felicidad material; *pravartamānasya*—aquellos que están apegados a; *guṇaiḥ*—mediante las cualidades materiales; *anātmanaḥ*—desprovisto de conocimiento acerca del valor espiritual; *tataḥ*—por lo tanto; *bhavān*—tu merced; *darśaya*—muestra los caminos; *ceṣṭitam*—actividades; *vibhoḥ*—del Señor.

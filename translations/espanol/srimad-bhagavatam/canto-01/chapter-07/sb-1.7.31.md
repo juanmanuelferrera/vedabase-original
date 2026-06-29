@@ -1,11 +1,11 @@
 ### SB 1.7.31
 
-> दृष्ट्वास्त्रतेजस्तु तयोस्त्रील्लोकान्प्रदहन्महत् ।
+> दृष्ट्वास्त्रतेजस्तु तयोस्त्रील्लोकान्प्रदहन्महत् ।\
 > दह्यमानाः प्रजाः सर्वाः सांवर्तकममंसत ॥३१॥
 
-> dṛṣṭvāstra-tejas tu tayos
-> trīl lokān pradahan mahat
-> dahyamānāḥ prajāḥ sarvāḥ
+> dṛṣṭvāstra-tejas tu tayos\
+> trīl lokān pradahan mahat\
+> dahyamānāḥ prajāḥ sarvāḥ\
 > sāṁvartakam amaṁsata
 
 *dṛṣṭvā*—viendo así; *astra*—arma; *tejaḥ*—calor; *tu*—pero; *tayoḥ*—de ambos; *trīn*—tres; *lokān*—planetas; *pradahat*—ardiente; *mahat*—severamente; *dahyamānāḥ*—ardiendo; *prajāḥ*—población; *sarvāḥ*—por todas partes; *sāṁvartakam*—nombre del fuego devastador que ocurre durante la aniquilación del universo; *amaṁsata*—comenzó a pensar.

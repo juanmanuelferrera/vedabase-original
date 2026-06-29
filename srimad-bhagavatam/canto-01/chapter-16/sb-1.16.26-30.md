@@ -1,39 +1,39 @@
 ### SB 1.16.26-30
 
-> सत्यं शौचं दया क्षान्तिस्त्यागः सन्तोष आर्जवम् ।
-> शमो दमस्तपः साम्यं तितिक्षोपरतिः श्रुतम् ॥२६॥
-> ज्ञानं विरक्तिरैश्वर्यं शौर्यं तेजो बलं स्मृतिः ।
-> स्वातन्त्र्यं कौशलं कान्तिर्धैर्यं मार्दवमेव च ॥२७॥
-> प्रागल्भ्यं प्रश्रयः शीलं सह ओजो बलं भगः ।
-> गाम्भीर्यं स्थैर्यमास्तिक्यं कीर्तिर्मानोऽनहङ्कृतिः ॥२८॥
-> एते चान्ये च भगवन्नित्या यत्र महागुणाः ।
-> प्रार्थ्या महत्त्वमिच्छद्भिर्न वियन्ति स्म कर्हिचित् ॥२९॥
-> तेनाहं गुणपात्रेण श्रीनिवासेन साम्प्रतम् ।
+> सत्यं शौचं दया क्षान्तिस्त्यागः सन्तोष आर्जवम् ।\
+> शमो दमस्तपः साम्यं तितिक्षोपरतिः श्रुतम् ॥२६॥\
+> ज्ञानं विरक्तिरैश्वर्यं शौर्यं तेजो बलं स्मृतिः ।\
+> स्वातन्त्र्यं कौशलं कान्तिर्धैर्यं मार्दवमेव च ॥२७॥\
+> प्रागल्भ्यं प्रश्रयः शीलं सह ओजो बलं भगः ।\
+> गाम्भीर्यं स्थैर्यमास्तिक्यं कीर्तिर्मानोऽनहङ्कृतिः ॥२८॥\
+> एते चान्ये च भगवन्नित्या यत्र महागुणाः ।\
+> प्रार्थ्या महत्त्वमिच्छद्भिर्न वियन्ति स्म कर्हिचित् ॥२९॥\
+> तेनाहं गुणपात्रेण श्रीनिवासेन साम्प्रतम् ।\
 > शोचामि रहितं लोकं पाप्मना कलिनेक्षितम् ॥३०॥
 
-> satyaṁ śaucaṁ dayā kṣāntis
-> tyāgaḥ santoṣa ārjavam
-> śamo damas tapaḥ sāmyaṁ
+> satyaṁ śaucaṁ dayā kṣāntis\
+> tyāgaḥ santoṣa ārjavam\
+> śamo damas tapaḥ sāmyaṁ\
 > titikṣoparatiḥ śrutam
 
-> jñānaṁ viraktir aiśvaryaṁ
-> śauryaṁ tejo balaṁ smṛtiḥ
-> svātantryaṁ kauśalaṁ kāntir
+> jñānaṁ viraktir aiśvaryaṁ\
+> śauryaṁ tejo balaṁ smṛtiḥ\
+> svātantryaṁ kauśalaṁ kāntir\
 > dhairyaṁ mārdavam eva ca
 
-> prāgalbhyaṁ praśrayaḥ śīlaṁ
-> saha ojo balaṁ bhagaḥ
-> gāmbhīryaṁ sthairyam āstikyaṁ
+> prāgalbhyaṁ praśrayaḥ śīlaṁ\
+> saha ojo balaṁ bhagaḥ\
+> gāmbhīryaṁ sthairyam āstikyaṁ\
 > kīrtir māno 'nahaṅkṛtiḥ
 
-> ete cānye ca bhagavan
-> nityā yatra mahā-guṇāḥ
-> prārthyā mahattvam icchadbhir
+> ete cānye ca bhagavan\
+> nityā yatra mahā-guṇāḥ\
+> prārthyā mahattvam icchadbhir\
 > na viyanti sma karhicit
 
-> tenāhaṁ guṇa-pātreṇa
-> śrī-nivāsena sāmpratam
-> śocāmi rahitaṁ lokaṁ
+> tenāhaṁ guṇa-pātreṇa\
+> śrī-nivāsena sāmpratam\
+> śocāmi rahitaṁ lokaṁ\
 > pāpmanā kalinekṣitam
 
 *satyam*—truthfulness; *śaucam*—cleanliness; *dayā*—intolerance of others' unhappiness; *kṣāntiḥ*—self-control even if there is cause of anger; *tyāgaḥ*—magnanimity; *santoṣaḥ*—self-satisfaction; *ārjavam*—straightforwardness; *śamaḥ*—fixing of the mind; *damaḥ*—control of the sense organs; *tapaḥ*—trueness to one's responsibility; *sāmyam*—indiscrimination between friend and foe; *titikṣā*—tolerance of the offenses of others; *uparatiḥ*—indifference to loss and gain; *śrutam*—following scriptural injunctions; *jñānam*—knowledge (self-realization); *viraktiḥ*—detachment from sense enjoyment; *aiśvaryam*—leadership; *śauryam*—chivalry; *tejaḥ*—influence; *balam*—to render possible that which is impossible; *smṛtiḥ*—to find one's proper duty; *svātantryam*—not to depend on others; *kauśalam*—dexterity in all activities; *kāntiḥ*—beauty; *dhairyam*—freedom from disturbance; *mārdavam*—kindheartedness; *eva*—thus; *ca*—also; *prāgalbhyam*—ingenuity; *praśrayaḥ*—gentility; *śīlam*—mannerliness; *sahaḥ*—determination; *ojaḥ*—perfect knowledge; *balam*—proper execution; *bhagaḥ*—object of enjoyment; *gāmbhīryam*—joyfulness; *sthairyam*—immovability; *āstikyam*—faithfulness; *kīrtiḥ*—fame; *mānaḥ*—worthy of being worshiped; *anahaṅkṛtiḥ*—pridelessness; *ete*—all these; *ca anye*—also many others; *ca*—and; *bhagavan*—the Personality of Godhead; *nityāḥ*—everlasting; *yatra*—where; *mahā-guṇāḥ*—great qualities; *prārthyāḥ*—worthy to possess; *mahattvam*—greatness; *icchadbhiḥ*—those who desire so; *na*—never; *viyanti*—deteriorates; *sma*—ever; *karhicit*—at any time; *tena*—by Him; *aham*—myself; *guṇa-pātreṇa*—the reservoir of all qualities; *śrī*—the goddess of fortune; *nivāsena*—by the resting place; *sāmpratam*—very recently; *śocāmi*—I am thinking of; *rahitam*—bereft of; *lokam*—planets; *pāpmanā*—by the store of all sins; *kalinā*—by Kali; *īkṣitam*—is seen.

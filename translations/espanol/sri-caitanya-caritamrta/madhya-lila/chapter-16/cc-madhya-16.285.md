@@ -1,9 +1,9 @@
 ### CC Madhya 16.285
 
-> সবার ইচ্ছায় প্রভু চারি মাস রহিলা ।
+> সবার ইচ্ছায় প্রভু চারি মাস রহিলা ।\
 > শুনিয়া প্রতাপরুদ্র আনন্দিত হৈলা ॥২৮৫॥
 
-> sabāra icchāya prabhu cāri māsa rahilā
+> sabāra icchāya prabhu cāri māsa rahilā\
 > śuniyā pratāparudra ānandita hailā
 
 *sabāra icchāya*—por el deseo de todos; *prabhu*—Śrī Caitanya Mahāprabhu; *cāri māsa*—durante cuatro meses; *rahilā*—permaneció; *śuniyā*—al oírlo; *pratāparudra*—el rey Pratāparudra; *ānandita hailā*—se puso muy, muy contento.

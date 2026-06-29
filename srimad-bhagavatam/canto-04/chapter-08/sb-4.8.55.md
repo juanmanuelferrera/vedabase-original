@@ -1,11 +1,11 @@
 ### SB 4.8.55
 
-> सलिलैः शुचिभिर्माल्यैर्वन्यैर्मूलफलादिभिः ।
+> सलिलैः शुचिभिर्माल्यैर्वन्यैर्मूलफलादिभिः ।\
 > शस्ताङ्कुरांशुकैश्चार्चेत्तुलस्या प्रियया प्रभुम् ॥५५॥
 
-> salilaiḥ śucibhir mālyair
-> vanyair mūla-phalādibhiḥ
-> śastāṅkurāṁśukaiś cārcet
+> salilaiḥ śucibhir mālyair\
+> vanyair mūla-phalādibhiḥ\
+> śastāṅkurāṁśukaiś cārcet\
 > tulasyā priyayā prabhum
 
 *salilaiḥ*—by use of water; *śucibhiḥ*—being purified; *mālyaiḥ*—by garlands; *vanyaiḥ*—of forest flowers; *mūla*—roots; *phala-ādibhiḥ*—by different kinds of vegetables and fruits; *śasta*—the newly grown grass; *aṅkura*—buds; *aṁśukaiḥ*—by the skin of trees, such as the *bhūrja*; *ca*—and; *arcet*—should worship; *tulasyā*—by the *tulasī* leaves; *priyayā*—which are very dear to the Lord; *prabhum*—the Lord.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.49
 
-> তেঁহো কহে, — এক ‘দরবেশ’ আছে দ্বারে ।
+> তেঁহো কহে, — এক ‘দরবেশ’ আছে দ্বারে ।\
 > ‘তাঁরে আন’ প্রভুর বাক্যে কহিল তাঁহারে ॥৪৯॥
 
-> teṅho kahe,--eka 'daraveśa' āche dvāre
+> teṅho kahe,--eka 'daraveśa' āche dvāre\
 > 'tāṅre āna' prabhura vākye kahila tāṅhāre
 
 *teṅho kahe*—él respondió; *eka daraveśa*—un mendicante musulmán; *āche*—hay; *dvāre*—a la puerta; *tāṅre āna*—tráelo; *prabhura*—de Śrī Caitanya Mahāprabhu; *vākye*—la orden; *kahila*—dijo; *tāṅhāre*—a él.

@@ -1,11 +1,11 @@
 ### SB 3.13.8
 
-> तद्विधेहि नमस्तुभ्यं कर्मस्वीड्यात्मशक्तिषु ।
+> तद्विधेहि नमस्तुभ्यं कर्मस्वीड्यात्मशक्तिषु ।\
 > यत्कृत्वेह यशो विष्वगमुत्र च भवेद्गतिः ॥८॥
 
-> tad vidhehi namas tubhyaṁ
-> karmasv īḍyātma-śaktiṣu
-> yat kṛtveha yaśo viṣvag
+> tad vidhehi namas tubhyaṁ\
+> karmasv īḍyātma-śaktiṣu\
+> yat kṛtveha yaśo viṣvag\
 > amutra ca bhaved gatiḥ
 
 *tat*—esa; *vidhehi*—da directriz; *namaḥ*—mis reverencias; *tubhyam*—a ti; *karmasu*—en deberes; *īḍya*—¡oh, tú, el adorable!; *ātma-śaktiṣu*—dentro de nuestra capacidad de trabajo; *yat*—el cual; *kṛtvā*—haciendo; *iha*—en este mundo; *yaśaḥ*—fama; *viṣvak*—en todas partes; *amutra*—en el mundo siguiente; *ca*—y; *bhavet*—debe haber; *gatiḥ*—progreso.

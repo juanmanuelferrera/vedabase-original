@@ -1,13 +1,13 @@
 ### SB 1.7.27
 
-> श्रीभगवानुवाच
-> वेत्थेदं द्रोणपुत्रस्य ब्राह्ममस्त्रं प्रदर्शितम् ।
+> श्रीभगवानुवाच\
+> वेत्थेदं द्रोणपुत्रस्य ब्राह्ममस्त्रं प्रदर्शितम् ।\
 > नैवासौ वेद संहारं प्राणबाध उपस्थिते ॥२७॥
 
-> śrī-bhagavān uvāca
-> vetthedaṁ droṇa-putrasya
-> brāhmam astraṁ pradarśitam
-> naivāsau veda saṁhāraṁ
+> śrī-bhagavān uvāca\
+> vetthedaṁ droṇa-putrasya\
+> brāhmam astraṁ pradarśitam\
+> naivāsau veda saṁhāraṁ\
 > prāṇa-bādha upasthite
 
 *śrī-bhagavān*—la Suprema Personalidad de Dios; *uvāca*—dijo; *vettha*—he de hacerte saber; *idam*—esto; *droṇa-putrasya*—del hijo de Droṇa; *brāhmam astram*—himnos del arma *brāhma* (nuclear); *pradarśitam*—exhibió; *na*—no; *eva*—aún; *asau*—él; *veda*—lo sabe; *saṁhāram*—retracción; *prāṇa-bādhe*—extinción de la vida; *upasthite*—siendo inminente.

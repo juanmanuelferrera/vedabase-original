@@ -1,9 +1,9 @@
 ### CC Madhya 6.236
 
-> এত কহি’ মহাপ্রভু আইলা নিজ-স্থানে ।
+> এত কহি’ মহাপ্রভু আইলা নিজ-স্থানে ।\
 > সেই হৈতে ভট্টাচার্যের খণ্ডিল অভিমানে ॥২৩৬॥
 
-> eta kahi' mahāprabhu āilā nija-sthāne
+> eta kahi' mahāprabhu āilā nija-sthāne\
 > sei haite bhaṭṭācāryera khaṇḍila abhimāne
 
 *eta kahi'*—hablando de esta manera; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *āilā*—regresó; *nija-sthāne*—a Su propia residencia; *sei haite*—desde entonces; *bhaṭṭācāryera*—de Sārvabhauma Bhaṭṭācārya; *khaṇḍila*—fue desmantelado; *abhimāne*—el falso orgullo.

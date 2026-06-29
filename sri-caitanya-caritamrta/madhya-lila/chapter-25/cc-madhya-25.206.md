@@ -1,9 +1,9 @@
 ### CC Madhya 25.206
 
-> দুঃখী বৈষ্ণব দেখি’ তাঁরে করান ভোজন ।
+> দুঃখী বৈষ্ণব দেখি’ তাঁরে করান ভোজন ।\
 > গৌড়ীয়া আইলে দধি, ভাত, তৈল-মর্দন ॥২০৬॥
 
-> duḥkhī vaiṣṇava dekhi' tāṅre karāna bhojana
+> duḥkhī vaiṣṇava dekhi' tāṅre karāna bhojana\
 > gauḍīyā āile dadhi, bhāta, taila-mardana
 
 *duḥkhī vaiṣṇava*—a poverty-stricken Vaiṣṇava; *dekhi'*—seeing; *tāṅre*—to him; *karāna bhojana*—gives food for eating; *gauḍīyā āile*—when a Bengali Vaiṣṇava came to Mathurā; *dadhi*—yogurt; *bhāta*—cooked rice; *taila-mardana*—massaging mustard oil on the body.

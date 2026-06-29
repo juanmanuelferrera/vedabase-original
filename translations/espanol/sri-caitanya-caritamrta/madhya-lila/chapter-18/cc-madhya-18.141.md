@@ -1,9 +1,9 @@
 ### CC Madhya 18.141
 
-> লোকের সংঘট্ট, আর নিমন্ত্রণের জঞ্জাল ।
+> লোকের সংঘট্ট, আর নিমন্ত্রণের জঞ্জাল ।\
 > নিরন্তর আবেশ প্রভুর না দেখিয়ে ভাল ॥১৪১॥
 
-> lokera saṅghaṭṭa, āra nimantraṇera jañjāla
+> lokera saṅghaṭṭa, āra nimantraṇera jañjāla\
 > nirantara āveśa prabhura nā dekhiye bhāla
 
 *lokera saṅghaṭṭa*—muchedumbres de gente; *āra*—y; *nimantraṇera jañjāla*—la molestia de las invitaciones; *nirantara*—siempre; *āveśa*—amor extático; *prabhura*—de Śrī Caitanya Mahāprabhu; *nā dekhiye bhāla*—no veo nada bueno en esto.

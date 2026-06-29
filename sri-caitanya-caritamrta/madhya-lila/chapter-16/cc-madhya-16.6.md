@@ -1,9 +1,9 @@
 ### CC Madhya 16.6
 
-> তাঁহা বিনা এই রাজ্য মোরে নাহি ভায় ।
+> তাঁহা বিনা এই রাজ্য মোরে নাহি ভায় ।\
 > গোসাঞি রাখিতে করহ নানা উপায় ॥৬॥
 
-> tāṅhā vinā ei rājya more nāhi bhāya
+> tāṅhā vinā ei rājya more nāhi bhāya\
 > gosāñi rākhite karaha nānā upāya
 
 *tāṅhā vinā*—without Him; *ei rājya*—this kingdom; *more*—to me; *nāhi bhāya*—is not very pleasing; *gosāñi*—Śrī Caitanya Mahāprabhu; *rākhite*—to keep; *karaha*—do; *nānā upāya*—various sorts of devices.

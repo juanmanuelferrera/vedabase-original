@@ -1,11 +1,11 @@
 ### SB 1.8.20
 
-> तथा परमहंसानां मुनीनाममलात्मनाम् ।
+> तथा परमहंसानां मुनीनाममलात्मनाम् ।\
 > भक्तियोगविधानार्थं कथं पश्येम हि स्त्रियः ॥२०॥
 
-> tathā paramahaṁsānāṁ
-> munīnām amalātmanām
-> bhakti-yoga-vidhānārthaṁ
+> tathā paramahaṁsānāṁ\
+> munīnām amalātmanām\
+> bhakti-yoga-vidhānārthaṁ\
 > kathaṁ paśyema hi striyaḥ
 
 *tathā*—besides that; *paramahaṁsānām*—of the advanced transcendentalists; *munīnām*—of the great philosophers or mental speculators; *amala-ātmanām*—those whose minds are competent to discern between spirit and matter; *bhakti-yoga*—the science of devotional service; *vidhāna-artham*—for executing; *katham*—how; *paśyema*—can observe; *hi*—certainly; *striyaḥ*—women.

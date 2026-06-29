@@ -1,11 +1,11 @@
 ### SB 3.15.7
 
-> तेषां सुपक्वयोगानां जितश्वासेन्द्रियात्मनाम् ।
+> तेषां सुपक्वयोगानां जितश्वासेन्द्रियात्मनाम् ।\
 > लब्धयुष्मत्प्रसादानां न कुतश्चित्पराभवः ॥७॥
 
-> teṣāṁ supakva-yogānāṁ
-> jita-śvāsendriyātmanām
-> labdha-yuṣmat-prasādānāṁ
+> teṣāṁ supakva-yogānāṁ\
+> jita-śvāsendriyātmanām\
+> labdha-yuṣmat-prasādānāṁ\
 > na kutaścit parābhavaḥ
 
 *teṣām*—of them; *su-pakva-yogānām*—who are mature mystics; *jita*—controlled; *śvāsa*—breath; *indriya*—the senses; *ātmanām*—the mind; *labdha*—attained; *yuṣmat*—your; *prasādānām*—mercy; *na*—not; *kutaścit*—anywhere; *parābhavaḥ*—defeat.

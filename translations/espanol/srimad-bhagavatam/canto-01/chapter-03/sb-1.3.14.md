@@ -1,11 +1,11 @@
 ### SB 1.3.14
 
-> ऋषिभिर्याचितो भेजे नवमं पार्थिवं वपुः ।
+> ऋषिभिर्याचितो भेजे नवमं पार्थिवं वपुः ।\
 > दुग्धेमामोषधीर्विप्रास्तेनायं स उशत्तमः ॥१४॥
 
-> ṛṣibhir yācito bheje
-> navamaṁ pārthivaṁ vapuḥ
-> dugdhemām oṣadhīr viprās
+> ṛṣibhir yācito bheje\
+> navamaṁ pārthivaṁ vapuḥ\
+> dugdhemām oṣadhīr viprās\
 > tenāyaṁ sa uśattamaḥ
 
 *ṛṣibhiḥ*—por los sabios; *yācitaḥ*—quien fue pedido mediante oraciones; *bheje*—aceptó; *navamam*—la novena; *pārthivam*—el gobernador de la Tierra; *vapuḥ*—cuerpo; *dugdha*—ordeñando; *imām*—todos estos; *oṣadhīḥ*—productos de la tierra; *viprāḥ*—¡oh, *brāhmaṇas*!; *tena*—por; *ayam*—esto; *saḥ*—él; *uśattamaḥ*—hermosamente atractiva.

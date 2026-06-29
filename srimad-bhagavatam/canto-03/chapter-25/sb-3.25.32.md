@@ -1,16 +1,16 @@
 ### SB 3.25.32
 
-> श्रीभगवानुवाच
-> देवानां गुणलिङ्गानामानुश्रविककर्मणाम् ।
-> सत्त्व एवैकमनसो वृत्तिः स्वाभाविकी तु या ।
+> श्रीभगवानुवाच\
+> देवानां गुणलिङ्गानामानुश्रविककर्मणाम् ।\
+> सत्त्व एवैकमनसो वृत्तिः स्वाभाविकी तु या ।\
 > अनिमित्ता भागवती भक्तिः सिद्धेर्गरीयसी ॥३२॥
 
-> śrī-bhagavān uvāca
-> devānāṁ guṇa-liṅgānām
-> ānuśravika-karmaṇām
-> sattva evaika-manaso
-> vṛttiḥ svābhāvikī tu yā
-> animittā bhāgavatī
+> śrī-bhagavān uvāca\
+> devānāṁ guṇa-liṅgānām\
+> ānuśravika-karmaṇām\
+> sattva evaika-manaso\
+> vṛttiḥ svābhāvikī tu yā\
+> animittā bhāgavatī\
 > bhaktiḥ siddher garīyasī
 
 *śrī-bhagavān uvāca*—the Supreme Personality of Godhead said; *devānām*—of the senses or of the presiding deities of the senses; *guṇa-liṅgānām*—which detect sense objects; *ānuśravika*—according to scripture; *karmaṇām*—which work; *sattve*—unto the mind or unto the Lord; *eva*—only; *eka-manasaḥ*—of a man of undivided mind; *vṛttiḥ*—inclination; *svābhāvikī*—natural; *tu*—in fact; *yā*—which; *animittā*—without motive; *bhāgavatī*—to the Personality of Godhead; *bhaktiḥ*—devotional service; *siddheḥ*—than salvation; *garīyasī*—better.

@@ -1,11 +1,11 @@
 ### SB 7.13.27
 
-> इत्येतदात्मनः स्वार्थं सन्तं विस्मृत्य वै पुमान
+> इत्येतदात्मनः स्वार्थं सन्तं विस्मृत्य वै पुमान\
 > विचित्रामसति द्वैते घोरामाप्नोति संसृतिम ॥२७॥
 
-> sukham asyātmano rūpaṁ
-> sarvehoparatis tanuḥ
-> manaḥ-saṁsparśajān dṛṣṭvā
+> sukham asyātmano rūpaṁ\
+> sarvehoparatis tanuḥ\
+> manaḥ-saṁsparśajān dṛṣṭvā\
 > bhogān svapsyāmi saṁviśan
 
 *sukham*—la felicidad; *asya*—de ella; *ātmanaḥ*—de la entidad viviente; *rūpam*—la posición natural; *sarva*—todas; *īha*—las actividades materiales; *uparatiḥ*—abandonando por entero; *tanuḥ*—el medio de su manifestación; *manaḥ-saṁsparśa-jān*—producto de los impulsos de complacencia de los sentidos; *dṛṣṭvā*—después de ver; *bhogān*—disfrute de los sentidos; *svapsyāmi*—permanezco en silencio, profundamente absorto en pensar en esas actividades materiales; *saṁviśan*—entrar en esas actividades.

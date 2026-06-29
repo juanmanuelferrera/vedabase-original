@@ -1,9 +1,9 @@
 ### CC Adi 9.27
 
-> পাকিল যে প্রেমফল অমৃত-মধুর ।
+> পাকিল যে প্রেমফল অমৃত-মধুর ।\
 > বিলায় চৈতন্যমালী, নাহি লয় মূল ॥২৭॥
 
-> pākila ye prema-phala amṛta-madhura
+> pākila ye prema-phala amṛta-madhura\
 > vilāya caitanya-mālī, nāhi laya mūla
 
 *pākila*—ripened; *ye*—that; *prema-phala*—the fruit of love of Godhead; *amṛta*—nectarean; *madhura*—sweet; *vilāya*—distributes; *caitanya-mālī*—the gardener, Lord Caitanya; *nāhi*—does not; *laya*—take; *mūla*—price.

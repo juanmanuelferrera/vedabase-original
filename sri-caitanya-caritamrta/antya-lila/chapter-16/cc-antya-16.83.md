@@ -1,9 +1,9 @@
 ### CC Antya 16.83
 
-> ‘তুমি মোর সখা, দেখাহ, — কাহাঁ প্রাণনাথ ?’
+> ‘তুমি মোর সখা, দেখাহ, — কাহাঁ প্রাণনাথ ?’\
 > এত বলি’ জগমোহন গেলা ধরি’ তার হাত ॥৮৩॥
 
-> 'tumi mora sakhā, dekhāha—kāhāṅ prāṇa-nātha?'
+> 'tumi mora sakhā, dekhāha—kāhāṅ prāṇa-nātha?'\
 > eta bali' jagamohana gelā dhari' tāra hāta
 
 *tumi*—you; *mora sakhā*—My friend; *dekhāha*—please show; *kāhāṅ*—where; *prāṇa-nātha*—the Lord of My heart; *eta bali'*—saying this; *jagamohana*—to Jagamohana; *gelā*—went; *dhari'*—catching; *tāra*—his; *hāta*—hand.

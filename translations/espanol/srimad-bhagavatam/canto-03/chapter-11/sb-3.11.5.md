@@ -1,11 +1,11 @@
 ### SB 3.11.5
 
-> अणुर्द्वौ परमाणू स्यात्त्रसरेणुस्त्रयः स्मृतः ।
+> अणुर्द्वौ परमाणू स्यात्त्रसरेणुस्त्रयः स्मृतः ।\
 > जालार्करश्म्यवगतः खमेवानुपतन्नगात् ॥५॥
 
-> aṇur dvau paramāṇū syāt
-> trasareṇus trayaḥ smṛtaḥ
-> jālārka-raśmy-avagataḥ
+> aṇur dvau paramāṇū syāt\
+> trasareṇus trayaḥ smṛtaḥ\
+> jālārka-raśmy-avagataḥ\
 > kham evānupatann agāt
 
 *aṇuḥ*—átomo doble; *dvau*—dos; *parama-aṇu*—átomos; *syāt*—se vuelven; *trasareṇuḥ*—hexátomo; *trayaḥ*—tres; *smṛtaḥ*—considerado; *jāla-arka*—de luz solar a través de los agujeros de la tela metálica de una ventana; *raśmi*—mediante los rayos; *avagataḥ*—puede conocerse; *kham eva*—hacia el cielo; *anupatan agāt*—ascendiendo.

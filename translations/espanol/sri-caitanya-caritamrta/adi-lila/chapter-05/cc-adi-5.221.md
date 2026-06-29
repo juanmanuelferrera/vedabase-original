@@ -1,9 +1,9 @@
 ### CC Adi 5.221
 
-> যাঁর ধ্যান নিজ-লোকে করে পদ্মাসন ।
+> যাঁর ধ্যান নিজ-লোকে করে পদ্মাসন ।\
 > অষ্টাদশাক্ষর-মন্ত্রে করে উপাসন ॥২২১॥
 
-> yāṅra dhyāna nija-loke kare padmāsana
+> yāṅra dhyāna nija-loke kare padmāsana\
 > aṣṭādaśākṣara-mantre kare upāsana
 
 *yāṅra*—de quien; *dhyāna*—la meditación; *nija-loke*—en su propia morada; *kare*—realiza; *padma-āsana*—el Señor Brahmā; *aṣṭādaśa-akṣara-mantre*—mediante el himno compuesto por dieciocho sílabas; *kare*—realiza; *upāsana*—adoración.

@@ -1,9 +1,9 @@
 ### CC Antya 1.101
 
-> কৃষ্ণনামের মহিমা শাস্ত্র-সাধু-মুখে জানি ।
+> কৃষ্ণনামের মহিমা শাস্ত্র-সাধু-মুখে জানি ।\
 > নামের মাধুরী ঐছে কাহাঁ নাহি শুনি ॥১০১॥
 
-> kṛṣṇa-nāmera mahimā śāstra-sādhu-mukhe jāni
+> kṛṣṇa-nāmera mahimā śāstra-sādhu-mukhe jāni\
 > nāmera mādhurī aiche kāhāṅ nāhi śuni
 
 *kṛṣṇa-nāmera mahimā*—las glorias del santo nombre del Señor Kṛṣṇa; *śāstra*—de las Escrituras reveladas; *sādhu*—de los devotos; *mukhe*—en la boca; *jāni*—podemos comprender; *nāmera mādhurī*—la dulzura del santo nombre; *aiche*—de ese modo; *kāhāṅ*—en ningún otro lugar; *nāhi śuni*—no oímos.

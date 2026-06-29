@@ -1,11 +1,11 @@
 ### SB 3.14.12
 
-> भर्तर्याप्तोरुमानानां लोकानाविशते यशः ।
+> भर्तर्याप्तोरुमानानां लोकानाविशते यशः ।\
 > पतिर्भवद्विधो यासां प्रजया ननु जायते ॥१२॥
 
-> bhartary āptorumānānāṁ
-> lokān āviśate yaśaḥ
-> patir bhavad-vidho yāsāṁ
+> bhartary āptorumānānāṁ\
+> lokān āviśate yaśaḥ\
+> patir bhavad-vidho yāsāṁ\
 > prajayā nanu jāyate
 
 *bhartari*—por el esposo; *āpta-urumānānām*—de aquellos que son queridos; *lokān*—en el mundo; *āviśate*—difunde; *yaśaḥ*—fama; *patiḥ*—esposo; *bhavat-vidhaḥ*—como tu noble persona; *yāsām*—de aquellos cuyos; *prajayā*—por los hijos; *nanu*—ciertamente; *jāyate*—aumenta.

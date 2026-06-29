@@ -1,13 +1,13 @@
 ### SB 4.12.23
 
-> सुनन्दनन्दावूचतुः
-> भो भो राजन्सुभद्रं ते वाचं नोऽवहितः शृणु ।
+> सुनन्दनन्दावूचतुः\
+> भो भो राजन्सुभद्रं ते वाचं नोऽवहितः शृणु ।\
 > यः पञ्चवर्षस्तपसा भवान्देवमतीतृपत् ॥२३॥
 
-> sunanda-nandāv ūcatuḥ
-> bho bho rājan subhadraṁ te
-> vācaṁ no 'vahitaḥ śṛṇu
-> yaḥ pañca-varṣas tapasā
+> sunanda-nandāv ūcatuḥ\
+> bho bho rājan subhadraṁ te\
+> vācaṁ no 'vahitaḥ śṛṇu\
+> yaḥ pañca-varṣas tapasā\
 > bhavān devam atītṛpat
 
 *sunanda-nandau ūcatuḥ*—Sunanda y Nanda dijeron; *bhoḥ bhoḥ rājan*—¡oh, querido rey!; *su-bhadram*—buena fortuna; *te*—a ti; *vācam*—palabras; *naḥ*—nuestras; *avahitaḥ*—atentamente; *śṛṇu*—escucha; *yaḥ*—quien; *pañca-varṣaḥ*—a la edad de cinco años; *tapasā*—debido a la austeridad; *bhavān*—tú; *devam*—a la Suprema Personalidad de Dios; *atītṛpat*—diste gran satisfacción.

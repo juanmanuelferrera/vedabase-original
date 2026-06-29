@@ -1,9 +1,9 @@
 ### CC Antya 1.19
 
-> কুক্কুর রহিলা, — শিবানন্দ দুঃখী হৈলা  ।
+> কুক্কুর রহিলা, — শিবানন্দ দুঃখী হৈলা  ।\
 > দশ পণ কড়ি দিয়া কুক্কুরে পার কৈলা ॥১৯॥
 
-> kukkura rahilā,—śivānanda duḥkhī hailā
+> kukkura rahilā,—śivānanda duḥkhī hailā\
 > daśa paṇa kaḍi diyā kukkure pāra kailā
 
 *kukkura rahilā*—the dog remained; *śivānanda duḥkhī hailā*—Śivānanda became very unhappy; *daśa paṇa*—ten *paṇa*; *kaḍi*—small conchshells; *diyā*—paying; *kukkure*—the dog; *pāra kailā*—crossed to the other side of the river.

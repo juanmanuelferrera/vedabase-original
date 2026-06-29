@@ -1,13 +1,13 @@
 ### SB 4.8.64
 
-> नारद उवाच
-> राजन्किं ध्यायसे दीर्घं मुखेन परिशुष्यता ।
+> नारद उवाच\
+> राजन्किं ध्यायसे दीर्घं मुखेन परिशुष्यता ।\
 > किं वा न रिष्यते कामो धर्मो वार्थेन संयुतः ॥६४॥
 
-> nārada uvāca
-> rājan kiṁ dhyāyase dīrghaṁ
-> mukhena pariśuṣyatā
-> kiṁ vā na riṣyate kāmo
+> nārada uvāca\
+> rājan kiṁ dhyāyase dīrghaṁ\
+> mukhena pariśuṣyatā\
+> kiṁ vā na riṣyate kāmo\
 > dharmo vārthena saṁyutaḥ
 
 *nāradaḥ uvāca*—el gran sabio Nārada Muni dijo; *rājan*—mi querido rey; *kim*—qué; *dhyāyase*—pensar en; *dīrgham*—muy profundamente; *mukhena*—con tu rostro; *pariśuṣyatā*—como si se secara; *kim vā*—si; *na*—no; *riṣyate*—haber perdido; *kāmaḥ*—complacencia de los sentidos; *dharmaḥ*—rituales religiosos; *vā*—o; *arthena*—con crecimiento económico; *saṁyutaḥ*—junto con.

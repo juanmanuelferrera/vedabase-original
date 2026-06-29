@@ -1,9 +1,9 @@
 ### CC Antya 4.80
 
-> কৃষ্ণভক্তি, কৃষ্ণপ্রেমসেবা-প্রবর্তন ।
+> কৃষ্ণভক্তি, কৃষ্ণপ্রেমসেবা-প্রবর্তন ।\
 > লুপ্ততীর্থ-উদ্ধার আর বৈরাগ্য-শিক্ষণ ॥৮০॥
 
-> kṛṣṇa-bhakti, kṛṣṇaprema-sevā-pravartana
+> kṛṣṇa-bhakti, kṛṣṇaprema-sevā-pravartana\
 > lupta-tīrtha-uddhāra, āra vairāgya-śikṣaṇa
 
 *kṛṣṇa-bhakti*—servicio devocional a Kṛṣṇa; *kṛṣṇa-prema*—amor por Kṛṣṇa; *sevā*—servicio; *pravartana*—establecimiento de; *lupta-tīrtha*—los lugares de peregrinaje perdidos; *uddhāra*—excavar; *āra*—y; *vairāgya-śikṣaṇa*—instrucción sobre la orden de vida de renuncia.

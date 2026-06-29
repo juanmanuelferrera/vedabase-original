@@ -1,11 +1,11 @@
 ### SB 6.14.6
 
-> वृत्रस्तु स कथं पापः सर्वलोकोपतापनः
+> वृत्रस्तु स कथं पापः सर्वलोकोपतापनः\
 > इत्थं दृढमतिः कृष्ण आसीत्सङ्ग्राम उल्बणे ॥६॥
 
-> vṛtras tu sa kathaṁ pāpaḥ
-> sarva-lokopatāpanaḥ
-> itthaṁ dṛḍha-matiḥ kṛṣṇa
+> vṛtras tu sa kathaṁ pāpaḥ\
+> sarva-lokopatāpanaḥ\
+> itthaṁ dṛḍha-matiḥ kṛṣṇa\
 > āsīt saṅgrāma ulbaṇe
 
 *vṛtraḥ*—Vṛtrāsura; *tu*—but; *saḥ*—he; *katham*—how; *pāpaḥ*—although sinful (getting the body of a demon); *sarva-loka*—of all the three worlds; *upatāpanaḥ*—the cause of suffering; *ittham*—such; *dṛḍha-matiḥ*—firmly fixed intelligence; *kṛṣṇe*—in Kṛṣṇa; *āsīt*—there was; *saṅgrāme ulbaṇe*—in the great blazing fire of battle.

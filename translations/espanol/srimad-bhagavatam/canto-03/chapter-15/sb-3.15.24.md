@@ -1,13 +1,13 @@
 ### SB 3.15.24
 
-> येऽभ्यर्थितामपि च नो नृगतिं प्रपन्ना
-> ज्ञानं च तत्त्वविषयं सहधर्मं यत्र ।
-> नाराधनं भगवतो वितरन्त्यमुष्य
+> येऽभ्यर्थितामपि च नो नृगतिं प्रपन्ना\
+> ज्ञानं च तत्त्वविषयं सहधर्मं यत्र ।\
+> नाराधनं भगवतो वितरन्त्यमुष्य\
 > सम्मोहिता विततया बत मायया ते ॥२४॥
 
-> ye 'bhyarthitām api ca no nṛ-gatiṁ prapannā
-> jñānaṁ ca tattva-viṣayaṁ saha-dharmaṁ yatra
-> nārādhanaṁ bhagavato vitaranty amuṣya
+> ye 'bhyarthitām api ca no nṛ-gatiṁ prapannā\
+> jñānaṁ ca tattva-viṣayaṁ saha-dharmaṁ yatra\
+> nārādhanaṁ bhagavato vitaranty amuṣya\
 > sammohitā vitatayā bata māyayā te
 
 *ye*—aquellas personas; *abhyarthitām*—deseada; *api*—ciertamente; *ca*—y; *naḥ*—por nosotros (Brahmā y los demás semidioses); *nṛ-gatim*—la forma humana de vida; *prapannāḥ*—han conseguido; *jñānam*—conocimiento; *ca*—y; *tattva-viṣayam*—el tema de la Verdad Absoluta; *saha-dharmam*—junto con principios religiosos; *yatra*—donde; *na*—no; *ārādhanam*—adoración; *bhagavataḥ*—de la Suprema Personalidad de Dios; *vitaranti*—llevan a cabo; *amuṣya*—del Señor Supremo; *sammohitāḥ*—estando confundidos; *vitatayā*—omnipresente; *bata*—¡ay!; *māyayā*—por la influencia de la energía ilusoria; *te*—ellos.

@@ -1,13 +1,13 @@
 ### SB 4.13.25
 
-> मैत्रेय उवाच
-> अङ्गोऽश्वमेधं राजर्षिराजहार महाक्रतुम् ।
+> मैत्रेय उवाच\
+> अङ्गोऽश्वमेधं राजर्षिराजहार महाक्रतुम् ।\
 > नाजग्मुर्देवतास्तस्मिन्नाहूता ब्रह्मवादिभिः ॥२५॥
 
-> maitreya uvāca
-> aṅgo 'śvamedhaṁ rājarṣir
-> ājahāra mahā-kratum
-> nājagmur devatās tasminn
+> maitreya uvāca\
+> aṅgo 'śvamedhaṁ rājarṣir\
+> ājahāra mahā-kratum\
+> nājagmur devatās tasminn\
 > āhūtā brahma-vādibhiḥ
 
 *maitreyaḥ uvāca*—Maitreya answered; *aṅgaḥ*—King Aṅga; *aśvamedham*—*aśvamedha* sacrifice; *rāja-ṛṣiḥ*—the saintly king; *ājahāra*—executed; *mahā-kratum*—great sacrifice; *na*—not; *ājagmuḥ*—came; *devatāḥ*—the demigods; *tasmin*—in that sacrifice; *āhūtāḥ*—being invited; *brahma-vādibhiḥ*—by the *brāhmaṇas* expert in executing sacrifices.

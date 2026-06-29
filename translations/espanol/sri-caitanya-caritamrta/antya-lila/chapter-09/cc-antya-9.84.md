@@ -1,9 +1,9 @@
 ### CC Antya 9.84
 
-> “দেব, শুন আর এক অপরূপ বাত্ !
+> “দেব, শুন আর এক অপরূপ বাত্ !\
 > মহাপ্রভু ক্ষেত্র ছাড়ি’ যাবেন আলালনাথ !” ॥ ৮৪ ॥
 
-> "deva, śuna āra eka aparūpa vāt!
+> "deva, śuna āra eka aparūpa vāt!\
 > mahāprabhu kṣetra chāḍi' yābena ālālanātha!"
 
 *deva*—mi querido rey; *śuna*—escucha; *āra*—otra; *eka*—una; *aparūpa*—insólita; *vāt*—noticia; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *kṣetra chāḍi'*—dejando Jagannātha Purī; *yābena*—irá; *ālālanātha*—a Ālālanātha.

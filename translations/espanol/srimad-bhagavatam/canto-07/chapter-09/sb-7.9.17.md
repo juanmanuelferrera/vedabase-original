@@ -1,13 +1,13 @@
 ### SB 7.9.17
 
-> यस्मात्प्रियाप्रियवियोगसंयोगजन्म
-> शोकाग्निना सकलयोनिषु दह्यमानः
-> दुःखौषधं तदपि दुःखमतद्धियाहं
+> यस्मात्प्रियाप्रियवियोगसंयोगजन्म\
+> शोकाग्निना सकलयोनिषु दह्यमानः\
+> दुःखौषधं तदपि दुःखमतद्धियाहं\
 > भूमन्भ्रमामि वद मे तव दास्ययोगम ॥१७॥
 
-> yasmāt priyāpriya-viyoga-saṁyoga-janma-
-> śokāgninā sakala-yoniṣu dahyamānaḥ
-> duḥkhauṣadhaṁ tad api duḥkham atad-dhiyāhaṁ
+> yasmāt priyāpriya-viyoga-saṁyoga-janma-\
+> śokāgninā sakala-yoniṣu dahyamānaḥ\
+> duḥkhauṣadhaṁ tad api duḥkham atad-dhiyāhaṁ\
 > bhūman bhramāmi vada me tava dāsya-yogam
 
 *yasmāt*—debido a lo cual (debido a existir en el mundo material); *priya*—agradables; *apriya*—no agradables; *viyoga*—por separación; *saṁyoga*—y combinación; *janma*—cuyo nacimiento; *śoka-agninā*—por el fuego de la lamentación; *sakala-yoniṣu*—en cualquier tipo de cuerpo; *dahyamānaḥ*—quemado; *duḥkha-auṣadham*—medidas para remediar las miserias de la vida; *tat*—eso; *api*—también; *duḥkham*—sufrimiento; *a-tat-dhiyā*—por identificar el cuerpo con el ser; *aham*—yo; *bhūman*—¡oh, Tú que eres grande!; *bhramāmi*—estoy vagando (en el ciclo de nacimientos y muertes); *vada*—por favor, instrúyeme; *me*—a mí; *tava*—Tuyo; *dāsya-yogam*—actividades de servicio.

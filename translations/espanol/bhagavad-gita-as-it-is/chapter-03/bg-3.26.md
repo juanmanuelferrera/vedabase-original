@@ -1,11 +1,11 @@
 ### Bg 3.26
 
-> न बुद्धिभेदं जनयेदज्ञानां कर्मसङ्गिनाम् ।
+> न बुद्धिभेदं जनयेदज्ञानां कर्मसङ्गिनाम् ।\
 > जोषयेत्सर्वकर्माणि विद्वान्युक्तः समाचरन् ॥२६॥
 
-> na buddhi-bhedaṁ janayed
-> ajñānāṁ karma-saṅginām
-> joṣayet sarva-karmāṇi
+> na buddhi-bhedaṁ janayed\
+> ajñānāṁ karma-saṅginām\
+> joṣayet sarva-karmāṇi\
 > vidvān yuktaḥ samācaran
 
 *na*—no; *buddhi-bhedam*—perturbar la inteligencia; *janayet*—hacer; *ajñānām*—de los necios; *karma-saṅginām*—apegados al trabajo fruitivo; *joṣayet*—adaptar; *sarva*—todo; *karmāṇi*—trabajo; *vidvān*—un sabio; *yuktaḥ*—completamente ocupado; *samācaran*—practicando.

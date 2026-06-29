@@ -1,11 +1,11 @@
 ### SB 9.14.6
 
-> शुक्रो बृहस्पतेर्द्वेषादग्रहीत्सासुरोडुपम
+> शुक्रो बृहस्पतेर्द्वेषादग्रहीत्सासुरोडुपम\
 > हरो गुरुसुतं स्नेहात्सर्वभूतगणावृतः ॥६॥
 
-> śukro bṛhaspater dveṣād
-> agrahīt sāsuroḍupam
-> haro guru-sutaṁ snehāt
+> śukro bṛhaspater dveṣād\
+> agrahīt sāsuroḍupam\
+> haro guru-sutaṁ snehāt\
 > sarva-bhūta-gaṇāvṛtaḥ
 
 *śukraḥ*—the demigod named Śukra; *bṛhaspateḥ*—unto Bṛhaspati; *dveṣāt*—because of enmity; *agrahīt*—took; *sa-asura*—with the demons; *uḍupam*—the side of the moon-god; *haraḥ*—Lord Śiva; *guru-sutam*—the side of his spiritual master's son; *snehāt*—because of affection; *sarva-bhūta-gaṇa-āvṛtaḥ*—accompanied by all kinds of ghosts and hobgoblins.

@@ -1,9 +1,9 @@
 ### CC Madhya 24.101
 
-> ‘প্র’-শব্দে — মোক্ষবাঞ্ছা কৈতবপ্রধান  ।
+> ‘প্র’-শব্দে — মোক্ষবাঞ্ছা কৈতবপ্রধান  ।\
 > এই শ্লোকে শ্রীধরস্বামী করিয়াছেন ব্যাখ্যান ॥১০১॥
 
-> 'pra'-śabde—mokṣa-vāñchā kaitava-pradhāna
+> 'pra'-śabde—mokṣa-vāñchā kaitava-pradhāna\
 > ei śloke śrīdhara-svāmī kariyāchena vyākhyāna
 
 *pra-śabde*—by the affix *pra*; *mokṣa-vāñchā*—the desire for being liberated; *kaitava-pradhāna*—first-class cheating; *ei śloke*—in this verse; *śrīdhara-svāmī*—the great commentator Śrīdhara Svāmī; *kariyāchena*—has made; *vyākhyāna*—explanation.

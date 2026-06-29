@@ -1,9 +1,9 @@
 ### CC Madhya 1.15
 
-> চব্বিশ বৎসর প্রভুর গৃহে অবস্থান ।
+> চব্বিশ বৎসর প্রভুর গৃহে অবস্থান ।\
 > তাহাঁ যে করিলা লীলা — ‘আদি-লীলা’ নাম ॥১৫॥
 
-> cabbiśa vatsara prabhura gṛhe avasthāna
+> cabbiśa vatsara prabhura gṛhe avasthāna\
 > tāhāṅ ye karilā līlā--'ādi-līlā' nāma
 
 *cabbiśa vatsara*—durante veinticuatro años; *prabhura*—del Señor; *gṛhe*—en el hogar; *avasthāna*—residencia; *tāhāṅ*—allí; *ye*—cualesquiera; *karilā*—Él realizó; *līlā*—pasatiempos; *ādi-līlā nāma*—se denominan ādi-līlā.

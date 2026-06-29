@@ -1,14 +1,14 @@
 ### CC Adi 17.335-336
 
-> শ্রীস্বরূপ-শ্রীরূপ-শ্রীসনাতন ।
-> শ্রীরঘুনাথদাস, আর শ্রীজীব-চরণ ॥৩৩৫॥
-> শিরে ধরি বন্দোঁ, নিত্য করোঁ তাঁর আশ ।
+> শ্রীস্বরূপ-শ্রীরূপ-শ্রীসনাতন ।\
+> শ্রীরঘুনাথদাস, আর শ্রীজীব-চরণ ॥৩৩৫॥\
+> শিরে ধরি বন্দোঁ, নিত্য করোঁ তাঁর আশ ।\
 > চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৩৩৬॥
 
-> śrī-svarūpa-śrī-rūpa-śrī-sanātana
+> śrī-svarūpa-śrī-rūpa-śrī-sanātana\
 > śrī-raghunātha-dāsa, āra śrī-jīva-caraṇa
 
-> śire dhari vandoṅ, nitya karoṅ tāṅra āśa
+> śire dhari vandoṅ, nitya karoṅ tāṅra āśa\
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
 
 *śrī-svarūpa*—Śrī Svarūpa Dāmodara; *śrī-rūpa*—Śrī Rūpa Gosvāmī; *śrī-sanātana*—Śrī Sanātana Gosvāmī; *śrī-raghunātha-dāsa*—Śrī Raghunātha dāsa Gosvāmī; *āra*—and; *śrī-jīva-caraṇa*—the lotus feet of Śrī Jīva Gosvāmī; *śire*—on the head; *dhari*—placing; *vandoṅ*—I worship; *nitya*—always; *karoṅ*—I do; *tāṅra*—their; *āśa*—hope to serve; *caitanya-caritāmṛta*—the book named *Śrī Caitanya-caritāmṛta*; *kahe*—describes; *kṛṣṇadāsa*—Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī.

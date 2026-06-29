@@ -1,11 +1,11 @@
 ### SB 1.9.29
 
-> धर्मं प्रवदतस्तस्य स कालः प्रत्युपस्थितः ।
+> धर्मं प्रवदतस्तस्य स कालः प्रत्युपस्थितः ।\
 > यो योगिनश्छन्दमृत्योर्वाञ्छितस्तूत्तरायणः ॥२९॥
 
-> dharmaṁ pravadatas tasya
-> sa kālaḥ pratyupasthitaḥ
-> yo yoginaś chanda-mṛtyor
+> dharmaṁ pravadatas tasya\
+> sa kālaḥ pratyupasthitaḥ\
+> yo yoginaś chanda-mṛtyor\
 > vāñchitas tūttarāyaṇaḥ
 
 *dharmam*—occupational duties; *pravadataḥ*—while describing; *tasya*—his; *saḥ*—that; *kālaḥ*—time; *pratyupasthitaḥ*—exactly appeared; *yaḥ*—that is; *yoginaḥ*—for the mystics; *chanda-mṛtyoḥ*—of one who dies according to one's own selection of time; *vāñchitaḥ*—is desired by; *tu*—but; *uttarāyaṇaḥ*—the period when the sun runs on the northern horizon.

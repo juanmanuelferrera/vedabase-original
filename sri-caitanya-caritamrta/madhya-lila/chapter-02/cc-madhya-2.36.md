@@ -1,13 +1,13 @@
 ### CC Madhya 2.36
 
-> যদা যাতো দৈবান্মধুরিপুরসৌ লোচনপথং
-> তদাস্মাকং চেতো মদনহতকেনাহৃতমভূৎ ।
-> পুনর্যস্মিন্নেষ ক্ষণমপি দৃশোরেতি পদবীং
+> যদা যাতো দৈবান্মধুরিপুরসৌ লোচনপথং\
+> তদাস্মাকং চেতো মদনহতকেনাহৃতমভূৎ ।\
+> পুনর্যস্মিন্নেষ ক্ষণমপি দৃশোরেতি পদবীং\
 > বিধাস্যামস্তস্মিন্নখিলঘটিকা রত্নখচিতাঃ ॥৩৬॥
 
-> yadā yāto daivān madhu-ripur asau locana-pathaṁ
-> tadāsmākaṁ ceto madana-hatakenāhṛtam abhūt
-> punar yasminn eṣa kṣaṇam api dṛśor eti padavīṁ
+> yadā yāto daivān madhu-ripur asau locana-pathaṁ\
+> tadāsmākaṁ ceto madana-hatakenāhṛtam abhūt\
+> punar yasminn eṣa kṣaṇam api dṛśor eti padavīṁ\
 > vidhāsyāmas tasminn akhila-ghaṭikā ratna-khacitāḥ
 
 *yadā*—when; *yātaḥ*—entered upon; *daivāt*—by chance; *madhu-ripuḥ*—the enemy of the demon Madhu; *asau*—He; *locana-patham*—the path of the eyes; *tadā*—at that time; *asmākam*—our; *cetaḥ*—consciousness; *madana-hatakena*—by wretched Cupid; *āhṛtam*—stolen; *abhūt*—has become; *punaḥ*—again; *yasmin*—when; *eṣaḥ*—Kṛṣṇa; *kṣaṇam api*—even for a moment; *dṛśoḥ*—of the two eyes; *eti*—goes to; *padavīm*—the path; *vidhāsyāmaḥ*—we shall make; *tasmin*—at that time; *akhila*—all; *ghaṭikāḥ*—indications of time; *ratna-khacitāḥ*—bedecked with jewels

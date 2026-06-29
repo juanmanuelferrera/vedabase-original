@@ -1,11 +1,11 @@
 ### CC Madhya 6.155
 
-> যয়া ক্ষেত্রজ্ঞশক্তিঃ সা বেষ্টিতা নৃপ সর্বগা ।
+> যয়া ক্ষেত্রজ্ঞশক্তিঃ সা বেষ্টিতা নৃপ সর্বগা ।\
 > সংসারতাপানখিলানবাপ্নোত্যত্র সন্ততান্ ॥১৫৫॥
 
-> yayā kṣetra-jña-śaktiḥ sā
-> veṣṭitā nṛpa sarva-gā
-> saṁsāra-tāpān akhilān
+> yayā kṣetra-jña-śaktiḥ sā\
+> veṣṭitā nṛpa sarva-gā\
+> saṁsāra-tāpān akhilān\
 > avāpnoty atra santatān
 
 *yayā*—por la cual; *kṣetra-jña-śaktiḥ*—las entidades vivientes, conocidas como la potencia kṣetra-jña; *sā*—esa potencia; *veṣṭitā*—cubierta; *nṛpa*—¡oh, rey!; *sarva-gā*—capaz de ir a cualquier parte del mundo espiritual o material; *saṁsāra-tāpān*—las miserias debidas al ciclo de repetidos nacimientos y muertes; *akhilān*—de todo tipo; *avāpnoti*—obtiene; *atra*—en este mundo material; *santatān*—que surgen de sufrir o disfrutar diversas clases de reacciones a las actividades fruitivas.

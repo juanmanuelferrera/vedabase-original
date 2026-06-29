@@ -1,9 +1,9 @@
 ### CC Madhya 18.44
 
-> কভু কুঞ্জে রহে, কভু রহে গ্রামান্তরে ।
+> কভু কুঞ্জে রহে, কভু রহে গ্রামান্তরে ।\
 > সেই ভক্ত, তাহাঁ আসি’ দেখয়ে তাঁহারে ॥৪৪॥
 
-> kabhu kuñje rahe, kabhu rahe grāmāntare
+> kabhu kuñje rahe, kabhu rahe grāmāntare\
 > sei bhakta, tāhāṅ āsi' dekhaye tāṅhāre
 
 *kabhu*—sometimes; *kuñje*—in the bushes; *rahe*—remains; *kabhu*—sometimes; *rahe*—He stays; *grāma-antare*—in a different village; *sei bhakta*—that devotee; *tāhāṅ āsi'*—coming there; *dekhaye tāṅhāre*—sees Him.

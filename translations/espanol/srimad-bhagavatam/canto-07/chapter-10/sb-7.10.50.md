@@ -1,11 +1,11 @@
 ### SB 7.10.50
 
-> न यस्य साक्षाद्भवपद्मजादिभी रूपं धिया वस्तुतयोपवर्णितम
+> न यस्य साक्षाद्भवपद्मजादिभी रूपं धिया वस्तुतयोपवर्णितम\
 > मौनेन भक्त्योपशमेन पूजितः प्रसीदतामेष स सात्वतां पतिः ॥५०॥
 
-> na yasya sākṣād bhava-padmajādibhī
-> rūpaṁ dhiyā vastutayopavarṇitam
-> maunena bhaktyopaśamena pūjitaḥ
+> na yasya sākṣād bhava-padmajādibhī\
+> rūpaṁ dhiyā vastutayopavarṇitam\
+> maunena bhaktyopaśamena pūjitaḥ\
 > prasīdatām eṣa sa sātvatāṁ patiḥ
 
 *na*—no; *yasya*—de quien; *sākṣāt*—directamente; *bhava*—el Señor Śiva; *padma-ja*—el Señor Brahmā (nacido del loto); *ādibhiḥ*—por ellos, además de otros; *rūpam*—la forma; *dhiyā*—incluso con meditación; *vastutayā*—fundamentalmente; *upavarṇitam*—descrita y percibida; *maunena*—mediante el *samādhi*, la meditación profunda; *bhaktyā*—mediante el servicio devocional; *upaśamena*—mediante la renunciación; *pūjitaḥ*—adorado; *prasīdatām*—que Él Se complazca; *eṣaḥ*—este; *saḥ*—Él; *sātvatām*—de los grandes devotos; *patiḥ*—el amo.

@@ -1,9 +1,9 @@
 ### CC Antya 11.43
 
-> মধ্যাহ্ন করিতে প্রভু চলিলা আপনে ।
+> মধ্যাহ্ন করিতে প্রভু চলিলা আপনে ।\
 > ঈশ্বর দেখিয়া কালি দিবেন দরশনে ॥৪৩॥
 
-> madhyāhna karite prabhu calilā āpane
+> madhyāhna karite prabhu calilā āpane\
 > īśvara dekhiyā kāli dibena daraśane
 
 *madhyāhna karite*—to perform His noon duties; *prabhu*—Śrī Caitanya Mahāprabhu; *calilā āpane*—aroused Himself; *īśvara dekhiyā*—after visiting Lord Jagannātha; *kāli*—tomorrow; *dibena daraśane*—He would see Haridāsa Ṭhākura.

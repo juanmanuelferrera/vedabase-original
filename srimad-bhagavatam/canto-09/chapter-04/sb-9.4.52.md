@@ -1,11 +1,11 @@
 ### SB 9.4.52
 
-> अलब्धनाथः स सदा कुतश्चित्सन्त्रस्तचित्तोऽरणमेषमाणः
+> अलब्धनाथः स सदा कुतश्चित्सन्त्रस्तचित्तोऽरणमेषमाणः\
 > देवं विरिञ्चं समगाद्विधातस्त्राह्यात्मयोनेऽजिततेजसो माम ॥५२॥
 
-> alabdha-nāthaḥ sa sadā kutaścit
-> santrasta-citto 'raṇam eṣamāṇaḥ
-> devaṁ viriñcaṁ samagād vidhātas
+> alabdha-nāthaḥ sa sadā kutaścit\
+> santrasta-citto 'raṇam eṣamāṇaḥ\
+> devaṁ viriñcaṁ samagād vidhātas\
 > trāhy ātma-yone 'jita-tejaso mām
 
 *alabdha-nāthaḥ*—without getting the shelter of a protector; *saḥ*—Durvāsā Muni; *sadā*—always; *kutaścit*—somewhere; *santrasta-cittaḥ*—with a fearful heart; *araṇam*—a person who can give shelter; *eṣamāṇaḥ*—seeking; *devam*—at last to the chief demigod; *viriñcam*—Lord Brahmā; *samagāt*—approached; *vidhātaḥ*—O my lord; *trāhi*—kindly protect; *ātma-yone*—O Lord Brahmā; *ajita-tejasaḥ*—from the fire released by Ajita, the Supreme Personality of Godhead; *mām*—unto me.

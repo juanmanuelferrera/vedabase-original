@@ -1,11 +1,11 @@
 ### SB 2.8.7
 
-> यदधातुमतो ब्रह्मन्देहारम्भोऽस्य धातुभिः ।
+> यदधातुमतो ब्रह्मन्देहारम्भोऽस्य धातुभिः ।\
 > यदृच्छया हेतुना वा भवन्तो जानते यथा ॥७॥
 
-> yad adhātu-mato brahman
-> dehārambho 'sya dhātubhiḥ
-> yadṛcchayā hetunā vā
+> yad adhātu-mato brahman\
+> dehārambho 'sya dhātubhiḥ\
+> yadṛcchayā hetunā vā\
 > bhavanto jānate yathā
 
 *yat*—tal como es; *adhātu-mataḥ*—sin estar constituido materialmente; *brahman*—¡oh, *brāhmaṇa* erudito!; *deha*—el cuerpo material; *ārambhaḥ*—el comienzo de; *asya*—del ser viviente; *dhātubhiḥ*—por la materia; *yadṛcchayā*—accidental, sin causa; *hetunā*—debido a alguna causa; *vā*—o; *bhavantaḥ*—tu buena persona; *jānate*—tal como tú has de saberlo; *yathā*—así has de informármelo.

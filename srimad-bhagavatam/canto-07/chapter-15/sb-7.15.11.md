@@ -1,11 +1,11 @@
 ### SB 7.15.11
 
-> तस्माद्दैवोपपन्नेन मुन्यन्नेनापि धर्मवित
+> तस्माद्दैवोपपन्नेन मुन्यन्नेनापि धर्मवित\
 > सन्तुष्टोऽहरहः कुर्यान्नित्यनैमित्तिकीः क्रियाः ॥११॥
 
-> tasmād daivopapannena
-> muny-annenāpi dharmavit
-> santuṣṭo 'har ahaḥ kuryān
+> tasmād daivopapannena\
+> muny-annenāpi dharmavit\
+> santuṣṭo 'har ahaḥ kuryān\
 > nitya-naimittikīḥ kriyāḥ
 
 *tasmāt*—therefore; *daiva-upapannena*—obtainable very easily by the grace of the Lord; *muni-annena*—with food (prepared in ghee and offered to the Supreme Lord); *api*—indeed; *dharma-vit*—one who is actually advanced in religious principles; *santuṣṭaḥ*—very happily; *ahaḥ ahaḥ*—day after day; *kuryāt*—one should perform; *nitya-naimittikīḥ*—regular and occasional; *kriyāḥ*—duties.

@@ -1,11 +1,11 @@
 ### SB 5.1.16
 
-> मुक्तोऽपि तावद्बिभृयात्स्वदेहमारब्धमश्नन्नभिमानशून्यः
+> मुक्तोऽपि तावद्बिभृयात्स्वदेहमारब्धमश्नन्नभिमानशून्यः\
 > यथानुभूतं प्रतियातनिद्रः किं त्वन्यदेहाय गुणान्न वृङ्क्ते ॥१६॥
 
-> mukto 'pi tāvad bibhṛyāt sva-deham
-> ārabdham aśnann abhimāna-śūnyaḥ
-> yathānubhūtaṁ pratiyāta-nidraḥ
+> mukto 'pi tāvad bibhṛyāt sva-deham\
+> ārabdham aśnann abhimāna-śūnyaḥ\
+> yathānubhūtaṁ pratiyāta-nidraḥ\
 > kiṁ tv anya-dehāya guṇān na vṛṅkte
 
 *muktaḥ*—a liberated person; *api*—even; *tāvat*—so long; *bibhṛyāt*—must maintain; *sva-deham*—his own body; *ārabdham*—obtained as a result of past activity; *aśnan*—accepting; *abhimāna-śūnyaḥ*—without erroneous conceptions; *yathā*—as; *anubhūtam*—what was perceived; *pratiyāta-nidraḥ*—one who has awakened from sleep; *kim tu*—but; *anya-dehāya*—for another material body; *guṇān*—the material qualities; *na*—never; *vṛṅkte*—enjoys.

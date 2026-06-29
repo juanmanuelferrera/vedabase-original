@@ -1,11 +1,11 @@
 ### SB 7.1.7
 
-> सत्त्वं रजस्तम इति प्रकृतेर्नात्मनो गुणाः
+> सत्त्वं रजस्तम इति प्रकृतेर्नात्मनो गुणाः\
 > न तेषां युगपद्राजन्ह्रास उल्लास एव वा ॥७॥
 
-> sattvaṁ rajas tama iti
-> prakṛter nātmano guṇāḥ
-> na teṣāṁ yugapad rājan
+> sattvaṁ rajas tama iti\
+> prakṛter nātmano guṇāḥ\
+> na teṣāṁ yugapad rājan\
 > hrāsa ullāsa eva vā
 
 *sattvam*—the mode of goodness; *rajaḥ*—the mode of passion; *tamaḥ*—the mode of ignorance; *iti*—thus; *prakṛteḥ*—of material nature; *na*—not; *ātmanaḥ*—of the spirit soul; *guṇāḥ*—qualities; *na*—not; *teṣām*—of them; *yugapat*—simultaneously; *rājan*—O King; *hrāsaḥ*—diminution; *ullāsaḥ*—prominence; *eva*—certainly; *vā*—or.

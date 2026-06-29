@@ -1,13 +1,13 @@
 ### CC Antya 15.22
 
-> কৃষ্ণাঙ্গ — সৌরভভর, মৃগমদ-মদহর,
-> নীলোৎপলের হরে গর্ব-ধন ।
-> জগৎ-নারীর নাসা, তার ভিতর পাতে বাসা,
+> কৃষ্ণাঙ্গ — সৌরভভর, মৃগমদ-মদহর,\
+> নীলোৎপলের হরে গর্ব-ধন ।\
+> জগৎ-নারীর নাসা, তার ভিতর পাতে বাসা,\
 > নারীগণে করে আকর্ষণ ॥২২॥
 
-> kṛṣṇāṅga--saurabhya-bhara, mṛga-mada-mada-hara,
-> nīlotpalera hare garva-dhana
-> jagat-nārīra nāsā, tāra bhitara pāte vāsā,
+> kṛṣṇāṅga--saurabhya-bhara, mṛga-mada-mada-hara,\
+> nīlotpalera hare garva-dhana\
+> jagat-nārīra nāsā, tāra bhitara pāte vāsā,\
 > nārī-gaṇe kare ākarṣaṇa
 
 *kṛṣṇa-aṅga*—el cuerpo de Kṛṣṇa; *saurabhya-bhara*—repleto de fragancia; *mṛga-mada*—del almizcle; *mada-hara*—poder embriagador; *nīlotpalera*—de la flor de loto azulada; *hare*—arrebata; *garva-dhana*—el orgullo del tesoro; *jagat-nārīra*—de las mujeres del mundo; *nāsā*—fosas nasales; *tāra bhitara*—dentro de ellas; *pāte vāsā*—construye una morada; *nārī-gaṇe*—las mujeres; *kare ākarṣaṇa*—atrae.

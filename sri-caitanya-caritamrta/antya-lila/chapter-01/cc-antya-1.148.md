@@ -1,13 +1,13 @@
 ### CC Antya 1.148
 
-> পীড়াভির্নবকালকূটকটুতা-গর্বস্য নির্বাসনো
-> নিঃস্যন্দেন মুদাং সুধা-মধুরিমাহঙ্কর-সঙ্কোচনঃ ।
-> প্রেমা সুন্দরি নন্দনন্দনপরো জাগর্তি যস্যান্তরে
+> পীড়াভির্নবকালকূটকটুতা-গর্বস্য নির্বাসনো\
+> নিঃস্যন্দেন মুদাং সুধা-মধুরিমাহঙ্কর-সঙ্কোচনঃ ।\
+> প্রেমা সুন্দরি নন্দনন্দনপরো জাগর্তি যস্যান্তরে\
 > জ্ঞায়ন্তে স্ফুটমস্য বক্রমধুরাস্তেনৈব বিক্রান্তয়ঃ ॥১৪৮॥
 
-> pīḍābhir nava-kāla-kūṭa-kaṭutā-garvasya nirvāsano
-> nisyandena mudāṁ sudhā-madhurimāhaṅkāra-saṅkocanaḥ
-> premā sundari nanda-nandana-paro jāgarti yasyāntare
+> pīḍābhir nava-kāla-kūṭa-kaṭutā-garvasya nirvāsano\
+> nisyandena mudāṁ sudhā-madhurimāhaṅkāra-saṅkocanaḥ\
+> premā sundari nanda-nandana-paro jāgarti yasyāntare\
 >  jñāyante sphuṭam asya vakra-madhurās tenaiva vikrāntayaḥ
 
 *pīḍābhiḥ*—by the sufferings; *nava*—fresh; *kāla-kūṭa*—of poison; *kaṭutā*—of the severity; *garvasya*—of pride; *nirvāsanaḥ*—banishment; *nisyandena*—by pouring down; *mudām*—happiness; *sudhā*—of nectar; *madhurimā*—of the sweetness; *ahaṅkāra*—the pride; *saṅkocanaḥ*—minimizing; *premā*—love; *sundari*—beautiful friend; *nanda-nandana-paraḥ*—fixed upon the son of Mahārāja Nanda; *jāgarti*—develops; *yasya*—of whom; *antare*—in the heart; *jñāyante*—are perceived; *sphuṭam*—explicitly; *asya*—of that; *vakra*—crooked; *madhurāḥ*—and sweet; *tena*—by him; *eva*—alone; *vikrāntayaḥ*—the influences.

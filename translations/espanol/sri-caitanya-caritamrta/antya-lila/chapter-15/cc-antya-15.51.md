@@ -1,13 +1,13 @@
 ### CC Antya 15.51
 
-> বাহুং প্রিয়াংস উপধায় গৃহীতপদ্মো
-> রামানুজস্তুলসিকালিকুলৈর্মদান্ধৈঃ ।
-> অন্বীয়মান ইহ বস্তরবঃ প্রণামং
+> বাহুং প্রিয়াংস উপধায় গৃহীতপদ্মো\
+> রামানুজস্তুলসিকালিকুলৈর্মদান্ধৈঃ ।\
+> অন্বীয়মান ইহ বস্তরবঃ প্রণামং\
 > কিংবাভিনন্দতি চরন্ প্রণয়াবলোকৈঃ ॥৫১॥
 
-> bāhuṁ priyāṁsa upadhāya gṛhīta-padmo
-> rāmānujas tulasikāli-kulair madāndhaiḥ
-> anvīyamāna iha vas taravaḥ praṇāmaṁ
+> bāhuṁ priyāṁsa upadhāya gṛhīta-padmo\
+> rāmānujas tulasikāli-kulair madāndhaiḥ\
+> anvīyamāna iha vas taravaḥ praṇāmaṁ\
 > kiṁvābhinandati caran praṇayāvalokaiḥ
 
 *bāhum*—el brazo; *priyā-aṁse*—sobre el hombro de Su amada; *upadhāya*—posando; *gṛhīta*—habiendo tomado; *padmaḥ*—una flor de loto; *rāma-anujaḥ*—el hermano menor del Señor Balarāma (Kṛṣṇa); *tulasikā*—por la guirnalda de flores de tulasī; *ali-kulaiḥ*—por abejorros; *mada-andhaiḥ*—cegados por la fragancia; *anvīyamānaḥ*—siendo seguido; *iha*—aquí; *vaḥ*—de vosotros; *taravaḥ*—¡oh, árboles!; *praṇāmam*—las reverencias; *kiṁvā*—si acaso; *abhinandati*—recibió con agrado; *caran*—mientras pasaba; *praṇaya-avalokaiḥ*—con miradas de amor.

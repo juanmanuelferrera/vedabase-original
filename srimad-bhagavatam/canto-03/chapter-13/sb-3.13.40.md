@@ -1,11 +1,11 @@
 ### SB 3.13.40
 
-> दंष्ट्राग्रकोट्या भगवंस्त्वया धृता विराजते भूधर भूः सभूधरा ।
+> दंष्ट्राग्रकोट्या भगवंस्त्वया धृता विराजते भूधर भूः सभूधरा ।\
 > यथा वनान्निःसरतो दता धृता मतङ्गजेन्द्रस्य सपत्रपद्मिनी ॥४०॥
 
-> daṁṣṭrāgra-koṭyā bhagavaṁs tvayā dhṛtā
-> virājate bhūdhara bhūḥ sa-bhūdharā
-> yathā vanān niḥsarato datā dhṛtā
+> daṁṣṭrāgra-koṭyā bhagavaṁs tvayā dhṛtā\
+> virājate bhūdhara bhūḥ sa-bhūdharā\
+> yathā vanān niḥsarato datā dhṛtā\
 > mataṅ-gajendrasya sa-patra-padminī
 
 *daṁṣṭra-agra*—the tips of the tusks; *koṭyā*—by the edges; *bhagavan*—O Personality of Godhead; *tvayā*—by You; *dhṛtā*—sustained; *virājate*—is so beautifully situated; *bhū-dhara*—O lifter of the earth; *bhūḥ*—the earth; *sa-bhūdharā*—with mountains; *yathā*—as much as; *vanāt*—from the water; *niḥsarataḥ*—coming out; *datā*—by the tusk; *dhṛtā*—captured; *matam-gajendrasya*—infuriated elephant; *sa-patra*—with leaves; *padminī*—the lotus flower.

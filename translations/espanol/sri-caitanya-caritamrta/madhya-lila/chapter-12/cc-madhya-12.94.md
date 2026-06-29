@@ -1,9 +1,9 @@
 ### CC Madhya 12.94
 
-> সব বৈষ্ণব লঞা যবে দুইবার শোধিল ।
+> সব বৈষ্ণব লঞা যবে দুইবার শোধিল ।\
 > দেখি’ মহাপ্রভুর মনে সন্তোষ হইল ॥৯৪॥
 
-> saba vaiṣṇava lañā yabe dui-bāra śodhila
+> saba vaiṣṇava lañā yabe dui-bāra śodhila\
 > dekhi' mahāprabhura mane santoṣa ha-ila
 
 *saba*—todos; *vaiṣṇava*—devotos; *lañā*—llevando consigo; *yabe*—cuando; *dui-bāra*—por segunda vez; *śodhila*—limpió; *dekhi'*—al ver; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *mane*—en la mente; *santoṣa*—satisfacción; *ha-ila*—hubo.

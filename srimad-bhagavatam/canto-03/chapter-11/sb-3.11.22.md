@@ -1,11 +1,11 @@
 ### SB 3.11.22
 
-> त्रिलोक्या युगसाहस्रं बहिराब्रह्मणो दिनम् ।
+> त्रिलोक्या युगसाहस्रं बहिराब्रह्मणो दिनम् ।\
 > तावत्येव निशा तात यन्निमीलति विश्वसृक् ॥२२॥
 
-> tri-lokyā yuga-sāhasraṁ
-> bahir ābrahmaṇo dinam
-> tāvaty eva niśā tāta
+> tri-lokyā yuga-sāhasraṁ\
+> bahir ābrahmaṇo dinam\
+> tāvaty eva niśā tāta\
 > yan nimīlati viśva-sṛk
 
 *tri-lokyāḥ*—of the three worlds; *yuga*—the four *yugas*; *sāhasram*—one thousand; *bahiḥ*—outside of; *ābrahmaṇaḥ*—up to Brahmaloka; *dinam*—is a day; *tāvatī*—a similar (period); *eva*—certainly; *niśā*—is night; *tāta*—O dear one; *yat*—because; *nimīlati*—goes to sleep; *viśva-sṛk*—Brahmā.

@@ -1,11 +1,11 @@
 ### SB 9.9.40
 
-> अश्मकाद्बालिको जज्ञए यः स्त्रीभिः परिरक्षितः
+> अश्मकाद्बालिको जज्ञए यः स्त्रीभिः परिरक्षितः\
 > नारीकवच इत्युक्तो निःक्षत्रे मूलकोऽभवत ॥४०॥
 
-> aśmakād bāliko jajñe
-> yaḥ strībhiḥ parirakṣitaḥ
-> nārī-kavaca ity ukto
+> aśmakād bāliko jajñe\
+> yaḥ strībhiḥ parirakṣitaḥ\
+> nārī-kavaca ity ukto\
 > niḥkṣatre mūlako 'bhavat
 
 *aśmakāt*—from that son named Aśmaka; *bālikaḥ*—a son named Bālika; *jajñe*—was born; *yaḥ*—this child Bālika; *strībhiḥ*—by women; *parirakṣitaḥ*—was protected; *nārī-kavacaḥ*—having a shield of women; *iti uktaḥ*—was known as such; *niḥkṣatre*—when there were no *kṣatriyas* (all *kṣatriyas* having been vanquished by Paraśurāma); *mūlakaḥ*—Mūlaka, the progenitor of the *kṣatriyas*; *abhavat*—he became.

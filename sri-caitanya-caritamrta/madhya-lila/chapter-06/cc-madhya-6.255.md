@@ -1,15 +1,15 @@
 ### CC Madhya 6.255
 
-> কালান্নষ্টং ভক্তিযোগং নিজং যঃ
-> প্ৰাদুষ্কর্তুং কৃষ্ণচৈতন্যনামা ।
-> আবির্ভূতস্তস্য পাদারবিন্দে
-> গাঢ়ং গাঢ়ং লীয়তাং চিত্তভৃঙ্গঃ
-> যদা যদা হি ধর্মস্য গ্লানির্ভবতি ভারত ।
+> কালান্নষ্টং ভক্তিযোগং নিজং যঃ\
+> প্ৰাদুষ্কর্তুং কৃষ্ণচৈতন্যনামা ।\
+> আবির্ভূতস্তস্য পাদারবিন্দে\
+> গাঢ়ং গাঢ়ং লীয়তাং চিত্তভৃঙ্গঃ\
+> যদা যদা হি ধর্মস্য গ্লানির্ভবতি ভারত ।\
 > অভ্যুত্থানমধর্মস্য তদাত্মানং সৃজাম্যহম্ ।। ॥২৫৫॥
 
-> kālān naṣṭaṁ bhakti-yogaṁ nijaṁ yaḥ
-> prāduṣkartuṁ kṛṣṇa-caitanya-nāmā
-> āvirbhūtas tasya pādāravinde
+> kālān naṣṭaṁ bhakti-yogaṁ nijaṁ yaḥ\
+> prāduṣkartuṁ kṛṣṇa-caitanya-nāmā\
+> āvirbhūtas tasya pādāravinde\
 > gāḍhaṁ gāḍhaṁ līyatāṁ citta-bhṛṅgaḥ
 
 *kālāt*—from misuse of material propensities and attachment to fruitive activities and speculative knowledge over the course of time; *naṣṭam*—destroyed; *bhakti-yogam*—the science of devotional service; *nijam*—which is applicable to Him only; *yaḥ*—one who; *prāduṣkartum*—to revive; *kṛṣṇa-caitanya-nāmā*—named Lord Śrī Kṛṣṇa Caitanya Mahāprabhu; *āvirbhūtaḥ*—who has appeared; *tasya*—His; *pāda-aravinde*—in the lotus feet; *gāḍham gāḍham*—very deeply; *līyatām*—let it be merged; *citta-bhṛṅgaḥ*—my consciousness, like a honeybee.

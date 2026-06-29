@@ -1,11 +1,11 @@
 ### SB 8.11.25
 
-> अलक्षयन्तस्तमतीव विह्वला विचुक्रुशुर्देवगणाः सहानुगाः
+> अलक्षयन्तस्तमतीव विह्वला विचुक्रुशुर्देवगणाः सहानुगाः\
 > अनायकाः शत्रुबलेन निर्जिता वणिक्पथा भिन्ननवो यथार्णवे ॥२५॥
 
-> alakṣayantas tam atīva vihvalā
-> vicukruśur deva-gaṇāḥ sahānugāḥ
-> anāyakāḥ śatru-balena nirjitā
+> alakṣayantas tam atīva vihvalā\
+> vicukruśur deva-gaṇāḥ sahānugāḥ\
+> anāyakāḥ śatru-balena nirjitā\
 > vaṇik-pathā bhinna-navo yathārṇave
 
 *alakṣayantaḥ*—being unable to see; *tam*—King Indra; *atīva*—fiercely; *vihvalāḥ*—bewildered; *vicukruśuḥ*—began to lament; *deva-gaṇāḥ*—all the demigods; *saha-anugāḥ*—with their followers; *anāyakāḥ*—without any captain or leader; *śatru-balena*—by the superior power of their enemies; *nirjitāḥ*—oppressed severely; *vaṇik-pathāḥ*—traders; *bhinna-navaḥ*—whose ship is wrecked; *yathā arṇave*—as in the middle of the ocean.

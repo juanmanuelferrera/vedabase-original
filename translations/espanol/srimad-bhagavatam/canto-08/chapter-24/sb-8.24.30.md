@@ -1,11 +1,11 @@
 ### SB 8.24.30
 
-> न तेऽरविन्दाक्ष पदोपसर्पणं मृषा भवेत्सर्वसुहृत्प्रियात्मनः
+> न तेऽरविन्दाक्ष पदोपसर्पणं मृषा भवेत्सर्वसुहृत्प्रियात्मनः\
 > यथेतरेषां पृथगात्मनां सतामदीदृशो यद्वपुरद्भुतं हि नः ॥३०॥
 
-> na te 'ravindākṣa padopasarpaṇaṁ
-> mṛṣā bhavet sarva-suhṛt-priyātmanaḥ
-> yathetareṣāṁ pṛthag-ātmanāṁ satām
+> na te 'ravindākṣa padopasarpaṇaṁ\
+> mṛṣā bhavet sarva-suhṛt-priyātmanaḥ\
+> yathetareṣāṁ pṛthag-ātmanāṁ satām\
 > adīdṛśo yad vapur adbhutaṁ hi naḥ
 
 *na*—nunca; *te*—de Tu Señoría; *aravinda-akṣa*—Mi Señor, cuyos ojos son como los pétalos de un loto; *pada-upasarpaṇam*—adoración de los pies de loto; *mṛṣā*—inútil; *bhavet*—puede ser; *sarva-suhṛt*—el amigo de todos; *priya*—querido para todos; *ātmanaḥ*—la Superalma de todos; *yathā*—como; *itareṣām*—de otros (de los semidioses); *pṛthak-ātmanām*—entidades vivientes con un cuerpo material que es distinto del alma; *satām*—de aquellos que están firmemente establecidos en la espiritualidad; *adīdṛśaḥ*—Tú has manifestado; *yat*—ese; *vapuḥ*—cuerpo; *adbhutam*—maravilloso; *hi*—en verdad; *naḥ*—a nosotros.

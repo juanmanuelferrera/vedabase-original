@@ -1,9 +1,9 @@
 ### CC Madhya 20.372
 
-> শেষে ‘স্ব-সেবন’-শক্তি, পৃথুতে ‘পালন’  ।
+> শেষে ‘স্ব-সেবন’-শক্তি, পৃথুতে ‘পালন’  ।\
 > পরশুরামে ‘দুষ্টনাশক-বীর্যসঞ্চারণ’ ॥৩৭২॥
 
-> śeṣe 'sva-sevana'-śakti, pṛthute 'pālana'
+> śeṣe 'sva-sevana'-śakti, pṛthute 'pālana'\
 > paraśurāme 'duṣṭa-nāśaka-vīrya-sañcāraṇa'
 
 *śeṣe*—en el Señor Śeṣa; *sva-sevana śakti*—el poder de servir personalmente al Señor; *pṛthute*—en el rey Pṛthu; *pālana*—el poder de gobernar; *paraśurāme*—en Paraśurāma; *duṣṭa-nāśaka-vīrya*—el poder extraordinario de matar a los bribones y sinvergüenzas; *sañcāraṇa*—investir de poder.

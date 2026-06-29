@@ -1,11 +1,11 @@
 ### Bg 7.23
 
-> अन्तवत्तु फलं तेषां तद्भवत्यल्पमेधसाम् ।
+> अन्तवत्तु फलं तेषां तद्भवत्यल्पमेधसाम् ।\
 > देवान्देवयजो यान्ति मद्भक्ता यान्ति मामपि ॥२३॥
 
-> antavat tu phalaṁ teṣāṁ
-> tad bhavaty alpa-medhasām
-> devān deva-yajo yānti
+> antavat tu phalaṁ teṣāṁ\
+> tad bhavaty alpa-medhasām\
+> devān deva-yajo yānti\
 > mad-bhaktā yānti mām api
 
 *antavat tu*—limited and temporary; *phalam*—fruits; *teṣām*—their; *tat*—that; *bhavati*—becomes; *alpa-medhasām*—of those of small intelligence; *devān*—demigods' planets; *deva-yajaḥ*—worshipers of demigods; *yānti*—achieve; *mat*—My; *bhaktāḥ*—devotees; *yānti*—attain; *mām*—unto Me; *api*—surely.

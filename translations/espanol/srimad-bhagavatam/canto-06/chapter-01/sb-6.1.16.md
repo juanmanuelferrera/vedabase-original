@@ -1,11 +1,11 @@
 ### SB 6.1.16
 
-> न तथा ह्यघवान्राजन्पूयेत तपाअदिभिः
+> न तथा ह्यघवान्राजन्पूयेत तपाअदिभिः\
 > यथा कृष्णार्पितप्राणस्तत्पुरुषनिषेवया ॥१६॥
 
-> na tathā hy aghavān rājan
-> pūyeta tapa-ādibhiḥ
-> yathā kṛṣṇārpita-prāṇas
+> na tathā hy aghavān rājan\
+> pūyeta tapa-ādibhiḥ\
+> yathā kṛṣṇārpita-prāṇas\
 > tat-puruṣa-niṣevayā
 
 *na*—no; *tathā*—tanto; *hi*—ciertamente; *agha-vān*—un hombre lleno de actividades pecaminosas; *rājan*—¡oh, rey!; *pūyeta*—puede purificarse; *tapaḥ-ādibhiḥ*—por seguir los principios de austeridad, penitencia, *brahmacarya* y demás procesos purificatorios; *yathā*—tanto como; *kṛṣṇa-arpita-prāṇaḥ*—el devoto cuya vida es consciente de Kṛṣṇa por entero; *tat-puruṣa-niṣevayā*—por ocupar su vida en el servicio del representante de Kṛṣṇa.

@@ -1,11 +1,11 @@
 ### SB 5.19.6
 
-> न वै स आत्मात्मवतां सुहृत्तमः सक्तस्त्रिलोक्यां भगवान्वासुदेवः
+> न वै स आत्मात्मवतां सुहृत्तमः सक्तस्त्रिलोक्यां भगवान्वासुदेवः\
 > न स्त्रीकृतं कश्मलमश्नुवीत न लक्ष्मणं चापि विहातुमर्हति ॥६॥
 
-> na vai sa ātmātmavatāṁ suhṛttamaḥ
-> saktas tri-lokyāṁ bhagavān vāsudevaḥ
-> na strī-kṛtaṁ kaśmalam aśnuvīta
+> na vai sa ātmātmavatāṁ suhṛttamaḥ\
+> saktas tri-lokyāṁ bhagavān vāsudevaḥ\
+> na strī-kṛtaṁ kaśmalam aśnuvīta\
 > na lakṣmaṇaṁ cāpi vihātum arhati
 
 *na*—no; *vai*—en verdad; *saḥ*—Él; *ātmā*—el Alma Suprema; *ātmavatām*—de las almas autorrealizadas; *suhṛt-tamaḥ*—el mejor amigo; *saktaḥ*—apegado; *tri-lokyām*—a nada en los tres mundos; *bhagavān*—la Suprema Personalidad de Dios; *vāsudevaḥ*—el Señor omnipresente; *na*—no; *strī-kṛtam*—obtenidos a causa de Su esposa; *kaśmalam*—sufrimientos de separación; *aśnuvīta*—obtendría; *na*—no; *lakṣmaṇam*—a Su hermano menor, Lakṣmaṇa; *ca*—también; *api*—ciertamente; *vihātum*—abandonar; *arhati*—poder.

@@ -1,11 +1,11 @@
 ### SB 7.7.15
 
-> ऋषिः कारुणिकस्तस्याः प्रादादुभयमीश्वरः
+> ऋषिः कारुणिकस्तस्याः प्रादादुभयमीश्वरः\
 > धर्मस्य तत्त्वं ज्ञआनं च मामप्युद्दिश्य निर्मलम ॥१५॥
 
-> ṛṣiḥ kāruṇikas tasyāḥ
-> prādād ubhayam īśvaraḥ
-> dharmasya tattvaṁ jñānaṁ ca
+> ṛṣiḥ kāruṇikas tasyāḥ\
+> prādād ubhayam īśvaraḥ\
+> dharmasya tattvaṁ jñānaṁ ca\
 > mām apy uddiśya nirmalam
 
 *ṛṣiḥ*—el gran sabio Nārada Muni; *kāruṇikaḥ*—por naturaleza muy afectuoso o misericordioso con las almas caídas; *tasyāḥ*—a ella; *prādāt*—dio instrucciones; *ubhayam*—a ambos; *īśvaraḥ*—un poderoso controlador que puede hacer todo lo que desee (Nārada Muni); *dharmasya*—de religión; *tattvam*—la verdad; *jñānam*—** conocimiento; *ca*—y; *mām*—a mí; *api*—especialmente; *uddiśya*—indicando; *nirmalam*—sin contaminación material.

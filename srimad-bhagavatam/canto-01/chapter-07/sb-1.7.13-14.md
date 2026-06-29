@@ -1,18 +1,18 @@
 ### SB 1.7.13-14
 
-> यदा मृधे कौरवसृञ्जयानां वीरेष्वथो वीरगतिं गतेषु ।
-> वृकोदराविद्धगदाभिमर्श भग्नोरुदण्डे धृतराष्ट्रपुत्रे ॥१३॥
-> भर्तुः प्रियं द्रौणिरिति स्म पश्यन्कृष्णासुतानां स्वपतां शिरांसि ।
+> यदा मृधे कौरवसृञ्जयानां वीरेष्वथो वीरगतिं गतेषु ।\
+> वृकोदराविद्धगदाभिमर्श भग्नोरुदण्डे धृतराष्ट्रपुत्रे ॥१३॥\
+> भर्तुः प्रियं द्रौणिरिति स्म पश्यन्कृष्णासुतानां स्वपतां शिरांसि ।\
 > उपाहरद्विप्रियमेव तस्य जुगुप्सितं कर्म विगर्हयन्ति ॥१४॥
 
-> yadā mṛdhe kaurava-sṛñjayānāṁ
-> vīreṣv atho vīra-gatiṁ gateṣu
-> vṛkodarāviddha-gadābhimarśa-
+> yadā mṛdhe kaurava-sṛñjayānāṁ\
+> vīreṣv atho vīra-gatiṁ gateṣu\
+> vṛkodarāviddha-gadābhimarśa-\
 > bhagnoru-daṇḍe dhṛtarāṣṭra-putre
 
-> bhartuḥ priyaṁ drauṇir iti sma paśyan
-> kṛṣṇā-sutānāṁ svapatāṁ śirāṁsi
-> upāharad vipriyam eva tasya
+> bhartuḥ priyaṁ drauṇir iti sma paśyan\
+> kṛṣṇā-sutānāṁ svapatāṁ śirāṁsi\
+> upāharad vipriyam eva tasya\
 > jugupsitaṁ karma vigarhayanti
 
 *yadā*—when; *mṛdhe*—in the battlefield; *kaurava*—the party of Dhṛtarāṣṭra; *sṛñjayānām*—of the party of the Pāṇḍavas; *vīreṣu*—of the warriors; *atho*—thus; *vīra-gatim*—the destination deserved by the warriors; *gateṣu*—being obtained; *vṛkodara*—Bhīma (the second Pāṇḍava); *āviddha*—beaten; *gadā*—by the club; *abhimarśa*—lamenting; *bhagna*—broken; *uru-daṇḍe*—spinal cord; *dhṛtarāṣṭra-putre*—the son of King Dhṛtarāṣṭra; *bhartuḥ*—of the master; *priyam*—pleasing; *drauṇiḥ*—the son of Droṇācārya; *iti*—thus; *sma*—shall be; *paśyan*—seeing; *kṛṣṇā*—Draupadī; *sutānām*—of the sons; *svapatām*—while sleeping; *śirāṁsi*—heads; *upāharat*—delivered as a prize; *vipriyam*—pleasing; *eva*—like; *tasya*—his; *jugupsitam*—most heinous; *karma*—act; *vigarhayanti*—disapproving.

@@ -1,9 +1,9 @@
 ### CC Adi 12.77
 
-> এই ত’ কহিলাঙ আচার্য-গোসাঞির গণ ।
+> এই ত’ কহিলাঙ আচার্য-গোসাঞির গণ ।\
 > তিন স্কন্ধ-শাখার কৈল সংক্ষেপ গণন ॥৭৭॥
 
-> ei ta' kahilāṅ ācārya-gosāñira gaṇa
+> ei ta' kahilāṅ ācārya-gosāñira gaṇa\
 > tina skandha-śākhāra kaila saṅkṣepa gaṇana
 
 *ei ta'*—thus; *kahilāṅ*—I have spoken; *ācārya*—Advaita Ācārya; *gosāñira*—of the spiritual master; *gaṇa*—descendants; *tina*—three; *skandha*—of the trunk; *śākhāra*—of branches; *kaila*—was done; *saṅkṣepa*—in brief; *gaṇana*—counting.

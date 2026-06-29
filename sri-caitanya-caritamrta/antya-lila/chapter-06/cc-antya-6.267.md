@@ -1,9 +1,9 @@
 ### CC Antya 6.267
 
-> সেই বিপ্র ভৃত্য, চারি-শত মুদ্রা লঞা ।
+> সেই বিপ্র ভৃত্য, চারি-শত মুদ্রা লঞা ।\
 > নীলাচলে রঘুনাথে মিলিলা আসিয়া ॥২৬৭॥
 
-> sei vipra bhṛtya, cāri-śata mudrā lañā
+> sei vipra bhṛtya, cāri-śata mudrā lañā\
 > nīlācale raghunāthe mililā āsiyā
 
 *sei vipra*—that *brāhmaṇa*; *bhṛtya*—the servants; *cāri-śata mudrā*—four hundred coins; *lañā*—bringing; *nīlācale*—at Jagannātha Purī; *raghunāthe*—with Raghunātha dāsa; *mililā*—met; *āsiyā*—coming.

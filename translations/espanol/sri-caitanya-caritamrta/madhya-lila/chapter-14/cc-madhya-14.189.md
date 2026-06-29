@@ -1,13 +1,13 @@
 ### CC Madhya 14.189
 
-> পুরঃ কৃষ্ণালোকাৎ স্থগিতকুটিলাস্যা গতিরভূৎ
-> তিরশ্চীনং কৃষ্ণাম্বরদরবৃতং শ্রীমুখমপি ।
-> চলত্তারং স্ফারং নয়নযুগমাভুগ্নমিতি সা
+> পুরঃ কৃষ্ণালোকাৎ স্থগিতকুটিলাস্যা গতিরভূৎ\
+> তিরশ্চীনং কৃষ্ণাম্বরদরবৃতং শ্রীমুখমপি ।\
+> চলত্তারং স্ফারং নয়নযুগমাভুগ্নমিতি সা\
 > বিলাসাখ্য-স্বালঙ্করণবলিতাসীৎ প্রিয়মুদে ॥১৮৯॥
 
-> puraḥ kṛṣṇālokāt sthagita-kuṭilāsyā gatir abhūt
-> tiraścīnaṁ kṛṣṇāmbara-dara-vṛtaṁ śrī-mukham api
-> calat-tāraṁ sphāraṁ nayana-yugam ābhugnam iti sā
+> puraḥ kṛṣṇālokāt sthagita-kuṭilāsyā gatir abhūt\
+> tiraścīnaṁ kṛṣṇāmbara-dara-vṛtaṁ śrī-mukham api\
+> calat-tāraṁ sphāraṁ nayana-yugam ābhugnam iti sā\
 > vilāsākhya-svālaṅkaraṇa-valitāsīt priya-mude
 
 *puraḥ*—delante de Ella; *kṛṣṇa-ālokāt*—al ver al Señor Kṛṣṇa; *sthagita-kuṭilā*—se detuvo y adoptó una actitud sinuosa; *asyāḥ*—de Śrīmatī Rādhārāṇī; *gatiḥ*—el avance; *abhūt*—se produjo; *tiraścīnam*—de costado; *kṛṣṇa-ambara*—por un paño azul; *dara-vṛtam*—ligeramente cubierto; *śrī-mukham api*—Su rostro también; *calat-tāram*—como estrellas en movimiento; *sphāram*—amplios; *nayana-yugam*—el par de ojos; *ābhugnam*—muy curvados; *iti*—así; *sā*—Ella (Rādhārāṇī); *vilāsa-ākhya*—llamado vilāsa; *sva-alaṅkaraṇa*—con ornamentos personales; *valita*—decorada; *āsīt*—estaba; *priya-mude*—solo para aumentar el placer de Śrī Kṛṣṇa.

@@ -1,9 +1,9 @@
 ### CC Madhya 25.262
 
-> পঞ্চবিংশতি পরিচ্ছেদে এই কৈলুঁ অনুবাদ ।
+> পঞ্চবিংশতি পরিচ্ছেদে এই কৈলুঁ অনুবাদ ।\
 > যাহার শ্রবণে হয় গ্রন্থার্থ-আস্বাদ ॥২৬২॥
 
-> pañcaviṁśati paricchede ei kailuṅ anuvāda
+> pañcaviṁśati paricchede ei kailuṅ anuvāda\
 > yāhāra śravaṇe haya granthārtha-āsvāda
 
 *pañca-viṁśati paricchede*—in the Twenty-fifth Chapter; *ei*—this; *kailuṅ anuvāda*—I have made repetition; *yāhāra śravaṇe*—hearing which; *haya*—there is; *grantha-artha-āsvāda*—understanding of the whole contents of the book.

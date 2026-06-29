@@ -1,11 +1,11 @@
 ### CC Antya 2.119
 
-> মাত্রা স্বস্রা দুহিত্রা বা নাবিবিক্তাসনো ভবেৎ ।
+> মাত্রা স্বস্রা দুহিত্রা বা নাবিবিক্তাসনো ভবেৎ ।\
 > বলবানিন্দ্রিয়গ্রামো বিদ্বাংসমপি কর্ষতি ॥১১৯॥
 
-> mātrā svasrā duhitrā vā
-> nā viviktāsano bhavet
-> balavān indriya-grāmo
+> mātrā svasrā duhitrā vā\
+> nā viviktāsano bhavet\
+> balavān indriya-grāmo\
 > vidvāṁsam api karṣati
 
 *mātrā*—con la propia madre; *svasrā*—con la propia hermana; *duhitrā*—con la propia hija; *vā*—o; *nā*—no; *vivikta-āsanaḥ*—sentarse junto; *bhavet*—debería haber; *balavān*—muy fuertes; *indriya-grāmaḥ*—el grupo de los sentidos; *vidvāṁsam*—una persona con conocimiento de la liberación; *api*—incluso; *karṣati*—atraen.

@@ -1,9 +1,9 @@
 ### CC Antya 8.74
 
-> খাওয়াঞা পুনঃ তারে করয়ে নিন্দন ।
+> খাওয়াঞা পুনঃ তারে করয়ে নিন্দন ।\
 > ‘এত অন্ন খাও, — তোমার কত আছে ধন? ॥৭৪॥
 
-> khāoyāñā punaḥ tāre karaye nindana
+> khāoyāñā punaḥ tāre karaye nindana\
 > 'eta anna khāo,—tomāra kata āche dhana?
 
 *khāoyāñā*—after feeding; *punaḥ*—again; *tāre*—him; *karaye nindana*—criticizes; *eta*—so much; *anna*—food; *khāo*—you eat; *tomāra*—your; *kata*—how much; *āche*—is there; *dhana*—wealth.

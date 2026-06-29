@@ -1,28 +1,28 @@
 ### SB 3.21.45-47
 
-> प्रविश्य तत्तीर्थवरमादिराजः सहात्मजः ।
-> ददर्श मुनिमासीनं तस्मिन्हुतहुताशनम् ॥४५॥
-> विद्योतमानं वपुषा तपस्युग्रयुजा चिरम् ।
-> नातिक्षामं भगवतः स्निग्धापाङ्गावलोकनात् ।
-> तद्व्याहृतामृतकला पीयूषश्रवणेन च ॥४६॥
-> प्रांशुं पद्मपलाशाक्षं जटिलं चीरवाससम् ।
+> प्रविश्य तत्तीर्थवरमादिराजः सहात्मजः ।\
+> ददर्श मुनिमासीनं तस्मिन्हुतहुताशनम् ॥४५॥\
+> विद्योतमानं वपुषा तपस्युग्रयुजा चिरम् ।\
+> नातिक्षामं भगवतः स्निग्धापाङ्गावलोकनात् ।\
+> तद्व्याहृतामृतकला पीयूषश्रवणेन च ॥४६॥\
+> प्रांशुं पद्मपलाशाक्षं जटिलं चीरवाससम् ।\
 > उपसंश्रित्य मलिनं यथार्हणमसंस्कृतम् ॥४७॥
 
-> praviśya tat tīrtha-varam
-> ādi-rājaḥ sahātmajaḥ
-> dadarśa munim āsīnaṁ
+> praviśya tat tīrtha-varam\
+> ādi-rājaḥ sahātmajaḥ\
+> dadarśa munim āsīnaṁ\
 > tasmin huta-hutāśanam
 
-> vidyotamānaṁ vapuṣā
-> tapasy ugra-yujā ciram
-> nātikṣāmaṁ bhagavataḥ
-> snigdhāpāṅgāvalokanāt
-> tad-vyāhṛtāmṛta-kalā-
+> vidyotamānaṁ vapuṣā\
+> tapasy ugra-yujā ciram\
+> nātikṣāmaṁ bhagavataḥ\
+> snigdhāpāṅgāvalokanāt\
+> tad-vyāhṛtāmṛta-kalā-\
 > pīyūṣa-śravaṇena ca
 
-> prāṁśuṁ padma-palāśākṣaṁ
-> jaṭilaṁ cīra-vāsasam
-> upasaṁśritya malinaṁ
+> prāṁśuṁ padma-palāśākṣaṁ\
+> jaṭilaṁ cīra-vāsasam\
+> upasaṁśritya malinaṁ\
 > yathārhaṇam asaṁskṛtam
 
 *praviśya*—entrando; *tat*—en aquel; *tīrtha-varam*—el mejor de los lugares sagrados; *ādi-rājaḥ*—el primer rey (Svāyambhuva Manu); *saha-ātmajaḥ*—junto con su hija; *dadarśa*—vio; *munim*—al sabio; *āsīnam*—sentado; *tasmin*—en la ermita; *huta*—ofreciendo oblaciones; *huta-aśanam*—al fuego sagrado; *vidyotamānam*—brillando resplandecientemente; *vapuṣā*—de su cuerpo; *tapasi*—en penitencia; *ugra*—terriblemente; *yujā*—dedicado al *yoga*; *ciram*—durante mucho tiempo; *na*—no; *atikṣāmam*—muy demacrado; *bhagavataḥ*—del Señor; *snigdha*—afectuosa; *apāṅga*—oblicua; *avalokanāt*—de la mirada; *tat*—de Él; *vyāhṛta*—de las palabras; *amṛta-kalā*—como la Luna; *pīyūṣa*—el néctar; *śravaṇena*—por oír; *ca*—y; *prāṁśum*—alto; *padma*—flor de loto; *palāśa*—pétalo; *akṣam*—ojos; *jaṭilam*—mechones enmarañados; *cīra-vāsasam*—vestido con harapos; *upasaṁśritya*—habiéndose acercado; *malinam*—desaseado; *yathā*—como; *arhaṇam*—gema; *asaṁskṛtam*—sin pulir.

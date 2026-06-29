@@ -1,9 +1,9 @@
 ### CC Antya 14.122
 
-> সংক্ষেপে কহিয়া করি দিক্ দরশন ।
+> সংক্ষেপে কহিয়া করি দিক্ দরশন ।\
 > যেই ইহা শুনে, পায় কৃষ্ণের চরণ ॥১২২॥
 
-> saṅkṣepe kahiyā kari dik daraśana
+> saṅkṣepe kahiyā kari dik daraśana\
 > yei ihā śune, pāya kṛṣṇera caraṇa
 
 *saṅkṣepe*—brevemente; *kahiyā*—describiendo; *kari dik daraśana*—doy una indicación; *yei*—cualquiera que; *ihā*—esto; *śune*—escuche; *pāya*—obtiene; *kṛṣṇera caraṇa*—el refugio de los pies de loto del Señor Kṛṣṇa.

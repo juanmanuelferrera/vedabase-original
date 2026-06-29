@@ -1,11 +1,11 @@
 ### SB 4.29.34
 
-> नैकान्ततः प्रतीकारः कर्मणां कर्म केवलम् ।
+> नैकान्ततः प्रतीकारः कर्मणां कर्म केवलम् ।\
 > द्वयं ह्यविद्योपसृतं स्वप्ने स्वप्न इवानघ ॥३४॥
 
-> naikāntataḥ pratīkāraḥ
-> karmaṇāṁ karma kevalam
-> dvayaṁ hy avidyopasṛtaṁ
+> naikāntataḥ pratīkāraḥ\
+> karmaṇāṁ karma kevalam\
+> dvayaṁ hy avidyopasṛtaṁ\
 > svapne svapna ivānagha
 
 *na*—nunca; *ekāntataḥ*—en última instancia; *pratīkāraḥ*—neutralización; *karmaṇām*—de distintas actividades; *karma*—otra actividad; *kevalam*—solamente; *dvayam*—ambas; *hi*—porque; *avidyā*—debido a la ilusión; *upasṛtam*—aceptada; *svapne*—en un sueño; *svapnaḥ*—un sueño; *iva*—como; *anagha*—¡oh, tú, que estás libre de actividades pecaminosas!.

@@ -1,11 +1,11 @@
 ### SB 2.10.45
 
-> नास्य कर्मणि जन्मादौ परस्यानुविधीयते ।
+> नास्य कर्मणि जन्मादौ परस्यानुविधीयते ।\
 > कर्तृत्वप्रतिषेधार्थं माययारोपितं हि तत् ॥४५॥
 
-> nāsya karmaṇi janmādau
-> parasyānuvidhīyate
-> kartṛtva-pratiṣedhārthaṁ
+> nāsya karmaṇi janmādau\
+> parasyānuvidhīyate\
+> kartṛtva-pratiṣedhārthaṁ\
 > māyayāropitaṁ hi tat
 
 *na*—never; *asya*—of the creation; *karmaṇi*—in the matter of; *janma-ādau*—creation and destruction; *parasya*—of the Supreme; *anuvidhīyate*—it is so described; *kartṛtva*—engineering; *pratiṣedha-artham*—counteract; *māyayā*—by the external energy; *āropitam*—is manifested; *hi*—for; *tat*—the creator.

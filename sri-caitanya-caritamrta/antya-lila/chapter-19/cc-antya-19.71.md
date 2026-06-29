@@ -1,9 +1,9 @@
 ### CC Antya 19.71
 
-> শঙ্কর করেন প্রভুর পাদ-সম্বাহন ।
+> শঙ্কর করেন প্রভুর পাদ-সম্বাহন ।\
 > ঘুমাঞা পড়েন, তৈছে করেন শয়ন ॥৭১॥
 
-> śaṅkara karena prabhura pāda-samvāhana
+> śaṅkara karena prabhura pāda-samvāhana\
 > ghumāñā paḍena, taiche karena śayana
 
 *śaṅkara*—Śaṅkara; *karena*—does; *prabhura*—of Śrī Caitanya Mahāprabhu; *pāda-samvāhana*—massaging the legs; *ghumāñā paḍena*—he falls asleep; *taiche*—in that way; *karena śayana*—he lies down.

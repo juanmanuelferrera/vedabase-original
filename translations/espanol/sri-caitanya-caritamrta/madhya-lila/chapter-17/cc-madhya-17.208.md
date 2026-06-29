@@ -1,9 +1,9 @@
 ### CC Madhya 17.208
 
-> বৃক্ষডালে শুক-শারী দিল দরশন ।
+> বৃক্ষডালে শুক-শারী দিল দরশন ।\
 > তাহা দেখি’ প্রভুর কিছু শুনিতে হৈল মন ॥২০৮॥
 
-> vṛkṣa-ḍāle śuka-śārī dila daraśana
+> vṛkṣa-ḍāle śuka-śārī dila daraśana\
 > tāhā dekhi' prabhura kichu śunite haila mana
 
 *vṛkṣa-ḍāle*—en la rama de un árbol; *śuka-śārī*—un loro y una lora; *dila*—dieron; *daraśana*—aparición; *tāhā dekhi'*—al ver eso; *prabhura*—de Śrī Caitanya Mahāprabhu; *kichu*—algo; *śunite*—oír; *haila*—hubo; *mana*—deseo.

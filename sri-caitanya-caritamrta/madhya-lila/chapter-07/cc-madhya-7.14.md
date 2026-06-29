@@ -1,9 +1,9 @@
 ### CC Madhya 7.14
 
-> শুনিয়া সবার মনে হৈল মহাদুঃখ ।
+> শুনিয়া সবার মনে হৈল মহাদুঃখ ।\
 > নিঃশব্দ হইলা, সবার শুকাইল মুখ ॥১৪॥
 
-> śuniyā sabāra mane haila mahā-duḥkha
+> śuniyā sabāra mane haila mahā-duḥkha\
 > niḥśabda ha-ilā, sabāra śukāila mukha
 
 *śuniyā*—hearing this; *sabāra*—of all the devotees; *mane*—in the minds; *haila*—there was; *mahā-duḥkha*—great unhappiness; *niḥśabda*—silent; *ha-ilā*—became; *sabāra*—of everyone; *śukāila*—dried up; *mukha*—the faces.

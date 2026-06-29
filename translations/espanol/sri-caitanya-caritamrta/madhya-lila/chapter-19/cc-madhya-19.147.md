@@ -1,9 +1,9 @@
 ### CC Madhya 19.147
 
-> ধর্মাচারি-মধ্যে বহুত ‘কর্মনিষ্ঠ’ ।
+> ধর্মাচারি-মধ্যে বহুত ‘কর্মনিষ্ঠ’ ।\
 > কোটি-কর্মনিষ্ঠ-মধ্যে এক ‘জ্ঞানী’ শ্রেষ্ঠ ॥১৪৭॥
 
-> dharmācāri-madhye bahuta 'karma-niṣṭha'
+> dharmācāri-madhye bahuta 'karma-niṣṭha'\
 > koṭi-karma-niṣṭha-madhye eka jñānī' śreṣṭha
 
 *dharma-ācāri-madhye*—entre las personas que realmente siguen los principios Védicos o el sistema religioso; *bahuta*—muchos de ellos; *karma-niṣṭha*—apegados a las actividades fruitivas; *koṭi-karma-niṣṭha-madhye*—entre millones de tales ejecutores de actividades fruitivas conforme a los principios Védicos; *eka*—uno; *jñānī*—hombre sabio; *śreṣṭha*—el principal.

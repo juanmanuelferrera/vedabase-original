@@ -1,11 +1,11 @@
 ### SB 6.2.42
 
-> यर्ह्युपारतधीस्तस्मिन्नद्राक्षीत्पुरुषान्पुरः
+> यर्ह्युपारतधीस्तस्मिन्नद्राक्षीत्पुरुषान्पुरः\
 > उपलभ्योपलब्धान्प्राग्ववन्दे शिरसा द्विजः ॥४२॥
 
-> yarhy upārata-dhīs tasminn
-> adrākṣīt puruṣān puraḥ
-> upalabhyopalabdhān prāg
+> yarhy upārata-dhīs tasminn\
+> adrākṣīt puruṣān puraḥ\
+> upalabhyopalabdhān prāg\
 > vavande śirasā dvijaḥ
 
 *yarhi*—when; *upārata-dhīḥ*—his mind and intelligence were fixed; *tasmin*—at that time; *adrākṣīt*—had seen; *puruṣān*—the persons (the order carriers of Lord Viṣṇu); *puraḥ*—before him; *upalabhya*—getting; *upalabdhān*—who were gotten; *prāk*—previously; *vavande*—offered obeisances; *śirasā*—by the head; *dvijaḥ*—the *brāhmaṇa.*

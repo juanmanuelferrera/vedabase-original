@@ -1,9 +1,9 @@
 ### CC Madhya 7.87
 
-> শুনি’ শুনি’ লোক-সব আসি’ বহির্দ্বারে ৷
+> শুনি’ শুনি’ লোক-সব আসি’ বহির্দ্বারে ৷\
 > ‘হরি’ ‘হরি’ বলি’ লোক কোলাহল করে ৷৷ ৮৭ ৷৷ ॥৮৭॥
 
-> śuni' śuni' loka-saba āsi' bahir-dvāre
+> śuni' śuni' loka-saba āsi' bahir-dvāre\
 > 'hari' 'hari' bali' loka kolāhala kare
 
 *śuni' śuni'*—al oír esto; *loka-saba*—toda la gente; *āsi'*—acudiendo allí; *bahir-dvāre*—a la puerta exterior; *hari hari*—el santo nombre del Señor; *bali'*—cantando; *loka*—toda la gente; *kolāhala*—sonido tumultuoso; *kare*—producía.

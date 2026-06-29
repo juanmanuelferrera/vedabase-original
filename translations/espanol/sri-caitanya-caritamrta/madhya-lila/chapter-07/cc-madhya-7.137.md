@@ -1,9 +1,9 @@
 ### CC Madhya 7.137
 
-> অঙ্গ হৈতে যেই কীড়া খসিয়া পড়য় ৷
+> অঙ্গ হৈতে যেই কীড়া খসিয়া পড়য় ৷\
 > উঠাঞা সেই কীড়া রাখে সেই ঠাঞ ৷৷ ১৩৭ ৷৷ ॥১৩৭॥
 
-> aṅga haite yei kīḍā khasiyā paḍaya
+> aṅga haite yei kīḍā khasiyā paḍaya\
 > uṭhāñā sei kīḍā rākhe sei ṭhāña
 
 *aṅga haite*—de su cuerpo; *yei*—el cual; *kīḍā*—un gusano; *khasiyā*—se desprendía; *paḍaya*—cayendo; *uṭhāñā*—recogiéndolo; *sei*—ese; *kīḍā*—gusano; *rākhe*—colocaba; *sei ṭhāña*—en el mismo lugar.

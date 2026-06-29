@@ -1,13 +1,13 @@
 ### SB 7.5.15
 
-> श्रीनारद उवाच
-> एतावद्ब्राह्मणायोक्त्वा विरराम महामतिः
+> श्रीनारद उवाच\
+> एतावद्ब्राह्मणायोक्त्वा विरराम महामतिः\
 > तं सन्निभर्त्स्य कुपितः सुदीनो राजसेवकः ॥१५॥
 
-> śrī-nārada uvāca
-> etāvad brāhmaṇāyoktvā
-> virarāma mahā-matiḥ
-> taṁ sannibhartsya kupitaḥ
+> śrī-nārada uvāca\
+> etāvad brāhmaṇāyoktvā\
+> virarāma mahā-matiḥ\
+> taṁ sannibhartsya kupitaḥ\
 > sudīno rāja-sevakaḥ
 
 *śrī-nāradaḥ uvāca*—Nārada Muni dijo; *etāvat*—esto; *brāhmaṇāya*—a los *brāhmaṇas*, los hijos de Śukrācārya; *uktvā*—tras hablar; *virarāma*—guardó silencio; *mahā-matiḥ*—Prahlāda Mahārāja, que poseía una gran inteligencia; *tam*—a él (a Prahlāda Mahārāja); *sannibhartsya*—reñir con gran aspereza; *kupitaḥ*—enfadados; *su-dīnaḥ*—pobres en pensamiento, o muy afligidos; *rāja-sevakaḥ*—los sirvientes del rey Hiraṇyakaśipu.

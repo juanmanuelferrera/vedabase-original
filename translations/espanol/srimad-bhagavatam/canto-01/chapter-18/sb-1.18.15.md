@@ -1,11 +1,11 @@
 ### SB 1.18.15
 
-> तन्नो भवान्वै भगवत्प्रधानो महत्तमैकान्तपरायणस्य ।
+> तन्नो भवान्वै भगवत्प्रधानो महत्तमैकान्तपरायणस्य ।\
 > हरेरुदारं चरितं विशुद्धं शुश्रूषतां नो वितनोतु विद्वन् ॥१५॥
 
-> tan no bhavān vai bhagavat-pradhāno
-> mahattamaikānta-parāyaṇasya
-> harer udāraṁ caritaṁ viśuddhaṁ
+> tan no bhavān vai bhagavat-pradhāno\
+> mahattamaikānta-parāyaṇasya\
+> harer udāraṁ caritaṁ viśuddhaṁ\
 > śuśrūṣatāṁ no vitanotu vidvan
 
 *tat*—en consecuencia; *naḥ*—de nosotros; *bhavān*—tu buena persona; *vai*—ciertamente; *bhagavat*—en relación con la Personalidad de Dios; *pradhānaḥ*—principalmente; *mahat-tama*—el más grande de todos los grandes; *ekānta*—exclusivamente; *parāyaṇasya*—del refugio; *hareḥ*—del Señor; *udāram*—imparcial; *caritam*—actividades; *viśuddham*—trascendental; *śuśrūṣatām*—aquellos que son receptivos; *naḥ*—nosotros; *vitanotu*—ten la bondad de describir; *vidvan*—¡oh, tú, el erudito!.

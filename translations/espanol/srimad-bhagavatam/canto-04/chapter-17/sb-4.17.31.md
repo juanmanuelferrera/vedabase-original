@@ -1,11 +1,11 @@
 ### SB 4.17.31
 
-> य एतदादावसृजच्चराचरं स्वमाययात्माश्रययावितर्क्यया ।
+> य एतदादावसृजच्चराचरं स्वमाययात्माश्रययावितर्क्यया ।\
 > तयैव सोऽयं किल गोप्तुमुद्यतः कथं नु मां धर्मपरो जिघांसति ॥३१॥
 
-> ya etad ādāv asṛjac carācaraṁ
-> sva-māyayātmāśrayayāvitarkyayā
-> tayaiva so 'yaṁ kila goptum udyataḥ
+> ya etad ādāv asṛjac carācaraṁ\
+> sva-māyayātmāśrayayāvitarkyayā\
+> tayaiva so 'yaṁ kila goptum udyataḥ\
 > kathaṁ nu māṁ dharma-paro jighāṁsati
 
 *yaḥ*—el que; *etat*—esas; *ādau*—al principio de la creación; *asṛjat*—creó; *cara-acaram*—entidades vivientes móviles e inmóviles; *sva-māyayā*—por su propia potencia; *ātma-āśrayayā*—refugiadas bajo su propia potencia; *avitarkyayā*—inconcebible; *tayā*—por esa misma *māyā*; *eva*—ciertamente; *saḥ*—él; *ayam*—este rey; *kila*—ciertamente; *goptum udyataḥ*—dispuesto a dar protección; *katham*—cómo; *nu*—entonces; *mām*—a mí; *dharma-paraḥ*—el que sigue estrictamente los principios religiosos; *jighāṁsati*—desea matar.

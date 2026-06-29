@@ -1,11 +1,11 @@
 ### SB 2.5.5
 
-> आत्मन्भावयसे तानि न पराभावयन्स्वयम् ।
+> आत्मन्भावयसे तानि न पराभावयन्स्वयम् ।\
 > आत्मशक्तिमवष्टभ्य ऊर्णनाभिरिवाक्लमः ॥५॥
 
-> ātman bhāvayase tāni
-> na parābhāvayan svayam
-> ātma-śaktim avaṣṭabhya
+> ātman bhāvayase tāni\
+> na parābhāvayan svayam\
+> ātma-śaktim avaṣṭabhya\
 > ūrṇanābhir ivāklamaḥ
 
 *ātman (ātmani)*—por sí solo; *bhāvayase*—manifiesto; *tāni*—todos esos; *na*—no; *parābhāvayan*—siendo vencido; *svayam*—tú mismo; *ātma-śaktim*—poder autosuficiente; *avaṣṭabya*—siendo empleado; *ūrṇanābhiḥ*—una araña; *iva*—cómo; *aklamaḥ*—sin ayuda.

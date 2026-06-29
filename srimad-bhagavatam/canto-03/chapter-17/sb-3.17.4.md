@@ -1,11 +1,11 @@
 ### SB 3.17.4
 
-> सहाचला भुवश्चेलुर्दिशः सर्वाः प्रजज्वलुः ।
+> सहाचला भुवश्चेलुर्दिशः सर्वाः प्रजज्वलुः ।\
 > सोल्काश्चाशनयः पेतुः केतवश्चार्तिहेतवः ॥४॥
 
-> sahācalā bhuvaś celur
-> diśaḥ sarvāḥ prajajvaluḥ
-> solkāś cāśanayaḥ petuḥ
+> sahācalā bhuvaś celur\
+> diśaḥ sarvāḥ prajajvaluḥ\
+> solkāś cāśanayaḥ petuḥ\
 > ketavaś cārti-hetavaḥ
 
 *saha*—along with; *acalāḥ*—the mountains; *bhuvaḥ*—of the earth; *celuḥ*—shook; *diśaḥ*—directions; *sarvāḥ*—all; *prajajvaluḥ*—blazed like fire; *sa*—with; *ulkāḥ*—meteors; *ca*—and; *aśanayaḥ*—thunderbolts; *petuḥ*—fell; *ketavaḥ*—comets; *ca*—and; *ārti-hetavaḥ*—the cause of all inauspiciousness.

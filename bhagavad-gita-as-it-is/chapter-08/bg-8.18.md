@@ -1,11 +1,11 @@
 ### Bg 8.18
 
-> अव्यक्ताद् व्यक्तयः सर्वाः प्रभवन्त्यहरागमे ।
+> अव्यक्ताद् व्यक्तयः सर्वाः प्रभवन्त्यहरागमे ।\
 > रात्र्यागमे प्रलीयन्ते तत्रैवाव्यक्तसंज्ञके ॥१८॥
 
-> avyaktād vyaktayaḥ sarvāḥ
-> prabhavanty ahar-āgame
-> rātry-āgame pralīyante
+> avyaktād vyaktayaḥ sarvāḥ\
+> prabhavanty ahar-āgame\
+> rātry-āgame pralīyante\
 > tatraivāvyakta-saṁjñake
 
 *avyaktāt*—from the unmanifest; *vyaktayaḥ*—living entities; *sarvāḥ*—all; *prabhavanti*—come into being; *ahaḥ-āgame*—at the beginning of the day; *rātri-āgame*—at the fall of night; *pralīyante*—are annihilated; *tatra*—there; *eva*—certainly; *avyakta*—the unmanifest; *saṁjñake*—called.

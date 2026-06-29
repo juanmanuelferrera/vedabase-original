@@ -1,18 +1,18 @@
 ### SB 6.18.27-28
 
-> इति भावेन सा भर्तुराचचारासकृत्प्रियम
-> शुश्रूषयानुरागेण प्रश्रयेण दमेन च ॥२७॥
-> भक्त्या परमया राजन्मनोज्ञऐर्वल्गुभाषितैः
+> इति भावेन सा भर्तुराचचारासकृत्प्रियम\
+> शुश्रूषयानुरागेण प्रश्रयेण दमेन च ॥२७॥\
+> भक्त्या परमया राजन्मनोज्ञऐर्वल्गुभाषितैः\
 > मनो जग्राह भावज्ञआ सस्मितापाङ्गवीक्षणैः ॥२८॥
 
-> iti bhāvena sā bhartur
-> ācacārāsakṛt priyam
-> śuśrūṣayānurāgeṇa
+> iti bhāvena sā bhartur\
+> ācacārāsakṛt priyam\
+> śuśrūṣayānurāgeṇa\
 > praśrayeṇa damena ca
 
-> bhaktyā paramayā rājan
-> manojñair valgu-bhāṣitaiḥ
-> mano jagrāha bhāva-jñā
+> bhaktyā paramayā rājan\
+> manojñair valgu-bhāṣitaiḥ\
+> mano jagrāha bhāva-jñā\
 > sasmitāpāṅga-vīkṣaṇaiḥ
 
 *iti*—thus; *bhāvena*—with the intention; *sā*—she; *bhartuḥ*—of the husband; *ācacāra*—performed; *asakṛt*—constantly; *priyam*—pleasing activities; *śuśrūṣayā*—with service; *anurāgeṇa*—with love; *praśrayeṇa*—with humility; *damena*—with self-control; *ca*—also; *bhaktyā*—with devotion; *paramayā*—great; *rājan*—O King; *manojñaiḥ*—charming; *valgu-bhāṣitaiḥ*—with sweet words; *manaḥ*—his mind; *jagrāha*—brought under her control; *bhāva-jñā*—knowing his nature; *sa-smita*—with smiling; *apāṅga-vīkṣaṇaiḥ*—by glancing.

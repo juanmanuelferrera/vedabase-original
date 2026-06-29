@@ -1,9 +1,9 @@
 ### CC Madhya 16.188
 
-> সেই কহে, — ‘মোরে যদি কৈলা অঙ্গীকার ।
+> সেই কহে, — ‘মোরে যদি কৈলা অঙ্গীকার ।\
 > এক আজ্ঞা দেহ, — সেবা করি যে তোমার ॥১৮৮॥
 
-> sei kahe,--'more yadi kailā aṅgīkāra
+> sei kahe,--'more yadi kailā aṅgīkāra\
 > eka ājñā deha,--sevā kari ye tomāra
 
 *sei kahe*—el gobernador mahometano dijo; *more*—a mí; *yadi*—si; *kailā aṅgīkāra*—me habéis aceptado; *eka ājñā*—una orden; *deha*—dadme; *sevā*—servicio; *kari*—pueda prestar; *ye*—para que; *tomāra*—Vuestro.

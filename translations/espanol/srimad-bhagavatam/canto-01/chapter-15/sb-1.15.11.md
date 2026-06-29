@@ -1,11 +1,11 @@
 ### SB 1.15.11
 
-> यो नो जुगोप वन एत्य दुरन्तकृच्छ्राद्दुर्वाससोऽरिरचितादयुताग्रभुग्यः ।
+> यो नो जुगोप वन एत्य दुरन्तकृच्छ्राद्दुर्वाससोऽरिरचितादयुताग्रभुग्यः ।\
 > शाकान्नशिष्टमुपयुज्य यतस्त्रिलोकीं तृप्ताममंस्त सलिले विनिमग्नसङ्घः ॥११॥
 
-> yo no jugopa vana etya duranta-kṛcchrād
-> durvāsaso 'ri-racitād ayutāgra-bhug yaḥ
-> śākānna-śiṣṭam upayujya yatas tri-lokīṁ
+> yo no jugopa vana etya duranta-kṛcchrād\
+> durvāsaso 'ri-racitād ayutāgra-bhug yaḥ\
+> śākānna-śiṣṭam upayujya yatas tri-lokīṁ\
 > tṛptām amaṁsta salile vinimagna-saṅghaḥ
 
 *yaḥ*—aquel que; *naḥ*—nosotros; *jugopa*—brindó protección; *vane*—bosque; *etya*—entrando; *duranta*—peligrosamente; *kṛcchrāt*—dificultad; *durvāsasaḥ*—de Durvāsā Muni; *ari*—enemigo; *racitāt*—fabricado por; *ayuta*—diez mil; *agra-bhuk*—aquel que come antes; *yaḥ*—esa persona; *śāka-anna-śiṣṭam*—remanentes de comida; *upayujya*—habiendo aceptado; *yataḥ*—debido a; *tri-lokīm*—todos los tres mundos; *tṛptām*—satisfecho; *amaṁsta*—pensó para sus adentros; *salile*—mientras estaban en el agua; *vinimagna-saṅghaḥ*—sumergidos todos en el agua.

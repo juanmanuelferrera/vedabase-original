@@ -1,13 +1,13 @@
 ### SB 9.18.1
 
-> श्रीशुक उवाच
-> यतिर्ययातिः संयातिरायतिर्वियतिः कृतिः
+> श्रीशुक उवाच\
+> यतिर्ययातिः संयातिरायतिर्वियतिः कृतिः\
 > षडिमे नहुषस्यासन्निन्द्रियाणीव देहिनः ॥१॥
 
-> śrī-śuka uvāca
-> yatir yayātiḥ saṁyātir
-> āyatir viyatiḥ kṛtiḥ
-> ṣaḍ ime nahuṣasyāsann
+> śrī-śuka uvāca\
+> yatir yayātiḥ saṁyātir\
+> āyatir viyatiḥ kṛtiḥ\
+> ṣaḍ ime nahuṣasyāsann\
 > indriyāṇīva dehinaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *yatiḥ*—Yati; *yayātiḥ*—Yayāti; *saṁyātiḥ*—Saṁyāti; *āyatiḥ*—Āyati; *viyatiḥ*—Viyati; *kṛtiḥ*—Kṛti; *ṣaṭ*—seis; *ime*—todos ellos; *nahuṣasya*—del rey Nahuṣa; *āsan*—fueron; *indriyāṇi*—los (seis) sentidos; *iva*—como; *dehinaḥ*—de un alma encarnada.

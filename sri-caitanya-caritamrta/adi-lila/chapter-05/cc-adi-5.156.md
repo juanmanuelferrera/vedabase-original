@@ -1,9 +1,9 @@
 ### CC Adi 5.156
 
-> শ্রীচৈতন্য — সেই কৃষ্ণ, নিত্যানন্দ — রাম ।
+> শ্রীচৈতন্য — সেই কৃষ্ণ, নিত্যানন্দ — রাম ।\
 > নিত্যানন্দ পূর্ণ করে চৈতন্যের কাম ॥১৫৬॥
 
-> śrī-caitanya—sei kṛṣṇa, nityānanda—rāma
+> śrī-caitanya—sei kṛṣṇa, nityānanda—rāma\
 > nityānanda pūrṇa kare caitanyera kāma
 
 *śrī-caitanya*—Lord Śrī Caitanya; *sei kṛṣṇa*—that original Kṛṣṇa; *nityānanda*—Lord Nityānanda; *rāma*—Balarāma; *nityānanda*—Lord Nityānanda; *pūrṇa kare*—fulfills; *caitanyera kāma*—all the desires of Lord Śrī Caitanya Mahāprabhu.

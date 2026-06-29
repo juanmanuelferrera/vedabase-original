@@ -1,9 +1,9 @@
 ### CC Madhya 7.128
 
-> যারে দেখ, তারে কহ ‘কৃষ্ণ’ উপদেশ ৷
+> যারে দেখ, তারে কহ ‘কৃষ্ণ’ উপদেশ ৷\
 > আমার আজ্ঞায় গুরু হঞা তার’ এই দেশ ৷৷ ১২৮ ৷৷ ॥১২৮॥
 
-> yāre dekha, tāre kaha 'kṛṣṇa'-upadeśa
+> yāre dekha, tāre kaha 'kṛṣṇa'-upadeśa\
 > āmāra ājñāya guru hañā tāra' ei deśa
 
 *yāre*—a quienquiera; *dekha*—que encuentres; *tāre*—a él; *kaha*—dile; *kṛṣṇa-upadeśa*—la instrucción del *Bhagavad-gītā* tal como la habla el Señor, o del *Śrīmad-Bhāgavatam*, que aconseja adorar a Śrī Kṛṣṇa; *āmāra ājñāya*—por Mi orden; *guru hañā*—convirtiéndote en maestro espiritual; *tāra'*—libera; *ei deśa*—este país.

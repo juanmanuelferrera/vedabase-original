@@ -1,9 +1,9 @@
 ### CC Adi 1.58
 
-> জীবে সাক্ষাৎ নাহি তাতে গুরু চৈত্ত্যরূপে ।
+> জীবে সাক্ষাৎ নাহি তাতে গুরু চৈত্ত্যরূপে ।\
 > শিক্ষাগুরু হয় কৃষ্ণ মহান্তস্বরূপে ॥৫৮॥
 
-> jīve sākṣāt nāhi tāte guru caittya-rūpe
+> jīve sākṣāt nāhi tāte guru caittya-rūpe\
 > śikṣā-guru haya kṛṣṇa-mahānta-svarūpe
 
 *jīve*—by the living entity; *sākṣāt*—direct experience; *nāhi*—there is not; *tāte*—therefore; *guru*—the spiritual master; *caittya-rūpe*—in the form of the Supersoul; *śikṣā-guru*—the spiritual master who instructs; *haya*—appears; *kṛṣṇa*—Kṛṣṇa, the Supreme Personality of Godhead; *mahānta*—the topmost devotee; *sva-rūpe*—in the form of.

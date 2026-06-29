@@ -1,13 +1,13 @@
 ### SB 6.3.27
 
-> ते देवसिद्धपरिगीतपवित्रगाथा
-> ये साधवः समदृशो भगवत्प्रपन्नाः
-> तान्नोपसीदत हरेर्गदयाभिगुप्तान
+> ते देवसिद्धपरिगीतपवित्रगाथा\
+> ये साधवः समदृशो भगवत्प्रपन्नाः\
+> तान्नोपसीदत हरेर्गदयाभिगुप्तान\
 > नैषां वयं न च वयः प्रभवाम दण्डे ॥२७॥
 
-> te deva-siddha-parigīta-pavitra-gāthā
-> ye sādhavaḥ samadṛśo bhagavat-prapannāḥ
-> tān nopasīdata harer gadayābhiguptān
+> te deva-siddha-parigīta-pavitra-gāthā\
+> ye sādhavaḥ samadṛśo bhagavat-prapannāḥ\
+> tān nopasīdata harer gadayābhiguptān\
 > naiṣāṁ vayaṁ na ca vayaḥ prabhavāma daṇḍe
 
 *te*—ellos; *deva*—por los semidioses; *siddha*—y los habitantes de Siddhaloka; *parigīta*—cantadas; *pavitra-gāthāḥ*—cuyas narraciones puras; *ye*—quienes; *sādhavaḥ*—devotos; *samadṛśaḥ*—que ven a todo el mundo con ecuanimidad; *bhagavat-prapannāḥ*—entregados a la Suprema Personalidad de Dios; *tān*—a ellos; *na*—no; *upasīdata*—deben acercarse; *hareḥ*—de la Suprema Personalidad de Dios; *gadayā*—por la maza; *abhiguptān*—completamente protegidos; *na*—no; *eṣām*—de estos; *vayam*—nosotros; *na ca*—ni tampoco; *vayaḥ*—el tiempo ilimitado; *prabhavāma*—están autorizados; *daṇḍe*—a castigar.

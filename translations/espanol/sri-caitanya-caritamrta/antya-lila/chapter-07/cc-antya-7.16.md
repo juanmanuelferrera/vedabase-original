@@ -1,9 +1,9 @@
 ### CC Antya 7.16
 
-> মহাপ্রভু কহে — “শুন, ভট্ট মহামতি ।
+> মহাপ্রভু কহে — “শুন, ভট্ট মহামতি ।\
 > মায়াবাদী সন্ন্যাসী আমি, না জানি কৃষ্ণভক্তি ॥১৬॥
 
-> mahāprabhu kahe--"śuna, bhaṭṭa mahā-mati
+> mahāprabhu kahe--"śuna, bhaṭṭa mahā-mati\
 > māyāvādī sannyāsī āmi, nā jāni kṛṣṇa-bhakti
 
 *mahāprabhu kahe*—Śrī Caitanya Mahāprabhu respondió; *śuna*—por favor escucha; *bhaṭṭa*—Mi querido Vallabha Bhaṭṭa; *mahā-mati*—gran erudito; *māyāvādī*—de la escuela māyāvādī; *sannyāsī*—sannyāsī; *āmi*—Yo; *nā jāni*—no sé; *kṛṣṇa-bhakti*—servicio devocional a Kṛṣṇa.

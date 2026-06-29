@@ -1,13 +1,13 @@
 ### CC Madhya 22.40
 
-> সত্যং দিশত্যর্থিতমর্থিতো নৃণাং
-> নৈবার্থদো যৎ পুনরর্থিতা যতঃ ।
-> স্বয়ং বিধত্তে ভজতামনিচ্ছতা-
+> সত্যং দিশত্যর্থিতমর্থিতো নৃণাং\
+> নৈবার্থদো যৎ পুনরর্থিতা যতঃ ।\
+> স্বয়ং বিধত্তে ভজতামনিচ্ছতা-\
 > মিচ্ছাপিধানং নিজপাদপল্লবম্ ॥৪০॥
 
-> satyaṁ diśaty arthitam arthito nṛṇāṁ
-> naivārthado yat punar arthitā yataḥ
-> svayaṁ vidhatte bhajatām anicchatām
+> satyaṁ diśaty arthitam arthito nṛṇāṁ\
+> naivārthado yat punar arthitā yataḥ\
+> svayaṁ vidhatte bhajatām anicchatām\
 > icchā-pidhānaṁ nija-pāda-pallavam
 
 *satyam*—es verdad; *diśati*—Él concede; *arthitam*—lo que se desea; *arthitaḥ*—cuando se Le pide; *nṛṇām*—por los seres humanos; *na*—no; *eva*—ciertamente; *artha-daḥ*—concediendo lo deseado; *yat*—lo cual; *punaḥ*—de nuevo; *arthitā*—petición; *yataḥ*—de la cual; *svayam*—Él mismo; *vidhatte*—concede; *bhajatām*—de aquellos que se ocupan en el servicio devocional; *anicchatām*—aunque no lo deseen; *icchā-pidhānam*—cubriendo todos los demás deseos; *nija-pāda-pallavam*—el refugio de Sus propios pies de loto.

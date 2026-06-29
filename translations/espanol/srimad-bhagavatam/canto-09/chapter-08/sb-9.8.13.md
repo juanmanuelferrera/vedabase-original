@@ -1,11 +1,11 @@
 ### SB 9.8.13
 
-> न साधुवादो मुनिकोपभर्जिता नृपेन्द्रपुत्रा इति सत्त्वधामनि
+> न साधुवादो मुनिकोपभर्जिता नृपेन्द्रपुत्रा इति सत्त्वधामनि\
 > कथं तमो रोषमयं विभाव्यते जगत्पवित्रात्मनि खे रजो भुवः ॥१३॥
 
-> yasyeritā sāṅkhyamayī dṛḍheha naur
-> yayā mumukṣus tarate duratyayam
-> bhavārṇavaṁ mṛtyu-pathaṁ vipaścitaḥ
+> yasyeritā sāṅkhyamayī dṛḍheha naur\
+> yayā mumukṣus tarate duratyayam\
+> bhavārṇavaṁ mṛtyu-pathaṁ vipaścitaḥ\
 > parātma-bhūtasya kathaṁ pṛthaṅ-matiḥ
 
 *yasya*—por quien; *īritā*—ha sido explicada; *sāṅkhya-mayī*—en forma de la filosofía que analiza el mundo material (la filosofía *sāṅkhya*); *dṛḍhā*—muy sólida (para liberar a la gente del mundo material); *iha*—en el mundo material; *nauḥ*—una nave; *yayā*—con la cual; *mumukṣuḥ*—la persona que desee liberarse; *tarate*—puede cruzar; *duratyayam*—muy difícil de cruzar; *bhava-arṇavam*—el océano de la nesciencia; *mṛtyu-patham*—una vida material en el ciclo de nacimientos y muertes; *vipaścitaḥ*—de la persona sabia; *parātma-bhūtasya*—que se ha elevado al plano trascendental; *katham*—cómo; *pṛthak-matiḥ*—la idea de distinción (entre amigos y enemigos).

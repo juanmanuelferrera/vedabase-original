@@ -1,9 +1,9 @@
 ### CC Adi 10.66
 
-> ‘রত্নবাহু’ বলি’ প্রভু থুইল তাঁর নাম ।
+> ‘রত্নবাহু’ বলি’ প্রভু থুইল তাঁর নাম ।\
 > অকিঞ্চন প্রভুর প্রিয় কৃষ্ণদাস-নাম ॥৬৬॥
 
-> 'ratnabāhu' bali' prabhu thuila tāṅra nāma
+> 'ratnabāhu' bali' prabhu thuila tāṅra nāma\
 > akiñcana prabhura priya kṛṣṇadāsa-nāma
 
 *ratnabāhu*—el título Ratnabāhu; *bali'*—llamándole; *prabhu*—el Señor; *thuila*—puso; *tāṅra*—su; *nāma*—nombre; *akiñcana*—sin posesiones; *prabhura*—del Señor; *priya*—querido; *kṛṣṇadāsa*—de nombre Kṛṣṇadāsa; *nāma*—nombre.

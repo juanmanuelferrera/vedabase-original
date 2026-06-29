@@ -1,13 +1,13 @@
 ### SB 7.9.29
 
-> मत्प्राणरक्षणमनन्त पितुर्वधश्च
-> मन्ये स्वभृत्यऋषिवाक्यमृतं विधातुम
-> खड्गं प्रगृह्य यदवोचदसद्विधित्सुस
+> मत्प्राणरक्षणमनन्त पितुर्वधश्च\
+> मन्ये स्वभृत्यऋषिवाक्यमृतं विधातुम\
+> खड्गं प्रगृह्य यदवोचदसद्विधित्सुस\
 > त्वामीश्वरो मदपरोऽवतु कं हरामि ॥२९॥
 
-> mat-prāṇa-rakṣaṇam ananta pitur vadhaś ca
-> manye sva-bhṛtya-ṛṣi-vākyam ṛtaṁ vidhātum
-> khaḍgaṁ pragṛhya yad avocad asad-vidhitsus
+> mat-prāṇa-rakṣaṇam ananta pitur vadhaś ca\
+> manye sva-bhṛtya-ṛṣi-vākyam ṛtaṁ vidhātum\
+> khaḍgaṁ pragṛhya yad avocad asad-vidhitsus\
 > tvām īśvaro mad-aparo 'vatu kaṁ harāmi
 
 *mat-prāṇa-rakṣaṇam*—saving my life; *ananta*—O unlimited one, reservoir of unlimited transcendental qualities; *pituḥ*—of my father; *vadhaḥ ca*—and killing; *manye*—I consider; *sva-bhṛtya*—of Your unalloyed servants; *ṛṣi-vākyam*—and the words of the great saint Nārada; *ṛtam*—true; *vidhātum*—to prove; *khaḍgam*—sword; *pragṛhya*—taking in hand; *yat*—since; *avocat*—my father said; *asat-vidhitsuḥ*—desiring to act very impiously; *tvām*—You; *īśvaraḥ*—any supreme controller; *mat-aparaḥ*—other than me; *avatu*—let him save; *kam*—your head; *harāmi*—I shall now separate.

@@ -1,9 +1,9 @@
 ### CC Antya 20.20
 
-> যেরূপে লইলে নাম প্রেম উপজয় ।
+> যেরূপে লইলে নাম প্রেম উপজয় ।\
 > তাহার লক্ষণ শুন, স্বরূপ-রামরায় ॥২০॥
 
-> ye-rūpe la-ile nāma prema upajaya
+> ye-rūpe la-ile nāma prema upajaya\
 > tāhāra lakṣaṇa śuna, svarūpa-rāma-rāya
 
 *ye-rūpe*—por cuyo proceso; *la-ile*—si se canta; *nāma*—el santo nombre; *prema upajaya*—se despierta el amor latente por Kṛṣṇa; *tāhāra lakṣaṇa śuna*—escuchad tan solo el síntoma de eso; *svarūpa-rāma-rāya*—¡oh, Svarūpa Dāmodara y Rāmānanda Rāya!.

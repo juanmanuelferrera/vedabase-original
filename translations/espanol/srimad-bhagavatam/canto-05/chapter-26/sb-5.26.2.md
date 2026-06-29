@@ -1,9 +1,9 @@
 ### SB 5.26.2
 
-> ṛṣir uvāca
+> ṛṣir uvāca\
 > tri-guṇatvāt kartuḥ śraddhayā karma-gatayaḥ pṛthag-vidhāḥ sarvā eva sarvasya tāratamyena bhavanti.
 
-> ṛṣir uvāca
+> ṛṣir uvāca\
 > tri-guṇatvāt kartuḥ śraddhayā karma-gatayaḥ pṛthag-vidhāḥ sarvā eva sarvasya tāratamyena bhavanti.
 
 *ṛṣiḥ uvāca*—el gran santo (Śukadeva Gosvāmī) dijo; *tri-guṇatvāt*—debido a las tres modalidades de la naturaleza material; *kartuḥ*—del que actúa; *śraddhayā*—debido a la actitud; *karma-gatayaḥ*—destinos que son resultado de la actividad; *pṛthak*—distintos; *vidhāḥ*—diversidades; *sarvāḥ*—todas; *eva*—así; *sarvasya*—de todas ellas; *tāratamyena*—en distintos grados; *bhavanti*—se hacen posibles.

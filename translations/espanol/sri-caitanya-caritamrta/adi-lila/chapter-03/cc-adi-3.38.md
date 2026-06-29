@@ -1,9 +1,9 @@
 ### CC Adi 3.38
 
-> ইদানীং দ্বাপরে তিঁহো হৈলা কৃষ্ণবর্ণ ।
+> ইদানীং দ্বাপরে তিঁহো হৈলা কৃষ্ণবর্ণ ।\
 > এই সব শাস্ত্রাগম-পুরাণের মর্ম ॥৩৮॥
 
-> idānīṁ dvāpare tiṅho hailā kṛṣṇa-varṇa
+> idānīṁ dvāpare tiṅho hailā kṛṣṇa-varṇa\
 > ei saba śāstrāgama-purāṇera marma
 
 *idānīm*—ahora; *dvāpare*—en el Dvāpara-yuga; *tiṅho*—Él; *hailā*—fue; *kṛṣṇa-varṇa*—de color negruzco; *ei*—estas; *saba*—todas; *śāstra-āgama*—y literaturas Védicas; *purāṇera*—de los Purāṇas; *marma*—la esencia.

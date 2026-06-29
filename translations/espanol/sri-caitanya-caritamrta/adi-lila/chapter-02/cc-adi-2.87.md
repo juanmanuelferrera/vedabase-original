@@ -1,9 +1,9 @@
 ### CC Adi 2.87
 
-> বিরুদ্ধার্থ কহ তুমি, কহিতে কর রোষ ।
+> বিরুদ্ধার্থ কহ তুমি, কহিতে কর রোষ ।\
 > তোমার অর্থে অবিমৃষ্টবিধেয়াংশ-দোষ ॥৮৭॥
 
-> viruddhārtha kaha tumi, kahite kara roṣa
+> viruddhārtha kaha tumi, kahite kara roṣa\
 > tomāra arthe avimṛṣṭa-vidheyāṁśa-doṣa
 
 *viruddha-artha*—significado contradictorio; *kaha*—dices; *tumi*—tú; *kahite*—al señalarlo; *kara*—sientes; *roṣa*—ira; *tomāra*—tu; *arthe*—en el significado; *avimṛṣṭa-vidheya-aṁśa*—de la parte predicativa no considerada; *doṣa*—el defecto.

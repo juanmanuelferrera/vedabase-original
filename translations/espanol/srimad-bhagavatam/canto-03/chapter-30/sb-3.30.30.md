@@ -1,11 +1,11 @@
 ### SB 3.30.30
 
-> एवं कुटुम्बं बिभ्राण उदरम्भर एव वा ।
+> एवं कुटुम्बं बिभ्राण उदरम्भर एव वा ।\
 > विसृज्येहोभयं प्रेत्य भुङ्क्ते तत्फलमीदृशम् ॥३०॥
 
-> evaṁ kuṭumbaṁ bibhrāṇa
-> udaram bhara eva vā
-> visṛjyehobhayaṁ pretya
+> evaṁ kuṭumbaṁ bibhrāṇa\
+> udaram bhara eva vā\
+> visṛjyehobhayaṁ pretya\
 > bhuṅkte tat-phalam īdṛśam
 
 *evam*—de este modo; *kuṭumbam*—la familia; *bibhrāṇaḥ*—el que mantuvo; *udaram*—estómago; *bharaḥ*—el que mantuvo; *eva*—solo; *vā*—o; *visṛjya*—después de abandonar; *iha*—aquí; *ubhayam*—ambos; *pretya*—tras la muerte; *bhuṅkte*—sufre; *tat*—de ese; *phalam*—resultado; *īdṛśam*—ese.

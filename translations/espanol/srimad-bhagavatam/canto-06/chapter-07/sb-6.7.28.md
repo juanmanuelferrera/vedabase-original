@@ -1,11 +1,11 @@
 ### SB 6.7.28
 
-> पुत्राणां हि परो धर्मः पितृशुश्रूषणं सताम
+> पुत्राणां हि परो धर्मः पितृशुश्रूषणं सताम\
 > अपि पुत्रवतां ब्रह्मन्किमुत ब्रह्मचारिणाम ॥२८॥
 
-> putrāṇāṁ hi paro dharmaḥ
-> pitṛ-śuśrūṣaṇaṁ satām
-> api putravatāṁ brahman
+> putrāṇāṁ hi paro dharmaḥ\
+> pitṛ-śuśrūṣaṇaṁ satām\
+> api putravatāṁ brahman\
 > kim uta brahmacāriṇām
 
 *putrāṇām*—de hijos; *hi*—en verdad; *paraḥ*—superior; *dharmaḥ*—principio religioso; *pitṛ-śuśrūṣaṇam*—el servicio a los padres; *satām*—bueno; *api*—incluso; *putra-vatām*—de aquellos que tienen hijos; *brahman*—¡oh, querido *brāhmaṇa*!; *kim uta*—qué decir de; *brahmacāriṇām*—de *brahmacārīs*.

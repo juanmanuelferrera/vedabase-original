@@ -1,11 +1,11 @@
 ### SB 4.23.32
 
-> ब्राह्मणो ब्रह्मवर्चस्वी राजन्यो जगतीपतिः ।
+> ब्राह्मणो ब्रह्मवर्चस्वी राजन्यो जगतीपतिः ।\
 > वैश्यः पठन्विट्पतिः स्याच्छूद्रः सत्तमतामियात् ॥३२॥
 
-> brāhmaṇo brahma-varcasvī
-> rājanyo jagatī-patiḥ
-> vaiśyaḥ paṭhan viṭ-patiḥ syāc
+> brāhmaṇo brahma-varcasvī\
+> rājanyo jagatī-patiḥ\
+> vaiśyaḥ paṭhan viṭ-patiḥ syāc\
 > chūdraḥ sattamatām iyāt
 
 *brāhmaṇaḥ*—the *brāhmaṇas*; *brahma-varcasvī*—one who has attained the power of spiritual success; *rājanyaḥ*—the royal order; *jagatī-patiḥ*—the king of the world; *vaiśyaḥ*—the mercantile class of men; *paṭhan*—by reading; *viṭ-patiḥ*—becomes master of animals; *syāt*—becomes; *śūdraḥ*—the laborer class of men; *sattama-tām*—the position of a great devotee; *iyāt*—attains.

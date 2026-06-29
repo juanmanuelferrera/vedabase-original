@@ -1,18 +1,18 @@
 ### SB 1.9.6-7
 
-> पर्वतो नारदो धौम्यो भगवान्बादरायणः ।
-> बृहदश्वो भरद्वाजः सशिष्यो रेणुकासुतः ॥६॥
-> वसिष्ठ इन्द्रप्रमदस्त्रितो गृत्समदोऽसितः ।
+> पर्वतो नारदो धौम्यो भगवान्बादरायणः ।\
+> बृहदश्वो भरद्वाजः सशिष्यो रेणुकासुतः ॥६॥\
+> वसिष्ठ इन्द्रप्रमदस्त्रितो गृत्समदोऽसितः ।\
 > कक्षीवान्गौतमोऽत्रिश्च कौशिकोऽथ सुदर्शनः ॥७॥
 
-> parvato nārado dhaumyo
-> bhagavān bādarāyaṇaḥ
-> bṛhadaśvo bharadvājaḥ
+> parvato nārado dhaumyo\
+> bhagavān bādarāyaṇaḥ\
+> bṛhadaśvo bharadvājaḥ\
 > saśiṣyo reṇukā-sutaḥ
 
-> vasiṣṭha indrapramadas
-> trito gṛtsamado 'sitaḥ
-> kakṣīvān gautamo 'triś ca
+> vasiṣṭha indrapramadas\
+> trito gṛtsamado 'sitaḥ\
+> kakṣīvān gautamo 'triś ca\
 > kauśiko 'tha sudarśanaḥ
 
 *parvataḥ*—Parvata Muni; *nāradaḥ*—Nārada Muni; *dhaumyaḥ*—Dhaumya; *bhagavān*—incarnation of Godhead; *bādarāyaṇaḥ*—Vyāsadeva; *bṛhadaśvaḥ*—Bṛhadaśva; *bharadvājaḥ*—Bharadvāja; *sa-śiṣyaḥ*—along with disciples; *reṇukā-sutaḥ*—Paraśurāma; *vasiṣṭhaḥ*—Vasiṣṭha; *indrapramadaḥ*—Indrapramada; *tritaḥ*—Trita; *gṛtsamadaḥ*—Gṛtsamada; *asitaḥ*—Asita; *kakṣīvān*—Kakṣīvān; *gautamaḥ*—Gautama; *atriḥ*—Atri; *ca*—and; *kauśikaḥ*—Kauśika; *atha*—as well as; *sudarśanaḥ*—Sudarśana.

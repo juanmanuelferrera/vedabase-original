@@ -1,9 +1,9 @@
 ### CC Antya 6.225
 
-> বৈরাগী হঞা করে জিহ্বার লালস ।
+> বৈরাগী হঞা করে জিহ্বার লালস ।\
 > পরমার্থ যায়, আর হয় রসের বশ ॥২২৫॥
 
-> vairāgī hañā kare jihvāra lālasa
+> vairāgī hañā kare jihvāra lālasa\
 > paramārtha yāya, āra haya rasera vaśa
 
 *vairāgī hañā*—estando en la orden de renuncia; *kare*—hace; *jihvāra*—de la lengua; *lālasa*—avidez; *parama-artha*—la meta de la vida; *yāya*—se va; *āra*—y; *haya*—se vuelve; *rasera vaśa*—dependiente del gusto.

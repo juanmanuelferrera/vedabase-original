@@ -1,13 +1,13 @@
 ### SB 9.17.13
 
-> देवैरभ्यर्थितो दैत्यान्हत्वेन्द्रायाददाद्दिवम
+> देवैरभ्यर्थितो दैत्यान्हत्वेन्द्रायाददाद्दिवम\
 > इन्द्रस्तस्मै पुनर्दत्त्वा गृहीत्वा चरणौ रजेः ॥१३॥
 
-> devair abhyarthito daityān
-> hatvendrāyādadād divam
-> indras tasmai punar dattvā
-> gṛhītvā caraṇau rajeḥ
-> ātmānam arpayām āsa
+> devair abhyarthito daityān\
+> hatvendrāyādadād divam\
+> indras tasmai punar dattvā\
+> gṛhītvā caraṇau rajeḥ\
+> ātmānam arpayām āsa\
 > prahrādādy-ari-śaṅkitaḥ
 
 *devaiḥ*—de los semidioses; *abhyarthitaḥ*—ante el ruego; *daityān*—a los demonios; *hatvā*—matar; *indrāya*—a Indra, el rey del cielo; *adadāt*—entregó; *divam*—el reino del cielo; *indraḥ*—el rey del cielo; *tasmai*—a él, a Rajī; *punaḥ*—de nuevo; *dattvā*—devolver; *gṛhītvā*—tomando; *caraṇau*—los pies; *rajeḥ*—de Rajī; *ātmānam*—el ser; *arpayām āsa*—entregó; *prahrāda-ādi*—Prahlāda y otros; *ari-śaṅkitaḥ*—temeroso de esos enemigos.

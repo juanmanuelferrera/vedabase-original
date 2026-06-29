@@ -1,11 +1,11 @@
 ### SB 8.14.8
 
-> ज्ञआनं चानुयुगं ब्रूते हरिः सिद्धस्वरूपधृक
+> ज्ञआनं चानुयुगं ब्रूते हरिः सिद्धस्वरूपधृक\
 > ऋषिरूपधरः कर्म योगं योगेशरूपधृक ॥८॥
 
-> jñānaṁ cānuyugaṁ brūte
-> hariḥ siddha-svarūpa-dhṛk
-> ṛṣi-rūpa-dharaḥ karma
+> jñānaṁ cānuyugaṁ brūte\
+> hariḥ siddha-svarūpa-dhṛk\
+> ṛṣi-rūpa-dharaḥ karma\
 > yogaṁ yogeśa-rūpa-dhṛk
 
 *jñānam*—conocimiento trascendental; *ca*—y; *anuyugam*—conforme a la era; *brūte*—explica; *hariḥ*—la Suprema Personalidad de Dios; *siddha-svarūpa-dhṛk*—en forma de personas liberadas como Sanaka y Sanātana; *ṛṣi-rūpa-dharaḥ*—en forma de grandes personas santas como Yājñavalkya; *karma*—*karma*; *yogam*—el sistema místico de *yoga*; *yoga-īśa-rūpa-dhṛk*—en forma de un gran *yogī* como Dattātreya.

@@ -1,11 +1,11 @@
 ### SB 4.6.13
 
-> आह्वयन्तमिवोद्धस्तैर्द्विजान्कामदुघैर्द्रुमैः ।
+> आह्वयन्तमिवोद्धस्तैर्द्विजान्कामदुघैर्द्रुमैः ।\
 > व्रजन्तमिव मातङ्गैर्गृणन्तमिव निर्झरैः ॥१३॥
 
-> āhvayantam ivoddhastair
-> dvijān kāma-dughair drumaiḥ
-> vrajantam iva mātaṅgair
+> āhvayantam ivoddhastair\
+> dvijān kāma-dughair drumaiḥ\
+> vrajantam iva mātaṅgair\
 > gṛṇantam iva nirjharaiḥ
 
 *āhvayantam*—llamar; *iva*—como si; *ut-hastaiḥ*—con las manos (ramas) levantadas; *dvijān*—a los pájaros; *kāma-dughaiḥ*—que cumplen los deseos; *drumaiḥ*—con árboles; *vrajantam*—moverse; *iva*—como si; *mātaṅgaiḥ*—por elefantes; *gṛṇantam*—resonar; *iva*—como si; *nirjharaiḥ*—por las cataratas.

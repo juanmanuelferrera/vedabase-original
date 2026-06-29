@@ -1,11 +1,11 @@
 ### SB 3.33.18
 
-> गृहोद्यानं कुसुमितै रम्यं बह्वमरद्रुमैः ।
+> गृहोद्यानं कुसुमितै रम्यं बह्वमरद्रुमैः ।\
 > कूजद्विहङ्गमिथुनं गायन्मत्तमधुव्रतम् ॥१८॥
 
-> gṛhodyānaṁ kusumitai
-> ramyaṁ bahv-amara-drumaiḥ
-> kūjad-vihaṅga-mithunaṁ
+> gṛhodyānaṁ kusumitai\
+> ramyaṁ bahv-amara-drumaiḥ\
+> kūjad-vihaṅga-mithunaṁ\
 > gāyan-matta-madhuvratam
 
 *gṛha-udyānam*—the household garden; *kusumitaiḥ*—with flowers and fruits; *ramyam*—beautiful; *bahu-amara-drumaiḥ*—with many celestial trees; *kūjat*—singing; *vihaṅga*—of birds; *mithunam*—with pairs; *gāyat*—humming; *matta*—intoxicated; *madhu-vratam*—with bees.

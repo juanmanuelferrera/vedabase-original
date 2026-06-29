@@ -1,11 +1,11 @@
 ### SB 4.22.20
 
-> अस्त्येव राजन्भवतो मधुद्विषः पादारविन्दस्य गुणानुवादने ।
+> अस्त्येव राजन्भवतो मधुद्विषः पादारविन्दस्य गुणानुवादने ।\
 > रतिर्दुरापा विधुनोति नैष्ठिकी कामं कषायं मलमन्तरात्मनः ॥२०॥
 
-> asty eva rājan bhavato madhudviṣaḥ
-> pādāravindasya guṇānuvādane
-> ratir durāpā vidhunoti naiṣṭhikī
+> asty eva rājan bhavato madhudviṣaḥ\
+> pādāravindasya guṇānuvādane\
+> ratir durāpā vidhunoti naiṣṭhikī\
 > kāmaṁ kaṣāyaṁ malam antar-ātmanaḥ
 
 *asti*—there is; *eva*—certainly; *rājan*—O King; *bhavataḥ*—your; *madhu-dviṣaḥ*—of the Lord; *pāda-aravindasya*—of the lotus feet; *guṇa-anuvādane*—in glorifying; *ratiḥ*—attachment; *durāpā*—very difficult; *vidhunoti*—washes; *naiṣṭhikī*—unflinching; *kāmam*—lusty; *kaṣāyam*—the embellishment of lusty desire; *malam*—dirty; *antaḥ-ātmanaḥ*—from the core of the heart.

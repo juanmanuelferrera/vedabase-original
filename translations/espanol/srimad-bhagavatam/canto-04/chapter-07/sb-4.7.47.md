@@ -1,11 +1,11 @@
 ### SB 4.7.47
 
-> स प्रसीद त्वमस्माकमाकाङ्क्षतां दर्शनं ते परिभ्रष्टसत्कर्मणाम् ।
+> स प्रसीद त्वमस्माकमाकाङ्क्षतां दर्शनं ते परिभ्रष्टसत्कर्मणाम् ।\
 > कीर्त्यमाने नृभिर्नाम्नि यज्ञेश ते यज्ञविघ्नाः क्षयं यान्ति तस्मै नमः ॥४७॥
 
-> sa prasīda tvam asmākam ākāṅkṣatāṁ
-> darśanaṁ te paribhraṣṭa-sat-karmaṇām
-> kīrtyamāne nṛbhir nāmni yajñeśa te
+> sa prasīda tvam asmākam ākāṅkṣatāṁ\
+> darśanaṁ te paribhraṣṭa-sat-karmaṇām\
+> kīrtyamāne nṛbhir nāmni yajñeśa te\
 > yajña-vighnāḥ kṣayaṁ yānti tasmai namaḥ
 
 *saḥ*—esa misma persona; *prasīda*—complácete; *tvam*—Tú; *asmākam*—con nosotros; *ākāṅkṣatām*—esperando; *darśanam*—audiencia; *te*—Tu; *paribhraṣṭa*—caídos; *sat-karmaṇām*—de quien la ejecución de sacrificio; *kīrtyamāne*—siendo cantados; *nṛbhiḥ*—por personas; *nāmni*—Tu santo nombre; *yajña-īśa*—¡oh, Señor del sacrificio!; *te*—Tu; *yajña-vighnāḥ*—obstáculos; *kṣayam*—destrucción; *yānti*—alcanzar; *tasmai*—a Ti; *namaḥ*—reverencias.

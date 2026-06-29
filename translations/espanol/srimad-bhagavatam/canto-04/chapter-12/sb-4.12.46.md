@@ -1,11 +1,11 @@
 ### SB 4.12.46
 
-> श्रुत्वैतच्छ्रद्धयाभीक्ष्णमच्युतप्रियचेष्टितम् ।
+> श्रुत्वैतच्छ्रद्धयाभीक्ष्णमच्युतप्रियचेष्टितम् ।\
 > भवेद्भक्तिर्भगवति यया स्यात्क्लेशसङ्क्षयः ॥४६॥
 
-> śrutvaitac chraddhayābhīkṣṇam
-> acyuta-priya-ceṣṭitam
-> bhaved bhaktir bhagavati
+> śrutvaitac chraddhayābhīkṣṇam\
+> acyuta-priya-ceṣṭitam\
+> bhaved bhaktir bhagavati\
 > yayā syāt kleśa-saṅkṣayaḥ
 
 *śrutvā*—por el hecho de escuchar; *etat*—esto; *śraddhayā*—con fe; *abhīkṣṇam*—una y otra vez; *acyuta*—a la Suprema Personalidad de Dios; *priya*—querido; *ceṣṭitam*—actividades; *bhavet*—adquiere; *bhaktiḥ*—devoción; *bhagavati*—a la Suprema Personalidad de Dios; *yayā*—por el cual; *syāt*—debe ser; *kleśa*—de miserias; *saṅkṣayaḥ*—atenuación completa.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.200
 
-> আমা উদ্ধারিয়া যদি দেখাও নিজ-বল ।
+> আমা উদ্ধারিয়া যদি দেখাও নিজ-বল ।\
 > ‘পতিতপাবন’ নাম তবে সে সফল ॥২০০॥
 
-> āmā uddhāriyā yadi dekhāo nija-bala
+> āmā uddhāriyā yadi dekhāo nija-bala\
 > 'patita-pāvana' nāma tabe se saphala
 
 *āmā*—us; *uddhāriyā*—by delivering; *yadi*—if; *dekhāo*—You show; *nija-bala*—Your own strength; *patita-pāvana*—savior of the fallen; *nāma*—this name; *tabe*—then; *se*—that; *sa-phala*—successful.

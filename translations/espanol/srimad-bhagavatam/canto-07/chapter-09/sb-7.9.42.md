@@ -1,13 +1,13 @@
 ### SB 7.9.42
 
-> को न्वत्र तेऽखिलगुरो भगवन्प्रयास
-> उत्तारणेऽस्य भवसम्भवलोपहेतोः
-> मूढेषु वै महदनुग्रह आर्तबन्धो
+> को न्वत्र तेऽखिलगुरो भगवन्प्रयास\
+> उत्तारणेऽस्य भवसम्भवलोपहेतोः\
+> मूढेषु वै महदनुग्रह आर्तबन्धो\
 > किं तेन ते प्रियजनाननुसेवतां नः ॥४२॥
 
-> ko nv atra te 'khila-guro bhagavan prayāsa
-> uttāraṇe 'sya bhava-sambhava-lopa-hetoḥ
-> mūḍheṣu vai mahad-anugraha ārta-bandho
+> ko nv atra te 'khila-guro bhagavan prayāsa\
+> uttāraṇe 'sya bhava-sambhava-lopa-hetoḥ\
+> mūḍheṣu vai mahad-anugraha ārta-bandho\
 > kiṁ tena te priya-janān anusevatāṁ naḥ
 
 *kaḥ*—qué es eso; *nu*—en verdad; *atra*—acerca de esto; *te*—de Tu Señoría; *akhila-guro*—¡oh, maestro espiritual supremo de toda la creación!; *bhagavan*—¡oh, Señor Supremo!, ¡oh, Suprema Personalidad de Dios!; *prayāsaḥ*—esfuerzo; *uttāraṇe*—para la liberación de esas almas caídas; *asya*—de esta; *bhava-sambhava*—de creación y mantenimiento; *lopa*—y de aniquilación; *hetoḥ*—de la causa; *mūḍheṣu*—a las personas necias que se pudren en el mundo material; *vai*—en verdad; *mahat-anugrahaḥ*—compasión del Supremo; *ārta-bandho*—¡oh, amigo de las entidades vivientes que sufren!; *kim*—qué dificultad hay; *tena*—en eso; *te*—de Tu Señoría; *priya-janān*—las personas queridas (los devotos); *anusevatām*—de aquellos que siempre se ocupan en servir; *naḥ*—como nosotros (que estamos ocupados de este modo).

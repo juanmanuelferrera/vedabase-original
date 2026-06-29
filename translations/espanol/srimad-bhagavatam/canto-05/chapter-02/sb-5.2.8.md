@@ -1,13 +1,13 @@
 ### SB 5.2.8
 
-> बाणाविमौ भगवतः शतपत्रपत्रौ
-> शान्तावपुङ्खरुचिरावतितिग्मदन्तौ
-> कस्मै युयुङ्क्षसि वने विचरन्न विद्मः
+> बाणाविमौ भगवतः शतपत्रपत्रौ\
+> शान्तावपुङ्खरुचिरावतितिग्मदन्तौ\
+> कस्मै युयुङ्क्षसि वने विचरन्न विद्मः\
 > क्षेमाय नो जडधियां तव विक्रमोऽस्तु ॥८॥
 
-> bāṇāv imau bhagavataḥ śata-patra-patrau
-> śāntāv apuṅkha-rucirāv ati-tigma-dantau
-> kasmai yuyuṅkṣasi vane vicaran na vidmaḥ
+> bāṇāv imau bhagavataḥ śata-patra-patrau\
+> śāntāv apuṅkha-rucirāv ati-tigma-dantau\
+> kasmai yuyuṅkṣasi vane vicaran na vidmaḥ\
 > kṣemāya no jaḍa-dhiyāṁ tava vikramo 'stu
 
 *bāṇau*—dos flechas; *imau*—esas; *bhagavataḥ*—de ti, el muy poderoso; *śata-patra-patrau*—con plumas como los pétalos de una flor de loto; *śāntau*—pacíficas; *apuṅkha*—sin asta; *rucirau*—muy hermosas; *ati-tigma-dantau*—con una punta muy afilada; *kasmai*—a quién; *yuyuṅkṣasi*—quieres herir; *vane*—en el bosque; *vicaran*—vagar; *na vidmaḥ*—no podemos entender; *kṣemāya*—para el bien; *naḥ*—de nosotros; *jaḍa-dhiyām*—que somos torpes; *tava*—tu; *vikramaḥ*—poderío; *astu*—pueda ser.

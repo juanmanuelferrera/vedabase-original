@@ -1,20 +1,20 @@
 ### SB 7.5.23-24
 
-> श्रीप्रह्राद उवाच
-> श्रवणं कीर्तनं विष्णोः स्मरणं पादसेवनम
-> अर्चनं वन्दनं दास्यं सख्यमात्मनिवेदनम ॥२३॥
-> इति पुंसार्पिता विष्णौ भक्तिश्चेन्नवलक्षणा
+> श्रीप्रह्राद उवाच\
+> श्रवणं कीर्तनं विष्णोः स्मरणं पादसेवनम\
+> अर्चनं वन्दनं दास्यं सख्यमात्मनिवेदनम ॥२३॥\
+> इति पुंसार्पिता विष्णौ भक्तिश्चेन्नवलक्षणा\
 > क्रियेत भगवत्यद्धा तन्मन्येऽधीतमुत्तमम ॥२४॥
 
-> śrī-prahrāda uvāca
-> śravaṇaṁ kīrtanaṁ viṣṇoḥ
-> smaraṇaṁ pāda-sevanam
-> arcanaṁ vandanaṁ dāsyaṁ
+> śrī-prahrāda uvāca\
+> śravaṇaṁ kīrtanaṁ viṣṇoḥ\
+> smaraṇaṁ pāda-sevanam\
+> arcanaṁ vandanaṁ dāsyaṁ\
 > sakhyam ātma-nivedanam
 
-> iti puṁsārpitā viṣṇau
-> bhaktiś cen nava-lakṣaṇā
-> kriyeta bhagavaty addhā
+> iti puṁsārpitā viṣṇau\
+> bhaktiś cen nava-lakṣaṇā\
+> kriyeta bhagavaty addhā\
 > tan manye 'dhītam uttamam
 
 *śrī-prahrādaḥ uvāca*—Prahlāda Mahārāja dijo; *śravaṇam*—escuchar; *kīrtanam*—glorificar; *viṣṇoḥ*—del Señor Viṣṇu (y de nadie más); *smaraṇam*—recordar; *pāda-sevanam*—servir los pies; *arcanam*—ofrecer adoración (con *ṣoḍaśopacāra*, los dieciséis tipos de artículos); *vandanam*—ofrecer oraciones; *dāsyam*—ser el sirviente; *sakhyam*—ser el mejor amigo; *ātma-nivedanam*—entregar todo lo que se posee; *iti*—así; *puṁsā arpitā*—ofrecido por el devoto; *viṣṇau*—al Señor Viṣṇu (y a nadie más); *bhaktiḥ*—servicio devocional; *cet*—si; *nava-lakṣaṇā*—con nueve procesos distintos; *kriyeta*—se debe realizar; *bhagavati*—a la Suprema Personalidad de Dios; *addhā*—directa o completamente; *tat*—eso; *manye*—yo considero; *adhītam*—sabiduría; *uttamam*—suprema.

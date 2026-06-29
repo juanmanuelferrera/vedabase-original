@@ -1,11 +1,11 @@
 ### SB 1.13.20
 
-> येन चैवाभिपन्नोऽयं प्राणैः प्रियतमैरपि ।
+> येन चैवाभिपन्नोऽयं प्राणैः प्रियतमैरपि ।\
 > जनः सद्यो वियुज्येत किमुतान्यैर्धनादिभिः ॥२०॥
 
-> yena caivābhipanno 'yaṁ
-> prāṇaiḥ priyatamair api
-> janaḥ sadyo viyujyeta
+> yena caivābhipanno 'yaṁ\
+> prāṇaiḥ priyatamair api\
+> janaḥ sadyo viyujyeta\
 > kim utānyair dhanādibhiḥ
 
 *yena*—tirado por ese tiempo; *ca*—y; *eva*—indudablemente; *abhipannaḥ*—dominado; *ayam*—este; *prāṇaiḥ*—con vida; *priya-tamaiḥ*—que es lo más querido por todos; *api*—aun a pesar; *janaḥ*—persona; *sadyaḥ*—de inmediato; *viyujyeta*—entregar; *kim uta anyaiḥ*—ni qué hablar de cualquier otra cosa; *dhana-ādibhiḥ*—tales como riqueza, honor, hijos, tierra y casa.

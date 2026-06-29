@@ -1,14 +1,14 @@
 ### SB 7.4.8
 
-> देवोद्यानश्रिया जुष्टमध्यास्ते स्म त्रिपिष्टपम
-> महेन्द्रभवनं साक्षान्निर्मितं विश्वकर्मणा
+> देवोद्यानश्रिया जुष्टमध्यास्ते स्म त्रिपिष्टपम\
+> महेन्द्रभवनं साक्षान्निर्मितं विश्वकर्मणा\
 > त्रैलोक्यलक्ष्म्यायतनमध्युवासाखिलर्द्धिमत ॥८॥
 
-> devodyāna-śriyā juṣṭam
-> adhyāste sma tri-piṣṭapam
-> mahendra-bhavanaṁ sākṣān
-> nirmitaṁ viśvakarmaṇā
-> trailokya-lakṣmy-āyatanam
+> devodyāna-śriyā juṣṭam\
+> adhyāste sma tri-piṣṭapam\
+> mahendra-bhavanaṁ sākṣān\
+> nirmitaṁ viśvakarmaṇā\
+> trailokya-lakṣmy-āyatanam\
 > adhyuvāsākhilarddhimat
 
 *deva-udyāna*—del famoso jardín de los semidioses; *śriyā*—por las opulencias; *juṣṭam*—enriquecido; *adhyāste sma*—permaneció en; *tri-piṣṭapam*—el sistema planetario superior, donde viven muchos semidioses; *mahendra-bhavanam*—el palacio de Indra, el rey del cielo; *sākṣāt*—directamente; *nirmitam*—construido; *viśvakarmaṇā*—por el famoso arquitecto de los semidioses, Viśvakarmā; *trailokya*—de los tres mundos; *lakṣmī-āyatanam*—la residencia de la diosa de la fortuna; *adhyuvāsa*—vivió en; *akhila-ṛddhi-mat*—con la opulencia de todo el universo.

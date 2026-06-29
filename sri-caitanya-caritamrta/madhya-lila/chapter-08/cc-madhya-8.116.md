@@ -1,9 +1,9 @@
 ### CC Madhya 8.116
 
-> শতকোটি-গোপীতে নহে কাম-নির্বাপণ ।
+> শতকোটি-গোপীতে নহে কাম-নির্বাপণ ।\
 > তাহাতেই অনুমানি শ্রীরাধিকার গুণ ॥১১৬॥
 
-> śata-koṭi-gopīte nahe kāma-nirvāpaṇa
+> śata-koṭi-gopīte nahe kāma-nirvāpaṇa\
 > tāhātei anumāni śrī-rādhikāra guṇa
 
 *śata-koṭi*—hundreds and thousands; *gopīte*—in the midst of *gopīs*; *nahe*—there is not; *kāma-nirvāpaṇa*—satisfaction of lust; *tāhātei*—by that way; *anumāni*—we can imagine; *śrī-rādhikāra guṇa*—the transcendental quality of Śrīmatī Rādhārāṇī.

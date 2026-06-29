@@ -1,18 +1,18 @@
 ### SB 1.15.25-26
 
-> जलौकसां जले यद्वन्महान्तोऽदन्त्यणीयसः ।
-> दुर्बलान्बलिनो राजन्महान्तो बलिनो मिथः ॥२५॥
-> एवं बलिष्ठैर्यदुभिर्महद्भिरितरान्विभुः ।
+> जलौकसां जले यद्वन्महान्तोऽदन्त्यणीयसः ।\
+> दुर्बलान्बलिनो राजन्महान्तो बलिनो मिथः ॥२५॥\
+> एवं बलिष्ठैर्यदुभिर्महद्भिरितरान्विभुः ।\
 > यदून्यदुभिरन्योन्यं भूभारान्सञ्जहार ह ॥२६॥
 
-> jalaukasāṁ jale yadvan
-> mahānto 'danty aṇīyasaḥ
-> durbalān balino rājan
+> jalaukasāṁ jale yadvan\
+> mahānto 'danty aṇīyasaḥ\
+> durbalān balino rājan\
 > mahānto balino mithaḥ
 
-> evaṁ baliṣṭhair yadubhir
-> mahadbhir itarān vibhuḥ
-> yadūn yadubhir anyonyaṁ
+> evaṁ baliṣṭhair yadubhir\
+> mahadbhir itarān vibhuḥ\
+> yadūn yadubhir anyonyaṁ\
 > bhū-bhārān sañjahāra ha
 
 *jalaukasām*—of the aquatics; *jale*—in the water; *yadvat*—as it is; *mahāntaḥ*—the larger one; *adanti*—swallows; *aṇīyasaḥ*—smaller ones; *durbalān*—the weak; *balinaḥ*—the stronger; *rājan*—O King; *mahāntaḥ*—the strongest; *balinaḥ*—less strong; *mithaḥ*—in a duel; *evam*—thus; *baliṣṭhaiḥ*—by the strongest; *yadubhiḥ*—by the descendants of Yadu; *mahadbhiḥ*—one who has greater strength; *itarān*—the common ones; *vibhuḥ*—the Supreme Personality of Godhead; *yadūn*—all the Yadus; *yadubhiḥ*—by the Yadus; *anyonyam*—among one another; *bhū-bhārān*—the burden of the world; *sañjahāra*—has unloaded; *ha*—in the past.

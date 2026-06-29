@@ -1,11 +1,11 @@
 ### SB 4.6.40
 
-> स तूपलभ्यागतमात्मयोनिं सुरासुरेशैरभिवन्दिताङ्घ्रिः ।
+> स तूपलभ्यागतमात्मयोनिं सुरासुरेशैरभिवन्दिताङ्घ्रिः ।\
 > उत्थाय चक्रे शिरसाभिवन्दनमर्हत्तमः कस्य यथैव विष्णुः ॥४०॥
 
-> sa tūpalabhyāgatam ātma-yoniṁ
-> surāsureśair abhivanditāṅghriḥ
-> utthāya cakre śirasābhivandanam
+> sa tūpalabhyāgatam ātma-yoniṁ\
+> surāsureśair abhivanditāṅghriḥ\
+> utthāya cakre śirasābhivandanam\
 > arhattamaḥ kasya yathaiva viṣṇuḥ
 
 *saḥ*—el Señor Śiva; *tu*—pero; *upalabhya*—viendo; *āgatam*—había llegado; *ātma-yonim*—el Señor Brahmā; *sura-asura-īśaiḥ*—por los principales semidioses y demonios; *abhivandita-aṅghriḥ*—cuyos pies son adorados; *utthāya*—levantándose; *cakre*—hizo; *śirasā*—con la cabeza; *abhivandanam*—respetuoso; *arhattamaḥ*—Vāmanadeva; *kasya*—de Kaśyapa; *yathā eva*—tal como; *viṣṇuḥ*—Viṣṇu.

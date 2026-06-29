@@ -1,13 +1,13 @@
 ### CC Antya 16.131
 
-> সে ফেলার এক লব, না পায় দেবতা সব,
-> এ দম্ভে কেবা পাতিয়ায় ?
-> বহুজন্ম পুণ্য করে, তবে ‘সুকৃতি’ নাম ধরে,
+> সে ফেলার এক লব, না পায় দেবতা সব,\
+> এ দম্ভে কেবা পাতিয়ায় ?\
+> বহুজন্ম পুণ্য করে, তবে ‘সুকৃতি’ নাম ধরে,\
 > সে ‘সুকৃতে’ তার লব পায় ॥১৩১॥
 
-> se phelāra eka lava, nā pāya devatā saba,
-> e dambhe kebā pātiyāya?
-> bahu-janma puṇya kare, tabe 'sukṛti' nāma dhare,
+> se phelāra eka lava, nā pāya devatā saba,\
+> e dambhe kebā pātiyāya?\
+> bahu-janma puṇya kare, tabe 'sukṛti' nāma dhare,\
 > se 'sukṛte' tāra lava pāya
 
 *se phelāra*—de esos remanentes; *eka*—una; *lava*—pequeña porción; *nā pāya*—no obtienen; *devatā*—los semidioses; *saba*—todos; *e dambhe*—este orgullo; *kebā*—quién; *pātiyāya*—puede creerlo; *bahu-janma*—durante muchos nacimientos; *puṇya kare*—actúa piadosamente; *tabe*—entonces; *sukṛti*—quien realiza actividades piadosas; *nāma*—el nombre; *dhare*—ostenta; *se*—esas; *sukṛte*—por actividades piadosas; *tāra*—de ello; *lava*—una fracción; *pāya*—se puede obtener.

@@ -1,14 +1,14 @@
 ### SB 4.29.21
 
-> संवत्सरश्चण्डवेगः कालो येनोपलक्षितः ।
-> तस्याहानीह गन्धर्वा गन्धर्व्यो रात्रयः स्मृताः ।
+> संवत्सरश्चण्डवेगः कालो येनोपलक्षितः ।\
+> तस्याहानीह गन्धर्वा गन्धर्व्यो रात्रयः स्मृताः ।\
 > हरन्त्यायुः परिक्रान्त्या षष्ट्युत्तरशतत्रयम् ॥२१॥
 
-> saṁvatsaraś caṇḍavegaḥ
-> kālo yenopalakṣitaḥ
-> tasyāhānīha gandharvā
-> gandharvyo rātrayaḥ smṛtāḥ
-> haranty āyuḥ parikrāntyā
+> saṁvatsaraś caṇḍavegaḥ\
+> kālo yenopalakṣitaḥ\
+> tasyāhānīha gandharvā\
+> gandharvyo rātrayaḥ smṛtāḥ\
+> haranty āyuḥ parikrāntyā\
 > ṣaṣṭy-uttara-śata-trayam
 
 *saṁvatsaraḥ*—año; *caṇḍa-vegaḥ*—llamado Caṇḍavega; *kālaḥ*—el tiempo; *yena*—por el cual; *upalakṣitaḥ*—simbolizado; *tasya*—de la duración de la vida; *ahāni*—días; *iha*—en esta vida; *gandharvāḥ*—*gandharvas*; *gandharvyaḥ*—*gandharvīs*; *rātrayaḥ*—noches; *smṛtāḥ*—se consideran; *haranti*—se llevan; *āyuḥ*—duración de la vida; *parikrāntyā*—al viajar; *ṣaṣṭi*—sesenta; *uttara*—por encima de; *śata*—cien; *trayam*—tres.

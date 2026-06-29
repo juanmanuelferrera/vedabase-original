@@ -1,11 +1,11 @@
 ### SB 3.1.37
 
-> किं वा कृताघेष्वघमत्यमर्षी भीमोऽहिवद्दीर्घतमं व्यमुञ्चत् ।
+> किं वा कृताघेष्वघमत्यमर्षी भीमोऽहिवद्दीर्घतमं व्यमुञ्चत् ।\
 > यस्याङ्घ्रिपातं रणभूर्न सेहे मार्गं गदायाश्चरतो विचित्रम् ॥३७॥
 
-> kiṁ vā kṛtāgheṣv agham atyamarṣī
-> bhīmo 'hivad dīrghatamaṁ vyamuñcat
-> yasyāṅghri-pātaṁ raṇa-bhūr na sehe
+> kiṁ vā kṛtāgheṣv agham atyamarṣī\
+> bhīmo 'hivad dīrghatamaṁ vyamuñcat\
+> yasyāṅghri-pātaṁ raṇa-bhūr na sehe\
 > mārgaṁ gadāyāś carato vicitram
 
 *kim*—si; *vā*—o; *kṛta*—realizó; *agheṣu*—a los pecadores; *agham*—furioso; *ati-amarṣī*—inconquistable; *bhīmaḥ*—Bhīma; *ahi-vat*—como una cobra; *dīrgha-tamam*—abrigada por mucho tiempo; *vyamuñcat*—ha dado rienda suelta; *yasya*—cuyos; *aṅghri-pātam*—dando los pasos; *raṇa-bhūḥ*—el campo de batalla; *na*—no podía; *sehe*—tolerar; *mārgam*—el sendero; *gadāyāḥ*—por las mazas; *carataḥ*—jugando; *vicitram*—maravilloso.

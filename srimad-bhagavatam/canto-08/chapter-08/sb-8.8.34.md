@@ -1,11 +1,11 @@
 ### SB 8.8.34
 
-> पीतवासा महोरस्कः सुमृष्टमणिकुण्डलः
+> पीतवासा महोरस्कः सुमृष्टमणिकुण्डलः\
 > स्निग्धकुञ्चितकेशान्त सुभगः सिंहविक्रमः ॥३४॥
 
-> sa vai bhagavataḥ sākṣād
-> viṣṇor aṁśāṁśa-sambhavaḥ
-> dhanvantarir iti khyāta
+> sa vai bhagavataḥ sākṣād\
+> viṣṇor aṁśāṁśa-sambhavaḥ\
+> dhanvantarir iti khyāta\
 > āyur-veda-dṛg ijya-bhāk
 
 *saḥ*—he; *vai*—indeed; *bhagavataḥ*—of the Supreme Personality of Godhead; *sākṣāt*—directly; *viṣṇoḥ*—of Lord Viṣṇu; *aṁśa-aṁśa-sambhavaḥ*—incarnation of the plenary portion of a plenary portion; *dhanvantariḥ*—Dhanvantari; *iti*—thus; *khyātaḥ*—celebrated; *āyuḥ-veda-dṛk*—fully conversant in the medical science; *ijya-bhāk*—one of the demigods eligible to share the benefits of sacrifices.

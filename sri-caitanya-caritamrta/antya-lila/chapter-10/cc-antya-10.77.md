@@ -1,9 +1,9 @@
 ### CC Antya 10.77
 
-> তবে নিত্যানন্দ প্রভু সৃজিলা উপায় ।
+> তবে নিত্যানন্দ প্রভু সৃজিলা উপায় ।\
 > ক্রমে-ক্রমে কীর্তনীয়া রাখিল সবায় ॥৭৭॥
 
-> tabe nityānanda prabhu sṛjilā upāya
+> tabe nityānanda prabhu sṛjilā upāya\
 > krame-krame kīrtanīyā rākhila sabāya
 
 *tabe*—at that time; *nityānanda*—Lord Nityānanda; *prabhu*—the Lord; *sṛjilā upāya*—made a device; *krame-krame*—by and by; *kīrtanīyā*—the chanters; *rākhila*—stopped; *sabāya*—all.

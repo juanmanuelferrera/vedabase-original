@@ -1,13 +1,13 @@
 ### CC Madhya 2.80
 
-> পূর্বে ব্ৰজবিলাসে, যেই তিন অভিলাষে,
-> যত্নেহ আস্বাদ না হৈল ।
-> শ্রীরাধার ভাবসার, আপনে করি’ অঙ্গীকার,
+> পূর্বে ব্ৰজবিলাসে, যেই তিন অভিলাষে,\
+> যত্নেহ আস্বাদ না হৈল ।\
+> শ্রীরাধার ভাবসার, আপনে করি’ অঙ্গীকার,\
 > সেই তিন বস্তু আস্বাদিল ॥৮০॥
 
-> pūrve vraja-vilāse, yei tina abhilāṣe,
-> yatneha āsvāda nā haila
-> śrī-rādhāra bhāva-sāra, āpane kari' aṅgīkāra,
+> pūrve vraja-vilāse, yei tina abhilāṣe,\
+> yatneha āsvāda nā haila\
+> śrī-rādhāra bhāva-sāra, āpane kari' aṅgīkāra,\
 > sei tina vastu āsvādila
 
 *pūrve*—anteriormente; *vraja-vilāse*—en los pasatiempos de Vṛndāvana; *yei tina*—esos tres; *abhilāṣe*—en deseos; *yatneha*—mediante gran esfuerzo; *āsvāda*—sabor; *nā haila*—no hubo; *śrī-rādhāra*—de Śrīmatī Rādhārāṇī; *bhāva-sāra*—la esencia del éxtasis; *āpane*—personalmente; *kari'*—haciendo; *aṅgīkāra*—aceptación; *sei*—esos; *tina vastu*—tres temas; *āsvādila*—saboreó.

@@ -1,9 +1,9 @@
 ### CC Antya 14.39
 
-> উন্মত্তের প্রায় প্রভু করেন গান-নৃত্য ।
+> উন্মত্তের প্রায় প্রভু করেন গান-নৃত্য ।\
 > দেহের স্বভাবে করেন স্নান-ভোজন-কৃত্য ॥৩৯॥
 
-> unmattera prāya prabhu karena gāna-nṛtya
+> unmattera prāya prabhu karena gāna-nṛtya\
 > dehera svabhāve karena snāna-bhojana-kṛtya
 
 *unmattera prāya*—as if mad; *prabhu*—Śrī Caitanya Mahāprabhu; *karena*—performs; *gāna-nṛtya*—singing and dancing; *dehera*—of the body; *svabhāve*—by nature; *karena*—carries out; *snāna*—bathing; *bhojana*—eating; *kṛtya*—duties.

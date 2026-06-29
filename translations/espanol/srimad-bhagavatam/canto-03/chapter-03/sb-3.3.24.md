@@ -1,11 +1,11 @@
 ### SB 3.3.24
 
-> पुर्यां कदाचित्क्रीडद्भिर्यदुभोजकुमारकैः ।
+> पुर्यां कदाचित्क्रीडद्भिर्यदुभोजकुमारकैः ।\
 > कोपिता मुनयः शेपुर्भगवन्मतकोविदाः ॥२४॥
 
-> puryāṁ kadācit krīḍadbhir
-> yadu-bhoja-kumārakaiḥ
-> kopitā munayaḥ śepur
+> puryāṁ kadācit krīḍadbhir\
+> yadu-bhoja-kumārakaiḥ\
+> kopitā munayaḥ śepur\
 > bhagavan-mata-kovidāḥ
 
 *puryām*—en la ciudad de Dvārakā; *kadācit*—una vez; *krīḍadbhiḥ*—mediante actividades juguetonas; *yadu*—los descendientes de Yadu; *bhoja*—los descendientes de Bhoja; *kumārakaiḥ*—príncipes; *kopitāḥ*—se enfurecieron; *munayaḥ*—los grandes sabios; *śepuḥ*—maldijeron; *bhagavat*—la Personalidad de Dios; *mata*—deseo; *kovidāḥ*—consciente.

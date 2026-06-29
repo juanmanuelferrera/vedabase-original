@@ -1,11 +1,11 @@
 ### SB 9.2.9
 
-> तं शशाप कुलाचार्यः कृतागसमकामतः
+> तं शशाप कुलाचार्यः कृतागसमकामतः\
 > न क्षत्रबन्धुः शूद्रस्त्वं कर्मणा भवितामुना ॥९॥
 
-> taṁ śaśāpa kulācāryaḥ
-> kṛtāgasam akāmataḥ
-> na kṣatra-bandhuḥ śūdras tvaṁ
+> taṁ śaśāpa kulācāryaḥ\
+> kṛtāgasam akāmataḥ\
+> na kṣatra-bandhuḥ śūdras tvaṁ\
 > karmaṇā bhavitāmunā
 
 *tam*—a él (a Pṛṣadhra); *śaśāpa*—maldijo; *kula-ācāryaḥ*—el sacerdote familiar, Vasiṣṭha; *kṛta-āgasam*—por haber cometido el gran pecado de matar una vaca; *akāmataḥ*—aunque no había querido hacerlo; *na*—no; *kṣatra-bandhuḥ*—miembro de la familia de un *kṣatriya*; *śūdraḥ tvam*—te has comportado como un *śūdra*; *karmaṇā*—por lo tanto, por tu reacción fruitiva; *bhavitā*—nacerás *śūdra*; *amunā*—por haber matado la vaca.

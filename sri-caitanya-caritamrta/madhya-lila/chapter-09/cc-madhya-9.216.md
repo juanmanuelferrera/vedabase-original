@@ -1,9 +1,9 @@
 ### CC Madhya 9.216
 
-> মনোদুঃখে ভাল ভিক্ষা না দিল সেই দিনে ।
+> মনোদুঃখে ভাল ভিক্ষা না দিল সেই দিনে ।\
 > মোর ভাগ্যে পুনরপি পাইলুঁ দরশনে ॥২১৬॥
 
-> mano-duḥkhe bhāla bhikṣā nā dila sei dine
+> mano-duḥkhe bhāla bhikṣā nā dila sei dine\
 > mora bhāgye punarapi pāiluṅ daraśane
 
 *mano-duḥkhe*—out of great mental distress; *bhāla bhikṣā*—good lunch; *nā dila*—could not give You; *sei dine*—that day; *mora bhāgye*—because of my good fortune; *punarapi*—again; *pāiluṅ*—I have gotten; *daraśane*—visit.

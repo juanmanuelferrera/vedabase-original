@@ -1,11 +1,11 @@
 ### Bg 7.29
 
-> जरामरणमोक्षाय मामाश्रित्य यतन्ति ये ।
+> जरामरणमोक्षाय मामाश्रित्य यतन्ति ये ।\
 > ते ब्रह्म तद्विदुः कृत्स्नमध्यात्मं कर्म चाखिलम् ॥२९॥
 
-> jarā-maraṇa-mokṣāya
-> mām āśritya yatanti ye
-> te brahma tad viduḥ kṛtsnam
+> jarā-maraṇa-mokṣāya\
+> mām āśritya yatanti ye\
+> te brahma tad viduḥ kṛtsnam\
 > adhyātmaṁ karma cākhilam
 
 *jarā*—old age; *maraṇa*—death; *mokṣāya*—for the purpose of liberation; *mām*—unto Me; *āśritya*—taking shelter of; *yatanti*—endeavor; *ye*—all those; *te*—such persons; *brahma*—Brahman; *tat*—actually that; *viduḥ*—they know; *kṛtsnam*—everything; *adhyātmam*—transcendental; *karma*—fruitive activities; *ca*—also; *akhilam*—entirely.

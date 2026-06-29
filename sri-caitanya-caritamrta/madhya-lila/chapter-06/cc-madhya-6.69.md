@@ -1,9 +1,9 @@
 ### CC Madhya 6.69
 
-> ‘প্রকৃতি-বিনীত, সন্ন্যাসী দেখিতে সুন্দর ।
+> ‘প্রকৃতি-বিনীত, সন্ন্যাসী দেখিতে সুন্দর ।\
 > আমার বহুপ্রীতি বাড়ে ইঁহার উপর ॥৬৯॥
 
-> 'prakṛti-vinīta, sannyāsī dekhite sundara
+> 'prakṛti-vinīta, sannyāsī dekhite sundara\
 > āmāra bahu-prīti bāḍe iṅhāra upara
 
 *prakṛti-vinīta*—by nature very humble and meek; *sannyāsī*—renouncer; *dekhite*—to see; *sundara*—very beautiful; *āmāra*—my; *bahu-prīti*—great affection; *bāḍe*—increases; *iṅhāra*—Him; *upara*—upon.

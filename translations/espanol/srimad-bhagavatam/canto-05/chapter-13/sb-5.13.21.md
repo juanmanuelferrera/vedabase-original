@@ -1,13 +1,13 @@
 ### SB 5.13.21
 
-> राजोवाच
-> अहो नृजन्माखिलजन्मशोभनं किं जन्मभिस्त्वपरैरप्यमुष्मिन
+> राजोवाच\
+> अहो नृजन्माखिलजन्मशोभनं किं जन्मभिस्त्वपरैरप्यमुष्मिन\
 > न यद्धृषीकेशयशःकृतात्मनां महात्मनां वः प्रचुरः समागमः ॥२१॥
 
-> rājovāca
-> aho nṛ-janmākhila-janma-śobhanaṁ
-> kiṁ janmabhis tv aparair apy amuṣmin
-> na yad dhṛṣīkeśa-yaśaḥ-kṛtātmanāṁ
+> rājovāca\
+> aho nṛ-janmākhila-janma-śobhanaṁ\
+> kiṁ janmabhis tv aparair apy amuṣmin\
+> na yad dhṛṣīkeśa-yaśaḥ-kṛtātmanāṁ\
 > mahātmanāṁ vaḥ pracuraḥ samāgamaḥ
 
 *rājā uvāca*—el rey Rahūgaṇa dijo; *aho*—¡ay!; *nṛ-janma*—tú, que has nacido como ser humano; *akhila-janma-śobhanam*—la mejor de todas las especies de vida; *kim*—qué necesidad; *janmabhiḥ*—con nacimientos en especies superiores, como los semidioses en los planetas celestiales; *tu*—pero; *aparaiḥ*—no superior; *api*—en verdad; *amuṣmin*—en la siguiente vida; *na*—no; *yat*—que; *hṛṣīkeśa-yaśaḥ*—por las glorias de la Suprema Personalidad de Dios, Hṛṣīkeśa, el amo de todos los sentidos; *kṛta-ātmanām*—de aquellos cuyos corazones están purificados; *mahā-ātmanām*—que realmente son grandes almas; *vaḥ*—de nosotros; *pracuraḥ*—abundante; *samāgamaḥ*—la compañía.

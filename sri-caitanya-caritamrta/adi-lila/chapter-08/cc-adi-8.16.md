@@ -1,9 +1,9 @@
 ### CC Adi 8.16
 
-> বহু জন্ম করে যদি শ্রবণ, কীর্তন ।
+> বহু জন্ম করে যদি শ্রবণ, কীর্তন ।\
 > তবু ত’ না পায় কৃষ্ণপদে প্রেমধন ॥১৬॥
 
-> bahu janma kare yadi śravaṇa, kīrtana
+> bahu janma kare yadi śravaṇa, kīrtana\
 > tabu ta' nā pāya kṛṣṇa-pade prema-dhana
 
 *bahu*—many; *janma*—births; *kare*—does; *yadi*—if; *śravaṇa*—hearing; *kīrtana*—chanting; *tabu*—still; *ta'*—in spite of; *nā*—does not; *pāya*—get; *kṛṣṇa-pade*—unto the lotus feet of Kṛṣṇa; *prema-dhana*—love of Godhead.

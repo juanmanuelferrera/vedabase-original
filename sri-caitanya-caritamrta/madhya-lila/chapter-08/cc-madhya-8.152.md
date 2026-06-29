@@ -1,9 +1,9 @@
 ### CC Madhya 8.152
 
-> ‘অন্তরঙ্গা’, ‘বহিরঙ্গা’, ‘তটস্থা’ কহি যারে ।
+> ‘অন্তরঙ্গা’, ‘বহিরঙ্গা’, ‘তটস্থা’ কহি যারে ।\
 > অন্তরঙ্গা ‘স্বরূপ-শক্তি’ — সবার উপরে ॥১৫২॥
 
-> 'antaraṅgā', 'bahiraṅgā', 'taṭasthā' kahi yāre
+> 'antaraṅgā', 'bahiraṅgā', 'taṭasthā' kahi yāre\
 > antaraṅgā 'svarūpa-śakti'—sabāra upare
 
 *antaraṅgā*—internal; *bahiraṅgā*—external; *taṭa-sthā*—marginal; *kahi*—we say; *yāre*—to whom; *antaraṅgā*—the internal potency; *svarūpa-śakti*—the personal energy; *sabāra upare*—above all.

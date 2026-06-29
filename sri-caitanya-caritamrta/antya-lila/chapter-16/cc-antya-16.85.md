@@ -1,9 +1,9 @@
 ### CC Antya 16.85
 
-> গরুড়ের পাছে রহি’ করেন দরশন ।
+> গরুড়ের পাছে রহি’ করেন দরশন ।\
 > দেখেন, — জগন্নাথ হয় মুরলীবদন ॥৮৫॥
 
-> garuḍera pāche rahi' karena daraśana
+> garuḍera pāche rahi' karena daraśana\
 > dekhena,—jagannātha haya muralī-vadana
 
 *garuḍera pāche*—behind the Garuḍa column; *rahi'*—staying; *karena daraśana*—He was seeing; *dekhena*—He saw; *jagannātha*—Lord Jagannātha; *haya*—was; *muralī-vadana*—Lord Kṛṣṇa with His flute to the mouth.

@@ -1,11 +1,11 @@
 ### SB 8.14.11
 
-> एतत्कल्पविकल्पस्य प्रमाणं परिकीर्तितम
+> एतत्कल्पविकल्पस्य प्रमाणं परिकीर्तितम\
 > यत्र मन्वन्तराण्याहुश्चतुर्दश पुराविदः ॥११॥
 
-> etat kalpa-vikalpasya
-> pramāṇaṁ parikīrtitam
-> yatra manvantarāṇy āhuś
+> etat kalpa-vikalpasya\
+> pramāṇaṁ parikīrtitam\
+> yatra manvantarāṇy āhuś\
 > caturdaśa purāvidaḥ
 
 *etat*—all these; *kalpa*—in one day of Lord Brahmā; *vikalpasya*—of the changes in a *kalpa,* such as the change of Manus; *pramāṇam*—evidences; *parikīrtitam*—described (by me); *yatra*—wherein; *manvantarāṇi*—periods of Manu; *āhuḥ*—said; *caturdaśa*—fourteen; *purā-vidaḥ*—learned scholars.

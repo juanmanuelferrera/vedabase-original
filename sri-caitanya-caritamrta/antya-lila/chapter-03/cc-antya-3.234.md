@@ -1,9 +1,9 @@
 ### CC Antya 3.234
 
-> আসিয়া তুলসীরে সেই কৈলা নমস্কার ।
+> আসিয়া তুলসীরে সেই কৈলা নমস্কার ।\
 > তুলসী পরিক্রমা করি’ গেলা গোঁফা-দ্বার ॥২৩৪॥
 
-> āsiyā tulasīre sei kailā namaskāra
+> āsiyā tulasīre sei kailā namaskāra\
 > tulasī parikramā kari' gelā goṅphā-dvāra
 
 *āsiyā*—coming; *tulasīre*—unto the *tulasī* plant; *sei*—that woman; *kailā*—did; *namaskāra*—obeisances; *tulasī*—the *tulasī* plant; *parikramā*—circumambulating; *kari'*—doing; *gelā*—went; *goṅphā-dvāra*—to the door of the cave.

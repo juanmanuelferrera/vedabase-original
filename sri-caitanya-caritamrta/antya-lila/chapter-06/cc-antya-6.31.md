@@ -1,9 +1,9 @@
 ### CC Antya 6.31
 
-> উজিরে কহিয়া রঘুনাথে ছাড়াইল  ।
+> উজিরে কহিয়া রঘুনাথে ছাড়াইল  ।\
 > প্রীতি করি’ রঘুনাথে কহিতে লাগিল ॥৩১॥
 
-> ujire kahiyā raghunāthe chāḍāila
+> ujire kahiyā raghunāthe chāḍāila\
 > prīti kari' raghunāthe kahite lāgila
 
 *ujire*—unto the minister; *kahiyā*—speaking; *raghunāthe chāḍāila*—released Raghu nātha dāsa; *prīti kari'*—with great affection; *raghunāthe*—unto Raghunātha dāsa; *kahite lāgila*—began to say.

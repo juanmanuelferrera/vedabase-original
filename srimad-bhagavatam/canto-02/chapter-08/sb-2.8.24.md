@@ -1,11 +1,11 @@
 ### SB 2.8.24
 
-> सर्वमेतच्च भगवन्पृच्छतो मेऽनुपूर्वशः ।
+> सर्वमेतच्च भगवन्पृच्छतो मेऽनुपूर्वशः ।\
 > तत्त्वतोऽर्हस्युदाहर्तुं प्रपन्नाय महामुने ॥२४॥
 
-> sarvam etac ca bhagavan
-> pṛcchato me 'nupūrvaśaḥ
-> tattvato 'rhasy udāhartuṁ
+> sarvam etac ca bhagavan\
+> pṛcchato me 'nupūrvaśaḥ\
+> tattvato 'rhasy udāhartuṁ\
 > prapannāya mahā-mune
 
 *sarvam*—all these; *etat*—inquiries; *ca*—also that I have not been able to ask; *bhagavan*—O great sage; *pṛcchataḥ*—of the inquisitive; *me*—myself; *anupūrvaśaḥ*—from the beginning; *tattvataḥ*—just in accordance with the truth; *arhasi*—may kindly be explained; *udāhartum*—as you will let know; *prapannāya*—one who is surrounded; *mahā-mune*—O great sage.

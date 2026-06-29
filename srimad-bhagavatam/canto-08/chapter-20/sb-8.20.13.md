@@ -1,11 +1,11 @@
 ### SB 8.20.13
 
-> एष वा उत्तमश्लोको न जिहासति यद्यशः
+> एष वा उत्तमश्लोको न जिहासति यद्यशः\
 > हत्वा मैनां हरेद्युद्धे शयीत निहतो मया ॥१३॥
 
-> eṣa vā uttamaśloko
-> na jihāsati yad yaśaḥ
-> hatvā maināṁ hared yuddhe
+> eṣa vā uttamaśloko\
+> na jihāsati yad yaśaḥ\
+> hatvā maināṁ hared yuddhe\
 > śayīta nihato mayā
 
 *eṣaḥ*—this (*brahmacārī*); *vā*—either; *uttama-ślokaḥ*—is Lord Viṣṇu, who is worshiped by Vedic prayers; *na*—not; *jihāsati*—desires to give up; *yat*—because; *yaśaḥ*—perpetual fame; *hatvā*—after killing; *mā*—me; *enām*—all this land; *haret*—will take away; *yuddhe*—in the fight; *śayīta*—will lie down; *nihataḥ*—being killed; *mayā*—by me.

@@ -1,11 +1,11 @@
 ### SB 1.10.32
 
-> अजातशत्रुः पृतनां गोपीथाय मधुद्विषः ।
+> अजातशत्रुः पृतनां गोपीथाय मधुद्विषः ।\
 > परेभ्यः शङ्कितः स्नेहात्प्रायुङ्क्त चतुरङ्गिणीम् ॥३२॥
 
-> ajāta-śatruḥ pṛtanāṁ
-> gopīthāya madhu-dviṣaḥ
-> parebhyaḥ śaṅkitaḥ snehāt
+> ajāta-śatruḥ pṛtanāṁ\
+> gopīthāya madhu-dviṣaḥ\
+> parebhyaḥ śaṅkitaḥ snehāt\
 > prāyuṅkta catur-aṅgiṇīm
 
 *ajāta-śatruḥ*—Mahārāja Yudhiṣṭhira, who was no one's enemy; *pṛtanām*—defensive forces; *gopīthāya*—for giving protection; *madhu-dviṣaḥ*—of the enemy of Madhu (Śrī Kṛṣṇa); *parebhyaḥ*—from others (enemies); *śaṅkitaḥ*—being afraid of; *snehāt*—out of affection; *prāyuṅkta*—engaged; *catuḥ-aṅgiṇīm*—four defensive divisions.

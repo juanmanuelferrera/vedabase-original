@@ -1,9 +1,9 @@
 ### CC Madhya 19.161
 
-> প্রথমেই উপশাখার করয়ে ছেদন ।
+> প্রথমেই উপশাখার করয়ে ছেদন ।\
 > তবে মূলশাখা বাড়ি’ যায় বৃন্দাবন ॥১৬১॥
 
-> prathamei upaśākhāra karaye chedana
+> prathamei upaśākhāra karaye chedana\
 > tabe mūla-śākhā bāḍi' yāya vṛndāvana
 
 *prathamei*—from the very beginning; *upaśākhāra*—of the unwanted creepers; *karaye*—does; *chedana*—the cutting away; *tabe*—then only; *mūla-śākhā*—the chief creeper; *bāḍi'*—increasing; *yāya*—goes; *vṛndāvana*—to the lotus feet of Lord Śrī Kṛṣṇa in Vṛndāvana.

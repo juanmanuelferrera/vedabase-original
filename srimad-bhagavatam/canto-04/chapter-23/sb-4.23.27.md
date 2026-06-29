@@ -1,11 +1,11 @@
 ### SB 4.23.27
 
-> तेषां दुरापं किं त्वन्यन्मर्त्यानां भगवत्पदम् ।
+> तेषां दुरापं किं त्वन्यन्मर्त्यानां भगवत्पदम् ।\
 > भुवि लोलायुषो ये वै नैष्कर्म्यं साधयन्त्युत ॥२७॥
 
-> teṣāṁ durāpaṁ kiṁ tv anyan
-> martyānāṁ bhagavat-padam
-> bhuvi lolāyuṣo ye vai
+> teṣāṁ durāpaṁ kiṁ tv anyan\
+> martyānāṁ bhagavat-padam\
+> bhuvi lolāyuṣo ye vai\
 > naiṣkarmyaṁ sādhayanty uta
 
 *teṣām*—of them; *durāpam*—difficult to obtain; *kim*—what; *tu*—but; *anyat*—anything else; *martyānām*—of the human beings; *bhagavat-padam*—the kingdom of God; *bhuvi*—in the world; *lola*—flickering; *āyuṣaḥ*—span of life; *ye*—those; *vai*—certainly; *naiṣkarmyam*—the path of liberation; *sādhayanti*—execute; *uta*—exactly.

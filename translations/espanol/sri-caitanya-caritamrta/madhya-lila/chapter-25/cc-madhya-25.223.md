@@ -1,9 +1,9 @@
 ### CC Madhya 25.223
 
-> সুখে চলি’ আইসে প্রভু বলভদ্র-সঙ্গে ।
+> সুখে চলি’ আইসে প্রভু বলভদ্র-সঙ্গে ।\
 > পূর্ববত্ মৃগাদি-সঙ্গে কৈলা নানারঙ্গে ॥২২৩॥
 
-> sukhe cali' āise prabhu balabhadra-saṅge
+> sukhe cali' āise prabhu balabhadra-saṅge\
 > pūrvavat mṛgādi-saṅge kailā nānā-raṅge
 
 *sukhe*—en un ambiente muy placentero; *cali' āise*—regresa; *prabhu*—Śrī Caitanya Mahāprabhu; *balabhadra-saṅge*—con el sirviente Balabhadra Bhaṭṭācārya; *pūrva-vat*—como antes; *mṛga-ādi-saṅge*—con los animales del bosque; *kailā*—realizó; *nānā-raṅge*—diversas actividades placenteras.

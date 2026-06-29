@@ -1,13 +1,13 @@
 ### SB 7.2.37
 
-> श्रीयम उवाच
-> अहो अमीषां वयसाधिकानां विपश्यतां लोकविधिं विमोहः
+> श्रीयम उवाच\
+> अहो अमीषां वयसाधिकानां विपश्यतां लोकविधिं विमोहः\
 > यत्रागतस्तत्र गतं मनुष्यं स्वयं सधर्मा अपि शोचन्त्यपार्थम ॥३७॥
 
-> śrī-yama uvāca
-> aho amīṣāṁ vayasādhikānāṁ
-> vipaśyatāṁ loka-vidhiṁ vimohaḥ
-> yatrāgatas tatra gataṁ manuṣyaṁ
+> śrī-yama uvāca\
+> aho amīṣāṁ vayasādhikānāṁ\
+> vipaśyatāṁ loka-vidhiṁ vimohaḥ\
+> yatrāgatas tatra gataṁ manuṣyaṁ\
 > svayaṁ sadharmā api śocanty apārtham
 
 *śrī-yamaḥ uvāca*—Śrī Yamarāja said; *aho*—alas; *amīṣām*—of these; *vayasā*—by age; *adhikānām*—of those advanced; *vipaśyatām*—seeing every day; *loka-vidhim*—the law of nature (that everyone dies); *vimohaḥ*—the bewilderment; *yatra*—from where; *āgataḥ*—came; *tatra*—there; *gatam*—returned; *manuṣyam*—the man; *svayam*—themselves; *sa-dharmāḥ*—similar in nature (prone to die); *api*—although; *śocanti*—they lament; *apārtham*—uselessly.

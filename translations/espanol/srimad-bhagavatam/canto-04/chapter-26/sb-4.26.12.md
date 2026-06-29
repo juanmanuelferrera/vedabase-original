@@ -1,11 +1,11 @@
 ### SB 4.26.12
 
-> आत्मानमर्हयां चक्रे धूपालेपस्रगादिभिः ।
+> आत्मानमर्हयां चक्रे धूपालेपस्रगादिभिः ।\
 > साध्वलङ्कृतसर्वाङ्गो महिष्यामादधे मनः ॥१२॥
 
-> ātmānam arhayāṁ cakre
-> dhūpālepa-srag-ādibhiḥ
-> sādhv-alaṅkṛta-sarvāṅgo
+> ātmānam arhayāṁ cakre\
+> dhūpālepa-srag-ādibhiḥ\
+> sādhv-alaṅkṛta-sarvāṅgo\
 > mahiṣyām ādadhe manaḥ
 
 *ātmānam*—él mismo; *arhayām*—como si debiera hacerse; *cakre*—hizo; *dhūpa*—incienso; *ālepa*—ungir el cuerpo con pasta de sándalo; *srak*—collares de flores; *ādibhiḥ*—comenzando con; *sādhu*—santa, hermosamente; *alaṅkṛta*—adornado; *sarva-aṅgaḥ*—por todo el cuerpo; *mahiṣyām*—a la reina; *ādadhe*—dio; *manaḥ*—mente.

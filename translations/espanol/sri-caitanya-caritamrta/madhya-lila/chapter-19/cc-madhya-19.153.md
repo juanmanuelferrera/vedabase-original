@@ -1,9 +1,9 @@
 ### CC Madhya 19.153
 
-> উপজিয়া বাড়ে লতা ‘ব্রহ্মাণ্ড’ ভেদি’ যায় ।
+> উপজিয়া বাড়ে লতা ‘ব্রহ্মাণ্ড’ ভেদি’ যায় ।\
 > ‘বিরজা’, ‘ব্রহ্মলোক’ ভেদি’ ‘পরব্যোম’ পায় ॥১৫৩॥
 
-> upajiyā bāḍe latā 'brahmāṇḍa' bhedi' yāya
+> upajiyā bāḍe latā 'brahmāṇḍa' bhedi' yāya\
 > 'virajā' 'brahma-loka' bhedi' 'para-vyoma' pāya
 
 *upajiyā*—siendo cultivada; *bāḍe*—crece; *latā*—la enredadera del servicio devocional; *brahmāṇḍa*—todo el universo; *bhedi'*—penetrando; *yāya*—va; *virajā*—el río entre el mundo espiritual y el mundo material; *brahma-loka*—la refulgencia del Brahman; *bhedi'*—penetrando; *para-vyoma*—el cielo espiritual; *pāya*—alcanza.

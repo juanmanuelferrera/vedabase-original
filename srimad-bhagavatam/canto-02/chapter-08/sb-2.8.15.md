@@ -1,11 +1,11 @@
 ### SB 2.8.15
 
-> भूपातालककुब्व्योम ग्रहनक्षत्रभूभृताम् ।
+> भूपातालककुब्व्योम ग्रहनक्षत्रभूभृताम् ।\
 > सरित्समुद्रद्वीपानां सम्भवश्चैतदोकसाम् ॥१५॥
 
-> bhū-pātāla-kakub-vyoma-
-> graha-nakṣatra-bhūbhṛtām
-> sarit-samudra-dvīpānāṁ
+> bhū-pātāla-kakub-vyoma-\
+> graha-nakṣatra-bhūbhṛtām\
+> sarit-samudra-dvīpānāṁ\
 > sambhavaś caitad-okasām
 
 *bhū-pātāla*—underneath the land; *kakup*—the four sides of the heavens; *vyoma*—the sky; *graha*—the planets; *nakṣatra*—the stars; *bhūbhṛtām*—of the hills; *sarit*—the river; *samudra*—the sea; *dvīpānām*—of the islands; *sambhavaḥ*—appearance; *ca*—also; *etat*—their; *okasām*—of the inhabitants.

@@ -1,13 +1,13 @@
 ### SB 4.1.1
 
-> मैत्रेय उवाच
-> मनोस्तु शतरूपायां तिस्रः कन्याश्च जज्ञिरे ।
+> मैत्रेय उवाच\
+> मनोस्तु शतरूपायां तिस्रः कन्याश्च जज्ञिरे ।\
 > आकूतिर्देवहूतिश्च प्रसूतिरिति विश्रुताः ॥१॥
 
-> maitreya uvāca
-> manos tu śatarūpāyāṁ
-> tisraḥ kanyāś ca jajñire
-> ākūtir devahūtiś ca
+> maitreya uvāca\
+> manos tu śatarūpāyāṁ\
+> tisraḥ kanyāś ca jajñire\
+> ākūtir devahūtiś ca\
 > prasūtir iti viśrutāḥ
 
 *maitreyaḥ uvāca*—the great sage Maitreya said; *manoḥ tu*—of Svāyambhuva Manu; *śatarūpāyām*—in his wife Śatarūpā; *tisraḥ*—three; *kanyāḥ ca*—daughters also; *jajñire*—gave birth; *ākūtiḥ*—named Ākūti; *devahūtiḥ*—named Devahūti; *ca*—also; *prasūtiḥ*—named Prasūti; *iti*—thus; *viśrutāḥ*—well known.

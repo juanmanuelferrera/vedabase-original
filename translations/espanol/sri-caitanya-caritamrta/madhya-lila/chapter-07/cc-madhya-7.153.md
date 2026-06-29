@@ -1,9 +1,9 @@
 ### CC Madhya 7.153
 
-> চৈতন্যলীলার আদি-অন্ত নাহি জানি ৷
+> চৈতন্যলীলার আদি-অন্ত নাহি জানি ৷\
 > সেই লিখি, যেই মহান্তের মুখে শুনি ৷৷ ১৫৩ ৷৷ ॥১৫৩॥
 
-> caitanya-līlāra ādi-anta nāhi jāni
+> caitanya-līlāra ādi-anta nāhi jāni\
 > sei likhi, yei mahāntera mukhe śuni
 
 *caitanya-līlāra*—de los pasatiempos de Śrī Caitanya Mahāprabhu; *ādi*—comienzo; *anta*—y fin; *nāhi*—no; *jāni*—conozco; *sei*—eso; *likhi*—escribo; *yei*—lo que; *mahāntera*—de las grandes personalidades; *mukhe*—de los labios; *śuni*—escucho.

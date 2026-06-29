@@ -1,11 +1,11 @@
 ### Bg 8.27
 
-> नैते सृती पार्थ जानन्योगी मुह्यति कश्चन ।
+> नैते सृती पार्थ जानन्योगी मुह्यति कश्चन ।\
 > तस्मात्सर्वेषु कालेषु योगयुक्तो भवार्जुन ॥२७॥
 
-> naite sṛtī pārtha jānan
-> yogī muhyati kaścana
-> tasmāt sarveṣu kāleṣu
+> naite sṛtī pārtha jānan\
+> yogī muhyati kaścana\
+> tasmāt sarveṣu kāleṣu\
 > yoga-yukto bhavārjuna
 
 *na*—never; *ete*—all these; *sṛtī*—different paths; *pārtha*—O son of Pṛthā; *jānan*—even if they know; *yogī*—the devotees of the Lord; *muhyati*—bewildered; *kaścana*—anyone; *tasmāt*—therefore; *sarveṣu kāleṣu*—always; *yoga-yuktaḥ*—being engaged in Kṛṣṇa consciousness; *bhava*—just become; *arjuna*—O Arjuna.

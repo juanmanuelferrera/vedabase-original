@@ -1,11 +1,11 @@
 ### SB 9.1.14
 
-> तत्र श्रद्धा मनोः पत्नी होतारं समयाचत
+> तत्र श्रद्धा मनोः पत्नी होतारं समयाचत\
 > दुहित्रर्थमुपागम्य प्रणिपत्य पयोव्रता ॥१४॥
 
-> tatra śraddhā manoḥ patnī
-> hotāraṁ samayācata
-> duhitrartham upāgamya
+> tatra śraddhā manoḥ patnī\
+> hotāraṁ samayācata\
+> duhitrartham upāgamya\
 > praṇipatya payovratā
 
 *tatra*—en aquel sacrificio; *śraddhā*—Śraddhā; *manoḥ*—de Manu; *patnī*—la esposa; *hotāram*—al sacerdote que ejecutaba el *yajña*; *samayācata*—pidió del modo adecuado; *duhitṛ-artham*—una hija; *upāgamya*—acercarse; *praṇipatya*—ofrecer reverencias; *payaḥ-vratā*—que seguía el voto de alimentarse solo de leche.

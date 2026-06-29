@@ -1,9 +1,9 @@
 ### CC Antya 2.104
 
-> মাহিতির ভগিনী সেই, নাম — মাধবী-দেবী ।
+> মাহিতির ভগিনী সেই, নাম — মাধবী-দেবী ।\
 > বৃদ্ধা তপস্বিনী আর পরমা বৈষ্ণবী ॥১০৪॥
 
-> māhitira bhaginī sei, nāma--mādhavī-devī
+> māhitira bhaginī sei, nāma--mādhavī-devī\
 > vṛddhā tapasvinī āra paramā vaiṣṇavī
 
 *māhitira bhaginī*—la hermana de Śikhi Māhiti; *sei*—esa; *nāma*—llamada; *mādhavī-devī*—Mādhavīdevī; *vṛddhā*—una señora de edad avanzada; *tapasvinī*—muy estricta en la ejecución del servicio devocional; *āra*—y; *paramā vaiṣṇavī*—una devota de primera clase.

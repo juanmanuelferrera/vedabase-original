@@ -1,11 +1,11 @@
 ### SB 5.10.13
 
-> उन्मत्तमत्तजडवत्स्वसंस्थां गतस्य मे वीर चिकित्सितेन
+> उन्मत्तमत्तजडवत्स्वसंस्थां गतस्य मे वीर चिकित्सितेन\
 > अर्थः कियान्भवता शिक्षितेन स्तब्धप्रमत्तस्य च पिष्टपेषः ॥१३॥
 
-> unmatta-matta-jaḍavat sva-saṁsthāṁ
-> gatasya me vīra cikitsitena
-> arthaḥ kiyān bhavatā śikṣitena
+> unmatta-matta-jaḍavat sva-saṁsthāṁ\
+> gatasya me vīra cikitsitena\
+> arthaḥ kiyān bhavatā śikṣitena\
 > stabdha-pramattasya ca piṣṭapeṣaḥ
 
 *unmatta*—locura; *matta*—un borracho; *jaḍa-vat*—como un burro; *sva-saṁsthām*—situación en mi posición constitucional original; *gatasya*—del que ha obtenido; *me*—de mí; *vīra*—¡oh, rey!; *cikitsitena*—por tu castigo; *arthaḥ*—el sentido o propósito; *kiyān*—qué; *bhavatā*—por ti; *śikṣitena*—por ser instruido; *stabdha*—tonto; *pramattasya*—de un loco; *ca*—también; *piṣṭa-peṣaḥ*—como moler harina.

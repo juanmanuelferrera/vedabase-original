@@ -1,9 +1,9 @@
 ### CC Madhya 1.208
 
-> আজি হৈতে দুঁহার নাম ‘রূপ’ ‘সনাতন’ ।
+> আজি হৈতে দুঁহার নাম ‘রূপ’ ‘সনাতন’ ।\
 > দৈন্য ছাড়, তোমার দৈন্যে ফাটে মোর মন ॥২০৮॥
 
-> āji haite duṅhāra nāma 'rūpa' 'sanātana'
+> āji haite duṅhāra nāma 'rūpa' 'sanātana'\
 > dainya chāḍa, tomāra dainye phāṭe mora mana
 
 *ājihaite*—from this day; *duṅhāra*—of both of you; *nāma*—these names; *rūpa*—Śrī Rūpa; *sanātana*—Śrī Sanātana; *dainyachāḍa*—give up your humility; *tomāra*—your; *dainye*—humility; *phāṭe*—breaks; *mora*—My; *mana*—heart.

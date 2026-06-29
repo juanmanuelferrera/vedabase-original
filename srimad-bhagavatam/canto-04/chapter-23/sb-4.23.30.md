@@ -1,11 +1,11 @@
 ### SB 4.23.30
 
-> इत्थम्भूतानुभावोऽसौ पृथुः स भगवत्तमः ।
+> इत्थम्भूतानुभावोऽसौ पृथुः स भगवत्तमः ।\
 > कीर्तितं तस्य चरितमुद्दामचरितस्य ते ॥३०॥
 
-> ittham-bhūtānubhāvo 'sau
-> pṛthuḥ sa bhagavattamaḥ
-> kīrtitaṁ tasya caritam
+> ittham-bhūtānubhāvo 'sau\
+> pṛthuḥ sa bhagavattamaḥ\
+> kīrtitaṁ tasya caritam\
 > uddāma-caritasya te
 
 *ittham-bhūta*—thus; *anubhāvaḥ*—very great, powerful; *asau*—that; *pṛthuḥ*—King Pṛthu; *saḥ*—he; *bhagavat-tamaḥ*—the best among the lords; *kīrtitam*—described; *tasya*—his; *caritam*—character; *uddāma*—very great; *caritasya*—one who possesses such qualities; *te*—to you.

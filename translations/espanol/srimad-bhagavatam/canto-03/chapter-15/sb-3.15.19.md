@@ -1,13 +1,13 @@
 ### SB 3.15.19
 
-> मन्दारकुन्दकुरबोत्पलचम्पकार्ण
-> पुन्नागनागबकुलाम्बुजपारिजाताः ।
-> गन्धेऽर्चिते तुलसिकाभरणेन तस्या
+> मन्दारकुन्दकुरबोत्पलचम्पकार्ण\
+> पुन्नागनागबकुलाम्बुजपारिजाताः ।\
+> गन्धेऽर्चिते तुलसिकाभरणेन तस्या\
 > यस्मिंस्तपः सुमनसो बहु मानयन्ति ॥१९॥
 
-> mandāra-kunda-kurabotpala-campakārṇa-
-> punnāga-nāga-bakulāmbuja-pārijātāḥ
-> gandhe 'rcite tulasikābharaṇena tasyā
+> mandāra-kunda-kurabotpala-campakārṇa-\
+> punnāga-nāga-bakulāmbuja-pārijātāḥ\
+> gandhe 'rcite tulasikābharaṇena tasyā\
 > yasmiṁs tapaḥ sumanaso bahu mānayanti
 
 *mandāra*—*mandāra*; *kunda*—*kunda*; *kuraba*—*kuraba*; *utpala*—*utpala*; *campaka*—*campaka*; *arṇa*—la flor de *arṇa*; *punnāga*—*punnāga*; *nāga*—*nāgakeśara*; *bakula*—*bakula*; *ambuja*—lirio; *pārijātāḥ*—*pārijāta*; *gandhe*—fragancia; *arcite*—siendo adorada; *tulasikā*—*tulasī*; *ābharaṇena*—con un collar; *tasyāḥ*—de ella; *yasmin*—en Vaikuṇṭha; *tapaḥ*—austeridad; *su-manasaḥ*—de buen pensamiento, pensamiento Vaikuṇṭha; *bahu*—mucho; *mānayanti*—glorifican.

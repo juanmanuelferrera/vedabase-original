@@ -1,18 +1,18 @@
 ### SB 7.10.43-44
 
-> प्रह्रादस्यानुचरितं महाभागवतस्य च
-> भक्तिरज्ञआनं विरक्तिश्च याथार्थ्यं चास्य वै हरेः ॥४३॥
-> सर्गस्थित्यप्ययेशस्य गुणकर्मानुवर्णनम
+> प्रह्रादस्यानुचरितं महाभागवतस्य च\
+> भक्तिरज्ञआनं विरक्तिश्च याथार्थ्यं चास्य वै हरेः ॥४३॥\
+> सर्गस्थित्यप्ययेशस्य गुणकर्मानुवर्णनम\
 > परावरेषां स्थानानां कालेन व्यत्ययो महान ॥४४॥
 
-> prahrādasyānucaritaṁ
-> mahā-bhāgavatasya ca
-> bhaktir jñānaṁ viraktiś ca
+> prahrādasyānucaritaṁ\
+> mahā-bhāgavatasya ca\
+> bhaktir jñānaṁ viraktiś ca\
 > yāthārthyaṁ cāsya vai hareḥ
 
-> sarga-sthity-apyayeśasya
-> guṇa-karmānuvarṇanam
-> parāvareṣāṁ sthānānāṁ
+> sarga-sthity-apyayeśasya\
+> guṇa-karmānuvarṇanam\
+> parāvareṣāṁ sthānānāṁ\
 > kālena vyatyayo mahān
 
 *prahrādasya*—de Prahlāda Mahārāja; *anucaritam*—cualidades (entendidas por leer o narrar sus actividades); *mahā-bhāgavatasya*—del gran devoto excelso; *ca*—también; *bhaktiḥ*—servicio devocional a la Suprema Personalidad de Dios; *jñānam*—conocimiento completo de la Realidad Trascendental (Brahman, Paramātmā y Bhagavān); *viraktiḥ*—renunciación a la existencia material; *ca*—también; *yāthārthyam*—solo para entender a cada uno de ellos perfectamente; *ca*—y; *asya*—de esto; *vai*—en verdad; *hareḥ*—siempre con respecto a la Suprema Personalidad de Dios; *sarga*—de la creación; *sthiti*—mantenimiento; *apyaya*—y aniquilación; *īśasya*—del amo y señor (la Suprema Personalidad de Dios); *guṇa*—de las cualidades y opulencias trascendentales; *karma*—y de las actividades; *anuvarṇanam*—descripción en concordancia con la sucesión discipular*; *para-avareṣām*—de diferentes tipos de entidades vivientes, conocidas como semidioses y demonios; *sthānānām*—de los diversos planetas o lugares en que se puede vivir; *kālena*—a su debido tiempo; *vyatyayaḥ*—la aniquilación de todo; *mahān*—aunque muy grande.

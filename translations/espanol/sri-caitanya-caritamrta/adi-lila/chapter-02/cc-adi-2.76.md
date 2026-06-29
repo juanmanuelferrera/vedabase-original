@@ -1,9 +1,9 @@
 ### CC Adi 2.76
 
-> ‘বিধেয়’ কহিয়ে তারে, যে বস্তু অজ্ঞাত ।
+> ‘বিধেয়’ কহিয়ে তারে, যে বস্তু অজ্ঞাত ।\
 > ‘অনুবাদ’ কহি তারে, যেই হয় জ্ঞাত ॥৭৬॥
 
-> 'vidheya' kahiye tāre, ye vastu ajñāta
+> 'vidheya' kahiye tāre, ye vastu ajñāta\
 > 'anuvāda' kahi tāre, yei haya jñāta
 
 *vidheya*—el predicado; *kahiye*—digo; *tāre*—a él; *ye*—aquello; *vastu*—cosa; *ajñāta*—desconocida; *anuvāda*—el sujeto; *kahi*—digo; *tāre*—a él; *yei*—lo que; *haya*—es; *jñāta*—conocido.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.221
 
-> গজেন্দ্রমোক্ষণ-তীর্থে দেখি বিষ্ণুমূর্তি ৷
+> গজেন্দ্রমোক্ষণ-তীর্থে দেখি বিষ্ণুমূর্তি ৷\
 > পানাগড়ি-তীর্থে আসি’ দেখিল সীতাপতি ৷৷ ২২১ ৷৷ ॥২২১॥
 
-> gajendra-mokṣaṇa-tīrthe dekhi viṣṇu-mūrti
+> gajendra-mokṣaṇa-tīrthe dekhi viṣṇu-mūrti\
 > pānāgaḍi-tīrthe āsi' dekhila sītāpati
 
 *gajendra-mokṣaṇa-tīrthe*—en el lugar sagrado llamado Gajendra-mokṣaṇa; *dekhi*—viendo; *viṣṇu-mūrti*—la Deidad del Señor Viṣṇu; *pānāgaḍi-tīrthe*—al lugar sagrado Pānāgaḍi; *āsi'*—llegando; *dekhila*—vio; *sītā-pati*—el Señor Śrī Rāmacandra y Sītādevī.

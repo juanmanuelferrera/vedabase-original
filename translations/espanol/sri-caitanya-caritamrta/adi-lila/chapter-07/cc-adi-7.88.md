@@ -1,9 +1,9 @@
 ### CC Adi 7.88
 
-> প্রেমার স্বভাবে ভক্ত হাসে, কান্দে, গায় ।
+> প্রেমার স্বভাবে ভক্ত হাসে, কান্দে, গায় ।\
 > উন্মত্ত হইয়া নাচে, ইতি-উতি ধায় ॥৮৮॥
 
-> premāra svabhāve bhakta hāse, kānde, gāya
+> premāra svabhāve bhakta hāse, kānde, gāya\
 > unmatta ha-iyā nāce, iti-uti dhāya
 
 *premāra*—por tal amor a Dios; *svabhāve*—por naturaleza; *bhakta*—el devoto; *hāse*—ríe; *kānde*—llora; *gāya*—canta; *unmatta*—loco; *ha-iyā*—volviéndose; *nāce*—danza; *iti*—aquí; *uti*—allá; *dhāya*—se mueve.

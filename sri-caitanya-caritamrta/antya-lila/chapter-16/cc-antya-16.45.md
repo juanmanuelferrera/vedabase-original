@@ -1,9 +1,9 @@
 ### CC Antya 16.45
 
-> একদিন প্রভু তাঁহা পাদ প্রক্ষালিতে ।
+> একদিন প্রভু তাঁহা পাদ প্রক্ষালিতে ।\
 > কালিদাস আসি’ তাহাঁ পাতিলেন হাতে ॥৪৫॥
 
-> eka-dina prabhu tāṅhā pāda prakṣālite
+> eka-dina prabhu tāṅhā pāda prakṣālite\
 > kālidāsa āsi' tāhāṅ pātilena hāte
 
 *eka-dina*—one day; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅhā*—there; *pāda prakṣālite*—washing His feet; *kālidāsa*—Kālidāsa; *āsi'*—coming; *tāhāṅ*—there; *pātilena*—spread; *hāte*—his palm.

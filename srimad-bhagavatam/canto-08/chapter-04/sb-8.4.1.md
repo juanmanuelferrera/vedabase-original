@@ -1,13 +1,13 @@
 ### SB 8.4.1
 
-> श्रीशुक उवाच
-> तदा देवर्षिगन्धर्वा ब्रह्मेशानपुरोगमाः
+> श्रीशुक उवाच\
+> तदा देवर्षिगन्धर्वा ब्रह्मेशानपुरोगमाः\
 > मुमुचुः कुसुमासारं शंसन्तः कर्म तद्धरेः ॥१॥
 
-> śrī-śuka uvāca
-> tadā devarṣi-gandharvā
-> brahmeśāna-purogamāḥ
-> mumucuḥ kusumāsāraṁ
+> śrī-śuka uvāca\
+> tadā devarṣi-gandharvā\
+> brahmeśāna-purogamāḥ\
+> mumucuḥ kusumāsāraṁ\
 > śaṁsantaḥ karma tad dhareḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *tadā*—at that time (when Gajendra was delivered); *deva-ṛṣi-gandharvāḥ*—the demigods, sages and Gandharvas; *brahma-īśāna-purogamāḥ*—headed by Lord Brahmā and Lord Śiva; *mumucuḥ*—showered; *kusuma-āsāram*—a covering of flowers; *śaṁsantaḥ*—while praising; *karma*—transcendental activity; *tat*—that (*gajendra-mokṣaṇa*); *hareḥ*—of the Supreme Personality of Godhead.

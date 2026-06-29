@@ -1,9 +1,9 @@
 ### CC Antya 16.20
 
-> কালিদাস কহে, — “ঠাকুর, কৃপা কর মোরে ।
+> কালিদাস কহে, — “ঠাকুর, কৃপা কর মোরে ।\
 > তোমার দর্শনে আইনু মুই পতিত পামরে ॥২০॥
 
-> kālidāsa kahe,—"ṭhākura, kṛpā kara more
+> kālidāsa kahe,—"ṭhākura, kṛpā kara more\
 > tomāra darśane āinu mui patita pāmare
 
 *kālidāsa kahe*—Kālidāsa replied; *ṭhākura*—my dear saintly person; *kṛpā kara*—bestow your mercy; *more*—upon me; *tomāra darśane*—to see you; *āinu*—have come; *mui*—I; *patita pāmare*—very fallen and sinful.

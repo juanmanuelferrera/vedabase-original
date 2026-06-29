@@ -1,9 +1,9 @@
 ### CC Madhya 16.253
 
-> আনন্দিত ভক্তগণ আসিয়া মিলিলা ।
+> আনন্দিত ভক্তগণ আসিয়া মিলিলা ।\
 > প্রেম-আলিঙ্গন প্রভু সবারে করিলা ॥২৫৩॥
 
-> ānandita bhakta-gaṇa āsiyā mililā
+> ānandita bhakta-gaṇa āsiyā mililā\
 > prema-āliṅgana prabhu sabāre karilā
 
 *ānandita*—muy complacidos; *bhakta-gaṇa*—todos los devotos; *āsiyā*—acudieron; *mililā*—se encontraron; *prema-āliṅgana*—abrazo amoroso; *prabhu*—el Señor; *sabāre*—a todos los devotos; *karilā*—ofreció.

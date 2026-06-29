@@ -1,11 +1,11 @@
 ### SB 8.3.3
 
-> यस्मिन्निदं यतश्चेदं येनेदं य इदं स्वयम
+> यस्मिन्निदं यतश्चेदं येनेदं य इदं स्वयम\
 > योऽस्मात्परस्माच्च परस्तं प्रपद्ये स्वयम्भुवम ॥३॥
 
-> yasminn idaṁ yataś cedaṁ
-> yenedaṁ ya idaṁ svayam
-> yo 'smāt parasmāc ca paras
+> yasminn idaṁ yataś cedaṁ\
+> yenedaṁ ya idaṁ svayam\
+> yo 'smāt parasmāc ca paras\
 > taṁ prapadye svayambhuvam
 
 *yasmin*—el plano básico sobre el cual; *idam*—reposa el universo; *yataḥ*—cuyos elementos; *ca*—y; *idam*—se produce la manifestación cósmica; *yena*—por el cual; *idam*—es creada y mantenida la manifestación cósmica; *yaḥ*—aquel que; *idam*—el mundo material; *svayam*—es Él mismo; *yaḥ*—aquel que; *asmāt*—del efecto (el mundo material); *parasmāt*—de la causa; *ca*—y; *paraḥ*—trascendental o diferente; *tam*—a Él; *prapadye*—me entrego; *svayambhuvam*—al ser autosuficiente supremo.

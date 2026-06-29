@@ -1,11 +1,11 @@
 ### SB 1.19.4
 
-> स चिन्तयन्नित्थमथाशृणोद्यथा मुनेः सुतोक्तो निरृतिस्तक्षकाख्यः ।
+> स चिन्तयन्नित्थमथाशृणोद्यथा मुनेः सुतोक्तो निरृतिस्तक्षकाख्यः ।\
 > स साधु मेने न चिरेण तक्षका नलं प्रसक्तस्य विरक्तिकारणम् ॥४॥
 
-> sa cintayann ittham athāśṛṇod yathā
-> muneḥ sutokto nirṛtis takṣakākhyaḥ
-> sa sādhu mene na cireṇa takṣakā-
+> sa cintayann ittham athāśṛṇod yathā\
+> muneḥ sutokto nirṛtis takṣakākhyaḥ\
+> sa sādhu mene na cireṇa takṣakā-\
 > nalaṁ prasaktasya virakti-kāraṇam
 
 *saḥ*—él, el rey; *cintayan*—pensando; *ittham*—de este modo; *atha*—ahora; *aśṛṇot*—oyó; *yathā*—como; *muneḥ*—del sabio; *suta-uktaḥ*—proferido por el hijo; *nirṛtiḥ*—muerte; *takṣaka-ākhyaḥ*—en relación con la serpiente alada; *saḥ*—él (el rey); *sādhu*—bien y bueno; *mene*—aceptó; *na*—no; *cireṇa*—tiempo muy largo; *takṣaka*—serpiente alada; *analam*—fuego; *prasaktasya*—de aquel que está demasiado apegado; *virakti*—indiferencia; *kāraṇam*—causa.

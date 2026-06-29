@@ -1,13 +1,13 @@
 ### SB 8.14.2
 
-> श्रीऋषिरुवाच
-> मनवो मनुपुत्राश्च मुनयश्च महीपते
+> श्रीऋषिरुवाच\
+> मनवो मनुपुत्राश्च मुनयश्च महीपते\
 > इन्द्राः सुरगणाश्चैव सर्वे पुरुषशासनाः ॥२॥
 
-> śrī-ṛṣir uvāca
-> manavo manu-putrāś ca
-> munayaś ca mahī-pate
-> indrāḥ sura-gaṇāś caiva
+> śrī-ṛṣir uvāca\
+> manavo manu-putrāś ca\
+> munayaś ca mahī-pate\
+> indrāḥ sura-gaṇāś caiva\
 > sarve puruṣa-śāsanāḥ
 
 *śrī-ṛṣiḥ uvāca*—Śrī Śukadeva Gosvāmī said; *manavaḥ*—all the Manus; *manu-putrāḥ*—all the sons of Manu; *ca*—and; *munayaḥ*—all the great sages; *ca*—and; *mahī-pate*—O King; *indrāḥ*—all the Indras; *sura-gaṇāḥ*—the demigods; *ca*—and; *eva*—certainly; *sarve*—all of them; *puruṣa-śāsanāḥ*—under the rule of the Supreme person.

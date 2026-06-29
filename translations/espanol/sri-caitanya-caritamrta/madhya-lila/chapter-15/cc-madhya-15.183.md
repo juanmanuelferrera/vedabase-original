@@ -1,10 +1,10 @@
 ### CC Madhya 15.183
 
-> গদাধর-পণ্ডিত রহিলা প্রভুর পাশে ৷
+> গদাধর-পণ্ডিত রহিলা প্রভুর পাশে ৷\
 > যমেশ্বরে প্রভু যাঁরে করাইলা আবাসে ॥১৮৩॥
 
-> gadādhara-paṇḍita rahilā prabhura pāśe
-> gadādhara-paṇḍita rahilā prabhura pāśe
+> gadādhara-paṇḍita rahilā prabhura pāśe\
+> gadādhara-paṇḍita rahilā prabhura pāśe\
 > yameśvare prabhu yāṅre karāilā āvāse
 
 *gadādhara-paṇḍita*—Gadādhara Paṇḍita; *rahilā*—permaneció; *prabhura pāśe*—junto con Śrī Caitanya Mahāprabhu; *yameśvare*—en Yameśvara; *prabhu*—Śrī Caitanya Mahāprabhu; *yāṅre*—a quien; *karāilā*—hizo tomar; *āvāse*—residencia.

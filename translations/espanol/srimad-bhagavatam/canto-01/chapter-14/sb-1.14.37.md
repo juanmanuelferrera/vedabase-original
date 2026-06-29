@@ -1,11 +1,11 @@
 ### SB 1.14.37
 
-> यत्पादशुश्रूषणमुख्यकर्मणा सत्यादयो द्व्यष्टसहस्रयोषितः ।
+> यत्पादशुश्रूषणमुख्यकर्मणा सत्यादयो द्व्यष्टसहस्रयोषितः ।\
 > निर्जित्य सङ्ख्ये त्रिदशांस्तदाशिषो हरन्ति वज्रायुधवल्लभोचिताः ॥३७॥
 
-> yat-pāda-śuśrūṣaṇa-mukhya-karmaṇā
-> satyādayo dvy-aṣṭa-sahasra-yoṣitaḥ
-> nirjitya saṅkhye tri-daśāṁs tad-āśiṣo
+> yat-pāda-śuśrūṣaṇa-mukhya-karmaṇā\
+> satyādayo dvy-aṣṭa-sahasra-yoṣitaḥ\
+> nirjitya saṅkhye tri-daśāṁs tad-āśiṣo\
 > haranti vajrāyudha-vallabhocitāḥ
 
 *yat*—cuyos; *pāda*—pies; *śuśrūṣaṇa*—suministro de comodidades; *mukhya*—el más importante; *karmaṇā*—por los actos de; *satya-ādayaḥ*—reinas encabezadas por Satyabhāmā; *dvi-aṣṭa*—dos veces ocho; *sahasra*—mil; *yoṣitaḥ*—el sexo bello; *nirjitya*—por vencer; *saṅkhye*—en la batalla; *tri-daśān*—de los ciudadanos del cielo; *tat-āśiṣaḥ*—de lo que disfrutan los semidioses; *haranti*—se lleva; *vajra-āyudha-vallabhā*—las esposas de la personalidad que controla el relámpago; *ucitāḥ*—que merece.

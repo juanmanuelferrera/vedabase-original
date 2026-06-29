@@ -1,11 +1,11 @@
 ### CC Antya 1.189
 
-> হ্রিয়মবগৃহ্য গৃহেভ্যঃ কর্ষতি রাধাং বনায় যা নিপুণা ।
+> হ্রিয়মবগৃহ্য গৃহেভ্যঃ কর্ষতি রাধাং বনায় যা নিপুণা ।\
 > সা জয়তি নিসৃষ্টার্থা বরবংশজকাকলী দূতী ॥১৮৯॥
 
-> hriyam avagṛhya gṛhebhyaḥ karṣati
-> rādhāṁ vanāya yā nipuṇā
-> sā jayati nisṛṣṭārthā
+> hriyam avagṛhya gṛhebhyaḥ karṣati\
+> rādhāṁ vanāya yā nipuṇā\
+> sā jayati nisṛṣṭārthā\
 > vara-vaṁśaja-kākalī dūtī
 
 *hriyam*—bashfulness; *avagṛhya*—impeding; *gṛhebhyaḥ*—from private houses; *karṣati*—attracts; *rādhām*—Śrīmatī Rādhārāṇī; *vanāya*—to the forest; *yā*—which; *nipuṇā*—being expert; *sā*—that; *jayati*—let it be glorified; *nisṛṣṭa-arthā*—authorized; *vara-vaṁśaja*—of the bamboo flute; *kākalī*—the sweet tone; *dūtī*—the messenger.

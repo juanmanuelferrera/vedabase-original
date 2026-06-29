@@ -1,9 +1,9 @@
 ### CC Madhya 14.138
 
-> পূর্বে সত্যভামার শুনি এবম্বিধ মান ।
+> পূর্বে সত্যভামার শুনি এবম্বিধ মান ।\
 > ব্রজে গোপীগণের মান — রসের নিধান ॥১৩৮॥
 
-> pūrve satyabhāmāra śuni evaṁ-vidha māna
+> pūrve satyabhāmāra śuni evaṁ-vidha māna\
 > vraje gopī-gaṇera māna-rasera nidhāna
 
 *pūrve*—previously; *satyabhāmāra*—of Queen Satyabhāmā; *śuni*—I hear; *evaṁ-vidha māna*—this kind of egoistic pride; *vraje*—in Vṛndāvana; *gopī-gaṇera*—of the *gopīs*; *māna*—pride; *rasera nidhāna*—the reservoir of all humorous mellows.

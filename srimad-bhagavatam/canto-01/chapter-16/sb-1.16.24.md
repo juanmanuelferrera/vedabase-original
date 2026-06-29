@@ -1,11 +1,11 @@
 ### SB 1.16.24
 
-> इदं ममाचक्ष्व तवाधिमूलं वसुन्धरे येन विकर्शितासि ।
+> इदं ममाचक्ष्व तवाधिमूलं वसुन्धरे येन विकर्शितासि ।\
 > कालेन वा ते बलिनां बलीयसा सुरार्चितं किं हृतमम्ब सौभगम् ॥२४॥
 
-> idaṁ mamācakṣva tavādhi-mūlaṁ
-> vasundhare yena vikarśitāsi
-> kālena vā te balināṁ balīyasā
+> idaṁ mamācakṣva tavādhi-mūlaṁ\
+> vasundhare yena vikarśitāsi\
+> kālena vā te balināṁ balīyasā\
 > surārcitaṁ kiṁ hṛtam amba saubhagam
 
 *idam*—this; *mama*—unto me; *ācakṣva*—kindly inform; *tava*—your; *ādhimūlam*—the root cause of your tribulations; *vasundhare*—O reservoir of all riches; *yena*—by which; *vikarśitā asi*—reduced to much weakness; *kālena*—by the influence of time; *vā*—or; *te*—your; *balinām*—very powerful; *balīyasā*—more powerful; *sura-arcitam*—adored by the demigods; *kim*—whether; *hṛtam*—taken away; *amba*—mother; *saubhagam*—fortune.

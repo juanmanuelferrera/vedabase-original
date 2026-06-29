@@ -1,9 +1,9 @@
 ### CC Adi 5.208
 
-> প্রেমে মত্ত নিত্যানন্দ কৃপা-অবতার ।
+> প্রেমে মত্ত নিত্যানন্দ কৃপা-অবতার ।\
 > উত্তম, অধম, কিছু না করে বিচার ॥২০৮॥
 
-> preme matta nityānanda kṛpā-avatāra
+> preme matta nityānanda kṛpā-avatāra\
 > uttama, adhama, kichu nā kare vicāra
 
 *preme*—en amor extático; *matta*—enloquecido; *nityānanda*—el Señor Nityānanda; *kṛpā*—misericordiosa; *avatāra*—encarnación; *uttama*—bueno; *adhama*—malo; *kichu*—ninguna; *nā*—no; *kare*—hace; *vicāra*—consideración.

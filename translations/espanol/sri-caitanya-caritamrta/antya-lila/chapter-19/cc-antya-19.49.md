@@ -1,13 +1,13 @@
 ### CC Antya 19.49
 
-> ‘অক্রূর করে তোমার দোষ, আমায় কেনে কর রোষ’,
-> ইহা যদি কহ ‘দুরাচার’ ।
-> তুই অক্রূর-মূর্তি ধরি’, কৃষ্ণ নিলি চুরি করি’,
+> ‘অক্রূর করে তোমার দোষ, আমায় কেনে কর রোষ’,\
+> ইহা যদি কহ ‘দুরাচার’ ।\
+> তুই অক্রূর-মূর্তি ধরি’, কৃষ্ণ নিলি চুরি করি’,\
 > অন্যের নহে ঐছে ব্যবহার ॥৪৯॥
 
-> 'akrūra kare tomāra doṣa, āmāya kene kara roṣa',
-> ihā yadi kaha 'durācāra'
-> tui akrūra-mūrti dhari', kṛṣṇa nili curi kari',
+> 'akrūra kare tomāra doṣa, āmāya kene kara roṣa',\
+> ihā yadi kaha 'durācāra'\
+> tui akrūra-mūrti dhari', kṛṣṇa nili curi kari',\
 > anyera nahe aiche vyavahāra
 
 *akrūra*—Akrūra; *kare*—comete; *tomāra doṣa*—falta contra ti; *āmāya*—a mí; *kene*—por qué; *kara*—haces; *roṣa*—enojo; *ihā*—esto; *yadi*—si; *kaha*—dices; *durācāra*—¡oh, malportada (Providencia)!; *tui*—tú; *akrūra-mūrti dhari'*—tomando la forma de Akrūra; *kṛṣṇa*—el Señor Kṛṣṇa; *nili*—has llevado; *curi kari'*—robando; *anyera*—de otros; *nahe*—no existe; *aiche*—este tipo de; *vyavahāra*—comportamiento.

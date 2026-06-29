@@ -1,11 +1,11 @@
 ### SB 3.1.23
 
-> अन्यानि चेह द्विजदेवदेवैः कृतानि नानायतनानि विष्णोः ।
+> अन्यानि चेह द्विजदेवदेवैः कृतानि नानायतनानि विष्णोः ।\
 > प्रत्यङ्गमुख्याङ्कितमन्दिराणि यद्दर्शनात्कृष्णमनुस्मरन्ति ॥२३॥
 
-> anyāni ceha dvija-deva-devaiḥ
-> kṛtāni nānāyatanāni viṣṇoḥ
-> pratyaṅga-mukhyāṅkita-mandirāṇi
+> anyāni ceha dvija-deva-devaiḥ\
+> kṛtāni nānāyatanāni viṣṇoḥ\
+> pratyaṅga-mukhyāṅkita-mandirāṇi\
 > yad-darśanāt kṛṣṇam anusmaranti
 
 *anyāni*—otros; *ca*—también; *iha*—aquí; *dvija-deva*—por los grandes sabios; *devaiḥ*—y los semidioses; *kṛtāni*—establecidos por; *nānā*—varias; *āyatanāni*—varias formas; *viṣṇoḥ*—de la Suprema Personalidad de Dios; *prati*—todas y cada una de las; *aṅga*—parte; *mukhya*—los principales; *aṅkita*—marcados; *mandirāṇi*—templos; *yat*—los cuales; *darśanāt*—por verlos desde lejos; *kṛṣṇam*—la Personalidad de Dios original; *anusmaranti*—recuerda constantemente.

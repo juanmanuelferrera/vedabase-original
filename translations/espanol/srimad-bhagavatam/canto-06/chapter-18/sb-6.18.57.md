@@ -1,11 +1,11 @@
 ### SB 6.18.57
 
-> नित्यं वनात्सुमनसः फलमूलसमित्कुशान
+> नित्यं वनात्सुमनसः फलमूलसमित्कुशान\
 > पत्राङ्कुरमृदोऽपश्च काले काल उपाहरत ॥५७॥
 
-> nityaṁ vanāt sumanasaḥ
-> phala-mūla-samit-kuśān
-> patrāṅkura-mṛdo 'paś ca
+> nityaṁ vanāt sumanasaḥ\
+> phala-mūla-samit-kuśān\
+> patrāṅkura-mṛdo 'paś ca\
 > kāle kāla upāharat
 
 *nityam*—diariamente; *vanāt*—del bosque; *sumanasaḥ*—flores; *phala*—frutas; *mūla*—raíces; *samit*—leña para el fuego de sacrificio; *kuśān*—y hierba *kuśa*; *patra*—hojas; *aṅkura*—brotes; *mṛdaḥ*—y tierra; *apaḥ*—agua; *ca*—también; *kāle kāle*—en el momento adecuado; *upāharat*—traídos.

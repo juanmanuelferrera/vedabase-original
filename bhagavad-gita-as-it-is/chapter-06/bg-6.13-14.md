@@ -1,18 +1,18 @@
 ### Bg 6.13-14
 
-> समं कायशिरोग्रीवं धारयन्नचलं स्थिरः ।
-> सम्प्रेक्ष्य नासिकाग्रं स्वं दिशश्चानवलोकयन् ॥१३॥
-> प्रशान्तात्मा विगतभीर्ब्रह्मचारिव्रते स्थितः ।
+> समं कायशिरोग्रीवं धारयन्नचलं स्थिरः ।\
+> सम्प्रेक्ष्य नासिकाग्रं स्वं दिशश्चानवलोकयन् ॥१३॥\
+> प्रशान्तात्मा विगतभीर्ब्रह्मचारिव्रते स्थितः ।\
 > मनः संयम्य मच्चित्तो युक्त आसीत मत्परः ॥१४॥
 
-> samaṁ kāya-śiro-grīvaṁ
-> dhārayann acalaṁ sthiraḥ
-> samprekṣya nāsikāgraṁ svaṁ
+> samaṁ kāya-śiro-grīvaṁ\
+> dhārayann acalaṁ sthiraḥ\
+> samprekṣya nāsikāgraṁ svaṁ\
 > diśaś cānavalokayan
 
-> praśāntātmā vigata-bhīr
-> brahmacāri-vrate sthitaḥ
-> manaḥ saṁyamya mac-citto
+> praśāntātmā vigata-bhīr\
+> brahmacāri-vrate sthitaḥ\
+> manaḥ saṁyamya mac-citto\
 > yukta āsīta mat-paraḥ
 
 *samam*—straight; *kāya-śiraḥ*—body and head; *grīvam*—neck; *dhārayan*—holding; *acalam*—unmoved; *sthiraḥ*—still; *samprekṣya*—looking; *nāsikā*—nose; *agram*—tip; *svam*—own; *diśaḥ*—all sides; *ca*—also; *anavalokayan*—not seeing; *praśānta*—unagitated; *ātmā*—mind; *vigata-bhīḥ*—devoid of fear; *brahmacāri-vrate*—in the vow of celibacy; *sthitaḥ*—situated; *manaḥ*—mind; *saṁyamya*—completely subdued; *mat*—unto Me (Kṛṣṇa); *cittaḥ*—concentrated; *yuktaḥ*—actual *yogī*; *āsīta*—being so; *mat*—unto Me; *paraḥ*—ultimate goal.

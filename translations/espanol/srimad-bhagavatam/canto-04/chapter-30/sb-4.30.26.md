@@ -1,11 +1,11 @@
 ### SB 4.30.26
 
-> नमः कमलकिञ्जल्क पिशङ्गामलवाससे ।
+> नमः कमलकिञ्जल्क पिशङ्गामलवाससे ।\
 > सर्वभूतनिवासाय नमोऽयुङ्क्ष्महि साक्षिणे ॥२६॥
 
-> namaḥ kamala-kiñjalka-
-> piśaṅgāmala-vāsase
-> sarva-bhūta-nivāsāya
+> namaḥ kamala-kiñjalka-\
+> piśaṅgāmala-vāsase\
+> sarva-bhūta-nivāsāya\
 > namo 'yuṅkṣmahi sākṣiṇe
 
 *namaḥ*—reverencias; *kamala-kiñjalka*—como el azafrán de una flor de loto; *piśaṅga*—amarillentas; *amala*—inmaculadas; *vāsase*—a aquel cuyas ropas; *sarva-bhūta*—de todas las entidades vivientes; *nivāsāya*—el refugio; *namaḥ*—reverencias; *ayuṅkṣmahi*—ofrezcamos; *sākṣiṇe*—al testigo supremo.

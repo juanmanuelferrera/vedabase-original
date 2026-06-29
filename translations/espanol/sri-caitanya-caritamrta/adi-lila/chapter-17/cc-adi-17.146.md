@@ -1,9 +1,9 @@
 ### CC Adi 17.146
 
-> কাজী কহে — তুমি আইস ক্রুদ্ধ হইয়া ।
+> কাজী কহে — তুমি আইস ক্রুদ্ধ হইয়া ।\
 > তোমা শান্ত করাইতে রহিনু লুকাইয়া ॥১৪৬॥
 
-> kājī kahe--tumi āisa kruddha ha-iyā
+> kājī kahe--tumi āisa kruddha ha-iyā\
 > tomā śānta karāite rahinu lukāiyā
 
 *kājī kahe*—el Kazi respondió; *tumi*—Tú; *āisa*—has venido; *kruddha*—airado; *ha-iyā*—estando; *tomā*—a Ti; *śānta*—apaciguado; *karāite*—para hacer; *rahinu*—permanecí; *lukāiyā*—escondido fuera de vista.

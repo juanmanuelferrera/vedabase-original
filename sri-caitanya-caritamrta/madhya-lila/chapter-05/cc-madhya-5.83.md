@@ -1,9 +1,9 @@
 ### CC Madhya 5.83
 
-> তবে ছোটবিপ্র কহে, — শুন, সর্বজন ।
+> তবে ছোটবিপ্র কহে, — শুন, সর্বজন ।\
 > এই বিপ্র — সত্য-বাক্য, ধর্মপরায়ণ ॥৮৩॥
 
-> tabe choṭa-vipra kahe,—śuna, sarva-jana
+> tabe choṭa-vipra kahe,—śuna, sarva-jana\
 > ei vipra—satya-vākya, dharma-parāyaṇa
 
 *tabe*—at that time; *choṭa-vipra*—the young *brāhmaṇa*; *kahe*—says; *śuna*—please hear; *sarva-jana*—O all gentlemen present here; *ei vipra*—this elderly *brāhmaṇa*; *satya-vākya*—always truthful; *dharma-parāyaṇa*—religious.

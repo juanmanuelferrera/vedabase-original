@@ -1,9 +1,9 @@
 ### CC Madhya 8.234
 
-> এইমত প্রেমাবেশে রাত্রি গোঙাইলা ।
+> এইমত প্রেমাবেশে রাত্রি গোঙাইলা ।\
 > প্রাতঃকালে নিজ-নিজ-কার্যে দুঁহে গেলা ॥২৩৪॥
 
-> ei-mata premāveśe rātri goṅāilā
+> ei-mata premāveśe rātri goṅāilā\
 > prātaḥ-kāle nija-nija-kārye duṅhe gelā
 
 *ei-mata*—इस प्रकार; *prema-āveśe*—भगवत्प्रेम के आवेश में; *rātri*—रात्रि; *goṅāilā*—व्यतीत हुई; *prātaḥ-kāle*—प्रातःकाल में; *nija-nija-kārye*—अपने-अपने कर्तव्यों के लिए; *duṅhe*—दोनों ही; *gelā*—चले गये।

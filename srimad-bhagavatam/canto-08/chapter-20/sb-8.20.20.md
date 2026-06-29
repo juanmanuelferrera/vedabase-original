@@ -1,11 +1,11 @@
 ### SB 8.20.20
 
-> नेदुर्मुहुर्दुन्दुभयः सहस्रशो गन्धर्वकिम्पूरुषकिन्नरा जगुः
+> नेदुर्मुहुर्दुन्दुभयः सहस्रशो गन्धर्वकिम्पूरुषकिन्नरा जगुः\
 > मनस्विनानेन कृतं सुदुष्करं विद्वानदाद्यद्रिपवे जगत्त्रयम ॥२०॥
 
-> nedur muhur dundubhayaḥ sahasraśo
-> gandharva-kimpūruṣa-kinnarā jaguḥ
-> manasvinānena kṛtaṁ suduṣkaraṁ
+> nedur muhur dundubhayaḥ sahasraśo\
+> gandharva-kimpūruṣa-kinnarā jaguḥ\
+> manasvinānena kṛtaṁ suduṣkaraṁ\
 > vidvān adād yad ripave jagat-trayam
 
 *neduḥ*—began to beat; *muhuḥ*—again and again; *dundubhayaḥ*—trumpets and kettledrums; *sahasraśaḥ*—by thousands and thousands; *gandharva*—the residents of Gandharvaloka; *kimpūruṣa*—the residents of Kimpuruṣaloka; *kinnarāḥ*—and the residents of Kinnaraloka; *jaguḥ*—began to sing and declare; *manasvinā*—by the most exalted personality; *anena*—by Bali Mahārāja; *kṛtam*—was done; *su-duṣkaram*—an extremely difficult task; *vidvān*—because of his being the most learned person; *adāt*—gave Him a gift; *yat*—that; *ripave*—unto the enemy, Lord Viṣṇu, who was siding with Bali Mahārāja's enemies, the demigods; *jagat-trayam*—the three worlds.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.123
 
-> পরিক্রমা, স্তবপাঠ, জপ, সঙ্কীর্তন ।
+> পরিক্রমা, স্তবপাঠ, জপ, সঙ্কীর্তন ।\
 > ধূপ-মাল্য-গন্ধ-মহাপ্রসাদ-ভোজন ॥১২৩॥
 
-> parikramā, stava-pāṭha, japa, saṅkīrtana
+> parikramā, stava-pāṭha, japa, saṅkīrtana\
 > dhūpa-mālya-gandha-mahāprasāda-bhojana
 
 *parikramā*—circumambulation; *stava-pāṭha*—recitation of different prayers; *japa*—chanting softly; *saṅkīrtana*—chanting congregationally; *dhūpa*—incense; *mālya*—flower garlands; *gandha*—scents; *mahā-prasāda*—remnants of food offered to Viṣṇu; *bhojana*—eating or enjoying.

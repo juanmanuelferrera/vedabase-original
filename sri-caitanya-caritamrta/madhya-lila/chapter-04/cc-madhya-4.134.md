@@ -1,9 +1,9 @@
 ### CC Madhya 4.134
 
-> ক্ষীর লঞা সুখে তুমি করহ ভক্ষণে ।
+> ক্ষীর লঞা সুখে তুমি করহ ভক্ষণে ।\
 > তোমা-সম ভাগ্যবান্ নাহি ত্রিভুবনে ॥১৩৪॥
 
-> kṣīra lañā sukhe tumi karaha bhakṣaṇe
+> kṣīra lañā sukhe tumi karaha bhakṣaṇe\
 > tomā-sama bhāgyavān nāhi tribhuvane
 
 *kṣīra lañā*—taking the pot of sweet rice; *sukhe*—in happiness; *tumi*—you; *karaha*—do; *bhakṣaṇe*—eating; *tomā-sama*—like you; *bhāgyavān*—fortunate; *nāhi*—there is no one; *tri-bhuvane*—within the three worlds.

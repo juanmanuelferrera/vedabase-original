@@ -1,11 +1,11 @@
 ### SB 4.23.17
 
-> इन्द्रियेषु मनस्तानि तन्मात्रेषु यथोद्भवम् ।
+> इन्द्रियेषु मनस्तानि तन्मात्रेषु यथोद्भवम् ।\
 > भूतादिनामून्युत्कृष्य महत्यात्मनि सन्दधे ॥१७॥
 
-> indriyeṣu manas tāni
-> tan-mātreṣu yathodbhavam
-> bhūtādināmūny utkṛṣya
+> indriyeṣu manas tāni\
+> tan-mātreṣu yathodbhavam\
+> bhūtādināmūny utkṛṣya\
 > mahaty ātmani sandadhe
 
 *indriyeṣu*—in the sense organs; *manaḥ*—the mind; *tāni*—the sense organs; *tat-mātreṣu*—in the objects of the senses; *yathā-udbhavam*—wherefrom they generated; *bhūta-ādinā*—by the five elements; *amūni*—all those sense objects; *utkṛṣya*—taking out; *mahati*—in the *mahat-tattva*; *ātmani*—unto the ego; *sandadhe*—amalgamated.

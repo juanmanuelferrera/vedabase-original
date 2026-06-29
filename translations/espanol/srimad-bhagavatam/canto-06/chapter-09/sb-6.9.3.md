@@ -1,11 +1,11 @@
 ### SB 6.9.3
 
-> स एव हि ददौ भागं परोक्षमसुरान्प्रति
+> स एव हि ददौ भागं परोक्षमसुरान्प्रति\
 > यजमानोऽवहद्भागं मातृस्नेहवशानुगः ॥३॥
 
-> sa eva hi dadau bhāgaṁ
-> parokṣam asurān prati
-> yajamāno 'vahad bhāgaṁ
+> sa eva hi dadau bhāgaṁ\
+> parokṣam asurān prati\
+> yajamāno 'vahad bhāgaṁ\
 > mātṛ-sneha-vaśānugaḥ
 
 *saḥ*—él (Viśvarūpa); *eva*—en verdad; *hi*—ciertamente; *dadau*—ofrecía; *bhāgam*—parte; *parokṣam*—sin que los semidioses lo supieran; *asurān*—a los demonios; *prati*—a; *yajamānaḥ*—celebrando un sacrificio; *avahat*—ofrecía; *bhāgam*—parte; *mātṛ-sneha*—por cariño hacia su madre; *vaśa-anugaḥ*—llevado de.

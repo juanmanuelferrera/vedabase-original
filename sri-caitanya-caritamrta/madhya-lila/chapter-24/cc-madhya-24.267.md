@@ -1,9 +1,9 @@
 ### CC Madhya 24.267
 
-> একদিন অন্ন আনে দশ-বিশ জনে ।
+> একদিন অন্ন আনে দশ-বিশ জনে ।\
 > দিনে তত লয়, যত খায় দুই জনে ॥২৬৭॥
 
-> eka-dina anna āne daśa-biśa jane
+> eka-dina anna āne daśa-biśa jane\
 > dine tata laya, yata khāya dui jane
 
 *eka-dina*—in one day; *anna*—food; *āne*—brought; *daśa-biśa jane*—enough for ten to twenty men; *dine*—in a day; *tata laya*—would accept only as much; *yata*—as; *khāya dui jane*—the two of them required to eat.

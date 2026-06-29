@@ -1,13 +1,13 @@
 ### CC Antya 1.150
 
-> স্তোত্রং যত্র তটস্থতাং প্রকটয়চ্চিত্তস্য ধত্তে ব্যথাং
-> নিন্দাপি প্রমদং প্রযচ্ছতি পরীহাসশ্রিয়ং বিভ্রতী ।
-> দোষেণ ক্ষয়িতাং গুণেন গুরুতাং কেনাপ্যনাতন্বতী
+> স্তোত্রং যত্র তটস্থতাং প্রকটয়চ্চিত্তস্য ধত্তে ব্যথাং\
+> নিন্দাপি প্রমদং প্রযচ্ছতি পরীহাসশ্রিয়ং বিভ্রতী ।\
+> দোষেণ ক্ষয়িতাং গুণেন গুরুতাং কেনাপ্যনাতন্বতী\
 > প্রেম্ণঃ স্বারসিকস্য কস্যচিদিয়ং বিক্রীড়তি প্রক্রিয়া ॥১৫০॥
 
-> stotraṁ yatra taṭa-sthatāṁ prakaṭayac cittasya dhatte vyathāṁ
-> nindāpi pramadaṁ prayacchati parīhāsa-śriyaṁ bibhratī
-> doṣeṇa kṣayitām guṇena gurutāṁ kenāpy anātanvatī
+> stotraṁ yatra taṭa-sthatāṁ prakaṭayac cittasya dhatte vyathāṁ\
+> nindāpi pramadaṁ prayacchati parīhāsa-śriyaṁ bibhratī\
+> doṣeṇa kṣayitām guṇena gurutāṁ kenāpy anātanvatī\
 > premṇaḥ svārasikasya kasyacid iyaṁ vikrīḍati prakriyā
 
 *stotram*—praising; *yatra*—in which; *taṭa-sthatām*—neutrality; *prakaṭayat*—manifesting; *cittasya*—to the heart; *dhatte*—gives; *vyathām*—painful reaction; *nindā*—blaspheming; *api*—also; *pramadam*—pleasure; *prayacchati*—delivers; *parīhāsa*—of joking; *śriyam*—the beauty; *bibhratī*—bringing forth; *doṣeṇa*—by accusation; *kṣayitām*—the quality of diminishing; *guṇena*—by good qualities; *gurutām*—the importance; *kena api*—by any; *anātanvatī*—not increasing; *premṇaḥ*—of love of Godhead; *svārasikasya*—spontaneous; *kasyacit*—of any; *iyam*—this; *vikrīḍati*—acts within the heart; *prakriyā*—the manner of action.

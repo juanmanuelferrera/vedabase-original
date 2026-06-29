@@ -1,9 +1,9 @@
 ### CC Madhya 11.113
 
-> ঈশ্বরের পরোক্ষ আজ্ঞা — ক্ষৌর, উপোষণ ৷
+> ঈশ্বরের পরোক্ষ আজ্ঞা — ক্ষৌর, উপোষণ ৷\
 > প্রভুর সাক্ষাৎ আজ্ঞা — প্রসাদ-ভোজন ৷৷ ১১৩ ৷৷ ॥১১৩॥
 
-> īśvarera parokṣa ājñā-kṣaura, upoṣaṇa
+> īśvarera parokṣa ājñā-kṣaura, upoṣaṇa\
 > prabhura sākṣāt ājñā-prasāda-bhojana
 
 *īśvarera*—de la Suprema Personalidad de Dios; *parokṣa*—indirecta; *ājñā*—orden; *kṣaura*—afeitado; *upoṣaṇa*—ayuno; *prabhura*—del Señor; *sākṣāt*—directa; *ājñā*—orden; *prasāda-bhojana*—tomar el prasāda.

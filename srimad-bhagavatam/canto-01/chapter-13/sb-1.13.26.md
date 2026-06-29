@@ -1,11 +1,11 @@
 ### SB 1.13.26
 
-> गतस्वार्थमिमं देहं विरक्तो मुक्तबन्धनः ।
+> गतस्वार्थमिमं देहं विरक्तो मुक्तबन्धनः ।\
 > अविज्ञातगतिर्जह्यात्स वै धीर उदाहृतः ॥२६॥
 
-> gata-svārtham imaṁ dehaṁ
-> virakto mukta-bandhanaḥ
-> avijñāta-gatir jahyāt
+> gata-svārtham imaṁ dehaṁ\
+> virakto mukta-bandhanaḥ\
+> avijñāta-gatir jahyāt\
 > sa vai dhīra udāhṛtaḥ
 
 *gata-sva-artham*—without being properly utilized; *imam*—this; *deham*—material body; *viraktaḥ*—indifferently; *mukta*—being freed; *bandhanaḥ*—from all obligations; *avijñāta-gatiḥ*—unknown destination; *jahyāt*—one should give up this body; *saḥ*—such a person; *vai*—certainly; *dhīraḥ*—undisturbed; *udāhṛtaḥ*—is said to be so.

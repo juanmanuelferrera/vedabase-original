@@ -1,11 +1,11 @@
 ### SB 3.15.10
 
-> एष देव दितेर्गर्भ ओजः काश्यपमर्पितम् ।
+> एष देव दितेर्गर्भ ओजः काश्यपमर्पितम् ।\
 > दिशस्तिमिरयन्सर्वा वर्धतेऽग्निरिवैधसि ॥१०॥
 
-> eṣa deva diter garbha
-> ojaḥ kāśyapam arpitam
-> diśas timirayan sarvā
+> eṣa deva diter garbha\
+> ojaḥ kāśyapam arpitam\
+> diśas timirayan sarvā\
 > vardhate 'gnir ivaidhasi
 
 *eṣaḥ*—this; *deva*—O lord; *diteḥ*—of Diti; *garbhaḥ*—womb; *ojaḥ*—semen; *kāśyapam*—of Kaśyapa; *arpitam*—deposited; *diśaḥ*—directions; *timirayan*—causing complete darkness; *sarvāḥ*—all; *vardhate*—overloads; *agniḥ*—fire; *iva*—as; *edhasi*—fuel.

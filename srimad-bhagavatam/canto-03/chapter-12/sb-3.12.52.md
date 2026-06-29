@@ -1,11 +1,11 @@
 ### SB 3.12.52
 
-> एवं युक्तकृतस्तस्य दैवं चावेक्षतस्तदा ।
+> एवं युक्तकृतस्तस्य दैवं चावेक्षतस्तदा ।\
 > कस्य रूपमभूद्द्वेधा यत्कायमभिचक्षते ॥५२॥
 
-> evaṁ yukta-kṛtas tasya
-> daivaṁ cāvekṣatas tadā
-> kasya rūpam abhūd dvedhā
+> evaṁ yukta-kṛtas tasya\
+> daivaṁ cāvekṣatas tadā\
+> kasya rūpam abhūd dvedhā\
 > yat kāyam abhicakṣate
 
 *evam*—thus; *yukta*—contemplating; *kṛtaḥ*—while doing so; *tasya*—his; *daivam*—supernatural power; *ca*—also; *avekṣataḥ*—observing; *tadā*—at that time; *kasya*—of Brahmā; *rūpam*—form; *abhūt*—became manifested; *dvedhā*—twofold; *yat*—which is; *kāyam*—his body; *abhicakṣate*—is said to be.

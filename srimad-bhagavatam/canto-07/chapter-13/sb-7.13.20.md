@@ -1,13 +1,13 @@
 ### SB 7.13.20
 
-> श्रीब्राह्मण उवाच
-> वेदेदमसुरश्रेष्ठ भवान्नन्वार्यसम्मतः
+> श्रीब्राह्मण उवाच\
+> वेदेदमसुरश्रेष्ठ भवान्नन्वार्यसम्मतः\
 > ईहोपरमयोर्नॄणां पदान्यध्यात्मचक्षुषा ॥२०॥
 
-> śrī-nārada uvāca
-> sa itthaṁ daitya-patinā
-> paripṛṣṭo mahā-muniḥ
-> smayamānas tam abhyāha
+> śrī-nārada uvāca\
+> sa itthaṁ daitya-patinā\
+> paripṛṣṭo mahā-muniḥ\
+> smayamānas tam abhyāha\
 > tad-vāg-amṛta-yantritaḥ
 
 *śrī-nāradaḥ uvāca*—the great saint Nārada Muni said; *saḥ*—that saintly person (lying down); *ittham*—in this way; *daitya-patinā*—by the King of the Daityas (Prahlāda Mahārāja); *paripṛṣṭaḥ*—being sufficiently questioned; *mahā-muniḥ*—the great saintly person; *smayamānaḥ*—smiling; *tam*—unto him (Prahlāda Mahārāja); *abhyāha*—prepared to give answers; *tat-vāk*—of his words; *amṛta-yantritaḥ*—being captivated by the nectar.

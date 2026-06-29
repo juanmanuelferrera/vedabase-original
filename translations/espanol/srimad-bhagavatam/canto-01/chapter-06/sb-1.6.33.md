@@ -1,11 +1,11 @@
 ### SB 1.6.33
 
-> प्रगायतः स्ववीर्याणि तीर्थपादः प्रियश्रवाः ।
+> प्रगायतः स्ववीर्याणि तीर्थपादः प्रियश्रवाः ।\
 > आहूत इव मे शीघ्रं दर्शनं याति चेतसि ॥३३॥
 
-> pragāyataḥ sva-vīryāṇi
-> tīrtha-pādaḥ priya-śravāḥ
-> āhūta iva me śīghraṁ
+> pragāyataḥ sva-vīryāṇi\
+> tīrtha-pādaḥ priya-śravāḥ\
+> āhūta iva me śīghraṁ\
 > darśanaṁ yāti cetasi
 
 *pragāyataḥ*—cantando así; *sva-vīryāṇi*—propias actividades; *tīrtha-pādaḥ*—el Señor, cuyos pies de loto son la fuente de toda virtud o santidad; *priya-śravāḥ*—agradable de oír; *āhūtaḥ*—llamado; *iva*—tal como; *me*—a mí; *śīghram*—muy pronto; *darśanam*—vista; *yāti*—aparece; *cetasi*—en el asiento del corazón.

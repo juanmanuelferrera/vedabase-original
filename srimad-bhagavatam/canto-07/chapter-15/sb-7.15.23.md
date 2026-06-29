@@ -1,11 +1,11 @@
 ### SB 7.15.23
 
-> आन्वीक्षिक्या शोकमोहौ दम्भं महदुपासया
+> आन्वीक्षिक्या शोकमोहौ दम्भं महदुपासया\
 > योगान्तरायान्मौनेन हिंसां कामाद्यनीहया ॥२३॥
 
-> ānvīkṣikyā śoka-mohau
-> dambhaṁ mahad-upāsayā
-> yogāntarāyān maunena
+> ānvīkṣikyā śoka-mohau\
+> dambhaṁ mahad-upāsayā\
+> yogāntarāyān maunena\
 > hiṁsāṁ kāmādy-anīhayā
 
 *ānvīkṣikyā*—by deliberation upon material and spiritual subject matters; *śoka*—lamentation; *mohau*—and illusion; *dambham*—false pride; *mahat*—a Vaiṣṇava; *upāsayā*—by serving; *yoga-antarāyān*—obstacles on the path of *yoga*; *maunena*—by silence; *hiṁsām*—envy; *kāma-ādi*—for sense gratification; *anīhayā*—without endeavor.

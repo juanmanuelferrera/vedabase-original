@@ -1,11 +1,11 @@
 ### SB 4.31.4
 
-> तमागतं त उत्थाय प्रणिपत्याभिनन्द्य च ।
+> तमागतं त उत्थाय प्रणिपत्याभिनन्द्य च ।\
 > पूजयित्वा यथादेशं सुखासीनमथाब्रुवन् ॥४॥
 
-> tam āgataṁ ta utthāya
-> praṇipatyābhinandya ca
-> pūjayitvā yathādeśaṁ
+> tam āgataṁ ta utthāya\
+> praṇipatyābhinandya ca\
+> pūjayitvā yathādeśaṁ\
 > sukhāsīnam athābruvan
 
 *tam*—to him; *āgatam*—appeared; *te*—all the Pracetās; *utthāya*—after getting up; *praṇipatya*—offering obeisances; *abhinandya*—offering welcome; *ca*—also; *pūjayitvā*—worshiping; *yathā ādeśam*—according to regulative principles; *sukha-āsīnam*—comfortably situated; *atha*—thus; *abruvan*—they said.

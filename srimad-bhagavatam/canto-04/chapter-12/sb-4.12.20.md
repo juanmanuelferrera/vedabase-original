@@ -1,13 +1,13 @@
 ### SB 4.12.20
 
-> तत्रानु देवप्रवरौ चतुर्भुजौ
-> श्यामौ किशोरावरुणाम्बुजेक्षणौ ।
-> स्थिताववष्टभ्य गदां सुवाससौ
+> तत्रानु देवप्रवरौ चतुर्भुजौ\
+> श्यामौ किशोरावरुणाम्बुजेक्षणौ ।\
+> स्थिताववष्टभ्य गदां सुवाससौ\
 > किरीटहाराङ्गदचारुकुण्डलौ ॥२०॥
 
-> tatrānu deva-pravarau catur-bhujau
-> śyāmau kiśorāv aruṇāmbujekṣaṇau
-> sthitāv avaṣṭabhya gadāṁ suvāsasau
+> tatrānu deva-pravarau catur-bhujau\
+> śyāmau kiśorāv aruṇāmbujekṣaṇau\
+> sthitāv avaṣṭabhya gadāṁ suvāsasau\
 > kirīṭa-hārāṅgada-cāru-kuṇḍalau
 
 *tatra*—there; *anu*—then; *deva-pravarau*—two very beautiful demigods; *catuḥ-bhujau*—with four arms; *śyāmau*—blackish; *kiśorau*—quite young; *aruṇa*—reddish; *ambuja*—lotus flower; *īkṣaṇau*—with eyes; *sthitau*—situated; *avaṣṭabhya*—holding; *gadām*—clubs; *suvāsasau*—with nice garments; *kirīṭa*—helmets; *hāra*—necklaces; *aṅgada*—bracelets; *cāru*—beautiful; *kuṇḍalau*—with earrings.

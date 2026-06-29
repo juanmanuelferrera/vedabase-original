@@ -1,9 +1,9 @@
 ### CC Adi 17.273
 
-> সঙ্গে নিত্যানন্দ, চন্দ্রশেখর আচার্য ।
+> সঙ্গে নিত্যানন্দ, চন্দ্রশেখর আচার্য ।\
 > মুকুন্দদত্ত, — এই তিন কৈল সর্ব কার্য ॥২৭৩॥
 
-> saṅge nityānanda, candraśekhara ācārya
+> saṅge nityānanda, candraśekhara ācārya\
 > mukunda-datta,—ei tina kaila sarva kārya
 
 *saṅge*—in His company; *nityānanda*—Nityānanda Prabhu; *candraśekhara ācārya*—Candraśekhara Ācārya; *mukunda-datta*—Mukunda Datta; *ei tina*—these three; *kaila*—performed; *sarva*—all; *kārya*—necessary activities.

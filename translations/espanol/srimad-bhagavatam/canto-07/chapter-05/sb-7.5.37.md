@@ -1,11 +1,11 @@
 ### SB 7.5.37
 
-> परोऽप्यपत्यं हितकृद्यथौषधं स्वदेहजोऽप्यामयवत्सुतोऽहितः
+> परोऽप्यपत्यं हितकृद्यथौषधं स्वदेहजोऽप्यामयवत्सुतोऽहितः\
 > छिन्द्यात्तदङ्गं यदुतात्मनोऽहितं शेषं सुखं जीवति यद्विवर्जनात ॥३७॥
 
-> paro 'py apatyaṁ hita-kṛd yathauṣadhaṁ
-> sva-dehajo 'py āmayavat suto 'hitaḥ
-> chindyāt tad aṅgaṁ yad utātmano 'hitaṁ
+> paro 'py apatyaṁ hita-kṛd yathauṣadhaṁ\
+> sva-dehajo 'py āmayavat suto 'hitaḥ\
+> chindyāt tad aṅgaṁ yad utātmano 'hitaṁ\
 > śeṣaṁ sukhaṁ jīvati yad-vivarjanāt
 
 *paraḥ*—que no pertenece al mismo grupo o familia; *api*—aunque; *apatyam*—un hijo; *hita-kṛt*—que es beneficioso; *yathā*—como; *auṣadham*—hierba medicinal; *sva-deha-jaḥ*—nacido de nuestro propio cuerpo; *api*—aunque; *āmaya-vat*—como una enfermedad; *sutaḥ*—un hijo; *ahitaḥ*—que no es un bienqueriente; *chindyāt*—se debe cortar; *tat*—esa; *aṅgam*—parte del cuerpo; *yat*—que; *uta*—en verdad; *ātmanaḥ*—para el cuerpo; *ahitam*—no beneficiosa; *śeṣam*—el resto; *sukham*—feliz; *jīvati*—vive; *yat*—del cual; *vivarjanāt*—por cortar.

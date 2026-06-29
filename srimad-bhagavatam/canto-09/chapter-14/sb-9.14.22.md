@@ -1,11 +1,11 @@
 ### SB 9.14.22
 
-> घृतं मे वीर भक्ष्यं स्यान्नेक्षे त्वान्यत्र मैथुनात
+> घृतं मे वीर भक्ष्यं स्यान्नेक्षे त्वान्यत्र मैथुनात\
 > विवाससं तत्तथेति प्रतिपेदे महामनाः ॥२२॥
 
-> ghṛtaṁ me vīra bhakṣyaṁ syān
-> nekṣe tvānyatra maithunāt
-> vivāsasaṁ tat tatheti
+> ghṛtaṁ me vīra bhakṣyaṁ syān\
+> nekṣe tvānyatra maithunāt\
+> vivāsasaṁ tat tatheti\
 > pratipede mahāmanāḥ
 
 *ghṛtam*—clarified butter or nectar; *me*—my; *vīra*—O hero; *bhakṣyam*—eatable; *syāt*—shall be; *na*—not; *īkṣe*—I shall see; *tvā*—you; *anyatra*—any other time; *maithunāt*—except at the time of sexual intercourse; *vivāsasam*—without any dress (naked); *tat*—that; *tathā iti*—shall be like that; *pratipede*—promised; *mahāmanāḥ*—King Purūravā.

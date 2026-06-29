@@ -1,15 +1,15 @@
 ### SB 4.9.6
 
-> ध्रुव उवाच
-> योऽन्तः प्रविश्य मम वाचमिमां प्रसुप्तां
-> सञ्जीवयत्यखिलशक्तिधरः स्वधाम्ना ।
-> अन्यांश्च हस्तचरणश्रवणत्वगादीन्
+> ध्रुव उवाच\
+> योऽन्तः प्रविश्य मम वाचमिमां प्रसुप्तां\
+> सञ्जीवयत्यखिलशक्तिधरः स्वधाम्ना ।\
+> अन्यांश्च हस्तचरणश्रवणत्वगादीन्\
 > प्राणान्नमो भगवते पुरुषाय तुभ्यम् ॥६॥
 
-> dhruva uvāca
-> yo 'ntaḥ praviśya mama vācam imāṁ prasuptāṁ
-> sañjīvayaty akhila-śakti-dharaḥ sva-dhāmnā
-> anyāṁś ca hasta-caraṇa-śravaṇa-tvag-ādīn
+> dhruva uvāca\
+> yo 'ntaḥ praviśya mama vācam imāṁ prasuptāṁ\
+> sañjīvayaty akhila-śakti-dharaḥ sva-dhāmnā\
+> anyāṁś ca hasta-caraṇa-śravaṇa-tvag-ādīn\
 > prāṇān namo bhagavate puruṣāya tubhyam
 
 *dhruvaḥ uvāca*—Dhruva Mahārāja said; *yaḥ*—the Supreme Lord who; *antaḥ*—within; *praviśya*—entering; *mama*—my; *vācam*—words; *imām*—all these; *prasuptām*—which are all inactive or dead; *sañjīvayati*—rejuvenates; *akhila*—universal; *śakti*—energy; *dharaḥ*—possessing; *sva-dhāmnā*—by His internal potency; *anyān ca*—other limbs also; *hasta*—like hands; *caraṇa*—legs; *śravaṇa*—ears; *tvak*—skin; *ādīn*—and so on; *prāṇān*—life force; *namaḥ*—let me offer my obeisances; *bhagavate*—unto the Supreme Personality of Godhead; *puruṣāya*—the Supreme Person; *tubhyam*—unto You.

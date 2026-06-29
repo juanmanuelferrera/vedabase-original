@@ -1,11 +1,11 @@
 ### SB 3.16.33
 
-> तौ तु गीर्वाणऋषभौ दुस्तराद्धरिलोकतः ।
+> तौ तु गीर्वाणऋषभौ दुस्तराद्धरिलोकतः ।\
 > हतश्रियौ ब्रह्मशापादभूतां विगतस्मयौ ॥३३॥
 
-> tau tu gīrvāṇa-ṛṣabhau
-> dustarād dhari-lokataḥ
-> hata-śriyau brahma-śāpād
+> tau tu gīrvāṇa-ṛṣabhau\
+> dustarād dhari-lokataḥ\
+> hata-śriyau brahma-śāpād\
 > abhūtāṁ vigata-smayau
 
 *tau*—those two gatekeepers; *tu*—but; *gīrvāṇa-ṛṣabhau*—the best of the demigods; *dustarāt*—unable to be avoided; *hari-lokataḥ*—from Vaikuṇṭha, the abode of Lord Hari; *hata-śriyau*—diminished in beauty and luster; *brahma-śāpāt*—from the curse of a *brāhmaṇa*; *abhūtām*—became; *vigata-smayau*—morose.

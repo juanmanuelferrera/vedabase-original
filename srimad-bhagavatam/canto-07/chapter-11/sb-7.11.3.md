@@ -1,11 +1,11 @@
 ### SB 7.11.3
 
-> भवान्प्रजापतेः साक्षादात्मजः परमेष्ठिनः
+> भवान्प्रजापतेः साक्षादात्मजः परमेष्ठिनः\
 > सुतानां सम्मतो ब्रह्मंस्तपोयोगसमाधिभिः ॥३॥
 
-> bhavān prajāpateḥ sākṣād
-> ātmajaḥ parameṣṭhinaḥ
-> sutānāṁ sammato brahmaṁs
+> bhavān prajāpateḥ sākṣād\
+> ātmajaḥ parameṣṭhinaḥ\
+> sutānāṁ sammato brahmaṁs\
 > tapo-yoga-samādhibhiḥ
 
 *bhavān*—Your Lordship; *prajāpateḥ*—of Prajāpati (Lord Brahmā); *sākṣāt*—directly; *ātma-jaḥ*—the son; *parameṣṭhinaḥ*—of the supreme person within this universe (Lord Brahmā); *sutānām*—of all the sons; *sammataḥ*—agreed upon as the best; *brahman*—O best of the *brāhmaṇas*; *tapaḥ*—by austerity; *yoga*—by mystic practice; *samādhibhiḥ*—and by trance or meditation (in all respects, you are the best).

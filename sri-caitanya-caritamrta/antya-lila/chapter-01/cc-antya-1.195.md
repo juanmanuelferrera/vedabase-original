@@ -1,11 +1,11 @@
 ### CC Antya 1.195
 
-> “কিং কাব্যেন কবেস্তস্য কিং কাণ্ডেন ধনুষ্মতঃ ।
+> “কিং কাব্যেন কবেস্তস্য কিং কাণ্ডেন ধনুষ্মতঃ ।\
 > পরস্য হৃদয়ে লগ্নং ন ঘূর্ণয়তি যচ্ছিরঃ ।।” ॥ ১৯৫ ॥
 
-> kiṁ kāvyena kaves tasya
-> kiṁ kāṇḍena dhanuṣ-mataḥ
-> parasya hṛdaye lagnaṁ
+> kiṁ kāvyena kaves tasya\
+> kiṁ kāṇḍena dhanuṣ-mataḥ\
+> parasya hṛdaye lagnaṁ\
 > na ghūrṇayati yac chiraḥ
 
 *kim*—what use; *kāvyena*—with poetry; *kaveḥ*—of the poet; *tasya*—that; *kim*—what use; *kāṇḍena*—with the arrow; *dhanuḥ-mataḥ*—of the bowman; *parasya*—of another; *hṛdaye*—in the heart; *lagnam*—penetrating; *na ghūrṇayati*—does not cause to roll about; *yat*—which; *śiraḥ*—the head.

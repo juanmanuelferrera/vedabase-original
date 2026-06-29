@@ -1,9 +1,9 @@
 ### CC Madhya 20.100
 
-> আপনার হিতাহিত কিছুই না জানি !
+> আপনার হিতাহিত কিছুই না জানি !\
 > গ্রাম্য-ব্যবহারে পণ্ডিত, তাই সত্য মানি ॥১০০॥
 
-> āpanāra hitāhita kichui nā jāni!
+> āpanāra hitāhita kichui nā jāni!\
 > grāmya-vyavahāre paṇḍita, tāi satya māni
 
 *āpanāra*—de mi yo personal; *hita*—bienestar; *ahita*—lo desfavorable; *kichui*—algo; *nā jāni*—no sé; *grāmya-vyavahāre*—en los tratos ordinarios; *paṇḍita*—un hombre erudito; *tāi satya māni*—eso lo acepto como verdad.

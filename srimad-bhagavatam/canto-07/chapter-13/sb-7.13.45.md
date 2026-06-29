@@ -1,11 +1,11 @@
 ### SB 7.13.45
 
-> स्वात्मवृत्तं मयेत्थं ते सुगुप्तमपि वर्णितम
+> स्वात्मवृत्तं मयेत्थं ते सुगुप्तमपि वर्णितम\
 > व्यपेतं लोकशास्त्राभ्यां भवान्हि भगवत्परः ॥४५॥
 
-> svātma-vṛttaṁ mayetthaṁ te
-> suguptam api varṇitam
-> vyapetaṁ loka-śāstrābhyāṁ
+> svātma-vṛttaṁ mayetthaṁ te\
+> suguptam api varṇitam\
+> vyapetaṁ loka-śāstrābhyāṁ\
 > bhavān hi bhagavat-paraḥ
 
 *sva-ātma-vṛttam*—the information of the history of self-realization; *mayā*—by me; *ittham*—in this way; *te*—unto you; *su-guptam*—extremely confidential; *api*—although; *varṇitam*—explained; *vyapetam*—without; *loka-śāstrābhyām*—the opinion of the common man or common literatures; *bhavān*—your good self; *hi*—indeed; *bhagavat-paraḥ*—having fully realized the Personality of Godhead.

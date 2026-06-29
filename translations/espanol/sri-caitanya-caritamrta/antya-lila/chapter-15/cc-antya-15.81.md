@@ -1,11 +1,11 @@
 ### CC Antya 15.81
 
-> তাসাং তৎসৌভগমদং বীক্ষ্য মানঞ্চ কেশবঃ ।
+> তাসাং তৎসৌভগমদং বীক্ষ্য মানঞ্চ কেশবঃ ।\
 > প্রশমায় প্রসাদায় তত্রৈবান্তরধীয়ত ॥৮১॥
 
-> tāsāṁ tat-saubhaga-madaṁ
-> vīkṣya mānaṁ ca keśavaḥ
-> praśamāya prasādāya
+> tāsāṁ tat-saubhaga-madaṁ\
+> vīkṣya mānaṁ ca keśavaḥ\
+> praśamāya prasādāya\
 > tatraivāntaradhīyata
 
 *tāsām*—de las gopīs; *tat*—su; *saubhaga-madam*—orgullo debido a la gran fortuna; *vīkṣya*—viendo; *mānam*—concepción de superioridad; *ca*—y; *keśavaḥ*—Kṛṣṇa, quien somete incluso a ka (el Señor Brahmā) y a īśa (el Señor Śiva); *praśamāya*—para someter; *prasādāya*—para mostrar misericordia; *tatra*—allí; *eva*—ciertamente; *antaradhīyata*—desapareció.

@@ -1,9 +1,9 @@
 ### CC Antya 7.93
 
-> দৈন্য করি’ কহে, — “নিলুঁ তোমার শরণ ।
+> দৈন্য করি’ কহে, — “নিলুঁ তোমার শরণ ।\
 > তুমি কৃপা করি’ রাখ আমার জীবন ॥৯৩॥
 
-> dainya kari' kahe,—"niluṅ tomāra śaraṇa
+> dainya kari' kahe,—"niluṅ tomāra śaraṇa\
 > tumi kṛpā kari' rākha āmāra jīvana
 
 *dainya kari'*—with great humility; *kahe*—said; *niluṅ*—I have taken; *tomāra śaraṇa*—shelter of you; *tumi*—you; *kṛpā kari'*—being merciful; *rākha*—keep; *āmāra jīvana*—my life.

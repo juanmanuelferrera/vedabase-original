@@ -1,11 +1,11 @@
 ### SB 4.21.42
 
-> यद्ब्रह्म नित्यं विरजं सनातनं श्रद्धातपोमङ्गलमौनसंयमैः ।
+> यद्ब्रह्म नित्यं विरजं सनातनं श्रद्धातपोमङ्गलमौनसंयमैः ।\
 > समाधिना बिभ्रति हार्थदृष्टये यत्रेदमादर्श इवावभासते ॥४२॥
 
-> yad brahma nityaṁ virajaṁ sanātanaṁ
-> śraddhā-tapo-maṅgala-mauna-saṁyamaiḥ
-> samādhinā bibhrati hārtha-dṛṣṭaye
+> yad brahma nityaṁ virajaṁ sanātanaṁ\
+> śraddhā-tapo-maṅgala-mauna-saṁyamaiḥ\
+> samādhinā bibhrati hārtha-dṛṣṭaye\
 > yatredam ādarśa ivāvabhāsate
 
 *yat*—that which; *brahma*—the brahminical culture; *nityam*—eternally; *virajam*—without contamination; *sanātanam*—without beginning; *śraddhā*—faith; *tapaḥ*—austerity; *maṅgala*—auspicious; *mauna*—silence; *saṁyamaiḥ*—controlling the mind and senses; *samādhinā*—with full concentration; *bibhrati*—illuminates; *ha*—as he did it; *artha*—the real purpose of the *Vedas*; *dṛṣṭaye*—for the purpose of finding out; *yatra*—wherein; *idam*—all this; *ādarśe*—in a mirror; *iva*—like; *avabhāsate*—manifests.

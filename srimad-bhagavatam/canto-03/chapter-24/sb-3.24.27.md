@@ -1,11 +1,11 @@
 ### SB 3.24.27
 
-> अहो पापच्यमानानां निरये स्वैरमङ्गलैः ।
+> अहो पापच्यमानानां निरये स्वैरमङ्गलैः ।\
 > कालेन भूयसा नूनं प्रसीदन्तीह देवताः ॥२७॥
 
-> aho pāpacyamānānāṁ
-> niraye svair amaṅgalaiḥ
-> kālena bhūyasā nūnaṁ
+> aho pāpacyamānānāṁ\
+> niraye svair amaṅgalaiḥ\
+> kālena bhūyasā nūnaṁ\
 > prasīdantīha devatāḥ
 
 *aho*—oh; *pāpacyamānānām*—with those being much afflicted; *niraye*—in the hellish material entanglement; *svaiḥ*—their own; *amaṅgalaiḥ*—by misdeeds; *kālena bhūyasā*—after a long time; *nūnam*—indeed; *prasīdanti*—they are pleased; *iha*—in this world; *devatāḥ*—the demigods.

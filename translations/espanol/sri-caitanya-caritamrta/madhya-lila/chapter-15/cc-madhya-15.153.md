@@ -1,9 +1,9 @@
 ### CC Madhya 15.153
 
-> সাধু সাধু, গুপ্ত, তোমার সুদৃঢ় ভজন  ।
+> সাধু সাধু, গুপ্ত, তোমার সুদৃঢ় ভজন  ।\
 > আমার বচনেহ তোমার না টলিল মন ॥১৫৩॥
 
-> sādhu sādhu, gupta, tomāra sudṛḍha bhajana
+> sādhu sādhu, gupta, tomāra sudṛḍha bhajana\
 > āmāra vacaneha tomāra nā ṭalila mana
 
 *sādhu sādhu*—¡todas las glorias a ti!; *gupta*—Murāri Gupta; *tomāra*—tu; *su-dṛḍha*—firmemente establecido; *bhajana*—método de adoración; *āmāra*—Mi; *vacaneha*—incluso ante la petición; *tomāra*—tu; *nā ṭalila*—no se movió; *mana*—mente.

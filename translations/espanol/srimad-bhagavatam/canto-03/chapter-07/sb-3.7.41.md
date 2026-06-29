@@ -1,11 +1,11 @@
 ### SB 3.7.41
 
-> सर्वे वेदाश्च यज्ञाश्च तपो दानानि चानघ ।
+> सर्वे वेदाश्च यज्ञाश्च तपो दानानि चानघ ।\
 > जीवाभयप्रदानस्य न कुर्वीरन्कलामपि ॥४१॥
 
-> sarve vedāś ca yajñāś ca
-> tapo dānāni cānagha
-> jīvābhaya-pradānasya
+> sarve vedāś ca yajñāś ca\
+> tapo dānāni cānagha\
+> jīvābhaya-pradānasya\
 > na kurvīran kalām api
 
 *sarve*—toda clase de; *vedāḥ*—divisiones de los *Vedas*; *ca*—también; *yajñāḥ*—sacrificios; *ca*—también; *tapaḥ*—penitencias; *dānāni*—caridades; *ca*—y; *anagha*—¡oh, tú, el inmaculado!; *jīva*—la entidad viviente; *abhaya*—inmunidad contra los tormentos materiales; *pradānasya*—de aquel que brinda esa clase de seguridad; *na*—no; *kurvīran*—pueden igualarse; *kalām*—ni siquiera parcialmente; *api*—ciertamente.

@@ -1,11 +1,11 @@
 ### SB 3.3.7
 
-> तत्राहृतास्ता नरदेवकन्याः कुजेन दृष्ट्वा हरिमार्तबन्धुम् ।
+> तत्राहृतास्ता नरदेवकन्याः कुजेन दृष्ट्वा हरिमार्तबन्धुम् ।\
 > उत्थाय सद्यो जगृहुः प्रहर्ष व्रीडानुरागप्रहितावलोकैः ॥७॥
 
-> tatrāhṛtās tā nara-deva-kanyāḥ
-> kujena dṛṣṭvā harim ārta-bandhum
-> utthāya sadyo jagṛhuḥ praharṣa-
+> tatrāhṛtās tā nara-deva-kanyāḥ\
+> kujena dṛṣṭvā harim ārta-bandhum\
+> utthāya sadyo jagṛhuḥ praharṣa-\
 > vrīḍānurāga-prahitāvalokaiḥ
 
 *tatra*—inside the house of Narakāsura; *āhṛtāḥ*—kidnapped; *tāḥ*—all those; *nara-deva-kanyāḥ*—daughters of many kings; *kujena*—by the demon; *dṛṣṭvā*—by seeing; *harim*—the Lord; *ārta-bandhum*—the friend of the distressed; *utthāya*—at once got up; *sadyaḥ*—then and there; *jagṛhuḥ*—accepted; *praharṣa*—joyfully; *vrīḍa*—shyness; *anurāga*—attachment; *prahita-avalokaiḥ*—by eager glances.

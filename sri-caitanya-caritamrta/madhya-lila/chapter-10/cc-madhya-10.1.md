@@ -1,11 +1,11 @@
 ### CC Madhya 10.1
 
-> তং বন্দে গৌরজলদং স্বস্য যো দর্শনামৃতৈঃ ।
+> তং বন্দে গৌরজলদং স্বস্য যো দর্শনামৃতৈঃ ।\
 > বিচ্ছেদাবগ্রহম্লান-ভক্তশস্যান্যজীবয়ৎ ॥১॥
 
-> taṁ vande gaura-jaladaṁ
-> svasya yo darśanāmṛtaiḥ
-> vicchedāvagraha-mlāna-
+> taṁ vande gaura-jaladaṁ\
+> svasya yo darśanāmṛtaiḥ\
+> vicchedāvagraha-mlāna-\
 > bhakta-śasyāny ajīvayat
 
 *tam*—unto Him; *vande*—I offer my respectful obeisances; *gaura*—Śrī Caitanya Mahāprabhu; *jala-dam*—rain cloud; *svasya*—of Himself; *yaḥ*—He who; *darśana-amṛtaiḥ*—by the nectar of the audience; *viccheda*—because of separation; *avagraha*—scarcity of rain; *mlāna*—morose, dried up; *bhakta*—devotees; *śasyāni*—food grains; *ajīvayat*—saved.

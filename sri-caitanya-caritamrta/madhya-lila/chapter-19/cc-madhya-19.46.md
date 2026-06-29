@@ -1,9 +1,9 @@
 ### CC Madhya 19.46
 
-> দুইগুচ্ছ তৃণ দুঁহে দশনে ধরিয়া ।
+> দুইগুচ্ছ তৃণ দুঁহে দশনে ধরিয়া ।\
 > প্রভু দেখি’ দূরে পড়ে দণ্ডবৎ হঞা ॥৪৬॥
 
-> dui-guccha tṛṇa duṅhe daśane dhariyā
+> dui-guccha tṛṇa duṅhe daśane dhariyā\
 > prabhu dekhi' dūre paḍe daṇḍavat hañā
 
 *dui-guccha*—two bunches; *tṛṇa*—straw; *duṅhe*—both of them; *daśane dhariyā*—holding in the teeth; *prabhu dekhi'*—seeing the Lord; *dūre*—in a distant place; *paḍe*—fell down; *daṇḍa-vat*—like rods; *hañā*—becoming.

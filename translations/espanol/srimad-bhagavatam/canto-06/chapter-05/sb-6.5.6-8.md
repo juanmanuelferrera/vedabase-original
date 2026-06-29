@@ -1,25 +1,25 @@
 ### SB 6.5.6-8
 
-> उवाच चाथ हर्यश्वाः कथं स्रक्ष्यथ वै प्रजाः
-> अदृष्ट्वान्तं भुवो यूयं बालिशा बत पालकाः ॥६॥
-> तथैकपुरुषं राष्ट्रं बिलं चादृष्टनिर्गमम
-> बहुरूपां स्त्रियं चापि पुमांसं पुंश्चलीपतिम ॥७॥
-> नदीमुभयतो वाहां पञ्चपञ्चाद्भुतं गृहम
+> उवाच चाथ हर्यश्वाः कथं स्रक्ष्यथ वै प्रजाः\
+> अदृष्ट्वान्तं भुवो यूयं बालिशा बत पालकाः ॥६॥\
+> तथैकपुरुषं राष्ट्रं बिलं चादृष्टनिर्गमम\
+> बहुरूपां स्त्रियं चापि पुमांसं पुंश्चलीपतिम ॥७॥\
+> नदीमुभयतो वाहां पञ्चपञ्चाद्भुतं गृहम\
 > क्वचिद्धंसं चित्रकथं क्षौरपव्यं स्वयं भ्रमि ॥८॥
 
-> uvāca cātha haryaśvāḥ
-> kathaṁ srakṣyatha vai prajāḥ
-> adṛṣṭvāntaṁ bhuvo yūyaṁ
+> uvāca cātha haryaśvāḥ\
+> kathaṁ srakṣyatha vai prajāḥ\
+> adṛṣṭvāntaṁ bhuvo yūyaṁ\
 > bāliśā bata pālakāḥ
 
-> tathaika-puruṣaṁ rāṣṭraṁ
-> bilaṁ cādṛṣṭa-nirgamam
-> bahu-rūpāṁ striyaṁ cāpi
+> tathaika-puruṣaṁ rāṣṭraṁ\
+> bilaṁ cādṛṣṭa-nirgamam\
+> bahu-rūpāṁ striyaṁ cāpi\
 > pumāṁsaṁ puṁścalī-patim
 
-> nadīm ubhayato vāhāṁ
-> pañca-pañcādbhutaṁ gṛham
-> kvacid dhaṁsaṁ citra-kathaṁ
+> nadīm ubhayato vāhāṁ\
+> pañca-pañcādbhutaṁ gṛham\
+> kvacid dhaṁsaṁ citra-kathaṁ\
 > kṣaura-pavyaṁ svayaṁ bhrami
 
 *uvāca*—él dijo; *ca*—también; *atha*—así; *haryaśvāḥ*—¡oh, Haryaśvas, hijos de Prajāpati Dakṣa!; *katham*—por qué; *srakṣyatha*—engendrarán; *vai*—en verdad; *prajāḥ*—progenie; *adṛṣṭvā*—sin haber visto; *antam*—el final; *bhuvaḥ*—de la Tierra; *yūyam*—todos ustedes; *bāliśāḥ*—inexpertos; *bata*—¡ay!; *pālakāḥ*—aunque son príncipes gobernantes; *tathā*—así también; *eka*—uno; *puruṣam*—hombre; *rāṣṭram*—reino; *bilam*—el agujero; *ca*—también; *adṛṣṭa-nirgamam*—del cual no hay salida; *bahu-rūpām*—que toma muchas formas; *striyam*—la mujer; *ca*—y; *api*—incluso; *pumāṁsam*—el hombre; *puṁścalī-patim*—el esposo de una prostituta; *nadīm*—un río; *ubhayataḥ*—en ambos sentidos; *vāhām*—que fluye; *pañca-pañca*—de cinco multiplicado por cinco (veinticinco); *adbhutam*—una maravilla; *gṛham*—la casa; *kvacit*—en algún lugar; *haṁsam*—un cisne; *citra-katham*—cuya historia es maravillosa; *kṣaura-pavyam*—hecho de hojas afiladas y rayos; *svayam*—él mismo; *bhrami*—girar.

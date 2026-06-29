@@ -1,11 +1,11 @@
 ### SB 3.31.5
 
-> मातुर्जग्धान्नपानाद्यैरेधद्धातुरसम्मते ।
+> मातुर्जग्धान्नपानाद्यैरेधद्धातुरसम्मते ।\
 > शेते विण्मूत्रयोर्गर्ते स जन्तुर्जन्तुसम्भवे ॥५॥
 
-> mātur jagdhānna-pānādyair
-> edhad-dhātur asammate
-> śete viṇ-mūtrayor garte
+> mātur jagdhānna-pānādyair\
+> edhad-dhātur asammate\
+> śete viṇ-mūtrayor garte\
 > sa jantur jantu-sambhave
 
 *mātuḥ*—of the mother; *jagdha*—taken; *anna-pāna*—by the food and drink; *ādyaiḥ*—and so on; *edhat*—increasing; *dhātuḥ*—the ingredients of his body; *asammate*—abominable; *śete*—remains; *viṭ-mūtrayoḥ*—of stools and urine; *garte*—in a hollow; *saḥ*—that; *jantuḥ*—fetus; *jantu*—of worms; *sambhave*—the breeding place.

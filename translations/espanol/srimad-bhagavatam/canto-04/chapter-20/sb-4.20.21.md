@@ -1,11 +1,11 @@
 ### SB 4.20.21
 
-> स आदिराजो रचिताञ्जलिर्हरिं विलोकितुं नाशकदश्रुलोचनः ।
+> स आदिराजो रचिताञ्जलिर्हरिं विलोकितुं नाशकदश्रुलोचनः ।\
 > न किञ्चनोवाच स बाष्पविक्लवो हृदोपगुह्यामुमधादवस्थितः ॥२१॥
 
-> sa ādi-rājo racitāñjalir hariṁ
-> vilokituṁ nāśakad aśru-locanaḥ
-> na kiñcanovāca sa bāṣpa-viklavo
+> sa ādi-rājo racitāñjalir hariṁ\
+> vilokituṁ nāśakad aśru-locanaḥ\
+> na kiñcanovāca sa bāṣpa-viklavo\
 > hṛdopaguhyāmum adhād avasthitaḥ
 
 *saḥ*—él; *ādi-rājaḥ*—el rey original; *racita-añjaliḥ*—con las manos juntas; *harim*—a la Suprema Personalidad de Dios; *vilokitum*—contemplar; *na*—no; *aśakat*—pudo; *aśru-locanaḥ*—con los ojos llenos de lágrimas; *na*—no; *kiñcana*—nada; *uvāca*—habló; *saḥ*—él; *bāṣpa-viklavaḥ*—con la voz ahogada por la emoción; *hṛdā*—con el corazón; *upaguhya*—abrazar; *amum*—al Señor; *adhāt*—permaneció; *avasthitaḥ*—de pie.

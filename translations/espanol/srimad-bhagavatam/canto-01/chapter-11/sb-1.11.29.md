@@ -1,11 +1,11 @@
 ### SB 1.11.29
 
-> ताः पुत्रमङ्कमारोप्य स्नेहस्नुतपयोधराः ।
+> ताः पुत्रमङ्कमारोप्य स्नेहस्नुतपयोधराः ।\
 > हर्षविह्वलितात्मानः सिषिचुर्नेत्रजैर्जलैः ॥२९॥
 
-> tāḥ putram aṅkam āropya
-> sneha-snuta-payodharāḥ
-> harṣa-vihvalitātmānaḥ
+> tāḥ putram aṅkam āropya\
+> sneha-snuta-payodharāḥ\
+> harṣa-vihvalitātmānaḥ\
 > siṣicur netrajair jalaiḥ
 
 *tāḥ*—todas ellas; *putram*—el hijo; *aṅkam*—el regazo; *āropya*—habiendo puesto en; *sneha-snuta*—humedecidos por el afecto; *payodharāḥ*—pechos llenos; *harṣa*—deleite; *vihvalita-ātmānaḥ*—rebosantes de; *siṣicuḥ*—mojaron; *netrajaiḥ*—de los ojos; *jalaiḥ*—agua.

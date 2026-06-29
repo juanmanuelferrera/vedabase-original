@@ -1,11 +1,11 @@
 ### SB 8.10.40
 
-> कबन्धास्तत्र चोत्पेतुः पतितस्वशिरोऽक्षिभिः
+> कबन्धास्तत्र चोत्पेतुः पतितस्वशिरोऽक्षिभिः\
 > उद्यतायुधदोर्दण्डैराधावन्तो भटान्मृधे ॥४०॥
 
-> kabandhās tatra cotpetuḥ
-> patita-sva-śiro-'kṣibhiḥ
-> udyatāyudha-dordaṇḍair
+> kabandhās tatra cotpetuḥ\
+> patita-sva-śiro-'kṣibhiḥ\
+> udyatāyudha-dordaṇḍair\
 > ādhāvanto bhaṭān mṛdhe
 
 *kabandhāḥ*—troncos (cuerpos sin cabeza); *tatra*—allí (en el campo de batalla); *ca*—también; *utpetuḥ*—generados; *patita*—caída; *sva-śiraḥ-akṣibhiḥ*—con los ojos de la cabeza; *udyata*—levantaban; *āyudha*—equipados con armas; *dordaṇḍaiḥ*—los brazos de quien; *ādhāvantaḥ*—corriendo hacia; *bhaṭān*—los soldados; *mṛdhe*—en el campo de batalla.

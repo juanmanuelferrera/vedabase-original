@@ -1,11 +1,11 @@
 ### SB 3.22.22
 
-> सोऽनु ज्ञात्वा व्यवसितं महिष्या दुहितुः स्फुटम् ।
+> सोऽनु ज्ञात्वा व्यवसितं महिष्या दुहितुः स्फुटम् ।\
 > तस्मै गुणगणाढ्याय ददौ तुल्यां प्रहर्षितः ॥२२॥
 
-> so 'nu jñātvā vyavasitaṁ
-> mahiṣyā duhituḥ sphuṭam
-> tasmai guṇa-gaṇāḍhyāya
+> so 'nu jñātvā vyavasitaṁ\
+> mahiṣyā duhituḥ sphuṭam\
+> tasmai guṇa-gaṇāḍhyāya\
 > dadau tulyāṁ praharṣitaḥ
 
 *saḥ*—he (Emperor Manu); *anu*—afterward; *jñātvā*—having known; *vyavasitam*—the fixed decision; *mahiṣyāḥ*—of the Queen; *duhituḥ*—of his daughter; *sphuṭam*—clearly; *tasmai*—to him; *guṇa-gaṇa-āḍhyāya*—who was endowed with a host of virtues; *dadau*—gave away; *tulyām*—who was equal (in good qualities); *praharṣitaḥ*—extremely pleased.

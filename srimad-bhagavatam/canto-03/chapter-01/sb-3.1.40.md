@@ -1,11 +1,11 @@
 ### SB 3.1.40
 
-> अहो पृथापि ध्रियतेऽर्भकार्थे राजर्षिवर्येण विनापि तेन ।
+> अहो पृथापि ध्रियतेऽर्भकार्थे राजर्षिवर्येण विनापि तेन ।\
 > यस्त्वेकवीरोऽधिरथो विजिग्ये धनुर्द्वितीयः ककुभश्चतस्रः ॥४०॥
 
-> aho pṛthāpi dhriyate 'rbhakārthe
-> rājarṣi-varyeṇa vināpi tena
-> yas tv eka-vīro 'dhiratho vijigye
+> aho pṛthāpi dhriyate 'rbhakārthe\
+> rājarṣi-varyeṇa vināpi tena\
+> yas tv eka-vīro 'dhiratho vijigye\
 > dhanur dvitīyaḥ kakubhaś catasraḥ
 
 *aho*—O my lord; *pṛthā*—Kuntī; *api*—also; *dhriyate*—bears her life; *arbhaka-arthe*—for the sake of fatherless children; *rājarṣi*—King Pāṇḍu; *varyeṇa*—the best; *vinā api*—without him; *tena*—him; *yaḥ*—one who; *tu*—but; *eka*—alone; *vīraḥ*—the warrior; *adhirathaḥ*—commander; *vijigye*—could conquer; *dhanuḥ*—the bow; *dvitīyaḥ*—the second; *kakubhaḥ*—directions; *catasraḥ*—four.

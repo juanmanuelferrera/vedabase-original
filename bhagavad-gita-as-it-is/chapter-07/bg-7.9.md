@@ -1,11 +1,11 @@
 ### Bg 7.9
 
-> पुण्यो गन्धः पृथिव्यां च तेजश्चास्मि विभावसौ ।
+> पुण्यो गन्धः पृथिव्यां च तेजश्चास्मि विभावसौ ।\
 > जीवनं सर्वभूतेषु तपश्चास्मि तपस्विषु ॥९॥
 
-> puṇyo gandhaḥ pṛthivyāṁ ca
-> tejaś cāsmi vibhāvasau
-> jīvanaṁ sarva-bhūteṣu
+> puṇyo gandhaḥ pṛthivyāṁ ca\
+> tejaś cāsmi vibhāvasau\
+> jīvanaṁ sarva-bhūteṣu\
 > tapaś cāsmi tapasviṣu
 
 *puṇyaḥ*—original; *gandhaḥ*—fragrance; *pṛthivyām*—in the earth; *ca*—also; *tejaḥ*—temperature; *ca*—also; *asmi*—I am; *vibhāvasau*—in the fire; *jīvanam*—life; *sarva*—all; *bhūteṣu*—living entities; *tapaḥ*—penance; *ca*—also; *asmi*—I am; *tapasviṣu*—in those who practice penance.

@@ -1,9 +1,9 @@
 ### CC Antya 14.90
 
-> পুরী-ভারতী-গোসাঞি আইলা সিন্ধুতীরে ।
+> পুরী-ভারতী-গোসাঞি আইলা সিন্ধুতীরে ।\
 > ভগবান্-আচার্য খঞ্জ চলিলা ধীরে ধীরে ॥৯০॥
 
-> purī-bhāratī-gosāñi āilā sindhu-tīre
+> purī-bhāratī-gosāñi āilā sindhu-tīre\
 > bhagavān-ācārya khañja calilā dhīre dhīre
 
 *purī*—Paramānanda Purī; *bhāratī-gosāñi*—Brahmānanda Bhāratī; *āilā*—came; *sindhu-tīre*—on the shore of the sea; *bhagavān-ācārya*—Bhagavān Ācārya; *khañja*—lame; *calilā*—ran; *dhīre dhīre*—very slowly.

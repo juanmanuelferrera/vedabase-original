@@ -1,11 +1,11 @@
 ### SB 7.5.27
 
-> सन्ति ह्यसाधवो लोके दुर्मैत्राश्छद्मवेषिणः
+> सन्ति ह्यसाधवो लोके दुर्मैत्राश्छद्मवेषिणः\
 > तेषामुदेत्यघं काले रोगः पातकिनामिव ॥२७॥
 
-> santi hy asādhavo loke
-> durmaitrāś chadma-veṣiṇaḥ
-> teṣām udety aghaṁ kāle
+> santi hy asādhavo loke\
+> durmaitrāś chadma-veṣiṇaḥ\
+> teṣām udety aghaṁ kāle\
 > rogaḥ pātakinām iva
 
 *santi*—hay; *hi*—en verdad; *asādhavaḥ*—personas deshonestas; *loke*—en este mundo; *durmaitrāḥ*—amigos engañosos; *chadma-veśiṇaḥ*—que van disfrazados; *teṣām*—de todos ellos; *udeti*—surge; *agham*—la reacción de la vida pecaminosa; *kāle*—con el paso del tiempo; *rogaḥ*—enfermedad; *pātakinām*—de pecadores; *iva*—como.

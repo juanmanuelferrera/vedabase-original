@@ -1,9 +1,9 @@
 ### CC Madhya 24.332
 
-> দন্তধাবন, স্নান, সন্ধ্যাদি বন্দন ।
+> দন্তধাবন, স্নান, সন্ধ্যাদি বন্দন ।\
 > গুরুসেবা, ঊর্ধ্বপুণ্ড্রচক্রাদি-ধারণ ॥৩৩২॥
 
-> danta-dhāvana, snāna, sandhyādi vandana
+> danta-dhāvana, snāna, sandhyādi vandana\
 > guru-sevā, ūrdhva-puṇḍra-cakrādi-dhāraṇa
 
 *danta-dhāvana*—lavarse los dientes; *snāna*—baño; *sandhyā-ādi vandana*—recitación regular de los mantras; *guru-sevā*—servir al maestro espiritual; *ūrdhva-puṇḍra*—llevar *tilaka* perpendicularmente recto; *cakra-ādi-dhāraṇa*—estampar en el cuerpo diferentes nombres y símbolos del Señor.

@@ -1,11 +1,11 @@
 ### SB 3.33.34
 
-> सिद्धचारणगन्धर्वैर्मुनिभिश्चाप्सरोगणैः ।
+> सिद्धचारणगन्धर्वैर्मुनिभिश्चाप्सरोगणैः ।\
 > स्तूयमानः समुद्रेण दत्तार्हणनिकेतनः ॥३४॥
 
-> siddha-cāraṇa-gandharvair
-> munibhiś cāpsaro-gaṇaiḥ
-> stūyamānaḥ samudreṇa
+> siddha-cāraṇa-gandharvair\
+> munibhiś cāpsaro-gaṇaiḥ\
+> stūyamānaḥ samudreṇa\
 > dattārhaṇa-niketanaḥ
 
 *siddha*—por los *siddhas*; *cāraṇa*—por los *cāraṇas*; *gandharvaiḥ*—por los *gandharvas*; *munibhiḥ*—por los *munis*; *ca*—y; *apsaraḥ-gaṇaiḥ*—por las *apsarās* (doncellas de los planetas celestiales); *stūyamānaḥ*—siendo alabado; *samudreṇa*—por el océano; *datta*—dados; *arhaṇa*—oblaciones; *niketanaḥ*—un lugar de residencia.

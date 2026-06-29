@@ -1,9 +1,9 @@
 ### CC Madhya 24.228
 
-> ‘কৃষ্ণারামাশ্চ’ এব — হয় কৃষ্ণ-মনন ।
+> ‘কৃষ্ণারামাশ্চ’ এব — হয় কৃষ্ণ-মনন ।\
 > ব্যাধ হঞা হয় পূজ্য ভাগবতোত্তম ॥২২৮॥
 
-> 'kṛṣṇārāmāś ca' eva--haya kṛṣṇa-manana
+> 'kṛṣṇārāmāś ca' eva--haya kṛṣṇa-manana\
 > vyādha hañā haya pūjya bhāgavatottama
 
 *kṛṣṇa-ārāmāḥ ca*—aquel que se complace en Kṛṣṇa; *eva*—ciertamente; *haya*—hay; *kṛṣṇa-manana*—meditación en Kṛṣṇa; *vyādha hañā*—siendo un cazador; *haya*—es; *pūjya*—digno de adoración; *bhāgavata-uttama*—el mejor de los devotos.

@@ -1,11 +1,11 @@
 ### SB 3.26.55
 
-> घ्राणाद्वायुरभिद्येतामक्षिणी चक्षुरेतयोः ।
+> घ्राणाद्वायुरभिद्येतामक्षिणी चक्षुरेतयोः ।\
 > तस्मात्सूर्यो न्यभिद्येतां कर्णौ श्रोत्रं ततो दिशः ॥५५॥
 
-> ghrāṇād vāyur abhidyetām
-> akṣiṇī cakṣur etayoḥ
-> tasmāt sūryo nyabhidyetāṁ
+> ghrāṇād vāyur abhidyetām\
+> akṣiṇī cakṣur etayoḥ\
+> tasmāt sūryo nyabhidyetāṁ\
 > karṇau śrotraṁ tato diśaḥ
 
 *ghrāṇāt*—del sentido olfativo; *vāyuḥ*—el dios del viento; *abhidyetām*—apareció; *akṣiṇī*—los dos ojos; *cakṣuḥ*—el sentido de la vista; *etayoḥ*—en ellos; *tasmāt*—de él; *sūryaḥ*—el dios del Sol; *nyabhidyetām*—apareció; *karṇau*—las dos orejas; *śrotram*—el sentido auditivo; *tataḥ*—de él; *diśaḥ*—las deidades que rigen las direcciones.

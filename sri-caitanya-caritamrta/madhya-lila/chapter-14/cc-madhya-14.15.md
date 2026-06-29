@@ -1,9 +1,9 @@
 ### CC Madhya 14.15
 
-> পূর্ব-সেবা দেখি’ তাঁরে কৃপা উপজিল ।
+> পূর্ব-সেবা দেখি’ তাঁরে কৃপা উপজিল ।\
 > অনুসন্ধান বিনা কৃপা-প্রসাদ করিল ॥১৫॥
 
-> pūrva-sevā dekhi' tāṅre kṛpā upajila
+> pūrva-sevā dekhi' tāṅre kṛpā upajila\
 > anusandhāna vinā kṛpā-prasāda karila
 
 *pūrva-sevā*—previous service; *dekhi'*—seeing; *tāṅre*—unto him; *kṛpā*—mercy; *upajila*—awakened; *anusandhāna*—inquiry; *vinā*—without; *kṛpā*—of mercy; *prasāda*—grace; *karila*—bestowed.

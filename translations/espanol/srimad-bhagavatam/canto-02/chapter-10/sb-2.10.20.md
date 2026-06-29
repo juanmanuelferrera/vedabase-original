@@ -1,11 +1,11 @@
 ### SB 2.10.20
 
-> नासिके निरभिद्येतां दोधूयति नभस्वति ।
+> नासिके निरभिद्येतां दोधूयति नभस्वति ।\
 > तत्र वायुर्गन्धवहो घ्राणो नसि जिघृक्षतः ॥२०॥
 
-> nāsike nirabhidyetāṁ
-> dodhūyati nabhasvati
-> tatra vāyur gandha-vaho
+> nāsike nirabhidyetāṁ\
+> dodhūyati nabhasvati\
+> tatra vāyur gandha-vaho\
 > ghrāṇo nasi jighṛkṣataḥ
 
 *nāsike*—en las fosas nasales; *nirabhidyetām*—siendo desarrollada; *dodhūyati*—soplando rápidamente; *nabhasvati*—respiración de aire; *tatra*—después de eso; *vāyuḥ*—aire; *gandha-vahaḥ*—percibiendo olores; *ghrāṇaḥ*—sentido del olfato; *nasi*—en la nariz; *jighṛkṣataḥ*—deseando percibir olores.

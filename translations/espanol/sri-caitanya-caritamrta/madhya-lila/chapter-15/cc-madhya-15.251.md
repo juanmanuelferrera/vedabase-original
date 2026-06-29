@@ -1,9 +1,9 @@
 ### CC Madhya 15.251
 
-> তবে গালি, শাপ দিতে ভট্টাচার্য আইলা ।
+> তবে গালি, শাপ দিতে ভট্টাচার্য আইলা ।\
 > নিন্দা শুনি’ মহাপ্ৰভু হাসিতে লাগিলা ॥২৫১॥
 
-> tabe gāli, śāpa dite bhaṭṭācārya āilā
+> tabe gāli, śāpa dite bhaṭṭācārya āilā\
 > nindā śuni' mahāprabhu hāsite lāgilā
 
 *tabe*—en ese momento; *gāli*—insultando; *śāpa dite*—maldiciendo; *bhaṭṭācārya*—Sārvabhauma Bhaṭṭācārya; *āilā*—regresó; *nindā śuni'*—al oír la crítica; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *hāsite lāgilā*—se echó a reír.

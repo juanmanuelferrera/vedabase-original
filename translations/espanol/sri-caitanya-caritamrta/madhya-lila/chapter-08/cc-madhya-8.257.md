@@ -1,9 +1,9 @@
 ### CC Madhya 8.257
 
-> ‘মুক্তি, ভুক্তি বাঞ্ছে যেই, কাহাঁ দুঁহার গতি?’
+> ‘মুক্তি, ভুক্তি বাঞ্ছে যেই, কাহাঁ দুঁহার গতি?’\
 > ‘স্থাবরদেহ, দেবদেহ যৈছে অবস্থিতি ৷৷’ ২৫৭ ৷৷ ॥২৫৭॥
 
-> 'mukti, bhukti vāñche yei, kāhāṅ duṅhāra gati?'
+> 'mukti, bhukti vāñche yei, kāhāṅ duṅhāra gati?'\
 > 'sthāvara-deha, deva-deha yaiche avasthiti'
 
 *mukti*—liberación; *bhukti*—disfrute de los sentidos; *vāñche*—desea; *yei*—aquel que; *kāhāṅ*—adónde; *duṅhāra*—de ambos; *gati*—el destino; *sthāvara-deha*—el cuerpo de un árbol; *deva-deha*—el cuerpo de un semidiós; *yaiche*—igual que; *avasthiti*—situado.

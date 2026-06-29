@@ -1,13 +1,13 @@
 ### SB 4.3.1
 
-> मैत्रेय उवाच
-> सदा विद्विषतोरेवं कालो वै ध्रियमाणयोः ।
+> मैत्रेय उवाच\
+> सदा विद्विषतोरेवं कालो वै ध्रियमाणयोः ।\
 > जामातुः श्वशुरस्यापि सुमहानतिचक्रमे ॥१॥
 
-> maitreya uvāca
-> sadā vidviṣator evaṁ
-> kālo vai dhriyamāṇayoḥ
-> jāmātuḥ śvaśurasyāpi
+> maitreya uvāca\
+> sadā vidviṣator evaṁ\
+> kālo vai dhriyamāṇayoḥ\
+> jāmātuḥ śvaśurasyāpi\
 > sumahān aticakrame
 
 *maitreyaḥ uvāca*—Maitreya said; *sadā*—constantly; *vidviṣatoḥ*—the tension; *evam*—in this manner; *kālaḥ*—time; *vai*—certainly; *dhriyamāṇayoḥ*—continued to bear; *jāmātuḥ*—of the son-in-law; *śvaśurasya*—of the father-in-law; *api*—even; *su-mahān*—a very great; *aticakrame*—passed.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.145
 
-> জ্ঞান-বৈরাগ্যাদি — ভক্তির কভু নহে ‘অঙ্গ’ ৷
+> জ্ঞান-বৈরাগ্যাদি — ভক্তির কভু নহে ‘অঙ্গ’ ৷\
 > অহিংসাযম-নিয়মাদি বুলে কৃষ্ণভক্ত-সঙ্গ ॥১৪৫॥
 
-> jñāna-vairāgyādi--bhaktira kabhu nahe 'aṅga'
+> jñāna-vairāgyādi--bhaktira kabhu nahe 'aṅga'\
 > ahiṁsā-yama-niyamādi bule kṛṣṇa-bhakta-saṅga
 
 *jñāna*—el sendero del conocimiento; *vairāgya-ādi*—el sendero de la renunciación y demás; *bhaktira*—del servicio devocional; *kabhu*—en ningún momento; *nahe*—no; *aṅga*—una parte; *ahiṁsā*—la no violencia; *yama*—el control de los sentidos y la mente; *niyama-ādi*—restricciones y demás; *bule*—deambulan; *kṛṣṇa-bhakta-saṅga*—en la asociación de un devoto del Señor Kṛṣṇa.

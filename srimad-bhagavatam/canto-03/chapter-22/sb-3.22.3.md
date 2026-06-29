@@ -1,11 +1,11 @@
 ### SB 3.22.3
 
-> तत्त्राणायासृजच्चास्मान्दोःसहस्रात्सहस्रपात् ।
+> तत्त्राणायासृजच्चास्मान्दोःसहस्रात्सहस्रपात् ।\
 > हृदयं तस्य हि ब्रह्म क्षत्रमङ्गं प्रचक्षते ॥३॥
 
-> tat-trāṇāyāsṛjac cāsmān
-> doḥ-sahasrāt sahasra-pāt
-> hṛdayaṁ tasya hi brahma
+> tat-trāṇāyāsṛjac cāsmān\
+> doḥ-sahasrāt sahasra-pāt\
+> hṛdayaṁ tasya hi brahma\
 > kṣatram aṅgaṁ pracakṣate
 
 *tat-trāṇāya*—for the protection of the *brāhmaṇas*; *asṛjat*—created; *ca*—and; *asmān*—us (*kṣatriyas*); *doḥ-sahasrāt*—from His thousand arms; *sahasra-pāt*—the thousand-legged Supreme Being (the universal form); *hṛdayam*—heart; *tasya*—His; *hi*—for; *brahma*—*brāhmaṇas*; *kṣatram*—the *kṣatriyas*; *aṅgam*—arms; *pracakṣate*—are spoken of.

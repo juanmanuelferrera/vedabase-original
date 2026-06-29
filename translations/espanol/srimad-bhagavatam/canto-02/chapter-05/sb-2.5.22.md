@@ -1,11 +1,11 @@
 ### SB 2.5.22
 
-> कालाद्गुणव्यतिकरः परिणामः स्वभावतः ।
+> कालाद्गुणव्यतिकरः परिणामः स्वभावतः ।\
 > कर्मणो जन्म महतः पुरुषाधिष्ठितादभूत् ॥२२॥
 
-> kālād guṇa-vyatikaraḥ
-> pariṇāmaḥ svabhāvataḥ
-> karmaṇo janma mahataḥ
+> kālād guṇa-vyatikaraḥ\
+> pariṇāmaḥ svabhāvataḥ\
+> karmaṇo janma mahataḥ\
 > puruṣādhiṣṭhitād abhūt
 
 *kālāt*—del tiempo eterno; *guṇa-vyatikaraḥ*—transformación de las modalidades por la reacción; *pariṇāmaḥ*—transformación; *svabhāvataḥ*—de la naturaleza; *karmaṇaḥ*—de las actividades; *janma*—creación; *mahataḥ*—del *mahat-tattva*; *puruṣa-adhiṣṭhitāt*—debido a la encarnación *puruṣa* del Señor; *abhūt*—ocurrió.

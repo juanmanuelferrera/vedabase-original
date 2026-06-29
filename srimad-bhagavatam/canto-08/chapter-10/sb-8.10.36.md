@@ -1,11 +1,11 @@
 ### SB 8.10.36
 
-> भुशुण्डिभिश्चक्रगदर्ष्टिपट्टिशैः शक्त्युल्मुकैः प्रासपरश्वधैरपि
+> भुशुण्डिभिश्चक्रगदर्ष्टिपट्टिशैः शक्त्युल्मुकैः प्रासपरश्वधैरपि\
 > निस्त्रिंशभल्लैः परिघैः समुद्गरैः सभिन्दिपालैश्च शिरांसि चिच्छिदुः ॥३६॥
 
-> bhuśuṇḍibhiś cakra-gadarṣṭi-paṭṭiśaiḥ
-> śakty-ulmukaiḥ prāsa-paraśvadhair api
-> nistriṁśa-bhallaiḥ parighaiḥ samudgaraiḥ
+> bhuśuṇḍibhiś cakra-gadarṣṭi-paṭṭiśaiḥ\
+> śakty-ulmukaiḥ prāsa-paraśvadhair api\
+> nistriṁśa-bhallaiḥ parighaiḥ samudgaraiḥ\
 > sabhindipālaiś ca śirāṁsi cicchiduḥ
 
 *bhuśuṇḍibhiḥ*—with weapons called *bhuśuṇḍi*; *cakra*—with discs; *gadā*—with clubs; *ṛṣṭi*—with the weapons called *ṛṣṭi*; *paṭṭiśaiḥ*—with the weapons called *paṭṭiśa*; *śakti*—with the *śakti* weapons; *ulmukaiḥ*—with the weapons called *ulmukas*; *prāsa*—with the *prāsa* weapons; *paraśvadhaiḥ*—with the weapons called *paraśvadha*; *api*—also; *nistriṁśa*—with *nistriṁśas*; *bhallaiḥ*—with lances; *parighaiḥ*—with the weapons named *parighas*; *sa-mudgaraiḥ*—with the weapons known as *mudgara*; *sa-bhindipālaiḥ*—with the *bhindipāla* weapons; *ca*—also; *śirāṁsi*—heads; *cicchiduḥ*—cut off.

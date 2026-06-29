@@ -1,11 +1,11 @@
 ### SB 4.13.38
 
-> सा तत्पुंसवनं राज्ञी प्राश्य वै पत्युरादधे ।
+> सा तत्पुंसवनं राज्ञी प्राश्य वै पत्युरादधे ।\
 > गर्भं काल उपावृत्ते कुमारं सुषुवेऽप्रजा ॥३८॥
 
-> sā tat puṁ-savanaṁ rājñī
-> prāśya vai patyur ādadhe
-> garbhaṁ kāla upāvṛtte
+> sā tat puṁ-savanaṁ rājñī\
+> prāśya vai patyur ādadhe\
+> garbhaṁ kāla upāvṛtte\
 > kumāraṁ suṣuve 'prajā
 
 *sā*—ella; *tat*—aquel alimento; *pum-savanam*—que produce un hijo varón; *rājñī*—la reina; *prāśya*—comer; *vai*—en verdad; *patyuḥ*—del esposo; *ādadhe*—concibió; *garbham*—embarazo; *kāle*—al cabo del tiempo; *upāvṛtte*—apareció; *kumāram*—un hijo varón; *suṣuve*—dio a luz; *aprajā*—que no tenía ningún hijo.

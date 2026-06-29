@@ -1,11 +1,11 @@
 ### SB 6.2.15
 
-> पतितः स्खलितो भग्नः सन्दष्टस्तप्त आहतः
+> पतितः स्खलितो भग्नः सन्दष्टस्तप्त आहतः\
 > हरिरित्यवशेनाह पुमान्नार्हति यातनाः ॥१५॥
 
-> patitaḥ skhalito bhagnaḥ
-> sandaṣṭas tapta āhataḥ
-> harir ity avaśenāha
+> patitaḥ skhalito bhagnaḥ\
+> sandaṣṭas tapta āhataḥ\
+> harir ity avaśenāha\
 > pumān nārhati yātanāḥ
 
 *patitaḥ*—fallen down; *skhalitaḥ*—slipped; *bhagnaḥ*—having broken his bones; *sandaṣṭaḥ*—bitten; *taptaḥ*—severely attacked by fever or similar painful conditions; *āhataḥ*—injured; *hariḥ*—Lord Kṛṣṇa; *iti*—thus; *avaśena*—accidentally; *āha*—chants; *pumān*—a person; *na*—not; *arhati*—deserves; *yātanāḥ*—hellish conditions.

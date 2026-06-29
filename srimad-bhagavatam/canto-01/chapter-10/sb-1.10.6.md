@@ -1,11 +1,11 @@
 ### SB 1.10.6
 
-> नाधयो व्याधयः क्लेशा दैवभूतात्महेतवः ।
+> नाधयो व्याधयः क्लेशा दैवभूतात्महेतवः ।\
 > अजातशत्रावभवन्जन्तूनां राज्ञि कर्हिचित् ॥६॥
 
-> nādhayo vyādhayaḥ kleśā
-> daiva-bhūtātma-hetavaḥ
-> ajāta-śatrāv abhavan
+> nādhayo vyādhayaḥ kleśā\
+> daiva-bhūtātma-hetavaḥ\
+> ajāta-śatrāv abhavan\
 > jantūnāṁ rājñi karhicit
 
 *na*—never; *ādhayaḥ*—anxieties; *vyādhayaḥ*—diseases; *kleśāḥ*—trouble due to excessive heat and cold; *daiva-bhūta-ātma*—all due to the body, supernatural power and other living beings; *hetavaḥ*—due to the cause of; *ajāta-śatrau*—unto one who has no enemy; *abhavan*—happened; *jantūnām*—of the living beings; *rājñi*—unto the King; *karhicit*—at any time.

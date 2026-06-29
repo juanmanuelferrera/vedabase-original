@@ -1,9 +1,9 @@
 ### CC Antya 4.230
 
-> ‘গোপাল-চম্পূ’ নাম গ্রন্থ সার কৈল ।
+> ‘গোপাল-চম্পূ’ নাম গ্রন্থ সার কৈল ।\
 > ব্রজ-প্রেম-লীলা-রস-সার দেখাইল ॥২৩০॥
 
-> 'gopāla-campū' nāma grantha sāra kaila
+> 'gopāla-campū' nāma grantha sāra kaila\
 > vraja-prema-līlā-rasa-sāra dekhāila
 
 *gopāla-campū*—Gopāla-campū; *nāma*—llamado; *grantha sāra*—la esencia de toda la literatura Védica; *kaila*—hizo; *vraja*—de Vṛndāvana; *prema*—de amor; *līlā*—de pasatiempos; *rasa*—de mellows; *sāra*—esencia; *dekhāila*—exhibió.

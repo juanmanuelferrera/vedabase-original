@@ -1,9 +1,9 @@
 ### CC Madhya 24.336
 
-> নামমহিমা, নামাপরাধ দূরে বর্জন ।
+> নামমহিমা, নামাপরাধ দূরে বর্জন ।\
 > বৈষ্ণবলক্ষণ, সেবাপরাধ-খণ্ডন ॥৩৩৬॥
 
-> nāma-mahimā, nāmāparādha dūre varjana
+> nāma-mahimā, nāmāparādha dūre varjana\
 > vaiṣṇava-lakṣaṇa, sevāparādha-khaṇḍana
 
 *nāma-mahimā*—las glorias del santo nombre; *nāma-aparādha*—ofensas al cantar el santo nombre; *dūre varjana*—abandonar con mucho cuidado; *vaiṣṇava-lakṣaṇa*—los síntomas de un vaiṣṇava; *sevā-aparādha-khaṇḍana*—rechazar las ofensas en la adoración de la Deidad.

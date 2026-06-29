@@ -1,11 +1,11 @@
 ### SB 9.11.3
 
-> आचार्याय ददौ शेषां यावती भूस्तदन्तरा
+> आचार्याय ददौ शेषां यावती भूस्तदन्तरा\
 > अन्यमान इदं कृत्स्नं ब्राह्मणोऽर्हति निःस्पृहः ॥३॥
 
-> ācāryāya dadau śeṣāṁ
-> yāvatī bhūs tad-antarā
-> manyamāna idaṁ kṛtsnaṁ
+> ācāryāya dadau śeṣāṁ\
+> yāvatī bhūs tad-antarā\
+> manyamāna idaṁ kṛtsnaṁ\
 > brāhmaṇo 'rhati niḥspṛhaḥ
 
 *ācāryāya*—unto the *ācārya,* the spiritual master; *dadau*—gave; *śeṣām*—the balance; *yāvatī*—whatever; *bhūḥ*—land; *tat-antarā*—existing between the east, west, north and south; *manyamānaḥ*—thinking; *idam*—all this; *kṛtsnam*—wholly; *brāhmaṇaḥ*—the *brāhmaṇas*; *arhati*—deserve to possess; *niḥspṛhaḥ*—having no desire.

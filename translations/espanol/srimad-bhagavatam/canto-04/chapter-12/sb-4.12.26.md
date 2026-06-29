@@ -1,11 +1,11 @@
 ### SB 4.12.26
 
-> अनास्थितं ते पितृभिरन्यैरप्यङ्ग कर्हिचित् ।
+> अनास्थितं ते पितृभिरन्यैरप्यङ्ग कर्हिचित् ।\
 > आतिष्ठ जगतां वन्द्यं तद्विष्णोः परमं पदम् ॥२६॥
 
-> anāsthitaṁ te pitṛbhir
-> anyair apy aṅga karhicit
-> ātiṣṭha jagatāṁ vandyaṁ
+> anāsthitaṁ te pitṛbhir\
+> anyair apy aṅga karhicit\
+> ātiṣṭha jagatāṁ vandyaṁ\
 > tad viṣṇoḥ paramaṁ padam
 
 *anāsthitam*—nunca alcanzado; *te*—tus; *pitṛbhiḥ*—por los antepasados; *anyaiḥ*—por otros; *api*—incluso; *aṅga*—¡oh, Dhruva!; *karhicit*—en ningún tiempo; *ātiṣṭha*—por favor, ven y vive allí; *jagatām*—por los habitantes del universo; *vandyam*—adorable; *tat*—esa; *viṣṇoḥ*—del Señor Viṣṇu; *paramam*—suprema; *padam*—morada.

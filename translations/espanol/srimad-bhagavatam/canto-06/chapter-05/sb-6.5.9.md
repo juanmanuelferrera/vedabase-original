@@ -1,11 +1,11 @@
 ### SB 6.5.9
 
-> कथं स्वपितुरादेशमविद्वांसो विपश्चितः
+> कथं स्वपितुरादेशमविद्वांसो विपश्चितः\
 > अनुरूपमविज्ञआय अहो सर्गं करिष्यथ ॥९॥
 
-> kathaṁ sva-pitur ādeśam
-> avidvāṁso vipaścitaḥ
-> anurūpam avijñāya
+> kathaṁ sva-pitur ādeśam\
+> avidvāṁso vipaścitaḥ\
+> anurūpam avijñāya\
 > aho sargaṁ kariṣyatha
 
 *katham*—cómo; *sva-pituḥ*—de su propio padre; *ādeśam*—la orden; *avidvāṁsaḥ*—ignorantes; *vipaścitaḥ*—que lo sabe todo; *anurūpam*—adecuada para ustedes; *avijñāya*—sin conocer; *aho*—¡ay!; *sargam*—la creación; *kariṣyatha*—realizarán.

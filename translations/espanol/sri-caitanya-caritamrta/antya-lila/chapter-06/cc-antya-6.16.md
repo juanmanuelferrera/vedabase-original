@@ -1,9 +1,9 @@
 ### CC Antya 6.16
 
-> ‘মথুরা হৈতে প্রভু আইলা’, — বার্তা যবে পাইলা ।
+> ‘মথুরা হৈতে প্রভু আইলা’, — বার্তা যবে পাইলা ।\
 > প্রভু-পাশ চলিবারে উদ্যোগ করিলা ॥১৬॥
 
-> 'mathurā haite prabhu āilā',--vārtā yabe pāilā
+> 'mathurā haite prabhu āilā',--vārtā yabe pāilā\
 > prabhu-pāśa calibāre udyoga karilā
 
 *mathurā haite*—desde Mathurā; *prabhu āilā*—el Señor Śrī Caitanya Mahāprabhu ha regresado; *vārtā*—mensaje; *yabe pāilā*—cuando recibió; *prabhu-pāśa*—hasta Śrī Caitanya Mahāprabhu; *calibāre*—para ir; *udyoga karilā*—se esforzó.

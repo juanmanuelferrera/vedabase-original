@@ -1,13 +1,13 @@
 ### SB 2.7.18
 
-> नार्थो बलेरयमुरुक्रमपादशौचम्
-> आपः शिखाधृतवतो विबुधाधिपत्यम् ।
-> यो वै प्रतिश्रुतमृते न चिकीर्षदन्यद्
+> नार्थो बलेरयमुरुक्रमपादशौचम्\
+> आपः शिखाधृतवतो विबुधाधिपत्यम् ।\
+> यो वै प्रतिश्रुतमृते न चिकीर्षदन्यद्\
 > आत्मानमङ्ग मनसा हरयेऽभिमेने ॥१८॥
 
-> nārtho baler ayam urukrama-pāda-śaucam
-> āpaḥ śikhā-dhṛtavato vibudhādhipatyam
-> yo vai pratiśrutam ṛte na cikīrṣad anyad
+> nārtho baler ayam urukrama-pāda-śaucam\
+> āpaḥ śikhā-dhṛtavato vibudhādhipatyam\
+> yo vai pratiśrutam ṛte na cikīrṣad anyad\
 > ātmānam aṅga manasā haraye 'bhimene
 
 *na*—never; *arthaḥ*—of any value in comparison with; *baleḥ*—of strength; *ayam*—this; *urukrama-pāda-śaucam*—the water washed from the feet of the Personality of Godhead; *āpaḥ*—water; *śikhā-dhṛtavataḥ*—of one who has kept it on his head; *vibudha-adhipatyam*—supremacy over the kingdom of the demigods; *yaḥ*—one who; *vai*—certainly; *pratiśrutam*—what was duly promised; *ṛte na*—besides that; *cikīrṣat*—tried for; *anyat*—anything else; *ātmānam*—even his personal body; *aṅga*—O Nārada; *manasā*—within his mind; *haraye*—unto the Supreme Lord; *abhimene*—dedicated.

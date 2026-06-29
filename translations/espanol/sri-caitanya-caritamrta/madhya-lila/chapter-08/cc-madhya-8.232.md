@@ -1,11 +1,11 @@
 ### CC Madhya 8.232
 
-> নায়ং শ্রিয়োঽঙ্গ উ নিতান্তরতেঃ প্রসাদঃ
+> নায়ং শ্রিয়োঽঙ্গ উ নিতান্তরতেঃ প্রসাদঃ\
 > লব্ধাশিষাং য উদগাদ্ব্রজসুন্দরীণাম্ ৷৷ ২৩২ ৷৷ ॥২৩২॥
 
-> nāyaṁ śriyo 'ṅga u nitānta-rateḥ prasādaḥ
-> svar-yoṣitāṁ nalina-gandha-rucāṁ kuto 'nyāḥ
-> rāsotsave 'sya bhuja-daṇḍa-gṛhīta-kaṇṭha-
+> nāyaṁ śriyo 'ṅga u nitānta-rateḥ prasādaḥ\
+> svar-yoṣitāṁ nalina-gandha-rucāṁ kuto 'nyāḥ\
+> rāsotsave 'sya bhuja-daṇḍa-gṛhīta-kaṇṭha-\
 > labdhāśiṣāṁ ya udagād vraja-sundarīṇām
 
 *na*—no; *ayam*—este; *śriyaḥ*—de la diosa de la fortuna; *aṅge*—en el pecho; *u*—¡ay!; *nitānta-rateḥ*—que está muy íntimamente relacionada; *prasādaḥ*—el favor; *svaḥ*—de los planetas celestiales; *yoṣitām*—de las mujeres; *nalina*—de la flor de loto; *gandha*—que tiene el aroma; *rucām*—y el lustre corporal; *kutaḥ*—cuánto menos; *anyāḥ*—otras; *rāsa-utsave*—en el festival de la danza del rāsa; *asya*—del Señor Śrī Kṛṣṇa; *bhuja-daṇḍa*—por los brazos; *gṛhīta*—abrazados; *kaṇṭha*—sus cuellos; *labdha-āśiṣām*—que alcanzaron tal bendición; *yaḥ*—el cual; *udagāt*—se manifestó; *vraja-sundarīṇām*—de las hermosas gopīs, las jóvenes trascendentales de Vrajabhūmi.

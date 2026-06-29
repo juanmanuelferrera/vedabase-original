@@ -1,11 +1,11 @@
 ### SB 8.10.2
 
-> साधयित्वामृतं राजन्पाययित्वा स्वकान्सुरान
+> साधयित्वामृतं राजन्पाययित्वा स्वकान्सुरान\
 > पश्यतां सर्वभूतानां ययौ गरुडवाहनः ॥२॥
 
-> sādhayitvāmṛtaṁ rājan
-> pāyayitvā svakān surān
-> paśyatāṁ sarva-bhūtānāṁ
+> sādhayitvāmṛtaṁ rājan\
+> pāyayitvā svakān surān\
+> paśyatāṁ sarva-bhūtānāṁ\
 > yayau garuḍa-vāhanaḥ
 
 *sādhayitvā*—tras cumplir; *amṛtam*—generación de néctar; *rājan*—¡oh, rey!; *pāyayitvā*—y alimentar; *svakān*—a Sus propios devotos; *surān*—a los semidioses; *paśyatām*—en presencia de; *sarva-bhūtānām*—todas las entidades vivientes; *yayau*—Se fue; *garuḍa-vāhanaḥ*—la Suprema Personalidad de Dios, llevado por Garuḍa.

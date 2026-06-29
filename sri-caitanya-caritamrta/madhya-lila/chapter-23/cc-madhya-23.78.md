@@ -2,7 +2,7 @@
 
 > অথ পঞ্চগুণা যে স্যুরংশেন গিরিশাদিষু ॥৭৮॥
 
-> atha pañca-guṇā ye syur
+> atha pañca-guṇā ye syur\
 > aṁśena giriśādiṣu
 
 *atha*—now(over and above these); *pañca-guṇāḥ*—five qualities; *ye*—which; *syuḥ*—may exist; *aṁśena*—by part; *giriśa-ādiṣu*—in demigods like Lord Śiva.

@@ -1,9 +1,9 @@
 ### CC Adi 14.44
 
-> তবে শচী কোলে করি’ করাইল সন্তোষ ।
+> তবে শচী কোলে করি’ করাইল সন্তোষ ।\
 > লজ্জিত হইলা প্রভু জানি’ নিজ-দোষ ॥৪৪॥
 
-> tabe śacī kole kari' karāila santoṣa
+> tabe śacī kole kari' karāila santoṣa\
 > lajjita ha-ilā prabhu jāni' nija-doṣa
 
 *tabe*—at that time; *śacī*—mother Śacīdevī; *kole*—on the lap; *kari'*—taking; *karāila*—made; *santoṣa*—pacified; *lajjita*—ashamed; *ha-ilā*—became; *prabhu*—the Lord; *jāni'*—knowing; *nija*—His own; *doṣa*—fault.

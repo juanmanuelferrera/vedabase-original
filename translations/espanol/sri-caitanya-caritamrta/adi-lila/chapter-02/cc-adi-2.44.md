@@ -1,9 +1,9 @@
 ### CC Adi 2.44
 
-> ইথে যত জীব, তার ত্রৈকালিক কর্ম ।
+> ইথে যত জীব, তার ত্রৈকালিক কর্ম ।\
 > তাহা দেখ, সাক্ষী তুমি, জান সব মর্ম ॥৪৪॥
 
-> ithe yata jīva, tāra trai-kālika karma
+> ithe yata jīva, tāra trai-kālika karma\
 > tāhā dekha, sākṣī tumi, jāna saba marma
 
 *ithe*—en estos; *yata*—todas las; *jīva*—entidades vivientes; *tāra*—de ellas; *trai-kālika*—pasadas, presentes y futuras; *karma*—las actividades; *tāhā*—eso; *dekha*—Tú ves; *sākṣī*—testigo; *tumi*—Tú; *jāna*—conoces; *saba*—de todo; *marma*—la esencia.

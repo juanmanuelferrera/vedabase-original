@@ -1,11 +1,11 @@
 ### SB 5.1.13
 
-> भवाय नाशाय च कर्म कर्तुं शोकाय मोहाय सदा भयाय
+> भवाय नाशाय च कर्म कर्तुं शोकाय मोहाय सदा भयाय\
 > सुखाय दुःखाय च देहयोगमव्यक्तदिष्टं जनताङ्ग धत्ते ॥१३॥
 
-> bhavāya nāśāya ca karma kartuṁ
-> śokāya mohāya sadā bhayāya
-> sukhāya duḥkhāya ca deha-yogam
+> bhavāya nāśāya ca karma kartuṁ\
+> śokāya mohāya sadā bhayāya\
+> sukhāya duḥkhāya ca deha-yogam\
 > avyakta-diṣṭaṁ janatāṅga dhatte
 
 *bhavāya*—para nacer; *nāśāya*—para morir; *ca*—también; *karma*—actividad; *kartum*—para hacer; *śokāya*—para el desconsuelo; *mohāya*—para la ilusión; *sadā*—siempre; *bhayāya*—para el temor; *sukhāya*—para la felicidad; *duḥkhāya*—para la aflicción; *ca*—también; *deha-yogam*—relación con un cuerpo material; *avyakta*—por la Suprema Personalidad de Dios; *diṣṭam*—ordenada; *janatā*—las entidades vivientes; *aṅga*—¡oh, Priyavrata!; *dhatte*—reciben.

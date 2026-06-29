@@ -1,11 +1,11 @@
 ### SB 8.24.36
 
-> दोधूयमानां तां नावं समीरेण बलीयसा
+> दोधूयमानां तां नावं समीरेण बलीयसा\
 > उपस्थितस्य मे शृङ्गे निबध्नीहि महाहिना ॥३६॥
 
-> dodhūyamānāṁ tāṁ nāvaṁ
-> samīreṇa balīyasā
-> upasthitasya me śṛṅge
+> dodhūyamānāṁ tāṁ nāvaṁ\
+> samīreṇa balīyasā\
+> upasthitasya me śṛṅge\
 > nibadhnīhi mahāhinā
 
 *dodhūyamānām*—being tossed about; *tām*—that; *nāvam*—boat; *samīreṇa*—by the wind; *balīyasā*—very powerful; *upasthitasya*—situated nearby; *me*—of Me; *śṛṅge*—to the horn; *nibadhnīhi*—bind; *mahā-ahinā*—by the large serpent (Vāsuki).

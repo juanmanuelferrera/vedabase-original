@@ -1,11 +1,11 @@
 ### SB 1.8.16
 
-> मा मंस्था ह्येतदाश्चर्यं सर्वाश्चर्यमये ञ्च्युते ।
+> मा मंस्था ह्येतदाश्चर्यं सर्वाश्चर्यमये ञ्च्युते ।\
 > य इदं मायया देव्या सृजत्यवति हन्त्यजः ॥१६॥
 
-> mā maṁsthā hy etad āścaryaṁ
-> sarvāścaryamaye 'cyute
-> ya idaṁ māyayā devyā
+> mā maṁsthā hy etad āścaryaṁ\
+> sarvāścaryamaye 'cyute\
+> ya idaṁ māyayā devyā\
 > sṛjaty avati hanty ajaḥ
 
 *mā*—do not; *maṁsthāḥ*—think; *hi*—certainly; *etat*—all these; *āścaryam*—wonderful; *sarva*—all; *āścarya-maye*—in the all-mysterious; *acyute*—the infallible; *yaḥ*—one who; *idam*—this (creation); *māyayā*—by His energy; *devyā*—transcendental; *sṛjati*—creates; *avati*—maintains; *hanti*—annihilates; *ajaḥ*—unborn.

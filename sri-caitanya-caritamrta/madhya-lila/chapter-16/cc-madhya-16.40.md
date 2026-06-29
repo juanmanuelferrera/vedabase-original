@@ -1,9 +1,9 @@
 ### CC Madhya 16.40
 
-> তাহাঞি আরম্ভ কৈল কৃষ্ণ-সংকীর্তন ।
+> তাহাঞি আরম্ভ কৈল কৃষ্ণ-সংকীর্তন ।\
 > নাচিতে নাচিতে চলি’ আইলা দুইজন ॥৪০॥
 
-> tāhāñi ārambha kaila kṛṣṇa-saṅkīrtana
+> tāhāñi ārambha kaila kṛṣṇa-saṅkīrtana\
 > nācite nācite cali' āilā dui-jana
 
 *tāhāñi*—on that very spot; *ārambha kaila*—began; *kṛṣṇa-saṅkīrtana*—chanting the holy name of Lord Kṛṣṇa; *nācite nācite*—dancing and dancing; *cali'*—going; *āilā*—reached; *dui-jana*—both of Them.

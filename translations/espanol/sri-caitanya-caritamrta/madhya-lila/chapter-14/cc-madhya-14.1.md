@@ -1,11 +1,11 @@
 ### CC Madhya 14.1
 
-> গৌরঃ পশ্যন্নাত্মবৃন্দৈঃ শ্রীলক্ষ্মীবিজয়োৎসবম্ ।
+> গৌরঃ পশ্যন্নাত্মবৃন্দৈঃ শ্রীলক্ষ্মীবিজয়োৎসবম্ ।\
 > শ্রুত্বা গোপীরসোল্লাসং হৃষ্টঃ প্রেম্ণা ননর্ত সঃ ॥১॥
 
-> gauraḥ paśyann ātma-vṛndaiḥ
-> śrī-lakṣmī-vijayotsavam
-> śrutvā gopī-rasollāsaṁ
+> gauraḥ paśyann ātma-vṛndaiḥ\
+> śrī-lakṣmī-vijayotsavam\
+> śrutvā gopī-rasollāsaṁ\
 > hṛṣṭaḥ premṇā nanarta saḥ
 
 *gauraḥ*—el Señor Śrī Caitanya Mahāprabhu; *paśyan*—al ver; *ātma-vṛndaiḥ*—con Sus asociados personales; *śrī-lakṣmī*—de la diosa de la fortuna; *vijaya utsavam*—el gran festival; *śrutvā*—al oír; *gopī*—de las gopīs; *rasa-ullāsam*—la superexcelencia de los rasas; *hṛṣṭaḥ*—sintiéndose muy complacido; *premṇā*—con gran éxtasis de amor; *nanarta*—danzó; *saḥ*—Él, Śrī Caitanya Mahāprabhu.

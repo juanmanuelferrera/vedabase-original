@@ -1,11 +1,11 @@
 ### SB 1.16.21
 
-> अरक्ष्यमाणाः स्त्रिय उर्वि बालान्शोचस्यथो पुरुषादैरिवार्तान् ।
+> अरक्ष्यमाणाः स्त्रिय उर्वि बालान्शोचस्यथो पुरुषादैरिवार्तान् ।\
 > वाचं देवीं ब्रह्मकुले कुकर्मण्यब्रह्मण्ये राजकुले कुलाग्र्यान् ॥२१॥
 
-> arakṣyamāṇāḥ striya urvi bālān
-> śocasy atho puruṣādair ivārtān
-> vācaṁ devīṁ brahma-kule kukarmaṇy
+> arakṣyamāṇāḥ striya urvi bālān\
+> śocasy atho puruṣādair ivārtān\
+> vācaṁ devīṁ brahma-kule kukarmaṇy\
 > abrahmaṇye rāja-kule kulāgryān
 
 *arakṣyamāṇāḥ*—unprotected; *striyaḥ*—women; *urvi*—on the earth; *bālān*—children; *śocasi*—you are feeling compassion; *atho*—as such; *puruṣa-ādaiḥ*—by Rākṣasas; *iva*—like that; *ārtān*—those who are unhappy; *vācam*—vocabulary; *devīm*—the goddess; *brahma-kule*—in the family of the *brāhmaṇa*; *kukarmaṇi*—acts against the principles of religion; *abrahmaṇye*—persons against the brahminical culture; *rāja-kule*—in the administrative family; *kula-agryān*—most of all the families (the *brāhmaṇas*).

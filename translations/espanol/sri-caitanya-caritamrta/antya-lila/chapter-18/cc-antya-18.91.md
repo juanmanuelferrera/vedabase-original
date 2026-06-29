@@ -1,13 +1,13 @@
 ### CC Antya 18.91
 
-> পদ্মিনীলতা — সখীচয়, কৈল কারো সহায়,
-> তরঙ্গ-হস্তে পত্র সমর্পিল ।
-> কেহ মুক্ত-কেশপাশ, আগে কৈল অধোবাস,
+> পদ্মিনীলতা — সখীচয়, কৈল কারো সহায়,\
+> তরঙ্গ-হস্তে পত্র সমর্পিল ।\
+> কেহ মুক্ত-কেশপাশ, আগে কৈল অধোবাস,\
 > হস্তে কেহ কঞ্চুলি ধরিল ॥৯১॥
 
-> padminī-latā--sakhī-caya, kaila kāro sahāya,
-> taraṅga-haste patra samarpila
-> keha mukta-keśa-pāśa, āge kaila adhovāsa,
+> padminī-latā--sakhī-caya, kaila kāro sahāya,\
+> taraṅga-haste patra samarpila\
+> keha mukta-keśa-pāśa, āge kaila adhovāsa,\
 > haste keha kañculi dharila
 
 *padminī-latā*—los tallos de las flores de loto; *sakhī-caya*—amigas de las gopīs; *kaila*—prestaron; *kāro*—a algunas de las gopīs; *sahāya*—ayuda; *taraṅga-haste*—mediante las olas del Yamunā, que se comparan con manos; *patra*—las hojas de loto; *samarpila*—proporcionaron; *keha*—alguna; *mukta*—sueltos; *keśa-pāśa*—los mechones de cabello; *āge*—por delante; *kaila*—hizo; *adhovāsa*—una vestimenta inferior; *haste*—las manos; *keha*—algunas; *kañculi*—como vestimenta superior; *dharila*—sujetaron.

@@ -1,9 +1,9 @@
 ### CC Madhya 5.62
 
-> তোমরা সকল লোক করহ বিচারে ।
+> তোমরা সকল লোক করহ বিচারে ।\
 > ‘মোর পিতার কন্যা দিতে যোগ্য কি ইহারে ।।’ ॥ ৬২ ॥
 
-> tomarā sakala loka karaha vicāre
+> tomarā sakala loka karaha vicāre\
 > 'mora pitāra kanyā dite yogya ki ihāre'
 
 *tomarā*—you; *sakala*—all; *loka*—people; *karaha*—just make; *vicāre*—judgment; *mora*—my; *pitāra*—of the father; *kanyā*—the daughter; *dite*—to give in charity; *yogya*—befitting; *ki*—is it; *ihāre*—to him.

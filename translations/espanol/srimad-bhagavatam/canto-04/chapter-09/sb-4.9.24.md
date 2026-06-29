@@ -1,11 +1,11 @@
 ### SB 4.9.24
 
-> इष्ट्वा मां यज्ञहृदयं यज्ञैः पुष्कलदक्षिणैः ।
+> इष्ट्वा मां यज्ञहृदयं यज्ञैः पुष्कलदक्षिणैः ।\
 > भुक्त्वा चेहाशिषः सत्या अन्ते मां संस्मरिष्यसि ॥२४॥
 
-> iṣṭvā māṁ yajña-hṛdayaṁ
-> yajñaiḥ puṣkala-dakṣiṇaiḥ
-> bhuktvā cehāśiṣaḥ satyā
+> iṣṭvā māṁ yajña-hṛdayaṁ\
+> yajñaiḥ puṣkala-dakṣiṇaiḥ\
+> bhuktvā cehāśiṣaḥ satyā\
 > ante māṁ saṁsmariṣyasi
 
 *iṣṭvā*—después de adorar; *mām*—a Mí; *yajña-hṛdayam*—el corazón de todo sacrificio; *yajñaiḥ*—con grandes sacrificios; *puṣkala-dakṣiṇaiḥ*—incluyendo el reparto de grandes donaciones caritativas; *bhuktvā*—después de disfrutar; *ca*—también; *iha*—en este mundo; *āśiṣaḥ*—bendiciones; *satyāḥ*—verdaderas; *ante*—al final; *mām*—a Mí; *saṁsmariṣyasi*—podrás recordar.

@@ -1,18 +1,18 @@
 ### SB 4.13.8-9
 
-> आत्मानं ब्रह्म निर्वाणं प्रत्यस्तमितविग्रहम् ।
-> अवबोधरसैकात्म्यमानन्दमनुसन्ततम् ॥८॥
-> अव्यवच्छिन्नयोगाग्नि दग्धकर्ममलाशयः ।
+> आत्मानं ब्रह्म निर्वाणं प्रत्यस्तमितविग्रहम् ।\
+> अवबोधरसैकात्म्यमानन्दमनुसन्ततम् ॥८॥\
+> अव्यवच्छिन्नयोगाग्नि दग्धकर्ममलाशयः ।\
 > स्वरूपमवरुन्धानो नात्मनोऽन्यं तदैक्षत ॥९॥
 
-> ātmānaṁ brahma nirvāṇaṁ
-> pratyastamita-vigraham
-> avabodha-rasaikātmyam
+> ātmānaṁ brahma nirvāṇaṁ\
+> pratyastamita-vigraham\
+> avabodha-rasaikātmyam\
 > ānandam anusantatam
 
-> avyavacchinna-yogāgni-
-> dagdha-karma-malāśayaḥ
-> svarūpam avarundhāno
+> avyavacchinna-yogāgni-\
+> dagdha-karma-malāśayaḥ\
+> svarūpam avarundhāno\
 > nātmano 'nyaṁ tadaikṣata
 
 *ātmānam*—self; *brahma*—spirit; *nirvāṇam*—extinction of material existence; *pratyastamita*—ceased; *vigraham*—separation; *avabodha-rasa*—by the mellow of knowledge; *eka-ātmyam*—oneness; *ānandam*—bliss; *anusantatam*—expanded; *avyavacchinna*—continuous; *yoga*—by practice of *yoga*; *agni*—by the fire; *dagdha*—burned; *karma*—fruitive desires; *mala*—dirty; *āśayaḥ*—in his mind; *svarūpam*—constitutional position; *avarundhānaḥ*—realizing; *na*—not; *ātmanaḥ*—than the Supreme Soul; *anyam*—anything else; *tadā*—then; *aikṣata*—saw.

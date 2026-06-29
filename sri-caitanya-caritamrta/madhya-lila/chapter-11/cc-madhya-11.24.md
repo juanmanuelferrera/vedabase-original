@@ -1,9 +1,9 @@
 ### CC Madhya 11.24
 
-> পরম কৃপালু তেঁহ ব্রজেন্দ্রনন্দন ।
+> পরম কৃপালু তেঁহ ব্রজেন্দ্রনন্দন ।\
 > কোন-জন্মে মোরে অবশ্য দিবেন দরশন ॥২৪॥
 
-> parama kṛpālu teṅha vrajendra-nandana
+> parama kṛpālu teṅha vrajendra-nandana\
 > kona-janme more avaśya dibena daraśana
 
 *parama*—very much; *kṛpālu*—merciful; *teṅha*—Lord Caitanya Mahāprabhu; *vrajendra-nandana*—the son of Mahārāja Nanda; *kona-janme*—in some future birth; *more*—unto me; *avaśya*—certainly; *dibena*—will give; *daraśana*—interview.

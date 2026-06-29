@@ -1,13 +1,13 @@
 ### CC Antya 1.145
 
-> অগ্রে বীক্ষ্য শিখণ্ডখণ্ডমচিরাদুৎকম্পমালম্বতে
-> গুঞ্জানাঞ্চ বিলোকনান্মুহুরসৌ সাস্রং পরিক্রোশতি ।
-> নো জানে জনয়ন্নপূর্বনটনক্রীড়া-চমৎকারিতাং ।
+> অগ্রে বীক্ষ্য শিখণ্ডখণ্ডমচিরাদুৎকম্পমালম্বতে\
+> গুঞ্জানাঞ্চ বিলোকনান্মুহুরসৌ সাস্রং পরিক্রোশতি ।\
+> নো জানে জনয়ন্নপূর্বনটনক্রীড়া-চমৎকারিতাং ।\
 > বালায়াঃ কিল চিত্তভূমিমবিশৎ কোঽয়ং নবীনগ্রহঃ ॥১৪৫॥
 
-> agre vīkṣya śikhaṇḍa-khaṇḍam acirād utkampam ālambate
-> guñjānāṁ ca vilokanān muhur asau sāsraṁ parikrośati
-> no jāne janayann apūrva-naṭana-krīḍā-camatkāritāṁ
+> agre vīkṣya śikhaṇḍa-khaṇḍam acirād utkampam ālambate\
+> guñjānāṁ ca vilokanān muhur asau sāsraṁ parikrośati\
+> no jāne janayann apūrva-naṭana-krīḍā-camatkāritāṁ\
 > bālāyāḥ kila citta-bhūmim aviśat ko 'yaṁ navīna-grahaḥ
 
 *agre*—in front; *vīkṣya*—seeing; *śikhaṇḍa-khaṇḍam*—some peacock feathers; *acirāt*—all of a sudden; *utkampam*—trembling of the heart and body; *ālambate*—takes to; *guñjānām*—of a garland of *guñjā* (small conchshells); *ca*—also; *vilokanāt*—by seeing; *muhuḥ*—constantly; *asau*—She; *sa-asram*—with tears; *parikrośati*—goes around crying; *no*—not; *jāne*—I know; *janayan*—awakening; *apūrva-naṭana*—like unheard-of dramatic dancing; *krīḍā*—of activities; *camatkāritām*—the madness; *bālāyāḥ*—of this poor girl; *kila*—certainly; *citta-bhūmim*—within the heart; *aviśat*—has entered; *kaḥ*—what; *ayam*—this; *navīna-grahaḥ*—new ecstatic influence.

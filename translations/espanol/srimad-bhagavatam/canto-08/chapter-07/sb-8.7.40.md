@@ -1,13 +1,13 @@
 ### SB 8.7.40
 
-> प्राणैः स्वैः प्राणिनः पान्ति साधवः क्षणभङ्गुरैः
+> प्राणैः स्वैः प्राणिनः पान्ति साधवः क्षणभङ्गुरैः\
 > बद्धवैरेषु भूतेषु मोहितेष्वात्ममायया ॥४०॥
 
-> puṁsaḥ kṛpayato bhadre
-> sarvātmā prīyate hariḥ
-> prīte harau bhagavati
-> prīye 'haṁ sacarācaraḥ
-> tasmād idaṁ garaṁ bhuñje
+> puṁsaḥ kṛpayato bhadre\
+> sarvātmā prīyate hariḥ\
+> prīte harau bhagavati\
+> prīye 'haṁ sacarācaraḥ\
+> tasmād idaṁ garaṁ bhuñje\
 > prajānāṁ svastir astu me
 
 *puṁsaḥ*—con una persona; *kṛpayataḥ*—que actúa con benevolencia; *bhadre*—¡oh, muy amable Bhavānī!; *sarva-ātmā*—la Superalma; *prīyate*—Se complace; *hariḥ*—la Suprema Personalidad de Dios; *prīte*—debido a Su placer; *harau*—el Señor Supremo, Hari; *bhagavati*—la Personalidad de Dios; *prīye*—también me complazco; *aham*—yo; *sa-cara-acaraḥ*—con todos los demás seres, móviles e inmóviles; *tasmāt*—por lo tanto; *idam*—este; *garam*—veneno; *bhuñje*—deja que beba; *prajānām*—de las entidades vivientes; *svastiḥ*—bienestar; *astu*—sea; *me*—por mí.

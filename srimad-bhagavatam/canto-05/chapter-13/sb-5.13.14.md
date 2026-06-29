@@ -1,11 +1,11 @@
 ### SB 5.13.14
 
-> तांस्तान्विपन्नान्स हि तत्र तत्र विहाय जातं परिगृह्य सार्थः
+> तांस्तान्विपन्नान्स हि तत्र तत्र विहाय जातं परिगृह्य सार्थः\
 > आवर्ततेऽद्यापि न कश्चिदत्र वीराध्वनः पारमुपैति योगम ॥१४॥
 
-> tāṁs tān vipannān sa hi tatra tatra
-> vihāya jātaṁ parigṛhya sārthaḥ
-> āvartate 'dyāpi na kaścid atra
+> tāṁs tān vipannān sa hi tatra tatra\
+> vihāya jātaṁ parigṛhya sārthaḥ\
+> āvartate 'dyāpi na kaścid atra\
 > vīrādhvanaḥ pāram upaiti yogam
 
 *tān tān*—all of them; *vipannān*—embarrassed in various ways; *saḥ*—the living being; *hi*—certainly; *tatra tatra*—here and there; *vihāya*—giving up; *jātam*—those who are newly born; *parigṛhya*—taking; *sa-arthaḥ*—the living being searching for his own interest; *āvartate*—wanders in this forest; *adya api*—even until now; *na*—not; *kaścit*—any of them; *atra*—here in this forest; *vīra*—O hero; *adhvanaḥ*—of the path of material life; *pāram*—the ultimate end; *upaiti*—gets; *yogam*—the process of devotional service to the Supreme Personality of Godhead.

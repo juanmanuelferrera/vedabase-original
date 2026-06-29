@@ -1,11 +1,11 @@
 ### SB 4.29.38
 
-> सोऽचिरादेव राजर्षे स्यादच्युतकथाश्रयः ।
+> सोऽचिरादेव राजर्षे स्यादच्युतकथाश्रयः ।\
 > शृण्वतः श्रद्दधानस्य नित्यदा स्यादधीयतः ॥३८॥
 
-> so 'cirād eva rājarṣe
-> syād acyuta-kathāśrayaḥ
-> śṛṇvataḥ śraddadhānasya
+> so 'cirād eva rājarṣe\
+> syād acyuta-kathāśrayaḥ\
+> śṛṇvataḥ śraddadhānasya\
 > nityadā syād adhīyataḥ
 
 *saḥ*—that; *acirāt*—very soon; *eva*—certainly; *rāja-ṛṣe*—O best of kings; *syāt*—becomes; *acyuta*—of the Supreme Personality of Godhead; *kathā*—narrations; *āśrayaḥ*—depending on; *śṛṇvataḥ*—of one who is hearing; *śraddadhānasya*—faithful; *nityadā*—always; *syāt*—becomes; *adhīyataḥ*—by cultivation.

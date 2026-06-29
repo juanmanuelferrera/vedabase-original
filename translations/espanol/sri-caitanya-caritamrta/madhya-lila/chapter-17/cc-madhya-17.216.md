@@ -1,11 +1,11 @@
 ### CC Madhya 17.216
 
-> রাধা-সঙ্গে যদা ভাতি তদা ‘মদনমোহনঃ’ ।
+> রাধা-সঙ্গে যদা ভাতি তদা ‘মদনমোহনঃ’ ।\
 > অন্যথা বিশ্বমোহোঽপি স্বয়ং ‘মদনমোহিতঃ’ ॥২১৬॥
 
-> rādhā-saṅge yadā bhāti
-> tadā 'madana-mohanaḥ'
-> anyathā viśva-moho 'pi
+> rādhā-saṅge yadā bhāti\
+> tadā 'madana-mohanaḥ'\
+> anyathā viśva-moho 'pi\
 > svayaṁ 'madana-mohitaḥ'
 
 *rādhā-saṅge*—con Śrīmatī Rādhārāṇī; *yadā*—cuando; *bhāti*—resplandece; *tadā*—en ese momento; *madana-mohanaḥ*—el hechicero de la mente de Cupido; *anyathā*—de lo contrario; *viśva-mohaḥ*—el hechicero del universo entero; *api*—aunque; *svayam*—personalmente; *madana-mohitaḥ*—hechizado por Cupido.

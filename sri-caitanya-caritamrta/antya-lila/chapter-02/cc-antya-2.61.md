@@ -1,9 +1,9 @@
 ### CC Antya 2.61
 
-> ইষ্টদেব নৃসিংহ লাগি’ পৃথক্ বাড়িল  ।
+> ইষ্টদেব নৃসিংহ লাগি’ পৃথক্ বাড়িল  ।\
 > তিন-জনে সমর্পিয়া বাহিরে ধ্যান কৈল ॥৬১॥
 
-> iṣṭa-deva nṛsiṁha lāgi' pṛthak bāḍila
+> iṣṭa-deva nṛsiṁha lāgi' pṛthak bāḍila\
 > tina-jane samarpiyā bāhire dhyāna kaila
 
 *iṣṭa-deva*—the worshipable Deity; *nṛsiṁha*—Lord Nṛsiṁhadeva; *lāgi'*—for; *pṛthak*—separately; *bāḍila*—arranged; *tina-jane*—to the three Deities; *samarpiyā*—offering; *bāhire*—outside; *dhyāna kaila*—meditated.

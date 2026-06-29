@@ -1,9 +1,9 @@
 ### CC Madhya 20.291
 
-> ব্রহ্মা, বিষ্ণু, শিব — তাঁর গুণ-অবতার ।
+> ব্রহ্মা, বিষ্ণু, শিব — তাঁর গুণ-অবতার ।\
 > সৃষ্টি-স্থিতি-প্রলয়ের তিনের অধিকার ॥২৯১॥
 
-> brahmā, viṣṇu, śiva—tāṅra guṇa-avatāra
+> brahmā, viṣṇu, śiva—tāṅra guṇa-avatāra\
 > sṛṣṭi-sthiti-pralayera tinera adhikāra
 
 *brahmā*—Lord Brahmā; *viṣṇu*—Lord Viṣṇu; *śiva*—Lord Śiva; *tāṅra*—of Garbhodakaśāyī Viṣṇu; *guṇa-avatāra*—incarnations of the material qualities; *sṛṣṭi-sthiti-pralayera*—of the three functions, namely creation, maintenance and dissolution; *tinera adhikāra*—there is control by the three deities (Lord Brahmā, Lord Viṣṇu and Lord Śiva).

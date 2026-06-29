@@ -1,9 +1,9 @@
 ### CC Madhya 14.161
 
-> বয়সে ‘মধ্যমা’তেঁহো স্বভাবেতে ‘সমা’ ।
+> বয়সে ‘মধ্যমা’তেঁহো স্বভাবেতে ‘সমা’ ।\
 > গাঢ় প্রেমভাবে তেঁহো নিরন্তর ‘বামা’ ॥১৬১॥
 
-> vayase 'madhyamā' teṅho svabhāvete 'samā'
+> vayase 'madhyamā' teṅho svabhāvete 'samā'\
 > gāḍha prema-bhāve teṅho nirantara 'vāmā'
 
 *vayase madhyamā*—grown up; *teṅho*—Śrīmatī Rādhārāṇī; *sva-bhāvete*—in character; *samā*—equipoised; *gāḍha*—deep; *prema-bhāve*—in ecstatic love; *teṅho*—She; *nirantara*—constantly; *vāmā*—of the group of the left-wing *gopīs.*

@@ -1,13 +1,13 @@
 ### SB 3.4.27
 
-> श्रीशुक उवाच
-> इति सह विदुरेण विश्वमूर्तेर्गुणकथया सुधया प्लावितोरुतापः ।
+> श्रीशुक उवाच\
+> इति सह विदुरेण विश्वमूर्तेर्गुणकथया सुधया प्लावितोरुतापः ।\
 > क्षणमिव पुलिने यमस्वसुस्तां समुषित औपगविर्निशां ततोऽगात् ॥२७॥
 
-> śrī-śuka uvāca
-> iti saha vidureṇa viśva-mūrter
-> guṇa-kathayā sudhayā plāvitorutāpaḥ
-> kṣaṇam iva puline yamasvasus tāṁ
+> śrī-śuka uvāca\
+> iti saha vidureṇa viśva-mūrter\
+> guṇa-kathayā sudhayā plāvitorutāpaḥ\
+> kṣaṇam iva puline yamasvasus tāṁ\
 > samuṣita aupagavir niśāṁ tato 'gāt
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *iti*—thus; *saha*—along with; *vidureṇa*—Vidura; *viśva-mūrteḥ*—of the Universal Person; *guṇa-kathayā*—in the discourse of transcendental qualities; *sudhayā*—nectarean; *plāvita-uru-tāpaḥ*—overwhelmed by great affliction; *kṣaṇam*—moment; *iva*—like that; *puline*—on the bank of; *yamasvasuḥ tām*—River Yamunā; *samuṣitaḥ*—passed on; *aupagaviḥ*—the son of Aupagava (Uddhava); *niśām*—the night; *tataḥ*—thereafter; *agāt*—went away.

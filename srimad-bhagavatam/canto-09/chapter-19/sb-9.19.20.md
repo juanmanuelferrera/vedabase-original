@@ -1,11 +1,11 @@
 ### SB 9.19.20
 
-> दृष्टं श्रुतमसद्बुद्ध्वा नानुध्यायेन्न सन्दिशेत
+> दृष्टं श्रुतमसद्बुद्ध्वा नानुध्यायेन्न सन्दिशेत\
 > संसृतिं चात्मनाशं च तत्र विद्वान्स आत्मदृक ॥२०॥
 
-> dṛṣṭaṁ śrutam asad buddhvā
-> nānudhyāyen na sandiśet
-> saṁsṛtiṁ cātma-nāśaṁ ca
+> dṛṣṭaṁ śrutam asad buddhvā\
+> nānudhyāyen na sandiśet\
+> saṁsṛtiṁ cātma-nāśaṁ ca\
 > tatra vidvān sa ātma-dṛk
 
 *dṛṣṭam*—the material enjoyment we experience in our present life; *śrutam*—material enjoyment as promised to the fruitive workers for future happiness (either in this life or in the next, in the heavenly planets and so on); *asat*—all temporary and bad; *buddhvā*—knowing; *na*—not; *anudhyāyet*—one should even think of; *na*—nor; *sandiśet*—should actually enjoy; *saṁsṛtim*—prolongation of material existence; *ca*—and; *ātma-nāśam*—forgetfulness of one's own constitutional position; *ca*—as well as; *tatra*—in such a subject matter; *vidvān*—one who is completely aware; *saḥ*—such a person; *ātma-dṛk*—a self-realized soul.

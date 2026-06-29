@@ -1,9 +1,9 @@
 ### CC Madhya 22.165
 
-> প্রীত্যঙ্কুরে ‘রতি’, ‘ভাব’ — হয় দুই নাম ।
+> প্রীত্যঙ্কুরে ‘রতি’, ‘ভাব’ — হয় দুই নাম ।\
 > যাহা হৈতে বশ হন শ্রীভগবান্ ॥১৬৫॥
 
-> prīty-aṅkure 'rati', 'bhāva'—haya dui nāma
+> prīty-aṅkure 'rati', 'bhāva'—haya dui nāma\
 > yāhā haite vaśa hana śrī-bhagavān
 
 *prīti-aṅkure*—in the seed of affection; *rati*—attachment; *bhāva*—emotion; *haya*—there are; *dui nāma*—two names; *yāhā haite*—from which; *vaśa*—controlled; *hana*—is; *śrī-bhagavān*—the Supreme Personality of Godhead.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.141
 
-> ‘নির্বিশেষ’ তাঁরে কহে যেই শ্রুতিগণ ।
+> ‘নির্বিশেষ’ তাঁরে কহে যেই শ্রুতিগণ ।\
 > ‘প্রাকৃত’ নিষেধি করে ‘অপ্রাকৃত’ স্থাপন ॥১৪১॥
 
-> 'nirviśeṣa' tāṅre kahe yei śruti-gaṇa
+> 'nirviśeṣa' tāṅre kahe yei śruti-gaṇa\
 > 'prākṛta' niṣedhi kare 'aprākṛta' sthāpana
 
 *nirviśeṣa*—impersonal; *tāṅre*—a Él; *kahe*—dicen; *yei*—cualesquiera; *śruti-gaṇa*—los Vedas; *prākṛta*—mundano; *niṣedhi*—prohibiendo; *kare*—hace; *aprākṛta*—trascendental; *sthāpana*—confirmación.

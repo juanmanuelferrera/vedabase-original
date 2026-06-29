@@ -1,9 +1,9 @@
 ### CC Adi 9.26
 
-> মূলস্কন্ধের শাখা আর উপশাখাগণে ।
+> মূলস্কন্ধের শাখা আর উপশাখাগণে ।\
 > লাগিলা যে প্রেমফল, — অমৃতকে জিনে ॥২৬॥
 
-> mūla-skandhera śākhā āra upaśākhā-gaṇe
+> mūla-skandhera śākhā āra upaśākhā-gaṇe\
 > lāgilā ye prema-phala,—amṛtake jine
 
 *mūla-skandhera*—of the chief trunk; *śākhā*—branches; *āra*—and; *upaśākhā-gaṇe*—subbranches; *lāgilā*—as it grew; *ye*—that; *prema-phala*—the fruit of love; *amṛtake jine*—such a fruit conquers nectar.

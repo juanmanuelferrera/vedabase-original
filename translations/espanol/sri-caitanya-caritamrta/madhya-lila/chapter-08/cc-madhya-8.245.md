@@ -1,9 +1,9 @@
 ### CC Madhya 8.245
 
-> প্রভু কহে, — “কোন্ বিদ্যা বিদ্যা-মধ্যে সার?”
+> প্রভু কহে, — “কোন্ বিদ্যা বিদ্যা-মধ্যে সার?”\
 > রায় কহে, — “কৃষ্ণভক্তি বিনা বিদ্যা নাহি আর ৷৷” ২৪৫ ৷৷ ॥২৪৫॥
 
-> prabhu kahe,--"kon vidyā vidyā-madhye sāra?"
+> prabhu kahe,--"kon vidyā vidyā-madhye sāra?"\
 > rāya kahe,--"kṛṣṇa-bhakti vinā vidyā nāhi āra"
 
 *prabhu kahe*—el Señor preguntó; *kon*—qué; *vidyā*—conocimiento; *vidyā-madhye*—entre todos los conocimientos; *sāra*—el más importante; *rāya kahe*—Rāmānanda Rāya respondió; *kṛṣṇa-bhakti*—servicio devocional a Kṛṣṇa; *vinā*—excepto; *vidyā*—educación; *nāhi*—no hay; *āra*—ninguna otra.

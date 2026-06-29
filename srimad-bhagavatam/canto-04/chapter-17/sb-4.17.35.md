@@ -1,11 +1,11 @@
 ### SB 4.17.35
 
-> अपामुपस्थे मयि नाव्यवस्थिताः प्रजा भवानद्य रिरक्षिषुः किल ।
+> अपामुपस्थे मयि नाव्यवस्थिताः प्रजा भवानद्य रिरक्षिषुः किल ।\
 > स वीरमूर्तिः समभूद्धराधरो यो मां पयस्युग्रशरो जिघांससि ॥३५॥
 
-> apām upasthe mayi nāvy avasthitāḥ
-> prajā bhavān adya rirakṣiṣuḥ kila
-> sa vīra-mūrtiḥ samabhūd dharā-dharo
+> apām upasthe mayi nāvy avasthitāḥ\
+> prajā bhavān adya rirakṣiṣuḥ kila\
+> sa vīra-mūrtiḥ samabhūd dharā-dharo\
 > yo māṁ payasy ugra-śaro jighāṁsasi
 
 *apām*—of the water; *upasthe*—situated on the surface; *mayi*—in me; *nāvi*—in a boat; *avasthitāḥ*—standing; *prajāḥ*—living entities; *bhavān*—Yourself; *adya*—now; *rirakṣiṣuḥ*—desiring to protect; *kila*—indeed; *saḥ*—He; *vīra-mūrtiḥ*—in the form of a great hero; *samabhūt*—became; *dharā-dharaḥ*—the protector of the planet earth; *yaḥ*—one who; *mām*—me; *payasi*—for the sake of milk; *ugra-śaraḥ*—with sharpened arrows; *jighāṁsasi*—you desire to kill.

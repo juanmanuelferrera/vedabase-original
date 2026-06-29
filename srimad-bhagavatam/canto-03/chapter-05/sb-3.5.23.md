@@ -1,11 +1,11 @@
 ### SB 3.5.23
 
-> भगवानेक आसेदमग्र आत्मात्मनां विभुः ।
+> भगवानेक आसेदमग्र आत्मात्मनां विभुः ।\
 > आत्मेच्छानुगतावात्मा नानामत्युपलक्षणः ॥२३॥
 
-> bhagavān eka āsedam
-> agra ātmātmanāṁ vibhuḥ
-> ātmecchānugatāv ātmā
+> bhagavān eka āsedam\
+> agra ātmātmanāṁ vibhuḥ\
+> ātmecchānugatāv ātmā\
 > nānā-maty-upalakṣaṇaḥ
 
 *bhagavān*—the Personality of Godhead; *ekaḥ*—one without a second; *āsa*—was there; *idam*—this creation; *agre*—prior to the creation; *ātmā*—in His own form; *ātmanām*—of the living entities; *vibhuḥ*—master; *ātmā*—Self; *icchā*—desire; *anugatau*—being merged in; *ātmā*—Self; *nānā-mati*—different vision; *upalakṣaṇaḥ*—symptoms.

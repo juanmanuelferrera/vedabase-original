@@ -1,9 +1,9 @@
 ### CC Antya 8.3
 
-> জয় জয় অবধূতচন্দ্র নিত্যানন্দ ।
+> জয় জয় অবধূতচন্দ্র নিত্যানন্দ ।\
 > জগৎ বাঁধিল যেঁহ দিয়া প্রেমফাঁদ ॥৩॥
 
-> jaya jaya avadhūta-candra nityānanda
+> jaya jaya avadhūta-candra nityānanda\
 > jagat bāṅdhila yeṅha diyā prema-phāṅda
 
 *jaya jaya*—all glories; *avadhūta-candra*—to the moon of mendicants; *nityānanda*—Lord Nityānanda; *jagat*—the world; *bāṅdhila*—bound; *yeṅha*—who; *diyā*—by; *prema-phāṅda*—the noose of ecstatic love of Kṛṣṇa.

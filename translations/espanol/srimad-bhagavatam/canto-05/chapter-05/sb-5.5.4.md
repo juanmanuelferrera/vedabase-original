@@ -1,11 +1,11 @@
 ### SB 5.5.4
 
-> नूनं प्रमत्तः कुरुते विकर्म यदिन्द्रियप्रीतय आपृणोति
+> नूनं प्रमत्तः कुरुते विकर्म यदिन्द्रियप्रीतय आपृणोति\
 > न साधु मन्ये यत आत्मनोऽयमसन्नपि क्लेशद आस देहः ॥४॥
 
-> nūnaṁ pramattaḥ kurute vikarma
-> yad indriya-prītaya āpṛṇoti
-> na sādhu manye yata ātmano 'yam
+> nūnaṁ pramattaḥ kurute vikarma\
+> yad indriya-prītaya āpṛṇoti\
+> na sādhu manye yata ātmano 'yam\
 > asann api kleśada āsa dehaḥ
 
 *nūnam*—en verdad; *pramattaḥ*—loco; *kurute*—realiza; *vikarma*—actividades pecaminosas prohibidas en las Escrituras; *yat*—cuando; *indriya-prītaye*—para complacer los sentidos; *āpṛṇoti*—se ocupa; *na*—no; *sādhu*—propio; *manye*—considero; *yataḥ*—por lo cual; *ātmanaḥ*—del alma; *ayam*—esta; *asan*—que es temporal; *api*—aunque; *kleśa-daḥ*—que causa sufrimiento; *āsa*—hizo posible; *dehaḥ*—el cuerpo.

@@ -1,11 +1,11 @@
 ### SB 5.5.5
 
-> पराभवस्तावदबोधजातो यावन्न जिज्ञआसत आत्मतत्त्वम
+> पराभवस्तावदबोधजातो यावन्न जिज्ञआसत आत्मतत्त्वम\
 > यावत्क्रियास्तावदिदं मनो वै कर्मात्मकं येन शरीरबन्धः ॥५॥
 
-> parābhavas tāvad abodha-jāto
-> yāvan na jijñāsata ātma-tattvam
-> yāvat kriyās tāvad idaṁ mano vai
+> parābhavas tāvad abodha-jāto\
+> yāvan na jijñāsata ātma-tattvam\
+> yāvat kriyās tāvad idaṁ mano vai\
 > karmātmakaṁ yena śarīra-bandhaḥ
 
 *parābhavaḥ*—defeat, misery; *tāvat*—so long; *abodha-jātaḥ*—produced from ignorance; *yāvat*—as long as; *na*—not; *jijñāsate*—inquires about; *ātma-tattvam*—the truth of the self; *yāvat*—as long as; *kriyāḥ*—fruitive activities; *tāvat*—so long; *idam*—this; *manaḥ*—mind; *vai*—indeed; *karma-ātmakam*—absorbed in material activities; *yena*—by which; *śarīra-bandhaḥ*—bondage in this material body.

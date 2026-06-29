@@ -1,11 +1,11 @@
 ### SB 4.4.32
 
-> तेषामापततां वेगं निशाम्य भगवान्भृगुः ।
+> तेषामापततां वेगं निशाम्य भगवान्भृगुः ।\
 > यज्ञघ्नघ्नेन यजुषा दक्षिणाग्नौ जुहाव ह ॥३२॥
 
-> teṣām āpatatāṁ vegaṁ
-> niśāmya bhagavān bhṛguḥ
-> yajña-ghna-ghnena yajuṣā
+> teṣām āpatatāṁ vegaṁ\
+> niśāmya bhagavān bhṛguḥ\
+> yajña-ghna-ghnena yajuṣā\
 > dakṣiṇāgnau juhāva ha
 
 *teṣām*—of them; *āpatatām*—who were approaching; *vegam*—the impulse; *niśāmya*—after seeing; *bhagavān*—the possessor of all opulences; *bhṛguḥ*—Bhṛgu Muni; *yajña-ghna-ghnena*—for killing the destroyers of the *yajña*; *yajuṣā*—with hymns of the *Yajur Veda*; *dakṣiṇa-agnau*—in the southern side of the sacrificial fire; *juhāva*—offered oblations; *ha*—certainly.

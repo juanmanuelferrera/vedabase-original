@@ -1,11 +1,11 @@
 ### SB 4.20.19
 
-> भगवानथ विश्वात्मा पृथुनोपहृतार्हणः ।
+> भगवानथ विश्वात्मा पृथुनोपहृतार्हणः ।\
 > समुज्जिहानया भक्त्या गृहीतचरणाम्बुजः ॥१९॥
 
-> bhagavān atha viśvātmā
-> pṛthunopahṛtārhaṇaḥ
-> samujjihānayā bhaktyā
+> bhagavān atha viśvātmā\
+> pṛthunopahṛtārhaṇaḥ\
+> samujjihānayā bhaktyā\
 > gṛhīta-caraṇāmbujaḥ
 
 *bhagavān*—the Supreme Personality of Godhead; *atha*—thereupon; *viśva-ātmā*—the Supersoul; *pṛthunā*—by King Pṛthu; *upahṛta*—being offered; *arhaṇaḥ*—all the paraphernalia for worship; *samujjihānayā*—gradually increased; *bhaktyā*—whose devotional service; *gṛhīta*—taken; *caraṇa-ambujaḥ*—His lotus feet.

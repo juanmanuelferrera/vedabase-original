@@ -1,11 +1,11 @@
 ### SB 4.22.26
 
-> यदा रतिर्ब्रह्मणि नैष्ठिकी पुमानाचार्यवान्ज्ञानविरागरंहसा ।
+> यदा रतिर्ब्रह्मणि नैष्ठिकी पुमानाचार्यवान्ज्ञानविरागरंहसा ।\
 > दहत्यवीर्यं हृदयं जीवकोशं पञ्चात्मकं योनिमिवोत्थितोऽग्निः ॥२६॥
 
-> yadā ratir brahmaṇi naiṣṭhikī pumān
-> ācāryavān jñāna-virāga-raṁhasā
-> dahaty avīryaṁ hṛdayaṁ jīva-kośaṁ
+> yadā ratir brahmaṇi naiṣṭhikī pumān\
+> ācāryavān jñāna-virāga-raṁhasā\
+> dahaty avīryaṁ hṛdayaṁ jīva-kośaṁ\
 > pañcātmakaṁ yonim ivotthito 'gniḥ
 
 *yadā*—when; *ratiḥ*—attachment; *brahmaṇi*—in the Supreme Personality of Godhead; *naiṣṭhikī*—fixed; *pumān*—the person; *ācāryavān*—completely surrendered to the spiritual master; *jñāna*—knowledge; *virāga*—detachment; *raṁhasā*—by the force of; *dahati*—burns; *avīryam*—impotent; *hṛdayam*—within the heart; *jīva-kośam*—the covering of the spirit soul; *pañca-ātmakam*—five elements; *yonim*—source of birth; *iva*—like; *utthitaḥ*—emanating; *agniḥ*—fire.

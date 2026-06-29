@@ -1,11 +1,11 @@
 ### SB 1.14.14
 
-> मृत्युदूतः कपोतोऽयमुलूकः कम्पयन्मनः ।
+> मृत्युदूतः कपोतोऽयमुलूकः कम्पयन्मनः ।\
 > प्रत्युलूकश्च कुह्वानैर्विश्वं वै शून्यमिच्छतः ॥१४॥
 
-> mṛtyu-dūtaḥ kapoto 'yam
-> ulūkaḥ kampayan manaḥ
-> pratyulūkaś ca kuhvānair
+> mṛtyu-dūtaḥ kapoto 'yam\
+> ulūkaḥ kampayan manaḥ\
+> pratyulūkaś ca kuhvānair\
 > viśvaṁ vai śūnyam icchataḥ
 
 *mṛtyu*—muerte; *dūtaḥ*—mensajero de; *kapotaḥ*—paloma; *ayam*—esta; *ulūkaḥ*—búho; *kampayan*—temblor; *manaḥ*—mente; *pratyulūkaḥ*—los rivales de los búhos (los cuervos); *ca*—y; *kuhvānaiḥ*—alarido estridente; *viśvam*—el cosmos; *vai*—o; *śūnyam*—vacío; *icchataḥ*—deseando.

@@ -1,11 +1,11 @@
 ### SB 8.10.4
 
-> ततः सुरगणाः सर्वे सुधया पीतयैधिताः
+> ततः सुरगणाः सर्वे सुधया पीतयैधिताः\
 > प्रतिसंयुयुधुः शस्त्रैर्नारायणपदाश्रयाः ॥४॥
 
-> tataḥ sura-gaṇāḥ sarve
-> sudhayā pītayaidhitāḥ
-> pratisaṁyuyudhuḥ śastrair
+> tataḥ sura-gaṇāḥ sarve\
+> sudhayā pītayaidhitāḥ\
+> pratisaṁyuyudhuḥ śastrair\
 > nārāyaṇa-padāśrayāḥ
 
 *tataḥ*—thereafter; *sura-gaṇāḥ*—the demigods; *sarve*—all of them; *sudhayā*—by the nectar; *pītayā*—which had been drunk; *edhitāḥ*—being enlivened by such drinking; *pratisaṁyuyudhuḥ*—they counterattacked the demons; *śastraiḥ*—by regular weapons; *nārāyaṇa-pada-āśrayāḥ*—their real weapon being shelter at the lotus feet of Nārāyaṇa.

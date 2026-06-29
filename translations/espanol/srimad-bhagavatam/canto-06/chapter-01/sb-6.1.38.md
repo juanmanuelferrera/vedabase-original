@@ -1,13 +1,13 @@
 ### SB 6.1.38
 
-> श्रीविष्णुदूता ऊचुः
-> यूयं वै धर्मराजस्य यदि निर्देशकारिणः
+> श्रीविष्णुदूता ऊचुः\
+> यूयं वै धर्मराजस्य यदि निर्देशकारिणः\
 > ब्रूत धर्मस्य नस्तत्त्वं यच्चाधर्मस्य लक्षणम ॥३८॥
 
-> śrī-viṣṇudūtā ūcuḥ
-> yūyaṁ vai dharma-rājasya
-> yadi nirdeśa-kāriṇaḥ
-> brūta dharmasya nas tattvaṁ
+> śrī-viṣṇudūtā ūcuḥ\
+> yūyaṁ vai dharma-rājasya\
+> yadi nirdeśa-kāriṇaḥ\
+> brūta dharmasya nas tattvaṁ\
 > yac cādharmasya lakṣaṇam
 
 *śrī-viṣṇudūtāḥ ūcuḥ*—los benditos mensajeros del Señor Viṣṇu hablaron; *yūyam*—todos ustedes; *vai*—en verdad; *dharma-rājasya*—del rey Yamarāja, que conoce los principios religiosos; *yadi*—si; *nirdeśa-kāriṇaḥ*—mensajeros; *brūta*—hablen; *dharmasya*—de principios religiosos; *naḥ*—a nosotros; *tattvam*—la verdad; *yat*—la cual; *ca*—también; *adharmasya*—de actividades impías; *lakṣaṇam*—características.

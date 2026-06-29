@@ -1,9 +1,9 @@
 ### CC Adi 17.188
 
-> কাজী কহে — ইহা আমি কারে না কহিল ।
+> কাজী কহে — ইহা আমি কারে না কহিল ।\
 > সেই দিন আমার এক পিয়াদা আইল ॥১৮৮॥
 
-> kājī kahe,—ihā āmi kāre nā kahila
+> kājī kahe,—ihā āmi kāre nā kahila\
 > sei dina āmāra eka piyādā āila
 
 *kājī kahe*—the Kazi said; *ihā*—this; *āmi*—I; *kāre*—to others; *nākahila*—did not tell; *seidina*—on that day; *āmāra*—my; *eka*—one; *piyādā*—orderly; *āila*—came to see me.

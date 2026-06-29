@@ -1,11 +1,11 @@
 ### SB 4.7.24
 
-> अप्यर्वाग्वृत्तयो यस्य महि त्वात्मभुवादयः ।
+> अप्यर्वाग्वृत्तयो यस्य महि त्वात्मभुवादयः ।\
 > यथामति गृणन्ति स्म कृतानुग्रहविग्रहम् ॥२४॥
 
-> apy arvāg-vṛttayo yasya
-> mahi tv ātmabhuv-ādayaḥ
-> yathā-mati gṛṇanti sma
+> apy arvāg-vṛttayo yasya\
+> mahi tv ātmabhuv-ādayaḥ\
+> yathā-mati gṛṇanti sma\
 > kṛtānugraha-vigraham
 
 *api*—still; *arvāk-vṛttayaḥ*—beyond the mental activities; *yasya*—whose; *mahi*—glory; *tu*—but; *ātmabhū-ādayaḥ*—Brahmā, etc.; *yathā-mati*—according to their different capacities; *gṛṇanti sma*—offered prayers; *kṛta-anugraha*—manifested by His grace; *vigraham*—transcendental form.

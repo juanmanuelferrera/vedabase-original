@@ -1,11 +1,11 @@
 ### SB 4.24.61
 
-> यो माययेदं पुरुरूपयासृजद्बिभर्ति भूयः क्षपयत्यविक्रियः ।
+> यो माययेदं पुरुरूपयासृजद्बिभर्ति भूयः क्षपयत्यविक्रियः ।\
 > यद्भेदबुद्धिः सदिवात्मदुःस्थया त्वमात्मतन्त्रं भगवन्प्रतीमहि ॥६१॥
 
-> yo māyayedaṁ puru-rūpayāsṛjad
-> bibharti bhūyaḥ kṣapayaty avikriyaḥ
-> yad-bheda-buddhiḥ sad ivātma-duḥsthayā
+> yo māyayedaṁ puru-rūpayāsṛjad\
+> bibharti bhūyaḥ kṣapayaty avikriyaḥ\
+> yad-bheda-buddhiḥ sad ivātma-duḥsthayā\
 > tvam ātma-tantraṁ bhagavan pratīmahi
 
 *yaḥ*—aquel que; *māyayā*—con Su energía; *idam*—esta; *puru*—múltiple; *rūpayā*—manifestación; *asṛjat*—creada; *bibharti*—mantiene; *bhūyaḥ*—de nuevo; *kṣapayati*—aniquila; *avikriyaḥ*—sin alterarse; *yat*—ese; *bheda-buddhiḥ*—el sentido de las diferencias; *sat*—eterna; *iva*—como; *ātma-duḥsthayā*—causándose problemas; *tvam*—a Ti; *ātma-tantram*—de independencia personal completa; *bhagavan*—¡oh, Señor, Suprema Personalidad de Dios!; *pratīmahi*—puedo entender.

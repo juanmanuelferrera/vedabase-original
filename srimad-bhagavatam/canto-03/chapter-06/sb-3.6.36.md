@@ -1,11 +1,11 @@
 ### SB 3.6.36
 
-> तथापि कीर्तयाम्यङ्ग यथामति यथाश्रुतम् ।
+> तथापि कीर्तयाम्यङ्ग यथामति यथाश्रुतम् ।\
 > कीर्तिं हरेः स्वां सत्कर्तुं गिरमन्याभिधासतीम् ॥३६॥
 
-> tathāpi kīrtayāmy aṅga
-> yathā-mati yathā-śrutam
-> kīrtiṁ hareḥ svāṁ sat-kartuṁ
+> tathāpi kīrtayāmy aṅga\
+> yathā-mati yathā-śrutam\
+> kīrtiṁ hareḥ svāṁ sat-kartuṁ\
 > giram anyābhidhāsatīm
 
 *tathā*—therefore; *api*—although it is so; *kīrtayāmi*—I do describe; *aṅga*—O Vidura; *yathā*—as much as; *mati*—intelligence; *yathā*—as much as; *śrutam*—heard; *kīrtim*—glories; *hareḥ*—of the Lord; *svām*—own; *sat-kartum*—just purify; *giram*—speeches; *anyābhidhā*—otherwise; *asatīm*—unchaste.

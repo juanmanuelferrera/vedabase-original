@@ -1,11 +1,11 @@
 ### SB 6.1.10
 
-> क्वचिन्निवर्ततेऽभद्रात्क्वचिच्चरति तत्पुनः
+> क्वचिन्निवर्ततेऽभद्रात्क्वचिच्चरति तत्पुनः\
 > प्रायश्चित्तमथोऽपार्थं मन्ये कुञ्जरशौचवत ॥१०॥
 
-> kvacin nivartate 'bhadrāt
-> kvacic carati tat punaḥ
-> prāyaścittam atho 'pārthaṁ
+> kvacin nivartate 'bhadrāt\
+> kvacic carati tat punaḥ\
+> prāyaścittam atho 'pārthaṁ\
 > manye kuñjara-śaucavat
 
 *kvacit*—a veces; *nivartate*—deja de; *abhadrāt*—de actividad pecaminosa; *kvacit*—a veces; *carati*—comete; *tat*—esa (actividad pecaminosa); *punaḥ*—de nuevo; *prāyaścittam*—el proceso de expiación; *atho*—por eso; *apārtham*—inútil; *manye*—yo considero; *kuñjara-śaucavat*—igual que el baño del elefante.

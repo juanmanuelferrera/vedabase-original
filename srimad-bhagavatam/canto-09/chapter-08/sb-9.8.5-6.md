@@ -1,18 +1,18 @@
 ### SB 9.8.5-6
 
-> सगरश्चक्रवर्त्यासीत्सागरो यत्सुतैः कृतः
-> यस्तालजङ्घान्यवनाञ्छकान्हैहयबर्बरान ॥५॥
-> नावधीद्गुरुवाक्येन चक्रे विकृतवेषिणः
+> सगरश्चक्रवर्त्यासीत्सागरो यत्सुतैः कृतः\
+> यस्तालजङ्घान्यवनाञ्छकान्हैहयबर्बरान ॥५॥\
+> नावधीद्गुरुवाक्येन चक्रे विकृतवेषिणः\
 > मुण्डान्छ्मश्रुधरान्कांश्चिन्मुक्तकेशार्धमुण्डितान ॥६॥
 
-> yas tālajaṅghān yavanāñ
-> chakān haihaya-barbarān
-> nāvadhīd guru-vākyena
+> yas tālajaṅghān yavanāñ\
+> chakān haihaya-barbarān\
+> nāvadhīd guru-vākyena\
 > cakre vikṛta-veṣiṇaḥ
 
-> muṇḍāñ chmaśru-dharān kāṁścin
-> mukta-keśārdha-muṇḍitān
-> anantar-vāsasaḥ kāṁścid
+> muṇḍāñ chmaśru-dharān kāṁścin\
+> mukta-keśārdha-muṇḍitān\
+> anantar-vāsasaḥ kāṁścid\
 > abahir-vāsaso 'parān
 
 *yaḥ*—Mahārāja Sagara who; *tālajaṅghān*—the uncivilized clan named Tālajaṅgha; *yavanān*—persons averse to the Vedic literature; *śakān*—another class of atheist; *haihaya*—the uncivilized; *barbarān*—and the Barbaras; *na*—not; *avadhīt*—did kill; *guru-vākyena*—by the order of his spiritual master; *cakre*—made them; *vikṛta-veṣiṇaḥ*—dressed awkwardly; *muṇḍān*—shaved clean; *śmaśru-dharān*—wearing mustaches; *kāṁścit*—some of them; *mukta-keśa*—loose hair; *ardha-muṇḍitān*—half-shaven; *anantaḥ-vāsasaḥ*—without underwear; *kāṁścit*—some of them; *abahiḥ-vāsasaḥ*—without covering garments; *aparān*—others.

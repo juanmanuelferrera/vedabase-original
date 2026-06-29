@@ -1,11 +1,11 @@
 ### SB 4.29.22
 
-> कालकन्या जरा साक्षाल्लोकस्तां नाभिनन्दति ।
+> कालकन्या जरा साक्षाल्लोकस्तां नाभिनन्दति ।\
 > स्वसारं जगृहे मृत्युः क्षयाय यवनेश्वरः ॥२२॥
 
-> kāla-kanyā jarā sākṣāl
-> lokas tāṁ nābhinandati
-> svasāraṁ jagṛhe mṛtyuḥ
+> kāla-kanyā jarā sākṣāl\
+> lokas tāṁ nābhinandati\
+> svasāraṁ jagṛhe mṛtyuḥ\
 > kṣayāya yavaneśvaraḥ
 
 *kāla-kanyā*—the daughter of Time; *jarā*—old age; *sākṣāt*—directly; *lokaḥ*—all living entities; *tām*—her; *na*—never; *abhinandati*—welcome; *svasāram*—as his sister; *jagṛhe*—accepted; *mṛtyuḥ*—death; *kṣayāya*—for destruction; *yavana-īśvaraḥ*—the King of the Yavanas.

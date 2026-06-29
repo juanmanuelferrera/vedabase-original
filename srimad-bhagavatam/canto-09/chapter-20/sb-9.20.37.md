@@ -1,11 +1,11 @@
 ### SB 9.20.37
 
-> तं त्यक्तुकामां ममतां भर्तुस्त्यागविशङ्किताम
+> तं त्यक्तुकामां ममतां भर्तुस्त्यागविशङ्किताम\
 > नामनिर्वाचनं तस्य श्लोकमेनं सुरा जगुः ॥३७॥
 
-> taṁ tyaktu-kāmāṁ mamatāṁ
-> bhartus tyāga-viśaṅkitām
-> nāma-nirvācanaṁ tasya
+> taṁ tyaktu-kāmāṁ mamatāṁ\
+> bhartus tyāga-viśaṅkitām\
+> nāma-nirvācanaṁ tasya\
 > ślokam enaṁ surā jaguḥ
 
 *tam*—that newly born baby; *tyaktu-kāmām*—who was trying to avoid; *mamatām*—unto Mamatā; *bhartuḥ tyāga-viśaṅkitām*—very much afraid of being forsaken by her husband because of giving birth to an illegitimate son; *nāma-nirvācanam*—a name-giving ceremony, or *nāma-karaṇa*; *tasya*—to the child; *ślokam*—verse; *enam*—this; *surāḥ*—the demigods; *jaguḥ*—enunciated.

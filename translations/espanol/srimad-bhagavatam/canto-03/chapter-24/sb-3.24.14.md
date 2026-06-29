@@ -1,11 +1,11 @@
 ### SB 3.24.14
 
-> इमा दुहितरः सत्यस्तव वत्स सुमध्यमाः ।
+> इमा दुहितरः सत्यस्तव वत्स सुमध्यमाः ।\
 > सर्गमेतं प्रभावैः स्वैर्बृंहयिष्यन्त्यनेकधा ॥१४॥
 
-> imā duhitaraḥ satyas
-> tava vatsa sumadhyamāḥ
-> sargam etaṁ prabhāvaiḥ svair
+> imā duhitaraḥ satyas\
+> tava vatsa sumadhyamāḥ\
+> sargam etaṁ prabhāvaiḥ svair\
 > bṛṁhayiṣyanty anekadhā
 
 *imāḥ*—estas; *duhitaraḥ*—hijas; *satyaḥ*—castas; *tava*—tuyas; *vatsa*—¡oh, querido hijo mío!; *su-madhyamāḥ*—de delgada cintura; *sargam*—creación; *etam*—esta; *prabhāvaiḥ*—con descendientes; *svaiḥ*—sus propios; *bṛṁhayiṣyanti*—harán aumentar; *aneka-dhā*—de diversas maneras.

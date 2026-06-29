@@ -1,18 +1,18 @@
 ### SB 4.29.39-40
 
-> यत्र भागवता राजन्साधवो विशदाशयाः ।
-> भगवद्गुणानुकथन श्रवणव्यग्रचेतसः ॥३९॥
-> तस्मिन्महन्मुखरिता मधुभिच् चरित्रपीयूषशेषसरितः परितः स्रवन्ति ।
+> यत्र भागवता राजन्साधवो विशदाशयाः ।\
+> भगवद्गुणानुकथन श्रवणव्यग्रचेतसः ॥३९॥\
+> तस्मिन्महन्मुखरिता मधुभिच् चरित्रपीयूषशेषसरितः परितः स्रवन्ति ।\
 > ता ये पिबन्त्यवितृषो नृप गाढकर्णैस्तान्न स्पृशन्त्यशनतृड्भयशोकमोहाः ॥४०॥
 
-> yatra bhāgavatā rājan
-> sādhavo viśadāśayāḥ
-> bhagavad-guṇānukathana-
+> yatra bhāgavatā rājan\
+> sādhavo viśadāśayāḥ\
+> bhagavad-guṇānukathana-\
 > śravaṇa-vyagra-cetasaḥ
 
-> tasmin mahan-mukharitā madhubhic-caritra-
-> pīyūṣa-śeṣa-saritaḥ paritaḥ sravanti
-> tā ye pibanty avitṛṣo nṛpa gāḍha-karṇais
+> tasmin mahan-mukharitā madhubhic-caritra-\
+> pīyūṣa-śeṣa-saritaḥ paritaḥ sravanti\
+> tā ye pibanty avitṛṣo nṛpa gāḍha-karṇais\
 > tān na spṛśanty aśana-tṛḍ-bhaya-śoka-mohāḥ
 
 *yatra*—donde; *bhāgavatāḥ*—grandes devotos; *rājan*—¡oh, rey!; *sādhavaḥ*—personas santas; *viśada-āśayāḥ*—de mente amplia; *bhagavat*—de la Suprema Personalidad de Dios; *guṇa*—las cualidades; *anukathana*—recitar regularmente; *śravaṇa*—escuchar; *vyagra*—ansiosos; *cetasaḥ*—cuya conciencia; *tasmin*—allí; *mahat*—de grandes personas santas; *mukharitāḥ*—que emana de las bocas; *madhu-bhit*—de quien mató al demonio Madhu; *caritra*—las actividades o la personalidad; *pīyūṣa*—de néctar; *śeṣa*—excedente; *saritaḥ*—ríos; *paritaḥ*—hacia todos los lados; *sravanti*—fluyen; *tāḥ*—todos ellos; *ye*—aquellos que; *pibanti*—beben; *avitṛṣaḥ*—sin sentirse satisfechos; *nṛpa*—¡oh, rey!; *gāḍha*—atentos; *karṇaiḥ*—con sus oídos; *tān*—a ellos; *na*—nunca; *spṛśanti*—tocan; *aśana*—hambre; *tṛṭ*—sed; *bhaya*—miedo; *śoka*—lamentación; *mohāḥ*—ilusión.

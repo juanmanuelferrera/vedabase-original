@@ -1,11 +1,11 @@
 ### SB 4.10.29
 
-> ध्रुवे प्रयुक्तामसुरैस्तां मायामतिदुस्तराम् ।
+> ध्रुवे प्रयुक्तामसुरैस्तां मायामतिदुस्तराम् ।\
 > निशम्य तस्य मुनयः शमाशंसन्समागताः ॥२९॥
 
-> dhruve prayuktām asurais
-> tāṁ māyām atidustarām
-> niśamya tasya munayaḥ
+> dhruve prayuktām asurais\
+> tāṁ māyām atidustarām\
+> niśamya tasya munayaḥ\
 > śam āśaṁsan samāgatāḥ
 
 *dhruve*—against Dhruva; *prayuktām*—inflicted; *asuraiḥ*—by the demons; *tām*—that; *māyām*—mystic power; *ati-dustarām*—very dangerous; *niśamya*—after hearing; *tasya*—his; *munayaḥ*—the great sages; *śam*—good fortune; *āśaṁsan*—giving encouragement for; *samāgatāḥ*—assembled.

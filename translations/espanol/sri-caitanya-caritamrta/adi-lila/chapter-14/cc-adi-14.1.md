@@ -1,11 +1,11 @@
 ### CC Adi 14.1
 
-> কথঞ্চন স্মৃতে যস্মিন্ দুষ্করং সুকরং ভবেৎ ।
+> কথঞ্চন স্মৃতে যস্মিন্ দুষ্করং সুকরং ভবেৎ ।\
 > বিস্মৃতে বিপরীতং স্যাৎ শ্রীচৈতন্যং নমামি তম্ ॥১॥
 
-> kathañcana smṛte yasmin
-> duṣkaraṁ sukaraṁ bhavet
-> vismṛte viparītaṁ syāt
+> kathañcana smṛte yasmin\
+> duṣkaraṁ sukaraṁ bhavet\
+> vismṛte viparītaṁ syāt\
 > śrī-caitanyaṁ namāmi tam
 
 *kathañcana*—de un modo u otro; *smṛte*—al recordar; *yasmin*—a quien; *duṣkaram*—las cosas difíciles; *sukaram*—fáciles; *bhavet*—se vuelven; *vismṛte*—al olvidarlo a Él; *viparītam*—justo lo contrario; *syāt*—ocurre; *śrī-caitanyam*—al Señor Śrī Caitanya Mahāprabhu; *namāmi*—ofrezco mis respetuosas reverencias; *tam*—a Él.

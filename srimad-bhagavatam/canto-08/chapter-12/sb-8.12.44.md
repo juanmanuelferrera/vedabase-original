@@ -1,11 +1,11 @@
 ### SB 8.12.44
 
-> यं मामपृच्छस्त्वमुपेत्य योगात्समासहस्रान्त उपारतं वै
+> यं मामपृच्छस्त्वमुपेत्य योगात्समासहस्रान्त उपारतं वै\
 > स एष साक्षात्पुरुषः पुराणो न यत्र कालो विशते न वेदः ॥४४॥
 
-> yaṁ mām apṛcchas tvam upetya yogāt
-> samā-sahasrānta upārataṁ vai
-> sa eṣa sākṣāt puruṣaḥ purāṇo
+> yaṁ mām apṛcchas tvam upetya yogāt\
+> samā-sahasrānta upārataṁ vai\
+> sa eṣa sākṣāt puruṣaḥ purāṇo\
 > na yatra kālo viśate na vedaḥ
 
 *yam*—about whom; *mām*—from me; *apṛcchaḥ*—inquired; *tvam*—you; *upetya*—coming near me; *yogāt*—from performing mystic *yoga*; *samā*—years; *sahasra-ante*—at the end of one thousand; *upāratam*—ceasing; *vai*—indeed; *saḥ*—He; *eṣaḥ*—here is; *sākṣāt*—directly; *puruṣaḥ*—the Supreme Person; *purāṇaḥ*—the original; *na*—not; *yatra*—where; *kālaḥ*—eternal time; *viśate*—can enter; *na*—nor; *vedaḥ*—the *Vedas.*

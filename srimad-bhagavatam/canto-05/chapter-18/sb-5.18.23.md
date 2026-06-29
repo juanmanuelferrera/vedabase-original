@@ -1,11 +1,11 @@
 ### SB 5.18.23
 
-> स त्वं ममाप्यच्युत शीर्ष्णि वन्दितं कराम्बुजं यत्त्वदधायि सात्वताम
+> स त्वं ममाप्यच्युत शीर्ष्णि वन्दितं कराम्बुजं यत्त्वदधायि सात्वताम\
 > बिभर्षि मां लक्ष्म वरेण्य मायया क ईश्वरस्येहितमूहितुं विभुरिति ॥२३॥
 
-> sa tvaṁ mamāpy acyuta śīrṣṇi vanditaṁ
-> karāmbujaṁ yat tvad-adhāyi sātvatām
-> bibharṣi māṁ lakṣma vareṇya māyayā
+> sa tvaṁ mamāpy acyuta śīrṣṇi vanditaṁ\
+> karāmbujaṁ yat tvad-adhāyi sātvatām\
+> bibharṣi māṁ lakṣma vareṇya māyayā\
 > ka īśvarasyehitam ūhituṁ vibhur iti
 
 *saḥ*—that; *tvam*—You; *mama*—of me; *api*—also; *acyuta*—O infallible one; *śīrṣṇi*—on the head; *vanditam*—worshiped; *kara-ambujam*—Your lotus hand; *yat*—which; *tvat*—by You; *adhāyi*—placed; *sātvatām*—on the head of the devotees; *bibharṣi*—You maintain; *mām*—me; *lakṣma*—as an insignia on Your chest; *vareṇya*—O worshipable one; *māyayā*—with deceit; *kaḥ*—who; *īśvarasya*—of the supremely powerful controller; *īhitam*—the desires; *ūhitum*—to understand by reason and argument; *vibhuḥ*—is able; *iti*—thus.

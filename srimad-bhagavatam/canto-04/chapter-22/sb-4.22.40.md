@@ -1,13 +1,13 @@
 ### SB 4.22.40
 
-> कृच्छ्रो महानिह भवार्णवमप्लवेशां
-> षड्वर्गनक्रमसुखेन तितीर्षन्ति ।
-> तत्त्वं हरेर्भगवतो भजनीयमङ्घ्रिं
+> कृच्छ्रो महानिह भवार्णवमप्लवेशां\
+> षड्वर्गनक्रमसुखेन तितीर्षन्ति ।\
+> तत्त्वं हरेर्भगवतो भजनीयमङ्घ्रिं\
 > कृत्वोडुपं व्यसनमुत्तर दुस्तरार्णम् ॥४०॥
 
-> kṛcchro mahān iha bhavārṇavam aplaveśāṁ
-> ṣaḍ-varga-nakram asukhena titīrṣanti
-> tat tvaṁ harer bhagavato bhajanīyam aṅghriṁ
+> kṛcchro mahān iha bhavārṇavam aplaveśāṁ\
+> ṣaḍ-varga-nakram asukhena titīrṣanti\
+> tat tvaṁ harer bhagavato bhajanīyam aṅghriṁ\
 > kṛtvoḍupaṁ vyasanam uttara dustarārṇam
 
 *kṛcchraḥ*—troublesome; *mahān*—very great; *iha*—here (in this life); *bhava-arṇavam*—ocean of material existence; *aplava-īśām*—of the nondevotees, who have not taken shelter of the lotus feet of the Supreme Personality of Godhead; *ṣaṭ-varga*—six senses; *nakram*—sharks; *asukhena*—with great difficulty; *titīrṣanti*—cross over; *tat*—therefore; *tvam*—you; *hareḥ*—of the Personality of Godhead; *bhagavataḥ*—of the Supreme; *bhajanīyam*—worthy of worship; *aṅghrim*—the lotus feet; *kṛtvā*—making; *uḍupam*—boat; *vyasanam*—all kinds of dangers; *uttara*—cross over; *dustara*—very difficult; *arṇam*—the ocean.

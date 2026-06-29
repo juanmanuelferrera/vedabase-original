@@ -1,9 +1,9 @@
 ### CC Antya 1.118
 
-> প্রভু কহে, — “কহ রূপ, নাটকের শ্লোক ।
+> প্রভু কহে, — “কহ রূপ, নাটকের শ্লোক ।\
 > যে শ্লোক শুনিলে লোকের যায় দুঃখ-শোক ।।” ॥ ১১৮ ॥
 
-> prabhu kahe,--"kaha rūpa, nāṭakera śloka
+> prabhu kahe,--"kaha rūpa, nāṭakera śloka\
 > ye śloka śunile lokera yāya duḥkha-śoka
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *kaha*—por favor recita; *rūpa*—Mi querido Rūpa; *nāṭakera śloka*—el verso de tu drama; *ye*—el cual; *śloka*—verso; *śunile*—al oírlo; *lokera*—de todas las personas; *yāya*—desaparece; *duḥkha-śoka*—la infelicidad y la lamentación.

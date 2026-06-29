@@ -1,9 +1,9 @@
 ### CC Adi 5.228
 
-> বৃন্দাবনে বৈসে যত বৈষ্ণব-মণ্ডল ।
+> বৃন্দাবনে বৈসে যত বৈষ্ণব-মণ্ডল ।\
 > কৃষ্ণনাম-পরায়ণ, পরম-মঙ্গল ॥২২৮॥
 
-> vṛndāvane vaise yata vaiṣṇava-maṇḍala
+> vṛndāvane vaise yata vaiṣṇava-maṇḍala\
 > kṛṣṇa-nāma-parāyaṇa, parama-maṅgala
 
 *vṛndāvane*—en Vṛndāvana; *vaise*—se encuentran; *yata*—todos; *vaiṣṇava-maṇḍala*—grupos de devotos; *kṛṣṇa-nāma-parāyaṇa*—absortos en el nombre del Señor Kṛṣṇa; *parama-maṅgala*—todoauspiciosos.

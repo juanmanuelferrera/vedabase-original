@@ -1,18 +1,18 @@
 ### SB 6.1.56-57
 
-> अयं हि श्रुतसम्पन्नः शीलवृत्तगुणालयः
-> धृतव्रतो मृदुर्दान्तः सत्यवाङ्मन्त्रविच्छुचिः ॥५६॥
-> गुर्वग्न्यतिथिवृद्धानां शुश्रूषुरनहङ्कृतः
+> अयं हि श्रुतसम्पन्नः शीलवृत्तगुणालयः\
+> धृतव्रतो मृदुर्दान्तः सत्यवाङ्मन्त्रविच्छुचिः ॥५६॥\
+> गुर्वग्न्यतिथिवृद्धानां शुश्रूषुरनहङ्कृतः\
 > सर्वभूतसुहृत्साधुर्मितवागनसूयकः ॥५७॥
 
-> ayaṁ hi śruta-sampannaḥ
-> śīla-vṛtta-guṇālayaḥ
-> dhṛta-vrato mṛdur dāntaḥ
+> ayaṁ hi śruta-sampannaḥ\
+> śīla-vṛtta-guṇālayaḥ\
+> dhṛta-vrato mṛdur dāntaḥ\
 > satya-vāṅ mantra-vic chuciḥ
 
-> gurv-agny-atithi-vṛddhānāṁ
-> śuśrūṣur anahaṅkṛtaḥ
-> sarva-bhūta-suhṛt sādhur
+> gurv-agny-atithi-vṛddhānāṁ\
+> śuśrūṣur anahaṅkṛtaḥ\
+> sarva-bhūta-suhṛt sādhur\
 > mita-vāg anasūyakaḥ
 
 *ayam*—esta persona (llamada Ajāmila); *hi*—en verdad; *śruta-sampannaḥ*—bien educado en el conocimiento védico; *śīla*—de buen carácter; *vṛtta*—buena conducta; *guṇa*—y buenas cualidades; *ālayaḥ*—el manantial; *dhṛta-vrataḥ*—firme en la práctica de los mandamientos védicos; *mṛduḥ*—muy manso; *dāntaḥ*—con perfecto control de la mente y los sentidos; *satya-vāk*—siempre veraz; *mantra-vit*—conocedor de la forma de cantar los himnos védicos; *śuciḥ*—siempre muy limpio y pulcro; *guru*—el maestro espiritual; *agni*—el dios del fuego; *atithi*—invitados; *vṛddhānām*—y de sus familiares mayores; *śuśrūṣuḥ*—ocupado en servir con sumo respeto; *anahaṅkṛtaḥ*—sin orgullo ni prestigio falso; *sarva-bhūta-suhṛt*—amistoso con todas las entidades vivientes; *sādhuḥ*—de buena conducta (nadie podía encontrar defectos en su carácter); *mita-vāk*—que procuraba no hablar de cosas inútiles; *anasūyakaḥ*—no envidioso.

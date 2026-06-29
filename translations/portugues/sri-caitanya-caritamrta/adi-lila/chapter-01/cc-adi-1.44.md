@@ -1,6 +1,6 @@
 ### CC Adi 1.44
 
-> yadyapi āmāra guru—caitanyera dāsa
+> yadyapi āmāra guru—caitanyera dāsa\
 > tathāpi jāniye āmi tāṅhāra prakāśa
 
 *yadyapi*—embora; *āmāra*—meu; *guru*—mestre espiritual; *caitanyera*—do Senhor Caitanya Mahāprabhu; *dāsa*—o servidor; *tathāpi*—ainda assim; *jāniye*—sei; *āmi*—eu; *tāṅhāra*—do Senhor; *prakāśa*—manifestação direta.

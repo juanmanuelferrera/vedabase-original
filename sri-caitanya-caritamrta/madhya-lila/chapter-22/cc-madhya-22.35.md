@@ -1,9 +1,9 @@
 ### CC Madhya 22.35
 
-> ভুক্তি-মুক্তি-সিদ্ধিকামী ‘সুবুদ্ধি’ যদি হয় ।
+> ভুক্তি-মুক্তি-সিদ্ধিকামী ‘সুবুদ্ধি’ যদি হয় ।\
 > গাঢ়-ভক্তিযোগে তবে কৃষ্ণেরে ভজয় ॥৩৫॥
 
-> bhukti-mukti-siddhi-kāmī 'subuddhi' yadi haya
+> bhukti-mukti-siddhi-kāmī 'subuddhi' yadi haya\
 > gāḍha-bhakti-yoge tabe kṛṣṇere bhajaya
 
 *bhukti*—of material enjoyment; *mukti*—of impersonal liberation; *siddhi*—of achieving mystic power; *kāmī*—desirous; *su-buddhi*—actually intelligent; *yadi*—if; *haya*—he is; *gāḍha*—deep; *bhakti-yoge*—by devotional service; *tabe*—then; *kṛṣṇere bhajaya*—worships Lord Kṛṣṇa.

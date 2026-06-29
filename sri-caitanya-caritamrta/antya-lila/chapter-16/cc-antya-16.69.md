@@ -1,9 +1,9 @@
 ### CC Antya 16.69
 
-> প্রভু কহে, — “আমি নাম জগতে লওয়াইলুঁ  ।
+> প্রভু কহে, — “আমি নাম জগতে লওয়াইলুঁ  ।\
 > স্থাবরে পর্যন্ত কৃষ্ণনাম কহাইতে ! ৬৯ ।। ইহারে নারিলুঁ কৃষ্ণনাম কহাইতে!” শুনিয়া স্বরূপগোসাঞি লাগিলা কহিতে ॥৬৯॥
 
-> prabhu kahe,—"āmi nāma jagate laoyāiluṅ
+> prabhu kahe,—"āmi nāma jagate laoyāiluṅ\
 > sthāvare paryanta kṛṣṇa-nāma kahāiluṅ
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *āmi*—I; *nāma*—the holy name; *jagate*—throughout the whole world; *laoyāiluṅ*—induced to take; *sthāvare*—the unmovable; *paryanta*—up to; *kṛṣṇa-nāma*—the holy name of Kṛṣṇa; *kahāiluṅ*—I induced to chant.

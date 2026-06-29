@@ -1,14 +1,14 @@
 ### SB 4.9.34
 
-> मयैतत्प्रार्थितं व्यर्थं चिकित्सेव गतायुषि ।
-> प्रसाद्य जगदात्मानं तपसा दुष्प्रसादनम् ।
+> मयैतत्प्रार्थितं व्यर्थं चिकित्सेव गतायुषि ।\
+> प्रसाद्य जगदात्मानं तपसा दुष्प्रसादनम् ।\
 > भवच्छिदमयाचेऽहं भवं भाग्यविवर्जितः ॥३४॥
 
-> mayaitat prārthitaṁ vyarthaṁ
-> cikitseva gatāyuṣi
-> prasādya jagad-ātmānaṁ
-> tapasā duṣprasādanam
-> bhava-cchidam ayāce 'haṁ
+> mayaitat prārthitaṁ vyarthaṁ\
+> cikitseva gatāyuṣi\
+> prasādya jagad-ātmānaṁ\
+> tapasā duṣprasādanam\
+> bhava-cchidam ayāce 'haṁ\
 > bhavaṁ bhāgya-vivarjitaḥ
 
 *mayā*—by me; *etat*—this; *prārthitam*—prayed for; *vyartham*—uselessly; *cikitsā*—treatment; *iva*—like; *gata*—has ended; *āyuṣi*—for one whose life; *prasādya*—after satisfying; *jagat-ātmānam*—the soul of the universe; *tapasā*—by austerity; *duṣprasādanam*—who is very difficult to satisfy; *bhava-chidam*—the Personality of Godhead, who can cut the chain of birth and death; *ayāce*—prayed for; *aham*—I; *bhavam*—repetition of birth and death; *bhāgya*—fortune; *vivarjitaḥ*—being without.

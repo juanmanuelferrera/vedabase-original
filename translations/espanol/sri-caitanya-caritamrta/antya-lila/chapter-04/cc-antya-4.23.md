@@ -1,9 +1,9 @@
 ### CC Antya 4.23
 
-> প্রভু লঞা বসিলা পিণ্ডার উপরে ভক্তগণ ।
+> প্রভু লঞা বসিলা পিণ্ডার উপরে ভক্তগণ ।\
 > পিণ্ডার তলে বসিলা হরিদাস সনাতন ॥২৩॥
 
-> prabhu lañā vasilā piṇḍāra upare bhakta-gaṇa
+> prabhu lañā vasilā piṇḍāra upare bhakta-gaṇa\
 > piṇḍāra tale vasilā haridāsa sanātana
 
 *prabhu lañā*—con Śrī Caitanya Mahāprabhu; *vasilā*—se sentaron; *piṇḍāra upare*—sobre la plataforma elevada; *bhakta-gaṇa*—todos los devotos; *piṇḍāra tale*—debajo de la plataforma; *vasilā*—se sentaron; *haridāsa sanātana*—Haridāsa Ṭhākura y Sanātana Gosvāmī.

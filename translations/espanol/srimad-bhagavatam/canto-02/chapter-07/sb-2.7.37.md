@@ -1,13 +1,13 @@
 ### SB 2.7.37
 
-> देवद्विषां निगमवर्त्मनि निष्ठितानां
-> पूर्भिर्मयेन विहिताभिरदृश्यतूर्भिः ।
-> लोकान्घ्नतां मतिविमोहमतिप्रलोभं
+> देवद्विषां निगमवर्त्मनि निष्ठितानां\
+> पूर्भिर्मयेन विहिताभिरदृश्यतूर्भिः ।\
+> लोकान्घ्नतां मतिविमोहमतिप्रलोभं\
 > वेषं विधाय बहु भाष्यत औपधर्म्यम् ॥३७॥
 
-> deva-dviṣāṁ nigama-vartmani niṣṭhitānāṁ
-> pūrbhir mayena vihitābhir adṛśya-tūrbhiḥ
-> lokān ghnatāṁ mati-vimoham atipralobhaṁ
+> deva-dviṣāṁ nigama-vartmani niṣṭhitānāṁ\
+> pūrbhir mayena vihitābhir adṛśya-tūrbhiḥ\
+> lokān ghnatāṁ mati-vimoham atipralobhaṁ\
 > veṣaṁ vidhāya bahu bhāṣyata aupadharmyam
 
 *deva-dviṣām*—de aquellos que tenían envidia de los devotos del Señor; *nigama*—los *Vedas*; *vartmani*—en el sendero de; *niṣṭhitānām*—de los que están bien situados; *pūrbhiḥ*—mediante cohetes; *mayena*—hechos por el gran científico Maya; *vihitābhiḥ*—hechos por; *adṛśya-tūrbhiḥ*—invisibles en el cielo; *lokān*—los diferentes planetas; *ghnatām*—de los asesinos; *mati-vimoham*—confusión de la mente; *atipralobham*—muy atractivo; *veṣam*—vestido; *vidhāya*—habiéndolo hecho; *bahu bhāṣyate*—hablará mucho; *aupadharmyam*—principios subreligiosos.

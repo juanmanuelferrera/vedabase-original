@@ -1,13 +1,13 @@
 ### CC Adi 3.89
 
-> উল্লংঘিতত্রিবিধসীমসমাতিশায়ি-
-> সম্ভাবনং তব পরিব্রঢ়িম-স্বভাবম্ ।
-> মায়াবলেন ভবতাপি নিগুহ্যমানং
+> উল্লংঘিতত্রিবিধসীমসমাতিশায়ি-\
+> সম্ভাবনং তব পরিব্রঢ়িম-স্বভাবম্ ।\
+> মায়াবলেন ভবতাপি নিগুহ্যমানং\
 > পশ্যন্তি কেচিদনিশং ত্বদনন্যভাবাঃ ॥৮৯॥
 
-> ullaṅghita-trividha-sīma-samātiśāyi-
-> sambhāvanaṁ tava parivraḍhima-svabhāvam
-> māyā-balena bhavatāpi niguhyamānaṁ
+> ullaṅghita-trividha-sīma-samātiśāyi-\
+> sambhāvanaṁ tava parivraḍhima-svabhāvam\
+> māyā-balena bhavatāpi niguhyamānaṁ\
 > paśyanti kecid aniśaṁ tvad-ananya-bhāvāḥ
 
 *ullaṅghita*—que trasciende; *tri-vidha*—tres clases; *sīma*—las limitaciones; *sama*—de igual; *atiśāyi*—y de superior; *sambhāvanam*—por la cual la idoneidad; *tava*—Tu; *parivraḍhima*—de supremacía; *svabhāvam*—la verdadera naturaleza; *māyā-balena*—por la fuerza de la energía ilusoria; *bhavatā*—Tu; *api*—aunque; *niguhyamānam*—que se oculta; *paśyanti*—ven; *kecit*—algunos; *aniśam*—siempre; *tvat*—a Ti; *ananya-bhāvāḥ*—los que están dedicados exclusivamente.

@@ -1,9 +1,9 @@
 ### CC Antya 10.143
 
-> প্রভুরে মিলাইতে তাঁরে সঙ্গেই আনিলা ।
+> প্রভুরে মিলাইতে তাঁরে সঙ্গেই আনিলা ।\
 > মিলাইলে, প্রভু তাঁর নাম ত’ পুছিলা ॥১৪৩॥
 
-> prabhure milāite tāṅre saṅgei ānilā
+> prabhure milāite tāṅre saṅgei ānilā\
 > milāile, prabhu tāṅra nāma ta' puchilā
 
 *prabhure milāite*—para presentar ante el Señor; *tāṅre*—a él, Caitanya dāsa; *saṅgei*—junto consigo; *ānilā*—trajo; *milāile*—cuando lo presentó; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅra*—su; *nāma*—nombre; *ta'*—entonces; *puchilā*—preguntó.

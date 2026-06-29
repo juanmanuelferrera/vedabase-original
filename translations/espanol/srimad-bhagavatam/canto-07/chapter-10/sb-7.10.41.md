@@ -1,11 +1,11 @@
 ### SB 7.10.41
 
-> आख्यातं सर्वमेतत्ते यन्मां त्वं परिपृष्टवान
+> आख्यातं सर्वमेतत्ते यन्मां त्वं परिपृष्टवान\
 > दमघोषसुतादीनां हरेः सात्म्यमपि द्विषाम ॥४१॥
 
-> ākhyātaṁ sarvam etat te
-> yan māṁ tvaṁ paripṛṣṭavān
-> damaghoṣa-sutādīnāṁ
+> ākhyātaṁ sarvam etat te\
+> yan māṁ tvaṁ paripṛṣṭavān\
+> damaghoṣa-sutādīnāṁ\
 > hareḥ sātmyam api dviṣām
 
 *ākhyātam*—explicado; *sarvam*—todo; *etat*—esto; *te*—a ti; *yat*—todo lo que; *mām*—a mí; *tvam*—tú; *paripṛṣṭavān*—preguntado; *damaghoṣa-suta-ādīnām*—del hijo de Damaghoṣa (Śiśupāla) y otros; *hareḥ*—del Señor; *sātmyam*—los mismos rasgos corporales; *api*—incluso; *dviṣām*—aunque eran enemigos.

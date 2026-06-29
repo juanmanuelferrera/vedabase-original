@@ -1,14 +1,14 @@
 ### CC Adi 7.95-96
 
-> এই তাঁর বাক্যে আমি দৃঢ় বিশ্বাস ধরি’ ।
-> নিরন্তর কৃষ্ণনাম সংকীর্তন করি ॥৯৫॥
-> সেই কৃষ্ণনাম কভু গাওয়ায়, নাচায় ।
+> এই তাঁর বাক্যে আমি দৃঢ় বিশ্বাস ধরি’ ।\
+> নিরন্তর কৃষ্ণনাম সংকীর্তন করি ॥৯৫॥\
+> সেই কৃষ্ণনাম কভু গাওয়ায়, নাচায় ।\
 > গাহি, নাচি নাহি আমি আপন-ইচ্ছায় ॥৯৬॥
 
-> ei tāṅra vākye āmi dṛḍha viśvāsa dhari'
+> ei tāṅra vākye āmi dṛḍha viśvāsa dhari'\
 > nirantara kṛṣṇa-nāma saṅkīrtana kari
 
-> sei kṛṣṇa-nāma kabhu gāoyāya, nācāya
+> sei kṛṣṇa-nāma kabhu gāoyāya, nācāya\
 > gāhi, nāci nāhi āmi āpana-icchāya
 
 *ei*—this; *tāṅra*—his (My spiritual master's); *vākye*—in the words of; *āmi*—I; *dṛḍha*—firm; *viśvāsa*—faith; *dhari'*—depend; *nirantara*—always; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *saṅkīrtana*—chanting; *kari*—continue; *sei*—that; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *kabhu*—sometimes; *gāoyāya*—causes Me to chant; *nācāya*—causes Me to dance; *gāhi*—by chanting; *nāci*—dancing; *nāhi*—not; *āmi*—Myself; *āpana*—own; *icchāya*—will.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.14
 
-> কোন মতে রাজা যদি মোরে ক্রুদ্ধ হয় ।
+> কোন মতে রাজা যদি মোরে ক্রুদ্ধ হয় ।\
 > তবে অব্যাহতি হয়, করিলুঁ নিশ্চয় ॥১৪॥
 
-> kona mate rājā yadi more kruddha haya
+> kona mate rājā yadi more kruddha haya\
 > tabe avyāhati haya, kariluṅ niścaya
 
 *kona mate*—somehow or other; *rājā*—the Nawab; *yadi*—if; *more*—upon me; *kruddha haya*—becomes angry; *tabe*—then; *avyāhati*—escape; *haya*—there is; *kariluṅ niścaya*—I have decided.

@@ -1,13 +1,13 @@
 ### SB 3.15.20
 
-> यत्सङ्कुलं हरिपदानतिमात्रदृष्टैर्
-> वैदूर्यमारकतहेममयैर्विमानैः ।
-> येषां बृहत्कटितटाः स्मितशोभिमुख्यः
+> यत्सङ्कुलं हरिपदानतिमात्रदृष्टैर्\
+> वैदूर्यमारकतहेममयैर्विमानैः ।\
+> येषां बृहत्कटितटाः स्मितशोभिमुख्यः\
 > कृष्णात्मनां न रज आदधुरुत्स्मयाद्यैः ॥२०॥
 
-> yat saṅkulaṁ hari-padānati-mātra-dṛṣṭair
-> vaidūrya-mārakata-hema-mayair vimānaiḥ
-> yeṣāṁ bṛhat-kaṭi-taṭāḥ smita-śobhi-mukhyaḥ
+> yat saṅkulaṁ hari-padānati-mātra-dṛṣṭair\
+> vaidūrya-mārakata-hema-mayair vimānaiḥ\
+> yeṣāṁ bṛhat-kaṭi-taṭāḥ smita-śobhi-mukhyaḥ\
 > kṛṣṇātmanāṁ na raja ādadhur utsmayādyaiḥ
 
 *yat*—that Vaikuṇṭha abode; *saṅkulam*—is pervaded; *hari-pada*—at the two lotus feet of Hari, the Supreme Personality of Godhead; *ānati*—by obeisances; *mātra*—simply; *dṛṣṭaiḥ*—are obtained; *vaidūrya*—lapis lazuli; *mārakata*—emeralds; *hema*—gold; *mayaiḥ*—made of; *vimānaiḥ*—with airplanes; *yeṣām*—of those passengers; *bṛhat*—large; *kaṭi-taṭāḥ*—hips; *smita*—smiling; *śobhi*—beautiful; *mukhyaḥ*—faces; *kṛṣṇa*—in Kṛṣṇa; *ātmanām*—whose minds are absorbed; *na*—not; *rajaḥ*—sex desire; *ādadhuḥ*—stimulate; *utsmaya-ādyaiḥ*—by intimate friendly dealings, laughing and joking.

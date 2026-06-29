@@ -1,9 +1,9 @@
 ### CC Antya 5.28
 
-> মিশ্রেরে নমস্কার করে সম্মান করিয়া  ।
+> মিশ্রেরে নমস্কার করে সম্মান করিয়া  ।\
 > নিবেদন করে কিছু বিনীত হঞা ॥২৮॥
 
-> miśrere namaskāra kare sammāna kariyā
+> miśrere namaskāra kare sammāna kariyā\
 > nivedana kare kichu vinīta hañā
 
 *miśrere*—unto Pradyumna Miśra; *namaskārakare*—offers respectful obeisances; *sammānakariyā*—with all respect; *nivedana kare*—submitted; *kichu*—something; *vinīta hañā*—with great humility.

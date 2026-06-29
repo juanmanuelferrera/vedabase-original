@@ -1,14 +1,14 @@
 ### SB 1.11.18
 
-> वारणेन्द्रं पुरस्कृत्य ब्राह्मणैः ससुमङ्गलैः ।
-> शङ्खतूर्यनिनादेन ब्रह्मघोषेण चादृताः ।
+> वारणेन्द्रं पुरस्कृत्य ब्राह्मणैः ससुमङ्गलैः ।\
+> शङ्खतूर्यनिनादेन ब्रह्मघोषेण चादृताः ।\
 > प्रत्युज्जग्मू रथैर्हृष्टाः प्रणयागतसाध्वसाः ॥१८॥
 
-> vāraṇendraṁ puraskṛtya
-> brāhmaṇaiḥ sasumaṅgalaiḥ
-> śaṅkha-tūrya-ninādena
-> brahma-ghoṣeṇa cādṛtāḥ
-> pratyujjagmū rathair hṛṣṭāḥ
+> vāraṇendraṁ puraskṛtya\
+> brāhmaṇaiḥ sasumaṅgalaiḥ\
+> śaṅkha-tūrya-ninādena\
+> brahma-ghoṣeṇa cādṛtāḥ\
+> pratyujjagmū rathair hṛṣṭāḥ\
 > praṇayāgata-sādhvasāḥ
 
 *vāraṇa-indram*—elephants on the auspicious mission; *puraskṛtya*—putting in the front; *brāhmaṇaiḥ*—by the *brāhmaṇas*; *sa-sumaṅgalaiḥ*—with all-auspicious signs; *śaṅkha*—conchshell; *tūrya*—bugle; *ninādena*—by the sound of; *brahma-ghoṣeṇa*—by chanting the hymns of the *Vedas*; *ca*—and; *ādṛtāḥ*—glorified; *prati*—towards; *ujjagmuḥ*—proceeded hurriedly; *rathaiḥ*—on the chariots; *hṛṣṭāḥ*—in cheerfulness; *praṇayāgata*—saturated with affection; *sādhvasāḥ*—all-respectful.

@@ -1,13 +1,13 @@
 ### SB 4.8.40
 
-> नारद उवाच
-> जनन्याभिहितः पन्थाः स वै निःश्रेयसस्य ते ।
+> नारद उवाच\
+> जनन्याभिहितः पन्थाः स वै निःश्रेयसस्य ते ।\
 > भगवान्वासुदेवस्तं भज तं प्रवणात्मना ॥४०॥
 
-> nārada uvāca
-> jananyābhihitaḥ panthāḥ
-> sa vai niḥśreyasasya te
-> bhagavān vāsudevas taṁ
+> nārada uvāca\
+> jananyābhihitaḥ panthāḥ\
+> sa vai niḥśreyasasya te\
+> bhagavān vāsudevas taṁ\
 > bhaja taṁ pravaṇātmanā
 
 *nāradaḥ uvāca*—el gran sabio Nārada dijo; *jananyā*—por tu madre; *abhihitaḥ*—establecido; *panthāḥ*—el sendero; *saḥ*—ese; *vai*—en verdad; *niḥśreyasasya*—el objetivo supremo de la vida; *te*—para ti; *bhagavān*—la Suprema Personalidad de Dios; *vāsudevaḥ*—Kṛṣṇa; *tam*—a Él; *bhaja*—ofrece tu servicio; *tam*—por Él; *pravaṇa-ātmanā*—absorbiendo tu mente por completo.

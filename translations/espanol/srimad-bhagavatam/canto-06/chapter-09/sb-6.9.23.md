@@ -1,11 +1,11 @@
 ### SB 6.9.23
 
-> यस्योरुशृङ्गे जगतीं स्वनावं मनुर्यथाबध्य ततार दुर्गम
+> यस्योरुशृङ्गे जगतीं स्वनावं मनुर्यथाबध्य ततार दुर्गम\
 > स एव नस्त्वाष्ट्रभयाद्दुरन्तात्त्राताश्रितान्वारिचरोऽपि नूनम ॥२३॥
 
-> yasyoru-śṛṅge jagatīṁ sva-nāvaṁ
-> manur yathābadhya tatāra durgam
-> sa eva nas tvāṣṭra-bhayād durantāt
+> yasyoru-śṛṅge jagatīṁ sva-nāvaṁ\
+> manur yathābadhya tatāra durgam\
+> sa eva nas tvāṣṭra-bhayād durantāt\
 > trātāśritān vāricaro 'pi nūnam
 
 *yasya*—de quien; *uru*—muy fuerte y alto; *śṛṅge*—en el cuerno; *jagatīm*—en la forma del mundo; *sva-nāvam*—su propio barco; *manuḥ*—Manu, el rey Satyavrata; *yathā*—tal como; *ābadhya*—atando; *tatāra*—atravesó; *durgam*—la muy difícil de atravesar (inundación); *saḥ*—Él (la Suprema Personalidad de Dios); *eva*—ciertamente; *naḥ*—nosotros; *tvāṣṭra-bhayāt*—del temor al hijo de Tvaṣṭā; *durantāt*—sin fin; *trātā*—libertador; *āśritān*—que dependen (como nosotros); *vāri-caraḥ api*—aunque tomó una forma de pez; *nūnam*—en verdad.

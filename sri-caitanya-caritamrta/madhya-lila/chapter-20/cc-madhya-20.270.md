@@ -1,13 +1,13 @@
 ### CC Madhya 20.270
 
-> প্রবর্ততে যত্র রজস্তমস্তয়োঃ
-> সত্ত্বষ্ণ মিশ্রং ন চ কালবিক্রমঃ ।
-> ন যত্র মায়া কিমুতাপরে হরে-
+> প্রবর্ততে যত্র রজস্তমস্তয়োঃ\
+> সত্ত্বষ্ণ মিশ্রং ন চ কালবিক্রমঃ ।\
+> ন যত্র মায়া কিমুতাপরে হরে-\
 > রনুব্রতা যত্র সুরাসুরার্চিতাঃ ॥২৭০॥
 
-> pravartate yatra rajas tamas tayoḥ
-> sattvaṁ ca miśraṁ na ca kāla-vikramaḥ
-> na yatra māyā kim utāpare harer
+> pravartate yatra rajas tamas tayoḥ\
+> sattvaṁ ca miśraṁ na ca kāla-vikramaḥ\
+> na yatra māyā kim utāpare harer\
 > anuvratā yatra surāsurārcitāḥ
 
 *pravartate*—exists; *yatra*—where; *rajaḥ*—the mode of passion; *tamaḥ*—the mode of ignorance; *tayoḥ*—of both of them; *sattvam ca*—and the mode of goodness; *miśram*—mixture; *na*—not; *ca*—also; *kāla-vikramaḥ*—the influence of time or annihilation; *na*—not; *yatra*—where; *māyā*—external energy; *kim*—what; *uta*—to speak; *apare*—others; *hareḥ*—of the Supreme Personality of Godhead; *anuvratāḥ*—strict followers; *yatra*—where; *sura*—by demigods; *asura*—and by demons; *arcitāḥ*—being worshiped.

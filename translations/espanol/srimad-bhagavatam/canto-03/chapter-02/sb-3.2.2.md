@@ -1,11 +1,11 @@
 ### SB 3.2.2
 
-> यः पञ्चहायनो मात्रा प्रातराशाय याचितः ।
+> यः पञ्चहायनो मात्रा प्रातराशाय याचितः ।\
 > तन्नैच्छद्रचयन्यस्य सपर्यां बाललीलया ॥२॥
 
-> yaḥ pañca-hāyano mātrā
-> prātar-āśāya yācitaḥ
-> tan naicchad racayan yasya
+> yaḥ pañca-hāyano mātrā\
+> prātar-āśāya yācitaḥ\
+> tan naicchad racayan yasya\
 > saparyāṁ bāla-līlayā
 
 *yaḥ*—aquel que; *pañca*—cinco; *hāyanaḥ*—años de edad; *mātrā*—por su madre; *prātaḥ-āśāya*—para el desayuno; *yācitaḥ*—llamado a; *tat*—eso; *na*—no; *aicchat*—le gustaba; *racayan*—jugando; *yasya*—cuyo; *saparyām*—servicio; *bāla-līlayā*—infancia.

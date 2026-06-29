@@ -1,9 +1,9 @@
 ### CC Adi 10.50
 
-> প্রতিগ্রহ নাহি করে, না লয় কার ধন ।
+> প্রতিগ্রহ নাহি করে, না লয় কার ধন ।\
 > আত্মবৃত্তি করি’ করে কুটুম্ব ভরণ ॥৫০॥
 
-> pratigraha nāhi kare, nā laya kāra dhana
+> pratigraha nāhi kare, nā laya kāra dhana\
 > ātma-vṛtti kari' kare kuṭumba bharaṇa
 
 *pratigraha nāhi kare*—he did not accept charity from anyone; *nā*—not; *laya*—take; *kāra*—anyone's; *dhana*—wealth; *ātma-vṛtti*—own profession; *kari'*—executing; *kare*—maintained; *kuṭumba*—family; *bharaṇa*—provision.

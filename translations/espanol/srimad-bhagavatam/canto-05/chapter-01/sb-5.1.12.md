@@ -1,11 +1,11 @@
 ### SB 5.1.12
 
-> न तस्य कश्चित्तपसा विद्यया वा न योगवीर्येण मनीषया वा
+> न तस्य कश्चित्तपसा विद्यया वा न योगवीर्येण मनीषया वा\
 > नैवार्थधर्मैः परतः स्वतो वा कृतं विहन्तुं तनुभृद्विभूयात ॥१२॥
 
-> na tasya kaścit tapasā vidyayā vā
-> na yoga-vīryeṇa manīṣayā vā
-> naivārtha-dharmaiḥ parataḥ svato vā
+> na tasya kaścit tapasā vidyayā vā\
+> na yoga-vīryeṇa manīṣayā vā\
+> naivārtha-dharmaiḥ parataḥ svato vā\
 > kṛtaṁ vihantuṁ tanu-bhṛd vibhūyāt
 
 *na*—nunca; *tasya*—Su; *kaścit*—nadie; *tapasā*—con austeridad; *vidyayā*—con educación; *vā*—o; *na*—nunca; *yoga*—con el poder del *yoga* místico; *vīryeṇa*—con fuerza personal; *manīṣayā*—con inteligencia; *vā*—o; *na*—nunca; *eva*—ciertamente; *artha*—con opulencia material; *dharmaiḥ*—con el poder de la religión; *parataḥ*—con ningún poder externo; *svataḥ*—con esfuerzo personal; *vā*—o; *kṛtam*—la orden; *vihantum*—evitar; *tanu-bhṛt*—la entidad viviente que ha aceptado un cuerpo material; *vibhūyāt*—puede.

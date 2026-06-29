@@ -1,14 +1,14 @@
 ### SB 3.31.9
 
-> अकल्पः स्वाङ्गचेष्टायां शकुन्त इव पञ्जरे ।
-> तत्र लब्धस्मृतिर्दैवात्कर्म जन्मशतोद्भवम् ।
+> अकल्पः स्वाङ्गचेष्टायां शकुन्त इव पञ्जरे ।\
+> तत्र लब्धस्मृतिर्दैवात्कर्म जन्मशतोद्भवम् ।\
 > स्मरन्दीर्घमनुच्छ्वासं शर्म किं नाम विन्दते ॥९॥
 
-> akalpaḥ svāṅga-ceṣṭāyāṁ
-> śakunta iva pañjare
-> tatra labdha-smṛtir daivāt
-> karma janma-śatodbhavam
-> smaran dīrgham anucchvāsaṁ
+> akalpaḥ svāṅga-ceṣṭāyāṁ\
+> śakunta iva pañjare\
+> tatra labdha-smṛtir daivāt\
+> karma janma-śatodbhavam\
+> smaran dīrgham anucchvāsaṁ\
 > śarma kiṁ nāma vindate
 
 *akalpaḥ*—unable; *sva-aṅga*—his limbs; *ceṣṭāyām*—to move; *śakuntaḥ*—a bird; *iva*—like; *pañjare*—in a cage; *tatra*—there; *labdha-smṛtiḥ*—having gained his memory; *daivāt*—by fortune; *karma*—activities; *janma-śata-udbhavam*—occurring during the last hundred births; *smaran*—remembering; *dīrgham*—for a long time; *anucchvāsam*—sighing; *śarma*—peace of mind; *kim*—what; *nāma*—then; *vindate*—can he achieve.

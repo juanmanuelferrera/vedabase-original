@@ -1,9 +1,9 @@
 ### CC Madhya 16.62
 
-> কিবা প্রার্থনা, কিবা আজ্ঞা — কেহ না বুঝিল ।
+> কিবা প্রার্থনা, কিবা আজ্ঞা — কেহ না বুঝিল ।\
 > আলিঙ্গন করি’ প্রভু তাঁরে বিদায় দিল ॥৬২॥
 
-> kibā prārthanā, kibā ājñā--keha nā bujhila
+> kibā prārthanā, kibā ājñā--keha nā bujhila\
 > āliṅgana kari' prabhu tāṅre vidāya dila
 
 *kibā*—cuál; *prārthanā*—la petición; *kibā*—cuál; *ājñā*—la orden; *keha*—nadie; *nā bujhila*—supo; *āliṅgana kari'*—abrazándole; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a Él; *vidāya dila*—le despidió.

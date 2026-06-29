@@ -1,11 +1,11 @@
 ### SB 8.21.30
 
-> यावत्तपत्यसौ गोभिर्यावदिन्दुः सहोडुभिः
+> यावत्तपत्यसौ गोभिर्यावदिन्दुः सहोडुभिः\
 > यावद्वर्षति पर्जन्यस्तावती भूरियं तव ॥३०॥
 
-> yāvat tapaty asau gobhir
-> yāvad induḥ sahoḍubhiḥ
-> yāvad varṣati parjanyas
+> yāvat tapaty asau gobhir\
+> yāvad induḥ sahoḍubhiḥ\
+> yāvad varṣati parjanyas\
 > tāvatī bhūr iyaṁ tava
 
 *yāvat*—hasta donde; *tapati*—brilla; *asau*—el Sol; *gobhiḥ*—por los rayos del Sol; *yāvat*—hasta que o hasta donde; *induḥ*—la Luna; *saha-uḍubhiḥ*—con los astros luminosos y las estrellas; *yāvat*—hasta donde; *varṣati*—derraman lluvia; *parjanyaḥ*—las nubes; *tāvatī*—en esa extensión; *bhūḥ*—tierra; *iyam*—esa; *tava*—propiedad tuya.

@@ -1,11 +1,11 @@
 ### SB 4.19.11
 
-> चरमेणाश्वमेधेन यजमाने यजुष्पतिम् ।
+> चरमेणाश्वमेधेन यजमाने यजुष्पतिम् ।\
 > वैन्ये यज्ञपशुं स्पर्धन्नपोवाह तिरोहितः ॥११॥
 
-> carameṇāśvamedhena
-> yajamāne yajuṣ-patim
-> vainye yajña-paśuṁ spardhann
+> carameṇāśvamedhena\
+> yajamāne yajuṣ-patim\
+> vainye yajña-paśuṁ spardhann\
 > apovāha tirohitaḥ
 
 *carameṇa*—en el último; *aśva-medhena*—en el sacrificio *aśvamedha*; *yajamāne*—cuando estaba celebrando el sacrificio; *yajuḥ-patim*—para satisfacción de Viṣṇu, el Señor de *yajña*; *vainye*—el hijo del rey Vena; *yajña-paśum*—el animal que iba a ser sacrificado en el *yajña*; *spardhan*—sintiendo envidia; *apovāha*—robó; *tirohitaḥ*—siendo invisible.

@@ -1,9 +1,9 @@
 ### CC Antya 8.81
 
-> যাহাঁ গুণ শত আছে, তাহা না করে গ্রহণ ।
+> যাহাঁ গুণ শত আছে, তাহা না করে গ্রহণ ।\
 > গুণমধ্যে ছলে করে দোষ-আরোপণ ॥৮১॥
 
-> yāhāṅ guṇa śata āche, tāhā nā kare grahaṇa
+> yāhāṅ guṇa śata āche, tāhā nā kare grahaṇa\
 > guṇa-madhye chale kare doṣa-āropaṇa
 
 *yāhāṅ*—where; *guṇa*—good attributes; *śata*—hundreds; *āche*—there are; *tāhā*—them; *nā kare grahaṇa*—he does not accept; *guṇa-madhye*—in such good attributes; *chale*—by tricks; *kare*—does; *doṣa-āropaṇa*—attributing faults.

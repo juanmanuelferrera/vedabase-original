@@ -1,11 +1,11 @@
 ### CC Adi 1.63
 
-> ভবদ্বিধা ভাগবতাস্তীর্থভূতাঃ স্বয়ং বিভো ।
+> ভবদ্বিধা ভাগবতাস্তীর্থভূতাঃ স্বয়ং বিভো ।\
 > তীর্থীকূর্বন্তি তীর্থানি স্বান্তঃস্থেন গদাভৃতা ॥৬৩॥
 
-> bhavad-vidhā bhāgavatās
-> tīrtha-bhūtāḥ svayaṁ vibho
-> tīrthī-kurvanti tīrthāni
+> bhavad-vidhā bhāgavatās\
+> tīrtha-bhūtāḥ svayaṁ vibho\
+> tīrthī-kurvanti tīrthāni\
 > svāntaḥ-sthena gadā-bhṛtā
 
 *bhavat*—su buena persona; *vidhāḥ*—como; *bhāgavatāḥ*—devotos; *tīrtha*—lugares sagrados de peregrinaje; *bhūtāḥ*—existentes; *svayam*—ellos mismos; *vibho*—¡oh, todopoderoso!; *tīrthī-kurvanti*—convierten en lugares sagrados de peregrinaje; *tīrthāni*—los lugares santos; *sva-antaḥ-sthena*—estando situados en sus corazones; *gadā-bhṛtā*—por la Personalidad de Dios.

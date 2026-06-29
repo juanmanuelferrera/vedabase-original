@@ -1,9 +1,9 @@
 ### CC Madhya 1.251
 
-> নিরন্তর নৃত্যগীত কীর্তন-বিলাস ।
+> নিরন্তর নৃত্যগীত কীর্তন-বিলাস ।\
 > আচণ্ডালে প্রেমভক্তি করিলা প্রকাশ ॥২৫১॥
 
-> nirantara nṛtya-gīta kīrtana-vilāsa
+> nirantara nṛtya-gīta kīrtana-vilāsa\
 > ācaṇḍāle prema-bhakti karilā prakāśa
 
 *nirantara*—sin cesar; *nṛtya-gīta*—canto y danza; *kīrtana*—del saṅkīrtana; *vilāsa*—disfrute; *ā-caṇḍāle*—a todos, incluso a la persona más baja; *prema-bhakti*—amor por Dios; *karilā*—hizo; *prakāśa*—manifestación.

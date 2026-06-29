@@ -1,11 +1,11 @@
 ### SB 8.13.32
 
-> देवहोत्रस्य तनय उपहर्ता दिवस्पतेः
+> देवहोत्रस्य तनय उपहर्ता दिवस्पतेः\
 > योगेश्वरो हरेरंशो बृहत्यां सम्भविष्यति ॥३२॥
 
-> devahotrasya tanaya
-> upahartā divaspateḥ
-> yogeśvaro harer aṁśo
+> devahotrasya tanaya\
+> upahartā divaspateḥ\
+> yogeśvaro harer aṁśo\
 > bṛhatyāṁ sambhaviṣyati
 
 *devahotrasya*—de Devahotra; *tanayaḥ*—el hijo; *upahartā*—el benefactor; *divaspateḥ*—de Divaspati, el *indra* de esa época; *yoga-īśvaraḥ*—Yogeśvara, el amo de los poderes místicos; *hareḥ aṁśaḥ*—una representación parcial de la Suprema Personalidad de Dios; *bṛhatyām*—en el vientre de Su madre, Bṛhatī; *sambhaviṣyati*—aparecerá.

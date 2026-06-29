@@ -1,18 +1,18 @@
 ### CC Adi 2.91-92
 
-> অত্র সর্গো বিসর্গশ্চ স্থানং পোষণমূতয়ঃ ।
-> মন্বন্তরেশানুকথা নিরোধো মুক্তিরাশ্রয়ঃ ॥৯১॥
-> দশমস্য বিশুদ্ধ্যর্থং নবানামিহ লক্ষণম্ ।
+> অত্র সর্গো বিসর্গশ্চ স্থানং পোষণমূতয়ঃ ।\
+> মন্বন্তরেশানুকথা নিরোধো মুক্তিরাশ্রয়ঃ ॥৯১॥\
+> দশমস্য বিশুদ্ধ্যর্থং নবানামিহ লক্ষণম্ ।\
 > বর্ণয়ন্তি মহাত্মানঃ শ্রুতেনার্থেন চাঞ্জসা ॥৯২॥
 
-> atra sargo visargaś ca
-> sthānaṁ poṣaṇam ūtayaḥ
-> manvantareśānukathā
+> atra sargo visargaś ca\
+> sthānaṁ poṣaṇam ūtayaḥ\
+> manvantareśānukathā\
 > nirodho muktir āśrayaḥ
 
-> daśamasya viśuddhy-arthaṁ
-> navānām iha lakṣaṇam
-> varṇayanti mahātmānaḥ
+> daśamasya viśuddhy-arthaṁ\
+> navānām iha lakṣaṇam\
+> varṇayanti mahātmānaḥ\
 > śrutenārthena cāñjasā
 
 *atra*—en el *Śrīmad-Bhāgavatam*; *sargaḥ*—la creación de los ingredientes del universo; *visargaḥ*—las creaciones de Brahmā; *ca*—y; *sthānam*—el mantenimiento de la creación; *poṣaṇam*—el cuidado de los devotos del Señor; *ūtayaḥ*—los estímulos para la actividad; *manu-antara*—los deberes prescritos dados por los Manus; *īśa-anukathāḥ*—una descripción de las encarnaciones del Señor; *nirodhaḥ*—el fin de la creación; *muktiḥ*—la liberación; *āśrayaḥ*—el refugio último, la Suprema Personalidad de Dios; *daśamasya*—del décimo (el *āśraya)*; *viśuddhi-artham*—con el conocimiento perfecto como finalidad; *navānām*—de los nueve; *iha*—aquí; *lakṣaṇam*—la naturaleza; *varṇayanti*—describen; *mahā-ātmānaḥ*—las grandes almas; *śrutena*—mediante oraciones; *arthena*—mediante explicaciones; *ca*—y; *añjasā*—directo.

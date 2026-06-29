@@ -1,9 +1,9 @@
 ### CC Antya 3.109
 
-> রাত্রিকালে সেই বেশ্যা সুবেশ ধরিয়া ।
+> রাত্রিকালে সেই বেশ্যা সুবেশ ধরিয়া ।\
 > হরিদাসের বাসায় গেল উল্লসিত হঞা ॥১০৯॥
 
-> rātri-kāle sei veśyā suveśa dhariyā
+> rātri-kāle sei veśyā suveśa dhariyā\
 > haridāsera vāsāya gela ullasita hañā
 
 *rātri-kāle*—por la noche; *sei*—esa; *veśyā*—prostituta; *su-veśa dhariyā*—vistiéndose muy elegantemente; *haridāsera*—de Haridāsa Ṭhākura; *vāsāya*—al lugar; *gela*—fue; *ullasita hañā*—con gran júbilo.

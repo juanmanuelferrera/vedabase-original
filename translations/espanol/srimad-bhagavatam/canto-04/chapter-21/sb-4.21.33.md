@@ -1,11 +1,11 @@
 ### SB 4.21.33
 
-> तमेव यूयं भजतात्मवृत्तिभिर्मनोवचःकायगुणैः स्वकर्मभिः ।
+> तमेव यूयं भजतात्मवृत्तिभिर्मनोवचःकायगुणैः स्वकर्मभिः ।\
 > अमायिनः कामदुघाङ्घ्रिपङ्कजं यथाधिकारावसितार्थसिद्धयः ॥३३॥
 
-> tam eva yūyaṁ bhajatātma-vṛttibhir
-> mano-vacaḥ-kāya-guṇaiḥ sva-karmabhiḥ
-> amāyinaḥ kāma-dughāṅghri-paṅkajaṁ
+> tam eva yūyaṁ bhajatātma-vṛttibhir\
+> mano-vacaḥ-kāya-guṇaiḥ sva-karmabhiḥ\
+> amāyinaḥ kāma-dughāṅghri-paṅkajaṁ\
 > yathādhikārāvasitārtha-siddhayaḥ
 
 *tam*—a Él; *eva*—ciertamente; *yūyam*—todos ustedes, súbditos; *bhajata*—adorar; *ātma*—propio; *vṛttibhiḥ*—deber prescrito; *manaḥ*—mente; *vacaḥ*—palabras; *kāya*—cuerpo; *guṇaiḥ*—con las cualidades particulares; *sva-karmabhiḥ*—con los deberes particulares; *amāyinaḥ*—sin reservas; *kāma-dugha*—cumpliendo todos los deseos; *aṅghri-paṅkajam*—los pies de loto; *yathā*—tanto como; *adhikāra*—capacidad; *avasita-artha*—plenamente convencidos del propio interés; *siddhayaḥ*—satisfacción.

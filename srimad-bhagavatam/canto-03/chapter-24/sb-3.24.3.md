@@ -1,11 +1,11 @@
 ### SB 3.24.3
 
-> धृतव्रतासि भद्रं ते दमेन नियमेन च ।
+> धृतव्रतासि भद्रं ते दमेन नियमेन च ।\
 > तपोद्रविणदानैश्च श्रद्धया चेश्वरं भज ॥३॥
 
-> dhṛta-vratāsi bhadraṁ te
-> damena niyamena ca
-> tapo-draviṇa-dānaiś ca
+> dhṛta-vratāsi bhadraṁ te\
+> damena niyamena ca\
+> tapo-draviṇa-dānaiś ca\
 > śraddhayā ceśvaraṁ bhaja
 
 *dhṛta-vratā asi*—you have undertaken sacred vows; *bhadram te*—may God bless you; *damena*—by control of the senses; *niyamena*—by religious observances; *ca*—and; *tapaḥ*—austerities; *draviṇa*—of money; *dānaiḥ*—by giving in charity; *ca*—and; *śraddhayā*—with great faith; *ca*—and; *īśvaram*—the Supreme Lord; *bhaja*—worship.

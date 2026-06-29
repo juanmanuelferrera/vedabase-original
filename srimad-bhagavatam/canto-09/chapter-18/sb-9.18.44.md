@@ -1,11 +1,11 @@
 ### SB 9.18.44
 
-> उत्तमश्चिन्तितं कुर्यात्प्रोक्तकारी तु मध्यमः
+> उत्तमश्चिन्तितं कुर्यात्प्रोक्तकारी तु मध्यमः\
 > अधमोऽश्रद्धया कुर्यादकर्तोच्चरितं पितुः ॥४४॥
 
-> uttamaś cintitaṁ kuryāt
-> prokta-kārī tu madhyamaḥ
-> adhamo 'śraddhayā kuryād
+> uttamaś cintitaṁ kuryāt\
+> prokta-kārī tu madhyamaḥ\
+> adhamo 'śraddhayā kuryād\
 > akartoccaritaṁ pituḥ
 
 *uttamaḥ*—the best; *cintitam*—considering the father's idea; *kuryāt*—acts accordingly; *prokta-kārī*—one who acts on the order of the father; *tu*—indeed; *madhyamaḥ*—mediocre; *adhamaḥ*—lower class; *aśraddhayā*—without any faith; *kuryāt*—acts; *akartā*—unwilling to do; *uccaritam*—like stool; *pituḥ*—of the father.

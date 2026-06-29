@@ -1,11 +1,11 @@
 ### SB 3.26.41
 
-> रूपमात्राद्विकुर्वाणात्तेजसो दैवचोदितात् ।
+> रूपमात्राद्विकुर्वाणात्तेजसो दैवचोदितात् ।\
 > रसमात्रमभूत्तस्मादम्भो जिह्वा रसग्रहः ॥४१॥
 
-> rūpa-mātrād vikurvāṇāt
-> tejaso daiva-coditāt
-> rasa-mātram abhūt tasmād
+> rūpa-mātrād vikurvāṇāt\
+> tejaso daiva-coditāt\
+> rasa-mātram abhūt tasmād\
 > ambho jihvā rasa-grahaḥ
 
 *rūpa-mātrāt*—which evolves from the subtle element form; *vikurvāṇāt*—undergoing transformation; *tejasaḥ*—from fire; *daiva-coditāt*—under a superior arrangement; *rasa-mātram*—the subtle element taste; *abhūt*—became manifested; *tasmāt*—from that; *ambhaḥ*—water; *jihvā*—the sense of taste; *rasa-grahaḥ*—which perceives taste.

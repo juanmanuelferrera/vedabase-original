@@ -1,11 +1,11 @@
 ### SB 4.9.33
 
-> दैवीं मायामुपाश्रित्य प्रसुप्त इव भिन्नदृक् ।
+> दैवीं मायामुपाश्रित्य प्रसुप्त इव भिन्नदृक् ।\
 > तप्ये द्वितीयेऽप्यसति भ्रातृभ्रातृव्यहृद्रुजा ॥३३॥
 
-> daivīṁ māyām upāśritya
-> prasupta iva bhinna-dṛk
-> tapye dvitīye 'py asati
+> daivīṁ māyām upāśritya\
+> prasupta iva bhinna-dṛk\
+> tapye dvitīye 'py asati\
 > bhrātṛ-bhrātṛvya-hṛd-rujā
 
 *daivīm*—of the Personality of Godhead; *māyām*—the illusory energy; *upāśritya*—taking shelter of; *prasuptaḥ*—dreaming while asleep; *iva*—like; *bhinna-dṛk*—having separated vision; *tapye*—I lamented; *dvitīye*—in the illusory energy; *api*—although; *asati*—temporary; *bhrātṛ*—brother; *bhrātṛvya*—enemy; *hṛt*—within the heart; *rujā*—by lamentation.

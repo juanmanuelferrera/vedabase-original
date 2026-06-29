@@ -1,9 +1,9 @@
 ### CC Madhya 20.222
 
-> দক্ষিণাধো হস্ত হৈতে বামাধঃ পর্যন্ত ।
+> দক্ষিণাধো হস্ত হৈতে বামাধঃ পর্যন্ত ।\
 > চক্রাদি অস্ত্রধারণ-গণনার অন্ত ॥২২২॥
 
-> dakṣiṇādho hasta haite vāmādhaḥ paryanta
+> dakṣiṇādho hasta haite vāmādhaḥ paryanta\
 > cakrādi astra-dhāraṇa-gaṇanāra anta
 
 *dakṣiṇa-adhaḥ*—la derecha inferior; *hasta*—mano; *haite*—desde; *vāma-adhaḥ*—la mano izquierda inferior; *paryanta*—hasta; *cakra-ādi*—comenzando por el disco; *astra-dhāraṇa*—de sostener las armas; *gaṇanāra*—del recuento; *anta*—el final.

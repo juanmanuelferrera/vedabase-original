@@ -1,13 +1,13 @@
 ### SB 3.15.18
 
-> पारावतान्यभृतसारसचक्रवाक
-> दात्यूहहंसशुकतित्तिरिबर्हिणां यः ।
-> कोलाहलो विरमतेऽचिरमात्रमुच्चैर्
+> पारावतान्यभृतसारसचक्रवाक\
+> दात्यूहहंसशुकतित्तिरिबर्हिणां यः ।\
+> कोलाहलो विरमतेऽचिरमात्रमुच्चैर्\
 > भृङ्गाधिपे हरिकथामिव गायमाने ॥१८॥
 
-> pārāvatānyabhṛta-sārasa-cakravāka-
-> dātyūha-haṁsa-śuka-tittiri-barhiṇāṁ yaḥ
-> kolāhalo viramate 'cira-mātram uccair
+> pārāvatānyabhṛta-sārasa-cakravāka-\
+> dātyūha-haṁsa-śuka-tittiri-barhiṇāṁ yaḥ\
+> kolāhalo viramate 'cira-mātram uccair\
 > bhṛṅgādhipe hari-kathām iva gāyamāne
 
 *pārāvata*—pigeons; *anyabhṛta*—cuckoo; *sārasa*—crane; *cakravāka*—*cakravāka*; *dātyūha*—gallinule; *haṁsa*—swan; *śuka*—parrot; *tittiri*—partridge; *barhiṇām*—of the peacock; *yaḥ*—which; *kolāhalaḥ*—tumult; *viramate*—stops; *acira-mātram*—temporarily; *uccaiḥ*—loudly; *bhṛṅga-adhipe*—king of the bumblebees; *hari-kathām*—the glories of the Lord; *iva*—as; *gāyamāne*—while singing.

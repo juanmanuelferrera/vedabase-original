@@ -1,11 +1,11 @@
 ### SB 8.10.39
 
-> शिरोभिरुद्धूतकिरीटकुण्डलैः संरम्भदृग्भिः परिदष्टदच्छदैः
+> शिरोभिरुद्धूतकिरीटकुण्डलैः संरम्भदृग्भिः परिदष्टदच्छदैः\
 > महाभुजैः साभरणैः सहायुधैः सा प्रास्तृता भूः करभोरुभिर्बभौ ॥३९॥
 
-> śirobhir uddhūta-kirīṭa-kuṇḍalaiḥ
-> saṁrambha-dṛgbhiḥ paridaṣṭa-dacchadaiḥ
-> mahā-bhujaiḥ sābharaṇaiḥ sahāyudhaiḥ
+> śirobhir uddhūta-kirīṭa-kuṇḍalaiḥ\
+> saṁrambha-dṛgbhiḥ paridaṣṭa-dacchadaiḥ\
+> mahā-bhujaiḥ sābharaṇaiḥ sahāyudhaiḥ\
 > sā prāstṛtā bhūḥ karabhorubhir babhau
 
 *śirobhiḥ*—por las cabezas; *uddhūta*—separadas, alejadas de; *kirīṭa*—con sus yelmos; *kuṇḍalaiḥ*—y pendientes; *saṁrambha-dṛgbhiḥ*—ojos mirando con ira (aunque eran cabezas separadas de sus cuerpos); *paridaṣṭa*—mordidos por los dientes; *dacchadaiḥ*—los labios; *mahā-bhujaiḥ*—con grandes brazos; *sa-ābharaṇaiḥ*—adornados con alhajas; *saha-āyudhaiḥ*—y con armas en sus manos, aunque también estas habían sido cortadas; *sā*—ese campo de batalla; *prāstṛtā*—esparcidos; *bhūḥ*—el campo de batalla; *karabha-ūrubhiḥ*—y con muslos y piernas como trompas de elefantes; *babhau*—se convirtió.

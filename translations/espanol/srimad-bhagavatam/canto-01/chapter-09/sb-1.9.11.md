@@ -1,11 +1,11 @@
 ### SB 1.9.11
 
-> पाण्डुपुत्रानुपासीनान्प्रश्रयप्रेमसङ्गतान् ।
+> पाण्डुपुत्रानुपासीनान्प्रश्रयप्रेमसङ्गतान् ।\
 > अभ्याचष्टानुरागाश्रैरन्धीभूतेन चक्षुषा ॥११॥
 
-> pāṇḍu-putrān upāsīnān
-> praśraya-prema-saṅgatān
-> abhyācaṣṭānurāgāśrair
+> pāṇḍu-putrān upāsīnān\
+> praśraya-prema-saṅgatān\
+> abhyācaṣṭānurāgāśrair\
 > andhībhūtena cakṣuṣā
 
 *pāṇḍu*—el difunto padre de Mahārāja Yudhiṣṭhira y sus hermanos; *putrān*—los hijos de; *upāsīnān*—sentados cerca en silencio; *praśraya*—estando abatidos; *prema*—con sentimientos de amor; *saṅgatān*—habiéndose reunido; *abhyācaṣṭa*—congratulado; *anurāga*—con emoción; *aśraiḥ*—mediante lágrimas de éxtasis; *andhībhūtena*—abrumado; *cakṣuṣā*—con sus ojos.

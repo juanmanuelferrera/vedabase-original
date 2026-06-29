@@ -1,9 +1,9 @@
 ### CC Antya 2.139
 
-> প্রভু হঠে পড়িয়াছে স্বতন্ত্র ঈশ্বর  ।
+> প্রভু হঠে পড়িয়াছে স্বতন্ত্র ঈশ্বর  ।\
 > কভু কৃপা করিবেন যাতে দয়ালু অন্তর ॥১৩৯॥
 
-> prabhu haṭhe paḍiyāche svatantra īśvara
+> prabhu haṭhe paḍiyāche svatantra īśvara\
 > kabhu kṛpā karibena yāte dayālu antara
 
 *prabhu*—Śrī Caitanya Mahāprabhu; *haṭhe paḍiyāche*—has taken up a persistently angry mood; *svatantra īśvara*—the independent Personality of Godhead; *kabhu*—some time; *kṛpā karibena*—He will be merciful (to you); *yāte*—because; *dayālu*—merciful; *antara*—at heart.

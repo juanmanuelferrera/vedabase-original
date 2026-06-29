@@ -1,13 +1,13 @@
 ### SB 3.15.45
 
-> पुंसां गतिं मृगयतामिह योगमार्गैर्
-> ध्यानास्पदं बहुमतं नयनाभिरामम् ।
-> पौंस्नं वपुर्दर्शयानमनन्यसिद्धैर्
+> पुंसां गतिं मृगयतामिह योगमार्गैर्\
+> ध्यानास्पदं बहुमतं नयनाभिरामम् ।\
+> पौंस्नं वपुर्दर्शयानमनन्यसिद्धैर्\
 > औत्पत्तिकैः समगृणन्युतमष्टभोगैः ॥४५॥
 
-> puṁsāṁ gatiṁ mṛgayatām iha yoga-mārgair
-> dhyānāspadaṁ bahu-mataṁ nayanābhirāmam
-> pauṁsnaṁ vapur darśayānam ananya-siddhair
+> puṁsāṁ gatiṁ mṛgayatām iha yoga-mārgair\
+> dhyānāspadaṁ bahu-mataṁ nayanābhirāmam\
+> pauṁsnaṁ vapur darśayānam ananya-siddhair\
 > autpattikaiḥ samagṛṇan yutam aṣṭa-bhogaiḥ
 
 *puṁsām*—de aquellas personas; *gatim*—liberación; *mṛgayatām*—que están buscando; *iha*—aquí, en este mundo; *yoga-mārgaiḥ*—mediante el proceso de *aṣṭāṅga-yoga*; *dhyāna-āspadam*—objeto de meditación; *bahu*—por los grandes *yogīs*; *matam*—aprobado; *nayana*—ojos; *abhirāmam*—placentero; *pauṁsnam*—humana; *vapuḥ*—forma; *darśayānam*—manifestando; *ananya*—no por otros; *siddhaiḥ*—perfeccionadas; *autpattikaiḥ*—eternamente presente; *samagṛṇan*—alabada; *yutam*—la Suprema Personalidad de Dios, que está dotada; *aṣṭa-bhogaiḥ*—con ocho tipos de logros.

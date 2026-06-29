@@ -1,11 +1,11 @@
 ### SB 6.12.22
 
-> यस्य भक्तिर्भगवति हरौ निःश्रेयसेश्वरे
+> यस्य भक्तिर्भगवति हरौ निःश्रेयसेश्वरे\
 > विक्रीडतोऽमृताम्भोधौ किं क्षुद्रैः खातकोदकैः ॥२२॥
 
-> yasya bhaktir bhagavati
-> harau niḥśreyaseśvare
-> vikrīḍato 'mṛtāmbhodhau
+> yasya bhaktir bhagavati\
+> harau niḥśreyaseśvare\
+> vikrīḍato 'mṛtāmbhodhau\
 > kiṁ kṣudraiḥ khātakodakaiḥ
 
 *yasya*—de quien; *bhaktiḥ*—servicio devocional; *bhagavati*—a la Suprema Personalidad de Dios; *harau*—el Señor Hari; *niḥśreyasa-īśvare*—el controlador de la perfección suprema de la vida, es decir, la liberación suprema; *vikrīḍataḥ*—nadar o jugar; *amṛta-ambhodhau*—en el océano de néctar; *kim*—de qué sirve; *kṣudraiḥ*—con pequeños; *khātaka-udakaiḥ*—charcos de agua.

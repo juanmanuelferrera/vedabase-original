@@ -1,11 +1,11 @@
 ### SB 1.7.7
 
-> यस्यां वै श्रूयमाणायां कृष्णे परमपूरुषे ।
+> यस्यां वै श्रूयमाणायां कृष्णे परमपूरुषे ।\
 > भक्तिरुत्पद्यते पुंसः शोकमोहभयापहा ॥७॥
 
-> yasyāṁ vai śrūyamāṇāyāṁ
-> kṛṣṇe parama-pūruṣe
-> bhaktir utpadyate puṁsaḥ
+> yasyāṁ vai śrūyamāṇāyāṁ\
+> kṛṣṇe parama-pūruṣe\
+> bhaktir utpadyate puṁsaḥ\
 > śoka-moha-bhayāpahā
 
 *yasyām*—this Vedic literature; *vai*—certainly; *śrūyamāṇāyām*—simply by giving aural reception; *kṛṣṇe*—unto Lord Kṛṣṇa; *parama*—supreme; *pūruṣe*—unto the Personality of Godhead; *bhaktiḥ*—feelings of devotional service; *utpadyate*—sprout up; *puṁsaḥ*—of the living being; *śoka*—lamentation; *moha*—illusion; *bhaya*—fearfulness; *apahā*—that which extinguishes.

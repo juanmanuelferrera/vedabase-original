@@ -8,9 +8,9 @@ But how is this living force displayed immortally? It is not displayed by man or
 
 From the ground we may see only clouds in the sky, but if we fly above the clouds we can see the sun shining. From the sky, skyscrapers and cities seem very tiny; similarly, from God's position this entire material creation is insignificant. The tendency of the conditioned living entity is to come down from the heights, where everything can be seen in perspective. God, however, does not have this tendency. The Supreme Lord is not subject to fall down into illusion (māyā), any more than the sun is subject to fall beneath the clouds. Because the Supreme Lord is not subject to illusion, He is unconditioned; because we, as finite living entities, are prone to fall into illusion, we are called conditioned. Impersonalist philosophers (Māyāvādīs) maintain that both the living entity and God Himself are under the control of māyā when they come into this material world. This may be true of the living entity, but it is not true of God, for in all instances the material energy is working under His direction. Those who consider the Supreme Lord is subject to material conditioning are called fools by Kṛṣṇa Himself in the Bhagavad-gītā (Bg. 9.11):
 
-> avajānanti māṁ mūḍhā
-> mānuṣīṁ tanum āśritam
-> paraṁ bhāvam ajānanto
+> avajānanti māṁ mūḍhā\
+> mānuṣīṁ tanum āśritam\
+> paraṁ bhāvam ajānanto\
 > mama bhūta-maheśvaram
 
 "Fools deride Me when I descend in the human form. They do not know My transcendental nature as the Supreme Lord of all that be." (Bg. 9.11)

@@ -1,9 +1,9 @@
 ### CC Adi 10.72
 
-> প্রভুর পড়ুয়া দুই, — পুরুষোত্তম, সঞ্জয় ।
+> প্রভুর পড়ুয়া দুই, — পুরুষোত্তম, সঞ্জয় ।\
 > ব্যাকরণে দুই শিষ্য — দুই মহাশয় ॥৭২॥
 
-> prabhura paḍuyā dui,—puruṣottama, sañjaya
+> prabhura paḍuyā dui,—puruṣottama, sañjaya\
 > vyākaraṇe dui śiṣya—dui mahāśaya
 
 *prabhura paḍuyā dui*—the Lord's two students; *puruṣottama*—of the name Puruṣottama; *sañjaya*—of the name Sañjaya; *vyākaraṇe*—studying grammar; *dui śiṣya*—two disciples; *dui mahāśaya*—very great personalities.

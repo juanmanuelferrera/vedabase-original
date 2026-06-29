@@ -1,11 +1,11 @@
 ### SB 6.18.72
 
-> कृत्तो मे सप्तधा गर्भ आसन्सप्त कुमारकाः
+> कृत्तो मे सप्तधा गर्भ आसन्सप्त कुमारकाः\
 > तेऽपि चैकैकशो वृक्णाः सप्तधा नापि मम्रिरे ॥७२॥
 
-> kṛtto me saptadhā garbha
-> āsan sapta kumārakāḥ
-> te 'pi caikaikaśo vṛkṇāḥ
+> kṛtto me saptadhā garbha\
+> āsan sapta kumārakāḥ\
+> te 'pi caikaikaśo vṛkṇāḥ\
 > saptadhā nāpi mamrire
 
 *kṛttaḥ*—cut; *me*—by me; *sapta-dhā*—into seven; *garbhaḥ*—the embryo; *āsan*—there came to be; *sapta*—seven; *kumārakāḥ*—babies; *te*—they; *api*—although; *ca*—also; *eka-ekaśaḥ*—each one; *vṛkṇāḥ*—cut; *sapta-dhā*—into seven; *na*—not; *api*—still; *mamrire*—died.

@@ -1,9 +1,9 @@
 ### CC Adi 14.19
 
-> সর্বলোকের করিবে ইহঁ ধারণ, পোষণ ।
+> সর্বলোকের করিবে ইহঁ ধারণ, পোষণ ।\
 > ‘বিশ্বম্ভর’ নাম ইহার, — এই ত’ কারণ ॥১৯॥
 
-> sarva-lokera karibe ihaṅ dhāraṇa, poṣaṇa
+> sarva-lokera karibe ihaṅ dhāraṇa, poṣaṇa\
 > 'viśvambhara' nāma ihāra,—ei ta' kāraṇa
 
 *sarva-lokera*—of all people; *karibe*—will do; *ihaṅ*—this child; *dhāraṇa*—protection; *poṣaṇa*—maintenance; *viśvambhara*—the name Viśvambhara; *nāma*—name; *ihāra*—His; *ei*—this; *ta'*—certainly; *kāraṇa*—the reason.

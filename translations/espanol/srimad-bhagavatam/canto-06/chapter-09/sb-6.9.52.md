@@ -1,11 +1,11 @@
 ### SB 6.9.52
 
-> स वा अधिगतो दध्यङ्ङ्अश्विभ्यां ब्रह्म निष्कलम
+> स वा अधिगतो दध्यङ्ङ्अश्विभ्यां ब्रह्म निष्कलम\
 > यद्वा अश्वशिरो नाम तयोरमरतां व्यधात ॥५२॥
 
-> sa vā adhigato dadhyaṅṅ
-> aśvibhyāṁ brahma niṣkalam
-> yad vā aśvaśiro nāma
+> sa vā adhigato dadhyaṅṅ\
+> aśvibhyāṁ brahma niṣkalam\
+> yad vā aśvaśiro nāma\
 > tayor amaratāṁ vyadhāt
 
 *saḥ*—él; *vā*—ciertamente; *adhigataḥ*—haber obtenido; *dadhya*—Dadhyañca; *aśvibhyām*—a los dos Aśvinī-kumāras; *brahma*—conocimiento espiritual; *niṣkalam*—puro; *yat vā*—mediante el cual; *aśvaśiraḥ*—Aśvaśira; *nāma*—llamado; *tayoḥ*—de los dos; *amaratām*—liberación en la propia vida; *vyadhāt*—concedida.

@@ -1,6 +1,6 @@
 ### CC Adi 1.81
 
-> svayaṁ-rūpa kṛṣṇera kāya-vyūha—tāṅra sama
+> svayaṁ-rūpa kṛṣṇera kāya-vyūha—tāṅra sama\
 > bhakta sahite haya tāṅhāra āvaraṇa
 
 *svayam-rūpa*—Sua própria forma original (Kṛṣṇa de dois braços); *kṛṣṇera*—do Senhor Kṛṣṇa; *kāya-vyūha*—expansões pessoais; *tāṅra*—com Ele; *sama*—iguais; *bhakta*—os devotos; *sahite*—associados a; *haya*—são; *tāṅhāra*—Sua; *āvaraṇa*—cobertura.

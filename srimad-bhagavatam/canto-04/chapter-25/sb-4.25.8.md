@@ -1,11 +1,11 @@
 ### SB 4.25.8
 
-> एते त्वां सम्प्रतीक्षन्ते स्मरन्तो वैशसं तव ।
+> एते त्वां सम्प्रतीक्षन्ते स्मरन्तो वैशसं तव ।\
 > सम्परेतमयःकूटैश्छिन्दन्त्युत्थितमन्यवः ॥८॥
 
-> ete tvāṁ sampratīkṣante
-> smaranto vaiśasaṁ tava
-> samparetam ayaḥ-kūṭaiś
+> ete tvāṁ sampratīkṣante\
+> smaranto vaiśasaṁ tava\
+> samparetam ayaḥ-kūṭaiś\
 > chindanty utthita-manyavaḥ
 
 *ete*—all of them; *tvām*—you; *sampratīkṣante*—are awaiting; *smarantaḥ*—remembering; *vaiśasam*—injuries; *tava*—of you; *samparetam*—after your death; *ayaḥ*—made of iron; *kūṭaiḥ*—by the horns; *chindanti*—pierce; *utthita*—enlivened; *manyavaḥ*—anger.

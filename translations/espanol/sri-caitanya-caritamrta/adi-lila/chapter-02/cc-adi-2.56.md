@@ -1,9 +1,9 @@
 ### CC Adi 2.56
 
-> সেই তিন জনের তুমি পরম আশ্রয় ।
+> সেই তিন জনের তুমি পরম আশ্রয় ।\
 > তুমি মূল নারায়ণ — ইথে কি সংশয় ॥৫৬॥
 
-> sei tina janera tumi parama āśraya
+> sei tina janera tumi parama āśraya\
 > tumi mūla nārāyaṇa--ithe ki saṁśaya
 
 *sei*—estas; *tina*—tres; *janera*—de las porciones plenarias; *tumi*—Tú; *parama*—último; *āśraya*—refugio; *tumi*—Tú; *mūla*—primordial; *nārāyaṇa*—Nārāyaṇa; *ithe*—en esto; *ki*—qué; *saṁśaya*—duda.

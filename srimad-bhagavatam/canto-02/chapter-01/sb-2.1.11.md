@@ -1,11 +1,11 @@
 ### SB 2.1.11
 
-> एतन्निर्विद्यमानानामिच्छतामकुतोभयम् ।
+> एतन्निर्विद्यमानानामिच्छतामकुतोभयम् ।\
 > योगिनां नृप निर्णीतं हरेर्नामानुकीर्तनम् ॥११॥
 
-> etan nirvidyamānānām
-> icchatām akuto-bhayam
-> yogināṁ nṛpa nirṇītaṁ
+> etan nirvidyamānānām\
+> icchatām akuto-bhayam\
+> yogināṁ nṛpa nirṇītaṁ\
 > harer nāmānukīrtanam
 
 *etat*—it is; *nirvidyamānānām*—of those who are completely free from all material desires; *icchatām*—of those who are desirous of all sorts of material enjoyment; *akutaḥ-bhayam*—free from all doubts and fear; *yoginām*—of all who are self-satisfied; *nṛpa*—O King; *nirṇītam*—decided truth; *hareḥ*—of the Lord, Śrī Kṛṣṇa; *nāma*—holy name; *anu*—after someone, always; *kīrtanam*—chanting.

@@ -1,11 +1,11 @@
 ### SB 3.5.7
 
-> क्रीडन्विधत्ते द्विजगोसुराणां क्षेमाय कर्माण्यवतारभेदैः ।
+> क्रीडन्विधत्ते द्विजगोसुराणां क्षेमाय कर्माण्यवतारभेदैः ।\
 > मनो न तृप्यत्यपि शृण्वतां नः सुश्लोकमौलेश्चरितामृतानि ॥७॥
 
-> krīḍan vidhatte dvija-go-surāṇāṁ
-> kṣemāya karmāṇy avatāra-bhedaiḥ
-> mano na tṛpyaty api śṛṇvatāṁ naḥ
+> krīḍan vidhatte dvija-go-surāṇāṁ\
+> kṣemāya karmāṇy avatāra-bhedaiḥ\
+> mano na tṛpyaty api śṛṇvatāṁ naḥ\
 > suśloka-mauleś caritāmṛtāni
 
 *krīḍan*—manifesting pastimes; *vidhatte*—He performs; *dvija*—twice-born; *go*—cows; *surāṇām*—of the demigods; *kṣemāya*—welfare; *karmāṇi*—transcendental activities; *avatāra*—incarnations; *bhedaiḥ*—differently; *manaḥ*—mind; *na*—never; *tṛpyati*—satisfies; *api*—in spite of; *śṛṇvatām*—continuously hearing; *naḥ*—our; *su-śloka*—auspicious; *mauleḥ*—of the Lord; *carita*—characteristics; *amṛtāni*—undying.

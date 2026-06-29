@@ -2,7 +2,7 @@
 
 > प्रवालवैदूर्यमृणालवर्चसः परिस्फुरत्कुण्डलमौलिमालिन ॥१२॥
 
-> pravāla-vaidūrya-mṛṇāla-varcasaḥ
+> pravāla-vaidūrya-mṛṇāla-varcasaḥ\
 > parisphurat-kuṇḍala-mauli-mālinaḥ
 
 *pravāla*—coral; *vaidūrya*—a special diamond; *mṛṇāla*—celestial lotus; *varcasaḥ*—rays; *parisphurat*—blooming; *kuṇḍala*—earring; *mauli*—heads; *mālinaḥ*—with garlands.

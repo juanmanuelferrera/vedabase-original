@@ -1,9 +1,9 @@
 ### CC Madhya 10.29
 
-> আর দিন মহাপ্রভু ভট্টাচার্যের সঙ্গে ।
+> আর দিন মহাপ্রভু ভট্টাচার্যের সঙ্গে ।\
 > জগন্নাথ দরশন কৈল মহারঙ্গে ॥২৯॥
 
-> āra dina mahāprabhu bhaṭṭācāryera saṅge
+> āra dina mahāprabhu bhaṭṭācāryera saṅge\
 > jagannātha daraśana kaila mahā-raṅge
 
 *āra dina*—the next day; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *bhaṭṭācāryera saṅge*—with Sārvabhauma Bhaṭṭācārya; *jagannātha*—of Lord Jagannātha; *daraśana*—visiting the temple; *kaila*—did; *mahā-raṅge*—with great enthusiasm.

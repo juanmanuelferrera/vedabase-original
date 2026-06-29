@@ -1,9 +1,9 @@
 ### CC Madhya 8.44
 
-> প্রভু কহে, — তুমি মহা-ভাগবতোত্তম ।
+> প্রভু কহে, — তুমি মহা-ভাগবতোত্তম ।\
 > তোমার দর্শনে সবার দ্রব হৈল মন ॥৪৪॥
 
-> prabhu kahe,—tumi mahā-bhāgavatottama
+> prabhu kahe,—tumi mahā-bhāgavatottama\
 > tomāra darśane sabāra drava haila mana
 
 *prabhu kahe*—the Lord replied; *tumi*—you; *mahā-bhāgavata-uttama*—the best of the topmost devotees; *tomāra darśane*—by seeing you; *sabāra*—of everyone; *drava*—melted; *haila*—became; *mana*—the heart.

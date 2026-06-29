@@ -1,11 +1,11 @@
 ### SB 7.7.27
 
-> एतद्द्वारो हि संसारो गुणकर्मनिबन्धनः
+> एतद्द्वारो हि संसारो गुणकर्मनिबन्धनः\
 > अज्ञआनमूलोऽपार्थोऽपि पुंसः स्वप्न इवार्प्यते ॥२७॥
 
-> etad dvāro hi saṁsāro
-> guṇa-karma-nibandhanaḥ
-> ajñāna-mūlo 'pārtho 'pi
+> etad dvāro hi saṁsāro\
+> guṇa-karma-nibandhanaḥ\
+> ajñāna-mūlo 'pārtho 'pi\
 > puṁsaḥ svapna ivārpyate
 
 *etat*—this; *dvāraḥ*—whose door; *hi*—indeed; *saṁsāraḥ*—material existence, in which one suffers threefold miseries; *guṇa-karma-nibandhanaḥ*—captivation by the three modes of material nature; *ajñāna-mūlaḥ*—whose root is ignorance; *apārthaḥ*—without factual meaning; *api*—even; *puṁsaḥ*—of the living entity; *svapnaḥ*—a dream; *iva*—like; *arpyate*—is placed.

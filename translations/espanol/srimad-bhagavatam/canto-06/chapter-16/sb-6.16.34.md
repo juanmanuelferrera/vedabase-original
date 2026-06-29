@@ -1,13 +1,13 @@
 ### SB 6.16.34
 
-> चित्रकेतुरुवाच
-> अजित जितः सममतिभिः साधुभिर्भवान्जितात्मभिर्भवता
+> चित्रकेतुरुवाच\
+> अजित जितः सममतिभिः साधुभिर्भवान्जितात्मभिर्भवता\
 > विजितास्तेऽपि च भजतामकामात्मनां य आत्मदोऽतिकरुणः ॥३४॥
 
-> citraketur uvāca
-> ajita jitaḥ sama-matibhiḥ
-> sādhubhir bhavān jitātmabhir bhavatā
-> vijitās te 'pi ca bhajatām
+> citraketur uvāca\
+> ajita jitaḥ sama-matibhiḥ\
+> sādhubhir bhavān jitātmabhir bhavatā\
+> vijitās te 'pi ca bhajatām\
 > akāmātmanāṁ ya ātmado 'ti-karuṇaḥ
 
 *citraketuḥ uvāca*—el rey Citraketu dijo; *ajita*—¡oh, mi inconquistable Señor!; *jitaḥ*—conquistado; *sama-matibhiḥ*—por personas que han conquistado la mente; *sādhubhiḥ*—los devotos; *bhavān*—Tu Señoría; *jita-ātmabhiḥ*—que han controlado perfectamente los sentidos; *bhavatā*—por Ti; *vijitāḥ*—conquistados; *te*—ellos; *api*—también; *ca*—y; *bhajatām*—para aquellos que se ocupan siempre en Tu servicio; *akāma-ātmanām*—sin estar motivados por el beneficio material; *yaḥ*—quien; *ātma-daḥ*—que Te das a Ti mismo; *ati-karuṇaḥ*—muy misericordioso.

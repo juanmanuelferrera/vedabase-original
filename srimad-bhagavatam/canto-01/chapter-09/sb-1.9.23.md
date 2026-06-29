@@ -1,11 +1,11 @@
 ### SB 1.9.23
 
-> भक्त्यावेश्य मनो यस्मिन्वाचा यन्नाम कीर्तयन् ।
+> भक्त्यावेश्य मनो यस्मिन्वाचा यन्नाम कीर्तयन् ।\
 > त्यजन्कलेवरं योगी मुच्यते कामकर्मभिः ॥२३॥
 
-> bhaktyāveśya mano yasmin
-> vācā yan-nāma kīrtayan
-> tyajan kalevaraṁ yogī
+> bhaktyāveśya mano yasmin\
+> vācā yan-nāma kīrtayan\
+> tyajan kalevaraṁ yogī\
 > mucyate kāma-karmabhiḥ
 
 *bhaktyā*—with devout attention; *āveśya*—meditating; *manaḥ*—mind; *yasmin*—in whose; *vācā*—by words; *yat*—Kṛṣṇa; *nāma*—holy name; *kīrtayan*—by chanting; *tyajan*—quitting; *kalevaram*—this material body; *yogī*—the devotee; *mucyate*—gets release; *kāma-karmabhiḥ*—from fruitive activities.

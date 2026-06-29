@@ -1,13 +1,13 @@
 ### SB 9.9.1
 
-> श्रीशुक उवाच
-> अंशुमांश्च तपस्तेपे गङ्गानयनकाम्यया
+> श्रीशुक उवाच\
+> अंशुमांश्च तपस्तेपे गङ्गानयनकाम्यया\
 > कालं महान्तं नाशक्नोत्ततः कालेन संस्थितः ॥१॥
 
-> śrī-śuka uvāca
-> aṁśumāṁś ca tapas tepe
-> gaṅgānayana-kāmyayā
-> kālaṁ mahāntaṁ nāśaknot
+> śrī-śuka uvāca\
+> aṁśumāṁś ca tapas tepe\
+> gaṅgānayana-kāmyayā\
+> kālaṁ mahāntaṁ nāśaknot\
 > tataḥ kālena saṁsthitaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *aṁśumān*—el rey llamado Aṁśumān; *ca*—también; *tapaḥ tepe*—hizo austeridades; *gaṅgā*—el Ganges; *ānayana-kāmyayā*—con el deseo de traer el Ganges al mundo material para liberar a sus antepasados; *kālam*—tiempo; *mahāntam*—durante mucho; *na*—no; *aśaknot*—tuvo éxito; *tataḥ*—a continuación; *kālena*—a su debido tiempo; *saṁsthitaḥ*—murió.

@@ -1,13 +1,13 @@
 ### SB 2.7.46
 
-> ते वै विदन्त्यतितरन्ति च देवमायां
-> स्त्रीशूद्रहूणशबरा अपि पापजीवाः ।
-> यद्यद्भुतक्रमपरायणशीलशिक्षास्
+> ते वै विदन्त्यतितरन्ति च देवमायां\
+> स्त्रीशूद्रहूणशबरा अपि पापजीवाः ।\
+> यद्यद्भुतक्रमपरायणशीलशिक्षास्\
 > तिर्यग्जना अपि किमु श्रुतधारणा ये ॥४६॥
 
-> te vai vidanty atitaranti ca deva-māyāṁ
-> strī-śūdra-hūṇa-śabarā api pāpa-jīvāḥ
-> yady adbhuta-krama-parāyaṇa-śīla-śikṣās
+> te vai vidanty atitaranti ca deva-māyāṁ\
+> strī-śūdra-hūṇa-śabarā api pāpa-jīvāḥ\
+> yady adbhuta-krama-parāyaṇa-śīla-śikṣās\
 > tiryag-janā api kim u śruta-dhāraṇā ye
 
 *te*—such persons; *vai*—undoubtedly; *vidanti*—do know; *atitaranti*—surpass; *ca*—also; *deva-māyām*—the covering energy of the Lord; *strī*—such as women; *śūdra*—the laborer class of men; *hūṇa*—the mountaineers; *śabarāḥ*—the Siberians, or those lower than the *śūdras*; *api*—although; *pāpa-jīvāḥ*—sinful living beings; *yadi*—provided; *adbhuta-krama*—one whose acts are so wonderful; *parāyaṇa*—those who are devotees; *śīla*—behavior; *śikṣāḥ*—trained by; *tiryak-janāḥ*—even those who are not human beings; *api*—also; *kim*—what; *u*—to speak of; *śruta-dhāraṇāḥ*—those who have taken to the idea of the Lord by hearing about Him; *ye*—those.

@@ -1,9 +1,9 @@
 ### CC Adi 10.96
 
-> তবে দুই ভাই তাঁরে মরিতে না দিল ।
+> তবে দুই ভাই তাঁরে মরিতে না দিল ।\
 > নিজ তৃতীয় ভাই করি’ নিকটে রাখিল ॥৯৬॥
 
-> tabe dui bhāi tāṅre marite nā dila
+> tabe dui bhāi tāṅre marite nā dila\
 > nija tṛtīya bhāi kari' nikaṭe rākhila
 
 *tabe*—en ese momento; *dui bhāi*—los dos hermanos (Śrīla Rūpa y Sanātana); *tāṅre*—a él; *marite*—morir; *nā dila*—no permitieron; *nija*—propio; *tṛtīya*—tercer; *bhāi*—hermano; *kari'*—aceptándolo como; *nikaṭe*—cerca; *rākhila*—lo mantuvieron.

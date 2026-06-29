@@ -1,9 +1,9 @@
 ### CC Madhya 15.167
 
-> ব্রহ্মাণ্ড জীবের তুমি বাঞ্ছিলে নিস্তার ।
+> ব্রহ্মাণ্ড জীবের তুমি বাঞ্ছিলে নিস্তার ।\
 > বিনা পাপ-ভোগে হবে সবার উদ্ধার ॥১৬৭॥
 
-> brahmāṇḍa jīvera tumi vāñchile nistāra
+> brahmāṇḍa jīvera tumi vāñchile nistāra\
 > vinā pāpa-bhoge habe sabāra uddhāra
 
 *brahmāṇḍa*—of the universe; *jīvera*—of all living entities; *tumi vāñchile*—if you desire; *nistāra*—deliverance; *vinā*—without; *pāpa-bhoge*—undergoing tribulations of sinful activities; *habe*—there will be; *sabāra*—everyone's; *uddhāra*—liberation.

@@ -1,14 +1,14 @@
 ### CC Madhya 6.145-146
 
-> ভগবান্ বহু হৈতে যবে কৈল মন ।
-> প্রাকৃত-শক্তিতে তবে কৈল বিলোকন ॥১৪৫॥
-> সে কালে নাহি জন্মে ‘প্রাকৃত’ মনোনয়ন ।
+> ভগবান্ বহু হৈতে যবে কৈল মন ।\
+> প্রাকৃত-শক্তিতে তবে কৈল বিলোকন ॥১৪৫॥\
+> সে কালে নাহি জন্মে ‘প্রাকৃত’ মনোনয়ন ।\
 > অতএব ‘অপ্রাকৃত’ ব্রহ্মের নেত্র-মন ॥১৪৬॥
 
-> bhagavān bahu haite yabe kaila mana
+> bhagavān bahu haite yabe kaila mana\
 > prākṛta-śaktite tabe kaila vilokana
 
-> se kāle nāhi janme 'prākṛta' mano-nayana
+> se kāle nāhi janme 'prākṛta' mano-nayana\
 > ataeva 'aprākṛta' brahmera netra-mana
 
 *bhagavān*—the Supreme Personality of Godhead; *bahu*—many; *haite*—to become; *yabe*—when; *kaila*—made; *mana*—His mind; *prākṛta*—material; *śaktite*—on the energy; *tabe*—at that time; *kaila*—did; *vilokana*—glancing; *se kāle*—at that time; *nāhi*—not; *janme*—in creation; *prākṛta*—mundane; *manaḥ-nayana*—mind and eyes; *ataeva*—therefore; *aprākṛta*—transcendental; *brahmera*—of the Absolute Truth; *netra-mana*—eyes and mind.

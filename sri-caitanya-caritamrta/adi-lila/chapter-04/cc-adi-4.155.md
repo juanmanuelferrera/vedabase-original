@@ -1,13 +1,13 @@
 ### CC Adi 4.155
 
-> অক্ষণ্বতাং ফলমিদং ন পরং বিদামঃ
-> সখ্যঃ পশূননুবিবেশয়তোর্বয়স্যৈঃ ।
-> বক্ত্রং ব্রজেশসুতয়োরনুবেণুজুষ্টং
+> অক্ষণ্বতাং ফলমিদং ন পরং বিদামঃ\
+> সখ্যঃ পশূননুবিবেশয়তোর্বয়স্যৈঃ ।\
+> বক্ত্রং ব্রজেশসুতয়োরনুবেণুজুষ্টং\
 > যৈর্বা নিপীতমনুরক্তকটাক্ষমোক্ষম্ ॥১৫৫॥
 
-> akṣaṇvatāṁ phalam idaṁ na paraṁ vidāmaḥ
-> sakhyaḥ paśūn anuviveśayator vayasyaiḥ
-> vaktraṁ vrajeśa-sutayor anuveṇu-juṣṭaṁ
+> akṣaṇvatāṁ phalam idaṁ na paraṁ vidāmaḥ\
+> sakhyaḥ paśūn anuviveśayator vayasyaiḥ\
+> vaktraṁ vrajeśa-sutayor anuveṇu-juṣṭaṁ\
 > yair vā nipītam anurakta-kaṭākṣa-mokṣam
 
 *akṣaṇvatām*—of those who have eyes; *phalam*—the fruit; *idam*—this; *na*—not; *param*—other; *vidāmaḥ*—we know; *sakhyaḥ*—O friends; *paśūn*—the cows; *anuviveśayatoḥ*—causing to enter one forest from another; *vayasyaiḥ*—with Their friends of the same age; *vaktram*—the faces; *vraja-īśa*—of Mahārāja Nanda; *sutayoḥ*—of the two sons; *anuveṇu-juṣṭam*—possessed of flutes; *yaiḥ*—by which; *vā*—or; *nipītam*—imbibed; *anurakta*—loving; *kaṭa-akṣa*—glances; *mokṣam*—giving off.

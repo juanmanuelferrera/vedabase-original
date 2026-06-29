@@ -1,11 +1,11 @@
 ### SB 1.19.18
 
-> एवं च तस्मिन्नरदेवदेवे प्रायोपविष्टे दिवि देवसङ्घाः ।
+> एवं च तस्मिन्नरदेवदेवे प्रायोपविष्टे दिवि देवसङ्घाः ।\
 > प्रशस्य भूमौ व्यकिरन्प्रसूनैर्मुदा मुहुर्दुन्दुभयश्च नेदुः ॥१८॥
 
-> evaṁ ca tasmin nara-deva-deve
-> prāyopaviṣṭe divi deva-saṅghāḥ
-> praśasya bhūmau vyakiran prasūnair
+> evaṁ ca tasmin nara-deva-deve\
+> prāyopaviṣṭe divi deva-saṅghāḥ\
+> praśasya bhūmau vyakiran prasūnair\
 > mudā muhur dundubhayaś ca neduḥ
 
 *evam*—thus; *ca*—and; *tasmin*—in that; *nara-deva-deve*—upon the King's; *prāya-upaviṣṭe*—being engaged in fasting to death; *divi*—in the sky; *deva*—demigods; *saṅghāḥ*—all of them; *praśasya*—having praised the action; *bhūmau*—on the earth; *vyakiran*—scattered; *prasūnaiḥ*—with flowers; *mudā*—in pleasure; *muhuḥ*—continually; *dundubhayaḥ*—celestial drums; *ca*—also; *neduḥ*—beaten.

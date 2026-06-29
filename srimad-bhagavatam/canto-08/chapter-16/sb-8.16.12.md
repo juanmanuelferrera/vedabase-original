@@ -1,11 +1,11 @@
 ### SB 8.16.12
 
-> अग्नयोऽतिथयो भृत्या भिक्षवो ये च लिप्सवः
+> अग्नयोऽतिथयो भृत्या भिक्षवो ये च लिप्सवः\
 > सर्वं भगवतो ब्रह्मन्ननुध्यानान्न रिष्यति ॥१२॥
 
-> agnayo 'tithayo bhṛtyā
-> bhikṣavo ye ca lipsavaḥ
-> sarvaṁ bhagavato brahmann
+> agnayo 'tithayo bhṛtyā\
+> bhikṣavo ye ca lipsavaḥ\
+> sarvaṁ bhagavato brahmann\
 > anudhyānān na riṣyati
 
 *agnayaḥ*—worshiping the fires; *atithayaḥ*—receiving the guests; *bhṛtyāḥ*—satisfying the servants; *bhikṣavaḥ*—pleasing the beggars; *ye*—all of them who; *ca*—and; *lipsavaḥ*—as they desire (are taken care of); *sarvam*—all of them; *bhagavataḥ*—of you, my lord; *brahman*—O *brāhmaṇa*; *anudhyānāt*—from always thinking; *na riṣyati*—nothing is missed (everything is properly done).

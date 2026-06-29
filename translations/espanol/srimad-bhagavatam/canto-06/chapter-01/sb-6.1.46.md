@@ -1,11 +1,11 @@
 ### SB 6.1.46
 
-> यथेह देवप्रवरास्त्रैविध्यमुपलभ्यते
+> यथेह देवप्रवरास्त्रैविध्यमुपलभ्यते\
 > भूतेषु गुणवैचित्र्यात्तथान्यत्रानुमीयते ॥४६॥
 
-> yatheha deva-pravarās
-> trai-vidhyam upalabhyate
-> bhūteṣu guṇa-vaicitryāt
+> yatheha deva-pravarās\
+> trai-vidhyam upalabhyate\
+> bhūteṣu guṇa-vaicitryāt\
 > tathānyatrānumīyate
 
 *yathā*—tal como; *iha*—en esta vida; *deva-pravarāḥ*—¡oh, los mejores entre los semidioses!; *trai-vidhyam*—tres tipos de atributos; *upalabhyate*—se obtienen; *bhūteṣu*—entre todas las entidades vivientes; *guṇa-vaicitryāt*—debido a la diversidad de la contaminación de las tres modalidades de la naturaleza; *tathā*—del mismo modo; *anyatra*—en otros lugares; *anumīyate*—se deduce.

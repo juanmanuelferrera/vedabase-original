@@ -1,11 +1,11 @@
 ### SB 3.7.16
 
-> साध्वेतद्व्याहृतं विद्वन्नात्ममायायनं हरेः ।
+> साध्वेतद्व्याहृतं विद्वन्नात्ममायायनं हरेः ।\
 > आभात्यपार्थं निर्मूलं विश्वमूलं न यद्बहिः ॥१६॥
 
-> sādhv etad vyāhṛtaṁ vidvan
-> nātma-māyāyanaṁ hareḥ
-> ābhāty apārthaṁ nirmūlaṁ
+> sādhv etad vyāhṛtaṁ vidvan\
+> nātma-māyāyanaṁ hareḥ\
+> ābhāty apārthaṁ nirmūlaṁ\
 > viśva-mūlaṁ na yad bahiḥ
 
 *sādhu*—tan buenas como deberían ser; *etat*—todas estas explicaciones; *vyāhṛtam*—habladas de esa manera; *vidvan*—¡oh, tú, el erudito!; *na*—no; *ātma*—el ser; *māyā*—energía; *ayanam*—movimiento; *hareḥ*—de la Personalidad de Dios; *ābhāti*—parece; *apārtham*—sin significado; *nirmūlam*—sin base; *viśva-mūlam*—el origen es el Supremo; *na*—no; *yat*—el cual; *bahiḥ*—afuera.

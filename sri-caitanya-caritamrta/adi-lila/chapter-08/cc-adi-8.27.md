@@ -1,9 +1,9 @@
 ### CC Adi 8.27
 
-> প্রেমের উদয়ে হয় প্রেমের বিকার ।
+> প্রেমের উদয়ে হয় প্রেমের বিকার ।\
 > স্বেদ-কম্প-পুলকাদি গদ্গদাশ্রুধার ॥২৭॥
 
-> premera udaye haya premera vikāra
+> premera udaye haya premera vikāra\
 > sveda-kampa-pulakādi gadgadāśrudhāra
 
 *premera*—of love of Godhead; *udaye*—when there is awakening; *haya*—it becomes so; *premera*—of love of Godhead; *vikāra*—transformation; *sveda*—perspiration; *kampa*—trembling; *pulaka-ādi*—throbbing of the heart; *gadgada*—faltering; *aśru-dhāra*—tears in the eyes.

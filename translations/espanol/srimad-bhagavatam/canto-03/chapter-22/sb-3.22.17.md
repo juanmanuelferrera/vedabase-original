@@ -1,11 +1,11 @@
 ### SB 3.22.17
 
-> यां हर्म्यपृष्ठे क्वणदङ्घ्रिशोभां विक्रीडतीं कन्दुकविह्वलाक्षीम् ।
+> यां हर्म्यपृष्ठे क्वणदङ्घ्रिशोभां विक्रीडतीं कन्दुकविह्वलाक्षीम् ।\
 > विश्वावसुर्न्यपतत्स्वाद्विमानाद्विलोक्य सम्मोहविमूढचेताः ॥१७॥
 
-> yāṁ harmya-pṛṣṭhe kvaṇad-aṅghri-śobhāṁ
-> vikrīḍatīṁ kanduka-vihvalākṣīm
-> viśvāvasur nyapatat svād vimānād
+> yāṁ harmya-pṛṣṭhe kvaṇad-aṅghri-śobhāṁ\
+> vikrīḍatīṁ kanduka-vihvalākṣīm\
+> viśvāvasur nyapatat svād vimānād\
 > vilokya sammoha-vimūḍha-cetāḥ
 
 *yām*—a la cual; *harmya-pṛṣṭhe*—en la azotea del palacio; *kvaṇat-aṅghri-śobhām*—de belleza realzada por los tintineantes adornos de los pies; *vikrīḍatīm*—jugando; *kanduka-vihvala-akṣīm*—con ojos confundidos, siguiendo la pelota; *viśvāvasuḥ*—Viśvāvasu; *nyapatat*—cayó; *svāt*—de su propio; *vimānāt*—del avión; *vilokya*—al ver; *sammoha-vimūḍha-cetāḥ*—cuya mente estaba aturdida.

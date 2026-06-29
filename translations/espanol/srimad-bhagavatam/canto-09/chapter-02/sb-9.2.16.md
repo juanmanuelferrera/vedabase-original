@@ -1,11 +1,11 @@
 ### SB 9.2.16
 
-> करूषान्मानवादासन्कारूषाः क्षत्रजातयः
+> करूषान्मानवादासन्कारूषाः क्षत्रजातयः\
 > उत्तरापथगोप्तारो ब्रह्मण्या धर्मवत्सलाः ॥१६॥
 
-> karūṣān mānavād āsan
-> kārūṣāḥ kṣatra-jātayaḥ
-> uttarā-patha-goptāro
+> karūṣān mānavād āsan\
+> kārūṣāḥ kṣatra-jātayaḥ\
+> uttarā-patha-goptāro\
 > brahmaṇyā dharma-vatsalāḥ
 
 *karūṣāt*—a partir de Karūṣa; *mānavāt*—del hijo de Manu; *āsan*—hubo; *kārūṣāḥ*—conocidos con el nombre de Kārūṣas; *kṣatra-jātayaḥ*—un grupo de *kṣatriyas*; *uttarā*—norte; *patha*—de la dirección; *goptāraḥ*—reyes; *brahmaṇyāḥ*—famosos protectores de la cultura brahmínica; *dharma-vatsalāḥ*—sumamente religiosos.

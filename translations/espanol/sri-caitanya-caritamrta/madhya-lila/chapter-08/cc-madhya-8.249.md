@@ -1,9 +1,9 @@
 ### CC Madhya 8.249
 
-> ‘মুক্ত-মধ্যে কোন্ জীব মুক্ত করি’ মানি?’
+> ‘মুক্ত-মধ্যে কোন্ জীব মুক্ত করি’ মানি?’\
 > ‘কৃষ্ণপ্রেম যাঁর, সেই মুক্ত-শিরোমণি ৷৷’ ২৪৯ ৷৷ ॥২৪৯॥
 
-> 'mukta-madhye kon jīva mukta kari' māni?'
+> 'mukta-madhye kon jīva mukta kari' māni?'\
 > 'kṛṣṇa-prema yāṅra, sei mukta-śiromaṇi'
 
 *mukta-madhye*—entre los liberados; *kon*—cuál; *jīva*—entidad viviente; *mukta*—liberada; *kari'*—considerando como; *māni*—aceptamos; *kṛṣṇa-prema*—aquel que ama a Kṛṣṇa; *yāṅra*—de quien; *sei*—tal persona; *mukta-śiromaṇi*—la principal de todas las almas liberadas.

@@ -1,15 +1,15 @@
 ### SB 8.17.8
 
-> श्रीअदितिरुवाच
-> यज्ञएश यज्ञअपुरुषाच्युत तीर्थपाद
-> तीर्थश्रवः श्रवणमङ्गलनामधेय
-> आपन्नलोकवृजिनोपशमोदयाद्य
+> श्रीअदितिरुवाच\
+> यज्ञएश यज्ञअपुरुषाच्युत तीर्थपाद\
+> तीर्थश्रवः श्रवणमङ्गलनामधेय\
+> आपन्नलोकवृजिनोपशमोदयाद्य\
 > शं नः कृधीश भगवन्नसि दीननाथः ॥८॥
 
-> śrī-aditir uvāca
-> yajñeśa yajña-puruṣācyuta tīrtha-pāda
-> tīrtha-śravaḥ śravaṇa-maṅgala-nāmadheya
-> āpanna-loka-vṛjinopaśamodayādya
+> śrī-aditir uvāca\
+> yajñeśa yajña-puruṣācyuta tīrtha-pāda\
+> tīrtha-śravaḥ śravaṇa-maṅgala-nāmadheya\
+> āpanna-loka-vṛjinopaśamodayādya\
 > śaṁ naḥ kṛdhīśa bhagavann asi dīna-nāthaḥ
 
 *śrī-aditiḥ uvāca*—the demigoddess Aditi said; *yajña-īśa*—O controller of all sacrificial ceremonies; *yajña-puruṣa*—the person who enjoys the benefits of all sacrifices; *acyuta*—infallible; *tīrtha-pāda*—at whose lotus feet stand all the holy places of pilgrimage; *tīrtha-śravaḥ*—celebrated as the ultimate shelter of all saintly persons; *śravaṇa*—hearing about whom; *maṅgala*—is auspicious; *nāmadheya*—to chant His name is also auspicious; *āpanna*—surrendered; *loka*—of people; *vṛjina*—dangerous material position; *upaśama*—diminishing; *udaya*—who has appeared; *ādya*—the original Personality of Godhead; *śam*—auspiciousness; *naḥ*—our; *kṛdhi*—kindly bestow upon us; *īśa*—O supreme controller; *bhagavan*—O Lord; *asi*—You are; *dīna-nāthaḥ*—the only shelter of the down-trodden.

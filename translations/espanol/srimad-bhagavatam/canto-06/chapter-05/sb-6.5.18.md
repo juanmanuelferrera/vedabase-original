@@ -1,11 +1,11 @@
 ### SB 6.5.18
 
-> ऐश्वरं शास्त्रमुत्सृज्य बन्धमोक्षानुदर्शनम
+> ऐश्वरं शास्त्रमुत्सृज्य बन्धमोक्षानुदर्शनम\
 > विविक्तपदमज्ञआय किमसत्कर्मभिर्भवेत ॥१८॥
 
-> aiśvaraṁ śāstram utsṛjya
-> bandha-mokṣānudarśanam
-> vivikta-padam ajñāya
+> aiśvaraṁ śāstram utsṛjya\
+> bandha-mokṣānudarśanam\
+> vivikta-padam ajñāya\
 > kim asat-karmabhir bhavet
 
 *aiśvaram*—que aportan la comprensión de Dios, el estado de conciencia de Kṛṣṇa; *śāstram*—las Escrituras védicas; *utsṛjya*—abandonar; *bandha*—de cautiverio; *mokṣa*—y de liberación; *anudarśanam*—que informan acerca de las vías; *vivikta-padam*—que distingue entre espíritu y materia; *ajñāya*—sin conocer; *kim asat-karmabhiḥ bhavet*—de qué pueden servir las actividades fruitivas, que son temporales.

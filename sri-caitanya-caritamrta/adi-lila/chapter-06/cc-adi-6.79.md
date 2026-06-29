@@ -1,9 +1,9 @@
 ### CC Adi 6.79
 
-> অনন্ত ব্রহ্মাণ্ডে রুদ্র — সদাশিবের অংশ ।
+> অনন্ত ব্রহ্মাণ্ডে রুদ্র — সদাশিবের অংশ ।\
 > গুণাবতার তেঁহো, সর্বদেব-অবতংস ॥৭৯॥
 
-> ananta brahmāṇḍe rudra—sadāśivera aṁśa
+> ananta brahmāṇḍe rudra—sadāśivera aṁśa\
 > guṇāvatāra teṅho, sarva-deva-avataṁsa
 
 *ananta*—unlimited; *brahmāṇḍe*—in the universes; *rudra*—Lord Śiva; *sadāśivera aṁśa*—part and parcel of Sadāśiva; *guṇa-avatāra*—an incarnation of a quality; *teṅho*—he also; *sarva-deva-avataṁsa*—the ornament of all the demigods.

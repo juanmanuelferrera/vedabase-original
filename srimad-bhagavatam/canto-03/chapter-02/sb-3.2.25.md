@@ -1,11 +1,11 @@
 ### SB 3.2.25
 
-> वसुदेवस्य देवक्यां जातो भोजेन्द्रबन्धने ।
+> वसुदेवस्य देवक्यां जातो भोजेन्द्रबन्धने ।\
 > चिकीर्षुर्भगवानस्याः शमजेनाभियाचितः ॥२५॥
 
-> vasudevasya devakyāṁ
-> jāto bhojendra-bandhane
-> cikīrṣur bhagavān asyāḥ
+> vasudevasya devakyāṁ\
+> jāto bhojendra-bandhane\
+> cikīrṣur bhagavān asyāḥ\
 > śam ajenābhiyācitaḥ
 
 *vasudevasya*—of the wife of Vasudeva; *devakyām*—in the womb of Devakī; *jātaḥ*—born of; *bhoja-indra*—of the King of the Bhojas; *bandhane*—in the prison house; *cikīrṣuḥ*—for doing; *bhagavān*—the Personality of Godhead; *asyāḥ*—of the earth; *śam*—welfare; *ajena*—by Brahmā; *abhiyācitaḥ*—being prayed for.

@@ -1,9 +1,9 @@
 ### CC Madhya 14.52
 
-> শুনি’ মহাপ্ৰভু আইলা নিজগণ লঞা ।
+> শুনি’ মহাপ্ৰভু আইলা নিজগণ লঞা ।\
 > মত্তহস্তী রথ টানে, — দেখে দাণ্ডাঞা ॥৫২॥
 
-> śuni' mahāprabhu āilā nija-gaṇa lañā
+> śuni' mahāprabhu āilā nija-gaṇa lañā\
 > matta-hastī ratha ṭāne,-dekhe dāṇḍāñā
 
 *śuni'*—after hearing; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *āilā*—came; *nija-gaṇa lañā*—with His personal devotees; *matta-hastī*—strong elephants; *ratha ṭāne*—trying to pull the car; *dekhe*—He saw; *dāṇḍāñā*—standing there.

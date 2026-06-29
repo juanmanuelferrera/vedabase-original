@@ -1,9 +1,9 @@
 ### CC Antya 5.149
 
-> তাঁহা-সহ আত্মতা একরূপ হঞা ।
+> তাঁহা-সহ আত্মতা একরূপ হঞা ।\
 > কৃষ্ণ একতত্ত্বরূপ — দুই রূপ হঞা ॥১৪৯॥
 
-> tāṅhā-saha ātmatā eka-rūpa hañā
+> tāṅhā-saha ātmatā eka-rūpa hañā\
 > kṛṣṇa eka-tattva-rūpa—dui rūpa hañā
 
 *tāṅhā-saha*—with Him; *ātmatā*—the quality of being the self; *eka-rūpa hañā*—being one form; *kṛṣṇa*—Lord Kṛṣṇa; *eka-tattva-rūpa*—one principle; *dui*—two; *rūpa*—forms; *hañā*—becoming.

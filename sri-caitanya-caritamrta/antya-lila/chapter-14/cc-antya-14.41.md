@@ -1,13 +1,13 @@
 ### CC Antya 14.41
 
-> প্রাপ্তপ্রণষ্টাচ্যুতবিত্ত আত্মা
-> যযৌ বিষাদোজ্ঝিত-দেহগেহঃ ।
-> গৃহীতকাপালিকধর্মকো মে
+> প্রাপ্তপ্রণষ্টাচ্যুতবিত্ত আত্মা\
+> যযৌ বিষাদোজ্ঝিত-দেহগেহঃ ।\
+> গৃহীতকাপালিকধর্মকো মে\
 > বৃন্দাবনং সেন্দ্রিয়শিষ্যবৃন্দঃ ॥৪১॥
 
-> prāpta-praṇaṣṭācyuta-vitta ātmā
-> yayau viṣādojjhita-deha-gehaḥ
-> gṛhīta-kāpālika-dharmako me
+> prāpta-praṇaṣṭācyuta-vitta ātmā\
+> yayau viṣādojjhita-deha-gehaḥ\
+> gṛhīta-kāpālika-dharmako me\
 > vṛndāvanaṁ sendriya-śiṣya-vṛndaḥ
 
 *prāpta*—achieved; *praṇaṣṭa*—lost; *acyuta*—Kṛṣṇa; *vittaḥ*—the treasure; *ātmā*—mind; *yayau*—went; *viṣāda*—by lamentation; *ujjhita*—given up; *deha-gehaḥ*—body and home; *gṛhīta*—accepted; *kāpālika-dharmakaḥ*—the religious principles of a *kāpālika-yogī,* a kind of mendicant; *me*—My; *vṛndāvanam*—to Vṛndāvana; *sa*—with; *indriya*—senses; *śiṣya-vṛndaḥ*—disciples.

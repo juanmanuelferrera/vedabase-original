@@ -1,9 +1,9 @@
 ### CC Madhya 20.309
 
-> দুগ্ধ যেন অম্লযোগে দধিরূপ ধরে ।
+> দুগ্ধ যেন অম্লযোগে দধিরূপ ধরে ।\
 > দুগ্ধান্তর বস্তু নহে, দুগ্ধ হৈতে নারে ॥৩০৯॥
 
-> dugdha yena amla-yoge dadhi-rūpa dhare
+> dugdha yena amla-yoge dadhi-rūpa dhare\
 > dugdhāntara vastu nahe, dugdha haite nāre
 
 *dugdha*—milk; *yena*—as; *amla:yoge*—in association with a sour substance; *dadhi-rūpa*—the form of yogurt; *dhare*—takes; *dugdha-antara*—something other than milk; *vastu*—substance; *nahe*—is not; *dugdha*—milk; *haite*—to be; *nāre*—is not able.

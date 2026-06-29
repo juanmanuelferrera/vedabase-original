@@ -1,11 +1,11 @@
 ### CC Adi 10.1
 
-> শ্রীচৈতন্যপদাম্ভোজ-মধুপেভ্যো নমো নমঃ ।
+> শ্রীচৈতন্যপদাম্ভোজ-মধুপেভ্যো নমো নমঃ ।\
 > কথঞ্চিদাশ্রয়াদ্ যেষাং শ্বাপি তদ্গন্ধভাগ্ভবেৎ ॥১॥
 
-> śrī-caitanya-padāmbhoja-
-> madhupebhyo namo namaḥ
-> kathañcid āśrayād yeṣāṁ
+> śrī-caitanya-padāmbhoja-\
+> madhupebhyo namo namaḥ\
+> kathañcid āśrayād yeṣāṁ\
 > śvāpi tad-gandha-bhāg bhavet
 
 *śrī-caitanya*—el Señor Śrī Caitanya Mahāprabhu; *pada-ambhoja*—los pies de loto; *madhu*—miel; *pebhyaḥ*—a quienes beben; *namaḥ*—respetuosas reverencias; *namaḥ*—respetuosas reverencias; *kathañcit*—un poco de ello; *āśrayāt*—al refugiarse; *yeṣām*—de quienes; *śvā*—un perro; *api*—incluso; *tat-gandha*—el aroma de la flor de loto; *bhāk*—partícipe; *bhavet*—puede volverse.

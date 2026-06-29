@@ -1,9 +1,9 @@
 ### CC Adi 4.166
 
-> কামের তাৎপর্য — নিজসম্ভোগ কেবল ।
+> কামের তাৎপর্য — নিজসম্ভোগ কেবল ।\
 > কৃষ্ণসুখতাৎপর্য-মাত্র প্রেম ত’ প্রবল ॥১৬৬॥
 
-> kāmera tātparya—nija-sambhoga kevala
+> kāmera tātparya—nija-sambhoga kevala\
 > kṛṣṇa-sukha-tātparya-mātra prema ta' prabala
 
 *kāmera*—of lust; *tātparya*—the intent; *nija*—own; *sambhoga*—enjoyment; *kevala*—only; *kṛṣṇa-sukha*—for Lord Kṛṣṇa's happiness; *tātparya*—the intent; *mātra*—only; *prema*—love; *ta'*—certainly; *prabala*—powerful.

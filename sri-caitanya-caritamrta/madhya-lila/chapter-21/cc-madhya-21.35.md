@@ -1,11 +1,11 @@
 ### CC Madhya 21.35
 
-> ঈশ্বরঃ পরমঃ কৃষ্ণঃ সচ্চিদানন্দবিগ্রহঃ ।
+> ঈশ্বরঃ পরমঃ কৃষ্ণঃ সচ্চিদানন্দবিগ্রহঃ ।\
 > অনাদিরাদির্গোবিন্দঃ সর্বকারণকারণম্ ॥৩৫॥
 
-> īśvaraḥ paramaḥ kṛṣṇaḥ
-> sac-cid-ānanda-vigrahaḥ
-> anādir ādir govindaḥ
+> īśvaraḥ paramaḥ kṛṣṇaḥ\
+> sac-cid-ānanda-vigrahaḥ\
+> anādir ādir govindaḥ\
 > sarva-kāraṇa-kāraṇam
 
 *īśvaraḥ*—the controller; *paramaḥ*—supreme; *kṛṣṇaḥ*—Lord Kṛṣṇa; *sat*—eternal existence; *cit*—absolute knowledge; *ānanda*—absolute bliss; *vigrahaḥ*—whose form; *anādiḥ*—without beginning; *ādiḥ*—the origin; *govindaḥ*—Lord Govinda; *sarva-kāraṇa-kāraṇam*—the cause of all causes.

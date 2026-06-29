@@ -1,35 +1,35 @@
 ### SB 7.14.30-33
 
-> सरांसि पुष्करादीनि क्षेत्राण्यर्हाश्रितान्युत
-> कुरुक्षेत्रं गयशिरः प्रयागः पुलहाश्रमः ॥३०॥
-> नैमिषं फाल्गुनं सेतुः प्रभासोऽथ कुशस्थली
-> वाराणसी मधुपुरी पम्पा बिन्दुसरस्तथा ॥३१॥
-> नारायणाश्रमो नन्दा सीतारामाश्रमादयः
-> सर्वे कुलाचला राजन्महेन्द्रमलयादयः ॥३२॥
-> एते पुण्यतमा देशा हरेरर्चाश्रिताश्च ये
-> एतान्देशान्निषेवेत श्रेयस्कामो ह्यभीक्ष्णशः
+> सरांसि पुष्करादीनि क्षेत्राण्यर्हाश्रितान्युत\
+> कुरुक्षेत्रं गयशिरः प्रयागः पुलहाश्रमः ॥३०॥\
+> नैमिषं फाल्गुनं सेतुः प्रभासोऽथ कुशस्थली\
+> वाराणसी मधुपुरी पम्पा बिन्दुसरस्तथा ॥३१॥\
+> नारायणाश्रमो नन्दा सीतारामाश्रमादयः\
+> सर्वे कुलाचला राजन्महेन्द्रमलयादयः ॥३२॥\
+> एते पुण्यतमा देशा हरेरर्चाश्रिताश्च ये\
+> एतान्देशान्निषेवेत श्रेयस्कामो ह्यभीक्ष्णशः\
 > धर्मो ह्यत्रेहितः पुंसां सहस्राधिफलोदयः ॥३३॥
 
-> sarāṁsi puṣkarādīni
-> kṣetrāṇy arhāśritāny uta
-> kurukṣetraṁ gaya-śiraḥ
+> sarāṁsi puṣkarādīni\
+> kṣetrāṇy arhāśritāny uta\
+> kurukṣetraṁ gaya-śiraḥ\
 > prayāgaḥ pulahāśramaḥ
 
-> naimiṣaṁ phālgunaṁ setuḥ
-> prabhāso 'tha kuśa-sthalī
-> vārāṇasī madhu-purī
+> naimiṣaṁ phālgunaṁ setuḥ\
+> prabhāso 'tha kuśa-sthalī\
+> vārāṇasī madhu-purī\
 > pampā bindu-saras tathā
 
-> nārāyaṇāśramo nandā
-> sītā-rāmāśramādayaḥ
-> sarve kulācalā rājan
+> nārāyaṇāśramo nandā\
+> sītā-rāmāśramādayaḥ\
+> sarve kulācalā rājan\
 > mahendra-malayādayaḥ
 
-> ete puṇyatamā deśā
-> harer arcāśritāś ca ye
-> etān deśān niṣeveta
-> śreyas-kāmo hy abhīkṣṇaśaḥ
-> dharmo hy atrehitaḥ puṁsāṁ
+> ete puṇyatamā deśā\
+> harer arcāśritāś ca ye\
+> etān deśān niṣeveta\
+> śreyas-kāmo hy abhīkṣṇaśaḥ\
+> dharmo hy atrehitaḥ puṁsāṁ\
 > sahasrādhi-phalodayaḥ
 
 *sarāṁsi*—lagos; *puṣkara-ādīni*—como el Puṣkara; *kṣetrāṇi*—lugares sagrados (como Kurukṣetra, Gayākṣetra y Jagannātha Purī); *arha*—para personas santas, dignas de adoración; *āśritāni*—lugares de refugio; *uta*—famosos; *kurukṣetram*—un determinado lugar sagrado (*dharma-kṣetra*); *gaya-śiraḥ*—el lugar llamado Gayā, donde Gayāsura se refugió en los pies de loto del Señor Viṣṇu; *prayāgaḥ*—Allahabad, en la confluencia de los sagrados Ganges y Yamunā; *pulaha-āśramaḥ*—la residencia de Pulaha Muni; *naimiṣam*—el lugar de Naimiṣāraṇya (cerca de Lucknow); *phālgunam*—los lugares por donde fluye el río Phālgu; *setuḥ*—Setubandha, donde el Señor Rāmacandra construyó un puente entre la India y Laṅkā; *prabhāsaḥ*—Prabhāsakṣetra; *atha*—así como; *kuśa-sthalī*—Dvāravatī, o Dvārakā; *vārāṇasī*—Benares; *madhu-purī*—Mathurā; *pampā*—el lugar en que se encuentra el lago Pampā; *bindu-saraḥ*—el lugar en que se encuentra el Bindu-sarovara; *tathā*—allí; *nārāyaṇa-āśramaḥ*—llamado Badarikāśrama; *nandā*—los lugares por donde fluye el río Nandā; *sītā-rāma*—del Señor Rāmacandra y madre Sītā; *āśrama-ādayaḥ*—lugares de refugio, como Citrakūṭa; *sarve*—todos (esos lugares); *kulācalāḥ*—regiones montañosas; *rājan*—¡oh, rey!; *mahendra*—llamadas Mahendra; *malaya-ādayaḥ*—y otras, como Malayācala; *ete*—todos ellos; *puṇya-tamāḥ*—muy sagrados; *deśāḥ*—lugares; *hareḥ*—de la Suprema Personalidad de Dios; *arca-āśritāḥ*—lugares en que se adora a la Deidad de Rādhā-Kṛṣṇa (grandes ciudades americanas como Nueva York, Los Ángeles y San Francisco, y ciudades europeas como Londres y París, o, en general, todo lugar en que haya centros del movimiento para la conciencia de Kṛṣṇa); *ca*—así como; *ye*—aquellos que; *etān deśān*—todos esos países; *niṣeveta*—debe adorar o visitar; *śreyaḥ-kāmaḥ*—quien desee lo auspicioso; *hi*—en verdad; *abhīkṣṇaśaḥ*—una y otra vez; *dharmaḥ*—actividades religiosas; *hi*—de las cuales; *atra*—en esos lugares; *īhitaḥ*—realizadas; *puṁsām*—de las personas; *sahasra-adhi*—más de mil veces; *phala-udayaḥ*—efectivas.

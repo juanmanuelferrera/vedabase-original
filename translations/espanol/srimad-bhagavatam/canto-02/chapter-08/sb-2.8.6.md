@@ -1,11 +1,11 @@
 ### SB 2.8.6
 
-> धौतात्मा पुरुषः कृष्ण पादमूलं न मुञ्चति ।
+> धौतात्मा पुरुषः कृष्ण पादमूलं न मुञ्चति ।\
 > मुक्तसर्वपरिक्लेशः पान्थः स्वशरणं यथा ॥६॥
 
-> dhautātmā puruṣaḥ kṛṣṇa-
-> pāda-mūlaṁ na muñcati
-> mukta-sarva-parikleśaḥ
+> dhautātmā puruṣaḥ kṛṣṇa-\
+> pāda-mūlaṁ na muñcati\
+> mukta-sarva-parikleśaḥ\
 > pānthaḥ sva-śaraṇaṁ yathā
 
 *dhauta-ātmā*—cuyo corazón se ha limpiado; *puruṣaḥ*—el ser viviente; *kṛṣṇa*—la Suprema Personalidad Dios; *pāda-mūlam*—el refugio de los pies de loto; *na*—nunca; *muñcati*—abandona; *mukta*—liberado; *sarva*—todos; *parikleśaḥ*—de todos los sufrimientos de la vida; *pānthaḥ*—el viajero; *sva-śaraṇam*—en su propia morada; *yathā*—como si fuera.

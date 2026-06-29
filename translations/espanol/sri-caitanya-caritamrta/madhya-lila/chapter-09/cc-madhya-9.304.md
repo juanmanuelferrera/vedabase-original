@@ -1,9 +1,9 @@
 ### CC Madhya 9.304
 
-> তবে মহাপ্রভু আইলা কৃষ্ণবেণ্বা-তীরে ৷
+> তবে মহাপ্রভু আইলা কৃষ্ণবেণ্বা-তীরে ৷\
 > নানা তীর্থ দেখি’ তাহাঁ দেবতা-মন্দিরে ৷৷ ৩০৪ ৷৷ ॥৩০৪॥
 
-> tabe mahāprabhu āilā kṛṣṇa-veṇvā-tīre
+> tabe mahāprabhu āilā kṛṣṇa-veṇvā-tīre\
 > nānā tīrtha dekhi' tāhāṅ devatā-mandire
 
 *tabe*—a continuación; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *āilā*—llegó; *kṛṣṇa-veṇvā-tīre*—a la orilla del río Kṛṣṇa-veṇvā; *nānā*—diversos; *tīrtha*—lugares santos; *dekhi'*—visitando; *tāhāṅ*—allí; *devatā-mandire*—en los templos de diversos dioses.

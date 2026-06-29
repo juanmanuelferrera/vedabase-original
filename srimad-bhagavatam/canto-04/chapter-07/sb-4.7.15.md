@@ -1,13 +1,13 @@
 ### SB 4.7.15
 
-> योऽसौ मयाविदिततत्त्वदृशा सभायां
-> क्षिप्तो दुरुक्तिविशिखैर्विगणय्य तन्माम् ।
-> अर्वाक्पतन्तमर्हत्तमनिन्दयापाद्
+> योऽसौ मयाविदिततत्त्वदृशा सभायां\
+> क्षिप्तो दुरुक्तिविशिखैर्विगणय्य तन्माम् ।\
+> अर्वाक्पतन्तमर्हत्तमनिन्दयापाद्\
 > दृष्ट्यार्द्रया स भगवान्स्वकृतेन तुष्येत् ॥१५॥
 
-> yo 'sau mayāvidita-tattva-dṛśā sabhāyāṁ
-> kṣipto durukti-viśikhair vigaṇayya tan mām
-> arvāk patantam arhattama-nindayāpād
+> yo 'sau mayāvidita-tattva-dṛśā sabhāyāṁ\
+> kṣipto durukti-viśikhair vigaṇayya tan mām\
+> arvāk patantam arhattama-nindayāpād\
 > dṛṣṭyārdrayā sa bhagavān sva-kṛtena tuṣyet
 
 *yaḥ*—who; *asau*—that; *mayā*—by me; *avidita-tattva*—without knowing the actual fact; *dṛśā*—by experience; *sabhāyām*—in the assembly; *kṣiptaḥ*—was abused; *durukti*—unkind words; *viśikhaiḥ*—by the arrows of; *vigaṇayya*—taking no notice of; *tat*—that; *mām*—me; *arvāk*—downwards; *patantam*—gliding down to hell; *arhat-tama*—the most respectable; *nindayā*—by defamation; *apāt*—saved; *dṛṣṭyā*—seeing; *ārdrayā*—out of compassion; *saḥ*—that; *bhagavān*—Your Lordship; *sva-kṛtena*—by your own mercy; *tuṣyet*—be satisfied.

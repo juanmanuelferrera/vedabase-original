@@ -1,9 +1,9 @@
 ### CC Madhya 14.113
 
-> প্রাতঃকালে মহাপ্রভু নিজগণ লঞা ।
+> প্রাতঃকালে মহাপ্রভু নিজগণ লঞা ।\
 > জগন্নাথ দর্শন কৈল সুন্দরাচলে যাঞা ॥১১৩॥
 
-> prātaḥ-kāle mahāprabhu nija-gaṇa lañā
+> prātaḥ-kāle mahāprabhu nija-gaṇa lañā\
 > jagannātha darśana kaila sundarācale yāñā
 
 *prātaḥ-kāle*—in the morning; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *nija-gaṇa lañā*—taking His associates; *jagannātha darśana*—visiting Lord Jagannātha; *kaila*—performed; *sundarācale*—to the Guṇḍicā temple; *yāñā*—going.

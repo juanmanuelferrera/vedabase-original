@@ -1,9 +1,9 @@
 ### CC Adi 9.38
 
-> আত্ম-ইচ্ছামৃতে বৃক্ষ সিঞ্চি নিরন্তর ।
+> আত্ম-ইচ্ছামৃতে বৃক্ষ সিঞ্চি নিরন্তর ।\
 > তাহাতে অসংখ্য ফল বৃক্ষের উপর ॥৩৮॥
 
-> ātma-icchāmṛte vṛkṣa siñci nirantara
+> ātma-icchāmṛte vṛkṣa siñci nirantara\
 > tāhāte asaṅkhya phala vṛkṣera upara
 
 *ātma*—self; *icchā-amṛte*—by the nectar of the will; *vṛkṣa*—the tree; *siñci*—sprinkle; *nirantara*—constantly; *tāhāte*—there; *asaṅkhya*—unlimited; *phala*—fruits; *vṛkṣera*—on the tree; *upara*—upper.

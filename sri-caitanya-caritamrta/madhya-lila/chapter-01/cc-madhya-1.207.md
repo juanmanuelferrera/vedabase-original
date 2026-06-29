@@ -1,9 +1,9 @@
 ### CC Madhya 1.207
 
-> শুনি’ মহাপ্রভু কহে, — শুন, দবির-খাস ।
+> শুনি’ মহাপ্রভু কহে, — শুন, দবির-খাস ।\
 > তুমি দুই ভাই — মোর পুরাতন দাস ॥২০৭॥
 
-> śuni' mahāprabhu kahe,—śuna, dabira-khāsa
+> śuni' mahāprabhu kahe,—śuna, dabira-khāsa\
 > tumi dui bhāi—mora purātana dāsa
 
 *śuni'*—hearing this; *mahāprabhu*—Lord Caitanya Mahāprabhu; *kahe*—says; *śuna*—please hear; *dabirakhāsa*—Dabira Khāsa; *tumi*—you; *dui bhāi*—two brothers; *mora*—My; *purātana*—old; *dāsa*—servants.

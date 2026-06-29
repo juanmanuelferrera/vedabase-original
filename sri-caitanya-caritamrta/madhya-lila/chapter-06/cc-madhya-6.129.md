@@ -1,9 +1,9 @@
 ### CC Madhya 6.129
 
-> তুমি শুনি’ শুনি’ রহ মৌন মাত্র ধরি’  ।
+> তুমি শুনি’ শুনি’ রহ মৌন মাত্র ধরি’  ।\
 > হৃদয়ে কি আছে তোমার, বুঝিতে না পারি ॥১২৯॥
 
-> tumi śuni' śuni' raha mauna mātra dhari'
+> tumi śuni' śuni' raha mauna mātra dhari'\
 > hṛdaye ki āche tomāra, bujhite nā pāri
 
 *tumi*—You; *śuni'*—hearing; *śuni'*—hearing; *raha*—keep; *mauna*—silence; *mātra*—only; *dhari'*—holding; *hṛdaye*—in the heart; *ki*—what; *āche*—there is; *tomāra*—Your; *bujhite*—to understand; *nā*—not; *pāri*—am able.

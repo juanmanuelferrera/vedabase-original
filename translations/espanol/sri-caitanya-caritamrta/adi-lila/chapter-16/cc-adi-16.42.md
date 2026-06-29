@@ -1,9 +1,9 @@
 ### CC Adi 16.42
 
-> ‘এই শ্লোকের অর্থ কর’ — প্রভু যদি বৈল ।
+> ‘এই শ্লোকের অর্থ কর’ — প্রভু যদি বৈল ।\
 > বিস্মিত হঞা দিগ্বিজয়ী প্রভুরে পুছিল ॥৪২॥
 
-> 'ei ślokera artha kara'--prabhu yadi baila
+> 'ei ślokera artha kara'--prabhu yadi baila\
 > vismita hañā digvijayī prabhure puchila
 
 *ei*—este; *ślokera*—del verso; *artha*—explicación; *kara*—hágala por favor; *prabhu*—el Señor Caitanya; *yadi*—cuando; *baila*—dijo; *vismita*—asombrado; *hañā*—quedándose; *dig-vijayī*—el campeón; *prabhure*—al Señor; *puchila*—preguntó.

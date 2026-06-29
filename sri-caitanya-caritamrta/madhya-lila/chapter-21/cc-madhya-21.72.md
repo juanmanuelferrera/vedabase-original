@@ -1,9 +1,9 @@
 ### CC Madhya 21.72
 
-> পাদপীট-মুকুটাগ্র-সংঘট্টে উঠে ধ্বনি ।
+> পাদপীট-মুকুটাগ্র-সংঘট্টে উঠে ধ্বনি ।\
 > পাদপীঠে স্তুতি করে মুকুট হেন জানি’ ॥৭২॥
 
-> pāda-pīṭa-mukuṭāgra-saṅghaṭṭe uṭhe dhvani
+> pāda-pīṭa-mukuṭāgra-saṅghaṭṭe uṭhe dhvani\
 > pāda-pīṭhe stuti kare mukuṭa hena jāni'
 
 *pāda-pīṭa*—at Kṛṣṇa's lotus feet; *mukuṭa-agra*—of the tops of the helmets; *saṅghaṭṭe*—in the crowding together; *uṭhe dhvani*—there arose a sound; *pāda-pīṭhe stuti*—offering prayers unto the lotus feet; *kare*—do; *mukuṭa*—the helmets; *hena jāni'*—appearing as such.

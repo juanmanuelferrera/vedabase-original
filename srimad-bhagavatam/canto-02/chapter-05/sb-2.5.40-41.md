@@ -1,18 +1,18 @@
 ### SB 2.5.40-41
 
-> तत्कट्यां चातलं कॢप्तमूरुभ्यां वितलं विभोः ।
-> जानुभ्यां सुतलं शुद्धं जङ्घाभ्यां तु तलातलम् ॥४०॥
-> महातलं तु गुल्फाभ्यां प्रपदाभ्यां रसातलम् ।
+> तत्कट्यां चातलं कॢप्तमूरुभ्यां वितलं विभोः ।\
+> जानुभ्यां सुतलं शुद्धं जङ्घाभ्यां तु तलातलम् ॥४०॥\
+> महातलं तु गुल्फाभ्यां प्रपदाभ्यां रसातलम् ।\
 > पातालं पादतलत इति लोकमयः पुमान् ॥४१॥
 
-> tat-kaṭyāṁ cātalaṁ kḷptam
-> ūrubhyāṁ vitalaṁ vibhoḥ
-> jānubhyāṁ sutalaṁ śuddhaṁ
+> tat-kaṭyāṁ cātalaṁ kḷptam\
+> ūrubhyāṁ vitalaṁ vibhoḥ\
+> jānubhyāṁ sutalaṁ śuddhaṁ\
 > jaṅghābhyāṁ tu talātalam
 
-> mahātalaṁ tu gulphābhyāṁ
-> prapadābhyāṁ rasātalam
-> pātālaṁ pāda-talata
+> mahātalaṁ tu gulphābhyāṁ\
+> prapadābhyāṁ rasātalam\
+> pātālaṁ pāda-talata\
 > iti lokamayaḥ pumān
 
 *tat*—in His; *kaṭyām*—waist; *ca*—also; *atalam*—the first planetary system below the earth; *kḷptam*—situated; *ūrubhyām*—on the thighs; *vitalam*—the second planetary system below; *vibhoḥ*—of the Lord; *jānubhyām*—on the ankles; *sutalam*—the third planetary system below; *śuddham*—purified; *jaṅghābhyām*—on the joints; *tu*—but; *talātalam*—the fourth planetary system below; *mahātalam*—the fifth planetary system below; *tu*—but; *gulphābhyām*—situated on the calves; *prapadābhyām*—on the upper or front portion of the feet; *rasātalam*—the sixth planetary system below; *pātālam*—the seventh planetary system below; *pāda-talataḥ*—on the bottom or soles of the feet; *iti*—thus; *loka-mayaḥ*—full of planetary systems; *pumān*—the Lord.

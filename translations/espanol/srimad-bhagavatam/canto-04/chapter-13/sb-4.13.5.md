@@ -1,11 +1,11 @@
 ### SB 4.13.5
 
-> यास्ता देवर्षिणा तत्र वर्णिता भगवत्कथाः ।
+> यास्ता देवर्षिणा तत्र वर्णिता भगवत्कथाः ।\
 > मह्यं शुश्रूषवे ब्रह्मन्कार्त्स्न्येनाचष्टुमर्हसि ॥५॥
 
-> yās tā devarṣiṇā tatra
-> varṇitā bhagavat-kathāḥ
-> mahyaṁ śuśrūṣave brahman
+> yās tā devarṣiṇā tatra\
+> varṇitā bhagavat-kathāḥ\
+> mahyaṁ śuśrūṣave brahman\
 > kārtsnyenācaṣṭum arhasi
 
 *yāḥ*—que; *tāḥ*—todos aquellos; *devarṣiṇā*—por el gran sabio Nārada; *tatra*—allí; *varṇitāḥ*—narradas; *bhagavat-kathāḥ*—prédicas relativas a las actividades del Señor; *mahyam*—a mí; *śuśrūṣave*—muy deseoso de escuchar; *brahman*—mi querido *brāhmaṇa*; *kārtsnyena*—por completo; *ācaṣṭum arhasi*—por favor, explica.

@@ -1,12 +1,12 @@
 ### CC Madhya 21.50
 
-> প্রধান-পরমব্যোম্নোরন্তরে বিরজা নদী ।
+> প্রধান-পরমব্যোম্নোরন্তরে বিরজা নদী ।\
 > বেদাঙ্গস্বেদজনিতৈস্তোয়ৈঃ প্রস্রাবিতা শুভা ॥৫০॥
 
-> pradhāna-parama-vyomnor
-> antare virajā nadī
-> vedāṅga-sveda-janitais
-> toyaiḥ prasrāvitā śubhā
+> pradhāna-parama-vyomnor\
+> antare virajā nadī\
+> vedāṅga-sveda-janitais\
+> toyaiḥ prasrāvitā śubhā\
 > SYNONYMS
 
 *pradhāna-parama-vyomnoḥ antare*—entre el mundo material y el mundo espiritual; *virajā nadī*—hay un río conocido como Virajā; *veda-aṅga*—del cuerpo trascendental de la Suprema Personalidad de Dios; *sveda-janitaiḥ*—producida por la transpiración; *toyaiḥ*—con agua; *prasrāvitā*—fluyendo; *śubhā*—todoauspicioso.

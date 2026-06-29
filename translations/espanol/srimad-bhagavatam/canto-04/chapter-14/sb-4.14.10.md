@@ -1,11 +1,11 @@
 ### SB 4.14.10
 
-> अहेरिव पयःपोषः पोषकस्याप्यनर्थभृत् ।
+> अहेरिव पयःपोषः पोषकस्याप्यनर्थभृत् ।\
 > वेनः प्रकृत्यैव खलः सुनीथागर्भसम्भवः ॥१०॥
 
-> aher iva payaḥ-poṣaḥ
-> poṣakasyāpy anartha-bhṛt
-> venaḥ prakṛtyaiva khalaḥ
+> aher iva payaḥ-poṣaḥ\
+> poṣakasyāpy anartha-bhṛt\
+> venaḥ prakṛtyaiva khalaḥ\
 > sunīthā-garbha-sambhavaḥ
 
 *aheḥ*—de una serpiente; *iva*—como; *payaḥ*—con leche; *poṣaḥ*—el mantener; *poṣakasya*—del que mantiene; *api*—incluso; *anartha*—contra los intereses; *bhṛt*—se vuelve; *venaḥ*—el rey Vena; *prakṛtyā*—por naturaleza; *eva*—ciertamente; *khalaḥ*—malvado; *sunīthā*—de Sunīthā, la madre de Vena; *garbha*—el vientre; *sambhavaḥ*—nacido de.

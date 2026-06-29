@@ -1,11 +1,11 @@
 ### SB 4.22.25
 
-> हरेर्मुहुस्तत्परकर्णपूर गुणाभिधानेन विजृम्भमाणया ।
+> हरेर्मुहुस्तत्परकर्णपूर गुणाभिधानेन विजृम्भमाणया ।\
 > भक्त्या ह्यसङ्गः सदसत्यनात्मनि स्यान्निर्गुणे ब्रह्मणि चाञ्जसा रतिः ॥२५॥
 
-> harer muhus tatpara-karṇa-pūra-
-> guṇābhidhānena vijṛmbhamāṇayā
-> bhaktyā hy asaṅgaḥ sad-asaty anātmani
+> harer muhus tatpara-karṇa-pūra-\
+> guṇābhidhānena vijṛmbhamāṇayā\
+> bhaktyā hy asaṅgaḥ sad-asaty anātmani\
 > syān nirguṇe brahmaṇi cāñjasā ratiḥ
 
 *hareḥ*—of the Supreme Personality of Godhead; *muhuḥ*—constantly; *tat-para*—in relation with the Supreme Personality of Godhead; *karṇa-pūra*—decoration of the ear; *guṇa-abhidhānena*—discussing transcendental qualities; *vijṛmbhamāṇayā*—by increasing Kṛṣṇa consciousness; *bhaktyā*—by devotion; *hi*—certainly; *asaṅgaḥ*—uncontaminated; *sat-asati*—the material world; *anātmani*—opposed to spiritual understanding; *syāt*—should be; *nirguṇe*—in transcendence; *brahmaṇi*—in the Supreme Lord; *ca*—and; *añjasā*—easily; *ratiḥ*—attraction.

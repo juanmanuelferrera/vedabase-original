@@ -1,11 +1,11 @@
 ### Bg 8.17
 
-> सहस्रयुगपर्यन्तमहर्यद् ब्रह्मणो विदुः ।
+> सहस्रयुगपर्यन्तमहर्यद् ब्रह्मणो विदुः ।\
 > रात्रिं युगसहस्रान्तां तेऽहोरात्रविदो जनाः ॥१७॥
 
-> sahasra-yuga-paryantam
-> ahar yad brahmaṇo viduḥ
-> rātriṁ yuga-sahasrāntāṁ
+> sahasra-yuga-paryantam\
+> ahar yad brahmaṇo viduḥ\
+> rātriṁ yuga-sahasrāntāṁ\
 > te 'ho-rātra-vido janāḥ
 
 *sahasra*—thousand; *yuga*—millenniums; *prayantam*—including; *ahaḥ*—day; *yat*—that; *brahmaṇaḥ*—of Brahmā; *viduḥ*—know it; *rātrim*—night; *yuga*—millenniums; *sahasra-antām*—similarly, at the end of one thousand; *te*—that; *ahaḥ-rātra*—day and night; *vidaḥ*—understand; *janāḥ*—people.

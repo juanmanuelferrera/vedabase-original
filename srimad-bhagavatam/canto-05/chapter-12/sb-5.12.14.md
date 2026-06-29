@@ -1,11 +1,11 @@
 ### SB 5.12.14
 
-> अहं पुरा भरतो नाम राजा विमुक्तदृष्टश्रुतसङ्गबन्धः
+> अहं पुरा भरतो नाम राजा विमुक्तदृष्टश्रुतसङ्गबन्धः\
 > आराधनं भगवत ईहमानो मृगोऽभवं मृगसङ्गाद्धतार्थः ॥१४॥
 
-> ahaṁ purā bharato nāma rājā
-> vimukta-dṛṣṭa-śruta-saṅga-bandhaḥ
-> ārādhanaṁ bhagavata īhamāno
+> ahaṁ purā bharato nāma rājā\
+> vimukta-dṛṣṭa-śruta-saṅga-bandhaḥ\
+> ārādhanaṁ bhagavata īhamāno\
 > mṛgo 'bhavaṁ mṛga-saṅgād dhatārthaḥ
 
 *aham*—I; *purā*—formerly (in my previous birth); *bharataḥ nāma rājā*—a King named Mahārāja Bharata; *vimukta*—liberated from; *dṛṣṭa-śruta*—by experiencing personally through direct association, or by getting knowledge from the *Vedas*; *saṅga-bandhaḥ*—bondage by association; *ārādhanam*—the worship; *bhagavataḥ*—of the Supreme Personality of Godhead, Vāsudeva; *īhamānaḥ*—always performing; *mṛgaḥ abhavam*—I became a deer; *mṛga-saṅgāt*—because of my intimate association with a deer; *hata-arthaḥ*—having neglected the regulative principles in the discharge of devotional service.

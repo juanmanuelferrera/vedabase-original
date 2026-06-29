@@ -1,9 +1,9 @@
 ### CC Madhya 20.229
 
-> বিষ্ণুমূর্তি — গদাপদ্মশঙ্খচক্রকর ।
+> বিষ্ণুমূর্তি — গদাপদ্মশঙ্খচক্রকর ।\
 > মধুসূদন — চক্রশঙ্খপদ্মগদাধর ॥২২৯॥
 
-> viṣṇu-mūrti--gadā-padma-śaṅkha-cakra-kara
+> viṣṇu-mūrti--gadā-padma-śaṅkha-cakra-kara\
 > madhusūdana--cakra-śaṅkha-padma-gadā-dhara
 
 *viṣṇu-mūrti*—el Señor Viṣṇu; *gadā*—maza; *padma*—loto; *śaṅkha*—caracola; *cakra*—disco; *kara*—en las manos; *madhusūdana*—el Señor Madhusūdana; *cakra*—disco; *śaṅkha*—caracola; *padma*—loto; *gadā*—maza; *dhara*—que sostiene.

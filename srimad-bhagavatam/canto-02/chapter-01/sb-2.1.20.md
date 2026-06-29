@@ -1,11 +1,11 @@
 ### SB 2.1.20
 
-> रजस्तमोभ्यामाक्षिप्तं विमूढं मन आत्मनः ।
+> रजस्तमोभ्यामाक्षिप्तं विमूढं मन आत्मनः ।\
 > यच्छेद्धारणया धीरो हन्ति या तत्कृतं मलम् ॥२०॥
 
-> rajas-tamobhyām ākṣiptaṁ
-> vimūḍhaṁ mana ātmanaḥ
-> yacched dhāraṇayā dhīro
+> rajas-tamobhyām ākṣiptaṁ\
+> vimūḍhaṁ mana ātmanaḥ\
+> yacched dhāraṇayā dhīro\
 > hanti yā tat-kṛtaṁ malam
 
 *rajaḥ*—the passionate mode of nature; *tamobhyām*—as well as by the ignorant mode of material nature; *ākṣiptam*—agitated; *vimūḍham*—bewildered; *manaḥ*—the mind; *ātmanaḥ*—of one's own; *yacchet*—get it rectified; *dhāraṇayā*—by conception (of Viṣṇu); *dhīraḥ*—the pacified; *hanti*—destroys; *yā*—all those; *tat-kṛtam*—done by them; *malam*—dirty things.

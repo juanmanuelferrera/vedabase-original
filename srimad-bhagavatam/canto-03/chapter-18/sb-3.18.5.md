@@ -1,11 +1,11 @@
 ### SB 3.18.5
 
-> त्वयि संस्थिते गदया शीर्णशीर्षण्यस्मद्भुजच्युतया ये च तुभ्यम् ।
+> त्वयि संस्थिते गदया शीर्णशीर्षण्यस्मद्भुजच्युतया ये च तुभ्यम् ।\
 > बलिं हरन्त्यृषयो ये च देवाः स्वयं सर्वे न भविष्यन्त्यमूलाः ॥५॥
 
-> tvayi saṁsthite gadayā śīrṇa-śīrṣaṇy
-> asmad-bhuja-cyutayā ye ca tubhyam
-> baliṁ haranty ṛṣayo ye ca devāḥ
+> tvayi saṁsthite gadayā śīrṇa-śīrṣaṇy\
+> asmad-bhuja-cyutayā ye ca tubhyam\
+> baliṁ haranty ṛṣayo ye ca devāḥ\
 > svayaṁ sarve na bhaviṣyanty amūlāḥ
 
 *tvayi*—when You; *saṁsthite*—are killed; *gadayā*—by the mace; *śīrṇa*—smashed; *śīrṣaṇi*—skull; *asmat-bhuja*—from my hand; *cyutayā*—released; *ye*—those who; *ca*—and; *tubhyam*—to You; *balim*—presentations; *haranti*—offer; *ṛṣayaḥ*—sages; *ye*—those who; *ca*—and; *devāḥ*—demigods; *svayam*—automatically; *sarve*—all; *na*—not; *bhaviṣyanti*—will exist; *amūlāḥ*—without roots.

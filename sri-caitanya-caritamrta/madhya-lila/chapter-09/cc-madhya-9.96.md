@@ -1,9 +1,9 @@
 ### CC Madhya 9.96
 
-> পুলকাশ্রু, কম্প, স্বেদ, — যাবৎ পঠন ।
+> পুলকাশ্রু, কম্প, স্বেদ, — যাবৎ পঠন ।\
 > দেখি’ আনন্দিত হৈল মহাপ্রভুর মন ॥৯৬॥
 
-> pulakāśru, kampa, sveda,—yāvat paṭhana
+> pulakāśru, kampa, sveda,—yāvat paṭhana\
 > dekhi' ānandita haila mahāprabhura mana
 
 *pulaka*—standing of the hairs of the body; *aśru*—tears; *kampa*—trembling; *sveda*—perspiration; *yāvat*—during; *paṭhana*—the reading of the book; *dekhi'*—seeing this; *ānandita*—very happy; *haila*—became; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *mana*—the mind.

@@ -1,9 +1,9 @@
 ### CC Antya 7.28
 
-> ‘আত্মভূত’-শব্দে কহে ‘পারিষদগণ’ ।
+> ‘আত্মভূত’-শব্দে কহে ‘পারিষদগণ’ ।\
 > ঐশ্বর্য-জ্ঞানে লক্ষ্মী না পাইলা ব্রজেন্দ্রনন্দন ॥২৮॥
 
-> 'ātma-bhūta'-śabde kahe 'pāriṣada-gaṇa'
+> 'ātma-bhūta'-śabde kahe 'pāriṣada-gaṇa'\
 > aiśvarya-jñāne lakṣmī nā pāilā vrajendra-nandana
 
 *ātma-bhūta-śabde*—the word *ātma-bhūta*; *kahe*—means; *pāriṣada-gaṇa*—personal associates; *aiśvarya-jñāne*—in the understanding of opulence; *lakṣmī*—the goddess of fortune; *nā pāilā*—could not get; *vrajendra-nandana*—the shelter of Kṛṣṇa, the son of Nanda Mahārāja.

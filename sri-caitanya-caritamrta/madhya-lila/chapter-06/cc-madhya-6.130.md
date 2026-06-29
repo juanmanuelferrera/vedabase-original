@@ -1,9 +1,9 @@
 ### CC Madhya 6.130
 
-> প্রভু কহে, — “সূত্রের অর্থ বুঝিয়ে নির্মল ।
+> প্রভু কহে, — “সূত্রের অর্থ বুঝিয়ে নির্মল ।\
 > তোমার ব্যাখ্যা শুনি’ মন হয় ত’ বিকল ॥১৩০॥
 
-> prabhu kahe,—"sūtrera artha bujhiye nirmala
+> prabhu kahe,—"sūtrera artha bujhiye nirmala\
 > tomāra vyākhyā śuni' mana haya ta' vikala
 
 *prabhu kahe*—the Lord replied; *sūtrera artha*—the meaning of the *sūtras*; *bujhiye*—I can understand; *nirmala*—very clearly; *tomāra*—your; *vyākhyā*—explanation; *śuni'*—hearing; *mana*—mind; *haya*—becomes; *ta'*—indeed; *vikala*—disturbed.

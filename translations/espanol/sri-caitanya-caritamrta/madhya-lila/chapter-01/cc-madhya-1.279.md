@@ -1,9 +1,9 @@
 ### CC Madhya 1.279
 
-> কে শিখাল এই লোকে, কহে কোন্ বাত ।
+> কে শিখাল এই লোকে, কহে কোন্ বাত ।\
 > ইহা-সবার মুখ ঢাক দিয়া নিজ হাত ॥২৭৯॥
 
-> ke śikhāla ei loke, kahe kon bāta
+> ke śikhāla ei loke, kahe kon bāta\
 > ihā-sabāra mukha ḍhāka diyā nija hāta
 
 *ke*—quién; *śikhāla*—enseñó; *ei*—a estas; *loke*—personas; *kahe*—dicen; *kon*—qué; *bāta*—temas; *ihā*—de ellos; *sabāra*—de todos; *mukha*—las bocas; *ḍhāka*—simplemente cubre; *diyā*—con; *nija*—Tu propia; *hāta*—mano.

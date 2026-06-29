@@ -1,11 +1,11 @@
 ### SB 3.30.29
 
-> अत्रैव नरकः स्वर्ग इति मातः प्रचक्षते ।
+> अत्रैव नरकः स्वर्ग इति मातः प्रचक्षते ।\
 > या यातना वै नारक्यस्ता इहाप्युपलक्षिताः ॥२९॥
 
-> atraiva narakaḥ svarga
-> iti mātaḥ pracakṣate
-> yā yātanā vai nārakyas
+> atraiva narakaḥ svarga\
+> iti mātaḥ pracakṣate\
+> yā yātanā vai nārakyas\
 > tā ihāpy upalakṣitāḥ
 
 *atra*—in this world; *eva*—even; *narakaḥ*—hell; *svargaḥ*—heaven; *iti*—thus; *mātaḥ*—O mother; *pracakṣate*—they say; *yāḥ*—which; *yātanāḥ*—punishments; *vai*—certainly; *nārakyaḥ*—hellish; *tāḥ*—they; *iha*—here; *api*—also; *upalakṣitāḥ*—visible.

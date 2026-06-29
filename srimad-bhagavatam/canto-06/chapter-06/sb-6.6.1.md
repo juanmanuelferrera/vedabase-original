@@ -1,12 +1,12 @@
 ### SB 6.6.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > ततः प्राचेतसोऽसिक्न्यामनुनीतः स्वयम्भुवा ॥१॥
 
-> śrī-śuka uvāca
-> tataḥ prācetaso 'siknyām
-> anunītaḥ svayambhuvā
-> ṣaṣṭiṁ sañjanayām āsa
+> śrī-śuka uvāca\
+> tataḥ prācetaso 'siknyām\
+> anunītaḥ svayambhuvā\
+> ṣaṣṭiṁ sañjanayām āsa\
 > duhitṝḥ pitṛ-vatsalāḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *tataḥ*—after that incident; *prācetasaḥ*—Dakṣa; *asiknyām*—in his wife named Asiknī; *anunītaḥ*—pacified; *svayambhuvā*—by Lord Brahmā; *ṣaṣṭim*—sixty; *sañjanayām āsa*—begot; *duhitṝḥ*—daughters; *pitṛ-vatsalāḥ*—all very affectionate to their father.

@@ -1,9 +1,9 @@
 ### CC Antya 3.270
 
-> সেই সব লীলা কহি সংক্ষেপ করিয়া  ।
+> সেই সব লীলা কহি সংক্ষেপ করিয়া  ।\
 > চৈতন্য-কৃপাতে লিখি ক্ষুদ্রজীব হঞা ॥২৭০॥
 
-> sei saba līlā kahi saṅkṣepa kariyā
+> sei saba līlā kahi saṅkṣepa kariyā\
 > caitanya-kṛpāte likhi kṣudra-jīva hañā
 
 *sei saba*—todos esos; *līlā*—pasatiempos; *kahi*—digo; *saṅkṣepa kariyā*—en resumen; *caitanya-kṛpāte*—por la misericordia del Señor Śrī Caitanya Mahāprabhu; *likhi*—escribo; *kṣudra-jīva hañā*—siendo una entidad viviente muy insignificante.

@@ -1,11 +1,11 @@
 ### SB 1.19.25
 
-> तत्राभवद्भगवान्व्यासपुत्रो यदृच्छया गामटमानोऽनपेक्षः ।
+> तत्राभवद्भगवान्व्यासपुत्रो यदृच्छया गामटमानोऽनपेक्षः ।\
 > अलक्ष्यलिङ्गो निजलाभतुष्टो वृतश्च बालैरवधूतवेषः ॥२५॥
 
-> tatrābhavad bhagavān vyāsa-putro
-> yadṛcchayā gām aṭamāno 'napekṣaḥ
-> alakṣya-liṅgo nija-lābha-tuṣṭo
+> tatrābhavad bhagavān vyāsa-putro\
+> yadṛcchayā gām aṭamāno 'napekṣaḥ\
+> alakṣya-liṅgo nija-lābha-tuṣṭo\
 > vṛtaś ca bālair avadhūta-veṣaḥ
 
 *tatra*—there; *abhavat*—appeared; *bhagavān*—powerful; *vyāsa-putraḥ*—son of Vyāsadeva; *yadṛcchayā*—as one desires; *gām*—the earth; *aṭamānaḥ*—while traveling; *anapekṣaḥ*—disinterested; *alakṣya*—unmanifested; *liṅgaḥ*—symptoms; *nija-lābha*—self-realized; *tuṣṭaḥ*—satisfied; *vṛtaḥ*—surrounded; *ca*—and; *bālaiḥ*—by children; *avadhūta*—neglected by others; *veṣaḥ*—dressed.

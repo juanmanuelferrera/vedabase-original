@@ -1,11 +1,11 @@
 ### SB 7.14.18
 
-> तस्माद्ब्राह्मणदेवेषु मर्त्यादिषु यथार्हतः
+> तस्माद्ब्राह्मणदेवेषु मर्त्यादिषु यथार्हतः\
 > तैस्तैः कामैर्यजस्वैनं क्षेत्रज्ञअं ब्राह्मणाननु ॥१८॥
 
-> tasmād brāhmaṇa-deveṣu
-> martyādiṣu yathārhataḥ
-> tais taiḥ kāmair yajasvainaṁ
+> tasmād brāhmaṇa-deveṣu\
+> martyādiṣu yathārhataḥ\
+> tais taiḥ kāmair yajasvainaṁ\
 > kṣetra-jñaṁ brāhmaṇān anu
 
 *tasmāt*—therefore; *brāhmaṇa-deveṣu*—through the *brāhmaṇas* and the demigods; *martya-ādiṣu*—through ordinary human beings and other living entities; *yathā-arhataḥ*—according to your ability; *taiḥ taiḥ*—with all those; *kāmaiḥ*—various objects of enjoyment such as sumptuous food, flower garlands, sandalwood paste, etc.; *yajasva*—you should worship; *enam*—this; *kṣetra-jñam*—Supreme Lord situated in the hearts of all beings; *brāhmaṇān*—the *brāhmaṇas*; *anu*—after.

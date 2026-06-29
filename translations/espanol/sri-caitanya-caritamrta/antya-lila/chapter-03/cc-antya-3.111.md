@@ -1,9 +1,9 @@
 ### CC Antya 3.111
 
-> অঙ্গ উঘাড়িয়া দেখাই বসিলা দুয়ারে  ।
+> অঙ্গ উঘাড়িয়া দেখাই বসিলা দুয়ারে  ।\
 > কহিতে লাগিলা কিছু সুমধুর স্বরে ॥১১১॥
 
-> aṅga ughāḍiyā dekhāi vasilā duyāre
+> aṅga ughāḍiyā dekhāi vasilā duyāre\
 > kahite lāgilā kichu sumadhura svare
 
 *aṅga ughāḍiyā*—exponiendo parte de su cuerpo; *dekhāi*—visible; *vasilā*—se sentó; *duyāre*—en el umbral de la puerta; *kahite lāgilā*—comenzó a hablar; *kichu*—algo; *su-madhura svare*—con un lenguaje muy dulce.

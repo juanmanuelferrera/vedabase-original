@@ -1,11 +1,11 @@
 ### SB 4.24.36
 
-> नमो नमोऽनिरुद्धाय हृषीकेशेन्द्रियात्मने ।
+> नमो नमोऽनिरुद्धाय हृषीकेशेन्द्रियात्मने ।\
 > नमः परमहंसाय पूर्णाय निभृतात्मने ॥३६॥
 
-> namo namo 'niruddhāya
-> hṛṣīkeśendriyātmane
-> namaḥ paramahaṁsāya
+> namo namo 'niruddhāya\
+> hṛṣīkeśendriyātmane\
+> namaḥ paramahaṁsāya\
 > pūrṇāya nibhṛtātmane
 
 *namaḥ*—all my obeisances unto You; *namaḥ*—obeisances again; *aniruddhāya*—unto Lord Aniruddha; *hṛṣīkeśa*—the master of the senses; *indriya-ātmane*—the director of the senses; *namaḥ*—all obeisances unto You; *parama-haṁsāya*—unto the supreme perfect; *pūrṇāya*—unto the supreme complete; *nibhṛta-ātmane*—who is situated apart from this material creation.

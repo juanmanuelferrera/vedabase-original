@@ -1,9 +1,9 @@
 ### CC Madhya 12.52
 
-> রায় কহে, — কত পাপীর করিয়াছ অব্যাহতি ।
+> রায় কহে, — কত পাপীর করিয়াছ অব্যাহতি ।\
 > ঈশ্বর-সেবক তোমার ভক্ত গজপতি ॥৫২॥
 
-> rāya kahe,-kata pāpīra kariyācha avyāhati
+> rāya kahe,-kata pāpīra kariyācha avyāhati\
 > īśvara-sevaka tomāra bhakta gajapati
 
 *rāya kahe*—Rāmānanda Rāya replied; *kata pāpīra*—of numberless sinful persons; *kariyācha*—You have done; *avyāhati*—deliverance; *īśvara-sevaka*—a servitor of the Lord; *tomāra*—Your; *bhakta*—devotee; *gajapati*—the King.

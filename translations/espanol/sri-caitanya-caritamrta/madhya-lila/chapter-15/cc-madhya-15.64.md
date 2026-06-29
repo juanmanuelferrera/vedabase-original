@@ -1,9 +1,9 @@
 ### CC Madhya 15.64
 
-> এইমত যবে করেন উত্তম রন্ধন ৷
+> এইমত যবে করেন উত্তম রন্ধন ৷\
 > মোরে খাওয়াইতে করে উৎকণ্ঠায় রোদন ॥৬৪॥
 
-> ei-mata yabe karena uttama randhana
+> ei-mata yabe karena uttama randhana\
 > more khāoyāite kare utkaṇṭhāya rodana
 
 *ei-mata*—de este modo; *yabe*—cuando; *karena*—hace; *uttama randhana*—una cocina de primera clase; *more*—a Mí; *khāoyāite*—para alimentar; *kare*—hace; *utkaṇṭhāya*—con gran ansiedad; *rodana*—llanto.

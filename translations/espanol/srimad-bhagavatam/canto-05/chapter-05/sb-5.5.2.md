@@ -1,11 +1,11 @@
 ### SB 5.5.2
 
-> महत्सेवां द्वारमाहुर्विमुक्तेस्तमोद्वारं योषितां सङ्गिसङ्गम
+> महत्सेवां द्वारमाहुर्विमुक्तेस्तमोद्वारं योषितां सङ्गिसङ्गम\
 > महान्तस्ते समचित्ताः प्रशान्ता विमन्यवः सुहृदः साधवो ये ॥२॥
 
-> mahat-sevāṁ dvāram āhur vimuktes
-> tamo-dvāraṁ yoṣitāṁ saṅgi-saṅgam
-> mahāntas te sama-cittāḥ praśāntā
+> mahat-sevāṁ dvāram āhur vimuktes\
+> tamo-dvāraṁ yoṣitāṁ saṅgi-saṅgam\
+> mahāntas te sama-cittāḥ praśāntā\
 > vimanyavaḥ suhṛdaḥ sādhavo ye
 
 *mahat-sevām*—servicio a las personas espiritualmente avanzadas, que reciben el nombre de *mahātmās*; *dvāram*—el sendero; *āhuḥ*—ellos dicen; *vimukteḥ*—de la liberación; *tamaḥ-dvāram*—el camino a la oscura prisión de las condiciones de vida infernal; *yoṣitām*—de mujeres; *saṅgi*—de compañeros; *saṅgam*—relación; *mahāntaḥ*—muy avanzados en entendimiento espiritual; *te*—ellos; *sama-cittāḥ*—personas que ven en todos la misma identidad espiritual; *praśāntāḥ*—muy pacíficos, situados en el Brahman o en Bhagavān; *vimanyavaḥ*—sin ira (se debe llevar el proceso de conciencia de Kṛṣṇa a las personas que están en contra de él sin irritarse con ellas); *suhṛdaḥ*—bienquerientes de todos; *sādhavaḥ*—devotos cualificados, sin comportamiento abominable; *ye*—aquellos que.

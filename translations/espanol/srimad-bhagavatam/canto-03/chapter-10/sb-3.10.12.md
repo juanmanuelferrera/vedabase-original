@@ -1,11 +1,11 @@
 ### SB 3.10.12
 
-> विश्वं वै ब्रह्मतन्मात्रं संस्थितं विष्णुमायया ।
+> विश्वं वै ब्रह्मतन्मात्रं संस्थितं विष्णुमायया ।\
 > ईश्वरेण परिच्छिन्नं कालेनाव्यक्तमूर्तिना ॥१२॥
 
-> viśvaṁ vai brahma-tan-mātraṁ
-> saṁsthitaṁ viṣṇu-māyayā
-> īśvareṇa paricchinnaṁ
+> viśvaṁ vai brahma-tan-mātraṁ\
+> saṁsthitaṁ viṣṇu-māyayā\
+> īśvareṇa paricchinnaṁ\
 > kālenāvyakta-mūrtinā
 
 *viśvam*—el fenómeno material; *vai*—ciertamente; *brahma*—el Supremo; *tat-mātram*—al igual que; *saṁsthitam*—situado; *viṣṇu-māyayā*—por la energía de Viṣṇu; *īśvareṇa*—por la Personalidad de Dios; *paricchinnam*—separado; *kālena*—por el tiempo eterno; *avyakta*—no manifestado; *mūrtinā*—por ese aspecto.

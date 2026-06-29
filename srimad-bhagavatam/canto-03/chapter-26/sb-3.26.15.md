@@ -1,11 +1,11 @@
 ### SB 3.26.15
 
-> एतावानेव सङ्ख्यातो ब्रह्मणः सगुणस्य ह ।
+> एतावानेव सङ्ख्यातो ब्रह्मणः सगुणस्य ह ।\
 > सन्निवेशो मया प्रोक्तो यः कालः पञ्चविंशकः ॥१५॥
 
-> etāvān eva saṅkhyāto
-> brahmaṇaḥ sa-guṇasya ha
-> sanniveśo mayā prokto
+> etāvān eva saṅkhyāto\
+> brahmaṇaḥ sa-guṇasya ha\
+> sanniveśo mayā prokto\
 > yaḥ kālaḥ pañca-viṁśakaḥ
 
 *etāvān*—so much; *eva*—just; *saṅkhyātaḥ*—enumerated; *brahmaṇaḥ*—of Brahman; *sa-guṇasya*—with material qualities; *ha*—indeed; *sanniveśaḥ*—arrangement; *mayā*—by Me; *proktaḥ*—spoken; *yaḥ*—which; *kālaḥ*—time; *pañca-viṁśakaḥ*—the twenty-fifth.

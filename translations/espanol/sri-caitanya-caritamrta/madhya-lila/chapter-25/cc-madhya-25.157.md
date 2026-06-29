@@ -1,11 +1,11 @@
 ### CC Madhya 25.157
 
-> পরিনিষ্ঠিতোঽপি নৈর্গুণ্যে উত্তমঃশ্লোকলীলয়া ৷
+> পরিনিষ্ঠিতোঽপি নৈর্গুণ্যে উত্তমঃশ্লোকলীলয়া ৷\
 > গৃহীতচেতা রাজর্ষে আখ্যানং যদধীতবান্ ৷৷ ১৫৭ ৷৷ ॥১৫৭॥
 
-> pariniṣṭhito 'pi nairguṇye
-> uttamaḥśloka-līlayā
-> gṛhīta-cetā rājarṣe
+> pariniṣṭhito 'pi nairguṇye\
+> uttamaḥśloka-līlayā\
+> gṛhīta-cetā rājarṣe\
 > ākhyānaṁ yad adhītavān
 
 *pariniṣṭhitaḥ*—situado; *api*—aunque; *nairguṇye*—en la posición trascendental, libre de las modalidades materiales de la naturaleza; *uttamaḥ-śloka-līlayā*—por los pasatiempos de la Suprema Personalidad de Dios, Uttamaḥśloka; *gṛhīta-cetā*—la mente quedó plenamente cautivada; *rājarṣe*—¡oh, gran rey!; *ākhyānam*—la narración; *yat*—que; *adhītavān*—estudió.

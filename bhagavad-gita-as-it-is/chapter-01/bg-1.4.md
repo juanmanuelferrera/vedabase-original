@@ -1,11 +1,11 @@
 ### Bg 1.4
 
-> अत्र शूरा महेष्वासा भीमार्जुनसमा युधि ।
+> अत्र शूरा महेष्वासा भीमार्जुनसमा युधि ।\
 > युयुधानो विराटश्च द्रुपदश्च महारथः ॥४॥
 
-> atra śūrā maheṣv-āsā
-> bhīmārjuna-samā yudhi
-> yuyudhāno virāṭaś ca
+> atra śūrā maheṣv-āsā\
+> bhīmārjuna-samā yudhi\
+> yuyudhāno virāṭaś ca\
 > drupadaś ca mahā-rathaḥ
 
 *atra*—here; *śūrāḥ*—heroes; *maheṣvāsāḥ*—mighty bowmen; *bhīma-arjuna*—Bhīma and Arjuna; *samāḥ*—equal; *yudhi*—in the fight; *yuyudhānaḥ*—Yuyudhāna; *virāṭaḥ*—Virāṭa; *ca*—also; *drupadaḥ*—Drupada; *ca*—also; *mahārathaḥ*—great fighter.

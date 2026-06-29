@@ -1,9 +1,9 @@
 ### CC Madhya 7.66
 
-> অলৌকিক বাক্য চেষ্টা তাঁর না বুঝিয়া ৷
+> অলৌকিক বাক্য চেষ্টা তাঁর না বুঝিয়া ৷\
 > পরিহাস করিয়াছি তাঁরে ‘বৈষ্ণব’ বলিয়া ৷৷ ৬৬ ৷৷ ॥৬৬॥
 
-> alaukika vākya ceṣṭā tāṅra nā bujhiyā
+> alaukika vākya ceṣṭā tāṅra nā bujhiyā\
 > parihāsa kariyāchi tāṅre 'vaiṣṇava' baliyā
 
 *alaukika*—poco corrientes; *vākya*—palabras; *ceṣṭā*—empeños; *tāṅra*—sus; *nā*—sin; *bujhiyā*—entender; *parihāsa*—bromeando; *kariyāchi*—he hecho; *tāṅre*—de él; *vaiṣṇava*—un devoto del Señor; *baliyā*—como.

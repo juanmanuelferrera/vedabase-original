@@ -1,11 +1,11 @@
 ### SB 1.15.37
 
-> युधिष्ठिरस्तत्परिसर्पणं बुधः पुरे च राष्ट्रे च गृहे तथात्मनि ।
+> युधिष्ठिरस्तत्परिसर्पणं बुधः पुरे च राष्ट्रे च गृहे तथात्मनि ।\
 > विभाव्य लोभानृतजिह्महिंसनाद्यधर्मचक्रं गमनाय पर्यधात् ॥३७॥
 
-> yudhiṣṭhiras tat parisarpaṇaṁ budhaḥ
-> pure ca rāṣṭre ca gṛhe tathātmani
-> vibhāvya lobhānṛta-jihma-hiṁsanādy-
+> yudhiṣṭhiras tat parisarpaṇaṁ budhaḥ\
+> pure ca rāṣṭre ca gṛhe tathātmani\
+> vibhāvya lobhānṛta-jihma-hiṁsanādy-\
 > adharma-cakraṁ gamanāya paryadhāt
 
 *yudhiṣṭhiraḥ*—Mahārāja Yudhiṣṭhira; *tat*—esa; *parisarpaṇam*—expansión; *budhaḥ*—sumamente experimentado; *pure*—en la capital; *ca*—así como también; *rāṣṭre*—en el Estado; *ca*—y; *gṛhe*—en casa; *tathā*—así como también; *ātmani*—en persona; *vibhāvya*—observando; *lobha*—avaricia; *anṛta*—falsedad; *jihma*—diplomacia; *hiṁsana-ādi*—violencia, envidia; *adharma*—irreligiosidad; *cakram*—un círculo vicioso; *gamanāya*—para partir; *paryadhāt*—se vistió debidamente.

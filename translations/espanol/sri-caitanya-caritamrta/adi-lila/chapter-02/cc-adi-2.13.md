@@ -1,9 +1,9 @@
 ### CC Adi 2.13
 
-> চর্মচক্ষে দেখে যৈছে সূর্য নির্বিশেষ ।
+> চর্মচক্ষে দেখে যৈছে সূর্য নির্বিশেষ ।\
 > জ্ঞানমার্গে লৈতে নারে কৃষ্ণের বিশেষ ॥১৩॥
 
-> carma-cakṣe dekhe yaiche sūrya nirviśeṣa
+> carma-cakṣe dekhe yaiche sūrya nirviśeṣa\
 > jñāna-mārge laite nāre kṛṣṇera viśeṣa
 
 *carma-cakṣe*—a simple vista; *dekhe*—uno ve; *yaiche*—así como; *sūrya*—el sol; *nirviśeṣa*—sin variedad; *jñāna-mārge*—mediante la senda de la especulación filosófica; *laite*—aceptar; *nāre*—no es capaz; *kṛṣṇera*—del Señor Kṛṣṇa; *viśeṣa*—la variedad.

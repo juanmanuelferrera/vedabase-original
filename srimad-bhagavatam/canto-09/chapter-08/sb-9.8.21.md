@@ -1,12 +1,12 @@
 ### SB 9.8.21
 
-> तत्रासीनं मुनिं वीक्ष्य कपिलाख्यमधोक्षजम
+> तत्रासीनं मुनिं वीक्ष्य कपिलाख्यमधोक्षजम\
 > अस्तौत्समाहितमनाः प्राञ्जलिः प्रणतो महान ॥२१॥
 
-> aṁśumān uvāca
-> na paśyati tvāṁ param ātmano 'jano
-> na budhyate 'dyāpi samādhi-yuktibhiḥ
-> kuto 'pare tasya manaḥ-śarīra-dhī-
+> aṁśumān uvāca\
+> na paśyati tvāṁ param ātmano 'jano\
+> na budhyate 'dyāpi samādhi-yuktibhiḥ\
+> kuto 'pare tasya manaḥ-śarīra-dhī-\
 > visarga-sṛṣṭā vayam aprakāśāḥ
 
 *aṁśumān uvāca*—Aṁśumān said; *na*—not; *paśyati*—can see; *tvām*—Your Lordship; *param*—transcendental; *ātmanaḥ*—of us living beings; *ajanaḥ*—Lord Brahmā; *na*—not; *budhyate*—can understand; *adya api*—even today; *samādhi*—by meditation; *yuktibhiḥ*—or by mental speculation; *kutaḥ*—how; *apare*—others; *tasya*—his; *manaḥ-śarīra-dhī*—who consider the body or mind to be the self; *visarga-sṛṣṭāḥ*—created beings within the material world; *vayam*—we; *aprakāśāḥ*—without transcendental knowledge.

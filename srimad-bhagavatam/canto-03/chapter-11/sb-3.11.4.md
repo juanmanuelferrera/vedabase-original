@@ -1,11 +1,11 @@
 ### SB 3.11.4
 
-> स कालः परमाणुर्वै यो भुङ्क्ते परमाणुताम् ।
+> स कालः परमाणुर्वै यो भुङ्क्ते परमाणुताम् ।\
 > सतोऽविशेषभुग्यस्तु स कालः परमो महान् ॥४॥
 
-> sa kālaḥ paramāṇur vai
-> yo bhuṅkte paramāṇutām
-> sato 'viśeṣa-bhug yas tu
+> sa kālaḥ paramāṇur vai\
+> yo bhuṅkte paramāṇutām\
+> sato 'viśeṣa-bhug yas tu\
 > sa kālaḥ paramo mahān
 
 *saḥ*—that; *kālaḥ*—eternal time; *parama-aṇuḥ*—atomic; *vai*—certainly; *yaḥ*—which; *bhuṅkte*—passes through; *parama-aṇutām*—the space of an atom; *sataḥ*—of the entire aggregate; *aviśeṣa-bhuk*—passing through the nondual exhibition; *yaḥ tu*—which; *saḥ*—that; *kālaḥ*—time; *paramaḥ*—the supreme; *mahān*—the great.

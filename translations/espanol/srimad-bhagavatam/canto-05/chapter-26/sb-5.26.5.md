@@ -1,9 +1,9 @@
 ### SB 5.26.5
 
-> ऋषिरुवाच
+> ऋषिरुवाच\
 > अन्तराल एव त्रिजगत्यास्तु दिशि दक्षिणस्यामधस्ताद्भूमेरुपरिष्टाच्चजलाद्यस्यामग्निष्वात्तादयः पितृगणा दिशि स्वानां गोत्राणां परमेण समाधिना सत्या एवाशिष आशासानानिवसन्ति ॥४॥
 
-> ṛṣir uvāca
+> ṛṣir uvāca\
 > antarāla eva tri-jagatyās tu diśi dakṣiṇasyām adhastād bhūmer upariṣṭāc ca jalād yasyām agniṣvāttādayaḥ pitṛ-gaṇā diśi svānāṁ gotrāṇāṁ parameṇa samādhinā satyā evāśiṣa āśāsānā nivasanti.
 
 *ṛṣiḥ uvāca*—el gran sabio contestó; *antarāle*—en el espacio intermedio; *eva*—ciertamente; *tri-jagatyāḥ*—de los tres mundos; *tu*—pero; *diśi*—en la dirección; *dakṣiṇasyām*—sur; *adhastāt*—por debajo; *bhūmeḥ*—sobre la Tierra; *upariṣṭāt*—un poco por encima; *ca*—y; *jalāt*—el océano Garbhodaka; *yasyām*—en el cual; *agniṣvāttā-ādayaḥ*—encabezados por Agniṣvāttā; *pitṛ-gaṇāḥ*—las personas conocidas con el nombre de *pitās*; *diśi*—dirección; *svānām*—sus propias; *gotrāṇām*—de las familias; *parameṇa*—con gran; *samādhinā*—absorción en pensamientos relacionados con el Señor; *satyāḥ*—en verdad; *eva*—ciertamente; *āśiṣaḥ*—bendiciones; *āśāsānāḥ*—deseando; *nivasanti*—viven.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.113
 
-> নিত্যানন্দ গোসাঞি বুলে আচার্য ধরিঞা ৷
+> নিত্যানন্দ গোসাঞি বুলে আচার্য ধরিঞা ৷\
 > হরিদাস পাছে নাচে হরষিত হঞা ॥১১৩॥
 
-> nityānanda gosāñi bule ācārya dhariñā
+> nityānanda gosāñi bule ācārya dhariñā\
 > haridāsa pāche nāce haraṣita hañā
 
 *nityānanda gosāñi*—el Señor Nityānanda Prabhu; *bule*—comenzó a moverse danzando; *ācārya dhariñā*—siguiendo a Advaita Ācārya; *haridāsa*—Haridāsa Ṭhākura; *pāche*—detrás; *nāce*—danza; *haraṣita hañā*—sintiéndose complacido.

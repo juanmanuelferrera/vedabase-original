@@ -1,11 +1,11 @@
 ### SB 1.10.36
 
-> तत्र तत्र ह तत्रत्यैर्हरिः प्रत्युद्यतार्हणः ।
+> तत्र तत्र ह तत्रत्यैर्हरिः प्रत्युद्यतार्हणः ।\
 > सायं भेजे दिशं पश्चाद्गविष्ठो गां गतस्तदा ॥३६॥
 
-> tatra tatra ha tatratyair
-> hariḥ pratyudyatārhaṇaḥ
-> sāyaṁ bheje diśaṁ paścād
+> tatra tatra ha tatratyair\
+> hariḥ pratyudyatārhaṇaḥ\
+> sāyaṁ bheje diśaṁ paścād\
 > gaviṣṭho gāṁ gatas tadā
 
 *tatra tatra*—at different places; *ha*—it so happened; *tatratyaiḥ*—by local inhabitants; *hariḥ*—the Personality of Godhead; *pratyudyata-arhaṇaḥ*—being offered presentations and worshipful regards; *sāyam*—the evening; *bheje*—having overtaken; *diśam*—direction; *paścāt*—eastern; *gaviṣṭhaḥ*—the sun in the sky; *gām*—to the ocean; *gataḥ*—having gone; *tadā*—at that time.

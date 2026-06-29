@@ -1,9 +1,9 @@
 ### CC Madhya 3.117
 
-> অনেক দিন তুমি মোরে বেড়াইলে ভাণ্ডিয়া ।
+> অনেক দিন তুমি মোরে বেড়াইলে ভাণ্ডিয়া ।\
 > ঘরেতে পাঞাছি, এবে রাখিব বান্ধিয়া ॥১১৭॥
 
-> aneka dina tumi more beḍāile bhāṇḍiyā
+> aneka dina tumi more beḍāile bhāṇḍiyā\
 > gharete pāñāchi, ebe rākhiba bāndhiyā
 
 *anekadina*—many days; *tumi*—You; *more*—Me; *beḍāile*—escaped; *bhāṇḍiyā*—cheating or bluffing; *gharete*—at My home; *pāñāchi*—I have gotten; *ebe*—now; *rākhiba*—I shall keep; *bāndhiyā*—binding up.

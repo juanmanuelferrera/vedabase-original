@@ -1,9 +1,9 @@
 ### CC Adi 6.117
 
-> তোমার মহিমা — কোটিসমুদ্র অগাধ ।
+> তোমার মহিমা — কোটিসমুদ্র অগাধ ।\
 > তাহার ইয়ত্তা কহি, — এ বড় অপরাধ ॥১১৭॥
 
-> tomāra mahimā--koṭi-samudra agādha
+> tomāra mahimā--koṭi-samudra agādha\
 > tāhāra iyattā kahi,--e baḍa aparādha
 
 *tomāra mahimā*—Tus glorias; *koṭi-samudra agādha*—tan insondables como millones de mares y océanos; *tāhāra*—de eso; *iyattā*—la medida; *kahi*—digo; *e*—esta; *baḍa*—gran; *aparādha*—ofensa.

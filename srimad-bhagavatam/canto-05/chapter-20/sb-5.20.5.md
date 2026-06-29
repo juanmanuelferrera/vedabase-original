@@ -1,11 +1,11 @@
 ### SB 5.20.5
 
-> प्रत्नस्य विष्णो रूपं यत्सत्यस्यर्तस्य ब्रह्मणः
+> प्रत्नस्य विष्णो रूपं यत्सत्यस्यर्तस्य ब्रह्मणः\
 > अमृतस्य च मृत्योश्च सूर्यमात्मानमीमहीति ॥५॥
 
-> pratnasya viṣṇo rūpaṁ yat
-> satyasyartasya brahmaṇaḥ
-> amṛtasya ca mṛtyoś ca
+> pratnasya viṣṇo rūpaṁ yat\
+> satyasyartasya brahmaṇaḥ\
+> amṛtasya ca mṛtyoś ca\
 > sūryam ātmānam īmahīti
 
 *pratnasya*—of the oldest person; *viṣṇoḥ*—Lord Viṣṇu; *rūpam*—the form; *yat*—which; *satyasya*—of the Absolute Truth; *ṛtasya*—of *dharma*; *brahmaṇaḥ*—of the Supreme Brahman; *amṛtasya*—of the auspicious result; *ca*—and; *mṛtyoḥ*—of death (the inauspicious result); *ca*—and; *sūryam*—the demigod Sūrya; *ātmānam*—the Supersoul or origin of all souls; *īmahi*—we approach for shelter; *iti*—thus.

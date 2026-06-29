@@ -1,11 +1,11 @@
 ### SB 1.9.27
 
-> दानधर्मान्राजधर्मान्मोक्षधर्मान्विभागशः ।
+> दानधर्मान्राजधर्मान्मोक्षधर्मान्विभागशः ।\
 > स्त्रीधर्मान्भगवद्धर्मान्समासव्यासयोगतः ॥२७॥
 
-> dāna-dharmān rāja-dharmān
-> mokṣa-dharmān vibhāgaśaḥ
-> strī-dharmān bhagavad-dharmān
+> dāna-dharmān rāja-dharmān\
+> mokṣa-dharmān vibhāgaśaḥ\
+> strī-dharmān bhagavad-dharmān\
 > samāsa-vyāsa-yogataḥ
 
 *dāna-dharmān*—los actos de caridad; *rāja-dharmān*—las actividades pragmáticas de los reyes; *mokṣa-dharmān*—los actos para la salvación; *vibhāgaśaḥ*—mediante divisiones; *strī-dharmān*—deberes de mujeres; *bhagavat-dharmān*—los actos de los devotos; *samāsa*—generalmente; *vyāsa*—explícitamente; *yogataḥ*—por medio de.

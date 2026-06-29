@@ -1,11 +1,11 @@
 ### SB 7.10.7
 
-> यदि दास्यसि मे कामान्वरांस्त्वं वरदर्षभ
+> यदि दास्यसि मे कामान्वरांस्त्वं वरदर्षभ\
 > कामानां हृद्यसंरोहं भवतस्तु वृणे वरम ॥७॥
 
-> yadi dāsyasi me kāmān
-> varāṁs tvaṁ varadarṣabha
-> kāmānāṁ hṛdy asaṁrohaṁ
+> yadi dāsyasi me kāmān\
+> varāṁs tvaṁ varadarṣabha\
+> kāmānāṁ hṛdy asaṁrohaṁ\
 > bhavatas tu vṛṇe varam
 
 *yadi*—si; *dāsyasi*—quieres dar; *me*—a mí; *kāmān*—algo deseable; *varān*—como bendición Tuya; *tvam*—Tú; *varada-ṛṣabha*—¡oh, Suprema Personalidad de Dios, que puedes dar toda bendición!; *kāmānām*—de todos los deseos de felicidad material; *hṛdi*—en lo más hondo de mi corazón; *asaṁroham*—que no surjan; *bhavataḥ*—de Ti; *tu*—entonces; *vṛṇe*—oro por; *varam*—esa bendición.

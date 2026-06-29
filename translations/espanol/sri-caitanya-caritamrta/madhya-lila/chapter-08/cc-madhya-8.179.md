@@ -1,9 +1,9 @@
 ### CC Madhya 8.179
 
-> কৃষ্ণ-নাম-গুণ-যশ — অবতংস কাণে ৷
+> কৃষ্ণ-নাম-গুণ-যশ — অবতংস কাণে ৷\
 > কৃষ্ণ-নাম-গুণ-যশ-প্রবাহ-বচনে ৷৷ ১৭৯ ৷৷ ॥১৭৯॥
 
-> kṛṣṇa-nāma-guṇa-yaśa--avataṁsa kāṇe
+> kṛṣṇa-nāma-guṇa-yaśa--avataṁsa kāṇe\
 > kṛṣṇa-nāma-guṇa-yaśa-pravāha-vacane
 
 *kṛṣṇa*—del Señor Kṛṣṇa; *nāma*—el santo nombre; *guṇa*—las cualidades; *yaśa*—la fama; *avataṁsa*—ornamentos; *kāṇe*—en la oreja; *kṛṣṇa*—del Señor Kṛṣṇa; *nāma*—del santo nombre; *guṇa*—de las cualidades; *yaśa*—de la fama; *pravāha*—oleadas; *vacane*—en Su hablar.

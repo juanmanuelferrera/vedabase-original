@@ -1,9 +1,9 @@
 ### CC Madhya 8.13
 
-> ঘাট ছাড়ি’ কতদূরে জল-সন্নিধানে ।
+> ঘাট ছাড়ি’ কতদূরে জল-সন্নিধানে ।\
 > বসি’ প্রভু করে কৃষ্ণনাম-সংকীর্তনে ॥১৩॥
 
-> ghāṭa chāḍi' kata-dūre jala-sannidhāne
+> ghāṭa chāḍi' kata-dūre jala-sannidhāne\
 > vasi' prabhu kare kṛṣṇa-nāma-saṅkīrtane
 
 *ghāṭa chāḍi'*—leaving the bathing place; *kata-dūre*—a short distance away; *jala-sannidhāne*—near the water; *vasi'*—sitting; *prabhu*—the Lord; *kare*—does; *kṛṣṇa-nāma-saṅkīrtane*—chanting of the holy name of Lord Kṛṣṇa.

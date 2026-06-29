@@ -1,11 +1,11 @@
 ### SB 3.30.15
 
-> आस्तेऽवमत्योपन्यस्तं गृहपाल इवाहरन् ।
+> आस्तेऽवमत्योपन्यस्तं गृहपाल इवाहरन् ।\
 > आमयाव्यप्रदीप्ताग्निरल्पाहारोऽल्पचेष्टितः ॥१५॥
 
-> āste 'vamatyopanyastaṁ
-> gṛha-pāla ivāharan
-> āmayāvy apradīptāgnir
+> āste 'vamatyopanyastaṁ\
+> gṛha-pāla ivāharan\
+> āmayāvy apradīptāgnir\
 > alpāhāro 'lpa-ceṣṭitaḥ
 
 *āste*—he remains; *avamatyā*—negligently; *upanyastam*—what is placed; *gṛha-pālaḥ*—a dog; *iva*—like; *āharan*—eating; *āmayāvī*—diseased; *apradīpta-agniḥ*—having dyspepsia; *alpa*—little; *āhāraḥ*—eating; *alpa*—little; *ceṣṭitaḥ*—his activity.

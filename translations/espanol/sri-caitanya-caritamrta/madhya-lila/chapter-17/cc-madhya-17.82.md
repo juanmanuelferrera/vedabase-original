@@ -1,9 +1,9 @@
 ### CC Madhya 17.82
 
-> এইমত নানা-সুখে প্রভু আইলা ‘কাশী’ ।
+> এইমত নানা-সুখে প্রভু আইলা ‘কাশী’ ।\
 > মধ্যাহ্ন-স্নান কৈল মণিকর্ণিকায় আসি’ ॥৮২॥
 
-> ei-mata nānā-sukhe prabhu āilā 'kāśī'
+> ei-mata nānā-sukhe prabhu āilā 'kāśī'\
 > madhyāhna-snāna kaila maṇikarṇikāya āsi'
 
 *ei-mata*—de esta manera; *nānā-sukhe*—con gran felicidad; *prabhu*—Śrī Caitanya Mahāprabhu; *āilā*—llegó; *kāśī*—al lugar sagrado llamado Kāśī; *madhyāhna-snāna*—baño de la tarde; *kaila*—tomó; *maṇikarṇikāya*—al lugar de baño conocido como Maṇikarṇikā; *āsi'*—llegando.

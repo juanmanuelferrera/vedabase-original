@@ -1,9 +1,9 @@
 ### CC Antya 13.100
 
-> এইমতে রঘুনাথ আইলা নীলাচলে ।
+> এইমতে রঘুনাথ আইলা নীলাচলে ।\
 > প্রভুর চরণে যাঞা মিলিলা কুতূহলে ॥১০০॥
 
-> ei-mate raghunātha āilā nīlācale
+> ei-mate raghunātha āilā nīlācale\
 > prabhura caraṇe yāñā mililā kutūhale
 
 *ei-mate*—in this way; *raghunātha*—Raghunātha Bhaṭṭa; *āilā*—came; *nīlācale*—to Jagannātha Purī; *prabhura caraṇe*—to the lotus feet of Śrī Caitanya Mahāprabhu; *yāñā*—going; *mililā*—met; *kutūhale*—in great delight.

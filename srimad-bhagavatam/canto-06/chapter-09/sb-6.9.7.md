@@ -1,11 +1,11 @@
 ### SB 6.9.7
 
-> भूमिस्तुरीयं जग्राह खातपूरवरेण वै
+> भूमिस्तुरीयं जग्राह खातपूरवरेण वै\
 > ईरिणं ब्रह्महत्याया रूपं भूमौ प्रदृश्यते ॥७॥
 
-> bhūmis turīyaṁ jagrāha
-> khāta-pūra-vareṇa vai
-> īriṇaṁ brahma-hatyāyā
+> bhūmis turīyaṁ jagrāha\
+> khāta-pūra-vareṇa vai\
+> īriṇaṁ brahma-hatyāyā\
 > rūpaṁ bhūmau pradṛśyate
 
 *bhūmiḥ*—the earth; *turīyam*—one fourth; *jagrāha*—accepted; *khāta-pūra*—of the filling of holes; *vareṇa*—because of the benediction; *vai*—indeed; *īriṇam*—the deserts; *brahma-hatyāyāḥ*—of the reaction for killing a *brāhmaṇa*; *rūpam*—form; *bhūmau*—on the earth; *pradṛśyate*—is visible.

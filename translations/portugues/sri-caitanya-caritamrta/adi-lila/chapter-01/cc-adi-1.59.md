@@ -1,8 +1,8 @@
 ### CC Adi 1.59
 
-> tato duḥsaṅgam utsṛjya
-> satsu sajjeta buddhi-mān
-> santa evāsya chindanti
+> tato duḥsaṅgam utsṛjya\
+> satsu sajjeta buddhi-mān\
+> santa evāsya chindanti\
 > mano-vyāsaṅgam uktibhiḥ
 
 *tataḥ*—portanto; *duḥsaṅgam*—má associação; *utsrjya*—abandonando; *satsu*—com os devotos; *sajjeta*—deve-se associar; *buddhi-mān*—uma pessoa inteligente; *santaḥ*—devotos; *eva*—certamente; *asya*—de alguém; *chindanti*—cortam; *manaḥ-vyāsaṅgam*—apegos opostos; *uktibhiḥ*—com suas instruções.

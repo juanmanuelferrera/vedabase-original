@@ -1,11 +1,11 @@
 ### SB 2.5.36
 
-> यस्येहावयवैर्लोकान्कल्पयन्ति मनीषिणः ।
+> यस्येहावयवैर्लोकान्कल्पयन्ति मनीषिणः ।\
 > कट्यादिभिरधः सप्त सप्तोर्ध्वं जघनादिभिः ॥३६॥
 
-> yasyehāvayavair lokān
-> kalpayanti manīṣiṇaḥ
-> kaṭy-ādibhir adhaḥ sapta
+> yasyehāvayavair lokān\
+> kalpayanti manīṣiṇaḥ\
+> kaṭy-ādibhir adhaḥ sapta\
 > saptordhvaṁ jaghanādibhiḥ
 
 *yasya*—cuyo; *iha*—en el universo; *avayavaiḥ*—por las extremidades del cuerpo; *lokān*—todos los planetas; *kalpayanti*—imaginan; *manīṣiṇaḥ*—grandes filósofos; *kaṭi-ādibhiḥ*—descendiendo desde la cintura; *adhaḥ*—hacia abajo; *sapta*—siete sistemas; *sapta-ūrdhvam*—y siete sistemas hacia arriba; *jaghanādibhiḥ*—porción delantera.

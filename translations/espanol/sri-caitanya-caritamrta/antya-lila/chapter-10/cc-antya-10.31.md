@@ -1,9 +1,9 @@
 ### CC Antya 10.31
 
-> শালি-ধান্যের খই পুনঃ ঘৃতেতে ভাজিয়া ।
+> শালি-ধান্যের খই পুনঃ ঘৃতেতে ভাজিয়া ।\
 > চিনি-পাক উখ্ড়া কৈলা কর্পূরাদি দিয়া ॥৩১॥
 
-> śāli-dhānyera kha-i punaḥ ghṛtete bhājiyā
+> śāli-dhānyera kha-i punaḥ ghṛtete bhājiyā\
 > cini-pāka ukhḍā kailā karpūrādi diyā
 
 *śāli-dhānyera kha-i*—arroz tostado de arroz fino; *punaḥ*—de nuevo; *ghṛtete bhājiyā*—friéndolo en ghee; *cini-pāka*—hirviéndolo en jugo de azúcar; *ukhḍā*—del nombre ukhḍā; *kailā*—hizo; *karpūra-ādi diyā*—mezclando con alcanfor.

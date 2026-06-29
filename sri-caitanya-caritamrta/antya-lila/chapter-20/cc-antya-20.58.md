@@ -1,13 +1,13 @@
 ### CC Antya 20.58
 
-> “কৃষ্ণ — মোর জীবন, কৃষ্ণ — মোর প্রাণধন,
-> কৃষ্ণ — মোর প্রাণের পরাণ ।
-> হৃদয়-উপরে ধরোঁ, সেবা করি’ সুখী করোঁ,
+> “কৃষ্ণ — মোর জীবন, কৃষ্ণ — মোর প্রাণধন,\
+> কৃষ্ণ — মোর প্রাণের পরাণ ।\
+> হৃদয়-উপরে ধরোঁ, সেবা করি’ সুখী করোঁ,\
 > এই মোর সদা রহে ধ্যান ॥৫৮॥
 
-> "kṛṣṇa—mora jīvana, kṛṣṇa—mora prāṇa-dhana,
-> kṛṣṇa—mora prāṇera parāṇa
-> hṛdaya-upare dharoṅ, sevā kari' sukhī karoṅ,
+> "kṛṣṇa—mora jīvana, kṛṣṇa—mora prāṇa-dhana,\
+> kṛṣṇa—mora prāṇera parāṇa\
+> hṛdaya-upare dharoṅ, sevā kari' sukhī karoṅ,\
 > ei mora sadā rahe dhyāna
 
 *kṛṣṇa*—Lord Kṛṣṇa; *mora jīvana*—My life and soul; *kṛṣṇa*—Lord Kṛṣṇa; *mora prāṇa-dhana*—the wealth of My life; *kṛṣṇa*—Lord Kṛṣṇa; *mora prāṇera parāna*—the life of My life; *hṛdaya-upare*—on My heart; *dharoṅ*—I hold; *sevā kari'*—serving; *sukhī karoṅ*—I make happy; *ei*—this; *mora*—My; *sadā*—always; *rahe*—remains; *dhyāna*—meditation.

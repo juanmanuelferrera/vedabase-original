@@ -1,13 +1,13 @@
 ### SB 1.7.2
 
-> सूत उवाच
-> ब्रह्मनद्यां सरस्वत्यामाश्रमः पश्चिमे तटे ।
+> सूत उवाच\
+> ब्रह्मनद्यां सरस्वत्यामाश्रमः पश्चिमे तटे ।\
 > शम्याप्रास इति प्रोक्त ऋषीणां सत्रवर्धनः ॥२॥
 
-> sūta uvāca
-> brahma-nadyāṁ sarasvatyām
-> āśramaḥ paścime taṭe
-> śamyāprāsa iti prokta
+> sūta uvāca\
+> brahma-nadyāṁ sarasvatyām\
+> āśramaḥ paścime taṭe\
+> śamyāprāsa iti prokta\
 > ṛṣīṇāṁ satra-vardhanaḥ
 
 *sūtaḥ*—Śrī Sūta; *uvāca*—said; *brahma-nadyām*—on the bank of the river intimately related with *Vedas, brāhmaṇas,* saints, and the Lord; *sarasvatyām*—Sarasvatī; *āśramaḥ*—cottage for meditation; *paścime*—on the west; *taṭe*—bank; *śamyāprāsaḥ*—the place named Śamyāprāsa; *iti*—thus; *proktaḥ*—said to be; *ṛṣīṇām*—of the sages; *satra-vardhanaḥ*—that which enlivens activities.

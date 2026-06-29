@@ -1,9 +1,9 @@
 ### CC Adi 5.76
 
-> গর্ভোদ-ক্ষীরোদশায়ী দোঁহে ‘পুরুষ’ নাম ।
+> গর্ভোদ-ক্ষীরোদশায়ী দোঁহে ‘পুরুষ’ নাম ।\
 > সেই দুই, যাঁর অংশ, — বিষ্ণু, বিশ্বধাম ॥৭৬॥
 
-> garbhoda-kṣīroda-śāyī doṅhe 'puruṣa' nāma
+> garbhoda-kṣīroda-śāyī doṅhe 'puruṣa' nāma\
 > sei dui, yāṅra aṁśa,—viṣṇu, viśva-dhāma
 
 *garbha-uda*—in the ocean known as Garbhodaka within the universe; *kṣīra-uda-śāyī*—one who lies in the ocean of milk; *doṅhe*—both of Them; *puruṣa nāma*—known as *puruṣa,* Lord Viṣṇu; *sei*—those; *dui*—two; *yāṅra aṁśa*—whose plenary portions; *viṣṇu viśva-dhāma*—Lord Viṣṇu, the abode of the total universes.

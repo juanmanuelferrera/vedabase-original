@@ -1,11 +1,11 @@
 ### SB 1.5.39
 
-> इमं स्वनिगमं ब्रह्मन्नवेत्य मदनुष्ठितम् ।
+> इमं स्वनिगमं ब्रह्मन्नवेत्य मदनुष्ठितम् ।\
 > अदान्मे ज्ञानमैश्वर्यं स्वस्मिन्भावं च केशवः ॥३९॥
 
-> imaṁ sva-nigamaṁ brahmann
-> avetya mad-anuṣṭhitam
-> adān me jñānam aiśvaryaṁ
+> imaṁ sva-nigamaṁ brahmann\
+> avetya mad-anuṣṭhitam\
+> adān me jñānam aiśvaryaṁ\
 > svasmin bhāvaṁ ca keśavaḥ
 
 *imam*—thus; *sva-nigamam*—confidential knowledge of the *Vedas* in respect to the Supreme Personality of Godhead; *brahman*—O *brāhmaṇa* (Vyāsadeva); *avetya*—knowing it well; *mat*—by me; *anuṣṭhitam*—executed; *adāt*—bestowed upon me; *me*—me; *jñānam*—transcendental knowledge; *aiśvaryam*—opulence; *svasmin*—personal; *bhāvam*—intimate affection and love; *ca*—and; *keśavaḥ*—Lord Kṛṣṇa.

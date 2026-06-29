@@ -1,11 +1,11 @@
 ### SB 7.6.16
 
-> विद्वानपीत्थं दनुजाः कुटुम्बं पुष्णन्स्वलोकाय न कल्पते वै
+> विद्वानपीत्थं दनुजाः कुटुम्बं पुष्णन्स्वलोकाय न कल्पते वै\
 > यः स्वीयपारक्यविभिन्नभावस्तमः प्रपद्येत यथा विमूढः ॥१६॥
 
-> vidvān apītthaṁ danujāḥ kuṭumbaṁ
-> puṣṇan sva-lokāya na kalpate vai
-> yaḥ svīya-pārakya-vibhinna-bhāvas
+> vidvān apītthaṁ danujāḥ kuṭumbaṁ\
+> puṣṇan sva-lokāya na kalpate vai\
+> yaḥ svīya-pārakya-vibhinna-bhāvas\
 > tamaḥ prapadyeta yathā vimūḍhaḥ
 
 *vidvān*—knowing (the inconvenience of material existence, especially in household life); *api*—although; *ittham*—thus; *danu-jāḥ*—O sons of demons; *kuṭumbam*—the family members or extended family members (like one's community, society, nation or union of nations); *puṣṇan*—providing with all the necessities of life; *sva-lokāya*—in understanding himself; *na*—not; *kalpate*—capable; *vai*—indeed; *yaḥ*—he who; *svīya*—my own; *pārakya*—belonging to others; *vibhinna*—separate; *bhāvaḥ*—having a conception of life; *tamaḥ*—nothing but darkness; *prapadyeta*—enters; *yathā*—just as; *vimūḍhaḥ*—a person without education, or one who is like an animal.

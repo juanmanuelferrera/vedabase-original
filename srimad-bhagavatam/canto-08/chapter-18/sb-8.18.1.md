@@ -1,13 +1,13 @@
 ### SB 8.18.1
 
-> श्रीशुक उवाच
-> इत्थं विरिञ्चस्तुतकर्मवीर्यः प्रादुर्बभूवामृतभूरदित्याम
+> श्रीशुक उवाच\
+> इत्थं विरिञ्चस्तुतकर्मवीर्यः प्रादुर्बभूवामृतभूरदित्याम\
 > चतुर्भुजः शङ्खगदाब्जचक्रः पिशङ्गवासा नलिनायतेक्षणः ॥१॥
 
-> śrī-śuka uvāca
-> itthaṁ viriñca-stuta-karma-vīryaḥ
-> prādurbabhūvāmṛta-bhūr adityām
-> catur-bhujaḥ śaṅkha-gadābja-cakraḥ
+> śrī-śuka uvāca\
+> itthaṁ viriñca-stuta-karma-vīryaḥ\
+> prādurbabhūvāmṛta-bhūr adityām\
+> catur-bhujaḥ śaṅkha-gadābja-cakraḥ\
 > piśaṅga-vāsā nalināyatekṣaṇaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *ittham*—in this way; *viriñca-stuta-karma-vīryaḥ*—the Personality of Godhead, whose activities and prowess are always praised by Lord Brahmā; *prādurbabhūva*—became manifested; *amṛta-bhūḥ*—whose appearance is always deathless; *adityām*—from the womb of Aditi; *catuḥ-bhujaḥ*—having four arms; *śaṅkha-gadā-abja-cakraḥ*—decorated with conchshell, club, lotus and disc; *piśaṅga-vāsāḥ*—dressed in yellow garments; *nalina-āyata-īkṣaṇaḥ*—having blooming eyes like the petals of a lotus.

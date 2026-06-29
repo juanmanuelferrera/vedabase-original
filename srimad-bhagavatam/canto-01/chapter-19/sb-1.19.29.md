@@ -1,11 +1,11 @@
 ### SB 1.19.29
 
-> स विष्णुरातोऽतिथय आगताय तस्मै सपर्यां शिरसाजहार ।
+> स विष्णुरातोऽतिथय आगताय तस्मै सपर्यां शिरसाजहार ।\
 > ततो निवृत्ता ह्यबुधाः स्त्रियोऽर्भका महासने सोपविवेश पूजितः ॥२९॥
 
-> sa viṣṇu-rāto 'tithaya āgatāya
-> tasmai saparyāṁ śirasājahāra
-> tato nivṛttā hy abudhāḥ striyo 'rbhakā
+> sa viṣṇu-rāto 'tithaya āgatāya\
+> tasmai saparyāṁ śirasājahāra\
+> tato nivṛttā hy abudhāḥ striyo 'rbhakā\
 > mahāsane sopaviveśa pūjitaḥ
 
 *saḥ*—he; *viṣṇu-rātaḥ*—Mahārāja Parīkṣit (who is always protected by Lord Viṣṇu); *atithaye*—to become a guest; *āgatāya*—one who arrived there; *tasmai*—unto him; *saparyām*—with the whole body; *śirasā*—with bowed head; *ājahāra*—offered obeisances; *tataḥ*—thereafter; *nivṛttāḥ*—ceased; *hi*—certainly; *abudhāḥ*—less intelligent; *striyaḥ*—women; *arbhakāḥ*—boys; *mahā-āsane*—exalted seat; *sa*—he; *upaviveśa*—sat down; *pūjitaḥ*—being respected.

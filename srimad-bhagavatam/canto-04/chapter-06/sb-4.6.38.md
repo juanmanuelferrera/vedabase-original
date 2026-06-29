@@ -1,11 +1,11 @@
 ### SB 4.6.38
 
-> कृत्वोरौ दक्षिणे सव्यं पादपद्मं च जानुनि ।
+> कृत्वोरौ दक्षिणे सव्यं पादपद्मं च जानुनि ।\
 > बाहुं प्रकोष्ठेऽक्षमालामासीनं तर्कमुद्रया ॥३८॥
 
-> kṛtvorau dakṣiṇe savyaṁ
-> pāda-padmaṁ ca jānuni
-> bāhuṁ prakoṣṭhe 'kṣa-mālām
+> kṛtvorau dakṣiṇe savyaṁ\
+> pāda-padmaṁ ca jānuni\
+> bāhuṁ prakoṣṭhe 'kṣa-mālām\
 > āsīnaṁ tarka-mudrayā
 
 *kṛtvā*—having placed; *ūrau*—thigh; *dakṣiṇe*—at the right; *savyam*—the left; *pāda-padmam*—lotus feet; *ca*—and; *jānuni*—on his knee; *bāhum*—hand; *prakoṣṭhe*—in the end of the right hand; *akṣa-mālām*—*rudrākṣa* beads; *āsīnam*—sitting; *tarka-mudrayā*—with the *mudrā* of argument.

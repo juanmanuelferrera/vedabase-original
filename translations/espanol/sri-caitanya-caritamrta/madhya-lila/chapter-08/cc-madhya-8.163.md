@@ -1,13 +1,13 @@
 ### CC Madhya 8.163
 
-> আনন্দচিন্ময়রস-প্রতিভাবিতাভি-
-> স্তাভির্য এব নিজরূপতয়া কলাভিঃ ৷
-> গোলোক এব নিবসত্যখিলাত্মভূতো
+> আনন্দচিন্ময়রস-প্রতিভাবিতাভি-\
+> স্তাভির্য এব নিজরূপতয়া কলাভিঃ ৷\
+> গোলোক এব নিবসত্যখিলাত্মভূতো\
 > গোবিন্দমাদিপুরুষং তমহং ভজামি ৷৷ ১৬৩ ৷৷ ॥১৬৩॥
 
-> ānanda-cinmaya-rasa-pratibhāvitābhis
-> tābhir ya eva nija-rūpatayā kalābhiḥ
-> goloka eva nivasty akhilātma-bhūto
+> ānanda-cinmaya-rasa-pratibhāvitābhis\
+> tābhir ya eva nija-rūpatayā kalābhiḥ\
+> goloka eva nivasty akhilātma-bhūto\
 > govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 *ānanda*—bienaventuranza; *cit*—conocimiento; *maya*—que consiste en; *rasa*—mellows; *prati*—a cada instante; *bhāvitābhiḥ*—que están absortas en; *tābhiḥ*—con aquellas; *yaḥ*—quien; *eva*—ciertamente; *nija-rūpatayā*—con Su propia forma; *kalābhiḥ*—que son partes de porciones de Su potencia de placer; *goloke*—en Goloka Vṛndāvana; *eva*—ciertamente; *nivasti*—reside; *akhila-ātma*—como el alma de todos; *bhūtaḥ*—que existe; *govindam*—el Señor Govinda; *ādi-puruṣam*—la personalidad original; *tam*—a Él; *aham*—yo; *bhajāmi*—adoro.

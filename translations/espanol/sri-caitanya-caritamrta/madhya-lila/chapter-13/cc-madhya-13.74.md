@@ -1,9 +1,9 @@
 ### CC Madhya 13.74
 
-> উদ্দণ্ড-নৃত্যে প্ৰভুর যবে হৈল মন ।
+> উদ্দণ্ড-নৃত্যে প্ৰভুর যবে হৈল মন ।\
 > স্বরূপের সঙ্গে দিল এই নব জন ॥৭৪॥
 
-> uddaṇḍa-nṛtye prabhura yabe haila mana
+> uddaṇḍa-nṛtye prabhura yabe haila mana\
 > svarūpera saṅge dila ei nava jana
 
 *uddaṇḍa-nṛtye*—en la danza con grandes saltos; *prabhura*—de Śrī Caitanya Mahāprabhu; *yabe*—cuando; *haila mana*—fue el deseo; *svarūpera*—de Svarūpa Dāmodara; *saṅge*—con; *dila*—entregó; *ei*—a estas; *nava jana*—nueve personas.

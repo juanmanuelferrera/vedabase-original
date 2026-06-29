@@ -1,11 +1,11 @@
 ### SB 8.20.9
 
-> सुलभा युधि विप्रर्षे ह्यनिवृत्तास्तनुत्यजः
+> सुलभा युधि विप्रर्षे ह्यनिवृत्तास्तनुत्यजः\
 > न तथा तीर्थ आयाते श्रद्धया ये धनत्यजः ॥९॥
 
-> sulabhā yudhi viprarṣe
-> hy anivṛttās tanu-tyajaḥ
-> na tathā tīrtha āyāte
+> sulabhā yudhi viprarṣe\
+> hy anivṛttās tanu-tyajaḥ\
+> na tathā tīrtha āyāte\
 > śraddhayā ye dhana-tyajaḥ
 
 *su-labhāḥ*—que se obtiene fácilmente; *yudhi*—en el campo de batalla; *vipra-ṛṣe*—¡oh, el mejor de los *brāhmaṇas*!; *hi*—en verdad; *anivṛttāḥ*—sin tener miedo del combate; *tanu-tyajaḥ*—y dar así la vida; *na*—no; *tathā*—como; *tīrthe āyāte*—a la llegada de una persona santa que crea lugares sagrados; *śraddhayā*—con fe y devoción; *ye*—aquellos que; *dhana-tyajaḥ*—pueden abandonar las riquezas adquiridas.

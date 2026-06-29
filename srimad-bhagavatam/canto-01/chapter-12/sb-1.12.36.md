@@ -1,11 +1,11 @@
 ### SB 1.12.36
 
-> ततो राज्ञाभ्यनुज्ञातः कृष्णया सहबन्धुभिः ।
+> ततो राज्ञाभ्यनुज्ञातः कृष्णया सहबन्धुभिः ।\
 > ययौ द्वारवतीं ब्रह्मन्सार्जुनो यदुभिर्वृतः ॥३६॥
 
-> tato rājñābhyanujñātaḥ
-> kṛṣṇayā saha-bandhubhiḥ
-> yayau dvāravatīṁ brahman
+> tato rājñābhyanujñātaḥ\
+> kṛṣṇayā saha-bandhubhiḥ\
+> yayau dvāravatīṁ brahman\
 > sārjuno yadubhir vṛtaḥ
 
 *tataḥ*—thereafter; *rājñā*—by the King; *abhyanujñātaḥ*—being permitted; *kṛṣṇayā*—as well as by Draupadī; *saha*—along with; *bandhubhiḥ*—other relatives; *yayau*—went to; *dvāravatīm*—Dvārakādhāma; *brahman*—O *brāhmaṇas*; *sa-arjunaḥ*—along with Arjuna; *yadubhiḥ*—by the members of the Yadu dynasty; *vṛtaḥ*—surrounded.

@@ -1,11 +1,11 @@
 ### SB 3.4.21
 
-> सोऽहं तद्दर्शनाह्लाद वियोगार्तियुतः प्रभो ।
+> सोऽहं तद्दर्शनाह्लाद वियोगार्तियुतः प्रभो ।\
 > गमिष्ये दयितं तस्य बदर्याश्रममण्डलम् ॥२१॥
 
-> so 'haṁ tad-darśanāhlāda-
-> viyogārti-yutaḥ prabho
-> gamiṣye dayitaṁ tasya
+> so 'haṁ tad-darśanāhlāda-\
+> viyogārti-yutaḥ prabho\
+> gamiṣye dayitaṁ tasya\
 > badaryāśrama-maṇḍalam
 
 *saḥ aham*—thus myself; *tat*—His; *darśana*—audience; *āhlāda*—pleasure; *viyoga*—without that; *ārti-yutaḥ*—afflicted by distress; *prabho*—my dear sir; *gamiṣye*—shall go; *dayitam*—so instructed; *tasya*—His; *badaryāśrama*—Badarikāśrama, in the Himalayas; *maṇḍalam*—association.

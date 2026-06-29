@@ -1,9 +1,9 @@
 ### CC Madhya 15.273
 
-> শুনি’ কৃপাময় প্রভু আইলা ধাঞা  ।
+> শুনি’ কৃপাময় প্রভু আইলা ধাঞা  ।\
 > অমোঘেরে কহে তার বুকে হস্ত দিয়া ॥২৭৩॥
 
-> śuni' kṛpāmaya prabhu āilā dhāñā
+> śuni' kṛpāmaya prabhu āilā dhāñā\
 > amoghere kahe tāra buke hasta diyā
 
 *śuni'*—al oír; *kṛpā-maya*—misericordioso; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *āilā*—vino; *dhāñā*—corriendo; *amoghere*—a Amogha; *kahe*—Le dice; *tāra*—Su; *buke*—sobre el pecho; *hasta diyā*—poniendo Su mano.

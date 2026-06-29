@@ -1,9 +1,9 @@
 ### CC Madhya 25.250
 
-> নবমে — কহিলুঁ দক্ষিণ-তীর্থ-ভ্রমণ ।
+> নবমে — কহিলুঁ দক্ষিণ-তীর্থ-ভ্রমণ ।\
 > দশমে — কহিলুঁ সর্ব বৈষ্ণব-মিলন ॥২৫০॥
 
-> navame-kahiluṅ dakṣiṇa-tīrtha-bhramaṇa
+> navame-kahiluṅ dakṣiṇa-tīrtha-bhramaṇa\
 > daśame-kahiluṅ sarva-vaiṣṇava-milana
 
 *navame*—en el Noveno Capítulo; *kahiluṅ*—he descrito; *dakṣiṇa-tīrtha-bhramaṇa*—peregrinaje por el sur de la India; *daśame*—en el Décimo Capítulo; *kahiluṅ*—he descrito; *sarva-vaiṣṇava-milana*—el encuentro con toda clase de devotos.

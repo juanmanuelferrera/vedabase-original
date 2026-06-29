@@ -1,11 +1,11 @@
 ### SB 7.2.50
 
-> लुब्धको विपिने कश्चित्पक्षिणां निर्मितोऽन्तकः
+> लुब्धको विपिने कश्चित्पक्षिणां निर्मितोऽन्तकः\
 > वितत्य जालं विदधे तत्र तत्र प्रलोभयन ॥५०॥
 
-> lubdhako vipine kaścit
-> pakṣiṇāṁ nirmito 'ntakaḥ
-> vitatya jālaṁ vidadhe
+> lubdhako vipine kaścit\
+> pakṣiṇāṁ nirmito 'ntakaḥ\
+> vitatya jālaṁ vidadhe\
 > tatra tatra pralobhayan
 
 *lubdhakaḥ*—cazador; *vipine*—en el bosque; *kaścit*—algunas; *pakṣiṇām*—de aves; *nirmitaḥ*—designado; *antakaḥ*—verdugo; *vitatya*—extendiendo; *jālam*—una red; *vidadhe*—capturados; *tatra tatra*—aquí y allá; *pralobhayan*—poniendo comida como cebo.

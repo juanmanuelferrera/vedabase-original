@@ -1,9 +1,9 @@
 ### CC Madhya 7.72
 
-> মহানুভাবের চিত্তের স্বভাব এই হয় ।
+> মহানুভাবের চিত্তের স্বভাব এই হয় ।\
 > পুষ্প-সম কোমল, কঠিন বজ্রময় ॥৭২॥
 
-> mahānubhāvera cittera svabhāva ei haya
+> mahānubhāvera cittera svabhāva ei haya\
 > puṣpa-sama komala, kaṭhina vajra-maya
 
 *mahā-anubhāvera*—of a great personality; *cittera*—of the mind; *svabhāva*—the nature; *ei haya*—this is; *puṣpa-sama*—like a flower; *komala*—soft; *kaṭhina*—hard; *vajra-maya*—like a thunderbolt.

@@ -1,11 +1,11 @@
 ### SB 3.8.31
 
-> निवीतमाम्नायमधुव्रतश्रिया स्वकीर्तिमय्या वनमालया हरिम् ।
+> निवीतमाम्नायमधुव्रतश्रिया स्वकीर्तिमय्या वनमालया हरिम् ।\
 > सूर्येन्दुवाय्वग्न्यगमं त्रिधामभिः परिक्रमत्प्राधनिकैर्दुरासदम् ॥३१॥
 
-> nivītam āmnāya-madhu-vrata-śriyā
-> sva-kīrti-mayyā vana-mālayā harim
-> sūryendu-vāyv-agny-agamaṁ tri-dhāmabhiḥ
+> nivītam āmnāya-madhu-vrata-śriyā\
+> sva-kīrti-mayyā vana-mālayā harim\
+> sūryendu-vāyv-agny-agamaṁ tri-dhāmabhiḥ\
 > parikramat-prādhanikair durāsadam
 
 *nivītam*—encerrado así; *āmnāya*—sabiduría védica; *madhu-vrata-śriyā*—dulce sonido y belleza; *sva-kīrti-mayyā*—mediante Sus propias glorias; *vana-mālayā*—collares de flores; *harim*—al Señor; *sūrya*—el Sol; *indu*—la Luna; *vāyu*—el aire; *agni*—el fuego; *agamam*—inabordable; *tri-dhāmabhiḥ*—por los tres sistemas planetarios; *parikramat*—dando vueltas alrededor; *prādhanikaiḥ*—para pelear; *durāsadam*—muy difícil de alcanzar.

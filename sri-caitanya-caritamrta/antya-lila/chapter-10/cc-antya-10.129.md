@@ -1,9 +1,9 @@
 ### CC Antya 10.129
 
-> আর দিন প্রভু যদি নিভৃতে ভোজন কৈলা ।
+> আর দিন প্রভু যদি নিভৃতে ভোজন কৈলা ।\
 > রাঘবের ঝালি খুলি’ সকল দেখিলা ॥১২৯॥
 
-> āra dina prabhu yadi nibhṛte bhojana kailā
+> āra dina prabhu yadi nibhṛte bhojana kailā\
 > rāghavera jhāli khuli' sakala dekhilā
 
 *āra dina*—the next day; *prabhu*—Śrī Caitanya Mahāprabhu; *yadi*—when; *nibhṛte*—in a secluded place; *bhojana kailā*—took His lunch; *rāghavera*—of Rāghava Paṇḍita; *jhāli*—the bags; *khuli'*—opening; *sakala dekhilā*—saw everything.

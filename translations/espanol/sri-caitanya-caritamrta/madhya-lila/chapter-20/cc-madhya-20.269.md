@@ -1,9 +1,9 @@
 ### CC Madhya 20.269
 
-> কারণাব্ধি-পারে মায়ার নিত্য অবস্থিতি ।
+> কারণাব্ধি-পারে মায়ার নিত্য অবস্থিতি ।\
 > বিরজার পারে পরব্যোমে নাহি গতি ॥২৬৯॥
 
-> kāraṇābdhi-pāre māyāra nitya avasthiti
+> kāraṇābdhi-pāre māyāra nitya avasthiti\
 > virajāra pāre paravyome nāhi gati
 
 *kāraṇa-abdhi-pāre*—en una orilla del Océano Causal; *māyāra*—de la energía material; *nitya*—eterna; *avasthiti*—posición; *virajāra pāre*—en la otra orilla del Virajā, o el Océano Causal; *para-vyome*—en el mundo o cielo espiritual; *nāhi*—no hay; *gati*—admisión.

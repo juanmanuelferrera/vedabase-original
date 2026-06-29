@@ -1,11 +1,11 @@
 ### CC Madhya 21.136
 
-> মধুরং মধুরং বপুরস্য বিভোর্মধুরং মধুরং বদনং মধুরম্ ।
+> মধুরং মধুরং বপুরস্য বিভোর্মধুরং মধুরং বদনং মধুরম্ ।\
 > মধুগন্ধি মৃদুস্মিতমেতদহো মধুরং মধুরং মধুরং মধুরম্ ॥১৩৬॥
 
-> madhuraṁ madhuraṁ vapur asya vibhor
-> madhuraṁ madhuraṁ vadanaṁ madhuram
-> madhu-gandhi mṛdu-smitam etad aho
+> madhuraṁ madhuraṁ vapur asya vibhor\
+> madhuraṁ madhuraṁ vadanaṁ madhuram\
+> madhu-gandhi mṛdu-smitam etad aho\
 > madhuraṁ madhuraṁ madhuraṁ madhuram
 
 *मधुरम्*—मधुर; *मधुरम्*—मधुर; *वपुः*—दिव्य रूप; *अस्य*—उनका; *विभोः*—भगवान् का; *मधुरम्*—मधुर; *मधुरम्*—मधुर; *वदनम्*—मुख; *मधुरम्*—अधिक मधुर; *मधु-गन्धि*—मधु की सुगन्ध; *मृदु-स्मितम्*—मृदु मुस्कान; *एतत्*—यह; *अहो*—हे; *मधुरम्*—मधुर; *मधुरम्*—मधुर; *मधुरम्*—मधुर; *मधुरम्*—और भी अधिक मधुर।

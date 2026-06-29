@@ -1,11 +1,11 @@
 ### SB 2.6.19
 
-> पादेषु सर्वभूतानि पुंसः स्थितिपदो विदुः ।
+> पादेषु सर्वभूतानि पुंसः स्थितिपदो विदुः ।\
 > अमृतं क्षेममभयं त्रिमूर्ध्नोऽधायि मूर्धसु ॥१९॥
 
-> pādeṣu sarva-bhūtāni
-> puṁsaḥ sthiti-pado viduḥ
-> amṛtaṁ kṣemam abhayaṁ
+> pādeṣu sarva-bhūtāni\
+> puṁsaḥ sthiti-pado viduḥ\
+> amṛtaṁ kṣemam abhayaṁ\
 > tri-mūrdhno 'dhāyi mūrdhasu
 
 *pādeṣu*—in the one fourth; *sarva*—all; *bhūtāni*—living entities; *puṁsaḥ*—of the Supreme Person; *sthiti-padaḥ*—the reservoir of all material opulence; *viduḥ*—you should know; *amṛtam*—deathlessness; *kṣemam*—all happiness, free from the anxiety of old age, diseases, etc.; *abhayam*—fearlessness; *tri-mūrdhnaḥ*—beyond the three higher planetary systems; *adhāyi*—exist; *mūrdhasu*—beyond the material coverings.

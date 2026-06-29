@@ -1,11 +1,11 @@
 ### SB 6.14.34
 
-> तेभ्यो हिरण्यं रजतं वासांस्याभरणानि च
+> तेभ्यो हिरण्यं रजतं वासांस्याभरणानि च\
 > ग्रामान्हयान्गजान्प्रादाद्धेनूनामर्बुदानि षट ॥३४॥
 
-> tebhyo hiraṇyaṁ rajataṁ
-> vāsāṁsy ābharaṇāni ca
-> grāmān hayān gajān prādād
+> tebhyo hiraṇyaṁ rajataṁ\
+> vāsāṁsy ābharaṇāni ca\
+> grāmān hayān gajān prādād\
 > dhenūnām arbudāni ṣaṭ
 
 *tebhyaḥ*—unto them (the learned *brāhmaṇas*); *hiraṇyam*—gold; *rajatam*—silver; *vāsāṁsi*—garments; *ābharaṇāni*—ornaments; *ca*—also; *grāmān*—villages; *hayān*—horses; *gajān*—elephants; *prādāt*—gave in charity; *dhenūnām*—of cows; *arbudāni*—groups of one hundred million; *ṣaṭ*—six.

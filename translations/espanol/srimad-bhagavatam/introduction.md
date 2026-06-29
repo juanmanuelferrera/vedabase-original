@@ -1,5 +1,5 @@
-> harer nāma harer nāma harer nāmaiva kevalam
-> kalau nāsty eva nāsty eva nāsty eva gatir anyathā.
+> harer nāma harer nāma harer nāmaiva kevalam\
+> kalau nāsty eva nāsty eva nāsty eva gatir anyathā.\
 > [[cc/adi/17/21|[Cc. Adi 17.21] ]]
 
 Introducción

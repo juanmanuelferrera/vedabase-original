@@ -1,11 +1,11 @@
 ### SB 4.18.19
 
-> प्रकल्प्य वत्सं कपिलं सिद्धाः सङ्कल्पनामयीम् ।
+> प्रकल्प्य वत्सं कपिलं सिद्धाः सङ्कल्पनामयीम् ।\
 > सिद्धिं नभसि विद्यां च ये च विद्याधरादयः ॥१९॥
 
-> prakalpya vatsaṁ kapilaṁ
-> siddhāḥ saṅkalpanāmayīm
-> siddhiṁ nabhasi vidyāṁ ca
+> prakalpya vatsaṁ kapilaṁ\
+> siddhāḥ saṅkalpanāmayīm\
+> siddhiṁ nabhasi vidyāṁ ca\
 > ye ca vidyādharādayaḥ
 
 *prakalpya*—designar; *vatsam*—ternero; *kapilam*—al gran sabio Kapila; *siddhāḥ*—los habitantes de Siddhaloka; *saṅkalpanā-mayīm*—que viene de la voluntad; *siddhim*—perfección yóguica; *nabhasi*—por el cielo; *vidyām*—conocimiento; *ca*—también; *ye*—aquellos que; *ca*—también; *vidyādhara-ādayaḥ*—los habitantes de Vidyādhara-loka y otros.

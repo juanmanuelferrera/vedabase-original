@@ -1,11 +1,11 @@
 ### SB 9.15.21
 
-> विप्लावितं स्वशिबिरं प्रतिस्रोतःसरिज्जलैः
+> विप्लावितं स्वशिबिरं प्रतिस्रोतःसरिज्जलैः\
 > नामृष्यत्तस्य तद्वीर्यं वीरमानी दशाननः ॥२१॥
 
-> viplāvitaṁ sva-śibiraṁ
-> pratisrotaḥ-sarij-jalaiḥ
-> nāmṛṣyat tasya tad vīryaṁ
+> viplāvitaṁ sva-śibiraṁ\
+> pratisrotaḥ-sarij-jalaiḥ\
+> nāmṛṣyat tasya tad vīryaṁ\
 > vīramānī daśānanaḥ
 
 *viplāvitam*—que había sido inundado; *sva-śibiram*—su propio campamento; *pratisrotaḥ*—que fluía en sentido contrario; *sarit-jalaiḥ*—por el agua del río; *na*—no; *amṛṣyat*—podía consentir; *tasya*—de Kārtavīryārjuna; *tat vīryam*—aquella influencia; *vīramānī*—considerándose muy heroico; *daśa-ānanaḥ*—Rāvaṇa, el de las diez cabezas.

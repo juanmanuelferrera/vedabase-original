@@ -1,9 +1,9 @@
 ### CC Adi 4.217
 
-> রাধাসহ ক্রীড়া রস-বৃদ্ধির কারণ ।
+> রাধাসহ ক্রীড়া রস-বৃদ্ধির কারণ ।\
 > আর সব গোপীগণ রসোপকরণ ॥২১৭॥
 
-> rādhā-saha krīḍā rasa-vṛddhira kāraṇa
+> rādhā-saha krīḍā rasa-vṛddhira kāraṇa\
 > āra saba gopī-gaṇa rasopakaraṇa
 
 *rādhā-saha*—with Śrīmatī Rādhārāṇī; *krīḍā*—pastimes; *rasa*—of mellow; *vṛddhira*—of the increase; *kāraṇa*—the cause; *āra*—the other; *saba*—all; *gopī-gaṇa*—*gopīs*; *rasa-upakaraṇa*—accessories of mellow.

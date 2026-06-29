@@ -1,9 +1,9 @@
 ### CC Adi 9.25
 
-> উড়ুম্বর-বৃক্ষ যেন ফলে সর্ব অঙ্গে ।
+> উড়ুম্বর-বৃক্ষ যেন ফলে সর্ব অঙ্গে ।\
 > এই মত ভক্তিবৃক্ষে সর্বত্র ফল লাগে ॥২৫॥
 
-> uḍumbara-vṛkṣa yena phale sarva aṅge
+> uḍumbara-vṛkṣa yena phale sarva aṅge\
 > ei mata bhakti-vṛkṣe sarvatra phala lāge
 
 *uḍumbara-vṛkṣa*—a big fig tree; *yena*—as if; *phale*—grew fruits; *sarva*—all; *aṅge*—parts of the body; *ei*—this; *mata*—like; *bhakti-vṛkṣe*—in the tree of devotional service; *sarvatra*—all over; *phala*—fruit; *lāge*—appears.

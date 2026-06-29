@@ -1,11 +1,11 @@
 ### SB 4.3.3
 
-> इष्ट्वा स वाजपेयेन ब्रह्मिष्ठानभिभूय च ।
+> इष्ट्वा स वाजपेयेन ब्रह्मिष्ठानभिभूय च ।\
 > बृहस्पतिसवं नाम समारेभे क्रतूत्तमम् ॥३॥
 
-> iṣṭvā sa vājapeyena
-> brahmiṣṭhān abhibhūya ca
-> bṛhaspati-savaṁ nāma
+> iṣṭvā sa vājapeyena\
+> brahmiṣṭhān abhibhūya ca\
+> bṛhaspati-savaṁ nāma\
 > samārebhe kratūttamam
 
 *iṣṭvā*—tras ejecutar; *saḥ*—él (Dakṣa); *vājapeyena*—con un sacrificio *vājapeya*; *brahmiṣṭhān*—a Śiva y sus seguidores; *abhibhūya*—dejando de lado; *ca*—y; *bṛhaspati-savam*—el *bṛhaspati-sava*; *nāma*—llamado; *samārebhe*—comenzó; *kratu-uttamam*—el mejor de los sacrificios.

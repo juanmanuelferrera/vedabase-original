@@ -1,9 +1,9 @@
 ### CC Madhya 14.120
 
-> বাহির হইতে করে রথযাত্রা-ছল ।
+> বাহির হইতে করে রথযাত্রা-ছল ।\
 > সুন্দরাচলে যায় প্রভু ছাড়ি’ নীলাচল ॥১২০॥
 
-> bāhira ha-ite kare ratha-yātrā-chala
+> bāhira ha-ite kare ratha-yātrā-chala\
 > sundarācale yāya prabhu chāḍi' nīlācala
 
 *bāhira ha-ite*—externamente; *kare*—pone; *ratha-yātrā-chala*—una excusa para disfrutar del festival de las carrozas; *sundarācale*—a Sundarācala, el templo de Guṇḍicā; *yāya*—va; *prabhu*—el Señor Jagannātha; *chāḍi'*—dejando; *nīlācala*—Jagannātha Purī.

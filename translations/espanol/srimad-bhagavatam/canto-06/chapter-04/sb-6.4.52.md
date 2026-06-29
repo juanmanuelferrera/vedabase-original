@@ -1,11 +1,11 @@
 ### SB 6.4.52
 
-> मिथुनव्यवायधर्मस्त्वं प्रजासर्गमिमं पुनः
+> मिथुनव्यवायधर्मस्त्वं प्रजासर्गमिमं पुनः\
 > मिथुनव्यवायधर्मिण्यां भूरिशो भावयिष्यसि ॥५२॥
 
-> mithuna-vyavāya-dharmas tvaṁ
-> prajā-sargam imaṁ punaḥ
-> mithuna-vyavāya-dharmiṇyāṁ
+> mithuna-vyavāya-dharmas tvaṁ\
+> prajā-sargam imaṁ punaḥ\
+> mithuna-vyavāya-dharmiṇyāṁ\
 > bhūriśo bhāvayiṣyasi
 
 *mithuna*—de hombre y mujer; *vyavāya*—actividades sexuales; *dharmaḥ*—que acepta como práctica religiosa; *tvam*—tú; *prajā-sargam*—creación de entidades vivientes; *imam*—esta; *punaḥ*—de nuevo; *mithuna*—de hombre y mujer unidos; *vyavāya-dharmiṇyām*—en ella conforme a la práctica religiosa de la relación sexual; *bhūriśaḥ*—muchos; *bhāvayiṣyasi*—tú harás que sean.

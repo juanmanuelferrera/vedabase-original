@@ -1,11 +1,11 @@
 ### SB 8.6.10
 
-> त्वय्यग्र आसीत्त्वयि मध्य आसीत्त्वय्यन्त आसीदिदमात्मतन्त्रे
+> त्वय्यग्र आसीत्त्वयि मध्य आसीत्त्वय्यन्त आसीदिदमात्मतन्त्रे\
 > त्वमादिरन्तो जगतोऽस्य मध्यं घटस्य मृत्स्नेव परः परस्मात ॥१०॥
 
-> tvayy agra āsīt tvayi madhya āsīt
-> tvayy anta āsīd idam ātma-tantre
-> tvam ādir anto jagato 'sya madhyaṁ
+> tvayy agra āsīt tvayi madhya āsīt\
+> tvayy anta āsīd idam ātma-tantre\
+> tvam ādir anto jagato 'sya madhyaṁ\
 > ghaṭasya mṛtsneva paraḥ parasmāt
 
 *tvayi*—unto You, the Supreme Personality of Godhead; *agre*—in the beginning; *āsīt*—there was; *tvayi*—unto You; *madhye*—in the middle; *āsīt*—there was; *tvayi*—unto You; *ante*—in the end; *āsīt*—there was; *idam*—all of this cosmic manifestation; *ātma-tantre*—fully under Your control; *tvam*—Your Lordship; *ādiḥ*—beginning; *antaḥ*—end; *jagataḥ*—of the cosmic manifestation; *asya*—of this; *madhyam*—middle; *ghaṭasya*—of an earthen pot; *mṛtsnā iva*—like the earth; *paraḥ*—transcendental; *parasmāt*—because of being the chief.

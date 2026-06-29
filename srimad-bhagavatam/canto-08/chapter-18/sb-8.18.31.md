@@ -1,11 +1,11 @@
 ### SB 8.18.31
 
-> अद्याग्नयो मे सुहुता यथाविधि द्विजात्मज त्वच्चरणावनेजनैः
+> अद्याग्नयो मे सुहुता यथाविधि द्विजात्मज त्वच्चरणावनेजनैः\
 > हतांहसो वार्भिरियं च भूरहो तथा पुनीता तनुभिः पदैस्तव ॥३१॥
 
-> adyāgnayo me suhutā yathā-vidhi
-> dvijātmaja tvac-caraṇāvanejanaiḥ
-> hatāṁhaso vārbhir iyaṁ ca bhūr aho
+> adyāgnayo me suhutā yathā-vidhi\
+> dvijātmaja tvac-caraṇāvanejanaiḥ\
+> hatāṁhaso vārbhir iyaṁ ca bhūr aho\
 > tathā punītā tanubhiḥ padais tava
 
 *adya*—today; *agnayaḥ*—the sacrificial fires; *me*—executed by me; *su-hutāḥ*—properly offered oblations; *yathā-vidhi*—in terms of the śāstric injunction; *dvija-ātmaja*—O son of a *brāhmaṇa*; *tvat-caraṇa-avanejanaiḥ*—which washed Your lotus feet; *hata-aṁhasaḥ*—who have become cleansed of all sinful reactions; *vārbhiḥ*—by the water; *iyam*—this; *ca*—also; *bhūḥ*—the surface of the globe; *aho*—oh; *tathā*—as well; *punītā*—sanctified; *tanubhiḥ*—small; *padaiḥ*—by the touch of the lotus feet; *tava*—Your.

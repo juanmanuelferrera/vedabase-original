@@ -1,9 +1,9 @@
 ### CC Madhya 10.118
 
-> সেই দামোদর আসি’ দণ্ডবৎ হৈলা ৷
+> সেই দামোদর আসি’ দণ্ডবৎ হৈলা ৷\
 > চরণে পড়িয়া শ্লোক পড়িতে লাগিলা ৷৷ ১১৮ ৷৷ ॥১১৮॥
 
-> sei dāmodara āsi' daṇḍavat hailā
+> sei dāmodara āsi' daṇḍavat hailā\
 > caraṇe paḍiyā śloka paḍite lāgilā
 
 *sei dāmodara*—ese Svarūpa Dāmodara; *āsi'*—llegando; *daṇḍa-vat hailā*—se postró para ofrecer reverencias; *caraṇe paḍiyā*—cayendo a los pies de loto; *śloka*—un verso; *paḍite lāgilā*—comenzó a recitar.

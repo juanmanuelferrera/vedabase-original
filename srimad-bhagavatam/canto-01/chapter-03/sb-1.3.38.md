@@ -1,11 +1,11 @@
 ### SB 1.3.38
 
-> स वेद धातुः पदवीं परस्य दुरन्तवीर्यस्य रथाङ्गपाणेः ।
+> स वेद धातुः पदवीं परस्य दुरन्तवीर्यस्य रथाङ्गपाणेः ।\
 > योऽमायया सन्ततयानुवृत्त्या भजेत तत्पादसरोजगन्धम् ॥३८॥
 
-> sa veda dhātuḥ padavīṁ parasya
-> duranta-vīryasya rathāṅga-pāṇeḥ
-> yo 'māyayā santatayānuvṛttyā
+> sa veda dhātuḥ padavīṁ parasya\
+> duranta-vīryasya rathāṅga-pāṇeḥ\
+> yo 'māyayā santatayānuvṛttyā\
 > bhajeta tat-pāda-saroja-gandham
 
 *saḥ*—He alone; *veda*—can know; *dhātuḥ*—of the creator; *padavīm*—glories; *parasya*—of the transcendence; *duranta-vīryasya*—of the greatly powerful; *ratha-aṅga-pāṇeḥ*—of Lord Kṛṣṇa, who bears in His hand the wheel of a chariot; *yaḥ*—one who; *amāyayā*—without reservation; *santatayā*—without any gap; *anuvṛttyā*—favorably; *bhajeta*—renders service; *tat-pāda*—of His feet; *saroja-gandham*—fragrance of the lotus.

@@ -1,11 +1,11 @@
 ### Bg 6.32
 
-> आत्मौपम्येन सर्वत्र समं पश्यति योऽर्जुन ।
+> आत्मौपम्येन सर्वत्र समं पश्यति योऽर्जुन ।\
 > सुखं वा यदि वा दुःखं स योगी परमो मतः ॥३२॥
 
-> ātmaupamyena sarvatra
-> samaṁ paśyati yo 'rjuna
-> sukhaṁ vā yadi vā duḥkhaṁ
+> ātmaupamyena sarvatra\
+> samaṁ paśyati yo 'rjuna\
+> sukhaṁ vā yadi vā duḥkhaṁ\
 > sa yogī paramo mataḥ
 
 *ātma*—self; *aupamyena*—by comparison; *sarvatra*—everywhere; *samam*—equality; *paśyati*—sees; *yaḥ*—he who; *arjuna*—O Arjuna; *sukham*—happiness; *vā*—or; *yadi*—if; *vā*—or; *duḥkham*—distress; *saḥ*—such; *yogī*—transcendentalist; *paramaḥ*—perfect; *mataḥ*—considered.

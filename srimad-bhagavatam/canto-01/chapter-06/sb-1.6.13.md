@@ -1,14 +1,14 @@
 ### SB 1.6.13
 
-> नलवेणुशरस्तन्ब कुशकीचकगह्वरम् ।
-> एक एवातियातोऽहमद्राक्षं विपिनं महत् ।
+> नलवेणुशरस्तन्ब कुशकीचकगह्वरम् ।\
+> एक एवातियातोऽहमद्राक्षं विपिनं महत् ।\
 > घोरं प्रतिभयाकारं व्यालोलूकशिवाजिरम् ॥१३॥
 
-> nala-veṇu-śaras-tanba-
-> kuśa-kīcaka-gahvaram
-> eka evātiyāto 'ham
-> adrākṣaṁ vipinaṁ mahat
-> ghoraṁ pratibhayākāraṁ
+> nala-veṇu-śaras-tanba-\
+> kuśa-kīcaka-gahvaram\
+> eka evātiyāto 'ham\
+> adrākṣaṁ vipinaṁ mahat\
+> ghoraṁ pratibhayākāraṁ\
 > vyālolūka-śivājiram
 
 *nala*—pipes; *veṇu*—bamboo; *śaraḥ*—pens; *tanba*—full of; *kuśa*—sharp grass; *kīcaka*—weeds; *gahvaram*—caves; *ekaḥ*—alone; *eva*—only; *atiyātaḥ*—difficult to go through; *aham*—I; *adrākṣam*—visited; *vipinam*—deep forests; *mahat*—great; *ghoram*—fearful; *pratibhaya-ākāram*—dangerously; *vyāla*—snakes; *ulūka*—owls; *śiva*—jackals; *ajiram*—playgrounds.

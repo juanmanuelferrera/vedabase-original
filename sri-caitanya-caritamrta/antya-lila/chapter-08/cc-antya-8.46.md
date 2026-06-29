@@ -1,9 +1,9 @@
 ### CC Antya 8.46
 
-> প্রভু গুরুবুদ্ধ্যে করেন সম্ভ্রম, সম্মান ।
+> প্রভু গুরুবুদ্ধ্যে করেন সম্ভ্রম, সম্মান ।\
 > তেঁহো ছিদ্র চাহি’ বুলে, — এই তার কাম ॥৪৬॥
 
-> prabhu guru-buddhye karena sambhrama, sammāna
+> prabhu guru-buddhye karena sambhrama, sammāna\
 > teṅho chidra cāhi' bule,—ei tāra kāma
 
 *prabhu*—Śrī Caitanya Mahāprabhu; *guru-buddhye*—accepting him as a Godbrother of His spiritual master; *karena sambhrama sammāna*—offers full respect and obeisances; *teṅho*—Rāmacandra Purī; *chidra cāhi'*—trying to find fault; *bule*—goes about; *ei*—this; *tāra*—his; *kāma*—business.

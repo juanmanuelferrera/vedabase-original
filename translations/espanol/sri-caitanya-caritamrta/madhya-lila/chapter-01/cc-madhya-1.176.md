@@ -1,9 +1,9 @@
 ### CC Madhya 1.176
 
-> যে তোমারে রাজ্য দিল, যে তোমার গোসাঞা ।
+> যে তোমারে রাজ্য দিল, যে তোমার গোসাঞা ।\
 > তোমার দেশে তোমার ভাগ্যে জন্মিলা আসিঞা ॥১৭৬॥
 
-> ye tomāre rājya dila, ye tomāra gosāñā
+> ye tomāre rājya dila, ye tomāra gosāñā\
 > tomāra deśe tomāra bhāgye janmilā āsiñā
 
 *ye*—aquel que; *tomāre*—a vos; *rājya*—el reino; *dila*—dio; *ye*—aquel que; *tomāra*—vuestro; *gosāñā*—profeta; *tomāra deśe*—en vuestro país; *tomāra bhāgye*—gracias a vuestra buena fortuna; *janmilā*—tomó nacimiento; *āsiñā*—viniendo.

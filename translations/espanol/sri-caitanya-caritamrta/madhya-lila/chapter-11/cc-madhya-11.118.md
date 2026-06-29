@@ -1,11 +1,11 @@
 ### CC Madhya 11.118
 
-> যদা যমনুগৃহ্ণাতি ভগবানাত্মভাবিতঃ ৷
+> যদা যমনুগৃহ্ণাতি ভগবানাত্মভাবিতঃ ৷\
 > স জহাতি মতিং লোকে বেদে চ পরিনিষ্ঠিতাম্ ৷৷ ১১৮ ৷৷ ॥১১৮॥
 
-> yadā yam anugṛhṇāti
-> bhagavān ātma-bhāvitaḥ
-> sa jahāti matiṁ loke
+> yadā yam anugṛhṇāti\
+> bhagavān ātma-bhāvitaḥ\
+> sa jahāti matiṁ loke\
 > vede ca pariniṣṭhitām
 
 *yadā*—cuando; *yam*—a quien; *anugṛhṇāti*—muestra favor especial; *bhagavān*—la Suprema Personalidad de Dios; *ātma-bhāvitaḥ*—que se halla en el corazón de todos; *saḥ*—esa persona; *jahāti*—abandona; *matim*—atención; *loke*—al comportamiento social; *vede*—a las disposiciones Védicas; *ca*—también; *pariniṣṭhitām*—apegado.

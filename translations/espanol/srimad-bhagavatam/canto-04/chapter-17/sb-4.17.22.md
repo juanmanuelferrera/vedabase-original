@@ -1,13 +1,13 @@
 ### SB 4.17.22
 
-> पृथुरुवाच
-> वसुधे त्वां वधिष्यामि मच्छासनपराङ्मुखीम् ।
+> पृथुरुवाच\
+> वसुधे त्वां वधिष्यामि मच्छासनपराङ्मुखीम् ।\
 > भागं बर्हिषि या वृङ्क्ते न तनोति च नो वसु ॥२२॥
 
-> pṛthur uvāca
-> vasudhe tvāṁ vadhiṣyāmi
-> mac-chāsana-parāṅ-mukhīm
-> bhāgaṁ barhiṣi yā vṛṅkte
+> pṛthur uvāca\
+> vasudhe tvāṁ vadhiṣyāmi\
+> mac-chāsana-parāṅ-mukhīm\
+> bhāgaṁ barhiṣi yā vṛṅkte\
 > na tanoti ca no vasu
 
 *pṛthuḥ uvāca*—el rey Pṛthu respondió; *vasu-dhe*—mi querido planeta Tierra; *tvām*—a ti; *vadhiṣyāmi*—voy a matar; *mat*—mis; *śāsana*—leyes; *parāk-mukhīm*—desobediente con; *bhāgam*—tu parte; *barhiṣi*—en el *yajña*; *yā*—quien; *vṛṅkte*—toma; *na*—no; *tanoti*—entrega; *ca*—y; *naḥ*—para nosotros; *vasu*—víveres.

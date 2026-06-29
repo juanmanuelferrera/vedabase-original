@@ -1,9 +1,9 @@
 ### CC Adi 13.94
 
-> জগৎ ভরিয়া লোক বলে — ‘হরি’ ‘হরি’ ।
+> জগৎ ভরিয়া লোক বলে — ‘হরি’ ‘হরি’ ।\
 > সেইক্ষণে গৌরকৃষ্ণ ভূমে অবতরি ॥৯৪॥
 
-> jagat bhariyā loka bale—'hari' 'hari'
+> jagat bhariyā loka bale—'hari' 'hari'\
 > sei-kṣaṇe gaurakṛṣṇa bhūme avatari
 
 *jagat*—the whole world; *bhariyā*—fulfilling; *loka*—people; *bale*—said; *harihari*—the holy name of the Lord; *sei-kṣaṇe*—at that time; *gaurakṛṣṇa*—Lord Kṛṣṇa in the form of Gaurahari; *bhūme*—on the earth; *avatari*—advented.

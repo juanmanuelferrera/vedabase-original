@@ -1,11 +1,11 @@
 ### Bg 4.28
 
-> द्रव्ययज्ञास्तपोयज्ञा योगयज्ञास्तथापरे ।
+> द्रव्ययज्ञास्तपोयज्ञा योगयज्ञास्तथापरे ।\
 > स्वाध्यायज्ञानयज्ञाश्च यतयः संशितव्रताः ॥२८॥
 
-> dravya-yajñās tapo-yajñā
-> yoga-yajñās tathāpare
-> svādhyāya-jñāna-yajñāś ca
+> dravya-yajñās tapo-yajñā\
+> yoga-yajñās tathāpare\
+> svādhyāya-jñāna-yajñāś ca\
 > yatayaḥ saṁśita-vratāḥ
 
 *dravya-yajñāḥ*—sacrificing one's possessions; *tapo-yajñāḥ*—sacrifice in austerities; *yoga-yajñāḥ*—sacrifice in eightfold mysticism; *tathā*—thus; *apare*—others; *svādhyāya*—sacrifice in the study of the *Vedas*; *jñāna-yajñāḥ*—sacrifice in advancement of transcendental knowledge; *ca*—also; *yatayaḥ*—enlightened; *saṁśita*—taken to strict; *vratāḥ*—vows.

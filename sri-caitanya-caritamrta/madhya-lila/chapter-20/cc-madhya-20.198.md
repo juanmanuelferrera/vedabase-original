@@ -1,9 +1,9 @@
 ### CC Madhya 20.198
 
-> দ্বাদশ-মাসের দেবতা — এইবার জন ।
+> দ্বাদশ-মাসের দেবতা — এইবার জন ।\
 > মার্গশীর্ষে — কেশব, পৌষে — নারায়ণ ॥১৯৮॥
 
-> dvādaśa-māsera devatā—ei-bāra jana
+> dvādaśa-māsera devatā—ei-bāra jana\
 > mārga-śīrṣe—keśava, pauṣe—nārāyaṇa
 
 *dvādaśa-māsera*—of the twelve months; *devatā*—predominating Deities; *ei*—these; *bāra jana*—twelve Personalities of Godhead; *mārga-śīrṣe*—the month of Agrahāyana (November-December); *keśava*—Keśava; *pauṣe*—the month of Pauṣa (December-January); *nārāyaṇa*—Nārāyaṇa.

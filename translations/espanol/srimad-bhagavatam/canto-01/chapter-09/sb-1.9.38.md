@@ -1,11 +1,11 @@
 ### SB 1.9.38
 
-> शितविशिखहतो विशीर्णदंशः क्षतजपरिप्लुत आततायिनो मे ।
+> शितविशिखहतो विशीर्णदंशः क्षतजपरिप्लुत आततायिनो मे ।\
 > प्रसभमभिससार मद्वधार्थं स भवतु मे भगवान्गतिर्मुकुन्दः ॥३८॥
 
-> śita-viśikha-hato viśīrṇa-daṁśaḥ
-> kṣataja-paripluta ātatāyino me
-> prasabham abhisasāra mad-vadhārthaṁ
+> śita-viśikha-hato viśīrṇa-daṁśaḥ\
+> kṣataja-paripluta ātatāyino me\
+> prasabham abhisasāra mad-vadhārthaṁ\
 > sa bhavatu me bhagavān gatir mukundaḥ
 
 *śita*—afiladas; *viśikha*—flechas; *hataḥ*—herido por; *viśīrṇa-daṁśaḥ*—escudo destrozado; *kṣataja*—por heridas; *pariplutaḥ*—manchado de sangre; *ātatāyinaḥ*—el gran agresor; *me*—mi; *prasabham*—con una actitud iracunda; *abhisasāra*—comenzó a moverse; *mat-vadha-artham*—con el propósito de matarme; *saḥ*—Él; *bhavatu*—se vuelva; *me*—mi; *bhagavān*—la Personalidad de Dios; *gatiḥ*—destino; *mukundaḥ*—que otorga la salvación.

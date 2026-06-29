@@ -1,9 +1,9 @@
 ### CC Madhya 9.78
 
-> কুম্ভকর্ণ-কপালে দেখি’ সরোবর ৷
+> কুম্ভকর্ণ-কপালে দেখি’ সরোবর ৷\
 > শিব-ক্ষেত্রে শিব দেখে গৌরাঙ্গসুন্দর ৷৷ ৭৮ ৷৷ ॥৭৮॥
 
-> kumbhakarṇa-kapāle dekhi' sarovara
+> kumbhakarṇa-kapāle dekhi' sarovara\
 > śiva-kṣetre śiva dekhe gaurāṅga-sundara
 
 *kumbhakarṇa-kapāle*—en Kumbhakarṇa-kapāla; *dekhi'*—después de ver; *sarovara*—el lago; *śiva-kṣetre*—en Śiva-kṣetra; *śiva*—al Señor Śiva; *dekhe*—ve; *gaurāṅga-sundara*—el Señor Śrī Caitanya Mahāprabhu.

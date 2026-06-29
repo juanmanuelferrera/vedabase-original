@@ -1,11 +1,11 @@
 ### SB 8.7.45
 
-> तप्यन्ते लोकतापेन साधवः प्रायशो जनाः
+> तप्यन्ते लोकतापेन साधवः प्रायशो जनाः\
 > परमाराधनं तद्धि पुरुषस्याखिलात्मनः ॥४५॥
 
-> niśamya karma tac chambhor
-> deva-devasya mīḍhuṣaḥ
-> prajā dākṣāyaṇī brahmā
+> niśamya karma tac chambhor\
+> deva-devasya mīḍhuṣaḥ\
+> prajā dākṣāyaṇī brahmā\
 > vaikuṇṭhaś ca śaśaṁsire
 
 *niśamya*—tras escuchar; *karma*—el acto; *tat*—aquel; *śambhoḥ*—del Señor Śiva; *deva-devasya*—a quien hasta los semidioses consideran digno de adoración; *mīḍhuṣaḥ*—aquel que concede bendiciones a la gente; *prajāḥ*—la gente; *dākṣāyaṇī*—Bhavānī, la hija de Dakṣa; *brahmā*—el Señor Brahmā; *vaikuṇṭhaḥ ca*—también el Señor Viṣṇu; *śaśaṁsire*—alabaron mucho.

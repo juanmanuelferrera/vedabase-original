@@ -1,9 +1,9 @@
 ### CC Adi 5.66
 
-> এক অঙ্গাভাসে করে মায়াতে মিলন ।
+> এক অঙ্গাভাসে করে মায়াতে মিলন ।\
 > মায়া হৈতে জন্মে তবে ব্রহ্মাণ্ডের গণ ॥৬৬॥
 
-> eka aṅgābhāse kare māyāte milana
+> eka aṅgābhāse kare māyāte milana\
 > māyā haite janme tabe brahmāṇḍera gaṇa
 
 *eka*—one; *aṅga-ābhāse*—bodily reflection; *kare*—does; *māyāte*—in the material energy; *milana*—mixture; *māyā*—the material energy; *haite*—from; *janme*—grows; *tabe*—then; *brahma-aṇḍera gaṇa*—the groups of universes.

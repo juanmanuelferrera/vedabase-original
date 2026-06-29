@@ -1,9 +1,9 @@
 ### CC Madhya 14.223
 
-> অনন্ত কামধেনু তাহাঁ ফিরে বনে বনে ।
+> অনন্ত কামধেনু তাহাঁ ফিরে বনে বনে ।\
 > দুগ্ধমাত্র দেন, কেহ না মাগে অন্য ধনে ॥২২৩॥
 
-> ananta kāma-dhenu tāhāṅ phire vane vane
+> ananta kāma-dhenu tāhāṅ phire vane vane\
 > dugdha-mātra dena, keha nā māge anya dhane
 
 *ananta*—unlimited; *kāma-dhenu*—cows that can fulfill all desires; *tāhāṅ*—there; *phire*—graze; *vane vane*—from forest to forest; *dugdha-mātra dena*—deliver milk only; *keha*—anyone; *nā*—not; *māge*—wants; *anya dhane*—any other riches.

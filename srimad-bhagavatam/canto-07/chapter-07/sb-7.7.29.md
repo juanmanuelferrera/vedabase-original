@@ -1,11 +1,11 @@
 ### SB 7.7.29
 
-> तत्रोपायसहस्राणामयं भगवतोदितः
+> तत्रोपायसहस्राणामयं भगवतोदितः\
 > यदीश्वरे भगवति यथा यैरञ्जसा रतिः ॥२९॥
 
-> tatropāya-sahasrāṇām
-> ayaṁ bhagavatoditaḥ
-> yad īśvare bhagavati
+> tatropāya-sahasrāṇām\
+> ayaṁ bhagavatoditaḥ\
+> yad īśvare bhagavati\
 > yathā yair añjasā ratiḥ
 
 *tatra*—in that connection (getting out of the entanglement of material conditioning); *upāya*—of processes; *sahasrāṇām*—of many thousands; *ayam*—this; *bhagavatā uditaḥ*—given by the Supreme Personality of Godhead; *yat*—which; *īśvare*—to the Lord; *bhagavati*—the Supreme Personality of Godhead; *yathā*—as much as; *yaiḥ*—by which; *añjasā*—quickly; *ratiḥ*—attachment with love and affection.

@@ -1,11 +1,11 @@
 ### SB 8.15.6
 
-> धनुश्च दिव्यं पुरटोपनद्धं तूणावरिक्तौ कवचं च दिव्यम
+> धनुश्च दिव्यं पुरटोपनद्धं तूणावरिक्तौ कवचं च दिव्यम\
 > पितामहस्तस्य ददौ च मालामम्लानपुष्पां जलजं च शुक्रः ॥६॥
 
-> dhanuś ca divyaṁ puraṭopanaddhaṁ
-> tūṇāv ariktau kavacaṁ ca divyam
-> pitāmahas tasya dadau ca mālām
+> dhanuś ca divyaṁ puraṭopanaddhaṁ\
+> tūṇāv ariktau kavacaṁ ca divyam\
+> pitāmahas tasya dadau ca mālām\
 > amlāna-puṣpāṁ jalajaṁ ca śukraḥ
 
 *dhanuḥ*—un arco; *ca*—también; *divyam*—extraordinario; *puraṭa-upanaddham*—cubierto de oro; *tūṇau*—dos aljabas; *ariktau*—infalibles; *kavacam ca*—y armadura; *divyam*—celestial; *pitāmahaḥ tasya*—su abuelo, Prahlāda Mahārāja; *dadau*—dio; *ca*—y; *mālām*—un collar; *amlāna-puṣpām*—hecho de flores que no se marchitan; *jala-jam*—una caracola (nacida en el agua); *ca*—así como; *śukraḥ*—Śukrācārya.

@@ -1,9 +1,9 @@
 ### CC Adi 14.93
 
-> এই মত শিশুলীলা করে গৌরচন্দ্র ।
+> এই মত শিশুলীলা করে গৌরচন্দ্র ।\
 > দিনে দিনে পিতা-মাতার বাড়ায় আনন্দ ॥৯৩॥
 
-> ei mata śiśu-līlā kare gauracandra
+> ei mata śiśu-līlā kare gauracandra\
 > dine dine pitā-mātāra bāḍāya ānanda
 
 *ei*—de este; *mata*—modo; *śiśu-līlā*—pasatiempos de la infancia; *kare*—realiza; *gauracandra*—Śrī Gaurahari; *dine dine*—día tras día; *pitā-mātāra*—de Sus padres; *bāḍāya*—acrecienta; *ānanda*—el placer.

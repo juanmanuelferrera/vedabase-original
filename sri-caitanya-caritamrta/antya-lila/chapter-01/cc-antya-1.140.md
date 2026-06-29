@@ -1,9 +1,9 @@
 ### CC Antya 1.140
 
-> রায় কহে, — “কহ দেখি প্রেমোৎপত্তি-কারণ ?
+> রায় কহে, — “কহ দেখি প্রেমোৎপত্তি-কারণ ?\
 > পূর্বরাগ, বিকার, চেষ্টা, কামলিখন?” ॥১৪০॥
 
-> rāya kahe,—"kaha dekhi premotpatti-kāraṇa?
+> rāya kahe,—"kaha dekhi premotpatti-kāraṇa?\
 > pūrva-rāga, vikāra, ceṣṭā, kāma-likhana?"
 
 *rāya kahe*—Śrīla Rāmānanda Rāya further inquires; *kaha*—please recite; *dekhi*—so that I may know; *prema. utpatti-kāraṇa*—the causes of awakening the loving propensity; *pūrva-rāga*—previous attachment; *vikāra*—transformation; *ceṣṭā*—endeavor; *kāma-likhana*—writing of letters disclosing the *gopīs'* attachment for Kṛṣṇa.

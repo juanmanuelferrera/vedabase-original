@@ -1,9 +1,9 @@
 ### CC Madhya 1.280
 
-> সূর্য যৈছে উদয় করি’ চাহে লুকাইতে ।
+> সূর্য যৈছে উদয় করি’ চাহে লুকাইতে ।\
 > বুঝিতে না পারি তৈছে তোমার চরিতে ॥২৮০॥
 
-> sūrya yaiche udaya kari' cāhe lukāite
+> sūrya yaiche udaya kari' cāhe lukāite\
 > bujhite nā pāri taiche tomāra carite
 
 *sūrya*—el sol; *yaiche*—tal como; *udaya*—aparición; *kari'*—haciendo; *cāhe*—quiere; *lukāite*—ocultarse; *bujhite*—comprender; *nā*—no; *pāri*—capaz; *taiche*—de manera similar; *tomāra*—Tu; *carite*—en la conducta.

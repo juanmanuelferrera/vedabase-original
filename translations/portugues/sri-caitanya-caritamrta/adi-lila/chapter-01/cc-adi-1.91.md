@@ -1,8 +1,8 @@
 ### CC Adi 1.91
 
-> dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satāṁ
-> vedyaṁ vāstavam atra vastu śiva-daṁ tāpa-trayonmūlanam
-> śrīmad-bhāgavate mahā-muni-kṛte kiṁ vā parair īśvaraḥ
+> dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satāṁ\
+> vedyaṁ vāstavam atra vastu śiva-daṁ tāpa-trayonmūlanam\
+> śrīmad-bhāgavate mahā-muni-kṛte kiṁ vā parair īśvaraḥ\
 > sadyo hṛdy avarudhyate 'tra kṛtibhiḥ śuśrūṣubhis tat-kṣaṇāt
 
 *dharmaḥ*—religiosidade; *projjhita*—completamente rejeitada; *kaitavaḥ*—na qual a intenção fruitiva; *atra*—aqui; *paramaḥ*—o mais elevado; *nirmatsarāṇām*—dos que são cem por cento puros de coração; *satām*—devotos; *vedyam*—a ser compreendida; *vāstavam*—factual; *atra*—aqui; *vastu*—substância; *śiva-dam*—que concede bem-estar; *tāpa-traya*—das três espécies de misérias; *unmūlanam*—que provoca o desarraigamento; *śrīmat*—belo; *bhāgavate*—no *Bhāgavata Purāṇa*; *mahā-muni*—pelo grande sábio (Vyāsadeva); *kṛte*—compilado; *kim*—que; *vā*—de fato; *paraiḥ*—com outras; *īśvaraḥ*—o Senhor Supremo; *sadyaḥ*—de imediato; *hṛdi*—dentro do coração; *avarudhyate*—fica aprisionado; *atra*—aqui; *kṛtibhiḥ*—por homens piedosos; *śuśrūṣubhiḥ*—que desejam ouvir; *tat-kṣaṇāt*—sem demora.

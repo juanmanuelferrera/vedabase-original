@@ -1,11 +1,11 @@
 ### Bg 2.15
 
-> यं हि न व्यथयन्त्येते पुरुषं पुरुषर्षभ ।
+> यं हि न व्यथयन्त्येते पुरुषं पुरुषर्षभ ।\
 > समदुःखसुखं धीरं सोऽमृतत्वाय कल्पते ॥१५॥
 
-> yaṁ hi na vyathayanty ete
-> puruṣaṁ puruṣarṣabha
-> sama-duḥkha-sukhaṁ dhīraṁ
+> yaṁ hi na vyathayanty ete\
+> puruṣaṁ puruṣarṣabha\
+> sama-duḥkha-sukhaṁ dhīraṁ\
 > so 'mṛtatvāya kalpate
 
 *yam*—one who; *hi*—certainly; *na*—never; *vyathayanti*—are distressing; *ete*—all these; *puruṣam*—to a person; *puruṣarṣabha*—is best among men; *sama*—unaltered; *duḥkha*—distress; *sukham*—happiness; *dhīram*—patient; *saḥ*—he; *amṛtatvāya*—for liberation; *kalpate*—is considered eligible.

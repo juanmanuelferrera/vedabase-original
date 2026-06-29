@@ -1,9 +1,9 @@
 ### CC Antya 3.207
 
-> yāha ghara, kṛṣṇa karuna kuśala sabāra
+> yāha ghara, kṛṣṇa karuna kuśala sabāra\
 > āmāra sambandhe duḥkha nā ha-uka kāhāra"
 
-> yāha ghara, kṛṣṇa karuna kuśala sabāra
+> yāha ghara, kṛṣṇa karuna kuśala sabāra\
 > āmāra sambandhe duḥkha nā ha-uka kāhāra"
 
 *yāha ghara*—id a vuestros hogares; *kṛṣṇa karuna*—que el Señor Kṛṣṇa otorgue; *kuśala sabāra*—bendiciones a todos; *āmāra sambandhe*—por mi causa; *duḥkha*—infelicidad; *nā ha-uka*—que no haya; *kāhāra*—de nadie.

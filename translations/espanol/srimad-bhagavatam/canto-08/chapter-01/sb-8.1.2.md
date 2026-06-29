@@ -1,11 +1,11 @@
 ### SB 8.1.2
 
-> मन्वन्तरे हरेर्जन्म कर्माणि च महीयसः
+> मन्वन्तरे हरेर्जन्म कर्माणि च महीयसः\
 > गृणन्ति कवयो ब्रह्मंस्तानि नो वद शृण्वताम ॥२॥
 
-> manvantare harer janma
-> karmāṇi ca mahīyasaḥ
-> gṛṇanti kavayo brahmaṁs
+> manvantare harer janma\
+> karmāṇi ca mahīyasaḥ\
+> gṛṇanti kavayo brahmaṁs\
 > tāni no vada śṛṇvatām
 
 *manvantare*—durante el cambio de *manvantaras* (un *manu* que sucede a otro); *hareḥ*—de la Suprema Personalidad de Dios; *janma*—advenimiento; *karmāṇi*—y actividades; *ca*—también; *mahīyasaḥ*—del supremamente glorificado; *gṛṇanti*—hablan de; *kavayaḥ*—los grandes eruditos cuya inteligencia es perfecta; *brahman*—¡oh, *brāhmaṇa* erudito (Śukadeva Gosvāmī)!; *tāni*—todo ello; *naḥ*—a nosotros; *vada*—por favor, habla de; *śṛṇvatām*—que estamos muy deseosos de escuchar.

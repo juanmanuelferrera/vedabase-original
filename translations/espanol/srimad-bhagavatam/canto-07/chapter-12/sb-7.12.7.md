@@ -1,11 +1,11 @@
 ### SB 7.12.7
 
-> वर्जयेत्प्रमदागाथामगृहस्थो बृहद्व्रतः
+> वर्जयेत्प्रमदागाथामगृहस्थो बृहद्व्रतः\
 > इन्द्रियाणि प्रमाथीनि हरन्त्यपि यतेर्मनः ॥७॥
 
-> varjayet pramadā-gāthām
-> agṛhastho bṛhad-vrataḥ
-> indriyāṇi pramāthīni
+> varjayet pramadā-gāthām\
+> agṛhastho bṛhad-vrataḥ\
+> indriyāṇi pramāthīni\
 > haranty api yater manaḥ
 
 *varjayet*—debe abandonar; *pramadā-gāthām*—hablar con mujeres; *agṛhasthaḥ*—una persona que no ha aceptado el *gṛhastha-āśrama* (un *brahmacārī* o *sannyāsī*); *bṛhat-vrataḥ*—observando el voto de celibato sin desviarse; *indriyāṇi*—los sentidos; *pramāthīni*—casi siempre invencibles; *haranti*—se llevan; *api*—incluso; *yateḥ*—del *sannyāsī*; *manaḥ*—la mente.

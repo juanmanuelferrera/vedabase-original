@@ -1,11 +1,11 @@
 ### SB 2.5.12
 
-> तस्मै नमो भगवते वासुदेवाय धीमहि ।
+> तस्मै नमो भगवते वासुदेवाय धीमहि ।\
 > यन्मायया दुर्जयया मां वदन्ति जगद्गुरुम् ॥१२॥
 
-> tasmai namo bhagavate
-> vāsudevāya dhīmahi
-> yan-māyayā durjayayā
+> tasmai namo bhagavate\
+> vāsudevāya dhīmahi\
+> yan-māyayā durjayayā\
 > māṁ vadanti jagad-gurum
 
 *tasmai*—unto Him; *namaḥ*—offer my obeisances; *bhagavate*—unto the Personality of Godhead; *vāsudevāya*—unto Lord Kṛṣṇa; *dhīmahi*—do meditate upon Him; *yat*—by whose; *māyayā*—potencies; *durjayayā*—invincible; *mām*—unto me; *vadanti*—they say; *jagat*—the world; *gurum*—the master.

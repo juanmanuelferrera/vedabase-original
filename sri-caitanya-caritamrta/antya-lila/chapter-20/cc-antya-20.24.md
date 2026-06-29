@@ -1,9 +1,9 @@
 ### CC Antya 20.24
 
-> যেই যে মাগয়ে, তারে দেয় আপন-ধন ।
+> যেই যে মাগয়ে, তারে দেয় আপন-ধন ।\
 > ঘর্ম-বৃষ্টি সহে, আনের করয়ে রক্ষণ ॥২৪॥
 
-> yei ye māgaye, tāre deya āpana-dhana
+> yei ye māgaye, tāre deya āpana-dhana\
 > gharma-vṛṣṭi sahe, ānera karaye rakṣaṇa
 
 *yei ye māgaye*—if anyone asks anything from the tree; *tāre*—unto him; *deya*—gives; *āpana-dhana*—its own wealth; *gharma-vṛṣṭi*—the scorching heat of the sun and torrents of rain; *sahe*—tolerates; *ānera*—to others; *karaye rakṣaṇa*—gives protection.

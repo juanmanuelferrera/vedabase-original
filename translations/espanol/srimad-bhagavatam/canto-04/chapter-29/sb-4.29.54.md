@@ -1,10 +1,10 @@
 ### SB 4.29.54
 
-> सुमनःसमधर्मणां स्त्रीणां शरण आश्रमे पुष्पमधुगन्धवत्क्षुद्रतमं
-> काम्यकर्मविपाकजं कामसुखलवं जैह्व्यौपस्थ्यादि विचिन्वन्तं मिथुनीभूय तदभिनिवेशित
-> मनसं षडङ्घ्रिगणसामगीतवदतिमनोहरवनितादिजनालापेष्वतितरामतिप्रलोभितकर्णमग्रे
-> वृकयूथवदात्मन आयुर्हरतोऽहोरात्रान्तान्काललवविशेषानविगणय्य गृहेषु विहरन्तं पृष्ठत एव
-> परोक्षमनुप्रवृत्तो लुब्धकः कृतान्तोऽन्तः शरेण यमिह पराविध्यति तमिममात्मानमहो
+> सुमनःसमधर्मणां स्त्रीणां शरण आश्रमे पुष्पमधुगन्धवत्क्षुद्रतमं\
+> काम्यकर्मविपाकजं कामसुखलवं जैह्व्यौपस्थ्यादि विचिन्वन्तं मिथुनीभूय तदभिनिवेशित\
+> मनसं षडङ्घ्रिगणसामगीतवदतिमनोहरवनितादिजनालापेष्वतितरामतिप्रलोभितकर्णमग्रे\
+> वृकयूथवदात्मन आयुर्हरतोऽहोरात्रान्तान्काललवविशेषानविगणय्य गृहेषु विहरन्तं पृष्ठत एव\
+> परोक्षमनुप्रवृत्तो लुब्धकः कृतान्तोऽन्तः शरेण यमिह पराविध्यति तमिममात्मानमहो\
 > राजन्भिन्नहृदयं द्रष्टुमर्हसीति ॥५४॥
 
 > sumanaḥ-sama-dharmaṇāṁ strīṇāṁ śaraṇa āśrame puṣpa-madhu-gandhavat kṣudratamaṁ kāmya-karma-vipākajaṁ kāma-sukha-lavaṁ jaihvyaupasthyādi vicinvantaṁ mithunī-bhūya tad-abhiniveśita-manasaṁ ṣaḍaṅghri-gaṇa-sāma-gītavad atimanohara-vanitādi-janālāpeṣv atitarām atipralobhita-karṇam agre vṛka-yūthavad ātmana āyur harato 'ho-rātrān tān kāla-lava-viśeṣān avigaṇayya gṛheṣu viharantaṁ pṛṣṭhata eva parokṣam anupravṛtto lubdhakaḥ kṛtānto 'ntaḥ śareṇa yam iha parāvidhyati tam imam ātmānam aho rājan bhinna-hṛdayaṁ draṣṭum arhasīti.

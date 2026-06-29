@@ -1,11 +1,11 @@
 ### Bg 3.12
 
-> इष्टान्भोगान्हि वो देवा दास्यन्ते यज्ञभाविताः ।
+> इष्टान्भोगान्हि वो देवा दास्यन्ते यज्ञभाविताः ।\
 > तैर्दत्तानप्रदायैभ्यो यो भुङ्क्ते स्तेन एव सः ॥१२॥
 
-> iṣṭān bhogān hi vo devā
-> dāsyante yajña-bhāvitāḥ
-> tair dattān apradāyaibhyo
+> iṣṭān bhogān hi vo devā\
+> dāsyante yajña-bhāvitāḥ\
+> tair dattān apradāyaibhyo\
 > yo bhuṅkte stena eva saḥ
 
 *īṣṭān*—deseadas; *bhogān*—las necesidades de la vida; *hi*—ciertamente; *vaḥ*—a vosotros; *devāḥ*—los semidioses; *dāsyante*—otorgan; *yajña-bhāvitāḥ*—estando satisfechos por la ejecución de sacrificios; *taiḥ*—por ellos; *dattān*—cosas dadas; *apradāya*—sin ofrecer; *ebhyaḥ*—a los semidioses; *yaḥ*—aquel que; *bhuṅkte*—disfruta; *stenaḥ*—ladrón; *eva*—ciertamente; *saḥ*—él es.

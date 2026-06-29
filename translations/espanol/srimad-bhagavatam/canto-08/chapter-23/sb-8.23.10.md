@@ -1,11 +1,11 @@
 ### SB 8.23.10
 
-> नित्यं द्रष्टासि मां तत्र गदापाणिमवस्थितम
+> नित्यं द्रष्टासि मां तत्र गदापाणिमवस्थितम\
 > मद्दर्शनमहाह्लाद ध्वस्तकर्मनिबन्धनः ॥१०॥
 
-> nityaṁ draṣṭāsi māṁ tatra
-> gadā-pāṇim avasthitam
-> mad-darśana-mahāhlāda-
+> nityaṁ draṣṭāsi māṁ tatra\
+> gadā-pāṇim avasthitam\
+> mad-darśana-mahāhlāda-\
 > dhvasta-karma-nibandhanaḥ
 
 *nityam*—constantemente; *draṣṭā*—el que ve; *asi*—serás; *mām*—a Mí; *tatra*—allí (en Sutalaloka); *gadā-pāṇim*—con una maza en la mano; *avasthitam*—situado allí; *mat-darśana*—por verme en esa forma; *mahā-āhlāda*—por la gran felicidad trascendental; *dhvasta*—habiendo sido destruido; *karma-nibandhanaḥ*—el cautiverio de las actividades fruitivas.

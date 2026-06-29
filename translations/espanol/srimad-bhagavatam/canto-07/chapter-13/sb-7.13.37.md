@@ -1,11 +1,11 @@
 ### SB 7.13.37
 
-> क्वचिदल्पं क्वचिद्भूरि भुञ्जेऽन्नं स्वाद्वस्वादु वा
+> क्वचिदल्पं क्वचिद्भूरि भुञ्जेऽन्नं स्वाद्वस्वादु वा\
 > क्वचिद्भूरि गुणोपेतं गुणहीनमुत क्वचित ॥३७॥
 
-> anīhaḥ parituṣṭātmā
-> yadṛcchopanatād aham
-> no cec chaye bahv-ahāni
+> anīhaḥ parituṣṭātmā\
+> yadṛcchopanatād aham\
+> no cec chaye bahv-ahāni\
 > mahāhir iva sattvavān
 
 *anīhaḥ*—sin deseo de poseer más; *parituṣṭa*—muy satisfecho; *ātmā*—el ser; *yadṛcchā*—por sí solo, sin esfuerzo; *upanatāt*—por las cosas que vienen a nuestra propiedad; *aham*—yo; *no*—no; *cet*—si así; *śaye*—me acuesto; *bahu*—muchos; *ahāni*—días; *mahā-ahiḥ*—una serpiente pitón; *iva*—como; *sattva-vān*—soportando.

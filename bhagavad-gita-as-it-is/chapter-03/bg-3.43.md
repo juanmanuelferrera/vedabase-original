@@ -1,11 +1,11 @@
 ### Bg 3.43
 
-> एवं बुद्धेः परं बुद्ध्वा संस्तभ्यात्मानमात्मना ।
+> एवं बुद्धेः परं बुद्ध्वा संस्तभ्यात्मानमात्मना ।\
 > जहि शत्रुं महाबाहो कामरूपं दुरासदम् ॥४३॥
 
-> evaṁ buddheḥ paraṁ buddhvā
-> saṁstabhyātmānam ātmanā
-> jahi śatruṁ mahā-bāho
+> evaṁ buddheḥ paraṁ buddhvā\
+> saṁstabhyātmānam ātmanā\
+> jahi śatruṁ mahā-bāho\
 > kāma-rūpaṁ durāsadam
 
 *evam*—thus; *buddheḥ*—of intelligence; *param*—superior; *buddhvā*—so knowing; *saṁstabhya*—by steadying; *ātmānam*—the mind; *ātmanā*—by deliberate intelligence; *jahi*—conquer; *śatrum*—the enemy; *mahā-bāho*—O mighty-armed one; *kāma-rūpam*—the form of lust; *durāsadam*—formidable.

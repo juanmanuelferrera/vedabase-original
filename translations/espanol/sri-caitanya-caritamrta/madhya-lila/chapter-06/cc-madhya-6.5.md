@@ -1,9 +1,9 @@
 ### CC Madhya 6.5
 
-> দৈবে সার্বভৌম তাঁহাকে করে দরশন ।
+> দৈবে সার্বভৌম তাঁহাকে করে দরশন ।\
 > পড়িছা মারিতে তেঁহো কৈল নিবারণ ॥৫॥
 
-> daive sārvabhauma tāṅhāke kare daraśana
+> daive sārvabhauma tāṅhāke kare daraśana\
 > paḍichā mārite teṅho kaila nivāraṇa
 
 *daive*—por casualidad; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *tāṅhāke*—a Él; *kare*—hace; *daraśana*—ver; *paḍichā*—el vigilante del templo; *mārite*—golpear; *teṅho*—él; *kaila*—hizo; *nivāraṇa*—prohibir.

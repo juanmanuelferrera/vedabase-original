@@ -1,13 +1,13 @@
 ### SB 4.7.43
 
-> गन्धर्वा ऊचुः
-> अंशांशास्ते देव मरीच्यादय एते ब्रह्मेन्द्राद्या देवगणा रुद्रपुरोगाः ।
+> गन्धर्वा ऊचुः\
+> अंशांशास्ते देव मरीच्यादय एते ब्रह्मेन्द्राद्या देवगणा रुद्रपुरोगाः ।\
 > क्रीडाभाण्डं विश्वमिदं यस्य विभूमन्तस्मै नित्यं नाथ नमस्ते करवाम ॥४३॥
 
-> gandharvā ūcuḥ
-> aṁśāṁśās te deva marīcy-ādaya ete
-> brahmendrādyā deva-gaṇā rudra-purogāḥ
-> krīḍā-bhāṇḍaṁ viśvam idaṁ yasya vibhūman
+> gandharvā ūcuḥ\
+> aṁśāṁśās te deva marīcy-ādaya ete\
+> brahmendrādyā deva-gaṇā rudra-purogāḥ\
+> krīḍā-bhāṇḍaṁ viśvam idaṁ yasya vibhūman\
 > tasmai nityaṁ nātha namas te karavāma
 
 *gandharvāḥ*—los *gandharvas*; *ūcuḥ*—dijeron; *aṁśa-aṁśāḥ*—partes integrales de Tu cuerpo; *te*—Tus; *deva*—querido Señor; *marīci-ādayaḥ*—Marīci y los grandes sabios; *ete*—estos; *brahma-indra-ādyāḥ*—encabezados por Brahmā e Indra; *deva-gaṇāḥ*—los semidioses; *rudra-purogāḥ*—el principal de los cuales es el Señor Śiva; *krīḍā-bhāṇḍam*—un juguete; *viśvam*—la creación entera; *idam*—esta; *yasya*—de quien; *vibhūman*—el Gran Todopoderoso Supremo; *tasmai*—a Él; *nityam*—siempre; *nātha*—¡oh, Señor!; *namaḥ*—reverencias respetuosas; *te*—a Ti; *karavāma*—ofrecemos.

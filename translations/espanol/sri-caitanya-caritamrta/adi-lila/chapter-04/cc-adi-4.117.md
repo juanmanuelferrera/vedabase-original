@@ -1,13 +1,13 @@
 ### CC Adi 4.117
 
-> বাচা সূচিতশর্বরীরতিকলাপ্রাগল্ভ্যয়া রাধিকাং
-> ব্রীড়াকুঞ্চিতলোচনাং বিরচয়ন্নগ্রে সখীনামসৌ ।
-> তদ্বক্ষোরুহচিত্রকেলিমকরীপাণ্ডিত্যপারং গতঃ
+> বাচা সূচিতশর্বরীরতিকলাপ্রাগল্ভ্যয়া রাধিকাং\
+> ব্রীড়াকুঞ্চিতলোচনাং বিরচয়ন্নগ্রে সখীনামসৌ ।\
+> তদ্বক্ষোরুহচিত্রকেলিমকরীপাণ্ডিত্যপারং গতঃ\
 > কৈশোরং সফলীকরোতি কলয়ন্ কুঞ্জে বিহারং হরিঃ ॥১১৭॥
 
-> vācā sūcita-śarvarī-rati-kalā-prāgalbhyayā rādhikāṁ
-> vrīḍā-kuñcita-locanāṁ viracayann agre sakhīnām asau
-> tad-vakṣo-ruha-citra-keli-makarī-pāṇḍitya-pāraṁ gataḥ
+> vācā sūcita-śarvarī-rati-kalā-prāgalbhyayā rādhikāṁ\
+> vrīḍā-kuñcita-locanāṁ viracayann agre sakhīnām asau\
+> tad-vakṣo-ruha-citra-keli-makarī-pāṇḍitya-pāraṁ gataḥ\
 > kaiśoraṁ saphalī-karoti kalayan kuñje vihāraṁ hariḥ
 
 *vācā*—mediante palabras; *sūcita*—que revelan; *śarvarī*—de la noche; *rati*—en pasatiempos amorosos; *kalā*—de la parte; *prāgalbhyayā*—la importancia; *rādhikām*—a Śrīmatī Rādhārāṇī; *vrīḍā*—por la vergüenza; *kuñcita-locanām*—con los ojos cerrados; *viracayan*—haciendo; *agre*—ante; *sakhīnām*—de Sus amigas; *asau*—ese; *tat*—de Ella; *vakṣaḥ-ruha*—sobre los pechos; *citra-keli*—con pasatiempos variados; *makarī*—en dibujar delfines; *pāṇḍitya*—de destreza; *pāram*—el límite; *gataḥ*—que alcanzó; *kaiśoram*—la adolescencia; *sa-phalī-karoti*—hace fructífera; *kalayan*—ejecutando; *kuñje*—en los arbustos; *vihāram*—pasatiempos; *hariḥ*—la Suprema Personalidad de Dios.

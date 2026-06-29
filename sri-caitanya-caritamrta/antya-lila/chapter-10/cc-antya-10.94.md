@@ -1,9 +1,9 @@
 ### CC Antya 10.94
 
-> প্রভু কহে, — ‘ভিতরে তবে আইলা কেমনে ?
+> প্রভু কহে, — ‘ভিতরে তবে আইলা কেমনে ?\
 > তৈছে কেনে প্রসাদ লৈতে না কৈলা গমনে ?’ ॥ ৯৪ ॥
 
-> prabhu kahe,—'bhitare tabe āilā kemane?
+> prabhu kahe,—'bhitare tabe āilā kemane?\
 > taiche kene prasāda laite nā kailā gamane?'
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *bhitare*—inside; *tabe*—then; *āilā*—you came; *kemane*—how; *taiche*—in the same way; *kene*—why; *prasāda laite*—to take *prasāda*; *nā kailā gamane*—did you not go.

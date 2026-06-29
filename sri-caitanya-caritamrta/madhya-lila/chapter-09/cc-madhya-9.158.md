@@ -1,9 +1,9 @@
 ### CC Madhya 9.158
 
-> অগাধ ঈশ্বর-লীলা কিছুই না জানি ।
+> অগাধ ঈশ্বর-লীলা কিছুই না জানি ।\
 > তুমি যেই কহ, সেই সত্য করি’ মানি ॥১৫৮॥
 
-> agādha īśvara-līlā kichui nā jāni
+> agādha īśvara-līlā kichui nā jāni\
 > tumi yei kaha, sei satya kari' māni
 
 *agādha*—unfathomable; *īśvara-līlā*—pastimes of the Lord; *kichui*—anything; *nā jāni*—I do not know; *tumi*—You; *yei*—whatever; *kaha*—say; *sei satya*—that is right; *kari' māni*—I accept.

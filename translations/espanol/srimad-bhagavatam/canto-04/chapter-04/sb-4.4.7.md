@@ -1,11 +1,11 @@
 ### SB 4.4.7
 
-> तामागतां तत्र न कश्चनाद्रियद्विमानितां यज्ञकृतो भयाज्जनः ।
+> तामागतां तत्र न कश्चनाद्रियद्विमानितां यज्ञकृतो भयाज्जनः ।\
 > ऋते स्वसॄर्वै जननीं च सादराः प्रेमाश्रुकण्ठ्यः परिषस्वजुर्मुदा ॥७॥
 
-> tām āgatāṁ tatra na kaścanādriyad
-> vimānitāṁ yajña-kṛto bhayāj janaḥ
-> ṛte svasṝr vai jananīṁ ca sādarāḥ
+> tām āgatāṁ tatra na kaścanādriyad\
+> vimānitāṁ yajña-kṛto bhayāj janaḥ\
+> ṛte svasṝr vai jananīṁ ca sādarāḥ\
 > premāśru-kaṇṭhyaḥ pariṣasvajur mudā
 
 *tām*—a ella (Satī); *āgatām*—habiendo llegado; *tatra*—allí; *na*—no; *kaścana*—nadie; *ādriyat*—recibió; *vimānitām*—no recibiendo respetos; *yajña-kṛtaḥ*—de quien ejecutaba el sacrificio (Dakṣa); *bhayāt*—por miedo; *janaḥ*—persona; *ṛte*—excepto; *svasṝḥ*—sus propias hermanas; *vai*—en verdad; *jananīm*—madre; *ca*—y; *sa-ādarāḥ*—con respeto; *prema-aśru-kaṇṭhyaḥ*—con la garganta llena de lágrimas de afecto; *pariṣasvajuḥ*—abrazaron; *mudā*—con rostros alegres.

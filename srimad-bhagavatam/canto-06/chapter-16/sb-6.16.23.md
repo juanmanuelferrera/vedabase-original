@@ -1,11 +1,11 @@
 ### SB 6.16.23
 
-> यन्न स्पृशन्ति न विदुर्मनोबुद्धीन्द्रियासवः
+> यन्न स्पृशन्ति न विदुर्मनोबुद्धीन्द्रियासवः\
 > अन्तर्बहिश्च विततं व्योमवत्तन्नतोऽस्म्यहम ॥२३॥
 
-> yan na spṛśanti na vidur
-> mano-buddhīndriyāsavaḥ
-> antar bahiś ca vitataṁ
+> yan na spṛśanti na vidur\
+> mano-buddhīndriyāsavaḥ\
+> antar bahiś ca vitataṁ\
 > vyomavat tan nato 'smy aham
 
 *yat*—whom; *na*—not; *spṛśanti*—can touch; *na*—nor; *viduḥ*—can know; *manaḥ*—the mind; *buddhi*—the intelligence; *indriya*—the senses; *asavaḥ*—the life airs; *antaḥ*—within; *bahiḥ*—outside; *ca*—also; *vitatam*—expanded; *vyoma-vat*—like the sky; *tat*—unto Him; *nataḥ*—bowed; *asmi*—am; *aham*—I.

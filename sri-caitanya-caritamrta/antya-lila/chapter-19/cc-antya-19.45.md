@@ -1,13 +1,13 @@
 ### CC Antya 19.45
 
-> অহো বিধাতস্তব ন ক্বচিদ্দয়া
-> সংযোজ্য মৈত্র্যা প্রণয়েন দেহিনঃ ।
-> তাংশ্চাকৃতার্থান্ বিযুনঙক্ষ্যপার্থকং
+> অহো বিধাতস্তব ন ক্বচিদ্দয়া\
+> সংযোজ্য মৈত্র্যা প্রণয়েন দেহিনঃ ।\
+> তাংশ্চাকৃতার্থান্ বিযুনঙক্ষ্যপার্থকং\
 > বিচেষ্টিতং তেঽর্ভকচেষ্টিতং যথা ॥৪৫॥
 
-> aho vidhātas tava na kvacid dayā
-> saṁyojya maitryā praṇayena dehinaḥ
-> tāṁś cākṛtārthān viyunaṅkṣy apārthakaṁ
+> aho vidhātas tava na kvacid dayā\
+> saṁyojya maitryā praṇayena dehinaḥ\
+> tāṁś cākṛtārthān viyunaṅkṣy apārthakaṁ\
 > viceṣṭitaṁ te 'rbhaka-ceṣṭitaṁ yathā
 
 *aho*—alas; *vidhātaḥ*—O Providence; *tava*—your; *na*—not; *kvacit*—at any time; *dayā*—mercy; *saṁyojya*—making connections; *maitryā*—by friendship; *praṇayena*—and by affection; *dehinaḥ*—of the embodied souls; *tān*—them; *ca*—and; *akṛta-arthān*—without achievement; *viyunaṅkṣi*—you cause to happen; *apārthakam*—separation; *viceṣṭitam*—activities; *te*—your; *arbhaka*—of a boy; *ceṣṭitam*—the childish play; *yathā*—like.

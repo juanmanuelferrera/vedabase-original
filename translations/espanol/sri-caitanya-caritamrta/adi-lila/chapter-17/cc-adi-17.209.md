@@ -1,9 +1,9 @@
 ### CC Adi 17.209
 
-> নগরিয়াকে পাগল কৈল সদা সংকীর্তন ।
+> নগরিয়াকে পাগল কৈল সদা সংকীর্তন ।\
 > রাত্রে নিদ্রা নাহি যাই, করি জাগরণ ॥২০৯॥
 
-> nagariyāke pāgala kaila sadā saṅkīrtana
+> nagariyāke pāgala kaila sadā saṅkīrtana\
 > rātre nidrā nāhi yāi, kari jāgaraṇa
 
 *nagariyāke*—a todos los ciudadanos; *pāgala*—locos; *kaila*—ha vuelto; *sadā*—siempre; *saṅkīrtana*—canto congregacional; *rātre*—por la noche; *nidrā*—sueño; *nāhi yāi*—no conciliamos; *kari*—observamos; *jāgaraṇa*—vigilia.

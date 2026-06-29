@@ -1,9 +1,9 @@
 ### CC Adi 5.63
 
-> ঘটের নিমিত্ত-হেতু যৈছে কুম্ভকার ।
+> ঘটের নিমিত্ত-হেতু যৈছে কুম্ভকার ।\
 > তৈছে জগতের কর্তা — পুরুষাবতার ॥৬৩॥
 
-> ghaṭera nimitta-hetu yaiche kumbhakāra
+> ghaṭera nimitta-hetu yaiche kumbhakāra\
 > taiche jagatera kartā--puruṣāvatāra
 
 *ghaṭera*—de la vasija de barro; *nimitta-hetu*—causa original; *yaiche*—tal como; *kumbhakāra*—el alfarero; *taiche*—de manera similar; *jagatera kartā*—el creador del mundo material; *puruṣa-avatāra*—la encarnación *puruṣa*, o Kāraṇārṇavaśāyī Viṣṇu.

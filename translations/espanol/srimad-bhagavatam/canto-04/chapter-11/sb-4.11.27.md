@@ -1,11 +1,11 @@
 ### SB 4.11.27
 
-> तमेव मृत्युममृतं तात दैवं सर्वात्मनोपेहि जगत्परायणम् ।
+> तमेव मृत्युममृतं तात दैवं सर्वात्मनोपेहि जगत्परायणम् ।\
 > यस्मै बलिं विश्वसृजो हरन्ति गावो यथा वै नसि दामयन्त्रिताः ॥२७॥
 
-> tam eva mṛtyum amṛtaṁ tāta daivaṁ
-> sarvātmanopehi jagat-parāyaṇam
-> yasmai baliṁ viśva-sṛjo haranti
+> tam eva mṛtyum amṛtaṁ tāta daivaṁ\
+> sarvātmanopehi jagat-parāyaṇam\
+> yasmai baliṁ viśva-sṛjo haranti\
 > gāvo yathā vai nasi dāma-yantritāḥ
 
 *tam*—a Él; *eva*—ciertamente; *mṛtyum*—muerte; *amṛtam*—inmortalidad; *tāta*—mi querido hijo; *daivam*—el Supremo; *sarva-ātmanā*—en todo aspecto; *upehi*—entrégate; *jagat*—del mundo; *parāyaṇam*—objetivo supremo; *yasmai*—a quien; *balim*—ofrendas; *viśva-sṛjaḥ*—todos los semidioses, como Brahmā; *haranti*—llevan; *gāvaḥ*—bueyes; *yathā*—como; *vai*—sin falta; *nasi*—en la nariz; *dāma*—con una cuerda; *yantritāḥ*—controlados.

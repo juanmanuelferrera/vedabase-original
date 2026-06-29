@@ -1,13 +1,13 @@
 ### CC Adi 2.21
 
-> তমিমমহমজং শরীরভাজাং
-> হৃদি হৃদি ধিষ্ঠিতমাত্মকল্পিতানাম্ ।
-> প্রতিদৃশমিব নৈকধার্কমেকং
+> তমিমমহমজং শরীরভাজাং\
+> হৃদি হৃদি ধিষ্ঠিতমাত্মকল্পিতানাম্ ।\
+> প্রতিদৃশমিব নৈকধার্কমেকং\
 > সমধিগতোঽস্মি বিধূতভেদমোহঃ ॥২১॥
 
-> tam imam aham ajaṁ śarīra-bhājāṁ
-> hṛḍi hṛdi dhiṣṭhitam ātma-kalpitānām
-> prati-dṛśam iva naikadhārkam ekaṁ
+> tam imam aham ajaṁ śarīra-bhājāṁ\
+> hṛḍi hṛdi dhiṣṭhitam ātma-kalpitānām\
+> prati-dṛśam iva naikadhārkam ekaṁ\
 > samadhigato 'smi vidhūta-bheda-mohaḥ
 
 *tam*—a Él; *imam*—este; *aham*—yo; *ajam*—el no nacido; *śarīra-bhājām*—de las almas condicionadas dotadas de cuerpos; *hṛdi hṛdi*—en cada uno de los corazones; *dhiṣṭhitam*—situado; *ātma*—por sí mismas; *kalpitānām*—que son imaginados; *prati-dṛśam*—para cada ojo; *iva*—como; *na eka-dhā*—no de un solo modo; *arkam*—el sol; *ekam*—uno; *samadhigataḥ*—aquel que ha obtenido; *asmi*—soy; *vidhūta*—eliminada; *bheda-mohaḥ*—cuya concepción errónea de la dualidad.

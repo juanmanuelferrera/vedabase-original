@@ -1,9 +1,9 @@
 ### CC Madhya 16.104
 
-> পুনঃ উঠে, পুনঃ পড়ে প্রণয়-বিহ্বল ।
+> পুনঃ উঠে, পুনঃ পড়ে প্রণয়-বিহ্বল ।\
 > স্তুতি করে, পুলকাঙ্গ, পড়ে অশ্রুজল ॥১০৪॥
 
-> punaḥ uṭhe, punaḥ paḍe praṇaya-vihvala
+> punaḥ uṭhe, punaḥ paḍe praṇaya-vihvala\
 > stuti kare, pulakāṅga, paḍe aśru-jala
 
 *punaḥ*—de nuevo; *uṭhe*—se levantó; *punaḥ*—de nuevo; *paḍe*—cayó al suelo; *praṇaya-vihvala*—abrumado de amor; *stuti kare*—ofrece oraciones; *pulaka-aṅga*—todo el cuerpo estremeciéndose de gozo; *paḍe*—cayó; *aśru-jala*—lágrimas.

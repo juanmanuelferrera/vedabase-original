@@ -1,9 +1,9 @@
 ### CC Antya 2.4
 
-> সাক্ষাৎ-দর্শন, আর যোগ্যভক্ত-জীবে ।
+> সাক্ষাৎ-দর্শন, আর যোগ্যভক্ত-জীবে ।\
 > ‘আবেশ’ করয়ে কাহাঁ, কাহাঁ ‘আবির্ভাবে’ ॥৪॥
 
-> sākṣāt-darśana, āra yogya-bhakta-jīve
+> sākṣāt-darśana, āra yogya-bhakta-jīve\
 > 'āveśa' karaye kāhāṅ, kāhāṅ 'āvirbhāve'
 
 *sākṣāt-darśana*—encuentro directo; *āra*—y; *yogya-bhakta*—devoto perfecto; *jīve*—entidades vivientes; *āveśa karaye*—inviste con potencias espirituales específicas; *kāhāṅ*—en algún lugar; *kāhāṅ*—en otros lugares; *āvirbhāve*—apareciendo Él mismo.

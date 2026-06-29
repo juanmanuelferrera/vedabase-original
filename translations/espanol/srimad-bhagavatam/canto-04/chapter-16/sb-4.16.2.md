@@ -1,11 +1,11 @@
 ### SB 4.16.2
 
-> नालं वयं ते महिमानुवर्णने यो देववर्योऽवततार मायया ।
+> नालं वयं ते महिमानुवर्णने यो देववर्योऽवततार मायया ।\
 > वेनाङ्गजातस्य च पौरुषाणि ते वाचस्पतीनामपि बभ्रमुर्धियः ॥२॥
 
-> nālaṁ vayaṁ te mahimānuvarṇane
-> yo deva-varyo 'vatatāra māyayā
-> venāṅga-jātasya ca pauruṣāṇi te
+> nālaṁ vayaṁ te mahimānuvarṇane\
+> yo deva-varyo 'vatatāra māyayā\
+> venāṅga-jātasya ca pauruṣāṇi te\
 > vācas-patīnām api babhramur dhiyaḥ
 
 *na alam*—no capaces; *vayam*—nosotros; *te*—tus; *mahima*—glorias; *anuvarṇane*—de describir; *yaḥ*—tú, que; *deva*—la Personalidad de Dios; *varyaḥ*—principal; *avatatāra*—descendido; *māyayā*—por Sus potencias internas o misericordia sin causa; *vena-aṅga*—del cuerpo del rey Vena; *jātasya*—que has aparecido; *ca*—y; *pauruṣāṇi*—gloriosas actividades; *te*—de ti; *vācaḥ-patīnām*—de grandes oradores; *api*—aunque; *babhramuḥ*—se confunden; *dhiyaḥ*—las mentes.

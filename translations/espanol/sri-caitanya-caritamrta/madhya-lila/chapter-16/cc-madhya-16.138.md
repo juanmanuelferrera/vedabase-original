@@ -1,9 +1,9 @@
 ### CC Madhya 16.138
 
-> তাঁহার চরিত্রে প্রভু অন্তরে সন্তোষ ।
+> তাঁহার চরিত্রে প্রভু অন্তরে সন্তোষ ।\
 > তাঁহার হাতে ধরি’ কহে করি’ প্রণয়-রোষ ॥১৩৮॥
 
-> tāṅhāra caritre prabhu antare santoṣa
+> tāṅhāra caritre prabhu antare santoṣa\
 > tāṅhāra hāte dhari' kahe kari' praṇaya-roṣa
 
 *tāṅhāra caritre*—con su comportamiento; *prabhu*—Śrī Caitanya Mahāprabhu; *antare*—en Su corazón; *santoṣa*—muy satisfecho; *tāṅhāra hāte dhari'*—tomándole de la mano; *kahe*—dice; *kari'*—mostrando; *praṇaya-roṣa*—enojo amoroso.

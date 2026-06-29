@@ -1,9 +1,9 @@
 ### CC Madhya 10.108
 
-> sannyāsa karilā śikhā-sūtra-tyāga-rūpa
+> sannyāsa karilā śikhā-sūtra-tyāga-rūpa\
 > yoga-paṭṭa nā nila, nāma haila 'svarūpa'
 
-> sannyāsa karilā śikhā-sūtra-tyāga-rūpa
+> sannyāsa karilā śikhā-sūtra-tyāga-rūpa\
 > yoga-paṭṭa nā nila, nāma haila 'svarūpa'
 
 *sannyāsa karilā*—aceptó la orden de sannyāsa; *śikhā*—mechón de cabello; *sūtra*—cordón sagrado; *tyāga*—renunciando; *rūpa*—en la forma de; *yoga-paṭṭa*—vestidura de color azafrán; *nā nila*—no aceptó; *nāma*—nombre; *haila*—fue; *svarūpa*—Svarūpa.

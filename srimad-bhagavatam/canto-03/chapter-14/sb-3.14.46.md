@@ -1,11 +1,11 @@
 ### SB 3.14.46
 
-> योगैर्हेमेव दुर्वर्णं भावयिष्यन्ति साधवः ।
+> योगैर्हेमेव दुर्वर्णं भावयिष्यन्ति साधवः ।\
 > निर्वैरादिभिरात्मानं यच्छीलमनुवर्तितुम् ॥४६॥
 
-> yogair hemeva durvarṇaṁ
-> bhāvayiṣyanti sādhavaḥ
-> nirvairādibhir ātmānaṁ
+> yogair hemeva durvarṇaṁ\
+> bhāvayiṣyanti sādhavaḥ\
+> nirvairādibhir ātmānaṁ\
 > yac-chīlam anuvartitum
 
 *yogaiḥ*—by the rectifying processes; *hema*—gold; *iva*—like; *durvarṇam*—inferior quality; *bhāvayiṣyanti*—will purify; *sādhavaḥ*—saintly persons; *nirvaira-ādibhiḥ*—by practice of freedom from animosity, etc.; *ātmānam*—the self; *yat*—whose; *śīlam*—character; *anuvartitum*—to follow in the footsteps.

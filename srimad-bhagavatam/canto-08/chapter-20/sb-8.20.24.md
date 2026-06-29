@@ -1,11 +1,11 @@
 ### SB 8.20.24
 
-> सन्ध्यां विभोर्वाससि गुह्य ऐक्षत्प्रजापतीन्जघने आत्ममुख्यान
+> सन्ध्यां विभोर्वाससि गुह्य ऐक्षत्प्रजापतीन्जघने आत्ममुख्यान\
 > नाभ्यां नभः कुक्षिषु सप्तसिन्धूनुरुक्रमस्योरसि चर्क्षमालाम ॥२४॥
 
-> sandhyāṁ vibhor vāsasi guhya aikṣat
-> prajāpatīñ jaghane ātma-mukhyān
-> nābhyāṁ nabhaḥ kukṣiṣu sapta-sindhūn
+> sandhyāṁ vibhor vāsasi guhya aikṣat\
+> prajāpatīñ jaghane ātma-mukhyān\
+> nābhyāṁ nabhaḥ kukṣiṣu sapta-sindhūn\
 > urukramasyorasi carkṣa-mālām
 
 *sandhyām*—the evening twilight; *vibhoḥ*—of the Supreme; *vāsasi*—in the garment; *guhye*—on the private parts; *aikṣat*—he saw; *prajāpatīn*—the various Prajāpatis, who had given birth to all living entities; *jaghane*—on the hips; *ātma-mukhyān*—the confidential ministers of Bali Mahārāja; *nābhyām*—on the navel; *nabhaḥ*—the whole sky; *kukṣiṣu*—on the waist; *sapta*—seven; *sindhūn*—oceans; *urukramasya*—of the Supreme Personality of Godhead, who was acting wonderfully; *urasi*—on the bosom; *ca*—also; *ṛkṣa-mālām*—the clusters of stars.

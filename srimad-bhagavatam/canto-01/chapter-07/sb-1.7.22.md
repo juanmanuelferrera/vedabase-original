@@ -1,13 +1,13 @@
 ### SB 1.7.22
 
-> अर्जुन उवाच
-> कृष्ण कृष्ण महाबाहो भक्तानामभयङ्कर ।
+> अर्जुन उवाच\
+> कृष्ण कृष्ण महाबाहो भक्तानामभयङ्कर ।\
 > त्वमेको दह्यमानानामपवर्गोऽसि संसृतेः ॥२२॥
 
-> arjuna uvāca
-> kṛṣṇa kṛṣṇa mahā-bāho
-> bhaktānām abhayaṅkara
-> tvam eko dahyamānānām
+> arjuna uvāca\
+> kṛṣṇa kṛṣṇa mahā-bāho\
+> bhaktānām abhayaṅkara\
+> tvam eko dahyamānānām\
 > apavargo 'si saṁsṛteḥ
 
 *arjunaḥ uvāca*—Arjuna said; *kṛṣṇa*—O Lord Kṛṣṇa; *kṛṣṇa*—O Lord Kṛṣṇa; *mahā-bāho*—He who is the Almighty; *bhaktānām*—of the devotees; *abhayaṅkara*—eradicating the fears of; *tvam*—You; *ekaḥ*—alone; *dahyamānānām*—those who are suffering from; *apavargaḥ*—the path of liberation; *asi*—are; *saṁsṛteḥ*—in the midst of material miseries.

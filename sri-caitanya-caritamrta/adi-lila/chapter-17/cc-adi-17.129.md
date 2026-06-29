@@ -1,9 +1,9 @@
 ### CC Adi 17.129
 
-> এত বলি’ কাজী গেল, — নগরিয়া লোক ।
+> এত বলি’ কাজী গেল, — নগরিয়া লোক ।\
 > প্রভু-স্থানে নিবেদিল পাঞা বড় শোক ॥১২৯॥
 
-> eta bali' kājī gela,—nagariyā loka
+> eta bali' kājī gela,—nagariyā loka\
 > prabhu-sthāne nivedila pāñā baḍa śoka
 
 *eta bali'*—thus saying; *kājī*—the magistrate; *gela*—returned; *nagariyā loka*—the citizens in general; *prabhu-sthāne*—before the Lord; *nivedila*—submitted; *pāñā*—getting; *baḍa*—very; *śoka*—shock.

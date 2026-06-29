@@ -1,9 +1,9 @@
 ### CC Antya 11.42
 
-> ‘ভকতবৎসল’ প্রভু, তুমি, মুই ‘ভক্তাভাস’ ।
+> ‘ভকতবৎসল’ প্রভু, তুমি, মুই ‘ভক্তাভাস’ ।\
 > অবশ্য পূরাবে, প্রভু, মোর এই আশ ।।” ॥ ৪২ ॥
 
-> 'bhakata-vatsala' prabhu, tumi, mui 'bhaktābhāsa'
+> 'bhakata-vatsala' prabhu, tumi, mui 'bhaktābhāsa'\
 > avaśya pūrābe, prabhu, mora ei āśa"
 
 *bhakata-vatsala*—siempre afectuoso con los devotos; *prabhu*—mi Señor; *tumi*—Tú; *mui*—yo; *bhakta-ābhāsa*—un devoto de imitación; *avaśya*—ciertamente; *pūrābe*—Tú cumplirás; *prabhu*—mi Señor; *mora*—mi; *ei*—esta; *āśa*—esperanza.

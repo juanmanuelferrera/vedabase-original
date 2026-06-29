@@ -1,11 +1,11 @@
 ### SB 3.32.39
 
-> नैतत्खलायोपदिशेन्नाविनीताय कर्हिचित् ।
+> नैतत्खलायोपदिशेन्नाविनीताय कर्हिचित् ।\
 > न स्तब्धाय न भिन्नाय नैव धर्मध्वजाय च ॥३९॥
 
-> naitat khalāyopadiśen
-> nāvinītāya karhicit
-> na stabdhāya na bhinnāya
+> naitat khalāyopadiśen\
+> nāvinītāya karhicit\
+> na stabdhāya na bhinnāya\
 > naiva dharma-dhvajāya ca
 
 *na*—no; *etat*—esta instrucción; *khalāya*—a los envidiosos; *upadiśet*—se debe enseñar; *na*—no; *avinītāya*—al agnóstico; *karhicit*—siempre; *na*—no; *stabdhāya*—al orgulloso; *na*—no; *bhinnāya*—al que no se comporta bien; *na*—no; *eva*—ciertamente; *dharma-dhvajāya*—a los hipócritas; *ca*—también.

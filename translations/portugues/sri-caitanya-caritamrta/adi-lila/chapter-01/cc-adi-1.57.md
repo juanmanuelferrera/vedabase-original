@@ -1,8 +1,8 @@
 ### CC Adi 1.57
 
-> cintāmaṇir jayati somagirir gurur me
-> śikṣā-guruś ca bhagavān śikhi-piñcha-mauliḥ
-> yat-pāda-kalpataru-pallava-śekhareṣu
+> cintāmaṇir jayati somagirir gurur me\
+> śikṣā-guruś ca bhagavān śikhi-piñcha-mauliḥ\
+> yat-pāda-kalpataru-pallava-śekhareṣu\
 > līlā-svayaṁvara-rasaṁ labhate jayaśrīḥ
 
 *cintāmaṇiḥ jayati*—todas as glórias a Cintāmaṇi; *soma-giriḥ*—Somagiri (o *guru* iniciador); *guruḥ*—mestre espiritual; *me*—meu; *śikṣā-guruḥ*—mestre espiritual instrutor; *ca*—e; *bhagavān*—a Suprema Personalidade de Deus; *śikhi-piñcha*—com penas de pavão; *mauliḥ*—cuja cabeça; *yat*—cujos; *pāda*—dos pés de lótus; *kalpa-taru*—como árvores-dos-desejos; *pallava*—como folhas novas; *śekhareṣu*—nas unhas dos dedos dos pés; *līlā-svayam-vara*—dos passatempos conjugais; *rasam*—a doçura; *labhate*—obtém; *jaya-śrīḥ*—Śrīmatī Rādhārāṇī.

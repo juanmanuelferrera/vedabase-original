@@ -1,9 +1,9 @@
 ### CC Antya 6.296
 
-> এক কুঁজা জল আর তুলসী-মঞ্জরী ।
+> এক কুঁজা জল আর তুলসী-মঞ্জরী ।\
 > সাত্ত্বিক-সেবা এই — শুদ্ধ ভাবে করি ॥২৯৬॥
 
-> eka kuṅjā jala āra tulasī-mañjarī
+> eka kuṅjā jala āra tulasī-mañjarī\
 > sāttvika-sevā ei--śuddha-bhāve kari
 
 *eka*—una; *kuṅjā*—jarra; *jala*—agua; *āra*—y; *tulasī-mañjarī*—flores de la planta de *tulasī*; *sāttvika-sevā*—adoración en la bondad; *ei*—esta; *śuddha-bhāve*—con total pureza; *kari*—realizando.

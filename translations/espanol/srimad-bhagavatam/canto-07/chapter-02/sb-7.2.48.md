@@ -1,11 +1,11 @@
 ### SB 7.2.48
 
-> वितथाभिनिवेशोऽयं यद्गुणेष्वर्थदृग्वचः
+> वितथाभिनिवेशोऽयं यद्गुणेष्वर्थदृग्वचः\
 > यथा मनोरथः स्वप्नः सर्वमैन्द्रियकं मृषा ॥४८॥
 
-> vitathābhiniveśo 'yaṁ
-> yad guṇeṣv artha-dṛg-vacaḥ
-> yathā manorathaḥ svapnaḥ
+> vitathābhiniveśo 'yaṁ\
+> yad guṇeṣv artha-dṛg-vacaḥ\
+> yathā manorathaḥ svapnaḥ\
 > sarvam aindriyakaṁ mṛṣā
 
 *vitatha*—inútil; *abhiniveśaḥ*—el concepto; *ayam*—este; *yat*—que; *guṇeṣu*—en las modalidades de la naturaleza material; *artha*—como una realidad; *dṛk-vacaḥ*—el ver y el hablar de; *yathā*—tal como; *manorathaḥ*—una invención mental (soñar despierto); *svapnaḥ*—un sueño; *sarvam*—todo; *aindriyakam*—producido por los sentidos; *mṛṣā*—falso.

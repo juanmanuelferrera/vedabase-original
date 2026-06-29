@@ -1,9 +1,9 @@
 ### CC Adi 17.30
 
-> সদা নাম লইব, যথা-লাভেতে সন্তোষ ।
+> সদা নাম লইব, যথা-লাভেতে সন্তোষ ।\
 > এইত আচার করে ভক্তিধর্ম-পোষ ॥৩০॥
 
-> sadā nāma la-iba, yathā-lābhete santoṣa
+> sadā nāma la-iba, yathā-lābhete santoṣa\
 > eita ācāra kare bhakti-dharma-poṣa
 
 *sadā*—always; *nāma*—the holy name; *la-iba*—one should chant; *yathā*—inasmuch as; *lābhete*—gains; *santoṣa*—satisfaction; *eita*—this; *ācāra*—behavior; *kare*—does; *bhakti-dharma*—of devotional service; *poṣa*—maintenance.

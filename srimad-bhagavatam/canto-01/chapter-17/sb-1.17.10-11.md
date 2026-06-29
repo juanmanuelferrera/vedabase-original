@@ -1,18 +1,18 @@
 ### SB 1.17.10-11
 
-> यस्य राष्ट्रे प्रजाः सर्वास्त्रस्यन्ते साध्व्यसाधुभिः ।
-> तस्य मत्तस्य नश्यन्ति कीर्तिरायुर्भगो गतिः ॥१०॥
-> एष राज्ञां परो धर्मो ह्यार्तानामार्तिनिग्रहः ।
+> यस्य राष्ट्रे प्रजाः सर्वास्त्रस्यन्ते साध्व्यसाधुभिः ।\
+> तस्य मत्तस्य नश्यन्ति कीर्तिरायुर्भगो गतिः ॥१०॥\
+> एष राज्ञां परो धर्मो ह्यार्तानामार्तिनिग्रहः ।\
 > अत एनं वधिष्यामि भूतद्रुहमसत्तमम् ॥११॥
 
-> yasya rāṣṭre prajāḥ sarvās
-> trasyante sādhvy asādhubhiḥ
-> tasya mattasya naśyanti
+> yasya rāṣṭre prajāḥ sarvās\
+> trasyante sādhvy asādhubhiḥ\
+> tasya mattasya naśyanti\
 > kīrtir āyur bhago gatiḥ
 
-> eṣa rājñāṁ paro dharmo
-> hy ārtānām ārti-nigrahaḥ
-> ata enaṁ vadhiṣyāmi
+> eṣa rājñāṁ paro dharmo\
+> hy ārtānām ārti-nigrahaḥ\
+> ata enaṁ vadhiṣyāmi\
 > bhūta-druham asattamam
 
 *yasya*—one whose; *rāṣṭre*—in the state; *prajāḥ*—living beings; *sarvāḥ*—one and all; *trasyante*—are terrified; *sādhvi*—O chaste one; *asādhubhiḥ*—by the miscreants; *tasya*—his; *mattasya*—of the illusioned; *naśyanti*—vanishes; *kīrtiḥ*—fame; *āyuḥ*—duration of life; *bhagaḥ*—fortune; *gatiḥ*—good rebirth; *eṣaḥ*—these are; *rājñām*—of the kings; *paraḥ*—superior; *dharmaḥ*—occupation; *hi*—certainly; *ārtānām*—of the sufferers; *ārti*—sufferings; *nigrahaḥ*—subduing; *ataḥ*—therefore; *enam*—this man; *vadhiṣyāmi*—I shall kill; *bhūta-druham*—revolter against other living beings; *asat-tamam*—the most wretched.

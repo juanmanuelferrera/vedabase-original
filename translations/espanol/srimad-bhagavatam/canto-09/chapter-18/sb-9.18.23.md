@@ -1,11 +1,11 @@
 ### SB 9.18.23
 
-> ययातिरनभिप्रेतं दैवोपहृतमात्मनः
+> ययातिरनभिप्रेतं दैवोपहृतमात्मनः\
 > मनस्तु तद्गतं बुद्ध्वा प्रतिजग्राह तद्वचः ॥२३॥
 
-> yayātir anabhipretaṁ
-> daivopahṛtam ātmanaḥ
-> manas tu tad-gataṁ buddhvā
+> yayātir anabhipretaṁ\
+> daivopahṛtam ātmanaḥ\
+> manas tu tad-gataṁ buddhvā\
 > pratijagrāha tad-vacaḥ
 
 *yayātiḥ*—al rey Yayāti; *anabhipretam*—no le gustaba; *daiva-upahṛtam*—ocasionado por disposición de la providencia; *ātmanaḥ*—su interés personal; *manaḥ*—mente; *tu*—sin embargo; *tat-gatam*—estando atraída por ella; *buddhvā*—con esa inteligencia; *pratijagrāha*—aceptó; *tat-vacaḥ*—las palabras de Devayānī.

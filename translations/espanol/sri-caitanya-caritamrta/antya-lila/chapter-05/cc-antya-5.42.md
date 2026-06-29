@@ -1,9 +1,9 @@
 ### CC Antya 5.42
 
-> এক রামানন্দের হয় এই অধিকার ।
+> এক রামানন্দের হয় এই অধিকার ।\
 > তাতে জানি অপ্রাকৃত-দেহ তাঁহার ॥৪২॥
 
-> eka rāmānandera haya ei adhikāra
+> eka rāmānandera haya ei adhikāra\
 > tāte jāni aprākṛta-deha tāṅhāra
 
 *eka*—solo uno; *rāmānandera*—de Śrī Rāmānanda Rāya; *haya*—hay; *ei*—esta; *adhikāra*—autoridad especial; *tāte*—por ello; *jāni*—podemos comprender; *aprākṛta*—espiritual; *deha*—cuerpo; *tāṅhāra*—su.

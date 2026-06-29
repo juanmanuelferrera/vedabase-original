@@ -1,9 +1,9 @@
 ### CC Adi 17.28
 
-> কাটিলেহ তরু যেন কিছু না বোলয় ।
+> কাটিলেহ তরু যেন কিছু না বোলয় ।\
 > শুকাইয়া মরে, তবু জল না মাগয় ॥২৮॥
 
-> kāṭileha taru yena kichu nā bolaya
+> kāṭileha taru yena kichu nā bolaya\
 > śukāiyā mare, tabu jala nā māgaya
 
 *kāṭileha*—incluso siendo cortado; *taru*—el árbol; *yena*—como; *kichu*—algo; *nā*—no; *bolaya*—dice; *śukāiyā*—secándose; *mare*—muere; *tabu*—aun así; *jala*—agua; *nā*—no; *māgaya*—pide.

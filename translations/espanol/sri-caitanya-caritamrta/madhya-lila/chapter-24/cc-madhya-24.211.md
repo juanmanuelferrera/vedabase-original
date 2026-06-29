@@ -1,9 +1,9 @@
 ### CC Madhya 24.211
 
-> এই উনিশ অর্থ করিলু, আগে শুন আর ।
+> এই উনিশ অর্থ করিলু, আগে শুন আর ।\
 > ‘আত্মা’-শব্দে ‘দেহ’ কহে, — চারি অর্থ তার ॥২১১॥
 
-> ei ūniśa artha karilu, āge śuna āra
+> ei ūniśa artha karilu, āge śuna āra\
 > 'ātma'-śabde 'deha' kahe,--cāri artha tāra
 
 *ei*—estos; *ūniśa*—diecinueve; *artha*—significados; *karilu*—he hecho; *āge*—adelante; *śuna*—escucha; *āra*—más; *ātma-śabde*—con la palabra ātma; *deha*—el cuerpo; *kahe*—se entiende; *cāri artha*—cuatro significados; *tāra*—de eso.

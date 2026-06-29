@@ -1,13 +1,13 @@
 ### SB 6.9.46
 
-> श्रीशुक उवाच
-> अथैवमीडितो राजन्सादरं त्रिदशैर्हरिः
+> श्रीशुक उवाच\
+> अथैवमीडितो राजन्सादरं त्रिदशैर्हरिः\
 > स्वमुपस्थानमाकर्ण्य प्राह तानभिनन्दितः ॥४६॥
 
-> śrī-śuka uvāca
-> athaivam īḍito rājan
-> sādaraṁ tri-daśair hariḥ
-> svam upasthānam ākarṇya
+> śrī-śuka uvāca\
+> athaivam īḍito rājan\
+> sādaraṁ tri-daśair hariḥ\
+> svam upasthānam ākarṇya\
 > prāha tān abhinanditaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *atha*—thereafter; *evam*—in this way; *īḍitaḥ*—being worshiped and offered obeisances; *rājan*—O King; *sa-ādaram*—with proper respect; *tri-daśaiḥ*—by all the demigods from the higher planetary systems; *hariḥ*—the Supreme Personality of Godhead; *svam upasthānam*—their prayer glorifying Him; *ākarṇya*—hearing; *prāha*—replied; *tān*—unto them (the demigods); *abhinanditaḥ*—being pleased.

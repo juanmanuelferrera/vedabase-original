@@ -1,11 +1,11 @@
 ### SB 3.21.24
 
-> न वै जातु मृषैव स्यात्प्रजाध्यक्ष मदर्हणम् ।
+> न वै जातु मृषैव स्यात्प्रजाध्यक्ष मदर्हणम् ।\
 > भवद्विधेष्वतितरां मयि सङ्गृभितात्मनाम् ॥२४॥
 
-> na vai jātu mṛṣaiva syāt
-> prajādhyakṣa mad-arhaṇam
-> bhavad-vidheṣv atitarāṁ
+> na vai jātu mṛṣaiva syāt\
+> prajādhyakṣa mad-arhaṇam\
+> bhavad-vidheṣv atitarāṁ\
 > mayi saṅgṛbhitātmanām
 
 *na*—no; *vai*—en verdad; *jātu*—nunca; *mṛṣā*—inútil; *eva*—solo; *syāt*—puede haber; *prajā*—de las entidades vivientes; *adhyakṣa*—¡oh, líder!; *mat-arhaṇam*—adórame a Mí; *bhavat-vidheṣu*—a personas como tú; *atitarām*—enteramente; *mayi*—en Mí; *saṅgṛbhita*—está fija; *ātmanām*—de aquellos cuya mente.

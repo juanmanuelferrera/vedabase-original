@@ -1,11 +1,11 @@
 ### SB 3.12.2
 
-> ससर्जाग्रेऽन्धतामिस्रमथ तामिस्रमादिकृत् ।
+> ससर्जाग्रेऽन्धतामिस्रमथ तामिस्रमादिकृत् ।\
 > महामोहं च मोहं च तमश्चाज्ञानवृत्तयः ॥२॥
 
-> sasarjāgre 'ndha-tāmisram
-> atha tāmisram ādi-kṛt
-> mahāmohaṁ ca mohaṁ ca
+> sasarjāgre 'ndha-tāmisram\
+> atha tāmisram ādi-kṛt\
+> mahāmohaṁ ca mohaṁ ca\
 > tamaś cājñāna-vṛttayaḥ
 
 *sasarja*—created; *agre*—at first; *andha-tāmisram*—the sense of death; *atha*—then; *tāmisram*—anger upon frustration; *ādi-kṛt*—all these; *mahā-moham*—ownership of enjoyable objects; *ca*—also; *moham*—illusory conception; *ca*—also; *tamaḥ*—darkness in self-knowledge; *ca*—as well as; *ajñāna*—nescience; *vṛttayaḥ*—engagements.

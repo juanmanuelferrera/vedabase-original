@@ -1,11 +1,11 @@
 ### SB 8.10.43
 
-> तस्य कर्मोत्तमं वीक्ष्य दुर्मर्षः शक्तिमाददे
+> तस्य कर्मोत्तमं वीक्ष्य दुर्मर्षः शक्तिमाददे\
 > तां ज्वलन्तीं महोल्काभां हस्तस्थामच्छिनद्धरिः ॥४३॥
 
-> tasya karmottamaṁ vīkṣya
-> durmarṣaḥ śaktim ādade
-> tāṁ jvalantīṁ maholkābhāṁ
+> tasya karmottamaṁ vīkṣya\
+> durmarṣaḥ śaktim ādade\
+> tāṁ jvalantīṁ maholkābhāṁ\
 > hasta-sthām acchinad dhariḥ
 
 *tasya*—del rey Indra; *karma-uttamam*—el gran dominio del arte militar; *vīkṣya*—al observar; *durmarṣaḥ*—muy iracundo; *śaktim*—el arma *śakti*; *ādade*—empuñó; *tām*—aquella arma; *jvalantīm*—fuego ardiente; *mahā-ulkā-ābhām*—con el aspecto de una gran antorcha; *hasta-sthām*—mientras Bali aún la tenía en la mano; *acchinat*—cortó en pedazos; *hariḥ*—Indra.

@@ -1,11 +1,11 @@
 ### SB 3.23.57
 
-> साहं भगवतो नूनं वञ्चिता मायया दृढम् ।
+> साहं भगवतो नूनं वञ्चिता मायया दृढम् ।\
 > यत्त्वां विमुक्तिदं प्राप्य न मुमुक्षेय बन्धनात् ॥५७॥
 
-> sāhaṁ bhagavato nūnaṁ
-> vañcitā māyayā dṛḍham
-> yat tvāṁ vimuktidaṁ prāpya
+> sāhaṁ bhagavato nūnaṁ\
+> vañcitā māyayā dṛḍham\
+> yat tvāṁ vimuktidaṁ prāpya\
 > na mumukṣeya bandhanāt
 
 *sā*—esa misma persona; *aham*—yo soy; *bhagavataḥ*—del Señor; *nūnam*—seguramente; *vañcitā*—engañada; *māyayā*—por la energía ilusoria; *dṛḍham*—por completo; *yat*—pues; *tvām*—a ti; *vimukti-dam*—que da la liberación; *prāpya*—habiendo obtenido; *na mumukṣeya*—no he buscado la liberación; *bandhanāt*—del cautiverio material.

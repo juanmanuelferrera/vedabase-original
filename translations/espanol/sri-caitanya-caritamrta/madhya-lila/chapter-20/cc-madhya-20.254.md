@@ -1,9 +1,9 @@
 ### CC Madhya 20.254
 
-> ইচ্ছা-জ্ঞান-ক্রিয়া বিনা না হয় সৃজন ।
+> ইচ্ছা-জ্ঞান-ক্রিয়া বিনা না হয় সৃজন ।\
 > তিনের তিনশক্তি মেলি’ প্রপঞ্চ-রচন ॥২৫৪॥
 
-> icchā-jñāna-kriyā vinā nā haya sṛjana
+> icchā-jñāna-kriyā vinā nā haya sṛjana\
 > tinera tina-śakti meli' prapañca-racana
 
 *icchā-jñāna-kriyā*—pensar, sentir, querer, conocimiento y actividad; *vina*—sin; *nā*—no; *haya*—hay; *sṛjana*—creación; *tinera*—de las tres; *tina-śakti*—tres potencias; *meli'*—al amalgamarse; *prapañca-racana*—se produce la manifestación cósmica.

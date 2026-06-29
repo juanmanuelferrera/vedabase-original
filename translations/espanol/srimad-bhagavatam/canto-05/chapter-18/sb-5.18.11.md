@@ -1,11 +1,11 @@
 ### SB 5.18.11
 
-> यत्सङ्गलब्धं निजवीर्यवैभवं तीर्थं मुहुः संस्पृशतां हि मानसम
+> यत्सङ्गलब्धं निजवीर्यवैभवं तीर्थं मुहुः संस्पृशतां हि मानसम\
 > हरत्यजोऽन्तः श्रुतिभिर्गतोऽङ्गजं को वै न सेवेत मुकुन्दविक्रमम ॥११॥
 
-> yat-saṅga-labdhaṁ nija-vīrya-vaibhavaṁ
-> tīrthaṁ muhuḥ saṁspṛśatāṁ hi mānasam
-> haraty ajo 'ntaḥ śrutibhir gato 'ṅgajaṁ
+> yat-saṅga-labdhaṁ nija-vīrya-vaibhavaṁ\
+> tīrthaṁ muhuḥ saṁspṛśatāṁ hi mānasam\
+> haraty ajo 'ntaḥ śrutibhir gato 'ṅgajaṁ\
 > ko vai na seveta mukunda-vikramam
 
 *yat*—de quienes (los devotos); *saṅga-labdham*—obtenida mediante la compañía; *nija-vīrya-vaibhavam*—cuya influencia es extraordinaria; *tīrtham*—lugares sagrados, como el Ganges; *muhuḥ*—repetidamente; *saṁspṛśatām*—de aquellos que tocan; *hi*—ciertamente; *mānasam*—las cosas sucias que están en la mente; *harati*—desvanece; *ajaḥ*—el innaciente supremo; *antaḥ*—en lo profundo del corazón; *śrutibhiḥ*—por los oídos; *gataḥ*—que han entrado; *aṅga-jam*—cosas sucias, o infecciones del cuerpo; *kaḥ*—quién; *vai*—en verdad; *na*—no; *seveta*—serviría; *mukunda-vikramam*—las gloriosas actividades de Mukunda, la Suprema Personalidad de Dios.

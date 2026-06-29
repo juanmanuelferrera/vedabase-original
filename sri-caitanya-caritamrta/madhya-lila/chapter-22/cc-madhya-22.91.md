@@ -1,11 +1,11 @@
 ### CC Madhya 22.91
 
-> বরং হুতবহজ্বালা-পঞ্জরান্তর্ব্যবস্থিতিঃ ।
+> বরং হুতবহজ্বালা-পঞ্জরান্তর্ব্যবস্থিতিঃ ।\
 > ন শৌরিচিন্তাবিমুখ-জনসংবাসবৈশসম্ ॥৯১॥
 
-> varaṁ huta-vaha-jvālā-
-> pañjarāntar-vyavasthitiḥ
-> na śauri-cintā-vimukha-
+> varaṁ huta-vaha-jvālā-\
+> pañjarāntar-vyavasthitiḥ\
+> na śauri-cintā-vimukha-\
 > jana-saṁvāsa-vaiśasam
 
 *varam*—better; *huta-vaha*—of fire; *jvālā*—in the flames; *pañjara-antaḥ*—inside a cage; *vyavasthitiḥ*—abiding; *na*—not; *śauri-cintā*—of Kṛṣṇa consciousness, or thought of Kṛṣṇa; *vimukha*—bereft; *jana*—of persons; *saṁvāsa*—of the association; *vaiśasam*—the calamity.

@@ -1,9 +1,9 @@
 ### CC Madhya 18.174
 
-> এখনি আসিবে সব, আমি যদি ফুকারি ।
+> এখনি আসিবে সব, আমি যদি ফুকারি ।\
 > ঘোড়া-পিড়া লুটি’ লবে তোমা-সবা মারি’ ॥১৭৪॥
 
-> ekhani āsibe saba, āmi yadi phukāri
+> ekhani āsibe saba, āmi yadi phukāri\
 > ghoḍā-piḍā luṭi' labe tomā-sabā māri'
 
 *ekhani*—immediately; *āsibe saba*—all of them will come; *āmi*—I; *yadi*—if; *phu-kāri*—call loudly; *ghoḍā-piḍā*—horses and their saddles; *luṭi'*—plundering; *labe*—will take; *tomā-sabā māri'*—after killing all of you.

@@ -1,11 +1,11 @@
 ### Bg 5.13
 
-> सर्वकर्माणि मनसा संन्यस्यास्ते सुखं वशी ।
+> सर्वकर्माणि मनसा संन्यस्यास्ते सुखं वशी ।\
 > नवद्वारे पुरे देही नैव कुर्वन्न कारयन् ॥१३॥
 
-> sarva-karmāṇi manasā
-> sannyasyāste sukhaṁ vaśī
-> nava-dvāre pure dehī
+> sarva-karmāṇi manasā\
+> sannyasyāste sukhaṁ vaśī\
+> nava-dvāre pure dehī\
 > naiva kurvan na kārayan
 
 *sarva*—todas; *karmāṇi*—las actividades; *manasā*—con la mente; *sannyasya*—renunciando; *āste*—permanece; *sukham*—en la felicidad; *vaśī*—aquel que es controlado; *nava-dvāre*—en el lugar donde hay nueve puertas; *pure*—en la ciudad; *dehī*—el alma corporificada; *na*—nunca; *eva*—ciertamente; *kurvan*—haciendo algo; *na*—no; *kārayan*—causar que se haga.

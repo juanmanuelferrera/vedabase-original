@@ -1,9 +1,9 @@
 ### CC Antya 3.194
 
-> কোটি-জন্মে ব্রহ্মজ্ঞানে যেই ‘মুক্তি’ নয়  ।
+> কোটি-জন্মে ব্রহ্মজ্ঞানে যেই ‘মুক্তি’ নয়  ।\
 > এই কহে, — নামাভাসে সেই ‘মুক্তি’ হয় ।।” ১৯৪ ॥১৯৪॥
 
-> koṭi-janme brahma-jñāne yei 'mukti' naya
+> koṭi-janme brahma-jñāne yei 'mukti' naya\
 > ei kahe,--nāmābhāse sei 'mukti' haya"
 
 *koṭi-janme*—después de millones y millones de nacimientos; *brahma-jñāne*—mediante el conocimiento absoluto; *yei*—la cual; *mukti naya*—la liberación no es posible; *ei*—esta persona; *kahe*—dice; *nāma-ābhāse*—simplemente con el despertar de un vislumbre del canto puro del santo nombre; *sei*—esa; *mukti*—liberación; *haya*—se hace posible.

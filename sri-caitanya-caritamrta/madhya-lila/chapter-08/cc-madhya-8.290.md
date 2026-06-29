@@ -1,9 +1,9 @@
 ### CC Madhya 8.290
 
-> গুপ্তে রাখিহ, কাহাঁ না করিও প্রকাশ ।
+> গুপ্তে রাখিহ, কাহাঁ না করিও প্রকাশ ।\
 > আমার বাতুল-চেষ্টা লোকে উপহাস ॥২৯০॥
 
-> gupte rākhiha, kāhāṅ nā kario prakāśa
+> gupte rākhiha, kāhāṅ nā kario prakāśa\
 > āmāra bātula-ceṣṭā loke upahāsa
 
 *gupte*—in secret; *rākhiha*—keep; *kāhāṅ*—anywhere; *nā*—not; *kario*—make; *prakāśa*—exposure; *āmāra*—My; *bātula-ceṣṭā*—activities like a madman; *loke*—among the general people; *upahāsa*—laughter.

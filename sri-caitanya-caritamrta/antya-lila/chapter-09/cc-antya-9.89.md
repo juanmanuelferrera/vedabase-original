@@ -1,9 +1,9 @@
 ### CC Antya 9.89
 
-> ব্রহ্মস্ব-অধিক এই হয় রাজধন ।
+> ব্রহ্মস্ব-অধিক এই হয় রাজধন ।\
 > তাহা হরি’ ভোগ করে মহাপাপী জন ॥৮৯॥
 
-> brahmasva-adhika ei haya rāja-dhana
+> brahmasva-adhika ei haya rāja-dhana\
 > tāhā hari' bhoga kare mahā-pāpī jana
 
 *brahmasva*—a *brāhmaṇa's* property; *adhika*—more than; *ei*—this; *haya*—is; *rāja-dhana*—the revenue of the government; *tāhā hari'*—stealing that; *bhoga kare*—enjoys sense gratification; *mahā-pāpī jana*—a most sinful person.

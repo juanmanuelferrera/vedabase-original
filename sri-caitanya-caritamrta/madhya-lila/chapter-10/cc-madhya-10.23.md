@@ -1,9 +1,9 @@
 ### CC Madhya 10.23
 
-> কাশীমিশ্র কহে, — আমি বড় ভাগ্যবান্ ।
+> কাশীমিশ্র কহে, — আমি বড় ভাগ্যবান্ ।\
 > মোর গৃহে ‘প্রভুপাদের’ হবে অবস্থান ॥২৩॥
 
-> kāśī-miśra kahe,-āmi baḍa bhāgyavān
+> kāśī-miśra kahe,-āmi baḍa bhāgyavān\
 > mora gṛhe 'prabhu-pādera' habe avasthāna
 
 *kāśī-miśra kahe*—Kāśī Miśra said; *āmi*—I; *baḍa*—very much; *bhāgyavān*—fortunate; *mora gṛhe*—in my home; *prabhu-pādera*—of the Lord of the *prabhus*; *habe*—there will be; *avasthāna*—staying.

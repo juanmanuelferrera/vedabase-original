@@ -1,11 +1,11 @@
 ### Bg 4.37
 
-> यथैधांसि समिद्धोऽग्निर्भस्मसात्कुरुतेऽर्जुन ।
+> यथैधांसि समिद्धोऽग्निर्भस्मसात्कुरुतेऽर्जुन ।\
 > ज्ञानाग्निः सर्वकर्माणि भस्मसात्कुरुते तथा ॥३७॥
 
-> yathaidhāṁsi samiddho'gnir
-> bhasmasāt kurute'rjuna
-> jñānāgniḥ sarva-karmāṇi
+> yathaidhāṁsi samiddho'gnir\
+> bhasmasāt kurute'rjuna\
+> jñānāgniḥ sarva-karmāṇi\
 > bhasmasāt kurute tathā
 
 *yathā*—así como; *edhāṁsi*—leña; *samiddhaḥ*—ardiente; *agniḥ*—fuego; *bhasmasāt*—reduce a cenizas; *kurute*—así hace; *arjuna*—¡oh, Arjuna!; *jñāna-agniḥ*—el fuego del conocimiento; *sarva-karmāṇi*—todas las reacciones a las actividades materiales; *bhasmasāt*—a cenizas; *kurute*—así lo hace; *tathā*—de forma similar.

@@ -1,11 +1,11 @@
 ### SB 4.9.27
 
-> सोऽपि सङ्कल्पजं विष्णोः पादसेवोपसादितम् ।
+> सोऽपि सङ्कल्पजं विष्णोः पादसेवोपसादितम् ।\
 > प्राप्य सङ्कल्पनिर्वाणं नातिप्रीतोऽभ्यगात्पुरम् ॥२७॥
 
-> so 'pi saṅkalpajaṁ viṣṇoḥ
-> pāda-sevopasāditam
-> prāpya saṅkalpa-nirvāṇaṁ
+> so 'pi saṅkalpajaṁ viṣṇoḥ\
+> pāda-sevopasāditam\
+> prāpya saṅkalpa-nirvāṇaṁ\
 > nātiprīto 'bhyagāt puram
 
 *saḥ*—he (Dhruva Mahārāja); *api*—although; *saṅkalpa-jam*—the desired result; *viṣṇoḥ*—of Lord Viṣṇu; *pāda-sevā*—by serving the lotus feet; *upasāditam*—obtained; *prāpya*—having achieved; *saṅkalpa*—of his determination; *nirvāṇam*—the satisfaction; *na*—not; *atiprītaḥ*—very much pleased; *abhyagāt*—he returned; *puram*—to his home.

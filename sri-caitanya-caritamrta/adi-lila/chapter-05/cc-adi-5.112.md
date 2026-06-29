@@ -1,9 +1,9 @@
 ### CC Adi 5.112
 
-> সকল জীবের তিঁহো হয়ে অন্তর্যামী ।
+> সকল জীবের তিঁহো হয়ে অন্তর্যামী ।\
 > জগৎ-পালক তিঁহো জগতের স্বামী ॥১১২॥
 
-> sakala jīvera tiṅho haye antaryāmī
+> sakala jīvera tiṅho haye antaryāmī\
 > jagat-pālaka tiṅho jagatera svāmī
 
 *sakala*—all; *jīvera*—of the living entities; *tiṅho*—He; *haye*—is; *antaḥ-yāmī*—the Supersoul; *jagat-pālaka*—the maintainer of the material world; *tiṅho*—He; *jagatera svāmī*—the Lord of the material world.

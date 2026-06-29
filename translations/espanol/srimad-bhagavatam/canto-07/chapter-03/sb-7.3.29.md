@@ -1,11 +1,11 @@
 ### SB 7.3.29
 
-> त्वमीशिषे जगतस्तस्थुषश्च प्राणेन मुख्येन पतिः प्रजानाम
+> त्वमीशिषे जगतस्तस्थुषश्च प्राणेन मुख्येन पतिः प्रजानाम\
 > चित्तस्य चित्तैर्मनैन्द्रियाणां पतिर्महान्भूतगुणाशयेशः ॥२९॥
 
-> tvam īśiṣe jagatas tasthuṣaś ca
-> prāṇena mukhyena patiḥ prajānām
-> cittasya cittair mana-indriyāṇāṁ
+> tvam īśiṣe jagatas tasthuṣaś ca\
+> prāṇena mukhyena patiḥ prajānām\
+> cittasya cittair mana-indriyāṇāṁ\
 > patir mahān bhūta-guṇāśayeśaḥ
 
 *tvam*—tú; *īśiṣe*—controlas en realidad; *jagataḥ*—del ser que se mueve; *tasthuṣaḥ*—del ser que es inerte o permanece estático en un lugar; *ca*—y; *prāṇena*—** por la fuerza viviente; *mukhyena*—el origen de todas las actividades; *patiḥ*—** amo; *prajānām*—de todas las entidades vivientes; *cittasya*—de la mente; *cittaiḥ*—** con la conciencia; *manaḥ*—de la mente; *indriyāṇām*—y de las dos clases de sentidos (para la acción y para adquirir conocimiento); *patiḥ*—el amo; *mahān*—gran; *bhūta*—de los elementos materiales; *guṇa*—y las cualidades de los elementos materiales; *āśaya*—de los deseos; *īśaḥ*—el amo supremo.

@@ -1,11 +1,11 @@
 ### SB 4.15.15
 
-> वायुश्च वालव्यजने धर्मः कीर्तिमयीं स्रजम् ।
+> वायुश्च वालव्यजने धर्मः कीर्तिमयीं स्रजम् ।\
 > इन्द्रः किरीटमुत्कृष्टं दण्डं संयमनं यमः ॥१५॥
 
-> vāyuś ca vāla-vyajane
-> dharmaḥ kīrtimayīṁ srajam
-> indraḥ kirīṭam utkṛṣṭaṁ
+> vāyuś ca vāla-vyajane\
+> dharmaḥ kīrtimayīṁ srajam\
+> indraḥ kirīṭam utkṛṣṭaṁ\
 > daṇḍaṁ saṁyamanaṁ yamaḥ
 
 *vāyuḥ*—the demigod of air; *ca*—also; *vāla-vyajane*—two *cāmaras* made of hair; *dharmaḥ*—the King of religion; *kīrti-mayīm*—expanding one's name and fame; *srajam*—garland; *indraḥ*—the King of heaven; *kirīṭam*—helmet; *utkṛṣṭam*—very valuable; *daṇḍam*—scepter; *saṁyamanam*—for ruling the world; *yamaḥ*—the superintendent of death.

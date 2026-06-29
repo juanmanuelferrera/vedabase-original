@@ -1,9 +1,9 @@
 ### CC Adi 17.90
 
-> একদিন প্রভু শ্রীবাসেরে আজ্ঞা দিল ।
+> একদিন প্রভু শ্রীবাসেরে আজ্ঞা দিল ।\
 > ‘বৃহৎ সহস্রনাম’ পড়, শুনিতে মন হৈল ॥৯০॥
 
-> eka-dina prabhu śrīvāsere ājñā dila
+> eka-dina prabhu śrīvāsere ājñā dila\
 > 'bṛhat sahasra-nāma' paḍa, śunite mana haila
 
 *eka-dina*—un día; *prabhu*—el Señor; *śrīvāsere*—a Śrīvāsa Ṭhākura; *ājñā*—orden; *dila*—dio; *bṛhat*—gran; *sahasra-nāma*—mil nombres; *paḍa*—lee; *śunite*—escuchar; *mana*—mente; *haila*—quiso.

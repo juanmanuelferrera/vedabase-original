@@ -1,11 +1,11 @@
 ### SB 3.25.21
 
-> तितिक्षवः कारुणिकाः सुहृदः सर्वदेहिनाम् ।
+> तितिक्षवः कारुणिकाः सुहृदः सर्वदेहिनाम् ।\
 > अजातशत्रवः शान्ताः साधवः साधुभूषणाः ॥२१॥
 
-> titikṣavaḥ kāruṇikāḥ
-> suhṛdaḥ sarva-dehinām
-> ajāta-śatravaḥ śāntāḥ
+> titikṣavaḥ kāruṇikāḥ\
+> suhṛdaḥ sarva-dehinām\
+> ajāta-śatravaḥ śāntāḥ\
 > sādhavaḥ sādhu-bhūṣaṇāḥ
 
 *titikṣavaḥ*—tolerant; *kāruṇikāḥ*—merciful; *suhṛdaḥ*—friendly; *sarva-dehinām*—to all living entities; *ajāta-śatravaḥ*—inimical to none; *śāntāḥ*—peaceful; *sādhavaḥ*—abiding by scriptures; *sādhu-bhūṣaṇāḥ*—adorned with sublime characteristics.

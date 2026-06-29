@@ -1,11 +1,11 @@
 ### SB 6.7.25
 
-> तद्विश्वरूपं भजताशु विप्रं तपस्विनं त्वाष्ट्रमथात्मवन्तम
+> तद्विश्वरूपं भजताशु विप्रं तपस्विनं त्वाष्ट्रमथात्मवन्तम\
 > सभाजितोऽर्थान्स विधास्यते वो यदि क्षमिष्यध्वमुतास्य कर्म ॥२५॥
 
-> tad viśvarūpaṁ bhajatāśu vipraṁ
-> tapasvinaṁ tvāṣṭram athātmavantam
-> sabhājito 'rthān sa vidhāsyate vo
+> tad viśvarūpaṁ bhajatāśu vipraṁ\
+> tapasvinaṁ tvāṣṭram athātmavantam\
+> sabhājito 'rthān sa vidhāsyate vo\
 > yadi kṣamiṣyadhvam utāsya karma
 
 *tat*—por lo tanto; *viśvarūpam*—a Viśvarūpa; *bhajata*—adoren como *guru*; *āśu*—inmediatamente; *vipram*—que es un*brāhmaṇa* perfecto; *tapasvinam*—que se somete a grandes austeridades y penitencias; *tvāṣṭram*—el hijo de Tvaṣṭā; *atha*—así como; *ātma-vantam*—muy independiente; *sabhājitaḥ*—ser adorado; *arthān*—los intereses; *saḥ*—él; *vidhāsyate*—cumplirá; *vaḥ*—de todos ustedes; *yadi*—si; *kṣamiṣyadhvam*—toleran; *uta*—en verdad; *asya*—sus; *karma*—actividades (para apoyar a los *daityas*).

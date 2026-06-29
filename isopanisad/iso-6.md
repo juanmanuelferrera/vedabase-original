@@ -1,11 +1,11 @@
 ### Īśo 6
 
-> यस्तु सर्वाणि भूतान्यात्मन्येवानुपश्यति।
+> यस्तु सर्वाणि भूतान्यात्मन्येवानुपश्यति।\
 > सर्वभूतेषु चात्मानं ततो न विजुगुप्सते॥६॥
 
-> yas tu sarvāṇi bhūtāny
-> ātmany evānupaśyati
-> sarva-bhūteṣu cātmānaṁ
+> yas tu sarvāṇi bhūtāny\
+> ātmany evānupaśyati\
+> sarva-bhūteṣu cātmānaṁ\
 > tato na vijugupsate
 
 *yaḥ*—he who; *tu*—but; *sarvāṇi*—all; *bhūtāni*—living entities; *ātmani*—in relation to the Supreme Lord; *eva*—only; *anupaśyati*—observes in a systematic way; *sarva-bhūteṣu*—in every living being; *ca*—and; *ātmānam*—the Supersoul; *tataḥ*—thereafter; *na*—not; *vijugupsate*—hates anyone.

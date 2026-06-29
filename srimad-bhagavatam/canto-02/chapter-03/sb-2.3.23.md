@@ -1,11 +1,11 @@
 ### SB 2.3.23
 
-> जीवञ्छवो भागवताङ्घ्रिरेणुं न जातु मर्त्योऽभिलभेत यस्तु ।
+> जीवञ्छवो भागवताङ्घ्रिरेणुं न जातु मर्त्योऽभिलभेत यस्तु ।\
 > श्रीविष्णुपद्या मनुजस्तुलस्याः श्वसञ्छवो यस्तु न वेद गन्धम् ॥२३॥
 
-> jīvañ chavo bhāgavatāṅghri-reṇuṁ
-> na jātu martyo 'bhilabheta yas tu
-> śrī-viṣṇu-padyā manujas tulasyāḥ
+> jīvañ chavo bhāgavatāṅghri-reṇuṁ\
+> na jātu martyo 'bhilabheta yas tu\
+> śrī-viṣṇu-padyā manujas tulasyāḥ\
 > śvasañ chavo yas tu na veda gandham
 
 *jīvan*—while living; *śavaḥ*—a dead body; *bhāgavata-aṅghri-reṇum*—the dust of the feet of a pure devotee; *na*—never; *jātu*—at any time; *martyaḥ*—mortal; *abhilabheta*—particularly received; *yaḥ*—a person; *tu*—but; *śrī*—with opulence; *viṣṇu-padyāḥ*—of the lotus feet of Viṣṇu; *manu-jaḥ*—a descendant of Manu (a man); *tulasyāḥ*—leaves of the *tulasi* tree; *śvasan*—while breathing; *śavaḥ*—still a dead body; *yaḥ*—who; *tu*—but; *na veda*—never experienced; *gandham*—the aroma.

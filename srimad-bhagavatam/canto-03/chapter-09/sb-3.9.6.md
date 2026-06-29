@@ -1,13 +1,13 @@
 ### SB 3.9.6
 
-> तावद्भयं द्रविणदेहसुहृन्निमित्तं
-> शोकः स्पृहा परिभवो विपुलश्च लोभः ।
-> तावन्ममेत्यसदवग्रह आर्तिमूलं
+> तावद्भयं द्रविणदेहसुहृन्निमित्तं\
+> शोकः स्पृहा परिभवो विपुलश्च लोभः ।\
+> तावन्ममेत्यसदवग्रह आर्तिमूलं\
 > यावन्न तेऽङ्घ्रिमभयं प्रवृणीत लोकः ॥६॥
 
-> tāvad bhayaṁ draviṇa-deha-suhṛn-nimittaṁ
-> śokaḥ spṛhā paribhavo vipulaś ca lobhaḥ
-> tāvan mamety asad-avagraha ārti-mūlaṁ
+> tāvad bhayaṁ draviṇa-deha-suhṛn-nimittaṁ\
+> śokaḥ spṛhā paribhavo vipulaś ca lobhaḥ\
+> tāvan mamety asad-avagraha ārti-mūlaṁ\
 > yāvan na te 'ṅghrim abhayaṁ pravṛṇīta lokaḥ
 
 *tāvat*—until then; *bhayam*—fear; *draviṇa*—wealth; *deha*—body; *suhṛt*—relatives; *nimittam*—for the matter of; *śokaḥ*—lamentation; *spṛhā*—desire; *paribhavaḥ*—paraphernalia; *vipulaḥ*—very great; *ca*—also; *lobhaḥ*—avarice; *tāvat*—up to that time; *mama*—mine; *iti*—thus; *asat*—perishable; *avagrahaḥ*—undertaking; *ārti-mūlam*—full of anxieties; *yāvat*—as long as; *na*—do not; *te*—Your; *aṅghrim abhayam*—safe lotus feet; *pravṛṇīta*—take shelter; *lokaḥ*—the people of the world.

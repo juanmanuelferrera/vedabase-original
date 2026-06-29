@@ -1,11 +1,11 @@
 ### SB 4.13.23
 
-> नावध्येयः प्रजापालः प्रजाभिरघवानपि ।
+> नावध्येयः प्रजापालः प्रजाभिरघवानपि ।\
 > यदसौ लोकपालानां बिभर्त्योजः स्वतेजसा ॥२३॥
 
-> nāvadhyeyaḥ prajā-pālaḥ
-> prajābhir aghavān api
-> yad asau loka-pālānāṁ
+> nāvadhyeyaḥ prajā-pālaḥ\
+> prajābhir aghavān api\
+> yad asau loka-pālānāṁ\
 > bibharty ojaḥ sva-tejasā
 
 *na*—never; *avadhyeyaḥ*—to be insulted; *prajā-pālaḥ*—the king; *prajābhiḥ*—by the citizens; *aghavān*—ever sinful; *api*—even though; *yat*—because; *asau*—he; *loka-pālānām*—of many kings; *bibharti*—maintains; *ojaḥ*—prowess; *sva-tejasā*—by personal influence.

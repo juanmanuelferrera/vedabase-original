@@ -1,18 +1,18 @@
 ### SB 5.5.21-22
 
-> भूतेषु वीरुद्भ्य उदुत्तमा ये सरीसृपास्तेषु सबोधनिष्ठाः
-> ततो मनुष्याः प्रमथास्ततोऽपि गन्धर्वसिद्धा विबुधानुगा ये ॥२१॥
-> देवासुरेभ्यो मघवत्प्रधाना दक्षादयो ब्रह्मसुतास्तु तेषाम
+> भूतेषु वीरुद्भ्य उदुत्तमा ये सरीसृपास्तेषु सबोधनिष्ठाः\
+> ततो मनुष्याः प्रमथास्ततोऽपि गन्धर्वसिद्धा विबुधानुगा ये ॥२१॥\
+> देवासुरेभ्यो मघवत्प्रधाना दक्षादयो ब्रह्मसुतास्तु तेषाम\
 > भवः परः सोऽथ विरिञ्चवीर्यः स मत्परोऽहं द्विजदेवदेवः ॥२२॥
 
-> bhūteṣu vīrudbhya uduttamā ye
-> sarīsṛpās teṣu sabodha-niṣṭhāḥ
-> tato manuṣyāḥ pramathās tato 'pi
+> bhūteṣu vīrudbhya uduttamā ye\
+> sarīsṛpās teṣu sabodha-niṣṭhāḥ\
+> tato manuṣyāḥ pramathās tato 'pi\
 > gandharva-siddhā vibudhānugā ye
 
-> devāsurebhyo maghavat-pradhānā
-> dakṣādayo brahma-sutās tu teṣām
-> bhavaḥ paraḥ so 'tha viriñca-vīryaḥ
+> devāsurebhyo maghavat-pradhānā\
+> dakṣādayo brahma-sutās tu teṣām\
+> bhavaḥ paraḥ so 'tha viriñca-vīryaḥ\
 > sa mat-paro 'haṁ dvija-deva-devaḥ
 
 *bhūteṣu*—entre las cosas generadas (con y sin señales de vida); *vīrudbhyaḥ*—que las plantas; *uduttamāḥ*—muy superiores; *ye*—aquellos que; *sarīsṛpāḥ*—entidades móviles como los gusanos y serpientes; *teṣu*—que ellos; *sa-bodha-niṣṭhāḥ*—los que tienen inteligencia; *tataḥ*—que ellos; *manuṣyāḥ*—los seres humanos; *pramathāḥ*—los espíritus fantasmales; *tataḥ api*—mejores que ellos; *gandharva*—los habitantes de Gandharvaloka (los cantantes de los planetas de los semidioses); *siddhāḥ*—los habitantes del Siddhaloka, que tienen todos los poderes místicos; *vibudha-anugāḥ*—los *kinnaras*; *ye*—aquellos que; *deva*—los semidioses; *asurebhyaḥ*—que los *asuras*; *maghavat-pradhānāḥ*—encabezados por Indra; *dakṣa-ādayaḥ*—comenzando con Dakṣa; *brahma-sutāḥ*—los hijos directos de Brahmā; *tu*—entonces; *teṣām*—de ellos; *bhavaḥ*—el Señor Śiva; *paraḥ*—el mejor; *saḥ*—él (el Señor Śiva); *atha*—además; *viriñca-vīryaḥ*—que procede del Señor Brahmā; *saḥ*—él (Brahmā); *mat-paraḥ*—Mi devoto; *aham*—Yo; *dvija-deva-devaḥ*—un adorador de los *brāhmaṇas,* o el Señor de los *brāhmaṇas.*.

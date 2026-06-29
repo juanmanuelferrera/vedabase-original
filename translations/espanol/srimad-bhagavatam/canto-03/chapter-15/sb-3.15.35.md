@@ -1,13 +1,13 @@
 ### SB 3.15.35
 
-> तेषामितीरितमुभाववधार्य घोरं
-> तं ब्रह्मदण्डमनिवारणमस्त्रपूगैः ।
-> सद्यो हरेरनुचरावुरु बिभ्यतस्तत्
+> तेषामितीरितमुभाववधार्य घोरं\
+> तं ब्रह्मदण्डमनिवारणमस्त्रपूगैः ।\
+> सद्यो हरेरनुचरावुरु बिभ्यतस्तत्\
 > पादग्रहावपततामतिकातरेण ॥३५॥
 
-> teṣām itīritam ubhāv avadhārya ghoraṁ
-> taṁ brahma-daṇḍam anivāraṇam astra-pūgaiḥ
-> sadyo harer anucarāv uru bibhyatas tat-
+> teṣām itīritam ubhāv avadhārya ghoraṁ\
+> taṁ brahma-daṇḍam anivāraṇam astra-pūgaiḥ\
+> sadyo harer anucarāv uru bibhyatas tat-\
 > pāda-grahāv apatatām atikātareṇa
 
 *teṣām*—de los cuatro Kumāras; *iti*—así pues; *īritam*—pronunciaron; *ubhau*—los dos porteros; *avadhārya*—entendiendo; *ghoram*—terrible; *tam*—aquella; *brahma-daṇḍam*—maldición de un *brāhmaṇa*; *anivāraṇam*—no se puede contrarrestar; *astra-pūgaiḥ*—mediante ningún tipo de arma; *sadyaḥ*—inmediatamente; *hareḥ*—del Señor Supremo; *anucarau*—devotos; *uru*—muchísimo; *bibhyataḥ*—se llenaron de temor; *tat-pāda-grahau*—cogiendo sus pies; *apatatām*—cayeron; *ati-kātareṇa*—con gran ansiedad.

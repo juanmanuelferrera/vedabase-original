@@ -1,9 +1,9 @@
 ### CC Adi 7.41
 
-> সন্ন্যাসী হইয়া করে গায়ন, নাচন ।
+> সন্ন্যাসী হইয়া করে গায়ন, নাচন ।\
 > না করে বেদান্ত-পাঠ, করে সংকীর্তন ॥৪১॥
 
-> sannyāsī ha-iyā kare gāyana, nācana
+> sannyāsī ha-iyā kare gāyana, nācana\
 > nā kare vedānta-pāṭha, kare saṅkīrtana
 
 *sannyāsī*—una persona en la orden de renuncia; *ha-iyā*—aceptando tal posición; *kare*—hace; *gāyana*—canto; *nācana*—danza; *nā kare*—no practica; *vedānta-pāṭha*—estudio de la filosofía Vedānta; *kare saṅkīrtana*—sino que simplemente se dedica al *saṅkīrtana*.

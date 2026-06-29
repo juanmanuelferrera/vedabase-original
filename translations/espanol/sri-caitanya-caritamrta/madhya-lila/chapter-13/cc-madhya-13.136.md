@@ -1,13 +1,13 @@
 ### CC Madhya 13.136
 
-> আহুশ্চ তে নলিন-নাভ পদারবিন্দং
-> যোগেশ্বরৈর্হৃদি বিচিন্ত্যমগাধবোধৈঃ ।
-> সংসারকূপপতিতোত্তরণাবলম্বং
+> আহুশ্চ তে নলিন-নাভ পদারবিন্দং\
+> যোগেশ্বরৈর্হৃদি বিচিন্ত্যমগাধবোধৈঃ ।\
+> সংসারকূপপতিতোত্তরণাবলম্বং\
 > গেহং জুষামপি মনস্যুদিয়াৎ সদা নঃ ॥১৩৬॥
 
-> āhuś ca te nalina-nābha padāravindaṁ
-> yogeśvarair hṛdi vicintyam agādha-bodhaiḥ
-> saṁsāra-kūpa-patitottaraṇāvalambaṁ
+> āhuś ca te nalina-nābha padāravindaṁ\
+> yogeśvarair hṛdi vicintyam agādha-bodhaiḥ\
+> saṁsāra-kūpa-patitottaraṇāvalambaṁ\
 > gehaṁ juṣām api manasy udiyāt sadā naḥ
 
 *āhuḥ*—las gopīs dijeron; *ca*—y; *te*—Tus; *nalina-nābha*—¡oh, Señor, cuyo ombligo es como una flor de loto!; *pada-aravindam*—pies de loto; *yoga-īśvaraiḥ*—por grandes yogīs místicos; *hṛdi*—en el corazón; *vicintyam*—objeto de meditación; *agādha-bodhaiḥ*—que son filósofos sumamente eruditos; *saṁsāra-kūpa*—en el oscuro pozo de la existencia material; *patita*—de los que han caído; *uttaraṇa*—para la liberación; *avalambam*—el único refugio; *geham*—en asuntos familiares; *juṣām*—de los que se ocupan; *api*—aunque; *manasi*—en las mentes; *udiyāt*—que se despierten; *sadā*—siempre; *naḥ*—nuestras.

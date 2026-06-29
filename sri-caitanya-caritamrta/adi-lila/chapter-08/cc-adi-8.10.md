@@ -1,9 +1,9 @@
 ### CC Adi 8.10
 
-> মোরে না মানিলে সব লোক হবে নাশ ।
+> মোরে না মানিলে সব লোক হবে নাশ ।\
 > ইথি লাগি’ কৃপার্দ্র প্রভু করিল সন্ন্যাস ॥১০॥
 
-> more nā mānile saba loka habe nāśa
+> more nā mānile saba loka habe nāśa\
 > ithi lāgi' kṛpārdra prabhu karila sannyāsa
 
 *more*—unto Me; *nā*—without; *mānile*—accepting; *saba*—all; *loka*—people in general; *habe*—will go to; *nāśa*—destruction; *ithi*—for this; *lāgi'*—for the reason of; *kṛpā-ārdra*—all merciful; *prabhu*—Lord Caitanya; *karila*—accepted; *sannyāsa*—the *sannyāsa* order.

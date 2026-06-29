@@ -1,11 +1,11 @@
 ### SB 3.5.46
 
-> पानेन ते देव कथासुधायाः प्रवृद्धभक्त्या विशदाशया ये ।
+> पानेन ते देव कथासुधायाः प्रवृद्धभक्त्या विशदाशया ये ।\
 > वैराग्यसारं प्रतिलभ्य बोधं यथाञ्जसान्वीयुरकुण्ठधिष्ण्यम् ॥४६॥
 
-> pānena te deva kathā-sudhāyāḥ
-> pravṛddha-bhaktyā viśadāśayā ye
-> vairāgya-sāraṁ pratilabhya bodhaṁ
+> pānena te deva kathā-sudhāyāḥ\
+> pravṛddha-bhaktyā viśadāśayā ye\
+> vairāgya-sāraṁ pratilabhya bodhaṁ\
 > yathāñjasānvīyur akuṇṭha-dhiṣṇyam
 
 *pānena*—por beber; *te*—de Ti; *deva*—¡oh, Señor!; *kathā*—relatos; *sudhāyāḥ*—del néctar; *pravṛddha*—sumamente iluminados; *bhaktyā*—mediante el servicio devocional; *viśada-āśayāḥ*—con una actitud muy seria; *ye*—aquellos que; *vairāgya-sāram*—todo el significado de la renunciación; *pratilabhya*—logrando; *bodham*—inteligencia; *yathā*—tanto como; *añjasā*—rápidamente; *anvīyuḥ*—logran; *akuṇṭha-dhiṣṇyam*—Vaikuṇṭhaloka, en el cielo espiritual.

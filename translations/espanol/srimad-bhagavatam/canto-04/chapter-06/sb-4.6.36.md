@@ -1,11 +1,11 @@
 ### SB 4.6.36
 
-> लिङ्गं च तापसाभीष्टं भस्मदण्डजटाजिनम् ।
+> लिङ्गं च तापसाभीष्टं भस्मदण्डजटाजिनम् ।\
 > अङ्गेन सन्ध्याभ्ररुचा चन्द्रलेखां च बिभ्रतम् ॥३६॥
 
-> liṅgaṁ ca tāpasābhīṣṭaṁ
-> bhasma-daṇḍa-jaṭājinam
-> aṅgena sandhyābhra-rucā
+> liṅgaṁ ca tāpasābhīṣṭaṁ\
+> bhasma-daṇḍa-jaṭājinam\
+> aṅgena sandhyābhra-rucā\
 > candra-lekhāṁ ca bibhratam
 
 *liṅgam*—característica; *ca*—y; *tāpasa-abhīṣṭam*—deseada por los ascetas śivaistas; *bhasma*—cenizas; *daṇḍa*—vara; *jaṭā*—cabello enredado; *ajinam*—piel de antílope; *aṅgena*—con el cuerpo; *sandhyā-ābhra*—rojizo; *rucā*—de color; *candra-lekhām*—coronado con una media luna; *ca*—y; *bibhratam*—llevando.

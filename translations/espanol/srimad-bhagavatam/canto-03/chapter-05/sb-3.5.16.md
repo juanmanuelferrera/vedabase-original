@@ -1,11 +1,11 @@
 ### SB 3.5.16
 
-> स विश्वजन्मस्थितिसंयमार्थे कृतावतारः प्रगृहीतशक्तिः ।
+> स विश्वजन्मस्थितिसंयमार्थे कृतावतारः प्रगृहीतशक्तिः ।\
 > चकार कर्माण्यतिपूरुषाणि यानीश्वरः कीर्तय तानि मह्यम् ॥१६॥
 
-> sa viśva-janma-sthiti-saṁyamārthe
-> kṛtāvatāraḥ pragṛhīta-śaktiḥ
-> cakāra karmāṇy atipūruṣāṇi
+> sa viśva-janma-sthiti-saṁyamārthe\
+> kṛtāvatāraḥ pragṛhīta-śaktiḥ\
+> cakāra karmāṇy atipūruṣāṇi\
 > yānīśvaraḥ kīrtaya tāni mahyam
 
 *saḥ*—la Personalidad de Dios; *viśva*—universo; *janma*—creación; *sthiti*—manutención; *saṁyama-arthe*—con miras al control perfecto; *kṛta*—aceptó; *avatāraḥ*—encarnación; *pragṛhīta*—logrado con; *śaktiḥ*—potencia; *cakāra*—realizó; *karmāṇi*—actividades trascendentales; *ati-pūruṣāṇi*—sobrehumanas; *yāni*—todas esas; *īśvaraḥ*—el Señor; *kīrtaya*—por favor, canta; *tāni*—todas esas; *mahyam*—a mí.

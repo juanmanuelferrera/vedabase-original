@@ -1,11 +1,11 @@
 ### SB 3.29.31
 
-> ततो वर्णाश्च चत्वारस्तेषां ब्राह्मण उत्तमः ।
+> ततो वर्णाश्च चत्वारस्तेषां ब्राह्मण उत्तमः ।\
 > ब्राह्मणेष्वपि वेदज्ञो ह्यर्थज्ञोऽभ्यधिकस्ततः ॥३१॥
 
-> tato varṇāś ca catvāras
-> teṣāṁ brāhmaṇa uttamaḥ
-> brāhmaṇeṣv api veda-jño
+> tato varṇāś ca catvāras\
+> teṣāṁ brāhmaṇa uttamaḥ\
+> brāhmaṇeṣv api veda-jño\
 > hy artha-jño 'bhyadhikas tataḥ
 
 *tataḥ*—entre ellos; *varṇāḥ*—clases; *ca*—y; *catvāraḥ*—cuatro; *teṣām*—de ellas; *brāhmaṇaḥ*—un *brāhmaṇa*; *uttamaḥ*—el mejor; *brāhmaṇeṣu*—entre los *brāhmaṇas*; *api*—además; *veda*—los *Vedas*; *jñaḥ*—el que conoce; *hi*—ciertamente; *artha*—el propósito; *jñaḥ*—el que conoce; *abhyadhikaḥ*—mejor; *tataḥ*—que él.

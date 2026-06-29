@@ -1,11 +1,11 @@
 ### SB 7.15.52
 
-> निषेकादिश्मशानान्तैः संस्कारैः संस्कृतो द्विजः
+> निषेकादिश्मशानान्तैः संस्कारैः संस्कृतो द्विजः\
 > इन्द्रियेषु क्रियायज्ञआनज्ञआनदीपेषु जुह्वति ॥५२॥
 
-> niṣekādi-śmaśānāntaiḥ
-> saṁskāraiḥ saṁskṛto dvijaḥ
-> indriyeṣu kriyā-yajñān
+> niṣekādi-śmaśānāntaiḥ\
+> saṁskāraiḥ saṁskṛto dvijaḥ\
+> indriyeṣu kriyā-yajñān\
 > jñāna-dīpeṣu juhvati
 
 *niṣeka-ādi*—the beginning of life (the purificatory process of *garbhādhāna,* performed when the father begets a child by discharging semen into the womb of the mother); *śmaśāna-antaiḥ*—and at death, when the body is put into a crematorium and burnt to ashes; *saṁskāraiḥ*—by such purificatory processes; *saṁskṛtaḥ*—purified; *dvijaḥ*—a twice-born *brāhmaṇa*; *indriyeṣu*—into the senses; *kriyā-yajñān*—activities and sacrifices (which elevate one to a higher planetary system); *jñāna-dīpeṣu*—by enlightenment in real knowledge; *juhvati*—offers.

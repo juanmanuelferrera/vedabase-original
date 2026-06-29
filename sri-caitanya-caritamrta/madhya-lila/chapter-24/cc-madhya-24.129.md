@@ -1,9 +1,9 @@
 ### CC Madhya 24.129
 
-> ‘জীবন্মুক্ত’ অনেক, সেই দুই ভেদ জানি ।
+> ‘জীবন্মুক্ত’ অনেক, সেই দুই ভেদ জানি ।\
 > ‘ভক্ত্যে জীবন্মুক্ত’, ‘জ্ঞানে জীবন্মুক্ত’ মানি ॥১২৯॥
 
-> jīvan-mukta' aneka, sei dui bheda jāni
+> jīvan-mukta' aneka, sei dui bheda jāni\
 > 'bhaktye jīvan-mukta', jñāne jīvan-mukta' māni
 
 *jīvat-mukta*—liberated in this life; *aneka*—there are many; *sei*—all of them; *dui bheda*—two divisions; *jāni*—we consider; *bhaktye jīvat-mukta*—one liberated in this life by pursuing the process of devotional service; *jñāne jīvat-mukta*—a person liberated in this life by following the process of philosophical speculation; *māni*—we can understand.

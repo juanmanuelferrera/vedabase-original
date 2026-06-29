@@ -1,11 +1,11 @@
 ### SB 1.15.32
 
-> निशम्य भगवन्मार्गं संस्थां यदुकुलस्य च ।
+> निशम्य भगवन्मार्गं संस्थां यदुकुलस्य च ।\
 > स्वःपथाय मतिं चक्रे निभृतात्मा युधिष्ठिरः ॥३२॥
 
-> niśamya bhagavan-mārgaṁ
-> saṁsthāṁ yadu-kulasya ca
-> svaḥ-pathāya matiṁ cakre
+> niśamya bhagavan-mārgaṁ\
+> saṁsthāṁ yadu-kulasya ca\
+> svaḥ-pathāya matiṁ cakre\
 > nibhṛtātmā yudhiṣṭhiraḥ
 
 *niśamya*—deliberating; *bhagavat*—regarding the Lord; *mārgam*—the ways of His appearance and disappearance; *saṁsthām*—end; *yadu-kulasya*—of the dynasty of King Yadu; *ca*—also; *svaḥ*—the abode of the Lord; *pathāya*—on the way of; *matim*—desire; *cakre*—gave attention; *nibhṛta-ātmā*—lonely and alone; *yudhiṣṭhiraḥ*—King Yudhiṣṭhira.

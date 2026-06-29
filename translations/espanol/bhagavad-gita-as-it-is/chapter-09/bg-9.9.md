@@ -1,11 +1,11 @@
 ### Bg 9.9
 
-> न च मां तानि कर्माणि निबध्नन्ति धनञ्जय ।
+> न च मां तानि कर्माणि निबध्नन्ति धनञ्जय ।\
 > उदासीनवदासीनमसक्तं तेषु कर्मसु ॥९॥
 
-> na ca māṁ tāni karmāṇi
-> nibadhnanti dhanañjaya
-> udāsīnavad āsīnam
+> na ca māṁ tāni karmāṇi\
+> nibadhnanti dhanañjaya\
+> udāsīnavad āsīnam\
 > asaktaṁ teṣu karmasu
 
 *na*—nunca; *ca*—también; *mām*—Mí; *tāni*—todas esas; *karmāṇi*—actividades; *nibadhnanti*—atan; *dhanañjaya*—¡oh, conquistador de riquezas!; *udāsīnavat*—como neutral; *āsīnam*—situado; *asaktam*—sin atracción; *teṣu*—en ellas; *karmasu*—en las actividades.

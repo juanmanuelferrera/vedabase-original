@@ -1,11 +1,11 @@
 ### CC Adi 9.43
 
-> প্রাণিনামুপকারায় যদেবেহ পরত্র চ ।
+> প্রাণিনামুপকারায় যদেবেহ পরত্র চ ।\
 > কর্মণা মনসা বাচা তদেব মতিমান্ ভজেৎ ॥৪৩॥
 
-> prāṇinām upakārāya
-> yad eveha paratra ca
-> karmaṇā manasā vācā
+> prāṇinām upakārāya\
+> yad eveha paratra ca\
+> karmaṇā manasā vācā\
 > tad eva mati-mān bhajet
 
 *prāṇinām*—of all living entities; *upakārāya*—for the benefit; *yat*—whichever; *eva*—certainly; *iha*—in this world or in this life; *paratra*—in the next life; *ca*—and; *karmaṇā*—by work; *manasā*—by the mind; *vācā*—by words; *tat*—that; *eva*—certainly; *mati-mān*—an intelligent man; *bhajet*—must act.

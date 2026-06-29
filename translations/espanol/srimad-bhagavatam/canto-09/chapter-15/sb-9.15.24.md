@@ -1,11 +1,11 @@
 ### SB 9.15.24
 
-> तस्मै स नरदेवाय मुनिरर्हणमाहरत
+> तस्मै स नरदेवाय मुनिरर्हणमाहरत\
 > ससैन्यामात्यवाहाय हविष्मत्या तपोधनः ॥२४॥
 
-> tasmai sa naradevāya
-> munir arhaṇam āharat
-> sasainyāmātya-vāhāya
+> tasmai sa naradevāya\
+> munir arhaṇam āharat\
+> sasainyāmātya-vāhāya\
 > haviṣmatyā tapo-dhanaḥ
 
 *tasmai*—a él; *saḥ*—él (Jamadagni); *naradevāya*—al rey Kārtavīryārjuna; *muniḥ*—el gran sabio; *arhaṇam*—artículos de adoración; *āharat*—ofreció; *sa-sainya*—con sus soldados; *amātya*—sus ministros; *vāhāya*—y las cuadrigas, elefantes, caballos y hombres que llevaban los palanquines; *haviṣmatyā*—debido a que tenía una *kāmadhenu*, una vaca que podía abastecerle de todo; *tapaḥ-dhanaḥ*—el gran sabio, cuyo único poder era su austeridad, o que realizaba austeridades.

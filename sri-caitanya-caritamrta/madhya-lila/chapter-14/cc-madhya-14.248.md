@@ -1,9 +1,9 @@
 ### CC Madhya 14.248
 
-> কুলীনগ্রামী রামানন্দ, সত্যরাজ খাঁন  ।
+> কুলীনগ্রামী রামানন্দ, সত্যরাজ খাঁন  ।\
 > তাঁরে আজ্ঞা দিল প্রভু করিয়া সম্মান ॥২৪৮॥
 
-> kulīna-grāmī rāmānanda, satyarāja khāṅna
+> kulīna-grāmī rāmānanda, satyarāja khāṅna\
 > tāṅre ājñā dila prabhu kariyā sammāna
 
 *kulīna-grāmī*—the inhabitants of the village known as Kulīna-grāma; *rāmānanda*—Rāmānanda; *satyarāja khāṅna*—Satyarāja Khān; *tāṅre*—to them; *ājñā dila*—gave an order; *prabhu*—Śrī Caitanya Mahāprabhu; *kariyā sammāna*—showing great respect.

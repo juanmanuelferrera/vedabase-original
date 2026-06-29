@@ -1,9 +1,9 @@
 ### CC Madhya 16.283
 
-> পাছে সেই আচরিবা, যেই তোমার মন ।
+> পাছে সেই আচরিবা, যেই তোমার মন ।\
 > আপন-ইচ্ছায় চল, রহ, — কে করে বারণ ।।” ॥ ২৮৩ ॥
 
-> pāche sei ācaribā, yei tomāra mana
+> pāche sei ācaribā, yei tomāra mana\
 > āpana-icchāya cala, raha,--ke kare vāraṇa"
 
 *pāche*—después; *sei*—eso; *ācaribā*—harás; *yei*—lo que; *tomāra mana*—Te plazca; *āpana-icchāya*—por Tu dulce voluntad; *cala*—siempre vas; *raha*—permaneces; *ke*—quién; *kare vāraṇa*—puede detenerte.

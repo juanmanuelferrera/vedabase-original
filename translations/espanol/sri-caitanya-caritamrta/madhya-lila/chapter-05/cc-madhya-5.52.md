@@ -1,9 +1,9 @@
 ### CC Madhya 5.52
 
-> ‘আরে অধম! মোর ভগ্নী চাহ বিবাহিতে ।
+> ‘আরে অধম! মোর ভগ্নী চাহ বিবাহিতে ।\
 > বামন হঞা চাঁদ যেন চাহ ত’ ধরিতে ।।’ ॥ ৫২ ॥
 
-> 'āre adhama! mora bhagnī cāha vivāhite
+> 'āre adhama! mora bhagnī cāha vivāhite\
 > vāmana hañā cāṅda yena cāha ta' dharite'
 
 *āre adhama*—¡oh, el más degradado!; *mora*—mi; *bhagnī*—hermana; *cāha*—quieres; *vivāhite*—casarte; *vāmana*—un enano; *hañā*—siendo; *cāṅda*—la luna; *yena*—como si; *cāha*—quisieras; *ta'*—ciertamente; *dharite*—atrapar.

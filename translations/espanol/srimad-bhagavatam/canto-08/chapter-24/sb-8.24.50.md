@@ -1,11 +1,11 @@
 ### SB 8.24.50
 
-> अचक्षुरन्धस्य यथाग्रणीः कृतस्तथा जनस्याविदुषोऽबुधो गुरुः
+> अचक्षुरन्धस्य यथाग्रणीः कृतस्तथा जनस्याविदुषोऽबुधो गुरुः\
 > त्वमर्कदृक्सर्वदृशां समीक्षणो वृतो गुरुर्नः स्वगतिं बुभुत्सताम ॥५०॥
 
-> acakṣur andhasya yathāgraṇīḥ kṛtas
-> tathā janasyāviduṣo 'budho guruḥ
-> tvam arka-dṛk sarva-dṛśāṁ samīkṣaṇo
+> acakṣur andhasya yathāgraṇīḥ kṛtas\
+> tathā janasyāviduṣo 'budho guruḥ\
+> tvam arka-dṛk sarva-dṛśāṁ samīkṣaṇo\
 > vṛto gurur naḥ sva-gatiṁ bubhutsatām
 
 *acakṣuḥ*—el que no tiene la facultad de ver; *andhasya*—para esa persona ciega; *yathā*—como; *agraṇīḥ*—el líder, que va primero; *kṛtaḥ*—aceptado; *tathā*—del mismo modo; *janasya*—esa persona; *aviduṣaḥ*—que no tiene conocimiento del objetivo de la vida; *abudhaḥ*—un necio sinvergüenza; *guruḥ*—el maestro espiritual; *tvam*—a Tu Señoría; *arka-dṛk*—apareces como el Sol; *sarva-dṛśām*—de todas las fuentes de conocimiento; *samīkṣaṇaḥ*—el vidente perfecto; *vṛtaḥ*—aceptado; *guruḥ*—el maestro espiritual; *naḥ*—nuestro; *sva-gatim*—el que conoce su verdadero interés personal; *bubhutsatām*—a esa persona iluminada.

@@ -1,11 +1,11 @@
 ### SB 1.17.15
 
-> अनागःस्विह भूतेषु य आगस्कृन्निरङ्कुशः ।
+> अनागःस्विह भूतेषु य आगस्कृन्निरङ्कुशः ।\
 > आहर्तास्मि भुजं साक्षादमर्त्यस्यापि साङ्गदम् ॥१५॥
 
-> anāgaḥsv iha bhūteṣu
-> ya āgas-kṛn niraṅkuśaḥ
-> āhartāsmi bhujaṁ sākṣād
+> anāgaḥsv iha bhūteṣu\
+> ya āgas-kṛn niraṅkuśaḥ\
+> āhartāsmi bhujaṁ sākṣād\
 > amartyasyāpi sāṅgadam
 
 *anāgaḥsu iha*—to the offenseless; *bhūteṣu*—living beings; *yaḥ*—the person; *āgaḥ-kṛt*—commits offense; *niraṅkuśaḥ*—upstart; *āhartā asmi*—I shall bring forth; *bhujam*—arms; *sākṣāt*—directly; *amartyasya api*—even one who is a demigod; *sa-aṅgadam*—with decorations and armor.

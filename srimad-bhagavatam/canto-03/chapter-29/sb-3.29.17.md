@@ -1,11 +1,11 @@
 ### SB 3.29.17
 
-> महतां बहुमानेन दीनानामनुकम्पया ।
+> महतां बहुमानेन दीनानामनुकम्पया ।\
 > मैत्र्या चैवात्मतुल्येषु यमेन नियमेन च ॥१७॥
 
-> mahatāṁ bahu-mānena
-> dīnānām anukampayā
-> maitryā caivātma-tulyeṣu
+> mahatāṁ bahu-mānena\
+> dīnānām anukampayā\
+> maitryā caivātma-tulyeṣu\
 > yamena niyamena ca
 
 *mahatām*—to the great souls; *bahu-mānena*—with great respect; *dīnānām*—to the poor; *anukampayā*—with compassion; *maitryā*—with friendship; *ca*—also; *eva*—certainly; *ātma-tulyeṣu*—to persons who are equals; *yamena*—with control of the senses; *niyamena*—with regulation; *ca*—and.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.339
 
-> এই মন্ত্রে দ্বাপরে করে কৃষ্ণার্চন ।
+> এই মন্ত্রে দ্বাপরে করে কৃষ্ণার্চন ।\
 > ‘কৃষ্ণনাম-সংকীর্তন’ — কলিযুগের ধর্ম ॥৩৩৯॥
 
-> ei mantre dvāpare kare kṛṣṇārcana
+> ei mantre dvāpare kare kṛṣṇārcana\
 > 'kṛṣṇa-nāma-saṅkīrtana'—kali-yugera dharma
 
 *ei mantre*—by this mantra; *dvāpare*—in the age of Dvāpara; *kare*—perform; *kṛṣṇa-arcana*—the worship of Lord Kṛṣṇa; *kṛṣṇa-nāma-saṅkīrtana*—chanting of the holy name of Lord Kṛṣṇa; *kali-yugera dharma*—the occupational duty in the Age of Kali.

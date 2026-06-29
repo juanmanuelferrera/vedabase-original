@@ -1,9 +1,9 @@
 ### CC Adi 9.52
 
-> সর্বলোকে মত্ত কৈলা আপন-সমান ।
+> সর্বলোকে মত্ত কৈলা আপন-সমান ।\
 > প্রেমে মত্ত লোক বিনা নাহি দেখি আন ॥৫২॥
 
-> sarva-loke matta kailā āpana-samāna
+> sarva-loke matta kailā āpana-samāna\
 > preme matta loka vinā nāhi dekhi āna
 
 *sarva-loke*—all people; *matta*—maddened; *kailā*—He made; *āpana*—Himself; *samāna*—like; *preme*—in love of God; *matta*—maddened; *loka*—people in general; *vinā*—without; *nāhi*—do not; *dekhi*—we see; *āna*—anything else.

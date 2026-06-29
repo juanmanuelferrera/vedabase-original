@@ -1,11 +1,11 @@
 ### SB 4.14.30
 
-> इति तेऽसत्कृतास्तेन द्विजाः पण्डितमानिना ।
+> इति तेऽसत्कृतास्तेन द्विजाः पण्डितमानिना ।\
 > भग्नायां भव्ययाच्ञायां तस्मै विदुर चुक्रुधुः ॥३०॥
 
-> iti te 'sat-kṛtās tena
-> dvijāḥ paṇḍita-māninā
-> bhagnāyāṁ bhavya-yācñāyāṁ
+> iti te 'sat-kṛtās tena\
+> dvijāḥ paṇḍita-māninā\
+> bhagnāyāṁ bhavya-yācñāyāṁ\
 > tasmai vidura cukrudhuḥ
 
 *iti*—de este modo; *te*—todos los grandes sabios; *asat-kṛtāḥ*—insultados; *tena*—por el rey; *dvijāḥ*—los *brāhmaṇas*; *paṇḍita-māninā*—considerándose muy erudito; *bhagnāyām*—rota; *bhavya*—auspiciosa; *yācñāyām*—su petición; *tasmai*—con él; *vidura*—¡oh, Vidura!; *cukrudhuḥ*—se irritaron mucho.

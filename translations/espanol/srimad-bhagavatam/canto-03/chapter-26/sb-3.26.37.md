@@ -1,11 +1,11 @@
 ### SB 3.26.37
 
-> चालनं व्यूहनं प्राप्तिर्नेतृत्वं द्रव्यशब्दयोः ।
+> चालनं व्यूहनं प्राप्तिर्नेतृत्वं द्रव्यशब्दयोः ।\
 > सर्वेन्द्रियाणामात्मत्वं वायोः कर्माभिलक्षणम् ॥३७॥
 
-> cālanaṁ vyūhanaṁ prāptir
-> netṛtvaṁ dravya-śabdayoḥ
-> sarvendriyāṇām ātmatvaṁ
+> cālanaṁ vyūhanaṁ prāptir\
+> netṛtvaṁ dravya-śabdayoḥ\
+> sarvendriyāṇām ātmatvaṁ\
 > vāyoḥ karmābhilakṣaṇam
 
 *cālanam*—moviendo; *vyūhanam*—mezclando; *prāptiḥ*—permitiendo la aproximación; *netṛtvam*—llevando; *dravya-śabdayoḥ*—partículas de sustancias y sonido; *sarva-indriyāṇām*—de todos los sentidos; *ātmatvam*—facilitando el funcionamiento apropiado; *vāyoḥ*—del aire; *karma*—por acciones; *abhilakṣaṇam*—las distintas características.

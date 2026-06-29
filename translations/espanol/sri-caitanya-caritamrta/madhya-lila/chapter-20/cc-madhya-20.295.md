@@ -1,9 +1,9 @@
 ### CC Madhya 20.295
 
-> বিরাট্ ব্যষ্টি-জীবের তেঁহো অন্তর্যামী ।
+> বিরাট্ ব্যষ্টি-জীবের তেঁহো অন্তর্যামী ।\
 > ক্ষীরোদকশায়ী তেঁহো — পালনকর্তা, স্বামী ॥২৯৫॥
 
-> virāṭ vyaṣṭi-jīvera teṅho antaryāmī
+> virāṭ vyaṣṭi-jīvera teṅho antaryāmī\
 > kṣīrodakaśāyī teṅho--pālana-kartā, svāmī
 
 *virāṭ*—la forma universal; *vyaṣṭi-jīvera*—de todas las demás entidades vivientes; *teṅho*—Él; *antaryāmī*—la Superalma; *kṣīra-udaka-śāyī*—el Señor Viṣṇu que reposa en el océano de leche; *teṅho*—Él; *pālana-kartā*—el sustentador; *svāmī*—el amo.

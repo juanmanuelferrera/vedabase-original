@@ -1,9 +1,9 @@
 ### CC Antya 3.10
 
-> কতক্ষণে সে বালক উঠি’ যবে গেলা ।
+> কতক্ষণে সে বালক উঠি’ যবে গেলা ।\
 > সহিতে না পারে, দামোদর কহিতে লাগিলা ॥১০॥
 
-> kata-kṣaṇe se bālaka uṭhi' yabe gelā
+> kata-kṣaṇe se bālaka uṭhi' yabe gelā\
 > sahite nā pāre, dāmodara kahite lāgilā
 
 *kata-kṣaṇe*—al cabo de un rato; *se bālaka*—ese muchacho; *uṭhi'*—levantándose; *yabe*—cuando; *gelā*—se fue; *sahite nā pāre*—no podía tolerar; *dāmodara*—Dāmodara Paṇḍita; *kahite lāgilā*—comenzó a decir.

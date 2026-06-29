@@ -1,13 +1,13 @@
 ### CC Madhya 13.143
 
-> বৃন্দাবন, গোবর্ধন, যমুনা-পুলিন, বন,
-> সেই কুঞ্জে রাসাদিক লীলা ।
-> সেই ব্রজের ব্রজজন, মাতা, পিতা, বন্ধুগণ,
+> বৃন্দাবন, গোবর্ধন, যমুনা-পুলিন, বন,\
+> সেই কুঞ্জে রাসাদিক লীলা ।\
+> সেই ব্রজের ব্রজজন, মাতা, পিতা, বন্ধুগণ,\
 > বড় চিত্র, কেমনে পাসরিলা ॥১৪৩॥
 
-> vṛndāvana, govardhana, yamunā-pulina, vana,
-> sei kuñje rāsādika līlā
-> sei vrajera vraja-jana, mātā, pitā, bandhu-gaṇa,
+> vṛndāvana, govardhana, yamunā-pulina, vana,\
+> sei kuñje rāsādika līlā\
+> sei vrajera vraja-jana, mātā, pitā, bandhu-gaṇa,\
 > baḍa citra, kemane pāsarilā
 
 *vṛndāvana*—la tierra trascendental conocida como Vṛndāvana; *govardhana*—la colina Govardhana; *yamunā-pulina*—la ribera del Yamunā; *vana*—todos los bosques donde tuvieron lugar los pasatiempos del Señor; *sei kuñje*—en los arbustos de ese bosque; *rāsa-ādika līlā*—los pasatiempos de la danza del rāsa; *sei*—esa; *vrajera*—de Vṛndāvana; *vraja-jana*—los habitantes; *mātā*—madre; *pitā*—padre; *bandhu-gaṇa*—amigos; *baḍa citra*—lo más asombroso; *kemane pāsarilā*—cómo has olvidado.

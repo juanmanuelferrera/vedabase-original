@@ -1,9 +1,9 @@
 ### CC Adi 3.71
 
-> ‘অঙ্গ’-শব্দে অংশ কহে, সেহো সত্য হয় ।
+> ‘অঙ্গ’-শব্দে অংশ কহে, সেহো সত্য হয় ।\
 > মায়াকার্য নহে — সব চিদানন্দময় ॥৭১॥
 
-> 'aṅga'-śabde aṁśa kahe, seho satya haya
+> 'aṅga'-śabde aṁśa kahe, seho satya haya\
 > māyā-kārya nahe—saba cid-ānanda-maya
 
 *aṅga-śabde*—by the word *aṅga*; *aṁśa*—plenary portion; *kahe*—one means; *seho*—that; *satya*—the truth; *haya*—is; *māyā*—of the material energy; *kārya*—the work; *nahe*—is not; *saba*—all; *cit-ānanda-maya*—full of knowledge and bliss.

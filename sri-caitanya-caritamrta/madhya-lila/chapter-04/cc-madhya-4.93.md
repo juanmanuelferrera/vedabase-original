@@ -1,9 +1,9 @@
 ### CC Madhya 4.93
 
-> অন্ন, ঘৃত, দধি, দুগ্ধ, — গ্ৰামে যত ছিল ।
+> অন্ন, ঘৃত, দধি, দুগ্ধ, — গ্ৰামে যত ছিল ।\
 > গোপালের আগে লোক আনিয়া ধরিল ॥৯৩॥
 
-> anna, ghṛta, dadhi, dugdha,—grāme yata chila
+> anna, ghṛta, dadhi, dugdha,—grāme yata chila\
 > gopālera āge loka āniyā dharila
 
 *anna*—food grain; *ghṛta*—ghee, or clarified butter; *dadhi*—yogurt; *dugdha*—milk; *grāme*—in the village; *yata*—as much; *chila*—as there was; *gopālera āge*—before the Deity Gopāla; *loka*—all people; *āniyā*—bringing; *dharila*—placed.

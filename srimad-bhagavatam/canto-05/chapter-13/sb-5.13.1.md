@@ -1,13 +1,13 @@
 ### SB 5.13.1
 
-> ब्राह्मण उवाच
-> दुरत्ययेऽध्वन्यजया निवेशितो रजस्तमःसत्त्वविभक्तकर्मदृक
+> ब्राह्मण उवाच\
+> दुरत्ययेऽध्वन्यजया निवेशितो रजस्तमःसत्त्वविभक्तकर्मदृक\
 > स एष सार्थोऽर्थपरः परिभ्रमन्भवाटवीं याति न शर्म विन्दति ॥१॥
 
-> brāhmaṇa uvāca
-> duratyaye 'dhvany ajayā niveśito
-> rajas-tamaḥ-sattva-vibhakta-karmadṛk
-> sa eṣa sārtho 'rtha-paraḥ paribhraman
+> brāhmaṇa uvāca\
+> duratyaye 'dhvany ajayā niveśito\
+> rajas-tamaḥ-sattva-vibhakta-karmadṛk\
+> sa eṣa sārtho 'rtha-paraḥ paribhraman\
 > bhavāṭavīṁ yāti na śarma vindati
 
 *brāhmaṇaḥ uvāca*—the *brāhmaṇa* Jaḍa Bharata continued to speak; *duratyaye*—which is very difficult to traverse; *adhvani*—on the path of fruitive activities (performing actions in this life, creating a body in the next life by those actions, and in this way continuously accepting birth and death); *ajayā*—by *māyā,* the external energy of the Supreme Personality of Godhead; *niveśitaḥ*—caused to enter; *rajaḥ-tamaḥ-sattva-vibhakta-karma-dṛk*—a conditioned soul who sees only immediately beneficial fruitive activities and their results, which are divided into three groups by the modes of goodness, passion and ignorance; *saḥ*—he; *eṣaḥ*—this; *sa-arthaḥ*—the living entity falsely seeking sense gratification; *artha-paraḥ*—intent upon gaining wealth; *paribhraman*—wandering all over; *bhava-aṭavīm*—the forest known as *bhava,* which means the repetition of birth and death; *yāti*—enters; *na*—not; *śarma*—happiness; *vindati*—obtains.

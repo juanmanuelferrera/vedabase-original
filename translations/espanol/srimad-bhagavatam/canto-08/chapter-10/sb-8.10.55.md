@@ -1,11 +1,11 @@
 ### SB 8.10.55
 
-> तस्मिन्प्रविष्टेऽसुरकूटकर्मजा माया विनेशुर्महिना महीयसः
+> तस्मिन्प्रविष्टेऽसुरकूटकर्मजा माया विनेशुर्महिना महीयसः\
 > स्वप्नो यथा हि प्रतिबोध आगते हरिस्मृतिः सर्वविपद्विमोक्षणम ॥५५॥
 
-> tasmin praviṣṭe 'sura-kūṭa-karmajā
-> māyā vineśur mahinā mahīyasaḥ
-> svapno yathā hi pratibodha āgate
+> tasmin praviṣṭe 'sura-kūṭa-karmajā\
+> māyā vineśur mahinā mahīyasaḥ\
+> svapno yathā hi pratibodha āgate\
 > hari-smṛtiḥ sarva-vipad-vimokṣaṇam
 
 *tasmin praviṣṭe*—con la entrada de la Suprema Personalidad de Dios; *asura*—de los demonios; *kūṭa-karma-jā*—debido a las actividades ilusorias y mágicas; *māyā*—las manifestaciones falsas; *vineśuḥ*—fueron de inmediato suprimidas; *mahinā*—por el poder superior; *mahīyasaḥ*—de la Suprema Personalidad de Dios, que es más grande que el más grande; *svapnaḥ*—sueños; *yathā*—como; *hi*—en efecto; *pratibodhe*—cuando el despertar; *āgate*—ha llegado; *hari-smṛtiḥ*—el recuerdo de la Suprema Personalidad de Dios; *sarva-vipat*—de toda clase de situaciones peligrosas; *vimokṣaṇam*—vence de inmediato.

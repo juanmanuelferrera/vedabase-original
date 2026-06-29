@@ -1,9 +1,9 @@
 ### CC Madhya 9.174
 
-> পরমানন্দ পুরী তবে চলিলা নীলাচলে ।
+> পরমানন্দ পুরী তবে চলিলা নীলাচলে ।\
 > মহাপ্ৰভু চলি চলি আইলা শ্রীশৈলে ॥১৭৪॥
 
-> paramānanda purī tabe calilā nīlācale
+> paramānanda purī tabe calilā nīlācale\
 > mahāprabhu cali cali āilā śrī-śaile
 
 *paramānanda purī*—Paramānanda Purī; *tabe*—then; *calilā nīlācale*—departed for Jagannātha Purī; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *cali cali*—walking; *āilā*—came; *śrī-śaile*—to Śrī Śaila.

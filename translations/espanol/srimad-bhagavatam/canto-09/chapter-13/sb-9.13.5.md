@@ -1,11 +1,11 @@
 ### SB 9.13.5
 
-> निमिः प्रतिददौ शापं गुरवेऽधर्मवर्तिने
+> निमिः प्रतिददौ शापं गुरवेऽधर्मवर्तिने\
 > तवापि पतताद्देहो लोभाद्धर्ममजानतः ॥५॥
 
-> nimiḥ pratidadau śāpaṁ
-> gurave 'dharma-vartine
-> tavāpi patatād deho
+> nimiḥ pratidadau śāpaṁ\
+> gurave 'dharma-vartine\
+> tavāpi patatād deho\
 > lobhād dharmam ajānataḥ
 
 *nimiḥ*—Mahārāja Nimi; *pratidadau śāpam*—respondió con otra maldición; *gurave*—a su maestro espiritual, Vasiṣṭha; *adharma-vartine*—inducido a seguir principios irreligiosos (pues había maldecido a su discípulo, que era inocente); *tava*—de ti; *api*—también; *patatāt*—que caiga; *dehaḥ*—el cuerpo; *lobhāt*—por la codicia; *dharmam*—principios religiosos; *ajānataḥ*—sin conocer.

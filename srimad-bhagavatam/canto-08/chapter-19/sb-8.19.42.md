@@ -1,11 +1,11 @@
 ### SB 8.19.42
 
-> अथैतत्पूर्णमभ्यात्मं यच्च नेत्यनृतं वचः
+> अथैतत्पूर्णमभ्यात्मं यच्च नेत्यनृतं वचः\
 > सर्वं नेत्यनृतं ब्रूयात्स दुष्कीर्तिः श्वसन्मृतः ॥४२॥
 
-> athaitat pūrṇam abhyātmaṁ
-> yac ca nety anṛtaṁ vacaḥ
-> sarvaṁ nety anṛtaṁ brūyāt
+> athaitat pūrṇam abhyātmaṁ\
+> yac ca nety anṛtaṁ vacaḥ\
+> sarvaṁ nety anṛtaṁ brūyāt\
 > sa duṣkīrtiḥ śvasan mṛtaḥ
 
 *atha*—therefore; *etat*—that; *pūrṇam*—completely; *abhyātmam*—drawing the compassion of others by presenting oneself as always poverty-stricken; *yat*—that; *ca*—also; *na*—not; *iti*—thus; *anṛtam*—false; *vacaḥ*—words; *sarvam*—completely; *na*—not; *iti*—thus; *anṛtam*—falsity; *brūyāt*—who should say; *saḥ*—such a person; *duṣkīrtiḥ*—infamous; *śvasan*—while breathing or while alive; *mṛtaḥ*—is dead or should be killed.

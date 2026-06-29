@@ -1,11 +1,11 @@
 ### Bg 4.24
 
-> ब्रह्मार्पणं ब्रह्म हविर्ब्रह्माग्नौ ब्रह्मणा हुतम् ।
+> ब्रह्मार्पणं ब्रह्म हविर्ब्रह्माग्नौ ब्रह्मणा हुतम् ।\
 > ब्रह्मैव तेन गन्तव्यं ब्रह्मकर्मसमाधिना ॥२४॥
 
-> brahmārpaṇaṁ brahma havir
-> brahmāgnau brahmaṇā hutam
-> brahmaiva tena gantavyaṁ
+> brahmārpaṇaṁ brahma havir\
+> brahmāgnau brahmaṇā hutam\
+> brahmaiva tena gantavyaṁ\
 > brahma-karma-samādhinā
 
 *brahma*—spiritual nature; *arpaṇam*—contribution; *brahma*—the Supreme; *haviḥ*—butter; *brahma*—spiritual; *agnau*—in the fire of consummation; *brāhmaṇā*—by the spirit soul; *hutam*—offered; *brahma*—spiritual kingdom; *eva*—certainly; *tena*—by him; *gantavyam*—to be reached; *brahma*—spiritual; *karma*—activities; *samādhinā*—by complete absorption.

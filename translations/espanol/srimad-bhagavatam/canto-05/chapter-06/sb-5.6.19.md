@@ -1,13 +1,13 @@
 ### SB 5.6.19
 
-> नित्यानुभूतनिजलाभनिवृत्ततृष्णः
-> श्रेयस्यतद्रचनया चिरसुप्तबुद्धेः
-> लोकस्य यः करुणयाभयमात्मलोकम
+> नित्यानुभूतनिजलाभनिवृत्ततृष्णः\
+> श्रेयस्यतद्रचनया चिरसुप्तबुद्धेः\
+> लोकस्य यः करुणयाभयमात्मलोकम\
 > आख्यान्नमो भगवते ऋषभाय तस्मै ॥१९॥
 
-> nityānubhūta-nija-lābha-nivṛtta-tṛṣṇaḥ
-> śreyasy atad-racanayā cira-supta-buddheḥ
-> lokasya yaḥ karuṇayābhayam ātma-lokam
+> nityānubhūta-nija-lābha-nivṛtta-tṛṣṇaḥ\
+> śreyasy atad-racanayā cira-supta-buddheḥ\
+> lokasya yaḥ karuṇayābhayam ātma-lokam\
 > ākhyān namo bhagavate ṛṣabhāya tasmai
 
 *nitya-anubhūta*—debido a estar siempre consciente de Su verdadera identidad; *nija-lābha-nivṛtta-tṛṣṇaḥ*—que era completo en Sí mismo y no tenía ningún otro deseo que satisfacer; *śreyasi*—en el bienestar genuino de la vida; *a-tat-racanayā*—por aumentar las actividades en el campo material, confundiendo el cuerpo con el ser; *cira*—durante mucho tiempo; *supta*—durmiendo; *buddheḥ*—cuya inteligencia; *lokasya*—de hombres; *yaḥ*—quien (el Señor Ṛṣabhadeva); *karuṇayā*—por Su misericordia sin causa; *abhayam*—libre de temor; *ātma-lokam*—la verdadera identidad del ser; *ākhyāt*—instruyó; *namaḥ*—reverencias respetuosas; *bhagavate*—a la Suprema Personalidad de Dios; *ṛṣabhāya*—al Señor Ṛṣabhadeva; *tasmai*—a Él.

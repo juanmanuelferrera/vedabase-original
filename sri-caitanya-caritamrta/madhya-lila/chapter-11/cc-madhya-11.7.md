@@ -1,9 +1,9 @@
 ### CC Madhya 11.7
 
-> বিরক্ত সন্ন্যাসী আমার রাজ-দরশন ।
+> বিরক্ত সন্ন্যাসী আমার রাজ-দরশন ।\
 > স্ত্রী-দরশন-সম বিষের ভক্ষণ ॥৭॥
 
-> virakta sannyāsī āmāra rāja-daraśana
+> virakta sannyāsī āmāra rāja-daraśana\
 > strī-daraśana-sama viṣera bhakṣaṇa
 
 *virakta*—unattached; *sannyāsī*—person in the renounced order; *āmāra*—My; *rāja-daraśana*—meeting a king; *strī-daraśana*—meeting a woman; *sama*—like; *viṣera*—of poison; *bhakṣaṇa*—drinking.

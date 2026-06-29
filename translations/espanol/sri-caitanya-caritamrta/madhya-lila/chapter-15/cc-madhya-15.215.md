@@ -1,9 +1,9 @@
 ### CC Madhya 15.215
 
-> মুদ্গবড়া, মাষবড়া, কলাবড়া মিষ্ট ৷
+> মুদ্গবড়া, মাষবড়া, কলাবড়া মিষ্ট ৷\
 > ক্ষীরপুলি, নারিকেল-পুলি আর যত পিষ্ট ॥২১৫॥
 
-> mudga-baḍā, māṣa-baḍā, kalā-baḍā miṣṭa
+> mudga-baḍā, māṣa-baḍā, kalā-baḍā miṣṭa\
 > kṣīra-puli, nārikela-pulī āra yata piṣṭa
 
 *mudga-baḍā*—pasteles fritos hechos de dhal de mung; *māṣa-baḍā*—pasteles fritos hechos de dhal de urad; *kalā-baḍā*—pasteles fritos hechos de plátano; *miṣṭa*—muy dulce; *kṣīra-puli*—pasteles hechos con arroz dulce; *nārikela-pulī*—pastel de coco; *āra*—y; *yata*—variedades de; *piṣṭa*—pasteles.

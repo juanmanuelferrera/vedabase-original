@@ -1,11 +1,11 @@
 ### SB 3.27.24
 
-> भुक्तभोगा परित्यक्ता दृष्टदोषा च नित्यशः ।
+> भुक्तभोगा परित्यक्ता दृष्टदोषा च नित्यशः ।\
 > नेश्वरस्याशुभं धत्ते स्वे महिम्नि स्थितस्य च ॥२४॥
 
-> bhukta-bhogā parityaktā
-> dṛṣṭa-doṣā ca nityaśaḥ
-> neśvarasyāśubhaṁ dhatte
+> bhukta-bhogā parityaktā\
+> dṛṣṭa-doṣā ca nityaśaḥ\
+> neśvarasyāśubhaṁ dhatte\
 > sve mahimni sthitasya ca
 
 *bhukta*—disfrutado; *bhogā*—disfrute; *parityaktā*—abandonado; *dṛṣṭa*—descubierta; *doṣā*—imperfección; *ca*—y; *nityaśaḥ*—siempre; *na*—no; *īśvarasya*—del independiente; *aśubham*—daño; *dhatte*—ella inflige; *sve mahimni*—en su propia gloria; *sthitasya*—situada; *ca*—y.

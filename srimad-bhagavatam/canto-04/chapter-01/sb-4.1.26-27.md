@@ -1,22 +1,22 @@
 ### SB 4.1.26-27
 
-> चेतस्तत्प्रवणं युञ्जन्नस्तावीत्संहताञ्जलिः ।
-> श्लक्ष्णया सूक्तया वाचा सर्वलोकगरीयसः ॥२६॥
-> अत्रिरुवाच
-> विश्वोद्भवस्थितिलयेषु विभज्यमानैर्
-> मायागुणैरनुयुगं विगृहीतदेहाः ।
-> ते ब्रह्मविष्णुगिरिशाः प्रणतोऽस्म्यहं वस्
+> चेतस्तत्प्रवणं युञ्जन्नस्तावीत्संहताञ्जलिः ।\
+> श्लक्ष्णया सूक्तया वाचा सर्वलोकगरीयसः ॥२६॥\
+> अत्रिरुवाच\
+> विश्वोद्भवस्थितिलयेषु विभज्यमानैर्\
+> मायागुणैरनुयुगं विगृहीतदेहाः ।\
+> ते ब्रह्मविष्णुगिरिशाः प्रणतोऽस्म्यहं वस्\
 > तेभ्यः क एव भवतां म इहोपहूतः ॥२७॥
 
-> cetas tat-pravaṇaṁ yuñjann
-> astāvīt saṁhatāñjaliḥ
-> ślakṣṇayā sūktayā vācā
+> cetas tat-pravaṇaṁ yuñjann\
+> astāvīt saṁhatāñjaliḥ\
+> ślakṣṇayā sūktayā vācā\
 > sarva-loka-garīyasaḥ
 
-> atrir uvāca
-> viśvodbhava-sthiti-layeṣu vibhajyamānair
-> māyā-guṇair anuyugaṁ vigṛhīta-dehāḥ
-> te brahma-viṣṇu-giriśāḥ praṇato 'smy ahaṁ vas
+> atrir uvāca\
+> viśvodbhava-sthiti-layeṣu vibhajyamānair\
+> māyā-guṇair anuyugaṁ vigṛhīta-dehāḥ\
+> te brahma-viṣṇu-giriśāḥ praṇato 'smy ahaṁ vas\
 > tebhyaḥ ka eva bhavatāṁ ma ihopahūtaḥ
 
 *cetaḥ*—heart; *tat-pravaṇam*—fixing on them; *yuñjan*—making; *astāvīt*—offered prayers; *saṁhata-añjaliḥ*—with folded hands; *ślakṣṇayā*—ecstatic; *sūktayā*—prayers; *vācā*—words; *sarva-loka*—all over the world; *garīyasaḥ*—honorable; *atriḥ uvāca*—Atri said; *viśva*—the universe; *udbhava*—creation; *sthiti*—maintenance; *layeṣu*—in destruction; *vibhajyamānaiḥ*—being divided; *māyā-guṇaiḥ*—by the external modes of nature; *anuyugam*—according to different millenniums; *vigṛhīta*—accepted; *dehāḥ*—bodies; *te*—they; *brahma*—Lord Brahmā; *viṣṇu*—Lord Viṣṇu; *giriśāḥ*—Lord Śiva; *praṇataḥ*—bowed; *asmi*—am; *aham*—I; *vaḥ*—unto you; *tebhyaḥ*—from them; *kaḥ*—who; *eva*—certainly; *bhavatām*—of you; *me*—by me; *iha*—here; *upahūtaḥ*—called for.

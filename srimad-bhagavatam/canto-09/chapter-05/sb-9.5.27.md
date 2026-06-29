@@ -1,11 +1,11 @@
 ### SB 9.5.27
 
-> इत्येतत्पुण्यमाख्यानमम्बरीषस्य भूपते
+> इत्येतत्पुण्यमाख्यानमम्बरीषस्य भूपते\
 > सङ्कीर्तयन्ननुध्यायन्भक्तो भगवतो भवेत ॥२७॥
 
-> ity etat puṇyam ākhyānam
-> ambarīṣasya bhūpate
-> saṅkīrtayann anudhyāyan
+> ity etat puṇyam ākhyānam\
+> ambarīṣasya bhūpate\
+> saṅkīrtayann anudhyāyan\
 > bhakto bhagavato bhavet
 
 *iti*—thus; *etat*—this; *puṇyam ākhyānam*—most pious activity in history; *ambarīṣasya*—of Mahārāja Ambarīṣa; *bhūpate*—O King (Mahārāja Parīkṣit); *saṅkīrtayan*—by chanting, repeating; *anudhyāyan*—or by meditating upon; *bhaktaḥ*—a devotee; *bhagavataḥ*—of the Supreme Personality of Godhead; *bhavet*—one can become.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.5
 
-> “শ্রীনৃসিংহ, জয় নৃসিংহ, জয় জয় নৃসিংহ ৷
+> “শ্রীনৃসিংহ, জয় নৃসিংহ, জয় জয় নৃসিংহ ৷\
 > প্রহ্লাদেশ জয় পদ্মামুখপদ্মভৃঙ্গ ৷৷” ৫ ৷৷ ॥৫॥
 
-> "śrī-nṛsiṁha, jaya nṛsiṁha, jaya jaya nṛsiṁha
+> "śrī-nṛsiṁha, jaya nṛsiṁha, jaya jaya nṛsiṁha\
 > prahlādeśa jaya padmā-mukha-padma-bhṛṅga"
 
 *śrī-nṛsiṁha*—el Señor Nṛsiṁha con Lakṣmī; *jaya nṛsiṁha*—¡todas las glorias al Señor Nṛsiṁha!; *jaya jaya*—¡glorias una y otra vez!; *nṛsiṁha*—a Nṛsiṁhadeva; *prahlāda-īśa*—al Señor de Prahlāda Mahārāja; *jaya*—¡todas las glorias!; *padmā*—de la diosa de la fortuna; *mukha-padma*—del rostro semejante al loto; *bhṛṅga*—la abeja.

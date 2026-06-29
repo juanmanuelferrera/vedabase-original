@@ -1,11 +1,11 @@
 ### SB 5.19.5
 
-> मर्त्यावतारस्त्विह मर्त्यशिक्षणं रक्षोवधायैव न केवलं विभोः
+> मर्त्यावतारस्त्विह मर्त्यशिक्षणं रक्षोवधायैव न केवलं विभोः\
 > कुतोऽन्यथा स्याद्रमतः स्व आत्मनः सीताकृतानि व्यसनानीश्वरस्य ॥५॥
 
-> martyāvatāras tv iha martya-śikṣaṇaṁ
-> rakṣo-vadhāyaiva na kevalaṁ vibhoḥ
-> kuto 'nyathā syād ramataḥ sva ātmanaḥ
+> martyāvatāras tv iha martya-śikṣaṇaṁ\
+> rakṣo-vadhāyaiva na kevalaṁ vibhoḥ\
+> kuto 'nyathā syād ramataḥ sva ātmanaḥ\
 > sītā-kṛtāni vyasanānīśvarasya
 
 *martya*—as a human being; *avatāraḥ*—whose incarnation; *tu*—however; *iha*—in the material world; *martya-śikṣaṇam*—for teaching all the living entities, especially human beings; *rakṣaḥ-vadhāya*—to kill the demon Rāvaṇa; *eva*—certainly; *na*—not; *kevalam*—only; *vibhoḥ*—of the Supreme Personality of Godhead; *kutaḥ*—from where; *anyathā*—otherwise; *syāt*—there would be; *ramataḥ*—of one enjoying; *sve*—in Himself; *ātmanaḥ*—the spiritual identity of the universe; *sītā*—of the wife of Lord Rāmacandra; *kṛtāni*—appearing due to the separation; *vyasanāni*—all the miseries; *īśvarasya*—of the Supreme Personality of Godhead.

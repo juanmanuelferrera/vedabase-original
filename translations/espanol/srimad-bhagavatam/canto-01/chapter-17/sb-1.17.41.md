@@ -1,11 +1,11 @@
 ### SB 1.17.41
 
-> अथैतानि न सेवेत बुभूषुः पुरुषः क्वचित् ।
+> अथैतानि न सेवेत बुभूषुः पुरुषः क्वचित् ।\
 > विशेषतो धर्मशीलो राजा लोकपतिर्गुरुः ॥४१॥
 
-> athaitāni na seveta
-> bubhūṣuḥ puruṣaḥ kvacit
-> viśeṣato dharma-śīlo
+> athaitāni na seveta\
+> bubhūṣuḥ puruṣaḥ kvacit\
+> viśeṣato dharma-śīlo\
 > rājā loka-patir guruḥ
 
 *atha*—por lo tanto; *etāni*—todos estos; *na*—nunca; *seveta*—se ponen en contacto; *bubhūṣuḥ*—aquellos que deseen bienestar; *puruṣaḥ*—persona; *kvacit*—en cualesquiera circunstancias; *viśeṣataḥ*—específicamente; *dharma-śīlaḥ*—aquellos que se encuentran en la senda progresiva de la liberación; *rājā*—el rey; *loka-patiḥ*—líder público; *guruḥ*—los *brāhmaṇas* y los *sannyāsīs*.

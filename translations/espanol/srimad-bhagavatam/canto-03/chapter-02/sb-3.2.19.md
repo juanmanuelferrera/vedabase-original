@@ -1,11 +1,11 @@
 ### SB 3.2.19
 
-> दृष्टा भवद्भिर्ननु राजसूये चैद्यस्य कृष्णं द्विषतोऽपि सिद्धिः ।
+> दृष्टा भवद्भिर्ननु राजसूये चैद्यस्य कृष्णं द्विषतोऽपि सिद्धिः ।\
 > यां योगिनः संस्पृहयन्ति सम्यग्योगेन कस्तद्विरहं सहेत ॥१९॥
 
-> dṛṣṭā bhavadbhir nanu rājasūye
-> caidyasya kṛṣṇaṁ dviṣato 'pi siddhiḥ
-> yāṁ yoginaḥ saṁspṛhayanti samyag
+> dṛṣṭā bhavadbhir nanu rājasūye\
+> caidyasya kṛṣṇaṁ dviṣato 'pi siddhiḥ\
+> yāṁ yoginaḥ saṁspṛhayanti samyag\
 > yogena kas tad-virahaṁ saheta
 
 *dṛṣṭā*—ha sido visto; *bhavadbhiḥ*—por ti; *nanu*—por supuesto; *rājasūye*—en la asamblea del sacrificio *rājasūya* que realizó Mahārāja Yudhiṣṭhira; *caidyasya*—del rey de Cedi (Śiśupāla); *kṛṣṇam*—a Kṛṣṇa; *dviṣataḥ*—envidiando; *api*—a pesar de; *siddhiḥ*—éxito; *yām*—el cual; *yoginaḥ*—los *yogīs*; *saṁspṛhayanti*—desean muchísimo; *samyak*—plenamente; *yogena*—mediante la ejecución de *yoga*; *kaḥ*—quién; *tat*—Su; *viraham*—separación; *saheta*—puede tolerar.

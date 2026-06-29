@@ -1,11 +1,11 @@
 ### SB 3.4.36
 
-> कालिन्द्याः कतिभिः सिद्ध अहोभिर्भरतर्षभ ।
+> कालिन्द्याः कतिभिः सिद्ध अहोभिर्भरतर्षभ ।\
 > प्रापद्यत स्वःसरितं यत्र मित्रासुतो मुनिः ॥३६॥
 
-> kālindyāḥ katibhiḥ siddha
-> ahobhir bharatarṣabha
-> prāpadyata svaḥ-saritaṁ
+> kālindyāḥ katibhiḥ siddha\
+> ahobhir bharatarṣabha\
+> prāpadyata svaḥ-saritaṁ\
 > yatra mitrā-suto muniḥ
 
 *kālindyāḥ*—en la ribera del Yamunā; *katibhiḥ*—unos cuantos; *siddhe*—habiendo pasado así; *ahobhiḥ*—días; *bharata-ṛṣabha*—¡oh, el mejor de la dinastía Bharata!; *prāpadyata*—llegó; *svaḥ-saritam*—el agua celestial del Ganges; *yatra*—donde; *mitrā-sutaḥ*—el hijo de Mitrā; *muniḥ*—sabio.

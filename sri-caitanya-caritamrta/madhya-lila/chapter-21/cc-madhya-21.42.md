@@ -1,9 +1,9 @@
 ### CC Madhya 21.42
 
-> এই অর্থ — মধ্যম, শুন ‘গূঢ়’ অর্থ আর ।
+> এই অর্থ — মধ্যম, শুন ‘গূঢ়’ অর্থ আর ।\
 > তিন আবাস-স্থান কৃষ্ণের শাস্ত্রে খ্যাতি যার ॥৪২॥
 
-> ei artha—madhyama, śuna 'gūḍha' artha āra
+> ei artha—madhyama, śuna 'gūḍha' artha āra\
 > tina āvāsa-sthāna kṛṣṇera śāstre khyāti yāra
 
 *ei artha*—this explanation; *madhyama*—middle; *śuna*—please hear; *gūḍha*—confidential; *artha*—meaning; *āra*—another; *tina*—three; *āvāsa-sthāna*—residential places; *kṛṣṇera*—of Lord Kṛṣṇa; *śāstre*—in the revealed scriptures; *khyāti*—fame; *yāra*—of which.

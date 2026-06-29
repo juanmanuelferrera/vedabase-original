@@ -1,9 +1,9 @@
 ### CC Adi 11.30
 
-> জগদীশ পণ্ডিত হয় জগৎ-পাবন ।
+> জগদীশ পণ্ডিত হয় জগৎ-পাবন ।\
 > কৃষ্ণপ্রেমামৃত বর্ষে, যেন বর্ষা ঘন ॥৩০॥
 
-> jagadīśa paṇḍita haya jagat-pāvana
+> jagadīśa paṇḍita haya jagat-pāvana\
 > kṛṣṇa-premāmṛta varṣe, yena varṣā ghana
 
 *jagadīśa paṇḍita*—of the name Jagadīśa Paṇḍita; *haya*—becomes; *jagat-pāvana*—the deliverer of the world; *kṛṣṇa-prema-amṛta varṣe*—he always pours torrents of devotional service; *yena*—like; *varṣā*—rainfall; *ghana*—heavy.

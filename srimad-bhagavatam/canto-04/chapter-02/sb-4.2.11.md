@@ -1,11 +1,11 @@
 ### SB 4.2.11
 
-> एष मे शिष्यतां प्राप्तो यन्मे दुहितुरग्रहीत् ।
+> एष मे शिष्यतां प्राप्तो यन्मे दुहितुरग्रहीत् ।\
 > पाणिं विप्राग्निमुखतः सावित्र्या इव साधुवत् ॥११॥
 
-> eṣa me śiṣyatāṁ prāpto
-> yan me duhitur agrahīt
-> pāṇiṁ viprāgni-mukhataḥ
+> eṣa me śiṣyatāṁ prāpto\
+> yan me duhitur agrahīt\
+> pāṇiṁ viprāgni-mukhataḥ\
 > sāvitryā iva sādhuvat
 
 *eṣaḥ*—he (Śiva); *me*—my; *śiṣyatām*—subordinate position; *prāptaḥ*—accepted; *yat*—because; *me duhituḥ*—of my daughter; *agrahīt*—he took; *pāṇim*—the hand; *vipra-agni*—of *brāhmaṇas* and fire; *mukhataḥ*—in the presence; *sāvitryāḥ*—Gāyatrī; *iva*—like; *sādhuvat*—like an honest person.

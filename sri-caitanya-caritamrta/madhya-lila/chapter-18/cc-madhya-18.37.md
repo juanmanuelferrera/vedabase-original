@@ -1,9 +1,9 @@
 ### CC Madhya 18.37
 
-> গোপালের সৌন্দর্য দেখি’ প্রভুর আবেশ ।
+> গোপালের সৌন্দর্য দেখি’ প্রভুর আবেশ ।\
 > এই শ্লোক পড়ি’ নাচে, হৈল দিন-শেষ ॥৩৭॥
 
-> gopālera saundarya dekhi' prabhura āveśa
+> gopālera saundarya dekhi' prabhura āveśa\
 > ei śloka paḍi' nāce, haila dina-śeṣa
 
 *gopālera*—of Gopāla; *saundarya*—beauty; *dekhi'*—seeing; *prabhura*—of Śrī Caitanya Mahāprabhu; *āveśa*—ecstasy; *ei śloka paḍi'*—reciting the following verse; *nāce*—dances; *haila*—there was; *dina-śeṣa*—the end of the day.

@@ -1,11 +1,11 @@
 ### SB 4.17.30
 
-> येनाहमात्मायतनं विनिर्मिता धात्रा यतोऽयं गुणसर्गसङ्ग्रहः ।
+> येनाहमात्मायतनं विनिर्मिता धात्रा यतोऽयं गुणसर्गसङ्ग्रहः ।\
 > स एव मां हन्तुमुदायुधः स्वराडुपस्थितोऽन्यं शरणं कमाश्रये ॥३०॥
 
-> yenāham ātmāyatanaṁ vinirmitā
-> dhātrā yato 'yaṁ guṇa-sarga-saṅgrahaḥ
-> sa eva māṁ hantum udāyudhaḥ svarāḍ
+> yenāham ātmāyatanaṁ vinirmitā\
+> dhātrā yato 'yaṁ guṇa-sarga-saṅgrahaḥ\
+> sa eva māṁ hantum udāyudhaḥ svarāḍ\
 > upasthito 'nyaṁ śaraṇaṁ kam āśraye
 
 *yena*—by whom; *aham*—I; *ātma-āyatanam*—resting place of all living entities; *vinirmitā*—was created; *dhātrā*—by the Supreme Lord; *yataḥ*—on account of whom; *ayam*—this; *guṇa-sarga-saṅgrahaḥ*—combination of different material elements; *saḥ*—He; *eva*—certainly; *mām*—me; *hantum*—to kill; *udāyudhaḥ*—prepared with weapons; *svarāṭ*—completely independent; *upasthitaḥ*—now present before me; *anyam*—other; *śaraṇam*—shelter; *kam*—unto whom; *āśraye*—I shall resort to.

@@ -1,8 +1,8 @@
 ### SB 1.17.9
 
-> mā saurabheyātra śuco
-> vyetu te vṛṣalād bhayam
-> mā rodīr amba bhadraṁ te
+> mā saurabheyātra śuco\
+> vyetu te vṛṣalād bhayam\
+> mā rodīr amba bhadraṁ te\
 > khalānāṁ mayi śāstari
 
 *mā*—não; *saurabheya*—ó filho de Surabhi; *atra*—em meu reino; *śucaḥ*—lamentação; *vyetu*—que haja; *te*—tua; *vṛṣalāt*—pelo *śūdra*; *bhayam*—causa de medo; *mā*—não; *rodīḥ*—chores; *amba*—mãe vaca; *bhadram*—todo o bem; *te*—a ti; *khalānām*—dos invejosos; *mayi*—enquanto eu viver; *śāstari*—o governante ou subjugador.

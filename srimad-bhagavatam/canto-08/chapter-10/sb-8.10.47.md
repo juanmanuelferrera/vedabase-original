@@ -1,11 +1,11 @@
 ### SB 8.10.47
 
-> महोरगाः समुत्पेतुर्दन्दशूकाः सवृश्चिकाः
+> महोरगाः समुत्पेतुर्दन्दशूकाः सवृश्चिकाः\
 > सिंहव्याघ्रवराहाश्च मर्दयन्तो महागजाः ॥४७॥
 
-> mahoragāḥ samutpetur
-> dandaśūkāḥ savṛścikāḥ
-> siṁha-vyāghra-varāhāś ca
+> mahoragāḥ samutpetur\
+> dandaśūkāḥ savṛścikāḥ\
+> siṁha-vyāghra-varāhāś ca\
 > mardayanto mahā-gajāḥ
 
 *mahā-uragāḥ*—big serpents; *samutpetuḥ*—fell upon them; *dandaśūkāḥ*—other poisonous animals and insects; *sa-vṛścikāḥ*—with scorpions; *siṁha*—lions; *vyāghra*—tigers; *varāhāḥ ca*—and forest boars; *mardayantaḥ*—smashing; *mahā-gajāḥ*—great elephants.

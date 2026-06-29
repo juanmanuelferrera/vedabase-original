@@ -1,9 +1,9 @@
 ### CC Antya 16.60
 
-> ভক্তপদধূলি আর ভক্তপদ-জল ।
+> ভক্তপদধূলি আর ভক্তপদ-জল ।\
 > ভক্তভুক্ত-অবশেষ, — তিন মহাবল ॥৬০॥
 
-> bhakta-pada-dhūli āra bhakta-pada-jala
+> bhakta-pada-dhūli āra bhakta-pada-jala\
 > bhakta-bhukta-avaśeṣa,—tina mahā-bala
 
 *bhakta-pada-dhūli*—the dust of the lotus feet of a devotee; *āra*—and; *bhakta-pada-jala*—the water that washed the feet of a devotee; *bhakta-bhukta-avaśeṣa*—and the remnants of food eaten by a devotee; *tina*—three; *mahā-bala*—very powerful.

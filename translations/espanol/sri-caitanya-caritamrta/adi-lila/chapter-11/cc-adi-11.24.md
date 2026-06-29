@@ -1,9 +1,9 @@
 ### CC Adi 11.24
 
-> কমলাকর পিপ্পলাই — অলৌকিক রীত ।
+> কমলাকর পিপ্পলাই — অলৌকিক রীত ।\
 > অলৌকিক প্রেম তাঁর ভুবনে বিদিত ॥২৪॥
 
-> kamalākara pippalāi--alaukika rīta
+> kamalākara pippalāi--alaukika rīta\
 > alaukika prema tāṅra bhuvane vidita
 
 *kamalākara pippalāi*—de nombre Kamalākara Pippalāi; *alaukika*—poco común; *rīta*—comportamiento o pasatiempo; *alaukika*—poco común; *prema*—amor por Dios; *tāṅra*—su; *bhuvane*—en el mundo; *vidita*—célebre.

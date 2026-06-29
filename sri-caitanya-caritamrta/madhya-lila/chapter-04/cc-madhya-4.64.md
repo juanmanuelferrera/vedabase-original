@@ -1,9 +1,9 @@
 ### CC Madhya 4.64
 
-> ধূপ, দীপ, করি’ নানা ভোগ লাগাইল ।
+> ধূপ, দীপ, করি’ নানা ভোগ লাগাইল ।\
 > দধি-দুগ্ধ-সন্দেশাদি যত কিছু আইল ॥৬৪॥
 
-> dhūpa, dīpa, kari' nānā bhoga lāgāila
+> dhūpa, dīpa, kari' nānā bhoga lāgāila\
 > dadhi-dugdha-sandeśādi yata kichu āila
 
 *dhūpa*—incense; *dīpa*—lamp; *kari'*—burning; *nānā*—various; *bhoga*—foods; *lāgāila*—were offered; *dadhi*—yogurt; *dugdha*—milk; *sandeśa*—sweetmeats; *ādi*—and others; *yata*—as much as; *kichu*—some; *āila*—received.

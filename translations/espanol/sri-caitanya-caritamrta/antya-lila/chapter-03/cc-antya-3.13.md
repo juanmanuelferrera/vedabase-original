@@ -2,7 +2,7 @@
 
 > শুনি’ প্রভু কহে, — ‘ক্যা কহ, দামোদর ?’ দামোদর কহে, — “তুমি স্বতন্ত্র ‘ঈশ্বর’ ॥১৩॥
 
-> śuni' prabhu kahe,--'kyā kaha, dāmodara?'
+> śuni' prabhu kahe,--'kyā kaha, dāmodara?'\
 > dāmodara kahe,--tumi svatantra 'īśvara'
 
 *śuni'*—al oír; *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *kyā kaha*—qué disparate estás diciendo; *dāmodara*—Mi querido Dāmodara; *dāmodara kahe*—Dāmodara Paṇḍita respondió; *tumi*—Tú; *svatantra*—independiente; *īśvara*—la Suprema Personalidad de Dios.

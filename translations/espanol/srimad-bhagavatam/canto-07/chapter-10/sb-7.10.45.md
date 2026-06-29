@@ -1,11 +1,11 @@
 ### SB 7.10.45
 
-> धर्मो भागवतानां च भगवान्येन गम्यते
+> धर्मो भागवतानां च भगवान्येन गम्यते\
 > आख्यानेऽस्मिन्समाम्नातमाध्यात्मिकमशेषतः ॥४५॥
 
-> dharmo bhāgavatānāṁ ca
-> bhagavān yena gamyate
-> ākhyāne 'smin samāmnātam
+> dharmo bhāgavatānāṁ ca\
+> bhagavān yena gamyate\
+> ākhyāne 'smin samāmnātam\
 > ādhyātmikam aśeṣataḥ
 
 *dharmaḥ*—los principios religiosos; *bhāgavatānām*—de los devotos; *ca*—y; *bhagavān*—a la Suprema Personalidad de Dios; *yena*—por los cuales; *gamyate*—se puede comprender; *ākhyāne*—en la narración; *asmin*—esta; *samāmnātam*—se describe perfectamente; *ādhyātmikam*—la realidad trascendental; *aśeṣataḥ*—sin reservas.

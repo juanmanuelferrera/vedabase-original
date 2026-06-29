@@ -1,9 +1,9 @@
 ### CC Antya 3.136
 
-> ঠাকুর কহে, — “ঘরের দ্রব্য ব্রাহ্মণে কর দান ।
+> ঠাকুর কহে, — “ঘরের দ্রব্য ব্রাহ্মণে কর দান ।\
 > এই ঘরে আসি’ তুমি করহ বিশ্রাম ॥১৩৬॥
 
-> ṭhākura kahe,—"gharera dravya brāhmaṇe kara dāna
+> ṭhākura kahe,—"gharera dravya brāhmaṇe kara dāna\
 > ei ghare āsi' tumi karaha viśrāma
 
 *ṭhākura kahe*—Śrīla Haridāsa Ṭhākura said; *gharera*—at home; *dravya*—articles; *brāhmaṇe*—to the *brāhmaṇas*; *kara dāna*—give as charity; *ei ghare*—in this room; *āsi'*—returning; *tumi*—you; *karaha viśrāma*—stay.

@@ -1,9 +1,9 @@
 ### CC Adi 2.114
 
-> কেহো কহে, কৃষ্ণ ক্ষীরোদশায়ী অবতার ।
+> কেহো কহে, কৃষ্ণ ক্ষীরোদশায়ী অবতার ।\
 > অসম্ভব নহে, সত্য বচন সবার ॥১১৪॥
 
-> keho kahe, kṛṣṇa kṣīroda-śāyī avatāra
+> keho kahe, kṛṣṇa kṣīroda-śāyī avatāra\
 > asambhava nahe, satya vacana sabāra
 
 *keho*—alguien; *kahe*—dice; *kṛṣṇa*—el Señor Kṛṣṇa; *kṣīroda-śāyī*—Kṣīrodakaśāyī Viṣṇu; *avatāra*—encarnación; *asambhava*—imposible; *nahe*—no es; *satya*—verdaderas; *vacana*—afirmaciones; *sabāra*—de todos.

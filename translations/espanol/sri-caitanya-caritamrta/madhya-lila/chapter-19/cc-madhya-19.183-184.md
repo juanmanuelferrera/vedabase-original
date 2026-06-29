@@ -1,14 +1,14 @@
 ### CC Madhya 19.183-184
 
-> ভক্তভেদে রতি-ভেদ পঞ্চ পরকার ।
-> শান্তরতি, দাস্যরতি, সখ্যরতি আর ॥১৮৩॥
-> বাৎসল্যরতি, মধুররতি, — এ পঞ্চ বিভেদ ।
+> ভক্তভেদে রতি-ভেদ পঞ্চ পরকার ।\
+> শান্তরতি, দাস্যরতি, সখ্যরতি আর ॥১৮৩॥\
+> বাৎসল্যরতি, মধুররতি, — এ পঞ্চ বিভেদ ।\
 > রতিভেদে কৃষ্ণভক্তিরসে পঞ্চ ভেদ ॥১৮৪॥
 
-> bhakta-bhede rati-bheda pañca parakāra
+> bhakta-bhede rati-bheda pañca parakāra\
 > śānta-rati, dāsya-rati, sakhya-rati āra
 
-> vātsalya-rati, madhura-rati,—ei pañca vibheda
+> vātsalya-rati, madhura-rati,—ei pañca vibheda\
 > rati-bhede kṛṣṇa-bhakti-rase pañca bheda
 
 *bhakta-bhede*—en función de distintos tipos de devotos; *rati-bheda*—los distintos apegos; *pañca parakāra*—cinco categorías; *śānta-rati*—aprecio neutral; *dāsya-rati*—apego con actitud de servicio; *sakhya-rati*—apego con aprecio amistoso; *āra*—también; *vātsalya-rati*—apego con afecto paternal; *madhura-rati*—apego con amor conyugal; *ei*—esas; *pañca*—cinco; *vibheda*—divisiones; *rati-bhede*—con apego en distintos niveles; *kṛṣṇa-bhakti-rase*—en melosidades que se derivan del servicio devocional; *pañca*—cinco; *bheda*—clases.

@@ -1,11 +1,11 @@
 ### SB 6.18.74
 
-> आराधनं भगवत ईहमाना निराशिषः
+> आराधनं भगवत ईहमाना निराशिषः\
 > ये तु नेच्छन्त्यपि परं ते स्वार्थकुशलाः स्मृताः ॥७४॥
 
-> ārādhanaṁ bhagavata
-> īhamānā nirāśiṣaḥ
-> ye tu necchanty api paraṁ
+> ārādhanaṁ bhagavata\
+> īhamānā nirāśiṣaḥ\
+> ye tu necchanty api paraṁ\
 > te svārtha-kuśalāḥ smṛtāḥ
 
 *ārādhanam*—the worship; *bhagavataḥ*—of the Supreme Personality of Godhead; *īhamānāḥ*—being interested in; *nirāśiṣaḥ*—without material desires; *ye*—those who; *tu*—indeed; *na icchanti*—do not desire; *api*—even; *param*—liberation; *te*—they; *sva-artha*—in their own interest; *kuśalāḥ*—expert; *smṛtāḥ*—are considered.

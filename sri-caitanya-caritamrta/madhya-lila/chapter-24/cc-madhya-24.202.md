@@ -1,9 +1,9 @@
 ### CC Madhya 24.202
 
-> চ-শব্দে ‘এব’, ‘অপি’-শব্দ সমুচ্চয়ে ।
+> চ-শব্দে ‘এব’, ‘অপি’-শব্দ সমুচ্চয়ে ।\
 > ‘আত্মারামা এব’ হঞা শ্রীকৃষ্ণ ভজয়ে ॥২০২॥
 
-> ca-śabde 'eva', 'api'-śabda samuccaye
+> ca-śabde 'eva', 'api'-śabda samuccaye\
 > 'ātmārāmā eva' hañā śrī-kṛṣṇa bhajaye
 
 *ca-śabde*—by the word *ca*; *eva*—the word *eva*; *api-śabda*—the word *api*; *samuccaye*—in the sense of aggregation; *ātmārāmāḥ eva*—all the *ātmārāmas* (all kinds of living entities); *hañā*—being; *śrī-kṛṣṇa bhajaye*—become engaged in the service of Lord Kṛṣṇa.

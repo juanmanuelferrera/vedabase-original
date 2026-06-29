@@ -1,13 +1,13 @@
 ### SB 4.17.29
 
-> धरोवाच
-> नमः परस्मै पुरुषाय मायया विन्यस्तनानातनवे गुणात्मने ।
+> धरोवाच\
+> नमः परस्मै पुरुषाय मायया विन्यस्तनानातनवे गुणात्मने ।\
 > नमः स्वरूपानुभवेन निर्धुत द्रव्यक्रियाकारकविभ्रमोर्मये ॥२९॥
 
-> dharovāca
-> namaḥ parasmai puruṣāya māyayā
-> vinyasta-nānā-tanave guṇātmane
-> namaḥ svarūpānubhavena nirdhuta-
+> dharovāca\
+> namaḥ parasmai puruṣāya māyayā\
+> vinyasta-nānā-tanave guṇātmane\
+> namaḥ svarūpānubhavena nirdhuta-\
 > dravya-kriyā-kāraka-vibhramormaye
 
 *dharā*—the planet earth; *uvāca*—said; *namaḥ*—I offer my obeisances; *parasmai*—unto the Transcendence; *puruṣāya*—unto the person; *māyayā*—by the material energy; *vinyasta*—expanded; *nānā*—various; *tanave*—whose forms; *guṇa-ātmane*—unto the source of the three modes of material nature; *namaḥ*—I offer my obeisances; *svarūpa*—of the real form; *anubhavena*—by understanding; *nirdhuta*—not affected by; *dravya*—matter; *kriyā*—action; *kāraka*—doer; *vibhrama*—bewilderment; *ūrmaye*—the waves of material existence.

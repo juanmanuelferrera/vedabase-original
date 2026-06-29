@@ -1,29 +1,29 @@
 ### Bg 1.32-35
 
-> किं नो राज्येन गोविन्द किं भोगैर्जीवितेन वा ।
-> येषामर्थे काङ्क्षितं नो राज्यं भोगाः सुखानि च ॥३२॥
-> त इमेऽवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च ।
-> आचार्याः पितरः पुत्रास्तथैव च पितामहाः ॥३३॥
-> मातुलाः श्वशुराः पौत्राः श्यालाः सम्बन्धिनस्तथा ।
-> एतान्न हन्तुमिच्छामि घ्नतोऽपि मधुसूदन ॥३४॥
-> अपि त्रैलोक्यराज्यस्य हेतोः किं नु महीकृते ।
+> किं नो राज्येन गोविन्द किं भोगैर्जीवितेन वा ।\
+> येषामर्थे काङ्क्षितं नो राज्यं भोगाः सुखानि च ॥३२॥\
+> त इमेऽवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च ।\
+> आचार्याः पितरः पुत्रास्तथैव च पितामहाः ॥३३॥\
+> मातुलाः श्वशुराः पौत्राः श्यालाः सम्बन्धिनस्तथा ।\
+> एतान्न हन्तुमिच्छामि घ्नतोऽपि मधुसूदन ॥३४॥\
+> अपि त्रैलोक्यराज्यस्य हेतोः किं नु महीकृते ।\
 > निहत्य धार्तराष्ट्रान्नः का प्रीतिः स्याज्जनार्दन ॥३५॥
 
-> kiṁ no rājyena govinda
-> kiṁ bhogair jīvitena vā
-> yeṣām arthe kāṅkṣitaṁ no
-> rājyaṁ bhogāḥ sukhāni ca
-> ta ime'vasthitā yuddhe
-> prāṇāṁs tyaktvā dhanāni ca
-> ācāryāḥ pitaraḥ putrās
-> tathaiva ca pitāmahāḥ
-> mātulāḥ śvaśurāḥ pautrāḥ
-> śyālāḥ sambandhinas tathā
-> etān na hantum icchāmi
-> ghnato'pi madhusūdana
-> api trailokya-rājyasya
-> hetoḥ kiṁ nu mahī-kṛte
-> nihatya dhārtarāṣṭrān naḥ
+> kiṁ no rājyena govinda\
+> kiṁ bhogair jīvitena vā\
+> yeṣām arthe kāṅkṣitaṁ no\
+> rājyaṁ bhogāḥ sukhāni ca\
+> ta ime'vasthitā yuddhe\
+> prāṇāṁs tyaktvā dhanāni ca\
+> ācāryāḥ pitaraḥ putrās\
+> tathaiva ca pitāmahāḥ\
+> mātulāḥ śvaśurāḥ pautrāḥ\
+> śyālāḥ sambandhinas tathā\
+> etān na hantum icchāmi\
+> ghnato'pi madhusūdana\
+> api trailokya-rājyasya\
+> hetoḥ kiṁ nu mahī-kṛte\
+> nihatya dhārtarāṣṭrān naḥ\
 > kā prītiḥ syāj janārdana
 
 *kim*—de qué sirve; *naḥ*—a nosotros; *rājyena*—es el reino; *govinda*—¡oh, Kṛṣṇa!; *kim*—qué; *bhogaiḥ*—disfrute; *jīvitena*—viviendo; *vā*—ya sea; *yeṣām*—de quién; *arthe*—por la cuestión de; *kāṅkṣītam*—deseado; *naḥ*—nuestro; *rājyam*—reino; *bhogāḥ*—disfrute material; *sukhāni*—toda clase de felicidad; *ca*—también; *te*—todos ellos; *ime*—estos; *avasthitāḥ*—situados; *yuddhe*—en este campo de batalla; *prāṇān*—vidas; *tyaktvā*—abandonando; *dhanāni*—riquezas; *ca*—también; *ācāryāḥ*—maestros; *pitaraḥ*—padres; *putrāḥ*—hijos; *tathā*—así como también; *eva*—ciertamente; *ca*—también; *pitāmahāḥ*—abuelos; *mātulāḥ*—tíos maternos; *śvaśurāḥ*—suegros; *pautrāḥ*—nietos; *śyālāḥ*—cuñados; *sambandhinaḥ*—parientes; *tatha*—así como también; *etan*—todos estos; *na*—nunca; *hantum*—por matar; *icchāmi*—yo deseo; *ghnataḥ*—me maten; *api*—incluso; *madhusūdana*—¡oh, destructor del demonio Madhu (Kṛṣṇa)!; *api*—incluso si; *trailokya*—de los tres mundos; *rājyasya*—de los reinos; *hetoḥ*—a cambio; *kim nu*—ni qué hablar de; *mahī-kṛte*—para ganar la Tierra; *nihatya*—matando; *dhārtarāṣṭrān*—los hijos de Dhṛtarāṣṭra; *naḥ*—nuestro; *kā*—qué; *prītiḥ*—placer; *syāt*—habrá; *janārdana*—¡oh, sustentador de todas las entidades vivientes!

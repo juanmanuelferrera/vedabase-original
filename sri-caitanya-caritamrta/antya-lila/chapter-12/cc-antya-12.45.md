@@ -1,9 +1,9 @@
 ### CC Antya 12.45
 
-> ছোটপুত্রে দেখি’ প্রভু নাম পুছিলা ।
+> ছোটপুত্রে দেখি’ প্রভু নাম পুছিলা ।\
 > ‘পরমানন্দদাস’-নাম সেন জানাইলা ॥৪৫॥
 
-> choṭa-putre dekhi' prabhu nāma puchilā
+> choṭa-putre dekhi' prabhu nāma puchilā\
 > 'paramānanda-dāsa'-nāma sena jānāilā
 
 *choṭa-putre*—the youngest son; *dekhi'*—seeing; *prabhu*—Śrī Caitanya Mahāprabhu; *nāma puchilā*—inquired about his name; *paramānanda-dāsa*—Paramānanda dāsa; *nāma*—name; *sena*—Śivānanda Sena; *jānāilā*—informed.

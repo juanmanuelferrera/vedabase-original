@@ -1,13 +1,13 @@
 ### CC Madhya 21.111
 
-> কহিতে কৃষ্ণের রসে, শ্লোক পড়ে প্রেমাবেশে,
-> প্রেমে সনাতন-হাত ধরি’ ।
-> গোপী-ভাগ্য, কৃষ্ণ গুণ, যে করিল বর্ণন,
+> কহিতে কৃষ্ণের রসে, শ্লোক পড়ে প্রেমাবেশে,\
+> প্রেমে সনাতন-হাত ধরি’ ।\
+> গোপী-ভাগ্য, কৃষ্ণ গুণ, যে করিল বর্ণন,\
 > ভাবাবেশে মথুরা-নাগরী ॥১১১॥
 
-> kahite kṛṣṇera rase, śloka paḍe premāveśe,
-> preme sanātana-hāta dhari'
-> gopī-bhāgya, kṛṣṇa guṇa, ye karila varṇana,
+> kahite kṛṣṇera rase, śloka paḍe premāveśe,\
+> preme sanātana-hāta dhari'\
+> gopī-bhāgya, kṛṣṇa guṇa, ye karila varṇana,\
 > bhāvāveśe mathurā-nāgarī
 
 *kahite*—describir; *kṛṣṇera*—del Señor Kṛṣṇa; *rase*—los diferentes tipos de melosidades; *śloka*—un verso; *paḍe*—recita; *prema-āveśe*—absorto en amor extático; *preme*—en ese amor; *sanātana-hāta dhari'*—tomando la mano de Sanātana Gosvāmī; *gopī-bhāgya*—la fortuna de las gopīs; *kṛṣṇa guṇa*—las cualidades trascendentales de Kṛṣṇa; *ye*—las cuales; *karila varṇana*—describieron; *bhāva-āveśe*—en amor extático; *mathurā-nāgarī*—las mujeres de la ciudad de Mathurā.

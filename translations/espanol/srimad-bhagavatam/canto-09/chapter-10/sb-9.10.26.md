@@ -1,11 +1,11 @@
 ### SB 9.10.26
 
-> हा हताः स्म वयं नाथ लोकरावण रावण
+> हा हताः स्म वयं नाथ लोकरावण रावण\
 > कं यायाच्छरणं लङ्का त्वद्विहीना परार्दिता ॥२६॥
 
-> hā hatāḥ sma vayaṁ nātha
-> loka-rāvaṇa rāvaṇa
-> kaṁ yāyāc charaṇaṁ laṅkā
+> hā hatāḥ sma vayaṁ nātha\
+> loka-rāvaṇa rāvaṇa\
+> kaṁ yāyāc charaṇaṁ laṅkā\
 > tvad-vihīnā parārditā
 
 *hā*—¡ay!; *hatāḥ*—matado; *sma*—en el pasado; *vayam*—todas nosotras; *nātha*—¡oh, protector!; *loka-rāvaṇa*—¡oh, esposo, que hiciste llorar a tanta gente!; *rāvaṇa*—¡oh, Rāvaṇa, el que puede hacer llorar a otros!; *kam*—a quién; *yāyāt*—irá; *śaraṇam*—refugio; *laṅkā*—el estado de Laṅkā; *tvat-vihīnā*—privado de Tu Gracia; *para-arditā*—vencido por los enemigos.

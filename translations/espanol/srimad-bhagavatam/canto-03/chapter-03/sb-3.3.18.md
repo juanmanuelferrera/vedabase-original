@@ -1,11 +1,11 @@
 ### SB 3.3.18
 
-> अयाजयद्धर्मसुतमश्वमेधैस्त्रिभिर्विभुः ।
+> अयाजयद्धर्मसुतमश्वमेधैस्त्रिभिर्विभुः ।\
 > सोऽपि क्ष्मामनुजै रक्षन्रेमे कृष्णमनुव्रतः ॥१८॥
 
-> ayājayad dharma-sutam
-> aśvamedhais tribhir vibhuḥ
-> so 'pi kṣmām anujai rakṣan
+> ayājayad dharma-sutam\
+> aśvamedhais tribhir vibhuḥ\
+> so 'pi kṣmām anujai rakṣan\
 > reme kṛṣṇam anuvrataḥ
 
 *ayājayat*—hizo que ejecutara; *dharma-sutam*—por el hijo de Dharma (Mahārāja Yudhiṣṭhira); *aśvamedhaiḥ*—mediante sacrificios de caballos; *tribhiḥ*—tres; *vibhuḥ*—el Señor Supremo; *saḥ*—Mahārāja Yudhiṣṭhira; *api*—también; *kṣmām*—la Tierra; *anujaiḥ*—asistido por sus hermanos menores; *rakṣan*—protegiendo; *reme*—disfrutó; *kṛṣṇam*—Kṛṣṇa, la Personalidad de Dios; *anuvrataḥ*—seguidor constante.

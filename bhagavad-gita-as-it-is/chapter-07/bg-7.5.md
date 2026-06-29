@@ -1,11 +1,11 @@
 ### Bg 7.5
 
-> अपरेयमितस्त्वन्यां प्रकृतिं विद्धि मे पराम् ।
+> अपरेयमितस्त्वन्यां प्रकृतिं विद्धि मे पराम् ।\
 > जीवभूतां महाबाहो ययेदं धार्यते जगत् ॥५॥
 
-> apareyam itas tv anyāṁ
-> prakṛtiṁ viddhi me parām
-> jīva-bhūtāṁ mahā-bāho
+> apareyam itas tv anyāṁ\
+> prakṛtiṁ viddhi me parām\
+> jīva-bhūtāṁ mahā-bāho\
 > yayedaṁ dhāryate jagat
 
 *aparā*—inferior; *iyam*—this; *itaḥ*—besides this; *tu*—but; *anyām*—another; *prakṛtim*—energy; *viddhi*—just try to understand; *me*—My; *parām*—superior; *jīva-bhūtām*—the living entities; *mahā-bāho*—O mighty-armed one; *yayā*—by whom; *idam*—this; *dhāryate*—being utilized or exploited; *jagat*—the material world.

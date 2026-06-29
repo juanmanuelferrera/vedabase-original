@@ -1,9 +1,9 @@
 ### CC Madhya 19.82
 
-> যদ্যপি ভট্টের আগে প্রভুর ধৈর্য হৈল মন ।
+> যদ্যপি ভট্টের আগে প্রভুর ধৈর্য হৈল মন ।\
 > দুর্বার উদ্ভট প্রেম নহে সম্বরণ ॥৮২॥
 
-> yadyapi bhaṭṭera āge prabhura dhairya haila mana
+> yadyapi bhaṭṭera āge prabhura dhairya haila mana\
 > durvāra udbhaṭa prema nahe samvaraṇa
 
 *yadyapi*—aunque; *bhaṭṭera*—de Vallabhācārya; *āge*—en presencia; *prabhura*—de Śrī Caitanya Mahāprabhu; *dhairya*—paciente; *haila*—fue; *mana*—la mente; *durvāra*—difícil de detener; *udbhaṭa*—maravilloso; *prema*—amor extático; *nahe*—no hay; *samvaraṇa*—contención.

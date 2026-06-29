@@ -1,11 +1,11 @@
 ### SB 1.15.8
 
-> यत्सन्निधावहमु खाण्डवमग्नयेऽदामिन्द्रं च सामरगणं तरसा विजित्य ।
+> यत्सन्निधावहमु खाण्डवमग्नयेऽदामिन्द्रं च सामरगणं तरसा विजित्य ।\
 > लब्धा सभा मयकृताद्भुतशिल्पमाया दिग्भ्योऽहरन्नृपतयो बलिमध्वरे ते ॥८॥
 
-> yat-sannidhāv aham u khāṇḍavam agnaye 'dām
-> indraṁ ca sāmara-gaṇaṁ tarasā vijitya
-> labdhā sabhā maya-kṛtādbhuta-śilpa-māyā
+> yat-sannidhāv aham u khāṇḍavam agnaye 'dām\
+> indraṁ ca sāmara-gaṇaṁ tarasā vijitya\
+> labdhā sabhā maya-kṛtādbhuta-śilpa-māyā\
 > digbhyo 'haran nṛpatayo balim adhvare te
 
 *yat*—whose; *sannidhau*—being nearby; *aham*—myself; *u*—note of astonishment; *khāṇḍavam*—the protected forest of Indra, King of heaven; *agnaye*—unto the fire-god; *adām*—delivered; *indram*—Indra; *ca*—also; *sa*—along with; *amara-gaṇam*—the demigods; *tarasā*—with all dexterity; *vijitya*—having conquered; *labdhā*—having obtained; *sabhā*—assembly house; *maya-kṛtā*—built by Maya; *adbhuta*—very wonderful; *śilpa*—art and workmanship; *māyā*—potency; *digbhyaḥ*—from all directions; *aharan*—collected; *nṛpatayaḥ*—all princes; *balim*—presentations; *adhvare*—brought; *te*—your.

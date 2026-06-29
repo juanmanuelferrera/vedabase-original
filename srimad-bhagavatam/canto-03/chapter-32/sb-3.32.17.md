@@ -1,11 +1,11 @@
 ### SB 3.32.17
 
-> रजसा कुण्ठमनसः कामात्मानोऽजितेन्द्रियाः ।
+> रजसा कुण्ठमनसः कामात्मानोऽजितेन्द्रियाः ।\
 > पित्न्यजन्त्यनुदिनं गृहेष्वभिरताशयाः ॥१७॥
 
-> rajasā kuṇṭha-manasaḥ
-> kāmātmāno 'jitendriyāḥ
-> pitṝn yajanty anudinaṁ
+> rajasā kuṇṭha-manasaḥ\
+> kāmātmāno 'jitendriyāḥ\
+> pitṝn yajanty anudinaṁ\
 > gṛheṣv abhiratāśayāḥ
 
 *rajasā*—by the mode of passion; *kuṇṭha*—full of anxieties; *manasaḥ*—their minds; *kāma-ātmānaḥ*—aspiring for sense gratification; *ajita*—uncontrolled; *indriyāḥ*—their senses; *pitṝn*—the forefathers; *yajanti*—they worship; *anudinam*—every day; *gṛheṣu*—in home life; *abhirata*—engaged; *āśayāḥ*—their minds.

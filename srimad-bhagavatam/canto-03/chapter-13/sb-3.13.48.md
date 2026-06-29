@@ -1,11 +1,11 @@
 ### SB 3.13.48
 
-> य एवमेतां हरिमेधसो हरेः कथां सुभद्रां कथनीयमायिनः ।
+> य एवमेतां हरिमेधसो हरेः कथां सुभद्रां कथनीयमायिनः ।\
 > शृण्वीत भक्त्या श्रवयेत वोशतीं जनार्दनोऽस्याशु हृदि प्रसीदति ॥४८॥
 
-> ya evam etāṁ hari-medhaso hareḥ
-> kathāṁ subhadrāṁ kathanīya-māyinaḥ
-> śṛṇvīta bhaktyā śravayeta vośatīṁ
+> ya evam etāṁ hari-medhaso hareḥ\
+> kathāṁ subhadrāṁ kathanīya-māyinaḥ\
+> śṛṇvīta bhaktyā śravayeta vośatīṁ\
 > janārdano 'syāśu hṛdi prasīdati
 
 *yaḥ*—one who; *evam*—thus; *etām*—this; *hari-medhasaḥ*—who destroys the material existence of the devotee; *hareḥ*—of the Personality of Godhead; *kathām*—narration; *su-bhadrām*—auspicious; *kathanīya*—worthy to narrate; *māyinaḥ*—of the merciful by His internal potency; *śṛṇvīta*—hears; *bhaktyā*—in devotion; *śravayeta*—also allows others to hear; *vā*—either; *uśatīm*—very pleasing; *janārdanaḥ*—the Lord; *asya*—his; *āśu*—very soon; *hṛdi*—within the heart; *prasīdati*—becomes very pleased.

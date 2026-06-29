@@ -1,11 +1,11 @@
 ### SB 5.19.23
 
-> कल्पायुषां स्थानजयात्पुनर्भवात्क्षणायुषां भारतभूजयो वरम
+> कल्पायुषां स्थानजयात्पुनर्भवात्क्षणायुषां भारतभूजयो वरम\
 > क्षणेन मर्त्येन कृतं मनस्विनः सन्न्यस्य संयान्त्यभयं पदं हरेः ॥२३॥
 
-> kalpāyuṣāṁ sthānajayāt punar-bhavāt
-> kṣaṇāyuṣāṁ bhārata-bhūjayo varam
-> kṣaṇena martyena kṛtaṁ manasvinaḥ
+> kalpāyuṣāṁ sthānajayāt punar-bhavāt\
+> kṣaṇāyuṣāṁ bhārata-bhūjayo varam\
+> kṣaṇena martyena kṛtaṁ manasvinaḥ\
 > sannyasya saṁyānty abhayaṁ padaṁ hareḥ
 
 *kalpa-āyuṣām*—of those who have a life duration of many millions of years, like Lord Brahmā; *sthāna-jayāt*—than achievement of the place or planetary systems; *punaḥ-bhavāt*—which is liable to birth, death and old age; *kṣaṇa-āyuṣām*—of persons who have only one hundred years of life; *bhārata-bhū-jayaḥ*—a birth in the land of Bhārata-varṣa; *varam*—more valuable; *kṣaṇena*—for such a short life; *martyena*—by the body; *kṛtam*—the work executed; *manasvinaḥ*—those actually understanding the value of life; *sannyasya*—surrendering unto the lotus feet of Kṛṣṇa; *saṁyānti*—they achieve; *abhayam*—where there is no anxiety; *padam*—the abode; *hareḥ*—of the Supreme Personality of Godhead.

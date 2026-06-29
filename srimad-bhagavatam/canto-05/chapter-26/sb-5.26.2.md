@@ -1,9 +1,9 @@
 ### SB 5.26.2
 
-> ऋषिरुवाच
+> ऋषिरुवाच\
 > त्रिगुणत्वात्कर्तुः श्रद्धया कर्मगतयः पृथग्विधाः सर्वा एव सर्वस्य तारतम्येन भवन्ति ॥२॥
 
-> ṛṣir uvāca
+> ṛṣir uvāca\
 > tri-guṇatvāt kartuḥ śraddhayā karma-gatayaḥ pṛthag-vidhāḥ sarvā eva sarvasya tāratamyena bhavanti.
 
 *ṛṣiḥ uvāca*—the great saint (Śukadeva Gosvāmī) said; *tri-guṇatvāt*—because of the three modes of material nature; *kartuḥ*—of the worker; *śraddhayā*—because of the attitudes; *karma-gatayaḥ*—destinations resulting from activity; *pṛthak*—different; *vidhāḥ*—varieties; *sarvāḥ*—all; *eva*—thus; *sarvasya*—of all of them; *tāratamyena*—in different degrees; *bhavanti*—become possible.

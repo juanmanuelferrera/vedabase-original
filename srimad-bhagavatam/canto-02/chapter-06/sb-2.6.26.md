@@ -1,11 +1,11 @@
 ### SB 2.6.26
 
-> नामधेयानि मन्त्राश्च दक्षिणाश्च व्रतानि च ।
+> नामधेयानि मन्त्राश्च दक्षिणाश्च व्रतानि च ।\
 > देवतानुक्रमः कल्पः सङ्कल्पस्तन्त्रमेव च ॥२६॥
 
-> nāma-dheyāni mantrāś ca
-> dakṣiṇāś ca vratāni ca
-> devatānukramaḥ kalpaḥ
+> nāma-dheyāni mantrāś ca\
+> dakṣiṇāś ca vratāni ca\
+> devatānukramaḥ kalpaḥ\
 > saṅkalpas tantram eva ca
 
 *nāma-dheyāni*—invoking the names of the demigods; *mantrāḥ*—specific hymns to offer to a particular demigod; *ca*—also; *dakṣiṇāḥ*—reward; *ca*—and; *vratāni*—vows; *ca*—and; *devatā-anukramaḥ*—one demigod after another; *kalpaḥ*—the specific scripture; *saṅkalpaḥ*—the specific purpose; *tantram*—a particular process; *eva*—as they are; *ca*—also.

@@ -1,9 +1,9 @@
 ### CC Adi 13.56
 
-> শ্রীহট্ট-নিবাসী শ্রীউপেন্দ্রমিশ্র-নাম ।
+> শ্রীহট্ট-নিবাসী শ্রীউপেন্দ্রমিশ্র-নাম ।\
 > বৈষ্ণব, পণ্ডিত, ধনী, সদ্গুণ-প্রধান ॥৫৬॥
 
-> śrīhaṭṭa-nivāsī śrī-upendra-miśra-nāma
+> śrīhaṭṭa-nivāsī śrī-upendra-miśra-nāma\
 > vaiṣṇava, paṇḍita, dhanī, sad-guṇa-pradhāna
 
 *śrī-haṭṭa-nivāsī*—a resident of Śrīhaṭṭa; *śrī-upendra-miśra-nāma*—by the name of Upendra Miśra; *vaiṣṇava*—a devotee of Lord Viṣṇu; *paṇḍita*—learned; *dhanī*—rich; *sat-guṇa-pradhāna*—qualified with all good qualities.

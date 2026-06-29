@@ -1,11 +1,11 @@
 ### SB 3.1.15
 
-> क एनमत्रोपजुहाव जिह्मं दास्याः सुतं यद्बलिनैव पुष्टः ।
+> क एनमत्रोपजुहाव जिह्मं दास्याः सुतं यद्बलिनैव पुष्टः ।\
 > तस्मिन्प्रतीपः परकृत्य आस्ते निर्वास्यतामाशु पुराच्छ्वसानः ॥१५॥
 
-> ka enam atropajuhāva jihmaṁ
-> dāsyāḥ sutaṁ yad-balinaiva puṣṭaḥ
-> tasmin pratīpaḥ parakṛtya āste
+> ka enam atropajuhāva jihmaṁ\
+> dāsyāḥ sutaṁ yad-balinaiva puṣṭaḥ\
+> tasmin pratīpaḥ parakṛtya āste\
 > nirvāsyatām āśu purāc chvasānaḥ
 
 *kaḥ*—quién; *enam*—este; *atra*—aquí; *upajuhāva*—mandó llamar; *jihmam*—deshonesto; *dāsyāḥ*—de una concubina mantenida; *sutam*—hijo; *yat*—cuya; *balinā*—por cuya subsistencia; *eva*—ciertamente; *puṣṭaḥ*—criado; *tasmin*—a él; *pratīpaḥ*—enemistad; *para-kṛtya*—interés del enemigo; *āste*—situado; *nirvāsyatām*—sácalo; *āśu*—inmediatamente; *purāt*—del palacio; *śvasānaḥ*—que respire únicamente.

@@ -1,13 +1,13 @@
 ### SB 3.14.42
 
-> दितिरुवाच
-> वधं भगवता साक्षात्सुनाभोदारबाहुना ।
+> दितिरुवाच\
+> वधं भगवता साक्षात्सुनाभोदारबाहुना ।\
 > आशासे पुत्रयोर्मह्यं मा क्रुद्धाद्ब्राह्मणाद्प्रभो ॥४२॥
 
-> ditir uvāca
-> vadhaṁ bhagavatā sākṣāt
-> sunābhodāra-bāhunā
-> āśāse putrayor mahyaṁ
+> ditir uvāca\
+> vadhaṁ bhagavatā sākṣāt\
+> sunābhodāra-bāhunā\
+> āśāse putrayor mahyaṁ\
 > mā kruddhād brāhmaṇād prabho
 
 *ditiḥ uvāca*—Diti dijo; *vadham*—la matanza; *bhagavatā*—por la Suprema Personalidad de Dios; *sākṣāt*—directamente; *sunābha*—con Su arma Sudarśana; *udāra*—muy magnánima; *bāhunā*—por los brazos; *āśāse*—yo deseo; *putrayoḥ*—de los hijos; *mahyam*—míos; *mā*—que nunca ocurra; *kruddhāt*—por la ira; *brāhmaṇāt*—de los *brāhmaṇas*; *prabho*—¡oh, esposo mío!.

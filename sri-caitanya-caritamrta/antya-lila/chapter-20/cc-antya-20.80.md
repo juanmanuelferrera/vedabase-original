@@ -1,9 +1,9 @@
 ### CC Antya 20.80
 
-> ঐছে মহাপ্রভুর লীলা — নাহি ওর-পার  ।
+> ঐছে মহাপ্রভুর লীলা — নাহি ওর-পার  ।\
 > ‘জীব’ হঞা কেবা সম্যক্ পারে বর্ণিবার ? ৮০ ॥৮০॥
 
-> aiche mahāprabhura līlā—nāhi ora-pāra
+> aiche mahāprabhura līlā—nāhi ora-pāra\
 > 'jīva' hañā kebā samyak pāre varṇibāra?
 
 *aiche*—similarly; *mahāprabhura līlā*—the pastimes of Śrī Caitanya Mahāprabhu; *nāhi ora-pāra*—there is no limit above or below; *jīva hañā*—being an ordinary living entity; *kebā*—who; *samyak*—fully; *pāre*—is able; *varṇibāra*—to describe.

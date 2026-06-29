@@ -1,15 +1,15 @@
 ### SB 4.7.29
 
-> रुद्र उवाच
-> तव वरद वराङ्घ्रावाशिषेहाखिलार्थे
-> ह्यपि मुनिभिरसक्तैरादरेणार्हणीये ।
-> यदि रचितधियं माविद्यलोकोऽपविद्धं
+> रुद्र उवाच\
+> तव वरद वराङ्घ्रावाशिषेहाखिलार्थे\
+> ह्यपि मुनिभिरसक्तैरादरेणार्हणीये ।\
+> यदि रचितधियं माविद्यलोकोऽपविद्धं\
 > जपति न गणये तत्त्वत्परानुग्रहेण ॥२९॥
 
-> rudra uvāca
-> tava varada varāṅghrāv āśiṣehākhilārthe
-> hy api munibhir asaktair ādareṇārhaṇīye
-> yadi racita-dhiyaṁ māvidya-loko 'paviddhaṁ
+> rudra uvāca\
+> tava varada varāṅghrāv āśiṣehākhilārthe\
+> hy api munibhir asaktair ādareṇārhaṇīye\
+> yadi racita-dhiyaṁ māvidya-loko 'paviddhaṁ\
 > japati na gaṇaye tat tvat-parānugraheṇa
 
 *rudraḥ uvāca*—Lord Śiva said; *tava*—Your; *vara-da*—O supreme benefactor; *vara-aṅghrau*—precious lotus feet; *āśiṣā*—by desire; *iha*—in the material world; *akhila-arthe*—for fulfillment; *hi api*—certainly; *munibhiḥ*—by the sages; *asaktaiḥ*—liberated; *ādareṇa*—with care; *arhaṇīye*—worshipable; *yadi*—if; *racita-dhiyam*—mind fixed; *mā*—me; *avidya-lokaḥ*—the ignorant persons; *apaviddham*—unpurified activity; *japati*—utters; *na gaṇaye*—do not value; *tat*—it; *tvat-para-anugraheṇa*—by compassion like Yours.

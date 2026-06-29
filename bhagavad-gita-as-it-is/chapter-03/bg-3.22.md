@@ -1,11 +1,11 @@
 ### Bg 3.22
 
-> न मे पार्थास्ति कर्तव्यं त्रिषु लोकेषु किञ्चन ।
+> न मे पार्थास्ति कर्तव्यं त्रिषु लोकेषु किञ्चन ।\
 > नानवाप्तमवाप्तव्यं वर्त एव च कर्मणि ॥२२॥
 
-> na me pārthāsti kartavyaṁ
-> triṣu lokeṣu kiñcana
-> nānavāptam avāptavyaṁ
+> na me pārthāsti kartavyaṁ\
+> triṣu lokeṣu kiñcana\
+> nānavāptam avāptavyaṁ\
 > varta eva ca karmaṇi
 
 *na*—none; *me*—Mine; *pārtha*—O son of Pṛthā; *asti*—there is; *kartavyam*—any prescribed duty; *triṣu*—in the three; *lokeṣu*—planetary systems; *kiñcana*—anything; *na*—no; *anavāptam*—in want; *avāptavyam*—to be gained; *varte*—engaged; *eva*—certainly; *ca*—also; *karmaṇi*—in one's prescribed duty.

@@ -1,11 +1,11 @@
 ### SB 4.18.5
 
-> ताननादृत्य योऽविद्वानर्थानारभते स्वयम् ।
+> ताननादृत्य योऽविद्वानर्थानारभते स्वयम् ।\
 > तस्य व्यभिचरन्त्यर्था आरब्धाश्च पुनः पुनः ॥५॥
 
-> tān anādṛtya yo 'vidvān
-> arthān ārabhate svayam
-> tasya vyabhicaranty arthā
+> tān anādṛtya yo 'vidvān\
+> arthān ārabhate svayam\
+> tasya vyabhicaranty arthā\
 > ārabdhāś ca punaḥ punaḥ
 
 *tān*—those; *anādṛtya*—neglecting; *yaḥ*—anyone who; *avidvān*—rascal; *arthān*—schemes; *ārabhate*—begins; *svayam*—personally; *tasya*—his; *vyabhicaranti*—do not become successful; *arthāḥ*—purposes; *ārabdhāḥ*—attempted; *ca*—and; *punaḥ punaḥ*—again and again.

@@ -1,11 +1,11 @@
 ### SB 4.29.5
 
-> बुद्धिं तु प्रमदां विद्यान्ममाहमिति यत्कृतम् ।
+> बुद्धिं तु प्रमदां विद्यान्ममाहमिति यत्कृतम् ।\
 > यामधिष्ठाय देहेऽस्मिन्पुमान्भुङ्क्तेऽक्षभिर्गुणान् ॥५॥
 
-> buddhiṁ tu pramadāṁ vidyān
-> mamāham iti yat-kṛtam
-> yām adhiṣṭhāya dehe 'smin
+> buddhiṁ tu pramadāṁ vidyān\
+> mamāham iti yat-kṛtam\
+> yām adhiṣṭhāya dehe 'smin\
 > pumān bhuṅkte 'kṣabhir guṇān
 
 *buddhim*—inteligencia; *tu*—entonces; *pramadām*—la mujer joven (Purañjanī); *vidyāt*—se debe conocer; *mama*—mío; *aham*—yo; *iti*—así; *yat-kṛtam*—hecho con inteligencia; *yām*—la cual inteligencia; *adhiṣṭhāya*—refugiarse en; *dehe*—en el cuerpo; *asmin*—este; *pumān*—la entidad viviente; *bhuṅkte*—disfruta y sufre; *akṣabhiḥ*—con los sentidos; *guṇān*—las modalidades de la naturaleza material.

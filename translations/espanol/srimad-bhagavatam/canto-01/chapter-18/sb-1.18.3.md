@@ -1,11 +1,11 @@
 ### SB 1.18.3
 
-> उत्सृज्य सर्वतः सङ्गं विज्ञाताजितसंस्थितिः ।
+> उत्सृज्य सर्वतः सङ्गं विज्ञाताजितसंस्थितिः ।\
 > वैयासकेर्जहौ शिष्यो गङ्गायां स्वं कलेवरम् ॥३॥
 
-> utsṛjya sarvataḥ saṅgaṁ
-> vijñātājita-saṁsthitiḥ
-> vaiyāsaker jahau śiṣyo
+> utsṛjya sarvataḥ saṅgaṁ\
+> vijñātājita-saṁsthitiḥ\
+> vaiyāsaker jahau śiṣyo\
 > gaṅgāyāṁ svaṁ kalevaram
 
 *utsṛjya*—después de dejar a un lado; *sarvataḥ*—a todo su alrededor; *saṅgam*—relación; *vijñāta*—siendo entendido; *ajita*—aquel que nunca es conquistado (la Personalidad de Dios); *saṁsthitiḥ*—posición verdadera; *vaiyāsakeḥ*—al hijo de Vyāsa; *jahau*—abandonó; *śiṣyaḥ*—como discípulo; *gaṅgāyām*—en la ribera del Ganges; *svam*—su propio; *kalevaram*—cuerpo material.

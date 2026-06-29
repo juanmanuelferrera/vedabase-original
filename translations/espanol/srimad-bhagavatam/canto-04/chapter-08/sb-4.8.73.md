@@ -1,11 +1,11 @@
 ### SB 4.8.73
 
-> द्वितीयं च तथा मासं षष्ठे षष्ठेऽर्भको दिने ।
+> द्वितीयं च तथा मासं षष्ठे षष्ठेऽर्भको दिने ।\
 > तृणपर्णादिभिः शीर्णैः कृतान्नोऽभ्यर्चयन्विभुम् ॥७३॥
 
-> dvitīyaṁ ca tathā māsaṁ
-> ṣaṣṭhe ṣaṣṭhe 'rbhako dine
-> tṛṇa-parṇādibhiḥ śīrṇaiḥ
+> dvitīyaṁ ca tathā māsaṁ\
+> ṣaṣṭhe ṣaṣṭhe 'rbhako dine\
+> tṛṇa-parṇādibhiḥ śīrṇaiḥ\
 > kṛtānno 'bhyarcayan vibhum
 
 *dvitīyam*—el mes siguiente; *ca*—también; *tathā*—como antes se mencionó; *māsam*—mes; *ṣaṣṭhe ṣaṣṭhe*—cada sexto día; *arbhakaḥ*—el inocente niño; *dine*—en días; *tṛṇa-parṇa-ādibhiḥ*—con hierbas y hojas; *śīrṇaiḥ*—que estaban secas; *kṛta-annaḥ*—tomadas como alimento; *abhyarcayan*—y de esta manera continuó con su método de adoración; *vibhum*—para la Suprema Personalidad de Dios.

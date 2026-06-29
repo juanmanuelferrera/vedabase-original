@@ -1,9 +1,9 @@
 ### CC Madhya 7.136
 
-> ‘বাসুদেব’-নাম এক দ্বিজ মহাশয় ।
+> ‘বাসুদেব’-নাম এক দ্বিজ মহাশয় ।\
 > সর্বাঙ্গে গলিত কুষ্ঠ, তাতে কীড়াময় ॥১৩৬॥
 
-> 'vāsudeva'-nāma eka dvija mahāśaya
+> 'vāsudeva'-nāma eka dvija mahāśaya\
 > sarvāṅge galita kuṣṭha, tāte kīḍā-maya
 
 *vāsudeva-nāma*—of the name Vāsudeva; *eka dvija*—one *brāhmaṇa*; *mahāśaya*—a great person; *sarva-aṅge*—all over his body; *galita*—acute; *kuṣṭha*—leprosy; *tāte*—in that; *kīḍā-maya*—full of living worms.

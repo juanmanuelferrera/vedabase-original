@@ -1,11 +1,11 @@
 ### SB 4.19.7
 
-> यत्र धर्मदुघा भूमिः सर्वकामदुघा सती ।
+> यत्र धर्मदुघा भूमिः सर्वकामदुघा सती ।\
 > दोग्धि स्माभीप्सितानर्थान्यजमानस्य भारत ॥७॥
 
-> yatra dharma-dughā bhūmiḥ
-> sarva-kāma-dughā satī
-> dogdhi smābhīpsitān arthān
+> yatra dharma-dughā bhūmiḥ\
+> sarva-kāma-dughā satī\
+> dogdhi smābhīpsitān arthān\
 > yajamānasya bhārata
 
 *yatra*—where; *dharma-dughā*—producing sufficient milk for religiosity; *bhūmiḥ*—the land; *sarva-kāma*—all desires; *dughā*—yielding as milk; *satī*—the cow; *dogdhi sma*—fulfilled; *abhīpsitān*—desirable; *arthān*—objects; *yajamānasya*—of the sacrificer; *bhārata*—my dear Vidura.

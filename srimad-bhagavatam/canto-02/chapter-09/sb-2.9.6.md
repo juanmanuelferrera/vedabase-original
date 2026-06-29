@@ -1,11 +1,11 @@
 ### SB 2.9.6
 
-> स चिन्तयन्द्व्यक्षरमेकदाम्भस्युपाशृणोद्द्विर्गदितं वचो विभुः ।
+> स चिन्तयन्द्व्यक्षरमेकदाम्भस्युपाशृणोद्द्विर्गदितं वचो विभुः ।\
 > स्पर्शेषु यत्षोडशमेकविंशं निष्किञ्चनानां नृप यद्धनं विदुः ॥६॥
 
-> sa cintayan dvy-akṣaram ekadāmbhasy
-> upāśṛṇod dvir-gaditaṁ vaco vibhuḥ
-> sparśeṣu yat ṣoḍaśam ekaviṁśaṁ
+> sa cintayan dvy-akṣaram ekadāmbhasy\
+> upāśṛṇod dvir-gaditaṁ vaco vibhuḥ\
+> sparśeṣu yat ṣoḍaśam ekaviṁśaṁ\
 > niṣkiñcanānāṁ nṛpa yad dhanaṁ viduḥ
 
 *saḥ*—he; *cintayan*—while thus thinking; *dvi*—two; *akṣaram*—syllables; *ekadā*—once upon a time; *ambhasi*—in the water; *upāśṛṇot*—heard it nearby; *dviḥ*—twice; *gaditam*—uttered; *vacaḥ*—words; *vibhuḥ*—the great; *sparśeṣu*—in the *sparśa* letters; *yat*—which; *ṣoḍaśam*—the sixteenth; *ekaviṁśam*—and the twenty-first; *niṣkiñcanānām*—of the renounced order of life; *nṛpa*—O King; *yat*—what is; *dhanam*—wealth; *viduḥ*—as it is known.

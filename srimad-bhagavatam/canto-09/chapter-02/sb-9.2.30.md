@@ -1,11 +1,11 @@
 ### SB 9.2.30
 
-> तत्सुतः केवलस्तस्माद्धुन्धुमान्वेगवांस्ततः
+> तत्सुतः केवलस्तस्माद्धुन्धुमान्वेगवांस्ततः\
 > बुधस्तस्याभवद्यस्य तृणबिन्दुर्महीपतिः ॥३०॥
 
-> tat-sutaḥ kevalas tasmād
-> dhundhumān vegavāṁs tataḥ
-> budhas tasyābhavad yasya
+> tat-sutaḥ kevalas tasmād\
+> dhundhumān vegavāṁs tataḥ\
+> budhas tasyābhavad yasya\
 > tṛṇabindur mahīpatiḥ
 
 *tat-sutaḥ*—the son of him (Nara); *kevalaḥ*—was named Kevala; *tasmāt*—from him (Kevala); *dhundhumān*—a son was born named Dhundhumān; *vegavān*—named Vegavān; *tataḥ*—from him (Dhundhumān); *budhaḥ*—named Budha; *tasya*—of him (Vegavān); *abhavat*—there was; *yasya*—of whom (Budha); *tṛṇabinduḥ*—a son named Tṛṇabindu; *mahīpatiḥ*—the king.

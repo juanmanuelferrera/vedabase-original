@@ -1,9 +1,9 @@
 ### CC Madhya 12.60
 
-> তাঁরে দেখি, মহাপ্রভুর কৃষ্ণস্মৃতি হৈল  ।
+> তাঁরে দেখি, মহাপ্রভুর কৃষ্ণস্মৃতি হৈল  ।\
 > প্রেমাবেশে তাঁরে মিলি’ কহিতে লাগিল ॥৬০॥
 
-> tāṅre dekhi, mahāprabhura kṛṣṇa-smṛti haila
+> tāṅre dekhi, mahāprabhura kṛṣṇa-smṛti haila\
 > premāveśe tāṅre mili' kahite lāgila
 
 *tāṅre dekhi*—al verlo; *mahāprabhura*—del Señor Śrī Caitanya Mahāprabhu; *kṛṣṇa-smṛti*—recuerdo de Kṛṣṇa; *haila*—hubo; *prema-āveśe*—en amor extático; *tāṅre*—a él; *mili'*—encontrándose; *kahite lāgila*—comenzó a decir.

@@ -1,11 +1,11 @@
 ### SB 4.9.64
 
-> वाप्यो वैदूर्यसोपानाः पद्मोत्पलकुमुद्वतीः ।
+> वाप्यो वैदूर्यसोपानाः पद्मोत्पलकुमुद्वतीः ।\
 > हंसकारण्डवकुलैर्जुष्टाश्चक्राह्वसारसैः ॥६४॥
 
-> vāpyo vaidūrya-sopānāḥ
-> padmotpala-kumud-vatīḥ
-> haṁsa-kāraṇḍava-kulair
+> vāpyo vaidūrya-sopānāḥ\
+> padmotpala-kumud-vatīḥ\
+> haṁsa-kāraṇḍava-kulair\
 > juṣṭāś cakrāhva-sārasaiḥ
 
 *vāpyaḥ*—lakes; *vaidūrya*—emerald; *sopānāḥ*—with staircases; *padma*—lotuses; *utpala*—blue lotuses; *kumut-vatīḥ*—full of lilies; *haṁsa*—swans; *kāraṇḍava*—and ducks; *kulaiḥ*—by flocks of; *juṣṭāḥ*—inhabited; *cakrāhva*—by *cakravākas* (geese); *sārasaiḥ*—and by cranes.

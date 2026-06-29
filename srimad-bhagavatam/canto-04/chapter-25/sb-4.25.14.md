@@ -1,11 +1,11 @@
 ### SB 4.25.14
 
-> प्राकारोपवनाट्टाल परिखैरक्षतोरणैः ।
+> प्राकारोपवनाट्टाल परिखैरक्षतोरणैः ।\
 > स्वर्णरौप्यायसैः शृङ्गैः सङ्कुलां सर्वतो गृहैः ॥१४॥
 
-> prākāropavanāṭṭāla-
-> parikhair akṣa-toraṇaiḥ
-> svarṇa-raupyāyasaiḥ śṛṅgaiḥ
+> prākāropavanāṭṭāla-\
+> parikhair akṣa-toraṇaiḥ\
+> svarṇa-raupyāyasaiḥ śṛṅgaiḥ\
 > saṅkulāṁ sarvato gṛhaiḥ
 
 *prākāra*—walls; *upavana*—parks; *aṭṭāla*—towers; *parikhaiḥ*—with trenches; *akṣa*—windows; *toraṇaiḥ*—with gates; *svarṇa*—gold; *raupya*—silver; *ayasaiḥ*—made of iron; *śṛṅgaiḥ*—with domes; *saṅkulām*—congested; *sarvataḥ*—everywhere; *gṛhaiḥ*—with houses.

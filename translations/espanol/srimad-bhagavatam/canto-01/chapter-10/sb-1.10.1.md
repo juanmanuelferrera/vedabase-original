@@ -1,13 +1,13 @@
 ### SB 1.10.1
 
-> शौनक उवाच
-> हत्वा स्वरिक्थस्पृध आततायिनो युधिष्ठिरो धर्मभृतां वरिष्ठः ।
+> शौनक उवाच\
+> हत्वा स्वरिक्थस्पृध आततायिनो युधिष्ठिरो धर्मभृतां वरिष्ठः ।\
 > सहानुजैः प्रत्यवरुद्धभोजनः कथं प्रवृत्तः किमकारषीत्ततः ॥१॥
 
-> śaunaka uvāca
-> hatvā svariktha-spṛdha ātatāyino
-> yudhiṣṭhiro dharma-bhṛtāṁ variṣṭhaḥ
-> sahānujaiḥ pratyavaruddha-bhojanaḥ
+> śaunaka uvāca\
+> hatvā svariktha-spṛdha ātatāyino\
+> yudhiṣṭhiro dharma-bhṛtāṁ variṣṭhaḥ\
+> sahānujaiḥ pratyavaruddha-bhojanaḥ\
 > kathaṁ pravṛttaḥ kim akāraṣīt tataḥ
 
 *śaunakaḥ uvāca*—Śaunaka preguntó; *hatvā*—después de matar; *svariktha*—la herencia legal; *spṛdhaḥ*—deseando usurpar; *ātatāyinaḥ*—el agresor; *yudhiṣṭhiraḥ*—el rey Yudhiṣṭhira; *dharma-bhṛtām*—de aquellos que siguen estrictamente principios religiosos; *variṣṭhaḥ*—el más grande de todos; *saha-anujaiḥ*—con sus hermanos menores; *pratyavaruddha*—restringida; *bhojanaḥ*—aceptación de cosas necesarias; *katham*—cómo; *pravṛttaḥ*—ocupado; *kim*—qué; *akāraṣīt*—ejecutó; *tataḥ*—después.

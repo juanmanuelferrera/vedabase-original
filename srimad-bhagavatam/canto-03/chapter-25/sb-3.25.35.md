@@ -1,11 +1,11 @@
 ### SB 3.25.35
 
-> पश्यन्ति ते मे रुचिराण्यम्ब सन्तः प्रसन्नवक्त्रारुणलोचनानि ।
+> पश्यन्ति ते मे रुचिराण्यम्ब सन्तः प्रसन्नवक्त्रारुणलोचनानि ।\
 > रूपाणि दिव्यानि वरप्रदानि साकं वाचं स्पृहणीयां वदन्ति ॥३५॥
 
-> paśyanti te me rucirāṇy amba santaḥ
-> prasanna-vaktrāruṇa-locanāni
-> rūpāṇi divyāni vara-pradāni
+> paśyanti te me rucirāṇy amba santaḥ\
+> prasanna-vaktrāruṇa-locanāni\
+> rūpāṇi divyāni vara-pradāni\
 > sākaṁ vācaṁ spṛhaṇīyāṁ vadanti
 
 *paśyanti*—see; *te*—they; *me*—My; *rucirāṇi*—beautiful; *amba*—O mother; *santaḥ*—devotees; *prasanna*—smiling; *vaktra*—face; *aruṇa*—like the morning sun; *locanāni*—eyes; *rūpāṇi*—forms; *divyāni*—transcendental; *vara-pradāni*—benevolent; *sākam*—with Me; *vācam*—words; *spṛhaṇīyām*—favorable; *vadanti*—they speak.

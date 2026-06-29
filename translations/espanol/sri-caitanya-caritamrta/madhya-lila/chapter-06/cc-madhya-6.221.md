@@ -1,9 +1,9 @@
 ### CC Madhya 6.221
 
-> বাহিরে প্রভুর তেঁহো পাইল দরশন ।
+> বাহিরে প্রভুর তেঁহো পাইল দরশন ।\
 > আস্তে-ব্যস্তে আসি’ কৈল চরণ বন্দন ॥২২১॥
 
-> bāhire prabhura teṅho pāila daraśana
+> bāhire prabhura teṅho pāila daraśana\
 > āste-vyaste āsi' kaila caraṇa vandana
 
 *bāhire*—fuera de la casa; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *teṅho*—él; *pāila*—obtuvo; *daraśana*—la visión; *āste-vyaste*—con gran premura; *āsi'*—acudiendo; *kaila*—ofreció; *caraṇa vandana*—adoración a los pies de loto.

@@ -1,9 +1,9 @@
 ### CC Antya 2.8
 
-> গৌড়-দেশের ভক্তগণ প্রত্যব্দ আসিয়া ।
+> গৌড়-দেশের ভক্তগণ প্রত্যব্দ আসিয়া ।\
 > পুনঃ গৌড়দেশে যায় প্রভুরে মিলিয়া ॥৮॥
 
-> gauḍa-deśera bhakta-gaṇa pratyabda āsiyā
+> gauḍa-deśera bhakta-gaṇa pratyabda āsiyā\
 > punaḥ gauḍa-deśe yāya prabhure miliyā
 
 *gauḍa-deśera*—de Bengala; *bhakta-gaṇa*—los devotos; *prati-abda*—cada año; *āsiyā*—acudiendo; *punaḥ*—de nuevo; *gauḍa-deśe*—a Bengala; *yāya*—regresan; *prabhure*—a Śrī Caitanya Mahāprabhu; *miliyā*—después de encontrarse.

@@ -1,11 +1,11 @@
 ### SB 4.22.6
 
-> हाटकासन आसीनान्स्वधिष्ण्येष्विव पावकान् ।
+> हाटकासन आसीनान्स्वधिष्ण्येष्विव पावकान् ।\
 > श्रद्धासंयमसंयुक्तः प्रीतः प्राह भवाग्रजान् ॥६॥
 
-> hāṭakāsana āsīnān
-> sva-dhiṣṇyeṣv iva pāvakān
-> śraddhā-saṁyama-saṁyuktaḥ
+> hāṭakāsana āsīnān\
+> sva-dhiṣṇyeṣv iva pāvakān\
+> śraddhā-saṁyama-saṁyuktaḥ\
 > prītaḥ prāha bhavāgrajān
 
 *hāṭaka-āsane*—on the throne made of gold; *āsīnān*—when they were seated; *sva-dhiṣṇyeṣu*—on the altar; *iva*—like; *pāvakān*—fire; *śraddhā*—respect; *saṁyama*—restraint; *saṁyuktaḥ*—being decorated with; *prītaḥ*—pleased; *prāha*—said; *bhava*—Lord Śiva; *agra-jān*—the elder brothers.

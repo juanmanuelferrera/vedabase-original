@@ -1,11 +1,11 @@
 ### SB 8.24.58
 
-> स तु सत्यव्रतो राजा ज्ञआनविज्ञआनसंयुतः
+> स तु सत्यव्रतो राजा ज्ञआनविज्ञआनसंयुतः\
 > विष्णोः प्रसादात्कल्पेऽस्मिन्नासीद्वैवस्वतो मनुः ॥५८॥
 
-> sa tu satyavrato rājā
-> jñāna-vijñāna-saṁyutaḥ
-> viṣṇoḥ prasādāt kalpe 'sminn
+> sa tu satyavrato rājā\
+> jñāna-vijñāna-saṁyutaḥ\
+> viṣṇoḥ prasādāt kalpe 'sminn\
 > āsīd vaivasvato manuḥ
 
 *saḥ*—he; *tu*—indeed; *satyavrataḥ*—Satyavrata; *rājā*—the King; *jñāna-vijñāna-saṁyutaḥ*—enlightened in full knowledge and its practical use; *viṣṇoḥ*—of Lord Viṣṇu; *prasādāt*—by the mercy; *kalpe asmin*—in this period (ruled by Vaivasvata Manu); *āsīt*—became; *vaivasvataḥ manuḥ*—Vaivasvata Manu.

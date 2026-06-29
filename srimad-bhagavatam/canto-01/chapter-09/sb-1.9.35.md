@@ -1,11 +1,11 @@
 ### SB 1.9.35
 
-> सपदि सखिवचो निशम्य मध्ये निजपरयोर्बलयो रथं निवेश्य ।
+> सपदि सखिवचो निशम्य मध्ये निजपरयोर्बलयो रथं निवेश्य ।\
 > स्थितवति परसैनिकायुरक्ष्णा हृतवति पार्थसखे रतिर्ममास्तु ॥३५॥
 
-> sapadi sakhi-vaco niśamya madhye
-> nija-parayor balayo rathaṁ niveśya
-> sthitavati para-sainikāyur akṣṇā
+> sapadi sakhi-vaco niśamya madhye\
+> nija-parayor balayo rathaṁ niveśya\
+> sthitavati para-sainikāyur akṣṇā\
 > hṛtavati pārtha-sakhe ratir mamāstu
 
 *sapadi*—on the battlefield; *sakhi-vacaḥ*—command of the friend; *niśamya*—after hearing; *madhye*—in the midst; *nija*—His own; *parayoḥ*—and the opposite party; *balayoḥ*—strength; *ratham*—chariot; *niveśya*—having entered; *sthitavati*—while staying there; *para-sainika*—of the soldiers on the opposite side; *āyuḥ*—duration of life; *akṣṇā*—by looking over; *hṛtavati*—act of diminishing; *pārtha*—of Arjuna, son of Pṛthā (Kuntī); *sakhe*—unto the friend; *ratiḥ*—intimate relation; *mama*—my; *astu*—let there be.

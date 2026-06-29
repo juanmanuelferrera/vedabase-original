@@ -1,11 +1,11 @@
 ### CC Antya 4.177
 
-> বিদ্যাবিনয়সম্পন্নে ব্রাহ্মণে গবি হস্তিনি ।
+> বিদ্যাবিনয়সম্পন্নে ব্রাহ্মণে গবি হস্তিনি ।\
 > শুনি চৈব শ্বপাকে চ পণ্ডিতাঃ সমদর্শিনঃ ॥১৭৭॥
 
-> vidyā-vinaya-sampanne
-> brāhmaṇe gavi hastini
-> śuni caiva śvapāke ca
+> vidyā-vinaya-sampanne\
+> brāhmaṇe gavi hastini\
+> śuni caiva śvapāke ca\
 > paṇḍitāḥ sama-darśinaḥ
 
 *vidyā*—conocimiento; *vinaya*—gentileza; *sampanne*—dotado de; *brāhmaṇe*—hacia un *brāhmaṇa*; *gavi*—hacia una vaca; *hastini*—hacia un elefante; *śuni*—hacia un perro; *ca*—y; *eva*—también; *śva-pāke*—hacia un comedor de perros; *ca*—también; *paṇḍitāḥ*—aquellos que poseen verdadera comprensión espiritual; *sama-darśinaḥ*—que ven con ecuanimidad.

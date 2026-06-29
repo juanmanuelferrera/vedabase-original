@@ -1,11 +1,11 @@
 ### SB 3.10.21
 
-> तिरश्चामष्टमः सर्गः सोऽष्टाविंशद्विधो मतः ।
+> तिरश्चामष्टमः सर्गः सोऽष्टाविंशद्विधो मतः ।\
 > अविदो भूरितमसो घ्राणज्ञा हृद्यवेदिनः ॥२१॥
 
-> tiraścām aṣṭamaḥ sargaḥ
-> so 'ṣṭāviṁśad-vidho mataḥ
-> avido bhūri-tamaso
+> tiraścām aṣṭamaḥ sargaḥ\
+> so 'ṣṭāviṁśad-vidho mataḥ\
+> avido bhūri-tamaso\
 > ghrāṇa-jñā hṛdy avedinaḥ
 
 *tiraścām*—especies de animales inferiores; *aṣṭamaḥ*—la octava; *sargaḥ*—creación; *saḥ*—ellas son; *aṣṭāviṁśat*—veintiocho; *vidhaḥ*—variedades; *mataḥ*—consideradas; *avidaḥ*—sin conocimiento del mañana; *bhūri*—en gran manera; *tamasaḥ*—ignorantes; *ghrāṇa-jñāḥ*—pueden conocer lo que desean mediante el olfato; *hṛdi avedinaḥ*—pueden recordar muy poco en el corazón.

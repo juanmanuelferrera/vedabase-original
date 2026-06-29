@@ -1,11 +1,11 @@
 ### Bg 4.21
 
-> निराशीर्यतचित्तात्मा त्यक्तसर्वपरिग्रहः ।
+> निराशीर्यतचित्तात्मा त्यक्तसर्वपरिग्रहः ।\
 > शारीरं केवलं कर्म कुर्वन्नाप्नोति किल्बिषम् ॥२१॥
 
-> nirāśīr yata-cittātmā
-> tyakta-sarva-parigrahaḥ
-> śārīraṁ kevalaṁ karma
+> nirāśīr yata-cittātmā\
+> tyakta-sarva-parigrahaḥ\
+> śārīraṁ kevalaṁ karma\
 > kurvan nāpnoti kilbiṣam
 
 *nirāśīḥ*—without desire for the results; *yata*—controlled; *citta-ātmā*—mind and intelligence; *tyakta*—giving up; *sarva*—all; *parigrahaḥ*—sense of proprietorship over all possessions; *śārīram*—in keeping body and soul together; *kevalam*—only; *karma*—work; *kurvan*—doing so; *na*—never; *āpnoti*—does not acquire; *kilbiṣam*—sinful reactions.

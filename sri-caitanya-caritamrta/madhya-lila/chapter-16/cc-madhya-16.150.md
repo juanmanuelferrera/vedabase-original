@@ -1,9 +1,9 @@
 ### CC Madhya 16.150
 
-> দুই রাজপাত্র যেই প্রভু-সঙ্গে যায় ।
+> দুই রাজপাত্র যেই প্রভু-সঙ্গে যায় ।\
 > ‘যাজপুর’ আসি’ প্রভু তারে দিলেন বিদায় ॥১৫০॥
 
-> dui rāja-pātra yei prabhu-saṅge yāya
+> dui rāja-pātra yei prabhu-saṅge yāya\
 > 'yājapura' āsi' prabhu tāre dilena vidāya
 
 *dui rāja-pātra*—the two government officers; *yei*—who; *prabhu-saṅge*—with Śrī Caitanya Mahāprabhu; *yāya*—go; *yājapura āsi'*—when coming to Yājapura; *prabhu*—Śrī Caitanya Mahāprabhu; *tāre*—unto them; *dilena vidāya*—bade farewell.

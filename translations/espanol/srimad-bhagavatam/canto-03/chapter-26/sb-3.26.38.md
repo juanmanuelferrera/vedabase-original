@@ -1,11 +1,11 @@
 ### SB 3.26.38
 
-> वायोश्च स्पर्शतन्मात्राद्रूपं दैवेरितादभूत् ।
+> वायोश्च स्पर्शतन्मात्राद्रूपं दैवेरितादभूत् ।\
 > समुत्थितं ततस्तेजश्चक्षू रूपोपलम्भनम् ॥३८॥
 
-> vāyoś ca sparśa-tanmātrād
-> rūpaṁ daiveritād abhūt
-> samutthitaṁ tatas tejaś
+> vāyoś ca sparśa-tanmātrād\
+> rūpaṁ daiveritād abhūt\
+> samutthitaṁ tatas tejaś\
 > cakṣū rūpopalambhanam
 
 *vāyoḥ*—del aire; *ca*—y; *sparśa-tanmātrāt*—que resulta de la evolución del tacto como elemento sutil; *rūpam*—forma; *daiva-īritāt*—según el destino; *abhūt*—se produjo; *samutthitam*—se originó; *tataḥ*—de ese; *tejaḥ*—fuego; *cakṣuḥ*—sentido de la vista; *rūpa*—color y forma; *upalambhanam*—percibiendo.

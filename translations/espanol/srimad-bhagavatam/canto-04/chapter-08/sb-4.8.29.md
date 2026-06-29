@@ -1,11 +1,11 @@
 ### SB 4.8.29
 
-> परितुष्येत्ततस्तात तावन्मात्रेण पूरुषः ।
+> परितुष्येत्ततस्तात तावन्मात्रेण पूरुषः ।\
 > दैवोपसादितं यावद्वीक्ष्येश्वरगतिं बुधः ॥२९॥
 
-> parituṣyet tatas tāta
-> tāvan-mātreṇa pūruṣaḥ
-> daivopasāditaṁ yāvad
+> parituṣyet tatas tāta\
+> tāvan-mātreṇa pūruṣaḥ\
+> daivopasāditaṁ yāvad\
 > vīkṣyeśvara-gatiṁ budhaḥ
 
 *parituṣyet*—debe sentirse satisfecha; *tataḥ*—por lo tanto; *tāta*—mi querido niño; *tāvat*—hasta esa; *mātreṇa*—cualidad; *pūruṣaḥ*—una persona; *daiva*—destino; *upasāditam*—ofrecido por; *yāvat*—como; *vīkṣya*—ver; *īśvara-gatim*—el proceso del Supremo; *budhaḥ*—la persona inteligente.

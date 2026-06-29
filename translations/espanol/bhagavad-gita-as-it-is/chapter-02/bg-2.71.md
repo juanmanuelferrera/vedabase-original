@@ -1,11 +1,11 @@
 ### Bg 2.71
 
-> विहाय कामान्यः सर्वान्पुमांश्चरति निःस्पृहः ।
+> विहाय कामान्यः सर्वान्पुमांश्चरति निःस्पृहः ।\
 > निर्ममो निरहङ्कारः स शान्तिमधिगच्छति ॥७१॥
 
-> vihāya kāmān yaḥ sarvān
-> pumāṁś carati niḥspṛhaḥ
-> nirmamo nirahaṅkāraḥ
+> vihāya kāmān yaḥ sarvān\
+> pumāṁś carati niḥspṛhaḥ\
+> nirmamo nirahaṅkāraḥ\
 > sa śāntim adhigacchati
 
 *vihāya*—después de renunciar; *kāmān*—todos los deseos materiales para la gratificación de los sentidos; *yaḥ*—la persona; *sarvān*—todos; *pumān*—una persona; *carati*—vive; *niḥspṛhaḥ*—sin deseos; *nirmamaḥ*—sin sentido de posesión; *nirahaṅkāraḥ*—sin ego falso; *saḥ*—todos; *śāntim*—paz perfecta; *adhigacchati*—alcanza.

@@ -1,11 +1,11 @@
 ### SB 3.19.11
 
-> तां स आपततीं वीक्ष्य भगवान्समवस्थितः ।
+> तां स आपततीं वीक्ष्य भगवान्समवस्थितः ।\
 > जग्राह लीलया प्राप्तां गरुत्मानिव पन्नगीम् ॥११॥
 
-> tāṁ sa āpatatīṁ vīkṣya
-> bhagavān samavasthitaḥ
-> jagrāha līlayā prāptāṁ
+> tāṁ sa āpatatīṁ vīkṣya\
+> bhagavān samavasthitaḥ\
+> jagrāha līlayā prāptāṁ\
 > garutmān iva pannagīm
 
 *tām*—that mace; *saḥ*—He; *āpatatīm*—flying toward; *vīkṣya*—after seeing; *bhagavān*—the Supreme Personality of Godhead; *samavasthitaḥ*—stood firmly; *jagrāha*—caught; *līlayā*—easily; *prāptām*—entered into His presence; *garutmān*—Garuḍa; *iva*—as; *pannagīm*—a serpent.

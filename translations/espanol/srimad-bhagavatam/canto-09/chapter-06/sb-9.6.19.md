@@ -1,11 +1,11 @@
 ### SB 9.6.19
 
-> जित्वा परं धनं सर्वं सस्त्रीकं वज्रपाणये
+> जित्वा परं धनं सर्वं सस्त्रीकं वज्रपाणये\
 > प्रत्ययच्छत्स राजर्षिरिति नामभिराहृतः ॥१९॥
 
-> jitvā paraṁ dhanaṁ sarvaṁ
-> sastrīkaṁ vajra-pāṇaye
-> pratyayacchat sa rājarṣir
+> jitvā paraṁ dhanaṁ sarvaṁ\
+> sastrīkaṁ vajra-pāṇaye\
+> pratyayacchat sa rājarṣir\
 > iti nāmabhir āhṛtaḥ
 
 *jitvā*—conquistar; *param*—enemigos; *dhanam*—riquezas; *sarvam*—todo; *sa-strīkam*—con sus esposas; *vajra-pāṇaye*—a Indra, el portador del rayo; *pratyayacchat*—devolvió y entregó; *saḥ*—ese; *rāja-ṛṣiḥ*—rey santo (Purañjaya); *iti*—así; *nāmabhiḥ*—con nombres; *āhṛtaḥ*—fue llamado.

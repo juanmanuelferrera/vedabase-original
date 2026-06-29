@@ -1,11 +1,11 @@
 ### SB 9.15.9
 
-> तावत्सत्यवती मात्रा स्वचरुं याचिता सती
+> तावत्सत्यवती मात्रा स्वचरुं याचिता सती\
 > श्रेष्ठं मत्वा तयायच्छन्मात्रे मातुरदत्स्वयम ॥९॥
 
-> tāvat satyavatī mātrā
-> sva-caruṁ yācitā satī
-> śreṣṭhaṁ matvā tayāyacchan
+> tāvat satyavatī mātrā\
+> sva-caruṁ yācitā satī\
+> śreṣṭhaṁ matvā tayāyacchan\
 > mātre mātur adat svayam
 
 *tāvat*—entre tanto; *satyavatī*—Satyavatī, la esposa de Ṛcīka; *mātrā*—por su madre; *sva-carum*—la oblación preparada para ella (para Satyavatī); *yācitā*—pidió que le diese; *satī*—ser; *śreṣṭham*—mejor; *matvā*—pensando; *tayā*—por ella; *ayacchat*—entregada; *mātre*—a su madre; *mātuḥ*—de la madre; *adat*—comió; *svayam*—personalmente.

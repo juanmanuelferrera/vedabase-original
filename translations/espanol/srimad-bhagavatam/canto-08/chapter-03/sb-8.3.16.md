@@ -1,11 +1,11 @@
 ### SB 8.3.16
 
-> गुणारणिच्छन्नचिदुष्मपाय तत्क्षोभविस्फूर्जितमानसाय
+> गुणारणिच्छन्नचिदुष्मपाय तत्क्षोभविस्फूर्जितमानसाय\
 > नैष्कर्म्यभावेन विवर्जितागम स्वयंप्रकाशाय नमस्करोमि ॥१६॥
 
-> guṇāraṇi-cchanna-cid-uṣmapāya
-> tat-kṣobha-visphūrjita-mānasāya
-> naiṣkarmya-bhāvena vivarjitāgama-
+> guṇāraṇi-cchanna-cid-uṣmapāya\
+> tat-kṣobha-visphūrjita-mānasāya\
+> naiṣkarmya-bhāvena vivarjitāgama-\
 > svayaṁ-prakāśāya namas karomi
 
 *guṇa*—por las tres *guṇas*, las modalidades de la naturaleza material (*sattva, rajas* y *tamas*); *araṇi*—por madera *araṇi*; *channa*—cubierto; *cit*—de conocimiento; *uṣmapāya*—a aquel cuyo fuego; *tat-kṣobha*—de la agitación de las modalidades de la naturaleza material; *visphūrjita*—fuera; *mānasāya*—a aquel cuya mente; *naiṣkarmya-bhāvena*—debido a la etapa de comprensión espiritual; *vivarjita*—en aquellos que abandonan; *āgama*—los principios védicos; *svayam*—personalmente; *prakāśāya*—a aquel que Se manifiesta; *namaḥ karomi*—ofrezco mis respetuosas reverencias.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.41
 
-> পুনঃ মালা দিয়া স্বরূপাদি নিজগণ ।
+> পুনঃ মালা দিয়া স্বরূপাদি নিজগণ ।\
 > আগু বাড়ি’ পাঠাইল শচীর নন্দন ॥৪১॥
 
-> punaḥ mālā diyā svarūpādi nija-gaṇa
+> punaḥ mālā diyā svarūpādi nija-gaṇa\
 > āgu bāḍi' pāṭhāila śacīra nandana
 
 *punaḥ*—again; *mālā*—garlands; *diyā*—offering; *svarūpa-ādi*—Svarūpa Dāmodara Gosvāmī and others; *nija-gaṇa*—personal associates; *āgu bāḍi'*—going forward; *pāṭhāila*—sent; *śacīra nandana*—the son of mother Śacī.

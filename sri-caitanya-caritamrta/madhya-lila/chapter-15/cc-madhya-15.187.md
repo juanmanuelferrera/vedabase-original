@@ -1,9 +1,9 @@
 ### CC Madhya 15.187
 
-> এবে সব বৈষ্ণব গৌড়দেশে চলি’ গেল  ।
+> এবে সব বৈষ্ণব গৌড়দেশে চলি’ গেল  ।\
 > এবে প্রভুর নিমন্ত্রণে অবসর হৈল ॥১৮৭॥
 
-> ebe saba vaiṣṇava gauḍa-deśe cali' gela
+> ebe saba vaiṣṇava gauḍa-deśe cali' gela\
 > ebe prabhura nimantraṇe avasara haila
 
 *ebe*—now; *saba*—all; *vaiṣṇava*—devotees; *gauḍa-deśe*—to Bengal; *cali, gela*—have returned; *ebe*—now; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *nimantraṇe*—for invitations; *avasara haila*—there is a chance.

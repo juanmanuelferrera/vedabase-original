@@ -1,13 +1,13 @@
 ### SB 3.31.18
 
-> येनेदृशीं गतिमसौ दशमास्य ईश
-> सङ्ग्राहितः पुरुदयेन भवादृशेन ।
-> स्वेनैव तुष्यतु कृतेन स दीननाथः
+> येनेदृशीं गतिमसौ दशमास्य ईश\
+> सङ्ग्राहितः पुरुदयेन भवादृशेन ।\
+> स्वेनैव तुष्यतु कृतेन स दीननाथः\
 > को नाम तत्प्रति विनाञ्जलिमस्य कुर्यात् ॥१८॥
 
-> yenedṛśīṁ gatim asau daśa-māsya īśa
-> saṅgrāhitaḥ puru-dayena bhavādṛśena
-> svenaiva tuṣyatu kṛtena sa dīna-nāthaḥ
+> yenedṛśīṁ gatim asau daśa-māsya īśa\
+> saṅgrāhitaḥ puru-dayena bhavādṛśena\
+> svenaiva tuṣyatu kṛtena sa dīna-nāthaḥ\
 > ko nāma tat-prati vināñjalim asya kuryāt
 
 *yena*—by whom (the Lord); *īdṛśīm*—such; *gatim*—a condition; *asau*—that person (myself); *daśa-māsyaḥ*—ten months old; *īśa*—O Lord; *saṅgrāhitaḥ*—was made to accept; *puru-dayena*—very merciful; *bhavādṛśena*—incomparable; *svena*—own; *eva*—alone; *tuṣyatu*—may He be pleased; *kṛtena*—with His act; *saḥ*—that; *dīna-nāthaḥ*—refuge of the fallen souls; *kaḥ*—who; *nāma*—indeed; *tat*—that mercy; *prati*—in return; *vinā*—except with; *añjalim*—folded hands; *asya*—of the Lord; *kuryāt*—can repay.

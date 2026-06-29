@@ -1,9 +1,9 @@
 ### CC Madhya 1.62
 
-> শ্লোক রাখি’ গেলা সমুদ্রস্নান করিতে ।
+> শ্লোক রাখি’ গেলা সমুদ্রস্নান করিতে ।\
 > হেনকালে আইলা প্রভু তাঁহারে মিলিতে ॥৬২॥
 
-> śloka rākhi' gelā samudra-snāna karite
+> śloka rākhi' gelā samudra-snāna karite\
 > hena-kāle āilā prabhu tāṅhāre milite
 
 *śloka rākhi'*—keeping the verse in that way; *gelā*—went; *samudra-snāna*—a bath in the sea; *karite*—to take; *hena-kāle*—in the meantime; *āilā*—came; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *tāṅhāre*—him; *milite*—to meet.

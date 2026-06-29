@@ -1,15 +1,15 @@
 ### SB 4.1.56
 
-> देवा ऊचुः
-> यो मायया विरचितं निजयात्मनीदं
-> खे रूपभेदमिव तत्प्रतिचक्षणाय ।
-> एतेन धर्मसदने ऋषिमूर्तिनाद्य
+> देवा ऊचुः\
+> यो मायया विरचितं निजयात्मनीदं\
+> खे रूपभेदमिव तत्प्रतिचक्षणाय ।\
+> एतेन धर्मसदने ऋषिमूर्तिनाद्य\
 > प्रादुश्चकार पुरुषाय नमः परस्मै ॥५६॥
 
-> devā ūcuḥ
-> yo māyayā viracitaṁ nijayātmanīdaṁ
-> khe rūpa-bhedam iva tat-praticakṣaṇāya
-> etena dharma-sadane ṛṣi-mūrtinādya
+> devā ūcuḥ\
+> yo māyayā viracitaṁ nijayātmanīdaṁ\
+> khe rūpa-bhedam iva tat-praticakṣaṇāya\
+> etena dharma-sadane ṛṣi-mūrtinādya\
 > prāduścakāra puruṣāya namaḥ parasmai
 
 *devāḥ*—los semidioses; *ūcuḥ*—dijeron; *yaḥ*—quien; *māyayā*—por la energía externa; *viracitam*—fue creada; *nijayā*—por Su propia; *ātmani*—estando situada en Él; *idam*—esta; *khe*—en el cielo; *rūpa-bhedam*—grupos de nubes; *iva*—como si; *tat*—de Sí mismo; *praticakṣaṇāya*—para manifestar; *etena*—con este; *dharma-sadane*—en la casa de Dharma; *ṛṣi-mūrtinā*—en forma de sabio; *adya*—hoy; *prāduścakāra*—apareció; *puruṣāya*—a la Personalidad de Dios; *namaḥ*—reverencias respetuosas; *parasmai*—al Supremo.

@@ -1,25 +1,25 @@
 ### SB 6.5.6-8
 
-> उवाच चाथ हर्यश्वाः कथं स्रक्ष्यथ वै प्रजाः
-> अदृष्ट्वान्तं भुवो यूयं बालिशा बत पालकाः ॥६॥
-> तथैकपुरुषं राष्ट्रं बिलं चादृष्टनिर्गमम
-> बहुरूपां स्त्रियं चापि पुमांसं पुंश्चलीपतिम ॥७॥
-> नदीमुभयतो वाहां पञ्चपञ्चाद्भुतं गृहम
+> उवाच चाथ हर्यश्वाः कथं स्रक्ष्यथ वै प्रजाः\
+> अदृष्ट्वान्तं भुवो यूयं बालिशा बत पालकाः ॥६॥\
+> तथैकपुरुषं राष्ट्रं बिलं चादृष्टनिर्गमम\
+> बहुरूपां स्त्रियं चापि पुमांसं पुंश्चलीपतिम ॥७॥\
+> नदीमुभयतो वाहां पञ्चपञ्चाद्भुतं गृहम\
 > क्वचिद्धंसं चित्रकथं क्षौरपव्यं स्वयं भ्रमि ॥८॥
 
-> uvāca cātha haryaśvāḥ
-> kathaṁ srakṣyatha vai prajāḥ
-> adṛṣṭvāntaṁ bhuvo yūyaṁ
+> uvāca cātha haryaśvāḥ\
+> kathaṁ srakṣyatha vai prajāḥ\
+> adṛṣṭvāntaṁ bhuvo yūyaṁ\
 > bāliśā bata pālakāḥ
 
-> tathaika-puruṣaṁ rāṣṭraṁ
-> bilaṁ cādṛṣṭa-nirgamam
-> bahu-rūpāṁ striyaṁ cāpi
+> tathaika-puruṣaṁ rāṣṭraṁ\
+> bilaṁ cādṛṣṭa-nirgamam\
+> bahu-rūpāṁ striyaṁ cāpi\
 > pumāṁsaṁ puṁścalī-patim
 
-> nadīm ubhayato vāhāṁ
-> pañca-pañcādbhutaṁ gṛham
-> kvacid dhaṁsaṁ citra-kathaṁ
+> nadīm ubhayato vāhāṁ\
+> pañca-pañcādbhutaṁ gṛham\
+> kvacid dhaṁsaṁ citra-kathaṁ\
 > kṣaura-pavyaṁ svayaṁ bhrami
 
 *uvāca*—he said; *ca*—also; *atha*—thus; *haryaśvāḥ*—O Haryaśvas, sons of Prajāpati Dakṣa; *katham*—why; *srakṣyatha*—you will beget; *vai*—indeed; *prajāḥ*—progeny; *adṛṣṭvā*—having not seen; *antam*—the end; *bhuvaḥ*—of this earth; *yūyam*—all of you; *bāliśāḥ*—inexperienced; *bata*—alas; *pālakāḥ*—although ruling princes; *tathā*—so also; *eka*—one; *puruṣam*—man; *rāṣṭram*—kingdom; *bilam*—the hole; *ca*—also; *adṛṣṭa-nirgamam*—from which there is no coming out; *bahu-rūpām*—taking many forms; *striyam*—the woman; *ca*—and; *api*—even; *pumāṁsam*—the man; *puṁścalī-patim*—the husband of a prostitute; *nadīm*—a river; *ubhayataḥ*—in both ways; *vāhām*—which flows; *pañca-pañca*—of five multiplied by five (twenty-five); *adbhutam*—a wonder; *gṛham*—the house; *kvacit*—somewhere; *haṁsam*—a swan; *citra-katham*—whose story is wonderful; *kṣaura-pavyam*—made of sharp razors and thunderbolts; *svayam*—itself; *bhrami*—revolving.

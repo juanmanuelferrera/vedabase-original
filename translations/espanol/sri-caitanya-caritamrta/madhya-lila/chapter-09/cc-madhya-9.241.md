@@ -1,9 +1,9 @@
 ### CC Madhya 9.241
 
-> বহু যত্নে সেই পুঁথি নিল লেখাইয়া ৷
+> বহু যত্নে সেই পুঁথি নিল লেখাইয়া ৷\
 > ‘অনন্ত-পদ্মনাভ’ আইলা হরষিত হঞা ৷৷ ২৪১ ৷৷ ॥২৪১॥
 
-> bahu yatne sei puṅthi nila lekhāiyā
+> bahu yatne sei puṅthi nila lekhāiyā\
 > 'ananta padmanābha' āilā haraṣita hañā
 
 *bahu yatne*—con gran atención; *sei puṅthi*—esa escritura; *nila*—tomó; *lekhāiyā*—habiéndola hecho copiar; *ananta-padmanābha*—a Ananta Padmanābha; *āilā*—llegó; *haraṣita*—con gran felicidad; *hañā*—estando.

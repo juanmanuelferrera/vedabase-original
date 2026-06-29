@@ -1,11 +1,11 @@
 ### SB 8.2.31
 
-> इत्थं गजेन्द्रः स यदाप सङ्कटं प्राणस्य देही विवशो यदृच्छया
+> इत्थं गजेन्द्रः स यदाप सङ्कटं प्राणस्य देही विवशो यदृच्छया\
 > अपारयन्नात्मविमोक्षणे चिरं दध्याविमां बुद्धिमथाभ्यपद्यत ॥३१॥
 
-> itthaṁ gajendraḥ sa yadāpa saṅkaṭaṁ
-> prāṇasya dehī vivaśo yadṛcchayā
-> apārayann ātma-vimokṣaṇe ciraṁ
+> itthaṁ gajendraḥ sa yadāpa saṅkaṭaṁ\
+> prāṇasya dehī vivaśo yadṛcchayā\
+> apārayann ātma-vimokṣaṇe ciraṁ\
 > dadhyāv imāṁ buddhim athābhyapadyata
 
 *ittham*—in this way; *gaja-indraḥ*—the King of the elephants; *saḥ*—he; *yadā*—when; *āpa*—obtained; *saṅkaṭam*—such a dangerous position; *prāṇasya*—of life; *dehī*—who is embodied; *vivaśaḥ*—circumstantially helpless; *yadṛcchayā*—by the will of providence; *apārayan*—being unable; *ātma-vimokṣaṇe*—to save himself; *ciram*—for a long time; *dadhyau*—began to think seriously; *imām*—this; *buddhim*—decision; *atha*—thereupon; *abhyapadyata*—reached.

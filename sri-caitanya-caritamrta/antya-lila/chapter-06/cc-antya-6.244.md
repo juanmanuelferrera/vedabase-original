@@ -1,9 +1,9 @@
 ### CC Antya 6.244
 
-> রথযাত্রায় সবা লঞা করিলা নর্তন ।
+> রথযাত্রায় সবা লঞা করিলা নর্তন ।\
 > দেখি’ রঘুনাথের চমৎকার হৈল মন ॥২৪৪॥
 
-> ratha-yātrāya sabā lañā karilā nartana
+> ratha-yātrāya sabā lañā karilā nartana\
 > dekhi' raghunāthera camatkāra haila mana
 
 *ratha-yātrāya*—during the Ratha-yātrā performance; *sabā lañā*—taking all of them; *karilā nartana*—danced; *dekhi'*—seeing; *raghunāthera*—of Raghunātha dāsa; *camatkāra*—struck with wonder; *haila*—became; *mana*—the mind.

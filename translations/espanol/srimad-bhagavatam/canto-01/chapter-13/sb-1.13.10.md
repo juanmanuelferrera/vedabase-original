@@ -1,11 +1,11 @@
 ### SB 1.13.10
 
-> भवद्विधा भागवतास्तीर्थभूताः स्वयं विभो ।
+> भवद्विधा भागवतास्तीर्थभूताः स्वयं विभो ।\
 > तीर्थीकुर्वन्ति तीर्थानि स्वान्तःस्थेन गदाभृता ॥१०॥
 
-> bhavad-vidhā bhāgavatās
-> tīrtha-bhūtāḥ svayaṁ vibho
-> tīrthī-kurvanti tīrthāni
+> bhavad-vidhā bhāgavatās\
+> tīrtha-bhūtāḥ svayaṁ vibho\
+> tīrthī-kurvanti tīrthāni\
 > svāntaḥ-sthena gadābhṛtā
 
 *bhavat*—tu buena persona; *vidhāḥ*—como; *bhāgavatāḥ*—devotos; *tīrtha*—los lugares sagrados de peregrinaje; *bhūtāḥ*—convertido en; *svayam*—personalmente; *vibho*—¡oh, tú, el poderoso!; *tīrthī-kurvanti*—conviertes en un lugar sagrado de peregrinaje; *tīrthāni*—los lugares sagrados; *sva-antaḥ-sthena*—habiéndose situado en el corazón; *gadā-bhṛtā*—la Personalidad de Dios.

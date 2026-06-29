@@ -1,18 +1,18 @@
 ### SB 8.13.15-16
 
-> गालवो दीप्तिमान्रामो द्रोणपुत्रः कृपस्तथा
-> ऋष्यशृङ्गः पितास्माकं भगवान्बादरायणः ॥१५॥
-> इमे सप्तर्षयस्तत्र भविष्यन्ति स्वयोगतः
+> गालवो दीप्तिमान्रामो द्रोणपुत्रः कृपस्तथा\
+> ऋष्यशृङ्गः पितास्माकं भगवान्बादरायणः ॥१५॥\
+> इमे सप्तर्षयस्तत्र भविष्यन्ति स्वयोगतः\
 > इदानीमासते राजन्स्वे स्व आश्रममण्डले ॥१६॥
 
-> gālavo dīptimān rāmo
-> droṇa-putraḥ kṛpas tathā
-> ṛṣyaśṛṅgaḥ pitāsmākaṁ
+> gālavo dīptimān rāmo\
+> droṇa-putraḥ kṛpas tathā\
+> ṛṣyaśṛṅgaḥ pitāsmākaṁ\
 > bhagavān bādarāyaṇaḥ
 
-> ime saptarṣayas tatra
-> bhaviṣyanti sva-yogataḥ
-> idānīm āsate rājan
+> ime saptarṣayas tatra\
+> bhaviṣyanti sva-yogataḥ\
+> idānīm āsate rājan\
 > sve sva āśrama-maṇḍale
 
 *gālavaḥ*—Gālava; *dīptimān*—Dīptimān; *rāmaḥ*—Paraśurāma; *droṇa-putraḥ*—the son of Droṇācārya, namely Aśvatthāmā; *kṛpaḥ*—Kṛpācārya; *tathā*—as well; *ṛṣyaśṛṅgaḥ*—Ṛṣyaśṛṅga; *pitā asmākam*—our father; *bhagavān*—the incarnation of Godhead; *bādarāyaṇaḥ*—Vyāsadeva; *ime*—all of them; *sapta-ṛṣayaḥ*—the seven sages; *tatra*—in the eighth *manvantara*; *bhaviṣyanti*—will become; *sva-yogataḥ*—as a result of their service to the Lord; *idānīm*—at the present moment; *āsate*—they are all existing; *rājan*—O King; *sve sve*—in their own; *āśrama-maṇḍale*—different hermitages.

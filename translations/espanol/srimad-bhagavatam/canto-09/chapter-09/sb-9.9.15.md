@@ -1,11 +1,11 @@
 ### SB 9.9.15
 
-> सन्निवेश्य मनो यस्मिञ्छ्रद्धया मुनयोऽमलाः
+> सन्निवेश्य मनो यस्मिञ्छ्रद्धया मुनयोऽमलाः\
 > त्रैगुण्यं दुस्त्यजं हित्वा सद्यो यातास्तदात्मताम ॥१५॥
 
-> sanniveśya mano yasmiñ
-> chraddhayā munayo 'malāḥ
-> traiguṇyaṁ dustyajaṁ hitvā
+> sanniveśya mano yasmiñ\
+> chraddhayā munayo 'malāḥ\
+> traiguṇyaṁ dustyajaṁ hitvā\
 > sadyo yātās tad-ātmatām
 
 *sanniveśya*—prestando plena atención; *manaḥ*—la mente; *yasmin*—a quienes; *śraddhayā*—con fe y devoción; *munayaḥ*—grandes personas santas; *amalāḥ*—liberadas de toda contaminación pecaminosa; *traiguṇyam*—las tres modalidades de la naturaleza material; *dustyajam*—muy difíciles de abandonar; *hitvā*—pueden sin embargo abandonar; *sadyaḥ*—de inmediato; *yātāḥ*—obtenida; *tad-ātmatām*—la cualidad espiritual del Supremo.

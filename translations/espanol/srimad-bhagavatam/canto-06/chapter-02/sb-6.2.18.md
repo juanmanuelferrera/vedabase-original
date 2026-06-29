@@ -1,11 +1,11 @@
 ### SB 6.2.18
 
-> अज्ञआनादथवा ज्ञआनादुत्तमश्लोकनाम यत
+> अज्ञआनादथवा ज्ञआनादुत्तमश्लोकनाम यत\
 > सङ्कीर्तितमघं पुंसो दहेदेधो यथानलः ॥१८॥
 
-> ajñānād athavā jñānād
-> uttamaśloka-nāma yat
-> saṅkīrtitam aghaṁ puṁso
+> ajñānād athavā jñānād\
+> uttamaśloka-nāma yat\
+> saṅkīrtitam aghaṁ puṁso\
 > dahed edho yathānalaḥ
 
 *ajñānāt*—por ignorancia; *athavā*—o; *jñānāt*—con conocimiento; *uttamaśloka*—de la Suprema Personalidad de Dios; *nāma*—el santo nombre; *yat*—el cual; *saṅkīrtitam*—cantado; *agham*—pecado; *puṁsaḥ*—de una persona; *dahet*—reduce a cenizas; *edhaḥ*—hierba seca; *yathā*—como; *analaḥ*—el fuego.

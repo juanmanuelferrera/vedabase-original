@@ -1,9 +1,9 @@
 ### CC Antya 8.19
 
-> পুরী-গোসাঞি করে কৃষ্ণনাম-সঙ্কীর্তন ।
+> পুরী-গোসাঞি করে কৃষ্ণনাম-সঙ্কীর্তন ।\
 > ‘মথুরা না পাইনু’ বলি’ করেন ক্রন্দন ॥১৯॥
 
-> purī-gosāñi kare kṛṣṇa-nāma-saṅkīrtana
+> purī-gosāñi kare kṛṣṇa-nāma-saṅkīrtana\
 > 'mathurā nā pāinu' bali' karena krandana
 
 *purī-gosāñi*—Mādhavendra Purī; *kare*—estaba realizando; *kṛṣṇa-nāma-saṅkīrtana*—el canto del santo nombre del Señor Kṛṣṇa; *mathurā nā pāinu*—no obtuve refugio en Mathurā; *bali'*—diciendo; *karena krandana*—estaba llorando.

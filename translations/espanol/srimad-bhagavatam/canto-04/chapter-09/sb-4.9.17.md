@@ -1,13 +1,13 @@
 ### SB 4.9.17
 
-> सत्याशिषो हि भगवंस्तव पादपद्मम्
-> आशीस्तथानुभजतः पुरुषार्थमूर्तेः ।
-> अप्येवमर्य भगवान्परिपाति दीनान्
+> सत्याशिषो हि भगवंस्तव पादपद्मम्\
+> आशीस्तथानुभजतः पुरुषार्थमूर्तेः ।\
+> अप्येवमर्य भगवान्परिपाति दीनान्\
 > वाश्रेव वत्सकमनुग्रहकातरोऽस्मान् ॥१७॥
 
-> satyāśiṣo hi bhagavaṁs tava pāda-padmam
-> āśīs tathānubhajataḥ puruṣārtha-mūrteḥ
-> apy evam arya bhagavān paripāti dīnān
+> satyāśiṣo hi bhagavaṁs tava pāda-padmam\
+> āśīs tathānubhajataḥ puruṣārtha-mūrteḥ\
+> apy evam arya bhagavān paripāti dīnān\
 > vāśreva vatsakam anugraha-kātaro 'smān
 
 *satya*—real; *āśiṣaḥ*—comparada con otras bendiciones; *hi*—ciertamente; *bhagavan*—mi Señor; *tava*—Tus; *pāda-padmam*—pies de loto; *āśīḥ*—bendición; *tathā*—de esa manera; *anubhajataḥ*—para los devotos; *puruṣa-artha*—del verdadero objetivo de la vida; *mūrteḥ*—la personificación; *api*—aunque; *evam*—de esta manera; *arya*—¡oh, Señor!; *bhagavān*—la Personalidad de Dios; *paripāti*—sustenta; *dīnān*—a los débiles; *vāśrā*—una vaca; *iva*—como; *vatsakam*—al ternero; *anugraha*—para otorgar misericordia; *kātaraḥ*—deseoso; *asmān*—a mí.

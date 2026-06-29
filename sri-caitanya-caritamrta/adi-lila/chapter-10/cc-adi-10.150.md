@@ -1,9 +1,9 @@
 ### CC Adi 10.150
 
-> অচ্যুতানন্দ — অদ্বৈত-আচার্য-তনয় ।
+> অচ্যুতানন্দ — অদ্বৈত-আচার্য-তনয় ।\
 > নীলাচলে রহে প্রভুর চরণ আশ্রয় ॥১৫০॥
 
-> acyutānanda—advaita-ācārya-tanaya
+> acyutānanda—advaita-ācārya-tanaya\
 > nīlācale rahe prabhura caraṇa āśraya
 
 *acyutānanda*—of the name Acyutānanda; *advaita-ācārya-tanaya*—the son of Advaita Ācārya; *nīlācale*—at Jagannātha Purī; *rahe*—stays; *prabhura*—of Lord Caitanya Mahāprabhu; *caraṇa*—lotus feet; *āśraya*—taking shelter.

@@ -1,13 +1,13 @@
 ### CC Madhya 24.52
 
-> শ্রুত্বা গুণান্ ভুবনসুন্দর শৃণ্বতাং তে
-> নির্বিশ্য কর্ণবিবরৈর্হরতোঽঙ্গতাপম্ ।
-> রূপং দৃশাং দৃশিমতামখিলার্থলাভং
+> শ্রুত্বা গুণান্ ভুবনসুন্দর শৃণ্বতাং তে\
+> নির্বিশ্য কর্ণবিবরৈর্হরতোঽঙ্গতাপম্ ।\
+> রূপং দৃশাং দৃশিমতামখিলার্থলাভং\
 > ত্বয্যচ্যুতাবিশতি চিত্তমপত্রপং মে ॥৫২॥
 
-> śrutvā guṇān bhuvana-sundara śṛṇvatāṁ te
-> nirviśya karṇa-vivarair harato 'ṅga-tāpam
-> rūpaṁ dṛśāṁ dṛśimatām akhilārtha-lābhaṁ
+> śrutvā guṇān bhuvana-sundara śṛṇvatāṁ te\
+> nirviśya karṇa-vivarair harato 'ṅga-tāpam\
+> rūpaṁ dṛśāṁ dṛśimatām akhilārtha-lābhaṁ\
 > tvayy acyutāviśati cittam apatrapaṁ me
 
 *śrutvā*—escuchando; *guṇān*—las cualidades trascendentales; *bhuvana-sundara*—¡oh, el más hermoso de toda la creación!; *śṛṇvatām*—de quienes escuchan; *te*—Tus; *nirviśya*—penetrando; *karṇa-vivaraiḥ*—por los orificios de los oídos; *harataḥ aṅga-tāpam*—disipando todas las condiciones miserables del cuerpo; *rūpam*—la belleza; *dṛśām*—de los ojos; *dṛśimatām*—de quienes pueden ver; *akhila-artha-lābham*—el logro de toda clase de beneficios; *tvayi*—hacia Ti; *acyuta*—¡oh, infalible!; *āviśati*—penetra; *cittam*—la conciencia; *apatrapam*—sin vergüenza; *me*—mi.

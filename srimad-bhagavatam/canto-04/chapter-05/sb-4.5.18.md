@@ -1,11 +1,11 @@
 ### SB 4.5.18
 
-> सर्व एवर्त्विजो दृष्ट्वा सदस्याः सदिवौकसः ।
+> सर्व एवर्त्विजो दृष्ट्वा सदस्याः सदिवौकसः ।\
 > तैरर्द्यमानाः सुभृशं ग्रावभिर्नैकधाद्रवन् ॥१८॥
 
-> sarva evartvijo dṛṣṭvā
-> sadasyāḥ sa-divaukasaḥ
-> tair ardyamānāḥ subhṛśaṁ
+> sarva evartvijo dṛṣṭvā\
+> sadasyāḥ sa-divaukasaḥ\
+> tair ardyamānāḥ subhṛśaṁ\
 > grāvabhir naikadhādravan
 
 *sarve*—all; *eva*—certainly; *ṛtvijaḥ*—the priests; *dṛṣṭvā*—after seeing; *sadasyāḥ*—all the members assembled in the sacrifice; *sa-divaukasaḥ*—along with the demigods; *taiḥ*—by those (stones); *ardyamānāḥ*—being disturbed; *su-bhṛśam*—very greatly; *grāvabhiḥ*—by stones; *na ekadhā*—in different directions; *adravan*—began to disperse.

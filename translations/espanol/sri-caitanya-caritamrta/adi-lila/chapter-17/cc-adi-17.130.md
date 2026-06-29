@@ -1,9 +1,9 @@
 ### CC Adi 17.130
 
-> প্রভু আজ্ঞা দিল — যাহ করহ কীর্তন ।
+> প্রভু আজ্ঞা দিল — যাহ করহ কীর্তন ।\
 > মুঞি সংহারিমু আজি সকল যবন ॥১৩০॥
 
-> prabhu ājñā dila--yāha karaha kīrtana
+> prabhu ājñā dila--yāha karaha kīrtana\
 > muñi saṁhārimu āji sakala yavana
 
 *prabhu*—el Señor; *ājñā dila*—ordenó; *yāha*—id; *karaha*—y ejecutad; *kīrtana*—el *saṅkīrtana*, canto del Hare Kṛṣṇa *mahā-mantra*; *muñi*—Yo; *saṁhārimu*—destruiré; *āji*—hoy; *sakala*—a todos; *yavana*—los musulmanes.

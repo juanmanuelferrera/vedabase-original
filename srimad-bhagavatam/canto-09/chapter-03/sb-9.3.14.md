@@ -1,11 +1,11 @@
 ### SB 9.3.14
 
-> इत्युक्तो जरया ग्रस्त देहो धमनिसन्ततः
+> इत्युक्तो जरया ग्रस्त देहो धमनिसन्ततः\
 > ह्रदं प्रवेशितोऽश्विभ्यां वलीपलितविग्रहः ॥१४॥
 
-> ity ukto jarayā grasta-
-> deho dhamani-santataḥ
-> hradaṁ praveśito 'śvibhyāṁ
+> ity ukto jarayā grasta-\
+> deho dhamani-santataḥ\
+> hradaṁ praveśito 'śvibhyāṁ\
 > valī-palita-vigrahaḥ
 
 *iti uktaḥ*—thus being addressed; *jarayā*—by old age and invalidity; *grasta-dehaḥ*—the body being so diseased; *dhamani-santataḥ*—whose veins were visible everywhere on the body; *hradam*—the lake; *praveśitaḥ*—entered; *aśvibhyām*—helped by the Aśvinī-kumāras; *valī-palita-vigrahaḥ*—whose body had loose skin and white hair.

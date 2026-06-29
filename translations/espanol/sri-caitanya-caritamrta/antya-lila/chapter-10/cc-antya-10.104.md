@@ -1,9 +1,9 @@
 ### CC Antya 10.104
 
-> পূর্ববৎ কৈলা প্রভু কীর্তন, নর্তন ।
+> পূর্ববৎ কৈলা প্রভু কীর্তন, নর্তন ।\
 > পূর্ববৎ টোটায় কৈলা বন্য-ভোজন ॥১০৪॥
 
-> pūrvavat kailā prabhu kīrtana, nartana
+> pūrvavat kailā prabhu kīrtana, nartana\
 > pūrvavat ṭoṭāya kailā vanya-bhojana
 
 *pūrva-vat*—como anteriormente; *kailā*—realizó; *prabhu*—Śrī Caitanya Mahāprabhu; *kīrtana*—canto; *nartana*—danza; *pūrva-vat*—como anteriormente; *ṭoṭāya*—en el jardín; *kailā*—realizó; *vanya-bhojana*—un almuerzo campestre.

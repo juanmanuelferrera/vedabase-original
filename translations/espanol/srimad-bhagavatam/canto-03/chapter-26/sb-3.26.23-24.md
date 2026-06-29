@@ -1,18 +1,18 @@
 ### SB 3.26.23-24
 
-> महत्तत्त्वाद्विकुर्वाणाद्भगवद्वीर्यसम्भवात् ।
-> क्रियाशक्तिरहङ्कारस्त्रिविधः समपद्यत ॥२३॥
-> वैकारिकस्तैजसश्च तामसश्च यतो भवः ।
+> महत्तत्त्वाद्विकुर्वाणाद्भगवद्वीर्यसम्भवात् ।\
+> क्रियाशक्तिरहङ्कारस्त्रिविधः समपद्यत ॥२३॥\
+> वैकारिकस्तैजसश्च तामसश्च यतो भवः ।\
 > मनसश्चेन्द्रियाणां च भूतानां महतामपि ॥२४॥
 
-> mahat-tattvād vikurvāṇād
-> bhagavad-vīrya-sambhavāt
-> kriyā-śaktir ahaṅkāras
+> mahat-tattvād vikurvāṇād\
+> bhagavad-vīrya-sambhavāt\
+> kriyā-śaktir ahaṅkāras\
 > tri-vidhaḥ samapadyata
 
-> vaikārikas taijasaś ca
-> tāmasaś ca yato bhavaḥ
-> manasaś cendriyāṇāṁ ca
+> vaikārikas taijasaś ca\
+> tāmasaś ca yato bhavaḥ\
+> manasaś cendriyāṇāṁ ca\
 > bhūtānāṁ mahatām api
 
 *mahat-tattvāt*—a partir del *mahat-tattva*; *vikurvāṇāt*—experimentando un cambio; *bhagavat-vīrya-sambhavāt*—producto de la evolución de la propia energía del Señor; *kriyā-śaktiḥ*—dotado de poder activo; *ahaṅkāraḥ*—el ego material; *tri-vidhaḥ*—de las tres clases; *samapadyata*—brotó; *vaikārikaḥ*—ego material influido por la bondad transformada; *taijasaḥ*—ego material influido por la pasión; *ca*—y; *tāmasaḥ*—ego material influido por la ignorancia; *ca*—también; *yataḥ*—del cual; *bhavaḥ*—el origen; *manasaḥ*—de la mente; *ca*—y; *indriyāṇām*—de los sentidos de acción y percepción; *ca*—y; *bhūtānām mahatām*—de los cinco elementos densos; *api*—también.

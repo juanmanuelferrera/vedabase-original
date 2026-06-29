@@ -1,11 +1,11 @@
 ### SB 9.15.30
 
-> अचोदयद्धस्तिरथाश्वपत्तिभिर्गदासिबाणर्ष्टिशतघ्निशक्तिभिः
+> अचोदयद्धस्तिरथाश्वपत्तिभिर्गदासिबाणर्ष्टिशतघ्निशक्तिभिः\
 > अक्षौहिणीः सप्तदशातिभीषणास्ता राम एको भगवानसूदयत ॥३०॥
 
-> acodayad dhasti-rathāśva-pattibhir
-> gadāsi-bāṇarṣṭi-śataghni-śaktibhiḥ
-> akṣauhiṇīḥ sapta-daśātibhīṣaṇās
+> acodayad dhasti-rathāśva-pattibhir\
+> gadāsi-bāṇarṣṭi-śataghni-śaktibhiḥ\
+> akṣauhiṇīḥ sapta-daśātibhīṣaṇās\
 > tā rāma eko bhagavān asūdayat
 
 *acodayat*—envió a la lucha; *hasti*—con elefantes; *ratha*—con cuadrigas; *aśva*—con caballos; *pattibhiḥ*—y con infantería; *gadā*—con mazas; *asi*—con espadas; *bāṇa*—con flechas; *ṛṣṭi*—con las armas llamadas *ṛṣṭis*; *śataghni*—con armas llamadas *śataghnis*; *śaktibhiḥ*—con armas llamadas *śaktis*; *akṣauhiṇīḥ*—grupos completos de *akṣauhiṇīs*; *sapta-daśa*—diecisiete; *ati-bhīṣaṇāḥ*—muy terribles; *tāḥ*—a todos ellos; *rāmaḥ*—el Señor Paraśurāma; *ekaḥ*—solo; *bhagavān*—la Suprema Personalidad de Dios; *asūdayat*—mató.

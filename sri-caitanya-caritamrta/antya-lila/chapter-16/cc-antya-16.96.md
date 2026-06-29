@@ -1,9 +1,9 @@
 ### CC Antya 16.96
 
-> ‘সুকৃতি-লভ্য ফেলা-লব’ — বলেন বারবার ।
+> ‘সুকৃতি-লভ্য ফেলা-লব’ — বলেন বারবার ।\
 > ঈশ্বর-সেবক পুছে, — ‘কি অর্থ ইহার’ ? ॥ ৯৬ ॥
 
-> 'sukṛti-labhya phelā-lava'—balena bāra-bāra
+> 'sukṛti-labhya phelā-lava'—balena bāra-bāra\
 > īśvara-sevaka puche,—'ki artha ihāra'?
 
 *sukṛti*—by great fortune; *labhya*—obtainable; *phelā-lava*—a particle of the remnants; *balena*—says; *bāra-bāra*—again and again; *īśvara-sevaka*—the servants of Jagannātha; *puche*—inquire; *ki*—what; *artha*—the meaning; *ihāra*—of this.

@@ -1,11 +1,11 @@
 ### SB 4.7.19
 
-> तदा स्वप्रभया तेषां द्योतयन्त्या दिशो दश ।
+> तदा स्वप्रभया तेषां द्योतयन्त्या दिशो दश ।\
 > मुष्णंस्तेज उपानीतस्तार्क्ष्येण स्तोत्रवाजिना ॥१९॥
 
-> tadā sva-prabhayā teṣāṁ
-> dyotayantyā diśo daśa
-> muṣṇaṁs teja upānītas
+> tadā sva-prabhayā teṣāṁ\
+> dyotayantyā diśo daśa\
+> muṣṇaṁs teja upānītas\
 > tārkṣyeṇa stotra-vājinā
 
 *tadā*—en ese instante; *sva-prabhayā*—por Su propia refulgencia; *teṣām*—todos ellos; *dyotayantyā*—por el brillo; *diśaḥ*—las direcciones; *daśa*—diez; *muṣṇan*—disminuir; *tejaḥ*—refulgencia; *upānītaḥ*—traído; *tārkṣyeṇa*—por Garuḍa; *stotra-vājinā*—cuyas alas reciben los nombres de Bṛhat y Rathantara.

@@ -1,9 +1,9 @@
 ### CC Antya 5.88
 
-> শ্রীচৈতন্যলীলা এই — অমৃতের সিন্ধু ।
+> শ্রীচৈতন্যলীলা এই — অমৃতের সিন্ধু ।\
 > ত্রিজগৎ ভাসাইতে পারে যার এক বিন্দু ॥৮৮॥
 
-> śrī-caitanya-līlā ei—amṛtera sindhu
+> śrī-caitanya-līlā ei—amṛtera sindhu\
 > trijagat bhāsāite pāre yāra eka bindu
 
 *śrī-caitanya-līlā*—transcendental activities of Śrī Caitanya Mahāprabhu; *ei*—these; *amṛtera sindhu*—the ocean of nectar; *tri-jagat*—the three worlds; *bhāsāite*—to inundate; *pāre*—is able; *yāra*—of which; *eka bindu*—one drop.

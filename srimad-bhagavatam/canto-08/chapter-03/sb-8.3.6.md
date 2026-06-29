@@ -1,11 +1,11 @@
 ### SB 8.3.6
 
-> न यस्य देवा ऋषयः पदं विदुर्जन्तुः पुनः कोऽर्हति गन्तुमीरितुम
+> न यस्य देवा ऋषयः पदं विदुर्जन्तुः पुनः कोऽर्हति गन्तुमीरितुम\
 > यथा नटस्याकृतिभिर्विचेष्टतो दुरत्ययानुक्रमणः स मावतु ॥६॥
 
-> na yasya devā ṛṣayaḥ padaṁ vidur
-> jantuḥ punaḥ ko 'rhati gantum īritum
-> yathā naṭasyākṛtibhir viceṣṭato
+> na yasya devā ṛṣayaḥ padaṁ vidur\
+> jantuḥ punaḥ ko 'rhati gantum īritum\
+> yathā naṭasyākṛtibhir viceṣṭato\
 > duratyayānukramaṇaḥ sa māvatu
 
 *na*—neither; *yasya*—He of whom; *devāḥ*—the demigods; *ṛṣayaḥ*—great sages; *padam*—position; *viduḥ*—can understand; *jantuḥ*—unintelligent living beings like animals; *punaḥ*—again; *kaḥ*—who; *arhati*—is able; *gantum*—to enter into the knowledge; *īritum*—or to express by words; *yathā*—as; *naṭasya*—of the artist; *ākṛtibhiḥ*—by bodily features; *viceṣṭataḥ*—dancing in different ways; *duratyaya*—very difficult; *anukramaṇaḥ*—His movements; *saḥ*—that Supreme Personality of Godhead; *mā*—unto me; *avatu*—may give His protection.

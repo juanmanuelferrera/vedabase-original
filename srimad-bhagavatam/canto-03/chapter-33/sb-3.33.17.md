@@ -1,11 +1,11 @@
 ### SB 3.33.17
 
-> स्वच्छस्फटिककुड्येषु महामारकतेषु च ।
+> स्वच्छस्फटिककुड्येषु महामारकतेषु च ।\
 > रत्नप्रदीपा आभान्ति ललना रत्नसंयुताः ॥१७॥
 
-> svaccha-sphaṭika-kuḍyeṣu
-> mahā-mārakateṣu ca
-> ratna-pradīpā ābhānti
+> svaccha-sphaṭika-kuḍyeṣu\
+> mahā-mārakateṣu ca\
+> ratna-pradīpā ābhānti\
 > lalanā ratna-saṁyutāḥ
 
 *svaccha*—pure; *sphaṭika*—marble; *kuḍyeṣu*—on the walls; *mahā-mārakateṣu*—decorated with valuable emeralds; *ca*—and; *ratna-pradīpāḥ*—jewel lamps; *ābhānti*—shine; *lalanāḥ*—women; *ratna*—with jewelry; *saṁyutāḥ*—decorated.

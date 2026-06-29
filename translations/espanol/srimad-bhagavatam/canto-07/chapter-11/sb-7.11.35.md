@@ -1,11 +1,11 @@
 ### SB 7.11.35
 
-> यस्य यल्लक्षणं प्रोक्तं पुंसो वर्णाभिव्यञ्जकम
+> यस्य यल्लक्षणं प्रोक्तं पुंसो वर्णाभिव्यञ्जकम\
 > यदन्यत्रापि दृश्येत तत्तेनैव विनिर्दिशेत ॥३५॥
 
-> yasya yal lakṣaṇaṁ proktaṁ
-> puṁso varṇābhivyañjakam
-> yad anyatrāpi dṛśyeta
+> yasya yal lakṣaṇaṁ proktaṁ\
+> puṁso varṇābhivyañjakam\
+> yad anyatrāpi dṛśyeta\
 > tat tenaiva vinirdiśet
 
 *yasya*—de quien; *yat*—que; *lakṣaṇam*—característica; *proktam*—descrita (antes); *puṁsaḥ*—de una persona; *varṇa-abhivyañjakam*—que indica la clasificación (*brāhmaṇa*, *kṣatriya*, *vaiśya*, *śūdra*, etc.); *yat*—si; *anyatra*—en otro lugar; *api*—también; *dṛśyeta*—se ven; *tat*—eso; *tena*—por esa característica; *eva*—ciertamente; *vinirdiśet*—se debe identificar.

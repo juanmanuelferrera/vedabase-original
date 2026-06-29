@@ -1,9 +1,9 @@
 ### CC Adi 14.33
 
-> আত্ম লুকাইতে প্রভু বলিলা তাঁহারে ।
+> আত্ম লুকাইতে প্রভু বলিলা তাঁহারে ।\
 > “আগে কেন ইহা, মাতা, না শিখালে মোরে ॥৩৩॥
 
-> ātma lukāite prabhu balilā tāṅhāre
+> ātma lukāite prabhu balilā tāṅhāre\
 > "āge kena ihā, mātā, nā śikhāle more
 
 *ātma*—a Sí mismo; *lukāite*—para ocultar; *prabhu*—el Señor; *balilā*—respondió; *tāṅhāre*—a Śacīmātā; *āge*—al principio; *kena*—por qué; *ihā*—esto; *mātā*—Mi querida madre; *nā śikhāle*—no enseñaste; *more*—a Mí.

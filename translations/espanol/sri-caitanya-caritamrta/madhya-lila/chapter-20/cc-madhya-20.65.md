@@ -1,9 +1,9 @@
 ### CC Madhya 20.65
 
-> ‘কেমনে ছুটিলা’ বলি প্রভু প্রশ্ন কৈলা ।
+> ‘কেমনে ছুটিলা’ বলি প্রভু প্রশ্ন কৈলা ।\
 > আদ্যোপান্ত সব কথা তেঁহো শুনাইলা ॥৬৫॥
 
-> 'kemane chuṭilā' bali prabhu praśna kailā
+> 'kemane chuṭilā' bali prabhu praśna kailā\
 > ādyopānta saba kathā teṅho śunāilā
 
 *kemane chuṭilā*—cómo fuiste liberado; *bali*—diciendo; *prabhu*—Śrī Caitanya Mahāprabhu; *praśna kailā*—preguntó; *ādya-upānta*—de principio a fin; *saba*—toda; *kathā*—la narración; *teṅho*—él; *śunāilā*—describió.

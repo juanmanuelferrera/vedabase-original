@@ -1,11 +1,11 @@
 ### SB 9.8.25
 
-> प्रशान्त मायागुणकर्मलिङ्गमनामरूपं सदसद्विमुक्तम
+> प्रशान्त मायागुणकर्मलिङ्गमनामरूपं सदसद्विमुक्तम\
 > ज्ञआनोपदेशाय गृहीतदेहं नमामहे त्वां पुरुषं पुराणम ॥२५॥
 
-> tvan-māyā-racite loke
-> vastu-buddhyā gṛhādiṣu
-> bhramanti kāma-lobherṣyā-
+> tvan-māyā-racite loke\
+> vastu-buddhyā gṛhādiṣu\
+> bhramanti kāma-lobherṣyā-\
 > moha-vibhrānta-cetasaḥ
 
 *tvat-māyā*—por medio de Tu energía material; *racite*—que es fabricado; *loke*—en este mundo; *vastu-buddhyā*—considerar real; *gṛha-ādiṣu*—en el hogar, la familia, etc.; *bhramanti*—vagan; *kāma*—por deseos de disfrute; *lobha*—por codicia; *īrṣyā*—por envidia; *moha*—y por ilusión; *vibhrānta*—está confundido; *cetasaḥ*—lo más profundo de cuyo corazón.

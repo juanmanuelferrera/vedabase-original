@@ -1,9 +1,9 @@
 ### CC Antya 19.28
 
-> মহাযোগেশ্বর আচার্য — তরজাতে সমর্থ ।
+> মহাযোগেশ্বর আচার্য — তরজাতে সমর্থ ।\
 > আমিহ বুঝিতে নারি তরজার অর্থ ।।’ ॥ ২৮ ॥
 
-> mahā-yogeśvara ācārya—tarajāte samartha
+> mahā-yogeśvara ācārya—tarajāte samartha\
 > āmiha bujhite nāri tarajāra artha'
 
 *mahā-yogeśvara*—the greatest mystic; *ācārya*—Advaita Ācārya; *tarajāte samartha*—very expert in writing sonnets; *āmiha*—and yet I; *bujhite*—to understand; *nāri*—am not able; *tarajāra*—of the sonnet; *artha*—the meaning.

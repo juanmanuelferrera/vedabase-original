@@ -1,18 +1,18 @@
 ### SB 9.14.15-16
 
-> ततः पुरूरवा जज्ञए इलायां य उदाहृतः
-> तस्य रूपगुणौदार्य शीलद्रविणविक्रमान ॥१५॥
-> श्रुत्वोर्वशीन्द्रभवने गीयमानान्सुरर्षिणा
+> ततः पुरूरवा जज्ञए इलायां य उदाहृतः\
+> तस्य रूपगुणौदार्य शीलद्रविणविक्रमान ॥१५॥\
+> श्रुत्वोर्वशीन्द्रभवने गीयमानान्सुरर्षिणा\
 > तदन्तिकमुपेयाय देवी स्मरशरार्दिता ॥१६॥
 
-> tataḥ purūravā jajñe
-> ilāyāṁ ya udāhṛtaḥ
-> tasya rūpa-guṇaudārya-
+> tataḥ purūravā jajñe\
+> ilāyāṁ ya udāhṛtaḥ\
+> tasya rūpa-guṇaudārya-\
 > śīla-draviṇa-vikramān
 
-> śrutvorvaśīndra-bhavane
-> gīyamānān surarṣiṇā
-> tad-antikam upeyāya
+> śrutvorvaśīndra-bhavane\
+> gīyamānān surarṣiṇā\
+> tad-antikam upeyāya\
 > devī smara-śarārditā
 
 *tataḥ*—from him (Budha); *purūravāḥ*—the son named Purūravā; *jajñe*—was born; *ilāyām*—in the womb of Ilā; *yaḥ*—one who; *udāhṛtaḥ*—has already been described (in the beginning of the Ninth Canto); *tasya*—his (Purūravā's); *rūpa*—beauty; *guṇa*—qualities; *audārya*—magnanimity; *śīla*—behavior; *draviṇa*—wealth; *vikramān*—power; *śrutvā*—by hearing; *urvaśī*—the celestial woman named Urvaśī; *indra-bhavane*—in the court of King Indra; *gīyamānān*—when they were being described; *sura-ṛṣiṇā*—by Nārada; *tat-antikam*—near him; *upeyāya*—approached; *devī*—Urvaśī; *smara-śara*—by the arrows of Cupid; *arditā*—being stricken.

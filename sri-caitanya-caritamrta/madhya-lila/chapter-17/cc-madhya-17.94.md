@@ -1,9 +1,9 @@
 ### CC Madhya 17.94
 
-> চন্দ্রশেখর কহে, — “প্রভু, বড় কৃপা কৈলা ।
+> চন্দ্রশেখর কহে, — “প্রভু, বড় কৃপা কৈলা ।\
 > আপনে আসিয়া ভৃত্যে দরশন দিলা ॥৯৪॥
 
-> candraśekhara kahe,—"prabhu, baḍa kṛpā kailā
+> candraśekhara kahe,—"prabhu, baḍa kṛpā kailā\
 > āpane āsiyā bhṛtye daraśana dilā
 
 *candraśekhara kahe*—Candraśekhara said; *prabhu*—my dear Lord; *baḍa kṛpā kailā*—You have shown Your causeless mercy; *āpane*—personally; *āsiyā*—coming; *bhṛtye*—unto Your servant; *daraśana dilā*—gave Your audience.

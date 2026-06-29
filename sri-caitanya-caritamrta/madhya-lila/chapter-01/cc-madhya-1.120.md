@@ -1,9 +1,9 @@
 ### CC Madhya 1.120
 
-> ব্রহ্মসংহিতা, কর্ণামৃত, দুই পুঁথি পাঞা ।
+> ব্রহ্মসংহিতা, কর্ণামৃত, দুই পুঁথি পাঞা ।\
 > দুই পুস্তক লঞা আইলা উত্তম জানিঞা ॥১২০॥
 
-> brahma-saṁhitā, karṇāmṛta, dui puṅthi pāñā
+> brahma-saṁhitā, karṇāmṛta, dui puṅthi pāñā\
 > dui pustaka lañā āilā uttama jāniñā
 
 *brahma-saṁhitā*—the book named *Brahma-saṁhitā*; *karṇāmṛta*—the book named *Kṛṣṇa-karṇāmṛta*; *dui*—two; *puṅthi*—scriptures; *pāñā*—obtaining; *dui*—two; *pustaka*—books; *lañā*—carrying; *āilā*—came back; *uttama*—very good; *jāniñā*—knowing.

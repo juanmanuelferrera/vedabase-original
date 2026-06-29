@@ -1,9 +1,9 @@
 ### CC Adi 5.14
 
-> প্রকৃতির পার ‘পরব্যোম’-নামে ধাম ।
+> প্রকৃতির পার ‘পরব্যোম’-নামে ধাম ।\
 > কৃষ্ণবিগ্রহ যৈছে বিভূত্যাদি-গুণবান্ ॥১৪॥
 
-> prakṛtira pāra 'paravyoma'-nāme dhāma
+> prakṛtira pāra 'paravyoma'-nāme dhāma\
 > kṛṣṇa-vigraha yaiche vibhūty-ādi-guṇavān
 
 *prakṛtira*—the material nature; *pāra*—beyond; *para-vyoma*—the spiritual sky; *nāme*—in name; *dhāma*—the place; *kṛṣṇa-vigraha*—the form of Lord Kṛṣṇa; *yaiche*—just as; *vibhūti-ādi*—like the six opulences; *guṇa-vān*—full with transcendental attributes.

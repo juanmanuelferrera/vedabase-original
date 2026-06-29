@@ -1,9 +1,9 @@
 ### CC Madhya 17.183
 
-> ‘মূর্খ’-লোক করিবেক তোমার নিন্দন । 
+> ‘মূর্খ’-লোক করিবেক তোমার নিন্দন । \
 > সহিতে না পারিমু সেই ‘দুষ্টে’র বচন ॥১৮৩॥
 
-> 'mūrkha'-loka karibeka tomāra nindana
+> 'mūrkha'-loka karibeka tomāra nindana\
 > sahite nā pārimu sei 'duṣṭe'ra vacana
 
 *mūrkha-loka*—personas necias; *karibeka*—harán; *tomāra nindana*—blasfemia contra Ti; *sahite nā pārimu*—no podré tolerar; *sei*—esas; *duṣṭera vacana*—palabras de personas malintencionadas.

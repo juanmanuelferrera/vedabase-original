@@ -1,9 +1,9 @@
 Introduction
 
-> om ajñāna-timirāndhasya jñānāñjana-śalākayā
+> om ajñāna-timirāndhasya jñānāñjana-śalākayā\
 > cakṣur unmīlitaṁ yena tasmai śrī-gurave namaḥ
 
-> śrī-caitanya-mano ’bhīṣṭaṁ sthāpitaṁ yena bhū-tale
+> śrī-caitanya-mano ’bhīṣṭaṁ sthāpitaṁ yena bhū-tale\
 > svayaṁ rūpaḥ kadā mahyaṁ dadāti sva-padāntikam
 
 I was born in the darkest ignorance, and my spiritual master opened my eyes with the torch of knowledge. I offer my respectful obeisances unto him.

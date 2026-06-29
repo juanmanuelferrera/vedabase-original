@@ -1,9 +1,9 @@
 ### CC Adi 16.25
 
-> তবে বিষ্ণুপ্রিয়া-ঠাকুরাণীর পরিণয় ।
+> তবে বিষ্ণুপ্রিয়া-ঠাকুরাণীর পরিণয় ।\
 > তবে ত’ করিল প্রভু দিগ্বিজয়ী জয় ॥২৫॥
 
-> tabe viṣṇupriyā-ṭhākurāṇīra pariṇaya
+> tabe viṣṇupriyā-ṭhākurāṇīra pariṇaya\
 > tabe ta' karila prabhu digvijayī jaya
 
 *tabe*—after this; *viṣṇupriyā*—of the name Viṣṇupriyā; *ṭhākurāṇīra*—of the goddess of fortune; *pariṇaya*—marriage; *tabeta'*—thereafter; *karila*—did; *prabhu*—the Lord; *dig-vijayī*—the champion; *jaya*—conquer.

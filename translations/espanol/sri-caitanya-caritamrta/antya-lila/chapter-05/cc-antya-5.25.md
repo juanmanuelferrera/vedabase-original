@@ -1,9 +1,9 @@
 ### CC Antya 5.25
 
-> তবে সেই দুইজনে প্রসাদ খাওয়াইলা ।
+> তবে সেই দুইজনে প্রসাদ খাওয়াইলা ।\
 > নিভৃতে দুঁহারে নিজ-ঘরে পাঠাইলা ॥২৫॥
 
-> tabe sei dui-jane prasāda khāoyāilā
+> tabe sei dui-jane prasāda khāoyāilā\
 > nibhṛte duṅhāre nija-ghare pāṭhāilā
 
 *tabe*—entonces; *sei*—a esas; *dui-jane*—dos doncellas; *prasāda khāoyāilā*—dio prasādam para que comiesen; *nibhṛte*—sin quedar expuestas; *duṅhāre*—a ambas; *nija-ghare*—a sus hogares; *pāṭhāilā*—envió.

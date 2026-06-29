@@ -1,13 +1,13 @@
 ### SB 1.11.36
 
-> उद्दामभावपिशुनामलवल्गुहास
-> व्रीडावलोकनिहतो मदनोऽपि यासाम् ।
-> सम्मुह्य चापमजहात्प्रमदोत्तमास्ता
+> उद्दामभावपिशुनामलवल्गुहास\
+> व्रीडावलोकनिहतो मदनोऽपि यासाम् ।\
+> सम्मुह्य चापमजहात्प्रमदोत्तमास्ता\
 > यस्येन्द्रियं विमथितुं कुहकैर्न शेकुः ॥३६॥
 
-> uddāma-bhāva-piśunāmala-valgu-hāsa-
-> vrīḍāvaloka-nihato madano 'pi yāsām
-> sammuhya cāpam ajahāt pramadottamās tā
+> uddāma-bhāva-piśunāmala-valgu-hāsa-\
+> vrīḍāvaloka-nihato madano 'pi yāsām\
+> sammuhya cāpam ajahāt pramadottamās tā\
 > yasyendriyaṁ vimathituṁ kuhakair na śekuḥ
 
 *uddāma*—muy grave; *bhāva*—expresión; *piśuna*—apasionantes; *amala*—inmaculadas; *valgu-hāsa*—hermosa sonrisa; *vrīḍa*—el rabillo del ojo; *avaloka*—mirando; *nihataḥ*—conquistaron; *madanaḥ*—Cupido (o *amadana*: el muy tolerante Śiva); *api*—también; *yāsām*—cuyos; *sammuhya*—siendo dominado por; *cāpam*—arcos; *ajahāt*—abandonar; *pramada*—mujer que enloquece; *uttamāḥ*—de alto grado; *tā*—todos; *yasya*—cuyos; *indriyam*—sentidos; *vimathitum*—perturbar; *kuhakaiḥ*—mediante actos de magia; *na*—nunca; *śekuḥ*—pudo.

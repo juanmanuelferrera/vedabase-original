@@ -1,9 +1,9 @@
 ### CC Madhya 8.291
 
-> আমি — এক বাতুল, তুমি দ্বিতীয় — বাতুল ৷
+> আমি — এক বাতুল, তুমি দ্বিতীয় — বাতুল ৷\
 > অতএব তোমায় আমায় হই সমতুল ৷৷ ২৯১ ৷৷ ॥২৯১॥
 
-> āmi--eka bātula, tumi--dvitīya bātula
+> āmi--eka bātula, tumi--dvitīya bātula\
 > ataeva tomāya āmāya ha-i sama-tula
 
 *āmi*—Yo; *eka*—uno; *bātula*—loco; *tumi*—tú; *dvitīya*—segundo; *bātula*—loco; *ataeva*—por lo tanto; *tomāya*—tú; *āmāya*—a Mí; *ha-i*—somos; *sama-tula*—en el mismo nivel.

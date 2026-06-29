@@ -1,11 +1,11 @@
 ### SB 9.2.28
 
-> अमाद्यदिन्द्रः सोमेन दक्षिणाभिर्द्विजातयः
+> अमाद्यदिन्द्रः सोमेन दक्षिणाभिर्द्विजातयः\
 > मरुतः परिवेष्टारो विश्वेदेवाः सभासदः ॥२८॥
 
-> amādyad indraḥ somena
-> dakṣiṇābhir dvijātayaḥ
-> marutaḥ pariveṣṭāro
+> amādyad indraḥ somena\
+> dakṣiṇābhir dvijātayaḥ\
+> marutaḥ pariveṣṭāro\
 > viśvedevāḥ sabhā-sadaḥ
 
 *amādyat*—became intoxicated; *indraḥ*—the King of heaven, Lord Indra; *somena*—by drinking the intoxicant *soma-rasa*; *dakṣiṇābhiḥ*—by receiving sufficient contributions; *dvijātayaḥ*—the brahminical group; *marutaḥ*—the airs; *pariveṣṭāraḥ*—offering the foodstuffs; *viśvedevāḥ*—universal demigods; *sabhā-sadaḥ*—members of the assembly.

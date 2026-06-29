@@ -1,11 +1,11 @@
 ### SB 6.10.24
 
-> न तेऽदृश्यन्त सञ्छन्नाः शरजालैः समन्ततः
+> न तेऽदृश्यन्त सञ्छन्नाः शरजालैः समन्ततः\
 > पुङ्खानुपुङ्खपतितैर्ज्योतींषीव नभोघनैः ॥२४॥
 
-> na te 'dṛśyanta sañchannāḥ
-> śara-jālaiḥ samantataḥ
-> puṅkhānupuṅkha-patitair
+> na te 'dṛśyanta sañchannāḥ\
+> śara-jālaiḥ samantataḥ\
+> puṅkhānupuṅkha-patitair\
 > jyotīṁṣīva nabho-ghanaiḥ
 
 *na*—not; *te*—they (the demigods); *adṛśyanta*—were seen; *sañchannāḥ*—being completely covered; *śara-jālaiḥ*—by networks of arrows; *samantataḥ*—all around; *puṅkha-anupuṅkha*—one arrow after another; *patitaiḥ*—falling; *jyotīṁṣi iva*—like the stars in the sky; *nabhaḥ-ghanaiḥ*—by the dense clouds.

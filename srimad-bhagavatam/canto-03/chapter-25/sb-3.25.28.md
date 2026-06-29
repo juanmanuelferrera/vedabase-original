@@ -1,13 +1,13 @@
 ### SB 3.25.28
 
-> देवहूतिरुवाच
-> काचित्त्वय्युचिता भक्तिः कीदृशी मम गोचरा ।
+> देवहूतिरुवाच\
+> काचित्त्वय्युचिता भक्तिः कीदृशी मम गोचरा ।\
 > यया पदं ते निर्वाणमञ्जसान्वाश्नवा अहम् ॥२८॥
 
-> devahūtir uvāca
-> kācit tvayy ucitā bhaktiḥ
-> kīdṛśī mama gocarā
-> yayā padaṁ te nirvāṇam
+> devahūtir uvāca\
+> kācit tvayy ucitā bhaktiḥ\
+> kīdṛśī mama gocarā\
+> yayā padaṁ te nirvāṇam\
 > añjasānvāśnavā aham
 
 *devahūtiḥ uvāca*—Devahūti said; *kācit*—what; *tvayi*—unto You; *ucitā*—proper; *bhaktiḥ*—devotional service; *kīdṛśī*—what kind; *mama*—by me; *go-carā*—fit to be practiced; *yayā*—by which; *padam*—feet; *te*—Your; *nirvāṇam*—liberation; *añjasā*—immediately; *anvāśnavai*—shall attain; *aham*—I.

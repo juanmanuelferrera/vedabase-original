@@ -1,9 +1,9 @@
 ### CC Madhya 7.130
 
-> এই মত যাঁর ঘরে করে প্রভু ভিক্ষা ৷
+> এই মত যাঁর ঘরে করে প্রভু ভিক্ষা ৷\
 > সেই ঐছে কহে, তাঁরে করায় এই শিক্ষা ৷৷ ১৩০ ৷৷ ॥১৩০॥
 
-> ei mata yāṅra ghare kare prabhu bhikṣā
+> ei mata yāṅra ghare kare prabhu bhikṣā\
 > sei aiche kahe, tāṅre karāya ei śikṣā
 
 *ei mata*—de esta manera; *yāṅra*—de quien; *ghare*—en la casa; *kare*—hace; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *bhikṣā*—aceptar *prasādam*; *sei*—aquella persona; *aiche*—de forma similar; *kahe*—dice; *tāṅre*—a él; *karāya*—da; *ei*—esta; *śikṣā*—enseñanza.

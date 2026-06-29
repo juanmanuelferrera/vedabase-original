@@ -1,9 +1,9 @@
 ### CC Adi 16.23
 
-> ঘরে আইলা প্রভু বহু লঞা ধন-জন ।
+> ঘরে আইলা প্রভু বহু লঞা ধন-জন ।\
 > তত্ত্ব-জ্ঞানে কৈলা শচীর দুঃখ বিমোচন ॥২৩॥
 
-> ghare āilā prabhu bahu lañā dhana-jana
+> ghare āilā prabhu bahu lañā dhana-jana\
 > tattva-jñāne kailā śacīra duḥkha vimocana
 
 *ghare*—home; *āilā*—returned; *prabhu*—the Lord; *bahu*—much; *lañā*—bringing; *dhana*—riches; *jana*—followers; *tattva-jñāne*—by transcendental knowledge; *kailā*—did; *śacīra*—of Śacīmātā; *duḥkha*—the unhappiness; *vimocana*—relieving.

@@ -1,9 +1,9 @@
 ### CC Madhya 4.117
 
-> সন্ধ্যায় ভোগ লাগে ক্ষীর — ‘অমৃতকেলি’-নাম ।
+> সন্ধ্যায় ভোগ লাগে ক্ষীর — ‘অমৃতকেলি’-নাম ।\
 > দ্বাদশ মৃৎপাত্রে ভরি’ অমৃত-সমান ॥১১৭॥
 
-> sandhyāya bhoga lāge kṣīra—'amṛta-keli'-nāma
+> sandhyāya bhoga lāge kṣīra—'amṛta-keli'-nāma\
 > dvādaśa mṛt-pātre bhari' amṛta-samāna
 
 *sandhyāya*—in the evening; *bhoga*—foods; *lāge*—they offer; *kṣīra*—sweet rice; *amṛta-keli-nāma*—named *amṛta-keli*; *dvādaśa*—twelve; *mṛt-pātre*—earthen pots; *bhari'*—filling; *amṛta-samāna*—just like nectar.

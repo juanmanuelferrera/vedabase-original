@@ -1,11 +1,11 @@
 ### SB 1.2.18
 
-> नष्टप्रायेष्वभद्रेषु नित्यं भागवतसेवया ।
+> नष्टप्रायेष्वभद्रेषु नित्यं भागवतसेवया ।\
 > भगवत्युत्तमश्लोके भक्तिर्भवति नैष्ठिकी ॥१८॥
 
-> naṣṭa-prāyeṣv abhadreṣu
-> nityaṁ bhāgavata-sevayā
-> bhagavaty uttama-śloke
+> naṣṭa-prāyeṣv abhadreṣu\
+> nityaṁ bhāgavata-sevayā\
+> bhagavaty uttama-śloke\
 > bhaktir bhavati naiṣṭhikī
 
 *naṣṭa*—destroyed; *prāyeṣu*—almost to nil; *abhadreṣu*—all that is inauspicious; *nityam*—regularly; *bhāgavata*—*Śrīmad-Bhāgavatam,* or the pure devotee; *sevayā*—by serving; *bhagavati*—unto the Personality of Godhead; *uttama*—transcendental; *śloke*—prayers; *bhaktiḥ*—loving service; *bhavati*—comes into being; *naiṣṭhikī*—irrevocable.

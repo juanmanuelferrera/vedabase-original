@@ -1,11 +1,11 @@
 ### SB 2.1.4
 
-> देहापत्यकलत्रादिष्वात्मसैन्येष्वसत्स्वपि ।
+> देहापत्यकलत्रादिष्वात्मसैन्येष्वसत्स्वपि ।\
 > तेषां प्रमत्तो निधनं पश्यन्नपि न पश्यति ॥४॥
 
-> dehāpatya-kalatrādiṣv
-> ātma-sainyeṣv asatsv api
-> teṣāṁ pramatto nidhanaṁ
+> dehāpatya-kalatrādiṣv\
+> ātma-sainyeṣv asatsv api\
+> teṣāṁ pramatto nidhanaṁ\
 > paśyann api na paśyati
 
 *deha*—body; *apatya*—children; *kalatra*—wife; *ādiṣu*—and in everything in relation to them; *ātma*—own; *sainyeṣu*—fighting soldiers; *asatsu*—fallible; *api*—in spite of; *teṣām*—of all of them; *pramattaḥ*—too attached; *nidhanam*—destruction; *paśyan*—having been experienced; *api*—although; *na*—does not; *paśyati*—see it.

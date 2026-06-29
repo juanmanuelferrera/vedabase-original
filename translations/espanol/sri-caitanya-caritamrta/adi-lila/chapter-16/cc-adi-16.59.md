@@ -1,9 +1,9 @@
 ### CC Adi 16.59
 
-> ‘দ্বিতীয় শ্রীলক্ষ্মী’ — ইহাঁ ‘দ্বিতীয়ত্ব’ বিধেয় ।
+> ‘দ্বিতীয় শ্রীলক্ষ্মী’ — ইহাঁ ‘দ্বিতীয়ত্ব’ বিধেয় ।\
 > সমাসে গৌণ হৈল, শব্দার্থ গেল ক্ষয় ॥৫৯॥
 
-> 'dvitīya śrī-lakṣmī'--ihāṅ 'dvitīyatva' vidheya
+> 'dvitīya śrī-lakṣmī'--ihāṅ 'dvitīyatva' vidheya\
 > samāse gauṇa haila, śabdārtha gela kṣaya
 
 *dvitīya śrī-lakṣmī*—la palabra *dvitīya-śrī-lakṣmī* («la todoopulenta diosa de la fortuna»); *ihāṅ*—esto; *dvitīyatva*—la cualidad de ser una segunda; *vidheya*—lo desconocido, que debe explicarse; *samāse*—en la palabra compuesta; *gauṇa*—secundario; *haila*—se volvió; *śabda-artha*—el significado pretendido de la palabra; *gela*—quedó; *kṣaya*—perdido.

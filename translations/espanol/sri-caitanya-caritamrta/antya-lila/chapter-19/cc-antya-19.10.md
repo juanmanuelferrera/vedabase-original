@@ -1,9 +1,9 @@
 ### CC Antya 19.10
 
-> এই অপরাধ তুমি না লইহ আমার ।
+> এই অপরাধ তুমি না লইহ আমার ।\
 > তোমার অধীন আমি — পুত্র সে তোমার ॥১০॥
 
-> ei aparādha tumi nā la-iha āmāra
+> ei aparādha tumi nā la-iha āmāra\
 > tomāra adhīna āmi--putra se tomāra
 
 *ei aparādha*—esta ofensa; *tumi*—tú; *nā*—no; *la-iha*—tomes; *āmāra*—Mía; *tomāra*—de ti; *adhīna*—dependiente; *āmi*—Yo; *putra*—hijo; *se*—eso; *tomāra*—tuyo.

@@ -1,11 +1,11 @@
 ### Bg 1.43
 
-> उत्सन्नकुलधर्माणां मनुष्याणां जनार्दन ।
+> उत्सन्नकुलधर्माणां मनुष्याणां जनार्दन ।\
 > नरके नियतं वासो भवतीत्यनुशुश्रुम ॥४३॥
 
-> utsanna-kula-dharmāṇāṁ
-> manuṣyāṇāṁ janārdana
-> narake niyataṁ vāso
+> utsanna-kula-dharmāṇāṁ\
+> manuṣyāṇāṁ janārdana\
+> narake niyataṁ vāso\
 > bhavatīty anuśuśruma
 
 *utsanna*—arruinado; *kula-dharmāṇām*—de aquellos que tienen las tradiciones familiares; *manuṣyāṇām*—de dichos hombres; *janārdana*—¡oh, Kṛṣṇa!; *narake*—en el infierno; *niyatam*—siempre; *vāsaḥ*—residencia; *bhavati*—así se vuelve; *iti*—así pues; *anuśuśruma*—he oído a través de la sucesión discipular.

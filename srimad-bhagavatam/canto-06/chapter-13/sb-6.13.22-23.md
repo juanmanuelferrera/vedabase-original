@@ -1,18 +1,18 @@
 ### SB 6.13.22-23
 
-> इदं महाख्यानमशेषपाप्मनां प्रक्षालनं तीर्थपदानुकीर्तनम
-> भक्त्युच्छ्रयं भक्तजनानुवर्णनं महेन्द्रमोक्षं विजयं मरुत्वतः ॥२२॥
-> पठेयुराख्यानमिदं सदा बुधाः शृण्वन्त्यथो पर्वणि पर्वणीन्द्रियम
+> इदं महाख्यानमशेषपाप्मनां प्रक्षालनं तीर्थपदानुकीर्तनम\
+> भक्त्युच्छ्रयं भक्तजनानुवर्णनं महेन्द्रमोक्षं विजयं मरुत्वतः ॥२२॥\
+> पठेयुराख्यानमिदं सदा बुधाः शृण्वन्त्यथो पर्वणि पर्वणीन्द्रियम\
 > धन्यं यशस्यं निखिलाघमोचनं रिपुञ्जयं स्वस्त्ययनं तथायुषम ॥२३॥
 
-> idaṁ mahākhyānam aśeṣa-pāpmanāṁ
-> prakṣālanaṁ tīrthapadānukīrtanam
-> bhakty-ucchrayaṁ bhakta-janānuvarṇanaṁ
+> idaṁ mahākhyānam aśeṣa-pāpmanāṁ\
+> prakṣālanaṁ tīrthapadānukīrtanam\
+> bhakty-ucchrayaṁ bhakta-janānuvarṇanaṁ\
 > mahendra-mokṣaṁ vijayaṁ marutvataḥ
 
-> paṭheyur ākhyānam idaṁ sadā budhāḥ
-> śṛṇvanty atho parvaṇi parvaṇīndriyam
-> dhanyaṁ yaśasyaṁ nikhilāgha-mocanaṁ
+> paṭheyur ākhyānam idaṁ sadā budhāḥ\
+> śṛṇvanty atho parvaṇi parvaṇīndriyam\
+> dhanyaṁ yaśasyaṁ nikhilāgha-mocanaṁ\
 > ripuñjayaṁ svasty-ayanaṁ tathāyuṣam
 
 *idam*—this; *mahā-ākhyānam*—great historical incident; *aśeṣa-pāpmanām*—of unlimited numbers of sinful acts; *prakṣālanam*—cleansing; *tīrthapada-anukīrtanam*—glorifying the Supreme Personality of Godhead, who is known as Tīrthapada; *bhakti*—of devotional service; *ucchrayam*—in which there is an increase; *bhakta-jana*—the devotees; *anuvarṇanam*—describing; *mahā-indra-mokṣam*—the liberation of the King of heaven; *vijayam*—the victory; *marutvataḥ*—of King Indra; *paṭheyuḥ*—should read; *ākhyānam*—narration; *idam*—this; *sadā*—always; *budhāḥ*—learned scholars; *śṛṇvanti*—continue to hear; *atho*—as well; *parvaṇi parvaṇi*—on the occasion of great festivals; *indriyam*—which makes the senses sharp; *dhanyam*—brings wealth; *yaśasyam*—brings fame; *nikhila*—all; *agha-mocanam*—releasing from sins; *ripum-jayam*—makes one victorious over his enemies; *svasti-ayanam*—brings good fortune for all; *tathā*—so also; *āyuṣam*—longevity.

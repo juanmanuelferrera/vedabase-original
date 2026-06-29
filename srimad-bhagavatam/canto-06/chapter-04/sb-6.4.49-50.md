@@ -1,18 +1,18 @@
 ### SB 6.4.49-50
 
-> स वै यदा महादेवो मम वीर्योपबृंहितः
-> मेने खिलमिवात्मानमुद्यतः स्वर्गकर्मणि ॥४९॥
-> अथ मेऽभिहितो देवस्तपोऽतप्यत दारुणम
+> स वै यदा महादेवो मम वीर्योपबृंहितः\
+> मेने खिलमिवात्मानमुद्यतः स्वर्गकर्मणि ॥४९॥\
+> अथ मेऽभिहितो देवस्तपोऽतप्यत दारुणम\
 > नव विश्वसृजो युष्मान्येनादावसृजद्विभुः ॥५०॥
 
-> sa vai yadā mahādevo
-> mama vīryopabṛṁhitaḥ
-> mene khilam ivātmānam
+> sa vai yadā mahādevo\
+> mama vīryopabṛṁhitaḥ\
+> mene khilam ivātmānam\
 > udyataḥ svarga-karmaṇi
 
-> atha me 'bhihito devas
-> tapo 'tapyata dāruṇam
-> nava viśva-sṛjo yuṣmān
+> atha me 'bhihito devas\
+> tapo 'tapyata dāruṇam\
+> nava viśva-sṛjo yuṣmān\
 > yenādāv asṛjad vibhuḥ
 
 *saḥ*—that Lord Brahmā; *vai*—indeed; *yadā*—when; *mahā-devaḥ*—the chief of all the demigods; *mama*—My; *vīrya-upabṛṁhitaḥ*—being increased by the potency; *mene*—thought; *khilam*—incapable; *iva*—as if; *ātmānam*—himself; *udyataḥ*—attempting; *svarga-karmaṇi*—in the creation of the universal affairs; *atha*—at that time; *me*—by Me; *abhihitaḥ*—advised; *devaḥ*—that Lord Brahmā; *tapaḥ*—austerity; *atapyata*—performed; *dāruṇam*—extremely difficult; *nava*—nine; *viśva-sṛjaḥ*—important personalities to create the universe; *yuṣmān*—all of you; *yena*—by whom; *ādau*—in the beginning; *asṛjat*—created; *vibhuḥ*—the great.

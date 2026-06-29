@@ -1,9 +1,9 @@
 ### CC Madhya 22.135
 
-> ‘এক’ অঙ্গে সিদ্ধি পাইল বহু ভক্তগণ ।
+> ‘এক’ অঙ্গে সিদ্ধি পাইল বহু ভক্তগণ ।\
 > অম্বরীষাদি ভক্তের ‘বহু’ অঙ্গ-সাধন ॥১৩৫॥
 
-> 'eka' aṅge siddhi pāila bahu bhakta-gaṇa
+> 'eka' aṅge siddhi pāila bahu bhakta-gaṇa\
 > ambarīṣādi bhaktera 'bahu' aṅga-sādhana
 
 *eka aṅge*—con una parte; *siddhi*—perfección; *pāila*—alcanzaron; *bahu*—muchos; *bhakta-gaṇa*—devotos; *ambarīṣa-ādi*—el rey Ambarīṣa Mahārāja y otros; *bhaktera*—de los devotos; *bahu aṅga-sādhana*—ejecución de muchos procesos del servicio devocional.

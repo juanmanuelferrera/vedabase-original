@@ -1,11 +1,11 @@
 ### SB 8.16.58
 
-> एतत्पयोव्रतं नाम पुरुषाराधनं परम
+> एतत्पयोव्रतं नाम पुरुषाराधनं परम\
 > पितामहेनाभिहितं मया ते समुदाहृतम ॥५८॥
 
-> etat payo-vrataṁ nāma
-> puruṣārādhanaṁ param
-> pitāmahenābhihitaṁ
+> etat payo-vrataṁ nāma\
+> puruṣārādhanaṁ param\
+> pitāmahenābhihitaṁ\
 > mayā te samudāhṛtam
 
 *etat*—esta; *payaḥ-vratam*—ceremonia denominada *payo-vrata*; *nāma*—con ese nombre; *puruṣa-ārādhanam*—el proceso de adorar a la Suprema Personalidad de Dios; *param*—el mejor; *pitāmahena*—por mi abuelo, el Señor Brahmā; *abhihitam*—explicado; *mayā*—por mí; *te*—a ti; *samudāhṛtam*—explicado con todo detalle.

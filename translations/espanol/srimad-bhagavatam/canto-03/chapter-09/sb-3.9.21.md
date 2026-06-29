@@ -1,13 +1,13 @@
 ### SB 3.9.21
 
-> यन्नाभिपद्मभवनादहमासमीड्य
-> लोकत्रयोपकरणो यदनुग्रहेण ।
-> तस्मै नमस्त उदरस्थभवाय योग
+> यन्नाभिपद्मभवनादहमासमीड्य\
+> लोकत्रयोपकरणो यदनुग्रहेण ।\
+> तस्मै नमस्त उदरस्थभवाय योग\
 > निद्रावसानविकसन्नलिनेक्षणाय ॥२१॥
 
-> yan-nābhi-padma-bhavanād aham āsam īḍya
-> loka-trayopakaraṇo yad-anugraheṇa
-> tasmai namas ta udara-stha-bhavāya yoga-
+> yan-nābhi-padma-bhavanād aham āsam īḍya\
+> loka-trayopakaraṇo yad-anugraheṇa\
+> tasmai namas ta udara-stha-bhavāya yoga-\
 > nidrāvasāna-vikasan-nalinekṣaṇāya
 
 *yat*—cuyo; *nābhi*—ombligo; *padma*—loto; *bhavanāt*—de la casa de; *aham*—yo; *āsam*—me manifesté; *īḍya*—¡oh, Tú, el adorable!; *loka-traya*—los tres mundos; *upakaraṇaḥ*—ayudando en la creación de; *yat*—cuya; *anugraheṇa*—por la misericordia; *tasmai*—a Él; *namaḥ*—mis reverencias; *te*—a Ti; *udara-stha*—situado dentro del abdomen; *bhavāya*—teniendo el universo; *yoga-nidrā-avasāna*—después del final de ese sueño trascendental; *vikasat*—floreciendo; *nalina-īkṣaṇāya*—a aquel cuyos ojos que se están abriendo son como lotos.

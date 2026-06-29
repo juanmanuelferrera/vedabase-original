@@ -1,9 +1,9 @@
 ### CC Adi 16.73
 
-> শব্দালঙ্কার — তিনপাদে আছে অনুপ্রাস ।
+> শব্দালঙ্কার — তিনপাদে আছে অনুপ্রাস ।\
 > ‘শ্রীলক্ষ্মী’ শব্দে ‘পুনরুক্তবদাভাস’ ॥৭৩॥
 
-> śabdālaṅkāra--tina-pāde āche anuprāsa
+> śabdālaṅkāra--tina-pāde āche anuprāsa\
 > 'śrī-lakṣmī' śabde 'punar-uktavad-ābhāsa'
 
 *śabda-alaṅkāra*—ornamento de sonido; *tina-pāde*—en tres líneas; *āche*—hay; *anuprāsa*—aliteración; *śrī-lakṣmī-śabde*—en las palabras śrī-lakṣmī; *punar-ukta-vat*—de repetición de la misma palabra; *ābhāsa*—hay un matiz.

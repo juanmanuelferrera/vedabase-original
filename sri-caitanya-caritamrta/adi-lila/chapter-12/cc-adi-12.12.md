@@ -1,9 +1,9 @@
 ### CC Adi 12.12
 
-> ধান্যরাশি মাপে যৈছে পাত্না সহিতে ।
+> ধান্যরাশি মাপে যৈছে পাত্না সহিতে ।\
 > পশ্চাতে পাত্না উড়াঞা সংস্কার করিতে ॥১২॥
 
-> dhānya-rāśi māpe yaiche pātnā sahite
+> dhānya-rāśi māpe yaiche pātnā sahite\
 > paścāte pātnā uḍāñā saṁskāra karite
 
 *dhānya-rāśi*—heaps of paddy; *māpe*—measures; *yaiche*—as it is; *pātnā*—useless straw; *sahite*—with; *paścāte*—later; *pātnā*—useless straw; *uḍāñā*—fanning; *saṁskāra*—purification; *karite*—to do.

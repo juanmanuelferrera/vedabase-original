@@ -1,9 +1,9 @@
 ### CC Madhya 24.34
 
-> কান্তাগণের রতি পায় ‘মহাভাব’-সীমা ।
+> কান্তাগণের রতি পায় ‘মহাভাব’-সীমা ।\
 > ‘ভক্তি’-শব্দের এই সব অর্থের মহিমা ॥৩৪॥
 
-> kāntā-gaṇera rati pāya 'mahābhāva'-sīmā
+> kāntā-gaṇera rati pāya 'mahābhāva'-sīmā\
 > 'bhakti'-śabdera ei saba arthera mahimā
 
 *kāntā-gaṇera*—of the devotees in conjugal love; *rati*—the attraction; *pāya*—attain; *mahā-bhāva-sīmā*—the limit of *mahābhāva*; *bhakti*—devotional service; *śabdera*—of the word; *ei saba*—all these; *arthera*—of the meanings; *mahimā*—of the glories.

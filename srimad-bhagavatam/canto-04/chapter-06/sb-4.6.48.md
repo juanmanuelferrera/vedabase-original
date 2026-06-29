@@ -1,11 +1,11 @@
 ### SB 4.6.48
 
-> यस्मिन्यदा पुष्करनाभमायया दुरन्तया स्पृष्टधियः पृथग्दृशः ।
+> यस्मिन्यदा पुष्करनाभमायया दुरन्तया स्पृष्टधियः पृथग्दृशः ।\
 > कुर्वन्ति तत्र ह्यनुकम्पया कृपां न साधवो दैवबलात्कृते क्रमम् ॥४८॥
 
-> yasmin yadā puṣkara-nābha-māyayā
-> durantayā spṛṣṭa-dhiyaḥ pṛthag-dṛśaḥ
-> kurvanti tatra hy anukampayā kṛpāṁ
+> yasmin yadā puṣkara-nābha-māyayā\
+> durantayā spṛṣṭa-dhiyaḥ pṛthag-dṛśaḥ\
+> kurvanti tatra hy anukampayā kṛpāṁ\
 > na sādhavo daiva-balāt kṛte kramam
 
 *yasmin*—in some place; *yadā*—when; *puṣkara-nābha-māyayā*—by the illusory energy of Puṣkaranābha, the Supreme Personality of Godhead; *durantayā*—insurmountable; *spṛṣṭa-dhiyaḥ*—bewildered; *pṛthak-dṛśaḥ*—the same persons who see differently; *kurvanti*—do; *tatra*—there; *hi*—certainly; *anukampayā*—out of compassion; *kṛpām*—mercy; *na*—never; *sādhavaḥ*—saintly persons; *daiva-balāt*—by providence; *kṛte*—being done; *kramam*—prowess.

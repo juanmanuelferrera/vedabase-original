@@ -1,11 +1,11 @@
 ### SB 3.30.13
 
-> एवं स्वभरणाकल्पं तत्कलत्रादयस्तथा ।
+> एवं स्वभरणाकल्पं तत्कलत्रादयस्तथा ।\
 > नाद्रियन्ते यथा पूर्वं कीनाशा इव गोजरम् ॥१३॥
 
-> evaṁ sva-bharaṇākalpaṁ
-> tat-kalatrādayas tathā
-> nādriyante yathā pūrvaṁ
+> evaṁ sva-bharaṇākalpaṁ\
+> tat-kalatrādayas tathā\
+> nādriyante yathā pūrvaṁ\
 > kīnāśā iva go-jaram
 
 *evam*—thus; *sva-bharaṇa*—to maintain them; *akalpam*—unable; *tat*—his; *kalatra*—wife; *ādayaḥ*—and so on; *tathā*—so; *na*—not; *ādriyante*—do respect; *yathā*—as; *pūrvam*—before; *kīnāśāḥ*—farmers; *iva*—like; *go-jaram*—an old ox.

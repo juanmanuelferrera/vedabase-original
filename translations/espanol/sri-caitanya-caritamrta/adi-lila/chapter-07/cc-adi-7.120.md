@@ -1,9 +1,9 @@
 ### CC Adi 7.120
 
-> হেন জীবতত্ত্ব লঞা লিখি’ পরতত্ত্ব ।
+> হেন জীবতত্ত্ব লঞা লিখি’ পরতত্ত্ব ।\
 > আচ্ছন্ন করিল শ্রেষ্ঠ ঈশ্বর-মহত্ত্ব ॥১২০॥
 
-> hena jīva-tattva lañā likhi' para-tattva
+> hena jīva-tattva lañā likhi' para-tattva\
 > ācchanna karila śreṣṭha īśvara-mahattva
 
 *hena*—tales degradadas; *jīva-tattva*—las entidades vivientes; *lañā*—tomándolas; *likhi'*—habiendo escrito; *para-tattva*—como el Supremo; *ācchanna*—cubriendo; *karila*—hizo; *śreṣṭha*—la Suprema Personalidad de Dios; *īśvara*—del Señor; *mahattva*—las glorias.

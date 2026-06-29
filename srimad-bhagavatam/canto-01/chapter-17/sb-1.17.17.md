@@ -1,13 +1,13 @@
 ### SB 1.17.17
 
-> धर्म उवाच
-> एतद्वः पाण्डवेयानां युक्तमार्ताभयं वचः ।
+> धर्म उवाच\
+> एतद्वः पाण्डवेयानां युक्तमार्ताभयं वचः ।\
 > येषां गुणगणैः कृष्णो दौत्यादौ भगवान्कृतः ॥१७॥
 
-> dharma uvāca
-> etad vaḥ pāṇḍaveyānāṁ
-> yuktam ārtābhayaṁ vacaḥ
-> yeṣāṁ guṇa-gaṇaiḥ kṛṣṇo
+> dharma uvāca\
+> etad vaḥ pāṇḍaveyānāṁ\
+> yuktam ārtābhayaṁ vacaḥ\
+> yeṣāṁ guṇa-gaṇaiḥ kṛṣṇo\
 > dautyādau bhagavān kṛtaḥ
 
 *dharmaḥ uvāca*—the personality of religion said; *etat*—all these; *vaḥ*—by you; *pāṇḍaveyānām*—of those who are in the Pāṇḍava dynasty; *yuktam*—just befitting; *ārta*—the sufferer; *abhayam*—freedom from all fears; *vacaḥ*—speeches; *yeṣām*—those; *guṇa-gaṇaiḥ*—by the qualifications; *kṛṣṇaḥ*—even Lord Kṛṣṇa; *dautya-ādau*—the duty of a messenger, etc.; *bhagavān*—the Personality of Godhead; *kṛtaḥ*—performed.

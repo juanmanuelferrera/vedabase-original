@@ -1,11 +1,11 @@
 ### CC Madhya 21.83
 
-> জানন্ত এব জানন্তু কিং বহূক্ত্যা ন মে প্রভো ।
+> জানন্ত এব জানন্তু কিং বহূক্ত্যা ন মে প্রভো ।\
 > মনসো বপুষো বাচো বৈভবং তব গোচরঃ ॥৮৩॥
 
-> jānanta eva jānantu
-> kiṁ bahūktyā na me prabho
-> manaso vapuṣo vāco
+> jānanta eva jānantu\
+> kiṁ bahūktyā na me prabho\
+> manaso vapuṣo vāco\
 > vaibhavaṁ tava gocaraḥ
 
 *jānantaḥ*—personas que piensan que conocen Tu potencia ilimitada; *eva*—ciertamente; *jānantu*—que piensen así; *kim*—cuál es la utilidad; *bahu-uktyā*—con muchas palabras; *na*—no; *me*—mi; *prabho*—¡oh, mi Señor!; *manasaḥ*—de la mente; *vapuṣaḥ*—del cuerpo; *vācaḥ*—de las palabras; *vaibhavam*—opulencias; *tava*—Tus; *gocaraḥ*—al alcance.

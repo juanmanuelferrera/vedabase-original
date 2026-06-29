@@ -1,11 +1,11 @@
 ### SB 2.8.2
 
-> एतद्वेदितुमिच्छामि तत्त्वं तत्त्वविदां वर ।
+> एतद्वेदितुमिच्छामि तत्त्वं तत्त्वविदां वर ।\
 > हरेरद्भुतवीर्यस्य कथा लोकसुमङ्गलाः ॥२॥
 
-> etad veditum icchāmi
-> tattvaṁ tattva-vidāṁ vara
-> harer adbhuta-vīryasya
+> etad veditum icchāmi\
+> tattvaṁ tattva-vidāṁ vara\
+> harer adbhuta-vīryasya\
 > kathā loka-sumaṅgalāḥ
 
 *etat*—this; *veditum*—to understand; *icchāmi*—I wish; *tattvam*—truth; *tattva-vidām*—of those who are well versed in the Absolute Truth; *vara*—O best; *hareḥ*—of the Lord; *adbhuta-vīryasya*—of the one who possesses wonderful potencies; *kathāḥ*—narrations; *loka*—for all planets; *su-maṅgalāḥ*—auspicious.

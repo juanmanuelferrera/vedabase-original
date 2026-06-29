@@ -1,9 +1,9 @@
 ### CC Madhya 6.137
 
-> স্বতঃপ্রমাণ বেদ সত্য যেই কয় ।
+> স্বতঃপ্রমাণ বেদ সত্য যেই কয় ।\
 > ‘লক্ষণা’ করিলে স্বতঃপ্রামাণ্য-হানি হয় ॥১৩৭॥
 
-> svataḥ-pramāṇa veda satya yei kaya
+> svataḥ-pramāṇa veda satya yei kaya\
 > 'lakṣaṇā' karile svataḥ-prāmāṇya-hāni haya
 
 *svataḥ-pramāṇa*—autoevidentes; *veda*—la literatura Védica; *satya*—la verdad; *yei*—cualquier cosa que; *kaya*—dice; *lakṣaṇā*—interpretación; *karile*—al hacer; *svataḥ-prāmāṇya*—la prueba autoevidente; *hāni*—perdida; *haya*—queda.

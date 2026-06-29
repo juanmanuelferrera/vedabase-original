@@ -1,9 +1,9 @@
 ### CC Madhya 4.162
 
-> এত বলি’ গোপাল গেল, গোসাঞি জাগিলা ।
+> এত বলি’ গোপাল গেল, গোসাঞি জাগিলা ।\
 > গোপীনাথের সেবকগণে ডাকিয়া আনিলা ॥১৬২॥
 
-> eta bali' gopāla gela, gosāñi jāgilā
+> eta bali' gopāla gela, gosāñi jāgilā\
 > gopīnāthera sevaka-gaṇe ḍākiyā ānilā
 
 *eta bali'*—diciendo esto; *gopāla*—la Deidad de Gopāla; *gela*—desapareció; *gosāñi jāgilā*—Mādhavendra Purī despertó; *gopīnāthera*—del Señor Gopīnātha; *sevaka-gaṇe*—a los sirvientes; *ḍākiyā*—llamando; *ānilā*—los trajo.

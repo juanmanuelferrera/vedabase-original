@@ -1,13 +1,13 @@
 ### SB 4.31.5
 
-> प्रचेतस ऊचुः
-> स्वागतं ते सुरर्षेऽद्य दिष्ट्या नो दर्शनं गतः ।
+> प्रचेतस ऊचुः\
+> स्वागतं ते सुरर्षेऽद्य दिष्ट्या नो दर्शनं गतः ।\
 > तव चङ्क्रमणं ब्रह्मन्नभयाय यथा रवेः ॥५॥
 
-> pracetasa ūcuḥ
-> svāgataṁ te surarṣe 'dya
-> diṣṭyā no darśanaṁ gataḥ
-> tava caṅkramaṇaṁ brahmann
+> pracetasa ūcuḥ\
+> svāgataṁ te surarṣe 'dya\
+> diṣṭyā no darśanaṁ gataḥ\
+> tava caṅkramaṇaṁ brahmann\
 > abhayāya yathā raveḥ
 
 *pracetasaḥ ūcuḥ*—the Pracetās said; *su-āgatam*—welcome; *te*—unto you; *sura-ṛṣe*—O sage among the demigods; *adya*—today; *diṣṭyā*—by good fortune; *naḥ*—of us; *darśanam*—audience; *gataḥ*—you have come; *tava*—your; *caṅkramaṇam*—movements; *brahman*—O great *brāhmaṇa*; *abhayāya*—for fearlessness; *yathā*—as; *raveḥ*—of the sun.

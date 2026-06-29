@@ -1,9 +1,9 @@
 ### CC Antya 1.76
 
-> সবে একা স্বরূপ গোসাঞি শ্লোকের অর্থ জানে ।
+> সবে একা স্বরূপ গোসাঞি শ্লোকের অর্থ জানে ।\
 > শ্লোকানুরূপ পদ প্রভুকে করান আস্বাদনে ॥৭৬॥
 
-> sabe ekā svarūpa gosāñi ślokera artha jāne
+> sabe ekā svarūpa gosāñi ślokera artha jāne\
 > ślokānurūpa pada prabhuke karāna āsvādane
 
 *sabe*—solo; *ekā*—uno; *svarūpa gosāñi*—Svarūpa Dāmodara Gosvāmī; *ślokera artha*—el significado de aquel verso; *jāne*—sabe; *śloka-anurūpa pada*—otros versos en consonancia con aquel verso en particular; *prabhuke*—a Śrī Caitanya Mahāprabhu; *karāna*—hace que; *āsvādane*—saboree.

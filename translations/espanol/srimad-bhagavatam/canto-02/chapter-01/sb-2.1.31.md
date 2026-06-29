@@ -1,11 +1,11 @@
 ### SB 2.1.31
 
-> छन्दांस्यनन्तस्य शिरो गृणन्ति दंष्ट्रा यमः स्नेहकला द्विजानि ।
+> छन्दांस्यनन्तस्य शिरो गृणन्ति दंष्ट्रा यमः स्नेहकला द्विजानि ।\
 > हासो जनोन्मादकरी च माया दुरन्तसर्गो यदपाङ्गमोक्षः ॥३१॥
 
-> chandāṁsy anantasya śiro gṛṇanti
-> daṁṣṭrā yamaḥ sneha-kalā dvijāni
-> hāso janonmāda-karī ca māyā
+> chandāṁsy anantasya śiro gṛṇanti\
+> daṁṣṭrā yamaḥ sneha-kalā dvijāni\
+> hāso janonmāda-karī ca māyā\
 > duranta-sargo yad-apāṅga-mokṣaḥ
 
 *chandāṁsi*—los himnos védicos; *anantasya*—del Supremo; *śiraḥ*—el conducto cerebral; *gṛṇanti*—dicen ellos; *daṁṣṭrāḥ*—las mandíbulas en las que se hallan los dientes; *yamaḥ*—Yamarājā, el director de los pecadores; *sneha-kalāḥ*—el arte del afecto; *dvijāni*—los dientes; *hāsaḥ*—sonrisa; *jana-unmāda-karī*—de lo más seductora; *ca*—también; *māyā*—energía ilusoria; *duranta*—insuperable; *sargaḥ*—la creación material; *yat-apāṅga*—cuya mirada; *mokṣaḥ*—lanzando.

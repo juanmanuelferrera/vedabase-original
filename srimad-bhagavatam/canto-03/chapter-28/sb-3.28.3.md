@@ -1,11 +1,11 @@
 ### SB 3.28.3
 
-> ग्राम्यधर्मनिवृत्तिश्च मोक्षधर्मरतिस्तथा ।
+> ग्राम्यधर्मनिवृत्तिश्च मोक्षधर्मरतिस्तथा ।\
 > मितमेध्यादनं शश्वद्विविक्तक्षेमसेवनम् ॥३॥
 
-> grāmya-dharma-nivṛttiś ca
-> mokṣa-dharma-ratis tathā
-> mita-medhyādanaṁ śaśvad
+> grāmya-dharma-nivṛttiś ca\
+> mokṣa-dharma-ratis tathā\
+> mita-medhyādanaṁ śaśvad\
 > vivikta-kṣema-sevanam
 
 *grāmya*—conventional; *dharma*—religious practice; *nivṛttiḥ*—ceasing; *ca*—and; *mokṣa*—for salvation; *dharma*—religious practice; *ratiḥ*—being attracted to; *tathā*—in that way; *mita*—little; *medhya*—pure; *adanam*—eating; *śaśvat*—always; *vivikta*—secluded; *kṣema*—peaceful; *sevanam*—dwelling.

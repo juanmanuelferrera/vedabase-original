@@ -1,13 +1,13 @@
 ### CC Antya 17.36
 
-> ধর্ম ছাড়ায় বেণুদ্বারে, হানে কটাক্ষ-কামশরে,
-> লজ্জা, ভয়, সকল ছাড়ায় ।
-> এবে আমায় করি’ রোষ, কহি’ পতিত্যাগে ‘দোষ’,
+> ধর্ম ছাড়ায় বেণুদ্বারে, হানে কটাক্ষ-কামশরে,\
+> লজ্জা, ভয়, সকল ছাড়ায় ।\
+> এবে আমায় করি’ রোষ, কহি’ পতিত্যাগে ‘দোষ’,\
 > ধার্মিক হঞা ধর্ম শিখায় ! ॥ ৩৬ ॥
 
-> dharma chāḍāya veṇu-dvāre, hāne kaṭākṣa-kāma-śare,
-> lajjā, bhaya, sakala chāḍāya
-> ebe āmāya kari' roṣa, kahi' pati-tyāge 'doṣa',
+> dharma chāḍāya veṇu-dvāre, hāne kaṭākṣa-kāma-śare,\
+> lajjā, bhaya, sakala chāḍāya\
+> ebe āmāya kari' roṣa, kahi' pati-tyāge 'doṣa',\
 > dhārmika hañā dharma śikhāya!
 
 *dharma*—religious principles; *chāḍāya*—induces to reject; *veṇu-dvāre*—through the flute; *hāne*—pierces; *kaṭākṣa*—glancing; *kāma-śare*—by the arrows of lust; *lajjā*—shame; *bhaya*—fear; *sakala*—all; *chāḍāya*—induces to give up; *ebe*—now; *āmāya*—at us; *kari' roṣa*—becoming angry; *kahi'*—saying; *pati-tyāge*—to give up one's husband; *doṣa*—fault; *dhārmika*—very religious; *hañā*—becoming; *dharma*—religious principles; *śikhāya*—You teach.

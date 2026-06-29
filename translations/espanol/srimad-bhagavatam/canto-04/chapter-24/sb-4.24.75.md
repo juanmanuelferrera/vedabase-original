@@ -1,11 +1,11 @@
 ### SB 4.24.75
 
-> श्रेयसामिह सर्वेषां ज्ञानं निःश्रेयसं परम् ।
+> श्रेयसामिह सर्वेषां ज्ञानं निःश्रेयसं परम् ।\
 > सुखं तरति दुष्पारं ज्ञाननौर्व्यसनार्णवम् ॥७५॥
 
-> śreyasām iha sarveṣāṁ
-> jñānaṁ niḥśreyasaṁ param
-> sukhaṁ tarati duṣpāraṁ
+> śreyasām iha sarveṣāṁ\
+> jñānaṁ niḥśreyasaṁ param\
+> sukhaṁ tarati duṣpāraṁ\
 > jñāna-naur vyasanārṇavam
 
 *śreyasām*—de todas las bendiciones; *iha*—en este mundo; *sarveṣām*—de cada persona; *jñānam*—conocimiento; *niḥśreyasam*—el beneficio supremo; *param*—trascendental; *sukham*—felicidad; *tarati*—atraviesa; *duṣpāram*—insuperable; *jñāna*—conocimiento; *nauḥ*—nave; *vyasana*—peligro; *arṇavam*—el océano.

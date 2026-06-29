@@ -1,14 +1,14 @@
 ### SB 9.22.32
 
-> करेणुमत्यां नकुलो नरमित्रं तथार्जुनः
-> इरावन्तमुलुप्यां वै सुतायां बभ्रुवाहनम
+> करेणुमत्यां नकुलो नरमित्रं तथार्जुनः\
+> इरावन्तमुलुप्यां वै सुतायां बभ्रुवाहनम\
 > मणिपुरपतेः सोऽपि तत्पुत्रः पुत्रिकासुतः ॥३२॥
 
-> kareṇumatyāṁ nakulo
-> naramitraṁ tathārjunaḥ
-> irāvantam ulupyāṁ vai
-> sutāyāṁ babhruvāhanam
-> maṇipura-pateḥ so 'pi
+> kareṇumatyāṁ nakulo\
+> naramitraṁ tathārjunaḥ\
+> irāvantam ulupyāṁ vai\
+> sutāyāṁ babhruvāhanam\
+> maṇipura-pateḥ so 'pi\
 > tat-putraḥ putrikā-sutaḥ
 
 *kareṇumatyām*—en la esposa llamada Kareṇumatī; *nakulaḥ*—Nakula; *naramitram*—un hijo llamado Naramitra; *tathā*—también; *arjunaḥ*—Arjuna; *irāvantam*—Irāvān; *ulupyām*—en el vientre de Ulupī, la *naga-kanyā*; *vai*—en verdad; *sutāyām*—en la hija; *babhruvāhanam*—un hijo llamado Babhruvāhana; *maṇipura-pateḥ*—del rey de Maṇipura; *saḥ*—él; *api*—aunque; *tat-putraḥ*—el hijo de Arjuna; *putrikā-sutaḥ*—el hijo de su abuelo materno.

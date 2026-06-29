@@ -1,9 +1,9 @@
 ### CC Antya 5.82
 
-> ভক্তগুণ প্রকাশিতে প্রভু ভাল জানে ।
+> ভক্তগুণ প্রকাশিতে প্রভু ভাল জানে ।\
 > নানা-ভঙ্গীতে গুণ প্রকাশি’ নিজ-লাভ মানে ॥৮২॥
 
-> bhakta-guṇa prakāśite prabhu bhāla jāne
+> bhakta-guṇa prakāśite prabhu bhāla jāne\
 > nānā-bhaṅgīte guṇa prakāśi' nija-lābha māne
 
 *bhakta-guṇa*—the attributes of a devotee; *prakāśite*—to manifest; *prabhu*—Śrī Caitanya Mahāprabhu; *bhāla jāne*—knows very well how; *nānā-bhaṅgīte*—by various ways; *guṇa*—attributes; *prakāśi'*—manifesting; *nija-lābha*—His profit; *māne*—He considers.

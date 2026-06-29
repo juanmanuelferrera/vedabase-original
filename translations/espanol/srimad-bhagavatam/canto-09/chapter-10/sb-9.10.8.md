@@ -1,13 +1,13 @@
 ### SB 9.10.8
 
-> यः सत्यपाशपरिवीतपितुर्निदेशं
-> स्त्रैणस्य चापि शिरसा जगृहे सभार्यः
-> राज्यं श्रियं प्रणयिनः सुहृदो निवासं
+> यः सत्यपाशपरिवीतपितुर्निदेशं\
+> स्त्रैणस्य चापि शिरसा जगृहे सभार्यः\
+> राज्यं श्रियं प्रणयिनः सुहृदो निवासं\
 > त्यक्त्वा ययौ वनमसूनिव मुक्तसङ्गः ॥८॥
 
-> yaḥ satya-pāśa-parivīta-pitur nideśaṁ
-> straiṇasya cāpi śirasā jagṛhe sabhāryaḥ
-> rājyaṁ śriyaṁ praṇayinaḥ suhṛdo nivāsaṁ
+> yaḥ satya-pāśa-parivīta-pitur nideśaṁ\
+> straiṇasya cāpi śirasā jagṛhe sabhāryaḥ\
+> rājyaṁ śriyaṁ praṇayinaḥ suhṛdo nivāsaṁ\
 > tyaktvā yayau vanam asūn iva mukta-saṅgaḥ
 
 *yaḥ*—el Señor Rāmacandra, el cual; *satya-pāśa-parivīta-pituḥ*—de Su padre, que se vio atado por la promesa que hizo a su esposa; *nideśam*—la orden; *straiṇasya*—del padre, que estaba muy apegado a la esposa; *ca*—también; *api*—en verdad; *śirasā*—sobre Su cabeza; *jagṛhe*—aceptó; *sa-bhāryaḥ*—con Su esposa; *rājyam*—el reino; *śriyam*—la opulencia; *praṇayinaḥ*—los familiares; *suhṛdaḥ*—los amigos; *nivāsam*—la residencia; *tyaktvā*—abandonando; *yayau*—fueron; *vanam*—al bosque; *asūn*—vida; *iva*—como; *mukta-saṅgaḥ*—un alma liberada.

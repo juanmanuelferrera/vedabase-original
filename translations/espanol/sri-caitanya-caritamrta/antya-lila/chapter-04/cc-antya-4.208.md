@@ -1,9 +1,9 @@
 ### CC Antya 4.208
 
-> যে-কালে বিদায় হৈলা প্রভুর চরণে ।
+> যে-কালে বিদায় হৈলা প্রভুর চরণে ।\
 > দুইজনার বিচ্ছেদ-দশা না যায় বর্ণনে ॥২০৮॥
 
-> ye-kāle vidāya hailā prabhura caraṇe
+> ye-kāle vidāya hailā prabhura caraṇe\
 > dui-janāra viccheda-daśā nā yāya varṇane
 
 *ye-kāle*—cuando; *vidāya*—despedida; *hailā*—hubo; *prabhura caraṇe*—a los pies de loto de Śrī Caitanya Mahāprabhu; *dui-janāra*—de ambos; *viccheda-daśā*—la condición de separación; *nā yāya varṇane*—no se puede describir.

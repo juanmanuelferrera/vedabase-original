@@ -1,9 +1,9 @@
 ### CC Antya 2.117
 
-> প্রভু কহে, — “বৈরাগী করে প্রকৃতি সম্ভাষণ ।
+> প্রভু কহে, — “বৈরাগী করে প্রকৃতি সম্ভাষণ ।\
 > দেখিতে না পারোঁ আমি তাহার বদন ॥১১৭॥
 
-> prabhu kahe,—"vairāgī kare prakṛti sambhāṣaṇa
+> prabhu kahe,—"vairāgī kare prakṛti sambhāṣaṇa\
 > dekhite nā pāroṅ āmi tāhāra vadana
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu replied; *vairāgī*—a person in the renounced order of life; *kare*—does; *prakṛti sambhāṣaṇa*—intimate talking with a woman; *dekhite nā pāroṅ*—cannot see; *āmi*—I; *tāhāra vadana*—his face.

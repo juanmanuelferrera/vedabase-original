@@ -1,11 +1,11 @@
 ### SB 3.17.5
 
-> ववौ वायुः सुदुःस्पर्शः फूत्कारानीरयन्मुहुः ।
+> ववौ वायुः सुदुःस्पर्शः फूत्कारानीरयन्मुहुः ।\
 > उन्मूलयन्नगपतीन्वात्यानीको रजोध्वजः ॥५॥
 
-> vavau vāyuḥ suduḥsparśaḥ
-> phūt-kārān īrayan muhuḥ
-> unmūlayan naga-patīn
+> vavau vāyuḥ suduḥsparśaḥ\
+> phūt-kārān īrayan muhuḥ\
+> unmūlayan naga-patīn\
 > vātyānīko rajo-dhvajaḥ
 
 *vavau*—soplaban; *vāyuḥ*—los vientos; *su-duḥsparśaḥ*—desagradables al tacto; *phūt-kārān*—sonidos siseantes; *īrayan*—emitiendo; *muhuḥ*—una y otra vez; *unmūlayan*—arranacando de raíz; *naga-patīn*—árboles gigantescos; *vātyā*—aire ciclónico; *anīkaḥ*—tropas; *rajaḥ*—polvo; *dhvajaḥ*—emblemas.

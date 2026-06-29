@@ -1,11 +1,11 @@
 ### SB 6.15.20
 
-> तदैव ते परं ज्ञआनं ददामि गृहमागतः
+> तदैव ते परं ज्ञआनं ददामि गृहमागतः\
 > ज्ञआत्वान्याभिनिवेशं ते पुत्रमेव ददाम्यहम ॥२०॥
 
-> tadaiva te paraṁ jñānaṁ
-> dadāmi gṛham āgataḥ
-> jñātvānyābhiniveśaṁ te
+> tadaiva te paraṁ jñānaṁ\
+> dadāmi gṛham āgataḥ\
+> jñātvānyābhiniveśaṁ te\
 > putram eva dadāmy aham
 
 *tadā*—entonces; *eva*—ciertamente; *te*—a ti; *param*—trascendental; *jñānam*—conocimiento; *dadāmi*—te habría entregado; *gṛham*—a tu casa; *āgataḥ*—vine; *jñātvā*—conociendo; *anya-abhiniveśam*—absorción en algo más (en cosas materiales); *te*—tuyo; *putram*—un hijo; *eva*—solamente; *dadāmi*—di; *aham*—yo.

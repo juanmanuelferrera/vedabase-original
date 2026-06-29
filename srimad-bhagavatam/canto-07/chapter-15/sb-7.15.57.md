@@ -1,11 +1,11 @@
 ### SB 7.15.57
 
-> आदावन्ते जनानां सद्बहिरन्तः परावरम
+> आदावन्ते जनानां सद्बहिरन्तः परावरम\
 > ज्ञआनं ज्ञएयं वचो वाच्यं तमो ज्योतिस्त्वयं स्वयम ॥५७॥
 
-> ādāv ante janānāṁ sad
-> bahir antaḥ parāvaram
-> jñānaṁ jñeyaṁ vaco vācyaṁ
+> ādāv ante janānāṁ sad\
+> bahir antaḥ parāvaram\
+> jñānaṁ jñeyaṁ vaco vācyaṁ\
 > tamo jyotis tv ayaṁ svayam
 
 *ādau*—in the beginning; *ante*—at the end; *janānām*—of all living entities; *sat*—always existing; *bahiḥ*—externally; *antaḥ*—internally; *para*—transcendental; *avaram*—material; *jñānam*—knowledge; *jñeyam*—the objective; *vacaḥ*—expression; *vācyam*—the ultimate object; *tamaḥ*—darkness; *jyotiḥ*—light; *tu*—indeed; *ayam*—this one (the Supreme Lord); *svayam*—Himself.

@@ -1,13 +1,13 @@
 ### CC Antya 4.64
 
-> সিঞ্চাঙ্গ নস্ত্বদধরামৃতপূরকেণ
-> হাসাবলোক-কলগীতজ-হৃচ্ছয়াগ্নিম্ ।
-> নো চেদ্বয়ং বিরহজাগ্ন্যুপযুক্তদেহা
+> সিঞ্চাঙ্গ নস্ত্বদধরামৃতপূরকেণ\
+> হাসাবলোক-কলগীতজ-হৃচ্ছয়াগ্নিম্ ।\
+> নো চেদ্বয়ং বিরহজাগ্ন্যুপযুক্তদেহা\
 > ধ্যানেন যাম পদয়োঃ পদবীং সখে তে ॥৬৪॥
 
-> siñcāṅga nas tvad-adharāmṛta-pūrakeṇa
-> hāsāvaloka-kala-gītaja-hṛc-chayāgnim
-> no ced vayaṁ virahajāgny-upayukta-dehā
+> siñcāṅga nas tvad-adharāmṛta-pūrakeṇa\
+> hāsāvaloka-kala-gītaja-hṛc-chayāgnim\
+> no ced vayaṁ virahajāgny-upayukta-dehā\
 > dhyānena yāma padayoḥ padavīṁ sakhe te
 
 *siñca*—just sprinkle water; *aṅga*—O my dear Kṛṣṇa; *naḥ*—our; *tvat*—Your; *adhara*—of the lips; *amṛta*—of nectar; *pūrakeṇa*—by the stream; *hāsa*—smile; *avaloka*—glancing; *kala*—melodious; *gīta*—speaking; *ja*—produced by; *hṛt*—in the heart; *śaya*—resting; *agnim*—upon the fire; *nocet*—if not; *vayam*—we; *viraha*—from separation; *ja*—produced; *agni*—by the fire; *upayukta*—consumed; *dehāḥ*—whose bodies; *dhyānena*—by meditation; *yāma*—shall go; *padayoḥ*—of the lotus feet; *padavīm*—to the site; *sakhe*—O my dear friend; *te*—Your.

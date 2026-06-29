@@ -1,9 +1,9 @@
 ### CC Madhya 3.41
 
-> প্রথমে পাক করিয়াছেন আচার্যাণী ।
+> প্রথমে পাক করিয়াছেন আচার্যাণী ।\
 > বিষ্ণু-সমর্পণ কৈল আচার্য আপনি ॥৪১॥
 
-> prathame pāka kariyāchena ācāryāṇī
+> prathame pāka kariyāchena ācāryāṇī\
 > viṣṇu-samarpaṇa kaila ācārya āpani
 
 *prathame*—first; *pāka*—cooking; *kariyāchena*—performed; *ācāryāṇī*—the wife of Advaita Ācārya; *viṣṇu-samarpaṇa*—offering to Lord Viṣṇu; *kaila*—did; *ācārya*—Advaita Ācārya; *āpani*—Himself.

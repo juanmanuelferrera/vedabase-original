@@ -1,9 +1,9 @@
 ### CC Madhya 8.200
 
-> মোর মুখে বক্তা তুমি, তুমি হও শ্রোতা ।
+> মোর মুখে বক্তা তুমি, তুমি হও শ্রোতা ।\
 > অত্যন্ত রহস্য, শুন, সাধনের কথা ॥২০০॥
 
-> mora mukhe vaktā tumi, tumi hao śrotā
+> mora mukhe vaktā tumi, tumi hao śrotā\
 > atyanta rahasya, śuna, sādhanera kathā
 
 *mora mukhe*—in my mouth; *vaktā*—speaker; *tumi*—You are; *tumi*—You; *hao*—are; *śrotā*—the hearer; *atyanta rahasya*—extremely mysterious; *śuna*—now please hear; *sādhanera kathā*—the discussion of the process.

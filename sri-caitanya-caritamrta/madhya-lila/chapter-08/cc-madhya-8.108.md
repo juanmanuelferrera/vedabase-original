@@ -1,9 +1,9 @@
 ### CC Madhya 8.108
 
-> এই দুই-শ্লোকের অর্থ বিচারিলে জানি ।
+> এই দুই-শ্লোকের অর্থ বিচারিলে জানি ।\
 > বিচারিতে উঠে যেন অমৃতের খনি ॥১০৮॥
 
-> ei dui-ślokera artha vicārile jāni
+> ei dui-ślokera artha vicārile jāni\
 > vicārite uṭhe yena amṛtera khani
 
 *ei*—these; *dui*—two; *ślokera*—of the verses; *artha*—the meanings; *vicārile*—if considering; *jāni*—I can understand; *vicārite*—while considering; *uṭhe*—arises; *yena*—like; *amṛtera*—of nectar; *khani*—a mine.

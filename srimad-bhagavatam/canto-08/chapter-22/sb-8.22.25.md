@@ -1,11 +1,11 @@
 ### SB 8.22.25
 
-> यदा कदाचिज्जीवात्मा संसरन्निजकर्मभिः
+> यदा कदाचिज्जीवात्मा संसरन्निजकर्मभिः\
 > नानायोनिष्वनीशोऽयं पौरुषीं गतिमाव्रजेत ॥२५॥
 
-> yadā kadācij jīvātmā
-> saṁsaran nija-karmabhiḥ
-> nānā-yoniṣv anīśo 'yaṁ
+> yadā kadācij jīvātmā\
+> saṁsaran nija-karmabhiḥ\
+> nānā-yoniṣv anīśo 'yaṁ\
 > pauruṣīṁ gatim āvrajet
 
 *yadā*—when; *kadācit*—sometimes; *jīva-ātmā*—the living entity; *saṁsaran*—rotating in the cycle of birth and death; *nija-karmabhiḥ*—because of his own fruitive activities; *nānā-yoniṣu*—in different species of life; *anīśaḥ*—not independent (completely under the control of material nature); *ayam*—this living entity; *pauruṣīm gatim*—the situation of being human; *āvrajet*—wants to obtain.

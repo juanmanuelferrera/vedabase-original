@@ -1,11 +1,11 @@
 ### SB 6.5.37
 
-> ऋणैस्त्रिभिरमुक्तानाममीमांसितकर्मणाम
+> ऋणैस्त्रिभिरमुक्तानाममीमांसितकर्मणाम\
 > विघातः श्रेयसः पाप लोकयोरुभयोः कृतः ॥३७॥
 
-> ṛṇais tribhir amuktānām
-> amīmāṁsita-karmaṇām
-> vighātaḥ śreyasaḥ pāpa
+> ṛṇais tribhir amuktānām\
+> amīmāṁsita-karmaṇām\
+> vighātaḥ śreyasaḥ pāpa\
 > lokayor ubhayoḥ kṛtaḥ
 
 *ṛṇaiḥ*—from the debts; *tribhiḥ*—three; *amuktānām*—of persons not freed; *amīmāṁsita*—not considering; *karmaṇām*—the path of duty; *vighātaḥ*—ruin; *śreyasaḥ*—of the path of good fortune; *pāpa*—O most sinful (Nārada Muni); *lokayoḥ*—of the worlds; *ubhayoḥ*—both; *kṛtaḥ*—done.

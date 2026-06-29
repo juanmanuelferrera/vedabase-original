@@ -1,9 +1,9 @@
 ### CC Madhya 14.19
 
-> তবে মহাপ্রভু তাঁরে ঐশ্বর্য দেখাইল ।
+> তবে মহাপ্রভু তাঁরে ঐশ্বর্য দেখাইল ।\
 > ‘কারেহ না কহিবে’ এই নিষেধ করিল ॥১৯॥
 
-> tabe mahāprabhu tāṅre aiśvarya dekhāila
+> tabe mahāprabhu tāṅre aiśvarya dekhāila\
 > 'kāreha nā kahibe' ei niṣedha karila
 
 *tabe*—at that time; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—to the King; *aiśvarya*—divine power; *dekhāila*—showed; *kāreha nā kahibe*—do not speak to anyone; *ei*—this; *niṣedha karila*—forbade.

@@ -1,11 +1,11 @@
 ### SB 8.20.5
 
-> नाहं बिभेमि निरयान्नाधन्यादसुखार्णवात
+> नाहं बिभेमि निरयान्नाधन्यादसुखार्णवात\
 > न स्थानच्यवनान्मृत्योर्यथा विप्रप्रलम्भनात ॥५॥
 
-> nāhaṁ bibhemi nirayān
-> nādhanyād asukhārṇavāt
-> na sthāna-cyavanān mṛtyor
+> nāhaṁ bibhemi nirayān\
+> nādhanyād asukhārṇavāt\
+> na sthāna-cyavanān mṛtyor\
 > yathā vipra-pralambhanāt
 
 *na*—not; *aham*—I; *bibhemi*—am afraid of; *nirayāt*—from a hellish condition of life; *na*—nor; *adhanyāt*—from a poverty-stricken condition; *asukha-arṇavāt*—nor from an ocean of distresses; *na*—nor; *sthāna-cyavanāt*—from falling from a position; *mṛtyoḥ*—nor from death; *yathā*—as; *vipra-pralambhanāt*—from the cheating of a *brāhmaṇa.*

@@ -1,9 +1,9 @@
 ### CC Adi 12.61
 
-> যাদবদাস, বিজয়দাস, দাস জনার্দন ।
+> যাদবদাস, বিজয়দাস, দাস জনার্দন ।\
 > অনন্তদাস, কানুপণ্ডিত, দাস নারায়ণ ॥৬১॥
 
-> yādava-dāsa, vijaya-dāsa, dāsa janārdana
+> yādava-dāsa, vijaya-dāsa, dāsa janārdana\
 > ananta-dāsa, kānu-paṇḍita, dāsa nārāyaṇa
 
 *yādava-dāsa*—of the name Yādava dāsa; *vijaya-dāsa*—of the name Vijaya dāsa; *dāsajanārdana*—of the name Janārdana dāsa; *ananta-dāsa*—of the name Ananta dāsa; *kānu-paṇḍita*—of the name Kānu Paṇḍita; *dāsanārāyaṇa*—of the name Nārāyaṇa dāsa.

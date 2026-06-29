@@ -1,13 +1,13 @@
 ### CC Adi 5.93
 
-> যস্যাংশাংশঃ শ্রীল-গর্ভোদশায়ী
-> যন্নাভ্যব্জং লোকসংঘাতনালম্ ।
-> লোকস্রষ্টুঃ সূতিকাধাম ধাতু-
+> যস্যাংশাংশঃ শ্রীল-গর্ভোদশায়ী\
+> যন্নাভ্যব্জং লোকসংঘাতনালম্ ।\
+> লোকস্রষ্টুঃ সূতিকাধাম ধাতু-\
 > স্তং শ্রীনিত্যানন্দরামং প্রপদ্যে ॥৯৩॥
 
-> yasyāṁśāṁśaḥ śrīla-garbhoda-śāyī
-> yan-nābhy-abjaṁ loka-saṅghāta-nālam
-> loka-sraṣṭuḥ sūtikā-dhāma dhātus
+> yasyāṁśāṁśaḥ śrīla-garbhoda-śāyī\
+> yan-nābhy-abjaṁ loka-saṅghāta-nālam\
+> loka-sraṣṭuḥ sūtikā-dhāma dhātus\
 > taṁ śrī-nityānanda-rāmaṁ prapadye
 
 *yasya*—de quien; *aṁśa-aṁśaḥ*—porción de una porción plenaria; *śrīla-garbha-uda-śāyī*—Garbhodakaśāyī Viṣṇu; *yat*—de quien; *nābhi-abjam*—el loto del ombligo; *loka-saṅghāta*—de la multitud de planetas; *nālam*—cuyo tallo es el lugar de reposo; *loka-sraṣṭuḥ*—del Señor Brahmā, creador de los planetas; *sūtikā-dhāma*—el lugar de nacimiento; *dhātuḥ*—del creador; *tam*—a Él; *śrī-nityānanda-rāmam*—al Señor Balarāma en la forma del Señor Nityānanda; *prapadye*—me rindo.

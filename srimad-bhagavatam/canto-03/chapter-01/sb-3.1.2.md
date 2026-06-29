@@ -1,11 +1,11 @@
 ### SB 3.1.2
 
-> यद्वा अयं मन्त्रकृद्वो भगवानखिलेश्वरः ।
+> यद्वा अयं मन्त्रकृद्वो भगवानखिलेश्वरः ।\
 > पौरवेन्द्रगृहं हित्वा प्रविवेशात्मसात्कृतम् ॥२॥
 
-> yad vā ayaṁ mantra-kṛd vo
-> bhagavān akhileśvaraḥ
-> pauravendra-gṛhaṁ hitvā
+> yad vā ayaṁ mantra-kṛd vo\
+> bhagavān akhileśvaraḥ\
+> pauravendra-gṛhaṁ hitvā\
 > praviveśātmasāt kṛtam
 
 *yat*—the house; *vai*—what else is there to say; *ayam*—Śrī Kṛṣṇa; *mantra-kṛt*—minister; *vaḥ*—of you people; *bhagavān*—the Personality of Godhead; *akhila-īśvaraḥ*—the Lord of everything; *pauravendra*—Duryodhana; *gṛham*—house; *hitvā*—giving up; *praviveśa*—entered; *ātmasāt*—identify with oneself; *kṛtam*—so accepted.

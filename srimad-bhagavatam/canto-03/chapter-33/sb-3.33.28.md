@@ -1,11 +1,11 @@
 ### SB 3.33.28
 
-> तद्देहः परतः पोषोऽप्यकृशश्चाध्यसम्भवात् ।
+> तद्देहः परतः पोषोऽप्यकृशश्चाध्यसम्भवात् ।\
 > बभौ मलैरवच्छन्नः सधूम इव पावकः ॥२८॥
 
-> tad-dehaḥ parataḥ poṣo
-> 'py akṛśaś cādhy-asambhavāt
-> babhau malair avacchannaḥ
+> tad-dehaḥ parataḥ poṣo\
+> 'py akṛśaś cādhy-asambhavāt\
+> babhau malair avacchannaḥ\
 > sadhūma iva pāvakaḥ
 
 *tat-dehaḥ*—her body; *parataḥ*—by others (the damsels created by Kardama); *poṣaḥ*—maintained; *api*—although; *akṛśaḥ*—not thin; *ca*—and; *ādhi*—anxiety; *asambhavāt*—from not occurring; *babhau*—shone; *malaiḥ*—by dust; *avacchannaḥ*—covered; *sa-dhūmaḥ*—surrounded with smoke; *iva*—like; *pāvakaḥ*—a fire.

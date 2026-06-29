@@ -1,11 +1,11 @@
 ### SB 7.15.35
 
-> कामादिभिरनाविद्धं प्रशान्ताखिलवृत्ति यत
+> कामादिभिरनाविद्धं प्रशान्ताखिलवृत्ति यत\
 > चित्तं ब्रह्मसुखस्पृष्टं नैवोत्तिष्ठेत कर्हिचित ॥३५॥
 
-> kāmādibhir anāviddhaṁ
-> praśāntākhila-vṛtti yat
-> cittaṁ brahma-sukha-spṛṣṭaṁ
+> kāmādibhir anāviddhaṁ\
+> praśāntākhila-vṛtti yat\
+> cittaṁ brahma-sukha-spṛṣṭaṁ\
 > naivottiṣṭheta karhicit
 
 *kāma-ādibhiḥ*—por diversos deseos de disfrute; *anāviddham*—libre de la influencia; *praśānta*—serena y pacífica; *akhila-vṛtti*—en todo aspecto, o en todas las actividades; *yat*—lo que; *cittam*—conciencia; *brahma-sukha-spṛṣṭam*—situado en el plano trascendental de bienaventuranza eterna; *na*—no; *eva*—en verdad; *uttiṣṭheta*—puede salir; *karhicit*—en ningún momento.

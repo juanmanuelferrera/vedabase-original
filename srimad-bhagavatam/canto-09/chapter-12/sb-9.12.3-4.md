@@ -1,18 +1,18 @@
 ### SB 9.12.3-4
 
-> सगणस्तत्सुतस्तस्माद्विधृतिश्चाभवत्सुतः
-> ततो हिरण्यनाभोऽभूद्योगाचार्यस्तु जैमिनेः ॥३॥
-> शिष्यः कौशल्य आध्यात्मं याज्ञअवल्क्योऽध्यगाद्यतः
+> सगणस्तत्सुतस्तस्माद्विधृतिश्चाभवत्सुतः\
+> ततो हिरण्यनाभोऽभूद्योगाचार्यस्तु जैमिनेः ॥३॥\
+> शिष्यः कौशल्य आध्यात्मं याज्ञअवल्क्योऽध्यगाद्यतः\
 > योगं महोदयमृषिर्हृदयग्रन्थिभेदकम ॥४॥
 
-> sagaṇas tat-sutas tasmād
-> vidhṛtiś cābhavat sutaḥ
-> tato hiraṇyanābho 'bhūd
+> sagaṇas tat-sutas tasmād\
+> vidhṛtiś cābhavat sutaḥ\
+> tato hiraṇyanābho 'bhūd\
 > yogācāryas tu jaimineḥ
 
-> śiṣyaḥ kauśalya ādhyātmaṁ
-> yājñavalkyo 'dhyagād yataḥ
-> yogaṁ mahodayam ṛṣir
+> śiṣyaḥ kauśalya ādhyātmaṁ\
+> yājñavalkyo 'dhyagād yataḥ\
+> yogaṁ mahodayam ṛṣir\
 > hṛdaya-granthi-bhedakam
 
 *sagaṇaḥ*—Sagaṇa; *tat*—this (Vajranābha's); *sutaḥ*—son; *tasmāt*—from him; *vidhṛtiḥ*—Vidhṛti; *ca*—also; *abhavat*—was born; *sutaḥ*—his son; *tataḥ*—from him; *hiraṇyanābhaḥ*—Hiraṇyanābha; *abhūt*—became; *yoga-ācāryaḥ*—the propounder of the philosophy of *yoga*; *tu*—but; *jaimineḥ*—because of accepting Jaimini as his spiritual master; *śiṣyaḥ*—disciple; *kauśalyaḥ*—Kauśalya; *ādhyātmam*—spiritual; *yājñavalkyaḥ*—Yājñavalkya; *adhyagāt*—studied; *yataḥ*—from him (Hiraṇyanābha); *yogam*—the mystic performances; *mahā-udayam*—highly elevated; *ṛṣiḥ*—Yājñavalkya Ṛṣi; *hṛdaya-granthi-bhedakam*—mystic *yoga,* which can loosen the knots of material attachment in the heart.

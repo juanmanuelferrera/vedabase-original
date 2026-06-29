@@ -1,9 +1,9 @@
 ### CC Madhya 14.87
 
-> শুষ্কতর্ক-খলি খাইতে জন্ম গেল যাঁর ।
+> শুষ্কতর্ক-খলি খাইতে জন্ম গেল যাঁর ।\
 > তাঁরে লীলামৃত পিয়াও, — এ কৃপা তোমার ॥৮৭॥
 
-> śuṣka-tarka-khali khāite janma gela yāṅra
+> śuṣka-tarka-khali khāite janma gela yāṅra\
 > tāṅre līlāmṛta piyāo,-e kṛpā tomāra
 
 *śuṣka-tarka*—of dry logic; *khali*—oil cakes; *khāite*—eating; *janma*—the whole life; *gela*—passed; *yāṅra*—of whom; *tāṅre*—him; *līlā-amṛta*—the nectar of Your pastimes; *piyāo*—You caused to drink; *e*—this; *kṛpā*—mercy; *tomāra*—Your.

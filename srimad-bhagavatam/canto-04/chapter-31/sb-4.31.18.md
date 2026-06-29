@@ -1,11 +1,11 @@
 ### SB 4.31.18
 
-> तेनैकमात्मानमशेषदेहिनां कालं प्रधानं पुरुषं परेशम् ।
+> तेनैकमात्मानमशेषदेहिनां कालं प्रधानं पुरुषं परेशम् ।\
 > स्वतेजसा ध्वस्तगुणप्रवाहमात्मैकभावेन भजध्वमद्धा ॥१८॥
 
-> tenaikam ātmānam aśeṣa-dehināṁ
-> kālaṁ pradhānaṁ puruṣaṁ pareśam
-> sva-tejasā dhvasta-guṇa-pravāham
+> tenaikam ātmānam aśeṣa-dehināṁ\
+> kālaṁ pradhānaṁ puruṣaṁ pareśam\
+> sva-tejasā dhvasta-guṇa-pravāham\
 > ātmaika-bhāvena bhajadhvam addhā
 
 *tena*—therefore; *ekam*—one; *ātmānam*—unto the Supreme Soul; *aśeṣa*—unlimited; *dehinām*—of the individual souls; *kālam*—time; *pradhānam*—the material cause; *puruṣam*—the Supreme Person; *para-īśam*—the transcendental controller; *sva-tejasā*—by His spiritual energy; *dhvasta*—aloof; *guṇa-pravāham*—from material emanations; *ātma*—self; *eka-bhāvena*—accepting as qualitatively one; *bhajadhvam*—engage in devotional service; *addhā*—directly.

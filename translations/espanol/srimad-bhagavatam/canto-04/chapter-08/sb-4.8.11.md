@@ -1,11 +1,11 @@
 ### SB 4.8.11
 
-> न वत्स नृपतेर्धिष्ण्यं भवानारोढुमर्हति ।
+> न वत्स नृपतेर्धिष्ण्यं भवानारोढुमर्हति ।\
 > न गृहीतो मया यत्त्वं कुक्षावपि नृपात्मजः ॥११॥
 
-> na vatsa nṛpater dhiṣṇyaṁ
-> bhavān āroḍhum arhati
-> na gṛhīto mayā yat tvaṁ
+> na vatsa nṛpater dhiṣṇyaṁ\
+> bhavān āroḍhum arhati\
+> na gṛhīto mayā yat tvaṁ\
 > kukṣāv api nṛpātmajaḥ
 
 *na*—no; *vatsa*—mi querido niño; *nṛpateḥ*—del rey; *dhiṣṇyam*—asiento; *bhavān*—tú mismo; *āroḍhum*—para subirte; *arhati*—mereces; *na*—no; *gṛhītaḥ*—tomado; *mayā*—por mí; *yat*—porque; *tvam*—tú; *kukṣau*—en el vientre; *api*—aunque; *nṛpa-ātmajaḥ*—hijo del rey.

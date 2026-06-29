@@ -1,11 +1,11 @@
 ### SB 2.9.42
 
-> मायां विविदिषन्विष्णोर्मायेशस्य महामुनिः ।
+> मायां विविदिषन्विष्णोर्मायेशस्य महामुनिः ।\
 > महाभागवतो राजन्पितरं पर्यतोषयत् ॥४२॥
 
-> māyāṁ vividiṣan viṣṇor
-> māyeśasya mahā-muniḥ
-> mahā-bhāgavato rājan
+> māyāṁ vividiṣan viṣṇor\
+> māyeśasya mahā-muniḥ\
+> mahā-bhāgavato rājan\
 > pitaraṁ paryatoṣayat
 
 *māyām*—energías; *vividiṣan*—deseando conocer; *viṣṇoḥ*—de la Personalidad de Dios; *māyā-īśasya*—el amo de todas las energías; *mahā-muniḥ*—el gran sabio; *mahā-bhāgavataḥ*—el devoto de primera clase del Señor; *rājan*—¡oh, rey!; *pitaram*—a su padre; *paryatoṣayat*—complació mucho.

@@ -1,11 +1,11 @@
 ### SB 1.17.16
 
-> राज्ञो हि परमो धर्मः स्वधर्मस्थानुपालनम् ।
+> राज्ञो हि परमो धर्मः स्वधर्मस्थानुपालनम् ।\
 > शासतोऽन्यान्यथाशास्त्रमनापद्युत्पथानिह ॥१६॥
 
-> rājño hi paramo dharmaḥ
-> sva-dharma-sthānupālanam
-> śāsato 'nyān yathā-śāstram
+> rājño hi paramo dharmaḥ\
+> sva-dharma-sthānupālanam\
+> śāsato 'nyān yathā-śāstram\
 > anāpady utpathān iha
 
 *rājñaḥ*—del rey o gobernante; *hi*—ciertamente; *paramaḥ*—supremo; *dharmaḥ*—ocupación obligatoria; *sva-dharma-stha*—aquel que es fiel a su deber prescrito; *anupālanam*—siempre brindando protección; *śāsataḥ*—mientras gobierna; *anyān*—a otros; *yathā*—de conformidad con; *śāstram*—disposiciones de las Escrituras; *anāpadi*—sin peligro; *utpathān*—personas que van por el mal camino; *iha*—de hecho.

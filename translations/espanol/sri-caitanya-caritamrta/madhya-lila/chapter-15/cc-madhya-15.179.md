@@ -1,9 +1,9 @@
 ### CC Madhya 15.179
 
-> কোটি-কামধেনু-পতির ছাগী যৈছে মরে ।
+> কোটি-কামধেনু-পতির ছাগী যৈছে মরে ।\
 > ষড়ৈশ্বর্যপতি কৃষ্ণের মায়া কিবা করে ? ॥ ১৭৯ ॥
 
-> koṭi-kāmadhenu-patira chāgī yaiche mare
+> koṭi-kāmadhenu-patira chāgī yaiche mare\
 > ṣaḍ-aiśvarya-pati kṛṣṇera māyā kibā kare?
 
 *koṭi*—de millones; *kāma-dhenu*—de vacas de los deseos; *patira*—del amo; *chāgī*—una cabra; *yaiche*—como; *mare*—muere; *ṣaṭ-aiśvarya-pati*—el amo de las seis opulencias; *kṛṣṇera*—de Kṛṣṇa; *māyā*—la energía externa; *kibā*—¿qué?; *kare*—puede hacer.

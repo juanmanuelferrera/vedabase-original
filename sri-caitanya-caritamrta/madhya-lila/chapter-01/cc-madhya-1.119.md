@@ -1,9 +1,9 @@
 ### CC Madhya 1.119
 
-> সেই পুরাতন পত্র আগ্রহ করি’ নিল ।
+> সেই পুরাতন পত্র আগ্রহ করি’ নিল ।\
 > রামদাসে দেখাইয়া দুঃখ খণ্ডাইল ॥১১৯॥
 
-> sei purātana patra āgraha kari' nila
+> sei purātana patra āgraha kari' nila\
 > rāmadāse dekhāiyā duḥkha khaṇḍāila
 
 *sei*—that; *purātana*—old; *patra*—page; *āgraha*—with great enthusiasm; *kari'*—doing; *nila*—took; *rāma-dāse*—to the *brāhmaṇa* Rāmadāsa; *dekhāiyā*—showing; *duḥkha*—unhappiness; *khaṇḍāila*—mitigated.

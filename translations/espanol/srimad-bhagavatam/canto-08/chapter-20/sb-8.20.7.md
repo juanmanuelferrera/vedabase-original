@@ -1,11 +1,11 @@
 ### SB 8.20.7
 
-> श्रेयः कुर्वन्ति भूतानां साधवो दुस्त्यजासुभिः
+> श्रेयः कुर्वन्ति भूतानां साधवो दुस्त्यजासुभिः\
 > दध्यङ्शिबिप्रभृतयः को विकल्पो धरादिषु ॥७॥
 
-> śreyaḥ kurvanti bhūtānāṁ
-> sādhavo dustyajāsubhiḥ
-> dadhyaṅ-śibi-prabhṛtayaḥ
+> śreyaḥ kurvanti bhūtānāṁ\
+> sādhavo dustyajāsubhiḥ\
+> dadhyaṅ-śibi-prabhṛtayaḥ\
 > ko vikalpo dharādiṣu
 
 *śreyaḥ*—actividades de suprema importancia; *kurvanti*—realizan; *bhūtānām*—de la población en general; *sādhavaḥ*—las personas santas; *dustyaja*—que son sumamente difíciles de abandonar; *asubhiḥ*—por sus vidas; *dadhya*—Mahārāja Dadhīci; *śibi*—Mahārāja Śibi; *prabhṛtayaḥ*—y otras grandes personalidades; *kaḥ*—qué; *vikalpaḥ*—consideración; *dharā-ādiṣu*—en dar la tierra a un *brāhmaṇa*.

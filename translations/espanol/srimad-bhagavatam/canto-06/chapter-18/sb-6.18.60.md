@@ -1,11 +1,11 @@
 ### SB 6.18.60
 
-> एकदा सा तु सन्ध्यायामुच्छिष्टा व्रतकर्शिता
+> एकदा सा तु सन्ध्यायामुच्छिष्टा व्रतकर्शिता\
 > अस्पृष्टवार्यधौताङ्घ्रिः सुष्वाप विधिमोहिता ॥६०॥
 
-> ekadā sā tu sandhyāyām
-> ucchiṣṭā vrata-karśitā
-> aspṛṣṭa-vāry-adhautāṅghriḥ
+> ekadā sā tu sandhyāyām\
+> ucchiṣṭā vrata-karśitā\
+> aspṛṣṭa-vāry-adhautāṅghriḥ\
 > suṣvāpa vidhi-mohitā
 
 *ekadā*—una vez; *sā*—ella; *tu*—pero; *sandhyāyām*—durante el crepúsculo vespertino; *ucchiṣṭā*—después de comer; *vrata*—del voto; *karśitā*—débil y delgada; *aspṛṣṭa*—no tocó; *vāri*—agua; *adhauta*—no lavó; *aṅghriḥ*—sus pies; *suṣvāpa*—fue a dormir; *vidhi*—por el destino; *mohitā*—confundida.

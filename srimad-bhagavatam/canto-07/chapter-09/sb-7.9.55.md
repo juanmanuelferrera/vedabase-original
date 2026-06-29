@@ -1,13 +1,13 @@
 ### SB 7.9.55
 
-> श्रीनारद उवाच
-> एवं प्रलोभ्यमानोऽपि वरैर्लोकप्रलोभनैः
+> श्रीनारद उवाच\
+> एवं प्रलोभ्यमानोऽपि वरैर्लोकप्रलोभनैः\
 > एकान्तित्वाद्भगवति नैच्छत्तानसुरोत्तमः ॥५५॥
 
-> śrī-nārada uvāca
-> evaṁ pralobhyamāno 'pi
-> varair loka-pralobhanaiḥ
-> ekāntitvād bhagavati
+> śrī-nārada uvāca\
+> evaṁ pralobhyamāno 'pi\
+> varair loka-pralobhanaiḥ\
+> ekāntitvād bhagavati\
 > naicchat tān asurottamaḥ
 
 *śrī-nāradaḥ uvāca*—the great saint Nārada said; *evam*—thus; *pralobhyamānaḥ*—being allured or induced; *api*—although; *varaiḥ*—by benedictions; *loka*—of the world; *pralobhanaiḥ*—by different kinds of allurements; *ekāntitvāt*—because of being solely surrendered; *bhagavati*—unto the Supreme Personality of Godhead; *na aicchat*—did not want; *tān*—those benedictions; *asura-uttamaḥ*—Prahlāda Mahārāja, the best of the family of *asuras.*

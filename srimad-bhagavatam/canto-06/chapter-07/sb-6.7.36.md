@@ -1,11 +1,11 @@
 ### SB 6.7.36
 
-> अकिञ्चनानां हि धनं शिलोञ्छनं तेनेह निर्वर्तितसाधुसत्क्रियः
+> अकिञ्चनानां हि धनं शिलोञ्छनं तेनेह निर्वर्तितसाधुसत्क्रियः\
 > कथं विगर्ह्यं नु करोम्यधीश्वराः पौरोधसं हृष्यति येन दुर्मतिः ॥३६॥
 
-> akiñcanānāṁ hi dhanaṁ śiloñchanaṁ
-> teneha nirvartita-sādhu-satkriyaḥ
-> kathaṁ vigarhyaṁ nu karomy adhīśvarāḥ
+> akiñcanānāṁ hi dhanaṁ śiloñchanaṁ\
+> teneha nirvartita-sādhu-satkriyaḥ\
+> kathaṁ vigarhyaṁ nu karomy adhīśvarāḥ\
 > paurodhasaṁ hṛṣyati yena durmatiḥ
 
 *akiñcanānām*—of persons who have taken to austerities and penances to become detached from worldly possessions; *hi*—certainly; *dhanam*—the wealth; *śila*—the collecting of grains left in the field; *uñchanam*—and the collecting of grains left in the wholesale marketplace; *tena*—by that means; *iha*—here; *nirvartita*—accomplishing; *sādhu*—of the exalted devotees; *sat-kriyaḥ*—all the pious activities; *katham*—how; *vigarhyam*—reproachable; *nu*—indeed; *karomi*—I shall execute; *adhīśvarāḥ*—O great governors of the planetary systems; *paurodhasam*—the duty of priesthood; *hṛṣyati*—is pleased; *yena*—by which; *durmatiḥ*—one who is less intelligent.

@@ -1,9 +1,9 @@
 ### CC Antya 5.145
 
-> ‘বান্ধে সবারে’ — তাতে অবিদ্যা ‘বন্ধু’ হয় ।
+> ‘বান্ধে সবারে’ — তাতে অবিদ্যা ‘বন্ধু’ হয় ।\
 > ‘অবিদ্যা-নাশক’ — ‘বন্ধুহন্’-শব্দে কয় ॥১৪৫॥
 
-> 'bāndhe sabāre'—tāte avidyā 'bandhu' haya
+> 'bāndhe sabāre'—tāte avidyā 'bandhu' haya\
 > 'avidyā-nāśaka'—'bandhu-han'-śabde kaya
 
 *bāndhe*—binds; *sabāre*—everyone; *tāte*—therefore; *avidyā*—nescience, or *māyā*; *bandhu*—binder or relative; *haya*—is; *avidyā-nāśaka*—vanquisher of *māyā*; *bandhu-han-śabde*—by the word *"bandhu-han"*; *kaya*—mother Sarasvatī says.

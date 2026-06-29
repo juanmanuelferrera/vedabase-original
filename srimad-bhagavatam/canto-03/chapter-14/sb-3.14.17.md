@@ -1,11 +1,11 @@
 ### SB 3.14.17
 
-> एष तेऽहं विधास्यामि प्रियं भीरु यदिच्छसि ।
+> एष तेऽहं विधास्यामि प्रियं भीरु यदिच्छसि ।\
 > तस्याः कामं न कः कुर्यात्सिद्धिस्त्रैवर्गिकी यतः ॥१७॥
 
-> eṣa te 'haṁ vidhāsyāmi
-> priyaṁ bhīru yad icchasi
-> tasyāḥ kāmaṁ na kaḥ kuryāt
+> eṣa te 'haṁ vidhāsyāmi\
+> priyaṁ bhīru yad icchasi\
+> tasyāḥ kāmaṁ na kaḥ kuryāt\
 > siddhis traivargikī yataḥ
 
 *eṣaḥ*—this; *te*—your request; *aham*—I; *vidhāsyāmi*—shall execute; *priyam*—very dear; *bhīru*—O afflicted one; *yat*—what; *icchasi*—you are desiring; *tasyāḥ*—her; *kāmam*—desires; *na*—not; *kaḥ*—who; *kuryāt*—would perform; *siddhiḥ*—perfection of liberation; *traivargikī*—three; *yataḥ*—from whom.

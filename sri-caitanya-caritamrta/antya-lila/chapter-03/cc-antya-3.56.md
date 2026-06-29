@@ -1,11 +1,11 @@
 ### CC Antya 3.56
 
-> দংষ্ট্রিদংষ্ট্রাহতো ম্লেচ্ছো হা রামেতি পুনঃ পুনঃ ।
+> দংষ্ট্রিদংষ্ট্রাহতো ম্লেচ্ছো হা রামেতি পুনঃ পুনঃ ।\
 > উক্ত্বাপি মুক্তিমাপ্নোতি কিং পুনঃ শ্রদ্ধয়া গৃণন্ ॥৫৬॥
 
-> daṁṣṭri-daṁṣṭrāhato mleccho
-> hā rāmeti punaḥ punaḥ
-> uktvāpi muktim āpnoti
+> daṁṣṭri-daṁṣṭrāhato mleccho\
+> hā rāmeti punaḥ punaḥ\
+> uktvāpi muktim āpnoti\
 > kiṁ punaḥ śraddhayā gṛṇan
 
 *daṁṣṭri*—of a boar; *daṁṣṭra*—by the teeth; *āhataḥ*—killed; *mlecchaḥ*—a meat-eater; *hā*—O; *rāma*—my Lord Rāma; *iti*—thus; *punaḥ punaḥ*—again and again; *uktvā*—saying; *api*—even; *muktim*—liberation; *āpnoti*—gets; *kim*—what; *punaḥ*—again; *śraddhayā*—with faith and veneration; *gṛṇan*—chanting.

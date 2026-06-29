@@ -1,9 +1,9 @@
 ### CC Madhya 15.165
 
-> “তোমার বিচিত্র নহে, তুমি — সাক্ষাৎ প্ৰহ্লাদ  ।
+> “তোমার বিচিত্র নহে, তুমি — সাক্ষাৎ প্ৰহ্লাদ  ।\
 > তোমার উপরে কৃষ্ণের সম্পূর্ণ প্রসাদ ॥১৬৫॥
 
-> "tomāra vicitra nahe, tumi--sākṣāt prahlāda
+> "tomāra vicitra nahe, tumi--sākṣāt prahlāda\
 > tomāra upare kṛṣṇera sampūrṇa prasāda
 
 *tomāra*—en ti; *vicitra nahe*—esto no es extraordinario; *tumi*—tú; *sākṣāt prahlāda*—encarnación de Prahlāda Mahārāja; *tomāra upare*—sobre ti; *kṛṣṇera*—del Señor Kṛṣṇa; *sampūrṇa*—completa; *prasāda*—misericordia.

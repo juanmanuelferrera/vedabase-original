@@ -1,11 +1,11 @@
 ### SB 3.13.7
 
-> त्वमेकः सर्वभूतानां जन्मकृद्वृत्तिदः पिता ।
+> त्वमेकः सर्वभूतानां जन्मकृद्वृत्तिदः पिता ।\
 > तथापि नः प्रजानां ते शुश्रूषा केन वा भवेत् ॥७॥
 
-> tvam ekaḥ sarva-bhūtānāṁ
-> janma-kṛd vṛttidaḥ pitā
-> tathāpi naḥ prajānāṁ te
+> tvam ekaḥ sarva-bhūtānāṁ\
+> janma-kṛd vṛttidaḥ pitā\
+> tathāpi naḥ prajānāṁ te\
 > śuśrūṣā kena vā bhavet
 
 *tvam*—tú; *ekaḥ*—uno; *sarva*—todas; *bhūtānām*—entidades vivientes; *janma-kṛt*—progenitor; *vṛtti-daḥ*—fuente de subsistencia; *pitā*—el padre; *tathā api*—tanto como; *naḥ*—nosotros; *prajānām*—de todos los que nacen; *te*—de ti; *śuśrūṣā*—servicio; *kena*—cómo; *vā*—si; *bhavet*—puede ser.

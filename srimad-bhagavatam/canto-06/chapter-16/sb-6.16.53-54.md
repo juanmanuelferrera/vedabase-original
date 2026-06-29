@@ -1,18 +1,18 @@
 ### SB 6.16.53-54
 
-> यथा सुषुप्तः पुरुषो विश्वं पश्यति चात्मनि
-> आत्मानमेकदेशस्थं मन्यते स्वप्न उत्थितः ॥५३॥
-> एवं जागरणादीनि जीवस्थानानि चात्मनः
+> यथा सुषुप्तः पुरुषो विश्वं पश्यति चात्मनि\
+> आत्मानमेकदेशस्थं मन्यते स्वप्न उत्थितः ॥५३॥\
+> एवं जागरणादीनि जीवस्थानानि चात्मनः\
 > मायामात्राणि विज्ञआय तद्द्रष्टारं परं स्मरेत ॥५४॥
 
-> yathā suṣuptaḥ puruṣo
-> viśvaṁ paśyati cātmani
-> ātmānam eka-deśa-sthaṁ
+> yathā suṣuptaḥ puruṣo\
+> viśvaṁ paśyati cātmani\
+> ātmānam eka-deśa-sthaṁ\
 > manyate svapna utthitaḥ
 
-> evaṁ jāgaraṇādīni
-> jīva-sthānāni cātmanaḥ
-> māyā-mātrāṇi vijñāya
+> evaṁ jāgaraṇādīni\
+> jīva-sthānāni cātmanaḥ\
+> māyā-mātrāṇi vijñāya\
 > tad-draṣṭāraṁ paraṁ smaret
 
 *yathā*—just as; *suṣuptaḥ*—sleeping; *puruṣaḥ*—a person; *viśvam*—the whole universe; *paśyati*—perceives; *ca*—also; *ātmani*—in himself; *ātmānam*—himself; *eka-deśa-stham*—lying down in one place; *manyate*—he considers; *svapne*—in the dreaming condition; *utthitaḥ*—waking up; *evam*—in this way; *jāgaraṇa-ādīni*—the states of wakefulness and so on; *jīva-sthānāni*—the living entity's different conditions of existence; *ca*—also; *ātmanaḥ*—of the Supreme Personality of Godhead; *māyā-mātrāṇi*—the exhibitions of the illusory potency; *vijñāya*—knowing; *tat*—of them; *draṣṭāram*—the creator or seer of all such conditions; *param*—the Supreme; *smaret*—one should always remember.

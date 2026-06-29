@@ -1,11 +1,11 @@
 ### SB 4.16.12
 
-> अन्तर्बहिश्च भूतानां पश्यन्कर्माणि चारणैः ।
+> अन्तर्बहिश्च भूतानां पश्यन्कर्माणि चारणैः ।\
 > उदासीन इवाध्यक्षो वायुरात्मेव देहिनाम् ॥१२॥
 
-> antar bahiś ca bhūtānāṁ
-> paśyan karmāṇi cāraṇaiḥ
-> udāsīna ivādhyakṣo
+> antar bahiś ca bhūtānāṁ\
+> paśyan karmāṇi cāraṇaiḥ\
+> udāsīna ivādhyakṣo\
 > vāyur ātmeva dehinām
 
 *antaḥ*—internamente; *bahiḥ*—externamente; *ca*—y; *bhūtānām*—de las entidades vivientes; *paśyan*—ver; *karmāṇi*—actividades; *cāraṇaiḥ*—por espías; *udāsīnaḥ*—neutral; *iva*—como; *adhyakṣaḥ*—el testigo; *vāyuḥ*—el aire de la vida; *ātmā*—la fuerza viviente; *iva*—como; *dehinām*—de todos los que tienen un cuerpo.

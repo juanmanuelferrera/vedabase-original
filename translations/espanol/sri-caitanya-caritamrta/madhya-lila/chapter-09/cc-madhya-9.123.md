@@ -1,13 +1,13 @@
 ### CC Madhya 9.123
 
-> নিভৃতমরুন্মনোঽক্ষদৃঢ়যোগযুজো হৃদি য-
-> ন্মুনয় উপাসতে তদরয়োঽপি যযুঃ স্মরণাৎ ৷
-> স্ত্রিয় উরগেন্দ্র-ভোগভুজদণ্ডবিষক্ত-ধিয়ো
+> নিভৃতমরুন্মনোঽক্ষদৃঢ়যোগযুজো হৃদি য-\
+> ন্মুনয় উপাসতে তদরয়োঽপি যযুঃ স্মরণাৎ ৷\
+> স্ত্রিয় উরগেন্দ্র-ভোগভুজদণ্ডবিষক্ত-ধিয়ো\
 > বয়মপি তে সমাঃ সমদৃশোঽঙ্ঘ্রিসরোজসুধাঃ ৷৷ ১২৩ ৷৷ ॥১২৩॥
 
-> nibhṛta-marun-mano-'kṣa-dṛḍha-yoga-yujo hṛdi yan-
-> munaya upāsate tad arayo 'pi yayuḥ smaraṇāt
-> striya uragendra-bhoga-bhuja-daṇḍa-viṣakta-dhiyo
+> nibhṛta-marun-mano-'kṣa-dṛḍha-yoga-yujo hṛdi yan-\
+> munaya upāsate tad arayo 'pi yayuḥ smaraṇāt\
+> striya uragendra-bhoga-bhuja-daṇḍa-viṣakta-dhiyo\
 > vayam api te samāḥ samadṛśo 'ṅghri-saroja-sudhāḥ
 
 *nibhṛta*—controlado; *marut*—el aire vital; *manaḥ*—la mente; *akṣa*—los sentidos; *dṛḍha*—firme; *yoga*—en el proceso del yoga místico; *yujaḥ*—los que están ocupados; *hṛdi*—dentro del corazón; *yat*—al que; *munayaḥ*—los grandes sabios; *upāsate*—adoran; *tat*—eso; *arayaḥ*—los enemigos; *api*—también; *yayuḥ*—obtienen; *smaraṇāt*—por el recuerdo; *striyaḥ*—las gopīs; *uraga-indra*—de las serpientes; *bhoga*—como los cuerpos; *bhuja*—los brazos; *daṇḍa*—como varas; *viṣakta*—sujetas; *dhiyaḥ*—cuyas mentes; *vayam api*—nosotros también; *te*—Tus; *samāḥ*—iguales a ellas; *sama-dṛśaḥ*—que poseen las mismas emociones extáticas; *aṅghri-saroja*—de los pies de loto; *sudhāḥ*—el néctar.

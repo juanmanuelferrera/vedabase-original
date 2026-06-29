@@ -1,11 +1,11 @@
 ### SB 6.16.32
 
-> स उत्तमश्लोकपदाब्जविष्टरं प्रेमाश्रुलेशैरुपमेहयन्मुहुः
+> स उत्तमश्लोकपदाब्जविष्टरं प्रेमाश्रुलेशैरुपमेहयन्मुहुः\
 > प्रेमोपरुद्धाखिलवर्णनिर्गमो नैवाशकत्तं प्रसमीडितुं चिरम ॥३२॥
 
-> sa uttamaśloka-padābja-viṣṭaraṁ
-> premāśru-leśair upamehayan muhuḥ
-> premoparuddhākhila-varṇa-nirgamo
+> sa uttamaśloka-padābja-viṣṭaraṁ\
+> premāśru-leśair upamehayan muhuḥ\
+> premoparuddhākhila-varṇa-nirgamo\
 > naivāśakat taṁ prasamīḍituṁ ciram
 
 *saḥ*—he; *uttamaśloka*—of the Supreme Personality of Godhead; *pada-abja*—of the lotus feet; *viṣṭaram*—the resting place; *prema-aśru*—of tears of pure love; *leśaiḥ*—by drops; *upamehayan*—moistening; *muhuḥ*—again and again; *prema-uparuddha*—choked with love; *akhila*—all; *varṇa*—of the letters; *nirgamaḥ*—the coming out; *na*—not; *eva*—indeed; *aśakat*—was able; *tam*—unto Him; *prasamīḍitum*—to offer prayers; *ciram*—for a long time.

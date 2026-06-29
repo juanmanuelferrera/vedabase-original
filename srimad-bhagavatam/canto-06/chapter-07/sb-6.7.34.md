@@ -1,13 +1,13 @@
 ### SB 6.7.34
 
-> श्रीऋषिरुवाच
-> अभ्यर्थितः सुरगणैः पौरहित्ये महातपाः
+> श्रीऋषिरुवाच\
+> अभ्यर्थितः सुरगणैः पौरहित्ये महातपाः\
 > स विश्वरूपस्तानाह प्रसन्नः श्लक्ष्णया गिरा ॥३४॥
 
-> śrī-ṛṣir uvāca
-> abhyarthitaḥ sura-gaṇaiḥ
-> paurahitye mahā-tapāḥ
-> sa viśvarūpas tān āha
+> śrī-ṛṣir uvāca\
+> abhyarthitaḥ sura-gaṇaiḥ\
+> paurahitye mahā-tapāḥ\
+> sa viśvarūpas tān āha\
 > prasannaḥ ślakṣṇayā girā
 
 *śrī-ṛṣiḥ uvāca*—Śukadeva Gosvāmī continued to speak; *abhyarthitaḥ*—being requested; *sura-gaṇaiḥ*—by the demigods; *paurahitye*—in accepting the priesthood; *mahā-tapāḥ*—highly advanced in austerity and penances; *saḥ*—he; *viśvarūpaḥ*—Viśvarūpa; *tān*—to the demigods; *āha*—spoke; *prasannaḥ*—being satisfied; *ślakṣṇayā*—sweet; *girā*—with words.

@@ -1,11 +1,11 @@
 ### SB 7.11.4
 
-> नारायणपरा विप्रा धर्मं गुह्यं परं विदुः
+> नारायणपरा विप्रा धर्मं गुह्यं परं विदुः\
 > करुणाः साधवः शान्तास्त्वद्विधा न तथापरे ॥४॥
 
-> nārāyaṇa-parā viprā
-> dharmaṁ guhyaṁ paraṁ viduḥ
-> karuṇāḥ sādhavaḥ śāntās
+> nārāyaṇa-parā viprā\
+> dharmaṁ guhyaṁ paraṁ viduḥ\
+> karuṇāḥ sādhavaḥ śāntās\
 > tvad-vidhā na tathāpare
 
 *nārāyaṇa-parāḥ*—aquellos que están siempre consagrados a la Suprema Personalidad de Dios, Nārāyaṇa; *viprāḥ*—el mejor de los *brāhmaṇas*; *dharmam*—principio religioso; *guhyam*—el más confidencial; *param*—supremo; *viduḥ*—conocen; *karuṇāḥ*—esas personas son muy misericordiosas (pues son devotos); *sādhavaḥ*—de comportamiento muy excelso; *śāntāḥ*—pacíficos; *tvat-vidhāḥ*—como Tu Gracia; *na*—no; *tathā*—así; *apare*—otros (seguidores de métodos distintos al servicio devocional).

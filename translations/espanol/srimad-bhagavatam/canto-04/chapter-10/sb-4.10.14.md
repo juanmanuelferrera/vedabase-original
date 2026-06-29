@@ -1,11 +1,11 @@
 ### SB 4.10.14
 
-> हाहाकारस्तदैवासीत्सिद्धानां दिवि पश्यताम् ।
+> हाहाकारस्तदैवासीत्सिद्धानां दिवि पश्यताम् ।\
 > हतोऽयं मानवः सूर्यो मग्नः पुण्यजनार्णवे ॥१४॥
 
-> hāhā-kāras tadaivāsīt
-> siddhānāṁ divi paśyatām
-> hato 'yaṁ mānavaḥ sūryo
+> hāhā-kāras tadaivāsīt\
+> siddhānāṁ divi paśyatām\
+> hato 'yaṁ mānavaḥ sūryo\
 > magnaḥ puṇya-janārṇave
 
 *hāhā-kāraḥ*—tumulto de contrariedad; *tadā*—en ese momento; *eva*—ciertamente; *āsīt*—se manifestó; *siddhānām*—de todos los habitantes de Siddhaloka; *divi*—en el cielo; *paśyatām*—que estaban observando la batalla; *hataḥ*—matado; *ayam*—ese; *mānavaḥ*—nieto de Manu; *sūryaḥ*—Sol; *magnaḥ*—puesto; *puṇya-jana*—de los *yakṣas*; *arṇave*—en el mar.

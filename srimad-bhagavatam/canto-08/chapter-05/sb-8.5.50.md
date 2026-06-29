@@ -1,11 +1,11 @@
 ### SB 8.5.50
 
-> नमस्तुभ्यमनन्ताय दुर्वितर्क्यात्मकर्मणे
+> नमस्तुभ्यमनन्ताय दुर्वितर्क्यात्मकर्मणे\
 > निर्गुणाय गुणेशाय सत्त्वस्थाय च साम्प्रतम ॥५०॥
 
-> namas tubhyam anantāya
-> durvitarkyātma-karmaṇe
-> nirguṇāya guṇeśāya
+> namas tubhyam anantāya\
+> durvitarkyātma-karmaṇe\
+> nirguṇāya guṇeśāya\
 > sattva-sthāya ca sāmpratam
 
 *namaḥ*—all obeisances; *tubhyam*—unto You, my Lord; *anantāya*—who are everlasting, transcending the three phases of time (past, present and future); *durvitarkya-ātma-karmaṇe*—unto You, who perform inconceivable activities; *nirguṇāya*—which are all transcendental, free from the inebriety of material qualities; *guṇa-īśāya*—unto You, who control the three modes of material nature; *sattva-sthāya*—who are in favor of the material quality of goodness; *ca*—also; *sāmpratam*—at present.

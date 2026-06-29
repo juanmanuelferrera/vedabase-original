@@ -1,9 +1,9 @@
 ### CC Madhya 18.139
 
-> তবে ভট্টাচার্য সেই ব্রাহ্মণে লঞা ।
+> তবে ভট্টাচার্য সেই ব্রাহ্মণে লঞা ।\
 > যুক্তি করিলা কিছু নিভৃতে বসিয়া ॥১৩৯॥
 
-> tabe bhaṭṭācārya sei brāhmaṇe lañā
+> tabe bhaṭṭācārya sei brāhmaṇe lañā\
 > yukti karilā kichu nibhṛte vasiyā
 
 *tabe*—después de eso; *bhaṭṭācārya*—Bhaṭṭācārya; *sei brāhmaṇe*—al *brāhmaṇa* sanoḍiyā; *lañā*—llevando; *yukti karilā*—consultó; *kichu*—algo; *nibhṛte vasiyā*—sentándose en un lugar apartado.

@@ -1,11 +1,11 @@
 ### Bg 1.30
 
-> न च शक्नोम्यवस्थातुं भ्रमतीव च मे मनः ।
+> न च शक्नोम्यवस्थातुं भ्रमतीव च मे मनः ।\
 > निमित्तानि च पश्यामि विपरीतानि केशव ॥३०॥
 
-> na ca śaknomy avasthātuṁ
-> bhramatīva ca me manaḥ
-> nimittāni ca paśyāmi
+> na ca śaknomy avasthātuṁ\
+> bhramatīva ca me manaḥ\
+> nimittāni ca paśyāmi\
 > viparītāni keśava
 
 *na*—nor; *ca*—also; *śaknomi*—am I able; *avasthātum*—to stay; *bhramati*—forgetting; *iva*—as; *ca*—and; *me*—my; *manaḥ*—mind; *nimittāni*—causes; *ca*—also; *paśyāmi*—I foresee; *viparītāni*—just the opposite; *keśava*—O killer of the demon Keśī (Kṛṣṇa).

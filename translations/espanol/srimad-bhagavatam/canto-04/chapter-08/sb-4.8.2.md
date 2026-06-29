@@ -1,11 +1,11 @@
 ### SB 4.8.2
 
-> मृषाधर्मस्य भार्यासीद्दम्भं मायां च शत्रुहन् ।
+> मृषाधर्मस्य भार्यासीद्दम्भं मायां च शत्रुहन् ।\
 > असूत मिथुनं तत्तु निरृतिर्जगृहेऽप्रजः ॥२॥
 
-> mṛṣādharmasya bhāryāsīd
-> dambhaṁ māyāṁ ca śatru-han
-> asūta mithunaṁ tat tu
+> mṛṣādharmasya bhāryāsīd\
+> dambhaṁ māyāṁ ca śatru-han\
+> asūta mithunaṁ tat tu\
 > nirṛtir jagṛhe 'prajaḥ
 
 *mṛṣā*—Mṛṣā; *adharmasya*—de la Irreligión; *bhāryā*—esposa; *āsīt*—fue; *dambham*—el Embuste; *māyām*—el Engaño; *ca*—y; *śatru-han*—¡oh, destructor de enemigos!; *asūta*—produjo; *mithunam*—unión; *tat*—esa; *tu*—pero; *nirṛtiḥ*—Nirṛti; *jagṛhe*—adoptó; *aprajaḥ*—que no tenía hijos.

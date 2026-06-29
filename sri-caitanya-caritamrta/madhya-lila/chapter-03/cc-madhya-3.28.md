@@ -1,13 +1,13 @@
 ### CC Madhya 3.28
 
-> চিদানন্দভানোঃ সদা নন্দসূনোঃ
-> পরপ্রেমপাত্রী দ্ৰবব্ৰহ্মগাত্রী ।
-> অঘানাং লবিত্রী জগৎক্ষেমধাত্রী
+> চিদানন্দভানোঃ সদা নন্দসূনোঃ\
+> পরপ্রেমপাত্রী দ্ৰবব্ৰহ্মগাত্রী ।\
+> অঘানাং লবিত্রী জগৎক্ষেমধাত্রী\
 > পবিত্রীক্রিয়ান্নো বপুর্মিত্রপুত্রী ॥২৮॥
 
-> cid-ānanda-bhānoḥ sadā nanda-sūnoḥ
-> para-prema-pātrī drava-brahma-gātrī
-> aghānāṁ lavitrī jagat-kṣema-dhātrī
+> cid-ānanda-bhānoḥ sadā nanda-sūnoḥ\
+> para-prema-pātrī drava-brahma-gātrī\
+> aghānāṁ lavitrī jagat-kṣema-dhātrī\
 > pavitrī-kriyān no vapur mitra-putrī
 
 *cit-ānanda-bhānoḥ*—of the direct manifestation of spiritual energy and bliss; *sadā*—always; *nanda-sūnoḥ*—of the son of Mahārāja Nanda; *para-prema-pātrī*—the giver of the highest love; *drava-brahma-gātrī*—composed of the water of the spiritual world; *aghānām*—of all sins and offenses; *lavitrī*—the destroyer; *jagat-kṣema-dhātrī*—the performer of everything auspicious for the world; *pavitrī-kriyāt*—kindly purify; *naḥ*—our; *vapuḥ*—existence; *mitra-putrī*—the daughter of the sun-god.

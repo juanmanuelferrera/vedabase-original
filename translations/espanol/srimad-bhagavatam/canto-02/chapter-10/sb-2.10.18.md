@@ -1,11 +1,11 @@
 ### SB 2.10.18
 
-> मुखतस्तालु निर्भिन्नंजिह्वा तत्रोपजायते ।
+> मुखतस्तालु निर्भिन्नंजिह्वा तत्रोपजायते ।\
 > ततो नानारसो जज्ञे जिह्वया योऽधिगम्यते ॥१८॥
 
-> mukhatas tālu nirbhinnaṁ
-> jihvā tatropajāyate
-> tato nānā-raso jajñe
+> mukhatas tālu nirbhinnaṁ\
+> jihvā tatropajāyate\
+> tato nānā-raso jajñe\
 > jihvayā yo 'dhigamyate
 
 *mukhataḥ*—de la boca; *tālu*—el paladar; *nirbhinnam*—siendo generado; *jihvā*—la lengua; *tatra*—luego de eso; *upajāyate*—se manifiesta; *tataḥ*—después de eso; *nānā-rasaḥ*—diversos sabores; *jajñe*—se manifestaron; *jihvayā*—con la lengua; *yaḥ*—los cuales; *adhigamyate*—se saborean.

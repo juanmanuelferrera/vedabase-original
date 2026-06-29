@@ -1,9 +1,9 @@
 ### CC Madhya 16.213
 
-> অতএব ইহাঁ তার না কৈলুঁ বিস্তার ।
+> অতএব ইহাঁ তার না কৈলুঁ বিস্তার ।\
 > পুনরুক্তি হয়, গ্রন্থ বাড়য়ে অপার ॥২১৩॥
 
-> ataeva ihāṅ tāra nā kailuṅ vistāra
+> ataeva ihāṅ tāra nā kailuṅ vistāra\
 > punarukti haya, grantha bāḍaye apāra
 
 *ataeva*—therefore; *ihāṅ*—here; *tāra*—of that incident; *nā kailuṅ*—I did not give; *vistāra*—elaboration; *punarukti*—repetition; *haya*—it is; *grantha*—the book; *bāḍaye*—increases; *apāra*—unlimitedly.

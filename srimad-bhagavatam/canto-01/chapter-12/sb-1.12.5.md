@@ -1,11 +1,11 @@
 ### SB 1.12.5
 
-> सम्पदः क्रतवो लोका महिषी भ्रातरो मही ।
+> सम्पदः क्रतवो लोका महिषी भ्रातरो मही ।\
 > जम्बूद्वीपाधिपत्यं च यशश्च त्रिदिवं गतम् ॥५॥
 
-> sampadaḥ kratavo lokā
-> mahiṣī bhrātaro mahī
-> jambūdvīpādhipatyaṁ ca
+> sampadaḥ kratavo lokā\
+> mahiṣī bhrātaro mahī\
+> jambūdvīpādhipatyaṁ ca\
 > yaśaś ca tri-divaṁ gatam
 
 *sampadaḥ*—opulence; *kratavaḥ*—sacrifices; *lokāḥ*—future destination; *mahiṣī*—the queens; *bhrātaraḥ*—the brothers; *mahī*—the earth; *jambū-dvīpa*—the globe or planet of our residence; *ādhipatyam*—sovereignty; *ca*—also; *yaśaḥ*—fame; *ca*—and; *tri-divam*—celestial planets; *gatam*—spread over.

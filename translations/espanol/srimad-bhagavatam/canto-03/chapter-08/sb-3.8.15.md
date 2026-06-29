@@ -1,11 +1,11 @@
 ### SB 3.8.15
 
-> तल्लोकपद्मं स उ एव विष्णुः प्रावीविशत्सर्वगुणावभासम् ।
+> तल्लोकपद्मं स उ एव विष्णुः प्रावीविशत्सर्वगुणावभासम् ।\
 > तस्मिन्स्वयं वेदमयो विधाता स्वयम्भुवं यं स्म वदन्ति सोऽभूत् ॥१५॥
 
-> tal loka-padmaṁ sa u eva viṣṇuḥ
-> prāvīviśat sarva-guṇāvabhāsam
-> tasmin svayaṁ vedamayo vidhātā
+> tal loka-padmaṁ sa u eva viṣṇuḥ\
+> prāvīviśat sarva-guṇāvabhāsam\
+> tasmin svayaṁ vedamayo vidhātā\
 > svayambhuvaṁ yaṁ sma vadanti so 'bhūt
 
 *tat*—esa; *loka*—universal; *padmam*—flor de loto; *saḥ*—Él; *u*—ciertamente; *eva*—de hecho; *viṣṇuḥ*—el Señor; *prāvīviśat*—entró en; *sarva*—todo; *guṇa-avabhāsam*—manantial de todas las modalidades de la naturaleza; *tasmin*—en el cual; *svayam*—en persona; *veda-mayaḥ*—la personalidad de la sabiduría védica; *vidhātā*—controlador del universo; *svayam-bhuvam*—nacido por sí solo; *yam*—a quien; *sma*—en el pasado; *vadanti*—dicen; *saḥ*—él; *abhūt*—generado.

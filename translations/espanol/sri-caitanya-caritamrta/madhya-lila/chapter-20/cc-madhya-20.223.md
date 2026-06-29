@@ -1,9 +1,9 @@
 ### CC Madhya 20.223
 
-> সিদ্ধার্থ-সংহিতা করে চব্বিশ মূর্তি গণন ।
+> সিদ্ধার্থ-সংহিতা করে চব্বিশ মূর্তি গণন ।\
 > তার মতে কহি আগে চক্রাদি-ধারণ ॥২২৩॥
 
-> siddhārtha-saṁhitā kare cabbiśa mūrti gaṇana
+> siddhārtha-saṁhitā kare cabbiśa mūrti gaṇana\
 > tāra mate kahi āge cakrādi-dhāraṇa
 
 *siddhārtha-saṁhitā*—la escritura revelada llamada Siddhārtha-saṁhitā; *kare*—hace; *cabbiśa*—veinticuatro; *mūrti*—formas; *gaṇana*—recuento; *tāra mate*—según la opinión de la Siddhārtha-saṁhitā; *kahi*—describiré; *āge*—primero; *cakra-ādi-dhāraṇa*—el sostener las armas, comenzando por el disco.

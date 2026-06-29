@@ -1,9 +1,9 @@
 ### CC Madhya 21.29
 
-> ষোলক্রোশ বৃন্দাবন, — শাস্ত্রের প্রকাশে ।
+> ষোলক্রোশ বৃন্দাবন, — শাস্ত্রের প্রকাশে ।\
 > তার একদেশে বৈকুণ্ঠাজাণ্ডগণ ভাসে ॥২৯॥
 
-> ṣola-krośa vṛndāvana,--śāstrera prakāśe
+> ṣola-krośa vṛndāvana,--śāstrera prakāśe\
 > tāra eka-deśe vaikuṇṭhājāṇḍa-gaṇa bhāse
 
 *ṣola-krośa*—que mide dieciséis krośas (treinta y dos millas); *vṛndāvana*—Vṛndāvana-dhāma; *śāstrera prakāśe*—según la revelación de las escrituras reveladas; *tāra*—de Vṛndāvana; *eka-deśe*—en un rincón; *vaikuṇṭha*—todos los planetas Vaikuṇṭha; *ajāṇḍa-gaṇa*—los innumerables universos; *bhāse*—se encuentran.

@@ -1,13 +1,13 @@
 ### CC Madhya 1.76
 
-> প্রিয়ঃ সোঽয়ং কৃষ্ণঃ সহচরি কুরুক্ষেত্রমিলিত-
-> স্তথাহং সা রাধা তদিদমুভয়োঃ সঙ্গমসুখম ।
-> তথাপ্যন্তঃ-খেলন্মধুরমুরলীপঞ্চমজুষে
+> প্রিয়ঃ সোঽয়ং কৃষ্ণঃ সহচরি কুরুক্ষেত্রমিলিত-\
+> স্তথাহং সা রাধা তদিদমুভয়োঃ সঙ্গমসুখম ।\
+> তথাপ্যন্তঃ-খেলন্মধুরমুরলীপঞ্চমজুষে\
 > মনো মে কালিন্দীপুলিনবিপিনায় স্পৃহয়তি ॥৭৬॥
 
-> priyaḥ so 'yaṁ kṛṣṇaḥ saha-cari kuru-kṣetra-militas
-> tathāhaṁ sā rādhā tad idam ubhayoḥ saṅgama-sukham
-> tathāpy antaḥ-khelan-madhura-muralī-pañcama-juṣe
+> priyaḥ so 'yaṁ kṛṣṇaḥ saha-cari kuru-kṣetra-militas\
+> tathāhaṁ sā rādhā tad idam ubhayoḥ saṅgama-sukham\
+> tathāpy antaḥ-khelan-madhura-muralī-pañcama-juṣe\
 > mano me kālindī-pulina-vipināya spṛhayati
 
 *priyaḥ*—muy querido; *saḥ*—Él; *ayam*—este; *kṛṣṇaḥ*—el Señor Kṛṣṇa; *saha-cari*—¡oh, Mi querida amiga!; *kuru-kṣetra-militaḥ*—a quien encuentro en el campo de Kurukṣetra; *tathā*—también; *aham*—Yo; *sā*—esa; *rādhā*—Rādhārāṇī; *tat*—esa; *idam*—esta; *ubhayoḥ*—de ambos; *saṅgama-sukham*—la felicidad de encontrarnos; *tathāpi*—aun así; *antaḥ*—dentro; *khelan*—sonando; *madhura*—dulce; *muralī*—de la flauta; *pañcama*—la quinta nota; *juṣe*—que se deleita; *manaḥ*—la mente; *me*—Mi; *kālindī*—del río Yamunā; *pulina*—en la ribera; *vipināya*—los árboles; *spṛhayati*—anhela.

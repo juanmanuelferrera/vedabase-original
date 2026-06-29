@@ -1,11 +1,11 @@
 ### SB 5.19.15
 
-> तन्नः प्रभो त्वं कुकलेवरार्पितां त्वन्माययाहंममतामधोक्षज
+> तन्नः प्रभो त्वं कुकलेवरार्पितां त्वन्माययाहंममतामधोक्षज\
 > भिन्द्याम येनाशु वयं सुदुर्भिदां विधेहि योगं त्वयि नः स्वभावमिति ॥१५॥
 
-> tan naḥ prabho tvaṁ kukalevarārpitāṁ
-> tvan-māyayāhaṁ-mamatām adhokṣaja
-> bhindyāma yenāśu vayaṁ sudurbhidāṁ
+> tan naḥ prabho tvaṁ kukalevarārpitāṁ\
+> tvan-māyayāhaṁ-mamatām adhokṣaja\
+> bhindyāma yenāśu vayaṁ sudurbhidāṁ\
 > vidhehi yogaṁ tvayi naḥ svabhāvam iti
 
 *tat*—por lo tanto; *naḥ*—nuestro; *prabho*—¡oh, mi Señor!; *tvam*—Tú; *ku-kalevara-arpitām*—impregnados en este cuerpo miserable, lleno de excremento y orina; *tvat-māyayā*—por Tu energía ilusoria; *aham-mamatām*—los conceptos de «yo y mío»; *adhokṣaja*—¡oh, Realidad Trascendental!; *bhindyāma*—podamos abandonar; *yena*—por los cuales; *āśu*—muy pronto; *vayam*—nosotros; *sudurbhidām*—que es muy difícil de abandonar; *vidhehi*—por favor, da; *yogam*—el proceso místico; *tvayi*—a Ti; *naḥ*—nuestro; *svabhāvam*—caracterizado por una mente estable; *iti*—así.

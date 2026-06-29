@@ -1,9 +1,9 @@
 ### CC Madhya 20.70
 
-> ভদ্র করাঞা তাঁরে গঙ্গাস্নান করাইল ।
+> ভদ্র করাঞা তাঁরে গঙ্গাস্নান করাইল ।\
 > শেখর আনিয়া তাঁরে নূতন বস্ত্র দিল ॥৭০॥
 
-> bhadra karāñā tāṅre gaṅgā-snāna karāila
+> bhadra karāñā tāṅre gaṅgā-snāna karāila\
 > śekhara āniyā tāṅre nūtana vastra dila
 
 *bhadra karāñā*—arreglándolo; *tāṅre*—a él; *gaṅgā-snāna*—baño en el Ganges; *karāila*—hizo; *śekhara*—Candraśekhara; *āniyā*—trayendo; *tāṅre*—a él; *nūtana*—nueva; *vastra*—ropa; *dila*—entregó.

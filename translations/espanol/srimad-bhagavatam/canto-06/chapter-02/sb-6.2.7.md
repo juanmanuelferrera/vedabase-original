@@ -1,11 +1,11 @@
 ### SB 6.2.7
 
-> अयं हि कृतनिर्वेशो जन्मकोट्यंहसामपि
+> अयं हि कृतनिर्वेशो जन्मकोट्यंहसामपि\
 > यद्व्याजहार विवशो नाम स्वस्त्ययनं हरेः ॥७॥
 
-> ayaṁ hi kṛta-nirveśo
-> janma-koṭy-aṁhasām api
-> yad vyājahāra vivaśo
+> ayaṁ hi kṛta-nirveśo\
+> janma-koṭy-aṁhasām api\
+> yad vyājahāra vivaśo\
 > nāma svasty-ayanaṁ hareḥ
 
 *ayam*—esta persona (Ajāmila); *hi*—en verdad; *kṛta-nirveśaḥ*—se ha sometido a todos los procesos de expiación; *janma*—de vidas; *koṭi*—de millones; *aṁhasām*—por las actividades pecaminosas; *api*—incluso; *yat*—pues; *vyājahāra*—ha cantado; *vivaśaḥ*—encontrándose desesperado; *nāma*—el santo nombre; *svasti-ayanam*—el medio para obtener la liberación; *hareḥ*—de la Suprema Personalidad de Dios.

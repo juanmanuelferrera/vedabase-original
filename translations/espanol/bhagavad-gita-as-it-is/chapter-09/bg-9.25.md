@@ -1,11 +1,11 @@
 ### Bg 9.25
 
-> यान्ति देवव्रता देवान्पितॄन्यान्ति पितृव्रताः ।
+> यान्ति देवव्रता देवान्पितॄन्यान्ति पितृव्रताः ।\
 > भूतानि यान्ति भूतेज्या यान्ति मद्याजिनोऽपि माम् ॥२५॥
 
-> yānti deva-vratā devān
-> pitṝn yānti pitṛ-vratāḥ
-> bhūtāni yānti bhūtejyā
+> yānti deva-vratā devān\
+> pitṝn yānti pitṛ-vratāḥ\
+> bhūtāni yānti bhūtejyā\
 > yānti mad-yājino'pi mām
 
 *yānti*—alcanzan; *deva-vratāḥ*—adoradores de los semidioses; *devān*—a los semidioses; *pitṝn*—a los antepasados; *yānti*—van; *pitṛ-vratāḥ*—adoradores de los antepasados; *bhūtāni*—a los fantasmas y espíritus; *yānti*—van; *bhūtejyāḥ*—adoradores de los fantasmas y espíritus; *yānti*—van; *mat*—Mis; *yājinaḥ*—devotos; *api*—también; *mām*—a Mí.

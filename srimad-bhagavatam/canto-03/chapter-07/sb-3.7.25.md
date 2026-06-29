@@ -1,11 +1,11 @@
 ### SB 3.7.25
 
-> प्रजापतीनां स पतिश्चकॢपे कान्प्रजापतीन् ।
+> प्रजापतीनां स पतिश्चकॢपे कान्प्रजापतीन् ।\
 > सर्गांश्चैवानुसर्गांश्च मनून्मन्वन्तराधिपान् ॥२५॥
 
-> prajāpatīnāṁ sa patiś
-> cakḷpe kān prajāpatīn
-> sargāṁś caivānusargāṁś ca
+> prajāpatīnāṁ sa patiś\
+> cakḷpe kān prajāpatīn\
+> sargāṁś caivānusargāṁś ca\
 > manūn manvantarādhipān
 
 *prajā-patīnām*—of the demigods like Brahmā and others; *saḥ*—he; *patiḥ*—leader; *cakḷpe*—decided; *kān*—whomsoever; *prajāpatīn*—fathers of the living entities; *sargān*—generations; *ca*—also; *eva*—certainly; *anusargān*—later generations; *ca*—and; *manūn*—the Manus; *manvantara-adhipān*—and the changes of such.

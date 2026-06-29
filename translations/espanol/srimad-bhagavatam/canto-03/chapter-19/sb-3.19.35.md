@@ -1,11 +1,11 @@
 ### SB 3.19.35
 
-> यो गजेन्द्रं झषग्रस्तं ध्यायन्तं चरणाम्बुजम् ।
+> यो गजेन्द्रं झषग्रस्तं ध्यायन्तं चरणाम्बुजम् ।\
 > क्रोशन्तीनां करेणूनां कृच्छ्रतोऽमोचयद्द्रुतम् ॥३५॥
 
-> yo gajendraṁ jhaṣa-grastaṁ
-> dhyāyantaṁ caraṇāmbujam
-> krośantīnāṁ kareṇūnāṁ
+> yo gajendraṁ jhaṣa-grastaṁ\
+> dhyāyantaṁ caraṇāmbujam\
+> krośantīnāṁ kareṇūnāṁ\
 > kṛcchrato 'mocayad drutam
 
 *yaḥ*—aquel que; *gaja-indram*—el rey de los elefantes; *jhaṣa*—un cocodrilo; *grastam*—atacado por; *dhyāyantam*—meditando en; *caraṇa*—pies; *ambujam*—loto; *krośantīnām*—mientras lloraban; *kareṇūnām*—las elefantas; *kṛcchrataḥ*—del peligro; *amocayat*—liberó; *drutam*—rápidamente.

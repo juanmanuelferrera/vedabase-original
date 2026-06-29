@@ -1,13 +1,13 @@
 ### SB 4.7.21
 
-> वक्षस्यधिश्रितवधूर्वनमाल्युदार
-> हासावलोककलया रमयंश्च विश्वम् ।
-> पार्श्वभ्रमद्व्यजनचामरराजहंसः
+> वक्षस्यधिश्रितवधूर्वनमाल्युदार\
+> हासावलोककलया रमयंश्च विश्वम् ।\
+> पार्श्वभ्रमद्व्यजनचामरराजहंसः\
 > श्वेतातपत्रशशिनोपरि रज्यमानः ॥२१॥
 
-> vakṣasy adhiśrita-vadhūr vana-māly udāra-
-> hāsāvaloka-kalayā ramayaṁś ca viśvam
-> pārśva-bhramad-vyajana-cāmara-rāja-haṁsaḥ
+> vakṣasy adhiśrita-vadhūr vana-māly udāra-\
+> hāsāvaloka-kalayā ramayaṁś ca viśvam\
+> pārśva-bhramad-vyajana-cāmara-rāja-haṁsaḥ\
 > śvetātapatra-śaśinopari rajyamānaḥ
 
 *vakṣasi*—sobre el pecho; *adhiśrita*—situada; *vadhūḥ*—una mujer (la diosa de la fortuna, Lakṣmī); *vana-mālī*—con un collar de flores silvestres; *udāra*—hermosa; *hāsa*—sonrisa; *avaloka*—mirada; *kalayā*—con una pequeña parte; *ramayan*—complacer; *ca*—y; *viśvam*—al mundo entero; *pārśva*—lado; *bhramat*—moverse hacia adelante y hacia atrás; *vyajana-cāmara*—pelo blanco de cola de yak para abanicar; *rāja-haṁsaḥ*—cisne; *śveta-ātapatra-śaśinā*—con un dosel blanco como la Luna; *upari*—por encima; *rajyamānaḥ*—de hermoso aspecto.

@@ -1,9 +1,9 @@
 ### CC Madhya 17.184
 
-> প্রভু কহে, — শ্রুতি, স্মৃতি, যত ঋষিগণ ।
+> প্রভু কহে, — শ্রুতি, স্মৃতি, যত ঋষিগণ ।\
 > সবে ‘এক’-মত নহে, ভিন্ন ভিন্ন ধর্ম ॥১৮৪॥
 
-> prabhu kahe,—śruti, smṛti, yata ṛṣi-gaṇa
+> prabhu kahe,—śruti, smṛti, yata ṛṣi-gaṇa\
 > sabe 'eka'-mata nahe, bhinna bhinna dharma
 
 *prabhu kahe*—Lord Śrī Caitanya Mahāprabhu said; *śruti*—the Vedas; *smṛti*—the *Purāṇas*; *yata*—all; *ṛṣi-gaṇa*—great sages; *sabe*—all of them; *eka-mata nahe*—do not agree; *bhinna bhinna dharma*—different grades of religious principles.

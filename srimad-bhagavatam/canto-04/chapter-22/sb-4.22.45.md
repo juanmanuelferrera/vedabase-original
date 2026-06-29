@@ -1,11 +1,11 @@
 ### SB 4.22.45
 
-> सैनापत्यं च राज्यं च दण्डनेतृत्वमेव च ।
+> सैनापत्यं च राज्यं च दण्डनेतृत्वमेव च ।\
 > सर्व लोकाधिपत्यं च वेदशास्त्रविदर्हति ॥४५॥
 
-> sainā-patyaṁ ca rājyaṁ ca
-> daṇḍa-netṛtvam eva ca
-> sarva lokādhipatyaṁ ca
+> sainā-patyaṁ ca rājyaṁ ca\
+> daṇḍa-netṛtvam eva ca\
+> sarva lokādhipatyaṁ ca\
 > veda-śāstra-vid arhati
 
 *sainā-patyam*—post of commander-in-chief; *ca*—and; *rājyam*—post of ruler over the kingdom; *ca*—and; *daṇḍa*—ruling; *netṛtvam*—leadership; *eva*—certainly; *ca*—and; *sarva*—all; *loka-adhipatyam*—proprietorship of the planet; *ca*—and; *veda-śāstra-vit*—one who knows the purport of Vedic literature; *arhati*—deserves.

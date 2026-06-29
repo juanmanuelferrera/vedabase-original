@@ -1,9 +1,9 @@
 ### CC Adi 9.10
 
-> জয় শ্রীমাধবপুরী কৃষ্ণপ্রেমপূর ।
+> জয় শ্রীমাধবপুরী কৃষ্ণপ্রেমপূর ।\
 > ভক্তিকল্পতরুর তেঁহো প্রথম অঙ্কুর ॥১০॥
 
-> jaya śrī mādhavapurī kṛṣṇa-prema-pūra
+> jaya śrī mādhavapurī kṛṣṇa-prema-pūra\
 > bhakti-kalpatarura teṅho prathama aṅkura
 
 *jaya*—toda gloria; *śrī mādhava-purī*—a Mādhavendra Purī; *kṛṣṇa-prema-pūra*—almacén de todo el amor por Dios; *bhakti-kalpa-tarura*—del árbol de los deseos del servicio devocional; *teṅho*—él es; *prathama*—la primera; *aṅkura*—fructificación.

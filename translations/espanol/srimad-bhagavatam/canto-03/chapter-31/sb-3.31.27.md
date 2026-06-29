@@ -1,11 +1,11 @@
 ### SB 3.31.27
 
-> तुदन्त्यामत्वचं दंशा मशका मत्कुणादयः ।
+> तुदन्त्यामत्वचं दंशा मशका मत्कुणादयः ।\
 > रुदन्तं विगतज्ञानं कृमयः कृमिकं यथा ॥२७॥
 
-> tudanty āma-tvacaṁ daṁśā
-> maśakā matkuṇādayaḥ
-> rudantaṁ vigata-jñānaṁ
+> tudanty āma-tvacaṁ daṁśā\
+> maśakā matkuṇādayaḥ\
+> rudantaṁ vigata-jñānaṁ\
 > kṛmayaḥ kṛmikaṁ yathā
 
 *tudanti*—muerden; *āma-tvacam*—al bebé, cuya piel es suave; *daṁśāḥ*—tábanos; *maśakāḥ*—mosquitos; *matkuṇa*—chinches; *ādayaḥ*—y otras criaturas; *rudantam*—llorar; *vigata*—privado de; *jñānam*—sabiduría; *kṛmayaḥ*—gusanos; *kṛmikam*—un gusano; *yathā*—tal como.

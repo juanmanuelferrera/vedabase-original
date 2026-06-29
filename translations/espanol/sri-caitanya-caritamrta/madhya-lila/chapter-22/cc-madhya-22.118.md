@@ -1,9 +1,9 @@
 ### CC Madhya 22.118
 
-> অবৈষ্ণব-সঙ্গ-ত্যাগ, বহুশিষ্য না করিব ।
+> অবৈষ্ণব-সঙ্গ-ত্যাগ, বহুশিষ্য না করিব ।\
 > বহুগ্রন্থ-কলাভ্যাস-ব্যাখ্যান বর্জিব ॥১১৮॥
 
-> avaiṣṇava-saṅga-tyāga, bahu-śiṣya nā kariba
+> avaiṣṇava-saṅga-tyāga, bahu-śiṣya nā kariba\
 > bahu-grantha-kalābhyāsa-vyākhyāna varjiba
 
 *avaiṣṇava*—de alguien que no es devoto del Señor; *saṅga*—la asociación; *tyāga*—abandonar; *bahu-śiṣya*—un número ilimitado de discípulos; *nā kariba*—no se debe aceptar; *bahu-grantha*—de muchos tipos diferentes de escrituras; *kalā-abhyāsa*—estudiar una parte; *vyākhyāna*—y explicación; *varjiba*—debemos abandonar.

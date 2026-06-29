@@ -1,9 +1,9 @@
 ### CC Antya 11.14
 
-> দিনে দিনে বাড়ে বিকার, রাত্র্যে অতিশয় ।
+> দিনে দিনে বাড়ে বিকার, রাত্র্যে অতিশয় ।\
 > চিন্তা, উদ্বেগ, প্রলাপাদি যত শাস্ত্রে কয় ॥১৪॥
 
-> dine dine bāḍe vikāra, rātrye atiśaya
+> dine dine bāḍe vikāra, rātrye atiśaya\
 > cintā, udvega, pralāpādi yata śāstre kaya
 
 *dine dine*—día tras día; *bāḍe*—aumentan; *vikāra*—transformaciones; *rātrye atiśaya*—especialmente por la noche; *cintā*—ansiedad; *udvega*—agitación; *pralāpa*—hablar como un loco; *ādi*—etcétera; *yata*—tantos como; *śāstre kaya*—se mencionan en los *śāstras*.

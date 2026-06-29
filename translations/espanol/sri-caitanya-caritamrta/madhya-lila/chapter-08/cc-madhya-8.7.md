@@ -1,9 +1,9 @@
 ### CC Madhya 8.7
 
-> এইমত নানা শ্লোক পড়ি’ স্তুতি কৈল ৷
+> এইমত নানা শ্লোক পড়ি’ স্তুতি কৈল ৷\
 > নৃসিংহ-সেবক মালা-প্রসাদ আনি’ দিল ৷৷ ৭ ৷৷ ॥৭॥
 
-> ei-mata nānā śloka paḍi' stuti kaila
+> ei-mata nānā śloka paḍi' stuti kaila\
 > nṛsiṁha-sevaka mālā-prasāda āni' dila
 
 *ei-mata*—de esta manera; *nānā*—diversos; *śloka*—versos; *paḍi'*—recitando; *stuti*—oraciones; *kaila*—ofreció; *nṛsiṁha-sevaka*—el sacerdote del Señor Nṛsiṁhadeva en el templo; *mālā*—guirnaldas; *prasāda*—y remanentes de la comida del Señor Nṛsiṁhadeva; *āni'*—trayendo; *dila*—ofreció.

@@ -1,11 +1,11 @@
 ### SB 4.24.39
 
-> सर्वसत्त्वात्मदेहाय विशेषाय स्थवीयसे ।
+> सर्वसत्त्वात्मदेहाय विशेषाय स्थवीयसे ।\
 > नमस्त्रैलोक्यपालाय सह ओजोबलाय च ॥३९॥
 
-> sarva-sattvātma-dehāya
-> viśeṣāya sthavīyase
-> namas trailokya-pālāya
+> sarva-sattvātma-dehāya\
+> viśeṣāya sthavīyase\
+> namas trailokya-pālāya\
 > saha ojo-balāya ca
 
 *sarva*—toda; *sattva*—existencia; *ātma*—alma; *dehāya*—al cuerpo; *viśeṣāya*—diversidad; *sthavīyase*—al mundo material; *namaḥ*—ofrecer reverencias; *trai-lokya*—tres sistemas planetarios; *pālāya*—sustentador; *saha*—junto con; *ojaḥ*—poder; *balāya*—a la fuerza; *ca*—también.

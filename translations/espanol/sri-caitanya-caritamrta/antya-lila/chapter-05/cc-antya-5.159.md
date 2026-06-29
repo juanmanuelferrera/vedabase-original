@@ -1,9 +1,9 @@
 ### CC Antya 5.159
 
-> এই ত’ কহিলুঁ প্রদ্যুম্নমিশ্র-বিবরণ ।
+> এই ত’ কহিলুঁ প্রদ্যুম্নমিশ্র-বিবরণ ।\
 > প্রভুর আজ্ঞায় কৈল কৃষ্ণকথার শ্রবণ ॥১৫৯॥
 
-> ei ta' kahiluṅ pradyumna-miśra-vivaraṇa
+> ei ta' kahiluṅ pradyumna-miśra-vivaraṇa\
 > prabhura ājñāya kaila kṛṣṇa-kathāra śravaṇa
 
 *ei ta' kahiluṅ*—así he descrito; *pradyumna-miśra-vivaraṇa*—la narración descriptiva de Pradyumna Miśra; *prabhura ājñāya*—por orden de Śrī Caitanya Mahāprabhu; *kaila*—hizo; *kṛṣṇa-kathāra śravaṇa*—escuchar discursos sobre temas relativos a Kṛṣṇa.

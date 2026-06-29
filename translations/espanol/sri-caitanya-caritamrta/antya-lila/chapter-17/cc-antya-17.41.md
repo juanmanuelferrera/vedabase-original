@@ -1,13 +1,13 @@
 ### CC Antya 17.41
 
-> “কণ্ঠের গম্ভীর ধ্বনি, নবঘন-ধ্বনি জিনি’,
-> যার গুণে কোকিল লাজায় ।
-> তার এক শ্রুতি-কণে, ডুবায় জগতের কাণে,
+> “কণ্ঠের গম্ভীর ধ্বনি, নবঘন-ধ্বনি জিনি’,\
+> যার গুণে কোকিল লাজায় ।\
+> তার এক শ্রুতি-কণে, ডুবায় জগতের কাণে,\
 > পুনঃ কাণ বাহুড়ি’ না আয় ॥৪১॥
 
-> "kaṇṭhera gambhīra dhvani, navaghana-dhvani jini',
-> yāra guṇe kokila lājāya
-> tāra eka śruti-kaṇe, ḍubāya jagatera kāṇe,
+> "kaṇṭhera gambhīra dhvani, navaghana-dhvani jini',\
+> yāra guṇe kokila lājāya\
+> tāra eka śruti-kaṇe, ḍubāya jagatera kāṇe,\
 > punaḥ kāṇa bāhuḍi' nā āya
 
 *kaṇṭhera*—de la garganta; *gambhīra*—profundo; *dhvani*—sonido; *nava-ghana*—de nubes nuevas; *dhvani*—la resonancia; *jini'*—conquistando; *yāra*—de la cual; *guṇe*—las cualidades; *kokila*—el cucú; *lājāya*—avergonzado; *tāra*—de esa; *eka*—una; *śruti-kaṇe*—partícula de sonido; *ḍubāya*—inunda; *jagatera*—de todo el mundo; *kāṇe*—el oído; *punaḥ*—de nuevo; *kāṇa*—el oído; *bāhuḍi'*—saliendo; *nā āya*—no puede salir.

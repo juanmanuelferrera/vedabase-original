@@ -1,11 +1,11 @@
 ### SB 7.5.50
 
-> इमं तु पाशैर्वरुणस्य बद्ध्वा निधेहि भीतो न पलायते यथा
+> इमं तु पाशैर्वरुणस्य बद्ध्वा निधेहि भीतो न पलायते यथा\
 > बुद्धिश्च पुंसो वयसार्यसेवया यावद्गुरुर्भार्गव आगमिष्यति ॥५०॥
 
-> imaṁ tu pāśair varuṇasya baddhvā
-> nidhehi bhīto na palāyate yathā
-> buddhiś ca puṁso vayasārya-sevayā
+> imaṁ tu pāśair varuṇasya baddhvā\
+> nidhehi bhīto na palāyate yathā\
+> buddhiś ca puṁso vayasārya-sevayā\
 > yāvad gurur bhārgava āgamiṣyati
 
 *imam*—this; *tu*—but; *pāśaiḥ*—by the ropes; *varuṇasya*—of the demigod known as Varuṇa; *baddhvā*—binding; *nidhehi*—keep (him); *bhītaḥ*—being afraid; *na*—not; *palāyate*—runs away; *yathā*—so that; *buddhiḥ*—the intelligence; *ca*—also; *puṁsaḥ*—of a man; *vayasā*—by increase of age; *ārya*—of experienced, advanced persons; *sevayā*—by the service; *yāvat*—until; *guruḥ*—our spiritual master; *bhārgavaḥ*—Śukrācārya; *āgamiṣyati*—will come.

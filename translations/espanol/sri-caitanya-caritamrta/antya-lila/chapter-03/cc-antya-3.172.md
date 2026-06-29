@@ -1,9 +1,9 @@
 ### CC Antya 3.172
 
-> একদিন বলরাম মিনতি করিয়া ।
+> একদিন বলরাম মিনতি করিয়া ।\
 > মজুমদারের সভায় আইলা ঠাকুরে লঞা ॥১৭২॥
 
-> eka-dina balarāma minati kariyā
+> eka-dina balarāma minati kariyā\
 > majumadārera sabhāya āilā ṭhākure lañā
 
 *eka-dina*—un día; *balarāma*—Balarāma Ācārya; *minati kariyā*—con gran humildad; *majumadārera*—de los Majumadāras, Hiraṇya y Govardhana; *sabhāya*—a la asamblea; *āilā*—fue; *ṭhākure*—Haridāsa Ṭhākura; *lañā*—llevando consigo.

@@ -1,9 +1,9 @@
 ### CC Adi 15.19
 
-> আমি কহি, — আমার অনাথ পিতা-মাতা ।
+> আমি কহি, — আমার অনাথ পিতা-মাতা ।\
 > আমি বালক, — সন্ন্যাসের কিবা জানি কথা ॥১৯॥
 
-> āmi kahi,--āmāra anātha pitā-mātā
+> āmi kahi,--āmāra anātha pitā-mātā\
 > āmi bālaka,--sannyāsera kibā jāni kathā
 
 *āmi kahi*—Yo dije; *āmāra*—Mis; *anātha*—desamparados; *pitā-mātā*—padre y madre; *āmi*—Yo; *bālaka*—solo un niño; *sannyāsera*—de la orden de vida de renuncia; *kibā*—qué; *jāni*—sé; *kathā*—palabras.

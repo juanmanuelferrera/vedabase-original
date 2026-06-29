@@ -1,9 +1,9 @@
 ### CC Adi 10.51
 
-> চিকিৎসা করেন যারে হইয়া সদয় ।
+> চিকিৎসা করেন যারে হইয়া সদয় ।\
 > দেহরোগ ভবরোগ, — দুই তার ক্ষয় ॥৫১॥
 
-> cikitsā karena yāre ha-iyā sadaya
+> cikitsā karena yāre ha-iyā sadaya\
 > deha-roga bhāva-roga,--dui tāra kṣaya
 
 *cikitsā*—tratamiento médico; *karena*—practicaba; *yāre*—a quien; *ha-iyā*—siendo; *sadaya*—compasivo; *deha-roga*—la enfermedad del cuerpo; *bhāva-roga*—la enfermedad de la existencia material; *dui*—ambas; *tāra*—sus; *kṣaya*—se reducían.

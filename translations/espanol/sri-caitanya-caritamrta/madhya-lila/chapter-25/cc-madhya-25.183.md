@@ -1,9 +1,9 @@
 ### CC Madhya 25.183
 
-> kāṅthā-karaṅgiyā mora kāṅgāla bhakta-gaṇa
+> kāṅthā-karaṅgiyā mora kāṅgāla bhakta-gaṇa\
 > vṛndāvane āile tāṅdera kariha pālana
 
-> kāṅthā-karaṅgiyā mora kāṅgāla bhakta-gaṇa
+> kāṅthā-karaṅgiyā mora kāṅgāla bhakta-gaṇa\
 > vṛndāvane āile tāṅdera kariha pālana
 
 *kāṅthā*—colcha raída; *karaṅgiyā*—una pequeña vasija de agua; *mora*—Mis; *kāṅgāla*—pobres; *bhakta-gaṇa*—devotos; *vṛndāvane āile*—cuando lleguen a Vṛndāvana; *tāṅdera*—de todos ellos; *kariha pālana*—encárgate del cuidado.

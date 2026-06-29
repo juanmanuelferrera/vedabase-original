@@ -1,11 +1,11 @@
 ### SB 4.28.34
 
-> हित्वा गृहान्सुतान्भोगान्वैदर्भी मदिरेक्षणा ।
+> हित्वा गृहान्सुतान्भोगान्वैदर्भी मदिरेक्षणा ।\
 > अन्वधावत पाण्ड्येशं ज्योत्स्नेव रजनीकरम् ॥३४॥
 
-> hitvā gṛhān sutān bhogān
-> vaidarbhī madirekṣaṇā
-> anvadhāvata pāṇḍyeśaṁ
+> hitvā gṛhān sutān bhogān\
+> vaidarbhī madirekṣaṇā\
+> anvadhāvata pāṇḍyeśaṁ\
 > jyotsneva rajanī-karam
 
 *hitvā*—giving up; *gṛhān*—home; *sutān*—children; *bhogān*—material happiness; *vaidarbhī*—the daughter of King Vidarbha; *madira-īkṣaṇā*—with enchanting eyes; *anvadhāvata*—followed; *pāṇḍya-īśam*—King Malayadhvaja; *jyotsnā iva*—like the moonshine; *rajanī-karam*—the moon.

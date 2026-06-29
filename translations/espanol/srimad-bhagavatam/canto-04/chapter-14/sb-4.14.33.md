@@ -1,11 +1,11 @@
 ### SB 4.14.33
 
-> को वैनं परिचक्षीत वेनमेकमृतेऽशुभम् ।
+> को वैनं परिचक्षीत वेनमेकमृतेऽशुभम् ।\
 > प्राप्त ईदृशमैश्वर्यं यदनुग्रहभाजनः ॥३३॥
 
-> ko vainaṁ paricakṣīta
-> venam ekam ṛte 'śubham
-> prāpta īdṛśam aiśvaryaṁ
+> ko vainaṁ paricakṣīta\
+> venam ekam ṛte 'śubham\
+> prāpta īdṛśam aiśvaryaṁ\
 > yad-anugraha-bhājanaḥ
 
 *kaḥ*—quién; *vā*—en verdad; *enam*—contra el Señor; *paricakṣīta*—blasfemaría; *venam*—el rey Vena; *ekam*—solo; *ṛte*—con excepción de; *aśubham*—funesto; *prāptaḥ*—habiendo obtenido; *īdṛśam*—como esta; *aiśvaryam*—opulencia; *yat*—cuya; *anugraha*—misericordia; *bhājanaḥ*—recibir.

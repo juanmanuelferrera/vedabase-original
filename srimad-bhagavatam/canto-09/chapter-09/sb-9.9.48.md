@@ -1,11 +1,11 @@
 ### SB 9.9.48
 
-> इति व्यवसितो बुद्ध्या नारायणगृहीतया
+> इति व्यवसितो बुद्ध्या नारायणगृहीतया\
 > हित्वान्यभावमज्ञआनं ततः स्वं भावमास्थितः ॥४८॥
 
-> iti vyavasito buddhyā
-> nārāyaṇa-gṛhītayā
-> hitvānya-bhāvam ajñānaṁ
+> iti vyavasito buddhyā\
+> nārāyaṇa-gṛhītayā\
+> hitvānya-bhāvam ajñānaṁ\
 > tataḥ svaṁ bhāvam āsthitaḥ
 
 *iti*—thus; *vyavasitaḥ*—having firmly decided; *buddhyā*—by proper intelligence; *nārāyaṇa-gṛhītayā*—completely controlled by the mercy of Nārāyaṇa, the Supreme Personality of Godhead; *hitvā*—giving up; *anya-bhāvam*—consciousness other than Kṛṣṇa consciousness; *ajñānam*—which is nothing but constant ignorance and darkness; *tataḥ*—thereafter; *svam*—his original position as an eternal servant of Kṛṣṇa; *bhāvam*—devotional service; *āsthitaḥ*—situated.

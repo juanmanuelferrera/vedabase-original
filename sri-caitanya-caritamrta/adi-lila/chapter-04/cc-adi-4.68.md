@@ -1,9 +1,9 @@
 ### CC Adi 4.68
 
-> হ্লাদিনীর সার ‘প্রেম’, প্রেমসার ‘ভাব’ ।
+> হ্লাদিনীর সার ‘প্রেম’, প্রেমসার ‘ভাব’ ।\
 > ভাবের পরমকাষ্ঠা, নাম — ‘মহাভাব’ ॥৬৮॥
 
-> hlādinīra sāra 'prema', prema-sāra 'bhāva'
+> hlādinīra sāra 'prema', prema-sāra 'bhāva'\
 > bhāvera parama-kāṣṭhā, nāma—'mahā-bhāva'
 
 *hlādinīra*—of the pleasure potency; *sāra*—the essence; *prema*—love for God; *prema-sāra*—the essence of such love; *bhāva*—emotion; *bhāvera*—of emotion; *parama-kāṣṭhā*—the highest limit; *nāma*—named; *mahā-bhāva*—*mahābhāva.*

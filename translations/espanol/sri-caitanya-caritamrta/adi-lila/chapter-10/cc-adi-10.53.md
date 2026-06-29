@@ -1,9 +1,9 @@
 ### CC Adi 10.53
 
-> শ্রীগদাধর দাস শাখা সর্বোপরি ।
+> শ্রীগদাধর দাস শাখা সর্বোপরি ।\
 > কাজীগণের মুখে যেঁহ বোলাইল হরি ॥৫৩॥
 
-> śrī-gadādhara dāsa śākhā sarvopari
+> śrī-gadādhara dāsa śākhā sarvopari\
 > kājī-gaṇera mukhe yeṅha bolāila hari
 
 *śrī-gadādhara dāsa*—de nombre Śrī Gadādhara dāsa; *śākhā*—otra rama; *sarva-upari*—por encima de todos; *kājī-gaṇera*—de los Kāzīs (magistrados musulmanes); *mukhe*—en la boca; *yeṅha*—aquel que; *bolāila*—hizo pronunciar; *hari*—el santo nombre de Hari.

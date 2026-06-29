@@ -1,9 +1,9 @@
 ### CC Madhya 3.106
 
-> বহুত নাচাইলে তুমি, ছাড় নাচান ।
+> বহুত নাচাইলে তুমি, ছাড় নাচান ।\
 > মুকুন্দ-হরিদাস লইয়া করহ ভোজন ॥১০৬॥
 
-> bahuta nācāile tumi, chāḍa nācāna
+> bahuta nācāile tumi, chāḍa nācāna\
 > mukunda-haridāsa la-iyā karaha bhojana
 
 *bahuta*—in various ways; *nācāile*—have made Me dance; *tumi*—You; *chāḍa*—give up; *nācāna*—dancing; *mukunda*—Mukunda; *haridāsa*—Haridāsa; *la-iyā*—with; *karaha*—do; *bhojana*—eating.

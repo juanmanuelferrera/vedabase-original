@@ -1,11 +1,11 @@
 ### SB 8.5.32
 
-> पादौ महीयं स्वकृतैव यस्य चतुर्विधो यत्र हि भूतसर्गः
+> पादौ महीयं स्वकृतैव यस्य चतुर्विधो यत्र हि भूतसर्गः\
 > स वै महापूरुष आत्मतन्त्रः प्रसीदतां ब्रह्म महाविभूतिः ॥३२॥
 
-> pādau mahīyaṁ sva-kṛtaiva yasya
-> catur-vidho yatra hi bhūta-sargaḥ
-> sa vai mahā-pūruṣa ātma-tantraḥ
+> pādau mahīyaṁ sva-kṛtaiva yasya\
+> catur-vidho yatra hi bhūta-sargaḥ\
+> sa vai mahā-pūruṣa ātma-tantraḥ\
 > prasīdatāṁ brahma mahā-vibhūtiḥ
 
 *pādau*—Sus pies de loto; *mahī*—la Tierra; *iyam*—esta; *sva-kṛta*—creada por Él mismo; *eva*—en verdad; *yasya*—de quien; *catuḥ-vidhaḥ*—de cuatro clases de entidades vivientes; *yatra*—de donde; *hi*—en verdad; *bhūta-sargaḥ*—la creación material; *saḥ*—Él; *vai*—en verdad; *mahā-pūruṣaḥ*—la Persona Suprema; *ātma-tantraḥ*—autosuficiente; *prasīdatām*—que Él sea misericordioso con nosotros; *brahma*—el más grande; *mahā-vibhūtiḥ*—de potencia ilimitada.

@@ -1,9 +1,9 @@
 ### SB 5.2.17
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > इति ललनानुनयातिविशारदो ग्राम्यवैदग्ध्यया परिभाषया तां विबुधवधूं विबुधमतिरधिसभाजयामास ॥१७॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > iti lalanānunayāti-viśārado grāmya-vaidagdhyayā paribhāṣayā tāṁ vibudha-vadhūṁ vibudha-matir adhisabhājayām āsa.
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī dijo; *iti*—así; *lalanā*—mujeres; *anunaya*—en conquistar; *ati-viśāradaḥ*—muy experto; *grāmya-vaidagdhyayā*—experto en satisfacer los deseos materiales; *paribhāṣayā*—con palabras escogidas; *tām*—a ella; *vibudha-vadhūm*—a la muchacha celestial; *vibudha-matiḥ*—Āgnīdhra, que tenía la inteligencia de los semidioses; *adhisabhājayām āsa*—conquistó el favor de.

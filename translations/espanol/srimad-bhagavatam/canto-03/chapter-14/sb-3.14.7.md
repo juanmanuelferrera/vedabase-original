@@ -1,11 +1,11 @@
 ### SB 3.14.7
 
-> अथात्रापीतिहासोऽयं श्रुतो मे वर्णितः पुरा ।
+> अथात्रापीतिहासोऽयं श्रुतो मे वर्णितः पुरा ।\
 > ब्रह्मणा देवदेवेन देवानामनुपृच्छताम् ॥७॥
 
-> athātrāpītihāso 'yaṁ
-> śruto me varṇitaḥ purā
-> brahmaṇā deva-devena
+> athātrāpītihāso 'yaṁ\
+> śruto me varṇitaḥ purā\
+> brahmaṇā deva-devena\
 > devānām anupṛcchatām
 
 *atha*—ahora; *atra*—en este tema; *api*—también; *itihāsaḥ*—historia; *ayam*—esta; *śrutaḥ*—oída; *me*—por mí; *varṇitaḥ*—descrita; *purā*—años atrás; *brahmaṇā*—por Brahmā; *deva-devena*—el principal de los semidioses; *devānām*—por los semidioses; *anupṛcchatām*—preguntando.

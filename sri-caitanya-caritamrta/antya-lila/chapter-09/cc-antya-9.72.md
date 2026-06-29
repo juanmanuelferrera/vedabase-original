@@ -1,9 +1,9 @@
 ### CC Antya 9.72
 
-> তোমার চরণ-কৃপা হঞাছে তাহারে ।
+> তোমার চরণ-কৃপা হঞাছে তাহারে ।\
 > ছত্রে মাগি’ খায়, ‘বিষয়’ স্পর্শ নাহি করে ॥৭২॥
 
-> tomāra caraṇa-kṛpā hañāche tāhāre
+> tomāra caraṇa-kṛpā hañāche tāhāre\
 > chatre māgi' khāya, 'viṣaya' sparśa nāhi kare
 
 *tomāra caraṇa*—of Your lotus feet; *kṛpā*—the mercy; *hañāche*—has been; *tāhāre*—upon him; *chatre*—from centers for the distribution of food; *māgi'*—begging; *khāya*—he eats; *viṣaya*—money; *sparśa nāhi kare*—he does not touch.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.44
 
-> গোপালচম্পূ-নামে গ্রন্থমহাশূর ।
+> গোপালচম্পূ-নামে গ্রন্থমহাশূর ।\
 > নিত্যলীলা স্থাপন যাহে ব্রজরস-পূর ॥৪৪॥
 
-> gopāla-campū-nāme grantha-mahāśūra
+> gopāla-campū-nāme grantha-mahāśūra\
 > nitya-līlā sthāpana yāhe vraja-rasa-pūra
 
 *gopāla-campū*—Gopāla-campū; *nāme*—de nombre; *grantha*—la obra literaria trascendental; *mahā-śūra*—la más formidable; *nitya-līlā*—de los pasatiempos eternos; *sthāpana*—establecimiento; *yāhe*—en la cual; *vraja-rasa*—los mellows trascendentales de los que se disfruta en Vṛndāvana; *pūra*—completos.

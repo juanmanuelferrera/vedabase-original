@@ -1,9 +1,9 @@
 ### CC Adi 11.46
 
-> নারায়ণ, কৃষ্ণদাস আর মনোহর ।
+> নারায়ণ, কৃষ্ণদাস আর মনোহর ।\
 > দেবানন্দ — চারি ভাই নিতাই-কিঙ্কর ॥৪৬॥
 
-> nārāyaṇa, kṛṣṇadāsa āra manohara
+> nārāyaṇa, kṛṣṇadāsa āra manohara\
 > devānanda--cāri bhāi nitāi-kiṅkara
 
 *nārāyaṇa*—de nombre Nārāyaṇa; *kṛṣṇadāsa*—de nombre Kṛṣṇadāsa; *āra*—y; *manohara*—de nombre Manohara; *devānanda*—de nombre Devānanda; *cāri bhāi*—cuatro hermanos; *nitāi-kiṅkara*—servidores del Señor Nityānanda Prabhu.

@@ -1,9 +1,9 @@
 ### CC Antya 13.34
 
-> “বারাণসী পর্যন্ত স্বচ্ছন্দে যাইবা পথে ।
+> “বারাণসী পর্যন্ত স্বচ্ছন্দে যাইবা পথে ।\
 > আগে সাবধানে যাইবা ক্ষত্রিয়াদি-সাথে ॥৩৪॥
 
-> "vārāṇasī paryanta svacchande yāibā pathe
+> "vārāṇasī paryanta svacchande yāibā pathe\
 > āge sāvadhāne yāibā kṣatriyādi-sāthe
 
 *vārāṇasī paryanta*—hasta Vārāṇasī; *svacchande*—sin dificultades; *yāibā pathe*—puedes ir por el camino; *āge*—después de eso; *sāvadhāne*—con mucho cuidado; *yāibā*—debes ir; *kṣatriya-ādi-sāthe*—en compañía de los *kṣatriyas*.

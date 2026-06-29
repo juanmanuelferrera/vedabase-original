@@ -1,11 +1,11 @@
 ### SB 8.16.25
 
-> फाल्गुनस्यामले पक्षे द्वादशाहं पयोव्रतम
+> फाल्गुनस्यामले पक्षे द्वादशाहं पयोव्रतम\
 > अर्चयेदरविन्दाक्षं भक्त्या परमयान्वितः ॥२५॥
 
-> phālgunasyāmale pakṣe
-> dvādaśāhaṁ payo-vratam
-> arcayed aravindākṣaṁ
+> phālgunasyāmale pakṣe\
+> dvādaśāhaṁ payo-vratam\
+> arcayed aravindākṣaṁ\
 > bhaktyā paramayānvitaḥ
 
 *phālgunasya*—del mes de *phālguna* (febrero y marzo); *amale*—durante la brillante; *pakṣe*—quincena; *dvādaśa-aham*—durante doce días, que se completan en *dvādaśī*, el día después de *ekādaśī*; *payaḥ-vratam*—observar el voto de tomar solamente leche; *arcayet*—se debe adorar; *aravinda-akṣam*—a la Personalidad de Dios, de ojos de loto; *bhaktyā*—con devoción; *paramayā*—pura; *anvitaḥ*—rebosante.

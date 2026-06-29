@@ -1,9 +1,9 @@
 ### CC Antya 6.47
 
-> শুনি’ প্রভু কহে, — “চোরা দিলি দরশন ।
+> শুনি’ প্রভু কহে, — “চোরা দিলি দরশন ।\
 > আয়, আয়, আজি তোর করিমু দণ্ডন ।।” ॥ ৪৭ ॥
 
-> śuni' prabhu kahe,--"corā dili daraśana
+> śuni' prabhu kahe,--"corā dili daraśana\
 > āya, āya, āji tora karimu daṇḍana"
 
 *śuni'*—al oír; *prabhu kahe*—el Señor Nityānanda Prabhu dijo; *corā*—ladrón; *dili daraśana*—has venido a verme; *āya āya*—ven aquí, ven aquí; *āji*—hoy; *tora*—tu; *karimu*—haré; *daṇḍana*—castigo.

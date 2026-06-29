@@ -1,6 +1,6 @@
 ### SB 5.21.8-9
 
-> तत्रत्यानां दिवसमध्यङ्गत एव सदादित्यस्तपति सव्येनाचलं दक्षिणेन करोति ॥८॥
+> तत्रत्यानां दिवसमध्यङ्गत एव सदादित्यस्तपति सव्येनाचलं दक्षिणेन करोति ॥८॥\
 > यत्रोदेति तस्य ह समानसूत्रनिपाते निम्लोचति यत्र क्वचन स्यन्देनाभितपति तस्य हैष समानसूत्रनिपाते प्रस्वापयति तत्र गतं न पश्यन्ति ये तं समनुपश्येरन ॥९॥
 
 > tatratyānāṁ divasa-madhyaṅgata eva sadādityas tapati savyenācalaṁ dakṣiṇena karoti; yatrodeti tasya ha samāna-sūtra-nipāte nimlocati yatra kvacana syandenābhitapati tasya haiṣa samāna-sūtra-nipāte prasvāpayati tatra gataṁ na paśyanti ye taṁ samanupaśyeran.

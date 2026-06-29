@@ -1,9 +1,9 @@
 ### CC Madhya 10.17
 
-> রাজা কহে, — ভট্ট তুমি বিজ্ঞশিরোমণি ।
+> রাজা কহে, — ভট্ট তুমি বিজ্ঞশিরোমণি ।\
 > তুমি তাঁরে ‘কৃষ্ণ’ কহ, তাতে সত্য মানি ॥১৭॥
 
-> rājā kahe,-bhaṭṭa tumi vijña-śiromaṇi
+> rājā kahe,-bhaṭṭa tumi vijña-śiromaṇi\
 > tumi tāṅre 'kṛṣṇa' kaha, tāte satya māni
 
 *rājā kahe*—the King said; *bhaṭṭa*—Sārvabhauma Bhaṭṭācārya; *tumi*—you; *vijña-śiromaṇi*—the most experienced learned scholar; *tumi*—you; *tāṅre*—Him; *kṛṣṇa kaha*—address as Lord Kṛṣṇa; *tāte*—your statement; *satya māni*—I accept as true.

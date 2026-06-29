@@ -1,9 +1,9 @@
 ### CC Madhya 15.294
 
-> প্রভু কহে, — গোপীনাথ, ইহাঞি রহিবা ।
+> প্রভু কহে, — গোপীনাথ, ইহাঞি রহিবা ।\
 > ইঁহো প্রসাদ পাইলে, বার্তা আমাকে কহিবা ॥২৯৪॥
 
-> prabhu kahe,--gopīnātha, ihāñi rahibā
+> prabhu kahe,--gopīnātha, ihāñi rahibā\
 > iṅho prasāda pāile, vārtā āmāke kahibā
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *gopīnātha*—Gopīnātha; *ihāñi rahibā*—por favor quédate aquí; *iṅho*—Sārvabhauma Bhaṭṭācārya; *prasāda pāile*—cuando tome su almuerzo; *vārtā*—la noticia; *āmāke kahibā*—infórmame.

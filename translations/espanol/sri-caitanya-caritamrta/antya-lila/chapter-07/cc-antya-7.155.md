@@ -1,9 +1,9 @@
 ### CC Antya 7.155
 
-> পথে পণ্ডিতেরে স্বরূপ কহেন বচন ।
+> পথে পণ্ডিতেরে স্বরূপ কহেন বচন ।\
 > “পরীক্ষিতে প্রভু তোমারে কৈলা উপেক্ষণ ॥১৫৫॥
 
-> pathe paṇḍitere svarūpa kahena vacana
+> pathe paṇḍitere svarūpa kahena vacana\
 > "parīkṣite prabhu tomāre kailā upekṣaṇa
 
 *pathe*—en el camino; *paṇḍitere*—a Gadādhara Paṇḍita; *svarūpa*—Svarūpa Dāmodara; *kahena vacana*—dijo unas palabras; *parīkṣite*—para poner a prueba; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *tomāre*—a ti; *kailā upekṣaṇa*—desatendió.

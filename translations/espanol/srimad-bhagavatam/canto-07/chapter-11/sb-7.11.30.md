@@ -1,11 +1,11 @@
 ### SB 7.11.30
 
-> वृत्तिः सङ्करजातीनां तत्तत्कुलकृता भवेत
+> वृत्तिः सङ्करजातीनां तत्तत्कुलकृता भवेत\
 > अचौराणामपापानामन्त्यजान्तेवसायिनाम ॥३०॥
 
-> vṛttiḥ saṅkara-jātīnāṁ
-> tat-tat-kula-kṛtā bhavet
-> acaurāṇām apāpānām
+> vṛttiḥ saṅkara-jātīnāṁ\
+> tat-tat-kula-kṛtā bhavet\
+> acaurāṇām apāpānām\
 > antyajāntevasāyinām
 
 *vṛttiḥ*—deber prescrito; *saṅkara-jātīnām*—de las clases humanas mixtas (los que no entran en las cuatro divisiones); *tat-tat*—conforme a sus respectivas; *kula-kṛtā*—tradiciones familiares; *bhavet*—deben ser; *acaurāṇām*—no ladrones de profesión; *apāpānām*—no pecaminoso; *antyaja*—clases inferiores; *antevasāyinām*—llamados *antevasāyī* o *caṇḍālas*.

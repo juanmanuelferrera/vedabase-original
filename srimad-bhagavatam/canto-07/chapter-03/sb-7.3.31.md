@@ -1,11 +1,11 @@
 ### SB 7.3.31
 
-> त्वमेव कालोऽनिमिषो जनानामायुर्लवाद्यवयवैः क्षिणोषि
+> त्वमेव कालोऽनिमिषो जनानामायुर्लवाद्यवयवैः क्षिणोषि\
 > कूटस्थ आत्मा परमेष्ठ्यजो महांस्त्वं जीवलोकस्य च जीव आत्मा ॥३१॥
 
-> tvam eva kālo 'nimiṣo janānām
-> āyur lavādy-avayavaiḥ kṣiṇoṣi
-> kūṭa-stha ātmā parameṣṭhy ajo mahāṁs
+> tvam eva kālo 'nimiṣo janānām\
+> āyur lavādy-avayavaiḥ kṣiṇoṣi\
+> kūṭa-stha ātmā parameṣṭhy ajo mahāṁs\
 > tvaṁ jīva-lokasya ca jīva ātmā
 
 *tvam*—you; *eva*—indeed; *kālaḥ*—unlimited time; *animiṣaḥ*—unblinking; *janānām*—of all living entities; *āyuḥ*—the duration of life; *lava-ādi*—consisting of seconds, moments, minutes and hours; *avayavaiḥ*—by different parts; *kṣiṇoṣi*—reduce; *kūṭa-sthaḥ*—without being affected by anything; *ātmā*—the Supersoul; *parameṣṭhī*—the Supreme Lord; *ajaḥ*—the unborn; *mahān*—the great; *tvam*—you; *jīva-lokasya*—of this material world; *ca*—also; *jīvaḥ*—the cause of life; *ātmā*—the Supersoul.

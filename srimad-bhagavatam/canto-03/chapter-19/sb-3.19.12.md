@@ -1,11 +1,11 @@
 ### SB 3.19.12
 
-> स्वपौरुषे प्रतिहते हतमानो महासुरः ।
+> स्वपौरुषे प्रतिहते हतमानो महासुरः ।\
 > नैच्छद्गदां दीयमानां हरिणा विगतप्रभः ॥१२॥
 
-> sva-pauruṣe pratihate
-> hata-māno mahāsuraḥ
-> naicchad gadāṁ dīyamānāṁ
+> sva-pauruṣe pratihate\
+> hata-māno mahāsuraḥ\
+> naicchad gadāṁ dīyamānāṁ\
 > hariṇā vigata-prabhaḥ
 
 *sva-pauruṣe*—his valor; *pratihate*—frustrated; *hata*—destroyed; *mānaḥ*—pride; *mahā-asuraḥ*—the great demon; *na aicchat*—desired not (to take); *gadām*—the mace; *dīyamānām*—being offered; *hariṇā*—by Hari; *vigata-prabhaḥ*—reduced in splendor.

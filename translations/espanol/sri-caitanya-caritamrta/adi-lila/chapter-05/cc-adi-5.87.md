@@ -1,11 +1,11 @@
 ### CC Adi 5.87
 
-> এতদীশনমীশস্য প্রকৃতিস্থোঽপি তদ্গুণৈঃ ।
+> এতদীশনমীশস্য প্রকৃতিস্থোঽপি তদ্গুণৈঃ ।\
 > ন যুজ্যতে সদাত্মস্থৈর্যথা বুদ্ধিস্তদাশ্রয়া ॥৮৭॥
 
-> etad īśanam īśasya
-> prakṛti-stho 'pi tad-guṇaiḥ
-> na yujyate sadātma-sthair
+> etad īśanam īśasya\
+> prakṛti-stho 'pi tad-guṇaiḥ\
+> na yujyate sadātma-sthair\
 > yathā buddhis tad-āśrayā
 
 *etat*—esta es; *īśanam*—la opulencia; *īśasya*—del Señor; *prakṛti-sthaḥ*—dentro de este mundo material; *api*—aunque; *tat-guṇaiḥ*—por las cualidades materiales; *na yujyate*—nunca es afectado; *sadā*—siempre; *ātma-sthaiḥ*—situados en Su propia energía; *yathā*—como también; *buddhiḥ*—la inteligencia; *tat*—Su; *āśrayā*—los devotos.

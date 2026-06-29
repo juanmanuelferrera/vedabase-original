@@ -1,9 +1,9 @@
 ### CC Madhya 4.142
 
-> সেই ভয়ে রাত্রি-শেষে চলিলা শ্রীপুরী ।
+> সেই ভয়ে রাত্রি-শেষে চলিলা শ্রীপুরী ।\
 > সেইখানে গোপীনাথে দণ্ডবত্ করি’ ॥১৪২॥
 
-> sei bhaye rātri-śeṣe calilā śrī-purī
+> sei bhaye rātri-śeṣe calilā śrī-purī\
 > sei-khāne gopīnāthe daṇḍavat kari'
 
 *sei bhaye*—temiendo eso; *rātri-śeṣe*—al final de la noche; *calilā*—partió; *śrī-purī*—Śrī Mādhavendra Purī; *sei-khāne*—en aquel lugar; *gopīnāthe*—al Señor Gopīnātha; *daṇḍavat*—reverencias; *kari'*—haciendo.

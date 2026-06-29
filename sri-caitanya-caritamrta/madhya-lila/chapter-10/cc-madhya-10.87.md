@@ -1,9 +1,9 @@
 ### CC Madhya 10.87
 
-> দিন দুই-তিন আচার্য মহোৎসব কৈল ।
+> দিন দুই-তিন আচার্য মহোৎসব কৈল ।\
 > নীলাচল যাইতে আচার্য যুক্তি দৃঢ় কৈল ॥৮৭॥
 
-> dina dui-tina ācārya mahotsava kaila
+> dina dui-tina ācārya mahotsava kaila\
 > nīlācala yāite ācārya yukti dṛḍha kaila
 
 *dina dui-tina*—for two or three days; *ācārya*—Advaita Ācārya; *mahotsava*—festival; *kaila*—performed; *nīlācala*—to Jagannātha Purī; *yāite*—to go; *ācārya*—Advaita Ācārya; *yukti*—consideration; *dṛḍha*—firm; *kaila*—made.

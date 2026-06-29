@@ -1,11 +1,11 @@
 ### SB 8.20.10
 
-> मनस्विनः कारुणिकस्य शोभनं यदर्थिकामोपनयेन दुर्गतिः
+> मनस्विनः कारुणिकस्य शोभनं यदर्थिकामोपनयेन दुर्गतिः\
 > कुतः पुनर्ब्रह्मविदां भवादृशां ततो वटोरस्य ददामि वाञ्छितम ॥१०॥
 
-> manasvinaḥ kāruṇikasya śobhanaṁ
-> yad arthi-kāmopanayena durgatiḥ
-> kutaḥ punar brahma-vidāṁ bhavādṛśāṁ
+> manasvinaḥ kāruṇikasya śobhanaṁ\
+> yad arthi-kāmopanayena durgatiḥ\
+> kutaḥ punar brahma-vidāṁ bhavādṛśāṁ\
 > tato vaṭor asya dadāmi vāñchitam
 
 *manasvinaḥ*—of persons who are greatly munificent; *kāruṇikasya*—of persons celebrated as very merciful; *śobhanam*—very auspicious; *yat*—that; *arthi*—of persons in need of money; *kāma-upanayena*—by satisfying; *durgatiḥ*—becoming poverty-stricken; *kutaḥ*—what; *punaḥ*—again (is to be said); *brahma-vidām*—of persons well versed in transcendental science (*brahma-vidyā*); *bhavādṛśām*—like your good self; *tataḥ*—therefore; *vaṭoḥ*—of the *brahmacārī*; *asya*—of this Vāmanadeva; *dadāmi*—I shall give; *vāñchitam*—whatever He wants.

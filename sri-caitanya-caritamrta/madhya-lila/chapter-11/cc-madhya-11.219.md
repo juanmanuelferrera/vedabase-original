@@ -1,9 +1,9 @@
 ### CC Madhya 11.219
 
-> কীর্তন দেখি’ সবার মনে হৈল চমৎকার ।
+> কীর্তন দেখি’ সবার মনে হৈল চমৎকার ।\
 > কভু নাহি দেখি ঐছে প্রেমের বিকার ॥২১৯॥
 
-> kīrtana dekhi' sabāra mane haila camatkāra
+> kīrtana dekhi' sabāra mane haila camatkāra\
 > kabhu nāhi dekhi aiche premera vikāra
 
 *kīrtana dekhi'*—seeing the performance of *saṅkīrtana*; *sabāra*—of all of them; *mane*—in the mind; *haila*—there was; *camatkāra*—astonishment; *kabhu*—at any time; *nāhi*—never; *dekhi*—see; *aiche*—such; *premera*—of ecstatic love; *vikāra*—transformation.

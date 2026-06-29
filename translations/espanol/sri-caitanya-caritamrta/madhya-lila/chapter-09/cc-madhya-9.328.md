@@ -1,9 +1,9 @@
 ### CC Madhya 9.328
 
-> রাত্রিকালে রায় পুনঃ কৈল আগমন ৷
+> রাত্রিকালে রায় পুনঃ কৈল আগমন ৷\
 > দুই জনে কৃষ্ণকথায় কৈল জাগরণ ৷৷ ৩২৮ ৷৷ ॥৩২৮॥
 
-> rātri-kāle rāya punaḥ kaila āgamana
+> rātri-kāle rāya punaḥ kaila āgamana\
 > dui jane kṛṣṇa-kathāya kaila jāgaraṇa
 
 *rātri-kāle*—por la noche; *rāya*—Rāmānanda Rāya; *punaḥ*—de nuevo; *kaila*—hizo; *āgamana*—llegada; *dui jane*—los dos; *kṛṣṇa-kathāya*—en conversaciones sobre temas de Kṛṣṇa; *kaila*—pasaron; *jāgaraṇa*—la noche en vela.

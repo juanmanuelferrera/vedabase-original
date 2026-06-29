@@ -1,11 +1,11 @@
 ### SB 1.2.25
 
-> भेजिरे मुनयोऽथाग्रे भगवन्तमधोक्षजम् ।
+> भेजिरे मुनयोऽथाग्रे भगवन्तमधोक्षजम् ।\
 > सत्त्वं विशुद्धं क्षेमाय कल्पन्ते येऽनु तानिह ॥२५॥
 
-> bhejire munayo 'thāgre
-> bhagavantam adhokṣajam
-> sattvaṁ viśuddhaṁ kṣemāya
+> bhejire munayo 'thāgre\
+> bhagavantam adhokṣajam\
+> sattvaṁ viśuddhaṁ kṣemāya\
 > kalpante ye 'nu tān iha
 
 *bhejire*—rendered service unto; *munayaḥ*—the sages; *atha*—thus; *agre*—previously; *bhagavantam*—unto the Personality of Godhead; *adhokṣajam*—the Transcendence; *sattvam*—existence; *viśuddham*—above the three modes of nature; *kṣemāya*—to derive the ultimate benefit; *kalpante*—deserve; *ye*—those; *anu*—follow; *tān*—those; *iha*—in this material world.

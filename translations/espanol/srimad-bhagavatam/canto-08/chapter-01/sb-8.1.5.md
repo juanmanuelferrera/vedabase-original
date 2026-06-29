@@ -1,11 +1,11 @@
 ### SB 8.1.5
 
-> आकूत्यां देवहूत्यां च दुहित्रोस्तस्य वै मनोः
+> आकूत्यां देवहूत्यां च दुहित्रोस्तस्य वै मनोः\
 > धर्मज्ञआनोपदेशार्थं भगवान्पुत्रतां गतः ॥५॥
 
-> ākūtyāṁ devahūtyāṁ ca
-> duhitros tasya vai manoḥ
-> dharma-jñānopadeśārthaṁ
+> ākūtyāṁ devahūtyāṁ ca\
+> duhitros tasya vai manoḥ\
+> dharma-jñānopadeśārthaṁ\
 > bhagavān putratāṁ gataḥ
 
 *ākūtyām*—del vientre de Ākūti; *devahūtyām ca*—y del vientre de Devahūti; *duhitroḥ*—de las dos hijas; *tasya*—de él; *vai*—en verdad; *manoḥ*—de Svāyambhuva Manu; *dharma*—religión; *jñāna*—y conocimiento; *upadeśa-artham*—para instruir; *bhagavān*—la Suprema Personalidad de Dios; *putratām*—en carácter de hijo de Ākūti y de Devahūti; *gataḥ*—aceptó.

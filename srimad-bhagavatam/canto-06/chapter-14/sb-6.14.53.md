@@ -1,11 +1,11 @@
 ### SB 6.14.53
 
-> स्तनद्वयं कुङ्कुमपङ्कमण्डितं निषिञ्चती साञ्जनबाष्पबिन्दुभिः
+> स्तनद्वयं कुङ्कुमपङ्कमण्डितं निषिञ्चती साञ्जनबाष्पबिन्दुभिः\
 > विकीर्य केशान्विगलत्स्रजः सुतं शुशोच चित्रं कुररीव सुस्वरम ॥५३॥
 
-> stana-dvayaṁ kuṅkuma-paṅka-maṇḍitaṁ
-> niṣiñcatī sāñjana-bāṣpa-bindubhiḥ
-> vikīrya keśān vigalat-srajaḥ sutaṁ
+> stana-dvayaṁ kuṅkuma-paṅka-maṇḍitaṁ\
+> niṣiñcatī sāñjana-bāṣpa-bindubhiḥ\
+> vikīrya keśān vigalat-srajaḥ sutaṁ\
 > śuśoca citraṁ kurarīva susvaram
 
 *stana-dvayam*—her two breasts; *kuṅkuma*—with *kuṅkuma* powder (which is generally sprayed on the breasts of women); *paṅka*—ointment; *maṇḍitam*—decorated; *niṣiñcatī*—moistening; *sa-añjana*—mixed with the eye ointment; *bāṣpa*—of tears; *bindubhiḥ*—by drops; *vikīrya*—scattering; *keśān*—hair; *vigalat*—was falling down; *srajaḥ*—on which the flower garland; *sutam*—for her son; *śuśoca*—lamented; *citram*—variegated; *kurarī iva*—like a *kurarī* bird; *su-svaram*—in a very sweet voice.

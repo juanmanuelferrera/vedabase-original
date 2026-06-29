@@ -1,9 +1,9 @@
 ### CC Antya 2.144
 
-> দেখি’ ত্রাস উপজিল সব ভক্তগণে ।
+> দেখি’ ত্রাস উপজিল সব ভক্তগণে ।\
 > স্বপ্নেহ ছাড়িল সবে স্ত্রী-সম্ভাষণে ॥১৪৪॥
 
-> dekhi' trāsa upajila saba bhakta-gaṇe
+> dekhi' trāsa upajila saba bhakta-gaṇe\
 > svapne-ha chāḍila sabe strī-sambhāṣaṇe
 
 *dekhi'*—al ver; *trāsa*—una atmósfera de temor; *upajila*—creció; *saba bhakta-gaṇe*—entre todos los devotos; *svapne-ha*—incluso en sueños; *chāḍila*—abandonaron; *sabe*—todos; *strī-sambhāṣaṇe*—las conversaciones con mujeres.

@@ -1,11 +1,11 @@
 ### SB 8.20.22
 
-> काये बलिस्तस्य महाविभूतेः सहर्त्विगाचार्यसदस्य एतत
+> काये बलिस्तस्य महाविभूतेः सहर्त्विगाचार्यसदस्य एतत\
 > ददर्श विश्वं त्रिगुणं गुणात्मके भूतेन्द्रियार्थाशयजीवयुक्तम ॥२२॥
 
-> kāye balis tasya mahā-vibhūteḥ
-> sahartvig-ācārya-sadasya etat
-> dadarśa viśvaṁ tri-guṇaṁ guṇātmake
+> kāye balis tasya mahā-vibhūteḥ\
+> sahartvig-ācārya-sadasya etat\
+> dadarśa viśvaṁ tri-guṇaṁ guṇātmake\
 > bhūtendriyārthāśaya-jīva-yuktam
 
 *kāye*—en el cuerpo; *baliḥ*—Mahārāja Bali; *tasya*—de la Personalidad de Dios; *mahā-vibhūteḥ*—de la persona que está dotada con todas las opulencias maravillosas; *saha-ṛtvik-ācārya-sadasyaḥ*—con todos los sacerdotes, *ācāryas* y miembros de la sagrada asamblea; *etat*—esto; *dadarśa*—vieron; *viśvam*—el universo entero; *tri-guṇam*—hechos de las tres modalidades de la naturaleza material; *guṇa-ātmake*—en aquello que es la fuente de todas esas cualidades; *bhūta*—con todos los elementos materiales densos; *indriya*—con los sentidos; *artha*—con los objetos de los sentidos; *āśaya*—con la mente, la inteligencia y el ego falso; *jīva-yuktam*—con todas las entidades vivientes.

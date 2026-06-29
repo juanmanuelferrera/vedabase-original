@@ -1,14 +1,14 @@
 ### SB 4.29.49
 
-> आस्तीर्य दर्भैः प्रागग्रैः कार्त्स्न्येन क्षितिमण्डलम् ।
-> स्तब्धो बृहद्वधान्मानी कर्म नावैषि यत्परम् ।
+> आस्तीर्य दर्भैः प्रागग्रैः कार्त्स्न्येन क्षितिमण्डलम् ।\
+> स्तब्धो बृहद्वधान्मानी कर्म नावैषि यत्परम् ।\
 > तत्कर्म हरितोषं यत्सा विद्या तन्मतिर्यया ॥४९॥
 
-> āstīrya darbhaiḥ prāg-agraiḥ
-> kārtsnyena kṣiti-maṇḍalam
-> stabdho bṛhad-vadhān mānī
-> karma nāvaiṣi yat param
-> tat karma hari-toṣaṁ yat
+> āstīrya darbhaiḥ prāg-agraiḥ\
+> kārtsnyena kṣiti-maṇḍalam\
+> stabdho bṛhad-vadhān mānī\
+> karma nāvaiṣi yat param\
+> tat karma hari-toṣaṁ yat\
 > sā vidyā tan-matir yayā
 
 *āstīrya*—having covered; *darbhaiḥ*—by *kuśa* grass; *prāk-agraiḥ*—with the points facing east; *kārtsnyena*—altogether; *kṣiti-maṇḍalam*—the surface of the world; *stabdhaḥ*—proud upstart; *bṛhat*—great; *vadhāt*—by killing; *mānī*—thinking yourself very important; *karma*—activity; *na avaiṣi*—you do not know; *yat*—which; *param*—supreme; *tat*—that; *karma*—activity; *hari-toṣam*—satisfying the Supreme Lord; *yat*—which; *sā*—that; *vidyā*—education; *tat*—unto the Lord; *matiḥ*—consciousness; *yayā*—by which.

@@ -1,11 +1,11 @@
 ### CC Madhya 19.141
 
-> বালাগ্রশতভাগস্য শতধা কল্পিতস্য চ ৷
+> বালাগ্রশতভাগস্য শতধা কল্পিতস্য চ ৷\
 > ভাগো জীবঃ স বিজ্ঞেয় ইতি চাহ পরা শ্রুতিঃ ॥১৪১॥
 
-> bālāgra-śata-bhāgasya
-> śatadhā kalpitasya ca
-> bhāgo jīvaḥ sa vijñeya
+> bālāgra-śata-bhāgasya\
+> śatadhā kalpitasya ca\
+> bhāgo jīvaḥ sa vijñeya\
 > iti cāha parā śrutiḥ
 
 *bāla-agra*—la punta de un cabello; *śata-bhāgasya*—de una centésima parte; *śata-dhā*—en cien partes; *kalpitasya*—dividida; *ca*—y; *bhāgaḥ*—porción diminuta; *jīvaḥ*—la entidad viviente; *saḥ*—eso; *vijñeyaḥ*—debe entenderse; *iti*—así; *ca*—y; *āha*—han dicho; *parā*—principales; *śrutiḥ*—mantras Védicos.

@@ -1,11 +1,11 @@
 ### SB 8.19.43
 
-> स्त्रीषु नर्मविवाहे च वृत्त्यर्थे प्राणसङ्कटे
+> स्त्रीषु नर्मविवाहे च वृत्त्यर्थे प्राणसङ्कटे\
 > गोब्राह्मणार्थे हिंसायां नानृतं स्याज्जुगुप्सितम ॥४३॥
 
-> strīṣu narma-vivāhe ca
-> vṛtty-arthe prāṇa-saṅkaṭe
-> go-brāhmaṇārthe hiṁsāyāṁ
+> strīṣu narma-vivāhe ca\
+> vṛtty-arthe prāṇa-saṅkaṭe\
+> go-brāhmaṇārthe hiṁsāyāṁ\
 > nānṛtaṁ syāj jugupsitam
 
 *strīṣu*—para animar a una mujer y tenerla bajo control; *narma-vivāhe*—en broma o en una ceremonia de bodas; *ca*—también; *vṛtti-arthe*—para ganarse el sustento, como, por ejemplo, en los negocios; *prāṇa-saṅkaṭe*—o en momentos de peligro; *go-brāhmaṇa-arthe*—para proteger a las vacas y la cultura brahmínica; *hiṁsāyām*—para cualquier persona que va a ser matada debido a la enemistad; *na*—no; *anṛtam*—falsedad; *syāt*—se vuelve; *jugupsitam*—abominable.

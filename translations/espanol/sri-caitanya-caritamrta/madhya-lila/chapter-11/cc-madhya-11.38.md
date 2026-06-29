@@ -1,9 +1,9 @@
 ### CC Madhya 11.38
 
-> আমি কি করিব, মন ইহাঁ লঞা আইল ৷
+> আমি কি করিব, মন ইহাঁ লঞা আইল ৷\
 > জগন্নাথ-দরশনে বিচার না কৈল ৷৷ ৩৮ ৷৷ ॥৩৮॥
 
-> āmi ki kariba, mana ihāṅ lañā āila
+> āmi ki kariba, mana ihāṅ lañā āila\
 > jagannātha-daraśane vicāra nā kaila
 
 *āmi*—yo; *ki*—qué; *kariba*—haré; *mana*—mi mente; *ihāṅ*—aquí; *lañā*—llevando; *āila*—llegó; *jagannātha-daraśane*—a ver al Señor Jagannātha; *vicāra*—consideración; *nā*—no; *kaila*—hizo.

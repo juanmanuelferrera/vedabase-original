@@ -1,9 +1,9 @@
 ### CC Adi 10.117
 
-> প্রভুর আজ্ঞায় নিত্যানন্দ গৌড়ে চলিলা ।
+> প্রভুর আজ্ঞায় নিত্যানন্দ গৌড়ে চলিলা ।\
 > তাঁর সঙ্গে তিনজন প্রভু-আজ্ঞায় আইলা ॥১১৭॥
 
-> prabhura ājñāya nityānanda gauḍe calilā
+> prabhura ājñāya nityānanda gauḍe calilā\
 > tāṅra saṅge tina-jana prabhu-ājñāya āilā
 
 *prabhura ājñāya*—por orden del Señor Caitanya Mahāprabhu; *nityānanda*—el Señor Nityānanda; *gauḍe*—a Bengala; *calilā*—regresó; *tāṅra saṅge*—en Su compañía; *tina jana*—tres personas; *prabhu-ājñāya*—por orden del Señor; *āilā*—fueron.

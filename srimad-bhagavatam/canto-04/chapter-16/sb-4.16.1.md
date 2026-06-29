@@ -1,13 +1,13 @@
 ### SB 4.16.1
 
-> मैत्रेय उवाच
-> इति ब्रुवाणं नृपतिं गायका मुनिचोदिताः ।
+> मैत्रेय उवाच\
+> इति ब्रुवाणं नृपतिं गायका मुनिचोदिताः ।\
 > तुष्टुवुस्तुष्टमनसस्तद्वागमृतसेवया ॥१॥
 
-> maitreya uvāca
-> iti bruvāṇaṁ nṛpatiṁ
-> gāyakā muni-coditāḥ
-> tuṣṭuvus tuṣṭa-manasas
+> maitreya uvāca\
+> iti bruvāṇaṁ nṛpatiṁ\
+> gāyakā muni-coditāḥ\
+> tuṣṭuvus tuṣṭa-manasas\
 > tad-vāg-amṛta-sevayā
 
 *maitreyaḥ uvāca*—the great sage Maitreya said; *iti*—thus; *bruvāṇam*—speaking; *nṛpatim*—the King; *gāyakāḥ*—the reciters; *muni*—by the sages; *coditāḥ*—having been instructed; *tuṣṭuvuḥ*—praised, satisfied; *tuṣṭa*—being pleased; *manasaḥ*—their minds; *tat*—his; *vāk*—words; *amṛta*—nectarean; *sevayā*—by hearing.

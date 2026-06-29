@@ -1,11 +1,11 @@
 ### SB 3.13.39
 
-> नमो नमस्तेऽखिलमन्त्रदेवता द्रव्याय सर्वक्रतवे क्रियात्मने ।
+> नमो नमस्तेऽखिलमन्त्रदेवता द्रव्याय सर्वक्रतवे क्रियात्मने ।\
 > वैराग्यभक्त्यात्मजयानुभावित ज्ञानाय विद्यागुरवे नमो नमः ॥३९॥
 
-> namo namas te 'khila-mantra-devatā-
-> dravyāya sarva-kratave kriyātmane
-> vairāgya-bhaktyātmajayānubhāvita-
+> namo namas te 'khila-mantra-devatā-\
+> dravyāya sarva-kratave kriyātmane\
+> vairāgya-bhaktyātmajayānubhāvita-\
 > jñānāya vidyā-gurave namo namaḥ
 
 *namaḥ namaḥ*—obeisances unto You; *te*—unto You, who are worshipable; *akhila*—all-inclusive; *mantra*—hymns; *devatā*—the Supreme Lord; *dravyāya*—unto all ingredients for performing sacrifices; *sarva-kratave*—unto all kinds of sacrifices; *kriyā-ātmane*—unto You, the supreme form of all sacrifices; *vairāgya*—renunciation; *bhaktyā*—by devotional service; *ātma-jaya-anubhāvita*—perceivable by conquering the mind; *jñānāya*—such knowledge; *vidyā-gurave*—the supreme spiritual master of all knowledge; *namaḥ namaḥ*—again I offer my respectful obeisances.

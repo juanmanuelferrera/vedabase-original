@@ -1,9 +1,9 @@
 ### CC Madhya 20.83
 
-> সনাতন জানিল এই প্রভুরে না ভায় ।
+> সনাতন জানিল এই প্রভুরে না ভায় ।\
 > ভোট ত্যাগ করিবারে চিন্তিলা উপায় ॥৮৩॥
 
-> sanātana jānila ei prabhure nā bhāya
+> sanātana jānila ei prabhure nā bhāya\
 > bhoṭa tyāga karibāre cintilā upāya
 
 *sanātana jānila*—Sanātana Gosvāmī could understand; *ei*—this; *prabhure*—by Śrī Caitanya Mahāprabhu; *nā bhāya*—is not approved; *bhoṭa*—the woolen blanket; *tyāga*—giving up; *karibāre*—to do; *cintilā*—considered; *upāya*—a means.

@@ -1,11 +1,11 @@
 ### SB 8.18.28
 
-> तत्पादशौचं जनकल्मषापहं स धर्मविन्मूर्ध्न्यदधात्सुमङ्गलम
+> तत्पादशौचं जनकल्मषापहं स धर्मविन्मूर्ध्न्यदधात्सुमङ्गलम\
 > यद्देवदेवो गिरिशश्चन्द्रमौलिर्दधार मूर्ध्ना परया च भक्त्या ॥२८॥
 
-> tat-pāda-śaucaṁ jana-kalmaṣāpahaṁ
-> sa dharma-vin mūrdhny adadhāt sumaṅgalam
-> yad deva-devo giriśaś candra-maulir
+> tat-pāda-śaucaṁ jana-kalmaṣāpahaṁ\
+> sa dharma-vin mūrdhny adadhāt sumaṅgalam\
+> yad deva-devo giriśaś candra-maulir\
 > dadhāra mūrdhnā parayā ca bhaktyā
 
 *tat-pāda-śaucam*—the water that washed the lotus feet of the Lord; *jana-kalmaṣa-apaham*—which washes away all the sinful reactions of the people in general; *saḥ*—he (Bali Mahārāja); *dharma-vit*—completely aware of religious principles; *mūrdhni*—on the head; *adadhāt*—carried; *su-maṅgalam*—all-auspicious; *yat*—which; *deva-devaḥ*—the best of the demigods; *giriśaḥ*—Lord Śiva; *candra-mauliḥ*—who carries on his forehead the emblem of the moon; *dadhāra*—carried; *mūrdhnā*—on the head; *parayā*—supreme; *ca*—also; *bhaktyā*—with devotion.

@@ -1,11 +1,11 @@
 ### SB 8.5.6
 
-> तस्यानुभावः कथितो गुणाश्च परमोदयाः
+> तस्यानुभावः कथितो गुणाश्च परमोदयाः\
 > भौमान्रेणून्स विममे यो विष्णोर्वर्णयेद्गुणान ॥६॥
 
-> tasyānubhāvaḥ kathito
-> guṇāś ca paramodayāḥ
-> bhaumān reṇūn sa vimame
+> tasyānubhāvaḥ kathito\
+> guṇāś ca paramodayāḥ\
+> bhaumān reṇūn sa vimame\
 > yo viṣṇor varṇayed guṇān
 
 *tasya*—of the Supreme Personality of Godhead appearing as Vaikuṇṭha; *anubhāvaḥ*—great activities; *kathitaḥ*—were explained; *guṇāḥ*—transcendental qualities; *ca*—also; *parama-udayāḥ*—greatly glorious; *bhaumān*—earthly; *reṇūn*—particles; *saḥ*—someone; *vimame*—can count; *yaḥ*—such a person; *viṣṇoḥ*—of Lord Viṣṇu; *varṇayet*—can count; *guṇān*—the transcendental qualities.

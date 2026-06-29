@@ -1,11 +1,11 @@
 ### SB 2.6.23
 
-> यदास्य नाभ्यान्नलिनादहमासं महात्मनः ।
+> यदास्य नाभ्यान्नलिनादहमासं महात्मनः ।\
 > नाविदं यज्ञसम्भारान्पुरुषावयवानृते ॥२३॥
 
-> yadāsya nābhyān nalinād
-> aham āsaṁ mahātmanaḥ
-> nāvidaṁ yajña-sambhārān
+> yadāsya nābhyān nalinād\
+> aham āsaṁ mahātmanaḥ\
+> nāvidaṁ yajña-sambhārān\
 > puruṣāvayavān ṛte
 
 *yadā*—en el momento de; *asya*—Su; *nābhyāt*—del abdomen; *nalināt*—de la flor de loto; *aham*—yo; *āsam*—nací; *mahā-ātmanaḥ*—de la gran persona; *na avidam*—no sabía; *yajña*—de sacrificio; *sambhārān*—ingredientes; *puruṣa*—del Señor; *avayavān*—extremidades corporales personales; *ṛte*—excepto.

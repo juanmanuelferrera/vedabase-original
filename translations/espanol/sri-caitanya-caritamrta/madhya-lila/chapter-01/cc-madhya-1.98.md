@@ -1,9 +1,9 @@
 ### CC Madhya 1.98
 
-> ক্রুদ্ধ হঞা একা গেলা জগন্নাথ দেখিতে ।
+> ক্রুদ্ধ হঞা একা গেলা জগন্নাথ দেখিতে ।\
 > দেখিয়া মূর্চ্ছিত হঞা পড়িলা ভূমিতে ॥৯৮॥
 
-> kruddha hañā ekā gelā jagannātha dekhite
+> kruddha hañā ekā gelā jagannātha dekhite\
 > dekhiyā mūrcchita hañā paḍilā bhūmite
 
 *kruddha*—airado; *hañā*—volviéndose; *ekā*—solo; *gelā*—fue; *jagannātha*—al Señor Jagannātha; *dekhite*—a ver; *dekhiyā*—después de ver a Jagannātha; *mūrcchita*—inconsciente; *hañā*—volviéndose; *paḍilā*—cayó; *bhūmite*—al suelo.

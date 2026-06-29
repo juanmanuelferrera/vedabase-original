@@ -1,9 +1,9 @@
 ### CC Madhya 15.107
 
-> “এক কৃষ্ণনামে করে সর্ব-পাপ ক্ষয় ।
+> “এক কৃষ্ণনামে করে সর্ব-পাপ ক্ষয় ।\
 > নববিধা ভক্তি পূর্ণ নাম হৈতে হয় ॥১০৭॥
 
-> "eka kṛṣṇa-nāme kare sarva-pāpa kṣaya
+> "eka kṛṣṇa-nāme kare sarva-pāpa kṣaya\
 > nava-vidhā bhakti pūrṇa nāma haite haya
 
 *eka kṛṣṇa-nāme*—one holy name of Kṛṣṇa; *kare*—can do; *sarva-pāpa*—of all sinful reactions; *kṣaya*—destruction; *nava-vidhā*—nine processes; *bhakti*—of devotional service; *pūrṇa*—complete; *nāma haite*—simply by chanting the holy name; *haya*—are.

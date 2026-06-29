@@ -1,14 +1,14 @@
 ### SB 9.14.42
 
-> गन्धर्वानुपधावेमांस्तुभ्यं दास्यन्ति मामिति
-> तस्य संस्तुवतस्तुष्टा अग्निस्थालीं ददुर्नृप
+> गन्धर्वानुपधावेमांस्तुभ्यं दास्यन्ति मामिति\
+> तस्य संस्तुवतस्तुष्टा अग्निस्थालीं ददुर्नृप\
 > उर्वशीं मन्यमानस्तां सोऽबुध्यत चरन्वने ॥४२॥
 
-> gandharvān upadhāvemāṁs
-> tubhyaṁ dāsyanti mām iti
-> tasya saṁstuvatas tuṣṭā
-> agni-sthālīṁ dadur nṛpa
-> urvaśīṁ manyamānas tāṁ
+> gandharvān upadhāvemāṁs\
+> tubhyaṁ dāsyanti mām iti\
+> tasya saṁstuvatas tuṣṭā\
+> agni-sthālīṁ dadur nṛpa\
+> urvaśīṁ manyamānas tāṁ\
 > so 'budhyata caran vane
 
 *gandharvān*—en los *gandharvas*; *upadhāva*—ve y refúgiate; *imān*—estos; *tubhyam*—a ti; *dāsyanti*—darán; *mām iti*—idéntica a mí, o yo misma; *tasya*—por él; *saṁstuvataḥ*—ofrecer oraciones; *tuṣṭāḥ*—satisfechos; *agni-sthālīm*—una muchacha nacida del fuego; *daduḥ*—entregaron; *nṛpa*—¡oh, rey!; *urvaśīm*—en Urvaśī; *manya-mānaḥ*—pensar; *tām*—a ella; *saḥ*—él (Purūravā); *abudhyata*—entendió de hecho; *caran*—mientras paseaban; *vane*—por el bosque.

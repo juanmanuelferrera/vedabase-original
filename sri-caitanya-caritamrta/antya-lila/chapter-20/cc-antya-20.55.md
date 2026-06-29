@@ -1,13 +1,13 @@
 ### CC Antya 20.55
 
-> সেই নারী জীয়ে কেনে, কৃষ্ণ-মর্ম ব্যথা জানে,
-> তবু কৃষ্ণে করে গাঢ় রোষ ।
-> নিজ-সুখে মানে কাজ, পড়ুক তার শিরে বাজ,
+> সেই নারী জীয়ে কেনে, কৃষ্ণ-মর্ম ব্যথা জানে,\
+> তবু কৃষ্ণে করে গাঢ় রোষ ।\
+> নিজ-সুখে মানে কাজ, পড়ুক তার শিরে বাজ,\
 > কৃষ্ণের মাত্র চাহিয়ে সন্তোষ ॥৫৫॥
 
-> sei nārī jīye kene, kṛṣṇa-marma vyathā jāne,
-> tabu kṛṣṇe kare gāḍha roṣa
-> nija-sukhe māne kāja, paḍuka tāra śire vāja,
+> sei nārī jīye kene, kṛṣṇa-marma vyathā jāne,\
+> tabu kṛṣṇe kare gāḍha roṣa\
+> nija-sukhe māne kāja, paḍuka tāra śire vāja,\
 > kṛṣṇera mātra cāhiye santoṣa
 
 *sei nārī*—that woman; *jīye*—lives; *kene*—why; *kṛṣṇa-marma*—Kṛṣṇa's heart; *vyathā*—unhappy; *jāne*—knows; *tabu*—still; *kṛṣṇe*—unto Kṛṣṇa; *kare*—does; *gāḍha roṣa*—deep anger; *nija-sukhe*—in her own happiness; *māne*—considers; *kāja*—the only business; *paḍuka*—let there fall; *tāre*—of her; *śire*—on the head; *vāja*—a thunderbolt; *kṛṣṇera*—of Kṛṣṇa; *mātra*—only; *cāhiye*—we want; *santoṣa*—the happiness.

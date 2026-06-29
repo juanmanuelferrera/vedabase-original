@@ -1,11 +1,11 @@
 ### SB 5.18.31
 
-> यद्रूपमेतन्निजमाययार्पितमर्थस्वरूपं बहुरूपरूपितम
+> यद्रूपमेतन्निजमाययार्पितमर्थस्वरूपं बहुरूपरूपितम\
 > सङ्ख्या न यस्यास्त्ययथोपलम्भनात्तस्मै नमस्तेऽव्यपदेशरूपिणे ॥३१॥
 
-> yad-rūpam etan nija-māyayārpitam
-> artha-svarūpaṁ bahu-rūpa-rūpitam
-> saṅkhyā na yasyāsty ayathopalambhanāt
+> yad-rūpam etan nija-māyayārpitam\
+> artha-svarūpaṁ bahu-rūpa-rūpitam\
+> saṅkhyā na yasyāsty ayathopalambhanāt\
 > tasmai namas te 'vyapadeśa-rūpiṇe
 
 *yat*—of whom; *rūpam*—the form; *etat*—this; *nija-māyayā arpitam*—manifested by Your personal potency; *artha-svarūpam*—this entire visible cosmic manifestation; *bahu-rūpa-rūpitam*—manifested in various forms; *saṅkhyā*—the measurement; *na*—not; *yasya*—of which; *asti*—there is; *ayathā*—falsely; *upalambhanāt*—from perceiving; *tasmai*—unto Him (the Supreme Lord); *namaḥ*—my respectful obeisances; *te*—unto You; *avyapadeśa*—cannot be ascertained by mental speculation; *rūpiṇe*—whose real form.

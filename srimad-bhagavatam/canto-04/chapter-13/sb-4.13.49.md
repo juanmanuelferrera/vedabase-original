@@ -1,11 +1,11 @@
 ### SB 4.13.49
 
-> अलक्षयन्तः पदवीं प्रजापतेर्हतोद्यमाः प्रत्युपसृत्य ते पुरीम् ।
+> अलक्षयन्तः पदवीं प्रजापतेर्हतोद्यमाः प्रत्युपसृत्य ते पुरीम् ।\
 > ऋषीन्समेतानभिवन्द्य साश्रवो न्यवेदयन्पौरव भर्तृविप्लवम् ॥४९॥
 
-> alakṣayantaḥ padavīṁ prajāpater
-> hatodyamāḥ pratyupasṛtya te purīm
-> ṛṣīn sametān abhivandya sāśravo
+> alakṣayantaḥ padavīṁ prajāpater\
+> hatodyamāḥ pratyupasṛtya te purīm\
+> ṛṣīn sametān abhivandya sāśravo\
 > nyavedayan paurava bhartṛ-viplavam
 
 *alakṣayantaḥ*—not finding; *padavīm*—any trace; *prajāpateḥ*—of King Aṅga; *hata-udyamāḥ*—having become disappointed; *pratyupasṛtya*—after returning; *te*—those citizens; *purīm*—to the city; *ṛṣīn*—the great sages; *sametān*—assembled; *abhivandya*—after making respectful obeisances; *sa-aśravaḥ*—with tears in their eyes; *nyavedayan*—informed; *paurava*—O Vidura; *bhartṛ*—of the King; *viplavam*—the absence.

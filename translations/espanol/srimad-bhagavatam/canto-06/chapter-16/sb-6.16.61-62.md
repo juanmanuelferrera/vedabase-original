@@ -1,18 +1,18 @@
 ### SB 6.16.61-62
 
-> एवं विपर्ययं बुद्ध्वा नृणां विज्ञआभिमानिनाम
-> आत्मनश्च गतिं सूक्ष्मां स्थानत्रयविलक्षणाम ॥६१॥
-> दृष्टश्रुताभिर्मात्राभिर्निर्मुक्तः स्वेन तेजसा
+> एवं विपर्ययं बुद्ध्वा नृणां विज्ञआभिमानिनाम\
+> आत्मनश्च गतिं सूक्ष्मां स्थानत्रयविलक्षणाम ॥६१॥\
+> दृष्टश्रुताभिर्मात्राभिर्निर्मुक्तः स्वेन तेजसा\
 > ज्ञआनविज्ञआनसन्तृप्तो मद्भक्तः पुरुषो भवेत ॥६२॥
 
-> evaṁ viparyayaṁ buddhvā
-> nṛṇāṁ vijñābhimāninām
-> ātmanaś ca gatiṁ sūkṣmāṁ
+> evaṁ viparyayaṁ buddhvā\
+> nṛṇāṁ vijñābhimāninām\
+> ātmanaś ca gatiṁ sūkṣmāṁ\
 > sthāna-traya-vilakṣaṇām
 
-> dṛṣṭa-śrutābhir mātrābhir
-> nirmuktaḥ svena tejasā
-> jñāna-vijñāna-santṛpto
+> dṛṣṭa-śrutābhir mātrābhir\
+> nirmuktaḥ svena tejasā\
+> jñāna-vijñāna-santṛpto\
 > mad-bhaktaḥ puruṣo bhavet
 
 *evam*—de ese modo; *viparyayam*—inverso; *buddhvā*—comprender; *nṛṇām*—de hombres; *vijña-abhimāninām*—que se creen llenos de conocimiento científico; *ātmanaḥ*—del ser; *ca*—también; *gatim*—el progreso; *sūkṣmām*—sumamente difícil de entender; *sthāna-traya*—los tres estados de vida (sueño profundo, sueño y vigilia); *vilakṣaṇām*—aparte de; *dṛṣṭa*—percibidos directamente; *śrutābhiḥ*—o entendidos por la información de las autoridades; *mātrābhiḥ*—de objetos; *nirmuktaḥ*—liberado; *svena*—por la propia; *tejasā*—capacidad de discernimiento; *jñāna-vijñāna*—con conocimiento y aplicación práctica del conocimiento; *santṛptaḥ*—estar plenamente satisfecho; *mat-bhaktaḥ*—Mi devoto; *puruṣaḥ*—una persona; *bhavet*—debe volverse.

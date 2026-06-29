@@ -1,11 +1,11 @@
 ### SB 1.17.6
 
-> यस्त्वं कृष्णे गते दूरं सहगाण्डीवधन्वना ।
+> यस्त्वं कृष्णे गते दूरं सहगाण्डीवधन्वना ।\
 > शोच्योऽस्यशोच्यान्रहसि प्रहरन्वधमर्हसि ॥६॥
 
-> yas tvaṁ kṛṣṇe gate dūraṁ
-> saha-gāṇḍīva-dhanvanā
-> śocyo 'sy aśocyān rahasi
+> yas tvaṁ kṛṣṇe gate dūraṁ\
+> saha-gāṇḍīva-dhanvanā\
+> śocyo 'sy aśocyān rahasi\
 > praharan vadham arhasi
 
 *yaḥ*—on account of; *tvam*—you rogue; *kṛṣṇe*—Lord Kṛṣṇa; *gate*—having gone away; *dūram*—out of sight; *saha*—along with; *gāṇḍīva*—the bow named Gāṇḍīva; *dhanvanā*—the carrier, Arjuna; *śocyaḥ*—culprit; *asi*—you are considered; *aśocyān*—innocent; *rahasi*—in a secluded place; *praharan*—beating; *vadham*—to be killed; *arhasi*—deserve.

@@ -1,11 +1,11 @@
 ### SB 7.10.42
 
-> एषा ब्रह्मण्यदेवस्य कृष्णस्य च महात्मनः
+> एषा ब्रह्मण्यदेवस्य कृष्णस्य च महात्मनः\
 > अवतारकथा पुण्या वधो यत्रादिदैत्ययोः ॥४२॥
 
-> eṣā brahmaṇya-devasya
-> kṛṣṇasya ca mahātmanaḥ
-> avatāra-kathā puṇyā
+> eṣā brahmaṇya-devasya\
+> kṛṣṇasya ca mahātmanaḥ\
+> avatāra-kathā puṇyā\
 > vadho yatrādi-daityayoḥ
 
 *eṣā*—todo esto; *brahmaṇya-devasya*—de la Suprema Personalidad de Dios, que es adorado por todos los*brāhmaṇas*; *kṛṣṇasya*—de Kṛṣṇa, la Suprema Personalidad de Dios original; *ca*—también; *mahā-ātmanaḥ*—la Superalma; *avatāra-kathā*—narraciones acerca de Sus encarnaciones; *punyā*—piadosas, purificadoras; *vadhaḥ*—muerte; *yatra*—donde; *ādi*—en el principio del milenio; *daityayoḥ*—de los demonios (Hiraṇyākṣa e Hiraṇyakaśipu).

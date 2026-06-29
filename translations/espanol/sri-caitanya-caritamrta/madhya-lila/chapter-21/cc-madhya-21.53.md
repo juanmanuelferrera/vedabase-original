@@ -1,10 +1,10 @@
 ### CC Madhya 21.53
 
-> ‘দেবীধাম’ নাম তার, জীব যার বাসী ।
+> ‘দেবীধাম’ নাম তার, জীব যার বাসী ।\
 > জগল্লক্ষ্মী রাখি’ রহে যাহাঁ মায়া দাসী ॥৫৩॥
 
-> 'devī-dhāma' nāma tāra, jīva yāra vāsī
-> jagal-lakṣmī rākhi' rahe yāhāṅ māyā dāsī
+> 'devī-dhāma' nāma tāra, jīva yāra vāsī\
+> jagal-lakṣmī rākhi' rahe yāhāṅ māyā dāsī\
 > SYNONYMS
 
 *devī-dhāma*—el lugar de la energía externa; *nāma*—denominado; *tāra*—su; *jīva*—las entidades vivientes condicionadas; *yāra*—de la cual; *vāsī*—los habitantes; *jagat-lakṣmī*—la energía material; *rākhi'*—manteniéndolas; *rahe*—existe; *yāhāṅ*—donde; *māyā*—la energía externa; *dāsī*—sirvienta.

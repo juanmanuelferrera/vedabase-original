@@ -1,13 +1,13 @@
 ### SB 7.15.78
 
-> श्रीशुक उवाच
-> इति देवर्षिणा प्रोक्तं निशम्य भरतर्षभः
+> श्रीशुक उवाच\
+> इति देवर्षिणा प्रोक्तं निशम्य भरतर्षभः\
 > पूजयामास सुप्रीतः कृष्णं च प्रेमविह्वलः ॥७८॥
 
-> śrī-śuka uvāca
-> iti devarṣiṇā proktaṁ
-> niśamya bharatarṣabhaḥ
-> pūjayām āsa suprītaḥ
+> śrī-śuka uvāca\
+> iti devarṣiṇā proktaṁ\
+> niśamya bharatarṣabhaḥ\
+> pūjayām āsa suprītaḥ\
 > kṛṣṇaṁ ca prema-vihvalaḥ
 
 *śrī-sukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *iti*—así; *deva-ṛṣinā*—por el gran santo (Nārada Muni); *proktam*—explicado; *niśamya*—escuchar; *bharata-rṣabhaḥ*—el mejor de los descendientes en la dinastía de Bharata Mahārāja, es decir, Mahārāja Yudhiṣṭhira; *pūjayām āsa*—adoró; *su-prītaḥ*—sumamente complacido; *kṛṣṇam*—al Señor Kṛṣṇa; *ca*—también; *prema-vihvalaḥ*—en el éxtasis del amor por Kṛṣṇa.

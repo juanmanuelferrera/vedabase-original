@@ -1,9 +1,9 @@
 ### CC Antya 10.48
 
-> গৌড়ীয়া-সঙ্কীর্তনে আর রোদন মিলিয়া ।
+> গৌড়ীয়া-সঙ্কীর্তনে আর রোদন মিলিয়া ।\
 > মহাকোলাহল হৈল ব্রহ্মাণ্ড ভরিয়া ॥৪৮॥
 
-> gauḍīyā-saṅkīrtane āra rodana miliyā
+> gauḍīyā-saṅkīrtane āra rodana miliyā\
 > mahā-kolāhala haila brahmāṇḍa bhariyā
 
 *gauḍīyā-saṅkīrtane*—congregational chanting by the Gauḍīya Vaiṣṇavas; *āra*—and; *rodana*—crying; *miliyā*—mixing; *mahā-kolāhala*—a great, tumultuous sound vibration; *haila*—there was; *brahmāṇḍa*—the universe; *bhariyā*—filling.

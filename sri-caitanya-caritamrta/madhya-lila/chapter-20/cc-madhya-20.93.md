@@ -1,9 +1,9 @@
 ### CC Madhya 20.93
 
-> গোসাঞি কহে, — “যে খণ্ডিল কুবিষয়-ভোগ ।
+> গোসাঞি কহে, — “যে খণ্ডিল কুবিষয়-ভোগ ।\
 > তাঁর ইচ্ছায় গেল মোর শেষ বিষয়-রোগ ।।” ॥ ৯৩ ॥
 
-> gosāñi kahe,—'ye khaṇḍila kuviṣaya-bhoga
+> gosāñi kahe,—'ye khaṇḍila kuviṣaya-bhoga\
 > tāṅra icchāya gela mora śeṣa viṣaya-roga"
 
 *gosāñi kahe*—Sanātana Gosvāmī said; *ye khaṇḍila*—the person who has vanquished; *ku-viṣaya-bhoga*—enjoyment of sinful material life; *tāṅra icchāya*—by His desire; *gela*—has gone; *mora*—my; *śeṣa*—last bit; *viṣaya-roga*—material disease.

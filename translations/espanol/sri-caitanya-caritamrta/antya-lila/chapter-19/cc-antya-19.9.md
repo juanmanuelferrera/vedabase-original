@@ -1,9 +1,9 @@
 ### CC Antya 19.9
 
-> তোমার সেবা ছাড়ি’ আমি করিলুঁ সন্ন্যাস ।
+> তোমার সেবা ছাড়ি’ আমি করিলুঁ সন্ন্যাস ।\
 > ‘বাউল’ হঞা আমি কৈলুঁ ধর্মনাশ ॥৯॥
 
-> tomāra sevā chāḍi' āmi kariluṅ sannyāsa
+> tomāra sevā chāḍi' āmi kariluṅ sannyāsa\
 > 'bāula' hañā āmi kailuṅ dharma-nāśa
 
 *tomāra sevā chāḍi'*—dejando tu servicio; *āmi*—Yo; *kariluṅ*—acepté; *sannyāsa*—la orden de vida de renuncia; *bāula hañā*—volviéndome loco; *āmi*—Yo; *kailuṅ*—hice; *dharma-nāśa*—destrucción de la religión.

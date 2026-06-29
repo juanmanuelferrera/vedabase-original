@@ -1,9 +1,9 @@
 ### CC Madhya 20.303
 
-> গর্ভোদকশায়িদ্বারা শক্তি সঞ্চারি’  ।
+> গর্ভোদকশায়িদ্বারা শক্তি সঞ্চারি’  ।\
 > ব্যষ্টি সৃষ্টি করে কৃষ্ণ ব্রহ্মা-রূপ ধরি’ ॥৩০৩॥
 
-> garbhodakaśāyī-dvārā śakti sañcāri'
+> garbhodakaśāyī-dvārā śakti sañcāri'\
 > vyaṣṭi sṛṣṭi kare kṛṣṇa brahmā-rūpa dhari'
 
 *garbha-udaka-śāyi-dvārā*—por medio del Señor Garbhodakaśāyī Viṣṇu; *śakti sañcāri'*—confiriéndole poderes especiales; *vyaṣṭi*—total; *sṛṣṭi*—creación; *kare*—realiza; *kṛṣṇa*—el Señor Kṛṣṇa; *brahmā-rūpa dhari'*—aceptando la forma del Señor Brahmā.

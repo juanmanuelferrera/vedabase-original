@@ -1,13 +1,13 @@
 ### CC Madhya 17.138
 
-> স্বসুখনিভৃতচেতাস্তদ্ব্যুদস্তান্যভাবো-
-> ঽপ্যজিতরুচিরলীলাকৃষ্টসারস্তদীয়ম্ ।
-> ব্যতনুত কৃপয়া যস্তত্ত্বদীপং পুরাণং
+> স্বসুখনিভৃতচেতাস্তদ্ব্যুদস্তান্যভাবো-\
+> ঽপ্যজিতরুচিরলীলাকৃষ্টসারস্তদীয়ম্ ।\
+> ব্যতনুত কৃপয়া যস্তত্ত্বদীপং পুরাণং\
 > তমখিলবৃজিনঘ্নং ব্যাসসূনুং নতোঽস্মি ॥১৩৮॥
 
-> svasukha-nibhṛta-cetās tad vyudastānya-bhāvo
-> 'py ajita-rucira-līlākṛṣṭa-sāras tadīyam
-> vyatanuta kṛpayā yas tattva-dīpaṁ puraṇaṁ
+> svasukha-nibhṛta-cetās tad vyudastānya-bhāvo\
+> 'py ajita-rucira-līlākṛṣṭa-sāras tadīyam\
+> vyatanuta kṛpayā yas tattva-dīpaṁ puraṇaṁ\
 > tam akhila-vṛjina-ghnaṁ vyāsa-sūnuṁ nato 'smi
 
 *sva-sukha*—en la felicidad del ser; *nibhṛta*—solitario; *cetāḥ*—cuya conciencia; *tat*—por eso; *vyudasta*—abandonado; *anya-bhāvaḥ*—cualquier otro tipo de conciencia; *api*—aunque; *ajita*—de Śrī Kṛṣṇa; *rucira*—agradables; *līlā*—por los pasatiempos; *ākṛṣṭa*—atraído; *sāraḥ*—cuyo corazón; *tadīyam*—consistente en las actividades del Señor; *vyatanuta*—difundió, manifestó; *kṛpayā*—misericordiosamente; *yaḥ*—quien; *tattva-dīpam*—la brillante luz de la Verdad Absoluta; *purāṇam*—el Purāṇa (el Śrīmad-Bhāgavatam); *tam*—a él; *akhila-vṛjina-ghnam*—quien derrota todo lo desfavorable; *vyāsa-sūnum*—el hijo de Vyāsadeva; *nataḥ asmi*—ofrezco mis reverencias.

@@ -1,11 +1,11 @@
 ### SB 9.14.4
 
-> सोऽयजद्राजसूयेन विजित्य भुवनत्रयम
+> सोऽयजद्राजसूयेन विजित्य भुवनत्रयम\
 > पत्नीं बृहस्पतेर्दर्पात्तारां नामाहरद्बलात ॥४॥
 
-> so 'yajad rājasūyena
-> vijitya bhuvana-trayam
-> patnīṁ bṛhaspater darpāt
+> so 'yajad rājasūyena\
+> vijitya bhuvana-trayam\
+> patnīṁ bṛhaspater darpāt\
 > tārāṁ nāmāharad balāt
 
 *saḥ*—él, Soma; *ayajat*—celebró; *rājasūyena*—el sacrificio denominado *rājasūya*; *vijitya*—tras conquistar; *bhuvana-trayam*—los tres mundos (Svarga, Martya y Pātāla); *patnīm*—a la esposa; *bṛhaspateḥ*—de Bṛhaspati, el maestro espiritual de los semidioses; *darpāt*—por orgullo; *tārām*—a Tārā; *nāma*—de nombre; *aharat*—se llevó; *balāt*—por la fuerza.

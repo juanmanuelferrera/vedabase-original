@@ -1,9 +1,9 @@
 ### CC Adi 4.162
 
-> গোপীগণের প্রেমের ‘রূঢ়ভাব’ নাম ।
+> গোপীগণের প্রেমের ‘রূঢ়ভাব’ নাম ।\
 > বিশুদ্ধ নির্মল প্রেম, কভু নহে কাম ॥১৬২॥
 
-> gopī-gaṇera premera 'rūḍha-bhāva' nāma
+> gopī-gaṇera premera 'rūḍha-bhāva' nāma\
 > viśuddha nirmala prema, kabhu nahe kāma
 
 *gopī-gaṇera*—de las gopīs; *premera*—del amor; *rūḍha-bhāva*—*rūḍha-bhāva*; *nāma*—el nombre; *viśuddha*—puro; *nirmala*—inmaculado; *prema*—amor; *kabhu*—en ningún momento; *nahe*—no es; *kāma*—lujuria.

@@ -1,11 +1,11 @@
 ### SB 3.6.25
 
-> आत्मानं चास्य निर्भिन्नमभिमानोऽविशत्पदम् ।
+> आत्मानं चास्य निर्भिन्नमभिमानोऽविशत्पदम् ।\
 > कर्मणांशेन येनासौ कर्तव्यं प्रतिपद्यते ॥२५॥
 
-> ātmānaṁ cāsya nirbhinnam
-> abhimāno 'viśat padam
-> karmaṇāṁśena yenāsau
+> ātmānaṁ cāsya nirbhinnam\
+> abhimāno 'viśat padam\
+> karmaṇāṁśena yenāsau\
 > kartavyaṁ pratipadyate
 
 *ātmānam*—ego falso; *ca*—también; *asya*—de la gigantesca forma; *nirbhinnam*—siendo manifestado separadamente; *abhimānaḥ*—identificación falsa; *aviśat*—entró; *padam*—en posición; *karmaṇā*—actividades; *aṁśena*—por la parte; *yena*—mediante el cual; *asau*—la entidad viviente; *kartavyam*—actividades objetivas; *pratipadyate*—se ocupa de.

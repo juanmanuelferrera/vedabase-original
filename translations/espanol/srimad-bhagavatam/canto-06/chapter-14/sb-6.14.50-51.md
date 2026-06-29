@@ -1,18 +1,18 @@
 ### SB 6.14.50-51
 
-> श्रुत्वा मृतं पुत्रमलक्षितान्तकं विनष्टदृष्टिः प्रपतन्स्खलन्पथि
-> स्नेहानुबन्धैधितया शुचा भृशं विमूर्च्छितोऽनुप्रकृतिर्द्विजैर्वृतः ॥५०॥
-> पपात बालस्य स पादमूले मृतस्य विस्रस्तशिरोरुहाम्बरः
+> श्रुत्वा मृतं पुत्रमलक्षितान्तकं विनष्टदृष्टिः प्रपतन्स्खलन्पथि\
+> स्नेहानुबन्धैधितया शुचा भृशं विमूर्च्छितोऽनुप्रकृतिर्द्विजैर्वृतः ॥५०॥\
+> पपात बालस्य स पादमूले मृतस्य विस्रस्तशिरोरुहाम्बरः\
 > दीर्घं श्वसन्बाष्पकलोपरोधतो निरुद्धकण्ठो न शशाक भाषितुम ॥५१॥
 
-> śrutvā mṛtaṁ putram alakṣitāntakaṁ
-> vinaṣṭa-dṛṣṭiḥ prapatan skhalan pathi
-> snehānubandhaidhitayā śucā bhṛśaṁ
+> śrutvā mṛtaṁ putram alakṣitāntakaṁ\
+> vinaṣṭa-dṛṣṭiḥ prapatan skhalan pathi\
+> snehānubandhaidhitayā śucā bhṛśaṁ\
 > vimūrcchito 'nuprakṛtir dvijair vṛtaḥ
 
-> papāta bālasya sa pāda-mūle
-> mṛtasya visrasta-śiroruhāmbaraḥ
-> dīrghaṁ śvasan bāṣpa-kaloparodhato
+> papāta bālasya sa pāda-mūle\
+> mṛtasya visrasta-śiroruhāmbaraḥ\
+> dīrghaṁ śvasan bāṣpa-kaloparodhato\
 > niruddha-kaṇṭho na śaśāka bhāṣitum
 
 *śrutvā*—al escuchar; *mṛtam*—muerto; *putram*—el hijo; *alakṣita-antakam*—siendo desconocida la causa de la muerte; *vinaṣṭa-dṛṣṭiḥ*—sin poder ver bien; *prapatan*—cayendo constantemente; *skhalan*—resbalando; *pathi*—en el camino; *sneha-anubandha*—debido al afecto; *edhitayā*—aumentando; *śucā*—por la lamentación; *bhṛśam*—enormemente; *vimūrcchitaḥ*—perdiendo la consciencia; *anuprakṛtiḥ*—seguido por ministros y otros funcionarios; *dvijaiḥ*—por *brāhmaṇas* eruditos; *vṛtaḥ*—rodeado; *papāta*—cayó; *bālasya*—del muchacho; *saḥ*—él (el rey); *pāda-mūle*—a los pies; *mṛtasya*—del muchacho muerto; *visrasta*—sueltos; *śiroruha*—cabello; *ambaraḥ*—y el vestido; *dīrgham*—larga; *śvasan*—respiración; *bāṣpa-kalā-uparodhataḥ*—debido a que lloraba con los ojos llenos de lágrimas; *niruddha-kaṇṭhaḥ*—con la voz entrecortada; *na*—no; *śaśāka*—podía; *bhāṣitum*—hablar.

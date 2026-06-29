@@ -1,11 +1,11 @@
 ### SB 1.5.25
 
-> उच्छिष्टलेपाननुमोदितो द्विजैः सकृत्स्म भुञ्जे तदपास्तकिल्बिषः ।
+> उच्छिष्टलेपाननुमोदितो द्विजैः सकृत्स्म भुञ्जे तदपास्तकिल्बिषः ।\
 > एवं प्रवृत्तस्य विशुद्धचेतसस्तद्धर्म एवात्मरुचिः प्रजायते ॥२५॥
 
-> ucchiṣṭa-lepān anumodito dvijaiḥ
-> sakṛt sma bhuñje tad-apāsta-kilbiṣaḥ
-> evaṁ pravṛttasya viśuddha-cetasas
+> ucchiṣṭa-lepān anumodito dvijaiḥ\
+> sakṛt sma bhuñje tad-apāsta-kilbiṣaḥ\
+> evaṁ pravṛttasya viśuddha-cetasas\
 > tad-dharma evātma-ruciḥ prajāyate
 
 *ucchiṣṭa-lepān*—the remnants of foodstuff; *anumoditaḥ*—being permitted; *dvijaiḥ*—by the Vedāntist *brāhmaṇas*; *sakṛt*—once upon a time; *sma*—in the past; *bhuñje*—took; *tat*—by that action; *apāsta*—eliminated; *kilbiṣaḥ*—all sins; *evam*—thus; *pravṛttasya*—being engaged; *viśuddha-cetasaḥ*—of one whose mind is purified; *tat*—that particular; *dharmaḥ*—nature; *eva*—certainly; *ātma-ruciḥ*—transcendental attraction; *prajāyate*—was manifested.

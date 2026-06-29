@@ -1,11 +1,11 @@
 ### Bg 7.22
 
-> स तया श्रद्धया युक्तस्तस्याराधनमीहते ।
+> स तया श्रद्धया युक्तस्तस्याराधनमीहते ।\
 > लभते च ततः कामान्मयैव विहितान्हि तान् ॥२२॥
 
-> sa tayā śraddhayā yuktas
-> tasyārādhanam īhate
-> labhate ca tataḥ kāmān
+> sa tayā śraddhayā yuktas\
+> tasyārādhanam īhate\
+> labhate ca tataḥ kāmān\
 > mayaiva vihitān hi tān
 
 *saḥ*—he; *tayā*—with that; *śraddhayā*—with faith; *yuktaḥ*—endowed; *tasya*—his; *ārādhanam*—worship; *īhate*—seeks; *labhate*—obtains; *ca*—and; *tataḥ*—from which; *kāmān*—desires; *mayā*—by Me; *eva*—alone; *vihitān*—regulated; *hi*—for; *tān*—those.

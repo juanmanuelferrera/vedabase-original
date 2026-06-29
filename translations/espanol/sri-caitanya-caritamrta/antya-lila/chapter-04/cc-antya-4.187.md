@@ -1,9 +1,9 @@
 ### CC Antya 4.187
 
-> ‘লাল্যামেধ্য’ লালকের চন্দন-সম ভায় ।
+> ‘লাল্যামেধ্য’ লালকের চন্দন-সম ভায় ।\
 > সনাতনের ক্লেদে আমার ঘৃণা না উপজায় ।।” ॥ ১৮৭ ॥
 
-> 'lālyāmedhya' lālakera candana-sama bhāya
+> 'lālyāmedhya' lālakera candana-sama bhāya\
 > sanātanera klede āmāra ghṛṇā nā upajāya"
 
 *lālya*—del niño bajo su cuidado; *amedhya*—heces y orina; *lālakera*—de quien lo cuida; *candana-sama*—como pasta de sándalo; *bhāya*—parece; *sanātanera*—de Sanātana Gosvāmī; *klede*—la humedad de las llagas; *āmāra*—Mi; *ghṛṇā*—repugnancia; *nā*—no; *upajāya*—surge.

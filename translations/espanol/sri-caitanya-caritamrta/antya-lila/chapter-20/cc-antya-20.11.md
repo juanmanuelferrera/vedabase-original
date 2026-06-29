@@ -1,9 +1,9 @@
 ### CC Antya 20.11
 
-> নামসঙ্কীর্তন হৈতে সর্বানর্থ-নাশ ।
+> নামসঙ্কীর্তন হৈতে সর্বানর্থ-নাশ ।\
 > সর্ব-শুভোদয়, কৃষ্ণ-প্রেমের উল্লাস ॥১১॥
 
-> nāma-saṅkīrtana haite sarvānartha-nāśa
+> nāma-saṅkīrtana haite sarvānartha-nāśa\
 > sarva-śubhodaya, kṛṣṇa-premera ullāsa
 
 *nāma-saṅkīrtana*—el canto de los santos nombres del Señor; *haite*—de; *sarva-anartha-nāśa*—destrucción de todo lo indeseable; *sarva-śubha-udaya*—despertar de toda buena fortuna; *kṛṣṇa-premera ullāsa*—el comienzo del flujo de amor por Kṛṣṇa.

@@ -1,13 +1,13 @@
 ### SB 6.15.10
 
-> श्रीराजोवाच
-> कौ युवां ज्ञआनसम्पन्नौ महिष्ठौ च महीयसाम
+> श्रीराजोवाच\
+> कौ युवां ज्ञआनसम्पन्नौ महिष्ठौ च महीयसाम\
 > अवधूतेन वेषेण गूढाविह समागतौ ॥१०॥
 
-> śrī-rājovāca
-> kau yuvāṁ jñāna-sampannau
-> mahiṣṭhau ca mahīyasām
-> avadhūtena veṣeṇa
+> śrī-rājovāca\
+> kau yuvāṁ jñāna-sampannau\
+> mahiṣṭhau ca mahīyasām\
+> avadhūtena veṣeṇa\
 > gūḍhāv iha samāgatau
 
 *śrī-rājā uvāca*—el rey Citraketu dijo; *kau*—quiénes; *yuvām*—ustedes dos; *jñāna-sampannau*—de conocimiento perfectamente maduro; *mahiṣṭhau*—los más grandes; *ca*—también; *mahīyasām*—entre otras grandes personalidades; *avadhūtena*—de los mendicantes liberados; *veṣeṇa*—con las ropas; *gūḍhau*—disfrazados; *iha*—a este lugar; *samāgatau*—llegados.

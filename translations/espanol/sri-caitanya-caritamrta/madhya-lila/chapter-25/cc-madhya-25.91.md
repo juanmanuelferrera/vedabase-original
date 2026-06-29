@@ -1,9 +1,9 @@
 ### CC Madhya 25.91
 
-> প্রভু কহে, — “আমি ‘জীব’, অতি তুচ্ছ-জ্ঞান ।
+> প্রভু কহে, — “আমি ‘জীব’, অতি তুচ্ছ-জ্ঞান ।\
 > ব্যাসসূত্রের গম্ভীর অর্থ, ব্যাস — ভগবান্ ॥৯১॥
 
-> prabhu kahe,-"āmi jīva', ati tuccha-jñāna!
+> prabhu kahe,-"āmi jīva', ati tuccha-jñāna!\
 > vyāsa-sūtrera gambhīra artha, vyāsa-bhagavān
 
 *prabhu kahe*—el Señor Śrī Caitanya Mahāprabhu respondió; *āmi jīva*—Yo soy una entidad viviente insignificante; *ati tuccha-jñāna*—Mi conocimiento es muy escaso; *vyāsa-sūtrera*—del *Vedānta-sūtra*, escrito por Vyāsadeva; *gambhīra artha*—significado muy profundo; *vyāsa*—Vyāsadeva; *bhagavān*—la Suprema Personalidad de Dios.

@@ -1,9 +1,9 @@
 ### CC Antya 7.108
 
-> অতএব নাম লয়, নামের ‘ফল’ পায় ।
+> অতএব নাম লয়, নামের ‘ফল’ পায় ।\
 > নামের ফলে কৃষ্ণপদে ‘প্রেম’ উপজায় ।।” ॥ ১০৮ ॥
 
-> ataeva nāma laya, nāmera 'phala' pāya
+> ataeva nāma laya, nāmera 'phala' pāya\
 > nāmera phale kṛṣṇa-pade 'prema' upajāya"
 
 *ataeva*—therefore; *nāma laya*—chants the holy name; *nāmera*—of the name; *phala*—result; *pāya*—gets; *nāmera phale*—as a result of chanting the holy name; *kṛṣṇa-pade*—at the lotus feet of Kṛṣṇa; *prema*—ecstatic love; *upajāya*—develops.

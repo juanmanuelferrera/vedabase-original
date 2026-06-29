@@ -1,9 +1,9 @@
 ### CC Adi 10.41
 
-> বাসুদেব দত্ত — প্রভুর ভৃত্য মহাশয় ।
+> বাসুদেব দত্ত — প্রভুর ভৃত্য মহাশয় ।\
 > সহস্র-মুখে যাঁর গুণ কহিলে না হয় ॥৪১॥
 
-> vāsudeva datta--prabhura bhṛtya mahāśaya
+> vāsudeva datta--prabhura bhṛtya mahāśaya\
 > sahasra-mukhe yāṅra guṇa kahile nā haya
 
 *vāsudeva datta*—de nombre Vāsudeva Datta; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *bhṛtya*—sirviente; *mahāśaya*—gran personalidad; *sahasra-mukhe*—con miles de bocas; *yāṅra*—cuyas; *guṇa*—cualidades; *kahile*—describiendo; *nā*—nunca; *haya*—resulta completo.

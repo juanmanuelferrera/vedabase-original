@@ -1,11 +1,11 @@
 ### SB 1.9.42
 
-> तमिममहमजं शरीरभाजां हृदि हृदि धिष्ठितमात्मकल्पितानाम् ।
+> तमिममहमजं शरीरभाजां हृदि हृदि धिष्ठितमात्मकल्पितानाम् ।\
 > प्रतिदृशमिव नैकधार्कमेकं समधिगतोऽस्मि विधूतभेदमोहः ॥४२॥
 
-> tam imam aham ajaṁ śarīra-bhājāṁ
-> hṛdi hṛdi dhiṣṭhitam ātma-kalpitānām
-> pratidṛśam iva naikadhārkam ekaṁ
+> tam imam aham ajaṁ śarīra-bhājāṁ\
+> hṛdi hṛdi dhiṣṭhitam ātma-kalpitānām\
+> pratidṛśam iva naikadhārkam ekaṁ\
 > samadhi-gato 'smi vidhūta-bheda-mohaḥ
 
 *tam*—that Personality of Godhead; *imam*—now present before me; *aham*—I; *ajam*—the unborn; *śarīra-bhājām*—of the conditioned soul; *hṛdi*—in the heart; *hṛdi*—in the heart; *dhiṣṭhitam*—situated; *ātma*—the Supersoul; *kalpitānām*—of the speculators; *pratidṛśam*—in every direction; *iva*—like; *na ekadhā*—not one; *arkam*—the sun; *ekam*—one only; *samadhi-gataḥ asmi*—I have undergone trance in meditation; *vidhūta*—being freed from; *bheda-mohaḥ*—misconception of duality.

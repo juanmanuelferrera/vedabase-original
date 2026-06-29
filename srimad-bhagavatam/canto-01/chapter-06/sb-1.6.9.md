@@ -1,11 +1,11 @@
 ### SB 1.6.9
 
-> एकदा निर्गतां गेहाद्दुहन्तीं निशि गां पथि ।
+> एकदा निर्गतां गेहाद्दुहन्तीं निशि गां पथि ।\
 > सर्पोऽदशत्पदा स्पृष्टः कृपणां कालचोदितः ॥९॥
 
-> ekadā nirgatāṁ gehād
-> duhantīṁ niśi gāṁ pathi
-> sarpo 'daśat padā spṛṣṭaḥ
+> ekadā nirgatāṁ gehād\
+> duhantīṁ niśi gāṁ pathi\
+> sarpo 'daśat padā spṛṣṭaḥ\
 > kṛpaṇāṁ kāla-coditaḥ
 
 *ekadā*—once upon a time; *nirgatām*—having gone away; *gehāt*—from home; *duhantīm*—for milking; *niśi*—at night; *gām*—the cow; *pathi*—on the path; *sarpaḥ*—snake; *adaśat*—bitten; *padā*—on the leg; *spṛṣṭaḥ*—thus struck; *kṛpaṇām*—the poor woman; *kāla-coditaḥ*—influenced by supreme time.

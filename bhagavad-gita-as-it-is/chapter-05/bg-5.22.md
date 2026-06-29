@@ -1,11 +1,11 @@
 ### Bg 5.22
 
-> ये हि संस्पर्शजा भोगा दुःखयोनय एव ते ।
+> ये हि संस्पर्शजा भोगा दुःखयोनय एव ते ।\
 > आद्यन्तवन्तः कौन्तेय न तेषु रमते बुधः ॥२२॥
 
-> ye hi saṁsparśa-jā bhogā
-> duḥkha-yonaya eva te
-> ādy-antavantaḥ kaunteya
+> ye hi saṁsparśa-jā bhogā\
+> duḥkha-yonaya eva te\
+> ādy-antavantaḥ kaunteya\
 > na teṣu ramate budhaḥ
 
 *ye*—those; *hi*—certainly; *saṁsparśajāḥ*—by contact with the material senses; *bhogāḥ*—enjoyment; *duḥkha*—distress; *yonayaḥ*—sources of; *eva*—certainly; *te*—they are; *ādi*—in the beginning; *antavantaḥ*—subject to; *kaunteya*—O son of Kuntī; *na*—never; *teṣu*—in those; *ramate*—take delight; *budhaḥ*—the intelligent.

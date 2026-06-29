@@ -1,18 +1,18 @@
 ### SB 3.21.42-43
 
-> कदम्बचम्पकाशोक करञ्जबकुलासनैः ।
-> कुन्दमन्दारकुटजैश्चूतपोतैरलङ्कृतम् ॥४२॥
-> कारण्डवैः प्लवैर्हंसैः कुररैर्जलकुक्कुटैः ।
+> कदम्बचम्पकाशोक करञ्जबकुलासनैः ।\
+> कुन्दमन्दारकुटजैश्चूतपोतैरलङ्कृतम् ॥४२॥\
+> कारण्डवैः प्लवैर्हंसैः कुररैर्जलकुक्कुटैः ।\
 > सारसैश्चक्रवाकैश्च चकोरैर्वल्गु कूजितम् ॥४३॥
 
-> kadamba-campakāśoka-
-> karañja-bakulāsanaiḥ
-> kunda-mandāra-kuṭajaiś
+> kadamba-campakāśoka-\
+> karañja-bakulāsanaiḥ\
+> kunda-mandāra-kuṭajaiś\
 > cūta-potair alaṅkṛtam
 
-> kāraṇḍavaiḥ plavair haṁsaiḥ
-> kurarair jala-kukkuṭaiḥ
-> sārasaiś cakravākaiś ca
+> kāraṇḍavaiḥ plavair haṁsaiḥ\
+> kurarair jala-kukkuṭaiḥ\
+> sārasaiś cakravākaiś ca\
 > cakorair valgu kūjitam
 
 *kadamba*—flores *kadamba*; *campaka*—flores *campaka*; *aśoka*—flores *aśoka*; *karañja*—flores *karañja*; *bakula*—flores *bakula*; *āsanaiḥ*—con árboles *āsana*; *kunda*—*kunda*; *mandāra*—*mandāra*; *kuṭajaiḥ*—y con árboles *kuṭaja*; *cūta-potaiḥ*—con jóvenes árboles de mango; *alaṅkṛtam*—adornado; *kāraṇḍavaiḥ*—con patos *kāraṇḍava*; *plavaiḥ*—con *plavas*; *haṁsaiḥ*—con cisnes; *kuraraiḥ*—con águilas pescadoras; *jala-kukkuṭaiḥ*—con pájaros acuáticos; *sārasaiḥ*—con grullas; *cakravākaiḥ*—con pájaros *cakravāka*; *ca*—y; *cakoraiḥ*—con pájaros *cakora*; *valgu*—agradables; *kūjitam*—vibraciones sonoras de los pájaros.

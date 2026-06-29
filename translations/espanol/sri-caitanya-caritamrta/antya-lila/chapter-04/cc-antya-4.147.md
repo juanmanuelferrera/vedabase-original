@@ -1,9 +1,9 @@
 ### CC Antya 4.147
 
-> দূর হৈতে দণ্ড-পরণাম করে সনাতন ।
+> দূর হৈতে দণ্ড-পরণাম করে সনাতন ।\
 > প্রভু বোলায় বার বার করিতে আলিঙ্গন ॥১৪৭॥
 
-> dūra haite daṇḍa-paraṇāma kare sanātana
+> dūra haite daṇḍa-paraṇāma kare sanātana\
 > prabhu bolāya bāra bāra karite āliṅgana
 
 *dūra haite*—desde un lugar distante; *daṇḍa-paraṇāma*—ofreciendo reverencias y daṇḍavats; *kare*—hizo; *sanātana*—Sanātana Gosvāmī; *prabhu*—Śrī Caitanya Mahāprabhu; *bolāya*—llama; *bāra bāra*—una y otra vez; *karite āliṅgana*—para abrazar.

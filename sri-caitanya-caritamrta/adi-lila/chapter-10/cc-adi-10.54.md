@@ -1,9 +1,9 @@
 ### CC Adi 10.54
 
-> শিবানন্দ সেন — প্রভুর ভৃত্য অন্তরঙ্গ ।
+> শিবানন্দ সেন — প্রভুর ভৃত্য অন্তরঙ্গ ।\
 > প্রভুস্থানে যাইতে সবে লয়েন যাঁর সঙ্গ ॥৫৪॥
 
-> śivānanda sena—prabhura bhṛtya antaraṅga
+> śivānanda sena—prabhura bhṛtya antaraṅga\
 > prabhu-sthāne yāite sabe layena yāṅra saṅga
 
 *śivānanda sena*—of the name Śivānanda Sena; *prabhura*—of the Lord; *bhṛtya*—servant; *antaraṅga*—very confidential; *prabhu-sthāne*—in Jagannātha Purī, where the Lord was staying; *yāite*—while going; *sabe*—all; *layena*—took; *yāṅra*—whose; *saṅga*—shelter.

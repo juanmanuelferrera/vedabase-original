@@ -1,9 +1,9 @@
 ### CC Madhya 25.98
 
-> চারিবেদ-উপনিষদে যত কিছু হয় ।
+> চারিবেদ-উপনিষদে যত কিছু হয় ।\
 > তার অর্থ লঞা ব্যাস করিলা সঞ্চয় ॥৯৮॥
 
-> cāri-veda-upaniṣade yata kichu haya
+> cāri-veda-upaniṣade yata kichu haya\
 > tāra artha lañā vyāsa karilā sañcaya
 
 *cāri-veda*—las cuatro divisiones de los Vedas (Sāma, Yajur, Ṛg y Atharva); *upaniṣade*—y en los 108 Upaniṣads; *yata*—todo lo que; *kichu haya*—hay ahí; *tāra artha*—los significados de esas literaturas Védicas; *lañā*—tomando en conjunto; *vyāsa*—Vyāsadeva; *karilā sañcaya*—recopiló.

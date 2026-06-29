@@ -1,11 +1,11 @@
 ### SB 1.8.12
 
-> तर्ह्येवाथ मुनिश्रेष्ठ पाण्डवाः पञ्च सायकान् ।
+> तर्ह्येवाथ मुनिश्रेष्ठ पाण्डवाः पञ्च सायकान् ।\
 > आत्मनोऽभिमुखान्दीप्तानालक्ष्यास्त्राण्युपाददुः ॥१२॥
 
-> tarhy evātha muni-śreṣṭha
-> pāṇḍavāḥ pañca sāyakān
-> ātmano 'bhimukhān dīptān
+> tarhy evātha muni-śreṣṭha\
+> pāṇḍavāḥ pañca sāyakān\
+> ātmano 'bhimukhān dīptān\
 > ālakṣyāstrāṇy upādaduḥ
 
 *tarhi*—entonces; *eva*—también; *atha*—por lo tanto; *muni-śreṣṭha*—¡oh, el principal entre los *munis*!; *pāṇḍavāḥ*—todos los hijos de Pāṇḍu; *pañca*—cinco; *sāyakān*—armas; *ātmanaḥ*—sí mismos; *abhimukhān*—hacia; *dīptān*—brillante; *ālakṣya*—viéndolo; *astrāṇi*—armas; *upādaduḥ*—esgrimieron.

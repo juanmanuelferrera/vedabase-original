@@ -1,13 +1,13 @@
 ### SB 6.17.11
 
-> श्रीपार्वत्युवाच
-> अयं किमधुना लोके शास्ता दण्डधरः प्रभुः
+> श्रीपार्वत्युवाच\
+> अयं किमधुना लोके शास्ता दण्डधरः प्रभुः\
 > अस्मद्विधानां दुष्टानां निर्लज्जानां च विप्रकृत ॥११॥
 
-> śrī-pārvaty uvāca
-> ayaṁ kim adhunā loke
-> śāstā daṇḍa-dharaḥ prabhuḥ
-> asmad-vidhānāṁ duṣṭānāṁ
+> śrī-pārvaty uvāca\
+> ayaṁ kim adhunā loke\
+> śāstā daṇḍa-dharaḥ prabhuḥ\
+> asmad-vidhānāṁ duṣṭānāṁ\
 > nirlajjānāṁ ca viprakṛt
 
 *śrī-pārvatī uvāca*—the goddess Pārvatī said; *ayam*—this; *kim*—whether; *adhunā*—now; *loke*—in the world; *śāstā*—the supreme controller; *daṇḍa-dharaḥ*—the carrier of the rod of punishment; *prabhuḥ*—the master; *asmat-vidhānām*—of persons like us; *duṣṭānām*—criminals; *nirlajjānām*—who have no shame; *ca*—and; *viprakṛt*—the restrainer.

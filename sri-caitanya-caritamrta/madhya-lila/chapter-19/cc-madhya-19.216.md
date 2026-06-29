@@ -1,11 +1,11 @@
 ### CC Madhya 19.216
 
-> নারায়ণপরাঃ সর্বে ন কুতশ্চন বিভ্যতি ।
+> নারায়ণপরাঃ সর্বে ন কুতশ্চন বিভ্যতি ।\
 > স্বর্গাপবর্গনরকেষ্বপি তুল্যার্থদর্শিনঃ ॥২১৬॥
 
-> nārāyaṇa-parāḥ sarve
-> na kutaścana bibhyati
-> svargāpavarga-narakeṣv
+> nārāyaṇa-parāḥ sarve\
+> na kutaścana bibhyati\
+> svargāpavarga-narakeṣv\
 > api tulyārtha-darśinaḥ
 
 *nārāyaṇa-parāḥ*—persons who are attached to the Supreme Personality of Godhead; *sarve*—all; *na*—not; *kutaścana*—from any quarter; *bibhyati*—are afraid; *svarga*—in heavenly planets; *apavarga*—in liberation; *narakeṣu*—or in hell; *api*—although; *tulya-artha*—results as equal; *darśinaḥ*—who see.

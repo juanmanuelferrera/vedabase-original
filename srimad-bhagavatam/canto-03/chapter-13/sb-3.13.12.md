@@ -1,11 +1,11 @@
 ### SB 3.13.12
 
-> परं शुश्रूषणं मह्यं स्यात्प्रजारक्षया नृप ।
+> परं शुश्रूषणं मह्यं स्यात्प्रजारक्षया नृप ।\
 > भगवांस्ते प्रजाभर्तुर्हृषीकेशोऽनुतुष्यति ॥१२॥
 
-> paraṁ śuśrūṣaṇaṁ mahyaṁ
-> syāt prajā-rakṣayā nṛpa
-> bhagavāṁs te prajā-bhartur
+> paraṁ śuśrūṣaṇaṁ mahyaṁ\
+> syāt prajā-rakṣayā nṛpa\
+> bhagavāṁs te prajā-bhartur\
 > hṛṣīkeśo 'nutuṣyati
 
 *param*—the greatest; *śuśrūṣaṇam*—devotional service; *mahyam*—unto me; *syāt*—should be; *prajā*—the living entities born in the material world; *rakṣayā*—by saving them from being spoiled; *nṛpa*—O King; *bhagavān*—the Personality of Godhead; *te*—with you; *prajā-bhartuḥ*—with the protector of the living beings; *hṛṣīkeśaḥ*—the Lord of the senses; *anutuṣyati*—is satisfied.

@@ -1,18 +1,18 @@
 ### SB 4.14.26-27
 
-> विष्णुर्विरिञ्चो गिरिश इन्द्रो वायुर्यमो रविः ।
-> पर्जन्यो धनदः सोमः क्षितिरग्निरपाम्पतिः ॥२६॥
-> एते चान्ये च विबुधाः प्रभवो वरशापयोः ।
+> विष्णुर्विरिञ्चो गिरिश इन्द्रो वायुर्यमो रविः ।\
+> पर्जन्यो धनदः सोमः क्षितिरग्निरपाम्पतिः ॥२६॥\
+> एते चान्ये च विबुधाः प्रभवो वरशापयोः ।\
 > देहे भवन्ति नृपतेः सर्वदेवमयो नृपः ॥२७॥
 
-> viṣṇur viriñco giriśa
-> indro vāyur yamo raviḥ
-> parjanyo dhanadaḥ somaḥ
+> viṣṇur viriñco giriśa\
+> indro vāyur yamo raviḥ\
+> parjanyo dhanadaḥ somaḥ\
 > kṣitir agnir apāmpatiḥ
 
-> ete cānye ca vibudhāḥ
-> prabhavo vara-śāpayoḥ
-> dehe bhavanti nṛpateḥ
+> ete cānye ca vibudhāḥ\
+> prabhavo vara-śāpayoḥ\
+> dehe bhavanti nṛpateḥ\
 > sarva-devamayo nṛpaḥ
 
 *viṣṇuḥ*—Lord Viṣṇu; *viriñcaḥ*—Lord Brahmā; *giriśaḥ*—Lord Śiva; *indraḥ*—Lord Indra; *vāyuḥ*—Vāyu, the director of the air; *yamaḥ*—Yama, the superintendent of death; *raviḥ*—the sun-god; *parjanyaḥ*—the director of rainfall; *dhana-daḥ*—Kuvera, the treasurer; *somaḥ*—the moon-god; *kṣitiḥ*—the predominating deity of the earth; *agniḥ*—the fire-god; *apām-patiḥ*—Varuṇa, the lord of waters; *ete*—all these; *ca*—and; *anye*—others; *ca*—also; *vibudhāḥ*—demigods; *prabhavaḥ*—competent; *vara-śāpayoḥ*—in both benediction and curse; *dehe*—in the body; *bhavanti*—abide; *nṛpateḥ*—of the king; *sarva-devamayaḥ*—comprising all demigods; *nṛpaḥ*—the king.

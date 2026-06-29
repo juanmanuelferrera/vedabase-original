@@ -1,13 +1,13 @@
 ### SB 1.7.10
 
-> सूत उवाच
-> आत्मारामाश्च मुनयो निर्ग्रन्था अप्युरुक्रमे ।
+> सूत उवाच\
+> आत्मारामाश्च मुनयो निर्ग्रन्था अप्युरुक्रमे ।\
 > कुर्वन्त्यहैतुकीं भक्तिमित्थम्भूतगुणो हरिः ॥१०॥
 
-> sūta uvāca
-> ātmārāmāś ca munayo
-> nirgranthā apy urukrame
-> kurvanty ahaitukīṁ bhaktim
+> sūta uvāca\
+> ātmārāmāś ca munayo\
+> nirgranthā apy urukrame\
+> kurvanty ahaitukīṁ bhaktim\
 > ittham-bhūta-guṇo hariḥ
 
 *sūtaḥ uvāca*—Sūta Gosvāmī said; *ātmārāmāḥ*—those who take pleasure in *ātmā* (generally, spirit self); *ca*—also; *munayaḥ*—sages; *nirgranthāḥ*—freed from all bondage; *api*—in spite of; *urukrame*—unto the great adventurer; *kurvanti*—do; *ahaitukīm*—unalloyed; *bhaktim*—devotional service; *ittham-bhūta*—such wonderful; *guṇaḥ*—qualities; *hariḥ*—of the Lord.

@@ -1,11 +1,11 @@
 ### SB 4.15.6
 
-> एष साक्षाद्धरेरंशोजातो लोकरिरक्षया ।
+> एष साक्षाद्धरेरंशोजातो लोकरिरक्षया ।\
 > इयं च तत्परा हि श्रीरनुजज्ञेऽनपायिनी ॥६॥
 
-> eṣa sākṣād dharer aṁśo
-> jāto loka-rirakṣayā
-> iyaṁ ca tat-parā hi śrīr
+> eṣa sākṣād dharer aṁśo\
+> jāto loka-rirakṣayā\
+> iyaṁ ca tat-parā hi śrīr\
 > anujajñe 'napāyinī
 
 *eṣaḥ*—este varón; *sākṣāt*—directamente; *hareḥ*—de la Suprema Personalidad de Dios; *aṁśaḥ*—representante parcial; *jātaḥ*—nacido; *loka*—el mundo entero; *rirakṣayā*—con deseo de proteger; *iyam*—esta mujer; *ca*—también; *tat-parā*—muy apegada a él; *hi*—ciertamente; *śrīḥ*—la diosa de la fortuna; *anujajñe*—nació; *anapāyinī*—inseparable.

@@ -1,9 +1,9 @@
 ### CC Adi 17.235
 
-> প্রথমেতে বৃন্দাবন-মাধুর্য বর্ণিল ।
+> প্রথমেতে বৃন্দাবন-মাধুর্য বর্ণিল ।\
 > শুনিয়া প্রভুর চিত্তে আনন্দ বাড়িল ॥২৩৫॥
 
-> prathamete vṛndāvana-mādhurya varṇila
+> prathamete vṛndāvana-mādhurya varṇila\
 > śuniyā prabhura citte ānanda bāḍila
 
 *prathamete*—in the beginning; *vṛndāvana-mādhurya*—sweet pastimes of Vṛndāvana; *varṇila*—described; *śuniyā*—hearing; *prabhura*—of the Lord; *citte*—in the heart; *ānanda*—jubilation; *bāḍila*—increased.

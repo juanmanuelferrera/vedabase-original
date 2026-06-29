@@ -1,9 +1,9 @@
 ### CC Madhya 25.197
 
-> তবে যদি মহাপ্রভু বারাণসী আইলা ।
+> তবে যদি মহাপ্রভু বারাণসী আইলা ।\
 > তাঁরে মিলি’ রায় আপন-বৃত্তান্ত কহিলা ॥১৯৭॥
 
-> tabe yadi mahāprabhu vārāṇasī āilā
+> tabe yadi mahāprabhu vārāṇasī āilā\
 > tāṅre mili' rāya āpana-vṛttānta kahilā
 
 *tabe*—at this moment; *yadi*—when; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *vārāṇasī āilā*—came to Vārāṇasī; *tāṅre mili'*—meeting Him; *rāya*—Subuddhi Rāya; *āpana-vṛttānta kahilā*—explained his personal situation.

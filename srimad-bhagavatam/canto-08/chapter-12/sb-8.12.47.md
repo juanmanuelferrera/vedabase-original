@@ -1,13 +1,13 @@
 ### SB 8.12.47
 
-> असदविषयमङ्घ्रिं भावगम्यं प्रपन्नान
-> अमृतममरवर्यानाशयत्सिन्धुमथ्यम
-> कपटयुवतिवेषो मोहयन्यः सुरारींस
+> असदविषयमङ्घ्रिं भावगम्यं प्रपन्नान\
+> अमृतममरवर्यानाशयत्सिन्धुमथ्यम\
+> कपटयुवतिवेषो मोहयन्यः सुरारींस\
 > तमहमुपसृतानां कामपूरं नतोऽस्मि ॥४७॥
 
-> asad-aviṣayam aṅghriṁ bhāva-gamyaṁ prapannān
-> amṛtam amara-varyān āśayat sindhu-mathyam
-> kapaṭa-yuvati-veṣo mohayan yaḥ surārīṁs
+> asad-aviṣayam aṅghriṁ bhāva-gamyaṁ prapannān\
+> amṛtam amara-varyān āśayat sindhu-mathyam\
+> kapaṭa-yuvati-veṣo mohayan yaḥ surārīṁs\
 > tam aham upasṛtānāṁ kāma-pūraṁ nato 'smi
 
 *asat-aviṣayam*—not understood by the atheists; *aṅghrim*—unto the lotus feet of the Supreme Personality of Godhead; *bhāva-gamyam*—understood by devotees; *prapannān*—fully surrendered; *amṛtam*—the nectar; *amara-varyān*—only unto the demigods; *āśayat*—gave to drink; *sindhu-mathyam*—produced from the ocean of milk; *kapaṭa-yuvati-veṣaḥ*—appearing as a false young girl; *mohayan*—captivating; *yaḥ*—He who; *sura-arīn*—the enemies of the demigods; *tam*—unto Him; *aham*—I; *upasṛtānām*—of the devotees; *kāma-pūram*—who fulfills all desires; *nataḥ asmi*—I offer my respectful obeisances.

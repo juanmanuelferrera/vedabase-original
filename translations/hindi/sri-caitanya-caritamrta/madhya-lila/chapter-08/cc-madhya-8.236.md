@@ -1,9 +1,9 @@
 ### CC Madhya 8.236
 
-> ‘মোরে কৃপা করিতে তোমার ইহাঁ আগমন ।
+> ‘মোরে কৃপা করিতে তোমার ইহাঁ আগমন ।\
 > দিন দশ রহি’ শোধ মোর দুষ্ট মন ॥২৩৬॥
 
-> 'more kṛpā karite tomāra ihāṅ āgamana
+> 'more kṛpā karite tomāra ihāṅ āgamana\
 > dina daśa rahi' śodha mora duṣṭa mana
 
 *more*—मुझ पर; *kṛpā*—कृपा; *karite*—करने के लिए; *tomāra*—आपका; *ihāṅ*—यहाँ; *āgamana*—आगमन; *dina daśa rahi'*—कम से कम दस दिन ठहरकर; *śodha*—शुद्ध कीजिए; *mora*—मेरे; *duṣṭa mana*—कलुषित मन को।

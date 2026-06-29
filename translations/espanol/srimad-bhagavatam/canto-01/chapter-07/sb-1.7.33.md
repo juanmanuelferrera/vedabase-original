@@ -1,11 +1,11 @@
 ### SB 1.7.33
 
-> तत आसाद्य तरसा दारुणं गौतमीसुतम् ।
+> तत आसाद्य तरसा दारुणं गौतमीसुतम् ।\
 > बबन्धामर्षताम्राक्षः पशुं रशनया यथा ॥३३॥
 
-> tata āsādya tarasā
-> dāruṇaṁ gautamī-sutam
-> babandhāmarṣa-tāmrākṣaḥ
+> tata āsādya tarasā\
+> dāruṇaṁ gautamī-sutam\
+> babandhāmarṣa-tāmrākṣaḥ\
 > paśuṁ raśanayā yathā
 
 *tataḥ*—después de eso; *āsādya*—arrestó; *tarasā*—con destreza; *dāruṇam*—peligroso; *gautamī-sutam*—el hijo de Gautamī; *babandha*—atado; *amarṣa*—furioso; *tāmra-akṣaḥ*—con los ojos rojos como el cobre; *paśum*—animal; *raśanayā*—con cuerdas; *yathā*—como si fuera.

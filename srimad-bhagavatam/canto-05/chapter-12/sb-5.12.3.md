@@ -1,11 +1,11 @@
 ### SB 5.12.3
 
-> तस्माद्भवन्तं मम संशयार्थं प्रक्ष्यामि पश्चादधुना सुबोधम
+> तस्माद्भवन्तं मम संशयार्थं प्रक्ष्यामि पश्चादधुना सुबोधम\
 > अध्यात्मयोगग्रथितं तवोक्तमाख्याहि कौतूहलचेतसो मे ॥३॥
 
-> tasmād bhavantaṁ mama saṁśayārthaṁ
-> prakṣyāmi paścād adhunā subodham
-> adhyātma-yoga-grathitaṁ tavoktam
+> tasmād bhavantaṁ mama saṁśayārthaṁ\
+> prakṣyāmi paścād adhunā subodham\
+> adhyātma-yoga-grathitaṁ tavoktam\
 > ākhyāhi kautūhala-cetaso me
 
 *tasmāt*—therefore; *bhavantam*—to you; *mama*—of me; *saṁśaya-artham*—the subject matter that is not clear to me; *prakṣyāmi*—I shall submit; *paścāt*—afterwards; *adhunā*—now; *su-bodham*—so that it can be clearly understood; *adhyātma-yoga*—of mystic instruction for self-realization; *grathitam*—as composed; *tava*—your; *uktam*—speech; *ākhyāhi*—please explain again; *kautūhala-cetasaḥ*—whose mind is very inquisitive to understand the mystery of such statements; *me*—to me.

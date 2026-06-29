@@ -1,13 +1,13 @@
 ### SB 1.5.5
 
-> व्यास उवाच
-> अस्त्येव मे सर्वमिदं त्वयोक्तं तथापि नात्मा परितुष्यते मे ।
+> व्यास उवाच\
+> अस्त्येव मे सर्वमिदं त्वयोक्तं तथापि नात्मा परितुष्यते मे ।\
 > तन्मूलमव्यक्तमगाधबोधं पृच्छामहे त्वात्मभवात्मभूतम् ॥५॥
 
-> vyāsa uvāca
-> asty eva me sarvam idaṁ tvayoktaṁ
-> tathāpi nātmā parituṣyate me
-> tan-mūlam avyaktam agādha-bodhaṁ
+> vyāsa uvāca\
+> asty eva me sarvam idaṁ tvayoktaṁ\
+> tathāpi nātmā parituṣyate me\
+> tan-mūlam avyaktam agādha-bodhaṁ\
 > pṛcchāmahe tvātma-bhavātma-bhūtam
 
 *vyāsaḥ*—Vyāsa; *uvāca*—said; *asti*—there is; *eva*—certainly; *me*—mine; *sarvam*—all; *idam*—this; *tvayā*—by you; *uktam*—uttered; *tathāpi*—and yet; *na*—not; *ātmā*—self; *parituṣyate*—does pacify; *me*—unto me; *tat*—of which; *mūlam*—root; *avyaktam*—undetected; *agādha-bodham*—the man of unlimited knowledge; *pṛcchāmahe*—do inquire; *tvā*—unto you; *ātma-bhava*—self-born; *ātma-bhūtam*—offspring.

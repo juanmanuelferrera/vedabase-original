@@ -1,9 +1,9 @@
 ### CC Madhya 11.14
 
-> হেন কালে প্রতাপরুদ্র পুরুষোত্তমে আইলা ।
+> হেন কালে প্রতাপরুদ্র পুরুষোত্তমে আইলা ।\
 > পাত্র-মিত্র-সঙ্গে রাজা দরশনে চলিলা ॥১৪॥
 
-> hena kāle pratāparudra puruṣottame āilā
+> hena kāle pratāparudra puruṣottame āilā\
 > pātra-mitra-saṅge rājā daraśane calilā
 
 *henakāle*—at this time; *pratāparudra*—King Pratāparudra; *puruṣottame*—at Jagannātha Purī; *āilā*—arrived; *pātra-mitra-saṅge*—accompanied by his secretaries, ministers, military officers and so on; *rājā*—the King; *daraśane*—to visit Lord Jagannātha; *calilā*—departed.

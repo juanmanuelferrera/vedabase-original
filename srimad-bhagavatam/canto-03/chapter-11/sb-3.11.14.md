@@ -1,11 +1,11 @@
 ### SB 3.11.14
 
-> संवत्सरः परिवत्सर इडावत्सर एव च ।
+> संवत्सरः परिवत्सर इडावत्सर एव च ।\
 > अनुवत्सरो वत्सरश्च विदुरैवं प्रभाष्यते ॥१४॥
 
-> saṁvatsaraḥ parivatsara
-> iḍā-vatsara eva ca
-> anuvatsaro vatsaraś ca
+> saṁvatsaraḥ parivatsara\
+> iḍā-vatsara eva ca\
+> anuvatsaro vatsaraś ca\
 > viduraivaṁ prabhāṣyate
 
 *saṁvatsaraḥ*—orbit of the sun; *parivatsaraḥ*—circumambulation of Bṛhaspati; *iḍā-vatsaraḥ*—orbit of the stars; *eva*—as they are; *ca*—also; *anuvatsaraḥ*—orbit of the moon; *vatsaraḥ*—one calendar year; *ca*—also; *vidura*—O Vidura; *evam*—thus; *prabhāṣyate*—they are so told.

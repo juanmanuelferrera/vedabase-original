@@ -1,9 +1,9 @@
 ### CC Madhya 16.56
 
-> বিস্তারি’ বর্ণিয়াছেন দাস-বৃন্দাবন ।
+> বিস্তারি’ বর্ণিয়াছেন দাস-বৃন্দাবন ।\
 > শ্রীবাস প্রভুরে তবে কৈল নিমন্ত্রণ ॥৫৬॥
 
-> vistāri' varṇiyāchena dāsa-vṛndāvana
+> vistāri' varṇiyāchena dāsa-vṛndāvana\
 > śrīvāsa prabhure tabe kaila nimantraṇa
 
 *vistāri'*—de manera elaborada; *varṇiyāchena*—ha descrito; *dāsa-vṛndāvana*—Vṛndāvana dāsa Ṭhākura; *śrīvāsa*—Śrīvāsa; *prabhure*—a Śrī Caitanya Mahāprabhu; *tabe*—entonces; *kaila nimantraṇa*—le hizo una invitación.

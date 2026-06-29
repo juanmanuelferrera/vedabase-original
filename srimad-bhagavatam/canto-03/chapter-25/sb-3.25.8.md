@@ -1,11 +1,11 @@
 ### SB 3.25.8
 
-> तस्य त्वं तमसोऽन्धस्य दुष्पारस्याद्य पारगम् ।
+> तस्य त्वं तमसोऽन्धस्य दुष्पारस्याद्य पारगम् ।\
 > सच्चक्षुर्जन्मनामन्ते लब्धं मे त्वदनुग्रहात् ॥८॥
 
-> tasya tvaṁ tamaso 'ndhasya
-> duṣpārasyādya pāragam
-> sac-cakṣur janmanām ante
+> tasya tvaṁ tamaso 'ndhasya\
+> duṣpārasyādya pāragam\
+> sac-cakṣur janmanām ante\
 > labdhaṁ me tvad-anugrahāt
 
 *tasya*—that; *tvam*—You; *tamasaḥ*—ignorance; *andhasya*—darkness; *duṣpārasya*—difficult to cross; *adya*—now; *pāra-gam*—crossing over; *sat*—transcendental; *cakṣuḥ*—eye; *janmanām*—of births; *ante*—at the end; *labdham*—attained; *me*—my; *tvat-anugrahāt*—by Your mercy.

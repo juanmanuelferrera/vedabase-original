@@ -1,11 +1,11 @@
 ### SB 1.3.9
 
-> तुर्ये धर्मकलासर्गे नरनारायणावृषी ।
+> तुर्ये धर्मकलासर्गे नरनारायणावृषी ।\
 > भूत्वात्मोपशमोपेतमकरोद्दुश्चरं तपः ॥९॥
 
-> turye dharma-kalā-sarge
-> nara-nārāyaṇāv ṛṣī
-> bhūtvātmopaśamopetam
+> turye dharma-kalā-sarge\
+> nara-nārāyaṇāv ṛṣī\
+> bhūtvātmopaśamopetam\
 > akarod duścaraṁ tapaḥ
 
 *turye*—en la cuarta de la línea; *dharma-kalā*—la esposa de Dharmarāja; *sarge*—habiendo nacido de; *nara-nārāyaṇau*—de nombre Nara y Nārāyaṇa; *ṛṣī*—sabios; *bhūtvā*—volviéndose; *ātma-upaśama*—controlando los sentidos; *upetam*—para el logro de; *akarot*—emprendió; *duścaram*—muy rigurosa; *tapaḥ*—penitencia.

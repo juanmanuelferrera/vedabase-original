@@ -1,11 +1,11 @@
 ### SB 7.10.9
 
-> विमुञ्चति यदा कामान्मानवो मनसि स्थितान
+> विमुञ्चति यदा कामान्मानवो मनसि स्थितान\
 > तर्ह्येव पुण्डरीकाक्ष भगवत्त्वाय कल्पते ॥९॥
 
-> vimuñcati yadā kāmān
-> mānavo manasi sthitān
-> tarhy eva puṇḍarīkākṣa
+> vimuñcati yadā kāmān\
+> mānavo manasi sthitān\
+> tarhy eva puṇḍarīkākṣa\
 > bhagavattvāya kalpate
 
 *vimuñcati*—abandona; *yadā*—cuando; *kāmān*—todos los deseos materiales; *mānavaḥ*—la sociedad humana; *manasi*—en la mente; *sthitān*—situados; *tarhi*—solo entonces; *eva*—en verdad; *puṇḍarīka-akṣa*—¡oh, Señor de ojos de loto!; *bhagavattvāya*—gozar de la misma opulencia que el Señor; *kalpate*—adquiere la aptitud.

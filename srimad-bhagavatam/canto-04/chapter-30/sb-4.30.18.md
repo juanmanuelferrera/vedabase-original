@@ -1,11 +1,11 @@
 ### SB 4.30.18
 
-> अथ मय्यनपायिन्या भक्त्या पक्वगुणाशयाः ।
+> अथ मय्यनपायिन्या भक्त्या पक्वगुणाशयाः ।\
 > उपयास्यथ मद्धाम निर्विद्य निरयादतः ॥१८॥
 
-> atha mayy anapāyinyā
-> bhaktyā pakva-guṇāśayāḥ
-> upayāsyatha mad-dhāma
+> atha mayy anapāyinyā\
+> bhaktyā pakva-guṇāśayāḥ\
+> upayāsyatha mad-dhāma\
 > nirvidya nirayād ataḥ
 
 *atha*—therefore; *mayi*—unto Me; *anapāyinyā*—without any deviation; *bhaktyā*—by devotional service; *pakva-guṇa*—free from material contamination; *āśayāḥ*—your mind; *upayāsyatha*—you will attain; *mat-dhāma*—My abode; *nirvidya*—being completely detached; *nirayāt*—from material existence; *ataḥ*—thus.

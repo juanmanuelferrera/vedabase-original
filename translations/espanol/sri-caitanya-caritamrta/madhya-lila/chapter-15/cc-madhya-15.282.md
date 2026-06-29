@@ -1,9 +1,9 @@
 ### CC Madhya 15.282
 
-> চড়াইতে চড়াইতে গাল ফুলাইল ।
+> চড়াইতে চড়াইতে গাল ফুলাইল ।\
 > হাতে ধরি’ গোপীনাথাচার্য নিষেধিল ॥২৮২॥
 
-> caḍāite caḍāite gāla phulāila
+> caḍāite caḍāite gāla phulāila\
 > hāte dhari' gopīnāthācārya niṣedhila
 
 *caḍāite caḍāite*—abofeteándose una y otra vez; *gāla*—las mejillas; *phulāila*—las hinchó; *hāte dhari'*—agarrándole las manos; *gopīnātha-ācārya*—Gopīnātha Ācārya; *niṣedhila*—se lo prohibió.

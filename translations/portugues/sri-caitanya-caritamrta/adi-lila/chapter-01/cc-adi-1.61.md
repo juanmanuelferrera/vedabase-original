@@ -1,6 +1,6 @@
 ### CC Adi 1.61
 
-> īśvara-svarūpa bhakta tāṅra adhiṣṭhāna
+> īśvara-svarūpa bhakta tāṅra adhiṣṭhāna\
 > bhaktera hṛdaye kṛṣṇera satata viśrāma
 
 *īśvara*—a Suprema Personalidade de Deus; *svarūpa*—idêntico a; *bhakta*—o devoto puro; *tāṅra*—Sua; *adhiṣṭhāna*—morada; *bhaktera*—do devoto; *hṛdaye*—no coração; *kṛṣṇera*—do Senhor Kṛṣṇa; *satata*—sempre; *viśrāma*—o lugar de descanso.

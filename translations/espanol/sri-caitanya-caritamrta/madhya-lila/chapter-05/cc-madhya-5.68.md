@@ -1,9 +1,9 @@
 ### CC Madhya 5.68
 
-> তবু এই বিপ্র মোরে কহে বার বার ।
+> তবু এই বিপ্র মোরে কহে বার বার ।\
 > তোরে কন্যা দিলুঁ, তুমি করহ স্বীকার ॥৬৮॥
 
-> tabu ei vipra more kahe bāra bāra
+> tabu ei vipra more kahe bāra bāra\
 > tore kanyā diluṅ, tumi karaha svīkāra
 
 *tabu*—aun así; *ei*—este; *vipra*—brāhmaṇa; *more*—a mí; *kahe*—dice; *bāra bāra*—una y otra vez; *tore*—a ti; *kanyā*—mi hija; *diluṅ*—he dado en caridad; *tumi*—tú; *karaha*—acepta; *svīkāra*—la aceptación.

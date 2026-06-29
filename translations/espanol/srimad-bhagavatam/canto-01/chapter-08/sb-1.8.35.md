@@ -1,11 +1,11 @@
 ### SB 1.8.35
 
-> भवेऽस्मिन्क्लिश्यमानानामविद्याकामकर्मभिः ।
+> भवेऽस्मिन्क्लिश्यमानानामविद्याकामकर्मभिः ।\
 > श्रवणस्मरणार्हाणि करिष्यन्निति केचन ॥३५॥
 
-> bhave 'smin kliśyamānānām
-> avidyā-kāma-karmabhiḥ
-> śravaṇa-smaraṇārhāṇi
+> bhave 'smin kliśyamānānām\
+> avidyā-kāma-karmabhiḥ\
+> śravaṇa-smaraṇārhāṇi\
 > kariṣyann iti kecana
 
 *bhave*—en la creación material; *asmin*—esta; *kliśyamānānām*—de aquellos que están sufriendo de; *avidyā*—nesciencia; *kāma*—deseo; *karmabhiḥ*—mediante la ejecución del trabajo fruitivo; *śravaṇa*—oyendo; *smaraṇa*—recordando; *arhāṇi*—adorando; *kariṣyan*—puede ejecutar; *iti*—así pues; *kecana*—otros.

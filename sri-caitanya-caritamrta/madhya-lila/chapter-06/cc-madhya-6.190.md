@@ -1,9 +1,9 @@
 ### CC Madhya 6.190
 
-> নববিধ অর্থ কৈল শাস্ত্রমত লঞা ।
+> নববিধ অর্থ কৈল শাস্ত্রমত লঞা ।\
 > শুনি’ প্রভু কহে কিছু ঈষৎ হাসিয়া ॥১৯০॥
 
-> nava-vidha artha kaila śāstra-mata lañā
+> nava-vidha artha kaila śāstra-mata lañā\
 > śuni' prabhu kahe kichu īṣat hāsiyā
 
 *nava-vidha*—nine kinds; *artha*—meanings; *kaila*—did; *śāstra-mata*—the principles of authorized scriptures; *lañā*—taking; *śuni'*—after hearing that; *prabhu*—Lord Caitanya; *kahe*—began to speak; *kichu*—something; *īṣat*—slightly; *hāsiyā*—smiling.

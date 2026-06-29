@@ -1,9 +1,9 @@
 ### CC Madhya 16.179
 
-> দূর হৈতে প্রভু দেখি’ ভূমেতে পড়িয়া ।
+> দূর হৈতে প্রভু দেখি’ ভূমেতে পড়িয়া ।\
 > দণ্ডবৎ করে অশ্রু-পুলকিত হঞা ॥১৭৯॥
 
-> dūra haite prabhu dekhi' bhūmete paḍiyā
+> dūra haite prabhu dekhi' bhūmete paḍiyā\
 > daṇḍavat kare aśru-pulakita hañā
 
 *dūra haite*—from a distance; *prabhu*—Śrī Caitanya Mahāprabhu; *dekhi'*—seeing; *bhūmete paḍiyā*—falling down on the ground; *daṇḍavat kare*—offered obeisances; *aśru*—tears; *pulakita*—jubilant; *hañā*—becoming.

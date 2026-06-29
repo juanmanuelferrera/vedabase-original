@@ -1,18 +1,18 @@
 ### SB 8.24.34-35
 
-> त्वं तावदोषधीः सर्वा बीजान्युच्चावचानि च
-> सप्तर्षिभिः परिवृतः सर्वसत्त्वोपबृंहितः ॥३४॥
-> आरुह्य बृहतीं नावं विचरिष्यस्यविक्लवः
+> त्वं तावदोषधीः सर्वा बीजान्युच्चावचानि च\
+> सप्तर्षिभिः परिवृतः सर्वसत्त्वोपबृंहितः ॥३४॥\
+> आरुह्य बृहतीं नावं विचरिष्यस्यविक्लवः\
 > एकार्णवे निरालोके ऋषीणामेव वर्चसा ॥३५॥
 
-> tvaṁ tāvad oṣadhīḥ sarvā
-> bījāny uccāvacāni ca
-> saptarṣibhiḥ parivṛtaḥ
+> tvaṁ tāvad oṣadhīḥ sarvā\
+> bījāny uccāvacāni ca\
+> saptarṣibhiḥ parivṛtaḥ\
 > sarva-sattvopabṛṁhitaḥ
 
-> āruhya bṛhatīṁ nāvaṁ
-> vicariṣyasy aviklavaḥ
-> ekārṇave nirāloke
+> āruhya bṛhatīṁ nāvaṁ\
+> vicariṣyasy aviklavaḥ\
+> ekārṇave nirāloke\
 > ṛṣīṇām eva varcasā
 
 *tvam*—tú; *tāvat*—hasta ese momento; *oṣadhīḥ*—hierbas; *sarvāḥ*—toda clase de; *bījāni*—semillas; *ucca-avacāni*—inferiores y superiores; *ca*—y; *sapta-ṛṣibhiḥ*—por los siete *ṛṣis*; *parivṛtaḥ*—rodeado; *sarva-sattva*—toda clase de entidades vivientes; *upabṛṁhitaḥ*—rodeado por; *āruhya*—subir; *bṛhatīm*—muy grande; *nāvam*—a la nave; *vicariṣyasi*—viajarás; *aviklavaḥ*—sin tristeza; *eka-arṇave*—en el océano de la inundación; *nirāloke*—sin ser iluminado; *ṛṣīṇām*—de los grandes*ṛṣis*; *eva*—en verdad; *varcasā*—por la refulgencia.

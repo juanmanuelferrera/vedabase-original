@@ -1,9 +1,9 @@
 ### CC Adi 7.139
 
-> স্বরূপ-ঐশ্বর্যে তাঁর নাহি মায়াগন্ধ ।
+> স্বরূপ-ঐশ্বর্যে তাঁর নাহি মায়াগন্ধ ।\
 > সকল বেদের হয় ভগবান্ সে ‘সম্বন্ধ’ ॥১৩৯॥
 
-> svarūpa-aiśvarye tāṅra nāhi māyā-gandha
+> svarūpa-aiśvarye tāṅra nāhi māyā-gandha\
 > sakala vedera haya bhagavān se 'sambandha'
 
 *svarūpa*—in His original form; *aiśvarye*—opulence; *tāṅra*—His; *nāhi*—there is none; *māyā-gandha*—contamination of the material world; *sakala*—in all; *vedera*—*Vedas*; *haya*—it is so; *bhagavān*—the Supreme Personality of Godhead; *se*—that; *sambandha*—relationship.

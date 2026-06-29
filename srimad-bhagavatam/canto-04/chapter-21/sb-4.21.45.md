@@ -1,13 +1,13 @@
 ### SB 4.21.45
 
-> मैत्रेय उवाच
-> इति ब्रुवाणं नृपतिं पितृदेवद्विजातयः ।
+> मैत्रेय उवाच\
+> इति ब्रुवाणं नृपतिं पितृदेवद्विजातयः ।\
 > तुष्टुवुर्हृष्टमनसः साधुवादेन साधवः ॥४५॥
 
-> maitreya uvāca
-> iti bruvāṇaṁ nṛpatiṁ
-> pitṛ-deva-dvijātayaḥ
-> tuṣṭuvur hṛṣṭa-manasaḥ
+> maitreya uvāca\
+> iti bruvāṇaṁ nṛpatiṁ\
+> pitṛ-deva-dvijātayaḥ\
+> tuṣṭuvur hṛṣṭa-manasaḥ\
 > sādhu-vādena sādhavaḥ
 
 *maitreyaḥ uvāca*—the great sage Maitreya continued to speak; *iti*—thus; *bruvāṇam*—while speaking; *nṛ-patim*—the King; *pitṛ*—the denizens of Pitṛloka; *deva*—the demigods; *dvi-jātayaḥ*—and the twice-born (the *brāhmaṇas* and the Vaiṣṇavas); *tuṣṭuvuḥ*—satisfied; *hṛṣṭa-manasaḥ*—greatly pacified in mind; *sādhu-vādena*—by expressing congratulations; *sādhavaḥ*—all the saintly persons present.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.59
 
-> আরতি করিয়া কৃষ্ণে করা’ল শয়ন ।
+> আরতি করিয়া কৃষ্ণে করা’ল শয়ন ।\
 > আচার্য আসি’ প্ৰভুরে তবে কৈলা নিবেদন ॥৫৯॥
 
-> ārati kariyā kṛṣṇe karā'la śayana
+> ārati kariyā kṛṣṇe karā'la śayana\
 > ācārya āsi' prabhure tabe kailā nivedana
 
 *āratikariyā*—after finishing the *ārati*; *kṛṣṇe*—Lord Kṛṣṇa; *karā'la*—made to do; *śayana*—lying down to rest; *ācārya*—Advaita Ācārya; *āsi'*—coming; *prabhure*—unto Lord Caitanya Mahāprabhu; *tabe*—then; *kailā*—made; *nivedana*—submission.

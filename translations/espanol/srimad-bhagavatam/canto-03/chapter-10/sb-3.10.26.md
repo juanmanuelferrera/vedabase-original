@@ -1,11 +1,11 @@
 ### SB 3.10.26
 
-> अर्वाक्स्रोतस्तु नवमः क्षत्तरेकविधो नृणाम् ।
+> अर्वाक्स्रोतस्तु नवमः क्षत्तरेकविधो नृणाम् ।\
 > रजोऽधिकाः कर्मपरा दुःखे च सुखमानिनः ॥२६॥
 
-> arvāk-srotas tu navamaḥ
-> kṣattar eka-vidho nṛṇām
-> rajo 'dhikāḥ karma-parā
+> arvāk-srotas tu navamaḥ\
+> kṣattar eka-vidho nṛṇām\
+> rajo 'dhikāḥ karma-parā\
 > duḥkhe ca sukha-māninaḥ
 
 *arvāk*—hacia abajo; *srotaḥ*—conducto de comida; *tu*—pero; *navamaḥ*—la novena; *kṣattaḥ*—¡oh, Vidura!; *eka-vidhaḥ*—una especie; *nṛṇām*—de los seres humanos; *rajaḥ*—la modalidad de la pasión; *adhikāḥ*—muy prominente; *karma-parāḥ*—interesados en trabajar; *duḥkhe*—con sufrimiento; *ca*—pero; *sukha*—felicidad; *māninaḥ*—pensando.

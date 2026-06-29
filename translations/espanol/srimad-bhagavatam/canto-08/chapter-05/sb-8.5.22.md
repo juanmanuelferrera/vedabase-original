@@ -1,11 +1,11 @@
 ### SB 8.5.22
 
-> न यस्य वध्यो न च रक्षणीयो नोपेक्षणीयादरणीयपक्षः
+> न यस्य वध्यो न च रक्षणीयो नोपेक्षणीयादरणीयपक्षः\
 > तथापि सर्गस्थितिसंयमार्थं धत्ते रजःसत्त्वतमांसि काले ॥२२॥
 
-> na yasya vadhyo na ca rakṣaṇīyo
-> nopekṣaṇīyādaraṇīya-pakṣaḥ
-> tathāpi sarga-sthiti-saṁyamārthaṁ
+> na yasya vadhyo na ca rakṣaṇīyo\
+> nopekṣaṇīyādaraṇīya-pakṣaḥ\
+> tathāpi sarga-sthiti-saṁyamārthaṁ\
 > dhatte rajaḥ-sattva-tamāṁsi kāle
 
 *na*—no; *yasya*—por quien (por el Señor); *vadhyaḥ*—nadie debe ser matado; *na*—ni; *ca*—también; *rakṣaṇīyaḥ*—nadie debe ser protegido; *na*—ni; *upekṣaṇīya*—ser desdeñado; *ādaraṇīya*—ser adorado; *pakṣaḥ*—parte; *tathāpi*—aun así; *sarga*—creación; *sthiti*—mantenimiento; *saṁyama*—y aniquilación; *artham*—a fin de; *dhatte*—Él acepta; *rajaḥ*—pasión; *sattva*—bondad; *tamāṁsi*—e ignorancia; *kāle*—a su debido tiempo.

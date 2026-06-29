@@ -1,9 +1,9 @@
 ### CC Antya 6.99
 
-> আনন্দিত রঘুনাথ প্রভুর ‘শেষ’ পাঞা ।
+> আনন্দিত রঘুনাথ প্রভুর ‘শেষ’ পাঞা ।\
 > আপনার গণ-সহ খাইলা বাঁটিয়া ॥৯৯॥
 
-> ānandita raghunātha prabhura 'śeṣa, pāñā
+> ānandita raghunātha prabhura 'śeṣa, pāñā\
 > āpanāra gaṇa-saha khāilā bāṅtiyā
 
 *ānandita*—being very happy; *raghunātha*—Raghunātha dāsa; *prabhura śeṣa pāñā*—after getting the remnants left by Lord Nityānanda prabhu; *āpanāra gaṇa*—his own associates; *saha*—with; *khāilā*—ate; *bāṅtiyā*—distributing.

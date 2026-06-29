@@ -1,11 +1,11 @@
 ### SB 3.26.72
 
-> तमस्मिन्प्रत्यगात्मानं धिया योगप्रवृत्तया ।
+> तमस्मिन्प्रत्यगात्मानं धिया योगप्रवृत्तया ।\
 > भक्त्या विरक्त्या ज्ञानेन विविच्यात्मनि चिन्तयेत् ॥७२॥
 
-> tam asmin pratyag-ātmānaṁ
-> dhiyā yoga-pravṛttayā
-> bhaktyā viraktyā jñānena
+> tam asmin pratyag-ātmānaṁ\
+> dhiyā yoga-pravṛttayā\
+> bhaktyā viraktyā jñānena\
 > vivicyātmani cintayet
 
 *tam*—upon Him; *asmin*—in this; *pratyak-ātmānam*—the Supersoul; *dhiyā*—with the mind; *yoga-pravṛttayā*—engaged in devotional service; *bhaktyā*—through devotion; *viraktyā*—through detachment; *jñānena*—through spiritual knowledge; *vivicya*—considering carefully; *ātmani*—in the body; *cintayet*—one should contemplate.

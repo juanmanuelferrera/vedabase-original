@@ -1,11 +1,11 @@
 ### CC Madhya 20.337
 
-> দ্বাপরে ভগবান্ শ্যামঃ পীতবাসা নিজায়ুধঃ ।
+> দ্বাপরে ভগবান্ শ্যামঃ পীতবাসা নিজায়ুধঃ ।\
 > শ্রীবৎসাদিভিরঙ্কৈশ্চ লক্ষণৈরুপলক্ষিতঃ ॥৩৩৭॥
 
-> dvāpare bhagavān śyāmaḥ
-> pīta-vāsā nijāyudhaḥ
-> śrī-vatsādibhir aṅkaiś ca
+> dvāpare bhagavān śyāmaḥ\
+> pīta-vāsā nijāyudhaḥ\
+> śrī-vatsādibhir aṅkaiś ca\
 > lakṣaṇair upalakṣitaḥ
 
 *dvāpare*—in the Dvāpara-yuga; *bhagavān*—the Supreme Personality of Godhead; *śyāmaḥ*—blackish; *pīta-vāsāḥ*—having yellow clothes; *nija*—own; *āyudhaḥ*—having weapons; *śrī-vatsa-ādibhiḥ*—such as Śrīvatsa; *aṅkaiḥ*—by bodily markings; *ca*—and; *lakṣaṇaiḥ*—by external characteristics such as the Kaustubha jewel; *upalakṣitaḥ*—characterized.

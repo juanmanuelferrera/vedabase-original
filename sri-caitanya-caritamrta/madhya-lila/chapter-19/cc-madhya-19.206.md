@@ -1,11 +1,11 @@
 ### CC Madhya 19.206
 
-> উবাহ কৃষ্ণো ভগবান্ শ্রীদামানং পরাজিতঃ ।
+> উবাহ কৃষ্ণো ভগবান্ শ্রীদামানং পরাজিতঃ ।\
 > বৃষভং ভদ্রসেনস্তু প্রলম্বো রোহিণীসুতম্ ॥২০৬॥
 
-> uvāha kṛṣṇo bhagavān
-> śrīdāmānaṁ parājitaḥ
-> vṛṣabhaṁ bhadrasenas tu
+> uvāha kṛṣṇo bhagavān\
+> śrīdāmānaṁ parājitaḥ\
+> vṛṣabhaṁ bhadrasenas tu\
 > pralambo rohiṇī-sutam
 
 *uvāha*—carried; *kṛṣṇaḥ*—Lord Kṛṣṇa; *bhagavān*—the Supreme Personality of Godhead; *śrīdāmānam*—Śrīdāmā; *parājitaḥ*—being defeated; *vṛṣabham*—Vṛṣabha; *bhadrasenaḥ*—Bhadrasena; *tu*—and; *pralambaḥ*—Pralamba; *rohiṇī-sutam*—Balarāma.

@@ -1,14 +1,14 @@
 ### CC Madhya 16.16-17
 
-> আচার্যরত্ন, বিদ্যানিধি, শ্রীবাস, রামাই ।
-> বাসুদেব, মুরারি, গোবিন্দাদি তিন ভাই ॥১৬॥
-> রাঘব পণ্ডিত নিজ-ঝালি সাজাঞা ।
+> আচার্যরত্ন, বিদ্যানিধি, শ্রীবাস, রামাই ।\
+> বাসুদেব, মুরারি, গোবিন্দাদি তিন ভাই ॥১৬॥\
+> রাঘব পণ্ডিত নিজ-ঝালি সাজাঞা ।\
 > কুলীন-গ্ৰামবাসী চলে পট্টডোরী লঞা ॥১৭॥
 
-> ācāryaratna, vidyānidhi, śrīvāsa, rāmāi
+> ācāryaratna, vidyānidhi, śrīvāsa, rāmāi\
 > vāsudeva, murāri, govindādi tina bhāi
 
-> rāghava paṇḍita nija-jhāli sājāñā
+> rāghava paṇḍita nija-jhāli sājāñā\
 > kulīna-grāma-vāsī cale paṭṭa-ḍorī lañā
 
 *ācāryaratna*—Ācāryaratna; *vidyānidhi*—Vidyānidhi; *śrīvāsa*—Śrīvāsa; *rāmāi*—Rāmāi; *vāsudeva*—Vāsudeva; *murāri*—Murāri; *govinda-ādi tina bhāi*—Govinda and his two brothers; *rāghava paṇḍita*—Rāghava Paṇḍita; *nija-jhāli*—his own bags; *sājāñā*—assorting; *kulīna-grāma-vāsī*—the inhabitants of Kulīna-grāma; *cale*—went; *paṭṭa-ḍorī lañā*—taking silken ropes.

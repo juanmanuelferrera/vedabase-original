@@ -1,13 +1,13 @@
 ### CC Antya 7.47
 
-> আসামহো চরণরেণুজুষামহং স্যাং
-> বৃন্দাবনে কিমপি গুল্মলতৌষধীনাম্ ।
-> যা দুস্ত্যজং স্বজনমার্যপথঞ্চ হিত্বা
+> আসামহো চরণরেণুজুষামহং স্যাং\
+> বৃন্দাবনে কিমপি গুল্মলতৌষধীনাম্ ।\
+> যা দুস্ত্যজং স্বজনমার্যপথঞ্চ হিত্বা\
 > ভেজুর্মুকুন্দপদবীং শ্রুতিভির্বিমৃগ্যাম্ ॥৪৭॥
 
-> āsām aho caraṇa-reṇu-juṣām ahaṁ syāṁ
-> vṛndāvane kim api gulma-latauṣadhīnām
-> yā dustyajaṁ svajanam ārya-pathaṁ ca hitvā
+> āsām aho caraṇa-reṇu-juṣām ahaṁ syāṁ\
+> vṛndāvane kim api gulma-latauṣadhīnām\
+> yā dustyajaṁ svajanam ārya-pathaṁ ca hitvā\
 > bhejur mukunda-padavīṁ śrutibhir vimṛgyām
 
 *āsām*—de las gopīs; *aho*—¡oh!; *caraṇa-reṇu*—el polvo de los pies de loto; *juṣām*—consagrado a; *aham syām*—que yo llegue a ser; *vṛndāvane*—en Vṛndāvana; *kim api*—cualquiera; *gulma-latā-auṣadhīnām*—entre arbustos, enredaderas y hierbas; *yā*—ellas, que; *dustyajam*—muy difíciles de abandonar; *sva-janam*—los miembros de la familia; *ārya-patham*—la senda de la castidad; *ca*—y; *hitvā*—abandonando; *bhejuḥ*—adoraron; *mukunda-padavīm*—los pies de loto de Mukunda, Kṛṣṇa; *śrutibhiḥ*—por los Vedas; *vimṛgyām*—que debe buscarse.

@@ -1,13 +1,13 @@
 ### SB 3.4.28
 
-> राजोवाच
-> निधनमुपगतेषु वृष्णिभोजेष्वधिरथयूथपयूथपेषु मुख्यः ।
+> राजोवाच\
+> निधनमुपगतेषु वृष्णिभोजेष्वधिरथयूथपयूथपेषु मुख्यः ।\
 > स तु कथमवशिष्ट उद्धवो यद्धरिरपि तत्यज आकृतिं त्र्यधीशः ॥२८॥
 
-> rājovāca
-> nidhanam upagateṣu vṛṣṇi-bhojeṣv
-> adhiratha-yūthapa-yūthapeṣu mukhyaḥ
-> sa tu katham avaśiṣṭa uddhavo yad
+> rājovāca\
+> nidhanam upagateṣu vṛṣṇi-bhojeṣv\
+> adhiratha-yūthapa-yūthapeṣu mukhyaḥ\
+> sa tu katham avaśiṣṭa uddhavo yad\
 > dharir api tatyaja ākṛtiṁ tryadhīśaḥ
 
 *rājā uvāca*—the King inquired; *nidhanam*—destruction; *upagateṣu*—having overtaken; *vṛṣṇi*—of the Vṛṣṇi dynasty; *bhojeṣu*—the Bhoja dynasty; *adhiratha*—great commander; *yūtha-pa*—commander in chief; *yūtha-peṣu*—amongst them; *mukhyaḥ*—prominent; *saḥ*—he; *tu*—only; *katham*—how; *avaśiṣṭaḥ*—remained; *uddhavaḥ*—Uddhava; *yat*—whereas; *hariḥ*—the Personality of Godhead; *api*—also; *tatyaje*—finished; *ākṛtim*—complete pastimes; *tri-adhīśaḥ*—the Lord of the three worlds.

@@ -1,11 +1,11 @@
 ### SB 3.23.22
 
-> ईदृग्गृहं तत्पश्यन्तीं नातिप्रीतेन चेतसा ।
+> ईदृग्गृहं तत्पश्यन्तीं नातिप्रीतेन चेतसा ।\
 > सर्वभूताशयाभिज्ञः प्रावोचत्कर्दमः स्वयम् ॥२२॥
 
-> īdṛg gṛhaṁ tat paśyantīṁ
-> nātiprītena cetasā
-> sarva-bhūtāśayābhijñaḥ
+> īdṛg gṛhaṁ tat paśyantīṁ\
+> nātiprītena cetasā\
+> sarva-bhūtāśayābhijñaḥ\
 > prāvocat kardamaḥ svayam
 
 *īdṛk*—such; *gṛham*—house; *tat*—that; *paśyantīm*—looking at; *na atiprītena*—not much pleased; *cetasā*—with a heart; *sarva-bhūta*—of everyone; *āśaya-abhijñaḥ*—understanding the heart; *prāvocat*—he addressed; *kardamaḥ*—Kardama; *svayam*—personally.

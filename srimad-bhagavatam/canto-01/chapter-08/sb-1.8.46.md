@@ -1,11 +1,11 @@
 ### SB 1.8.46
 
-> व्यासाद्यैरीश्वरेहाज्ञैः कृष्णेनाद्भुतकर्मणा ।
+> व्यासाद्यैरीश्वरेहाज्ञैः कृष्णेनाद्भुतकर्मणा ।\
 > प्रबोधितोऽपीतिहासैर्नाबुध्यत शुचार्पितः ॥४६॥
 
-> vyāsādyair īśvarehājñaiḥ
-> kṛṣṇenādbhuta-karmaṇā
-> prabodhito 'pītihāsair
+> vyāsādyair īśvarehājñaiḥ\
+> kṛṣṇenādbhuta-karmaṇā\
+> prabodhito 'pītihāsair\
 > nābudhyata śucārpitaḥ
 
 *vyāsa-ādyaiḥ*—by great sages headed by Vyāsa; *īśvara*—the almighty God; *īhā*—by the will of; *jñaiḥ*—by the learned; *kṛṣṇena*—by Kṛṣṇa Himself; *adbhuta-karmaṇā*—by one who performs all superhuman work; *prabodhitaḥ*—being solaced; *api*—although; *itihāsaiḥ*—by evidences from the histories; *na*—not; *abudhyata*—satisfied; *śucā arpitaḥ*—distressed.

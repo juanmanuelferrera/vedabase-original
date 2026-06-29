@@ -1,11 +1,11 @@
 ### SB 5.5.26
 
-> सर्वाणि मद्धिष्ण्यतया भवद्भिश्चराणि भूतानि सुता ध्रुवाणि
+> सर्वाणि मद्धिष्ण्यतया भवद्भिश्चराणि भूतानि सुता ध्रुवाणि\
 > सम्भावितव्यानि पदे पदे वो विविक्तदृग्भिस्तदु हार्हणं मे ॥२६॥
 
-> sarvāṇi mad-dhiṣṇyatayā bhavadbhiś
-> carāṇi bhūtāni sutā dhruvāṇi
-> sambhāvitavyāni pade pade vo
+> sarvāṇi mad-dhiṣṇyatayā bhavadbhiś\
+> carāṇi bhūtāni sutā dhruvāṇi\
+> sambhāvitavyāni pade pade vo\
 > vivikta-dṛgbhis tad u hārhaṇaṁ me
 
 *sarvāṇi*—todas; *mat-dhiṣṇyatayā*—por estar Yo presente en ellas; *bhavadbhiḥ*—por ustedes; *carāṇi*—que se mueven; *bhūtāni*—las entidades vivientes; *sutāḥ*—queridos hijos Míos; *dhruvāṇi*—que no se mueven; *sambhāvitavyāni*—ser respetadas; *pade pade*—en todo momento; *vaḥ*—por ustedes; *vivikta-dṛgbhiḥ*—con una visión y una comprensión clara (de que la Suprema Personalidad de Dios, en Su aspecto de Paramātmā, está en todas partes); *tat u*—que indirectamente; *ha*—ciertamente; *arhaṇam*—ofrecer respeto; *me*—a Mí.

@@ -1,11 +1,11 @@
 ### SB 3.25.34
 
-> नैकात्मतां मे स्पृहयन्ति केचिन्मत्पादसेवाभिरता मदीहाः ।
+> नैकात्मतां मे स्पृहयन्ति केचिन्मत्पादसेवाभिरता मदीहाः ।\
 > येऽन्योन्यतो भागवताः प्रसज्य सभाजयन्ते मम पौरुषाणि ॥३४॥
 
-> naikātmatāṁ me spṛhayanti kecin
-> mat-pāda-sevābhiratā mad-īhāḥ
-> ye 'nyonyato bhāgavatāḥ prasajya
+> naikātmatāṁ me spṛhayanti kecin\
+> mat-pāda-sevābhiratā mad-īhāḥ\
+> ye 'nyonyato bhāgavatāḥ prasajya\
 > sabhājayante mama pauruṣāṇi
 
 *na*—never; *eka-ātmatām*—merging into oneness; *me*—My; *spṛhayanti*—they desire; *kecit*—any; *mat-pāda-sevā*—the service of My lotus feet; *abhiratāḥ*—engaged in; *mat-īhāḥ*—endeavoring to attain Me; *ye*—those who; *anyonyataḥ*—mutually; *bhāgavatāḥ*—pure devotees; *prasajya*—assembling; *sabhājayante*—glorify; *mama*—My; *pauruṣāṇi*—glorious activities.

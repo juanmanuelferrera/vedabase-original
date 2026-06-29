@@ -1,11 +1,11 @@
 ### SB 5.15.11
 
-> छन्दांस्यकामस्य च यस्य कामान्दुदूहुराजह्रुरथो बलिं नृपाः
+> छन्दांस्यकामस्य च यस्य कामान्दुदूहुराजह्रुरथो बलिं नृपाः\
 > प्रत्यञ्चिता युधि धर्मेण विप्रा यदाशिषां षष्ठमंशं परेत्य ॥११॥
 
-> chandāṁsy akāmasya ca yasya kāmān
-> dudūhur ājahrur atho baliṁ nṛpāḥ
-> pratyañcitā yudhi dharmeṇa viprā
+> chandāṁsy akāmasya ca yasya kāmān\
+> dudūhur ājahrur atho baliṁ nṛpāḥ\
+> pratyañcitā yudhi dharmeṇa viprā\
 > yadāśiṣāṁ ṣaṣṭham aṁśaṁ paretya
 
 *chandāṁsi*—all the different parts of the *Vedas*; *akāmasya*—of one who has no desire for personal sense gratification; *ca*—also; *yasya*—whose; *kāmān*—all desirables; *dudūhuḥ*—yielded; *ājahruḥ*—offered; *atho*—thus; *balim*—presentation; *nṛpāḥ*—all the kings; *pratyañcitāḥ*—being satisfied by his fighting in opposition; *yudhi*—in the war; *dharmeṇa*—by religious principles; *viprāḥ*—all the *brāhmaṇas*; *yadā*—when; *āśiṣām*—of blessings; *ṣaṣṭham aṁśam*—one sixth; *paretya*—in the next life.

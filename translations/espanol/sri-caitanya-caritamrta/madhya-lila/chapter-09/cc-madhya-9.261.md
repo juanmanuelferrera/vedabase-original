@@ -1,9 +1,9 @@
 ### CC Madhya 9.261
 
-> শ্রবণ-কীর্তন হইতে কৃষ্ণে হয় ‘প্রেমা’ ৷
+> শ্রবণ-কীর্তন হইতে কৃষ্ণে হয় ‘প্রেমা’ ৷\
 > সেই পঞ্চম পুরুষার্থ — পুরুষার্থের সীমা ৷৷ ২৬১ ৷৷ ॥২৬১॥
 
-> śravaṇa-kīrtana ha-ite kṛṣṇe haya 'premā'
+> śravaṇa-kīrtana ha-ite kṛṣṇe haya 'premā'\
 > sei pañcama puruṣārtha--puruṣārthera sīmā
 
 *śravaṇa-kīrtana*—escuchar y cantar; *ha-ite*—a partir de; *kṛṣṇe*—por el Señor Kṛṣṇa; *haya*—hay; *premā*—amor trascendental; *sei*—ese; *pañcama puruṣa-artha*—la quinta plataforma de perfección de la vida; *puruṣa-arthera sīmā*—el límite de las metas de la vida.

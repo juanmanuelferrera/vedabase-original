@@ -1,11 +1,11 @@
 ### SB 6.7.32
 
-> वृणीमहे त्वोपाध्यायं ब्रह्मिष्ठं ब्राह्मणं गुरुम
+> वृणीमहे त्वोपाध्यायं ब्रह्मिष्ठं ब्राह्मणं गुरुम\
 > यथाञ्जसा विजेष्यामः सपत्नांस्तव तेजसा ॥३२॥
 
-> vṛṇīmahe tvopādhyāyaṁ
-> brahmiṣṭhaṁ brāhmaṇaṁ gurum
-> yathāñjasā vijeṣyāmaḥ
+> vṛṇīmahe tvopādhyāyaṁ\
+> brahmiṣṭhaṁ brāhmaṇaṁ gurum\
+> yathāñjasā vijeṣyāmaḥ\
 > sapatnāṁs tava tejasā
 
 *vṛṇīmahe*—we choose; *tvā*—you; *upādhyāyam*—as teacher and spiritual master; *brahmiṣṭham*—being perfectly aware of the Supreme Brahman; *brāhmaṇam*—a qualified *brāhmaṇa*; *gurum*—the perfect spiritual master; *yathā*—so that; *añjasā*—very easily; *vijeṣyāmaḥ*—we shall defeat; *sapatnān*—our rivals; *tava*—your; *tejasā*—by the power of austerity.

@@ -1,18 +1,18 @@
 ### SB 3.27.28-29
 
-> मद्भक्तः प्रतिबुद्धार्थो मत्प्रसादेन भूयसा ।
-> निःश्रेयसं स्वसंस्थानं कैवल्याख्यं मदाश्रयम् ॥२८॥
-> प्राप्नोतीहाञ्जसा धीरः स्वदृशा च्छिन्नसंशयः ।
+> मद्भक्तः प्रतिबुद्धार्थो मत्प्रसादेन भूयसा ।\
+> निःश्रेयसं स्वसंस्थानं कैवल्याख्यं मदाश्रयम् ॥२८॥\
+> प्राप्नोतीहाञ्जसा धीरः स्वदृशा च्छिन्नसंशयः ।\
 > यद्गत्वा न निवर्तेत योगी लिङ्गाद्विनिर्गमे ॥२९॥
 
-> mad-bhaktaḥ pratibuddhārtho
-> mat-prasādena bhūyasā
-> niḥśreyasaṁ sva-saṁsthānaṁ
+> mad-bhaktaḥ pratibuddhārtho\
+> mat-prasādena bhūyasā\
+> niḥśreyasaṁ sva-saṁsthānaṁ\
 > kaivalyākhyaṁ mad-āśrayam
 
-> prāpnotīhāñjasā dhīraḥ
-> sva-dṛśā cchinna-saṁśayaḥ
-> yad gatvā na nivarteta
+> prāpnotīhāñjasā dhīraḥ\
+> sva-dṛśā cchinna-saṁśayaḥ\
+> yad gatvā na nivarteta\
 > yogī liṅgād vinirgame
 
 *mat-bhaktaḥ*—Mi devoto; *pratibuddha-arthaḥ*—autorrealizado; *mat-prasādena*—por Mi misericordia sin causa; *bhūyasā*—ilimitada; *niḥśreyasam*—la meta suprema en el perfeccionamiento; *sva-saṁsthānam*—su morada; *kaivalya-ākhyam*—que recibe el nombre de *kaivalya*; *mat-āśrayam*—bajo Mi protección; *prāpnoti*—alcanza; *iha*—en esta vida; *añjasā*—verdaderamente; *dhīraḥ*—constante; *sva-dṛśā*—mediante el conocimiento del ser; *chinna-saṁśayaḥ*—libre de dudas; *yat*—a esa morada; *gatvā*—habiendo ido; *na*—nunca; *nivarteta*—regresa; *yogī*—el devoto místico; *liṅgāt*—de los cuerpos materiales sutil y denso; *vinirgame*—tras partir.

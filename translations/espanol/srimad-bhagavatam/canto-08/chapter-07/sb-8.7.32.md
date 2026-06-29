@@ -1,11 +1,11 @@
 ### SB 8.7.32
 
-> न ते गिरित्राखिललोकपाल विरिञ्चवैकुण्ठसुरेन्द्रगम्यम
+> न ते गिरित्राखिललोकपाल विरिञ्चवैकुण्ठसुरेन्द्रगम्यम\
 > ज्योतिः परं यत्र रजस्तमश्च सत्त्वं न यद्ब्रह्म निरस्तभेदम ॥३२॥
 
-> kāmādhvara-tripura-kālagarādy-aneka-
-> bhūta-druhaḥ kṣapayataḥ stutaye na tat te
-> yas tv anta-kāla idam ātma-kṛtaṁ sva-netra-
+> kāmādhvara-tripura-kālagarādy-aneka-\
+> bhūta-druhaḥ kṣapayataḥ stutaye na tat te\
+> yas tv anta-kāla idam ātma-kṛtaṁ sva-netra-\
 > vahni-sphuliṅga-śikhayā bhasitaṁ na veda
 
 *kāma-adhvara*—sacrificios por la complacencia de los sentidos (como los *dakṣa-yajña*, los sacrificios celebrados por Dakṣa); *tripura*—el demonio llamado Tripurāsura; *kālagara*—Kālagara; *ādi*—y otros; *aneka*—muchos; *bhūta-druhaḥ*—que tienen la misión de causar dificultades a las entidades vivientes; *kṣapayataḥ*—ocupado en su destrucción; *stutaye*—tu oración; *na*—no; *tat*—eso; *te*—hablarte; *yaḥ tu*—puesto que; *anta-kāle*—en el momento de la aniquilación; *idam*—en el mundo material; *ātma-kṛtam*—hecha por ti mismo; *sva-netra*—con tus ojos; *vahni-sphuliṅga-śikhayā*—por las chispas de fuego; *bhasitam*—reducidos a cenizas; *na veda*—no sé cómo sucede.

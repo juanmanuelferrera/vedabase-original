@@ -1,9 +1,9 @@
 ### CC Madhya 14.104
 
-> নব দিন গুণ্ডিচাতে রহে জগন্নাথ ।
+> নব দিন গুণ্ডিচাতে রহে জগন্নাথ ।\
 > মহাপ্রভু ঐছে লীলা করে ভক্ত-সাথ ॥১০৪॥
 
-> nava dina guṇḍicāte rahe jagannātha
+> nava dina guṇḍicāte rahe jagannātha\
 > mahāprabhu aiche līlā kare bhakta-sātha
 
 *nava dina*—nine days; *guṇḍicāte*—in the temple of Guṇḍicā; *rahe*—stays; *jagannātha*—Lord Jagannātha; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *aiche*—in the above-mentioned way; *līlā*—pastimes; *kare*—performs; *bhakta-sātha*—with His devotees.

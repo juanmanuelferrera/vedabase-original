@@ -1,11 +1,11 @@
 ### SB 1.4.31
 
-> किं वा भागवता धर्मा न प्रायेण निरूपिताः ।
+> किं वा भागवता धर्मा न प्रायेण निरूपिताः ।\
 > प्रियाः परमहंसानां त एव ह्यच्युतप्रियाः ॥३१॥
 
-> kiṁ vā bhāgavatā dharmā
-> na prāyeṇa nirūpitāḥ
-> priyāḥ paramahaṁsānāṁ
+> kiṁ vā bhāgavatā dharmā\
+> na prāyeṇa nirūpitāḥ\
+> priyāḥ paramahaṁsānāṁ\
 > ta eva hy acyuta-priyāḥ
 
 *kim vā*—o; *bhāgavatāḥ dharmāḥ*—actividades devocionales de los seres vivientes; *na*—no; *prāyeṇa*—prácticamente; *nirūpitāḥ*—dirigió; *priyāḥ*—querido; *paramahaṁsānām*—de los seres perfectos; *te eva*—eso también; *hi*—indudablemente; *acyuta*—el infalible; *priyāḥ*—atractivo.

@@ -1,11 +1,11 @@
 ### SB 8.19.4
 
-> न सन्ति तीर्थे युधि चार्थिनार्थिताः पराङ्मुखा ये त्वमनस्विनो नृप
+> न सन्ति तीर्थे युधि चार्थिनार्थिताः पराङ्मुखा ये त्वमनस्विनो नृप\
 > युष्मत्कुले यद्यशसामलेन प्रह्राद उद्भाति यथोडुपः खे ॥४॥
 
-> na santi tīrthe yudhi cārthinārthitāḥ
-> parāṅmukhā ye tv amanasvino nṛpa
-> yuṣmat-kule yad yaśasāmalena
+> na santi tīrthe yudhi cārthinārthitāḥ\
+> parāṅmukhā ye tv amanasvino nṛpa\
+> yuṣmat-kule yad yaśasāmalena\
 > prahrāda udbhāti yathoḍupaḥ khe
 
 *na*—not; *santi*—there are; *tīrthe*—in holy places (where charity is given); *yudhi*—in the battlefield; *ca*—also; *arthinā*—by a *brāhmaṇa* or a *kṣatriya*; *arthitāḥ*—who have been asked; *parāṅmukhāḥ*—who refused their prayers; *ye*—such persons; *tu*—indeed; *amanasvinaḥ*—such low-minded, low-grade kings; *nṛpa*—O King (Bali Mahārāja); *yuṣmat-kule*—in your dynasty; *yat*—therein; *yaśasā amalena*—by impeccable reputation; *prahrādaḥ*—Prahlāda Mahārāja; *udbhāti*—arises; *yathā*—as; *uḍupaḥ*—the moon; *khe*—in the sky.

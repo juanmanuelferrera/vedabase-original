@@ -2,7 +2,7 @@
 
 > “উরুক্রমে এব ভক্তিমেব অহৈতুকীমেব কুর্বন্ত্যেব” ॥৩০৫॥
 
-> "urukrame eva bhaktim eva ahaitukīm eva kurvanty eva"
+> "urukrame eva bhaktim eva ahaitukīm eva kurvanty eva"\
 > SYNONYMS
 
 *urukrame*—al más poderoso; *eva*—solo; *bhaktim*—servicio devocional; *eva*—solo; *ahaitukīm*—sin motivos; *eva*—solo; *kurvanti*—ejecutan; *eva*—solo.

@@ -1,11 +1,11 @@
 ### SB 7.15.14
 
-> यस्त्विच्छया कृतः पुम्भिराभासो ह्याश्रमात्पृथक
+> यस्त्विच्छया कृतः पुम्भिराभासो ह्याश्रमात्पृथक\
 > स्वभावविहितो धर्मः कस्य नेष्टः प्रशान्तये ॥१४॥
 
-> yas tv icchayā kṛtaḥ pumbhir
-> ābhāso hy āśramāt pṛthak
-> sva-bhāva-vihito dharmaḥ
+> yas tv icchayā kṛtaḥ pumbhir\
+> ābhāso hy āśramāt pṛthak\
+> sva-bhāva-vihito dharmaḥ\
 > kasya neṣṭaḥ praśāntaye
 
 *yaḥ*—that which; *tu*—indeed; *icchayā*—whimsically; *kṛtaḥ*—conducted; *pumbhiḥ*—by persons; *ābhāsaḥ*—dim reflection; *hi*—indeed; *āśramāt*—from one's own order of life; *pṛthak*—different; *sva-bhāva*—according to one's own nature; *vihitaḥ*—regulated; *dharmaḥ*—religious principle; *kasya*—in what respect; *na*—not; *iṣṭaḥ*—capable; *praśāntaye*—for relieving all kinds of distress.

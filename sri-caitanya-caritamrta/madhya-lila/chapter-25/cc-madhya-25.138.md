@@ -1,13 +1,13 @@
 ### CC Madhya 25.138
 
-> ভয়ং দ্বিতীয়াভিনিবেশতঃ স্যা-
-> দীশাদপেতস্য বিপর্যয়োঽস্মৃতিঃ ।
-> তন্মায়য়াতো বুধ আভজেত্তং
+> ভয়ং দ্বিতীয়াভিনিবেশতঃ স্যা-\
+> দীশাদপেতস্য বিপর্যয়োঽস্মৃতিঃ ।\
+> তন্মায়য়াতো বুধ আভজেত্তং\
 > ভক্ত্যৈকয়েশং গুরুদেবতাত্মা ॥১৩৮॥
 
-> bhayaṁ dvitīyābhiniveśataḥ syād
-> īśād apetasya viparyayo 'smṛtiḥ
-> tan-māyayāto budha ābhajet taṁ
+> bhayaṁ dvitīyābhiniveśataḥ syād\
+> īśād apetasya viparyayo 'smṛtiḥ\
+> tan-māyayāto budha ābhajet taṁ\
 > bhaktyaikayeśaṁ guru-devatātmā
 
 *bhayam*—fear; *dvitīya-abhiniveśataḥ*—from the misconception of being a product of material energy; *syāt*—arises; *īśāt*—from the Supreme Personality of Godhead, Kṛṣṇa; *apetasya*—of one who has withdrawn (the conditioned soul); *viparyayaḥ*—reversal of position; *asmṛtiḥ*—no conception of his relationship with the Supreme Lord; *tat-māyayā*—because of the illusory energy of the Supreme Lord; *ataḥ*—therefore; *budhaḥ*—one who is wise; *ābhajet*—must worship; *tam*—Him; *bhaktyā*—by devotional service; *ekayā*—undiverted to *karma* and *jñāna*; *īśam*—the Supreme Personality of Godhead; *guru*—as the spiritual master; *devatā*—worshipable Lord; *ātmā*—Supersoul.

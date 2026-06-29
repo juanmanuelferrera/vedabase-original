@@ -1,11 +1,11 @@
 ### SB 7.7.28
 
-> तस्माद्भवद्भिः कर्तव्यं कर्मणां त्रिगुणात्मनाम
+> तस्माद्भवद्भिः कर्तव्यं कर्मणां त्रिगुणात्मनाम\
 > बीजनिर्हरणं योगः प्रवाहोपरमो धियः ॥२८॥
 
-> tasmād bhavadbhiḥ kartavyaṁ
-> karmaṇāṁ tri-guṇātmanām
-> bīja-nirharaṇaṁ yogaḥ
+> tasmād bhavadbhiḥ kartavyaṁ\
+> karmaṇāṁ tri-guṇātmanām\
+> bīja-nirharaṇaṁ yogaḥ\
 > pravāhoparamo dhiyaḥ
 
 *tasmāt*—por lo tanto; *bhavadbhiḥ*—por ustedes mismos; *kartavyam*—ser hecho; *karmaṇām*—de todas las actividades materiales; *tri-guṇa-ātmanām*—condicionadas por las tres modalidades de la naturaleza material; *bīja-nirharaṇam*—quemar la semilla; *yogaḥ*—el proceso mediante el cual podemos vincularnos con el supremo; *pravāha*—del flujo continuo en forma de vigilia, sueño y sueño profundo; *uparamaḥ*—el cese; *dhiyaḥ*—de la inteligencia.

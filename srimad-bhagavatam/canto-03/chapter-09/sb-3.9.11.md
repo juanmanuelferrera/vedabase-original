@@ -1,13 +1,13 @@
 ### SB 3.9.11
 
-> त्वं भक्तियोगपरिभावितहृत्सरोज
-> आस्से श्रुतेक्षितपथो ननु नाथ पुंसाम् ।
-> यद्यद्धिया त उरुगाय विभावयन्ति
+> त्वं भक्तियोगपरिभावितहृत्सरोज\
+> आस्से श्रुतेक्षितपथो ननु नाथ पुंसाम् ।\
+> यद्यद्धिया त उरुगाय विभावयन्ति\
 > तत्तद्वपुः प्रणयसे सदनुग्रहाय ॥११॥
 
-> tvaṁ bhakti-yoga-paribhāvita-hṛt-saroja
-> āsse śrutekṣita-patho nanu nātha puṁsām
-> yad-yad-dhiyā ta urugāya vibhāvayanti
+> tvaṁ bhakti-yoga-paribhāvita-hṛt-saroja\
+> āsse śrutekṣita-patho nanu nātha puṁsām\
+> yad-yad-dhiyā ta urugāya vibhāvayanti\
 > tat-tad-vapuḥ praṇayase sad-anugrahāya
 
 *tvam*—unto You; *bhakti-yoga*—in devotional service; *paribhāvita*—being one hundred percent engaged; *hṛt*—of the heart; *saroje*—on the lotus; *āsse*—You reside; *śruta-īkṣita*—seen through the ear; *pathaḥ*—the path; *nanu*—now; *nātha*—O my Lord; *puṁsām*—of the devotees; *yat-yat*—whichever; *dhiyā*—by meditating; *te*—Your; *urugāya*—O multiglorious; *vibhāvayanti*—they specifically think of; *tat-tat*—the very same; *vapuḥ*—transcendental form; *praṇayase*—do You manifest; *sat-anugrahāya*—to show Your causeless mercy.

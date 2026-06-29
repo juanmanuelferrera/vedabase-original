@@ -1,11 +1,11 @@
 ### SB 2.2.21
 
-> तस्माद्भ्रुवोरन्तरमुन्नयेत निरुद्धसप्तायतनोऽनपेक्षः ।
+> तस्माद्भ्रुवोरन्तरमुन्नयेत निरुद्धसप्तायतनोऽनपेक्षः ।\
 > स्थित्वा मुहूर्तार्धमकुण्ठदृष्टिर्निर्भिद्य मूर्धन्विसृजेत्परं गतः ॥२१॥
 
-> tasmād bhruvor antaram unnayeta
-> niruddha-saptāyatano 'napekṣaḥ
-> sthitvā muhūrtārdham akuṇṭha-dṛṣṭir
+> tasmād bhruvor antaram unnayeta\
+> niruddha-saptāyatano 'napekṣaḥ\
+> sthitvā muhūrtārdham akuṇṭha-dṛṣṭir\
 > nirbhidya mūrdhan visṛjet paraṁ gataḥ
 
 *tasmāt*—from there; *bhruvoḥ*—of the eyebrows; *antaram*—in between; *unnayeta*—should be brought in; *niruddha*—by blocking; *sapta*—seven; *āyatanaḥ*—outlets of the life air; *anapekṣaḥ*—independent of all material enjoyment; *sthitvā*—by keeping; *muhūrta*—of a moment; *ardham*—half; *akuṇṭha*—back home, back to Godhead; *dṛṣṭiḥ*—one whose aim is targeted like that; *nirbhidya*—punching; *mūrdhan*—the cerebral hole; *visṛjet*—should give up his body; *param*—the Supreme; *gataḥ*—having gone to.

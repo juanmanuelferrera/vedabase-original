@@ -1,13 +1,13 @@
 ### SB 7.9.35
 
-> स त्वात्मयोनिरतिविस्मित आश्रितोऽब्जं
-> कालेन तीव्रतपसा परिशुद्धभावः
-> त्वामात्मनीश भुवि गन्धमिवातिसूक्ष्मं
+> स त्वात्मयोनिरतिविस्मित आश्रितोऽब्जं\
+> कालेन तीव्रतपसा परिशुद्धभावः\
+> त्वामात्मनीश भुवि गन्धमिवातिसूक्ष्मं\
 > भूतेन्द्रियाशयमये विततं ददर्श ॥३५॥
 
-> sa tv ātma-yonir ativismita āśrito 'bjaṁ
-> kālena tīvra-tapasā pariśuddha-bhāvaḥ
-> tvām ātmanīśa bhuvi gandham ivātisūkṣmaṁ
+> sa tv ātma-yonir ativismita āśrito 'bjaṁ\
+> kālena tīvra-tapasā pariśuddha-bhāvaḥ\
+> tvām ātmanīśa bhuvi gandham ivātisūkṣmaṁ\
 > bhūtendriyāśayamaye vitataṁ dadarśa
 
 *saḥ*—he (Lord Brahmā); *tu*—but; *ātma-yoniḥ*—who is born without a mother (directly begotten by the father, Lord Viṣṇu); *ati-vismitaḥ*—very much surprised (not finding the source of his birth); *āśritaḥ*—situated on; *abjam*—the lotus; *kālena*—in due course of time; *tīvra-tapasā*—by severe austerities; *pariśuddha-bhāvaḥ*—being completely purified; *tvām*—You; *ātmani*—in his body and existence; *īśa*—O my Lord; *bhuvi*—within the earth; *gandham*—aroma; *iva*—like; *ati-sūkṣmam*—very subtle; *bhūta-indriya*—composed of elements and senses; *āśaya-maye*—and that filled with desires (the mind); *vitatam*—spread out; *dadarśa*—found.

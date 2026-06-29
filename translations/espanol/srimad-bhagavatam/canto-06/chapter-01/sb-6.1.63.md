@@ -1,11 +1,11 @@
 ### SB 6.1.63
 
-> तन्निमित्तस्मरव्याज ग्रहग्रस्तो विचेतनः
+> तन्निमित्तस्मरव्याज ग्रहग्रस्तो विचेतनः\
 > तामेव मनसा ध्यायन्स्वधर्माद्विरराम ह ॥६३॥
 
-> tan-nimitta-smara-vyāja-
-> graha-grasto vicetanaḥ
-> tām eva manasā dhyāyan
+> tan-nimitta-smara-vyāja-\
+> graha-grasto vicetanaḥ\
+> tām eva manasā dhyāyan\
 > sva-dharmād virarāma ha
 
 *tat-nimitta*—por haberla visto; *smara-vyāja*—aprovechando que siempre pensaba en ella; *graha-grastaḥ*—víctima de un eclipse; *vicetanaḥ*—habiendo olvidado por completo su verdadera posición; *tām*—a ella; *eva*—ciertamente; *manasā*—con la mente; *dhyāyan*—meditar en; *sva-dharmāt*—los principios regulativos propios de los *brāhmaṇas*; *virarāma ha*—abandonó por completo.

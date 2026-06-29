@@ -1,13 +1,13 @@
 ### CC Antya 1.170
 
-> বিধুরেতি দিবা বিরূপতাং
-> শতপত্রং বত শর্বরীমুখে ।
-> ইতি কেন সদাশ্রিয়োজ্জ্বলং
+> বিধুরেতি দিবা বিরূপতাং\
+> শতপত্রং বত শর্বরীমুখে ।\
+> ইতি কেন সদাশ্রিয়োজ্জ্বলং\
 > তুলনামর্হতি মৎপ্রিয়াননম্ ॥১৭০॥
 
-> vidhur eti divā virūpatāṁ
-> śata-patraṁ bata śarvarī-mukhe
-> iti kena sadā śriyojjvalaṁ
+> vidhur eti divā virūpatāṁ\
+> śata-patraṁ bata śarvarī-mukhe\
+> iti kena sadā śriyojjvalaṁ\
 > tulanām arhati mat-priyānanam
 
 *vidhuḥ*—la luna; *eti*—se vuelve; *divā*—durante el día; *virūpatām*—desvanecida; *śata-patram*—la flor de loto; *bata*—¡ay!; *śarvarī-mukhe*—al comienzo del anochecer; *iti*—así; *kena*—con qué; *sadā*—siempre; *śriyā-ujjvalam*—brillante de belleza; *tulanām*—comparación; *arhati*—merece; *mat*—de Mí; *priyā*—de la amada; *ānanam*—el rostro.

@@ -1,9 +1,9 @@
 ### CC Adi 1.83
 
-> প্রথম শ্লোকে কহি সামান্য মঙ্গলাচরণ ।
+> প্রথম শ্লোকে কহি সামান্য মঙ্গলাচরণ ।\
 > দ্বিতীয় শ্লোকেতে করি বিশেষ বন্দন ॥৮৩॥
 
-> prathama śloke kahi sāmānya maṅgalācaraṇa
+> prathama śloke kahi sāmānya maṅgalācaraṇa\
 > dvitīya ślokete kari viśeṣa vandana
 
 *prathama*—primer; *śloke*—en el verso; *kahi*—expreso; *sāmānya*—general; *maṅgala-ācaraṇa*—invocación auspiciosa; *dvitīya*—segundo; *ślokete*—en el verso; *kari*—hago; *viśeṣa*—particular; *vandana*—ofrenda de oraciones.

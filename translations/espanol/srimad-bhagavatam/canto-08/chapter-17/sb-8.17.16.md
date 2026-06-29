@@ -1,11 +1,11 @@
 ### SB 8.17.16
 
-> प्रायोऽधुना तेऽसुरयूथनाथा अपारणीया इति देवि मे मतिः
+> प्रायोऽधुना तेऽसुरयूथनाथा अपारणीया इति देवि मे मतिः\
 > यत्तेऽनुकूलेश्वरविप्रगुप्ता न विक्रमस्तत्र सुखं ददाति ॥१६॥
 
-> prāyo 'dhunā te 'sura-yūtha-nāthā
-> apāraṇīyā iti devi me matiḥ
-> yat te 'nukūleśvara-vipra-guptā
+> prāyo 'dhunā te 'sura-yūtha-nāthā\
+> apāraṇīyā iti devi me matiḥ\
+> yat te 'nukūleśvara-vipra-guptā\
 > na vikramas tatra sukhaṁ dadāti
 
 *prāyaḥ*—casi; *adhunā*—en este momento; *te*—todos ellos; *asura-yūtha-nāthāḥ*—los jefes de los demonios; *apāraṇīyāḥ*—invencibles; *iti*—así; *devi*—¡oh, madre Aditi!; *me*—Mía; *matiḥ*—opinión; *yat*—porque; *te*—todos los demonios; *anukūla-īśvara-vipra-guptāḥ*—protegidos por *brāhmaṇas*, por cuyo favor el controlador supremo está siempre presente; *na*—no; *vikramaḥ*—el uso de la fuerza; *tatra*—allí; *sukham*—felicidad; *dadāti*—puede dar.

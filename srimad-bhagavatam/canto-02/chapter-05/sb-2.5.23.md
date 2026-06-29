@@ -1,11 +1,11 @@
 ### SB 2.5.23
 
-> महतस्तु विकुर्वाणाद्रजःसत्त्वोपबृंहितात् ।
+> महतस्तु विकुर्वाणाद्रजःसत्त्वोपबृंहितात् ।\
 > तमःप्रधानस्त्वभवद्द्रव्यज्ञानक्रियात्मकः ॥२३॥
 
-> mahatas tu vikurvāṇād
-> rajaḥ-sattvopabṛṁhitāt
-> tamaḥ-pradhānas tv abhavad
+> mahatas tu vikurvāṇād\
+> rajaḥ-sattvopabṛṁhitāt\
+> tamaḥ-pradhānas tv abhavad\
 > dravya-jñāna-kriyātmakaḥ
 
 *mahataḥ*—of the *mahat-tattva*; *tu*—but; *vikurvāṇāt*—being transformed; *rajaḥ*—the material mode of passion; *sattva*—the mode of goodness; *upabṛṁhitāt*—because of being increased; *tamaḥ*—the mode of darkness; *pradhānaḥ*—being prominent; *tu*—but; *abhavat*—took place; *dravya*—matter; *jñāna*—material knowledge; *kriyā-ātmakaḥ*—predominantly material activities.

@@ -1,9 +1,9 @@
 ### CC Antya 3.123
 
-> রাত্রি-শেষ হৈল, বেশ্যা উসিমিসি করে  ।
+> রাত্রি-শেষ হৈল, বেশ্যা উসিমিসি করে  ।\
 > তার রীতি দেখি’ হরিদাস কহেন তাহারে ॥১২৩॥
 
-> rātri-śeṣa haila, veśyā usimisi kare
+> rātri-śeṣa haila, veśyā usimisi kare\
 > tāra rīti dekhi' haridāsa kahena tāhāre
 
 *rātri*—night; *śeṣa haila*—came to an end; *veśyā*—the prostitute; *usimisi*—restless; *kare*—became; *tāra*—her; *rīti*—activities; *dekhi'*—seeing; *haridāsa*—Haridāsa Ṭhākura; *kahena*—says; *tāhāre*—unto her.

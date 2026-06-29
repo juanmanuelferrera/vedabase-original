@@ -1,9 +1,9 @@
 ### CC Adi 6.114
 
-> সংকীর্তন প্রচারিয়া সব জগৎ তারিল ।
+> সংকীর্তন প্রচারিয়া সব জগৎ তারিল ।\
 > অদ্বৈত-প্রসাদে লোক প্রেমধন পাইল ॥১১৪॥
 
-> saṅkīrtana pracāriyā saba jagat tārila
+> saṅkīrtana pracāriyā saba jagat tārila\
 > advaita-prasāde loka prema-dhana pāila
 
 *saṅkīrtana pracāriyā*—by preaching the cult of *saṅkīrtana*; *saba*—all; *jagat*—the universe; *tārila*—delivered; *advaita-prasāde*—by the mercy of Advaita Ācārya; *loka*—all people; *prema-dhana pāila*—received the treasure of loving God.

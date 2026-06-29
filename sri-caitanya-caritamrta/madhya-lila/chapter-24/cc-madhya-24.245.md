@@ -1,9 +1,9 @@
 ### CC Madhya 24.245
 
-> মৃগছাল চাহ যদি, আইস মোর ঘরে ।
+> মৃগছাল চাহ যদি, আইস মোর ঘরে ।\
 > যেই চাহ তাহা দিব মৃগব্যাঘ্রাম্বরে ।।” ॥ ২৪৫ ॥
 
-> mṛga-chāla cāha yadi, āisa mora ghare
+> mṛga-chāla cāha yadi, āisa mora ghare\
 > yei cāha tāhā diba mṛga-vyāghrāmbare"
 
 *mṛga-chāla*—deerskin; *cāha yadi*—if you want; *āisa mora ghare*—come to my place; *yei cāha*—whatever you want; *tāhā*—that; *diba*—I shall give; *mṛga-vyāghra-ambare*—whether a deerskin or a tiger skin.

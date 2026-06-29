@@ -1,9 +1,9 @@
 ### CC Madhya 21.92
 
-> অন্তরঙ্গ-পূর্ণৈশ্বর্যপূর্ণ তিন ধাম ।
+> অন্তরঙ্গ-পূর্ণৈশ্বর্যপূর্ণ তিন ধাম ।\
 > তিনের অধীশ্বর — কৃষ্ণ স্বয়ং ভগবান্ ॥৯২॥
 
-> antaraṅga-pūrṇaiśvarya-pūrṇa tina dhāma
+> antaraṅga-pūrṇaiśvarya-pūrṇa tina dhāma\
 > tinera adhīśvara--kṛṣṇa svayaṁ bhagavān
 
 *antaraṅga*—interna; *pūrṇa-aiśvarya-pūrṇa*—repleta de todas las opulencias; *tina dhāma*—tres moradas; *tinera adhīśvara*—el Señor de las tres; *kṛṣṇa*—el Señor Kṛṣṇa; *svayam bhagavān*—la Suprema Personalidad de Dios.

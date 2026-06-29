@@ -1,13 +1,13 @@
 ### SB 7.1.25
 
-> तस्माद्वैरानुबन्धेन निर्वैरेण भयेन वा
+> तस्माद्वैरानुबन्धेन निर्वैरेण भयेन वा\
 > स्नेहात्कामेन वा युञ्ज्यात्कथञ्चिन्नेक्षते पृथक ॥२५॥
 
-> yan-nibaddho 'bhimāno 'yaṁ
-> tad-vadhāt prāṇināṁ vadhaḥ
-> tathā na yasya kaivalyād
-> abhimāno 'khilātmanaḥ
-> parasya dama-kartur hi
+> yan-nibaddho 'bhimāno 'yaṁ\
+> tad-vadhāt prāṇināṁ vadhaḥ\
+> tathā na yasya kaivalyād\
+> abhimāno 'khilātmanaḥ\
+> parasya dama-kartur hi\
 > hiṁsā kenāsya kalpyate
 
 *yat*—in which; *nibaddhaḥ*—bound; *abhimānaḥ*—false conception; *ayam*—this; *tat*—of that (body); *vadhāt*—from the annihilation; *prāṇinām*—of the living beings; *vadhaḥ*—annihilation; *tathā*—similarly; *na*—not; *yasya*—of whom; *kaivalyāt*—because of being absolute, one without a second; *abhimānaḥ*—false conception; *akhila-ātmanaḥ*—of the Supersoul of all living entities; *parasya*—the Supreme Personality of Godhead; *dama-kartuḥ*—the supreme controller; *hi*—certainly; *hiṁsā*—harm; *kena*—how; *asya*—His; *kalpyate*—is performed.

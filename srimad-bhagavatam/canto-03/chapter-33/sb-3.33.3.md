@@ -1,11 +1,11 @@
 ### SB 3.33.3
 
-> स एव विश्वस्य भवान्विधत्ते गुणप्रवाहेण विभक्तवीर्यः ।
+> स एव विश्वस्य भवान्विधत्ते गुणप्रवाहेण विभक्तवीर्यः ।\
 > सर्गाद्यनीहोऽवितथाभिसन्धिरात्मेश्वरोऽतर्क्यसहस्रशक्तिः ॥३॥
 
-> sa eva viśvasya bhavān vidhatte
-> guṇa-pravāheṇa vibhakta-vīryaḥ
-> sargādy anīho 'vitathābhisandhir
+> sa eva viśvasya bhavān vidhatte\
+> guṇa-pravāheṇa vibhakta-vīryaḥ\
+> sargādy anīho 'vitathābhisandhir\
 > ātmeśvaro 'tarkya-sahasra-śaktiḥ
 
 *saḥ*—that very person; *eva*—certainly; *viśvasya*—of the universe; *bhavān*—You; *vidhatte*—carry on; *guṇa-pravāheṇa*—by the interaction of the modes; *vibhakta*—divided; *vīryaḥ*—Your energies; *sarga-ādi*—the creation and so on; *anīhaḥ*—the nondoer; *avitatha*—not futile; *abhisandhiḥ*—Your determination; *ātma-īśvaraḥ*—the Lord of all living entities; *atarkya*—inconceivable; *sahasra*—thousands; *śaktiḥ*—possessing energies.

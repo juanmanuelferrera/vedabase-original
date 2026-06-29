@@ -1,11 +1,11 @@
 ### SB 9.8.11
 
-> हन्यतां हन्यतां पाप इति षष्टिसहस्रिणः
+> हन्यतां हन्यतां पाप इति षष्टिसहस्रिणः\
 > उदायुधा अभिययुरुन्मिमेष तदा मुनिः ॥११॥
 
-> sva-śarīrāgninā tāvan
-> mahendra-hṛta-cetasaḥ
-> mahad-vyatikrama-hatā
+> sva-śarīrāgninā tāvan\
+> mahendra-hṛta-cetasaḥ\
+> mahad-vyatikrama-hatā\
 > bhasmasād abhavan kṣaṇāt
 
 *sva-śarīra-agninā*—por el fuego que emanó de sus propios cuerpos; *tāvat*—inmediatamente; *mahendra*—por las tretas de Indra, el rey del cielo; *hṛta-cetasaḥ*—privados de su conciencia; *mahat*—a una gran personalidad; *vyatikrama-hatāḥ*—vencidos por el pecado de insultar; *bhasmasāt*—reducidos a cenizas; *abhavan*—fueron; *kṣanāt*—inmediatamente.

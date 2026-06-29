@@ -1,9 +1,9 @@
 ### CC Antya 10.157
 
-> চারিমাস রহি’ গৌড়ের ভক্তে বিদায় দিলা ।
+> চারিমাস রহি’ গৌড়ের ভক্তে বিদায় দিলা ।\
 > নীলাচলের সঙ্গী ভক্ত সঙ্গেই রহিলা ॥১৫৭॥
 
-> cāri-māsa rahi' gauḍera bhakte vidāya dilā
+> cāri-māsa rahi' gauḍera bhakte vidāya dilā\
 > nīlācalera saṅgī bhakta saṅgei rahilā
 
 *cāri-māsa rahi'*—remaining for four months; *gauḍera bhakte*—to the devotees coming from Bengal; *vidāya dilā*—bade farewell; *nīlācalera saṅgī*—associates at Jagannātha Purī; *bhakta*—devotees; *saṅgei*—with; *rahilā*—remained.

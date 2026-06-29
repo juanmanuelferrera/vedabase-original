@@ -1,11 +1,11 @@
 ### CC Madhya 23.5
 
-> শুদ্ধসত্ত্ববিশেষাত্মা প্রেম-সূর্যাংশু-সাম্যভাক্ ।
+> শুদ্ধসত্ত্ববিশেষাত্মা প্রেম-সূর্যাংশু-সাম্যভাক্ ।\
 > রুচিভিশ্চিত্তম সৃণ্যকৃদসৌ ভাব উচ্যতে ॥৫॥
 
-> śuddha-sattva-viśeṣātmā
-> prema-sūryāṁśu-sāmya-bhāk
-> rucibhiś citta-masṛṇya-
+> śuddha-sattva-viśeṣātmā\
+> prema-sūryāṁśu-sāmya-bhāk\
+> rucibhiś citta-masṛṇya-\
 > kṛd asau bhāva ucyate
 
 *śuddha-sattva*—by unadultered goodness; *viśeṣa*—distinguished; *ātmā*—whose nature; *prema*—of love of God; *sūrya*—like the sun; *aṁśu*—a ray; *sāmya-bhāk*—which is similar to; *rucibhiḥ*—by different tastes; *citta*—of the heart; *masṛṇya*—softness; *kṛt*—which causes; *asau*—that softness; *bhāvaḥ*—emotion; *ucyate*—is called.

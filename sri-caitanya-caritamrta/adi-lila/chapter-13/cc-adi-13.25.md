@@ -1,9 +1,9 @@
 ### CC Adi 13.25
 
-> ‘গৌরহরি’ বলি’ তারে হাসে সর্ব নারী ।
+> ‘গৌরহরি’ বলি’ তারে হাসে সর্ব নারী ।\
 > অতএব হৈল তাঁর নাম ‘গৌরহরি’ ॥২৫॥
 
-> 'gaurahari' bali' tāre hāse sarva nārī
+> 'gaurahari' bali' tāre hāse sarva nārī\
 > ataeva haila tāṅra nāma 'gaurahari'
 
 *gaurahari*—of the name Gaurahari; *bali'*—addressing Him thus; *tāre*—unto the Lord; *hāse*—laugh; *sarva nārī*—all the ladies; *ataeva*—therefore; *haila*—became; *tāṅra*—His; *nāma*—name; *gaurahari*—of the name Gaurahari.

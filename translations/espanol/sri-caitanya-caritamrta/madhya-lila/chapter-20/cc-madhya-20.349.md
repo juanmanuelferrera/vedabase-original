@@ -1,9 +1,9 @@
 ### CC Madhya 20.349
 
-> চারিযুগাবতারে এই ত’ গণন ।
+> চারিযুগাবতারে এই ত’ গণন ।\
 > শুনি’ ভঙ্গি করি’ তাঁরে পুছে সনাতন ॥৩৪৯॥
 
-> cāri-yugāvatāre ei ta' gaṇana
+> cāri-yugāvatāre ei ta' gaṇana\
 > śuni' bhaṅgi kari' tāṅre puche sanātana
 
 *cāri-yuga-avatāre*—de las encarnaciones en las cuatro yugas diferentes; *ei ta' gaṇana*—tal enumeración; *śuni'*—al oír; *bhaṅgi kari'*—dando una insinuación; *tāṅre*—al Señor Śrī Caitanya Mahāprabhu; *puche*—preguntó; *sanātana*—Sanātana Gosvāmī.

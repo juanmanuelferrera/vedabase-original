@@ -1,11 +1,11 @@
 ### SB 8.19.13
 
-> वैरानुबन्ध एतावानामृत्योरिह देहिनाम
+> वैरानुबन्ध एतावानामृत्योरिह देहिनाम\
 > अज्ञआनप्रभवो मन्युरहंमानोपबृंहितः ॥१३॥
 
-> vairānubandha etāvān
-> āmṛtyor iha dehinām
-> ajñāna-prabhavo manyur
+> vairānubandha etāvān\
+> āmṛtyor iha dehinām\
+> ajñāna-prabhavo manyur\
 > ahaṁ-mānopabṛṁhitaḥ
 
 *vaira-anubandhaḥ*—animadversión; *etāvān*—tan grande; *āmṛtyoḥ*—hasta el momento de la muerte; *iha*—en este; *dehinām*—de personas demasiado enredadas en el concepto corporal de la vida; *ajñāna-prabhavaḥ*—debido a la gran influencia de la ignorancia; *manyuḥ*—ira; *aham-māna*—por egotismo; *upabṛṁhitaḥ*—aumentada.

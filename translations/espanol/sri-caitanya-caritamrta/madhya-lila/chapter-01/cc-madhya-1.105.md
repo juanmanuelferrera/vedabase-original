@@ -1,9 +1,9 @@
 ### CC Madhya 1.105
 
-> ত্রিমল্ল-ত্রিপদী-স্থান কৈল দরশন ।
+> ত্রিমল্ল-ত্রিপদী-স্থান কৈল দরশন ।\
 > সর্বত্র করিল কৃষ্ণনাম প্রচারণ ॥১০৫॥
 
-> trimalla-tripadī-sthāna kaila daraśana
+> trimalla-tripadī-sthāna kaila daraśana\
 > sarvatra karila kṛṣṇa-nāma pracāraṇa
 
 *trimalla*—un lugar llamado Trimalla; *tripadī*—o Tirupati; *sthāna*—el lugar; *kaila*—hizo; *daraśana*—visita; *sarvatra*—por todas partes; *karila*—hizo; *kṛṣṇa-nāma*—el santo nombre del Señor Kṛṣṇa; *pracāraṇa*—predicación.

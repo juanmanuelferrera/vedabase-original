@@ -1,11 +1,11 @@
 ### SB 3.21.16
 
-> प्रजापतेस्ते वचसाधीश तन्त्या लोकः किलायं कामहतोऽनुबद्धः ।
+> प्रजापतेस्ते वचसाधीश तन्त्या लोकः किलायं कामहतोऽनुबद्धः ।\
 > अहं च लोकानुगतो वहामि बलिं च शुक्लानिमिषाय तुभ्यम् ॥१६॥
 
-> prajāpates te vacasādhīśa tantyā
-> lokaḥ kilāyaṁ kāma-hato 'nubaddhaḥ
-> ahaṁ ca lokānugato vahāmi
+> prajāpates te vacasādhīśa tantyā\
+> lokaḥ kilāyaṁ kāma-hato 'nubaddhaḥ\
+> ahaṁ ca lokānugato vahāmi\
 > baliṁ ca śuklānimiṣāya tubhyam
 
 *prajāpateḥ*—que eres el amo de todas las entidades vivientes; *te*—de Ti; *vacasā*—bajo la dirección; *adhīśa*—¡oh, mi Señor!; *tantyā*—con una cuerda; *lokaḥ*—almas condicionadas; *kila*—en verdad; *ayam*—estas; *kāma-hataḥ*—vencidas por los deseos de disfrute; *anubaddhaḥ*—son atadas; *aham*—yo; *ca*—y; *loka-anugataḥ*—siguiendo los pasos de las almas condicionadas; *vahāmi*—ofrezco; *balim*—oblaciones; *ca*—y; *śukla*—¡oh, personificación de la religión!; *animiṣāya*—que existes como el tiempo eterno; *tubhyam*—a Ti.

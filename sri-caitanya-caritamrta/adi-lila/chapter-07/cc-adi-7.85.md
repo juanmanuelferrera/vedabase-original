@@ -1,9 +1,9 @@
 ### CC Adi 7.85
 
-> পঞ্চম পুরুষার্থ — প্রেমানন্দামৃতসিন্ধু ।
+> পঞ্চম পুরুষার্থ — প্রেমানন্দামৃতসিন্ধু ।\
 > মোক্ষাদি আনন্দ যার নহে এক বিন্দু ॥৮৫॥
 
-> pañcama puruṣārtha—premānandāmṛta-sindhu
+> pañcama puruṣārtha—premānandāmṛta-sindhu\
 > mokṣādi ānanda yāra nahe eka bindu
 
 *pañcama*—fifth; *puruṣa-artha*—goal of life; *prema-ānanda*—the spiritual bliss of love of Godhead; *amṛta*—eternal; *sindhu*—ocean; *mokṣa-ādi*—liberation and other principles of religiosity; *ānanda*—pleasures derived from them; *yāra*—whose; *nahe*—never comparable; *eka*—one; *bindu*—drop.

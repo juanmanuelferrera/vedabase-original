@@ -1,9 +1,9 @@
 ### CC Madhya 24.33
 
-> সখাগণের রতি হয় ‘অনুরাগ’ পর্যন্ত ।
+> সখাগণের রতি হয় ‘অনুরাগ’ পর্যন্ত ।\
 > পিতৃ-মাতৃ-স্নেহ আদি ‘অনুরাগ’-অন্ত ॥৩৩॥
 
-> sakhā-gaṇera rati haya 'anurāga' paryanta
+> sakhā-gaṇera rati haya 'anurāga' paryanta\
 > pitṛ-mātṛ-sneha ādi 'anurāga'-anta
 
 *sakhā-gaṇera*—de los amigos; *rati*—la atracción; *haya*—se vuelve; *anurāga paryanta*—hasta el amor subextático; *pitṛ-mātṛ-sneha*—el amor paternal; *ādi*—y demás; *anurāga-anta*—hasta el fin del amor subextático.

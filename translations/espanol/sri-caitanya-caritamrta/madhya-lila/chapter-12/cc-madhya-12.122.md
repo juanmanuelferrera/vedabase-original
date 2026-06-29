@@ -1,9 +1,9 @@
 ### CC Madhya 12.122
 
-> হেনকালে গৌড়ীয়া এক সুবুদ্ধি সরল  ।
+> হেনকালে গৌড়ীয়া এক সুবুদ্ধি সরল  ।\
 > প্রভুর চরণ-যুগে দিল ঘট-জল ॥১২২॥
 
-> hena-kāle gauḍīyā eka subuddhi sarala
+> hena-kāle gauḍīyā eka subuddhi sarala\
 > prabhura caraṇa-yuge dila ghaṭa-jala
 
 *hena-kāle*—en ese momento; *gauḍīyā*—un vaiṣṇava de Bengala; *eka*—uno; *su-buddhi*—muy inteligente; *sarala*—sencillo; *prabhura caraṇa-yuge*—sobre los pies de loto del Señor; *dila*—vertió; *ghaṭa-jala*—un cántaro de agua.

@@ -1,9 +1,9 @@
 ### CC Adi 7.111
 
-> ‘ব্রহ্ম’-শব্দে মুখ্য অর্থে কহে — ‘ভগবান্’ ।
+> ‘ব্রহ্ম’-শব্দে মুখ্য অর্থে কহে — ‘ভগবান্’ ।\
 > চিদৈশ্বর্য-পরিপূর্ণ, অনূর্ধ্ব-সমান ॥১১১॥
 
-> 'brahma'-śabde mukhya arthe kahe—'bhagavān'
+> 'brahma'-śabde mukhya arthe kahe—'bhagavān'\
 > cid-aiśvarya-paripūrṇa, anūrdhva-samāna
 
 *brahma*—the Absolute Truth; *śabde*—by this word; *mukhya*—direct; *arthe*—meaning; *kahe*—says; *bhagavān*—the Supreme Personality of Godhead; *cit-aiśvarya*—spiritual opulence; *paripūrṇa*—full of; *anūrdhva*—unsurpassed by anyone; *samāna*—not equaled by anyone.

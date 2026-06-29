@@ -1,9 +1,9 @@
 ### CC Madhya 7.6
 
-> চৈত্রে রহি’ কৈল সার্বভৌম-বিমোচন ।
+> চৈত্রে রহি’ কৈল সার্বভৌম-বিমোচন ।\
 > বৈশাখের প্রথমে দক্ষিণ যাইতে হৈল মন ॥৬॥
 
-> caitre rahi' kaila sārvabhauma-vimocana
+> caitre rahi' kaila sārvabhauma-vimocana\
 > vaiśākhera prathame dakṣiṇa yāite haila mana
 
 *caitre*—in the month of Caitra (March-April); *rahi'*—residing there; *kaila*—did; *sārvabhauma-vimocana*—liberation of Sārvabhauma Bhaṭṭācārya; *vaiśākhera*—of the month of Vaiśākha; *prathame*—in the beginning; *dakṣiṇa*—to South India; *yāite*—to go; *haila*—it was; *mana*—the mind.

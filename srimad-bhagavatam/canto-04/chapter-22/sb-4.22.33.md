@@ -1,11 +1,11 @@
 ### SB 4.22.33
 
-> अर्थेन्द्रियार्थाभिध्यानं सर्वार्थापह्नवो नृणाम् ।
+> अर्थेन्द्रियार्थाभिध्यानं सर्वार्थापह्नवो नृणाम् ।\
 > भ्रंशितो ज्ञानविज्ञानाद्येनाविशति मुख्यताम् ॥३३॥
 
-> arthendriyārthābhidhyānaṁ
-> sarvārthāpahnavo nṛṇām
-> bhraṁśito jñāna-vijñānād
+> arthendriyārthābhidhyānaṁ\
+> sarvārthāpahnavo nṛṇām\
+> bhraṁśito jñāna-vijñānād\
 > yenāviśati mukhyatām
 
 *artha*—riches; *indriya-artha*—for the satisfaction of the senses; *abhidhyānam*—constantly thinking of; *sarva-artha*—four kinds of achievements; *apahnavaḥ*—destructive; *nṛṇām*—of human society; *bhraṁśitaḥ*—being devoid of; *jñāna*—knowledge; *vijñānāt*—devotional service; *yena*—by all this; *āviśati*—enters; *mukhyatām*—immovable life.

@@ -1,13 +1,13 @@
 ### SB 7.10.26
 
-> श्रीब्रह्मोवाच
-> देवदेवाखिलाध्यक्ष भूतभावन पूर्वज
+> श्रीब्रह्मोवाच\
+> देवदेवाखिलाध्यक्ष भूतभावन पूर्वज\
 > दिष्ट्या ते निहतः पापो लोकसन्तापनोऽसुरः ॥२६॥
 
-> śrī-brahmovāca
-> deva-devākhilādhyakṣa
-> bhūta-bhāvana pūrvaja
-> diṣṭyā te nihataḥ pāpo
+> śrī-brahmovāca\
+> deva-devākhilādhyakṣa\
+> bhūta-bhāvana pūrvaja\
+> diṣṭyā te nihataḥ pāpo\
 > loka-santāpano 'suraḥ
 
 *śrī-brahmā uvāca*—el Señor Brahmā dijo; *deva-deva*—¡oh, mi Señor, Señor de todos los semidioses!; *akhila-adhyakṣa*—propietario de todo el universo; *bhūta-bhāvana*—¡oh, causa de todas las entidades vivientes!; *pūrva-ja*—¡oh, Personalidad de Dios original!; *diṣṭyā*—con Tu ejemplo, o gracias a nuestra buena fortuna; *te*—por Ti; *nihataḥ*—matado; *pāpaḥ*—muy pecaminoso; *loka-santāpanaḥ*—causa de trastornos para el universo entero; *asuraḥ*—el demonio Hiraṇyakaśipu.

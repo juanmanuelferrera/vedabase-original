@@ -1,13 +1,13 @@
 ### CC Madhya 2.61
 
-> ত্বচ্ছৈশবং ত্রিভুবনাদ্ভুতমিত্যবেহি
-> মচ্চাপলঞ্চ তব বা মম বাধিগম্যম্ ।
-> তৎ কিং করোমি বিরলং মুরলীবিলাসি
+> ত্বচ্ছৈশবং ত্রিভুবনাদ্ভুতমিত্যবেহি\
+> মচ্চাপলঞ্চ তব বা মম বাধিগম্যম্ ।\
+> তৎ কিং করোমি বিরলং মুরলীবিলাসি\
 > মুগ্ধং মুখাম্বুজমুদীক্ষিতুমীক্ষণাভ্যাম্ ॥৬১॥
 
-> tvac-chaiśavaṁ tri-bhuvanādbhutam ity avehi
-> mac-cāpalaṁ ca tava vā mama vādhigamyam
-> tat kiṁ karomi viralaṁ muralī-vilāsi
+> tvac-chaiśavaṁ tri-bhuvanādbhutam ity avehi\
+> mac-cāpalaṁ ca tava vā mama vādhigamyam\
+> tat kiṁ karomi viralaṁ muralī-vilāsi\
 > mugdhaṁ mukhāmbujam udīkṣitum īkṣaṇābhyām
 
 *tvat*—Tu; *śaiśavam*—edad temprana; *tri-bhuvana*—dentro de los tres mundos; *adbhutam*—maravillosa; *iti*—así; *avehi*—sabe; *mat-cāpalam*—Mi inconstancia; *ca*—y; *tava*—de Ti; *vā*—o; *mama*—de Mí; *vā*—o; *adhigamyam*—que ha de ser comprendida; *tat*—eso; *kim*—qué; *karomi*—hago; *viralam*—en soledad; *muralī-vilāsi*—¡oh, flautista!; *mugdham*—atractivo; *mukha-ambujam*—rostro de loto; *udīkṣitum*—contemplar plenamente; *īkṣaṇābhyām*—con los ojos.

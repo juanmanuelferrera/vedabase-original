@@ -1,11 +1,11 @@
 ### SB 2.8.22
 
-> यो वानुशायिनां सर्गः पाषण्डस्य च सम्भवः ।
+> यो वानुशायिनां सर्गः पाषण्डस्य च सम्भवः ।\
 > आत्मनो बन्धमोक्षौ च व्यवस्थानं स्वरूपतः ॥२२॥
 
-> yo vānuśāyināṁ sargaḥ
-> pāṣaṇḍasya ca sambhavaḥ
-> ātmano bandha-mokṣau ca
+> yo vānuśāyināṁ sargaḥ\
+> pāṣaṇḍasya ca sambhavaḥ\
+> ātmano bandha-mokṣau ca\
 > vyavasthānaṁ sva-rūpataḥ
 
 *yaḥ*—all those; *vā*—either; *anuśāyinām*—merged into the body of the Lord; *sargaḥ*—creation; *pāṣaṇḍasya*—of the infidels; *ca*—and; *sambhavaḥ*—appearance; *ātmanaḥ*—of the living beings; *bandha*—conditioned; *mokṣau*—being liberated; *ca*—also; *vyavasthānam*—being situated; *sva-rūpataḥ*—in an unconditioned state.

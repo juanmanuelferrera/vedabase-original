@@ -1,9 +1,9 @@
 ### CC Adi 13.24
 
-> অতএব ‘হরি’ ‘হরি’ বলে নারীগণ ।
+> অতএব ‘হরি’ ‘হরি’ বলে নারীগণ ।\
 > দেখিতে আইসে যেবা সর্ব বন্ধুজন ॥২৪॥
 
-> ataeva 'hari' 'hari' bale nārīgaṇa
+> ataeva 'hari' 'hari' bale nārīgaṇa\
 > dekhite āise yebā sarva bandhu jana
 
 *ataeva*—therefore; *harihari*—the holy name of the Lord; *bale*—chant; *nārī-gaṇa*—all the ladies; *dekhite*—to see; *āise*—they come; *yebā*—whoever; *sarva*—all; *bandhu-jana*—friends.

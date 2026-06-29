@@ -1,11 +1,11 @@
 ### Bg 2.19
 
-> य एनं वेत्ति हन्तारं यश्चैनं मन्यते हतम् ।
+> य एनं वेत्ति हन्तारं यश्चैनं मन्यते हतम् ।\
 > उभौ तौ न विजानीतो नायं हन्ति न हन्यते ॥१९॥
 
-> ya enaṁ vetti hantāraṁ
-> yaś cainaṁ manyate hatam
-> ubhau tau na vijānīto
+> ya enaṁ vetti hantāraṁ\
+> yaś cainaṁ manyate hatam\
+> ubhau tau na vijānīto\
 > nāyaṁ hanti na hanyate
 
 *yaḥ*—quienquiera; *enam*—este; *vetti*—sabe; *hantāram*—el que mata; *yaḥ*—quienquiera; *ca*—también; *enam*—este; *manyate*—cree; *hatam*—matado; *ubhau*—ambos; *tau*—ellos; *na*—nunca; *vijānītaḥ*—en conocimiento; *na*—nunca; *ayam*—este; *hanti*—mata; *na*—ni; *hanyate*—es matado.

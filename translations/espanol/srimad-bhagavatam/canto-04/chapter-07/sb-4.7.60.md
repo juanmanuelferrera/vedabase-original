@@ -1,11 +1,11 @@
 ### SB 4.7.60
 
-> एतद्भगवतः शम्भोः कर्म दक्षाध्वरद्रुहः ।
+> एतद्भगवतः शम्भोः कर्म दक्षाध्वरद्रुहः ।\
 > श्रुतं भागवताच्छिष्यादुद्धवान्मे बृहस्पतेः ॥६०॥
 
-> etad bhagavataḥ śambhoḥ
-> karma dakṣādhvara-druhaḥ
-> śrutaṁ bhāgavatāc chiṣyād
+> etad bhagavataḥ śambhoḥ\
+> karma dakṣādhvara-druhaḥ\
+> śrutaṁ bhāgavatāc chiṣyād\
 > uddhavān me bṛhaspateḥ
 
 *etat*—esta; *bhagavataḥ*—del poseedor de todas las opulencias; *śambhoḥ*—de Śambhu (el Señor Śiva); *karma*—historia; *dakṣa-adhvara-druhaḥ*—que devastó el sacrificio de Dakṣa; *śrutam*—fue escuchada; *bhāgavatāt*—de un gran devoto; *śiṣyāt*—del discípulo; *uddhavāt*—de Uddhava; *me*—por mí; *bṛhaspateḥ*—de Bṛhaspati.

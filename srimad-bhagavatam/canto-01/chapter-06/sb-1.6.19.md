@@ -1,11 +1,11 @@
 ### SB 1.6.19
 
-> दिदृक्षुस्तदहं भूयः प्रणिधाय मनो हृदि ।
+> दिदृक्षुस्तदहं भूयः प्रणिधाय मनो हृदि ।\
 > वीक्षमाणोऽपि नापश्यमवितृप्त इवातुरः ॥१९॥
 
-> didṛkṣus tad ahaṁ bhūyaḥ
-> praṇidhāya mano hṛdi
-> vīkṣamāṇo 'pi nāpaśyam
+> didṛkṣus tad ahaṁ bhūyaḥ\
+> praṇidhāya mano hṛdi\
+> vīkṣamāṇo 'pi nāpaśyam\
 > avitṛpta ivāturaḥ
 
 *didṛkṣuḥ*—desiring to see; *tat*—that; *aham*—I; *bhūyaḥ*—again; *praṇidhāya*—having concentrated the mind; *manaḥ*—mind; *hṛdi*—upon the heart; *vīkṣamāṇaḥ*—waiting to see; *api*—in spite of; *na*—never; *apaśyam*—saw Him; *avitṛptaḥ*—without being satisfied; *iva*—like; *āturaḥ*—aggrieved.

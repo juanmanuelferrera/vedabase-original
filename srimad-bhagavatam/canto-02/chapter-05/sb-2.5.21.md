@@ -1,11 +1,11 @@
 ### SB 2.5.21
 
-> कालं कर्म स्वभावं च मायेशो मायया स्वया ।
+> कालं कर्म स्वभावं च मायेशो मायया स्वया ।\
 > आत्मन्यदृच्छया प्राप्तं विबुभूषुरुपाददे ॥२१॥
 
-> kālaṁ karma svabhāvaṁ ca
-> māyeśo māyayā svayā
-> ātman yadṛcchayā prāptaṁ
+> kālaṁ karma svabhāvaṁ ca\
+> māyeśo māyayā svayā\
+> ātman yadṛcchayā prāptaṁ\
 > vibubhūṣur upādade
 
 *kālam*—eternal time; *karma*—the fate of the living entity; *svabhāvam*—nature; *ca*—also; *māyā*—potency; *īśaḥ*—the controller; *māyayā*—by the energy; *svayā*—of His own; *ātman* (*ātmani*)—unto His Self; *yadṛcchayā*—independently; *prāptam*—being merged in; *vibubhūṣuḥ*—appearing differently; *upādade*—accepted for being created again.

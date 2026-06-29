@@ -1,11 +1,11 @@
 ### Bg 7.11
 
-> बलं बलवतां चाहं कामरागविवर्जितम् ।
+> बलं बलवतां चाहं कामरागविवर्जितम् ।\
 > धर्माविरुद्धो भूतेषु कामोऽस्मि भरतर्षभ ॥११॥
 
-> balaṁ balavatāṁ cāhaṁ
-> kāma-rāga-vivarjitam
-> dharmāviruddho bhūteṣu
+> balaṁ balavatāṁ cāhaṁ\
+> kāma-rāga-vivarjitam\
+> dharmāviruddho bhūteṣu\
 > kāmo'smi bharatarṣabha
 
 *balam*—fuerza; *balavatām*—de los fuertes; *ca*—y; *aham*—Yo soy; *kāma*—pasión; *rāga*—apego; *vivarjitam*—desprovisto de; *dharma-aviruddhaḥ*—que no está en contra de los principios religiosos; *bhūteṣu*—en todos los seres; *kāmaḥ*—vida sexual; *asmi*—Yo soy; *bharatarṣabha*—¡oh, Señor de los Bhāratas!

@@ -1,11 +1,11 @@
 ### SB 5.6.15
 
-> को न्वस्य काष्ठामपरोऽनुगच्छेन्मनोरथेनाप्यभवस्य योगी
+> को न्वस्य काष्ठामपरोऽनुगच्छेन्मनोरथेनाप्यभवस्य योगी\
 > यो योगमायाः स्पृहयत्युदस्ता ह्यसत्तया येन कृतप्रयत्नाः ॥१५॥
 
-> ko nv asya kāṣṭhām aparo 'nugacchen
-> mano-rathenāpy abhavasya yogī
-> yo yoga-māyāḥ spṛhayaty udastā
+> ko nv asya kāṣṭhām aparo 'nugacchen\
+> mano-rathenāpy abhavasya yogī\
+> yo yoga-māyāḥ spṛhayaty udastā\
 > hy asattayā yena kṛta-prayatnāḥ
 
 *kaḥ*—who; *nu*—indeed; *asya*—of Lord Ṛṣabhadeva; *kāṣṭhām*—the example; *aparaḥ*—else; *anugacchet*—can follow; *manaḥ-rathena*—by the mind; *api*—even; *abhavasya*—of the unborn; *yogī*—the mystic; *yaḥ*—who; *yoga-māyāḥ*—the mystic perfections of *yoga*; *spṛhayati*—desires; *udastāḥ*—rejected by Ṛṣabhadeva; *hi*—certainly; *asattayā*—by the quality of being insubstantial; *yena*—by whom, Ṛṣabhadeva; *kṛta-prayatnāḥ*—although eager to serve.

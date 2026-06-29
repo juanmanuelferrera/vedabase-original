@@ -1,11 +1,11 @@
 ### SB 3.30.5
 
-> नरकस्थोऽपि देहं वै न पुमांस्त्यक्तुमिच्छति ।
+> नरकस्थोऽपि देहं वै न पुमांस्त्यक्तुमिच्छति ।\
 > नारक्यां निर्वृतौ सत्यां देवमायाविमोहितः ॥५॥
 
-> naraka-stho 'pi dehaṁ vai
-> na pumāṁs tyaktum icchati
-> nārakyāṁ nirvṛtau satyāṁ
+> naraka-stho 'pi dehaṁ vai\
+> na pumāṁs tyaktum icchati\
+> nārakyāṁ nirvṛtau satyāṁ\
 > deva-māyā-vimohitaḥ
 
 *naraka*—in hell; *sthaḥ*—situated; *api*—even; *deham*—body; *vai*—indeed; *na*—not; *pumān*—person; *tyaktum*—to leave; *icchati*—wishes; *nārakyām*—hellish; *nirvṛtau*—enjoyment; *satyām*—when existing; *deva-māyā*—by the illusory energy of Viṣṇu; *vimohitaḥ*—deluded.

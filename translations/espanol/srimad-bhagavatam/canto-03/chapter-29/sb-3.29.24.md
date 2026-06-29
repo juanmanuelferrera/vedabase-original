@@ -1,11 +1,11 @@
 ### SB 3.29.24
 
-> अहमुच्चावचैर्द्रव्यैः क्रिययोत्पन्नयानघे ।
+> अहमुच्चावचैर्द्रव्यैः क्रिययोत्पन्नयानघे ।\
 > नैव तुष्येऽर्चितोऽर्चायां भूतग्रामावमानिनः ॥२४॥
 
-> aham uccāvacair dravyaiḥ
-> kriyayotpannayānaghe
-> naiva tuṣye 'rcito 'rcāyāṁ
+> aham uccāvacair dravyaiḥ\
+> kriyayotpannayānaghe\
+> naiva tuṣye 'rcito 'rcāyāṁ\
 > bhūta-grāmāvamāninaḥ
 
 *aham*—Yo; *ucca-avacaiḥ*—con diversos; *dravyaiḥ*—utensilios; *kriyayā*—con rituales religiosos; *utpannayā*—realizada; *anaghe*—¡oh, madre sin pecado!; *na*—no; *eva*—ciertamente; *tuṣye*—estoy complacido; *arcitaḥ*—adorado; *arcāyām*—en la forma de la Deidad; *bhūta-grāma*—a otras entidades vivientes; *avamāninaḥ*—con los que no son respetuosos.

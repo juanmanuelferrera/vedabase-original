@@ -1,11 +1,11 @@
 ### SB 7.15.55
 
-> देवयानमिदं प्राहुर्भूत्वा भूत्वानुपूर्वशः
+> देवयानमिदं प्राहुर्भूत्वा भूत्वानुपूर्वशः\
 > आत्मयाज्युपशान्तात्मा ह्यात्मस्थो न निवर्तते ॥५५॥
 
-> deva-yānam idaṁ prāhur
-> bhūtvā bhūtvānupūrvaśaḥ
-> ātma-yājy upaśāntātmā
+> deva-yānam idaṁ prāhur\
+> bhūtvā bhūtvānupūrvaśaḥ\
+> ātma-yājy upaśāntātmā\
 > hy ātma-stho na nivartate
 
 *deva-yānam*—the process of elevation known as *deva-yāna*; *idam*—on this (path); *prāhuḥ*—it is said; *bhūtvā bhūtvā*—having repeated birth; *anupūrvaśaḥ*—consecutively; *ātma-yājī*—one who is eager for self-realization; *upaśānta-ātmā*—completely free from all material desires; *hi*—indeed; *ātma-sthaḥ*—situated in his own self; *na*—not; *nivartate*—does return.

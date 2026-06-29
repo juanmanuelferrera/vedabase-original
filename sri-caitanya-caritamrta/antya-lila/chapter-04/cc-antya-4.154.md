@@ -1,9 +1,9 @@
 ### CC Antya 4.154
 
-> বীভৎস স্পর্শিতে না কর ঘৃণা-লেশে ।
+> বীভৎস স্পর্শিতে না কর ঘৃণা-লেশে ।\
 > এই অপরাধে মোর হবে সর্বনাশে ॥১৫৪॥
 
-> bībhatsa sparśite nā kara ghṛṇā-leśe
+> bībhatsa sparśite nā kara ghṛṇā-leśe\
 > ei aparādhe mora habe sarva-nāśe
 
 *bībhatsa*—horrible; *sparśite*—to touch; *nā kara*—You do not do; *ghṛṇā-leśe*—even a small bit of aversion; *ei aparādhe*—because of this offense; *mora*—my; *habe*—there will be; *sarva-nāśe*—loss of everything auspicious.

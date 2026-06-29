@@ -1,11 +1,11 @@
 ### SB 4.3.21
 
-> पापच्यमानेन हृदातुरेन्द्रियः समृद्धिभिः पूरुषबुद्धिसाक्षिणाम् ।
+> पापच्यमानेन हृदातुरेन्द्रियः समृद्धिभिः पूरुषबुद्धिसाक्षिणाम् ।\
 > अकल्प एषामधिरोढुमञ्जसा परं पदं द्वेष्टि यथासुरा हरिम् ॥२१॥
 
-> pāpacyamānena hṛdāturendriyaḥ
-> samṛddhibhiḥ pūruṣa-buddhi-sākṣiṇām
-> akalpa eṣām adhiroḍhum añjasā
+> pāpacyamānena hṛdāturendriyaḥ\
+> samṛddhibhiḥ pūruṣa-buddhi-sākṣiṇām\
+> akalpa eṣām adhiroḍhum añjasā\
 > paraṁ padaṁ dveṣṭi yathāsurā harim
 
 *pāpacyamānena*—ardiendo; *hṛdā*—con un corazón; *ātura-indriyaḥ*—que está afligido; *samṛddhibhiḥ*—por la reputación piadosa, etc.; *pūruṣa-buddhi-sākṣiṇām*—de los que están siempre absortos en pensar en el Señor Supremo; *akalpaḥ*—siendo incapaz; *eṣām*—de esas personas; *adhiroḍhum*—elevarse; *añjasā*—rápidamente; *param*—simplemente; *padam*—al nivel; *dveṣṭi*—envidia; *yathā*—tanto como; *asurāḥ*—los demonios; *harim*—a la Suprema Personalidad de Dios.

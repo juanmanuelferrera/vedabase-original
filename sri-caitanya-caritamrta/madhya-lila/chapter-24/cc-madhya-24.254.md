@@ -1,9 +1,9 @@
 ### CC Madhya 24.254
 
-> এই পাপ যায় মোর, কেমন উপায়ে ?
+> এই পাপ যায় মোর, কেমন উপায়ে ?\
 > নিস্তার করহ মোরে, পড়োঁ তোমার পায়ে ।।” ॥ ২৫৪ ॥
 
-> ei pāpa yāya mora, kemana upāye?
+> ei pāpa yāya mora, kemana upāye?\
 > nistāra karaha more, paḍoṅ tomāra pāye"
 
 *ei*—this; *pāpa yāya mora*—sinful reaction of my life can be washed off; *kemana upāye*—by what means; *nistāra karaha more*—kindly deliver me; *paḍoṅ*—I fall down; *tomāra pāye*—at your lotus feet.

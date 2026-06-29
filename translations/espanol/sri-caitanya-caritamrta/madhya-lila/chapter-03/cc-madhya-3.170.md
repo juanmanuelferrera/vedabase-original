@@ -1,9 +1,9 @@
 ### CC Madhya 3.170
 
-> তোমা-সবা-সনে হবে অন্যত্র মিলন ৷
+> তোমা-সবা-সনে হবে অন্যত্র মিলন ৷\
 > মুঞি অভাগিনীর মাত্র এই দরশন ॥১৭০॥
 
-> tomā-sabā-sane habe anyatra milana
+> tomā-sabā-sane habe anyatra milana\
 > muñi abhāginīra mātra ei daraśana
 
 *tomā-sabā-sane*—con todos vosotros; *habe*—habrá; *anyatra*—en otro lugar; *milana*—encuentro; *muñi*—yo; *abhāginīra*—de quien es desafortunada; *mātra*—solo; *ei*—este; *daraśana*—encuentro.

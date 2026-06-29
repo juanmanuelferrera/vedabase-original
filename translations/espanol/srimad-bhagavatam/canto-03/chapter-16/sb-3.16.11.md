@@ -1,13 +1,13 @@
 ### SB 3.16.11
 
-> ये ब्राह्मणान्मयि धिया क्षिपतोऽर्चयन्तस्
-> तुष्यद्धृदः स्मितसुधोक्षितपद्मवक्त्राः ।
-> वाण्यानुरागकलयात्मजवद्गृणन्तः
+> ये ब्राह्मणान्मयि धिया क्षिपतोऽर्चयन्तस्\
+> तुष्यद्धृदः स्मितसुधोक्षितपद्मवक्त्राः ।\
+> वाण्यानुरागकलयात्मजवद्गृणन्तः\
 > सम्बोधयन्त्यहमिवाहमुपाहृतस्तैः ॥११॥
 
-> ye brāhmaṇān mayi dhiyā kṣipato 'rcayantas
-> tuṣyad-dhṛdaḥ smita-sudhokṣita-padma-vaktrāḥ
-> vāṇyānurāga-kalayātmajavad gṛṇantaḥ
+> ye brāhmaṇān mayi dhiyā kṣipato 'rcayantas\
+> tuṣyad-dhṛdaḥ smita-sudhokṣita-padma-vaktrāḥ\
+> vāṇyānurāga-kalayātmajavad gṛṇantaḥ\
 > sambodhayanty aham ivāham upāhṛtas taiḥ
 
 *ye*—las personas que; *brāhmaṇān*—los *brāhmaṇas*; *mayi*—en Mí; *dhiyā*—con inteligencia; *kṣipataḥ*—pronunciando palabras ásperas; *arcayantaḥ*—respetando; *tuṣyat*—alegres; *hṛdaḥ*—corazones; *smita*—sonriendo; *sudhā*—néctar; *ukṣita*—húmedo; *padma*—parecidos al loto; *vaktrāḥ*—rostros; *vāṇyā*—con palabras; *anurāga-kalayā*—cariñosas; *ātmaja-vat*—como un hijo; *gṛṇantaḥ*—alabando; *sambodhayanti*—apaciguan; *aham*—Yo; *iva*—como; *aham*—Yo; *upāhṛtaḥ*—siendo controlado; *taiḥ*—por ellos.

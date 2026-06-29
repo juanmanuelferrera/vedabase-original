@@ -1,9 +1,9 @@
 ### CC Madhya 15.245
 
-> হেনকালে ‘অমোঘ’ — ভট্টাচার্যের জামাতা  ।
+> হেনকালে ‘অমোঘ’ — ভট্টাচার্যের জামাতা  ।\
 > কুলীন, নিন্দক তেঁহো ষাঠি-কন্যার ভর্তা ॥২৪৫॥
 
-> hena-kāle 'amogha,'--bhaṭṭācāryera jāmātā
+> hena-kāle 'amogha,'--bhaṭṭācāryera jāmātā\
 > kulīna, nindaka teṅho ṣāṭhī-kanyāra bhartā
 
 *hena-kāle*—justo en ese momento; *amogha*—Amogha; *bhaṭṭācāryera jāmātā*—el yerno de Bhaṭṭācārya; *kulīna*—de nacimiento aristocrático; *nindaka*—blasfemo; *teṅho*—él; *ṣāṭhī-kanyāra bhartā*—el esposo de la hija de Sārvabhauma Bhaṭṭācārya llamada Ṣāṭhī.

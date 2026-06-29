@@ -1,11 +1,11 @@
 ### Bg 7.2
 
-> ज्ञानं तेऽहं सविज्ञानमिदं वक्ष्याम्यशेषतः ।
+> ज्ञानं तेऽहं सविज्ञानमिदं वक्ष्याम्यशेषतः ।\
 > यज्ज्ञात्वा नेह भूयोऽन्यज्ज्ञातव्यमवशिष्यते ॥२॥
 
-> jñānaṁ te 'haṁ sa-vijñānam
-> idaṁ vakṣyāmy aśeṣataḥ
-> yaj jñātvā neha bhūyo 'nyaj
+> jñānaṁ te 'haṁ sa-vijñānam\
+> idaṁ vakṣyāmy aśeṣataḥ\
+> yaj jñātvā neha bhūyo 'nyaj\
 > jñātavyam avaśiṣyate
 
 *jñānam*—phenomenal knowledge; *te*—unto you; *aham*—I; *sa*—with; *vijñānam*—noumenal knowledge; *idam*—this; *vakṣyāmi*—shall explain; *aśeṣataḥ*—in full; *yat*—which; *jñātvā*—knowing; *na*—not; *iha*—in this world; *bhūyaḥ*—further; *anyat*—anything more; *jñātavyam*—knowable; *avaśiṣyate*—remains to be known.

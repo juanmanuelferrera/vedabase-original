@@ -1,9 +1,9 @@
 ### CC Adi 10.73
 
-> বনমালী পণ্ডিত শাখা বিখ্যাত জগতে ।
+> বনমালী পণ্ডিত শাখা বিখ্যাত জগতে ।\
 > সোণার মুষল হল দেখিল প্রভুর হাতে ॥৭৩॥
 
-> vanamālī paṇḍita śākhā vikhyāta jagate
+> vanamālī paṇḍita śākhā vikhyāta jagate\
 > soṇāra muṣala hala dekhila prabhura hāte
 
 *vanamālī paṇḍita*—de nombre Vanamālī Paṇḍita; *śākhā*—la siguiente rama; *vikhyāta*—célebre; *jagate*—en el mundo; *soṇāra*—de oro; *muṣala*—maza; *hala*—arado; *dekhila*—vio; *prabhura*—del Señor; *hāte*—en la mano.

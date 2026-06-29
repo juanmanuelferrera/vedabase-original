@@ -1,11 +1,11 @@
 ### SB 4.7.59
 
-> तमेव दयितं भूय आवृङ्क्ते पतिमम्बिका ।
+> तमेव दयितं भूय आवृङ्क्ते पतिमम्बिका ।\
 > अनन्यभावैकगतिं शक्तिः सुप्तेव पूरुषम् ॥५९॥
 
-> tam eva dayitaṁ bhūya
-> āvṛṅkte patim ambikā
-> ananya-bhāvaika-gatiṁ
+> tam eva dayitaṁ bhūya\
+> āvṛṅkte patim ambikā\
+> ananya-bhāvaika-gatiṁ\
 > śaktiḥ supteva pūruṣam
 
 *tam*—him (Lord Śiva); *eva*—certainly; *dayitam*—beloved; *bhūyaḥ*—again; *āvṛṅkte*—accepted; *patim*—as her husband; *ambikā*—Ambikā, or Satī; *ananya-bhāvā*—without attachment for others; *eka-gatim*—the one goal; *śaktiḥ*—the feminine (marginal and external) energies; *suptā*—lying dormant; *iva*—as; *pūruṣam*—the masculine (Lord Śiva, as representative of the Supreme Lord).

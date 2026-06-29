@@ -1,13 +1,13 @@
 ### SB 4.12.16
 
-> आत्मस्त्र्यपत्यसुहृदो बलमृद्धकोशम्
-> अन्तःपुरं परिविहारभुवश्च रम्याः ।
-> भूमण्डलं जलधिमेखलमाकलय्य
+> आत्मस्त्र्यपत्यसुहृदो बलमृद्धकोशम्\
+> अन्तःपुरं परिविहारभुवश्च रम्याः ।\
+> भूमण्डलं जलधिमेखलमाकलय्य\
 > कालोपसृष्टमिति स प्रययौ विशालाम् ॥१६॥
 
-> ātma-stry-apatya-suhṛdo balam ṛddha-kośam
-> antaḥ-puraṁ parivihāra-bhuvaś ca ramyāḥ
-> bhū-maṇḍalaṁ jaladhi-mekhalam ākalayya
+> ātma-stry-apatya-suhṛdo balam ṛddha-kośam\
+> antaḥ-puraṁ parivihāra-bhuvaś ca ramyāḥ\
+> bhū-maṇḍalaṁ jaladhi-mekhalam ākalayya\
 > kālopasṛṣṭam iti sa prayayau viśālām
 
 *ātma*—el cuerpo; *strī*—las esposas; *apatya*—los hijos; *suhṛdaḥ*—los amigos; *balam*—la influencia, el ejército; *ṛddha-kośam*—los grandes tesoros; *antaḥ-puram*—los aposentos reservados a las mujeres; *parivihāra-bhuvaḥ*—los jardines; *ca*—y; *ramyāḥ*—hermosos; *bhū-maṇḍalam*—toda la Tierra; *jala-dhi*—por océanos; *mekhalam*—limitada; *ākalayya*—considerando; *kāla*—por el tiempo; *upasṛṣṭam*—creados; *iti*—de este modo; *saḥ*—él; *prayayau*—fue; *viśālām*—a Badarikāśrama.

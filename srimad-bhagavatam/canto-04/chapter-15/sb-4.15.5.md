@@ -1,11 +1,11 @@
 ### SB 4.15.5
 
-> इयं च सुदती देवी गुणभूषणभूषणा ।
+> इयं च सुदती देवी गुणभूषणभूषणा ।\
 > अर्चिर्नाम वरारोहा पृथुमेवावरुन्धती ॥५॥
 
-> iyaṁ ca sudatī devī
-> guṇa-bhūṣaṇa-bhūṣaṇā
-> arcir nāma varārohā
+> iyaṁ ca sudatī devī\
+> guṇa-bhūṣaṇa-bhūṣaṇā\
+> arcir nāma varārohā\
 > pṛthum evāvarundhatī
 
 *iyam*—this female child; *ca*—and; *su-datī*—who has very nice teeth; *devī*—the goddess of fortune; *guṇa*—by good qualities; *bhūṣaṇa*—ornaments; *bhūṣaṇā*—who beautifies; *arciḥ*—Arci; *nāma*—by name; *vara-ārohā*—very beautiful; *pṛthum*—unto King Pṛthu; *eva*—certainly; *avarundhatī*—being very much attached.

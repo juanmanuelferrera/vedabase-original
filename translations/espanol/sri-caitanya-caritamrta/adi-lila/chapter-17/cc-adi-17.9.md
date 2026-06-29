@@ -1,9 +1,9 @@
 ### CC Adi 17.9
 
-> দীক্ষা-অনন্তরে হৈল, প্রেমের প্রকাশ ।
+> দীক্ষা-অনন্তরে হৈল, প্রেমের প্রকাশ ।\
 > দেশে আগমন পুনঃ প্রেমের বিলাস ॥৯॥
 
-> dīkṣā-anantare haila, premera prakāśa
+> dīkṣā-anantare haila, premera prakāśa\
 > deśe āgamana punaḥ premera vilāsa
 
 *dīkṣā*—iniciación; *anantare*—inmediatamente después; *haila*—se produjo; *premera*—de amor por Dios; *prakāśa*—exhibición; *deśe*—en Su tierra natal; *āgamana*—regreso; *punaḥ*—de nuevo; *premera*—de amor por Dios; *vilāsa*—disfrute.

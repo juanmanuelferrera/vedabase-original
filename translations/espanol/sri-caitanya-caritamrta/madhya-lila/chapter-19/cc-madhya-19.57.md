@@ -1,9 +1,9 @@
 ### CC Madhya 19.57
 
-> প্রভু কহে — সনাতনের হঞাছে মোচন ।
+> প্রভু কহে — সনাতনের হঞাছে মোচন ।\
 > অচিরাৎ আমা-সহ হইবে মিলন ॥৫৭॥
 
-> prabhu kahe,--sanātanera hañāche mocana
+> prabhu kahe,--sanātanera hañāche mocana\
 > acirāt āmā-saha ha-ibe milana
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *sanātanera*—de Sanātana Gosvāmī; *hañāche*—ha habido; *mocana*—liberación; *acirāt*—muy pronto; *āmā-saha*—conmigo; *ha-ibe milana*—habrá encuentro.

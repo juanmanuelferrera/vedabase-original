@@ -1,11 +1,11 @@
 ### SB 3.2.6
 
-> शनकैर्भगवल्लोकान्नृलोकं पुनरागतः ।
+> शनकैर्भगवल्लोकान्नृलोकं पुनरागतः ।\
 > विमृज्य नेत्रे विदुरं प्रीत्याहोद्धव उत्स्मयन् ॥६॥
 
-> śanakair bhagaval-lokān
-> nṛlokaṁ punar āgataḥ
-> vimṛjya netre viduraṁ
+> śanakair bhagaval-lokān\
+> nṛlokaṁ punar āgataḥ\
+> vimṛjya netre viduraṁ\
 > prītyāhoddhava utsmayan
 
 *śanakaiḥ*—gradually; *bhagavat*—the Lord; *lokāt*—from the abode; *nṛlokam*—the planet of the human beings; *punaḥ āgataḥ*—coming again; *vimṛjya*—wiping; *netre*—eyes; *viduram*—unto Vidura; *prītyā*—in affection; *āha*—said; *uddhavaḥ*—Uddhava; *utsmayan*—by all those remembrances.

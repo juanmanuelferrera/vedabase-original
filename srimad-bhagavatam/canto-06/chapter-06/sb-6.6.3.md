@@ -1,11 +1,11 @@
 ### SB 6.6.3
 
-> भूताङ्गिरःकृशाश्वेभ्यो द्वे द्वे तार्क्ष्याय चापराः
+> भूताङ्गिरःकृशाश्वेभ्यो द्वे द्वे तार्क्ष्याय चापराः\
 > नामधेयान्यमूषां त्वं सापत्यानां च मे शृणु ॥३॥
 
-> nāmadheyāny amūṣāṁ tvaṁ
-> sāpatyānāṁ ca me śṛṇu
-> yāsāṁ prasūti-prasavair
+> nāmadheyāny amūṣāṁ tvaṁ\
+> sāpatyānāṁ ca me śṛṇu\
+> yāsāṁ prasūti-prasavair\
 > lokā āpūritās trayaḥ
 
 *nāmadheyāni*—the different names; *amūṣām*—of them; *tvam*—you; *sa-apatyānām*—with their offspring; *ca*—and; *me*—from me; *śṛṇu*—please hear; *yāsām*—of all of whom; *prasūti-prasavaiḥ*—by so many children and descendants; *lokāḥ*—the worlds; *āpūritāḥ*—populated; *trayaḥ*—three (the upper, middle and lower worlds).

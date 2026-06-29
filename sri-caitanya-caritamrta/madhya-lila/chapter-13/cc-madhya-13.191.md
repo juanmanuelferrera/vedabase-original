@@ -1,9 +1,9 @@
 ### CC Madhya 13.191
 
-> তবে প্রভু নিজ-ভক্তগণ লঞা সঙ্গে ।
+> তবে প্রভু নিজ-ভক্তগণ লঞা সঙ্গে ।\
 > বলদেব-সুভদ্রাগ্রে নৃত্য করে রঙ্গে ॥১৯১॥
 
-> tabe prabhu nija-bhakta-gaṇa lañā saṅge
+> tabe prabhu nija-bhakta-gaṇa lañā saṅge\
 > baladeva-subhadrāgre nṛtya kare raṅge
 
 *tabe*—at that time; *prabhu*—Śrī Caitanya Mahāprabhu; *nija*—personal; *bhakta-gaṇa*—devotees; *lañā*—taking; *saṅge*—with Him; *baladeva*—of Lord Balarāma; *subhadrā*—of the goddess of fortune Subhadrā; *agre*—in front; *nṛtya*—dancing; *kare*—performed; *raṅge*—in great amusement.

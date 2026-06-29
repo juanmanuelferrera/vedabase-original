@@ -1,11 +1,11 @@
 ### SB 9.16.26
 
-> आस्तेऽद्यापि महेन्द्राद्रौ न्यस्तदण्डः प्रशान्तधीः
+> आस्तेऽद्यापि महेन्द्राद्रौ न्यस्तदण्डः प्रशान्तधीः\
 > उपगीयमानचरितः सिद्धगन्धर्वचारणैः ॥२६॥
 
-> āste 'dyāpi mahendrādrau
-> nyasta-daṇḍaḥ praśānta-dhīḥ
-> upagīyamāna-caritaḥ
+> āste 'dyāpi mahendrādrau\
+> nyasta-daṇḍaḥ praśānta-dhīḥ\
+> upagīyamāna-caritaḥ\
 > siddha-gandharva-cāraṇaiḥ
 
 *āste*—existe todavía; *adya api*—aún ahora; *mahendra-adrau*—en la montañosa región de Mahendra; *nyasta-daṇḍaḥ*—habiendo abandonado sus armas de *kṣatriya* (el arco, las flechas y el hacha); *praśānta*—completamente satisfecho en su papel de *brāhmaṇa*; *dhīḥ*—con esa inteligencia; *upagīyamāna-caritaḥ*—venerado y adorado por su carácter y actividades sublimes; *siddha-gandharva-cāraṇaiḥ*—por personas celestiales como los habitantes de Gandharvaloka, Siddhaloka y Cāraṇaloka.

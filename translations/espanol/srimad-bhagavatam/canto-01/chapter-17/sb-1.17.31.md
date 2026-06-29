@@ -1,13 +1,13 @@
 ### SB 1.17.31
 
-> राजोवाच
-> न ते गुडाकेशयशोधराणां बद्धाञ्जलेर्वै भयमस्ति किञ्चित् ।
+> राजोवाच\
+> न ते गुडाकेशयशोधराणां बद्धाञ्जलेर्वै भयमस्ति किञ्चित् ।\
 > न वर्तितव्यं भवता कथञ्चन क्षेत्रे मदीये त्वमधर्मबन्धुः ॥३१॥
 
-> rājovāca
-> na te guḍākeśa-yaśo-dharāṇāṁ
-> baddhāñjaler vai bhayam asti kiñcit
-> na vartitavyaṁ bhavatā kathañcana
+> rājovāca\
+> na te guḍākeśa-yaśo-dharāṇāṁ\
+> baddhāñjaler vai bhayam asti kiñcit\
+> na vartitavyaṁ bhavatā kathañcana\
 > kṣetre madīye tvam adharma-bandhuḥ
 
 *rājā uvāca*—el rey dijo; *na*—no; *te*—tu; *guḍākeśa*—Arjuna; *yaśaḥ-dharāṇām*—de los que hemos heredado la fama; *baddha-añjaleḥ*—alguien con las manos juntas; *vai*—ciertamente; *bhayam*—miedo; *asti*—hay; *kiñcit*—hasta un ligero; *na*—ni; *vartitavyam*—se le puede permitir que viva; *bhavatā*—por ti; *kathañcana*—por todos los medios; *kṣetre*—en la tierra; *madīye*—en mi reino; *tvam*—tú; *adharma-bandhuḥ*—el amigo de la irreligión.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.87
 
-> বহুমূল্য দিয়া আনি’ করিয়া যতন  ।
+> বহুমূল্য দিয়া আনি’ করিয়া যতন  ।\
 > পবিত্র সংস্কার করি’ করে নিবেদন ॥৮৭॥
 
-> bahu-mūlya diyā āni' kariyā yatana
+> bahu-mūlya diyā āni' kariyā yatana\
 > pavitra saṁskāra kari' kare nivedana
 
 *bahu-mūlya*—high price; *diyā*—offering; *āni'*—bringing; *kariyā yatana*—with great attention; *pavitra*—purified; *saṁskāra kari'*—trimming; *kare nivedana*—offers to the Deity.

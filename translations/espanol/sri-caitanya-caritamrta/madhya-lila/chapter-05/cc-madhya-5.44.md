@@ -1,9 +1,9 @@
 ### CC Madhya 5.44
 
-> নাহি কহি — না কহিও এ মিথ্যা-বচন ৷
+> নাহি কহি — না কহিও এ মিথ্যা-বচন ৷\
 > সবে কহিবে — ‘মোর কিছু নাহিক স্মরণ ।।’ ॥ ৪৪ ॥
 
-> nāhi kahi--nā kahio e mithyā-vacana
+> nāhi kahi--nā kahio e mithyā-vacana\
 > sabe kahibe--'mora kichu nāhika smaraṇa'
 
 *nāhi kahi*—yo no dije; *nā kahio*—no digas; *e*—esta; *mithyā-vacana*—declaración falsa; *sabe*—solo; *kahibe*—dirás; *mora*—mi; *kichu*—nada; *nāhika*—no hay; *smaraṇa*—recuerdo.

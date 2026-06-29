@@ -1,11 +1,11 @@
 ### SB 6.1.55
 
-> एष प्रकृतिसङ्गेन पुरुषस्य विपर्ययः
+> एष प्रकृतिसङ्गेन पुरुषस्य विपर्ययः\
 > आसीत्स एव न चिरादीशसङ्गाद्विलीयते ॥५५॥
 
-> eṣa prakṛti-saṅgena
-> puruṣasya viparyayaḥ
-> āsīt sa eva na cirād
+> eṣa prakṛti-saṅgena\
+> puruṣasya viparyayaḥ\
+> āsīt sa eva na cirād\
 > īśa-saṅgād vilīyate
 
 *eṣaḥ*—esta; *prakṛti-saṅgena*—debido al contacto con la naturaleza material; *puruṣasya*—de la entidad viviente; *viparyayaḥ*—una situación de olvido, o una posición difícil; *āsīt*—llega a ser; *saḥ*—esa posición; *eva*—en verdad; *na*—no; *cirāt*—que lleva mucho tiempo; *īśa-saṅgāt*—de la relación con el Señor Supremo; *vilīyate*—es superada.

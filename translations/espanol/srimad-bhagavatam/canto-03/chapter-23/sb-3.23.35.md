@@ -1,11 +1,11 @@
 ### SB 3.23.35
 
-> भर्तुः पुरस्तादात्मानं स्त्रीसहस्रवृतं तदा ।
+> भर्तुः पुरस्तादात्मानं स्त्रीसहस्रवृतं तदा ।\
 > निशाम्य तद्योगगतिं संशयं प्रत्यपद्यत ॥३५॥
 
-> bhartuḥ purastād ātmānaṁ
-> strī-sahasra-vṛtaṁ tadā
-> niśāmya tad-yoga-gatiṁ
+> bhartuḥ purastād ātmānaṁ\
+> strī-sahasra-vṛtaṁ tadā\
+> niśāmya tad-yoga-gatiṁ\
 > saṁśayaṁ pratyapadyata
 
 *bhartuḥ*—de su esposo; *purastāt*—en presencia de; *ātmānam*—ella misma; *strī-sahasra*—por mil sirvientas; *vṛtam*—rodeada; *tadā*—entonces; *niśāmya*—viendo; *tat*—su; *yoga-gatim*—poder yóguico; *saṁśayam pratyapadyata*—estaba asombrada.

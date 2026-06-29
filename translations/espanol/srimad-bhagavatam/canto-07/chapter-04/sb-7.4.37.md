@@ -1,11 +1,11 @@
 ### SB 7.4.37
 
-> न्यस्तक्रीडनको बालो जडवत्तन्मनस्तया
+> न्यस्तक्रीडनको बालो जडवत्तन्मनस्तया\
 > कृष्णग्रहगृहीतात्मा न वेद जगदीदृशम ॥३७॥
 
-> nyasta-krīḍanako bālo
-> jaḍavat tan-manastayā
-> kṛṣṇa-graha-gṛhītātmā
+> nyasta-krīḍanako bālo\
+> jaḍavat tan-manastayā\
+> kṛṣṇa-graha-gṛhītātmā\
 > na veda jagad īdṛśam
 
 *nyasta*—habiendo abandonado; *krīḍanakaḥ*—todas las distracciones o tendencias de juego infantiles; *bālaḥ*—un niño; *jaḍa-vat*—como inerte, sin actividades; *tat-manastayā*—por estar completamente absorto en Kṛṣṇa; *kṛṣṇa-graha*—por Kṛṣṇa, que es como una poderosa influencia (como una *graha*, una influencia planetaria); *gṛhīta-ātmā*—cuya mente estaba completamente atraída; *na*—no; *veda*—entendió; *jagat*—todo el mundo material; *īdṛśam*—de ese modo.

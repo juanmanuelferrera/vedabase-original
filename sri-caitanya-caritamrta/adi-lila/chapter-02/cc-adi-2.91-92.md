@@ -1,18 +1,18 @@
 ### CC Adi 2.91-92
 
-> অত্র সর্গো বিসর্গশ্চ স্থানং পোষণমূতয়ঃ ।
-> মন্বন্তরেশানুকথা নিরোধো মুক্তিরাশ্রয়ঃ ॥৯১॥
-> দশমস্য বিশুদ্ধ্যর্থং নবানামিহ লক্ষণম্ ।
+> অত্র সর্গো বিসর্গশ্চ স্থানং পোষণমূতয়ঃ ।\
+> মন্বন্তরেশানুকথা নিরোধো মুক্তিরাশ্রয়ঃ ॥৯১॥\
+> দশমস্য বিশুদ্ধ্যর্থং নবানামিহ লক্ষণম্ ।\
 > বর্ণয়ন্তি মহাত্মানঃ শ্রুতেনার্থেন চাঞ্জসা ॥৯২॥
 
-> atra sargo visargaś ca
-> sthānaṁ poṣaṇam ūtayaḥ
-> manvantareśānukathā
+> atra sargo visargaś ca\
+> sthānaṁ poṣaṇam ūtayaḥ\
+> manvantareśānukathā\
 > nirodho muktir āśrayaḥ
 
-> daśamasya viśuddhy-arthaṁ
-> navānām iha lakṣaṇam
-> varṇayanti mahātmānaḥ
+> daśamasya viśuddhy-arthaṁ\
+> navānām iha lakṣaṇam\
+> varṇayanti mahātmānaḥ\
 > śrutenārthena cāñjasā
 
 *atra*—in *Śrīmad-Bhāgavatam*; *sargaḥ*—the creation of the ingredients of the universe; *visargaḥ*—the creations of Brahmā; *ca*—and; *sthānam*—the maintenance of the creation; *poṣaṇam*—the favoring of the Lord's devotees; *ūtayaḥ*—impetuses for activity; *manu-antara*—prescribed duties given by the Manus; *īśa-anukathāḥ*—a description of the incarnations of the Lord; *nirodhaḥ*—the winding up of creation; *muktiḥ*—liberation; *āśrayaḥ*—the ultimate shelter, the Supreme Personality of Godhead; *daśamasya*—of the tenth (the *āśraya*); *viśuddhi-artham*—for the purpose of perfect knowledge; *navānām*—of the nine; *iha*—here; *lakṣaṇam*—the nature; *varṇayanti*—describe; *mahā-ātmānaḥ*—the great souls; *śrutena*—by prayer; *arthena*—by explanation; *ca*—and; *añjasā*—direct.

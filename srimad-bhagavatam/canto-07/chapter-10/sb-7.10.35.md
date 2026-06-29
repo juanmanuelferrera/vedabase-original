@@ -1,11 +1,11 @@
 ### SB 7.10.35
 
-> एवं च पार्षदौ विष्णोः पुत्रत्वं प्रापितौ दितेः
+> एवं च पार्षदौ विष्णोः पुत्रत्वं प्रापितौ दितेः\
 > हृदि स्थितेन हरिणा वैरभावेन तौ हतौ ॥३५॥
 
-> evaṁ ca pārṣadau viṣṇoḥ
-> putratvaṁ prāpitau diteḥ
-> hṛdi sthitena hariṇā
+> evaṁ ca pārṣadau viṣṇoḥ\
+> putratvaṁ prāpitau diteḥ\
+> hṛdi sthitena hariṇā\
 > vaira-bhāvena tau hatau
 
 *evam*—in this way; *ca*—also; *pārṣadau*—the two personal associates; *viṣṇoḥ*—of Lord Viṣṇu; *putratvam*—becoming the sons; *prāpitau*—having gotten; *diteḥ*—of Diti; *hṛdi*—within the core of the heart; *sthitena*—being situated; *hariṇā*—by the Supreme Lord; *vaira-bhāvena*—by conceiving as an enemy; *tau*—both of them; *hatau*—were killed.

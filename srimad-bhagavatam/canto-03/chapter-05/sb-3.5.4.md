@@ -1,11 +1,11 @@
 ### SB 3.5.4
 
-> तत्साधुवर्यादिश वर्त्म शं नः संराधितो भगवान्येन पुंसाम् ।
+> तत्साधुवर्यादिश वर्त्म शं नः संराधितो भगवान्येन पुंसाम् ।\
 > हृदि स्थितो यच्छति भक्तिपूते ज्ञानं सतत्त्वाधिगमं पुराणम् ॥४॥
 
-> tat sādhu-varyādiśa vartma śaṁ naḥ
-> saṁrādhito bhagavān yena puṁsām
-> hṛdi sthito yacchati bhakti-pūte
+> tat sādhu-varyādiśa vartma śaṁ naḥ\
+> saṁrādhito bhagavān yena puṁsām\
+> hṛdi sthito yacchati bhakti-pūte\
 > jñānaṁ sa-tattvādhigamaṁ purāṇam
 
 *tat*—therefore; *sādhu-varya*—O great one amongst the saints; *ādiśa*—please instruct; *vartma*—the path; *śam*—auspicious; *naḥ*—for us; *saṁrādhitaḥ*—being perfectly served; *bhagavān*—the Personality of Godhead; *yena*—by which; *puṁsām*—of the living entity; *hṛdi sthitaḥ*—residing in the heart; *yacchati*—awards; *bhakti-pūte*—unto the unalloyed devotee; *jñānam*—knowledge; *sa*—that; *tattva*—truth; *adhigamam*—by which one learns; *purāṇam*—authorized, old.

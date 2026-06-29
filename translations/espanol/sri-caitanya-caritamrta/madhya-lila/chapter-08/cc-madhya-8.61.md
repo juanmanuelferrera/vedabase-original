@@ -1,9 +1,9 @@
 ### CC Madhya 8.61
 
-> প্রভু কহে, — “এহো বাহ্য, আগে কহ আর ৷”
+> প্রভু কহে, — “এহো বাহ্য, আগে কহ আর ৷”\
 > রায় কহে, “স্বধর্ম-ত্যাগ, — এই সাধ্য-সার ৷৷” ৬১ ৷৷ ॥৬১॥
 
-> prabhu kahe,--"eho bāhya, āge kaha āra"
+> prabhu kahe,--"eho bāhya, āge kaha āra"\
 > rāya kahe,--"svadharma-tyāga, ei sādhya-sāra"
 
 *prabhu kahe*—el Señor respondió; *eho*—esto; *bāhya*—externo; *āge*—más adelante; *kaha*—habla; *āra*—más; *rāya kahe*—Rāmānanda Rāya respondió; *sva-dharma-tyāga*—renunciar a los deberes ocupacionales propios; *ei*—esto; *sādhya-sāra*—la esencia de toda perfección.

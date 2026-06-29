@@ -1,9 +1,9 @@
 ### CC Madhya 7.102
 
-> গ্রামান্তর হৈতে দেখিতে আইল যত জন ৷
+> গ্রামান্তর হৈতে দেখিতে আইল যত জন ৷\
 > তাঁর দর্শন-কৃপায় হয় তাঁর সম ৷৷ ১০২ ৷৷ ॥১০২॥
 
-> grāmāntara haite dekhite āila yata jana
+> grāmāntara haite dekhite āila yata jana\
 > tāṅra darśana-kṛpāya haya tāṅra sama
 
 *grāma-antara haite*—de distintas aldeas; *dekhite*—a ver; *āila*—vinieron; *yata jana*—todas las personas; *tāṅra*—su; *darśana-kṛpāya*—por la misericordia de verlo; *haya*—se vuelven; *tāṅra sama*—vaiṣṇavas semejantes.

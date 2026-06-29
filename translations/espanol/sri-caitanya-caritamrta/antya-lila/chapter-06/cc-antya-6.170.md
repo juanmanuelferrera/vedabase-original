@@ -1,9 +1,9 @@
 ### CC Antya 6.170
 
-> “সেবক রক্ষক আর কেহ নাহি সঙ্গে  ।
+> “সেবক রক্ষক আর কেহ নাহি সঙ্গে  ।\
 > পলাইতে আমার ভাল এইত প্রসঙ্গে ।।” ১৭০ ॥১৭০॥
 
-> "sevaka rakṣaka āra keha nāhi saṅge
+> "sevaka rakṣaka āra keha nāhi saṅge\
 > palāite āmāra bhāla eita prasaṅge
 
 *sevaka*—sirviente; *rakṣaka*—vigilante; *āra*—y; *keha nāhi*—no hay nadie; *saṅge*—acompañando; *palāite*—para marcharse; *āmāra*—mi; *bhāla*—buena; *eita*—esta; *prasaṅge*—oportunidad.

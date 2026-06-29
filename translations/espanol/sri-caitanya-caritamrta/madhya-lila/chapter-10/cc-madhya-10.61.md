@@ -1,9 +1,9 @@
 ### CC Madhya 10.61
 
-> তবে মহাপ্রভু তাঁরে ঘরে পাঠাইল ৷
+> তবে মহাপ্রভু তাঁরে ঘরে পাঠাইল ৷\
 > বাণীনাথ-পট্টনায়কে নিকটে রাখিল ৷৷ ৬১ ৷৷ ॥৬১॥
 
-> tabe mahāprabhu tāṅre ghare pāṭhāila
+> tabe mahāprabhu tāṅre ghare pāṭhāila\
 > vāṇīnātha-paṭṭanāyake nikaṭe rākhila
 
 *tabe*—después; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a él (Bhavānanda Rāya); *ghare*—a su hogar; *pāṭhāila*—envió de vuelta; *vāṇīnātha-paṭṭanāyake*—Vāṇīnātha Paṭṭanāyaka; *nikaṭe*—cerca; *rākhila*—mantuvo.

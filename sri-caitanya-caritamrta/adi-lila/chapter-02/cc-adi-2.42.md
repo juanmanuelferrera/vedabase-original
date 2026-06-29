@@ -1,9 +1,9 @@
 ### CC Adi 2.42
 
-> নারের অয়ন যাতে করহ পালন ।
+> নারের অয়ন যাতে করহ পালন ।\
 > অতএব হও তুমি মূল নারায়ণ ॥৪২॥
 
-> nārera ayana yāte karaha pālana
+> nārera ayana yāte karaha pālana\
 > ataeva hao tumi mūla nārāyaṇa
 
 *nārera*—of the living beings; *ayana*—the shelters; *yāte*—those to whom; *karaha*—You give; *pālana*—protection; *ataeva*—therefore; *hao*—are; *tumi*—You; *mūla*—original; *nārāyaṇa*—Nārāyaṇa.

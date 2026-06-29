@@ -1,13 +1,13 @@
 ### SB 8.23.6
 
-> श्रीप्रह्राद उवाच
-> नेमं विरिञ्चो लभते प्रसादं न श्रीर्न शर्वः किमुतापरेऽन्ये
+> श्रीप्रह्राद उवाच\
+> नेमं विरिञ्चो लभते प्रसादं न श्रीर्न शर्वः किमुतापरेऽन्ये\
 > यन्नोऽसुराणामसि दुर्गपालो विश्वाभिवन्द्यैरभिवन्दिताङ्घ्रिः ॥६॥
 
-> śrī-prahrāda uvāca
-> nemaṁ viriñco labhate prasādaṁ
-> na śrīr na śarvaḥ kim utāpare 'nye
-> yan no 'surāṇām asi durga-pālo
+> śrī-prahrāda uvāca\
+> nemaṁ viriñco labhate prasādaṁ\
+> na śrīr na śarvaḥ kim utāpare 'nye\
+> yan no 'surāṇām asi durga-pālo\
 > viśvābhivandyair abhivanditāṅghriḥ
 
 *śrī-prahrādaḥ uvāca*—Prahlāda Mahārāja said; *na*—not; *imam*—this; *viriñcaḥ*—even Lord Brahmā; *labhate*—can achieve; *prasādam*—benediction; *na*—nor; *śrīḥ*—the goddess of fortune; *na*—nor; *śarvaḥ*—Lord Śiva; *kim uta*—what to speak of; *apare anye*—others; *yat*—which benediction; *naḥ*—of us; *asurāṇām*—the demons; *asi*—You have become; *durga-pālaḥ*—the maintainer; *viśva-abhivandyaiḥ*—by personalities like Lord Brahmā and Lord Śiva, who are worshiped all over the universe; *abhivandita-aṅghriḥ*—whose lotus feet are worshiped.

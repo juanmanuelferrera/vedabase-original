@@ -1,13 +1,13 @@
 ### SB 2.7.40
 
-> विष्णोर्नु वीर्यगणनां कतमोऽर्हतीह
-> यः पार्थिवान्यपि कविर्विममे रजांसि ।
-> चस्कम्भ यः स्वरहसास्खलता त्रिपृष्ठं
+> विष्णोर्नु वीर्यगणनां कतमोऽर्हतीह\
+> यः पार्थिवान्यपि कविर्विममे रजांसि ।\
+> चस्कम्भ यः स्वरहसास्खलता त्रिपृष्ठं\
 > यस्मात्त्रिसाम्यसदनादुरुकम्पयानम् ॥४०॥
 
-> viṣṇor nu vīrya-gaṇanāṁ katamo 'rhatīha
-> yaḥ pārthivāny api kavir vimame rajāṁsi
-> caskambha yaḥ sva-rahasāskhalatā tri-pṛṣṭhaṁ
+> viṣṇor nu vīrya-gaṇanāṁ katamo 'rhatīha\
+> yaḥ pārthivāny api kavir vimame rajāṁsi\
+> caskambha yaḥ sva-rahasāskhalatā tri-pṛṣṭhaṁ\
 > yasmāt tri-sāmya-sadanād uru-kampayānam
 
 *viṣṇoḥ*—of Lord Viṣṇu; *nu*—but; *vīrya*—prowess; *gaṇanām*—in the matter of accounting; *katamaḥ*—who else; *arhati*—is able to do it; *iha*—in this world; *yaḥ*—one who; *pārthivāni*—the atoms; *api*—also; *kaviḥ*—great scientist; *vimame*—might have counted; *rajāṁsi*—particles; *caskambha*—could catch; *yaḥ*—one who; *sva-rahasā*—by His own leg; *askhalatā*—without being hampered; *tri-pṛṣṭham*—the topmost planetary space; *yasmāt*—by which; *tri-sāmya*—the neutral state of the three modes; *sadanāt*—up to that place; *uru-kampayānam*—moving very greatly.

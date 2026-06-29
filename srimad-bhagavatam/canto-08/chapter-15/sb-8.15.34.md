@@ -1,11 +1,11 @@
 ### SB 8.15.34
 
-> देवेष्वथ निलीनेषु बलिर्वैरोचनः पुरीम
+> देवेष्वथ निलीनेषु बलिर्वैरोचनः पुरीम\
 > देवधानीमधिष्ठाय वशं निन्ये जगत्त्रयम ॥३४॥
 
-> taṁ viśva-jayinaṁ śiṣyaṁ
-> bhṛgavaḥ śiṣya-vatsalāḥ
-> śatena hayamedhānām
+> taṁ viśva-jayinaṁ śiṣyaṁ\
+> bhṛgavaḥ śiṣya-vatsalāḥ\
+> śatena hayamedhānām\
 > anuvratam ayājayan
 
 *tam*—unto him (Bali Mahārāja); *viśva-jayinam*—the conqueror of the entire universe; *śiṣyam*—because of his being a disciple; *bhṛgavaḥ*—the *brāhmaṇas,* descendants of Bhṛgu like Śukrācārya; *śiṣya-vatsalāḥ*—being very pleased with the disciple; *śatena*—by one hundred; *haya-medhānām*—sacrifices known as *aśvamedha*; *anuvratam*—following the instruction of the *brāhmaṇas*; *ayājayan*—caused to execute.

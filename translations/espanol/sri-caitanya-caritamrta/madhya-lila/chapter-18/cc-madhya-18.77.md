@@ -1,9 +1,9 @@
 ### CC Madhya 18.77
 
-> নিকটে যমুনা বহে শীতল সমীর ।
+> নিকটে যমুনা বহে শীতল সমীর ।\
 > বৃন্দাবন-শোভা দেখে যমুনার নীর ॥৭৭॥
 
-> nikaṭe yamunā vahe śītala samīra
+> nikaṭe yamunā vahe śītala samīra\
 > vṛndāvana-śobhā dekhe yamunāra nīra
 
 *nikaṭe*—cerca de Teṅtulī-talā, o Āmli-talā; *yamunā*—el Yamunā; *vahe*—fluye; *śītala samīra*—brisa muy fresca; *vṛndāvana-śobhā*—la belleza de Vṛndāvana; *dekhe*—contempla; *yamunāra*—del río Yamunā; *nīra*—agua.

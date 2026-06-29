@@ -1,12 +1,12 @@
 ### SB 7.8.8
 
-> श्रीप्रह्राद उवाच
-> न केवलं मे भवतश्च राजन्स वै बलं बलिनां चापरेषाम
+> श्रीप्रह्राद उवाच\
+> न केवलं मे भवतश्च राजन्स वै बलं बलिनां चापरेषाम\
 > परेऽवरेऽमी स्थिरजङ्गमा ये ब्रह्मादयो येन वशं प्रणीताः ॥८॥
 
-> sa īśvaraḥ kāla urukramo 'sāv
-> ojaḥ sahaḥ sattva-balendriyātmā
-> sa eva viśvaṁ paramaḥ sva-śaktibhiḥ
+> sa īśvaraḥ kāla urukramo 'sāv\
+> ojaḥ sahaḥ sattva-balendriyātmā\
+> sa eva viśvaṁ paramaḥ sva-śaktibhiḥ\
 > sṛjaty avaty atti guṇa-trayeśaḥ
 
 *saḥ*—Él (la Suprema Personalidad de Dios); *īśvaraḥ*—el controlador supremo; *kālaḥ*—el factor tiempo; *urukramaḥ*—el Señor, cuyas acciones son todas extraordinarias; *asau*—esa persona; *ojaḥ*—la fuerza de los sentidos; *sahaḥ*—la fuerza de la mente; *sattva*—estabilidad; *bala*—fuerza física; *indriya*—y de los sentidos en sí; *ātmā*—el propio ser; *saḥ*—Él; *eva*—en verdad; *viśvam*—el universo entero; *paramaḥ*—el supremo; *sva-śaktibhiḥ*—con sus múltiples potencias trascendentales; *sṛjati*—crea; *avati*—mantiene; *atti*—retrae; *guṇa-traya-īśaḥ*—el amo de las modalidades materiales.

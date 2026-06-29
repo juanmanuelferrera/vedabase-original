@@ -1,11 +1,11 @@
 ### SB 6.9.18
 
-> येनावृता इमे लोकास्तपसा त्वाष्ट्रमूर्तिना
+> येनावृता इमे लोकास्तपसा त्वाष्ट्रमूर्तिना\
 > स वै वृत्र इति प्रोक्तः पापः परमदारुणः ॥१८॥
 
-> yenāvṛtā ime lokās
-> tapasā tvāṣṭra-mūrtinā
-> sa vai vṛtra iti proktaḥ
+> yenāvṛtā ime lokās\
+> tapasā tvāṣṭra-mūrtinā\
+> sa vai vṛtra iti proktaḥ\
 > pāpaḥ parama-dāruṇaḥ
 
 *yena*—por el cual; *āvṛtāḥ*—cubiertos; *ime*—todos estos; *lokāḥ*—planetas; *tapasā*—mediante la austeridad; *tvāṣṭra-mūrtinā*—en la forma del hijo de Tvaṣṭā; *saḥ*—él; *vai*—en verdad; *vṛtraḥ*—Vṛtra; *iti*—así; *proktaḥ*—llamado; *pāpaḥ*—personificación del pecado; *parama-dāruṇaḥ*—muy espantoso.

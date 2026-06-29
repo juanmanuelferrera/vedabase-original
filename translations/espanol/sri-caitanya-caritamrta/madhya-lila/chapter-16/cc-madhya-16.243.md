@@ -1,9 +1,9 @@
 ### CC Madhya 16.243
 
-> বাহ্য বৈরাগ্য, বাতুলতা সকল ছাড়িয়া ৷
+> বাহ্য বৈরাগ্য, বাতুলতা সকল ছাড়িয়া ৷\
 > যথাযোগ্য কার্য করে অনাসক্ত হঞা ॥২৪৩॥
 
-> bāhya vairāgya, vātulatā sakala chāḍiyā
+> bāhya vairāgya, vātulatā sakala chāḍiyā\
 > yathā-yogya kārya kare anāsakta hañā
 
 *bāhya vairāgya*—renunciación externa; *vātulatā*—locura; *sakala*—toda; *chāḍiyā*—abandonando; *yathā-yogya*—como corresponde; *kārya*—deberes; *kare*—desempeña; *anāsakta hañā*—sin tener apego.

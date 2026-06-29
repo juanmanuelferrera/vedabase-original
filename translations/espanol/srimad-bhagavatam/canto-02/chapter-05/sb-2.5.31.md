@@ -1,14 +1,14 @@
 ### SB 2.5.31
 
-> तैजसात्तु विकुर्वाणादिन्द्रियाणि दशाभवन् ।
-> ज्ञानशक्तिः क्रियाशक्तिर्बुद्धिः प्राणश्च तैजसौ ।
+> तैजसात्तु विकुर्वाणादिन्द्रियाणि दशाभवन् ।\
+> ज्ञानशक्तिः क्रियाशक्तिर्बुद्धिः प्राणश्च तैजसौ ।\
 > श्रोत्रं त्वग्घ्राणदृग्जिह्वा वाग्दोर्मेढ्राङ्घ्रिपायवः ॥३१॥
 
-> taijasāt tu vikurvāṇād
-> indriyāṇi daśābhavan
-> jñāna-śaktiḥ kriyā-śaktir
-> buddhiḥ prāṇaś ca taijasau
-> śrotraṁ tvag-ghrāṇa-dṛg-jihvā
+> taijasāt tu vikurvāṇād\
+> indriyāṇi daśābhavan\
+> jñāna-śaktiḥ kriyā-śaktir\
+> buddhiḥ prāṇaś ca taijasau\
+> śrotraṁ tvag-ghrāṇa-dṛg-jihvā\
 > vāg-dor-meḍhrāṅghri-pāyavaḥ
 
 *taijasāt*—por el egoísmo apasionado; *tu*—pero; *vikurvāṇāt*—transformación de; *indriyāṇi*—los sentidos; *daśa*—diez; *abhavan*—generados; *jñāna-śaktiḥ*—los cinco sentidos de adquisición de conocimiento; *kriyā-śaktiḥ*—los cinco sentidos para las actividades; *buddhiḥ*—inteligencia; *prāṇaḥ*—la energía viviente; *ca*—también; *taijasau*—todos los productos de la modalidad de la pasión; *śrotram*—el sentido de la audición; *tvak*—el sentido del tacto; *ghrāṇa*—el sentido del olfato; *dṛk*—el sentido de la vista; *jihvā*—el sentido del gusto; *vāk*—el sentido del habla; *doḥ*—el sentido de la manipulación; *meḍhra*—el órgano genital; *aṅghri*—las piernas; *pāyavaḥ*—el sentido de evacuar.

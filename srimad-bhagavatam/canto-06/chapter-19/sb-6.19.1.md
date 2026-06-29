@@ -1,13 +1,13 @@
 ### SB 6.19.1
 
-> श्रीराजोवाच
-> व्रतं पुंसवनं ब्रह्मन्भवता यदुदीरितम
+> श्रीराजोवाच\
+> व्रतं पुंसवनं ब्रह्मन्भवता यदुदीरितम\
 > तस्य वेदितुमिच्छामि येन विष्णुः प्रसीदति ॥१॥
 
-> śrī-rājovāca
-> vrataṁ puṁsavanaṁ brahman
-> bhavatā yad udīritam
-> tasya veditum icchāmi
+> śrī-rājovāca\
+> vrataṁ puṁsavanaṁ brahman\
+> bhavatā yad udīritam\
+> tasya veditum icchāmi\
 > yena viṣṇuḥ prasīdati
 
 *śrī-rājā uvāca*—Mahārāja Parīkṣit said; *vratam*—the vow; *puṁsavanam*—called *puṁsavana*; *brahman*—O *brāhmaṇa*; *bhavatā*—by you; *yat*—which; *udīritam*—was spoken of; *tasya*—of that; *veditum*—to know; *icchāmi*—I want; *yena*—by which; *viṣṇuḥ*—Lord Viṣṇu; *prasīdati*—is pleased.

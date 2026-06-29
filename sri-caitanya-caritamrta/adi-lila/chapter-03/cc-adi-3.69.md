@@ -1,13 +1,13 @@
 ### CC Adi 3.69
 
-> নারায়ণস্ত্বং ন হি সর্বদেহিনা-
-> মাত্মাস্যধীশাখিললোকসাক্ষী ।
-> নারায়ণোঽঙ্গং নরভূজলায়না-
+> নারায়ণস্ত্বং ন হি সর্বদেহিনা-\
+> মাত্মাস্যধীশাখিললোকসাক্ষী ।\
+> নারায়ণোঽঙ্গং নরভূজলায়না-\
 > ত্তচ্চাপি সত্যং ন তবৈব মায়া ॥৬৯॥
 
-> nārāyaṇas tvaṁ na hi sarva-dehinām
-> ātmāsy adhīśākhila-loka-sākṣī
-> nārāyaṇo 'ṅgaṁ nara-bhū-jalāyanāt
+> nārāyaṇas tvaṁ na hi sarva-dehinām\
+> ātmāsy adhīśākhila-loka-sākṣī\
+> nārāyaṇo 'ṅgaṁ nara-bhū-jalāyanāt\
 > tac cāpi satyaṁ na tavaiva māyā
 
 *nārāyaṇaḥ*—Lord Nārāyaṇa; *tvam*—You; *na*—not; *hi*—certainly; *sarva*—all; *dehinām*—of the embodied beings; *ātmā*—the Supersoul; *asi*—You are; *adhīśa*—O Lord; *akhila-loka*—of all the worlds; *sākṣī*—the witness; *nārāyaṇaḥ*—known as Nārāyaṇa; *aṅgam*—plenary portion; *nara*—of Nara; *bhū*—born; *jala*—in the water; *ayanāt*—due to the place of refuge; *tat*—that; *ca*—and; *api*—certainly; *satyam*—highest truth; *na*—not; *tava*—Your; *eva*—at all; *māyā*—the illusory energy.

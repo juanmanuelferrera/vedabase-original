@@ -1,11 +1,11 @@
 ### SB 7.3.12
 
-> इति शुश्रुम निर्बन्धं तपः परममास्थितः
+> इति शुश्रुम निर्बन्धं तपः परममास्थितः\
 > विधत्स्वानन्तरं युक्तं स्वयं त्रिभुवनेश्वर ॥१२॥
 
-> iti śuśruma nirbandhaṁ
-> tapaḥ paramam āsthitaḥ
-> vidhatsvānantaraṁ yuktaṁ
+> iti śuśruma nirbandhaṁ\
+> tapaḥ paramam āsthitaḥ\
+> vidhatsvānantaraṁ yuktaṁ\
 > svayaṁ tri-bhuvaneśvara
 
 *iti*—in this way; *śuśruma*—we have heard; *nirbandham*—strong determination; *tapaḥ*—austerity; *paramam*—very severe; *āsthitaḥ*—is situated in; *vidhatsva*—please take steps; *anantaram*—as soon as possible; *yuktam*—befitting; *svayam*—yourself; *tri-bhuvana-īśvara*—O master of the three worlds.

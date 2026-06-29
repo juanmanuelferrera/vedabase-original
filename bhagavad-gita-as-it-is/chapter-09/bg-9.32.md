@@ -1,11 +1,11 @@
 ### Bg 9.32
 
-> मां हि पार्थ व्यपाश्रित्य येऽपि स्युः पापयोनयः ।
+> मां हि पार्थ व्यपाश्रित्य येऽपि स्युः पापयोनयः ।\
 > स्त्रियो वैश्यास्तथा शूद्रास्तेऽपि यान्ति परां गतिम् ॥३२॥
 
-> māṁ hi pārtha vyapāśritya
-> ye 'pi syuḥ pāpa-yonayaḥ
-> striyo vaiśyās tathā śūdrās
+> māṁ hi pārtha vyapāśritya\
+> ye 'pi syuḥ pāpa-yonayaḥ\
+> striyo vaiśyās tathā śūdrās\
 > te 'pi yānti parāṁ gatim
 
 *mām*—unto Me; *hi*—certainly; *pārtha*—O son of Pṛthā; *vyapāśrītya*—particularly taking shelter; *ye*—anyone; *api*—also; *syuḥ*—becomes; *pāpa-yonayaḥ*—born of a lower family; *striyaḥ*—women; *vaiśyāḥ*—mercantile people; *tathā*—also; *śūdrāḥ*—lower class men; *te api*—even they; *yānti*—go; *parām*—supreme; *gatim*—destination.

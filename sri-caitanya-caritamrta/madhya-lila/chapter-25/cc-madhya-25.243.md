@@ -1,9 +1,9 @@
 ### CC Madhya 25.243
 
-> প্রথম পরিচ্ছেদে — শেষলীলার সূত্রগণ ।
+> প্রথম পরিচ্ছেদে — শেষলীলার সূত্রগণ ।\
 > তথি-মধ্যে কোন ভাগের বিস্তার বর্ণন ॥২৪৩॥
 
-> prathama paricchede-śeṣa-līlāra sūtra-gaṇa
+> prathama paricchede-śeṣa-līlāra sūtra-gaṇa\
 > tathi-madhye kona bhāgera vistāra varṇana
 
 *prathama paricchede*—in the First Chapter; *śeṣa-līlāra sūtra-gaṇa*—the codes of the *Antya-līlā,* Śrī Caitanya Mahāprabhu's pastimes at the end; *tathi-madhye*—within that; *kona bhāgera*—of some portion of the book; *vistāra varṇana*—a vivid description.

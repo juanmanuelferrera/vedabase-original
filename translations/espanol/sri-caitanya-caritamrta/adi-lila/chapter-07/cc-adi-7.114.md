@@ -1,9 +1,9 @@
 ### CC Adi 7.114
 
-> তাঁর দোষ নাহি, তেঁহো আজ্ঞাকারী দাস ।
+> তাঁর দোষ নাহি, তেঁহো আজ্ঞাকারী দাস ।\
 > আর যেই শুনে তার হয় সর্বনাশ ॥১১৪॥
 
-> tāṅra doṣa nāhi, teṅho ājñā-kārī dāsa
+> tāṅra doṣa nāhi, teṅho ājñā-kārī dāsa\
 > āra yei śune tāra haya sarva-nāśa
 
 *tāṅra*—su (del Señor Śiva); *doṣa*—falta; *nāhi*—no hay; *teṅho*—él; *ājñā-kārī*—obediente ejecutor de órdenes; *dāsa*—sirviente; *āra*—otros; *yei*—cualquiera; *śune*—escucha (la filosofía māyāvāda); *tāra*—de él; *haya*—se produce; *sarva-nāśa*—la pérdida de todo.

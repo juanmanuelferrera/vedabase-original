@@ -1,11 +1,11 @@
 ### SB 9.20.31
 
-> जित्वा पुरासुरा देवान्ये रसौकांसि भेजिरे
+> जित्वा पुरासुरा देवान्ये रसौकांसि भेजिरे\
 > देवस्त्रियो रसां नीताः प्राणिभिः पुनराहरत ॥३१॥
 
-> jitvā purāsurā devān
-> ye rasaukāṁsi bhejire
-> deva-striyo rasāṁ nītāḥ
+> jitvā purāsurā devān\
+> ye rasaukāṁsi bhejire\
+> deva-striyo rasāṁ nītāḥ\
 > prāṇibhiḥ punar āharat
 
 *jitvā*—vencer; *purā*—en el pasado; *asurāḥ*—los demonios; *devān*—a los semidioses; *ye*—todos los cuales; *rasa-okāṁsi*—en el sistema planetario inferior llamado Rasātala; *bhejire*—se refugiaron; *deva-striyaḥ*—las esposas e hijas de los semidioses; *rasām*—al sistema planetario inferior; *nītāḥ*—fueron llevadas; *prāṇibhiḥ*—con sus muy queridas acompañantes; *punaḥ*—de nuevo; *āharat*—llevó de vuelta a sus lugares de origen.

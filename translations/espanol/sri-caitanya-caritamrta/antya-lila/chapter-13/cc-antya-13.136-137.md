@@ -1,14 +1,14 @@
 ### CC Antya 13.136-137
 
-> জগদানন্দের কহিলুঁ বৃন্দাবনগমন ।
-> তার মধ্যে দেবদাসীর গান-শ্রবণ ॥১৩৬॥
-> মহাপ্রভুর রঘুনাথে কৃপা-প্রেম-ফল ।
+> জগদানন্দের কহিলুঁ বৃন্দাবনগমন ।\
+> তার মধ্যে দেবদাসীর গান-শ্রবণ ॥১৩৬॥\
+> মহাপ্রভুর রঘুনাথে কৃপা-প্রেম-ফল ।\
 > একপরিচ্ছেদে তিন কথা কহিলুঁ সকল ॥১৩৭॥
 
-> jagadānandera kahiluṅ vṛndāvana-gamana
+> jagadānandera kahiluṅ vṛndāvana-gamana\
 > tāra madhye deva-dāsīra gāna-śravaṇa
 
-> mahāprabhura raghunāthe kṛpā-prema-phala
+> mahāprabhura raghunāthe kṛpā-prema-phala\
 > eka-paricchede tina kathā kahiluṅ sakala
 
 *jagadānandera*—de Jagadānanda Paṇḍita; *kahiluṅ*—yo he narrado; *vṛndāvana-gamana*—ida a Vṛndāvana; *tāra madhye*—dentro de eso; *deva-dāsīra*—de la cantante del templo de Jagannātha; *gāna-śravaṇa*—escuchar la canción; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *raghunāthe*—a Raghunātha Bhaṭṭa; *kṛpā*—por misericordia; *prema*—amor; *phala*—resultado; *eka-paricchede*—en un capítulo; *tina kathā*—tres temas; *kahiluṅ*—he narrado; *sakala*—todos.

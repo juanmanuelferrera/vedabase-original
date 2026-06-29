@@ -1,11 +1,11 @@
 ### SB 3.18.24
 
-> मैनं मायाविनं दृप्तं निरङ्कुशमसत्तमम् ।
+> मैनं मायाविनं दृप्तं निरङ्कुशमसत्तमम् ।\
 > आक्रीड बालवद्देव यथाशीविषमुत्थितम् ॥२४॥
 
-> mainaṁ māyāvinaṁ dṛptaṁ
-> niraṅkuśam asattamam
-> ākrīḍa bālavad deva
+> mainaṁ māyāvinaṁ dṛptaṁ\
+> niraṅkuśam asattamam\
+> ākrīḍa bālavad deva\
 > yathāśīviṣam utthitam
 
 *mā*—no; *enam*—a él; *māyā-vinam*—experto en estratagemas; *dṛptam*—arrogante; *niraṅkuśam*—autosuficiente; *asat-tamam*—sumamente malvado; *ākrīḍa*—juega con; *bāla-vat*—como un niño; *deva*—¡oh, Señor!; *yathā*—como; *āśīviṣam*—una serpiente; *utthitam*—excitada.

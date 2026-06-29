@@ -1,9 +1,9 @@
 ### CC Antya 2.65
 
-> নৃসিংহের হৈল জানি আজি উপবাস ।
+> নৃসিংহের হৈল জানি আজি উপবাস ।\
 > ঠাকুর উপবাসী রহে, জিয়ে কৈছে দাস ?’ ॥ ৬৫ ॥
 
-> nṛsiṁhera haila jāni āji upavāsa
+> nṛsiṁhera haila jāni āji upavāsa\
 > ṭhākura upavāsī rahe, jiye kaiche dāsa?'
 
 *nṛsiṁhera*—of Lord Nṛsiṁha; *haila*—there was; *jāni*—I understand; *āji*—today; *upavāsa*—fasting; *ṭhākura upavāsī rahe*—the master remains fasting; *jiye kaiche dāsa*—how can the servant sustain his life.

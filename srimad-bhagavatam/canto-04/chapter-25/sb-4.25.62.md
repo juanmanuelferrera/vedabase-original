@@ -1,11 +1,11 @@
 ### SB 4.25.62
 
-> विप्रलब्धो महिष्यैवं सर्वप्रकृतिवञ्चितः ।
+> विप्रलब्धो महिष्यैवं सर्वप्रकृतिवञ्चितः ।\
 > नेच्छन्ननुकरोत्यज्ञः क्लैब्यात्क्रीडामृगो यथा ॥६२॥
 
-> vipralabdho mahiṣyaivaṁ
-> sarva-prakṛti-vañcitaḥ
-> necchann anukaroty ajñaḥ
+> vipralabdho mahiṣyaivaṁ\
+> sarva-prakṛti-vañcitaḥ\
+> necchann anukaroty ajñaḥ\
 > klaibyāt krīḍā-mṛgo yathā
 
 *vipralabdhaḥ*—captivated; *mahiṣyā*—by the Queen; *evam*—thus; *sarva*—all; *prakṛti*—existence; *vañcitaḥ*—being cheated; *na icchan*—without desiring; *anukaroti*—used to follow and imitate; *ajñaḥ*—the foolish King; *klaibyāt*—by force; *krīḍā-mṛgaḥ*—a pet animal; *yathā*—just like.

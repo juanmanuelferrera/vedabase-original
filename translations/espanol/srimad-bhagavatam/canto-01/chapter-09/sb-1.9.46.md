@@ -1,11 +1,11 @@
 ### SB 1.9.46
 
-> तस्य निर्हरणादीनि सम्परेतस्य भार्गव ।
+> तस्य निर्हरणादीनि सम्परेतस्य भार्गव ।\
 > युधिष्ठिरः कारयित्वा मुहूर्तं दुःखितोऽभवत् ॥४६॥
 
-> tasya nirharaṇādīni
-> samparetasya bhārgava
-> yudhiṣṭhiraḥ kārayitvā
+> tasya nirharaṇādīni\
+> samparetasya bhārgava\
+> yudhiṣṭhiraḥ kārayitvā\
 > muhūrtaṁ duḥkhito 'bhavat
 
 *tasya*—su; *nirharaṇa-ādīni*—ceremonia fúnebre; *samparetasya*—del cadáver; *bhārgava*—¡oh, descendiente de Bhṛgu!; *yudhiṣṭhiraḥ*—Mahārāja Yudhiṣṭhira; *kārayitvā*—habiéndolo ejecutado; *muhūrtam*—por un momento; *duḥkhitaḥ*—acongojado; *abhavat*—se volvió.

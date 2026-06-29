@@ -1,11 +1,11 @@
 ### SB 9.24.50
 
-> विपृष्ठो धृतदेवायामेक आनकदुन्दुभेः
+> विपृष्ठो धृतदेवायामेक आनकदुन्दुभेः\
 > शान्तिदेवात्मजा राजन्प्रशमप्रसितादयः ॥५०॥
 
-> vipṛṣṭho dhṛtadevāyām
-> eka ānakadundubheḥ
-> śāntidevātmajā rājan
+> vipṛṣṭho dhṛtadevāyām\
+> eka ānakadundubheḥ\
+> śāntidevātmajā rājan\
 > praśama-prasitādayaḥ
 
 *vipṛṣṭhaḥ*—Vipṛṣṭha; *dhṛtadevāyām*—en el vientre de la esposa llamada Dhṛtadevā; *ekaḥ*—un hijo; *ānakadundubheḥ*—de Ānakadundubhi, Vasudeva; *śāntidevā-ātmajāḥ*—los hijos de otra esposa, llamada Śāntidevā; *rājan*—¡oh, Mahārāja Parīkṣit!; *praśama-prasita-ādayaḥ*—Praśama, Prasita y otros hijos.

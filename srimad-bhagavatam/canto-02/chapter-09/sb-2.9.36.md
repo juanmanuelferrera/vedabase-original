@@ -1,11 +1,11 @@
 ### SB 2.9.36
 
-> एतावदेव जिज्ञास्यं तत्त्वजिज्ञासुनात्मनः ।
+> एतावदेव जिज्ञास्यं तत्त्वजिज्ञासुनात्मनः ।\
 > अन्वयव्यतिरेकाभ्यां यत्स्यात्सर्वत्र सर्वदा ॥३६॥
 
-> etāvad eva jijñāsyaṁ
-> tattva-jijñāsunātmanaḥ
-> anvaya-vyatirekābhyāṁ
+> etāvad eva jijñāsyaṁ\
+> tattva-jijñāsunātmanaḥ\
+> anvaya-vyatirekābhyāṁ\
 > yat syāt sarvatra sarvadā
 
 *etāvat*—up to this; *eva*—certainly; *jijñāsyam*—is to be inquired; *tattva*—the Absolute Truth; *jijñāsunā*—by the student; *ātmanaḥ*—of the Self; *anvaya*—directly; *vyatirekābhyām*—indirectly; *yat*—whatever; *syāt*—it may be; *sarvatra*—in all space and time; *sarvadā*—in all circumstances.

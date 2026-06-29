@@ -1,11 +1,11 @@
 ### SB 1.10.15
 
-> मृदङ्गशङ्खभेर्यश्च वीणापणवगोमुखाः ।
+> मृदङ्गशङ्खभेर्यश्च वीणापणवगोमुखाः ।\
 > धुन्धुर्यानकघण्टाद्या नेदुर्दुन्दुभयस्तथा ॥१५॥
 
-> mṛdaṅga-śaṅkha-bheryaś ca
-> vīṇā-paṇava-gomukhāḥ
-> dhundhury-ānaka-ghaṇṭādyā
+> mṛdaṅga-śaṅkha-bheryaś ca\
+> vīṇā-paṇava-gomukhāḥ\
+> dhundhury-ānaka-ghaṇṭādyā\
 > nedur dundubhayas tathā
 
 *mṛdaṅga*—sweet sounding drum; *śaṅkha*—conchshell; *bheryaḥ*—brass band; *ca*—and; *vīṇā*—string band; *paṇava*—a kind of flute; *gomukhāḥ*—another flute; *dhundhurī*—another drum; *ānaka*—kettle; *ghaṇṭā*—bell; *ādyāḥ*—others; *neduḥ*—sounded; *dundubhayaḥ*—other different types of drums; *tathā*—at that time.

@@ -1,11 +1,11 @@
 ### SB 8.10.45
 
-> ससर्जाथासुरीं मायामन्तर्धानगतोऽसुरः
+> ससर्जाथासुरीं मायामन्तर्धानगतोऽसुरः\
 > ततः प्रादुरभूच्छैलः सुरानीकोपरि प्रभो ॥४५॥
 
-> sasarjāthāsurīṁ māyām
-> antardhāna-gato 'suraḥ
-> tataḥ prādurabhūc chailaḥ
+> sasarjāthāsurīṁ māyām\
+> antardhāna-gato 'suraḥ\
+> tataḥ prādurabhūc chailaḥ\
 > surānīkopari prabho
 
 *sasarja*—disparó; *atha*—ahora; *āsurīm*—demoníaca; *māyām*—ilusión; *antardhāna*—fuera de la vista; *gataḥ*—habiendo ido; *asuraḥ*—Bali Mahārāja; *tataḥ*—a continuación; *prādurabhūt*—apareció allí; *śailaḥ*—una gran montaña; *sura-anīka-upari*—por encima de las cabezas de los soldados de los semidioses; *prabho*—¡oh, mi señor!.

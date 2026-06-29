@@ -1,11 +1,11 @@
 ### SB 3.27.27
 
-> यदैवमध्यात्मरतः कालेन बहुजन्मना ।
+> यदैवमध्यात्मरतः कालेन बहुजन्मना ।\
 > सर्वत्र जातवैराग्य आब्रह्मभुवनान्मुनिः ॥२७॥
 
-> yadaivam adhyātma-rataḥ
-> kālena bahu-janmanā
-> sarvatra jāta-vairāgya
+> yadaivam adhyātma-rataḥ\
+> kālena bahu-janmanā\
+> sarvatra jāta-vairāgya\
 > ābrahma-bhuvanān muniḥ
 
 *yadā*—when; *evam*—thus; *adhyātma-rataḥ*—engaged in self-realization; *kālena*—for many years; *bahu-janmanā*—for many births; *sarvatra*—everywhere; *jāta-vairāgyaḥ*—detachment is born; *ā-brahma-bhuvanāt*—up to Brahmaloka; *muniḥ*—a thoughtful person.

@@ -1,11 +1,11 @@
 ### SB 4.17.19
 
-> स त्वं जिघांससे कस्माद्दीनामकृतकिल्बिषाम् ।
+> स त्वं जिघांससे कस्माद्दीनामकृतकिल्बिषाम् ।\
 > अहनिष्यत्कथं योषां धर्मज्ञ इति यो मतः ॥१९॥
 
-> sa tvaṁ jighāṁsase kasmād
-> dīnām akṛta-kilbiṣām
-> ahaniṣyat kathaṁ yoṣāṁ
+> sa tvaṁ jighāṁsase kasmād\
+> dīnām akṛta-kilbiṣām\
+> ahaniṣyat kathaṁ yoṣāṁ\
 > dharma-jña iti yo mataḥ
 
 *saḥ*—that very person; *tvam*—you; *jighāṁsase*—want to kill; *kasmāt*—why; *dīnām*—poor; *akṛta*—without having done; *kilbiṣām*—any sinful activities; *ahaniṣyat*—would kill; *katham*—how; *yoṣām*—a woman; *dharma-jñaḥ*—the knower of religious principles; *iti*—thus; *yaḥ*—one who; *mataḥ*—is considered.

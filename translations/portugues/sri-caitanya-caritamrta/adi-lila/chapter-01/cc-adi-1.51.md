@@ -1,8 +1,8 @@
 ### CC Adi 1.51
 
-> jñānaṁ parama-guhyaṁ me
-> yad vijñāna-samanvitam
-> sa-rahasyaṁ tad-aṅgaṁ ca
+> jñānaṁ parama-guhyaṁ me\
+> yad vijñāna-samanvitam\
+> sa-rahasyaṁ tad-aṅgaṁ ca\
 > gṛhāṇa gaditaṁ mayā
 
 *jñānam*—conhecimento; *parama*—extremamente; *guhyam*—confidencial; *me*—de Mim; *yat*—que; *vijñāna*—percepção; *samanvitam*—plenamente dotado de; *sa-rahasyam*—juntamente com o mistério; *tat*—disso; *aṅgam*—partes suplementares; *ca*—e; *gṛhāṇa*—simplesmente trata de assimilar; *gaditam*—explicado; *mayā*—por Mim.

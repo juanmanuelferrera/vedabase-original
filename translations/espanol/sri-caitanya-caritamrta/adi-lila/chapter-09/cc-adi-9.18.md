@@ -1,9 +1,9 @@
 ### CC Adi 9.18
 
-> বিশ বিশ শাখা করি’ এক এক মণ্ডল ।
+> বিশ বিশ শাখা করি’ এক এক মণ্ডল ।\
 > মহা-মহা-শাখা ছাইল ব্রহ্মাণ্ড সকল ॥১৮॥
 
-> viśa viśa śākhā kari' eka eka maṇḍala
+> viśa viśa śākhā kari' eka eka maṇḍala\
 > mahā-mahā-śākhā chāila brahmāṇḍa sakala
 
 *viśa viśa*—de veinte en veinte; *śākhā*—ramas; *kari'*—formando un grupo; *eka eka maṇḍala*—forman una sociedad; *mahā-mahā-śākhā*—grandes ramas; *chāila*—cubrieron; *brahmāṇḍa*—el universo entero; *sakala*—todo.

@@ -1,9 +1,9 @@
 ### CC Antya 3.95
 
-> হরিদাসের গুণগণ — অসংখ্য, অপার ।
+> হরিদাসের গুণগণ — অসংখ্য, অপার ।\
 > কেহ কোন অংশে বর্ণে, নাহি পায় পার ॥৯৫॥
 
-> haridāsera guṇa-gaṇa--asaṅkhya, apāra
+> haridāsera guṇa-gaṇa--asaṅkhya, apāra\
 > keha kona aṁśe varṇe, nāhi pāya pāra
 
 *haridāsera guṇa-gaṇa*—el repertorio de cualidades trascendentales de Haridāsa Ṭhākura; *asaṅkhya*—innumerables; *apāra*—insondables; *keha*—alguien; *kona aṁśe*—alguna parte; *varṇe*—describe; *nāhi pāya pāra*—no puede alcanzar el límite.

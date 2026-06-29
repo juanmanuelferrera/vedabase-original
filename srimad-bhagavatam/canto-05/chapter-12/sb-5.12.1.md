@@ -1,13 +1,13 @@
 ### SB 5.12.1
 
-> रहूगण उवाच
-> नमो नमः कारणविग्रहाय स्वरूपतुच्छीकृतविग्रहाय
+> रहूगण उवाच\
+> नमो नमः कारणविग्रहाय स्वरूपतुच्छीकृतविग्रहाय\
 > नमोऽवधूत द्विजबन्धुलिङ्ग निगूढनित्यानुभवाय तुभ्यम ॥१॥
 
-> rahūgaṇa uvāca
-> namo namaḥ kāraṇa-vigrahāya
-> svarūpa-tucchīkṛta-vigrahāya
-> namo 'vadhūta dvija-bandhu-liṅga-
+> rahūgaṇa uvāca\
+> namo namaḥ kāraṇa-vigrahāya\
+> svarūpa-tucchīkṛta-vigrahāya\
+> namo 'vadhūta dvija-bandhu-liṅga-\
 > nigūḍha-nityānubhavāya tubhyam
 
 *rahūgaṇaḥ uvāca*—King Rahūgaṇa said; *namaḥ*—my respectful obeisances; *namaḥ*—obeisances; *kāraṇa-vigrahāya*—to one whose body emanates from the Supreme Person, the cause of all causes; *svarūpa-tucchīkṛta-vigrahāya*—who has completely removed all the contradictions of the scriptures by manifesting his true self; *namaḥ*—respectful obeisances; *avadhūta*—O master of all mystic power; *dvija-bandhu-liṅga*—by the characteristics of a person born in a *brāhmaṇa* family but not executing the duties of a *brāhmaṇa*; *nigūḍha*—covered; *nitya-anubhavāya*—to him whose eternal self-realization; *tubhyam*—to you.

@@ -1,11 +1,11 @@
 ### SB 3.7.5
 
-> देशतः कालतो योऽसाववस्थातः स्वतोऽन्यतः ।
+> देशतः कालतो योऽसाववस्थातः स्वतोऽन्यतः ।\
 > अविलुप्तावबोधात्मा स युज्येताजया कथम् ॥५॥
 
-> deśataḥ kālato yo 'sāv
-> avasthātaḥ svato 'nyataḥ
-> aviluptāvabodhātmā
+> deśataḥ kālato yo 'sāv\
+> avasthātaḥ svato 'nyataḥ\
+> aviluptāvabodhātmā\
 > sa yujyetājayā katham
 
 *deśataḥ*—circunstancial; *kālataḥ*—por la influencia del tiempo; *yaḥ*—aquel que; *asau*—la entidad viviente; *avasthātaḥ*—por la situación; *svataḥ*—por el sueño; *anyataḥ*—por otros; *avilupta*—extinto; *avabodha*—conciencia; *ātmā*—el ser puro; *saḥ*—él; *yujyeta*—ocupado; *ajayā*—con ignorancia; *katham*—cómo ocurre.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.272
 
-> বাদিয়ার বাজি পাতি’ চলিলাঙ তথারে ।
+> বাদিয়ার বাজি পাতি’ চলিলাঙ তথারে ।\
 > বহু-সঙ্গে বৃন্দাবন গমন না করে ॥২৭২॥
 
-> bādiyāra bāji pāti' calilāṅa tathāre
+> bādiyāra bāji pāti' calilāṅa tathāre\
 > bahu-saṅge vṛndāvana gamana nā kare
 
 *bādiyāra*—de un gitano; *bāji*—la magia; *pāti'*—demostrando; *calilāṅa*—fui; *tathāre*—allí; *bahu-saṅge*—con muchos hombres; *vṛndāvana*—al Vṛndāvana dhāma; *gamana*—ir; *nā kare*—nadie lo hace.

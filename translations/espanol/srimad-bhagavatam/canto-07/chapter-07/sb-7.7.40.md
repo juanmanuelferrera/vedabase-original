@@ -1,11 +1,11 @@
 ### SB 7.7.40
 
-> एवं हि लोकाः क्रतुभिः कृता अमी क्षयिष्णवः सातिशया न निर्मलाः
+> एवं हि लोकाः क्रतुभिः कृता अमी क्षयिष्णवः सातिशया न निर्मलाः\
 > तस्माददृष्टश्रुतदूषणं परं भक्त्योक्तयेशं भजतात्मलब्धये ॥४०॥
 
-> evaṁ hi lokāḥ kratubhiḥ kṛtā amī
-> kṣayiṣṇavaḥ sātiśayā na nirmalāḥ
-> tasmād adṛṣṭa-śruta-dūṣaṇaṁ paraṁ
+> evaṁ hi lokāḥ kratubhiḥ kṛtā amī\
+> kṣayiṣṇavaḥ sātiśayā na nirmalāḥ\
+> tasmād adṛṣṭa-śruta-dūṣaṇaṁ paraṁ\
 > bhaktyoktayeśaṁ bhajatātma-labdhaye
 
 *evam*—del mismo modo (como la riqueza y las posesiones materiales, que no son permanentes); *hi*—en verdad; *lokāḥ*—los sistemas planetarios superiores, como el cielo, la Luna, el Sol y Brahmaloka; *kratubhiḥ*—con la celebración de grandes sacrificios; *kṛtāḥ*—obtenidos; *amī*—todos esos; *kṣayiṣṇavaḥ*—perecederos, no permanentes; *sātiśayāḥ*—aunque más cómodos y agradables; *na*—no; *nirmalāḥ*—puros (libres de perturbaciones); *tasmāt*—por lo tanto; *adṛṣṭa-śruta*—nunca vista u oída; *dūṣaṇam*—cuya falta; *param*—el Supremo; *bhaktyā*—con gran amor devocional; *uktayā*—como se explica en las Escrituras védicas (sin mezcla de*jñāna* y *karma*); *īśam*—al Señor Supremo; *bhajata*—adorar; *ātma-labdhaye*—para la autorrealización.

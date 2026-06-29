@@ -1,9 +1,9 @@
 ### CC Antya 7.19
 
-> যাঁহার কৃপাতে ম্লেচ্ছের হয় কৃষ্ণভক্তি ।
+> যাঁহার কৃপাতে ম্লেচ্ছের হয় কৃষ্ণভক্তি ।\
 > কে কহিতে পারে তাঁর বৈষ্ণবতা-শক্তি ? ॥১৯॥
 
-> yāṅhāra kṛpāte mlecchera haya kṛṣṇa-bhakti
+> yāṅhāra kṛpāte mlecchera haya kṛṣṇa-bhakti\
 > ke kahite pāre tāṅra vaiṣṇavatā-śakti?
 
 *yāṅhāra*—cuya; *kṛpāte*—por la misericordia; *mlecchera*—de los *mlecchas*; *haya*—hay; *kṛṣṇa-bhakti*—servicio devocional a Kṛṣṇa; *ke*—quién; *kahite pāre*—puede describir; *tāṅra*—Su; *vaiṣṇavatā-śakti*—potencia de vaiṣṇavismo.

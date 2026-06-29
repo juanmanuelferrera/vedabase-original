@@ -1,9 +1,9 @@
 ### CC Antya 9.10
 
-> প্রহ্লাদ, বলি, ব্যাস, শুক আদি মুনিগণ ।
+> প্রহ্লাদ, বলি, ব্যাস, শুক আদি মুনিগণ ।\
 > আসি’ প্রভু দেখি’ প্রেমে হয় অচেতন ॥১০॥
 
-> prahlāda, bali, vyāsa, śuka ādi muni-gaṇa
+> prahlāda, bali, vyāsa, śuka ādi muni-gaṇa\
 > āsi' prabhu dekhi' preme haya acetana
 
 *prahlāda*—Prahlāda Mahārāja; *bali*—Bali Mahārāja; *vyāsa*—Vyāsadeva; *śuka*—Śukadeva Gosvāmī; *ādi*—y demás; *muni-gaṇa*—grandes sabios; *āsi'*—viniendo; *prabhu dekhi'*—al contemplar a Śrī Caitanya Mahāprabhu; *preme*—en amor extático por Kṛṣṇa; *haya acetana*—perdían el conocimiento.

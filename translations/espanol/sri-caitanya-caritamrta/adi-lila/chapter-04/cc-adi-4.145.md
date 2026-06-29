@@ -1,9 +1,9 @@
 ### CC Adi 4.145
 
-> বিচার করিয়ে যদি আস্বাদ-উপায় ।
+> বিচার করিয়ে যদি আস্বাদ-উপায় ।\
 > রাধিকাস্বরূপ হইতে তবে মন ধায় ॥১৪৫॥
 
-> vicāra kariye yadi āsvāda-upāya
+> vicāra kariye yadi āsvāda-upāya\
 > rādhikā-svarūpa ha-ite tabe mana dhāya
 
 *vicāra*—consideración; *kariye*—hago; *yadi*—si; *āsvāda*—saborear; *upāya*—modo; *rādhikā-svarūpa*—la naturaleza de Śrīmatī Rādhārāṇī; *ha-ite*—llegar a ser; *tabe*—entonces; *mana*—la mente; *dhāya*—corre.

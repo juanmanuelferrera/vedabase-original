@@ -1,11 +1,11 @@
 ### SB 3.4.32
 
-> एवं त्रिलोकगुरुणा सन्दिष्टः शब्दयोनिना ।
+> एवं त्रिलोकगुरुणा सन्दिष्टः शब्दयोनिना ।\
 > बदर्याश्रममासाद्य हरिमीजे समाधिना ॥३२॥
 
-> evaṁ tri-loka-guruṇā
-> sandiṣṭaḥ śabda-yoninā
-> badaryāśramam āsādya
+> evaṁ tri-loka-guruṇā\
+> sandiṣṭaḥ śabda-yoninā\
+> badaryāśramam āsādya\
 > harim īje samādhinā
 
 *evam*—thus; *tri-loka*—three worlds; *guruṇā*—by the spiritual master; *sandiṣṭaḥ*—being perfectly taught; *śabda-yoninā*—by one who is the source of all Vedic knowledge; *badaryāśramam*—in the pilgrimage site of Badarikāśrama; *āsādya*—reaching; *harim*—unto the Lord; *īje*—satisfied; *samādhinā*—by trance.

@@ -1,11 +1,11 @@
 ### SB 6.11.23
 
-> त्रैवर्गिकायासविघातमस्मत्पतिर्विधत्ते पुरुषस्य शक्र
+> त्रैवर्गिकायासविघातमस्मत्पतिर्विधत्ते पुरुषस्य शक्र\
 > ततोऽनुमेयो भगवत्प्रसादो यो दुर्लभोऽकिञ्चनगोचरोऽन्यैः ॥२३॥
 
-> trai-vargikāyāsa-vighātam asmat-
-> patir vidhatte puruṣasya śakra
-> tato 'numeyo bhagavat-prasādo
+> trai-vargikāyāsa-vighātam asmat-\
+> patir vidhatte puruṣasya śakra\
+> tato 'numeyo bhagavat-prasādo\
 > yo durlabho 'kiñcana-gocaro 'nyaiḥ
 
 *trai-vargika*—por los tres objetivos, es decir, la religiosidad, el crecimiento económico y la satisfacción de los sentidos; *āyāsa*—de esfuerzo; *vighātam*—la ruina; *asmat*—nuestro; *patiḥ*—Señor; *vidhatte*—realiza; *puruṣasya*—de un devoto; *śakra*—¡oh, Indra!; *tataḥ*—por lo cual; *anumeyaḥ*—debe deducirse; *bhagavat-prasādaḥ*—la misericordia especial de la Suprema Personalidad de Dios; *yaḥ*—la cual; *durlabhaḥ*—muy difícil de obtener; *akiñcana-gocaraḥ*—al alcance de los devotos puros; *anyaiḥ*—por otros, que aspiran a la felicidad material.

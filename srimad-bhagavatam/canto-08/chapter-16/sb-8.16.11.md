@@ -1,13 +1,13 @@
 ### SB 8.16.11
 
-> श्रीअदितिरुवाच
-> भद्रं द्विजगवां ब्रह्मन्धर्मस्यास्य जनस्य च
+> श्रीअदितिरुवाच\
+> भद्रं द्विजगवां ब्रह्मन्धर्मस्यास्य जनस्य च\
 > त्रिवर्गस्य परं क्षेत्रं गृहमेधिन्गृहा इमे ॥११॥
 
-> śrī-aditir uvāca
-> bhadraṁ dvija-gavāṁ brahman
-> dharmasyāsya janasya ca
-> tri-vargasya paraṁ kṣetraṁ
+> śrī-aditir uvāca\
+> bhadraṁ dvija-gavāṁ brahman\
+> dharmasyāsya janasya ca\
+> tri-vargasya paraṁ kṣetraṁ\
 > gṛhamedhin gṛhā ime
 
 *śrī-aditiḥ uvāca*—Śrīmatī Aditi said; *bhadram*—all auspiciousness; *dvija-gavām*—of the *brāhmaṇas* and the cows; *brahman*—O *brāhmaṇa*; *dharmasya asya*—of the religious principles mentioned in *śāstra*; *janasya*—of the people in general; *ca*—and; *tri-vargasya*—of the three processes of elevation (*dharma, artha* and *kāma*); *param*—the supreme; *kṣetram*—field; *gṛhamedhin*—O my husband, who are attached to household life; *gṛhāḥ*—your home; *ime*—all these things.

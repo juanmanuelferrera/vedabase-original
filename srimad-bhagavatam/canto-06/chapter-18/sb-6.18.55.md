@@ -1,11 +1,11 @@
 ### SB 6.18.55
 
-> बाढमित्यभ्युपेत्याथ दिती राजन्महामनाः
+> बाढमित्यभ्युपेत्याथ दिती राजन्महामनाः\
 > कश्यपाद्गर्भमाधत्त व्रतं चाञ्जो दधार सा ॥५५॥
 
-> bāḍham ity abhyupetyātha
-> ditī rājan mahā-manāḥ
-> kaśyapād garbham ādhatta
+> bāḍham ity abhyupetyātha\
+> ditī rājan mahā-manāḥ\
+> kaśyapād garbham ādhatta\
 > vrataṁ cāñjo dadhāra sā
 
 *bāḍham*—yes; *iti*—thus; *abhyupetya*—accepting; *atha*—then; *ditiḥ*—Diti; *rājan*—O King; *mahā-manāḥ*—jubilant; *kaśyapāt*—from Kaśyapa; *garbham*—semen; *ādhatta*—obtained; *vratam*—the vow; *ca*—and; *añjaḥ*—properly; *dadhāra*—discharged; *sā*—she.

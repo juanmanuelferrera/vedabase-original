@@ -1,9 +1,9 @@
 ### CC Madhya 18.90
 
-> প্রাতে প্ৰভু-সঙ্গে আইলা জলপাত্র লঞা ।
+> প্রাতে প্ৰভু-সঙ্গে আইলা জলপাত্র লঞা ।\
 > প্ৰভু-সঙ্গে রহে গৃহ-স্ত্রী-পুত্র ছাড়িয়া ॥৯০॥
 
-> prāte prabhu-saṅge āilā jala-pātra lañā
+> prāte prabhu-saṅge āilā jala-pātra lañā\
 > prabhu-saṅge rahe gṛha-strī-putra chāḍiyā
 
 *prāte*—in the morning; *prabhu-saṅge*—with Śrī Caitanya Mahāprabhu; *āilā*—came; *jala-pātra lañā*—carrying a waterpot; *prabhu-saṅge rahe*—remains with Śrī Caitanya Mahāprabhu; *gṛha*—home; *strī*—wife; *putra*—children; *chāḍiyā*—leaving aside.

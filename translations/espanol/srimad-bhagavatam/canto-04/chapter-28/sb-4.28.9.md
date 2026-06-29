@@ -1,11 +1,11 @@
 ### SB 4.28.9
 
-> कामानभिलषन्दीनो यातयामांश्च कन्यया ।
+> कामानभिलषन्दीनो यातयामांश्च कन्यया ।\
 > विगतात्मगतिस्नेहः पुत्रदारांश्च लालयन् ॥९॥
 
-> kāmān abhilaṣan dīno
-> yāta-yāmāṁś ca kanyayā
-> vigatātma-gati-snehaḥ
+> kāmān abhilaṣan dīno\
+> yāta-yāmāṁś ca kanyayā\
+> vigatātma-gati-snehaḥ\
 > putra-dārāṁś ca lālayan
 
 *kāmān*—objetos de disfrute; *abhilaṣan*—siempre anhelando intensamente; *dīnaḥ*—el pobre hombre; *yāta-yāmān*—desabridos; *ca*—también; *kanyayā*—por la influencia de Kālakanyā; *vigata*—perdido; *ātma-gati*—el verdadero propósito de la vida; *snehaḥ*—apego a; *putra*—hijos; *dārān*—esposa; *ca*—y; *lālayan*—manteniendo por cariño.

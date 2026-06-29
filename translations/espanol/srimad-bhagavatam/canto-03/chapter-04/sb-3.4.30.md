@@ -1,11 +1,11 @@
 ### SB 3.4.30
 
-> अस्माल्लोकादुपरते मयि ज्ञानं मदाश्रयम् ।
+> अस्माल्लोकादुपरते मयि ज्ञानं मदाश्रयम् ।\
 > अर्हत्युद्धव एवाद्धा सम्प्रत्यात्मवतां वरः ॥३०॥
 
-> asmāl lokād uparate
-> mayi jñānaṁ mad-āśrayam
-> arhaty uddhava evāddhā
+> asmāl lokād uparate\
+> mayi jñānaṁ mad-āśrayam\
+> arhaty uddhava evāddhā\
 > sampraty ātmavatāṁ varaḥ
 
 *asmāt*—de este (universo); *lokāt*—la Tierra; *uparate*—habiendo partido; *mayi*—de Mí; *jñānam*—conocimiento; *mat-āśrayam*—referente a Mí; *arhati*—merece; *uddhavaḥ*—Uddhava; *eva*—ciertamente; *addhā*—directamente; *samprati*—en el momento actual; *ātmavatām*—de los devotos; *varaḥ*—principal.

@@ -1,11 +1,11 @@
 ### SB 4.28.7
 
-> विशीर्णां स्वपुरीं वीक्ष्य प्रतिकूलाननादृतान् ।
+> विशीर्णां स्वपुरीं वीक्ष्य प्रतिकूलाननादृतान् ।\
 > पुत्रान्पौत्रानुगामात्यान्जायां च गतसौहृदाम् ॥७॥
 
-> viśīrṇāṁ sva-purīṁ vīkṣya
-> pratikūlān anādṛtān
-> putrān pautrānugāmātyāñ
+> viśīrṇāṁ sva-purīṁ vīkṣya\
+> pratikūlān anādṛtān\
+> putrān pautrānugāmātyāñ\
 > jāyāṁ ca gata-sauhṛdām
 
 *viśīrṇām*—desordenada; *sva-purīm*—su propia ciudad; *vīkṣya*—ver; *pratikūlān*—elementos contrarios; *anādṛtān*—irrespetuosos; *putrān*—hijos; *pautra*—nietos; *anuga*—sirvientes; *amātyān*—ministros; *jāyām*—esposa; *ca*—y; *gata-sauhṛdām*—indiferente.

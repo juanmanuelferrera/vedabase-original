@@ -1,11 +1,11 @@
 ### SB 3.30.8
 
-> आक्षिप्तात्मेन्द्रियः स्त्रीणामसतीनां च मायया ।
+> आक्षिप्तात्मेन्द्रियः स्त्रीणामसतीनां च मायया ।\
 > रहो रचितयालापैः शिशूनां कलभाषिणाम् ॥८॥
 
-> ākṣiptātmendriyaḥ strīṇām
-> asatīnāṁ ca māyayā
-> raho racitayālāpaiḥ
+> ākṣiptātmendriyaḥ strīṇām\
+> asatīnāṁ ca māyayā\
+> raho racitayālāpaiḥ\
 > śiśūnāṁ kala-bhāṣiṇām
 
 *ākṣipta*—charmed; *ātma*—heart; *indriyaḥ*—his senses; *strīṇām*—of women; *asatīnām*—false; *ca*—and; *māyayā*—by *māyā*; *rahaḥ*—in a solitary place; *racitayā*—displayed; *ālāpaiḥ*—by the talking; *śiśūnām*—of the children; *kala-bhāṣiṇām*—with sweet words.

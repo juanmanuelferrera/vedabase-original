@@ -1,11 +1,11 @@
 ### SB 1.13.30
 
-> पतिं प्रयान्तं सुबलस्य पुत्री पतिव्रता चानुजगाम साध्वी ।
+> पतिं प्रयान्तं सुबलस्य पुत्री पतिव्रता चानुजगाम साध्वी ।\
 > हिमालयं न्यस्तदण्डप्रहर्षं मनस्विनामिव सत्सम्प्रहारः ॥३०॥
 
-> patiṁ prayāntaṁ subalasya putrī
-> pati-vratā cānujagāma sādhvī
-> himālayaṁ nyasta-daṇḍa-praharṣaṁ
+> patiṁ prayāntaṁ subalasya putrī\
+> pati-vratā cānujagāma sādhvī\
+> himālayaṁ nyasta-daṇḍa-praharṣaṁ\
 > manasvinām iva sat-samprahāraḥ
 
 *patim*—su esposo; *prayāntam*—mientras abandonaba el hogar; *subalasya*—del rey Subala; *putrī*—la digna hija; *pati-vratā*—consagrada a su esposo; *ca*—también; *anujagāma*—siguió; *sādhvī*—la casta; *himālayam*—hacia los montes Himālaya; *nyasta-daṇḍa*—aquel que ha aceptado la vara de la orden de renuncia; *praharṣam*—objeto de deleite; *manasvinām*—de los grandes combatientes; *iva*—como; *sat*—legítimo; *samprahāraḥ*—buen azote.

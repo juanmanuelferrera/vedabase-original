@@ -1,11 +1,11 @@
 ### SB 6.5.12
 
-> एक एवेश्वरस्तुर्यो भगवान्स्वाश्रयः परः
+> एक एवेश्वरस्तुर्यो भगवान्स्वाश्रयः परः\
 > तमदृष्ट्वाभवं पुंसः किमसत्कर्मभिर्भवेत ॥१२॥
 
-> eka eveśvaras turyo
-> bhagavān svāśrayaḥ paraḥ
-> tam adṛṣṭvābhavaṁ puṁsaḥ
+> eka eveśvaras turyo\
+> bhagavān svāśrayaḥ paraḥ\
+> tam adṛṣṭvābhavaṁ puṁsaḥ\
 > kim asat-karmabhir bhavet
 
 *ekaḥ*—uno; *eva*—en verdad; *īśvaraḥ*—controlador supremo; *turyaḥ*—la cuarta categoría trascendental; *bhagavān*—la Suprema Personalidad de Dios; *sva-āśrayaḥ*—independiente, siendo Su propio refugio; *paraḥ*—más allá de la creación material; *tam*—a Él; *adṛṣṭvā*—sin ver; *abhavam*—que no ha nacido ni ha sido creado; *puṁsaḥ*—de un hombre; *kim*—qué beneficio; *asat-karmabhiḥ*—con actividades fruitivas, que son temporales; *bhavet*—puede haber.

@@ -1,25 +1,25 @@
 ### SB 8.10.16-18
 
-> वैरोचनो बलिः सङ्ख्ये सोऽसुराणां चमूपतिः
-> यानं वैहायसं नाम कामगं मयनिर्मितम ॥१६॥
-> सर्वसाङ्ग्रामिकोपेतं सर्वाश्चर्यमयं प्रभो
-> अप्रतर्क्यमनिर्देश्यं दृश्यमानमदर्शनम ॥१७॥
-> आस्थितस्तद्विमानाग्र्यं सर्वानीकाधिपैर्वृतः
+> वैरोचनो बलिः सङ्ख्ये सोऽसुराणां चमूपतिः\
+> यानं वैहायसं नाम कामगं मयनिर्मितम ॥१६॥\
+> सर्वसाङ्ग्रामिकोपेतं सर्वाश्चर्यमयं प्रभो\
+> अप्रतर्क्यमनिर्देश्यं दृश्यमानमदर्शनम ॥१७॥\
+> आस्थितस्तद्विमानाग्र्यं सर्वानीकाधिपैर्वृतः\
 > बालव्यजनछत्राग्र्यै रेजे चन्द्र इवोदये ॥१८॥
 
-> vairocano baliḥ saṅkhye
-> so 'surāṇāṁ camū-patiḥ
-> yānaṁ vaihāyasaṁ nāma
+> vairocano baliḥ saṅkhye\
+> so 'surāṇāṁ camū-patiḥ\
+> yānaṁ vaihāyasaṁ nāma\
 > kāma-gaṁ maya-nirmitam
 
-> sarva-sāṅgrāmikopetaṁ
-> sarvāścaryamayaṁ prabho
-> apratarkyam anirdeśyaṁ
+> sarva-sāṅgrāmikopetaṁ\
+> sarvāścaryamayaṁ prabho\
+> apratarkyam anirdeśyaṁ\
 > dṛśyamānam adarśanam
 
-> āsthitas tad vimānāgryaṁ
-> sarvānīkādhipair vṛtaḥ
-> bāla-vyajana-chatrāgryai
+> āsthitas tad vimānāgryaṁ\
+> sarvānīkādhipair vṛtaḥ\
+> bāla-vyajana-chatrāgryai\
 > reje candra ivodaye
 
 *vairocanaḥ*—el hijo de Virocana; *baliḥ*—Mahārāja Bali; *saṅkhye*—en la batalla; *saḥ*—él, así famoso; *asurāṇām*—de los demonios; *camū-patiḥ*—general de los ejércitos; *yānam*—avión; *vaihāyasam*—llamado Vaihāyasa; *nāma*—con el nombre; *kāma-gam*—que podía volar adonde desease; *maya-nirmitam*—obra del demonio Maya; *sarva*—todas; *sāṅgrāmika-upetam*—dotado con todas las armas necesarias para luchar con toda clase de enemigos; *sarva-āścarya-mayam*—maravilloso desde todo punto de vista; *prabho*—¡oh, rey!; *apratarkyam*—inexplicable; *anirdeśyam*—indescriptible; *dṛśyamānam*—a veces visible; *adarśanam*—a veces invisible; *āsthitaḥ*—sentado en ese; *tat*—ese; *vimāna-agryam*—excelente avión; *sarva*—todos; *anīka-adhipaiḥ*—por los comandantes de soldados; *vṛtaḥ*—rodeado; *bāla-vyajana-chatra-agryaiḥ*—protegido por hermosas sombrillas y las mejores *cāmaras*; *reje*—en su brillante posición; *candraḥ*—la Luna; *iva*—como; *udaye*—en el momento de levantarse al anochecer.

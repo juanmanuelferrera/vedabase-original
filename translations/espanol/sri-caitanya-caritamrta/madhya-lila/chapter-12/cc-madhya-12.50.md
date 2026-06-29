@@ -1,9 +1,9 @@
 ### CC Madhya 12.50
 
-> প্রভু কহে, — আমি মনুষ্য আশ্রমে সন্ন্যাসী ।
+> প্রভু কহে, — আমি মনুষ্য আশ্রমে সন্ন্যাসী ।\
 > কায়মনোবাক্যে ব্যবহারে ভয় বাসি ॥৫০॥
 
-> prabhu kahe,-āmi manuṣya āśrame sannyāsī
+> prabhu kahe,-āmi manuṣya āśrame sannyāsī\
 > kāya-mano-vākye vyavahāre bhaya vāsi
 
 *prabhu kahe*—el Señor dijo; *āmi manuṣya*—Yo soy un ser humano; *āśrame*—en la orden social; *sannyāsī*—una persona renunciante; *kāya-manaḥ-vākye*—con Mi cuerpo, mente y palabras; *vyavahāre*—en el trato general; *bhaya*—temor; *vāsi*—tengo.

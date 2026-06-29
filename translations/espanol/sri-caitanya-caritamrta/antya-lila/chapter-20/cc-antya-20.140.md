@@ -1,9 +1,9 @@
 ### CC Antya 20.140
 
-> মুখ্য-মুখ্য-লীলার অর্থ করিলুঁ কথন ।
+> মুখ্য-মুখ্য-লীলার অর্থ করিলুঁ কথন ।\
 > ‘অনুবাদ’ হৈতে স্মরে গ্রন্থ-বিবরণ ॥১৪০॥
 
-> mukhya-mukhya-līlāra artha kariluṅ kathana
+> mukhya-mukhya-līlāra artha kariluṅ kathana\
 > 'anuvāda' haite smare grantha-vivaraṇa
 
 *mukhya-mukhya-līlāra*—de los principales pasatiempos del Señor Śrī Caitanya Mahāprabhu; *artha*—el significado; *kariluṅ*—he hecho; *kathana*—describir; *anuvāda haite*—al repetirlos de nuevo; *smare*—uno recuerda; *grantha-vivaraṇa*—la descripción del libro.

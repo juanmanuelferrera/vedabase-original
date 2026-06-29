@@ -1,11 +1,11 @@
 ### SB 1.2.12
 
-> तच्छ्रद्दधाना मुनयो ज्ञानवैराग्ययुक्तया ।
+> तच्छ्रद्दधाना मुनयो ज्ञानवैराग्ययुक्तया ।\
 > पश्यन्त्यात्मनि चात्मानं भक्त्या श्रुतगृहीतया ॥१२॥
 
-> tac chraddadhānā munayo
-> jñāna-vairāgya-yuktayā
-> paśyanty ātmani cātmānaṁ
+> tac chraddadhānā munayo\
+> jñāna-vairāgya-yuktayā\
+> paśyanty ātmani cātmānaṁ\
 > bhaktyā śruta-gṛhītayā
 
 *tat*—eso; *śraddadhānāḥ*—sincero e inquisitivo; *munayaḥ*—sabios; *jñāna*—conocimiento; *vairāgya*—desapego; *yuktayā*—bien equipado con; *paśyanti*—ve; *ātmani*—dentro de sí mismo; *ca*—y; *ātmānam*—el Paramātmā; *bhaktyā*—en el servicio devocional; *śruta*—los *Vedas*; *gṛhītayā*—bien recibido.

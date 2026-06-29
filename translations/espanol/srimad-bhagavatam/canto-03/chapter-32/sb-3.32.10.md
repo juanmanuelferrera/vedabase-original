@@ -1,13 +1,13 @@
 ### SB 3.32.10
 
-> एवं परेत्य भगवन्तमनुप्रविष्टाये
-> योगिनो जितमरुन्मनसो विरागाः ।
-> तेनैव साकममृतं पुरुषं पुराणं
+> एवं परेत्य भगवन्तमनुप्रविष्टाये\
+> योगिनो जितमरुन्मनसो विरागाः ।\
+> तेनैव साकममृतं पुरुषं पुराणं\
 > ब्रह्म प्रधानमुपयान्त्यगताभिमानाः ॥१०॥
 
-> evaṁ paretya bhagavantam anupraviṣṭā
-> ye yogino jita-marun-manaso virāgāḥ
-> tenaiva sākam amṛtaṁ puruṣaṁ purāṇaṁ
+> evaṁ paretya bhagavantam anupraviṣṭā\
+> ye yogino jita-marun-manaso virāgāḥ\
+> tenaiva sākam amṛtaṁ puruṣaṁ purāṇaṁ\
 > brahma pradhānam upayānty agatābhimānāḥ
 
 *evam*—de este modo; *paretya*—habiendo atravesado una gran distancia; *bhagavantam*—en el Señor Brahmā; *anupraviṣṭāḥ*—entrado; *ye*—aquellos que; *yoginaḥ*—*yogīs*; *jita*—controlada; *marut*—la respiración; *manasaḥ*—la mente; *virāgāḥ*—desapegada; *tena*—con el Señor Brahmā; *eva*—ciertamente; *sākam*—juntos; *amṛtam*—a la bienaventuranza personificada; *puruṣam*—a la Personalidad de Dios; *purāṇam*—al más antiguo; *brahma pradhānam*—al Brahman Supremo; *upayānti*—ellos van; *agata*—que no ha ido; *abhimānāḥ*—cuyo ego falso.

@@ -1,13 +1,13 @@
 ### SB 6.1.11
 
-> श्रीबादरायणिरुवाच
-> कर्मणा कर्मनिर्हारो न ह्यात्यन्तिक इष्यते
+> श्रीबादरायणिरुवाच\
+> कर्मणा कर्मनिर्हारो न ह्यात्यन्तिक इष्यते\
 > अविद्वदधिकारित्वात्प्रायश्चित्तं विमर्शनम ॥११॥
 
-> śrī-bādarāyaṇir uvāca
-> karmaṇā karma-nirhāro
-> na hy ātyantika iṣyate
-> avidvad-adhikāritvāt
+> śrī-bādarāyaṇir uvāca\
+> karmaṇā karma-nirhāro\
+> na hy ātyantika iṣyate\
+> avidvad-adhikāritvāt\
 > prāyaścittaṁ vimarśanam
 
 *śrī-bādarāyaṇiḥ uvāca*—Śukadeva Gosvāmī, el hijo de Vyāsadeva, contestó; *karmaṇā*—con actividades fruitivas; *karma-nirhāraḥ*—neutralización de actividades fruitivas; *na*—no; *hi*—en verdad; *ātyantikaḥ*—final; *iṣyate*—resulta posible; *avidvat-adhikāritvāt*—de carecer de conocimiento; *prāyaścittam*—verdadera expiación; *vimarśanam*—conocimiento completo del *Vedānta*.

@@ -1,13 +1,13 @@
 ### SB 4.12.8
 
-> मैत्रेय उवाच
-> स राजराजेन वराय चोदितो ध्रुवो महाभागवतो महामतिः ।
+> मैत्रेय उवाच\
+> स राजराजेन वराय चोदितो ध्रुवो महाभागवतो महामतिः ।\
 > हरौ स वव्रेऽचलितां स्मृतिं यया तरत्ययत्नेन दुरत्ययं तमः ॥८॥
 
-> maitreya uvāca
-> sa rāja-rājena varāya codito
-> dhruvo mahā-bhāgavato mahā-matiḥ
-> harau sa vavre 'calitāṁ smṛtiṁ yayā
+> maitreya uvāca\
+> sa rāja-rājena varāya codito\
+> dhruvo mahā-bhāgavato mahā-matiḥ\
+> harau sa vavre 'calitāṁ smṛtiṁ yayā\
 > taraty ayatnena duratyayaṁ tamaḥ
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya dijo; *saḥ*—él; *rāja-rājena*—por el rey de reyes (Kuvera); *varāya*—una bendición; *coditaḥ*—ante el ruego; *dhruvaḥ*—Dhruva Mahārāja; *mahā-bhāgavataḥ*—un devoto puro de primera categoría; *mahā-matiḥ*—muy inteligente y reflexivo; *harau*—a la Suprema Personalidad de Dios; *saḥ*—él; *vavre*—pidió; *acalitām*—inquebrantable; *smṛtim*—recuerdo; *yayā*—por el cual; *tarati*—atraviesa; *ayatnena*—sin dificultad; *duratyayam*—insuperable; *tamaḥ*—nesciencia.

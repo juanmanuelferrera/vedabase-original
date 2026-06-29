@@ -1,13 +1,13 @@
 ### CC Antya 1.139
 
-> অভিব্যক্তা মত্তঃ প্রকৃতিলঘুরূপাদপি বুধা
-> বিধাত্রী সিদ্ধার্থান্ হরিগুণময়ী বঃ কৃতিরিয়ম্ ।।
-> পুলিন্দেনাপ্যগ্নিঃ কিমু সমিধমুন্মথ্য জনিতো
+> অভিব্যক্তা মত্তঃ প্রকৃতিলঘুরূপাদপি বুধা\
+> বিধাত্রী সিদ্ধার্থান্ হরিগুণময়ী বঃ কৃতিরিয়ম্ ।।\
+> পুলিন্দেনাপ্যগ্নিঃ কিমু সমিধমুন্মথ্য জনিতো\
 > হিরণ্যশ্রেণীনামপহরতি নান্তঃকলুষতাম্ ॥১৩৯॥
 
-> abhivyaktā mattaḥ prakṛti-laghu-rūpād api budhā
-> vidhātrī siddhārthān hari-guṇa-mayī vaḥ kṛtir iyam
-> pulindenāpy agniḥ kimu samidham-unmathya janito
+> abhivyaktā mattaḥ prakṛti-laghu-rūpād api budhā\
+> vidhātrī siddhārthān hari-guṇa-mayī vaḥ kṛtir iyam\
+> pulindenāpy agniḥ kimu samidham-unmathya janito\
 > hiraṇya-śreṇīnām apaharati nāntaḥ-kaluṣatām
 
 *abhivyaktā*—manifested; *mattaḥ*—from me; *prakṛti*—by nature; *laghu-rūpāt*—situated in a lower position; *api*—although; *budhāḥ*—O learned devotees; *vidhātrī*—which may bring about; *siddha-arthān*—all the objects of perfection; *hari-guṇa-mayī*—whose subject matter is the attributes of Kṛṣṇa; *vaḥ*—of you; *kṛtiḥ*—the poetic play known as *Vidagdha-mādhava*; *iyam*—this; *pulindena*—by the lowest class of men; *api*—although; *agniḥ*—a fire; *kimu*—whether; *samidham*—the wood; *unmathya*—rubbing; *janitaḥ*—produced; *hiraṇya*—of gold; *śreṇīnām*—of quantities; *apaharati*—vanquishes; *na*—not; *antaḥ*—inner; *kaluṣatām*—dirty things.

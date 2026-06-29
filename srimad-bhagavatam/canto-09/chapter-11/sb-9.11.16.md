@@ -1,11 +1,11 @@
 ### SB 9.11.16
 
-> तच्छ्रुत्वा भगवान्रामो रुन्धन्नपि धिया शुचः
+> तच्छ्रुत्वा भगवान्रामो रुन्धन्नपि धिया शुचः\
 > स्मरंस्तस्या गुणांस्तांस्तान्नाशक्नोद्रोद्धुमीश्वरः ॥१६॥
 
-> tac chrutvā bhagavān rāmo
-> rundhann api dhiyā śucaḥ
-> smaraṁs tasyā guṇāṁs tāṁs tān
+> tac chrutvā bhagavān rāmo\
+> rundhann api dhiyā śucaḥ\
+> smaraṁs tasyā guṇāṁs tāṁs tān\
 > nāśaknod roddhum īśvaraḥ
 
 *tat*—this (the news of Sītādevī's entering the earth); *śrutvā*—hearing; *bhagavān*—the Supreme Personality of Godhead; *rāmaḥ*—Lord Rāmacandra; *rundhan*—trying to reject; *api*—although; *dhiyā*—by intelligence; *śucaḥ*—grief; *smaran*—remembering; *tasyāḥ*—of her; *guṇān*—qualities; *tān tān*—under different circumstances; *na*—not; *aśaknot*—was able; *roddhum*—to check; *īśvaraḥ*—although the supreme controller.

@@ -1,11 +1,11 @@
 ### SB 6.6.6
 
-> विद्योत आसील्लम्बायास्ततश्च स्तनयित्नवः
+> विद्योत आसील्लम्बायास्ततश्च स्तनयित्नवः\
 > ककुदः सङ्कटस्तस्य कीकटस्तनयो यतः ॥६॥
 
-> kakudaḥ saṅkaṭas tasya
-> kīkaṭas tanayo yataḥ
-> bhuvo durgāṇi yāmeyaḥ
+> kakudaḥ saṅkaṭas tasya\
+> kīkaṭas tanayo yataḥ\
+> bhuvo durgāṇi yāmeyaḥ\
 > svargo nandis tato 'bhavat
 
 *kakudaḥ*—from the womb of Kakud; *saṅkaṭaḥ*—Saṅkaṭa; *tasya*—from him; *kīkaṭaḥ*—Kīkaṭa; *tanayaḥ*—son; *yataḥ*—from whom; *bhuvaḥ*—of the earth; *durgāṇi*—many demigods, protectors of this universe (which is called Durgā); *yāmeyaḥ*—of Yāmi; *svargaḥ*—Svarga; *nandiḥ*—Nandi; *tataḥ*—from him (Svarga); *abhavat*—was born.

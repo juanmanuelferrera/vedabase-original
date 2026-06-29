@@ -1,11 +1,11 @@
 ### SB 3.28.2
 
-> स्वधर्माचरणं शक्त्या विधर्माच्च निवर्तनम् ।
+> स्वधर्माचरणं शक्त्या विधर्माच्च निवर्तनम् ।\
 > दैवाल्लब्धेन सन्तोष आत्मविच्चरणार्चनम् ॥२॥
 
-> sva-dharmācaraṇaṁ śaktyā
-> vidharmāc ca nivartanam
-> daivāl labdhena santoṣa
+> sva-dharmācaraṇaṁ śaktyā\
+> vidharmāc ca nivartanam\
+> daivāl labdhena santoṣa\
 > ātmavic-caraṇārcanam
 
 *sva-dharma-ācaraṇam*—ejecutando los propios deberes prescritos; *śaktyā*—lo mejor que pueda; *vidharmāt*—deberes no autorizados; *ca*—y; *nivartanam*—evitando; *daivāt*—por la gracia del Señor; *labdhena*—con lo que se obtiene; *santoṣaḥ*—satisfecho; *ātma-vit*—del alma autorrealizada; *caraṇa*—los pies; *arcanam*—adorando.

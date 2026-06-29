@@ -1,11 +1,11 @@
 ### SB 6.11.21
 
-> अहं समाधाय मनो यथाह नः सङ्कर्षणस्तच्चरणारविन्दे
+> अहं समाधाय मनो यथाह नः सङ्कर्षणस्तच्चरणारविन्दे\
 > त्वद्वज्ररंहोलुलितग्राम्यपाशो गतिं मुनेर्याम्यपविद्धलोकः ॥२१॥
 
-> ahaṁ samādhāya mano yathāha naḥ
-> saṅkarṣaṇas tac-caraṇāravinde
-> tvad-vajra-raṁho-lulita-grāmya-pāśo
+> ahaṁ samādhāya mano yathāha naḥ\
+> saṅkarṣaṇas tac-caraṇāravinde\
+> tvad-vajra-raṁho-lulita-grāmya-pāśo\
 > gatiṁ muner yāmy apaviddha-lokaḥ
 
 *aham*—I; *samādhāya*—fixing firmly; *manaḥ*—the mind; *yathā*—just as; *āha*—said; *naḥ*—our; *saṅkarṣaṇaḥ*—Lord Saṅkarṣaṇa; *tat-caraṇa-aravinde*—at His lotus feet; *tvat-vajra*—of your thunderbolt; *raṁhaḥ*—by the force; *lulita*—torn; *grāmya*—of material attachment; *pāśaḥ*—the rope; *gatim*—the destination; *muneḥ*—of Nārada Muni and other devotees; *yāmi*—I shall achieve; *apaviddha*—giving up; *lokaḥ*—this material world (where one desires all kinds of impermanent things).

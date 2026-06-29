@@ -1,9 +1,9 @@
 ### CC Antya 7.123
 
-> আপনা জানাইতে আমি করি অভিমান ।
+> আপনা জানাইতে আমি করি অভিমান ।\
 > সে গর্ব খণ্ডাইতে মোর করেন অপমান ॥১২৩॥
 
-> āpanā jānāite āmi kari abhimāna
+> āpanā jānāite āmi kari abhimāna\
 > se garva khaṇḍāite mora karena apamāna
 
 *āpanā jānāite*—hacerme publicidad; *āmi*—yo; *kari abhimāna*—estoy falsamente orgulloso; *se garva*—ese orgullo; *khaṇḍāite*—para destruir; *mora karena apamāna*—Él me insulta.

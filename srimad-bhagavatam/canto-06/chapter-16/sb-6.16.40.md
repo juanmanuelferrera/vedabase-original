@@ -1,11 +1,11 @@
 ### SB 6.16.40
 
-> जितमजित तदा भवता यदाह भागवतं धर्ममनवद्यम
+> जितमजित तदा भवता यदाह भागवतं धर्ममनवद्यम\
 > निष्किञ्चना ये मुनय आत्मारामा यमुपासतेऽपवर्गाय ॥४०॥
 
-> jitam ajita tadā bhavatā
-> yadāha bhāgavataṁ dharmam anavadyam
-> niṣkiñcanā ye munaya
+> jitam ajita tadā bhavatā\
+> yadāha bhāgavataṁ dharmam anavadyam\
+> niṣkiñcanā ye munaya\
 > ātmārāmā yam upāsate 'pavargāya
 
 *jitam*—conquered; *ajita*—O unconquerable one; *tadā*—then; *bhavatā*—by Your Lordship; *yadā*—when; *āha*—spoke; *bhāgavatam*—which helps the devotee approach the Supreme Personality of Godhead; *dharmam*—the religious process; *anavadyam*—faultless (free from contamination); *niṣkiñcanāḥ*—who have no desire to be happy with material opulences; *ye*—those who; *munayaḥ*—great philosophers and exalted sages; *ātma-ārāmāḥ*—who are self-satisfied (being completely aware of their constitutional position as eternal servants of the Lord); *yam*—whom; *upāsate*—worship; *apavargāya*—for achieving liberation from material bondage.

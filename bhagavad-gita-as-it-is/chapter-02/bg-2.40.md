@@ -1,11 +1,11 @@
 ### Bg 2.40
 
-> नेहाभिक्रमनाशोऽस्ति प्रत्यवायो न विद्यते ।
+> नेहाभिक्रमनाशोऽस्ति प्रत्यवायो न विद्यते ।\
 > स्वल्पमप्यस्य धर्मस्य त्रायते महतो भयात् ॥४०॥
 
-> nehābhikrama-nāśo 'sti
-> pratyavāyo na vidyate
-> sv-alpam apy asya dharmasya
+> nehābhikrama-nāśo 'sti\
+> pratyavāyo na vidyate\
+> sv-alpam apy asya dharmasya\
 > trāyate mahato bhayāt
 
 *na*—there is not; *iha*—in this world; *abhikrama*—endeavoring; *nāśaḥ*—loss; *asti*—there is; *pratyavāyaḥ*—diminution; *na*—never; *vidyate*—there is; *svalpam*—little; *api*—although; *asya*—of this; *dharmasya*—of this occupation; *trāyate*—releases; *mahataḥ*—of very great; *bhayāt*—from danger.

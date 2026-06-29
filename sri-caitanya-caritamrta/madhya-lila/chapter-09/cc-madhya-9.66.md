@@ -1,9 +1,9 @@
 ### CC Madhya 9.66
 
-> স্বপ্রভাবে লোক-সবার করাঞা বিস্ময় ।
+> স্বপ্রভাবে লোক-সবার করাঞা বিস্ময় ।\
 > পানা-নৃসিংহে আইলা প্রভু দয়াময় ॥৬৬॥
 
-> sva-prabhāve loka-sabāra karāñā vismaya
+> sva-prabhāve loka-sabāra karāñā vismaya\
 > pānā-nṛsiṁhe āilā prabhu dayā-maya
 
 *sva-prabhāve*—by His own influence; *loka-sabāra*—of all the people; *karāñā*—inducing; *vismaya*—astonishment; *pānā-nṛsiṁhe*—to the Lord named Pānā-nṛsiṁha; *āilā*—came; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *dayā-maya*—the most merciful.

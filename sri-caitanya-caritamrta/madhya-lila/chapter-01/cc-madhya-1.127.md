@@ -1,9 +1,9 @@
 ### CC Madhya 1.127
 
-> পূর্বে যবে প্রভু রামানন্দেরে মিলিলা ।
+> পূর্বে যবে প্রভু রামানন্দেরে মিলিলা ।\
 > নীলাচলে আসিবারে তাঁরে আজ্ঞা দিলা ॥১২৭॥
 
-> pūrve yabe prabhu rāmānandere mililā
+> pūrve yabe prabhu rāmānandere mililā\
 > nīlācale āsibāre tāṅre ājñā dilā
 
 *pūrve*—before this; *yabe*—while; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *rāmānandere*—Śrī Rāmānanda Rāya; *mililā*—met; *nīlācale*—to Jagannātha Purī; *āsibāre*—to come; *tāṅre*—him; *ājñādilā*—ordered.

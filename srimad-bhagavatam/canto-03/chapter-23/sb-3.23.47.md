@@ -1,11 +1,11 @@
 ### SB 3.23.47
 
-> तस्यामाधत्त रेतस्तां भावयन्नात्मनात्मवित् ।
+> तस्यामाधत्त रेतस्तां भावयन्नात्मनात्मवित् ।\
 > नोधा विधाय रूपं स्वं सर्वसङ्कल्पविद्विभुः ॥४७॥
 
-> tasyām ādhatta retas tāṁ
-> bhāvayann ātmanātma-vit
-> nodhā vidhāya rūpaṁ svaṁ
+> tasyām ādhatta retas tāṁ\
+> bhāvayann ātmanātma-vit\
+> nodhā vidhāya rūpaṁ svaṁ\
 > sarva-saṅkalpa-vid vibhuḥ
 
 *tasyām*—in her; *ādhatta*—he deposited; *retaḥ*—semen; *tām*—her; *bhāvayan*—regarding; *ātmanā*—as half of himself; *ātma-vit*—a knower of spirit soul; *nodhā*—into nine; *vidhāya*—having divided; *rūpam*—body; *svam*—his own; *sarva-saṅkalpa-vit*—the knower of all desires; *vibhuḥ*—the powerful Kardama.

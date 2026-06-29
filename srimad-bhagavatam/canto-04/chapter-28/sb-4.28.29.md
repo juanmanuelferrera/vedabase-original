@@ -1,11 +1,11 @@
 ### SB 4.28.29
 
-> उपयेमे वीर्यपणां वैदर्भीं मलयध्वजः ।
+> उपयेमे वीर्यपणां वैदर्भीं मलयध्वजः ।\
 > युधि निर्जित्य राजन्यान्पाण्ड्यः परपुरञ्जयः ॥२९॥
 
-> upayeme vīrya-paṇāṁ
-> vaidarbhīṁ malayadhvajaḥ
-> yudhi nirjitya rājanyān
+> upayeme vīrya-paṇāṁ\
+> vaidarbhīṁ malayadhvajaḥ\
+> yudhi nirjitya rājanyān\
 > pāṇḍyaḥ para-purañjayaḥ
 
 *upayeme*—married; *vīrya*—of valor or prowess; *paṇām*—the prize; *vaidarbhīm*—daughter of Vidarbha; *malaya-dhvajaḥ*—Malayadhvaja; *yudhi*—in the fight; *nirjitya*—after conquering; *rājanyān*—other princes; *pāṇḍyaḥ*—best of the learned, or born in the country known as Pāṇḍu; *para*—transcendental; *puram*—city; *jayaḥ*—conqueror.

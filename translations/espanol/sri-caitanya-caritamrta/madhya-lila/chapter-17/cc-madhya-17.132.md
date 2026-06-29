@@ -1,9 +1,9 @@
 ### CC Madhya 17.132
 
-> দেহ-দেহীর, নাম-নামীর কৃষ্ণে নাহি ‘ভেদ’ ।
+> দেহ-দেহীর, নাম-নামীর কৃষ্ণে নাহি ‘ভেদ’ ।\
 > জীবের ধর্ম — নাম-দেহ-স্বরূপে ‘বিভেদ’ ॥১৩২॥
 
-> deha-dehīra, nāma-nāmīra kṛṣṇe nāhi 'bheda'
+> deha-dehīra, nāma-nāmīra kṛṣṇe nāhi 'bheda'\
 > jīvera dharma--nāma-deha-svarūpe 'vibheda'
 
 *deha-dehīra*—del cuerpo y del propietario del cuerpo; *nāma-nāmīra*—del nombre y del propietario del nombre; *kṛṣṇe*—en Kṛṣṇa; *nāhi bheda*—no hay diferencia; *jīvera dharma*—la situación del alma condicionada; *nāma*—nombre; *deha*—cuerpo; *sva-rūpe*—forma original; *vibheda*—diferente.

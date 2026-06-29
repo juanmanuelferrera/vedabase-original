@@ -1,11 +1,11 @@
 ### SB 3.18.6
 
-> स तुद्यमानोऽरिदुरुक्ततोमरैर्दंष्ट्राग्रगां गामुपलक्ष्य भीताम् ।
+> स तुद्यमानोऽरिदुरुक्ततोमरैर्दंष्ट्राग्रगां गामुपलक्ष्य भीताम् ।\
 > तोदं मृषन्निरगादम्बुमध्याद्ग्राहाहतः सकरेणुर्यथेभः ॥६॥
 
-> sa tudyamāno 'ri-durukta-tomarair
-> daṁṣṭrāgra-gāṁ gām upalakṣya bhītām
-> todaṁ mṛṣan niragād ambu-madhyād
+> sa tudyamāno 'ri-durukta-tomarair\
+> daṁṣṭrāgra-gāṁ gām upalakṣya bhītām\
+> todaṁ mṛṣan niragād ambu-madhyād\
 > grāhāhataḥ sa-kareṇur yathebhaḥ
 
 *saḥ*—Él; *tudyamānaḥ*—dolido; *ari*—del enemigo; *durukta*—por las palabras injuriosas; *tomaraiḥ*—por las armas; *daṁṣṭra-agra*—en los extremos de Sus colmillos; *gām*—situada; *gām*—la Tierra; *upalakṣya*—viendo; *bhītām*—aterrorizada; *todam*—el sinsabor; *mṛṣan*—tolerando; *niragāt*—salió; *ambu-madhyāt*—del interior del agua; *grāha*—por un cocodrilo; *āhataḥ*—atacado; *sa-kareṇuḥ*—junto con una elefanta; *yathā*—como; *ibhaḥ*—un elefante.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.41
 
-> আচার্যেরে আজ্ঞা দিল করিয়া সম্মান ।
+> আচার্যেরে আজ্ঞা দিল করিয়া সম্মান ।\
 > ‘আ-চণ্ডাল আদি কৃষ্ণভক্তি দিও দান’ ॥৪১॥
 
-> ācāryere ājñā dila kariyā sammāna
+> ācāryere ājñā dila kariyā sammāna\
 > 'ā-caṇḍāla ādi kṛṣṇa-bhakti dio dāna'
 
 *ācāryere*—a Advaita Ācārya; *ājñā dila*—ordenó; *kariyā sammāna*—con gran respeto; *ā-caṇḍāla*—incluso al más bajo de los hombres, conocido como el caṇḍāla; *ādi*—empezando por; *kṛṣṇa-bhakti*—conciencia de Kṛṣṇa, o servicio devocional al Señor Kṛṣṇa; *dio*—entregad; *dāna*—en caridad.

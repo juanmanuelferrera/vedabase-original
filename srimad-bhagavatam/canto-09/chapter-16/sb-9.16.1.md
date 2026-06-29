@@ -1,13 +1,13 @@
 ### SB 9.16.1
 
-> श्रीशुक उवाच
-> पित्रोपशिक्षितो रामस्तथेति कुरुनन्दन
+> श्रीशुक उवाच\
+> पित्रोपशिक्षितो रामस्तथेति कुरुनन्दन\
 > संवत्सरं तीर्थयात्रां चरित्वाश्रममाव्रजत ॥१॥
 
-> śrī-śuka uvāca
-> pitropaśikṣito rāmas
-> tatheti kuru-nandana
-> saṁvatsaraṁ tīrtha-yātrāṁ
+> śrī-śuka uvāca\
+> pitropaśikṣito rāmas\
+> tatheti kuru-nandana\
+> saṁvatsaraṁ tīrtha-yātrāṁ\
 > caritvāśramam āvrajat
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *pitrā*—by his father; *upaśikṣitaḥ*—thus advised; *rāmaḥ*—Lord Paraśurāma; *tathā iti*—let it be so; *kuru-nandana*—O son of the Kuru dynasty, Mahārāja Parīkṣit; *saṁvatsaram*—for one complete year; *tīrtha-yātrām*—traveling to all the holy places; *caritvā*—after executing; *āśramam*—to his own residence; *āvrajat*—returned.

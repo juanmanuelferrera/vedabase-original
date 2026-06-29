@@ -1,11 +1,11 @@
 ### SB 6.16.38
 
-> विषयतृषो नरपशवो य उपासते विभूतीर्न परं त्वाम
+> विषयतृषो नरपशवो य उपासते विभूतीर्न परं त्वाम\
 > तेषामाशिष ईश तदनु विनश्यन्ति यथा राजकुलम ॥३८॥
 
-> viṣaya-tṛṣo nara-paśavo
-> ya upāsate vibhūtīr na paraṁ tvām
-> teṣām āśiṣa īśa
+> viṣaya-tṛṣo nara-paśavo\
+> ya upāsate vibhūtīr na paraṁ tvām\
+> teṣām āśiṣa īśa\
 > tad anu vinaśyanti yathā rāja-kulam
 
 *viṣaya-tṛṣaḥ*—eager to enjoy sense gratification; *nara-paśavaḥ*—manlike animals; *ye*—who; *upāsate*—worship very gorgeously; *vibhūtīḥ*—small particles of the Supreme Lord (the demigods); *na*—not; *param*—the Supreme; *tvām*—You; *teṣām*—of them; *āśiṣaḥ*—the benedictions; *īśa*—O supreme controller; *tat*—them (the demigods); *anu*—after; *vinaśyanti*—will be vanquished; *yathā*—just as; *rāja-kulam*—those who are supported by the government (when the government is finished).

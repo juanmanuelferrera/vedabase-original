@@ -1,9 +1,9 @@
 ### CC Antya 7.98
 
-> অন্তর্যামী প্রভু জানিবেন মোর মন ।
+> অন্তর্যামী প্রভু জানিবেন মোর মন ।\
 > তাঁরে ভয় নাহি কিছু, ‘বিষম’ তাঁর গণ ।।” ॥ ৯৮ ॥
 
-> antaryāmī prabhu jānibena mora mana
+> antaryāmī prabhu jānibena mora mana\
 > tāṅre bhaya nāhi kichu, 'viṣama' tāṅra gaṇa"
 
 *antaryāmī*—existing in everyone's heart; *prabhu*—Śrī Caitanya Mahāprabhu; *jānibena*—will know; *mora mana*—my mind; *tāṅre*—of Him; *bhaya*—fear; *nāhi*—there is not; *kichu*—any; *viṣama*—very critical; *tāṅra gaṇa*—his associates.

@@ -1,11 +1,11 @@
 ### SB 4.16.20
 
-> अयं भुवो मण्डलमोदयाद्रेर्गोप्तैकवीरो नरदेवनाथः ।
+> अयं भुवो मण्डलमोदयाद्रेर्गोप्तैकवीरो नरदेवनाथः ।\
 > आस्थाय जैत्रं रथमात्तचापः पर्यस्यते दक्षिणतो यथार्कः ॥२०॥
 
-> ayaṁ bhuvo maṇḍalam odayādrer
-> goptaika-vīro naradeva-nāthaḥ
-> āsthāya jaitraṁ ratham ātta-cāpaḥ
+> ayaṁ bhuvo maṇḍalam odayādrer\
+> goptaika-vīro naradeva-nāthaḥ\
+> āsthāya jaitraṁ ratham ātta-cāpaḥ\
 > paryasyate dakṣiṇato yathārkaḥ
 
 *ayam*—este rey; *bhuvaḥ*—del mundo; *maṇḍalam*—el globo; *ā-udaya-adreḥ*—desde la montaña en que antes se ve el Sol; *goptā*—protegerá; *eka*—sin comparación; *vīraḥ*—poderoso, heróico; *nara-deva*—de todos los reyes, dioses en la sociedad humana; *nāthaḥ*—el amo; *āsthāya*—situado en; *jaitram*—victoriosa; *ratham*—cuadriga; *ātta-cāpaḥ*—empuñando el arco; *paryasyate*—caminará alrededor; *dakṣiṇataḥ*—desde la parte sur; *yathā*—como; *arkaḥ*—el Sol.

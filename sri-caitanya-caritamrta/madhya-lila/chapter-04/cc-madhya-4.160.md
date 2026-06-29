@@ -1,9 +1,9 @@
 ### CC Madhya 4.160
 
-> গোপীনাথ আমার সে একই অঙ্গ হয় ।
+> গোপীনাথ আমার সে একই অঙ্গ হয় ।\
 > ইঁহাকে চন্দন দিলে হবে মোর তাপ-ক্ষয় ॥১৬০॥
 
-> gopīnātha āmāra se eka-i aṅga haya
+> gopīnātha āmāra se eka-i aṅga haya\
 > iṅhāke candana dile habe mora tāpa-kṣaya
 
 *gopīnātha*—Lord Gopīnātha; *āmāra*—My; *se*—that; *eka-i*—one; *aṅga*—body; *haya*—is; *iṅhāke*—unto Him; *candana dile*—in offering this *candana*; *habe*—there will be; *mora*—My; *tāpa-kṣaya*—reduction of temperature.

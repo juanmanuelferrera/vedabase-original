@@ -1,11 +1,11 @@
 ### SB 4.16.18
 
-> देहिनामात्मवत्प्रेष्ठः सुहृदां नन्दिवर्धनः ।
+> देहिनामात्मवत्प्रेष्ठः सुहृदां नन्दिवर्धनः ।\
 > मुक्तसङ्गप्रसङ्गोऽयं दण्डपाणिरसाधुषु ॥१८॥
 
-> dehinām ātmavat-preṣṭhaḥ
-> suhṛdāṁ nandi-vardhanaḥ
-> mukta-saṅga-prasaṅgo 'yaṁ
+> dehinām ātmavat-preṣṭhaḥ\
+> suhṛdāṁ nandi-vardhanaḥ\
+> mukta-saṅga-prasaṅgo 'yaṁ\
 > daṇḍa-pāṇir asādhuṣu
 
 *dehinām*—to all living entities having a body; *ātma-vat*—as himself; *preṣṭhaḥ*—considering dear; *suhṛdām*—of his friends; *nandi-vardhanaḥ*—increasing pleasures; *mukta-saṅga*—with persons devoid of all material contamination; *prasaṅgaḥ*—intimately associated; *ayam*—this King; *daṇḍa-pāṇiḥ*—a chastising hand; *asādhuṣu*—to the criminals.

@@ -1,9 +1,9 @@
 ### CC Madhya 4.145
 
-> ‘মাধবপুরী শ্রীপাদ আইল’, — লোকে হৈল খ্যাতি ।
+> ‘মাধবপুরী শ্রীপাদ আইল’, — লোকে হৈল খ্যাতি ।\
 > সব লোক আসি’ তাঁরে করে বহু ভক্তি ॥১৪৫॥
 
-> 'mādhava-purī śrīpāda āila',--loke haila khyāti
+> 'mādhava-purī śrīpāda āila',--loke haila khyāti\
 > saba loka āsi' tāṅre kare bahu bhakti
 
 *mādhava-purī*—Śrī Mādhavendra Purī; *śrīpāda*—sannyāsī; *āila*—ha llegado; *loke*—entre la gente; *haila*—hubo; *khyāti*—reputación; *saba loka*—todas las personas; *āsi'*—viniendo; *tāṅre*—a él; *kare*—hacen; *bahu*—mucha; *bhakti*—devoción.

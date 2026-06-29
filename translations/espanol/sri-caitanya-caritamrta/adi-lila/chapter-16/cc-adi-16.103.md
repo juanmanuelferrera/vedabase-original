@@ -1,9 +1,9 @@
 ### CC Adi 16.103
 
-> শৈশব-চাপল্য কিছু না লবে আমার ।
+> শৈশব-চাপল্য কিছু না লবে আমার ।\
 > শিষ্যের সমান মুঞি না হঙ তোমার ॥১০৩॥
 
-> śaiśava-cāpalya kichu nā labe āmāra
+> śaiśava-cāpalya kichu nā labe āmāra\
 > śiṣyera samāna muñi nā haṅ tomāra
 
 *śaiśava*—infantil; *cāpalya*—insolencia; *kichu*—nada; *nā*—no; *labe*—por favor, tomes; *āmāra*—Mía; *śiṣyera*—de discípulos; *samāna*—igual; *muñi*—Yo; *nā*—no; *haṅ*—soy; *tomāra*—tuyo.

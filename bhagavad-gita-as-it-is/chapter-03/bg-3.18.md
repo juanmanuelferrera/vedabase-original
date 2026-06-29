@@ -1,11 +1,11 @@
 ### Bg 3.18
 
-> नैव तस्य कृतेनार्थो नाकृतेनेह कश्चन ।
+> नैव तस्य कृतेनार्थो नाकृतेनेह कश्चन ।\
 > न चास्य सर्वभूतेषु कश्चिदर्थव्यपाश्रयः ॥१८॥
 
-> naiva tasya kṛtenārtho
-> nākṛteneha kaścana
-> na cāsya sarva-bhūteṣu
+> naiva tasya kṛtenārtho\
+> nākṛteneha kaścana\
+> na cāsya sarva-bhūteṣu\
 > kaścid artha-vyapāśrayaḥ
 
 *na*—never; *eva*—certainly; *tasya*—his; *kṛtena*—by discharge of duty; *arthaḥ*—purpose; *na*—nor; *akṛtena*—without discharge of duty; *iha*—in this world; *kaścana*—whatever; *na*—never; *ca*—and; *asya*—of him; *sarva-bhūteṣu*—in all living beings; *kaścit*—any; *artha*—purpose; *vyapa-āśrayaḥ*—taking shelter of.

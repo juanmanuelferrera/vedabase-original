@@ -1,11 +1,11 @@
 ### SB 6.3.18
 
-> भूतानि विष्णोः सुरपूजितानि दुर्दर्शलिङ्गानि महाद्भुतानि
+> भूतानि विष्णोः सुरपूजितानि दुर्दर्शलिङ्गानि महाद्भुतानि\
 > रक्षन्ति तद्भक्तिमतः परेभ्यो मत्तश्च मर्त्यानथ सर्वतश्च ॥१८॥
 
-> bhūtāni viṣṇoḥ sura-pūjitāni
-> durdarśa-liṅgāni mahādbhutāni
-> rakṣanti tad-bhaktimataḥ parebhyo
+> bhūtāni viṣṇoḥ sura-pūjitāni\
+> durdarśa-liṅgāni mahādbhutāni\
+> rakṣanti tad-bhaktimataḥ parebhyo\
 > mattaś ca martyān atha sarvataś ca
 
 *bhūtāni*—entidades vivientes o sirvientes; *viṣṇoḥ*—del Señor Viṣṇu; *sura-pūjitāni*—que son adorados por los semidioses; *durdarśa-liṅgāni*—con formas que no se ven fácilmente; *mahā-adbhutāni*—muy maravillosas; *rakṣanti*—ellos protegen; *tat-bhakti-mataḥ*—los devotos del Señor; *parebhyaḥ*—de otros, que son enemigos; *mattaḥ*—de mí (Yamarāja) y de mis mensajeros; *ca*—y; *martyān*—los seres humanos; *atha*—así; *sarvataḥ*—de todo; *ca*—y.

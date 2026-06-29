@@ -1,13 +1,13 @@
 ### SB 8.22.21
 
-> श्रीब्रह्मोवाच
-> भूतभावन भूतेश देवदेव जगन्मय
+> श्रीब्रह्मोवाच\
+> भूतभावन भूतेश देवदेव जगन्मय\
 > मुञ्चैनं हृतसर्वस्वं नायमर्हति निग्रहम ॥२१॥
 
-> śrī-brahmovāca
-> bhūta-bhāvana bhūteśa
-> deva-deva jaganmaya
-> muñcainaṁ hṛta-sarvasvaṁ
+> śrī-brahmovāca\
+> bhūta-bhāvana bhūteśa\
+> deva-deva jaganmaya\
+> muñcainaṁ hṛta-sarvasvaṁ\
 > nāyam arhati nigraham
 
 *śrī-brahmā uvāca*—Lord Brahmā said; *bhūta-bhāvana*—O Supreme Being, well-wisher of everyone, who can cause one to flourish; *bhūta-īśa*—O master of everyone; *deva-deva*—O worshipable Deity of the demigods; *jagat-maya*—O all-pervading one; *muñca*—please release; *enam*—this poor Bali Mahārāja; *hṛta-sarvasvam*—now bereft of everything; *na*—not; *ayam*—such a poor man; *arhati*—deserves; *nigraham*—punishment.

@@ -1,9 +1,9 @@
 ### CC Adi 14.47
 
-> বাহিরে যাঞা আনিলেন দুই নারিকেল ।
+> বাহিরে যাঞা আনিলেন দুই নারিকেল ।\
 > দেখিয়া অপূর্ব হৈল বিস্মিত সকল ॥৪৭॥
 
-> bāhire yāñā ānilena dui nārikela
+> bāhire yāñā ānilena dui nārikela\
 > dekhiyā apūrva haila vismita sakala
 
 *bāhire*—outside; *yāñā*—going; *ānilena*—He immediately brought; *dui*—two; *nārikela*—coconuts; *dekhiyā*—seeing; *apūrva*—this wonder; *haila*—became; *vismita*—astonished; *sakala*—all.

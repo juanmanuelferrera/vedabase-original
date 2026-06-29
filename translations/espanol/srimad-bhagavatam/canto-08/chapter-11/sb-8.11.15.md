@@ -1,11 +1,11 @@
 ### SB 8.11.15
 
-> गदाप्रहारव्यथितो भृशं विह्वलितो गजः
+> गदाप्रहारव्यथितो भृशं विह्वलितो गजः\
 > जानुभ्यां धरणीं स्पृष्ट्वा कश्मलं परमं ययौ ॥१५॥
 
-> gadā-prahāra-vyathito
-> bhṛśaṁ vihvalito gajaḥ
-> jānubhyāṁ dharaṇīṁ spṛṣṭvā
+> gadā-prahāra-vyathito\
+> bhṛśaṁ vihvalito gajaḥ\
+> jānubhyāṁ dharaṇīṁ spṛṣṭvā\
 > kaśmalaṁ paramaṁ yayau
 
 *gadā-prahāra-vyathitaḥ*—dolorido por el golpe de la maza de Jambhāsura; *bhṛśam*—mucho; *vihvalitaḥ*—perturbado; *gajaḥ*—el elefante; *jānubhyām*—con las dos rodillas; *dharaṇīm*—la Tierra; *spṛṣṭvā*—tocando; *kaśmalam*—inconsciencia; *paramam*—suprema; *yayau*—entró.

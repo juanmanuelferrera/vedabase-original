@@ -1,9 +1,9 @@
 ### CC Madhya 10.169
 
-> চর্ম ঘুচাঞা কৈল আমারে শোধন ৷
+> চর্ম ঘুচাঞা কৈল আমারে শোধন ৷\
 > দোঁহার ব্যাপ্য-ব্যাপকত্বে এই ত’ কারণ ৷৷ ১৬৯ ৷৷ ॥১৬৯॥
 
-> carma ghucāñā kaila āmāre śodhana
+> carma ghucāñā kaila āmāre śodhana\
 > doṅhāra vyāpya-vyāpakatve ei ta' kāraṇa
 
 *carma*—la piel de venado; *ghucāñā*—retirando; *kaila*—hizo; *āmāre*—a mí; *śodhana*—purificación; *doṅhāra*—de ambos; *vyāpya*—ser localizado; *vyāpakatve*—ser omnipresente; *ei*—esta; *ta'*—ciertamente; *kāraṇa*—la causa.

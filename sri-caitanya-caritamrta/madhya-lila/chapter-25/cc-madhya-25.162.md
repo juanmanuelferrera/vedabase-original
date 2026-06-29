@@ -1,9 +1,9 @@
 ### CC Madhya 25.162
 
-> তবে সব লোক শুনিতে আগ্রহ করিল ।
+> তবে সব লোক শুনিতে আগ্রহ করিল ।\
 > ‘একষষ্টি’ অর্থ প্রভু বিবরি’ কহিল ॥১৬২॥
 
-> tabe saba loka śunite āgraha karila
+> tabe saba loka śunite āgraha karila\
 > 'ekaṣaṣṭi' artha prabhu vivari' kahila
 
 *tabe*—then; *saba loka*—all the people gathered there; *śunite*—to hear; *āgraha karila*—expressed their eagerness; *eka-ṣaṣṭi artha*—sixty-one different meanings of the verse; *prabhu*—Śrī Caitanya Mahāprabhu; *vivari'*—elaborately; *kahila*—explained.

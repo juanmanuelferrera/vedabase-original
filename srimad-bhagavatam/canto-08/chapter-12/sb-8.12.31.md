@@ -1,11 +1,11 @@
 ### SB 8.12.31
 
-> तस्यासौ पदवीं रुद्रो विष्णोरद्भुतकर्मणः
+> तस्यासौ पदवीं रुद्रो विष्णोरद्भुतकर्मणः\
 > प्रत्यपद्यत कामेन वैरिणेव विनिर्जितः ॥३१॥
 
-> tasyāsau padavīṁ rudro
-> viṣṇor adbhuta-karmaṇaḥ
-> pratyapadyata kāmena
+> tasyāsau padavīṁ rudro\
+> viṣṇor adbhuta-karmaṇaḥ\
+> pratyapadyata kāmena\
 > vairiṇeva vinirjitaḥ
 
 *tasya*—of He who is the Supreme Lord; *asau*—Lord Śiva; *padavīm*—the place; *rudraḥ*—Lord Śiva; *viṣṇoḥ*—of Lord Viṣṇu; *adbhuta-karmaṇaḥ*—of He who acts very wonderfully; *pratyapadyata*—began to follow; *kāmena*—by lusty desire; *vairiṇā iva*—as if by an enemy; *vinirjitaḥ*—being harassed.

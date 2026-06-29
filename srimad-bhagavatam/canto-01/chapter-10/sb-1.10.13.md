@@ -1,11 +1,11 @@
 ### SB 1.10.13
 
-> सर्वे तेऽनिमिषैरक्षैस्तमनु द्रुतचेतसः ।
+> सर्वे तेऽनिमिषैरक्षैस्तमनु द्रुतचेतसः ।\
 > वीक्षन्तः स्नेहसम्बद्धा विचेलुस्तत्र तत्र ह ॥१३॥
 
-> sarve te 'nimiṣair akṣais
-> tam anu druta-cetasaḥ
-> vīkṣantaḥ sneha-sambaddhā
+> sarve te 'nimiṣair akṣais\
+> tam anu druta-cetasaḥ\
+> vīkṣantaḥ sneha-sambaddhā\
 > vicelus tatra tatra ha
 
 *sarve*—all; *te*—they; *animiṣaiḥ*—without twinkling of the eyes; *akṣaiḥ*—by the eye; *tam anu*—after Him; *druta-cetasaḥ*—melted heart; *vīkṣantaḥ*—looking upon Him; *sneha-sambaddhāḥ*—bound by pure affection; *viceluḥ*—began to move; *tatra tatra*—here and there; *ha*—so they did.

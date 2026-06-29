@@ -1,13 +1,13 @@
 ### CC Adi 1.11
 
-> যস্যাংশাংশাংশঃ পরাত্মাখিলানাং
-> পোষ্টা বিষ্ণুর্ভাতি দুগ্ধাব্ধিশায়ী ।
-> ক্ষৌণীভর্তা যৎকলা সোঽপ্যনন্ত-
+> যস্যাংশাংশাংশঃ পরাত্মাখিলানাং\
+> পোষ্টা বিষ্ণুর্ভাতি দুগ্ধাব্ধিশায়ী ।\
+> ক্ষৌণীভর্তা যৎকলা সোঽপ্যনন্ত-\
 > স্তং শ্রীনিত্যানন্দরামং প্রপদ্যে ॥১১॥
 
-> yasyāṁśāṁśāṁśaḥ parātmākhilānāṁ
-> poṣṭā viṣṇur bhāti dugdhābdhi-śāyī
-> kṣauṇī-bhartā yat-kalā so 'py anantas
+> yasyāṁśāṁśāṁśaḥ parātmākhilānāṁ\
+> poṣṭā viṣṇur bhāti dugdhābdhi-śāyī\
+> kṣauṇī-bhartā yat-kalā so 'py anantas\
 > taṁ śrī-nityānanda-rāmaṁ prapadye
 
 *yasya*—de quien; *aṁśa-aṁśa-aṁśaḥ*—una porción de una porción de una porción plenaria; *para-ātmā*—la Superalma; *akhilānām*—de todas las entidades vivientes; *poṣṭā*—el sustentador; *viṣṇuḥ*—Viṣṇu; *bhāti*—aparece; *dugdha-abdhi-śāyī*—Kṣīrodakaśāyī Viṣṇu; *kṣauṇī-bhartā*—sostenedor de la Tierra; *yat*—cuya; *kalā*—porción de una porción; *saḥ*—Él; *api*—ciertamente; *anantaḥ*—Śeṣa Nāga; *tam*—a Él; *śrī-nityānanda-rāmam*—al Señor Balarāma en la forma del Señor Nityānanda; *prapadye*—me rindo.

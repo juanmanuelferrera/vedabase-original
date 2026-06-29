@@ -1,13 +1,13 @@
 ### SB 6.13.4
 
-> श्रीशुक उवाच
-> वृत्रविक्रमसंविग्नाः सर्वे देवाः सहर्षिभिः
+> श्रीशुक उवाच\
+> वृत्रविक्रमसंविग्नाः सर्वे देवाः सहर्षिभिः\
 > तद्वधायार्थयन्निन्द्रं नैच्छद्भीतो बृहद्वधात ॥४॥
 
-> śrī-śuka uvāca
-> vṛtra-vikrama-saṁvignāḥ
-> sarve devāḥ saharṣibhiḥ
-> tad-vadhāyārthayann indraṁ
+> śrī-śuka uvāca\
+> vṛtra-vikrama-saṁvignāḥ\
+> sarve devāḥ saharṣibhiḥ\
+> tad-vadhāyārthayann indraṁ\
 > naicchad bhīto bṛhad-vadhāt
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *vṛtra*—de Vṛtrāsura; *vikrama*—por las poderosas actividades; *saṁvignāḥ*—llenos de ansiedades; *sarve*—todos; *devāḥ*—los semidioses; *saha ṛṣibhiḥ*—con los grandes sabios; *tat-vadhāya*—para que le matara; *ārthayan*—rogaron; *indram*—a Indra; *na aicchat*—no aceptó; *bhītaḥ*—temeroso; *bṛhat-vadhāt*—debido a matar a un *brāhmaṇa*.

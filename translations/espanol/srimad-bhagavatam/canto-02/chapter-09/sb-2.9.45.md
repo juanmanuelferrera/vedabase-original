@@ -1,11 +1,11 @@
 ### SB 2.9.45
 
-> नारदः प्राह मुनये सरस्वत्यास्तटे नृप ।
+> नारदः प्राह मुनये सरस्वत्यास्तटे नृप ।\
 > ध्यायते ब्रह्म परमं व्यासायामिततेजसे ॥४५॥
 
-> nāradaḥ prāha munaye
-> sarasvatyās taṭe nṛpa
-> dhyāyate brahma paramaṁ
+> nāradaḥ prāha munaye\
+> sarasvatyās taṭe nṛpa\
+> dhyāyate brahma paramaṁ\
 > vyāsāyāmita-tejase
 
 *nāradaḥ*—el gran sabio Nārada; *prāha*—instruyó; *munaye*—al gran sabio; *sarasvatyāḥ*—del río Sarasvatī; *taṭe*—en la ribera; *nṛpa*—¡oh, rey!; *dhyāyate*—al meditativo; *brahma*—Verdad Absoluta; *paramam*—el Supremo; *vyāsāya*—a Śrīla Vyāsadeva; *amita*—ilimitado; *tejase*—al poderoso.

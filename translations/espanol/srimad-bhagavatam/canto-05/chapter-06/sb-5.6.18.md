@@ -1,13 +1,13 @@
 ### SB 5.6.18
 
-> राजन्पतिर्गुरुरलं भवतां यदूनां
-> दैवं प्रियः कुलपतिः क्व च किङ्करो वः
-> अस्त्वेवमङ्ग भगवान्भजतां मुकुन्दो
+> राजन्पतिर्गुरुरलं भवतां यदूनां\
+> दैवं प्रियः कुलपतिः क्व च किङ्करो वः\
+> अस्त्वेवमङ्ग भगवान्भजतां मुकुन्दो\
 > मुक्तिं ददाति कर्हिचित्स्म न भक्तियोगम ॥१८॥
 
-> rājan patir gurur alaṁ bhavatāṁ yadūnāṁ
-> daivaṁ priyaḥ kula-patiḥ kva ca kiṅkaro vaḥ
-> astv evam aṅga bhagavān bhajatāṁ mukundo
+> rājan patir gurur alaṁ bhavatāṁ yadūnāṁ\
+> daivaṁ priyaḥ kula-patiḥ kva ca kiṅkaro vaḥ\
+> astv evam aṅga bhagavān bhajatāṁ mukundo\
 > muktiṁ dadāti karhicit sma na bhakti-yogam
 
 *rājan*—¡oh, mi querido rey!; *patiḥ*—sustentador; *guruḥ*—maestro espiritual; *alam*—ciertamente; *bhavatām*—de ti; *yadūnām*—la dinastía Yadu; *daivam*—la Deidad adorable; *priyaḥ*—muy querido amigo; *kula-patiḥ*—el amo de la dinastía; *kva ca*—a veces incluso; *kiṅkaraḥ*—sirviente; *vaḥ*—de ustedes (los Pāṇḍavas); *astu*—para estar seguro; *evam*—así; *aṅga*—¡oh, rey!; *bhagavān*—la Suprema Personalidad de Dios; *bhajatām*—de los devotos ocupados en servicio; *mukundaḥ*—el Señor, la Suprema Personalidad de Dios; *muktim*—liberación; *dadāti*—entrega; *karhicit*—en cualquier momento; *sma*—en efecto; *na*—no; *bhakti-yogam*—servicio devocional amoroso.

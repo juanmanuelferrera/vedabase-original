@@ -1,11 +1,11 @@
 ### SB 6.4.45
 
-> ब्रह्मा भवो भवन्तश्च मनवो विबुधेश्वराः
+> ब्रह्मा भवो भवन्तश्च मनवो विबुधेश्वराः\
 > विभूतयो मम ह्येता भूतानां भूतिहेतवः ॥४५॥
 
-> brahmā bhavo bhavantaś ca
-> manavo vibudheśvarāḥ
-> vibhūtayo mama hy etā
+> brahmā bhavo bhavantaś ca\
+> manavo vibudheśvarāḥ\
+> vibhūtayo mama hy etā\
 > bhūtānāṁ bhūti-hetavaḥ
 
 *brahmā*—el Señor Brahmā; *bhavaḥ*—el Señor Śiva; *bhavantaḥ*—todos ustedes, los *prajāpatis*; *ca*—y; *manavaḥ*—los*manus*; *vibudha-īśvarāḥ*—todos los semidioses (como el Sol, la Luna, Venus, Marte y Júpiter, que se encargan de diversas actividades para el bien del mundo); *vibhūtayaḥ*—expansiones de energía; *mama*—Mía; *hi*—en verdad; *etāḥ*—todos estos; *bhūtānām*—de todas las entidades vivientes; *bhūti*—de bienestar; *hetavaḥ*—causas.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.192
 
-> তবে সেই মহাপ্রভুর চরণ বন্দিয়া ।
+> তবে সেই মহাপ্রভুর চরণ বন্দিয়া ।\
 > সবার চরণ বন্দি’ চলে হৃষ্ট হঞা ॥১৯২॥
 
-> tabe sei mahāprabhura caraṇa vandiyā
+> tabe sei mahāprabhura caraṇa vandiyā\
 > sabāra caraṇa vandi' cale hṛṣṭa hañā
 
 *tabe*—thereafter; *sei*—the governor; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *caraṇa vandiyā*—after worshiping the lotus feet; *sabāra caraṇa vandi'*—offering respect to the feet of all the other devotees; *cale*—departed; *hṛṣṭa hañā*—being very pleased.

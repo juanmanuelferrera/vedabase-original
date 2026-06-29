@@ -1,9 +1,9 @@
 ### CC Adi 4.142
 
-> মন্মাধুর্য রাধার প্রেম — দোঁহে হোড় করি’ ।
+> মন্মাধুর্য রাধার প্রেম — দোঁহে হোড় করি’ ।\
 > ক্ষণে ক্ষণে বাড়ে দোঁহে, কেহ নাহি হারি ॥১৪২॥
 
-> man-mādhurya rādhāra prema--doṅhe hoḍa kari'
+> man-mādhurya rādhāra prema--doṅhe hoḍa kari'\
 > kṣaṇe kṣaṇe bāḍe doṅhe, keha nāhi hāri
 
 *mat-mādhurya*—Mi dulzura; *rādhāra*—de Śrīmatī Rādhārāṇī; *prema*—el amor; *doṅhe*—ambos juntos; *hoḍa kari'*—compitiendo; *kṣaṇe kṣaṇe*—a cada segundo; *bāḍe*—aumentan; *doṅhe*—ambos; *keha nāhi*—nadie; *hāri*—derrotado.

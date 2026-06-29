@@ -1,9 +1,9 @@
 ### CC Madhya 6.75
 
-> নিরন্তর ইঁহাকে বেদান্ত শুনাইব ।
+> নিরন্তর ইঁহাকে বেদান্ত শুনাইব ।\
 > বৈরাগ্য-অদ্বৈত-মার্গে প্রবেশ করাইব ॥৭৫॥
 
-> nirantara iṅhāke vedānta śunāiba
+> nirantara iṅhāke vedānta śunāiba\
 > vairāgya-advaita-mārge praveśa karāiba
 
 *nirantara*—continuamente; *iṅhāke*—a Él; *vedānta*—filosofía Vedānta; *śunāiba*—le recitaré; *vairāgya*—de la renunciación; *advaita*—del monismo; *mārge*—por el sendero; *praveśa*—entrada; *karāiba*—Le haré entrar.

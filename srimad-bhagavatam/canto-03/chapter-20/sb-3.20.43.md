@@ -1,11 +1,11 @@
 ### SB 3.20.43
 
-> त आत्मसर्गं तं कायं पितरः प्रतिपेदिरे ।
+> त आत्मसर्गं तं कायं पितरः प्रतिपेदिरे ।\
 > साध्येभ्यश्च पितृभ्यश्च कवयो यद्वितन्वते ॥४३॥
 
-> ta ātma-sargaṁ taṁ kāyaṁ
-> pitaraḥ pratipedire
-> sādhyebhyaś ca pitṛbhyaś ca
+> ta ātma-sargaṁ taṁ kāyaṁ\
+> pitaraḥ pratipedire\
+> sādhyebhyaś ca pitṛbhyaś ca\
 > kavayo yad vitanvate
 
 *te*—they; *ātma-sargam*—source of their existence; *tam*—that; *kāyam*—body; *pitaraḥ*—the Pitās; *pratipedire*—accepted; *sādhyebhyaḥ*—to the Sādhyas; *ca*—and; *pitṛbhyaḥ*—to the Pitās; *ca*—also; *kavayaḥ*—those well versed in rituals; *yat*—through which; *vitanvate*—offer oblations.

@@ -1,11 +1,11 @@
 ### SB 3.7.37
 
-> तत्त्वानां भगवंस्तेषां कतिधा प्रतिसङ्क्रमः ।
+> तत्त्वानां भगवंस्तेषां कतिधा प्रतिसङ्क्रमः ।\
 > तत्रेमं क उपासीरन्क उ स्विदनुशेरते ॥३७॥
 
-> tattvānāṁ bhagavaṁs teṣāṁ
-> katidhā pratisaṅkramaḥ
-> tatremaṁ ka upāsīran
+> tattvānāṁ bhagavaṁs teṣāṁ\
+> katidhā pratisaṅkramaḥ\
+> tatremaṁ ka upāsīran\
 > ka u svid anuśerate
 
 *tattvānām*—of the elements of nature; *bhagavan*—O great sage; *teṣām*—of them; *katidhā*—how many; *pratisaṅkramaḥ*—dissolutions; *tatra*—thereupon; *imam*—unto the Supreme Lord; *ke*—who are they; *upāsīran*—being saved; *ke*—who are they; *u*—who; *svit*—may; *anuśerate*—serve the Lord while He sleeps.

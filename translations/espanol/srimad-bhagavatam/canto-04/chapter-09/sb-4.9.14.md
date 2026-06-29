@@ -1,13 +1,13 @@
 ### SB 4.9.14
 
-> कल्पान्त एतदखिलं जठरेण गृह्णन्
-> शेते पुमान्स्वदृगनन्तसखस्तदङ्के ।
-> यन्नाभिसिन्धुरुहकाञ्चनलोकपद्म
+> कल्पान्त एतदखिलं जठरेण गृह्णन्\
+> शेते पुमान्स्वदृगनन्तसखस्तदङ्के ।\
+> यन्नाभिसिन्धुरुहकाञ्चनलोकपद्म\
 > गर्भे द्युमान्भगवते प्रणतोऽस्मि तस्मै ॥१४॥
 
-> kalpānta etad akhilaṁ jaṭhareṇa gṛhṇan
-> śete pumān sva-dṛg ananta-sakhas tad-aṅke
-> yan-nābhi-sindhu-ruha-kāñcana-loka-padma-
+> kalpānta etad akhilaṁ jaṭhareṇa gṛhṇan\
+> śete pumān sva-dṛg ananta-sakhas tad-aṅke\
+> yan-nābhi-sindhu-ruha-kāñcana-loka-padma-\
 > garbhe dyumān bhagavate praṇato 'smi tasmai
 
 *kalpa-ante*—al final del milenio; *etat*—este universo; *akhilam*—todo; *jaṭhareṇa*—dentro del estómago; *gṛhṇan*—retirando; *śete*—Se acuesta; *pumān*—la Persona Suprema; *sva-dṛk*—mirándose a Sí mismo; *ananta*—Śeṣa, el ser ilimitado; *sakhaḥ*—en compañía de; *tat-aṅke*—en Su regazo; *yat*—de cuyo; *nābhi*—ombligo; *sindhu*—océano; *ruha*—brotó; *kāñcana*—dorado; *loka*—planeta; *padma*—del loto; *garbhe*—en el verticilo; *dyumān*—el Señor Brahmā; *bhagavate*—a la Suprema Personalidad de Dios; *praṇataḥ*—ofreciendo reverencias; *asmi*—estoy; *tasmai*—a Él.

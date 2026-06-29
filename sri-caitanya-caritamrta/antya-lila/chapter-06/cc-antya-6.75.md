@@ -1,9 +1,9 @@
 ### CC Antya 6.75
 
-> গোপ-জাতি আমি বহু গোপগণ সঙ্গে ।
+> গোপ-জাতি আমি বহু গোপগণ সঙ্গে ।\
 > আমি সুখ পাই এই পুলিনভোজন-রঙ্গে ।।” ॥ ৭৫ ॥
 
-> gopa-jāti āmi bahu gopa-gaṇa saṅge
+> gopa-jāti āmi bahu gopa-gaṇa saṅge\
 > āmi sukha pāi ei pulina-bhojana-raṅge"
 
 *gopa-jāti*—belonging to the community of cowherd boys; *āmi*—I; *bahu*—many; *gopa-gaṇa*—cowherd boys; *saṅge*—with; *āmi*—I; *sukha pāi*—become very happy; *ei*—this; *pulina*—by the riverside; *bhojana-raṅge*—in the enjoyment of eating.

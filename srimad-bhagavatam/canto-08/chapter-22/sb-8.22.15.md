@@ -1,11 +1,11 @@
 ### SB 8.22.15
 
-> स तत्र हासीनमुदीक्ष्य सत्पतिं हरिं सुनन्दाद्यनुगैरुपासितम
+> स तत्र हासीनमुदीक्ष्य सत्पतिं हरिं सुनन्दाद्यनुगैरुपासितम\
 > उपेत्य भूमौ शिरसा महामना ननाम मूर्ध्ना पुलकाश्रुविक्लवः ॥१५॥
 
-> sa tatra hāsīnam udīkṣya sat-patiṁ
-> hariṁ sunandādy-anugair upāsitam
-> upetya bhūmau śirasā mahā-manā
+> sa tatra hāsīnam udīkṣya sat-patiṁ\
+> hariṁ sunandādy-anugair upāsitam\
+> upetya bhūmau śirasā mahā-manā\
 > nanāma mūrdhnā pulakāśru-viklavaḥ
 
 *saḥ*—Prahlāda Mahārāja; *tatra*—there; *ha āsīnam*—seated; *udīkṣya*—after seeing; *sat-patim*—the Supreme Personality of Godhead, master of the liberated souls; *harim*—Lord Hari; *sunanda-ādi-anugaiḥ*—by His followers, like Sunanda; *upāsitam*—being worshiped; *upetya*—reaching nearby; *bhūmau*—on the ground; *śirasā*—with his head (bowed down); *mahā-manāḥ*—the great devotee; *nanāma*—offered obeisances; *mūrdhnā*—with his head; *pulaka-aśru-viklavaḥ*—agitated by tears of jubilation.

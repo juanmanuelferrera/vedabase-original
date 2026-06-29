@@ -1,11 +1,11 @@
 ### SB 4.20.15
 
-> एवं द्विजाग्र्यानुमतानुवृत्त धर्मप्रधानोऽन्यतमोऽवितास्याः ।
+> एवं द्विजाग्र्यानुमतानुवृत्त धर्मप्रधानोऽन्यतमोऽवितास्याः ।\
 > ह्रस्वेन कालेन गृहोपयातान्द्रष्टासि सिद्धाननुरक्तलोकः ॥१५॥
 
-> evaṁ dvijāgryānumatānuvṛtta-
-> dharma-pradhāno 'nyatamo 'vitāsyāḥ
-> hrasvena kālena gṛhopayātān
+> evaṁ dvijāgryānumatānuvṛtta-\
+> dharma-pradhāno 'nyatamo 'vitāsyāḥ\
+> hrasvena kālena gṛhopayātān\
 > draṣṭāsi siddhān anurakta-lokaḥ
 
 *evam*—thus; *dvija*—of the *brāhmaṇas*; *agrya*—by the foremost; *anumata*—approved; *anuvṛtta*—received by disciplic succession; *dharma*—religious principles; *pradhānaḥ*—he whose chief interest is; *anyatamaḥ*—unattached; *avitā*—the protector; *asyāḥ*—of the earth; *hrasvena*—short; *kālena*—in time; *gṛha*—to your home; *upayātān*—having come personally; *draṣṭāsi*—you will see; *siddhān*—perfected personalities; *anurakta-lokaḥ*—being loved by the citizens.

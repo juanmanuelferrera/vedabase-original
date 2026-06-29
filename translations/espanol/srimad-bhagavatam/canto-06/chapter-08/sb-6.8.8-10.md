@@ -1,24 +1,24 @@
 ### SB 6.8.8-10
 
-> न्यसेद्धृदय ओंकारं विकारमनु मूर्धनि
-> षकारं तु भ्रुवोर्मध्ये णकारं शिखया न्यसेत ॥८॥
-> वेकारं नेत्रयोर्युञ्ज्यान्नकारं सर्वसन्धिषु
-> मकारमस्त्रमुद्दिश्य मन्त्रमूर्तिर्भवेद्बुधः ॥९॥
-> सविसर्गं फडन्तं तत्सर्वदिक्षु विनिर्दिशेत
+> न्यसेद्धृदय ओंकारं विकारमनु मूर्धनि\
+> षकारं तु भ्रुवोर्मध्ये णकारं शिखया न्यसेत ॥८॥\
+> वेकारं नेत्रयोर्युञ्ज्यान्नकारं सर्वसन्धिषु\
+> मकारमस्त्रमुद्दिश्य मन्त्रमूर्तिर्भवेद्बुधः ॥९॥\
+> सविसर्गं फडन्तं तत्सर्वदिक्षु विनिर्दिशेत\
 > ओं विष्णवे नम इति ॥१०॥
 
-> nyased dhṛdaya oṁkāraṁ
-> vi-kāram anu mūrdhani
-> ṣa-kāraṁ tu bhruvor madhye
+> nyased dhṛdaya oṁkāraṁ\
+> vi-kāram anu mūrdhani\
+> ṣa-kāraṁ tu bhruvor madhye\
 > ṇa-kāraṁ śikhayā nyaset
 
-> ve-kāraṁ netrayor yuñjyān
-> na-kāraṁ sarva-sandhiṣu
-> ma-kāram astram uddiśya
+> ve-kāraṁ netrayor yuñjyān\
+> na-kāraṁ sarva-sandhiṣu\
+> ma-kāram astram uddiśya\
 > mantra-mūrtir bhaved budhaḥ
 
-> savisargaṁ phaḍ-antaṁ tat
-> sarva-dikṣu vinirdiśet
+> savisargaṁ phaḍ-antaṁ tat\
+> sarva-dikṣu vinirdiśet\
 > oṁ viṣṇave nama iti
 
 *nyaset*—debe situar; *hṛdaye*—en el corazón; *oṁkāram*—el *praṇava*, *oṁkāra*; *vi-kāram*—la sílaba *vi* de*viṣṇave*; *anu*—a continuación; *mūrdhani*—en lo alto de la cabeza; *ṣa-kāram*—la sílaba *ṣa*; *tu*—y; *bhruvoḥ madhye*—entre las cejas; *ṇa-kāram*—la sílaba *ṇa*; *śikhayā*—sobre la *śikhā*, en la cabeza; *nyaset*—debe situar; *vekāram*—la sílaba *ve*; *netrayoḥ*—entre los ojos; *yuñjyāt*—debe ser situada; *na-kāram*—la sílaba *na* de la palabra *namaḥ*; *ma-kāram*—la sílaba *ma* de la palabra*namaḥ*; *astram*—un arma; *uddiśya*—pensar; *mantra-mūrtiḥ*—la forma del *mantra*; *bhavet*—debe volverse; *budhaḥ*—la persona inteligente; *sa-visargam*—con la *visarga* (*ḥ*); *phaṭ-antam*—que termina con el sonido*phaṭ*; *tat*—ese; *sarva-dikṣu*—en todas direcciones; *vinirdiśet*—debe fijar; *oṁ*—*praṇava*; *viṣṇave*—al Señor Viṣṇu; *iti*—así.

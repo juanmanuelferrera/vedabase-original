@@ -1,9 +1,9 @@
 ### CC Madhya 15.227
 
-> কৃষ্ণের ভোগ লাগাঞাছ, — অনুমান করি ।
+> কৃষ্ণের ভোগ লাগাঞাছ, — অনুমান করি ।\
 > উপরে দেখিয়ে যাতে তুলসী-মঞ্জরী ॥২২৭॥
 
-> kṛṣṇera bhoga lāgāñācha,--anumāna kari
+> kṛṣṇera bhoga lāgāñācha,--anumāna kari\
 > upare dekhiye yāte tulasī-mañjarī
 
 *kṛṣṇera bhoga lāgāñācha*—has ofrecido a Kṛṣṇa; *anumāna kari*—eso supongo; *upare*—sobre la comida; *dekhiye*—veo; *yāte*—puesto que; *tulasī-mañjarī*—flores del árbol de tulasī.

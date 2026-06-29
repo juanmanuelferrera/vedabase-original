@@ -1,9 +1,9 @@
 ### CC Antya 2.82
 
-> শিবানন্দের প্রেমসীমা কে কহিতে পারে ?
+> শিবানন্দের প্রেমসীমা কে কহিতে পারে ?\
 > যাঁর প্রেমে বশ প্রভু আইসে বারে বারে ॥৮২॥
 
-> śivānandera prema-sīmā ke kahite pāre?
+> śivānandera prema-sīmā ke kahite pāre?\
 > yāṅra preme vaśa prabhu āise bāre bāre
 
 *śivānandera*—of Śivānanda Sena; *prema-sīmā*—the limit of love; *ke*—who; *kahite pāre*—can estimate; *yāṅra*—whose; *preme*—by loving affairs; *vaśa*—influenced; *prabhu*—Śrī Caitanya Mahāprabhu; *āise*—comes; *bāre bāre*—again and again.

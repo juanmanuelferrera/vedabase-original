@@ -1,9 +1,9 @@
 ### CC Madhya 1.91
 
-> প্রথম সূত্র প্রভুর সন্ন্যাসকরণ ।
+> প্রথম সূত্র প্রভুর সন্ন্যাসকরণ ।\
 > সন্ন্যাস করি’ চলিলা প্রভু শ্রীবৃন্দাবন ॥৯১॥
 
-> prathama sūtra prabhura sannyāsa-karaṇa
+> prathama sūtra prabhura sannyāsa-karaṇa\
 > sannyāsa kari' calilā prabhu śrī-vṛndāvana
 
 *prathama*—first; *sūtra*—synopsis; *prabhura*—of the Lord; *sannyāsa-karaṇa*—accepting the *sannyāsa* order; *sannyāsa kari'*—after accepting the renounced order; *calilā*—went; *prabhu*—the Lord; *śrī-vṛndāvana*—toward Vṛndāvana.

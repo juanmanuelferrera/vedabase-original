@@ -1,14 +1,14 @@
 ### SB 5.11.8
 
-> गुणानुरक्तं व्यसनाय जन्तोः क्षेमाय नैर्गुण्यमथो मनः स्यात
-> यथा प्रदीपो घृतवर्तिमश्नन्शिखाः सधूमा भजति ह्यन्यदा स्वम
+> गुणानुरक्तं व्यसनाय जन्तोः क्षेमाय नैर्गुण्यमथो मनः स्यात\
+> यथा प्रदीपो घृतवर्तिमश्नन्शिखाः सधूमा भजति ह्यन्यदा स्वम\
 > पदं तथा गुणकर्मानुबद्धं वृत्तीर्मनः श्रयतेऽन्यत्र तत्त्वम ॥८॥
 
-> guṇānuraktaṁ vyasanāya jantoḥ
-> kṣemāya nairguṇyam atho manaḥ syāt
-> yathā pradīpo ghṛta-vartim aśnan
-> śikhāḥ sadhūmā bhajati hy anyadā svam
-> padaṁ tathā guṇa-karmānubaddhaṁ
+> guṇānuraktaṁ vyasanāya jantoḥ\
+> kṣemāya nairguṇyam atho manaḥ syāt\
+> yathā pradīpo ghṛta-vartim aśnan\
+> śikhāḥ sadhūmā bhajati hy anyadā svam\
+> padaṁ tathā guṇa-karmānubaddhaṁ\
 > vṛttīr manaḥ śrayate 'nyatra tattvam
 
 *guṇa-anuraktam*—al estar apegada a las modalidades materiales de la naturaleza; *vyasanāya*—para el condicionamiento en la existencia material; *jantoḥ*—de la entidad viviente; *kṣemāya*—para el bienestar supremo; *nairguṇyam*—al estar libre de la influencia de las modalidades materiales de la naturaleza; *atho*—así; *manaḥ*—la mente; *syāt*—se vuelve; *yathā*—tanto como; *pradīpaḥ*—una lámpara; *ghṛta-vartim*—una mecha empapada en mantequilla clarificada; *aśnan*—ardiendo; *śikhāḥ*—la llama; *sadhūmāḥ*—con humo; *bhajati*—disfruta; *hi*—ciertamente; *anyadā*—de otra manera; *svam*—su propia original; *padam*—posición; *tathā*—así; *guṇa-karma-anubaddham*—atada por las modalidades de la naturaleza y las reacciones de las actividades materiales; *vṛttīḥ*—diversas ocupaciones; *manaḥ*—la mente; *śrayate*—se refugia en; *anyatra*—de otra manera; *tattvam*—su condición original.

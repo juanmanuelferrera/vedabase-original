@@ -1,9 +1,9 @@
 ### CC Antya 19.19
 
-> “প্রভুরে কহিহ আমার কোটি নমস্কার  ।
+> “প্রভুরে কহিহ আমার কোটি নমস্কার  ।\
 > এই নিবেদন তাঁর চরণে আমার ॥১৯॥
 
-> "prabhure kahiha āmāra koṭi namaskāra
+> "prabhure kahiha āmāra koṭi namaskāra\
 > ei nivedana tāṅra caraṇe āmāra
 
 *prabhure kahiha*—simplemente informa al Señor Caitanya; *āmāra*—Mis; *koṭi namaskāra*—cientos de miles de reverencias; *ei nivedana*—esta es la súplica; *tāṅra*—a Sus; *caraṇe*—pies de loto; *āmāra*—Mías.

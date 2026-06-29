@@ -1,11 +1,11 @@
 ### SB 4.30.32
 
-> पारिजातेऽञ्जसा लब्धे सारङ्गोऽन्यन्न सेवते ।
+> पारिजातेऽञ्जसा लब्धे सारङ्गोऽन्यन्न सेवते ।\
 > त्वदङ्घ्रिमूलमासाद्य साक्षात्किं किं वृणीमहि ॥३२॥
 
-> pārijāte 'ñjasā labdhe
-> sāraṅgo 'nyan na sevate
-> tvad-aṅghri-mūlam āsādya
+> pārijāte 'ñjasā labdhe\
+> sāraṅgo 'nyan na sevate\
+> tvad-aṅghri-mūlam āsādya\
 > sākṣāt kiṁ kiṁ vṛṇīmahi
 
 *pārijāte*—*pārijāta,* el árbol celestial; *añjasā*—completamente; *labdhe*—habiendo logrado; *sāraṅgaḥ*—una abeja; *anyat*—ningún otro; *na sevate*—no recurre a; *tvat-aṅghri*—Tus pies de loto; *mūlam*—la raíz de todo; *āsādya*—haberse acercado; *sākṣāt*—directamente; *kim*—qué; *kim*—qué; *vṛṇīmahi*—podemos pedir.

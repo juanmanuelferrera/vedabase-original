@@ -1,11 +1,11 @@
 ### SB 9.7.2
 
-> नर्मदा भ्रातृभिर्दत्ता पुरुकुत्साय योरगैः
+> नर्मदा भ्रातृभिर्दत्ता पुरुकुत्साय योरगैः\
 > तया रसातलं नीतो भुजगेन्द्रप्रयुक्तया ॥२॥
 
-> narmadā bhrātṛbhir dattā
-> purukutsāya yoragaiḥ
-> tayā rasātalaṁ nīto
+> narmadā bhrātṛbhir dattā\
+> purukutsāya yoragaiḥ\
+> tayā rasātalaṁ nīto\
 > bhujagendra-prayuktayā
 
 *narmadā*—llamada Narmadā; *bhrātṛbhiḥ*—por sus hermanos; *dattā*—fue dada en caridad; *purukutsāya*—a Purukutsa; *yā*—la cual; *uragaiḥ*—por las serpientes (*sarpa-gaṇa*); *tayā*—por ella; *rasātalam*—a las regiones inferiores del universo; *nītaḥ*—fue llevado; *bhujaga-indra-prayuktayā*—ocupada por Vāsuki, el rey de las serpientes.

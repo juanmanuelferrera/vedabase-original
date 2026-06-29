@@ -1,9 +1,9 @@
 ### CC Madhya 8.286
 
-> মোর তত্ত্বলীলা-রস তোমার গোচরে ।
+> মোর তত্ত্বলীলা-রস তোমার গোচরে ।\
 > অতএব এইরূপ দেখাইলুঁ তোমারে ॥২৮৬॥
 
-> mora tattva-līlā-rasa tomāra gocare
+> mora tattva-līlā-rasa tomāra gocare\
 > ataeva ei-rūpa dekhāiluṅ tomāre
 
 *mora*—My; *tattva-līlā*—truth and pastimes; *rasa*—and mellows; *tomāra*—of you; *gocare*—within the knowledge; *ataeva*—therefore; *ei-rūpa*—this form; *dekhāiluṅ*—I have shown; *tomāre*—unto you.

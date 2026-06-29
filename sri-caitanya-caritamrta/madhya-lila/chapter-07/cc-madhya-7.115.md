@@ -1,9 +1,9 @@
 ### CC Madhya 7.115
 
-> আশ্চর্য শুনিয়া লোক আইল দেখিবারে ।
+> আশ্চর্য শুনিয়া লোক আইল দেখিবারে ।\
 > প্ৰভুর রূপ-প্রেম দেখি’ হৈলা চমত্কারে ॥১১৫॥
 
-> āścarya śuniyā loka āila dekhibāre
+> āścarya śuniyā loka āila dekhibāre\
 > prabhura rūpa-prema dekhi' hailā camatkāre
 
 *āścarya*—wonderful occurrence; *śuniyā*—hearing; *loka*—people; *āila*—came; *dekhibāre*—to see; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *rūpa*—beauty; *prema*—and love of Godhead; *dekhi'*—seeing; *hailā*—there was; *camatkāre*—astonishment.

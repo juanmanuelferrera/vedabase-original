@@ -1,9 +1,9 @@
 ### CC Madhya 25.270
 
-> ইহার প্রসাদে পাইবা কৃষ্ণতত্ত্বসার ।
+> ইহার প্রসাদে পাইবা কৃষ্ণতত্ত্বসার ।\
 > সর্বশাস্ত্র-সিদ্ধান্তের ইহাঁ পাইবা পার ॥২৭০॥
 
-> ihāra prasāde pāibā kṛṣṇa-tattva-sāra
+> ihāra prasāde pāibā kṛṣṇa-tattva-sāra\
 > sarva-śāstra-siddhāntera ihāṅ pāibā pāra
 
 *ihāra prasāde*—al escuchar estas enseñanzas de Śrī Caitanya Mahāprabhu; *pāibā*—obtendréis; *kṛṣṇa-tattva-sāra*—la esencia de la verdad acerca de Kṛṣṇa; *sarva-śāstra*—de todas las Escrituras reveladas; *siddhāntera*—de las conclusiones; *ihāṅ*—aquí; *pāibā*—obtendréis; *pāra*—el límite último.

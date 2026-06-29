@@ -1,11 +1,11 @@
 ### SB 4.26.16
 
-> क्व वर्तते सा ललना मज्जन्तं व्यसनार्णवे ।
+> क्व वर्तते सा ललना मज्जन्तं व्यसनार्णवे ।\
 > या मामुद्धरते प्रज्ञां दीपयन्ती पदे पदे ॥१६॥
 
-> kva vartate sā lalanā
-> majjantaṁ vyasanārṇave
-> yā mām uddharate prajñāṁ
+> kva vartate sā lalanā\
+> majjantaṁ vyasanārṇave\
+> yā mām uddharate prajñāṁ\
 > dīpayantī pade pade
 
 *kva*—where; *vartate*—is now staying; *sā*—she; *lalanā*—woman; *majjantam*—while drowning; *vyasana-arṇave*—in the ocean of danger; *yā*—who; *mām*—me; *uddharate*—delivers; *prajñām*—good intelligence; *dīpayantī*—enlightening; *pade pade*—in every step.

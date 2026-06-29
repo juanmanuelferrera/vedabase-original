@@ -1,11 +1,11 @@
 ### SB 4.24.4
 
-> पावकः पवमानश्च शुचिरित्यग्नयः पुरा ।
+> पावकः पवमानश्च शुचिरित्यग्नयः पुरा ।\
 > वसिष्ठशापादुत्पन्नाः पुनर्योगगतिं गताः ॥४॥
 
-> pāvakaḥ pavamānaś ca
-> śucir ity agnayaḥ purā
-> vasiṣṭha-śāpād utpannāḥ
+> pāvakaḥ pavamānaś ca\
+> śucir ity agnayaḥ purā\
+> vasiṣṭha-śāpād utpannāḥ\
 > punar yoga-gatiṁ gatāḥ
 
 *pāvakaḥ*—de nombre Pāvaka; *pavamānaḥ*—de nombre Pavamāna; *ca*—también; *śuciḥ*—de nombre Śuci; *iti*—de este modo; *agnayaḥ*—los dioses del fuego; *purā*—en el pasado; *vasiṣṭha*—el gran sabio Vasiṣṭha; *śāpāt*—por ser maldecidos; *utpannāḥ*—ahora nacidos de esa forma; *punaḥ*—de nuevo; *yoga-gatim*—el destino de la práctica del *yoga* místico; *gatāḥ*—lograron.

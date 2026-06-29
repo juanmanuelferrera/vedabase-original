@@ -1,11 +1,11 @@
 ### SB 3.3.2
 
-> सान्दीपनेः सकृत्प्रोक्तं ब्रह्माधीत्य सविस्तरम् ।
+> सान्दीपनेः सकृत्प्रोक्तं ब्रह्माधीत्य सविस्तरम् ।\
 > तस्मै प्रादाद्वरं पुत्रं मृतं पञ्चजनोदरात् ॥२॥
 
-> sāndīpaneḥ sakṛt proktaṁ
-> brahmādhītya sa-vistaram
-> tasmai prādād varaṁ putraṁ
+> sāndīpaneḥ sakṛt proktaṁ\
+> brahmādhītya sa-vistaram\
+> tasmai prādād varaṁ putraṁ\
 > mṛtaṁ pañca-janodarāt
 
 *sāndīpaneḥ*—of Sāndīpani Muni; *sakṛt*—once only; *proktam*—instructed; *brahma*—all the *Vedas* with their different branches of knowledge; *adhītya*—after studying; *sa-vistaram*—in all details; *tasmai*—unto him; *prādāt*—rewarded; *varam*—a benediction; *putram*—his son; *mṛtam*—who was already dead; *pañca-jana*—the region of the departed souls; *udarāt*—from within.

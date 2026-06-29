@@ -1,9 +1,9 @@
 ### CC Madhya 20.395
 
-> কোন ব্ৰহ্মাণ্ডে কোন লীলার হয় অবস্থান ।
+> কোন ব্ৰহ্মাণ্ডে কোন লীলার হয় অবস্থান ।\
 > তাতে লীলা ‘নিত্য’ কহে আগম-পুরাণ ॥৩৯৫॥
 
-> kona brahmāṇḍe kona līlāra haya avasthāna
+> kona brahmāṇḍe kona līlāra haya avasthāna\
 > tāte līlā 'nitya' kahe āgama-purāṇa
 
 *kona brahmāṇḍe*—en algún universo; *kona līlāra*—de algunos pasatiempos; *haya*—hay; *avasthāna*—la presencia; *tāte*—por lo tanto; *līlā*—pasatiempos; *nitya*—eternos; *kahe*—explican; *āgama-purāṇa*—los *Vedas* y los *Purāṇas*.

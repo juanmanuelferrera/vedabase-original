@@ -1,11 +1,11 @@
 ### SB 9.16.9
 
-> येऽर्जुनस्य सुता राजन्स्मरन्तः स्वपितुर्वधम
+> येऽर्जुनस्य सुता राजन्स्मरन्तः स्वपितुर्वधम\
 > रामवीर्यपराभूता लेभिरे शर्म न क्वचित ॥९॥
 
-> ye 'rjunasya sutā rājan
-> smarantaḥ sva-pitur vadham
-> rāma-vīrya-parābhūtā
+> ye 'rjunasya sutā rājan\
+> smarantaḥ sva-pitur vadham\
+> rāma-vīrya-parābhūtā\
 > lebhire śarma na kvacit
 
 *ye*—aquellos que; *arjunasya*—de Kārtavīryārjuna; *sutāḥ*—los hijos; *rājan*—¡oh, Mahārāja Parīkṣit!; *smarantaḥ*—siempre recordando; *sva-pituḥ vadham*—que su padre había sido matado (por Paraśurāma); *rāma-vīrya-parābhūtāḥ*—vencidos por el poder superior del Señor Paraśurāma; *lebhire*—obtenían; *śarma*—felicidad; *na*—no; *kvacit*—en ningún momento.

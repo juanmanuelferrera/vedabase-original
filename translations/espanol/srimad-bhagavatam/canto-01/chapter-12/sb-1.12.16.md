@@ -1,11 +1,11 @@
 ### SB 1.12.16
 
-> दैवेनाप्रतिघातेन शुक्ले संस्थामुपेयुषि ।
+> दैवेनाप्रतिघातेन शुक्ले संस्थामुपेयुषि ।\
 > रातो वोऽनुग्रहार्थाय विष्णुना प्रभविष्णुना ॥१६॥
 
-> daivenāpratighātena
-> śukle saṁsthām upeyuṣi
-> rāto vo 'nugrahārthāya
+> daivenāpratighātena\
+> śukle saṁsthām upeyuṣi\
+> rāto vo 'nugrahārthāya\
 > viṣṇunā prabhaviṣṇunā
 
 *daivena*—mediante poder sobrenatural; *apratighātena*—mediante los que es irresistible; *śukle*—al puro; *saṁsthām*—destrucción; *upeyuṣi*—habiéndosele impuesto; *rātaḥ*—restituido; *vaḥ*—para ti; *anugraha-arthāya*—con objeto de complacerte; *viṣṇunā*—por el omnipresente Señor; *prabhaviṣṇunā*—por el todopoderoso.

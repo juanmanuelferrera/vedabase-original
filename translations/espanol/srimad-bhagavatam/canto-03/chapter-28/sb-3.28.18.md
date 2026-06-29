@@ -1,11 +1,11 @@
 ### SB 3.28.18
 
-> कीर्तन्यतीर्थयशसं पुण्यश्लोकयशस्करम् ।
+> कीर्तन्यतीर्थयशसं पुण्यश्लोकयशस्करम् ।\
 > ध्यायेद्देवं समग्राङ्गं यावन्न च्यवते मनः ॥१८॥
 
-> kīrtanya-tīrtha-yaśasaṁ
-> puṇya-śloka-yaśaskaram
-> dhyāyed devaṁ samagrāṅgaṁ
+> kīrtanya-tīrtha-yaśasaṁ\
+> puṇya-śloka-yaśaskaram\
+> dhyāyed devaṁ samagrāṅgaṁ\
 > yāvan na cyavate manaḥ
 
 *kīrtanya*—dignas de ser cantadas; *tīrtha-yaśasam*—las glorias del Señor; *puṇya-śloka*—de los devotos; *yaśaḥ-karam*—realzando la gloria; *dhyāyet*—debe meditar; *devam*—en el Señor; *samagra-aṅgam*—todos los miembros; *yāvat*—tanto como; *na*—no; *cyavate*—desvía; *manaḥ*—la mente.

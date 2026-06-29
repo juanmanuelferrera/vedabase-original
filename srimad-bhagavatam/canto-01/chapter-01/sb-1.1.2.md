@@ -1,13 +1,13 @@
 ### SB 1.1.2
 
-> धर्मः प्रोज्झितकैतवोऽत्र परमो निर्मत्सराणां सतां
-> वेद्यं वास्तवमत्र वस्तु शिवदं तापत्रयोन्मूलनम् ।
-> श्रीमद्भागवते महामुनिकृते किं वा परैरीश्वरः
+> धर्मः प्रोज्झितकैतवोऽत्र परमो निर्मत्सराणां सतां\
+> वेद्यं वास्तवमत्र वस्तु शिवदं तापत्रयोन्मूलनम् ।\
+> श्रीमद्भागवते महामुनिकृते किं वा परैरीश्वरः\
 > सद्यो हृद्यवरुध्यतेऽत्र कृतिभिः शुश्रूषुभिस्तत्क्षणात् ॥२॥
 
-> dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satāṁ
-> vedyaṁ vāstavam atra vastu śivadaṁ tāpa-trayonmūlanam
-> śrīmad-bhāgavate mahā-muni-kṛte kiṁ vā parair īśvaraḥ
+> dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satāṁ\
+> vedyaṁ vāstavam atra vastu śivadaṁ tāpa-trayonmūlanam\
+> śrīmad-bhāgavate mahā-muni-kṛte kiṁ vā parair īśvaraḥ\
 > sadyo hṛdy avarudhyate 'tra kṛtibhiḥ śuśrūṣubhis tat-kṣaṇāt
 
 *dharmaḥ*—religiosity; *projjhita*—completely rejected; *kaitavaḥ*—covered by fruitive intention; *atra*—herein; *paramaḥ*—the highest; *nirmatsarāṇām*—of the one-hundred-percent pure in heart; *satām*—devotees; *vedyam*—understandable; *vāstavam*—factual; *atra*—herein; *vastu*—substance; *śivadam*—well-being; *tāpa-traya*—threefold miseries; *unmūlanam*—causing uprooting of; *śrīmat*—beautiful; *bhāgavate*—the *Bhāgavata Purāṇa*; *mahā-muni*—the great sage (Vyāsadeva); *kṛte*—having compiled; *kim*—what is; *vā*—the need; *paraiḥ*—others; *īśvaraḥ*—the Supreme Lord; *sadyaḥ*—at once; *hṛdi*—within the heart; *avarudhyate*—become compact; *atra*—herein; *kṛtibhiḥ*—by the pious men; *śuśrūṣubhiḥ*—by culture; *tat-kṣaṇāt*—without delay.

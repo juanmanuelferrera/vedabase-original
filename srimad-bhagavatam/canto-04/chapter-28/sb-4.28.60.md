@@ -1,11 +1,11 @@
 ### SB 4.28.60
 
-> न त्वं विदर्भदुहिता नायं वीरः सुहृत्तव ।
+> न त्वं विदर्भदुहिता नायं वीरः सुहृत्तव ।\
 > न पतिस्त्वं पुरञ्जन्या रुद्धो नवमुखे यया ॥६०॥
 
-> na tvaṁ vidarbha-duhitā
-> nāyaṁ vīraḥ suhṛt tava
-> na patis tvaṁ purañjanyā
+> na tvaṁ vidarbha-duhitā\
+> nāyaṁ vīraḥ suhṛt tava\
+> na patis tvaṁ purañjanyā\
 > ruddho nava-mukhe yayā
 
 *na*—not; *tvam*—you; *vidarbha-duhitā*—daughter of Vidarbha; *na*—not; *ayam*—this; *vīraḥ*—hero; *su-hṛt*—well-wishing husband; *tava*—your; *na*—not; *patiḥ*—husband; *tvam*—you; *purañjanyāḥ*—of Purañjanī; *ruddhaḥ*—captured; *nava-mukhe*—in the body having nine gates; *yayā*—by the material energy.

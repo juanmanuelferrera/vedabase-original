@@ -1,18 +1,18 @@
 ### SB 7.15.32-33
 
-> प्राणापानौ सन्निरुन्ध्यात्पूरकुम्भकरेचकैः
-> यावन्मनस्त्यजेत्कामान्स्वनासाग्रनिरीक्षणः ॥३२॥
-> यतो यतो निःसरति मनः कामहतं भ्रमत
+> प्राणापानौ सन्निरुन्ध्यात्पूरकुम्भकरेचकैः\
+> यावन्मनस्त्यजेत्कामान्स्वनासाग्रनिरीक्षणः ॥३२॥\
+> यतो यतो निःसरति मनः कामहतं भ्रमत\
 > ततस्तत उपाहृत्य हृदि रुन्ध्याच्छनैर्बुधः ॥३३॥
 
-> prāṇāpānau sannirundhyāt
-> pūra-kumbhaka-recakaiḥ
-> yāvan manas tyajet kāmān
+> prāṇāpānau sannirundhyāt\
+> pūra-kumbhaka-recakaiḥ\
+> yāvan manas tyajet kāmān\
 > sva-nāsāgra-nirīkṣaṇaḥ
 
-> yato yato niḥsarati
-> manaḥ kāma-hataṁ bhramat
-> tatas tata upāhṛtya
+> yato yato niḥsarati\
+> manaḥ kāma-hataṁ bhramat\
+> tatas tata upāhṛtya\
 > hṛdi rundhyāc chanair budhaḥ
 
 *prāṇa*—aliento que entra; *apānau*—aliento que sale; *sannirundhyāt*—debe detener; *pūra-kumbhaka-recakaiḥ*—por inspirar, espirar y retener, que, técnicamente, reciben los nombres de *pūraka*, *kumbhaka* y*recaka*; *yāvat*—mientras; *manaḥ*—la mente; *tyajet*—debe abandonar; *kāmān*—todos los deseos materiales; *sva*—la propia; *nāsa-agra*—la punta de la nariz; *nirīkṣaṇaḥ*—mirando a; *yataḥ yataḥ*—de cualquier cosa o lugar; *niḥsarati*—retrae; *manaḥ*—la mente; *kāma-hatam*—vencida por los deseos de disfrute; *bhramat*—vagar; *tataḥ tataḥ*—de aquí y de allá; *upāhṛtya*—después de traerla de vuelta; *hṛdi*—en lo profundo del corazón; *rundhyāt*—debe confinar (a la mente); *śanaiḥ*—gradualmente, con la práctica; *budhaḥ*—el *yogī*erudito.

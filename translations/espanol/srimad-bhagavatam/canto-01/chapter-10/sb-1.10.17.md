@@ -1,11 +1,11 @@
 ### SB 1.10.17
 
-> सितातपत्रं जग्राह मुक्तादामविभूषितम् ।
+> सितातपत्रं जग्राह मुक्तादामविभूषितम् ।\
 > रत्नदण्डं गुडाकेशः प्रियः प्रियतमस्य ह ॥१७॥
 
-> sitātapatraṁ jagrāha
-> muktādāma-vibhūṣitam
-> ratna-daṇḍaṁ guḍākeśaḥ
+> sitātapatraṁ jagrāha\
+> muktādāma-vibhūṣitam\
+> ratna-daṇḍaṁ guḍākeśaḥ\
 > priyaḥ priyatamasya ha
 
 *sita-ātapatram*—sombrilla aliviadora; *jagrāha*—tomó; *muktā-dāma*—decorada con encajes y perlas; *vibhūṣitam*—bordada; *ratna-daṇḍam*—con un mango hecho de joyas; *guḍākeśaḥ*—Arjuna, el guerrero experto, o aquel que ha conquistado el sueño; *priyaḥ*—muy amado; *priyatamasya*—del muy amado; *ha*—así lo hizo.

@@ -1,18 +1,18 @@
 ### SB 7.10.65-66
 
-> आत्मनोऽन्यस्य वा दिष्टं दैवेनापोहितुं द्वयोः
-> अथासौ शक्तिभिः स्वाभिः शम्भोः प्राधानिकं व्यधात ॥६५॥
-> धर्मज्ञआनविरक्त्यृद्धि तपोविद्याक्रियादिभिः
+> आत्मनोऽन्यस्य वा दिष्टं दैवेनापोहितुं द्वयोः\
+> अथासौ शक्तिभिः स्वाभिः शम्भोः प्राधानिकं व्यधात ॥६५॥\
+> धर्मज्ञआनविरक्त्यृद्धि तपोविद्याक्रियादिभिः\
 > रथं सूतं ध्वजं वाहान्धनुर्वर्मशरादि यत ॥६६॥
 
-> athāsau śaktibhiḥ svābhiḥ
-> śambhoḥ prādhānikaṁ vyadhāt
-> dharma-jñāna-virakty-ṛddhi-
+> athāsau śaktibhiḥ svābhiḥ\
+> śambhoḥ prādhānikaṁ vyadhāt\
+> dharma-jñāna-virakty-ṛddhi-\
 > tapo-vidyā-kriyādibhiḥ
 
-> rathaṁ sūtaṁ dhvajaṁ vāhān
-> dhanur varma-śarādi yat
-> sannaddho ratham āsthāya
+> rathaṁ sūtaṁ dhvajaṁ vāhān\
+> dhanur varma-śarādi yat\
+> sannaddho ratham āsthāya\
 > śaraṁ dhanur upādade
 
 *atha*—a continuación; *asau*—Él (el Señor Kṛṣṇa); *śaktibhiḥ*—por medio de Sus potencias; *svābhiḥ*—personales; *śambhoḥ*—del Señor Śiva; *prādhānikam*—componentes; *vyadhāt*—creó; *dharma*—religión; *jñāna*—conocimiento; *virakti*—renunciación; *ṛddhi*—opulencia; *tapaḥ*—austeridad; *vidyā*—educación; *kriyā*—actividades; *ādibhiḥ*—con todas estas y otras opulencias trascendentales; *ratham*—cuadriga; *sūtam*—auriga; *dhvajam*—bandera; *vāhān*—caballos o elefantes; *dhanuḥ*—arco; *varma*—escudo; *śara-ādi*—flechas, etc.; *yat*—todo lo que se necesitaba; *sannaddhaḥ*—equipado; *ratham*—en la cuadriga; *āsthāya*—sentado; *śaram*—flecha; *dhanuḥ*—al arco; *upādade*—unió.

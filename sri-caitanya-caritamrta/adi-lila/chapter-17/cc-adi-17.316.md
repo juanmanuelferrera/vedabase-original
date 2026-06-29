@@ -1,9 +1,9 @@
 ### CC Adi 17.316
 
-> তহিঁ মধ্যে প্রেমদান — ‘বিশেষ’ কারণ ।
+> তহিঁ মধ্যে প্রেমদান — ‘বিশেষ’ কারণ ।\
 > যুগধর্ম — কৃষ্ণনাম-প্রেম-প্রচারণ ॥৩১৬॥
 
-> tahiṅ madhye prema-dāna—'viśeṣa' kāraṇa
+> tahiṅ madhye prema-dāna—'viśeṣa' kāraṇa\
 > yuga-dharma—kṛṣṇa-nāma-prema-pracāraṇa
 
 *tahiṅ madhye*—in that chapter; *prema-dāna*—distribution of love of Godhead; *viśeṣa*—specific; *kāraṇa*—reason; *yuga-dharma*—the religion of the millennium; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *prema*—love of Godhead; *pracāraṇa*—propagating.

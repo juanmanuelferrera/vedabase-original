@@ -1,11 +1,11 @@
 ### CC Adi 5.214
 
-> তাসামাবিরভূচ্ছৌরিঃ স্ময়মানমুখাম্বুজঃ ।
+> তাসামাবিরভূচ্ছৌরিঃ স্ময়মানমুখাম্বুজঃ ।\
 > পীতাম্বরধরঃ স্রগ্বী সাক্ষান্মন্মথমন্মথঃ ॥২১৪॥
 
-> tāsām āvirabhūc chauriḥ
-> smayamāna-mukhāmbujaḥ
-> pītāmbara-dharaḥ sragvī
+> tāsām āvirabhūc chauriḥ\
+> smayamāna-mukhāmbujaḥ\
+> pītāmbara-dharaḥ sragvī\
 > sākṣān manmatha-manmathaḥ
 
 *tāsām*—entre ellas; *āvirabhūt*—apareció; *śauriḥ*—el Señor Kṛṣṇa; *smayamāna*—sonriente; *mukha-ambujaḥ*—rostro de loto; *pīta-ambara-dharaḥ*—vestido con ropas amarillas; *sragvī*—adornado con una guirnalda de flores; *sākṣāt*—directamente; *manmatha*—de Cupido; *manmathaḥ*—Cupido.

@@ -1,11 +1,11 @@
 ### SB 2.4.15
 
-> यत्कीर्तनं यत्स्मरणं यदीक्षणं यद्वन्दनं यच्छ्रवणं यदर्हणम् ।
+> यत्कीर्तनं यत्स्मरणं यदीक्षणं यद्वन्दनं यच्छ्रवणं यदर्हणम् ।\
 > लोकस्य सद्यो विधुनोति कल्मषं तस्मै सुभद्रश्रवसे नमो नमः ॥१५॥
 
-> yat-kīrtanaṁ yat-smaraṇaṁ yad-īkṣaṇaṁ
-> yad-vandanaṁ yac-chravaṇaṁ yad-arhaṇam
-> lokasya sadyo vidhunoti kalmaṣaṁ
+> yat-kīrtanaṁ yat-smaraṇaṁ yad-īkṣaṇaṁ\
+> yad-vandanaṁ yac-chravaṇaṁ yad-arhaṇam\
+> lokasya sadyo vidhunoti kalmaṣaṁ\
 > tasmai subhadra-śravase namo namaḥ
 
 *yat*—whose; *kīrtanam*—glorification; *yat*—whose; *smaraṇam*—remembrances; *yat*—whose; *īkṣaṇam*—audience; *yat*—whose; *vandanam*—prayers; *yat*—whose; *śravaṇam*—hearing about; *yat*—whose; *arhaṇam*—worshiping; *lokasya*—of all people; *sadyaḥ*—forthwith; *vidhunoti*—specifically cleanses; *kalmaṣam*—effects of sins; *tasmai*—unto Him; *subhadra*—all-auspicious; *śravase*—one who is heard; *namaḥ*—my due obeisances; *namaḥ*—again and again.

@@ -1,13 +1,13 @@
 ### SB 7.9.14
 
-> तद्यच्छ मन्युमसुरश्च हतस्त्वयाद्य
-> मोदेत साधुरपि वृश्चिकसर्पहत्या
-> लोकाश्च निर्वृतिमिताः प्रतियन्ति सर्वे
+> तद्यच्छ मन्युमसुरश्च हतस्त्वयाद्य\
+> मोदेत साधुरपि वृश्चिकसर्पहत्या\
+> लोकाश्च निर्वृतिमिताः प्रतियन्ति सर्वे\
 > रूपं नृसिंह विभयाय जनाः स्मरन्ति ॥१४॥
 
-> tad yaccha manyum asuraś ca hatas tvayādya
-> modeta sādhur api vṛścika-sarpa-hatyā
-> lokāś ca nirvṛtim itāḥ pratiyanti sarve
+> tad yaccha manyum asuraś ca hatas tvayādya\
+> modeta sādhur api vṛścika-sarpa-hatyā\
+> lokāś ca nirvṛtim itāḥ pratiyanti sarve\
 > rūpaṁ nṛsiṁha vibhayāya janāḥ smaranti
 
 *tat*—por lo tanto; *yaccha*—por favor, abandona; *manyum*—Tu ira; *asuraḥ*—mi padre, Hiraṇyakaśipu, el gran demonio; *ca*—también; *hataḥ*—matado; *tvayā*—por Ti; *adya*—hoy; *modeta*—se complace; *sādhuḥ api*—incluso una persona santa; *vṛścika-sarpa-hatyā*—por matar una serpiente o un escorpión; *lokāḥ*—todos los planetas; *ca*—en verdad; *nirvṛtim*—placer; *itāḥ*—han obtenido; *pratiyanti*—están esperando (que Tu ira se calme); *sarve*—todos ellos; *rūpam*—esta forma; *nṛsiṁha*—¡oh, Señor Nṛsiṁhadeva!; *vibhayāya*—para aliviar su temor; *janāḥ*—todos los habitantes del universo; *smaranti*—recordarán.

@@ -1,11 +1,11 @@
 ### SB 3.5.43
 
-> विश्वस्य जन्मस्थितिसंयमार्थे कृतावतारस्य पदाम्बुजं ते ।
+> विश्वस्य जन्मस्थितिसंयमार्थे कृतावतारस्य पदाम्बुजं ते ।\
 > व्रजेम सर्वे शरणं यदीश स्मृतं प्रयच्छत्यभयं स्वपुंसाम् ॥४३॥
 
-> viśvasya janma-sthiti-saṁyamārthe
-> kṛtāvatārasya padāmbujaṁ te
-> vrajema sarve śaraṇaṁ yad īśa
+> viśvasya janma-sthiti-saṁyamārthe\
+> kṛtāvatārasya padāmbujaṁ te\
+> vrajema sarve śaraṇaṁ yad īśa\
 > smṛtaṁ prayacchaty abhayaṁ sva-puṁsām
 
 *viśvasya*—of the cosmic universe; *janma*—creation; *sthiti*—maintenance; *saṁyama-arthe*—for the dissolution also; *kṛta*—accepted or assumed; *avatārasya*—of the incarnations; *pada-ambujam*—lotus feet; *te*—Your; *vrajema*—let us take shelter of; *sarve*—all of us; *śaraṇam*—shelter; *yat*—that which; *īśa*—O Lord; *smṛtam*—remembrance; *prayacchati*—awarding; *abhayam*—courage; *sva-puṁsām*—of the devotees.

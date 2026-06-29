@@ -1,9 +1,9 @@
 ### CC Antya 4.20
 
-> “মোরে না ছুঁইহ, প্রভু, পড়োঁ তোমার পায়  ।
+> “মোরে না ছুঁইহ, প্রভু, পড়োঁ তোমার পায়  ।\
 > একে নীচজাতি অধম, আর কণ্ডুরসা গায় ।।” ২০ ॥২০॥
 
-> "more nā chuṅiha, prabhu, paḍoṅ tomāra pāya
+> "more nā chuṅiha, prabhu, paḍoṅ tomāra pāya\
 > eke nīca-jāti adhama, āra kaṇḍu-rasā gāya
 
 *more*—me; *nā chuṅiha*—please do not touch; *prabhu*—my Lord; *paḍoṅ*—I fall down; *tomāra pāya*—at Your feet; *eke*—on one side; *nīca-jāti*—of a low caste; *adhama*—the lowest of mankind; *āra*—and; *kaṇḍu-rasā*—a disease of wet, itching infections; *gāya*—on the body.

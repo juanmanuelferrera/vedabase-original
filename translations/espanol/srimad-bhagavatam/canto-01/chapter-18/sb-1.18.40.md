@@ -1,11 +1,11 @@
 ### SB 1.18.40
 
-> विसृज्य तं च पप्रच्छ वत्स कस्माद्धि रोदिषि ।
+> विसृज्य तं च पप्रच्छ वत्स कस्माद्धि रोदिषि ।\
 > केन वा तेऽपकृतमित्युक्तः स न्यवेदयत् ॥४०॥
 
-> visṛjya taṁ ca papraccha
-> vatsa kasmād dhi rodiṣi
-> kena vā te 'pakṛtam
+> visṛjya taṁ ca papraccha\
+> vatsa kasmād dhi rodiṣi\
+> kena vā te 'pakṛtam\
 > ity uktaḥ sa nyavedayat
 
 *visṛjya*—arrojando a un lado; *tam*—eso; *ca*—también; *papraccha*—preguntó; *vatsa*—mi querido hijo; *kasmāt*—para qué; *hi*—ciertamente; *rodiṣi*—llorando; *kena*—por quién; *vā*—de lo contrario; *te*—ellos; *apakṛtam*—de mal comportamiento; *iti*—así pues; *uktaḥ*—siendo interrogado; *saḥ*—el niño; *nyavedayat*—informó de todo.

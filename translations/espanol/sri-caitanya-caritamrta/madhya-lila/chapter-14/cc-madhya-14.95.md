@@ -1,9 +1,9 @@
 ### CC Madhya 14.95
 
-> আর দিন আসি’ কৈল ঈশ্বর দরশন ।
+> আর দিন আসি’ কৈল ঈশ্বর দরশন ।\
 > প্রাঙ্গণে নৃত্য-গীত কৈল কতক্ষণ ॥৯৫॥
 
-> āra dina āsi' kaila īśvara daraśana
+> āra dina āsi' kaila īśvara daraśana\
 > prāṅgaṇe nṛtya-gīta kaila kata-kṣaṇa
 
 *āra dina*—al día siguiente; *āsi'*—viniendo; *kaila*—realizó; *īśvara daraśana*—ver al Señor; *prāṅgaṇe*—en el patio; *nṛtya-gīta*—canto y danza; *kaila*—realizó; *kata-kṣaṇa*—durante algún tiempo.

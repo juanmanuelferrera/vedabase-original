@@ -1,9 +1,9 @@
 ### CC Madhya 15.53
 
-> নিত্য যাই’ দেখি মুঞি তাঁহার চরণে ।
+> নিত্য যাই’ দেখি মুঞি তাঁহার চরণে ।\
 > স্ফূর্তি-জ্ঞানে তেঁহো তাহা সত্য নাহি মানে ॥৫৩॥
 
-> nitya yāi' dekhi muñi tāṅhāra caraṇe
+> nitya yāi' dekhi muñi tāṅhāra caraṇe\
 > sphūrti-jñāne teṅho tāhā satya nāhi māne
 
 *nitya yāi'*—going daily; *dekhi*—see; *muñi*—I; *tāṅhāra caraṇe*—her lotus feet; *sphūrti-jñāne*—feeling My appearance; *teṅho*—she; *tāhā*—that; *satya nāhi māne*—does not accept as true.

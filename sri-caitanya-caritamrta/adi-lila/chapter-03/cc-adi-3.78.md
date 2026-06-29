@@ -1,9 +1,9 @@
 ### CC Adi 3.78
 
-> সেই ত’ সুমেধা, আর কুবুদ্ধি সংসার ।
+> সেই ত’ সুমেধা, আর কুবুদ্ধি সংসার ।\
 > সর্ব-যজ্ঞ হৈতে কৃষ্ণনামযজ্ঞ সার ॥৭৮॥
 
-> sei ta' sumedhā, āra kubuddhi saṁsāra
+> sei ta' sumedhā, āra kubuddhi saṁsāra\
 > sarva-yajña haite kṛṣṇa-nāma-yajña sāra
 
 *sei*—he; *ta'*—certainly; *su-medhā*—intelligent; *āra*—others; *ku-buddhi*—poor understanding; *saṁsāra*—in the material world; *sarva-yajñahaite*—than all other sacrifices; *kṛṣṇa-nāma*—of chanting the name of Lord Kṛṣṇa; *yajña*—the sacrifice; *sāra*—the best.

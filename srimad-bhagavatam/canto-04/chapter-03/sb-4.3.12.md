@@ -1,11 +1,11 @@
 ### SB 4.3.12
 
-> पश्य प्रयान्तीरभवान्ययोषितोऽप्यलङ्कृताः कान्तसखा वरूथशः ।
+> पश्य प्रयान्तीरभवान्ययोषितोऽप्यलङ्कृताः कान्तसखा वरूथशः ।\
 > यासां व्रजद्भिः शितिकण्ठ मण्डितं नभो विमानैः कलहंसपाण्डुभिः ॥१२॥
 
-> paśya prayāntīr abhavānya-yoṣito
-> 'py alaṅkṛtāḥ kānta-sakhā varūthaśaḥ
-> yāsāṁ vrajadbhiḥ śiti-kaṇṭha maṇḍitaṁ
+> paśya prayāntīr abhavānya-yoṣito\
+> 'py alaṅkṛtāḥ kānta-sakhā varūthaśaḥ\
+> yāsāṁ vrajadbhiḥ śiti-kaṇṭha maṇḍitaṁ\
 > nabho vimānaiḥ kala-haṁsa-pāṇḍubhiḥ
 
 *paśya*—just see; *prayāntīḥ*—going; *abhava*—O never-born; *anya-yoṣitaḥ*—other women; *api*—certainly; *alaṅkṛtāḥ*—ornamented; *kānta-sakhāḥ*—with their husbands and friends; *varūthaśaḥ*—in large numbers; *yāsām*—of them; *vrajadbhiḥ*—flying; *śiti-kaṇṭha*—O blue-throated one; *maṇḍitam*—decorated; *nabhaḥ*—the sky; *vimānaiḥ*—with airplanes; *kala-haṁsa*—swans; *pāṇḍubhiḥ*—white.

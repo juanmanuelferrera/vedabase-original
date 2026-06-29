@@ -1,11 +1,11 @@
 ### SB 9.16.17
 
-> गत्वा माहिष्मतीं रामो ब्रह्मघ्नविहतश्रियम
+> गत्वा माहिष्मतीं रामो ब्रह्मघ्नविहतश्रियम\
 > तेषां स शीर्षभी राजन्मध्ये चक्रे महागिरिम ॥१७॥
 
-> gatvā māhiṣmatīṁ rāmo
-> brahma-ghna-vihata-śriyam
-> teṣāṁ sa śīrṣabhī rājan
+> gatvā māhiṣmatīṁ rāmo\
+> brahma-ghna-vihata-śriyam\
+> teṣāṁ sa śīrṣabhī rājan\
 > madhye cakre mahā-girim
 
 *gatvā*—going; *māhiṣmatīm*—to the place known as Māhiṣmatī; *rāmaḥ*—Lord Paraśurāma; *brahma-ghna*—because of the killing of a *brāhmaṇa*; *vihata-śriyam*—doomed, bereft of all opulences; *teṣām*—of all of them (the sons of Kārtavīryārjuna and the other *kṣatriya* inhabitants); *saḥ*—he, Lord Paraśurāma; *śīrṣabhiḥ*—by the heads cut off from their bodies; *rājan*—O Mahārāja Parīkṣit; *madhye*—within the jurisdiction of Māhiṣmatī; *cakre*—made; *mahā-girim*—a great mountain.

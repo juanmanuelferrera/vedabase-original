@@ -1,9 +1,9 @@
 ### CC Adi 4.65
 
-> মাতা, পিতা, স্থান, গৃহ, শয্যাসন আর ।
+> মাতা, পিতা, স্থান, গৃহ, শয্যাসন আর ।\
 > এসব কৃষ্ণের শুদ্ধসত্ত্বের বিকার ॥৬৫॥
 
-> mātā, pitā, sthāna, gṛha, śayyāsana āra
+> mātā, pitā, sthāna, gṛha, śayyāsana āra\
 > e-saba kṛṣṇera śuddha-sattvera vikāra
 
 *mātā*—madre; *pitā*—padre; *sthāna*—lugar; *gṛha*—casa; *śayya-āsana*—camas y asientos; *āra*—y; *e-saba*—todo esto; *kṛṣṇera*—del Señor Kṛṣṇa; *śuddha-sattvera*—del śuddha-sattva; *vikāra*—transformaciones.

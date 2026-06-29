@@ -1,11 +1,11 @@
 ### SB 4.27.7
 
-> दुहितॄर्दशोत्तरशतं पितृमातृयशस्करीः ।
+> दुहितॄर्दशोत्तरशतं पितृमातृयशस्करीः ।\
 > शीलौदार्यगुणोपेताः पौरञ्जन्यः प्रजापते ॥७॥
 
-> duhitṝr daśottara-śataṁ
-> pitṛ-mātṛ-yaśaskarīḥ
-> śīlaudārya-guṇopetāḥ
+> duhitṝr daśottara-śataṁ\
+> pitṛ-mātṛ-yaśaskarīḥ\
+> śīlaudārya-guṇopetāḥ\
 > paurañjanyaḥ prajā-pate
 
 *duhitṝḥ*—daughters; *daśa-uttara*—ten more than; *śatam*—one hundred; *pitṛ*—like the father; *mātṛ*—and mother; *yaśaskarīḥ*—glorified; *śīla*—good behavior; *audārya*—magnanimity; *guṇa*—good qualities; *upetāḥ*—possessed of; *paurañjanyaḥ*—daughters of Purañjana; *prajā-pate*—O Prajāpati.

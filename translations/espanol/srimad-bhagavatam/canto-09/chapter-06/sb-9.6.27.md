@@ -1,11 +1,11 @@
 ### SB 9.6.27
 
-> राजा तद्यज्ञअसदनं प्रविष्टो निशि तर्षितः
+> राजा तद्यज्ञअसदनं प्रविष्टो निशि तर्षितः\
 > दृष्ट्वा शयानान्विप्रांस्तान्पपौ मन्त्रजलं स्वयम ॥२७॥
 
-> rājā tad-yajña-sadanaṁ
-> praviṣṭo niśi tarṣitaḥ
-> dṛṣṭvā śayānān viprāṁs tān
+> rājā tad-yajña-sadanaṁ\
+> praviṣṭo niśi tarṣitaḥ\
+> dṛṣṭvā śayānān viprāṁs tān\
 > papau mantra-jalaṁ svayam
 
 *rājā*—el rey (Yuvanāśva); *tat-yajña-sadanam*—en el recinto de sacrificios; *praviṣṭaḥ*—entró; *niśi*—de noche; *tarṣitaḥ*—sediento; *dṛṣṭvā*—al ver; *śayānān*—acostados; *viprān*—a todos los *brāhmaṇas*; *tān*—todos ellos; *papau*—bebió; *mantra-jalam*—agua santificada con *mantras*; *svayam*—personalmente.

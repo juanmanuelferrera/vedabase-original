@@ -1,9 +1,9 @@
 ### CC Antya 7.95
 
-> সঙ্কটে পড়িল পণ্ডিত, করয়ে সংশয় ।
+> সঙ্কটে পড়িল পণ্ডিত, করয়ে সংশয় ।\
 > কি করিবেন, — একো, করিতে না পারে নিশ্চয় ॥৯৫॥
 
-> saṅkaṭe paḍila paṇḍita, karaye saṁśaya
+> saṅkaṭe paḍila paṇḍita, karaye saṁśaya\
 > ki karibena,--eko, karite nā pāre niścaya
 
 *saṅkaṭe*—en un dilema; *paḍila paṇḍita*—cayó Paṇḍita Gosāñi; *karaye saṁśaya*—sintió dudas; *ki karibena*—qué haría; *eko*—solo; *karite nā pāre niścaya*—no puede tomar una decisión.

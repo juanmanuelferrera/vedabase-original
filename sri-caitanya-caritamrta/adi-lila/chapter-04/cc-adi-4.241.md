@@ -1,9 +1,9 @@
 ### CC Adi 4.241
 
-> আমা হৈতে গুণী বড় জগতে অসম্ভব ।
+> আমা হৈতে গুণী বড় জগতে অসম্ভব ।\
 > একলি রাধাতে তাহা করি অনুভব ॥২৪১॥
 
-> āmā haite guṇī baḍa jagate asambhava
+> āmā haite guṇī baḍa jagate asambhava\
 > ekali rādhāte tāhā kari anubhava
 
 *āmā haite*—than Me; *guṇī*—qualified; *baḍa*—greater; *jagate*—in the world; *asambhava*—there is no possibility; *ekali*—only; *rādhāte*—in Śrīmatī Rādhārāṇī; *tāhā*—that; *kari anubhava*—I can understand.

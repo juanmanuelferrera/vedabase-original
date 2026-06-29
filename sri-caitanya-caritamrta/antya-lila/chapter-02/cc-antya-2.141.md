@@ -1,9 +1,9 @@
 ### CC Antya 2.141
 
-> এত বলি তারে স্নান ভোজন করাঞা ।
+> এত বলি তারে স্নান ভোজন করাঞা ।\
 > আপন ভবন আইলা তারে আশ্বাসিয়া ॥১৪১॥
 
-> eta bali tāre snāna bhojana karāñā
+> eta bali tāre snāna bhojana karāñā\
 > āpana bhavana āilā tāre āśvāsiyā
 
 *eta bali*—saying this; *tāre*—him; *snāna bhojana karāñā*—inducing to bathe and take *prasāda*; *āpana bhavana*—to his own place; *āilā*—returned; *tāre āśvāsiyā*—assuring him.

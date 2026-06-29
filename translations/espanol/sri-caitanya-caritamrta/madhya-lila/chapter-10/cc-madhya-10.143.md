@@ -1,9 +1,9 @@
 ### CC Madhya 10.143
 
-> tāṅhāre āpana-sevā karāite nā yuyāya
+> tāṅhāre āpana-sevā karāite nā yuyāya\
 > guru ājñā diyāchena, ki kari upāya
 
-> tāṅhāre āpana-sevā karāite nā yuyāya
+> tāṅhāre āpana-sevā karāite nā yuyāya\
 > guru ājñā diyāchena, ki kari upāya
 
 *tāṅhāre*—a él; *āpana-sevā*—servicio personal; *karāite*—hacer que realice; *nā yuyāya*—no es apropiado; *guru*—el maestro espiritual; *ājñā*—orden; *diyāchena*—ha dado; *ki*—qué; *kari*—puedo hacer; *upāya*—remedio.

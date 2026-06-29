@@ -1,9 +1,9 @@
 ### CC Madhya 10.166
 
-> ‘‘ব্রহ্মানন্দ’ নাম তুমি — গৌর-ব্রহ্ম ‘চল’।
+> ‘‘ব্রহ্মানন্দ’ নাম তুমি — গৌর-ব্রহ্ম ‘চল’।\
 > শ্যামবর্ণ জগন্নাথ বসিয়াছেন ‘অচল’ ॥১৬৬॥
 
-> 'brahmānanda' nāma tumi-gaura-brahma 'cala'
+> 'brahmānanda' nāma tumi-gaura-brahma 'cala'\
 > śyama-varṇa jagannātha vasiyāchena 'acala'
 
 *brahmānanda*—Brahmānanda; *nāma tumi*—your name; *gaura-brahma*—the Brahman of the name Gaura; *cala*—both of them are moving; *śyāma-varṇa*—of blackish hue; *jagannātha*—Lord Jagannātha; *vasiyāchena*—is sitting; *acala*—without movement.

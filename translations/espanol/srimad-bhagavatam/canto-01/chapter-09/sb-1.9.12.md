@@ -1,11 +1,11 @@
 ### SB 1.9.12
 
-> अहो कष्टमहोऽन्याय्यं यद्यूयं धर्मनन्दनाः ।
+> अहो कष्टमहोऽन्याय्यं यद्यूयं धर्मनन्दनाः ।\
 > जीवितुं नार्हथ क्लिष्टं विप्रधर्माच्युताश्रयाः ॥१२॥
 
-> aho kaṣṭam aho 'nyāyyaṁ
-> yad yūyaṁ dharma-nandanāḥ
-> jīvituṁ nārhatha kliṣṭaṁ
+> aho kaṣṭam aho 'nyāyyaṁ\
+> yad yūyaṁ dharma-nandanāḥ\
+> jīvituṁ nārhatha kliṣṭaṁ\
 > vipra-dharmācyutāśrayāḥ
 
 *aho*—¡oh!; *kaṣṭam*—qué terribles sufrimientos; *aho*—¡oh!; *anyāyyam*—qué terrible injusticia; *yat*—porque; *yūyam*—todos ustedes, buenas almas; *dharma-nandanāḥ*—hijos de la religión personificada; *jīvitum*—permanecer vivo; *na*—nunca; *arhatha*—merecen; *kliṣṭam*—sufrimiento; *vipra*—*brāhmaṇas*; *dharma*—piedad; *acyuta*—Dios; *āśrayāḥ*—estando protegidos por.

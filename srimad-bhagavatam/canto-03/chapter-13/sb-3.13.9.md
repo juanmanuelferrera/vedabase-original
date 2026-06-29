@@ -1,13 +1,13 @@
 ### SB 3.13.9
 
-> ब्रह्मोवाच
-> प्रीतस्तुभ्यमहं तात स्वस्ति स्ताद्वां क्षितीश्वर ।
+> ब्रह्मोवाच\
+> प्रीतस्तुभ्यमहं तात स्वस्ति स्ताद्वां क्षितीश्वर ।\
 > यन्निर्व्यलीकेन हृदा शाधि मेत्यात्मनार्पितम् ॥९॥
 
-> brahmovāca
-> prītas tubhyam ahaṁ tāta
-> svasti stād vāṁ kṣitīśvara
-> yan nirvyalīkena hṛdā
+> brahmovāca\
+> prītas tubhyam ahaṁ tāta\
+> svasti stād vāṁ kṣitīśvara\
+> yan nirvyalīkena hṛdā\
 > śādhi mety ātmanārpitam
 
 *brahmā uvāca*—Brahmā said; *prītaḥ*—pleased; *tubhyam*—unto you; *aham*—I; *tāta*—my dear son; *svasti*—all blessings; *stāt*—let there be; *vām*—unto you both; *kṣiti-īśvara*—O lord of the world; *yat*—because; *nirvyalīkena*—without reservation; *hṛdā*—by the heart; *śādhi*—give instruction; *mā*—unto me; *iti*—thus; *ātmanā*—by self; *arpitam*—surrendered.

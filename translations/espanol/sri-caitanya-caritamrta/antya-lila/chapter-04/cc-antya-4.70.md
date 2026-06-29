@@ -1,9 +1,9 @@
 ### CC Antya 4.70
 
-> ভজনের মধ্যে শ্রেষ্ঠ নববিধা ভক্তি ।
+> ভজনের মধ্যে শ্রেষ্ঠ নববিধা ভক্তি ।\
 > ‘কৃষ্ণপ্রেম’, ‘কৃষ্ণ’ দিতে ধরে মহাশক্তি ॥৭০॥
 
-> bhajanera madhye śreṣṭha nava-vidhā bhakti
+> bhajanera madhye śreṣṭha nava-vidhā bhakti\
 > 'kṛṣṇa-prema', 'kṛṣṇa' dite dhare mahā-śakti
 
 *bhajanera madhye*—en la ejecución del servicio devocional; *śreṣṭha*—lo mejor; *nava-vidhā bhakti*—los nueve métodos prescritos de servicio devocional; *kṛṣṇa-prema*—amor extático por Kṛṣṇa; *kṛṣṇa*—y Kṛṣṇa; *dite*—para entregar; *dhare*—poseen; *mahā-śakti*—gran potencia.

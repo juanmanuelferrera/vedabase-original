@@ -1,11 +1,11 @@
 ### SB 2.5.19
 
-> कार्यकारणकर्तृत्वे द्रव्यज्ञानक्रियाश्रयाः ।
+> कार्यकारणकर्तृत्वे द्रव्यज्ञानक्रियाश्रयाः ।\
 > बध्नन्ति नित्यदा मुक्तं मायिनं पुरुषं गुणाः ॥१९॥
 
-> kārya-kāraṇa-kartṛtve
-> dravya-jñāna-kriyāśrayāḥ
-> badhnanti nityadā muktaṁ
+> kārya-kāraṇa-kartṛtve\
+> dravya-jñāna-kriyāśrayāḥ\
+> badhnanti nityadā muktaṁ\
 > māyinaṁ puruṣaṁ guṇāḥ
 
 *kārya*—effect; *kāraṇa*—cause; *kartṛtve*—in activities; *dravya*—material; *jñāna*—knowledge; *kriyā-āśrayāḥ*—manifested by such symptoms; *badhnanti*—conditions; *nityadā*—eternally; *muktam*—transcendental; *māyinam*—affected by material energy; *puruṣam*—the living entity; *guṇāḥ*—the material modes.

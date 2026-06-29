@@ -1,11 +1,11 @@
 ### CC Antya 7.10
 
-> যেষাং সংস্মরণাৎ পুংসাং সদ্যঃ শুধ্যন্তি বৈ গৃহাঃ ।
+> যেষাং সংস্মরণাৎ পুংসাং সদ্যঃ শুধ্যন্তি বৈ গৃহাঃ ।\
 > কিং পুনর্দর্শনস্পর্শপাদশৌচাসনাদিভিঃ ॥১০॥
 
-> yeṣāṁ saṁsmaraṇāt puṁsāṁ
-> sadyaḥ śuddhyanti vai gṛhāḥ
-> kiṁ punar darśana-sparśa-
+> yeṣāṁ saṁsmaraṇāt puṁsāṁ\
+> sadyaḥ śuddhyanti vai gṛhāḥ\
+> kiṁ punar darśana-sparśa-\
 > pāda-śaucāsanādibhiḥ
 
 *yeṣām*—of whom; *saṁsmaraṇāt*—by remembrance; *puṁsām*—of persons; *sadyaḥ*—immediately; *śuddhyanti*—become purified; *vai*—certainly; *gṛhāḥ*—the houses; *kim punaḥ*—what to speak of; *darśana*—by seeing; *sparśa*—touching; *pāda-śauca*—washing the feet; *āsana-ādibhiḥ*—by offering a seat and so on.

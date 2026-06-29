@@ -1,11 +1,11 @@
 ### SB 4.24.71
 
-> योगादेशमुपासाद्य धारयन्तो मुनिव्रताः ।
+> योगादेशमुपासाद्य धारयन्तो मुनिव्रताः ।\
 > समाहितधियः सर्व एतदभ्यसतादृताः ॥७१॥
 
-> yogādeśam upāsādya
-> dhārayanto muni-vratāḥ
-> samāhita-dhiyaḥ sarva
+> yogādeśam upāsādya\
+> dhārayanto muni-vratāḥ\
+> samāhita-dhiyaḥ sarva\
 > etad abhyasatādṛtāḥ
 
 *yoga-ādeśam*—esta enseñanza de *bhakti-yoga*; *upāsādya*—leyendo constantemente; *dhārayantaḥ*—y llevando en el corazón; *muni-vratāḥ*—hagan el voto de los grandes sabios, el voto de silencio; *samāhita*—siempre fijo en la mente; *dhiyaḥ*—con inteligencia; *sarve*—todos ustedes; *etat*—esta; *abhyasata*—práctica; *ādṛtāḥ*—con gran reverencia.

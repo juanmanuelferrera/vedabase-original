@@ -1,9 +1,9 @@
 ### CC Madhya 14.201
 
-> এইমত আর সব ভাব-বিভূষণ ।
+> এইমত আর সব ভাব-বিভূষণ ।\
 > যাহাতে ভূষিত রাধা হরে কৃষ্ণ মন ॥২০১॥
 
-> ei-mata āra saba bhāva-vibhūṣaṇa
+> ei-mata āra saba bhāva-vibhūṣaṇa\
 > yāhāte bhūṣita rādhā hare kṛṣṇa mana
 
 *ei-mata*—in this way; *āra*—also; *saba*—all; *bhāva-vibhūṣaṇa*—ecstatic ornaments; *yāhāte*—by which; *bhūṣita*—being decorated; *rādhā*—Śrīmatī Rādhārāṇī; *hare*—attracts; *kṛṣṇa mana*—the mind of Kṛṣṇa.

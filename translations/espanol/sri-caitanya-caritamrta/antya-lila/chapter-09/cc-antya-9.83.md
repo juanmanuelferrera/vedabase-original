@@ -1,9 +1,9 @@
 ### CC Antya 9.83
 
-> রাজা মিশ্রের চরণ যবে চাপিতে লাগিলা ।
+> রাজা মিশ্রের চরণ যবে চাপিতে লাগিলা ।\
 > তবে মিশ্র তাঁরে কিছু ভঙ্গীতে কহিলা ॥৮৩॥
 
-> rājā miśrera caraṇa yabe cāpite lāgilā
+> rājā miśrera caraṇa yabe cāpite lāgilā\
 > tabe miśra tāṅre kichu bhaṅgīte kahilā
 
 *rāja*—el rey; *miśrera*—de Kāśī Miśra; *caraṇa*—los pies de loto; *yabe*—cuando; *cāpite lāgilā*—comenzó a presionar; *tabe*—en esa oportunidad; *miśra*—Kāśī Miśra; *tāṅre*—a él; *kichu*—algo; *bhaṅgīte*—mediante una insinuación; *kahilā*—informó.

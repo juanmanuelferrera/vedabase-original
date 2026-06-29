@@ -1,11 +1,11 @@
 ### SB 9.24.61
 
-> कलौ जनिष्यमाणानां दुःखशोकतमोनुदम
+> कलौ जनिष्यमाणानां दुःखशोकतमोनुदम\
 > अनुग्रहाय भक्तानां सुपुण्यं व्यतनोद्यशः ॥६१॥
 
-> kalau janiṣyamāṇānāṁ
-> duḥkha-śoka-tamo-nudam
-> anugrahāya bhaktānāṁ
+> kalau janiṣyamāṇānāṁ\
+> duḥkha-śoka-tamo-nudam\
+> anugrahāya bhaktānāṁ\
 > supuṇyaṁ vyatanod yaśaḥ
 
 *kalau*—en esta era de Kali; *janiṣyamāṇānām*—de las almas condicionadas que nacerán en el futuro; *duḥkha-śoka-tamaḥ-nudam*—para reducir al mínimo sus ilimitadas desdichas y lamentaciones, que son causadas por la ignorancia; *anugrahāya*—para mostrar misericordia; *bhaktānām*—a los devotos; *su-puṇyam*—actividades trascendentales, muy piadosas; *vyatanot*—expandió; *yaśaḥ*—Sus glorias o reputación.

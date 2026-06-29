@@ -1,11 +1,11 @@
 ### CC Madhya 24.189
 
-> অহং সর্বস্য প্রভবো মত্তঃ সর্বং প্রবর্ততে ।
+> অহং সর্বস্য প্রভবো মত্তঃ সর্বং প্রবর্ততে ।\
 > ইতি মত্বা ভজন্তে মাং বুধা ভাবসমন্বিতাঃ ॥১৮৯॥
 
-> ahaṁ sarvasya prabhavo
-> mattaḥ sarvaṁ pravartate
-> iti matvā bhajante māṁ
+> ahaṁ sarvasya prabhavo\
+> mattaḥ sarvaṁ pravartate\
+> iti matvā bhajante māṁ\
 > budhā bhāva-samanvitāḥ
 
 *aham*—Yo, el Señor Kṛṣṇa; *sarvasya*—de todos; *prabhavaḥ*—la fuente original; *mattaḥ*—de Mí; *sarvam*—todo; *pravartate*—emana; *iti*—así; *matvā*—comprendiendo; *bhajante*—se ocupan en el servicio devocional; *mām*—a Mí; *budhāḥ*—aquellos que son eruditos; *bhāva-samanvitāḥ*—con amor y devoción.

@@ -1,14 +1,14 @@
 ### CC Adi 6.14-15
 
-> মায়া যৈছে দুই অংশ — ‘নিমিত্ত’, ‘উপাদান’ ।
-> মায়া — ‘নিমিত্ত’-হেতু, উপাদান — ‘প্রধান’ ॥১৪॥
-> পুরুষ ঈশ্বর ঐছে দ্বিমূর্তি হইয়া ।
+> মায়া যৈছে দুই অংশ — ‘নিমিত্ত’, ‘উপাদান’ ।\
+> মায়া — ‘নিমিত্ত’-হেতু, উপাদান — ‘প্রধান’ ॥১৪॥\
+> পুরুষ ঈশ্বর ঐছে দ্বিমূর্তি হইয়া ।\
 > বিশ্ব-সৃষ্টি করে ‘নিমিত্ত’ ‘উপাদান’ লঞা ॥১৫॥
 
-> māyā yaiche dui aṁśa—'nimitta', 'upādāna'
+> māyā yaiche dui aṁśa—'nimitta', 'upādāna'\
 > māyā—'nimitta'-hetu, upādāna—'pradhāna'
 
-> puruṣa īśvara aiche dvi-mūrti ha-iyā
+> puruṣa īśvara aiche dvi-mūrti ha-iyā\
 > viśva-sṛṣṭi kare 'nimitta' 'upādāna' lañā
 
 *māyā*—la energía externa; *yaiche*—como; *dui aṁśa*—dos partes; *nimitta*—la causa; *upādāna*—los ingredientes; *māyā*—la energía material; *nimitta-hetu*—causa original; *upādāna*—ingredientes; *pradhāna*—causa inmediata; *puruṣa*—la personal Señor Viṣṇu; *īśvara*—la Suprema Personalidad de Dios; *aiche*—de ese modo; *dvi-mūrti ha-iyā*—tomando dos formas; *viśva-sṛṣṭi kare*—crea este mundo material; *nimitta*—la causa original; *upādāna*—la causa material; *lañā*—con.

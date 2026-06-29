@@ -1,9 +1,9 @@
 ### CC Adi 17.186
 
-> এত কহি’ সিংহ গেল, আমার হৈল ভয় ।
+> এত কহি’ সিংহ গেল, আমার হৈল ভয় ।\
 > এই দেখ, নখচিহ্ন আমার হৃদয় ॥১৮৬॥
 
-> eta kahi' siṁha gela, āmāra haila bhaya
+> eta kahi' siṁha gela, āmāra haila bhaya\
 > ei dekha, nakha-cihna amora hṛdaya
 
 *eta*—thus; *kahi'*—saying; *siṁha*—the lion; *gela*—returned; *āmāra*—my; *haila*—there was; *bhaya*—fear; *ei dekha*—just see this; *nakha-cihna*—the nail marks; *amora hṛdaya*—on my heart.

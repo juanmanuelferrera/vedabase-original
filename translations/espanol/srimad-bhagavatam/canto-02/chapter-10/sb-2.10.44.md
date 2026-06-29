@@ -1,11 +1,11 @@
 ### SB 2.10.44
 
-> इत्थम्भावेन कथितो भगवान्भगवत्तमः ।
+> इत्थम्भावेन कथितो भगवान्भगवत्तमः ।\
 > नेत्थम्भावेन हि परं द्रष्टुमर्हन्ति सूरयः ॥४४॥
 
-> ittham-bhāvena kathito
-> bhagavān bhagavattamaḥ
-> nettham-bhāvena hi paraṁ
+> ittham-bhāvena kathito\
+> bhagavān bhagavattamaḥ\
+> nettham-bhāvena hi paraṁ\
 > draṣṭum arhanti sūrayaḥ
 
 *ittham*—en estos aspectos; *bhāvena*—el asunto de la creación y la destrucción; *kathitaḥ*—descrita; *bhagavān*—la Personalidad de Dios; *bhagavat-tamaḥ*—por los grandes trascendentalistas; *na*—no; *ittham*—en esto; *bhāvena*—aspectos; *hi*—solamente; *param*—más glorioso; *draṣṭum*—ver; *arhanti*—merecen; *sūrayaḥ*—grandes devotos.

@@ -1,11 +1,11 @@
 ### SB 4.25.47
 
-> खद्योताविर्मुखी च प्राग्द्वारावेकत्र निर्मिते ।
+> खद्योताविर्मुखी च प्राग्द्वारावेकत्र निर्मिते ।\
 > विभ्राजितं जनपदं याति ताभ्यां द्युमत्सखः ॥४७॥
 
-> khadyotāvirmukhī ca prāg
-> dvārāv ekatra nirmite
-> vibhrājitaṁ janapadaṁ
+> khadyotāvirmukhī ca prāg\
+> dvārāv ekatra nirmite\
+> vibhrājitaṁ janapadaṁ\
 > yāti tābhyāṁ dyumat-sakhaḥ
 
 *khadyotā*—de nombre Khadyotā; *āvirmukhī*—de nombre Āvirmukhī; *ca*—también; *prāk*—hacia el este; *dvārau*—dos puertas; *ekatra*—en el mismo lugar; *nirmite*—estaban construidas; *vibhrājitam*—llamada Vibhrājita; *jana-padam*—ciudad; *yāti*—solía ir; *tābhyām*—por ellas; *dyumat*—llamado Dyumān; *sakhaḥ*—con su amigo.

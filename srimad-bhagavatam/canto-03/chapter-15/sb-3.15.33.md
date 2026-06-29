@@ -1,13 +1,13 @@
 ### SB 3.15.33
 
-> न ह्यन्तरं भगवतीह समस्तकुक्षाव्
-> आत्मानमात्मनि नभो नभसीव धीराः ।
-> पश्यन्ति यत्र युवयोः सुरलिङ्गिनोः किं
+> न ह्यन्तरं भगवतीह समस्तकुक्षाव्\
+> आत्मानमात्मनि नभो नभसीव धीराः ।\
+> पश्यन्ति यत्र युवयोः सुरलिङ्गिनोः किं\
 > व्युत्पादितं ह्युदरभेदि भयं यतोऽस्य ॥३३॥
 
-> na hy antaraṁ bhagavatīha samasta-kukṣāv
-> ātmānam ātmani nabho nabhasīva dhīrāḥ
-> paśyanti yatra yuvayoḥ sura-liṅginoḥ kiṁ
+> na hy antaraṁ bhagavatīha samasta-kukṣāv\
+> ātmānam ātmani nabho nabhasīva dhīrāḥ\
+> paśyanti yatra yuvayoḥ sura-liṅginoḥ kiṁ\
 > vyutpāditaṁ hy udara-bhedi bhayaṁ yato 'sya
 
 *na*—not; *hi*—because; *antaram*—distinction; *bhagavati*—in the Supreme Personality of Godhead; *iha*—here; *samasta-kukṣau*—everything is within the abdomen; *ātmānam*—the living entity; *ātmani*—in the Supersoul; *nabhaḥ*—the small quantity of air; *nabhasi*—within the whole air; *iva*—as; *dhīrāḥ*—the learned; *paśyanti*—see; *yatra*—in whom; *yuvayoḥ*—of you two; *sura-liṅginoḥ*—dressed like inhabitants of Vaikuṇṭha; *kim*—how; *vyutpāditam*—awakened, developed; *hi*—certainly; *udara-bhedi*—distinction between the body and the soul; *bhayam*—fearfulness; *yataḥ*—wherefrom; *asya*—of the Supreme Lord.

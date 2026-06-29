@@ -1,9 +1,9 @@
 ### CC Madhya 16.72
 
-> “কৃষ্ণনাম নিরন্তর যাঁহার বদনে ।
+> “কৃষ্ণনাম নিরন্তর যাঁহার বদনে ।\
 > সেই বৈষ্ণব-শ্রেষ্ঠ, ভজ তাঁহার চরণে ॥৭২॥
 
-> "kṛṣṇa-nāma nirantara yāṅhāra vadane
+> "kṛṣṇa-nāma nirantara yāṅhāra vadane\
 > sei vaiṣṇava-śreṣṭha, bhaja tāṅhāra caraṇe
 
 *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *nirantara*—incessantly; *yāṅhāra*—whose; *vadane*—in the mouth; *sei*—such a person; *vaiṣṇava-śreṣṭha*—a first-class Vaiṣṇava; *bhaja*—worship; *tāṅhāra caraṇe*—his lotus feet.

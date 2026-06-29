@@ -1,9 +1,9 @@
 ### CC Madhya 24.233
 
-> ঐছে এক শশক দেখে আর কতদূরে ।
+> ঐছে এক শশক দেখে আর কতদূরে ।\
 > জীবের দুঃখ দেখি’ নারদ ব্যাকুল-অন্তরে ॥২৩৩॥
 
-> aiche eka śaśaka dekhe āra kata-dūre
+> aiche eka śaśaka dekhe āra kata-dūre\
 > jīvera duḥkha dekhi' nārada vyākula-antare
 
 *aiche*—similarly; *eka śaśaka*—one rabbit; *dekhe*—he sees; *āra kata-dūre*—still farther ahead; *jīvera*—of the living entity; *duḥkha dekhi'*—seeing such horrible miseries; *nārada*—the great saintly person; *vyākula-antare*—very pained within himself.

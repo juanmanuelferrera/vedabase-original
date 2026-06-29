@@ -1,11 +1,11 @@
 ### SB 4.26.5
 
-> आसुरीं वृत्तिमाश्रित्य घोरात्मा निरनुग्रहः ।
+> आसुरीं वृत्तिमाश्रित्य घोरात्मा निरनुग्रहः ।\
 > न्यहनन्निशितैर्बाणैर्वनेषु वनगोचरान् ॥५॥
 
-> āsurīṁ vṛttim āśritya
-> ghorātmā niranugrahaḥ
-> nyahanan niśitair bāṇair
+> āsurīṁ vṛttim āśritya\
+> ghorātmā niranugrahaḥ\
+> nyahanan niśitair bāṇair\
 > vaneṣu vana-gocarān
 
 *āsurīm*—demoniac; *vṛttim*—occupation; *āśritya*—taken shelter of; *ghora*—horrible; *ātmā*—consciousness, heart; *niranugrahaḥ*—without mercy; *nyahanat*—killed; *niśitaiḥ*—by sharp; *bāṇaiḥ*—arrows; *vaneṣu*—in the forests; *vana-gocarān*—the forest animals.

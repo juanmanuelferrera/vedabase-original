@@ -1,11 +1,11 @@
 ### Bg 9.23
 
-> येऽप्यन्यदेवता भक्ता यजन्ते श्रद्धयान्विताः ।
+> येऽप्यन्यदेवता भक्ता यजन्ते श्रद्धयान्विताः ।\
 > तेऽपि मामेव कौन्तेय यजन्त्यविधिपूर्वकम् ॥२३॥
 
-> ye 'py anya-devatā-bhaktā
-> yajante śraddhayānvitāḥ
-> te 'pi mām eva kaunteya
+> ye 'py anya-devatā-bhaktā\
+> yajante śraddhayānvitāḥ\
+> te 'pi mām eva kaunteya\
 > yajanty avidhi-pūrvakam
 
 *ye*—those; *api*—also; *anya*—other; *devatā*—demigods; *bhaktāḥ*—devotees; *yajante*—worship; *śraddhaya-anvitāḥ*—with faith; *te*—they; *api*—also; *mām*—Me; *eva*—even; *kaunteya*—O son of Kuntī; *yajanti*—sacrifice; *avidhi-pūrvakam*—in a wrong way.

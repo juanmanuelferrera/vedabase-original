@@ -1,11 +1,11 @@
 ### SB 4.12.12
 
-> तमेवं शीलसम्पन्नं ब्रह्मण्यं दीनवत्सलम् ।
+> तमेवं शीलसम्पन्नं ब्रह्मण्यं दीनवत्सलम् ।\
 > गोप्तारं धर्मसेतूनां मेनिरे पितरं प्रजाः ॥१२॥
 
-> tam evaṁ śīla-sampannaṁ
-> brahmaṇyaṁ dīna-vatsalam
-> goptāraṁ dharma-setūnāṁ
+> tam evaṁ śīla-sampannaṁ\
+> brahmaṇyaṁ dīna-vatsalam\
+> goptāraṁ dharma-setūnāṁ\
 > menire pitaraṁ prajāḥ
 
 *tam*—a él; *evam*—de este modo; *śīla*—con cualidades divinas; *sampannam*—dotado; *brahmaṇyam*—respetuoso con los *brāhmaṇas*; *dīna*—con los pobres; *vatsalam*—bondadoso; *goptāram*—protector; *dharma-setūnām*—de los principios religiosos; *menire*—consideraban; *pitaram*—padre; *prajāḥ*—los ciudadanos.

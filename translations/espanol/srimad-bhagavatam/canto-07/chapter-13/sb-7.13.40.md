@@ -1,11 +1,11 @@
 ### SB 7.13.40
 
-> क्वचिच्छये धरोपस्थे तृणपर्णाश्मभस्मसु
+> क्वचिच्छये धरोपस्थे तृणपर्णाश्मभस्मसु\
 > क्वचित्प्रासादपर्यङ्के कशिपौ वा परेच्छया ॥४०॥
 
-> kvacic chaye dharopasthe
-> tṛṇa-parṇāśma-bhasmasu
-> kvacit prāsāda-paryaṅke
+> kvacic chaye dharopasthe\
+> tṛṇa-parṇāśma-bhasmasu\
+> kvacit prāsāda-paryaṅke\
 > kaśipau vā parecchayā
 
 *kvacit*—a veces; *śaye*—me acuesto; *dhara-upasthe*—sobre la superficie de la tierra; *tṛṇa*—sobre hierba; *parṇa*—hojas; *aśma*—piedra; *bhasmasu*—sobre un montón de cenizas; *kvacit*—a veces; *prāsāda*—en palacios; *paryaṅke*—sobre una cama inmejorable; *kaśipau*—sobre una almohada; *vā*—o; *para*—de otro; *icchayā*—por el deseo.

@@ -1,11 +1,11 @@
 ### SB 6.12.32
 
-> भित्त्वा वज्रेण तत्कुक्षिं निष्क्रम्य बलभिद्विभुः
+> भित्त्वा वज्रेण तत्कुक्षिं निष्क्रम्य बलभिद्विभुः\
 > उच्चकर्त शिरः शत्रोर्गिरिशृङ्गमिवौजसा ॥३२॥
 
-> bhittvā vajreṇa tat-kukṣiṁ
-> niṣkramya bala-bhid vibhuḥ
-> uccakarta śiraḥ śatror
+> bhittvā vajreṇa tat-kukṣiṁ\
+> niṣkramya bala-bhid vibhuḥ\
+> uccakarta śiraḥ śatror\
 > giri-śṛṅgam ivaujasā
 
 *bhittvā*—atravesar; *vajreṇa*—con el rayo; *tat-kukṣim*—el abdomen de Vṛtrāsura; *niṣkramya*—salir; *bala-bhit*—el que mató al demonio Bala; *vibhuḥ*—el poderoso Señor Indra; *uccakarta*—cortó; *śiraḥ*—la cabeza; *śatroḥ*—del enemigo; *giri-śṛṅgam*—el pico de una montaña; *iva*—como; *ojasā*—con gran fuerza.

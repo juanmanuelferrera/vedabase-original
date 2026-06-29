@@ -1,9 +1,9 @@
 ### CC Adi 8.37
 
-> ভাগবতে যত ভক্তিসিদ্ধান্তের সার ।
+> ভাগবতে যত ভক্তিসিদ্ধান্তের সার ।\
 > লিখিয়াছেন ইঁহা জানি’ করিয়া উদ্ধার ॥৩৭॥
 
-> bhāgavate yata bhakti-siddhāntera sāra
+> bhāgavate yata bhakti-siddhāntera sāra\
 > likhiyāchena iṅhā jāni' kariyā uddhāra
 
 *bhāgavate*—in *Śrīmad-Bhāgavatam*; *yata*—all; *bhakti-siddhāntera*—in understanding devotional service; *sāra*—essence; *likhiyāchena*—has written; *iṅhā*—this; *jāni'*—I know; *kariyā*—making; *uddhāra*—quotation.

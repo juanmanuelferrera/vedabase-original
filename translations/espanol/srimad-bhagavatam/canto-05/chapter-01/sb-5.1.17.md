@@ -1,11 +1,11 @@
 ### SB 5.1.17
 
-> भयं प्रमत्तस्य वनेष्वपि स्याद्यतः स आस्ते सहषट्सपत्नः
+> भयं प्रमत्तस्य वनेष्वपि स्याद्यतः स आस्ते सहषट्सपत्नः\
 > जितेन्द्रियस्यात्मरतेर्बुधस्य गृहाश्रमः किं नु करोत्यवद्यम ॥१७॥
 
-> bhayaṁ pramattasya vaneṣv api syād
-> yataḥ sa āste saha-ṣaṭ-sapatnaḥ
-> jitendriyasyātma-rater budhasya
+> bhayaṁ pramattasya vaneṣv api syād\
+> yataḥ sa āste saha-ṣaṭ-sapatnaḥ\
+> jitendriyasyātma-rater budhasya\
 > gṛhāśramaḥ kiṁ nu karoty avadyam
 
 *bhayam*—temor; *pramattasya*—del que está confundido; *vaneṣu*—en bosques; *api*—incluso; *syāt*—debe haber; *yataḥ*—pues; *saḥ*—él (el que no tiene dominio de sí mismo); *āste*—existe; *saha*—con; *ṣaṭ-sapatnaḥ*—seis coesposas; *jita-indriyasya*—para el que ya ha conquistado los sentidos; *ātma-rateḥ*—satisfecho en el ser; *budhasya*—para ese hombre erudito; *gṛha-āśramaḥ*—vida de casado; *kim*—qué; *nu*—en verdad; *karoti*—puede hacer; *avadyam*—daño.

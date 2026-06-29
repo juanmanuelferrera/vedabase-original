@@ -1,9 +1,9 @@
 ### CC Adi 10.60
 
-> আস্বাদিল এ সব রস সেন শিবানন্দ ।
+> আস্বাদিল এ সব রস সেন শিবানন্দ ।\
 > বিস্তারি’ কহিব আগে এসব আনন্দ ॥৬০॥
 
-> āsvādila e saba rasa sena śivānanda
+> āsvādila e saba rasa sena śivānanda\
 > vistāri' kahiba āge esaba ānanda
 
 *āsvādila*—tasted; *e*—these; *saba*—all; *rasa*—mellows; *sena śivānanda*—Śivānanda Sena; *vistāri'*—describing vividly; *kahiba*—I shall speak; *āge*—later on; *esaba*—all this; *ānanda*—transcendental bliss.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.268
 
-> সেই পুরুষ বিরজাতে করেন শয়ন ।
+> সেই পুরুষ বিরজাতে করেন শয়ন ।\
 > ‘কারণাব্ধিশায়ী’ নাম জগৎকারণ ॥২৬৮॥
 
-> sei puruṣa virajāte karena śayana
+> sei puruṣa virajāte karena śayana\
 > 'kāraṇābdhiśāyī' nāma jagat-kāraṇa
 
 *sei puruṣa*—the Supreme Personality of Godhead; *virajāte*—on the border known as Virajā; *karena śayana*—lies down; *kāraṇa-abdhi-śāyī*—Kāraṇābdhiśāyī; *nāma*—named; *jagat-kāraṇa*—is the original cause of material creation.

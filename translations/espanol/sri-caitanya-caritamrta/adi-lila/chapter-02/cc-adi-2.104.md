@@ -1,9 +1,9 @@
 ### CC Adi 2.104
 
-> এমত স্বরূপগণ, আর তিন শক্তি ।
+> এমত স্বরূপগণ, আর তিন শক্তি ।\
 > সভার আশ্রয় কৃষ্ণ, কৃষ্ণে সভার স্থিতি ॥১০৪॥
 
-> e-mata svarūpa-gaṇa, āra tina śakti
+> e-mata svarūpa-gaṇa, āra tina śakti\
 > sabhāra āśraya kṛṣṇa, kṛṣṇe sabhāra sthiti
 
 *e-mata*—de esta manera; *svarūpa-gaṇa*—formas personales; *āra*—y; *tina*—tres; *śakti*—energías; *sabhāra*—de toda la asamblea; *āśraya*—el refugio; *kṛṣṇa*—el Señor Kṛṣṇa; *kṛṣṇe*—en el Señor Kṛṣṇa; *sabhāra*—de toda la asamblea; *sthiti*—la existencia.

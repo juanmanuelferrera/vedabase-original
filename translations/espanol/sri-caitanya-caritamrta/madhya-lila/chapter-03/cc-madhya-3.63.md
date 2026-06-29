@@ -1,9 +1,9 @@
 ### CC Madhya 3.63
 
-> হরিদাস কহে — মুঞি পাপিষ্ঠ অধম ।
+> হরিদাস কহে — মুঞি পাপিষ্ঠ অধম ।\
 > বাহিরে এক মুষ্টি পাছে করিমু ভোজন ॥৬৩॥
 
-> haridāsa kahe--muñi pāpiṣṭha adhama
+> haridāsa kahe--muñi pāpiṣṭha adhama\
 > bāhire eka muṣṭi pāche karimu bhojana
 
 *haridāsa kahe*—Haridāsa dijo; *muñi*—yo; *pāpiṣṭha*—pecaminoso; *adhama*—el más bajo de los hombres; *bāhire*—fuera; *eka*—un; *muṣṭi*—puñado; *pāche*—después; *karimu*—haré; *bhojana*—comer.

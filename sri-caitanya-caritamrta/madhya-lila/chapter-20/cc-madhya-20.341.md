@@ -1,9 +1,9 @@
 ### CC Madhya 20.341
 
-> ধর্ম প্রবর্তন করে ব্রজেন্দ্রনন্দন ।
+> ধর্ম প্রবর্তন করে ব্রজেন্দ্রনন্দন ।\
 > প্রেমে গায় নাচে লোক করে সঙ্কীর্তন ॥৩৪১॥
 
-> dharma pravartana kare vrajendra-nandana
+> dharma pravartana kare vrajendra-nandana\
 > preme gāya nāce loka kare saṅkīrtana
 
 *dharma pravartana kare*—introduces a particular type of religious activity; *vrajendra-nandana*—Kṛṣṇa Himself; *preme*—in love; *gāya*—chants; *nāce*—dances; *loka*—all people; *kare*—perform; *saṅkīrtana*—congregational chanting.

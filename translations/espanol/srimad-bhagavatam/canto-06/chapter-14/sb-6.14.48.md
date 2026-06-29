@@ -2,7 +2,7 @@
 
 > पपात भूमौ परिवृद्धया शुचा मुमोह विभ्रष्टशिरोरुहाम्बरा ॥४८॥
 
-> papāta bhūmau parivṛddhayā śucā
+> papāta bhūmau parivṛddhayā śucā\
 > mumoha vibhraṣṭa-śiroruhāmbarā
 
 *papāta*—cayó; *bhūmau*—al suelo; *parivṛddhayā*—muy aumentada; *śucā*—por la lamentación; *mumoha*—quedó inconsciente; *vibhraṣṭa*—sueltos; *śiroruha*—el cabello; *ambarā*—y el vestido.

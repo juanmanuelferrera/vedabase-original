@@ -1,11 +1,11 @@
 ### SB 2.4.6
 
-> भूय एव विवित्सामि भगवानात्ममायया ।
+> भूय एव विवित्सामि भगवानात्ममायया ।\
 > यथेदं सृजते विश्वं दुर्विभाव्यमधीश्वरैः ॥६॥
 
-> bhūya eva vivitsāmi
-> bhagavān ātma-māyayā
-> yathedaṁ sṛjate viśvaṁ
+> bhūya eva vivitsāmi\
+> bhagavān ātma-māyayā\
+> yathedaṁ sṛjate viśvaṁ\
 > durvibhāvyam adhīśvaraiḥ
 
 *bhūyaḥ*—de nuevo; *eva*—también; *vivitsāmi*—deseo aprender; *bhagavān*—la Personalidad de Dios; *ātma*—personal; *māyayā*—mediante las energías; *yathā*—como; *idam*—este mundo fenoménico; *sṛjate*—crea; *viśvam*—universo; *durvibhāvyam*—inconcebible; *adhīśvaraiḥ*—por los grandes semidioses.

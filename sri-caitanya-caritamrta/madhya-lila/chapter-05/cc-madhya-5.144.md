@@ -1,9 +1,9 @@
 ### CC Madhya 5.144
 
-> জগন্নাথের দেউল দেখি’ আবিষ্ট হৈলা ।
+> জগন্নাথের দেউল দেখি’ আবিষ্ট হৈলা ।\
 > দণ্ডবৎ করি প্রেমে নাচিতে লাগিলা ॥১৪৪॥
 
-> jagannāthera deula dekhi' āviṣṭa hailā
+> jagannāthera deula dekhi' āviṣṭa hailā\
 > daṇḍavat kari preme nācite lāgilā
 
 *jagannāthera*—of Lord Jagannātha; *deula*—the temple; *dekhi'*—seeing; *āviṣṭa*—ecstatic; *hailā*—became; *daṇḍavat kari*—offering obeisances; *preme*—in the ecstasy of love of God; *nācite*—to dance; *lāgilā*—began.

@@ -1,9 +1,9 @@
 ### CC Madhya 14.175
 
-> আর সাত ভাব আসি’ সহজে মিলয় ।
+> আর সাত ভাব আসি’ সহজে মিলয় ।\
 > অষ্টভাব-সম্মিলনে ‘মহাভাব’ হয় ॥১৭৫॥
 
-> āra sāta bhāva āsi' sahaje milaya
+> āra sāta bhāva āsi' sahaje milaya\
 > asta-bhāva-sammilane 'mahābhāva' haya
 
 *āra*—otros; *sāta*—siete; *bhāva*—síntomas extáticos; *āsi'*—reuniéndose; *sahaje*—de manera natural; *milaya*—se mezclan; *aṣṭa-bhāva*—de ocho tipos de síntomas emocionales extáticos; *sammilane*—por la combinación; *mahā-bhāva haya*—se produce el mahābhāva.

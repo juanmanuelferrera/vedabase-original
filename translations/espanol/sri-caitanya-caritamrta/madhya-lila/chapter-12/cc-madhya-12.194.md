@@ -1,9 +1,9 @@
 ### CC Madhya 12.194
 
-> তোমার সিদ্ধান্ত-সঙ্গ করে যেই জনে ।
+> তোমার সিদ্ধান্ত-সঙ্গ করে যেই জনে ।\
 > ‘এক’ বস্তু বিনা সেই ‘দ্বিতীয়’ নাহি মানে ॥১৯৪॥
 
-> tomāra siddhānta-saṅga kare yei jane
+> tomāra siddhānta-saṅga kare yei jane\
 > 'eka' vastu vinā sei 'dvitīya' nāhi māne
 
 *tomāra*—Tu; *siddhānta-saṅga*—aceptación de la conclusión; *kare*—hace; *yei jane*—la persona que; *eka*—una; *vastu*—sustancia; *vinā*—excepto; *sei*—tal persona; *dvitīya*—una segunda cosa; *nāhi māne*—no acepta.

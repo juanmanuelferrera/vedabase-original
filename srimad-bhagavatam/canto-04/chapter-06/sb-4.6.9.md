@@ -1,11 +1,11 @@
 ### SB 4.6.9
 
-> जन्मौषधितपोमन्त्र योगसिद्धैर्नरेतरैः ।
+> जन्मौषधितपोमन्त्र योगसिद्धैर्नरेतरैः ।\
 > जुष्टं किन्नरगन्धर्वैरप्सरोभिर्वृतं सदा ॥९॥
 
-> janmauṣadhi-tapo-mantra-
-> yoga-siddhair naretaraiḥ
-> juṣṭaṁ kinnara-gandharvair
+> janmauṣadhi-tapo-mantra-\
+> yoga-siddhair naretaraiḥ\
+> juṣṭaṁ kinnara-gandharvair\
 > apsarobhir vṛtaṁ sadā
 
 *janma*—birth; *auṣadhi*—herbs; *tapaḥ*—austerity; *mantra*—Vedic hymns; *yoga*—mystic *yoga* practices; *siddhaiḥ*—with perfected beings; *nara-itaraiḥ*—by demigods; *juṣṭam*—enjoyed; *kinnara-gandharvaiḥ*—by Kinnaras and Gandharvas; *apsarobhiḥ*—by Apsarās; *vṛtam*—full of; *sadā*—always.

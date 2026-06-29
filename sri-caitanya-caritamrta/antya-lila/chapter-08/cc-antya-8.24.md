@@ -1,9 +1,9 @@
 ### CC Antya 8.24
 
-> মোরে মুখ না দেখাবি তুই, যাও যথি-তথি ।
+> মোরে মুখ না দেখাবি তুই, যাও যথি-তথি ।\
 > তোরে দেখি’ মৈলে মোর হবে অসদ্গতি ॥২৪॥
 
-> more mukha nā dekhābi tui, yāo yathi-tathi
+> more mukha nā dekhābi tui, yāo yathi-tathi\
 > tore dekhi' maile mora habe asad-gati
 
 *more*—to me; *mukha*—face; *nā dekhābi*—do not show; *tui*—you; *yāo*—go; *yathi-tathi*—anywhere else; *tore*—you; *dekhi'*—seeing; *maile*—if I die; *mora habe asat-gati*—I shall not get my destination.

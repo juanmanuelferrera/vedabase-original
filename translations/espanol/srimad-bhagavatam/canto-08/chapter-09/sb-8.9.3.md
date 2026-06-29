@@ -1,11 +1,11 @@
 ### SB 8.9.3
 
-> का त्वं कञ्जपलाशाक्षि कुतो वा किं चिकीर्षसि
+> का त्वं कञ्जपलाशाक्षि कुतो वा किं चिकीर्षसि\
 > कस्यासि वद वामोरु मथ्नतीव मनांसि नः ॥३॥
 
-> kā tvaṁ kañja-palāśākṣi
-> kuto vā kiṁ cikīrṣasi
-> kasyāsi vada vāmoru
+> kā tvaṁ kañja-palāśākṣi\
+> kuto vā kiṁ cikīrṣasi\
+> kasyāsi vada vāmoru\
 > mathnatīva manāṁsi naḥ
 
 *kā*—quién; *tvam*—eres Tú; *kañja-palāśa-akṣi*—de ojos como los pétalos de un loto; *kutaḥ*—de dónde; *vā*—o; *kim cikīrṣasi*—con qué objetivo has venido aquí; *kasya*—de quién; *asi*—perteneces; *vada*—por favor, dinos; *vāma-ūru*—¡oh, Tú, de muslos extraordinariamente hermosos!; *mathnatī*—agitar; *iva*—como; *manāṁsi*—dentro de nuestra mente; *naḥ*—nuestra.

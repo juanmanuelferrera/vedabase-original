@@ -1,11 +1,11 @@
 ### SB 1.7.42
 
-> तथाहृतं पशुवत्पाशबद्धमवाङ्मुखं कर्मजुगुप्सितेन ।
+> तथाहृतं पशुवत्पाशबद्धमवाङ्मुखं कर्मजुगुप्सितेन ।\
 > निरीक्ष्य कृष्णापकृतं गुरोः सुतं वामस्वभावा कृपया ननाम च ॥४२॥
 
-> tathāhṛtaṁ paśuvat pāśa-baddham
-> avāṅ-mukhaṁ karma-jugupsitena
-> nirīkṣya kṛṣṇāpakṛtaṁ guroḥ sutaṁ
+> tathāhṛtaṁ paśuvat pāśa-baddham\
+> avāṅ-mukhaṁ karma-jugupsitena\
+> nirīkṣya kṛṣṇāpakṛtaṁ guroḥ sutaṁ\
 > vāma-svabhāvā kṛpayā nanāma ca
 
 *tathā*—así pues; *āhṛtam*—trajo; *paśu-vat*—como un animal; *pāśa-baddham*—atado con sogas; *avāk-mukham*—sin una palabra en la boca; *karma*—actividades; *jugupsitena*—siendo atroces; *nirīkṣya*—por ver; *kṛṣṇā*—Draupadī; *apakṛtam*—el autor de lo degradante; *guroḥ*—el maestro; *sutam*—hijo; *vāma*—bella; *svabhāvā*—naturaleza; *kṛpayā*—por compasión; *nanāma*—ofreció reverencias; *ca*—y.

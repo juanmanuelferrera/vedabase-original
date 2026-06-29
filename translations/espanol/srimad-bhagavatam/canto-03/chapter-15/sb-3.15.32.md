@@ -1,15 +1,15 @@
 ### SB 3.15.32
 
-> मुनय ऊचुः
-> को वामिहैत्य भगवत्परिचर्ययोच्चैस्
-> तद्धर्मिणां निवसतां विषमः स्वभावः ।
-> तस्मिन्प्रशान्तपुरुषे गतविग्रहे वां
+> मुनय ऊचुः\
+> को वामिहैत्य भगवत्परिचर्ययोच्चैस्\
+> तद्धर्मिणां निवसतां विषमः स्वभावः ।\
+> तस्मिन्प्रशान्तपुरुषे गतविग्रहे वां\
 > को वात्मवत्कुहकयोः परिशङ्कनीयः ॥३२॥
 
-> munaya ūcuḥ
-> ko vām ihaitya bhagavat-paricaryayoccais
-> tad-dharmiṇāṁ nivasatāṁ viṣamaḥ svabhāvaḥ
-> tasmin praśānta-puruṣe gata-vigrahe vāṁ
+> munaya ūcuḥ\
+> ko vām ihaitya bhagavat-paricaryayoccais\
+> tad-dharmiṇāṁ nivasatāṁ viṣamaḥ svabhāvaḥ\
+> tasmin praśānta-puruṣe gata-vigrahe vāṁ\
 > ko vātmavat kuhakayoḥ pariśaṅkanīyaḥ
 
 *munayaḥ*—los grandes sabios; *ūcuḥ*—dijeron; *kaḥ*—quiénes; *vām*—ustedes dos; *iha*—en Vaikuṇṭha; *etya*—habiendo alcanzado; *bhagavat*—de la Suprema Personalidad de Dios; *paricaryayā*—por el servicio; *uccaiḥ*—habiéndose desarrollado por acciones piadosas anteriores; *tat-dharmiṇām*—de los devotos; *nivasatām*—residiendo en Vaikuṇṭha; *viṣamaḥ*—discordante; *svabhāvaḥ*—mentalidad; *tasmin*—en el Señor Supremo; *praśānta-puruṣe*—sin ansiedades; *gata-vigrahe*—sin ningún enemigo; *vām*—de ustedes dos; *kaḥ*—quiénes; *vā*—o; *ātma-vat*—como ustedes; *kuhakayoḥ*—conservando duplicidad; *pariśaṅkanīyaḥ*—no ser dignos de confianza.

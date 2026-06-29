@@ -1,11 +1,11 @@
 ### SB 3.10.25
 
-> कङ्कगृध्रबकश्येन भासभल्लूकबर्हिणः ।
+> कङ्कगृध्रबकश्येन भासभल्लूकबर्हिणः ।\
 > हंससारसचक्राह्व काकोलूकादयः खगाः ॥२५॥
 
-> kaṅka-gṛdhra-baka-śyena-
-> bhāsa-bhallūka-barhiṇaḥ
-> haṁsa-sārasa-cakrāhva-
+> kaṅka-gṛdhra-baka-śyena-\
+> bhāsa-bhallūka-barhiṇaḥ\
+> haṁsa-sārasa-cakrāhva-\
 > kākolūkādayaḥ khagāḥ
 
 *kaṅka*—garza; *gṛdhra*—buitre; *baka*—grulla; *śyena*—halcón; *bhāsa*—el *bhāsa*; *bhallūka*—el *bhallūka*; *barhiṇaḥ*—el pavo real; *haṁsa*—el cisne; *sārasa*—el *sārasa*; *cakrāhva*—el *cakravāka*; *kāka*—el cuervo; *ulūka*—el búho; *ādayaḥ*—y otros; *khagāḥ*—las aves.

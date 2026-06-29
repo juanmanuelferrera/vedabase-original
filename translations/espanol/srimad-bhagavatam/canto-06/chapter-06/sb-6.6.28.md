@@ -1,11 +1,11 @@
 ### SB 6.6.28
 
-> दन्दशूकादयः सर्पा राजन्क्रोधवशात्मजाः
+> दन्दशूकादयः सर्पा राजन्क्रोधवशात्मजाः\
 > इलाया भूरुहाः सर्वे यातुधानाश्च सौरसाः ॥२८॥
 
-> dandaśūkādayaḥ sarpā
-> rājan krodhavaśātmajāḥ
-> ilāyā bhūruhāḥ sarve
+> dandaśūkādayaḥ sarpā\
+> rājan krodhavaśātmajāḥ\
+> ilāyā bhūruhāḥ sarve\
 > yātudhānāś ca saurasāḥ
 
 *dandaśūka-ādayaḥ*—encabezados por las serpientes *dandaśūka*; *sarpāḥ*—reptiles; *rājan*—¡oh, rey!; *krodhavaśā-ātma-jāḥ*—nacidos de Krodhavaśā; *ilāyāḥ*—del vientre de Ilā; *bhūruhāḥ*—las enredaderas y los árboles; *sarve*—todos; *yātudhānāḥ*—los caníbales (*rākṣasas*); *ca*—también; *saurasāḥ*—del vientre de Surasā.

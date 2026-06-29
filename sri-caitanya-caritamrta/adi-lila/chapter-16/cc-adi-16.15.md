@@ -1,9 +1,9 @@
 ### CC Adi 16.15
 
-> প্রভু তুষ্ট হঞা সাধ্য-সাধন কহিল ।
+> প্রভু তুষ্ট হঞা সাধ্য-সাধন কহিল ।\
 > নাম-সংকীর্তন কর, — উপদেশ কৈল ॥১৫॥
 
-> prabhu tuṣṭa hañā sādhya-sādhana kahila
+> prabhu tuṣṭa hañā sādhya-sādhana kahila\
 > nāma-saṅkīrtana kara,—upadeśa kaila
 
 *prabhu*—the Lord; *tuṣṭa*—satisfied; *hañā*—becoming; *sādhya-sādhana*—the objective and the process; *kahila*—described; *nāma-saṅkīrtana*—chanting of the Hare Kṛṣṇa *mantra*; *kara*—practice; *upadeśa kaila*—gave him the instruction.

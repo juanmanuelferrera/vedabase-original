@@ -1,9 +1,9 @@
 ### CC Antya 6.21
 
-> প্রতিদিন রঘুনাথে করয়ে ভর্ৎসনা ।
+> প্রতিদিন রঘুনাথে করয়ে ভর্ৎসনা ।\
 > ‘বাপ-জ্যেঠারে আন’, নহে পাইবা যাতনা ॥২১॥
 
-> prati-dina raghunāthe karaye bhartsanā
+> prati-dina raghunāthe karaye bhartsanā\
 > 'bāpa-jyeṭhāre āna;, nahe pāibā yātanā
 
 *prati-dina*—diariamente; *raghunāthe*—Raghunātha dāsa; *karaye bhartsanā*—lo reprendía; *bāpa-jyeṭhāre āna*—trae a tu padre y a su hermano mayor; *nahe*—de lo contrario; *pāibā yātanā*—serás castigado.

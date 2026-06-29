@@ -1,13 +1,13 @@
 ### CC Madhya 21.104
 
-> রূপ দেখি’ আপনার, কৃষ্ণের হৈল চমৎকার,
-> আস্বাদিতে মনে উঠে কাম ।
-> ‘স্বসৌভাগ্য’ যাঁর নাম, সৌন্দর্যাদি-গুণগ্রাম,
+> রূপ দেখি’ আপনার, কৃষ্ণের হৈল চমৎকার,\
+> আস্বাদিতে মনে উঠে কাম ।\
+> ‘স্বসৌভাগ্য’ যাঁর নাম, সৌন্দর্যাদি-গুণগ্রাম,\
 > এইরূপ নিত্য তার ধাম ॥১০৪॥
 
-> rūpa dekhi' āpanāra, kṛṣṇera haila camatkāra,
-> āsvādite mane uṭhe kāma
-> 'svasaubhāgya' yāṅra nāma, saundaryādi-guṇa-grāma,
+> rūpa dekhi' āpanāra, kṛṣṇera haila camatkāra,\
+> āsvādite mane uṭhe kāma\
+> 'svasaubhāgya' yāṅra nāma, saundaryādi-guṇa-grāma,\
 > ei-rūpa nitya tāra dhāma
 
 *rūpa dekhi'*—by seeing the form; *āpanāra*—His own; *kṛṣṇera*—of Lord Kṛṣṇa; *haila*—there was; *camatkāra*—wonder; *āsvādite*—to taste; *mane*—in the mind; *uṭhe*—arises; *kāma*—a desire; *sva-saubhāgya*—one's own good fortune; *yāṅra*—of which; *nāma*—the name; *saundarya-ādi-guṇa-grāma*—the transcendental qualities, headed by beauty; *ei rūpa*—this form; *nitya*—eternal; *tāra*—of them; *dhāma*—the abode.

@@ -1,11 +1,11 @@
 ### SB 4.7.3
 
-> प्रजापतेर्दग्धशीर्ष्णो भवत्वजमुखं शिरः ।
+> प्रजापतेर्दग्धशीर्ष्णो भवत्वजमुखं शिरः ।\
 > मित्रस्य चक्षुषेक्षेत भागं स्वं बर्हिषो भगः ॥३॥
 
-> prajāpater dagdha-śīrṣṇo
-> bhavatv aja-mukhaṁ śiraḥ
-> mitrasya cakṣuṣekṣeta
+> prajāpater dagdha-śīrṣṇo\
+> bhavatv aja-mukhaṁ śiraḥ\
+> mitrasya cakṣuṣekṣeta\
 > bhāgaṁ svaṁ barhiṣo bhagaḥ
 
 *prajāpateḥ*—of Prajāpati Dakṣa; *dagdha-śīrṣṇaḥ*—whose head has been burned to ashes; *bhavatu*—let there be; *aja-mukham*—with the face of a goat; *śiraḥ*—a head; *mitrasya*—of Mitra; *cakṣuṣā*—through the eyes; *īkṣeta*—may see; *bhāgam*—share; *svam*—his own; *barhiṣaḥ*—of the sacrifice; *bhagaḥ*—Bhaga.

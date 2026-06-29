@@ -1,9 +1,9 @@
 ### CC Adi 15.5
 
-> গঙ্গাদাস পণ্ডিত-স্থানে পড়েন ব্যাকরণ ।
+> গঙ্গাদাস পণ্ডিত-স্থানে পড়েন ব্যাকরণ ।\
 > শ্রবণ-মাত্রে কণ্ঠে কৈল সূত্রবৃত্তিগণ ॥৫॥
 
-> gaṅgādāsa paṇḍita-sthāne paḍena vyākaraṇa
+> gaṅgādāsa paṇḍita-sthāne paḍena vyākaraṇa\
 > śravaṇa-mātre kaṇṭhe kaila sūtra-vṛtti-gaṇa
 
 *gaṅgādāsa*—de nombre Gaṅgādāsa; *paṇḍita-sthāne*—en el lugar del maestro; *paḍena*—estudia; *vyākaraṇa*—gramática; *śravaṇa-mātre*—simplemente al escuchar; *kaṇṭhe*—entre el cuello y el corazón; *kaila*—hizo; *sūtra-vṛtti-gaṇa*—los aforismos y sus definiciones.

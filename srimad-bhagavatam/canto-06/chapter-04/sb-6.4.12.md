@@ -1,11 +1,11 @@
 ### SB 6.4.12
 
-> तोकानां पितरौ बन्धू दृशः पक्ष्म स्त्रियाः पतिः
+> तोकानां पितरौ बन्धू दृशः पक्ष्म स्त्रियाः पतिः\
 > पतिः प्रजानां भिक्षूणां गृह्यज्ञआनां बुधः सुहृत ॥१२॥
 
-> tokānāṁ pitarau bandhū
-> dṛśaḥ pakṣma striyāḥ patiḥ
-> patiḥ prajānāṁ bhikṣūṇāṁ
+> tokānāṁ pitarau bandhū\
+> dṛśaḥ pakṣma striyāḥ patiḥ\
+> patiḥ prajānāṁ bhikṣūṇāṁ\
 > gṛhy ajñānāṁ budhaḥ suhṛt
 
 *tokānām*—of children; *pitarau*—the two parents; *bandhū*—the friends; *dṛśaḥ*—of the eye; *pakṣma*—the eyelid; *striyāḥ*—of the woman; *patiḥ*—the husband; *patiḥ*—the protector; *prajānām*—of the subjects; *bhikṣūṇām*—of the beggars; *gṛhī*—the householder; *ajñānām*—of the ignorant; *budhaḥ*—the learned; *su-hṛt*—the friend.

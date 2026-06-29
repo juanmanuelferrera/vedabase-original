@@ -1,9 +1,9 @@
 ### CC Adi 10.84
 
-> অনুপম-বল্লভ, শ্রীরূপ, সনাতন ।
+> অনুপম-বল্লভ, শ্রীরূপ, সনাতন ।\
 > এই তিন শাখা বৃক্ষের পশ্চিমে সর্বোত্তম ॥৮৪॥
 
-> anupama-vallabha, śrī-rūpa, sanātana
+> anupama-vallabha, śrī-rūpa, sanātana\
 > ei tina śākhā vṛkṣera paścime sarvottama
 
 *anupama*—de nombre Anupama; *vallabha*—de nombre Vallabha; *śrī-rūpa*—de nombre Śrī Rūpa; *sanātana*—de nombre Sanātana; *ei*—estas; *tina*—tres; *śākhā*—ramas; *vṛkṣera*—del árbol; *paścime*—en el lado occidental; *sarvottama*—muy grandes.

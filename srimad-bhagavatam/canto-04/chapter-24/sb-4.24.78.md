@@ -1,11 +1,11 @@
 ### SB 4.24.78
 
-> इदं यः कल्य उत्थाय प्राञ्जलिः श्रद्धयान्वितः ।
+> इदं यः कल्य उत्थाय प्राञ्जलिः श्रद्धयान्वितः ।\
 > शृणुयाच्छ्रावयेन्मर्त्यो मुच्यते कर्मबन्धनैः ॥७८॥
 
-> idaṁ yaḥ kalya utthāya
-> prāñjaliḥ śraddhayānvitaḥ
-> śṛṇuyāc chrāvayen martyo
+> idaṁ yaḥ kalya utthāya\
+> prāñjaliḥ śraddhayānvitaḥ\
+> śṛṇuyāc chrāvayen martyo\
 > mucyate karma-bandhanaiḥ
 
 *idam*—this prayer; *yaḥ*—a devotee who; *kalye*—early in the morning; *utthāya*—after getting up from bed; *prāñjaliḥ*—with folded hands; *śraddhayā*—with faith and devotion; *anvitaḥ*—thus being absorbed; *śṛṇuyāt*—personally chants and hears; *śrāvayet*—and gets others to hear; *martyaḥ*—such a human being; *mucyate*—becomes freed; *karma-bandhanaiḥ*—from all kinds of actions resulting from fruitive activities.

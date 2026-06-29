@@ -1,11 +1,11 @@
 ### SB 9.11.5
 
-> ते तु ब्राह्मणदेवस्य वात्सल्यं वीक्ष्य संस्तुतम
+> ते तु ब्राह्मणदेवस्य वात्सल्यं वीक्ष्य संस्तुतम\
 > प्रीताः क्लिन्नधियस्तस्मै प्रत्यर्प्येदं बभाषिरे ॥५॥
 
-> te tu brāhmaṇa-devasya
-> vātsalyaṁ vīkṣya saṁstutam
-> prītāḥ klinna-dhiyas tasmai
+> te tu brāhmaṇa-devasya\
+> vātsalyaṁ vīkṣya saṁstutam\
+> prītāḥ klinna-dhiyas tasmai\
 > pratyarpyedaṁ babhāṣire
 
 *te*—el *hotā*, el *brahmā* y los demás sacerdotes; *tu*—pero; *brāhmaṇa-devasya*—del Señor Rāmacandra, que tanto quería a los *brāhmaṇas*; *vātsalyam*—el cariño paternal; *vīkṣya*—al ver; *saṁstutam*—adoraron con oraciones; *prītāḥ*—muy complacidos; *klinna-dhiyaḥ*—con el corazón enternecido; *tasmai*—a Él (al Señor Rāmacandra); *pratyarpya*—devolviendo; *idam*—esto (todas las tierras que les había dado); *babhāṣire*—dijeron.

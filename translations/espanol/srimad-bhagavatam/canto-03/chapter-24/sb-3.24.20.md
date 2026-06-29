@@ -1,13 +1,13 @@
 ### SB 3.24.20
 
-> मैत्रेय उवाच
-> तावाश्वास्य जगत्स्रष्टा कुमारैः सहनारदः ।
+> मैत्रेय उवाच\
+> तावाश्वास्य जगत्स्रष्टा कुमारैः सहनारदः ।\
 > हंसो हंसेन यानेन त्रिधामपरमं ययौ ॥२०॥
 
-> maitreya uvāca
-> tāv āśvāsya jagat-sraṣṭā
-> kumāraiḥ saha-nāradaḥ
-> haṁso haṁsena yānena
+> maitreya uvāca\
+> tāv āśvāsya jagat-sraṣṭā\
+> kumāraiḥ saha-nāradaḥ\
+> haṁso haṁsena yānena\
 > tri-dhāma-paramaṁ yayau
 
 *maitreyaḥ uvāca*—Maitreya dijo; *tau*—a la pareja; *āśvāsya*—habiendo alentado; *jagat-sraṣṭā*—el creador del universo; *kumāraiḥ*—junto con los Kumāras; *saha-nāradaḥ*—con Nārada; *haṁsaḥ*—el Señor Brahmā; *haṁsena yānena*—en su montura, el cisne; *tri-dhāma-paramam*—al sistema planetario más elevado; *yayau*—fueron.

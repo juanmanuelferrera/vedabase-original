@@ -1,9 +1,9 @@
 ### CC Antya 9.98
 
-> রাজা কহে, — “তারে আমি দুঃখ নাহি দিয়ে ।
+> রাজা কহে, — “তারে আমি দুঃখ নাহি দিয়ে ।\
 > চাঙ্গে চড়া, খড়্গে ডারা, — আমি না জানিয়ে ॥৯৮॥
 
-> rājā kahe,—"tāre āmi duḥkha nāhi diye
+> rājā kahe,—"tāre āmi duḥkha nāhi diye\
 > cāṅge caḍā, khaḍge ḍārā,—āmi nā jāniye
 
 *rājā kahe*—the King replied; *tāre*—to him; *āmi*—I; *duḥkha*—unhappiness; *nāhi diye*—have no desire to give; *cāṅge caḍā*—the raising on the *cāṅga*; *khaḍge*—on the swords; *ḍārā*—the throwing; *āmi*—I; *nā jāniye*—did not know.

@@ -1,11 +1,11 @@
 ### SB 6.3.22
 
-> एतावानेव लोकेऽस्मिन्पुंसां धर्मः परः स्मृतः
+> एतावानेव लोकेऽस्मिन्पुंसां धर्मः परः स्मृतः\
 > भक्तियोगो भगवति तन्नामग्रहणादिभिः ॥२२॥
 
-> etāvān eva loke 'smin
-> puṁsāṁ dharmaḥ paraḥ smṛtaḥ
-> bhakti-yogo bhagavati
+> etāvān eva loke 'smin\
+> puṁsāṁ dharmaḥ paraḥ smṛtaḥ\
+> bhakti-yogo bhagavati\
 > tan-nāma-grahaṇādibhiḥ
 
 *etāvān*—solo eso; *eva*—en verdad; *loke asmin*—en el mundo material; *puṁsām*—de las entidades vivientes; *dharmaḥ*—los principios religiosos; *paraḥ*—trascendentales; *smṛtaḥ*—reconocido; *bhakti-yogaḥ*—*bhakti-yoga* , o servicio devocional; *bhagavati*—a la Suprema Personalidad de Dios (no a los semidioses); *tat*—Suyo; *nāma*—del santo nombre; *grahaṇa-ādibhiḥ*—que comienza con el canto.

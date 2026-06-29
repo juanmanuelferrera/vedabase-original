@@ -1,11 +1,11 @@
 ### CC Madhya 8.58
 
-> বর্ণাশ্রমাচারবতা পুরুষেণ পরঃ পুমান্ ৷
+> বর্ণাশ্রমাচারবতা পুরুষেণ পরঃ পুমান্ ৷\
 > বিষ্ণুরারাধ্যতে পন্থা নান্যত্তত্তোষকারণম্ ৷৷ ৫৮ ৷৷ ॥৫৮॥
 
-> varṇāśramācāra-vatā
-> puruṣena paraḥ pumān
-> visṇur ārādhyate panthā
+> varṇāśramācāra-vatā\
+> puruṣena paraḥ pumān\
+> visṇur ārādhyate panthā\
 > nānyat tat-toṣa-kāraṇam
 
 *varṇa-āśrama-ācāra-vatā*—que se comporta conforme al sistema de cuatro divisiones del orden social y cuatro divisiones de la vida espiritual; *puruṣeṇa*—por un hombre; *paraḥ*—la suprema; *pumān*—persona; *viṣṇuḥ*—el Señor Viṣṇu; *ārādhyate*—es adorado; *panthā*—sendero; *na*—no; *anyat*—otro; *tat-toṣa-kāraṇam*—causa de satisfacer al Señor.

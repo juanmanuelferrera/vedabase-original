@@ -1,13 +1,13 @@
 ### SB 3.9.19
 
-> तिर्यङ्मनुष्यविबुधादिषु जीवयोनिष्व्
-> आत्मेच्छयात्मकृतसेतुपरीप्सया यः ।
-> रेमे निरस्तविषयोऽप्यवरुद्धदेहस्
+> तिर्यङ्मनुष्यविबुधादिषु जीवयोनिष्व्\
+> आत्मेच्छयात्मकृतसेतुपरीप्सया यः ।\
+> रेमे निरस्तविषयोऽप्यवरुद्धदेहस्\
 > तस्मै नमो भगवते पुरुषोत्तमाय ॥१९॥
 
-> tiryaṅ-manuṣya-vibudhādiṣu jīva-yoniṣv
-> ātmecchayātma-kṛta-setu-parīpsayā yaḥ
-> reme nirasta-viṣayo 'py avaruddha-dehas
+> tiryaṅ-manuṣya-vibudhādiṣu jīva-yoniṣv\
+> ātmecchayātma-kṛta-setu-parīpsayā yaḥ\
+> reme nirasta-viṣayo 'py avaruddha-dehas\
 > tasmai namo bhagavate puruṣottamāya
 
 *tiryak*—animals lower than human beings; *manuṣya*—human beings, etc.; *vibudha-ādiṣu*—amongst the demigods; *jīva-yoniṣu*—in different species of life; *ātma*—self; *icchayā*—by the will; *ātma-kṛta*—self-created; *setu*—obligations; *parīpsayā*—desiring to preserve; *yaḥ*—who; *reme*—performing transcendental pastimes; *nirasta*—not being affected; *viṣayaḥ*—material contamination; *api*—certainly; *avaruddha*—manifested; *dehaḥ*—transcendental body; *tasmai*—unto Him; *namaḥ*—my obeisances; *bhagavate*—unto the Personality of Godhead; *puruṣottamāya*—the primeval Lord.

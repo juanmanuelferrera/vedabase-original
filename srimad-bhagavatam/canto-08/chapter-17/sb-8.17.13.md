@@ -1,11 +1,11 @@
 ### SB 8.17.13
 
-> तान्विनिर्जित्य समरे दुर्मदानसुरर्षभान
+> तान्विनिर्जित्य समरे दुर्मदानसुरर्षभान\
 > प्रतिलब्धजयश्रीभिः पुत्रैरिच्छस्युपासितुम ॥१३॥
 
-> tān vinirjitya samare
-> durmadān asurarṣabhān
-> pratilabdha-jaya-śrībhiḥ
+> tān vinirjitya samare\
+> durmadān asurarṣabhān\
+> pratilabdha-jaya-śrībhiḥ\
 > putrair icchasy upāsitum
 
 *tān*—them; *vinirjitya*—defeating; *samare*—in the fight; *durmadān*—puffed up by strength; *asura-ṛṣabhān*—the leaders of the demons; *pratilabdha*—getting back; *jaya*—victory; *śrībhiḥ*—as well as the opulence; *putraiḥ*—with your sons; *icchasi*—you are desiring; *upāsitum*—to come together and worship Me.

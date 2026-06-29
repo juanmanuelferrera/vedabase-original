@@ -1,11 +1,11 @@
 ### SB 4.29.82
 
-> तत्रैकाग्रमना धीरो गोविन्दचरणाम्बुजम् ।
+> तत्रैकाग्रमना धीरो गोविन्दचरणाम्बुजम् ।\
 > विमुक्तसङ्गोऽनुभजन्भक्त्या तत्साम्यतामगात् ॥८२॥
 
-> tatraikāgra-manā dhīro
-> govinda-caraṇāmbujam
-> vimukta-saṅgo 'nubhajan
+> tatraikāgra-manā dhīro\
+> govinda-caraṇāmbujam\
+> vimukta-saṅgo 'nubhajan\
 > bhaktyā tat-sāmyatām agāt
 
 *tatra*—allí; *eka-agra-manāḥ*—con plena atención; *dhīraḥ*—sobrio; *govinda*—de Kṛṣṇa; *caraṇa-ambujam*—a los pies de loto; *vimukta*—liberado de; *saṅgaḥ*—contacto con la materia; *anubhajan*—ocuparse continuamente en servicio devocional; *bhaktyā*—con devoción pura; *tat*—con el Señor; *sāmyatām*—igualdad cualitativa; *agāt*—logró.

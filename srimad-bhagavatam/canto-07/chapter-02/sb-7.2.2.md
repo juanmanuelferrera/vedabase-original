@@ -1,11 +1,11 @@
 ### SB 7.2.2
 
-> आह चेदं रुषा पूर्णः सन्दष्टदशनच्छदः
+> आह चेदं रुषा पूर्णः सन्दष्टदशनच्छदः\
 > कोपोज्ज्वलद्भ्यां चक्षुर्भ्यां निरीक्षन्धूम्रमम्बरम ॥२॥
 
-> āha cedaṁ ruṣā pūrṇaḥ
-> sandaṣṭa-daśana-cchadaḥ
-> kopojjvaladbhyāṁ cakṣurbhyāṁ
+> āha cedaṁ ruṣā pūrṇaḥ\
+> sandaṣṭa-daśana-cchadaḥ\
+> kopojjvaladbhyāṁ cakṣurbhyāṁ\
 > nirīkṣan dhūmram ambaram
 
 *āha*—said; *ca*—and; *idam*—this; *ruṣā*—with anger; *pūrṇaḥ*—full; *sandaṣṭa*—bitten; *daśana-chadaḥ*—whose lips; *kopa-ujjvaladbhyām*—blazing with anger; *cakṣurbhyām*—with eyes; *nirīkṣan*—looking over; *dhūmram*—smoky; *ambaram*—the sky.

@@ -1,11 +1,11 @@
 ### SB 9.9.37
 
-> विशापो द्वादशाब्दान्ते मैथुनाय समुद्यतः
+> विशापो द्वादशाब्दान्ते मैथुनाय समुद्यतः\
 > विज्ञआप्य ब्राह्मणीशापं महिष्या स निवारितः ॥३७॥
 
-> viśāpo dvādaśābdānte
-> maithunāya samudyataḥ
-> vijñāpya brāhmaṇī-śāpaṁ
+> viśāpo dvādaśābdānte\
+> maithunāya samudyataḥ\
+> vijñāpya brāhmaṇī-śāpaṁ\
 > mahiṣyā sa nivāritaḥ
 
 *viśāpaḥ*—being released from the period of the curse; *dvādaśa-abda-ante*—after twelve years; *maithunāya*—for sexual intercourse with his wife; *samudyataḥ*—when Saudāsa was prepared to do it; *vijñāpya*—reminding him about; *brāhmaṇī-śāpam*—the curse given by the *brāhmaṇī*; *mahiṣyā*—by the Queen; *saḥ*—he (the King); *nivāritaḥ*—checked.

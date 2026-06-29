@@ -1,11 +1,11 @@
 ### SB 4.29.8
 
-> अक्षिणी नासिके कर्णौ मुखं शिश्नगुदाविति ।
+> अक्षिणी नासिके कर्णौ मुखं शिश्नगुदाविति ।\
 > द्वे द्वे द्वारौ बहिर्याति यस्तदिन्द्रियसंयुतः ॥८॥
 
-> akṣiṇī nāsike karṇau
-> mukhaṁ śiśna-gudāv iti
-> dve dve dvārau bahir yāti
+> akṣiṇī nāsike karṇau\
+> mukhaṁ śiśna-gudāv iti\
+> dve dve dvārau bahir yāti\
 > yas tad-indriya-saṁyutaḥ
 
 *akṣiṇī*—two eyes; *nāsike*—two nostrils; *karṇau*—two ears; *mukham*—mouth; *śiśna*—genitals; *gudau*—and rectum; *iti*—thus; *dve*—two; *dve*—two; *dvārau*—gates; *bahiḥ*—outside; *yāti*—goes; *yaḥ*—one who; *tat*—through the gates; *indriya*—by the senses; *saṁyutaḥ*—accompanied.

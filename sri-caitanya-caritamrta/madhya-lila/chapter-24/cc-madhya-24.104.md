@@ -1,9 +1,9 @@
 ### CC Madhya 24.104
 
-> সাধুসঙ্গ, কৃষ্ণকৃপা, ভক্তির স্বভাব ।
+> সাধুসঙ্গ, কৃষ্ণকৃপা, ভক্তির স্বভাব ।\
 > এ তিনে সব ছাড়ায়, করে কৃষ্ণে ‘ভাব’ ॥১০৪॥
 
-> sādhu-saṅga, kṛṣṇa-kṛpā, bhaktira svabhāva
+> sādhu-saṅga, kṛṣṇa-kṛpā, bhaktira svabhāva\
 > e tine saba chāḍāya, kare kṛṣṇe 'bhāva'
 
 *sādhu-saṅga*—the association of devotees; *kṛṣṇa-kṛpā*—the mercy of Lord Kṛṣṇa; *bhaktira*—of devotional service; *sva-bhāva*—nature; *e tine*—these three; *saba chāḍāya*—cause one to give up everything else; *kare*—do; *kṛṣṇe*—unto Lord Kṛṣṇa; *bhāva*—the loving affairs.

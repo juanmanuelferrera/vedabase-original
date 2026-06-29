@@ -1,11 +1,11 @@
 ### CC Madhya 8.89
 
-> ময়ি ভক্তির্হি ভূতানামমৃতত্বায় কল্পতে ।
+> ময়ি ভক্তির্হি ভূতানামমৃতত্বায় কল্পতে ।\
 > দিষ্ট্যা যদাসীন্মত্স্প্তেহো ভবতীনাং মদাপনঃ ॥৮৯॥
 
-> mayi bhaktir hi bhūtānām
-> amṛtatvāya kalpate
-> diṣṭyā yad āsīn mat-sneho
+> mayi bhaktir hi bhūtānām\
+> amṛtatvāya kalpate\
+> diṣṭyā yad āsīn mat-sneho\
 > bhavatīnāṁ mad-āpanaḥ
 
 *mayi*—unto Me; *bhaktiḥ*—devotional service; *hi*—certainly; *bhūtānām*—of all living entities; *amṛtatvāya*—for becoming eternal; *kalpate*—is meant; *diṣṭyā*—fortunately; *yat*—what; *āsīt*—there is; *mat-snehaḥ*—affection for Me; *bhavatīnām*—of all of you; *mat-āpanaḥ*—the means of getting My favor.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.293
 
-> এই ত’ দ্বিতীয়-পুরুষ — ব্রহ্মাণ্ডের ঈশ্বর ।
+> এই ত’ দ্বিতীয়-পুরুষ — ব্রহ্মাণ্ডের ঈশ্বর ।\
 > মায়ার ‘আশ্রয়’ হয়, তবু মায়া-পার ॥২৯৩॥
 
-> ei ta' dvitīya-puruṣa--brahmāṇḍera īśvara
+> ei ta' dvitīya-puruṣa--brahmāṇḍera īśvara\
 > māyāra 'āśraya' haya, tabu māyā-pāra
 
 *ei ta'*—de esta manera; *dvitīya-puruṣa*—la segunda Personalidad de Dios; *brahmāṇḍera īśvara*—el amo del universo; *māyāra*—de la energía material externa; *āśraya haya*—se convierte en el refugio; *tabu*—aun así; *māyā-pāra*—está más allá del contacto de la energía material.

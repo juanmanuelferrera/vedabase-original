@@ -1,11 +1,11 @@
 ### SB 3.1.24
 
-> ततस्त्वतिव्रज्य सुराष्ट्रमृद्धं सौवीरमत्स्यान्कुरुजाङ्गलांश्च ।
+> ततस्त्वतिव्रज्य सुराष्ट्रमृद्धं सौवीरमत्स्यान्कुरुजाङ्गलांश्च ।\
 > कालेन तावद्यमुनामुपेत्य तत्रोद्धवं भागवतं ददर्श ॥२४॥
 
-> tatas tv ativrajya surāṣṭram ṛddhaṁ
-> sauvīra-matsyān kurujāṅgalāṁś ca
-> kālena tāvad yamunām upetya
+> tatas tv ativrajya surāṣṭram ṛddhaṁ\
+> sauvīra-matsyān kurujāṅgalāṁś ca\
+> kālena tāvad yamunām upetya\
 > tatroddhavaṁ bhāgavataṁ dadarśa
 
 *tataḥ*—from there; *tu*—but; *ativrajya*—by passing over; *surāṣṭram*—the kingdom of Surat; *ṛddham*—very wealthy; *sauvīra*—the kingdom of Sauvīra; *matsyān*—the kingdom of Matsya; *kurujāṅgalān*—the kingdom of western India up to the Delhi province; *ca*—also; *kālena*—in course of time; *tāvat*—as soon as; *yamunām*—bank of the River Yamunā; *upetya*—reaching; *tatra*—there; *uddhavam*—Uddhava, one of the prominent Yadus; *bhāgavatam*—the great devotee of Lord Kṛṣṇa; *dadarśa*—happened to see.

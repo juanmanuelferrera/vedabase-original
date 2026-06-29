@@ -1,9 +1,9 @@
 ### CC Madhya 22.166
 
-> যাহা হৈতে পাই কৃষ্ণের প্রেম-সেবন ।
+> যাহা হৈতে পাই কৃষ্ণের প্রেম-সেবন ।\
 > এইত’ কহিলুঁ ‘অভিধেয়’-বিবরণ ॥১৬৬॥
 
-> yāhā haite pāi kṛṣṇera prema-sevana
+> yāhā haite pāi kṛṣṇera prema-sevana\
 > eita' kahiluṅ 'abhidheya'-vivaraṇa
 
 *yāhā haite*—from which; *pāi*—I can get; *kṛṣṇera*—of Lord Kṛṣṇa; *prema-sevana*—affectionate service; *eita'*—this; *kahiluṅ*—I have done; *abhidheya-vivaraṇa*—description of the means (devotional service) in detail.

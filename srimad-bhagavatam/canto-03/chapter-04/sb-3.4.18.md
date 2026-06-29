@@ -1,11 +1,11 @@
 ### SB 3.4.18
 
-> ज्ञानं परं स्वात्मरहःप्रकाशं प्रोवाच कस्मै भगवान्समग्रम् ।
+> ज्ञानं परं स्वात्मरहःप्रकाशं प्रोवाच कस्मै भगवान्समग्रम् ।\
 > अपि क्षमं नो ग्रहणाय भर्तर्वदाञ्जसा यद्वृजिनं तरेम ॥१८॥
 
-> jñānaṁ paraṁ svātma-rahaḥ-prakāśaṁ
-> provāca kasmai bhagavān samagram
-> api kṣamaṁ no grahaṇāya bhartar
+> jñānaṁ paraṁ svātma-rahaḥ-prakāśaṁ\
+> provāca kasmai bhagavān samagram\
+> api kṣamaṁ no grahaṇāya bhartar\
 > vadāñjasā yad vṛjinaṁ tarema
 
 *jñānam*—knowledge; *param*—supreme; *sva-ātma*—own self; *rahaḥ*—mystery; *prakāśam*—enlightening; *provāca*—said; *kasmai*—unto Ka (Brahmājī); *bhagavān*—the Personality of Godhead; *samagram*—in sum total; *api*—if so; *kṣamam*—able; *naḥ*—unto me; *grahaṇāya*—acceptable; *bhartaḥ*—O my Lord; *vada*—say; *añjasā*—in detail; *yat*—that which; *vṛjinam*—miseries; *tarema*—can cross over.

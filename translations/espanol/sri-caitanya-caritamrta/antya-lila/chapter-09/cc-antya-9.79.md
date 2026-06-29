@@ -1,9 +1,9 @@
 ### CC Antya 9.79
 
-> যদি বা তোমার তারে রাখিতে হয় মন ।
+> যদি বা তোমার তারে রাখিতে হয় মন ।\
 > আজি যে রাখিল, সেই করিবে রক্ষণ ।।” ॥ ৭৯ ॥
 
-> yadi vā tomāra tāre rākhite haya mana
+> yadi vā tomāra tāre rākhite haya mana\
 > āji ye rākhila, sei karibe rakṣaṇa"
 
 *yadi vā*—si de algún modo; *tomāra*—de Usted; *tāre*—a él; *rākhite*—proteger; *haya*—es; *mana*—mente; *āji*—hoy; *ye*—Aquel que; *rākhila*—protegió; *sei*—Él; *karibe rakṣaṇa*—dará protección.

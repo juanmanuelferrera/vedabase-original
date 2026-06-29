@@ -1,11 +1,11 @@
 ### SB 4.28.59
 
-> तस्मिंस्त्वं रामया स्पृष्टो रममाणोऽश्रुतस्मृतिः ।
+> तस्मिंस्त्वं रामया स्पृष्टो रममाणोऽश्रुतस्मृतिः ।\
 > तत्सङ्गादीदृशीं प्राप्तो दशां पापीयसीं प्रभो ॥५९॥
 
-> tasmiṁs tvaṁ rāmayā spṛṣṭo
-> ramamāṇo 'śruta-smṛtiḥ
-> tat-saṅgād īdṛśīṁ prāpto
+> tasmiṁs tvaṁ rāmayā spṛṣṭo\
+> ramamāṇo 'śruta-smṛtiḥ\
+> tat-saṅgād īdṛśīṁ prāpto\
 > daśāṁ pāpīyasīṁ prabho
 
 *tasmin*—en esa situación; *tvam*—tú; *rāmayā*—con la mujer; *spṛṣṭaḥ*—estar en contacto; *ramamāṇaḥ*—disfrutar; *aśruta-smṛtiḥ*—sin recordar la existencia espiritual; *tat*—con ella; *saṅgāt*—por relación; *īdṛśīm*—como esto; *prāptaḥ*—tú has obtenido; *daśām*—un estado; *pāpīyasīm*—con muchas actividades pecaminosas; *prabho*—Mi querido amigo.

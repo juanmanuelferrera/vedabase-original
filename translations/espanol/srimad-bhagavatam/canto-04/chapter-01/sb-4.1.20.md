@@ -1,11 +1,11 @@
 ### SB 4.1.20
 
-> शरणं तं प्रपद्येऽहं य एव जगदीश्वरः ।
+> शरणं तं प्रपद्येऽहं य एव जगदीश्वरः ।\
 > प्रजामात्मसमां मह्यं प्रयच्छत्विति चिन्तयन् ॥२०॥
 
-> śaraṇaṁ taṁ prapadye 'haṁ
-> ya eva jagad-īśvaraḥ
-> prajām ātma-samāṁ mahyaṁ
+> śaraṇaṁ taṁ prapadye 'haṁ\
+> ya eva jagad-īśvaraḥ\
+> prajām ātma-samāṁ mahyaṁ\
 > prayacchatv iti cintayan
 
 *śaraṇam*—refugiándome; *tam*—en Él; *prapadye*—me entrego; *aham*—yo; *yaḥ*—el que; *eva*—ciertamente; *jagat-īśvaraḥ*—amo del universo; *prajām*—hijo; *ātma-samām*—como Él mismo; *mahyam*—.

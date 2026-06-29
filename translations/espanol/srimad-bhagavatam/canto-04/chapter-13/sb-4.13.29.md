@@ -1,13 +1,13 @@
 ### SB 4.13.29
 
-> मैत्रेय उवाच
-> अङ्गो द्विजवचः श्रुत्वा यजमानः सुदुर्मनाः ।
+> मैत्रेय उवाच\
+> अङ्गो द्विजवचः श्रुत्वा यजमानः सुदुर्मनाः ।\
 > तत्प्रष्टुं व्यसृजद्वाचं सदस्यांस्तदनुज्ञया ॥२९॥
 
-> maitreya uvāca
-> aṅgo dvija-vacaḥ śrutvā
-> yajamānaḥ sudurmanāḥ
-> tat praṣṭuṁ vyasṛjad vācaṁ
+> maitreya uvāca\
+> aṅgo dvija-vacaḥ śrutvā\
+> yajamānaḥ sudurmanāḥ\
+> tat praṣṭuṁ vyasṛjad vācaṁ\
 > sadasyāṁs tad-anujñayā
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya respondió; *aṅgaḥ*—el rey Aṅga; *dvija-vacaḥ*—las palabras de los *brāhmaṇas*; *śrutvā*—después de escuchar; *yajamānaḥ*—el ejecutor del sacrificio; *sudurmanāḥ*—con la mente muy apenada; *tat*—acerca de aquello; *praṣṭum*—para preguntar; *vyasṛjat vācam*—habló; *sadasyān*—a los sacerdotes; *tat*—su; *anujñayā*—pidiendo permiso.

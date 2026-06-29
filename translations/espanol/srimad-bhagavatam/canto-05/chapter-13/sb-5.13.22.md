@@ -1,11 +1,11 @@
 ### SB 5.13.22
 
-> न ह्यद्भुतं त्वच्चरणाब्जरेणुभिर्हतांहसो भक्तिरधोक्षजेऽमला
+> न ह्यद्भुतं त्वच्चरणाब्जरेणुभिर्हतांहसो भक्तिरधोक्षजेऽमला\
 > मौहूर्तिकाद्यस्य समागमाच्च मे दुस्तर्कमूलोऽपहतोऽविवेकः ॥२२॥
 
-> na hy adbhutaṁ tvac-caraṇābja-reṇubhir
-> hatāṁhaso bhaktir adhokṣaje 'malā
-> mauhūrtikād yasya samāgamāc ca me
+> na hy adbhutaṁ tvac-caraṇābja-reṇubhir\
+> hatāṁhaso bhaktir adhokṣaje 'malā\
+> mauhūrtikād yasya samāgamāc ca me\
 > dustarka-mūlo 'pahato 'vivekaḥ
 
 *na*—no; *hi*—ciertamente; *adbhutam*—maravilloso; *tvat-caraṇa-abja-reṇubhiḥ*—por el polvo de tus pies de loto; *hata-aṁhasaḥ*—que estoy completamente libre de las reacciones de la vida pecaminosa; *bhaktiḥ*—amor y devoción; *adhokṣaje*—a la Suprema Personalidad de Dios, que está fuera del alcance del conocimiento experimental; *amalā*—completamente libre de toda contaminación material; *mauhūrtikāt*—momentánea; *yasya*—de quien; *samāgamāt*—por la visita y la compañía; *ca*—también; *me*—mis; *dustarka*—argumentos falsos; *mūlaḥ*—la raíz; *apahataḥ*—completamente destruida; *avivekaḥ*—sin discriminar.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.363
 
-> অবতার-কালে হয় জগতে গোচর ।
+> অবতার-কালে হয় জগতে গোচর ।\
 > এই দুই লক্ষণে কেহ জানয়ে ঈশ্বর ।।” ॥ ৩৬৩ ॥
 
-> avatāra-kāle haya jagate gocara
+> avatāra-kāle haya jagate gocara\
 > ei dui lakṣaṇe keha jānaye īśvara"
 
 *avatāra-kāle*—at the time of incarnation; *haya*—there is; *jagate*—in the world; *gocara*—information; *ei dui lakṣaṇe*—by these two characteristics, namely svarūpa and taṭastha; *keha*—some persons; *jānaye*—know; *īśvara*—the incarnation of the Supreme Lord.

@@ -1,13 +1,13 @@
 ### CC Antya 15.32
 
-> চূতপ্রিয়াল-পনসাসনকোবিদার-
-> জম্ব্বর্কবিল্ববকুলাম্রকদম্বনীপাঃ ।
-> যেঽন্যে পরার্থভবকা যমুনোপকূলাঃ
+> চূতপ্রিয়াল-পনসাসনকোবিদার-\
+> জম্ব্বর্কবিল্ববকুলাম্রকদম্বনীপাঃ ।\
+> যেঽন্যে পরার্থভবকা যমুনোপকূলাঃ\
 > শংসন্তু কৃষ্ণপদবীং রহিতাত্মনাং নঃ ॥৩২॥
 
-> cūta-priyāla-panasāsana-kovidāra-
-> jambv-arka-bilva-bakulāmra-kadamba-nīpāḥ
-> ye 'nye parārtha-bhavakā yamunopakūlāḥ
+> cūta-priyāla-panasāsana-kovidāra-\
+> jambv-arka-bilva-bakulāmra-kadamba-nīpāḥ\
+> ye 'nye parārtha-bhavakā yamunopakūlāḥ\
 > śaṁsantu kṛṣṇa-padavīṁ rahitātmanāṁ naḥ
 
 *cūta*—O *cūta* tree (a kind of mango tree); *priyāla*—O *priyāla* tree; *panasa*—O jackfruit tree; *āsana*—O *āsana* tree; *kovidāra*—O *kovidāra* tree; *jambu*—O *jambu* tree; *arka*—O *arka* tree; *bilva*—O belfruit tree; *bakula*—O *bakula* tree; *āmra*—O mango tree; *kadamba*—O *kadamba* tree; *nīpāḥ*—O *nīpa* tree; *ye*—which; *anye*—others; *para-artha-bhavakāḥ*—very beneficial to others; *yamunā-upakūlāḥ*—on the bank of the Yamunā; *śaṁsantu*—please tell; *kṛṣṇa-padavīm*—where Kṛṣṇa has gone; *rahita-ātmanām*—who have lost our minds; *naḥ*—us.

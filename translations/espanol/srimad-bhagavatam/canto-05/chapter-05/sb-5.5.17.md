@@ -1,11 +1,11 @@
 ### SB 5.5.17
 
-> कस्तं स्वयं तदभिज्ञओ विपश्चिदविद्यायामन्तरे वर्तमानम
+> कस्तं स्वयं तदभिज्ञओ विपश्चिदविद्यायामन्तरे वर्तमानम\
 > दृष्ट्वा पुनस्तं सघृणः कुबुद्धिं प्रयोजयेदुत्पथगं यथान्धम ॥१७॥
 
-> kas taṁ svayaṁ tad-abhijño vipaścid
-> avidyāyām antare vartamānam
-> dṛṣṭvā punas taṁ saghṛṇaḥ kubuddhiṁ
+> kas taṁ svayaṁ tad-abhijño vipaścid\
+> avidyāyām antare vartamānam\
+> dṛṣṭvā punas taṁ saghṛṇaḥ kubuddhiṁ\
 > prayojayed utpathagaṁ yathāndham
 
 *kaḥ*—qué persona es la que; *tam*—a él; *svayam*—personalmente; *tat-abhijñaḥ*—con conocimiento espiritual; *vipaścit*—un sabio erudito; *avidyāyām antare*—ignorante; *vartamānam*—existir; *dṛṣṭvā*—al ver; *punaḥ*—de nuevo; *tam*—a él; *sa-ghṛṇaḥ*—muy misericordioso; *ku-buddhim*—que es adicto al sendero del *saṁsāra*; *prayojayet*—ocuparía; *utpatha-gam*—que sigue el camino equivocado; *yathā*—como; *andham*—un ciego.

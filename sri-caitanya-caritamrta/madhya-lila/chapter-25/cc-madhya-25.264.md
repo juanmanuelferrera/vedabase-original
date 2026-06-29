@@ -1,9 +1,9 @@
 ### CC Madhya 25.264
 
-> জীব নিস্তারিতে প্রভু ভ্রমিলা দেশে-দেশে ।
+> জীব নিস্তারিতে প্রভু ভ্রমিলা দেশে-দেশে ।\
 > আপনে আস্বাদি’ ভক্তি করিলা প্রকাশে ॥২৬৪॥
 
-> jīva nistārite prabhu bhramilā deśe-deśe
+> jīva nistārite prabhu bhramilā deśe-deśe\
 > āpane āsvādi' bhakti karilā prakāśe
 
 *jīva nistārite*—to deliver all the fallen souls; *prabhu*—Śrī Caitanya Mahāprabhu; *bhramilā*—traveled; *deśe-deśe*—in various countries; *āpane*—personally; *āsvādi'*—tasting; *bhakti*—devotional service; *karilā*—did; *prakāśe*—broadcasting.

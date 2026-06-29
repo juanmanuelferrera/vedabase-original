@@ -1,9 +1,9 @@
 ### CC Madhya 19.122
 
-> এইমত কর্ণপূর লিখে স্থানে-স্থানে ।
+> এইমত কর্ণপূর লিখে স্থানে-স্থানে ।\
 > প্রভু কৃপা কৈলা যৈছে রূপ-সনাতনে ॥১২২॥
 
-> ei-mata karṇapūra likhe sthāne-sthāne
+> ei-mata karṇapūra likhe sthāne-sthāne\
 > prabhu kṛpā kailā yaiche rūpa-sanātane
 
 *ei-mata*—in this way; *karṇa-pūra*—the poet known as Kavi-karṇapūra; *likhe*—writes; *sthāne-sthāne*—in various places; *prabhu*—Śrī Caitanya Mahāprabhu; *kṛpā kailā*—showed His mercy; *yaiche*—how; *rūpa-sanātane*—to Śrīla Rūpa Gosvāmī and Śrīla Sanātana Gosvāmī.

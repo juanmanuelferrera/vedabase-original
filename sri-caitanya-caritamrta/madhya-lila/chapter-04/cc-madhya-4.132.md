@@ -1,9 +1,9 @@
 ### CC Madhya 4.132
 
-> দ্বার দিয়া গ্রামে গেলা সেই ক্ষীর লঞা ।
+> দ্বার দিয়া গ্রামে গেলা সেই ক্ষীর লঞা ।\
 > হাটে হাটে বুলে মাধবপুরীকে চাহিঞা ॥১৩২॥
 
-> dvāra diyā grāme gelā sei kṣīra lañā
+> dvāra diyā grāme gelā sei kṣīra lañā\
 > hāṭe hāṭe bule mādhava-purīke cāhiñā
 
 *dvāradiyā*—closing the door; *grāme*—to the village; *gelā*—went; *sei*—that; *kṣīra*—pot of sweet rice; *lañā*—taking; *hāṭe hāṭe*—in every stall; *bule*—walks; *mādhava-purīke*—to Mādhavendra Purī; *cāhiñā*—calling.

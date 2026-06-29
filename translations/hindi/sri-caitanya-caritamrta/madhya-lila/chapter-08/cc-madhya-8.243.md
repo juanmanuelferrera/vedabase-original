@@ -2,7 +2,7 @@
 
 > অন্যোন্যে মিলি’ দুঁহে নিভৃতে বসিয়া । প্রশ্নোত্তর-গোষ্ঠী কহে আনন্দিত হঞা । প্রভু পুছে, রামানন্দ করেন উত্তর । এই মত সেই রাত্রে কথা পরস্পর ॥২৪৩॥
 
-> anyonye mili' duṅhe nibhṛte vasiyā
+> anyonye mili' duṅhe nibhṛte vasiyā\
 > praśnottara-goṣṭhī kahe ānandita hañā
 
 *anyonye*—एक-दूसरे से; *mili'*—मिलकर; *duṅhe*—दोनों ही; *nibhṛte*—एकान्त स्थान में; *vasiyā*—बैठकर; *praśna-uttara*—प्रश्न तथा उत्तर की; *goṣṭhī*—चर्चा; *kahe*—करते; *ānandita*—आनन्दित; *hañā*—होते हुए।

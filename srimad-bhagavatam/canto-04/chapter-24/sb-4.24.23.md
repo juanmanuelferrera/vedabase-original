@@ -1,11 +1,11 @@
 ### SB 4.24.23
 
-> तत्र गान्धर्वमाकर्ण्य दिव्यमार्गमनोहरम् ।
+> तत्र गान्धर्वमाकर्ण्य दिव्यमार्गमनोहरम् ।\
 > विसिस्म्यू राजपुत्रास्ते मृदङ्गपणवाद्यनु ॥२३॥
 
-> tatra gāndharvam ākarṇya
-> divya-mārga-manoharam
-> visismyū rāja-putrās te
+> tatra gāndharvam ākarṇya\
+> divya-mārga-manoharam\
+> visismyū rāja-putrās te\
 > mṛdaṅga-paṇavādy anu
 
 *tatra*—there; *gāndharvam*—musical sounds; *ākarṇya*—hearing; *divya*—heavenly; *mārga*—symmetrical; *manaḥ-haram*—beautiful; *visismyuḥ*—they became amazed; *rāja-putrāḥ*—all the sons of King Barhiṣat; *te*—all of them; *mṛdaṅga*—drums; *paṇava*—kettledrums; *ādi*—all together; *anu*—always.

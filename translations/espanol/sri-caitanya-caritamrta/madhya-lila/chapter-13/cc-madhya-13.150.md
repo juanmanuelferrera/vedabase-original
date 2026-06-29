@@ -1,13 +1,13 @@
 ### CC Madhya 13.150
 
-> ব্রজবাসী যত জন, মাতা, পিতা, সখাগণ,
-> সবে হয় মোর প্রাণসম ।
-> তাঁর মধ্যে গোপীগণ, সাক্ষাৎ মোর জীবন,
+> ব্রজবাসী যত জন, মাতা, পিতা, সখাগণ,\
+> সবে হয় মোর প্রাণসম ।\
+> তাঁর মধ্যে গোপীগণ, সাক্ষাৎ মোর জীবন,\
 > তুমি মোর জীবনের জীবন ॥১৫০॥
 
-> vraja-vāsī yata jana, mātā, pitā, sakhā-gaṇa,
-> sabe haya mora prāṇa-sama
-> tāṅra madhye gopī-gaṇa, sākṣāt mora jīvana,
+> vraja-vāsī yata jana, mātā, pitā, sakhā-gaṇa,\
+> sabe haya mora prāṇa-sama\
+> tāṅra madhye gopī-gaṇa, sākṣāt mora jīvana,\
 > tumi mora jīvanera jīvana
 
 *vraja-vāsī yata jana*—todos los habitantes de Vṛndāvana-dhāma; *mātā*—madre; *pitā*—padre; *sakhā-gaṇa*—amigos pastorcillos; *sabe*—todos; *haya*—son; *mora prāṇa-sama*—como Mi propia vida; *tāṅra madhye*—entre ellos; *gopī-gaṇa*—las gopīs; *sākṣāt*—directamente; *mora jīvana*—Mi vida y alma; *tumi*—Tú; *mora jīvanera jīvana*—la vida de Mi vida.

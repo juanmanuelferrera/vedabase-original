@@ -1,9 +1,9 @@
 ### CC Adi 2.12
 
-> তাঁহার অঙ্গের শুদ্ধ কিরণ-মণ্ডল ।
+> তাঁহার অঙ্গের শুদ্ধ কিরণ-মণ্ডল ।\
 > উপনিষৎ কহে তাঁরে ব্রহ্ম সুনির্মল ॥১২॥
 
-> tāṅhāra aṅgera śuddha kiraṇa-maṇḍala
+> tāṅhāra aṅgera śuddha kiraṇa-maṇḍala\
 > upaniṣat kahe tāṅre brahma sunirmala
 
 *tāṅhāra*—His; *aṅgera*—of the body; *śuddha*—pure; *kiraṇa*—of rays; *maṇḍala*—realm; *upaniṣat*—the *Upaniṣads*; *kahe*—say; *tāṅre*—unto that; *brahma*—Brahman; *su-nirmala*—transcendental.

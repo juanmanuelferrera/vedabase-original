@@ -1,9 +1,9 @@
 ### CC Madhya 18.204
 
-> কৃপা করি’ বল মোরে ‘সাধ্য-সাধনে’ ।
+> কৃপা করি’ বল মোরে ‘সাধ্য-সাধনে’ ।\
 > এত বলি’ পড়ে মহাপ্রভুর চরণে ॥২০৪॥
 
-> kṛpā kari' bala more 'sādhya-sādhane'
+> kṛpā kari' bala more 'sādhya-sādhane'\
 > eta bali' paḍe mahāprabhura caraṇe
 
 *kṛpā kari'*—por Tu misericordia sin causa; *bala*—habla; *more*—a mí; *sādhya-sādhane*—la meta última de la vida y el proceso para alcanzarla; *eta bali'*—al decir esto; *paḍe*—cae; *mahāprabhura caraṇe*—a los pies de loto de Śrī Caitanya Mahāprabhu.

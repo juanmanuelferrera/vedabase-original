@@ -1,11 +1,11 @@
 ### SB 7.15.30
 
-> यश्चित्तविजये यत्तः स्यान्निःसङ्गोऽपरिग्रहः
+> यश्चित्तविजये यत्तः स्यान्निःसङ्गोऽपरिग्रहः\
 > एको विविक्तशरणो भिक्षुर्भैक्ष्यमिताशनः ॥३०॥
 
-> yaś citta-vijaye yattaḥ
-> syān niḥsaṅgo 'parigrahaḥ
-> eko vivikta-śaraṇo
+> yaś citta-vijaye yattaḥ\
+> syān niḥsaṅgo 'parigrahaḥ\
+> eko vivikta-śaraṇo\
 > bhikṣur bhaikṣya-mitāśanaḥ
 
 *yaḥ*—one who; *citta-vijaye*—conquering the mind; *yattaḥ*—is engaged; *syāt*—must be; *niḥsaṅgaḥ*—without contaminated association; *aparigrahaḥ*—without being dependent (on the family); *ekaḥ*—alone; *vivikta-śaraṇaḥ*—taking shelter of a solitary place; *bhikṣuḥ*—a renounced person; *bhaikṣya*—by begging alms just to maintain the body; *mita-aśanaḥ*—frugal in eating.

@@ -1,9 +1,9 @@
 ### CC Madhya 25.50
 
-> ‘মীমাংসক’ কহে, — ‘ঈশ্বর হয় কর্মের অঙ্গ’ ।
+> ‘মীমাংসক’ কহে, — ‘ঈশ্বর হয় কর্মের অঙ্গ’ ।\
 > ‘সাংখ্য’ কহে, — ‘জগতের প্রকৃতি কারণ-প্ৰসঙ্গ’ ॥৫০॥
 
-> 'mīmāṁsaka' kahe,-'īśvara haya karmera aṅga'
+> 'mīmāṁsaka' kahe,-'īśvara haya karmera aṅga'\
 > 'sāṅkhya' kahe,-jagatera prakṛti kāraṇa-prasaṅga'
 
 *mīmāṁsaka*—los filósofos mīmāṁsakas; *kahe*—dicen; *īśvara*—el Señor Supremo; *haya*—está; *karmera aṅga*—sujeto a las actividades fruitivas; *sāṅkhya kahe*—los filósofos ateos sāṅkhyas dicen; *jagatera*—de la manifestación cósmica; *prakṛti*—la naturaleza; *kāraṇa*—la causa; *prasaṅga*—tesis.

@@ -1,9 +1,9 @@
 ### CC Madhya 14.99
 
-> এক এক বৃক্ষতলে এক এক গান গায় ।
+> এক এক বৃক্ষতলে এক এক গান গায় ।\
 > পরম-আবেশে একা নাচে গৌররায় ॥৯৯॥
 
-> eka eka vṛkṣa-tale eka eka gāna gāya
+> eka eka vṛkṣa-tale eka eka gāna gāya\
 > parama-āveśe ekā nāce gaurarāya
 
 *eka eka vṛkṣa-tale*—debajo de cada uno de los árboles; *eka eka*—una diferente; *gāna*—canción; *gāya*—canta; *parama-āveśe*—en gran éxtasis; *ekā*—solo; *nāce*—danza; *gaurarāya*—Śrī Caitanya Mahāprabhu.

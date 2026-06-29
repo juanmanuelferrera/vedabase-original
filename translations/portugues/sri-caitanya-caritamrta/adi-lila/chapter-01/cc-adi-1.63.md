@@ -1,8 +1,8 @@
 ### CC Adi 1.63
 
-> bhavad-vidhā bhāgavatās
-> tīrtha-bhūtāḥ svayaṁ vibho
-> tīrthī-kurvanti tīrthāni
+> bhavad-vidhā bhāgavatās\
+> tīrtha-bhūtāḥ svayaṁ vibho\
+> tīrthī-kurvanti tīrthāni\
 > svāntaḥ-sthena gadā-bhṛtā
 
 *bhavat*—vossa boa pessoa; *vidhāḥ*—como; *bhāgavatāḥ*—devotos; *tīrtha*—santos lugares de peregrinação; *bhūtāḥ*—existindo; *svayam*—eles próprios; *vibho*—ó todo-poderoso; *tīrthī-kurvanti*—transformam em santos lugares de peregrinação; *tīrthāni*—os lugares sagrados; *sva-antaḥ-sthena*—estando situado em seus corações; *gadā-bhṛtā*—pela Personalidade de Deus.

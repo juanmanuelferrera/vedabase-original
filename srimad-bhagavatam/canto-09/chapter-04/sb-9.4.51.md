@@ -1,11 +1,11 @@
 ### SB 9.4.51
 
-> दिशो नभः क्ष्मां विवरान्समुद्रान्लोकान्सपालांस्त्रिदिवं गतः सः
+> दिशो नभः क्ष्मां विवरान्समुद्रान्लोकान्सपालांस्त्रिदिवं गतः सः\
 > यतो यतो धावति तत्र तत्र सुदर्शनं दुष्प्रसहं ददर्श ॥५१॥
 
-> diśo nabhaḥ kṣmāṁ vivarān samudrān
-> lokān sapālāṁs tridivaṁ gataḥ saḥ
-> yato yato dhāvati tatra tatra
+> diśo nabhaḥ kṣmāṁ vivarān samudrān\
+> lokān sapālāṁs tridivaṁ gataḥ saḥ\
+> yato yato dhāvati tatra tatra\
 > sudarśanaṁ duṣprasahaṁ dadarśa
 
 *diśaḥ*—all directions; *nabhaḥ*—in the sky; *kṣmām*—on the surface of the earth; *vivarān*—within the holes; *samudrān*—within the seas; *lokān*—all places; *sa-pālān*—as well as their rulers; *tridivam*—the heavenly planets; *gataḥ*—gone; *saḥ*—Durvāsā Muni; *yataḥ yataḥ*—wheresoever; *dhāvati*—he went; *tatra tatra*—there, everywhere; *sudarśanam*—the disc of the Lord; *duṣprasaham*—extremely fearful; *dadarśa*—Durvāsā Muni saw.

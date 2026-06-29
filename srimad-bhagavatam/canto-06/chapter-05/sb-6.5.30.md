@@ -1,11 +1,11 @@
 ### SB 6.5.30
 
-> दाक्षायणाः संशृणुत गदतो निगमं मम
+> दाक्षायणाः संशृणुत गदतो निगमं मम\
 > अन्विच्छतानुपदवीं भ्रातॄणां भ्रातृवत्सलाः ॥३०॥
 
-> dākṣāyaṇāḥ saṁśṛṇuta
-> gadato nigamaṁ mama
-> anvicchatānupadavīṁ
+> dākṣāyaṇāḥ saṁśṛṇuta\
+> gadato nigamaṁ mama\
+> anvicchatānupadavīṁ\
 > bhrātṝṇāṁ bhrātṛ-vatsalāḥ
 
 *dākṣāyaṇāḥ*—O sons of Prajāpati Dakṣa; *saṁśṛṇuta*—please hear with attention; *gadataḥ*—who am speaking; *nigamam*—instruction; *mama*—my; *anvicchata*—follow; *anupadavīm*—the path; *bhrātṝṇām*—of your brothers; *bhrātṛ-vatsalāḥ*—O you who are very much affectionate to your brothers.

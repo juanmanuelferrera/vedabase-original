@@ -1,11 +1,11 @@
 ### SB 4.25.35
 
-> एते सखायः सख्यो मे नरा नार्यश्च मानद ।
+> एते सखायः सख्यो मे नरा नार्यश्च मानद ।\
 > सुप्तायां मयि जागर्ति नागोऽयं पालयन्पुरीम् ॥३५॥
 
-> ete sakhāyaḥ sakhyo me
-> narā nāryaś ca mānada
-> suptāyāṁ mayi jāgarti
+> ete sakhāyaḥ sakhyo me\
+> narā nāryaś ca mānada\
+> suptāyāṁ mayi jāgarti\
 > nāgo 'yaṁ pālayan purīm
 
 *ete*—todos estos; *sakhāyaḥ*—amigos varones; *sakhyaḥ*—compañeras; *me*—mis; *narāḥ*—hombres; *nāryaḥ*—mujeres; *ca*—y; *māna-da*—¡oh, hombre respetable!; *suptāyām*—durante el sueño; *mayi*—yo estoy; *jāgarti*—se mantiene despierta; *nāgaḥ*—serpiente; *ayam*—esta; *pālayan*—proteger; *purīm*—esta ciudad.

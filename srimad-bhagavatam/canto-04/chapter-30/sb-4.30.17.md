@@ -1,11 +1,11 @@
 ### SB 4.30.17
 
-> दिव्यवर्षसहस्राणां सहस्रमहतौजसः ।
+> दिव्यवर्षसहस्राणां सहस्रमहतौजसः ।\
 > भौमान्भोक्ष्यथ भोगान्वै दिव्यांश्चानुग्रहान्मम ॥१७॥
 
-> divya-varṣa-sahasrāṇāṁ
-> sahasram ahataujasaḥ
-> bhaumān bhokṣyatha bhogān vai
+> divya-varṣa-sahasrāṇāṁ\
+> sahasram ahataujasaḥ\
+> bhaumān bhokṣyatha bhogān vai\
 > divyāṁś cānugrahān mama
 
 *divya*—of the heavenly planets; *varṣa*—years; *sahasrāṇām*—of thousands; *sahasram*—a thousand; *ahata*—without being defeated; *ojasaḥ*—your power; *bhaumān*—of this world; *bhokṣyatha*—you will enjoy; *bhogān*—enjoyments; *vai*—certainly; *divyān*—of the heavenly world; *ca*—also; *anugrahāt*—by mercy; *mama*—My.

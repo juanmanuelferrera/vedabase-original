@@ -1,9 +1,9 @@
 ### CC Madhya 1.103
 
-> জিয়ড়-নৃসিংহে কৈল নৃসিংহ-স্তবন ।
+> জিয়ড়-নৃসিংহে কৈল নৃসিংহ-স্তবন ।\
 > পথে-পথে গ্রামে-গ্রামে নামপ্রবর্তন ॥১০৩॥
 
-> jiyaḍa-nṛsiṁhe kaila nṛsiṁha-stavana
+> jiyaḍa-nṛsiṁhe kaila nṛsiṁha-stavana\
 > pathe-pathe grāme-grāme nāma-pravartana
 
 *jiyaḍa-nṛsiṁhe*—el lugar de peregrinaje conocido como Jiyaḍa-nṛsiṁha; *kaila*—hizo; *nṛsiṁha*—a Nṛsiṁha; *stavana*—orar; *pathe-pathe*—en el camino; *grāme-grāme*—en cada pueblo; *nāma-pravartana*—introducción del santo nombre del Señor.

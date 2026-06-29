@@ -1,9 +1,9 @@
 ### CC Antya 19.104
 
-> এই প্রেম সদা জাগে যাহার অন্তরে ।
+> এই প্রেম সদা জাগে যাহার অন্তরে ।\
 > পণ্ডিতেহ তার চেষ্টা বুঝিতে না পারে ॥১০৪॥
 
-> ei prema sadā jāge yāhāra antare
+> ei prema sadā jāge yāhāra antare\
 > paṇḍiteha tāra ceṣṭā bujhite nā pāre
 
 *ei*—este; *prema*—amor por Dios; *sadā*—siempre; *jāge*—se despierta; *yāhāra*—de quien; *antare*—dentro del corazón; *paṇḍiteha*—incluso un erudito; *tāra*—sus; *ceṣṭā*—actividades; *bujhite*—comprender; *nā pāre*—no puede.

@@ -1,9 +1,9 @@
 ### CC Antya 6.24
 
-> তবে রঘুনাথ কিছু চিন্তিলা উপায়  ।
+> তবে রঘুনাথ কিছু চিন্তিলা উপায়  ।\
 > বিনতি করিয়া কহে সেই ম্লেচ্ছ-পায় ॥২৪॥
 
-> tabe raghunātha kichu cintilā upāya
+> tabe raghunātha kichu cintilā upāya\
 > vinati kariyā kahe sei mleccha-pāya
 
 *tabe*—entonces; *raghunātha*—Raghunātha dāsa Gosvāmī; *kichu*—algún; *cintilā*—pensó; *upāya*—medio; *vinati kariyā*—con gran humildad; *kahe*—dice; *sei mleccha*—de aquel caudhurī mahometano; *pāya*—a los pies.

@@ -1,9 +1,9 @@
 ### CC Madhya 14.159
 
-> ‘বামা’ এক গোপীগণ, ‘দক্ষিণা’ এক গণ ।
+> ‘বামা’ এক গোপীগণ, ‘দক্ষিণা’ এক গণ ।\
 > নানা-ভাবে করায় কৃষ্ণে রস আস্বাদন ॥১৫৯॥
 
-> 'vāmā' eka gopī-gaṇa, 'dakṣiṇā' eka gaṇa
+> 'vāmā' eka gopī-gaṇa, 'dakṣiṇā' eka gaṇa\
 > nānā-bhāve karāya kṛṣṇe rasa āsvādana
 
 *vāmā*—left wing; *eka*—one; *gopī-gaṇa*—party of *gopīs*; *dakṣiṇā*—right wing; *eka*—another; *gaṇa*—party of *gopīs*; *nānā-bhāve*—in varieties of ecstatic love; *karāya*—cause to do; *kṛṣṇe*—unto Kṛṣṇa; *rasa āsvādana*—tasting of transcendental mellows.

@@ -1,42 +1,42 @@
 ### SB 8.6.3-7
 
-> विरिञ्चो भगवान्दृष्ट्वा सह शर्वेण तां तनुम
-> स्वच्छां मरकतश्यामां कञ्जगर्भारुणेक्षणाम ॥३॥
-> तप्तहेमावदातेन लसत्कौशेयवाससा
-> प्रसन्नचारुसर्वाङ्गीं सुमुखीं सुन्दरभ्रुवम ॥४॥
-> महामणिकिरीटेन केयूराभ्यां च भूषिताम
-> कर्णाभरणनिर्भात कपोलश्रीमुखाम्बुजाम ॥५॥
-> काञ्चीकलापवलय हारनूपुरशोभिताम
-> कौस्तुभाभरणां लक्ष्मीं बिभ्रतीं वनमालिनीम ॥६॥
-> सुदर्शनादिभिः स्वास्त्रैर्मूर्तिमद्भिरुपासिताम
-> तुष्टाव देवप्रवरः सशर्वः पुरुषं परम
+> विरिञ्चो भगवान्दृष्ट्वा सह शर्वेण तां तनुम\
+> स्वच्छां मरकतश्यामां कञ्जगर्भारुणेक्षणाम ॥३॥\
+> तप्तहेमावदातेन लसत्कौशेयवाससा\
+> प्रसन्नचारुसर्वाङ्गीं सुमुखीं सुन्दरभ्रुवम ॥४॥\
+> महामणिकिरीटेन केयूराभ्यां च भूषिताम\
+> कर्णाभरणनिर्भात कपोलश्रीमुखाम्बुजाम ॥५॥\
+> काञ्चीकलापवलय हारनूपुरशोभिताम\
+> कौस्तुभाभरणां लक्ष्मीं बिभ्रतीं वनमालिनीम ॥६॥\
+> सुदर्शनादिभिः स्वास्त्रैर्मूर्तिमद्भिरुपासिताम\
+> तुष्टाव देवप्रवरः सशर्वः पुरुषं परम\
 > सर्वामरगणैः साकं सर्वाङ्गैरवनिं गतैः ॥७॥
 
-> viriñco bhagavān dṛṣṭvā
-> saha śarveṇa tāṁ tanum
-> svacchāṁ marakata-śyāmāṁ
+> viriñco bhagavān dṛṣṭvā\
+> saha śarveṇa tāṁ tanum\
+> svacchāṁ marakata-śyāmāṁ\
 > kañja-garbhāruṇekṣaṇām
 
-> tapta-hemāvadātena
-> lasat-kauśeya-vāsasā
-> prasanna-cāru-sarvāṅgīṁ
+> tapta-hemāvadātena\
+> lasat-kauśeya-vāsasā\
+> prasanna-cāru-sarvāṅgīṁ\
 > sumukhīṁ sundara-bhruvam
 
-> mahā-maṇi-kirīṭena
-> keyūrābhyāṁ ca bhūṣitām
-> karṇābharaṇa-nirbhāta-
+> mahā-maṇi-kirīṭena\
+> keyūrābhyāṁ ca bhūṣitām\
+> karṇābharaṇa-nirbhāta-\
 > kapola-śrī-mukhāmbujām
 
-> kāñcīkalāpa-valaya-
-> hāra-nūpura-śobhitām
-> kaustubhābharaṇāṁ lakṣmīṁ
+> kāñcīkalāpa-valaya-\
+> hāra-nūpura-śobhitām\
+> kaustubhābharaṇāṁ lakṣmīṁ\
 > bibhratīṁ vana-mālinīm
 
-> sudarśanādibhiḥ svāstrair
-> mūrtimadbhir upāsitām
-> tuṣṭāva deva-pravaraḥ
-> saśarvaḥ puruṣaṁ param
-> sarvāmara-gaṇaiḥ sākaṁ
+> sudarśanādibhiḥ svāstrair\
+> mūrtimadbhir upāsitām\
+> tuṣṭāva deva-pravaraḥ\
+> saśarvaḥ puruṣaṁ param\
+> sarvāmara-gaṇaiḥ sākaṁ\
 > sarvāṅgair avaniṁ gataiḥ
 
 *viriñcaḥ*—Lord Brahmā; *bhagavān*—who is also addressed as *bhagavān* because of his powerful position; *dṛṣṭvā*—by seeing; *saha*—with; *śarveṇa*—Lord Śiva; *tām*—unto the Supreme Lord; *tanum*—His transcendental form; *svacchām*—without material contamination; *marakata-śyāmām*—with a bodily luster like the light of a blue gem; *kañja-garbha-aruṇa-īkṣaṇām*—with pinkish eyes like the womb of a lotus flower; *tapta-hema-avadātena*—with a luster like that of molten gold; *lasat*—shining; *kauśeya-vāsasā*—dressed in yellow silk garments; *prasanna-cāru-sarva-aṅgīm*—all the parts of whose body were graceful and very beautiful; *su-mukhīm*—with a smiling face; *sundara-bhruvam*—whose eyebrows were very beautifully situated; *mahā-maṇi-kirīṭena*—with a helmet bedecked with valuable jewels; *keyūrābhyām ca bhūṣitām*—decorated with all kinds of ornaments; *karṇa-ābharaṇa-nirbhāta*—illuminated by the rays of the jewels on His ears; *kapola*—with cheeks; *śrī-mukha-ambujām*—whose beautiful lotuslike face; *kāñcī-kalāpa-valaya*—ornaments like the belt on the waist and bangles on the hands; *hāra-nūpura*—with a necklace on the chest and ankle bells on the legs; *śobhitām*—all beautifully set; *kaustubha-ābharaṇām*—whose chest was decorated with the Kaustubha gem; *lakṣmīm*—the goddess of fortune; *bibhratīm*—moving; *vana-mālinīm*—with flower garlands; *sudarśana-ādibhiḥ*—bearing the Sudarśana *cakra* and others; *sva-astraiḥ*—with His weapons; *mūrtimadbhiḥ*—in His original form; *upāsitām*—being worshiped; *tuṣṭāva*—satisfied; *deva-pravaraḥ*—the chief of the demigods; *sa-śarvaḥ*—with Lord Śiva; *puruṣam param*—the Supreme Personality; *sarva-amara-gaṇaiḥ*—accompanied by all the demigods; *sākam*—with; *sarva-aṅgaiḥ*—with all the parts of the body; *avanim*—on the ground; *gataiḥ*—prostrated.

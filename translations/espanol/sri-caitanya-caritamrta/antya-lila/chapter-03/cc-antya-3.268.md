@@ -1,9 +1,9 @@
 ### CC Antya 3.268
 
-> কৃষ্ণ-আদি, আর যত স্থাবর-জঙ্গমে ।
+> কৃষ্ণ-আদি, আর যত স্থাবর-জঙ্গমে ।\
 > কৃষ্ণপ্রেমে মত্ত করে কৃষ্ণ-সঙ্কীর্তনে ॥২৬৮॥
 
-> kṛṣṇa-ādi, āra yata sthāvara-jaṅgame
+> kṛṣṇa-ādi, āra yata sthāvara-jaṅgame\
 > kṛṣṇa-preme matta kare kṛṣṇa-saṅkīrtane
 
 *kṛṣṇa-ādi*—comenzando por Kṛṣṇa; *āra*—y; *yata*—todas; *sthāvara-jaṅgame*—las criaturas móviles e inmóviles; *kṛṣṇa-preme*—en amor a Kṛṣṇa; *matta*—enloquecidas; *kare*—hace; *kṛṣṇa-saṅkīrtane*—el canto del santo nombre de Kṛṣṇa.

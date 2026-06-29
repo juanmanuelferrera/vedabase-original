@@ -1,11 +1,11 @@
 ### SB 1.1.16
 
-> को वा भगवतस्तस्य पुण्यश्लोकेड्यकर्मणः ।
+> को वा भगवतस्तस्य पुण्यश्लोकेड्यकर्मणः ।\
 > शुद्धिकामो न शृणुयाद्यशः कलिमलापहम् ॥१६॥
 
-> ko vā bhagavatas tasya
-> puṇya-ślokeḍya-karmaṇaḥ
-> śuddhi-kāmo na śṛṇuyād
+> ko vā bhagavatas tasya\
+> puṇya-ślokeḍya-karmaṇaḥ\
+> śuddhi-kāmo na śṛṇuyād\
 > yaśaḥ kali-malāpaham
 
 *kaḥ*—quien; *vā*—más bien; *bhagavataḥ*—del Señor; *tasya*—Su; *puṇya*—virtuoso; *śloka-īḍya*—a quien se puede adorar mediante oraciones; *karmaṇaḥ*—actos; *śuddhi-kāmaḥ*—deseando liberarse de todos los pecados; *na*—no; *śṛṇuyāt*—oye; *yaśaḥ*—glorias; *kali*—de la era de la riña; *mala-apaham*—el agente de santificación.

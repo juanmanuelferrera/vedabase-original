@@ -1,21 +1,21 @@
 ### SB 7.12.29-30
 
-> मनो मनोरथैश्चन्द्रे बुद्धिं बोध्यैः कवौ परे
-> कर्माण्यध्यात्मना रुद्रे यदहं ममताक्रिया
-> सत्त्वेन चित्तं क्षेत्रज्ञए गुणैर्वैकारिकं परे ॥२९॥
-> अप्सु क्षितिमपो ज्योतिष्यदो वायौ नभस्यमुम
+> मनो मनोरथैश्चन्द्रे बुद्धिं बोध्यैः कवौ परे\
+> कर्माण्यध्यात्मना रुद्रे यदहं ममताक्रिया\
+> सत्त्वेन चित्तं क्षेत्रज्ञए गुणैर्वैकारिकं परे ॥२९॥\
+> अप्सु क्षितिमपो ज्योतिष्यदो वायौ नभस्यमुम\
 > कूटस्थे तच्च महति तदव्यक्तेऽक्षरे च तत ॥३०॥
 
-> mano manorathaiś candre
-> buddhiṁ bodhyaiḥ kavau pare
-> karmāṇy adhyātmanā rudre
-> yad-ahaṁ mamatā-kriyā
-> sattvena cittaṁ kṣetra-jñe
+> mano manorathaiś candre\
+> buddhiṁ bodhyaiḥ kavau pare\
+> karmāṇy adhyātmanā rudre\
+> yad-ahaṁ mamatā-kriyā\
+> sattvena cittaṁ kṣetra-jñe\
 > guṇair vaikārikaṁ pare
 
-> apsu kṣitim apo jyotiṣy
-> ado vāyau nabhasy amum
-> kūṭasthe tac ca mahati
+> apsu kṣitim apo jyotiṣy\
+> ado vāyau nabhasy amum\
+> kūṭasthe tac ca mahati\
 > tad avyakte 'kṣare ca tat
 
 *manaḥ*—the mind; *manorathaiḥ*—along with material desires; *candre*—unto Candra, the mood demigod; *buddhim*—intelligence; *bodhyaiḥ*—with the subject matter of intelligence; *kavau pare*—unto the supreme learned person, Lord Brahmā; *karmāṇi*—material activities; *adhyātmanā*—with false ego; *rudre*—unto Lord Śiva (Rudra); *yat*—wherein; *aham*—I am the material body; *mamatā*—everything belonging to the material body is mine; *kriyā*—such activities; *sattvena*—along with the existential conception; *cittam*—consciousness; *kṣetra-jñe*—unto the individual soul; *guṇaiḥ*—along with the material activities conducted by the material qualities; *vaikārikam*—the living entities under the influence of the material modes; *pare*—in the Supreme Being; *apsu*—in the water; *kṣitim*—the earth; *apaḥ*—the water; *jyotiṣi*—in the luminaries, specifically in the sun; *adaḥ*—brightness; *vāyau*—in the air; *nabhasi*—in the sky; *amum*—that; *kūṭasthe*—in the materialistic conception of life; *tat*—that; *ca*—also; *mahati*—in the *mahat-tattva,* the total material energy; *tat*—that; *avyakte*—in the nonmanifested; *akṣare*—in the Supersoul; *ca*—also; *tat*—that.

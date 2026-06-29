@@ -1,9 +1,9 @@
 ### CC Madhya 8.19
 
-> দেখিয়া তাঁহার মনে হৈল চমৎকার ।
+> দেখিয়া তাঁহার মনে হৈল চমৎকার ।\
 > আসিয়া করিল দণ্ডবৎ নমস্কার ॥১৯॥
 
-> dekhiyā tāṅhāra mane haila camatkāra
+> dekhiyā tāṅhāra mane haila camatkāra\
 > āsiyā karila daṇḍavat namaskāra
 
 *dekhiyā*—seeing; *tāṅhāra*—his; *mane*—in the mind; *haila*—there was; *camatkāra*—wonder; *āsiyā*—coming there; *karila*—did; *daṇḍa-vat*—like a rod; *namaskāra*—obeisances.

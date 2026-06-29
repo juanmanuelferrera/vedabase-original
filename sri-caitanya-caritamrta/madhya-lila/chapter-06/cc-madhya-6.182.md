@@ -1,11 +1,11 @@
 ### CC Madhya 6.182
 
-> মায়াবাদমসচ্ছাস্ত্রং প্ৰচ্ছন্নং বৌদ্ধমুচ্যতে ।
+> মায়াবাদমসচ্ছাস্ত্রং প্ৰচ্ছন্নং বৌদ্ধমুচ্যতে ।\
 > ময়ৈব বিহিতং দেবি কলৌ ব্রাহ্মণমূর্তিনা ॥১৮২॥
 
-> māyāvādam asac-chāstraṁ
-> pracchannaṁ bauddham ucyate
-> mayaiva vihitaṁ devi
+> māyāvādam asac-chāstraṁ\
+> pracchannaṁ bauddham ucyate\
+> mayaiva vihitaṁ devi\
 > kalau brāhmaṇa-mūrtinā
 
 *māyāvādam*—the philosophy of Māyāvāda; *asat-śāstram*—false scriptures; *pracchannam*—covered; *bauddham*—Buddhism; *ucyate*—it is said; *mayā*—by me; *eva*—only; *vihitam*—taught; *devi*—O goddess of the material world; *kalau*—in the Age of Kali; *brāhmaṇa-mūrtinā*—having the body of a *brāhmaṇa.*

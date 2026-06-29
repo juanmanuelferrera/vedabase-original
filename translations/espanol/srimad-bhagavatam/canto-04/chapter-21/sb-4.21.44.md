@@ -1,11 +1,11 @@
 ### SB 4.21.44
 
-> गुणायनं शीलधनं कृतज्ञं वृद्धाश्रयं संवृणतेऽनु सम्पदः ।
+> गुणायनं शीलधनं कृतज्ञं वृद्धाश्रयं संवृणतेऽनु सम्पदः ।\
 > प्रसीदतां ब्रह्मकुलं गवां च जनार्दनः सानुचरश्च मह्यम् ॥४४॥
 
-> guṇāyanaṁ śīla-dhanaṁ kṛta-jñaṁ
-> vṛddhāśrayaṁ saṁvṛṇate 'nu sampadaḥ
-> prasīdatāṁ brahma-kulaṁ gavāṁ ca
+> guṇāyanaṁ śīla-dhanaṁ kṛta-jñaṁ\
+> vṛddhāśrayaṁ saṁvṛṇate 'nu sampadaḥ\
+> prasīdatāṁ brahma-kulaṁ gavāṁ ca\
 > janārdanaḥ sānucaraś ca mahyam
 
 *guṇa-ayanam*—aquel que ha adquirido todas las buenas cualidades; *śīla-dhanam*—aquel cuya riqueza es su buena conducta; *kṛta-jñam*—aquel que es agradecido; *vṛddha-āśrayam*—aquel que se refugia en los doctos; *saṁvṛṇate*—obtiene; *anu*—ciertamente; *sampadaḥ*—todas las opulencias; *prasīdatām*—se complazca con; *brahma-kulam*—la clase brahmínica; *gavām*—las vacas; *ca*—y; *janārdanaḥ*—la Suprema Personalidad de Dios; *sa*—con; *anucaraḥ*—junto con Su devoto; *ca*—y; *mahyam*—sobre mí.

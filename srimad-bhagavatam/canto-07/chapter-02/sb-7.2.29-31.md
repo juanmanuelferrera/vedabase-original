@@ -1,25 +1,25 @@
 ### SB 7.2.29-31
 
-> विशीर्णरत्नकवचं विभ्रष्टाभरणस्रजम
-> शरनिर्भिन्नहृदयं शयानमसृगाविलम ॥२९॥
-> प्रकीर्णकेशं ध्वस्ताक्षं रभसा दष्टदच्छदम
-> रजःकुण्ठमुखाम्भोजं छिन्नायुधभुजं मृधे ॥३०॥
-> उशीनरेन्द्रं विधिना तथा कृतं पतिं महिष्यः प्रसमीक्ष्य दुःखिताः
+> विशीर्णरत्नकवचं विभ्रष्टाभरणस्रजम\
+> शरनिर्भिन्नहृदयं शयानमसृगाविलम ॥२९॥\
+> प्रकीर्णकेशं ध्वस्ताक्षं रभसा दष्टदच्छदम\
+> रजःकुण्ठमुखाम्भोजं छिन्नायुधभुजं मृधे ॥३०॥\
+> उशीनरेन्द्रं विधिना तथा कृतं पतिं महिष्यः प्रसमीक्ष्य दुःखिताः\
 > हताः स्म नाथेति करैरुरो भृशं घ्नन्त्यो मुहुस्तत्पदयोरुपापतन ॥३१॥
 
-> viśīrṇa-ratna-kavacaṁ
-> vibhraṣṭābharaṇa-srajam
-> śara-nirbhinna-hṛdayaṁ
+> viśīrṇa-ratna-kavacaṁ\
+> vibhraṣṭābharaṇa-srajam\
+> śara-nirbhinna-hṛdayaṁ\
 > śayānam asṛg-āvilam
 
-> prakīrṇa-keśaṁ dhvastākṣaṁ
-> rabhasā daṣṭa-dacchadam
-> rajaḥ-kuṇṭha-mukhāmbhojaṁ
+> prakīrṇa-keśaṁ dhvastākṣaṁ\
+> rabhasā daṣṭa-dacchadam\
+> rajaḥ-kuṇṭha-mukhāmbhojaṁ\
 > chinnāyudha-bhujaṁ mṛdhe
 
-> uśīnarendraṁ vidhinā tathā kṛtaṁ
-> patiṁ mahiṣyaḥ prasamīkṣya duḥkhitāḥ
-> hatāḥ sma nātheti karair uro bhṛśaṁ
+> uśīnarendraṁ vidhinā tathā kṛtaṁ\
+> patiṁ mahiṣyaḥ prasamīkṣya duḥkhitāḥ\
+> hatāḥ sma nātheti karair uro bhṛśaṁ\
 > ghnantyo muhus tat-padayor upāpatan
 
 *viśīrṇa*—scattered here and there; *ratna*—made of jewels; *kavacam*—protective armor; *vibhraṣṭa*—fallen off; *ābharaṇa*—ornaments; *srajam*—garlands; *śara-nirbhinna*—pierced by arrows; *hṛdayam*—the heart; *śayānam*—lying down; *asṛk-āvilam*—smeared with blood; *prakīrṇa-keśam*—his hair loosened and scattered; *dhvasta-akṣam*—his eyes obscured; *rabhasā*—with anger; *daṣṭa*—bitten; *dacchadam*—his lips; *rajaḥ-kuṇṭha*—covered with dust; *mukha-ambhojam*—his face, which had formerly resembled a lotus flower; *chinna*—cut off; *āyudha-bhujam*—his arms and weapons; *mṛdhe*—on the battlefield; *uśīnara-indram*—the master of the state of Uśīnara; *vidhinā*—by providence; *tathā*—thus; *kṛtam*—forced into this position; *patim*—the husband; *mahiṣyaḥ*—the queens; *prasamīkṣya*—seeing; *duḥkhitāḥ*—very much aggrieved; *hatāḥ*—killed; *sma*—certainly; *nātha*—O husband; *iti*—thus; *karaiḥ*—with the hands; *uraḥ*—the breast; *bhṛśam*—constantly; *ghnantyaḥ*—pounding; *muhuḥ*—again and again; *tat-padayoḥ*—at the feet of the King; *upāpatan*—fell down.

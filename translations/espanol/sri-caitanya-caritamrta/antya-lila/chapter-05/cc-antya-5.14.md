@@ -1,9 +1,9 @@
 ### CC Antya 5.14
 
-> সেই দুঁহে লঞা রায় নিভৃত উদ্যানে  ।
+> সেই দুঁহে লঞা রায় নিভৃত উদ্যানে  ।\
 > নিজ-নাটক-গীতের শিখায় নর্তনে ॥১৪॥
 
-> sei duṅhe lañā rāya nibhṛta udyāne
+> sei duṅhe lañā rāya nibhṛta udyāne\
 > nija-nāṭaka-gītera śikhāya nartane
 
 *sei duṅhe*—a esas dos; *lañā*—tomando; *rāya*—Rāmānanda Rāya; *nibhṛta udyāne*—a un lugar solitario en el jardín; *nija-nāṭaka*—del drama compuesto por él; *gītera*—de las canciones; *śikhāya*—da instrucciones; *nartane*—en el baile.

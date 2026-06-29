@@ -1,9 +1,9 @@
 ### CC Madhya 4.10
 
-> এইমত মহাপ্রভু চলিলা নীলাচলে ।
+> এইমত মহাপ্রভু চলিলা নীলাচলে ।\
 > চারি ভক্ত সঙ্গে কৃষ্ণকীর্তন-কুতূহলে ॥১০॥
 
-> ei-mata mahāprabhu calilā nīlācale
+> ei-mata mahāprabhu calilā nīlācale\
 > cāri bhakta saṅge kṛṣṇa-kīrtana-kutūhale
 
 *ei-mata*—de esta manera; *mahāprabhu*—el Señor Caitanya Mahāprabhu; *calilā*—se dirigió; *nīlācale*—hacia Jagannātha Purī; *cāri bhakta*—cuatro devotos; *saṅge*—con; *kṛṣṇa-kīrtana*—canto del santo nombre de Kṛṣṇa; *kutūhale*—con gran entusiasmo.

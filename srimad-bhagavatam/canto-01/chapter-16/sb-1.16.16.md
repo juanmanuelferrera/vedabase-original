@@ -1,13 +1,13 @@
 ### SB 1.16.16
 
-> सारथ्यपारषदसेवनसख्यदौत्य
-> वीरासनानुगमनस्तवनप्रणामान् ।
-> स्निग्धेषु पाण्डुषु जगत्प्रणतिं च विष्णोर्
+> सारथ्यपारषदसेवनसख्यदौत्य\
+> वीरासनानुगमनस्तवनप्रणामान् ।\
+> स्निग्धेषु पाण्डुषु जगत्प्रणतिं च विष्णोर्\
 > भक्तिं करोति नृपतिश्चरणारविन्दे ॥१६॥
 
-> sārathya-pāraṣada-sevana-sakhya-dautya-
-> vīrāsanānugamana-stavana-praṇāmān
-> snigdheṣu pāṇḍuṣu jagat-praṇatiṁ ca viṣṇor
+> sārathya-pāraṣada-sevana-sakhya-dautya-\
+> vīrāsanānugamana-stavana-praṇāmān\
+> snigdheṣu pāṇḍuṣu jagat-praṇatiṁ ca viṣṇor\
 > bhaktiṁ karoti nṛ-patiś caraṇāravinde
 
 *sārathya*—acceptance of the post of a chariot driver; *pāraṣada*—acceptance of the presidency in the assembly of the Rājasūya sacrifice; *sevana*—engaging the mind constantly in the service of the Lord; *sakhya*—to think of the Lord as a friend; *dautya*—acceptance of the post of a messenger; *vīra-āsana*—acceptance of the post of a watchman with a drawn sword at night; *anugamana*—following in the footsteps; *stavana*—offering of prayers; *praṇāmān*—offering obeisances; *snigdheṣu*—unto them who are malleable to the will of the Lord; *pāṇḍuṣu*—unto the sons of Pāṇḍu; *jagat*—the universal; *praṇatim*—one who is obeyed; *ca*—and; *viṣṇoḥ*—of Viṣṇu; *bhaktim*—devotion; *karoti*—does; *nṛ-patiḥ*—the King; *caraṇa-aravinde*—unto His lotus feet.

@@ -1,13 +1,13 @@
 ### SB 3.15.48
 
-> नात्यन्तिकं विगणयन्त्यपि ते प्रसादं
-> किम्वन्यदर्पितभयं भ्रुव उन्नयैस्ते ।
-> येऽङ्ग त्वदङ्घ्रिशरणा भवतः कथायाः
+> नात्यन्तिकं विगणयन्त्यपि ते प्रसादं\
+> किम्वन्यदर्पितभयं भ्रुव उन्नयैस्ते ।\
+> येऽङ्ग त्वदङ्घ्रिशरणा भवतः कथायाः\
 > कीर्तन्यतीर्थयशसः कुशला रसज्ञाः ॥४८॥
 
-> nātyantikaṁ vigaṇayanty api te prasādaṁ
-> kimv anyad arpita-bhayaṁ bhruva unnayais te
-> ye 'ṅga tvad-aṅghri-śaraṇā bhavataḥ kathāyāḥ
+> nātyantikaṁ vigaṇayanty api te prasādaṁ\
+> kimv anyad arpita-bhayaṁ bhruva unnayais te\
+> ye 'ṅga tvad-aṅghri-śaraṇā bhavataḥ kathāyāḥ\
 > kīrtanya-tīrtha-yaśasaḥ kuśalā rasa-jñāḥ
 
 *na*—not; *ātyantikam*—liberation; *vigaṇayanti*—care for; *api*—even; *te*—those; *prasādam*—benedictions; *kim u*—what to speak; *anyat*—other material happinesses; *arpita*—given; *bhayam*—fearfulness; *bhruvaḥ*—of the eyebrows; *unnayaiḥ*—by the raising; *te*—Your; *ye*—those devotees; *aṅga*—O Supreme Personality of Godhead; *tvat*—Your; *aṅghri*—lotus feet; *śaraṇāḥ*—who have taken shelter; *bhavataḥ*—Your; *kathāyāḥ*—narrations; *kīrtanya*—worth chanting; *tīrtha*—pure; *yaśasaḥ*—glories; *kuśalāḥ*—very expert; *rasa-jñāḥ*—knowers of the mellows or humors.

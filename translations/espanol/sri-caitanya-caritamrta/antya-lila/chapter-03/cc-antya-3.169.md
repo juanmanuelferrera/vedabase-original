@@ -1,9 +1,9 @@
 ### CC Antya 3.169
 
-> রঘুনাথ-দাস বালক করেন অধ্যয়ন ।
+> রঘুনাথ-দাস বালক করেন অধ্যয়ন ।\
 > হরিদাস-ঠাকুরেরে যাই’ করেন দর্শন ॥১৬৯॥
 
-> raghunātha-dāsa bālaka karena adhyayana
+> raghunātha-dāsa bālaka karena adhyayana\
 > haridāsa-ṭhākurere yāi' karena darśana
 
 *raghunātha-dāsa*—Raghunātha dāsa; *bālaka*—un muchacho; *karena adhyayana*—estaba dedicado a estudiar; *haridāsa-ṭhākurere*—a Haridāsa Ṭhākura; *yāi'*—yendo; *karena darśana*—solía ver.

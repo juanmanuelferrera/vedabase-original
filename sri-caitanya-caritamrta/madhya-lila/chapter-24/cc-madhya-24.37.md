@@ -1,11 +1,11 @@
 ### CC Madhya 24.37
 
-> ত্বত্সাক্ষাত্করণাহ্লাদবিশুদ্ধাব্ধিস্থিতস্য মে ।
+> ত্বত্সাক্ষাত্করণাহ্লাদবিশুদ্ধাব্ধিস্থিতস্য মে ।\
 > সুখানি গোষ্পদায়ন্তে ব্রাহ্মাণ্যপি জগদ্গুরো ॥৩৭॥
 
-> tvat-sākṣāt-karaṇāhlāda-
-> viśuddhābdhi-sthitasya me
-> sukhāni goṣpadāyante
+> tvat-sākṣāt-karaṇāhlāda-\
+> viśuddhābdhi-sthitasya me\
+> sukhāni goṣpadāyante\
 > brāhmāṇy api jagad-guro
 
 *tvat*—Your; *sākṣāt*—meeting; *karaṇa*—such action; *āhlāda*—pleasure; *vi-śuddha*—spiritually purified; *abdhi*—ocean; *sthitasya*—being situated; *me*—by me; *sukhāni*—happiness; *goṣpadāyante*—a small hole created by the hoof of a calf; *brāhmāṇi*—the pleasure derived from impersonal Brahman understanding; *api*—also; *jagat-guro*—O master of the universe.

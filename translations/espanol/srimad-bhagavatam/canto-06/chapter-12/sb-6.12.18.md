@@ -1,13 +1,13 @@
 ### SB 6.12.18
 
-> श्रीशुक उवाच
-> इन्द्रो वृत्रवचः श्रुत्वा गतालीकमपूजयत
+> श्रीशुक उवाच\
+> इन्द्रो वृत्रवचः श्रुत्वा गतालीकमपूजयत\
 > गृहीतवज्रः प्रहसंस्तमाह गतविस्मयः ॥१८॥
 
-> śrī-śuka uvāca
-> indro vṛtra-vacaḥ śrutvā
-> gatālīkam apūjayat
-> gṛhīta-vajraḥ prahasaṁs
+> śrī-śuka uvāca\
+> indro vṛtra-vacaḥ śrutvā\
+> gatālīkam apūjayat\
+> gṛhīta-vajraḥ prahasaṁs\
 > tam āha gata-vismayaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *indraḥ*—el rey Indra; *vṛtra-vacaḥ*—las palabras de Vṛtrāsura; *śrutvā*—al escuchar; *gata-alīkam*—sin duplicidad; *apūjayat*—adoró; *gṛhīta-vajraḥ*—recoger el rayo; *prahasan*—sonriendo; *tam*—a Vṛtrāsura; *āha*—dijo; *gata-vismayaḥ*—saliendo de su asombro.

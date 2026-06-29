@@ -1,11 +1,11 @@
 ### Bg 4.3
 
-> स एवायं मया तेऽद्य योगः प्रोक्तः पुरातनः ।
+> स एवायं मया तेऽद्य योगः प्रोक्तः पुरातनः ।\
 > भक्तोऽसि मे सखा चेति रहस्यं ह्येतदुत्तमम् ॥३॥
 
-> sa evāyaṁ mayā te 'dya
-> yogaḥ proktaḥ purātanaḥ
-> bhakto 'si me sakhā ceti
+> sa evāyaṁ mayā te 'dya\
+> yogaḥ proktaḥ purātanaḥ\
+> bhakto 'si me sakhā ceti\
 > rahasyaṁ hy etad uttamam
 
 *saḥ*—the same ancient; *eva*—certainly; *ayam*—this; *mayā*—by Me; *te*—unto you; *adya*—today; *yogaḥ*—the science of *yoga*; *proktaḥ*—spoken; *purātanaḥ*—very old; *bhaktaḥ*—devotee; *asi*—you are; *me*—My; *sakhā*—friend; *ca*—also; *iti*—therefore; *rahasyam*—mystery; *hi*—certainly; *etat*—this; *uttamam*—transcendental.

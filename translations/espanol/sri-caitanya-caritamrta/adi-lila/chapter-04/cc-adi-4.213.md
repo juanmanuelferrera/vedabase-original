@@ -1,11 +1,11 @@
 ### CC Adi 4.213
 
-> মন্মাহাত্ম্যং মৎসপর্যাং মাচ্ছ্রদ্ধাং মন্মনোগতম্ ।
+> মন্মাহাত্ম্যং মৎসপর্যাং মাচ্ছ্রদ্ধাং মন্মনোগতম্ ।\
 > জানন্তি গোপিকাঃ পার্থ নান্যে জানন্তি তত্ত্বতঃ ॥২১৩॥
 
-> man-māhātmyaṁ mat-saparyāṁ
-> mac-chraddhāṁ man-mano-gatam
-> jānanti gopikāḥ pārtha
+> man-māhātmyaṁ mat-saparyāṁ\
+> mac-chraddhāṁ man-mano-gatam\
+> jānanti gopikāḥ pārtha\
 > nānye jānanti tattvataḥ
 
 *mat-māhātmyam*—Mi grandeza; *mat-saparyām*—Mi servicio; *mat-śraddhām*—el respeto hacia Mí; *mat-manaḥ-gatam*—la intención de Mi mente; *jānanti*—conocen; *gopikāḥ*—las gopīs; *pārtha*—¡oh, Arjuna!; *na*—no; *anye*—otros; *jānanti*—conocen; *tattvataḥ*—de verdad.

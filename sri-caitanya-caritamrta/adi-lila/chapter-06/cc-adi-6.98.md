@@ -1,9 +1,9 @@
 ### CC Adi 6.98
 
-> একমাত্র ‘অংশী’ — কৃষ্ণ’ ‘অংশ’ — অবতার ।
+> একমাত্র ‘অংশী’ — কৃষ্ণ’ ‘অংশ’ — অবতার ।\
 > অংশী অংশে দেখি জ্যেষ্ঠ-কনিষ্ঠ-আচার ॥৯৮॥
 
-> eka-mātra 'aṁśī'—kṛṣṇa, 'aṁśa'—avatāra
+> eka-mātra 'aṁśī'—kṛṣṇa, 'aṁśa'—avatāra\
 > aṁśī aṁśe dekhi jyeṣṭha-kaniṣṭha-ācāra
 
 *eka-mātra*—only one; *aṁśī*—source of all incarnations; *kṛṣṇa*—Lord Kṛṣṇa; *aṁśa*—of the part; *avatāra*—incarnations; *aṁśī*—is the source of all incarnations; *aṁśe*—in the incarnation; *dekhi*—we can see; *jyeṣṭha*—as superior; *kaniṣṭha*—and inferior; *ācāra*—behavior.

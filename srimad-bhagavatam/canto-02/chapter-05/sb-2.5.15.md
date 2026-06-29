@@ -1,11 +1,11 @@
 ### SB 2.5.15
 
-> नारायणपरा वेदा देवा नारायणाङ्गजाः ।
+> नारायणपरा वेदा देवा नारायणाङ्गजाः ।\
 > नारायणपरा लोका नारायणपरा मखाः ॥१५॥
 
-> nārāyaṇa-parā vedā
-> devā nārāyaṇāṅgajāḥ
-> nārāyaṇa-parā lokā
+> nārāyaṇa-parā vedā\
+> devā nārāyaṇāṅgajāḥ\
+> nārāyaṇa-parā lokā\
 > nārāyaṇa-parā makhāḥ
 
 *nārāyaṇa*—the Supreme Lord; *parāḥ*—is the cause and is meant for; *vedāḥ*—knowledge; *devāḥ*—the demigods; *nārāyaṇa*—the Supreme Lord; *aṅga-jāḥ*—assisting hands; *nārāyaṇa*—the Personality of Godhead; *parāḥ*—for the sake of; *lokāḥ*—the planets; *nārāyaṇa*—the Supreme Lord; *parāḥ*—just to please Him; *makhāḥ*—all sacrifices.

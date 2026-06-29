@@ -1,9 +1,9 @@
 ### CC Adi 3.30
 
-> চৈতন্যসিংহের নবদ্বীপে অবতার ।
+> চৈতন্যসিংহের নবদ্বীপে অবতার ।\
 > সিংহগ্রীব, সিংহবীর্য, সিংহের হুঙ্কার ॥৩০॥
 
-> caitanya-siṁhera navadvīpe avatāra
+> caitanya-siṁhera navadvīpe avatāra\
 > siṁha-grīva, siṁha-vīrya, siṁhera huṅkāra
 
 *caitanya-siṁhera*—of the lionlike Lord Caitanya Mahāprabhu; *navadvīpe*—at Navadvīpa; *avatāra*—the incarnation; *siṁha-grīva*—having the neck of a lion; *siṁha-vīrya*—the strength of a lion; *siṁherahuṅkāra*—the roar of a lion.

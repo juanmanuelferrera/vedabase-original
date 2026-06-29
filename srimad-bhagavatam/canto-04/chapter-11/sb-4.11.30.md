@@ -1,11 +1,11 @@
 ### SB 4.11.30
 
-> त्वं प्रत्यगात्मनि तदा भगवत्यनन्त आनन्दमात्र उपपन्नसमस्तशक्तौ ।
+> त्वं प्रत्यगात्मनि तदा भगवत्यनन्त आनन्दमात्र उपपन्नसमस्तशक्तौ ।\
 > भक्तिं विधाय परमां शनकैरविद्या ग्रन्थिं विभेत्स्यसि ममाहमिति प्ररूढम् ॥३०॥
 
-> tvaṁ pratyag-ātmani tadā bhagavaty ananta
-> ānanda-mātra upapanna-samasta-śaktau
-> bhaktiṁ vidhāya paramāṁ śanakair avidyā-
+> tvaṁ pratyag-ātmani tadā bhagavaty ananta\
+> ānanda-mātra upapanna-samasta-śaktau\
+> bhaktiṁ vidhāya paramāṁ śanakair avidyā-\
 > granthiṁ vibhetsyasi mamāham iti prarūḍham
 
 *tvam*—you; *pratyak-ātmani*—unto the Supersoul; *tadā*—at that time; *bhagavati*—unto the Supreme Personality of Godhead; *anante*—who is unlimited; *ānanda-mātre*—the reservoir of all pleasure; *upapanna*—possessed of; *samasta*—all; *śaktau*—potencies; *bhaktim*—devotional service; *vidhāya*—by rendering; *paramām*—supreme; *śanakaiḥ*—very soon; *avidyā*—of illusion; *granthim*—the knot; *vibhetsyasi*—you will undo; *mama*—my; *aham*—I; *iti*—thus; *prarūḍham*—firmly fixed.

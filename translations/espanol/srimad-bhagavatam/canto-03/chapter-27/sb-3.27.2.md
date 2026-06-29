@@ -1,11 +1,11 @@
 ### SB 3.27.2
 
-> स एष यर्हि प्रकृतेर्गुणेष्वभिविषज्जते ।
+> स एष यर्हि प्रकृतेर्गुणेष्वभिविषज्जते ।\
 > अहङ्क्रियाविमूढात्मा कर्तास्मीत्यभिमन्यते ॥२॥
 
-> sa eṣa yarhi prakṛter
-> guṇeṣv abhiviṣajjate
-> ahaṅkriyā-vimūḍhātmā
+> sa eṣa yarhi prakṛter\
+> guṇeṣv abhiviṣajjate\
+> ahaṅkriyā-vimūḍhātmā\
 > kartāsmīty abhimanyate
 
 *saḥ*—esa misma entidad viviente; *eṣaḥ*—esta; *yarhi*—cuando; *prakṛteḥ*—de la naturaleza material; *guṇeṣu*—en las modalidades; *abhiviṣajjate*—se absorbe; *ahaṅkriyā*—por el ego falso; *vimūḍha*—confundida; *ātmā*—el alma individual; *kartā*—el hacedor; *asmi*—yo soy; *iti*—de este modo; *abhimanyate*—piensa.

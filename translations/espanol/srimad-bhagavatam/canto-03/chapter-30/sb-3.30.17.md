@@ -1,11 +1,11 @@
 ### SB 3.30.17
 
-> शयानः परिशोचद्भिः परिवीतः स्वबन्धुभिः ।
+> शयानः परिशोचद्भिः परिवीतः स्वबन्धुभिः ।\
 > वाच्यमानोऽपि न ब्रूते कालपाशवशं गतः ॥१७॥
 
-> śayānaḥ pariśocadbhiḥ
-> parivītaḥ sva-bandhubhiḥ
-> vācyamāno 'pi na brūte
+> śayānaḥ pariśocadbhiḥ\
+> parivītaḥ sva-bandhubhiḥ\
+> vācyamāno 'pi na brūte\
 > kāla-pāśa-vaśaṁ gataḥ
 
 *śayānaḥ*—yacer; *pariśocadbhiḥ*—lamentándose; *parivītaḥ*—rodeado; *sva-bandhubhiḥ*—de sus parientes y amigos; *vācyamānaḥ*—tener el impulso de hablar; *api*—aunque; *na*—no; *brūte*—habla; *kāla*—del tiempo; *pāśa*—el lazo; *vaśam*—bajo el control de; *gataḥ*—ido.

@@ -1,11 +1,11 @@
 ### SB 4.24.31
 
-> इदं विविक्तं जप्तव्यं पवित्रं मङ्गलं परम् ।
+> इदं विविक्तं जप्तव्यं पवित्रं मङ्गलं परम् ।\
 > निःश्रेयसकरं चापि श्रूयतां तद्वदामि वः ॥३१॥
 
-> idaṁ viviktaṁ japtavyaṁ
-> pavitraṁ maṅgalaṁ param
-> niḥśreyasa-karaṁ cāpi
+> idaṁ viviktaṁ japtavyaṁ\
+> pavitraṁ maṅgalaṁ param\
+> niḥśreyasa-karaṁ cāpi\
 > śrūyatāṁ tad vadāmi vaḥ
 
 *idam*—este; *viviktam*—muy, particular; *japtavyam*—para cantar siempre; *pavitram*—muy puro; *maṅgalam*—auspicioso; *param*—trascendental; *niḥśreyasa-karam*—muy beneficioso; *ca*—también; *api*—ciertamente; *śrūyatām*—por favor, escuchen; *tat*—eso; *vadāmi*—estoy hablando; *vaḥ*—a ustedes.

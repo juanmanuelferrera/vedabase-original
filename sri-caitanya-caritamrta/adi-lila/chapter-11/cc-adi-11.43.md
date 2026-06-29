@@ -1,9 +1,9 @@
 ### CC Adi 11.43
 
-> বিষ্ণুদাস, নন্দন, গঙ্গাদাস, — তিন ভাই ।
+> বিষ্ণুদাস, নন্দন, গঙ্গাদাস, — তিন ভাই ।\
 > পূর্বে যাঁর ঘরে ছিলা ঠাকুর নিতাই ॥৪৩॥
 
-> viṣṇudāsa, nandana, gaṅgādāsa—tina bhāi
+> viṣṇudāsa, nandana, gaṅgādāsa—tina bhāi\
 > pūrve yāṅra ghare chilā ṭhākura nitāi
 
 *viṣṇudāsa*—of the name Viṣṇudāsa; *nandana*—of the name Nandana; *gaṅgādāsa*—of the name Gaṅgādāsa; *tinabhāi*—three brothers; *pūrve*—previously; *yāṅra*—whose; *ghare*—in the house; *chilā*—stayed; *ṭhākura nitāi*—Nityānanda Prabhu.

@@ -1,11 +1,11 @@
 ### SB 4.28.24
 
-> पुरीं विहायोपगत उपरुद्धो भुजङ्गमः ।
+> पुरीं विहायोपगत उपरुद्धो भुजङ्गमः ।\
 > यदा तमेवानु पुरी विशीर्णा प्रकृतिं गता ॥२४॥
 
-> purīṁ vihāyopagata
-> uparuddho bhujaṅgamaḥ
-> yadā tam evānu purī
+> purīṁ vihāyopagata\
+> uparuddho bhujaṅgamaḥ\
+> yadā tam evānu purī\
 > viśīrṇā prakṛtiṁ gatā
 
 *purīm*—the city; *vihāya*—having given up; *upagataḥ*—gone out; *uparuddhaḥ*—arrested; *bhujaṅgamaḥ*—the serpent; *yadā*—when; *tam*—him; *eva*—certainly; *anu*—after; *purī*—the city; *viśīrṇā*—scattered; *prakṛtim*—matter; *gatā*—turned into.

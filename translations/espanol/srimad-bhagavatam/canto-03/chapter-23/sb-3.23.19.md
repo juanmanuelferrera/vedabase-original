@@ -1,11 +1,11 @@
 ### SB 3.23.19
 
-> चक्षुष्मत्पद्मरागाग्र्यैर्वज्रभित्तिषु निर्मितैः ।
+> चक्षुष्मत्पद्मरागाग्र्यैर्वज्रभित्तिषु निर्मितैः ।\
 > जुष्टं विचित्रवैतानैर्महार्हैर्हेमतोरणैः ॥१९॥
 
-> cakṣuṣmat padmarāgāgryair
-> vajra-bhittiṣu nirmitaiḥ
-> juṣṭaṁ vicitra-vaitānair
+> cakṣuṣmat padmarāgāgryair\
+> vajra-bhittiṣu nirmitaiḥ\
+> juṣṭaṁ vicitra-vaitānair\
 > mahārhair hema-toraṇaiḥ
 
 *cakṣuḥ-mat*—como si tuviese ojos; *padma-rāga*—con rubíes; *agryaiḥ*—los más selectos; *vajra*—de diamante; *bhittiṣu*—en los muros; *nirmitaiḥ*—engastados; *juṣṭam*—amueblado; *vicitra*—diversos; *vaitānaiḥ*—con doseles; *mahā-arhaiḥ*—enormemente valiosos; *hema-toraṇaiḥ*—con puertas de oro.

@@ -1,11 +1,11 @@
 ### SB 1.2.14
 
-> तस्मादेकेन मनसा भगवान्सात्वतां पतिः ।
+> तस्मादेकेन मनसा भगवान्सात्वतां पतिः ।\
 > श्रोतव्यः कीर्तितव्यश्च ध्येयः पूज्यश्च नित्यदा ॥१४॥
 
-> tasmād ekena manasā
-> bhagavān sātvatāṁ patiḥ
-> śrotavyaḥ kīrtitavyaś ca
+> tasmād ekena manasā\
+> bhagavān sātvatāṁ patiḥ\
+> śrotavyaḥ kīrtitavyaś ca\
 > dhyeyaḥ pūjyaś ca nityadā
 
 *tasmāt*—por consiguiente; *ekena*—mediante uno; *manasā*—la atención de la mente; *bhagavān*—la Personalidad de Dios; *sātvatām*—de los devotos; *patiḥ*—protector; *śrotavyaḥ*—ha de ser oído; *kīrtitavyaḥ*—ser glorificado; *ca*—y; *dhyeyaḥ*—ser recordado; *pūjyaḥ*—ser adorado; *ca*—y; *nityadā*—constantemente.

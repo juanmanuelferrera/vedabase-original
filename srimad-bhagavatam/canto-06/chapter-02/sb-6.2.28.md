@@ -1,11 +1,11 @@
 ### SB 6.2.28
 
-> वृद्धावनाथौ पितरौ नान्यबन्धू तपस्विनौ
+> वृद्धावनाथौ पितरौ नान्यबन्धू तपस्विनौ\
 > अहो मयाधुना त्यक्तावकृतज्ञएन नीचवत ॥२८॥
 
-> vṛddhāv anāthau pitarau
-> nānya-bandhū tapasvinau
-> aho mayādhunā tyaktāv
+> vṛddhāv anāthau pitarau\
+> nānya-bandhū tapasvinau\
+> aho mayādhunā tyaktāv\
 > akṛtajñena nīcavat
 
 *vṛddhau*—old; *anāthau*—who had no other person to look after their comforts; *pitarau*—my father and mother; *na anya-bandhū*—who had no other friend; *tapasvinau*—who underwent great difficulties; *aho*—alas; *mayā*—by me; *adhunā*—at that moment; *tyaktau*—were given up; *akṛta-jñena*—ungrateful; *nīca-vat*—like the most abominable low-class person.

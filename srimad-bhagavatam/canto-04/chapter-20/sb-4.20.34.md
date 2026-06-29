@@ -1,13 +1,13 @@
 ### SB 4.20.34
 
-> मैत्रेय उवाच
-> इति वैन्यस्य राजर्षेः प्रतिनन्द्यार्थवद्वचः ।
+> मैत्रेय उवाच\
+> इति वैन्यस्य राजर्षेः प्रतिनन्द्यार्थवद्वचः ।\
 > पूजितोऽनुगृहीत्वैनं गन्तुं चक्रेऽच्युतो मतिम् ॥३४॥
 
-> maitreya uvāca
-> iti vainyasya rājarṣeḥ
-> pratinandyārthavad vacaḥ
-> pūjito 'nugṛhītvainaṁ
+> maitreya uvāca\
+> iti vainyasya rājarṣeḥ\
+> pratinandyārthavad vacaḥ\
+> pūjito 'nugṛhītvainaṁ\
 > gantuṁ cakre 'cyuto matim
 
 *maitreyaḥ uvāca*—the great sage Maitreya continued to speak; *iti*—thus; *vainyasya*—of the son of King Vena (Pṛthu Mahārāja); *rāja-ṛṣeḥ*—of the saintly King; *pratinandya*—appreciating; *artha-vat vacaḥ*—the prayers, which were full of meaning; *pūjitaḥ*—being worshiped; *anugṛhītvā*—sufficiently benedicting; *enam*—King Pṛthu; *gantum*—to go from that place; *cakre*—made up; *acyutaḥ*—the infallible Lord; *matim*—His mind.

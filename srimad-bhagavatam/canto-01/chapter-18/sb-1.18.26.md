@@ -1,11 +1,11 @@
 ### SB 1.18.26
 
-> प्रतिरुद्धेन्द्रियप्राण मनोबुद्धिमुपारतम् ।
+> प्रतिरुद्धेन्द्रियप्राण मनोबुद्धिमुपारतम् ।\
 > स्थानत्रयात्परं प्राप्तं ब्रह्मभूतमविक्रियम् ॥२६॥
 
-> pratiruddhendriya-prāṇa-
-> mano-buddhim upāratam
-> sthāna-trayāt paraṁ prāptaṁ
+> pratiruddhendriya-prāṇa-\
+> mano-buddhim upāratam\
+> sthāna-trayāt paraṁ prāptaṁ\
 > brahma-bhūtam avikriyam
 
 *pratiruddha*—restrained; *indriya*—the sense organs; *prāṇa*—air of respiration; *manaḥ*—the mind; *buddhim*—intelligence; *upāratam*—inactive; *sthāna*—places; *trayāt*—from the three; *param*—transcendental; *prāptam*—achieved; *brahma-bhūtam*—qualitatively equal with the Supreme Absolute; *avikriyam*—unaffected.

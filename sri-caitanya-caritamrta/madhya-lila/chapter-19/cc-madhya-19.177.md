@@ -1,9 +1,9 @@
 ### CC Madhya 19.177
 
-> সাধনভক্তি হৈতে হয় ‘রতি’র উদয় ।
+> সাধনভক্তি হৈতে হয় ‘রতি’র উদয় ।\
 > রতি গাঢ় হৈলে তার ‘প্রেম’ নাম কয় ॥১৭৭॥
 
-> sādhana-bhakti haite haya 'rati'ra udaya
+> sādhana-bhakti haite haya 'rati'ra udaya\
 > rati gāḍha haile tāra 'prema' nāma kaya
 
 *sādhana-bhakti*—the process of regularly rendering devotional service; *haite*—from; *haya*—there is; *ratira*—of attachment; *udaya*—the awakening; *rati*—such attachment; *gāḍha haile*—becoming thick; *tāra*—of this; *prema*—love of Godhead; *nāma*—the name; *kaya*—is said.

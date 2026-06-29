@@ -1,11 +1,11 @@
 ### SB 6.2.4
 
-> यद्यदाचरति श्रेयानितरस्तत्तदीहते
+> यद्यदाचरति श्रेयानितरस्तत्तदीहते\
 > स यत्प्रमाणं कुरुते लोकस्तदनुवर्तते ॥४॥
 
-> yad yad ācarati śreyān
-> itaras tat tad īhate
-> sa yat pramāṇaṁ kurute
+> yad yad ācarati śreyān\
+> itaras tat tad īhate\
+> sa yat pramāṇaṁ kurute\
 > lokas tad anuvartate
 
 *yat yat*—whatever; *ācarati*—executes; *śreyān*—a first-class man with full knowledge of religious principles; *itaraḥ*—the subordinate man; *tat tat*—that; *īhate*—performs; *saḥ*—he (the great man); *yat*—whatever; *pramāṇam*—as evidence or as the right thing; *kurute*—accepts; *lokaḥ*—the general public; *tat*—that; *anuvartate*—follows.

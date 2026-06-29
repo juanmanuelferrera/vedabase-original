@@ -1,13 +1,13 @@
 ### SB 7.9.34
 
-> तत्सम्भवः कविरतोऽन्यदपश्यमानस
-> त्वां बीजमात्मनि ततं स बहिर्विचिन्त्य
-> नाविन्ददब्दशतमप्सु निमज्जमानो
+> तत्सम्भवः कविरतोऽन्यदपश्यमानस\
+> त्वां बीजमात्मनि ततं स बहिर्विचिन्त्य\
+> नाविन्ददब्दशतमप्सु निमज्जमानो\
 > जातेऽङ्कुरे कथमुहोपलभेत बीजम ॥३४॥
 
-> tat-sambhavaḥ kavir ato 'nyad apaśyamānas
-> tvāṁ bījam ātmani tataṁ sa bahir vicintya
-> nāvindad abda-śatam apsu nimajjamāno
+> tat-sambhavaḥ kavir ato 'nyad apaśyamānas\
+> tvāṁ bījam ātmani tataṁ sa bahir vicintya\
+> nāvindad abda-śatam apsu nimajjamāno\
 > jāte 'ṅkure katham uhopalabheta bījam
 
 *tat-sambhavaḥ*—que fue generado de esa flor de loto; *kaviḥ*—aquel que puede entender la causa sutil de la creación (el Señor Brahmā); *ataḥ*—de ese (loto); *anyat*—nada más; *apaśyamānaḥ*—sin poder ver; *tvām*—a Tu Señoría; *bījam*—la causa del loto; *ātmani*—en sí mismo; *tatam*—expandido; *saḥ*—él (el Señor Brahmā); *bahiḥ vicintya*—considerando externo; *na*—no; *avindat*—entendió (a Ti); *abda-śatam*—durante cien años de los semidioses***; *apsu*—en el agua; *nimajjamānaḥ*—sumergirse; *jāte aṅkure*—cuando la semilla fructifica y se manifiesta en forma de enredadera; *katham*—cómo; *uha*—¡oh, mi Señor!; *upalabheta*—se puede percibir; *bījam*—la semilla que ya ha fructificado.

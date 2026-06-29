@@ -1,9 +1,9 @@
 ### CC Madhya 15.221
 
-> অমৃত-গুটিকা, পিঠা-পানা আনাইল ।
+> অমৃত-গুটিকা, পিঠা-পানা আনাইল ।\
 > জগন্নাথ-প্রসাদ সব পৃথক্ ধরিল ॥২২১॥
 
-> amṛta-guṭikā, piṭhā-pānā ānāila
+> amṛta-guṭikā, piṭhā-pānā ānāila\
 > jagannātha-prasāda saba pṛthak dharila
 
 *amṛta-guṭikā*—the sweet named *amṛta-guṭikā*; *piṭhā-pānā*—cakes and sweet rice; *ānāila*—brought; *jagannātha-prasāda*—remnants of the food of Lord Jagannātha; *saba*—all; *pṛthak dharila*—kept separately.

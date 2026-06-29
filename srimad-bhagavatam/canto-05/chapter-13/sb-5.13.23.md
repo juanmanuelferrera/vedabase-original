@@ -1,11 +1,11 @@
 ### SB 5.13.23
 
-> नमो महद्भ्योऽस्तु नमः शिशुभ्यो नमो युवभ्यो नम आवटुभ्यः
+> नमो महद्भ्योऽस्तु नमः शिशुभ्यो नमो युवभ्यो नम आवटुभ्यः\
 > ये ब्राह्मणा गामवधूतलिङ्गाश्चरन्ति तेभ्यः शिवमस्तु राज्ञआम ॥२३॥
 
-> namo mahadbhyo 'stu namaḥ śiśubhyo
-> namo yuvabhyo nama āvaṭubhyaḥ
-> ye brāhmaṇā gām avadhūta-liṅgāś
+> namo mahadbhyo 'stu namaḥ śiśubhyo\
+> namo yuvabhyo nama āvaṭubhyaḥ\
+> ye brāhmaṇā gām avadhūta-liṅgāś\
 > caranti tebhyaḥ śivam astu rājñām
 
 *namaḥ*—all obeisances; *mahadbhyaḥ*—unto the great personalities; *astu*—let there be; *namaḥ*—my obeisances; *śiśubhyaḥ*—unto those great personalities who appear as boys; *namaḥ*—respectful obeisances; *yuvabhyaḥ*—unto those who appear as young men; *namaḥ*—respectful obeisances; *ā-vaṭubhyaḥ*—unto those who appear as children; *ye*—all those who; *brāhmaṇāḥ*—self-realized in transcendental knowledge; *gām*—the earth; *avadhūta-liṅgāḥ*—who remain hidden under different bodily guises; *caranti*—they traverse; *tebhyaḥ*—from them; *śivam astu*—let there be all good fortune; *rājñām*—unto the royal dynasties or kings (who are always very puffed up).

@@ -1,11 +1,11 @@
 ### SB 4.13.7
 
-> स जन्मनोपशान्तात्मा निःसङ्गः समदर्शनः ।
+> स जन्मनोपशान्तात्मा निःसङ्गः समदर्शनः ।\
 > ददर्श लोके विततमात्मानं लोकमात्मनि ॥७॥
 
-> sa janmanopaśāntātmā
-> niḥsaṅgaḥ sama-darśanaḥ
-> dadarśa loke vitatam
+> sa janmanopaśāntātmā\
+> niḥsaṅgaḥ sama-darśanaḥ\
+> dadarśa loke vitatam\
 > ātmānaṁ lokam ātmani
 
 *saḥ*—su hijo Utkala; *janmanā*—desde el mismo momento en que nació; *upaśānta*—muy satisfecha; *ātmā*—alma; *niḥsaṅgaḥ*—sin apego; *sama-darśanaḥ*—equilibrado; *dadarśa*—veía; *loke*—en el mundo; *vitatam*—difundida; *ātmānam*—a la Superalma; *lokam*—todo el mundo; *ātmani*—en la Superalma.

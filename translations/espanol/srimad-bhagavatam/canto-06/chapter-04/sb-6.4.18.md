@@ -1,11 +1,11 @@
 ### SB 6.4.18
 
-> यथा ससर्ज भूतानि दक्षो दुहितृवत्सलः
+> यथा ससर्ज भूतानि दक्षो दुहितृवत्सलः\
 > रेतसा मनसा चैव तन्ममावहितः शृणु ॥१८॥
 
-> yathā sasarja bhūtāni
-> dakṣo duhitṛ-vatsalaḥ
-> retasā manasā caiva
+> yathā sasarja bhūtāni\
+> dakṣo duhitṛ-vatsalaḥ\
+> retasā manasā caiva\
 > tan mamāvahitaḥ śṛṇu
 
 *yathā*—como; *sasarja*—creó; *bhūtāni*—las entidades vivientes; *dakṣaḥ*—Dakṣa; *duhitṛ-vatsalaḥ*—que es muy cariñoso con sus hijas; *retasā*—por medio del semen; *manasā*—por medio de la mente; *ca*—también; *eva*—en verdad; *tat*—eso; *mama*—de mí; *avahitaḥ*—poniendo atención; *śṛṇu*—por favor, escucha.

@@ -1,11 +1,11 @@
 ### SB 7.5.10
 
-> बुद्धिभेदः परकृत उताहो ते स्वतोऽभवत
+> बुद्धिभेदः परकृत उताहो ते स्वतोऽभवत\
 > भण्यतां श्रोतुकामानां गुरूणां कुलनन्दन ॥१०॥
 
-> buddhi-bhedaḥ para-kṛta
-> utāho te svato 'bhavat
-> bhaṇyatāṁ śrotu-kāmānāṁ
+> buddhi-bhedaḥ para-kṛta\
+> utāho te svato 'bhavat\
+> bhaṇyatāṁ śrotu-kāmānāṁ\
 > gurūṇāṁ kula-nandana
 
 *buddhi-bhedaḥ*—contaminación de la inteligencia; *para-kṛtaḥ*—hecha por los enemigos; *utāho*—o; *te*—de tu; *svataḥ*—por ti mismo; *abhavat*—fue; *bhaṇyatām*—que se diga; *śrotu-kāmānām*—a nosotros, que estamos muy deseosos de escuchar acerca de esto; *gurūṇām*—todos tus maestros; *kula-nandana*—¡oh, tú, el mejor de tu familia!.

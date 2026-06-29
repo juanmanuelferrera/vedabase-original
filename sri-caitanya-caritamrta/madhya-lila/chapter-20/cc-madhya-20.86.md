@@ -1,9 +1,9 @@
 ### CC Madhya 20.86
 
-> সেই কহে, — “রহস্য কর প্রামাণিক হঞা ?
+> সেই কহে, — “রহস্য কর প্রামাণিক হঞা ?\
 > বহুমূল্য ভোট দিবা কেন কাঁথা লঞা ?” ॥ ৮৬ ॥
 
-> sei kahe,—"rahasya kara prāmāṇika hañā?
+> sei kahe,—"rahasya kara prāmāṇika hañā?\
 > bahu-mūlya bhoṭa dibā kena kāṅthā lañā?"
 
 *sei kahe*—he said; *rahasya*—joking; *kara*—you do; *prāmāṇika hañā*—although being a man of authority; *bahu-mūlya*—very valuable; *bhoṭa*—woolen blanket; *dibā*—you would give; *kena*—why; *kāṅthā lañā*—taking this quilt.

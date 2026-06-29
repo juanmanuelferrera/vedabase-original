@@ -1,9 +1,9 @@
 ### CC Antya 4.81
 
-> নিজ-প্রিয়স্থান মোর — মথুরা-বৃন্দাবন ।
+> নিজ-প্রিয়স্থান মোর — মথুরা-বৃন্দাবন ।\
 > তাঁহা এত ধর্ম চাহি করিতে প্রচারণ ॥৮১॥
 
-> nija-priya-sthāna mora--mathurā-vṛndāvana
+> nija-priya-sthāna mora--mathurā-vṛndāvana\
 > tāhāṅ eta dharma cāhi karite pracāraṇa
 
 *nija*—propia; *priya-sthāna*—lugar muy querido; *mora*—Mi; *mathurā-vṛndāvana*—Mathurā y Vṛndāvana; *tāhāṅ*—allí; *eta*—tantas; *dharma*—actividades; *cāhi*—quiero; *karite*—hacer; *pracāraṇa*—predicación.

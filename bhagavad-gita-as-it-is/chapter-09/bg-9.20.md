@@ -1,13 +1,13 @@
 ### Bg 9.20
 
-> त्रैविद्या मां सोमपाः पूतपापा
-> यज्ञैरिष्ट्वा स्वर्गतिं प्रार्थयन्ते ।
-> ते पुण्यमासाद्य सुरेन्द्रलोक-
+> त्रैविद्या मां सोमपाः पूतपापा\
+> यज्ञैरिष्ट्वा स्वर्गतिं प्रार्थयन्ते ।\
+> ते पुण्यमासाद्य सुरेन्द्रलोक-\
 > मश्नन्ति दिव्यान्दिवि देवभोगान् ॥२०॥
 
-> trai-vidyā māṁ soma-pāḥ pūta-pāpā
-> yajñair iṣṭvā svar-gatiṁ prārthayante
-> te puṇyam āsādya surendra-lokam
+> trai-vidyā māṁ soma-pāḥ pūta-pāpā\
+> yajñair iṣṭvā svar-gatiṁ prārthayante\
+> te puṇyam āsādya surendra-lokam\
 > aśnanti divyān divi deva-bhogān
 
 *trai-vidyāḥ*—the knowers of the three *Vedas*; *mām*—unto Me; *soma-pāḥ*—drinkers of *soma* juice; *pūta*—purified; *pāpāḥ*—sins; *yajñaiḥ*—with sacrifices; *iṣṭvā*—after worshiping; *svargatim*—passage to heaven; *prārthayante*—pray; *te*—they; *puṇyam*—virtue; *āsādya*—enjoying; *surendra*—of Indra; *lokam*—world; *aśnanti*—enjoy; *divyān*—celestial; *divi*—in heaven; *deva-bhogān*—pleasures of the gods.

@@ -1,13 +1,13 @@
 ### CC Adi 4.176
 
-> এবং মদর্থোজ্ঝিতলোকবেদ-
-> স্বানাং হি বো ময্যনুবৃত্তয়েঽবলাঃ ।
-> ময়া পরোক্ষং ভজতা তিরোহিতং
+> এবং মদর্থোজ্ঝিতলোকবেদ-\
+> স্বানাং হি বো ময্যনুবৃত্তয়েঽবলাঃ ।\
+> ময়া পরোক্ষং ভজতা তিরোহিতং\
 > মাসূয়িতুং মার্হথ তৎ প্রিয়ং প্রিয়াঃ ॥১৭৬॥
 
-> evaṁ mad-arthojjhita-loka-veda-
-> svānāṁ hi vo mayy anuvṛttaye 'balāḥ
-> mayā parokṣaṁ bhajatā tirohitaṁ
+> evaṁ mad-arthojjhita-loka-veda-\
+> svānāṁ hi vo mayy anuvṛttaye 'balāḥ\
+> mayā parokṣaṁ bhajatā tirohitaṁ\
 > māsūyituṁ mārhatha tat priyaṁ priyāḥ
 
 *evam*—thus; *mat-artha*—for Me; *ujjhita*—rejected; *loka*—popular customs; *veda*—Vedic injunctions; *svānām*—own families; *hi*—certainly; *vaḥ*—of you; *mayi*—Me; *anuvṛttaye*—to increase regard for; *abalāḥ*—O women; *mayā*—by Me; *parokṣam*—invisible; *bhajatā*—favoring; *tirohitam*—withdrawn from sight; *mā*—Me; *asūyitum*—to be displeased with; *mā arhatha*—you do not deserve; *tat*—therefore; *priyam*—who is dear; *priyāḥ*—O dear ones.

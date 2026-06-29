@@ -1,9 +1,9 @@
 ### CC Antya 6.231
 
-> প্রভুর আগে স্বরূপ নিবেদিলা আর দিনে  ।
+> প্রভুর আগে স্বরূপ নিবেদিলা আর দিনে  ।\
 > রঘুনাথ নিবেদয় প্রভুর চরণে ॥২৩১॥
 
-> prabhura āge svarūpa nivedilā āra dine
+> prabhura āge svarūpa nivedilā āra dine\
 > raghunātha nivedaya prabhura caraṇe
 
 *prabhura āge*—ante Śrī Caitanya Mahāprabhu; *svarūpa*—Svarūpa Dāmodara Gosvāmī; *nivedilā*—presentó; *āra dine*—al día siguiente; *raghunātha nivedaya*—Raghunātha dāsa pregunta; *prabhura caraṇe*—a los pies de loto del Señor Śrī Caitanya Mahāprabhu.

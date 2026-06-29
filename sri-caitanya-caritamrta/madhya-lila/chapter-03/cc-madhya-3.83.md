@@ -1,9 +1,9 @@
 ### CC Madhya 3.83
 
-> নিত্যানন্দ বলে — যবে কৈলে নিমন্ত্রণ ।
+> নিত্যানন্দ বলে — যবে কৈলে নিমন্ত্রণ ।\
 > তত দিতে চাহ, যত করিয়ে ভোজন ॥৮৩॥
 
-> nityānanda bale—yabe kaile nimantraṇa
+> nityānanda bale—yabe kaile nimantraṇa\
 > tata dite cāha, yata kariye bhojana
 
 *nityānandabale*—Lord Nityānanda said; *yabe*—when; *kaile*—You have done; *nimantraṇa*—invitation; *tata*—so much; *dite cāha*—You must supply; *yata*—as much as; *kariye bhojana*—I can eat.

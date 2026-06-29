@@ -1,10 +1,10 @@
 ### CC Madhya 25.34
 
-> শ্রুতি-পুরাণ কহে — কৃষ্ণের চিচ্ছক্তি-বিলাস ।
+> শ্রুতি-পুরাণ কহে — কৃষ্ণের চিচ্ছক্তি-বিলাস ।\
 > তাহা নাহি মানি, পণ্ডিত করে উপহাস ॥৩৪॥
 
-> śruti-purāṇa kahe-kṛṣṇera cic-chakti-vilāsa
-> tāhā nāhi māni, paṇḍita kare upahāsa
+> śruti-purāṇa kahe-kṛṣṇera cic-chakti-vilāsa\
+> tāhā nāhi māni, paṇḍita kare upahāsa\
 > SYNONYMS
 
 *śruti-purāṇa kahe*—las literaturas Védicas y los Purāṇas confirman; *kṛṣṇera*—del Señor Kṛṣṇa; *cit-śakti-vilāsa*—actividades de las potencias espirituales; *tāhā nāhi māni*—no aceptando eso; *paṇḍita kare upahāsa*—los supuestos eruditos hacen burlas sin comprensión perfecta.

@@ -1,9 +1,9 @@
 ### CC Adi 5.159
 
-> বেদগুহ্য কথা এই অযোগ্য কহিতে ।
+> বেদগুহ্য কথা এই অযোগ্য কহিতে ।\
 > তথাপি কহিয়ে তাঁর কৃপা প্রকাশিতে ॥১৫৯॥
 
-> veda-guhya kathā ei ayogya kahite
+> veda-guhya kathā ei ayogya kahite\
 > tathāpi kahiye tāṅra kṛpā prakāśite
 
 *veda*—like the *Vedas*; *guhya*—very confidential; *kathā*—incident; *ei*—this; *ayogya kahite*—not fit to disclose; *tathāpi*—still; *kahiye*—I speak; *tāṅra*—His; *kṛpā*—mercy; *prakāśite*—to manifest.

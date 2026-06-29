@@ -1,9 +1,9 @@
 ### CC Madhya 1.193
 
-> ব্রাহ্মণজাতি তারা, নবদ্বীপে ঘর ।
+> ব্রাহ্মণজাতি তারা, নবদ্বীপে ঘর ।\
 > নীচ-সেবা নাহি করে, নহে নীচের কূর্পর ॥১৯৩॥
 
-> brāhmaṇa-jāti tārā, navadvīpe ghara
+> brāhmaṇa-jāti tārā, navadvīpe ghara\
 > nīca-sevā nāhi kare, nahe nīcera kūrpara
 
 *brāhmaṇa-jāti*—born in a *brāhmaṇa* family; *tārā*—they; *navadvīpe*—the holy place of Navadvīpa-dhāma; *ghara*—their house; *nīca-sevā*—service to degraded persons; *nāhi*—not; *kare*—do; *nahe*—not; *nīcera*—of low persons; *kūrpara*—an instrument.

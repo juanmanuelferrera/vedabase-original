@@ -1,9 +1,9 @@
 ### CC Adi 17.36
 
-> কীর্তন শুনি’ বাহিরে তারা জ্বলি’ পুড়ি’ মরে ।
+> কীর্তন শুনি’ বাহিরে তারা জ্বলি’ পুড়ি’ মরে ।\
 > শ্রীবাসেরে দুঃখ দিতে নানা যুক্তি করে ॥৩৬॥
 
-> kīrtana śuni' bāhire tārā jvali' puḍi' mare
+> kīrtana śuni' bāhire tārā jvali' puḍi' mare\
 > śrīvāsere duḥkha dite nānā yukti kare
 
 *kīrtana śuni'*—al escuchar el canto; *bāhire*—afuera; *tārā*—los incrédulos; *jvali'*—ardiendo; *puḍi'*—hasta las cenizas; *mare*—mueren; *śrīvāsere*—a Śrīvāsa Ṭhākura; *duḥkha*—problemas; *dite*—para causar; *nānā*—diversos; *yukti*—planes; *kare*—hacen.

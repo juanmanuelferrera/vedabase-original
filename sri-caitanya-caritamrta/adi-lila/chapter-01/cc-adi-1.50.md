@@ -2,7 +2,7 @@
 
 > যথা ব্রহ্মণে ভগবান্ স্বয়মুপদিশ্যানুভাবিতবান্ ॥৫০॥
 
-> yathā brahmaṇe bhagavān
+> yathā brahmaṇe bhagavān\
 > svayam upadiśyānubhāvitavān
 
 *yathā*—just as; *brahmaṇe*—unto Lord Brahmā; *bhagavān*—the Supreme Lord; *svayam*—Himself; *upadiśya*—having instructed; *anubhāvitavān*—caused to perceive.

@@ -1,11 +1,11 @@
 ### SB 3.9.36
 
-> ज्ञातोऽहं भवता त्वद्य दुर्विज्ञेयोऽपि देहिनाम् ।
+> ज्ञातोऽहं भवता त्वद्य दुर्विज्ञेयोऽपि देहिनाम् ।\
 > यन्मां त्वं मन्यसेऽयुक्तं भूतेन्द्रियगुणात्मभिः ॥३६॥
 
-> jñāto 'haṁ bhavatā tv adya
-> durvijñeyo 'pi dehinām
-> yan māṁ tvaṁ manyase 'yuktaṁ
+> jñāto 'haṁ bhavatā tv adya\
+> durvijñeyo 'pi dehinām\
+> yan māṁ tvaṁ manyase 'yuktaṁ\
 > bhūtendriya-guṇātmabhiḥ
 
 *jñātaḥ*—conocido; *aham*—Yo; *bhavatā*—por ti; *tu*—pero; *adya*—hoy; *duḥ*—difícil; *vijñeyaḥ*—ser conocido; *api*—a pesar de; *dehinām*—para el alma condicionada; *yat*—porque; *mām*—a Mí; *tvam*—tú; *manyase*—entiendes; *ayuktam*—sin estar hecho de; *bhūta*—elementos materiales; *indriya*—sentidos materiales; *guṇa*—modalidades materiales; *ātmabhiḥ*—y ego falso como el alma condicionada.

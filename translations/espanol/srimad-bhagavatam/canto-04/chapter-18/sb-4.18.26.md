@@ -1,11 +1,11 @@
 ### SB 4.18.26
 
-> सर्वे स्वमुख्यवत्सेन स्वे स्वे पात्रे पृथक्पयः ।
+> सर्वे स्वमुख्यवत्सेन स्वे स्वे पात्रे पृथक्पयः ।\
 > सर्वकामदुघां पृथ्वीं दुदुहुः पृथुभाविताम् ॥२६॥
 
-> sarve sva-mukhya-vatsena
-> sve sve pātre pṛthak payaḥ
-> sarva-kāma-dughāṁ pṛthvīṁ
+> sarve sva-mukhya-vatsena\
+> sve sve pātre pṛthak payaḥ\
+> sarva-kāma-dughāṁ pṛthvīṁ\
 > duduhuḥ pṛthu-bhāvitām
 
 *sarve*—todos; *sva-mukhya*—con sus propios líderes; *vatsena*—como terneros; *sve sve*—en sus propias; *pātre*—vasijas; *pṛthak*—distinta; *payaḥ*—leche; *sarva-kāma*—todas las cosas deseadas; *dughām*—surtir como leche; *pṛthvīm*—el planeta Tierra; *duduhuḥ*—ordeñaron; *pṛthu-bhāvitām*—bajo el control del rey Pṛthu.

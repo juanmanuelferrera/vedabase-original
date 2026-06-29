@@ -1,9 +1,9 @@
 ### CC Antya 15.87
 
-> ভাবোদয়, ভাব-সন্ধি, ভাব-শাবল্য ।
+> ভাবোদয়, ভাব-সন্ধি, ভাব-শাবল্য ।\
 > ভাবে-ভাবে মহাযুদ্ধে সবার প্রাবল্য ॥৮৭॥
 
-> bhāvodaya, bhāva-sandhi, bhāva-śābalya
+> bhāvodaya, bhāva-sandhi, bhāva-śābalya\
 > bhāve-bhāve mahā-yuddhe sabāra prābalya
 
 *bhāva-udaya*—awakening of all the ecstatic symptoms; *bhāva-sandhi*—meeting of ecstatic symptoms; *bhāva-śābalya*—mixing of ecstatic symptoms; *bhāve-bhāve*—between one ecstasy and another; *mahā-yuddhe*—a great fight; *sabāra*—of all of them; *prābalya*—prominence.

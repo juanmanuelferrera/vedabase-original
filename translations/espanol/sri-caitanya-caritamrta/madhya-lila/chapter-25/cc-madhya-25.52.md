@@ -1,9 +1,9 @@
 ### CC Madhya 25.52
 
-> ‘পাতঞ্জল’ কহে, — ‘ঈশ্বর হয় স্বরূপ-জ্ঞান’ ।
+> ‘পাতঞ্জল’ কহে, — ‘ঈশ্বর হয় স্বরূপ-জ্ঞান’ ।\
 > বেদমতে কহে তাঁরে ‘স্বয়ংভগবান্’ ॥৫২॥
 
-> 'pātañjala' kahe,-'īśvara haya svarūpa-jñāna'
+> 'pātañjala' kahe,-'īśvara haya svarūpa-jñāna'\
 > veda-mate kahe tāṅre 'svayaṁ-bhagavān'
 
 *pātañjala kahe*—los filósofos pātañjalas dicen; *īśvara haya*—el Señor Supremo es; *svarūpa-jñāna*—autorrealización; *veda-mate*—según la versión Védica; *kahe*—dicen; *tāṅre*—a Él; *svayam-bhagavān*—la Suprema Personalidad de Dios.

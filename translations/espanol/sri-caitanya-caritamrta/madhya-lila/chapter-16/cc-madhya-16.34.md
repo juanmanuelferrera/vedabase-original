@@ -1,9 +1,9 @@
 ### CC Madhya 16.34
 
-> সেই কথা সবার মধ্যে কহে নিত্যানন্দ ।
+> সেই কথা সবার মধ্যে কহে নিত্যানন্দ ।\
 > শুনিয়া বৈষ্ণব-মনে বাড়িল আনন্দ ॥৩৪॥
 
-> sei kathā sabāra madhye kahe nityānanda
+> sei kathā sabāra madhye kahe nityānanda\
 > śuniyā vaiṣṇava-mane bāḍila ānanda
 
 *sei kathā*—ese relato; *sabāra madhye*—entre todos ellos; *kahe*—narra; *nityānanda*—el Señor Nityānanda Prabhu; *śuniyā*—al oír; *vaiṣṇava-mane*—en las mentes de todos los vaiṣṇavas; *bāḍila*—aumentó; *ānanda*—la bienaventuranza trascendental.

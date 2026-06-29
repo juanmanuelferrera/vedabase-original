@@ -1,9 +1,9 @@
 ### CC Adi 17.99
 
-> আর দিন শিবভক্ত শিবগুণ গায় ।
+> আর দিন শিবভক্ত শিবগুণ গায় ।\
 > প্রভুর অঙ্গনে নাচে, ডমরু বাজায় ॥৯৯॥
 
-> āra dina śiva-bhakta śiva-guṇa gāya
+> āra dina śiva-bhakta śiva-guṇa gāya\
 > prabhura aṅgane nāce, ḍamaru bājāya
 
 *āra dina*—otro día; *śiva-bhakta*—un devoto del Señor Śiva; *śiva-guṇa*—las cualidades del Señor Śiva; *gāya*—canta; *prabhura*—del Señor Caitanya; *aṅgane*—en el patio; *nāce*—danza; *ḍamaru*—una clase de instrumento musical; *bājāya*—toca.

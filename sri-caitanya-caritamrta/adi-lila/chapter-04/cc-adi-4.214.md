@@ -1,9 +1,9 @@
 ### CC Adi 4.214
 
-> সেই গোপীগণ-মধ্যে উত্তমা রাধিকা ।
+> সেই গোপীগণ-মধ্যে উত্তমা রাধিকা ।\
 > রূপে, গুণে, সৌভাগ্যে, প্রেমে সর্বাধিকা ॥২১৪॥
 
-> sei gopī-gaṇa-madhye uttamā rādhikā
+> sei gopī-gaṇa-madhye uttamā rādhikā\
 > rūpe, guṇe, saubhāgye, preme sarvādhikā
 
 *sei*—those; *gopī-gaṇa*—the *gopīs*; *madhye*—among; *uttamā*—the highest; *rādhikā*—Śrīmatī Rādhārāṇī; *rūpe*—in beauty; *guṇe*—in qualities; *saubhāgye*—in good fortune; *preme*—in love; *sarva-adhikā*—above all.

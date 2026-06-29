@@ -1,9 +1,9 @@
 ### CC Adi 5.151
 
-> নিষেধ করিতে নারে, যাতে ছোট ভাই ।
+> নিষেধ করিতে নারে, যাতে ছোট ভাই ।\
 > মৌন ধরি’ রহে লক্ষ্মণ মনে দুঃখ পাই’ ॥১৫১॥
 
-> niṣedha karite nāre, yāte choṭa bhāi
+> niṣedha karite nāre, yāte choṭa bhāi\
 > mauna dhari' rahe lakṣmaṇa mane duḥkha pāi'
 
 *niṣedha karite nāre*—incapaz de disuadir al Señor Rāmacandra; *yāte*—porque; *choṭa bhāi*—hermano menor; *mauna dhari'*—guardando silencio; *rahe*—permanece; *lakṣmaṇa*—Lakṣmaṇa; *mane*—en la mente; *duḥkha*—infelicidad; *pāi'*—sintiendo.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.262
 
-> বিদ্যা-ভক্তি-বুদ্ধি-বলে পরম প্রবীণ ।
+> বিদ্যা-ভক্তি-বুদ্ধি-বলে পরম প্রবীণ ।\
 > তবু আপনাকে মানে তৃণ হৈতে হীন ॥২৬২॥
 
-> vidyā-bhakti-buddhi-bale parama pravīṇa
+> vidyā-bhakti-buddhi-bale parama pravīṇa\
 > tabu āpanāke māne tṛṇa haite hīna
 
 *vidyā*—educación; *bhakti*—devoción; *buddhi*—e inteligencia; *bale*—en fortaleza; *parama*—sumamente; *pravīṇa*—experimentados; *tabu*—sin embargo; *āpanāke*—a sí mismos; *māne*—se consideran; *tṛṇa*—una brizna de paja; *haite*—que; *hīna*—inferiores.

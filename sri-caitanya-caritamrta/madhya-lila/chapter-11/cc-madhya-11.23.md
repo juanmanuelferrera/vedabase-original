@@ -2,7 +2,7 @@
 
 > আমি — ছার, যোগ্য নহি তাঁর দরশনে । তাঁরে যেই ভজে তাঁর সফল জীবনে । পরম কৃপালু তেঁহ ব্রজেন্দ্রনন্দন । কোন-জন্মে মোরে অবশ্য দিবেন দরশন ॥২৩॥
 
-> āmi-chāra, yogya nahi tāṅra daraśane
+> āmi-chāra, yogya nahi tāṅra daraśane\
 > tāṅre yei bhaje tāṅra saphala jīvane
 
 *āmi*—I; *chāra*—very much fallen; *yogya*—fit; *nahi*—not; *tāṅra*—His; *daraśane*—for interviewing; *tāṅre*—Him; *yei*—anyone who; *bhaje*—worships; *tāṅra*—his; *saphala*—successful; *jīvane*—life.

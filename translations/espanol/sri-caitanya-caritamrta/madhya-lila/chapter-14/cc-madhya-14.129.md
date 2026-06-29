@@ -1,9 +1,9 @@
 ### CC Madhya 14.129
 
-> ছত্র-চামর-ধ্বজা পতাকার গণ  ।
+> ছত্র-চামর-ধ্বজা পতাকার গণ  ।\
 > নানাবাদ্য-আগে নাচে দেবদাসীগণ ॥১২৯॥
 
-> chatra-cāmara-dhvajā patākāra gaṇa
+> chatra-cāmara-dhvajā patākāra gaṇa\
 > nānā-vādya-āge nāce deva-dāsī-gaṇa
 
 *chatra*—de sombrillas; *cāmara*—y abanicos; *dhvajā*—y banderas; *patākāra*—y grandes estandartes; *gaṇa*—conjunto; *nānā-vādya*—diversos grupos musicales; *āge*—al frente; *nāce*—danzan; *deva-dāsī-gaṇa*—las bailarinas.

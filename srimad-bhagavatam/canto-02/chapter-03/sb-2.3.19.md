@@ -1,11 +1,11 @@
 ### SB 2.3.19
 
-> श्वविड्वराहोष्ट्रखरैः संस्तुतः पुरुषः पशुः ।
+> श्वविड्वराहोष्ट्रखरैः संस्तुतः पुरुषः पशुः ।\
 > न यत्कर्णपथोपेतो जातु नाम गदाग्रजः ॥१९॥
 
-> śva-viḍ-varāhoṣṭra-kharaiḥ
-> saṁstutaḥ puruṣaḥ paśuḥ
-> na yat-karṇa-pathopeto
+> śva-viḍ-varāhoṣṭra-kharaiḥ\
+> saṁstutaḥ puruṣaḥ paśuḥ\
+> na yat-karṇa-pathopeto\
 > jātu nāma gadāgrajaḥ
 
 *śva*—a dog; *viṭ-varāha*—the village hog who eats stool; *uṣṭra*—the camel; *kharaiḥ*—and by the asses; *saṁstutaḥ*—perfectly praised; *puruṣaḥ*—a person; *paśuḥ*—animal; *na*—never; *yat*—of him; *karṇa*—ear; *patha*—path; *upetaḥ*—reached; *jātu*—at any time; *nāma*—the holy name; *gadāgrajaḥ*—Lord Kṛṣṇa, the deliver from all evils.

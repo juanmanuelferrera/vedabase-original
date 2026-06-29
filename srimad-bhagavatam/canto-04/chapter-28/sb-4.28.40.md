@@ -1,11 +1,11 @@
 ### SB 4.28.40
 
-> स व्यापकतयात्मानं व्यतिरिक्ततयात्मनि ।
+> स व्यापकतयात्मानं व्यतिरिक्ततयात्मनि ।\
 > विद्वान्स्वप्न इवामर्श साक्षिणं विरराम ह ॥४०॥
 
-> sa vyāpakatayātmānaṁ
-> vyatiriktatayātmani
-> vidvān svapna ivāmarśa-
+> sa vyāpakatayātmānaṁ\
+> vyatiriktatayātmani\
+> vidvān svapna ivāmarśa-\
 > sākṣiṇaṁ virarāma ha
 
 *saḥ*—King Malayadhvaja; *vyāpakatayā*—by all-pervasiveness; *ātmānam*—the Supersoul; *vyatiriktatayā*—by differentiation; *ātmani*—in his own self; *vidvān*—perfectly educated; *svapne*—in a dream; *iva*—like; *amarśa*—of deliberation; *sākṣiṇam*—the witness; *virarāma*—became indifferent; *ha*—certainly.

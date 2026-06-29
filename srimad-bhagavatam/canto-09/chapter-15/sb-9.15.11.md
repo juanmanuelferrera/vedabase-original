@@ -1,11 +1,11 @@
 ### SB 9.15.11
 
-> प्रसादितः सत्यवत्या मैवं भूरिति भार्गवः
+> प्रसादितः सत्यवत्या मैवं भूरिति भार्गवः\
 > अथ तर्हि भवेत्पौत्रोजमदग्निस्ततोऽभवत ॥११॥
 
-> prasāditaḥ satyavatyā
-> maivaṁ bhūr iti bhārgavaḥ
-> atha tarhi bhavet pautro
+> prasāditaḥ satyavatyā\
+> maivaṁ bhūr iti bhārgavaḥ\
+> atha tarhi bhavet pautro\
 > jamadagnis tato 'bhavat
 
 *prasāditaḥ*—pacified; *satyavatyā*—by Satyavatī; *mā*—not; *evam*—thus; *bhūḥ*—let it be; *iti*—thus; *bhārgavaḥ*—the great sage; *atha*—if your son should not become like that; *tarhi*—then; *bhavet*—should become like that; *pautraḥ*—the grandson; *jamadagniḥ*—Jamadagni; *tataḥ*—thereafter; *abhavat*—was born.

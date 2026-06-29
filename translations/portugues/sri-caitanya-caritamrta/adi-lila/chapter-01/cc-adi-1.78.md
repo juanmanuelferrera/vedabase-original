@@ -1,6 +1,6 @@
 ### CC Adi 1.78
 
-> yaiche baladeva, paravyome nārāyaṇa
+> yaiche baladeva, paravyome nārāyaṇa\
 > yaiche vāsudeva pradyumnādi saṅkarṣaṇa
 
 *yaiche*—assim como; *baladeva*—Baladeva; *para-vyome*—no céu espiritual; *nārāyaṇa*—o Senhor Nārāyaṇa; *yaiche*—assim como; *vāsudeva*—Vāsudeva; *pradyumna-ādi*—Pradyumna, etc.; *saṅkarṣaṇa*—Saṅkarṣaṇa.

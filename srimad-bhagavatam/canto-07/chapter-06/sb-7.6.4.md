@@ -1,11 +1,11 @@
 ### SB 7.6.4
 
-> तत्प्रयासो न कर्तव्यो यत आयुर्व्ययः परम
+> तत्प्रयासो न कर्तव्यो यत आयुर्व्ययः परम\
 > न तथा विन्दते क्षेमं मुकुन्दचरणाम्बुजम ॥४॥
 
-> tat-prayāso na kartavyo
-> yata āyur-vyayaḥ param
-> na tathā vindate kṣemaṁ
+> tat-prayāso na kartavyo\
+> yata āyur-vyayaḥ param\
+> na tathā vindate kṣemaṁ\
 > mukunda-caraṇāmbujam
 
 *tat*—for that (sense gratification and economic development); *prayāsaḥ*—endeavor; *na*—not; *kartavyaḥ*—to be done; *yataḥ*—from which; *āyuḥ-vyayaḥ*—waste of the duration of life; *param*—only or ultimately; *na*—nor; *tathā*—in that way; *vindate*—enjoys; *kṣemam*—the ultimate goal of life; *mukunda*—of the Supreme Personality of Godhead, who can deliver one from the material clutches; *caraṇa-ambujam*—the lotus feet.

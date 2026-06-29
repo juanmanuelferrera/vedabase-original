@@ -1,9 +1,9 @@
 ### CC Antya 3.52
 
-> হরিদাস কহে, — “প্রভু, চিন্তা না করিহ ।
+> হরিদাস কহে, — “প্রভু, চিন্তা না করিহ ।\
 > যবনের সংসার দেখি’ দুঃখ না ভাবিহ ॥৫২॥
 
-> haridāsa kahe,--"prabhu, cintā nā kariha
+> haridāsa kahe,--"prabhu, cintā nā kariha\
 > yavanera saṁsāra dekhi' duḥkha nā bhāviha
 
 *haridāsa kahe*—Haridāsa respondió; *prabhu*—mi querido Señor; *cintā nā kariha*—no Te preocupes; *yavanera saṁsāra*—la condición material de los *yavanas*; *dekhi'*—al ver; *duḥkha nā bhāviha*—no estés triste.

@@ -1,13 +1,13 @@
 ### SB 3.28.26
 
-> वक्षोऽधिवासमृषभस्य महाविभूतेः
-> पुंसां मनोनयननिर्वृतिमादधानम् ।
-> कण्ठं च कौस्तुभमणेरधिभूषणार्थं
+> वक्षोऽधिवासमृषभस्य महाविभूतेः\
+> पुंसां मनोनयननिर्वृतिमादधानम् ।\
+> कण्ठं च कौस्तुभमणेरधिभूषणार्थं\
 > कुर्यान्मनस्यखिललोकनमस्कृतस्य ॥२६॥
 
-> vakṣo 'dhivāsam ṛṣabhasya mahā-vibhūteḥ
-> puṁsāṁ mano-nayana-nirvṛtim ādadhānam
-> kaṇṭhaṁ ca kaustubha-maṇer adhibhūṣaṇārthaṁ
+> vakṣo 'dhivāsam ṛṣabhasya mahā-vibhūteḥ\
+> puṁsāṁ mano-nayana-nirvṛtim ādadhānam\
+> kaṇṭhaṁ ca kaustubha-maṇer adhibhūṣaṇārthaṁ\
 > kuryān manasy akhila-loka-namaskṛtasya
 
 *vakṣaḥ*—el pecho; *adhivāsam*—la morada; *ṛṣabhasya*—de la Suprema Personalidad de Dios; *mahā-vibhūteḥ*—de Mahā-Lakṣmī; *puṁsām*—de personas; *manaḥ*—a la mente; *nayana*—a los ojos; *nirvṛtim*—placer trascendental; *ādadhānam*—concediendo; *kaṇṭham*—el cuello; *ca*—también; *kaustubha-maṇeḥ*—de la joya Kaustubha; *adhibhūṣaṇa-artham*—que realza la belleza; *kuryāt*—debe meditar en; *manasi*—en la mente; *akhila-loka*—el universo entero; *namaskṛtasya*—a quien adora.

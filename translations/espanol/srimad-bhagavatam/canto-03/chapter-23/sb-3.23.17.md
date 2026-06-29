@@ -1,11 +1,11 @@
 ### SB 3.23.17
 
-> तत्र तत्र विनिक्षिप्त नानाशिल्पोपशोभितम् ।
+> तत्र तत्र विनिक्षिप्त नानाशिल्पोपशोभितम् ।\
 > महामरकतस्थल्या जुष्टं विद्रुमवेदिभिः ॥१७॥
 
-> tatra tatra vinikṣipta-
-> nānā-śilpopaśobhitam
-> mahā-marakata-sthalyā
+> tatra tatra vinikṣipta-\
+> nānā-śilpopaśobhitam\
+> mahā-marakata-sthalyā\
 > juṣṭaṁ vidruma-vedibhiḥ
 
 *tatra tatra*—aquí y allá; *vinikṣipta*—puestos; *nānā*—diversos; *śilpa*—con grabados artísticos; *upaśobhitam*—extraordinariamente hermosos; *mahā-marakata*—de grandes esmeraldas; *sthalyā*—con un piso; *juṣṭam*—amueblado; *vidruma*—de coral; *vedibhiḥ*—con plataformas elevadas (estrados).

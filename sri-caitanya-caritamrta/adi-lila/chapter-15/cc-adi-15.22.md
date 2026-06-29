@@ -1,9 +1,9 @@
 ### CC Adi 15.22
 
-> এই মত নানা লীলা করে গৌরহরি ।
+> এই মত নানা লীলা করে গৌরহরি ।\
 > কি কারণে লীলা, — ইহা বুঝিতে না পারি ॥২২॥
 
-> ei mata nānā līlā kare gaurahari
+> ei mata nānā līlā kare gaurahari\
 > ki kāraṇe līlā,—ihā bujhite nā pāri
 
 *ei mata*—in this way; *nānā*—various; *līlā*—pastimes; *kare*—does; *gaurahari*—Śrī Caitanya Mahāprabhu; *ki kāraṇe*—what is the reason; *līlā*—pastimes; *ihā*—this; *bujhite*—to understand; *nā*—not; *pāri*—I am able.

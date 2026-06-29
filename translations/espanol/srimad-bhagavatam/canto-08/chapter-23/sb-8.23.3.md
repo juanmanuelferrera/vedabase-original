@@ -1,13 +1,13 @@
 ### SB 8.23.3
 
-> श्रीशुक उवाच
-> इत्युक्त्वा हरिमानत्य ब्रह्माणं सभवं ततः
+> श्रीशुक उवाच\
+> इत्युक्त्वा हरिमानत्य ब्रह्माणं सभवं ततः\
 > विवेश सुतलं प्रीतो बलिर्मुक्तः सहासुरैः ॥३॥
 
-> śrī-śuka uvāca
-> ity uktvā harim ānatya
-> brahmāṇaṁ sabhavaṁ tataḥ
-> viveśa sutalaṁ prīto
+> śrī-śuka uvāca\
+> ity uktvā harim ānatya\
+> brahmāṇaṁ sabhavaṁ tataḥ\
+> viveśa sutalaṁ prīto\
 > balir muktaḥ sahāsuraiḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *iti uktvā*—diciendo esto; *harim*—a la Suprema Personalidad de Dios, Hari; *ānatya*—ofrecer reverencias; *brahmāṇam*—al Señor Brahmā; *sa-bhavam*—con el Señor Śiva; *tataḥ*—a continuación; *viveśa*—entró; *sutalam*—en el planeta Sutala; *prītaḥ*—completamente satisfecho; *baliḥ*—Bali Mahārāja; *muktaḥ*—así liberado; *saha asuraiḥ*—con su séquito de *asuras*.

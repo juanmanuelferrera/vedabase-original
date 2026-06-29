@@ -1,9 +1,9 @@
 ### CC Adi 7.121
 
-> ব্যাসের সূত্রেতে কহে ‘পরিণাম’-বাদ ।
+> ব্যাসের সূত্রেতে কহে ‘পরিণাম’-বাদ ।\
 > ‘ব্যাস ভ্রান্ত’ — বলি’ তার উঠাইল বিবাদ ॥১২১॥
 
-> vyāsera sūtrete kahe 'pariṇāma'-vāda
+> vyāsera sūtrete kahe 'pariṇāma'-vāda\
 > 'vyāsa bhrānta'--bali' tāra uṭhāila vivāda
 
 *vyāsera*—de Śrīla Vyāsadeva; *sūtrete*—en los aforismos; *kahe*—describe; *pariṇāma*—transformación; *vāda*—filosofía; *vyāsa*—Śrīla Vyāsadeva; *bhrānta*—equivocado; *bali'*—acusándole; *tāra*—su; *uṭhāila*—levantó; *vivāda*—oposición.

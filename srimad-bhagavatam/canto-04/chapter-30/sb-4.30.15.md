@@ -1,11 +1,11 @@
 ### SB 4.30.15
 
-> प्रजाविसर्ग आदिष्टाः पित्रा मामनुवर्तता ।
+> प्रजाविसर्ग आदिष्टाः पित्रा मामनुवर्तता ।\
 > तत्र कन्यां वरारोहां तामुद्वहत मा चिरम् ॥१५॥
 
-> prajā-visarga ādiṣṭāḥ
-> pitrā mām anuvartatā
-> tatra kanyāṁ varārohāṁ
+> prajā-visarga ādiṣṭāḥ\
+> pitrā mām anuvartatā\
+> tatra kanyāṁ varārohāṁ\
 > tām udvahata mā ciram
 
 *prajā-visarge*—to create progeny; *ādiṣṭāḥ*—being ordered; *pitrā*—by your father; *mām*—My direction; *anuvartatā*—following; *tatra*—there; *kanyām*—the daughter; *vara-ārohām*—highly qualified and exquisitely beautiful; *tām*—her; *udvahata*—marry; *mā*—without; *ciram*—wasting time.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.205
 
-> পক্ষদিন দুঃখী লোক প্রভুর অদর্শনে ।
+> পক্ষদিন দুঃখী লোক প্রভুর অদর্শনে ।\
 > দর্শন করিয়া লোক সুখ পাইল মনে ॥২০৫॥
 
-> pakṣa-dina duḥkhī loka prabhura adarśane
+> pakṣa-dina duḥkhī loka prabhura adarśane\
 > darśana kariyā loka sukha pāila mane
 
 *pakṣa-dina*—durante una quincena; *duḥkhī*—infelices; *loka*—los devotos; *prabhura*—del Señor Jagannātha; *adarśane*—sin poder contemplar; *darśana kariyā*—al contemplar; *loka*—todos los devotos; *sukha*—felicidad; *pāila*—obtuvieron; *mane*—en la mente.

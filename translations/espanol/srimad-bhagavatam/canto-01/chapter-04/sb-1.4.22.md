@@ -1,11 +1,11 @@
 ### SB 1.4.22
 
-> अथर्वाङ्गिरसामासीत्सुमन्तुर्दारुणो मुनिः ।
+> अथर्वाङ्गिरसामासीत्सुमन्तुर्दारुणो मुनिः ।\
 > इतिहासपुराणानां पिता मे रोमहर्षणः ॥२२॥
 
-> atharvāṅgirasām āsīt
-> sumantur dāruṇo muniḥ
-> itihāsa-purāṇānāṁ
+> atharvāṅgirasām āsīt\
+> sumantur dāruṇo muniḥ\
+> itihāsa-purāṇānāṁ\
 > pitā me romaharṣaṇaḥ
 
 *atharva*—el *Atharva Veda*; *aṅgirasām*—al *ṛṣi* Aṅgirā; *āsīt*—le fue confiado; *sumantuḥ*—también conocido como Sumantu Muni; *dāruṇaḥ*—consagrado con seriedad al *Atharva Veda*; *muniḥ*—el sabio; *itihāsa-purāṇānām*—de los registros históricos y de los *Purāṇas*; *pitā*—padre; *me*—mío; *romaharṣaṇaḥ*—el *ṛṣi* Romaharṣaṇa.

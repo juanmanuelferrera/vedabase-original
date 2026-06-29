@@ -1,11 +1,11 @@
 ### CC Adi 1.55
 
-> যথা মহান্তি ভূতানি ভূতেষূচ্চাবচেষ্বনু ।
+> যথা মহান্তি ভূতানি ভূতেষূচ্চাবচেষ্বনু ।\
 > প্রবিষ্টান্যপ্রবিষ্টানি তথা তেষু ন তেষ্বহম্ ॥৫৫॥
 
-> yathā mahānti bhūtāni
-> bhūteṣūccāvaceṣv anu
-> praviṣṭāny apraviṣṭāni
+> yathā mahānti bhūtāni\
+> bhūteṣūccāvaceṣv anu\
+> praviṣṭāny apraviṣṭāni\
 > tathā teṣu na teṣv aham
 
 *yathā*—as; *mahānti*—the universal; *bhūtāni*—elements; *bhūteṣu*—in the living entities; *ucca-avaceṣu*—both gigantic and minute; *anu*—after; *praviṣṭāni*—situated internally; *apraviṣṭāni*—situated externally; *tathā*—so; *teṣu*—in them; *na*—not; *teṣu*—in them; *aham*—I.

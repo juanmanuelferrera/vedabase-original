@@ -1,9 +1,9 @@
 ### CC Adi 10.145
 
-> কৃষ্ণদাস নাম শুদ্ধ কুলীন ব্রাহ্মণ ।
+> কৃষ্ণদাস নাম শুদ্ধ কুলীন ব্রাহ্মণ ।\
 > যারে সঙ্গে লৈয়া কৈলা দক্ষিণ গমন ॥১৪৫॥
 
-> kṛṣṇadāsa nāma śuddha kulīna brāhmaṇa
+> kṛṣṇadāsa nāma śuddha kulīna brāhmaṇa\
 > yāre saṅge laiyā kailā dakṣiṇa gamana
 
 *kṛṣṇadāsa*—of the name Kṛṣṇadāsa; *nāma*—name; *śuddha*—pure; *kulīna*—respectable; *brāhmaṇa*—*brāhmaṇa*; *yāre*—whom; *saṅge*—with; *laiyā*—taking; *kailā*—did; *dakṣiṇa*—southern India; *gamana*—touring.

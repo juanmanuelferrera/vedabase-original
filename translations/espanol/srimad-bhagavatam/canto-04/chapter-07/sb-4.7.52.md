@@ -1,11 +1,11 @@
 ### SB 4.7.52
 
-> तस्मिन्ब्रह्मण्यद्वितीये केवले परमात्मनि ।
+> तस्मिन्ब्रह्मण्यद्वितीये केवले परमात्मनि ।\
 > ब्रह्मरुद्रौ च भूतानि भेदेनाज्ञोऽनुपश्यति ॥५२॥
 
-> tasmin brahmaṇy advitīye
-> kevale paramātmani
-> brahma-rudrau ca bhūtāni
+> tasmin brahmaṇy advitīye\
+> kevale paramātmani\
+> brahma-rudrau ca bhūtāni\
 > bhedenājño 'nupaśyati
 
 *tasmin*—Él; *brahmaṇi*—el Brahman Supremo; *advitīye*—sin par; *kevale*—siendo uno; *parama-ātmani*—la Superalma; *brahma-rudrau*—tanto Brahmā como Śiva; *ca*—y; *bhūtāni*—las entidades vivientes; *bhedena*—con separación; *ajñaḥ*—el que no está suficientemente versado; *anupaśyati*—cree.

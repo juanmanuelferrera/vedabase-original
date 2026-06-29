@@ -1,9 +1,9 @@
 ### CC Adi 2.80
 
-> ‘এতে’-শব্দে অবতারের আগে অনুবাদ ।
+> ‘এতে’-শব্দে অবতারের আগে অনুবাদ ।\
 > ‘পুরুষের অংশ’ পাছে বিধেয়-সংবাদ ॥৮০॥
 
-> 'ete'-śabde avatārera āge anuvāda
+> 'ete'-śabde avatārera āge anuvāda\
 > 'puruṣera aṁśa' pāche vidheya-saṁvāda
 
 *ete-śabde*—en la palabra *ete* (estos); *avatārera*—de las encarnaciones; *āge*—primero; *anuvāda*—el sujeto; *puruṣera*—de los *puruṣa-avatāras*; *aṁśa*—porciones plenarias; *pāche*—después; *vidheya*—del predicado; *saṁvāda*—mensaje.

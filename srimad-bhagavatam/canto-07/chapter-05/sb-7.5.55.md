@@ -1,11 +1,11 @@
 ### SB 7.5.55
 
-> अथ तान्श्लक्ष्णया वाचा प्रत्याहूय महाबुधः
+> अथ तान्श्लक्ष्णया वाचा प्रत्याहूय महाबुधः\
 > उवाच विद्वांस्तन्निष्ठां कृपया प्रहसन्निव ॥५५॥
 
-> atha tāñ ślakṣṇayā vācā
-> pratyāhūya mahā-budhaḥ
-> uvāca vidvāṁs tan-niṣṭhāṁ
+> atha tāñ ślakṣṇayā vācā\
+> pratyāhūya mahā-budhaḥ\
+> uvāca vidvāṁs tan-niṣṭhāṁ\
 > kṛpayā prahasann iva
 
 *atha*—then; *tān*—the class friends; *ślakṣṇayā*—with very pleasing; *vācā*—speech; *pratyāhūya*—addressing; *mahā-budhaḥ*—Prahlāda Mahārāja, who was highly learned and advanced in spiritual consciousness (*mahā* means "great," and *budha* means "learned"); *uvāca*—said; *vidvān*—very learned; *tat-niṣṭhām*—the path of God realization; *kṛpayā*—being merciful; *prahasan*—smiling; *iva*—like.

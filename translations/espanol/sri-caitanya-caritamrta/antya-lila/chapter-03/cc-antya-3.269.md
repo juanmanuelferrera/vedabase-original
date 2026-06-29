@@ -1,9 +1,9 @@
 ### CC Antya 3.269
 
-> স্বরূপ-গোসাঞি কড়চায় যে-লীলা লিখিল  ।
+> স্বরূপ-গোসাঞি কড়চায় যে-লীলা লিখিল  ।\
 > রঘুনাথদাস-মুখে যে সব শুনিল ॥২৬৯॥
 
-> svarūpa-gosāñi kaḍacāya ye-līlā likhila
+> svarūpa-gosāñi kaḍacāya ye-līlā likhila\
 > raghunātha-dāsa-mukhe ye saba śunila
 
 *svarūpa-gosāñi*—Svarūpa Dāmodara Gosvāmī; *kaḍacāya*—en sus notas; *ye*—cualesquiera; *līlā*—pasatiempos; *likhila*—ha anotado; *raghunātha-dāsa-mukhe*—de labios de Raghunātha dāsa Gosvāmī; *ye*—eso; *saba*—todo; *śunila*—he oído.

@@ -1,11 +1,11 @@
 ### SB 6.18.43
 
-> प्रतिश्रुतं ददामीति वचस्तन्न मृषा भवेत
+> प्रतिश्रुतं ददामीति वचस्तन्न मृषा भवेत\
 > वधं नार्हति चेन्द्रोऽपि तत्रेदमुपकल्पते ॥४३॥
 
-> pratiśrutaṁ dadāmīti
-> vacas tan na mṛṣā bhavet
-> vadhaṁ nārhati cendro 'pi
+> pratiśrutaṁ dadāmīti\
+> vacas tan na mṛṣā bhavet\
+> vadhaṁ nārhati cendro 'pi\
 > tatredam upakalpate
 
 *pratiśrutam*—prometido; *dadāmi*—daré; *iti*—así; *vacaḥ*—afirmación; *tat*—esa; *na*—no; *mṛṣā*—falsa; *bhavet*—puede ser; *vadham*—matar; *na*—no; *arhati*—es adecuado; *ca*—y; *indraḥ*—Indra; *api*—también; *tatra*—en relación con esto; *idam*—esto; *upakalpate*—es adecuado.

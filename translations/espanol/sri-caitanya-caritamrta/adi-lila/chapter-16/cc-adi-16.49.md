@@ -1,9 +1,9 @@
 ### CC Adi 16.49
 
-> তাতে ভাল করি’ শ্লোক করহ বিচার ।
+> তাতে ভাল করি’ শ্লোক করহ বিচার ।\
 > কবি কহে, — যে কহিলে সেই বেদসার ॥৪৯॥
 
-> tāte bhāla kari' śloka karaha vicāra
+> tāte bhāla kari' śloka karaha vicāra\
 > kavi kahe,--ye kahile sei veda-sāra
 
 *tāte*—por lo tanto; *bhāla*—muy cuidadosamente; *kari'*—haciéndolo; *śloka*—el verso; *karaha*—haz; *vicāra*—juicio; *kavi kahe*—el poeta dijo; *ye kahile*—lo que has dicho; *sei*—eso es; *veda-sāra*—completamente correcto.

@@ -1,13 +1,13 @@
 ### SB 3.15.21
 
-> श्री रूपिणी क्वणयती चरणारविन्दं
-> लीलाम्बुजेन हरिसद्मनि मुक्तदोषा ।
-> संलक्ष्यते स्फटिककुड्य उपेतहेम्नि
+> श्री रूपिणी क्वणयती चरणारविन्दं\
+> लीलाम्बुजेन हरिसद्मनि मुक्तदोषा ।\
+> संलक्ष्यते स्फटिककुड्य उपेतहेम्नि\
 > सम्मार्जतीव यदनुग्रहणेऽन्ययत्नः ॥२१॥
 
-> śrī rūpiṇī kvaṇayatī caraṇāravindaṁ
-> līlāmbujena hari-sadmani mukta-doṣā
-> saṁlakṣyate sphaṭika-kuḍya upeta-hemni
+> śrī rūpiṇī kvaṇayatī caraṇāravindaṁ\
+> līlāmbujena hari-sadmani mukta-doṣā\
+> saṁlakṣyate sphaṭika-kuḍya upeta-hemni\
 > sammārjatīva yad-anugrahaṇe 'nya-yatnaḥ
 
 *śrī*—Lakṣmī, the goddess of fortune; *rūpiṇī*—assuming a beautiful form; *kvaṇayatī*—tinkling; *caraṇa-aravindam*—lotus feet; *līlā-ambujena*—playing with a lotus flower; *hari-sadmani*—the house of the Supreme Personality; *mukta-doṣā*—freed from all faults; *saṁlakṣyate*—becomes visible; *sphaṭika*—crystal; *kuḍye*—walls; *upeta*—mixed; *hemni*—gold; *sammārjatī iva*—appearing like a sweeper; *yat-anugrahaṇe*—to receive her favor; *anya*—others'; *yatnaḥ*—very much careful.

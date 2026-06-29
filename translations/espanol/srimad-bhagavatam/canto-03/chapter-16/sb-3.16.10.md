@@ -1,13 +1,13 @@
 ### SB 3.16.10
 
-> ये मे तनूर्द्विजवरान्दुहतीर्मदीया
-> भूतान्यलब्धशरणानि च भेदबुद्ध्या ।
-> द्रक्ष्यन्त्यघक्षतदृशो ह्यहिमन्यवस्तान्
+> ये मे तनूर्द्विजवरान्दुहतीर्मदीया\
+> भूतान्यलब्धशरणानि च भेदबुद्ध्या ।\
+> द्रक्ष्यन्त्यघक्षतदृशो ह्यहिमन्यवस्तान्\
 > गृध्रा रुषा मम कुषन्त्यधिदण्डनेतुः ॥१०॥
 
-> ye me tanūr dvija-varān duhatīr madīyā
-> bhūtāny alabdha-śaraṇāni ca bheda-buddhyā
-> drakṣyanty agha-kṣata-dṛśo hy ahi-manyavas tān
+> ye me tanūr dvija-varān duhatīr madīyā\
+> bhūtāny alabdha-śaraṇāni ca bheda-buddhyā\
+> drakṣyanty agha-kṣata-dṛśo hy ahi-manyavas tān\
 > gṛdhrā ruṣā mama kuṣanty adhidaṇḍa-netuḥ
 
 *ye*—las personas que; *me*—Mi; *tanūḥ*—cuerpo; *dvija-varān*—los mejores de los *brāhmaṇas*; *duhatīḥ*—vacas; *madīyāḥ*—relacionados conmigo; *bhūtāni*—entidades vivientes; *alabdha-śaraṇāni*—indefensas; *ca*—y; *bheda-buddhyā*—considerando diferentes; *drakṣyanti*—ven; *agha*—por el pecado; *kṣata*—se ha debilitado; *dṛśaḥ*—cuya facultad de raciocinio; *hi*—por que; *ahi*—como una serpiente; *manyavaḥ*—furiosa; *tān*—a esas mismas personas; *gṛdhrāḥ*—los mensajeros semejantes a buitres; *ruṣā*—con ira; *mama*—Mío; *kuṣanti*—despedazan; *adhidaṇḍa-netuḥ*—del superintendente del castigo, Yamarāja.

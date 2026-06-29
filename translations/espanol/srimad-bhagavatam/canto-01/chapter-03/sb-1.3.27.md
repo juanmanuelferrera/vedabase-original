@@ -1,11 +1,11 @@
 ### SB 1.3.27
 
-> ऋषयो मनवो देवा मनुपुत्रा महौजसः ।
+> ऋषयो मनवो देवा मनुपुत्रा महौजसः ।\
 > कलाः सर्वे हरेरेव सप्रजापतयः स्मृताः ॥२७॥
 
-> ṛṣayo manavo devā
-> manu-putrā mahaujasaḥ
-> kalāḥ sarve harer eva
+> ṛṣayo manavo devā\
+> manu-putrā mahaujasaḥ\
+> kalāḥ sarve harer eva\
 > saprajāpatayaḥ smṛtāḥ
 
 *ṛṣayaḥ*—todos los sabios; *manavaḥ*—todos los *manus*; *devāḥ*—todos los semidioses; *manu-putrāḥ*—todos los descendientes de Manu; *mahā-ojasaḥ*—muy poderosos; *kalāḥ*—porción de la porción plenaria; *sarve*—todos colectivamente; *hareḥ*—del Señor; *eva*—indudablemente; *sa-prajāpatayaḥ*—junto con los *prajāpatis*; *smṛtāḥ*—se conocen.

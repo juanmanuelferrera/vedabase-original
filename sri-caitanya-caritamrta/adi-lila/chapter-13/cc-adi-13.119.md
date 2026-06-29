@@ -1,13 +1,13 @@
 ### CC Adi 13.119
 
-> ঐছে শচী-জগন্নাথ, পুত্র পাঞা লক্ষ্মীনাথ,
-> পূর্ণ হইল সকল বাঞ্ছিত ।
-> ধন-ধান্যে ভরে ঘর, লোকমান্য কলেবর,
+> ঐছে শচী-জগন্নাথ, পুত্র পাঞা লক্ষ্মীনাথ,\
+> পূর্ণ হইল সকল বাঞ্ছিত ।\
+> ধন-ধান্যে ভরে ঘর, লোকমান্য কলেবর,\
 > দিনে দিনে হয় আনন্দিত ॥১১৯॥
 
-> aiche śacī-jagannātha, putra pāñā lakṣmīnātha,
-> pūrṇa ha-ila sakala vāñchita
-> dhana-dhānye bhare ghara, lokamānya kalevara,
+> aiche śacī-jagannātha, putra pāñā lakṣmīnātha,\
+> pūrṇa ha-ila sakala vāñchita\
+> dhana-dhānye bhare ghara, lokamānya kalevara,\
 > dine dine haya ānandita
 
 *aiche*—in that way; *śacī-jagannātha*—mother Śacīdevī and Jagannātha Miśra; *putra*—son; *pāñā*—having obtained; *lakṣmī-nātha*—personally the husband of the goddess of fortune; *pūrṇa*—fulfilled; *ha-ila*—became; *sakala*—all; *vāñchita*—desires; *dhana-dhānye*—with riches and grains; *bhareghara*—the house filled up; *loka-mānyakalevara*—the body beloved by the people in general; *dinedine*—day after day; *haya*—becomes; *ānandita*—pleased.

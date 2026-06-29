@@ -1,9 +1,9 @@
 ### CC Antya 11.39
 
-> চরণে ধরি’ কহে হরিদাস, — “না করিহ ‘মায়া’ ।
+> চরণে ধরি’ কহে হরিদাস, — “না করিহ ‘মায়া’ ।\
 > অবশ্য মো-অধমে, প্রভু, কর এই ‘দয়া’ ॥৩৯॥
 
-> caraṇe dhari' kahe haridāsa,—"nā kariha 'māyā'
+> caraṇe dhari' kahe haridāsa,—"nā kariha 'māyā'\
 > avaśya mo-adhame, prabhu, kara ei 'dayā'
 
 *caraṇe*—the lotus feet; *dhari'*—catching; *kahe*—said; *haridāsa*—Haridāsa Ṭhākura; *nā kariha māyā*—do not create an illusion; *avaśya*—certainly; *mo-adhame*—unto me, who am so fallen; *prabhu*—my Lord; *kara ei dayā*—show this mercy.

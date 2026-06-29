@@ -1,11 +1,11 @@
 ### CC Adi 7.118
 
-> অপরেয়মিতস্ত্বন্যাং প্রকৃতিং বিদ্ধি মে পরাম্ ।
+> অপরেয়মিতস্ত্বন্যাং প্রকৃতিং বিদ্ধি মে পরাম্ ।\
 > জীবভূতাং মহাবাহো যয়েদং ধার্যতে জগৎ ॥১১৮॥
 
-> apareyam itas tv anyāṁ
-> prakṛtiṁ viddhi me parām
-> jīva-bhūtāṁ mahā-bāho
+> apareyam itas tv anyāṁ\
+> prakṛtiṁ viddhi me parām\
+> jīva-bhūtāṁ mahā-bāho\
 > yayedaṁ dhāryate jagat
 
 *aparā*—inferior energy; *iyam*—this material world; *itaḥ*—beyond this; *tu*—but; *anyām*—another; *prakṛtim*—energy; *viddhi*—you must know; *me*—of Me; *parām*—which is superior energy; *jīva-bhūtām*—they are the living entities; *mahā-bāho*—O mighty-armed; *yayā*—by which; *idam*—this material world; *dhāryate*—is being conducted; *jagat*—the cosmic manifestation.

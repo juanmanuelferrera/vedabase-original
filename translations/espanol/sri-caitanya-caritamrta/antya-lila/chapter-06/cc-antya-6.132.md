@@ -1,9 +1,9 @@
 ### CC Antya 6.132
 
-> অযোগ্য মুই নিবেদন করিতে করি ভয়  ।
+> অযোগ্য মুই নিবেদন করিতে করি ভয়  ।\
 > মোরে ‘চৈতন্য’ দেহ’ গোসাঞি হঞা সদয় ॥১৩২॥
 
-> ayogya mui nivedana karite kari bhaya
+> ayogya mui nivedana karite kari bhaya\
 > more 'caitanya' deha' gosāñi hañā sadaya
 
 *ayogya*—indigno; *mui*—yo; *nivedana karite*—de presentar mis deseos; *kari bhaya*—tengo miedo; *more*—a mí; *caitanya deha'*—concédeme bondadosamente el refugio del Señor Śrī Caitanya Mahāprabhu; *gosāñi*—¡oh, mi Señor!; *hañā sa-daya*—siendo misericordioso.

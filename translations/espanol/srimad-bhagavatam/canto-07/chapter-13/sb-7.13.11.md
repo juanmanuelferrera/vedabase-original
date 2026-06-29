@@ -1,11 +1,11 @@
 ### SB 7.13.11
 
-> अत्राप्युदाहरन्तीममितिहासं पुरातनम
+> अत्राप्युदाहरन्तीममितिहासं पुरातनम\
 > प्रह्रादस्य च संवादं मुनेराजगरस्य च ॥११॥
 
-> atrāpy udāharantīmam
-> itihāsaṁ purātanam
-> prahrādasya ca saṁvādaṁ
+> atrāpy udāharantīmam\
+> itihāsaṁ purātanam\
+> prahrādasya ca saṁvādaṁ\
 > muner ājagarasya ca
 
 *atra*—aquí; *api*—aunque no manifiestos para el ojo común; *udāharanti*—los sabios eruditos recitan como ejemplo; *imam*—este; *itihāsam*—episodio histórico; *purātanam*—muy antiguo; *prahrādasya*—de Prahlāda Mahārāja; *ca*—también; *saṁvādam*—la conversación; *muneḥ*—de la gran persona santa; *ājagarasya*—que adoptó la profesión de la serpiente pitón; *ca*—también.

@@ -1,9 +1,9 @@
 ### CC Adi 11.12
 
-> সেই বীরভদ্র-গোসাঞির লইনু শরণ ।
+> সেই বীরভদ্র-গোসাঞির লইনু শরণ ।\
 > যাঁহার প্রসাদে হয় অভীষ্ট-পূরণ ॥১২॥
 
-> sei vīrabhadra-gosāñira la-inu śaraṇa
+> sei vīrabhadra-gosāñira la-inu śaraṇa\
 > yāṅhāra prasāde haya abhīṣṭa-pūraṇa
 
 *sei*—ese; *vīrabhadra-gosāñira*—de Śrī Vīrabhadra Gosāñi; *la-inu*—tomo; *śaraṇa*—refugio; *yāṅhāra*—cuya; *prasāde*—por la misericordia; *haya*—se cumple; *abhīṣṭa-pūraṇa*—la satisfacción del deseo.

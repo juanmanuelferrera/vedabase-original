@@ -1,11 +1,11 @@
 ### SB 9.6.32
 
-> न ममार पिता तस्य विप्रदेवप्रसादतः
+> न ममार पिता तस्य विप्रदेवप्रसादतः\
 > युवनाश्वोऽथ तत्रैव तपसा सिद्धिमन्वगात ॥३२॥
 
-> na mamāra pitā tasya
-> vipra-deva-prasādataḥ
-> yuvanāśvo 'tha tatraiva
+> na mamāra pitā tasya\
+> vipra-deva-prasādataḥ\
+> yuvanāśvo 'tha tatraiva\
 > tapasā siddhim anvagāt
 
 *na*—not; *mamāra*—died; *pitā*—the father; *tasya*—of the baby; *vipra-deva-prasādataḥ*—because of the mercy and blessings of the *brāhmaṇas*; *yuvanāśvaḥ*—King Yuvanāśva; *atha*—thereafter; *tatra eva*—in that very place; *tapasā*—by executing austerity; *siddhim*—perfection; *anvagāt*—achieved.

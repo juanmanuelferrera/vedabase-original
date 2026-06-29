@@ -1,11 +1,11 @@
 ### SB 1.16.7
 
-> क्षुद्रायुषां नृणामङ्ग मर्त्यानामृतमिच्छताम् ।
+> क्षुद्रायुषां नृणामङ्ग मर्त्यानामृतमिच्छताम् ।\
 > इहोपहूतो भगवान्मृत्युः शामित्रकर्मणि ॥७॥
 
-> kṣudrāyuṣāṁ nṛṇām aṅga
-> martyānām ṛtam icchatām
-> ihopahūto bhagavān
+> kṣudrāyuṣāṁ nṛṇām aṅga\
+> martyānām ṛtam icchatām\
+> ihopahūto bhagavān\
 > mṛtyuḥ śāmitra-karmaṇi
 
 *kṣudra*—very small; *āyuṣām*—of the duration of life; *nṛṇām*—of the human beings; *aṅga*—O Sūta Gosvāmī; *martyānām*—of those who are sure to meet death; *ṛtam*—eternal life; *icchatām*—of those who desire it; *iha*—herein; *upahūtaḥ*—called for being present; *bhagavān*—representing the Lord; *mṛtyuḥ*—the controller of death, Yamarāja; *śāmitra*—suppressing; *karmaṇi*—performances.

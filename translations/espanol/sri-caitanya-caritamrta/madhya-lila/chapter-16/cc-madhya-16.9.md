@@ -1,9 +1,9 @@
 ### CC Madhya 16.9
 
-> কার্তিক আইলে কহে — এবে মহাশীত ।
+> কার্তিক আইলে কহে — এবে মহাশীত ।\
 > দোলযাত্রা দেখি’ যাও — এই ভাল রীত ॥৯॥
 
-> kārtika āile kahe--ebe mahā-śīta
+> kārtika āile kahe--ebe mahā-śīta\
 > dola-yātrā dekhi' yāo--ei bhāla rīta
 
 *kārtika āile*—cuando llegó el mes de Kārttika; *kahe*—ambos dijeron; *ebe*—ahora; *mahā-śīta*—mucho frío; *dola-yātrā dekhi'*—después de presenciar la ceremonia del Dola-yātrā; *yāo*—vayáis; *ei*—este; *bhāla rīta*—un programa muy acertado.

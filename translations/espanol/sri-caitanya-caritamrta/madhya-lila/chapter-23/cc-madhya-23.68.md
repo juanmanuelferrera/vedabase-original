@@ -1,11 +1,11 @@
 ### CC Madhya 23.68
 
-> দেবী কৃষ্ণময়ী প্রোক্তা রাধিকা পরদেবতা ।
+> দেবী কৃষ্ণময়ী প্রোক্তা রাধিকা পরদেবতা ।\
 > সর্বলক্ষ্মীময়ী সর্বকান্তিঃ সম্মোহিনী পরা ॥৬৮॥
 
-> devī kṛṣṇamayī proktā
-> rādhikā para-devatā
-> sarva-lakṣmīmayī sarva-
+> devī kṛṣṇamayī proktā\
+> rādhikā para-devatā\
+> sarva-lakṣmīmayī sarva-\
 > kāntiḥ sammohinī parā
 
 *devī*—quien brilla brillantemente; *kṛṣṇa-mayī*—no diferente del Señor Kṛṣṇa; *proktā*—llamada; *rādhikā*—Śrīmatī Rādhārāṇī; *para-devatā*—la más adorable; *sarva-lakṣmī-mayī*—que preside sobre todas las diosas de la fortuna; *sarva-kāntiḥ*—en quien existe todo el esplendor; *sammohinī*—cuyo carácter cautiva completamente al Señor Kṛṣṇa; *parā*—la energía superior.

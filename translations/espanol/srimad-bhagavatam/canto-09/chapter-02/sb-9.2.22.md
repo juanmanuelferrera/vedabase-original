@@ -1,11 +1,11 @@
 ### SB 9.2.22
 
-> ततो ब्रह्मकुलं जातमाग्निवेश्यायनं नृप
+> ततो ब्रह्मकुलं जातमाग्निवेश्यायनं नृप\
 > नरिष्यन्तान्वयः प्रोक्तो दिष्टवंशमतः शृणु ॥२२॥
 
-> tato brahma-kulaṁ jātam
-> āgniveśyāyanaṁ nṛpa
-> nariṣyantānvayaḥ prokto
+> tato brahma-kulaṁ jātam\
+> āgniveśyāyanaṁ nṛpa\
+> nariṣyantānvayaḥ prokto\
 > diṣṭa-vaṁśam ataḥ śṛṇu
 
 *tataḥ*—de Agniveśya; *brahma-kulam*—una dinastía de *brāhmaṇas*; *jātam*—se generó; *āgniveśyāyanam*—conocida con el nombre de Āgniveśyāyana; *nṛpa*—¡oh, rey Parīkṣit!; *nariṣyanta*—de Nariṣyanta; *anvayaḥ*—descendientes; *proktaḥ*—han sido explicados; *diṣṭa-vaṁśam*—la dinastía de Diṣṭa; *ataḥ*—a partir de ahora; *śṛṇu*—escucha.

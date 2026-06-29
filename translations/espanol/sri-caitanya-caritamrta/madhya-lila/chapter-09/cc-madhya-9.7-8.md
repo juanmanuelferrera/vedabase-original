@@ -1,12 +1,12 @@
 ### CC Madhya 9.7-8
 
-> pūrvavat pathe yāite ye pāya daraśana
+> pūrvavat pathe yāite ye pāya daraśana\
 > yei grāme yāya, se grāmera yata jana
 
-> pūrvavat pathe yāite ye pāya daraśana
+> pūrvavat pathe yāite ye pāya daraśana\
 > yei grāme yāya, se grāmera yata jana
 
-> sabei vaiṣṇava haya, kahe 'kṛṣṇa' 'hari'
+> sabei vaiṣṇava haya, kahe 'kṛṣṇa' 'hari'\
 > anya grāma nistāraye sei 'vaiṣṇava' kari'
 
 *pūrva-vat*—como antes se hizo; *pathe*—en el camino; *yāite*—mientras iba; *ye*—todo el que; *pāya*—obtiene; *daraśana*—audiencia; *yei*—en la cual; *grāme*—aldea; *yāya*—el Señor Śrī Caitanya Mahāprabhu va; *se*—esa; *grāmera*—de la aldea; *yata*—toda; *jana*—la gente; *sabei*—todos ellos; *vaiṣṇava haya*—se vuelven devotos; *kahe*—dicen; *kṛṣṇa hari*—los santos nombres del Señor Kṛṣṇa y Hari; *anya grāma*—a otras aldeas; *nistāraye*—entrega; *sei*—Él; *vaiṣṇava*—devotos; *kari’*—haciendo.

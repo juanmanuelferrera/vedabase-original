@@ -1,11 +1,11 @@
 ### SB 5.12.2
 
-> ज्वरामयार्तस्य यथागदं सत्निदाघदग्धस्य यथा हिमाम्भः
+> ज्वरामयार्तस्य यथागदं सत्निदाघदग्धस्य यथा हिमाम्भः\
 > कुदेहमानाहिविदष्टदृष्टेः ब्रह्मन्वचस्तेऽमृतमौषधं मे ॥२॥
 
-> jvarāmayārtasya yathāgadaṁ sat
-> nidāgha-dagdhasya yathā himāmbhaḥ
-> kudeha-mānāhi-vidaṣṭa-dṛṣṭeḥ
+> jvarāmayārtasya yathāgadaṁ sat\
+> nidāgha-dagdhasya yathā himāmbhaḥ\
+> kudeha-mānāhi-vidaṣṭa-dṛṣṭeḥ\
 > brahman vacas te 'mṛtam auṣadhaṁ me
 
 *jvara*—of a fever; *āmaya*—by the disease; *ārtasya*—of a distressed person; *yathā*—just as; *agadam*—the medicine; *sat*—right; *nidāgha-dagdhasya*—of one scorched by the heat of the sun; *yathā*—just as; *hima-ambhaḥ*—very cold water; *ku-deha*—in this body made of matter and full of dirty things such as stool and urine; *māna*—of pride; *ahi*—by the serpent; *vidaṣṭa*—bitten; *dṛṣṭeḥ*—of one whose vision; *brahman*—O best of the *brāhmaṇas*; *vacaḥ*—words; *te*—your; *amṛtam*—nectar; *auṣadham*—medicine; *me*—for me.

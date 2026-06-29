@@ -1,9 +1,9 @@
 ### CC Adi 12.70
 
-> চৈতন্য-রহিত দেহ — শুষ্ককাষ্ঠ-সম ।
+> চৈতন্য-রহিত দেহ — শুষ্ককাষ্ঠ-সম ।\
 > জীবিতেই মৃত সেই, মৈলে দণ্ডে যম ॥৭০॥
 
-> caitanya-rahita deha—śuṣkakāṣṭha-sama
+> caitanya-rahita deha—śuṣkakāṣṭha-sama\
 > jīvitei mṛta sei, maile daṇḍe yama
 
 *caitanya-rahita*—without consciousness; *deha*—body; *śuṣka-kāṣṭha-sama*—exactly like dry wood; *jīvitei*—while living; *mṛta*—dead; *sei*—that; *maile*—after death; *daṇḍe*—punishes; *yama*—Yamarāja.

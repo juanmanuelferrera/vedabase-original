@@ -1,11 +1,11 @@
 ### SB 8.14.6
 
-> पालयन्ति प्रजापाला यावदन्तं विभागशः
+> पालयन्ति प्रजापाला यावदन्तं विभागशः\
 > यज्ञअभागभुजो देवा ये च तत्रान्विताश्च तैः ॥६॥
 
-> pālayanti prajā-pālā
-> yāvad antaṁ vibhāgaśaḥ
-> yajña-bhāga-bhujo devā
+> pālayanti prajā-pālā\
+> yāvad antaṁ vibhāgaśaḥ\
+> yajña-bhāga-bhujo devā\
 > ye ca tatrānvitāś ca taiḥ
 
 *pālayanti*—cumplir la orden; *prajā-pālāḥ*—los dirigentes del mundo, es decir, los hijos y nietos del *manu*; *yāvat antam*—hasta el final del reinado del *manu*; *vibhāgaśaḥ*—en divisiones; *yajña-bhāga-bhujaḥ*—los disfrutadores del resultado de *yajñas*; *devāḥ*—los semidioses; *ye*—otros; *ca*—también; *tatra anvitāḥ*—dedicados a esa ocupación; *ca*—también; *taiḥ*—por ellos.

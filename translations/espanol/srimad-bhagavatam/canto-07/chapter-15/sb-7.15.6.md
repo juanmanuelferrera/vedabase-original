@@ -1,11 +1,11 @@
 ### SB 7.15.6
 
-> देवर्षिपितृभूतेभ्य आत्मने स्वजनाय च
+> देवर्षिपितृभूतेभ्य आत्मने स्वजनाय च\
 > अन्नं संविभजन्पश्येत्सर्वं तत्पुरुषात्मकम ॥६॥
 
-> devarṣi-pitṛ-bhūtebhya
-> ātmane sva-janāya ca
-> annaṁ saṁvibhajan paśyet
+> devarṣi-pitṛ-bhūtebhya\
+> ātmane sva-janāya ca\
+> annaṁ saṁvibhajan paśyet\
 > sarvaṁ tat puruṣātmakam
 
 *deva*—a los semidioses; *ṛṣi*—personas santas; *pitṛ*—antepasados; *bhūtebhyaḥ*—las entidades vivientes en general; *ātmane*—parientes; *sva-janāya*—miembros de la familia y amigos; *ca*—y; *annam*—alimento (*prasāda*); *saṁvibhajan*—ofrecer; *paśyet*—se debe ver; *sarvam*—a todos; *tat*—a ellos; *puruṣa-ātmakam*—en relación con la Suprema Personalidad de Dios.

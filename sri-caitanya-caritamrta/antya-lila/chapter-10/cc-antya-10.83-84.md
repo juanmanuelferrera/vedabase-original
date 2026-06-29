@@ -1,14 +1,14 @@
 ### CC Antya 10.83-84
 
-> সর্বকাল আছে এই সুদৃঢ় ‘নিয়ম’ ।
-> ‘প্রভু যদি প্রসাদ পাঞা করেন শয়ন ॥৮৩॥
-> গোবিন্দ আসিয়া করে পাদসম্বাহন ।
+> সর্বকাল আছে এই সুদৃঢ় ‘নিয়ম’ ।\
+> ‘প্রভু যদি প্রসাদ পাঞা করেন শয়ন ॥৮৩॥\
+> গোবিন্দ আসিয়া করে পাদসম্বাহন ।\
 > তবে যাই’ প্রভুর ‘শেষ’ করেন ভোজন ।।” ৮৪ ॥৮৪॥
 
-> sarva-kāla āche ei sudṛḍha 'niyama'
+> sarva-kāla āche ei sudṛḍha 'niyama'\
 > 'prabhu yadi prasāda pāñā karena śayana
 
-> govinda āsiyā kare pāda-samvāhana
+> govinda āsiyā kare pāda-samvāhana\
 > tabe yāi' prabhura 'śeṣa' karena bhojana'
 
 *sarva-kāla*—all the time; *āche*—there is; *ei*—this; *su-dṛḍha*—hard-and-fast; *niyama*—regulation; *prabhu*—Śrī Caitanya Mahāprabhu; *yadi*—when; *prasāda pāñā*—after taking His meals; *karena śayana*—lies down; *govinda*—Govinda; *āsiyā*—coming; *kare*—performs; *pāda-samvāhana*—massaging the legs; *tabe*—thereafter; *yāi'*—going; *prabhura*—of Śrī Caitanya Mahāprabhu; *śeṣa*—the remnants of food; *karena bhojana*—eats.

@@ -1,11 +1,11 @@
 ### SB 7.1.41
 
-> हिरण्यकशिपुः पुत्रं प्रह्लादं केशवप्रियम
+> हिरण्यकशिपुः पुत्रं प्रह्लादं केशवप्रियम\
 > जिघांसुरकरोन्नाना यातना मृत्युहेतवे ॥४१॥
 
-> hato hiraṇyakaśipur
-> hariṇā siṁha-rūpiṇā
-> hiraṇyākṣo dharoddhāre
+> hato hiraṇyakaśipur\
+> hariṇā siṁha-rūpiṇā\
+> hiraṇyākṣo dharoddhāre\
 > bibhratā śaukaraṁ vapuḥ
 
 *hataḥ*—killed; *hiraṇyakaśipuḥ*—Hiraṇyakaśipu; *hariṇā*—by Hari, Viṣṇu; *siṁha-rūpiṇā*—in the form of a lion (Lord Narasiṁha); *hiraṇyākṣaḥ*—Hiraṇyākṣa; *dharā-uddhāre*—to lift the earth; *bibhratā*—assuming; *śaukaram*—the boarlike; *vapuḥ*—form.

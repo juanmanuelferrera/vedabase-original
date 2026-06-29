@@ -1,13 +1,13 @@
 ### CC Madhya 15.170
 
-> যস্ত্বিন্দ্রগোপমথবেন্দ্রমহো স্বকর্ম-
-> বন্ধানুরূপফলভাজনমাতনোতি ।
-> কর্মাণি নির্দহতি কিন্তু চ ভক্তিভাজাং
+> যস্ত্বিন্দ্রগোপমথবেন্দ্রমহো স্বকর্ম-\
+> বন্ধানুরূপফলভাজনমাতনোতি ।\
+> কর্মাণি নির্দহতি কিন্তু চ ভক্তিভাজাং\
 > গোবিন্দমাদিপুরুষং তমহং ভজামি ॥১৭০॥
 
-> yas tv indra-gopam athavendram aho sva-karma-
-> bandhānurūpa-phala-bhājanam ātanoti
-> karmāṇi nirdahati kintu ca bhakti-bhājāṁ
+> yas tv indra-gopam athavendram aho sva-karma-\
+> bandhānurūpa-phala-bhājanam ātanoti\
+> karmāṇi nirdahati kintu ca bhakti-bhājāṁ\
 > govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 *yaḥ*—Él, quien (Govinda); *tu*—pero; *indra-gopam*—al pequeño insecto rojo llamado indra-gopa; *athavā*—o incluso; *indram*—a Indra, rey del cielo; *aho*—¡oh!; *sva-karma*—de las propias actividades fruitivas; *bandha*—esclavitud; *anurūpa*—de acuerdo con; *phala*—de las reacciones; *bhājanam*—disfrutar o sufrir; *ātanoti*—otorga; *karmāṇi*—todas las actividades fruitivas y sus reacciones; *nirdahati*—destruye; *kintu*—pero; *ca*—ciertamente; *bhakti-bhājām*—de las personas ocupadas en el servicio devocional; *govindam*—al Señor Govinda; *ādi-puruṣam*—la persona original; *tam*—a Él; *aham*—yo; *bhajāmi*—ofrezco mis reverencias.

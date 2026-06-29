@@ -1,11 +1,11 @@
 ### SB 6.12.10
 
-> यथा दारुमयी नारी यथा पत्रमयो मृगः
+> यथा दारुमयी नारी यथा पत्रमयो मृगः\
 > एवं भूतानि मघवन्नीशतन्त्राणि विद्धि भोः ॥१०॥
 
-> yathā dārumayī nārī
-> yathā patramayo mṛgaḥ
-> evaṁ bhūtāni maghavann
+> yathā dārumayī nārī\
+> yathā patramayo mṛgaḥ\
+> evaṁ bhūtāni maghavann\
 > īśa-tantrāṇi viddhi bhoḥ
 
 *yathā*—tal como; *dāru-mayī*—hecha de madera; *nārī*—una mujer; *yathā*—tal como; *patra-mayaḥ*—hecho de hojas; *mṛgaḥ*—un animal; *evam*—así; *bhūtāni*—todas las cosas; *maghavan*—¡oh, rey Indra!; *īśa*—la Suprema Personalidad de Dios; *tantrāṇi*—dependiendo de; *viddhi*—por favor, sabe; *bhoḥ*—¡oh, señor!.

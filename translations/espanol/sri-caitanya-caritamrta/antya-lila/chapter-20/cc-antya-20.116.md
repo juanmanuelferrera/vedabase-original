@@ -1,9 +1,9 @@
 ### CC Antya 20.116
 
-> নবমে — গোপীনাথ-পট্টনায়ক-মোচন ।
+> নবমে — গোপীনাথ-পট্টনায়ক-মোচন ।\
 > ত্রিজগতের লোক প্রভুর পাইল দরশন ॥১১৬॥
 
-> navame--gopīnātha-paṭṭanāyaka-mocana
+> navame--gopīnātha-paṭṭanāyaka-mocana\
 > trijagatera loka prabhura pāila daraśana
 
 *navame*—en el capítulo noveno; *gopīnātha-paṭṭanāyaka-mocana*—la liberación de Gopīnātha Paṭṭanāyaka, el hermano de Rāmānanda Rāya; *tri-jagatera*—de los tres mundos; *loka*—la gente en general; *prabhura*—de Śrī Caitanya Mahāprabhu; *pāila daraśana*—obtuvo audiencia.

@@ -1,11 +1,11 @@
 ### SB 3.14.26
 
-> न यस्य लोके स्वजनः परो वा नात्यादृतो नोत कश्चिद्विगर्ह्यः ।
+> न यस्य लोके स्वजनः परो वा नात्यादृतो नोत कश्चिद्विगर्ह्यः ।\
 > वयं व्रतैर्यच्चरणापविद्धामाशास्महेऽजां बत भुक्तभोगाम् ॥२६॥
 
-> na yasya loke sva-janaḥ paro vā
-> nātyādṛto nota kaścid vigarhyaḥ
-> vayaṁ vratair yac-caraṇāpaviddhām
+> na yasya loke sva-janaḥ paro vā\
+> nātyādṛto nota kaścid vigarhyaḥ\
+> vayaṁ vratair yac-caraṇāpaviddhām\
 > āśāsmahe 'jāṁ bata bhukta-bhogām
 
 *na*—nunca; *yasya*—de quien; *loke*—en el mundo; *sva-janaḥ*—pariente; *paraḥ*—desconectado; *vā*—ni; *na*—ni; *ati*—mayor; *ādṛtaḥ*—favorable; *na*—no; *uta*—o; *kaścit*—cualquiera; *vigarhyaḥ*—criminal; *vayam*—nosotros; *vrataiḥ*—con votos; *yat*—cuyos; *caraṇa*—pies; *apaviddhām*—rechazado; *āśāsmahe*—adoramos respetuosamente; *ajām*—*mahā-prasāda*; *bata*—ciertamente; *bhukta-bhogām*—remanentes de alimentos.

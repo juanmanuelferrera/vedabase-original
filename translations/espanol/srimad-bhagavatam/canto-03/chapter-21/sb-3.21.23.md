@@ -1,13 +1,13 @@
 ### SB 3.21.23
 
-> श्रीभगवानुवाच
-> विदित्वा तव चैत्यं मे पुरैव समयोजि तत् ।
+> श्रीभगवानुवाच\
+> विदित्वा तव चैत्यं मे पुरैव समयोजि तत् ।\
 > यदर्थमात्मनियमैस्त्वयैवाहं समर्चितः ॥२३॥
 
-> śrī-bhagavān uvāca
-> viditvā tava caityaṁ me
-> puraiva samayoji tat
-> yad-artham ātma-niyamais
+> śrī-bhagavān uvāca\
+> viditvā tava caityaṁ me\
+> puraiva samayoji tat\
+> yad-artham ātma-niyamais\
 > tvayaivāhaṁ samarcitaḥ
 
 *śrī-bhagavān uvāca*—el Señor Supremo dijo; *viditvā*—entendiendo; *tava*—tu; *caityam*—condición mental; *me*—por Mí; *purā*—antes; *eva*—ciertamente; *samayoji*—fue preparado; *tat*—eso; *yat-artham*—por lo cual; *ātma*—de la mente y los sentidos; *niyamaiḥ*—con disciplina; *tvayā*—por ti; *eva*—solo; *aham*—Yo; *samarcitaḥ*—he sido adorado.

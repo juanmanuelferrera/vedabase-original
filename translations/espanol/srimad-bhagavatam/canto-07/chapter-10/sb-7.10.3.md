@@ -1,11 +1,11 @@
 ### SB 7.10.3
 
-> भृत्यलक्षणजिज्ञआसुर्भक्तं कामेष्वचोदयत
+> भृत्यलक्षणजिज्ञआसुर्भक्तं कामेष्वचोदयत\
 > भवान्संसारबीजेषु हृदयग्रन्थिषु प्रभो ॥३॥
 
-> bhṛtya-lakṣaṇa-jijñāsur
-> bhaktaṁ kāmeṣv acodayat
-> bhavān saṁsāra-bījeṣu
+> bhṛtya-lakṣaṇa-jijñāsur\
+> bhaktaṁ kāmeṣv acodayat\
+> bhavān saṁsāra-bījeṣu\
 > hṛdaya-granthiṣu prabho
 
 *bhṛtya-lakṣaṇa-jijñāsuḥ*—con el deseo de manifestar las características de un devoto puro; *bhaktam*—al devoto; *kāmeṣu*—al mundo material, donde predominan los deseos de disfrute; *acodayat*—has enviado; *bhavān*—Tu Señoría; *saṁsāra-bījeṣu*—la causa originaria de nuestra presencia en el mundo material; *hṛdaya-granthiṣu*—el cual (el deseo de disfrute material) está en lo más hondo del corazón de todas las entidades vivientes; *prabho*—¡oh, mi adorable Señor!.

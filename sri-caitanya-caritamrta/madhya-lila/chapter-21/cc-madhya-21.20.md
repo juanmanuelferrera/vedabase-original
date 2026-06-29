@@ -1,9 +1,9 @@
 ### CC Madhya 21.20
 
-> এক এক গোপ করে যে বৎস চারণ ।
+> এক এক গোপ করে যে বৎস চারণ ।\
 > কোটি, অর্বুদ, শঙ্খ, পদ্ম, তাহার গণন ॥২০॥
 
-> eka eka gopa kare ye vatsa cāraṇa
+> eka eka gopa kare ye vatsa cāraṇa\
 > koṭi, arbuda, śaṅkha, padma, tāhāra gaṇana
 
 *eka eka*—one after another; *gopa*—cowherd boys; *kare*—do; *ye*—whatever; *vatsa*—calves; *cāraṇa*—grazing; *koṭi*—ten millions; *arbuda*—a hundred million; *śaṅkha*—one trillion; *padma*—ten trillion; *tāhāra gaṇana*—the enumeration of that.

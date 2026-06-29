@@ -1,11 +1,11 @@
 ### SB 6.17.18
 
-> संसारचक्र एतस्मिञ्जन्तुरज्ञआनमोहितः
+> संसारचक्र एतस्मिञ्जन्तुरज्ञआनमोहितः\
 > भ्राम्यन्सुखं च दुःखं च भुङ्क्ते सर्वत्र सर्वदा ॥१८॥
 
-> saṁsāra-cakra etasmiñ
-> jantur ajñāna-mohitaḥ
-> bhrāmyan sukhaṁ ca duḥkhaṁ ca
+> saṁsāra-cakra etasmiñ\
+> jantur ajñāna-mohitaḥ\
+> bhrāmyan sukhaṁ ca duḥkhaṁ ca\
 > bhuṅkte sarvatra sarvadā
 
 *saṁsāra-cakre*—in the wheel of material existence; *etasmin*—this; *jantuḥ*—the living entity; *ajñāna-mohitaḥ*—being bewildered by ignorance; *bhrāmyan*—wandering; *sukham*—happiness; *ca*—and; *duḥkham*—distress; *ca*—also; *bhuṅkte*—he undergoes; *sarvatra*—everywhere; *sarvadā*—always.

@@ -1,9 +1,9 @@
 ### CC Antya 19.15
 
-> জগদানন্দ নদীয়া গিয়া মাতারে মিলিলা ।
+> জগদানন্দ নদীয়া গিয়া মাতারে মিলিলা ।\
 > প্রভুর যত নিবেদন, সকল কহিলা ॥১৫॥
 
-> jagadānanda nadīyā giyā mātāre mililā
+> jagadānanda nadīyā giyā mātāre mililā\
 > prabhura yata nivedana, sakala kahilā
 
 *jagadānanda*—Jagadānanda; *nadīyā*—a Navadvīpa; *giyā*—yendo; *mātāre*—a la madre Śacī; *mililā*—se encontró; *prabhura*—de Śrī Caitanya Mahāprabhu; *yata nivedana*—todas las salutaciones; *sakala*—todo; *kahilā*—le comunicó.

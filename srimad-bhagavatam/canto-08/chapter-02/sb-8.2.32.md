@@ -1,11 +1,11 @@
 ### SB 8.2.32
 
-> न मामिमे ज्ञआतय आतुरं गजाः कुतः करिण्यः प्रभवन्ति मोचितुम
+> न मामिमे ज्ञआतय आतुरं गजाः कुतः करिण्यः प्रभवन्ति मोचितुम\
 > ग्राहेण पाशेन विधातुरावृतोऽप्यहं च तं यामि परं परायणम ॥३२॥
 
-> na mām ime jñātaya āturaṁ gajāḥ
-> kutaḥ kariṇyaḥ prabhavanti mocitum
-> grāheṇa pāśena vidhātur āvṛto
+> na mām ime jñātaya āturaṁ gajāḥ\
+> kutaḥ kariṇyaḥ prabhavanti mocitum\
+> grāheṇa pāśena vidhātur āvṛto\
 > 'py ahaṁ ca taṁ yāmi paraṁ parāyaṇam
 
 *na*—not; *mām*—me; *ime*—all these; *jñātayaḥ*—friends and relatives (the other elephants); *āturam*—in my distress; *gajāḥ*—the elephant; *kutaḥ*—how; *kariṇyaḥ*—my wives; *prabhavanti*—are able; *mocitum*—to deliver (from this dangerous position); *grāheṇa*—by the crocodile; *pāśena*—by the network of ropes; *vidhātuḥ*—of providence; *āvṛtaḥ*—captured; *api*—although (I am in such a position); *aham*—I; *ca*—also; *tam*—that (Supreme Personality of Godhead); *yāmi*—take shelter of; *param*—who is transcendental; *parāyaṇam*—and who is the shelter of even the exalted demigods like Brahmā and Śiva.

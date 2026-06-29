@@ -1,9 +1,9 @@
 ### CC Antya 6.93
 
-> কৌতুক দেখিতে আইল যত যত জন ।
+> কৌতুক দেখিতে আইল যত যত জন ।\
 > সেই চিড়া, দধি, কলা করিল ভক্ষণ ॥৯৩॥
 
-> kautuka dekhite āila yata yata jana
+> kautuka dekhite āila yata yata jana\
 > sei ciḍā, dadhi, kalā karila bhakṣaṇa
 
 *kautuka*—estas cosas divertidas; *dekhite*—para ver; *āila*—llegaron; *yata yata jana*—toda clase de personas; *sei*—ellos; *ciḍā*—arroz aplastado; *dadhi*—yogur; *kalā*—plátanos; *karila bhakṣaṇa*—comieron.

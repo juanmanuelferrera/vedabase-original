@@ -1,9 +1,9 @@
 ### CC Madhya 9.79
 
-> পাপনাশনে বিষ্ণু কৈল দরশন ।
+> পাপনাশনে বিষ্ণু কৈল দরশন ।\
 > শ্রীরঙ্গক্ষেত্রে তবে করিলা গমন ॥৭৯॥
 
-> pāpa-nāśane viṣṇu kaila daraśana
+> pāpa-nāśane viṣṇu kaila daraśana\
 > śrī-raṅga-kṣetre tabe karilā gamana
 
 *pāpa-nāśane*—at the place named Pāpanāśana; *viṣṇu*—Lord Viṣṇu; *kaila*—did; *daraśana*—visiting; *śrī-raṅga-kṣetre*—to the holy place named Śrī Raṅga-kṣetra; *tabe*—then; *karilā*—did; *gamana*—departure.

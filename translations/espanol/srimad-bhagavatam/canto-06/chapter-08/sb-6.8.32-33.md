@@ -1,18 +1,18 @@
 ### SB 6.8.32-33
 
-> यथैकात्म्यानुभावानां विकल्परहितः स्वयम
-> भूषणायुधलिङ्गाख्या धत्ते शक्तीः स्वमायया ॥३२॥
-> तेनैव सत्यमानेन सर्वज्ञओ भगवान्हरिः
+> यथैकात्म्यानुभावानां विकल्परहितः स्वयम\
+> भूषणायुधलिङ्गाख्या धत्ते शक्तीः स्वमायया ॥३२॥\
+> तेनैव सत्यमानेन सर्वज्ञओ भगवान्हरिः\
 > पातु सर्वैः स्वरूपैर्नः सदा सर्वत्र सर्वगः ॥३३॥
 
-> yathaikātmyānubhāvānāṁ
-> vikalpa-rahitaḥ svayam
-> bhūṣaṇāyudha-liṅgākhyā
+> yathaikātmyānubhāvānāṁ\
+> vikalpa-rahitaḥ svayam\
+> bhūṣaṇāyudha-liṅgākhyā\
 > dhatte śaktīḥ sva-māyayā
 
-> tenaiva satya-mānena
-> sarva-jño bhagavān hariḥ
-> pātu sarvaiḥ svarūpair naḥ
+> tenaiva satya-mānena\
+> sarva-jño bhagavān hariḥ\
+> pātu sarvaiḥ svarūpair naḥ\
 > sadā sarvatra sarva-gaḥ
 
 *yathā*—tal como; *aikātmya*—en función de la unidad manifestada en diversidades; *anubhāvānām*—de aquellos que piensan; *vikalpa-rahitaḥ*—la ausencia de diferencias; *svayam*—Él mismo; *bhūṣaṇa*—adornos; *āyudha*—armas; *liṅga-ākhyāḥ*—características y nombres diversos; *dhatte*—posee; *śaktīḥ*—diversas potencias: riqueza, influencia, poder, conocimiento, belleza y renunciación; *sva-māyayā*—por expandir Su energía espiritual; *tena eva*—con ese; *sarva-jñaḥ*—omnisciente; *bhagavān*—la Suprema Personalidad de Dios; *hariḥ*—que puede eliminar toda ilusión de las entidades vivientes; *pātu*—que Él proteja; *sarvaiḥ*—con todas; *sva-rūpaiḥ*—Sus formas; *naḥ*—a nosotros; *sadā*—siempre; *sarvatra*—en todas partes; *sarva-gaḥ*—que es omnipresente.

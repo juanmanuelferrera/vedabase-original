@@ -1,9 +1,9 @@
 ### CC Antya 15.28
 
-> একদিন মহাপ্রভু সমুদ্র-তীরে যাইতে ।
+> একদিন মহাপ্রভু সমুদ্র-তীরে যাইতে ।\
 > পুষ্পের উদ্যান তথা দেখেন আচম্বিতে ॥২৮॥
 
-> eka-dina mahāprabhu samudra-tīre yāite
+> eka-dina mahāprabhu samudra-tīre yāite\
 > puṣpera udyāna tathā dekhena ācambite
 
 *eka-dina*—un día; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *samudra-tīre*—a la orilla del mar; *yāite*—mientras iba; *puṣpera udyāna*—un jardín de flores; *tathā*—allí; *dekhena*—ve; *ācambite*—de repente.

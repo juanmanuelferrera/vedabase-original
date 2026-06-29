@@ -1,13 +1,13 @@
 ### CC Antya 1.171
 
-> প্রমদরসতরঙ্গস্মেরগণ্ডস্থলায়াঃ
-> স্মরধনুরনুবন্ধিভ্রূলতা-লাস্যভাজঃ ।
-> মদকলচলভৃঙ্গীভ্রান্তিভঙ্গীং দধানো
+> প্রমদরসতরঙ্গস্মেরগণ্ডস্থলায়াঃ\
+> স্মরধনুরনুবন্ধিভ্রূলতা-লাস্যভাজঃ ।\
+> মদকলচলভৃঙ্গীভ্রান্তিভঙ্গীং দধানো\
 > হৃদয়মিদমদাঙক্ষীৎ পক্ষ্মলাক্ষ্যাঃ কটাক্ষঃ ॥১৭১॥
 
-> pramada-rasa-taraṅga-smera-gaṇḍa-sthalāyāḥ
-> smara-dhanur anubandhi-bhrū-latā-lāsya-bhājaḥ
-> mada-kala-cala-bhṛṅgī-bhrānti-bhaṅgīṁ dadhāno
+> pramada-rasa-taraṅga-smera-gaṇḍa-sthalāyāḥ\
+> smara-dhanur anubandhi-bhrū-latā-lāsya-bhājaḥ\
+> mada-kala-cala-bhṛṅgī-bhrānti-bhaṅgīṁ dadhāno\
 > hṛdayam idam adāṅkṣīt pakṣmalākṣyāḥ kaṭākṣaḥ
 
 *pramada*—of joy; *rasa-taraṅga*—by the continuous waves of the mellow; *smera*—mildly smiling; *gaṇḍa-sthalāyāḥ*—whose cheeks; *smara-dhanuḥ*—the bow of Cupid; *anubandhi*—related with; *bhrū-latā*—of the arched eyebrows; *lāsya*—dancing; *bhājaḥ*—of one who has; *mada-kala*—intoxicated; *cala*—unsteady; *bhṛṅgī-bhrānti*—the moving to and fro of bees; *bhaṅgīm*—the semblance of; *dadhānaḥ*—giving; *hṛdayam idam*—this heart; *adāṅkṣīt*—has bitten; *pakṣmala*—possessing exquisite eyelashes; *akṣyāḥ*—of whose two eyes; *kaṭa-akṣaḥ*—the glance.

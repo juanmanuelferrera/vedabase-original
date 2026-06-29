@@ -1,9 +1,9 @@
 ### CC Antya 12.103
 
-> সুগন্ধি করিয়া তৈল গাগরী ভরিয়া ।
+> সুগন্ধি করিয়া তৈল গাগরী ভরিয়া ।\
 > নীলাচলে লঞা আইলা যতন করিয়া ॥১০৩॥
 
-> sugandhi kariyā taila gāgarī bhariyā
+> sugandhi kariyā taila gāgarī bhariyā\
 > nīlācale lañā āilā yatana kariyā
 
 *sū-gandhi kariyā*—making aromatic; *taila*—oil; *gāgarī*—a big pot; *bhariyā*—filling; *nīlācale*—to Jagannātha Purī; *lañā*—taking; *āilā*—came; *yatana kariyā*—with great care.

@@ -1,11 +1,11 @@
 ### SB 1.9.2
 
-> तदा ते भ्रातरः सर्वे सदश्वैः स्वर्णभूषितैः ।
+> तदा ते भ्रातरः सर्वे सदश्वैः स्वर्णभूषितैः ।\
 > अन्वगच्छन्रथैर्विप्रा व्यासधौम्यादयस्तथा ॥२॥
 
-> tadā te bhrātaraḥ sarve
-> sadaśvaiḥ svarṇa-bhūṣitaiḥ
-> anvagacchan rathair viprā
+> tadā te bhrātaraḥ sarve\
+> sadaśvaiḥ svarṇa-bhūṣitaiḥ\
+> anvagacchan rathair viprā\
 > vyāsa-dhaumyādayas tathā
 
 *tadā*—en esa ocasión; *te*—todos ellos; *bhrātaraḥ*—los hermanos; *sarve*—todos juntos; *sat-aśvaiḥ*—tiradas por caballos de primera; *svarṇa*—oro; *bhūṣitaiḥ*—estando adornados con; *anvagacchan*—siguiendo uno detrás del otro; *rathaiḥ*—en las cuadrigas; *viprāḥ*—¡oh, *brāhmaṇas*!; *vyāsa*—el sabio Vyāsa; *dhaumya*—Dhaumya; *ādayaḥ*—y otros; *tathā*—también.

@@ -1,11 +1,11 @@
 ### SB 3.11.38
 
-> कालोऽयं द्विपरार्धाख्यो निमेष उपचर्यते ।
+> कालोऽयं द्विपरार्धाख्यो निमेष उपचर्यते ।\
 > अव्याकृतस्यानन्तस्य ह्यनादेर्जगदात्मनः ॥३८॥
 
-> kālo 'yaṁ dvi-parārdhākhyo
-> nimeṣa upacaryate
-> avyākṛtasyānantasya
+> kālo 'yaṁ dvi-parārdhākhyo\
+> nimeṣa upacaryate\
+> avyākṛtasyānantasya\
 > hy anāder jagad-ātmanaḥ
 
 *kālaḥ*—eternal time; *ayam*—this (as measured by Brahmā's duration of life); *dvi-parārdha-ākhyaḥ*—measured by the two halves of Brahmā's life; *nimeṣaḥ*—less than a second; *upacaryate*—is so measured; *avyākṛtasya*—of one who is unchanged; *anantasya*—of the unlimited; *hi*—certainly; *anādeḥ*—of the beginningless; *jagat-ātmanaḥ*—of the soul of the universe.

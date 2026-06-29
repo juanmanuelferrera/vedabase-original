@@ -1,11 +1,11 @@
 ### CC Madhya 24.132
 
-> ব্রহ্মভূতঃ প্রসন্নাত্মা ন শোচতি ন কাঙ্ক্ষতি ।
+> ব্রহ্মভূতঃ প্রসন্নাত্মা ন শোচতি ন কাঙ্ক্ষতি ।\
 > সমঃ সর্বেষু ভূতেষু মদ্ভক্তিং লভতে পরাম্ ॥১৩২॥
 
-> brahma-bhūtaḥ prasannātmā
-> na śocati na kāṅkṣati
-> samaḥ sarveṣu bhūteṣu
+> brahma-bhūtaḥ prasannātmā\
+> na śocati na kāṅkṣati\
+> samaḥ sarveṣu bhūteṣu\
 > mad-bhaktiṁ labhate parām
 
 *brahma-bhūtaḥ*—siendo uno con el Absoluto; *prasanna-ātmā*—plenamente dichoso; *na*—nunca; *śocati*—se lamenta; *na*—nunca; *kāṅkṣati*—desea; *samaḥ*—ecuánime; *sarveṣu*—con todas; *bhūteṣu*—las entidades vivientes; *mat-bhaktim*—Mi servicio devocional; *labhate*—obtiene; *parām*—trascendental.

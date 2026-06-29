@@ -1,11 +1,11 @@
 ### CC Madhya 24.313
 
-> অহং বেদ্মি শুকো বেত্তি ব্যাসো বেত্তি ন বেত্তি বা ।
+> অহং বেদ্মি শুকো বেত্তি ব্যাসো বেত্তি ন বেত্তি বা ।\
 > ভক্ত্যা ভাগবতং গ্রাহ্যং ন বুদ্ধ্যা ন চ টিকয়া ॥৩১৩॥
 
-> ahaṁ vedmi śuko vetti
-> vyāso vetti na vetti vā
-> bhaktyā bhāgavataṁ grāhyaṁ
+> ahaṁ vedmi śuko vetti\
+> vyāso vetti na vetti vā\
+> bhaktyā bhāgavataṁ grāhyaṁ\
 > na buddhyā na ca ṭīkayā
 
 *aham*—yo (el Señor Śiva); *vedmi*—sé; *śukaḥ*—Śukadeva Gosvāmī; *vetti*—sabe; *vyāsaḥ*—Vyāsadeva; *vetti*—sabe; *na vetti vā*—o puede que no sepa; *bhaktyā*—mediante el servicio devocional (ejecutado en nueve procesos diferentes); *bhāgavatam*—el Bhāgavata Purāṇa (llamado Paramahaṁsa-saṁhitā, el texto o tratado que pueden leer los trascendentalistas más elevados); *grāhyam*—que debe aceptarse; *na*—no; *buddhyā*—mediante la supuesta inteligencia o conocimiento experimental; *na*—ni; *ca*—también; *ṭīkayā*—mediante comentarios imaginarios.

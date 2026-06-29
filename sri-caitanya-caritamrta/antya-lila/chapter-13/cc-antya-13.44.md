@@ -1,9 +1,9 @@
 ### CC Antya 13.44
 
-> মথুরাতে আসি’ মিলিলা সনাতনে ।
+> মথুরাতে আসি’ মিলিলা সনাতনে ।\
 > দুইজনের সঙ্গে দুঁহে আনন্দিত মনে ॥৪৪॥
 
-> mathurāte āsi' mililā sanātane
+> mathurāte āsi' mililā sanātane\
 > dui-janera saṅge duṅhe ānandita mane
 
 *mathurāte āsi'*—when he reached Mathurā; *mililā sanātane*—he met Sanātana Gosvāmī; *dui-janera*—of both; *saṅge*—in association; *duṅhe*—both; *ānandita mane*—very pleased within their minds.

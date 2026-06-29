@@ -1,9 +1,9 @@
 ### CC Antya 11.68
 
-> ‘হরিবোল’ ‘হরিবোল’ বলে গৌররায় ।
+> ‘হরিবোল’ ‘হরিবোল’ বলে গৌররায় ।\
 > আপনি শ্রীহস্তে বালু দিলা তাঁর গায় ॥৬৮॥
 
-> 'hari-bola' 'hari-bola' bale gaurarāya
+> 'hari-bola' 'hari-bola' bale gaurarāya\
 > āpani sri-haste vālu dilā tāṅra gāya
 
 *hari-bola hari-bola*—canten Hari, canten Hari; *bale*—cantó; *gaurarāya*—Śrī Caitanya Mahāprabhu; *āpani*—personalmente; *śrī-haste*—con Sus manos trascendentales; *vālu dilā*—colocó arena; *tāṅra gāya*—sobre su cuerpo.

@@ -1,11 +1,11 @@
 ### SB 6.1.22
 
-> बन्द्यक्षैः कैतवैश्चौर्यैर्गर्हितां वृत्तिमास्थितः
+> बन्द्यक्षैः कैतवैश्चौर्यैर्गर्हितां वृत्तिमास्थितः\
 > बिभ्रत्कुटुम्बमशुचिर्यातयामास देहिनः ॥२२॥
 
-> bandy-akṣaiḥ kaitavaiś cauryair
-> garhitāṁ vṛttim āsthitaḥ
-> bibhrat kuṭumbam aśucir
+> bandy-akṣaiḥ kaitavaiś cauryair\
+> garhitāṁ vṛttim āsthitaḥ\
+> bibhrat kuṭumbam aśucir\
 > yātayām āsa dehinaḥ
 
 *bandī-akṣaiḥ*—arrestar a alguien injustamente; *kaitavaiḥ*—engañar en el juego o en los dados; *cauryaiḥ*—cometer robos; *garhitām*—condenadas; *vṛttim*—profesiones; *āsthitaḥ*—que había adoptado (debido a su relación con una prostituta); *bibhrat*—mantener; *kuṭumbam*—a su esposa e hijos, que dependían de él; *aśuciḥ*—ser muy pecaminoso; *yātayām āsa*—hizo sufrir; *dehinaḥ*—a otras entidades vivientes.

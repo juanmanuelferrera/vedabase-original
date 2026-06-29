@@ -1,9 +1,9 @@
 ### CC Antya 14.113
 
-> হেনকালে আইলা পুরী, ভারতী, — দুইজন ।
+> হেনকালে আইলা পুরী, ভারতী, — দুইজন ।\
 > দুঁহে দেখি’ মহাপ্রভুর হইল সম্ভ্রম ॥১১৩॥
 
-> hena-kāle āilā purī, bhāratī,—dui-jana
+> hena-kāle āilā purī, bhāratī,—dui-jana\
 > duṅhe dekhi' mahāprabhura ha-ila sambhrama
 
 *hena-kāle*—at this time; *āilā*—came; *purī*—Paramānanda Purī; *bhāratī*—Brahmānanda Bhāratī; *dui-jana*—two persons; *duṅhe dekhi'*—seeing both of them; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *ha-ila*—there was; *sambhrama*—respect.

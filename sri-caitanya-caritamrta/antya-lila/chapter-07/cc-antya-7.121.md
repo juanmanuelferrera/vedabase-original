@@ -1,9 +1,9 @@
 ### CC Antya 7.121
 
-> স্বগণ-সহিতে মোর মানিলা নিমন্ত্রণ ।
+> স্বগণ-সহিতে মোর মানিলা নিমন্ত্রণ ।\
 > এবে কেনে প্রভুর মোতে ফিরি’ গেল মন? ॥১২১॥
 
-> svagaṇa-sahite mora mānilā nimantraṇa
+> svagaṇa-sahite mora mānilā nimantraṇa\
 > ebe kene prabhura mote phiri' gela mana?
 
 *sva-gaṇa-sahite*—accompanied by His personal associates; *mora*—my; *mānilā*—accepted; *nimantraṇa*—invitation; *ebe*—now; *kene*—why; *prabhura*—of Śrī Caitanya Mahāprabhu; *mote*—unto me; *phiri' gela*—has changed; *mana*—mind.

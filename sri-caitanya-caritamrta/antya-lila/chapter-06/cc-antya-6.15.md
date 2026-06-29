@@ -1,9 +1,9 @@
 ### CC Antya 6.15
 
-> ভিতরে বৈরাগ্য, বাহিরে করে সর্ব-কর্ম ।
+> ভিতরে বৈরাগ্য, বাহিরে করে সর্ব-কর্ম ।\
 > দেখিয়া ত’ মাতা-পিতার আনন্দিত মন ॥১৫॥
 
-> bhitare vairāgya, bāhire kare sarva-karma
+> bhitare vairāgya, bāhire kare sarva-karma\
 > dekhiyā ta' mātā-pitāra ānandita mana
 
 *bhitare*—within his heart; *vairāgya*—complete renunciation; *bāhire*—externally; *kare*—does; *sarva*—all; *karma*—activities; *dekhiyā*—seeing; *ta'*—certainly; *mātā-pitāra*—of the father and mother; *ānandita*—satisfied; *mana*—the mind.

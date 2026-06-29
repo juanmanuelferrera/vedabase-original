@@ -1,11 +1,11 @@
 ### SB 3.7.6
 
-> भगवानेक एवैष सर्वक्षेत्रेष्ववस्थितः ।
+> भगवानेक एवैष सर्वक्षेत्रेष्ववस्थितः ।\
 > अमुष्य दुर्भगत्वं वा क्लेशो वा कर्मभिः कुतः ॥६॥
 
-> bhagavān eka evaiṣa
-> sarva-kṣetreṣv avasthitaḥ
-> amuṣya durbhagatvaṁ vā
+> bhagavān eka evaiṣa\
+> sarva-kṣetreṣv avasthitaḥ\
+> amuṣya durbhagatvaṁ vā\
 > kleśo vā karmabhiḥ kutaḥ
 
 *bhagavān*—la Suprema Personalidad de Dios; *ekaḥ*—sola; *eva eṣaḥ*—todas estas; *sarva*—todas; *kṣetreṣu*—en las entidades vivientes; *avasthitaḥ*—situado; *amuṣya*—de las entidades vivientes; *durbhagatvam*—infortunio; *vā*—o bien; *kleśaḥ*—miserias; *vā*—o; *karmabhiḥ*—mediante actividades; *kutaḥ*—para qué.

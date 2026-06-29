@@ -1,22 +1,22 @@
 ### SB 9.10.6-7
 
-> यो लोकवीरसमितौ धनुरैशमुग्रं
-> सीतास्वयंवरगृहे त्रिशतोपनीतम
-> आदाय बालगजलील इवेक्षुयष्टिं
-> सज्ज्यीकृतं नृप विकृष्य बभञ्ज मध्ये ॥६॥
-> जित्वानुरूपगुणशीलवयोऽङ्गरूपां
-> सीताभिधां श्रियमुरस्यभिलब्धमानाम
-> मार्गे व्रजन्भृगुपतेर्व्यनयत्प्ररूढं
+> यो लोकवीरसमितौ धनुरैशमुग्रं\
+> सीतास्वयंवरगृहे त्रिशतोपनीतम\
+> आदाय बालगजलील इवेक्षुयष्टिं\
+> सज्ज्यीकृतं नृप विकृष्य बभञ्ज मध्ये ॥६॥\
+> जित्वानुरूपगुणशीलवयोऽङ्गरूपां\
+> सीताभिधां श्रियमुरस्यभिलब्धमानाम\
+> मार्गे व्रजन्भृगुपतेर्व्यनयत्प्ररूढं\
 > दर्पं महीमकृत यस्त्रिरराजबीजाम ॥७॥
 
-> yo loka-vīra-samitau dhanur aiśam ugraṁ
-> sītā-svayaṁvara-gṛhe triśatopanītam
-> ādāya bāla-gaja-līla ivekṣu-yaṣṭiṁ
+> yo loka-vīra-samitau dhanur aiśam ugraṁ\
+> sītā-svayaṁvara-gṛhe triśatopanītam\
+> ādāya bāla-gaja-līla ivekṣu-yaṣṭiṁ\
 > sajjyī-kṛtaṁ nṛpa vikṛṣya babhañja madhye
 
-> jitvānurūpa-guṇa-śīla-vayo 'ṅga-rūpāṁ
-> sītābhidhāṁ śriyam urasy abhilabdhamānām
-> mārge vrajan bhṛgupater vyanayat prarūḍhaṁ
+> jitvānurūpa-guṇa-śīla-vayo 'ṅga-rūpāṁ\
+> sītābhidhāṁ śriyam urasy abhilabdhamānām\
+> mārge vrajan bhṛgupater vyanayat prarūḍhaṁ\
 > darpaṁ mahīm akṛta yas trir arāja-bījām
 
 *yaḥ*—el Señor Rāmacandra, el cual; *loka-vīra-samitau*—en la sociedad, o rodeado de muchos héroes de este mundo; *dhanuḥ*—el arco; *aiśam*—del Señor Śiva; *ugram*—muy bravo; *sītā-svayaṁvara-gṛhe*—en la asamblea en que madre Sītā tenía que elegir esposo; *triśata-upanītam*—el arco cargado por trescientos hombres; *ādāya*—tomar (el arco); *bāla-gaja-līlaḥ*—actuando como un bebé elefante en un bosque de caña de azúcar; *iva*—así; *ikṣu-yaṣṭim*—una caña de azúcar; *sajjyī-kṛtam*—tensó la cuerda del arco; *nṛpa*—¡oh, rey!; *vikṛṣya*—doblando; *babhañja*—lo rompió; *madhye*—en medio; *jitvā*—obtener por la victoria; *anurūpa*—exactamente adecuada a Su posición y belleza; *guṇa*—cualidades; *śīla*—conducta; *vayaḥ*—edad; *aṅga*—cuerpo; *rūpām*—belleza; *sītā-abhidhām*—la muchacha llamada Sītā; *śriyam*—la diosa de la fortuna; *urasi*—en el pecho; *abhilabdhamānām*—la había conseguido en el pasado; *mārge*—en el camino; *vrajan*—mientras andaba; *bhṛgupateḥ*—de Bhṛgupati; *vyanayat*—destrozado; *prarūḍham*—con raíces muy profundas; *darpam*—el orgullo; *mahīm*—la Tierra; *akṛta*—acabó; *yaḥ*—aquel que; *triḥ*—tres veces (siete); *arāja*—sin dinastía real; *bījām*—semilla.

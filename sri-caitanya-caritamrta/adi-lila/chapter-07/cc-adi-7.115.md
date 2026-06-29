@@ -1,9 +1,9 @@
 ### CC Adi 7.115
 
-> প্রাকৃত করিয়া মানে বিষ্ণু-কলেবর ।
+> প্রাকৃত করিয়া মানে বিষ্ণু-কলেবর ।\
 > বিষ্ণুনিন্দা আর নাহি ইহার উপর ॥১১৫॥
 
-> prākṛta kariyā māne viṣṇu-kalevara
+> prākṛta kariyā māne viṣṇu-kalevara\
 > viṣṇu-nindā āra nāhi ihāra upara
 
 *prākṛta*—material; *kariyā*—taking it to be so; *māne*—accepts; *viṣṇu*—Lord Viṣṇu's; *kalevara*—body; *viṣṇu-nindā*—defaming or blaspheming Lord Viṣṇu; *āra*—beyond this; *nāhi*—none; *ihāra*—of this; *upara*—above.

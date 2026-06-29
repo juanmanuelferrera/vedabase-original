@@ -1,18 +1,18 @@
 ### SB 3.26.23-24
 
-> महत्तत्त्वाद्विकुर्वाणाद्भगवद्वीर्यसम्भवात् ।
-> क्रियाशक्तिरहङ्कारस्त्रिविधः समपद्यत ॥२३॥
-> वैकारिकस्तैजसश्च तामसश्च यतो भवः ।
+> महत्तत्त्वाद्विकुर्वाणाद्भगवद्वीर्यसम्भवात् ।\
+> क्रियाशक्तिरहङ्कारस्त्रिविधः समपद्यत ॥२३॥\
+> वैकारिकस्तैजसश्च तामसश्च यतो भवः ।\
 > मनसश्चेन्द्रियाणां च भूतानां महतामपि ॥२४॥
 
-> mahat-tattvād vikurvāṇād
-> bhagavad-vīrya-sambhavāt
-> kriyā-śaktir ahaṅkāras
+> mahat-tattvād vikurvāṇād\
+> bhagavad-vīrya-sambhavāt\
+> kriyā-śaktir ahaṅkāras\
 > tri-vidhaḥ samapadyata
 
-> vaikārikas taijasaś ca
-> tāmasaś ca yato bhavaḥ
-> manasaś cendriyāṇāṁ ca
+> vaikārikas taijasaś ca\
+> tāmasaś ca yato bhavaḥ\
+> manasaś cendriyāṇāṁ ca\
 > bhūtānāṁ mahatām api
 
 *mahat-tattvāt*—from the *mahat-tattva*; *vikurvāṇāt*—undergoing a change; *bhagavat-vīrya-sambhavāt*—evolved from the Lord's own energy; *kriyā-śaktiḥ*—endowed with active power; *ahaṅkāraḥ*—the material ego; *tri-vidhaḥ*—of the three kinds; *samapadyata*—sprang up; *vaikārikaḥ*—material ego in transformed goodness; *taijasaḥ*—material ego in passion; *ca*—and; *tāmasaḥ*—material ego in ignorance; *ca*—also; *yataḥ*—from which; *bhavaḥ*—the origin; *manasaḥ*—of the mind; *ca*—and; *indriyāṇām*—of the senses for perception and action; *ca*—and; *bhūtānām mahatām*—of the five gross elements; *api*—also.

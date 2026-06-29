@@ -1,9 +1,9 @@
 ### CC Madhya 14.88
 
-> হাসি’ মহাপ্রভু তবে অদ্বৈতে আনিল ।
+> হাসি’ মহাপ্রভু তবে অদ্বৈতে আনিল ।\
 > জলের উপরে তাঁরে শেষ-শয্যা কৈল ॥৮৮॥
 
-> hāsi' mahāprabhu tabe advaite ānila
+> hāsi' mahāprabhu tabe advaite ānila\
 > jalera upare tāṅre śeṣa-śayyā kaila
 
 *hāsi'*—smiling; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tabe*—at that time; *advaite ānila*—called for Advaita Ācārya; *jalera upare*—on the surface of the water; *tāṅre*—Him; *śeṣa-śayyā*—the Śeṣa Nāga bed; *kaila*—made.

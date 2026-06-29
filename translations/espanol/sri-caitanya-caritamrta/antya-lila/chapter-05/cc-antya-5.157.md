@@ -1,9 +1,9 @@
 ### CC Antya 5.157
 
-> তবে সব ভক্ত তারে অঙ্গীকার কৈলা ।
+> তবে সব ভক্ত তারে অঙ্গীকার কৈলা ।\
 > তার গুণ কহি’ মহাপ্রভুরে মিলাইলা ॥১৫৭॥
 
-> tabe saba bhakta tāre aṅgīkāra kailā
+> tabe saba bhakta tāre aṅgīkāra kailā\
 > tāra guṇa kahi' mahāprabhure milāilā
 
 *tabe*—acto seguido; *saba bhakta*—todos los devotos; *tāre*—a él; *aṅgīkāra kailā*—lo aceptaron como uno de sus asociados; *tāra guṇa kahi'*—explicando su humilde comportamiento; *mahāprabhure milāilā*—lo presentaron a Śrī Caitanya Mahāprabhu.

@@ -1,9 +1,9 @@
 ### CC Madhya 7.63
 
-> শূদ্র বিষয়ি-জ্ঞানে উপেক্ষা না করিবে ।
+> শূদ্র বিষয়ি-জ্ঞানে উপেক্ষা না করিবে ।\
 > আমার বচনে তাঁরে অবশ্য মিলিবে ॥৬৩॥
 
-> śūdra viṣayi-jñāne upekṣā nā karibe
+> śūdra viṣayi-jñāne upekṣā nā karibe\
 > āmāra vacane tāṅre avaśya milibe
 
 *śūdra*—the fourth social division; *viṣayi-jñāne*—by the impression of being a worldly man; *upekṣā*—negligence; *nā karibe*—should not do; *āmāra*—my; *vacane*—on the request; *tāṅre*—him; *avaśya*—certainly; *milibe*—You shouid meet.

@@ -1,18 +1,18 @@
 ### SB 9.8.9-10
 
-> सुमत्यास्तनया दृप्ताः पितुरादेशकारिणः
-> हयमन्वेषमाणास्ते समन्तान्न्यखनन्महीम ॥९॥
-> प्रागुदीच्यां दिशि हयं ददृशुः कपिलान्तिके
+> सुमत्यास्तनया दृप्ताः पितुरादेशकारिणः\
+> हयमन्वेषमाणास्ते समन्तान्न्यखनन्महीम ॥९॥\
+> प्रागुदीच्यां दिशि हयं ददृशुः कपिलान्तिके\
 > एष वाजिहरश्चौर आस्ते मीलितलोचनः ॥१०॥
 
-> prāg-udīcyāṁ diśi hayaṁ
-> dadṛśuḥ kapilāntike
-> eṣa vāji-haraś caura
+> prāg-udīcyāṁ diśi hayaṁ\
+> dadṛśuḥ kapilāntike\
+> eṣa vāji-haraś caura\
 > āste mīlita-locanaḥ
 
-> hanyatāṁ hanyatāṁ pāpa
-> iti ṣaṣṭi-sahasriṇaḥ
-> udāyudhā abhiyayur
+> hanyatāṁ hanyatāṁ pāpa\
+> iti ṣaṣṭi-sahasriṇaḥ\
+> udāyudhā abhiyayur\
 > unmimeṣa tadā muniḥ
 
 *prāk-udīcyām*—in the northeastern; *diśi*—direction; *hayam*—the horse; *dadṛśuḥ*—they saw; *kapila-antike*—near the *āśrama* of Kapila; *eṣaḥ*—here is; *vāji-haraḥ*—the horse thief; *cauraḥ*—the thief; *āste*—existing; *mīlita-locanaḥ*—with closed eyes; *hanyatām hanyatām*—kill him, kill him; *pāpaḥ*—a most sinful person; *iti*—in this way; *ṣaṣṭi-sahasriṇaḥ*—the sixty thousand sons of Sagara; *udāyudhāḥ*—raising their respective weapons; *abhiyayuḥ*—they approached; *unmimeṣa*—opened His eyes; *tadā*—at that time; *muniḥ*—Kapila Muni.

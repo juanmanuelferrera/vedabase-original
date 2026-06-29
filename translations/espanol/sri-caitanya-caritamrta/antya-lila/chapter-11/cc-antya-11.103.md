@@ -1,9 +1,9 @@
 ### CC Antya 11.103
 
-> শেষকালে দিলা তাঁরে দর্শন-স্পর্শন ।
+> শেষকালে দিলা তাঁরে দর্শন-স্পর্শন ।\
 > তাঁরে কোলে করি’ কৈলা আপনে নর্তন ॥১০৩॥
 
-> śeṣa-kāle dilā tāṅre darśana-sparśana
+> śeṣa-kāle dilā tāṅre darśana-sparśana\
 > tāṅre kole kari' kailā āpane nartana
 
 *śeṣa-kāle*—en la última etapa de su vida; *dilā*—le concedió; *tāṅre*—a Haridāsa Ṭhākura; *darśana-sparśana*—audiencia y contacto; *tāṅre*—a él; *kole kari'*—tomándolo en Su regazo; *kailā*—realizó; *āpane*—personalmente; *nartana*—danza.

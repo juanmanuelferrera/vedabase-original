@@ -1,11 +1,11 @@
 ### SB 5.10.12
 
-> विशेषबुद्धेर्विवरं मनाक्च पश्याम यन्न व्यवहारतोऽन्यत
+> विशेषबुद्धेर्विवरं मनाक्च पश्याम यन्न व्यवहारतोऽन्यत\
 > क ईश्वरस्तत्र किमीशितव्यं तथापि राजन्करवाम किं ते ॥१२॥
 
-> viśeṣa-buddher vivaraṁ manāk ca
-> paśyāma yan na vyavahārato 'nyat
-> ka īśvaras tatra kim īśitavyaṁ
+> viśeṣa-buddher vivaraṁ manāk ca\
+> paśyāma yan na vyavahārato 'nyat\
+> ka īśvaras tatra kim īśitavyaṁ\
 > tathāpi rājan karavāma kiṁ te
 
 *viśeṣa-buddheḥ*—del concepto que distingue entre amo y sirviente; *vivaram*—el alcance; *manāk*—un poco; *ca*—también; *paśyāmaḥ*—veo; *yat*—lo cual; *na*—no; *vyavahārataḥ*—que la costumbre o el convencionalismo temporales; *anyat*—otra; *kaḥ*—quién; *īśvaraḥ*—el amo; *tatra*—en esto; *kim*—quién; *īśitavyam*—debe ser controlado; *tathāpi*—aun así; *rājan*—¡oh, rey! (si todavía piensas que tú eres el amo y yo el sirviente); *karavāma*—puedo hacer; *kim*—qué; *te*—por ti.

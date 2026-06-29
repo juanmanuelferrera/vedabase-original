@@ -1,13 +1,13 @@
 ### SB 2.9.20
 
-> श्रीभगवानुवाच
-> त्वयाहं तोषितः सम्यग्वेदगर्भ सिसृक्षया ।
+> श्रीभगवानुवाच\
+> त्वयाहं तोषितः सम्यग्वेदगर्भ सिसृक्षया ।\
 > चिरं भृतेन तपसा दुस्तोषः कूटयोगिनाम् ॥२०॥
 
-> śrī-bhagavān uvāca
-> tvayāhaṁ toṣitaḥ samyag
-> veda-garbha sisṛkṣayā
-> ciraṁ bhṛtena tapasā
+> śrī-bhagavān uvāca\
+> tvayāhaṁ toṣitaḥ samyag\
+> veda-garbha sisṛkṣayā\
+> ciraṁ bhṛtena tapasā\
 > dustoṣaḥ kūṭa-yoginām
 
 *śrī-bhagavān uvāca*—la supremamente hermosa Personalidad de Dios dijo; *tvayā*—por ti; *aham*—Yo estoy; *toṣitaḥ*—complacido; *samyak*—completo; *veda-garbha*—impregnado con los *Vedas*; *sisṛkṣayā*—para crear; *ciram*—por un largo tiempo; *bhṛtena*—acumulada; *tapasā*—por penitencia; *dustoṣaḥ*—muy difícil de complacer; *kūṭa-yoginām*—para los seudomísticos.

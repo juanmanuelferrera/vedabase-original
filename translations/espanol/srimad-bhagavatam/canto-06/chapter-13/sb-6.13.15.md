@@ -1,11 +1,11 @@
 ### SB 6.13.15
 
-> स आवसत्पुष्करनालतन्तूनलब्धभोगो यदिहाग्निदूतः
+> स आवसत्पुष्करनालतन्तूनलब्धभोगो यदिहाग्निदूतः\
 > वर्षाणि साहस्रमलक्षितोऽन्तः सञ्चिन्तयन्ब्रह्मवधाद्विमोक्षम ॥१५॥
 
-> sa āvasat puṣkara-nāla-tantūn
-> alabdha-bhogo yad ihāgni-dūtaḥ
-> varṣāṇi sāhasram alakṣito 'ntaḥ
+> sa āvasat puṣkara-nāla-tantūn\
+> alabdha-bhogo yad ihāgni-dūtaḥ\
+> varṣāṇi sāhasram alakṣito 'ntaḥ\
 > sañcintayan brahma-vadhād vimokṣam
 
 *saḥ*—él (Indra); *āvasat*—vivió; *puṣkara-nāla-tantūn*—en el entramado de las fibras de un tallo de loto; *alabdha-bhogaḥ*—sin ninguna comodidad material (privado de todos los bienes materiales necesarios); *yat*—que; *iha*—aquí; *agni-dūtaḥ*—el mensajero del dios del fuego; *varṣāṇi*—años celestiales; *sāhasram*—mil; *alakṣitaḥ*—invisible; *antaḥ*—dentro del corazón; *sañcintayan*—siempre pensando en; *brahma-vadhāt*—de matar a un *brāhmaṇa*; *vimokṣam*—liberación.

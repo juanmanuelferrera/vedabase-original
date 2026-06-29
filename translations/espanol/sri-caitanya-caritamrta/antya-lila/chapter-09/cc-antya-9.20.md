@@ -1,9 +1,9 @@
 ### CC Antya 9.20
 
-> তেঁহ কহে, — “স্থূলদ্রব্য নাহি যে গণি’ দিব ।
+> তেঁহ কহে, — “স্থূলদ্রব্য নাহি যে গণি’ দিব ।\
 > ক্রমে-ক্রমে বেচি’ কিনি’ দ্রব্য ভরিব ॥২০॥
 
-> teṅha kahe,--"sthūla-dravya nāhi ye gaṇi' diba
+> teṅha kahe,--"sthūla-dravya nāhi ye gaṇi' diba\
 > krame-krame veci' kini' dravya bhariba
 
 *teṅha kahe*—él respondió; *sthūla-dravya*—dinero en efectivo; *nāhi*—no hay; *ye*—que; *gaṇi'*—contando; *diba*—pueda dar; *krame-krame*—gradualmente; *veci' kini'*—comprando y vendiendo; *dravya*—mercancías; *bhariba*—llenaré.

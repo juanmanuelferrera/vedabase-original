@@ -1,11 +1,11 @@
 ### SB 4.12.40
 
-> महिमानं विलोक्यास्य नारदो भगवानृषिः ।
+> महिमानं विलोक्यास्य नारदो भगवानृषिः ।\
 > आतोद्यं वितुदञ्श्लोकान्सत्रेऽगायत्प्रचेतसाम् ॥४०॥
 
-> mahimānaṁ vilokyāsya
-> nārado bhagavān ṛṣiḥ
-> ātodyaṁ vitudañ ślokān
+> mahimānaṁ vilokyāsya\
+> nārado bhagavān ṛṣiḥ\
+> ātodyaṁ vitudañ ślokān\
 > satre 'gāyat pracetasām
 
 *mahimānam*—glories; *vilokya*—observing; *asya*—of Dhruva Mahārāja; *nāradaḥ*—the great sage Nārada; *bhagavān*—equally as exalted as the Supreme Personality of Godhead; *ṛṣiḥ*—the saint; *ātodyam*—the stringed instrument, *vīṇā*; *vitudan*—playing on; *ślokān*—verses; *satre*—in the sacrificial arena; *agāyat*—chanted; *pracetasām*—of the Pracetās.

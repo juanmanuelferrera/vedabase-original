@@ -1,13 +1,13 @@
 ### SB 5.1.1
 
-> राजोवाच
-> प्रियव्रतो भागवताअत्मारामः कथं मुने
+> राजोवाच\
+> प्रियव्रतो भागवताअत्मारामः कथं मुने\
 > गृहेऽरमत यन्मूलः कर्मबन्धः पराभवः ॥१॥
 
-> rājovāca
-> priyavrato bhāgavata
-> ātmārāmaḥ kathaṁ mune
-> gṛhe 'ramata yan-mūlaḥ
+> rājovāca\
+> priyavrato bhāgavata\
+> ātmārāmaḥ kathaṁ mune\
+> gṛhe 'ramata yan-mūlaḥ\
 > karma-bandhaḥ parābhavaḥ
 
 *rājā uvāca*—el rey Parīkṣit dijo; *priya-vrataḥ*—el rey Priyavrata; *bhāgavataḥ*—el gran devoto; *ātma-ārāmaḥ*—que obtiene placer de la autorrealización; *katham*—por qué; *mune*—¡oh, gran sabio!; *gṛhe*—en el hogar; *aramata*—disfrutó; *yat-mūlaḥ*—que tiene por causa básica; *karma-bandhaḥ*—el cautiverio de las actividades fruitivas; *parābhavaḥ*—el malogro de la misión de la vida humana.

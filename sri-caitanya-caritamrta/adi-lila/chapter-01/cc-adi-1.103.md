@@ -1,9 +1,9 @@
 ### CC Adi 1.103
 
-> সেই দুই প্রভুর করি চরণ বন্দন ।
+> সেই দুই প্রভুর করি চরণ বন্দন ।\
 > যাঁহা হইতে বিঘ্ননাশ অভীষ্টপূরণ ॥১০৩॥
 
-> sei dui prabhura kari caraṇa vandana
+> sei dui prabhura kari caraṇa vandana\
 > yāṅhā ha-ite vighna-nāśa abhīṣṭa-pūraṇa
 
 *sei*—these; *dui*—two; *prabhura*—of the Lords; *kari*—I do; *caraṇa*—feet; *vandana*—obeisance; *yāṅhā ha-ite*—from which; *vighna-nāśa*—destruction of obstacles; *abhīṣṭa-pūraṇa*—fulfillment of desires.

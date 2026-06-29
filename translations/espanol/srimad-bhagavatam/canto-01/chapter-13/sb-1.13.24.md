@@ -1,11 +1,11 @@
 ### SB 1.13.24
 
-> अग्निर्निसृष्टो दत्तश्च गरो दाराश्च दूषिताः ।
+> अग्निर्निसृष्टो दत्तश्च गरो दाराश्च दूषिताः ।\
 > हृतं क्षेत्रं धनं येषां तद्दत्तैरसुभिः कियत् ॥२४॥
 
-> agnir nisṛṣṭo dattaś ca
-> garo dārāś ca dūṣitāḥ
-> hṛtaṁ kṣetraṁ dhanaṁ yeṣāṁ
+> agnir nisṛṣṭo dattaś ca\
+> garo dārāś ca dūṣitāḥ\
+> hṛtaṁ kṣetraṁ dhanaṁ yeṣāṁ\
 > tad-dattair asubhiḥ kiyat
 
 *agniḥ*—fuego; *nisṛṣṭaḥ*—enciende; *dattaḥ*—administrado; *ca*—y; *garaḥ*—veneno; *dārāḥ*—esposa; *ca*—y; *dūṣitāḥ*—insultaste; *hṛtam*—usurpaste; *kṣetram*—reino; *dhanam*—riqueza; *yeṣām*—de aquellos; *tat*—sus; *dattaiḥ*—dado por; *asubhiḥ*—subsistiendo; *kiyat*—es innecesario.

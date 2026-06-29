@@ -1,11 +1,11 @@
 ### SB 3.6.5
 
-> परेण विशता स्वस्मिन्मात्रया विश्वसृग्गणः ।
+> परेण विशता स्वस्मिन्मात्रया विश्वसृग्गणः ।\
 > चुक्षोभान्योन्यमासाद्य यस्मिन्लोकाश्चराचराः ॥५॥
 
-> pareṇa viśatā svasmin
-> mātrayā viśva-sṛg-gaṇaḥ
-> cukṣobhānyonyam āsādya
+> pareṇa viśatā svasmin\
+> mātrayā viśva-sṛg-gaṇaḥ\
+> cukṣobhānyonyam āsādya\
 > yasmin lokāś carācarāḥ
 
 *pareṇa*—por el Señor; *viśatā*—entrando así; *svasmin*—mediante Su propio ser; *mātrayā*—mediante una porción plenaria; *viśva-sṛk*—los elementos de la creación universal; *gaṇaḥ*—todos; *cukṣobha*—transformados; *anyonyam*—entre sí; *āsādya*—habiendo obtenido; *yasmin*—en la cual; *lokāḥ*—los planetas; *cara-acarāḥ*—móviles e inmóviles.

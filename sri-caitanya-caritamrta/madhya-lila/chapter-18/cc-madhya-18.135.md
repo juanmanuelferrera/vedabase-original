@@ -1,9 +1,9 @@
 ### CC Madhya 18.135
 
-> একদিন সেই অক্রূর-ঘাটের উপরে ।
+> একদিন সেই অক্রূর-ঘাটের উপরে ।\
 > বসি’ মহাপ্রভু কিছু করেন বিচারে ॥১৩৫॥
 
-> eka-dina sei akrūra-ghāṭera upare
+> eka-dina sei akrūra-ghāṭera upare\
 > vasi' mahāprabhu kichu karena vicāre
 
 *eka-dina*—once upon a time; *sei*—that; *akrūra-ghāṭera*—of the Akrūra bathing ghat; *upare*—on the bank; *vasi'*—sitting; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *kichu*—some; *karena*—does; *vicāre*—consideration.

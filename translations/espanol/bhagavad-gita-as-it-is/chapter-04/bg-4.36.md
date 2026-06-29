@@ -1,11 +1,11 @@
 ### Bg 4.36
 
-> अपि चेदसि पापेभ्यः सर्वेभ्यः पापकृत्तमः ।
+> अपि चेदसि पापेभ्यः सर्वेभ्यः पापकृत्तमः ।\
 > सर्वं ज्ञानप्लवेनैव वृजिनं सन्तरिष्यसि ॥३६॥
 
-> api ced asi pāpebhyaḥ
-> sarvebhyaḥ pāpa-kṛttamaḥ
-> sarvaṁ jñāna-plavenaiva
+> api ced asi pāpebhyaḥ\
+> sarvebhyaḥ pāpa-kṛttamaḥ\
+> sarvaṁ jñāna-plavenaiva\
 > vṛjinaṁ santariṣyasi
 
 *api*—incluso; *cet*—si; *asi*—tú eres; *pāpebhyaḥ*—de los pecadores; *sarvebhyaḥ*—de todos; *pāpa-kṛttamaḥ*—el mayor pecador; *sarvam*—todas esas reacciones pecaminosas; *jñāna-plavena*—por medio del bote del conocimiento trascendental; *eva*—ciertamente; *vṛjinam*—el océano de las miserias; *santariṣyasi*—cruzarás por completo.

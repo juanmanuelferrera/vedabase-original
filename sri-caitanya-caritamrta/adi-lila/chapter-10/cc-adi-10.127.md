@@ -1,9 +1,9 @@
 ### CC Adi 10.127
 
-> ইত্যাদিক পূর্বসঙ্গী বড় ভক্তগণ ।
+> ইত্যাদিক পূর্বসঙ্গী বড় ভক্তগণ ।\
 > নীলাচলে রহি’ করে প্রভুর সেবন ॥১২৭॥
 
-> ityādika pūrva-saṅgī baḍa bhakta-gaṇa
+> ityādika pūrva-saṅgī baḍa bhakta-gaṇa\
 > nīlācale rahi' kare prabhura sevana
 
 *iti-ādika*—all these and others; *pūrva-saṅgī*—former associates; *baḍa*—very; *bhakta-gaṇa*—great devotees; *nīlācale*—at Jagannātha Purī; *rahi'*—remaining; *kare*—do; *prabhura*—of the Lord; *sevana*—service.

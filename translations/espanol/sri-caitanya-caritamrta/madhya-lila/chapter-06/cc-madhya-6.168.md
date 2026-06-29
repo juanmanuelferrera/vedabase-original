@@ -1,9 +1,9 @@
 ### CC Madhya 6.168
 
-> বেদ না মানিয়া বৌদ্ধ হয় ত’ নাস্তিক ।
+> বেদ না মানিয়া বৌদ্ধ হয় ত’ নাস্তিক ।\
 > বেদাশ্রয় নাস্তিক্য-বাদ বৌদ্ধকে অধিক ॥১৬৮॥
 
-> veda nā māniyā bauddha haya ta' nāstika
+> veda nā māniyā bauddha haya ta' nāstika\
 > vedāśraya nāstikya-vāda bauddhake adhika
 
 *veda*—la literatura Védica; *nā*—no; *māniyā*—aceptando; *bauddha*—los budistas; *haya*—son; *ta'*—ciertamente; *nāstika*—agnósticos; *veda-āśraya*—refugiándose en la civilización Védica; *nāstikya-vāda*—agnosticismo; *bauddhake*—incluso a los budistas; *adhika*—superando.

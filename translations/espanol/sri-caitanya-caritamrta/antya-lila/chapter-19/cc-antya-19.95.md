@@ -1,13 +1,13 @@
 ### CC Antya 19.95
 
-> হেম-কীলিত চন্দন, তাহা করি’ ঘর্ষণ,
-> তাহে অগুরু, কুঙ্কুম, কস্তূরী ।
-> কর্পূর-সনে চর্চা অঙ্গে, পূর্ব অঙ্গের গন্ধ সঙ্গে,
+> হেম-কীলিত চন্দন, তাহা করি’ ঘর্ষণ,\
+> তাহে অগুরু, কুঙ্কুম, কস্তূরী ।\
+> কর্পূর-সনে চর্চা অঙ্গে, পূর্ব অঙ্গের গন্ধ সঙ্গে,\
 > মিলি’ তারে যেন কৈল চুরি ॥৯৫॥
 
-> hema-kīlita candana, tāhā kari' gharṣaṇa,
-> tāhe aguru, kuṅkuma, kastūrī
-> karpūra-sane carcā aṅge, pūrva aṅgera gandha saṅge,
+> hema-kīlita candana, tāhā kari' gharṣaṇa,\
+> tāhe aguru, kuṅkuma, kastūrī\
+> karpūra-sane carcā aṅge, pūrva aṅgera gandha saṅge,\
 > mili' tāre yena kaila curi
 
 *hema*—con oro; *kīlita*—engalanado; *candana*—sándalo blanco; *tāhā*—eso; *kari'*—haciendo; *gharṣaṇa*—frotar; *tāhe*—en eso; *aguru*—la esencia de aguru; *kuṅkuma*—kuṅkuma; *kastūrī*—y almizcle; *karpūra*—alcanfor; *sane*—con; *carcā*—untar; *aṅge*—en el cuerpo; *pūrva*—anterior; *aṅgera*—del cuerpo; *gandha*—fragancia; *saṅge*—con; *mili'*—combinándose; *tāre*—eso; *yena*—como si; *kaila*—hizo; *curi*—robar o cubrir.

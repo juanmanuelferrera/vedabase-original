@@ -1,11 +1,11 @@
 ### SB 3.7.10
 
-> यदर्थेन विनामुष्य पुंस आत्मविपर्ययः ।
+> यदर्थेन विनामुष्य पुंस आत्मविपर्ययः ।\
 > प्रतीयत उपद्रष्टुः स्वशिरश्छेदनादिकः ॥१०॥
 
-> yad arthena vināmuṣya
-> puṁsa ātma-viparyayaḥ
-> pratīyata upadraṣṭuḥ
+> yad arthena vināmuṣya\
+> puṁsa ātma-viparyayaḥ\
+> pratīyata upadraṣṭuḥ\
 > sva-śiraś chedanādikaḥ
 
 *yat*—así pues; *arthena*—un propósito o significado; *vinā*—sin; *amuṣya*—de alguien así; *puṁsaḥ*—de la entidad viviente; *ātma-viparyayaḥ*—afligida por la identidad del ser; *pratīyate*—así parecen; *upadraṣṭuḥ*—del espectador superficial; *sva-śiraḥ*—su propia cabeza; *chedana-ādikaḥ*—cortando.

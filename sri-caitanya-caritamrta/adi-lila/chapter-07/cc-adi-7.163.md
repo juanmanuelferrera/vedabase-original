@@ -1,9 +1,9 @@
 ### CC Adi 7.163
 
-> এই পঞ্চতত্ত্বরূপে শ্রীকৃষ্ণচৈতন্য ।
+> এই পঞ্চতত্ত্বরূপে শ্রীকৃষ্ণচৈতন্য ।\
 > কৃষ্ণ-নাম-প্রেম দিয়া বিশ্ব কৈলা ধন্য ॥১৬৩॥
 
-> ei pañca-tattva-rūpe śrī-kṛṣṇa-caitanya
+> ei pañca-tattva-rūpe śrī-kṛṣṇa-caitanya\
 > kṛṣṇa-nāma-prema diyā viśva kailā dhanya
 
 *ei*—this; *pañca-tattva-rūpe*—the Lord in His five forms; *śrī-kṛṣṇa-caitanya*—Lord Śrī Caitanya Mahāprabhu; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *prema*—love of Kṛṣṇa; *diyā*—delivering; *viśva*—the whole world; *kailā*—made; *dhanya*—thankful.

@@ -1,11 +1,11 @@
 ### SB 6.1.26
 
-> भुञ्जानः प्रपिबन्खादन्बालकं स्नेहयन्त्रितः
+> भुञ्जानः प्रपिबन्खादन्बालकं स्नेहयन्त्रितः\
 > भोजयन्पाययन्मूढो न वेदागतमन्तकम ॥२६॥
 
-> bhuñjānaḥ prapiban khādan
-> bālakaṁ sneha-yantritaḥ
-> bhojayan pāyayan mūḍho
+> bhuñjānaḥ prapiban khādan\
+> bālakaṁ sneha-yantritaḥ\
+> bhojayan pāyayan mūḍho\
 > na vedāgatam antakam
 
 *bhuñjānaḥ*—mientras comía; *prapiban*—mientras bebía; *khādan*—mientras masticaba; *bālakam*—al niño; *sneha-yantritaḥ*—apegado con cariño; *bhojayan*—alimentar; *pāyayan*—dar algo de beber; *mūḍhaḥ*—el hombre necio; *na*—no; *veda*—entendía; *āgatam*—había llegado; *antakam*—la muerte.

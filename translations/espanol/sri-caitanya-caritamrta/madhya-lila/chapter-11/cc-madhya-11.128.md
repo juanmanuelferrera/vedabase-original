@@ -1,9 +1,9 @@
 ### CC Madhya 11.128
 
-> premānande hailā duṅhe parama asthira
+> premānande hailā duṅhe parama asthira\
 > samaya dekhiyā prabhu hailā kichu dhīra
 
-> premānande hailā duṅhe parama asthira
+> premānande hailā duṅhe parama asthira\
 > samaya dekhiyā prabhu hailā kichu dhīra
 
 *prema-ānande*—en amor extático; *hailā*—quedaron; *duṅhe*—ambos; *parama asthira*—sumamente agitados; *samaya*—el momento; *dekhiyā*—viendo; *prabhu*—el Señor; *hailā*—Se volvió; *kichu*—un poco; *dhīra*—paciente.

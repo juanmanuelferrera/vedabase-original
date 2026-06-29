@@ -1,11 +1,11 @@
 ### SB 4.8.18
 
-> सत्यं सुरुच्याभिहितं भवान्मे यद्दुर्भगाया उदरे गृहीतः ।
+> सत्यं सुरुच्याभिहितं भवान्मे यद्दुर्भगाया उदरे गृहीतः ।\
 > स्तन्येन वृद्धश्च विलज्जते यां भार्येति वा वोढुमिडस्पतिर्माम् ॥१८॥
 
-> satyaṁ surucyābhihitaṁ bhavān me
-> yad durbhagāyā udare gṛhītaḥ
-> stanyena vṛddhaś ca vilajjate yāṁ
+> satyaṁ surucyābhihitaṁ bhavān me\
+> yad durbhagāyā udare gṛhītaḥ\
+> stanyena vṛddhaś ca vilajjate yāṁ\
 > bhāryeti vā voḍhum iḍaspatir mām
 
 *satyam*—truth; *surucyā*—by Queen Suruci; *abhihitam*—narrated; *bhavān*—unto you; *me*—of me; *yat*—because; *durbhagāyāḥ*—of the unfortunate; *udare*—in the womb; *gṛhītaḥ*—taken birth; *stanyena*—fed by the breast milk; *vṛddhaḥ ca*—grown up; *vilajjate*—becomes ashamed; *yām*—unto one; *bhāryā*—wife; *iti*—thus; *vā*—or; *voḍhum*—to accept; *iḍaḥ-patiḥ*—the King; *mām*—me.

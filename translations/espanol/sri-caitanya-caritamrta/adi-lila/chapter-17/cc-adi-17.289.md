@@ -1,9 +1,9 @@
 ### CC Adi 17.289
 
-> এত বলি নমস্করি’ গেলা গোপীগণ ।
+> এত বলি নমস্করি’ গেলা গোপীগণ ।\
 > হেনকালে রাধা আসি’ দিলা দরশন ॥২৮৯॥
 
-> eta bali namaskari' gelā gopī-gaṇa
+> eta bali namaskari' gelā gopī-gaṇa\
 > hena-kāle rādhā āsi' dilā daraśana
 
 *eta bali*—diciendo esto; *namaskari'*—ofreciendo reverencias; *gelā*—se marcharon; *gopī-gaṇa*—todas las gopīs; *hena-kāle*—en ese momento; *rādhā*—Śrīmatī Rādhārāṇī; *āsi'*—llegando allí; *dilā*—otorgó; *daraśana*—audiencia.

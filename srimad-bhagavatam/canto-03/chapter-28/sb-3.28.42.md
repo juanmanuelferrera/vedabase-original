@@ -1,11 +1,11 @@
 ### SB 3.28.42
 
-> सर्वभूतेषु चात्मानं सर्वभूतानि चात्मनि ।
+> सर्वभूतेषु चात्मानं सर्वभूतानि चात्मनि ।\
 > ईक्षेतानन्यभावेन भूतेष्विव तदात्मताम् ॥४२॥
 
-> sarva-bhūteṣu cātmānaṁ
-> sarva-bhūtāni cātmani
-> īkṣetānanya-bhāvena
+> sarva-bhūteṣu cātmānaṁ\
+> sarva-bhūtāni cātmani\
+> īkṣetānanya-bhāvena\
 > bhūteṣv iva tad-ātmatām
 
 *sarva-bhūteṣu*—in all manifestations; *ca*—and; *ātmānam*—the soul; *sarva-bhūtāni*—all manifestations; *ca*—also; *ātmani*—in the Supreme Spirit; *īkṣeta*—he should see; *ananya-bhāvena*—with equal vision; *bhūteṣu*—in all manifestations; *iva*—as; *tat-ātmatām*—the nature of itself.

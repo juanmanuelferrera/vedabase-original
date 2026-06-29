@@ -1,11 +1,11 @@
 ### SB 4.21.26
 
-> यूयं तदनुमोदध्वं पितृदेवर्षयोऽमलाः ।
+> यूयं तदनुमोदध्वं पितृदेवर्षयोऽमलाः ।\
 > कर्तुः शास्तुरनुज्ञातुस्तुल्यं यत्प्रेत्य तत्फलम् ॥२६॥
 
-> yūyaṁ tad anumodadhvaṁ
-> pitṛ-devarṣayo 'malāḥ
-> kartuḥ śāstur anujñātus
+> yūyaṁ tad anumodadhvaṁ\
+> pitṛ-devarṣayo 'malāḥ\
+> kartuḥ śāstur anujñātus\
 > tulyaṁ yat pretya tat phalam
 
 *yūyam*—todos ustedes, respetables personas aquí presentes; *tat*—esa; *anumodadhvam*—por favor, aprueben mi propuesta; *pitṛ*—personas que vienen de Pitṛloka; *deva*—personas que vienen de los planetas celestiales; *ṛṣayaḥ*—grandes sabios y personas santas; *amalāḥ*—los que estan limpios de toda acción pecaminosa; *kartuḥ*—el ejecutor; *śāstuḥ*—el que da la orden; *anujñātuḥ*—del que apoya; *tulyam*—igual; *yat*—lo cual; *pretya*—tras la muerte; *tat*—ese; *phalam*—resultado.

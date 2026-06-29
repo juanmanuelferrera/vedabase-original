@@ -1,18 +1,18 @@
 ### SB 4.18.9-10
 
-> वत्सं कल्पय मे वीर येनाहं वत्सला तव ।
-> धोक्ष्ये क्षीरमयान्कामाननुरूपं च दोहनम् ॥९॥
-> दोग्धारं च महाबाहो भूतानां भूतभावन ।
+> वत्सं कल्पय मे वीर येनाहं वत्सला तव ।\
+> धोक्ष्ये क्षीरमयान्कामाननुरूपं च दोहनम् ॥९॥\
+> दोग्धारं च महाबाहो भूतानां भूतभावन ।\
 > अन्नमीप्सितमूर्जस्वद्भगवान्वाञ्छते यदि ॥१०॥
 
-> vatsaṁ kalpaya me vīra
-> yenāhaṁ vatsalā tava
-> dhokṣye kṣīramayān kāmān
+> vatsaṁ kalpaya me vīra\
+> yenāhaṁ vatsalā tava\
+> dhokṣye kṣīramayān kāmān\
 > anurūpaṁ ca dohanam
 
-> dogdhāraṁ ca mahā-bāho
-> bhūtānāṁ bhūta-bhāvana
-> annam īpsitam ūrjasvad
+> dogdhāraṁ ca mahā-bāho\
+> bhūtānāṁ bhūta-bhāvana\
+> annam īpsitam ūrjasvad\
 > bhagavān vāñchate yadi
 
 *vatsam*—un ternero; *kalpaya*—dispón; *me*—para mí; *vīra*—¡oh, héroe!; *yena*—por el cual; *aham*—yo; *vatsalā*—afectuosa; *tava*—tuyas; *dhokṣye*—satisfaré; *kṣīra-mayān*—en forma de leche; *kāmān*—las cosas deseadas; *anurūpam*—conforme a distintas entidades vivientes; *ca*—también; *dohanam*—vasija para el ordeño; *dogdhāram*—ordeñador; *ca*—también; *mahā-bāho*—¡oh, tú, el de los poderosos brazos!; *bhūtānām*—de todas las entidades vivientes; *bhūta-bhāvana*—¡oh, protector de todas las entidades vivientes!; *annam*—cereales; *īpsitam*—deseados; *ūrjaḥ-vat*—alimentar; *bhagavān*—Tu adorable persona; *vāñchate*—deseas; *yadi*—si.

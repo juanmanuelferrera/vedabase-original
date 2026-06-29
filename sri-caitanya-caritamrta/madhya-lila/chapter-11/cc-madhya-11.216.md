@@ -1,9 +1,9 @@
 ### CC Madhya 11.216
 
-> অষ্ট মৃদঙ্গ বাজে, বত্রিশ করতাল ।
+> অষ্ট মৃদঙ্গ বাজে, বত্রিশ করতাল ।\
 > হরিধ্বনি করে সবে, বলে — ভাল, ভাল ॥২১৬॥
 
-> aṣṭa mṛdaṅga bāje, batriśa karatāla
+> aṣṭa mṛdaṅga bāje, batriśa karatāla\
 > hari-dhvani kare sabe, bale-bhāla, bhāla
 
 *aṣṭa mṛdaṅga*—eight *mṛdaṅgas*; *bāje*—sounded; *batriśa*—thirty-two; *karatāla*—cymbals; *hari-dhvani*—vibrating the transcendental sound; *kare*—does; *sabe*—every one of them; *bale*—says; *bhāla bhāla*—very good, very good.

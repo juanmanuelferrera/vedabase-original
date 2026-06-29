@@ -1,11 +1,11 @@
 ### CC Madhya 24.178
 
-> সরসি সারসহংসবিহঙ্গাশ্চারুগীতহৃতচেতস এত্য ।
+> সরসি সারসহংসবিহঙ্গাশ্চারুগীতহৃতচেতস এত্য ।\
 > হরিমুপাসত তে যতচিত্তা হন্ত মীলিতদৃশো ধৃতমৌনাঃ ॥১৭৮॥
 
-> sarasi sārasa-haṁsa-vihaṅgāś
-> cāru-gīta-hṛta-cetasa etya
-> harim upāsata te yata-cittā
+> sarasi sārasa-haṁsa-vihaṅgāś\
+> cāru-gīta-hṛta-cetasa etya\
+> harim upāsata te yata-cittā\
 > hanta mīlita-dṛśo dhṛta-maunāḥ
 
 *sarasi*—en el agua; *sārasa*—grullas; *haṁsa*—cisnes; *vihaṅgāḥ*—pájaros; *cāru-gīta*—por el melodioso canto de la flauta de Kṛṣṇa; *hṛta-cetasaḥ*—desprovistos de conciencia material; *etya*—acercándose; *harim*—la Suprema Personalidad de Dios; *upāsata*—adoraron; *te*—todos ellos; *yata-cittāḥ*—con plena atención; *hanta*—¡ay!; *mīlita-dṛśaḥ*—cerrando los ojos; *dhṛta-maunāḥ*—completamente en silencio.

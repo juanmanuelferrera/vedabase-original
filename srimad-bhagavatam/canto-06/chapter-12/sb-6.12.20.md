@@ -1,11 +1,11 @@
 ### SB 6.12.20
 
-> भवानतार्षीन्मायां वै वैष्णवीं जनमोहिनीम
+> भवानतार्षीन्मायां वै वैष्णवीं जनमोहिनीम\
 > यद्विहायासुरं भावं महापुरुषतां गतः ॥२०॥
 
-> bhavān atārṣīn māyāṁ vai
-> vaiṣṇavīṁ jana-mohinīm
-> yad vihāyāsuraṁ bhāvaṁ
+> bhavān atārṣīn māyāṁ vai\
+> vaiṣṇavīṁ jana-mohinīm\
+> yad vihāyāsuraṁ bhāvaṁ\
 > mahā-puruṣatāṁ gataḥ
 
 *bhavān*—your good self; *atārṣīt*—has surmounted; *māyām*—the illusory energy; *vai*—indeed; *vaiṣṇavīm*—of Lord Viṣṇu; *jana-mohinīm*—which deludes the mass of people; *yat*—since; *vihāya*—giving up; *āsuram*—of the demons; *bhāvam*—the mentality; *mahā-puruṣatām*—the position of an exalted devotee; *gataḥ*—obtained.

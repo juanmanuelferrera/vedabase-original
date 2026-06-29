@@ -1,11 +1,11 @@
 ### SB 9.9.47
 
-> अथेशमायारचितेषु सङ्गं गुणेषु गन्धर्वपुरोपमेषु
+> अथेशमायारचितेषु सङ्गं गुणेषु गन्धर्वपुरोपमेषु\
 > रूढं प्रकृत्यात्मनि विश्वकर्तुर्भावेन हित्वा तमहं प्रपद्ये ॥४७॥
 
-> atheśa-māyā-raciteṣu saṅgaṁ
-> guṇeṣu gandharva-puropameṣu
-> rūḍhaṁ prakṛtyātmani viśva-kartur
+> atheśa-māyā-raciteṣu saṅgaṁ\
+> guṇeṣu gandharva-puropameṣu\
+> rūḍhaṁ prakṛtyātmani viśva-kartur\
 > bhāvena hitvā tam ahaṁ prapadye
 
 *atha*—therefore; *īśa-māyā*—by the external potency of the Supreme Personality of Godhead; *raciteṣu*—in things manufactured; *saṅgam*—attachment; *guṇeṣu*—in the modes of material nature; *gandharva-pura-upameṣu*—which are compared to the illusion of a *gandharva-pura,* a town or houses seen in the forest or on a hill; *rūḍham*—very powerful; *prakṛtyā*—by material nature; *ātmani*—unto the Supersoul; *viśva-kartuḥ*—of the creator of the whole universe; *bhāvena*—by devotional service; *hitvā*—giving up; *tam*—unto Him (the Lord); *aham*—I; *prapadye*—surrender.

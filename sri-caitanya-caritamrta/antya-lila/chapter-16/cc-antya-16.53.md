@@ -1,13 +1,13 @@
 ### CC Antya 16.53
 
-> ইতো নৃসিংহঃ পরতো নৃসিংহো
-> যতো যতো যামি ততো নৃসিংহঃ ।
-> বহির্নৃসিংহো হৃদয়ে নৃসিংহো
+> ইতো নৃসিংহঃ পরতো নৃসিংহো\
+> যতো যতো যামি ততো নৃসিংহঃ ।\
+> বহির্নৃসিংহো হৃদয়ে নৃসিংহো\
 > নৃসিংহমাদিং শরণং প্রপদ্যে ॥৫৩॥
 
-> ito nṛsiṁhaḥ parato nṛsiṁho
-> yato yato yāmi tato nṛsiṁhaḥ
-> bahir nṛsiṁho hṛdaye nṛsiṁho
+> ito nṛsiṁhaḥ parato nṛsiṁho\
+> yato yato yāmi tato nṛsiṁhaḥ\
+> bahir nṛsiṁho hṛdaye nṛsiṁho\
 > nṛsiṁham ādiṁ śaraṇaṁ prapadye
 
 *itaḥ*—here; *nṛsiṁhaḥ*—Lord Nṛsiṁha; *parataḥ*—on the opposite side; *nṛsiṁhaḥ*—Lord Nṛsiṁha; *yataḥ yataḥ*—wherever; *yāmi*—I go; *tataḥ*—there; *nṛsiṁhaḥ*—Lord Nṛsiṁha; *bahiḥ*—outside; *nṛsiṁhaḥ*—Lord Nṛsiṁha; *hṛdaye*—in my heart; *nṛsiṁhaḥ*—Lord Nṛsiṁha; *nṛsiṁham*—Lord Nṛsiṁha; *ādim*—the original Supreme Personality; *śaraṇam prapadye*—I take shelter of.

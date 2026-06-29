@@ -1,13 +1,13 @@
 ### SB 9.18.5
 
-> श्रीराजोवाच
-> ब्रह्मर्षिर्भगवान्काव्यः क्षत्रबन्धुश्च नाहुषः
+> श्रीराजोवाच\
+> ब्रह्मर्षिर्भगवान्काव्यः क्षत्रबन्धुश्च नाहुषः\
 > राजन्यविप्रयोः कस्माद्विवाहः प्रतिलोमकः ॥५॥
 
-> śrī-rājovāca
-> brahmarṣir bhagavān kāvyaḥ
-> kṣatra-bandhuś ca nāhuṣaḥ
-> rājanya-viprayoḥ kasmād
+> śrī-rājovāca\
+> brahmarṣir bhagavān kāvyaḥ\
+> kṣatra-bandhuś ca nāhuṣaḥ\
+> rājanya-viprayoḥ kasmād\
 > vivāhaḥ pratilomakaḥ
 
 *śrī-rājā uvāca*—Mahārāja Parīkṣit preguntó; *brahma-ṛṣiḥ*—el mejor de los *brāhmaṇas*; *bhagavān*—muy poderoso; *kāvyaḥ*—Śukrācārya; *kṣatra-bandhuḥ*—que pertenecía a la clase *kṣatriya*; *ca*—también; *nāhuṣaḥ*—el rey Yayāti; *rājanya-viprayoḥ*—de una *brāhmaṇa* y un *kṣatriya*; *kasmāt*—cómo; *vivāhaḥ*—una relación matrimonial; *pratilomakaḥ*—en contra de los principios regulativos tradicionales.

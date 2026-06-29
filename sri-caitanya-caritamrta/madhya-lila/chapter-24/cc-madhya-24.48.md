@@ -1,13 +1,13 @@
 ### CC Madhya 24.48
 
-> স্বসুখনিভৃতচেতাস্তদ্ব্যুদস্তান্যভাবোঽ-
-> প্যজিতরুচিরলীলাকৃষ্টসারস্তদীয়ম্ ।
-> ব্যতনুত কৃপয়া যস্তত্ত্বদীপং পুরাণং
+> স্বসুখনিভৃতচেতাস্তদ্ব্যুদস্তান্যভাবোঽ-\
+> প্যজিতরুচিরলীলাকৃষ্টসারস্তদীয়ম্ ।\
+> ব্যতনুত কৃপয়া যস্তত্ত্বদীপং পুরাণং\
 > তমখিলবৃজিনঘ্নং ব্যাস-সূনুং নতোঽস্মি ॥৪৮॥
 
-> svasukha-nibhṛta-cetās tad-vyudastānya-bhāvo
-> 'py ajita-rucira-līlākṛṣṭa-sāras tadīyam
-> vyatanuta kṛpayā yas tattva-dīpaṁ purāṇaṁ
+> svasukha-nibhṛta-cetās tad-vyudastānya-bhāvo\
+> 'py ajita-rucira-līlākṛṣṭa-sāras tadīyam\
+> vyatanuta kṛpayā yas tattva-dīpaṁ purāṇaṁ\
 > tam akhila-vṛjina-ghnaṁ vyāsa-sūnuṁ nato 'smi
 
 *sva-sukha-nirbhṛta-cetāḥ*—whose mind was always fully absorbed in the happiness of self-realization; *tat*—by that; *vyudasta-anya-bhāvaḥ*—being freed from all other attractions; *api*—although; *ajita-rucira-līlā*—by the most attractive pastimes of Ajita, the Supreme Personality of Godhead; *ākṛṣṭa*—attracted; *sāraḥ*—whose heart; *tadīyam*—in relation to the Lord; *vyatanuta*—described and spread; *kṛpayā*—out of mercy; *yaḥ*—he who; *tattva-dīpam*—which is the light of the Absolute Truth; *purāṇam*—the supplementary Vedic literature *Śrīmad-Bhāgavatam*; *tam*—to him; *akhila-vṛjina-ghnam*—who can destroy all kinds of material misery; *vyāsa-sūnum*—Śukadeva Gosvāmī, the son of Vyāsadeva; *nataḥ asmi*—I offer my respectful obeisances.

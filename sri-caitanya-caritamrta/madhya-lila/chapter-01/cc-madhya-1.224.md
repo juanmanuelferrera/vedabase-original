@@ -1,9 +1,9 @@
 ### CC Madhya 1.224
 
-> যার সঙ্গে চলে এই লোক লক্ষকোটি ।
+> যার সঙ্গে চলে এই লোক লক্ষকোটি ।\
 > বৃন্দাবন-যাত্রার এ নহে পরিপাটী ॥২২৪॥
 
-> yāra saṅge cale ei loka lakṣa-koṭi
+> yāra saṅge cale ei loka lakṣa-koṭi\
 > vṛndāvana-yātrāra e nahe paripāṭī
 
 *yāra*—of whom; *saṅge*—in the company; *cale*—follow; *ei*—these; *loka*—people; *lakṣa-koṭi*—hundreds and thousands; *vṛndāvana-yātrāra*—of going to Vṛndāvana; *e*—this; *nahe*—not; *paripāṭī*—method.

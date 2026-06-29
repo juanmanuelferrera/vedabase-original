@@ -1,11 +1,11 @@
 ### SB 4.31.11
 
-> श्रुतेन तपसा वा किं वचोभिश्चित्तवृत्तिभिः ।
+> श्रुतेन तपसा वा किं वचोभिश्चित्तवृत्तिभिः ।\
 > बुद्ध्या वा किं निपुणया बलेनेन्द्रियराधसा ॥११॥
 
-> śrutena tapasā vā kiṁ
-> vacobhiś citta-vṛttibhiḥ
-> buddhyā vā kiṁ nipuṇayā
+> śrutena tapasā vā kiṁ\
+> vacobhiś citta-vṛttibhiḥ\
+> buddhyā vā kiṁ nipuṇayā\
 > balenendriya-rādhasā
 
 *śrutena*—con educación védica; *tapasā*—con austeridades; *vā*—o; *kim*—qué sentido tiene; *vacobhiḥ*—con palabras; *citta*—de conciencia; *vṛttibhiḥ*—con las ocupaciones; *buddhyā*—con inteligencia; *vā*—o; *kim*—qué; *nipuṇayā*—experto; *balena*—con fuerza física; *indriya-rādhasā*—con poder de los sentidos.

@@ -1,9 +1,9 @@
 ### CC Adi 7.26
 
-> সজ্জন, দুর্জন, পঙ্গু, জড়, অন্ধগণ ।
+> সজ্জন, দুর্জন, পঙ্গু, জড়, অন্ধগণ ।\
 > প্রেমবন্যায় ডুবাইল জগতের জন ॥২৬॥
 
-> saj-jana, durjana, paṅgu, jaḍa, andha-gaṇa
+> saj-jana, durjana, paṅgu, jaḍa, andha-gaṇa\
 > prema-vanyāya ḍubāila jagatera jana
 
 *sat-jana*—caballeros; *durjana*—bribones; *paṅgu*—cojos; *jaḍa*—inválidos; *andha-gaṇa*—ciegos; *prema-vanyāya*—en la inundación de amor por Dios; *ḍubāila*—ahogados; *jagatera*—de todo el mundo; *jana*—personas.

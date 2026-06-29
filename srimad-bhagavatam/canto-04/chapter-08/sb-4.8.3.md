@@ -1,11 +1,11 @@
 ### SB 4.8.3
 
-> तयोः समभवल्लोभो निकृतिश्च महामते ।
+> तयोः समभवल्लोभो निकृतिश्च महामते ।\
 > ताभ्यां क्रोधश्च हिंसा च यद्दुरुक्तिः स्वसा कलिः ॥३॥
 
-> tayoḥ samabhaval lobho
-> nikṛtiś ca mahā-mate
-> tābhyāṁ krodhaś ca hiṁsā ca
+> tayoḥ samabhaval lobho\
+> nikṛtiś ca mahā-mate\
+> tābhyāṁ krodhaś ca hiṁsā ca\
 > yad duruktiḥ svasā kaliḥ
 
 *tayoḥ*—those two; *samabhavat*—were born; *lobhaḥ*—Greed; *nikṛtiḥ*—Cunning; *ca*—and; *mahā-mate*—O great soul; *tābhyām*—from both of them; *krodhaḥ*—Anger; *ca*—and; *hiṁsā*—Envy; *ca*—and; *yat*—from both of whom; *duruktiḥ*—Harsh Speech; *svasā*—sister; *kaliḥ*—Kali.

@@ -1,11 +1,11 @@
 ### SB 2.5.17
 
-> तस्यापि द्रष्टुरीशस्य कूटस्थस्याखिलात्मनः ।
+> तस्यापि द्रष्टुरीशस्य कूटस्थस्याखिलात्मनः ।\
 > सृज्यं सृजामि सृष्टोऽहमीक्षयैवाभिचोदितः ॥१७॥
 
-> tasyāpi draṣṭur īśasya
-> kūṭa-sthasyākhilātmanaḥ
-> sṛjyaṁ sṛjāmi sṛṣṭo 'ham
+> tasyāpi draṣṭur īśasya\
+> kūṭa-sthasyākhilātmanaḥ\
+> sṛjyaṁ sṛjāmi sṛṣṭo 'ham\
 > īkṣayaivābhicoditaḥ
 
 *tasya*—His; *api*—certainly; *draṣṭuḥ*—of the seer; *īśasya*—of the controller; *kūṭa-sthasya*—of the one who is over everyone's intelligence; *akhila-ātmanaḥ*—of the Supersoul; *sṛjyam*—that which is already created; *sṛjāmi*—do I discover; *sṛṣṭaḥ*—created; *aham*—myself; *īkṣayā*—by glance over; *eva*—exactly; *abhicoditaḥ*—being inspired by Him.

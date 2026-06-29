@@ -1,9 +1,9 @@
 ### CC Antya 4.65
 
-> কুবুদ্ধি ছাড়িয়া কর শ্রবণ-কীর্তন ।
+> কুবুদ্ধি ছাড়িয়া কর শ্রবণ-কীর্তন ।\
 > অচিরাৎ পাবে তবে কৃষ্ণের চরণ ॥৬৫॥
 
-> kubuddhi chāḍiyā kara śravaṇa-kīrtana
+> kubuddhi chāḍiyā kara śravaṇa-kīrtana\
 > acirāt pābe tabe kṛṣṇera caraṇa
 
 *ku-buddhi*—inteligencia que no es favorable para el desempeño del servicio devocional; *chāḍiyā*—abandonando; *kara*—simplemente haz; *śravaṇa-kīrtana*—escuchar y cantar; *acirāt*—muy pronto; *pābe*—obtendrás; *tabe*—entonces; *kṛṣṇera caraṇa*—los pies de loto de Kṛṣṇa.

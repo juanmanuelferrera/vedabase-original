@@ -1,9 +1,9 @@
 ### CC Antya 7.78
 
-> প্রভুর সৌন্দর্য দেখি আর প্রেমোদয় ।
+> প্রভুর সৌন্দর্য দেখি আর প্রেমোদয় ।\
 > ‘এই ত’ সাক্ষাৎ কৃষ্ণ’ ভট্টের হইল নিশ্চয় ॥৭৮॥
 
-> prabhura saundarya dekhi āra premodaya
+> prabhura saundarya dekhi āra premodaya\
 > 'ei ta' sākṣāt kṛṣṇa' bhaṭṭera ha-ila niścaya
 
 *prabhura*—de Śrī Caitanya Mahāprabhu; *saundarya*—la belleza; *dekhi*—al ver; *āra*—también; *prema-udaya*—despertar del amor extático; *ei*—este; *ta'*—ciertamente; *sākṣāt*—directamente; *kṛṣṇa*—el Señor Kṛṣṇa; *bhaṭṭera*—de Vallabha Bhaṭṭa; *ha-ila*—hubo; *niścaya*—certeza.

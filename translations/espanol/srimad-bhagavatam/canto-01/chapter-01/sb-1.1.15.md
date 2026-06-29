@@ -1,11 +1,11 @@
 ### SB 1.1.15
 
-> यत्पादसंश्रयाः सूत मुनयः प्रशमायनाः ।
+> यत्पादसंश्रयाः सूत मुनयः प्रशमायनाः ।\
 > सद्यः पुनन्त्युपस्पृष्टाः स्वर्धुन्यापोऽनुसेवया ॥१५॥
 
-> yat-pāda-saṁśrayāḥ sūta
-> munayaḥ praśamāyanāḥ
-> sadyaḥ punanty upaspṛṣṭāḥ
+> yat-pāda-saṁśrayāḥ sūta\
+> munayaḥ praśamāyanāḥ\
+> sadyaḥ punanty upaspṛṣṭāḥ\
 > svardhuny-āpo 'nusevayā
 
 *yat*—cuyos; *pāda*—pies de loto; *saṁśrayāḥ*—aquellos que se han refugiado en; *sūta*—¡oh, Sūta Gosvāmī!; *munayaḥ*—grandes sabios; *praśamāyanāḥ*—absortos en la devoción por el Supremo; *sadyaḥ*—de inmediato; *punanti*—santifican; *upaspṛṣṭāḥ*—simplemente mediante la asociación; *svardhunī*—del sagrado Ganges; *āpaḥ*—agua; *anusevayā*—poniendo en uso.

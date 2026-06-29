@@ -1,13 +1,13 @@
 ### CC Madhya 19.119
 
-> কালেন বৃন্দাবনকেলিবার্তা
-> লুপ্তেতি তাং খ্যাপয়িতুং বিশিষ্য ।
-> কৃপামৃতেনাভিষিষেচ দেব-
+> কালেন বৃন্দাবনকেলিবার্তা\
+> লুপ্তেতি তাং খ্যাপয়িতুং বিশিষ্য ।\
+> কৃপামৃতেনাভিষিষেচ দেব-\
 > স্তত্রৈব রূপঞ্চ সনাতনঞ্চ ॥১১৯॥
 
-> kālena vṛndāvana-keli-vārtā
-> lupteti tāṁ khyāpayituṁ viśiṣya
-> kṛpāmṛtenābhiṣiṣeca devas
+> kālena vṛndāvana-keli-vārtā\
+> lupteti tāṁ khyāpayituṁ viśiṣya\
+> kṛpāmṛtenābhiṣiṣeca devas\
 > tatraiva rūpaṁ ca sanātanaṁ ca
 
 *kālena*—con el paso del tiempo; *vṛndāvana-keli-vārtā*—los temas referentes a los *rasas* trascendentales de los pasatiempos del Señor Kṛṣṇa en Vṛndāvana; *luptā*—casi perdidos; *iti*—así; *tām*—todos esos; *khyāpayitum*—para enunciar; *viśiṣya*—de manera específica; *kṛpā-amṛtena*—con el néctar de la misericordia; *abhiṣiṣeca*—roció; *devaḥ*—el Señor; *tatra*—allí; *eva*—en verdad; *rūpam*—a Śrīla Rūpa Gosvāmī; *ca*—y; *sanātanam*—a Sanātana Gosvāmī; *ca*—también.

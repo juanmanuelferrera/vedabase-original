@@ -1,9 +1,9 @@
 ### CC Madhya 4.67
 
-> গ্রামের যতেক তণ্ডুল, দালি, গোধূম-চূর্ণ ।
+> গ্রামের যতেক তণ্ডুল, দালি, গোধূম-চূর্ণ ।\
 > সকল আনিয়া দিল পর্বত হৈল পূর্ণ ॥৬৭॥
 
-> grāmera yateka taṇḍula, dāli godhūma-cūrṇa
+> grāmera yateka taṇḍula, dāli godhūma-cūrṇa\
 > sakala āniyā dila parvata haila pūrṇa
 
 *grāmera*—of the village; *yateka*—all; *taṇḍula*—the rice; *dāli*—*dāl*; *godhūma-cūrṇa*—wheat flour; *sakala*—all; *āniyā*—bringing; *dila*—offered; *parvata*—the top of the hill; *haila*—became; *pūrṇa*—filled.

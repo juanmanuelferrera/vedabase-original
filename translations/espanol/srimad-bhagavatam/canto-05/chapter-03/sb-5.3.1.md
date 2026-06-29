@@ -1,9 +1,9 @@
 ### SB 5.3.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > नाभिरपत्यकामोऽप्रजया मेरुदेव्या भगवन्तं यज्ञअपुरुषमवहितात्मायजत ॥१॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > nābhir apatya-kāmo 'prajayā merudevyā bhagavantaṁ yajña-puruṣam avahitātmāyajata.
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī dijo; *nābhiḥ*—el hijo de Mahārāja Āgnīdhra; *apatya-kāmaḥ*—con el deseo de tener hijos; *aprajayā*—que no había tenido ningún hijo; *merudevyā*—con Merudevī; *bhagavantam*—a la Suprema Personalidad de Dios; *yajña-puruṣam*—al Señor Viṣṇu, amo y disfrutador de toda celebración de sacrificio; *avahita-ātmā*—con gran atención; *ayajata*—ofreció oraciones y adoró.

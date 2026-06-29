@@ -1,13 +1,13 @@
 ### SB 4.7.45
 
-> ब्राह्मणा ऊचुः
-> त्वं क्रतुस्त्वं हविस्त्वं हुताशः स्वयं त्वं हि मन्त्रः समिद्दर्भपात्राणि च ।
+> ब्राह्मणा ऊचुः\
+> त्वं क्रतुस्त्वं हविस्त्वं हुताशः स्वयं त्वं हि मन्त्रः समिद्दर्भपात्राणि च ।\
 > त्वं सदस्यर्त्विजो दम्पती देवता अग्निहोत्रं स्वधा सोम आज्यं पशुः ॥४५॥
 
-> brāhmaṇā ūcuḥ
-> tvaṁ kratus tvaṁ havis tvaṁ hutāśaḥ svayaṁ
-> tvaṁ hi mantraḥ samid-darbha-pātrāṇi ca
-> tvaṁ sadasyartvijo dampatī devatā
+> brāhmaṇā ūcuḥ\
+> tvaṁ kratus tvaṁ havis tvaṁ hutāśaḥ svayaṁ\
+> tvaṁ hi mantraḥ samid-darbha-pātrāṇi ca\
+> tvaṁ sadasyartvijo dampatī devatā\
 > agnihotraṁ svadhā soma ājyaṁ paśuḥ
 
 *brāhmaṇāḥ*—los *brāhmaṇas*; *ūcuḥ*—dijeron; *tvam*—Tú; *kratuḥ*—sacrificio; *tvam*—Tú; *haviḥ*—ofrenda de mantequilla clarificada; *tvam*—Tú; *huta-āśaḥ*—fuego; *svayam*—personificado; *tvam*—Tú; *hi*—para; *mantraḥ*—los himnos védicos; *samit-darbha-pātrāṇi*—el combustible, la hierba *kuśa* y los potes de sacrificio; *ca*—y; *tvam*—Tú; *sadasya*—los miembros de la asamblea; *ṛtvijaḥ*—los sacerdotes; *dampatī*—la persona que dirige el sacrificio y su esposa; *devatā*—los semidioses; *agni-hotram*—la ceremonia del fuego sagrado; *svadhā*—la ofrenda a los antepasados; *somaḥ*—la planta *soma*; *ājyam*—la mantequilla clarificada; *paśuḥ*—el animal que se sacrifica.

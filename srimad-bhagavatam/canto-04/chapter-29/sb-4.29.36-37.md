@@ -1,18 +1,18 @@
 ### SB 4.29.36-37
 
-> अथात्मनोऽर्थभूतस्य यतोऽनर्थपरम्परा ।
-> संसृतिस्तद्व्यवच्छेदो भक्त्या परमया गुरौ ॥३६॥
-> वासुदेवे भगवति भक्तियोगः समाहितः ।
+> अथात्मनोऽर्थभूतस्य यतोऽनर्थपरम्परा ।\
+> संसृतिस्तद्व्यवच्छेदो भक्त्या परमया गुरौ ॥३६॥\
+> वासुदेवे भगवति भक्तियोगः समाहितः ।\
 > सध्रीचीनेन वैराग्यं ज्ञानं च जनयिष्यति ॥३७॥
 
-> athātmano 'rtha-bhūtasya
-> yato 'nartha-paramparā
-> saṁsṛtis tad-vyavacchedo
+> athātmano 'rtha-bhūtasya\
+> yato 'nartha-paramparā\
+> saṁsṛtis tad-vyavacchedo\
 > bhaktyā paramayā gurau
 
-> vāsudeve bhagavati
-> bhakti-yogaḥ samāhitaḥ
-> sadhrīcīnena vairāgyaṁ
+> vāsudeve bhagavati\
+> bhakti-yogaḥ samāhitaḥ\
+> sadhrīcīnena vairāgyaṁ\
 > jñānaṁ ca janayiṣyati
 
 *atha*—therefore; *ātmanaḥ*—of the living entity; *artha-bhūtasya*—having his real interest; *yataḥ*—from which; *anartha*—of all unwanted things; *param-parā*—a series one after another; *saṁsṛtiḥ*—material existence; *tat*—of that; *vyavacchedaḥ*—stopping; *bhaktyā*—by devotional service; *paramayā*—unalloyed; *gurau*—unto the Supreme Lord or His representative; *vāsudeve*—Vāsudeva; *bhagavati*—the Supreme Personality of Godhead; *bhakti-yogaḥ*—devotional service; *samāhitaḥ*—applied; *sadhrīcīnena*—completely; *vairāgyam*—detachment; *jñānam*—full knowledge; *ca*—and; *janayiṣyati*—will cause to become manifest.

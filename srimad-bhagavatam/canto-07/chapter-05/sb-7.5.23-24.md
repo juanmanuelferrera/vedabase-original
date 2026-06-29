@@ -1,20 +1,20 @@
 ### SB 7.5.23-24
 
-> श्रीप्रह्राद उवाच
-> श्रवणं कीर्तनं विष्णोः स्मरणं पादसेवनम
-> अर्चनं वन्दनं दास्यं सख्यमात्मनिवेदनम ॥२३॥
-> इति पुंसार्पिता विष्णौ भक्तिश्चेन्नवलक्षणा
+> श्रीप्रह्राद उवाच\
+> श्रवणं कीर्तनं विष्णोः स्मरणं पादसेवनम\
+> अर्चनं वन्दनं दास्यं सख्यमात्मनिवेदनम ॥२३॥\
+> इति पुंसार्पिता विष्णौ भक्तिश्चेन्नवलक्षणा\
 > क्रियेत भगवत्यद्धा तन्मन्येऽधीतमुत्तमम ॥२४॥
 
-> śrī-prahrāda uvāca
-> śravaṇaṁ kīrtanaṁ viṣṇoḥ
-> smaraṇaṁ pāda-sevanam
-> arcanaṁ vandanaṁ dāsyaṁ
+> śrī-prahrāda uvāca\
+> śravaṇaṁ kīrtanaṁ viṣṇoḥ\
+> smaraṇaṁ pāda-sevanam\
+> arcanaṁ vandanaṁ dāsyaṁ\
 > sakhyam ātma-nivedanam
 
-> iti puṁsārpitā viṣṇau
-> bhaktiś cen nava-lakṣaṇā
-> kriyeta bhagavaty addhā
+> iti puṁsārpitā viṣṇau\
+> bhaktiś cen nava-lakṣaṇā\
+> kriyeta bhagavaty addhā\
 > tan manye 'dhītam uttamam
 
 *śrī-prahrādaḥ uvāca*—Prahlāda Mahārāja said; *śravaṇam*—hearing; *kīrtanam*—chanting; *viṣṇoḥ*—of Lord Viṣṇu (not anyone else); *smaraṇam*—remembering; *pāda-sevanam*—serving the feet; *arcanam*—offering worship (with *ṣoḍaśopacāra,* the sixteen kinds of paraphernalia); *vandanaṁ*—offering prayers; *dāsyam*—becoming the servant; *sakhyam*—becoming the best friend; *ātma-nivedanam*—surrendering everything, whatever one has; *iti*—thus; *puṁsā arpitā*—offered by the devotee; *viṣṇau*—unto Lord Viṣṇu (not to anyone else); *bhaktiḥ*—devotional service; *cet*—if; *nava-lakṣaṇā*—possessing nine different processes; *kriyeta*—one should perform; *bhagavati*—unto the Supreme Personality of Godhead; *addhā*—directly or completely; *tat*—that; *manye*—I consider; *adhītam*—learning; *uttamam*—topmost.

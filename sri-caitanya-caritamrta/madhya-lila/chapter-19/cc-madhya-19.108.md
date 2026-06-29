@@ -1,9 +1,9 @@
 ### CC Madhya 19.108
 
-> দেখি’ বল্লভ-ভট্ট মনে চমৎকার হৈল ।
+> দেখি’ বল্লভ-ভট্ট মনে চমৎকার হৈল ।\
 > দুই পুত্র আনি’ প্রভুর চরণে পাড়িল ॥১০৮॥
 
-> dekhi' vallabha-bhaṭṭa mane camatkāra haila
+> dekhi' vallabha-bhaṭṭa mane camatkāra haila\
 > dui putra āni' prabhura caraṇe pāḍila
 
 *dekhi'*—seeing; *vallabha-bhaṭṭa*—of Vallabha Bhaṭṭācārya; *mane*—in the mind; *camatkāra haila*—there was astonishment; *dui putra āni'*—bringing his two sons; *prabhura caraṇe pāḍila*—made them lie at the lotus feet of Śrī Caitanya Mahāprabhu.

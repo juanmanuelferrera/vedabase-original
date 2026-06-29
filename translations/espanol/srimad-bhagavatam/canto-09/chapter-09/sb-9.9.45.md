@@ -1,11 +1,11 @@
 ### SB 9.9.45
 
-> देवैः कामवरो दत्तो मह्यं त्रिभुवनेश्वरैः
+> देवैः कामवरो दत्तो मह्यं त्रिभुवनेश्वरैः\
 > न वृणे तमहं कामं भूतभावनभावनः ॥४५॥
 
-> devaiḥ kāma-varo datto
-> mahyaṁ tri-bhuvaneśvaraiḥ
-> na vṛṇe tam ahaṁ kāmaṁ
+> devaiḥ kāma-varo datto\
+> mahyaṁ tri-bhuvaneśvaraiḥ\
+> na vṛṇe tam ahaṁ kāmaṁ\
 > bhūtabhāvana-bhāvanaḥ
 
 *devaiḥ*—por los semidioses; *kāma-varaḥ*—la bendición de tener todo lo que quisiese; *dattaḥ*—fue dada; *mahyam*—a mí; *tri-bhuvana-īśvaraiḥ*—por los semidioses, los protectores de los tres mundos (que pueden hacer todo lo que deseen en el mundo material); *na vṛṇe*—no acepté; *tam*—eso; *aham*—yo; *kāmam*—todo lo que pueda desearse en el mundo material; *bhūtabhāvana-bhāvanaḥ*—estar completamente absorto en la Suprema Personalidad de Dios (y no tener, por lo tanto, ningún interés material).

@@ -1,11 +1,11 @@
 ### Bg 3.13
 
-> यज्ञशिष्टाशिनः सन्तो मुच्यन्ते सर्वकिल्बिषैः ।
+> यज्ञशिष्टाशिनः सन्तो मुच्यन्ते सर्वकिल्बिषैः ।\
 > भुञ्जते ते त्वघं पापा ये पचन्त्यात्मकारणात् ॥१३॥
 
-> yajña-śiṣṭāśinaḥ santo
-> mucyante sarva-kilbiṣaiḥ
-> bhuñjate te tv aghaṁ pāpā
+> yajña-śiṣṭāśinaḥ santo\
+> mucyante sarva-kilbiṣaiḥ\
+> bhuñjate te tv aghaṁ pāpā\
 > ye pacanty ātma-kāraṇāt
 
 *yajña-śiṣṭa*—food taken after performance of *yajña*; *aśinaḥ*—eaters; *santaḥ*—the devotees; *mucyante*—get relief from; *sarva*—all kinds of; *kilbiṣaiḥ*—sins; *bhuñjate*—enjoy; *te*—they; *tu*—but; *agham*—grievous sins; *pāpāḥ*—sinners; *ye*—those; *pacanti*—prepare food; *ātma-kāraṇāt*—for sense enjoyment.

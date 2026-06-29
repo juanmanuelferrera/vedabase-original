@@ -1,9 +1,9 @@
 ### CC Madhya 1.260
 
-> তবে সনাতন-গোসাঞির পুনরাগমন ।
+> তবে সনাতন-গোসাঞির পুনরাগমন ।\
 > জ্যৈষ্ঠমাসে প্রভু তাঁরে কৈল পরীক্ষণ ॥২৬০॥
 
-> tabe sanātana-gosāñira punar-āgamana
+> tabe sanātana-gosāñira punar-āgamana\
 > jyaiṣṭha-māse prabhu tāṅre kaila parīkṣaṇa
 
 *tabe*—thereafter; *sanātana-gosāñira*—of Sanātana Gosvāmī; *punaḥ-āgamana*—again coming; *jyaiṣṭha-māse*—in the month of Jyaiṣṭha (May-June); *prabhu*—the Lord; *tāṅre*—him; *kaila*—did; *parīkṣaṇa*—examination.

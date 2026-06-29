@@ -1,11 +1,11 @@
 ### SB 9.3.16
 
-> तान्निरीक्ष्य वरारोहा सरूपान्सूर्यवर्चसः
+> तान्निरीक्ष्य वरारोहा सरूपान्सूर्यवर्चसः\
 > अजानती पतिं साध्वी अश्विनौ शरणं ययौ ॥१६॥
 
-> tān nirīkṣya varārohā
-> sarūpān sūrya-varcasaḥ
-> ajānatī patiṁ sādhvī
+> tān nirīkṣya varārohā\
+> sarūpān sūrya-varcasaḥ\
+> ajānatī patiṁ sādhvī\
 > aśvinau śaraṇaṁ yayau
 
 *tān*—a ellos; *nirīkṣya*—al observar; *vara-ārohā*—la hermosa Sukanyā; *sa-rūpān*—todos ellos igual de hermosos; *sūrya-varcasaḥ*—con un cuerpo tan refulgente como el Sol; *ajānatī*—sin conocer; *patim*—a su esposo; *sādhvī*—esa casta mujer; *aśvinau*—en los Aśvinī-kumāras; *śaraṇam*—refugio; *yayau*—buscó.

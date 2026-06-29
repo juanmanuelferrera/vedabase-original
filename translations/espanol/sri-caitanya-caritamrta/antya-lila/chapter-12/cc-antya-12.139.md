@@ -1,9 +1,9 @@
 ### CC Antya 12.139
 
-> তবে প্রভু কহেন করি’ বিনয়-সম্মান ।
+> তবে প্রভু কহেন করি’ বিনয়-সম্মান ।\
 > ‘দশগুণ খাওয়াইলা এবে কর সমাধান’ ॥১৩৯॥
 
-> tabe prabhu kahena kari' vinaya-sammāna
+> tabe prabhu kahena kari' vinaya-sammāna\
 > 'daśa-guṇa khāoyāilā ebe kara samādhāna'
 
 *tabe*—en ese momento; *prabhu*—Śrī Caitanya Mahāprabhu; *kahena*—dice; *kari'*—con; *vinaya-sammāna*—sumiso respeto; *daśa-guṇa*—diez veces más; *khāoyāilā*—me has hecho comer; *ebe*—ahora; *kara samādhāna*—por favor, detente.

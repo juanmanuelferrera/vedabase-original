@@ -1,9 +1,9 @@
 ### CC Adi 5.182
 
-> দণ্ডবৎ হৈয়া আমি পড়িনু পায়েতে ।
+> দণ্ডবৎ হৈয়া আমি পড়িনু পায়েতে ।\
 > নিজপাদপদ্ম প্রভু দিলা মোর মাথে ॥১৮২॥
 
-> daṇḍavat haiyā āmi paḍinu pāyete
+> daṇḍavat haiyā āmi paḍinu pāyete\
 > nija-pāda-padma prabhu dilā mora māthe
 
 *daṇḍavat haiyā*—ofreciendo reverencias; *āmi*—yo; *paḍinu*—caí; *pāyete*—a Sus pies de loto; *nija-pāda-padma*—Sus propios pies de loto; *prabhu*—el Señor; *dilā*—colocó; *mora*—mi; *māthe*—sobre la cabeza.

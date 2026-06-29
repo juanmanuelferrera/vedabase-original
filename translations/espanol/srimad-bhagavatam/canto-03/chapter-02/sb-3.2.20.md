@@ -1,11 +1,11 @@
 ### SB 3.2.20
 
-> तथैव चान्ये नरलोकवीरा य आहवे कृष्णमुखारविन्दम् ।
+> तथैव चान्ये नरलोकवीरा य आहवे कृष्णमुखारविन्दम् ।\
 > नेत्रैः पिबन्तो नयनाभिरामं पार्थास्त्रपूतः पदमापुरस्य ॥२०॥
 
-> tathaiva cānye nara-loka-vīrā
-> ya āhave kṛṣṇa-mukhāravindam
-> netraiḥ pibanto nayanābhirāmaṁ
+> tathaiva cānye nara-loka-vīrā\
+> ya āhave kṛṣṇa-mukhāravindam\
+> netraiḥ pibanto nayanābhirāmaṁ\
 > pārthāstra-pūtaḥ padam āpur asya
 
 *tathā*—como también; *eva ca*—y ciertamente; *anye*—otros; *nara-loka*—la sociedad humana; *vīrāḥ*—guerreros; *ye*—esos; *āhave*—en el campo de batalla (de Kurukṣetra); *kṛṣṇa*—de Śrī Kṛṣṇa; *mukha-aravindam*—cara que semeja una flor de loto; *netraiḥ*—con los ojos; *pibantaḥ*—mientras veían; *nayana-abhirāmam*—muy placentero para los ojos; *pārtha*—Arjuna; *astra-pūtaḥ*—purificados por flechas; *padam*—morada; *āpuḥ*—alcanzaron; *asya*—de Él.

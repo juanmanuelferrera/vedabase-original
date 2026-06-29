@@ -1,9 +1,9 @@
 ### CC Adi 7.55
 
-> না যাহ সন্ন্যাসি-গোষ্ঠী, ইহা আমি জানি ।
+> না যাহ সন্ন্যাসি-গোষ্ঠী, ইহা আমি জানি ।\
 > মোরে অনুগ্রহ কর নিমন্ত্রণ মানি’ ॥৫৫॥
 
-> nā yāha sannyāsi-goṣṭhī, ihā āmi jāni
+> nā yāha sannyāsi-goṣṭhī, ihā āmi jāni\
 > more anugraha kara nimantraṇa māni'
 
 *nā*—no; *yāha*—vas; *sannyāsi-goṣṭhī*—la asociación de los *sannyāsīs* māyāvādīs; *ihā*—esto; *āmi*—yo; *jāni*—sé; *more*—conmigo; *anugraha*—misericordioso; *kara*—sé; *nimantraṇa*—invitación; *māni'*—aceptando.

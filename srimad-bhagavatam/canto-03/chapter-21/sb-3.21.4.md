@@ -1,11 +1,11 @@
 ### SB 3.21.4
 
-> तस्यां स वै महायोगी युक्तायां योगलक्षणैः ।
+> तस्यां स वै महायोगी युक्तायां योगलक्षणैः ।\
 > ससर्ज कतिधा वीर्यं तन्मे शुश्रूषवे वद ॥४॥
 
-> tasyāṁ sa vai mahā-yogī
-> yuktāyāṁ yoga-lakṣaṇaiḥ
-> sasarja katidhā vīryaṁ
+> tasyāṁ sa vai mahā-yogī\
+> yuktāyāṁ yoga-lakṣaṇaiḥ\
+> sasarja katidhā vīryaṁ\
 > tan me śuśrūṣave vada
 
 *tasyām*—in her; *saḥ*—Kardama Muni; *vai*—in fact; *mahā-yogī*—great mystic *yogī*; *yuktāyām*—endowed; *yoga-lakṣaṇaiḥ*—with the eightfold symptoms of yogic perfection; *sasarja*—propagated; *katidhā*—how many times; *vīryam*—offspring; *tat*—that narration; *me*—to me; *śuśrūṣave*—who am eager to hear; *vada*—tell.

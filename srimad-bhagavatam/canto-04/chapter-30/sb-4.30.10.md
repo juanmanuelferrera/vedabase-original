@@ -1,11 +1,11 @@
 ### SB 4.30.10
 
-> ये तु मां रुद्रगीतेन सायं प्रातः समाहिताः ।
+> ये तु मां रुद्रगीतेन सायं प्रातः समाहिताः ।\
 > स्तुवन्त्यहं कामवरान्दास्ये प्रज्ञां च शोभनाम् ॥१०॥
 
-> ye tu māṁ rudra-gītena
-> sāyaṁ prātaḥ samāhitāḥ
-> stuvanty ahaṁ kāma-varān
+> ye tu māṁ rudra-gītena\
+> sāyaṁ prātaḥ samāhitāḥ\
+> stuvanty ahaṁ kāma-varān\
 > dāsye prajñāṁ ca śobhanām
 
 *ye*—those persons who; *tu*—but; *mām*—unto Me; *rudra-gītena*—by the song sung by Lord Śiva; *sāyam*—in the evening; *prātaḥ*—in the morning; *samāhitāḥ*—being attentive; *stuvanti*—offer prayers; *aham*—I; *kāma-varān*—all benedictions to fulfill desires; *dāsye*—shall award; *prajñām*—intelligence; *ca*—also; *śobhanām*—transcendental.

@@ -1,11 +1,11 @@
 ### CC Antya 8.49
 
-> “রাত্রাবত্র ঐক্ষবমাসীৎ, তেন পিপীলিকাঃ সঞ্চরন্তি ।
+> “রাত্রাবত্র ঐক্ষবমাসীৎ, তেন পিপীলিকাঃ সঞ্চরন্তি ।\
 > অহো! বিরক্তানাং সন্ন্যাসিনামিয়মিন্দ্রিয়লালসেতি ব্রুবন্নুত্থায় গতঃ ।।” ॥ ৪৯ ॥
 
->    "rātrāv atra aikṣavam āsīt, tena
-> pipīlikāḥ sañcaranti aho! viraktānāṁ
-> sannyāsinām iyam indriya-lālaseti
+>    "rātrāv atra aikṣavam āsīt, tena\
+> pipīlikāḥ sañcaranti aho! viraktānāṁ\
+> sannyāsinām iyam indriya-lālaseti\
 > bruvann utthāya gataḥ."
 
 *rātrau*—at night; *atra*—here; *aikṣavam*—sugar candy; *āsīt*—was; *tena*—by that; *pipīlikāḥ*—ants; *sañcaranti*—wander about; *aho*—alas; *viraktānām*—renounced; *sannyāsinām*—of *sannyāsīs*; *iyam*—this; *indriya*—to the senses; *lālasa*—attachment; *iti*—thus; *bruvan*—speaking; *utthāya*—getting up; *gataḥ*—left.

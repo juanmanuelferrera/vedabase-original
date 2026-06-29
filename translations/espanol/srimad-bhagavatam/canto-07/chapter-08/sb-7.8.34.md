@@ -1,11 +1,11 @@
 ### SB 7.8.34
 
-> ततः सभायामुपविष्टमुत्तमे नृपासने सम्भृततेजसं विभुम
+> ततः सभायामुपविष्टमुत्तमे नृपासने सम्भृततेजसं विभुम\
 > अलक्षितद्वैरथमत्यमर्षणं प्रचण्डवक्त्रं न बभाज कश्चन ॥३४॥
 
-> tataḥ sabhāyām upaviṣṭam uttame
-> nṛpāsane sambhṛta-tejasaṁ vibhum
-> alakṣita-dvairatham atyamarṣaṇaṁ
+> tataḥ sabhāyām upaviṣṭam uttame\
+> nṛpāsane sambhṛta-tejasaṁ vibhum\
+> alakṣita-dvairatham atyamarṣaṇaṁ\
 > pracaṇḍa-vaktraṁ na babhāja kaścana
 
 *tataḥ*—a continuación; *sabhāyām*—en la casa de asambleas; *upaviṣṭam*—sentado; *uttame*—en el mejor; *nṛpa-āsane*—trono (en el que solía sentarse el rey Hiraṇyakaśipu); *saṁbhṛta-tejasam*—pleno de refulgencia; *vibhum*—el Señor Supremo; *alakṣita-dvairatham*—cuyo rival o enemigo no aparecía; *ati*—muy; *amarṣaṇam*—terrorífica (debido a Su ira); *pracaṇḍa*—terrible; *vaktram*—cara; *na*—no; *babhāja*—adoró; *kaścana*—nadie.

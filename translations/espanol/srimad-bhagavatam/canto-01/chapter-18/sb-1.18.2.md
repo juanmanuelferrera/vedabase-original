@@ -1,11 +1,11 @@
 ### SB 1.18.2
 
-> ब्रह्मकोपोत्थिताद्यस्तु तक्षकात्प्राणविप्लवात् ।
+> ब्रह्मकोपोत्थिताद्यस्तु तक्षकात्प्राणविप्लवात् ।\
 > न सम्मुमोहोरुभयाद्भगवत्यर्पिताशयः ॥२॥
 
-> brahma-kopotthitād yas tu
-> takṣakāt prāṇa-viplavāt
-> na sammumohorubhayād
+> brahma-kopotthitād yas tu\
+> takṣakāt prāṇa-viplavāt\
+> na sammumohorubhayād\
 > bhagavaty arpitāśayaḥ
 
 *brahma-kopa*—la furia de un *brāhmaṇa*; *utthitāt*—causada por; *yaḥ*—lo que era; *tu*—pero; *takṣakāt*—la serpiente alada; *prāṇa-viplavāt*—de la disolución de la vida; *na*—nunca; *sammumoha*—lo dominó; *uru-bhayāt*—gran temor; *bhagavati*—a la Personalidad de Dios; *arpita*—entregado; *āśayaḥ*—conciencia.

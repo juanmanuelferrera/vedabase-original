@@ -1,11 +1,11 @@
 ### SB 4.3.13
 
-> कथं सुतायाः पितृगेहकौतुकं निशम्य देहः सुरवर्य नेङ्गते ।
+> कथं सुतायाः पितृगेहकौतुकं निशम्य देहः सुरवर्य नेङ्गते ।\
 > अनाहुता अप्यभियन्ति सौहृदं भर्तुर्गुरोर्देहकृतश्च केतनम् ॥१३॥
 
-> kathaṁ sutāyāḥ pitṛ-geha-kautukaṁ
-> niśamya dehaḥ sura-varya neṅgate
-> anāhutā apy abhiyanti sauhṛdaṁ
+> kathaṁ sutāyāḥ pitṛ-geha-kautukaṁ\
+> niśamya dehaḥ sura-varya neṅgate\
+> anāhutā apy abhiyanti sauhṛdaṁ\
 > bhartur guror deha-kṛtaś ca ketanam
 
 *katham*—how; *sutāyāḥ*—of a daughter; *pitṛ-geha-kautukam*—the festival in the house of her father; *niśamya*—hearing; *dehaḥ*—the body; *sura-varya*—O best of the demigods; *na*—not; *iṅgate*—disturbed; *anāhutāḥ*—without being called; *api*—even; *abhiyanti*—goes; *sauhṛdam*—a friend; *bhartuḥ*—of the husband; *guroḥ*—of the spiritual master; *deha-kṛtaḥ*—of the father; *ca*—and; *ketanam*—the house.

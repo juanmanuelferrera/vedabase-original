@@ -1,11 +1,11 @@
 ### SB 5.19.24
 
-> न यत्र वैकुण्ठकथासुधापगा न साधवो भागवतास्तदाश्रयाः
+> न यत्र वैकुण्ठकथासुधापगा न साधवो भागवतास्तदाश्रयाः\
 > न यत्र यज्ञएशमखा महोत्सवाः सुरेशलोकोऽपि न वै स सेव्यताम ॥२४॥
 
-> na yatra vaikuṇṭha-kathā-sudhāpagā
-> na sādhavo bhāgavatās tadāśrayāḥ
-> na yatra yajñeśa-makhā mahotsavāḥ
+> na yatra vaikuṇṭha-kathā-sudhāpagā\
+> na sādhavo bhāgavatās tadāśrayāḥ\
+> na yatra yajñeśa-makhā mahotsavāḥ\
 > sureśa-loko 'pi na vai sa sevyatām
 
 *na*—no; *yatra*—donde; *vaikuṇṭha-kathā-sudhā-āpagāḥ*—los ríos de néctar de las conversaciones acerca de la Suprema Personalidad de Dios, que recibe el nombre de Vaikuṇṭha, «el que aleja toda ansiedad»; *na*—ni; *sādhavaḥ*—devotos; *bhāgavatāḥ*—siempre ocupados en el servicio del Señor; *tat-āśrayāḥ*—a quienes la Suprema Personalidad de Dios brinda refugio; *na*—ni; *yatra*—donde; *yajña-īśa-makhāḥ*—la ofrenda de servicio devocional al Señor de los sacrificios; *mahā-utsavāḥ*—que son verdaderos festivales; *sureśa-lokaḥ*—un lugar habitado por los ciudadanos del cielo; *api*—aunque; *na*—no; *vai*—ciertamente; *saḥ*—ese; *sevyatām*—ser frecuentado.

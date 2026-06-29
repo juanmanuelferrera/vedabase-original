@@ -1,9 +1,9 @@
 ### CC Adi 6.16
 
-> আপনে পুরুষ — বিশ্বের ‘নিমিত্ত’-কারণ ।
+> আপনে পুরুষ — বিশ্বের ‘নিমিত্ত’-কারণ ।\
 > অদ্বৈত-রূপে ‘উপাদান’ হন নারায়ণ ॥১৬॥
 
-> āpane puruṣa—viśvera 'nimitta'-kāraṇa
+> āpane puruṣa—viśvera 'nimitta'-kāraṇa\
 > advaita-rūpe 'upādāna' hana nārāyaṇa
 
 *āpane*—personally; *puruṣa*—Lord Viṣṇu; *viśvera*—of the entire material world; *nimitta kāraṇa*—the original cause; *advaita-rūpe*—in the form of Advaita; *upādāna*—the material cause; *hana*—becomes; *nārāyaṇa*—Lord Nārāyaṇa.

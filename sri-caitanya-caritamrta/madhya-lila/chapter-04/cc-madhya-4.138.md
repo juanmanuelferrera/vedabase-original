@@ -1,9 +1,9 @@
 ### CC Madhya 4.138
 
-> এত বলি’ নমস্করি’ করিলা গমন ।
+> এত বলি’ নমস্করি’ করিলা গমন ।\
 > আবেশে করিলা পুরী সে ক্ষীর ভক্ষণ ॥১৩৮॥
 
-> eta bali' namaskari' karilā gamana
+> eta bali' namaskari' karilā gamana\
 > āveśe karilā purī se kṣīra bhakṣaṇa
 
 *eta bali'*—saying this; *namaskari'*—offering obeisances; *karilā gamana*—returned; *āveśe*—in ecstasy; *karilā*—did; *purī*—Purī Gosāñi; *se*—that; *kṣīra*—sweet rice; *bhakṣaṇa*—eating.

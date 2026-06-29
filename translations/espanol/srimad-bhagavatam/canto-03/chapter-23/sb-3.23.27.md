@@ -1,11 +1,11 @@
 ### SB 3.23.27
 
-> तां दृष्ट्वा सहसोत्थाय प्रोचुः प्राञ्जलयः स्त्रियः ।
+> तां दृष्ट्वा सहसोत्थाय प्रोचुः प्राञ्जलयः स्त्रियः ।\
 > वयं कर्मकरीस्तुभ्यं शाधि नः करवाम किम् ॥२७॥
 
-> tāṁ dṛṣṭvā sahasotthāya
-> procuḥ prāñjalayaḥ striyaḥ
-> vayaṁ karma-karīs tubhyaṁ
+> tāṁ dṛṣṭvā sahasotthāya\
+> procuḥ prāñjalayaḥ striyaḥ\
+> vayaṁ karma-karīs tubhyaṁ\
 > śādhi naḥ karavāma kim
 
 *tām*—a ella; *dṛṣṭvā*—al ver; *sahasā*—repentinamente; *utthāya*—levantándose; *procuḥ*—dijeron; *prāñjalayaḥ*—con las manos juntas; *striyaḥ*—las doncellas; *vayam*—nosotras; *karma-karīḥ*—sirvientas; *tubhyam*—por ti; *śādhi*—dinos, por favor; *naḥ*—nosotras; *karavāma*—podemos hacer; *kim*—qué.

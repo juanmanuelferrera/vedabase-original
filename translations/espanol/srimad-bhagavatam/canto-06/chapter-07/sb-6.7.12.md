@@ -1,11 +1,11 @@
 ### SB 6.7.12
 
-> को गृध्येत्पण्डितो लक्ष्मीं त्रिपिष्टपपतेरपि
+> को गृध्येत्पण्डितो लक्ष्मीं त्रिपिष्टपपतेरपि\
 > ययाहमासुरं भावं नीतोऽद्य विबुधेश्वरः ॥१२॥
 
-> ko gṛdhyet paṇḍito lakṣmīṁ
-> tripiṣṭapa-pater api
-> yayāham āsuraṁ bhāvaṁ
+> ko gṛdhyet paṇḍito lakṣmīṁ\
+> tripiṣṭapa-pater api\
+> yayāham āsuraṁ bhāvaṁ\
 > nīto 'dya vibudheśvaraḥ
 
 *kaḥ*—quién; *gṛdhyet*—aceptaría; *paṇḍitaḥ*—hombre culto; *lakṣmīm*—opulencias; *tri-piṣṭa-pa-pateḥ api*—aunque soy el rey de los semidioses; *yayā*—por lo cual; *aham*—yo; *āsuram*—demoníaca; *bhāvam*—mentalidad; *nītaḥ*—llevado a; *adya*—ahora; *vibudha*—de los semidioses, que están en el plano de la modalidad de la bondad; *īśvaraḥ*—el rey.

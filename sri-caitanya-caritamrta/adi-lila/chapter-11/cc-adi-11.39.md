@@ -1,9 +1,9 @@
 ### CC Adi 11.39
 
-> আজন্ম নিমগ্ন নিত্যানন্দের চরণে ।
+> আজন্ম নিমগ্ন নিত্যানন্দের চরণে ।\
 > নিরন্তর বাল্য-লীলা করে কৃষ্ণ-সনে ॥৩৯॥
 
-> ājanma nimagna nityānandera caraṇe
+> ājanma nimagna nityānandera caraṇe\
 > nirantara bālya-līlā kare kṛṣṇa-sane
 
 *ājanma*—from birth; *nimagna*—merged; *nityānandera*—of Lord Nityānanda Prabhu; *caraṇe*—in the lotus feet; *nirantara*—always; *bālya-līlā*—childish play; *kare*—does; *kṛṣṇa-sane*—with Kṛṣṇa.

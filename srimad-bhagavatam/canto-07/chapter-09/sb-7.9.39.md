@@ -1,13 +1,13 @@
 ### SB 7.9.39
 
-> नैतन्मनस्तव कथासु विकुण्ठनाथ
-> सम्प्रीयते दुरितदुष्टमसाधु तीव्रम
-> कामातुरं हर्षशोकभयैषणार्तं
+> नैतन्मनस्तव कथासु विकुण्ठनाथ\
+> सम्प्रीयते दुरितदुष्टमसाधु तीव्रम\
+> कामातुरं हर्षशोकभयैषणार्तं\
 > तस्मिन्कथं तव गतिं विमृशामि दीनः ॥३९॥
 
-> naitan manas tava kathāsu vikuṇṭha-nātha
-> samprīyate durita-duṣṭam asādhu tīvram
-> kāmāturaṁ harṣa-śoka-bhayaiṣaṇārtaṁ
+> naitan manas tava kathāsu vikuṇṭha-nātha\
+> samprīyate durita-duṣṭam asādhu tīvram\
+> kāmāturaṁ harṣa-śoka-bhayaiṣaṇārtaṁ\
 > tasmin kathaṁ tava gatiṁ vimṛśāmi dīnaḥ
 
 *na*—certainly not; *etat*—this; *manaḥ*—mind; *tava*—Your; *kathāsu*—in transcendental topics; *vikuṇṭha-nātha*—O Lord of Vaikuṇṭha, where there is no anxiety; *samprīyate*—is pacified or interested in; *durita*—by sinful activities; *duṣṭam*—polluted; *asādhu*—dishonest; *tīvram*—very difficult to control; *kāma-āturam*—always full of different desires and lusty propensities; *harṣa-śoka*—sometimes by jubilation and sometimes by distress; *bhaya*—and sometimes by fear; *eṣaṇā*—and by desiring; *ārtam*—distressed; *tasmin*—in that mental status; *katham*—how; *tava*—Your; *gatim*—transcendental activities; *vimṛśāmi*—I shall consider and try to understand; *dīnaḥ*—who am most fallen and poor.

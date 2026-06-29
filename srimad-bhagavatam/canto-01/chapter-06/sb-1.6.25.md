@@ -1,11 +1,11 @@
 ### SB 1.6.25
 
-> एतावदुक्त्वोपरराम तन्महद्भूतं नभोलिङ्गमलिङ्गमीश्वरम् ।
+> एतावदुक्त्वोपरराम तन्महद्भूतं नभोलिङ्गमलिङ्गमीश्वरम् ।\
 > अहं च तस्मै महतां महीयसे शीर्ष्णावनामं विदधेऽनुकम्पितः ॥२५॥
 
-> etāvad uktvopararāma tan mahad
-> bhūtaṁ nabho-liṅgam aliṅgam īśvaram
-> ahaṁ ca tasmai mahatāṁ mahīyase
+> etāvad uktvopararāma tan mahad\
+> bhūtaṁ nabho-liṅgam aliṅgam īśvaram\
+> ahaṁ ca tasmai mahatāṁ mahīyase\
 > śīrṣṇāvanāmaṁ vidadhe 'nukampitaḥ
 
 *etāvat*—thus; *uktvā*—spoken; *upararāma*—stopped; *tat*—that; *mahat*—great; *bhūtam*—wonderful; *nabhaḥ-liṅgam*—personified by sound; *aliṅgam*—unseen by the eyes; *īśvaram*—the supreme authority; *aham*—I; *ca*—also; *tasmai*—unto Him; *mahatām*—the great; *mahīyase*—unto the glorified; *śīrṣṇā*—by the head; *avanāmam*—obeisances; *vidadhe*—executed; *anukampitaḥ*—being favored by Him.

@@ -1,9 +1,9 @@
 ### CC Adi 3.70
 
-> জলশায়ী অন্তর্যামী যেই নারায়ণ ।
+> জলশায়ী অন্তর্যামী যেই নারায়ণ ।\
 > সেহো তোমার অংশ, তুমি মূল নারায়ণ ॥৭০॥
 
-> jala-śāyī antar-yāmī yei nārāyaṇa
+> jala-śāyī antar-yāmī yei nārāyaṇa\
 > seho tomāra aṁśa, tumi mūla nārāyaṇa
 
 *jala-śāyī*—que yace en el agua; *antaḥ-yāmī*—la Superalma que reside en el interior; *yei*—Aquel que; *nārāyaṇa*—el Señor Nārāyaṇa; *seho*—Él; *tomāra*—Tu; *aṁśa*—porción plenaria; *tumi*—Tú; *mūla*—original; *nārāyaṇa*—Nārāyaṇa.

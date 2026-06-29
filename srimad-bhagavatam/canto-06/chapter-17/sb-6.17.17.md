@@ -1,13 +1,13 @@
 ### SB 6.17.17
 
-> चित्रकेतुरुवाच
-> प्रतिगृह्णामि ते शापमात्मनोऽञ्जलिनाम्बिके
+> चित्रकेतुरुवाच\
+> प्रतिगृह्णामि ते शापमात्मनोऽञ्जलिनाम्बिके\
 > देवैर्मर्त्याय यत्प्रोक्तं पूर्वदिष्टं हि तस्य तत ॥१७॥
 
-> citraketur uvāca
-> pratigṛhṇāmi te śāpam
-> ātmano 'ñjalināmbike
-> devair martyāya yat proktaṁ
+> citraketur uvāca\
+> pratigṛhṇāmi te śāpam\
+> ātmano 'ñjalināmbike\
+> devair martyāya yat proktaṁ\
 > pūrva-diṣṭaṁ hi tasya tat
 
 *citraketuḥ uvāca*—King Citraketu said; *pratigṛhṇāmi*—I accept; *te*—your; *śāpam*—curse; *ātmanaḥ*—my own; *añjalinā*—with folded bands; *ambike*—O mother; *devaiḥ*—by the demigods; *martyāya*—unto a mortal; *yat*—which; *proktam*—prescribed; *pūrva-diṣṭam*—fixed previously according to one's past deeds; *hi*—indeed; *tasya*—of him; *tat*—that.

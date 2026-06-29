@@ -1,9 +1,9 @@
 ### CC Madhya 9.309
 
-> ‘ব্রহ্মসংহিতা’, ‘কর্ণামৃত’ দুই পুঁথি পাঞা ৷
+> ‘ব্রহ্মসংহিতা’, ‘কর্ণামৃত’ দুই পুঁথি পাঞা ৷\
 > মহারত্নপ্রায় পাই আইলা সঙ্গে লঞা ৷৷ ৩০৯ ৷৷ ॥৩০৯॥
 
-> 'brahma-saṁhitā', 'karṇāmṛta' dui puṅthi pāñā
+> 'brahma-saṁhitā', 'karṇāmṛta' dui puṅthi pāñā\
 > mahā-ratna-prāya pāi āilā saṅge lañā
 
 *brahma-saṁhitā*—el libro Brahma-saṁhitā; *karṇāmṛta*—el libro Kṛṣṇa-karṇāmṛta; *dui*—dos; *puṅthi*—libros; *pāñā*—obteniendo; *mahā-ratna-prāya*—como las joyas más valiosas; *pāi*—obteniendo; *āilā*—regresó; *saṅge*—consigo; *lañā*—llevando.

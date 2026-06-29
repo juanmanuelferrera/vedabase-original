@@ -1,9 +1,9 @@
 ### CC Antya 3.46
 
-> এইত কহিল দামোদরের বাক্যদণ্ড ।
+> এইত কহিল দামোদরের বাক্যদণ্ড ।\
 > যাহার শ্রবণে ভাগে ‘অজ্ঞান পাষণ্ড’ ॥৪৬॥
 
-> ei-ta kahila dāmodarera vākya-daṇḍa
+> ei-ta kahila dāmodarera vākya-daṇḍa\
 > yāhāra śravaṇe bhāge 'ajñāna pāṣaṇḍa'
 
 *ei-ta*—de esta forma; *kahila*—he descrito; *dāmodarera*—de Dāmodara Paṇḍita; *vākya-daṇḍa*—castigo mediante palabras; *yāhāra śravaṇe*—al escuchar lo cual; *bhāge*—se va; *ajñāna pāṣaṇḍa*—el ateísmo de la ignorancia.

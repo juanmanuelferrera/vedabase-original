@@ -1,13 +1,13 @@
 ### SB 7.2.61
 
-> श्रीनारद उवाच
-> इति दैत्यपतेर्वाक्यं दितिराकर्ण्य सस्नुषा
+> श्रीनारद उवाच\
+> इति दैत्यपतेर्वाक्यं दितिराकर्ण्य सस्नुषा\
 > पुत्रशोकं क्षणात्त्यक्त्वा तत्त्वे चित्तमधारयत ॥६१॥
 
-> śrī-nārada uvāca
-> iti daitya-pater vākyaṁ
-> ditir ākarṇya sasnuṣā
-> putra-śokaṁ kṣaṇāt tyaktvā
+> śrī-nārada uvāca\
+> iti daitya-pater vākyaṁ\
+> ditir ākarṇya sasnuṣā\
+> putra-śokaṁ kṣaṇāt tyaktvā\
 > tattve cittam adhārayat
 
 *śrī-nāradaḥ uvāca*—Śrī Nārada Muni dijo; *iti*—así; *daitya-pateḥ*—del rey de los demonios; *vākyam*—el discurso; *ditiḥ*—Diti, la madre de Hiraṇyakaśipu e Hiraṇyākṣa; *ākarṇya*—escuchar; *sa-snuṣā*—con la esposa de Hiraṇyākṣa; *putra-śokam*—el gran desconsuelo que sentía por su hijo Hiraṇyākṣa; *kṣaṇāt*—inmediatamente; *tyaktvā*—abandonando; *tattve*—en la verdadera filosofía de la vida; *cittam*—corazón; *adhārayat*—ocupó.

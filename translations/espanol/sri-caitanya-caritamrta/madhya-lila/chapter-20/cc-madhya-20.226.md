@@ -1,9 +1,9 @@
 ### CC Madhya 20.226
 
-> পরব্যোমে বাসুদেবাদি — নিজ নিজ অস্ত্রধর ।
+> পরব্যোমে বাসুদেবাদি — নিজ নিজ অস্ত্রধর ।\
 > তাঁর মত কহি, যে-সব অস্ত্রকর ॥২২৬॥
 
-> paravyome vāsudevādi--nija nija astra-dhara
+> paravyome vāsudevādi--nija nija astra-dhara\
 > tāṅra mata kahi, ye-saba astra-kara
 
 *para-vyome*—en el cielo espiritual; *vāsudeva-ādi*—comenzando por el Señor Vāsudeva; *nija nija*—Sus propios respectivos; *astra-dhara*—el sostener las diferentes armas; *tāṅra mata kahi*—estoy exponiendo la opinión de la Siddhārtha-saṁhitā; *ye-saba*—todas; *astra-kara*—armas en las diferentes manos.

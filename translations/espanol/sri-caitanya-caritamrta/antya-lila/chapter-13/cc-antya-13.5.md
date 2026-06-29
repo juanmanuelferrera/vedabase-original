@@ -1,9 +1,9 @@
 ### CC Antya 13.5
 
-> কলার শরলাতে, শয়ন, অতি ক্ষীণ কায় ।
+> কলার শরলাতে, শয়ন, অতি ক্ষীণ কায় ।\
 > শরলাতে হাড় লাগে, ব্যথা হয় গায় ॥৫॥
 
-> kalāra śaralāte, śayana, ati kṣīṇa kāya
+> kalāra śaralāte, śayana, ati kṣīṇa kāya\
 > śaralāte hāḍa lāge, vyathā haya gāya
 
 *kalāra śaralāte*—sobre la corteza seca de un árbol de plátano; *śayana*—acostado; *ati*—muy; *kṣīṇa kāya*—cuerpo flaco; *śaralāte*—sobre la corteza seca de un árbol de plátano; *hāḍa lāge*—los huesos hacen contacto; *vyathā*—dolor; *haya*—hay; *gāya*—en el cuerpo.

@@ -1,11 +1,11 @@
 ### CC Madhya 20.162
 
-> কৃষ্ণমেনমবেহি ত্বমাত্মানমখিলাত্মনাম্ ।
+> কৃষ্ণমেনমবেহি ত্বমাত্মানমখিলাত্মনাম্ ।\
 > জগদ্ধিতায় সোঽপ্যত্র দেহীবাভাতি মায়য়া ॥১৬২॥
 
-> kṛṣṇam enam avehi tvam
-> ātmānam akhilātmanām
-> jagad-dhitāya so 'py atra
+> kṛṣṇam enam avehi tvam\
+> ātmānam akhilātmanām\
+> jagad-dhitāya so 'py atra\
 > dehīvābhāti māyayā
 
 *kṛṣṇam*—in the Supreme Personality of Godhead; *enam*—this; *avehi*—just try to understand; *tvam*—you; *ātmānam*—the soul; *akhila-ātmanām*—of all living entities; *jagat-hita-ya*—the benefit of the whole universe; *saḥ*—He; *api*—certainly; *atra*—here; *dehī*—a human being; *iva*—like; *ābhāti*—appears; *māyayā*—by His internal potency.

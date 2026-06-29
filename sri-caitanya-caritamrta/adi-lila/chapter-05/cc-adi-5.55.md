@@ -1,9 +1,9 @@
 ### CC Adi 5.55
 
-> সেই ত’ কারণার্ণবে সেই সঙ্কর্ষণ ।
+> সেই ত’ কারণার্ণবে সেই সঙ্কর্ষণ ।\
 > আপনার এক অংশে করেন শয়ন ॥৫৫॥
 
-> sei ta' kāraṇārṇave sei saṅkarṣaṇa
+> sei ta' kāraṇārṇave sei saṅkarṣaṇa\
 > āpanāra eka aṁśe karena śayana
 
 *sei*—that; *ta'*—certainly; *kāraṇa-arṇave*—in the ocean of cause, or Causal Ocean; *sei*—that; *saṅkarṣaṇa*—Lord Saṅkarṣaṇa; *āpanāra*—of His own; *eka*—one; *aṁśe*—by the part; *karena śayana*—lies down.

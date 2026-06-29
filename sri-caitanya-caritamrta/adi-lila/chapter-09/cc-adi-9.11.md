@@ -1,9 +1,9 @@
 ### CC Adi 9.11
 
-> শ্রীঈশ্বরপুরী-রূপে অঙ্কুর পুষ্ট হৈল ।
+> শ্রীঈশ্বরপুরী-রূপে অঙ্কুর পুষ্ট হৈল ।\
 > আপনে চৈতন্যমালী স্কন্ধ উপজিল ॥১১॥
 
-> śrī-iśvarapurī-rūpe aṅkura puṣṭa haila
+> śrī-iśvarapurī-rūpe aṅkura puṣṭa haila\
 > āpane caitanya-mālī skandha upajila
 
 *śrī-īśvara-purī*—by the name Śrī Īśvara Purī; *rūpe*—in the form of; *aṅkura*—the seed; *puṣṭa*—cultivated; *haila*—became; *āpane*—Himself; *caitanya-mālī*—the gardener of the name Śrī Caitanya Mahāprabhu; *skandha*—trunk; *upajila*—expanded.

@@ -1,9 +1,9 @@
 ### CC Antya 7.131
 
-> প্রভু কহে, — “তুমি ‘পণ্ডিত’ ‘মহাভাগবত’ ।
+> প্রভু কহে, — “তুমি ‘পণ্ডিত’ ‘মহাভাগবত’ ।\
 > দুইগুণ যাহাঁ, তাহাঁ নাহি গর্ব-পর্বত ॥১৩১॥
 
-> prabhu kahe—"tumi 'paṇḍita' 'mahā-bhāgavata'
+> prabhu kahe—"tumi 'paṇḍita' 'mahā-bhāgavata'\
 > dui-guṇa yāhāṅ, tāhāṅ nāhi garva-parvata
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *tumi*—you; *paṇḍita*—very learned scholar; *mahā-bhāgavata*—great devotee; *dui-guṇa*—two qualities; *yāhāṅ*—wherever; *tāhāṅ*—there; *nāhi*—there cannot be; *garva-parvata*—the mountain of pride.

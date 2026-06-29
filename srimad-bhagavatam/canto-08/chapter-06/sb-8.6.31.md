@@ -1,11 +1,11 @@
 ### SB 8.6.31
 
-> तत्त्वरोचत दैत्यस्य तत्रान्ये येऽसुराधिपाः
+> तत्त्वरोचत दैत्यस्य तत्रान्ये येऽसुराधिपाः\
 > शम्बरोऽरिष्टनेमिश्च ये च त्रिपुरवासिनः ॥३१॥
 
-> tat tv arocata daityasya
-> tatrānye ye 'surādhipāḥ
-> śambaro 'riṣṭanemiś ca
+> tat tv arocata daityasya\
+> tatrānye ye 'surādhipāḥ\
+> śambaro 'riṣṭanemiś ca\
 > ye ca tripura-vāsinaḥ
 
 *tat*—all those words; *tu*—but; *arocata*—were very pleasing; *daityasya*—to Bali Mahārāja; *tatra*—as well as; *anye*—others; *ye*—who were; *asura-adhipāḥ*—the chiefs of the *asuras*; *śambaraḥ*—Śambara; *ariṣṭanemiḥ*—Ariṣṭanemi; *ca*—also; *ye*—others who; *ca*—and; *tripura-vāsinaḥ*—all the residents of Tripura.

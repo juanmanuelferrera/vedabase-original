@@ -1,11 +1,11 @@
 ### SB 3.1.32
 
-> कच्चिद्बुधः स्वस्त्यनमीव आस्ते श्वफल्कपुत्रो भगवत्प्रपन्नः ।
+> कच्चिद्बुधः स्वस्त्यनमीव आस्ते श्वफल्कपुत्रो भगवत्प्रपन्नः ।\
 > यः कृष्णपादाङ्कितमार्गपांसुष्वचेष्टत प्रेमविभिन्नधैर्यः ॥३२॥
 
-> kaccid budhaḥ svasty anamīva āste
-> śvaphalka-putro bhagavat-prapannaḥ
-> yaḥ kṛṣṇa-pādāṅkita-mārga-pāṁsuṣv
+> kaccid budhaḥ svasty anamīva āste\
+> śvaphalka-putro bhagavat-prapannaḥ\
+> yaḥ kṛṣṇa-pādāṅkita-mārga-pāṁsuṣv\
 > aceṣṭata prema-vibhinna-dhairyaḥ
 
 *kaccit*—whether; *budhaḥ*—very learned; *svasti*—well; *anamīvaḥ*—faultless; *āste*—does exist; *śvaphalka-putraḥ*—the son of Śvaphalka, Akrūra; *bhagavat*—regarding the Personality of Godhead; *prapannaḥ*—surrendered; *yaḥ*—one who; *kṛṣṇa*—the Lord; *pāda-aṅkita*—marked with footprints; *mārga*—path; *pāṁsuṣu*—in the dust; *aceṣṭata*—exhibited; *prema-vibhinna*—lost in transcendental love; *dhairyaḥ*—mental equilibrium.

@@ -1,11 +1,11 @@
 ### SB 2.4.25
 
-> एतदेवात्मभू राजन्नारदाय विपृच्छते ।
+> एतदेवात्मभू राजन्नारदाय विपृच्छते ।\
 > वेदगर्भोऽभ्यधात्साक्षाद्यदाह हरिरात्मनः ॥२५॥
 
-> etad evātma-bhū rājan
-> nāradāya vipṛcchate
-> veda-garbho 'bhyadhāt sākṣād
+> etad evātma-bhū rājan\
+> nāradāya vipṛcchate\
+> veda-garbho 'bhyadhāt sākṣād\
 > yad āha harir ātmanaḥ
 
 *etat*—on this matter; *eva*—exactly; *ātma-bhūḥ*—the firstborn (Brahmājī); *rājan*—my dear King; *nāradāya*—unto Nārada Muni; *vipṛcchate*—having inquired about it from; *veda-garbhaḥ*—one who is impregnated with Vedic knowledge from birth; *abhyadhāt*—apprised; *sākṣāt*—directly; *yat āha*—what he spoke; *hariḥ*—the Lord; *ātmanaḥ*—unto His own (Brahmā).

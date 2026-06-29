@@ -1,11 +1,11 @@
 ### SB 7.7.38
 
-> कोऽतिप्रयासोऽसुरबालका हरेरुपासने स्वे हृदि छिद्रवत्सतः
+> कोऽतिप्रयासोऽसुरबालका हरेरुपासने स्वे हृदि छिद्रवत्सतः\
 > स्वस्यात्मनः सख्युरशेषदेहिनां सामान्यतः किं विषयोपपादनैः ॥३८॥
 
-> ko 'ti-prayāso 'sura-bālakā harer
-> upāsane sve hṛdi chidravat sataḥ
-> svasyātmanaḥ sakhyur aśeṣa-dehināṁ
+> ko 'ti-prayāso 'sura-bālakā harer\
+> upāsane sve hṛdi chidravat sataḥ\
+> svasyātmanaḥ sakhyur aśeṣa-dehināṁ\
 > sāmānyataḥ kiṁ viṣayopapādanaiḥ
 
 *kaḥ*—qué; *ati-prayāsaḥ*—esfuerzo difícil; *asura-bālakāḥ*—¡oh, hijos de los demonios!; *hareḥ*—de la Suprema Personalidad de Dios; *upāsane*—en el desempeño de servicio devocional; *sve*—en el propio; *hṛdi*—lo más hondo del corazón; *chidra-vat*—tal como el espacio; *sataḥ*—que siempre existe; *svasya*—del propio ser, o de la entidad viviente; *ātmanaḥ*—de la Superalma; *sakhyuḥ*—del amigo bienqueriente; *aśeṣa*—ilimitadas; *dehinām*—de las almas corporificadas; *sāmānyataḥ*—generalmente; *kim*—qué necesidad hay; *viṣaya-upapādanaiḥ*—con actividades que producen objetos para el disfrute de los sentidos.

@@ -1,9 +1,9 @@
 ### CC Antya 10.86
 
-> ‘একপাশ হও, মোরে দেহ’ ভিতর যাইতে’  ।
+> ‘একপাশ হও, মোরে দেহ’ ভিতর যাইতে’  ।\
 > প্রভু কহে, — ‘শক্তি নাহি অঙ্গ চালাইতে’ ॥৮৬॥
 
-> 'eka-pāśa hao, more deha' bhitara yāite'
+> 'eka-pāśa hao, more deha' bhitara yāite'\
 > prabhu kahe,--'śakti nāhi aṅga cālāite'
 
 *eka-pāśa hao*—tenga la bondad de ponerse de lado; *more*—a mí; *deha'*—permita; *bhitara*—dentro; *yāite*—entrar; *prabhu kahe*—Śrī Caitanya Mahāprabhu respondió; *śakti*—fuerza; *nāhi*—no hay; *aṅga cālāite*—para mover Mi cuerpo.

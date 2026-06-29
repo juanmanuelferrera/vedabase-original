@@ -1,11 +1,11 @@
 ### SB 1.5.36
 
-> कुर्वाणा यत्र कर्माणि भगवच्छिक्षयासकृत् ।
+> कुर्वाणा यत्र कर्माणि भगवच्छिक्षयासकृत् ।\
 > गृणन्ति गुणनामानि कृष्णस्यानुस्मरन्ति च ॥३६॥
 
-> kurvāṇā yatra karmāṇi
-> bhagavac-chikṣayāsakṛt
-> gṛṇanti guṇa-nāmāni
+> kurvāṇā yatra karmāṇi\
+> bhagavac-chikṣayāsakṛt\
+> gṛṇanti guṇa-nāmāni\
 > kṛṣṇasyānusmaranti ca
 
 *kurvāṇāḥ*—while performing; *yatra*—thereupon; *karmāṇi*—duties; *bhagavat*—the Personality of Godhead; *śikṣayā*—by the will of; *asakṛt*—constantly; *gṛṇanti*—takes on; *guṇa*—qualities; *nāmāni*—names; *kṛṣṇasya*—of Kṛṣṇa; *anusmaranti*—constantly remembers; *ca*—and.

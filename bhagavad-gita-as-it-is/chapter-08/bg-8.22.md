@@ -1,11 +1,11 @@
 ### Bg 8.22
 
-> पुरुषः स परः पार्थ भक्त्या लभ्यस्त्वनन्यया ।
+> पुरुषः स परः पार्थ भक्त्या लभ्यस्त्वनन्यया ।\
 > यस्यान्तःस्थानि भूतानि येन सर्वमिदं ततम् ॥२२॥
 
-> puruṣaḥ sa paraḥ pārtha
-> bhaktyā labhyas tv ananyayā
-> yasyāntaḥ-sthāni bhūtāni
+> puruṣaḥ sa paraḥ pārtha\
+> bhaktyā labhyas tv ananyayā\
+> yasyāntaḥ-sthāni bhūtāni\
 > yena sarvam idaṁ tatam
 
 *puruṣaḥ*—the Supreme Personality; *saḥ*—He; *paraḥ*—the Supreme, than whom no one is greater; *pārtha*—O son of Pṛthā; *bhaktyā*—by devotional service; *labhyaḥ*—can be achieved; *tu*—but; *ananyayā*—unalloyed, undeviating devotion; *yasya*—His; *antaḥsthāni*—within; *bhūtāni*—all this material manifestation; *yena*—by whom; *sarvam*—all; *idam*—whatever we can see; *tatam*—distributed.

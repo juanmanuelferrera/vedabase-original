@@ -1,11 +1,11 @@
 ### SB 4.30.34
 
-> तुलयाम लवेनापि न स्वर्गं नापुनर्भवम् ।
+> तुलयाम लवेनापि न स्वर्गं नापुनर्भवम् ।\
 > भगवत्सङ्गिसङ्गस्य मर्त्यानां किमुताशिषः ॥३४॥
 
-> tulayāma lavenāpi
-> na svargaṁ nāpunar-bhavam
-> bhagavat-saṅgi-saṅgasya
+> tulayāma lavenāpi\
+> na svargaṁ nāpunar-bhavam\
+> bhagavat-saṅgi-saṅgasya\
 > martyānāṁ kim utāśiṣaḥ
 
 *tulayāma*—we compare; *lavena*—with a moment; *api*—even; *na*—not; *svargam*—attainment of the heavenly planets; *na*—not; *apunaḥ-bhavam*—merging into the Brahman effulgence; *bhagavat*—of the Supreme Personality of Godhead; *saṅgi*—with associates; *saṅgasya*—of association; *martyānām*—of persons who are destined to die; *kim uta*—how much less; *āśiṣaḥ*—benedictions.

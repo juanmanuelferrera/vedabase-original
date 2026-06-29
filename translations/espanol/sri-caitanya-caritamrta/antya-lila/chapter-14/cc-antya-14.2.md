@@ -1,9 +1,9 @@
 ### CC Antya 14.2
 
-> জয় জয় শ্রীচৈতন্য স্বয়ং ভগবান্ ।
+> জয় জয় শ্রীচৈতন্য স্বয়ং ভগবান্ ।\
 > জয় জয় গৌরচন্দ্র ভক্তগণ-প্রাণ ॥২॥
 
-> jaya jaya śrī-caitanya svayaṁ bhagavān
+> jaya jaya śrī-caitanya svayaṁ bhagavān\
 > jaya jaya gauracandra bhakta-gaṇa-prāṇa
 
 *jaya jaya*—todas las glorias; *śrī-caitanya*—a Śrī Caitanya Mahāprabhu; *svayam bhagavān*—la Personalidad de Dios en persona; *jaya jaya*—todas las glorias; *gaura-candra*—a Śrī Caitanya Mahāprabhu; *bhakta-gaṇa-prāṇa*—la vida y el alma de los devotos.

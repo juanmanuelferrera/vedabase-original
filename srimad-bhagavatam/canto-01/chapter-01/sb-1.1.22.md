@@ -1,11 +1,11 @@
 ### SB 1.1.22
 
-> त्वं नः सन्दर्शितो धात्रा दुस्तरं निस्तितीर्षताम् ।
+> त्वं नः सन्दर्शितो धात्रा दुस्तरं निस्तितीर्षताम् ।\
 > कलिं सत्त्वहरं पुंसां कर्णधार इवार्णवम् ॥२२॥
 
-> tvaṁ naḥ sandarśito dhātrā
-> dustaraṁ nistitīrṣatām
-> kaliṁ sattva-haraṁ puṁsāṁ
+> tvaṁ naḥ sandarśito dhātrā\
+> dustaraṁ nistitīrṣatām\
+> kaliṁ sattva-haraṁ puṁsāṁ\
 > karṇa-dhāra ivārṇavam
 
 *tvam*—Your Goodness; *naḥ*—unto us; *sandarśitaḥ*—meeting; *dhātrā*—by providence; *dustaram*—insurmountable; *nistitīrṣatām*—for those desiring to cross over; *kalim*—the age of Kali; *sattva-haram*—that which deteriorates the good qualities; *puṁsām*—of a man; *karṇa-dhāraḥ*—captain; *iva*—as; *arṇavam*—the ocean.

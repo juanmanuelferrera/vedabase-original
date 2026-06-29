@@ -1,9 +1,9 @@
 ### CC Madhya 8.150
 
-> এই ত’ সংক্ষেপে কহিল কৃষ্ণের স্বরূপ ।
+> এই ত’ সংক্ষেপে কহিল কৃষ্ণের স্বরূপ ।\
 > এবে সংক্ষেপে কহি শুন রাধা-তত্ত্বরূপ ॥১৫০॥
 
-> ei ta' saṅkṣepe kahila kṛṣṇera svarūpa
+> ei ta' saṅkṣepe kahila kṛṣṇera svarūpa\
 > ebe saṅkṣepe kahi śuna rādhā-tattva-rūpa
 
 *ei ta'*—thus; *saṅkṣepe*—in brief; *kahila*—I have said; *kṛṣṇera*—of Lord Kṛṣṇa; *svarūpa*—the original form; *ebe*—now; *saṅkṣepe*—in summary; *kahi*—I shall speak; *śuna*—please hear; *rādhā*—of Śrīmatī Rādhārāṇī; *tattva-rūpa*—the actual position.

@@ -1,9 +1,9 @@
 ### CC Antya 4.193
 
-> সেই দেহ করে তার চিদানন্দময় ।
+> সেই দেহ করে তার চিদানন্দময় ।\
 > অপ্রাকৃত-দেহে তাঁর চরণ ভজয় ॥১৯৩॥
 
-> sei deha kare tāra cid-ānanda-maya
+> sei deha kare tāra cid-ānanda-maya\
 > aprākṛta-dehe tāṅra caraṇa bhajaya
 
 *sei deha*—ese cuerpo; *kare*—hace; *tāra*—su; *cit-ānanda-maya*—lleno de bienaventuranza trascendental; *aprākṛta-dehe*—en ese cuerpo trascendental; *tāṅra*—Sus; *caraṇa*—pies; *bhajaya*—adora.

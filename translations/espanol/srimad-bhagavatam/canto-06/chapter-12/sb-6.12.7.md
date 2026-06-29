@@ -1,11 +1,11 @@
 ### SB 6.12.7
 
-> युयुत्सतां कुत्रचिदाततायिनां जयः सदैकत्र न वै परात्मनाम
+> युयुत्सतां कुत्रचिदाततायिनां जयः सदैकत्र न वै परात्मनाम\
 > विनैकमुत्पत्तिलयस्थितीश्वरं सर्वज्ञअमाद्यं पुरुषं सनातनम ॥७॥
 
-> yuyutsatāṁ kutracid ātatāyināṁ
-> jayaḥ sadaikatra na vai parātmanām
-> vinaikam utpatti-laya-sthitīśvaraṁ
+> yuyutsatāṁ kutracid ātatāyināṁ\
+> jayaḥ sadaikatra na vai parātmanām\
+> vinaikam utpatti-laya-sthitīśvaraṁ\
 > sarvajñam ādyaṁ puruṣaṁ sanātanam
 
 *yuyutsatām*—de aquellos que se enfrentan; *kutracit*—a veces; *ātatāyinām*—provistos de armas; *jayaḥ*—victoria; *sadā*—siempre; *ekatra*—en un lugar; *na*—no; *vai*—en verdad; *para-ātmanām*—de las entidades vivientes subordinadas; *vinā*—excepto; *ekam*—uno; *utpatti*—de la creación; *laya*—aniquilación; *sthiti*—y mantenimiento; *īśvaram*—el controlador; *sarva-jñam*—que lo conoce todo (pasado, presente y futuro); *ādyam*—el original; *puruṣam*—disfrutador; *sanātanam*—eterno.

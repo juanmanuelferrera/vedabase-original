@@ -1,11 +1,11 @@
 ### CC Adi 16.1
 
-> কৃপাসুধা-সরিদ্যস্য বিশ্বমাপ্লাবয়ন্ত্যপি ।
+> কৃপাসুধা-সরিদ্যস্য বিশ্বমাপ্লাবয়ন্ত্যপি ।\
 > নীচগৈব সদা ভাতি তং চৈতন্যপ্রভুং ভজে ॥১॥
 
-> kṛpā-sudhā-sarid yasya
-> viśvam āplāvayanty api
-> nīca-gaiva sadā bhāti
+> kṛpā-sudhā-sarid yasya\
+> viśvam āplāvayanty api\
+> nīca-gaiva sadā bhāti\
 > taṁ caitanya-prabhuṁ bhaje
 
 *kṛpā-sudhā*—of the nectar of the mercy; *sarit*—river; *yasya*—whose; *viśvam*—the whole universe; *āplāvayantī*—inundating; *api*—although; *nīca-gā eva*—more inclined to the poor and fallen; *sadā*—always; *bhāti*—is manifest; *tam*—Him; *caitanya-prabhum*—Lord Śrī Caitanya Mahāprabhu; *bhaje*—I worship.

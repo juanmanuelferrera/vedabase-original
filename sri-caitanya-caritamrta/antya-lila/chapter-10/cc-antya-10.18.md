@@ -1,9 +1,9 @@
 ### CC Antya 10.18
 
-> ভাবগ্রাহী মহাপ্রভু স্নেহমাত্র লয় ।
+> ভাবগ্রাহী মহাপ্রভু স্নেহমাত্র লয় ।\
 > সুকুতা পাতা কাশন্দিতে মহাসুখ পায় ॥১৮॥
 
-> bhāva-grāhī mahāprabhu sneha-mātra laya
+> bhāva-grāhī mahāprabhu sneha-mātra laya\
 > sukutā pātā kāśandite mahā-sukha pāya
 
 *bhāva-grāhī*—one who accepts the purpose; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *sneha*—affection; *mātra*—only; *laya*—accepts; *sukutā pātā*—in leaves of *sukutā*; *kāśandite*—in *kāśandi*; *mahā-sukha*—much pleasure; *pāya*—gets.

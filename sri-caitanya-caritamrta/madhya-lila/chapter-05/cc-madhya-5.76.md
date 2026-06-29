@@ -1,9 +1,9 @@
 ### CC Madhya 5.76
 
-> এই বাক্যে সাক্ষী মোর আছে মহাজন ।
+> এই বাক্যে সাক্ষী মোর আছে মহাজন ।\
 > যাঁর বাক্য সত্য করি মানে ত্রিভুবন ।।” ॥ ৭৬ ॥
 
-> ei vākye sākṣī mora āche mahājana
+> ei vākye sākṣī mora āche mahājana\
 > yāṅra vākya satya kari māne tribhuvana"
 
 *ei vākye*—in this statement; *sākṣī*—witness; *mora*—my; *āche*—there is; *mahājana*—a great personality; *yāṅra*—whose; *vākya*—words; *satya*—true; *kari*—taking as; *māne*—accepts; *tri-bhuvana*—the whole world.

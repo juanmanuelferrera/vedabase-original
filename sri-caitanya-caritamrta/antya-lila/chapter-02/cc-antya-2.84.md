@@ -1,9 +1,9 @@
 ### CC Antya 2.84
 
-> পুরুষোত্তমে প্রভু-পাশে ভগবান্ আচার্য ।
+> পুরুষোত্তমে প্রভু-পাশে ভগবান্ আচার্য ।\
 > পরম বৈষ্ণব তেঁহো সুপণ্ডিত আর্য ॥৮৪॥
 
-> puruṣottame prabhu-pāśe bhagavān ācārya
+> puruṣottame prabhu-pāśe bhagavān ācārya\
 > parama vaiṣṇava teṅho supaṇḍita ārya
 
 *puruṣottame*—at Jagannātha Purī; *prabhu-pāśe*—in the association of Śrī Caitanya Mahāprabhu; *bhagavān ācārya*—Bhagavān Ācārya; *parama vaiṣṇava*—pure devotee; *teṅho*—he; *su-paṇḍita*—very learned scholar; *ārya*—gentleman.

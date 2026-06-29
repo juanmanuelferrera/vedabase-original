@@ -1,9 +1,9 @@
 ### CC Madhya 1.36
 
-> এই সব গ্রন্থ কৈল গোসাঞি সনাতন ।
+> এই সব গ্রন্থ কৈল গোসাঞি সনাতন ।\
 > রূপগোসাঞি কৈল যত, কে করু গণন ॥৩৬॥
 
-> ei saba grantha kaila gosāñi sanātana
+> ei saba grantha kaila gosāñi sanātana\
 > rūpa-gosāñi kaila yata, ke karu gaṇana
 
 *ei saba*—todas estas; *grantha*—escrituras; *kaila*—compiló; *gosāñi sanātana*—Sanātana Gosvāmī; *rūpa-gosāñi*—Rūpa Gosvāmī; *kaila*—hizo; *yata*—todo; *ke*—quién; *karu gaṇana*—puede contar.

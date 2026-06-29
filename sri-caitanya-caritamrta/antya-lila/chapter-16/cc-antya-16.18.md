@@ -1,9 +1,9 @@
 ### CC Antya 16.18
 
-> “আমি — নীচজাতি, তুমি, — অতিথি সর্বোত্তম  ।
+> “আমি — নীচজাতি, তুমি, — অতিথি সর্বোত্তম  ।\
 > কোন্ প্রকারে করিমু আমি তোমার সেবন ? ১৮ ॥১৮॥
 
-> "āmi—nīca-jāti, tumi,—atithi sarvottama
+> "āmi—nīca-jāti, tumi,—atithi sarvottama\
 > kon prakāre karimu āmi tomāra sevana?
 
 *āmi*—I; *nīca-jāti*—belong to a low caste; *tumi*—you; *atithi*—guest; *sarva-uttama*—very respectable; *kon prakāre*—how; *karimu*—shall perform; *āmi*—I; *tomāra sevana*—your service.

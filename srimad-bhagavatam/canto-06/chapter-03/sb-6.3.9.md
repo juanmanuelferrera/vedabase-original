@@ -1,11 +1,11 @@
 ### SB 6.3.9
 
-> नीयमानं तवादेशादस्माभिर्यातनागृहान
+> नीयमानं तवादेशादस्माभिर्यातनागृहान\
 > व्यामोचयन्पातकिनं छित्त्वा पाशान्प्रसह्य ते ॥९॥
 
-> nīyamānaṁ tavādeśād
-> asmābhir yātanā-gṛhān
-> vyāmocayan pātakinaṁ
+> nīyamānaṁ tavādeśād\
+> asmābhir yātanā-gṛhān\
+> vyāmocayan pātakinaṁ\
 > chittvā pāśān prasahya te
 
 *nīyamānam*—being brought; *tava ādeśāt*—by your order; *asmābhiḥ*—by us; *yātanā-gṛhān*—to the torture chambers, the hellish planets; *vyāmocayan*—released; *pātakinam*—the sinful Ajāmila; *chittvā*—cutting; *pāśān*—the ropes; *prasahya*—by force; *te*—they.

@@ -1,11 +1,11 @@
 ### SB 9.13.9
 
-> यस्य योगं न वाञ्छन्ति वियोगभयकातराः
+> यस्य योगं न वाञ्छन्ति वियोगभयकातराः\
 > भजन्ति चरणाम्भोजं मुनयो हरिमेधसः ॥९॥
 
-> yasya yogaṁ na vāñchanti
-> viyoga-bhaya-kātarāḥ
-> bhajanti caraṇāmbhojaṁ
+> yasya yogaṁ na vāñchanti\
+> viyoga-bhaya-kātarāḥ\
+> bhajanti caraṇāmbhojaṁ\
 > munayo hari-medhasaḥ
 
 *yasya*—with the body; *yogam*—contact; *na*—do not; *vāñchanti*—*jñānīs* desire; *viyoga-bhaya-kātarāḥ*—being afraid of giving up the body again; *bhajanti*—offer transcendental loving service; *caraṇa-ambhojam*—to the lotus feet of the Lord; *munayaḥ*—great saintly persons; *hari-medhasaḥ*—whose intelligence is always absorbed in thoughts of Hari, the Supreme Personality of Godhead.

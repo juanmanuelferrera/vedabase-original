@@ -1,11 +1,11 @@
 ### SB 3.20.40
 
-> सृष्ट्वा भूतपिशाचांश्च भगवानात्मतन्द्रिणा ।
+> सृष्ट्वा भूतपिशाचांश्च भगवानात्मतन्द्रिणा ।\
 > दिग्वाससो मुक्तकेशान्वीक्ष्य चामीलयद्दृशौ ॥४०॥
 
-> sṛṣṭvā bhūta-piśācāṁś ca
-> bhagavān ātma-tandriṇā
-> dig-vāsaso mukta-keśān
+> sṛṣṭvā bhūta-piśācāṁś ca\
+> bhagavān ātma-tandriṇā\
+> dig-vāsaso mukta-keśān\
 > vīkṣya cāmīlayad dṛśau
 
 *sṛṣṭvā*—having created; *bhūta*—ghosts; *piśācān*—fiends; *ca*—and; *bhagavān*—Lord Brahmā; *ātma*—his; *tandriṇā*—from laziness; *dik-vāsasaḥ*—naked; *mukta*—disheveled; *keśān*—hair; *vīkṣya*—seeing; *ca*—and; *amīlayat*—closed; *dṛśau*—two eyes.

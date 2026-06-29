@@ -1,11 +1,11 @@
 ### Īśo 18
 
-> अग्ने नय सुपथा राये अस्मान् विश्वानि देव वयुनानि विद्वान्।
+> अग्ने नय सुपथा राये अस्मान् विश्वानि देव वयुनानि विद्वान्।\
 > युयोध्यस्मज्जुहुराणमेनो भूयिष्ठां ते नमउक्तिं विधेम॥१८॥
 
-> agne naya supathā rāye asmān
-> viśvāni deva vayunāni vidvān
-> yuyodhy asmaj juhurāṇam eno
+> agne naya supathā rāye asmān\
+> viśvāni deva vayunāni vidvān\
+> yuyodhy asmaj juhurāṇam eno\
 > bhūyiṣṭhāṁ te nama-uktiṁ vidhema
 
 *agne*—O my Lord, as powerful as fire; *naya*—kindly lead; *supathā*—by the right path; *rāye*—for reaching You; *asmān*—us; *viśvāni*—all; *deva*—O my Lord; *vayunāni*—actions; *vidvān*—the knower; *yuyodhi*—kindly remove; *asmat*—from us; *juhurāṇam*—all hindrances on the path; *enaḥ*—all vices; *bhūyiṣṭhām*—most numerous; *te*—unto You; *namaḥ uktim*—words of obeisance; *vidhema*—I do.

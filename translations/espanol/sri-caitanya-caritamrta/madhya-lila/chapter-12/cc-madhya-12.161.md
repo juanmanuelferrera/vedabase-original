@@ -1,9 +1,9 @@
 ### CC Madhya 12.161
 
-> ভক্ত-সঙ্গে প্রভু করুন প্রসাদ অঙ্গীকার  ।
+> ভক্ত-সঙ্গে প্রভু করুন প্রসাদ অঙ্গীকার  ।\
 > এ-সঙ্গে বসিতে যোগ্য নহি মুঞি ছার ॥১৬১॥
 
-> bhakta-saṅge prabhu karuna prasāda aṅgīkāra
+> bhakta-saṅge prabhu karuna prasāda aṅgīkāra\
 > e-saṅge vasite yogya nahi muñi chāra
 
 *bhakta-saṅge prabhu*—que Śrī Caitanya Mahāprabhu se siente con los devotos; *karuna*—que Él haga; *prasāda*—de los restos de alimentos; *aṅgīkāra*—aceptación; *e-saṅge*—con este grupo; *vasite*—sentarme; *yogya*—digno; *nahi*—no soy; *muñi*—yo; *chāra*—el más abyecto.

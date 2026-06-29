@@ -1,11 +1,11 @@
 ### Bg 3.31
 
-> ये मे मतमिदं नित्यमनुतिष्ठन्ति मानवाः ।
+> ये मे मतमिदं नित्यमनुतिष्ठन्ति मानवाः ।\
 > श्रद्धावन्तोऽनसूयन्तो मुच्यन्ते तेऽपि कर्मभिः ॥३१॥
 
-> ye me matam idaṁ nityam
-> anutiṣṭhanti mānavāḥ
-> śraddhāvanto'nasūyanto
+> ye me matam idaṁ nityam\
+> anutiṣṭhanti mānavāḥ\
+> śraddhāvanto'nasūyanto\
 > mucyante te'pi karmabhiḥ
 
 *ye*—aquellos; *me*—Mí; *matam*—mandatos; *idam*—estos; *nityam*—función eterna; *anutiṣṭhanti*—ejecutan regularmente; *mānavāḥ*—humanidad; *śraddhā-vantaḥ*—con fe y devoción; *anasūyantaḥ*—sin envidia; *mucyante*—se liberan; *te*—todos ellos; *api*—incluso; *karmabhiḥ*—del cautiverio de la ley de la acción fruitiva.

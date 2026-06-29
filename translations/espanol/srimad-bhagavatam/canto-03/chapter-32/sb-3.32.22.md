@@ -1,11 +1,11 @@
 ### SB 3.32.22
 
-> तस्मात्त्वं सर्वभावेन भजस्व परमेष्ठिनम् ।
+> तस्मात्त्वं सर्वभावेन भजस्व परमेष्ठिनम् ।\
 > तद्गुणाश्रयया भक्त्या भजनीयपदाम्बुजम् ॥२२॥
 
-> tasmāt tvaṁ sarva-bhāvena
-> bhajasva parameṣṭhinam
-> tad-guṇāśrayayā bhaktyā
+> tasmāt tvaṁ sarva-bhāvena\
+> bhajasva parameṣṭhinam\
+> tad-guṇāśrayayā bhaktyā\
 > bhajanīya-padāmbujam
 
 *tasmāt*—por lo tanto; *tvam*—tú (Devahūti); *sarva-bhāvena*—con éxtasis de amor; *bhajasva*—adora; *parameṣṭhinam*—a la Suprema Personalidad de Dios; *tat-guṇa*—las cualidades del Señor; *āśrayayā*—conectada con; *bhaktyā*—mediante servicio devocional; *bhajanīya*—dignos de adoración; *pada-ambujam*—cuyos pies de loto.

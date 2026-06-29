@@ -1,13 +1,13 @@
 ### SB 7.9.37
 
-> तस्मै भवान्हयशिरस्तनुवं हि बिभ्रद
-> वेदद्रुहावतिबलौ मधुकैटभाख्यौ
-> हत्वानयच्छ्रुतिगणांश्च रजस्तमश्च
+> तस्मै भवान्हयशिरस्तनुवं हि बिभ्रद\
+> वेदद्रुहावतिबलौ मधुकैटभाख्यौ\
+> हत्वानयच्छ्रुतिगणांश्च रजस्तमश्च\
 > सत्त्वं तव प्रियतमां तनुमामनन्ति ॥३७॥
 
-> tasmai bhavān haya-śiras tanuvaṁ hi bibhrad
-> veda-druhāv atibalau madhu-kaiṭabhākhyau
-> hatvānayac chruti-gaṇāṁś ca rajas tamaś ca
+> tasmai bhavān haya-śiras tanuvaṁ hi bibhrad\
+> veda-druhāv atibalau madhu-kaiṭabhākhyau\
+> hatvānayac chruti-gaṇāṁś ca rajas tamaś ca\
 > sattvaṁ tava priyatamāṁ tanum āmananti
 
 *tasmai*—al Señor Brahmā; *bhavān*—Tu Señoría; *haya-śiraḥ*—con la cabeza y el cuello de un caballo; *tanuvam*—la encarnación; *hi*—en verdad; *bibhrat*—aceptar; *veda-druhau*—dos demonios que estaban en contra de los principios védicos; *ati-balau*—extraordinariamente poderosos; *madhu-kaiṭabha-ākhyau*—conocidos con los nombres de Madhu y Kaiṭabha; *hatvā*—matar; *anayat*—entregaste; *śruti-gaṇān*—todos los*Vedas* (*Sāma, Yajur, Ṛg* y *Atharva*); *ca*—y; *rajaḥ tamaḥ ca*—representantes de las modalidades de la pasión y la ignorancia; *sattvam*—bondad trascendental pura; *tava*—Tuya; *priya-tamām*—muy querida; *tanum*—a la forma (de Hayagrīva); *āmananti*—honran.

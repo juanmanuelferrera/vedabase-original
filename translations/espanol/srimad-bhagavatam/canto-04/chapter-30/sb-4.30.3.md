@@ -1,13 +1,13 @@
 ### SB 4.30.3
 
-> मैत्रेय उवाच
-> प्रचेतसोऽन्तरुदधौ पितुरादेशकारिणः ।
+> मैत्रेय उवाच\
+> प्रचेतसोऽन्तरुदधौ पितुरादेशकारिणः ।\
 > अपयज्ञेन तपसा पुरञ्जनमतोषयन् ॥३॥
 
-> maitreya uvāca
-> pracetaso 'ntar udadhau
-> pitur ādeśa-kāriṇaḥ
-> japa-yajñena tapasā
+> maitreya uvāca\
+> pracetaso 'ntar udadhau\
+> pitur ādeśa-kāriṇaḥ\
+> japa-yajñena tapasā\
 > purañjanam atoṣayan
 
 *maitreyaḥ uvāca*—Maitreya dijo; *pracetasaḥ*—los Pracetās; *antaḥ*—dentro; *udadhau*—del mar; *pituḥ*—de su padre; *ādeśa-kāriṇaḥ*—los que cumplían las órdenes; *japa-yajñena*—con el canto de *mantras*; *tapasā*—someterse a rigurosas austeridades; *puram-janam*—a la Suprema Personalidad de Dios; *atoṣayan*—satisficieron.

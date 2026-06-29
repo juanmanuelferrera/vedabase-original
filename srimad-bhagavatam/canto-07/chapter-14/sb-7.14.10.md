@@ -1,11 +1,11 @@
 ### SB 7.14.10
 
-> त्रिवर्गं नातिकृच्छ्रेण भजेत गृहमेध्यपि
+> त्रिवर्गं नातिकृच्छ्रेण भजेत गृहमेध्यपि\
 > यथादेशं यथाकालं यावद्दैवोपपादितम ॥१०॥
 
-> tri-vargaṁ nātikṛcchreṇa
-> bhajeta gṛha-medhy api
-> yathā-deśaṁ yathā-kālaṁ
+> tri-vargaṁ nātikṛcchreṇa\
+> bhajeta gṛha-medhy api\
+> yathā-deśaṁ yathā-kālaṁ\
 > yāvad-daivopapāditam
 
 *tri-vargam*—three principles, namely religiosity, economic development and sense gratification; *na*—not; *ati-kṛcchreṇa*—by very severe endeavor; *bhajeta*—should execute; *gṛha-medhī*—a person interested only in family life; *api*—although; *yathā-deśam*—according to the place; *yathā-kālam*—according to the time; *yāvat*—as much as; *daiva*—by the grace of the Lord; *upapāditam*—obtained.

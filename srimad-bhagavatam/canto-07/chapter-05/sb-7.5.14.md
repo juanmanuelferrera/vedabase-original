@@ -1,11 +1,11 @@
 ### SB 7.5.14
 
-> यथा भ्राम्यत्ययो ब्रह्मन्स्वयमाकर्षसन्निधौ
+> यथा भ्राम्यत्ययो ब्रह्मन्स्वयमाकर्षसन्निधौ\
 > तथा मे भिद्यते चेतश्चक्रपाणेर्यदृच्छया ॥१४॥
 
-> yathā bhrāmyaty ayo brahman
-> svayam ākarṣa-sannidhau
-> tathā me bhidyate cetaś
+> yathā bhrāmyaty ayo brahman\
+> svayam ākarṣa-sannidhau\
+> tathā me bhidyate cetaś\
 > cakra-pāṇer yadṛcchayā
 
 *yathā*—just as; *bhrāmyati*—moves; *ayaḥ*—iron; *brahman*—O *brāhmaṇas*; *svayam*—itself; *ākarṣa*—of a magnet; *sannidhau*—in the proximity; *tathā*—similarly; *me*—my; *bhidyate*—is changed; *cetaḥ*—consciousness; *cakra-pāṇeḥ*—of Lord Viṣṇu, who has a disc in His hand; *yadṛcchayā*—simply by the will.

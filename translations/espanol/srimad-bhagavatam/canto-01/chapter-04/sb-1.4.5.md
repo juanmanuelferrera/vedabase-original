@@ -1,13 +1,13 @@
 ### SB 1.4.5
 
-> दृष्ट्वानुयान्तमृषिमात्मजमप्यनग्नं
-> देव्यो ह्रिया परिदधुर्न सुतस्य चित्रम् ।
-> तद्वीक्ष्य पृच्छति मुनौ जगदुस्तवास्ति
+> दृष्ट्वानुयान्तमृषिमात्मजमप्यनग्नं\
+> देव्यो ह्रिया परिदधुर्न सुतस्य चित्रम् ।\
+> तद्वीक्ष्य पृच्छति मुनौ जगदुस्तवास्ति\
 > स्त्रीपुम्भिदा न तु सुतस्य विविक्तदृष्टेः ॥५॥
 
-> dṛṣṭvānuyāntam ṛṣim ātmajam apy anagnaṁ
-> devyo hriyā paridadhur na sutasya citram
-> tad vīkṣya pṛcchati munau jagadus tavāsti
+> dṛṣṭvānuyāntam ṛṣim ātmajam apy anagnaṁ\
+> devyo hriyā paridadhur na sutasya citram\
+> tad vīkṣya pṛcchati munau jagadus tavāsti\
 > strī-pum-bhidā na tu sutasya vivikta-dṛṣṭeḥ
 
 *dṛṣṭvā*—por ver; *anuyāntam*—siguiendo; *ṛṣim*—el sabio; *ātmajam*—su hijo; *api*—a pesar de; *anagnam*—no desnudo; *devyaḥ*—hermosas doncellas; *hriyā*—por timidez; *paridadhuḥ*—cubrieron el cuerpo; *na*—no; *sutasya*—del hijo; *citram*—asombroso; *tat vīkṣya*—por ver eso; *pṛcchati*—preguntando; *munau*—al *muni* (Vyāsa); *jagaduḥ*—respondieron; *tava*—tu; *asti*—hay; *strī-pum*—masculino y femenino; *bhidā*—diferencias; *na*—no; *tu*—pero; *sutasya*—del hijo; *vivikta*—purificado; *dṛṣṭeḥ*—de aquel que mira.

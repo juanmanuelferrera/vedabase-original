@@ -1,9 +1,9 @@
 ### CC Madhya 18.71
 
-> আর দিন আইলা প্রভু দেখিতে ‘বৃন্দাবন’ ।
+> আর দিন আইলা প্রভু দেখিতে ‘বৃন্দাবন’ ।\
 > ‘কালীয়-হ্রদে’ স্নান কৈলা আর প্রস্কন্দন ॥৭১॥
 
-> āra dina āilā prabhu dekhite 'vṛndāvana'
+> āra dina āilā prabhu dekhite 'vṛndāvana'\
 > 'kālīya-hrade' snāna kailā āra praskandana
 
 *āra dina*—al día siguiente; *āilā*—vino; *prabhu*—Śrī Caitanya Mahāprabhu; *dekhite*—a ver; *vṛndāvana*—Vṛndāvana; *kālīya-hrade*—en el lago Kālīya; *snāna kailā*—se bañó; *āra*—y; *praskandana*—en Praskandana.

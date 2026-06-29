@@ -1,9 +1,9 @@
 ### CC Madhya 18.134
 
-> প্রাতঃকালে অক্রূরে আসি’ রন্ধন করিয়া ।
+> প্রাতঃকালে অক্রূরে আসি’ রন্ধন করিয়া ।\
 > প্রভুরে ভিক্ষা দেন শালগ্রামে সমর্পিয়া ॥১৩৪॥
 
-> prātaḥ-kāle akrūre āsi' randhana kariyā
+> prātaḥ-kāle akrūre āsi' randhana kariyā\
 > prabhure bhikṣā dena śālagrāme samarpiyā
 
 *prātaḥ-kāle*—in the morning; *akrūre*—to Akrūra-tīrtha; *āsi'*—coming; *randhana kariyā*—cooking; *prabhure*—unto Śrī Caitanya Mahāprabhu; *bhikṣā dena*—offer lunch; *śālagrāme samarpiyā*—after offering to the *śālagrāma-śilā.*

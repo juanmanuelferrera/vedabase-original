@@ -1,9 +1,9 @@
 ### CC Adi 17.51
 
-> আরে পাপি, ভক্তদ্বেষি, তোরে না উদ্ধারিমু ।
+> আরে পাপি, ভক্তদ্বেষি, তোরে না উদ্ধারিমু ।\
 > কোটিজন্ম এই মতে কীড়ায় খাওয়াইমু ॥৫১॥
 
-> āre pāpi, bhakta-dveṣi, tore na uddhārimu
+> āre pāpi, bhakta-dveṣi, tore na uddhārimu\
 > koṭi-janma ei mate kīḍāya khāoyāimu
 
 *āre*—¡oh!; *pāpi*—pecador; *bhakta-dveṣi*—envidioso de los devotos; *tore*—a ti; *nā uddhārimu*—no te liberaré; *koṭi-janma*—durante diez millones de nacimientos; *ei mate*—de esta manera; *kīḍāya*—por los gérmenes; *khāoyāimu*—haré que te devoren.

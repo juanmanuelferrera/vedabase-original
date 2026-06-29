@@ -1,9 +1,9 @@
 ### CC Madhya 23.93
 
-> এইমত দাস্যে দাস, সখ্যে সখাগণ ।
+> এইমত দাস্যে দাস, সখ্যে সখাগণ ।\
 > বাৎসল্যে মাতা পিতা আশ্রয়ালম্বন ॥৯৩॥
 
-> ei-mata dāsye dāsa, sakhye sakhā-gaṇa
+> ei-mata dāsye dāsa, sakhye sakhā-gaṇa\
 > vātsalye mātā pitā āśrayālambana
 
 *ei-mata*—de esta manera; *dāsye*—en el *rasa* trascendental de la servidumbre; *dāsa*—sirvientes; *sakhye*—en el *rasa* trascendental de la amistad; *sakhā-gaṇa*—los amigos; *vātsalye*—en el *rasa* trascendental del afecto paternal; *mātā pitā*—madre y padre; *āśraya-ālambana*—el apoyo o refugio del amor como la morada o lugar de residencia del amor.

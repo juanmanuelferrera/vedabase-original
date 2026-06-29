@@ -1,11 +1,11 @@
 ### SB 3.31.25
 
-> परच्छन्दं न विदुषा पुष्यमाणो जनेन सः ।
+> परच्छन्दं न विदुषा पुष्यमाणो जनेन सः ।\
 > अनभिप्रेतमापन्नः प्रत्याख्यातुमनीश्वरः ॥२५॥
 
-> para-cchandaṁ na viduṣā
-> puṣyamāṇo janena saḥ
-> anabhipretam āpannaḥ
+> para-cchandaṁ na viduṣā\
+> puṣyamāṇo janena saḥ\
+> anabhipretam āpannaḥ\
 > pratyākhyātum anīśvaraḥ
 
 *para-chandam*—el deseo de otro; *na*—no; *viduṣā*—entender; *puṣyamāṇaḥ*—siendo mantenido; *janena*—por personas; *saḥ*—él; *anabhipretam*—en circunstancias indeseables; *āpannaḥ*—caído; *pratyākhyātum*—rechazar; *anīśvaraḥ*—no puede.

@@ -1,11 +1,11 @@
 ### SB 3.33.21
 
-> वनं प्रव्रजिते पत्यावपत्यविरहातुरा ।
+> वनं प्रव्रजिते पत्यावपत्यविरहातुरा ।\
 > ज्ञाततत्त्वाप्यभून्नष्टे वत्से गौरिव वत्सला ॥२१॥
 
-> vanaṁ pravrajite patyāv
-> apatya-virahāturā
-> jñāta-tattvāpy abhūn naṣṭe
+> vanaṁ pravrajite patyāv\
+> apatya-virahāturā\
+> jñāta-tattvāpy abhūn naṣṭe\
 > vatse gaur iva vatsalā
 
 *vanam*—al bosque; *pravrajite patyau*—cuando su esposo abandonó el hogar; *apatya-viraha*—por separación de su hijo; *āturā*—muy triste; *jñāta-tattvā*—sabiendo la verdad; *api*—aunque; *abhūt*—ella se volvió; *naṣṭe vatse*—cuando pierde a su ternero; *gauḥ*—una vaca; *iva*—como; *vatsalā*—afectuosa.

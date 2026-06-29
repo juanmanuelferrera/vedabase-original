@@ -1,9 +1,9 @@
 ### CC Madhya 24.224
 
-> কৃষ্ণমননে মুনি কৃষ্ণে সর্বদা ভজয় ।
+> কৃষ্ণমননে মুনি কৃষ্ণে সর্বদা ভজয় ।\
 > ‘আত্মারামা অপি’ ভজে, — গৌণ অর্থ কয় ॥২২৪॥
 
-> kṛṣṇa-manane muni kṛṣṇe sarvadā bhajaya
+> kṛṣṇa-manane muni kṛṣṇe sarvadā bhajaya\
 > 'ātmārāmā api' bhaje,--gauṇa artha kaya
 
 *kṛṣṇa-manane*—al meditar en Kṛṣṇa; *muni*—los santos; *kṛṣṇe*—al Señor Kṛṣṇa; *sarvadā*—siempre; *bhajaya*—prestan servicio devocional; *ātmārāmāḥ api*—también los que son *ātmārāmas*; *bhaje*—se ocupan en el servicio devocional; *gauṇa artha kaya*—esta es también otra acepción secundaria.

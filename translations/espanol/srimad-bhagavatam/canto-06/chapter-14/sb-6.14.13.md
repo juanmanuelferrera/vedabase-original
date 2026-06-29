@@ -1,11 +1,11 @@
 ### SB 6.14.13
 
-> न तस्य सम्पदः सर्वा महिष्यो वामलोचनाः
+> न तस्य सम्पदः सर्वा महिष्यो वामलोचनाः\
 > सार्वभौमस्य भूश्चेयमभवन्प्रीतिहेतवः ॥१३॥
 
-> na tasya sampadaḥ sarvā
-> mahiṣyo vāma-locanāḥ
-> sārvabhaumasya bhūś ceyam
+> na tasya sampadaḥ sarvā\
+> mahiṣyo vāma-locanāḥ\
+> sārvabhaumasya bhūś ceyam\
 > abhavan prīti-hetavaḥ
 
 *na*—no; *tasya*—de él (Citraketu); *sampadaḥ*—las grandes opulencias; *sarvāḥ*—todas; *mahiṣyaḥ*—las reinas; *vāma-locanāḥ*—de ojos muy atractivos; *sārva-bhaumasya*—del emperador; *bhūḥ*—tierra; *ca*—también; *iyam*—esto; *abhavan*—eran; *prīti-hetavaḥ*—fuentes de placer.

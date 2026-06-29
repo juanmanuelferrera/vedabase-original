@@ -1,9 +1,9 @@
 ### CC Antya 6.208
 
-> রঘুনাথে কহে — “যাঞা, কর সিন্ধুস্নান ।
+> রঘুনাথে কহে — “যাঞা, কর সিন্ধুস্নান ।\
 > জগন্নাথ দেখি’ আসি’ করহ ভোজন ।।” ॥ ২০৮ ॥
 
-> raghunāthe kahe--"yāñā, kara sindhu-snāna
+> raghunāthe kahe--"yāñā, kara sindhu-snāna\
 > jagannātha dekhi' āsi' karaha bhojana"
 
 *raghunāthe kahe*—Él dijo a Raghunātha dāsa; *yāñā*—yendo; *kara sindhu-snāna*—báñate en el mar; *jagannātha dekhi'*—después de ver al Señor Jagannātha; *āsi'*—después de volver; *karaha bhojana*—toma tu comida.

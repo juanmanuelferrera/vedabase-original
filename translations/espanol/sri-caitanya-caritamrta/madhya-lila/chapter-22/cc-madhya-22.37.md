@@ -1,9 +1,9 @@
 ### CC Madhya 22.37
 
-> অন্যকামী যদি করে কৃষ্ণের ভজন ।
+> অন্যকামী যদি করে কৃষ্ণের ভজন ।\
 > না মাগিতেহ কৃষ্ণ তারে দেন স্ব-চরণ ॥৩৭॥
 
-> anya-kāmī yadi kare kṛṣṇera bhajana
+> anya-kāmī yadi kare kṛṣṇera bhajana\
 > nā māgiteha kṛṣṇa tāre dena sva-caraṇa
 
 *anya-kāmī*—aquel que desea muchas otras cosas; *yadi*—si; *kare*—ejecuta; *kṛṣṇera bhajana*—servicio devocional al Señor Kṛṣṇa; *nā māgiteha*—aunque sin pedirlo; *kṛṣṇa*—el Señor Kṛṣṇa; *tāre*—a él; *dena*—da; *sva-caraṇa*—el refugio de Sus pies de loto.

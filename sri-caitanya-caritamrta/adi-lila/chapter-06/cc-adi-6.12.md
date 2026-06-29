@@ -1,9 +1,9 @@
 ### CC Adi 6.12
 
-> জগৎ-মঙ্গল অদ্বৈত, মঙ্গল-গুণধাম ।
+> জগৎ-মঙ্গল অদ্বৈত, মঙ্গল-গুণধাম ।\
 > মঙ্গল-চরিত্র সদা, ‘মঙ্গল’ যাঁর নাম ॥১২॥
 
-> jagat-maṅgala advaita, maṅgala-guṇa-dhāma
+> jagat-maṅgala advaita, maṅgala-guṇa-dhāma\
 > maṅgala-caritra sadā, 'maṅgala' yāṅra nāma
 
 *jagat-maṅgala*—all-auspicious to the world; *advaita*—Ādvaita Ācārya; *maṅgala-guṇa-dhāma*—the reservoir of all auspicious attributes; *maṅgala-caritra*—all characteristics are auspicious; *sadā*—always; *maṅgala*—auspicious; *yāṅra nāma*—whose name.

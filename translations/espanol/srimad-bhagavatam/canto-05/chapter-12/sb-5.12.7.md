@@ -1,11 +1,11 @@
 ### SB 5.12.7
 
-> शोच्यानिमांस्त्वमधिकष्टदीनान्विष्ट्या निगृह्णन्निरनुग्रहोऽसि
+> शोच्यानिमांस्त्वमधिकष्टदीनान्विष्ट्या निगृह्णन्निरनुग्रहोऽसि\
 > जनस्य गोप्तास्मि विकत्थमानो न शोभसे वृद्धसभासु धृष्टः ॥७॥
 
-> śocyān imāṁs tvam adhikaṣṭa-dīnān
-> viṣṭyā nigṛhṇan niranugraho 'si
-> janasya goptāsmi vikatthamāno
+> śocyān imāṁs tvam adhikaṣṭa-dīnān\
+> viṣṭyā nigṛhṇan niranugraho 'si\
+> janasya goptāsmi vikatthamāno\
 > na śobhase vṛddha-sabhāsu dhṛṣṭaḥ
 
 *śocyān*—lamentable; *imān*—todos estos; *tvam*—tú; *adhi-kaṣṭa-dīnān*—pobres que sufren más debido a su gran pobreza; *viṣṭyā*—por la fuerza; *nigṛhṇan*—apresando; *niranugrahaḥ asi*—no tienes misericordia en el corazón; *janasya*—de la gente en general; *goptā asmi*—yo soy el protector (rey); *vikatthamānaḥ*—alardeando; *na śobhase*—no pareces muy bueno; *vṛddha-sabhāsu*—en la comunidad de personas eruditas; *dhṛṣṭaḥ*—simplemente impúdico.

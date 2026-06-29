@@ -1,9 +1,9 @@
 ### CC Adi 7.150
 
-> এইমতে তাঁ-সবার ক্ষমি’ অপরাধ ।
+> এইমতে তাঁ-সবার ক্ষমি’ অপরাধ ।\
 > সবাকারে কৃষ্ণ নাম করিলা প্রসাদ ॥১৫০॥
 
-> ei-mate tāṅ-sabāra kṣami' aparādha
+> ei-mate tāṅ-sabāra kṣami' aparādha\
 > sabākāre kṛṣṇa-nāma karilā prasāda
 
 *ei-mate*—in this way; *tāṅ-sabāra*—of all the *sannyāsīs*; *kṣami'*—excusing; *aparādha*—offense; *sabākāre*—all of them; *kṛṣṇa-nāma*—the holy name of Kṛṣṇa; *karilā*—gave; *prasāda*—as mercy.

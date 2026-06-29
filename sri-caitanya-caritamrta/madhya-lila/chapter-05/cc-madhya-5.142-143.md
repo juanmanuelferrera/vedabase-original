@@ -1,14 +1,14 @@
 ### CC Madhya 5.142-143
 
-> কপোতেশ্বর দেখিতে গেলা ভক্তগণ সঙ্গে ।
-> এথা নিত্যানন্দপ্রভু কৈল দণ্ড-ভঙ্গে ॥১৪২॥
-> তিন খণ্ড করি’ দণ্ড দিল ভাসাঞা ।
+> কপোতেশ্বর দেখিতে গেলা ভক্তগণ সঙ্গে ।\
+> এথা নিত্যানন্দপ্রভু কৈল দণ্ড-ভঙ্গে ॥১৪২॥\
+> তিন খণ্ড করি’ দণ্ড দিল ভাসাঞা ।\
 > ভক্ত-সঙ্গে আইলা প্রভু মহেশ দেখিঞা ॥১৪৩॥
 
-> kapoteśvara dekhite gelā bhakta-gaṇa saṅge
+> kapoteśvara dekhite gelā bhakta-gaṇa saṅge\
 > ethā nityānanda-prabhu kaila daṇḍa-bhaṅge
 
-> tina khaṇḍa kari' daṇḍa dila bhāsāñā
+> tina khaṇḍa kari' daṇḍa dila bhāsāñā\
 > bhakta-saṅge āilā prabhu maheśa dekhiñā
 
 *kapoteśvara*—the Śiva temple of the name Kapoteśvara; *dekhite*—to see; *gelā*—went; *bhakta-gaṇa saṅge*—with the devotees; *ethā*—here; *nityānanda-prabhu*—Lord Nityānanda Prabhu; *kaila*—did; *daṇḍa*—of the *sannyāsa* staff; *bhaṅge*—breaking; *tina khaṇḍa*—three parts; *kari'*—making; *daṇḍa*—the staff; *dila*—threw in; *bhāsāñā*—washing away; *bhakta-saṅge*—with the devotees; *āilā*—returned; *prabhu*—Lord Caitanya Mahāprabhu; *maheśa dekhiñā*—having seen the temple of Lord Śiva.

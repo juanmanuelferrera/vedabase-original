@@ -1,11 +1,11 @@
 ### SB 1.8.25
 
-> विपदः सन्तु ताः शश्वत्तत्र तत्र जगद्गुरो ।
+> विपदः सन्तु ताः शश्वत्तत्र तत्र जगद्गुरो ।\
 > भवतो दर्शनं यत्स्यादपुनर्भवदर्शनम् ॥२५॥
 
-> vipadaḥ santu tāḥ śaśvat
-> tatra tatra jagad-guro
-> bhavato darśanaṁ yat syād
+> vipadaḥ santu tāḥ śaśvat\
+> tatra tatra jagad-guro\
+> bhavato darśanaṁ yat syād\
 > apunar bhava-darśanam
 
 *vipadaḥ*—calamidades; *santu*—que ocurran; *tāḥ*—todas; *śaśvat*—una y otra vez; *tatra*—allí; *tatra*—y allí; *jagat-guro*—¡oh, Señor del universo!; *bhavataḥ*—Tu; *darśanam*—encuentro; *yat*—aquello que; *syāt*—es; *apunaḥ*—nunca más; *bhava-darśanam*—viendo la repetición del nacimiento y la muerte.

@@ -1,9 +1,9 @@
 ### CC Antya 13.55
 
-> সনাতন তাঁরে জানি’ লজ্জিত হইলা  ।
+> সনাতন তাঁরে জানি’ লজ্জিত হইলা  ।\
 > বলিতে লাগিলা পণ্ডিত হাণ্ডি চুলাতে ধরিলা ॥৫৫॥
 
-> sanātana tāṅre jāni' lajjita ha-ilā
+> sanātana tāṅre jāni' lajjita ha-ilā\
 > balite lāgilā paṇḍita hāṇḍi culāte dharilā
 
 *sanātana*—Sanātana Gosvāmī; *tāṅre*—him; *jāni'*—knowing; *lajjita ha-ilā*—became ashamed; *balite lāgilā*—began to s peak; *paṇḍita*—Jagadānanda Paṇḍita; *hāṇḍi*—the cooking pot; *culāte*—on the stove; *dharilā*—kept.

@@ -1,11 +1,11 @@
 ### SB 4.7.10
 
-> तदा वृषध्वजद्वेष कलिलात्मा प्रजापतिः ।
+> तदा वृषध्वजद्वेष कलिलात्मा प्रजापतिः ।\
 > शिवावलोकादभवच्छरद्ध्रद इवामलः ॥१०॥
 
-> tadā vṛṣadhvaja-dveṣa-
-> kalilātmā prajāpatiḥ
-> śivāvalokād abhavac
+> tadā vṛṣadhvaja-dveṣa-\
+> kalilātmā prajāpatiḥ\
+> śivāvalokād abhavac\
 > charad-dhrada ivāmalaḥ
 
 *tadā*—at that time; *vṛṣa-dhvaja*—Lord Śiva, who rides on a bull; *dveṣa*—envy; *kalila-ātmā*—polluted heart; *prajāpatiḥ*—King Dakṣa; *śiva*—Lord Śiva; *avalokāt*—by seeing him; *abhavat*—became; *śarat*—in the autumn; *hradaḥ*—lake; *iva*—like; *amalaḥ*—cleansed.

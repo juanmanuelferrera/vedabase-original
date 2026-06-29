@@ -1,11 +1,11 @@
 ### SB 4.29.68
 
-> सर्वे क्रमानुरोधेन मनसीन्द्रियगोचराः ।
+> सर्वे क्रमानुरोधेन मनसीन्द्रियगोचराः ।\
 > आयान्ति बहुशो यान्ति सर्वे समनसो जनाः ॥६८॥
 
-> sarve kramānurodhena
-> manasīndriya-gocarāḥ
-> āyānti bahuśo yānti
+> sarve kramānurodhena\
+> manasīndriya-gocarāḥ\
+> āyānti bahuśo yānti\
 > sarve samanaso janāḥ
 
 *sarve*—todos; *krama-anurodhena*—en orden cronológico; *manasi*—en la mente; *indriya*—por los sentidos; *gocarāḥ*—experimentadas; *āyānti*—vienen; *bahuśaḥ*—de muchas maneras; *yānti*—se van; *sarve*—todos; *samanasaḥ*—con una mente; *janāḥ*—entidades vivientes.

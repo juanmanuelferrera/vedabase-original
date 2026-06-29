@@ -1,8 +1,8 @@
 ### CC Adi 1.34
 
-> vande gurūn īśa-bhaktān
-> īśam īśāvatārakān
-> tat-prakāśāṁś ca tac-chaktīḥ
+> vande gurūn īśa-bhaktān\
+> īśam īśāvatārakān\
+> tat-prakāśāṁś ca tac-chaktīḥ\
 > kṛṣṇa-caitanya-saṁjñakam
 
 *vande*—ofereço respeitosas reverências; *gurūn*—aos mestres espirituais; *īśa-bhaktān*—aos devotos do Senhor Supremo; *īśam*—ao Senhor Supremo; *īśa-avatārakān*—às encarnações do Senhor Supremo; *tat*—do Senhor Supremo; *prakāśān*—às manifestações; *ca*—e; *tat*—do Senhor Supremo; *śaktīḥ*—às potências; *kṛṣṇa-caitanya*—Śrī Kṛṣṇa Caitanya; *saṁjñakam*—chamado.

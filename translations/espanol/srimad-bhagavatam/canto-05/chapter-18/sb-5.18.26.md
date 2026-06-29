@@ -1,11 +1,11 @@
 ### SB 5.18.26
 
-> अन्तर्बहिश्चाखिललोकपालकैरदृष्टरूपो विचरस्युरुस्वनः
+> अन्तर्बहिश्चाखिललोकपालकैरदृष्टरूपो विचरस्युरुस्वनः\
 > स ईश्वरस्त्वं य इदं वशेऽनयन्नाम्ना यथा दारुमयीं नरः स्त्रियम ॥२६॥
 
-> antar bahiś cākhila-loka-pālakair
-> adṛṣṭa-rūpo vicarasy uru-svanaḥ
-> sa īśvaras tvaṁ ya idaṁ vaśe 'nayan
+> antar bahiś cākhila-loka-pālakair\
+> adṛṣṭa-rūpo vicarasy uru-svanaḥ\
+> sa īśvaras tvaṁ ya idaṁ vaśe 'nayan\
 > nāmnā yathā dārumayīṁ naraḥ striyam
 
 *antaḥ*—dentro; *bahiḥ*—fuera; *ca*—también; *akhila-loka-pālakaiḥ*—por los líderes de los diversos planetas, sociedades, reinos, etc.; *adṛṣṭa-rūpaḥ*—no visto; *vicarasi*—Tú vagas; *uru*—muy grande; *svanaḥ*—cuyos sonidos (*mantras* védicos); *saḥ*—Él; *īśvaraḥ*—el controlador supremo; *tvam*—Tú; *yaḥ*—quien; *idam*—este; *vaśe*—bajo control; *anayat*—ha puesto; *nāmnā*—con distintos nombres, como *brāhmaṇa, kṣatriya, vaiśya,* y *śūdra*; *yathā*—exactamente como; *dārumayīm*—hecho de madera; *naraḥ*—un hombre; *striyam*—a un muñeco.

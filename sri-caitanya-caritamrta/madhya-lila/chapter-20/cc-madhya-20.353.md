@@ -1,9 +1,9 @@
 ### CC Madhya 20.353
 
-> সর্বজ্ঞ মুনির বাক্য — শাস্ত্র-‘পরমাণ’ ।
+> সর্বজ্ঞ মুনির বাক্য — শাস্ত্র-‘পরমাণ’ ।\
 > আমা-সবা জীবের হয় শাস্ত্রদ্বারা ‘জ্ঞান’ ॥৩৫৩॥
 
-> sarvajña munira vākya—śāstra-'paramāṇa'
+> sarvajña munira vākya—śāstra-'paramāṇa'\
 > āmā-sabā jīvera haya śāstra-dvārā jñāna'
 
 *sarva-jña munira vākya*—the words of the omniscient muni (Vyāsadeva); *śāstra-paramāṇa*—evidence of revealed scriptures; *āmā-sabā*—all of us; *jīvera*—of the conditioned souls; *haya*—there is; *śāstra-dvārā*—through the medium of revealed scriptures; *jñāna*—knowledge.

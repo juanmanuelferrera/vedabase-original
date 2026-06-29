@@ -1,9 +1,9 @@
 ### SB 5.16.1
 
-> राजोवाच
+> राजोवाच\
 > उक्तस्त्वया भूमण्डलायामविशेषो यावदादित्यस्तपति यत्र चासौ ज्योतिषां गणैश्चन्द्रमा वासह दृश्यते ॥१॥
 
-> rājovāca
+> rājovāca\
 > uktas tvayā bhū-maṇḍalāyāma-viśeṣo yāvad ādityas tapati yatra cāsau jyotiṣāṁ gaṇaiś candramā vā saha dṛśyate.
 
 *rājā uvāca*—Mahārāja Parīkṣit said; *uktaḥ*—already been said; *tvayā*—by you; *bhū-maṇḍala*—of the planetary system known as Bhū-maṇḍala; *āyāma-viśeṣaḥ*—the specific length of the radius; *yāvat*—as far as; *ādityaḥ*—the sun; *tapati*—heats; *yatra*—wherever; *ca*—also; *asau*—that; *jyotiṣām*—of the luminaries; *gaṇaiḥ*—with hordes; *candramā*—the moon; *vā*—either; *saha*—with; *dṛśyate*—is seen.

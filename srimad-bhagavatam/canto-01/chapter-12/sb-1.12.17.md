@@ -1,11 +1,11 @@
 ### SB 1.12.17
 
-> तस्मान्नाम्ना विष्णुरात इति लोके भविष्यति ।
+> तस्मान्नाम्ना विष्णुरात इति लोके भविष्यति ।\
 > न सन्देहो महाभाग महाभागवतो महान् ॥१७॥
 
-> tasmān nāmnā viṣṇu-rāta
-> iti loke bhaviṣyati
-> na sandeho mahā-bhāga
+> tasmān nāmnā viṣṇu-rāta\
+> iti loke bhaviṣyati\
+> na sandeho mahā-bhāga\
 > mahā-bhāgavato mahān
 
 *tasmāt*—therefore; *nāmnā*—by the name; *viṣṇu-rātaḥ*—protected by Viṣṇu, the Personality of Godhead; *iti*—thus; *loke*—in all the planets; *bhaviṣyati*—shall become well known; *na*—no; *sandehaḥ*—doubts; *mahā-bhāga*—most fortunate; *mahā-bhāgavataḥ*—the first-class devotee of the Lord; *mahān*—qualified by all good qualities.

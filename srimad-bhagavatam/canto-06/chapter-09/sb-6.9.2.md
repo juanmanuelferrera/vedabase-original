@@ -1,11 +1,11 @@
 ### SB 6.9.2
 
-> स वै बर्हिषि देवेभ्यो भागं प्रत्यक्षमुच्चकैः
+> स वै बर्हिषि देवेभ्यो भागं प्रत्यक्षमुच्चकैः\
 > अददद्यस्य पितरो देवाः सप्रश्रयं नृप ॥२॥
 
-> sa vai barhiṣi devebhyo
-> bhāgaṁ pratyakṣam uccakaiḥ
-> adadad yasya pitaro
+> sa vai barhiṣi devebhyo\
+> bhāgaṁ pratyakṣam uccakaiḥ\
+> adadad yasya pitaro\
 > devāḥ sapraśrayaṁ nṛpa
 
 *saḥ*—he (Viśvarūpa); *vai*—indeed; *barhiṣi*—in the sacrificial fire; *devebhyaḥ*—unto the particular demigods; *bhāgam*—the proper share; *pratyakṣam*—visibly; *uccakaiḥ*—by loud chanting of the *mantras*; *adadat*—offered; *yasya*—of whom; *pitaraḥ*—the fathers; *devāḥ*—demigods; *sa-praśrayam*—very humbly in a gentle voice; *nṛpa*—O King Parīkṣit.

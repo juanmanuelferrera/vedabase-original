@@ -1,11 +1,11 @@
 ### SB 4.31.3
 
-> तान्निर्जितप्राणमनोवचोदृशो जितासनान्शान्तसमानविग्रहान् ।
+> तान्निर्जितप्राणमनोवचोदृशो जितासनान्शान्तसमानविग्रहान् ।\
 > परेऽमले ब्रह्मणि योजितात्मनः सुरासुरेड्यो ददृशे स्म नारदः ॥३॥
 
-> tān nirjita-prāṇa-mano-vaco-dṛśo
-> jitāsanān śānta-samāna-vigrahān
-> pare 'male brahmaṇi yojitātmanaḥ
+> tān nirjita-prāṇa-mano-vaco-dṛśo\
+> jitāsanān śānta-samāna-vigrahān\
+> pare 'male brahmaṇi yojitātmanaḥ\
 > surāsureḍyo dadṛśe sma nāradaḥ
 
 *tān*—todos ellos; *nirjita*—completamente controlado; *prāṇa*—el aire vital (mediante el proceso de *prāṇāyāma*); *manaḥ*—la mente; *vacaḥ*—las palabras; *dṛśaḥ*—y la visión; *jita-āsanān*—que dominaron el *āsana* yóguico (postura de sentarse); *śānta*—serenos; *samāna*—erguidos derechos; *vigrahān*—cuyos cuerpos; *pare*—trascendental; *amale*—libre de contaminación material; *brahmaṇi*—en el Supremo; *yojita*—ocupadas; *ātmanaḥ*—cuyas mentes; *sura-asura-īḍyaḥ*—adorado por semidioses y demonios; *dadṛśe*—vieron; *sma*—en el pasado; *nāradaḥ*—al gran sabio Nārada.

@@ -1,11 +1,11 @@
 ### SB 9.13.27
 
-> एते वै मैथिला राजन्नात्मविद्याविशारदाः
+> एते वै मैथिला राजन्नात्मविद्याविशारदाः\
 > योगेश्वरप्रसादेन द्वन्द्वैर्मुक्ता गृहेष्वपि ॥२७॥
 
-> ete vai maithilā rājann
-> ātma-vidyā-viśāradāḥ
-> yogeśvara-prasādena
+> ete vai maithilā rājann\
+> ātma-vidyā-viśāradāḥ\
+> yogeśvara-prasādena\
 > dvandvair muktā gṛheṣv api
 
 *ete*—all of them; *vai*—indeed; *maithilāḥ*—the descendants of Mithila; *rājan*—O King; *ātma-vidyā-viśāradāḥ*—expert in spiritual knowledge; *yogeśvara-prasādena*—by the grace of Yogeśvara, the Supreme Personality of Godhead, Kṛṣṇa; *dvandvaiḥ muktāḥ*—they were all freed from the duality of the material world; *gṛheṣu api*—even though staying at home.

@@ -1,11 +1,11 @@
 ### SB 6.12.35
 
-> वृत्रस्य देहान्निष्क्रान्तमात्मज्योतिररिन्दम
+> वृत्रस्य देहान्निष्क्रान्तमात्मज्योतिररिन्दम\
 > पश्यतां सर्वदेवानामलोकं समपद्यत ॥३५॥
 
-> vṛtrasya dehān niṣkrāntam
-> ātma-jyotir arindama
-> paśyatāṁ sarva-devānām
+> vṛtrasya dehān niṣkrāntam\
+> ātma-jyotir arindama\
+> paśyatāṁ sarva-devānām\
 > alokaṁ samapadyata
 
 *vṛtrasya*—de Vṛtrāsura; *dehāt*—del cuerpo; *niṣkrāntam*—salir; *ātma-jyotiḥ*—el alma espiritual, que era tan brillante como la refulgencia del Brahman; *arim-dama*—¡oh, rey Parīkṣit, subyugador de enemigos!; *paśyatām*—estaban mirando; *sarva-devānām*—mientras todos los semidioses; *alokam*—la morada suprema, llena de la refulgencia del Brahman; *samapadyata*—alcanzó.

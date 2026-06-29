@@ -1,9 +1,9 @@
 ### CC Madhya 6.209
 
-> দেখি’ গোপীনাথাচার্য হরষিত-মন ৷
+> দেখি’ গোপীনাথাচার্য হরষিত-মন ৷\
 > ভট্টাচার্যের নৃত্য দেখি’ হাসে প্রভুর গণ ॥২০৯॥
 
-> dekhi' gopīnāthācārya haraṣita-mana
+> dekhi' gopīnāthācārya haraṣita-mana\
 > bhaṭṭācāryera nṛtya dekhi' hāse prabhura gaṇa
 
 *dekhi'*—al ver esto; *gopīnātha-ācārya*—Gopīnātha Ācārya; *haraṣita-mana*—con la mente complacida; *bhaṭṭācāryera*—de Sārvabhauma Bhaṭṭācārya; *nṛtya*—la danza; *dekhi'*—al ver; *hāse*—ríen; *prabhura gaṇa*—los asociados del Señor Caitanya Mahāprabhu.

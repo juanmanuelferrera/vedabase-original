@@ -1,9 +1,9 @@
 ### CC Madhya 19.164
 
-> এইত পরম-ফল ‘পরম-পুরুষার্থ’ ।
+> এইত পরম-ফল ‘পরম-পুরুষার্থ’ ।\
 > যাঁর আগে তৃণ-তুল্য চারি পুরুষার্থ ॥১৬৪॥
 
-> eita parama-phala 'parama-puruṣārtha'
+> eita parama-phala 'parama-puruṣārtha'\
 > yāṅra āge tṛṇa-tulya cāri puruṣārtha
 
 *eita*—this; *parama-phala*—the supreme goal of life; *parama*—supreme; *puruṣa-artha*—interest of the living being; *yāṅra āge*—in the presence of which; *tṛṇa-tulya*—very insignificant; *cāri*—four; *puruṣa-artha*—the different types of human interests.

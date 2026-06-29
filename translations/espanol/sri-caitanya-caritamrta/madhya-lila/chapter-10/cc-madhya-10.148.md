@@ -1,9 +1,9 @@
 ### CC Madhya 10.148
 
-> প্রভুর প্রিয় ভৃত্য করি’ সবে করে মান ৷
+> প্রভুর প্রিয় ভৃত্য করি’ সবে করে মান ৷\
 > সকল বৈষ্ণবের গোবিন্দ করে সমাধান ৷৷ ১৪৮ ৷৷ ॥১৪৮॥
 
-> prabhura priya bhṛtya kari' sabe kare māna
+> prabhura priya bhṛtya kari' sabe kare māna\
 > sakala vaiṣṇavera govinda kare samādhāna
 
 *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *priya*—querido; *bhṛtya*—sirviente; *kari'*—entendiendo; *sabe*—todos; *kare*—muestran; *māna*—respeto; *sakala*—todos; *vaiṣṇavera*—de los devotos; *govinda*—Govinda; *kare*—hace; *samādhāna*—servicio.

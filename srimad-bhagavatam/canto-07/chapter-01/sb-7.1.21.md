@@ -1,12 +1,12 @@
 ### SB 7.1.21
 
-> श्रीबादरायणिरुवाच
-> राज्ञअस्तद्वच आकर्ण्य नारदो भगवानृषिः
+> श्रीबादरायणिरुवाच\
+> राज्ञअस्तद्वच आकर्ण्य नारदो भगवानृषिः\
 > तुष्टः प्राह तमाभाष्य शृण्वत्यास्तत्सदः कथाः ॥२१॥
 
-> etad bhrāmyati me buddhir
-> dīpārcir iva vāyunā
-> brūhy etad adbhutatamaṁ
+> etad bhrāmyati me buddhir\
+> dīpārcir iva vāyunā\
+> brūhy etad adbhutatamaṁ\
 > bhagavān hy atra kāraṇam
 
 *etat*—concerning this; *bhrāmyati*—is flickering; *me*—my; *buddhiḥ*—intelligence; *dīpa-arciḥ*—the flame of a candle; *iva*—like; *vāyunā*—by the wind; *brūhi*—please tell; *etat*—this; *adbhutatamam*—most wonderful; *bhagavān*—possessing all knowledge; *hi*—indeed; *atra*—here; *kāraṇam*—the cause.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.6
 
-> ‘উপলভোগ’ লাগিলে করে বাহিরে বিজয় ৷
+> ‘উপলভোগ’ লাগিলে করে বাহিরে বিজয় ৷\
 > হরিদাস মিলি’ আইসে আপন নিলয় ॥৬॥
 
-> 'upala-bhoga' lāgile kare bāhire vijaya
+> 'upala-bhoga' lāgile kare bāhire vijaya\
 > haridāsa mili' āise āpana nilaya
 
 *upala-bhoga lāgile*—cuando se ofrece el alimento conocido como upala-bhoga; *kare bāhire vijaya*—permanece fuera; *haridāsa mili'*—encontrándose con Haridāsa Ṭhākura; *āise*—regresa; *āpana nilaya*—a Su residencia.

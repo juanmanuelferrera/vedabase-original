@@ -1,11 +1,11 @@
 ### SB 7.12.16
 
-> एवं विधो ब्रह्मचारी वानप्रस्थो यतिर्गृही
+> एवं विधो ब्रह्मचारी वानप्रस्थो यतिर्गृही\
 > चरन्विदितविज्ञआनः परं ब्रह्माधिगच्छति ॥१६॥
 
-> evaṁ vidho brahmacārī
-> vānaprastho yatir gṛhī
-> caran vidita-vijñānaḥ
+> evaṁ vidho brahmacārī\
+> vānaprastho yatir gṛhī\
+> caran vidita-vijñānaḥ\
 > paraṁ brahmādhigacchati
 
 *evam vidhaḥ*—in this way; *brahmacārī*—whether one is a *brahmacārī*; *vānaprasthaḥ*—or one is in the *vānaprastha-āśrama*; *yatiḥ*—or in the *sannyāsa-āśrama*; *gṛhī*—or in the *gṛhastha-āśrama*; *caran*—by practice of self-realization and understanding of the Absolute Truth; *vidita-vijñānaḥ*—fully conversant with the science of the Absolute Truth; *param*—the Supreme; *brahma*—the Absolute Truth; *adhigacchati*—one can understand.

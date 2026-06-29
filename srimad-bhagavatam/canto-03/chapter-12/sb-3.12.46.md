@@ -2,7 +2,7 @@
 
 > मज्जायाः पङ्क्तिरुत्पन्ना बृहती प्राणतोऽभव ॥४६॥
 
-> majjāyāḥ paṅktir utpannā
+> majjāyāḥ paṅktir utpannā\
 > bṛhatī prāṇato 'bhavat
 
 *majjāyāḥ*—from the bone marrow; *paṅktiḥ*—a particular type of verse; *utpannā*—became manifested; *bṛhatī*—another type of verse; *prāṇataḥ*—out of the life-breathing; *abhavat*—generated.

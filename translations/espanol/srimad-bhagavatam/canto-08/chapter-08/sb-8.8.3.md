@@ -1,11 +1,11 @@
 ### SB 8.8.3
 
-> तत उच्चैःश्रवा नाम हयोऽभूच्चन्द्रपाण्डुरः
+> तत उच्चैःश्रवा नाम हयोऽभूच्चन्द्रपाण्डुरः\
 > तस्मिन्बलिः स्पृहां चक्रे नेन्द्र ईश्वरशिक्षया ॥३॥
 
-> tata uccaiḥśravā nāma
-> hayo 'bhūc candra-pāṇḍuraḥ
-> tasmin baliḥ spṛhāṁ cakre
+> tata uccaiḥśravā nāma\
+> hayo 'bhūc candra-pāṇḍuraḥ\
+> tasmin baliḥ spṛhāṁ cakre\
 > nendra īśvara-śikṣayā
 
 *tataḥ*—a continuación; *uccaiḥśravāḥ nāma*—llamado Uccaiḥśravā; *hayaḥ*—un caballo; *abhūt*—se generó; *candra-pāṇḍuraḥ*—tan blanco como la luna; *tasmin*—a él; *baliḥ*—Mahārāja Bali; *spṛhām cakre*—deseó poseer; *na*—no; *indraḥ*—el rey de los semidioses; *īśvara-śikṣayā*—por el consejo recibido del Señor.

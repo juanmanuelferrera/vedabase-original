@@ -1,9 +1,9 @@
 ### CC Madhya 24.241
 
-> নারদ কহে, — “যদি জীবে মার’ তুমি বাণ ।
+> নারদ কহে, — “যদি জীবে মার’ তুমি বাণ ।\
 > অর্ধ-মারা কর কেনে, না লও পরাণ ?” ॥ ২৪১ ॥
 
-> nārada kahe,—"yadi jīve māra' tumi bāṇa
+> nārada kahe,—"yadi jīve māra' tumi bāṇa\
 > ardha-mārā kara kene, nā lao parāṇa?"
 
 *nārada kahe*—Nārada Muni said; *yadi*—if; *jīve*—in the animals; *māra'*—pierce; *tumi*—you; *bāṇa*—your arrows; *ardha-mārā kara*—you half-kill; *kene*—why; *nā lao parāṇa*—don't you take their lives completely.

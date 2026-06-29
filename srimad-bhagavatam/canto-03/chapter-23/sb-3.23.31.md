@@ -1,11 +1,11 @@
 ### SB 3.23.31
 
-> स्नातं कृतशिरःस्नानं सर्वाभरणभूषितम् ।
+> स्नातं कृतशिरःस्नानं सर्वाभरणभूषितम् ।\
 > निष्कग्रीवं वलयिनं कूजत्काञ्चननूपुरम् ॥३१॥
 
-> snātaṁ kṛta-śiraḥ-snānaṁ
-> sarvābharaṇa-bhūṣitam
-> niṣka-grīvaṁ valayinaṁ
+> snātaṁ kṛta-śiraḥ-snānaṁ\
+> sarvābharaṇa-bhūṣitam\
+> niṣka-grīvaṁ valayinaṁ\
 > kūjat-kāñcana-nūpuram
 
 *snātam*—bathed; *kṛta-śiraḥ*—including the head; *snānam*—bathing; *sarva*—all over; *ābharaṇa*—with ornaments; *bhūṣitam*—decorated; *niṣka*—a gold necklace with a locket; *grīvam*—on the neck; *valayinam*—with bangles; *kūjat*—tinkling; *kāñcana*—made of gold; *nūpuram*—ankle bells.

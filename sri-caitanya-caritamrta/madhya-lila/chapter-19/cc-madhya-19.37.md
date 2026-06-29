@@ -1,9 +1,9 @@
 ### CC Madhya 19.37
 
-> তাঁহা লঞা রূপ-গোসাঞি প্রয়াগে আইলা ।
+> তাঁহা লঞা রূপ-গোসাঞি প্রয়াগে আইলা ।\
 > মহাপ্রভু তাহাঁ শুনি’ আনন্দিত হৈলা ॥৩৭॥
 
-> tāṅhā lañā rūpa-gosāñi prayāge āilā
+> tāṅhā lañā rūpa-gosāñi prayāge āilā\
 > mahāprabhu tāhāṅ śuni' ānandita hailā
 
 *tāṅhā lañā*—taking him along; *rūpa-gosāñi*—Śrī Rūpa Gosvāmī; *pra yāge*—to Prayāga; *āilā*—came; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāhāṅ*—there; *śuni'*—hearing; *ānandita hailā*—were very much pleased.

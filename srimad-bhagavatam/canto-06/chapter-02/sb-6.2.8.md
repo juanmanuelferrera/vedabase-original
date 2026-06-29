@@ -1,11 +1,11 @@
 ### SB 6.2.8
 
-> एतेनैव ह्यघोनोऽस्य कृतं स्यादघनिष्कृतम
+> एतेनैव ह्यघोनोऽस्य कृतं स्यादघनिष्कृतम\
 > यदा नारायणायेति जगाद चतुरक्षरम ॥८॥
 
-> etenaiva hy aghono 'sya
-> kṛtaṁ syād agha-niṣkṛtam
-> yadā nārāyaṇāyeti
+> etenaiva hy aghono 'sya\
+> kṛtaṁ syād agha-niṣkṛtam\
+> yadā nārāyaṇāyeti\
 > jagāda catur-akṣaram
 
 *etena*—by this (chanting); *eva*—indeed; *hi*—certainly; *aghonaḥ*—who possesses sinful reactions; *asya*—of this (Ajāmila); *kṛtam*—performed; *syāt*—is; *agha*—of sins; *niṣkṛtam*—complete atonement; *yadā*—when; *nārāyaṇa*—O Nārāyaṇa (the name of his son); *āya*—please come; *iti*—thus; *jagāda*—he chanted; *catuḥ-akṣaram*—the four syllables (*nā-rā-ya-ṇa*).

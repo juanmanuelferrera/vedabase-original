@@ -1,11 +1,11 @@
 ### SB 9.14.48
 
-> एक एव पुरा वेदः प्रणवः सर्ववाङ्मयः
+> एक एव पुरा वेदः प्रणवः सर्ववाङ्मयः\
 > देवो नारायणो नान्य एकोऽग्निर्वर्ण एव च ॥४८॥
 
-> eka eva purā vedaḥ
-> praṇavaḥ sarva-vāṅmayaḥ
-> devo nārāyaṇo nānya
+> eka eva purā vedaḥ\
+> praṇavaḥ sarva-vāṅmayaḥ\
+> devo nārāyaṇo nānya\
 > eko 'gnir varṇa eva ca
 
 *ekaḥ*—solo uno; *eva*—en verdad; *purā*—en el pasado; *vedaḥ*—libro de conocimiento trascendental; *praṇavaḥ*—*oṁkāra*; *sarva-vāk-mayaḥ*—que incluía todos los *mantras* védicos; *devaḥ*—el Señor, Dios; *nārāyaṇaḥ*—solamente Nārāyaṇa (era adorado en Satya-yuga); *na anyaḥ*—ningún otro; *ekaḥ agniḥ*—una única división de *agni*; *varṇaḥ*—orden de vida; *eva ca*—y ciertamente.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.218
 
-> সেই রাত্রি তাহাঁ রহি’ তাঁরে কৃপা করি’ ।
+> সেই রাত্রি তাহাঁ রহি’ তাঁরে কৃপা করি’ ।\
 > পাণ্ড্যদেশে তাম্রপর্ণী গেলা গৌরহরি ॥২১৮॥
 
-> sei rātri tāhāṅ rahi' tāṅre kṛpā kari'
+> sei rātri tāhāṅ rahi' tāṅre kṛpā kari'\
 > pāṇḍya-deśe tāmraparṇī gelā gaurahari
 
 *sei rātri*—that night; *tāhāṅ*—there; *rahi'*—staying; *tāṅre*—unto the *brāhmaṇa*; *kṛpā kari'*—showing mercy; *pāṇḍya-deśe*—in the country known as Pāṇḍyadeśa; *tāmraparṇī*—to the place named Tāmraparṇī; *gelā*—went; *gaurahari*—Lord Śrī Caitanya Mahāprabhu.

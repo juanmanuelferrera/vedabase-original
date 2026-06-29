@@ -1,11 +1,11 @@
 ### SB 3.5.40
 
-> धातर्यदस्मिन्भव ईश जीवास्तापत्रयेणाभिहता न शर्म ।
+> धातर्यदस्मिन्भव ईश जीवास्तापत्रयेणाभिहता न शर्म ।\
 > आत्मन्लभन्ते भगवंस्तवाङ्घ्रि च्छायां सविद्यामत आश्रयेम ॥४०॥
 
-> dhātar yad asmin bhava īśa jīvās
-> tāpa-trayeṇābhihatā na śarma
-> ātman labhante bhagavaṁs tavāṅghri-
+> dhātar yad asmin bhava īśa jīvās\
+> tāpa-trayeṇābhihatā na śarma\
+> ātman labhante bhagavaṁs tavāṅghri-\
 > cchāyāṁ sa-vidyām ata āśrayema
 
 *dhātaḥ*—¡oh, Padre!; *yat*—debido a; *asmin*—en este; *bhave*—mundo material; *īśa*—¡oh, Señor!; *jīvāḥ*—las entidades vivientes; *tāpa*—miserias; *trayeṇa*—por los tres; *abhihatāḥ*—siempre desconcertadas; *na*—nunca; *śarma*—con felicidad; *ātman*—el ser; *labhante*—obtienen; *bhagavan*—¡oh, Personalidad de Dios!; *tava*—Tu; *aṅghri-chāyām*—sombra de Tus pies; *sa-vidyām*—llenos de conocimiento; *ataḥ*—obtienen; *āśrayema*—refugio.

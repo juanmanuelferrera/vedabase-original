@@ -1,11 +1,11 @@
 ### SB 3.14.9
 
-> इष्ट्वाग्निजिह्वं पयसा पुरुषं यजुषां पतिम् ।
+> इष्ट्वाग्निजिह्वं पयसा पुरुषं यजुषां पतिम् ।\
 > निम्लोचत्यर्क आसीनमग्न्यगारे समाहितम् ॥९॥
 
-> iṣṭvāgni-jihvaṁ payasā
-> puruṣaṁ yajuṣāṁ patim
-> nimlocaty arka āsīnam
+> iṣṭvāgni-jihvaṁ payasā\
+> puruṣaṁ yajuṣāṁ patim\
+> nimlocaty arka āsīnam\
 > agny-agāre samāhitam
 
 *iṣṭvā*—tras adorar; *agni*—fuego; *jihvam*—lengua; *payasā*—con oblación; *puruṣam*—a la Persona Suprema; *yajuṣām*—de todos los sacrificios; *patim*—amo; *nimlocati*—mientras se ponía; *arke*—el Sol; *āsīnam*—sentado; *agni-agāre*—en la sala del sacrificio; *samāhitam*—completamente en trance.

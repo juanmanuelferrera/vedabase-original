@@ -1,9 +1,9 @@
 ### CC Madhya 14.211
 
-> রথের উপরে করে দণ্ডের তাড়ন ।
+> রথের উপরে করে দণ্ডের তাড়ন ।\
 > চোর-প্রায় করে জগন্নাথের সেবকগণ ॥২১১॥
 
-> rathera upare kare daṇḍera tāḍana
+> rathera upare kare daṇḍera tāḍana\
 > cora-prāya kare jagannāthera sevaka-gaṇa
 
 *rathera upare*—on the car; *kare*—do; *daṇḍera tāḍana*—chastisement by sticks; *cora-prāya*—almost like thieves; *kare*—they treated; *jagannāthera*—of Lord Jagannātha; *sevaka-gaṇa*—the personal servants.

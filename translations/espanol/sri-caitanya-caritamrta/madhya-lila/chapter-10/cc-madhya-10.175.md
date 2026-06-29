@@ -1,9 +1,9 @@
 ### CC Madhya 10.175
 
-> ājanma karinu muñi 'nirākāra'-dhyāna
+> ājanma karinu muñi 'nirākāra'-dhyāna\
 > tomā dekhi' 'kṛṣṇa' haila mora vidyamāna
 
-> ājanma karinu muñi 'nirākāra'-dhyāna
+> ājanma karinu muñi 'nirākāra'-dhyāna\
 > tomā dekhi' 'kṛṣṇa' haila mora vidyamāna
 
 *ā-janma*—desde mi nacimiento; *karinu*—he realizado; *muñi*—yo; *nirākāra-dhyāna*—meditación en el Brahman impersonal; *tomā dekhi'*—al verte; *kṛṣṇa*—el Señor Kṛṣṇa; *haila*—se convirtió; *mora*—mi; *vidyamāna*—experiencia.

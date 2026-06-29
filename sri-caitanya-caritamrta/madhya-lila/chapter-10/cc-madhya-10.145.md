@@ -1,11 +1,11 @@
 ### CC Madhya 10.145
 
-> স শুশ্রুবান্মাতরি ভার্গবেণ পিতুর্নিয়োগাত্ প্রহৃতং দ্বিষদ্বত্ ।
+> স শুশ্রুবান্মাতরি ভার্গবেণ পিতুর্নিয়োগাত্ প্রহৃতং দ্বিষদ্বত্ ।\
 > প্রত্যগৃহীদগ্রজশাসনং তদাজ্ঞা গুরূণাং হ্যবিচারণীয়া ॥১৪৫॥
 
-> sa śuśruvān mātari bhārgaveṇa
-> pitur niyogāt prahṛtaṁ dviṣad-vat
-> pratyagṛhīd agraja-śāsanaṁ tad
+> sa śuśruvān mātari bhārgaveṇa\
+> pitur niyogāt prahṛtaṁ dviṣad-vat\
+> pratyagṛhīd agraja-śāsanaṁ tad\
 > ājñā gurūṇāṁ hy avicāraṇīyā
 
 *saḥ*—He (Lakṣmaṇa, the brother of Lord Rāmacandra); *śuśruvān*—hearing; *mātari*—unto the mother; *bhārgaveṇa*—by Paraśurāma; *pituḥ*—of the father; *niyogāt*—by the order; *prahṛtam*—killing; *dviṣat-vat*—like an enemy; *pratyagṛhīt*—accepted; *agraja-śāsanam*—the order of the elder brother; *tat*—that; *ājñā*—order; *gurūṇām*—of superior persons, such as the spiritual master or father; *hi*—because; *avicāraṇīyā*—to be obeyed without consideration.

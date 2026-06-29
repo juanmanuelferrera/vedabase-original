@@ -2,7 +2,7 @@
 
 > नायं लोकोऽस्त्ययज्ञस्य कुतोऽन्यः कुरुसत्तम ॥३१॥
 
-> nāyaṁ loko 'sty ayajñasya
+> nāyaṁ loko 'sty ayajñasya\
 > kuto 'nyaḥ kuru-sattama
 
 *na*—never; *ayam*—this; *lokaḥ*—planet; *asti*—there is; *ayajñasya*—of the foolish; *kutaḥ*—where is; *anyaḥ*—the other; *kuru-sattama*—O best amongst the Kurus.

@@ -1,11 +1,11 @@
 ### SB 3.13.15
 
-> यदोकः सर्वभूतानां मही मग्ना महाम्भसि ।
+> यदोकः सर्वभूतानां मही मग्ना महाम्भसि ।\
 > अस्या उद्धरणे यत्नो देव देव्या विधीयताम् ॥१५॥
 
-> yad okaḥ sarva-bhūtānāṁ
-> mahī magnā mahāmbhasi
-> asyā uddharaṇe yatno
+> yad okaḥ sarva-bhūtānāṁ\
+> mahī magnā mahāmbhasi\
+> asyā uddharaṇe yatno\
 > deva devyā vidhīyatām
 
 *yat*—because; *okaḥ*—the dwelling place; *sarva*—for all; *bhūtānām*—living entities; *mahī*—the earth; *magnā*—merged; *mahā-ambhasi*—in the great water; *asyāḥ*—of this; *uddharaṇe*—in the lifting; *yatnaḥ*—attempt; *deva*—O master of the demigods; *devyāḥ*—of this earth; *vidhīyatām*—let it be done.

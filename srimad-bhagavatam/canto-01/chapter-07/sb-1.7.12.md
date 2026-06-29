@@ -1,11 +1,11 @@
 ### SB 1.7.12
 
-> परीक्षितोऽथ राजर्षेर्जन्मकर्मविलापनम् ।
+> परीक्षितोऽथ राजर्षेर्जन्मकर्मविलापनम् ।\
 > संस्थां च पाण्डुपुत्राणां वक्ष्ये कृष्णकथोदयम् ॥१२॥
 
-> parīkṣito 'tha rājarṣer
-> janma-karma-vilāpanam
-> saṁsthāṁ ca pāṇḍu-putrāṇāṁ
+> parīkṣito 'tha rājarṣer\
+> janma-karma-vilāpanam\
+> saṁsthāṁ ca pāṇḍu-putrāṇāṁ\
 > vakṣye kṛṣṇa-kathodayam
 
 *parīkṣitaḥ*—of King Parīkṣit; *atha*—thus; *rājarṣeḥ*—of the King who was the *ṛṣi* among the kings; *janma*—birth; *karma*—activities; *vilāpanam*—deliverance; *saṁsthām*—renunciation of the world; *ca*—and; *pāṇḍu-putrāṇām*—of the sons of Pāṇḍu; *vakṣye*—I shall speak; *kṛṣṇa-kathā-udayam*—that which gives rise to the transcendental narration of Kṛṣṇa, the Supreme Personality of Godhead.

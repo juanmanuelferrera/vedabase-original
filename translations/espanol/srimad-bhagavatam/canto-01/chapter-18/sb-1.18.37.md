@@ -1,11 +1,11 @@
 ### SB 1.18.37
 
-> इति लङ्घितमर्यादं तक्षकः सप्तमेऽहनि ।
+> इति लङ्घितमर्यादं तक्षकः सप्तमेऽहनि ।\
 > दङ्क्ष्यति स्म कुलाङ्गारं चोदितो मे ततद्रुहम् ॥३७॥
 
-> iti laṅghita-maryādaṁ
-> takṣakaḥ saptame 'hani
-> daṅkṣyati sma kulāṅgāraṁ
+> iti laṅghita-maryādaṁ\
+> takṣakaḥ saptame 'hani\
+> daṅkṣyati sma kulāṅgāraṁ\
 > codito me tata-druham
 
 *iti*—así pues; *laṅghita*—infringiendo; *maryādam*—etiqueta; *takṣakaḥ*—serpiente alada; *saptame*—en el séptimo; *ahani*—día; *daṅkṣyati*—morderá; *sma*—ciertamente; *kula-aṅgāram*—el despreciable de la dinastía; *coditaḥ*—habiendo hecho; *me*—mí; *tata-druham*—enemistad con el padre.

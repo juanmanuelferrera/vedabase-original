@@ -1,11 +1,11 @@
 ### SB 6.1.44
 
-> सम्भवन्ति हि भद्राणि विपरीतानि चानघाः
+> सम्भवन्ति हि भद्राणि विपरीतानि चानघाः\
 > कारिणां गुणसङ्गोऽस्ति देहवान्न ह्यकर्मकृत ॥४४॥
 
-> sambhavanti hi bhadrāṇi
-> viparītāni cānaghāḥ
-> kāriṇāṁ guṇa-saṅgo 'sti
+> sambhavanti hi bhadrāṇi\
+> viparītāni cānaghāḥ\
+> kāriṇāṁ guṇa-saṅgo 'sti\
 > dehavān na hy akarma-kṛt
 
 *sambhavanti*—hay; *hi*—en verdad; *bhadrāṇi*—actividades piadosas, auspiciosas; *viparītāni*—todo lo contrario (actividades pecaminosas, no auspiciosas); *ca*—también; *anaghāḥ*—¡oh, intachables habitantes de Vaikuṇṭha!; *kāriṇām*—de los trabajadores fruitivos; *guṇa-saṅgaḥ*—contaminación de las tres modalidades de la naturaleza; *asti*—hay; *deha-vān*—todo el que ha recibido este cuerpo material; *na*—no; *hi*—en verdad; *akarma-kṛt*—sin realizar actividades.

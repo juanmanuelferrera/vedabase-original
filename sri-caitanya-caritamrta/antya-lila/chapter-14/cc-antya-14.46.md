@@ -1,13 +1,13 @@
 ### CC Antya 14.46
 
-> ব্যাস, শুকাদি যোগিগণ, কৃষ্ণ আত্মা নিরঞ্জন,
-> ব্রজে তাঁর যত লীলাগণ ।
-> ভাগবতাদি শাস্ত্রগণে, করিয়াছে বর্ণনে,
+> ব্যাস, শুকাদি যোগিগণ, কৃষ্ণ আত্মা নিরঞ্জন,\
+> ব্রজে তাঁর যত লীলাগণ ।\
+> ভাগবতাদি শাস্ত্রগণে, করিয়াছে বর্ণনে,\
 > সেই তর্জা পড়ে অনুক্ষণ ॥৪৬॥
 
-> vyāsa, śukādi yogi-gaṇa, kṛṣṇa ātmā nirañjana,
-> vraje tāṅra yata līlā-gaṇa
-> bhāgavatādi śāstra-gaṇe, kariyāche varṇane,
+> vyāsa, śukādi yogi-gaṇa, kṛṣṇa ātmā nirañjana,\
+> vraje tāṅra yata līlā-gaṇa\
+> bhāgavatādi śāstra-gaṇe, kariyāche varṇane,\
 > sei tarjā paḍe anukṣaṇa
 
 *vyāsa*—Dvaipāyana Vyāsa; *śuka-ādi*—and other sages, such as Śukadeva Gosvāmī; *yogi-gaṇa*—great mystic *yogīs*; *kṛṣṇa*—Lord Kṛṣṇa; *ātmā*—the Supersoul; *nirañjana*—without material contamination; *vraje*—in Vṛndāvana; *tāṅra*—His; *yata*—all; *līlā-gaṇa*—pastimes; *bhāgavata-ādi*—*Śrīmad-Bhāgavatam* and others; *śāstra-gaṇe*—in revealed scriptures; *kariyāche varṇane*—have described; *sei tarjā*—that competition of poetry between two parties; *paḍe*—reads; *anukṣaṇa*—every moment.

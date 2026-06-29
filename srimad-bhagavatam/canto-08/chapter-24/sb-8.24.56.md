@@ -1,11 +1,11 @@
 ### SB 8.24.56
 
-> अश्रौषीदृषिभिः साकमात्मतत्त्वमसंशयम
+> अश्रौषीदृषिभिः साकमात्मतत्त्वमसंशयम\
 > नाव्यासीनो भगवता प्रोक्तं ब्रह्म सनातनम ॥५६॥
 
-> aśrauṣīd ṛṣibhiḥ sākam
-> ātma-tattvam asaṁśayam
-> nāvy āsīno bhagavatā
+> aśrauṣīd ṛṣibhiḥ sākam\
+> ātma-tattvam asaṁśayam\
+> nāvy āsīno bhagavatā\
 > proktaṁ brahma sanātanam
 
 *aśrauṣīt*—he heard; *ṛṣibhiḥ*—the great saintly persons; *sākam*—with; *ātma-tattvam*—the science of self-realization; *asaṁśayam*—without any doubt (because it was spoken by the Supreme Lord); *nāvi āsīnaḥ*—sitting in the boat; *bhagavatā*—by the Supreme Personality of Godhead; *proktam*—explained; *brahma*—all transcendental literatures; *sanātanam*—eternally existing.

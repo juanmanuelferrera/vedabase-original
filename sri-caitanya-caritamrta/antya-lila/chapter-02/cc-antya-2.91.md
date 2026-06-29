@@ -1,9 +1,9 @@
 ### CC Antya 2.91
 
-> আচার্য-সম্বন্ধে বাহ্যে করে প্রীত্যাভাস ।
+> আচার্য-সম্বন্ধে বাহ্যে করে প্রীত্যাভাস ।\
 > কৃষ্ণভক্তি বিনা প্রভুর না হয় উল্লাস ॥৯১॥
 
-> ācārya-sambandhe bāhye kare prītyābhāsa
+> ācārya-sambandhe bāhye kare prītyābhāsa\
 > kṛṣṇa-bhakti vinā prabhura nā haya ullāsa
 
 *ācārya-sambandhe*—because he was related with Bhagavān Ācārya; *bāhye*—externally; *kare*—does; *prīti-ābhāsa*—appearance of pleasure; *kṛṣṇa-bhakti*—devotional service to Lord Kṛṣṇa; *vinā*—without; *prabhura*—of Śrī Caitanya Mahāprabhu; *nā haya*—there is no; *ullāsa*—jubilation.

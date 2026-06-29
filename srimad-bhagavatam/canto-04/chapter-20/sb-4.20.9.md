@@ -1,11 +1,11 @@
 ### SB 4.20.9
 
-> यः स्वधर्मेण मां नित्यं निराशीः श्रद्धयान्वितः ।
+> यः स्वधर्मेण मां नित्यं निराशीः श्रद्धयान्वितः ।\
 > भजते शनकैस्तस्य मनो राजन्प्रसीदति ॥९॥
 
-> yaḥ sva-dharmeṇa māṁ nityaṁ
-> nirāśīḥ śraddhayānvitaḥ
-> bhajate śanakais tasya
+> yaḥ sva-dharmeṇa māṁ nityaṁ\
+> nirāśīḥ śraddhayānvitaḥ\
+> bhajate śanakais tasya\
 > mano rājan prasīdati
 
 *yaḥ*—anyone who; *sva-dharmeṇa*—by his occupational duties; *mām*—Me; *nityam*—regularly; *nirāśīḥ*—without any motive; *śraddhayā*—with faith and devotion; *anvitaḥ*—endowed; *bhajate*—worships; *śanakaiḥ*—gradually; *tasya*—his; *manaḥ*—mind; *rājan*—O King Pṛthu; *prasīdati*—becomes fully satisfied.

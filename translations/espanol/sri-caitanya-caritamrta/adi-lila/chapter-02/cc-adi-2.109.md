@@ -1,9 +1,9 @@
 ### CC Adi 2.109
 
-> সেই কৃষ্ণ অবতারী ব্রজেন্দ্রকুমার ।
+> সেই কৃষ্ণ অবতারী ব্রজেন্দ্রকুমার ।\
 > আপনে চৈতন্যরূপে কৈল অবতার ॥১০৯॥
 
-> sei kṛṣṇa avatārī vrajendra-kumāra
+> sei kṛṣṇa avatārī vrajendra-kumāra\
 > āpane caitanya-rūpe kaila avatāra
 
 *sei*—ese; *kṛṣṇa*—el Señor Kṛṣṇa; *avatārī*—la fuente de todas las encarnaciones; *vrajendra-kumāra*—el hijo del rey de Vraja; *āpane*—personalmente; *caitanya-rūpe*—en la forma del Señor Caitanya Mahāprabhu; *kaila*—hizo; *avatāra*—encarnación.

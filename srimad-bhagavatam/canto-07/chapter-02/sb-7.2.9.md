@@ -1,11 +1,11 @@
 ### SB 7.2.9
 
-> तस्मिन्कूटेऽहिते नष्टे कृत्तमूले वनस्पतौ
+> तस्मिन्कूटेऽहिते नष्टे कृत्तमूले वनस्पतौ\
 > विटपा इव शुष्यन्ति विष्णुप्राणा दिवौकसः ॥९॥
 
-> tasmin kūṭe 'hite naṣṭe
-> kṛtta-mūle vanas-patau
-> viṭapā iva śuṣyanti
+> tasmin kūṭe 'hite naṣṭe\
+> kṛtta-mūle vanas-patau\
+> viṭapā iva śuṣyanti\
 > viṣṇu-prāṇā divaukasaḥ
 
 *tasmin*—when He; *kūṭe*—the most deceitful; *ahite*—enemy; *naṣṭe*—is finished; *kṛtta-mūle*—having its roots cut off; *vanas-patau*—a tree; *viṭapāḥ*—the branches and leaves; *iva*—like; *śuṣyanti*—dry up; *viṣṇu-prāṇāḥ*—whose life is Lord Viṣṇu; *diva-okasaḥ*—the demigods.

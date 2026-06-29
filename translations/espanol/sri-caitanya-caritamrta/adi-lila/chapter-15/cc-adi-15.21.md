@@ -1,9 +1,9 @@
 ### CC Adi 15.21
 
-> তবে বিশ্বরূপ ইহাঁ পাঠাইল মোরে ।
+> তবে বিশ্বরূপ ইহাঁ পাঠাইল মোরে ।\
 > মাতাকে কহিও কোটি কোটি নমস্কারে ॥২১॥
 
-> tabe viśvarūpa ihāṅ pāṭhāila more
+> tabe viśvarūpa ihāṅ pāṭhāila more\
 > mātāke kahio koṭi koṭi namaskāre
 
 *tabe*—entonces; *viśvarūpa*—de nombre Viśvarūpa; *ihāṅ*—aquí; *pāṭhāila*—envió; *more*—a Mí; *mātāke kahio*—transmítele a Mi madre; *koṭi koṭi*—cientos y miles de; *namaskāre*—reverencias.

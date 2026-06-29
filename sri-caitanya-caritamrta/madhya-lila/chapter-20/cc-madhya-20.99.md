@@ -1,9 +1,9 @@
 ### CC Madhya 20.99
 
-> “নীচ জাতি, নীচ-সঙ্গী, পতিত অধম ।
+> “নীচ জাতি, নীচ-সঙ্গী, পতিত অধম ।\
 > কুবিষয়-কূপে পড়ি’ গোঙাইনু জনম ! ॥৯৯॥
 
-> "nīca jāti, nīca-saṅgī, patita adhama
+> "nīca jāti, nīca-saṅgī, patita adhama\
 > kuviṣaya-kūpe paḍi' goṅāinu janama!
 
 *nīca jāti*—born of a low family; *nīca-saṅgī*—associated with low men; *patita*—fallen; *adhama*—the lowest; *ku-viṣaya-kūpe*—in a well of material enjoyment; *paḍi'*—having fallen down; *goṅāinu*—I have passed; *janama*—my life.

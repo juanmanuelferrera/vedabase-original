@@ -1,12 +1,12 @@
 ### SB 7.1.37
 
-> अशपन्कुपिता एवं युवां वासं न चार्हथः
-> रजस्तमोभ्यां रहिते पादमूले मधुद्विषः
+> अशपन्कुपिता एवं युवां वासं न चार्हथः\
+> रजस्तमोभ्यां रहिते पादमूले मधुद्विषः\
 > पापिष्ठामासुरीं योनिं बालिशौ यातमाश्वतः ॥३७॥
 
-> pañca-ṣaḍḍhāyanārbhābhāḥ
-> pūrveṣām api pūrvajāḥ
-> dig-vāsasaḥ śiśūn matvā
+> pañca-ṣaḍḍhāyanārbhābhāḥ\
+> pūrveṣām api pūrvajāḥ\
+> dig-vāsasaḥ śiśūn matvā\
 > dvāḥ-sthau tān pratyaṣedhatām
 
 *pañca-ṣaṭ-dhā*—cinco o seis años; *āyana*—dirigiéndose; *arbha-ābhāḥ*—como niños; *pūrveṣām*—los ancianos del universo (Marīci, etc.); *api*—aunque; *pūrva-jāḥ*—nacidos antes; *dik-vāsasaḥ*—desnudos; *śiśūn*—niños; *matvā*—pensando; *dvāḥ-sthau*—los dos porteros, Jaya y Vijaya; *tān*—a ellos; *pratyaṣedhatām*—prohibieron.

@@ -1,13 +1,13 @@
 ### SB 3.5.1
 
-> श्रीशुक उवाच
-> द्वारि द्युनद्या ऋषभः कुरूणां मैत्रेयमासीनमगाधबोधम् ।
+> श्रीशुक उवाच\
+> द्वारि द्युनद्या ऋषभः कुरूणां मैत्रेयमासीनमगाधबोधम् ।\
 > क्षत्तोपसृत्याच्युतभावसिद्धः पप्रच्छ सौशील्यगुणाभितृप्तः ॥१॥
 
-> śrī-śuka uvāca
-> dvāri dyu-nadyā ṛṣabhaḥ kurūṇāṁ
-> maitreyam āsīnam agādha-bodham
-> kṣattopasṛtyācyuta-bhāva-siddhaḥ
+> śrī-śuka uvāca\
+> dvāri dyu-nadyā ṛṣabhaḥ kurūṇāṁ\
+> maitreyam āsīnam agādha-bodham\
+> kṣattopasṛtyācyuta-bhāva-siddhaḥ\
 > papraccha sauśīlya-guṇābhitṛptaḥ
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī dijo; *dvāri*—en la fuente de; *dyu-nadyāḥ*—el celestial río Ganges; *ṛṣabhaḥ*—el mejor de los Kurus; *kurūṇām*—de los Kurus; *maitreyam*—a Maitreya; *āsīnam*—sentándose; *agādha-bodham*—de conocimiento insondable; *kṣattā*—Vidura; *upasṛtya*—habiéndose acercado más; *acyuta*—el infalible Señor; *bhāva*—carácter; *siddhaḥ*—perfecto; *papraccha*—preguntó; *sauśīlya*—nobleza; *guṇa-abhitṛptaḥ*—satisfecho con las cualidades trascendentales.

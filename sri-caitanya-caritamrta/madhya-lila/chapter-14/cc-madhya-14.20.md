@@ -1,9 +1,9 @@
 ### CC Madhya 14.20
 
-> ‘রাজা’ — হেন জ্ঞান কভু না কৈল প্রকাশ ।
+> ‘রাজা’ — হেন জ্ঞান কভু না কৈল প্রকাশ ।\
 > অন্তরে সকল জানেন, বাহিরে উদাস ॥২০॥
 
-> 'rājā'-hena jñāna kabhu nā kaila prakāśa
+> 'rājā'-hena jñāna kabhu nā kaila prakāśa\
 > antare sakala jānena, bāhire udāsa
 
 *rājā*—the King; *hena jñāna*—such knowledge; *kabhu*—at any time; *nā*—not; *kaila prakāśa*—manifested; *antare*—within the heart; *sakala*—everything; *jānena*—knows; *bāhire*—externally; *udāsa*—indifferent.

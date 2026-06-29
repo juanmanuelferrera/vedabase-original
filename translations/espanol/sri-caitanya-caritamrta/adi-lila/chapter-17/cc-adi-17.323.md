@@ -1,9 +1,9 @@
 ### CC Adi 17.323
 
-> দশমেতে মূল-স্কন্ধের ‘শাখাদি-গণন’ ।
+> দশমেতে মূল-স্কন্ধের ‘শাখাদি-গণন’ ।\
 > সর্বশাখাগণের যৈছে ফল-বিতরণ ॥৩২৩॥
 
-> daśamete mūla-skandhera 'śākhādi-gaṇana'
+> daśamete mūla-skandhera 'śākhādi-gaṇana'\
 > sarva-śākhā-gaṇera yaiche phala-vitaraṇa
 
 *daśamete*—en el décimo capítulo; *mūla-skandhera*—del tronco principal; *śākhā-ādi*—de las ramas, etc.; *gaṇana*—enumeración; *sarva-śākhā-gaṇera*—de todas las ramas; *yaiche*—de qué manera; *phala-vitaraṇa*—distribución de los frutos.

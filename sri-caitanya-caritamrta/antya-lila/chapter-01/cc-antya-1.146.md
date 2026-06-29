@@ -1,13 +1,13 @@
 ### CC Antya 1.146
 
-> অকারুণ্যঃ কৃষ্ণো যদি ময়ি তবাগঃ কথমিদং
-> মুধা মা রোদীর্মে কুরু পরমিমামুত্তরকৃতিম্ ।
-> তমালস্য স্কন্ধে বিনিহিত-ভুজবল্লরিরিয়ং
+> অকারুণ্যঃ কৃষ্ণো যদি ময়ি তবাগঃ কথমিদং\
+> মুধা মা রোদীর্মে কুরু পরমিমামুত্তরকৃতিম্ ।\
+> তমালস্য স্কন্ধে বিনিহিত-ভুজবল্লরিরিয়ং\
 > যথা বৃন্দারণ্যে চিরমবিচলা তিষ্ঠতি তনুঃ ॥১৪৬॥
 
-> akāruṇyaḥ kṛṣṇo yadi mayi tavāgaḥ katham idaṁ
-> mudhā mā rodīr me kuru param imām uttara-kṛtim
-> tamālasya skandhe vinihita-bhuja-vallarir iyaṁ
+> akāruṇyaḥ kṛṣṇo yadi mayi tavāgaḥ katham idaṁ\
+> mudhā mā rodīr me kuru param imām uttara-kṛtim\
+> tamālasya skandhe vinihita-bhuja-vallarir iyaṁ\
 > yathā vṛndāraṇye ciram avicalā tiṣṭhati tanuḥ
 
 *akāruṇyaḥ*—very cruel; *kṛṣṇaḥ*—Lord Kṛṣṇa; *yadi*—if; *mayi*—unto Me; *tava*—your; *āgaḥ*—offense; *katham*—how; *idam*—this; *mudhā*—uselessly; *mā rodīḥ*—do not cry; *me*—for Me; *kuru*—do; *param*—but afterwards; *imām*—this; *uttara-kṛtim*—final act; *tamālasya*—of a *tamāla* tree; *skandhe*—the trunk; *vinihita*—fixed upon; *bhuja-vallariḥ*—arms like creepers; *iyam*—this; *yathā*—as far *as* possible; *vṛndā-araṇye*—in the forest of Vṛndāvana; *ciram*—forever; *avicalā*—without being disturbed; *tiṣṭhati*—remains; *tanuḥ*—the body.

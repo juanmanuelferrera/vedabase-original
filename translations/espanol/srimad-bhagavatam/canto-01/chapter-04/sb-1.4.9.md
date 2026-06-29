@@ -1,11 +1,11 @@
 ### SB 1.4.9
 
-> अभिमन्युसुतं सूत प्राहुर्भागवतोत्तमम् ।
+> अभिमन्युसुतं सूत प्राहुर्भागवतोत्तमम् ।\
 > तस्य जन्म महाश्चर्यं कर्माणि च गृणीहि नः ॥९॥
 
-> abhimanyu-sutaṁ sūta
-> prāhur bhāgavatottamam
-> tasya janma mahāścaryaṁ
+> abhimanyu-sutaṁ sūta\
+> prāhur bhāgavatottamam\
+> tasya janma mahāścaryaṁ\
 > karmāṇi ca gṛṇīhi naḥ
 
 *abhimanyu-sutam*—el hijo de Abhimanyu; *sūta*—¡oh, Sūta!; *prāhuḥ*—se dice que es; *bhāgavata-uttamam*—el devoto del Señor de primera clase; *tasya*—su; *janma*—nacimiento; *mahā-āścaryam*—muy maravillosos; *karmāṇi*—actividades; *ca*—y; *gṛṇīhi*—por favor, habla a; *naḥ*—nosotros.

@@ -1,9 +1,9 @@
 ### CC Antya 14.36
 
-> ভূমির উপর বসি’ নিজ-নখে ভূমি লিখে ।
+> ভূমির উপর বসি’ নিজ-নখে ভূমি লিখে ।\
 > অশ্রু-গঙ্গা নেত্রে বহে, কিছুই না দেখে ॥৩৬॥
 
-> bhūmira upara vasi' nija-nakhe bhūmi likhe
+> bhūmira upara vasi' nija-nakhe bhūmi likhe\
 > aśru-gaṅgā netre vahe, kichui nā dekhe
 
 *bhūmira upara*—on the ground; *vasi'*—sitting down; *nija-nakhe*—with His nails; *bhūmi likhe*—marked the ground; *aśru-gaṅgā*—a flow of tears like the Ganges; *netre*—in the eyes; *vahe*—flows; *kichui*—anything; *nā dekhe*—could not see.

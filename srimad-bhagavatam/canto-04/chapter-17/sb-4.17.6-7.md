@@ -1,18 +1,18 @@
 ### SB 4.17.6-7
 
-> यच्चान्यदपि कृष्णस्य भवान्भगवतः प्रभोः ।
-> श्रवः सुश्रवसः पुण्यं पूर्वदेहकथाश्रयम् ॥६॥
-> भक्ताय मेऽनुरक्ताय तव चाधोक्षजस्य च ।
+> यच्चान्यदपि कृष्णस्य भवान्भगवतः प्रभोः ।\
+> श्रवः सुश्रवसः पुण्यं पूर्वदेहकथाश्रयम् ॥६॥\
+> भक्ताय मेऽनुरक्ताय तव चाधोक्षजस्य च ।\
 > वक्तुमर्हसि योऽदुह्यद्वैन्यरूपेण गामिमाम् ॥७॥
 
-> yac cānyad api kṛṣṇasya
-> bhavān bhagavataḥ prabhoḥ
-> śravaḥ suśravasaḥ puṇyaṁ
+> yac cānyad api kṛṣṇasya\
+> bhavān bhagavataḥ prabhoḥ\
+> śravaḥ suśravasaḥ puṇyaṁ\
 > pūrva-deha-kathāśrayam
 
-> bhaktāya me 'nuraktāya
-> tava cādhokṣajasya ca
-> vaktum arhasi yo 'duhyad
+> bhaktāya me 'nuraktāya\
+> tava cādhokṣajasya ca\
+> vaktum arhasi yo 'duhyad\
 > vainya-rūpeṇa gām imām
 
 *yat*—which; *ca*—and; *anyat*—other; *api*—certainly; *kṛṣṇasya*—of Kṛṣṇa; *bhavān*—your good self; *bhagavataḥ*—of the Supreme Personality of Godhead; *prabhoḥ*—powerful; *śravaḥ*—glorious activities; *su-śravasaḥ*—who is very pleasing to hear about; *puṇyam*—pious; *pūrva-deha*—of His previous incarnation; *kathā-āśrayam*—connected with the narration; *bhaktāya*—unto the devotee; *me*—to me; *anuraktāya*—very much attentive; *tava*—of you; *ca*—and; *adhokṣajasya*—of the Lord, who is known as Adhokṣaja; *ca*—also; *vaktum arhasi*—please narrate; *yaḥ*—one who; *aduhyat*—milked; *vainya-rūpeṇa*—in the form of the son of King Vena; *gām*—cow, earth; *imām*—this.

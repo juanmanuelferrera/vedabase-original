@@ -1,18 +1,18 @@
 ### SB 6.1.56-57
 
-> अयं हि श्रुतसम्पन्नः शीलवृत्तगुणालयः
-> धृतव्रतो मृदुर्दान्तः सत्यवाङ्मन्त्रविच्छुचिः ॥५६॥
-> गुर्वग्न्यतिथिवृद्धानां शुश्रूषुरनहङ्कृतः
+> अयं हि श्रुतसम्पन्नः शीलवृत्तगुणालयः\
+> धृतव्रतो मृदुर्दान्तः सत्यवाङ्मन्त्रविच्छुचिः ॥५६॥\
+> गुर्वग्न्यतिथिवृद्धानां शुश्रूषुरनहङ्कृतः\
 > सर्वभूतसुहृत्साधुर्मितवागनसूयकः ॥५७॥
 
-> ayaṁ hi śruta-sampannaḥ
-> śīla-vṛtta-guṇālayaḥ
-> dhṛta-vrato mṛdur dāntaḥ
+> ayaṁ hi śruta-sampannaḥ\
+> śīla-vṛtta-guṇālayaḥ\
+> dhṛta-vrato mṛdur dāntaḥ\
 > satya-vāṅ mantra-vic chuciḥ
 
-> gurv-agny-atithi-vṛddhānāṁ
-> śuśrūṣur anahaṅkṛtaḥ
-> sarva-bhūta-suhṛt sādhur
+> gurv-agny-atithi-vṛddhānāṁ\
+> śuśrūṣur anahaṅkṛtaḥ\
+> sarva-bhūta-suhṛt sādhur\
 > mita-vāg anasūyakaḥ
 
 *ayam*—this person (known as Ajāmila); *hi*—indeed; *śruta-sampannaḥ*—well educated in Vedic knowledge; *śīla*—of good character; *vṛtta*—good conduct; *guṇa*—and good qualities; *ālayaḥ*—the reservoir; *dhṛta-vrataḥ*—fixed in the execution of the Vedic injunctions; *mṛduḥ*—very mild; *dāntaḥ*—completely controlling the mind and senses; *satya-vāk*—always truthful; *mantra-vit*—knowing how to chant the Vedic hymns; *śuciḥ*—always very neat and clean; *guru*—the spiritual master; *agni*—the fire-god; *atithi*—guests; *vṛddhānām*—and of the old household members; *śuśrūṣuḥ*—very respectfully engaged in the service; *anahaṅkṛtaḥ*—without pride or false prestige; *sarva-bhūta-suhṛt*—friendly to all living entities; *sādhuḥ*—well behaved (no one could find any fault in his character); *mita-vāk*—talking with great care not to speak nonsense; *anasūyakaḥ*—not envious.

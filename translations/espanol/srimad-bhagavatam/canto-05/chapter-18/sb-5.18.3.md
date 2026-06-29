@@ -1,11 +1,11 @@
 ### SB 5.18.3
 
-> अहो विचित्रं भगवद्विचेष्टितं घ्नन्तं जनोऽयं हि मिषन्न पश्यति
+> अहो विचित्रं भगवद्विचेष्टितं घ्नन्तं जनोऽयं हि मिषन्न पश्यति\
 > ध्यायन्नसद्यर्हि विकर्म सेवितुं निर्हृत्य पुत्रं पितरं जिजीविषति ॥३॥
 
-> aho vicitraṁ bhagavad-viceṣṭitaṁ
-> ghnantaṁ jano 'yaṁ hi miṣan na paśyati
-> dhyāyann asad yarhi vikarma sevituṁ
+> aho vicitraṁ bhagavad-viceṣṭitaṁ\
+> ghnantaṁ jano 'yaṁ hi miṣan na paśyati\
+> dhyāyann asad yarhi vikarma sevituṁ\
 > nirhṛtya putraṁ pitaraṁ jijīviṣati
 
 *aho*—¡ay!; *vicitram*—maravillosos; *bhagavat-viceṣṭitam*—los pasatiempos del Señor; *ghnantam*—muerte; *janaḥ*—una persona; *ayam*—esta; *hi*—ciertamente; *miṣan*—aunque viendo; *na paśyati*—no ve; *dhyāyan*—pensar en; *asat*—felicidad material; *yarhi*—debido a; *vikarma*—actividades prohibidas; *sevitum*—disfrutar; *nirhṛtya*—ardiendo; *putram*—hijos; *pitaram*—el padre; *jijīviṣati*—desea una larga vida.

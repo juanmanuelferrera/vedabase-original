@@ -1,11 +1,11 @@
 ### SB 7.14.37
 
-> पुराण्यनेन सृष्टानि नृतिर्यगृषिदेवताः
+> पुराण्यनेन सृष्टानि नृतिर्यगृषिदेवताः\
 > शेते जीवेन रूपेण पुरेषु पुरुषो ह्यसौ ॥३७॥
 
-> purāṇy anena sṛṣṭāni
-> nṛ-tiryag-ṛṣi-devatāḥ
-> śete jīvena rūpeṇa
+> purāṇy anena sṛṣṭāni\
+> nṛ-tiryag-ṛṣi-devatāḥ\
+> śete jīvena rūpeṇa\
 > pureṣu puruṣo hy asau
 
 *purāṇi*—residential places or bodies; *anena*—by Him (the Supreme Personality of Godhead); *sṛṣṭāni*—among those creations; *nṛ*—man; *tiryak*—other than human beings (animals, birds, etc); *ṛṣi*—saintly persons; *devatāḥ*—and demigods; *śete*—lies down; *jīvena*—with the living entities; *rūpeṇa*—in the form of Paramātmā; *pureṣu*—within these residential places or bodies; *puruṣaḥ*—the Supreme Lord; *hi*—indeed; *asau*—He (the Personality of Godhead).

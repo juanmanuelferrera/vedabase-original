@@ -1,11 +1,11 @@
 ### Bg 4.16
 
-> किं कर्म किमकर्मेति कवयोऽप्यत्र मोहिताः ।
+> किं कर्म किमकर्मेति कवयोऽप्यत्र मोहिताः ।\
 > तत्ते कर्म प्रवक्ष्यामि यज्ज्ञात्वा मोक्ष्यसेऽशुभात् ॥१६॥
 
-> kiṁ karma kim akarmeti
-> kavayo 'py atra mohitāḥ
-> tat te karma pravakṣyāmi
+> kiṁ karma kim akarmeti\
+> kavayo 'py atra mohitāḥ\
+> tat te karma pravakṣyāmi\
 > yaj jñātvā mokṣyase 'śubhāt
 
 *kim*—what is; *karma*—action; *kim*—what is; *akarma*—inaction; *iti*—thus; *kavayaḥ*—the intelligent; *api*—also; *atra*—in this matter; *mohitāḥ*—bewildered; *tat*—that; *te*—unto you; *karma*—work; *pravakṣyāmi*—I shall explain; *yat*—which; *jñātvā*—knowing; *mokṣyase*—be liberated; *aśubhāt*—from ill fortune.

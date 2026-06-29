@@ -1,9 +1,9 @@
 ### CC Antya 3.126
 
-> কালি সমাপ্ত হবে, তবে হবে ব্রতভঙ্গ ।
+> কালি সমাপ্ত হবে, তবে হবে ব্রতভঙ্গ ।\
 > স্বচ্ছন্দে তোমার সঙ্গে হইবেক সঙ্গ ।।” ॥ ১২৬ ॥
 
-> kāli samāpta habe, tabe habe vrata-bhaṅga
+> kāli samāpta habe, tabe habe vrata-bhaṅga\
 > svacchande tomāra saṅge ha-ibeka saṅga"
 
 *kāli*—tomorrow; *samāpta habe*—it will end; *tabe*—at that time; *habe*—there will be; *vrata-bhaṅga*—the end of my vow; *svacchande*—in full freedom; *tomāra saṅge*—with you; *ha-ibeka*—there will be; *saṅga*—union.

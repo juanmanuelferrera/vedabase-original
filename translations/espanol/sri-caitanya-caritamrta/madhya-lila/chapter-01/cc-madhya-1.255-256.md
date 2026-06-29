@@ -1,14 +1,14 @@
 ### CC Madhya 1.255-256
 
-> অদ্বৈত, নিত্যানন্দ, মুকুন্দ, শ্রীবাস ।
-> বিদ্যানিধি, বাসুদেব, মুরারি, — যত দাস ॥২৫৫॥
-> প্রতিবর্ষে আইসে সঙ্গে রহে চারিমাস ।
+> অদ্বৈত, নিত্যানন্দ, মুকুন্দ, শ্রীবাস ।\
+> বিদ্যানিধি, বাসুদেব, মুরারি, — যত দাস ॥২৫৫॥\
+> প্রতিবর্ষে আইসে সঙ্গে রহে চারিমাস ।\
 > তাঁ-সবা লঞা প্রভুর বিবিধ বিলাস ॥২৫৬॥
 
-> advaita, nityānanda, mukunda, śrīvāsa
+> advaita, nityānanda, mukunda, śrīvāsa\
 > vidyānidhi, vāsudeva, murāri,—yata dāsa
 
-> prativarṣe āise saṅge rahe cāri-māsa
+> prativarṣe āise saṅge rahe cāri-māsa\
 > tāṅ-sabā lañā prabhura vividha vilāsa
 
 *advaita*—Advaita; *nityānanda*—Nityānanda; *mukunda*—Mukunda; *śrīvāsa*—Śrīvāsa; *vidyānidhi*—Vidyānidhi; *vāsudeva*—Vāsudeva; *murāri*—Murāri; *yata dāsa*—todos ellos servidores del Señor; *prativarṣe*—cada año; *āise*—ir allí; *saṅge*—en compañía; *rahe*—permanecer; *cāri-māsa*—cuatro meses; *tāṅ-sabā*—todos ellos; *lañā*—tomar; *prabhura*—del Señor; *vividha*—diversos; *vilāsa*—pasatiempos.

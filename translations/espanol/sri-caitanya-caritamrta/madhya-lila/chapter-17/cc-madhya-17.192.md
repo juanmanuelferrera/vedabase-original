@@ -1,9 +1,9 @@
 ### CC Madhya 17.192
 
-> ‘বন’ দেখিবারে যদি প্রভুর মন হৈল ।
+> ‘বন’ দেখিবারে যদি প্রভুর মন হৈল ।\
 > সেইত ব্রাহ্মণে প্রভু সঙ্গেতে লইল ॥১৯২॥
 
-> 'vana' dekhibāre yadi prabhura mana haila
+> 'vana' dekhibāre yadi prabhura mana haila\
 > sei ta brāhmaṇe prabhu saṅgete la-ila
 
 *vana*—los bosques; *dekhibāre*—para ver; *yadi*—cuando; *prabhura*—de Śrī Caitanya Mahāprabhu; *mana*—la mente; *haila*—estaba; *sei ta*—en efecto aquel; *brāhmaṇe*—brāhmaṇa; *prabhu*—Śrī Caitanya Mahāprabhu; *saṅgete la-ila*—llevó consigo.

@@ -1,11 +1,11 @@
 ### SB 9.4.70
 
-> तपो विद्या च विप्राणां निःश्रेयसकरे उभे
+> तपो विद्या च विप्राणां निःश्रेयसकरे उभे\
 > ते एव दुर्विनीतस्य कल्पेते कर्तुरन्यथा ॥७०॥
 
-> tapo vidyā ca viprāṇāṁ
-> niḥśreyasa-kare ubhe
-> te eva durvinītasya
+> tapo vidyā ca viprāṇāṁ\
+> niḥśreyasa-kare ubhe\
+> te eva durvinītasya\
 > kalpete kartur anyathā
 
 *tapaḥ*—austeridades; *vidyā*—conocimiento; *ca*—también; *viprāṇām*—de los *brāhmaṇas*; *niḥśreyasa*—de lo que ciertamente es muy auspicioso para la elevación; *kare*—son causas; *ubhe*—ambas; *te*—esa austeridad y ese conocimiento; *eva*—en verdad; *durvinītasya*—cuando esa persona es un arribista; *kalpete*—se vuelven; *kartuḥ*—de quien lo realiza; *anyathā*—todo lo contrario.

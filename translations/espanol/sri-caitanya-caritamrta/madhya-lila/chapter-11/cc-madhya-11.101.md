@@ -1,9 +1,9 @@
 ### CC Madhya 11.101
 
-> রাজা কহে, — শাস্ত্রপ্রমাণে চৈতন্য হন কৃষ্ণ ৷
+> রাজা কহে, — শাস্ত্রপ্রমাণে চৈতন্য হন কৃষ্ণ ৷\
 > তবে কেনে পণ্ডিত সব তাঁহাতে বিতৃষ্ণ ? ১০১ ৷৷ ॥১০১॥
 
-> rājā kahe,-śāstra-pramāṇe caitanya hana kṛṣṇa
+> rājā kahe,-śāstra-pramāṇe caitanya hana kṛṣṇa\
 > tabe kene paṇḍita saba tāṅhāte vitṛṣṇa?
 
 *rājā kahe*—el rey dijo; *śāstra-pramāṇe*—por la evidencia de las Escrituras reveladas; *caitanya*—Śrī Caitanya Mahāprabhu; *hana*—es; *kṛṣṇa*—la Suprema Personalidad de Dios, el Señor Kṛṣṇa; *tabe*—por lo tanto; *kene*—¿por qué?; *paṇḍita*—los supuestos eruditos; *saba*—todos; *tāṅhāte*—hacia Él; *vitṛṣṇa*—indiferentes.

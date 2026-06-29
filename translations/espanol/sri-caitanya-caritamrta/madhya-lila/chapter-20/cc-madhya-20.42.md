@@ -1,9 +1,9 @@
 ### CC Madhya 20.42
 
-> তেঁহো কহে, — “দিন-দুই রহ এইস্থানে ।
+> তেঁহো কহে, — “দিন-দুই রহ এইস্থানে ।\
 > ভদ্র হও, ছাড়’ এই মলিন বসনে ।।” ॥ ৪২ ॥
 
-> teṅho kahe,--"dina-dui raha ei-sthāne
+> teṅho kahe,--"dina-dui raha ei-sthāne\
 > bhadra hao, chāḍa' ei malina vasane"
 
 *teṅho kahe*—él dijo; *dina-dui*—al menos dos días; *raha*—quédate; *ei-sthāne*—en este lugar; *bhadra hao*—preséntate como un caballero en apariencia; *chāḍa'*—abandona; *ei*—esta; *malina*—sucia; *vasane*—vestimenta.

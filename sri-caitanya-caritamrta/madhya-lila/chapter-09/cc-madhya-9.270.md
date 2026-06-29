@@ -1,11 +1,11 @@
 ### CC Madhya 9.270
 
-> নারায়ণপরাঃ সর্বে ন কুতশ্চন বিভ্যতি ।
+> নারায়ণপরাঃ সর্বে ন কুতশ্চন বিভ্যতি ।\
 > স্বর্গাপবর্গনরকেষ্বপি তুল্যার্থদর্শিনঃ ॥২৭০॥
 
-> nārāyaṇa-parāḥ sarve
-> na kutaścana bibhyati
-> svargāpavarga-narakeṣv
+> nārāyaṇa-parāḥ sarve\
+> na kutaścana bibhyati\
+> svargāpavarga-narakeṣv\
 > api tulyārtha-darśinaḥ
 
 *nārāyaṇa-parāḥ*—persons who are devotees of the Supreme Personality of Godhead Nārāyaṇa; *sarve*—all; *na*—never; *kutaścana*—anywhere; *bibhyati*—are afraid; *svarga*—in the heavenly planetary system; *apavarga*—on the path of liberation; *narakeṣu*—or in a hellish condition of life; *api*—even; *tulya*—equal; *artha*—value; *darśinaḥ*—seers of.

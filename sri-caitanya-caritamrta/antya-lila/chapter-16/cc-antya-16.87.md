@@ -1,13 +1,13 @@
 ### CC Antya 16.87
 
-> ক্ব মে কান্তঃ কৃষ্ণস্ত্বরিতমিহ তং লোকয় সখে
-> ত্বমেবেতি দ্বারাধিপমভিবদন্নুন্মদ ইব ।
-> দ্রুতং গচ্ছ দ্রষ্টুং প্রিয়মিতি তদুক্তেন ধৃত-তদ্-
+> ক্ব মে কান্তঃ কৃষ্ণস্ত্বরিতমিহ তং লোকয় সখে\
+> ত্বমেবেতি দ্বারাধিপমভিবদন্নুন্মদ ইব ।\
+> দ্রুতং গচ্ছ দ্রষ্টুং প্রিয়মিতি তদুক্তেন ধৃত-তদ্-\
 > ভুজান্তর্গৌরাঙ্গো হৃদয় উদয়ন্মাং মদয়তি ॥৮৭॥
 
-> kva me kāntaḥ kṛṣṇas tvaritam iha taṁ lokaya sakhe
-> tvam eveti dvārādhipam abhivadann unmada iva
-> drutaṁ gaccha draṣṭuṁ priyam iti tad-uktena dhṛta-tad-
+> kva me kāntaḥ kṛṣṇas tvaritam iha taṁ lokaya sakhe\
+> tvam eveti dvārādhipam abhivadann unmada iva\
+> drutaṁ gaccha draṣṭuṁ priyam iti tad-uktena dhṛta-tad-\
 > bhujāntar gaurāṅgo hṛdaya udayan māṁ madayati
 
 *kva*—where; *me*—My; *kāntaḥ*—beloved; *kṛṣṇaḥ*—Lord Kṛṣṇa; *tvaritam*—quickly; *iha*—here; *tam*—Him; *lokaya*—show; *sakhe*—O friend; *tvam*—you; *eva*—certainly; *iti*—thus; *dvāra-adhipam*—the doorkeeper; *abhivadan*—requesting; *unmadaḥ*—a madman; *iva*—like; *drutam*—very quickly; *gaccha*—come; *draṣṭum*—to see; *priyam*—beloved; *iti*—thus; *tat*—of him; *uktena*—with the words; *dhṛta*—caught; *tat*—His; *bhuja-antaḥ*—end of the arm; *gaurāṅgaḥ*—Lord Śrī Caitanya Mahāprabhu; *hṛdaye*—in my heart; *udayan*—rising; *mām*—me; *madayati*—maddens.

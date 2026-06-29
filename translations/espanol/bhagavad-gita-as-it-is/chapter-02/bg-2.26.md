@@ -1,11 +1,11 @@
 ### Bg 2.26
 
-> अथ चैनं नित्यजातं नित्यं वा मन्यसे मृतम् ।
+> अथ चैनं नित्यजातं नित्यं वा मन्यसे मृतम् ।\
 > तथापि त्वं महाबाहो नैवं शोचितुमर्हसि ॥२६॥
 
-> atha cainaṁ nitya-jātaṁ
-> nityaṁ vā manyase mṛtam
-> tathāpi tvaṁ mahā-bāho
+> atha cainaṁ nitya-jātaṁ\
+> nityaṁ vā manyase mṛtam\
+> tathāpi tvaṁ mahā-bāho\
 > nainaṁ śocitum arhasi
 
 *atha*—si, no obstante; *ca*—también; *enam*—este alma; *nitya-jātam*—que siempre nace; *nityam*—siempre; *vā*—o bien; *manyase*—así piensas; *mṛtam*—muerta; *tathāpi*—aún así; *tvam*—tú; *mahā-bāho*—¡oh, el de los poderosos brazos!; *na*—nunca; *enam*—sobre el alma; *śocitum*—lamentarse; *arhasi*—merece.

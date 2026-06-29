@@ -1,11 +1,11 @@
 ### SB 6.13.15
 
-> स आवसत्पुष्करनालतन्तूनलब्धभोगो यदिहाग्निदूतः
+> स आवसत्पुष्करनालतन्तूनलब्धभोगो यदिहाग्निदूतः\
 > वर्षाणि साहस्रमलक्षितोऽन्तः सञ्चिन्तयन्ब्रह्मवधाद्विमोक्षम ॥१५॥
 
-> sa āvasat puṣkara-nāla-tantūn
-> alabdha-bhogo yad ihāgni-dūtaḥ
-> varṣāṇi sāhasram alakṣito 'ntaḥ
+> sa āvasat puṣkara-nāla-tantūn\
+> alabdha-bhogo yad ihāgni-dūtaḥ\
+> varṣāṇi sāhasram alakṣito 'ntaḥ\
 > sañcintayan brahma-vadhād vimokṣam
 
 *saḥ*—he (Indra); *āvasat*—lived; *puṣkara-nāla-tantūn*—in the network of the fibers of a lotus stem; *alabdha-bhogaḥ*—not getting any material comfort (practically starving for all material needs); *yat*—which; *iha*—here; *agni-dūtaḥ*—the fire-god messenger; *varṣāṇi*—celestial years; *sāhasram*—one thousand; *alakṣitaḥ*—invisible; *antaḥ*—within his heart; *sañcintayan*—always thinking of; *brahma-vadhāt*—from the killing of a *brāhmaṇa*; *vimokṣam*—liberation.

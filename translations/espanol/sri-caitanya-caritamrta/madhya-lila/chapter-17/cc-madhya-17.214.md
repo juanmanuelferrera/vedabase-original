@@ -1,11 +1,11 @@
 ### CC Madhya 17.214
 
-> বংশীধারী জগন্নারী-চিত্তহারী স শারিকে ।
+> বংশীধারী জগন্নারী-চিত্তহারী স শারিকে ।\
 > বিহারী গোপনারীভির্জীয়ান্মদনমোহনঃ ॥২১৪॥
 
-> vamśī-dhārī jagan-nāri-
-> citta-hārī sa śārike
-> vihārī gopa-nārībhir
+> vamśī-dhārī jagan-nāri-\
+> citta-hārī sa śārike\
+> vihārī gopa-nārībhir\
 > jīyān madana-mohanaḥ
 
 *vaṁśī-dhārī*—el que lleva la flauta; *jagat-nārī*—de todas las mujeres del universo; *citta-hārī*—el que roba los corazones; *saḥ*—Él; *śārike*—mi querida śārī; *vihārī*—el que disfruta; *gopa-nārībhiḥ*—con las gopīs; *jīyāt*—que sea glorificado; *madana*—de Cupido; *mohanaḥ*—el hechicero.

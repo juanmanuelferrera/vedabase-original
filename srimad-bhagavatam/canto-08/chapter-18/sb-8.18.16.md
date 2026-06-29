@@ -1,11 +1,11 @@
 ### SB 8.18.16
 
-> कमण्डलुं वेदगर्भः कुशान्सप्तर्षयो ददुः
+> कमण्डलुं वेदगर्भः कुशान्सप्तर्षयो ददुः\
 > अक्षमालां महाराज सरस्वत्यव्ययात्मनः ॥१६॥
 
-> kamaṇḍaluṁ veda-garbhaḥ
-> kuśān saptarṣayo daduḥ
-> akṣa-mālāṁ mahārāja
+> kamaṇḍaluṁ veda-garbhaḥ\
+> kuśān saptarṣayo daduḥ\
+> akṣa-mālāṁ mahārāja\
 > sarasvaty avyayātmanaḥ
 
 *kamaṇḍalum*—a waterpot; *veda-garbhaḥ*—Lord Brahmā; *kuśān*—*kuśa* grass; *sapta-ṛṣayaḥ*—the seven sages; *daduḥ*—offered; *akṣa-mālām*—a string of Rudrākṣa beads; *mahārāja*—O King; *sarasvatī*—the goddess Sarasvatī; *avyaya-ātmanaḥ*—to the Supreme Personality of Godhead.

@@ -1,11 +1,11 @@
 ### SB 3.13.25
 
-> निशम्य ते घर्घरितं स्वखेद क्षयिष्णु मायामयसूकरस्य ।
+> निशम्य ते घर्घरितं स्वखेद क्षयिष्णु मायामयसूकरस्य ।\
 > जनस्तपःसत्यनिवासिनस्ते त्रिभिः पवित्रैर्मुनयोऽगृणन्स्म ॥२५॥
 
-> niśamya te ghargharitaṁ sva-kheda-
-> kṣayiṣṇu māyāmaya-sūkarasya
-> janas-tapaḥ-satya-nivāsinas te
+> niśamya te ghargharitaṁ sva-kheda-\
+> kṣayiṣṇu māyāmaya-sūkarasya\
+> janas-tapaḥ-satya-nivāsinas te\
 > tribhiḥ pavitrair munayo 'gṛṇan sma
 
 *niśamya*—just after hearing; *te*—those; *ghargharitam*—the tumultuous sound; *sva-kheda*—personal lamentation; *kṣayiṣṇu*—destroying; *māyā-maya*—all-merciful; *sūkarasya*—of Lord Boar; *janaḥ*—the Janaloka planet; *tapaḥ*—the Tapoloka planet; *satya*—the Satyaloka planet; *nivāsinaḥ*—residents; *te*—all of them; *tribhiḥ*—from the three *Vedas*; *pavitraiḥ*—by the all-auspicious *mantras*; *munayaḥ*—great thinkers and sages; *agṛṇan sma*—chanted.

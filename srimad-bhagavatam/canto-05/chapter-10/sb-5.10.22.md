@@ -1,11 +1,11 @@
 ### SB 5.10.22
 
-> स्थाल्यग्नितापात्पयसोऽभितापस्तत्तापतस्तण्डुलगर्भरन्धिः
+> स्थाल्यग्नितापात्पयसोऽभितापस्तत्तापतस्तण्डुलगर्भरन्धिः\
 > देहेन्द्रियास्वाशयसन्निकर्षात्तत्संसृतिः पुरुषस्यानुरोधात ॥२२॥
 
-> sthāly-agni-tāpāt payaso 'bhitāpas
-> tat-tāpatas taṇḍula-garbha-randhiḥ
-> dehendriyāsvāśaya-sannikarṣāt
+> sthāly-agni-tāpāt payaso 'bhitāpas\
+> tat-tāpatas taṇḍula-garbha-randhiḥ\
+> dehendriyāsvāśaya-sannikarṣāt\
 > tat-saṁsṛtiḥ puruṣasyānurodhāt
 
 *sthāli*—on the cooking pot; *agni-tāpāt*—because of the heat of fire; *payasaḥ*—the milk put into the pot; *abhitāpaḥ*—becomes hot; *tat-tāpataḥ*—because of the milk's becoming hot; *taṇḍula-garbha-randhiḥ*—the center of the rice within the milk becomes cooked; *deha-indriya-asvāśaya*—the bodily senses; *sannikarṣāt*—from having connections with; *tat-saṁsṛtiḥ*—the experience of fatigue and other miseries; *puruṣasya*—of the soul; *anurodhāt*—from compliance due to being grossly attached to the body, senses and mind.

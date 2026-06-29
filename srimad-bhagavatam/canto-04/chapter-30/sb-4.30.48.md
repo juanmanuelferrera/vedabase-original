@@ -1,11 +1,11 @@
 ### SB 4.30.48
 
-> ते च ब्रह्मण आदेशान्मारिषामुपयेमिरे ।
+> ते च ब्रह्मण आदेशान्मारिषामुपयेमिरे ।\
 > यस्यां महदवज्ञानादजन्यजनयोनिजः ॥४८॥
 
-> te ca brahmaṇa ādeśān
-> māriṣām upayemire
-> yasyāṁ mahad-avajñānād
+> te ca brahmaṇa ādeśān\
+> māriṣām upayemire\
+> yasyāṁ mahad-avajñānād\
 > ajany ajana-yonijaḥ
 
 *te*—all the Pracetās; *ca*—also; *brahmaṇaḥ*—of Lord Brahmā; *ādeśāt*—by the order; *māriṣām*—Māriṣā; *upayemire*—married; *yasyām*—in whom; *mahat*—to a great personality; *avajñānāt*—on account of disrespect; *ajani*—took birth; *ajana-yoni-jaḥ*—the son of Lord Brahmā, Dakṣa.

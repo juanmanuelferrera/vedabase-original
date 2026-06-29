@@ -1,11 +1,11 @@
 ### SB 3.33.23
 
-> ध्यायती भगवद्रूपं यदाह ध्यानगोचरम् ।
+> ध्यायती भगवद्रूपं यदाह ध्यानगोचरम् ।\
 > सुतः प्रसन्नवदनं समस्तव्यस्तचिन्तया ॥२३॥
 
-> dhyāyatī bhagavad-rūpaṁ
-> yad āha dhyāna-gocaram
-> sutaḥ prasanna-vadanaṁ
+> dhyāyatī bhagavad-rūpaṁ\
+> yad āha dhyāna-gocaram\
+> sutaḥ prasanna-vadanaṁ\
 > samasta-vyasta-cintayā
 
 *dhyāyatī*—meditating; *bhagavat-rūpam*—upon the form of the Supreme Personality of Godhead; *yat*—which; *āha*—He instructed; *dhyāna-gocaram*—the object of meditation; *sutaḥ*—her son; *prasanna-vadanam*—with a smiling face; *samasta*—on the whole; *vyasta*—on the parts; *cintayā*—with her mind.

@@ -1,11 +1,11 @@
 ### SB 3.9.35
 
-> ऋषिमाद्यं न बध्नाति पापीयांस्त्वां रजोगुणः ।
+> ऋषिमाद्यं न बध्नाति पापीयांस्त्वां रजोगुणः ।\
 > यन्मनो मयि निर्बद्धं प्रजाः संसृजतोऽपि ते ॥३५॥
 
-> ṛṣim ādyaṁ na badhnāti
-> pāpīyāṁs tvāṁ rajo-guṇaḥ
-> yan mano mayi nirbaddhaṁ
+> ṛṣim ādyaṁ na badhnāti\
+> pāpīyāṁs tvāṁ rajo-guṇaḥ\
+> yan mano mayi nirbaddhaṁ\
 > prajāḥ saṁsṛjato 'pi te
 
 *ṛṣim*—unto the great sage; *ādyam*—the first of the kind; *na*—never; *badhnāti*—encroaches; *pāpīyān*—vicious; *tvām*—you; *rajaḥ-guṇaḥ*—the material mode of passion; *yat*—because; *manaḥ*—mind; *mayi*—in Me; *nirbaddham*—compact in; *prajāḥ*—progeny; *saṁsṛjataḥ*—generating; *api*—in spite of; *te*—your.

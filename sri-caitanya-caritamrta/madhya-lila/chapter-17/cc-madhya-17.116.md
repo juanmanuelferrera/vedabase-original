@@ -1,9 +1,9 @@
 ### CC Madhya 17.116
 
-> “শুনিয়াছি গৌড়দেশের সন্ন্যাসী — ‘ভাবুক’ ।
+> “শুনিয়াছি গৌড়দেশের সন্ন্যাসী — ‘ভাবুক’ ।\
 > কেশব-ভারতী-শিষ্য, লোকপ্রতারক ॥১১৬॥
 
-> "śuniyāchi gauḍa-deśera sannyāsī—'bhāvuka'
+> "śuniyāchi gauḍa-deśera sannyāsī—'bhāvuka'\
 > keśava-bhāratī-śiṣya, loka-pratāraka
 
 *śuniyāchi*—I have heard; *gauḍa-deśera sannyāsī*—the *sannyāsī* from Bengal; *bhāvuka*—sentimental; *keśava-bhāratī-śiṣya*—disciple of Keśava Bhāratī; *loka-pratāraka*—a first-class pretender.

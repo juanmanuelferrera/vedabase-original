@@ -1,9 +1,9 @@
 ### CC Adi 5.114
 
-> দেবগণে না পায় যাঁহার দরশন ।
+> দেবগণে না পায় যাঁহার দরশন ।\
 > ক্ষীরোদকতীরে যাই’ করেন স্তবন ॥১১৪॥
 
-> deva-gaṇe nā pāya yāṅhāra daraśana
+> deva-gaṇe nā pāya yāṅhāra daraśana\
 > kṣīrodaka-tīre yāi' karena stavana
 
 *deva-gaṇe*—los semidioses; *nā*—no; *pāya*—obtienen; *yāṅhāra*—cuya; *daraśana*—visión; *kṣīra-udaka-tīre*—a la orilla del océano de leche; *yāi'*—van; *karena stavana*—ofrecen oraciones.

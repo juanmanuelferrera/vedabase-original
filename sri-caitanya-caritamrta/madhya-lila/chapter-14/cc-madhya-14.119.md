@@ -1,9 +1,9 @@
 ### CC Madhya 14.119
 
-> বৃন্দাবন-সম এই উপবন-গণ ।
+> বৃন্দাবন-সম এই উপবন-গণ ।\
 > তাহা দেখিবারে উৎকণ্ঠিত হয় মন ॥১১৯॥
 
-> vṛndāvana-sama ei upavana-gaṇa
+> vṛndāvana-sama ei upavana-gaṇa\
 > tāhā dekhibāre utkaṇṭhita haya mana
 
 *vṛndāvana-sama*—exactly resembling Vṛndāvana; *ei*—all these; *upavana-gaṇa*—neighboring gardens; *tāhā*—those gardens; *dekhibāre*—for seeing; *utkaṇṭhita*—very eager; *haya mana*—His mind becomes.

@@ -1,13 +1,13 @@
 ### SB 2.7.7
 
-> कामं दहन्ति कृतिनो ननु रोषदृष्ट्या
-> रोषं दहन्तमुत ते न दहन्त्यसह्यम् ।
-> सोऽयं यदन्तरमलं प्रविशन्बिभेति
+> कामं दहन्ति कृतिनो ननु रोषदृष्ट्या\
+> रोषं दहन्तमुत ते न दहन्त्यसह्यम् ।\
+> सोऽयं यदन्तरमलं प्रविशन्बिभेति\
 > कामः कथं नु पुनरस्य मनः श्रयेत ॥७॥
 
-> kāmaṁ dahanti kṛtino nanu roṣa-dṛṣṭyā
-> roṣaṁ dahantam uta te na dahanty asahyam
-> so 'yaṁ yad antaram alaṁ praviśan bibheti
+> kāmaṁ dahanti kṛtino nanu roṣa-dṛṣṭyā\
+> roṣaṁ dahantam uta te na dahanty asahyam\
+> so 'yaṁ yad antaram alaṁ praviśan bibheti\
 > kāmaḥ kathaṁ nu punar asya manaḥ śrayeta
 
 *kāmam*—lujuria; *dahanti*—castigan; *kṛtinaḥ*—grandes personalidades; *nanu*—pero; *roṣa-dṛṣṭyā*—mediante una mirada furiosa; *roṣam*—ira; *dahantam*—estando dominado; *uta*—si bien; *te*—ellos; *na*—no pueden; *dahanti*—subyugar; *asahyam*—intolerable; *saḥ*—eso; *ayam*—Él; *yat*—debido; *antaram*—dentro; *alam*—sin embargo; *praviśan*—entrando; *bibheti*—siente temor de; *kāmaḥ*—lujuria; *katham*—cómo; *nu*—como un hecho cierto; *punaḥ*—de nuevo; *asya*—Su; *manaḥ*—mente; *śrayeta*—refugiarse en.

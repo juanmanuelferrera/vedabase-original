@@ -1,13 +1,13 @@
 ### SB 8.22.20
 
-> श्रीविन्ध्यावलिरुवाच
-> क्रीडार्थमात्मन इदं त्रिजगत्कृतं ते स्वाम्यं तु तत्र कुधियोऽपर ईश कुर्युः
+> श्रीविन्ध्यावलिरुवाच\
+> क्रीडार्थमात्मन इदं त्रिजगत्कृतं ते स्वाम्यं तु तत्र कुधियोऽपर ईश कुर्युः\
 > कर्तुः प्रभोस्तव किमस्यत आवहन्ति त्यक्तह्रियस्त्वदवरोपितकर्तृवादाः ॥२०॥
 
-> śrī-vindhyāvalir uvāca
-> krīḍārtham ātmana idaṁ tri-jagat kṛtaṁ te
-> svāmyaṁ tu tatra kudhiyo 'para īśa kuryuḥ
-> kartuḥ prabhos tava kim asyata āvahanti
+> śrī-vindhyāvalir uvāca\
+> krīḍārtham ātmana idaṁ tri-jagat kṛtaṁ te\
+> svāmyaṁ tu tatra kudhiyo 'para īśa kuryuḥ\
+> kartuḥ prabhos tava kim asyata āvahanti\
 > tyakta-hriyas tvad-avaropita-kartṛ-vādāḥ
 
 *śrī-vindhyāvaliḥ uvāca*—Vindhyāvali, the wife of Bali Mahārāja, said; *krīḍā-artham*—for the sake of pastimes; *ātmanaḥ*—of Yourself; *idam*—this; *tri-jagat*—the three worlds (this universe); *kṛtam*—was created; *te*—by You; *svāmyam*—proprietorship; *tu*—but; *tatra*—thereon; *kudhiyaḥ*—foolish rascals; *apare*—others; *īśa*—O my Lord; *kuryuḥ*—have established; *kartuḥ*—for the supreme creator; *prabhoḥ*—for the supreme maintainer; *tava*—for Your good self; *kim*—what; *asyataḥ*—for the supreme annihilator; *āvahanti*—they can offer; *tyakta-hriyaḥ*—shameless, without intelligence; *tvat*—by You; *avaropita*—falsely imposed because of a poor fund of knowledge; *kartṛ-vādāḥ*—the proprietorship of such foolish agnostics.

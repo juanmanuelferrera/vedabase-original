@@ -1,13 +1,13 @@
 ### CC Madhya 18.125
 
-> যন্নামধেয়-শ্রবণানুকীর্তনাদ্
-> যৎপ্রহ্বণাদ্যত্স্মরণাদপি ক্বচিৎ ।
-> শ্বাদোঽপি সদ্যঃ সবনায় কল্পতে
+> যন্নামধেয়-শ্রবণানুকীর্তনাদ্\
+> যৎপ্রহ্বণাদ্যত্স্মরণাদপি ক্বচিৎ ।\
+> শ্বাদোঽপি সদ্যঃ সবনায় কল্পতে\
 > কুতঃ পুনস্তে ভগবন্নু দর্শনাৎ ॥১২৫॥
 
-> yan-nāmadheya-śravaṇānukīrtanād
-> yat-prahvaṇād yat-smaraṇād api kvacit
-> śvādo 'pi sadyaḥ savanāya kalpate
+> yan-nāmadheya-śravaṇānukīrtanād\
+> yat-prahvaṇād yat-smaraṇād api kvacit\
+> śvādo 'pi sadyaḥ savanāya kalpate\
 > kutaḥ punas te bhagavan nu darśanāt
 
 *yat*—de quien; *nāmadheya*—del nombre; *śravaṇa*—de escuchar; *anukīrtanāt*—y después de cantar; *yat*—a quien; *prahvaṇāt*—de ofrecer reverencias; *yat*—de quien; *smaraṇāt*—de simplemente recordar; *api*—también; *kvacit*—a veces; *śva-adaḥ*—un comedor de perros; *api*—incluso; *sadyaḥ*—de inmediato; *savanāya*—para realizar sacrificios Védicos; *kalpate*—se vuelve apto; *kutaḥ*—qué decir; *punaḥ*—además; *te*—de Ti; *bhagavan*—¡oh, Suprema Personalidad de Dios!; *nu*—ciertamente; *darśanāt*—de ver.

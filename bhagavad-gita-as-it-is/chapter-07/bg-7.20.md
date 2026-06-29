@@ -1,11 +1,11 @@
 ### Bg 7.20
 
-> कामैस्तैस्तैर्हृतज्ञानाः प्रपद्यन्तेऽन्यदेवताः ।
+> कामैस्तैस्तैर्हृतज्ञानाः प्रपद्यन्तेऽन्यदेवताः ।\
 > तं तं नियममास्थाय प्रकृत्या नियताः स्वया ॥२०॥
 
-> kāmais tais tair hṛta-jñānāḥ
-> prapadyante 'nya-devatāḥ
-> taṁ taṁ niyamam āsthāya
+> kāmais tais tair hṛta-jñānāḥ\
+> prapadyante 'nya-devatāḥ\
+> taṁ taṁ niyamam āsthāya\
 > prakṛtyā niyatāḥ svayā
 
 *kamaiḥ*—by desires; *taiḥ*—by those; *taiḥ*—by those; *hṛta*—distorted; *jñānāḥ*—knowledge; *prapadyante*—surrender; *anya*—other; *devatāḥ*—demigods; *tam*—that; *tam*—that; *niyamam*—rules; *āsthāya*—following; *prakṛtyā*—by nature; *niyatāḥ*—controlled; *svayā*—by their own.

@@ -1,9 +1,9 @@
 ### CC Madhya 24.210
 
-> আগে ‘তের’ অর্থ করিলুঁ, আর ‘ছয়’ এই ।
+> আগে ‘তের’ অর্থ করিলুঁ, আর ‘ছয়’ এই ।\
 > ঊনবিংশতি অর্থ হইল মিলি’ এই দুই ॥২১০॥
 
-> āge 'tera' artha kariluṅ, āra 'chaya' ei
+> āge 'tera' artha kariluṅ, āra 'chaya' ei\
 > ūnaviṁśati artha ha-ila mili' ei dui
 
 *āge*—anteriormente; *tera*—trece; *artha*—significados; *kariluṅ*—he hecho; *āra*—otros; *chaya*—seis; *ei*—estos; *ūnaviṁśati*—en total diecinueve; *artha*—significados; *ha-ila*—hubo; *mili'*—incluyendo; *ei dui*—estos dos.

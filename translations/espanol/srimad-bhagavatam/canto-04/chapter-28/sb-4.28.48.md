@@ -1,11 +1,11 @@
 ### SB 4.28.48
 
-> उत्तिष्ठोत्तिष्ठ राजर्षे इमामुदधिमेखलाम् ।
+> उत्तिष्ठोत्तिष्ठ राजर्षे इमामुदधिमेखलाम् ।\
 > दस्युभ्यः क्षत्रबन्धुभ्यो बिभ्यतीं पातुमर्हसि ॥४८॥
 
-> uttiṣṭhottiṣṭha rājarṣe
-> imām udadhi-mekhalām
-> dasyubhyaḥ kṣatra-bandhubhyo
+> uttiṣṭhottiṣṭha rājarṣe\
+> imām udadhi-mekhalām\
+> dasyubhyaḥ kṣatra-bandhubhyo\
 > bibhyatīṁ pātum arhasi
 
 *uttiṣṭha*—por favor, levántate; *uttiṣṭha*—por favor, levántate; *rāja-ṛṣe*—¡oh, rey santo!; *imām*—esta Tierra; *udadhi*—por el mar; *mekhalām*—rodeada; *dasyubhyaḥ*—de los bandidos; *kṣatra-bandhubhyaḥ*—de los reyes corruptos; *bibhyatīm*—muy temerosa; *pātum*—proteger; *arhasi*—tú debes.

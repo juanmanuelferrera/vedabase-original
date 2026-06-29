@@ -1,9 +1,9 @@
 ### CC Madhya 20.238
 
-> কেশব-ভেদে পদ্মশঙ্খগদাচক্রধর ।
+> কেশব-ভেদে পদ্মশঙ্খগদাচক্রধর ।\
 > মাধব-ভেদে চক্রগদাশঙ্খপদ্মকর ॥২৩৮॥
 
-> keśava-bhede padma-śaṅkha-gadā-cakra-dhara
+> keśava-bhede padma-śaṅkha-gadā-cakra-dhara\
 > mādhava-bhede cakra-gadā-śaṅkha-padma-kara
 
 *keśava-bhede*—according to the different opinion about Lord Keśava; *padma*—lotus; *śaṅkha*—conch; *gadā*—club; *cakra*—and disc; *dhara*—holding; *mādhava-bhede*—according to the different opinion about the bodily features of Lord Mādhava; *cakra*—disc; *gadā*—club; *śaṅkha*—conch; *padma*—lotus; *kara*—in the hands.

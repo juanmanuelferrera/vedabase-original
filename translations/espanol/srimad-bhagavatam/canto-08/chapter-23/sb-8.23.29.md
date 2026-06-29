@@ -1,13 +1,13 @@
 ### SB 8.23.29
 
-> पारं महिम्न उरुविक्रमतो गृणानो
-> यः पार्थिवानि विममे स रजांसि मर्त्यः
-> किं जायमान उत जात उपैति मर्त्य
+> पारं महिम्न उरुविक्रमतो गृणानो\
+> यः पार्थिवानि विममे स रजांसि मर्त्यः\
+> किं जायमान उत जात उपैति मर्त्य\
 > इत्याह मन्त्रदृगृषिः पुरुषस्य यस्य ॥२९॥
 
-> pāraṁ mahimna uruvikramato gṛṇāno
-> yaḥ pārthivāni vimame sa rajāṁsi martyaḥ
-> kiṁ jāyamāna uta jāta upaiti martya
+> pāraṁ mahimna uruvikramato gṛṇāno\
+> yaḥ pārthivāni vimame sa rajāṁsi martyaḥ\
+> kiṁ jāyamāna uta jāta upaiti martya\
 > ity āha mantra-dṛg ṛṣiḥ puruṣasya yasya
 
 *pāram*—la medida; *mahimnaḥ*—de las glorias; *uruvikramataḥ*—de la Suprema Personalidad de Dios, que actúa en forma maravillosa; *gṛṇānaḥ*—puede contar; *yaḥ*—una persona que; *pārthivāni*—de todo el planeta Tierra; *vimame*—puede contar; *saḥ*—él; *rajāṁsi*—los átomos; *martyaḥ*—un ser humano sujeto a la muerte; *kim*—qué; *jāyamānaḥ*—el que nacerá en el futuro; *uta*—o; *jātaḥ*—el que ya ha nacido; *upaiti*—puede hacer; *martyaḥ*—una persona sujeta a la muerte; *iti*—así; *āha*—dijo; *mantra-dṛk*—que podía prever los *mantras* védicos; *ṛṣiḥ*—el gran santo Vasiṣṭha Muni; *puruṣasya*—de la persona suprema; *yasya*—de quien.

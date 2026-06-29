@@ -1,13 +1,13 @@
 ### SB 9.10.1
 
-> श्रीशुक उवाच
-> खट्वाङ्गाद्दीर्घबाहुश्च रघुस्तस्मात्पृथुश्रवाः
+> श्रीशुक उवाच\
+> खट्वाङ्गाद्दीर्घबाहुश्च रघुस्तस्मात्पृथुश्रवाः\
 > अजस्ततो महाराजस्तस्माद्दशरथोऽभवत ॥१॥
 
-> śrī-śuka uvāca
-> khaṭvāṅgād dīrghabāhuś ca
-> raghus tasmāt pṛthu-śravāḥ
-> ajas tato mahā-rājas
+> śrī-śuka uvāca\
+> khaṭvāṅgād dīrghabāhuś ca\
+> raghus tasmāt pṛthu-śravāḥ\
+> ajas tato mahā-rājas\
 > tasmād daśaratho 'bhavat
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *khaṭvāṅgāt*—de Mahārāja Khaṭvāṅga; *dīrghabāhuḥ*—el hijo llamado Dīrghabāhu; *ca*—y; *raghuḥ tasmāt*—de él nació Raghu; *pṛthu-śravāḥ*—santo y célebre; *ajaḥ*—el hijo llamado Aja; *tataḥ*—de él; *mahā-rājaḥ*—el gran rey llamado Mahārāja Daśaratha; *tasmāt*—de Aja; *daśarathaḥ*—llamado Daśaratha; *abhavat*—nació.

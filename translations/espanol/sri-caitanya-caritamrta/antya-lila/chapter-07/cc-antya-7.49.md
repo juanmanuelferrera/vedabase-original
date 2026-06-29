@@ -1,9 +1,9 @@
 ### CC Antya 7.49
 
-> নামের মহিমা আমি তাঁর ঠাঞি শিখিলুঁ ।
+> নামের মহিমা আমি তাঁর ঠাঞি শিখিলুঁ ।\
 > তাঁর প্রসাদে নামের মহিমা জানিলুঁ ॥৪৯॥
 
-> nāmera mahimā āmi tāṅra ṭhāñi śikhiluṅ
+> nāmera mahimā āmi tāṅra ṭhāñi śikhiluṅ\
 > tāṅra prasāde nāmera mahimā jāniluṅ
 
 *nāmera mahimā*—las glorias del santo nombre; *āmi*—Yo; *tāṅra ṭhāñi*—de él; *śikhiluṅ*—he aprendido; *tāṅra prasāde*—por su misericordia; *nāmera*—del santo nombre; *mahimā*—las glorias; *jāniluṅ*—pude comprender.

@@ -1,11 +1,11 @@
 ### SB 4.21.12
 
-> सर्वत्रास्खलितादेशः सप्तद्वीपैकदण्डधृक् ।
+> सर्वत्रास्खलितादेशः सप्तद्वीपैकदण्डधृक् ।\
 > अन्यत्र ब्राह्मणकुलादन्यत्राच्युतगोत्रतः ॥१२॥
 
-> sarvatrāskhalitādeśaḥ
-> sapta-dvīpaika-daṇḍa-dhṛk
-> anyatra brāhmaṇa-kulād
+> sarvatrāskhalitādeśaḥ\
+> sapta-dvīpaika-daṇḍa-dhṛk\
+> anyatra brāhmaṇa-kulād\
 > anyatrācyuta-gotrataḥ
 
 *sarvatra*—everywhere; *askhalita*—irrevocable; *ādeśaḥ*—order; *sapta-dvīpa*—seven islands; *eka*—one; *daṇḍa-dhṛk*—the ruler who holds the scepter; *anyatra*—except; *brāhmaṇa-kulāt*—*brāhmaṇas* and saintly persons; *anyatra*—except; *acyuta-gotrataḥ*—descendants of the Supreme Personality of Godhead (Vaiṣṇavas).

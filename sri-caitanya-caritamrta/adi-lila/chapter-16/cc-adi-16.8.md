@@ -1,9 +1,9 @@
 ### CC Adi 16.8
 
-> কত দিনে কৈল প্রভু বঙ্গেতে গমন ।
+> কত দিনে কৈল প্রভু বঙ্গেতে গমন ।\
 > যাহাঁ যায়, তাহাঁ লওয়ায় নাম-সংকীর্তন ॥৮॥
 
-> kata dine kaila prabhu baṅgete gamana
+> kata dine kaila prabhu baṅgete gamana\
 > yāhāṅ yāya, tāhāṅ laoyāya nāma-saṅkīrtana
 
 *kata dine*—after a few days; *kaila*—did; *prabhu*—the Lord; *baṅgete*—in East Bengal; *gamana*—touring; *yāhāṅ yāya*—wherever He goes; *tāhāṅ*—there; *laoyāya*—induces; *nāma-saṅkīrtana*—the *saṅkīrtana* movement.

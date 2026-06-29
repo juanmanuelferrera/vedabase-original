@@ -1,18 +1,18 @@
 ### SB 9.9.16-17
 
-> श्रुतो भगीरथाज्जज्ञए तस्य नाभोऽपरोऽभवत
-> सिन्धुद्वीपस्ततस्तस्मादयुतायुस्ततोऽभवत ॥१६॥
-> ऋतूपर्णो नलसखो योऽश्वविद्यामयान्नलात
+> श्रुतो भगीरथाज्जज्ञए तस्य नाभोऽपरोऽभवत\
+> सिन्धुद्वीपस्ततस्तस्मादयुतायुस्ततोऽभवत ॥१६॥\
+> ऋतूपर्णो नलसखो योऽश्वविद्यामयान्नलात\
 > दत्त्वाक्षहृदयं चास्मै सर्वकामस्तु तत्सुतम ॥१७॥
 
-> śruto bhagīrathāj jajñe
-> tasya nābho 'paro 'bhavat
-> sindhudvīpas tatas tasmād
+> śruto bhagīrathāj jajñe\
+> tasya nābho 'paro 'bhavat\
+> sindhudvīpas tatas tasmād\
 > ayutāyus tato 'bhavat
 
-> ṛtūparṇo nala-sakho
-> yo 'śva-vidyām ayān nalāt
-> dattvākṣa-hṛdayaṁ cāsmai
+> ṛtūparṇo nala-sakho\
+> yo 'śva-vidyām ayān nalāt\
+> dattvākṣa-hṛdayaṁ cāsmai\
 > sarvakāmas tu tat-sutam
 
 *śrutaḥ*—a son named Śruta; *bhagīrathāt*—from Bhagīratha; *jajñe*—was born; *tasya*—of Śruta; *nābhaḥ*—by the name Nābha; *aparaḥ*—different from the Nābha previously described; *abhavat*—was born; *sindhudvīpaḥ*—by the name Sindhudvīpa; *tataḥ*—from Nābha; *tasmāt*—from Sindhudvīpa; *ayutāyuḥ*—a son named Ayutāyu; *tataḥ*—thereafter; *abhavat*—was born; *ṛtūparṇaḥ*—a son named Ṛtūparṇa; *nala-sakhaḥ*—who was a friend of Nala; *yaḥ*—one who; *aśva-vidyām*—the art of controlling horses; *ayāt*—achieved; *nalāt*—from Nala; *dattvā*—after giving in exchange; *akṣa-hṛdayam*—the secrets of the art of gambling; *ca*—and; *asmai*—unto Nala; *sarvakāmaḥ*—by the name Sarvakāma; *tu*—indeed; *tat-sutam*—his son (the son of Ṛtūparṇa).

@@ -1,11 +1,11 @@
 ### SB 8.11.22
 
-> शताभ्यां मातलिं पाको रथं सावयवं पृथक
+> शताभ्यां मातलिं पाको रथं सावयवं पृथक\
 > सकृत्सन्धानमोक्षेण तदद्भुतमभूद्रणे ॥२२॥
 
-> śatābhyāṁ mātaliṁ pāko
-> rathaṁ sāvayavaṁ pṛthak
-> sakṛt sandhāna-mokṣeṇa
+> śatābhyāṁ mātaliṁ pāko\
+> rathaṁ sāvayavaṁ pṛthak\
+> sakṛt sandhāna-mokṣeṇa\
 > tad adbhutam abhūd raṇe
 
 *śatābhyām*—con doscientas flechas; *mātalim*—al auriga Mātali; *pākaḥ*—el demonio llamado Pāka; *ratham*—la cuadriga; *sa-avayavam*—con todo su equipamiento; *pṛthak*—por separado; *sakṛt*—de una vez, al mismo tiempo; *sandhāna*—armando el arco con las flechas; *mokṣeṇa*—y disparando; *tat*—esa acción; *adbhutam*—maravillosa; *abhūt*—así fue; *raṇe*—en el campo de batalla.

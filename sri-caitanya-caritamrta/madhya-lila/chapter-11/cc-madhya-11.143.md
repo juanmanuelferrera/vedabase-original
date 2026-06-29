@@ -1,9 +1,9 @@
 ### CC Madhya 11.143
 
-> প্রত্যেক বৈষ্ণব সবে লিখিয়া লইল ।
+> প্রত্যেক বৈষ্ণব সবে লিখিয়া লইল ।\
 > ক্রমে ক্রমে দুই গ্রন্থ সর্বত্র ব্যাপিল ॥১৪৩॥
 
-> pratyeka vaiṣṇava sabe likhiyā la-ila
+> pratyeka vaiṣṇava sabe likhiyā la-ila\
 > krame krame dui grantha sarvatra vyāpila
 
 *pratyeka*—each and every; *vaiṣṇava*—devotee; *sabe*—all; *likhiyā*—copying; *la-ila*—took; *krame krame*—by and by; *dui grantha*—the two books; *sarvatra*—everywhere; *vyāpila*—become broadcast.

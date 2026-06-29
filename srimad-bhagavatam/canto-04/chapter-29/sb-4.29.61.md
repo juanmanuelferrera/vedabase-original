@@ -1,11 +1,11 @@
 ### SB 4.29.61
 
-> शयानमिममुत्सृज्य श्वसन्तं पुरुषो यथा ।
+> शयानमिममुत्सृज्य श्वसन्तं पुरुषो यथा ।\
 > कर्मात्मन्याहितं भुङ्क्ते तादृशेनेतरेण वा ॥६१॥
 
-> śayānam imam utsṛjya
-> śvasantaṁ puruṣo yathā
-> karmātmany āhitaṁ bhuṅkte
+> śayānam imam utsṛjya\
+> śvasantaṁ puruṣo yathā\
+> karmātmany āhitaṁ bhuṅkte\
 > tādṛśenetareṇa vā
 
 *śayānam*—lying down on a bed; *imam*—this body; *utsṛjya*—after giving up; *śvasantam*—breathing; *puruṣaḥ*—the living entity; *yathā*—as; *karma*—activity; *ātmani*—in the mind; *āhitam*—executed; *bhuṅkte*—enjoys; *tādṛśena*—by a similar body; *itareṇa*—by a different body; *vā*—or.

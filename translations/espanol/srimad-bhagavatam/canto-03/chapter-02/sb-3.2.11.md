@@ -1,11 +1,11 @@
 ### SB 3.2.11
 
-> प्रदर्श्यातप्ततपसामवितृप्तदृशां नृणाम् ।
+> प्रदर्श्यातप्ततपसामवितृप्तदृशां नृणाम् ।\
 > आदायान्तरधाद्यस्तु स्वबिम्बं लोकलोचनम् ॥११॥
 
-> pradarśyātapta-tapasām
-> avitṛpta-dṛśāṁ nṛṇām
-> ādāyāntar adhād yas tu
+> pradarśyātapta-tapasām\
+> avitṛpta-dṛśāṁ nṛṇām\
+> ādāyāntar adhād yas tu\
 > sva-bimbaṁ loka-locanam
 
 *pradarśya*—mediante la exhibición; *atapta*—sin someterse; *tapasām*—penitencias; *avitṛpta-dṛśām*—sin complacer la visión; *nṛṇām*—de las personas; *ādāya*—aceptando; *antaḥ*—desaparición; *adhāt*—llevó a cabo; *yaḥ*—aquel que; *tu*—pero; *sva-bimbam*—Su propia forma; *loka-locanam*—visión pública.

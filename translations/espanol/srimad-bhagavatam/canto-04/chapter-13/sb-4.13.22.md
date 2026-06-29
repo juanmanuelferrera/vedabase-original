@@ -1,11 +1,11 @@
 ### SB 4.13.22
 
-> किं वांहो वेन उद्दिश्य ब्रह्मदण्डमयूयुजन् ।
+> किं वांहो वेन उद्दिश्य ब्रह्मदण्डमयूयुजन् ।\
 > दण्डव्रतधरे राज्ञि मुनयो धर्मकोविदाः ॥२२॥
 
-> kiṁ vāṁho vena uddiśya
-> brahma-daṇḍam ayūyujan
-> daṇḍa-vrata-dhare rājñi
+> kiṁ vāṁho vena uddiśya\
+> brahma-daṇḍam ayūyujan\
+> daṇḍa-vrata-dhare rājñi\
 > munayo dharma-kovidāḥ
 
 *kim*—por qué; *vā*—también; *aṁhaḥ*—actividades pecaminosas; *vene*—a Vena; *uddiśya*—ver; *brahma-daṇḍam*—la maldición de un *brāhmaṇa*; *ayūyujan*—desearon imponer; *daṇḍa-vrata-dhare*—que lleva la vara de castigo; *rājñi*—al rey; *munayaḥ*—los grandes sabios; *dharma-kovidāḥ*—completamente versados en los principios religiosos.

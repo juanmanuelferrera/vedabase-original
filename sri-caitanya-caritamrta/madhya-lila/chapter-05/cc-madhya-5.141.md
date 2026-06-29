@@ -1,9 +1,9 @@
 ### CC Madhya 5.141
 
-> কমলপুরে আসি ভার্গীনদী-স্নান কৈল ।
+> কমলপুরে আসি ভার্গীনদী-স্নান কৈল ।\
 > নিত্যানন্দ-হাতে প্রভু দণ্ড ধরিল ॥১৪১॥
 
-> kamalapure āsi bhārgīnadī-snāna kaila
+> kamalapure āsi bhārgīnadī-snāna kaila\
 > nityānanda-hāte prabhu daṇḍa dharila
 
 *kamala-pure*—to the place known as Kamalapura; *āsi*—coming; *bhārgī-nadī*—in the small river of the name Bhārgīnadī; *snāna kaila*—took a bath; *nityānanda-hāte*—in the hands of Lord Nityānanda Prabhu; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *daṇḍa*—the *sannyāsa* staff; *dharila*—left.

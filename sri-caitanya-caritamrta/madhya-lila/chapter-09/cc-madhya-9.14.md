@@ -1,9 +1,9 @@
 ### CC Madhya 9.14
 
-> এই শ্লোক পথে পড়ি’ করিলা প্রয়াণ ।
+> এই শ্লোক পথে পড়ি’ করিলা প্রয়াণ ।\
 > গৌতমী-গঙ্গায় যাই’ কৈল গঙ্গাস্নান ॥১৪॥
 
-> ei śloka pathe paḍi' karilā prayāṇa
+> ei śloka pathe paḍi' karilā prayāṇa\
 > gautamī-gaṅgāya yāi' kaila gaṅgā-snāna
 
 *ei śloka*—this Sanskrit verse; *pathe*—on the way; *paḍi'*—reciting; *karilā*—did; *prayāṇa*—going; *gautamī-gaṅgāya*—to the bank of the Gautamī-gaṅgā; *yāi'*—going; *kaila*—did; *gaṅgā-snāna*—bathing in the Ganges.

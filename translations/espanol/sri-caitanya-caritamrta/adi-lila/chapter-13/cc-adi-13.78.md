@@ -1,9 +1,9 @@
 ### CC Adi 13.78
 
-> অতএব প্রভু তাঁরে বলে, ‘বড় ভাই’ ।
+> অতএব প্রভু তাঁরে বলে, ‘বড় ভাই’ ।\
 > কৃষ্ণ, বলরাম দুই — চৈতন্য, নিতাই ॥৭৮॥
 
-> ataeva prabhu tāṅre bale, 'baḍa bhāi'
+> ataeva prabhu tāṅre bale, 'baḍa bhāi'\
 > kṛṣṇa, balarāma dui--caitanya, nitāi
 
 *ataeva*—por lo tanto; *prabhu*—el Señor Caitanya; *tāṅre*—a Viśvarūpa; *bale*—dice; *baḍa bhāi*—hermano mayor; *kṛṣṇa*—el Señor Kṛṣṇa; *balarāma*—y Baladeva; *dui*—dos; *caitanya*—el Señor Caitanya Mahāprabhu; *nitāi*—y el Señor Nityānanda Prabhu.

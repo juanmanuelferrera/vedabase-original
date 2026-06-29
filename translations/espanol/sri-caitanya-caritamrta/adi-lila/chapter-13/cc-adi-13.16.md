@@ -1,9 +1,9 @@
 ### CC Adi 13.16
 
-> প্রভুর যে শেষলীলা স্বরূপ-দামোদর ।
+> প্রভুর যে শেষলীলা স্বরূপ-দামোদর ।\
 > সূত্র করি’ গ্রন্থিলেন গ্রন্থের ভিতর ॥১৬॥
 
-> prabhura ye śeṣa-līlā svarūpa-dāmodara
+> prabhura ye śeṣa-līlā svarūpa-dāmodara\
 > sūtra kari' granthilena granthera bhitara
 
 *prabhura*—del Señor; *ye*—cualesquiera; *śeṣa-līlā*—pasatiempos finales; *svarūpa-dāmodara*—de nombre Svarūpa Dāmodara; *sūtra kari'*—en forma de notas; *granthilena*—registró; *granthera*—de un libro; *bhitara*—dentro.

@@ -1,11 +1,11 @@
 ### SB 8.10.54
 
-> ततः सुपर्णांसकृताङ्घ्रिपल्लवः पिशङ्गवासा नवकञ्जलोचनः
+> ततः सुपर्णांसकृताङ्घ्रिपल्लवः पिशङ्गवासा नवकञ्जलोचनः\
 > अदृश्यताष्टायुधबाहुरुल्लसच्छ्रीकौस्तुभानर्घ्यकिरीटकुण्डलः ॥५४॥
 
-> tataḥ suparṇāṁsa-kṛtāṅghri-pallavaḥ
-> piśaṅga-vāsā nava-kañja-locanaḥ
-> adṛśyatāṣṭāyudha-bāhur ullasac-
+> tataḥ suparṇāṁsa-kṛtāṅghri-pallavaḥ\
+> piśaṅga-vāsā nava-kañja-locanaḥ\
+> adṛśyatāṣṭāyudha-bāhur ullasac-\
 > chrī-kaustubhānarghya-kirīṭa-kuṇḍalaḥ
 
 *tasmin praviṣṭe*—con la entrada de la Suprema Personalidad de Dios; *asura*—de los demonios; *kūṭa-karma-jā*—debido a las actividades mágicas, ilusorias; *māyā*—las manifestaciones falsas; *vineśuḥ*—fueron dominadas inmediatamente; *mahinā*—por el poder superior; *mahīyasaḥ*—de la Suprema Personalidad de Dios, que es más grande que el más grande; *svapnaḥ*—sueños; *yathā*—como; *hi*—en verdad; *pratibodhe*—al despertar; *āgate*—ha llegado; *hari-smṛtiḥ*—recordar a la Suprema Personalidad de Dios; *sarva-vipat*—todo tipo de situaciones peligrosas; *vimokṣaṇam*—conquista de inmediato.

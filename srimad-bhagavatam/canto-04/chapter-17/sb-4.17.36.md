@@ -1,11 +1,11 @@
 ### SB 4.17.36
 
-> नूनं जनैरीहितमीश्वराणामस्मद्विधैस्तद्गुणसर्गमायया ।
+> नूनं जनैरीहितमीश्वराणामस्मद्विधैस्तद्गुणसर्गमायया ।\
 > न ज्ञायते मोहितचित्तवर्त्मभिस्तेभ्यो नमो वीरयशस्करेभ्यः ॥३६॥
 
-> nūnaṁ janair īhitam īśvarāṇām
-> asmad-vidhais tad-guṇa-sarga-māyayā
-> na jñāyate mohita-citta-vartmabhis
+> nūnaṁ janair īhitam īśvarāṇām\
+> asmad-vidhais tad-guṇa-sarga-māyayā\
+> na jñāyate mohita-citta-vartmabhis\
 > tebhyo namo vīra-yaśas-karebhyaḥ
 
 *nūnam*—surely; *janaiḥ*—by the people in general; *īhitam*—activities; *īśvarāṇām*—of the controllers; *asmat-vidhaiḥ*—like me; *tat*—of the Personality of Godhead; *guṇa*—of the modes of material nature; *sarga*—which brings forth creation; *māyayā*—by Your energy; *na*—never; *jñāyate*—are understood; *mohita*—bewildered; *citta*—whose minds; *vartmabhiḥ*—way; *tebhyaḥ*—unto them; *namaḥ*—obeisances; *vīra-yaśaḥ-karebhyaḥ*—who bring renown to heroes themselves.

@@ -1,9 +1,9 @@
 ### CC Adi 10.113
 
-> রামদাস, কবিচন্দ্র, শ্রীগোপালদাস ।
+> রামদাস, কবিচন্দ্র, শ্রীগোপালদাস ।\
 > ভাগবতাচার্য, ঠাকুর সারঙ্গদাস ॥১১৩॥
 
-> rāmadāsa, kavicandra, śrī-gopāladāsa
+> rāmadāsa, kavicandra, śrī-gopāladāsa\
 > bhāgavatācārya, ṭhākura sāraṅgadāsa
 
 *rāmadāsa*—of the name Rāmadāsa; *kavicandra*—of the name Kavicandra; *śrī gopāla-dāsa*—of the name Śrī Gopāla dāsa; *bhāgavatācārya*—of the name Bhāgavatācārya; *ṭhākura sāraṅga-dāsa*—of the name Ṭhākura Sāraṅga dāsa.

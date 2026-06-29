@@ -1,9 +1,9 @@
 ### CC Adi 3.96
 
-> প্রকটিয়া দেখে আচার্য সকল সংসার ।
+> প্রকটিয়া দেখে আচার্য সকল সংসার ।\
 > কৃষ্ণভক্তিগন্ধহীন বিষয়-ব্যবহার ॥৯৬॥
 
-> prakaṭiyā dekhe ācārya sakala saṁsāra
+> prakaṭiyā dekhe ācārya sakala saṁsāra\
 > kṛṣṇa-bhakti gandha-hīna viṣaya-vyavahāra
 
 *prakaṭiyā*—manifesting; *dekhe*—He saw; *ācārya*—Advaita Ācārya; *sakala*—all; *saṁsāra*—material existence; *kṛṣṇa-bhakti*—of devotion to Lord Kṛṣṇa; *gandha-hīna*—without a trace; *viṣaya*—of the sense objects; *vyavahāra*—affairs.

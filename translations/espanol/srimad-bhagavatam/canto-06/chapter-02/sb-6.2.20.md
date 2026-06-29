@@ -1,13 +1,13 @@
 ### SB 6.2.20
 
-> श्रीशुक उवाच
-> त एवं सुविनिर्णीय धर्मं भागवतं नृप
+> श्रीशुक उवाच\
+> त एवं सुविनिर्णीय धर्मं भागवतं नृप\
 > तं याम्यपाशान्निर्मुच्य विप्रं मृत्योरमूमुचन ॥२०॥
 
-> śrī-śuka uvāca
-> ta evaṁ suvinirṇīya
-> dharmaṁ bhāgavataṁ nṛpa
-> taṁ yāmya-pāśān nirmucya
+> śrī-śuka uvāca\
+> ta evaṁ suvinirṇīya\
+> dharmaṁ bhāgavataṁ nṛpa\
+> taṁ yāmya-pāśān nirmucya\
 > vipraṁ mṛtyor amūmucan
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *te*—ellos (los mensajeros del Señor Viṣṇu); *evam*—así; *su-vinirṇīya*—demostrar perfectamente; *dharmam*—religión verdadera; *bhāgavatam*—en función del servicio devocional; *nṛpa*—¡oh, rey!; *tam*—a él (Ajāmila); *yāmya-pāśāt*—del cautiverio de los enviados de Yamarāja; *nirmucya*—liberar; *vipram*—al *brāhmaṇa*; *mṛtyoḥ*—de la muerte; *amūmucan*—rescataron.

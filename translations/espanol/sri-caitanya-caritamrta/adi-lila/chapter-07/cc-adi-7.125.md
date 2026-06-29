@@ -1,9 +1,9 @@
 ### CC Adi 7.125
 
-> তথাপি অচিন্ত্যশক্ত্যে হয় অবিকারী ।
+> তথাপি অচিন্ত্যশক্ত্যে হয় অবিকারী ।\
 > প্রাকৃত চিন্তামণি তাহে দৃষ্টান্ত যে ধরি ॥১২৫॥
 
-> tathāpi acintya-śaktye haya avikārī
+> tathāpi acintya-śaktye haya avikārī\
 > prākṛta cintāmaṇi tāhe dṛṣṭānta ye dhari
 
 *tathāpi*—no obstante; *acintya-śaktye*—por la potencia inconcebible; *haya*—permanece; *avikārī*—sin cambio; *prākṛta*—material; *cintāmaṇi*—piedra de toque; *tāhe*—a ese respecto; *dṛṣṭānta*—ejemplo; *ye*—que; *dhari*—aceptamos.

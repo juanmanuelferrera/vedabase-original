@@ -1,11 +1,11 @@
 ### SB 4.17.14
 
-> प्रवेपमाना धरणी निशाम्योदायुधं च तम् ।
+> प्रवेपमाना धरणी निशाम्योदायुधं च तम् ।\
 > गौः सत्यपाद्रवद्भीता मृगीव मृगयुद्रुता ॥१४॥
 
-> pravepamānā dharaṇī
-> niśāmyodāyudhaṁ ca tam
-> gauḥ saty apādravad bhītā
+> pravepamānā dharaṇī\
+> niśāmyodāyudhaṁ ca tam\
+> gauḥ saty apādravad bhītā\
 > mṛgīva mṛgayu-drutā
 
 *pravepamānā*—trembling; *dharaṇī*—the earth; *niśāmya*—seeing; *udāyudham*—having taken his bow and arrow; *ca*—also; *tam*—the King; *gauḥ*—a cow; *satī*—becoming; *apādravat*—began to flee; *bhītā*—very much afraid; *mṛgī iva*—like a deer; *mṛgayu*—by a hunter; *drutā*—being followed.

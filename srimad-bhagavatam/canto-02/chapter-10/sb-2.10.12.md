@@ -1,11 +1,11 @@
 ### SB 2.10.12
 
-> द्रव्यं कर्म च कालश्च स्वभावो जीव एव च ।
+> द्रव्यं कर्म च कालश्च स्वभावो जीव एव च ।\
 > यदनुग्रहतः सन्ति न सन्ति यदुपेक्षया ॥१२॥
 
-> dravyaṁ karma ca kālaś ca
-> svabhāvo jīva eva ca
-> yad-anugrahataḥ santi
+> dravyaṁ karma ca kālaś ca\
+> svabhāvo jīva eva ca\
+> yad-anugrahataḥ santi\
 > na santi yad-upekṣayā
 
 *dravyam*—physical elements; *karma*—action; *ca*—and; *kālaḥ*—time; *ca*—also; *sva-bhāvaḥ jīvaḥ*—the living entities; *eva*—certainly; *ca*—also; *yat*—whose; *anugrahataḥ*—by the mercy of; *santi*—exist; *na*—does not; *santi*—exist; *yat-upekṣayā*—by negligence.

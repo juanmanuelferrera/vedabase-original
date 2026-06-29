@@ -1,11 +1,11 @@
 ### SB 3.7.18
 
-> अर्थाभावं विनिश्चित्य प्रतीतस्यापि नात्मनः ।
+> अर्थाभावं विनिश्चित्य प्रतीतस्यापि नात्मनः ।\
 > तां चापि युष्मच्चरण सेवयाहं पराणुदे ॥१८॥
 
-> arthābhāvaṁ viniścitya
-> pratītasyāpi nātmanaḥ
-> tāṁ cāpi yuṣmac-caraṇa-
+> arthābhāvaṁ viniścitya\
+> pratītasyāpi nātmanaḥ\
+> tāṁ cāpi yuṣmac-caraṇa-\
 > sevayāhaṁ parāṇude
 
 *artha-abhāvam*—sin sustancia; *viniścitya*—siendo comprobado; *pratītasya*—de los valores aparentes; *api*—también; *na*—nunca; *ātmanaḥ*—del ser; *tām*—eso; *ca*—también; *api*—de esa manera; *yuṣmat*—tus; *caraṇa*—pies; *sevayā*—mediante el servicio; *aham*—yo; *parāṇude*—podré abandonar.

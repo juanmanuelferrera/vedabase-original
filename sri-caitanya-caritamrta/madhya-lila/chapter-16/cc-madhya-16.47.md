@@ -1,9 +1,9 @@
 ### CC Madhya 16.47
 
-> এইমত ভক্তগণ রহিলা চারি মাস ।
+> এইমত ভক্তগণ রহিলা চারি মাস ।\
 > প্ৰভুর সহিত করে কীর্তন-বিলাস ॥৪৭॥
 
-> ei-mata bhakta-gaṇa rahilā cāri māsa
+> ei-mata bhakta-gaṇa rahilā cāri māsa\
 > prabhura sahita kare kīrtana-vilāsa
 
 *ei-mata*—in this way; *bhakta-gaṇa*—the devotees; *rahilā*—remained; *cāri māsa*—for four months; *prabhura sahita*—with Śrī Caitanya Mahāprabhu; *kare*—performed; *kīrtana-vilāsa*—the pastimes of *saṅkīrtana.*

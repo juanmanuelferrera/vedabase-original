@@ -1,11 +1,11 @@
 ### SB 3.26.13
 
-> इन्द्रियाणि दश श्रोत्रं त्वग्दृग्रसननासिकाः ।
+> इन्द्रियाणि दश श्रोत्रं त्वग्दृग्रसननासिकाः ।\
 > वाक्करौ चरणौ मेढ्रं पायुर्दशम उच्यते ॥१३॥
 
-> indriyāṇi daśa śrotraṁ
-> tvag dṛg rasana-nāsikāḥ
-> vāk karau caraṇau meḍhraṁ
+> indriyāṇi daśa śrotraṁ\
+> tvag dṛg rasana-nāsikāḥ\
+> vāk karau caraṇau meḍhraṁ\
 > pāyur daśama ucyate
 
 *indriyāṇi*—los sentidos; *daśa*—diez; *śrotram*—el sentido del oído; *tvak*—el sentido del tacto; *dṛk*—el sentido de la vista; *rasana*—el sentido del gusto; *nāsikāḥ*—el sentido del olfato; *vāk*—el órgano del habla; *karau*—las manos; *caraṇau*—los órganos locomotores (piernas); *meḍhram*—el órgano generativo; *pāyuḥ*—el órgano de evacuación; *daśamaḥ*—el décimo; *ucyate*—recibe el nombre.

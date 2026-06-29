@@ -1,9 +1,9 @@
 ### CC Madhya 15.241
 
-> ব্রজে জ্যেঠা, খুড়া, মামা, পিসাদি গোপগণ  ।
+> ব্রজে জ্যেঠা, খুড়া, মামা, পিসাদি গোপগণ  ।\
 > সখাবৃন্দ সবার ঘরে দ্বিসন্ধ্যা-ভোজন ॥২৪১॥
 
-> vraje jyeṭhā, khuḍā, māmā, pisādi gopa-gaṇa
+> vraje jyeṭhā, khuḍā, māmā, pisādi gopa-gaṇa\
 > sakhā-vṛnda sabāra ghare dvisandhyā-bhojana
 
 *vraje*—at Vṛndāvana; *jyeṭhā*—the father's elder brothers; *khuḍā*—the father's younger brothers; *māmā*—the mother's brothers; *pisā*—the husbands of aunts; *ādi*—and so on; *gopa-gaṇa*—cowherd men; *sakhā-vṛnda*—hundreds of friends; *sabāra*—of all of them; *ghare*—in the houses; *dvi-sandhyā*—twice a day; *bho-jana*—eating.

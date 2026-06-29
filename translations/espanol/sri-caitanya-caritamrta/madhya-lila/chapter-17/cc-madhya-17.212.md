@@ -1,13 +1,13 @@
 ### CC Madhya 17.212
 
-> শ্রীরাধিকায়াঃ প্রিয়তা সুরূপতা
-> সুশীলতা নর্তনগানচাতুরী ।
-> গুণালিসম্পৎ কবিতা চ রাজতে
+> শ্রীরাধিকায়াঃ প্রিয়তা সুরূপতা\
+> সুশীলতা নর্তনগানচাতুরী ।\
+> গুণালিসম্পৎ কবিতা চ রাজতে\
 > জগন্মনোমোহন-চিত্তমোহিনী ॥২১২॥
 
-> śrī-rādhikāyāḥ priyatā surūpatā
-> suśīlatā nartana-gāna-cāturī
-> guṇāli-sampat kavitā ca rājate
+> śrī-rādhikāyāḥ priyatā surūpatā\
+> suśīlatā nartana-gāna-cāturī\
+> guṇāli-sampat kavitā ca rājate\
 > jagan-mano-mohana-citta-mohinī
 
 *śrī-rādhikāyāḥ*—de Śrīmatī Rādhārāṇī; *priyatā*—afecto; *su-rūpatā*—belleza exquisita; *su-śīlatā*—buen comportamiento; *nartana-gāna*—en el canto y la danza; *cāturī*—destreza artística; *guṇa-āli-sampat*—posesión de tales cualidades trascendentales; *kavitā*—poesía; *ca*—también; *rājate*—brillan; *jagat-manaḥ-mohana*—de Kṛṣṇa, que atrae la mente del universo entero; *citta-mohinī*—la que cautiva la mente.

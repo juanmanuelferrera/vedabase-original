@@ -1,9 +1,9 @@
 ### CC Madhya 16.278
 
-> গদাধরে ছাড়ি’ গেনু, ইঁহো দুঃখ পাইল ।
+> গদাধরে ছাড়ি’ গেনু, ইঁহো দুঃখ পাইল ।\
 > সেই হেতু বৃন্দাবন যাইতে নারিল ॥২৭৮॥
 
-> gadādhare chāḍi' genu, iṅho duḥkha pāila
+> gadādhare chāḍi' genu, iṅho duḥkha pāila\
 > sei hetu vṛndāvana yāite nārila
 
 *gadādhare chāḍi'*—leaving aside Gadādhara Paṇḍita; *genu*—I went; *iṅho*—Gadādhara Paṇḍita; *duḥkha pāila*—became unhappy; *sei hetu*—for that reason; *vṛndāvana*—to Vṛndāvana-dhāma; *yāite nārila*—I was unable to go.

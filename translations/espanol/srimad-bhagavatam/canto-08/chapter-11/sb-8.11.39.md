@@ -1,11 +1,11 @@
 ### SB 8.11.39
 
-> तां दैवीं गिरमाकर्ण्य मघवान्सुसमाहितः
+> तां दैवीं गिरमाकर्ण्य मघवान्सुसमाहितः\
 > ध्यायन्फेनमथापश्यदुपायमुभयात्मकम ॥३९॥
 
-> tāṁ daivīṁ giram ākarṇya
-> maghavān susamāhitaḥ
-> dhyāyan phenam athāpaśyad
+> tāṁ daivīṁ giram ākarṇya\
+> maghavān susamāhitaḥ\
+> dhyāyan phenam athāpaśyad\
 > upāyam ubhayātmakam
 
 *tām*—esa; *daivīm*—tétrica; *giram*—voz; *ākarṇya*—tras escuchar; *maghavān*—el Señor Indra; *su-samāhitaḥ*—prestando mucha atención; *dhyāyan*—meditando; *phenam*—el aspecto de la espuma; *atha*—a continuación; *apaśyat*—él vio; *upāyam*—el medio; *ubhaya-ātmakam*—seca y húmeda a la vez.

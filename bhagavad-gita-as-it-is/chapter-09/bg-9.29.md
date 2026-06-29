@@ -1,11 +1,11 @@
 ### Bg 9.29
 
-> समोऽहं सर्वभूतेषु न मे द्वेष्योऽस्ति न प्रियः ।
+> समोऽहं सर्वभूतेषु न मे द्वेष्योऽस्ति न प्रियः ।\
 > ये भजन्ति तु मां भक्त्या मयि ते तेषु चाप्यहम् ॥२९॥
 
-> samo 'haṁ sarva-bhūteṣu
-> na me dveṣyo 'sti na priyaḥ
-> ye bhajanti tu māṁ bhaktyā
+> samo 'haṁ sarva-bhūteṣu\
+> na me dveṣyo 'sti na priyaḥ\
+> ye bhajanti tu māṁ bhaktyā\
 > mayi te teṣu cāpy aham
 
 *samaḥ*—equally disposed; *aham*—I; *sarva-bhūteṣu*—to all living entities; *na*—no one; *me*—Mine; *dveṣyaḥ*—hateful; *asti*—is; *na*—nor; *priyaḥ*—dear; *ye*—those; *bhajanti*—render transcendental service; *tu*—yet; *mām*—unto Me; *bhaktyā*—in devotion; *mayi*—unto Me; *te*—such persons; *teṣu*—in them; *ca*—also; *api*—certainly; *aham*—I.

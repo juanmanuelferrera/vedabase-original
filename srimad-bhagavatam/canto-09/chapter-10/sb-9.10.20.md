@@ -1,13 +1,13 @@
 ### SB 9.10.20
 
-> तेऽनीकपा रघुपतेरभिपत्य सर्वे
-> द्वन्द्वं वरूथमिभपत्तिरथाश्वयोधैः
-> जघ्नुर्द्रुमैर्गिरिगदेषुभिरङ्गदाद्याः
+> तेऽनीकपा रघुपतेरभिपत्य सर्वे\
+> द्वन्द्वं वरूथमिभपत्तिरथाश्वयोधैः\
+> जघ्नुर्द्रुमैर्गिरिगदेषुभिरङ्गदाद्याः\
 > सीताभिमर्षहतमङ्गलरावणेशान ॥२०॥
 
-> te 'nīkapā raghupater abhipatya sarve
-> dvandvaṁ varūtham ibha-patti-rathāśva-yodhaiḥ
-> jaghnur drumair giri-gadeṣubhir aṅgadādyāḥ
+> te 'nīkapā raghupater abhipatya sarve\
+> dvandvaṁ varūtham ibha-patti-rathāśva-yodhaiḥ\
+> jaghnur drumair giri-gadeṣubhir aṅgadādyāḥ\
 > sītābhimarṣa-hata-maṅgala-rāvaṇeśān
 
 *te*—all of them; *anīka-pāḥ*—the commanders of the soldiers; *raghupateḥ*—of Lord Śrī Rāmacandra; *abhipatya*—chasing the enemy; *sarve*—all of them; *dvandvam*—fighting; *varūtham*—the soldiers of Rāvaṇa; *ibha*—by elephants; *patti*—by infantry; *ratha*—by chariots; *aśva*—by horses; *yodhaiḥ*—by such warriors; *jaghnuḥ*—killed them; *drumaiḥ*—by throwing big trees; *giri*—by peaks of mountains; *gadā*—by clubs; *iṣubhiḥ*—by arrows; *aṅgada-ādyāḥ*—all the soldiers of Lord Rāmacandra, headed by Aṅgada and others; *sītā*—of mother Sītā; *abhimarṣa*—by the anger; *hata*—had been condemned; *maṅgala*—whose auspiciousness; *rāvaṇa-īśān*—the followers or dependents of Rāvaṇa.

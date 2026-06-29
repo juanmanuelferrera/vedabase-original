@@ -1,13 +1,13 @@
 ### SB 7.9.22
 
-> स त्वं हि नित्यविजितात्मगुणः स्वधाम्ना
-> कालो वशीकृतविसृज्यविसर्गशक्तिः
-> चक्रे विसृष्टमजयेश्वर षोडशारे
+> स त्वं हि नित्यविजितात्मगुणः स्वधाम्ना\
+> कालो वशीकृतविसृज्यविसर्गशक्तिः\
+> चक्रे विसृष्टमजयेश्वर षोडशारे\
 > निष्पीड्यमानमुपकर्ष विभो प्रपन्नम ॥२२॥
 
-> sa tvaṁ hi nitya-vijitātma-guṇaḥ sva-dhāmnā
-> kālo vaśī-kṛta-visṛjya-visarga-śaktiḥ
-> cakre visṛṣṭam ajayeśvara ṣoḍaśāre
+> sa tvaṁ hi nitya-vijitātma-guṇaḥ sva-dhāmnā\
+> kālo vaśī-kṛta-visṛjya-visarga-śaktiḥ\
+> cakre visṛṣṭam ajayeśvara ṣoḍaśāre\
 > niṣpīḍyamānam upakarṣa vibho prapannam
 
 *saḥ*—that one (the supreme independent person who, through His external energy, has created the material mind, which is the cause of all suffering in this material world); *tvam*—You (are); *hi*—indeed; *nitya*—eternally; *vijita-ātma*—conquered; *guṇaḥ*—whose property of the intelligence; *sva-dhāmnā*—by Your personal spiritual energy; *kālaḥ*—the time element (which creates and annihilates); *vaśī-kṛta*—brought under Your control; *visṛjya*—by which all effects; *visarga*—and causes; *śaktiḥ*—the energy; *cakre*—in the wheel of time (the repetition of birth and death); *visṛṣṭam*—being thrown; *ajayā*—by Your external energy, the mode of ignorance; *īśvara*—O supreme controller; *ṣoḍaśa-are*—with sixteen spokes (the five material elements, the ten senses, and the leader of the senses, namely the mind); *niṣpīḍyamānam*—being crushed (under that wheel); *upakarṣa*—kindly take me (to the shelter of Your lotus feet); *vibho*—O supreme great; *prapannam*—who am fully surrendered unto You.

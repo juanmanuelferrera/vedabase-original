@@ -1,11 +1,11 @@
 ### SB 8.12.40
 
-> सेयं गुणमयी माया न त्वामभिभविष्यति
+> सेयं गुणमयी माया न त्वामभिभविष्यति\
 > मया समेता कालेन कालरूपेण भागशः ॥४०॥
 
-> seyaṁ guṇa-mayī māyā
-> na tvām abhibhaviṣyati
-> mayā sametā kālena
+> seyaṁ guṇa-mayī māyā\
+> na tvām abhibhaviṣyati\
+> mayā sametā kālena\
 > kāla-rūpeṇa bhāgaśaḥ
 
 *sā*—esa insuperable; *iyam*—esta; *guṇa-mayī*—compuesta de las tres modalidades de la naturaleza material; *māyā*—energía ilusoria; *na*—no; *tvām*—a ti; *abhibhaviṣyati*—podrá confundir en el futuro; *mayā*—conmigo; *sametā*—unido; *kālena*—tiempo eterno; *kāla-rūpeṇa*—en la forma del tiempo; *bhāgaśaḥ*—con sus diversas partes.

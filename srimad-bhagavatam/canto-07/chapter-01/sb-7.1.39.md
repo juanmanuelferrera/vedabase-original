@@ -1,11 +1,11 @@
 ### SB 7.1.39
 
-> जज्ञआते तौ दितेः पुत्रौ दैत्यदानववन्दितौ
+> जज्ञआते तौ दितेः पुत्रौ दैत्यदानववन्दितौ\
 > हिरण्यकशिपुर्ज्येष्ठो हिरण्याक्षोऽनुजस्ततः ॥३९॥
 
-> evaṁ śaptau sva-bhavanāt
-> patantau tau kṛpālubhiḥ
-> proktau punar janmabhir vāṁ
+> evaṁ śaptau sva-bhavanāt\
+> patantau tau kṛpālubhiḥ\
+> proktau punar janmabhir vāṁ\
 > tribhir lokāya kalpatām
 
 *evam*—thus; *śaptau*—being cursed; *sva-bhavanāt*—from their abode, Vaikuṇṭha; *patantau*—falling down; *tau*—those two (Jaya and Vijaya); *kṛpālubhiḥ*—by the merciful sages (Sanandana, etc.); *proktau*—addressed; *punaḥ*—again; *janmabhiḥ*—with births; *vām*—your; *tribhiḥ*—three; *lokāya*—for the position; *kalpatām*—let it be possible.

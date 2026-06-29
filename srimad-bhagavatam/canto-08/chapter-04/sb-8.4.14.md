@@ -1,11 +1,11 @@
 ### SB 8.4.14
 
-> एतन्महाराज तवेरितो मया कृष्णानुभावो गजराजमोक्षणम
+> एतन्महाराज तवेरितो मया कृष्णानुभावो गजराजमोक्षणम\
 > स्वर्ग्यं यशस्यं कलिकल्मषापहं दुःस्वप्ननाशं कुरुवर्य शृण्वताम ॥१४॥
 
-> etan mahā-rāja taverito mayā
-> kṛṣṇānubhāvo gaja-rāja-mokṣaṇam
-> svargyaṁ yaśasyaṁ kali-kalmaṣāpahaṁ
+> etan mahā-rāja taverito mayā\
+> kṛṣṇānubhāvo gaja-rāja-mokṣaṇam\
+> svargyaṁ yaśasyaṁ kali-kalmaṣāpahaṁ\
 > duḥsvapna-nāśaṁ kuru-varya śṛṇvatām
 
 *etat*—this; *mahā-rāja*—O King Parīkṣit; *tava*—unto you; *īritaḥ*—described; *mayā*—by me; *kṛṣṇa-anubhāvaḥ*—the unlimited potency of Lord Kṛṣṇa (by which He can deliver a devotee); *gaja-rāja-mokṣaṇam*—delivering the King of the elephants; *svargyam*—giving elevation to higher planetary systems; *yaśasyam*—increasing one's reputation as a devotee; *kali-kalmaṣa-apaham*—diminishing the contamination of the Kali-yuga; *duḥsvapna-nāśam*—counteracting the causes of bad dreams; *kuru-varya*—O best among the Kurus; *śṛṇvatām*—of persons who hear this narration.

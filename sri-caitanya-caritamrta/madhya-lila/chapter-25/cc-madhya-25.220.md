@@ -1,9 +1,9 @@
 ### CC Madhya 25.220
 
-> মহাপ্রভুর উপর লোকের প্রণতি দেখিয়া ।
+> মহাপ্রভুর উপর লোকের প্রণতি দেখিয়া ।\
 > সুখী হৈলা লোকমুখে কীর্তন শুনিয়া ॥২২০॥
 
-> mahāprabhura upara lokera praṇati dekhiyā
+> mahāprabhura upara lokera praṇati dekhiyā\
 > sukhī hailā loka-mukhe kīrtana śuniyā
 
 *mahāprabhura*—Śrī Caitanya Mahāprabhu; *upara*—upon; *lokera*—of the people in general; *praṇati dekhiyā*—seeing the surrender; *sukhī hailā*—became very happy; *loka-mukhe*—from the general public; *kīrtana śuniyā*—hearing the description.

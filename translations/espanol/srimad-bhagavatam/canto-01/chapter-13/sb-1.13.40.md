@@ -1,11 +1,11 @@
 ### SB 1.13.40
 
-> कर्णधार इवापारे भगवान्पारदर्शकः ।
+> कर्णधार इवापारे भगवान्पारदर्शकः ।\
 > अथाबभाषे भगवान्नारदो मुनिसत्तमः ॥४०॥
 
-> karṇadhāra ivāpāre
-> bhagavān pāra-darśakaḥ
-> athābabhāṣe bhagavān
+> karṇadhāra ivāpāre\
+> bhagavān pāra-darśakaḥ\
+> athābabhāṣe bhagavān\
 > nārado muni-sattamaḥ
 
 *karṇa-dhāraḥ*—capitán de barco; *iva*—como; *apāre*—en los extensos océanos; *bhagavān*—representante del Señor; *pāra-darśakaḥ*—alguien que puede dar indicaciones de cómo llegar al otro lado; *atha*—así pues; *ābabhāṣe*—comenzó a decir; *bhagavān*—la personalidad divina; *nāradaḥ*—el gran sabio Nārada; *muni-sat-tamaḥ*—el más grande entre los filósofos devotos.

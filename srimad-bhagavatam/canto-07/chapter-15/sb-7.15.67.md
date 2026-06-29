@@ -1,11 +1,11 @@
 ### SB 7.15.67
 
-> एतैरन्यैश्च वेदोक्तैर्वर्तमानः स्वकर्मभिः
+> एतैरन्यैश्च वेदोक्तैर्वर्तमानः स्वकर्मभिः\
 > गृहेऽप्यस्य गतिं यायाद्राजंस्तद्भक्तिभाङ्नरः ॥६७॥
 
-> etair anyaiś ca vedoktair
-> vartamānaḥ sva-karmabhiḥ
-> gṛhe 'py asya gatiṁ yāyād
+> etair anyaiś ca vedoktair\
+> vartamānaḥ sva-karmabhiḥ\
+> gṛhe 'py asya gatiṁ yāyād\
 > rājaṁs tad-bhakti-bhāṅ naraḥ
 
 *etaiḥ*—by these ways; *anyaiḥ*—by other ways; *ca*—and; *veda-uktaiḥ*—as directed in the Vedic literatures; *vartamānaḥ*—abiding; *sva-karmabhiḥ*—by one's occupational duties; *gṛhe api*—even at home; *asya*—of Lord Kṛṣṇa; *gatim*—destination; *yāyāt*—can reach; *rājan*—O King; *tat-bhakti-bhāk*—who renders devotional service unto the Supreme Personality of Godhead; *naraḥ*—any person.

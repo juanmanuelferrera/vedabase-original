@@ -1,9 +1,9 @@
 ### CC Antya 13.91
 
-> পথে তারে মিলিলা বিশ্বাস-রামদাস ।
+> পথে তারে মিলিলা বিশ্বাস-রামদাস ।\
 > বিশ্বাসখানার কায়স্থ তেঁহো রাজার বিশ্বাস ॥৯১॥
 
-> pathe tāre mililā viśvāsa-rāmadāsa
+> pathe tāre mililā viśvāsa-rāmadāsa\
 > viśvāsa-khānāra kāyastha teṅho rājāra viśvāsa
 
 *pathe*—en el camino; *tāre*—a él; *mililā*—encontró; *viśvāsa-rāmadāsa*—Rāmadāsa Viśvāsa; *viśvāsa-khānāra*—del departamento de contabilidad del gobierno; *kāyastha*—perteneciente a la clase *kāyastha*; *teṅho*—él; *rājāra*—del rey; *viśvāsa*—secretario.

@@ -1,13 +1,13 @@
 ### SB 1.12.19
 
-> ब्राह्मणा ऊचुः
-> पार्थ प्रजाविता साक्षादिक्ष्वाकुरिव मानवः ।
+> ब्राह्मणा ऊचुः\
+> पार्थ प्रजाविता साक्षादिक्ष्वाकुरिव मानवः ।\
 > ब्रह्मण्यः सत्यसन्धश्च रामो दाशरथिर्यथा ॥१९॥
 
-> brāhmaṇā ūcuḥ
-> pārtha prajāvitā sākṣād
-> ikṣvākur iva mānavaḥ
-> brahmaṇyaḥ satya-sandhaś ca
+> brāhmaṇā ūcuḥ\
+> pārtha prajāvitā sākṣād\
+> ikṣvākur iva mānavaḥ\
+> brahmaṇyaḥ satya-sandhaś ca\
 > rāmo dāśarathir yathā
 
 *brāhmaṇāḥ*—los buenos *brāhmaṇas*; *ūcuḥ*—dijeron; *pārtha*—¡oh, hijo de Pṛthā (Kuntī)!; *prajā*—aquellos que han nacido; *avitā*—sustentador; *sākṣāt*—directamente; *ikṣvākuḥ iva*—tal como el rey Ikṣvāku; *mānavaḥ*—hijo de Manu; *brahmaṇyaḥ*—seguidores de los *brāhmaṇas* y respetuosos con ellos; *satya-sandhaḥ*—fiel a su promesa; *ca*—también; *rāmaḥ*—Rāma, la Personalidad de Dios; *dāśarathiḥ*—el hijo de Mahārāja Daśaratha; *yathā*—como Él.

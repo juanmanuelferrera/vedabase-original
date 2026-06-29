@@ -1,13 +1,13 @@
 ### CC Madhya 14.158
 
-> এবং শশঙ্কাংশুবিরাজিতা নিশাঃ
-> স সত্যকামোঽনুরতাবলাগণঃ ।
-> সিষেব আত্মন্যবরুদ্ধ-সৌরতঃ
+> এবং শশঙ্কাংশুবিরাজিতা নিশাঃ\
+> স সত্যকামোঽনুরতাবলাগণঃ ।\
+> সিষেব আত্মন্যবরুদ্ধ-সৌরতঃ\
 > সর্বাঃ শরৎকাব্যকথারসাশ্রয়াঃ ॥১৫৮॥
 
-> evaṁ śaśaṅkāṁśu-virājitā niśāḥ
-> sa satya-kāmo 'nuratābalā-gaṇaḥ
-> siṣeva ātmany avaruddha-saurataḥ
+> evaṁ śaśaṅkāṁśu-virājitā niśāḥ\
+> sa satya-kāmo 'nuratābalā-gaṇaḥ\
+> siṣeva ātmany avaruddha-saurataḥ\
 > sarvāḥ śarat-kāvya-kathā-rasāśrayāḥ
 
 *evam*—thus; *śaśaṅka-aṁśu*—with rays of moonshine; *virājitāḥ*—beautifully existing; *niśāḥ*—nights; *saḥ*—He; *satya-kāmaḥ*—the Absolute Truth; *anurata*—to whom are attracted; *abalā-gaṇaḥ*—women; *siṣeva*—performed; *ātmani*—in His own self; *avaruddha-saurataḥ*—His transcendental erotic love was checked; *sarvāḥ*—all; *śarat*—in autumn; *kāvya*—poetic; *kathā*—words; *rasa-āśrayāḥ*—full of all transcendental mellows.

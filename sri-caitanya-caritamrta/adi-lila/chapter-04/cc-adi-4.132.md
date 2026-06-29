@@ -1,9 +1,9 @@
 ### CC Adi 4.132
 
-> সেই প্রেমার শ্রীরাধিকা পরম ‘আশ্রয়’ ।
+> সেই প্রেমার শ্রীরাধিকা পরম ‘আশ্রয়’ ।\
 > সেই প্রেমার আমি হই কেবল ‘বিষয়’ ॥১৩২॥
 
-> sei premāra śrī-rādhikā parama 'āśraya'
+> sei premāra śrī-rādhikā parama 'āśraya'\
 > sei premāra āmi ha-i kevala 'viṣaya'
 
 *sei*—that; *premāra*—of the love; *śrī-rādhikā*—Śrīmatī Rādhārāṇī; *parama*—highest; *āśraya*—abode; *sei*—that; *premāra*—of the love; *āmi*—I; *ha-i*—am; *kevala*—only; *viṣaya*—object.

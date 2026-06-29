@@ -1,9 +1,9 @@
 ### CC Antya 4.83
 
-> এত সব কর্ম আমি যে-দেহে করিমু ।
+> এত সব কর্ম আমি যে-দেহে করিমু ।\
 > তাহা ছাড়িতে চাহ তুমি, কেমনে সহিমু ?” ॥ ৮৩ ॥
 
-> eta saba karma āmi ye-dehe karimu
+> eta saba karma āmi ye-dehe karimu\
 > tāhā chāḍite cāha tumi, kemane sahimu?"
 
 *eta saba*—all this; *karma*—work; *āmi*—I; *ye-dehe*—by which body; *karimu*—will do; *tāhā*—that; *chāḍite*—to give up; *cāha tumi*—you want; *kemane*—how; *sahimu*—shall I tolerate.

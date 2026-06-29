@@ -1,9 +1,9 @@
 ### CC Madhya 7.79
 
-> কাঞ্চন-সদৃশ দেহ, অরুণ বসন ৷
+> কাঞ্চন-সদৃশ দেহ, অরুণ বসন ৷\
 > পুলকাশ্রু-কম্প-স্বেদ তাহাতে ভূষণ ৷৷ ৭৯ ৷৷ ॥৭৯॥
 
-> kāñcana-sadṛśa deha, aruṇa vasana
+> kāñcana-sadṛśa deha, aruṇa vasana\
 > pulakāśru-kampa-sveda tāhāte bhūṣaṇa
 
 *kāñcana-sadṛśa*—como oro fundido; *deha*—un cuerpo; *aruṇa*—azafranadas; *vasana*—vestiduras; *pulaka-aśru*—erizamiento del vello y llanto; *kampa*—temblor; *sveda*—transpiración; *tāhāte*—en ello; *bhūṣaṇa*—los ornamentos.

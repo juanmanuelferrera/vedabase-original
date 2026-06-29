@@ -1,11 +1,11 @@
 ### Bg 5.19
 
-> इहैव तैर्जितः सर्गो येषां साम्ये स्थितं मनः ।
+> इहैव तैर्जितः सर्गो येषां साम्ये स्थितं मनः ।\
 > निर्दोषं हि समं ब्रह्म तस्माद् ब्रह्मणि ते स्थिताः ॥१९॥
 
-> ihaiva tair jitaḥ sargo
-> yeṣāṁ sāmye sthitaṁ manaḥ
-> nirdoṣaṁ hi samaṁ brahma
+> ihaiva tair jitaḥ sargo\
+> yeṣāṁ sāmye sthitaṁ manaḥ\
+> nirdoṣaṁ hi samaṁ brahma\
 > tasmād brahmaṇi te sthitāḥ
 
 *iha*—in this life; *eva*—certainly; *taiḥ*—by them; *jitaḥ*—conquered; *sargaḥ*—birth and death; *yeṣām*—of those; *sāmye*—in equanimity; *sthitam*—so situated; *manaḥ*—mind; *nirdoṣam*—flawless; *hi*—certainly; *samam*—in equanimity; *brahma*—the Supreme; *tasmāt*—therefore; *brahmaṇi*—in the Supreme; *te*—they; *sthitāḥ*—are situated.

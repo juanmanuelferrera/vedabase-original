@@ -1,13 +1,13 @@
 ### SB 4.14.14
 
-> मुनय ऊचुः
-> नृपवर्य निबोधैतद्यत्ते विज्ञापयाम भोः ।
+> मुनय ऊचुः\
+> नृपवर्य निबोधैतद्यत्ते विज्ञापयाम भोः ।\
 > आयुःश्रीबलकीर्तीनां तव तात विवर्धनम् ॥१४॥
 
-> munaya ūcuḥ
-> nṛpa-varya nibodhaitad
-> yat te vijñāpayāma bhoḥ
-> āyuḥ-śrī-bala-kīrtīnāṁ
+> munaya ūcuḥ\
+> nṛpa-varya nibodhaitad\
+> yat te vijñāpayāma bhoḥ\
+> āyuḥ-śrī-bala-kīrtīnāṁ\
 > tava tāta vivardhanam
 
 *munayaḥ ūcuḥ*—los grandes sabios dijeron; *nṛpa-varya*—¡oh, el mejor de los reyes!; *nibodha*—ten la bondad de tratar de entender; *etat*—esto; *yat*—que; *te*—a ti; *vijñāpayāma*—vamos a instruir; *bhoḥ*—¡oh, rey!; *āyuḥ*—duración de la vida; *śrī*—opulencias; *bala*—fuerza; *kīrtīnām*—buena reputación; *tava*—tuyas; *tāta*—querido hijo; *vivardhanam*—que aumentarán.

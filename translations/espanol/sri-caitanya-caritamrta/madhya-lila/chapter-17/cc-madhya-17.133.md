@@ -1,11 +1,11 @@
 ### CC Madhya 17.133
 
-> নাম চিন্তামণিঃ কৃষ্ণশ্চৈতন্যরসবিগ্রহঃ ।
+> নাম চিন্তামণিঃ কৃষ্ণশ্চৈতন্যরসবিগ্রহঃ ।\
 > পূর্ণঃ শুদ্ধো নিত্যমুক্তোঽভিন্নত্বান্নামনামিনোঃ ॥১৩৩॥
 
-> nāma cintāmaṇiḥ kṛṣṇaś
-> caitanya-rasa-vigrahaḥ
-> pūrṇaḥ śuddho nitya-mukto
+> nāma cintāmaṇiḥ kṛṣṇaś\
+> caitanya-rasa-vigrahaḥ\
+> pūrṇaḥ śuddho nitya-mukto\
 > 'bhinnatvān nāma-nāminoḥ
 
 *nāmaḥ*—el santo nombre; *cintāmaṇiḥ*—trascendentalmente bienaventurado, concede todas las bendiciones espirituales; *kṛṣṇaḥ*—no diferente de Kṛṣṇa; *caitanya-rasa-vigrahaḥ*—la forma de todas las melosidades trascendentales; *pūrṇaḥ*—completo; *śuddhaḥ*—puro, sin contaminación material; *nitya*—eterno; *muktaḥ*—liberado; *abhinna-tvāt*—debido a no ser diferente; *nāma*—del santo nombre; *nāminoḥ*—y de la persona que posee el nombre.

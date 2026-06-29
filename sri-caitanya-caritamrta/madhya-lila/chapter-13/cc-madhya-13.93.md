@@ -1,9 +1,9 @@
 ### CC Madhya 13.93
 
-> রাজার আগে হরিচন্দন দেখে শ্রীনিবাস ।
+> রাজার আগে হরিচন্দন দেখে শ্রীনিবাস ।\
 > হস্তে তাঁরে স্পর্শি’ কহে, — হও এক-পাশ ॥৯৩॥
 
-> rājāra āge haricandana dekhe śrīnivāsa
+> rājāra āge haricandana dekhe śrīnivāsa\
 > haste tāṅre sparśi' kahe,-hao eka-pāśa
 
 *rājāra āge*—in front of the King; *haricandana*—Haricandana; *dekhe*—sees; *śrīnivāsa*—Śrīvāsa Ṭhākura; *haste*—with his hand; *tāṅre*—him; *sparśi'*—touching; *kahe*—says; *hao*—please come; *eka-pāśa*—to one side.

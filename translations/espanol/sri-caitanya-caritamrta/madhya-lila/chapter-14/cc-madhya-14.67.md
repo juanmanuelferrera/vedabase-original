@@ -1,9 +1,9 @@
 ### CC Madhya 14.67
 
-> আর ভক্তগণ চাতুর্মাস্যে যত দিন ।
+> আর ভক্তগণ চাতুর্মাস্যে যত দিন ।\
 > এক এক দিন করি’ করিল বণ্টন ॥৬৭॥
 
-> āra bhakta-gaṇa cāturmāsye yata dina
+> āra bhakta-gaṇa cāturmāsye yata dina\
 > eka eka dina kari' karila baṇṭana
 
 *āra bhakta-gaṇa*—los demás devotos; *cāturmāsye*—en los cuatro meses de la estación de lluvias; *yata dina*—todos los días; *eka eka dina kari'*—un día cada uno; *karila baṇṭana*—se repartieron.

@@ -1,11 +1,11 @@
 ### SB 3.30.7
 
-> सन्दह्यमानसर्वाङ्ग एषामुद्वहनाधिना ।
+> सन्दह्यमानसर्वाङ्ग एषामुद्वहनाधिना ।\
 > करोत्यविरतं मूढो दुरितानि दुराशयः ॥७॥
 
-> sandahyamāna-sarvāṅga
-> eṣām udvahanādhinā
-> karoty avirataṁ mūḍho
+> sandahyamāna-sarvāṅga\
+> eṣām udvahanādhinā\
+> karoty avirataṁ mūḍho\
 > duritāni durāśayaḥ
 
 *sandahyamāna*—ardiendo; *sarva*—todos; *aṅgaḥ*—sus miembros; *eṣām*—a esos miembros de la familia; *udvahana*—para mantener; *ādhinā*—con ansiedad; *karoti*—realiza; *aviratam*—siempre; *mūḍhaḥ*—el necio; *duritāni*—actividades pecaminosas; *durāśayaḥ*—malintencionado.

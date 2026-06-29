@@ -1,11 +1,11 @@
 ### SB 1.19.8
 
-> तत्रोपजग्मुर्भुवनं पुनाना महानुभावा मुनयः सशिष्याः ।
+> तत्रोपजग्मुर्भुवनं पुनाना महानुभावा मुनयः सशिष्याः ।\
 > प्रायेण तीर्थाभिगमापदेशैः स्वयं हि तीर्थानि पुनन्ति सन्तः ॥८॥
 
-> tatropajagmur bhuvanaṁ punānā
-> mahānubhāvā munayaḥ sa-śiṣyāḥ
-> prāyeṇa tīrthābhigamāpadeśaiḥ
+> tatropajagmur bhuvanaṁ punānā\
+> mahānubhāvā munayaḥ sa-śiṣyāḥ\
+> prāyeṇa tīrthābhigamāpadeśaiḥ\
 > svayaṁ hi tīrthāni punanti santaḥ
 
 *tatra*—there; *upajagmuḥ*—arrived; *bhuvanam*—the universe; *punānāḥ*—those who can sanctify; *mahā-anubhāvāḥ*—great minds; *munayaḥ*—thinkers; *sa-śiṣyāḥ*—along with their disciples; *prāyeṇa*—almost; *tīrtha*—place of pilgrimage; *abhigama*—journey; *apadeśaiḥ*—on the plea of; *svayam*—personally; *hi*—certainly; *tīrthāni*—all the places of pilgrimage; *punanti*—sanctify; *santaḥ*—sages.

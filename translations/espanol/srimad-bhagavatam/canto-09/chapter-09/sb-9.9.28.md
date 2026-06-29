@@ -1,11 +1,11 @@
 ### SB 9.9.28
 
-> देहोऽयं मानुषो राजन्पुरुषस्याखिलार्थदः
+> देहोऽयं मानुषो राजन्पुरुषस्याखिलार्थदः\
 > तस्मादस्य वधो वीर सर्वार्थवध उच्यते ॥२८॥
 
-> deho 'yaṁ mānuṣo rājan
-> puruṣasyākhilārthadaḥ
-> tasmād asya vadho vīra
+> deho 'yaṁ mānuṣo rājan\
+> puruṣasyākhilārthadaḥ\
+> tasmād asya vadho vīra\
 > sarvārtha-vadha ucyate
 
 *dehaḥ*—cuerpo; *ayam*—este; *mānuṣaḥ*—humano; *rājan*—¡oh, rey!; *puruṣasya*—del ser vivo; *akhila*—universal; *artha-daḥ*—beneficioso; *tasmāt*—por lo tanto; *asya*—del cuerpo de mi esposo; *vadhaḥ*—el matar; *vīra*—¡oh, héroe!; *sarva-artha-vadhaḥ*—matar todas las oportunidades de beneficiarse; *ucyate*—se dice.

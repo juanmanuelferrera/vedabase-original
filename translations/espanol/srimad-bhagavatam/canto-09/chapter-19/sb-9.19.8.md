@@ -1,11 +1,11 @@
 ### SB 9.19.8
 
-> तं दुर्हृदं सुहृद्रूपं कामिनं क्षणसौहृदम
+> तं दुर्हृदं सुहृद्रूपं कामिनं क्षणसौहृदम\
 > इन्द्रियाराममुत्सृज्य स्वामिनं दुःखिता ययौ ॥८॥
 
-> taṁ durhṛdaṁ suhṛd-rūpaṁ
-> kāminaṁ kṣaṇa-sauhṛdam
-> indriyārāmam utsṛjya
+> taṁ durhṛdaṁ suhṛd-rūpaṁ\
+> kāminaṁ kṣaṇa-sauhṛdam\
+> indriyārāmam utsṛjya\
 > svāminaṁ duḥkhitā yayau
 
 *tam*—a él (al macho cabrío); *durhṛdam*—de corazón cruel; *suhṛt-rūpam*—hacerse pasar por un amigo; *kāminam*—muy lujurioso; *kṣaṇa-sauhṛdam*—cuya amistad era solo momentánea; *indriya-ārāmam*—cuyo único interés era la complacencia de los sentidos, la sensualidad; *utsṛjya*—abandonando; *svāminam*—a su actual esposo, o a su antiguo protector; *duḥkhitā*—muy afligida; *yayau*—se marchó.

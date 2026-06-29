@@ -1,9 +1,9 @@
 ### CC Madhya 16.5
 
-> নীলাদ্রি ছাড়ি’ প্ৰভুর মন অন্যত্র যাইতে ।
+> নীলাদ্রি ছাড়ি’ প্ৰভুর মন অন্যত্র যাইতে ।\
 > তোমরা করহ যত্ন তাঁহারে রাখিতে ॥৫॥
 
-> nīlādri chāḍi' prabhura mana anyatra yāite
+> nīlādri chāḍi' prabhura mana anyatra yāite\
 > tomarā karaha yatna tāṅhāre rākhite
 
 *nīlādri*—Jagannātha Purī; *chāḍi'*—giving up; *prabhura*—of Śrī Caitanya Mahāprabhu; *mana*—the mind; *anyatra*—elsewhere; *yāite*—to go; *tomarā*—both of you; *karaha*—make; *yatna*—endeavor; *tāṅhāre*—Him; *rākhite*—to keep.

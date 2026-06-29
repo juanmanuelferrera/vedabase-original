@@ -1,9 +1,9 @@
 ### CC Antya 2.170
 
-> মধুর চৈতন্যলীলা — সমুদ্র-গম্ভীর ।
+> মধুর চৈতন্যলীলা — সমুদ্র-গম্ভীর ।\
 > লোকে নাহি বুঝে, বুঝে যেই ‘ভক্ত’ ‘ধীর’ ॥১৭০॥
 
-> madhura caitanya-līlā--samudra-gambhīra
+> madhura caitanya-līlā--samudra-gambhīra\
 > loke nāhi bujhe, bujhe yei 'bhakta' 'dhīra'
 
 *madhura*—dulces; *caitanya-līlā*—pasatiempos del Señor Śrī Caitanya Mahāprabhu; *samudra-gambhīra*—profundos como el océano; *loke nāhi bujhe*—la gente en general no puede comprender; *bujhe*—puede comprender; *yei*—aquel que; *bhakta*—devoto; *dhīra*—sereno.

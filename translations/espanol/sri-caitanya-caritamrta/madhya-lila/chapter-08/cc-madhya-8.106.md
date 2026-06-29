@@ -1,11 +1,11 @@
 ### CC Madhya 8.106
 
-> কংসারিরপি সংসারবাসনাবদ্ধশৃঙ্খলাম্ ৷
+> কংসারিরপি সংসারবাসনাবদ্ধশৃঙ্খলাম্ ৷\
 > রাধামাধায় হৃদয়ে তত্যাজ ব্রজসুন্দরীঃ ৷৷ ১০৬ ৷৷ ॥১০৬॥
 
-> kaṁsārir api saṁsāra-
-> vāsanā-baddha-śṛṅkhalām
-> rādhām ādhāya hṛdaye
+> kaṁsārir api saṁsāra-\
+> vāsanā-baddha-śṛṅkhalām\
+> rādhām ādhāya hṛdaye\
 > tatyāja vraja-sundarīḥ
 
 *kaṁsa-āriḥ*—el enemigo de Kaṁsa; *api*—además; *saṁsāra-vāsanā*—deseoso de la esencia del disfrute (rāsa-līlā); *baddha-śṛṅkhalām*—perfectamente atraído por tales actividades; *rādhām*—Śrīmatī Rādhārāṇī; *ādhāya*—tomando; *hṛdaye*—dentro del corazón; *tatyāja*—dejó de lado; *vraja-sundarīḥ*—las demás hermosas gopīs.

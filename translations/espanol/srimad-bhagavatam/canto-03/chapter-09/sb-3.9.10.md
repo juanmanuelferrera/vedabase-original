@@ -1,13 +1,13 @@
 ### SB 3.9.10
 
-> अह्न्यापृतार्तकरणा निशि निःशयाना
-> नानामनोरथधिया क्षणभग्ननिद्राः ।
-> दैवाहतार्थरचना ऋषयोऽपि देव
+> अह्न्यापृतार्तकरणा निशि निःशयाना\
+> नानामनोरथधिया क्षणभग्ननिद्राः ।\
+> दैवाहतार्थरचना ऋषयोऽपि देव\
 > युष्मत्प्रसङ्गविमुखा इह संसरन्ति ॥१०॥
 
-> ahny āpṛtārta-karaṇā niśi niḥśayānā
-> nānā-manoratha-dhiyā kṣaṇa-bhagna-nidrāḥ
-> daivāhatārtha-racanā ṛṣayo 'pi deva
+> ahny āpṛtārta-karaṇā niśi niḥśayānā\
+> nānā-manoratha-dhiyā kṣaṇa-bhagna-nidrāḥ\
+> daivāhatārtha-racanā ṛṣayo 'pi deva\
 > yuṣmat-prasaṅga-vimukhā iha saṁsaranti
 
 *ahni*—durante el día; *āpṛta*—ocupados; *ārta*—ocupación angustiosa; *karaṇāḥ*—sentidos; *niśi*—de noche; *niḥśayānāḥ*—insomnio; *nānā*—diversas; *manoratha*—especulaciones mentales; *dhiyā*—por la inteligencia; *kṣaṇa*—constantemente; *bhagna*—roto; *nidrāḥ*—sueño; *daiva*—sobrehumano; *āhata-artha*—frustrados; *racanāḥ*—planes; *ṛṣayaḥ*—grandes sabios; *api*—también; *deva*—¡oh, mi Señor!; *yuṣmat*—de Tu Señoría; *prasaṅga*—tema; *vimukhāḥ*—puesto en contra; *iha*—en este (mundo material); *saṁsaranti*—rotan.

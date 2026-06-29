@@ -1,9 +1,9 @@
 ### CC Madhya 11.78
 
-> আদৌ মালা অদ্বৈতেরে স্বরূপ পরাইল ।
+> আদৌ মালা অদ্বৈতেরে স্বরূপ পরাইল ।\
 > পাছে গোবিন্দ দ্বিতীয় মালা আনি’ তাঁরে দিল ॥৭৮॥
 
-> ādau mālā advaitere svarūpa parāila
+> ādau mālā advaitere svarūpa parāila\
 > pāche govinda dvitīya mālā āni' tāṅre dila
 
 *ādau*—in the beginning; *mālā*—a garland; *advaitere*—unto Advaita Ācārya; *svarūpa*—Svarūpa Dāmodara; *parāila*—offered; *pāche*—after that; *govinda*—Govinda, the Lord's personal servant; *dvitīya*—a second; *mālā*—garland; *āni'*—bringing; *tāṅre dila*—delivered to Him.

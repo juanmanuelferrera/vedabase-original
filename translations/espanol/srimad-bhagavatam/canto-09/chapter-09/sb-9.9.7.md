@@ -1,11 +1,11 @@
 ### SB 9.9.7
 
-> धारयिष्यति ते वेगं रुद्रस्त्वात्मा शरीरिणाम
+> धारयिष्यति ते वेगं रुद्रस्त्वात्मा शरीरिणाम\
 > यस्मिन्नोतमिदं प्रोतं विश्वं शाटीव तन्तुषु ॥७॥
 
-> dhārayiṣyati te vegaṁ
-> rudras tv ātmā śarīriṇām
-> yasminn otam idaṁ protaṁ
+> dhārayiṣyati te vegaṁ\
+> rudras tv ātmā śarīriṇām\
+> yasminn otam idaṁ protaṁ\
 > viśvaṁ śāṭīva tantuṣu
 
 *dhārayiṣyati*—sostendrá; *te*—tus; *vegam*—fuerza de las olas; *rudraḥ*—el Señor Śiva; *tu*—en verdad; *ātmā*—la Superalma; *śarīriṇām*—de todas las almas corporificadas; *yasmin*—en quien; *otam*—está situado en su longitud; *idam*—todo este universo; *protam*—latitud; *viśvam*—el universo entero; *śāṭī*—una tela; *iva*—como; *tantuṣu*—en hilos.

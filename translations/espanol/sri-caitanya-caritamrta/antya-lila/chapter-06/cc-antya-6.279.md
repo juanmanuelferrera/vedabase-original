@@ -1,9 +1,9 @@
 ### CC Antya 6.279
 
-> বিষয়ীর অন্ন হয় ‘রাজস’ নিমন্ত্রণ ।
+> বিষয়ীর অন্ন হয় ‘রাজস’ নিমন্ত্রণ ।\
 > দাতা, ভোক্তা — দুঁহার মলিন হয় মন ॥২৭৯॥
 
-> viṣayīra anna haya 'rājasa' nimantraṇa
+> viṣayīra anna haya 'rājasa' nimantraṇa\
 > dātā, bhoktā--duṅhāra malina haya mana
 
 *viṣayīra*—ofrecido por personas materialistas; *anna*—alimento; *haya*—es; *rājasa*—en la modalidad de la pasión; *nimantraṇa*—invitación; *dātā*—la persona que ofrece; *bhoktā*—la persona que acepta tal ofrenda; *duṅhāra*—de ambas; *malina*—contaminada; *haya mana*—se vuelve la mente.

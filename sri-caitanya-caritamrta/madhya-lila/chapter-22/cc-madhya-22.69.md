@@ -1,9 +1,9 @@
 ### CC Madhya 22.69
 
-> যাহার কোমল শ্রদ্ধা, সে ‘কনিষ্ঠ’ জন ।
+> যাহার কোমল শ্রদ্ধা, সে ‘কনিষ্ঠ’ জন ।\
 > ক্রমে ক্রমে তেঁহো ভক্ত হইবে ‘উত্তম’ ॥৬৯॥
 
-> yāhāra komala śraddhā, se 'kaniṣṭha' jana
+> yāhāra komala śraddhā, se 'kaniṣṭha' jana\
 > krame krame teṅho bhakta ha-ibe 'uttama'
 
 *yāhāra*—whose; *komala śraddhā*—soft faith; *se*—such a person; *kaniṣṭha jana*—a neophyte devotee; *krame krame*—by a gradual progression; *teṅho*—he; *bhakta*—devotee; *ha-ibe*—will become; *uttama*—first class.

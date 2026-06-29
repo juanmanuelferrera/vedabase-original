@@ -1,9 +1,9 @@
 ### CC Madhya 15.259
 
-> প্রভু-পদে পড়ি’ বহু আত্মনিন্দা কৈল ।
+> প্রভু-পদে পড়ি’ বহু আত্মনিন্দা কৈল ।\
 > তাঁরে শান্ত করি’ প্রভু ঘরে পাঠাইল ॥২৫৯॥
 
-> prabhu-pade paḍi' bahu ātma-nindā kaila
+> prabhu-pade paḍi' bahu ātma-nindā kaila\
 > tāṅre śānta kari' prabhu ghare pāṭhāila
 
 *prabhu-pade*—at the feet of Lord Śrī Caitanya Mahāprabhu; *paḍi'*—falling down; *bahu*—much; *ātma-nindā kaila*—made self-reproach; *tāṅre*—him; *śānta kari'*—making pacified; *prabhu*—Śrī Caitanya Mahāprabhu; *ghare pāṭhāila*—sent back to his home.

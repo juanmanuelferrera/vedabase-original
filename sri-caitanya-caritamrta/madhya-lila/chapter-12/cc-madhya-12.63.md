@@ -1,9 +1,9 @@
 ### CC Madhya 12.63
 
-> প্রভুস্পর্শে রাজপুত্রের হৈল প্রেমাবেশ ।
+> প্রভুস্পর্শে রাজপুত্রের হৈল প্রেমাবেশ ।\
 > স্বেদ, কম্প, অশ্রু, স্তম্ভ, পুলক বিশেষ ॥৬৩॥
 
-> prabhu-sparśe rāja-putrera haila premāveśa
+> prabhu-sparśe rāja-putrera haila premāveśa\
 > sveda, kampa, aśru, stambha, pulaka viśeṣa
 
 *prabhu-sparśe*—because of being touched by the Lord; *rāja-putrera*—of the King's son; *haila*—there was; *prema-āveśa*—ecstatic love; *sveda*—perspiration; *kampa*—trembling; *aśru*—tears; *stambha*—being stunned; *pulaka*—jubilation; *viśeṣa*—specifically.

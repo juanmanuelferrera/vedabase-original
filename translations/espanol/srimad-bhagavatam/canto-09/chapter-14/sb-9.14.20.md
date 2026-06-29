@@ -1,13 +1,13 @@
 ### SB 9.14.20
 
-> उर्वश्युवाच
-> कस्यास्त्वयि न सज्जेत मनो दृष्टिश्च सुन्दर
+> उर्वश्युवाच\
+> कस्यास्त्वयि न सज्जेत मनो दृष्टिश्च सुन्दर\
 > यदङ्गान्तरमासाद्य च्यवते ह रिरंसया ॥२०॥
 
-> urvaśy uvāca
-> kasyās tvayi na sajjeta
-> mano dṛṣṭiś ca sundara
-> yad-aṅgāntaram āsādya
+> urvaśy uvāca\
+> kasyās tvayi na sajjeta\
+> mano dṛṣṭiś ca sundara\
+> yad-aṅgāntaram āsādya\
 > cyavate ha riraṁsayā
 
 *urvaśī uvāca*—Urvaśī contestó; *kasyāḥ*—de qué mujer; *tvayi*—hacia ti; *na*—no; *sajjeta*—se sentiría atraída; *manaḥ*—la mente; *dṛṣṭiḥ ca*—y la vista; *sundara*—¡oh, el más hermoso de los hombres!; *yat-aṅgāntaram*—cuyo pecho; *āsādya*—disfrutar; *cyavate*—abandona; *ha*—en verdad; *riraṁsayā*—por el disfrute sexual.

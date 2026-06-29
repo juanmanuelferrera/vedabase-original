@@ -1,13 +1,13 @@
 ### SB 4.12.41
 
-> नारद उवाच
-> नूनं सुनीतेः पतिदेवतायास्तपःप्रभावस्य सुतस्य तां गतिम् ।
+> नारद उवाच\
+> नूनं सुनीतेः पतिदेवतायास्तपःप्रभावस्य सुतस्य तां गतिम् ।\
 > दृष्ट्वाभ्युपायानपि वेदवादिनो नैवाधिगन्तुं प्रभवन्ति किं नृपाः ॥४१॥
 
-> nārada uvāca
-> nūnaṁ sunīteḥ pati-devatāyās
-> tapaḥ-prabhāvasya sutasya tāṁ gatim
-> dṛṣṭvābhyupāyān api veda-vādino
+> nārada uvāca\
+> nūnaṁ sunīteḥ pati-devatāyās\
+> tapaḥ-prabhāvasya sutasya tāṁ gatim\
+> dṛṣṭvābhyupāyān api veda-vādino\
 > naivādhigantuṁ prabhavanti kiṁ nṛpāḥ
 
 *nāradaḥ uvāca*—Nārada said; *nūnam*—certainly; *sunīteḥ*—of Sunīti; *pati-devatāyāḥ*—very much attached to her husband; *tapaḥ-prabhāvasya*—by the influence of austerity; *sutasya*—of the son; *tām*—that; *gatim*—position; *dṛṣṭvā*—observing; *abhyupāyān*—the means; *api*—although; *veda-vādinaḥ*—strict followers of the Vedic principles, or the so-called Vedāntists; *na*—never; *eva*—certainly; *adhigantum*—to attain; *prabhavanti*—are eligible; *kim*—what to speak of; *nṛpāḥ*—ordinary kings.

@@ -1,11 +1,11 @@
 ### SB 1.11.9
 
-> यर्ह्यम्बुजाक्षापससार भो भवान्कुरून्मधून्वाथ सुहृद्दिदृक्षया ।
+> यर्ह्यम्बुजाक्षापससार भो भवान्कुरून्मधून्वाथ सुहृद्दिदृक्षया ।\
 > तत्राब्दकोटिप्रतिमः क्षणो भवेद्रविं विनाक्ष्णोरिव नस्तवाच्युत ॥९॥
 
-> yarhy ambujākṣāpasasāra bho bhavān
-> kurūn madhūn vātha suhṛd-didṛkṣayā
-> tatrābda-koṭi-pratimaḥ kṣaṇo bhaved
+> yarhy ambujākṣāpasasāra bho bhavān\
+> kurūn madhūn vātha suhṛd-didṛkṣayā\
+> tatrābda-koṭi-pratimaḥ kṣaṇo bhaved\
 > raviṁ vinākṣṇor iva nas tavācyuta
 
 *yarhi*—whenever; *ambuja-akṣa*—O lotus-eyed one; *apasasāra*—You go away; *bho*—oh; *bhavān*—Yourself; *kurūn*—the descendants of King Kuru; *madhūn*—the inhabitants of Mathurā (Vrajabhūmi); *vā*—either; *atha*—therefore; *suhṛt-didṛkṣayā*—for meeting them; *tatra*—at that time; *abda-koṭi*—millions of years; *pratimaḥ*—like; *kṣaṇaḥ*—moments; *bhavet*—becomes; *ravim*—the sun; *vinā*—without; *akṣṇoḥ*—of the eyes; *iva*—like that; *naḥ*—ours; *tava*—Your; *acyuta*—O infallible one.

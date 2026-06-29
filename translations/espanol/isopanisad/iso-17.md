@@ -1,11 +1,11 @@
 ### Īśo 17
 
-> वायुरनिलममृतमथेदं भस्मांतँ शरीरम्।
+> वायुरनिलममृतमथेदं भस्मांतँ शरीरम्।\
 > ॐ क्रतो स्मर कृतँ स्मर क्रतो स्मर कृतँ स्मर॥१७॥
 
-> vāyur anilam amṛtam
-> athedaṁ bhasmāntaṁ śarīram
-> oṁ krato smara kṛtaṁ smara
+> vāyur anilam amṛtam\
+> athedaṁ bhasmāntaṁ śarīram\
+> oṁ krato smara kṛtaṁ smara\
 > krato smara kṛtaṁ smara
 
 *vāyuḥ*—aire de vida; *anilam*—reserva total de aire; *amṛtam*—indestructible; *atha*—ahora; *idam*—este; *bhasmāntam*—después de ser reducido a cenizas; *śarīram*—cuerpo; *oṁ*—¡oh Señor!; *krato*—¡oh disfrutador de todos los sacrificios!; *smara*—dígnate recordar; *kṛtam*—todo lo que he hecho; *smara*—dígnate recordar; *krato*—¡oh beneficiario supremo!; *smara*—dígnate recordar; *kṛtam*—todo lo que he hecho por Ti; *smara*—dígnate recordar.

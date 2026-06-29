@@ -1,9 +1,9 @@
 ### CC Madhya 6.38
 
-> হুঙ্কার করিয়া উঠে ‘হরি’ ‘হরি’ বলি’ ।
+> হুঙ্কার করিয়া উঠে ‘হরি’ ‘হরি’ বলি’ ।\
 > আনন্দে সার্বভৌম তাঁর লৈল পদধূলি ॥৩৮॥
 
-> huṅkāra kariyā uṭhe 'hari' 'hari' bali'
+> huṅkāra kariyā uṭhe 'hari' 'hari' bali'\
 > ānande sārvabhauma tāṅra laila pada-dhūli
 
 *huṅkāra kariyā*—emitiendo un fuerte sonido; *uṭhe*—se levantó; *hari hari bali'*—cantando Hari, Hari; *ānande*—con júbilo; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *tāṅra*—de Él; *laila*—tomó; *pada-dhūli*—el polvo de los pies.

@@ -1,9 +1,9 @@
 ### CC Antya 16.38
 
-> এইমত যত বৈষ্ণব বৈসে গৌড়দেশে ।
+> এইমত যত বৈষ্ণব বৈসে গৌড়দেশে ।\
 > কালিদাস ঐছে সবার নিলা অবশেষে ॥৩৮॥
 
-> ei-mata yata vaiṣṇava vaise gauḍa-deśe
+> ei-mata yata vaiṣṇava vaise gauḍa-deśe\
 > kālidāsa aiche sabāra nilā avaśeṣe
 
 *ei-mata*—in this way; *yata*—as many as; *vaiṣṇava*—Vaiṣṇavas; *vaise*—reside; *gauḍa-deśe*—in Bengal; *kālidāsa*—Kālidāsa; *aiche*—in that way; *sabāra*—of all of them; *nilā*—took; *avaśeṣe*—the remnants.

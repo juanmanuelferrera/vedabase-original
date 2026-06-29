@@ -1,11 +1,11 @@
 ### SB 3.16.31
 
-> मयि संरम्भयोगेन निस्तीर्य ब्रह्महेलनम् ।
+> मयि संरम्भयोगेन निस्तीर्य ब्रह्महेलनम् ।\
 > प्रत्येष्यतं निकाशं मे कालेनाल्पीयसा पुनः ॥३१॥
 
-> mayi saṁrambha-yogena
-> nistīrya brahma-helanam
-> pratyeṣyataṁ nikāśaṁ me
+> mayi saṁrambha-yogena\
+> nistīrya brahma-helanam\
+> pratyeṣyataṁ nikāśaṁ me\
 > kālenālpīyasā punaḥ
 
 *mayi*—a Mí; *saṁrambha-yogena*—por la práctica del *yoga* místico con ira; *nistīrya*—siendo liberados de; *brahma-helanam*—el resultado de desobedecer a los *brāhmaṇas*; *pratyeṣyatam*—regresarán; *nikāśam*—cerca; *me*—de Mí; *kālena*—a su debido tiempo; *alpīyasā*—muy breve; *punaḥ*—otra vez.

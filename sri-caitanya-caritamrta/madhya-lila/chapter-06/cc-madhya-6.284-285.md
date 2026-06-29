@@ -1,13 +1,13 @@
 ### CC Madhya 6.284-285
 
-> এই মহাপ্ৰভুর লীলা — সার্বভৌম-মিলন ।
-> ইহা যেই শ্রদ্ধা করি’ করয়ে শ্রবণ ॥২৮৪॥
+> এই মহাপ্ৰভুর লীলা — সার্বভৌম-মিলন ।\
+> ইহা যেই শ্রদ্ধা করি’ করয়ে শ্রবণ ॥২৮৪॥\
 > জ্ঞান-কর্মপাশ হৈতে হয় বিমোচন । অচিরে মিলয়ে তাঁরে চৈতন্যচরণ ॥২৮৫॥
 
-> ei mahāprabhura līlā—sārvabhauma-milana
+> ei mahāprabhura līlā—sārvabhauma-milana\
 > ihā yei śraddhā kari' karaye śravaṇa
 
-> jñāna-karma-pāśa haite haya vimocana
+> jñāna-karma-pāśa haite haya vimocana\
 > acire milaye tāṅre caitanya-caraṇa
 
 *ei*—this; *mahāprabhura*—of Lord Śrī Caitanya Mahāprabhu; *līlā*—pastime; *sārvabhauma-milana*—meeting with Sārvabhauma Bhaṭṭācārya; *ihā*—this; *yei*—anyone who; *śraddhā*—faith; *kari'*—having; *karaye*—does; *śravaṇa*—hearing; *jñāna-karma*—of speculation and fruitive activities; *pāśa*—the net; *haite*—from; *haya*—there is; *vimocana*—liberation; *acire*—very soon; *milaye*—meets; *tāṅre*—such a devotee; *caitanya-caraṇa*—the lotus feet of Lord Caitanya.

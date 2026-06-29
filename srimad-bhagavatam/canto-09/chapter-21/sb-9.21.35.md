@@ -1,13 +1,13 @@
 ### SB 9.21.35
 
-> तस्य सत्यधृतिः पुत्रो धनुर्वेदविशारदः
+> तस्य सत्यधृतिः पुत्रो धनुर्वेदविशारदः\
 > शरद्वांस्तत्सुतो यस्मादुर्वशीदर्शनात्किल ॥३५॥
 
-> tasya satyadhṛtiḥ putro
-> dhanur-veda-viśāradaḥ
-> śaradvāṁs tat-suto yasmād
-> urvaśī-darśanāt kila
-> śara-stambe 'patad reto
+> tasya satyadhṛtiḥ putro\
+> dhanur-veda-viśāradaḥ\
+> śaradvāṁs tat-suto yasmād\
+> urvaśī-darśanāt kila\
+> śara-stambe 'patad reto\
 > mithunaṁ tad abhūc chubham
 
 *tasya*—of him (Śatānanda); *satyadhṛtiḥ*—Satyadhṛti; *putraḥ*—a son; *dhanuḥ-veda-viśāradaḥ*—very expert in the art of archery; *śaradvān*—Śaradvān; *tat-sutaḥ*—the son of Satyadhṛti; *yasmāt*—from whom; *urvaśī-darśanāt*—simply by seeing the celestial Urvaśī; *kila*—indeed; *śara-stambe*—on a clump of *śara* grass; *apatat*—fell; *retaḥ*—semen; *mithunam*—a male and female; *tat abhūt*—there were born; *śubham*—all-auspicious.

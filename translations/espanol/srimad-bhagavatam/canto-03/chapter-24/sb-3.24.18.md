@@ -1,11 +1,11 @@
 ### SB 3.24.18
 
-> एष मानवि ते गर्भं प्रविष्टः कैटभार्दनः ।
+> एष मानवि ते गर्भं प्रविष्टः कैटभार्दनः ।\
 > अविद्यासंशयग्रन्थिं छित्त्वा गां विचरिष्यति ॥१८॥
 
-> eṣa mānavi te garbhaṁ
-> praviṣṭaḥ kaiṭabhārdanaḥ
-> avidyā-saṁśaya-granthiṁ
+> eṣa mānavi te garbhaṁ\
+> praviṣṭaḥ kaiṭabhārdanaḥ\
+> avidyā-saṁśaya-granthiṁ\
 > chittvā gāṁ vicariṣyati
 
 *eṣaḥ*—la misma Suprema Personalidad de Dios; *mānavi*—¡oh, hija de Manu!; *te*—tu; *garbham*—vientre; *praviṣṭaḥ*—ha entrado; *kaiṭabha-ardanaḥ*—quien mató al demonio Kaiṭabha; *avidyā*—de ignorancia; *saṁśaya*—y de duda; *granthim*—el nudo; *chittvā*—cortando; *gām*—el mundo; *vicariṣyati*—Él viajará por.

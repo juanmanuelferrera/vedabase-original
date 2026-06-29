@@ -1,11 +1,11 @@
 ### CC Madhya 8.99
 
-> যথা রাধা প্রিয়া বিষ্ণোস্তস্যাঃ কুণ্ডং প্রিয়ং তথা ।
+> যথা রাধা প্রিয়া বিষ্ণোস্তস্যাঃ কুণ্ডং প্রিয়ং তথা ।\
 > সর্বগোপীষু সৈবৈকা বিষ্ণোরত্যন্তবল্লভা ॥৯৯॥
 
-> yathā rādhā priyā viṣṇos
-> tasyāḥ kuṇḍaṁ priyaṁ tathā
-> sarva-gopīṣu saivaikā
+> yathā rādhā priyā viṣṇos\
+> tasyāḥ kuṇḍaṁ priyaṁ tathā\
+> sarva-gopīṣu saivaikā\
 > viṣṇor atyanta-vallabhā
 
 *yathā*—just as; *rādhā*—Śrīmatī Rādhārāṇī; *priyā*—very dear; *viṣṇoḥ*—to Lord Kṛṣṇa; *tasyāḥ*—Her; *kuṇḍam*—bathing place; *priyam*—very dear; *tathā*—so also; *sarva-gopīṣu*—among all the *gopīs*; *sā*—She; *eva*—certainly; *ekā*—alone; *viṣṇoḥ*—of Lord Kṛṣṇa; *atyanta-vallabhā*—very dear.

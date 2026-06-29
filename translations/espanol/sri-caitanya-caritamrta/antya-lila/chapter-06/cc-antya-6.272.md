@@ -1,9 +1,9 @@
 ### CC Antya 6.272
 
-> মাস-দুই যবে রঘুনাথ না করে নিমন্ত্রণ  ।
+> মাস-দুই যবে রঘুনাথ না করে নিমন্ত্রণ  ।\
 > স্বরূপে পুছিলা তবে শচীর নন্দন ॥২৭২॥
 
-> māsa-dui yabe raghunātha nā kare nimantraṇa
+> māsa-dui yabe raghunātha nā kare nimantraṇa\
 > svarūpe puchilā tabe śacīra nandana
 
 *māsa-dui*—durante dos meses; *yabe*—cuando; *raghunātha*—Raghunātha dāsa; *nā kare nimantraṇa*—no invita; *svarūpe puchilā*—preguntó a Svarūpa Dāmodara; *tabe*—en ese momento; *śacīra nandana*—el hijo de madre Śacī, Śrī Caitanya Mahāprabhu.

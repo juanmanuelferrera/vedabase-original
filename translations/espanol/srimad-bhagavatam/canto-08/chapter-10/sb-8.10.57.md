@@ -1,11 +1,11 @@
 ### SB 8.10.57
 
-> माली सुमाल्यतिबलौ युधि पेततुर्यच्चक्रेण कृत्तशिरसावथ माल्यवांस्तम
+> माली सुमाल्यतिबलौ युधि पेततुर्यच्चक्रेण कृत्तशिरसावथ माल्यवांस्तम\
 > आहत्य तिग्मगदयाहनदण्डजेन्द्रं तावच्छिरोऽच्छिनदरेर्नदतोऽरिणाद्यः ॥५७॥
 
-> mālī sumāly atibalau yudhi petatur yac-
-> cakreṇa kṛtta-śirasāv atha mālyavāṁs tam
-> āhatya tigma-gadayāhanad aṇḍajendraṁ
+> mālī sumāly atibalau yudhi petatur yac-\
+> cakreṇa kṛtta-śirasāv atha mālyavāṁs tam\
+> āhatya tigma-gadayāhanad aṇḍajendraṁ\
 > tāvac chiro 'cchinad arer nadato 'riṇādyaḥ
 
 *mālī-sumālī*—dos demonios llamados Mālī y Sumālī; *ati-balau*—muy poderosos; *yudi*—en el campo de batalla; *petatuḥ*—cayeron; *yat-cakreṇa*—por cuyo disco; *kṛtta-śirasau*—las cabezas cortadas; *atha*—a continuación; *mālyavān*—Mālyavān; *tam*—a la Suprema Personalidad de Dios; *āhatya*—atacar; *tigma-gadayā*—con una maza muy afilada; *ahanat*—trató de atacar, matar; *aṇḍa-ja-indram*—a Garuḍa, el rey de todas las aves, que nacen de huevos; *tāvat*—en ese momento; *śiraḥ*—la cabeza; *acchinat*—cortó; *areḥ*—del enemigo; *nadataḥ*—rugiendo como un león; *ariṇā*—por medio del disco; *ādyaḥ*—la Personalidad de Dios original.

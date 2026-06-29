@@ -1,9 +1,9 @@
 ### CC Madhya 20.320
 
-> ব্রহ্মার এক দিনে হয় চৌদ্দ মন্বন্তর ।
+> ব্রহ্মার এক দিনে হয় চৌদ্দ মন্বন্তর ।\
 > চৌদ্দ অবতার তাহাঁ করেন ঈশ্বর ॥৩২০॥
 
-> brahmāra eka-dine haya caudda manvantara
+> brahmāra eka-dine haya caudda manvantara\
 > caudda avatāra tāhāṅ karena īśvara
 
 *brahmāra eka-dine*—en un día de Brahmā; *haya*—hay; *caudda*—14; *manu-antara*—cambios de Manu; *caudda*—14; *avatāra*—encarnaciones; *tāhāṅ*—en ese tiempo; *karena*—manifiesta; *īśvara*—la Suprema Personalidad de Dios.

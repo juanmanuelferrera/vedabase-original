@@ -1,9 +1,9 @@
 ### CC Madhya 15.73
 
-> প্রতিদিন পাঁচ-সাত ফল ছোলাঞা  ।
+> প্রতিদিন পাঁচ-সাত ফল ছোলাঞা  ।\
 > সুশীতল করিতে রাখে জলে ডুবাইঞা ॥৭৩॥
 
-> prati-dina pāṅca-sāta phala cholāñā
+> prati-dina pāṅca-sāta phala cholāñā\
 > suśītala karite rākhe jale ḍubāiñā
 
 *prati-dina*—each day; *pāṅca-sāta*—five to seven; *phala*—fruits; *cholāñā*—clipping; *su-śītala karite*—to make it very cool; *rākhe*—keeps; *jale*—in water; *ḍubāiñā*—immersing.

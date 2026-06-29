@@ -1,11 +1,11 @@
 ### SB 7.12.22
 
-> चरेद्वने द्वादशाब्दानष्टौ वा चतुरो मुनिः
+> चरेद्वने द्वादशाब्दानष्टौ वा चतुरो मुनिः\
 > द्वावेकं वा यथा बुद्धिर्न विपद्येत कृच्छ्रतः ॥२२॥
 
-> cared vane dvādaśābdān
-> aṣṭau vā caturo muniḥ
-> dvāv ekaṁ vā yathā buddhir
+> cared vane dvādaśābdān\
+> aṣṭau vā caturo muniḥ\
+> dvāv ekaṁ vā yathā buddhir\
 > na vipadyeta kṛcchrataḥ
 
 *caret*—debe permanecer; *vane*—en el bosque; *dvādaśa-abdān*—doce años; *aṣṭau*—durante ocho años; *vā*—o; *caturaḥ*—cuatro años; *muniḥ*—un hombre santo, introspectivo; *dvau*—dos; *ekam*—uno; *vā*—o; *yathā*—así como; *buddhiḥ*—inteligencia; *na*—no; *vipadyeta*—confundida; *kṛcchrataḥ*—debido a las rigurosas austeridades.

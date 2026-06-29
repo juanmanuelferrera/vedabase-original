@@ -1,9 +1,9 @@
 ### CC Madhya 1.181
 
-> এত কহি’ রাজা গেলা নিজ অভ্যন্তরে ।
+> এত কহি’ রাজা গেলা নিজ অভ্যন্তরে ।\
 > তবে দবির খাস আইলা আপনার ঘরে ॥১৮১॥
 
-> eta kahi' rājā gelā nija abhyantare
+> eta kahi' rājā gelā nija abhyantare\
 > tabe dabira khāsa āilā āpanāra ghare
 
 *eta kahi'*—saying this; *rājā*—the King; *gelā*—went; *nija*—own; *abhyantare*—to the private house; *tabe*—at that time; *dabira khāsa*—Śrīla Rūpa Gosvāmī; *āilā*—returned; *āpanāra*—his own; *ghare*—to the residence.

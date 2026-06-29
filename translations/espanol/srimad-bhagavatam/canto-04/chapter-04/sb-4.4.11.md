@@ -1,13 +1,13 @@
 ### SB 4.4.11
 
-> देव्युवाच
-> न यस्य लोकेऽस्त्यतिशायनः प्रियस्तथाप्रियो देहभृतां प्रियात्मनः ।
+> देव्युवाच\
+> न यस्य लोकेऽस्त्यतिशायनः प्रियस्तथाप्रियो देहभृतां प्रियात्मनः ।\
 > तस्मिन्समस्तात्मनि मुक्तवैरके ऋते भवन्तं कतमः प्रतीपयेत् ॥११॥
 
-> devy uvāca
-> na yasya loke 'sty atiśāyanaḥ priyas
-> tathāpriyo deha-bhṛtāṁ priyātmanaḥ
-> tasmin samastātmani mukta-vairake
+> devy uvāca\
+> na yasya loke 'sty atiśāyanaḥ priyas\
+> tathāpriyo deha-bhṛtāṁ priyātmanaḥ\
+> tasmin samastātmani mukta-vairake\
 > ṛte bhavantaṁ katamaḥ pratīpayet
 
 *devī uvāca*—la bendita diosa dijo; *na*—no; *yasya*—de quien; *loke*—en el mundo material; *asti*—es; *atiśāyanaḥ*—sin rival; *priyaḥ*—querido; *tathā*—tan; *apriyaḥ*—enemigo; *deha-bhṛtām*—llevando cuerpos materiales; *priya-ātmanaḥ*—que es el más querido; *tasmin*—hacia el Señor Śiva; *samasta-ātmani*—el ser universal; *mukta-vairake*—que está libre de toda enemistad; *ṛte*—excepto; *bhavantam*—tú; *katamaḥ*—quién; *pratīpayet*—sería envidioso.

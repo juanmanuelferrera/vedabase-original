@@ -1,11 +1,11 @@
 ### SB 8.24.49
 
-> न यत्प्रसादायुतभागलेशमन्ये च देवा गुरवो जनाः स्वयम
+> न यत्प्रसादायुतभागलेशमन्ये च देवा गुरवो जनाः स्वयम\
 > कर्तुं समेताः प्रभवन्ति पुंसस्तमीश्वरं त्वां शरणं प्रपद्ये ॥४९॥
 
-> na yat-prasādāyuta-bhāga-leśam
-> anye ca devā guravo janāḥ svayam
-> kartuṁ sametāḥ prabhavanti puṁsas
+> na yat-prasādāyuta-bhāga-leśam\
+> anye ca devā guravo janāḥ svayam\
+> kartuṁ sametāḥ prabhavanti puṁsas\
 > tam īśvaraṁ tvāṁ śaraṇaṁ prapadye
 
 *na*—no; *yat-prasāda*—de la misericordia de la Suprema Personalidad de Dios; *ayuta-bhāga-leśam*—solo la diezmilésima parte; *anye*—otros; *ca*—también; *devāḥ*—incluso los semidioses; *guravaḥ*—los supuestos *gurus*; *janāḥ*—toda la población; *svayam*—personalmente; *kartum*—realizar; *sametāḥ*—todos juntos; *prabhavanti*—pueden tener la misma capacidad; *puṁsaḥ*—por la Suprema Personalidad de Dios; *tam*—a Él; *īśvaram*—a la Suprema Personalidad de Dios; *tvām*—a Ti; *śaraṇam*—refugio; *prapadye*—me entrego.

@@ -1,13 +1,13 @@
 ### SB 1.2.2
 
-> सूत उवाच
-> यं प्रव्रजन्तमनुपेतमपेतकृत्यं द्वैपायनो विरहकातर आजुहाव ।
+> सूत उवाच\
+> यं प्रव्रजन्तमनुपेतमपेतकृत्यं द्वैपायनो विरहकातर आजुहाव ।\
 > पुत्रेति तन्मयतया तरवोऽभिनेदुस्तं सर्वभूतहृदयं मुनिमानतोऽस्मि ॥२॥
 
-> sūta uvāca
-> yaṁ pravrajantam anupetam apeta-kṛtyaṁ
-> dvaipāyano viraha-kātara ājuhāva
-> putreti tan-mayatayā taravo 'bhinedus
+> sūta uvāca\
+> yaṁ pravrajantam anupetam apeta-kṛtyaṁ\
+> dvaipāyano viraha-kātara ājuhāva\
+> putreti tan-mayatayā taravo 'bhinedus\
 > taṁ sarva-bhūta-hṛdayaṁ munim ānato 'smi
 
 *sūtaḥ*—Sūta Gosvāmī; *uvāca*—said; *yam*—whom; *pravrajantam*—while going away for the renounced order of life; *anupetam*—without being reformed by the sacred thread; *apeta*—not undergoing ceremonies; *kṛtyam*—prescribed duties; *dvaipāyanaḥ*—Vyāsadeva; *viraha*—separation; *kātaraḥ*—being afraid of; *ājuhāva*—exclaimed; *putra iti*—O my son; *tat-mayatayā*—being absorbed in that way; *taravaḥ*—all the trees; *abhineduḥ*—responded; *tam*—unto him; *sarva*—all; *bhūta*—living entities; *hṛdayam*—heart; *munim*—sage; *ānataḥ asmi*—offer obeisances.

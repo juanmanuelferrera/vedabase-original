@@ -1,9 +1,9 @@
 ### CC Adi 4.105
 
-> স্বরূপ-গোসাঞি — প্রভুর অতি অন্তরঙ্গ ।
+> স্বরূপ-গোসাঞি — প্রভুর অতি অন্তরঙ্গ ।\
 > তাহাতে জানেন প্রভুর এসব প্রসঙ্গ ॥১০৫॥
 
-> svarūpa-gosāñi—prabhura ati antaraṅga
+> svarūpa-gosāñi—prabhura ati antaraṅga\
 > tāhāte jānena prabhura e-saba prasaṅga
 
 *svarūpa-gosāñi*—Svarūpa Dāmodara Gosāñi; *prabhura*—of Lord Caitanya Mahāprabhu; *ati*—very; *antaraṅga*—confidential associate; *tāhāte*—by that; *jānena*—he knows; *prabhura*—of Lord Caitanya Mahāprabhu; *e-saba*—all these; *prasaṅga*—topics.

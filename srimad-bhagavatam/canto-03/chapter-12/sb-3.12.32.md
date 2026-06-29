@@ -1,11 +1,11 @@
 ### SB 3.12.32
 
-> तस्मै नमो भगवते य इदं स्वेन रोचिषा ।
+> तस्मै नमो भगवते य इदं स्वेन रोचिषा ।\
 > आत्मस्थं व्यञ्जयामास स धर्मं पातुमर्हति ॥३२॥
 
-> tasmai namo bhagavate
-> ya idaṁ svena rociṣā
-> ātma-sthaṁ vyañjayām āsa
+> tasmai namo bhagavate\
+> ya idaṁ svena rociṣā\
+> ātma-sthaṁ vyañjayām āsa\
 > sa dharmaṁ pātum arhati
 
 *tasmai*—unto Him; *namaḥ*—obeisances; *bhagavate*—unto the Personality of Godhead; *yaḥ*—who; *idam*—this; *svena*—by His own; *rociṣā*—effulgence; *ātma-stham*—situated in Himself; *vyañjayām āsa*—has manifested; *saḥ*—He; *dharmam*—religion; *pātum*—for protection; *arhati*—may kindly do so.

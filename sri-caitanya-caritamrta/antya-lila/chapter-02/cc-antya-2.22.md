@@ -1,9 +1,9 @@
 ### CC Antya 2.22
 
-> চৈতন্যের আবেশ হয় নকুলের দেহে ।
+> চৈতন্যের আবেশ হয় নকুলের দেহে ।\
 > শুনি’ শিবানন্দ আইলা করিয়া সন্দেহে ॥২২॥
 
-> caitanyera āveśa haya nakulera dehe
+> caitanyera āveśa haya nakulera dehe\
 > śuni' śivānanda āilā kariyā sandehe
 
 *caitanyera*—of Śrī Caitanya Mahāprabhu; *āveśa*—taking possession; *haya*—there is; *nakulera dehe*—in the body of Nakula Brahmacārī; *śuni'*—hearing; *śivānanda āilā*—Śivānanda Sena came; *kariyā sandehe*—doubting.

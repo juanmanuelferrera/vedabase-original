@@ -1,11 +1,11 @@
 ### SB 8.8.23
 
-> क्वचिच्चिरायुर्न हि शीलमङ्गलं क्वचित्तदप्यस्ति न वेद्यमायुषः
+> क्वचिच्चिरायुर्न हि शीलमङ्गलं क्वचित्तदप्यस्ति न वेद्यमायुषः\
 > यत्रोभयं कुत्र च सोऽप्यमङ्गलः सुमङ्गलः कश्च न काङ्क्षते हि माम ॥२३॥
 
-> evaṁ vimṛśyāvyabhicāri-sad-guṇair
-> varaṁ nijaikāśrayatayāguṇāśrayam
-> vavre varaṁ sarva-guṇair apekṣitaṁ
+> evaṁ vimṛśyāvyabhicāri-sad-guṇair\
+> varaṁ nijaikāśrayatayāguṇāśrayam\
+> vavre varaṁ sarva-guṇair apekṣitaṁ\
 > ramā mukundaṁ nirapekṣam īpsitam
 
 *evam*—de este modo; *vimṛśya*—tras reflexionar cuidadosamente; *avyabhicāri-sat-guṇaiḥ*—con extraordinarias cualidades trascendentales; *varam*—superiores; *nija-eka-āśrayatayā*—por poseer todas las buenas cualidades y no depender de otros; *aguṇa-āśrayam*—el receptáculo de todas las cualidades trascendentales; *vavre*—aceptó; *varam*—por novio; *sarva-guṇaiḥ*—con todas las cualidades trascendentales; *apekṣitam*—cualificado; *ramā*—la diosa de la fortuna; *mukundam*—a Mukunda; *nirapekṣam*—aunque Él no la esperaba; *īpsitam*—el más deseable.

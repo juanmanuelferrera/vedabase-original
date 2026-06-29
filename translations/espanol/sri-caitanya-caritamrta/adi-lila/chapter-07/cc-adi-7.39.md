@@ -1,9 +1,9 @@
 ### CC Adi 7.39
 
-> তবে নিজ ভক্ত কৈল যত ম্লেচ্ছ আদি ।
+> তবে নিজ ভক্ত কৈল যত ম্লেচ্ছ আদি ।\
 > সবে এড়াইল মাত্র কাশীর মায়াবাদী ॥৩৯॥
 
-> tabe nija bhakta kaila yata mleccha ādi
+> tabe nija bhakta kaila yata mleccha ādi\
 > sabe eḍāila mātra kāśīra māyāvādī
 
 *tabe*—después; *nija*—propios; *bhakta*—devotos; *kaila*—convirtió; *yata*—todos; *mleccha*—personas que no siguen los principios Védicos; *ādi*—encabezando la lista; *sabe*—todos ellos; *eḍāila*—escaparon; *mātra*—solamente; *kāśīra*—de Vārāṇasī; *māyāvādī*—impersonalistas.

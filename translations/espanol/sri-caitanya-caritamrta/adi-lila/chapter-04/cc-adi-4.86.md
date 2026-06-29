@@ -1,9 +1,9 @@
 ### CC Adi 4.86
 
-> কিম্বা, প্রেমরসময় কৃষ্ণের স্বরূপ ।
+> কিম্বা, প্রেমরসময় কৃষ্ণের স্বরূপ ।\
 > তাঁর শক্তি তাঁর সহ হয় একরূপ ॥৮৬॥
 
-> kimvā, prema-rasa-maya kṛṣṇera svarūpa
+> kimvā, prema-rasa-maya kṛṣṇera svarūpa\
 > tāṅra śakti tāṅra saha haya eka-rūpa
 
 *kimvā*—o; *prema-rasa*—los sabores trascendentales del amor; *maya*—compuesta de; *kṛṣṇera*—del Señor Kṛṣṇa; *svarūpa*—la verdadera naturaleza; *tāṅra*—de Él; *śakti*—la energía; *tāṅra saha*—con Él; *haya*—existe; *eka-rūpa*—unidad.

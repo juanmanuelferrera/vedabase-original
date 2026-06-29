@@ -1,11 +1,11 @@
 ### SB 9.9.43
 
-> न मे ब्रह्मकुलात्प्राणाः कुलदैवान्न चात्मजाः
+> न मे ब्रह्मकुलात्प्राणाः कुलदैवान्न चात्मजाः\
 > न श्रियो न मही राज्यं न दाराश्चातिवल्लभाः ॥४३॥
 
-> na me brahma-kulāt prāṇāḥ
-> kula-daivān na cātmajāḥ
-> na śriyo na mahī rājyaṁ
+> na me brahma-kulāt prāṇāḥ\
+> kula-daivān na cātmajāḥ\
+> na śriyo na mahī rājyaṁ\
 > na dārāś cātivallabhāḥ
 
 *na*—not; *me*—my; *brahma-kulāt*—than the groups of *brāhmaṇas*; *prāṇāḥ*—life; *kula-daivāt*—than the personalities worshipable for my family; *na*—not; *ca*—also; *ātmajāḥ*—sons and daughters; *na*—nor; *śriyaḥ*—opulence; *na*—nor; *mahī*—the earth; *rājyam*—kingdom; *na*—nor; *dārāḥ*—wife; *ca*—also; *ati-vallabhāḥ*—extremely dear.

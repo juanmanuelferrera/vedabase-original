@@ -1,9 +1,9 @@
 ### CC Adi 17.134
 
-> সন্ধ্যাতে দেউটি সবে জ্বাল ঘরে ঘরে ।
+> সন্ধ্যাতে দেউটি সবে জ্বাল ঘরে ঘরে ।\
 > দেখ, কোন কাজী আসি’ মোরে মানা করে ॥১৩৪॥
 
-> sandhyāte deuṭi sabe jvāla ghare ghare
+> sandhyāte deuṭi sabe jvāla ghare ghare\
 > dekha, kona kājī āsi' more mānā kare
 
 *sandhyāte*—por la tarde; *deuṭi*—lámparas; *sabe*—todos; *jvāla*—encended; *ghare ghare*—en todos y cada uno de los hogares; *dekha*—esperad y veréis; *kona*—qué clase de; *kājī*—magistrado; *āsi'*—viniendo; *more*—a Mí; *mānā kare*—Me ordena detenerme.

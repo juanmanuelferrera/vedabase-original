@@ -1,11 +1,11 @@
 ### SB 9.7.9
 
-> यदि वीरो महाराज तेनैव त्वां यजे इति
+> यदि वीरो महाराज तेनैव त्वां यजे इति\
 > तथेति वरुणेनास्य पुत्रो जातस्तु रोहितः ॥९॥
 
-> yadi vīro mahārāja
-> tenaiva tvāṁ yaje iti
-> tatheti varuṇenāsya
+> yadi vīro mahārāja\
+> tenaiva tvāṁ yaje iti\
+> tatheti varuṇenāsya\
 > putro jātas tu rohitaḥ
 
 *yadi*—si; *vīraḥ*—hay un hijo; *mahārāja*—¡oh, Mahārāja Parīkṣit!; *tena eva*—incluso con ese hijo; *tvām*—a ti; *yaje*—ofreceré sacrificio; *iti*—así; *tathā*—como tú desees; *iti*—así aceptado; *varuṇena*—por Varuṇa; *asya*—de Mahārāja Hariścandra; *putraḥ*—un hijo; *jātaḥ*—nació; *tu*—en verdad; *rohitaḥ*—llamado Rohita.

@@ -1,11 +1,11 @@
 ### CC Antya 15.16
 
-> সখি হে, শুন মোর দুঃখের কারণ ।
-> মোর পঞ্চেন্দ্রিয়গণ, মহা-লম্পট দস্যুগণ,
+> সখি হে, শুন মোর দুঃখের কারণ ।\
+> মোর পঞ্চেন্দ্রিয়গণ, মহা-লম্পট দস্যুগণ,\
 > সবে কহে, — হর’ পরধন ।। ১৬ ।। ধ্রু ।। ॥১৬॥
 
-> sakhi he, śuna mora duḥkhera kāraṇa
-> mora pañcendriya-gaṇa, mahā-lampaṭa dasyu-gaṇa,
+> sakhi he, śuna mora duḥkhera kāraṇa\
+> mora pañcendriya-gaṇa, mahā-lampaṭa dasyu-gaṇa,\
 > sabe kahe,—hara' para-dhana
 
 *sakhi*—My dear friend; *he*—O; *śuna*—please hear; *mora*—My; *duḥkhera kāraṇa*—the cause of unhappiness; *mora*—My; *pañca-indriya-gaṇa*—five senses of perception; *mahā*—very; *lampaṭa*—extravagant; *dasyu-gaṇa*—rogues; *sabe kahe*—they all say; *hara'*—plunder; *para-dhana*—another's property.

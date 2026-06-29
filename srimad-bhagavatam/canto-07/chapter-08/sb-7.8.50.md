@@ -1,13 +1,13 @@
 ### SB 7.8.50
 
-> श्रीगन्धर्वा ऊचुः
-> वयं विभो ते नटनाट्यगायका येनात्मसाद्वीर्यबलौजसा कृताः
+> श्रीगन्धर्वा ऊचुः\
+> वयं विभो ते नटनाट्यगायका येनात्मसाद्वीर्यबलौजसा कृताः\
 > स एष नीतो भवता दशामिमां किमुत्पथस्थः कुशलाय कल्पते ॥५०॥
 
-> śrī-gandharvā ūcuḥ
-> vayaṁ vibho te naṭa-nāṭya-gāyakā
-> yenātmasād vīrya-balaujasā kṛtāḥ
-> sa eṣa nīto bhavatā daśām imāṁ
+> śrī-gandharvā ūcuḥ\
+> vayaṁ vibho te naṭa-nāṭya-gāyakā\
+> yenātmasād vīrya-balaujasā kṛtāḥ\
+> sa eṣa nīto bhavatā daśām imāṁ\
 > kim utpathasthaḥ kuśalāya kalpate
 
 *śrī-gandharvāḥ ūcuḥ*—the inhabitants of Gandharvaloka (who are usually engaged as musicians of the heavenly planets) said; *vayam*—we; *vibho*—O Lord; *te*—Your; *naṭa-nāṭya-gāyakāḥ*—dancers and singers in dramatic performances; *yena*—by whom; *ātmasāt*—under subjection; *vīrya*—of his valor; *bala*—and bodily strength; *ojasā*—by the influence; *kṛtāḥ*—made (brought); *saḥ*—he (Hiraṇyakaśipu); *eṣaḥ*—this; *nītaḥ*—brought; *bhavatā*—by Your Lordship; *daśām imām*—to this condition; *kim*—whether; *utpathasthaḥ*—anyone who is an upstart; *kuśalāya*—for auspiciousness; *kalpate*—is capable.

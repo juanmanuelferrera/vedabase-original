@@ -1,11 +1,11 @@
 ### SB 9.2.3
 
-> पृषध्रस्तु मनोः पुत्रो गोपालो गुरुणा कृतः
+> पृषध्रस्तु मनोः पुत्रो गोपालो गुरुणा कृतः\
 > पालयामास गा यत्तो रात्र्यां वीरासनव्रतः ॥३॥
 
-> pṛṣadhras tu manoḥ putro
-> go-pālo guruṇā kṛtaḥ
-> pālayām āsa gā yatto
+> pṛṣadhras tu manoḥ putro\
+> go-pālo guruṇā kṛtaḥ\
+> pālayām āsa gā yatto\
 > rātryāṁ vīrāsana-vrataḥ
 
 *pṛṣadhraḥ tu*—entre ellos, Pṛṣadhra; *manoḥ*—de Manu; *putraḥ*—el hijo; *go-pālaḥ*—cuidando vacas; *guruṇā*—por orden de su maestro espiritual; *kṛtaḥ*—ocupado; *pālayām āsa*—protegía; *gāḥ*—vacas; *yattaḥ*—así ocupado; *rātryām*—de noche; *vīrāsana-vrataḥ*—que había hecho el voto de *vīrāsana*, velando con una espada.

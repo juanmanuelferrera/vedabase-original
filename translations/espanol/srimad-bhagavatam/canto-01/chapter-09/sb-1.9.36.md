@@ -1,11 +1,11 @@
 ### SB 1.9.36
 
-> व्यवहितपृतनामुखं निरीक्ष्य स्वजनवधाद्विमुखस्य दोषबुद्ध्या ।
+> व्यवहितपृतनामुखं निरीक्ष्य स्वजनवधाद्विमुखस्य दोषबुद्ध्या ।\
 > कुमतिमहरदात्मविद्यया यश्चरणरतिः परमस्य तस्य मेऽस्तु ॥३६॥
 
-> vyavahita-pṛtanā-mukhaṁ nirīkṣya
-> sva-jana-vadhād vimukhasya doṣa-buddhyā
-> kumatim aharad ātma-vidyayā yaś
+> vyavahita-pṛtanā-mukhaṁ nirīkṣya\
+> sva-jana-vadhād vimukhasya doṣa-buddhyā\
+> kumatim aharad ātma-vidyayā yaś\
 > caraṇa-ratiḥ paramasya tasya me 'stu
 
 *vyavahita*—parados a cierta distancia; *pṛtanā*—soldados; *mukham*—caras; *nirīkṣya*—por mirar a; *sva-jana*—parientes; *vadhāt*—del acto de matar; *vimukhasya*—de alguien que está reacio; *doṣa-buddhyā*—por la inteligencia contaminada; *kumatim*—poco acopio de conocimiento; *aharat*—erradicó; *ātma-vidyayā*—mediante el conocimiento trascendental; *yaḥ*—aquel que; *caraṇa*—a los pies; *ratiḥ*—atracción; *paramasya*—del Supremo; *tasya*—para Él; *me*—mi; *astu*—que haya.

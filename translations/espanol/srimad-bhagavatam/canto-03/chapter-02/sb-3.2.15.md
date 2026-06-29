@@ -1,11 +1,11 @@
 ### SB 3.2.15
 
-> स्वशान्तरूपेष्वितरैः स्वरूपैरभ्यर्द्यमानेष्वनुकम्पितात्मा ।
+> स्वशान्तरूपेष्वितरैः स्वरूपैरभ्यर्द्यमानेष्वनुकम्पितात्मा ।\
 > परावरेशो महदंशयुक्तो ह्यजोऽपि जातो भगवान्यथाग्निः ॥१५॥
 
-> sva-śānta-rūpeṣv itaraiḥ sva-rūpair
-> abhyardyamāneṣv anukampitātmā
-> parāvareśo mahad-aṁśa-yukto
+> sva-śānta-rūpeṣv itaraiḥ sva-rūpair\
+> abhyardyamāneṣv anukampitātmā\
+> parāvareśo mahad-aṁśa-yukto\
 > hy ajo 'pi jāto bhagavān yathāgniḥ
 
 *sva-śānta-rūpeṣu*—a los pacíficos devotos del Señor; *itaraiḥ*—otros, no devotos; *sva-rūpaiḥ*—de acuerdo con sus propias modalidades de la naturaleza; *abhyardyamāneṣu*—siendo acosados por; *anukampita-ātmā*—el absolutamente compasivo Señor; *para-avara*—espiritual y material; *īśaḥ*—controlador; *mahat-aṁśa-yuktaḥ*—acompañado por la porción plenaria del *mahat-tattva*; *hi*—ciertamente; *ajaḥ*—el innaciente; *api*—aunque; *jātaḥ*—nace; *bhagavān*—la Personalidad de Dios; *yathā*—como si; *agniḥ*—el fuego.

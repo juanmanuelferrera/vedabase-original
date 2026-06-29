@@ -1,11 +1,11 @@
 ### SB 7.7.44
 
-> किमु व्यवहितापत्य दारागारधनादयः
+> किमु व्यवहितापत्य दारागारधनादयः\
 > राज्यकोशगजामात्य भृत्याप्ता ममतास्पदाः ॥४४॥
 
-> kim u vyavahitāpatya-
-> dārāgāra-dhanādayaḥ
-> rājya-kośa-gajāmātya-
+> kim u vyavahitāpatya-\
+> dārāgāra-dhanādayaḥ\
+> rājya-kośa-gajāmātya-\
 > bhṛtyāptā mamatāspadāḥ
 
 *kim u*—what to speak of; *vyavahita*—separated; *apatya*—children; *dāra*—wives; *agāra*—residences; *dhana*—wealth; *ādayaḥ*—and so on; *rājya*—kingdoms; *kośa*—treasuries; *gaja*—big elephants and horses; *amātya*—ministers; *bhṛtya*—servants; *āptāḥ*—relatives; *mamatā-āspadāḥ*—false seats or abodes of intimate relationship ("mineness").

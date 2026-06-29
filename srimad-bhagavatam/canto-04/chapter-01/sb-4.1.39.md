@@ -1,11 +1,11 @@
 ### SB 4.1.39
 
-> क्रतोरपि क्रिया भार्या वालखिल्यानसूयत ।
+> क्रतोरपि क्रिया भार्या वालखिल्यानसूयत ।\
 > ऋषीन्षष्टिसहस्राणि ज्वलतो ब्रह्मतेजसा ॥३९॥
 
-> krator api kriyā bhāryā
-> vālakhilyān asūyata
-> ṛṣīn ṣaṣṭi-sahasrāṇi
+> krator api kriyā bhāryā\
+> vālakhilyān asūyata\
+> ṛṣīn ṣaṣṭi-sahasrāṇi\
 > jvalato brahma-tejasā
 
 *kratoḥ*—of the great sage Kratu; *api*—also; *kriyā*—Kriyā; *bhāryā*—wife; *vālakhilyān*—just like Vālakhilya; *asūyata*—begot; *ṛṣīn*—sages; *ṣaṣṭi*—sixty; *sahasrāṇi*—thousand; *jvalataḥ*—very brilliant; *brahma-tejasā*—by dint of the Brahman effulgence.

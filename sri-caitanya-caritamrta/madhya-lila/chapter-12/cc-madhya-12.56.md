@@ -1,9 +1,9 @@
 ### CC Madhya 12.56
 
-> “আত্মা বৈ জায়তে পুত্রঃ” — এই শাস্ত্রবাণী ।
+> “আত্মা বৈ জায়তে পুত্রঃ” — এই শাস্ত্রবাণী ।\
 > পুত্রের মিলনে যেন মিলিবে আপনি ॥৫৬॥
 
-> ''ātmā vai jāyate putraḥ''-ei śāstra-vāṇī
+> ''ātmā vai jāyate putraḥ''-ei śāstra-vāṇī\
 > putrera milane yena milibe āpani
 
 *ātmā vai jāyate putraḥ*—his self appears as the son; *ei*—this; *śāstra-vāṇī*—the indication of revealed scriptures; *putreramilane*—by meeting the son; *yena*—as if; *milibe*—he will meet; *āpani*—personally.

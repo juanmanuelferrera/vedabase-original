@@ -1,13 +1,13 @@
 ### SB 4.13.1
 
-> सूत उवाच
-> निशम्य कौषारविणोपवर्णितं ध्रुवस्य वैकुण्ठपदाधिरोहणम् ।
+> सूत उवाच\
+> निशम्य कौषारविणोपवर्णितं ध्रुवस्य वैकुण्ठपदाधिरोहणम् ।\
 > प्ररूढभावो भगवत्यधोक्षजे प्रष्टुं पुनस्तं विदुरः प्रचक्रमे ॥१॥
 
-> sūta uvāca
-> niśamya kauṣāraviṇopavarṇitaṁ
-> dhruvasya vaikuṇṭha-padādhirohaṇam
-> prarūḍha-bhāvo bhagavaty adhokṣaje
+> sūta uvāca\
+> niśamya kauṣāraviṇopavarṇitaṁ\
+> dhruvasya vaikuṇṭha-padādhirohaṇam\
+> prarūḍha-bhāvo bhagavaty adhokṣaje\
 > praṣṭuṁ punas taṁ viduraḥ pracakrame
 
 *sūtaḥ uvāca*—Sūta Gosvāmī dijo; *niśamya*—después de escuchar; *kauṣāraviṇā*—por el sabio Maitreya; *upavarṇitam*—narrada; *dhruvasya*—de Mahārāja Dhruva; *vaikuṇṭha-pada*—a la morada de Viṣṇu; *adhirohaṇam*—ascensión; *prarūḍha*—aumentada; *bhāvaḥ*—emoción devocional; *bhagavati*—hacia la Suprema Personalidad de Dios; *adhokṣaje*—que está más allá del alcance de la percepción directa; *praṣṭum*—preguntar; *punaḥ*—de nuevo; *tam*—a Maitreya; *viduraḥ*—Vidura; *pracakrame*—se dispuso a.

@@ -1,13 +1,13 @@
 ### SB 4.8.27
 
-> नारद उवाच
-> नाधुनाप्यवमानं ते सम्मानं वापि पुत्रक ।
+> नारद उवाच\
+> नाधुनाप्यवमानं ते सम्मानं वापि पुत्रक ।\
 > लक्षयामः कुमारस्य सक्तस्य क्रीडनादिषु ॥२७॥
 
-> nārada uvāca
-> nādhunāpy avamānaṁ te
-> sammānaṁ vāpi putraka
-> lakṣayāmaḥ kumārasya
+> nārada uvāca\
+> nādhunāpy avamānaṁ te\
+> sammānaṁ vāpi putraka\
+> lakṣayāmaḥ kumārasya\
 > saktasya krīḍanādiṣu
 
 *nāradaḥ uvāca*—el gran sabio Nārada dijo; *na*—no; *adhunā*—ahora; *api*—aunque; *avamānam*—insulto; *te*—a ti; *sammānam*—ofrecer respeto; *vā*—o; *api*—ciertamente; *putraka*—mi querido niño; *lakṣayāmaḥ*—puedo ver; *kumārasya*—de niños como tú; *saktasya*—estar apegados; *krīḍana-ādiṣu*—a juegos y frivolidades.

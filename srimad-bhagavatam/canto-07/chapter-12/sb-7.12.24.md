@@ -1,11 +1,11 @@
 ### SB 7.12.24
 
-> आत्मन्यग्नीन्समारोप्य सन्न्यस्याहं ममात्मताम
+> आत्मन्यग्नीन्समारोप्य सन्न्यस्याहं ममात्मताम\
 > कारणेषु न्यसेत्सम्यक्सङ्घातं तु यथार्हतः ॥२४॥
 
-> ātmany agnīn samāropya
-> sannyasyāhaṁ mamātmatām
-> kāraṇeṣu nyaset samyak
+> ātmany agnīn samāropya\
+> sannyasyāhaṁ mamātmatām\
+> kāraṇeṣu nyaset samyak\
 > saṅghātaṁ tu yathārhataḥ
 
 *ātmani*—in one's self; *agnīn*—the fire elements within the body; *samāropya*—properly placing; *sannyasya*—giving up; *aham*—false identity; *mama*—false conception; *ātmatām*—of the body's being one's self or one's own; *kāraṇeṣu*—in the five elements that cause the material body; *nyaset*—one should merge; *samyak*—completely; *saṅghātam*—combination; *tu*—but; *yathā-arhataḥ*—as it befits.

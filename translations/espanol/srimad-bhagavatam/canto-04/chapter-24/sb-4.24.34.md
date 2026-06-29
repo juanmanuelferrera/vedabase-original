@@ -1,11 +1,11 @@
 ### SB 4.24.34
 
-> नमः पङ्कजनाभाय भूतसूक्ष्मेन्द्रियात्मने ।
+> नमः पङ्कजनाभाय भूतसूक्ष्मेन्द्रियात्मने ।\
 > वासुदेवाय शान्ताय कूटस्थाय स्वरोचिषे ॥३४॥
 
-> namaḥ paṅkaja-nābhāya
-> bhūta-sūkṣmendriyātmane
-> vāsudevāya śāntāya
+> namaḥ paṅkaja-nābhāya\
+> bhūta-sūkṣmendriyātmane\
+> vāsudevāya śāntāya\
 > kūṭa-sthāya sva-rociṣe
 
 *namaḥ*—toda reverencia a Ti; *paṅkaja-nābhāya*—a la Suprema Personalidad de Dios, de cuyo ombligo emana la flor de loto; *bhūta-sūkṣma*—los objetos de los sentidos; *indriya*—los sentidos; *ātmane*—el origen; *vāsudevāya*—al Señor Vāsudeva; *śāntāya*—siempre en paz; *kūṭa-sthāya*—sin ser cambiado; *sva-rociṣe*—a la iluminación suprema.

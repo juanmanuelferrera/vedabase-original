@@ -1,9 +1,9 @@
 ### CC Adi 14.76
 
-> কভু পুত্রসঙ্গে শচী করিলা শয়ন ।
+> কভু পুত্রসঙ্গে শচী করিলা শয়ন ।\
 > দেখে, দিব্যলোক আসি’ ভরিল ভবন ॥৭৬॥
 
-> kabhu putra-saṅge śacī karilā śayana
+> kabhu putra-saṅge śacī karilā śayana\
 > dekhe, divyaloka āsi' bharila bhavana
 
 *kabhu*—a veces; *putra-saṅge*—llevando al niño consigo; *śacī*—la madre Śacī; *karilā śayana*—se recostó; *dekhe*—ve; *divya-loka*—habitantes celestiales; *āsi'*—acudiendo allí; *bharila*—llenaron; *bhavana*—toda la casa.

@@ -1,13 +1,13 @@
 ### CC Antya 19.97
 
-> সেই গন্ধবশ নাসা, সদা করে গন্ধের আশা,
-> কভু পায়, কভু নাহি পায় ।
-> পাইলে পিয়া পেট ভরে, পিঙ পিঙ তবু করে,
+> সেই গন্ধবশ নাসা, সদা করে গন্ধের আশা,\
+> কভু পায়, কভু নাহি পায় ।\
+> পাইলে পিয়া পেট ভরে, পিঙ পিঙ তবু করে,\
 > না পাইলে তৃষ্ণায় মরি’ যায় ॥৯৭॥
 
-> sei gandha-vaśa nāsā, sadā kare gandhera āśā,
-> kabhu pāya, kabhu nāhi pāya
-> pāile piyā peṭa bhare, piṅa piṅa tabu kare,
+> sei gandha-vaśa nāsā, sadā kare gandhera āśā,\
+> kabhu pāya, kabhu nāhi pāya\
+> pāile piyā peṭa bhare, piṅa piṅa tabu kare,\
 > nā pāile tṛṣṇāya mari' yāya
 
 *sei*—aquella; *gandha-vaśa*—bajo el dominio de la fragancia; *nāsā*—las fosas nasales; *sadā*—siempre; *kare*—hacen; *gandhera*—de la fragancia; *āśā*—anhelo; *kabhu pāya*—a veces la obtienen; *kabhu nāhi pāya*—a veces no la obtienen; *pāile*—si la obtienen; *piyā*—bebiendo; *peṭa*—el vientre; *bhare*—se llena; *piṅa*—déjame beber; *piṅa*—déjame beber; *tabu*—aun así; *kare*—anhelan; *nā pāile*—si no la obtienen; *tṛṣṇāya*—de sed; *mari' yāya*—mueren.

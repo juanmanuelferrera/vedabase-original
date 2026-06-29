@@ -1,13 +1,13 @@
 ### SB 8.7.18
 
-> मेघश्यामः कनकपरिधिः कर्णविद्योतविद्युन
-> मूर्ध्नि भ्राजद्विलुलितकचः स्रग्धरो रक्तनेत्रः
-> जैत्रैर्दोर्भिर्जगदभयदैर्दन्दशूकं गृहीत्वा
+> मेघश्यामः कनकपरिधिः कर्णविद्योतविद्युन\
+> मूर्ध्नि भ्राजद्विलुलितकचः स्रग्धरो रक्तनेत्रः\
+> जैत्रैर्दोर्भिर्जगदभयदैर्दन्दशूकं गृहीत्वा\
 > मथ्नन्मथ्ना प्रतिगिरिरिवाशोभताथो धृताद्रिः ॥१८॥
 
-> nirmathyamānād udadher abhūd viṣaṁ
-> maholbaṇaṁ hālahalāhvam agrataḥ
-> sambhrānta-mīnonmakarāhi-kacchapāt
+> nirmathyamānād udadher abhūd viṣaṁ\
+> maholbaṇaṁ hālahalāhvam agrataḥ\
+> sambhrānta-mīnonmakarāhi-kacchapāt\
 > timi-dvipa-grāha-timiṅgilākulāt
 
 *nirmathyamānāt*—mientras se llevaban a cabo las actividades de batir; *udadheḥ*—del océano; *abhūt*—había; *viṣam*—veneno; *mahā-ulbaṇam*—muy violento; *hālahala-āhvam*—llamado *hālahala*; *agrataḥ*—al principio; *sambhrānta*—agitados y yendo de un lugar a otro; *mīna*—varias clases de peces; *unmakara*—tiburones; *ahi*—varias clases de serpientes; *kacchapāt*—y muchas especies de tortugas; *timi*—ballenas; *dvipa*—elefantes marinos; *grāha*—cocodrilos; *timiṅgila*—ballenas que pueden tragarse ballenas; *ākulāt*—muy agitados.

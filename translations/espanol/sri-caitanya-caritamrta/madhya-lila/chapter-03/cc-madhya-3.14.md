@@ -1,9 +1,9 @@
 ### CC Madhya 3.14
 
-> শুনি’ তা-সবার নিকট গেলা গৌরহরি ।
+> শুনি’ তা-সবার নিকট গেলা গৌরহরি ।\
 > ‘বল’ ‘বল’ বলে সবারে শিরে হস্ত ধরি’ ॥১৪॥
 
-> śuni' tā-sabāra nikaṭa gelā gaurahari
+> śuni' tā-sabāra nikaṭa gelā gaurahari\
 > 'bala' 'bala' bale sabāra śire hasta dhari'
 
 *śuni'*—al oír; *tā-sabāra*—de todos ellos; *nikaṭa*—cerca; *gelā*—se acercó; *gaurahari*—Śrī Caitanya Mahāprabhu; *bala bala*—seguid cantando, seguid cantando; *bale*—dijo; *sabāra*—de todos ellos; *śire hasta dhari'*—poniendo Su mano sobre sus cabezas.

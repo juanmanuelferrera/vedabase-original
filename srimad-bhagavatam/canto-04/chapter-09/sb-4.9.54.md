@@ -1,11 +1,11 @@
 ### SB 4.9.54
 
-> तत्र तत्रोपसङ्कॢप्तैर्लसन्मकरतोरणैः ।
+> तत्र तत्रोपसङ्कॢप्तैर्लसन्मकरतोरणैः ।\
 > सवृन्दैः कदलीस्तम्भैः पूगपोतैश्च तद्विधैः ॥५४॥
 
-> tatra tatropasaṅkḷptair
-> lasan-makara-toraṇaiḥ
-> savṛndaiḥ kadalī-stambhaiḥ
+> tatra tatropasaṅkḷptair\
+> lasan-makara-toraṇaiḥ\
+> savṛndaiḥ kadalī-stambhaiḥ\
 > pūga-potaiś ca tad-vidhaiḥ
 
 *tatra tatra*—here and there; *upasaṅkḷptaiḥ*—set up; *lasat*—brilliant; *makara*—shark-shaped; *toraṇaiḥ*—with arched gateways; *sa-vṛndaiḥ*—with bunches of fruits and flowers; *kadalī*—of banana trees; *stambhaiḥ*—with columns; *pūga-potaiḥ*—with young betel nut trees; *ca*—also; *tat-vidhaiḥ*—of that kind.

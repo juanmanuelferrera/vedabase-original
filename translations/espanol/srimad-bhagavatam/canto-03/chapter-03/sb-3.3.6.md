@@ -1,11 +1,11 @@
 ### SB 3.3.6
 
-> सुतं मृधे खं वपुषा ग्रसन्तं दृष्ट्वा सुनाभोन्मथितं धरित्र्या ।
+> सुतं मृधे खं वपुषा ग्रसन्तं दृष्ट्वा सुनाभोन्मथितं धरित्र्या ।\
 > आमन्त्रितस्तत्तनयाय शेषं दत्त्वा तदन्तःपुरमाविवेश ॥६॥
 
-> sutaṁ mṛdhe khaṁ vapuṣā grasantaṁ
-> dṛṣṭvā sunābhonmathitaṁ dharitryā
-> āmantritas tat-tanayāya śeṣaṁ
+> sutaṁ mṛdhe khaṁ vapuṣā grasantaṁ\
+> dṛṣṭvā sunābhonmathitaṁ dharitryā\
+> āmantritas tat-tanayāya śeṣaṁ\
 > dattvā tad-antaḥ-puram āviveśa
 
 *sutam*—hijo; *mṛdhe*—en la batalla; *kham*—el cielo; *vapuṣā*—mediante su cuerpo; *grasantam*—mientras devoraba; *dṛṣṭvā*—viendo; *sunābha*—mediante el disco Sudarśana; *unmathitam*—mató; *dharitryā*—por parte de la Tierra; *āmantritaḥ*—habiéndosele orado para ello; *tat-tanayāya*—al hijo de Narakāsura; *śeṣam*—aquello de lo que fue despojado; *dattvā*—devolviéndolo; *tat*—su; *antaḥ-puram*—dentro de la casa; *āviveśa*—entró.

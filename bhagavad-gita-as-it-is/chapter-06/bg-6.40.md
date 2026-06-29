@@ -1,13 +1,13 @@
 ### Bg 6.40
 
-> श्रीभगवानुवाच ।
-> पार्थ नैवेह नामुत्र विनाशस्तस्य विद्यते ।
+> श्रीभगवानुवाच ।\
+> पार्थ नैवेह नामुत्र विनाशस्तस्य विद्यते ।\
 > न हि कल्याणकृत्कश्चिद् दुर्गतिं तात गच्छति ॥४०॥
 
-> śrī-bhagavān uvāca
-> pārtha naiveha nāmutra
-> vināśas tasya vidyate
-> na hi kalyāṇa-kṛt kaścid
+> śrī-bhagavān uvāca\
+> pārtha naiveha nāmutra\
+> vināśas tasya vidyate\
+> na hi kalyāṇa-kṛt kaścid\
 > durgatiṁ tāta gacchati
 
 *śrī bhagavān uvāca*—the Supreme Personality of Godhead said; *pārtha*—O son of Prthā; *na eva*—never is it so; *iha*—in this material world; *na*—never; *amutra*—in the next life; *vināśaḥ*—destruction; *tasya*—his; *vidyate*—exists; *na*—never; *hi*—certainly; *kalyāṇa-kṛt*—one who is engaged in auspicious activities; *kaścit*—anyone; *durgatim*—degradation; *tāta*—thereafter; *gacchati*—going.

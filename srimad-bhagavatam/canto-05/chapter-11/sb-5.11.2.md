@@ -1,11 +1,11 @@
 ### SB 5.11.2
 
-> तथैव राजन्नुरुगार्हमेध वितानविद्योरुविजृम्भितेषु
+> तथैव राजन्नुरुगार्हमेध वितानविद्योरुविजृम्भितेषु\
 > न वेदवादेषु हि तत्त्ववादः प्रायेण शुद्धो नु चकास्ति साधुः ॥२॥
 
-> tathaiva rājann uru-gārhamedha-
-> vitāna-vidyoru-vijṛmbhiteṣu
-> na veda-vādeṣu hi tattva-vādaḥ
+> tathaiva rājann uru-gārhamedha-\
+> vitāna-vidyoru-vijṛmbhiteṣu\
+> na veda-vādeṣu hi tattva-vādaḥ\
 > prāyeṇa śuddho nu cakāsti sādhuḥ
 
 *tathā*—therefore; *eva*—indeed; *rājan*—O King; *uru-gārha-medha*—rituals related to material household life; *vitāna-vidyā*—in knowledge that expands; *uru*—very greatly; *vijṛmbhiteṣu*—among those interested; *na*—not; *veda-vādeṣu*—who speak the version of the *Vedas*; *hi*—indeed; *tattva-vādaḥ*—the spiritual science; *prāyeṇa*—almost always; *śuddhaḥ*—free from all contaminated activities; *nu*—indeed; *cakāsti*—appear; *sādhuḥ*—a person who is advanced in devotional service.

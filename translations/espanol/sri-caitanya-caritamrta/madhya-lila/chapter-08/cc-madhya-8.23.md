@@ -1,9 +1,9 @@
 ### CC Madhya 8.23
 
-> স্বাভাবিক প্রেম দোঁহার উদয় করিলা ৷
+> স্বাভাবিক প্রেম দোঁহার উদয় করিলা ৷\
 > দুঁহা আলিঙ্গিয়া দুঁহে ভূমিতে পড়িলা ৷৷ ২৩ ৷৷ ॥২৩॥
 
-> svābhāvika prema doṅhāra udaya karilā
+> svābhāvika prema doṅhāra udaya karilā\
 > duṅhā āliṅgiyā duṅhe bhūmite paḍilā
 
 *svābhāvika*—natural; *prema*—amor; *doṅhāra*—de ambos; *udaya*—despertar; *karilā*—hubo; *duṅhā*—ambos; *āliṅgiyā*—abrazándose; *duṅhe*—los dos; *bhūmite*—al suelo; *paḍilā*—cayeron.

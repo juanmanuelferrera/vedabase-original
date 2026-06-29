@@ -1,9 +1,9 @@
 ### CC Madhya 18.18
 
-> ‘মথুরা’-পদ্মের পশ্চিমদলে যাঁর বাস ।
+> ‘মথুরা’-পদ্মের পশ্চিমদলে যাঁর বাস ।\
 > ‘হরিদেব’ নারায়ণ — আদি পরকাশ ॥১৮॥
 
-> 'mathurā'-padmera paścima-dale yāṅra vāsa
+> 'mathurā'-padmera paścima-dale yāṅra vāsa\
 > 'harideva' nārāyaṇa--ādi parakāśa
 
 *mathurā-padmera*—de la flor de loto de Mathurā; *paścima-dale*—en el pétalo occidental; *yāṅra*—cuya; *vāsa*—residencia; *hari-deva*—el Señor Harideva; *nārāyaṇa*—encarnación de Nārāyaṇa; *ādi*—original; *parakāśa*—manifestación.

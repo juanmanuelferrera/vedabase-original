@@ -1,11 +1,11 @@
 ### SB 1.6.18
 
-> रूपं भगवतो यत्तन्मनःकान्तं शुचापहम् ।
+> रूपं भगवतो यत्तन्मनःकान्तं शुचापहम् ।\
 > अपश्यन्सहसोत्तस्थे वैक्लव्याद्दुर्मना इव ॥१८॥
 
-> rūpaṁ bhagavato yat tan
-> manaḥ-kāntaṁ śucāpaham
-> apaśyan sahasottasthe
+> rūpaṁ bhagavato yat tan\
+> manaḥ-kāntaṁ śucāpaham\
+> apaśyan sahasottasthe\
 > vaiklavyād durmanā iva
 
 *rūpam*—forma; *bhagavataḥ*—de la Personalidad de Dios; *yat*—tal como es; *tat*—esa; *manaḥ*—de la mente; *kāntam*—tal como desea; *śuca-apaham*—disipando toda disparidad; *apaśyan*—sin ver; *sahasā*—de repente; *uttasthe*—me levanté; *vaiklavyāt*—estando perturbado; *durmanāḥ*—habiendo perdido lo deseable; *iva*—como si.

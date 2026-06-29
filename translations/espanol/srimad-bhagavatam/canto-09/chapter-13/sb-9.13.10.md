@@ -1,11 +1,11 @@
 ### SB 9.13.10
 
-> देहं नावरुरुत्सेऽहं दुःखशोकभयावहम
+> देहं नावरुरुत्सेऽहं दुःखशोकभयावहम\
 > सर्वत्रास्य यतो मृत्युर्मत्स्यानामुदके यथा ॥१०॥
 
-> dehaṁ nāvarurutse 'haṁ
-> duḥkha-śoka-bhayāvaham
-> sarvatrāsya yato mṛtyur
+> dehaṁ nāvarurutse 'haṁ\
+> duḥkha-śoka-bhayāvaham\
+> sarvatrāsya yato mṛtyur\
 > matsyānām udake yathā
 
 *deham*—un cuerpo material; *na*—no; *avarurutse*—deseo recibir; *aham*—yo; *duḥkha-śoka-bhaya-āvaham*—que es la causa de todo tipo de sufrimientos, lamentaciones y temores; *sarvatra*—siempre y en todas partes en el universo; *asya*—de las entidades vivientes que han recibido cuerpos materiales; *yataḥ*—puesto que; *mṛtyuḥ*—muerte; *matsyānām*—del pez; *udake*—que vive en el agua; *yathā*—como.

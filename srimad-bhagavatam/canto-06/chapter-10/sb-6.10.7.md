@@ -1,13 +1,13 @@
 ### SB 6.10.7
 
-> श्रीऋषिरुवाच
-> धर्मं वः श्रोतुकामेन यूयं मे प्रत्युदाहृताः
+> श्रीऋषिरुवाच\
+> धर्मं वः श्रोतुकामेन यूयं मे प्रत्युदाहृताः\
 > एष वः प्रियमात्मानं त्यजन्तं सन्त्यजाम्यहम ॥७॥
 
-> śrī-ṛṣir uvāca
-> dharmaṁ vaḥ śrotu-kāmena
-> yūyaṁ me pratyudāhṛtāḥ
-> eṣa vaḥ priyam ātmānaṁ
+> śrī-ṛṣir uvāca\
+> dharmaṁ vaḥ śrotu-kāmena\
+> yūyaṁ me pratyudāhṛtāḥ\
+> eṣa vaḥ priyam ātmānaṁ\
 > tyajantaṁ santyajāmy aham
 
 *śrī-ṛṣiḥ uvāca*—the great saint Dadhīci said; *dharmam*—the principles of religion; *vaḥ*—from you; *śrotu-kāmena*—by the desire to hear; *yūyam*—you; *me*—by me; *pratyudāhṛtāḥ*—replied to the contrary; *eṣaḥ*—this; *vaḥ*—for you; *priyam*—dear; *ātmānam*—body; *tyajantam*—leaving me anyway, today or tomorrow; *santyajāmi*—give up; *aham*—I.

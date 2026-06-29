@@ -1,11 +1,11 @@
 ### SB 2.2.32
 
-> एते सृती ते नृप वेदगीते त्वयाभिपृष्टे च सनातने च ।
+> एते सृती ते नृप वेदगीते त्वयाभिपृष्टे च सनातने च ।\
 > ये वै पुरा ब्रह्मण आह तुष्ट आराधितो भगवान्वासुदेवः ॥३२॥
 
-> ete sṛtī te nṛpa veda-gīte
-> tvayābhipṛṣṭe ca sanātane ca
-> ye vai purā brahmaṇa āha tuṣṭa
+> ete sṛtī te nṛpa veda-gīte\
+> tvayābhipṛṣṭe ca sanātane ca\
+> ye vai purā brahmaṇa āha tuṣṭa\
 > ārādhito bhagavān vāsudevaḥ
 
 *ete*—todo lo que se describe; *sṛtī*—manera; *te*—a ti; *nṛpa*—¡oh, Mahārāja Parīkṣit!; *veda-gīte*—de acuerdo con la versión de los *Vedas*; *tvayā*—por su majestad; *abhipṛṣṭe*—siendo debidamente interrogado; *ca*—además; *sanātane*—en lo referente a la verdad eterna; *ca*—en verdad; *ye*—lo cual; *vai*—ciertamente; *purā*—antes; *brahmaṇe*—al Señor Brahmā; *āha*—dijo; *tuṣṭaḥ*—estando satisfecho; *ārādhitaḥ*—siendo adorado; *bhagavān*—la Personalidad de Dios; *vāsudevaḥ*—el Señor Kṛṣṇa.

@@ -1,11 +1,11 @@
 ### SB 2.3.22
 
-> बर्हायिते ते नयने नराणां लिङ्गानि विष्णोर्न निरीक्षतो ये ।
+> बर्हायिते ते नयने नराणां लिङ्गानि विष्णोर्न निरीक्षतो ये ।\
 > पादौ नृणां तौ द्रुमजन्मभाजौ क्षेत्राणि नानुव्रजतो हरेर्यौ ॥२२॥
 
-> barhāyite te nayane narāṇāṁ
-> liṅgāni viṣṇor na nirīkṣato ye
-> pādau nṛṇāṁ tau druma-janma-bhājau
+> barhāyite te nayane narāṇāṁ\
+> liṅgāni viṣṇor na nirīkṣato ye\
+> pādau nṛṇāṁ tau druma-janma-bhājau\
 > kṣetrāṇi nānuvrajato harer yau
 
 *barhāyite*—como las plumas de un pavo real; *te*—aquellos; *nayane*—ojos; *narāṇām*—de hombres; *liṅgāni*—formas; *viṣṇoḥ*—de la Personalidad de Dios; *na*—no; *nirīkṣataḥ*—miran; *ye*—todos esos; *pādau*—piernas; *nṛṇām*—de hombres; *tau*—aquellas; *druma-janma*—nacido del árbol; *bhājau*—así; *kṣetrāṇi*—lugares sagrados; *na*—nunca; *anuvrajataḥ*—busca; *hareḥ*—del Señor; *yau*—el cual.

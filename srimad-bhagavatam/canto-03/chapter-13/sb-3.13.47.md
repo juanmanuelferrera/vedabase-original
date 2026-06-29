@@ -1,11 +1,11 @@
 ### SB 3.13.47
 
-> स इत्थं भगवानुर्वीं विष्वक्सेनः प्रजापतिः ।
+> स इत्थं भगवानुर्वीं विष्वक्सेनः प्रजापतिः ।\
 > रसाया लीलयोन्नीतामप्सु न्यस्य ययौ हरिः ॥४७॥
 
-> sa itthaṁ bhagavān urvīṁ
-> viṣvaksenaḥ prajāpatiḥ
-> rasāyā līlayonnītām
+> sa itthaṁ bhagavān urvīṁ\
+> viṣvaksenaḥ prajāpatiḥ\
+> rasāyā līlayonnītām\
 > apsu nyasya yayau hariḥ
 
 *saḥ*—He; *ittham*—in this manner; *bhagavān*—the Personality of Godhead; *urvīm*—the earth; *viṣvaksenaḥ*—another name of Viṣṇu; *prajā-patiḥ*—the Lord of the living entities; *rasāyāḥ*—from within the water; *līlayā*—very easily; *unnītām*—raised; *apsu*—on the water; *nyasya*—placing; *yayau*—returned to His own abode; *hariḥ*—the Personality of Godhead.

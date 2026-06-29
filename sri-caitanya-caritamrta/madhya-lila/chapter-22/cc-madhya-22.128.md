@@ -1,9 +1,9 @@
 ### CC Madhya 22.128
 
-> সাধুসঙ্গ, নামকীর্তন, ভাগবতশ্রবণ  ।
+> সাধুসঙ্গ, নামকীর্তন, ভাগবতশ্রবণ  ।\
 > মথুরাবাস, শ্রীমূর্তির শ্রদ্ধায় সেবন ॥১২৮॥
 
-> sādhu-saṅga, nāma-kīrtana, bhāgavata-śravaṇa
+> sādhu-saṅga, nāma-kīrtana, bhāgavata-śravaṇa\
 > mathurā-vāsa, śrī-mūrtira śraddhāya sevana
 
 *sādhu-saṅga*—association with devotees; *nāma-kīrtana*—chanting the holy name; *bhāgavata-śravaṇa*—hearing *Śrīmad-Bhāgavatam*; *mathurā-vāsa*—living at Mathurā; *śrī-mūrtira śraddhāya sevana*—worshiping the Deity with faith and veneration.

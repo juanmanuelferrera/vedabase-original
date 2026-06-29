@@ -1,9 +1,9 @@
 ### CC Antya 3.35
 
-> ক্ষণেকে অশ্রু মুছিয়া শূন্য দেখি’ পাত ।
+> ক্ষণেকে অশ্রু মুছিয়া শূন্য দেখি’ পাত ।\
 > স্বপন দেখিলুঁ, ‘যেন নিমাঞি খাইল ভাত’ ॥৩৫॥
 
-> kṣaṇeke aśru muchiyā śūnya dekhi' pāta
+> kṣaṇeke aśru muchiyā śūnya dekhi' pāta\
 > svapana dekhiluṅ,'yena nimāñi khāila bhāta'
 
 *kṣaṇeke*—in a moment; *aśru*—tears; *muchiyā*—wiping; *śūnya*—vacant; *dekhi'*—seeing; *pāta*—the plate; *svapana dekhiluṅ*—I saw a dream; *yena*—as if; *nimāñi*—Śrī Caitanya Mahāprabhu; *khāila bhāta*—ate the food.

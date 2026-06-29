@@ -1,9 +1,9 @@
 ### CC Madhya 21.34
 
-> পরম ঈশ্বর কৃষ্ণ স্বয়ং ভগবান্ ।
+> পরম ঈশ্বর কৃষ্ণ স্বয়ং ভগবান্ ।\
 > তাতে বড়, তাঁর সম কেহ নাহি আন ॥৩৪॥
 
-> parama īśvara kṛṣṇa svayaṁ bhagavān
+> parama īśvara kṛṣṇa svayaṁ bhagavān\
 > tāte baḍa, tāṅra sama keha nāhi āna
 
 *parama*—supremo; *īśvara*—controlador; *kṛṣṇa*—el Señor Kṛṣṇa; *svayam*—personalmente; *bhagavān*—la Personalidad de Dios original; *tāte*—por lo tanto; *baḍa*—el más excelso; *tāṅra*—Su; *sama*—igual; *keha*—nadie; *nāhi*—no hay; *āna*—otro.

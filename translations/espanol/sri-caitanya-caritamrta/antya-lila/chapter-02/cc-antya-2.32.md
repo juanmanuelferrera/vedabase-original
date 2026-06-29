@@ -1,9 +1,9 @@
 ### CC Antya 2.32
 
-> তবে শিবানন্দের মন প্রতীতি হইল ।
+> তবে শিবানন্দের মন প্রতীতি হইল ।\
 > অনেক সম্মান করি’ বহু ভক্তি কৈল ॥৩২॥
 
-> tabe śivānandera mane pratīti ha-ila
+> tabe śivānandera mane pratīti ha-ila\
 > aneka sammāna kari' bahu bhakti kaila
 
 *tabe*—a partir de entonces; *śivānandera*—de Śivānanda Sena; *mane*—en la mente; *pratīti ha-ila*—hubo confianza; *aneka sammāna kari'*—ofreciéndole mucho respeto; *bahu bhakti kaila*—le ofreció servicio devocional.

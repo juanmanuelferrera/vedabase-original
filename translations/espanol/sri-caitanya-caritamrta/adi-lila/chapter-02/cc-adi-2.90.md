@@ -1,9 +1,9 @@
 ### CC Adi 2.90
 
-> তৈছে সব অবতারের কৃষ্ণ সে কারণ ।
+> তৈছে সব অবতারের কৃষ্ণ সে কারণ ।\
 > আর এক শ্লোক শুন, কুব্যাখ্যা-খণ্ডন ॥৯০॥
 
-> taiche saba avatārera kṛṣṇa se kāraṇa
+> taiche saba avatārera kṛṣṇa se kāraṇa\
 > āra eka śloka śuna, kuvyākhyā-khaṇḍana
 
 *taiche*—de manera similar; *saba*—todas; *avatārera*—de las encarnaciones; *kṛṣṇa*—el Señor Kṛṣṇa; *se*—Él; *kāraṇa*—la causa; *āra*—otro; *eka*—un; *śloka*—verso; *śuna*—por favor escuchad; *ku-vyākhyā*—explicaciones falaces; *khaṇḍana*—refutación.

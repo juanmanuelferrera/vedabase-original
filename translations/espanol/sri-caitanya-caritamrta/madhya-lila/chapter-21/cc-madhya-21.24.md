@@ -1,9 +1,9 @@
 ### CC Madhya 21.24
 
-> ইহা দেখি’ ব্রহ্মা হৈলা মোহিত, বিস্মিত  ।
+> ইহা দেখি’ ব্রহ্মা হৈলা মোহিত, বিস্মিত  ।\
 > স্তুতি করি’ এই পাছে করিলা নিশ্চিত ॥২৪॥
 
-> ihā dekhi' brahmā hailā mohita, vismita
+> ihā dekhi' brahmā hailā mohita, vismita\
 > stuti kari' ei pāche karilā niścita
 
 *ihā dekhi'*—al ver esto; *brahmā*—el Señor Brahmā; *hailā*—quedó; *mohita*—asombrado; *vismita*—pasmado de admiración; *stuti kari'*—al ofrecer oraciones; *ei*—esta; *pāche*—al final; *karilā*—formuló; *niścita*—conclusión.

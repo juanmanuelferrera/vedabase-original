@@ -1,9 +1,9 @@
 ### CC Madhya 5.30
 
-> তোমাকে কন্যা দিব, সবাকে করি’ তিরস্কার ।
+> তোমাকে কন্যা দিব, সবাকে করি’ তিরস্কার ।\
 > সংশয় না কর তুমি, করহ স্বীকার ।।” ॥ ৩০ ॥
 
-> tomāke kanyā diba, sabāke kari' tiraskāra
+> tomāke kanyā diba, sabāke kari' tiraskāra\
 > saṁśaya nā kara tumi, karaha svīkāra"
 
 *tomāke*—to you; *kanyā*—the daughter; *diba*—I shall offer; *sabāke*—all others; *kari'*—doing; *tiraskāra*—neglecting; *saṁśaya*—doubt; *nā*—not; *kara*—do; *tumi*—you; *karaha*—just do; *svīkāra*—acceptance.

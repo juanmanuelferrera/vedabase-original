@@ -1,9 +1,9 @@
 ### CC Adi 11.44
 
-> নিত্যানন্দভৃত্য পরমানন্দ উপাধ্যায় ।
+> নিত্যানন্দভৃত্য পরমানন্দ উপাধ্যায় ।\
 > শ্রীজীব পণ্ডিত নিত্যানন্দ-গুণ গায় ॥৪৪॥
 
-> nityānanda-bhṛtya--paramānanda upādhyāya
+> nityānanda-bhṛtya--paramānanda upādhyāya\
 > śrī-jīva paṇḍita nityānanda-guṇa gāya
 
 *nityānanda-bhṛtya*—servidor de Nityānanda Prabhu; *paramānanda upādhyāya*—de nombre Paramānanda Upādhyāya; *śrī-jīva paṇḍita*—de nombre Śrī Jīva Paṇḍita; *nityānanda*—el Señor Nityānanda Prabhu; *guṇa*—cualidades; *gāya*—glorificó.

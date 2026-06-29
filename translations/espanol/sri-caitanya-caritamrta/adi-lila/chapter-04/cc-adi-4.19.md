@@ -1,9 +1,9 @@
 ### CC Adi 4.19
 
-> আমাকে ত’ যে যে ভক্ত ভজে যেই ভাবে ।
+> আমাকে ত’ যে যে ভক্ত ভজে যেই ভাবে ।\
 > তারে সে সে ভাবে ভজি, — এ মোর স্বভাবে ॥১৯॥
 
-> āmāke ta' ye ye bhakta bhaje yei bhāve
+> āmāke ta' ye ye bhakta bhaje yei bhāve\
 > tāre se se bhāve bhaji,--e mora svabhāve
 
 *āmāke*—a Mí; *ta'*—ciertamente; *ye ye*—cualquiera que; *bhakta*—devoto; *bhaje*—adora; *yei*—cual; *bhāve*—en el sentimiento; *tāre*—a él; *se se*—ese; *bhāve*—en el sentimiento; *bhaji*—correspondo; *e*—esta; *mora*—Mi; *svabhāve*—en la naturaleza.

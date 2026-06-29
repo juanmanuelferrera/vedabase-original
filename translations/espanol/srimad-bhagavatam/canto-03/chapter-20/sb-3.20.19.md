@@ -1,11 +1,11 @@
 ### SB 3.20.19
 
-> विससर्जात्मनः कायं नाभिनन्दंस्तमोमयम् ।
+> विससर्जात्मनः कायं नाभिनन्दंस्तमोमयम् ।\
 > जगृहुर्यक्षरक्षांसि रात्रिं क्षुत्तृट्समुद्भवाम् ॥१९॥
 
-> visasarjātmanaḥ kāyaṁ
-> nābhinandaṁs tamomayam
-> jagṛhur yakṣa-rakṣāṁsi
+> visasarjātmanaḥ kāyaṁ\
+> nābhinandaṁs tamomayam\
+> jagṛhur yakṣa-rakṣāṁsi\
 > rātriṁ kṣut-tṛṭ-samudbhavām
 
 *visasarja*—desechó; *ātmanaḥ*—su propio; *kāyam*—cuerpo; *na*—no; *abhinandan*—complacido; *tamaḥ-mayam*—hecho de ignorancia; *jagṛhuḥ*—se apoderaron; *yakṣa-rakṣāṁsi*—los *yakṣas* y *rākṣasas*; *rātrim*—noche; *kṣut*—hambre; *tṛṭ*—sed; *samudbhavām*—la fuente.

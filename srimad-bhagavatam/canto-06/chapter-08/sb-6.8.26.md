@@ -1,11 +1,11 @@
 ### SB 6.8.26
 
-> त्वं तिग्मधारासिवरारिसैन्यमीशप्रयुक्तो मम छिन्धि छिन्धि
+> त्वं तिग्मधारासिवरारिसैन्यमीशप्रयुक्तो मम छिन्धि छिन्धि\
 > चक्षूंषि चर्मन्छतचन्द्र छादय द्विषामघोनां हर पापचक्षुषाम ॥२६॥
 
-> tvaṁ tigma-dhārāsi-varāri-sainyam
-> īśa-prayukto mama chindhi chindhi
-> cakṣūṁṣi carmañ chata-candra chādaya
+> tvaṁ tigma-dhārāsi-varāri-sainyam\
+> īśa-prayukto mama chindhi chindhi\
+> cakṣūṁṣi carmañ chata-candra chādaya\
 > dviṣām aghonāṁ hara pāpa-cakṣuṣām
 
 *tvam*—you; *tigma-dhāra-asi-vara*—O best of swords possessing very sharp blades; *ari-sainyam*—the soldiers of the enemy; *īśa-prayuktaḥ*—being engaged by the Supreme Personality of Godhead; *mama*—my; *chindhi chindhi*—chop to pieces, chop to pieces; *cakṣūṁṣi*—the eyes; *carman*—O shield; *śata-candra*—possessing brilliant circles like a hundred moons; *chādaya*—please cover; *dviṣām*—of those who are envious of me; *aghonām*—who are completely sinful; *hara*—please take away; *pāpa-cakṣuṣām*—of those whose eyes are very sinful.

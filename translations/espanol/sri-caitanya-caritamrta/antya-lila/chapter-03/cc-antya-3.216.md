@@ -1,9 +1,9 @@
 ### CC Antya 3.216
 
-> গঙ্গা তীরে গোঁফা করি’ নির্জনে তাঁরে দিলা ।
+> গঙ্গা তীরে গোঁফা করি’ নির্জনে তাঁরে দিলা ।\
 > ভাগবত-গীতার ভক্তি-অর্থ শুনাইলা ॥২১৬॥
 
-> gaṅgā-tīre goṅphā kari' nirjane tāṅre dilā
+> gaṅgā-tīre goṅphā kari' nirjane tāṅre dilā\
 > bhāgavata-gītāra bhakti-artha śunāilā
 
 *gaṅgā-tīre*—a orillas del Ganges; *goṅphā kari'*—construyendo una pequeña morada en forma de cueva; *nirjane*—en un lugar solitario; *tāṅre*—a él; *dilā*—le ofreció; *bhāgavata*—del Śrīmad-Bhāgavatam; *gītāra*—del Bhagavad-gītā; *bhakti-artha*—el verdadero significado del servicio devocional; *śunāilā*—le habló.

@@ -1,12 +1,12 @@
 ### SB 7.1.34
 
-> देहेन्द्रियासुहीनानां वैकुण्ठपुरवासिनाम
+> देहेन्द्रियासुहीनानां वैकुण्ठपुरवासिनाम\
 > देहसम्बन्धसम्बद्धमेतदाख्यातुमर्हसि ॥३४॥
 
-> śrī-yudhiṣṭhira uvāca
-> kīdṛśaḥ kasya vā śāpo
-> hari-dāsābhimarśanaḥ
-> aśraddheya ivābhāti
+> śrī-yudhiṣṭhira uvāca\
+> kīdṛśaḥ kasya vā śāpo\
+> hari-dāsābhimarśanaḥ\
+> aśraddheya ivābhāti\
 > harer ekāntināṁ bhavaḥ
 
 *śrī-yudhiṣṭhiraḥ uvāca*—Mahārāja Yudhiṣṭhira dijo; *kīdṛśaḥ*—qué clase de; *kasya*—cuya; *vā*—o; *śāpaḥ*—maldición; *hari-dāsa*—el sirviente de Hari; *abhimarśanaḥ*—superar; *aśraddheyaḥ*—increíble; *iva*—como si; *ābhāti*—parece; *hareḥ*—de Hari; *ekāntinām*—de aquellos consagrados exclusivamente como sirvientes excelsos; *bhavaḥ*—nacimiento.

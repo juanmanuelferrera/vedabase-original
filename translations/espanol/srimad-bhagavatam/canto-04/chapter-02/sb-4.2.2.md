@@ -1,11 +1,11 @@
 ### SB 4.2.2
 
-> कस्तं चराचरगुरुं निर्वैरं शान्तविग्रहम् ।
+> कस्तं चराचरगुरुं निर्वैरं शान्तविग्रहम् ।\
 > आत्मारामं कथं द्वेष्टि जगतो दैवतं महत् ॥२॥
 
-> kas taṁ carācara-guruṁ
-> nirvairaṁ śānta-vigraham
-> ātmārāmaṁ kathaṁ dveṣṭi
+> kas taṁ carācara-guruṁ\
+> nirvairaṁ śānta-vigraham\
+> ātmārāmaṁ kathaṁ dveṣṭi\
 > jagato daivataṁ mahat
 
 *kaḥ*—quién (Dakṣa); *tam*—a él (el Señor Śiva); *cara-acara*—del mundo entero (tanto animado como inanimado); *gurum*—el maestro espiritual; *nirvairam*—libre de enemistad; *śānta-vigraham*—de personalidad pacífica; *ātma-ārāmam*—satisfecho en sí mismo; *katham*—cómo; *dveṣṭi*—odia; *jagataḥ*—del universo; *daivatam*—semidiós; *mahat*—al gran.

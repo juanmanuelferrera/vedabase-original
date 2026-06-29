@@ -1,11 +1,11 @@
 ### SB 1.12.26
 
-> राजर्षीणां जनयिता शास्ता चोत्पथगामिनाम् ।
+> राजर्षीणां जनयिता शास्ता चोत्पथगामिनाम् ।\
 > निग्रहीता कलेरेष भुवो धर्मस्य कारणात् ॥२६॥
 
-> rājarṣīṇāṁ janayitā
-> śāstā cotpatha-gāminām
-> nigrahītā kaler eṣa
+> rājarṣīṇāṁ janayitā\
+> śāstā cotpatha-gāminām\
+> nigrahītā kaler eṣa\
 > bhuvo dharmasya kāraṇāt
 
 *rāja-ṛṣīṇām*—of kings as good as sages; *janayitā*—producer; *śāstā*—chastiser; *ca*—and; *utpatha-gāminām*—of the upstarts; *nigrahītā*—molester; *kaleḥ*—of the quarrelsome; *eṣaḥ*—this; *bhuvaḥ*—of the world; *dharmasya*—of religion; *kāraṇāt*—on account of.

@@ -1,11 +1,11 @@
 ### SB 6.18.61
 
-> लब्ध्वा तदन्तरं शक्रो निद्रापहृतचेतसः
+> लब्ध्वा तदन्तरं शक्रो निद्रापहृतचेतसः\
 > दितेः प्रविष्ट उदरं योगेशो योगमायया ॥६१॥
 
-> labdhvā tad-antaraṁ śakro
-> nidrāpahṛta-cetasaḥ
-> diteḥ praviṣṭa udaraṁ
+> labdhvā tad-antaraṁ śakro\
+> nidrāpahṛta-cetasaḥ\
+> diteḥ praviṣṭa udaraṁ\
 > yogeśo yoga-māyayā
 
 *labdhvā*—finding; *tat-antaram*—after that; *śakraḥ*—Indra; *nidrā*—by sleep; *apahṛta-cetasaḥ*—unconscious; *diteḥ*—of Diti; *praviṣṭaḥ*—entered; *udaram*—the womb; *yoga-īśaḥ*—the master of *yoga*; *yoga*—of yogic perfections; *māyayā*—by the power.

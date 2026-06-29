@@ -1,9 +1,9 @@
 ### CC Adi 5.41
 
-> বাসুদেব-সঙ্কর্ষণ-প্রদ্যুম্নানিরুদ্ধ ।
+> বাসুদেব-সঙ্কর্ষণ-প্রদ্যুম্নানিরুদ্ধ ।\
 > ‘দ্বিতীয় চতুর্ব্যূহ’ এই — তুরীয়, বিশুদ্ধ ॥৪১॥
 
-> vāsudeva-saṅkarṣaṇa-pradyumnāniruddha
+> vāsudeva-saṅkarṣaṇa-pradyumnāniruddha\
 > 'dvitīya catur-vyūha' ei—turīya, viśuddha
 
 *vāsudeva*—the expansion named Vāsudeva; *saṅkarṣaṇa*—the expansion named Saṅkarṣaṇa; *pradyumna*—the expansion named Pradyumna; *aniruddha*—the expansion named Aniruddha; *dvitīya catuḥ-vyūha*—the second quadruple expansion; *ei*—this; *turīya*—transcendental; *viśuddha*—free from all material contamination.

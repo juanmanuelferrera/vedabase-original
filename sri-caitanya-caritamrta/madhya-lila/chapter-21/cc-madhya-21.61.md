@@ -1,9 +1,9 @@
 ### CC Madhya 21.61
 
-> বিস্মিত হঞা ব্রহ্মা দ্বারীকে কহিলা ।
+> বিস্মিত হঞা ব্রহ্মা দ্বারীকে কহিলা ।\
 > ‘কহ গিয়া সনক-পিতা চতুর্মুখ আইলা’ ॥৬১॥
 
-> vismita hañā brahmā dvārīke kahilā
+> vismita hañā brahmā dvārīke kahilā\
 > 'kaha giyā sanaka-pitā caturmukha āilā'
 
 *vismita hañā*—becoming surprised; *brahmā*—Lord Brahmā; *dvārīke*—unto the doorman; *kahilā*—replied; *kaha*—inform; *giyā*—going; *sanaka-pitā*—the father of the four Kumāras; *catuḥ-mukha*—four-headed; *āilā*—has come.

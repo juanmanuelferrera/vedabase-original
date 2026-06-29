@@ -1,11 +1,11 @@
 ### SB 1.7.26
 
-> किमिदं स्वित्कुतो वेति देवदेव न वेद्म्यहम् ।
+> किमिदं स्वित्कुतो वेति देवदेव न वेद्म्यहम् ।\
 > सर्वतो मुखमायाति तेजः परमदारुणम् ॥२६॥
 
-> kim idaṁ svit kuto veti
-> deva-deva na vedmy aham
-> sarvato mukham āyāti
+> kim idaṁ svit kuto veti\
+> deva-deva na vedmy aham\
+> sarvato mukham āyāti\
 > tejaḥ parama-dāruṇam
 
 *kim*—what is; *idam*—this; *svit*—does it come; *kutaḥ*—wherefrom; *vā iti*—be either; *deva-deva*—O Lord of lords; *na*—not; *vedmi*—do I know; *aham*—I; *sarvataḥ*—all around; *mukham*—directions; *āyāti*—coming from; *tejaḥ*—effulgence; *parama*—very much; *dāruṇam*—dangerous.

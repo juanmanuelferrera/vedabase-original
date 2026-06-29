@@ -1,11 +1,11 @@
 ### SB 3.14.14
 
-> स विदित्वात्मजानां नो भावं सन्तानभावनः ।
+> स विदित्वात्मजानां नो भावं सन्तानभावनः ।\
 > त्रयोदशाददात्तासां यास्ते शीलमनुव्रताः ॥१४॥
 
-> sa viditvātmajānāṁ no
-> bhāvaṁ santāna-bhāvanaḥ
-> trayodaśādadāt tāsāṁ
+> sa viditvātmajānāṁ no\
+> bhāvaṁ santāna-bhāvanaḥ\
+> trayodaśādadāt tāsāṁ\
 > yās te śīlam anuvratāḥ
 
 *saḥ*—Dakṣa; *viditvā*—entendiendo; *ātma-jānām*—de las hijas; *naḥ*—nuestra; *bhāvam*—indicación; *santāna*—hijas; *bhāvanaḥ*—bienqueriente; *trayodaśa*—trece; *adadāt*—entregó; *tāsām*—de todas ellas; *yāḥ*—aquellas que son; *te*—tuyas; *śīlam*—comportamiento; *anuvratāḥ*—completamente fieles.

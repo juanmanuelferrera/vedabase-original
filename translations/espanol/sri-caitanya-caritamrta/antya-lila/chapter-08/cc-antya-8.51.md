@@ -1,9 +1,9 @@
 ### CC Antya 8.51
 
-> সহজেই পিপীলিকা সর্বত্র বেড়ায় ।
+> সহজেই পিপীলিকা সর্বত্র বেড়ায় ।\
 > তাহাতে তর্ক উঠাঞা দোষ লাগায় ॥৫১॥
 
-> sahajei pipīlikā sarvatra beḍāya
+> sahajei pipīlikā sarvatra beḍāya\
 > tāhāte tarka uṭhāñā doṣa lāgāya
 
 *sahajei*—por lo general; *pipīlikā*—hormigas; *sarvatra*—por todas partes; *beḍāya*—deambulan; *tāhāte*—por eso; *tarka uṭhāñā*—levantando una controversia; *doṣa lāgāya*—encuentra defectos.

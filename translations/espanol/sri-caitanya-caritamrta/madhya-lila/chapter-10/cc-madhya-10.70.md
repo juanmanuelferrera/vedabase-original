@@ -1,9 +1,9 @@
 ### CC Madhya 10.70
 
-> ei kṛṣṇadāse diba gauḍe pāṭhāñā
+> ei kṛṣṇadāse diba gauḍe pāṭhāñā\
 > eta kahi' tāre rākhilena āśvāsiyā
 
-> ei kṛṣṇadāse diba gauḍe pāṭhāñā
+> ei kṛṣṇadāse diba gauḍe pāṭhāñā\
 > eta kahi' tāre rākhilena āśvāsiyā
 
 *ei*—a este; *kṛṣṇadāse*—Kālā Kṛṣṇadāsa; *diba*—enviemos; *gauḍe*—a Bengala; *pāṭhāñā*—mandándolo; *eta kahi'*—diciendo esto; *tāre*—a él; *rākhilena*—lo retuvieron; *āśvāsiyā*—dándole seguridad.

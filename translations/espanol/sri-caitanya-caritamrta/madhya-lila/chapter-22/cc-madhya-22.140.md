@@ -1,9 +1,9 @@
 ### CC Madhya 22.140
 
-> কাম ত্যজি’ কৃষ্ণ ভজে শাস্ত্র-আজ্ঞা মানি’ ৷
+> কাম ত্যজি’ কৃষ্ণ ভজে শাস্ত্র-আজ্ঞা মানি’ ৷\
 > দেব-ঋষি-পিত্রাদিকের কভু নহে ঋণী ॥১৪০॥
 
-> kāma tyaji' kṛṣṇa bhaje śāstra-ājñā māni'
+> kāma tyaji' kṛṣṇa bhaje śāstra-ājñā māni'\
 > deva-ṛṣi-pitrādikera kabhu nahe ṛṇī
 
 *kāma*—deseos materiales; *tyaji'*—abandonando; *kṛṣṇa*—al Señor Kṛṣṇa; *bhaje*—adora; *śāstra-ājñā*—la instrucción de las escrituras reveladas; *māni'*—aceptando; *deva*—semidioses; *ṛṣi*—grandes sabios; *pitṛ-ādikera*—de los antepasados y demás; *kabhu*—en ningún momento; *nahe*—no; *ṛṇī*—deudor.

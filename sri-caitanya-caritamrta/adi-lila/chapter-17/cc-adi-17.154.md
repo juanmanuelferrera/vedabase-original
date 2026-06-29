@@ -1,9 +1,9 @@
 ### CC Adi 17.154
 
-> পিতা-মাতা মারি’ খাও — এবা কোন্ ধর্ম ।
+> পিতা-মাতা মারি’ খাও — এবা কোন্ ধর্ম ।\
 > কোন্ বলে কর তুমি এমত বিকর্ম ॥১৫৪॥
 
-> pitā-mātā māri' khāo—ebā kon dharma
+> pitā-mātā māri' khāo—ebā kon dharma\
 > kon bale kara tumi e-mata vikarma
 
 *pitā-mātā*—father and mother; *māri'*—killing; *khāo*—you eat; *ebā*—this; *kon*—what kind of; *dharma*—religion; *kon bale*—on what strength; *kara*—do; *tumi*—you; *e-mata*—such; *vikarma*—sinful activities.

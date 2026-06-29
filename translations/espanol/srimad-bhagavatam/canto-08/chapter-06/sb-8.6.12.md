@@ -1,11 +1,11 @@
 ### SB 8.6.12
 
-> यथाग्निमेधस्यमृतं च गोषु भुव्यन्नमम्बूद्यमने च वृत्तिम
+> यथाग्निमेधस्यमृतं च गोषु भुव्यन्नमम्बूद्यमने च वृत्तिम\
 > योगैर्मनुष्या अधियन्ति हि त्वां गुणेषु बुद्ध्या कवयो वदन्ति ॥१२॥
 
-> yathāgnim edhasy amṛtaṁ ca goṣu
-> bhuvy annam ambūdyamane ca vṛttim
-> yogair manuṣyā adhiyanti hi tvāṁ
+> yathāgnim edhasy amṛtaṁ ca goṣu\
+> bhuvy annam ambūdyamane ca vṛttim\
+> yogair manuṣyā adhiyanti hi tvāṁ\
 > guṇeṣu buddhyā kavayo vadanti
 
 *yathā*—como; *agnim*—fuego; *edhasi*—en la leña; *amṛtam*—leche, que es como néctar; *ca*—y; *goṣu*—de las vacas; *bhuvi*—en el suelo; *annam*—cereales; *ambu*—agua; *udyamane*—en una empresa; *ca*—también; *vṛttim*—sustento; *yogaiḥ*—con la práctica del *bhakti-yoga*; *manuṣyāḥ*—los seres humanos; *adhiyanti*—obtienen; *hi*—en verdad; *tvām*—a Ti; *guṇeṣu*—en las modalidades materiales de la naturaleza; *buddhyā*—con inteligencia; *kavayaḥ*—las grandes personalidades; *vadanti*—dicen.

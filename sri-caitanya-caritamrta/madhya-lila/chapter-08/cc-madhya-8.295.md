@@ -1,9 +1,9 @@
 ### CC Madhya 8.295
 
-> ক্রমে উঠাইতে সেই উত্তম বস্তু পায় ।
+> ক্রমে উঠাইতে সেই উত্তম বস্তু পায় ।\
 > ঐছে প্রশ্নোত্তর কৈল প্রভু-রামরায় ॥২৯৫॥
 
-> krame uṭhāite seha uttama vastu pāya
+> krame uṭhāite seha uttama vastu pāya\
 > aiche praśnottara kaila prabhu-rāmarāya
 
 *krame*—gradually; *uṭhāite*—to raise; *seha*—that person; *uttama*—best; *vastu*—metal; *pāya*—*gets*; *aiche*—so also; *praśna-uttara*—the questions and answers; *kaila*—have done; *prabhu*—Śrī Caitanya Mahāprabhu; *rāma-rāya*—and Rāmānanda Rāya.

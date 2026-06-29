@@ -1,9 +1,9 @@
 ### CC Antya 2.79
 
-> এইমত শচীগৃহে সতত ভোজন ।
+> এইমত শচীগৃহে সতত ভোজন ।\
 > শ্রীবাসের গৃহে করেন কীর্তন-দর্শন ॥৭৯॥
 
-> ei-mata śacī-gṛhe satata bhojana
+> ei-mata śacī-gṛhe satata bhojana\
 > śrīvāsera gṛhe karena kīrtana-darśana
 
 *ei-mata*—in this way; *śacī-gṛhe*—at the house of Śacīmātā; *satata*—always; *bhojana*—eating; *śrīvāsera gṛhe*—in the house of Śrīvāsa Ṭhākura; *karena*—performs; *kīrtana-darśana*—visiting the *kīrtana* performances.

@@ -1,11 +1,11 @@
 ### SB 4.25.52
 
-> आसुरी नाम पश्चाद्द्वास्तया याति पुरञ्जनः ।
+> आसुरी नाम पश्चाद्द्वास्तया याति पुरञ्जनः ।\
 > ग्रामकं नाम विषयं दुर्मदेन समन्वितः ॥५२॥
 
-> āsurī nāma paścād dvās
-> tayā yāti purañjanaḥ
-> grāmakaṁ nāma viṣayaṁ
+> āsurī nāma paścād dvās\
+> tayā yāti purañjanaḥ\
+> grāmakaṁ nāma viṣayaṁ\
 > durmadena samanvitaḥ
 
 *āsurī*—of the name Āsurī; *nāma*—called; *paścāt*—on the western side; *dvāḥ*—gate; *tayā*—by which; *yāti*—used to go; *purañjanaḥ*—King Purañjana; *grāmakam*—of the name Grāmaka; *nāma*—called; *viṣayam*—the city of sense enjoyment; *durmadena*—by Durmada; *samanvitaḥ*—accompanied.

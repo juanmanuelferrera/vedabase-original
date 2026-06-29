@@ -1,11 +1,11 @@
 ### SB 4.23.4
 
-> तत्राप्यदाभ्यनियमो वैखानससुसम्मते ।
+> तत्राप्यदाभ्यनियमो वैखानससुसम्मते ।\
 > आरब्ध उग्रतपसि यथा स्वविजये पुरा ॥४॥
 
-> tatrāpy adābhya-niyamo
-> vaikhānasa-susammate
-> ārabdha ugra-tapasi
+> tatrāpy adābhya-niyamo\
+> vaikhānasa-susammate\
+> ārabdha ugra-tapasi\
 > yathā sva-vijaye purā
 
 *tatra*—there; *api*—also; *adābhya*—severe; *niyamaḥ*—austerities; *vaikhānasa*—rules and regulations of retired life; *su-sammate*—perfectly recognized; *ārabdhaḥ*—beginning; *ugra*—severe; *tapasi*—austerity; *yathā*—as much as; *sva-vijaye*—in conquering the world; *purā*—formerly.

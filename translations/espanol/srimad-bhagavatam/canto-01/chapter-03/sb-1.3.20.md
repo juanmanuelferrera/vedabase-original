@@ -1,11 +1,11 @@
 ### SB 1.3.20
 
-> अवतारे षोडशमे पश्यन्ब्रह्मद्रुहो नृपान् ।
+> अवतारे षोडशमे पश्यन्ब्रह्मद्रुहो नृपान् ।\
 > त्रिःसप्तकृत्वः कुपितो निःक्षत्रामकरोन्महीम् ॥२०॥
 
-> avatāre ṣoḍaśame
-> paśyan brahma-druho nṛpān
-> triḥ-sapta-kṛtvaḥ kupito
+> avatāre ṣoḍaśame\
+> paśyan brahma-druho nṛpān\
+> triḥ-sapta-kṛtvaḥ kupito\
 > niḥ-kṣatrām akaron mahīm
 
 *avatāre*—en la encarnación del Señor; *ṣoḍaśame*—la decimosexta; *paśyan*—viendo; *brahma-druhaḥ*—desobedeciendo las órdenes de los *brāhmaṇas*; *nṛpān*—la orden monárquica; *triḥ-sapta*—el triple de siete veces; *kṛtvaḥ*—había hecho; *kupitaḥ*—estando dedicado; *niḥ*—negación; *kṣatrām*—la clase administradora; *akarot*—realizó; *mahīm*—la Tierra.

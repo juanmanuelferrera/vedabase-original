@@ -1,11 +1,11 @@
 ### SB 4.25.27
 
-> क एतेऽनुपथा ये त एकादश महाभटाः ।
+> क एतेऽनुपथा ये त एकादश महाभटाः ।\
 > एता वा ललनाः सुभ्रु कोऽयं तेऽहिः पुरःसरः ॥२७॥
 
-> ka ete 'nupathā ye ta
-> ekādaśa mahā-bhaṭāḥ
-> etā vā lalanāḥ subhru
+> ka ete 'nupathā ye ta\
+> ekādaśa mahā-bhaṭāḥ\
+> etā vā lalanāḥ subhru\
 > ko 'yaṁ te 'hiḥ puraḥ-saraḥ
 
 *ke*—who; *ete*—all these; *anupathāḥ*—followers; *ye*—they who; *te*—your; *ekādaśa*—eleven; *mahā-bhaṭāḥ*—very powerful bodyguards; *etāḥ*—all of these; *vā*—also; *lalanāḥ*—women; *su-bhru*—O beautiful-eyed one; *kaḥ*—who; *ayam*—this; *te*—your; *ahiḥ*—the snake; *puraḥ*—in front; *saraḥ*—going.

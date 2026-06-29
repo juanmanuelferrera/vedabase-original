@@ -1,13 +1,13 @@
 ### SB 1.17.21
 
-> सूत उवाच
-> एवं धर्मे प्रवदति स सम्राड्द्विजसत्तमाः ।
+> सूत उवाच\
+> एवं धर्मे प्रवदति स सम्राड्द्विजसत्तमाः ।\
 > समाहितेन मनसा विखेदः पर्यचष्ट तम् ॥२१॥
 
-> sūta uvāca
-> evaṁ dharme pravadati
-> sa samrāḍ dvija-sattamāḥ
-> samāhitena manasā
+> sūta uvāca\
+> evaṁ dharme pravadati\
+> sa samrāḍ dvija-sattamāḥ\
+> samāhitena manasā\
 > vikhedaḥ paryacaṣṭa tam
 
 *sūtaḥ uvāca*—Sūta Gosvāmī dijo; *evam*—así; *dharme*—la personalidad de la religión; *pravadati*—habiendo hablado así; *saḥ*—él; *samrāṭ*—el emperador; *dvija-sattamāḥ*—¡oh, tú, el mejor de los *brāhmaṇas*!; *samāhitena*—con la debida atención; *manasā*—por la mente; *vikhedaḥ*—sin ningún error; *paryacaṣṭa*—le replicó; *tam*—a él.

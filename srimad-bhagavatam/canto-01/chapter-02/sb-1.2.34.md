@@ -1,11 +1,11 @@
 ### SB 1.2.34
 
-> भावयत्येष सत्त्वेन लोकान्वै लोकभावनः ।
+> भावयत्येष सत्त्वेन लोकान्वै लोकभावनः ।\
 > लीलावतारानुरतो देवतिर्यङ्नरादिषु ॥३४॥
 
-> bhāvayaty eṣa sattvena
-> lokān vai loka-bhāvanaḥ
-> līlāvatārānurato
+> bhāvayaty eṣa sattvena\
+> lokān vai loka-bhāvanaḥ\
+> līlāvatārānurato\
 > deva-tiryaṅ-narādiṣu
 
 *bhāvayati*—maintains; *eṣaḥ*—all these; *sattvena*—in the mode of goodness; *lokān*—all over the universe; *vai*—generally; *loka-bhāvanaḥ*—the master of all the universes; *līlā*—pastimes; *avatāra*—incarnation; *anurataḥ*—assuming the role; *deva*—the demigods; *tiryak*—lower animals; *nara-ādiṣu*—in the midst of human beings.

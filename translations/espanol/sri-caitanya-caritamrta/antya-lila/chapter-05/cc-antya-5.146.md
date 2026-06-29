@@ -1,9 +1,9 @@
 ### CC Antya 5.146
 
-> এইমত শিশুপাল করিল নিন্দন ।
+> এইমত শিশুপাল করিল নিন্দন ।\
 > সেইবাক্যে সরস্বতী করেন স্তবন ॥১৪৬॥
 
-> ei-mata śiśupāla karila nindana
+> ei-mata śiśupāla karila nindana\
 > sei-vākye sarasvatī karena stavana
 
 *ei-mata*—de este modo; *śiśu-pāla*—de nombre Śiśupāla; *karila nindana*—blasfemó; *sei-vākye*—con esas palabras; *sarasvatī*—la diosa del conocimiento; *karena stavana*—ofrece oraciones.

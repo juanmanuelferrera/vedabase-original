@@ -1,9 +1,9 @@
 ### CC Adi 17.166
 
-> গো-অঙ্গে যত লোম, তত সহস্র বৎসর ।
+> গো-অঙ্গে যত লোম, তত সহস্র বৎসর ।\
 > গোবধী রৌরব-মধ্যে পচে নিরন্তর ॥১৬৬॥
 
-> go-aṅge yata loma, tata sahasra vatsara
+> go-aṅge yata loma, tata sahasra vatsara\
 > go-vadhī raurava-madhye pace nirantara
 
 *go-aṅge*—en el cuerpo de la vaca; *yata*—tantos; *loma*—pelos; *tata*—otros tantos; *sahasra*—miles de; *vatsara*—años; *go-vadhī*—el que mata una vaca; *raurava-madhye*—en una condición de vida infernal; *pace*—se descompone; *nirantara*—siempre.

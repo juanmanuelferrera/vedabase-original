@@ -1,11 +1,11 @@
 ### SB 1.3.35
 
-> एवं च जन्मानि कर्माणि ह्यकर्तुरजनस्य च ।
+> एवं च जन्मानि कर्माणि ह्यकर्तुरजनस्य च ।\
 > वर्णयन्ति स्म कवयो वेदगुह्यानि हृत्पतेः ॥३५॥
 
-> evaṁ janmāni karmāṇi
-> hy akartur ajanasya ca
-> varṇayanti sma kavayo
+> evaṁ janmāni karmāṇi\
+> hy akartur ajanasya ca\
+> varṇayanti sma kavayo\
 > veda-guhyāni hṛt-pateḥ
 
 *evam*—thus; *janmāni*—birth; *karmāṇi*—activities; *hi*—certainly; *akartuḥ*—of the inactive; *ajanasya*—of the unborn; *ca*—and; *varṇayanti*—describe; *sma*—in the past; *kavayaḥ*—the learned; *veda-guhyāni*—undiscoverable by the *Vedas*; *hṛt-pateḥ*—of the Lord of the heart.

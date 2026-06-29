@@ -1,11 +1,11 @@
 ### SB 7.10.5
 
-> आशासानो न वै भृत्यः स्वामिन्याशिष आत्मनः
+> आशासानो न वै भृत्यः स्वामिन्याशिष आत्मनः\
 > न स्वामी भृत्यतः स्वाम्यमिच्छन्यो राति चाशिषः ॥५॥
 
-> āśāsāno na vai bhṛtyaḥ
-> svāminy āśiṣa ātmanaḥ
-> na svāmī bhṛtyataḥ svāmyam
+> āśāsāno na vai bhṛtyaḥ\
+> svāminy āśiṣa ātmanaḥ\
+> na svāmī bhṛtyataḥ svāmyam\
 > icchan yo rāti cāśiṣaḥ
 
 *āśāsānaḥ*—a person who desires (in exchange for service); *na*—not; *vai*—indeed; *bhṛtyaḥ*—a qualified servant or pure devotee of the Lord; *svāmini*—from the master; *āśiṣaḥ*—material benefit; *ātmanaḥ*—for personal sense gratification; *na*—nor; *svāmī*—the master; *bhṛtyataḥ*—from the servant; *svāmyam*—the prestigious position of being the master; *icchan*—desiring; *yaḥ*—any such master who; *rāti*—bestows; *ca*—also; *āśiṣaḥ*—material profit.

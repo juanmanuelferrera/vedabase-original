@@ -1,9 +1,9 @@
 ### CC Madhya 4.111
 
-> তাঁর ঠাঞি মন্ত্র লৈল যতন করিঞা ।
+> তাঁর ঠাঞি মন্ত্র লৈল যতন করিঞা ।\
 > চলিলা দক্ষিণে পুরী তাঁরে দীক্ষা দিঞা ॥১১১॥
 
-> tāṅra ṭhāñi mantra laila yatana kariñā
+> tāṅra ṭhāñi mantra laila yatana kariñā\
 > calilā dakṣiṇe purī tāṅre dīkṣā diñā
 
 *tāṅra ṭhāñi*—de él; *mantra*—iniciación; *laila*—aceptó; *yatana*—esfuerzos; *kariñā*—haciendo; *calilā*—partió; *dakṣiṇe*—hacia el sur; *purī*—Mādhavendra Purī; *tāṅre*—a él (Advaita Ācārya); *dīkṣā*—iniciación; *diñā*—dando.

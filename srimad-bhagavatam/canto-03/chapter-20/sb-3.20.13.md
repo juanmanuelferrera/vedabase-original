@@ -1,11 +1,11 @@
 ### SB 3.20.13
 
-> रजःप्रधानान्महतस्त्रिलिङ्गो दैवचोदितात् ।
+> रजःप्रधानान्महतस्त्रिलिङ्गो दैवचोदितात् ।\
 > जातः ससर्ज भूतादिर्वियदादीनि पञ्चशः ॥१३॥
 
-> rajaḥ-pradhānān mahatas
-> tri-liṅgo daiva-coditāt
-> jātaḥ sasarja bhūtādir
+> rajaḥ-pradhānān mahatas\
+> tri-liṅgo daiva-coditāt\
+> jātaḥ sasarja bhūtādir\
 > viyad-ādīni pañcaśaḥ
 
 *rajaḥ-pradhānāt*—in which the element of *rajas,* or passion, predominates; *mahataḥ*—from the *mahat-tattva*; *tri-liṅgaḥ*—of three kinds; *daiva-coditāt*—impelled by superior authority; *jātaḥ*—was born; *sasarja*—evolved; *bhūta-ādiḥ*—the false ego (origin of the material elements); *viyat*—the ether; *ādīni*—beginning with; *pañcaśaḥ*—in groups of five.

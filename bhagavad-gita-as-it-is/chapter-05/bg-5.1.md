@@ -1,13 +1,13 @@
 ### Bg 5.1
 
-> अर्जुन उवाच ।
-> संन्यासं कर्मणां कृष्ण पुनर्योगं च शंससि ।
+> अर्जुन उवाच ।\
+> संन्यासं कर्मणां कृष्ण पुनर्योगं च शंससि ।\
 > यच्छ्रेय एतयोरेकं तन्मे ब्रूहि सुनिश्चितम् ॥१॥
 
-> arjuna uvāca
-> sannyāsaṁ karmaṇāṁ kṛṣṇa
-> punar yogaṁ ca śaṁsasi
-> yac chreya etayor ekaṁ
+> arjuna uvāca\
+> sannyāsaṁ karmaṇāṁ kṛṣṇa\
+> punar yogaṁ ca śaṁsasi\
+> yac chreya etayor ekaṁ\
 > tan me brūhi su-niścitam
 
 *arjunaḥ uvāca*—Arjuna said; *sannyāsam*—renunciation; *karmaṇām*—of all activities; *kṛṣṇa*—O Kṛṣṇa; *punaḥ*—again; *yogam*—devotional service; *ca*—also; *śaṁsasi*—You are praising; *yat*—which; *śreyaḥ*—is beneficial; *etayoḥ*—of these two; *ekam*—one; *tat*—that; *me*—unto me; *brūhi*—please tell; *suniścitam*—definitely.

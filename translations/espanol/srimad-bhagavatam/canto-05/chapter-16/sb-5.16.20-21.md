@@ -1,6 +1,6 @@
 ### SB 5.16.20-21
 
-> तावदुभयोरपि रोधसोर्या मृत्तिका तद्रसेनानुविध्यमाना वाय्वर्कसंयोगविपाकेनसदामरलोकाभरणं जाम्बूनदं नाम सुवर्णं भवति ॥२०॥
+> तावदुभयोरपि रोधसोर्या मृत्तिका तद्रसेनानुविध्यमाना वाय्वर्कसंयोगविपाकेनसदामरलोकाभरणं जाम्बूनदं नाम सुवर्णं भवति ॥२०॥\
 > यदु ह वाव विबुधादयः सह युवतिभिर्मुकुटकटककटिसूत्राद्याभरणरूपेण खलुधारयन्ति ॥२१॥
 
 > tāvad ubhayor api rodhasor yā mṛttikā tad-rasenānuvidhyamānā vāyv-arka-saṁyoga-vipākena sadāmara-lokābharaṇaṁ jāmbū-nadaṁ nāma suvarṇaṁ bhavati; yad u ha vāva vibudhādayaḥ saha yuvatibhir mukuṭa-kaṭaka-kaṭi-sūtrādy-ābharaṇa-rūpeṇa khalu dhārayanti.

@@ -1,18 +1,18 @@
 ### CC Madhya 23.14-15
 
-> আদৌ শ্রদ্ধা ততঃ সাধুসঙ্গোঽথ ভজনক্রিয়া ।
-> ততোঽনর্থনিবৃত্তিঃ স্যাৎ ততো নিষ্ঠা রুচিস্ততঃ ॥১৪॥
-> অথাসক্তিস্ততো ভাবস্ততঃ প্রেমাভ্যুদঞ্চতি ।
+> আদৌ শ্রদ্ধা ততঃ সাধুসঙ্গোঽথ ভজনক্রিয়া ।\
+> ততোঽনর্থনিবৃত্তিঃ স্যাৎ ততো নিষ্ঠা রুচিস্ততঃ ॥১৪॥\
+> অথাসক্তিস্ততো ভাবস্ততঃ প্রেমাভ্যুদঞ্চতি ।\
 > সাধকানাময়ং প্রেম্ণঃ প্রাদুর্ভাবে ভবেৎ ক্রমঃ ॥১৫॥
 
-> ādau śraddhā tataḥ sādhu-
-> saṅgo 'tha bhajana-kriyā
-> tato 'nartha-nivṛttiḥ syāt
+> ādau śraddhā tataḥ sādhu-\
+> saṅgo 'tha bhajana-kriyā\
+> tato 'nartha-nivṛttiḥ syāt\
 > tato niṣṭhā rucis tataḥ
 
-> athāsaktis tato bhāvas
-> tataḥ premābhyudañcati
-> sādhakānām ayaṁ premṇaḥ
+> athāsaktis tato bhāvas\
+> tataḥ premābhyudañcati\
+> sādhakānām ayaṁ premṇaḥ\
 > prādurbhāve bhavet kramaḥ
 
 *ādau*—al principio; *śraddhā*—fe firme, desinterés por las cosas materiales e interés por el avance espiritual; *tataḥ*—a continuación; *sādhu-saṅgaḥ*—relación con devotos puros; *atha*—entonces; *bhajana-kriyā*—práctica de servicio devocional a Kṛṣṇa (entregarse al maestro espiritual y sentirse animado por la relación con devotos, de modo que tiene lugar la iniciación); *tataḥ*—a continuación; *anartha-nivṛttiḥ*—disminución de todos los hábitos indeseables; *syāt*—debe haber; *tataḥ*—a continuación; *niṣṭhā*—fe firme; *ruciḥ*—gusto; *tataḥ*—a continuación; *atha*—entonces; *āsaktiḥ*—apego; *tataḥ*—entonces; *bhāvaḥ*—emoción o afecto; *tataḥ*—a continuación; *prema*—amor por Dios; *abhyudañcati*—surge; *sādhakānām*—de los devotos que practican el proceso de conciencia de Kṛṣṇa; *ayam*—éste; *premṇaḥ*—de amor por Dios; *prādurbhāve*—en la aparición; *bhavet*—es; *kramaḥ*—el orden cronológico.

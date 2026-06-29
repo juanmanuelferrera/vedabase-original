@@ -1,9 +1,9 @@
 ### CC Adi 4.269
 
-> সর্বভাবে কৈল কৃষ্ণ এই ত’ নিশ্চয় ।
+> সর্বভাবে কৈল কৃষ্ণ এই ত’ নিশ্চয় ।\
 > হেনকালে আইল যুগাবতার-সময় ॥২৬৯॥
 
-> sarva-bhāve kaila kṛṣṇa ei ta' niścaya
+> sarva-bhāve kaila kṛṣṇa ei ta' niścaya\
 > hena-kāle āila yugāvatāra-samaya
 
 *sarva-bhāve*—in all respects; *kaila*—made; *kṛṣṇa*—Lord Kṛṣṇa; *ei*—this; *ta'*—certainly; *niścaya*—decision; *hena-kāle*—at this time; *āila*—came; *yuga-avatāra*—of the incarnation according to the age; *samaya*—the time.

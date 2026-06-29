@@ -1,9 +1,9 @@
 ### CC Adi 2.79
 
-> তৈছে ইঁহ অবতার সব হৈল জ্ঞাত ।
+> তৈছে ইঁহ অবতার সব হৈল জ্ঞাত ।\
 > কার অবতার? — এই বস্তু অবিজ্ঞাত ॥৭৯॥
 
-> taiche iṅha avatāra saba haila jñāta
+> taiche iṅha avatāra saba haila jñāta\
 > kāra avatāra?--ei vastu avijñāta
 
 *taiche*—del mismo modo; *iṅha*—estas; *avatāra*—encarnaciones; *saba*—todas; *haila*—eran; *jñāta*—conocidas; *kāra*—de quién; *avatāra*—encarnaciones; *ei*—esto; *vastu*—cosa; *avijñāta*—desconocido.

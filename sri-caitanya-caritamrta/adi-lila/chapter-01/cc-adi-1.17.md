@@ -1,11 +1,11 @@
 ### CC Adi 1.17
 
-> শ্রীমান্ রাসরসারম্ভী বংশীবটতটস্থিতঃ ।
+> শ্রীমান্ রাসরসারম্ভী বংশীবটতটস্থিতঃ ।\
 > কর্ষন্ বেণুস্বনৈর্গোপীর্গোপীনাথঃ শ্রিয়েঽস্তু নঃ ॥১৭॥
 
-> śrīmān rāsa-rasārambhī
-> vaṁśīvaṭa-taṭa-sthitaḥ
-> karṣan veṇu-svanair gopīr
+> śrīmān rāsa-rasārambhī\
+> vaṁśīvaṭa-taṭa-sthitaḥ\
+> karṣan veṇu-svanair gopīr\
 > gopī-nāthaḥ śriye 'stu naḥ
 
 *śrī-mān*—most beautiful; *rāsa*—of the *rāsa* dance; *rasa*—of the mellow; *ārambhī*—the initiator; *vaṁśī-vaṭa*—of the name Vaṁśīvaṭa; *taṭa*—on the shore; *sthitaḥ*—standing; *karṣan*—attracting; *veṇu*—of the flute; *svanaiḥ*—by the sounds; *gopīḥ*—the cowherd girls; *gopī-nāthaḥ*—Śrī Gopīnātha; *śriye*—benediction; *astu*—let there be; *naḥ*—our.

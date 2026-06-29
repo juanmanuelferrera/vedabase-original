@@ -1,11 +1,11 @@
 ### SB 6.8.19
 
-> द्वैपायनो भगवानप्रबोधाद्बुद्धस्तु पाषण्डगणप्रमादात
+> द्वैपायनो भगवानप्रबोधाद्बुद्धस्तु पाषण्डगणप्रमादात\
 > कल्किः कलेः कालमलात्प्रपातु धर्मावनायोरुकृतावतारः ॥१९॥
 
-> dvaipāyano bhagavān aprabodhād
-> buddhas tu pāṣaṇḍa-gaṇa-pramādāt
-> kalkiḥ kaleḥ kāla-malāt prapātu
+> dvaipāyano bhagavān aprabodhād\
+> buddhas tu pāṣaṇḍa-gaṇa-pramādāt\
+> kalkiḥ kaleḥ kāla-malāt prapātu\
 > dharmāvanāyoru-kṛtāvatāraḥ
 
 *dvaipāyanaḥ*—Śrīla Vyāsadeva, the giver of all Vedic knowledge; *bhagavān*—the most powerful incarnation of the Supreme Personality of Godhead; *aprabodhāt*—from ignorance of the *śāstra*; *buddhaḥ tu*—also Lord Buddha; *pāṣaṇḍa-gaṇa*—of atheists creating disillusionment for innocent persons; *pramādāt*—from the madness; *kalkiḥ*—Lord Kalki, the incarnation of Keśava; *kaleḥ*—of this Kali-yuga; *kāla-malāt*—from the darkness of the age; *prapātu*—may He protect; *dharma-avanāya*—for the protection of religious principles; *uru*—very great; *kṛta-avatāraḥ*—who took an incarnation.

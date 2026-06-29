@@ -1,9 +1,9 @@
 ### CC Antya 6.58
 
-> আর অর্ধেক ঘনাবৃত-দুগ্ধেতে ছানিল ।
+> আর অর্ধেক ঘনাবৃত-দুগ্ধেতে ছানিল ।\
 > চাঁপাকলা, চিনি, ঘৃত, কর্পূর তাতে দিল ॥৫৮॥
 
-> āra ardheka ghanāvṛta-dugdhete chānila
+> āra ardheka ghanāvṛta-dugdhete chānila\
 > cāṅpā-kalā, cini, ghṛta, karpūra tāte dila
 
 *āra ardheka*—the other half; *ghana-āvṛta*—condensed; *dugdhete*—in milk; *chānila*—mixed; *cāṅpā-kalā*—a special type of banana; *cini*—sugar; *ghṛta*—clarified butter, *ghee*; *karpūra*—camphor; *tāte dila*—put into that.

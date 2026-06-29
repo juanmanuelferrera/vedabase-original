@@ -1,9 +1,9 @@
 ### CC Madhya 20.139
 
-> অতএব ‘ভক্তি’ — কৃষ্ণপ্রাপ্ত্যের উপায় ।
+> অতএব ‘ভক্তি’ — কৃষ্ণপ্রাপ্ত্যের উপায় ।\
 > ‘অভিধেয়’ বলি’ তারে সর্বশাস্ত্রে গায় ॥১৩৯॥
 
-> ataeva 'bhakti'--kṛṣṇa-prāptyera upāya
+> ataeva 'bhakti'--kṛṣṇa-prāptyera upāya\
 > 'abhidheya' bali' tāre sarva-śāstre gāya
 
 *ataeva*—por lo tanto; *bhakti*—servicio devocional; *kṛṣṇa-prāptyera*—de alcanzar los pies de loto de Kṛṣṇa; *upāya*—el único medio; *abhidheya*—*abhidheya*; *bali'*—denominando; *tāre*—a este sistema; *sarva-śāstre*—en todas las Escrituras reveladas; *gāya*—se describe.

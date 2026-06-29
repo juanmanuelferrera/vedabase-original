@@ -1,21 +1,21 @@
 ### SB 4.2.14-15
 
-> प्रेतावासेषु घोरेषु प्रेतैर्भूतगणैर्वृतः ।
-> अटत्युन्मत्तवन्नग्नो व्युप्तकेशो हसन्रुदन् ॥१४॥
-> चिताभस्मकृतस्नानः प्रेतस्रङ्न्रस्थिभूषणः ।
-> शिवापदेशो ह्यशिवो मत्तो मत्तजनप्रियः ।
+> प्रेतावासेषु घोरेषु प्रेतैर्भूतगणैर्वृतः ।\
+> अटत्युन्मत्तवन्नग्नो व्युप्तकेशो हसन्रुदन् ॥१४॥\
+> चिताभस्मकृतस्नानः प्रेतस्रङ्न्रस्थिभूषणः ।\
+> शिवापदेशो ह्यशिवो मत्तो मत्तजनप्रियः ।\
 > पतिः प्रमथनाथानां तमोमात्रात्मकात्मनाम् ॥१५॥
 
-> pretāvāseṣu ghoreṣu
-> pretair bhūta-gaṇair vṛtaḥ
-> aṭaty unmattavan nagno
+> pretāvāseṣu ghoreṣu\
+> pretair bhūta-gaṇair vṛtaḥ\
+> aṭaty unmattavan nagno\
 > vyupta-keśo hasan rudan
 
-> citā-bhasma-kṛta-snānaḥ
-> preta-sraṅ-nrasthi-bhūṣaṇaḥ
-> śivāpadeśo hy aśivo
-> matto matta-jana-priyaḥ
-> patiḥ pramatha-nāthānāṁ
+> citā-bhasma-kṛta-snānaḥ\
+> preta-sraṅ-nrasthi-bhūṣaṇaḥ\
+> śivāpadeśo hy aśivo\
+> matto matta-jana-priyaḥ\
+> patiḥ pramatha-nāthānāṁ\
 > tamo-mātrātmakātmanām
 
 *preta-āvāseṣu*—at the burning places of dead bodies; *ghoreṣu*—horrible; *pretaiḥ*—by the Pretas; *bhūta-gaṇaiḥ*—by the Bhūtas; *vṛtaḥ*—accompanied by; *aṭati*—he wanders; *unmatta-vat*—like a madman; *nagnaḥ*—naked; *vyupta-keśaḥ*—having scattered hair; *hasan*—laughing; *rudan*—crying; *citā*—of the funeral pyre; *bhasma*—with the ashes; *kṛta-snānaḥ*—taking bath; *preta*—of the skulls of dead bodies; *srak*—having a garland; *nṛ-asthi-bhūṣaṇaḥ*—ornamented with dead men's bones; *śiva-apadeśaḥ*—who is *śiva,* or auspicious, only in name; *hi*—for; *aśivaḥ*—inauspicious; *mattaḥ*—crazy; *matta-jana-priyaḥ*—very dear to the crazy beings; *patiḥ*—the leader; *pramatha-nāthānām*—of the lords of the Pramathas; *tamaḥ-mātra-ātmaka-ātmanām*—of those grossly in the mode of ignorance.

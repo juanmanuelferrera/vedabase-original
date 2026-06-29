@@ -1,11 +1,11 @@
 ### SB 9.21.2
 
-> गुरुश्च रन्तिदेवश्च सङ्कृतेः पाण्डुनन्दन
+> गुरुश्च रन्तिदेवश्च सङ्कृतेः पाण्डुनन्दन\
 > रन्तिदेवस्य महिमा इहामुत्र च गीयते ॥२॥
 
-> guruś ca rantidevaś ca
-> saṅkṛteḥ pāṇḍu-nandana
-> rantidevasya mahimā
+> guruś ca rantidevaś ca\
+> saṅkṛteḥ pāṇḍu-nandana\
+> rantidevasya mahimā\
 > ihāmutra ca gīyate
 
 *guruḥ*—un hijo llamado Guru; *ca*—y; *rantidevaḥ ca*—y un hijo llamado Rantideva; *saṅkṛteḥ*—de Saṅkṛti; *pāṇḍu-nandana*—¡oh, Mahārāja Parīkṣit, descendiente de Pāṇḍu!; *rantidevasya*—de Rantideva; *mahimā*—las glorias; *iha*—en este mundo; *amutra*—y en el siguiente mundo; *ca*—también; *gīyate*—son glorificadas.

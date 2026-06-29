@@ -1,9 +1,9 @@
 ### CC Madhya 5.8
 
-> নিত্যানন্দ-গোসাঞি যবে তীর্থ ভ্রমিলা ।
+> নিত্যানন্দ-গোসাঞি যবে তীর্থ ভ্রমিলা ।\
 > সাক্ষিগোপাল দেখিবারে কটক আইলা ॥৮॥
 
-> nityānanda-gosāñi yabe tīrtha bhramilā
+> nityānanda-gosāñi yabe tīrtha bhramilā\
 > sākṣi-gopāla dekhibāre kaṭaka āilā
 
 *nityānanda-gosāñi*—el Señor Nityānanda Prabhu; *yabe*—cuando; *tīrtha bhramilā*—viajó a los lugares de peregrinación; *sākṣi-gopāla*—el Gopāla testigo; *dekhibāre*—para ver; *kaṭaka*—a la ciudad de Kaṭaka; *āilā*—vino.

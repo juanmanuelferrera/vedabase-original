@@ -1,9 +1,9 @@
 ### CC Madhya 20.40
 
-> টুঙ্গি উপর বসি’ সেই গোসাঞিরে দেখিল ।
+> টুঙ্গি উপর বসি’ সেই গোসাঞিরে দেখিল ।\
 > রাত্র্যে একজন-সঙ্গে গোসাঞি-পাশ আইল ॥৪০॥
 
-> ṭuṅgi upara vasi' sei gosāñire dekhila
+> ṭuṅgi upara vasi' sei gosāñire dekhila\
 > rātrye eka-jana-saṅge gosāñi-pāśa āila
 
 *ṭuṅgi upara vasi'*—sentado en un lugar elevado; *sei*—aquel Śrīkānta; *gosāñire*—a Sanātana Gosvāmī; *dekhila*—vio; *rātrye*—por la noche; *eka-jana-saṅge*—con un sirviente; *gosāñi-pāśa*—cerca de Sanātana Gosvāmī; *āila*—acudió.

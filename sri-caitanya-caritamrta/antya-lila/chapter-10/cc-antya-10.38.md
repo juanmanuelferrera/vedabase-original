@@ -1,9 +1,9 @@
 ### CC Antya 10.38
 
-> ঝালি বান্ধি’ মোহর দিল আগ্রহ করিয়া  ।
+> ঝালি বান্ধি’ মোহর দিল আগ্রহ করিয়া  ।\
 > তিন বোঝারি ঝালি বহে ক্রম করিয়া ॥৩৮॥
 
-> jhāli bāndhi' mohara dila āgraha kariyā
+> jhāli bāndhi' mohara dila āgraha kariyā\
 > tina bojhāri jhāli vahe krama kariyā
 
 *jhāli bāndhi'*—binding the bags; *mohara dila*—she sealed; *āgraha kariyā*—with great attention; *tina bojhāri*—three carriers; *jhāli vahe*—carried the bags; *krama kariyā*—one after another.

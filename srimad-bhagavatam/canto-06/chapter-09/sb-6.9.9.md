@@ -1,11 +1,11 @@
 ### SB 6.9.9
 
-> शश्वत्कामवरेणांहस्तुरीयं जगृहुः स्त्रियः
+> शश्वत्कामवरेणांहस्तुरीयं जगृहुः स्त्रियः\
 > रजोरूपेण तास्वंहो मासि मासि प्रदृश्यते ॥९॥
 
-> śaśvat-kāma-vareṇāṁhas
-> turīyaṁ jagṛhuḥ striyaḥ
-> rajo-rūpeṇa tāsv aṁho
+> śaśvat-kāma-vareṇāṁhas\
+> turīyaṁ jagṛhuḥ striyaḥ\
+> rajo-rūpeṇa tāsv aṁho\
 > māsi māsi pradṛśyate
 
 *śaśvat*—perpetual; *kāma*—of sexual desire; *vareṇa*—because of the benediction; *aṁhaḥ*—the sinful reaction for killing a *brāhmaṇa*; *turīyam*—one fourth; *jagṛhuḥ*—accepted; *striyaḥ*—women; *rajaḥ-rūpeṇa*—in the form of the menstrual period; *tāsu*—in them; *aṁhaḥ*—the sinful reaction; *māsi māsi*—every month; *pradṛśyate*—is visible.

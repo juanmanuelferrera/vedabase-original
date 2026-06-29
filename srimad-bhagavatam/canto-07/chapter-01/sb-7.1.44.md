@@ -1,11 +1,11 @@
 ### SB 7.1.44
 
-> तत्रापि राघवो भूत्वा न्यहनच्छापमुक्तये
+> तत्रापि राघवो भूत्वा न्यहनच्छापमुक्तये\
 > रामवीर्यं श्रोष्यसि त्वं मार्कण्डेयमुखात्प्रभो ॥४४॥
 
-> tatas tau rākṣasau jātau
-> keśinyāṁ viśravaḥ-sutau
-> rāvaṇaḥ kumbhakarṇaś ca
+> tatas tau rākṣasau jātau\
+> keśinyāṁ viśravaḥ-sutau\
+> rāvaṇaḥ kumbhakarṇaś ca\
 > sarva-lokopatāpanau
 
 *tataḥ*—thereafter; *tau*—the two doorkeepers (Jaya and Vijaya); *rākṣasau*—demons; *jātau*—born; *keśinyām*—in the womb of Keśinī; *viśravaḥ-sutau*—the sons of Viśravā; *rāvaṇaḥ*—Rāvaṇa; *kumbhakarṇaḥ*—Kumbhakarṇa; *ca*—and; *sarva-loka*—to all people; *upatāpanau*—giving misery.

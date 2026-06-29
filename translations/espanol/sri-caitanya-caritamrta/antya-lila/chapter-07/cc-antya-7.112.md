@@ -1,9 +1,9 @@
 ### CC Antya 7.112
 
-> আর দিন আসি’ বসিলা প্রভুরে নমস্করি’  ।
+> আর দিন আসি’ বসিলা প্রভুরে নমস্করি’  ।\
 > সভাতে কহেন কিছু মনে গর্ব করি’ ॥১১২॥
 
-> āra dina āsi' vasilā prabhure namaskari'
+> āra dina āsi' vasilā prabhure namaskari'\
 > sabhāte kahena kichu mane garva kari'
 
 *āra dina*—al día siguiente; *āsi'*—al llegar; *vasilā*—se sentó; *prabhure namaskari'*—ofreciendo reverencias al Señor Śrī Caitanya Mahāprabhu; *sabhāte*—en la asamblea; *kahena*—dijo; *kichu*—algo; *mane*—dentro de la mente; *garva kari'*—con orgullo.

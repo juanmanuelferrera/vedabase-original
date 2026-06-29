@@ -1,9 +1,9 @@
 ### CC Adi 17.312
 
-> দেখি গ্রন্থে ভাগবতে ব্যাসের আচার ।
+> দেখি গ্রন্থে ভাগবতে ব্যাসের আচার ।\
 > কথা কহি’ অনুবাদ করে বার বার ॥৩১২॥
 
-> dekhi granthe bhāgavate vyāsera ācāra
+> dekhi granthe bhāgavate vyāsera ācāra\
 > kathā kahi' anuvāda kare vāra vāra
 
 *dekhi*—veo; *granthe*—en la escritura; *bhāgavate*—en el Śrīmad-Bhāgavatam; *vyāsera*—de Śrīla Vyāsadeva; *ācāra*—conducta; *kathā*—narración; *kahi'*—describiendo; *anuvāda*—repetición; *kare*—hace; *vāra vāra*—una y otra vez.

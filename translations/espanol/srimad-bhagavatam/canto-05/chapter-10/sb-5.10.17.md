@@ -1,11 +1,11 @@
 ### SB 5.10.17
 
-> नाहं विशङ्के सुरराजवज्रान्न त्र्यक्षशूलान्न यमस्य दण्डात
+> नाहं विशङ्के सुरराजवज्रान्न त्र्यक्षशूलान्न यमस्य दण्डात\
 > नाग्न्यर्कसोमानिलवित्तपास्त्राच्छङ्के भृशं ब्रह्मकुलावमानात ॥१७॥
 
-> nāhaṁ viśaṅke sura-rāja-vajrān
-> na tryakṣa-śūlān na yamasya daṇḍāt
-> nāgny-arka-somānila-vittapāstrāc
+> nāhaṁ viśaṅke sura-rāja-vajrān\
+> na tryakṣa-śūlān na yamasya daṇḍāt\
+> nāgny-arka-somānila-vittapāstrāc\
 > chaṅke bhṛśaṁ brahma-kulāvamānāt
 
 *na*—no; *aham*—yo; *viśaṅke*—siento temor; *sura-rāja-vajrāt*—del rayo de Indra, el rey del cielo; *na*—no; *tryakṣa-śūlāt*—del punzante tridente del Señor Śiva; *na*—no; *yamasya*—del superintendente de la muerte, Yamarāja; *daṇḍāt*—del castigo; *na*—no; *agni*—del fuego; *arka*—del abrasador calor del Sol; *soma*—de la Luna; *anila*—del viento; *vitta-pa*—del propietario de riquezas, Kuvera, el tesorero de los planetas celestiales; *astrāt*—de las armas; *śaṅke*—siento temor; *bhṛśam*—mucho; *brahma-kula*—el grupo de los *brāhmaṇas*; *avamānāt*—de ofender.

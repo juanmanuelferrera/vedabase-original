@@ -1,11 +1,11 @@
 ### Bg 3.9
 
-> यज्ञार्थात्कर्मणोऽन्यत्र लोकोऽयं कर्मबन्धनः ।
+> यज्ञार्थात्कर्मणोऽन्यत्र लोकोऽयं कर्मबन्धनः ।\
 > तदर्थं कर्म कौन्तेय मुक्तसङ्गः समाचर ॥९॥
 
-> yajñārthāt karmaṇo 'nyatra
-> loko 'yaṁ karma-bandhanaḥ
-> tad-arthaṁ karma kaunteya
+> yajñārthāt karmaṇo 'nyatra\
+> loko 'yaṁ karma-bandhanaḥ\
+> tad-arthaṁ karma kaunteya\
 > mukta-saṅgaḥ samācara
 
 *yajña-arthāt*—only for the sake of Yajña, or Viṣṇu; *karmaṇaḥ*—work done; *anyatra*—otherwise; *lokaḥ*—this world; *ayam*—this; *karma-bandhanaḥ*—bondage by work; *tat*—Him; *artham*—for the sake of; *karma*—work; *kaunteya*—O son of Kuntī; *mukta-saṅgaḥ*—liberated from association; *samācara*—do it perfectly.

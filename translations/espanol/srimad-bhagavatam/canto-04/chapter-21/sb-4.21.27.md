@@ -1,11 +1,11 @@
 ### SB 4.21.27
 
-> अस्ति यज्ञपतिर्नाम केषाञ्चिदर्हसत्तमाः ।
+> अस्ति यज्ञपतिर्नाम केषाञ्चिदर्हसत्तमाः ।\
 > इहामुत्र च लक्ष्यन्ते ज्योत्स्नावत्यः क्वचिद्भुवः ॥२७॥
 
-> asti yajña-patir nāma
-> keṣāñcid arha-sattamāḥ
-> ihāmutra ca lakṣyante
+> asti yajña-patir nāma\
+> keṣāñcid arha-sattamāḥ\
+> ihāmutra ca lakṣyante\
 > jyotsnāvatyaḥ kvacid bhuvaḥ
 
 *asti*—debe existir; *yajña-patiḥ*—el disfrutador de todos los sacrificios; *nāma*—de nombre; *keṣāñcit*—en opinión de algunos; *arha-sattamāḥ*—¡oh, muy respetable!; *iha*—en este mundo materieal; *amutra*—tras la muerte; *ca*—también; *lakṣyante*—es visible; *jyotsnā-vatyaḥ*—poderosos, hermosos; *kvacit*—en algún lugar; *bhuvaḥ*—cuerpos.

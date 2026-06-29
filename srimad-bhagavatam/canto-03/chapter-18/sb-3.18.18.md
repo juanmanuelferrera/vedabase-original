@@ -1,11 +1,11 @@
 ### SB 3.18.18
 
-> एवं गदाभ्यां गुर्वीभ्यां हर्यक्षो हरिरेव च ।
+> एवं गदाभ्यां गुर्वीभ्यां हर्यक्षो हरिरेव च ।\
 > जिगीषया सुसंरब्धावन्योन्यमभिजघ्नतुः ॥१८॥
 
-> evaṁ gadābhyāṁ gurvībhyāṁ
-> haryakṣo harir eva ca
-> jigīṣayā susaṁrabdhāv
+> evaṁ gadābhyāṁ gurvībhyāṁ\
+> haryakṣo harir eva ca\
+> jigīṣayā susaṁrabdhāv\
 > anyonyam abhijaghnatuḥ
 
 *evam*—in this way; *gadābhyām*—with their maces; *gurvībhyām*—huge; *haryakṣaḥ*—the demon Haryakṣa (Hiraṇyākṣa); *hariḥ*—Lord Hari; *eva*—certainly; *ca*—and; *jigīṣayā*—with a desire for victory; *susaṁrabdhau*—enraged; *anyonyam*—each other; *abhijaghnatuḥ*—they struck.

@@ -1,9 +1,9 @@
 ### CC Adi 4.170
 
-> ইহাকে কহিয়ে কৃষ্ণে দৃঢ় অনুরাগ ।
+> ইহাকে কহিয়ে কৃষ্ণে দৃঢ় অনুরাগ ।\
 > স্বচ্ছ ধৌতবস্ত্রে যৈছে নাহি কোন দাগ ॥১৭০॥
 
-> ihāke kahiye kṛṣṇe dṛḍha anurāga
+> ihāke kahiye kṛṣṇe dṛḍha anurāga\
 > svaccha dhauta-vastre yaiche nāhi kona dāga
 
 *ihāke*—this; *kahiye*—I say; *kṛṣṇe*—in Lord Kṛṣṇa; *dṛḍha*—strong; *anurāga*—love; *svaccha*—pure; *dhauta*—clean; *vastre*—in cloth; *yaiche*—just as; *nāhi*—not; *kona*—some; *dāga*—mark.

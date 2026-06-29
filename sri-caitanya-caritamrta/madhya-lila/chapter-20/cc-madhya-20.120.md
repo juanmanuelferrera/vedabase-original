@@ -1,9 +1,9 @@
 ### CC Madhya 20.120
 
-> সাধু-শাস্ত্র-কৃপায় যদি কৃষ্ণোন্মুখ হয় ।
+> সাধু-শাস্ত্র-কৃপায় যদি কৃষ্ণোন্মুখ হয় ।\
 > সেই জীব নিস্তরে, মায়া তাহারে ছাড়য় ॥১২০॥
 
-> sādhu-śāstra-kṛpāya yadi kṛṣṇonmukha haya
+> sādhu-śāstra-kṛpāya yadi kṛṣṇonmukha haya\
 > sei jīva nistare, māyā tāhāre chāḍaya
 
 *sādhu*—of saintly persons; *śāstra*—of scriptures; *kṛpāya*—by the mercy; *yadi*—if; *kṛṣṇa-unmukha haya*—one becomes Kṛṣṇa conscious; *sei*—that; *jīva*—living entity; *nistare*—becomes liberated; *māyā*—the illusory energy; *tāhāre*—him; *chādaya*—gives up.

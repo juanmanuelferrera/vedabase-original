@@ -1,9 +1,9 @@
 ### CC Adi 17.133
 
-> নগরে নগরে আজি করিমু কীর্তন ।
+> নগরে নগরে আজি করিমু কীর্তন ।\
 > সন্ধ্যাকালে কর সভে নগর-মণ্ডন ॥১৩৩॥
 
-> nagare nagare āji karimu kīrtana
+> nagare nagare āji karimu kīrtana\
 > sandhyā-kāle kara sabhe nagara-maṇḍana
 
 *nagare*—de ciudad; *nagare*—en ciudad; *āji*—hoy; *karimu*—realizaré; *kīrtana*—canto del mahā-mantra Hare Kṛṣṇa; *sandhyā-kāle*—por la tarde; *kara*—haced; *sabhe*—todos; *nagara*—de la ciudad; *maṇḍana*—decoración.

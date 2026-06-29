@@ -1,11 +1,11 @@
 ### SB 2.3.15
 
-> स वै भागवतो राजा पाण्डवेयो महारथः ।
+> स वै भागवतो राजा पाण्डवेयो महारथः ।\
 > बालक्रीडनकैः क्रीडन्कृष्णक्रीडां य आददे ॥१५॥
 
-> sa vai bhāgavato rājā
-> pāṇḍaveyo mahā-rathaḥ
-> bāla-krīḍanakaiḥ krīḍan
+> sa vai bhāgavato rājā\
+> pāṇḍaveyo mahā-rathaḥ\
+> bāla-krīḍanakaiḥ krīḍan\
 > kṛṣṇa-krīḍāṁ ya ādade
 
 *saḥ*—él; *vai*—ciertamente; *bhāgavataḥ*—un gran devoto del Señor; *rājā*—Mahārāja Parīkṣit; *pāṇḍaveyaḥ*—nieto de los Pāṇḍavas; *mahā-rathaḥ*—un gran combatiente; *bāla*—mientras era un niño; *krīḍanakaiḥ*—con muñecos de juguete; *krīḍan*—jugando; *kṛṣṇa*—el Señor Śrī Kṛṣṇa; *krīḍām*—actividades; *yaḥ*—el cual; *ādade*—aceptó.

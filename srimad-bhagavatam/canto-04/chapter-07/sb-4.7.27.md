@@ -1,15 +1,15 @@
 ### SB 4.7.27
 
-> ऋत्विज ऊचुः
-> तत्त्वं न ते वयमनञ्जन रुद्रशापात्
-> कर्मण्यवग्रहधियो भगवन्विदामः ।
-> धर्मोपलक्षणमिदं त्रिवृदध्वराख्यं
+> ऋत्विज ऊचुः\
+> तत्त्वं न ते वयमनञ्जन रुद्रशापात्\
+> कर्मण्यवग्रहधियो भगवन्विदामः ।\
+> धर्मोपलक्षणमिदं त्रिवृदध्वराख्यं\
 > ज्ञातं यदर्थमधिदैवमदो व्यवस्थाः ॥२७॥
 
-> ṛtvija ūcuḥ
-> tattvaṁ na te vayam anañjana rudra-śāpāt
-> karmaṇy avagraha-dhiyo bhagavan vidāmaḥ
-> dharmopalakṣaṇam idaṁ trivṛd adhvarākhyaṁ
+> ṛtvija ūcuḥ\
+> tattvaṁ na te vayam anañjana rudra-śāpāt\
+> karmaṇy avagraha-dhiyo bhagavan vidāmaḥ\
+> dharmopalakṣaṇam idaṁ trivṛd adhvarākhyaṁ\
 > jñātaṁ yad-artham adhidaivam ado vyavasthāḥ
 
 *ṛtvijaḥ*—the priests; *ūcuḥ*—began to say; *tattvam*—truth; *na*—not; *te*—of Your Lordship; *vayam*—all of us; *anañjana*—without material contamination; *rudra*—Lord Śiva; *śāpāt*—by his curse; *karmaṇi*—in fruitive activities; *avagraha*—being too much attached; *dhiyaḥ*—of such intelligence; *bhagavan*—O Lord; *vidāmaḥ*—know; *dharma*—religion; *upalakṣaṇam*—symbolized; *idam*—this; *tri-vṛt*—the three departments of knowledge of the *Vedas*; *adhvara*—sacrifice; *ākhyam*—of the name; *jñātam*—known to us; *yat*—that; *artham*—for the matter of; *adhidaivam*—for worshiping the demigods; *adaḥ*—this; *vyavasthāḥ*—arrangement.

@@ -1,11 +1,11 @@
 ### SB 6.17.7
 
-> जटाधरस्तीव्रतपा ब्रह्मवादिसभापतिः
+> जटाधरस्तीव्रतपा ब्रह्मवादिसभापतिः\
 > अङ्कीकृत्य स्त्रियं चास्ते गतह्रीः प्राकृतो यथा ॥७॥
 
-> jaṭā-dharas tīvra-tapā
-> brahmavādi-sabhā-patiḥ
-> aṅkīkṛtya striyaṁ cāste
+> jaṭā-dharas tīvra-tapā\
+> brahmavādi-sabhā-patiḥ\
+> aṅkīkṛtya striyaṁ cāste\
 > gata-hrīḥ prākṛto yathā
 
 *jaṭā-dharaḥ*—con mechones de cabello enredado; *tīvra-tapāḥ*—muy elevado por haberse sometido a rigurosas austeridades y penitencias; *brahma-vādi*—de seguidores estrictos de los principios védicos; *sabhā-patiḥ*—el presidente de la asamblea; *aṅkīkṛtya*—abrazando; *striyam*—a una mujer; *ca*—y; *āste*—se sienta; *gata-hrīḥ*—sin vergüenza; *prākṛtaḥ*—una persona condicionada por la naturaleza material; *yathā*—tal y como.

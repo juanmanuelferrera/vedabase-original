@@ -1,11 +1,11 @@
 ### SB 3.14.25
 
-> श्मशानचक्रानिलधूलिधूम्र विकीर्णविद्योतजटाकलापः ।
+> श्मशानचक्रानिलधूलिधूम्र विकीर्णविद्योतजटाकलापः ।\
 > भस्मावगुण्ठामलरुक्मदेहो देवस्त्रिभिः पश्यति देवरस्ते ॥२५॥
 
-> śmaśāna-cakrānila-dhūli-dhūmra-
-> vikīrṇa-vidyota-jaṭā-kalāpaḥ
-> bhasmāvaguṇṭhāmala-rukma-deho
+> śmaśāna-cakrānila-dhūli-dhūmra-\
+> vikīrṇa-vidyota-jaṭā-kalāpaḥ\
+> bhasmāvaguṇṭhāmala-rukma-deho\
 > devas tribhiḥ paśyati devaras te
 
 *śmaśāna*—crematorio; *cakra-anila*—remolino; *dhūli*—polvo; *dhūmra*—humeante; *vikīrṇa-vidyota*—así ungido sobre la belleza; *jaṭā-kalāpaḥ*—mechones de cabello enredado; *bhasma*—cenizas; *avaguṇṭha*—cubierto de; *amala*—inmaculado; *rukma*—rojizo; *dehaḥ*—cuerpo; *devaḥ*—el semidiós; *tribhiḥ*—con tres ojos; *paśyati*—ve; *devaraḥ*—hermano menor del esposo; *te*—tuyo.

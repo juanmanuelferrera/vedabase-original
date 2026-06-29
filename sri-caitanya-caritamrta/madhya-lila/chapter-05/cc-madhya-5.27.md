@@ -1,9 +1,9 @@
 ### CC Madhya 5.27
 
-> তা’-সবার সম্মতি বিনা নহে কন্যাদান  ।
+> তা’-সবার সম্মতি বিনা নহে কন্যাদান  ।\
 > রুক্মিণীর পিতা ভীষ্মক তাহাতে প্রমাণ ॥২৭॥
 
-> tā'-sabāra sammati vinā nahe kanyā-dāna
+> tā'-sabāra sammati vinā nahe kanyā-dāna\
 > rukmiṇīra pitā bhīṣmaka tāhāte pramāṇa
 
 *tā'-sabāra*—of all of them; *sammati*—consent; *vinā*—without; *nahe*—not; *kanyā-dāna*—giving the daughter in charity; *rukmiṇīra*—of Queen Rukmiṇī; *pitā*—father; *bhīṣmaka*—of the name Bhīṣmaka; *tāhāte*—of that; *pramāṇa*—evidence.

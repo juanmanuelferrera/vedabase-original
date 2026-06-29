@@ -1,11 +1,11 @@
 ### CC Adi 7.1
 
-> অগত্যেকগতিং নত্বা হীনার্থাধিকসাধকম্ ।
+> অগত্যেকগতিং নত্বা হীনার্থাধিকসাধকম্ ।\
 > শ্রীচৈতন্যং লিখ্যতেঽস্য প্রেমভক্তিবদান্যতা ॥১॥
 
-> agaty-eka-gatiṁ natvā
-> hīnārthādhika-sādhakam
-> śrī-caitanyaṁ likhyate 'sya
+> agaty-eka-gatiṁ natvā\
+> hīnārthādhika-sādhakam\
+> śrī-caitanyaṁ likhyate 'sya\
 > prema-bhakti-vadānyatā
 
 *agati*—of the most fallen; *eka*—the only one; *gatim*—destination; *natvā*—after offering obeisances; *hīna*—inferior; *artha*—interest; *adhika*—greater than that; *sādhakam*—who can render; *śrī-caitanyam*—unto Lord Śrī Caitanya; *likhyate*—is being written; *asya*—of the Lord, Śrī Caitanya Mahāprabhu; *prema*—love; *bhakti*—devotional service; *vadānyatā*—magnanimity.

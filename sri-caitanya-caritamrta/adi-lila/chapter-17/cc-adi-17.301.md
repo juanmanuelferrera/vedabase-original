@@ -1,9 +1,9 @@
 ### CC Adi 17.301
 
-> পণ্ডিত-গোসাঞি আদি যাঁর যেই রস ।
+> পণ্ডিত-গোসাঞি আদি যাঁর যেই রস ।\
 > সেই সেই রসে প্রভু হন তাঁর বশ ॥৩০১॥
 
-> paṇḍita-gosāñi ādi yāṅra yei rasa
+> paṇḍita-gosāñi ādi yāṅra yei rasa\
 > sei sei rase prabhu hana tāṅra vaśa
 
 *paṇḍita-gosāñi*—Gadādhara Paṇḍita; *ādi*—headed by; *yāṅra*—whose; *yei*—whatever; *rasa*—transcendental mellow; *sei sei*—that respective; *rase*—by the mellow; *prabhu*—the Lord; *hana*—is; *tāṅra*—his; *vaśa*—under control.

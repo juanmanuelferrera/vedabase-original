@@ -1,13 +1,13 @@
 ### SB 8.5.24
 
-> श्रीशुक उवाच
-> इत्याभाष्य सुरान्वेधाः सह देवैररिन्दम
+> श्रीशुक उवाच\
+> इत्याभाष्य सुरान्वेधाः सह देवैररिन्दम\
 > अजितस्य पदं साक्षाज्जगाम तमसः परम ॥२४॥
 
-> śrī-śuka uvāca
-> ity ābhāṣya surān vedhāḥ
-> saha devair arindama
-> ajitasya padaṁ sākṣāj
+> śrī-śuka uvāca\
+> ity ābhāṣya surān vedhāḥ\
+> saha devair arindama\
+> ajitasya padaṁ sākṣāj\
 > jagāma tamasaḥ param
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *iti*—así; *ābhāṣya*—tras hablar; *surān*—a los semidioses; *vedhāḥ*—el Señor Brahmā, que es el líder del universo y da a todos buen juicio mediante el conocimiento védico; *saha*—con; *devaiḥ*—los semidioses; *arim-dama*—¡oh, Mahārāja Parīkṣit, subyugador de toda clase de enemigos (tales como los sentidos)!; *ajitasya*—de la Suprema Personalidad de Dios; *padam*—a la morada; *sākṣāt*—directamente; *jagāma*—fueron; *tamasaḥ*—al mundo de oscuridad; *param*—trascendental a, más allá de.

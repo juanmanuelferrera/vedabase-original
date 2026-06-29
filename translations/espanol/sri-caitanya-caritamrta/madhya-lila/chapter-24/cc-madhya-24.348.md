@@ -1,13 +1,13 @@
 ### CC Madhya 24.348
 
-> গৌড়েন্দ্রস্য সভা-বিভূষণমণিস্ত্যক্ত্বা য ঋদ্ধাং শ্রিয়ং
-> রূপস্যাগ্রজ এষ এব তরুণীং বৈরাগ্যলক্ষ্মীং দধে ।
-> অন্তর্ভক্তিরসেন পূর্ণহৃদয়ো বাহ্যেহ্বধূতাকৃতিঃ
+> গৌড়েন্দ্রস্য সভা-বিভূষণমণিস্ত্যক্ত্বা য ঋদ্ধাং শ্রিয়ং\
+> রূপস্যাগ্রজ এষ এব তরুণীং বৈরাগ্যলক্ষ্মীং দধে ।\
+> অন্তর্ভক্তিরসেন পূর্ণহৃদয়ো বাহ্যেহ্বধূতাকৃতিঃ\
 > শৈবালৈঃ পিহিতং মহা-সর ইব প্রীতিপ্রদস্তদ্বিদাম্ ॥৩৪৮॥
 
-> gauḍendrasya sabhā-vibhūṣaṇa-maṇis tyaktvā ya ṛddhāṁ śriyaṁ
-> rūpasyāgraja eṣa eva taruṇīṁ vairāgya-lakṣmīṁ dadhe
-> antar-bhakti-rasena pūrṇa-hṛdayo bāhye 'vadhūtākṛtiḥ
+> gauḍendrasya sabhā-vibhūṣaṇa-maṇis tyaktvā ya ṛddhāṁ śriyaṁ\
+> rūpasyāgraja eṣa eva taruṇīṁ vairāgya-lakṣmīṁ dadhe\
+> antar-bhakti-rasena pūrṇa-hṛdayo bāhye 'vadhūtākṛtiḥ\
 > śaivālaiḥ pihitaṁ mahā-sara iva prīti-pradas tad-vidām
 
 *gauḍa-indrasya*—del gobernante de Gauḍa-deśa (Bengala); *sabhā*—del parlamento; *vibhūṣaṇa*—fundamental; *maṇiḥ*—la gema; *tyaktvā*—renunciando; *yaḥ*—aquel que; *ṛddhām*—opulenta; *śriyam*—disfrute regio; *rūpasya agrajaḥ*—el hermano mayor de Śrīla Rūpa Gosvāmī; *eṣaḥ*—este; *eva*—ciertamente; *taruṇīm*—juvenil; *vairāgya-lakṣmīm*—la fortuna de la renunciación; *dadhe*—aceptó; *antaḥ-bhakti-rasena*—por los *rasas* del amor interior por Kṛṣṇa; *pūrṇa-hṛdayaḥ*—plenamente satisfecho; *bāhye*—externamente; *avadhūta-ākṛtiḥ*—la vestimenta de un mendicante; *śaivālaiḥ*—por musgo; *pihitam*—cubierto; *mahā-saraḥ*—un gran lago o lago muy profundo; *iva*—como; *prīti-pradaḥ*—muy complaciente; *tat-vidām*—para las personas familiarizadas con la ciencia del servicio devocional.

@@ -1,11 +1,11 @@
 ### SB 3.23.40
 
-> वैश्रम्भके सुरसने नन्दने पुष्पभद्रके ।
+> वैश्रम्भके सुरसने नन्दने पुष्पभद्रके ।\
 > मानसे चैत्ररथ्ये च स रेमे रामया रतः ॥४०॥
 
-> vaiśrambhake surasane
-> nandane puṣpabhadrake
-> mānase caitrarathye ca
+> vaiśrambhake surasane\
+> nandane puṣpabhadrake\
+> mānase caitrarathye ca\
 > sa reme rāmayā rataḥ
 
 *vaiśrambhake*—in the Vaiśrambhaka garden; *surasane*—in Surasana; *nandane*—in Nandana; *puṣpabhadrake*—in Puṣpabhadraka; *mānase*—by the Mānasa-sarovara Lake; *caitrarathye*—in Caitrarathya; *ca*—and; *saḥ*—he; *reme*—enjoyed; *rāmayā*—by his wife; *rataḥ*—satisfied.

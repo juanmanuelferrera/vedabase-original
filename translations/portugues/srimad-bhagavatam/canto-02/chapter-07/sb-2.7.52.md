@@ -1,8 +1,8 @@
 ### SB 2.7.52
 
-> yathā harau bhagavati
-> nṛṇāṁ bhaktir bhaviṣyati
-> sarvātmany akhilādhāre
+> yathā harau bhagavati\
+> nṛṇāṁ bhaktir bhaviṣyati\
+> sarvātmany akhilādhāre\
 > iti saṅkalpya varṇaya
 
 *yathā*—na medida do possível; *harau*—à Personalidade de Deus; *bhagavati*—ao Senhor; *nṛṇām*—para os seres humanos; *bhaktiḥ*—serviço devocional; *bhaviṣyati*—tornar-se iluminado; *sarva-ātmani*—o Todo Absoluto; *akhila-ādhāre*—ao *summum bonum*; *iti*—assim; *saṅkalpya*—pela determinação; *varṇaya*—descreve.

@@ -1,11 +1,11 @@
 ### CC Madhya 20.331
 
-> আসন্ বর্ণাস্ত্রয়ো হ্যস্য গৃহ্ণতোঽনুযুগং তনূঃ ।
+> আসন্ বর্ণাস্ত্রয়ো হ্যস্য গৃহ্ণতোঽনুযুগং তনূঃ ।\
 > শুক্লো রক্তস্তথা পীত ইদানীং কৃষ্ণতাং গতঃ ॥৩৩১॥
 
-> āsan varṇās trayo hy asya
-> gṛhṇato 'nu-yugaṁ tanūḥ
-> śuklo raktas tathā pīta
+> āsan varṇās trayo hy asya\
+> gṛhṇato 'nu-yugaṁ tanūḥ\
+> śuklo raktas tathā pīta\
 > idānīṁ kṛṣṇatāṁ gataḥ
 
 *āsan*—there were; *varṇāḥ*—colors; *trayaḥ*—three; *hi*—certainly; *asya*—of your son; *gṛhṇataḥ*—accepting; *anu-yugam*—according to the millennium; *tanūḥ*—body; *śuklaḥ*—white; *raktaḥ*—red; *tathā*—as well as; *pītaḥ*—yellow; *idānīm*—just now; *kṛṣṇatām gataḥ*—He has assumed a blackish hue.

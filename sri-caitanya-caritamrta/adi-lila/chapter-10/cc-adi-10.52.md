@@ -1,9 +1,9 @@
 ### CC Adi 10.52
 
-> শ্রীমান্ সেন প্রভুর সেবক প্রধান ।
+> শ্রীমান্ সেন প্রভুর সেবক প্রধান ।\
 > চৈতন্য-চরণ বিনু নাহি জানে আন ॥৫২॥
 
-> śrīmān sena prabhura sevaka pradhāna
+> śrīmān sena prabhura sevaka pradhāna\
 > caitanya-caraṇa vinu nāhi jāne āna
 
 *śrīmān sena*—of the name Śrīmān Sena; *prabhura*—of the Lord; *sevaka*—servant; *pradhāna*—chief; *caitanya-caraṇa*—the lotus feet of Lord Caitanya Mahāprabhu; *vinu*—except; *nāhi*—does not; *jāne*—know; *āna*—anything else.

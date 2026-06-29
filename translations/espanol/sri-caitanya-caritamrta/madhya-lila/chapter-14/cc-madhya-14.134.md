@@ -1,9 +1,9 @@
 ### CC Madhya 14.134
 
-> অচেতনবৎ তারে করেন তাড়নে ।
+> অচেতনবৎ তারে করেন তাড়নে ।\
 > নানামত গালি দেন ভণ্ড-বচনে ॥১৩৪॥
 
-> acetanavat tāre karena tāḍane
+> acetanavat tāre karena tāḍane\
 > nānā-mata gāli dena bhaṇḍa-vacane
 
 *acetana-vat*—casi inconscientes; *tāre*—a los sirvientes; *karena*—hace; *tāḍane*—castigo; *nānā-mata*—diversos tipos de; *gāli*—burla; *dena*—profiere; *bhaṇḍa-vacane*—diversas palabras indecorosas.

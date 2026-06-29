@@ -1,11 +1,11 @@
 ### SB 1.12.11
 
-> विधूय तदमेयात्मा भगवान्धर्मगुब्विभुः ।
+> विधूय तदमेयात्मा भगवान्धर्मगुब्विभुः ।\
 > मिषतो दशमासस्य तत्रैवान्तर्दधे हरिः ॥११॥
 
-> vidhūya tad ameyātmā
-> bhagavān dharma-gub vibhuḥ
-> miṣato daśamāsasya
+> vidhūya tad ameyātmā\
+> bhagavān dharma-gub vibhuḥ\
+> miṣato daśamāsasya\
 > tatraivāntardadhe hariḥ
 
 *vidhūya*—habiendo lavado por completo; *tat*—esa; *ameyātmā*—la Superalma que está dentro y fuera de todo; *bhagavān*—la Personalidad de Dios; *dharma-gup*—el protector de la rectitud; *vibhuḥ*—el Supremo; *miṣataḥ*—mientras observaba; *daśamāsasya*—de aquel a quien visten todas las direcciones; *tatra eva*—en seguida; *antaḥ*—perderse de vista; *dadhe*—se volvió; *hariḥ*—el Señor.

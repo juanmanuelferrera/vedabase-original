@@ -1,9 +1,9 @@
 ### CC Madhya 15.279
 
-> কম্প, অশ্রু, পুলক, স্তম্ভ, স্বেদ, স্বরভঙ্গ ।
+> কম্প, অশ্রু, পুলক, স্তম্ভ, স্বেদ, স্বরভঙ্গ ।\
 > প্রভু হাসে দেখি’ তার প্রেমের তরঙ্গ ॥২৭৯॥
 
-> kampa, aśru, pulaka, stambha, sveda, svara-bhaṅga
+> kampa, aśru, pulaka, stambha, sveda, svara-bhaṅga\
 > prabhu hāse dekhi' tāra premera taraṅga
 
 *kampa*—trembling; *aśru*—tears; *pulaka*—jubilation; *stambha*—being stunned; *sveda*—perspiration; *svara-bhaṅga*—faltering of the voice; *prabhu hāse*—Śrī Caitanya Mahāprabhu began to laugh; *dekhi'*—seeing; *tāra*—Amogha's; *premera taraṅga*—waves of ecstatic love.

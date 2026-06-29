@@ -1,9 +1,9 @@
 ### CC Madhya 1.230
 
-> একাকী যাইব, কিম্বা সঙ্গে এক জন ।
+> একাকী যাইব, কিম্বা সঙ্গে এক জন ।\
 > তবে সে শোভয়ে বৃন্দাবনেরে গমন ॥২৩০॥
 
-> ekākī yāiba, kimvā saṅge eka jana
+> ekākī yāiba, kimvā saṅge eka jana\
 > tabe se śobhaye vṛndāvanere gamana
 
 *ekākī*—alone; *yāiba*—I shall go; *kimvā*—or; *saṅge*—with; *eka*—one; *jana*—person; *tabe*—then only; *se*—that; *śobhaye*—becomes beautiful; *vṛndāvanere*—to Vṛndāvana; *gamana*—going.

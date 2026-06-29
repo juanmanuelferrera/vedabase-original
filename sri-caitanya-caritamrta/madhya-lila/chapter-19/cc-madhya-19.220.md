@@ -1,9 +1,9 @@
 ### CC Madhya 19.220
 
-> ঈশ্বরজ্ঞান, সম্ভ্রম-গৌরব প্রচুর ।
+> ঈশ্বরজ্ঞান, সম্ভ্রম-গৌরব প্রচুর ।\
 > ‘সেবা’ করি’ কৃষ্ণে সুখ দেন নিরন্তর ॥২২০॥
 
-> īśvara-jñāna, sambhrama-gaurava pracura
+> īśvara-jñāna, sambhrama-gaurava pracura\
 > 'sevā' kari' kṛṣṇe sukha dena nirantara
 
 *īśvara-jñāna*—knowledge of the supreme controller; *sambhrama-gaurava*—awe and veneration; *pracura*—abundant; *sevā*—service; *kari'*—performing; *kṛṣṇe*—unto Lord Kṛṣṇa; *sukha*—happiness; *dena*—gives; *nirantara*—constantly.

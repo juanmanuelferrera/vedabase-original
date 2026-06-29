@@ -1,11 +1,11 @@
 ### SB 1.17.13
 
-> आख्याहि वृष भद्रं वः साधूनामकृतागसाम् ।
+> आख्याहि वृष भद्रं वः साधूनामकृतागसाम् ।\
 > आत्मवैरूप्यकर्तारं पार्थानां कीर्तिदूषणम् ॥१३॥
 
-> ākhyāhi vṛṣa bhadraṁ vaḥ
-> sādhūnām akṛtāgasām
-> ātma-vairūpya-kartāraṁ
+> ākhyāhi vṛṣa bhadraṁ vaḥ\
+> sādhūnām akṛtāgasām\
+> ātma-vairūpya-kartāraṁ\
 > pārthānāṁ kīrti-dūṣaṇam
 
 *ākhyāhi*—tan solo hazme saber; *vṛṣa*—¡oh, toro!; *bhadram*—bien; *vaḥ*—para ti; *sādhūnām*—del honesto; *akṛta-āgasām*—de aquellos que están indefensos; *ātma-vairūpya*—deformación del ser; *kartāram*—el hacedor; *pārthānām*—de los hijos de Pṛthā; *kīrti-dūṣaṇam*—amenazando la reputación.

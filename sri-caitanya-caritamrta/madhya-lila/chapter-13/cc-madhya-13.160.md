@@ -1,11 +1,11 @@
 ### CC Madhya 13.160
 
-> ময়ি ভক্তির্হি ভূতানামমৃতত্বায় কল্পতে ।
+> ময়ি ভক্তির্হি ভূতানামমৃতত্বায় কল্পতে ।\
 > দিষ্ট্যা যদাসীন্মৎস্নেহো ভবতীনাং মদাপনঃ ॥১৬০॥
 
-> mayi bhaktir hi bhūtānām
-> amṛtatvāya kalpate
-> diṣṭyā yad āsīn mat-sneho
+> mayi bhaktir hi bhūtānām\
+> amṛtatvāya kalpate\
+> diṣṭyā yad āsīn mat-sneho\
 > bhavatīnāṁ mad-āpanaḥ
 
 *mayi*—unto Me; *bhaktiḥ*—the nine kinds of devotional service, such as *śravaṇa, kīrtana* and *smaraṇa*; *hi*—certainly; *bhūtānām*—of all living entities; *amṛtatvāya*—for becoming eternal associates of the Lord; *kalpate*—is quite befitting; *diṣṭyā*—by good fortune; *yat*—whatever; *āsīt*—there was; *mat-snehaḥ*—love and affection for Me; *bhavatīnām*—of all you *gopīs*; *mat-āpanaḥ*—the cause for getting Me back.

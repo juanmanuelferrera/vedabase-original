@@ -1,9 +1,9 @@
 ### CC Antya 1.98
 
-> সেই পত্রে প্রভু এক শ্লোক যে দেখিলা ।
+> সেই পত্রে প্রভু এক শ্লোক যে দেখিলা ।\
 > পড়িতেই শ্লোক, প্রেমে আবিষ্ট হইলা ॥৯৮॥
 
-> sei patre prabhu eka śloka ye dekhilā
+> sei patre prabhu eka śloka ye dekhilā\
 > paḍitei śloka, preme āviṣṭa ha-ilā
 
 *sei patre*—en esa hoja de palma; *prabhu*—Śrī Caitanya Mahāprabhu; *eka śloka*—un verso; *ye*—que; *dekhilā*—vio; *paḍitei*—al leer; *śloka*—el verso; *preme*—de amor extático; *āviṣṭa ha-ilā*—quedó absorto.

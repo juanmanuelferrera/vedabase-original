@@ -1,11 +1,11 @@
 ### SB 6.16.41
 
-> विषममतिर्न यत्र नृणां त्वमहमिति मम तवेति च यदन्यत्र
+> विषममतिर्न यत्र नृणां त्वमहमिति मम तवेति च यदन्यत्र\
 > विषमधिया रचितो यः स ह्यविशुद्धः क्षयिष्णुरधर्मबहुलः ॥४१॥
 
-> viṣama-matir na yatra nṛṇāṁ
-> tvam aham iti mama taveti ca yad anyatra
-> viṣama-dhiyā racito yaḥ
+> viṣama-matir na yatra nṛṇāṁ\
+> tvam aham iti mama taveti ca yad anyatra\
+> viṣama-dhiyā racito yaḥ\
 > sa hy aviśuddhaḥ kṣayiṣṇur adharma-bahulaḥ
 
 *viṣama*—no ecuánime (tu religión, mi religión; mi credo, tu credo); *matiḥ*—conciencia; *na*—no; *yatra*—en la cual; *nṛṇām*—de la sociedad humana; *tvam*—tú; *aham*—yo; *iti*—así; *mama*—mío; *tava*—tuyo; *iti*—así; *ca*—también; *yat*—que; *anyatra*—en otro lugar (en sistemas religiosos distintos al *bhāgavata-dharma)*; *viṣama-dhiyā*—por esa inteligencia no ecuánime; *racitaḥ*—hecho; *yaḥ*—ese que; *saḥ*—ese sistema de religión; *hi*—en verdad; *aviśuddhaḥ*—no puro; *kṣayiṣṇuḥ*—temporal; *adharma-bahulaḥ*—lleno de irreligión.

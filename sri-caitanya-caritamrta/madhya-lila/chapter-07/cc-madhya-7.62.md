@@ -1,9 +1,9 @@
 ### CC Madhya 7.62
 
-> ‘রামানন্দ রায়’ আছে গোদাবরী-তীরে ।
+> ‘রামানন্দ রায়’ আছে গোদাবরী-তীরে ।\
 > অধিকারী হয়েন তেঁহো বিদ্যানগরে ॥৬২॥
 
-> 'rāmānanda rāya' āche godāvarī-tīre
+> 'rāmānanda rāya' āche godāvarī-tīre\
 > adhikārī hayena teṅho vidyānagare
 
 *rāmānanda rāya*—Rāmānanda Rāya; *āche*—there is; *godāvarī-tīre*—on the bank of river Godāvarī; *adhikārī*—a responsible officer; *hayena*—is; *teṅho*—he; *vidyā-nagare*—in the town known as Vidyānagara.

@@ -1,11 +1,11 @@
 ### SB 4.30.13
 
-> कण्डोः प्रम्लोचया लब्धा कन्या कमललोचना ।
+> कण्डोः प्रम्लोचया लब्धा कन्या कमललोचना ।\
 > तां चापविद्धां जगृहुर्भूरुहा नृपनन्दनाः ॥१३॥
 
-> kaṇḍoḥ pramlocayā labdhā
-> kanyā kamala-locanā
-> tāṁ cāpaviddhāṁ jagṛhur
+> kaṇḍoḥ pramlocayā labdhā\
+> kanyā kamala-locanā\
+> tāṁ cāpaviddhāṁ jagṛhur\
 > bhūruhā nṛpa-nandanāḥ
 
 *kaṇḍoḥ*—of the sage Kaṇḍu; *pramlocayā*—by a heavenly society girl named Pramlocā; *labdhā*—obtained; *kanyā*—daughter; *kamala-locanā*—lotus-eyed; *tām*—her; *ca*—also; *apaviddhām*—given up; *jagṛhuḥ*—accepted; *bhūruhāḥ*—the trees; *nṛpa-nandanāḥ*—O sons of King Prācīnabarhiṣat.

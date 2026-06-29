@@ -1,18 +1,18 @@
 ### SB 9.14.44-45
 
-> स्थालीस्थानं गतोऽश्वत्थं शमीगर्भं विलक्ष्य सः
-> तेन द्वे अरणी कृत्वा उर्वशीलोककाम्यया ॥४४॥
-> उर्वशीं मन्त्रतो ध्यायन्नधरारणिमुत्तराम
+> स्थालीस्थानं गतोऽश्वत्थं शमीगर्भं विलक्ष्य सः\
+> तेन द्वे अरणी कृत्वा उर्वशीलोककाम्यया ॥४४॥\
+> उर्वशीं मन्त्रतो ध्यायन्नधरारणिमुत्तराम\
 > आत्मानमुभयोर्मध्ये यत्तत्प्रजननं प्रभुः ॥४५॥
 
-> sthālī-sthānaṁ gato 'śvatthaṁ
-> śamī-garbhaṁ vilakṣya saḥ
-> tena dve araṇī kṛtvā
+> sthālī-sthānaṁ gato 'śvatthaṁ\
+> śamī-garbhaṁ vilakṣya saḥ\
+> tena dve araṇī kṛtvā\
 > urvaśī-loka-kāmyayā
 
-> urvaśīṁ mantrato dhyāyann
-> adharāraṇim uttarām
-> ātmānam ubhayor madhye
+> urvaśīṁ mantrato dhyāyann\
+> adharāraṇim uttarām\
+> ātmānam ubhayor madhye\
 > yat tat prajananaṁ prabhuḥ
 
 *sthālī-sthānam*—el lugar en que había dejado a Agnisthālī; *gataḥ*—ir allí; *aśvattham*—un árbol *aśvattha*; *śamī-garbham*—que crecía en el seno del árbol *śamī*; *vilakṣya*—al ver; *saḥ*—él, Purūravā; *tena*—de ese; *dve*—dos; *araṇī*—piezas de madera necesarias para encender un fuego de sacrificio; *kṛtvā*—hacer; *urvaśī-loka-kāmyayā*—con el deseo de elevarse al planeta en que se encontraba Urvaśī; *urvaśīm*—Urvaśī; *mantrataḥ*—con el canto del *mantra* preciso; *dhyāyan*—meditó en; *adhara*—inferior; *araṇim*—madera *araṇi*; *uttarām*—y la superior; *ātmānam*—él mismo; *ubhayoḥ madhye*—entre ambas; *yat tat*—aquello que (en lo que meditó); *prajananam*—como un hijo; *prabhuḥ*—el rey.

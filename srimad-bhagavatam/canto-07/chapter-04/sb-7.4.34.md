@@ -1,11 +1,11 @@
 ### SB 7.4.34
 
-> यस्मिन्महद्गुणा राजन्गृह्यन्ते कविभिर्मुहुः
+> यस्मिन्महद्गुणा राजन्गृह्यन्ते कविभिर्मुहुः\
 > न तेऽधुना पिधीयन्ते यथा भगवतीश्वरे ॥३४॥
 
-> yasmin mahad-guṇā rājan
-> gṛhyante kavibhir muhuḥ
-> na te 'dhunā pidhīyante
+> yasmin mahad-guṇā rājan\
+> gṛhyante kavibhir muhuḥ\
+> na te 'dhunā pidhīyante\
 > yathā bhagavatīśvare
 
 *yasmin*—in whom; *mahat-guṇāḥ*—exalted transcendental qualities; *rājan*—O King; *gṛhyante*—are glorified; *kavibhiḥ*—by persons who are thoughtful and advanced in knowledge; *muhuḥ*—always; *na*—not; *te*—these; *adhunā*—today; *pidhīyante*—are obscured; *yathā*—just as; *bhagavati*—in the Supreme Personality of Godhead; *īśvare*—the supreme controller.

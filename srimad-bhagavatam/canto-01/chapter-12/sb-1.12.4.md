@@ -1,13 +1,13 @@
 ### SB 1.12.4
 
-> सूत उवाच
-> अपीपलद्धर्मराजः पितृवद्रञ्जयन्प्रजाः ।
+> सूत उवाच\
+> अपीपलद्धर्मराजः पितृवद्रञ्जयन्प्रजाः ।\
 > निःस्पृहः सर्वकामेभ्यः कृष्णपादानुसेवया ॥४॥
 
-> sūta uvāca
-> apīpalad dharma-rājaḥ
-> pitṛvad rañjayan prajāḥ
-> niḥspṛhaḥ sarva-kāmebhyaḥ
+> sūta uvāca\
+> apīpalad dharma-rājaḥ\
+> pitṛvad rañjayan prajāḥ\
+> niḥspṛhaḥ sarva-kāmebhyaḥ\
 > kṛṣṇa-pādānusevayā
 
 *sūtaḥ uvāca*—Śrī Sūta Gosvāmī said; *apīpalat*—administered prosperity; *dharma-rājaḥ*—King Yudhiṣṭhira; *pitṛ-vat*—exactly like his father; *rañjayan*—pleasing; *prajāḥ*—all those who took birth; *niḥspṛhaḥ*—without personal ambition; *sarva*—all; *kāmebhyaḥ*—from sense gratification; *kṛṣṇa-pāda*—the lotus feet of Lord Śrī Kṛṣṇa; *anusevayā*—by dint of rendering continuous service.

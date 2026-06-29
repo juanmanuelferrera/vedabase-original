@@ -1,11 +1,11 @@
 ### SB 3.4.31
 
-> नोद्धवोऽण्वपि मन्न्यूनो यद्गुणैर्नार्दितः प्रभुः ।
+> नोद्धवोऽण्वपि मन्न्यूनो यद्गुणैर्नार्दितः प्रभुः ।\
 > अतो मद्वयुनं लोकं ग्राहयन्निह तिष्ठतु ॥३१॥
 
-> noddhavo 'ṇv api man-nyūno
-> yad guṇair nārditaḥ prabhuḥ
-> ato mad-vayunaṁ lokaṁ
+> noddhavo 'ṇv api man-nyūno\
+> yad guṇair nārditaḥ prabhuḥ\
+> ato mad-vayunaṁ lokaṁ\
 > grāhayann iha tiṣṭhatu
 
 *na*—not; *uddhavaḥ*—Uddhava; *aṇu*—slightly; *api*—also; *mat*—to Myself; *nyūnaḥ*—inferior; *yat*—because; *guṇaiḥ*—by the modes of material nature; *na*—nor; *arditaḥ*—affected; *prabhuḥ*—master; *ataḥ*—therefore; *mat-vayunam*—knowledge of Me (the Personality of Godhead); *lokam*—the world; *grāhayan*—just to disseminate; *iha*—in this world; *tiṣṭhatu*—may remain.

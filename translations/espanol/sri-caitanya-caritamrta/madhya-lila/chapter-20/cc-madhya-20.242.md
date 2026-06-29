@@ -1,11 +1,11 @@
 ### CC Madhya 20.242
 
-> চত্বারো বাসুদেবাদ্যা নারায়ণনৃসিংহকৌ ।
+> চত্বারো বাসুদেবাদ্যা নারায়ণনৃসিংহকৌ ।\
 > হয়গ্রীবো মহাক্রোড়ো ব্রহ্মা চেতি নবোদিতাঃ ॥২৪২॥
 
-> catvāro vāsudevādyā
-> nārāyaṇa-nṛsiṁhakau
-> hayagrīvo mahākroḍo
+> catvāro vāsudevādyā\
+> nārāyaṇa-nṛsiṁhakau\
+> hayagrīvo mahākroḍo\
 > brahmā ceti navoditāḥ
 
 *catvāraḥ*—cuatro protectores principales; *vāsudeva-ādyāḥ*—Vāsudeva, Saṅkarṣaṇa, Pradyumna y Aniruddha; *nārāyaṇa*—incluyendo al Señor Nārāyaṇa; *nṛsiṁhakau*—así como al Señor Nṛsiṁha; *hayagrīvaḥ*—el Señor Hayagrīva; *mahākroḍaḥ*—el Señor Varāha; *brahmā*—el Señor Brahmā; *ca*—también; *iti*—así; *nava-uditāḥ*—nueve personalidades.

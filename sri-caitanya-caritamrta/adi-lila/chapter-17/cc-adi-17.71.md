@@ -1,9 +1,9 @@
 ### CC Adi 17.71
 
-> হরিদাস ঠাকুরেরে করিল প্রসাদ ।
+> হরিদাস ঠাকুরেরে করিল প্রসাদ ।\
 > আচার্য-স্থানে মাতার খণ্ডাইল অপরাধ ॥৭১॥
 
-> haridāsa ṭhākurere karila prasāda
+> haridāsa ṭhākurere karila prasāda\
 > ācārya-sthāne mātāra khaṇḍāila aparādha
 
 *haridāsa ṭhākurere*—unto Haridāsa Ṭhākura; *karila*—did; *prasāda*—benediction; *ācārya-sthāne*—in the home of Advaita Ācārya; *mātāra*—of Śacīmātā; *khaṇḍāila*—vanquished; *aparādha*—the offense.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.154
 
-> তবে যায় তদুপরি ‘গোলোক-বৃন্দাবন’ ।
+> তবে যায় তদুপরি ‘গোলোক-বৃন্দাবন’ ।\
 > ‘কৃষ্ণচরণ’-কল্পবৃক্ষে করে আরোহণ ॥১৫৪॥
 
-> tabe yāya tad-upari 'goloka-vṛndāvana'
+> tabe yāya tad-upari 'goloka-vṛndāvana'\
 > 'kṛṣṇa-caraṇa'-kalpa-vṛkṣe kare ārohaṇa
 
 *tabe*—thereafter; *yāya*—goes; *tat-upari*—to the top of that (the spiritual sky); *goloka-vṛndāvana*—to the planet known as Goloka Vṛndāvana where Kṛṣṇa lives; *kṛṣṇa-caraṇa*—of the lotus feet of Lord Kṛṣṇa; *kalpa-vṛkṣe*—on the desire tree; *kare ārohaṇa*—climbs.

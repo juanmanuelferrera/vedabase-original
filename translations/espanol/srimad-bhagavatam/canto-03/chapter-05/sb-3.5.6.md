@@ -1,11 +1,11 @@
 ### SB 3.5.6
 
-> यथा पुनः स्वे ख इदं निवेश्य शेते गुहायां स निवृत्तवृत्तिः ।
+> यथा पुनः स्वे ख इदं निवेश्य शेते गुहायां स निवृत्तवृत्तिः ।\
 > योगेश्वराधीश्वर एक एतदनुप्रविष्टो बहुधा यथासीत् ॥६॥
 
-> yathā punaḥ sve kha idaṁ niveśya
-> śete guhāyāṁ sa nivṛtta-vṛttiḥ
-> yogeśvarādhīśvara eka etad
+> yathā punaḥ sve kha idaṁ niveśya\
+> śete guhāyāṁ sa nivṛtta-vṛttiḥ\
+> yogeśvarādhīśvara eka etad\
 > anupraviṣṭo bahudhā yathāsīt
 
 *yathā*—tanto como; *punaḥ*—otra vez; *sve*—en Su; *khe*—forma de espacio *(virāṭ-rūpa)*; *idam*—esta; *niveśya*—entrando en; *śete*—yace; *guhāyām*—dentro del universo; *saḥ*—Él (la Personalidad de Dios); *nivṛtta*—sin esfuerzo; *vṛttiḥ*—medios de sustento; *yoga-īśvara*—el amo de todos los poderes místicos; *adhīśvaraḥ*—propietario de todo; *ekaḥ*—uno sin igual; *etat*—este; *anupraviṣṭaḥ*—entrando después; *bahudhā*—mediante innumerables; *yathā*—tanto como; *āsīt*—existe.

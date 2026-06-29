@@ -1,11 +1,11 @@
 ### SB 4.26.10
 
-> शशान्वराहान्महिषान्गवयान्रुरुशल्यकान् ।
+> शशान्वराहान्महिषान्गवयान्रुरुशल्यकान् ।\
 > मेध्यानन्यांश्च विविधान्विनिघ्नन्श्रममध्यगात् ॥१०॥
 
-> śaśān varāhān mahiṣān
-> gavayān ruru-śalyakān
-> medhyān anyāṁś ca vividhān
+> śaśān varāhān mahiṣān\
+> gavayān ruru-śalyakān\
+> medhyān anyāṁś ca vividhān\
 > vinighnan śramam adhyagāt
 
 *śaśān*—conejos; *varāhān*—jabalíes; *mahiṣān*—búfalo; *gavayān*—bisonte; *ruru*—ciervo negro; *śalyakān*—puercoespines; *medhyān*—animales de caza; *anyān*—otros; *ca*—y; *vividhān*—diversos; *vinighnan*—por matar; *śramam adhyagāt*—se sintió muy cansado.

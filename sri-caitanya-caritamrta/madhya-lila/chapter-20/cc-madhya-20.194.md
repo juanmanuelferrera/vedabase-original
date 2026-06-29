@@ -1,9 +1,9 @@
 ### CC Madhya 20.194
 
-> চারিজনের পুনঃ পৃথক্ তিন তিন মূর্তি ।
+> চারিজনের পুনঃ পৃথক্ তিন তিন মূর্তি ।\
 > কেশবাদি যাহা হৈতে বিলাসের পূর্তি ॥১৯৪॥
 
-> cāri-janera punaḥ pṛthak tina tina mūrti
+> cāri-janera punaḥ pṛthak tina tina mūrti\
 > keśavādi yāhā haite vilāsera pūrti
 
 *cāri-janera*—of the original of the four expansions; *punaḥ*—again; *pṛthak*—separate; *tina tina*—three each; *mūrti*—forms; *keśava-ādi*—beginning with Lord Keśava; *yāhā haite*—from which; *vilāsera pūrti*—the vilāsa expansions are fulfilled.

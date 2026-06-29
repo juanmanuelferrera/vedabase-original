@@ -1,11 +1,11 @@
 ### SB 5.19.4
 
-> यत्तद्विशुद्धानुभवमात्रमेकं स्वतेजसा ध्वस्तगुणव्यवस्थम
+> यत्तद्विशुद्धानुभवमात्रमेकं स्वतेजसा ध्वस्तगुणव्यवस्थम\
 > प्रत्यक्प्रशान्तं सुधियोपलम्भनं ह्यनामरूपं निरहं प्रपद्ये ॥४॥
 
-> yat tad viśuddhānubhava-mātram ekaṁ
-> sva-tejasā dhvasta-guṇa-vyavastham
-> pratyak praśāntaṁ sudhiyopalambhanaṁ
+> yat tad viśuddhānubhava-mātram ekaṁ\
+> sva-tejasā dhvasta-guṇa-vyavastham\
+> pratyak praśāntaṁ sudhiyopalambhanaṁ\
 > hy anāma-rūpaṁ nirahaṁ prapadye
 
 *yat*—que; *tat*—a esa verdad suprema; *viśuddha*—trascendentalmente pura, libre de la contaminación de la naturaleza material; *anubhava*—experiencia; *mātram*—ese cuerpo trascendental *sac-cid-ānanda*; *ekam*—el único; *sva-tejasā*—por Su propia potencia espiritual; *dhvasta*—superada; *guṇa-vyavastham*—la influencia de las modalidades de la naturaleza material; *pratyak*—trascendental, que no se ve con los ojos materiales; *praśāntam*—a quien no Le perturba la agitación material; *sudhiyā*—con conciencia de Kṛṣṇa o conciencia purificada, libre de la contaminación de los deseos materiales, las actividades fruitivas y la filosofía especulativa; *upalambhanam*—que se puede obtener; *hi*—en verdad; *anāma-rūpam*—sin nombre ni forma materiales; *niraham*—sin ego material; *prapadye*—ofrezco respetuosas reverencias.

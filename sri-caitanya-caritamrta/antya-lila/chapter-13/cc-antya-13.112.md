@@ -1,9 +1,9 @@
 ### CC Antya 13.112
 
-> অষ্টমাস রহি’ প্রভু ভট্টে বিদায় দিলা ।
+> অষ্টমাস রহি’ প্রভু ভট্টে বিদায় দিলা ।\
 > ‘বিবাহ না করিহ’ বলি’ নিষেধ করিলা ॥১১২॥
 
-> aṣṭa-māsa rahi' prabhu bhaṭṭe vidāya dilā
+> aṣṭa-māsa rahi' prabhu bhaṭṭe vidāya dilā\
 > 'vivāha nā kariha' bali' niṣedha karilā
 
 *aṣṭa-māsa*—for eight months; *rahi'*—staying; *prabhu*—Śrī Caitanya Mahāprabhu; *bhaṭṭe*—to Raghunātha Bhaṭṭa; *vidāyadilā*—bid farewell; *vivāha nā kariha*—do not marry; *bali'*—saying; *niṣedha karilā*—he forbade.

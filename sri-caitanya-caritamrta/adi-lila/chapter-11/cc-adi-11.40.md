@@ -1,9 +1,9 @@
 ### CC Adi 11.40
 
-> তাঁর পুত্র — মহাশয় শ্রীকানু ঠাকুর ।
+> তাঁর পুত্র — মহাশয় শ্রীকানু ঠাকুর ।\
 > যাঁর দেহে রহে কৃষ্ণ-প্রেমামৃতপূর ॥৪০॥
 
-> tāṅra putra—mahāśaya śrī-kānu ṭhākura
+> tāṅra putra—mahāśaya śrī-kānu ṭhākura\
 > yāṅra dehe rahe kṛṣṇa-premāmṛta-pūra
 
 *tāṅra putra*—his son; *mahāśaya*—a respectable gentleman; *śrī-kānu ṭhākura*—of the name Śrī Kānu Ṭhākura; *yāṅra*—whose; *dehe*—in the body; *rahe*—remained; *kṛṣṇa-prema-amṛta-pūra*—the nectar of devotional service to Kṛṣṇa.

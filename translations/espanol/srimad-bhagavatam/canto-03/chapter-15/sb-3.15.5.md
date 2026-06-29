@@ -1,11 +1,11 @@
 ### SB 3.15.5
 
-> नमो विज्ञानवीर्याय माययेदमुपेयुषे ।
+> नमो विज्ञानवीर्याय माययेदमुपेयुषे ।\
 > गृहीतगुणभेदाय नमस्तेऽव्यक्तयोनये ॥५॥
 
-> namo vijñāna-vīryāya
-> māyayedam upeyuṣe
-> gṛhīta-guṇa-bhedāya
+> namo vijñāna-vīryāya\
+> māyayedam upeyuṣe\
+> gṛhīta-guṇa-bhedāya\
 > namas te 'vyakta-yonaye
 
 *namaḥ*—reverencias respetuosas; *vijñāna-vīryāya*—¡oh, fuente original de fortaleza y conocimiento científico!; *māyayā*—por la energía externa; *idam*—este cuerpo de Brahmā; *upeyuṣe*—habiendo conseguido; *gṛhīta*—aceptando; *guṇa-bhedāya*—la modalidad diferenciada de la pasión; *namaḥ te*—ofreciéndote reverencias; *avyakta*—no manifestada; *yonaye*—fuente.

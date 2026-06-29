@@ -1,9 +1,9 @@
 ### CC Adi 15.24
 
-> বন্ধু-বান্ধব আসি’ দুঁহা প্রবোধিল ।
+> বন্ধু-বান্ধব আসি’ দুঁহা প্রবোধিল ।\
 > পিতৃক্রিয়া বিধিমতে ঈশ্বর করিল ॥২৪॥
 
-> bandhu-bāndhava asi' duṅhā prabodhila
+> bandhu-bāndhava asi' duṅhā prabodhila\
 > pitṛ-kriyā vidhi-mate īśvara karila
 
 *bandhu*—amigos; *bāndhava*—parientes; *āsi'*—acudiendo allí; *duṅhā*—a ambos; *prabodhila*—consolaron; *pitṛ-kriyā*—rituales que se realizan tras la muerte del padre; *vidhi-mate*—conforme al sistema Védico; *īśvara*—la Suprema Personalidad de Dios; *karila*—ejecutó.

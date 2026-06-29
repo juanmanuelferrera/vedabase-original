@@ -1,11 +1,11 @@
 ### SB 8.22.11
 
-> अथाहमप्यात्मरिपोस्तवान्तिकं दैवेन नीतः प्रसभं त्याजितश्रीः
+> अथाहमप्यात्मरिपोस्तवान्तिकं दैवेन नीतः प्रसभं त्याजितश्रीः\
 > इदं कृतान्तान्तिकवर्ति जीवितं ययाध्रुवं स्तब्धमतिर्न बुध्यते ॥११॥
 
-> athāham apy ātma-ripos tavāntikaṁ
-> daivena nītaḥ prasabhaṁ tyājita-śrīḥ
-> idaṁ kṛtāntāntika-varti jīvitaṁ
+> athāham apy ātma-ripos tavāntikaṁ\
+> daivena nītaḥ prasabhaṁ tyājita-śrīḥ\
+> idaṁ kṛtāntāntika-varti jīvitaṁ\
 > yayādhruvaṁ stabdha-matir na budhyate
 
 *atha*—therefore; *aham*—I; *api*—also; *ātma-ripoḥ*—who are the traditional enemy of the family; *tava*—of Your good self; *antikam*—the shelter; *daivena*—by providence; *nītaḥ*—brought in; *prasabham*—by force; *tyājita*—bereft of; *śrīḥ*—all opulence; *idam*—this philosophy of life; *kṛta-anta-antika-varti*—always given the facility for death; *jīvitam*—the duration of life; *yayā*—by such material opulence; *adhruvam*—as temporary; *stabdha-matiḥ*—such an unintelligent person; *na budhyate*—cannot understand.

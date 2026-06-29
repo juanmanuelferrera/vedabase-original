@@ -1,9 +1,9 @@
 ### CC Adi 5.135
 
-> কভু গুরু, কভু সখা, কভু ভৃত্য-লীলা ।
+> কভু গুরু, কভু সখা, কভু ভৃত্য-লীলা ।\
 > পূর্বে যেন তিনভাবে ব্রজে কৈল খেলা ॥১৩৫॥
 
-> kabhu guru, kabhu sakhā, kabhu bhṛtya-līlā
+> kabhu guru, kabhu sakhā, kabhu bhṛtya-līlā\
 > pūrve yena tina-bhāve vraje kaila khelā
 
 *kabhu*—a veces; *guru*—maestro espiritual; *kabhu*—a veces; *sakhā*—amigo; *kabhu*—a veces; *bhṛtya-līlā*—pasatiempos como sirviente; *pūrve*—anteriormente; *yena*—como; *tina-bhāve*—en tres modalidades diferentes; *vraje*—en Vṛndāvana; *kaila khelā*—jugó con Kṛṣṇa.

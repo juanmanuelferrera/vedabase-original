@@ -1,9 +1,9 @@
 ### CC Madhya 11.186
 
-> প্রভু দেখি’ পড়ে আগে দণ্ডবৎ হঞা ।
+> প্রভু দেখি’ পড়ে আগে দণ্ডবৎ হঞা ।\
 > প্রভু আলিঙ্গন কৈল তাঁরে উঠাঞা ॥১৮৬॥
 
-> prabhu dekhi' paḍe āge daṇḍavat hañā
+> prabhu dekhi' paḍe āge daṇḍavat hañā\
 > prabhu āliṅgana kaila tāṅre uṭhāñā
 
 *prabhu dekhi'*—after seeing the Lord; *paḍe*—fell down; *āge*—in front of Him; *daṇḍavat*—flat like a stick; *hañā*—becoming; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *āliṅgana kaila*—embraced; *tāṅre*—him; *uṭhāñā*—raising him up.

@@ -1,11 +1,11 @@
 ### SB 9.3.20
 
-> चिकीर्षितं ते किमिदं पतिस्त्वया प्रलम्भितो लोकनमस्कृतो मुनिः
+> चिकीर्षितं ते किमिदं पतिस्त्वया प्रलम्भितो लोकनमस्कृतो मुनिः\
 > यत्त्वं जराग्रस्तमसत्यसम्मतं विहाय जारं भजसेऽमुमध्वगम ॥२०॥
 
-> cikīrṣitaṁ te kim idaṁ patis tvayā
-> pralambhito loka-namaskṛto muniḥ
-> yat tvaṁ jarā-grastam asaty asammataṁ
+> cikīrṣitaṁ te kim idaṁ patis tvayā\
+> pralambhito loka-namaskṛto muniḥ\
+> yat tvaṁ jarā-grastam asaty asammataṁ\
 > vihāya jāraṁ bhajase 'mum adhvagam
 
 *cikīrṣitam*—which you desire to do; *te*—of you; *kim idam*—what is this; *patiḥ*—your husband; *tvayā*—by you; *pralambhitaḥ*—has been cheated; *loka-namaskṛtaḥ*—who is honored by all people; *muniḥ*—a great sage; *yat*—because; *tvam*—you; *jarā-grastam*—very old and invalid; *asati*—O unchaste daughter; *asammatam*—not very attractive; *vihāya*—giving up; *jāram*—paramour; *bhajase*—you have accepted; *amum*—this man; *adhvagam*—comparable to a street beggar.

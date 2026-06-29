@@ -1,9 +1,9 @@
 ### CC Madhya 17.45
 
-> ‘হরিবোল’ বলি’ প্রভু করে উচ্চধ্বনি ।
+> ‘হরিবোল’ বলি’ প্রভু করে উচ্চধ্বনি ।\
 > বৃক্ষলতা — প্রফুল্লিত, সেই ধ্বনি শুনি’ ॥৪৫॥
 
-> 'hari-bola' bali' prabhu kare ucca-dhvani
+> 'hari-bola' bali' prabhu kare ucca-dhvani\
 > vṛkṣa-latā—praphullita, sei dhvani śuni'
 
 *hari-bola*—the vibration of Hari-bol; *bali'*—chanting; *prabhu*—Śrī Caitanya Mahāprabhu; *kare*—makes; *ucca-dhvani*—a loud sound; *vṛkṣa-latā*—the trees and creepers; *praphullita*—very jubilant; *sei*—that; *dhvani*—sound; *śuni'*—hearing.

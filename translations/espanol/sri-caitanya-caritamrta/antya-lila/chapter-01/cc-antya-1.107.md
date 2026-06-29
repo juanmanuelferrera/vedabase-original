@@ -1,9 +1,9 @@
 ### CC Antya 1.107
 
-> ‘ঈশ্বর-স্বভাব’ — ভক্তের না লয় অপরাধ ।
+> ‘ঈশ্বর-স্বভাব’ — ভক্তের না লয় অপরাধ ।\
 > অল্পসেবা বহু মানে আত্মপর্যন্ত প্রসাদ ॥১০৭॥
 
-> 'īśvara-svabhāva'--bhaktera nā laya aparādha
+> 'īśvara-svabhāva'--bhaktera nā laya aparādha\
 > alpa-sevā bahu māne ātma-paryanta prasāda
 
 *īśvara-svabhāva*—la característica de la Suprema Personalidad de Dios; *bhaktera*—del devoto puro; *nā laya*—no toma; *aparādha*—ninguna ofensa; *alpa-sevā*—un servicio muy pequeño; *bahu māne*—el Señor lo acepta como muy grande; *ātma-paryanta*—entregándose a Sí mismo; *prasāda*—misericordia.

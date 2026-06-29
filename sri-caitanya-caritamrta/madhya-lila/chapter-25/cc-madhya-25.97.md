@@ -1,9 +1,9 @@
 ### CC Madhya 25.97
 
-> “এই অর্থ — আমার সূত্রের ব্যাখ্যানুরূপ ।
+> “এই অর্থ — আমার সূত্রের ব্যাখ্যানুরূপ ।\
 > ‘ভাগবত’ করিব সূত্রের ভাষ্যস্বরূপ ।।” ॥ ৯৭ ॥
 
-> "ei artha-āmāra sūtrera vyākhyānurūpa
+> "ei artha-āmāra sūtrera vyākhyānurūpa\
 > 'bhāgavata' kariba sūtrera bhāṣya-svarūpa"
 
 *ei artha*—this explanation; *āmāra*—my; *sūtrera*—of *Brahma-sūtra*; *vyākhyā-anurūpa*—a suitable explanation; *bhāgavata*—*Śrīmad-Bhāgavata Purāṇa*; *kariba*—I shall make; *sūtrera*—of the *Brahma-sūtra*; *bhāṣya-svarūpa*—as the original commentary.

@@ -1,11 +1,11 @@
 ### SB 8.24.23
 
-> इत्युक्तः सोऽनयन्मत्स्यं तत्र तत्राविदासिनि
+> इत्युक्तः सोऽनयन्मत्स्यं तत्र तत्राविदासिनि\
 > जलाशयेऽसम्मितं तं समुद्रे प्राक्षिपज्झषम ॥२३॥
 
-> ity uktaḥ so 'nayan matsyaṁ
-> tatra tatrāvidāsini
-> jalāśaye 'sammitaṁ taṁ
+> ity uktaḥ so 'nayan matsyaṁ\
+> tatra tatrāvidāsini\
+> jalāśaye 'sammitaṁ taṁ\
 > samudre prākṣipaj jhaṣam
 
 *iti uktaḥ*—thus being requested; *saḥ*—the King; *anayat*—brought; *matsyam*—the fish; *tatra*—therein; *tatra*—therein; *avidāsini*—where the water never diminishes; *jala-āśaye*—in the reservoir of water; *asammitam*—unlimited; *tam*—unto the fish; *samudre*—in the ocean; *prākṣipat*—threw; *jhaṣam*—the gigantic fish.

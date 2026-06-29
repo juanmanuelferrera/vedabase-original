@@ -1,9 +1,9 @@
 ### CC Antya 4.31
 
-> রাত্রি-দিনে রঘুনাথের ‘নাম’ আর ‘ধ্যান’  ।
+> রাত্রি-দিনে রঘুনাথের ‘নাম’ আর ‘ধ্যান’  ।\
 > রামায়ণ নিরবধি শুনে, করে গান ॥৩১॥
 
-> rātri-dine raghunāthera 'nāma' āra 'dhyāna'
+> rātri-dine raghunāthera 'nāma' āra 'dhyāna'\
 > rāmāyaṇa niravadhi śune, kare gāna
 
 *rātri-dine*—día y noche; *raghu-nāthera*—del Señor Rāmacandra; *nāma*—santo nombre; *āra*—y; *dhyāna*—meditación; *rāmāyaṇa*—la epopeya acerca de las actividades del Señor Rāmacandra conocida como el Rāmāyaṇa; *niravadhi*—continuamente; *śune*—escucha; *kare gāna*—canta.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.365
 
-> কলিকালে সেই ‘কৃষ্ণাবতার’ নিশ্চয় ।
+> কলিকালে সেই ‘কৃষ্ণাবতার’ নিশ্চয় ।\
 > সুদৃঢ় করিয়া কহ, যাউক সংশয় ।।” ॥ ৩৬৫ ॥
 
-> kali-kāle sei 'kṛṣṇāvatāra' niścaya
+> kali-kāle sei 'kṛṣṇāvatāra' niścaya\
 > sudṛḍha kariyā kaha, yāuka saṁśaya"
 
 *kali-kāle*—in the Age of Kali; *sei*—that personality; *kṛṣṇa-avatāra*—the incarnation of Kṛṣṇa; *niścaya*—certainly; *su-dṛḍha kariyā*—firmly; *kaha*—kindly inform me; *yāuka saṁśaya*—so that all doubts may go away.

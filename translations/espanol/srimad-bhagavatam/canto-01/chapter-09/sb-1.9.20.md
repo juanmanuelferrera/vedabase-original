@@ -1,11 +1,11 @@
 ### SB 1.9.20
 
-> यं मन्यसे मातुलेयं प्रियं मित्रं सुहृत्तमम् ।
+> यं मन्यसे मातुलेयं प्रियं मित्रं सुहृत्तमम् ।\
 > अकरोः सचिवं दूतं सौहृदादथ सारथिम् ॥२०॥
 
-> yaṁ manyase mātuleyaṁ
-> priyaṁ mitraṁ suhṛttamam
-> akaroḥ sacivaṁ dūtaṁ
+> yaṁ manyase mātuleyaṁ\
+> priyaṁ mitraṁ suhṛttamam\
+> akaroḥ sacivaṁ dūtaṁ\
 > sauhṛdād atha sārathim
 
 *yam*—la persona; *manyase*—tú crees; *mātuleyam*—primo materno; *priyam*—muy querido; *mitram*—amigo; *suhṛt-tamam*—fervoroso bienqueriente; *akaroḥ*—desempeñó; *sacivam*—consejero; *dūtam*—mensajero; *sauhṛdāt*—mediante la buena voluntad; *atha*—entonces; *sārathim*—auriga.

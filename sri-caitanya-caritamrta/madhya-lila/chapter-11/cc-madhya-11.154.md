@@ -1,9 +1,9 @@
 ### CC Madhya 11.154
 
-> তৃণ দুইগুচ্ছ মুরারি দশনে ধরিয়া ।
+> তৃণ দুইগুচ্ছ মুরারি দশনে ধরিয়া ।\
 > মহাপ্রভু আগে গেলা দৈন্যাধীন হঞা ॥১৫৪॥
 
-> tṛṇa dui-guccha murāri daśane dhariyā
+> tṛṇa dui-guccha murāri daśane dhariyā\
 > mahāprabhu āge gelā dainyādhīna hañā
 
 *tṛṇa*—of straw; *dui*—two; *guccha*—bunches; *murāri*—Murāri; *daśane*—in his teeth; *dhariyā*—catching; *mahāprabhu*—of Śrī Caitanya Mahāprabhu; *āge*—in front; *gelā*—went; *dainya-adhīna*—under obligation of meekness; *hañā*—becoming.

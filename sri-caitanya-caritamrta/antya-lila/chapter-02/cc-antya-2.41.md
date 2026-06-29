@@ -1,9 +1,9 @@
 ### CC Antya 2.41
 
-> এ-বৎসর তাঁহা আমি যাইমু আপনে  ।
+> এ-বৎসর তাঁহা আমি যাইমু আপনে  ।\
 > তাহাই মিলিমু সব অদ্বৈতাদি সনে ॥৪১॥
 
-> e-vatsara tāṅhā āmi yāimu āpane
+> e-vatsara tāṅhā āmi yāimu āpane\
 > tāhāi milimu saba advaitādi sane
 
 *e-vatsara*—this year; *tāṅhā*—there (to Bengal); *āmi*—I; *yāimu*—shall go; *āpane*—personally; *tāhāi*—there; *milimu*—I shall meet; *saba*—all; *advaita-ādi*—beginning with Advaita Ācārya; *sane*—with.

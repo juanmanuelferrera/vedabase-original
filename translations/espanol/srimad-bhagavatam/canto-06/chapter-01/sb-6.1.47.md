@@ -1,11 +1,11 @@
 ### SB 6.1.47
 
-> वर्तमानोऽन्ययोः कालो गुणाभिज्ञआपको यथा
+> वर्तमानोऽन्ययोः कालो गुणाभिज्ञआपको यथा\
 > एवं जन्मान्ययोरेतद्धर्माधर्मनिदर्शनम ॥४७॥
 
-> vartamāno 'nyayoḥ kālo
-> guṇābhijñāpako yathā
-> evaṁ janmānyayor etad
+> vartamāno 'nyayoḥ kālo\
+> guṇābhijñāpako yathā\
+> evaṁ janmānyayor etad\
 > dharmādharma-nidarśanam
 
 *vartamānaḥ*—el presente; *anyayoḥ*—del pasado y del futuro; *kālaḥ*—tiempo; *guṇa-abhijñāpakaḥ*—hace que se conozcan las cualidades; *yathā*—tal como; *evam*—así; *janma*—nacimiento; *anyayoḥ*—de las vidas pasadas y futuras; *etat*—este; *dharma*—principios religiosos; *adharma*—principios irreligiosos; *nidarśanam*—indicar.

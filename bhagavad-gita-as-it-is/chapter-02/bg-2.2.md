@@ -1,13 +1,13 @@
 ### Bg 2.2
 
-> श्रीभगवानुवाच ।
-> कुतस्त्वा कश्मलमिदं विषमे समुपस्थितम् ।
+> श्रीभगवानुवाच ।\
+> कुतस्त्वा कश्मलमिदं विषमे समुपस्थितम् ।\
 > अनार्यजुष्टमस्वर्ग्यमकीर्तिकरमर्जुन ॥२॥
 
-> śrī-bhagavān uvāca
-> kutas tvā kaśmalam idaṁ
-> viṣame samupasthitam
-> anārya-juṣṭam asvargyam
+> śrī-bhagavān uvāca\
+> kutas tvā kaśmalam idaṁ\
+> viṣame samupasthitam\
+> anārya-juṣṭam asvargyam\
 > akīrti-karam arjuna
 
 *śrī bhagavān uvāca*—the Supreme Personality of Godhead said; *kutaḥ*—wherefrom; *tvā*—unto you; *kaśmalam*—dirtiness; *idam*—this lamentation; *viṣame*—this hour of crisis; *samupasthitam*—arrived; *anārya*—persons who do not know the value of life; *juṣṭam*—practiced by; *asvargyam*—that which does not lead to higher planets; *akīrti*—infamy; *karam*—the cause of; *arjuna*—O Arjuna.

@@ -1,13 +1,13 @@
 ### SB 4.9.28
 
-> विदुर उवाच
-> सुदुर्लभं यत्परमं पदं हरेर्मायाविनस्तच्चरणार्चनार्जितम् ।
+> विदुर उवाच\
+> सुदुर्लभं यत्परमं पदं हरेर्मायाविनस्तच्चरणार्चनार्जितम् ।\
 > लब्ध्वाप्यसिद्धार्थमिवैकजन्मना कथं स्वमात्मानममन्यतार्थवित् ॥२८॥
 
-> vidura uvāca
-> sudurlabhaṁ yat paramaṁ padaṁ harer
-> māyāvinas tac-caraṇārcanārjitam
-> labdhvāpy asiddhārtham ivaika-janmanā
+> vidura uvāca\
+> sudurlabhaṁ yat paramaṁ padaṁ harer\
+> māyāvinas tac-caraṇārcanārjitam\
+> labdhvāpy asiddhārtham ivaika-janmanā\
 > kathaṁ svam ātmānam amanyatārtha-vit
 
 *viduraḥ uvāca*—Vidura continued to inquire; *sudurlabham*—very rare; *yat*—that which; *paramam*—is the supreme; *padam*—situation; *hareḥ*—of the Supreme Personality of Godhead; *māyā-vinaḥ*—very affectionate; *tat*—His; *caraṇa*—lotus feet; *arcana*—by worshiping; *arjitam*—achieved; *labdhvā*—having attained; *api*—although; *asiddha-artham*—not fulfilled; *iva*—as if; *eka-janmanā*—in the duration of one life; *katham*—why; *svam*—own; *ātmānam*—heart; *amanyata*—he felt; *artha-vit*—being very wise.

@@ -1,9 +1,9 @@
 ### CC Adi 5.108
 
-> দশম শ্লোকের অর্থ কৈল বিবরণ ।
+> দশম শ্লোকের অর্থ কৈল বিবরণ ।\
 > একাদশ শ্লোকের অর্থ শুন দিয়া মন ॥১০৮॥
 
-> daśama ślokera artha kaila vivaraṇa
+> daśama ślokera artha kaila vivaraṇa\
 > ekādaśa ślokera artha śuna diyā mana
 
 *daśama*—décimo; *ślokera*—del verso; *artha*—significado; *kaila*—he hecho; *vivaraṇa*—descripción; *ekādaśa*—undécimo; *ślokera*—del verso; *artha*—significado; *śuna*—por favor escuchad; *diyā mana*—con la mente.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.19
 
-> যোগ্যাযোগ্য তোমায় সব চাহি নিবেদিতে ।
+> যোগ্যাযোগ্য তোমায় সব চাহি নিবেদিতে ।\
 > তোমা না মিলিলে রাজা চাহে যোগী হৈতে ॥১৯॥
 
-> yogyāyogya tomāya saba cāhi nivedite
+> yogyāyogya tomāya saba cāhi nivedite\
 > tomā nā milile rājā cāhe yogī haite
 
 *yogya*—apropiado; *ayogya*—inapropiado; *tomāya*—ante Ti; *saba*—todos nosotros; *cāhi*—queremos; *nivedite*—presentar; *tomā*—a Ti; *nā milile*—si no Te encuentra; *rājā*—el rey; *cāhe*—quiere; *yogī haite*—hacerse mendicante.

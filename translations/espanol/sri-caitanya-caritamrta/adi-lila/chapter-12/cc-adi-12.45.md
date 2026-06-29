@@ -1,9 +1,9 @@
 ### CC Adi 12.45
 
-> আমারেহ কভু যেই না হয় প্রসাদ ।
+> আমারেহ কভু যেই না হয় প্রসাদ ।\
 > তোমার চরণে আমি কি কৈনু অপরাধ ॥৪৫॥
 
-> āmāreha kabhu yei nā haya prasāda
+> āmāreha kabhu yei nā haya prasāda\
 > tomāra caraṇe āmi ki kainu aparādha
 
 *āmāreha*—ni siquiera a Mí; *kabhu*—alguna vez; *yei*—eso; *nā*—nunca; *haya*—es; *prasāda*—favor; *tomāra caraṇe*—a Tus pies de loto; *āmi*—Yo; *ki*—qué; *kainu*—he cometido; *aparādha*—ofensa.

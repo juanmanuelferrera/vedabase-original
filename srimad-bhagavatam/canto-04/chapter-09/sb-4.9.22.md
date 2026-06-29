@@ -1,11 +1,11 @@
 ### SB 4.9.22
 
-> प्रस्थिते तु वनं पित्रा दत्त्वा गां धर्मसंश्रयः ।
+> प्रस्थिते तु वनं पित्रा दत्त्वा गां धर्मसंश्रयः ।\
 > षट्त्रिंशद्वर्षसाहस्रं रक्षिताव्याहतेन्द्रियः ॥२२॥
 
-> prasthite tu vanaṁ pitrā
-> dattvā gāṁ dharma-saṁśrayaḥ
-> ṣaṭ-triṁśad-varṣa-sāhasraṁ
+> prasthite tu vanaṁ pitrā\
+> dattvā gāṁ dharma-saṁśrayaḥ\
+> ṣaṭ-triṁśad-varṣa-sāhasraṁ\
 > rakṣitāvyāhatendriyaḥ
 
 *prasthite*—after departure; *tu*—but; *vanam*—to the forest; *pitrā*—by your father; *dattvā*—awarding; *gām*—the whole world; *dharma-saṁśrayaḥ*—under the protection of piety; *ṣaṭ-triṁśat*—thirty-six; *varṣa*—years; *sāhasram*—one thousand; *rakṣitā*—you will rule; *avyāhata*—without decay; *indriyaḥ*—the power of the senses.

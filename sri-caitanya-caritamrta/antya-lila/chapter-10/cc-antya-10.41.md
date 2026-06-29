@@ -1,9 +1,9 @@
 ### CC Antya 10.41
 
-> এইমতে বৈষ্ণব সব নীলাচলে আইলা ।
+> এইমতে বৈষ্ণব সব নীলাচলে আইলা ।\
 > দৈবে জগন্নাথের সে দিন জল-লীলা ॥৪১॥
 
-> ei-mate vaiṣṇava saba nīlācale āilā
+> ei-mate vaiṣṇava saba nīlācale āilā\
 > daive jagannāthera se dina jala-līlā
 
 *ei-mate*—in this way; *vaiṣṇava saba*—all the Vaiṣṇavas; *nīlācale āilā*—came to Nīlācala; *daive*—by chance; *jagannāthera*—of Lord Jagannātha; *se dina*—that day; *jala-līlā*—pastimes in the water.

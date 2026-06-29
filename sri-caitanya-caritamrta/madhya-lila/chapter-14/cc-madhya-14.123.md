@@ -1,9 +1,9 @@
 ### CC Madhya 14.123
 
-> বৃন্দাবন-লীলায় কৃষ্ণের সহায় গোপীগণ ।
+> বৃন্দাবন-লীলায় কৃষ্ণের সহায় গোপীগণ ।\
 > গোপীগণ বিনা কৃষ্ণের হরিতে নারে মন ॥১২৩॥
 
-> vṛndāvana-līlāya kṛṣṇera sahāya gopī-gaṇa
+> vṛndāvana-līlāya kṛṣṇera sahāya gopī-gaṇa\
 > gopī-gaṇa vinā kṛṣṇera harite nāre mana
 
 *vṛndāvana-līlāya*—in the pastimes of Vṛndāvana; *kṛṣṇera*—of Lord Kṛṣṇa; *sahāya*—assistants; *gopī-gaṇa*—all the *gopīs*; *gopī-gaṇa vinā*—except for the *gopīs*; *kṛṣṇera*—of Lord Kṛṣṇa; *harite*—to attract; *nāre*—no one is able; *mana*—the mind.

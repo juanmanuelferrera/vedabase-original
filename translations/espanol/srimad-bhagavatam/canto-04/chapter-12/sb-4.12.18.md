@@ -1,13 +1,13 @@
 ### SB 4.12.18
 
-> भक्तिं हरौ भगवति प्रवहन्नजस्रम्
-> आनन्दबाष्पकलया मुहुरर्द्यमानः ।
-> विक्लिद्यमानहृदयः पुलकाचिताङ्गो
+> भक्तिं हरौ भगवति प्रवहन्नजस्रम्\
+> आनन्दबाष्पकलया मुहुरर्द्यमानः ।\
+> विक्लिद्यमानहृदयः पुलकाचिताङ्गो\
 > नात्मानमस्मरदसाविति मुक्तलिङ्गः ॥१८॥
 
-> bhaktiṁ harau bhagavati pravahann ajasram
-> ānanda-bāṣpa-kalayā muhur ardyamānaḥ
-> viklidyamāna-hṛdayaḥ pulakācitāṅgo
+> bhaktiṁ harau bhagavati pravahann ajasram\
+> ānanda-bāṣpa-kalayā muhur ardyamānaḥ\
+> viklidyamāna-hṛdayaḥ pulakācitāṅgo\
 > nātmānam asmarad asāv iti mukta-liṅgaḥ
 
 *bhaktim*—servicio devocional; *harau*—a Hari; *bhagavati*—la Suprema Personalidad de Dios; *pravahan*—ocuparse constantemente en; *ajasram*—siempre; *ānanda*—de bienaventuranza; *bāṣpa-kalayā*—con un torrente de lágrimas; *muhuḥ*—una y ora vez; *ardyamānaḥ*—abrumado; *viklidyamāna*—fundirse; *hṛdayaḥ*—su corazón; *pulaka*—con los vellos erizados; *ācita*—cubierto; *aṅgaḥ*—su cuerpo; *na*—no; *ātmānam*—cuerpo; *asmarat*—recordaba; *asau*—él; *iti*—de este modo; *mukta-liṅgaḥ*—libre del cuerpo sutil.

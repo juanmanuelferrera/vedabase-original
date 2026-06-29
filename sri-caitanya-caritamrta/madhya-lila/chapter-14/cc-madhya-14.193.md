@@ -1,9 +1,9 @@
 ### CC Madhya 14.193
 
-> ললিত-ভূষিত রাধা দেখে যদি কৃষ্ণ ।
+> ললিত-ভূষিত রাধা দেখে যদি কৃষ্ণ ।\
 > দুঁহে দুঁহা মিলিবারে হয়েন সতৃষ্ণ ॥১৯৩॥
 
-> lalita-bhūṣita rādhā dekhe yadi kṛṣṇa
+> lalita-bhūṣita rādhā dekhe yadi kṛṣṇa\
 > duṅhe duṅhā milibāre hayena satṛṣṇa
 
 *lalita-bhūṣita*—decorated with *lalita-alaṅkāra*; *rādhā*—Śrīmatī Rādhārāṇī; *dekhe*—sees; *yadi*—if; *kṛṣṇa*—Lord Kṛṣṇa; *duṅhe*—both of Them; *duṅhā*—the two of Them; *milibāre*—to meet; *hayena*—become; *sa-tṛṣṇa*—very anxious.

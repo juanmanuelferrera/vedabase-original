@@ -1,13 +1,13 @@
 ### CC Madhya 9.269
 
-> যো দুস্ত্যজান্ ক্ষিতিসুতস্বজনার্থদারান্
-> প্রার্থ্যাং শ্রিয়ং সুরবরৈঃ সদয়াবলোকাম্ ৷
-> নৈচ্ছন্নৃপস্তদুচিতং মহতাং মধুদ্বিট্-
+> যো দুস্ত্যজান্ ক্ষিতিসুতস্বজনার্থদারান্\
+> প্রার্থ্যাং শ্রিয়ং সুরবরৈঃ সদয়াবলোকাম্ ৷\
+> নৈচ্ছন্নৃপস্তদুচিতং মহতাং মধুদ্বিট্-\
 > সেবানুরক্তমনসামভবোঽপি ফল্গুঃ ৷৷ ২৬৯ ৷৷ ॥২৬৯॥
 
-> yo dustyajān kṣiti-suta-svajanārtha-dārān
-> prārthyāṁ śriyaṁ sura-varaiḥ sadayāvalokām
-> naicchan nṛpas tad ucitaṁ mahatāṁ madhu-dviṭ-
+> yo dustyajān kṣiti-suta-svajanārtha-dārān\
+> prārthyāṁ śriyaṁ sura-varaiḥ sadayāvalokām\
+> naicchan nṛpas tad ucitaṁ mahatāṁ madhu-dviṭ-\
 > sevānurakta-manasām abhavo 'pi phalguḥ
 
 *yaḥ*—aquel que; *dustyajān*—muy difíciles de abandonar; *kṣiti*—tierras; *suta*—hijos; *svajana*—parientes; *artha*—riquezas; *dārān*—y esposa; *prārthyām*—deseable; *śriyam*—fortuna; *sura-varaiḥ*—por los mejores de los semidioses; *sa-dayā*—misericordiosa; *avalokām*—cuya mirada; *na aicchat*—no deseó; *nṛpaḥ*—el Rey (Mahārāja Bharata); *tat*—eso; *ucitam*—es propio; *mahatām*—de las grandes personalidades; *madhu-dviṭ*—del matador del demonio Madhu; *sevā-anurakta*—ocupada en el servicio; *manasām*—cuyas mentes; *abhavaḥ*—cesación de la repetición de nacimiento y muerte; *api*—incluso; *phalguḥ*—insignificante.

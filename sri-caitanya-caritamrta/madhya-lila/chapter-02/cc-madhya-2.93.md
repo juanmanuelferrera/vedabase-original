@@ -1,13 +1,13 @@
 ### CC Madhya 2.93
 
-> ছোট বড় ভক্তগণ, বন্দোঁ সবার শ্রীচরণ,
-> সবে মোরে করহ সন্তোষ ।
-> স্বরূপ-গোসাঞির মত, রূপ-রঘুনাথ জানে যত,
+> ছোট বড় ভক্তগণ, বন্দোঁ সবার শ্রীচরণ,\
+> সবে মোরে করহ সন্তোষ ।\
+> স্বরূপ-গোসাঞির মত, রূপ-রঘুনাথ জানে যত,\
 > তাই লিখি’ নাহি মোর দোষ ॥৯৩॥
 
-> choṭa baḍa bhakta-gaṇa, vandoṅ sabāra śrī-caraṇa,
-> sabe more karaha santoṣa
-> svarūpa-gosāñira mata, rūpa-raghunātha jāne yata,
+> choṭa baḍa bhakta-gaṇa, vandoṅ sabāra śrī-caraṇa,\
+> sabe more karaha santoṣa\
+> svarūpa-gosāñira mata, rūpa-raghunātha jāne yata,\
 > tāi likhi' nāhi mora doṣa
 
 *choṭa*—small; *baḍa*—great; *bhakta-gaṇa*—devotees; *vandoṅ*—I worship; *sabāra*—all of them; *śrī-caraṇa*—the lotus feet; *sabe*—all of you; *more*—unto me; *karaha*—please do; *santoṣa*—satisfaction; *svarūpa-gosāñira mata*—the view of Svarūpa Dāmodara Gosvāmī; *rūpa-raghunātha*—Rūpa and Raghunātha; *jāne*—know; *yata*—all; *tāi*—that; *likhi'*—writing; *nāhi*—there is not; *mora*—my; *doṣa*—fault.

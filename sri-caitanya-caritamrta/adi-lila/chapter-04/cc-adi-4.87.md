@@ -1,9 +1,9 @@
 ### CC Adi 4.87
 
-> কৃষ্ণবাঞ্ছা-পূর্তিরূপ করে আরাধনে ।
+> কৃষ্ণবাঞ্ছা-পূর্তিরূপ করে আরাধনে ।\
 > অতএব ‘রাধিকা’ নাম পুরাণে বাখানে ॥৮৭॥
 
-> kṛṣṇa-vāñchā-pūrti-rūpa kare ārādhane
+> kṛṣṇa-vāñchā-pūrti-rūpa kare ārādhane\
 > ataeva 'rādhikā' nāma purāṇe vākhāne
 
 *kṛṣṇa-vāñchā*—of the desire of Lord Kṛṣṇa; *pūrti-rūpa*—of the nature of fulfillment; *kare*—does; *ārādhane*—worship; *ataeva*—therefore; *rādhikā*—Śrīmatī Rādhikā; *nāma*—named; *purāṇe*—in the *Purāṇas*; *vākhāne*—in the description.

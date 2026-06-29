@@ -1,9 +1,9 @@
 ### CC Adi 17.313
 
-> তাতে আদি-লীলার করি পরিচ্ছেদ গণন ।
+> তাতে আদি-লীলার করি পরিচ্ছেদ গণন ।\
 > প্রথম পরিচ্ছেদে কৈলুঁ ‘মঙ্গলাচরণ’ ॥৩১৩॥
 
-> tāte ādi-līlāra kari pariccheda gaṇana
+> tāte ādi-līlāra kari pariccheda gaṇana\
 > prathama paricchede kailuṅ 'maṅgalācaraṇa'
 
 *tāte*—therefore; *ādi-līlāra*—of the First Canto, known as *Ādi-līlā*; *kari*—I do; *pariccheda*—chapter; *gaṇana*—enumeration; *prathama paricchede*—in the First Chapter; *kailuṅ*—I have done; *maṅgala-ācaraṇa*—invocation of auspiciousness.

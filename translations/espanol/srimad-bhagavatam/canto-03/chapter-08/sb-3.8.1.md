@@ -1,13 +1,13 @@
 ### SB 3.8.1
 
-> मैत्रेय उवाच
-> सत्सेवनीयो बत पूरुवंशो यल्लोकपालो भगवत्प्रधानः ।
+> मैत्रेय उवाच\
+> सत्सेवनीयो बत पूरुवंशो यल्लोकपालो भगवत्प्रधानः ।\
 > बभूविथेहाजितकीर्तिमालां पदे पदे नूतनयस्यभीक्ष्णम् ॥१॥
 
-> maitreya uvāca
-> sat-sevanīyo bata pūru-vaṁśo
-> yal loka-pālo bhagavat-pradhānaḥ
-> babhūvithehājita-kīrti-mālāṁ
+> maitreya uvāca\
+> sat-sevanīyo bata pūru-vaṁśo\
+> yal loka-pālo bhagavat-pradhānaḥ\
+> babhūvithehājita-kīrti-mālāṁ\
 > pade pade nūtanayasy abhīkṣṇam
 
 *maitreyaḥ uvāca*—Śrī Maitreya dijo; *sat-sevanīyaḥ*—dignos de servir a los devotos puros; *bata*—¡oh, ciertamente!; *pūru-vaṁśaḥ*—los descendientes del rey Pūru; *yat*—debido a que; *loka-pālaḥ*—los reyes están; *bhagavat-pradhānaḥ*—principalmente consagrados a la Personalidad de Dios; *babhūvitha*—tú también has nacido; *iha*—en esta; *ajita*—el Señor, que es inconquistable; *kīrti-mālām*—cadena de actividades trascendentales; *pade pade*—paso a paso; *nūtanayasi*—volviéndose más y más nuevas; *abhīkṣṇam*—siempre.

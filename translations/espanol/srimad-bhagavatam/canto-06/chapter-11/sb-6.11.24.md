@@ -1,11 +1,11 @@
 ### SB 6.11.24
 
-> अहं हरे तव पादैकमूल दासानुदासो भवितास्मि भूयः
+> अहं हरे तव पादैकमूल दासानुदासो भवितास्मि भूयः\
 > मनः स्मरेतासुपतेर्गुणांस्ते गृणीत वाक्कर्म करोतु कायः ॥२४॥
 
-> ahaṁ hare tava pādaika-mūla-
-> dāsānudāso bhavitāsmi bhūyaḥ
-> manaḥ smaretāsu-pater guṇāṁs te
+> ahaṁ hare tava pādaika-mūla-\
+> dāsānudāso bhavitāsmi bhūyaḥ\
+> manaḥ smaretāsu-pater guṇāṁs te\
 > gṛṇīta vāk karma karotu kāyaḥ
 
 *aham*—yo; *hare*—¡oh, mi Señor!; *tava*—de Tu Señoría; *pāda-eka-mūla*—cuyo único refugio son los pies de loto; *dāsa-anudāsaḥ*—el sirviente de Tu sirviente; *bhavitāsmi*—llegaré a ser; *bhūyaḥ*—de nuevo; *manaḥ*—mi mente; *smareta*—recuerde; *asu-pateḥ*—del Señor de mi vida; *guṇān*—los atributos; *te*—de Tu Señoría; *gṛṇīta*—canten; *vāk*—mis palabras; *karma*—actividades en Tu servicio; *karotu*—realice; *kāyaḥ*—mi cuerpo.

@@ -1,11 +1,11 @@
 ### SB 4.22.57
 
-> दुर्धर्षस्तेजसेवाग्निर्महेन्द्र इव दुर्जयः ।
+> दुर्धर्षस्तेजसेवाग्निर्महेन्द्र इव दुर्जयः ।\
 > तितिक्षया धरित्रीव द्यौरिवाभीष्टदो नृणाम् ॥५७॥
 
-> durdharṣas tejasevāgnir
-> mahendra iva durjayaḥ
-> titikṣayā dharitrīva
+> durdharṣas tejasevāgnir\
+> mahendra iva durjayaḥ\
+> titikṣayā dharitrīva\
 > dyaur ivābhīṣṭa-do nṛṇām
 
 *durdharṣaḥ*—unconquerable; *tejasā*—by prowess; *iva*—like; *agniḥ*—fire; *mahā-indraḥ*—the King of heaven; *iva*—likened; *durjayaḥ*—insuperable; *titikṣayā*—by tolerance; *dharitrī*—the earth; *iva*—like; *dyauḥ*—the heavenly planets; *iva*—like; *abhīṣṭa-daḥ*—fulfilling desires; *nṛṇām*—of human society.

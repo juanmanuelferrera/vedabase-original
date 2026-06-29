@@ -1,9 +1,9 @@
 ### CC Madhya 11.242
 
-> এই ত’ কহিলুঁ প্রভুর কীর্তন-বিলাস ৷
+> এই ত’ কহিলুঁ প্রভুর কীর্তন-বিলাস ৷\
 > যেবা ইহা শুনে, হয় চৈতন্যের দাস ৷৷ ২৪২ ৷৷ ॥২৪২॥
 
-> ei ta' kahiluṅ prabhura kīrtana-vilāsa
+> ei ta' kahiluṅ prabhura kīrtana-vilāsa\
 > yebā ihā śune, haya caitanyera dāsa
 
 *ei ta' kahiluṅ*—así lo he explicado; *prabhura*—del Señor; *kīrtana-vilāsa*—pasatiempos en el saṅkīrtana; *yebā*—cualquiera que; *ihā*—esto; *śune*—escuche; *haya*—se convierte en; *caitanyera dāsa*—sirviente de Śrī Caitanya Mahāprabhu.

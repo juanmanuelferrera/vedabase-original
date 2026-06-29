@@ -1,9 +1,9 @@
 ### CC Adi 6.53
 
-> কৃষ্ণপ্রেমের এই এক অপূর্ব প্রভাব ।
+> কৃষ্ণপ্রেমের এই এক অপূর্ব প্রভাব ।\
 > গুরু-সম-লঘুকে করায় দাস্যভাব ॥৫৩॥
 
-> kṛṣṇa-premera ei eka apūrva prabhāva
+> kṛṣṇa-premera ei eka apūrva prabhāva\
 > guru-sama-laghuke karāya dāsya-bhāva
 
 *kṛṣṇa-premera*—of love of Kṛṣṇa; *ei*—this; *eka*—one; *apūrva prabhāva*—unprecedented influence; *guru*—to those on the level of the spiritual master; *sama*—equal level; *laghuke*—unto the less important; *karāya*—makes; *dāsya-bhāva*—the conception of being a servant.

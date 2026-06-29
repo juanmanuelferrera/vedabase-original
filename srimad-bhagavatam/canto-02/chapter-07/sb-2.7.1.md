@@ -1,15 +1,15 @@
 ### SB 2.7.1
 
-> ब्रह्मोवाच
-> यत्रोद्यतः क्षितितलोद्धरणाय बिभ्रत्
-> क्रौडीं तनुं सकलयज्ञमयीमनन्तः ।
-> अन्तर्महार्णव उपागतमादिदैत्यं
+> ब्रह्मोवाच\
+> यत्रोद्यतः क्षितितलोद्धरणाय बिभ्रत्\
+> क्रौडीं तनुं सकलयज्ञमयीमनन्तः ।\
+> अन्तर्महार्णव उपागतमादिदैत्यं\
 > तं दंष्ट्रयाद्रिमिव वज्रधरो ददार ॥१॥
 
-> brahmovāca
-> yatrodyataḥ kṣiti-taloddharaṇāya bibhrat
-> krauḍīṁ tanuṁ sakala-yajña-mayīm anantaḥ
-> antar-mahārṇava upāgatam ādi-daityaṁ
+> brahmovāca\
+> yatrodyataḥ kṣiti-taloddharaṇāya bibhrat\
+> krauḍīṁ tanuṁ sakala-yajña-mayīm anantaḥ\
+> antar-mahārṇava upāgatam ādi-daityaṁ\
 > taṁ daṁṣṭrayādrim iva vajra-dharo dadāra
 
 *brahmā uvāca*—Lord Brahmā said; *yatra*—at that time (when); *udyataḥ*—attempted; *kṣiti-tala*—the planet earth; *uddharaṇāya*—for the matter of lifting; *bibhrat*—assumed; *krauḍīm*—pastimes; *tanum*—form; *sakala*—total; *yajña-mayīm*—all-inclusive sacrifices; *anantaḥ*—the Unlimited; *antar*—within the universe; *mahā-arṇave*—the great Garbha Ocean; *upāgatam*—having arrived at; *ādi*—the first; *daityam*—demon; *tam*—him; *daṁṣṭrayā*—by the tusk; *adrim*—the flying mountains; *iva*—like; *vajra-dharaḥ*—the controller of the thunderbolts; *dadāra*—pierced.

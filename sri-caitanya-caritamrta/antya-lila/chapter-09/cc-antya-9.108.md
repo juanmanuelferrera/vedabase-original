@@ -1,9 +1,9 @@
 ### CC Antya 9.108
 
-> পরমার্থে প্রভুর কৃপা, সেহ রহু দূরে ।
+> পরমার্থে প্রভুর কৃপা, সেহ রহু দূরে ।\
 > অনন্ত তাহার ফল, কে বলিতে পারে ? ॥ ১০৮ ॥
 
-> paramārthe prabhura kṛpā, seha rahu dūre
+> paramārthe prabhura kṛpā, seha rahu dūre\
 > ananta tāhāra phala, ke balite pāre?
 
 *paramārthe*—for spiritual advancement; *prabhura kṛpā*—mercy of Śrī Caitanya Mahāprabhu; *seha*—that; *rahu dūre*—let alone; *ananta*—unlimited; *tāhāra*—of that; *phala*—result; *ke*—who; *balite pāre*—can estimate.

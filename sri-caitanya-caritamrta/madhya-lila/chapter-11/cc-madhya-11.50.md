@@ -1,9 +1,9 @@
 ### CC Madhya 11.50
 
-> এত শুনি’ সার্বভৌম হইলা চিন্তিত ।
+> এত শুনি’ সার্বভৌম হইলা চিন্তিত ।\
 > রাজার অনুরাগ দেখি’ হইলা বিস্মিত ॥৫০॥
 
-> eta śuni' sārvabhauma ha-ilā cintita
+> eta śuni' sārvabhauma ha-ilā cintita\
 > rājāra anurāga dekhi' ha-ilā vismita
 
 *eta śuni'*—hearing this; *sārvabhauma*—Sārvabhauma; *ha-ilā*—became; *cintita*—very thoughtful; *rājāra*—of the King; *anurāga*—attachment; *dekhi'*—seeing; *ha-ilā*—became; *vismita*—astonished.

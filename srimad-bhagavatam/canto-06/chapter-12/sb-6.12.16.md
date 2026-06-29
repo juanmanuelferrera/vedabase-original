@@ -1,11 +1,11 @@
 ### SB 6.12.16
 
-> पश्य मां निर्जितं शत्रु वृक्णायुधभुजं मृधे
+> पश्य मां निर्जितं शत्रु वृक्णायुधभुजं मृधे\
 > घटमानं यथाशक्ति तव प्राणजिहीर्षया ॥१६॥
 
-> paśya māṁ nirjitaṁ śatru
-> vṛkṇāyudha-bhujaṁ mṛdhe
-> ghaṭamānaṁ yathā-śakti
+> paśya māṁ nirjitaṁ śatru\
+> vṛkṇāyudha-bhujaṁ mṛdhe\
+> ghaṭamānaṁ yathā-śakti\
 > tava prāṇa-jihīrṣayā
 
 *paśya*—look; *mām*—at me; *nirjitam*—already defeated; *śatru*—O enemy; *vṛkṇa*—cut off; *āyudha*—my weapon; *bhujam*—and my arm; *mṛdhe*—in this fight; *ghaṭamānam*—still trying; *yathā-śakti*—according to my ability; *tava*—of you; *prāṇa*—the life; *jihīrṣayā*—with the desire to take away.

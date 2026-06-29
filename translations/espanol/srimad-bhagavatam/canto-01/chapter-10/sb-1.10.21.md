@@ -1,11 +1,11 @@
 ### SB 1.10.21
 
-> स वै किलायं पुरुषः पुरातनो य एक आसीदविशेष आत्मनि ।
+> स वै किलायं पुरुषः पुरातनो य एक आसीदविशेष आत्मनि ।\
 > अग्रे गुणेभ्यो जगदात्मनीश्वरे निमीलितात्मन्निशि सुप्तशक्तिषु ॥२१॥
 
-> sa vai kilāyaṁ puruṣaḥ purātano
-> ya eka āsīd aviśeṣa ātmani
-> agre guṇebhyo jagad-ātmanīśvare
+> sa vai kilāyaṁ puruṣaḥ purātano\
+> ya eka āsīd aviśeṣa ātmani\
+> agre guṇebhyo jagad-ātmanīśvare\
 > nimīlitātman niśi supta-śaktiṣu
 
 *saḥ*—Él (Kṛṣṇa); *vai*—como lo recuerdo; *kila*—claramente; *ayam*—esta; *puruṣaḥ*—Personalidad de Dios; *purātanaḥ*—el original; *yaḥ*—quien; *ekaḥ*—solo uno; *āsīt*—existió; *aviśeṣaḥ*—no manifestado materialmente; *ātmani*—propio ser; *agre*—antes de la creación; *guṇebhyaḥ*—de las modalidades de la naturaleza; *jagat-ātmani*—a la Superalma; *īśvare*—al Señor Supremo; *nimīlita*—fundido en; *ātman*—la entidad viviente; *niśi supta*—inactiva de noche; *śaktiṣu*—de las energías.

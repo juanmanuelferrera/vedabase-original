@@ -1,9 +1,9 @@
 ### CC Adi 6.104
 
-> শাস্ত্রের সিদ্ধান্ত এই, — বিজ্ঞের অনুভব ।
+> শাস্ত্রের সিদ্ধান্ত এই, — বিজ্ঞের অনুভব ।\
 > মূঢ়লোক নাহি জানে ভাবের বৈভব ॥১০৪॥
 
-> śāstrera siddhānta ei,--vijñera anubhava
+> śāstrera siddhānta ei,--vijñera anubhava\
 > mūḍha-loka nāhi jāne bhāvera vaibhava
 
 *śāstrera*—de las escrituras reveladas; *siddhānta*—conclusión; *ei*—esta; *vijñera anubhava*—comprensión de los devotos experimentados; *mūḍha-loka*—necios y bribones; *nāhi jāne*—no conocen; *bhāvera vaibhava*—las opulencias devocionales.

@@ -1,25 +1,25 @@
 ### SB 9.4.18-20
 
-> स वै मनः कृष्णपदारविन्दयोर्वचांसि वैकुण्ठगुणानुवर्णने
-> करौ हरेर्मन्दिरमार्जनादिषु श्रुतिं चकाराच्युतसत्कथोदये ॥१८॥
-> मुकुन्दलिङ्गालयदर्शने दृशौ तद्भृत्यगात्रस्पर्शेऽङ्गसङ्गमम
-> घ्राणं च तत्पादसरोजसौरभे श्रीमत्तुलस्या रसनां तदर्पिते ॥१९॥
-> पादौ हरेः क्षेत्रपदानुसर्पणे शिरो हृषीकेशपदाभिवन्दने
+> स वै मनः कृष्णपदारविन्दयोर्वचांसि वैकुण्ठगुणानुवर्णने\
+> करौ हरेर्मन्दिरमार्जनादिषु श्रुतिं चकाराच्युतसत्कथोदये ॥१८॥\
+> मुकुन्दलिङ्गालयदर्शने दृशौ तद्भृत्यगात्रस्पर्शेऽङ्गसङ्गमम\
+> घ्राणं च तत्पादसरोजसौरभे श्रीमत्तुलस्या रसनां तदर्पिते ॥१९॥\
+> पादौ हरेः क्षेत्रपदानुसर्पणे शिरो हृषीकेशपदाभिवन्दने\
 > कामं च दास्ये न तु कामकाम्यया यथोत्तमश्लोकजनाश्रया रतिः ॥२०॥
 
-> sa vai manaḥ kṛṣṇa-padāravindayor
-> vacāṁsi vaikuṇṭha-guṇānuvarṇane
-> karau harer mandira-mārjanādiṣu
+> sa vai manaḥ kṛṣṇa-padāravindayor\
+> vacāṁsi vaikuṇṭha-guṇānuvarṇane\
+> karau harer mandira-mārjanādiṣu\
 > śrutiṁ cakārācyuta-sat-kathodaye
 
-> mukunda-liṅgālaya-darśane dṛśau
-> tad-bhṛtya-gātra-sparśe 'ṅga-saṅgamam
-> ghrāṇaṁ ca tat-pāda-saroja-saurabhe
+> mukunda-liṅgālaya-darśane dṛśau\
+> tad-bhṛtya-gātra-sparśe 'ṅga-saṅgamam\
+> ghrāṇaṁ ca tat-pāda-saroja-saurabhe\
 > śrīmat-tulasyā rasanāṁ tad-arpite
 
-> pādau hareḥ kṣetra-padānusarpaṇe
-> śiro hṛṣīkeśa-padābhivandane
-> kāmaṁ ca dāsye na tu kāma-kāmyayā
+> pādau hareḥ kṣetra-padānusarpaṇe\
+> śiro hṛṣīkeśa-padābhivandane\
+> kāmaṁ ca dāsye na tu kāma-kāmyayā\
 > yathottamaśloka-janāśrayā ratiḥ
 
 *saḥ*—he (Mahārāja Ambarīṣa); *vai*—indeed; *manaḥ*—his mind; *kṛṣṇa-pada-aravindayoḥ*—(fixed) upon the two lotus feet of Lord Kṛṣṇa; *vacāṁsi*—his words; *vaikuṇṭha-guṇa-anuvarṇane*—describing the glories of Kṛṣṇa; *karau*—his two hands; *hareḥ mandira-mārjana-ādiṣu*—in activities like cleansing the temple of Hari, the Supreme Personality of Godhead; *śrutim*—his ear; *cakāra*—engaged; *acyuta*—of or about Kṛṣṇa, who never falls down; *sat-kathā-udaye*—in hearing the transcendental narrations; *mukunda-liṅga-ālaya-darśane*—in seeing the Deity and temples and holy *dhāmas* of Mukunda; *dṛśau*—his two eyes; *tat-bhṛtya*—of the servants of Kṛṣṇa; *gātra-sparśe*—in touching the bodies; *aṅga-saṅgamam*—contact of his body; *ghrāṇam ca*—and his sense of smell; *tat-pāda*—of His lotus feet; *saroja*—of the lotus flower; *saurabhe*—in (smelling) the fragrance; *śrīmat-tulasyāḥ*—of the *tulasī* leaves; *rasanām*—his tongue; *tat-arpite*—in the *prasāda* offered to the Lord; *pādau*—his two legs; *hareḥ*—of the Personality of Godhead; *kṣetra*—holy places like the temple or Vṛndāvana and Dvārakā; *pada-anusarpaṇe*—walking to those places; *śiraḥ*—the head; *hṛṣīkeśa*—of Kṛṣṇa, the master of the senses; *pada-abhivandane*—in offering obeisances to the lotus feet; *kāmam ca*—and his desires; *dāsye*—in being engaged as a servant; *na*—not; *tu*—indeed; *kāma-kāmyayā*—with a desire for sense gratification; *yathā*—as; *uttamaśloka-jana-āśrayā*—if one takes shelter of a devotee such as Prahlāda; *ratiḥ*—attachment.

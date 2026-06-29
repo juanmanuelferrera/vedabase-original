@@ -1,9 +1,9 @@
 ### CC Madhya 15.31
 
-> পরম-আবেশে প্রভু আইলা নিজ-ঘর ।
+> পরম-আবেশে প্রভু আইলা নিজ-ঘর ।\
 > এইমত লীলা করে গৌরাঙ্গসুন্দর ॥৩১॥
 
-> parama-āveśe prabhu āilā nija-ghara
+> parama-āveśe prabhu āilā nija-ghara\
 > ei-mata līlā kare gaurāṅga-sundara
 
 *parama-āveśe*—en gran éxtasis; *prabhu*—Śrī Caitanya Mahāprabhu; *āilā*—regresó; *nija-ghara*—a Su propia residencia; *ei-mata*—de este modo; *līlā*—pasatiempos; *kare*—llevó a cabo; *gaurāṅga-sundara*—Śrī Caitanya Mahāprabhu.

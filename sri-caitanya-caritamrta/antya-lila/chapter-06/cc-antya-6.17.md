@@ -1,9 +1,9 @@
 ### CC Antya 6.17
 
-> হেন-কালে মুলুকের এক ম্লেচ্ছ অধিকারী ।
+> হেন-কালে মুলুকের এক ম্লেচ্ছ অধিকারী ।\
 > সপ্তগ্রাম-মুলুকের সে হয় ‘চৌধুরী’ ॥১৭॥
 
-> hena-kāle mulukera eka mleccha adhikārī
+> hena-kāle mulukera eka mleccha adhikārī\
 > saptagrāma-mulukera se haya 'caudhurī'
 
 *hena-kāle*—at this time; *mulukera*—of the country; *eka*—one; *mleccha*—Mohammedan; *adhikārī*—official; *saptagrāma-mulukera*—of the place known as Saptagrāma; *se*—that person; *haya*—is; *caudhurī*—tax collector.

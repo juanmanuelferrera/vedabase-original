@@ -1,9 +1,9 @@
 ### CC Madhya 5.118
 
-> মন্দির করিয়া রাজা সেবা চালাইল ।
+> মন্দির করিয়া রাজা সেবা চালাইল ।\
 > ‘সাক্ষিগোপাল’ বলি’ তাঁর নাম খ্যাতি হৈল ॥১১৮॥
 
-> mandira kariyā rājā sevā cālāila
+> mandira kariyā rājā sevā cālāila\
 > 'sākṣi-gopāla' bali' tāṅra nāma khyāti haila
 
 *mandira*—a temple; *kariyā*—constructing; *rājā*—the King; *sevā*—service; *cālāila*—regularly carried on; *sākṣi-gopāla*—by the name Sākṣi-gopāla; *bali'*—known as; *tāṅra*—His; *nāma*—name; *khyāti*—celebrated; *haila*—was.

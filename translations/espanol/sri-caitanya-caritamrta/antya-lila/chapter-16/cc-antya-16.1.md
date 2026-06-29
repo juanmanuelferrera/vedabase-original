@@ -1,11 +1,11 @@
 ### CC Antya 16.1
 
-> বন্দে শ্রীকৃষ্ণচৈতন্যং কৃষ্ণভাবামৃতং হি যঃ ।
+> বন্দে শ্রীকৃষ্ণচৈতন্যং কৃষ্ণভাবামৃতং হি যঃ ।\
 > আস্বাদ্যাস্বাদয়ন্ ভক্তান্ প্রেমদীক্ষামশিক্ষয়ৎ ॥১॥
 
-> vande śrī-kṛṣṇa-caitanyaṁ
-> kṛṣṇa-bhāvāmṛtaṁ hi yaḥ
-> āsvādyāsvādayan bhaktān
+> vande śrī-kṛṣṇa-caitanyaṁ\
+> kṛṣṇa-bhāvāmṛtaṁ hi yaḥ\
+> āsvādyāsvādayan bhaktān\
 > prema-dīkṣām aśikṣayat
 
 *vande*—ofrezco mis respetuosas reverencias; *śrī-kṛṣṇa-caitanyam*—al Señor Śrī Caitanya Mahāprabhu; *kṛṣṇa-bhāva-amṛtam*—el néctar del amor extático por Kṛṣṇa; *hi*—ciertamente; *yaḥ*—Él, quien; *āsvādya*—saboreando; *āsvādayan*—haciendo saborear; *bhaktān*—a los devotos; *prema*—en el amor por Kṛṣṇa; *dīkṣām*—iniciación; *aśikṣayat*—instruyó.

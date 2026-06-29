@@ -1,11 +1,11 @@
 ### SB 6.6.45
 
-> तं वव्रिरे सुरगणा स्वस्रीयं द्विषतामपि
+> तं वव्रिरे सुरगणा स्वस्रीयं द्विषतामपि\
 > विमतेन परित्यक्ता गुरुणाङ्गिरसेन यत ॥४५॥
 
-> taṁ vavrire sura-gaṇā
-> svasrīyaṁ dviṣatām api
-> vimatena parityaktā
+> taṁ vavrire sura-gaṇā\
+> svasrīyaṁ dviṣatām api\
+> vimatena parityaktā\
 > guruṇāṅgirasena yat
 
 *tam*—him (Viśvarūpa); *vavrire*—accepted as a priest; *sura-gaṇāḥ*—the demigods; *svasrīyam*—the son of a daughter; *dviṣatām*—of the inimical demons; *api*—although; *vimatena*—being disrespected; *parityaktāḥ*—who were given up; *guruṇā*—by their spiritual master; *āṅgirasena*—Bṛhaspati; *yat*—since.

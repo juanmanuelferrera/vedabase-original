@@ -1,9 +1,9 @@
 ### CC Antya 14.62
 
-> সিংহদ্বারের উত্তর-দিশায় আছে এক ঠাঞি ।
+> সিংহদ্বারের উত্তর-দিশায় আছে এক ঠাঞি ।\
 > তার মধ্যে পড়ি’ আছেন চৈতন্য-গোসাঞি ॥৬২॥
 
-> siṁha-dvārera uttara-diśāya āche eka ṭhāñi
+> siṁha-dvārera uttara-diśāya āche eka ṭhāñi\
 > tāra madhye paḍi' āchena caitanya-gosāñi
 
 *siṁha-dvārera*—de la puerta conocida como Siṁha-dvāra; *uttara-diśāya*—en el lado norte; *āche*—hay; *eka ṭhāñi*—un lugar; *tāra madhye*—dentro de ese lugar; *paḍi'*—tendido; *āchena*—estaba; *caitanya-gosāñi*—Śrī Caitanya Mahāprabhu.

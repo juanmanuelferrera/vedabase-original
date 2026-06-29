@@ -1,9 +1,9 @@
 ### CC Antya 6.269
 
-> তবে রঘুনাথ করি’ অনেক যতন ।
+> তবে রঘুনাথ করি’ অনেক যতন ।\
 > মাসে দুইদিন কৈলা প্রভুর নিমন্ত্রণ ॥২৬৯॥
 
-> tabe raghunātha kari' aneka yatana
+> tabe raghunātha kari' aneka yatana\
 > māse dui-dina kailā prabhura nimantraṇa
 
 *tabe*—en aquel momento; *raghunātha*—Raghunātha dāsa; *kari' aneka yatana*—con gran atención; *māse*—cada mes; *dui-dina*—dos días; *kailā*—hizo; *prabhura nimantraṇa*—invitación al Señor Śrī Caitanya Mahāprabhu.

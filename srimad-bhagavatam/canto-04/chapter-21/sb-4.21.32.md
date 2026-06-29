@@ -1,11 +1,11 @@
 ### SB 4.21.32
 
-> विनिर्धुताशेषमनोमलः पुमानसङ्गविज्ञानविशेषवीर्यवान् ।
+> विनिर्धुताशेषमनोमलः पुमानसङ्गविज्ञानविशेषवीर्यवान् ।\
 > यदङ्घ्रिमूले कृतकेतनः पुनर्न संसृतिं क्लेशवहां प्रपद्यते ॥३२॥
 
-> vinirdhutāśeṣa-mano-malaḥ pumān
-> asaṅga-vijñāna-viśeṣa-vīryavān
-> yad-aṅghri-mūle kṛta-ketanaḥ punar
+> vinirdhutāśeṣa-mano-malaḥ pumān\
+> asaṅga-vijñāna-viśeṣa-vīryavān\
+> yad-aṅghri-mūle kṛta-ketanaḥ punar\
 > na saṁsṛtiṁ kleśa-vahāṁ prapadyate
 
 *vinirdhuta*—being specifically cleansed; *aśeṣa*—unlimited; *manaḥ-malaḥ*—mental speculation or the dirt accumulated in the mind; *pumān*—the person; *asaṅga*—being disgusted; *vijñāna*—scientifically; *viśeṣa*—particularly; *vīrya-vān*—being strengthened in *bhakti-yoga*; *yat*—whose; *aṅghri*—lotus feet; *mūle*—at the root of; *kṛta-ketanaḥ*—taken shelter; *punaḥ*—again; *na*—never; *saṁsṛtim*—material existence; *kleśa-vahām*—full of miserable conditions; *prapadyate*—takes to.

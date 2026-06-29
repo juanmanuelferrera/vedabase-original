@@ -1,11 +1,11 @@
 ### SB 9.16.10
 
-> एकदाश्रमतो रामे सभ्रातरि वनं गते
+> एकदाश्रमतो रामे सभ्रातरि वनं गते\
 > वैरं सिषाधयिषवो लब्धच्छिद्रा उपागमन ॥१०॥
 
-> ekadāśramato rāme
-> sabhrātari vanaṁ gate
-> vairaṁ siṣādhayiṣavo
+> ekadāśramato rāme\
+> sabhrātari vanaṁ gate\
+> vairaṁ siṣādhayiṣavo\
 > labdha-cchidrā upāgaman
 
 *ekadā*—en cierta ocasión; *āśramataḥ*—del *āśrama* de Jamadagni; *rāme*—cuando el Señor Paraśurāma; *sa-bhrātari*—con sus hermanos; *vanam*—al bosque; *gate*—habiendo ido; *vairam*—venganza de rencores pasados; *siṣādhayiṣavaḥ*—con el deseo de satisfacer; *labdha-chidrāḥ*—aprovechando la oportunidad; *upāgaman*—se acercaron a la morada de Jamadagni.

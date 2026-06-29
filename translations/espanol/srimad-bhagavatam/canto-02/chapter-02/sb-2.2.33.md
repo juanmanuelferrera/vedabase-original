@@ -1,11 +1,11 @@
 ### SB 2.2.33
 
-> न ह्यतोऽन्यः शिवः पन्था विशतः संसृताविह ।
+> न ह्यतोऽन्यः शिवः पन्था विशतः संसृताविह ।\
 > वासुदेवे भगवति भक्तियोगो यतो भवेत् ॥३३॥
 
-> na hy ato 'nyaḥ śivaḥ panthā
-> viśataḥ saṁsṛtāv iha
-> vāsudeve bhagavati
+> na hy ato 'nyaḥ śivaḥ panthā\
+> viśataḥ saṁsṛtāv iha\
+> vāsudeve bhagavati\
 > bhakti-yogo yato bhavet
 
 *na*—nunca; *hi*—ciertamente; *ataḥ*—más allá de esto; *anyaḥ*—cualquier otro; *śivaḥ*—auspicioso; *panthāḥ*—medios; *viśataḥ*—errando; *saṁsṛtau*—en el mundo material; *iha*—en esta vida; *vāsudeve*—al Señor Vāsudeva, Kṛṣṇa; *bhagavati*—la Personalidad de Dios; *bhakti-yogaḥ*—servicio devocional directo; *yataḥ*—en el que; *bhavet*—pueda dar como resultado.

@@ -1,11 +1,11 @@
 ### SB 4.1.10
 
-> देवहूतिमदात्तात कर्दमायात्मजां मनुः ।
+> देवहूतिमदात्तात कर्दमायात्मजां मनुः ।\
 > तत्सम्बन्धि श्रुतप्रायं भवता गदतो मम ॥१०॥
 
-> devahūtim adāt tāta
-> kardamāyātmajāṁ manuḥ
-> tat-sambandhi śruta-prāyaṁ
+> devahūtim adāt tāta\
+> kardamāyātmajāṁ manuḥ\
+> tat-sambandhi śruta-prāyaṁ\
 > bhavatā gadato mama
 
 *devahūtim*—a Devahūti; *adāt*—entregó; *tāta*—querido hijo mío; *kardamāya*—al gran sabio Kardama; *ātmajām*—hija; *manuḥ*—el Señor Svāyambhuva Manu; *tat-sambandhi*—en relación con ello; *śruta-prāyam*—escuchado prácticamente todo; *bhavatā*—por ti; *gadataḥ*—hablado; *mama*—por mí.

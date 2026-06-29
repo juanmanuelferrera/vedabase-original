@@ -1,11 +1,11 @@
 ### SB 4.22.53
 
-> एवमध्यात्मयोगेन कर्माण्यनुसमाचरन् ।
+> एवमध्यात्मयोगेन कर्माण्यनुसमाचरन् ।\
 > पुत्रानुत्पादयामास पञ्चार्चिष्यात्मसम्मतान् ॥५३॥
 
-> evam adhyātma-yogena
-> karmāṇy anusamācaran
-> putrān utpādayām āsa
+> evam adhyātma-yogena\
+> karmāṇy anusamācaran\
+> putrān utpādayām āsa\
 > pañcārciṣy ātma-sammatān
 
 *evam*—thus; *adhyātma-yogena*—by the means of *bhakti-yoga*; *karmāṇi*—activities; *anu*—always; *samācaran*—executing; *putrān*—sons; *utpādayām āsa*—begotten; *pañca*—five; *arciṣi*—in his wife, Arci; *ātma*—own; *sammatān*—according to his desire.

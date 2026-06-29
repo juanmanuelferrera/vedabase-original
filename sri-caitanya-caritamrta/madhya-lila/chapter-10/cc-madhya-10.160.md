@@ -1,9 +1,9 @@
 ### CC Madhya 10.160
 
-> আজি হৈতে না পরিব এই চর্মাম্বর ।
+> আজি হৈতে না পরিব এই চর্মাম্বর ।\
 > প্রভু বহির্বাস আনাইলা জানিয়া অন্তর ॥১৬০॥
 
-> āji haite nā pariba ei carmāmbara
+> āji haite nā pariba ei carmāmbara\
 > prabhu bahirvāsa ānāilā jāniyā antara
 
 *āji haite*—from today; *nā pariba*—I shall not put on; *ei*—this; *carma-ambara*—deerskin garment; *prabhu*—Śrī Caitanya Mahāprabhu; *bahirḥ-vāsa*—the cloth of a *sannyāsī*; *ānāilā*—had someone bring; *jāniyā*—knowing; *antara*—his contemplation.

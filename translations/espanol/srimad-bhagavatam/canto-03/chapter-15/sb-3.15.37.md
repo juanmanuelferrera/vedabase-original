@@ -1,13 +1,13 @@
 ### SB 3.15.37
 
-> एवं तदैव भगवानरविन्दनाभः
-> स्वानां विबुध्य सदतिक्रममार्यहृद्यः ।
-> तस्मिन्ययौ परमहंसमहामुनीनाम्
+> एवं तदैव भगवानरविन्दनाभः\
+> स्वानां विबुध्य सदतिक्रममार्यहृद्यः ।\
+> तस्मिन्ययौ परमहंसमहामुनीनाम्\
 > अन्वेषणीयचरणौ चलयन्सहश्रीः ॥३७॥
 
-> evaṁ tadaiva bhagavān aravinda-nābhaḥ
-> svānāṁ vibudhya sad-atikramam ārya-hṛdyaḥ
-> tasmin yayau paramahaṁsa-mahā-munīnām
+> evaṁ tadaiva bhagavān aravinda-nābhaḥ\
+> svānāṁ vibudhya sad-atikramam ārya-hṛdyaḥ\
+> tasmin yayau paramahaṁsa-mahā-munīnām\
 > anveṣaṇīya-caraṇau calayan saha-śrīḥ
 
 *evam*—así; *tadā eva*—en aquel mismo instante; *bhagavān*—la Suprema Personalidad de Dios; *aravinda-nābhaḥ*—con un loto que crece de Su ombligo; *svānām*—de Sus propios sirvientes; *vibudhya*—supo de; *sat*—a los grandes sabios; *atikramam*—el insulto; *ārya*—de los justos; *hṛdyaḥ*—las delicias; *tasmin*—allí; *yayau*—fue; *paramahaṁsa*—anacoretas; *mahā-munīnām*—por los grandes sabios; *anveṣaṇīya*—que son dignos de ser buscados; *caraṇau*—los dos pies de loto; *calayan*—caminando; *saha-śrīḥ*—con la diosa de la fortuna.

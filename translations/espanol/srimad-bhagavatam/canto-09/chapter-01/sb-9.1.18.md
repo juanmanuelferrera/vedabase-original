@@ -1,11 +1,11 @@
 ### SB 9.1.18
 
-> यूयं ब्रह्मविदो युक्तास्तपसा दग्धकिल्बिषाः
+> यूयं ब्रह्मविदो युक्तास्तपसा दग्धकिल्बिषाः\
 > कुतः सङ्कल्पवैषम्यमनृतं विबुधेष्विव ॥१८॥
 
-> yūyaṁ brahma-vido yuktās
-> tapasā dagdha-kilbiṣāḥ
-> kutaḥ saṅkalpa-vaiṣamyam
+> yūyaṁ brahma-vido yuktās\
+> tapasā dagdha-kilbiṣāḥ\
+> kutaḥ saṅkalpa-vaiṣamyam\
 > anṛtaṁ vibudheṣv iva
 
 *yūyam*—de todos ustedes; *brahma-vidaḥ*—con plena conciencia de la Verdad Absoluta; *yuktāḥ*—equilibrados y con dominio del propio ser; *tapasā*—merced a la austeridad y las penitencias; *dagdha-kilbiṣāḥ*—la contaminación material completamente quemada en todas sus formas; *kutaḥ*—cómo entonces; *saṅkalpa-vaiṣamyam*—diferencia con respecto al propósito; *anṛtam*—promesa o afirmación falsa; *vibudheṣu*—en la sociedad de los semidioses; *iva*—o.

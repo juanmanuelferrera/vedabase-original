@@ -1,11 +1,11 @@
 ### SB 8.1.32
 
-> तत्कथासु महत्पुण्यं धन्यं स्वस्त्ययनं शुभम
+> तत्कथासु महत्पुण्यं धन्यं स्वस्त्ययनं शुभम\
 > यत्र यत्रोत्तमश्लोको भगवान्गीयते हरिः ॥३२॥
 
-> tat-kathāsu mahat puṇyaṁ
-> dhanyaṁ svastyayanaṁ śubham
-> yatra yatrottamaśloko
+> tat-kathāsu mahat puṇyaṁ\
+> dhanyaṁ svastyayanaṁ śubham\
+> yatra yatrottamaśloko\
 > bhagavān gīyate hariḥ
 
 *tat-kathāsu*—en aquellas narraciones; *mahat*—grandes; *puṇyam*—piadosas; *dhanyam*—gloriosas; *svastyayanam*—auspiciosas; *śubham*—completamente buenas; *yatra*—allí donde; *yatra*—allí donde; *uttamaślokaḥ*—el Señor, a quien se conoce con el nombre de Uttamaśloka (aquel a quien describe la literatura trascendental); *bhagavān*—la Suprema Personalidad de Dios; *gīyate*—es glorificado; *hariḥ*—la Suprema Personalidad de Dios.

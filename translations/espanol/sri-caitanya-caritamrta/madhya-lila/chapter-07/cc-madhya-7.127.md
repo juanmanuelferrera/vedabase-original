@@ -1,9 +1,9 @@
 ### CC Madhya 7.127
 
-> প্রভু কহে, — “ঐছে বাত্ কভু না কহিবা ৷
+> প্রভু কহে, — “ঐছে বাত্ কভু না কহিবা ৷\
 > গৃহে রহি’ কৃষ্ণ-নাম নিরন্তর লৈবা ৷৷ ১২৭ ৷৷ ॥১২৭॥
 
-> prabhu kahe,--"aiche bāt kabhu nā kahibā
+> prabhu kahe,--"aiche bāt kabhu nā kahibā\
 > gṛhe rahi' kṛṣṇa-nāma nirantara laibā
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *aiche bāt*—tales palabras; *kabhu*—en ningún momento; *nā kahibā*—no deberías decir; *gṛhe rahi'*—permaneciendo en casa; *kṛṣṇa-nāma*—el santo nombre del Señor; *nirantara*—siempre; *laibā*—deberías cantar.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.122
 
-> হেনকালে এক ময়ূর-পুচ্ছের আড়ানী  ।
+> হেনকালে এক ময়ূর-পুচ্ছের আড়ানী  ।\
 > রাজ-শিরোপরি ধরে এক সেবক আনি’ ॥১২২॥
 
-> hena-kāle eka mayūra-pucchera āḍānī
+> hena-kāle eka mayūra-pucchera āḍānī\
 > rāja-śiropari dhare eka sevaka āni'
 
 *hena-kāle*—en ese momento; *eka*—un; *mayūra-pucchera*—de plumas de pavo real; *āḍānī*—abanico; *rāja-śira-upari*—sobre la cabeza del rey; *dhare*—sostiene; *eka*—un; *sevaka*—sirviente; *āni'*—trayendo.

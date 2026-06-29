@@ -1,11 +1,11 @@
 ### Bg 3.14
 
-> अन्नाद्भवन्ति भूतानि पर्जन्यादन्नसम्भवः ।
+> अन्नाद्भवन्ति भूतानि पर्जन्यादन्नसम्भवः ।\
 > यज्ञाद्भवति पर्जन्यो यज्ञः कर्मसमुद्भवः ॥१४॥
 
-> annād bhavanti bhūtāni
-> parjanyād anna-sambhavaḥ
-> yajñād bhavati parjanyo
+> annād bhavanti bhūtāni\
+> parjanyād anna-sambhavaḥ\
+> yajñād bhavati parjanyo\
 > yajñaḥ karma-samudbhavaḥ
 
 *annāt*—from grains; *bhavanti*—grow; *bhūtāni*—the material bodies; *parjanyāt*—from rains; *anna*—food grains; *sambhavaḥ*—are made possible; *yajñāt*—from the performance of sacrifice; *bhavati*—becomes possible; *parjanyaḥ*—rains; *yajñaḥ*—performance of *yajña*; *karma*—prescribed duties; *samudbhavaḥ*—born of.

@@ -1,14 +1,14 @@
 ### SB 4.23.35
 
-> धन्यं यशस्यमायुष्यं स्वर्ग्यं कलिमलापहम् ।
-> धर्मार्थकाममोक्षाणां सम्यक्सिद्धिमभीप्सुभिः ।
+> धन्यं यशस्यमायुष्यं स्वर्ग्यं कलिमलापहम् ।\
+> धर्मार्थकाममोक्षाणां सम्यक्सिद्धिमभीप्सुभिः ।\
 > श्रद्धयैतदनुश्राव्यं चतुर्णां कारणं परम् ॥३५॥
 
-> dhanyaṁ yaśasyam āyuṣyaṁ
-> svargyaṁ kali-malāpaham
-> dharmārtha-kāma-mokṣāṇāṁ
-> samyak siddhim abhīpsubhiḥ
-> śraddhayaitad anuśrāvyaṁ
+> dhanyaṁ yaśasyam āyuṣyaṁ\
+> svargyaṁ kali-malāpaham\
+> dharmārtha-kāma-mokṣāṇāṁ\
+> samyak siddhim abhīpsubhiḥ\
+> śraddhayaitad anuśrāvyaṁ\
 > caturṇāṁ kāraṇaṁ param
 
 *dhanyam*—the source of riches; *yaśasyam*—the source of reputation; *āyuṣyam*—the source of an increased span of life; *svargyam*—the source of elevation to the heavenly planets; *kali*—of the age of Kali; *mala-apaham*—decreasing the contamination; *dharma*—religion; *artha*—economic development; *kāma*—sense gratification; *mokṣāṇām*—of liberation; *samyak*—completely; *siddhim*—perfection; *abhīpsubhiḥ*—by those desiring; *śraddhayā*—with great respect; *etat*—this narration; *anuśrāvyam*—must one hear; *caturṇām*—of the four; *kāraṇam*—cause; *param*—ultimate.

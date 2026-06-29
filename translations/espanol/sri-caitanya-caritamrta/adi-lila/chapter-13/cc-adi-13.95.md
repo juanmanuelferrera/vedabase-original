@@ -1,9 +1,9 @@
 ### CC Adi 13.95
 
-> প্রসন্ন হইল সব জগতের মন ।
+> প্রসন্ন হইল সব জগতের মন ।\
 > ‘হরি’ বলি’ হিন্দুকে হাস্য করয়ে যবন ॥৯৫॥
 
-> prasanna ha-ila saba jagatera mana
+> prasanna ha-ila saba jagatera mana\
 > 'hari' bali' hinduke hāsya karaye yavana
 
 *prasanna*—gozoso; *ha-ila*—se puso; *saba*—todo; *jagatera*—del mundo entero; *mana*—la mente; *hari*—el santo nombre del Señor; *bali'*—diciendo; *hinduke*—a los hindúes; *hāsya*—riendo; *karaye*—hacían; *yavana*—los musulmanes.

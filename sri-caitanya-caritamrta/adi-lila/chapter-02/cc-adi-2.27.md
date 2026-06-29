@@ -1,9 +1,9 @@
 ### CC Adi 2.27
 
-> উপাসনা-ভেদে জানি ঈশ্বর-মহিমা ।
+> উপাসনা-ভেদে জানি ঈশ্বর-মহিমা ।\
 > অতএব সূর্য তাঁর দিয়েত উপমা ॥২৭॥
 
-> upāsanā-bhede jāni īśvara-mahimā
+> upāsanā-bhede jāni īśvara-mahimā\
 > ataeva sūrya tāṅra diyeta upamā
 
 *upāsanā-bhede*—by the different paths of worship; *jāni*—I know; *īśvara*—of the Supreme Lord; *mahimā*—greatness; *ataeva*—therefore; *sūrya*—the sun; *tāṅra*—of Him; *diyeta*—was given; *upamā*—simile.

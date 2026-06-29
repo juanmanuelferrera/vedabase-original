@@ -1,11 +1,11 @@
 ### SB 3.24.25
 
-> ततस्त ऋषयः क्षत्तः कृतदारा निमन्त्र्य तम् ।
+> ततस्त ऋषयः क्षत्तः कृतदारा निमन्त्र्य तम् ।\
 > प्रातिष्ठन्नन्दिमापन्नाः स्वं स्वमाश्रममण्डलम् ॥२५॥
 
-> tatas ta ṛṣayaḥ kṣattaḥ
-> kṛta-dārā nimantrya tam
-> prātiṣṭhan nandim āpannāḥ
+> tatas ta ṛṣayaḥ kṣattaḥ\
+> kṛta-dārā nimantrya tam\
+> prātiṣṭhan nandim āpannāḥ\
 > svaṁ svam āśrama-maṇḍalam
 
 *tataḥ*—entonces; *te*—ellos; *ṛṣayaḥ*—los sabios; *kṣattaḥ*—¡oh, Vidura!; *kṛta-dārāḥ*—una vez casados; *nimantrya*—despidiéndose de; *tam*—Kardama; *prātiṣṭhan*—partieron; *nandim*—alegría; *āpannāḥ*—obtenida; *svam svam*—cada uno a su propia; *āśrama-maṇḍalam*—ermita.

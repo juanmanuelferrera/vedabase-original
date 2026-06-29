@@ -1,11 +1,11 @@
 ### SB 4.8.6
 
-> अथातः कीर्तये वंशं पुण्यकीर्तेः कुरूद्वह ।
+> अथातः कीर्तये वंशं पुण्यकीर्तेः कुरूद्वह ।\
 > स्वायम्भुवस्यापि मनोर्हरेरंशांशजन्मनः ॥६॥
 
-> athātaḥ kīrtaye vaṁśaṁ
-> puṇya-kīrteḥ kurūdvaha
-> svāyambhuvasyāpi manor
+> athātaḥ kīrtaye vaṁśaṁ\
+> puṇya-kīrteḥ kurūdvaha\
+> svāyambhuvasyāpi manor\
 > harer aṁśāṁśa-janmanaḥ
 
 *atha*—now; *ataḥ*—hereafter; *kīrtaye*—I shall describe; *vaṁśam*—dynasty; *puṇya-kīrteḥ*—celebrated for virtuous activities; *kuru-udvaha*—O best of the Kurus; *svāyambhuvasya*—of Svāyambhuva; *api*—even; *manoḥ*—of the Manu; *hareḥ*—of the Personality of Godhead; *aṁśa*—plenary expansion; *aṁśa*—part of; *janmanaḥ*—born of.

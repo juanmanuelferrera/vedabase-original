@@ -1,11 +1,11 @@
 ### SB 8.20.18
 
-> यजमानः स्वयं तस्य श्रीमत्पादयुगं मुदा
+> यजमानः स्वयं तस्य श्रीमत्पादयुगं मुदा\
 > अवनिज्यावहन्मूर्ध्नि तदपो विश्वपावनीः ॥१८॥
 
-> yajamānaḥ svayaṁ tasya
-> śrīmat pāda-yugaṁ mudā
-> avanijyāvahan mūrdhni
+> yajamānaḥ svayaṁ tasya\
+> śrīmat pāda-yugaṁ mudā\
+> avanijyāvahan mūrdhni\
 > tad apo viśva-pāvanīḥ
 
 *yajamānaḥ*—el adorador (Bali Mahārāja); *svayam*—personalmente; *tasya*—del Señor Vāmanadeva; *śrīmat pāda-yugam*—los más auspiciosos y hermosos pies de loto; *mudā*—lleno de júbilo; *avanijya*—tras lavar adecuadamente; *avahat*—tomó; *mūrdhni*—sobre su cabeza; *tat*—esa; *apaḥ*—agua; *viśva-pāvanīḥ*—que da la liberación al universo entero.

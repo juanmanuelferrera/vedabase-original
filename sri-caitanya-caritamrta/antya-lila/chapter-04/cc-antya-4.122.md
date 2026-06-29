@@ -1,9 +1,9 @@
 ### CC Antya 4.122
 
-> প্রভু কহে, — ‘কোন্ পথে আইলা, সনাতন ?’
+> প্রভু কহে, — ‘কোন্ পথে আইলা, সনাতন ?’\
 > তেঁহ কহে, — ‘সমুদ্র-পথে, করিলুঁ আগমন ।।’ ॥ ১২২ ॥
 
-> prabhu kahe,—'kon pathe āilā, sanātana?'
+> prabhu kahe,—'kon pathe āilā, sanātana?'\
 > teṅha kahe,—'samudra-pathe, kariluṅ āgamana'
 
 *prabhu kahe*—the Lord inquired; *kon pathe*—through which path; *āilā sanātana*—you have come, Sanātana; *teṅha kahe*—he replied; *samudra-pathe*—on the path by the sea; *kariluṅ āgamana*—I have come.

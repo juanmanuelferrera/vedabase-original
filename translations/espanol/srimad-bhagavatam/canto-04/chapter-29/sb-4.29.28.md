@@ -1,11 +1,11 @@
 ### SB 4.29.28
 
-> शुक्लात्प्रकाशभूयिष्ठा लोकानाप्नोति कर्हिचित् ।
+> शुक्लात्प्रकाशभूयिष्ठा लोकानाप्नोति कर्हिचित् ।\
 > दुःखोदर्कान्क्रियायासांस्तमःशोकोत्कटान्क्वचित् ॥२८॥
 
-> śuklāt prakāśa-bhūyiṣṭhāḹ
-> lokān āpnoti karhicit
-> duḥkhodarkān kriyāyāsāṁs
+> śuklāt prakāśa-bhūyiṣṭhāḹ\
+> lokān āpnoti karhicit\
+> duḥkhodarkān kriyāyāsāṁs\
 > tamaḥ-śokotkaṭān kvacit
 
 *śuklāt*—por medio de la bondad; *prakāśa*—por la iluminación; *bhūyiṣṭhān*—caracterizados; *lokān*—planetas; *āpnoti*—alcanza; *karhicit*—a veces; *duḥkha*—aflicción; *udarkān*—tener como resultado final; *kriyā-āyāsān*—llenos de actividades laboriosas; *tamaḥ*—oscuridad; *śoka*—en lamentación; *utkaṭān*—abundando; *kvacit*—a veces.

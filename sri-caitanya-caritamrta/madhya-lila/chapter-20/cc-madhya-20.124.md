@@ -1,9 +1,9 @@
 ### CC Madhya 20.124
 
-> বেদশাস্ত্র কহে — ‘সম্বন্ধ’, ‘অভিধেয়,’ ‘প্রয়োজন’ ।
+> বেদশাস্ত্র কহে — ‘সম্বন্ধ’, ‘অভিধেয়,’ ‘প্রয়োজন’ ।\
 > ‘কৃষ্ণ’ — প্রাপ্য সম্বন্ধ, ‘ভক্তি’ — প্রাপ্ত্যের সাধন ॥১২৪॥
 
-> veda-śāstra kahe—'sambandha' 'abhidheya' 'prayojana'
+> veda-śāstra kahe—'sambandha' 'abhidheya' 'prayojana'\
 > 'kṛṣṇa'—prāpya sambandha, 'bhakti'—prāptyera sādhana
 
 *veda-śāstra kahe*—the Vedic literature instructs; *sambandha*—the conditioned soul's relationship with the Lord; *abhidheya*—the regulated activities of the conditioned soul for reviving that relationship; *prayojana*—and the ultimate goal of life to be attained by the conditioned soul; *kṛṣṇa*—Lord Kṛṣṇa; *prāpya*—to be awakened; *sambandha*—the original relationship; *bhakti*—devotional service; *prāptyera sādhana*—the means of attaining Kṛṣṇa.

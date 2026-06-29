@@ -1,9 +1,9 @@
 ### CC Madhya 11.27
 
-> তোমাতে যে এত প্রীতি হইল রাজার ।
+> তোমাতে যে এত প্রীতি হইল রাজার ।\
 > এই গুণে কৃষ্ণ তাঁরে করিবে অঙ্গীকার ॥২৭॥
 
-> tomāte ye eta prīti ha-ila rājāra
+> tomāte ye eta prīti ha-ila rājāra\
 > ei guṇe kṛṣṇa tāṅre karibe aṅgīkāra
 
 *tomāte*—unto you; *ye*—that; *eta*—so much; *prīti*—love; *ha-ila*—was; *rājāra*—of the King; *ei guṇe*—for this reason; *kṛṣṇa*—Lord Kṛṣṇa; *tāṅre*—him; *karibe aṅgīkāra*—will accept.

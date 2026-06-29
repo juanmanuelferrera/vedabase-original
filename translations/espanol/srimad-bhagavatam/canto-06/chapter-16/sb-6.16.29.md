@@ -1,11 +1,11 @@
 ### SB 6.16.29
 
-> ततः कतिपयाहोभिर्विद्ययेद्धमनोगतिः
+> ततः कतिपयाहोभिर्विद्ययेद्धमनोगतिः\
 > जगाम देवदेवस्य शेषस्य चरणान्तिकम ॥२९॥
 
-> tataḥ katipayāhobhir
-> vidyayeddha-mano-gatiḥ
-> jagāma deva-devasya
+> tataḥ katipayāhobhir\
+> vidyayeddha-mano-gatiḥ\
+> jagāma deva-devasya\
 > śeṣasya caraṇāntikam
 
 *tataḥ*—a continuación; *katipaya-ahobhiḥ*—en unos pocos días; *vidyayā*—mediante el *mantra* espiritual; *iddha-manaḥ-gatiḥ*—el proceso de iluminación de su mente; *jagāma*—fue; *deva-devasya*—del amo de todos los demás señores o semidioses; *śeṣasya*—el Señor Śeṣa; *caraṇa-antikam*—al refugio de los pies de loto.

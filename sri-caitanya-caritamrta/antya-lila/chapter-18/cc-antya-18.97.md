@@ -1,13 +1,13 @@
 ### CC Antya 18.97
 
-> পদ্মোৎপল — অচেতন, চক্রবাক — সচেতন,
-> চক্রবাকে পদ্ম আস্বাদয় ।
-> ইহাঁ দুঁহার উল্টা স্থিতি, ধর্ম হৈল বিপরীতি,
+> পদ্মোৎপল — অচেতন, চক্রবাক — সচেতন,\
+> চক্রবাকে পদ্ম আস্বাদয় ।\
+> ইহাঁ দুঁহার উল্টা স্থিতি, ধর্ম হৈল বিপরীতি,\
 > কৃষ্ণের রাজ্যে ঐছে ন্যায় হয় ॥৯৭॥
 
-> padmotpala—acetana, cakravāka—sacetana,
-> cakravāke padma āsvādaya
-> ihāṅ duṅhāra ulṭā sthiti, dharma haila viparīti,
+> padmotpala—acetana, cakravāka—sacetana,\
+> cakravāke padma āsvādaya\
+> ihāṅ duṅhāra ulṭā sthiti, dharma haila viparīti,\
 > kṛṣṇera rājye aiche nyāya haya
 
 *padma-utpala*—the blue and red lotus flowers; *acetana*—unconscious; *cakravāka*—the *cakravāka* birds; *sa-cetana*—conscious; *cakravāke*—the *cakravāka* birds; *padma*—the blue lotus flowers; *āsvādaya*—taste; *ihāṅ*—here; *duṅhāra*—of both of them; *ulṭā sthiti*—the reverse situation; *dharma*—characteristic nature; *haila*—became; *viparīti*—reversed; *kṛṣṇera*—of Lord Kṛṣṇa; *rājye*—in the kingdom; *aiche*—such; *nyāya*—principle; *haya*—there is.

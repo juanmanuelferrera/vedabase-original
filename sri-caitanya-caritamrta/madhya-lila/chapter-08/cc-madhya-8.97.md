@@ -1,9 +1,9 @@
 ### CC Madhya 8.97
 
-> রায় কহে, — ইহার আগে পুছে হেন জনে ।
+> রায় কহে, — ইহার আগে পুছে হেন জনে ।\
 > এতদিন নাহি জানি, আছয়ে ভুবনে ॥৯৭॥
 
-> rāya kahe,—īhāra āge puche hena jane
+> rāya kahe,—īhāra āge puche hena jane\
 > eta-dina nāhi jāni, āchaye bhuvane
 
 *rāya kahe*—Rāmānanda Rāya replied; *ihāra āge*—beyond this point; *puche*—inquires; *hena*—such; *jane*—a person; *eta-dina*—until this day; *nāhi jāni*—I did not know; *āchaye*—there is; *bhuvane*—within this material world.

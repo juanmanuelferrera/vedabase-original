@@ -1,9 +1,9 @@
 ### CC Madhya 12.204
 
-> আর দিনে জগন্নাথের ‘নেত্রোৎসব’ নাম ।
+> আর দিনে জগন্নাথের ‘নেত্রোৎসব’ নাম ।\
 > মহোত্সব হৈল ভক্তের প্রাণ-সমান ॥২০৪॥
 
-> āra dine jagannāthera 'netrotsava' nāma
+> āra dine jagannāthera 'netrotsava' nāma\
 > mahotsava haila bhaktera prāṇa-samāna
 
 *āra dine*—al día siguiente; *jagannāthera*—del Señor Jagannātha; *netra-utsava*—el festival de contemplar los ojos; *nāma*—llamado; *mahā-utsava*—gran festival; *haila*—se celebró; *bhaktera*—de los devotos; *prāṇa-samāna*—la vida y el alma.

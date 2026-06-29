@@ -1,11 +1,11 @@
 ### SB 9.6.49
 
-> स कदाचिदुपासीन आत्मापह्नवमात्मनः
+> स कदाचिदुपासीन आत्मापह्नवमात्मनः\
 > ददर्श बह्वृचाचार्यो मीनसङ्गसमुत्थितम ॥४९॥
 
-> sa kadācid upāsīna
-> ātmāpahnavam ātmanaḥ
-> dadarśa bahv-ṛcācāryo
+> sa kadācid upāsīna\
+> ātmāpahnavam ātmanaḥ\
+> dadarśa bahv-ṛcācāryo\
 > mīna-saṅga-samutthitam
 
 *saḥ*—he, Saubhari Muni; *kadācit*—one day; *upāsīnaḥ*—sitting down; *ātma-apahnavam*—degrading oneself from the platform of *tapasya*; *ātmanaḥ*—self-caused; *dadarśa*—observed; *bahu-ṛca-ācāryaḥ*—Saubhari Muni, who was expert in chanting *mantras*; *mīna-saṅga*—the sexual affairs of fish; *samutthitam*—caused by this incident.

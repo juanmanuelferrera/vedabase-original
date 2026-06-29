@@ -1,11 +1,11 @@
 ### SB 3.24.38
 
-> गच्छ कामं मयापृष्टो मयि सन्न्यस्तकर्मणा ।
+> गच्छ कामं मयापृष्टो मयि सन्न्यस्तकर्मणा ।\
 > जित्वा सुदुर्जयं मृत्युममृतत्वाय मां भज ॥३८॥
 
-> gaccha kāmaṁ mayāpṛṣṭo
-> mayi sannyasta-karmaṇā
-> jitvā sudurjayaṁ mṛtyum
+> gaccha kāmaṁ mayāpṛṣṭo\
+> mayi sannyasta-karmaṇā\
+> jitvā sudurjayaṁ mṛtyum\
 > amṛtatvāya māṁ bhaja
 
 *gaccha*—ve; *kāmam*—según deseas; *mayā*—por Mí; *āpṛṣṭaḥ*—aprobado; *mayi*—a Mí; *sannyasta*—completamente entregado; *karmaṇā*—con tus actividades; *jitvā*—habiendo vencido; *sudurjayam*—a la insuperable; *mṛtyum*—muerte; *amṛtatvāya*—para obtener vida eterna; *mām*—a Mí; *bhaja*—ocúpate en servicio devocional.

@@ -1,11 +1,11 @@
 ### SB 4.28.25
 
-> विकृष्यमाणः प्रसभं यवनेन बलीयसा ।
+> विकृष्यमाणः प्रसभं यवनेन बलीयसा ।\
 > नाविन्दत्तमसाविष्टः सखायं सुहृदं पुरः ॥२५॥
 
-> vikṛṣyamāṇaḥ prasabhaṁ
-> yavanena balīyasā
-> nāvindat tamasāviṣṭaḥ
+> vikṛṣyamāṇaḥ prasabhaṁ\
+> yavanena balīyasā\
+> nāvindat tamasāviṣṭaḥ\
 > sakhāyaṁ suhṛdaṁ puraḥ
 
 *vikṛṣyamāṇaḥ*—being dragged; *prasabham*—forcibly; *yavanena*—by the Yavana; *balīyasā*—who was very powerful; *na avindat*—could not remember; *tamasā*—by darkness of ignorance; *āviṣṭaḥ*—being covered; *sakhāyam*—his friend; *suhṛdam*—always a well-wisher; *puraḥ*—from the very beginning.

@@ -1,14 +1,14 @@
 ### CC Madhya 8.204-205
 
-> সখী বিনা এই লীলায় অন্যের নাহি গতি ।
-> সখীভাবে যে তাঁরে করে অনুগতি ॥২০৪॥
-> রাধাকৃষ্ণ-কুঞ্জসেবা-সাধ্য সেই পায় ।
+> সখী বিনা এই লীলায় অন্যের নাহি গতি ।\
+> সখীভাবে যে তাঁরে করে অনুগতি ॥২০৪॥\
+> রাধাকৃষ্ণ-কুঞ্জসেবা-সাধ্য সেই পায় ।\
 > সেই সাধ্য পাইতে আর নাহিক উপায় ॥২০৫॥
 
-> sakhī vinā ei līlāya anyera nāhi gati
+> sakhī vinā ei līlāya anyera nāhi gati\
 > sakhī-bhāve ye tāṅre kare anugati
 
-> rādhā-kṛṣṇa-kuñjasevā-sādhya sei pāya
+> rādhā-kṛṣṇa-kuñjasevā-sādhya sei pāya\
 > sei sādhya pāite āra nāhika upāya
 
 *sakhī vinā*—without the *gopīs*; *ei līlāya*—in these pastimes; *anyera*—of others; *nāhi*—there is not; *gati*—entrance; *sakhī-bhāve*—in the mood of the *gopīs*; *ye*—anyone who; *tāṅre*—Lord Kṛṣṇa; *kare*—does; *anugati*—following; *rādhā-kṛṣṇa*—of Rādhā and Kṛṣṇa; *kuñja-sevā*—of service in the *kuñjas,* or gardens, of Vṛndāvana; *sādhya*—the goal; *sei pāya*—he gets; *sei*—*that*; *sādhya*—achievement; *pāite*—to receive; *āra*—other; *nāhika*—there is not; *upāya*—means.

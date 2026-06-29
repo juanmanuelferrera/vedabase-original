@@ -1,9 +1,9 @@
 ### CC Madhya 15.278
 
-> শুনি’ ‘কৃষ্ণ’ ‘কৃষ্ণ’ বলি’ অমোঘ উঠিলা ।
+> শুনি’ ‘কৃষ্ণ’ ‘কৃষ্ণ’ বলি’ অমোঘ উঠিলা ।\
 > প্রেমোন্মাদে মত্ত হঞা নাচিতে লাগিলা ॥২৭৮॥
 
-> śuni' 'kṛṣṇa' 'kṛṣṇa' bali' amogha uṭhilā
+> śuni' 'kṛṣṇa' 'kṛṣṇa' bali' amogha uṭhilā\
 > premonmāde matta hañā nācite lāgilā
 
 *śuni'*—hearing; *kṛṣṇa kṛṣṇa*—the holy name of Kṛṣṇa; *bali'*—speaking; *amogha uṭhilā*—Amogha stood up; *premonmāde*—in ecstatic love of Kṛṣṇa; *matta hañā*—becoming maddened; *nācite lāgilā*—began to dance.

@@ -1,11 +1,11 @@
 ### SB 1.13.43
 
-> यथा क्रीडोपस्कराणां संयोगविगमाविह ।
+> यथा क्रीडोपस्कराणां संयोगविगमाविह ।\
 > इच्छया क्रीडितुः स्यातां तथैवेशेच्छया नृणाम् ॥४३॥
 
-> yathā krīḍopaskarāṇāṁ
-> saṁyoga-vigamāv iha
-> icchayā krīḍituḥ syātāṁ
+> yathā krīḍopaskarāṇāṁ\
+> saṁyoga-vigamāv iha\
+> icchayā krīḍituḥ syātāṁ\
 > tathaiveśecchayā nṛṇām
 
 *yathā*—tanto como; *krīḍa-upaskarāṇām*—juguetes; *saṁyoga*—unión; *vigamau*—desunión; *iha*—en este mundo; *icchayā*—por la voluntad de; *krīḍituḥ*—tan solo para hacer un papel; *syātām*—ocurre; *tathā*—así mismo; *eva*—ciertamente; *īśa*—el Señor Supremo; *icchayā*—por la voluntad de; *nṛṇām*—de los seres humanos.

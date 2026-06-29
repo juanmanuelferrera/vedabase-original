@@ -1,13 +1,13 @@
 ### Bg 8.10
 
-> प्रयाणकाले मनसाऽचलेन
-> भक्त्या युक्तो योगबलेन चैव ।
-> भ्रुवोर्मध्ये प्राणमावेश्य सम्यक्
+> प्रयाणकाले मनसाऽचलेन\
+> भक्त्या युक्तो योगबलेन चैव ।\
+> भ्रुवोर्मध्ये प्राणमावेश्य सम्यक्\
 > स तं परं पुरुषमुपैति दिव्यम् ॥१०॥
 
-> prayāṇa-kāle manasā'calena
-> bhaktyā yukto yoga-balena caiva
-> bhruvor madhye prāṇam āveśya samyak
+> prayāṇa-kāle manasā'calena\
+> bhaktyā yukto yoga-balena caiva\
+> bhruvor madhye prāṇam āveśya samyak\
 > sa taṁ paraṁ puruṣam upaiti divyam
 
 *prayāṇa-kāle*—al momento de la muerte; *manasā*—por la mente; *acalena*—sin ser desviado; *bhaktyā*—con toda devoción; *yuktaḥ*—ocupado; *yoga-balena*—por el poder del yoga místico; *ca*—también; *eva*—ciertamente; *bhruvoḥ*—entre las dos cejas; *madhye*—en; *prāṇam*—el aire vital; *āveśya*—estableciendo; *samyak*—por completo; *saḥ*—él; *tam*—aquello; *param*—trascendental; *puruṣam*—la Personalidad de Dios; *upaiti*—consigue; *divyam*—en el reino espiritual.

@@ -1,13 +1,13 @@
 ### CC Madhya 22.103
 
-> মর্ত্যো যদা ত্যক্তসমস্তকর্মা
-> নিবেদিতাত্মা বিচিকীর্ষিতো মে ।
-> তদামৃতত্বং প্রতিপদ্যমানো
+> মর্ত্যো যদা ত্যক্তসমস্তকর্মা\
+> নিবেদিতাত্মা বিচিকীর্ষিতো মে ।\
+> তদামৃতত্বং প্রতিপদ্যমানো\
 > ময়াত্মভূয়ায় চ কল্পতে বৈ ॥১০৩॥
 
-> martyo yadā tyakta-samasta-karmā
-> niveditātmā vicikīrṣito me
-> tadāmṛtatvaṁ pratipadyamāno
+> martyo yadā tyakta-samasta-karmā\
+> niveditātmā vicikīrṣito me\
+> tadāmṛtatvaṁ pratipadyamāno\
 > mayātma-bhūyāya ca kalpate vai
 
 *martyaḥ*—the living entity subjected to birth and death; *yadā*—as soon as; *tyakta*—given up; *samasta*—all; *karmā*—fruitive activities; *nivedita-ātmā*—a fully surrendered soul; *vicikīrṣitaḥ*—desired to act; *me*—by Me; *tadā*—at that time; *amṛtatvam*—immortality; *pratipadyamānaḥ*—attaining; *mayā*—with Me; *ātma-bhūyāya*—for becoming of a similar nature; *ca*—also; *kalpate*—is eligible; *vai*—certainly.

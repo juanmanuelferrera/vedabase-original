@@ -1,9 +1,9 @@
 ### CC Madhya 25.81
 
-> প্রকাশানন্দ কহে, — “তুমি সাক্ষাৎ ভগবান্ ।
+> প্রকাশানন্দ কহে, — “তুমি সাক্ষাৎ ভগবান্ ।\
 > তবু যদি কর তাঁর ‘দাস’-অভিমান ॥৮১॥
 
-> prakāśānanda kahe,-"tumi sākṣāt bhagavān
+> prakāśānanda kahe,-"tumi sākṣāt bhagavān\
 > tabu yadi kara tāṅra 'dāsa'-abhimāna
 
 *prakāśānanda kahe*—Prakāśānanda Sarasvatī replied; *tumi*—*You*; *sākṣāt*—directly; *bhagavān*—the Supreme Personality of Godhead, Kṛṣṇa; *tabu*—yet; *yadi*—if; *kara*—You pose; *tāṅra dāsa-abhimāna*—considering Yourself His servant.

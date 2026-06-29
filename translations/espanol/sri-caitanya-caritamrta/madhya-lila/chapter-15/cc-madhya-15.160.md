@@ -2,7 +2,7 @@
 
 > জগৎ তারিতে প্রভু তোমার অবতার ৷ মোর নিবেদন এক করহ অঙ্গীকার ॥১৬০॥
 
-> jagat tārite prabhu tomāra avatāra
+> jagat tārite prabhu tomāra avatāra\
 > mora nivedana eka karaha aṅgīkāra
 
 *jagat tārite*—para liberar al mundo entero; *prabhu*—mi Señor; *tomāra*—Tu; *avatāra*—encarnación; *mora*—mi; *nivedana*—petición; *eka*—una; *karaha aṅgīkāra*—por favor, acepta.

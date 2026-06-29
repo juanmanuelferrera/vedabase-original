@@ -1,9 +1,9 @@
 ### SB 5.10.14
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > एतावदनुवादपरिभाषया प्रत्युदीर्य मुनिवर उपशमशील उपरतानात्म्यनिमित्त उपभोगेनकर्मारब्धं व्यपनयन्राजयानमपि तथोवाह ॥१४॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > etāvad anuvāda-paribhāṣayā pratyudīrya muni-vara upaśama-śīla uparatānātmya-nimitta upabhogena karmārabdhaṁ vyapanayan rāja-yānam api tathovāha.
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī continuó hablando; *etāvat*—tanto; *anuvāda-paribhāṣayā*—repitiendo y explicando las palabras que el rey le había dicho antes; *pratyudīrya*—respondiéndolas una tras otra; *muni-varaḥ*—el gran sabio Jaḍa Bharata; *upaśama-śīlaḥ*—cuyo carácter era pacífico y sereno; *uparata*—cesó; *anātmya*—cosas no relacionadas con el alma; *nimittaḥ*—cuya causa (la ignorancia) para identificarse con las cosas no relacionadas con el alma; *upabhogena*—aceptando las consecuencias de su *karma*; *karma-ārabdham*—la reacción que ahora obtenía como resultado; *vyapanayan*—al terminar; *rāja-yānam*—el palanquín del rey; *api*—de nuevo; *tathā*—como antes; *uvāha*—continuó llevando.

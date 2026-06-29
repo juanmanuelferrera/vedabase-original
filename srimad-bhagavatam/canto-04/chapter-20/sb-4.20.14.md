@@ -1,11 +1,11 @@
 ### SB 4.20.14
 
-> श्रेयः प्रजापालनमेव राज्ञो यत्साम्पराये सुकृतात्षष्ठमंशम् ।
+> श्रेयः प्रजापालनमेव राज्ञो यत्साम्पराये सुकृतात्षष्ठमंशम् ।\
 > हर्तान्यथा हृतपुण्यः प्रजानामरक्षिता करहारोऽघमत्ति ॥१४॥
 
-> śreyaḥ prajā-pālanam eva rājño
-> yat sāmparāye sukṛtāt ṣaṣṭham aṁśam
-> hartānyathā hṛta-puṇyaḥ prajānām
+> śreyaḥ prajā-pālanam eva rājño\
+> yat sāmparāye sukṛtāt ṣaṣṭham aṁśam\
+> hartānyathā hṛta-puṇyaḥ prajānām\
 > arakṣitā kara-hāro 'gham atti
 
 *śreyaḥ*—auspicious; *prajā-pālanam*—ruling over the general mass of people; *eva*—certainly; *rājñaḥ*—for the king; *yat*—because; *sāmparāye*—in the next birth; *su-kṛtāt*—from the pious activities; *ṣaṣṭham aṁśam*—one-sixth part; *hartā*—collector; *anyathā*—otherwise; *hṛta-puṇyaḥ*—being bereft of the results of pious activities; *prajānām*—of the citizens; *arakṣitā*—one who does not protect; *kara-hāraḥ*—tax collector; *agham*—sin; *atti*—receives or suffers.

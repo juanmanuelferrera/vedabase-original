@@ -1,11 +1,11 @@
 ### SB 4.6.27
 
-> तारहेममहारत्न विमानशतसङ्कुलाम् ।
+> तारहेममहारत्न विमानशतसङ्कुलाम् ।\
 > जुष्टां पुण्यजनस्त्रीभिर्यथा खं सतडिद्घनम् ॥२७॥
 
-> tāra-hema-mahāratna-
-> vimāna-śata-saṅkulām
-> juṣṭāṁ puṇyajana-strībhir
+> tāra-hema-mahāratna-\
+> vimāna-śata-saṅkulām\
+> juṣṭāṁ puṇyajana-strībhir\
 > yathā khaṁ sataḍid-ghanam
 
 *tāra-hema*—of pearls and gold; *mahā-ratna*—valuable jewels; *vimāna*—of airplanes; *śata*—with hundreds; *saṅkulām*—crowded; *juṣṭām*—occupied, enjoyed; *puṇyajana-strībhiḥ*—by the wives of the Yakṣas; *yathā*—as; *kham*—the sky; *sa-taḍit-ghanam*—with the lightning and the clouds.

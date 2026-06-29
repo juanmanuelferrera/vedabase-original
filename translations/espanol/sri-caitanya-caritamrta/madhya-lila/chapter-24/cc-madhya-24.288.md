@@ -1,10 +1,10 @@
 ### CC Madhya 24.288
 
-> জাত-অজাত-রতিভেদে সাধক দুই ভেদ  ।
+> জাত-অজাত-রতিভেদে সাধক দুই ভেদ  ।\
 > বিধি-রাগ-মার্গে চারি চারি — অষ্ট ভেদ ॥২৮৮॥
 
-> jāta-ajāta-rati-bhede sādhaka dui bheda
-> vidhi-rāga-mārge cāri cāri--aṣṭa bheda
+> jāta-ajāta-rati-bhede sādhaka dui bheda\
+> vidhi-rāga-mārge cāri cāri--aṣṭa bheda\
 > SYNONYMS
 
 *jāta-ajāta-rati-bhede*—por la distinción entre amor maduro y amor inmaduro; *sādhaka dui bheda*—aquellos que practican son de dos variedades; *vidhi*—devoción regulativa; *rāga*—devoción espontánea; *mārge*—en ambos senderos; *cāri cāri*—hay cuatro variedades diferentes; *aṣṭa bheda*—un total de ocho clases.

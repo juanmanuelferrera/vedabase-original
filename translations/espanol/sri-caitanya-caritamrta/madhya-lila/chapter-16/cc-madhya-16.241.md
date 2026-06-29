@@ -1,9 +1,9 @@
 ### CC Madhya 16.241
 
-> সে ছল সেকালে কৃষ্ণ স্ফুরাবে তোমারে ।
+> সে ছল সেকালে কৃষ্ণ স্ফুরাবে তোমারে ।\
 > কৃষ্ণকৃপা যাঁরে, তারে কে রাখিতে পারে ।।” ॥ ২৪১ ॥
 
-> se chala se-kāle kṛṣṇa sphurābe tomāre
+> se chala se-kāle kṛṣṇa sphurābe tomāre\
 > kṛṣṇa-kṛpā yāṅre, tāre ke rākhite pāre"
 
 *se chala*—esa estratagema; *se-kāle*—en ese momento; *kṛṣṇa*—el Señor Kṛṣṇa; *sphurābe*—revelará; *tomāre*—a ti; *kṛṣṇa-kṛpā*—la misericordia de Kṛṣṇa; *yāṅre*—sobre quien; *tāre*—a él; *ke*—quién; *rākhite*—retener; *pāre*—puede.

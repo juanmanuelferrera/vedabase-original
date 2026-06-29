@@ -1,9 +1,9 @@
 ### CC Madhya 18.3
 
-> এইমত মহাপ্রভু নাচিতে নাচিতে ।
+> এইমত মহাপ্রভু নাচিতে নাচিতে ।\
 > ‘আরিট্’-গ্রামে আসি’ ‘বাহ্য’ হৈল আচম্বিতে ॥৩॥
 
-> ei-mata mahāprabhu nācite nācite
+> ei-mata mahāprabhu nācite nācite\
 > 'āriṭ'-grāme āsi' 'bāhya' haila ācambite
 
 *ei-mata*—in this way; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *nācite nācite*—dancing and dancing; *āriṭ-grāme*—in the village known as Āriṭ-grāma; *āsi*—coming; *bāhya*—sense perception; *haila*—there was; *ācambite*—suddenly.

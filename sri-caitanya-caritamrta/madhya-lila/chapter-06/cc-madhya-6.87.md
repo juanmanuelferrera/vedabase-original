@@ -1,9 +1,9 @@
 ### CC Madhya 6.87
 
-> তোমার নাহিক দোষ, শাস্ত্রে এই কহে ।
+> তোমার নাহিক দোষ, শাস্ত্রে এই কহে ।\
 > পাণ্ডিত্যাদ্যে ঈশ্বরতত্ত্ব-জ্ঞান কভু নহে ।।’ ॥ ৮৭ ॥
 
-> tomāra nāhika doṣa, śāstre ei kahe
+> tomāra nāhika doṣa, śāstre ei kahe\
 > pāṇḍityādye īśvara-tattva-jñāna kabhu nahe'
 
 *tomāra*—your; *nāhika*—there is not; *doṣa*—fault; *śāstre*—the scriptures; *ei*—this; *kahe*—mention; *pāṇḍitya-ādye*—simply by scholarship, etc.; *īśvara-tattva-jñāna*—knowledge of the principles of the Supreme Personality of Godhead; *kabhu*—ever; *nahe*—there is not.

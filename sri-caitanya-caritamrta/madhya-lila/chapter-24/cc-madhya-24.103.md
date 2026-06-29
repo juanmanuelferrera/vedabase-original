@@ -1,13 +1,13 @@
 ### CC Madhya 24.103
 
-> সত্যং দিশত্যর্থিতমর্থিতো নৃণাং
-> নৈবার্থদো যত্ পুনরর্থিতা যতঃ ।
-> স্বয়ং বিধত্তে ভজতামনিচ্ছতা-
+> সত্যং দিশত্যর্থিতমর্থিতো নৃণাং\
+> নৈবার্থদো যত্ পুনরর্থিতা যতঃ ।\
+> স্বয়ং বিধত্তে ভজতামনিচ্ছতা-\
 > মিচ্ছাপিধানং নিজপাদপল্লবম্ ॥১০৩॥
 
-> satyaṁ diśaty arthitam arthito nṛṇāṁ
-> naivārthado yat punar arthitā yataḥ
-> svayaṁ vidhatte bhajatām anicchatām
+> satyaṁ diśaty arthitam arthito nṛṇāṁ\
+> naivārthado yat punar arthitā yataḥ\
+> svayaṁ vidhatte bhajatām anicchatām\
 > icchā-pidhānaṁ nija-pāda-pallavam
 
 *satyam*—it is true; *diśati*—He awards; *arthitam*—that which is desired; *arthitaḥ*—being requested; *nṛṇām*—by human beings; *na*—not; *eva*—certainly; *artha-daḥ*—giving desired things; *yat*—which; *punaḥ*—again; *arthitā*—request; *yataḥ*—from which; *svayam*—Himself; *vidhatte*—He gives; *bhajatām*—of those engaged in devotional service; *anicchatām*—even though not desiring; *icchā-pidhānam*—covering all other desires; *nija-pāda-pallavam*—the shelter of His own lotus feet.

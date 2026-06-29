@@ -1,9 +1,9 @@
 ### CC Antya 4.152
 
-> সহজে নীচ-জাতি মুঞি, দুষ্ট, ‘পাপাশয়’ ।
+> সহজে নীচ-জাতি মুঞি, দুষ্ট, ‘পাপাশয়’ ।\
 > মোরে তুমি ছুঁইলে মোর অপরাধ হয় ॥১৫২॥
 
-> sahaje nīca-jāti muñi, duṣṭa, 'pāpāśaya'
+> sahaje nīca-jāti muñi, duṣṭa, 'pāpāśaya'\
 > more tumi chuṅile mora aparādha haya
 
 *sahaje*—by nature; *nīca-jāti*—lowborn; *muñi*—I; *duṣṭa*—sinful; *pāpa-āśaya*—reservoir of sinful activities; *more*—me; *tumi chuṅile*—if You touch; *mora*—my; *aparādha haya*—there is offense.

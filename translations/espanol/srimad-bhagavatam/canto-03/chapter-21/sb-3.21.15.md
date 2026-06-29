@@ -1,11 +1,11 @@
 ### SB 3.21.15
 
-> तथा स चाहं परिवोढुकामः समानशीलां गृहमेधधेनुम् ।
+> तथा स चाहं परिवोढुकामः समानशीलां गृहमेधधेनुम् ।\
 > उपेयिवान्मूलमशेषमूलं दुराशयः कामदुघाङ्घ्रिपस्य ॥१५॥
 
-> tathā sa cāhaṁ parivoḍhu-kāmaḥ
-> samāna-śīlāṁ gṛhamedha-dhenum
-> upeyivān mūlam aśeṣa-mūlaṁ
+> tathā sa cāhaṁ parivoḍhu-kāmaḥ\
+> samāna-śīlāṁ gṛhamedha-dhenum\
+> upeyivān mūlam aśeṣa-mūlaṁ\
 > durāśayaḥ kāma-dughāṅghripasya
 
 *tathā*—similarmente; *saḥ*—yo mismo; *ca*—también; *aham*—yo; *parivoḍhu-kāmaḥ*—deseando casarme; *samāna-śīlām*—con una muchacha de carácter parecido; *gṛha-medha*—en la vida de casado; *dhenum*—una vaca de la abundancia; *upeyivān*—he acudido; *mūlam*—a la raíz (pies de loto); *aśeṣa*—de todo; *mūlam*—la fuente; *durāśayaḥ*—con deseos de disfrute; *kāma-dugha*—que complace todos los deseos; *aṅghripasya*—(de Ti) que eres el árbol.

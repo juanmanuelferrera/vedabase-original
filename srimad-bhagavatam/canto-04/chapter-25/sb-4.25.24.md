@@ -1,11 +1,11 @@
 ### SB 4.25.24
 
-> स्तनौ व्यञ्जितकैशोरौ समवृत्तौ निरन्तरौ ।
+> स्तनौ व्यञ्जितकैशोरौ समवृत्तौ निरन्तरौ ।\
 > वस्त्रान्तेन निगूहन्तीं व्रीडया गजगामिनीम् ॥२४॥
 
-> stanau vyañjita-kaiśorau
-> sama-vṛttau nirantarau
-> vastrāntena nigūhantīṁ
+> stanau vyañjita-kaiśorau\
+> sama-vṛttau nirantarau\
+> vastrāntena nigūhantīṁ\
 > vrīḍayā gaja-gāminīm
 
 *stanau*—breasts; *vyañjita*—indicating; *kaiśorau*—new youth; *sama-vṛttau*—equally round; *nirantarau*—fixed close, side by side; *vastra-antena*—by the end of the *sārī*; *nigūhantīm*—trying to cover; *vrīḍayā*—out of shyness; *gaja-gāminīm*—walking just like a great elephant.

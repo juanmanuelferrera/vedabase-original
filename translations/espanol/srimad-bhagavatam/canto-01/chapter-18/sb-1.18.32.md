@@ -1,11 +1,11 @@
 ### SB 1.18.32
 
-> तस्य पुत्रोऽतितेजस्वी विहरन्बालकोऽर्भकैः ।
+> तस्य पुत्रोऽतितेजस्वी विहरन्बालकोऽर्भकैः ।\
 > राज्ञाघं प्रापितं तातं श्रुत्वा तत्रेदमब्रवीत् ॥३२॥
 
-> tasya putro 'titejasvī
-> viharan bālako 'rbhakaiḥ
-> rājñāghaṁ prāpitaṁ tātaṁ
+> tasya putro 'titejasvī\
+> viharan bālako 'rbhakaiḥ\
+> rājñāghaṁ prāpitaṁ tātaṁ\
 > śrutvā tatredam abravīt
 
 *tasya*—su (del sabio); *putraḥ*—hijo; *ati*—extremadamente; *tejasvī*—poderoso; *viharan*—mientras jugaba; *bālakaḥ*—con niños; *arbhakaiḥ*—que eran todos pueriles; *rājñā*—por el rey; *agham*—aflicción; *prāpitam*—hizo tener; *tātam*—el padre; *śrutvā*—al oír; *tatra*—en ese preciso lugar; *idam*—esto; *abravīt*—habló.

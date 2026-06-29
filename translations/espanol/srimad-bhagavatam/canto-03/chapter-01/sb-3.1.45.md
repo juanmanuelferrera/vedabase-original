@@ -1,11 +1,11 @@
 ### SB 3.1.45
 
-> तस्य प्रपन्नाखिललोकपानामवस्थितानामनुशासने स्वे ।
+> तस्य प्रपन्नाखिललोकपानामवस्थितानामनुशासने स्वे ।\
 > अर्थाय जातस्य यदुष्वजस्य वार्तां सखे कीर्तय तीर्थकीर्तेः ॥४५॥
 
-> tasya prapannākhila-lokapānām
-> avasthitānām anuśāsane sve
-> arthāya jātasya yaduṣv ajasya
+> tasya prapannākhila-lokapānām\
+> avasthitānām anuśāsane sve\
+> arthāya jātasya yaduṣv ajasya\
 > vārtāṁ sakhe kīrtaya tīrtha-kīrteḥ
 
 *tasya*—Sus; *prapanna*—entregados; *akhila-loka-pānām*—todos los gobernadores de todo el universo; *avasthitānām*—situados en; *anuśāsane*—bajo el control de; *sve*—propio ser; *arthāya*—en provecho de; *jātasya*—de los nacidos; *yaduṣu*—en la familia de los Yadus; *ajasya*—del innaciente; *vārtām*—temas; *sakhe*—¡oh, amigo mío!; *kīrtaya*—por favor, narra; *tīrtha-kīrteḥ*—del Señor, cuyas glorias se cantan en los lugares de peregrinaje.

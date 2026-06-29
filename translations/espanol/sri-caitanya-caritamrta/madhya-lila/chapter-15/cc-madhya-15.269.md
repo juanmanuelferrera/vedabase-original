@@ -1,11 +1,11 @@
 ### CC Madhya 15.269
 
-> মহতা হি প্রযত্নেন হস্ত্যশ্বরথপত্তিভিঃ ।
+> মহতা হি প্রযত্নেন হস্ত্যশ্বরথপত্তিভিঃ ।\
 > অস্মাভির্যদনুষ্ঠেয়ং গন্ধর্বৈস্তদনুষ্ঠিতম্ ॥২৬৯॥
 
-> mahatā hi prayatnena
-> hasty-aśva-ratha-pattibhiḥ
-> asmābhir yad anuṣṭheyaṁ
+> mahatā hi prayatnena\
+> hasty-aśva-ratha-pattibhiḥ\
+> asmābhir yad anuṣṭheyaṁ\
 > gandharvais tad anuṣṭhitam
 
 *mahatā*—muy grande; *hi*—ciertamente; *prayatnena*—por esfuerzo; *hasti*—elefantes; *aśva*—caballos; *ratha*—cuadrigas; *pattibhiḥ*—y por soldados de infantería; *asmābhiḥ*—por nosotros mismos; *yat*—lo que fuera; *anuṣṭheyaṁ*—que había que organizar; *gandharvaiḥ*—por los Gandharvas; *tat*—eso; *anuṣṭhitam*—realizado.

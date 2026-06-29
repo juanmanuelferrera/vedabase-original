@@ -1,9 +1,9 @@
 ### CC Madhya 15.84
 
-> এত বলি’ ফল ফেলে প্রাচীর লঙ্ঘিয়া ।
+> এত বলি’ ফল ফেলে প্রাচীর লঙ্ঘিয়া ।\
 > ঐছে পবিত্র প্রেম-সেবা জগৎ জিনিয়া ॥৮৪॥
 
-> eta bali' phala phele prācīra laṅghiyā
+> eta bali' phala phele prācīra laṅghiyā\
 > aiche pavitra prema-sevā jagat jiniyā
 
 *eta bali'*—saying this; *phala phele*—throws away the fruits; *prācīra laṅghiyā*—across the boundary wall; *aiche*—such; *pavitra*—pure; *prema-sevā*—service in love; *jagat jiniyā*—conquering all the world.

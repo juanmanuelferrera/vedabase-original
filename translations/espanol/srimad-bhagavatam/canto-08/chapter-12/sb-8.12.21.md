@@ -1,11 +1,11 @@
 ### SB 8.12.21
 
-> श्लथद्दुकूलं कबरीं च विच्युतां सन्नह्यतीं वामकरेण वल्गुना
+> श्लथद्दुकूलं कबरीं च विच्युतां सन्नह्यतीं वामकरेण वल्गुना\
 > विनिघ्नतीमन्यकरेण कन्दुकं विमोहयन्तीं जगदात्ममायया ॥२१॥
 
-> ślathad dukūlaṁ kabarīṁ ca vicyutāṁ
-> sannahyatīṁ vāma-kareṇa valgunā
-> vinighnatīm anya-kareṇa kandukaṁ
+> ślathad dukūlaṁ kabarīṁ ca vicyutāṁ\
+> sannahyatīṁ vāma-kareṇa valgunā\
+> vinighnatīm anya-kareṇa kandukaṁ\
 > vimohayantīṁ jagad-ātma-māyayā
 
 *ślathat*—resbalar o aflojarse; *dukūlam*—el *sārī*; *kabarīm ca*—y los cabellos; *vicyutām*—libres y sueltos; *sannahyatīm*—tratando de recogerse; *vāma-kareṇa*—con la mano izquierda; *valgunā*—muy hermosa y atractiva; *vinighnatīm*—botando; *anya-kareṇa*—con la mano derecha; *kandukam*—la pelota; *vimohayantīm*—cautivando de esa forma a todos; *jagat*—el mundo entero; *ātma-māyayā*—por la potencia espiritual, la energía interna.

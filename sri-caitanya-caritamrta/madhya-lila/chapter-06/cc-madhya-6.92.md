@@ -1,9 +1,9 @@
 ### CC Madhya 6.92
 
-> দেখিলে না দেখে তারে বহির্মুখ জন ।”
+> দেখিলে না দেখে তারে বহির্মুখ জন ।”\
 > শুনি’ হাসি’ সার্বভৌম বলিল বচন ॥৯২॥
 
-> dekhile nā dekhe tāre bahirmukha jana"
+> dekhile nā dekhe tāre bahirmukha jana"\
 > śuni' hāsi' sārvabhauma balila vacana
 
 *dekhile*—even after seeing; *nā*—not; *dekhe*—sees; *tāre*—the Supreme Person; *bahiḥ-mukha jana*—a person influenced by the external energy; *śuni'*—hearing this; *hāsi'*—smiling; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *balila*—said; *vacana*—the words.

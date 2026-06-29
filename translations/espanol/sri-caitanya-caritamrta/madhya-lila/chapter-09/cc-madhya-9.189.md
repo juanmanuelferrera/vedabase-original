@@ -1,9 +1,9 @@
 ### CC Madhya 9.189
 
-> এ শরীর ধরিবারে কভু না যুয়ায় ৷
+> এ শরীর ধরিবারে কভু না যুয়ায় ৷\
 > এই দুঃখে জ্বলে দেহ, প্রাণ নাহি যায় ৷৷ ১৮৯ ৷৷ ॥১৮৯॥
 
-> e śarīra dharibāre kabhu nā yuyāya
+> e śarīra dharibāre kabhu nā yuyāya\
 > ei duḥkhe jvale deha, prāṇa nāhi yāya
 
 *e śarīra*—este cuerpo; *dharibāre*—mantener; *kabhu*—jamás; *nā*—no; *yuyāya*—merece; *ei duḥkhe*—en esta infelicidad; *jvale deha*—mi cuerpo arde; *prāṇa*—mi vida; *nāhi yāya*—no se va.

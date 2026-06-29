@@ -1,11 +1,11 @@
 ### SB 3.33.37
 
-> य इदमनुशृणोति योऽभिधत्ते कपिलमुनेर्मतमात्मयोगगुह्यम् ।
+> य इदमनुशृणोति योऽभिधत्ते कपिलमुनेर्मतमात्मयोगगुह्यम् ।\
 > भगवति कृतधीः सुपर्णकेतावुपलभते भगवत्पदारविन्दम् ॥३७॥
 
-> ya idam anuśṛṇoti yo 'bhidhatte
-> kapila-muner matam ātma-yoga-guhyam
-> bhagavati kṛta-dhīḥ suparṇa-ketāv
+> ya idam anuśṛṇoti yo 'bhidhatte\
+> kapila-muner matam ātma-yoga-guhyam\
+> bhagavati kṛta-dhīḥ suparṇa-ketāv\
 > upalabhate bhagavat-padāravindam
 
 *yaḥ*—whoever; *idam*—this; *anuśṛṇoti*—hears; *yaḥ*—whoever; *abhidhatte*—expounds; *kapila-muneḥ*—of the sage Kapila; *matam*—instructions; *ātma-yoga*—based on meditation on the Lord; *guhyam*—confidential; *bhagavati*—on the Supreme Personality of Godhead; *kṛta-dhīḥ*—having fixed his mind; *suparṇa-ketau*—who has a banner of Garuḍa; *upalabhate*—achieves; *bhagavat*—of the Supreme Lord; *pada-aravindam*—the lotus feet.

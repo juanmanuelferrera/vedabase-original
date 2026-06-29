@@ -1,9 +1,9 @@
 ### CC Madhya 5.19
 
-> পুত্রেও পিতার ঐছে না করে সেবন ।
+> পুত্রেও পিতার ঐছে না করে সেবন ।\
 > তোমার প্ৰসাদে আমি না পাইলাম শ্রম ॥১৯॥
 
-> putreo pitāra aiche nā kare sevana
+> putreo pitāra aiche nā kare sevana\
 > tomāra prasāde āmi nā pāilāma śrama
 
 *putreo*—even my own son; *pitāra*—of the father; *aiche*—in this way; *nā*—not; *kare*—renders; *sevana*—service; *tomāra*—your; *prasāde*—by the mercy; *āmi*—I; *nā*—not; *pāilāma*—have gotten; *śrama*—fatigue.

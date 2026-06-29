@@ -1,11 +1,11 @@
 ### SB 4.17.2
 
-> ब्राह्मणप्रमुखान्वर्णान्भृत्यामात्यपुरोधसः ।
+> ब्राह्मणप्रमुखान्वर्णान्भृत्यामात्यपुरोधसः ।\
 > पौरान्जानपदान्श्रेणीः प्रकृतीः समपूजयत् ॥२॥
 
-> brāhmaṇa-pramukhān varṇān
-> bhṛtyāmātya-purodhasaḥ
-> paurāñ jāna-padān śreṇīḥ
+> brāhmaṇa-pramukhān varṇān\
+> bhṛtyāmātya-purodhasaḥ\
+> paurāñ jāna-padān śreṇīḥ\
 > prakṛtīḥ samapūjayat
 
 *brāhmaṇa-pramukhān*—unto the leaders of the *brāhmaṇa* community; *varṇān*—to the other castes; *bhṛtya*—servants; *amātya*—ministers; *purodhasaḥ*—to the priests; *paurān*—to the citizens; *jāna-padān*—to his countrymen; *śreṇīḥ*—to different communities; *prakṛtīḥ*—to the admirers; *samapūjayat*—he gave proper respects.

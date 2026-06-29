@@ -1,11 +1,11 @@
 ### SB 6.15.8
 
-> देहदेहिविभागोऽयमविवेककृतः पुरा
+> देहदेहिविभागोऽयमविवेककृतः पुरा\
 > जातिव्यक्तिविभागोऽयं यथा वस्तुनि कल्पितः ॥८॥
 
-> deha-dehi-vibhāgo 'yam
-> aviveka-kṛtaḥ purā
-> jāti-vyakti-vibhāgo 'yaṁ
+> deha-dehi-vibhāgo 'yam\
+> aviveka-kṛtaḥ purā\
+> jāti-vyakti-vibhāgo 'yaṁ\
 > yathā vastuni kalpitaḥ
 
 *deha*—de este cuerpo; *dehi*—y del propietario del cuerpo; *vibhāgaḥ*—la división; *ayam*—esta; *aviveka*—de la ignorancia; *kṛtaḥ*—hecha; *purā*—desde tiempo inmemorial; *jāti*—de clase o casta; *vyakti*—y del individuo; *vibhāgaḥ*—división; *ayam*—esta; *yathā*—tal y como; *vastuni*—en el objeto original; *kalpitaḥ*—imaginado.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.250
 
-> ভট্টাচার্য লাঠি লঞা মারিতে ধাইল ।
+> ভট্টাচার্য লাঠি লঞা মারিতে ধাইল ।\
 > পলাইল অমোঘ, তার লাগ না পাইল ॥২৫০॥
 
-> bhaṭṭācārya lāṭhi lañā mārite dhāila
+> bhaṭṭācārya lāṭhi lañā mārite dhāila\
 > palāila amogha, tāra lāga nā pāila
 
 *bhaṭṭācārya*—Sārvabhauma Bhaṭṭācārya; *lāṭhi lañā*—taking a stick; *mārite*—to strike; *dhāila*—ran; *palāila*—fled; *amogha*—Amogha; *tāra*—him; *lāga nā pāila*—could not catch.

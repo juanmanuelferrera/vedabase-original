@@ -1,11 +1,11 @@
 ### SB 9.24.49
 
-> रोचनायामतो जाता हस्तहेमाङ्गदादयः
+> रोचनायामतो जाता हस्तहेमाङ्गदादयः\
 > इलायामुरुवल्कादीन्यदुमुख्यानजीजनत ॥४९॥
 
-> rocanāyām ato jātā
-> hasta-hemāṅgadādayaḥ
-> ilāyām uruvalkādīn
+> rocanāyām ato jātā\
+> hasta-hemāṅgadādayaḥ\
+> ilāyām uruvalkādīn\
 > yadu-mukhyān ajījanat
 
 *rocanāyām*—en otra esposa, llamada Rocanā; *ataḥ*—a continuación; *jātāḥ*—nacieron; *hasta*—Hasta; *hemāṅgada*—Hemāṅgada; *ādayaḥ*—y otros; *ilāyām*—en otra esposa, llamada Ilā; *uruvalka-ādīn*—Uruvalka y otros hijos; *yadu-mukhyān*—principales personalidades en la dinastía Yadu; *ajījanat*—engendró.

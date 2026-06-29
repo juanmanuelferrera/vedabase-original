@@ -1,13 +1,13 @@
 ### SB 5.4.6
 
-> यस्य ह पाण्डवेय श्लोकावुदाहरन्ति
-> को नु तत्कर्म राजर्षेर्नाभेरन्वाचरेत्पुमान
+> यस्य ह पाण्डवेय श्लोकावुदाहरन्ति\
+> को नु तत्कर्म राजर्षेर्नाभेरन्वाचरेत्पुमान\
 > अपत्यतामगाद्यस्य हरिः शुद्धेन कर्मणा ॥६॥
 
-> yasya ha pāṇḍaveya ślokāv udāharanti—
-> ko nu tat karma rājarṣer
-> nābher anv ācaret pumān
-> apatyatām agād yasya
+> yasya ha pāṇḍaveya ślokāv udāharanti—\
+> ko nu tat karma rājarṣer\
+> nābher anv ācaret pumān\
+> apatyatām agād yasya\
 > hariḥ śuddhena karmaṇā
 
 *yasya*—of whom; *ha*—indeed; *pāṇḍaveya*—O Mahārāja Parīkṣit; *ślokau*—two verses; *udāharanti*—recite; *kaḥ*—who; *nu*—then; *tat*—that; *karma*—work; *rāja-ṛṣeḥ*—of the pious King; *nābheḥ*—Nābhi; *anu*—following; *ācaret*—could execute; *pumān*—a man; *apatyatām*—sonhood; *agāt*—accepted; *yasya*—whose; *hariḥ*—the Supreme Personality of Godhead; *śuddhena*—pure, executed in devotional service; *karmaṇā*—by activities.

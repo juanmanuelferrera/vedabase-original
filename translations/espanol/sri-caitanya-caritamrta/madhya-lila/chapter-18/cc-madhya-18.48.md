@@ -1,9 +1,9 @@
 ### CC Madhya 18.48
 
-> তবে রূপ গোসাঞি সব নিজগণ লঞা ।
+> তবে রূপ গোসাঞি সব নিজগণ লঞা ।\
 > একমাস দরশন কৈলা মথুরায় রহিয়া ॥৪৮॥
 
-> tabe rūpa gosāñi saba nija-gaṇa lañā
+> tabe rūpa gosāñi saba nija-gaṇa lañā\
 > eka-māsa daraśana kailā mathurāya rahiyā
 
 *tabe*—entonces; *rūpa gosāñi*—Śrīla Rūpa Gosvāmī; *saba*—todos; *nija-gaṇa lañā*—llevando a sus asociados consigo; *eka-māsa*—durante un mes; *daraśana kailā*—vio a la Deidad; *mathurāya rahiyā*—permaneciendo en la ciudad de Mathurā.

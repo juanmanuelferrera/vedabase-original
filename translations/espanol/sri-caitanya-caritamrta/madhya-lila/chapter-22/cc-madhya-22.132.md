@@ -2,7 +2,7 @@
 
 > নামসংকীর্তনং শ্রীমন্মথুরামণ্ডলে স্থিতিঃ ॥১৩২॥
 
-> nāma-saṅkīrtanaṁ śrīman-
+> nāma-saṅkīrtanaṁ śrīman-\
 > mathurā-maṇḍale sthitiḥ
 
 *nāma-saṅkīrtanam*—cantar el Hare Kṛṣṇa mahā-mantra; *śrīman-mathurā-maṇḍale*—en Mathurā, donde Kṛṣṇa realiza específicamente Sus pasatiempos; *sthitiḥ*—residencia.

@@ -1,13 +1,13 @@
 ### SB 7.5.1
 
-> श्रीनारद उवाच
-> पौरोहित्याय भगवान्वृतः काव्यः किलासुरैः
+> श्रीनारद उवाच\
+> पौरोहित्याय भगवान्वृतः काव्यः किलासुरैः\
 > षण्डामर्कौ सुतौ तस्य दैत्यराजगृहान्तिके ॥१॥
 
-> śrī-nārada uvāca
-> paurohityāya bhagavān
-> vṛtaḥ kāvyaḥ kilāsuraiḥ
-> ṣaṇḍāmarkau sutau tasya
+> śrī-nārada uvāca\
+> paurohityāya bhagavān\
+> vṛtaḥ kāvyaḥ kilāsuraiḥ\
+> ṣaṇḍāmarkau sutau tasya\
 > daitya-rāja-gṛhāntike
 
 *śrī-nāradaḥ uvāca*—the great saint Nārada said; *paurohityāya*—to work as priest; *bhagavān*—the most powerful; *vṛtaḥ*—chosen; *kāvyaḥ*—Śukrācārya; *kila*—indeed; *asuraiḥ*—by the demons; *ṣaṇḍa-amarkau*—Ṣaṇḍa and Amarka; *sutau*—sons; *tasya*—of him; *daitya-rāja*—of the King of the demons, Hiraṇyakaśipu; *gṛha-antike*—near the residence.

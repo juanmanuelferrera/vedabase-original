@@ -1,9 +1,9 @@
 ### CC Madhya 17.211
 
-> শুক-মুখে শুনি’ তবে কৃষ্ণের বর্ণন ।
+> শুক-মুখে শুনি’ তবে কৃষ্ণের বর্ণন ।\
 > শারিকা পড়য়ে তবে রাধিকা-বর্ণন ॥২১১॥
 
-> śuka-mukhe śuni' tabe kṛṣṇera varṇana
+> śuka-mukhe śuni' tabe kṛṣṇera varṇana\
 > śārikā paḍaye tabe rādhikā-varṇana
 
 *śuka-mukhe*—de la boca del loro macho; *śuni'*—al oír; *kṛṣṇera varṇana*—una descripción del Señor Kṛṣṇa; *śārikā*—la lora; *paḍaye*—recita; *tabe*—entonces; *rādhikā-varṇana*—una descripción de Śrīmatī Rādhārāṇī.

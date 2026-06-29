@@ -1,9 +1,9 @@
 ### CC Adi 9.53
 
-> যে যে পূর্বে নিন্দা কৈল, বলি’ মাতোয়াল ।
+> যে যে পূর্বে নিন্দা কৈল, বলি’ মাতোয়াল ।\
 > সেহো ফল খায়, নাচে, বলে — ভাল, ভাল ॥৫৩॥
 
-> ye ye pūrve nindā kaila, bali' mātoyāla
+> ye ye pūrve nindā kaila, bali' mātoyāla\
 > seho phala khāya, nāce, bale--bhāla bhāla
 
 *ye ye*—personas que; *pūrve*—antes; *nindā*—blasfemia; *kaila*—hicieron; *bali'*—diciendo; *mātoyāla*—borracho; *seho*—tales personas; *phala*—fruto; *khāya*—comen; *nāce*—danzan; *bale*—dicen; *bhāla bhāla*—¡muy bien, muy bien!.

@@ -1,11 +1,11 @@
 ### SB 4.12.25
 
-> सुदुर्जयं विष्णुपदं जितं त्वया यत्सूरयोऽप्राप्य विचक्षते परम् ।
+> सुदुर्जयं विष्णुपदं जितं त्वया यत्सूरयोऽप्राप्य विचक्षते परम् ।\
 > आतिष्ठ तच्चन्द्रदिवाकरादयो ग्रहर्क्षताराः परियन्ति दक्षिणम् ॥२५॥
 
-> sudurjayaṁ viṣṇu-padaṁ jitaṁ tvayā
-> yat sūrayo 'prāpya vicakṣate param
-> ātiṣṭha tac candra-divākarādayo
+> sudurjayaṁ viṣṇu-padaṁ jitaṁ tvayā\
+> yat sūrayo 'prāpya vicakṣate param\
+> ātiṣṭha tac candra-divākarādayo\
 > graharkṣa-tārāḥ pariyanti dakṣiṇam
 
 *sudurjayam*—very difficult to achieve; *viṣṇu-padam*—planet known as Vaikuṇṭhaloka or Viṣṇuloka; *jitam*—conquered; *tvayā*—by you; *yat*—which; *sūrayaḥ*—great demigods; *aprāpya*—without achieving; *vicakṣate*—simply see; *param*—supreme; *ātiṣṭha*—please come; *tat*—that; *candra*—the moon; *diva-ākara*—sun; *ādayaḥ*—and others; *graha*—the nine planets (Mercury, Venus, Earth, Mars, Jupiter, Saturn, Uranus, Neptune and Pluto); *ṛkṣa-tārāḥ*—stars; *pariyanti*—circumambulate; *dakṣiṇam*—to the right.

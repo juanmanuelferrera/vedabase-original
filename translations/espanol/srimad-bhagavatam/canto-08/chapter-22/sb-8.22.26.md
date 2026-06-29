@@ -1,11 +1,11 @@
 ### SB 8.22.26
 
-> जन्मकर्मवयोरूप विद्यैश्वर्यधनादिभिः
+> जन्मकर्मवयोरूप विद्यैश्वर्यधनादिभिः\
 > यद्यस्य न भवेत्स्तम्भस्तत्रायं मदनुग्रहः ॥२६॥
 
-> janma-karma-vayo-rūpa-
-> vidyaiśvarya-dhanādibhiḥ
-> yady asya na bhavet stambhas
+> janma-karma-vayo-rūpa-\
+> vidyaiśvarya-dhanādibhiḥ\
+> yady asya na bhavet stambhas\
 > tatrāyaṁ mad-anugrahaḥ
 
 *janma*—por nacer en una familia aristocrática; *karma*—por actividades maravillosas, piadosas; *vayaḥ*—por edad, y en especial la juventud, cuando se tiene capacidad para muchas cosas; *rūpa*—por belleza personal, que atrae a todos; *vidyā*—por educación; *aiśvarya*—por opulencia; *dhana*—por riqueza; *ādibhiḥ*—y también por otras opulencias; *yadi*—si; *asya*—del poseedor; *na*—no; *bhavet*—hay; *stambhaḥ*—orgullo; *tatra*—en esa condición; *ayam*—una persona; *mat-anugrahaḥ*—debe entenderse que ha recibido Mi misericordia especial.

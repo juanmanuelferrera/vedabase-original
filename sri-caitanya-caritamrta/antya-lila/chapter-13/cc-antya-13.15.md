@@ -1,9 +1,9 @@
 ### CC Antya 13.15
 
-> সন্ন্যাসী মানুষ আমার ভূমিতে শয়ন ।
+> সন্ন্যাসী মানুষ আমার ভূমিতে শয়ন ।\
 > আমারে খাট-তূলি-বালিস মস্তক-মুণ্ডন !” ॥ ১৫ ॥
 
-> sannyāsī mānuṣa āmāra bhūmite śayana
+> sannyāsī mānuṣa āmāra bhūmite śayana\
 > āmāre khāṭa-tūli-bālisa mastaka-muṇḍana
 
 *sannyāsī mānuṣa*—a person in the renounced order of life; *āmāra*—My; *bhūmite śayana*—lying on the floor; *āmāre*—for Me; *khāṭa*—bedstead; *tūli*—quilt; *bālisa*—pillow; *mastaka-muṇḍana*—a great shame.

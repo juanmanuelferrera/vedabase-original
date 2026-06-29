@@ -1,9 +1,9 @@
 ### CC Antya 2.157
 
-> আকার না দেখি, মাত্র শুনি তার গান ।’
+> আকার না দেখি, মাত্র শুনি তার গান ।’\
 > স্বরূপ কহেন, — “এই মিথ্যা অনুমান ॥১৫৭॥
 
-> ākāra nā dekhi, mātra śuni tāra gāna'
+> ākāra nā dekhi, mātra śuni tāra gāna'\
 > svarūpa kahena,--"ei mithyā anumāna
 
 *ākāra*—forma; *nā dekhi*—no podemos ver; *mātra*—solamente; *śuni*—oímos; *tāra*—su; *gāna*—canto; *svarūpa kahena*—Svarūpa Dāmodara dijo; *ei*—esta; *mithyā*—falsa; *anumāna*—conjetura.

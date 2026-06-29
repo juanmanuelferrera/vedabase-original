@@ -1,11 +1,11 @@
 ### SB 4.28.55
 
-> स त्वं विहाय मां बन्धो गतो ग्राम्यमतिर्महीम् ।
+> स त्वं विहाय मां बन्धो गतो ग्राम्यमतिर्महीम् ।\
 > विचरन्पदमद्राक्षीः कयाचिन्निर्मितं स्त्रिया ॥५५॥
 
-> sa tvaṁ vihāya māṁ bandho
-> gato grāmya-matir mahīm
-> vicaran padam adrākṣīḥ
+> sa tvaṁ vihāya māṁ bandho\
+> gato grāmya-matir mahīm\
+> vicaran padam adrākṣīḥ\
 > kayācin nirmitaṁ striyā
 
 *saḥ*—ese cisne; *tvam*—tú misma; *vihāya*—abandonar; *mām*—a Mí; *bandho*—¡oh, amigo!; *gataḥ*—fuiste; *grāmya*—material; *matiḥ*—cuya conciencia; *mahīm*—a la Tierra; *vicaran*—viajar; *padam*—posición; *adrākṣīḥ*—has visto; *kayācit*—por alguien; *nirmitam*—fabricada; *striyā*—por una mujer.

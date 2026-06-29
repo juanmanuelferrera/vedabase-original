@@ -1,11 +1,11 @@
 ### SB 3.27.7
 
-> सर्वभूतसमत्वेन निर्वैरेणाप्रसङ्गतः ।
+> सर्वभूतसमत्वेन निर्वैरेणाप्रसङ्गतः ।\
 > ब्रह्मचर्येण मौनेन स्वधर्मेण बलीयसा ॥७॥
 
-> sarva-bhūta-samatvena
-> nirvaireṇāprasaṅgataḥ
-> brahmacaryeṇa maunena
+> sarva-bhūta-samatvena\
+> nirvaireṇāprasaṅgataḥ\
+> brahmacaryeṇa maunena\
 > sva-dharmeṇa balīyasā
 
 *sarva*—todas; *bhūta*—entidades vivientes; *samatvena*—viendo con ecuanimidad; *nirvaireṇa*—sin enemistad; *aprasaṅgataḥ*—sin lazos íntimos de unión; *brahma-caryeṇa*—por el celibato; *maunena*—por el silencio; *sva-dharmeṇa*—por la propia ocupación; *balīyasā*—por ofrecer el resultado.

@@ -1,11 +1,11 @@
 ### SB 6.5.33
 
-> सध्रीचीनं प्रतीचीनं परस्यानुपथं गताः
+> सध्रीचीनं प्रतीचीनं परस्यानुपथं गताः\
 > नाद्यापि ते निवर्तन्ते पश्चिमा यामिनीरिव ॥३३॥
 
-> sadhrīcīnaṁ pratīcīnaṁ
-> parasyānupathaṁ gatāḥ
-> nādyāpi te nivartante
+> sadhrīcīnaṁ pratīcīnaṁ\
+> parasyānupathaṁ gatāḥ\
+> nādyāpi te nivartante\
 > paścimā yāminīr iva
 
 *sadhrīcīnam*—completely correct; *pratīcīnam*—obtainable by adopting a mode of life aimed at the highest goal, devotional service; *parasya*—of the Supreme Lord; *anupatham*—the pathway; *gatāḥ*—taking to; *na*—not; *adya api*—even until today; *te*—they (the sons of Prajāpati Dakṣa); *nivartante*—have come back; *paścimāḥ*—western (those that have past); *yāminīḥ*—nights; *iva*—like.

@@ -1,9 +1,9 @@
 ### CC Adi 7.101
 
-> কৃষ্ণে ভক্তি কর — ইহায় সবার সন্তোষ ।
+> কৃষ্ণে ভক্তি কর — ইহায় সবার সন্তোষ ।\
 > বেদান্ত না শুন কেনে, তার কিবা দোষ ॥১০১॥
 
-> kṛṣṇe bhakti kara--ihāya sabāra santoṣa
+> kṛṣṇe bhakti kara--ihāya sabāra santoṣa\
 > vedānta nā śuna kene, tāra kibā doṣa
 
 *kṛṣṇe*—a Kṛṣṇa; *bhakti*—servicio devocional; *kara*—haces; *ihāya*—en este asunto; *sabāra*—de todos; *santoṣa*—hay satisfacción; *vedānta*—la filosofía del *Vedānta-sūtra*; *nā*—no; *śuna*—escuchas; *kene*—por qué; *tāra*—de la filosofía; *kibā*—cuál es; *doṣa*—la falta.

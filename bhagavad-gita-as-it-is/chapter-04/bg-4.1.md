@@ -1,13 +1,13 @@
 ### Bg 4.1
 
-> श्रीभगवानुवाच ।
-> इमं विवस्वते योगं प्रोक्तवानहमव्ययम् ।
+> श्रीभगवानुवाच ।\
+> इमं विवस्वते योगं प्रोक्तवानहमव्ययम् ।\
 > विवस्वान्मनवे प्राह मनुरिक्ष्वाकवेऽब्रवीत् ॥१॥
 
-> śrī-bhagavān uvāca
-> imaṁ vivasvate yogaṁ
-> proktavān aham avyayam
-> vivasvān manave prāha
+> śrī-bhagavān uvāca\
+> imaṁ vivasvate yogaṁ\
+> proktavān aham avyayam\
+> vivasvān manave prāha\
 > manur ikṣvākave 'bravīt
 
 *śrī bhagavān uvāca*—the Supreme Personality of Godhead said; *imam*—this; *vivasvate*—unto the sun-god; *yogam*—the science of one's relationship to the Supreme; *proktavān*—instructed; *aham*—I; *avyayam*—imperishable; *vivasvān*—Vivasvān (the sun-god's name); *manave*—unto the father of mankind (of the name Vaivasvata); *prāha*—told; *manuḥ*—the father of mankind; *ikṣvākave*—unto King Ikṣvāku; *abravīt*—said.

@@ -1,18 +1,18 @@
 ### SB 8.9.14-15
 
-> अथोपोष्य कृतस्नाना हुत्वा च हविषानलम
-> दत्त्वा गोविप्रभूतेभ्यः कृतस्वस्त्ययना द्विजैः ॥१४॥
-> यथोपजोषं वासांसि परिधायाहतानि ते
+> अथोपोष्य कृतस्नाना हुत्वा च हविषानलम\
+> दत्त्वा गोविप्रभूतेभ्यः कृतस्वस्त्ययना द्विजैः ॥१४॥\
+> यथोपजोषं वासांसि परिधायाहतानि ते\
 > कुशेषु प्राविशन्सर्वे प्रागग्रेष्वभिभूषिताः ॥१५॥
 
-> athopoṣya kṛta-snānā
-> hutvā ca haviṣānalam
-> dattvā go-vipra-bhūtebhyaḥ
+> athopoṣya kṛta-snānā\
+> hutvā ca haviṣānalam\
+> dattvā go-vipra-bhūtebhyaḥ\
 > kṛta-svastyayanā dvijaiḥ
 
-> yathopajoṣaṁ vāsāṁsi
-> paridhāyāhatāni te
-> kuśeṣu prāviśan sarve
+> yathopajoṣaṁ vāsāṁsi\
+> paridhāyāhatāni te\
+> kuśeṣu prāviśan sarve\
 > prāg-agreṣv abhibhūṣitāḥ
 
 *atha*—thereafter; *upoṣya*—observing a fast; *kṛta-snānāḥ*—performing bathing; *hutvā*—offering oblations; *ca*—also; *haviṣā*—with clarified butter; *analam*—into the fire; *dattvā*—giving in charity; *go-vipra-bhūtebhyaḥ*—unto the cows, *brāhmaṇas* and living beings in general; *kṛta-svastyayanāḥ*—performing ritualistic ceremonies; *dvijaiḥ*—as dictated by the *brāhmaṇas*; *yathā-upajoṣam*—according to one's taste; *vāsāṁsi*—garments; *paridhāya*—putting on; *āhatāni*—first-class and new; *te*—all of them; *kuśeṣu*—on seats made of *kuśa* grass; *prāviśan*—sitting on them; *sarve*—all of them; *prāk-agreṣu*—facing east; *abhibhūṣitāḥ*—properly decorated with ornaments.

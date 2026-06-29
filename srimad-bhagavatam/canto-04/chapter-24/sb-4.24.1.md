@@ -1,13 +1,13 @@
 ### SB 4.24.1
 
-> मैत्रेय उवाच
-> विजिताश्वोऽधिराजासीत्पृथुपुत्रः पृथुश्रवाः ।
+> मैत्रेय उवाच\
+> विजिताश्वोऽधिराजासीत्पृथुपुत्रः पृथुश्रवाः ।\
 > यवीयोभ्योऽददात्काष्ठा भ्रातृभ्यो भ्रातृवत्सलः ॥१॥
 
-> maitreya uvāca
-> vijitāśvo 'dhirājāsīt
-> pṛthu-putraḥ pṛthu-śravāḥ
-> yavīyobhyo 'dadāt kāṣṭhā
+> maitreya uvāca\
+> vijitāśvo 'dhirājāsīt\
+> pṛthu-putraḥ pṛthu-śravāḥ\
+> yavīyobhyo 'dadāt kāṣṭhā\
 > bhrātṛbhyo bhrātṛ-vatsalaḥ
 
 *maitreyaḥ uvāca*—Maitreya continued to speak; *vijitāśvaḥ*—of the name Vijitāśva; *adhirājā*—the emperor; *āsīt*—became; *pṛthu-putraḥ*—the son of Mahārāja Pṛthu; *pṛthu-śravāḥ*—of great activities; *yavīyobhyaḥ*—unto the younger brothers; *adadāt*—offered; *kāṣṭhāḥ*—different directions; *bhrātṛbhyaḥ*—unto the brothers; *bhrātṛ-vatsalaḥ*—very affectionate to the brothers.

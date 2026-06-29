@@ -1,9 +1,9 @@
 ### CC Adi 17.127
 
-> কেহ কীর্তন না করিহ সকল নগরে ।
+> কেহ কীর্তন না করিহ সকল নগরে ।\
 > আজি আমি ক্ষমা করি’ যাইতেছোঁ ঘরে ॥১২৭॥
 
-> keha kīrtana nā kariha sakala nagare
+> keha kīrtana nā kariha sakala nagare\
 > āji āmi kṣamā kari' yāitechoṅ ghare
 
 *keha*—anyone; *kīrtana*—chanting of the Hare Kṛṣṇa *mahā-mantra*; *nā*—do not; *kariha*—perform; *sakala nagare*—in the whole town; *āji*—today; *āmi*—I; *kṣamā kari'*—excusing; *yāitechoṅ*—am returning; *ghare*—home.

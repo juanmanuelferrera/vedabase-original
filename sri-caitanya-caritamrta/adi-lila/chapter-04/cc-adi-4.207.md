@@ -1,11 +1,11 @@
 ### CC Adi 4.207
 
-> সালোক্য-সার্ষ্টি-সারূপ্য-সামীপ্যৈকত্বমপ্যুত ।
+> সালোক্য-সার্ষ্টি-সারূপ্য-সামীপ্যৈকত্বমপ্যুত ।\
 > দীয়মানং ন গৃহ্ণন্তি বিনা মৎসেবনং জনাঃ ॥২০৭॥
 
-> sālokya-sārṣṭi-sārūpya-
-> sāmīpyaikatvam apy uta
-> dīyamānaṁ na gṛhṇanti
+> sālokya-sārṣṭi-sārūpya-\
+> sāmīpyaikatvam apy uta\
+> dīyamānaṁ na gṛhṇanti\
 > vinā mat-sevanaṁ janāḥ
 
 *sālokya*—being on the same planet as Me; *sārṣṭi*—having opulence equal to Mine; *sārūpya*—having the same form as Me; *sāmīpya*—having direct association with Me; *ekatvam*—oneness with Me; *api*—even; *uta*—or; *dīyamānam*—being given; *na*—not; *gṛhṇanti*—accept; *vinā*—without; *mat-sevanam*—My service; *janāḥ*—the devotees.

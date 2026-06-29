@@ -1,9 +1,9 @@
 ### CC Madhya 9.298
 
-> রন্ধনে নিপুণা তাঁ-সম নাহি ত্রিভুবনে ।
+> রন্ধনে নিপুণা তাঁ-সম নাহি ত্রিভুবনে ।\
 > পুত্রসম স্নেহ করেন সন্ন্যাসি-ভোজনে ॥২৯৮॥
 
-> randhane nipuṇā tāṅ-sama nāhi tribhuvane
+> randhane nipuṇā tāṅ-sama nāhi tribhuvane\
 > putra-sama sneha karena sannyāsi-bhojane
 
 *randhane*—in cooking; *nipuṇā*—very expert; *tāṅ-sama*—like her; *nāhi*—there is none; *tri-bhuvane*—in the three worlds; *putra-sama*—like to her own sons; *sneha karena*—she was affectionate; *sannyāsi-bhojane*—in feeding the *sannyāsīs.*

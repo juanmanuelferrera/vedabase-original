@@ -1,9 +1,9 @@
 ### CC Madhya 16.98
 
-> রামানন্দ আইলা পাছে দোলায় চড়িয়া ।
+> রামানন্দ আইলা পাছে দোলায় চড়িয়া ।\
 > বাণীনাথ বহু প্রসাদ দিল পাঠাঞা ॥৯৮॥
 
-> rāmānanda āilā pāche dolāya caḍiyā
+> rāmānanda āilā pāche dolāya caḍiyā\
 > vāṇīnātha bahu prasāda dila pāṭhāñā
 
 *rāmānanda*—Rāmānanda Rāya; *āilā*—came; *pāche*—behind; *dolāya caḍiyā*—riding on a palanquin; *vāṇīnātha*—Vāṇīnātha Rāya; *bahu*—a large quantity of; *prasāda*—remnants of the food of Jagannātha; *dila*—gave; *pāṭhāñā*—sending.

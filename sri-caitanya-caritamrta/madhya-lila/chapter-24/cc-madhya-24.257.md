@@ -1,9 +1,9 @@
 ### CC Madhya 24.257
 
-> ব্যাধ কহে, — ‘ধনুক ভাঙ্গিলে বর্তিব কেমনে ?’
+> ব্যাধ কহে, — ‘ধনুক ভাঙ্গিলে বর্তিব কেমনে ?’\
 > নারদ কহে, — ‘আমি অন্ন দিব প্রতিদিনে ।।’ ॥ ২৫৭ ॥
 
-> vyādha kahe,—'dhanuka bhāṅgile vartiba kemane?'
+> vyādha kahe,—'dhanuka bhāṅgile vartiba kemane?'\
 > nārada kahe,—'āmi anna diba prati-dine'
 
 *vyādha kahe*—the hunter replied; *dhanuka bhāṅgile*—if I break my bow; *vartiba kemane*—what will be the source of my maintenance; *nārada kahe*—Nārada Muni replied; *āmi*—I; *anna*—food; *diba*—shall supply; *prati-dine*—every day.

@@ -1,9 +1,9 @@
 ### CC Adi 7.130
 
-> ‘প্রণব, মহাবাক্য — তাহা করি’ আচ্ছাদন ।
+> ‘প্রণব, মহাবাক্য — তাহা করি’ আচ্ছাদন ।\
 > মহাবাক্যে করি ‘তত্ত্বমসি’র স্থাপন ॥১৩০॥
 
-> 'praṇava, mahā-vākya—tāhā kari' ācchādana
+> 'praṇava, mahā-vākya—tāhā kari' ācchādana\
 > mahāvākye kari 'tat tvam asi'ra sthāpana
 
 *praṇava*—*oṁkāra*; *mahā-vākya*—principal *mantra*; *tāhā*—that; *kari'*—making; *ācchādana*—covered; *mahā-vākye*—in place of the principal *mantra*; *kari*—I do; *'tat tvam asi'ra sthāpana*—establishment of the statement *tat tvam asi.*

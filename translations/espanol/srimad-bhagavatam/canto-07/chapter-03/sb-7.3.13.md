@@ -1,11 +1,11 @@
 ### SB 7.3.13
 
-> तवासनं द्विजगवां पारमेष्ठ्यं जगत्पते
+> तवासनं द्विजगवां पारमेष्ठ्यं जगत्पते\
 > भवाय श्रेयसे भूत्यै क्षेमाय विजयाय च ॥१३॥
 
-> tavāsanaṁ dvija-gavāṁ
-> pārameṣṭhyaṁ jagat-pate
-> bhavāya śreyase bhūtyai
+> tavāsanaṁ dvija-gavāṁ\
+> pārameṣṭhyaṁ jagat-pate\
+> bhavāya śreyase bhūtyai\
 > kṣemāya vijayāya ca
 
 *tava*—tuya; *āsanam*—posición en el trono; *dvija*—de la cultura brahmínica o los *brāhmaṇas*; *gavām*—de las vacas; *pārameṣṭhyam*—supremo; *jagat-pate*—¡oh, amo del universo entero!; *bhavāya*—para el aumento; *śreyase*—para la felicidad suprema; *bhūtyai*—para aumentar la opulencia; *kṣemāya*—para el sustento y la buena fortuna; *vijayāya*—para la victoria y el prestigio en aumento; *ca*—y.

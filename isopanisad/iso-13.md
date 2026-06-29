@@ -1,11 +1,11 @@
 ### Īśo 13
 
-> अन्यदेवाहुः सम्भवादन्यदाहुरसम्भवात्।
+> अन्यदेवाहुः सम्भवादन्यदाहुरसम्भवात्।\
 > इति शुश्रुम धीराणां ये नस्तद्विचचक्षिरे॥१३॥
 
-> anyad evāhuḥ sambhavād
-> anyad āhur asambhavāt
-> iti śuśruma dhīrāṇāṁ
+> anyad evāhuḥ sambhavād\
+> anyad āhur asambhavāt\
+> iti śuśruma dhīrāṇāṁ\
 > ye nas tad vicacakṣire
 
 *anyat*—different; *eva*—certainly; *āhuḥ*—it is said; *sambhavāt*—by worshiping the Supreme Lord, the cause of all causes; *anyat*—different; *āhuḥ*—it is said; *asambhavāt*—by worshiping what is not the Supreme; *iti*—thus; *śuśruma*—I heard it; *dhīrāṇām*—from the undisturbed authorities; *ye*—who; *naḥ*—unto us; *tat*—about that subject matter; *vicacakṣire*—perfectly explained.

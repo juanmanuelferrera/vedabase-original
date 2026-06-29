@@ -1,9 +1,9 @@
 ### CC Madhya 23.49
 
-> দধি যেন খণ্ড-মরিচ-কর্পূর-মিলনে ।
+> দধি যেন খণ্ড-মরিচ-কর্পূর-মিলনে ।\
 > ‘রসালাখ্য’ রস হয় অপূর্বাস্বাদনে ॥৪৯॥
 
-> dadhi yena khaṇḍa-marica-karpūra-milane
+> dadhi yena khaṇḍa-marica-karpūra-milane\
 > 'rasālākhya' rasa haya apūrvāsvādane
 
 *dadhi*—yogur; *yena*—como si; *khaṇḍa*—azúcar cande; *marica*—pimienta negra; *karpūra*—alcanfor; *milane*—al mezclar; *rasāla-ākhya*—conocido como delicioso; *rasa*—melosidad; *haya*—se vuelve; *apūrva-āsvādane*—con un sabor sin precedentes.

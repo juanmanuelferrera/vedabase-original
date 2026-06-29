@@ -1,11 +1,11 @@
 ### SB 3.19.32
 
-> मया यथानूक्तमवादि ते हरेः कृतावतारस्य सुमित्र चेष्टितम् ।
+> मया यथानूक्तमवादि ते हरेः कृतावतारस्य सुमित्र चेष्टितम् ।\
 > यथा हिरण्याक्ष उदारविक्रमो महामृधे क्रीडनवन्निराकृतः ॥३२॥
 
-> mayā yathānūktam avādi te hareḥ
-> kṛtāvatārasya sumitra ceṣṭitam
-> yathā hiraṇyākṣa udāra-vikramo
+> mayā yathānūktam avādi te hareḥ\
+> kṛtāvatārasya sumitra ceṣṭitam\
+> yathā hiraṇyākṣa udāra-vikramo\
 > mahā-mṛdhe krīḍanavan nirākṛtaḥ
 
 *mayā*—por mí; *yathā*—como; *anūktam*—dicho; *avādi*—fue explicado; *te*—a ti; *hareḥ*—de la Suprema Personalidad de Dios; *kṛta-avatārasya*—que adoptó la encarnación; *sumitra*—¡oh, querido Vidura!; *ceṣṭitam*—las actividades; *yathā*—como; *hiraṇyākṣaḥ*—Hiraṇyākṣa; *udāra*—de muy gran alcance; *vikramaḥ*—destreza; *mahā-mṛdhe*—en un gran combate; *krīḍana-vat*—como un juguete; *nirākṛtaḥ*—fue muerto.

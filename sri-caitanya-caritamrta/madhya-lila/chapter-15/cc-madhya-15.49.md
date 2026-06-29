@@ -1,9 +1,9 @@
 ### CC Madhya 15.49
 
-> তাঁর প্রেমবশ আমি, তাঁর সেবা — ধর্ম  ।
+> তাঁর প্রেমবশ আমি, তাঁর সেবা — ধর্ম  ।\
 > তাহা ছাড়ি’ করিয়াছি বাতুলের কর্ম ॥৪৯॥
 
-> tāṅra prema-vaśa āmi, tāṅra sevā—dharma
+> tāṅra prema-vaśa āmi, tāṅra sevā—dharma\
 > tāhā chāḍi' kariyāchi vātulera karma
 
 *tāṅra prema-vaśa*—subordinate to her love; *āmi*—I; *tāṅra sevā*—her service; *dharma*—My religion; *tāhā chāḍi'*—giving up that; *kariyāchi*—I performed; *vātulera karma*—the acts of a madman.

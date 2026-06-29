@@ -1,11 +1,11 @@
 ### SB 3.33.6
 
-> यन्नामधेयश्रवणानुकीर्तनाद्यत्प्रह्वणाद्यत्स्मरणादपि क्वचित् ।
+> यन्नामधेयश्रवणानुकीर्तनाद्यत्प्रह्वणाद्यत्स्मरणादपि क्वचित् ।\
 > श्वादोऽपि सद्यः सवनाय कल्पते कुतः पुनस्ते भगवन्नु दर्शनात् ॥६॥
 
-> yan-nāmadheya-śravaṇānukīrtanād
-> yat-prahvaṇād yat-smaraṇād api kvacit
-> śvādo 'pi sadyaḥ savanāya kalpate
+> yan-nāmadheya-śravaṇānukīrtanād\
+> yat-prahvaṇād yat-smaraṇād api kvacit\
+> śvādo 'pi sadyaḥ savanāya kalpate\
 > kutaḥ punas te bhagavan nu darśanāt
 
 *yat*—of whom (the Supreme Personality of Godhead); *nāmadheya*—the name; *śravaṇa*—hearing; *anukīrtanāt*—by chanting; *yat*—to whom; *prahvaṇāt*—by offering obeisances; *yat*—whom; *smaraṇāt*—by remembering; *api*—even; *kvacit*—at any time; *śva-adaḥ*—a dog-eater; *api*—even; *sadyaḥ*—immediately; *savanāya*—for performing Vedic sacrifices; *kalpate*—becomes eligible; *kutaḥ*—what to speak of; *punaḥ*—again; *te*—You; *bhagavan*—O Supreme Personality of Godhead; *nu*—then; *darśanāt*—by seeing face to face.

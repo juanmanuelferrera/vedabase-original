@@ -1,11 +1,11 @@
 ### SB 9.10.54
 
-> नाधिव्याधिजराग्लानि दुःखशोकभयक्लमाः
+> नाधिव्याधिजराग्लानि दुःखशोकभयक्लमाः\
 > मृत्युश्चानिच्छतां नासीद्रामे राजन्यधोक्षजे ॥५४॥
 
-> eka-patnī-vrata-dharo
-> rājarṣi-caritaḥ śuciḥ
-> sva-dharmaṁ gṛha-medhīyaṁ
+> eka-patnī-vrata-dharo\
+> rājarṣi-caritaḥ śuciḥ\
+> sva-dharmaṁ gṛha-medhīyaṁ\
 > śikṣayan svayam ācarat
 
 *eka-patnī-vrata-dharaḥ*—hacer voto de no aceptar más esposas y no relacionarse con ninguna otra mujer; *rāja-ṛṣi*—como un rey santo; *caritaḥ*—cuyo carácter; *śuciḥ*—puro; *sva-dharmam*—el propio deber prescrito; *gṛha-medhīyam*—especialmente para las personas casadas; *śikṣayan*—enseñar (con el propio ejemplo); *svayam*—personalmente; *ācarat*—cumplió con Su deber.

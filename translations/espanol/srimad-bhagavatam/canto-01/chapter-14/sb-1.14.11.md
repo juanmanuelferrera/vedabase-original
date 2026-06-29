@@ -1,11 +1,11 @@
 ### SB 1.14.11
 
-> ऊर्वक्षिबाहवो मह्यं स्फुरन्त्यङ्ग पुनः पुनः ।
+> ऊर्वक्षिबाहवो मह्यं स्फुरन्त्यङ्ग पुनः पुनः ।\
 > वेपथुश्चापि हृदये आराद्दास्यन्ति विप्रियम् ॥११॥
 
-> ūrv-akṣi-bāhavo mahyaṁ
-> sphuranty aṅga punaḥ punaḥ
-> vepathuś cāpi hṛdaye
+> ūrv-akṣi-bāhavo mahyaṁ\
+> sphuranty aṅga punaḥ punaḥ\
+> vepathuś cāpi hṛdaye\
 > ārād dāsyanti vipriyam
 
 *ūru*—muslos; *akṣi*—ojos; *bāhavaḥ*—los brazos; *mahyam*—en mí; *sphuranti*—temblando; *aṅga*—el lado izquierdo del cuerpo; *punaḥ punaḥ*—una y otra vez; *vepathuḥ*—palpitaciones; *ca*—también; *api*—ciertamente; *hṛdaye*—en el corazón; *ārāt*—por el miedo; *dāsyanti*—indicando; *vipriyam*—indeseables.

@@ -1,9 +1,9 @@
 ### CC Adi 5.203
 
-> সনাতন-কৃপায় পাইনু ভক্তির সিদ্ধান্ত ।
+> সনাতন-কৃপায় পাইনু ভক্তির সিদ্ধান্ত ।\
 > শ্রীরূপ-কৃপায় পাইনু ভক্তিরসপ্রান্ত ॥২০৩॥
 
-> sanātana-kṛpāya pāinu bhaktira siddhānta
+> sanātana-kṛpāya pāinu bhaktira siddhānta\
 > śrī-rūpa-kṛpāya pāinu bhakti-rasa-prānta
 
 *sanātana-kṛpāya*—by the mercy of Sanātana Gosvāmī; *pāinu*—I got; *bhaktirasiddhānta*—the conclusions of devotional service; *śrī-rūpa-kṛpāya*—by the mercy of Śrīla Rūpa Gosvāmī; *pāinu*—I got; *bhakti-rasa-prānta*—the limit of the mellows of devotional service.

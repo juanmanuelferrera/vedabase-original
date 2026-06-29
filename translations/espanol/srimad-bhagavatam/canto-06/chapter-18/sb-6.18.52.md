@@ -1,11 +1,11 @@
 ### SB 6.18.52
 
-> धौतवासा शुचिर्नित्यं सर्वमङ्गलसंयुता
+> धौतवासा शुचिर्नित्यं सर्वमङ्गलसंयुता\
 > पूजयेत्प्रातराशात्प्राग्गोविप्राञ्श्रियमच्युतम ॥५२॥
 
-> dhauta-vāsā śucir nityaṁ
-> sarva-maṅgala-saṁyutā
-> pūjayet prātarāśāt prāg
+> dhauta-vāsā śucir nityaṁ\
+> sarva-maṅgala-saṁyutā\
+> pūjayet prātarāśāt prāg\
 > go-viprāñ śriyam acyutam
 
 *dhauta-vāsā*—vestida con ropa limpia; *śuciḥ*—purificada; *nityam*—siempre; *sarva-maṅgala*—con todos los elementos auspiciosos; *saṁyutā*—adornada; *pūjayet*—hay que adorar; *prātaḥ-āśāt prāk*—antes del desayuno; *go-viprān*—a las vacas y a los *brāhmaṇas*; *śriyam*—a la diosa de la fortuna; *acyutam*—a la Suprema Personalidad de Dios.

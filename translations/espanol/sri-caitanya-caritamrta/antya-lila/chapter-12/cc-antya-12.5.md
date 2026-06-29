@@ -1,9 +1,9 @@
 ### CC Antya 12.5
 
-> ‘হাহা কৃষ্ণ প্রাণনাথ ব্রজেন্দ্রনন্দন !
+> ‘হাহা কৃষ্ণ প্রাণনাথ ব্রজেন্দ্রনন্দন !\
 > কাহাঁ যাঙ কাহাঁ পাঙ, মুরলীবদন !’ ॥ ৫ ॥
 
-> 'hāhā kṛṣṇa prāṇa-nātha vrajendra-nandana!
+> 'hāhā kṛṣṇa prāṇa-nātha vrajendra-nandana!\
 > kāhāṅ yāṅa kāhāṅ pāṅa, muralī-vadana!'
 
 *hāhā*—¡oh!; *kṛṣṇa*—Mi querido Kṛṣṇa; *prāṇa-nātha*—Mi vida y alma; *vrajendra-nandana*—el hijo del Mahārāja Nanda; *kāhāṅ yāṅa*—¿adónde iré?; *kāhāṅ pāṅa*—¿dónde Te encontraré?; *muralī*—flauta; *vadana*—boca.

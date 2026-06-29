@@ -1,13 +1,13 @@
 ### SB 9.12.1
 
-> श्रीशुक उवाच
-> कुशस्य चातिथिस्तस्मान्निषधस्तत्सुतो नभः
+> श्रीशुक उवाच\
+> कुशस्य चातिथिस्तस्मान्निषधस्तत्सुतो नभः\
 > पुण्डरीकोऽथ तत्पुत्रः क्षेमधन्वाभवत्ततः ॥१॥
 
-> śrī-śuka uvāca
-> kuśasya cātithis tasmān
-> niṣadhas tat-suto nabhaḥ
-> puṇḍarīko 'tha tat-putraḥ
+> śrī-śuka uvāca\
+> kuśasya cātithis tasmān\
+> niṣadhas tat-suto nabhaḥ\
+> puṇḍarīko 'tha tat-putraḥ\
 > kṣemadhanvābhavat tataḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *kuśasya*—of Kuśa, the son of Lord Rāmacandra; *ca*—also; *atithiḥ*—Atithi; *tasmāt*—from him; *niṣadhaḥ*—Niṣadha; *tat-sutaḥ*—his son; *nabhaḥ*—Nabha; *puṇḍarīkaḥ*—Puṇḍarīka; *atha*—thereafter; *tat-putraḥ*—his son; *kṣemadhanvā*—Kṣemadhanvā; *abhavat*—became; *tataḥ*—thereafter.

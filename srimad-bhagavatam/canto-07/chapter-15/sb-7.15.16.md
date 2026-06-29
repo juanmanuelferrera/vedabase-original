@@ -1,11 +1,11 @@
 ### SB 7.15.16
 
-> सन्तुष्टस्य निरीहस्य स्वात्मारामस्य यत्सुखम
+> सन्तुष्टस्य निरीहस्य स्वात्मारामस्य यत्सुखम\
 > कुतस्तत्कामलोभेन धावतोऽर्थेहया दिशः ॥१६॥
 
-> santuṣṭasya nirīhasya
-> svātmārāmasya yat sukham
-> kutas tat kāma-lobhena
+> santuṣṭasya nirīhasya\
+> svātmārāmasya yat sukham\
+> kutas tat kāma-lobhena\
 > dhāvato 'rthehayā diśaḥ
 
 *santuṣṭasya*—of one who is fully satisfied in Kṛṣṇa consciousness; *nirīhasya*—who does not endeavor for his livelihood; *sva*—own; *ātma-ārāmasya*—who is self-satisfied; *yat*—that; *sukham*—happiness; *kutaḥ*—where; *tat*—such happiness; *kāma-lobhena*—impelled by lust and greed; *dhāvataḥ*—of one who is wandering here and there; *artha-īhayā*—with a desire for accumulating wealth; *diśaḥ*—in all directions.

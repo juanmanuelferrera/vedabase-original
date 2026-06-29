@@ -1,11 +1,11 @@
 ### SB 4.20.33
 
-> तत्त्वं कुरु मयादिष्टमप्रमत्तः प्रजापते ।
+> तत्त्वं कुरु मयादिष्टमप्रमत्तः प्रजापते ।\
 > मदादेशकरो लोकः सर्वत्राप्नोति शोभनम् ॥३३॥
 
-> tat tvaṁ kuru mayādiṣṭam
-> apramattaḥ prajāpate
-> mad-ādeśa-karo lokaḥ
+> tat tvaṁ kuru mayādiṣṭam\
+> apramattaḥ prajāpate\
+> mad-ādeśa-karo lokaḥ\
 > sarvatrāpnoti śobhanam
 
 *tat*—por lo tanto; *tvam*—tú; *kuru*—haz; *mayā*—por Mí; *ādiṣṭam*—lo que se ordena; *apramattaḥ*—sin dejarte descarriar; *prajā-pate*—¡oh, señor de los ciudadanos!; *mat*—de Mí; *ādeśa-karaḥ*—que cumple la orden; *lokaḥ*—toda persona; *sarvatra*—en todas partes; *āpnoti*—logra; *śobhanam*—toda buena fortuna.

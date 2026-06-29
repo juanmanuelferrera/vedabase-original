@@ -1,11 +1,11 @@
 ### SB 4.25.44
 
-> उपगीयमानो ललितं तत्र तत्र च गायकैः ।
+> उपगीयमानो ललितं तत्र तत्र च गायकैः ।\
 > क्रीडन्परिवृतः स्त्रीभिर्ह्रदिनीमाविशच्छुचौ ॥४४॥
 
-> upagīyamāno lalitaṁ
-> tatra tatra ca gāyakaiḥ
-> krīḍan parivṛtaḥ strībhir
+> upagīyamāno lalitaṁ\
+> tatra tatra ca gāyakaiḥ\
+> krīḍan parivṛtaḥ strībhir\
 > hradinīm āviśac chucau
 
 *upagīyamānaḥ*—being sung about; *lalitam*—very nicely; *tatra tatra*—here and there; *ca*—also; *gāyakaiḥ*—by the singers; *krīḍan*—playing; *parivṛtaḥ*—surrounded; *strībhiḥ*—by women; *hradinīm*—in the water of the river; *āviśat*—entered; *śucau*—when it was too hot.

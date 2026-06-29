@@ -1,13 +1,13 @@
 ### CC Adi 13.118
 
-> পুত্রমাতা-স্নানদিনে, দিল বস্ত্র বিভূষণে,
-> পুত্র-সহ মিশ্রেরে সম্মানি’ ।
-> শচী-মিশ্রের পূজা লঞা, মনেতে হরিষ হঞা,
+> পুত্রমাতা-স্নানদিনে, দিল বস্ত্র বিভূষণে,\
+> পুত্র-সহ মিশ্রেরে সম্মানি’ ।\
+> শচী-মিশ্রের পূজা লঞা, মনেতে হরিষ হঞা,\
 > ঘরে আইলা সীতা ঠাকুরাণী ॥১১৮॥
 
-> putramātā-snānadine, dila vastra vibhūṣaṇe,
-> putra-saha miśrere sammāni'
-> śacī-miśrera pūjā lañā, manete hariṣa hañā,
+> putramātā-snānadine, dila vastra vibhūṣaṇe,\
+> putra-saha miśrere sammāni'\
+> śacī-miśrera pūjā lañā, manete hariṣa hañā,\
 > ghare āilā sītā ṭhākurāṇī
 
 *putra-mātā*—of the mother and child; *snāna-dine*—on the day of bathing; *dila*—gave; *vastra*—cloth; *vibhūṣaṇe*—ornaments; *putra-saha*—with the child; *miśrere*—unto Jagannātha Miśra; *sammāni'*—congratulating; *śacī*—Śacīdevī; *miśrera*—Jagannātha Miśra; *pūjā*—honor; *lañā*—receiving; *manete*—within the mind; *hariṣa*—pleased; *hañā*—becoming; *ghare*—home; *āilā*—returned; *sītā ṭhākurāṇī*—mother Sītā, wife of Advaita Ācārya.

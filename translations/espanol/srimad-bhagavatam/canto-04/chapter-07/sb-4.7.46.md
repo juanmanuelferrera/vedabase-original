@@ -1,11 +1,11 @@
 ### SB 4.7.46
 
-> त्वं पुरा गां रसाया महासूकरो दंष्ट्रया पद्मिनीं वारणेन्द्रो यथा ।
+> त्वं पुरा गां रसाया महासूकरो दंष्ट्रया पद्मिनीं वारणेन्द्रो यथा ।\
 > स्तूयमानो नदल्लीलया योगिभिर्व्युज्जहर्थ त्रयीगात्र यज्ञक्रतुः ॥४६॥
 
-> tvaṁ purā gāṁ rasāyā mahā-sūkaro
-> daṁṣṭrayā padminīṁ vāraṇendro yathā
-> stūyamāno nadal līlayā yogibhir
+> tvaṁ purā gāṁ rasāyā mahā-sūkaro\
+> daṁṣṭrayā padminīṁ vāraṇendro yathā\
+> stūyamāno nadal līlayā yogibhir\
 > vyujjahartha trayī-gātra yajña-kratuḥ
 
 *tvam*—Tú; *purā*—en el pasado; *gām*—la Tierra; *rasāyāḥ*—de dentro del agua; *mahā-sūkaraḥ*—el gran *avatāra* Jabalí; *daṁṣṭrayā*—con Tu colmillo; *padminīm*—un loto; *vāraṇa-indraḥ*—un elefante; *yathā*—como; *stūyamānaḥ*—recibiendo oraciones; *nadan*—vibrar; *līlayā*—con gran facilidad; *yogibhiḥ*—por grandes sabios como Sanaka, etc.; *vyujjahartha*—sacaste; *trayī-gātra*—¡oh, conocimiento védico personificado!; *yajña-kratuḥ*—con forma de sacrificio.

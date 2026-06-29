@@ -1,8 +1,8 @@
 ### CC Adi 1.53
 
-> aham evāsam evāgre
-> nānyad yat sad-asat param
-> paścād ahaṁ yad etac ca
+> aham evāsam evāgre\
+> nānyad yat sad-asat param\
+> paścād ahaṁ yad etac ca\
 > yo 'vaśiṣyeta so 'smy aham
 
 *aham*—Eu, a Personalidade de Deus; *eva*—certamente; *āsam*—existia; *eva*—apenas; *agre*—antes da criação; *na*—nunca; *anyat*—qualquer outra coisa; *yat*—que; *sat*—o efeito; *asat*—a causa; *param*—o supremo; *paścāt*—no fim; *aham*—Eu, a Personalidade de Deus; *yat*—que; *etat*—esta criação; *ca*—também; *yaḥ*—que; *avaśiṣyeta*—permanece; *saḥ*—isso; *asmi*—sou; *aham*—Eu, a Personalidade de Deus.

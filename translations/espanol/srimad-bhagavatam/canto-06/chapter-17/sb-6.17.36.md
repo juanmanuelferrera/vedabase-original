@@ -1,13 +1,13 @@
 ### SB 6.17.36
 
-> श्रीशुक उवाच
-> इति श्रुत्वा भगवतः शिवस्योमाभिभाषितम
+> श्रीशुक उवाच\
+> इति श्रुत्वा भगवतः शिवस्योमाभिभाषितम\
 > बभूव शान्तधी राजन्देवी विगतविस्मया ॥३६॥
 
-> śrī-śuka uvāca
-> iti śrutvā bhagavataḥ
-> śivasyomābhibhāṣitam
-> babhūva śānta-dhī rājan
+> śrī-śuka uvāca\
+> iti śrutvā bhagavataḥ\
+> śivasyomābhibhāṣitam\
+> babhūva śānta-dhī rājan\
 > devī vigata-vismayā
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *iti*—así; *śrutvā*—al escuchar; *bhagavataḥ*—del muy poderoso semidiós; *śivasya*—del Señor Śiva; *umā*—Pārvatī; *abhibhāṣitam*—la instrucción; *babhūva*—se volvió; *śānta-dhīḥ*—muy serena; *rājan*—¡oh, rey Parīkṣit!; *devī*—la diosa; *vigata-vismayā*—liberada del asombro.

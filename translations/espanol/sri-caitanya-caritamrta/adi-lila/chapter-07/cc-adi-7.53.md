@@ -1,9 +1,9 @@
 ### CC Adi 7.53
 
-> আসি’ নিবেদন করে চরণে ধরিয়া ।
+> আসি’ নিবেদন করে চরণে ধরিয়া ।\
 > এক বস্তু মাগোঁ, দেহ প্রসন্ন হইয়া ॥৫৩॥
 
-> āsi' nivedana kare caraṇe dhariyā
+> āsi' nivedana kare caraṇe dhariyā\
 > eka vastu māgoṅ, deha prasanna ha-iyā
 
 *āsi'*—acudiendo allí; *nivedana*—declaración sumisa; *kare*—hizo; *caraṇe*—a los pies de loto; *dhariyā*—sujetando; *eka*—una; *vastu*—cosa; *māgoṅ*—le ruego; *deha*—tenga la bondad de concedérmela; *prasanna*—complacido; *ha-iyā*—volviéndose así.

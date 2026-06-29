@@ -1,11 +1,11 @@
 ### SB 4.30.28
 
-> एतावत्त्वं हि विभुभिर्भाव्यं दीनेषु वत्सलैः ।
+> एतावत्त्वं हि विभुभिर्भाव्यं दीनेषु वत्सलैः ।\
 > यदनुस्मर्यते काले स्वबुद्ध्याभद्ररन्धन ॥२८॥
 
-> etāvat tvaṁ hi vibhubhir
-> bhāvyaṁ dīneṣu vatsalaiḥ
-> yad anusmaryate kāle
+> etāvat tvaṁ hi vibhubhir\
+> bhāvyaṁ dīneṣu vatsalaiḥ\
+> yad anusmaryate kāle\
 > sva-buddhyābhadra-randhana
 
 *etāvat*—thus; *tvam*—Your Lordship; *hi*—certainly; *vibhubhiḥ*—by expansions; *bhāvyam*—to be conceived; *dīneṣu*—unto the humble devotees; *vatsalaiḥ*—compassionate; *yat*—which; *anusmaryate*—is always remembered; *kāle*—in due course of time; *sva-buddhyā*—by one's devotional service; *abhadra-randhana*—O killer of all inauspiciousness.

@@ -1,11 +1,11 @@
 ### SB 4.30.25
 
-> नमः कमलनाभाय नमः कमलमालिने ।
+> नमः कमलनाभाय नमः कमलमालिने ।\
 > नमः कमलपादाय नमस्ते कमलेक्षण ॥२५॥
 
-> namaḥ kamala-nābhāya
-> namaḥ kamala-māline
-> namaḥ kamala-pādāya
+> namaḥ kamala-nābhāya\
+> namaḥ kamala-māline\
+> namaḥ kamala-pādāya\
 > namas te kamalekṣaṇa
 
 *namaḥ*—we offer our respectful obeisances; *kamala-nābhāya*—unto the Supreme Personality of Godhead, from whose abdomen the original lotus flower originated; *namaḥ*—obeisances; *kamala-māline*—who is always decorated with a garland of lotus flowers; *namaḥ*—obeisances; *kamala-pādāya*—whose feet are as beautiful and fragrant as the lotus flower; *namaḥ te*—obeisances unto You; *kamala-īkṣaṇa*—whose eyes are exactly like the petals of the lotus flower.

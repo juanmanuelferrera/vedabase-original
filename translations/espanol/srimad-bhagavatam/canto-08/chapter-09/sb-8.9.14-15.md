@@ -1,18 +1,18 @@
 ### SB 8.9.14-15
 
-> अथोपोष्य कृतस्नाना हुत्वा च हविषानलम
-> दत्त्वा गोविप्रभूतेभ्यः कृतस्वस्त्ययना द्विजैः ॥१४॥
-> यथोपजोषं वासांसि परिधायाहतानि ते
+> अथोपोष्य कृतस्नाना हुत्वा च हविषानलम\
+> दत्त्वा गोविप्रभूतेभ्यः कृतस्वस्त्ययना द्विजैः ॥१४॥\
+> यथोपजोषं वासांसि परिधायाहतानि ते\
 > कुशेषु प्राविशन्सर्वे प्रागग्रेष्वभिभूषिताः ॥१५॥
 
-> athopoṣya kṛta-snānā
-> hutvā ca haviṣānalam
-> dattvā go-vipra-bhūtebhyaḥ
+> athopoṣya kṛta-snānā\
+> hutvā ca haviṣānalam\
+> dattvā go-vipra-bhūtebhyaḥ\
 > kṛta-svastyayanā dvijaiḥ
 
-> yathopajoṣaṁ vāsāṁsi
-> paridhāyāhatāni te
-> kuśeṣu prāviśan sarve
+> yathopajoṣaṁ vāsāṁsi\
+> paridhāyāhatāni te\
+> kuśeṣu prāviśan sarve\
 > prāg-agreṣv abhibhūṣitāḥ
 
 *atha*—a continuación; *upoṣya*—observar un ayuno; *kṛta-snānāḥ*—bañarse; *hutvā*—ofrecer oblaciones; *ca*—también; *haviṣā*—con mantequilla clarificada; *analam*—al fuego; *dattvā*—dar en caridad; *go-vipra-bhūtebhyaḥ*—a las vacas, *brāhmaṇas* y seres vivos en general; *kṛta-svastyayanāḥ*—celebrar ceremonias rituales; *dvijaiḥ*—siguiendo las indicaciones de los *brāhmaṇas*; *yathā-upajoṣam*—conforme al gusto personal; *vāsāṁsi*—ropas; *paridhāya*—ponerse; *āhatāni*—nuevas y de la mejor calidad; *te*—todos ellos; *kuśeṣu*—en esterillas de hierba *kuśa*; *prāviśan*—sentarse; *sarve*—todos ellos; *prāk-agreṣu*—cara al este; *abhibhūṣitāḥ*—debidamente engalanados con alhajas.

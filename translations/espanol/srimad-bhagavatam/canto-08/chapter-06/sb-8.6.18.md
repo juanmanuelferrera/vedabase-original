@@ -1,13 +1,13 @@
 ### SB 8.6.18
 
-> श्रीभगवानुवाच
-> हन्त ब्रह्मन्नहो शम्भो हे देवा मम भाषितम
+> श्रीभगवानुवाच\
+> हन्त ब्रह्मन्नहो शम्भो हे देवा मम भाषितम\
 > शृणुतावहिताः सर्वे श्रेयो वः स्याद्यथा सुराः ॥१८॥
 
-> śrī-bhagavān uvāca
-> hanta brahmann aho śambho
-> he devā mama bhāṣitam
-> śṛṇutāvahitāḥ sarve
+> śrī-bhagavān uvāca\
+> hanta brahmann aho śambho\
+> he devā mama bhāṣitam\
+> śṛṇutāvahitāḥ sarve\
 > śreyo vaḥ syād yathā surāḥ
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *hanta*—dirigiéndose a ellos; *brahman aho*—¡oh, Señor Brahmā!; *śambho*—¡oh, Señor Śiva!; *he*—¡oh!; *devāḥ*—semidioses; *mama*—Mi; *bhāṣitam*—declaración; *śṛṇuta*—escuchen; *avahitāḥ*—con gran atención; *sarve*—todos ustedes; *śreyaḥ*—buena fortuna; *vaḥ*—para todos ustedes; *syāt*—haya; *yathā*—como; *surāḥ*—para los semidioses.

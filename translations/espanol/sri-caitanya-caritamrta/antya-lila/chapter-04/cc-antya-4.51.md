@@ -1,9 +1,9 @@
 ### CC Antya 4.51
 
-> এইমত সনাতন রহে প্রভু-স্থানে ।
+> এইমত সনাতন রহে প্রভু-স্থানে ।\
 > জগন্নাথের চক্র দেখি’ করেন প্রণামে ॥৫১॥
 
-> ei-mata sanātana rahe prabhu-sthāne
+> ei-mata sanātana rahe prabhu-sthāne\
 > jagannāthera cakra dekhi' karena praṇāme
 
 *ei-mata*—de esta manera; *sanātana*—Sanātana Gosvāmī; *rahe*—permanece; *prabhu-sthāne*—bajo el cuidado de Śrī Caitanya Mahāprabhu; *jagannāthera*—del Señor Jagannātha; *cakra*—la rueda en la cima del templo; *dekhi'*—viendo; *karena praṇāme*—ofrece respetuosas reverencias.

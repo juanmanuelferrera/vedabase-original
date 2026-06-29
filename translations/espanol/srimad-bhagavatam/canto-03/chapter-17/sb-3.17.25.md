@@ -1,11 +1,11 @@
 ### SB 3.17.25
 
-> तस्मिन्प्रविष्टे वरुणस्य सैनिका यादोगणाः सन्नधियः ससाध्वसाः ।
+> तस्मिन्प्रविष्टे वरुणस्य सैनिका यादोगणाः सन्नधियः ससाध्वसाः ।\
 > अहन्यमाना अपि तस्य वर्चसा प्रधर्षिता दूरतरं प्रदुद्रुवुः ॥२५॥
 
-> tasmin praviṣṭe varuṇasya sainikā
-> yādo-gaṇāḥ sanna-dhiyaḥ sasādhvasāḥ
-> ahanyamānā api tasya varcasā
+> tasmin praviṣṭe varuṇasya sainikā\
+> yādo-gaṇāḥ sanna-dhiyaḥ sasādhvasāḥ\
+> ahanyamānā api tasya varcasā\
 > pradharṣitā dūrataraṁ pradudruvuḥ
 
 *tasmin praviṣṭe*—cuando entró en el océano; *varuṇasya*—de Varuṇa; *sainikāḥ*—los defensores; *yādaḥ-gaṇāḥ*—los animales acuáticos; *sanna-dhiyaḥ*—deprimidos; *sa-sādhvasāḥ*—con temor; *ahanyamānāḥ*—sin ser golpeados; *api*—incluso; *tasya*—suyo; *varcasā*—por el esplendor; *pradharṣitāḥ*—angustiados; *dūra-taram*—lejos de allí; *pradudruvuḥ*—huyeron rápidamente.

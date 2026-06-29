@@ -1,11 +1,11 @@
 ### SB 4.20.11
 
-> उदासीनमिवाध्यक्षं द्रव्यज्ञानक्रियात्मनाम् ।
+> उदासीनमिवाध्यक्षं द्रव्यज्ञानक्रियात्मनाम् ।\
 > कूटस्थमिममात्मानं यो वेदाप्नोति शोभनम् ॥११॥
 
-> udāsīnam ivādhyakṣaṁ
-> dravya-jñāna-kriyātmanām
-> kūṭa-stham imam ātmānaṁ
+> udāsīnam ivādhyakṣaṁ\
+> dravya-jñāna-kriyātmanām\
+> kūṭa-stham imam ātmānaṁ\
 > yo vedāpnoti śobhanam
 
 *udāsīnam*—indiferente; *iva*—simplemente; *adhyakṣam*—el superintendente; *dravya*—de los elementos físicos; *jñāna*—sentidos para adquirir conocimiento; *kriyā*—sentidos de trabajo; *ātmanām*—y de la mente; *kūṭa-stham*—fija; *imam*—esta; *ātmānam*—alma; *yaḥ*—todo el que; *veda*—sabe; *āpnoti*—obtiene; *śobhanam*—toda buena fortuna.

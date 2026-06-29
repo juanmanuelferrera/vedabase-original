@@ -1,11 +1,11 @@
 ### SB 5.13.7
 
-> शूरैर्हृतस्वः क्व च निर्विण्णचेताः शोचन्विमुह्यन्नुपयाति कश्मलम
+> शूरैर्हृतस्वः क्व च निर्विण्णचेताः शोचन्विमुह्यन्नुपयाति कश्मलम\
 > क्वचिच्च गन्धर्वपुरं प्रविष्टः प्रमोदते निर्वृतवन्मुहूर्तम ॥७॥
 
-> śūrair hṛta-svaḥ kva ca nirviṇṇa-cetāḥ
-> śocan vimuhyann upayāti kaśmalam
-> kvacic ca gandharva-puraṁ praviṣṭaḥ
+> śūrair hṛta-svaḥ kva ca nirviṇṇa-cetāḥ\
+> śocan vimuhyann upayāti kaśmalam\
+> kvacic ca gandharva-puraṁ praviṣṭaḥ\
 > pramodate nirvṛtavan muhūrtam
 
 *śūraiḥ*—by very powerful enemies; *hṛta-svaḥ*—all of whose possessions have been stolen; *kva ca*—sometimes; *nirviṇṇa-cetāḥ*—very morose and aggrieved at heart; *śocan*—deeply lamenting; *vimuhyan*—becoming bewildered; *upayāti*—achieves; *kaśmalam*—unconsciousness; *kvacit*—sometimes; *ca*—also; *gandharva-puram*—an imaginary city in the forest; *praviṣṭaḥ*—having entered; *pramodate*—he enjoys; *nirvṛta-vat*—exactly like a person who has achieved success; *muhūrtam*—for a moment only.

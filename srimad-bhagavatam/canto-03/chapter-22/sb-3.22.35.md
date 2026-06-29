@@ -1,11 +1,11 @@
 ### SB 3.22.35
 
-> अयातयामास्तस्यासन्यामाः स्वान्तरयापनाः ।
+> अयातयामास्तस्यासन्यामाः स्वान्तरयापनाः ।\
 > शृण्वतो ध्यायतो विष्णोः कुर्वतो ब्रुवतः कथाः ॥३५॥
 
-> ayāta-yāmās tasyāsan
-> yāmāḥ svāntara-yāpanāḥ
-> śṛṇvato dhyāyato viṣṇoḥ
+> ayāta-yāmās tasyāsan\
+> yāmāḥ svāntara-yāpanāḥ\
+> śṛṇvato dhyāyato viṣṇoḥ\
 > kurvato bruvataḥ kathāḥ
 
 *ayāta-yāmāḥ*—time never lost; *tasya*—of Manu; *āsan*—were; *yāmāḥ*—the hours; *sva-antara*—his duration of life; *yāpanāḥ*—bringing to an end; *śṛṇvataḥ*—hearing; *dhyāyataḥ*—contemplating; *viṣṇoḥ*—of Lord Viṣṇu; *kurvataḥ*—acting; *bruvataḥ*—speaking; *kathāḥ*—the topics.

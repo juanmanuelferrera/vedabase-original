@@ -1,11 +1,11 @@
 ### SB 3.27.13
 
-> एवं त्रिवृदहङ्कारो भूतेन्द्रियमनोमयैः ।
+> एवं त्रिवृदहङ्कारो भूतेन्द्रियमनोमयैः ।\
 > स्वाभासैर्लक्षितोऽनेन सदाभासेन सत्यदृक् ॥१३॥
 
-> evaṁ trivṛd-ahaṅkāro
-> bhūtendriya-manomayaiḥ
-> svābhāsair lakṣito 'nena
+> evaṁ trivṛd-ahaṅkāro\
+> bhūtendriya-manomayaiḥ\
+> svābhāsair lakṣito 'nena\
 > sad-ābhāsena satya-dṛk
 
 *evam*—de esta manera; *tri-vṛt*—el triple; *ahaṅkāraḥ*—ego falso; *bhūta-indriya-manaḥ-mayaiḥ*—que consta de cuerpo, sentidos y mente; *sva-ābhāsaiḥ*—por sus propios reflejos; *lakṣitaḥ*—se revela; *anena*—por este; *sat-ābhāsena*—por un reflejo del Brahman; *satya-dṛk*—el alma que puede comprender su identidad.

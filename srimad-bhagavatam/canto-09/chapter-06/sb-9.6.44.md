@@ -1,11 +1,11 @@
 ### SB 9.6.44
 
-> तासां कलिरभूद्भूयांस्तदर्थेऽपोह्य सौहृदम
+> तासां कलिरभूद्भूयांस्तदर्थेऽपोह्य सौहृदम\
 > ममानुरूपो नायं व इति तद्गतचेतसाम ॥४४॥
 
-> tāsāṁ kalir abhūd bhūyāṁs
-> tad-arthe 'pohya sauhṛdam
-> mamānurūpo nāyaṁ va
+> tāsāṁ kalir abhūd bhūyāṁs\
+> tad-arthe 'pohya sauhṛdam\
+> mamānurūpo nāyaṁ va\
 > iti tad-gata-cetasām
 
 *tāsām*—of all the princesses; *kaliḥ*—disagreement and quarrel; *abhūt*—there was; *bhūyān*—very much; *tat-arthe*—for the sake of Saubhari Muni; *apohya*—giving up; *sauhṛdam*—a good relationship; *mama*—mine; *anurūpaḥ*—the fit person; *na*—not; *ayam*—this; *vaḥ*—yours; *iti*—in this way; *tat-gata-cetasām*—being attracted by him.

@@ -1,11 +1,11 @@
 ### SB 2.1.33
 
-> नाड्योऽस्य नद्योऽथ तनूरुहाणि महीरुहा विश्वतनोर्नृपेन्द्र ।
+> नाड्योऽस्य नद्योऽथ तनूरुहाणि महीरुहा विश्वतनोर्नृपेन्द्र ।\
 > अनन्तवीर्यः श्वसितं मातरिश्वा गतिर्वयः कर्म गुणप्रवाहः ॥३३॥
 
-> nadyo 'sya nāḍyo 'tha tanū-ruhāṇi
-> mahī-ruhā viśva-tanor nṛpendra
-> ananta-vīryaḥ śvasitaṁ mātariśvā
+> nadyo 'sya nāḍyo 'tha tanū-ruhāṇi\
+> mahī-ruhā viśva-tanor nṛpendra\
+> ananta-vīryaḥ śvasitaṁ mātariśvā\
 > gatir vayaḥ karma guṇa-pravāhaḥ
 
 *nadyaḥ*—los ríos; *asya*—de Él; *nāḍyaḥ*—las venas; *atha*—y luego; *tanū-ruhāṇi*—los vellos del cuerpo; *mahī-ruhāḥ*—las plantas y los árboles; *viśva-tanoḥ*—de la forma universal; *nṛpa-indra*—¡oh, rey!; *ananta-vīryaḥ*—del omnipotente; *śvasitam*—respiración; *mātariśvā*—aire; *gatiḥ*—movimiento; *vayaḥ*—las eras que pasan; *karma*—actividad; *guṇa-pravāhaḥ*—reacciones de las modalidades de la naturaleza.

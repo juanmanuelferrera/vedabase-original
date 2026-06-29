@@ -1,11 +1,11 @@
 ### CC Adi 4.116
 
-> সোঽপি কৈশোরক-বয়ো মানয়ন্মধুসূদনঃ ।
+> সোঽপি কৈশোরক-বয়ো মানয়ন্মধুসূদনঃ ।\
 > রেমে স্ত্রীরত্নকূটস্থঃ ক্ষপাসু ক্ষপিতাহিতঃ ॥১১৬॥
 
-> so 'pi kaiśoraka-vayo
-> mānayan madhusūdanaḥ
-> reme strī-ratna-kūṭa-sthaḥ
+> so 'pi kaiśoraka-vayo\
+> mānayan madhusūdanaḥ\
+> reme strī-ratna-kūṭa-sthaḥ\
 > kṣapāsu kṣapitāhitaḥ
 
 *saḥ*—Él; *api*—especialmente; *kaiśoraka-vayaḥ*—la edad de la adolescencia; *mānayan*—honrando; *madhu-sūdanaḥ*—el destructor del demonio Madhu; *reme*—disfrutó; *strī-ratna*—de las gopīs; *kūṭa*—entre multitudes; *sthaḥ*—situado; *kṣapāsu*—en las noches de otoño; *kṣapita-ahitaḥ*—quien destruye la desdicha.

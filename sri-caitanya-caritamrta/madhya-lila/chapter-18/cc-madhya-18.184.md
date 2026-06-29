@@ -1,9 +1,9 @@
 ### CC Madhya 18.184
 
-> মৃগী-ব্যাধিতে আমি কভু হই অচেতন ।
+> মৃগী-ব্যাধিতে আমি কভু হই অচেতন ।\
 > এই চারি দয়া করি’ করেন পালন ॥১৮৪॥
 
-> mṛgī-vyādhite āmi kabhu ha-i acetana
+> mṛgī-vyādhite āmi kabhu ha-i acetana\
 > ei cāri dayā kari' karena pālana
 
 *mṛgī-vyādhite*—due to epilepsy; *āmi*—I; *kabhu*—sometimes; *ha-i*—become; *acetana*—unconscious; *ei cāri*—these four men; *dayā kari'*—being merciful; *karena pālana*—maintain Me.

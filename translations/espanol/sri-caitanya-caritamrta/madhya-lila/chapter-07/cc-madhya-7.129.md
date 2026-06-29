@@ -1,9 +1,9 @@
 ### CC Madhya 7.129
 
-> কভু না বাধিবে তোমার বিষয়-তরঙ্গ ৷
+> কভু না বাধিবে তোমার বিষয়-তরঙ্গ ৷\
 > পুনরপি এই ঠাঞি পাবে মোর সঙ্গ ৷৷” ১২৯ ৷৷ ॥১২৯॥
 
-> kabhu nā bādhibe tomāra viṣaya-taraṅga
+> kabhu nā bādhibe tomāra viṣaya-taraṅga\
 > punarapi ei ṭhāñi pābe mora saṅga"
 
 *kabhu*—en ningún momento; *nā*—no; *bādhibe*—obstaculizará; *tomāra*—tu; *viṣaya-taraṅga*—forma de vida materialista; *punarapi*—de nuevo; *ei ṭhāñi*—en este lugar; *pābe*—obtendrás; *mora*—Mi; *saṅga*—asociación.

@@ -1,13 +1,13 @@
 ### SB 3.1.5
 
-> सूत उवाच
-> स एवमृषिवर्योऽयं पृष्टो राज्ञा परीक्षिता ।
+> सूत उवाच\
+> स एवमृषिवर्योऽयं पृष्टो राज्ञा परीक्षिता ।\
 > प्रत्याह तं सुबहुवित्प्रीतात्मा श्रूयतामिति ॥५॥
 
-> sūta uvāca
-> sa evam ṛṣi-varyo 'yaṁ
-> pṛṣṭo rājñā parīkṣitā
-> praty āha taṁ subahu-vit
+> sūta uvāca\
+> sa evam ṛṣi-varyo 'yaṁ\
+> pṛṣṭo rājñā parīkṣitā\
+> praty āha taṁ subahu-vit\
 > prītātmā śrūyatām iti
 
 *sūtaḥ uvāca*—Śrī Sūta Gosvāmī dijo; *saḥ*—él; *evam*—así pues; *ṛṣi-varyaḥ*—el gran *ṛṣi*; *ayam*—Śukadeva Gosvāmī; *pṛṣṭaḥ*—siendo preguntado; *rājñā*—por el rey; *parīkṣitā*—Mahārāja Parīkṣit; *pratyāha*—respondió; *tam*—al rey; *su-bahu-vit*—sumamente experimentado; *prīta-ātmā*—plenamente satisfecho; *śrūyatām*—por favor, óyeme; *iti*—así pues.

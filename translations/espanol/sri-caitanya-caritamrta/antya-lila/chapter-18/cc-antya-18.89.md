@@ -1,13 +1,13 @@
 ### CC Antya 18.89
 
-> কৃষ্ণ রাধা লঞা বলে, গেলা কণ্ঠদঘ্ন জলে,
-> ছাড়িলা তাঁহা, যাঁহা অগাধ পানী ।
-> তেঁহো কৃষ্ণকণ্ঠ ধরি’, ভাসে জলের উপরি,
+> কৃষ্ণ রাধা লঞা বলে, গেলা কণ্ঠদঘ্ন জলে,\
+> ছাড়িলা তাঁহা, যাঁহা অগাধ পানী ।\
+> তেঁহো কৃষ্ণকণ্ঠ ধরি’, ভাসে জলের উপরি,\
 > গজোৎখাতে যৈছে কমলিনী ॥৮৯॥
 
-> kṛṣṇa rādhā lañā bale, gelā kaṇṭha-daghna jale,
-> chāḍilā tāhāṅ, yāhāṅ agādha pānī
-> teṅho kṛṣṇa-kaṇṭha dhari', bhāse jalera upari,
+> kṛṣṇa rādhā lañā bale, gelā kaṇṭha-daghna jale,\
+> chāḍilā tāhāṅ, yāhāṅ agādha pānī\
+> teṅho kṛṣṇa-kaṇṭha dhari', bhāse jalera upari,\
 > gajotkhāte yaiche kamalinī
 
 *kṛṣṇa*—el Señor Kṛṣṇa; *rādhā*—Śrīmatī Rādhārāṇī; *lañā*—llevando; *bale*—por la fuerza; *gelā*—fue; *kaṇṭha-daghna*—hasta el cuello; *jale*—en el agua; *chāḍilā*—soltó; *tāhāṅ*—allí; *yāhāṅ*—donde; *agādha*—muy profunda; *pānī*—agua; *teṅho*—Ella; *kṛṣṇa-kaṇṭha*—el cuello de Kṛṣṇa; *dhari'*—aferrándose; *bhāse*—flota; *jalera upari*—sobre el agua; *gaja-utkhāte*—arrancada por un elefante; *yaiche*—como; *kamalinī*—una flor de loto.

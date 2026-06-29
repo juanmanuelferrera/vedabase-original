@@ -1,11 +1,11 @@
 ### SB 7.5.9
 
-> वत्स प्रह्राद भद्रं ते सत्यं कथय मा मृषा
+> वत्स प्रह्राद भद्रं ते सत्यं कथय मा मृषा\
 > बालानति कुतस्तुभ्यमेष बुद्धिविपर्ययः ॥९॥
 
-> vatsa prahrāda bhadraṁ te
-> satyaṁ kathaya mā mṛṣā
-> bālān ati kutas tubhyam
+> vatsa prahrāda bhadraṁ te\
+> satyaṁ kathaya mā mṛṣā\
+> bālān ati kutas tubhyam\
 > eṣa buddhi-viparyayaḥ
 
 *vatsa*—O dear son; *prahrāda*—Prahlāda; *bhadram te*—all blessings and good fortune unto you; *satyam*—the truth; *kathaya*—speak; *mā*—do not; *mṛṣā*—a lie; *bālān ati*—passing over the other demon boys; *kutaḥ*—from where; *tubhyam*—unto you; *eṣaḥ*—this; *buddhi*—of the intelligence; *viparyayaḥ*—pollution.

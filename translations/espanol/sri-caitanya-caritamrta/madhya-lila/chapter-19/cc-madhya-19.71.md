@@ -1,9 +1,9 @@
 ### CC Madhya 19.71
 
-> ‘দুঁহার মুখে কৃষ্ণনাম করিছে নর্তন ।
+> ‘দুঁহার মুখে কৃষ্ণনাম করিছে নর্তন ।\
 > এই-দুই ‘অধম’ নহে, হয় ‘সর্বোত্তম’ ॥৭১॥
 
-> 'duṅhāra mukhe kṛṣṇa-nāma kariche nartana
+> 'duṅhāra mukhe kṛṣṇa-nāma kariche nartana\
 > ei-dui 'adhama' nahe, haya 'sarvottama'
 
 *duṅhāra mukhe*—en las bocas de ambos; *kṛṣṇa-nāma*—el santo nombre del Señor Kṛṣṇa; *kariche*—está haciendo; *nartana*—danzar; *ei-dui*—ambos; *adhama nahe*—no son caídos; *haya*—son; *sarva-uttama*—los más excelsos.

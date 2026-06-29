@@ -1,9 +1,9 @@
 ### CC Madhya 8.83
 
-> kintu yāṅra yei rasa, sei sarvottama
+> kintu yāṅra yei rasa, sei sarvottama\
 > taṭa-stha hañā vicārile, āche tara-tama
 
-> kintu yāṅra yei rasa, sei sarvottama
+> kintu yāṅra yei rasa, sei sarvottama\
 > taṭa-stha hañā vicārile, āche tara-tama
 
 *kintu*—no obstante; *yāṅra*—de algunos devotos; *yei rasa*—cualquiera que sea la melosidad de los intercambios de amor; *sei*—esa; *sarva-uttama*—la mejor; *taṭa-stha*—neutral; *hañā*—siendo; *vicārile*—si se considera; *āche*—hay; *tara-tama*—niveles inferiores y superiores.

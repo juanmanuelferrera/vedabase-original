@@ -1,13 +1,13 @@
 ### SB 5.25.10
 
-> मूर्तिं नः पुरुकृपया बभार सत्त्वं
-> संशुद्धं सदसदिदं विभाति तत्र
-> यल्लीलां मृगपतिराददेऽनवद्याम
+> मूर्तिं नः पुरुकृपया बभार सत्त्वं\
+> संशुद्धं सदसदिदं विभाति तत्र\
+> यल्लीलां मृगपतिराददेऽनवद्याम\
 > आदातुं स्वजनमनांस्युदारवीर्यः ॥१०॥
 
-> mūrtiṁ naḥ puru-kṛpayā babhāra sattvaṁ
-> saṁśuddhaṁ sad-asad idaṁ vibhāti tatra
-> yal-līlāṁ mṛga-patir ādade 'navadyām
+> mūrtiṁ naḥ puru-kṛpayā babhāra sattvaṁ\
+> saṁśuddhaṁ sad-asad idaṁ vibhāti tatra\
+> yal-līlāṁ mṛga-patir ādade 'navadyām\
 > ādātuṁ svajana-manāṁsy udāra-vīryaḥ
 
 *mūrtim*—different forms of the Supreme Personality of Godhead; *naḥ*—unto us; *puru-kṛpayā*—because of great mercy; *babhāra*—exhibited; *sattvam*—existence; *saṁśuddham*—completely transcendental; *sat-asat idam*—this material manifestation of cause and effect; *vibhāti*—shines; *tatra*—in whom; *yat-līlām*—the pastimes of whom; *mṛga-patiḥ*—the master of all living beings, who is exactly like a lion (the master of all other animals); *ādade*—taught; *anavadyām*—without material contamination; *ādātum*—to conquer; *sva-jana-manāṁsi*—the minds of His devotees; *udāra-vīryaḥ*—who is most liberal and powerful.

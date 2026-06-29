@@ -1,9 +1,9 @@
 ### CC Madhya 6.139
 
-> বেদ-পুরাণে কহে ব্রহ্ম-নিরূপণ ।
+> বেদ-পুরাণে কহে ব্রহ্ম-নিরূপণ ।\
 > সেই ব্রহ্ম — বৃহদ্বস্তু, ঈশ্বর-লক্ষণ ॥১৩৯॥
 
-> veda-purāṇe kahe brahma-nirūpaṇa
+> veda-purāṇe kahe brahma-nirūpaṇa\
 > sei brahma—bṛhad-vastu, īśvara-lakṣaṇa
 
 *veda-purāṇe*—in the *Vedas* and the *Purāṇas*; *kahe*—it is stated; *brahma-nirūpaṇa*—explaining the Supreme; *sei brahma*—that Supreme; *bṛhat-vastu*—the greatest; *īśvara-lakṣaṇa*—feature of the Supreme Personality.

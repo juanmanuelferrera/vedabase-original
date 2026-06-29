@@ -1,11 +1,11 @@
 ### SB 6.18.40
 
-> कोऽतिक्रमोऽनुवर्तन्त्याः स्वभावमिह योषितः
+> कोऽतिक्रमोऽनुवर्तन्त्याः स्वभावमिह योषितः\
 > धिङ्मां बताबुधं स्वार्थे यदहं त्वजितेन्द्रियः ॥४०॥
 
-> ko 'tikramo 'nuvartantyāḥ
-> svabhāvam iha yoṣitaḥ
-> dhiṅ māṁ batābudhaṁ svārthe
+> ko 'tikramo 'nuvartantyāḥ\
+> svabhāvam iha yoṣitaḥ\
+> dhiṅ māṁ batābudhaṁ svārthe\
 > yad ahaṁ tv ajitendriyaḥ
 
 *kaḥ*—qué; *atikramaḥ*—ofensa; *anuvartantyāḥ*—seguir; *sva-bhāvam*—su naturaleza; *iha*—aquí; *yoṣitaḥ*—de la mujer; *dhik*—condenación; *mām*—a mí; *bata*—¡ay!; *abudham*—no versado; *sva-arthe*—en lo que es bueno para mí; *yat*—debido a; *aham*—yo; *tu*—en verdad; *ajita-indriyaḥ*—incapaz de controlar mis sentidos.

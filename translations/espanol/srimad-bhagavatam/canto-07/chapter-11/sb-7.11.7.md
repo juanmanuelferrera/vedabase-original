@@ -1,11 +1,11 @@
 ### SB 7.11.7
 
-> धर्ममूलं हि भगवान्सर्ववेदमयो हरिः
+> धर्ममूलं हि भगवान्सर्ववेदमयो हरिः\
 > स्मृतं च तद्विदां राजन्येन चात्मा प्रसीदति ॥७॥
 
-> dharma-mūlaṁ hi bhagavān
-> sarva-vedamayo hariḥ
-> smṛtaṁ ca tad-vidāṁ rājan
+> dharma-mūlaṁ hi bhagavān\
+> sarva-vedamayo hariḥ\
+> smṛtaṁ ca tad-vidāṁ rājan\
 > yena cātmā prasīdati
 
 *dharma-mūlam*—la raíz de los principios religiosos; *hi*—en verdad; *bhagavān*—la Suprema Personalidad de Dios; *sarva-veda-mayaḥ*—la esencia de todo conocimiento védico; *hariḥ*—el Ser Supremo; *smṛtam ca*—y las Escrituras; *tat-vidām*—de aquellos que conocen al Señor Supremo; *rājan*—¡oh, rey!; *yena*—por el cual (principio religioso); *ca*—también; *ātmā*—el alma, la mente, el cuerpo y todo; *prasīdati*—alcanzan plena satisfacción.

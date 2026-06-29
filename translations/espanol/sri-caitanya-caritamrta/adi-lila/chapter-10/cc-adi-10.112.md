@@ -1,9 +1,9 @@
 ### CC Adi 10.112
 
-> পুরুষোত্তম, শ্রীগালীম, জগন্নাথদাস ।
+> পুরুষোত্তম, শ্রীগালীম, জগন্নাথদাস ।\
 > শ্রীচন্দ্রশেখর বৈদ্য, দ্বিজ হরিদাস ॥১১২॥
 
-> puruṣottama, śrī-gālīma, jagannātha-dāsa
+> puruṣottama, śrī-gālīma, jagannātha-dāsa\
 > śrī-candraśekhara vaidya, dvija haridāsa
 
 *puruṣottama*—de nombre Puruṣottama; *śrī-gālīma*—de nombre Śrī Gālīma; *jagannātha-dāsa*—de nombre Jagannātha dāsa; *śrī-candraśekhara vaidya*—de nombre Śrī Candraśekhara Vaidya; *dvija haridāsa*—de nombre Dvija Haridāsa.

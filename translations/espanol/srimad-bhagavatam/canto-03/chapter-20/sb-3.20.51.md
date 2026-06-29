@@ -1,11 +1,11 @@
 ### SB 3.20.51
 
-> अहो एतज्जगत्स्रष्टः सुकृतं बत ते कृतम् ।
+> अहो एतज्जगत्स्रष्टः सुकृतं बत ते कृतम् ।\
 > प्रतिष्ठिताः क्रिया यस्मिन्साकमन्नमदाम हे ॥५१॥
 
-> aho etaj jagat-sraṣṭaḥ
-> sukṛtaṁ bata te kṛtam
-> pratiṣṭhitāḥ kriyā yasmin
+> aho etaj jagat-sraṣṭaḥ\
+> sukṛtaṁ bata te kṛtam\
+> pratiṣṭhitāḥ kriyā yasmin\
 > sākam annam adāma he
 
 *aho*—¡oh!; *etat*—esto; *jagat-sraṣṭaḥ*—¡oh, creador del universo!; *sukṛtam*—bien hecho; *bata*—en verdad; *te*—que tú; *kṛtam*—has producido; *pratiṣṭhitāḥ*—sólidamente establecidas; *kriyāḥ*—todas las ceremonias rituales; *yasmin*—en las cuales; *sākam*—junto con esto; *annam*—de las oblaciones de los sacrificios; *adāma*—participaremos; *he*—¡oh!.

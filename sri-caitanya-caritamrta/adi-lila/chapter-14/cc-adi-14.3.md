@@ -1,9 +1,9 @@
 ### CC Adi 14.3
 
-> প্রভুর কহিল এই জন্মলীলা-সূত্র ।
+> প্রভুর কহিল এই জন্মলীলা-সূত্র ।\
 > যশোদা-নন্দন যৈছে হৈল শচীপুত্র ॥৩॥
 
-> prabhura kahila ei janmalīlā-sūtra
+> prabhura kahila ei janmalīlā-sūtra\
 > yaśodā-nandana yaiche haila śacī-putra
 
 *prabhura*—of the Lord; *kahila*—I have spoken; *ei*—thus; *janma-līlā*—pastimes of the birth; *sūtra*—in summary; *yaśodā-nandana*—the son of mother Yaśodā; *yaiche*—as much as; *haila*—became; *śacī-putra*—the son of mother Śacī.

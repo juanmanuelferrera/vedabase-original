@@ -1,13 +1,13 @@
 ### CC Madhya 25.273
 
-> কৃষ্ণভক্তিসিদ্ধান্তগণ, যাতে প্রফুল্ল পদ্মবন,
-> তার মধু করি’ আস্বাদন ।
-> প্রেমরস-কুমুদবনে, প্ৰফুল্লিত রাত্রি-দিনে,
+> কৃষ্ণভক্তিসিদ্ধান্তগণ, যাতে প্রফুল্ল পদ্মবন,\
+> তার মধু করি’ আস্বাদন ।\
+> প্রেমরস-কুমুদবনে, প্ৰফুল্লিত রাত্রি-দিনে,\
 > তাতে চরাও মনোভৃঙ্গগণ ॥২৭৩॥
 
-> kṛṣṇa-bhakti-siddhānta-gaṇa, yāte praphulla padma-vana,
-> tāra madhu kari' āsvādana
-> prema-rasa-kumuda-vane, praphullita rātri-dine,
+> kṛṣṇa-bhakti-siddhānta-gaṇa, yāte praphulla padma-vana,\
+> tāra madhu kari' āsvādana\
+> prema-rasa-kumuda-vane, praphullita rātri-dine,\
 > tāte carāo mano-bhṛṅga-gaṇa
 
 *kṛṣṇa-bhakti-siddhānta-gaṇa*—la comprensión conclusiva del servicio devocional a Kṛṣṇa; *yāte*—por la cual; *praphulla*—animado; *padma-vana*—el bosque de flores de loto; *tāra madhu*—la miel recolectada de esas flores de loto; *kari' āsvādana*—saboreando; *prema-rasa*—del amor trascendental por Kṛṣṇa; *kumuda-vane*—en el bosque de flores kumuda (un tipo de loto); *praphullita*—jubiloso; *rātri-dine*—día y noche; *tāte*—en ese bosque de flores de loto; *carāo*—haced vagar; *manaḥ-bhṛṅga-gaṇa*—los abejorros de vuestras mentes.

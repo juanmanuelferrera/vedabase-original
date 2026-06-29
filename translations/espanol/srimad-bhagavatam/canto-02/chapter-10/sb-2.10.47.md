@@ -1,11 +1,11 @@
 ### SB 2.10.47
 
-> परिमाणं च कालस्य कल्पलक्षणविग्रहम् ।
+> परिमाणं च कालस्य कल्पलक्षणविग्रहम् ।\
 > यथा पुरस्ताद्व्याख्यास्ये पाद्मं कल्पमथो शृणु ॥४७॥
 
-> parimāṇaṁ ca kālasya
-> kalpa-lakṣaṇa-vigraham
-> yathā purastād vyākhyāsye
+> parimāṇaṁ ca kālasya\
+> kalpa-lakṣaṇa-vigraham\
+> yathā purastād vyākhyāsye\
 > pādmaṁ kalpam atho śṛṇu
 
 *parimāṇam*—medida; *ca*—también; *kālasya*—del tiempo; *kalpa*—un día de Brahmā; *lakṣaṇa*—síntomas; *vigraham*—forma; *yathā*—en tanto; *purastāt*—de ahora en adelante; *vyākhyāsye*—ha de explicarse; *pādmam*—con el nombre Padma; *kalpam*—la duración de un día; *atho*—así pues; *śṛṇu*—tan solo oye.

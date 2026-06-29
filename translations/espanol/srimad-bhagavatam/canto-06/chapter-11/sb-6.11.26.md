@@ -1,11 +1,11 @@
 ### SB 6.11.26
 
-> अजातपक्षा इव मातरं खगाः स्तन्यं यथा वत्सतराः क्षुधार्ताः
+> अजातपक्षा इव मातरं खगाः स्तन्यं यथा वत्सतराः क्षुधार्ताः\
 > प्रियं प्रियेव व्युषितं विषण्णा मनोऽरविन्दाक्ष दिदृक्षते त्वाम ॥२६॥
 
-> ajāta-pakṣā iva mātaraṁ khagāḥ
-> stanyaṁ yathā vatsatarāḥ kṣudh-ārtāḥ
-> priyaṁ priyeva vyuṣitaṁ viṣaṇṇā
+> ajāta-pakṣā iva mātaraṁ khagāḥ\
+> stanyaṁ yathā vatsatarāḥ kṣudh-ārtāḥ\
+> priyaṁ priyeva vyuṣitaṁ viṣaṇṇā\
 > mano 'ravindākṣa didṛkṣate tvām
 
 *ajāta-pakṣāḥ*—cuyas alas todavía no han crecido; *iva*—como; *mātaram*—a la madre; *khagāḥ*—pajarillos; *stanyam*—la leche de la ubre; *yathā*—tal como; *vatsatarāḥ*—los terneros; *kṣudh-ārtāḥ*—afligidos por el hambre; *priyam*—al amante o esposo; *priyā*—la esposa o amante; *iva*—como; *vyuṣitam*—que está ausente del hogar; *viṣaṇṇā*—triste; *manaḥ*—mi mente; *aravinda-akṣa*—¡oh, Tú, el de ojos de loto!; *didṛkṣate*—deseo ver; *tvām*—a Ti.

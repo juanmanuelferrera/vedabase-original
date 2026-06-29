@@ -1,9 +1,9 @@
 ### CC Madhya 16.11
 
-> যদ্যপি স্বতন্ত্র প্রভু নহে নিবারণ ।
+> যদ্যপি স্বতন্ত্র প্রভু নহে নিবারণ ।\
 > ভক্ত-ইচ্ছা বিনা প্রভু না করে গমন ॥১১॥
 
-> yadyapi svatantra prabhu nahe nivāraṇa
+> yadyapi svatantra prabhu nahe nivāraṇa\
 > bhakta-icchā vinā prabhu nā kare gamana
 
 *yadyapi*—aunque; *svatantra*—plenamente independiente; *prabhu*—Śrī Caitanya Mahāprabhu; *nahe nivāraṇa*—nadie puede impedírselo; *bhakta-icchā vinā*—sin el consentimiento de los devotos; *prabhu*—Śrī Caitanya Mahāprabhu; *nā kare gamana*—no va.

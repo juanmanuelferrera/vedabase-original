@@ -1,11 +1,11 @@
 ### SB 3.24.29
 
-> स एव भगवानद्य हेलनं न गणय्य नः ।
+> स एव भगवानद्य हेलनं न गणय्य नः ।\
 > गृहेषु जातो ग्राम्याणां यः स्वानां पक्षपोषणः ॥२९॥
 
-> sa eva bhagavān adya
-> helanaṁ na gaṇayya naḥ
-> gṛheṣu jāto grāmyāṇāṁ
+> sa eva bhagavān adya\
+> helanaṁ na gaṇayya naḥ\
+> gṛheṣu jāto grāmyāṇāṁ\
 > yaḥ svānāṁ pakṣa-poṣaṇaḥ
 
 *saḥ eva*—that very same; *bhagavān*—Supreme Personality of Godhead; *adya*—today; *helanam*—negligence; *na*—not; *gaṇayya*—considering high and low; *naḥ*—our; *gṛheṣu*—in the houses; *jātaḥ*—appeared; *grāmyāṇām*—of ordinary householders; *yaḥ*—He who; *svānām*—of His own devotees; *pakṣa-poṣaṇaḥ*—who supports the party.

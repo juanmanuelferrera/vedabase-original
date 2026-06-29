@@ -1,11 +1,11 @@
 ### SB 4.18.16
 
-> दैतेया दानवा वत्सं प्रह्लादमसुरर्षभम् ।
+> दैतेया दानवा वत्सं प्रह्लादमसुरर्षभम् ।\
 > विधायादूदुहन्क्षीरमयःपात्रे सुरासवम् ॥१६॥
 
-> daiteyā dānavā vatsaṁ
-> prahlādam asurarṣabham
-> vidhāyādūduhan kṣīram
+> daiteyā dānavā vatsaṁ\
+> prahlādam asurarṣabham\
+> vidhāyādūduhan kṣīram\
 > ayaḥ-pātre surāsavam
 
 *daiteyāḥ*—los hijos de Diti; *dānavāḥ*—los demonios; *vatsam*—el ternero; *prahlādam*—a Prahlāda Mahārāja; *asura*—demonio; *ṛṣabham*—el principal; *vidhāya*—convertir; *adūduhan*—ordeñaron; *kṣīram*—leche; *ayaḥ*—hierro; *pātre*—en una vasija; *surā*—bebidas alcohólicas; *āsavam*—líquidos fermentados como la cerveza.

@@ -1,9 +1,9 @@
 ### CC Adi 17.132
 
-> তা-সভার অন্তরে ভয় প্রভু মনে জানি ।
+> তা-সভার অন্তরে ভয় প্রভু মনে জানি ।\
 > কহিতে লাগিলা লোকে শীঘ্র ডাকি’ আনি’ ॥১৩২॥
 
-> tā-sabhāra antare bhaya prabhu mane jāni
+> tā-sabhāra antare bhaya prabhu mane jāni\
 > kahite lāgilā loke śīghra ḍāki' āni'
 
 *tā-sabhāra*—of all of them; *antare*—in the mind; *bhaya*—fear; *prabhu*—the Lord; *mane*—in the mind; *jāni*—understanding; *kahite*—to speak; *lāgilā*—began; *loke*—to the people; *śīghra*—very soon; *ḍāki'*—calling; *āni'*—bringing them.

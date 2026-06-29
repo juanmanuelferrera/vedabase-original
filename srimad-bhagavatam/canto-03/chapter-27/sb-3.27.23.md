@@ -1,11 +1,11 @@
 ### SB 3.27.23
 
-> प्रकृतिः पुरुषस्येह दह्यमाना त्वहर्निशम् ।
+> प्रकृतिः पुरुषस्येह दह्यमाना त्वहर्निशम् ।\
 > तिरोभवित्री शनकैरग्नेर्योनिरिवारणिः ॥२३॥
 
-> prakṛtiḥ puruṣasyeha
-> dahyamānā tv ahar-niśam
-> tiro-bhavitrī śanakair
+> prakṛtiḥ puruṣasyeha\
+> dahyamānā tv ahar-niśam\
+> tiro-bhavitrī śanakair\
 > agner yonir ivāraṇiḥ
 
 *prakṛtiḥ*—the influence of material nature; *puruṣasya*—of the living entity; *iha*—here; *dahyamānā*—being consumed; *tu*—but; *ahaḥ-niśam*—day and night; *tiraḥ-bhavitrī*—disappearing; *śanakaiḥ*—gradually; *agneḥ*—of fire; *yoniḥ*—the cause of appearance; *iva*—as; *araṇiḥ*—wooden sticks.

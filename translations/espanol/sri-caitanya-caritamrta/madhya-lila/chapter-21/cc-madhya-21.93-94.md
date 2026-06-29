@@ -1,14 +1,14 @@
 ### CC Madhya 21.93-94
 
-> পূর্ব-উক্ত ব্রহ্মাণ্ডের যত দিক্পাল ।
-> অনন্ত বৈকুণ্ঠাবরণ, চিরলোকপাল ॥৯৩॥
-> তাঁ-সবার মুকুট কৃষ্ণপাদপীঠ-আগে ।
+> পূর্ব-উক্ত ব্রহ্মাণ্ডের যত দিক্পাল ।\
+> অনন্ত বৈকুণ্ঠাবরণ, চিরলোকপাল ॥৯৩॥\
+> তাঁ-সবার মুকুট কৃষ্ণপাদপীঠ-আগে ।\
 > দণ্ডবৎকালে তার মণি পীঠে লাগে ॥৯৪॥
 
-> pūrva-ukta brahmāṇḍera yata dik-pāla
+> pūrva-ukta brahmāṇḍera yata dik-pāla\
 > ananta vaikuṇṭhāvaraṇa, cira-loka-pāla
 
-> tāṅ-sabāra mukuṭa kṛṣṇa-pāda-pīṭha-āge
+> tāṅ-sabāra mukuṭa kṛṣṇa-pāda-pīṭha-āge\
 > daṇḍavat-kāle tāra maṇi pīṭhe lāge
 
 *pūrva-ukta*—como antes se mencionó; *brahmāṇḍera*—de todos los universos; *yata*—todos; *dik-pāla*—los gobernadores de las direcciones; *ananta vaikuṇṭha-āvaraṇa*—las expansiones que rodean los innumerables Vaikuṇṭhas; *cira-loka-pāla*—los gobernadores permanentes del universo; *tāṅ-sabāra*—de todos ellos; *mukuṭa*—los yelmos; *kṛṣṇa-pāda-pīṭha-āge*—frente a los pies de loto de Kṛṣṇa; *daṇḍavat-kāle*—en el momento de ofrecer reverencias; *tāra*—de ellos; *maṇi*—las joyas; *pīṭhe*—en el trono; *lāge*—tocan.

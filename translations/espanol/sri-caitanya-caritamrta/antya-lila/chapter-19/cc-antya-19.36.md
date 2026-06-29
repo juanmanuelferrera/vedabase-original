@@ -1,13 +1,13 @@
 ### CC Antya 19.36
 
-> “ব্রজেন্দ্রকুল — দুগ্ধসিন্ধু, কৃষ্ণ তাহে পূর্ণ ইন্দু,
-> জন্মি’ কৈলা জগৎ উজোর ।
-> কান্ত্যমৃত যেবা পিয়ে, নিরন্তর পিয় জিয়ে,
+> “ব্রজেন্দ্রকুল — দুগ্ধসিন্ধু, কৃষ্ণ তাহে পূর্ণ ইন্দু,\
+> জন্মি’ কৈলা জগৎ উজোর ।\
+> কান্ত্যমৃত যেবা পিয়ে, নিরন্তর পিয় জিয়ে,\
 > ব্রজ-জনের নয়ন-চকোর ॥৩৬॥
 
-> "vrajendra-kula--dugdha-sindhu, kṛṣṇa tāhe pūrṇa indu,
-> janmi' kailā jagat ujora
-> kānty-amṛta yebā piye, nirantara piyā jiye,
+> "vrajendra-kula--dugdha-sindhu, kṛṣṇa tāhe pūrṇa indu,\
+> janmi' kailā jagat ujora\
+> kānty-amṛta yebā piye, nirantara piyā jiye,\
 > vraja-janera nayana-cakora
 
 *vrajendra-kula*—la dinastía de Mahārāja Nanda en Vrajabhūmi; *dugdha-sindhu*—como el océano de leche; *kṛṣṇa*—el Señor Kṛṣṇa; *tāhe*—en ello; *pūrṇa*—plena; *indu*—luna; *janmi'*—al surgir; *kailā*—ha hecho; *jagat*—el mundo entero; *ujora*—iluminado; *kānti-amṛta*—el néctar de Su brillo corporal; *yebā piye*—cualquiera que lo beba; *nirantara*—siempre; *piyā*—bebiendo; *jiye*—se sustenta; *vraja-janera*—de los habitantes de Vṛndāvana; *nayana-cakora*—ojos que son como pájaros cakora.

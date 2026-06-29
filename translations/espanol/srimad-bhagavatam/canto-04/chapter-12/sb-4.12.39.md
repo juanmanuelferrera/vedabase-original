@@ -1,11 +1,11 @@
 ### SB 4.12.39
 
-> गम्भीरवेगोऽनिमिषं ज्योतिषां चक्रमाहितम् ।
+> गम्भीरवेगोऽनिमिषं ज्योतिषां चक्रमाहितम् ।\
 > यस्मिन्भ्रमति कौरव्य मेढ्यामिव गवां गणः ॥३९॥
 
-> gambhīra-vego 'nimiṣaṁ
-> jyotiṣāṁ cakram āhitam
-> yasmin bhramati kauravya
+> gambhīra-vego 'nimiṣaṁ\
+> jyotiṣāṁ cakram āhitam\
+> yasmin bhramati kauravya\
 > meḍhyām iva gavāṁ gaṇaḥ
 
 *gambhīra-vegaḥ*—con gran fuerza y velocidad; *animiṣam*—sin interrupción; *jyotiṣām*—de los astros luminosos; *cakram*—esfera; *āhitam*—conectados; *yasmin*—en torno al cual; *bhramati*—da vueltas; *kauravya*—¡oh, Vidura!; *meḍhyām*—un poste central; *iva*—como; *gavām*—de bueyes; *gaṇaḥ*—un grupo.

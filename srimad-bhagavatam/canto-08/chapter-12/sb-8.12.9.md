@@ -1,13 +1,13 @@
 ### SB 8.12.9
 
-> त्वां ब्रह्म केचिदवयन्त्युत धर्ममेके
-> एके परं सदसतोः पुरुषं परेशम
-> अन्येऽवयन्ति नवशक्तियुतं परं त्वां
+> त्वां ब्रह्म केचिदवयन्त्युत धर्ममेके\
+> एके परं सदसतोः पुरुषं परेशम\
+> अन्येऽवयन्ति नवशक्तियुतं परं त्वां\
 > केचिन्महापुरुषमव्ययमात्मतन्त्रम ॥९॥
 
-> tvāṁ brahma kecid avayanty uta dharmam eke
-> eke paraṁ sad-asatoḥ puruṣaṁ pareśam
-> anye 'vayanti nava-śakti-yutaṁ paraṁ tvāṁ
+> tvāṁ brahma kecid avayanty uta dharmam eke\
+> eke paraṁ sad-asatoḥ puruṣaṁ pareśam\
+> anye 'vayanti nava-śakti-yutaṁ paraṁ tvāṁ\
 > kecin mahā-puruṣam avyayam ātma-tantram
 
 *tvām*—You; *brahma*—the supreme truth, the Absolute Truth, Brahman; *kecit*—some people, namely the group of Māyāvādīs known as the Vedāntists; *avayanti*—consider; *uta*—certainly; *dharmam*—religion; *eke*—some others; *eke*—some others; *param*—transcendental; *sat-asatoḥ*—to both cause and effect; *puruṣam*—the Supreme person; *pareśam*—the supreme controller; *anye*—others; *avayanti*—describe; *nava-śakti-yutam*—endowed with nine potencies; *param*—transcendental; *tvām*—unto You; *kecit*—some; *mahā-puruṣam*—the Supreme Personality of Godhead; *avyayam*—without loss of energy; *ātma-tantram*—supremely independent.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.310
 
-> তাপী স্নান করি’ আইলা মাহিষ্মতীপুরে ।
+> তাপী স্নান করি’ আইলা মাহিষ্মতীপুরে ।\
 > নানা তীর্থ দেখি তাহাঁ নর্মদার তীরে ॥৩১০॥
 
-> tāpī snāna kari' āilā māhiṣmatī-pure
+> tāpī snāna kari' āilā māhiṣmatī-pure\
 > nānā tīrtha dekhi tāhāṅ narmadāra tīre
 
 *tāpī*—in the Tāpī River; *snāna kari'*—taking a bath; *āilā*—arrived; *māhiṣmatī-pure*—at Māhiṣmatī-pura; *nānā tīrtha*—many holy places; *dekhi*—seeing; *tāhāṅ*—there; *narmadāra tīre*—on the bank of the river Narmadā.

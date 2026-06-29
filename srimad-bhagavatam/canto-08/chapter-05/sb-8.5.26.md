@@ -1,13 +1,13 @@
 ### SB 8.5.26
 
-> श्रीब्रह्मोवाच
-> अविक्रियं सत्यमनन्तमाद्यं गुहाशयं निष्कलमप्रतर्क्यम
+> श्रीब्रह्मोवाच\
+> अविक्रियं सत्यमनन्तमाद्यं गुहाशयं निष्कलमप्रतर्क्यम\
 > मनोऽग्रयानं वचसानिरुक्तं नमामहे देववरं वरेण्यम ॥२६॥
 
-> śrī-brahmovāca
-> avikriyaṁ satyam anantam ādyaṁ
-> guhā-śayaṁ niṣkalam apratarkyam
-> mano-'grayānaṁ vacasāniruktaṁ
+> śrī-brahmovāca\
+> avikriyaṁ satyam anantam ādyaṁ\
+> guhā-śayaṁ niṣkalam apratarkyam\
+> mano-'grayānaṁ vacasāniruktaṁ\
 > namāmahe deva-varaṁ vareṇyam
 
 *śrī-brahmā uvāca*—Lord Brahmā said; *avikriyam*—unto the Personality of Godhead, who never changes (as opposed to material existence); *satyam*—the eternal supreme truth; *anantam*—unlimited; *ādyam*—the original cause of all causes; *guhā-śayam*—present in everyone's heart; *niṣkalam*—without any decrease in potency; *apratarkyam*—inconceivable, not within the jurisdiction of material arguments; *manaḥ-agrayānam*—more quick than the mind, inconceivable to mental speculation; *vacasā*—by jugglery of words; *aniruktam*—indescribable; *namāmahe*—all of us demigods offer our respectful obeisances; *deva-varam*—unto the Supreme Lord, who is not equaled or surpassed by anyone; *vareṇyam*—the supreme worshipable, who is worshiped by the Gāyatrī *mantra.*

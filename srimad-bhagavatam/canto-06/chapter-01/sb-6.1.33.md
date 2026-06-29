@@ -1,11 +1,11 @@
 ### SB 6.1.33
 
-> कस्य वा कुत आयाताः कस्मादस्य निषेधथ
+> कस्य वा कुत आयाताः कस्मादस्य निषेधथ\
 > किं देवा उपदेवा या यूयं किं सिद्धसत्तमाः ॥३३॥
 
-> kasya vā kuta āyātāḥ
-> kasmād asya niṣedhatha
-> kiṁ devā upadevā yā
+> kasya vā kuta āyātāḥ\
+> kasmād asya niṣedhatha\
+> kiṁ devā upadevā yā\
 > yūyaṁ kiṁ siddha-sattamāḥ
 
 *kasya*—whose servants; *vā*—or; *kutaḥ*—from where; *āyātāḥ*—have you come; *kasmāt*—what is the reason; *asya*—(the taking away) of this Ajāmila; *niṣedhatha*—are you forbidding; *kim*—whether; *devāḥ*—demigods; *upadevāḥ*—sub-demigods; *yāḥ*—who; *yūyam*—all of you; *kim*—whether; *siddha-sat-tamāḥ*—the best of the perfect beings, the pure devotees.

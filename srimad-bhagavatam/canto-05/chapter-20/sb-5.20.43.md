@@ -1,11 +1,11 @@
 ### SB 5.20.43
 
-> अण्डमध्यगतः सूर्यो द्यावाभूम्योर्यदन्तरम
+> अण्डमध्यगतः सूर्यो द्यावाभूम्योर्यदन्तरम\
 > सूर्याण्डगोलयोर्मध्ये कोट्यः स्युः पञ्चविंशतिः ॥४३॥
 
-> aṇḍa-madhya-gataḥ sūryo
-> dyāv-ābhūmyor yad antaram
-> sūryāṇḍa-golayor madhye
+> aṇḍa-madhya-gataḥ sūryo\
+> dyāv-ābhūmyor yad antaram\
+> sūryāṇḍa-golayor madhye\
 > koṭyaḥ syuḥ pañca-viṁśatiḥ
 
 *aṇḍa-madhya-gataḥ*—situated in the center of the universe; *sūryaḥ*—the sun globe; *dyāv-ābhūmyoḥ*—the two planetary systems Bhūrloka and Bhuvarloka; *yat*—which; *antaram*—in between; *sūrya*—of the sun; *aṇḍa-golayoḥ*—and the globe of the universe; *madhye*—in the middle; *koṭyaḥ*—groups of ten million; *syuḥ*—are; *pañca-viṁśatiḥ*—twenty-five.

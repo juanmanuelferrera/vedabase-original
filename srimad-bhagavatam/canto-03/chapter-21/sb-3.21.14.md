@@ -1,11 +1,11 @@
 ### SB 3.21.14
 
-> ये मायया ते हतमेधसस्त्वत् पादारविन्दं भवसिन्धुपोतम् ।
+> ये मायया ते हतमेधसस्त्वत् पादारविन्दं भवसिन्धुपोतम् ।\
 > उपासते कामलवाय तेषां रासीश कामान्निरयेऽपि ये स्युः ॥१४॥
 
-> ye māyayā te hata-medhasas tvat-
-> pādāravindaṁ bhava-sindhu-potam
-> upāsate kāma-lavāya teṣāṁ
+> ye māyayā te hata-medhasas tvat-\
+> pādāravindaṁ bhava-sindhu-potam\
+> upāsate kāma-lavāya teṣāṁ\
 > rāsīśa kāmān niraye 'pi ye syuḥ
 
 *ye*—those persons; *māyayā*—by the deluding energy; *te*—of You; *hata*—has been lost; *medhasaḥ*—whose intelligence; *tvat*—Your; *pāda-aravindam*—lotus feet; *bhava*—of mundane existence; *sindhu*—the ocean; *potam*—the boat for crossing; *upāsate*—worship; *kāma-lavāya*—for obtaining trivial pleasures; *teṣām*—their; *rāsi*—You bestow; *īśa*—O Lord; *kāmān*—desires; *niraye*—in hell; *api*—even; *ye*—which desires; *syuḥ*—can be available.

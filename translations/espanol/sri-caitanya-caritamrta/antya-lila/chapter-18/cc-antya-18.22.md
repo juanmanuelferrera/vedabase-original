@@ -1,9 +1,9 @@
 ### CC Antya 18.22
 
-> শ্রীকৃষ্ণচৈতন্য যাহা করেন আস্বাদন ।
+> শ্রীকৃষ্ণচৈতন্য যাহা করেন আস্বাদন ।\
 > সবে এক জানে তাহা স্বরূপাদি ‘গণ’ ॥২২॥
 
-> śrī-kṛṣṇa-caitanya yāhā karena āsvādana
+> śrī-kṛṣṇa-caitanya yāhā karena āsvādana\
 > sabe eka jāne tāhā svarūpādi 'gaṇa'
 
 *śrī-kṛṣṇa-caitanya*—el Señor Śrī Caitanya Mahāprabhu; *yāhā*—lo que; *karena*—hace; *āsvādana*—saborear; *sabe*—plenamente; *eka*—uno; *jāne*—sabe; *tāhā*—eso; *svarūpa-ādi gaṇa*—devotos como Svarūpa Dāmodara Gosvāmī.

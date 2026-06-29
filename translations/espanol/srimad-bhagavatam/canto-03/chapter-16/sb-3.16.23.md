@@ -1,13 +1,13 @@
 ### SB 3.16.23
 
-> न त्वं द्विजोत्तमकुलं यदि हात्मगोपं
-> गोप्ता वृषः स्वर्हणेन ससूनृतेन ।
-> तर्ह्येव नङ्क्ष्यति शिवस्तव देव पन्था
+> न त्वं द्विजोत्तमकुलं यदि हात्मगोपं\
+> गोप्ता वृषः स्वर्हणेन ससूनृतेन ।\
+> तर्ह्येव नङ्क्ष्यति शिवस्तव देव पन्था\
 > लोकोऽग्रहीष्यदृषभस्य हि तत्प्रमाणम् ॥२३॥
 
-> na tvaṁ dvijottama-kulaṁ yadi hātma-gopaṁ
-> goptā vṛṣaḥ svarhaṇena sa-sūnṛtena
-> tarhy eva naṅkṣyati śivas tava deva panthā
+> na tvaṁ dvijottama-kulaṁ yadi hātma-gopaṁ\
+> goptā vṛṣaḥ svarhaṇena sa-sūnṛtena\
+> tarhy eva naṅkṣyati śivas tava deva panthā\
 > loko 'grahīṣyad ṛṣabhasya hi tat pramāṇam
 
 *na*—no; *tvam*—Tú; *dvija*—de los nacidos dos veces; *uttama-kulam*—la clase más alta; *yadi*—si; *ha*—en verdad; *ātma-gopam*—dignos de Tu protección; *goptā*—el protector; *vṛṣaḥ*—el mejor; *su-arhaṇena*—adorando; *sa-sūnṛtena*—junto con palabras dulces; *tarhi*—entonces; *eva*—ciertamente; *naṅkṣyati*—se perderá; *śivaḥ*—auspicioso; *tava*—Tuyo; *deva*—¡oh, Señor!; *panthāḥ*—el sendero; *lokaḥ*—la gente en general; *agrahīṣyat*—aceptaría; *ṛṣabhasya*—del mejor; *hi*—porque; *tat*—esa; *pramāṇam*—autoridad.

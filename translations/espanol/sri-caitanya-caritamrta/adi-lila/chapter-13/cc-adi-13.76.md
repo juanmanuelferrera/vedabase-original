@@ -1,9 +1,9 @@
 ### CC Adi 13.76
 
-> তাঁহা বই বিশ্বে কিছু নাহি দেখি আর ।
+> তাঁহা বই বিশ্বে কিছু নাহি দেখি আর ।\
 > অতএব ‘বিশ্বরূপ’ নাম যে তাঁহার ॥৭৬॥
 
-> tāṅhā ba-i viśve kichu nāhi dekhi āra
+> tāṅhā ba-i viśve kichu nāhi dekhi āra\
 > ataeva 'viśvarūpa' nāma ye tāṅhāra
 
 *tāṅhā ba-i*—excepto Él; *viśve*—dentro de esta manifestación cósmica; *kichu*—algo; *nāhi*—no hay nada; *dekhi*—veo; *āra*—más; *ataeva*—por lo tanto; *viśvarūpa*—forma universal; *nāma*—nombre; *ye*—ese; *tāṅhāra*—Suyo.

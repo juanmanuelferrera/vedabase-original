@@ -1,11 +1,11 @@
 ### SB 6.8.7
 
-> करन्यासं ततः कुर्याद्द्वादशाक्षरविद्यया
+> करन्यासं ततः कुर्याद्द्वादशाक्षरविद्यया\
 > प्रणवादियकारान्तमङ्गुल्यङ्गुष्ठपर्वसु ॥७॥
 
-> kara-nyāsaṁ tataḥ kuryād
-> dvādaśākṣara-vidyayā
-> praṇavādi-ya-kārāntam
+> kara-nyāsaṁ tataḥ kuryād\
+> dvādaśākṣara-vidyayā\
+> praṇavādi-ya-kārāntam\
 > aṅguly-aṅguṣṭha-parvasu
 
 *kara-nyāsam*—the ritual known as *kara-nyāsa,* which assigns the syllables of the *mantra* to the fingers; *tataḥ*—thereafter; *kuryāt*—should execute; *dvādaśa-akṣara*—composed of twelve syllables; *vidyayā*—with the *mantra*; *praṇava-ādi*—beginning with the *oṁkāra*; *ya-kāra-antam*—ending with the syllable *ya*; *aṅguli*—on the fingers, beginning with the index finger; *aṅguṣṭha-parvasu*—to the joints of the thumbs.

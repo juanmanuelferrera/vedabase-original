@@ -1,9 +1,9 @@
 ### CC Antya 11.25
 
-> লোক নিস্তারিতে এই তোমার ‘অবতার’ ।
+> লোক নিস্তারিতে এই তোমার ‘অবতার’ ।\
 > নামের মহিমা লোকে করিলা প্রচার ॥২৫॥
 
-> loka nistārite ei tomāra 'avatāra'
+> loka nistārite ei tomāra 'avatāra'\
 > nāmera mahimā loke karilā pracāra
 
 *loka nistārite*—to deliver the people in general; *ei*—this; *tomāra avatāra*—your incarnation; *nāmera mahimā*—the glories of the holy name; *loke*—in this world; *karilā pracāra*—you have preached.

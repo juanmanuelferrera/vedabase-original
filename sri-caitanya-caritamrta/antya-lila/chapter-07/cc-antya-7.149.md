@@ -1,9 +1,9 @@
 ### CC Antya 7.149
 
-> পণ্ডিতের সনে তার মন ফিরি’ গেল  ।
+> পণ্ডিতের সনে তার মন ফিরি’ গেল  ।\
 > কিশোরগোপাল-উপাসনায় মন দিল ॥১৪৯॥
 
-> paṇḍitera sane tāra mana phiri' gela
+> paṇḍitera sane tāra mana phiri' gela\
 > kiśora-gopāla-upāsanāya mana dila
 
 *paṇḍitera sane*—in the association of Gadādhara Paṇḍita; *tāra*—his; *mana*—mind; *phiri' gela*—became converted; *kiśora-gopāla*—of Kṛṣṇa as a young boy; *upāsanāya*—to the worship; *mana dila*—he gave his mind.

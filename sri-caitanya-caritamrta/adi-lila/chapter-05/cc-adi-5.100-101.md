@@ -1,14 +1,14 @@
 ### CC Adi 5.100-101
 
-> অনন্তশয্যাতে তাঁহা করিল শয়ন ।
-> সহস্র মস্তক তাঁর সহস্র বদন ॥১০০॥
-> সহস্র-চরণ-হস্ত, সহস্র-নয়ন ।
+> অনন্তশয্যাতে তাঁহা করিল শয়ন ।\
+> সহস্র মস্তক তাঁর সহস্র বদন ॥১০০॥\
+> সহস্র-চরণ-হস্ত, সহস্র-নয়ন ।\
 > সর্ব-অবতার-বীজ, জগৎ-কারণ ॥১০১॥
 
-> ananta-śayyāte tāṅhā karila śayana
+> ananta-śayyāte tāṅhā karila śayana\
 > sahasra mastaka tāṅra sahasra vadana
 
-> sahasra-caraṇa-hasta, sahasra-nayana
+> sahasra-caraṇa-hasta, sahasra-nayana\
 > sarva-avatāra-bīja, jagat-kāraṇa
 
 *ananta-śayyāte*—on Lord Ananta as a bed; *tāṅhā*—there; *karila śayana*—lay down; *sahasra*—thousands; *mastaka*—heads; *tāṅra*—His; *sahasra vadana*—thousands of faces; *sahasra*—thousands; *caraṇa*—legs; *hasta*—hands; *sahasra-nayana*—thousands of eyes; *sarva-avatāra-bīja*—the seed of all incarnations; *jagat-kāraṇa*—the cause of the material world.

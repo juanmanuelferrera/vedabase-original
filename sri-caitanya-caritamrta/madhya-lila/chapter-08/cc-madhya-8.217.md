@@ -1,9 +1,9 @@
 ### CC Madhya 8.217
 
-> নিজেন্দ্রিয়সুখহেতু কামের তাত্পর্য ।
+> নিজেন্দ্রিয়সুখহেতু কামের তাত্পর্য ।\
 > কৃষ্ণসুখ-তাত্পর্য গোপীভাব-বর্য ॥২১৭॥
 
-> nijendriya-sukha-hetu kāmera tātparya
+> nijendriya-sukha-hetu kāmera tātparya\
 > kṛṣṇa-sukha-tātparya gopī-bhāva-varya
 
 *nija-indriya*—of one's own senses; *sukha*—of the happiness; *hetu*—for the reason; *kāmera*—of lusty desire; *tātparya*—intention; *kṛṣṇa*—of Kṛṣṇa; *sukha*—the happiness; *tātparya*—intention; *gopī-bhāva-varya*—the foremost mood of the *gopīs.*

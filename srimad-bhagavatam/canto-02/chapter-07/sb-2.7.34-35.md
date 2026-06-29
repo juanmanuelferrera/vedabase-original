@@ -1,22 +1,22 @@
 ### SB 2.7.34-35
 
-> ये च प्रलम्बखरदर्दुरकेश्यरिष्ट
-> मल्लेभकंसयवनाः कपिपौण्ड्रकाद्याः ।
-> अन्ये च शाल्वकुजबल्वलदन्तवक्र
-> सप्तोक्षशम्बरविदूरथरुक्मिमुख्याः ॥३४॥
-> ये वा मृधे समितिशालिन आत्तचापाः
-> काम्बोजमत्स्यकुरुसृञ्जयकैकयाद्याः ।
-> यास्यन्त्यदर्शनमलं बलपार्थभीम
+> ये च प्रलम्बखरदर्दुरकेश्यरिष्ट\
+> मल्लेभकंसयवनाः कपिपौण्ड्रकाद्याः ।\
+> अन्ये च शाल्वकुजबल्वलदन्तवक्र\
+> सप्तोक्षशम्बरविदूरथरुक्मिमुख्याः ॥३४॥\
+> ये वा मृधे समितिशालिन आत्तचापाः\
+> काम्बोजमत्स्यकुरुसृञ्जयकैकयाद्याः ।\
+> यास्यन्त्यदर्शनमलं बलपार्थभीम\
 > व्याजाह्वयेन हरिणा निलयं तदीयम् ॥३५॥
 
-> ye ca pralamba-khara-dardura-keśy-ariṣṭa-
-> mallebha-kaṁsa-yavanāḥ kapi-pauṇḍrakādyāḥ
-> anye ca śālva-kuja-balvala-dantavakra-
+> ye ca pralamba-khara-dardura-keśy-ariṣṭa-\
+> mallebha-kaṁsa-yavanāḥ kapi-pauṇḍrakādyāḥ\
+> anye ca śālva-kuja-balvala-dantavakra-\
 > saptokṣa-śambara-vidūratha-rukmi-mukhyāḥ
 
-> ye vā mṛdhe samiti-śālina ātta-cāpāḥ
-> kāmboja-matsya-kuru-sṛñjaya-kaikayādyāḥ
-> yāsyanty adarśanam alaṁ bala-pārtha-bhīma-
+> ye vā mṛdhe samiti-śālina ātta-cāpāḥ\
+> kāmboja-matsya-kuru-sṛñjaya-kaikayādyāḥ\
+> yāsyanty adarśanam alaṁ bala-pārtha-bhīma-\
 > vyājāhvayena hariṇā nilayaṁ tadīyam
 
 *ye*—all those; *ca*—totally; *pralamba*—the demon named Pralamba; *khara*—Dhenukāsura; *dardura*—Bakāsura; *keśī*—the Keśī demon; *ariṣṭa*—the demon Ariṣṭāsura; *malla*—a wrestler in the court of Kaṁsa; *ibha*—Kuvalayāpīḍa; *kaṁsa*—the King of Mathurā and maternal uncle of Kṛṣṇa; *yavanāḥ*—the kings of Persia and other adjoining places; *kapi*—Dvivida; *pauṇḍraka-ādyāḥ*—Pauṇḍraka and others; *anye*—others; *ca*—as much as; *śālva*—King Śālva; *kuja*—Narakāsura; *balvala*—King Balvala; *dantavakra*—the brother of Śiśupāla, a dead rival of Kṛṣṇa's; *saptokṣa*—King Saptokṣa; *śambara*—King Śambara; *vidūratha*—King Vidūratha; *rukmi-mukhyāḥ*—the brother of Rukmiṇī, the first queen of Kṛṣṇa at Dvārakā; *ye*—all those; *vā*—either; *mṛdhe*—in the battlefield; *samiti-śālinaḥ*—all very powerful; *ātta-cāpāḥ*—well equipped with bows and arrows; *kāmboja*—the King of Kāmboja; *matsya*—the King of Dvarbhaṅga; *kuru*—the sons of Dhṛtarāṣṭra; *sṛñjaya*—King Sṛñjaya; *kaikaya-ādyāḥ*—the King of Kekaya and others; *yāsyanti*—would attain; *adarśanam*—impersonal merging within the *brahmajyoti*; *alam*—what to speak of; *bala*—Baladeva, the elder brother of Kṛṣṇa; *pārtha*—Arjuna; *bhīma*—the second Pāṇḍava; *vyāja-āhvayena*—by the false names; *hariṇā*—by Lord Hari; *nilayam*—the abode; *tadīyam*—of Him.

@@ -1,9 +1,9 @@
 ### CC Antya 16.84
 
-> সেহ বলে, — ‘এই দেখ শ্রীপুরুষোত্তম ।
+> সেহ বলে, — ‘এই দেখ শ্রীপুরুষোত্তম ।\
 > নেত্র ভরিয়া তুমি করহ দরশন ।।’ ॥ ৮৪ ॥
 
-> seha bale,--'ei dekha śrī-puruṣottama
+> seha bale,--'ei dekha śrī-puruṣottama\
 > netra bhariyā tumi karaha daraśana'
 
 *seha bale*—él también dijo; *ei*—esto; *dekha*—mira; *śrī-puruṣa-uttama*—el Señor Kṛṣṇa, el mejor de todas las Personalidades de Dios; *netra bhariyā*—hasta la plena satisfacción de Tus ojos; *tumi*—Tú; *karaha daraśana*—mira.

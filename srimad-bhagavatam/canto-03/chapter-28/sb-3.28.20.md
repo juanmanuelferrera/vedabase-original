@@ -1,11 +1,11 @@
 ### SB 3.28.20
 
-> तस्मिन्लब्धपदं चित्तं सर्वावयवसंस्थितम् ।
+> तस्मिन्लब्धपदं चित्तं सर्वावयवसंस्थितम् ।\
 > विलक्ष्यैकत्र संयुज्यादङ्गे भगवतो मुनिः ॥२०॥
 
-> tasmiḹ labdha-padaṁ cittaṁ
-> sarvāvayava-saṁsthitam
-> vilakṣyaikatra saṁyujyād
+> tasmiḹ labdha-padaṁ cittaṁ\
+> sarvāvayava-saṁsthitam\
+> vilakṣyaikatra saṁyujyād\
 > aṅge bhagavato muniḥ
 
 *tasmin*—on the form of the Lord; *labdha-padam*—fixed; *cittam*—the mind; *sarva*—all; *avayava*—limbs; *saṁsthitam*—fixed upon; *vilakṣya*—having distinguished; *ekatra*—in one place; *saṁyujyāt*—should fix the mind; *aṅge*—on each limb; *bhagavataḥ*—of the Lord; *muniḥ*—the sage.

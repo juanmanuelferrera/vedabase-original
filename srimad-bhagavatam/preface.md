@@ -6,10 +6,10 @@ Human society, at the present moment, is not in the darkness of oblivion. It has
 
 *Śrīmad-Bhāgavatam* should be introduced also in the schools and colleges, for it is recommended by the great student-devotee Prahlāda Mahārāja in order to change the demoniac face of society.
 
-> kaumāra ācaret prājño
-> dharmān bhāgavatān iha
-> durlabhaṁ mānuṣaṁ janma
-> tad apy adhruvam arthadam
+> kaumāra ācaret prājño\
+> dharmān bhāgavatān iha\
+> durlabhaṁ mānuṣaṁ janma\
+> tad apy adhruvam arthadam\
 > [[sb/7/6/1|(SB 7.6.1)]]
 
 Disparity in human society is due to lack of principles in a godless civilization. There is God, or the Almighty One, from whom everything emanates, by whom everything is maintained and in whom everything is merged to rest. Material science has tried to find the ultimate source of creation very insufficiently, but it is a fact that there is one ultimate source of everything that be. This ultimate source is explained rationally and authoritatively in the beautiful *Bhāgavatam,* or *Śrīmad-Bhāgavatam.*

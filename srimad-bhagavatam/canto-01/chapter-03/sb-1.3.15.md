@@ -1,11 +1,11 @@
 ### SB 1.3.15
 
-> रूपं स जगृहे मात्स्यं चाक्षुषोदधिसम्प्लवे ।
+> रूपं स जगृहे मात्स्यं चाक्षुषोदधिसम्प्लवे ।\
 > नाव्यारोप्य महीमय्यामपाद्वैवस्वतं मनुम् ॥१५॥
 
-> rūpaṁ sa jagṛhe mātsyaṁ
-> cākṣuṣodadhi-samplave
-> nāvy āropya mahī-mayyām
+> rūpaṁ sa jagṛhe mātsyaṁ\
+> cākṣuṣodadhi-samplave\
+> nāvy āropya mahī-mayyām\
 > apād vaivasvataṁ manum
 
 *rūpam*—form; *saḥ*—He; *jagṛhe*—accepted; *mātsyam*—of a fish; *cākṣuṣa*—Cākṣuṣa; *udadhi*—water; *samplave*—inundation; *nāvi*—on the boat; *āropya*—keeping on; *mahī*—the earth; *mayyām*—drowned in; *apāt*—protected; *vaivasvatam*—Vaivasvata; *manum*—Manu, the father of man.

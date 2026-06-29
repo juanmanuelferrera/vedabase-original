@@ -1,9 +1,9 @@
 ### CC Madhya 19.168
 
-> অন্য-বাঞ্ছা, অন্য-পূজা ছাড়ি’ ‘জ্ঞান’, ‘কর্ম’ ।
+> অন্য-বাঞ্ছা, অন্য-পূজা ছাড়ি’ ‘জ্ঞান’, ‘কর্ম’ ।\
 > আনুকূল্যে সর্বেন্দ্রিয়ে কৃষ্ণানুশীলন ॥১৬৮॥
 
-> anya-vāñchā, anya-pūjā chāḍi' jñāna', 'karma'
+> anya-vāñchā, anya-pūjā chāḍi' jñāna', 'karma'\
 > ānukūlye sarvendriye kṛṣṇānuśīlana
 
 *anya-vāñchā*—other desires; *anya-pūjā*—other types of worship; *chāḍi'*—giving up; *jñāna*—material knowledge; *karma*—material activities; *ānukūlye*—favorably; *sarva-indriye*—with all the senses; *kṛṣṇa-anuśīlana*—cultivation of Kṛṣṇa consciousness.

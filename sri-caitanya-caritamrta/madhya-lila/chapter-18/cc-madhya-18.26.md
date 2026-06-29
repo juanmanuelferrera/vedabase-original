@@ -1,9 +1,9 @@
 ### CC Madhya 18.26
 
-> ‘অন্নকূট’-নামে গ্রামে গোপালের স্থিতি ।
+> ‘অন্নকূট’-নামে গ্রামে গোপালের স্থিতি ।\
 > রাজপুত-লোকের সেই গ্রামে বসতি ॥২৬॥
 
-> 'annakūṭa'-nāme grāme gopālera sthiti
+> 'annakūṭa'-nāme grāme gopālera sthiti\
 > rāja-puta-lokera sei grāme vasati
 
 *annakūṭa-nāme*—by the name Annakūṭa; *grāme*—in the village; *gopālera*—of Gopāla; *sthiti*—residence; *rāja-puta-lokera*—of people from Rajasthan; *sei grāme*—in that village; *vasati*—habitation.

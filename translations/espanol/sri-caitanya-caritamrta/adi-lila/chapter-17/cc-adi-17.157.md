@@ -1,9 +1,9 @@
 ### CC Adi 17.157
 
-> প্রবৃত্তি-মার্গে গোবধ করিতে বিধি হয় ।
+> প্রবৃত্তি-মার্গে গোবধ করিতে বিধি হয় ।\
 > শাস্ত্র-আজ্ঞায় বধ কৈলে নাহি পাপ-ভয় ॥১৫৭॥
 
-> pravṛtti-mārge go-vadha karite vidhi haya
+> pravṛtti-mārge go-vadha karite vidhi haya\
 > śāstra-ājñāya vadha kaile nāhi pāpa-bhaya
 
 *pravṛtti-mārge*—en el sendero del apego; *go-vadha*—la matanza de vacas; *karite*—para ejecutar; *vidhi*—principios regulativos; *haya*—existen; *śāstra-ājñāya*—por mandato de las Escrituras; *vadha*—matanza; *kaile*—si uno comete; *nāhi*—no hay; *pāpa-bhaya*—temor a actividades pecaminosas.

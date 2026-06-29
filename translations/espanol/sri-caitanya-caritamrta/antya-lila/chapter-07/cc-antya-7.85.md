@@ -1,9 +1,9 @@
 ### CC Antya 7.85
 
-> প্রভু কহে, — “কৃষ্ণনামের বহু অর্থ না মানি ।
+> প্রভু কহে, — “কৃষ্ণনামের বহু অর্থ না মানি ।\
 > ‘শ্যামসুন্দর’ ‘যশোদানন্দন’, — এইমাত্র জানি ॥৮৫॥
 
-> prabhu kahe,--"kṛṣṇa-nāmera bahu artha nā māni
+> prabhu kahe,--"kṛṣṇa-nāmera bahu artha nā māni\
 > "śyāma-sundara' 'yaśodā-nandana,'--ei-mātra jāni
 
 *prabhu kahe*—el Señor Śrī Caitanya Mahāprabhu respondió; *kṛṣṇa-nāmera*—del santo nombre de Kṛṣṇa; *bahu artha*—muchos significados; *nā māni*—no acepto; *śyāma-sundara*—Śyāmasundara; *yaśodā-nandana*—Yaśodānandana; *ei-mātra*—solo esto; *jāni*—sé.

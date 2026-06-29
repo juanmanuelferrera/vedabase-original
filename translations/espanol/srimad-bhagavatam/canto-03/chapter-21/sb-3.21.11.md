@@ -1,11 +1,11 @@
 ### SB 3.21.11
 
-> विन्यस्तचरणाम्भोजमंसदेशे गरुत्मतः ।
+> विन्यस्तचरणाम्भोजमंसदेशे गरुत्मतः ।\
 > दृष्ट्वा खेऽवस्थितं वक्षः श्रियं कौस्तुभकन्धरम् ॥११॥
 
-> vinyasta-caraṇāmbhojam
-> aṁsa-deśe garutmataḥ
-> dṛṣṭvā khe 'vasthitaṁ vakṣaḥ-
+> vinyasta-caraṇāmbhojam\
+> aṁsa-deśe garutmataḥ\
+> dṛṣṭvā khe 'vasthitaṁ vakṣaḥ-\
 > śriyaṁ kaustubha-kandharam
 
 *vinyasta*—habiendo sido puestos; *caraṇa-ambhojam*—pies de loto; *aṁsa-deśe*—en la espalda; *garutmataḥ*—de Garuḍa; *dṛṣṭvā*—habiendo visto; *khe*—en el aire; *avasthitam*—de pie; *vakṣaḥ*—sobre Su pecho; *śriyam*—marca auspiciosa; *kaustubha*—la gema Kaustubha; *kandharam*—cuello.

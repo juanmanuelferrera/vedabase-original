@@ -1,9 +1,9 @@
 ### CC Adi 17.257
 
-> প্রভুর নিন্দায় সবার বুদ্ধি হৈল নাশ ।
+> প্রভুর নিন্দায় সবার বুদ্ধি হৈল নাশ ।\
 > সুপঠিত বিদ্যা কারও না হয় প্রকাশ ॥২৫৭॥
 
-> prabhura nindāya sabāra buddhi haila nāśa
+> prabhura nindāya sabāra buddhi haila nāśa\
 > supaṭhita vidyā kārao nā haya prakāśa
 
 *prabhura*—of the Lord; *nindāya*—in accusation; *sabāra*—of everyone; *buddhi*—the intelligence; *haila*—became; *nāśa*—spoiled; *su-paṭhita*—well-studied; *vidyā*—knowledge; *kārao*—everyone's; *nā*—does not; *haya*—become; *prakāśa*—manifest.

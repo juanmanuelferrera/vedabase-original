@@ -1,9 +1,9 @@
 ### CC Antya 1.111
 
-> রূপ হরিদাস দুঁহে বসিলা পিণ্ডাতলে ।
+> রূপ হরিদাস দুঁহে বসিলা পিণ্ডাতলে ।\
 > সবার আগ্রহে না উঠিলা পিঁড়ার উপরে ॥১১১॥
 
-> rūpa haridāsa duṅhe vasilā piṇḍā-tale
+> rūpa haridāsa duṅhe vasilā piṇḍā-tale\
 > sabāra āgrahe nā uṭhilā piṅḍāra upare
 
 *rūpa hari-dāsa*—Rūpa Gosvāmī and Haridāsa Ṭhākura; *duṅhe*—both of them; *vasilā*—sat down; *piṇḍā-tale*—at the foot of the raised place where Śrī Caitanya Mahāprabhu was sitting; *sabāra*—of all of the devotees; *āgrahe*—the insistence; *nā uṭhilā*—did not rise; *piṅḍāra upare*—the top of the raised place where Śrī Caitanya Mahāprabhu was sitting with His devotees.

@@ -1,14 +1,14 @@
 ### CC Antya 4.129-130
 
-> “যদ্যপিও তুমি হও জগৎপাবন ।
-> তোমা-স্পর্শে পবিত্র হয় দেব-মুনিগণ ॥১২৯॥
-> তথাপি ভক্ত-স্বভাব — মর্যাদা-রক্ষণ ।
+> “যদ্যপিও তুমি হও জগৎপাবন ।\
+> তোমা-স্পর্শে পবিত্র হয় দেব-মুনিগণ ॥১২৯॥\
+> তথাপি ভক্ত-স্বভাব — মর্যাদা-রক্ষণ ।\
 > মর্যাদা-পালন হয় সাধুর ভূষণ ॥১৩০॥
 
-> "yadyapio tumi hao jagat-pāvana
+> "yadyapio tumi hao jagat-pāvana\
 > tomā-sparśe pavitra haya deva-muni-gaṇa
 
-> tathāpi bhakta-svabhāva—maryādā-rakṣaṇa
+> tathāpi bhakta-svabhāva—maryādā-rakṣaṇa\
 > maryādā-pālana haya sādhura bhūṣaṇa
 
 *yadyapio*—although; *tumi*—you; *hao*—are; *jagat-pāvana*—the deliverer of the entire universe; *tomā*—you; *sparśe*—by touching; *pavitra*—purified; *haya*—becomes; *deva-muni-gaṇa*—the demigods and great saintly persons; *tathāpi*—still; *bhakta-svabhāva*—the nature of a devotee; *maryādā*—etiquette; *rakṣaṇa*—to protect or observe; *maryādā pālana*—to maintain etiquette; *haya*—is; *sādhura bhūṣaṇa*—ornament of devotees.

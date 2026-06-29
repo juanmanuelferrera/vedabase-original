@@ -1,13 +1,13 @@
 ### SB 4.4.24
 
-> मैत्रेय उवाच
-> इत्यध्वरे दक्षमनूद्य शत्रुहन्क्षितावुदीचीं निषसाद शान्तवाक् ।
+> मैत्रेय उवाच\
+> इत्यध्वरे दक्षमनूद्य शत्रुहन्क्षितावुदीचीं निषसाद शान्तवाक् ।\
 > स्पृष्ट्वा जलं पीतदुकूलसंवृता निमील्य दृग्योगपथं समाविशत् ॥२४॥
 
-> maitreya uvāca
-> ity adhvare dakṣam anūdya śatru-han
-> kṣitāv udīcīṁ niṣasāda śānta-vāk
-> spṛṣṭvā jalaṁ pīta-dukūla-saṁvṛtā
+> maitreya uvāca\
+> ity adhvare dakṣam anūdya śatru-han\
+> kṣitāv udīcīṁ niṣasāda śānta-vāk\
+> spṛṣṭvā jalaṁ pīta-dukūla-saṁvṛtā\
 > nimīlya dṛg yoga-pathaṁ samāviśat
 
 *maitreyaḥ uvāca*—Maitreya dijo; *iti*—de este modo; *adhvare*—en el recinto del sacrificio; *dakṣam*—a Dakṣa; *anūdya*—hablando; *śatru-han*—¡oh, aniquilador de enemigos!; *kṣitau*—en el suelo; *udīcīm*—mirando al norte; *niṣasāda*—se sentó; *śānta-vāk*—en silencio; *spṛṣṭvā*—después de tocar; *jalam*—agua; *pīta-dukūla-saṁvṛtā*—vestida con ropas amarillas; *nimīlya*—cerrar; *dṛk*—la vista; *yoga-patham*—el proceso de *yoga* místico; *samāviśat*—se absorbió.

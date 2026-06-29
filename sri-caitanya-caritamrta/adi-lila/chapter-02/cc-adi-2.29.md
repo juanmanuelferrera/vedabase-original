@@ -1,9 +1,9 @@
 ### CC Adi 2.29
 
-> ইহোঁত দ্বিভুজ, তিঁহো ধরে চারি হাথ ।
+> ইহোঁত দ্বিভুজ, তিঁহো ধরে চারি হাথ ।\
 > ইহোঁ বেণু ধরে, তিঁহো চক্রাদিক সাথ ॥২৯॥
 
-> iṅhota dvi-bhuja, tiṅho dhare cāri hātha
+> iṅhota dvi-bhuja, tiṅho dhare cāri hātha\
 > iṅho veṇu dhare, tiṅho cakrādika sātha
 
 *iṅhota*—this one; *dvi-bhuja*—two arms; *tiṅho*—He; *dhare*—manifests; *cāri*—four; *hātha*—hands; *iṅho*—this one; *veṇu*—flute; *dhare*—holds; *tiṅho*—He; *cakra-ādika*—the wheel, etc.; *sātha*—with.

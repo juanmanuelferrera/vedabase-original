@@ -1,11 +1,11 @@
 ### SB 6.1.62
 
-> स्तम्भयन्नात्मनात्मानं यावत्सत्त्वं यथाश्रुतम
+> स्तम्भयन्नात्मनात्मानं यावत्सत्त्वं यथाश्रुतम\
 > न शशाक समाधातुं मनो मदनवेपितम ॥६२॥
 
-> stambhayann ātmanātmānaṁ
-> yāvat sattvaṁ yathā-śrutam
-> na śaśāka samādhātuṁ
+> stambhayann ātmanātmānaṁ\
+> yāvat sattvaṁ yathā-śrutam\
+> na śaśāka samādhātuṁ\
 > mano madana-vepitam
 
 *stambhayan*—trying to control; *ātmanā*—by the intelligence; *ātmānam*—the mind; *yāvat sattvam*—as far as possible for him; *yathā-śrutam*—by remembering the instruction (of celibacy, *brahmacarya,* not even to see a woman); *na*—not; *śaśāka*—was able; *samādhātum*—to restrain; *manaḥ*—the mind; *madana-vepitam*—agitated by Cupid or lusty desire.

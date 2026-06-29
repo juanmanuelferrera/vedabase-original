@@ -1,9 +1,9 @@
 ### CC Adi 7.61
 
-> প্রভাবে আকর্ষিল সব সন্ন্যাসীর মন ।
+> প্রভাবে আকর্ষিল সব সন্ন্যাসীর মন ।\
 > উঠিল সন্ন্যাসী সব ছাড়িয়া আসন ॥৬১॥
 
-> prabhāve ākarṣila saba sannyāsīra mana
+> prabhāve ākarṣila saba sannyāsīra mana\
 > uṭhila sannyāsī saba chāḍiyā āsana
 
 *prabhāve*—con dicha iluminación; *ākarṣila*—atrajo; *saba*—a todos; *sannyāsīra*—de los *sannyāsīs* māyāvādīs; *mana*—la mente; *uṭhila*—se levantaron; *sannyāsī*—todos los *sannyāsīs* māyāvādīs; *saba*—todos; *chāḍiyā*—abandonando; *āsana*—sus asientos.

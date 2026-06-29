@@ -1,13 +1,13 @@
 ### SB 3.31.21
 
-> तस्मादहं विगतविक्लव उद्धरिष्य
-> आत्मानमाशु तमसः सुहृदात्मनैव ।
-> भूयो यथा व्यसनमेतदनेकरन्ध्रं
+> तस्मादहं विगतविक्लव उद्धरिष्य\
+> आत्मानमाशु तमसः सुहृदात्मनैव ।\
+> भूयो यथा व्यसनमेतदनेकरन्ध्रं\
 > मा मे भविष्यदुपसादितविष्णुपादः ॥२१॥
 
-> tasmād ahaṁ vigata-viklava uddhariṣya
-> ātmānam āśu tamasaḥ suhṛdātmanaiva
-> bhūyo yathā vyasanam etad aneka-randhraṁ
+> tasmād ahaṁ vigata-viklava uddhariṣya\
+> ātmānam āśu tamasaḥ suhṛdātmanaiva\
+> bhūyo yathā vyasanam etad aneka-randhraṁ\
 > mā me bhaviṣyad upasādita-viṣṇu-pādaḥ
 
 *tasmāt*—therefore; *aham*—I; *vigata*—ceased; *viklavaḥ*—agitation; *uddhariṣye*—shall deliver; *ātmānam*—myself; *āśu*—quickly; *tamasaḥ*—from the darkness; *suhṛdā ātmanā*—with friendly intelligence; *eva*—indeed; *bhūyaḥ*—again; *yathā*—so that; *vyasanam*—plight; *etat*—this; *aneka-randhram*—entering many wombs; *mā*—not; *me*—my; *bhaviṣyat*—may occur; *upasādita*—placed (in my mind); *viṣṇu-pādaḥ*—the lotus feet of Lord Viṣṇu.

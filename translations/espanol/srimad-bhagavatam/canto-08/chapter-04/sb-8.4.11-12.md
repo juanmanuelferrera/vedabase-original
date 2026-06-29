@@ -1,20 +1,20 @@
 ### SB 8.4.11-12
 
-> श्रीशुक उवाच
-> एवं शप्त्वा गतोऽगस्त्यो भगवान्नृप सानुगः
-> इन्द्रद्युम्नोऽपि राजर्षिर्दिष्टं तदुपधारयन ॥११॥
-> आपन्नः कौञ्जरीं योनिमात्मस्मृतिविनाशिनीम
+> श्रीशुक उवाच\
+> एवं शप्त्वा गतोऽगस्त्यो भगवान्नृप सानुगः\
+> इन्द्रद्युम्नोऽपि राजर्षिर्दिष्टं तदुपधारयन ॥११॥\
+> आपन्नः कौञ्जरीं योनिमात्मस्मृतिविनाशिनीम\
 > हर्यर्चनानुभावेन यद्गजत्वेऽप्यनुस्मृतिः ॥१२॥
 
-> śrī-śuka uvāca
-> evaṁ śaptvā gato 'gastyo
-> bhagavān nṛpa sānugaḥ
-> indradyumno 'pi rājarṣir
+> śrī-śuka uvāca\
+> evaṁ śaptvā gato 'gastyo\
+> bhagavān nṛpa sānugaḥ\
+> indradyumno 'pi rājarṣir\
 > diṣṭaṁ tad upadhārayan
 
-> āpannaḥ kauñjarīṁ yonim
-> ātma-smṛti-vināśinīm
-> hary-arcanānubhāvena
+> āpannaḥ kauñjarīṁ yonim\
+> ātma-smṛti-vināśinīm\
+> hary-arcanānubhāvena\
 > yad-gajatve 'py anusmṛtiḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *evam*—así; *śaptvā*—tras lanzar su maldición; *gataḥ*—se fue del lugar; *agastyaḥ*—Agastya Muni; *bhagavān*—tan poderoso; *nṛpa*—¡oh, rey!; *sa-anugaḥ*—con sus seguidores; *indradyumnaḥ*—el rey Indradyumna; *api*—también; *rājarṣiḥ*—aunque era un *rājarṣi*; *diṣṭam*—debida a pecados pasados; *tat*—esa maldición; *upadhārayan*—considerando; *āpannaḥ*—obtuvo; *kauñjarīm*—de un elefante; *yonim*—la especie; *ātma-smṛti*—recuerdo de la propia identidad; *vināśinīm*—que destruye; *hari*—la Suprema Personalidad de Dios; *arcana-anubhāvena*—debido a adorar; *yat*—eso; *gajatve*—en un cuerpo de elefante; *api*—aunque; *anusmṛtiḥ*—la oportunidad de recordar su pasado servicio devocional.

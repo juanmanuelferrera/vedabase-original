@@ -1,9 +1,9 @@
 ### CC Madhya 19.84
 
-> ভয়ে ভট্ট সঙ্গে রহে, মধ্যাহ্ন করাঞা ।
+> ভয়ে ভট্ট সঙ্গে রহে, মধ্যাহ্ন করাঞা ।\
 > নিজ-গৃহে আনিলা প্রভুরে সঙ্গেতে লঞা ॥৮৪॥
 
-> bhaye bhaṭṭa saṅge rahe, madhyāhna karāñā
+> bhaye bhaṭṭa saṅge rahe, madhyāhna karāñā\
 > nija-gṛhe ānilā prabhure saṅgete lañā
 
 *bhaye*—with fear; *bhaṭṭa*—Vallabha Bhaṭṭācārya; *saṅge*—in Śrī Caitanya Mahāprabhu's association; *rahe*—remains; *madhyāhna karāñā*—after arranging for His bath; *nija-gṛhe*—to his own home; *ānilā*—brought; *prabhure*—Śrī Caitanya Mahāprabhu; *saṅgete*—in company; *lañā*—taking.

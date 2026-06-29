@@ -1,11 +1,11 @@
 ### SB 6.14.7
 
-> अत्र नः संशयो भूयाञ्छ्रोतुं कौतूहलं प्रभो
+> अत्र नः संशयो भूयाञ्छ्रोतुं कौतूहलं प्रभो\
 > यः पौरुषेण समरे सहस्राक्षमतोषयत ॥७॥
 
-> atra naḥ saṁśayo bhūyāñ
-> chrotuṁ kautūhalaṁ prabho
-> yaḥ pauruṣeṇa samare
+> atra naḥ saṁśayo bhūyāñ\
+> chrotuṁ kautūhalaṁ prabho\
+> yaḥ pauruṣeṇa samare\
 > sahasrākṣam atoṣayat
 
 *atra*—in this connection; *naḥ*—our; *saṁśayaḥ*—doubt; *bhūyān*—great; *śrotum*—to hear; *kautūhalam*—eagerness; *prabho*—O my lord; *yaḥ*—he who; *pauruṣeṇa*—by bravery and strength; *samare*—in battle; *sahasra-akṣam*—Lord Indra, who has one thousand eyes; *atoṣayat*—pleased.

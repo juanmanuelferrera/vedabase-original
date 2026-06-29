@@ -1,11 +1,11 @@
 ### SB 1.11.3
 
-> तमुपश्रुत्य निनदं जगद्भयभयावहम् ।
+> तमुपश्रुत्य निनदं जगद्भयभयावहम् ।\
 > प्रत्युद्ययुः प्रजाः सर्वा भर्तृदर्शनलालसाः ॥३॥
 
-> tam upaśrutya ninadaṁ
-> jagad-bhaya-bhayāvaham
-> pratyudyayuḥ prajāḥ sarvā
+> tam upaśrutya ninadaṁ\
+> jagad-bhaya-bhayāvaham\
+> pratyudyayuḥ prajāḥ sarvā\
 > bhartṛ-darśana-lālasāḥ
 
 *tam*—ese; *upaśrutya*—habiendo llegado a oír; *ninadam*—sonido; *jagat-bhaya*—el temor de la existencia material; *bhaya-āvaham*—el principio amenazador; *prati*—hacia; *udyayuḥ*—se dirigieron rápidamente; *prajāḥ*—los ciudadanos; *sarvāḥ*—todos; *bhartṛ*—el protector; *darśana*—audiencia; *lālasāḥ*—habiendo deseado así.

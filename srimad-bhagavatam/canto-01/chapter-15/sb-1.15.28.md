@@ -1,13 +1,13 @@
 ### SB 1.15.28
 
-> सूत उवाच
-> एवं चिन्तयतो जिष्णोः कृष्णपादसरोरुहम् ।
+> सूत उवाच\
+> एवं चिन्तयतो जिष्णोः कृष्णपादसरोरुहम् ।\
 > सौहार्देनातिगाढेन शान्तासीद्विमला मतिः ॥२८॥
 
-> sūta uvāca
-> evaṁ cintayato jiṣṇoḥ
-> kṛṣṇa-pāda-saroruham
-> sauhārdenātigāḍhena
+> sūta uvāca\
+> evaṁ cintayato jiṣṇoḥ\
+> kṛṣṇa-pāda-saroruham\
+> sauhārdenātigāḍhena\
 > śāntāsīd vimalā matiḥ
 
 *sūtaḥ uvāca*—Sūta Gosvāmī said; *evam*—thus; *cintayataḥ*—while thinking of the instructions; *jiṣṇoḥ*—of the Supreme Personality of Godhead; *kṛṣṇa-pāda*—the feet of Kṛṣṇa; *saroruham*—resembling lotuses; *sauhārdena*—by deep friendship; *ati-gāḍhena*—in great intimacy; *śāntā*—pacified; *āsīt*—it so became; *vimalā*—without any tinge of material contamination; *matiḥ*—mind.

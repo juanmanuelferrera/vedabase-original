@@ -1,18 +1,18 @@
 ### SB 4.20.35-36
 
-> देवर्षिपितृगन्धर्व सिद्धचारणपन्नगाः ।
-> किन्नराप्सरसो मर्त्याः खगा भूतान्यनेकशः ॥३५॥
-> यज्ञेश्वरधिया राज्ञा वाग्वित्ताञ्जलिभक्तितः ।
+> देवर्षिपितृगन्धर्व सिद्धचारणपन्नगाः ।\
+> किन्नराप्सरसो मर्त्याः खगा भूतान्यनेकशः ॥३५॥\
+> यज्ञेश्वरधिया राज्ञा वाग्वित्ताञ्जलिभक्तितः ।\
 > सभाजिता ययुः सर्वे वैकुण्ठानुगतास्ततः ॥३६॥
 
-> devarṣi-pitṛ-gandharva-
-> siddha-cāraṇa-pannagāḥ
-> kinnarāpsaraso martyāḥ
+> devarṣi-pitṛ-gandharva-\
+> siddha-cāraṇa-pannagāḥ\
+> kinnarāpsaraso martyāḥ\
 > khagā bhūtāny anekaśaḥ
 
-> yajñeśvara-dhiyā rājñā
-> vāg-vittāñjali-bhaktitaḥ
-> sabhājitā yayuḥ sarve
+> yajñeśvara-dhiyā rājñā\
+> vāg-vittāñjali-bhaktitaḥ\
+> sabhājitā yayuḥ sarve\
 > vaikuṇṭhānugatās tataḥ
 
 *deva*—los semidioses; *ṛṣi*—los grandes sabios; *pitṛ*—los habitantes de Pitṛloka; *gandharva*—los habitantes de Gandharvaloka; *siddha*—los habitantes de Siddhaloka; *cāraṇa*—los habitantes de Cāraṇaloka; *pannagāḥ*—los habitantes de los planetas en que viven las serpientes; *kinnara*—los habitantes de los planetas Kinnara; *apsarasaḥ*—los habitantes de Apsaroloka; *martyāḥ*—los habitantes de los planetas terrenales; *khagāḥ*—las aves; *bhūtāni*—otras entidades vivientes; *anekaśaḥ*—muchas; *yajña-īśvara-dhiyā*—con la inteligencia perfecta de considerar partes integrales del Señor; *rājñā*—por el rey; *vāk*—con palabras dulces; *vitta*—riqueza; *añjali*—con las manos juntas; *bhaktitaḥ*—con actitud de servicio devocional; *sabhājitāḥ*—ser debidamente adoradas; *yayuḥ*—se fueron; *sarve*—todos; *vaikuṇṭha*—de la Suprema Personalidad de Dios, Viṣṇu; *anugatāḥ*—seguidores; *tataḥ*—de aquel lugar.

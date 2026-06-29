@@ -1,11 +1,11 @@
 ### SB 3.31.47
 
-> तस्मान्न कार्यः सन्त्रासो न कार्पण्यं न सम्भ्रमः ।
+> तस्मान्न कार्यः सन्त्रासो न कार्पण्यं न सम्भ्रमः ।\
 > बुद्ध्वा जीवगतिं धीरो मुक्तसङ्गश्चरेदिह ॥४७॥
 
-> tasmān na kāryaḥ santrāso
-> na kārpaṇyaṁ na sambhramaḥ
-> buddhvā jīva-gatiṁ dhīro
+> tasmān na kāryaḥ santrāso\
+> na kārpaṇyaṁ na sambhramaḥ\
+> buddhvā jīva-gatiṁ dhīro\
 > mukta-saṅgaś cared iha
 
 *tasmāt*—a causa de la muerte; *na*—no; *kāryaḥ*—debe hacerse; *santrāsaḥ*—horror; *na*—no; *kārpaṇyam*—avaricia; *na*—no; *sambhramaḥ*—codicia de ganancias materiales; *buddhvā*—comprendiendo; *jīva-gatim*—la verdadera naturaleza de la entidad viviente; *dhīraḥ*—firme; *mukta-saṅgaḥ*—libre de apegos; *caret*—debemos marchar; *iha*—en este mundo.

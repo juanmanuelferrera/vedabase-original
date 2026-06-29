@@ -1,9 +1,9 @@
 ### CC Adi 8.13
 
-> অতএব পুনঃ কহোঁ ঊর্ধ্ববাহু হঞা ।
+> অতএব পুনঃ কহোঁ ঊর্ধ্ববাহু হঞা ।\
 > চৈতন্য-নিত্যানন্দ ভজ কুতর্ক ছাড়িয়া ॥১৩॥
 
-> ataeva punaḥ kahoṅ ūrdhva-bāhu hañā
+> ataeva punaḥ kahoṅ ūrdhva-bāhu hañā\
 > caitanya-nityānanda bhaja kutarka chāḍiyā
 
 *ataeva*—por lo tanto; *punaḥ*—de nuevo; *kahoṅ*—digo; *ūrdhva*—alzando; *bāhu*—los brazos; *hañā*—haciéndolo; *caitanya*—Śrī Caitanya Mahāprabhu; *nityānanda*—el Señor Nityānanda; *bhaja*—adorad; *kutarka*—argumentos inútiles; *chāḍiyā*—abandonando.

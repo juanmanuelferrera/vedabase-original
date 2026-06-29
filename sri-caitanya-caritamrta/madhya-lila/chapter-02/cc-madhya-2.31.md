@@ -1,13 +1,13 @@
 ### CC Madhya 2.31
 
-> কৃষ্ণের মধুর বাণী, অমৃতের তরঙ্গিণী,
-> তার প্রবেশ নাহি যে শ্রবণে ।
-> কাণাকড়ি-ছিদ্র সম, জানিহ সে শ্রবণ,
+> কৃষ্ণের মধুর বাণী, অমৃতের তরঙ্গিণী,\
+> তার প্রবেশ নাহি যে শ্রবণে ।\
+> কাণাকড়ি-ছিদ্র সম, জানিহ সে শ্রবণ,\
 > তার জন্ম হৈল অকারণে ॥৩১॥
 
-> kṛṣṇera madhura vāṇī, amṛtera taraṅgiṇī,
-> tāra praveśa nāhi ye śravaṇe
-> kāṇākaḍi-chidra sama, jāniha se śravaṇa,
+> kṛṣṇera madhura vāṇī, amṛtera taraṅgiṇī,\
+> tāra praveśa nāhi ye śravaṇe\
+> kāṇākaḍi-chidra sama, jāniha se śravaṇa,\
 > tāra janma haila akāraṇe
 
 *kṛṣṇera*—of Lord Kṛṣṇa; *madhura*—sweet; *vāṇī*—words; *amṛtera*—of nectar; *taraṅgiṇī*—waves; *tāra*—of those; *praveśa*—entrance; *nāhi*—there is not; *ye*—which; *śravaṇe*—in the ear; *kāṇākaḍi*—of a damaged conchshell; *chidra*—the hole; *sama*—like; *jāniha*—please know; *se*—that; *śravaṇa*—ear; *tāra*—his; *janma*—birth; *haila*—was; *akāraṇe*—without purpose.

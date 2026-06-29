@@ -1,11 +1,11 @@
 ### CC Madhya 6.181
 
-> স্বাগমৈঃ কল্পিতৈস্ত্বঞ্চ জনান্ মদ্বিমুখান্ কুরু ।
+> স্বাগমৈঃ কল্পিতৈস্ত্বঞ্চ জনান্ মদ্বিমুখান্ কুরু ।\
 > মাঞ্চ গোপয় যেন স্যাত্ সৃষ্টিরেষোত্তরোত্তরা ॥১৮১॥
 
-> svāgamaiḥ kalpitais tvaṁ ca
-> janān mad-vimukhān kuru
-> māṁ ca gopaya yena syāt
+> svāgamaiḥ kalpitais tvaṁ ca\
+> janān mad-vimukhān kuru\
+> māṁ ca gopaya yena syāt\
 > sṛṣṭir eṣottarottarā
 
 *sva-āgamaiḥ*—con tus propias tesis; *kalpitaiḥ*—imaginadas; *tvam*—tú; *ca*—también; *janān*—a la gente en general; *mat-vimukhān*—adversos a Mí y adictos a las actividades fruitivas y al conocimiento especulativo; *kuru*—haz; *mām*—a Mí, la Suprema Personalidad de Dios; *ca*—y; *gopaya*—simplemente cubre; *yena*—por lo cual; *syāt*—puede haber; *sṛṣṭiḥ*—progreso material; *eṣā*—este; *uttara-uttarā*—cada vez más.

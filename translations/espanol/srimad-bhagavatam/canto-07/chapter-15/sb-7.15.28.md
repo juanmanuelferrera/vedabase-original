@@ -1,11 +1,11 @@
 ### SB 7.15.28
 
-> षड्वर्गसंयमैकान्ताः सर्वा नियमचोदनाः
+> षड्वर्गसंयमैकान्ताः सर्वा नियमचोदनाः\
 > तदन्ता यदि नो योगानावहेयुः श्रमावहाः ॥२८॥
 
-> ṣaḍ-varga-saṁyamaikāntāḥ
-> sarvā niyama-codanāḥ
-> tad-antā yadi no yogān
+> ṣaḍ-varga-saṁyamaikāntāḥ\
+> sarvā niyama-codanāḥ\
+> tad-antā yadi no yogān\
 > āvaheyuḥ śramāvahāḥ
 
 *ṣaṭ-varga*—los seis elementos, es decir, los cinco sentidos para la acción y la mente; *saṁyamama-ekāntāḥ*—el objetivo supremo de subyugar; *sarvāḥ*—todas esas actividades; *niyama-codanāḥ*—los principios regulativos que insisten en el control de la mente y los sentidos; *tat-antāḥ*—el objetivo supremo de esas actividades; *yadi*—si; *no*—no; *yogān*—el vínculo positivo con el Supremo; *āvaheyuḥ*—lleva a; *śrama-āvahāḥ*—una pérdida de tiempo y de trabajo.

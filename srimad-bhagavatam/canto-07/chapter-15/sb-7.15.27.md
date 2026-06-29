@@ -1,11 +1,11 @@
 ### SB 7.15.27
 
-> एष वै भगवान्साक्षात्प्रधानपुरुषेश्वरः
+> एष वै भगवान्साक्षात्प्रधानपुरुषेश्वरः\
 > योगेश्वरैर्विमृग्याङ्घ्रिर्लोको यं मन्यते नरम ॥२७॥
 
-> eṣa vai bhagavān sākṣāt
-> pradhāna-puruṣeśvaraḥ
-> yogeśvarair vimṛgyāṅghrir
+> eṣa vai bhagavān sākṣāt\
+> pradhāna-puruṣeśvaraḥ\
+> yogeśvarair vimṛgyāṅghrir\
 > loko yaṁ manyate naram
 
 *eṣaḥ*—this; *vai*—indeed; *bhagavān*—Supreme Personality of Godhead; *sākṣāt*—directly; *pradhāna*—the chief cause of the material nature; *puruṣa*—of all living entities or of the *puruṣāvatāra,* Lord Viṣṇu; *īśvaraḥ*—the supreme controller; *yoga-īśvaraiḥ*—by great saintly persons, *yogīs*; *vimṛgya-aṅghriḥ*—Lord Kṛṣṇa's lotus feet, which are sought; *lokaḥ*—people in general; *yam*—Him; *manyate*—consider; *naram*—a human being.

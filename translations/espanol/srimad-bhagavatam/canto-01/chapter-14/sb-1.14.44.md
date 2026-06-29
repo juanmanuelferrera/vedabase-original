@@ -1,11 +1,11 @@
 ### SB 1.14.44
 
-> कच्चित्प्रेष्ठतमेनाथ हृदयेनात्मबन्धुना ।
+> कच्चित्प्रेष्ठतमेनाथ हृदयेनात्मबन्धुना ।\
 > शून्योऽस्मि रहितो नित्यं मन्यसे तेऽन्यथा न रुक् ॥४४॥
 
-> kaccit preṣṭhatamenātha
-> hṛdayenātma-bandhunā
-> śūnyo 'smi rahito nityaṁ
+> kaccit preṣṭhatamenātha\
+> hṛdayenātma-bandhunā\
+> śūnyo 'smi rahito nityaṁ\
 > manyase te 'nyathā na ruk
 
 *kaccit*—si; *preṣṭha-tamena*—al muy querido; *atha*—Arjuna, hermano mío; *hṛdayena*—muy íntimo; *ātma-bandhunā*—tu propio amigo, el Señor Kṛṣṇa; *śūnyaḥ*—vacío; *asmi*—estoy; *rahitaḥ*—habiendo perdido; *nityam*—para siempre; *manyase*—crees; *te*—tu; *anyathā*—de lo contrario; *na*—nunca; *ruk*—congoja mental.

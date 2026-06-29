@@ -1,11 +1,11 @@
 ### SB 3.27.15
 
-> मन्यमानस्तदात्मानमनष्टो नष्टवन्मृषा ।
+> मन्यमानस्तदात्मानमनष्टो नष्टवन्मृषा ।\
 > नष्टेऽहङ्करणे द्रष्टा नष्टवित्त इवातुरः ॥१५॥
 
-> manyamānas tadātmānam
-> anaṣṭo naṣṭavan mṛṣā
-> naṣṭe 'haṅkaraṇe draṣṭā
+> manyamānas tadātmānam\
+> anaṣṭo naṣṭavan mṛṣā\
+> naṣṭe 'haṅkaraṇe draṣṭā\
 > naṣṭa-vitta ivāturaḥ
 
 *manyamānaḥ*—creyendo; *tadā*—entonces; *ātmānam*—él mismo; *anaṣṭaḥ*—aunque no perdido; *naṣṭa-vat*—como perdido; *mṛṣā*—falsamente; *naṣṭe ahaṅkaraṇe*—debido a la desaparición del ego; *draṣṭā*—el que ve; *naṣṭa-vittaḥ*—el que ha perdido su fortuna; *iva*—como; *āturaḥ*—afligido.

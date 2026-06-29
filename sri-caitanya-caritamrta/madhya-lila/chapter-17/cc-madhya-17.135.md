@@ -1,9 +1,9 @@
 ### CC Madhya 17.135
 
-> কৃষ্ণনাম, কৃষ্ণগুণ কৃষ্ণলীলাবৃন্দ ।
+> কৃষ্ণনাম, কৃষ্ণগুণ কৃষ্ণলীলাবৃন্দ ।\
 > কৃষ্ণের স্বরূপ-সম — সব চিদানন্দ ॥১৩৫॥
 
-> kṛṣṇa-nāma, kṛṣṇa-guṇa, kṛṣṇa-līlā-vṛnda
+> kṛṣṇa-nāma, kṛṣṇa-guṇa, kṛṣṇa-līlā-vṛnda\
 > kṛṣṇera svarūpa-sama—saba cid-ānanda
 
 *kṛṣṇa-nāma*—the holy name of Kṛṣṇa; *kṛṣṇa-guṇa*—the transcendental qualities of Kṛṣṇa; *kṛṣṇa-līlā-vṛnda*—the transcendental pastimes of Lord Kṛṣṇa; *kṛṣṇera sva-rūpa*—Kṛṣṇa's personality; *sama*—equal; *saba*—all; *cit-ānanda*—spiritual and full of bliss.

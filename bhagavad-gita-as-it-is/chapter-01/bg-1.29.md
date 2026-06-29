@@ -1,11 +1,11 @@
 ### Bg 1.29
 
-> वेपथुश्च शरीरे मे रोमहर्षश्च जायते ।
+> वेपथुश्च शरीरे मे रोमहर्षश्च जायते ।\
 > गाण्डीवं स्रंसते हस्तात्त्वक्चैव परिदह्यते ॥२९॥
 
-> vepathuś ca śarīre me
-> roma-harṣaś ca jāyate
-> gāṇḍīvaṁ sraṁsate hastāt
+> vepathuś ca śarīre me\
+> roma-harṣaś ca jāyate\
+> gāṇḍīvaṁ sraṁsate hastāt\
 > tvak caiva paridahyate
 
 *vepathuḥ*—trembling of the body; *ca*—also; *śarīre*—on the body; *me*—my; *roma-harṣaḥ*—standing of hair on end; *ca*—also; *jāyate*—is taking place; *gāṇḍīvam*—the bow of Arjuna; *sraṁsate*—is slipping; *hastāt*—from the hands; *tvak*—skin; *ca*—also; *eva*—certainly; *paridahyate*—burning.

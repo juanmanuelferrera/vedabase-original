@@ -1,9 +1,9 @@
 ### CC Madhya 8.50
 
-> তোমার মুখে কৃষ্ণকথা শুনিতে হয় মন ।
+> তোমার মুখে কৃষ্ণকথা শুনিতে হয় মন ।\
 > পুনরপি পাই যেন তোমার দরশন ॥৫০॥
 
-> tomāra mukhe kṛṣṇa-kathā śunite haya mana
+> tomāra mukhe kṛṣṇa-kathā śunite haya mana\
 > punarapi pāi yena tomāra daraśana
 
 *tomāra mukhe*—in your mouth; *kṛṣṇa-kathā*—talks on Kṛṣṇa; *śunite*—to hear; *haya*—there is; *mana*—My mind; *punarapi*—again; *pāi*—I may get; *yena*—if possible; *tomāra*—your; *daraśana*—interview.

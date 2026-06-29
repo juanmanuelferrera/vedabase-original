@@ -1,9 +1,9 @@
 ### CC Madhya 8.311
 
-> রামানন্দ রায়ে মোর কোটী নমস্কার ৷
+> রামানন্দ রায়ে মোর কোটী নমস্কার ৷\
 > যাঁর মুখে কৈল প্রভু রসের বিস্তার ৷৷ ৩১১ ৷৷ ॥৩১১॥
 
-> rāmānanda rāye mora koṭī namaskāra
+> rāmānanda rāye mora koṭī namaskāra\
 > yāṅra mukhe kaila prabhu rasera vistāra
 
 *rāmānanda rāye*—a Śrī Rāmānanda Rāya; *mora*—mis; *koṭī*—diez millones de; *namaskāra*—reverencias; *yāṅra mukhe*—de cuya boca; *kaila*—hizo; *prabhu*—Śrī Caitanya Mahāprabhu; *rasera vistāra*—la expansión de los humores trascendentales.

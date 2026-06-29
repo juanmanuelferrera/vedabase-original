@@ -1,13 +1,13 @@
 ### SB 4.9.11
 
-> भक्तिं मुहुः प्रवहतां त्वयि मे प्रसङ्गो
-> भूयादनन्त महताममलाशयानाम् ।
-> येनाञ्जसोल्बणमुरुव्यसनं भवाब्धिं
+> भक्तिं मुहुः प्रवहतां त्वयि मे प्रसङ्गो\
+> भूयादनन्त महताममलाशयानाम् ।\
+> येनाञ्जसोल्बणमुरुव्यसनं भवाब्धिं\
 > नेष्ये भवद्गुणकथामृतपानमत्तः ॥११॥
 
-> bhaktiṁ muhuḥ pravahatāṁ tvayi me prasaṅgo
-> bhūyād ananta mahatām amalāśayānām
-> yenāñjasolbaṇam uru-vyasanaṁ bhavābdhiṁ
+> bhaktiṁ muhuḥ pravahatāṁ tvayi me prasaṅgo\
+> bhūyād ananta mahatām amalāśayānām\
+> yenāñjasolbaṇam uru-vyasanaṁ bhavābdhiṁ\
 > neṣye bhavad-guṇa-kathāmṛta-pāna-mattaḥ
 
 *bhaktim*—servicio devocional; *muhuḥ*—constantemente; *pravahatām*—de los que realizan; *tvayi*—a Ti; *me*—mi; *prasaṅgaḥ*—relación íntima; *bhūyāt*—que se vuelva; *ananta*—¡oh, ilimitado!; *mahatām*—de los grandes devotos; *amala-āśayānām*—cuyos corazones están libres de contaminación material; *yena*—mediante lo cual; *añjasā*—fácilmente; *ulbaṇam*—terrible; *uru*—grande; *vyasanam*—lleno de peligros; *bhava-abdhim*—el océano de la existencia material; *neṣye*—atravesaré; *bhavat*—Tus; *guṇa*—cualidades trascendentales; *kathā*—pasatiempos; *amṛta*—néctar, eterno; *pāna*—bebiendo; *mattaḥ*—loco.

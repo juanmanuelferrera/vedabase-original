@@ -1,11 +1,11 @@
 ### SB 2.5.34
 
-> वर्षपूगसहस्रान्ते तदण्डमुदके शयम् ।
+> वर्षपूगसहस्रान्ते तदण्डमुदके शयम् ।\
 > कालकर्मस्वभावस्थो जीवो ञ्जीवमजीवयत् ॥३४॥
 
-> varṣa-pūga-sahasrānte
-> tad aṇḍam udake śayam
-> kāla-karma-svabhāva-stho
+> varṣa-pūga-sahasrānte\
+> tad aṇḍam udake śayam\
+> kāla-karma-svabhāva-stho\
 > jīvo 'jīvam ajīvayat
 
 *varṣa-pūga*—many years; *sahasra-ante*—of thousands of years; *tat*—that; *aṇḍam*—the universal globe; *udake*—in the causal water; *śayam*—being drowned; *kāla*—eternal time; *karma*—action; *svabhāva-sthaḥ*—according to the modes of nature; *jīvaḥ*—the Lord of the living beings; *ajīvam*—nonanimated; *ajīvayat*—caused to be animated.

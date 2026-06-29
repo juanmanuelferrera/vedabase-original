@@ -1,9 +1,9 @@
 ### CC Madhya 8.252
 
-> ‘কাঁহার স্মরণ জীব করিবে অনুক্ষণ?’
+> ‘কাঁহার স্মরণ জীব করিবে অনুক্ষণ?’\
 > ‘কৃষ্ণ’-নাম-গুণ-লীলা — প্ৰধান স্মরণ ৷৷’ ২৫২ ৷৷ ॥২৫২॥
 
-> 'kāṅhāra smaraṇa jīva karibe anukṣaṇa?'
+> 'kāṅhāra smaraṇa jīva karibe anukṣaṇa?'\
 > 'kṛṣṇa-nāma-guṇa-līlā--pradhāna smaraṇa'
 
 *kāṅhāra*—de quién; *smaraṇa*—recuerdo; *jīva*—la entidad viviente; *karibe*—debe hacer; *anukṣaṇa*—constantemente; *kṛṣṇa-nāma*—el santo nombre del Señor Kṛṣṇa; *guṇa-līlā*—Sus cualidades y pasatiempos; *pradhāna smaraṇa*—el recuerdo más importante.

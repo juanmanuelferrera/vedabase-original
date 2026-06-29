@@ -1,11 +1,11 @@
 ### SB 5.5.3
 
-> ये वा मयीशे कृतसौहृदार्था जनेषु देहम्भरवार्तिकेषु
+> ये वा मयीशे कृतसौहृदार्था जनेषु देहम्भरवार्तिकेषु\
 > गृहेषु जायात्मजरातिमत्सु न प्रीतियुक्ता यावदर्थाश्च लोके ॥३॥
 
-> ye vā mayīśe kṛta-sauhṛdārthā
-> janeṣu dehambhara-vārtikeṣu
-> gṛheṣu jāyātmaja-rātimatsu
+> ye vā mayīśe kṛta-sauhṛdārthā\
+> janeṣu dehambhara-vārtikeṣu\
+> gṛheṣu jāyātmaja-rātimatsu\
 > na prīti-yuktā yāvad-arthāś ca loke
 
 *ye*—aquellos que; *vā*—o; *mayi*—a Mí; *īśe*—a la Suprema Personalidad de Dios; *kṛta-sauhṛda-arthāḥ*—muy ansiosos por lograr el amor (en una relación de *dāsya, sakhya, vātsalya* o *mādhurya*); *janeṣu*—a la gente; *dehambhara-vārtikeṣu*—que solo tiene interés en mantener el cuerpo, y no en la salvación espiritual; *gṛheṣu*—al hogar; *jāyā*—la esposa; *ātma-ja*—los hijos; *rāti*—las riquezas o los amigos; *matsu*—que consiste en; *na*—no; *prīti-yuktāḥ*—muy apegados; *yāvat-arthāḥ*—que, para vivir, ganan solo lo que necesitan; *ca*—y; *loke*—en el mundo material.

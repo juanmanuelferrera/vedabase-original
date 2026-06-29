@@ -1,11 +1,11 @@
 ### SB 4.24.5
 
-> अन्तर्धानो नभस्वत्यां हविर्धानमविन्दत ।
+> अन्तर्धानो नभस्वत्यां हविर्धानमविन्दत ।\
 > य इन्द्रमश्वहर्तारं विद्वानपि न जघ्निवान् ॥५॥
 
-> antardhāno nabhasvatyāṁ
-> havirdhānam avindata
-> ya indram aśva-hartāraṁ
+> antardhāno nabhasvatyāṁ\
+> havirdhānam avindata\
+> ya indram aśva-hartāraṁ\
 > vidvān api na jaghnivān
 
 *antardhānaḥ*—el rey llamado Antardhāna; *nabhasvatyām*—a su esposa Nabhasvatī; *havirdhānam*—de nombre Havirdhāna; *avindata*—obtuvo; *yaḥ*—quien; *indram*—al rey Indra; *aśva-hartāram*—que estaba robando el caballo de su padre; *vidvān api*—aunque él lo sabía; *na jaghnivān*—no mató.

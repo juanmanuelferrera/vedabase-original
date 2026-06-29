@@ -1,11 +1,11 @@
 ### Īśo 10
 
-> अन्यदेवाहुर्विद्ययाऽन्यदाहुरविद्यया।
+> अन्यदेवाहुर्विद्ययाऽन्यदाहुरविद्यया।\
 > इति शुश्रुम धीराणां ये नस्तद्विचचक्षिरे॥१०॥
 
-> anyad evāhur vidyayā-
-> nyad āhur avidyayā
-> iti śuśruma dhīrāṇāṁ
+> anyad evāhur vidyayā-\
+> nyad āhur avidyayā\
+> iti śuśruma dhīrāṇāṁ\
 > ye nas tad vicacakṣire
 
 *anyat*—different; *eva*—certainly; *āhuḥ*—said; *vid-yayā*—by culture of knowledge; *anyat*—different; *āhuḥ*—said; *avidyayā*—by culture of nescience; *iti*—thus; *śuśruma*—I heard; *dhīrāṇām*—from the sober; *ye*—who; *naḥ*—to us; *tat*—that; *vicacakṣire*—explained.

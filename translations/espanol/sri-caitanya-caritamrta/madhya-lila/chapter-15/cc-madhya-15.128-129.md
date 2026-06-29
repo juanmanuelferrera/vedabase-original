@@ -1,14 +1,14 @@
 ### CC Madhya 15.128-129
 
-> রঘুনন্দন সেবা করে কৃষ্ণের মন্দিরে ।
-> দ্বারে পুষ্করিণী, তার ঘাটের উপরে ॥১২৮॥
-> কদম্বের এক বৃক্ষে ফুটে বারমাসে ।
+> রঘুনন্দন সেবা করে কৃষ্ণের মন্দিরে ।\
+> দ্বারে পুষ্করিণী, তার ঘাটের উপরে ॥১২৮॥\
+> কদম্বের এক বৃক্ষে ফুটে বারমাসে ।\
 > নিত্য দুই ফুল হয় কৃষ্ণ-অবতংসে ॥১২৯॥
 
-> raghunandana sevā kare kṛṣṇera mandire
+> raghunandana sevā kare kṛṣṇera mandire\
 > dvāre puṣkariṇī, tāra ghāṭera upare
 
-> kadambera eka vṛkṣe phuṭe bāra-māse
+> kadambera eka vṛkṣe phuṭe bāra-māse\
 > nitya dui phula haya kṛṣṇa-avataṁse
 
 *raghunandana*—Raghunandana; *sevā kare*—sirve; *kṛṣṇera mandire*—en el templo del Señor Kṛṣṇa; *dvāre*—cerca de la puerta; *puṣkariṇī*—un lago; *tāra*—de él; *ghāṭera upare*—en la orilla; *kadambera*—de flores *kadamba*; *eka vṛkṣe*—en un árbol; *phuṭe*—florece; *bāra-māse*—todo el año; *nitya*—diariamente; *dui phula*—dos flores; *haya*—son; *kṛṣṇa-avataṁse*—adorno para el Señor Kṛṣṇa.

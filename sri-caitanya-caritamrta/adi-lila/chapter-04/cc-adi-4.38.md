@@ -1,9 +1,9 @@
 ### CC Adi 4.38
 
-> কোন কারণে যবে হৈল অবতারে মন ।
+> কোন কারণে যবে হৈল অবতারে মন ।\
 > যুগধর্ম-কাল হৈল সে কালে মিলন ॥৩৮॥
 
-> kona kāraṇe yabe haila avatāre mana
+> kona kāraṇe yabe haila avatāre mana\
 > yuga-dharma-kāla haila se kāle milana
 
 *kona kāraṇe*—by some reason; *yabe*—when; *haila*—there was; *avatāre*—in incarnation; *mana*—inclination; *yuga-dharma*—for the religion of the age; *kāla*—the time; *haila*—there was; *se kāle*—at that time; *milana*—conjunction.

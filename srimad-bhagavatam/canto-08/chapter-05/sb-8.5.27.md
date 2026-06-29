@@ -1,11 +1,11 @@
 ### SB 8.5.27
 
-> विपश्चितं प्राणमनोधियात्मनामर्थेन्द्रियाभासमनिद्रमव्रणम
+> विपश्चितं प्राणमनोधियात्मनामर्थेन्द्रियाभासमनिद्रमव्रणम\
 > छायातपौ यत्र न गृध्रपक्षौ तमक्षरं खं त्रियुगं व्रजामहे ॥२७॥
 
-> vipaścitaṁ prāṇa-mano-dhiyātmanām
-> arthendriyābhāsam anidram avraṇam
-> chāyātapau yatra na gṛdhra-pakṣau
+> vipaścitaṁ prāṇa-mano-dhiyātmanām\
+> arthendriyābhāsam anidram avraṇam\
+> chāyātapau yatra na gṛdhra-pakṣau\
 > tam akṣaraṁ khaṁ tri-yugaṁ vrajāmahe
 
 *vipaścitam*—unto the omniscient; *prāṇa*—how the living force is working; *manaḥ*—how the mind is working; *dhiya*—how the intelligence is working; *ātmanām*—of all living entities; *artha*—the objects of the senses; *indriya*—the senses; *ābhāsam*—knowledge; *anidram*—always awake and free from ignorance; *avraṇam*—without a material body subject to pains and pleasures; *chāyā-ātapau*—the shelter for all who are suffering from ignorance; *yatra*—wherein; *na*—not; *gṛdhra-pakṣau*—partiality toward any living being; *tam*—unto Him; *akṣaram*—infallible; *kham*—all-pervading like the sky; *tri-yugam*—appearing with six opulences in three *yugas* (Satya, Tretā and Dvāpara); *vrajāmahe*—I take shelter.

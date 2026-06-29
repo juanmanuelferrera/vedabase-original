@@ -1,9 +1,9 @@
 ### CC Madhya 4.61
 
-> পঞ্চগব্য, পঞ্চামৃতে স্নান করাঞা ।
+> পঞ্চগব্য, পঞ্চামৃতে স্নান করাঞা ।\
 > মহাস্নান করাইল শত ঘট দিঞা ॥৬১॥
 
-> pañca-gavya, pañcāmṛte snāna karāñā
+> pañca-gavya, pañcāmṛte snāna karāñā\
 > mahā-snāna karāila śata ghaṭa diñā
 
 *pañca-gavya*—in five kinds of products from the cow; *pañca-amṛte*—in a preparation made with five palatable foods; *snāna*—bath; *karāñā*—finishing; *mahā-snāna*—a vast bath with ghee and water; *karāila*—performed; *śata*—one hundred; *ghaṭa*—waterpots; *diñā*—with.

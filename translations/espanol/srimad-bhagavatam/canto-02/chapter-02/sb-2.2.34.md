@@ -1,11 +1,11 @@
 ### SB 2.2.34
 
-> भगवान्ब्रह्म कार्त्स्न्येन त्रिरन्वीक्ष्य मनीषया ।
+> भगवान्ब्रह्म कार्त्स्न्येन त्रिरन्वीक्ष्य मनीषया ।\
 > तदध्यवस्यत्कूटस्थो रतिरात्मन्यतो भवेत् ॥३४॥
 
-> bhagavān brahma kārtsnyena
-> trir anvīkṣya manīṣayā
-> tad adhyavasyat kūṭa-stho
+> bhagavān brahma kārtsnyena\
+> trir anvīkṣya manīṣayā\
+> tad adhyavasyat kūṭa-stho\
 > ratir ātman yato bhavet
 
 *bhagavān*—Brahmā, la gran personalidad; *brahma*—los *Vedas*; *kārtsnyena*—mediante el resumen; *triḥ*—tres veces; *anvīkṣya*—examinó escudriñadoramente; *manīṣayā*—con atención erudita; *tat*—eso; *adhyavasyat*—lo comprobó; *kūṭa-sthaḥ*—con concentración de mente; *ratiḥ*—atracción; *ātman (ātmani)*—a la Suprema Personalidad de Dios Śrī Kṛṣṇa; *yataḥ*—por lo cual; *bhavet*—ocurre que.

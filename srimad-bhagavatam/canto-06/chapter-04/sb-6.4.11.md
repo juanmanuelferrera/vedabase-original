@@ -1,11 +1,11 @@
 ### SB 6.4.11
 
-> आतिष्ठत सतां मार्गं कोपं यच्छत दीपितम
+> आतिष्ठत सतां मार्गं कोपं यच्छत दीपितम\
 > पित्रा पितामहेनापि जुष्टं वः प्रपितामहैः ॥११॥
 
-> ātiṣṭhata satāṁ mārgaṁ
-> kopaṁ yacchata dīpitam
-> pitrā pitāmahenāpi
+> ātiṣṭhata satāṁ mārgaṁ\
+> kopaṁ yacchata dīpitam\
+> pitrā pitāmahenāpi\
 > juṣṭaṁ vaḥ prapitāmahaiḥ
 
 *ātiṣṭhata*—just follow; *satām mārgam*—the path of the great saintly personalities; *kopam*—the anger; *yacchata*—subdue; *dīpitam*—which is now awakened; *pitrā*—by the father; *pitāmahena api*—and by the grandfather; *juṣṭam*—executed; *vaḥ*—your; *prapitāmahaiḥ*—by the great-grandfathers.

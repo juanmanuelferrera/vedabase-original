@@ -1,9 +1,9 @@
 ### CC Madhya 12.57
 
-> তবে রায় যাই’ সব রাজারে কহিলা ।
+> তবে রায় যাই’ সব রাজারে কহিলা ।\
 > প্রভুর আজ্ঞায় তাঁর পুত্র লঞা আইলা ॥৫৭॥
 
-> tabe rāya yāi' saba rājāre kahilā
+> tabe rāya yāi' saba rājāre kahilā\
 > prabhura ājñāya tāṅra putra lañā āilā
 
 *tabe*—thereafter; *rāya*—Rāmānanda Rāya; *yāi'*—going; *saba*—everything; *rājāre*—unto the King; *kahilā*—described; *prabhura ājñāya*—under the order of the Lord; *tāṅra putra*—his son; *lañā āilā*—he brought with him.

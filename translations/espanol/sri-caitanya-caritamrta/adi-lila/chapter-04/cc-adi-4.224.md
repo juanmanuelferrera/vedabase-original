@@ -1,13 +1,13 @@
 ### CC Adi 4.224
 
-> বিশ্বেষামনুরঞ্জনেন জনয়ন্নানন্দমিন্দীবর-
-> শ্রেণীশ্যামলকোমলৈরুপনয়ন্নঙ্গৈরনঙ্গোৎসবম্ ।
-> স্বচ্ছন্দং ব্রজসুন্দরীভিরভিতঃ প্রত্যঙ্গমালিঙ্গিতঃ
+> বিশ্বেষামনুরঞ্জনেন জনয়ন্নানন্দমিন্দীবর-\
+> শ্রেণীশ্যামলকোমলৈরুপনয়ন্নঙ্গৈরনঙ্গোৎসবম্ ।\
+> স্বচ্ছন্দং ব্রজসুন্দরীভিরভিতঃ প্রত্যঙ্গমালিঙ্গিতঃ\
 > শৃঙ্গারঃ সখি মূর্তিমানিব মধৌ মুগ্ধো হরিঃ ক্রীড়তি ॥২২৪॥
 
-> viśveṣām anurañjanena janayann ānandam indīvara-
-> śreṇī-śyāmala-komalair upanayann aṅgair anaṅgotsavam
-> svacchandaṁ vraja-sundarībhir abhitaḥ praty-aṅgam āliṅgitaḥ
+> viśveṣām anurañjanena janayann ānandam indīvara-\
+> śreṇī-śyāmala-komalair upanayann aṅgair anaṅgotsavam\
+> svacchandaṁ vraja-sundarībhir abhitaḥ praty-aṅgam āliṅgitaḥ\
 > śṛṅgāraḥ sakhi mūrtimān iva madhau mugdho hariḥ krīḍati
 
 *viśveṣām*—de todas las gopīs; *anurañjanena*—por el acto de complacer; *janayan*—produciendo; *ānandam*—la bienaventuranza; *indīvara-śreṇī*—como una hilera de lotos azules; *śyāmala*—azulado oscuro; *komalaiḥ*—y suaves; *upanayan*—presentando; *aṅgaiḥ*—con Sus miembros; *anaṅga-utsavam*—un festival para Cupido; *svacchandam*—sin restricción; *vraja-sundarībhiḥ*—por las jóvenes de Vraja; *abhitaḥ*—por ambos lados; *prati-aṅgam*—cada miembro; *āliṅgitaḥ*—abrazado; *śṛṅgāraḥ*—amor conyugal; *sakhi*—¡oh, amiga!; *mūrtimān*—personificado; *iva*—como; *madhau*—en la primavera; *mugdhaḥ*—cautivado; *hariḥ*—el Señor Hari; *krīḍati*—juega.

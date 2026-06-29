@@ -1,9 +1,9 @@
 ### CC Madhya 17.131
 
-> ‘নাম’, ‘বিগ্রহ’, ‘স্বরূপ’ — তিন একরূপ ।
+> ‘নাম’, ‘বিগ্রহ’, ‘স্বরূপ’ — তিন একরূপ ।\
 > তিনে ‘ভেদ’ নাহি, — তিন ‘চিদানন্দ-রূপ’ ॥১৩১॥
 
-> 'nāma', 'vigraha', 'svarūpa'—tina eka-rūpa
+> 'nāma', 'vigraha', 'svarūpa'—tina eka-rūpa\
 > tine 'bheda' nāhi,—tina 'cid-ānanda-rūpa'
 
 *nāma*—the name; *vigraha*—form; *sva-rūpa*—personality; *tina*—all three; *eka-rūpa*—one and the same; *tine*—between the three; *bheda nāhi*—there is no difference; *tina*—all three; *cit-ānanda-rūpa*—transcendentally blissful.

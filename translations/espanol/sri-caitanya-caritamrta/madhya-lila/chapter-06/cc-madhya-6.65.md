@@ -1,9 +1,9 @@
 ### CC Madhya 6.65
 
-> আমার মাতৃষসা-গৃহ — নির্জন স্থান ।
+> আমার মাতৃষসা-গৃহ — নির্জন স্থান ।\
 > তাহাঁ বাসা দেহ, কর সর্ব সমাধান ।।’ ॥ ৬৫ ॥
 
-> āmāra mātṛ-svasā-gṛha--nirjana sthāna
+> āmāra mātṛ-svasā-gṛha--nirjana sthāna\
 > tāhāṅ vāsā deha, kara sarva samādhāna'
 
 *āmāra*—mi; *mātṛ-svasā*—de la tía; *gṛha*—el hogar; *nirjana sthāna*—lugar muy solitario; *tāhāṅ*—allí; *vāsā*—un aposento; *deha*—da; *kara*—haz; *sarva*—todos; *samādhāna*—los arreglos.

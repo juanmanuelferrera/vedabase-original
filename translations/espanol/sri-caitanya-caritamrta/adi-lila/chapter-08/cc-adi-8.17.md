@@ -1,11 +1,11 @@
 ### CC Adi 8.17
 
-> জ্ঞানতঃ সুলভা মুক্তির্ভুক্তির্যজ্ঞাদিপুণ্যতঃ ।
+> জ্ঞানতঃ সুলভা মুক্তির্ভুক্তির্যজ্ঞাদিপুণ্যতঃ ।\
 > সেয়ং সাধনসাহস্রৈর্হরিভক্তিঃ সুদুর্লভা ॥১৭॥
 
-> jñānataḥ su-labhā muktir
-> bhuktir yajñādi-puṇyataḥ
-> seyaṁ sādhana-sāhasrair
+> jñānataḥ su-labhā muktir\
+> bhuktir yajñādi-puṇyataḥ\
+> seyaṁ sādhana-sāhasrair\
 > hāri-bhaktiḥ su-durlabhā
 
 *jñānataḥ*—mediante el cultivo de conocimiento; *su-labhā*—fácilmente obtenible; *muktiḥ*—liberación; *bhuktiḥ*—disfrute de los sentidos; *yajña-ādi*—la práctica de sacrificios, etc.; *puṇyataḥ*—y mediante la ejecución de actividades piadosas; *sā*—esa; *iyam*—esta; *sādhana-sāhasraiḥ*—la ejecución de miles de sacrificios; *hari-bhaktiḥ*—servicio devocional; *su-durlabhā*—es muy raro.

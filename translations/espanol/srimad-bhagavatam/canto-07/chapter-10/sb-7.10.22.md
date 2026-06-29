@@ -1,11 +1,11 @@
 ### SB 7.10.22
 
-> कुरु त्वं प्रेतकृत्यानि पितुः पूतस्य सर्वशः
+> कुरु त्वं प्रेतकृत्यानि पितुः पूतस्य सर्वशः\
 > मदङ्गस्पर्शनेनाङ्ग लोकान्यास्यति सुप्रजाः ॥२२॥
 
-> kuru tvaṁ preta-kṛtyāni
-> pituḥ pūtasya sarvaśaḥ
-> mad-aṅga-sparśanenāṅga
+> kuru tvaṁ preta-kṛtyāni\
+> pituḥ pūtasya sarvaśaḥ\
+> mad-aṅga-sparśanenāṅga\
 > lokān yāsyati suprajāḥ
 
 *kuru*—realiza; *tvam*—tú; *preta-kṛtyāni*—la ceremonia ritual que se celebra tras la muerte; *pituḥ*—de tu padre; *pūtasya*—ya purificado; *sarvaśaḥ*—en todo aspecto; *mat-aṅga*—Mi cuerpo; *sparśanena*—por tocar; *aṅga*—mi querido niño; *lokān*—a los planetas; *yāsyati*—se elevará; *su-prajāḥ*—para ser un ciudadano devoto.

@@ -1,9 +1,9 @@
 ### CC Adi 5.171
 
-> এত বলি’ নাচে গায়, করয়ে সন্তোষ ।
+> এত বলি’ নাচে গায়, করয়ে সন্তোষ ।\
 > কৃষ্ণকার্য করে বিপ্র — না করিল রোষ ॥১৭১॥
 
-> eta bali' nāce gāya, karaye santoṣa
+> eta bali' nāce gāya, karaye santoṣa\
 > kṛṣṇa-kārya kare vipra--nā karila roṣa
 
 *eta bali'*—tras decir esto; *nāce*—danza; *gāya*—canta; *karaye santoṣa*—queda satisfecho; *kṛṣṇa-kārya*—los deberes de adoración a la Deidad; *kare*—realiza; *vipra*—el *brāhmaṇa*; *nā karila*—no se puso; *roṣa*—airado.

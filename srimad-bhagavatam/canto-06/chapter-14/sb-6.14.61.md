@@ -1,11 +1,11 @@
 ### SB 6.14.61
 
-> एवं कश्मलमापन्नं नष्टसंज्ञअमनायकम
+> एवं कश्मलमापन्नं नष्टसंज्ञअमनायकम\
 > ज्ञआत्वाङ्गिरा नाम ऋषिराजगाम सनारदः ॥६१॥
 
-> evaṁ kaśmalam āpannaṁ
-> naṣṭa-saṁjñam anāyakam
-> jñātvāṅgirā nāma ṛṣir
+> evaṁ kaśmalam āpannaṁ\
+> naṣṭa-saṁjñam anāyakam\
+> jñātvāṅgirā nāma ṛṣir\
 > ājagāma sanāradaḥ
 
 *evam*—thus; *kaśmalam*—misery; *āpannam*—having gotten; *naṣṭa*—lost; *saṁjñam*—consciousness; *anāyakam*—without help; *jñātvā*—knowing; *aṅgirāḥ*—Aṅgirā; *nāma*—named; *ṛṣiḥ*—the saintly person; *ājagāma*—came; *sa-nāradaḥ*—with Nārada Muni.

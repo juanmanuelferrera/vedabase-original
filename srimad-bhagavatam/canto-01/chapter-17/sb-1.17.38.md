@@ -1,13 +1,13 @@
 ### SB 1.17.38
 
-> सूत उवाच
-> अभ्यर्थितस्तदा तस्मै स्थानानि कलये ददौ ।
+> सूत उवाच\
+> अभ्यर्थितस्तदा तस्मै स्थानानि कलये ददौ ।\
 > द्यूतं पानं स्त्रियः सूना यत्राधर्मश्चतुर्विधः ॥३८॥
 
-> sūta uvāca
-> abhyarthitas tadā tasmai
-> sthānāni kalaye dadau
-> dyūtaṁ pānaṁ striyaḥ sūnā
+> sūta uvāca\
+> abhyarthitas tadā tasmai\
+> sthānāni kalaye dadau\
+> dyūtaṁ pānaṁ striyaḥ sūnā\
 > yatrādharmaś catur-vidhaḥ
 
 *sūtaḥ uvāca*—Sūta Gosvāmī said; *abhyarthitaḥ*—thus being petitioned; *tadā*—at that time; *tasmai*—unto him; *sthānāni*—places; *kalaye*—to the personality of Kali; *dadau*—gave him permission; *dyūtam*—gambling; *pānam*—drinking; *striyaḥ*—illicit association with women; *sūnā*—animal slaughter; *yatra*—wherever; *adharmaḥ*—sinful activities; *catuḥ-vidhaḥ*—four kinds of.

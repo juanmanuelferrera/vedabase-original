@@ -1,9 +1,9 @@
 ### CC Antya 1.106
 
-> সার্বভৌম-রামানন্দে পরীক্ষা করিতে ।
+> সার্বভৌম-রামানন্দে পরীক্ষা করিতে ।\
 > শ্রীরূপের গুণ দুঁহারে লাগিলা কহিতে ॥১০৬॥
 
-> sārvabhauma-rāmānande parīkṣā karite
+> sārvabhauma-rāmānande parīkṣā karite\
 > śrī-rūpera guṇa duṅhāre lāgilā kahite
 
 *sārvabhauma-rāmānande*—Sārvabhauma Bhaṭṭācārya and Rāmānanda Rāya; *parīkṣā karite*—to examine; *śrī-rūpera guṇa*—the transcendental qualities of Śrīla Rūpa Gosvāmī; *duṅhāre*—unto both of them; *lāgilā kahite*—He began to praise.

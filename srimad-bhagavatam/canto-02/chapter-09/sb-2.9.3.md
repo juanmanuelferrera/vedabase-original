@@ -1,11 +1,11 @@
 ### SB 2.9.3
 
-> यर्हि वाव महिम्नि स्वे परस्मिन्कालमाययोः ।
+> यर्हि वाव महिम्नि स्वे परस्मिन्कालमाययोः ।\
 > रमेत गतसम्मोहस्त्यक्त्वोदास्ते तदोभयम् ॥३॥
 
-> yarhi vāva mahimni sve
-> parasmin kāla-māyayoḥ
-> rameta gata-sammohas
+> yarhi vāva mahimni sve\
+> parasmin kāla-māyayoḥ\
+> rameta gata-sammohas\
 > tyaktvodāste tadobhayam
 
 *yarhi*—at any time; *vāva*—certainly; *mahimni*—in the glory; *sve*—of himself; *parasmin*—in the Supreme; *kāla*—time; *māyayoḥ*—of the material energy; *rameta*—enjoys; *gata-sammohaḥ*—being freed from the misconception; *tyaktvā*—giving up; *udāste*—in fullness; *tadā*—then; *ubhayam*—both (the misconceptions of I and mine).

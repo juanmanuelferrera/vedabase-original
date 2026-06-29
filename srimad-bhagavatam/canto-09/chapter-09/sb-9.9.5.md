@@ -1,11 +1,11 @@
 ### SB 9.9.5
 
-> किं चाहं न भुवं यास्ये नरा मय्यामृजन्त्यघम
+> किं चाहं न भुवं यास्ये नरा मय्यामृजन्त्यघम\
 > मृजामि तदघं क्वाहं राजंस्तत्र विचिन्त्यताम ॥५॥
 
-> kiṁ cāhaṁ na bhuvaṁ yāsye
-> narā mayy āmṛjanty agham
-> mṛjāmi tad aghaṁ kvāhaṁ
+> kiṁ cāhaṁ na bhuvaṁ yāsye\
+> narā mayy āmṛjanty agham\
+> mṛjāmi tad aghaṁ kvāhaṁ\
 > rājaṁs tatra vicintyatām
 
 *kim ca*—also; *aham*—I; *na*—not; *bhuvam*—to the planet earth; *yāsye*—shall go; *narāḥ*—the people in general; *mayi*—in me, in my water; *āmṛjanti*—cleanse; *agham*—the reactions of their sinful activity; *mṛjāmi*—I shall wash; *tat*—that; *agham*—accumulation of sinful reactions; *kva*—unto whom; *aham*—I; *rājan*—O King; *tatra*—on this fact; *vicintyatām*—please consider carefully and decide.

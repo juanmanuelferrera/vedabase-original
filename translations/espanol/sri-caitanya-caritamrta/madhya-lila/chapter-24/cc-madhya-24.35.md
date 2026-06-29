@@ -1,9 +1,9 @@
 ### CC Madhya 24.35
 
-> ‘ইত্থম্ভূতগুণঃ’-শব্দের শুনহ ব্যাখ্যান ।
+> ‘ইত্থম্ভূতগুণঃ’-শব্দের শুনহ ব্যাখ্যান ।\
 > ‘ইত্থং’-শব্দের ভিন্ন অর্থ, ‘গুণ’-শব্দের আন ॥৩৫॥
 
-> 'ittham-bhūta-guṇaḥ'-śabdera śunaha vyākhyāna
+> 'ittham-bhūta-guṇaḥ'-śabdera śunaha vyākhyāna\
 > 'itthaṁ'-śabdera bhinna artha, 'guṇa'-śabdera āna
 
 *ittham-bhūta-guṇaḥ*—que posee cualidades como estas; *śabdera*—de la palabra; *śunaha*—escuchad, por favor; *vyākhyāna*—la explicación; *ittham*—ittham; *śabdera*—de la palabra; *bhinna artha*—diferentes significados; *guṇa*—guṇa; *śabdera*—de la palabra; *āna*—otro.

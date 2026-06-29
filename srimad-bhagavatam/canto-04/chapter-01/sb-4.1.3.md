@@ -1,11 +1,11 @@
 ### SB 4.1.3
 
-> प्रजापतिः स भगवान्रुचिस्तस्यामजीजनत् ।
+> प्रजापतिः स भगवान्रुचिस्तस्यामजीजनत् ।\
 > मिथुनं ब्रह्मवर्चस्वी परमेण समाधिना ॥३॥
 
-> prajāpatiḥ sa bhagavān
-> rucis tasyām ajījanat
-> mithunaṁ brahma-varcasvī
+> prajāpatiḥ sa bhagavān\
+> rucis tasyām ajījanat\
+> mithunaṁ brahma-varcasvī\
 > parameṇa samādhinā
 
 *prajāpatiḥ*—one who is entrusted with begetting children; *saḥ*—he; *bhagavān*—the most opulent; *ruciḥ*—the great sage Ruci; *tasyām*—in her; *ajījanat*—gave birth; *mithunam*—couple; *brahma-varcasvī*—spiritually very much powerful; *parameṇa*—with great strength; *samādhinā*—in trance.

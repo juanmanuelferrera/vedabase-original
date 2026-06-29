@@ -1,11 +1,11 @@
 ### SB 4.8.72
 
-> त्रिरात्रान्ते त्रिरात्रान्ते कपित्थबदराशनः ।
+> त्रिरात्रान्ते त्रिरात्रान्ते कपित्थबदराशनः ।\
 > आत्मवृत्त्यनुसारेण मासं निन्येऽर्चयन्हरिम् ॥७२॥
 
-> tri-rātrānte tri-rātrānte
-> kapittha-badarāśanaḥ
-> ātma-vṛtty-anusāreṇa
+> tri-rātrānte tri-rātrānte\
+> kapittha-badarāśanaḥ\
+> ātma-vṛtty-anusāreṇa\
 > māsaṁ ninye 'rcayan harim
 
 *tri*—tres; *rātra-ante*—al final de la noche; *tri*—tres; *rātra-ante*—al final de la noche; *kapittha-badara*—frutas y bayas; *aśanaḥ*—comer; *ātma-vṛtti*—solo para mantener el cuerpo; *anusāreṇa*—lo mínimo imprescindible; *māsam*—un mes; *ninye*—pasó; *arcayan*—adorando; *harim*—a la Suprema Personalidad de Dios.

@@ -1,11 +1,11 @@
 ### SB 5.15.10
 
-> यमभ्यषिञ्चन्परया मुदा सतीः सत्याशिषो दक्षकन्याः सरिद्भिः
+> यमभ्यषिञ्चन्परया मुदा सतीः सत्याशिषो दक्षकन्याः सरिद्भिः\
 > यस्य प्रजानां दुदुहे धराशिषो निराशिषो गुणवत्सस्नुतोधाः ॥१०॥
 
-> yam abhyaṣiñcan parayā mudā satīḥ
-> satyāśiṣo dakṣa-kanyāḥ saridbhiḥ
-> yasya prajānāṁ duduhe dharāśiṣo
+> yam abhyaṣiñcan parayā mudā satīḥ\
+> satyāśiṣo dakṣa-kanyāḥ saridbhiḥ\
+> yasya prajānāṁ duduhe dharāśiṣo\
 > nirāśiṣo guṇa-vatsa-snutodhāḥ
 
 *yam*—whom; *abhyaṣiñcan*—bathed; *parayā*—with great; *mudā*—satisfaction; *satīḥ*—all chaste and devoted to their husbands; *satya*—true; *āśiṣaḥ*—whose blessings; *dakṣa-kanyāḥ*—the daughters of King Dakṣa; *saridbhiḥ*—with sanctified water; *yasya*—whose; *prajānām*—of the citizens; *duduhe*—fulfilled; *dharā*—the planet earth; *āśiṣaḥ*—of all desires; *nirāśiṣaḥ*—although personally having no desire; *guṇa-vatsa-snuta-udhāḥ*—earth becoming like a cow whose udders flowed upon seeing Gaya's qualities in ruling over the citizens.

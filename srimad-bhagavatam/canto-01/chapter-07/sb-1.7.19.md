@@ -1,11 +1,11 @@
 ### SB 1.7.19
 
-> यदाशरणमात्मानमैक्षत श्रान्तवाजिनम् ।
+> यदाशरणमात्मानमैक्षत श्रान्तवाजिनम् ।\
 > अस्त्रं ब्रह्मशिरो मेने आत्मत्राणं द्विजात्मजः ॥१९॥
 
-> yadāśaraṇam ātmānam
-> aikṣata śrānta-vājinam
-> astraṁ brahma-śiro mene
+> yadāśaraṇam ātmānam\
+> aikṣata śrānta-vājinam\
+> astraṁ brahma-śiro mene\
 > ātma-trāṇaṁ dvijātmajaḥ
 
 *yadā*—when; *aśaraṇam*—without being alternatively protected; *ātmānam*—his own self; *aikṣata*—saw; *śrānta-vājinam*—the horses being tired; *astram*—weapon; *brahma-śiraḥ*—the topmost or ultimate (nuclear); *mene*—applied; *ātma-trāṇam*—just to save himself; *dvija-ātma-jaḥ*—the son of a *brāhmaṇa.*

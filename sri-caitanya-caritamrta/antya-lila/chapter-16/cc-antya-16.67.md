@@ -1,9 +1,9 @@
 ### CC Antya 16.67
 
-> ‘কৃষ্ণ কহ’ বলি’ প্রভু বলেন বার বার ।
+> ‘কৃষ্ণ কহ’ বলি’ প্রভু বলেন বার বার ।\
 > তবু কৃষ্ণনাম বালক না করে উচ্চার ॥৬৭॥
 
-> 'kṛṣṇa kaha' bali' prabhu balena bāra bāra
+> 'kṛṣṇa kaha' bali' prabhu balena bāra bāra\
 > tabu kṛṣṇa-nāma bālaka nā kare uccāra
 
 *kṛṣṇa kaha*—say Kṛṣṇa; *bali'*—saying; *prabhu*—Śrī Caitanya Mahāprabhu; *balena*—said; *bāra bāra*—again and again; *tabu*—still; *kṛṣṇa-nāma*—the holy name of Kṛṣṇa; *bālaka*—the boy; *nā kare uccāra*—did not utter.

@@ -1,11 +1,11 @@
 ### SB 9.14.49
 
-> पुरूरवस एवासीत्त्रयी त्रेतामुखे नृप
+> पुरूरवस एवासीत्त्रयी त्रेतामुखे नृप\
 > अग्निना प्रजया राजा लोकं गान्धर्वमेयिवान ॥४९॥
 
-> purūravasa evāsīt
-> trayī tretā-mukhe nṛpa
-> agninā prajayā rājā
+> purūravasa evāsīt\
+> trayī tretā-mukhe nṛpa\
+> agninā prajayā rājā\
 > lokaṁ gāndharvam eyivān
 
 *purūravasaḥ*—from King Purūravā; *eva*—thus; *āsīt*—there was; *trayī*—the Vedic principles of *karma, jñāna* and *upāsanā*; *tretā-mukhe*—in the beginning of the Tretā-yuga; *nṛpa*—O King Parīkṣit; *agninā*—simply by generating the fire of sacrifice; *prajayā*—by his son; *rājā*—King Purūravā; *lokam*—to the planet; *gāndharvam*—of the Gandharvas; *eyivān*—achieved.

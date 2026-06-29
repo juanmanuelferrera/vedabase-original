@@ -1,11 +1,11 @@
 ### SB 4.16.10
 
-> अव्यक्तवर्त्मैष निगूढकार्यो गम्भीरवेधा उपगुप्तवित्तः ।
+> अव्यक्तवर्त्मैष निगूढकार्यो गम्भीरवेधा उपगुप्तवित्तः ।\
 > अनन्तमाहात्म्यगुणैकधामा पृथुः प्रचेता इव संवृतात्मा ॥१०॥
 
-> avyakta-vartmaiṣa nigūḍha-kāryo
-> gambhīra-vedhā upagupta-vittaḥ
-> ananta-māhātmya-guṇaika-dhāmā
+> avyakta-vartmaiṣa nigūḍha-kāryo\
+> gambhīra-vedhā upagupta-vittaḥ\
+> ananta-māhātmya-guṇaika-dhāmā\
 > pṛthuḥ pracetā iva saṁvṛtātmā
 
 *avyakta*—no manifiestas; *vartmā*—sus tácticas políticas; *eṣaḥ*—este rey; *nigūḍha*—serias, secretas; *kāryaḥ*—sus actividades; *gambhīra*—grave, secreto; *vedhāḥ*—su cumplimiento; *upagupta*—guardado en secreto; *vittaḥ*—su tesoro; *ananta*—ilimitadas; *māhātmya*—de glorias; *guṇa*—de buenas cualidades; *eka-dhāmā*—el único receptáculo; *pṛthuḥ*—el rey Pṛthu; *pracetāḥ*—Varuṇa, el rey de los mares; *iva*—como; *saṁvṛta*—cubierto; *ātmā*—ser.

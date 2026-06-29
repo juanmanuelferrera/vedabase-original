@@ -1,9 +1,9 @@
 ### CC Antya 6.275
 
-> মোর চিত্ত দ্রব্য লইতে না হয় নির্মল ।
+> মোর চিত্ত দ্রব্য লইতে না হয় নির্মল ।\
 > এই নিমন্ত্রণে দেখি, — ‘প্রতিষ্ঠা’-মাত্র ফল ॥২৭৫॥
 
-> mora citta dravya la-ite nā haya nirmala
+> mora citta dravya la-ite nā haya nirmala\
 > ei nimantraṇe dekhi,—'pratiṣṭhā'-mātra phala
 
 *mora citta*—my consciousness; *dravya la-ite*—to accept the goods; *nā haya*—is not; *nirmala*—pure; *ei nimantraṇe*—by this invitation; *dekhi*—I see; *pratiṣṭhā*—reputation; *mātra*—only; *phala*—the result.

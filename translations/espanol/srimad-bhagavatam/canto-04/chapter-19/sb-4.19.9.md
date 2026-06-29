@@ -1,11 +1,11 @@
 ### SB 4.19.9
 
-> सिन्धवो रत्ननिकरान्गिरयोऽन्नं चतुर्विधम् ।
+> सिन्धवो रत्ननिकरान्गिरयोऽन्नं चतुर्विधम् ।\
 > उपायनमुपाजह्रुः सर्वे लोकाः सपालकाः ॥९॥
 
-> sindhavo ratna-nikarān
-> girayo 'nnaṁ catur-vidham
-> upāyanam upājahruḥ
+> sindhavo ratna-nikarān\
+> girayo 'nnaṁ catur-vidham\
+> upāyanam upājahruḥ\
 > sarve lokāḥ sa-pālakāḥ
 
 *sindhavaḥ*—los océanos; *ratna-nikarān*—montones de joyas; *girayaḥ*—las montañas; *annam*—comestibles; *catuḥ-vidham*—cuatro clases de; *upāyanam*—obsequios; *upājahruḥ*—traídos; *sarve*—todos; *lokāḥ*—la población de todos los planetas; *sa-pālakāḥ*—junto con los gobernantes.

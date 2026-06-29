@@ -1,9 +1,9 @@
 ### CC Adi 11.35
 
-> মহাভাগবত যদুনাথ কবিচন্দ্র ।
+> মহাভাগবত যদুনাথ কবিচন্দ্র ।\
 > যাঁহার হৃদয়ে নৃত্য করে নিত্যানন্দ ॥৩৫॥
 
-> mahā-bhāgavata yadunātha kavicandra
+> mahā-bhāgavata yadunātha kavicandra\
 > yāṅhāra hṛdaye nṛtya kare nityānanda
 
 *mahā-bhāgavata*—a great devotee; *yadunātha kavicandra*—of the name Yadunātha Kavicandra; *yāṅhāra*—whose; *hṛdaye*—in the heart; *nṛtya*—dancing; *kare*—does; *nityānanda*—Lord Nityānanda Prabhu.

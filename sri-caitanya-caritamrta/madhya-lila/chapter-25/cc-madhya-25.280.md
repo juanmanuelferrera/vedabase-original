@@ -1,13 +1,13 @@
 ### CC Madhya 25.280
 
-> শ্রীচৈতন্য, নিত্যানন্দ, অদ্বৈতাদি ভক্তবৃন্দ,
-> আর যত শ্রোতা ভক্তগণ ।
-> তোমা-সবার শ্রীচরণ, করি শিরে বিভূষণ,
+> শ্রীচৈতন্য, নিত্যানন্দ, অদ্বৈতাদি ভক্তবৃন্দ,\
+> আর যত শ্রোতা ভক্তগণ ।\
+> তোমা-সবার শ্রীচরণ, করি শিরে বিভূষণ,\
 > যাহা হৈতে অভীষ্ট-পূরণ ॥২৮০॥
 
-> śrī-caitanya, nityānanda, advaitādi bhakta-vṛnda,
-> āra yata śrotā bhakta-gaṇa
-> tomā-sabāra śrī-caraṇa, kari śire vibhūṣaṇa,
+> śrī-caitanya, nityānanda, advaitādi bhakta-vṛnda,\
+> āra yata śrotā bhakta-gaṇa\
+> tomā-sabāra śrī-caraṇa, kari śire vibhūṣaṇa,\
 > yāhā haite abhīṣṭa-pūraṇa
 
 *śrī-caitanya nityānanda*—Śrī Caitanya Mahāprabhu and Lord Nityānanda; *advaita-ādi bhakta-vṛnda*—as well as the devotees like Advaita Ācārya; *āra*—and; *yata śrotā bhakta-gaṇa*—all the devotees who listen; *tomā-sabāra śrī-caraṇa*—the lotus feet of all of you; *kari śire vibhūṣaṇa*—I keep on my head as a helmet; *yāhā haite*—from which; *abhīṣṭa-pūraṇa*—all my purposes will be served.

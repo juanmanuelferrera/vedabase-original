@@ -1,11 +1,11 @@
 ### SB 4.30.46
 
-> भस्मसात्क्रियमाणांस्तान्द्रुमान्वीक्ष्य पितामहः ।
+> भस्मसात्क्रियमाणांस्तान्द्रुमान्वीक्ष्य पितामहः ।\
 > आगतः शमयामास पुत्रान्बर्हिष्मतो नयैः ॥४६॥
 
-> bhasmasāt kriyamāṇāṁs tān
-> drumān vīkṣya pitāmahaḥ
-> āgataḥ śamayām āsa
+> bhasmasāt kriyamāṇāṁs tān\
+> drumān vīkṣya pitāmahaḥ\
+> āgataḥ śamayām āsa\
 > putrān barhiṣmato nayaiḥ
 
 *bhasmasāt*—a cenizas; *kriyamāṇān*—siendo reducidos; *tān*—todos ellos; *drumān*—los árboles; *vīkṣya*—al ver; *pitāmahaḥ*—el Señor Brahmā; *āgataḥ*—fue allí; *śamayām āsa*—calmó; *putrān*—a los hijos; *barhiṣmataḥ*—del rey Barhiṣmān; *nayaiḥ*—con lógica.

@@ -1,9 +1,9 @@
 ### CC Antya 4.233
 
-> প্রভু প্রীত্যে তাঁর মাথে ধরিলা চরণ ।
+> প্রভু প্রীত্যে তাঁর মাথে ধরিলা চরণ ।\
 > রূপ-সনাতন-সম্বন্ধে কৈলা আলিঙ্গন ॥২৩৩॥
 
-> prabhu prītye tāṅra māthe dharilā caraṇa
+> prabhu prītye tāṅra māthe dharilā caraṇa\
 > rūpa-sanātana-sambandhe kailā āliṅgana
 
 *prabhu prītye*—por la misericordia de Śrī Caitanya Mahāprabhu; *tāṅra*—su; *māthe*—sobre la cabeza; *dharilā caraṇa*—posó Sus pies de loto; *rūpa-sanātana-sambandhe*—por su relación con Rūpa Gosvāmī y Sanātana Gosvāmī; *kailā āliṅgana*—abrazó.

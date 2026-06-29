@@ -1,9 +1,9 @@
 ### CC Madhya 5.102
 
-> নূপুরের ধ্বনি শুনি’ আনন্দিত মন ।
+> নূপুরের ধ্বনি শুনি’ আনন্দিত মন ।\
 > উত্তমান্ন পাক করি’ করায় ভোজন ॥১০২॥
 
-> nūpurera dhvani śuni' ānandita mana
+> nūpurera dhvani śuni' ānandita mana\
 > uttamānna pāka kari' karāya bhojana
 
 *nūpurera*—de las campanillas de los tobillos; *dhvani*—los sonidos; *śuni'*—escuchando; *ānandita*—muy complacida; *mana*—la mente; *uttama-anna*—arroz de primera clase; *pāka*—cocinar; *kari'*—haciendo; *karāya*—hace; *bhojana*—comer.

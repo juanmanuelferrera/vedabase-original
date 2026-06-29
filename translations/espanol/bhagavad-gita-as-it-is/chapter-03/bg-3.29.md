@@ -1,11 +1,11 @@
 ### Bg 3.29
 
-> प्रकृतेर्गुणसम्मूढाः सज्जन्ते गुणकर्मसु ।
+> प्रकृतेर्गुणसम्मूढाः सज्जन्ते गुणकर्मसु ।\
 > तानकृत्स्नविदो मन्दान्कृत्स्नविन्न विचालयेत् ॥२९॥
 
-> prakṛter guṇa-saṁmūḍhāḥ
-> sajjante guṇa-karmasu
-> tān akṛtsna-vido mandān
+> prakṛter guṇa-saṁmūḍhāḥ\
+> sajjante guṇa-karmasu\
+> tān akṛtsna-vido mandān\
 > kṛtsna-vin na vicālayet
 
 *prakṛteḥ*—obligado por las modalidades materiales; *guṇa-saṁmūḍhāḥ*—engañados por la identificación material; *sajjante*—se ocupan; *guṇa-karmasu*—en actividades materiales; *tān*—todas esas; *akṛtsna-vidaḥ*—personas con una escasa reserva de conocimiento; *mandān*—perezosas para entender la autorrealización; *kṛtsna-vit*—aquel que posee verdadero conocimiento; *na*—que no; *vicālayet*—tratar de agitar.

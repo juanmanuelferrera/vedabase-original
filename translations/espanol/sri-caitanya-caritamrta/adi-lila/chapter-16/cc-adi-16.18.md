@@ -1,9 +1,9 @@
 ### CC Adi 16.18
 
-> প্রভুর অতর্ক্যলীলা বুঝিতে না পারি ।
+> প্রভুর অতর্ক্যলীলা বুঝিতে না পারি ।\
 > স্বসঙ্গ ছাড়াঞা কেনে পাঠায় কাশীপুরী ॥১৮॥
 
-> prabhura atarkya-līlā bujhite nā pāri
+> prabhura atarkya-līlā bujhite nā pāri\
 > sva-saṅga chāḍāñā kene pāṭhāya kāśīpurī
 
 *prabhura*—del Señor Caitanya Mahāprabhu; *atarkya-līlā*—pasatiempos inconcebibles; *bujhite*—comprender; *nā*—no; *pāri*—puedo; *sva-saṅga*—asociación personal; *chāḍāñā*—evitando; *kene*—por qué; *pāṭhāya*—envía; *kāśī-purī*—a Benarés.

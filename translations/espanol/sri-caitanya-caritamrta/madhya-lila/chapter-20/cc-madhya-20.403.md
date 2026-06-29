@@ -1,9 +1,9 @@
 ### CC Madhya 20.403
 
-> সংক্ষেপে কহিলুঁ কৃষ্ণের স্বরূপ-বিচার ।
+> সংক্ষেপে কহিলুঁ কৃষ্ণের স্বরূপ-বিচার ।\
 > ‘অনন্ত’ কহিতে নারে ইহার বিস্তার ॥৪০৩॥
 
-> saṅkṣepe kahiluṅ kṛṣṇera svarūpa-vicāra
+> saṅkṣepe kahiluṅ kṛṣṇera svarūpa-vicāra\
 > 'ananta' kahite nāre ihāra vistāra
 
 *saṅkṣepe*—brevemente; *kahiluṅ*—he descrito; *kṛṣṇera*—del Señor Kṛṣṇa; *svarūpa-vicāra*—consideración de Sus diferentes formas y aspectos; *ananta*—el Señor Ananta; *kahite nāre*—no puede describir; *ihāra*—de esto; *vistāra*—la extensión.

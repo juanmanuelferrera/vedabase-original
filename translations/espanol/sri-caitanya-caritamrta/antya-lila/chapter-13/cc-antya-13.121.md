@@ -1,9 +1,9 @@
 ### CC Antya 13.121
 
-> ভাগবত পড়, সদা লহ কৃষ্ণনাম ।
+> ভাগবত পড়, সদা লহ কৃষ্ণনাম ।\
 > অচিরে করিবেন কৃপা কৃষ্ণ ভগবান্ ।।” ॥ ১২১ ॥
 
-> bhāgavata paḍa, sadā laha kṛṣṇa-nāma
+> bhāgavata paḍa, sadā laha kṛṣṇa-nāma\
 > acire karibena kṛpā kṛṣṇa bhagavān"
 
 *bhāgavata paḍa*—lee el Śrīmad-Bhāgavatam; *sadā*—siempre; *laha kṛṣṇa-nāma*—canta el mantra Hare Kṛṣṇa; *acire*—muy pronto; *karibena*—concederá; *kṛpā*—misericordia; *kṛṣṇa*—el Señor Kṛṣṇa; *bhagavān*—la Suprema Personalidad de Dios.

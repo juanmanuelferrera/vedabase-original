@@ -1,11 +1,11 @@
 ### SB 6.7.20
 
-> तांस्तथाभ्यर्दितान्वीक्ष्य भगवानात्मभूरजः
+> तांस्तथाभ्यर्दितान्वीक्ष्य भगवानात्मभूरजः\
 > कृपया परया देव उवाच परिसान्त्वयन ॥२०॥
 
-> tāṁs tathābhyarditān vīkṣya
-> bhagavān ātmabhūr ajaḥ
-> kṛpayā parayā deva
+> tāṁs tathābhyarditān vīkṣya\
+> bhagavān ātmabhūr ajaḥ\
+> kṛpayā parayā deva\
 > uvāca parisāntvayan
 
 *tān*—a ellos (a los semidioses); *tathā*—de ese modo; *abhyarditān*—afligidos por las armas de los demonios; *vīkṣya*—al ver; *bhagavān*—el muy poderoso; *ātma-bhūḥ*—el Señor Brahmā; *ajaḥ*—que no nació como un ser humano corriente; *kṛpayā*—por misericordia sin causa; *parayā*—grande; *devaḥ*—el Señor Brahmā; *uvāca*—dijo; *parisāntvayan*—calmándoles.

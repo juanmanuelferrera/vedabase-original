@@ -1,13 +1,13 @@
 ### SB 3.18.10
 
-> श्रीभगवानुवाच
-> सत्यं वयं भो वनगोचरा मृगा युष्मद्विधान्मृगये ग्रामसिंहान् ।
+> श्रीभगवानुवाच\
+> सत्यं वयं भो वनगोचरा मृगा युष्मद्विधान्मृगये ग्रामसिंहान् ।\
 > न मृत्युपाशैः प्रतिमुक्तस्य वीरा विकत्थनं तव गृह्णन्त्यभद्र ॥१०॥
 
-> śrī-bhagavān uvāca
-> satyaṁ vayaṁ bho vana-gocarā mṛgā
-> yuṣmad-vidhān mṛgaye grāma-siṁhān
-> na mṛtyu-pāśaiḥ pratimuktasya vīrā
+> śrī-bhagavān uvāca\
+> satyaṁ vayaṁ bho vana-gocarā mṛgā\
+> yuṣmad-vidhān mṛgaye grāma-siṁhān\
+> na mṛtyu-pāśaiḥ pratimuktasya vīrā\
 > vikatthanaṁ tava gṛhṇanty abhadra
 
 *śrī-bhagavān uvāca*—the Supreme Personality of Godhead said; *satyam*—indeed; *vayam*—We; *bhoḥ*—O; *vana-gocarāḥ*—dwelling in the forest; *mṛgāḥ*—creatures; *yuṣmat-vidhān*—like you; *mṛgaye*—I am searching to kill; *grāma-siṁhān*—dogs; *na*—not; *mṛtyu-pāśaiḥ*—by the bonds of death; *pratimuktasya*—of one who is bound; *vīrāḥ*—the heroes; *vikatthanam*—loose talk; *tava*—your; *gṛhṇanti*—take notice of; *abhadra*—O mischievous one.

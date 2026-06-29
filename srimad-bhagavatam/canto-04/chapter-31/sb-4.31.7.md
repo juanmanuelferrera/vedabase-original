@@ -1,11 +1,11 @@
 ### SB 4.31.7
 
-> तन्नः प्रद्योतयाध्यात्म ज्ञानं तत्त्वार्थदर्शनम् ।
+> तन्नः प्रद्योतयाध्यात्म ज्ञानं तत्त्वार्थदर्शनम् ।\
 > येनाञ्जसा तरिष्यामो दुस्तरं भवसागरम् ॥७॥
 
-> tan naḥ pradyotayādhyātma-
-> jñānaṁ tattvārtha-darśanam
-> yenāñjasā tariṣyāmo
+> tan naḥ pradyotayādhyātma-\
+> jñānaṁ tattvārtha-darśanam\
+> yenāñjasā tariṣyāmo\
 > dustaraṁ bhava-sāgaram
 
 *tat*—therefore; *naḥ*—for us; *pradyotaya*—kindly awaken; *adhyātma*—transcendental; *jñānam*—knowledge; *tattva*—Absolute Truth; *artha*—for the purpose of; *darśanam*—philosophy; *yena*—by which; *añjasā*—easily; *tariṣyāmaḥ*—we can cross over; *dustaram*—formidable; *bhava-sāgaram*—the ocean of nescience.

@@ -1,11 +1,11 @@
 ### SB 8.9.21
 
-> दैत्यान्गृहीतकलसो वञ्चयन्नुपसञ्चरैः
+> दैत्यान्गृहीतकलसो वञ्चयन्नुपसञ्चरैः\
 > दूरस्थान्पाययामासजरामृत्युहरां सुधाम ॥२१॥
 
-> daityān gṛhīta-kalaso
-> vañcayann upasañcaraiḥ
-> dūra-sthān pāyayām āsa
+> daityān gṛhīta-kalaso\
+> vañcayann upasañcaraiḥ\
+> dūra-sthān pāyayām āsa\
 > jarā-mṛtyu-harāṁ sudhām
 
 *daityān*—a los demonios; *gṛhīta-kalasaḥ*—el Señor, que llevaba el recipiente de néctar; *vañcayan*—engañando; *upasañcaraiḥ*—con dulces palabras; *dūra-sthān*—a los semidioses, sentados en un lugar distante; *pāyayām āsa*—hizo que bebiesen; *jarā-mṛtyu-harām*—que puede neutralizar la invalidez, la vejez y la muerte; *sudhām*—ese néctar.

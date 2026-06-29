@@ -1,20 +1,20 @@
 ### SB 7.6.29-30
 
-> श्रीदैत्यपुत्रा ऊचुः
-> प्रह्राद त्वं वयं चापि नर्तेऽन्यं विद्महे गुरुम
-> एताभ्यां गुरुपुत्राभ्यां बालानामपि हीश्वरौ ॥२९॥
-> बालस्यान्तःपुरस्थस्य महत्सङ्गो दुरन्वयः
+> श्रीदैत्यपुत्रा ऊचुः\
+> प्रह्राद त्वं वयं चापि नर्तेऽन्यं विद्महे गुरुम\
+> एताभ्यां गुरुपुत्राभ्यां बालानामपि हीश्वरौ ॥२९॥\
+> बालस्यान्तःपुरस्थस्य महत्सङ्गो दुरन्वयः\
 > छिन्धि नः संशयं सौम्य स्याच्चेद्विस्रम्भकारणम ॥३०॥
 
-> śrī-daitya-putrā ūcuḥ
-> prahrāda tvaṁ vayaṁ cāpi
-> narte 'nyaṁ vidmahe gurum
-> etābhyāṁ guru-putrābhyāṁ
+> śrī-daitya-putrā ūcuḥ\
+> prahrāda tvaṁ vayaṁ cāpi\
+> narte 'nyaṁ vidmahe gurum\
+> etābhyāṁ guru-putrābhyāṁ\
 > bālānām api hīśvarau
 
-> bālasyāntaḥpura-sthasya
-> mahat-saṅgo duranvayaḥ
-> chindhi naḥ saṁśayaṁ saumya
+> bālasyāntaḥpura-sthasya\
+> mahat-saṅgo duranvayaḥ\
+> chindhi naḥ saṁśayaṁ saumya\
 > syāc ced visrambha-kāraṇam
 
 *śrī-daitya-putrāḥ ūcuḥ*—los hijos de los demonios dijeron; *prahrāda*—¡oh, Prahlāda, querido amigo!; *tvam*—tú; *vayam*—nosotros; *ca*—y; *api*—también; *na*—no; *ṛte*—excepto; *anyam*—otro; *vidmahe*—conocemos; *gurum*—maestro espiritual; *etābhyām*—estos dos; *guru-putrābhyām*—los hijos de Śukrācārya; *bālānām*—de niños pequeños; *api*—aunque; *hi*—en verdad; *īśvarau*—los dos controladores; *bālasya*—de un niño; *antaḥpura-sthasya*—que se queda dentro de la casa o palacio; *mahat-saṅgaḥ*—la compañía de una gran personalidad como Nārada Muni; *duranvayaḥ*—muy difícil; *chindhi*—por favor, revela; *naḥ*—nuestra; *saṁśayam*—duda; *saumya*—¡oh, tú, que eres muy amable!; *syāt*—pueda haber; *cet*—si; *visrambha-kāraṇam*—causa de fe (en tus palabras).

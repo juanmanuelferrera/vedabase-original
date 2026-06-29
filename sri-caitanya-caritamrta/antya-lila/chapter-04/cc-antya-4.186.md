@@ -1,9 +1,9 @@
 ### CC Antya 4.186
 
-> মাতার যৈছে বালকের ‘অমেধ্য’ লাগে গায় ।
+> মাতার যৈছে বালকের ‘অমেধ্য’ লাগে গায় ।\
 > ঘৃণা নাহি জন্মে, আর মহাসুখ পায় ॥১৮৬॥
 
-> mātāra yaiche bālakera 'amedhya' lāge gāya
+> mātāra yaiche bālakera 'amedhya' lāge gāya\
 > ghṛṇā nāhi janme, āra mahā-sukha pāya
 
 *mātāra*—of the mother; *yaiche*—as; *bālakera*—of the child; *amedhya*—stool and urine; *lāge gāya*—touches the body; *ghṛṇā*—hatred; *nāhi janme*—does not arise; *āra*—more; *mahā-sukha*—great pleasure; *pāya*—gets.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.132
 
-> সূত্রের মুখ্য অর্থ না করহ ব্যাখ্যান ।
+> সূত্রের মুখ্য অর্থ না করহ ব্যাখ্যান ।\
 > কল্পনার্থে তুমি তাহা কর আচ্ছাদন ॥১৩২॥
 
-> sūtrera mukhya artha nā karaha vyākhyāna
+> sūtrera mukhya artha nā karaha vyākhyāna\
 > kalpanārthe tumi tāhā kara ācchādana
 
 *sūtrera*—of the *sūtras*; *mukhya*—direct; *artha*—of meanings; *nā*—not; *karaha*—you do; *vyākhyāna*—explanation; *kalpanā-arthe*—because of imaginative meaning; *tumi*—you; *tāhā*—of that; *kara*—do; *ācchādana*—covering.

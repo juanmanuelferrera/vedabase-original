@@ -1,9 +1,9 @@
 ### CC Madhya 14.246
 
-> জগন্নাথের পুনঃ পাণ্ডু-বিজয় হইল ।
+> জগন্নাথের পুনঃ পাণ্ডু-বিজয় হইল ।\
 > এক গুটি পট্টডোরী তাঁহা টুটি’ গেল ॥২৪৬॥
 
-> jagannāthera punaḥ pāṇḍu-vijaya ha-ila
+> jagannāthera punaḥ pāṇḍu-vijaya ha-ila\
 > eka guṭi paṭṭa-ḍorī tāṅhā ṭuṭi' gela
 
 *jagannāthera*—del Señor Jagannātha; *punaḥ*—de nuevo; *pāṇḍu-vijaya*—la ceremonia de transportar al Señor; *ha-ila*—tuvo lugar; *eka guṭi*—un manojo; *paṭṭa-ḍorī*—cuerdas de seda; *tāṅhā*—allí; *ṭuṭi' gela*—se rompieron.

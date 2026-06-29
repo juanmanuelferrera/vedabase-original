@@ -1,18 +1,18 @@
 ### SB 9.9.26-27
 
-> क्षुधार्तो जगृहे विप्रं तत्पत्न्याहाकृतार्थवत
-> न भवान्राक्षसः साक्षादिक्ष्वाकूणां महारथः ॥२६॥
-> मदयन्त्याः पतिर्वीर नाधर्मं कर्तुमर्हसि
+> क्षुधार्तो जगृहे विप्रं तत्पत्न्याहाकृतार्थवत\
+> न भवान्राक्षसः साक्षादिक्ष्वाकूणां महारथः ॥२६॥\
+> मदयन्त्याः पतिर्वीर नाधर्मं कर्तुमर्हसि\
 > देहि मेऽपत्यकामाया अकृतार्थं पतिं द्विजम ॥२७॥
 
-> kṣudhārto jagṛhe vipraṁ
-> tat-patny āhākṛtārthavat
-> na bhavān rākṣasaḥ sākṣād
+> kṣudhārto jagṛhe vipraṁ\
+> tat-patny āhākṛtārthavat\
+> na bhavān rākṣasaḥ sākṣād\
 > ikṣvākūṇāṁ mahā-rathaḥ
 
-> madayantyāḥ patir vīra
-> nādharmaṁ kartum arhasi
-> dehi me 'patya-kāmāyā
+> madayantyāḥ patir vīra\
+> nādharmaṁ kartum arhasi\
+> dehi me 'patya-kāmāyā\
 > akṛtārthaṁ patiṁ dvijam
 
 *kṣudhā-ārtaḥ*—being aggrieved by hunger; *jagṛhe*—caught; *vipram*—the *brāhmaṇa*; *tat-patnī*—his wife; *āha*—said; *akṛta-artha-vat*—being unsatisfied, poor and hungry; *na*—not; *bhavān*—yourself; *rākṣasaḥ*—a man-eater; *sākṣāt*—directly or factually; *ikṣvākūṇām*—among the descendants of Mahārāja Ikṣvāku; *mahā-rathaḥ*—a great fighter; *madayantyāḥ*—of Madayantī; *patiḥ*—the husband; *vīra*—O hero; *na*—not; *adharmam*—irreligious act; *kartum*—to do; *arhasi*—you deserve; *dehi*—please deliver; *me*—my; *apatya-kāmāyāḥ*—desiring to get a son; *akṛta-artham*—whose desire has not been fulfilled; *patim*—husband; *dvijam*—who is a *brāhmaṇa.*

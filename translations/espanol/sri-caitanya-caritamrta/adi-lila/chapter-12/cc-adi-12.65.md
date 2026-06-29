@@ -1,9 +1,9 @@
 ### CC Adi 12.65
 
-> বিজয় পণ্ডিত, আর পণ্ডিত শ্রীরাম ।
+> বিজয় পণ্ডিত, আর পণ্ডিত শ্রীরাম ।\
 > অসংখ্য অদ্বৈত-শাখা কত লইব নাম ॥৬৫॥
 
-> vijaya paṇḍita, āra paṇḍita śrīrāma
+> vijaya paṇḍita, āra paṇḍita śrīrāma\
 > asaṅkhya advaita-śākhā kata la-iba nāma
 
 *vijaya-paṇḍita*—de nombre Vijaya Paṇḍita; *āra*—y; *paṇḍita śrīrāma*—de nombre Śrīrāma Paṇḍita; *asaṅkhya*—innumerables; *advaita-śākhā*—ramas de Advaita Ācārya; *kata*—cuántas; *la-iba*—podré enumerar; *nāma*—sus nombres.

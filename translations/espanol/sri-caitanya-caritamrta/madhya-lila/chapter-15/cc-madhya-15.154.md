@@ -1,9 +1,9 @@
 ### CC Madhya 15.154
 
-> এইমত সেবকের প্রীতি চাহি প্রভু-পায়  ।
+> এইমত সেবকের প্রীতি চাহি প্রভু-পায়  ।\
 > প্রভু ছাড়াইলেহ, পদ ছাড়ান না যায় ॥১৫৪॥
 
-> ei-mata sevakera prīti cāhi prabhu-pāya
+> ei-mata sevakera prīti cāhi prabhu-pāya\
 > prabhu chāḍāileha, pada chāḍāna nā yāya
 
 *ei-mata*—de esta manera; *sevakera*—del sirviente; *prīti*—amor; *cāhi*—se desea; *prabhu-pāya*—hacia los pies de loto del Señor; *prabhu chāḍāileha*—aunque el Señor cause la separación; *pada*—los pies de loto del Señor; *chāḍāna nā yāya*—no se pueden abandonar.

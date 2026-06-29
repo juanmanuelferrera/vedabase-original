@@ -1,11 +1,11 @@
 ### SB 1.3.43
 
-> कृष्णे स्वधामोपगते धर्मज्ञानादिभिः सह ।
+> कृष्णे स्वधामोपगते धर्मज्ञानादिभिः सह ।\
 > कलौ नष्टदृशामेष पुराणार्कोऽधुनोदितः ॥४३॥
 
-> kṛṣṇe sva-dhāmopagate
-> dharma-jñānādibhiḥ saha
-> kalau naṣṭa-dṛśām eṣa
+> kṛṣṇe sva-dhāmopagate\
+> dharma-jñānādibhiḥ saha\
+> kalau naṣṭa-dṛśām eṣa\
 > purāṇārko 'dhunoditaḥ
 
 *kṛṣṇe*—en la de Kṛṣṇa; *sva-dhāma*—propia morada; *upagate*—habiendo regresado; *dharma*—religión; *jñāna*—conocimiento; *ādibhiḥ*—reunidos; *saha*—junto con; *kalau*—en Kali-yuga; *naṣṭa-dṛśām*—de personas que han perdido la vista; *eṣaḥ*—todas estas; *purāṇa-arkaḥ*—el *Purāṇa* que brilla como el sol; *adhunā*—ahora mismo; *uditaḥ*—ha surgido.

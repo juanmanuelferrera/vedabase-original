@@ -1,11 +1,11 @@
 ### SB 3.30.34
 
-> अधस्तान्नरलोकस्य यावतीर्यातनादयः ।
+> अधस्तान्नरलोकस्य यावतीर्यातनादयः ।\
 > क्रमशः समनुक्रम्य पुनरत्राव्रजेच्छुचिः ॥३४॥
 
-> adhastān nara-lokasya
-> yāvatīr yātanādayaḥ
-> kramaśaḥ samanukramya
+> adhastān nara-lokasya\
+> yāvatīr yātanādayaḥ\
+> kramaśaḥ samanukramya\
 > punar atrāvrajec chuciḥ
 
 *adhastāt*—from below; *nara-lokasya*—human birth; *yāvatīḥ*—as many; *yātanā*—punishments; *ādayaḥ*—and so on; *kramaśaḥ*—in a regular order; *samanukramya*—having gone through; *punaḥ*—again; *atra*—here, on this earth; *āvrajet*—he may return; *śuciḥ*—pure.

@@ -1,11 +1,11 @@
 ### SB 4.30.24
 
-> नमो विशुद्धसत्त्वाय हरये हरिमेधसे ।
+> नमो विशुद्धसत्त्वाय हरये हरिमेधसे ।\
 > वासुदेवाय कृष्णाय प्रभवे सर्वसात्वताम् ॥२४॥
 
-> namo viśuddha-sattvāya
-> haraye hari-medhase
-> vāsudevāya kṛṣṇāya
+> namo viśuddha-sattvāya\
+> haraye hari-medhase\
+> vāsudevāya kṛṣṇāya\
 > prabhave sarva-sātvatām
 
 *namaḥ*—obeisances; *viśuddha-sattvāya*—unto You, whose existence is free from all material influence; *haraye*—who takes away all miserable conditions of devotees; *hari-medhase*—whose brain works only for the deliverance of the conditioned soul; *vāsudevāya*—the all-pervading Supreme Personality of Godhead; *kṛṣṇāya*—unto Kṛṣṇa; *prabhave*—who increases the influence; *sarva-sātvatām*—of all kinds of devotees.

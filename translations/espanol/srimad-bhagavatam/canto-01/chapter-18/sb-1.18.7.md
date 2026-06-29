@@ -1,11 +1,11 @@
 ### SB 1.18.7
 
-> नानुद्वेष्टि कलिं सम्राट्सारङ्ग इव सारभुक् ।
+> नानुद्वेष्टि कलिं सम्राट्सारङ्ग इव सारभुक् ।\
 > कुशलान्याशु सिद्ध्यन्ति नेतराणि कृतानि यत् ॥७॥
 
-> nānudveṣṭi kaliṁ samrāṭ
-> sāraṅga iva sāra-bhuk
-> kuśalāny āśu siddhyanti
+> nānudveṣṭi kaliṁ samrāṭ\
+> sāraṅga iva sāra-bhuk\
+> kuśalāny āśu siddhyanti\
 > netarāṇi kṛtāni yat
 
 *na*—nunca; *anudveṣṭi*—envidioso; *kalim*—a la personalidad de Kali; *samrāṭ*—el emperador; *sāram-ga*—realista, como las abejas; *iva*—como; *sāra-bhuk*—aquel que toma la esencia; *kuśalāni*—objetos auspiciosos; *āśu*—de inmediato; *siddhyanti*—triunfa; *na*—nunca; *itarāṇi*—que son poco auspiciosos; *kṛtāni*—siendo ejecutados; *yat*—tanto como.

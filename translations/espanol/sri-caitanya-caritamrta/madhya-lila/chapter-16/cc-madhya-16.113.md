@@ -1,9 +1,9 @@
 ### CC Madhya 16.113
 
-> দুই মহাপাত্র, — ‘হরিচন্দন’, ‘মর্দরাজ’ ।
+> দুই মহাপাত্র, — ‘হরিচন্দন’, ‘মর্দরাজ’ ।\
 > তাঁরে আজ্ঞা দিল রাজা — ‘করিহ সর্ব কায ॥১১৩॥
 
-> dui mahā-pātra,--'haricandana', 'mardarāja'
+> dui mahā-pātra,--'haricandana', 'mardarāja'\
 > tāṅre ājñā dila rājā--'kariha sarva kāya
 
 *dui mahā-pātra*—dos oficiales respetables; *haricandana*—Haricandana; *mardarāja*—Mardarāja; *tāṅre*—a ellos; *ājñā dila*—dio órdenes; *rājā*—el rey; *kariha*—haced; *sarva kāya*—todo lo necesario.

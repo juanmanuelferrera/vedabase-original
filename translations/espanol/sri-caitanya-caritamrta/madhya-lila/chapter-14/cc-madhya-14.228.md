@@ -1,13 +1,13 @@
 ### CC Madhya 14.228
 
-> চিন্তামণিশ্চরণভূষণমঙ্গনানাং
-> শৃঙ্গারপুষ্পতরবস্তরবঃ সুরাণাম্ ।
-> বৃন্দাবনে ব্রজধনং ননু কামধেনু-
+> চিন্তামণিশ্চরণভূষণমঙ্গনানাং\
+> শৃঙ্গারপুষ্পতরবস্তরবঃ সুরাণাম্ ।\
+> বৃন্দাবনে ব্রজধনং ননু কামধেনু-\
 > বৃন্দানি চেতি সুখসিন্ধুরহো বিভূতিঃ ॥২২৮॥
 
-> cintāmaṇiś caraṇa-bhūṣaṇam aṅganānāṁ
-> śṛṅgāra-puṣpa-taravas taravaḥ surāṇām
-> vṛndāvane vraja-dhanaṁ nanu kāma-dhenu-
+> cintāmaṇiś caraṇa-bhūṣaṇam aṅganānāṁ\
+> śṛṅgāra-puṣpa-taravas taravaḥ surāṇām\
+> vṛndāvane vraja-dhanaṁ nanu kāma-dhenu-\
 > vṛndāni ceti sukha-sindhur aho vibhūtiḥ
 
 *cintāmaṇiḥ*—piedra de toque trascendental; *caraṇa*—de los pies de loto; *bhūṣaṇam*—el adorno; *aṅganānām*—de todas las mujeres de Vṛndāvana; *śṛṅgāra*—para decorarse; *puṣpa-taravaḥ*—los árboles de flores; *taravaḥ*—los árboles; *surāṇām*—de los semidioses (árboles de los deseos); *vṛndāvane*—en Vṛndāvana; *vraja-dhanam*—la riqueza especial de los habitantes de Vraja; *nanu*—ciertamente; *kāma-dhenu*—de vacas *kāma-dhenu* que pueden dar leche ilimitada; *vṛndāni*—grupos; *ca*—y; *iti*—así; *sukha-sindhuḥ*—el océano de felicidad; *aho*—¡oh, cuánta!; *vibhūtiḥ*—opulencia.

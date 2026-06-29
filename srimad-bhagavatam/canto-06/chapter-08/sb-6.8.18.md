@@ -1,11 +1,11 @@
 ### SB 6.8.18
 
-> धन्वन्तरिर्भगवान्पात्वपथ्याद्द्वन्द्वाद्भयादृषभो निर्जितात्मा
+> धन्वन्तरिर्भगवान्पात्वपथ्याद्द्वन्द्वाद्भयादृषभो निर्जितात्मा\
 > यज्ञअश्च लोकादवताज्जनान्ताद्बलो गणात्क्रोधवशादहीन्द्रः ॥१८॥
 
-> dhanvantarir bhagavān pātv apathyād
-> dvandvād bhayād ṛṣabho nirjitātmā
-> yajñaś ca lokād avatāj janāntād
+> dhanvantarir bhagavān pātv apathyād\
+> dvandvād bhayād ṛṣabho nirjitātmā\
+> yajñaś ca lokād avatāj janāntād\
 > balo gaṇāt krodha-vaśād ahīndraḥ
 
 *dhanvantariḥ*—the incarnation Dhanvantari, the physician; *bhagavān*—the Supreme Personality of Godhead; *pātu*—may He protect me; *apathyāt*—from things injurious to the health, such as meat and intoxicants; *dvandvāt*—from duality; *bhayāt*—from fear; *ṛṣabhaḥ*—Lord Ṛṣabhadeva; *nirjita-ātmā*—who fully controlled his mind and self; *yajñaḥ*—Yajña; *ca*—and; *lokāt*—from the defamation of the populace; *avatāt*—may He protect; *jana-antāt*—from dangerous positions created by other people; *balaḥ*—Lord Balarāma; *gaṇāt*—from the hordes of; *krodha-vaśāt*—the angry serpents; *ahīndraḥ*—Lord Balarāma in the form of the serpent Śeṣa Nāga.

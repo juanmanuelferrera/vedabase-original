@@ -1,11 +1,11 @@
 ### SB 4.21.37
 
-> मा जातु तेजः प्रभवेन्महर्द्धिभिस्तितिक्षया तपसा विद्यया च ।
+> मा जातु तेजः प्रभवेन्महर्द्धिभिस्तितिक्षया तपसा विद्यया च ।\
 > देदीप्यमानेऽजितदेवतानां कुले स्वयं राजकुलाद्द्विजानाम् ॥३७॥
 
-> mā jātu tejaḥ prabhaven maharddhibhis
-> titikṣayā tapasā vidyayā ca
-> dedīpyamāne 'jita-devatānāṁ
+> mā jātu tejaḥ prabhaven maharddhibhis\
+> titikṣayā tapasā vidyayā ca\
+> dedīpyamāne 'jita-devatānāṁ\
 > kule svayaṁ rāja-kulād dvijānām
 
 *mā*—never do it; *jātu*—at any time; *tejaḥ*—supreme power; *prabhavet*—exhibit; *mahā*—great; *ṛddhibhiḥ*—by opulence; *titikṣayā*—by tolerance; *tapasā*—penance; *vidyayā*—by education; *ca*—also; *dedīpyamāne*—upon those who are already glorified; *ajita-devatānām*—Vaiṣṇavas, or the devotees of the Supreme Personality of Godhead; *kule*—in the society; *svayam*—personally; *rāja-kulāt*—greater than the royal family; *dvijānām*—of the *brāhmaṇas.*

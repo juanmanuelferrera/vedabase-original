@@ -1,11 +1,11 @@
 ### SB 3.1.8
 
-> द्यूते त्वधर्मेण जितस्य साधोः सत्यावलम्बस्य वनं गतस्य ।
+> द्यूते त्वधर्मेण जितस्य साधोः सत्यावलम्बस्य वनं गतस्य ।\
 > न याचतोऽदात्समयेन दायं तमोजुषाणो यदजातशत्रोः ॥८॥
 
-> dyūte tv adharmeṇa jitasya sādhoḥ
-> satyāvalambasya vanaṁ gatasya
-> na yācato 'dāt samayena dāyaṁ
+> dyūte tv adharmeṇa jitasya sādhoḥ\
+> satyāvalambasya vanaṁ gatasya\
+> na yācato 'dāt samayena dāyaṁ\
 > tamo-juṣāṇo yad ajāta-śatroḥ
 
 *dyūte*—by means of gambling; *tu*—but; *adharmeṇa*—by unfair tricks; *jitasya*—of the vanquished; *sādhoḥ*—a saintly person; *satya-avalambasya*—one who embraced truth as shelter; *vanam*—forest; *gatasya*—of the goer; *na*—never; *yācataḥ*—when asked for; *adāt*—delivered; *samayena*—in due course; *dāyam*—right share; *tamaḥ-juṣāṇaḥ*—overwhelmed by illusion; *yat*—as much as; *ajāta-śatroḥ*—of one who had no enemy.

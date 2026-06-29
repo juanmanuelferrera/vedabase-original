@@ -1,9 +1,9 @@
 ### CC Adi 13.50
 
-> প্রভুর লীলামৃত তেঁহো কৈল আস্বাদন ।
+> প্রভুর লীলামৃত তেঁহো কৈল আস্বাদন ।\
 > তাঁর ভুক্ত-শেষ কিছু করিয়ে চর্বণ ॥৫০॥
 
-> prabhura līlāmṛta teṅho kaila āsvādana
+> prabhura līlāmṛta teṅho kaila āsvādana\
 > tāṅra bhukta-śeṣa kichu kariye carvaṇa
 
 *prabhura*—of the Lord; *līlāmṛta*—the nectar of the pastimes; *teṅho*—he (Vṛndāvana dāsa Ṭhākura); *kaila*—did; *āsvādana*—taste; *tāṅra*—his; *bhukta*—of food; *śeṣa*—remnants; *kichu*—something; *kariye*—I do; *carvaṇa*—chew.

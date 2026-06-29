@@ -1,9 +1,9 @@
 ### CC Antya 13.68
 
-> জগদানন্দ-পণ্ডিত চলিলা সব লঞা ।
+> জগদানন্দ-পণ্ডিত চলিলা সব লঞা ।\
 > ব্যাকুল হৈলা সনাতন তাঁরে বিদায় দিয়া ॥৬৮॥
 
-> jagadānanda-paṇḍita calilā saba lañā
+> jagadānanda-paṇḍita calilā saba lañā\
 > vyākula hailā sanātana tāṅre vidāya diyā
 
 *jagadānanda-paṇḍita*—Jagadānanda Paṇḍita; *calilā*—partió; *saba*—todos; *lañā*—llevando; *vyākula hailā*—se agitó mucho; *sanātana*—Sanātana Gosvāmī; *tāṅre*—a él; *vidāya diyā*—despidiéndose.

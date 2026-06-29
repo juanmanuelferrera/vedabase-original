@@ -1,9 +1,9 @@
 ### CC Adi 2.103
 
-> জীবশক্তি তটস্থাখ্য, নাহি যার অন্ত ।
+> জীবশক্তি তটস্থাখ্য, নাহি যার অন্ত ।\
 > মুখ্য তিন শক্তি, তার বিভেদ অনন্ত ॥১০৩॥
 
-> jīva-śakti taṭasthākhya, nāhi yāra anta
+> jīva-śakti taṭasthākhya, nāhi yāra anta\
 > mukhya tina śakti, tāra vibheda ananta
 
 *jīva-śakti*—the energy of the living entity; *taṭa-stha-ākhya*—known as marginal; *nāhi*—there is not; *yāra*—of which; *anta*—end; *mukhya*—principal; *tina*—three; *śakti*—energies; *tāra*—of them; *vibheda*—varieties; *ananta*—unlimited.

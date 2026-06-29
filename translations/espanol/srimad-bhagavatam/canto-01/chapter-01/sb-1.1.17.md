@@ -1,11 +1,11 @@
 ### SB 1.1.17
 
-> तस्य कर्माण्युदाराणि परिगीतानि सूरिभिः ।
+> तस्य कर्माण्युदाराणि परिगीतानि सूरिभिः ।\
 > ब्रूहि नः श्रद्दधानानां लीलया दधतः कलाः ॥१७॥
 
-> tasya karmāṇy udārāṇi
-> parigītāni sūribhiḥ
-> brūhi naḥ śraddadhānānāṁ
+> tasya karmāṇy udārāṇi\
+> parigītāni sūribhiḥ\
+> brūhi naḥ śraddadhānānāṁ\
 > līlayā dadhataḥ kalāḥ
 
 *tasya*—Su; *karmāṇi*—actos trascendentales; *udārāṇi*—magnánimos; *parigītāni*—difundidos; *sūribhiḥ*—por las grandes almas; *brūhi*—por favor, habla; *naḥ*—a nosotros; *śraddadhānānām*—preparados para recibir con respeto; *līlayā*—pasatiempos; *dadhataḥ*—advenidas; *kalāḥ*—encarnaciones.

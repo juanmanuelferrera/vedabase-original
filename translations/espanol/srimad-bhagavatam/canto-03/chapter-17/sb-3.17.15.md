@@ -1,11 +1,11 @@
 ### SB 3.17.15
 
-> दृष्ट्वान्यांश्च महोत्पातानतत्तत्त्वविदः प्रजाः ।
+> दृष्ट्वान्यांश्च महोत्पातानतत्तत्त्वविदः प्रजाः ।\
 > ब्रह्मपुत्रानृते भीता मेनिरे विश्वसम्प्लवम् ॥१५॥
 
-> dṛṣṭvānyāṁś ca mahotpātān
-> atat-tattva-vidaḥ prajāḥ
-> brahma-putrān ṛte bhītā
+> dṛṣṭvānyāṁś ca mahotpātān\
+> atat-tattva-vidaḥ prajāḥ\
+> brahma-putrān ṛte bhītā\
 > menire viśva-samplavam
 
 *dṛṣṭvā*—habiendo visto; *anyān*—otros; *ca*—y; *mahā*—grandes; *utpātān*—presagios de calamidades; *a-tat-tattva-vidaḥ*—sin conocer el secreto (de los portentos); *prajāḥ*—la gente; *brahma-putrān*—los hijos de Brahmā (los cuatro Kumāras); *ṛte*—a excepción de; *bhītāḥ*—sintieron temor; *menire*—pensaron; *viśva-samplavam*—la disolución del universo.

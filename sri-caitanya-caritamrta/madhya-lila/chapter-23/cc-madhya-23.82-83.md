@@ -1,18 +1,18 @@
 ### CC Madhya 23.82-83
 
-> সর্বাদ্ভুতচমৎকার-লীলাকল্লোলবারিধিঃ ।
-> অতুল্যমধুরপ্রেম-মণ্ডিতপ্রিয়মণ্ডলঃ ॥৮২॥
-> ত্রিজগন্মানসাকর্ষি-মুরলীকলকূজিতঃ ।
+> সর্বাদ্ভুতচমৎকার-লীলাকল্লোলবারিধিঃ ।\
+> অতুল্যমধুরপ্রেম-মণ্ডিতপ্রিয়মণ্ডলঃ ॥৮২॥\
+> ত্রিজগন্মানসাকর্ষি-মুরলীকলকূজিতঃ ।\
 > অসমানোর্ধ্বরূপশ্রী-বিস্মাপিতচরাচরঃ ॥৮৩॥
 
-> sarvādbhuta-camatkāra-
-> līlā-kallola-vāridhiḥ
-> atulya-madhura-prema-
+> sarvādbhuta-camatkāra-\
+> līlā-kallola-vāridhiḥ\
+> atulya-madhura-prema-\
 > maṇḍita-priya-maṇḍalaḥ
 
-> trijagan-mānasākarṣi-
-> muralī-kala-kūjitaḥ
-> asamānordhva-rūpa-śrī-
+> trijagan-mānasākarṣi-\
+> muralī-kala-kūjitaḥ\
+> asamānordhva-rūpa-śrī-\
 > vismāpita-carācaraḥ
 
 *sarva-adbhuta-camatkāra*—bringing wonder to all; *līlā*—of pastimes; *kallola*—full of waves; *vāridhiḥ*—an ocean; *atulya-madhura-prema*—with incomparable conjugal love; *maṇḍita*—decorated; *priya-maṇḍalaḥ*—with a circle of favorite personalities; *tri-jagat*—of three worlds; *mānasa-ākarṣi*—attracting the minds; *muralī*—of the flute; *kala-kūjitaḥ*—the melodious vibration; *asamāna-ūrdhva*—unequaled and unsurpassed; *rūpa*—by beauty; *śrī*—and opulence; *vismāpita-cara-acaraḥ*—astonishing the moving and nonmoving living entities.

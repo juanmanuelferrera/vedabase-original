@@ -1,9 +1,9 @@
 ### CC Madhya 9.38
 
-> তাঁরে কৃপা করি’ প্রভু চলিলা আর দিনে ।
+> তাঁরে কৃপা করি’ প্রভু চলিলা আর দিনে ।\
 > বৃদ্ধকাশী আসি’ কৈল শিব-দরশনে ॥৩৮॥
 
-> tāṅre kṛpā kari' prabhu calilā āra dine
+> tāṅre kṛpā kari' prabhu calilā āra dine\
 > vṛddhakāśī āsi' kaila śiva-daraśane
 
 *tāṅre*—unto him; *kṛpā kari'*—showing mercy; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *calilā*—traveled; *āra dine*—the next day; *vṛddhakāśī*—to Vṛddhakāśī; *āsi'*—coming; *kaila*—did; *śiva-daraśane*—visiting Lord Śiva's temple.

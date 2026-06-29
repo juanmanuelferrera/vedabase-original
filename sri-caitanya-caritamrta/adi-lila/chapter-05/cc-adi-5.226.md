@@ -1,9 +1,9 @@
 ### CC Adi 5.226
 
-> সেই অপরাধে তার নাহিক নিস্তার ।
+> সেই অপরাধে তার নাহিক নিস্তার ।\
 > ঘোর নরকেতে পড়ে, কি বলিব আর ॥২২৬॥
 
-> sei aparādhe tāra nāhika nistāra
+> sei aparādhe tāra nāhika nistāra\
 > ghora narakete paḍe, ki baliba āra
 
 *sei aparādhe*—by that offense; *tāra*—his; *nāhika*—there is not; *nistāra*—deliverance; *ghora*—terrible; *narakete*—in a hellish condition; *paḍe*—falls down; *ki baliba*—what will I say; *āra*—more.

@@ -1,11 +1,11 @@
 ### SB 9.11.2
 
-> होत्रेऽददाद्दिशं प्राचीं ब्रह्मणे दक्षिणां प्रभुः
+> होत्रेऽददाद्दिशं प्राचीं ब्रह्मणे दक्षिणां प्रभुः\
 > अध्वर्यवे प्रतीचीं वा उत्तरां सामगाय सः ॥२॥
 
-> hotre 'dadād diśaṁ prācīṁ
-> brahmaṇe dakṣiṇāṁ prabhuḥ
-> adhvaryave pratīcīṁ vā
+> hotre 'dadād diśaṁ prācīṁ\
+> brahmaṇe dakṣiṇāṁ prabhuḥ\
+> adhvaryave pratīcīṁ vā\
 > uttarāṁ sāmagāya saḥ
 
 *hotre*—al sacerdote *hotā*, que ofrece oblaciones; *adadāt*—dio; *diśam*—dirección; *prācīm*—todo el lado oriental; *brahmaṇe*—al sacerdote *brahmā*, que supervisa todo lo que se hace en el recinto de sacrificios; *dakṣiṇām*—el lado sur; *prabhuḥ*—el Señor Rāmacandra; *adhvaryave*—al sacerdote *adhvaryu*; *pratīcīm*—todo el lado occidental; *vā*—también; *uttarām*—el lado norte; *sāma-gāya*—al sacerdote *udgāta*, que canta el *Sama Veda*; *saḥ*—Él (el Señor Rāmacandra).

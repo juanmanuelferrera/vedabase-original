@@ -1,11 +1,11 @@
 ### SB 3.25.25
 
-> सतां प्रसङ्गान्मम वीर्यसंविदो भवन्ति हृत्कर्णरसायनाः कथाः ।
+> सतां प्रसङ्गान्मम वीर्यसंविदो भवन्ति हृत्कर्णरसायनाः कथाः ।\
 > तज्जोषणादाश्वपवर्गवर्त्मनि श्रद्धा रतिर्भक्तिरनुक्रमिष्यति ॥२५॥
 
-> satāṁ prasaṅgān mama vīrya-saṁvido
-> bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ
-> taj-joṣaṇād āśv apavarga-vartmani
+> satāṁ prasaṅgān mama vīrya-saṁvido\
+> bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ\
+> taj-joṣaṇād āśv apavarga-vartmani\
 > śraddhā ratir bhaktir anukramiṣyati
 
 *satām*—de devotos puros; *prasaṅgāt*—como consecuencia de la compañía; *mama*—Mis; *vīrya*—actividades maravillosas; *saṁvidaḥ*—por el hecho de conversar acerca de; *bhavanti*—se vuelven; *hṛt*—para el corazón; *karṇa*—para el oído; *rasa-ayanāḥ*—placenteras; *kathāḥ*—las narraciones; *tat*—de esto; *joṣaṇāt*—por medio del cultivo; *āśu*—rápidamente; *apavarga*—de la liberación; *vartmani*—en el sendero; *śraddhā*—fe firme; *ratiḥ*—atracción; *bhaktiḥ*—devoción; *anukramiṣyati*—se manifiestan una tras otra.

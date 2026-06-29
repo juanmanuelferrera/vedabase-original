@@ -1,11 +1,11 @@
 ### SB 4.29.66
 
-> मन एव मनुष्यस्य पूर्वरूपाणि शंसति ।
+> मन एव मनुष्यस्य पूर्वरूपाणि शंसति ।\
 > भविष्यतश्च भद्रं ते तथैव न भविष्यतः ॥६६॥
 
-> mana eva manuṣyasya
-> pūrva-rūpāṇi śaṁsati
-> bhaviṣyataś ca bhadraṁ te
+> mana eva manuṣyasya\
+> pūrva-rūpāṇi śaṁsati\
+> bhaviṣyataś ca bhadraṁ te\
 > tathaiva na bhaviṣyataḥ
 
 *manaḥ*—the mind; *eva*—certainly; *manuṣyasya*—of a man; *pūrva*—past; *rūpāṇi*—forms; *śaṁsati*—indicates; *bhaviṣyataḥ*—of one who will take birth; *ca*—also; *bhadram*—good fortune; *te*—unto you; *tathā*—thus; *eva*—certainly; *na*—not; *bhaviṣyataḥ*—of one who will take birth.

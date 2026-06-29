@@ -1,15 +1,15 @@
 ### SB 3.31.12
 
-> जन्तुरुवाच
-> तस्योपसन्नमवितुं जगदिच्छयात्त
-> नानातनोर्भुवि चलच्चरणारविन्दम् ।
-> सोऽहं व्रजामि शरणं ह्यकुतोभयं मे
+> जन्तुरुवाच\
+> तस्योपसन्नमवितुं जगदिच्छयात्त\
+> नानातनोर्भुवि चलच्चरणारविन्दम् ।\
+> सोऽहं व्रजामि शरणं ह्यकुतोभयं मे\
 > येनेदृशी गतिरदर्श्यसतोऽनुरूपा ॥१२॥
 
-> jantur uvāca
-> tasyopasannam avituṁ jagad icchayātta-
-> nānā-tanor bhuvi calac-caraṇāravindam
-> so 'haṁ vrajāmi śaraṇaṁ hy akuto-bhayaṁ me
+> jantur uvāca\
+> tasyopasannam avituṁ jagad icchayātta-\
+> nānā-tanor bhuvi calac-caraṇāravindam\
+> so 'haṁ vrajāmi śaraṇaṁ hy akuto-bhayaṁ me\
 > yenedṛśī gatir adarśy asato'nurūpā
 
 *jantuḥ uvāca*—the human soul says; *tasya*—of the Supreme Personality of Godhead; *upasannam*—having approached for protection; *avitum*—to protect; *jagat*—the universe; *icchayā*—by His own will; *ātta-nānā-tanoḥ*—who accepts various forms; *bhuvi*—on the earth; *calat*—walking; *caraṇa-aravindam*—the lotus feet; *saḥ aham*—I myself; *vrajāmi*—go; *śaraṇam*—unto the shelter; *hi*—indeed; *akutaḥ-bhayam*—giving relief from all fear; *me*—for me; *yena*—by whom; *īdṛśī*—such; *gatiḥ*—condition of life; *adarśi*—was considered; *asataḥ*—impious; *anurūpā*—befitting.

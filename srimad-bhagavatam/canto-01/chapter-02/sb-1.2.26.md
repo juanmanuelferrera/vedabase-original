@@ -1,11 +1,11 @@
 ### SB 1.2.26
 
-> मुमुक्षवो घोररूपान्हित्वा भूतपतीनथ ।
+> मुमुक्षवो घोररूपान्हित्वा भूतपतीनथ ।\
 > नारायणकलाः शान्ता भजन्ति ह्यनसूयवः ॥२६॥
 
-> mumukṣavo ghora-rūpān
-> hitvā bhūta-patīn atha
-> nārāyaṇa-kalāḥ śāntā
+> mumukṣavo ghora-rūpān\
+> hitvā bhūta-patīn atha\
+> nārāyaṇa-kalāḥ śāntā\
 > bhajanti hy anasūyavaḥ
 
 *mumukṣavaḥ*—persons desiring liberation; *ghora*—horrible, ghastly; *rūpān*—forms like that; *hitvā*—rejecting; *bhūta-patīn*—demigods; *atha*—for this reason; *nārāyaṇa*—the Personality of Godhead; *kalāḥ*—plenary portions; *śāntāḥ*—all-blissful; *bhajanti*—do worship; *hi*—certainly; *anasūyavaḥ*—nonenvious.

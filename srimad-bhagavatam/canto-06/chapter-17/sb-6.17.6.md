@@ -1,13 +1,13 @@
 ### SB 6.17.6
 
-> चित्रकेतुरुवाच
-> एष लोकगुरुः साक्षाद्धर्मं वक्ता शरीरिणाम
+> चित्रकेतुरुवाच\
+> एष लोकगुरुः साक्षाद्धर्मं वक्ता शरीरिणाम\
 > आस्ते मुख्यः सभायां वै मिथुनीभूय भार्यया ॥६॥
 
-> citraketur uvāca
-> eṣa loka-guruḥ sākṣād
-> dharmaṁ vaktā śarīriṇām
-> āste mukhyaḥ sabhāyāṁ vai
+> citraketur uvāca\
+> eṣa loka-guruḥ sākṣād\
+> dharmaṁ vaktā śarīriṇām\
+> āste mukhyaḥ sabhāyāṁ vai\
 > mithunī-bhūya bhāryayā
 
 *citraketuḥ uvāca*—King Citraketu said; *eṣaḥ*—this; *loka-guruḥ*—the spiritual master of the people who follow Vedic instructions; *sākṣāt*—directly; *dharmam*—of religion; *vaktā*—the speaker; *śarīriṇām*—for all living entities who have accepted material bodies; *āste*—sits; *mukhyaḥ*—the chief; *sabhāyām*—in an assembly; *vai*—indeed; *mithunī-bhūya*—embracing; *bhāryayā*—with his wife.

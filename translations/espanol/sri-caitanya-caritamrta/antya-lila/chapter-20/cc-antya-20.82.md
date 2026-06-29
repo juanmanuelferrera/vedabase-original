@@ -1,9 +1,9 @@
 ### CC Antya 20.82
 
-> নিত্যানন্দ-কৃপাপাত্র — বৃন্দাবন-দাস ।
+> নিত্যানন্দ-কৃপাপাত্র — বৃন্দাবন-দাস ।\
 > চৈতন্যলীলায় তেঁহো হয়েন ‘আদিব্যাস’ ॥৮২॥
 
-> nityānanda-kṛpā-pātra--vṛndāvana-dāsa
+> nityānanda-kṛpā-pātra--vṛndāvana-dāsa\
 > caitanya-līlāya teṅho hayena 'ādi-vyāsa'
 
 *nityānanda*—del Señor Nityānanda Prabhu; *kṛpā-pātra*—el devoto predilecto; *vṛndāvana-dāsa*—Vṛndāvana dāsa Ṭhākura; *caitanya-līlāya*—en los pasatiempos de Śrī Caitanya Mahāprabhu; *teṅho*—él; *hayena*—es; *ādi-vyāsa*—el Vyāsadeva original.

@@ -1,11 +1,11 @@
 ### Bg 2.47
 
-> कर्मण्येवाधिकारस्ते मा फलेषु कदाचन ।
+> कर्मण्येवाधिकारस्ते मा फलेषु कदाचन ।\
 > मा कर्मफलहेतुर्भूर्मा ते सङ्गोऽस्त्वकर्मणि ॥४७॥
 
-> karmaṇy evādhikāras te
-> mā phaleṣu kadācana
-> mā karma-phala-hetur bhūr
+> karmaṇy evādhikāras te\
+> mā phaleṣu kadācana\
+> mā karma-phala-hetur bhūr\
 > mā te saṅgo 'stv akarmaṇi
 
 *karmaṇi*—prescribed duties; *eva*—certainly; *adhikāraḥ*—right; *te*—of you; *mā*—never; *phaleṣu*—in the fruits; *kadācana*—at any time; *mā*—never; *karma-phala*—in the result of the work; *hetuḥ*—cause; *bhūḥ*—become; *mā*—never; *te*—of you; *saṅgaḥ*—attachment; *astu*—be there; *akarmaṇi*—in not doing.

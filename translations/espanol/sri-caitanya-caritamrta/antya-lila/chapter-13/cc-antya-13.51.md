@@ -1,9 +1,9 @@
 ### CC Antya 13.51
 
-> সনাতন সেই বস্ত্র মস্তকে বান্ধিয়া ।
+> সনাতন সেই বস্ত্র মস্তকে বান্ধিয়া ।\
 > জগদানন্দের বাসা-দ্বারে বসিলা আসিয়া ॥৫১॥
 
-> sanātana sei vastra mastake bāndhiyā
+> sanātana sei vastra mastake bāndhiyā\
 > jagadānandera vāsā-dvāre vasilā āsiyā
 
 *sanātana*—Sanātana Gosvāmī; *sei*—esa; *vastra*—tela; *mastake*—en la cabeza; *bāndhiyā*—atando; *jagadānandera*—de Jagadānanda Paṇḍita; *vāsā-dvāre*—a la puerta de la residencia; *vasilā*—se sentó; *āsiyā*—llegando.

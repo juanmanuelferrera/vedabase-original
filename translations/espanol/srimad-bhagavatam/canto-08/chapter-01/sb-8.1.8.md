@@ -1,11 +1,11 @@
 ### SB 8.1.8
 
-> सुनन्दायां वर्षशतं पदैकेन भुवं स्पृशन
+> सुनन्दायां वर्षशतं पदैकेन भुवं स्पृशन\
 > तप्यमानस्तपो घोरमिदमन्वाह भारत ॥८॥
 
-> sunandāyāṁ varṣa-śataṁ
-> padaikena bhuvaṁ spṛśan
-> tapyamānas tapo ghoram
+> sunandāyāṁ varṣa-śataṁ\
+> padaikena bhuvaṁ spṛśan\
+> tapyamānas tapo ghoram\
 > idam anvāha bhārata
 
 *sunandāyām*—a orillas del río Sunandā; *varṣa-śatam*—durante cien años; *pada-ekena*—sobre una pierna; *bhuvam*—la tierra; *spṛśan*—tocando; *tapyamānaḥ*—realizó austeridades; *tapaḥ*—austeridades; *ghoram*—muy rigurosas; *idam*—lo siguiente; *anvāha*—y dijo; *bhārata*—¡oh, vástago de Bharata!.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.6
 
-> এক বন্দী ছাড়ে যদি নিজ-ধর্ম দেখিয়া ।
+> এক বন্দী ছাড়ে যদি নিজ-ধর্ম দেখিয়া ।\
 > সংসার হইতে তারে মুক্ত করেন গোসাঞা ॥৬॥
 
-> eka bandī chāḍe yadi nija-dharma dekhiyā
+> eka bandī chāḍe yadi nija-dharma dekhiyā\
 > saṁsāra ha-ite tāre mukta karena gosāñā
 
 *eka bandī*—one imprisoned person; *chāḍe*—one releases; *yadi*—if; *nija-dharma*—one's own religion; *dekhiyā*—consulting; *saṁsāra ha-ite*—from material bondage; *tāre*—him; *mukta karena*—releases; *gosāñā*—the Supreme Personality of Godhead.

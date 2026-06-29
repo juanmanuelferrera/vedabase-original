@@ -1,9 +1,9 @@
 ### CC Adi 17.291
 
-> লুকাইলা দুই ভুজ রাধার অগ্রেতে ।
+> লুকাইলা দুই ভুজ রাধার অগ্রেতে ।\
 > বহু যত্ন কৈলা কৃষ্ণ, নারিল রাখিতে ॥২৯১॥
 
-> lukāilā dui bhuja rādhāra agrete
+> lukāilā dui bhuja rādhāra agrete\
 > bahu yatna kailā kṛṣṇa, nārila rākhite
 
 *lukāilā*—He hid; *dui*—two; *bhuja*—arms; *rādhāra*—of Srīmatī Rādhārāṇī; *agrete*—in front; *bahu*—much; *yatna*—endeavor; *kailā*—did; *kṛṣṇa*—Lord Kṛṣṇa; *nārila*—was unable; *rākhite*—to keep.

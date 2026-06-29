@@ -1,13 +1,13 @@
 ### SB 7.9.15
 
-> नाहं बिभेम्यजित तेऽतिभयानकास्य
-> जिह्वार्कनेत्रभ्रुकुटीरभसोग्रदंष्ट्रात
-> आन्त्रस्रजःक्षतजकेशरशङ्कुकर्णान
+> नाहं बिभेम्यजित तेऽतिभयानकास्य\
+> जिह्वार्कनेत्रभ्रुकुटीरभसोग्रदंष्ट्रात\
+> आन्त्रस्रजःक्षतजकेशरशङ्कुकर्णान\
 > निर्ह्रादभीतदिगिभादरिभिन्नखाग्रात ॥१५॥
 
-> nāhaṁ bibhemy ajita te 'tibhayānakāsya-
-> jihvārka-netra-bhrukuṭī-rabhasogra-daṁṣṭrāt
-> āntra-srajaḥ-kṣataja-keśara-śaṅku-karṇān
+> nāhaṁ bibhemy ajita te 'tibhayānakāsya-\
+> jihvārka-netra-bhrukuṭī-rabhasogra-daṁṣṭrāt\
+> āntra-srajaḥ-kṣataja-keśara-śaṅku-karṇān\
 > nirhrāda-bhīta-digibhād ari-bhin-nakhāgrāt
 
 *na*—no; *aham*—yo; *bibhemi*—siento temor; *ajita*—¡oh, persona victoriosa suprema, que nunca eres vencido por nadie!; *te*—Tus; *ati*—mucho; *bhayānaka*—temibles; *āsya*—boca; *jihvā*—lengua; *arka-netra*—ojos que brillan como el Sol; *bhrukuṭī*—entrecejo fruncido; *rabhasa*—fuertes; *ugra-daṁṣṭrāt*—feroces colmillos; *āntra-srajaḥ*—con un collar de intestinos; *kṣataja*—ensangrentada; *keśara*—melena; *śaṅku-karṇāt*—orejas puntiagudas; *nirhrāda*—con un rugido (que Tú causas); *bhīta*—aterrorizados; *digibhāt*—del cual incluso los grandes elefantes; *ari-bhit*—que atraviesan al enemigo; *nakha-agrāt*—las puntas de cuyas uñas.

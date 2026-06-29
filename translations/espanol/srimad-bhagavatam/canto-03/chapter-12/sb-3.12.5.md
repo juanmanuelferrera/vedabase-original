@@ -1,11 +1,11 @@
 ### SB 3.12.5
 
-> तान्बभाषे स्वभूः पुत्रान्प्रजाः सृजत पुत्रकाः ।
+> तान्बभाषे स्वभूः पुत्रान्प्रजाः सृजत पुत्रकाः ।\
 > तन्नैच्छन्मोक्षधर्माणो वासुदेवपरायणाः ॥५॥
 
-> tān babhāṣe svabhūḥ putrān
-> prajāḥ sṛjata putrakāḥ
-> tan naicchan mokṣa-dharmāṇo
+> tān babhāṣe svabhūḥ putrān\
+> prajāḥ sṛjata putrakāḥ\
+> tan naicchan mokṣa-dharmāṇo\
 > vāsudeva-parāyaṇāḥ
 
 *tān*—a los Kumāras, como antes se dijo; *babhāṣe*—se dirigió; *svabhūḥ*—Brahmā; *putrān*—a los hijos; *prajāḥ*—generaciones; *sṛjata*—crear; *putrakāḥ*—¡oh, hijos míos!; *tat*—esto; *na*—no; *aicchan*—deseado; *mokṣa-dharmāṇaḥ*—comprometidos con los principios de la liberación; *vāsudeva*—la Personalidad de Dios; *parāyaṇāḥ*—que están consagrados de este modo.

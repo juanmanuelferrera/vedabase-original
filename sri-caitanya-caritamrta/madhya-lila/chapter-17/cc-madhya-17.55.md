@@ -1,9 +1,9 @@
 ### CC Madhya 17.55
 
-> বন দেখি’ ভ্রম হয় — এই ‘বৃন্দাবন’ ।
+> বন দেখি’ ভ্রম হয় — এই ‘বৃন্দাবন’ ।\
 > শৈল দেখি’ মনে হয় — এই ‘গোবর্ধন’ ॥৫৫॥
 
-> vana dekhi' bhrama haya—ei 'vṛndāvana'
+> vana dekhi' bhrama haya—ei 'vṛndāvana'\
 > śaila dekhi' mane haya—ei 'govardhana'
 
 *vana dekhi'*—seeing the forest; *bhrama haya*—there is illusion; *ei*—this; *vṛndāvana*—Vṛndāvana forest; *śaila dekhi'*—seeing a hill; *mane haya*—considers; *ei govardhana*—this is Govardhana Hill.

@@ -1,13 +1,13 @@
 ### SB 4.9.16
 
-> यस्मिन्विरुद्धगतयो ह्यनिशं पतन्ति
-> विद्यादयो विविधशक्तय आनुपूर्व्यात् ।
-> तद्ब्रह्म विश्वभवमेकमनन्तमाद्यम्
+> यस्मिन्विरुद्धगतयो ह्यनिशं पतन्ति\
+> विद्यादयो विविधशक्तय आनुपूर्व्यात् ।\
+> तद्ब्रह्म विश्वभवमेकमनन्तमाद्यम्\
 > आनन्दमात्रमविकारमहं प्रपद्ये ॥१६॥
 
-> yasmin viruddha-gatayo hy aniśaṁ patanti
-> vidyādayo vividha-śaktaya ānupūrvyāt
-> tad brahma viśva-bhavam ekam anantam ādyam
+> yasmin viruddha-gatayo hy aniśaṁ patanti\
+> vidyādayo vividha-śaktaya ānupūrvyāt\
+> tad brahma viśva-bhavam ekam anantam ādyam\
 > ānanda-mātram avikāram ahaṁ prapadye
 
 *yasmin*—en quien; *viruddha-gatayaḥ*—de carácter antagónico; *hi*—ciertamente; *aniśam*—siempre; *patanti*—se manifiestan; *vidyā-ādayaḥ*—conocimiento e ignorancia; *vividha*—diversas; *śaktayaḥ*—energías; *ānupūrvyāt*—continuamente; *tat*—ese; *brahma*—Brahman; *viśva-bhavam*—la causa de la creación material; *ekam*—uno; *anantam*—ilimitado; *ādyam*—original; *ānanda-mātram*—sencillamente lleno de bienaventuranza; *avikāram*—inmutable; *aham*—yo; *prapadye*—ofrezco mis reverencias.

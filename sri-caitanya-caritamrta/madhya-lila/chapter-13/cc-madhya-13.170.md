@@ -1,9 +1,9 @@
 ### CC Madhya 13.170
 
-> প্রভুর হৃদয়ে আনন্দসিন্ধু উথলিল ।
+> প্রভুর হৃদয়ে আনন্দসিন্ধু উথলিল ।\
 > উন্মাদ, ঝঞ্ঝা-বাত তত্ক্ষণে উঠিল ॥১৭০॥
 
-> prabhura hṛdaye ānanda-sindhu uthalila
+> prabhura hṛdaye ānanda-sindhu uthalila\
 > unmāda, jhañjhā-vāta tat-kṣaṇe uṭhila
 
 *prabhura hṛdaye*—in the heart of Śrī Caitanya Mahāprabhu; *ānanda-sindhu*—the ocean of transcendental bliss; *uthalila*—arose; *unmāda*—madness; *jhañjhā-vāta*—hurricane; *tat-kṣaṇe*—immediately; *uṭhila*—intensified.

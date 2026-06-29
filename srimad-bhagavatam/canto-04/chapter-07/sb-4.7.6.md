@@ -1,13 +1,13 @@
 ### SB 4.7.6
 
-> मैत्रेय उवाच
-> तदा सर्वाणि भूतानि श्रुत्वा मीढुष्टमोदितम् ।
+> मैत्रेय उवाच\
+> तदा सर्वाणि भूतानि श्रुत्वा मीढुष्टमोदितम् ।\
 > परितुष्टात्मभिस्तात साधु साध्वित्यथाब्रुवन् ॥६॥
 
-> maitreya uvāca
-> tadā sarvāṇi bhūtāni
-> śrutvā mīḍhuṣṭamoditam
-> parituṣṭātmabhis tāta
+> maitreya uvāca\
+> tadā sarvāṇi bhūtāni\
+> śrutvā mīḍhuṣṭamoditam\
+> parituṣṭātmabhis tāta\
 > sādhu sādhv ity athābruvan
 
 *maitreyaḥ*—the sage Maitreya; *uvāca*—said; *tadā*—at that time; *sarvāṇi*—all; *bhūtāni*—personalities; *śrutvā*—after hearing; *mīḍhuḥ-tama*—the best of the benedictors (Lord Śiva); *uditam*—spoken by; *parituṣṭa*—being satisfied; *ātmabhiḥ*—by heart and soul; *tāta*—my dear Vidura; *sādhu sādhu*—well done, well done; *iti*—thus; *atha abruvan*—as we have said.

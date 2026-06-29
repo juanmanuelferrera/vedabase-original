@@ -1,9 +1,9 @@
 ### CC Antya 13.110
 
-> অন্তরে মুমুক্ষু তেঁহো, বিদ্যা-গর্ববান্ ।
+> অন্তরে মুমুক্ষু তেঁহো, বিদ্যা-গর্ববান্ ।\
 > সর্বচিত্ত-জ্ঞাতা প্রভু — সর্বজ্ঞ ভগবান্ ॥১১০॥
 
-> antare mumukṣu teṅho, vidyā-garvavān
+> antare mumukṣu teṅho, vidyā-garvavān\
 > sarva-citta-jñātā prabhu--sarvajña bhagavān
 
 *antare*—dentro de su corazón; *mumukṣu*—que desea la liberación; *teṅho*—él; *vidyā-garvavān*—muy orgulloso de su erudición; *sarva-citta-jñātā*—aquel que conoce el corazón de todos; *prabhu*—Śrī Caitanya Mahāprabhu; *sarva-jña bhagavān*—la Suprema Personalidad de Dios omnisciente.

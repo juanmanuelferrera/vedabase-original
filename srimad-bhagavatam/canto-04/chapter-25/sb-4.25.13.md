@@ -1,11 +1,11 @@
 ### SB 4.25.13
 
-> स एकदा हिमवतो दक्षिणेष्वथ सानुषु ।
+> स एकदा हिमवतो दक्षिणेष्वथ सानुषु ।\
 > ददर्श नवभिर्द्वार्भिः पुरं लक्षितलक्षणाम् ॥१३॥
 
-> sa ekadā himavato
-> dakṣiṇeṣv atha sānuṣu
-> dadarśa navabhir dvārbhiḥ
+> sa ekadā himavato\
+> dakṣiṇeṣv atha sānuṣu\
+> dadarśa navabhir dvārbhiḥ\
 > puraṁ lakṣita-lakṣaṇām
 
 *saḥ*—that King Purañjana; *ekadā*—once upon a time; *himavataḥ*—of the Himalaya Mountains; *dakṣiṇeṣu*—southern; *atha*—after this; *sānuṣu*—on the ridges; *dadarśa*—found; *navabhiḥ*—with nine; *dvārbhiḥ*—gates; *puram*—a city; *lakṣita*—visible; *lakṣaṇām*—having all auspicious facilities.

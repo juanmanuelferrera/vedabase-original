@@ -1,39 +1,39 @@
 ### SB 7.11.8-12
 
-> सत्यं दया तपः शौचं तितिक्षेक्षा शमो दमः
-> अहिंसा ब्रह्मचर्यं च त्यागः स्वाध्याय आर्जवम ॥८॥
-> सन्तोषः समदृक्सेवा ग्राम्येहोपरमः शनैः
-> नृणां विपर्ययेहेक्षा मौनमात्मविमर्शनम ॥९॥
-> अन्नाद्यादेः संविभागो भूतेभ्यश्च यथार्हतः
-> तेष्वात्मदेवताबुद्धिः सुतरां नृषु पाण्डव ॥१०॥
-> श्रवणं कीर्तनं चास्य स्मरणं महतां गतेः
-> सेवेज्यावनतिर्दास्यं सख्यमात्मसमर्पणम ॥११॥
-> नृणामयं परो धर्मः सर्वेषां समुदाहृतः
+> सत्यं दया तपः शौचं तितिक्षेक्षा शमो दमः\
+> अहिंसा ब्रह्मचर्यं च त्यागः स्वाध्याय आर्जवम ॥८॥\
+> सन्तोषः समदृक्सेवा ग्राम्येहोपरमः शनैः\
+> नृणां विपर्ययेहेक्षा मौनमात्मविमर्शनम ॥९॥\
+> अन्नाद्यादेः संविभागो भूतेभ्यश्च यथार्हतः\
+> तेष्वात्मदेवताबुद्धिः सुतरां नृषु पाण्डव ॥१०॥\
+> श्रवणं कीर्तनं चास्य स्मरणं महतां गतेः\
+> सेवेज्यावनतिर्दास्यं सख्यमात्मसमर्पणम ॥११॥\
+> नृणामयं परो धर्मः सर्वेषां समुदाहृतः\
 > त्रिंशल्लक्षणवान्राजन्सर्वात्मा येन तुष्यति ॥१२॥
 
-> satyaṁ dayā tapaḥ śaucaṁ
-> titikṣekṣā śamo damaḥ
-> ahiṁsā brahmacaryaṁ ca
+> satyaṁ dayā tapaḥ śaucaṁ\
+> titikṣekṣā śamo damaḥ\
+> ahiṁsā brahmacaryaṁ ca\
 > tyāgaḥ svādhyāya ārjavam
 
-> santoṣaḥ samadṛk-sevā
-> grāmyehoparamaḥ śanaiḥ
-> nṛṇāṁ viparyayehekṣā
+> santoṣaḥ samadṛk-sevā\
+> grāmyehoparamaḥ śanaiḥ\
+> nṛṇāṁ viparyayehekṣā\
 > maunam ātma-vimarśanam
 
-> annādyādeḥ saṁvibhāgo
-> bhūtebhyaś ca yathārhataḥ
-> teṣv ātma-devatā-buddhiḥ
+> annādyādeḥ saṁvibhāgo\
+> bhūtebhyaś ca yathārhataḥ\
+> teṣv ātma-devatā-buddhiḥ\
 > sutarāṁ nṛṣu pāṇḍava
 
-> śravaṇaṁ kīrtanaṁ cāsya
-> smaraṇaṁ mahatāṁ gateḥ
-> sevejyāvanatir dāsyaṁ
+> śravaṇaṁ kīrtanaṁ cāsya\
+> smaraṇaṁ mahatāṁ gateḥ\
+> sevejyāvanatir dāsyaṁ\
 > sakhyam ātma-samarpaṇam
 
-> nṛṇām ayaṁ paro dharmaḥ
-> sarveṣāṁ samudāhṛtaḥ
-> triṁśal-lakṣaṇavān rājan
+> nṛṇām ayaṁ paro dharmaḥ\
+> sarveṣāṁ samudāhṛtaḥ\
+> triṁśal-lakṣaṇavān rājan\
 > sarvātmā yena tuṣyati
 
 *satyam*—speaking the truth without distortion or deviation; *dayā*—sympathy to everyone suffering; *tapaḥ*—austerities (such as observing fasts at least twice in a month on the day of Ekādaśī); *śaucam*—cleanliness (bathing regularly at least twice a day, morning and evening, and remembering to chant the holy name of God); *titikṣā*—toleration (being unagitated by seasonal changes or inconvenient circumstances); *īkṣā*—distinguishing between good and bad; *śamaḥ*—control of the mind (not allowing the mind to act whimsically); *damaḥ*—control of the senses (not allowing the senses to act without control); *ahiṁsā*—nonviolence (not subjecting any living entity to the threefold miseries); *brahmacaryam*—continence or abstaining from misuse of one's semen (not indulging in sex with women other than one's own wife and not having sex with one's own wife when sex is forbidden, like during the period of menstruation); *ca*—and; *tyāgaḥ*—giving in charity at least fifty percent of one's income; *svādhyāyaḥ*—reading of transcendental literatures like *Bhagavad-gītā, Śrīmad-Bhāgavatam, Rāmāyaṇa* and *Mahābhārata* (or, for those not in Vedic culture, reading of the Bible or Koran); *ārjavam*—simplicity (freedom from mental duplicity); *santoṣaḥ*—being satisfied with that which is available without severe endeavor; *samadṛk-sevā*—rendering service to saintly persons who make no distinctions between one living being and another and who see every living being as a spirit soul (*paṇḍitāḥ sama-darśinaḥ*); *grāmya-īha-uparamaḥ*—not taking part in so-called philanthropic activities; *śanaiḥ*—gradually; *nṛṇām*—in human society; *viparyaya-īhā*—the unnecessary activities; *īkṣā*—discussing; *maunam*—being grave and silent; *ātma*—into the self; *vimarśanam*—research (as to whether one is the body or the soul); *anna-ādya-ādeḥ*—of food and drink, etc.; *saṁvibhāgaḥ*—equal distribution; *bhūtebhyaḥ*—to different living entities; *ca*—also; *yathā-arhataḥ*—as befitting; *teṣu*—all living entities; *ātma-devatā-buddhiḥ*—accepting as the self or the demigods; *sutarām*—preliminarily; *nṛṣu*—among all human beings; *pāṇḍava*—O Mahārāja Yudhiṣṭhira; *śravaṇam*—hearing; *kīrtanam*—chanting; *ca*—also; *asya*—of Him (the Lord); *smaraṇam*—remembering (His words and activities); *mahatām*—of great saintly persons; *gateḥ*—who is the shelter; *sevā*—service; *ijyā*—worship; *avanatiḥ*—offering obeisances; *dāsyam*—accepting the service; *sakhyam*—to consider as a friend; *ātma-samarpaṇam*—surrendering one's whole self; *nṛṇām*—of all human beings; *ayam*—this; *paraḥ*—the supermost; *dharmaḥ*—religious principle; *sarveṣām*—of all; *samudāhṛtaḥ*—described fully; *triṁśat-lakṣaṇa-vān*—possessing thirty characteristics; *rājan*—O King; *sarva-ātmā*—the Supreme Lord, the Supersoul of all; *yena*—by which; *tuṣyati*—is satisfied.

@@ -1,9 +1,9 @@
 ### CC Madhya 18.5
 
-> তীর্থ ‘লুপ্ত’ জানি’ প্রভু সর্বজ্ঞ ভগবান্ ।
+> তীর্থ ‘লুপ্ত’ জানি’ প্রভু সর্বজ্ঞ ভগবান্ ।\
 > দুই ধান্যক্ষেত্রে অল্পজলে কৈলা স্নান ॥৫॥
 
-> tīrtha 'lupta' jāni' prabhu sarvajña bhagavān
+> tīrtha 'lupta' jāni' prabhu sarvajña bhagavān\
 > dui dhānya-kṣetre alpa-jale kailā snāna
 
 *tīrtha*—holy place; *lupta*—lost; *jāni'*—knowing; *prabhu*—Śrī Caitanya Mahāprabhu; *sarva-jña*—omniscient; *bhagavān*—the Supreme Personality of Godhead; *dui*—two; *dhānya-kṣetre*—in paddy fields; *alpa-jale*—in not very deep water; *kailā snāna*—took a bath.

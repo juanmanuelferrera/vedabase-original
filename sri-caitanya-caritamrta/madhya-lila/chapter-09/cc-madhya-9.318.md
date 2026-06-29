@@ -1,9 +1,9 @@
 ### CC Madhya 9.318
 
-> সপ্ত গোদাবরী আইলা করি’ তীর্থ বহুতর ।
+> সপ্ত গোদাবরী আইলা করি’ তীর্থ বহুতর ।\
 > পুনরপি আইলা প্রভু বিদ্যানগর ॥৩১৮॥
 
-> sapta godāvarī āilā kari' tīrtha bahutara
+> sapta godāvarī āilā kari' tīrtha bahutara\
 > punarapi āilā prabhu vidyānagara
 
 *sapta godāvarī*—to the place known as Sapta-godāvarī; *āilā*—came; *kari' tīrtha bahutara*—visiting various holy places; *punarapi*—again; *āilā*—came back; *prabhu*—Śrī Caitanya Mahāprabhu; *vidyānagara*—to the place where He met Rāmānanda Rāya.

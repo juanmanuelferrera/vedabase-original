@@ -1,11 +1,11 @@
 ### SB 7.7.14
 
-> ऋषिं पर्यचरत्तत्र भक्त्या परमया सती
+> ऋषिं पर्यचरत्तत्र भक्त्या परमया सती\
 > अन्तर्वत्नी स्वगर्भस्य क्षेमायेच्छाप्रसूतये ॥१४॥
 
-> ṛṣiṁ paryacarat tatra
-> bhaktyā paramayā satī
-> antarvatnī sva-garbhasya
+> ṛṣiṁ paryacarat tatra\
+> bhaktyā paramayā satī\
+> antarvatnī sva-garbhasya\
 > kṣemāyecchā-prasūtaye
 
 *ṛṣim*—unto Nārada Muni; *paryacarat*—rendered service; *tatra*—there (in the *āśrama* of Nārada Muni); *bhaktyā*—with devotion and faith; *paramayā*—great; *satī*—the faithful woman; *antarvatnī*—pregnant; *sva-garbhasya*—of her embryo; *kṣemāya*—for the welfare; *icchā*—according to desire; *prasūtaye*—for deliverance of the child.

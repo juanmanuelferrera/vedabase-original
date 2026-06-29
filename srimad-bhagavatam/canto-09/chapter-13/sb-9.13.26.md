@@ -1,11 +1,11 @@
 ### SB 9.13.26
 
-> शुनकस्तत्सुतो जज्ञए वीतहव्यो धृतिस्ततः
+> शुनकस्तत्सुतो जज्ञए वीतहव्यो धृतिस्ततः\
 > बहुलाश्वो धृतेस्तस्य कृतिरस्य महावशी ॥२६॥
 
-> śunakas tat-suto jajñe
-> vītahavyo dhṛtis tataḥ
-> bahulāśvo dhṛtes tasya
+> śunakas tat-suto jajñe\
+> vītahavyo dhṛtis tataḥ\
+> bahulāśvo dhṛtes tasya\
 > kṛtir asya mahāvaśī
 
 *śunakaḥ*—Śunaka; *tat-sutaḥ*—the son of Ṛta; *jajñe*—was born; *vītahavyaḥ*—Vītahavya; *dhṛtiḥ*—Dhṛti; *tataḥ*—the son of Vītahavya; *bahulāśvaḥ*—Bahulāśva; *dhṛteḥ*—from Dhṛti; *tasya*—his son; *kṛtiḥ*—Kṛti; *asya*—of Kṛti; *mahāvaśī*—there was a son named Mahāvaśī.

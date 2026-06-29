@@ -1,9 +1,9 @@
 ### CC Antya 3.58
 
-> ‘রাম’ দুই অক্ষর ইহা নহে ব্যবহিত ।
+> ‘রাম’ দুই অক্ষর ইহা নহে ব্যবহিত ।\
 > প্রেমবাচী ‘হা’-শব্দ তাহাতে ভূষিত ॥৫৮॥
 
-> 'rāma' dui akṣara ihā nahe vyavahita
+> 'rāma' dui akṣara ihā nahe vyavahita\
 > prema-vācī 'hā'-śabda tāhāte bhūṣita
 
 *rāma*—the holy name of the Lord; *dui*—two; *akṣara*—syllables; *ihā*—these; *nahe*—are not; *vyavahita*—separated; *prema-vācī*—a word indicating love; *hā*—"O"; *śabda*—the word; *tā-hāte*—by that; *bhūṣita*—decorated.

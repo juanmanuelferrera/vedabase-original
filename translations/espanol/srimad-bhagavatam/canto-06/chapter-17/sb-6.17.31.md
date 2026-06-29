@@ -1,11 +1,11 @@
 ### SB 6.17.31
 
-> वासुदेवे भगवति भक्तिमुद्वहतां नृणाम
+> वासुदेवे भगवति भक्तिमुद्वहतां नृणाम\
 > ज्ञआनवैराग्यवीर्याणां न हि कश्चिद्व्यपाश्रयः ॥३१॥
 
-> vāsudeve bhagavati
-> bhaktim udvahatāṁ nṛṇām
-> jñāna-vairāgya-vīryāṇāṁ
+> vāsudeve bhagavati\
+> bhaktim udvahatāṁ nṛṇām\
+> jñāna-vairāgya-vīryāṇāṁ\
 > na hi kaścid vyapāśrayaḥ
 
 *vásudeve*—al Señor Vāsudeva, Kṛṣṇa; *bhagavati*—la Suprema Personalidad de Dios; *bhaktim*—amor y fe con servicio devocional; *udvahatām*—para aquellos que llevan; *nṛṇām*—hombres; *jñāna-vairāgya*—del conocimiento verdadero y desapego; *vīryāṇaṁ*—en posesión de la fuerza y el poder; *na*—no; *hi*—en verdad; *kaścit*—nada; *vayapāśrayaḥ*—como interés o refugio.

@@ -1,11 +1,11 @@
 ### SB 3.31.23
 
-> तेनावसृष्टः सहसा कृत्वावाक्षिर आतुरः ।
+> तेनावसृष्टः सहसा कृत्वावाक्षिर आतुरः ।\
 > विनिष्क्रामति कृच्छ्रेण निरुच्छ्वासो हतस्मृतिः ॥२३॥
 
-> tenāvasṛṣṭaḥ sahasā
-> kṛtvāvāk śira āturaḥ
-> viniṣkrāmati kṛcchreṇa
+> tenāvasṛṣṭaḥ sahasā\
+> kṛtvāvāk śira āturaḥ\
+> viniṣkrāmati kṛcchreṇa\
 > nirucchvāso hata-smṛtiḥ
 
 *tena*—by that wind; *avasṛṣṭaḥ*—pushed downward; *sahasā*—suddenly; *kṛtvā*—turned; *avāk*—downward; *śiraḥ*—his head; *āturaḥ*—suffering; *viniṣkrāmati*—he comes out; *kṛcchreṇa*—with great trouble; *nirucchvāsaḥ*—breathless; *hata*—deprived of; *smṛtiḥ*—memory.

@@ -1,9 +1,9 @@
 ### CC Antya 14.99
 
-> প্রভুর অঙ্গে দেখে অষ্টসাত্ত্বিক বিকার ।
+> প্রভুর অঙ্গে দেখে অষ্টসাত্ত্বিক বিকার ।\
 > আশ্চর্য সাত্ত্বিক দেখি’ হৈলা চমৎকার ॥৯৯॥
 
-> prabhura aṅge dekhe aṣṭa-sāttvika vikāra
+> prabhura aṅge dekhe aṣṭa-sāttvika vikāra\
 > āścarya sāttvika dekhi' hailā camatkāra
 
 *prabhura*—of Śrī Caitanya Mahāprabhu; *aṅge*—in the body; *dekhe*—they see; *aṣṭa-sāttvika vikāra*—eight kinds of transcendental transformations; *āścarya*—wonderful; *sāttvika*—transcendental; *dekhi'*—seeing; *hailā camatkāra*—they became struck with wonder.

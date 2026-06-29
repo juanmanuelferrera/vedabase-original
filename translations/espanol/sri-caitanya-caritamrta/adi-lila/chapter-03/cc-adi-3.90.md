@@ -1,9 +1,9 @@
 ### CC Adi 3.90
 
-> অসুরস্বভাবে কৃষ্ণে কভু নাহি জানে ।
+> অসুরস্বভাবে কৃষ্ণে কভু নাহি জানে ।\
 > লুকাইতে নারে কৃষ্ণ ভক্তজন-স্থানে ॥৯০॥
 
-> asura-svabhāve kṛṣṇe kabhu nāhi jāne
+> asura-svabhāve kṛṣṇe kabhu nāhi jāne\
 > lukāite nāre kṛṣṇa bhakta-jana-sthāne
 
 *asura-svabhāve*—aquellos cuya naturaleza es demoníaca; *kṛṣṇe*—al Señor Kṛṣṇa; *kabhu*—en ningún momento; *nāhi*—no; *jāne*—conocen; *lukāite*—ocultarse; *nāre*—no es capaz; *kṛṣṇa*—el Señor Kṛṣṇa; *bhakta-jana*—de los devotos puros; *sthāne*—ante.

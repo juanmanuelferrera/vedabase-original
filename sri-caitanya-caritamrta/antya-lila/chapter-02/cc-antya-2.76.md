@@ -1,9 +1,9 @@
 ### CC Antya 2.76
 
-> একদিন সভাতে প্রভু বাত চালাইলা ।
+> একদিন সভাতে প্রভু বাত চালাইলা ।\
 > নৃসিংহানন্দের গুণ কহিতে লাগিলা ॥৭৬॥
 
-> eka-dina sabhāte prabhu vāta cālāilā
+> eka-dina sabhāte prabhu vāta cālāilā\
 > nṛsiṁhānandera guṇa kahite lāgilā
 
 *eka-dina*—one day; *sabhāte*—in the presence of all the devotees; *prabhu*—Śrī Caitanya Mahāprabhu; *vāta cālāilā*—raised the topic (of eating at Nṛsiṁhānanda's house); *nṛsiṁhānandera*—of Nṛsiṁhānanda Brahmacārī; *guṇa*—transcendental qualities; *kahite lāgilā*—began to speak.

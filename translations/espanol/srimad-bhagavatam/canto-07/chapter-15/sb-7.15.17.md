@@ -1,11 +1,11 @@
 ### SB 7.15.17
 
-> सदा सन्तुष्टमनसः सर्वाः शिवमया दिशः
+> सदा सन्तुष्टमनसः सर्वाः शिवमया दिशः\
 > शर्कराकण्टकादिभ्यो यथोपानत्पदः शिवम ॥१७॥
 
-> sadā santuṣṭa-manasaḥ
-> sarvāḥ śivamayā diśaḥ
-> śarkarā-kaṇṭakādibhyo
+> sadā santuṣṭa-manasaḥ\
+> sarvāḥ śivamayā diśaḥ\
+> śarkarā-kaṇṭakādibhyo\
 > yathopānat-padaḥ śivam
 
 *sadā*—siempre; *santuṣṭa-manasaḥ*—para la persona satisfecha en el ser; *sarvāḥ*—todo; *śiva-mayāḥ*—auspicioso; *diśaḥ*—en todas direcciones; *śarkarā*—de guijarros; *kaṇṭaka-ādibhyaḥ*—y espinas, etc.; *yathā*—como; *upānat-padaḥ*—para la persona que tiene zapatos; *śivam*—no hay peligro (auspicioso).

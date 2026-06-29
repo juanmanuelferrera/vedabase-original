@@ -1,13 +1,13 @@
 ### SB 3.25.12
 
-> मैत्रेय उवाच
-> इति स्वमातुर्निरवद्यमीप्सितं निशम्य पुंसामपवर्गवर्धनम् ।
+> मैत्रेय उवाच\
+> इति स्वमातुर्निरवद्यमीप्सितं निशम्य पुंसामपवर्गवर्धनम् ।\
 > धियाभिनन्द्यात्मवतां सतां गतिर्बभाष ईषत्स्मितशोभिताननः ॥१२॥
 
-> maitreya uvāca
-> iti sva-mātur niravadyam īpsitaṁ
-> niśamya puṁsām apavarga-vardhanam
-> dhiyābhinandyātmavatāṁ satāṁ gatir
+> maitreya uvāca\
+> iti sva-mātur niravadyam īpsitaṁ\
+> niśamya puṁsām apavarga-vardhanam\
+> dhiyābhinandyātmavatāṁ satāṁ gatir\
 > babhāṣa īṣat-smita-śobhitānanaḥ
 
 *maitreyaḥ uvāca*—Maitreya said; *iti*—thus; *sva-mātuḥ*—of His mother; *niravadyam*—uncontaminated; *īpsitam*—desire; *niśamya*—after hearing; *puṁsām*—of people; *apavarga*—cessation of bodily existence; *vardhanam*—increasing; *dhiyā*—mentally; *abhinandya*—having thanked; *ātma-vatām*—interested in self-realization; *satām*—of the transcendentalists; *gatiḥ*—the path; *babhāṣe*—He explained; *īṣat*—slightly; *smita*—smiling; *śobhita*—beautiful; *ānanaḥ*—His face.

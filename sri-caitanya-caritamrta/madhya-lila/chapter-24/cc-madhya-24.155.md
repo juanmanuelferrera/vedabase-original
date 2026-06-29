@@ -1,9 +1,9 @@
 ### CC Madhya 24.155
 
-> সগর্ভ, নিগর্ভ, — এই হয় দুই ভেদ ।
+> সগর্ভ, নিগর্ভ, — এই হয় দুই ভেদ ।\
 > এক এক তিন ভেদে ছয় বিভেদ ॥১৫৫॥
 
-> sagarbha, nigarbha,—ei haya dui bheda
+> sagarbha, nigarbha,—ei haya dui bheda\
 > eka eka tina bhede chaya vibheda
 
 *sagarbha*—*sagarbha*; *nigarbha*—*nigarbha*; *ei*—thus; *haya*—there are; *dui*—two; *bheda*—different varieties; *eka eka*—each one; *tina bhede*—in three varieties; *chaya vibheda*—therefore there are six varieties.

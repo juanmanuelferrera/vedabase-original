@@ -1,9 +1,9 @@
 ### CC Madhya 25.48
 
-> ‘ভগবত্তা’ মানিলে ‘অদ্বৈত’ না যায় স্থাপন ।
+> ‘ভগবত্তা’ মানিলে ‘অদ্বৈত’ না যায় স্থাপন ।\
 > অতএব সব শাস্ত্র করয়ে খণ্ডন ॥৪৮॥
 
-> 'bhagavattā' mānile 'advaita' nā yāya sthāpana
+> 'bhagavattā' mānile 'advaita' nā yāya sthāpana\
 > ataeva saba śāstra karaye khaṇḍana
 
 *bhagavattā*—la Personalidad de Dios; *mānile*—si uno acepta; *advaita*—el monismo o no dualismo; *nā*—no; *yāya*—es posible; *sthāpana*—establecer; *ataeva*—por lo tanto; *saba*—todas; *śāstra*—escrituras reveladas; *karaye*—hace; *khaṇḍana*—refutación.

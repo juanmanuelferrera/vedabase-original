@@ -1,13 +1,13 @@
 ### SB 4.30.8
 
-> श्रीभगवानुवाच
-> वरं वृणीध्वं भद्रं वो यूयं मे नृपनन्दनाः ।
+> श्रीभगवानुवाच\
+> वरं वृणीध्वं भद्रं वो यूयं मे नृपनन्दनाः ।\
 > सौहार्देनापृथग्धर्मास्तुष्टोऽहं सौहृदेन वः ॥८॥
 
-> śrī-bhagavān uvāca
-> varaṁ vṛṇīdhvaṁ bhadraṁ vo
-> yūyaṁ me nṛpa-nandanāḥ
-> sauhārdenāpṛthag-dharmās
+> śrī-bhagavān uvāca\
+> varaṁ vṛṇīdhvaṁ bhadraṁ vo\
+> yūyaṁ me nṛpa-nandanāḥ\
+> sauhārdenāpṛthag-dharmās\
 > tuṣṭo 'haṁ sauhṛdena vaḥ
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *varam*—bendición; *vṛṇīdhvam*—pidan; *bhadram*—buena fortuna; *vaḥ*—de ustedes; *yūyam*—ustedes; *me*—de Mí; *nṛpa-nandanāḥ*—¡oh, hijos del rey!; *sauhārdena*—por amistad; *apṛthak*—no diferente; *dharmāḥ*—ocupación; *tuṣṭaḥ*—complacido; *aham*—Yo; *sauhṛdena*—por amistad; *vaḥ*—de ustedes.

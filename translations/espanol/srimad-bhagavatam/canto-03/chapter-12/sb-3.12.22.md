@@ -1,11 +1,11 @@
 ### SB 3.12.22
 
-> मरीचिरत्र्यङ्गिरसौ पुलस्त्यः पुलहः क्रतुः ।
+> मरीचिरत्र्यङ्गिरसौ पुलस्त्यः पुलहः क्रतुः ।\
 > भृगुर्वसिष्ठो दक्षश्च दशमस्तत्र नारदः ॥२२॥
 
-> marīcir atry-aṅgirasau
-> pulastyaḥ pulahaḥ kratuḥ
-> bhṛgur vasiṣṭho dakṣaś ca
+> marīcir atry-aṅgirasau\
+> pulastyaḥ pulahaḥ kratuḥ\
+> bhṛgur vasiṣṭho dakṣaś ca\
 > daśamas tatra nāradaḥ
 
 *marīciḥ, atri, aṅgirasau, pulastyaḥ, pulahaḥ, kratuḥ, bhṛguḥ, vasiṣṭhaḥ, dakṣaḥ*—nombres de hijos de Brahmā; *ca*—y; *daśamaḥ*—el décimo; *tatra*—allí; *nāradaḥ*—Nārada.

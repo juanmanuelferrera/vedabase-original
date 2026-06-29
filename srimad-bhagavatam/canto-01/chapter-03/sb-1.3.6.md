@@ -1,11 +1,11 @@
 ### SB 1.3.6
 
-> स एव प्रथमं देवः कौमारं सर्गमाश्रितः ।
+> स एव प्रथमं देवः कौमारं सर्गमाश्रितः ।\
 > चचार दुश्चरं ब्रह्मा ब्रह्मचर्यमखण्डितम् ॥६॥
 
-> sa eva prathamaṁ devaḥ
-> kaumāraṁ sargam āśritaḥ
-> cacāra duścaraṁ brahmā
+> sa eva prathamaṁ devaḥ\
+> kaumāraṁ sargam āśritaḥ\
+> cacāra duścaraṁ brahmā\
 > brahmacaryam akhaṇḍitam
 
 *saḥ*—that; *eva*—certainly; *prathamam*—first; *devaḥ*—Supreme Lord; *kaumāram*—named the Kumāras (unmarried); *sargam*—creation; *āśritaḥ*—under; *cacāra*—performed; *duścaram*—very difficult to do; *brahmā*—in the order of Brahman; *brahmacaryam*—under discipline to realize the Absolute (Brahman); *akhaṇḍitam*—unbroken.

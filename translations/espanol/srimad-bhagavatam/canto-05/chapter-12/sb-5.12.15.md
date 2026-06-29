@@ -1,11 +1,11 @@
 ### SB 5.12.15
 
-> सा मां स्मृतिर्मृगदेहेऽपि वीर कृष्णार्चनप्रभवा नो जहाति
+> सा मां स्मृतिर्मृगदेहेऽपि वीर कृष्णार्चनप्रभवा नो जहाति\
 > अथो अहं जनसङ्गादसङ्गो विशङ्कमानोऽविवृतश्चरामि ॥१५॥
 
-> sā māṁ smṛtir mṛga-dehe 'pi vīra
-> kṛṣṇārcana-prabhavā no jahāti
-> atho ahaṁ jana-saṅgād asaṅgo
+> sā māṁ smṛtir mṛga-dehe 'pi vīra\
+> kṛṣṇārcana-prabhavā no jahāti\
+> atho ahaṁ jana-saṅgād asaṅgo\
 > viśaṅkamāno 'vivṛtaś carāmi
 
 *sā*—ese; *mām*—yo; *smṛtiḥ*—recuerdo de las actividades de mi vida anterior; *mṛga-dehe*—en un cuerpo de ciervo; *api*—aunque; *vīra*—¡oh, gran héroe!; *kṛṣṇa-arcana-prabhavā*—que apareció debido a la influencia del servicio sincero a Kṛṣṇa; *no jahāti*—no abandoné; *atho*—por ello; *aham*—yo; *jana-saṅgāt*—de la relación con hombres comunes; *asaṅgaḥ*—completamente desapegado; *viśaṅkamānaḥ*—temeroso; *avivṛtaḥ*—inadvertido para los demás; *carāmi*—voy de un lugar a otro.

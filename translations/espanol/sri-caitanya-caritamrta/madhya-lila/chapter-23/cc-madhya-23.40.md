@@ -1,11 +1,11 @@
 ### CC Madhya 23.40
 
-> ধন্যস্যায়ং নবপ্রেমা যস্যোন্মীলতি চেতসি ।
+> ধন্যস্যায়ং নবপ্রেমা যস্যোন্মীলতি চেতসি ।\
 > অন্তর্বাণিভিরপ্যস্য মুদ্রা সুষ্ঠু সুদুর্গমা ॥৪০॥
 
-> dhanyasyāyaṁ nava-premā
-> yasyonmīlati cetasi
-> antarvāṇibhir apy asya
+> dhanyasyāyaṁ nava-premā\
+> yasyonmīlati cetasi\
+> antarvāṇibhir apy asya\
 > mudrā suṣṭhu sudurgamā
 
 *dhanyasya*—de una persona muy afortunada; *ayam*—este; *navaḥ*—nuevo; *premā*—amor por Dios; *yasya*—de quien; *unmīlati*—se manifiesta; *cetasi*—en el corazón; *antarvāṇibhiḥ*—por personas muy versadas en los *śāstras*; *api*—incluso; *asya*—de él; *mudrā*—síntomas; *suṣṭhu*—sumamente; *sudurgamā*—difíciles de entender.

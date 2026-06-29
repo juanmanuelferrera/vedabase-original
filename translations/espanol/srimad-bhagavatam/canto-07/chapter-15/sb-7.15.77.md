@@ -1,11 +1,11 @@
 ### SB 7.15.77
 
-> न यस्य साक्षाद्भवपद्मजादिभी रूपं धिया वस्तुतयोपवर्णितम
+> न यस्य साक्षाद्भवपद्मजादिभी रूपं धिया वस्तुतयोपवर्णितम\
 > मौनेन भक्त्योपशमेन पूजितः प्रसीदतामेष स सात्वतां पतिः ॥७७॥
 
-> na yasya sākṣād bhava-padmajādibhī
-> rūpaṁ dhiyā vastutayopavarṇitam
-> maunena bhaktyopaśamena pūjitaḥ
+> na yasya sākṣād bhava-padmajādibhī\
+> rūpaṁ dhiyā vastutayopavarṇitam\
+> maunena bhaktyopaśamena pūjitaḥ\
 > prasīdatām eṣa sa sātvatāṁ patiḥ
 
 *na*—no; *yasya*—de quien (del Señor Śrī Kṛṣṇa); *sākṣāt*—directamente; *bhava*—por el Señor Śiva; *padma-ja-ādibhiḥ*—el Señor Brahmā y otros; *rūpam*—la forma; *dhiyā*—por meditación; *vastutayā*—de hecho; *upavarṇitam*—podría ser explicada; *maunena*—con silencio; *bhaktyā*—con servicio devocional; *upaśamena*—con el fin de las actividades materiales; *pūjitaḥ*—aquel que es adorado de ese modo; *prasīdatām*—que Se complazca con nosotros; *eṣaḥ*—esa; *saḥ*—la misma Suprema Personalidad de Dios; *sātvatām*—de los devotos; *patiḥ*—que es el sustentador, maestro y guía.

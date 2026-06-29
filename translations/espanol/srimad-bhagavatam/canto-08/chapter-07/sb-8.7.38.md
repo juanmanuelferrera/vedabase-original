@@ -1,12 +1,12 @@
 ### SB 8.7.38
 
-> श्रीशिव उवाच
-> अहो बत भवान्येतत्प्रजानां पश्य वैशसम
+> श्रीशिव उवाच\
+> अहो बत भवान्येतत्प्रजानां पश्य वैशसम\
 > क्षीरोदमथनोद्भूतात्कालकूटादुपस्थितम ॥३८॥
 
-> āsāṁ prāṇa-parīpsūnāṁ
-> vidheyam abhayaṁ hi me
-> etāvān hi prabhor artho
+> āsāṁ prāṇa-parīpsūnāṁ\
+> vidheyam abhayaṁ hi me\
+> etāvān hi prabhor artho\
 > yad dīna-paripālanam
 
 *āsām*—todas estas entidades vivientes; *prāṇa-parīpsūnām*—con un fuerte deseo de proteger sus vidas; *vidheyam*—se debe hacer algo; *abhayam*—seguridad; *hi*—en verdad; *me*—por mí; *etāvān*—en esta medida; *hi*—en verdad; *prabhoḥ*—del amo; *arthaḥ*—el deber; *yat*—lo cual; *dīna-paripālanam*—proteger a la sufriente humanidad.

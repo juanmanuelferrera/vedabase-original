@@ -1,13 +1,13 @@
 ### Bg 2.7
 
-> कार्पण्यदोषोपहतस्वभावः
-> पृच्छामि त्वां धर्मसम्मूढचेताः ।
-> यच्छ्रेयः स्यान्निश्चितं ब्रूहि तन्मे
+> कार्पण्यदोषोपहतस्वभावः\
+> पृच्छामि त्वां धर्मसम्मूढचेताः ।\
+> यच्छ्रेयः स्यान्निश्चितं ब्रूहि तन्मे\
 > शिष्यस्तेऽहं शाधि मां त्वां प्रपन्नम् ॥७॥
 
-> kārpaṇya-doṣopahata-svabhāvaḥ
-> pṛcchāmi tvāṁ dharma-sammūḍha-cetāḥ
-> yac chreyaḥ syān niścitaṁ brūhi tan me
+> kārpaṇya-doṣopahata-svabhāvaḥ\
+> pṛcchāmi tvāṁ dharma-sammūḍha-cetāḥ\
+> yac chreyaḥ syān niścitaṁ brūhi tan me\
 > śiṣyas te 'haṁ śādhi māṁ tvāṁ prapannam
 
 *kārpaṇya*—miserly; *doṣa*—weakness; *upahata*—being inflicted by; *svabhāvaḥ*—characteristics; *pṛcchāmi*—I am asking; *tvām*—unto You; *dharma*—religion; *saṁmūḍha*—bewildered; *cetāḥ*—in heart; *yat*—what; *śreyaḥ*—all-good; *syāt*—may be; *niścitam*—confidently; *brūhi*—tell; *tat*—that; *me*—unto me; *śiṣyaḥ*—disciple; *te*—Your; *aham*—I am; *śādhi*—just instruct; *mām*—me; *tvām*—unto You; *prapannam*—surrendered.

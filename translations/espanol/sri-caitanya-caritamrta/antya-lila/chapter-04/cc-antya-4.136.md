@@ -1,9 +1,9 @@
 ### CC Antya 4.136
 
-> দুইজন বসি’ কৃষ্ণকথা-গোষ্ঠী কৈলা ।
+> দুইজন বসি’ কৃষ্ণকথা-গোষ্ঠী কৈলা ।\
 > পণ্ডিতেরে সনাতন দুঃখ নিবেদিলা ॥১৩৬॥
 
-> dui-jana vasi' kṛṣṇa-kathā-goṣṭhī kailā
+> dui-jana vasi' kṛṣṇa-kathā-goṣṭhī kailā\
 > paṇḍitere sanātana duḥkha nivedilā
 
 *dui-jana vasi'*—sentándose ambos; *kṛṣṇa-kathā*—temas acerca del Señor Kṛṣṇa; *goṣṭhī*—discusión; *kailā*—tuvieron; *paṇḍitere*—a Jagadānanda Paṇḍita; *sanātana*—Sanātana Gosvāmī; *duḥkha nivedilā*—expuso su aflicción.

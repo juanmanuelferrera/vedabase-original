@@ -1,11 +1,11 @@
 ### SB 6.9.49
 
-> न वेद कृपणः श्रेय आत्मनो गुणवस्तुदृक
+> न वेद कृपणः श्रेय आत्मनो गुणवस्तुदृक\
 > तस्य तानिच्छतो यच्छेद्यदि सोऽपि तथाविधः ॥४९॥
 
-> na veda kṛpaṇaḥ śreya
-> ātmano guṇa-vastu-dṛk
-> tasya tān icchato yacched
+> na veda kṛpaṇaḥ śreya\
+> ātmano guṇa-vastu-dṛk\
+> tasya tān icchato yacched\
 > yadi so 'pi tathā-vidhaḥ
 
 *na*—not; *veda*—knows; *kṛpaṇaḥ*—a miserly living entity; *śreyaḥ*—the ultimate necessity; *ātmanaḥ*—of the soul; *guṇa-vastu-dṛk*—who is attracted by the creation of the modes of material nature; *tasya*—of him; *tān*—things created by the material energy; *icchataḥ*—desiring; *yacchet*—one bestows; *yadi*—if; *saḥ api*—he also; *tathā-vidhaḥ*—of the kind (a foolish *kṛpaṇa* who does not know his real self-interest).

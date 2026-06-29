@@ -1,11 +1,11 @@
 ### SB 4.21.24
 
-> य उद्धरेत्करं राजा प्रजा धर्मेष्वशिक्षयन् ।
+> य उद्धरेत्करं राजा प्रजा धर्मेष्वशिक्षयन् ।\
 > प्रजानां शमलं भुङ्क्ते भगं च स्वं जहाति सः ॥२४॥
 
-> ya uddharet karaṁ rājā
-> prajā dharmeṣv aśikṣayan
-> prajānāṁ śamalaṁ bhuṅkte
+> ya uddharet karaṁ rājā\
+> prajā dharmeṣv aśikṣayan\
+> prajānāṁ śamalaṁ bhuṅkte\
 > bhagaṁ ca svaṁ jahāti saḥ
 
 *yaḥ*—todo aquel (rey o gobernador); *uddharet*—recaude; *karam*—impuestos; *rājā*—rey; *prajāḥ*—los súbditos; *dharmeṣu*—en la realización de sus respectivos deberes; *aśikṣayan*—sin enseñarles a realizar sus respectivos deberes; *prajānām*—de los súbditos; *śamalam*—impía; *bhuṅkte*—disfruta; *bhagam*—fortuna; *ca*—también; *svam*—propia; *jahāti*—abandona; *saḥ*—ese rey.

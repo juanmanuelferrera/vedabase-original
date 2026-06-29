@@ -1,11 +1,11 @@
 ### CC Adi 5.140
 
-> কেয়ং বা কুত আয়াতা দৈবী বা নার্যুতাসুরী ।
+> কেয়ং বা কুত আয়াতা দৈবী বা নার্যুতাসুরী ।\
 > প্রায়ো মায়াস্তু মে ভর্তুর্নান্যা মেঽপি বিমোহিনী ॥১৪০॥
 
-> keyaṁ vā kuta āyātā
-> daivī vā nāry utāsurī
-> prāyo māyāstu me bhartur
+> keyaṁ vā kuta āyātā\
+> daivī vā nāry utāsurī\
+> prāyo māyāstu me bhartur\
 > nānyā me 'pi vimohinī
 
 *kā*—who; *iyam*—this; *vā*—or; *kutaḥ*—from where; *āyātā*—has come; *daivī*—whether demigod; *vā*—or; *nārī*—woman; *uta*—or; *āsurī*—demoness; *prāyaḥ*—in most cases; *māyā*—illusory energy; *astu*—she must be; *me*—My; *bhartuḥ*—of the master, Lord Kṛṣṇa; *na*—not; *anyā*—any other; *me*—My; *api*—certainly; *vimohinī*—bewilderer.

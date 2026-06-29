@@ -1,9 +1,9 @@
 ### CC Antya 16.14
 
-> ভূঁইমালি-জাতি, ‘বৈষ্ণব’ — ‘ঝড়ু’ তাঁর নাম ।
+> ভূঁইমালি-জাতি, ‘বৈষ্ণব’ — ‘ঝড়ু’ তাঁর নাম ।\
 > আম্রফল লঞা তেঁহো গেলা তাঁর স্থান ॥১৪॥
 
-> bhūṅimāli-jāti, 'vaiṣṇava'—'jhaḍu' tāṅra nāma
+> bhūṅimāli-jāti, 'vaiṣṇava'—'jhaḍu' tāṅra nāma\
 > āmra-phala lañā teṅho gelā tāṅra sthāna
 
 *bhūṅimāli-jāti*—belonging to the *bhūṅimāli* caste; *vaiṣṇava*—a great devotee; *jhaḍu*—Jhaḍu; *tāṅra*—his; *nāma*—name; *āmra-phala*—mango fruits; *lañā*—taking; *teṅho*—he; *gelā*—went; *tāṅra sthāna*—to his place.

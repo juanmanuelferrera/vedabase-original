@@ -1,13 +1,13 @@
 ### CC Madhya 25.283
 
-> তদিদমতিরহস্যং গৌরলীলামৃতং যৎ
-> খল-সমুদয়-কোলৈর্নাদৃতং তৈরলভ্যম্ ।
-> ক্ষতিরিয়মিহ কা মে স্বাদিতং যৎ সমন্তাৎ
+> তদিদমতিরহস্যং গৌরলীলামৃতং যৎ\
+> খল-সমুদয়-কোলৈর্নাদৃতং তৈরলভ্যম্ ।\
+> ক্ষতিরিয়মিহ কা মে স্বাদিতং যৎ সমন্তাৎ\
 > সহৃদয়-সুমনোভির্মোদমেষাং তনোতি ॥২৮৩॥
 
-> tad idam ati-rahasyaṁ gaura-līlāmṛtaṁ yat
-> khala-samudaya-kolair nādṛtaṁ tair alabhyam
-> kṣatir iyam iha kā me svāditaṁ yat samantāt
+> tad idam ati-rahasyaṁ gaura-līlāmṛtaṁ yat\
+> khala-samudaya-kolair nādṛtaṁ tair alabhyam\
+> kṣatir iyam iha kā me svāditaṁ yat samantāt\
 > sahṛdaya-sumanobhir modam eṣāṁ tanoti
 
 *tat*—that (*Caitanya-caritāmṛta*); *idam*—this; *ati-rahasyam*—full of spiritual mysteries; *gaura-līlā-amṛtam*—the nectar of the pastimes of Śrī Caitanya Mahāprabhu; *yat*—which; *khala-samudaya*—envious rascals; *kolaiḥ*—by pigs; *na*—never; *ādṛtam*—praised; *taiḥ*—by them; *alabhyam*—not obtainable; *kṣatiḥ iyam iha kā*—what is the loss in this connection; *me*—of me; *svāditam*—tasted; *yat*—which; *samantāt*—completely; *sahṛdaya-sumanobhiḥ*—by those who are friendly and whose minds are very clean; *modam*—enjoyment; *eṣām*—of them; *tanoti*—expands.

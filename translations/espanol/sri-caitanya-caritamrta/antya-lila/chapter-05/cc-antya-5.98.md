@@ -1,9 +1,9 @@
 ### CC Antya 5.98
 
-> অতএব প্রভু কিছু আগে নাহি শুনে ।
+> অতএব প্রভু কিছু আগে নাহি শুনে ।\
 > এই মর্যাদা প্রভু করিয়াছে নিয়মে ॥৯৮॥
 
-> ataeva prabhu kichu āge nāhi śune
+> ataeva prabhu kichu āge nāhi śune\
 > ei maryādā prabhu kariyāche niyame
 
 *ataeva*—por lo tanto; *prabhu*—Śrī Caitanya Mahāprabhu; *kichu*—nada; *āge*—antes; *nāhi śune*—no escucha; *ei maryādā*—esta etiqueta; *prabhu*—Śrī Caitanya Mahāprabhu; *kariyāche niyame*—estableció como principio regulativo.

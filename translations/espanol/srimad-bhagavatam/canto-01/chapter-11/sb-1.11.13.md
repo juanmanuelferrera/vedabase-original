@@ -1,11 +1,11 @@
 ### SB 1.11.13
 
-> गोपुरद्वारमार्गेषु कृतकौतुकतोरणाम् ।
+> गोपुरद्वारमार्गेषु कृतकौतुकतोरणाम् ।\
 > चित्रध्वजपताकाग्रैरन्तः प्रतिहतातपाम् ॥१३॥
 
-> gopura-dvāra-mārgeṣu
-> kṛta-kautuka-toraṇām
-> citra-dhvaja-patākāgrair
+> gopura-dvāra-mārgeṣu\
+> kṛta-kautuka-toraṇām\
+> citra-dhvaja-patākāgrair\
 > antaḥ pratihatātapām
 
 *gopura*—el portal de la ciudad; *dvāra*—puerta; *mārgeṣu*—en diferentes caminos; *kṛta*—emprendidos; *kautuka*—debido al festival; *toraṇām*—arco decorado; *citra*—pintados; *dhvaja*—banderas; *patākā-agraiḥ*—por los principales letreros; *antaḥ*—dentro; *pratihata*—detuvieron; *ātapām*—la luz del sol.

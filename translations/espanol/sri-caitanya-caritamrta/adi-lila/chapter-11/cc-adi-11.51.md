@@ -1,9 +1,9 @@
 ### CC Adi 11.51
 
-> কংসারি সেন, রামসেন, রামচন্দ্র কবিরাজ ।
+> কংসারি সেন, রামসেন, রামচন্দ্র কবিরাজ ।\
 > গোবিন্দ, শ্রীরঙ্গ, মুকুন্দ, তিন কবিরাজ ॥৫১॥
 
-> kaṁsāri sena, rāmasena, rāmacandra kavirāja
+> kaṁsāri sena, rāmasena, rāmacandra kavirāja\
 > govinda, śrīraṅga, mukunda, tina kavirāja
 
 *kaṁsāri sena*—de nombre Kaṁsāri Sena; *rāmasena*—de nombre Rāmasena; *rāmacandra kavirāja*—de nombre Rāmacandra Kavirāja; *govinda*—de nombre Govinda; *śrīraṅga*—de nombre Śrīraṅga; *mukunda*—de nombre Mukunda; *tina kavirāja*—los tres son Kavirājas, o médicos.

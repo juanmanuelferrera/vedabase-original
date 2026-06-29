@@ -1,18 +1,18 @@
 ### SB 3.23.4-5
 
-> स वै देवर्षिवर्यस्तां मानवीं समनुव्रताम् ।
-> दैवाद्गरीयसः पत्युराशासानां महाशिषः ॥४॥
-> कालेन भूयसा क्षामां कर्शितां व्रतचर्यया ।
+> स वै देवर्षिवर्यस्तां मानवीं समनुव्रताम् ।\
+> दैवाद्गरीयसः पत्युराशासानां महाशिषः ॥४॥\
+> कालेन भूयसा क्षामां कर्शितां व्रतचर्यया ।\
 > प्रेमगद्गदया वाचा पीडितः कृपयाब्रवीत् ॥५॥
 
-> sa vai devarṣi-varyas tāṁ
-> mānavīṁ samanuvratām
-> daivād garīyasaḥ patyur
+> sa vai devarṣi-varyas tāṁ\
+> mānavīṁ samanuvratām\
+> daivād garīyasaḥ patyur\
 > āśāsānāṁ mahāśiṣaḥ
 
-> kālena bhūyasā kṣāmāṁ
-> karśitāṁ vrata-caryayā
-> prema-gadgadayā vācā
+> kālena bhūyasā kṣāmāṁ\
+> karśitāṁ vrata-caryayā\
+> prema-gadgadayā vācā\
 > pīḍitaḥ kṛpayābravīt
 
 *saḥ*—él (Kardama); *vai*—ciertamente; *deva-ṛṣi*—de los sabios celestiales; *varyaḥ*—el principal; *tām*—a ella; *mānavīm*—la hija de Manu; *samanuvratām*—completamente consagrada; *daivāt*—que la providencia; *garīyasaḥ*—que era más grande; *patyuḥ*—de su esposo; *āśāsānām*—esperando; *mahā-āśiṣaḥ*—grandes bendiciones; *kālena bhūyasā*—durante mucho tiempo; *kṣāmām*—débil; *karśitām*—desmejorada; *vrata-caryayā*—por las disciplinas religiosas; *prema*—con amor; *gadgadayā*—balbuceante; *vācā*—con una voz; *pīḍitaḥ*—abrumado; *kṛpayā*—de compasión; *abravīt*—dijo.

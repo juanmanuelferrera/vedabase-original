@@ -1,13 +1,13 @@
 ### SB 2.7.14
 
-> त्रैपिष्टपोरुभयहा स नृसिंहरूपं
-> कृत्वा भ्रमद्भ्रुकुटिदंष्ट्रकरालवक्त्रम् ।
-> दैत्येन्द्रमाशु गदयाभिपतन्तमाराद्
+> त्रैपिष्टपोरुभयहा स नृसिंहरूपं\
+> कृत्वा भ्रमद्भ्रुकुटिदंष्ट्रकरालवक्त्रम् ।\
+> दैत्येन्द्रमाशु गदयाभिपतन्तमाराद्\
 > ऊरौ निपात्य विददार नखैः स्फुरन्तम् ॥१४॥
 
-> trai-piṣṭaporu-bhaya-hā sa nṛsiṁha-rūpaṁ
-> kṛtvā bhramad-bhrukuṭi-daṁṣṭra-karāla-vaktram
-> daityendram āśu gadayābhipatantam ārād
+> trai-piṣṭaporu-bhaya-hā sa nṛsiṁha-rūpaṁ\
+> kṛtvā bhramad-bhrukuṭi-daṁṣṭra-karāla-vaktram\
+> daityendram āśu gadayābhipatantam ārād\
 > ūrau nipātya vidadāra nakhaiḥ sphurantam
 
 *trai-piṣṭapa*—los semidioses; *uru-bhaya-hā*—aquel que vence grandes temores; *saḥ*—Él (la Personalidad de Dios); *nṛsiṁha-rūpam*—adoptando la encarnación de Nṛsiṁha; *kṛtvā*—haciendo así; *bhramat*—haciendo girar; *bhru-kuṭi*—cejas; *daṁṣṭra*—dientes; *karāla*—temible en extremo; *vaktram*—boca; *daitya-indram*—el rey de los demonios; *āśu*—inmediatamente; *gadayā*—con maza en mano; *abhipatantam*—mientras caía; *ārāt*—cerca; *ūrau*—en los muslos; *nipātya*—colocado en; *vidadāra*—atravesado; *nakhaiḥ*—con las uñas; *sphurantam*—mientras desafiaba.

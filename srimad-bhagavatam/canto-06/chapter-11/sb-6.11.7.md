@@ -1,11 +1,11 @@
 ### SB 6.11.7
 
-> तेन देवगणाः सर्वे वृत्रविस्फोटनेन वै
+> तेन देवगणाः सर्वे वृत्रविस्फोटनेन वै\
 > निपेतुर्मूर्च्छिता भूमौ यथैवाशनिना हताः ॥७॥
 
-> tena deva-gaṇāḥ sarve
-> vṛtra-visphoṭanena vai
-> nipetur mūrcchitā bhūmau
+> tena deva-gaṇāḥ sarve\
+> vṛtra-visphoṭanena vai\
+> nipetur mūrcchitā bhūmau\
 > yathaivāśaninā hatāḥ
 
 *tena*—by that; *deva-gaṇāḥ*—the demigods; *sarve*—all; *vṛtra-visphoṭanena*—the tumultuous sound of Vṛtrāsura; *vai*—indeed; *nipetuḥ*—fell; *mūrcchitāḥ*—fainted; *bhūmau*—on the ground; *yathā*—just as if; *eva*—indeed; *aśaninā*—by a thunderbolt; *hatāḥ*—struck.

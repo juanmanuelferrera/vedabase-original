@@ -1,11 +1,11 @@
 ### CC Adi 1.56
 
-> এতাবদেব জিজ্ঞাস্যং তত্ত্বজিজ্ঞাসুনাত্মনঃ ।
+> এতাবদেব জিজ্ঞাস্যং তত্ত্বজিজ্ঞাসুনাত্মনঃ ।\
 > অন্বয়-ব্যতিরেকাভ্যাং যত্ স্যাৎ সর্বত্র সর্বদা ॥৫৬॥
 
-> etāvad eva jijñāsyaṁ
-> tattva-jijñāsunātmanaḥ
-> anvaya-vyatirekābhyāṁ
+> etāvad eva jijñāsyaṁ\
+> tattva-jijñāsunātmanaḥ\
+> anvaya-vyatirekābhyāṁ\
 > yat syāt sarvatra sarvadā
 
 *etāvat*—hasta esto; *eva*—ciertamente; *jijñāsyam*—lo que se ha de indagar; *tattva*—de la Verdad Absoluta; *jijñāsunā*—por el estudiante; *ātmanaḥ*—del Ser; *anvaya*—directamente; *vyatirekābhyām*—e indirectamente; *yat*—lo que; *syāt*—pueda ser; *sarvatra*—en todo lugar; *sarvadā*—en todo momento.

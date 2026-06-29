@@ -1,11 +1,11 @@
 ### SB 6.5.14
 
-> नानारूपात्मनो बुद्धिः स्वैरिणीव गुणान्विता
+> नानारूपात्मनो बुद्धिः स्वैरिणीव गुणान्विता\
 > तन्निष्ठामगतस्येह किमसत्कर्मभिर्भवेत ॥१४॥
 
-> nānā-rūpātmano buddhiḥ
-> svairiṇīva guṇānvitā
-> tan-niṣṭhām agatasyeha
+> nānā-rūpātmano buddhiḥ\
+> svairiṇīva guṇānvitā\
+> tan-niṣṭhām agatasyeha\
 > kim asat-karmabhir bhavet
 
 *nānā*—various; *rūpā*—who has forms or dresses; *ātmanaḥ*—of the living entity; *buddhiḥ*—the intelligence; *svairiṇī*—a prostitute who freely decorates herself with different types of cloths and ornaments; *iva*—like; *guṇa-anvitā*—endowed with the mode of passion, and so on; *tat-niṣṭhām*—the cessation of that; *agatasya*—of one who has not obtained; *iha*—in this material world; *kim asat-karmabhiḥ bhavet*—what is the use of performing temporary fruitive activities.

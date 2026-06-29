@@ -1,9 +1,9 @@
 ### CC Adi 4.164
 
-> কাম, প্রেম, — দোঁহাকার বিভিন্ন লক্ষণ ।
+> কাম, প্রেম, — দোঁহাকার বিভিন্ন লক্ষণ ।\
 > লৌহ আর হেম যৈছে স্বরূপে বিলক্ষণ ॥১৬৪॥
 
-> kāma, prema,--doṅhākāra vibhinna lakṣaṇa
+> kāma, prema,--doṅhākāra vibhinna lakṣaṇa\
 > lauha āra hema yaiche svarūpe vilakṣaṇa
 
 *kāma*—lujuria; *prema*—amor; *doṅhākāra*—de ambos; *vibhinna*—distintas; *lakṣaṇa*—características; *lauha*—hierro; *āra*—y; *hema*—oro; *yaiche*—tal como; *svarūpe*—por naturaleza; *vilakṣaṇa*—diferentes.

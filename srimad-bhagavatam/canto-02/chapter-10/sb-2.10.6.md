@@ -1,11 +1,11 @@
 ### SB 2.10.6
 
-> निरोधोऽस्यानुशयनमात्मनः सह शक्तिभिः ।
+> निरोधोऽस्यानुशयनमात्मनः सह शक्तिभिः ।\
 > मुक्तिर्हित्वान्यथा रूपं स्वरूपेण व्यवस्थितिः ॥६॥
 
-> nirodho 'syānuśayanam
-> ātmanaḥ saha śaktibhiḥ
-> muktir hitvānyathā rūpaṁ
+> nirodho 'syānuśayanam\
+> ātmanaḥ saha śaktibhiḥ\
+> muktir hitvānyathā rūpaṁ\
 > sva-rūpeṇa vyavasthitiḥ
 
 *nirodhaḥ*—the winding up of the cosmic manifestation; *asya*—of His; *anuśayanam*—the lying down of the *puruṣa* incarnation Mahā-Viṣṇu in mystic slumber; *ātmanaḥ*—of the living entities; *saha*—along with; *śaktibhiḥ*—with the energies; *muktiḥ*—liberation; *hitvā*—giving up; *anyathā*—otherwise; *rūpam*—form; *sva-rūpeṇa*—in constitutional form; *vyavasthitiḥ*—permanent situation.

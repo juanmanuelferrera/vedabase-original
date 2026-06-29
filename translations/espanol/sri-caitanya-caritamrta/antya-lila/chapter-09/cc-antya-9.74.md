@@ -1,9 +1,9 @@
 ### CC Antya 9.74
 
-> তার দুঃখ দেখি’ তার সেবকাদিগণ ।
+> তার দুঃখ দেখি’ তার সেবকাদিগণ ।\
 > তোমারে জানাইল, — যাতে ‘অনন্যশরণ’ ॥৭৪॥
 
-> tāra duḥkha dekhi' tāra sevakādi-gaṇa
+> tāra duḥkha dekhi' tāra sevakādi-gaṇa\
 > tomāre jānāila,--yāte 'ananya-śaraṇa'
 
 *tāra*—su; *duḥkha*—condición angustiada; *dekhi'*—al ver; *tāra*—sus; *sevaka-ādi-gaṇa*—sirvientes y amigos; *tomāre jānāila*—Le informaron; *yāte*—porque; *ananya*—ningún otro; *śaraṇa*—refugio.

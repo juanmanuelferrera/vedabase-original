@@ -1,11 +1,11 @@
 ### SB 8.18.26
 
-> यजमानः प्रमुदितो दर्शनीयं मनोरमम
+> यजमानः प्रमुदितो दर्शनीयं मनोरमम\
 > रूपानुरूपावयवं तस्मा आसनमाहरत ॥२६॥
 
-> yajamānaḥ pramudito
-> darśanīyaṁ manoramam
-> rūpānurūpāvayavaṁ
+> yajamānaḥ pramudito\
+> darśanīyaṁ manoramam\
+> rūpānurūpāvayavaṁ\
 > tasmā āsanam āharat
 
 *yajamānaḥ*—Bali Mahārāja, que había ocupado a todos los sacerdotes en la celebración del sacrificio; *pramuditaḥ*—lleno de alegría; *darśanīyam*—agradable de ver; *manoramam*—tan hermoso; *rūpa*—con belleza; *anurūpa*—iguales a la belleza de Su cuerpo; *avayavam*—cada una de las partes del cuerpo; *tasmai*—a Él; *āsanam*—un asiento; *āharat*—** ofreció.

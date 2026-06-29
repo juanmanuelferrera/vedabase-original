@@ -1,13 +1,13 @@
 ### CC Madhya 18.34
 
-> হন্তায়মদ্রিরবলা হরিদাসবর্যো
-> যদ্রামকৃষ্ণচরণস্পরশপ্রমোদঃ ।
-> মানং তনোতি সহ-গোগণয়োস্তয়োর্যৎ
+> হন্তায়মদ্রিরবলা হরিদাসবর্যো\
+> যদ্রামকৃষ্ণচরণস্পরশপ্রমোদঃ ।\
+> মানং তনোতি সহ-গোগণয়োস্তয়োর্যৎ\
 > পানীয়-সুযবস-কন্দর-কন্দমূলৈঃ ॥৩৪॥
 
-> hantāyam adrir abalā haridāsa-varyo
-> yad rāma-kṛṣṇa-caraṇa-sparaśa-pramodaḥ
-> mānaṁ tanoti saha-go-gaṇayos tayor yat
+> hantāyam adrir abalā haridāsa-varyo\
+> yad rāma-kṛṣṇa-caraṇa-sparaśa-pramodaḥ\
+> mānaṁ tanoti saha-go-gaṇayos tayor yat\
 > pānīya-sūyavasa-kandara-kanda-mūlaiḥ
 
 *hanta*—oh; *ayam*—this; *adriḥ*—hill; *abalāḥ*—O friends; *haridāsa-varyaḥ*—the best among the servants of the Lord; *yat*—because; *rāma-kṛṣṇa-caraṇa*—of the lotus feet of Lord Kṛṣṇa and Balarāma; *sparaśa*—by the touch; *pramodaḥ*—jubilant; *mānam*—respects; *tanoti*—offers; *saha*—with; *go-gaṇayoḥ*—cows, calves and cowherd boys; *tayoḥ*—to Them (Śrī Kṛṣṇa and Balarāma); *yat*—because; *pānīya*—drinking water; *sūyavasa*—very soft grass; *kandara*—caves; *kanda-mūlaiḥ*—and by roots.

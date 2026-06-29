@@ -1,13 +1,13 @@
 ### Bg 5.2
 
-> श्रीभगवानुवाच ।
-> संन्यासः कर्मयोगश्च निःश्रेयसकरावुभौ ।
+> श्रीभगवानुवाच ।\
+> संन्यासः कर्मयोगश्च निःश्रेयसकरावुभौ ।\
 > तयोस्तु कर्मसंन्यासात्कर्मयोगो विशिष्यते ॥२॥
 
-> śrī-bhagavān uvāca
-> sannyāsaḥ karma-yogaś ca
-> niḥśreyasa-karāv ubhau
-> tayos tu karma-sannyāsāt
+> śrī-bhagavān uvāca\
+> sannyāsaḥ karma-yogaś ca\
+> niḥśreyasa-karāv ubhau\
+> tayos tu karma-sannyāsāt\
 > karma-yogo viśiṣyate
 
 *śrī bhagavān uvāca*—the Personality of Godhead said; *sannyāsaḥ*—renunciation of work; *karma-yogaḥ*—work in devotion; *ca*—also; *niḥśreyasa-karau*—all leading to the path of liberation; *ubhau*—both; *tayoḥ*—of the two; *tu*—but; *karma-sannyāsāt*—in comparison to the renunciation of fruitive work; *karma-yogaḥ*—work in devotion; *viśiṣyate*—is better.

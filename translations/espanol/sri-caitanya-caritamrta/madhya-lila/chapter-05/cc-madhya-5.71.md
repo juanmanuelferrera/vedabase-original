@@ -1,9 +1,9 @@
 ### CC Madhya 5.71
 
-> কন্যা তোরে দিলুঁ, দ্বিধা না করিহ চিতে ।
+> কন্যা তোরে দিলুঁ, দ্বিধা না করিহ চিতে ।\
 > আত্মকন্যা দিব, কেবা পারে নিষেধিতে ॥৭১॥
 
-> kanyā tore diluṅ, dvidhā nā kariha cite
+> kanyā tore diluṅ, dvidhā nā kariha cite\
 > ātma-kanyā diba, kebā pāre niṣedhite
 
 *kanyā*—la hija; *tore*—a ti; *diluṅ*—he dado; *dvidhā*—vacilación; *nā*—no; *kariha*—tengas; *cite*—en tu mente; *ātma-kanyā*—mi propia hija; *diba*—daré; *kebā*—quién; *pāre*—puede; *niṣedhite*—prohibirlo.

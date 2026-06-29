@@ -1,11 +1,11 @@
 ### SB 6.19.15
 
-> इत्यभिष्टूय वरदं श्रीनिवासं श्रिया सह
+> इत्यभिष्टूय वरदं श्रीनिवासं श्रिया सह\
 > तन्निःसार्योपहरणं दत्त्वाचमनमर्चयेत ॥१५॥
 
-> ity abhiṣṭūya varadaṁ
-> śrīnivāsaṁ śriyā saha
-> tan niḥsāryopaharaṇaṁ
+> ity abhiṣṭūya varadaṁ\
+> śrīnivāsaṁ śriyā saha\
+> tan niḥsāryopaharaṇaṁ\
 > dattvācamanam arcayet
 
 *iti*—así; *abhiṣṭūya*—ofrecer oraciones; *vara-dam*—que concede bendiciones; *śrī-nivāsam*—al Señor Viṣṇu, la morada de la diosa de la fortuna; *śriyā saha*—con Lakṣmī; *tat*—entonces; *niḥsārya*—retirar; *upaharaṇam*—los artículos de adoración; *dattvā*—después de ofrecer; *ācamanam*—agua para lavar las manos y la boca; *arcayet*—se debe adorar.

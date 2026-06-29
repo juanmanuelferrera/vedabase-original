@@ -1,9 +1,9 @@
 ### CC Madhya 25.102
 
-> ভাগবতের সম্বন্ধ, অভিধেয়, প্রয়োজন ।
+> ভাগবতের সম্বন্ধ, অভিধেয়, প্রয়োজন ।\
 > চতুঃশ্লোকীতে প্রকট তার করিয়াছে লক্ষণ ॥১০২॥
 
-> bhāgavatera sambandha, abhidheya, prayojana
+> bhāgavatera sambandha, abhidheya, prayojana\
 > catuḥ-ślokīte prakaṭa tāra kariyāche lakṣaṇa
 
 *bhāgavatera*—of *Śrīmad-Bhāgavatam*; *sambandha*—a personal relationship with God; *abhidheya*—activities in that relationship; *prayojana*—the ultimate goal of life; *catuḥ-ślokīte*—in the four famous verses of *Śrīmad-Bhāgavatam*; *prakaṭa*—manifesting; *tāra*—of them; *kariyāche*—has done; *lakṣaṇa*—the symptoms.

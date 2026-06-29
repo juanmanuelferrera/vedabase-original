@@ -1,11 +1,11 @@
 ### SB 3.33.35
 
-> आस्ते योगं समास्थाय साङ्ख्याचार्यैरभिष्टुतः ।
+> आस्ते योगं समास्थाय साङ्ख्याचार्यैरभिष्टुतः ।\
 > त्रयाणामपि लोकानामुपशान्त्यै समाहितः ॥३५॥
 
-> āste yogaṁ samāsthāya
-> sāṅkhyācāryair abhiṣṭutaḥ
-> trayāṇām api lokānām
+> āste yogaṁ samāsthāya\
+> sāṅkhyācāryair abhiṣṭutaḥ\
+> trayāṇām api lokānām\
 > upaśāntyai samāhitaḥ
 
 *āste*—Él permanece; *yogam*—*yoga*; *samāsthāya*—habiendo practicado; *sāṅkhya*—de la filosofía *sāṅkhya*; *ācāryaiḥ*—por los grandes maestros; *abhiṣṭutaḥ*—adorado; *trayāṇām*—tres; *api*—ciertamente; *lokānām*—de los mundos; *upaśāntyai*—para la liberación; *samāhitaḥ*—fijo en trance.

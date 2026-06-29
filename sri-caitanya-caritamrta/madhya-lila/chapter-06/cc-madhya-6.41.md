@@ -1,9 +1,9 @@
 ### CC Madhya 6.41
 
-> বহুত প্রসাদ সার্বভৌম আনাইল ।
+> বহুত প্রসাদ সার্বভৌম আনাইল ।\
 > তবে মহাপ্রভু সুখে ভোজন করিল ॥৪১॥
 
-> bahuta prasāda sārvabhauma ānāila
+> bahuta prasāda sārvabhauma ānāila\
 > tabe mahāprabhu sukhe bhojana karila
 
 *bahuta prasāda*—varieties of food offered to Lord Jagannātha; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *ānāila*—caused to bring them; *tabe*—at that time; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *sukhe*—in happiness; *bhojana*—lunch; *karila*—accepted.

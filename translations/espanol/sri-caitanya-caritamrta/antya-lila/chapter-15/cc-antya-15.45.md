@@ -1,9 +1,9 @@
 ### CC Antya 15.45
 
-> “কহ, মৃগি, রাধা-সহ শ্রীকৃষ্ণ সর্বথা ।
+> “কহ, মৃগি, রাধা-সহ শ্রীকৃষ্ণ সর্বথা ।\
 > তোমায় সুখ দিতে আইলা? নাহিক অন্যথা ॥৪৫॥
 
-> "kaha, mṛgi, rādhā-saha śrī-kṛṣṇa sarvathā
+> "kaha, mṛgi, rādhā-saha śrī-kṛṣṇa sarvathā\
 > tomāya sukha dite āilā? nāhika anyathā
 
 *kaha*—por favor, decidnos; *mṛgi*—¡oh, ciervas!; *rādhā-saha*—con Śrīmatī Rādhārāṇī; *śrī-kṛṣṇa*—el Señor Śrī Kṛṣṇa; *sarvathā*—en todos los aspectos; *tomāya*—a vosotras; *sukha dite*—para daros placer; *āilā*—vino; *nāhika anyathā*—es seguro.

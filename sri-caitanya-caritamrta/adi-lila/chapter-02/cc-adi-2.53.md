@@ -1,11 +1,11 @@
 ### CC Adi 2.53
 
-> বিরাড়্ হিরণ্যগর্ভশ্চ কারণং চেত্যুপাধয়ঃ ।
+> বিরাড়্ হিরণ্যগর্ভশ্চ কারণং চেত্যুপাধয়ঃ ।\
 > ঈশস্য যত্রিভির্হীনং তুরীয়ং তৎ প্রচক্ষতে ॥৫৩॥
 
-> virāḍ hiraṇya-garbhaś ca
-> kāraṇaṁ cety upādhayaḥ
-> īśasya yat tribhir hīnaṁ
+> virāḍ hiraṇya-garbhaś ca\
+> kāraṇaṁ cety upādhayaḥ\
+> īśasya yat tribhir hīnaṁ\
 > turīyaṁ tat pracakṣate
 
 *virāṭ*—the *virāṭ* manifestation; *hiraṇya-garbhaḥ*—the *hiraṇyagarbha* manifestation; *ca*—and; *kāraṇam*—the *kāraṇa* manifestation; *ca*—and; *iti*—thus; *upādhayaḥ*—particular designations; *īśasya*—of the Lord; *yat*—that which; *tribhiḥ*—these three; *hīnam*—without; *turīyam*—the fourth; *tat*—that; *pracakṣate*—is considered.

@@ -1,11 +1,11 @@
 ### CC Madhya 20.344
 
-> কলের্দোষনিধে রাজন্নস্তি হ্যেকো মহান্ গুণঃ ।
+> কলের্দোষনিধে রাজন্নস্তি হ্যেকো মহান্ গুণঃ ।\
 > কীর্তনাদেব কৃষ্ণস্য মুক্তবন্ধঃ পরং ব্ৰজেৎ ॥৩৪৪॥
 
-> kaler doṣa-nidhe rājann
-> asti hy eko mahān guṇaḥ
-> kīrtanād eva kṛṣṇasya
+> kaler doṣa-nidhe rājann\
+> asti hy eko mahān guṇaḥ\
+> kīrtanād eva kṛṣṇasya\
 > mukta-bandhaḥ paraṁ vrajet
 
 *kaleḥ*—de la era de Kali; *doṣa-nidhe*—en el océano de defectos; *rājan*—¡oh, rey!; *asti*—hay; *hi*—ciertamente; *ekaḥ*—una; *mahān*—muy grande; *guṇaḥ*—buena cualidad; *kīrtanāt*—por cantar; *eva*—ciertamente; *kṛṣṇasya*—del santo nombre de Kṛṣṇa; *mukta-bandhaḥ*—liberado del cautiverio material; *param*—al reino espiritual trascendental; *vrajet*—se puede ir.

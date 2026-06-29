@@ -1,11 +1,11 @@
 ### CC Madhya 22.44
 
-> মৈবং মমাধমস্যাপি স্যাদেবাচ্যুতদর্শনম্ ।
+> মৈবং মমাধমস্যাপি স্যাদেবাচ্যুতদর্শনম্ ।\
 > হ্রিয়মাণঃ কালনদ্যা ক্বচিত্তরতি কশ্চন ॥৪৪॥
 
-> maivaṁ mamādhamasyāpi
-> syād evācyuta-darśanam
-> hriyamāṇaḥ kāla-nadyā
+> maivaṁ mamādhamasyāpi\
+> syād evācyuta-darśanam\
+> hriyamāṇaḥ kāla-nadyā\
 > kvacit tarati kaścana
 
 *mā*—not; *evam*—thus; *mama*—of me; *adhamasya*—who is the most fallen; *api*—although; *syāt*—there may be; *eva*—certainly; *acyuta-darśanam*—seeing of the Supreme Personality of Godhead; *hriyamāṇaḥ*—being carried; *kāla-nadyā*—by the stream of time; *kvacit*—sometimes; *tarati*—crosses over; *kaścana*—someone.

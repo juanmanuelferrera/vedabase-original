@@ -1,11 +1,11 @@
 ### SB 7.10.67
 
-> सन्नद्धो रथमास्थाय शरं धनुरुपाददे
+> सन्नद्धो रथमास्थाय शरं धनुरुपाददे\
 > शरं धनुषि सन्धाय मुहूर्तेऽभिजितीश्वरः ॥६७॥
 
-> śaraṁ dhanuṣi sandhāya
-> muhūrte 'bhijitīśvaraḥ
-> dadāha tena durbhedyā
+> śaraṁ dhanuṣi sandhāya\
+> muhūrte 'bhijitīśvaraḥ\
+> dadāha tena durbhedyā\
 > haro 'tha tripuro nṛpa
 
 *śaram*—las flechas; *dhanuṣi*—en el arco; *sandhāya*—uniendo; *muhūrte abhijiti*—al mediodía; *īśvaraḥ*—el Señor Śiva; *dadāha*—incendió; *tena*—con ellas (con las flechas); *durbhedyāḥ*—muy difícil de herir; *haraḥ*—el Señor Śiva; *atha*—de este modo; *tri-puraḥ*—las tres residencias de los demonios; *nṛpa*—¡oh, rey Yudhiṣṭhira!.

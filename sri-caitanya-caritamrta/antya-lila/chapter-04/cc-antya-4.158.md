@@ -1,9 +1,9 @@
 ### CC Antya 4.158
 
-> “কালিকার বটুয়া জগা ঐছে গর্বী হৈল  ।
+> “কালিকার বটুয়া জগা ঐছে গর্বী হৈল  ।\
 > তোমা-সবারেহ উপদেশ করিতে লাগিল ॥১৫৮॥
 
-> "kālikāra baṭuyā jagā aiche garvī haila
+> "kālikāra baṭuyā jagā aiche garvī haila\
 > tomā-sabāreha upadeśa karite lāgila
 
 *kālikāra*—new; *baṭuyā*—boy; *jagā*—Jagadānanda Paṇḍita; *aiche*—so; *garvī haila*—has become proud; *tomā-sabāreha*—persons like you; *upadeśa karite*—to advise; *lāgila*—has begun.

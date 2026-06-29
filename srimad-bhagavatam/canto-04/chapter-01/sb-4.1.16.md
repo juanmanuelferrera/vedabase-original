@@ -1,13 +1,13 @@
 ### SB 4.1.16
 
-> विदुर उवाच
-> अत्रेर्गृहे सुरश्रेष्ठाः स्थित्युत्पत्त्यन्तहेतवः ।
+> विदुर उवाच\
+> अत्रेर्गृहे सुरश्रेष्ठाः स्थित्युत्पत्त्यन्तहेतवः ।\
 > किञ्चिच्चिकीर्षवो जाता एतदाख्याहि मे गुरो ॥१६॥
 
-> vidura uvāca
-> atrer gṛhe sura-śreṣṭhāḥ
-> sthity-utpatty-anta-hetavaḥ
-> kiñcic cikīrṣavo jātā
+> vidura uvāca\
+> atrer gṛhe sura-śreṣṭhāḥ\
+> sthity-utpatty-anta-hetavaḥ\
+> kiñcic cikīrṣavo jātā\
 > etad ākhyāhi me guro
 
 *viduraḥ uvāca*—Śrī Vidura said; *atreḥ gṛhe*—in the house of Atri; *sura-śreṣṭhāḥ*—chief demigods; *sthiti*—maintenance; *utpatti*—creation; *anta*—destruction; *hetavaḥ*—causes; *kiñcit*—something; *cikīrṣavaḥ*—desiring to do; *jātāḥ*—appeared; *etat*—this; *ākhyāhi*—tell; *me*—to me; *guro*—my dear spiritual master.

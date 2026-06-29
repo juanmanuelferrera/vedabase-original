@@ -1,9 +1,9 @@
 ### CC Madhya 1.235
 
-> জনা দুই সঙ্গে আমি যাব নীলাচলে ।
+> জনা দুই সঙ্গে আমি যাব নীলাচলে ।\
 > আমারে মিলিবা আসি’ রথযাত্রা-কালে ॥২৩৫॥
 
-> janā dui saṅge āmi yāba nīlācale
+> janā dui saṅge āmi yāba nīlācale\
 > āmāre milibā āsi' ratha-yātrā-kāle
 
 *janā*—personas; *dui*—dos; *saṅge*—con; *āmi*—Yo; *yāba*—iré; *nīlācale*—a Jagannātha Purī; *āmāre*—a Mí; *milibā*—se encontrarán; *āsi'*—viniendo allí; *ratha-yātrā-kāle*—durante el festival de las carrozas.

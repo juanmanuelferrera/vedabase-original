@@ -1,9 +1,9 @@
 ### CC Madhya 20.19
 
-> ‘ইহার ঠাঞি সুবর্ণের অষ্ট মোহর হয়’  ।
+> ‘ইহার ঠাঞি সুবর্ণের অষ্ট মোহর হয়’  ।\
 > শুনি’ আনন্দিত ভূঞা সনাতনে কয় ॥১৯॥
 
-> 'iṅhāra ṭhāñi suvarṇera aṣṭa mohara haya'
+> 'iṅhāra ṭhāñi suvarṇera aṣṭa mohara haya'\
 > śuni' ānandita bhūñā sanātane kaya
 
 *iṅhāra ṭhāñi*—en posesión de este hombre; *suvarṇera*—de oro; *aṣṭa*—ocho; *mohara*—monedas; *haya*—hay; *śuni'*—al oír; *ānandita*—complacido; *bhūñā*—el terrateniente; *sanātane*—a Sanātana; *kaya*—dice.

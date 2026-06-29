@@ -1,11 +1,11 @@
 ### SB 9.13.13
 
-> जन्मना जनकः सोऽभूद्वैदेहस्तु विदेहजः
+> जन्मना जनकः सोऽभूद्वैदेहस्तु विदेहजः\
 > मिथिलो मथनाज्जातो मिथिला येन निर्मिता ॥१३॥
 
-> janmanā janakaḥ so 'bhūd
-> vaidehas tu videhajaḥ
-> mithilo mathanāj jāto
+> janmanā janakaḥ so 'bhūd\
+> vaidehas tu videhajaḥ\
+> mithilo mathanāj jāto\
 > mithilā yena nirmitā
 
 *janmanā*—by birth; *janakaḥ*—born uncommonly, not by the usual process; *saḥ*—he; *abhūt*—became; *vaidehaḥ*—also known as Vaideha; *tu*—but; *videha-jaḥ*—because of being born from the body of Mahārāja Nimi, who had left his material body; *mithilaḥ*—he also became known as Mithila; *mathanāt*—because of being born from the churning of his father's body; *jātaḥ*—thus born; *mithilā*—the kingdom called Mithilā; *yena*—by whom (Janaka); *nirmitā*—was constructed.

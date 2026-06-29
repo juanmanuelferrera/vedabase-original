@@ -1,9 +1,9 @@
 ### CC Madhya 19.117
 
-> শ্রীরূপ-হৃদয়ে প্রভু শক্তি সঞ্চারিলা ।
+> শ্রীরূপ-হৃদয়ে প্রভু শক্তি সঞ্চারিলা ।\
 > সর্বতত্ত্ব-নিরূপণে ‘প্ৰবীণ’ করিলা ॥১১৭॥
 
-> śrī-rūpa-hṛdaye prabhu śakti sañcārilā
+> śrī-rūpa-hṛdaye prabhu śakti sañcārilā\
 > sarva-tattva-nirūpaṇe 'pravīṇa' karilā
 
 *śrī-rūpa-hṛdaye*—en el corazón de Śrīla Rūpa Gosvāmī; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *śakti sañcārilā*—infundió fuerza espiritual; *sarva-tattva*—todas las verdades concluyentes; *nirūpaṇe*—en determinar; *pravīṇa karilā*—le hizo plenamente experimentado.

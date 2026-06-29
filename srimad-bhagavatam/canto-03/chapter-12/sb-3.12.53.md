@@ -2,7 +2,7 @@
 
 > ताभ्यां रूपविभागाभ्यां मिथुनं समपद्यत् ॥५३॥
 
-> tābhyāṁ rūpa-vibhāgābhyāṁ
+> tābhyāṁ rūpa-vibhāgābhyāṁ\
 > mithunaṁ samapadyata
 
 *tābhyām*—of them; *rūpa*—form; *vibhāgābhyām*—thus being divided; *mithunam*—sex relation; *samapadyata*—perfectly executed.

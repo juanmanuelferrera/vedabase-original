@@ -1,13 +1,13 @@
 ### Bg 2.5
 
-> गुरूनहत्वा हि महानुभावान्
-> श्रेयो भोक्तुं भैक्ष्यमपीह लोके ।
-> हत्वार्थकामांस्तु गुरूनिहैव
+> गुरूनहत्वा हि महानुभावान्\
+> श्रेयो भोक्तुं भैक्ष्यमपीह लोके ।\
+> हत्वार्थकामांस्तु गुरूनिहैव\
 > भुञ्जीय भोगान् रुधिरप्रदिग्धान् ॥५॥
 
-> gurūn ahatvā hi mahānubhāvān
-> śreyo bhoktuṁ bhaikṣyam apīha loke
-> hatvārtha-kāmāṁs tu gurūn ihaiva
+> gurūn ahatvā hi mahānubhāvān\
+> śreyo bhoktuṁ bhaikṣyam apīha loke\
+> hatvārtha-kāmāṁs tu gurūn ihaiva\
 > bhuñjīya bhogān rudhira-pradigdhān
 
 *gurūn*—los superiores; *ahatvā*—al matar; *hi*—ciertamente; *mahā-anubhāvān*—grandes almas; *śreyaḥ*—es mejor; *bhoktum*—disfrutar de la vida; *bhaikṣyam*—mendigando; *api*—incluso; *iha*—en esta vida; *loke*—en este mundo; *hatvā*—matando; *artha*—ganancia; *kāmān*—deseando de este modo; *tu*—pero; *gurūn*—superiores; *iha*—en este mundo; *eva*—ciertamente; *bhuñjīya*—tiene que disfrutar; *bhogān*—objetos del disfrute; *rudhira*—sangre; *pradigdhān*—manchadas de.

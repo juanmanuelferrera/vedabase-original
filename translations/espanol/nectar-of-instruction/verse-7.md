@@ -1,13 +1,13 @@
 ### 7
 
-> स्यात् कृष्णनामचरितादिसिताप्यविद्या-
-> पित्तोपतप्तरसनस्य न रोचिका नु ।
-> किन्त्वादरादनुदिनं खलु सैव जुष्टा
+> स्यात् कृष्णनामचरितादिसिताप्यविद्या-\
+> पित्तोपतप्तरसनस्य न रोचिका नु ।\
+> किन्त्वादरादनुदिनं खलु सैव जुष्टा\
 > स्वाद्वी क्रमाद्भवति तद्गदमूलहन्त्री ॥७॥
 
-> syāt kṛṣṇa-nāma-caritādi-sitāpy avidyā-
-> pittopatapta-rasanasya na rocikā nu
-> kintv ādarād anudinaṁ khalu saiva juṣṭā
+> syāt kṛṣṇa-nāma-caritādi-sitāpy avidyā-\
+> pittopatapta-rasanasya na rocikā nu\
+> kintv ādarād anudinaṁ khalu saiva juṣṭā\
 > svādvī kramād bhavati tad-gada-mūla-hantrī
 
 *syāt*—es; *kṛṣṇa*—del Señor Kṛṣṇa; *nāma*—el santo nombre; *carita-ādi*—carácter, pasatiempos, etc.; *sitā*—azúcar cande; *api*—aunque; *avidyā*—de la ignorancia; *pitta*—por la bilis; *upatapta*—afligido; *rasanasya*—de la lengua; *na*—no; *rocikā*—apetecible; *nu*—oh, ¡qué maravilloso es!; *kintu*—pero; *ādarāt*—con cuidado; *anudinam*—cada día, o las veinticuatro horas del día; *khalu*—naturalmente; *sā*—esa (azúcar cande del santo nombre); *eva*—ciertamente; *juṣṭā*—tomada o cantada; *svādvī*—saboreable; *kramāt*—gradualmente; *bhavati*—se vuelve; *tat-gada*—de esa enfermedad; *mūla*—de la raíz; *hantrī*—destructora.

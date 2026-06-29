@@ -1,11 +1,11 @@
 ### SB 4.8.80
 
-> तस्मिन्नभिध्यायति विश्वमात्मनो द्वारं निरुध्यासुमनन्यया धिया ।
+> तस्मिन्नभिध्यायति विश्वमात्मनो द्वारं निरुध्यासुमनन्यया धिया ।\
 > लोका निरुच्छ्वासनिपीडिता भृशं सलोकपालाः शरणं ययुर्हरिम् ॥८०॥
 
-> tasminn abhidhyāyati viśvam ātmano
-> dvāraṁ nirudhyāsum ananyayā dhiyā
-> lokā nirucchvāsa-nipīḍitā bhṛśaṁ
+> tasminn abhidhyāyati viśvam ātmano\
+> dvāraṁ nirudhyāsum ananyayā dhiyā\
+> lokā nirucchvāsa-nipīḍitā bhṛśaṁ\
 > sa-loka-pālāḥ śaraṇaṁ yayur harim
 
 *tasmin*—Dhruva Mahārāja; *abhidhyāyati*—cuando meditaba completamente concentrado; *viśvam ātmanaḥ*—todo el cuerpo del universo; *dvāram*—los agujeros; *nirudhya*—cerró; *asum*—el aire vital; *ananyayā*—sin desviarse; *dhiyā*—meditación; *lokāḥ*—todos los planetas; *nirucchvāsa*—habiendo dejado de respirar; *nipīḍitāḥ*—asfixiándose; *bhṛśam*—muy pronto; *sa-loka-pālāḥ*—todos los grandes semidioses de diversos planetas; *śaraṇam*—refugio; *yayuḥ*—tomaron; *harim*—de la Suprema Personalidad de Dios.

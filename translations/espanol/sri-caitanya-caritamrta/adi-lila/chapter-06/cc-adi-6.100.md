@@ -1,9 +1,9 @@
 ### CC Adi 6.100
 
-> কৃষ্ণের সমতা হৈতে বড় ভক্তপদ ।
+> কৃষ্ণের সমতা হৈতে বড় ভক্তপদ ।\
 > আত্মা হৈতে কৃষ্ণের ভক্ত হয় প্রেমাস্পদ ॥১০০॥
 
-> kṛṣṇera samatā haite baḍa bhakta-pada
+> kṛṣṇera samatā haite baḍa bhakta-pada\
 > ātmā haite kṛṣṇera bhakta haya premāspada
 
 *kṛṣṇera*—con el Señor Kṛṣṇa; *samatā*—igualdad; *haite*—que esto; *baḍa*—más grande; *bhakta-pada*—la posición de devoto; *ātmā haite*—que Su propio ser; *kṛṣṇera*—del Señor Kṛṣṇa; *bhakta*—un devoto; *haya*—es; *prema-āspada*—el objeto de amor.

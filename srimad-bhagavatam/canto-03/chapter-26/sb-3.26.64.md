@@ -1,11 +1,11 @@
 ### SB 3.26.64
 
-> अक्षिणी चक्षुषादित्यो नोदतिष्ठत्तदा विराट् ।
+> अक्षिणी चक्षुषादित्यो नोदतिष्ठत्तदा विराट् ।\
 > श्रोत्रेण कर्णौ च दिशो नोदतिष्ठत्तदा विराट् ॥६४॥
 
-> akṣiṇī cakṣuṣādityo
-> nodatiṣṭhat tadā virāṭ
-> śrotreṇa karṇau ca diśo
+> akṣiṇī cakṣuṣādityo\
+> nodatiṣṭhat tadā virāṭ\
+> śrotreṇa karṇau ca diśo\
 > nodatiṣṭhat tadā virāṭ
 
 *akṣiṇī*—His two eyes; *cakṣuṣā*—with the sense of sight; *ādityaḥ*—the sun-god; *na*—not; *udatiṣṭhat*—did arise; *tadā*—then; *virāṭ*—the *virāṭ-puruṣa*; *śrotreṇa*—with the sense of hearing; *karṇau*—His two ears; *ca*—and; *diśaḥ*—the deities presiding over the directions; *na*—not; *udatiṣṭhat*—did arise; *tadā*—then; *virāṭ*—the *virāṭ-puruṣa.*

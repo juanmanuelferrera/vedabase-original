@@ -1,11 +1,11 @@
 ### Bg 6.6
 
-> बन्धुरात्मात्मनस्तस्य येनात्मैवात्मना जितः ।
+> बन्धुरात्मात्मनस्तस्य येनात्मैवात्मना जितः ।\
 > अनात्मनस्तु शत्रुत्वे वर्तेतात्मैव शत्रुवत् ॥६॥
 
-> bandhur ātmātmanas tasya
-> yenātmaivātmanā jitaḥ
-> anātmanas tu śatrutve
+> bandhur ātmātmanas tasya\
+> yenātmaivātmanā jitaḥ\
+> anātmanas tu śatrutve\
 > vartetātmaiva śatruvat
 
 *bandhuḥ*—amigo; *ātmā*—la mente; *ātmanaḥ*—de la entidad viviente; *tasya*—de él; *yena*—por quien; *ātmā*—la mente; *eva*—ciertamente; *ātmanā*—por la entidad viviente; *jitaḥ*—conquistado; *anātmanaḥ*—de aquel que no ha logrado controlar la mente; *tu*—pero; *śatrutve*—debido a la enemistad; *varteta*—permanece; *ātmā eva*—la propia mente; *śatruvat*—como un enemigo.

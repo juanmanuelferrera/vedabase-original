@@ -1,9 +1,9 @@
 ### CC Adi 17.123
 
-> মৃদঙ্গ-করতাল সংকীর্তন-মহাধ্বনি ।
+> মৃদঙ্গ-করতাল সংকীর্তন-মহাধ্বনি ।\
 > ‘হরি’ ‘হরি’ — ধ্বনি বিনা অন্য নাহি শুনি ॥১২৩॥
 
-> mṛdaṅga-karatāla saṅkīrtana-mahādhvani
+> mṛdaṅga-karatāla saṅkīrtana-mahādhvani\
 > 'hari' 'hari'—dhvani vinā anya nāhi śuni
 
 *mṛdaṅga*—drum; *karatāla*—hand bells; *saṅkīrtana*—chanting of the holy name of the Lord; *mahā-dhvani*—great vibration; *hari*—the Lord; *hari*—the Lord; *dhvani*—sound; *vinā*—except; *anya*—another; *nāhi*—not; *śuni*—one can hear.

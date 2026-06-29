@@ -1,9 +1,9 @@
 ### CC Adi 5.99
 
-> তাঁহাই প্রকট কৈল বৈকুণ্ঠ নিজ-ধাম ।
+> তাঁহাই প্রকট কৈল বৈকুণ্ঠ নিজ-ধাম ।\
 > শেষ-শয়ন-জলে করিল বিশ্রাম ॥৯৯॥
 
-> tāṅhāi prakaṭa kaila vaikuṇṭha nija-dhāma
+> tāṅhāi prakaṭa kaila vaikuṇṭha nija-dhāma\
 > śeṣa-śayana-jale karila viśrāma
 
 *tāṅhāi*—allí; *prakaṭa*—manifestación; *kaila*—hizo; *vaikuṇṭha*—el mundo espiritual; *nija-dhāma*—Su propia morada; *śeṣa*—del Señor Śeṣa; *śayana*—en el lecho; *jale*—sobre el agua; *karila*—hizo; *viśrāma*—descanso.

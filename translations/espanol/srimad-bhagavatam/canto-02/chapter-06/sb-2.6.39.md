@@ -1,11 +1,11 @@
 ### SB 2.6.39
 
-> स एष आद्यः पुरुषः कल्पे कल्पे सृजत्यजः ।
+> स एष आद्यः पुरुषः कल्पे कल्पे सृजत्यजः ।\
 > आत्मात्मन्यात्मनात्मानं स संयच्छति पाति च ॥३९॥
 
-> sa eṣa ādyaḥ puruṣaḥ
-> kalpe kalpe sṛjaty ajaḥ
-> ātmātmany ātmanātmānaṁ
+> sa eṣa ādyaḥ puruṣaḥ\
+> kalpe kalpe sṛjaty ajaḥ\
+> ātmātmany ātmanātmānaṁ\
 > sa saṁyacchati pāti ca
 
 *sah*—Él; *eṣaḥ*—el muy; *ādyaḥ*—la Personalidad de Dios original; *puruṣaḥ*—la encarnación Mahā-Viṣṇu, una porción plenaria de Govinda, el Señor Kṛṣṇa; *kalpe kalpe*—en todos y cada uno de los milenios; *sṛjati*—crea; *ajaḥ*—el innaciente; *ātmā*—el yo; *ātmani*—en el yo; *ātmanā*—mediante Su propio yo; *ātmānam*—propio yo; *saḥ*—Él; *saṁyacchati*—absorbe; *pāti*—mantiene; *ca*—también.

@@ -1,11 +1,11 @@
 ### SB 3.11.34
 
-> यदर्धमायुषस्तस्य परार्धमभिधीयते ।
+> यदर्धमायुषस्तस्य परार्धमभिधीयते ।\
 > पूर्वः परार्धोऽपक्रान्तो ह्यपरोऽद्य प्रवर्तते ॥३४॥
 
-> yad ardham āyuṣas tasya
-> parārdham abhidhīyate
-> pūrvaḥ parārdho 'pakrānto
+> yad ardham āyuṣas tasya\
+> parārdham abhidhīyate\
+> pūrvaḥ parārdho 'pakrānto\
 > hy aparo 'dya pravartate
 
 *yat*—aquello que; *ardham*—mitad; *āyuṣaḥ*—de la duración de la vida; *tasya*—su; *parārdham*—un *parārdha*; *abhidhīyate*—se denomina; *pūrvaḥ*—la anterior; *para-ardhaḥ*—mitad de la duración de la vida; *apakrāntaḥ*—habiendo pasado; *hi*—ciertamente; *aparaḥ*—la última; *adya*—en este milenio; *pravartate*—ha de comenzar.

@@ -1,11 +1,11 @@
 ### SB 9.6.2
 
-> रथीतरस्याप्रजस्य भार्यायां तन्तवेऽर्थितः
+> रथीतरस्याप्रजस्य भार्यायां तन्तवेऽर्थितः\
 > अङ्गिरा जनयामास ब्रह्मवर्चस्विनः सुतान ॥२॥
 
-> rathītarasyāprajasya
-> bhāryāyāṁ tantave 'rthitaḥ
-> aṅgirā janayām āsa
+> rathītarasyāprajasya\
+> bhāryāyāṁ tantave 'rthitaḥ\
+> aṅgirā janayām āsa\
 > brahma-varcasvinaḥ sutān
 
 *rathītarasya*—de Rathītara; *aprajasya*—que no tenía hijos; *bhāryāyām*—a su esposa; *tantave*—para aumentar la descendencia; *arthitaḥ*—ante el ruego; *aṅgirāḥ*—el gran sabio Aṅgirā; *janayām āsa*—hizo que naciesen; *brahma-varcasvinaḥ*—que tenían cualidades brahmínicas; *sutān*—hijos.

@@ -1,9 +1,9 @@
 ### CC Antya 3.154
 
-> ভিতরে আছিলা, শুনি’ ক্রোধে বাহিরিলা  ।
+> ভিতরে আছিলা, শুনি’ ক্রোধে বাহিরিলা  ।\
 > অট্ট অট্ট হাসি’ গোসাঞি কহিতে লাগিলা ॥১৫৪॥
 
-> bhitare āchilā, śuni' krodhe bāhirilā
+> bhitare āchilā, śuni' krodhe bāhirilā\
 > aṭṭa aṭṭa hāsi' gosāñi kahite lāgilā
 
 *bhitare āchilā*—estaba dentro; *śuni'*—al oír; *krodhe*—con enfado; *bāhirilā*—salió; *aṭṭa aṭṭa*—muy fuerte; *hāsi'*—riendo; *gosāñi*—el Señor Nityānanda Prabhu; *kahite lāgilā*—comenzó a decir.

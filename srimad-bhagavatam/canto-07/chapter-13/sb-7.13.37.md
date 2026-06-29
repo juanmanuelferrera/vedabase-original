@@ -1,11 +1,11 @@
 ### SB 7.13.37
 
-> क्वचिदल्पं क्वचिद्भूरि भुञ्जेऽन्नं स्वाद्वस्वादु वा
+> क्वचिदल्पं क्वचिद्भूरि भुञ्जेऽन्नं स्वाद्वस्वादु वा\
 > क्वचिद्भूरि गुणोपेतं गुणहीनमुत क्वचित ॥३७॥
 
-> anīhaḥ parituṣṭātmā
-> yadṛcchopanatād aham
-> no cec chaye bahv-ahāni
+> anīhaḥ parituṣṭātmā\
+> yadṛcchopanatād aham\
+> no cec chaye bahv-ahāni\
 > mahāhir iva sattvavān
 
 *anīhaḥ*—with no desire to possess more; *parituṣṭa*—very satisfied; *ātmā*—self; *yadṛcchā*—in its own way, without endeavor; *upanatāt*—by things brought in by possession; *aham*—I; *no*—not; *cet*—if so; *śaye*—I lie down; *bahu*—many; *ahāni*—days; *mahā-ahiḥ*—a python; *iva*—like; *sattva-vān*—enduring.

@@ -1,9 +1,9 @@
 ### CC Madhya 23.38
 
-> কৃষ্ণে ‘রতির’ চিহ্ন এই কৈলুঁ বিবরণ ।
+> কৃষ্ণে ‘রতির’ চিহ্ন এই কৈলুঁ বিবরণ ।\
 > ‘কৃষ্ণপ্রেমের’ চিহ্ন এবে শুন সনাতন ॥৩৮॥
 
-> kṛṣṇe 'ratira' cihna ei kailuṅ vivaraṇa
+> kṛṣṇe 'ratira' cihna ei kailuṅ vivaraṇa\
 > 'kṛṣṇa-premera' cihna ebe śuna sanātana
 
 *kṛṣṇe*—for Kṛṣṇa; *ratira*—of attraction; *cihna*—the symptoms; *ei*—all these; *kailuṅ vivaraṇa*—I have described; *kṛṣṇa-premera*—of love for Lord Kṛṣṇa; *cihna*—the symptoms; *ebe*—now; *śuna sanātana*—please hear, Sanātana.

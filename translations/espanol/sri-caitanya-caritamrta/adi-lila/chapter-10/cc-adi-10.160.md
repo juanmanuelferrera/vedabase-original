@@ -1,9 +1,9 @@
 ### CC Adi 10.160
 
-> একৈক-শাখাতে লাগে কোটি কোটি ডাল ।
+> একৈক-শাখাতে লাগে কোটি কোটি ডাল ।\
 > তার শিষ্য-উপশিষ্য, তার উপডাল ॥১৬০॥
 
-> ekaika-śākhāte lāge koṭi koṭi ḍāla
+> ekaika-śākhāte lāge koṭi koṭi ḍāla\
 > tāra śiṣya-upaśiṣya, tāra upaḍāla
 
 *eka-eka*—en cada; *śākhāte*—rama; *lāge*—crecen; *koṭi koṭi*—cientos de miles; *ḍāla*—ramitas; *tāra*—Sus; *śiṣya*—discípulos; *upaśiṣya*—sub-discípulos; *tāra*—Sus; *upaḍāla*—sub-ramas.

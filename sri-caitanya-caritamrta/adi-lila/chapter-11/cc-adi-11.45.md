@@ -1,9 +1,9 @@
 ### CC Adi 11.45
 
-> পরমানন্দ গুপ্ত — কৃষ্ণভক্ত মহামতি ।
+> পরমানন্দ গুপ্ত — কৃষ্ণভক্ত মহামতি ।\
 > পূর্বে যাঁর ঘরে নিত্যানন্দের বসতি ॥৪৫॥
 
-> paramānanda gupta—kṛṣṇa-bhakta mahāmatī
+> paramānanda gupta—kṛṣṇa-bhakta mahāmatī\
 > pūrve yāṅra ghare nityānandera vasati
 
 *paramānanda gupta*—of the name Paramānanda Gupta; *kṛṣṇa-bhakta*—a great devotee of Lord Kṛṣṇa; *mahā-mati*—advanced in spiritual consciousness; *pūrve*—formerly; *yāṅra*—whose; *ghare*—in the house; *nityānandera*—of Lord Nityānanda Prabhu; *vasati*—residence.

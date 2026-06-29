@@ -1,9 +1,9 @@
 ### CC Madhya 24.19
 
-> ‘উরুক্রম’-শব্দে কহে, বড় যাঁর ক্রম ।
+> ‘উরুক্রম’-শব্দে কহে, বড় যাঁর ক্রম ।\
 > ‘ক্রম’-শব্দে কহে এই পাদবিক্ষেপণ ॥১৯॥
 
-> 'urukrama'-śabde kahe, baḍa yāṅra krama
+> 'urukrama'-śabde kahe, baḍa yāṅra krama\
 > 'krama'-śabde kahe ei pāda-vikṣepaṇa
 
 *urukrama*—urukrama; *śabde*—con esta palabra; *kahe*—se quiere decir; *baḍa*—grande; *yāṅra*—cuyo; *krama*—paso; *krama-śabde*—con esta palabra krama; *kahe*—se quiere decir; *ei*—esto; *pāda-vikṣepaṇa*—dar un paso con el pie.

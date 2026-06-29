@@ -1,9 +1,9 @@
 ### CC Antya 2.120
 
-> ক্ষুদ্রজীব সব মর্কট-বৈরাগ্য করিয়া ।
+> ক্ষুদ্রজীব সব মর্কট-বৈরাগ্য করিয়া ।\
 > ইন্দ্রিয় চরাঞা বুলে ‘প্রকৃতি’ সম্ভাষিয়া ।।” ॥ ১২০ ॥
 
-> kṣudra-jīva saba markaṭa-vairāgya kariyā
+> kṣudra-jīva saba markaṭa-vairāgya kariyā\
 > indriya carāñā bule 'prakṛti' sambhāṣiyā"
 
 *kṣudra-jīva*—poor living entities; *saba*—all; *markaṭa vairāgya*—a renounced life like that of a monkey; *kariyā*—accepting; *indriya carāñā*—satisfying the senses; *bule*—wander here and there; *prakṛti sambhāṣiyā*—talking intimately with women.

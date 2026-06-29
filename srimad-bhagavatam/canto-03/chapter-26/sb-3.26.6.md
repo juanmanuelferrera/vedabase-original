@@ -1,11 +1,11 @@
 ### SB 3.26.6
 
-> एवं पराभिध्यानेन कर्तृत्वं प्रकृतेः पुमान् ।
+> एवं पराभिध्यानेन कर्तृत्वं प्रकृतेः पुमान् ।\
 > कर्मसु क्रियमाणेषु गुणैरात्मनि मन्यते ॥६॥
 
-> evaṁ parābhidhyānena
-> kartṛtvaṁ prakṛteḥ pumān
-> karmasu kriyamāṇeṣu
+> evaṁ parābhidhyānena\
+> kartṛtvaṁ prakṛteḥ pumān\
+> karmasu kriyamāṇeṣu\
 > guṇair ātmani manyate
 
 *evam*—in this way; *para*—other; *abhidhyānena*—by identification; *kartṛtvam*—the performance of activities; *prakṛteḥ*—of the material nature; *pumān*—the living entity; *karmasu kriyamāṇeṣu*—while the activities are being performed; *guṇaiḥ*—by the three modes; *ātmani*—to himself; *manyate*—he considers.

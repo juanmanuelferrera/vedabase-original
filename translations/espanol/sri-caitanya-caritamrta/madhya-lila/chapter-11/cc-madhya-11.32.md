@@ -1,11 +1,11 @@
 ### CC Madhya 11.32
 
-> দুরাপা হ্যল্পতপসঃ সেবা বৈকুণ্ঠবর্ত্মসু ৷
+> দুরাপা হ্যল্পতপসঃ সেবা বৈকুণ্ঠবর্ত্মসু ৷\
 > যত্রোপগীয়তে নিত্যং দেবদেবো জনার্দনঃ ৷৷ ৩২ ৷৷ ॥৩২॥
 
-> durāpā hy alpa-tapasaḥ
-> sevā vaikuṇṭha-vartmasu
-> yatropagīyate nityaṁ
+> durāpā hy alpa-tapasaḥ\
+> sevā vaikuṇṭha-vartmasu\
+> yatropagīyate nityaṁ\
 > deva-devo janārdanaḥ
 
 *durāpā*—muy difícil de alcanzar; *hi*—ciertamente; *alpa-tapasaḥ*—para una persona poco avanzada en la vida espiritual; *sevā*—servicio; *vaikuṇṭha-vartmasu*—a las personas que van por el sendero de regreso al hogar, de vuelta a Dios; *yatra*—donde; *upagīyate*—se adora y glorifica; *nityam*—regularmente; *deva-devaḥ*—la Suprema Personalidad de Dios; *janārdanaḥ*—el Señor Kṛṣṇa.

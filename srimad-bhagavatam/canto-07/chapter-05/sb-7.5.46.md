@@ -1,11 +1,11 @@
 ### SB 7.5.46
 
-> वर्तमानोऽविदूरे वै बालोऽप्यजडधीरयम
+> वर्तमानोऽविदूरे वै बालोऽप्यजडधीरयम\
 > न विस्मरति मेऽनार्यं शुनः शेप इव प्रभुः ॥४६॥
 
-> vartamāno 'vidūre vai
-> bālo 'py ajaḍa-dhīr ayam
-> na vismarati me 'nāryaṁ
+> vartamāno 'vidūre vai\
+> bālo 'py ajaḍa-dhīr ayam\
+> na vismarati me 'nāryaṁ\
 > śunaḥ śepa iva prabhuḥ
 
 *vartamānaḥ*—being situated; *avidūre*—not very far away; *vai*—indeed; *bālaḥ*—a mere child; *api*—although; *ajaḍa-dhīḥ*—complete fearlessness; *ayam*—this; *na*—not; *vismarati*—forgets; *me*—my; *anāryam*—misbehavior; *śunaḥ śepaḥ*—the curved tail of a dog; *iva*—exactly like; *prabhuḥ*—being able or potent.

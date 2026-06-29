@@ -1,9 +1,9 @@
 ### CC Antya 3.220
 
-> অলৌকিক আচার তোমার কহিতে পাই ভয় ।
+> অলৌকিক আচার তোমার কহিতে পাই ভয় ।\
 > সেই কৃপা করিবা, — যাতে মোর রক্ষা হয় ।।” ॥ ২২০ ॥
 
-> alaukika ācāra tomāra kahite pāi bhaya
+> alaukika ācāra tomāra kahite pāi bhaya\
 > sei kṛpā karibā,--yāte mora rakṣā haya"
 
 *alaukika ācāra*—comportamiento poco común; *tomāra*—Vuestro; *kahite*—para hablar; *pāi bhaya*—tengo temor; *sei kṛpā*—ese favor; *karibā*—tened la bondad de hacer; *yāte*—por el cual; *mora*—mi; *rakṣā*—protección; *haya*—haya.

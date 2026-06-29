@@ -1,11 +1,11 @@
 ### SB 6.16.37
 
-> क्षित्यादिभिरेष किलावृतः सप्तभिर्दशगुणोत्तरैरण्डकोशः
+> क्षित्यादिभिरेष किलावृतः सप्तभिर्दशगुणोत्तरैरण्डकोशः\
 > यत्र पतत्यणुकल्पः सहाण्डकोटिकोटिभिस्तदनन्तः ॥३७॥
 
-> kṣity-ādibhir eṣa kilāvṛtaḥ
-> saptabhir daśa-guṇottarair aṇḍa-kośaḥ
-> yatra pataty aṇu-kalpaḥ
+> kṣity-ādibhir eṣa kilāvṛtaḥ\
+> saptabhir daśa-guṇottarair aṇḍa-kośaḥ\
+> yatra pataty aṇu-kalpaḥ\
 > sahāṇḍa-koṭi-koṭibhis tad anantaḥ
 
 *kṣiti-ādibhiḥ*—por los elementos del mundo material, comenzando con la tierra; *eṣaḥ*—este; *kila*—en verdad; *āvṛtaḥ*—cubierto; *saptabhiḥ*—siete; *daśa-guṇa-uttaraiḥ*—cada una diez veces mayor que la precedente; *aṇḍa-kośaḥ*—universo en forma de huevo; *yatra*—en quien; *patati*—cae; *aṇu-kalpaḥ*—como un diminuto átomo; *saha*—con; *aṇḍa-koṭi-koṭibhiḥ*—millones de esos universos; *tat*—por lo tanto; *anantaḥ*—(se Te llama) ilimitado.

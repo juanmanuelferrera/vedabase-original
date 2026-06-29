@@ -1,11 +1,11 @@
 ### CC Madhya 19.54
 
-> যোঽজ্ঞানমত্তং ভুবনং দয়ালুরুল্লাঘয়ন্নপ্যকরোৎ প্ৰমত্তম্ ।
+> যোঽজ্ঞানমত্তং ভুবনং দয়ালুরুল্লাঘয়ন্নপ্যকরোৎ প্ৰমত্তম্ ।\
 > স্বপ্রেমসম্পৎসুধয়াদ্ভুতেহং শ্রীকৃষ্ণচৈতন্যমমুং প্ৰপদ্যে ॥৫৪॥
 
-> yo 'jñāna-mattaṁ bhuvanaṁ dayālur
-> ullāghayann apy akarot pramattam
-> sva-prema-sampat-sudhayādbhutehaṁ
+> yo 'jñāna-mattaṁ bhuvanaṁ dayālur\
+> ullāghayann apy akarot pramattam\
+> sva-prema-sampat-sudhayādbhutehaṁ\
 > śrī-kṛṣṇa-caitanyam amuṁ prapadye
 
 *yaḥ*—esa Personalidad de Dios que; *ajñāna-mattam*—enloquecidos por la ignorancia o pasando tontamente el tiempo en karma, jñāna, yoga y la filosofía māyāvāda; *bhuvanam*—los tres mundos enteros; *dayāluḥ*—tan misericordioso; *ullāghayan*—suprimiendo procesos como el karma, jñāna y yoga; *api*—a pesar de; *akarot*—hizo; *pra-mattam*—enloquecidos; *sva-prema-sampat-sudhayā*—por el néctar de Su servicio devocional personal, que es un tesoro inestimable de bienaventuranza; *adbhuta-īham*—cuyas actividades son maravillosas; *śrī-kṛṣṇa-caitanyam*—al Señor Śrī Caitanya Mahāprabhu; *amum*—a aquel; *prapadye*—me rindo.

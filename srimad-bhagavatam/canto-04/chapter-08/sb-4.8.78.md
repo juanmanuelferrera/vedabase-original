@@ -1,11 +1,11 @@
 ### SB 4.8.78
 
-> आधारं महदादीनां प्रधानपुरुषेश्वरम् ।
+> आधारं महदादीनां प्रधानपुरुषेश्वरम् ।\
 > ब्रह्म धारयमाणस्य त्रयो लोकाश्चकम्पिरे ॥७८॥
 
-> ādhāraṁ mahad-ādīnāṁ
-> pradhāna-puruṣeśvaram
-> brahma dhārayamāṇasya
+> ādhāraṁ mahad-ādīnāṁ\
+> pradhāna-puruṣeśvaram\
+> brahma dhārayamāṇasya\
 > trayo lokāś cakampire
 
 *ādhāram*—repose; *mahat-ādīnām*—of the material sum total known as the *mahat-tattva*; *pradhāna*—the chief; *puruṣa-īśvaram*—master of all living entities; *brahma*—the Supreme Brahman, the Personality of Godhead; *dhārayamāṇasya*—having taken into the heart; *trayaḥ*—the three planetary systems; *lokāḥ*—all the planets; *cakampire*—began to tremble.

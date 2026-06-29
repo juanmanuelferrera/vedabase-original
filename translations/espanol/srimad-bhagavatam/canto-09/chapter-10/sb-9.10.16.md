@@ -1,13 +1,13 @@
 ### SB 9.10.16
 
-> बद्ध्वोदधौ रघुपतिर्विविधाद्रिकूटैः
-> सेतुं कपीन्द्रकरकम्पितभूरुहाङ्गैः
-> सुग्रीवनीलहनुमत्प्रमुखैरनीकैर
+> बद्ध्वोदधौ रघुपतिर्विविधाद्रिकूटैः\
+> सेतुं कपीन्द्रकरकम्पितभूरुहाङ्गैः\
+> सुग्रीवनीलहनुमत्प्रमुखैरनीकैर\
 > लङ्कां विभीषणदृशाविशदग्रदग्धाम ॥१६॥
 
-> baddhvodadhau raghu-patir vividhādri-kūṭaiḥ
-> setuṁ kapīndra-kara-kampita-bhūruhāṅgaiḥ
-> sugrīva-nīla-hanumat-pramukhair anīkair
+> baddhvodadhau raghu-patir vividhādri-kūṭaiḥ\
+> setuṁ kapīndra-kara-kampita-bhūruhāṅgaiḥ\
+> sugrīva-nīla-hanumat-pramukhair anīkair\
 > laṅkāṁ vibhīṣaṇa-dṛśāviśad agra-dagdhām
 
 *baddhvā*—después de construir; *udadhau*—en las aguas del océano; *raghu-patiḥ*—el Señor Rāmacandra; *vividha*—diversas clases de; *adri-kūṭaiḥ*—con picos de grandes montañas; *setum*—un puente; *kapi-indra*—de los poderosos monos; *kara-kampita*—movidos por las grandes manos; *bhūruha-aṅgaiḥ*—con los árboles y las plantas; *sugrīva*—Sugrīva; *nīla*—Nīla; *hanumat*—Hanumān; *pramukhaiḥ*—guiados por; *anīkaiḥ*—con esos soldados; *laṅkāṁ*—a Laṅkā, el reino de Rāvaṇa; *vibhīṣaṇa-dṛśā*—con las indicaciones de Vibhīṣaṇa, el hermano de Rāvaṇa; *āviśat*—entró; *agra-dagdhām*—que ya había sido incendiada (por el soldado mono Hanumān).

@@ -1,9 +1,9 @@
 ### CC Madhya 9.98
 
-> বিপ্র কহে, — মূর্খ আমি, শব্দার্থ না জানি ৷
+> বিপ্র কহে, — মূর্খ আমি, শব্দার্থ না জানি ৷\
 > শুদ্ধাশুদ্ধ গীতা পড়ি, গুরু-আজ্ঞা মানি’ ৷৷ ৯৮ ৷৷ ॥৯৮॥
 
-> vipra kahe,--mūrkha āmi, śabdārtha nā jāni
+> vipra kahe,--mūrkha āmi, śabdārtha nā jāni\
 > śuddhāśuddha gītā paḍi, guru-ājñā māni'
 
 *vipra kahe*—el brāhmaṇa respondió; *mūrkha āmi*—soy analfabeto; *śabda-artha*—el significado de las palabras; *nā jāni*—no conozco; *śuddha-aśuddha*—a veces correcta y a veces incorrectamente; *gītā*—el Bhagavad-gītā; *paḍi*—leo; *guru-ājñā*—la orden de mi maestro espiritual; *māni'*—acatando.

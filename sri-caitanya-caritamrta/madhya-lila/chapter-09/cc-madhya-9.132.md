@@ -1,11 +1,11 @@
 ### CC Madhya 9.132
 
-> নায়ং সুখাপো ভগবান্ দেহিনাং গোপিকাসুতঃ ।
+> নায়ং সুখাপো ভগবান্ দেহিনাং গোপিকাসুতঃ ।\
 > জ্ঞানিনাং চাত্মভূতানাং যথা ভক্তিমতামিহ ॥১৩২॥
 
-> nāyaṁ sukhāpo bhagavān
-> dehināṁ gopikā-sutaḥ
-> jñānināṁ cātma-bhūtānāṁ
+> nāyaṁ sukhāpo bhagavān\
+> dehināṁ gopikā-sutaḥ\
+> jñānināṁ cātma-bhūtānāṁ\
 > yathā bhakti-matām iha
 
 *na*—not; *ayam*—this Lord Śrī Kṛṣṇa; *sukha-āpaḥ*—easily available; *bhagavān*—the Supreme Personality of Godhead; *dehinām*—for materialistic persons who have accepted the body as the self; *gopikā-sutaḥ*—the son of mother Yaśodā; *jñāninām*—for persons addicted to mental speculation; *ca*—and; *ātma-bhūtānām*—for persons performing severe austerities and penances; *yathā*—as; *bhakti-matām*—for persons engaged in spontaneous devotional service; *iha*—in this world.

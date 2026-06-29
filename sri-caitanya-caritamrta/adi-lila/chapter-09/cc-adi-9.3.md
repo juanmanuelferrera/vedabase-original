@@ -1,9 +1,9 @@
 ### CC Adi 9.3
 
-> জয় জয় শ্রীবাসাদি গৌরভক্তগণ ।
+> জয় জয় শ্রীবাসাদি গৌরভক্তগণ ।\
 > সর্বাভীষ্ট-পূর্তি-হেতু যাঁহার স্মরণ ॥৩॥
 
-> jaya jaya śrīvāsādi gaura-bhakta-gaṇa
+> jaya jaya śrīvāsādi gaura-bhakta-gaṇa\
 > sarvābhīṣṭa-pūrti-hetu yāṅhāra smaraṇa
 
 *jaya jaya*—all glories; *śrīvāsa-ādi*—to Śrīvāsa and others; *gaura-bhakta-gaṇa*—all the devotees of Lord Caitanya; *sarva-abhīṣṭa*—all ambition; *pūrti*—satisfaction; *hetu*—for the matter of; *yāṅhāra*—whose; *smaraṇa*—remembrance.

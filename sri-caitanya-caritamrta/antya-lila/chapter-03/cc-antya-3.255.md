@@ -1,9 +1,9 @@
 ### CC Antya 3.255
 
-> এ-বন্যায় যে না ভাসে, সেই জীব ছার ।
+> এ-বন্যায় যে না ভাসে, সেই জীব ছার ।\
 > কোটিকল্পে কভু তার নাহিক নিস্তার ॥২৫৫॥
 
-> e-vanyāya ye nā bhāse, sei jīva chāra
+> e-vanyāya ye nā bhāse, sei jīva chāra\
 > koṭi-kalpe kabhu tāra nāhika nistāra
 
 *e-vanyāya*—in this inundation; *ye*—anyone who; *nā bhāse*—does not float; *sei*—that; *jīva*—living entity; *chāra*—most condemned; *koṭi-kalpe*—in millions of *kalpas*; *kabhu*—at any time; *tāra*—his; *nāhika*—there is not; *nistāra*—deliverance.

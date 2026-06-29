@@ -1,9 +1,9 @@
 ### CC Madhya 8.191
 
-> প্রভু কহে, — এহো হয়, আগে কহ আর ।
+> প্রভু কহে, — এহো হয়, আগে কহ আর ।\
 > রায় কহে, — ইহা বই বুদ্ধি-গতি নাহি আর ॥১৯১॥
 
-> prabhu kahe,—"eho haya, āge kaha āra"
+> prabhu kahe,—"eho haya, āge kaha āra"\
 > rāya kahe,—"īhā va-i buddhi-gati nāhi āra"
 
 *prabhu kahe*—Lord Caitanya Mahāprabhu said; *eho haya*—this is all right; *āge kaha āra*—please go forward and say more; *rāya kahe*—Rāmānanda Rāya replied; *ihā va-i*—except this; *buddhi-gati*—movement of my intelligence; *nāhi*—there is not; *āra*—any more.

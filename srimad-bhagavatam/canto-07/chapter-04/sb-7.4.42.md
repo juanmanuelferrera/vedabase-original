@@ -1,11 +1,11 @@
 ### SB 7.4.42
 
-> स उत्तमश्लोकपदारविन्दयोर्निषेवयाकिञ्चनसङ्गलब्धया
+> स उत्तमश्लोकपदारविन्दयोर्निषेवयाकिञ्चनसङ्गलब्धया\
 > तन्वन्परां निर्वृतिमात्मनो मुहुर्दुःसङ्गदीनस्य मनः शमं व्यधात ॥४२॥
 
-> sa uttama-śloka-padāravindayor
-> niṣevayākiñcana-saṅga-labdhayā
-> tanvan parāṁ nirvṛtim ātmano muhur
+> sa uttama-śloka-padāravindayor\
+> niṣevayākiñcana-saṅga-labdhayā\
+> tanvan parāṁ nirvṛtim ātmano muhur\
 > duḥsaṅga-dīnasya manaḥ śamaṁ vyadhāt
 
 *saḥ*—he (Prahlāda Mahārāja); *uttama-śloka-pada-aravindayoḥ*—to the lotus feet of the Supreme Personality of Godhead, who is worshiped by transcendental prayers; *niṣevayā*—by constant service; *akiñcana*—of devotees who have nothing to do with the material world; *saṅga*—in the association; *labdhayā*—obtained; *tanvan*—expanding; *parām*—highest; *nirvṛtim*—bliss; *ātmanaḥ*—of the spirit soul; *muhuḥ*—constantly; *duḥsaṅga-dīnasya*—of a person poor in spiritual understanding due to bad association; *manaḥ*—the mind; *śamam*—peaceful; *vyadhāt*—made.

@@ -1,11 +1,11 @@
 ### SB 4.18.2
 
-> सन्नियच्छाभिभो मन्युं निबोध श्रावितं च मे ।
+> सन्नियच्छाभिभो मन्युं निबोध श्रावितं च मे ।\
 > सर्वतः सारमादत्ते यथा मधुकरो बुधः ॥२॥
 
-> sanniyacchābhibho manyuṁ
-> nibodha śrāvitaṁ ca me
-> sarvataḥ sāram ādatte
+> sanniyacchābhibho manyuṁ\
+> nibodha śrāvitaṁ ca me\
+> sarvataḥ sāram ādatte\
 > yathā madhu-karo budhaḥ
 
 *sanniyaccha*—por favor, calma; *abhibho*—¡oh, rey!; *manyum*—la ira; *nibodha*—trata de entender; *śrāvitam*—lo que se dice; *ca*—también; *me*—por mí; *sarvataḥ*—de todas partes; *sāram*—la esencia; *ādatte*—recoge; *yathā*—como; *madhu-karaḥ*—el abejorro; *budhaḥ*—la persona inteligente.

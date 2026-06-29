@@ -1,11 +1,11 @@
 ### SB 2.1.30
 
-> द्यौरक्षिणी चक्षुरभूत्पतङ्गः पक्ष्माणि विष्णोरहनी उभे च ।
+> द्यौरक्षिणी चक्षुरभूत्पतङ्गः पक्ष्माणि विष्णोरहनी उभे च ।\
 > तद्भ्रूविजृम्भः परमेष्ठिधिष्ण्यमापोऽस्य तालू रस एव जिह्वा ॥३०॥
 
-> dyaur akṣiṇī cakṣur abhūt pataṅgaḥ
-> pakṣmāṇi viṣṇor ahanī ubhe ca
-> tad-bhrū-vijṛmbhaḥ parameṣṭhi-dhiṣṇyam
+> dyaur akṣiṇī cakṣur abhūt pataṅgaḥ\
+> pakṣmāṇi viṣṇor ahanī ubhe ca\
+> tad-bhrū-vijṛmbhaḥ parameṣṭhi-dhiṣṇyam\
 > āpo 'sya tālū rasa eva jihvā
 
 *dyauḥ*—the sphere of outer space; *akṣiṇī*—the eyeballs; *cakṣuḥ*—of eyes (senses); *abhūt*—it so became; *pataṅgaḥ*—the sun; *pakṣmāṇi*—eyelids; *viṣṇoḥ*—of the Personality of Godhead, Śrī Viṣṇu; *ahanī*—day and night; *ubhe*—both; *ca*—and; *tat*—His; *bhrū*—eyebrows; *vijṛmbhaḥ*—movements; *parameṣṭhi*—the supreme entity (Brahmā); *dhiṣṇyam*—post; *āpaḥ*—Varuṇa, the director of water; *asya*—His; *tālū*—palate; *rasaḥ*—juice; *eva*—certainly; *jihvā*—the tongue.

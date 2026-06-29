@@ -1,9 +1,9 @@
 ### CC Antya 6.186
 
-> ভক্ষণ অপেক্ষা নাহি, সমস্ত দিবস গমন ।
+> ভক্ষণ অপেক্ষা নাহি, সমস্ত দিবস গমন ।\
 > ক্ষুধা নাহি বাধে, চৈতন্যচরণ-প্রাপ্ত্যে মন ॥১৮৬॥
 
-> bhakṣaṇa apekṣā nāhi, samasta divasa gamana
+> bhakṣaṇa apekṣā nāhi, samasta divasa gamana\
 > kṣudhā nāhi bādhe, caitanya-caraṇa-prāptye mana
 
 *bhakṣaṇa apekṣā nāhi*—no se preocupaba por comer; *samasta divasa*—todo el día; *gamana*—viajando; *kṣudhā*—el hambre; *nāhi bādhe*—no se convirtió en impedimento; *caitanya-caraṇa*—los pies de loto de Śrī Caitanya Mahāprabhu; *prāptye*—al obtener; *mana*—la mente.

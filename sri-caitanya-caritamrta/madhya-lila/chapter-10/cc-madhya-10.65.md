@@ -1,9 +1,9 @@
 ### CC Madhya 10.65
 
-> এবে আমি ইহাঁ আনি’ করিলাঙ বিদায় ।
+> এবে আমি ইহাঁ আনি’ করিলাঙ বিদায় ।\
 > যাহাঁ ইচ্ছা, যাহ, আমা-সনে নাহি আর দায় ॥৬৫॥
 
-> ebe āmi ihāṅ āni' karilāṅa vidāya
+> ebe āmi ihāṅ āni' karilāṅa vidāya\
 > yāhāṅ icchā, yāha, āmā-sane nāhi āra dāya
 
 *ebe*—now; *āmi*—I; *ihāṅ*—here; *āni'*—bringing; *karilāṅa vidāya*—have asked to go away; *yāhāṅ icchā*—wherever he likes; *yāha*—go; *āmā-sane*—with Me; *nāhi āra*—there is no more; *dāya*—responsibility.

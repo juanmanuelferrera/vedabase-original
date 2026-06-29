@@ -1,9 +1,9 @@
 ### CC Antya 4.89
 
-> হরিদাস কহে, — “মিথ্যা অভিমান করি  ।
+> হরিদাস কহে, — “মিথ্যা অভিমান করি  ।\
 > তোমার গম্ভীর হৃদয় বুঝিতে না পারি ॥৮৯॥
 
-> haridāsa kahe,—"mithyā abhimāna kari
+> haridāsa kahe,—"mithyā abhimāna kari\
 > tomāra gambhīra hṛdaya bujhite nā pāri
 
 *haridāsa kahe*—Haridāsa Ṭhākura replied; *mithyā*—falsely; *abhimāna kari*—are proud; *tomāra*—Your; *gambhīra*—deep; *hṛdaya*—intention; *bujhite nā pāri*—we cannot understand.

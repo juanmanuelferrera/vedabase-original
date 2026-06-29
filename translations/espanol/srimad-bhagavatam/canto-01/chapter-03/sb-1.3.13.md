@@ -1,11 +1,11 @@
 ### SB 1.3.13
 
-> अष्टमे मेरुदेव्यां तु नाभेर्जात उरुक्रमः ।
+> अष्टमे मेरुदेव्यां तु नाभेर्जात उरुक्रमः ।\
 > दर्शयन्वर्त्म धीराणां सर्वाश्रमनमस्कृतम् ॥१३॥
 
-> aṣṭame merudevyāṁ tu
-> nābher jāta urukramaḥ
-> darśayan vartma dhīrāṇāṁ
+> aṣṭame merudevyāṁ tu\
+> nābher jāta urukramaḥ\
+> darśayan vartma dhīrāṇāṁ\
 > sarvāśrama-namaskṛtam
 
 *aṣṭame*—la octava de las encarnaciones; *merudevyām tu*—en el vientre de Merudevī, la esposa de; *nābheḥ*—el rey Nābhi; *jātaḥ*—nació; *urukramaḥ*—el Todopoderoso; *darśayan*—mostrando; *vartma*—el sendero; *dhīrāṇām*—de los seres perfectos; *sarva*—todas; *āśrama*—órdenes de vida; *namaskṛtam*—honrado por.

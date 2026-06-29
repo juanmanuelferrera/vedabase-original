@@ -1,9 +1,9 @@
 ### CC Madhya 23.47
 
-> প্রেমাদিক স্থায়িভাব সামগ্রী-মিলনে ।
+> প্রেমাদিক স্থায়িভাব সামগ্রী-মিলনে ।\
 > কৃষ্ণভক্তি রসরূপে পায় পরিণামে ॥৪৭॥
 
-> premādika sthāyi-bhāva sāmagrī-milane
+> premādika sthāyi-bhāva sāmagrī-milane\
 > kṛṣṇa-bhakti rasa-rūpe pāya pariṇāme
 
 *prema-ādika*—love of Godhead, beginning with *śānta, dāsya* and so on; *sthāyi-bhāva*—the permanent ecstasies; *sāmagrī-milane*—by mixing with other ingredients; *kṛṣṇa-bhakti*—devotional service to Lord Kṛṣṇa; *rasa-rūpe*—composed of transcendental mellows; *pāya*—becomes; *pariṇāme*—by transformation.

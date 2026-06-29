@@ -1,11 +1,11 @@
 ### SB 3.1.33
 
-> कच्चिच्छिवं देवकभोजपुत्र्या विष्णुप्रजाया इव देवमातुः ।
+> कच्चिच्छिवं देवकभोजपुत्र्या विष्णुप्रजाया इव देवमातुः ।\
 > या वै स्वगर्भेण दधार देवं त्रयी यथा यज्ञवितानमर्थम् ॥३३॥
 
-> kaccic chivaṁ devaka-bhoja-putryā
-> viṣṇu-prajāyā iva deva-mātuḥ
-> yā vai sva-garbheṇa dadhāra devaṁ
+> kaccic chivaṁ devaka-bhoja-putryā\
+> viṣṇu-prajāyā iva deva-mātuḥ\
+> yā vai sva-garbheṇa dadhāra devaṁ\
 > trayī yathā yajña-vitānam artham
 
 *kaccit*—si; *śivam*—todo bien; *devaka-bhoja-putryāḥ*—de la hija del rey Devaka-bhoja; *viṣṇu-prajāyāḥ*—de aquella que dio a luz a la Personalidad de Dios; *iva*—como aquella de; *deva-mātuḥ*—de la madre de los semidioses (Aditi); *yā*—aquella que; *vai*—en verdad; *sva-garbheṇa*—por su propio vientre; *dadhāra*—concibió; *devam*—el Señor Supremo; *trayī*—los *Vedas*; *yathā*—tanto como; *yajña-vitānam*—de extender el sacrificio; *artham*—propósito.

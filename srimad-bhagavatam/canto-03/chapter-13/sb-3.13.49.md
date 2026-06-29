@@ -1,11 +1,11 @@
 ### SB 3.13.49
 
-> तस्मिन्प्रसन्ने सकलाशिषां प्रभौ किं दुर्लभं ताभिरलं लवात्मभिः ।
+> तस्मिन्प्रसन्ने सकलाशिषां प्रभौ किं दुर्लभं ताभिरलं लवात्मभिः ।\
 > अनन्यदृष्ट्या भजतां गुहाशयः स्वयं विधत्ते स्वगतिं परः पराम् ॥४९॥
 
-> tasmin prasanne sakalāśiṣāṁ prabhau
-> kiṁ durlabhaṁ tābhir alaṁ lavātmabhiḥ
-> ananya-dṛṣṭyā bhajatāṁ guhāśayaḥ
+> tasmin prasanne sakalāśiṣāṁ prabhau\
+> kiṁ durlabhaṁ tābhir alaṁ lavātmabhiḥ\
+> ananya-dṛṣṭyā bhajatāṁ guhāśayaḥ\
 > svayaṁ vidhatte sva-gatiṁ paraḥ parām
 
 *tasmin*—unto Him; *prasanne*—being pleased; *sakala-āśiṣām*—of all benediction; *prabhau*—unto the Lord; *kim*—what is that; *durlabham*—very difficult to obtain; *tābhiḥ*—with them; *alam*—away; *lava-ātmabhiḥ*—with insignificant gains; *ananya-dṛṣṭyā*—by nothing but devotional service; *bhajatām*—of those who are engaged in devotional service; *guhā-āśayaḥ*—residing within the heart; *svayam*—personally; *vidhatte*—executes; *sva-gatim*—in His own abode; *paraḥ*—the supreme; *parām*—transcendental.

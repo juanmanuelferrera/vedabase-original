@@ -1,13 +1,13 @@
 ### SB 5.2.14
 
-> योऽसौ त्वया करसरोजहतः पतङ्गो
-> दिक्षु भ्रमन्भ्रमत एजयतेऽक्षिणी मे
-> मुक्तं न ते स्मरसि वक्रजटावरूथं
+> योऽसौ त्वया करसरोजहतः पतङ्गो\
+> दिक्षु भ्रमन्भ्रमत एजयतेऽक्षिणी मे\
+> मुक्तं न ते स्मरसि वक्रजटावरूथं\
 > कष्टोऽनिलो हरति लम्पट एष नीवीम ॥१४॥
 
-> yo 'sau tvayā kara-saroja-hataḥ pataṅgo
-> dikṣu bhraman bhramata ejayate 'kṣiṇī me
-> muktaṁ na te smarasi vakra-jaṭā-varūthaṁ
+> yo 'sau tvayā kara-saroja-hataḥ pataṅgo\
+> dikṣu bhraman bhramata ejayate 'kṣiṇī me\
+> muktaṁ na te smarasi vakra-jaṭā-varūthaṁ\
 > kaṣṭo 'nilo harati lampaṭa eṣa nīvīm
 
 *yaḥ*—que; *asau*—esa; *tvayā*—por ti; *kara-saroja*—con la palma de loto; *hataḥ*—botas; *pataṅgaḥ*—la pelota; *dikṣu*—en todas direcciones; *bhraman*—moviendo; *bhramataḥ*—inquieta; *ejayate*—perturba; *akṣiṇī*—ojos; *me*—de mí; *muktam*—sueltos; *na*—no; *te*—tuyos; *smarasi*—te importa; *vakra*—rizados; *jaṭā*—de cabellos; *varūtham*—mechones; *kaṣṭaḥ*—causando molestias; *anilaḥ*—el viento; *harati*—quita; *lampaṭaḥ*—como un hombre apegado a las mujeres; *eṣaḥ*—esta; *nīvīm*—prenda inferior.

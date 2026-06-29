@@ -1,11 +1,11 @@
 ### SB 3.28.8
 
-> शुचौ देशे प्रतिष्ठाप्य विजितासन आसनम् ।
+> शुचौ देशे प्रतिष्ठाप्य विजितासन आसनम् ।\
 > तस्मिन्स्वस्ति समासीन ऋजुकायः समभ्यसेत् ॥८॥
 
-> śucau deśe pratiṣṭhāpya
-> vijitāsana āsanam
-> tasmin svasti samāsīna
+> śucau deśe pratiṣṭhāpya\
+> vijitāsana āsanam\
+> tasmin svasti samāsīna\
 > ṛju-kāyaḥ samabhyaset
 
 *śucau deśe*—in a sanctified place; *pratiṣṭhāpya*—after placing; *vijita-āsanaḥ*—controlling the sitting postures; *āsanam*—a seat; *tasmin*—in that place; *svasti samāsīnaḥ*—sitting in an easy posture; *ṛju-kāyaḥ*—keeping the body erect; *samabhyaset*—one should practice.

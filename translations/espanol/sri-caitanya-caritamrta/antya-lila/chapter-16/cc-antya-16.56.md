@@ -1,9 +1,9 @@
 ### CC Antya 16.56
 
-> মহাপ্রভুর ইঙ্গিত গোবিন্দ সব জানে ।
+> মহাপ্রভুর ইঙ্গিত গোবিন্দ সব জানে ।\
 > কালিদাসেরে দিল প্রভুর শেষপাত্র-দানে ॥৫৬॥
 
-> mahāprabhura iṅgita govinda saba jāne
+> mahāprabhura iṅgita govinda saba jāne\
 > kālidāsere dila prabhura śeṣa-pātra-dāne
 
 *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *iṅgita*—indicaciones; *govinda*—Su sirviente personal; *saba*—todas; *jāne*—conoce; *kālidāsere*—a Kālidāsa; *dila*—entregó; *prabhura*—de Śrī Caitanya Mahāprabhu; *śeṣa-pātra*—los restos de comida; *dāne*—como obsequio.

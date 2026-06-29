@@ -1,9 +1,9 @@
 ### CC Madhya 18.126
 
-> এইত’ মহিমা — তোমার ‘তটস্থ’-লক্ষণ ।
+> এইত’ মহিমা — তোমার ‘তটস্থ’-লক্ষণ ।\
 > ‘স্বরূপ’-লক্ষণে তুমি — ‘ব্রজেন্দ্রনন্দন’ ॥১২৬॥
 
-> eita' mahimā—tomāra 'taṭastha'-lakṣaṇa
+> eita' mahimā—tomāra 'taṭastha'-lakṣaṇa\
 > 'svarūpa'-lakṣaṇe tumi—'vrajendra-nandana'
 
 *eita'*—all these; *mahimā*—glories; *tomāra*—Your; *taṭastha-lakṣaṇa*—marginal characteristics; *sva-rūpa*—original; *lakṣaṇe*—by characteristics; *tumi*—You; *vrajendra-nandana*—the son of Mahārāja Nanda.

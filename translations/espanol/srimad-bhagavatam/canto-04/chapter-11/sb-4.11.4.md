@@ -1,11 +1,11 @@
 ### SB 4.11.4
 
-> तैस्तिग्मधारैः प्रधने शिलीमुखैरितस्ततः पुण्यजना उपद्रुताः ।
+> तैस्तिग्मधारैः प्रधने शिलीमुखैरितस्ततः पुण्यजना उपद्रुताः ।\
 > तमभ्यधावन्कुपिता उदायुधाः सुपर्णमुन्नद्धफणा इवाहयः ॥४॥
 
-> tais tigma-dhāraiḥ pradhane śilī-mukhair
-> itas tataḥ puṇya-janā upadrutāḥ
-> tam abhyadhāvan kupitā udāyudhāḥ
+> tais tigma-dhāraiḥ pradhane śilī-mukhair\
+> itas tataḥ puṇya-janā upadrutāḥ\
+> tam abhyadhāvan kupitā udāyudhāḥ\
 > suparṇam unnaddha-phaṇā ivāhayaḥ
 
 *taiḥ*—por aquellas; *tigma-dhāraiḥ*—que tenían una punta afilada; *pradhane*—en el campo de batalla; *śilī-mukhaiḥ*—flechas; *itaḥ tataḥ*—aquí y allá; *puṇya-janāḥ*—los *yakṣas*; *upadrutāḥ*—muy agitados; *tam*—hacia Dhruva Mahārāja; *abhyadhāvan*—se lanzaron; *kupitāḥ*—iracundos; *udāyudhāḥ*—con las armas levantadas; *suparṇam*—hacia Garuḍa; *unnaddha-phaṇāḥ*—con las capuchas levantadas; *iva*—como; *ahayaḥ*—serpientes.

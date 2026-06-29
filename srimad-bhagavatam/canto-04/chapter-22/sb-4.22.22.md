@@ -1,11 +1,11 @@
 ### SB 4.22.22
 
-> सा श्रद्धया भगवद्धर्मचर्यया जिज्ञासयाध्यात्मिकयोगनिष्ठया ।
+> सा श्रद्धया भगवद्धर्मचर्यया जिज्ञासयाध्यात्मिकयोगनिष्ठया ।\
 > योगेश्वरोपासनया च नित्यं पुण्यश्रवःकथया पुण्यया च ॥२२॥
 
-> sā śraddhayā bhagavad-dharma-caryayā
-> jijñāsayādhyātmika-yoga-niṣṭhayā
-> yogeśvaropāsanayā ca nityaṁ
+> sā śraddhayā bhagavad-dharma-caryayā\
+> jijñāsayādhyātmika-yoga-niṣṭhayā\
+> yogeśvaropāsanayā ca nityaṁ\
 > puṇya-śravaḥ-kathayā puṇyayā ca
 
 *sā*—that devotional service; *śraddhayā*—with faith and conviction; *bhagavat-dharma*—devotional service; *caryayā*—by discussion; *jijñāsayā*—by inquiry; *adhyātmika*—spiritual; *yoga-niṣṭhayā*—by conviction in spiritual understanding; *yoga-īśvara*—the Supreme Personality of Godhead; *upāsanayā*—by worship of Him; *ca*—and; *nityam*—regularly; *puṇya-śravaḥ*—by hearing which; *kathayā*—by discussion; *puṇyayā*—by pious; *ca*—also.

@@ -1,11 +1,11 @@
 ### SB 1.11.33
 
-> यद्यप्यसौ पार्श्वगतो रहोगतस्तथापि तस्याङ्घ्रियुगं नवं नवम् ।
+> यद्यप्यसौ पार्श्वगतो रहोगतस्तथापि तस्याङ्घ्रियुगं नवं नवम् ।\
 > पदे पदे का विरमेत तत्पदाच्चलापि यच्छ्रीर्न जहाति कर्हिचित् ॥३३॥
 
-> yadyapy asau pārśva-gato raho-gatas
-> tathāpi tasyāṅghri-yugaṁ navaṁ navam
-> pade pade kā virameta tat-padāc
+> yadyapy asau pārśva-gato raho-gatas\
+> tathāpi tasyāṅghri-yugaṁ navaṁ navam\
+> pade pade kā virameta tat-padāc\
 > calāpi yac chrīr na jahāti karhicit
 
 *yadi*—although; *api*—certainly; *asau*—He (Lord Śrī Kṛṣṇa); *pārśva-gataḥ*—just by the side; *rahaḥ-gataḥ*—exclusively alone; *tathāpi*—still; *tasya*—His; *aṅghri-yugam*—the feet of the Lord; *navam navam*—newer and newer; *pade*—step; *pade*—in every step; *kā*—who; *virameta*—can be detached from; *tat-padāt*—from His feet; *calāpi*—moving; *yat*—whom; *śrīḥ*—the goddess of fortune; *na*—never; *jahāti*—quits; *karhicit*—at any time.

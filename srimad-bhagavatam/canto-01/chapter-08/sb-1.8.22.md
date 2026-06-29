@@ -1,11 +1,11 @@
 ### SB 1.8.22
 
-> नमः पङ्कजनाभाय नमः पङ्कजमालिने ।
+> नमः पङ्कजनाभाय नमः पङ्कजमालिने ।\
 > नमः पङ्कजनेत्राय नमस्ते पङ्कजाङ्घ्रये ॥२२॥
 
-> namaḥ paṅkaja-nābhāya
-> namaḥ paṅkaja-māline
-> namaḥ paṅkaja-netrāya
+> namaḥ paṅkaja-nābhāya\
+> namaḥ paṅkaja-māline\
+> namaḥ paṅkaja-netrāya\
 > namas te paṅkajāṅghraye
 
 *namaḥ*—all respectful obeisances; *paṅkaja-nābhāya*—unto the Lord who has a specific depression resembling a lotus flower in the center of His abdomen; *namaḥ*—obeisances; *paṅkaja-māline*—one who is always decorated with a garland of lotus flowers; *namaḥ*—obeisances; *paṅkaja-netrāya*—one whose glance is as cooling as a lotus flower; *namaḥ te*—respectful obeisances unto You; *paṅkaja-aṅghraye*—unto You, the soles of whose feet are engraved with lotus flowers (and who are therefore said to possess lotus feet).

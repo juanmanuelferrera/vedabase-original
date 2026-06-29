@@ -1,9 +1,9 @@
 ### CC Antya 2.115
 
-> তিনদিন হৈল হরিদাস করে উপবাস  ।
+> তিনদিন হৈল হরিদাস করে উপবাস  ।\
 > স্বরূপাদি আসি, পুছিলা মহাপ্রভুর পাশ ॥১১৫॥
 
-> tina-dina haila haridāsa kare upavāsa
+> tina-dina haila haridāsa kare upavāsa\
 > svarūpādi āsi, puchilā mahāprabhura pāśa
 
 *tina-dina haila*—for three days; *haridāsa*—junior Haridāsa; *kare upavāsa*—was fasting; *svarūpa-ādi*—Svarūpa Dāmodara and other confidential devotees; *āsi*—coming; *puchilā*—inquired; *mahāprabhura pāśa*—from Śrī Caitanya Mahāprabhu.

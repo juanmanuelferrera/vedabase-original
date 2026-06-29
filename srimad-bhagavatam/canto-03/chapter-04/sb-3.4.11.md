@@ -1,13 +1,13 @@
 ### SB 3.4.11
 
-> श्रीभगवानुवाच
-> वेदाहमन्तर्मनसीप्सितं ते ददामि यत्तद्दुरवापमन्यैः ।
+> श्रीभगवानुवाच\
+> वेदाहमन्तर्मनसीप्सितं ते ददामि यत्तद्दुरवापमन्यैः ।\
 > सत्रे पुरा विश्वसृजां वसूनां मत्सिद्धिकामेन वसो त्वयेष्टः ॥११॥
 
-> śrī-bhagavān uvāca
-> vedāham antar manasīpsitaṁ te
-> dadāmi yat tad duravāpam anyaiḥ
-> satre purā viśva-sṛjāṁ vasūnāṁ
+> śrī-bhagavān uvāca\
+> vedāham antar manasīpsitaṁ te\
+> dadāmi yat tad duravāpam anyaiḥ\
+> satre purā viśva-sṛjāṁ vasūnāṁ\
 > mat-siddhi-kāmena vaso tvayeṣṭaḥ
 
 *śrī-bhagavān uvāca*—the Personality of Godhead said; *veda*—know; *aham*—I; *antaḥ*—within; *manasi*—the mind; *īpsitam*—what you desired; *te*—your; *dadāmi*—I give you; *yat*—which is; *tat*—that; *duravāpam*—very difficult to achieve; *anyaiḥ*—by others; *satre*—in the sacrifice; *purā*—in the days of yore; *viśva-sṛjām*—of those who expanded this creation; *vasūnām*—of the Vasus; *mat-siddhi-kāmena*—with a desire to achieve My association; *vaso*—O Vasu; *tvayā*—by you; *iṣṭaḥ*—ultimate goal of life.

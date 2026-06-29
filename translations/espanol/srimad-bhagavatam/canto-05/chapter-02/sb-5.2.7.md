@@ -1,13 +1,13 @@
 ### SB 5.2.7
 
-> का त्वं चिकीर्षसि च किं मुनिवर्य शैले
-> मायासि कापि भगवत्परदेवतायाः
-> विज्ये बिभर्षि धनुषी सुहृदात्मनोऽर्थे
+> का त्वं चिकीर्षसि च किं मुनिवर्य शैले\
+> मायासि कापि भगवत्परदेवतायाः\
+> विज्ये बिभर्षि धनुषी सुहृदात्मनोऽर्थे\
 > किं वा मृगान्मृगयसे विपिने प्रमत्तान ॥७॥
 
-> kā tvaṁ cikīrṣasi ca kiṁ muni-varya śaile
-> māyāsi kāpi bhagavat-para-devatāyāḥ
-> vijye bibharṣi dhanuṣī suhṛd-ātmano 'rthe
+> kā tvaṁ cikīrṣasi ca kiṁ muni-varya śaile\
+> māyāsi kāpi bhagavat-para-devatāyāḥ\
+> vijye bibharṣi dhanuṣī suhṛd-ātmano 'rthe\
 > kiṁ vā mṛgān mṛgayase vipine pramattān
 
 *kā*—quién; *tvam*—eres tú; *cikīrṣasi*—estás tratando de hacer; *ca*—también; *kim*—qué; *muni-varya*—¡oh, tú, el mejor de los*munis*!; *śaile*—en esta montaña; *māyā*—potencia ilusoria; *asi*—eres tú; *kāpi*—alguna; *bhagavat*—la Suprema Personalidad de Dios; *para-devatāyāḥ*—del Señor trascendental; *vijye*—sin cuerda; *bibharṣi*—llevas; *dhanuṣī*—dos arcos; *suhṛt*—de un amigo; *ātmanaḥ*—de ti mismo; *arthe*—para; *kim vā*—o; *mṛgān*—animales salvajes; *mṛgayase*—tratas de cazar; *vipine*—en este bosque; *pramattān*—materialmente enloquecidos.

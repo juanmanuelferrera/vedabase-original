@@ -1,18 +1,18 @@
 ### SB 4.1.54-55
 
-> दिव्यवाद्यन्त तूर्याणि पेतुः कुसुमवृष्टयः ।
-> मुनयस्तुष्टुवुस्तुष्टा जगुर्गन्धर्वकिन्नराः ॥५४॥
-> नृत्यन्ति स्म स्त्रियो देव्य आसीत्परममङ्गलम् ।
+> दिव्यवाद्यन्त तूर्याणि पेतुः कुसुमवृष्टयः ।\
+> मुनयस्तुष्टुवुस्तुष्टा जगुर्गन्धर्वकिन्नराः ॥५४॥\
+> नृत्यन्ति स्म स्त्रियो देव्य आसीत्परममङ्गलम् ।\
 > देवा ब्रह्मादयः सर्वे उपतस्थुरभिष्टवैः ॥५५॥
 
-> divy avādyanta tūryāṇi
-> petuḥ kusuma-vṛṣṭayaḥ
-> munayas tuṣṭuvus tuṣṭā
+> divy avādyanta tūryāṇi\
+> petuḥ kusuma-vṛṣṭayaḥ\
+> munayas tuṣṭuvus tuṣṭā\
 > jagur gandharva-kinnarāḥ
 
-> nṛtyanti sma striyo devya
-> āsīt parama-maṅgalam
-> devā brahmādayaḥ sarve
+> nṛtyanti sma striyo devya\
+> āsīt parama-maṅgalam\
+> devā brahmādayaḥ sarve\
 > upatasthur abhiṣṭavaiḥ
 
 *divi*—in the heavenly planets; *avādyanta*—vibrated; *tūryāṇi*—a band of instruments; *petuḥ*—they showered; *kusuma*—of flowers; *vṛṣṭayaḥ*—showers; *munayaḥ*—the sages; *tuṣṭuvuḥ*—chanted Vedic prayers; *tuṣṭāḥ*—pacified; *jaguḥ*—began to sing; *gandharva*—the Gandharvas; *kinnarāḥ*—the Kinnaras; *nṛtyanti sma*—danced; *striyaḥ*—the beautiful damsels; *devyaḥ*—of the heavenly planets; *āsīt*—were visible; *parama-maṅgalam*—the highest good fortune; *devāḥ*—the demigods; *brahma-ādayaḥ*—Brahmā and others; *sarve*—all; *upatasthuḥ*—worshiped; *abhiṣṭavaiḥ*—with respectful prayers.

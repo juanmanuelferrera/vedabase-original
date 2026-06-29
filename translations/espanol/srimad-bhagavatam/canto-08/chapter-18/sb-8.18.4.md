@@ -1,11 +1,11 @@
 ### SB 8.18.4
 
-> दिशः प्रसेदुः सलिलाशयास्तदा प्रजाः प्रहृष्टा ऋतवो गुणान्विताः
+> दिशः प्रसेदुः सलिलाशयास्तदा प्रजाः प्रहृष्टा ऋतवो गुणान्विताः\
 > द्यौरन्तरीक्षं क्षितिरग्निजिह्वा गावो द्विजाः सञ्जहृषुर्नगाश्च ॥४॥
 
-> diśaḥ praseduḥ salilāśayās tadā
-> prajāḥ prahṛṣṭā ṛtavo guṇānvitāḥ
-> dyaur antarīkṣaṁ kṣitir agni-jihvā
+> diśaḥ praseduḥ salilāśayās tadā\
+> prajāḥ prahṛṣṭā ṛtavo guṇānvitāḥ\
+> dyaur antarīkṣaṁ kṣitir agni-jihvā\
 > gāvo dvijāḥ sañjahṛṣur nagāś ca
 
 *diśaḥ*—todas las direcciones; *praseduḥ*—fueron felices; *salila*—de agua; *āśayāḥ*—los receptáculos; *tadā*—en ese momento; *prajāḥ*—todas las entidades vivientes; *prahṛṣṭāḥ*—muy felices; *ṛtavaḥ*—las estaciones; *guṇa-anvitāḥ*—en la plenitud de sus respectivas cualidades; *dyauḥ*—el sistema planetario superior; *antarīkṣam*—espacio exterior; *kṣitiḥ*—la superficie de la Tierra; *agni-jihvāḥ*—los semidioses; *gāvaḥ*—las vacas; *dvijāḥ*—los *brāhmaṇas*; *sañjahṛṣuḥ*—todos se llenaron de felicidad; *nagāḥ ca*—y las montañas.

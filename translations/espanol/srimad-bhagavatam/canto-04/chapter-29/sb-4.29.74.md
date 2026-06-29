@@ -1,11 +1,11 @@
 ### SB 4.29.74
 
-> एवं पञ्चविधं लिङ्गं त्रिवृत्षोडश विस्तृतम् ।
+> एवं पञ्चविधं लिङ्गं त्रिवृत्षोडश विस्तृतम् ।\
 > एष चेतनया युक्तो जीव इत्यभिधीयते ॥७४॥
 
-> evaṁ pañca-vidhaṁ liṅgaṁ
-> tri-vṛt ṣoḍaśa vistṛtam
-> eṣa cetanayā yukto
+> evaṁ pañca-vidhaṁ liṅgaṁ\
+> tri-vṛt ṣoḍaśa vistṛtam\
+> eṣa cetanayā yukto\
 > jīva ity abhidhīyate
 
 *evam*—así; *pañca-vidham*—los cinco objetos de los sentidos; *liṅgam*—el cuerpo sutil; *tri-vṛt*—bajo la influencia de las tres modalidades; *ṣoḍaśa*—dieciséis; *vistṛtam*—expandidos; *eṣaḥ*—esto; *cetanayā*—con la entidad viviente; *yuktaḥ*—en combinación; *jīvaḥ*—el alma condicionada; *iti*—así; *abhidhīyate*—se entiende.

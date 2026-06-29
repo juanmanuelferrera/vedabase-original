@@ -1,9 +1,9 @@
 ### CC Madhya 25.205
 
-> আপনে রহে এক পৈসার চানা চাবাইয়া ।
+> আপনে রহে এক পৈসার চানা চাবাইয়া ।\
 > আর পৈসা বাণিয়া-স্থানে রাখেন ধরিয়া ॥২০৫॥
 
-> āpane rahe eka paisāra cānā cābāiyā
+> āpane rahe eka paisāra cānā cābāiyā\
 > āra paisā bāṇiyā-sthāne rākhena dhariyā
 
 *āpane*—personalmente; *rahe*—vive; *eka paisāra*—del valor de una paisa; *cānā*—garbanzos tostados; *cābāiyā*—masticando; *āra*—el resto; *paisā*—cuatro o cinco paisas; *bāṇiyā-sthāne*—bajo la custodia de un mercader; *rākhena*—guarda; *dhariyā*—depositando.

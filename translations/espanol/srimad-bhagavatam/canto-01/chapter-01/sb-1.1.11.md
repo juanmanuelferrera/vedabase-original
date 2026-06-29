@@ -1,14 +1,14 @@
 ### SB 1.1.11
 
-> भूरीणि भूरिकर्माणि श्रोतव्यानि विभागशः ।
-> अतः साधोऽत्र यत्सारं समुद्धृत्य मनीषया ।
+> भूरीणि भूरिकर्माणि श्रोतव्यानि विभागशः ।\
+> अतः साधोऽत्र यत्सारं समुद्धृत्य मनीषया ।\
 > ब्रूहि भद्राय भूतानां येनात्मा सुप्रसीदति ॥११॥
 
-> bhūrīṇi bhūri-karmāṇi
-> śrotavyāni vibhāgaśaḥ
-> ataḥ sādho 'tra yat sāraṁ
-> samuddhṛtya manīṣayā
-> brūhi bhadrāya bhūtānāṁ
+> bhūrīṇi bhūri-karmāṇi\
+> śrotavyāni vibhāgaśaḥ\
+> ataḥ sādho 'tra yat sāraṁ\
+> samuddhṛtya manīṣayā\
+> brūhi bhadrāya bhūtānāṁ\
 > yenātmā suprasīdati
 
 *bhūrīṇi*—variados; *bhūri*—muchos; *karmāṇi*—deberes; *śrotavyāni*—que han de aprenderse; *vibhāgaśaḥ*—mediante las divisiones de un tema; *ataḥ*—por consiguiente; *sādho*—¡oh, sabio!; *atra*—aquí; *yat*—todo lo que; *sāram*—esencia; *samuddhṛtya*—seleccionando; *manīṣayā*—lo mejor que conozcas; *brūhi*—por favor, dinos; *bhadrāya*—por el bien de; *bhūtānām*—los seres vivientes; *yena*—mediante lo cual; *ātmā*—el ser; *suprasīdati*—queda plenamente satisfecho.

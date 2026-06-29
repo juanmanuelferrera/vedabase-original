@@ -1,11 +1,11 @@
 ### SB 1.12.25
 
-> हृत्या बलिसमः कृष्णे प्रह्राद इव सद्ग्रहः ।
+> हृत्या बलिसमः कृष्णे प्रह्राद इव सद्ग्रहः ।\
 > आहर्तैषोऽश्वमेधानां वृद्धानां पर्युपासकः ॥२५॥
 
-> dhṛtyā bali-samaḥ kṛṣṇe
-> prahrāda iva sad-grahaḥ
-> āhartaiṣo 'śvamedhānāṁ
+> dhṛtyā bali-samaḥ kṛṣṇe\
+> prahrāda iva sad-grahaḥ\
+> āhartaiṣo 'śvamedhānāṁ\
 > vṛddhānāṁ paryupāsakaḥ
 
 *dhṛtyā*—by patience; *bali-samaḥ*—like Bali Mahārāja; *kṛṣṇe*—unto Lord Śrī Kṛṣṇa; *prahrāda*—Prahlāda Mahārāja; *iva*—like; *sat-grahaḥ*—devotee of; *āhartā*—performer; *eṣaḥ*—this child; *aśvamedhānām*—of Aśvamedha sacrifices; *vṛddhānām*—of the old and experienced men; *paryupāsakaḥ*—follower.

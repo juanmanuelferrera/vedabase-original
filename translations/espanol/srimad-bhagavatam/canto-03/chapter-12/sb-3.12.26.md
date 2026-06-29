@@ -1,11 +1,11 @@
 ### SB 3.12.26
 
-> हृदि कामो भ्रुवः क्रोधो लोभश्चाधरदच्छदात् ।
+> हृदि कामो भ्रुवः क्रोधो लोभश्चाधरदच्छदात् ।\
 > आस्याद्वाक्सिन्धवो मेढ्रान्निरृतिः पायोरघाश्रयः ॥२६॥
 
-> hṛdi kāmo bhruvaḥ krodho
-> lobhaś cādhara-dacchadāt
-> āsyād vāk sindhavo meḍhrān
+> hṛdi kāmo bhruvaḥ krodho\
+> lobhaś cādhara-dacchadāt\
+> āsyād vāk sindhavo meḍhrān\
 > nirṛtiḥ pāyor aghāśrayaḥ
 
 *hṛdi*—del corazón; *kāmaḥ*—la lujuria; *bhruvaḥ*—de las cejas; *krodhaḥ*—la ira; *lobhaḥ*—la codicia; *ca*—también; *adhara-dacchadāt*—de entre los labios; *āsyāt*—de la boca; *vāk*—el habla; *sindhavaḥ*—los mares; *meḍhrāt*—del pene; *nirṛtiḥ*—actividades bajas; *pāyoḥ*—del ano; *agha-āśrayaḥ*—el receptáculo de todos los vicios.

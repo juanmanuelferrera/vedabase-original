@@ -1,11 +1,11 @@
 ### SB 9.11.17
 
-> स्त्रीपुंप्रसङ्ग एतादृक्सर्वत्र त्रासमावहः
+> स्त्रीपुंप्रसङ्ग एतादृक्सर्वत्र त्रासमावहः\
 > अपीश्वराणां किमुत ग्राम्यस्य गृहचेतसः ॥१७॥
 
-> strī-puṁ-prasaṅga etādṛk
-> sarvatra trāsam-āvahaḥ
-> apīśvarāṇāṁ kim uta
+> strī-puṁ-prasaṅga etādṛk\
+> sarvatra trāsam-āvahaḥ\
+> apīśvarāṇāṁ kim uta\
 > grāmyasya gṛha-cetasaḥ
 
 *strī-pum-prasaṅgaḥ*—attraction between husband and wife, or man and woman; *etādṛk*—like this; *sarvatra*—everywhere; *trāsam-āvahaḥ*—the cause of fear; *api*—even; *īśvarāṇām*—of controllers; *kim uta*—and what to speak of; *grāmyasya*—of ordinary men of this material world; *gṛha-cetasaḥ*—who are attached to materialistic household life.

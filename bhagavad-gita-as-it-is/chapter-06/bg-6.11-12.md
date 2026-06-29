@@ -1,18 +1,18 @@
 ### Bg 6.11-12
 
-> शुचौ देशे प्रतिष्ठाप्य स्थिरमासनमात्मनः ।
-> नात्युच्छ्रितं नातिनीचं चैलाजिनकुशोत्तरम् ॥११॥
-> तत्रैकाग्रं मनः कृत्वा यतचित्तेन्द्रियक्रियः ।
+> शुचौ देशे प्रतिष्ठाप्य स्थिरमासनमात्मनः ।\
+> नात्युच्छ्रितं नातिनीचं चैलाजिनकुशोत्तरम् ॥११॥\
+> तत्रैकाग्रं मनः कृत्वा यतचित्तेन्द्रियक्रियः ।\
 > उपविश्यासने युञ्ज्याद्योगमात्मविशुद्धये ॥१२॥
 
-> śucau deśe pratiṣṭhāpya
-> sthiram āsanam ātmanaḥ
-> nāty-ucchritaṁ nāti-nīcaṁ
+> śucau deśe pratiṣṭhāpya\
+> sthiram āsanam ātmanaḥ\
+> nāty-ucchritaṁ nāti-nīcaṁ\
 > cailājina-kuśottaram
 
-> tatraikāgraṁ manaḥ kṛtvā
-> yata-cittendriya-kriyaḥ
-> upaviśyāsane yuñjyād
+> tatraikāgraṁ manaḥ kṛtvā\
+> yata-cittendriya-kriyaḥ\
+> upaviśyāsane yuñjyād\
 > yogam ātma-viśuddhaye
 
 *śucau*—in sanctified; *deśe*—in the land; *pratiṣṭhāpya*—placing; *sthiram*—firm; *āsanam*—seat; *ātmanaḥ*—self-dependent; *na*—not; *ati*—too; *ucchritam*—high; *na*—nor; *ati*—too; *nīcam*—low; *caila-ajna*—soft cloth and deerskin; *kuśottaram*—kuśa grass; *tatra*—thereupon; *ekāgram*—one attention; *manaḥ*—mind; *kṛtvā*—doing so; *yata-citta*—controlling the mind; *indriya*—senses; *kriyaḥ*—activities; *upaviśya*—sitting on; *āsane*—on the seat; *yuñjyāt*—execute; *yogam*—yoga practice; *ātma*—heart; *viśuddhaye*—for clarifying.

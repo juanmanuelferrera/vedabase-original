@@ -1,11 +1,11 @@
 ### SB 3.25.26
 
-> भक्त्या पुमान्जातविराग ऐन्द्रियाद्दृष्टश्रुतान्मद्रचनानुचिन्तया ।
+> भक्त्या पुमान्जातविराग ऐन्द्रियाद्दृष्टश्रुतान्मद्रचनानुचिन्तया ।\
 > चित्तस्य यत्तो ग्रहणे योगयुक्तो यतिष्यते ऋजुभिर्योगमार्गैः ॥२६॥
 
-> bhaktyā pumāñ jāta-virāga aindriyād
-> dṛṣṭa-śrutān mad-racanānucintayā
-> cittasya yatto grahaṇe yoga-yukto
+> bhaktyā pumāñ jāta-virāga aindriyād\
+> dṛṣṭa-śrutān mad-racanānucintayā\
+> cittasya yatto grahaṇe yoga-yukto\
 > yatiṣyate ṛjubhir yoga-mārgaiḥ
 
 *bhaktyā*—by devotional service; *pumān*—a person; *jāta-virāgaḥ*—having developed distaste; *aindriyāt*—for sense gratification; *dṛṣṭa*—seen (in this world); *śrutāt*—heard (in the next world); *mat-racana*—My activities of creation and so on; *anucintayā*—by constantly thinking about; *cittasya*—of the mind; *yattaḥ*—engaged; *grahaṇe*—in the control; *yoga-yuktaḥ*—situated in devotional service; *yatiṣyate*—will endeavor; *ṛjubhiḥ*—easy; *yoga-mārgaiḥ*—by the processes of mystic power.

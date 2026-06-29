@@ -1,11 +1,11 @@
 ### SB 1.7.15
 
-> माता शिशूनां निधनं सुतानां निशम्य घोरं परितप्यमाना ।
+> माता शिशूनां निधनं सुतानां निशम्य घोरं परितप्यमाना ।\
 > तदारुदद्वाष्पकलाकुलाक्षी तां सान्त्वयन्नाह किरीटमाली ॥१५॥
 
-> mātā śiśūnāṁ nidhanaṁ sutānāṁ
-> niśamya ghoraṁ paritapyamānā
-> tadārudad vāṣpa-kalākulākṣī
+> mātā śiśūnāṁ nidhanaṁ sutānāṁ\
+> niśamya ghoraṁ paritapyamānā\
+> tadārudad vāṣpa-kalākulākṣī\
 > tāṁ sāntvayann āha kirīṭamālī
 
 *mātā*—la madre; *śiśūnām*—de los niños; *nidhanam*—masacre; *sutānām*—de los hijos; *niśamya*—después de oír; *ghoram*—espantosa; *paritapyamānā*—lamentándose; *tadā*—en ese momento; *arudat*—comenzó a llorar; *vāṣpa-kala-ākula-akṣī*—con lágrimas en los ojos; *tām*—a ella; *sāntvayan*—apaciguando; *āha*—dijo; *kirīṭamālī*—Arjuna.

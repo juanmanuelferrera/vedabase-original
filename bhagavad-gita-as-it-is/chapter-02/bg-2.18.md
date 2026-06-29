@@ -1,11 +1,11 @@
 ### Bg 2.18
 
-> अन्तवन्त इमे देहा नित्यस्योक्ताः शरीरिणः ।
+> अन्तवन्त इमे देहा नित्यस्योक्ताः शरीरिणः ।\
 > अनाशिनोऽप्रमेयस्य तस्माद्युध्यस्व भारत ॥१८॥
 
-> antavanta ime dehā
-> nityasyoktāḥ śarīriṇaḥ
-> anāśino 'prameyasya
+> antavanta ime dehā\
+> nityasyoktāḥ śarīriṇaḥ\
+> anāśino 'prameyasya\
 > tasmād yudhyasva bhārata
 
 *antavantaḥ*—perishable; *ime*—all these; *dehāḥ*—material bodies; *nityasya*—eternal in existence; *uktāḥ*—it is so said; *sarīriṇaḥ*—the embodied souls; *anāśinaḥ*—never to be destroyed; *aprameyasya*—immeasurable; *tasmāt*—therefore; *yudhyasva*—fight; *bhārata*—O descendant of Bharata.

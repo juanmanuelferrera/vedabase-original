@@ -1,13 +1,13 @@
 ### 11
 
-> कृष्णस्योच्चैः प्रणयवसतिः प्रेयसीभ्योपि राधा 
-> कुंडम चास्या मुनिभिरभितस्तादृगेव व्याधायि ।
-> यत्प्रेष्ठैरप्यलमसुलभं किं पुनर्भक्तिभाजाम
+> कृष्णस्योच्चैः प्रणयवसतिः प्रेयसीभ्योपि राधा \
+> कुंडम चास्या मुनिभिरभितस्तादृगेव व्याधायि ।\
+> यत्प्रेष्ठैरप्यलमसुलभं किं पुनर्भक्तिभाजाम\
 > तत्प्रेमेदं सकृदपि सरः स्नातुराविष्करोति ॥११॥
 
-> kṛṣṇasyoccaiḥ praṇaya-vasatiḥ preyasībhyo 'pi rādhā
-> kuṇḍaṁ cāsyā munibhir abhitas tādṛg eva vyadhāyi
-> yat preṣṭhair apy alam asulabhaṁ kiṁ punar bhakti-bhājāṁ
+> kṛṣṇasyoccaiḥ praṇaya-vasatiḥ preyasībhyo 'pi rādhā\
+> kuṇḍaṁ cāsyā munibhir abhitas tādṛg eva vyadhāyi\
+> yat preṣṭhair apy alam asulabhaṁ kiṁ punar bhakti-bhājāṁ\
 > tat premedaṁ sakṛd api saraḥ snātur āviṣkaroti
 
 *kṛṣṇasya*—of Lord Śrī Kṛṣṇa; *uccaiḥ*—very highly; *praṇaya-vasatiḥ*—object of love; *preyasībhyaḥ*—out of the many lovable *gopīs*; *api*—certainly; *rādhā*—Śrīmatī Rādhārāṇī; *kuṇḍam*—lake; *ca*—also; *asyāḥ*—of Her; *munibhiḥ*—by great sages; *abhitaḥ*—in all respects; *tādṛk eva*—similarly; *vyadhāyi*—is described; *yat*—which; *preṣṭhaiḥ*—by the most advanced devotees; *api*—even; *alam*—enough; *asulabham*—difficult to obtain; *kim*—what; *punaḥ*—again; *bhakti-bhājām*—for persons engaged in devotional service; *tat*—that; *prema*—love of Godhead; *idam*—this; *sakṛt*—once; *api*—even; *saraḥ*—lake; *snātuḥ*—of one who has bathed; *āviṣkaroti*—arouses.

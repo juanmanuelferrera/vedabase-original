@@ -1,11 +1,11 @@
 ### SB 9.8.23
 
-> ये देहभाजस्त्रिगुणप्रधाना गुणान्विपश्यन्त्युत वा तमश्च
+> ये देहभाजस्त्रिगुणप्रधाना गुणान्विपश्यन्त्युत वा तमश्च\
 > यन्मायया मोहितचेतसस्त्वां विदुः स्वसंस्थं न बहिःप्रकाशाः ॥२३॥
 
-> taṁ tvāṁ ahaṁ jñāna-ghanaṁ svabhāva-
-> pradhvasta-māyā-guṇa-bheda-mohaiḥ
-> sanandanādyair munibhir vibhāvyaṁ
+> taṁ tvāṁ ahaṁ jñāna-ghanaṁ svabhāva-\
+> pradhvasta-māyā-guṇa-bheda-mohaiḥ\
+> sanandanādyair munibhir vibhāvyaṁ\
 > kathaṁ vimūḍhaḥ paribhāvayāmi
 
 *tam*—a esa personalidad; *tvām*—a Ti; *aham*—yo; *jñāna-ghanam*—Tu Señoría, que eres conocimiento concentrado; *svabhāva*—por naturaleza espiritual; *pradhvasta*—libres de contaminación; *māyā-guṇa*—causada por las tres modalidades de la naturaleza material; *bheda-mohaiḥ*—por manifestar la confusión de la diferenciación; *sanandana-ādyaiḥ*—por personalidades de la talla de los cuatro Kumāras (Sanat-kumāra, Sanaka, Sanandana y Sanātana); *munibhiḥ*—por esos grandes sabios; *vibhāvyam*—digno de adoración; *katham*—cómo; *vimūḍhaḥ*—engañado por la naturaleza material; *paribhāvayāmi*—puedo pensar en Ti.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.125
 
-> শিক্ষা লাগি’ স্বরূপে ডাকি’ কহিল তাঁহারে  ।
+> শিক্ষা লাগি’ স্বরূপে ডাকি’ কহিল তাঁহারে  ।\
 > এই দেখ তোমার ‘গৌড়ীয়া’র ব্যবহারে ॥১২৫॥
 
-> śikṣā lāgi' svarūpe ḍāki' kahila tāṅhāre
+> śikṣā lāgi' svarūpe ḍāki' kahila tāṅhāre\
 > ei dekha tomāra 'gauḍīyā'ra vyavahāre
 
 *śikṣā lāgi'*—for instruction; *svarūpe*—unto Svarūpa Dāmodara; *ḍāki'*—calling; *kahila*—said; *tāṅhāre*—unto him; *ei dekha*—just see here; *tomāra*—your; *gauḍīyāra*—of this Vaiṣṇava from Bengal; *vyavahāre*—behavior.

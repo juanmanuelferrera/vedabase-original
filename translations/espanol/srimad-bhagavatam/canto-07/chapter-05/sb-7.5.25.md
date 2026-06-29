@@ -1,11 +1,11 @@
 ### SB 7.5.25
 
-> निशम्यैतत्सुतवचो हिरण्यकशिपुस्तदा
+> निशम्यैतत्सुतवचो हिरण्यकशिपुस्तदा\
 > गुरुपुत्रमुवाचेदं रुषा प्रस्फुरिताधरः ॥२५॥
 
-> niśamyaitat suta-vaco
-> hiraṇyakaśipus tadā
-> guru-putram uvācedaṁ
+> niśamyaitat suta-vaco\
+> hiraṇyakaśipus tadā\
+> guru-putram uvācedaṁ\
 > ruṣā prasphuritādharaḥ
 
 *niśamya*—escuchar; *etat*—estas; *suta-vacaḥ*—palabras de su hijo; *hiraṇyakaśipuḥ*—Hiraṇyakaśipu; *tadā*—en ese momento; *guru-putram*—al hijo de Śukrācārya, su maestro espiritual; *uvāca*—habló; *idam*—esto; *ruṣā*—con ira; *prasphurita*—temblorosos; *adharaḥ*—cuyos labios.

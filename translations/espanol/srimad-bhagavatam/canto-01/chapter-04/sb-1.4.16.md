@@ -1,11 +1,11 @@
 ### SB 1.4.16
 
-> परावरज्ञः स ऋषिः कालेनाव्यक्तरंहसा ।
+> परावरज्ञः स ऋषिः कालेनाव्यक्तरंहसा ।\
 > युगधर्मव्यतिकरं प्राप्तं भुवि युगे युगे ॥१६॥
 
-> parāvara-jñaḥ sa ṛṣiḥ
-> kālenāvyakta-raṁhasā
-> yuga-dharma-vyatikaraṁ
+> parāvara-jñaḥ sa ṛṣiḥ\
+> kālenāvyakta-raṁhasā\
+> yuga-dharma-vyatikaraṁ\
 > prāptaṁ bhuvi yuge yuge
 
 *para-avara*—pasado y futuro; *jñaḥ*—aquel que sabe; *saḥ*—él; *ṛṣiḥ*—Vyāsadeva; *kālena*—en el transcurso del tiempo; *avyakta*—no manifestada; *raṁhasā*—por una gran fuerza; *yuga-dharma*—actos en función del milenio; *vyatikaram*—anomalías; *prāptam*—habiéndose acumulado; *bhuvi*—en la Tierra; *yuge yuge*—diferentes eras.

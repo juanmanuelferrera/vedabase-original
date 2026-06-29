@@ -1,13 +1,13 @@
 ### SB 2.8.27
 
-> सूत उवाच
-> स उपामन्त्रितो राज्ञा कथायामिति सत्पतेः ।
+> सूत उवाच\
+> स उपामन्त्रितो राज्ञा कथायामिति सत्पतेः ।\
 > ब्रह्मरातो भृशं प्रीतो विष्णुरातेन संसदि ॥२७॥
 
-> sūta uvāca
-> sa upāmantrito rājñā
-> kathāyām iti sat-pateḥ
-> brahmarāto bhṛśaṁ prīto
+> sūta uvāca\
+> sa upāmantrito rājñā\
+> kathāyām iti sat-pateḥ\
+> brahmarāto bhṛśaṁ prīto\
 > viṣṇurātena saṁsadi
 
 *sūtaḥ uvāca*—Śrīla Sūta Gosvāmī said; *saḥ*—he (Śukadeva Gosvāmī); *upāmantritaḥ*—thus being inquired; *rājñā*—by the King; *kathāyām*—in the topics; *iti*—thus; *sat-pateḥ*—of the highest truth; *brahma-rātaḥ*—Śukadeva Gosvāmī; *bhṛśam*—very much; *prītaḥ*—pleased; *viṣṇu-rātena*—by Mahārāja Parīkṣit; *saṁsadi*—in the meeting.

@@ -1,9 +1,9 @@
 ### CC Madhya 18.127
 
-> সেই সব লোকে প্রভু প্রসাদ করিল ।
+> সেই সব লোকে প্রভু প্রসাদ করিল ।\
 > কৃষ্ণপ্রেমে মত্ত লোক নিজ-ঘরে গেল ॥১২৭॥
 
-> sei saba loke prabhu prasāda karila
+> sei saba loke prabhu prasāda karila\
 > kṛṣṇa-preme matta loka nija-ghare gela
 
 *sei saba loke*—a todas esas personas; *prabhu*—Śrī Caitanya Mahāprabhu; *prasāda karila*—les otorgó Su misericordia sin causa; *kṛṣṇa-preme*—de amor extático por Kṛṣṇa; *matta*—enloquecidas; *loka*—las personas; *nija-ghare gela*—regresaron a sus hogares.

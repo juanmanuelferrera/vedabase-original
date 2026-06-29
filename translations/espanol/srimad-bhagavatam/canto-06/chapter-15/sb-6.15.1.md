@@ -1,13 +1,13 @@
 ### SB 6.15.1
 
-> श्रीशुक उवाच
-> ऊचतुर्मृतकोपान्ते पतितं मृतकोपमम
+> श्रीशुक उवाच\
+> ऊचतुर्मृतकोपान्ते पतितं मृतकोपमम\
 > शोकाभिभूतं राजानं बोधयन्तौ सदुक्तिभिः ॥१॥
 
-> śrī-śuka uvāca
-> ūcatur mṛtakopānte
-> patitaṁ mṛtakopamam
-> śokābhibhūtaṁ rājānaṁ
+> śrī-śuka uvāca\
+> ūcatur mṛtakopānte\
+> patitaṁ mṛtakopamam\
+> śokābhibhūtaṁ rājānaṁ\
 > bodhayantau sad-uktibhiḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *ūcatuḥ*—hablaron; *mṛtaka*—del cadáver; *upānte*—cerca; *patitam*—caído; *mṛtaka-upamam*—como si fuese otro cadáver; *śoka-abhibhūtam*—muy afligido por la desesperación; *rājānam*—al rey; *bodhayantau*—instruyendo; *sat-uktibhiḥ*—con instrucciones que son reales, no temporales.

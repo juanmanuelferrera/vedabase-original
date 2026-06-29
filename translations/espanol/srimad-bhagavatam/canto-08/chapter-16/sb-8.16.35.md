@@ -1,11 +1,11 @@
 ### SB 8.16.35
 
-> नमो मरकतश्याम वपुषेऽधिगतश्रिये
+> नमो मरकतश्याम वपुषेऽधिगतश्रिये\
 > केशवाय नमस्तुभ्यं नमस्ते पीतवाससे ॥३५॥
 
-> namo marakata-śyāma-
-> vapuṣe 'dhigata-śriye
-> keśavāya namas tubhyaṁ
+> namo marakata-śyāma-\
+> vapuṣe 'dhigata-śriye\
+> keśavāya namas tubhyaṁ\
 > namas te pīta-vāsase
 
 *namaḥ*—yo Te ofrezco respetuosas reverencias; *marakata-śyāma-vapuṣe*—cuyo cuerpo es del color negruzco de la joya*marakata*; *adhigata-śriye*—bajo cuyo control se halla madre Lakṣmī, la diosa de la fortuna; *keśavāya*—el Señor Keśava, que mató al demonio Keśi; *namaḥ tubhyam*—yo Te ofrezco respetuosas reverencias; *namaḥ te*—de nuevo Te ofrezco respetuosas reverencias; *pīta-vāsase*—de ropas amarillas.

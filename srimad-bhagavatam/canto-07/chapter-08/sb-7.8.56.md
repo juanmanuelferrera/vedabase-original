@@ -1,13 +1,13 @@
 ### SB 7.8.56
 
-> श्रीविष्णुपार्षदा ऊचुः
-> अद्यैतद्धरिनररूपमद्भुतं ते दृष्टं नः शरणद सर्वलोकशर्म
+> श्रीविष्णुपार्षदा ऊचुः\
+> अद्यैतद्धरिनररूपमद्भुतं ते दृष्टं नः शरणद सर्वलोकशर्म\
 > सोऽयं ते विधिकर ईश विप्रशप्तस्तस्येदं निधनमनुग्रहाय विद्मः ॥५६॥
 
-> śrī-viṣṇu-pārṣadā ūcuḥ
-> adyaitad dhari-nara-rūpam adbhutaṁ te
-> dṛṣṭaṁ naḥ śaraṇada sarva-loka-śarma
-> so 'yaṁ te vidhikara īśa vipra-śaptas
+> śrī-viṣṇu-pārṣadā ūcuḥ\
+> adyaitad dhari-nara-rūpam adbhutaṁ te\
+> dṛṣṭaṁ naḥ śaraṇada sarva-loka-śarma\
+> so 'yaṁ te vidhikara īśa vipra-śaptas\
 > tasyedaṁ nidhanam anugrahāya vidmaḥ
 
 *śrī-viṣṇu-pārṣadāḥ ūcuḥ*—the associates of Lord Viṣṇu in Vaikuṇṭhaloka said; *adya*—today; *etat*—this; *hari-nara*—of half lion and half human being; *rūpam*—form; *adbhutam*—very wonderful; *te*—Your; *dṛṣṭam*—seen; *naḥ*—of us; *śaraṇa-da*—the everlasting bestower of shelter; *sarva-loka-śarma*—which brings good fortune to all the various planets; *saḥ*—he; *ayam*—this; *te*—of Your Lordship; *vidhikaraḥ*—order carrier (servant); *īśa*—O Lord; *vipra-śaptaḥ*—being cursed by the *brāhmaṇas*; *tasya*—of him; *idam*—this; *nidhanam*—killing; *anugrahāya*—for the special favor; *vidmaḥ*—we understand.

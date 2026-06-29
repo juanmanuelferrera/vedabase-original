@@ -1,13 +1,13 @@
 ### SB 1.17.35
 
-> सूत उवाच
-> परीक्षितैवमादिष्टः स कलिर्जातवेपथुः ।
+> सूत उवाच\
+> परीक्षितैवमादिष्टः स कलिर्जातवेपथुः ।\
 > तमुद्यतासिमाहेदं दण्डपाणिमिवोद्यतम् ॥३५॥
 
-> sūta uvāca
-> parīkṣitaivam ādiṣṭaḥ
-> sa kalir jāta-vepathuḥ
-> tam udyatāsim āhedaṁ
+> sūta uvāca\
+> parīkṣitaivam ādiṣṭaḥ\
+> sa kalir jāta-vepathuḥ\
+> tam udyatāsim āhedaṁ\
 > daṇḍa-pāṇim ivodyatam
 
 *sūtaḥ uvāca*—Śrī Sūta Gosvāmī said; *parīkṣitā*—by Mahārāja Parīkṣit; *evam*—thus; *ādiṣṭaḥ*—being ordered; *saḥ*—he; *kaliḥ*—the personality of Kali; *jāta*—there was; *vepathuḥ*—trembling; *tam*—him; *udyata*—raised; *asim*—sword; *āha*—said; *idam*—thus; *daṇḍa-pāṇim*—Yamarāja, the personality of death; *iva*—like; *udyatam*—almost ready.

@@ -1,11 +1,11 @@
 ### SB 4.27.9
 
-> पुत्राणां चाभवन्पुत्रा एकैकस्य शतं शतम् ।
+> पुत्राणां चाभवन्पुत्रा एकैकस्य शतं शतम् ।\
 > यैर्वै पौरञ्जनो वंशः पञ्चालेषु समेधितः ॥९॥
 
-> putrāṇāṁ cābhavan putrā
-> ekaikasya śataṁ śatam
-> yair vai paurañjano vaṁśaḥ
+> putrāṇāṁ cābhavan putrā\
+> ekaikasya śataṁ śatam\
+> yair vai paurañjano vaṁśaḥ\
 > pañcāleṣu samedhitaḥ
 
 *putrāṇām*—de los hijos; *ca*—también; *abhavan*—generados; *putrāḥ*—hijos; *eka-ekasya*—de cada uno; *śatam*—cien; *śatam*—cien; *yaiḥ*—por quien; *vai*—ciertamente; *paurañjanaḥ*—del rey Purañjana; *vaṁśaḥ*—familia; *pañcāleṣu*—en la tierra de Pañcāla; *samedhitaḥ*—aumentó mucho.

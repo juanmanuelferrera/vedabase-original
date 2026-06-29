@@ -1,11 +1,11 @@
 ### SB 7.6.24
 
-> तस्मात्सर्वेषु भूतेषु दयां कुरुत सौहृदम
+> तस्मात्सर्वेषु भूतेषु दयां कुरुत सौहृदम\
 > भावमासुरमुन्मुच्य यया तुष्यत्यधोक्षजः ॥२४॥
 
-> tasmāt sarveṣu bhūteṣu
-> dayāṁ kuruta sauhṛdam
-> bhāvam āsuram unmucya
+> tasmāt sarveṣu bhūteṣu\
+> dayāṁ kuruta sauhṛdam\
+> bhāvam āsuram unmucya\
 > yayā tuṣyaty adhokṣajaḥ
 
 *tasmāt*—therefore; *sarveṣu*—to all; *bhūteṣu*—living entities; *dayām*—mercy; *kuruta*—show; *sauhṛdam*—friendliness; *bhāvam*—the attitude; *āsuram*—of the demons (who separate friends and enemies); *unmucya*—giving up; *yayā*—by which; *tuṣyati*—is satisfied; *adhokṣajaḥ*—the Supreme Lord, who is beyond the perception of the senses.

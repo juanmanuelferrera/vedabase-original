@@ -1,9 +1,9 @@
 ### CC Antya 8.79
 
-> তার মধ্যে পূর্ববিধি ‘প্রশংসা’ ছাড়িয়া ।
+> তার মধ্যে পূর্ববিধি ‘প্রশংসা’ ছাড়িয়া ।\
 > পরবিধি ‘নিন্দা’ করে ‘বলিষ্ঠ’ জানিয়া ॥৭৯॥
 
-> tāra madhye pūrva-vidhi 'praśaṁsā' chāḍiyā
+> tāra madhye pūrva-vidhi 'praśaṁsā' chāḍiyā\
 > para-vidhi 'nindā' kare 'baliṣṭha' jāniyā
 
 *tāra madhye*—entre las dos; *pūrva-vidhi*—la primera regla; *praśaṁsā*—elogiar; *chāḍiyā*—abandonando; *para-vidhi*—la otra regla; *nindā*—criticar; *kare*—hace; *baliṣṭha jāniyā*—sabiendo que es más prominente.

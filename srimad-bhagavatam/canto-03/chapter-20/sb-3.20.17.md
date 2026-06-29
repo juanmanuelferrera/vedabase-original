@@ -1,11 +1,11 @@
 ### SB 3.20.17
 
-> सोऽनुविष्टो भगवता यः शेते सलिलाशये ।
+> सोऽनुविष्टो भगवता यः शेते सलिलाशये ।\
 > लोकसंस्थां यथा पूर्वं निर्ममे संस्थया स्वया ॥१७॥
 
-> so 'nuviṣṭo bhagavatā
-> yaḥ śete salilāśaye
-> loka-saṁsthāṁ yathā pūrvaṁ
+> so 'nuviṣṭo bhagavatā\
+> yaḥ śete salilāśaye\
+> loka-saṁsthāṁ yathā pūrvaṁ\
 > nirmame saṁsthayā svayā
 
 *saḥ*—Lord Brahmā; *anuviṣṭaḥ*—was entered; *bhagavatā*—by the Lord; *yaḥ*—who; *śete*—sleeps; *salila-āśaye*—on the Garbhodaka Ocean; *loka-saṁsthām*—the universe; *yathā pūrvam*—as previously; *nirmame*—created; *saṁsthayā*—by intelligence; *svayā*—his own.

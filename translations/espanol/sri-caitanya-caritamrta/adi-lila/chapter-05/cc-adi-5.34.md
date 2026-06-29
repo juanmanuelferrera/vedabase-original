@@ -1,9 +1,9 @@
 ### CC Adi 5.34
 
-> সূর্যমণ্ডল যেন বাহিরে নির্বিশেষ ।
+> সূর্যমণ্ডল যেন বাহিরে নির্বিশেষ ।\
 > ভিতরে সূর্যের রথ-আদি সবিশেষ ॥৩৪॥
 
-> sūrya-maṇḍala yena bāhire nirviśeṣa
+> sūrya-maṇḍala yena bāhire nirviśeṣa\
 > bhitare sūryera ratha-ādi saviśeṣa
 
 *sūrya-maṇḍala*—el globo solar; *yena*—como; *bāhire*—externamente; *nirviśeṣa*—sin variedades; *bhitare*—dentro; *sūryera*—del dios del sol; *ratha-ādi*—opulencias tales como cuadrigas y otros; *sa-viśeṣa*—lleno de variedades.

@@ -1,9 +1,9 @@
 ### CC Madhya 24.279
 
-> নারদ কহে, — ‘বৈষ্ণব, তোমার অন্ন কিছু আয় ?’
+> নারদ কহে, — ‘বৈষ্ণব, তোমার অন্ন কিছু আয় ?’\
 > ব্যাধ কহে, “যারে পাঠাও, সেই দিয়া যায় ॥২৭৯॥
 
-> nārada kahe,--'vaiṣṇava, tomāra anna kichu āya?'
+> nārada kahe,--'vaiṣṇava, tomāra anna kichu āya?'\
 > vyādha kahe, "yāre pāṭhāo, sei diyā yāya
 
 *nārada kahe*—Nārada Muni dijo; *vaiṣṇava*—¡oh, vaiṣṇava!; *tomāra*—tu; *anna*—alimento; *kichu āya*—¿llega algo?; *vyādha kahe*—el cazador respondió; *yāre pāṭhāo*—a quienquiera que tú envíes; *sei*—esa persona; *diyā*—dando algo; *yāya*—se va.

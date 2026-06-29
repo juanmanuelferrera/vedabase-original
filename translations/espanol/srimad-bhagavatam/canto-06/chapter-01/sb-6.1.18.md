@@ -1,11 +1,11 @@
 ### SB 6.1.18
 
-> प्रायश्चित्तानि चीर्णानि नारायणपराङ्मुखम
+> प्रायश्चित्तानि चीर्णानि नारायणपराङ्मुखम\
 > न निष्पुनन्ति राजेन्द्र सुराकुम्भमिवापगाः ॥१८॥
 
-> prāyaścittāni cīrṇāni
-> nārāyaṇa-parāṅmukham
-> na niṣpunanti rājendra
+> prāyaścittāni cīrṇāni\
+> nārāyaṇa-parāṅmukham\
+> na niṣpunanti rājendra\
 > surā-kumbham ivāpagāḥ
 
 *prāyaścittāni*—procesos de expiación; *cīrṇāni*—muy bien realizados; *nārāyaṇa-parāṅmukham*—un no devoto; *na niṣpunanti*—no puede purificarse; *rājendra*—¡oh, rey!; *surā-kumbham*—una vasija de vino; *iva*—como; *āpa-gāḥ*—las aguas de los ríos.

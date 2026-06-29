@@ -1,9 +1,9 @@
 ### CC Adi 5.209
 
-> যে আগে পড়য়ে, তারে করয়ে নিস্তার ।
+> যে আগে পড়য়ে, তারে করয়ে নিস্তার ।\
 > অতএব নিস্তারিলা মো-হেন দুরাচার ॥২০৯॥
 
-> ye āge paḍaye, tāre karaye nistāra
+> ye āge paḍaye, tāre karaye nistāra\
 > ataeva nistārilā mo-hena durācāra
 
 *ye*—quienquiera que; *āge*—delante; *paḍaye*—cae; *tāre*—a él; *karaye*—hace; *nistāra*—liberación; *ataeva*—por lo tanto; *nistārilā*—liberó; *mo*—como yo; *hena*—tal; *durācāra*—persona pecaminosa y caída.

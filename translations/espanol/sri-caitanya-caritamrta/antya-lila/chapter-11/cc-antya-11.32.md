@@ -1,9 +1,9 @@
 ### CC Antya 11.32
 
-> সেই লীলা প্রভু মোরে কভু না দেখাইবা ।
+> সেই লীলা প্রভু মোরে কভু না দেখাইবা ।\
 > আপনার আগে মোর শরীর পাড়িবা ॥৩২॥
 
-> sei līlā prabhu more kabhu nā dekhāibā
+> sei līlā prabhu more kabhu nā dekhāibā\
 > āpanāra āge mora śarīra pāḍibā
 
 *sei līlā*—ese pasatiempo; *prabhu*—mi Señor; *more*—a mí; *kabhu*—jamás; *nā dekhāibā*—no me muestres; *āpanāra āge*—ante Ti; *mora śarīra*—mi cuerpo; *pāḍibā*—déjalo caer.

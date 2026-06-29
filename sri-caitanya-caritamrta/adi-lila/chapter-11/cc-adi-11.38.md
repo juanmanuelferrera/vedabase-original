@@ -1,9 +1,9 @@
 ### CC Adi 11.38
 
-> শ্রীসদাশিব কবিরাজ — বড় মহাশয় ।
+> শ্রীসদাশিব কবিরাজ — বড় মহাশয় ।\
 > শ্রীপুরুষোত্তমদাস — তাঁহার তনয় ॥৩৮॥
 
-> śrī-sadāśiva kavirāja—baḍa mahāśaya
+> śrī-sadāśiva kavirāja—baḍa mahāśaya\
 > śrī-puruṣottama-dāsa—tāṅhāra tanaya
 
 *śrī-sadāśiva kavirāja*—of the name Śrī Sadāśiva Kavirāja; *baḍa*—great; *mahāśaya*—respectable gentleman; *śrī-puruṣottama-dāsa*—of the name Śrī Puruṣottama dāsa; *tāṅhāra tanaya*—his son.

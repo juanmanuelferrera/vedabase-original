@@ -1,11 +1,11 @@
 ### SB 3.9.38
 
-> यच्चकर्थाङ्ग मत्स्तोत्रं मत्कथाभ्युदयाङ्कितम् ।
+> यच्चकर्थाङ्ग मत्स्तोत्रं मत्कथाभ्युदयाङ्कितम् ।\
 > यद्वा तपसि ते निष्ठा स एष मदनुग्रहः ॥३८॥
 
-> yac cakarthāṅga mat-stotraṁ
-> mat-kathābhyudayāṅkitam
-> yad vā tapasi te niṣṭhā
+> yac cakarthāṅga mat-stotraṁ\
+> mat-kathābhyudayāṅkitam\
+> yad vā tapasi te niṣṭhā\
 > sa eṣa mad-anugrahaḥ
 
 *yat*—aquello que; *cakartha*—realizado; *aṅga*—¡oh, Brahmā!; *mat-stotram*—oraciones para Mí; *mat-kathā*—palabras relacionadas con Mis actividades; *abhyudaya-aṅkitam*—enumerando Mis glorias trascendentales; *yat*—o eso; *vā*—o bien; *tapasi*—en penitencia; *te*—tuya; *niṣṭhā*—fe; *saḥ*—esa; *eṣaḥ*—todos estos; *mat*—Mi; *anugrahaḥ*—misericordia sin causa.

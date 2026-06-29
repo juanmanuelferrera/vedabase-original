@@ -1,15 +1,15 @@
 ### SB 4.7.44
 
-> विद्याधरा ऊचुः
-> त्वन्माययार्थमभिपद्य कलेवरेऽस्मिन्
-> कृत्वा ममाहमिति दुर्मतिरुत्पथैः स्वैः ।
-> क्षिप्तोऽप्यसद्विषयलालस आत्ममोहं
+> विद्याधरा ऊचुः\
+> त्वन्माययार्थमभिपद्य कलेवरेऽस्मिन्\
+> कृत्वा ममाहमिति दुर्मतिरुत्पथैः स्वैः ।\
+> क्षिप्तोऽप्यसद्विषयलालस आत्ममोहं\
 > युष्मत्कथामृतनिषेवक उद्व्युदस्येत् ॥४४॥
 
-> vidyādharā ūcuḥ
-> tvan-māyayārtham abhipadya kalevare 'smin
-> kṛtvā mamāham iti durmatir utpathaiḥ svaiḥ
-> kṣipto 'py asad-viṣaya-lālasa ātma-mohaṁ
+> vidyādharā ūcuḥ\
+> tvan-māyayārtham abhipadya kalevare 'smin\
+> kṛtvā mamāham iti durmatir utpathaiḥ svaiḥ\
+> kṣipto 'py asad-viṣaya-lālasa ātma-mohaṁ\
 > yuṣmat-kathāmṛta-niṣevaka udvyudasyet
 
 *vidyādharāḥ*—los *vidyādharas*; *ūcuḥ*—dijeron; *tvat-māyayā*—por Tu potencia externa; *artham*—el cuerpo humano; *abhipadya*—después de obtener; *kalevare*—en el cuerpo; *asmin*—en este; *kṛtvā*—habiéndose identificado erróneamente; *mama*—mío; *aham*—yo; *iti*—de este modo; *durmatiḥ*—la persona ignorante; *utpathaiḥ*—por senderos errados; *svaiḥ*—por sus propias pertenencias; *kṣiptaḥ*—distraído; *api*—incluso; *asat*—temporales; *viṣaya-lālasaḥ*—encontrar felicidad en los objetos de los sentidos; *ātma-moham*—la ilusión de confundir el cuerpo con el ser; *yuṣmat*—Tus; *kathā*—temas; *amṛta*—néctar; *niṣevakaḥ*—saboreando; *ut*—desde una gran distancia; *vyudasyet*—puede liberarse.

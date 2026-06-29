@@ -1,18 +1,18 @@
 ### SB 6.2.9-10
 
-> स्तेनः सुरापो मित्रध्रुग्ब्रह्महा गुरुतल्पगः
-> स्त्रीराजपितृगोहन्ता ये च पातकिनोऽपरे ॥९॥
-> सर्वेषामप्यघवतामिदमेव सुनिष्कृतम
+> स्तेनः सुरापो मित्रध्रुग्ब्रह्महा गुरुतल्पगः\
+> स्त्रीराजपितृगोहन्ता ये च पातकिनोऽपरे ॥९॥\
+> सर्वेषामप्यघवतामिदमेव सुनिष्कृतम\
 > नामव्याहरणं विष्णोर्यतस्तद्विषया मतिः ॥१०॥
 
-> stenaḥ surā-po mitra-dhrug
-> brahma-hā guru-talpa-gaḥ
-> strī-rāja-pitṛ-go-hantā
+> stenaḥ surā-po mitra-dhrug\
+> brahma-hā guru-talpa-gaḥ\
+> strī-rāja-pitṛ-go-hantā\
 > ye ca pātakino 'pare
 
-> sarveṣām apy aghavatām
-> idam eva suniṣkṛtam
-> nāma-vyāharaṇaṁ viṣṇor
+> sarveṣām apy aghavatām\
+> idam eva suniṣkṛtam\
+> nāma-vyāharaṇaṁ viṣṇor\
 > yatas tad-viṣayā matiḥ
 
 *stenaḥ*—aquel que roba; *surā-paḥ*—el borracho; *mitra-dhruk*—el que se vuelve contra su amigo o su familiar; *brahma-hā*—el que mata a un *brāhmaṇa*; *guru-talpa-gaḥ*—el que se entrega a la vida sexual con la esposa de su maestro o *guru*; *strī*—mujeres; *rāja*—rey; *pitṛ*—padre; *go*—de vacas; *hantā*—el que mata; *ye*—aquellos que; *ca*—también; *pātakinaḥ*—actividades pecaminosas cometidas; *apare*—muchos otros; *sarveṣām*—de todos ellos; *api*—aunque; *agha-vatām*—personas que han cometido muchos pecados; *idam*—esta; *eva*—ciertamente; *su-niṣkṛtam*—expiación perfecta; *nāma-vyāharaṇam*—canto del santo nombre; *viṣṇoḥ*—del Señor Viṣṇu; *yataḥ*—por el cual; *tat-viṣayā*—en la persona que canta el santo nombre; *matiḥ*—Su atención.

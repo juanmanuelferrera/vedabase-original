@@ -1,9 +1,9 @@
 ### CC Antya 12.14
 
-> শচীমাতা দেখি’ সবে তাঁর আজ্ঞা লঞা ।
+> শচীমাতা দেখি’ সবে তাঁর আজ্ঞা লঞা ।\
 > আনন্দে চলিলা কৃষ্ণকীর্তন করিয়া ॥১৪॥
 
-> śacīmātā dekhi' sabe tāṅra ājñā lañā
+> śacīmātā dekhi' sabe tāṅra ājñā lañā\
 > ānande calilā kṛṣṇa-kīrtana kariyā
 
 *śacī-mātā dekhi'*—seeing Śacīmātā; *sabe*—all of them; *tāṅra ājñā lañā*—taking her permission; *ānande*—with great jubilation; *calilā*—they proceeded; *kṛṣṇa-kīrtana kariyā*—performing congregational chanting.

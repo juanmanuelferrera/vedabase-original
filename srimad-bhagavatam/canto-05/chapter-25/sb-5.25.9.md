@@ -1,13 +1,13 @@
 ### SB 5.25.9
 
-> उत्पत्तिस्थितिलयहेतवोऽस्य कल्पाः
-> सत्त्वाद्याः प्रकृतिगुणा यदीक्षयासन
-> यद्रूपं ध्रुवमकृतं यदेकमात्मन
+> उत्पत्तिस्थितिलयहेतवोऽस्य कल्पाः\
+> सत्त्वाद्याः प्रकृतिगुणा यदीक्षयासन\
+> यद्रूपं ध्रुवमकृतं यदेकमात्मन\
 > नानाधात्कथमु ह वेद तस्य वर्त्म ॥९॥
 
-> utpatti-sthiti-laya-hetavo 'sya kalpāḥ
-> sattvādyāḥ prakṛti-guṇā yad-īkṣayāsan
-> yad-rūpaṁ dhruvam akṛtaṁ yad ekam ātman
+> utpatti-sthiti-laya-hetavo 'sya kalpāḥ\
+> sattvādyāḥ prakṛti-guṇā yad-īkṣayāsan\
+> yad-rūpaṁ dhruvam akṛtaṁ yad ekam ātman\
 > nānādhāt katham u ha veda tasya vartma
 
 *utpatti*—of creation; *sthiti*—maintenance; *laya*—and dissolution; *hetavaḥ*—the original causes; *asya*—of this material world; *kalpāḥ*—capable of acting; *sattva-ādyāḥ*—headed by the *sattva-guṇa*; *prakṛti-guṇāḥ*—the modes of material nature; *yat*—of whom; *īkṣayā*—by the glance; *āsan*—became; *yat-rūpam*—the form of whom; *dhruvam*—unlimited; *akṛtam*—uncreated; *yat*—who; *ekam*—one; *ātman*—in Himself; *nānā*—variously; *adhāt*—has manifested; *katham*—how; *u ha*—certainly; *veda*—can understand; *tasya*—His; *vartma*—path.

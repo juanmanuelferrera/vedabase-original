@@ -1,11 +1,11 @@
 ### CC Adi 9.42
 
-> এতাবজ্জন্মসাফল্যং দেহিনামিহ দেহিষু ।
+> এতাবজ্জন্মসাফল্যং দেহিনামিহ দেহিষু ।\
 > প্রাণৈরর্থৈর্ধিয়া বাচা শ্রেয় আচরণং সদা ॥৪২॥
 
-> etāvaj janma-sāphalyaṁ
-> dehinām iha dehiṣu
-> prāṇair arthair dhiyā vācā
+> etāvaj janma-sāphalyaṁ\
+> dehinām iha dehiṣu\
+> prāṇair arthair dhiyā vācā\
 > śreya-ācaraṇaṁ sadā
 
 *etāvat*—hasta este punto; *janma*—del nacimiento; *sāphalyam*—perfección; *dehinām*—de toda entidad viviente; *iha*—en este mundo; *dehiṣu*—hacia quienes están encarnados; *prāṇaiḥ*—con la vida; *arthaiḥ*—con la riqueza; *dhiyā*—con la inteligencia; *vācā*—con las palabras; *śreyaḥ*—buena fortuna eterna; *ācaraṇam*—actuar de forma práctica; *sadā*—siempre.

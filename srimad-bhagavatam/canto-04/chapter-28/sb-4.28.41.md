@@ -1,11 +1,11 @@
 ### SB 4.28.41
 
-> साक्षाद्भगवतोक्तेन गुरुणा हरिणा नृप ।
+> साक्षाद्भगवतोक्तेन गुरुणा हरिणा नृप ।\
 > विशुद्धज्ञानदीपेन स्फुरता विश्वतोमुखम् ॥४१॥
 
-> sākṣād bhagavatoktena
-> guruṇā hariṇā nṛpa
-> viśuddha-jñāna-dīpena
+> sākṣād bhagavatoktena\
+> guruṇā hariṇā nṛpa\
+> viśuddha-jñāna-dīpena\
 > sphuratā viśvato-mukham
 
 *sākṣāt*—directly; *bhagavatā*—by the Supreme Personality of Godhead; *uktena*—instructed; *guruṇā*—the spiritual master; *hariṇā*—by Lord Hari; *nṛpa*—O King; *viśuddha*—pure; *jñāna*—knowledge; *dīpena*—by the light of; *sphuratā*—enlightening; *viśvataḥ-mukham*—all angles of vision.

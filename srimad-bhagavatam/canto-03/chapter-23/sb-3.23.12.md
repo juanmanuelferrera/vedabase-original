@@ -1,13 +1,13 @@
 ### SB 3.23.12
 
-> मैत्रेय उवाच
-> प्रियायाः प्रियमन्विच्छन्कर्दमो योगमास्थितः ।
+> मैत्रेय उवाच\
+> प्रियायाः प्रियमन्विच्छन्कर्दमो योगमास्थितः ।\
 > विमानं कामगं क्षत्तस्तर्ह्येवाविरचीकरत् ॥१२॥
 
-> maitreya uvāca
-> priyāyāḥ priyam anvicchan
-> kardamo yogam āsthitaḥ
-> vimānaṁ kāma-gaṁ kṣattas
+> maitreya uvāca\
+> priyāyāḥ priyam anvicchan\
+> kardamo yogam āsthitaḥ\
+> vimānaṁ kāma-gaṁ kṣattas\
 > tarhy evāviracīkarat
 
 *maitreyaḥ*—the great sage Maitreya; *uvāca*—said; *priyāyāḥ*—of his beloved wife; *priyam*—the pleasure; *anvicchan*—seeking; *kardamaḥ*—the sage Kardama; *yogam*—yogic power; *āsthitaḥ*—exercised; *vimānam*—an airplane; *kāma-gam*—moving at will; *kṣattaḥ*—O Vidura; *tarhi*—instantly; *eva*—quite; *āviracīkarat*—he produced.

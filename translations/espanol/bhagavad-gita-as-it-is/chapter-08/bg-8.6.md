@@ -1,11 +1,11 @@
 ### Bg 8.6
 
-> यं यं वापि स्मरन्भावं त्यजत्यन्ते कलेवरम् ।
+> यं यं वापि स्मरन्भावं त्यजत्यन्ते कलेवरम् ।\
 > तं तमेवैति कौन्तेय सदा तद्भावभावितः ॥६॥
 
-> yaṁ yaṁ vāpi smaran bhāvaṁ
-> tyajaty ante kalevaram
-> taṁ tam evaiti kaunteya
+> yaṁ yaṁ vāpi smaran bhāvaṁ\
+> tyajaty ante kalevaram\
+> taṁ tam evaiti kaunteya\
 > sadā tad-bhāva-bhāvitaḥ
 
 *yam yam*—todo lo que; *vā*—cualquiera; *api*—también; *smaran*—recordando; *bhāvam*—naturaleza; *tyajati*—abandonar; *ante*—al final; *kalevaram*—este cuerpo; *tam tam*—similar; *eva*—ciertamente; *eti*—obtiene; *kaunteya*—¡oh, hijo de Kuntī!; *sadā*—siempre; *tat*—ese; *bhāva*—estado de existencia; *bhāvitaḥ*—recordando.

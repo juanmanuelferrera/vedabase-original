@@ -1,9 +1,9 @@
 ### CC Madhya 4.164
 
-> ইঁহাকে চন্দন দিলে, গোপাল হইবে শীতল ।
+> ইঁহাকে চন্দন দিলে, গোপাল হইবে শীতল ।\
 > স্বতন্ত্র ঈশ্বর — তাঁর আজ্ঞা সে প্রবল ॥১৬৪॥
 
-> iṅhāke candana dile, gopāla ha-ibe śītala
+> iṅhāke candana dile, gopāla ha-ibe śītala\
 > svatantra īśvara--tāṅra ājñā se prabala
 
 *iṅhāke*—a Gopīnātha; *candana dile*—cuando se le ofrezca el sándalo; *gopāla*—el Señor Gopāla en Vṛndāvana; *ha-ibe*—quedará; *śītala*—fresco; *svatantra īśvara*—la Suprema Personalidad de Dios completamente independiente; *tāṅra*—Su; *ājñā*—orden; *se*—esa; *prabala*—poderosa.

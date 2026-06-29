@@ -1,9 +1,9 @@
 ### CC Adi 17.53
 
-> পাষণ্ডী সংহারিতে মোর এই অবতার ।
+> পাষণ্ডী সংহারিতে মোর এই অবতার ।\
 > পাষণ্ডী সংহারি’ ভক্তি করিমু প্রচার ॥৫৩॥
 
-> pāṣaṇḍī saṁhārite mora ei avatāra
+> pāṣaṇḍī saṁhārite mora ei avatāra\
 > pāṣaṇḍī saṁhāri' bhakti karimu pracāra
 
 *pāṣaṇḍī*—demons, atheists; *saṁhārite*—to kill; *mora*—My; *ei*—this; *avatāra*—incarnation; *pāṣaṇḍī*—atheist; *saṁhāri'*—killing; *bhakti*—devotional service; *karimu*—I shall do; *pracāra*—preaching.

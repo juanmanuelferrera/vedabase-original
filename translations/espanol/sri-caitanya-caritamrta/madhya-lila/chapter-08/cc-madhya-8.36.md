@@ -1,9 +1,9 @@
 ### CC Madhya 8.36
 
-> মোর স্পর্শে না করিলে ঘৃণা, বেদভয় ৷
+> মোর স্পর্শে না করিলে ঘৃণা, বেদভয় ৷\
 > মোর দর্শন তোমা বেদে নিষেধয় ৷৷ ৩৬ ৷৷ ॥৩৬॥
 
-> mora sparśe nā karile ghṛṇā, veda-bhaya
+> mora sparśe nā karile ghṛṇā, veda-bhaya\
 > mora darśana tomā vede niṣedhaya
 
 *mora*—de mí; *sparśe*—por el contacto; *nā*—no; *karile*—hicisteis; *ghṛṇā*—repugnancia; *veda-bhaya*—temor de los mandatos de los *Vedas*; *mora*—de mí; *darśana*—ver; *tomā*—a Vos; *vede*—los mandatos Védicos; *niṣedhaya*—prohíben.

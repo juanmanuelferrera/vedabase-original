@@ -1,11 +1,11 @@
 ### CC Madhya 25.77
 
-> স বৈ ভগবতঃ শ্রীমৎপাদস্পর্শহতাশুভঃ ।
+> স বৈ ভগবতঃ শ্রীমৎপাদস্পর্শহতাশুভঃ ।\
 > ভেজে সর্পবপুর্হিত্বা রূপং বিদ্যাধরার্চিতম্ ।।” ॥ ৭৭ ॥
 
-> sa vai bhagavataḥ śrīmat-
-> pāda-sparśa-hatāśubhaḥ
-> bheje sarpa-vapur hitvā
+> sa vai bhagavataḥ śrīmat-\
+> pāda-sparśa-hatāśubhaḥ\
+> bheje sarpa-vapur hitvā\
 > rūpaṁ vidyādharārcitam
 
 *saḥ*—él (la serpiente); *vai*—en verdad; *bhagavataḥ*—de la Suprema Personalidad de Dios, Kṛṣṇa; *śrīmat-pāda-sparśa*—por el toque de los pies de loto; *hata-aśubhaḥ*—liberado de todas las reacciones de la vida pecaminosa; *bheje*—obtuvo; *sarpa-vapuḥ*—el cuerpo de una serpiente; *hitvā*—abandonando; *rūpam*—belleza; *vidyādhara-arcitam*—apropiada para una persona de Vidyādhara-loka.

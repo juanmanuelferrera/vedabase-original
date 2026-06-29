@@ -1,9 +1,9 @@
 ### CC Madhya 25.219
 
-> কাশীতে প্রভুর চরিত্র শুনি’ তিনের মুখে ।
+> কাশীতে প্রভুর চরিত্র শুনি’ তিনের মুখে ।\
 > সন্ন্যাসীরে কৃপা শুনি’ পাইলা বড় সুখে ॥২১৯॥
 
-> kāśīte prabhura caritra śuni' tinera mukhe
+> kāśīte prabhura caritra śuni' tinera mukhe\
 > sannyāsīre kṛpā śuni' pāilā baḍa sukhe
 
 *kāśīte*—en Vārāṇasī (Kāśī); *prabhura*—de Śrī Caitanya Mahāprabhu; *caritra*—las actividades; *śuni'*—al oír; *tinera mukhe*—de labios de las tres personas; *sannyāsīre kṛpā*—la misericordia mostrada a los *sannyāsīs* māyāvādīs; *śuni'*—al oír acerca de; *pāilā*—obtuvo; *baḍa sukhe*—gran placer.

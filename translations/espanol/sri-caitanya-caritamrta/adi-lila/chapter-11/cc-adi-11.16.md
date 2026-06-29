@@ -1,9 +1,9 @@
 ### CC Adi 11.16
 
-> রামদাস — মুখ্যশাখা, সখ্য-প্রেমরাশি ।
+> রামদাস — মুখ্যশাখা, সখ্য-প্রেমরাশি ।\
 > ষোলসাঙ্গের কাষ্ঠ যেই তুলি’ কৈল বাঁশী ॥১৬॥
 
-> rāmadāsa--mukhya-śākhā, sakhya-prema-rāśi
+> rāmadāsa--mukhya-śākhā, sakhya-prema-rāśi\
 > ṣolasāṅgera kāṣṭha yei tuli' kaila vaṁśī
 
 *rāma-dāsa*—de nombre Rāmadāsa; *mukhya-śākhā*—rama principal; *sakhya-prema-rāśi*—colmado de amor fraternal; *ṣolasa-aṅgera*—de dieciséis nudos; *kāṣṭha*—madera; *yei*—la que; *tuli'*—levantando; *kaila*—hizo; *vāṁśī*—flauta.

@@ -1,11 +1,11 @@
 ### CC Madhya 24.67
 
-> চান্বাচয়ে সমাহারেঽন্যোঽন্যার্থে চ সমুচ্চয়ে ।
+> চান্বাচয়ে সমাহারেঽন্যোঽন্যার্থে চ সমুচ্চয়ে ।\
 > যত্নান্তরে তথা পাদপূরণেঽপ্যবধারণে ॥৬৭॥
 
-> cānvācaye samāhāre
-> 'nyo 'nyārthe ca samuccaye
-> yatnāntare tathā pāda-
+> cānvācaye samāhāre\
+> 'nyo 'nyārthe ca samuccaye\
+> yatnāntare tathā pāda-\
 > pūraṇe 'py avadhāraṇe
 
 *ca*—this word *ca*; *anvācaye*—in connecting one with another; *samāhāre*—in the sense of aggregation; *anyo 'nya-arthe*—to help one another in the imports; *ca*—the word *ca*; *samuccaye*—in aggregate understanding; *yatna-antare*—in another effort; *tathā*—as well as; *pāda-pūraṇe*—in completing the verse; *api*—also; *avadhāraṇe*—in the sense of certainty.

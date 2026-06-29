@@ -1,9 +1,9 @@
 ### CC Madhya 8.18
 
-> সূর্যশত-সম কান্তি, অরুণ বসন ।
+> সূর্যশত-সম কান্তি, অরুণ বসন ।\
 > সুবলিত প্রকাণ্ড দেহ, কমল-লোচন ॥১৮॥
 
-> sūrya-śata-sama kānti, aruṇa vasana
+> sūrya-śata-sama kānti, aruṇa vasana\
 > subalita prakāṇḍa deha, kamala-locana
 
 *sūrya-śata*—hundreds of suns; *sama*—like; *kānti*—luster; *aruṇa*—saffron; *vasana*—garments; *subalita*—very strongly built; *prakāṇḍa*—big; *deha*—body; *kamala-locana*—eyes like lotus petals.

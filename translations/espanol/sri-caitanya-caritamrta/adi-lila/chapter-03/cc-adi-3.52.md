@@ -1,11 +1,11 @@
 ### CC Adi 3.52
 
-> কৃষ্ণবর্ণং ত্বিষাঽকৃষ্ণং সাঙ্গোপাঙ্গাস্ত্রপার্ষদম্ ।
+> কৃষ্ণবর্ণং ত্বিষাঽকৃষ্ণং সাঙ্গোপাঙ্গাস্ত্রপার্ষদম্ ।\
 > যজ্ঞৈঃ সংকীর্তনপ্রায়ৈর্যজন্তি হি সুমেধসঃ ॥৫২॥
 
-> kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ
-> sāṅgopāṅgāstra-pārṣadam
-> yajñaiḥ saṅkīrtana-prāyair
+> kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ\
+> sāṅgopāṅgāstra-pārṣadam\
+> yajñaiḥ saṅkīrtana-prāyair\
 > yajanti hi su-medhasaḥ
 
 *kṛṣṇa-varṇam*—que repite las sílabas kṛṣ-ṇa; *tviṣā*—con un lustre; *akṛṣṇam*—no negro (dorado); *sa-aṅga*—junto con asociados; *upāṅga*—sirvientes; *astra*—armas; *pārṣadam*—compañeros confidenciales; *yajñaiḥ*—mediante el sacrificio; *saṅkīrtana-prāyaiḥ*—que consiste principalmente en canto congregacional; *yajanti*—adoran; *hi*—ciertamente; *su-medhasaḥ*—personas inteligentes.

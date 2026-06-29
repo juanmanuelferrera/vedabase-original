@@ -1,11 +1,11 @@
 ### SB 1.6.32
 
-> देवदत्तामिमां वीणां स्वरब्रह्मविभूषिताम् ।
+> देवदत्तामिमां वीणां स्वरब्रह्मविभूषिताम् ।\
 > मूर्च्छयित्वा हरिकथां गायमानश्चराम्यहम् ॥३२॥
 
-> deva-dattām imāṁ vīṇāṁ
-> svara-brahma-vibhūṣitām
-> mūrcchayitvā hari-kathāṁ
+> deva-dattām imāṁ vīṇāṁ\
+> svara-brahma-vibhūṣitām\
+> mūrcchayitvā hari-kathāṁ\
 > gāyamānaś carāmy aham
 
 *deva*—the Supreme Personality of Godhead (Śrī Kṛṣṇa); *dattām*—gifted by; *imām*—this; *vīṇām*—a musical stringed instrument; *svara*—singing meter; *brahma*—transcendental; *vibhūṣitām*—decorated with; *mūrcchayitvā*—vibrating; *hari-kathām*—transcendental message; *gāyamānaḥ*—singing constantly; *carāmi*—do move; *aham*—I.

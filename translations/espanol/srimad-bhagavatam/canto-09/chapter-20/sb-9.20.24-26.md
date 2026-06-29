@@ -1,28 +1,28 @@
 ### SB 9.20.24-26
 
-> चक्रं दक्षिणहस्तेऽस्य पद्मकोशोऽस्य पादयोः
-> ईजे महाभिषेकेण सोऽभिषिक्तोऽधिराड्विभुः ॥२४॥
-> पञ्चपञ्चाशता मेध्यैर्गङ्गायामनु वाजिभिः
-> मामतेयं पुरोधाय यमुनामनु च प्रभुः ॥२५॥
-> अष्टसप्ततिमेध्याश्वान्बबन्ध प्रददद्वसु
-> भरतस्य हि दौष्मन्तेरग्निः साचीगुणे चितः
+> चक्रं दक्षिणहस्तेऽस्य पद्मकोशोऽस्य पादयोः\
+> ईजे महाभिषेकेण सोऽभिषिक्तोऽधिराड्विभुः ॥२४॥\
+> पञ्चपञ्चाशता मेध्यैर्गङ्गायामनु वाजिभिः\
+> मामतेयं पुरोधाय यमुनामनु च प्रभुः ॥२५॥\
+> अष्टसप्ततिमेध्याश्वान्बबन्ध प्रददद्वसु\
+> भरतस्य हि दौष्मन्तेरग्निः साचीगुणे चितः\
 > सहस्रं बद्वशो यस्मिन्ब्राह्मणा गा विभेजिरे ॥२६॥
 
-> cakraṁ dakṣiṇa-haste 'sya
-> padma-kośo 'sya pādayoḥ
-> īje mahābhiṣekeṇa
+> cakraṁ dakṣiṇa-haste 'sya\
+> padma-kośo 'sya pādayoḥ\
+> īje mahābhiṣekeṇa\
 > so 'bhiṣikto 'dhirāḍ vibhuḥ
 
-> pañca-pañcāśatā medhyair
-> gaṅgāyām anu vājibhiḥ
-> māmateyaṁ purodhāya
+> pañca-pañcāśatā medhyair\
+> gaṅgāyām anu vājibhiḥ\
+> māmateyaṁ purodhāya\
 > yamunām anu ca prabhuḥ
 
-> aṣṭa-saptati-medhyāśvān
-> babandha pradadad vasu
-> bharatasya hi dauṣmanter
-> agniḥ sācī-guṇe citaḥ
-> sahasraṁ badvaśo yasmin
+> aṣṭa-saptati-medhyāśvān\
+> babandha pradadad vasu\
+> bharatasya hi dauṣmanter\
+> agniḥ sācī-guṇe citaḥ\
+> sahasraṁ badvaśo yasmin\
 > brāhmaṇā gā vibhejire
 
 *cakram*—la marca del disco de Kṛṣṇa; *dakṣiṇa-haste*—en la palma de la mano derecha; *asya*—de él (de Bharata); *padma-kośaḥ*—la marca del verticilo de una flor de loto; *asya*—de él; *pādayoḥ*—en las plantas de los pies; *īje*—adoró a la Suprema Personalidad de Dios; *mahā-abhiṣekeṇa*—con una gran ceremonia ritual; *saḥ*—él (Mahārāja Bharata); *abhiṣiktaḥ*—elevado; *adhirāṭ*—a la más elevada posición de gobernante; *vibhuḥ*—el amo de todo; *pañca-pañcāśatā*—cincuenta y cinco; *medhyaiḥ*—adecuados para sacrificios; *gaṅgāyām anu*—desde la desembocadura hasta el nacimiento del Ganges; *vājibhiḥ*—con caballos; *māmateyam*—el gran sabio Bhṛgu; *purodhāya*—nombrando sumo sacerdote; *yamunām*—en la orilla del Yamunā; *anu*—en orden; *ca*—también; *prabhuḥ*—el amo supremo, Mahārāja Bharata; *aṣṭa-saptati*—setenta y ocho; *medhya-aśvān*—caballos adecuados para el sacrificio; *babandha*—ató; *pradadat*—dio como caridad; *vasu*—riquezas; *bharatasya*—de Mahārāja Bharata; *hi*—en verdad; *dauṣmanteḥ*—el hijo de Mahārāja Duṣmanta; *agniḥ*—el fuego de sacrificio; *sācī-guṇe*—en un lugar excelente; *citaḥ*—establecido; *sahasram*—miles; *badvaśaḥ*—la cantidad de un *badva* (un *badva* equivale a 13.084); *yasmin*—sacrificios en que; *brāhmaṇāḥ*—todos los *brāhmaṇas* presentes; *gāḥ*—las vacas; *vibhejire*—recibieron su parte correspondiente.

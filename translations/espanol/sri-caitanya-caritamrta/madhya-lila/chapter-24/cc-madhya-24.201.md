@@ -1,9 +1,9 @@
 ### CC Madhya 24.201
 
-> জীবের স্বভাব — কৃষ্ণ-‘দাস’-অভিমান ।
+> জীবের স্বভাব — কৃষ্ণ-‘দাস’-অভিমান ।\
 > দেহে আত্ম-জ্ঞানে আচ্ছাদিত সেই ‘জ্ঞান’ ॥২০১॥
 
-> jīvera svabhāva--kṛṣṇa-'dāsa'-abhimāna
+> jīvera svabhāva--kṛṣṇa-'dāsa'-abhimāna\
 > dehe ātma-jñāne ācchādita sei 'jñāna'
 
 *jīvera svabhāva*—la característica original de todas las entidades vivientes; *kṛṣṇa-dāsa*—sirviente de Kṛṣṇa; *abhimāna*—la concepción; *dehe*—en el cuerpo material; *ātma-jñāne*—por la concepción del yo; *ācchādita*—cubierta; *sei jñāna*—esa conciencia original.

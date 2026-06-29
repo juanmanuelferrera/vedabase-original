@@ -1,11 +1,11 @@
 ### SB 9.4.68
 
-> साधवो हृदयं मह्यं साधूनां हृदयं त्वहम
+> साधवो हृदयं मह्यं साधूनां हृदयं त्वहम\
 > मदन्यत्ते न जानन्ति नाहं तेभ्यो मनागपि ॥६८॥
 
-> sādhavo hṛdayaṁ mahyaṁ
-> sādhūnāṁ hṛdayaṁ tv aham
-> mad-anyat te na jānanti
+> sādhavo hṛdayaṁ mahyaṁ\
+> sādhūnāṁ hṛdayaṁ tv aham\
+> mad-anyat te na jānanti\
 > nāhaṁ tebhyo manāg api
 
 *sādhavaḥ*—los devotos puros; *hṛdayam*—en lo más profundo del corazón; *mahyam*—de Mí; *sādhūnām*—de los devotos puros también; *hṛdayam*—en lo más hondo del corazón; *tu*—en verdad; *aham*—Yo estoy; *mat-anyat*—nada que no sea Yo; *te*—ellos; *na*—no; *jānanti*—conocen; *na*—no; *aham*—Yo; *tebhyaḥ*—que ellos; *manāg api*—incluso con una pequeña fracción.

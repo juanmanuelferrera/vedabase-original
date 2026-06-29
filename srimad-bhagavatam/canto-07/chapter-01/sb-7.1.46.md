@@ -1,11 +1,11 @@
 ### SB 7.1.46
 
-> वैरानुबन्धतीव्रेण ध्यानेनाच्युतसात्मताम
+> वैरानुबन्धतीव्रेण ध्यानेनाच्युतसात्मताम\
 > नीतौ पुनर्हरेः पार्श्वं जग्मतुर्विष्णुपार्षदौ ॥४६॥
 
-> tāv atra kṣatriyau jātau
-> mātṛ-ṣvasrātmajau tava
-> adhunā śāpa-nirmuktau
+> tāv atra kṣatriyau jātau\
+> mātṛ-ṣvasrātmajau tava\
+> adhunā śāpa-nirmuktau\
 > kṛṣṇa-cakra-hatāṁhasau
 
 *tau*—the two; *atra*—here, in the third birth; *kṣatriyau*—*kṣatriyas* or kings; *jātau*—born; *mātṛ-svasṛ-ātma-jau*—the sons of the mother's sister; *tava*—your; *adhunā*—now; *śāpa-nirmuktau*—freed from the curse; *kṛṣṇa-cakra*—by the disc weapon of Kṛṣṇa; *hata*—destroyed; *aṁhasau*—whose sins.

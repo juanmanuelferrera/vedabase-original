@@ -1,9 +1,9 @@
 ### CC Antya 15.37
 
-> উত্তর না পাঞা পুনঃ করে অনুমান  ।
+> উত্তর না পাঞা পুনঃ করে অনুমান  ।\
 > এই সব — পুরুষ-জাতি, কৃষ্ণের সখার সমান ॥৩৭॥
 
-> uttara nā pāñā punaḥ kare anumāna
+> uttara nā pāñā punaḥ kare anumāna\
 > ei saba--puruṣa-jāti, kṛṣṇera sakhāra samāna
 
 *uttara*—respuesta; *nā*—no; *pāñā*—obteniendo; *punaḥ*—de nuevo; *kare*—hacen; *anumāna*—conjetura; *ei saba*—todos estos; *puruṣa-jāti*—pertenecientes a la clase masculina; *kṛṣṇera*—de Kṛṣṇa; *sakhāra samāna*—tan buenos como amigos.

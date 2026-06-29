@@ -1,11 +1,11 @@
 ### SB 1.14.38
 
-> यद्बाहुदण्डाभ्युदयानुजीविनो यदुप्रवीरा ह्यकुतोभया मुहुः ।
+> यद्बाहुदण्डाभ्युदयानुजीविनो यदुप्रवीरा ह्यकुतोभया मुहुः ।\
 > अधिक्रमन्त्यङ्घ्रिभिराहृतां बलात्सभां सुधर्मां सुरसत्तमोचिताम् ॥३८॥
 
-> yad bāhu-daṇḍābhyudayānujīvino
-> yadu-pravīrā hy akutobhayā muhuḥ
-> adhikramanty aṅghribhir āhṛtāṁ balāt
+> yad bāhu-daṇḍābhyudayānujīvino\
+> yadu-pravīrā hy akutobhayā muhuḥ\
+> adhikramanty aṅghribhir āhṛtāṁ balāt\
 > sabhāṁ sudharmāṁ sura-sattamocitām
 
 *yat*—whose; *bāhu-daṇḍa*—arms; *abhyudaya*—influenced by; *anujīvinaḥ*—always living; *yadu*—the members of the Yadu dynasty; *pravīrāḥ*—great heroes; *hi akutobhayāḥ*—fearless in every respect; *muhuḥ*—constantly; *adhikramanti*—traversing; *aṅghribhiḥ*—by foot; *āhṛtām*—brought about; *balāt*—by force; *sabhām*—assembly house; *sudharmām*—Sudharmā; *sura-sat-tama*—the best among the demigods; *ucitām*—deserving.

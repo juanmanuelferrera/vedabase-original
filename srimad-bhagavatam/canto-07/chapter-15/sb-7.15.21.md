@@ -1,11 +1,11 @@
 ### SB 7.15.21
 
-> पण्डिता बहवो राजन्बहुज्ञआः संशयच्छिदः
+> पण्डिता बहवो राजन्बहुज्ञआः संशयच्छिदः\
 > सदसस्पतयोऽप्येके असन्तोषात्पतन्त्यधः ॥२१॥
 
-> paṇḍitā bahavo rājan
-> bahu-jñāḥ saṁśaya-cchidaḥ
-> sadasas patayo 'py eke
+> paṇḍitā bahavo rājan\
+> bahu-jñāḥ saṁśaya-cchidaḥ\
+> sadasas patayo 'py eke\
 > asantoṣāt patanty adhaḥ
 
 *paṇḍitāḥ*—very learned scholars; *bahavaḥ*—many; *rājan*—O King (Yudhiṣṭhira); *bahu-jñāḥ*—persons with varied experience; *saṁśaya-cchidaḥ*—expert in legal advice; *sadasaḥ patayaḥ*—persons eligible to become presidents of learned assemblies; *api*—even; *eke*—by one disqualification; *asantoṣāt*—simply by dissatisfaction or greed; *patanti*—fall down; *adhaḥ*—into hellish conditions of life.

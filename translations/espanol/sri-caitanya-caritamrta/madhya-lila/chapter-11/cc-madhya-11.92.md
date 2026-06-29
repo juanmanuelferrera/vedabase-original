@@ -1,9 +1,9 @@
 ### CC Madhya 11.92
 
-> mukunda-dāsa, narahari, śrī-raghunandana
+> mukunda-dāsa, narahari, śrī-raghunandana\
 > khaṇḍa-vāsī cirañjīva, āra sulocana
 
-> mukunda-dāsa, narahari, śrī-raghunandana
+> mukunda-dāsa, narahari, śrī-raghunandana\
 > khaṇḍa-vāsī cirañjīva, āra sulocana
 
 *mukunda-dāsa*—Mukunda dāsa; *narahari*—Narahari; *śrī-raghunandana*—Śrī Raghunandana; *khaṇḍa-vāsī*—residentes de Khaṇḍa; *cirañjīva*—Cirañjīva; *āra*—y; *sulocana*—Sulocana.

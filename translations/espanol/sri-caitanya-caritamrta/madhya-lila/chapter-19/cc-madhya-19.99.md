@@ -1,9 +1,9 @@
 ### CC Madhya 19.99
 
-> প্রভু কহেন, — কহ, তেঁহো পড়ে কৃষ্ণলীলা ।
+> প্রভু কহেন, — কহ, তেঁহো পড়ে কৃষ্ণলীলা ।\
 > প্রেমাবেশে প্রভুর দেহ-মন আলুয়াইলা ॥৯৯॥
 
-> prabhu kahena,--kaha, teṅho paḍe kṛṣṇa-līlā
+> prabhu kahena,--kaha, teṅho paḍe kṛṣṇa-līlā\
 > premāveśe prabhura deha-mana āyuyāilā
 
 *prabhu kahena*—Śrī Caitanya Mahāprabhu dijo; *kaha*—por favor, sigue hablando; *teṅho*—él; *paḍe*—recita; *kṛṣṇa-līlā*—los pasatiempos del Señor Kṛṣṇa; *prema-āveśe*—en gran éxtasis de amor; *prabhura*—de Śrī Caitanya Mahāprabhu; *deha-mana*—cuerpo y mente; *āyuyāilā*—se relajaron.

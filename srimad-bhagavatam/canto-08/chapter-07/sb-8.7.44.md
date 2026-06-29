@@ -1,11 +1,11 @@
 ### SB 8.7.44
 
-> तस्यापि दर्शयामास स्ववीर्यं जलकल्मषः
+> तस्यापि दर्शयामास स्ववीर्यं जलकल्मषः\
 > यच्चकार गले नीलं तच्च साधोर्विभूषणम ॥४४॥
 
-> tapyante loka-tāpena
-> sādhavaḥ prāyaśo janāḥ
-> paramārādhanaṁ tad dhi
+> tapyante loka-tāpena\
+> sādhavaḥ prāyaśo janāḥ\
+> paramārādhanaṁ tad dhi\
 > puruṣasyākhilātmanaḥ
 
 *tapyante*—voluntarily suffer; *loka-tāpena*—because of the suffering of people in general; *sādhavaḥ*—saintly persons; *prāyaśaḥ*—almost always; *janāḥ*—such persons; *parama-ārādhanam*—the topmost method of worshiping; *tat*—that activity; *hi*—indeed; *puruṣasya*—of the Supreme Person; *akhila-ātmanaḥ*—who is the Supersoul of everyone.

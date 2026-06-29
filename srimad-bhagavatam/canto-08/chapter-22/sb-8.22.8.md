@@ -1,11 +1,11 @@
 ### SB 8.22.8
 
-> पितामहो मे भवदीयसम्मतः प्रह्राद आविष्कृतसाधुवादः
+> पितामहो मे भवदीयसम्मतः प्रह्राद आविष्कृतसाधुवादः\
 > भवद्विपक्षेण विचित्रवैशसं सम्प्रापितस्त्वं परमः स्वपित्रा ॥८॥
 
-> pitāmaho me bhavadīya-sammataḥ
-> prahrāda āviṣkṛta-sādhu-vādaḥ
-> bhavad-vipakṣeṇa vicitra-vaiśasaṁ
+> pitāmaho me bhavadīya-sammataḥ\
+> prahrāda āviṣkṛta-sādhu-vādaḥ\
+> bhavad-vipakṣeṇa vicitra-vaiśasaṁ\
 > samprāpitas tvaṁ paramaḥ sva-pitrā
 
 *pitāmahaḥ*—grandfather; *me*—my; *bhavadīya-sammataḥ*—approved by the devotees of Your Lordship; *prahrādaḥ*—Prahlāda Mahārāja; *āviṣkṛta-sādhu-vādaḥ*—famous, being celebrated everywhere as a devotee; *bhavat-vipakṣeṇa*—simply going against You; *vicitra-vaiśasam*—inventing different kinds of harassments; *samprāpitaḥ*—suffered; *tvam*—You; *paramaḥ*—the supreme shelter; *sva-pitrā*—by his own father.

@@ -1,11 +1,11 @@
 ### SB 4.11.10
 
-> नायं मार्गो हि साधूनां हृषीकेशानुवर्तिनाम् ।
+> नायं मार्गो हि साधूनां हृषीकेशानुवर्तिनाम् ।\
 > यदात्मानं पराग्गृह्य पशुवद्भूतवैशसम् ॥१०॥
 
-> nāyaṁ mārgo hi sādhūnāṁ
-> hṛṣīkeśānuvartinām
-> yad ātmānaṁ parāg gṛhya
+> nāyaṁ mārgo hi sādhūnāṁ\
+> hṛṣīkeśānuvartinām\
+> yad ātmānaṁ parāg gṛhya\
 > paśuvad bhūta-vaiśasam
 
 *na*—nunca; *ayam*—este; *mārgaḥ*—sendero; *hi*—ciertamente; *sādhūnām*—de personas honestas; *hṛṣīkeśa*—de la Suprema Personalidad de Dios; *anuvartinām*—seguir el sendero; *yat*—que; *ātmānam*—el ser; *parāk*—el cuerpo; *gṛhya*—pensar que es; *paśu-vat*—como animales; *bhūta*—de entidades vivientes; *vaiśasam*—matar.

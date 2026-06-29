@@ -1,11 +1,11 @@
 ### Bg 8.4
 
-> अधिभूतं क्षरो भावः पुरुषश्चाधिदैवतम् ।
+> अधिभूतं क्षरो भावः पुरुषश्चाधिदैवतम् ।\
 > अधियज्ञोऽहमेवात्र देहे देहभृतां वर ॥४॥
 
-> adhibhūtaṁ kṣaro bhāvaḥ
-> puruṣaś cādhidaivatam
-> adhiyajño'ham evātra
+> adhibhūtaṁ kṣaro bhāvaḥ\
+> puruṣaś cādhidaivatam\
+> adhiyajño'ham evātra\
 > dehe deha-bhṛtāṁ vara
 
 *adhibhūtam*—la manifestación física; *kṣaraḥ*—cambiando constantemente; *bhāvaḥ*—naturaleza; *puruṣaḥ*—la forma universal; *ca*—y; *adhidaivatam*—incluyendo a todos los semidioses como el sol y la luna; *adhiyajñaḥ*—la Superalma; *aham*—Yo (Kṛṣṇa); *eva*—ciertamente; *atra*—en este; *dehe*—cuerpo; *deha-bhṛtām*—del ser corporificado; *vara*—el Supremo.

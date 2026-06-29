@@ -1,11 +1,11 @@
 ### SB 6.4.24
 
-> न यस्य सख्यं पुरुषोऽवैति सख्युः सखा वसन्संवसतः पुरेऽस्मिन
+> न यस्य सख्यं पुरुषोऽवैति सख्युः सखा वसन्संवसतः पुरेऽस्मिन\
 > गुणो यथा गुणिनो व्यक्तदृष्टेस्तस्मै महेशाय नमस्करोमि ॥२४॥
 
-> na yasya sakhyaṁ puruṣo 'vaiti sakhyuḥ
-> sakhā vasan saṁvasataḥ pure 'smin
-> guṇo yathā guṇino vyakta-dṛṣṭes
+> na yasya sakhyaṁ puruṣo 'vaiti sakhyuḥ\
+> sakhā vasan saṁvasataḥ pure 'smin\
+> guṇo yathā guṇino vyakta-dṛṣṭes\
 > tasmai maheśāya namaskaromi
 
 *na*—no; *yasya*—cuya; *sakhyam*—fraternidad; *puruṣaḥ*—la entidad viviente; *avaiti*—conoce; *sakhyuḥ*—del amigo supremo; *sakhā*—el amigo; *vasan*—vivir; *saṁvasataḥ*—del que vive con; *pure*—en el cuerpo; *asmin*—este; *guṇaḥ*—el objeto de la percepción de los sentidos; *yathā*—tal como; *guṇinaḥ*—del órgano sensorio que le corresponde; *vyakta-dṛṣṭeḥ*—que supervisa la manifestación material; *tasmai*—a Él; *mahā-īśāya*—al controlador supremo; *namaskaromi*—ofrezco reverencias.

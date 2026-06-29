@@ -1,18 +1,18 @@
 ### SB 1.4.17-18
 
-> भौतिकानां च भावानां शक्तिह्रासं च तत्कृतम् ।
-> अश्रद्दधानान्निःसत्त्वान्दुर्मेधान्ह्रसितायुषः ॥१७॥
-> दुर्भगांश्च जनान्वीक्ष्य मुनिर्दिव्येन चक्षुषा ।
+> भौतिकानां च भावानां शक्तिह्रासं च तत्कृतम् ।\
+> अश्रद्दधानान्निःसत्त्वान्दुर्मेधान्ह्रसितायुषः ॥१७॥\
+> दुर्भगांश्च जनान्वीक्ष्य मुनिर्दिव्येन चक्षुषा ।\
 > सर्ववर्णाश्रमाणां यद्दध्यौ हितममोघदृक् ॥१८॥
 
-> bhautikānāṁ ca bhāvānāṁ
-> śakti-hrāsaṁ ca tat-kṛtam
-> aśraddadhānān niḥsattvān
+> bhautikānāṁ ca bhāvānāṁ\
+> śakti-hrāsaṁ ca tat-kṛtam\
+> aśraddadhānān niḥsattvān\
 > durmedhān hrasitāyuṣaḥ
 
-> durbhagāṁś ca janān vīkṣya
-> munir divyena cakṣuṣā
-> sarva-varṇāśramāṇāṁ yad
+> durbhagāṁś ca janān vīkṣya\
+> munir divyena cakṣuṣā\
+> sarva-varṇāśramāṇāṁ yad\
 > dadhyau hitam amogha-dṛk
 
 *bhautikānām ca*—también de todo lo que está hecho de materia; *bhāvānām*—acciones; *śakti-hrāsam ca*—y el deterioro del poder natural; *tat-kṛtam*—realizado por eso; *aśraddadhānān*—de los infieles; *niḥsattvān*—impaciente por la ausencia de la modalidad de la bondad; *durmedhān*—lerdo; *hrasita*—reducidos; *āyuṣaḥ*—de la duración de la vida; *durbhagān ca*—también los desafortunados; *janān*—la gente en general; *vīkṣya*—viendo; *muniḥ*—el *muni*; *divyena*—mediante la trascendental; *cakṣuṣā*—visión; *sarva*—todos; *varṇa-āśramāṇām*—de todas las posiciones y órdenes de vida; *yat*—que; *dadhyau*—contempló; *hitam*—bienestar; *amogha-dṛk*—aquel que está plenamente dotado de conocimiento.

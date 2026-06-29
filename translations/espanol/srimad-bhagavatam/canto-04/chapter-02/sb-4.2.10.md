@@ -1,11 +1,11 @@
 ### SB 4.2.10
 
-> अयं तु लोकपालानां यशोघ्नो निरपत्रपः ।
+> अयं तु लोकपालानां यशोघ्नो निरपत्रपः ।\
 > सद्भिराचरितः पन्था येन स्तब्धेन दूषितः ॥१०॥
 
-> ayaṁ tu loka-pālānāṁ
-> yaśo-ghno nirapatrapaḥ
-> sadbhir ācaritaḥ panthā
+> ayaṁ tu loka-pālānāṁ\
+> yaśo-ghno nirapatrapaḥ\
+> sadbhir ācaritaḥ panthā\
 > yena stabdhena dūṣitaḥ
 
 *ayam*—él (Śiva); *tu*—pero; *loka-pālānām*—de los gobernantes del universo; *yaśaḥ-ghnaḥ*—arruinar la fama; *nirapatrapaḥ*—desvergonzado; *sadbhiḥ*—por las personas de buena educación; *ācaritaḥ*—seguido; *panthāḥ*—el sendero; *yena*—por quien (Śiva); *stabdhena*—que no sigue el comportamiento correcto; *dūṣitaḥ*—está contaminado.

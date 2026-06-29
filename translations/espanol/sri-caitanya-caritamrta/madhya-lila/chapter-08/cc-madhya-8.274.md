@@ -1,9 +1,9 @@
 ### CC Madhya 8.274
 
-> স্থাবর-জঙ্গম দেখে, না দেখে তার মূর্তি ৷
+> স্থাবর-জঙ্গম দেখে, না দেখে তার মূর্তি ৷\
 > সর্বত্র হয় নিজ ইষ্টদেব-স্ফুর্তি ৷৷ ২৭৪ ৷৷ ॥২৭৪॥
 
-> sthāvara-jaṅgama dekhe, nā dekhe tāra mūrti
+> sthāvara-jaṅgama dekhe, nā dekhe tāra mūrti\
 > sarvatra haya nija iṣṭa-deva-sphūrti
 
 *sthāvara-jaṅgama*—lo móvil y lo inerte; *dekhe*—ve; *nā*—no; *dekhe*—ve; *tāra*—su; *mūrti*—forma; *sarvatra*—en todas partes; *haya*—hay; *nija*—su propia; *iṣṭa-deva*—Deidad adorable; *sphūrti*—manifestación.

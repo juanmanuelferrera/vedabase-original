@@ -1,9 +1,9 @@
 ### CC Adi 3.37
 
-> শুক্ল, রক্ত, পীতবর্ণ — এই তিন দ্যুতি ।
+> শুক্ল, রক্ত, পীতবর্ণ — এই তিন দ্যুতি ।\
 > সত্য-ত্রেতা-কলিকালে ধরেন শ্রীপতি ॥৩৭॥
 
-> śukla, rakta, pīta-varṇa--ei tina dyuti
+> śukla, rakta, pīta-varṇa--ei tina dyuti\
 > satya-tretā-kali-kāle dharena śrī-pati
 
 *śukla*—blanco; *rakta*—rojo; *pīta-varṇa*—el color amarillo; *ei*—estos; *tina*—tres; *dyuti*—lustres; *satya*—en Satya-yuga; *tretā*—en Tretā-yuga; *kali-kāle*—en la era de Kali; *dharena*—manifiesta; *śrī-pati*—el esposo de la diosa de la fortuna.

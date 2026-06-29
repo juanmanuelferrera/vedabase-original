@@ -1,46 +1,46 @@
 ### SB 8.10.19-24
 
-> तस्यासन्सर्वतो यानैर्यूथानां पतयोऽसुराः
-> नमुचिः शम्बरो बाणो विप्रचित्तिरयोमुखः ॥१९॥
-> द्विमूर्धा कालनाभोऽथ प्रहेतिर्हेतिरिल्वलः
-> शकुनिर्भूतसन्तापो वज्रदंष्ट्रो विरोचनः ॥२०॥
-> हयग्रीवः शङ्कुशिराः कपिलो मेघदुन्दुभिः
-> तारकश्चक्रदृक्षुम्भो निशुम्भो जम्भ उत्कलः ॥२१॥
-> अरिष्टोऽरिष्टनेमिश्च मयश्च त्रिपुराधिपः
-> अन्ये पौलोमकालेया निवातकवचादयः ॥२२॥
-> अलब्धभागाः सोमस्य केवलं क्लेशभागिनः
-> सर्व एते रणमुखे बहुशो निर्जितामराः ॥२३॥
-> सिंहनादान्विमुञ्चन्तः शङ्खान्दध्मुर्महारवान
+> तस्यासन्सर्वतो यानैर्यूथानां पतयोऽसुराः\
+> नमुचिः शम्बरो बाणो विप्रचित्तिरयोमुखः ॥१९॥\
+> द्विमूर्धा कालनाभोऽथ प्रहेतिर्हेतिरिल्वलः\
+> शकुनिर्भूतसन्तापो वज्रदंष्ट्रो विरोचनः ॥२०॥\
+> हयग्रीवः शङ्कुशिराः कपिलो मेघदुन्दुभिः\
+> तारकश्चक्रदृक्षुम्भो निशुम्भो जम्भ उत्कलः ॥२१॥\
+> अरिष्टोऽरिष्टनेमिश्च मयश्च त्रिपुराधिपः\
+> अन्ये पौलोमकालेया निवातकवचादयः ॥२२॥\
+> अलब्धभागाः सोमस्य केवलं क्लेशभागिनः\
+> सर्व एते रणमुखे बहुशो निर्जितामराः ॥२३॥\
+> सिंहनादान्विमुञ्चन्तः शङ्खान्दध्मुर्महारवान\
 > दृष्ट्वा सपत्नानुत्सिक्तान्बलभित्कुपितो भृशम ॥२४॥
 
-> tasyāsan sarvato yānair
-> yūthānāṁ patayo 'surāḥ
-> namuciḥ śambaro bāṇo
+> tasyāsan sarvato yānair\
+> yūthānāṁ patayo 'surāḥ\
+> namuciḥ śambaro bāṇo\
 > vipracittir ayomukhaḥ
 
-> dvimūrdhā kālanābho 'tha
-> prahetir hetir ilvalaḥ
-> śakunir bhūtasantāpo
+> dvimūrdhā kālanābho 'tha\
+> prahetir hetir ilvalaḥ\
+> śakunir bhūtasantāpo\
 > vajradaṁṣṭro virocanaḥ
 
-> hayagrīvaḥ śaṅkuśirāḥ
-> kapilo meghadundubhiḥ
-> tārakaś cakradṛk śumbho
+> hayagrīvaḥ śaṅkuśirāḥ\
+> kapilo meghadundubhiḥ\
+> tārakaś cakradṛk śumbho\
 > niśumbho jambha utkalaḥ
 
-> ariṣṭo 'riṣṭanemiś ca
-> mayaś ca tripurādhipaḥ
-> anye pauloma-kāleyā
+> ariṣṭo 'riṣṭanemiś ca\
+> mayaś ca tripurādhipaḥ\
+> anye pauloma-kāleyā\
 > nivātakavacādayaḥ
 
-> alabdha-bhāgāḥ somasya
-> kevalaṁ kleśa-bhāginaḥ
-> sarva ete raṇa-mukhe
+> alabdha-bhāgāḥ somasya\
+> kevalaṁ kleśa-bhāginaḥ\
+> sarva ete raṇa-mukhe\
 > bahuśo nirjitāmarāḥ
 
-> siṁha-nādān vimuñcantaḥ
-> śaṅkhān dadhmur mahā-ravān
-> dṛṣṭvā sapatnān utsiktān
+> siṁha-nādān vimuñcantaḥ\
+> śaṅkhān dadhmur mahā-ravān\
+> dṛṣṭvā sapatnān utsiktān\
 > balabhit kupito bhṛśam
 
 *tasya*—de él (de Mahārāja Bali); *āsan*—situados; *sarvataḥ*—alrededor; *yānaiḥ*—con diversidad de vehículos; *yūthānām*—de los soldados; *patayaḥ*—los comandantes; *asurāḥ*—demonios; *namuciḥ*—Namuci; *śambaraḥ*—Śambara; *bāṇaḥ*—Bāṇa; *vipracittiḥ*—Vipracitti; *ayomukhaḥ*—Ayomukha; *dvimūrdhā*—Dvimūrdhā; *kālanābhaḥ*—Kālanābha; *atha*—también; *prahetiḥ*—Praheti; *hetiḥ*—Heti; *ilvalaḥ*—Ilvala; *śakuniḥ*—Śakuni; *bhūtasantāpaḥ*—Bhūtasantāpa; *vajra-daṁṣṭraḥ*—Vajradaṁṣṭra; *virocanaḥ*—Virocana; *hayagrīvaḥ*—Hayagrīva; *śaṅkuśirāḥ*—Śaṅkuśirā; *kapilaḥ*—Kapila; *megha-dundubhiḥ*—Meghadundubhi; *tārakaḥ*—Tāraka; *cakradṛk*—Cakradṛk; *śumbhaḥ*—Śumbha; *niśumbhaḥ*—Niśumbha; *jambhaḥ*—Jambha; *utkalaḥ*—Utkala; *ariṣṭaḥ*—Ariṣṭa; *ariṣṭanemiḥ*—Ariṣṭanemi; *ca*—y; *mayaḥ ca*—y Maya; *tripurādhipaḥ*—Tripurādhipa; *anye*—otros; *pauloma-kāleyāḥ*—los hijos de Puloma y los Kāleyas; *nivātakavaca-ādayaḥ*—Nivātakavaca y otros demonios; *alabdha-bhāgāḥ*—ninguno de los cuales había podido recibir una parte; *somasya*—del néctar; *kevalam*—simplemente; *kleśa-bhāginaḥ*—los demonios participaron del trabajo; *sarve*—todos ellos; *ete*—los demonios; *raṇa-mukhe*—en el frente de batalla; *bahuśaḥ*—con demasiada fuerza; *nirjita-amarāḥ*—causando muchos problemas a los semidioses; *siṁha-nādān*—vibraciones como las de los leones; *vimuñcantaḥ*—emitiendo; *śaṅkhān*—caracolas; *dadhmuḥ*—hicieron sonar; *mahā-ravān*—con un sonido estruendoso; *dṛṣṭvā*—después de ver; *sapatnān*—a sus rivales; *utsiktān*—feroces; *balabhit*—(el Señor Indra) temeroso de la fuerza; *kupitaḥ*—que se había puesto furioso; *bhṛśam*—tremendamente.

@@ -1,11 +1,11 @@
 ### SB 8.20.3
 
-> स चाहं वित्तलोभेन प्रत्याचक्षे कथं द्विजम
+> स चाहं वित्तलोभेन प्रत्याचक्षे कथं द्विजम\
 > प्रतिश्रुत्य ददामीति प्राह्रादिः कितवो यथा ॥३॥
 
-> sa cāhaṁ vitta-lobhena
-> pratyācakṣe kathaṁ dvijam
-> pratiśrutya dadāmīti
+> sa cāhaṁ vitta-lobhena\
+> pratyācakṣe kathaṁ dvijam\
+> pratiśrutya dadāmīti\
 > prāhrādiḥ kitavo yathā
 
 *saḥ*—such a person as I am; *ca*—also; *aham*—I am; *vitta-lobhena*—for being allured by greed for money; *pratyācakṣe*—I shall cheat or say no when I have already said yes; *katham*—how; *dvijam*—especially to a *brāhmaṇa*; *pratiśrutya*—after already having promised; *dadāmi*—that I shall give; *iti*—thus; *prāhrādiḥ*—I who am famous as the grandson of Mahārāja Prahlāda; *kitavaḥ*—an ordinary cheater; *yathā*—just like.

@@ -1,9 +1,9 @@
 ### CC Antya 18.36
 
-> গুণ্ডিচা-মন্দিরে গেলা, কিবা নরেন্দ্রেরে ?
+> গুণ্ডিচা-মন্দিরে গেলা, কিবা নরেন্দ্রেরে ?\
 > চটক-পর্বতে গেলা, কিবা কোণার্কেরে?’ ॥৩৬॥
 
-> guṇḍicā-mandire gelā, kibā narendrere?
+> guṇḍicā-mandire gelā, kibā narendrere?\
 > caṭaka-parvate gelā, kibā koṇārkere?'
 
 *guṇḍicā-mandire*—al templo de Guṇḍicā; *gelā*—se ha ido; *kibā*—o; *narendrere*—al lago Narendra; *caṭaka-parvate*—a Caṭaka-parvata; *gelā*—se ha ido; *kibā*—o; *koṇārkere*—al templo de Koṇārka.

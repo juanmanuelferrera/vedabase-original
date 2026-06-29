@@ -1,18 +1,18 @@
 ### SB 8.24.2-3
 
-> यदर्थमदधाद्रूपं मात्स्यं लोकजुगुप्सितम
-> तमःप्रकृतिदुर्मर्षं कर्मग्रस्त इवेश्वरः ॥२॥
-> एतन्नो भगवन्सर्वं यथावद्वक्तुमर्हसि
+> यदर्थमदधाद्रूपं मात्स्यं लोकजुगुप्सितम\
+> तमःप्रकृतिदुर्मर्षं कर्मग्रस्त इवेश्वरः ॥२॥\
+> एतन्नो भगवन्सर्वं यथावद्वक्तुमर्हसि\
 > उत्तमश्लोकचरितं सर्वलोकसुखावहम ॥३॥
 
-> yad-artham adadhād rūpaṁ
-> mātsyaṁ loka-jugupsitam
-> tamaḥ-prakṛti-durmarṣaṁ
+> yad-artham adadhād rūpaṁ\
+> mātsyaṁ loka-jugupsitam\
+> tamaḥ-prakṛti-durmarṣaṁ\
 > karma-grasta iveśvaraḥ
 
-> etan no bhagavan sarvaṁ
-> yathāvad vaktum arhasi
-> uttamaśloka-caritaṁ
+> etan no bhagavan sarvaṁ\
+> yathāvad vaktum arhasi\
+> uttamaśloka-caritaṁ\
 > sarva-loka-sukhāvaham
 
 *yat-artham*—for what purpose; *adadhāt*—accepted; *rūpam*—form; *mātsyam*—of a fish; *loka-jugupsitam*—which is certainly not very favorable in this world; *tamaḥ*—in the mode of ignorance; *prakṛti*—such behavior; *durmarṣam*—which is certainly very painful and condemned; *karma-grastaḥ*—one who is under the laws of *karma*; *iva*—like; *īśvaraḥ*—the Supreme Personality of Godhead; *etat*—all these facts; *naḥ*—unto us; *bhagavan*—O most powerful sage; *sarvam*—everything; *yathāvat*—properly; *vaktum arhasi*—kindly describe; *uttamaśloka-caritam*—the pastimes of the Supreme Personality of Godhead; *sarva-loka-sukha-āvaham*—by hearing of which everyone becomes happy.

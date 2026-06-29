@@ -1,9 +1,9 @@
 ### CC Antya 3.24
 
-> আমা হৈতে যে না হয়, সে তোমা হৈতে হয় ।
+> আমা হৈতে যে না হয়, সে তোমা হৈতে হয় ।\
 > আমারে করিলা দণ্ড, আন কেবা হয় ॥২৪॥
 
-> āmā haite ye nā haya, se tomā haite haya
+> āmā haite ye nā haya, se tomā haite haya\
 > āmāre karilā daṇḍa, āna kebā haya
 
 *āmā haite*—from Me; *ye*—whatever; *nā haya*—is not; *se*—that; *tomā haite*—from you; *haya*—becomes possible; *āmāre*—Me; *karilā daṇḍa*—punished; *āna*—others; *kebā haya*—what to speak of.

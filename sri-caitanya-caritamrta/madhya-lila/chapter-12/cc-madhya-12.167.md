@@ -1,9 +1,9 @@
 ### CC Madhya 12.167
 
-> প্রভু কহে, — মোরে দেহ’ লাফ্রা-ব্যঞ্জনে ।
+> প্রভু কহে, — মোরে দেহ’ লাফ্রা-ব্যঞ্জনে ।\
 > পিঠা-পানা, অমৃত-গুটিকা দেহ’ ভক্তগণে ॥১৬৭॥
 
-> prabhu kahe,-more deha' lāphrā-vyañjane
+> prabhu kahe,-more deha' lāphrā-vyañjane\
 > piṭhā-pānā, amṛta-guṭikā deha' bhakta-gaṇe
 
 *prabhu kahe*—the Lord said; *more*—unto Me; *deha'*—give; *lāphrā-vyañjane*—ordinary vegetable; *piṭhā-pānā*—cakes and sweet rice; *amṛta-guṭikā*—and the preparation named *amṛta-guṭikā*; *deha'*—deliver; *bhakta-gaṇe*—to the devotees.

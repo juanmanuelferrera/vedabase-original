@@ -1,20 +1,20 @@
 ### SB 9.23.30-31
 
-> माधवा वृष्णयो राजन्यादवाश्चेति संज्ञइताः
-> यदुपुत्रस्य च क्रोष्टोः पुत्रो वृजिनवांस्ततः ॥३०॥
-> स्वाहितोऽतो विषद्गुर्वै तस्य चित्ररथस्ततः
+> माधवा वृष्णयो राजन्यादवाश्चेति संज्ञइताः\
+> यदुपुत्रस्य च क्रोष्टोः पुत्रो वृजिनवांस्ततः ॥३०॥\
+> स्वाहितोऽतो विषद्गुर्वै तस्य चित्ररथस्ततः\
 > शशबिन्दुर्महायोगी महाभागो महानभूत ॥३१॥
 
-> mādhavā vṛṣṇayo rājan
-> yādavāś ceti saṁjñitāḥ
-> yadu-putrasya ca kroṣṭoḥ
+> mādhavā vṛṣṇayo rājan\
+> yādavāś ceti saṁjñitāḥ\
+> yadu-putrasya ca kroṣṭoḥ\
 > putro vṛjinavāṁs tataḥ
 
-> svāhito 'to viṣadgur vai
-> tasya citrarathas tataḥ
-> śaśabindur mahā-yogī
-> mahā-bhāgo mahān abhūt
-> caturdaśa-mahāratnaś
+> svāhito 'to viṣadgur vai\
+> tasya citrarathas tataḥ\
+> śaśabindur mahā-yogī\
+> mahā-bhāgo mahān abhūt\
+> caturdaśa-mahāratnaś\
 > cakravarty aparājitaḥ
 
 *mādhavāḥ*—la dinastía que comienza con Madhu; *vṛṣṇayaḥ*—la dinastía que comienza con Vṛṣṇi; *rājan*—¡oh, rey (Mahārāja Parīkṣit)!; *yādavāḥ*—la dinastía que comienza con Yadu; *ca*—y; *iti*—así; *saṁjñitāḥ*—que reciben los nombres de esas personas; *yadu-putrasya*—del hijo de Yadu; *ca*—también; *kroṣṭoḥ*—de Kroṣṭā; *putraḥ*—el hijo; *vṛjinavān*—su nombre fue Vṛjinavān; *tataḥ*—de él (de Vṛjinavān); *svāhitaḥ*—Svāhita; *ataḥ*—a continuación; *viṣadguḥ*—un hijo llamado Viṣadgu; *vai*—en verdad; *tasya*—de él; *citrarathaḥ*—Citraratha; *tataḥ*—de él; *śaśabinduḥ*—Śaśabindu; *mahā-yogī*—un gran místico; *mahā-bhāgaḥ*—muy afortunado; *mahān*—una gran personalidad; *abhūt*—fue; *caturdaśa-mahāratnaḥ*—catorce tipos de grandes opulencias; *cakravartī*—poseyó como emperador; *aparājitaḥ*—no vencido por nadie.

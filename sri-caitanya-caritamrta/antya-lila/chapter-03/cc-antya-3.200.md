@@ -1,9 +1,9 @@
 ### CC Antya 3.200
 
-> শুনি’ সভাসদ্ উঠে করি’ হাহাকার ।
+> শুনি’ সভাসদ্ উঠে করি’ হাহাকার ।\
 > মজুমদার সেই বিপ্রে করিল ধিক্কার ॥২০০॥
 
-> śuni' sabhā-sad uṭhe kari' hāhākāra
+> śuni' sabhā-sad uṭhe kari' hāhākāra\
 > majumadāra sei vipre karila dhikkāra
 
 *śuni'*—hearing; *sabhā-sat*—all the members of the assembly; *uṭhe*—got up; *kari' hāhā-kāra*—making a tumultuous sound; *majumadāra*—Hiraṇya and Govardhana Majumadāra; *sei vipre*—unto that *brāhmaṇa* who was their servant; *karila*—made; *dhik-kāra*—chastisement.

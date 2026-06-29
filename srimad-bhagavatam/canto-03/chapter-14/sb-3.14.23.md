@@ -1,11 +1,11 @@
 ### SB 3.14.23
 
-> एषा घोरतमा वेला घोराणां घोरदर्शना ।
+> एषा घोरतमा वेला घोराणां घोरदर्शना ।\
 > चरन्ति यस्यां भूतानि भूतेशानुचराणि ह ॥२३॥
 
-> eṣā ghoratamā velā
-> ghorāṇāṁ ghora-darśanā
-> caranti yasyāṁ bhūtāni
+> eṣā ghoratamā velā\
+> ghorāṇāṁ ghora-darśanā\
+> caranti yasyāṁ bhūtāni\
 > bhūteśānucarāṇi ha
 
 *eṣā*—this time; *ghora-tamā*—most horrible; *velā*—period; *ghorāṇām*—of the horrible; *ghora-darśanā*—horrible looking; *caranti*—move; *yasyām*—in which; *bhūtāni*—ghosts; *bhūta-īśa*—the lord of the ghosts; *anucarāṇi*—constant companions; *ha*—indeed.

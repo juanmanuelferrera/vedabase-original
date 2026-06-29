@@ -1,9 +1,9 @@
 ### CC Adi 17.223
 
-> শুনি’ প্রভু ‘হরি’ বলি’ উঠিলা আপনি ।
+> শুনি’ প্রভু ‘হরি’ বলি’ উঠিলা আপনি ।\
 > উঠিল বৈষ্ণব সব করি’ হরি-ধ্বনি ॥২২৩॥
 
-> śuni' prabhu 'hari' bali' uṭhilā āpani
+> śuni' prabhu 'hari' bali' uṭhilā āpani\
 > uṭhila vaiṣṇava saba kari' hari-dhvani
 
 *śuni'*—al escuchar; *prabhu*—el Señor; *hari*—el santo nombre del Señor; *bali'*—cantando; *uṭhilā*—se levantó; *āpani*—personalmente; *uṭhila*—se levantaron; *vaiṣṇava*—los otros devotos; *saba*—todos; *kari'*—haciendo; *hari-dhvani*—la vibración del santo nombre «Hari, Hari».

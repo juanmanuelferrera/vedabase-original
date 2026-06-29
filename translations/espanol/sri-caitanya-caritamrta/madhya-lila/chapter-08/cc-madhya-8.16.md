@@ -1,9 +1,9 @@
 ### CC Madhya 8.16
 
-> প্রভু তাঁরে দেখি’ জানিল — এই রামরায় ৷
+> প্রভু তাঁরে দেখি’ জানিল — এই রামরায় ৷\
 > তাঁহারে মিলিতে প্রভুর মন উঠি’ ধায় ৷৷ ১৬ ৷৷ ॥১৬॥
 
-> prabhu tāṅre dekhi' jānila--ei rāma-rāya
+> prabhu tāṅre dekhi' jānila--ei rāma-rāya\
 > tāṅhāre milite prabhura mana uṭhi' dhāya
 
 *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a él; *dekhi'*—al ver; *jānila*—pudo comprender; *ei*—este es; *rāma-rāya*—Śrīla Rāmānanda Rāya; *tāṅhāre*—a él; *milite*—encontrarse; *prabhura*—del Señor Caitanya Mahāprabhu; *mana*—la mente; *uṭhi'*—alzándose; *dhāya*—corre tras él.

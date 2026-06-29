@@ -1,11 +1,11 @@
 ### CC Antya 14.53
 
-> চিন্তাত্র জাগরোদ্বেগৌ তানবং মলিনাঙ্গতা ।
+> চিন্তাত্র জাগরোদ্বেগৌ তানবং মলিনাঙ্গতা ।\
 > প্রলাপো ব্যাধিরুন্মাদো মোহো মৃত্যুর্দশা দশ ॥৫৩॥
 
-> cintātra jāgarodvegau
-> tānavaṁ malināṅgatā
-> pralāpo vyādhir unmādo
+> cintātra jāgarodvegau\
+> tānavaṁ malināṅgatā\
+> pralāpo vyādhir unmādo\
 > moho mṛtyur daśā daśa
 
 *cintā*—anxiety; *atra*—here (because of separation from Kṛṣṇa); *jāgara*—wakefulness; *udvegau*—and mental agitation; *tānavam*—thinness; *malina-aṅgatā*—an unclean, almost dirty state of the body; *pralāpaḥ*—talking like a madman; *vyādhiḥ*—disease; *unmādaḥ*—madness; *mohaḥ*—illusion; *mṛtyuḥ*—death; *daśā*—conditions; *daśa*—ten.

@@ -1,11 +1,11 @@
 ### SB 4.22.27
 
-> दग्धाशयो मुक्तसमस्ततद्गुणो नैवात्मनो बहिरन्तर्विचष्टे ।
+> दग्धाशयो मुक्तसमस्ततद्गुणो नैवात्मनो बहिरन्तर्विचष्टे ।\
 > परात्मनोर्यद्व्यवधानं पुरस्तात्स्वप्ने यथा पुरुषस्तद्विनाशे ॥२७॥
 
-> dagdhāśayo mukta-samasta-tad-guṇo
-> naivātmano bahir antar vicaṣṭe
-> parātmanor yad-vyavadhānaṁ purastāt
+> dagdhāśayo mukta-samasta-tad-guṇo\
+> naivātmano bahir antar vicaṣṭe\
+> parātmanor yad-vyavadhānaṁ purastāt\
 > svapne yathā puruṣas tad-vināśe
 
 *dagdha-āśayaḥ*—all material desires being burned; *mukta*—liberated; *samasta*—all; *tat-guṇaḥ*—qualities in connection with matter; *na*—not; *eva*—certainly; *ātmanaḥ*—the soul or the Supersoul; *bahiḥ*—external; *antaḥ*—internal; *vicaṣṭe*—acting; *para-ātmanoḥ*—of the Supersoul; *yat*—that; *vyavadhānam*—difference; *purastāt*—as it was in the beginning; *svapne*—in dream; *yathā*—as; *puruṣaḥ*—a person; *tat*—that; *vināśe*—being finished.

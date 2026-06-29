@@ -1,9 +1,9 @@
 ### CC Antya 12.119
 
-> এত বলি’ ঘর হৈতে তৈল-কলস লঞা ।
+> এত বলি’ ঘর হৈতে তৈল-কলস লঞা ।\
 > প্রভুর আগে আঙ্গিনাতে ফেলিলা ভাঙ্গিয়া ॥১১৯॥
 
-> eta bali' ghara haite taila-kalasa lañā
+> eta bali' ghara haite taila-kalasa lañā\
 > prabhura āge āṅgināte phelilā bhāṅgiyā
 
 *eta bali'*—diciendo esto; *ghara haite*—de la habitación; *taila-kalasa*—la jarra de aceite; *lañā*—tomando; *prabhura āge*—delante de Śrī Caitanya Mahāprabhu; *āṅgināte*—en el patio; *phelilā*—arrojó; *bhāṅgiyā*—rompiéndola.

@@ -1,11 +1,11 @@
 ### SB 3.14.4
 
-> श्रद्दधानाय भक्ताय ब्रूहि तज्जन्मविस्तरम् ।
+> श्रद्दधानाय भक्ताय ब्रूहि तज्जन्मविस्तरम् ।\
 > ऋषे न तृप्यति मनः परं कौतूहलं हि मे ॥४॥
 
-> śraddadhānāya bhaktāya
-> brūhi taj-janma-vistaram
-> ṛṣe na tṛpyati manaḥ
+> śraddadhānāya bhaktāya\
+> brūhi taj-janma-vistaram\
+> ṛṣe na tṛpyati manaḥ\
 > paraṁ kautūhalaṁ hi me
 
 *śraddadhānāya*—a una persona fiel; *bhaktāya*—a un devoto; *brūhi*—por favor, narra; *tat*—Su; *janma*—aparición; *vistaram*—en detalle; *ṛṣe*—¡oh, gran sabio!; *na*—no; *tṛpyati*—se satisface; *manaḥ*—mente; *param*—muy; *kautūhalam*—inquisitiva; *hi*—ciertamente; *me*—mi.

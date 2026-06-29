@@ -1,11 +1,11 @@
 ### SB 3.6.7
 
-> स वै विश्वसृजां गर्भो देवकर्मात्मशक्तिमान् ।
+> स वै विश्वसृजां गर्भो देवकर्मात्मशक्तिमान् ।\
 > विबभाजात्मनात्मानमेकधा दशधा त्रिधा ॥७॥
 
-> sa vai viśva-sṛjāṁ garbho
-> deva-karmātma-śaktimān
-> vibabhājātmanātmānam
+> sa vai viśva-sṛjāṁ garbho\
+> deva-karmātma-śaktimān\
+> vibabhājātmanātmānam\
 > ekadhā daśadhā tridhā
 
 *saḥ*—that; *vai*—certainly; *viśva-sṛjām*—of the gigantic *virāṭ* form; *garbhaḥ*—total energy; *deva*—living energy; *karma*—activity of life; *ātma*—self; *śaktimān*—full with potencies; *vibabhāja*—divided; *ātmanā*—by Himself; *ātmānam*—Himself; *ekadhā*—in oneness; *daśadhā*—in ten; *tridhā*—and in three.

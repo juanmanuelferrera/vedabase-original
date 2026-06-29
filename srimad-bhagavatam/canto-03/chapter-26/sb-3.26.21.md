@@ -1,11 +1,11 @@
 ### SB 3.26.21
 
-> यत्तत्सत्त्वगुणं स्वच्छं शान्तं भगवतः पदम् ।
+> यत्तत्सत्त्वगुणं स्वच्छं शान्तं भगवतः पदम् ।\
 > यदाहुर्वासुदेवाख्यं चित्तं तन्महदात्मकम् ॥२१॥
 
-> yat tat sattva-guṇaṁ svacchaṁ
-> śāntaṁ bhagavataḥ padam
-> yad āhur vāsudevākhyaṁ
+> yat tat sattva-guṇaṁ svacchaṁ\
+> śāntaṁ bhagavataḥ padam\
+> yad āhur vāsudevākhyaṁ\
 > cittaṁ tan mahad-ātmakam
 
 *yat*—which; *tat*—that; *sattva-guṇam*—the mode of goodness; *svaccham*—clear; *śāntam*—sober; *bhagavataḥ*—of the Personality of Godhead; *padam*—the status of understanding; *yat*—which; *āhuḥ*—is called; *vāsudeva-ākhyam*—by the name *vāsudeva*; *cittam*—consciousness; *tat*—that; *mahat-ātmakam*—manifest in the *mahat-tattva.*

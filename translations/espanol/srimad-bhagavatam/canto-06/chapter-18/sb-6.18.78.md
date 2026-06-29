@@ -1,11 +1,11 @@
 ### SB 6.18.78
 
-> एवं ते सर्वमाख्यातं यन्मां त्वं परिपृच्छसि
+> एवं ते सर्वमाख्यातं यन्मां त्वं परिपृच्छसि\
 > मङ्गलं मरुतां जन्म किं भूयः कथयामि ते ॥७८॥
 
-> evaṁ te sarvam ākhyātaṁ
-> yan māṁ tvaṁ paripṛcchasi
-> maṅgalaṁ marutāṁ janma
+> evaṁ te sarvam ākhyātaṁ\
+> yan māṁ tvaṁ paripṛcchasi\
+> maṅgalaṁ marutāṁ janma\
 > kiṁ bhūyaḥ kathayāmi te
 
 *evam*—así; *te*—a ti; *sarvam*—todo; *ākhyātam*—narrado; *yat*—lo que; *mām*—a mí; *tvam*—tú; *paripṛcchasi*—preguntaste; *maṅgalam*—auspicioso; *marutām*—de los Maruts; *janma*—el nacimiento; *kim*—qué; *bhūyaḥ*—más; *kathayāmi*—diré; *te*—a ti.

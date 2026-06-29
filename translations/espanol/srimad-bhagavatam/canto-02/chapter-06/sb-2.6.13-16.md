@@ -1,32 +1,32 @@
 ### SB 2.6.13-16
 
-> अहं भवान्भवश्चैव त इमे मुनयोऽग्रजाः ।
-> सुरासुरनरा नागाः खगा मृगसरीसृपाः ॥१३॥
-> गन्धर्वाप्सरसो यक्षा रक्षोभूतगणोरगाः ।
-> पशवः पितरः सिद्धा विद्याध्राश्चारणा द्रुमाः ॥१४॥
-> अन्ये च विविधा जीवाजलस्थलनभौकसः ।
-> ग्रहर्क्षकेतवस्तारास्तडितः स्तनयित्नवः ॥१५॥
-> सर्वं पुरुष एवेदं भूतं भव्यं भवच्च यत् ।
+> अहं भवान्भवश्चैव त इमे मुनयोऽग्रजाः ।\
+> सुरासुरनरा नागाः खगा मृगसरीसृपाः ॥१३॥\
+> गन्धर्वाप्सरसो यक्षा रक्षोभूतगणोरगाः ।\
+> पशवः पितरः सिद्धा विद्याध्राश्चारणा द्रुमाः ॥१४॥\
+> अन्ये च विविधा जीवाजलस्थलनभौकसः ।\
+> ग्रहर्क्षकेतवस्तारास्तडितः स्तनयित्नवः ॥१५॥\
+> सर्वं पुरुष एवेदं भूतं भव्यं भवच्च यत् ।\
 > तेनेदमावृतं विश्वं वितस्तिमधितिष्ठति ॥१६॥
 
-> ahaṁ bhavān bhavaś caiva
-> ta ime munayo 'grajāḥ
-> surāsura-narā nāgāḥ
+> ahaṁ bhavān bhavaś caiva\
+> ta ime munayo 'grajāḥ\
+> surāsura-narā nāgāḥ\
 > khagā mṛga-sarīsṛpāḥ
 
-> gandharvāpsaraso yakṣā
-> rakṣo-bhūta-gaṇoragāḥ
-> paśavaḥ pitaraḥ siddhā
+> gandharvāpsaraso yakṣā\
+> rakṣo-bhūta-gaṇoragāḥ\
+> paśavaḥ pitaraḥ siddhā\
 > vidyādhrāś cāraṇā drumāḥ
 
-> anye ca vividhā jīvā
-> jala-sthala-nabhaukasaḥ
-> graharkṣa-ketavas tārās
+> anye ca vividhā jīvā\
+> jala-sthala-nabhaukasaḥ\
+> graharkṣa-ketavas tārās\
 > taḍitaḥ stanayitnavaḥ
 
-> sarvaṁ puruṣa evedaṁ
-> bhūtaṁ bhavyaṁ bhavac ca yat
-> tenedam āvṛtaṁ viśvaṁ
+> sarvaṁ puruṣa evedaṁ\
+> bhūtaṁ bhavyaṁ bhavac ca yat\
+> tenedam āvṛtaṁ viśvaṁ\
 > vitastim adhitiṣṭhati
 
 *aham*—yo; *bhavān*—tú; *bhavāḥ*—el Señor Śiva; *ca*—también; *eva*—ciertamente; *te*—ellos; *ime*—todos; *munayaḥ*—los grandes sabios; *agrajāḥ*—nacidos antes que tú; *sura*—los semidioses; *asura*—los demonios; *narāḥ*—los seres humanos; *nāgāḥ*—los habitantes del planeta Nāga; *khagāḥ*—pájaros; *mṛga*—bestias; *sarīsṛpāḥ*—reptiles; *gandharva-apsarasaḥ, yakṣāḥ, rakṣaḥ-bhūta-gaṇa-uragāḥ, paśavaḥ, pitaraḥ, siddhāḥ, vidyādhrāḥ, cāraṇāḥ*—habitantes todos de diferentes planetas; *drumāḥ*—el reino vegetal; *anye*—muchas otras; *ca*—también; *vividhāḥ*—de diferentes variedades; *jīvāḥ*—las entidades vivientes; *jala*—agua; *sthala*—tierra; *nabha-okasaḥ*—los habitantes del cielo, o los pájaros; *graha*—los asteroides; *ṛkṣa*—las estrellas influyentes; *ketavaḥ*—los cometas; *tārāḥ*—los luminares; *taḍitaḥ*—el relámpago; *stanayitnavaḥ*—el sonido de la nubes; *sarvam*—todo; *puruṣaḥ*—la Personalidad de Dios; *eva idam*—indudablemente todos estos; *bhūtam*—todo lo que es creado; *bhavyam*—todo lo que será creado; *bhavat*—y todo lo que fue creado en el pasado; *ca*—también; *yat*—todo aquello; *tena idam*—es todo por Él; *āvṛtam*—cubierto; *viśvam*—que abarca universalmente; *vitastim*—medio codo; *adhitiṣṭhati*—situado.

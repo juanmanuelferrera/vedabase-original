@@ -1,9 +1,9 @@
 ### CC Madhya 8.166
 
-> রাধা-প্রতি কৃষ্ণ-স্নেহ — সুগন্ধি উদ্বর্তন ৷
+> রাধা-প্রতি কৃষ্ণ-স্নেহ — সুগন্ধি উদ্বর্তন ৷\
 > তা’তে অতি সুগন্ধি দেহ — উজ্জ্বল-বরণ ৷৷ ১৬৬ ৷৷ ॥১৬৬॥
 
-> rādhā-prati kṛṣṇa-sneha--sugandhi udvartana
+> rādhā-prati kṛṣṇa-sneha--sugandhi udvartana\
 > tā'te ati sugandhi deha--ujjvala-varaṇa
 
 *rādhā-prati*—hacia Śrīmatī Rādhārāṇī; *kṛṣṇa-sneha*—el afecto del Señor Kṛṣṇa; *su-gandhi udvartana*—masaje perfumado; *tā'te*—en eso; *ati*—muy; *su-gandhi*—perfumado; *deha*—el cuerpo; *ujjvala*—brillante; *varaṇa*—lustre.

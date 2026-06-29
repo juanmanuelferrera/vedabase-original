@@ -1,9 +1,9 @@
 ### CC Adi 2.49
 
-> কারণাব্ধি-গর্ভোদক-ক্ষীরোদকশায়ী ।
+> কারণাব্ধি-গর্ভোদক-ক্ষীরোদকশায়ী ।\
 > মায়াদ্বারে সৃষ্টি করে, তাতে সব মায়ী ॥৪৯॥
 
-> kāraṇābdhi-garbhodaka-kṣīrodaka-śāyī
+> kāraṇābdhi-garbhodaka-kṣīrodaka-śāyī\
 > māyā-dvāre sṛṣṭi kare, tāte saba māyī
 
 *kāraṇa-abdhi*—Kāraṇodakaśāyī Viṣṇu; *garbha-udaka*—Garbhodakaśāyī Viṣṇu; *kṣīra-udaka-śāyī*—Kṣīrodakaśāyī Viṣṇu; *māyā-dvāre*—con la energía material; *sṛṣṭi*—creación; *kare*—llevan a cabo; *tāte*—por eso; *saba*—todos; *māyī*—conectados con la māyā.

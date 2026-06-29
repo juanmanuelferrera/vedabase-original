@@ -1,9 +1,9 @@
 ### CC Madhya 4.18
 
-> মহাপ্রসাদ-ক্ষীর-লোভে রহিলা প্রভু তথা ।
+> মহাপ্রসাদ-ক্ষীর-লোভে রহিলা প্রভু তথা ।\
 > পূর্বে ঈশ্বরপুরী তাঁরে কহিয়াছেন কথা ॥১৮॥
 
-> mahāprasāda-kṣīra-lobhe rahilā prabhu tathā
+> mahāprasāda-kṣīra-lobhe rahilā prabhu tathā\
 > pūrve īśvara-purī tāṅre kahiyāchena kathā
 
 *mahā-prasāda*—for the remnants of food; *kṣīra*—sweet rice; *lobhe*—in eagerness; *rahilā*—remained; *prabhu*—the Lord; *tathā*—there; *pūrve*—before that; *īśvara-purī*—Īśvara Purī, His spiritual master; *tāṅre*—unto Him; *kahiyāchena*—told; *kathā*—a narration.

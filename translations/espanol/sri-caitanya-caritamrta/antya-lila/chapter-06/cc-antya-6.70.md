@@ -1,9 +1,9 @@
 ### CC Antya 6.70
 
-> কেহ উপরে, কেহ তলে, কেহ গঙ্গাতীরে ।
+> কেহ উপরে, কেহ তলে, কেহ গঙ্গাতীরে ।\
 > বিশজন তিন-ঠাঞি পরিবেশন করে ॥৭০॥
 
-> keha upare, keha tale, keha gaṅgā-tīre
+> keha upare, keha tale, keha gaṅgā-tīre\
 > biśa-jana tina-ṭhāñi pariveśana kare
 
 *keha upare*—algunos en la plataforma; *keha tale*—algunos a los pies de la plataforma; *keha gaṅgā-tīre*—algunos en la orilla del Ganges; *biśa-jana*—veinte hombres; *tina-ṭhāñi*—en tres lugares; *pariveśana kare*—distribuyeron.

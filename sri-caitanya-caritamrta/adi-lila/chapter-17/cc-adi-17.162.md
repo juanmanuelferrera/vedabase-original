@@ -1,9 +1,9 @@
 ### CC Adi 17.162
 
-> জরদ্গব হঞা যুবা হয় আরবার ।
+> জরদ্গব হঞা যুবা হয় আরবার ।\
 > তাতে তার বধ নহে, হয় উপকার ॥১৬২॥
 
-> jarad-gava hañā yuvā haya āra-vāra
+> jarad-gava hañā yuvā haya āra-vāra\
 > tāte tāra vadha nahe, haya upakāra
 
 *jarad-gava*—old, invalid cows; *hañā*—becoming; *yuvā*—young; *haya*—become; *āra-vāra*—again; *tāte*—in that action; *tāra*—his; *vadha*—killing; *nahe*—is not; *haya*—there is; *upakāra*—benefit.

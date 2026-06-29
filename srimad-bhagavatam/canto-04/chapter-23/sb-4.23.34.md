@@ -1,11 +1,11 @@
 ### SB 4.23.34
 
-> अस्पष्टकीर्तिः सुयशा मूर्खो भवति पण्डितः ।
+> अस्पष्टकीर्तिः सुयशा मूर्खो भवति पण्डितः ।\
 > इदं स्वस्त्ययनं पुंसाममङ्गल्यनिवारणम् ॥३४॥
 
-> aspaṣṭa-kīrtiḥ suyaśā
-> mūrkho bhavati paṇḍitaḥ
-> idaṁ svasty-ayanaṁ puṁsām
+> aspaṣṭa-kīrtiḥ suyaśā\
+> mūrkho bhavati paṇḍitaḥ\
+> idaṁ svasty-ayanaṁ puṁsām\
 > amaṅgalya-nivāraṇam
 
 *aspaṣṭa-kīrtiḥ*—unmanifested reputation; *su-yaśāḥ*—very famous; *mūrkhaḥ*—illiterate; *bhavati*—becomes; *paṇḍitaḥ*—learned; *idam*—this; *svasti-ayanam*—auspiciousness; *puṁsām*—of the men; *amaṅgalya*—inauspiciousness; *nivāraṇam*—prohibiting.

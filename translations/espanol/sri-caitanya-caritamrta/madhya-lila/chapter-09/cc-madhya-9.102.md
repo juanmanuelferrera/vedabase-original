@@ -1,9 +1,9 @@
 ### CC Madhya 9.102
 
-> প্রভু কহে, — গীতা-পাঠে তোমারই অধিকার ৷
+> প্রভু কহে, — গীতা-পাঠে তোমারই অধিকার ৷\
 > তুমি সে জানহ এই গীতার অর্থ-সার ৷৷ ১০২ ৷৷ ॥১০২॥
 
-> prabhu kahe,--gītā-pāṭhe tomārā-i adhikāra
+> prabhu kahe,--gītā-pāṭhe tomārā-i adhikāra\
 > tumi se jānaha ei gītāra artha-sāra
 
 *prabhu kahe*—el Señor respondió; *gītā-pāṭhe*—en la lectura del Bhagavad-gītā; *tomārāi adhikāra*—tú tienes la debida autoridad; *tumi*—tú; *se*—eso; *jānaha*—sabes; *ei*—este; *gītāra*—del Bhagavad-gītā; *artha-sāra*—el verdadero significado.

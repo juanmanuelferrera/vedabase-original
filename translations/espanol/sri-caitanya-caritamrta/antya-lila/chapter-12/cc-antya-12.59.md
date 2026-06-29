@@ -1,9 +1,9 @@
 ### CC Antya 12.59
 
-> মুকুন্দার মাতার নাম শুনি’ প্রভু সঙ্কোচ হৈলা ।
+> মুকুন্দার মাতার নাম শুনি’ প্রভু সঙ্কোচ হৈলা ।\
 > তথাপি তাহার প্রীতে কিছু না বলিলা ॥৫৯॥
 
-> mukundāra mātāra nāma śuni' prabhu saṅkoca hailā
+> mukundāra mātāra nāma śuni' prabhu saṅkoca hailā\
 > tathāpi tāhāra prīte kichu nā balilā
 
 *mukundāra mātāra*—de la madre de Mukunda; *nāma*—el nombre; *śuni'*—al oír; *prabhu*—Śrī Caitanya Mahāprabhu; *saṅkoca hailā*—sintió cierta vacilación; *tathāpi*—aun así; *tāhāra*—de Parameśvara; *prīte*—por afecto; *kichu*—algo; *nā balilā*—no dijo.

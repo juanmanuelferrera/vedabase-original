@@ -1,11 +1,11 @@
 ### SB 1.3.23
 
-> एकोनविंशे विंशतिमे वृष्णिषु प्राप्य जन्मनी ।
+> एकोनविंशे विंशतिमे वृष्णिषु प्राप्य जन्मनी ।\
 > रामकृष्णाविति भुवो भगवानहरद्भरम् ॥२३॥
 
-> ekonaviṁśe viṁśatime
-> vṛṣṇiṣu prāpya janmanī
-> rāma-kṛṣṇāv iti bhuvo
+> ekonaviṁśe viṁśatime\
+> vṛṣṇiṣu prāpya janmanī\
+> rāma-kṛṣṇāv iti bhuvo\
 > bhagavān aharad bharam
 
 *ekonaviṁśe*—in the nineteenth; *viṁśatime*—in the twentieth also; *vṛṣṇiṣu*—in the Vṛṣṇi dynasty; *prāpya*—having obtained; *janmanī*—births; *rāma*—Balarāma; *kṛṣṇau*—Śrī Kṛṣṇa; *iti*—thus; *bhuvaḥ*—of the world; *bhagavān*—the Personality of Godhead; *aharat*—removed; *bharam*—burden.

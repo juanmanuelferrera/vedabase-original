@@ -1,9 +1,9 @@
 ### CC Adi 10.40
 
-> শ্রীমুকুন্দ-দত্ত শাখা — প্রভুর সমাধ্যায়ী ।
+> শ্রীমুকুন্দ-দত্ত শাখা — প্রভুর সমাধ্যায়ী ।\
 > যাঁহার কীর্তনে নাচে চৈতন্য-গোসাঞি ॥৪০॥
 
-> śrī-mukunda-datta śākhā—prabhura samādhyāyī
+> śrī-mukunda-datta śākhā—prabhura samādhyāyī\
 > yāṅhāra kīrtane nāce caitanya-gosāñi
 
 *śrī-mukunda-datta*—of the name Śrī Mukunda Datta; *śākhā*—another branch; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *samādhyāyī*—class friend; *yāṅhāra*—whose; *kīrtane*—in *saṅkīrtana*; *nāce*—dances; *caitanya-gosāñi*—Śrī Caitanya Mahāprabhu.

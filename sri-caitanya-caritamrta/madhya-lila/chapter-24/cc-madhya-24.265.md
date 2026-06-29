@@ -1,9 +1,9 @@
 ### CC Madhya 24.265
 
-> যথা-স্থানে নারদ গেলা, ব্যাধ ঘরে আইল ।
+> যথা-স্থানে নারদ গেলা, ব্যাধ ঘরে আইল ।\
 > নারদের উপদেশে সকল করিল ॥২৬৫॥
 
-> yathā-sthāne nārada gelā, vyādha ghare āila
+> yathā-sthāne nārada gelā, vyādha ghare āila\
 > nāradera upadeśe sakala karila
 
 *yathā-sthāne*—to the proper destination; *nārada*—sage Nārada; *gelā*—went; *vyādha*—the hunter; *ghare āila*—came back to his house; *nāradera upadeśe*—under the instruction of the sage Nārada; *sakala karila*—he executed everything.

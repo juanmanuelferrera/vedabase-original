@@ -1,11 +1,11 @@
 ### SB 6.5.16
 
-> सृष्ट्यप्ययकरीं मायां वेलाकूलान्तवेगिताम
+> सृष्ट्यप्ययकरीं मायां वेलाकूलान्तवेगिताम\
 > मत्तस्य तामविज्ञअस्य किमसत्कर्मभिर्भवेत ॥१६॥
 
-> sṛṣṭy-apyaya-karīṁ māyāṁ
-> velā-kūlānta-vegitām
-> mattasya tām avijñasya
+> sṛṣṭy-apyaya-karīṁ māyāṁ\
+> velā-kūlānta-vegitām\
+> mattasya tām avijñasya\
 > kim asat-karmabhir bhavet
 
 *sṛṣṭi*—creación; *apyaya*—disolución; *karīm*—aquel que causa; *māyām*—la energía ilusoria; *velā-kūla-anta*—cerca de las orillas; *vegitām*—que es muy rápida; *mattasya*—de quien está enloquecido; *tām*—esa naturaleza material; *avijñasya*—que no conoce; *kim asat-karmabhiḥ bhavet*—qué beneficio se puede obtener de ocuparse en actividades fruitivas, que son temporales.

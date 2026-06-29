@@ -1,11 +1,11 @@
 ### SB 3.33.22
 
-> तमेव ध्यायती देवमपत्यं कपिलं हरिम् ।
+> तमेव ध्यायती देवमपत्यं कपिलं हरिम् ।\
 > बभूवाचिरतो वत्स निःस्पृहा तादृशे गृहे ॥२२॥
 
-> tam eva dhyāyatī devam
-> apatyaṁ kapilaṁ harim
-> babhūvācirato vatsa
+> tam eva dhyāyatī devam\
+> apatyaṁ kapilaṁ harim\
+> babhūvācirato vatsa\
 > niḥspṛhā tādṛśe gṛhe
 
 *tam*—en Él; *eva*—ciertamente; *dhyāyatī*—meditando; *devam*—divino; *apatyam*—hijo; *kapilam*—el Señor Kapila; *harim*—la Suprema Personalidad de Dios; *babhūva*—se volvió; *acirataḥ*—muy pronto; *vatsa*—¡oh, querido Vidura!; *niḥspṛhā*—desapegada; *tādṛśe gṛhe*—a aquella casa.

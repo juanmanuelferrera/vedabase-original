@@ -1,9 +1,9 @@
 ### CC Adi 5.56
 
-> মহৎস্রষ্টা পুরুষ, তিঁহো জগৎ-কারণ ।
+> মহৎস্রষ্টা পুরুষ, তিঁহো জগৎ-কারণ ।\
 > আদ্য-অবতার করে মায়ায় ঈক্ষণ ॥৫৬॥
 
-> mahat-sraṣṭā puruṣa, tiṅho jagat-kāraṇa
+> mahat-sraṣṭā puruṣa, tiṅho jagat-kāraṇa\
 > ādya-avatāra kare māyāya īkṣaṇa
 
 *mahat-sraṣṭā*—el creador de la energía material total; *puruṣa*—la persona; *tiṅho*—Él; *jagat-kāraṇa*—la causa de la manifestación cósmica material; *ādya*—original; *avatāra*—encarnación; *kare*—realiza; *māyāya*—sobre la energía material; *īkṣaṇa*—mirada.

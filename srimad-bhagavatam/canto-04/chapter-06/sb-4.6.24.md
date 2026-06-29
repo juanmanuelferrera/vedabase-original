@@ -1,11 +1,11 @@
 ### SB 4.6.24
 
-> नन्दा चालकनन्दा च सरितौ बाह्यतः पुरः ।
+> नन्दा चालकनन्दा च सरितौ बाह्यतः पुरः ।\
 > तीर्थपादपदाम्भोज रजसातीव पावने ॥२४॥
 
-> nandā cālakanandā ca
-> saritau bāhyataḥ puraḥ
-> tīrthapāda-padāmbhoja-
+> nandā cālakanandā ca\
+> saritau bāhyataḥ puraḥ\
+> tīrthapāda-padāmbhoja-\
 > rajasātīva pāvane
 
 *nandā*—the Nandā; *ca*—and; *alakanandā*—the Alakanandā; *ca*—and; *saritau*—two rivers; *bāhyataḥ*—outside; *puraḥ*—from the city; *tīrtha-pāda*—of the Supreme Personality of Godhead; *pada-ambhoja*—of the lotus feet; *rajasā*—by the dust; *atīva*—exceedingly; *pāvane*—sanctified.

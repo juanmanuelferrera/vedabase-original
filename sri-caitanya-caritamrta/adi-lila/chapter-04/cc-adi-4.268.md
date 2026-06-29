@@ -1,9 +1,9 @@
 ### CC Adi 4.268
 
-> রাধাভাব অঙ্গীকরি’ ধরি’ তার বর্ণ ।
+> রাধাভাব অঙ্গীকরি’ ধরি’ তার বর্ণ ।\
 > তিনসুখ আস্বাদিতে হব অবতীর্ণ ॥২৬৮॥
 
-> rādhā-bhāva aṅgīkari' dhari' tāra varṇa
+> rādhā-bhāva aṅgīkari' dhari' tāra varṇa\
 > tina-sukha āsvādite haba avatīrṇa
 
 *rādhā-bhāva*—the moods of Rādhārāṇī; *aṅgīkari'*—accepting; *dhari'*—taking; *tāra varṇa*—Her bodily complexion; *tina*—three; *sukha*—happiness; *āsvādite*—to taste; *haba*—I shall; *avatīrṇa*—descend as an incarnation.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.26
 
-> চারি বর্ণাশ্রমী যদি কৃষ্ণ নাহি ভজে ।
+> চারি বর্ণাশ্রমী যদি কৃষ্ণ নাহি ভজে ।\
 > স্বকর্ম করিতে সে রৌরবে পড়ি’ মজে ॥২৬॥
 
-> cāri varṇāśramī yadi kṛṣṇa nāhi bhaje
+> cāri varṇāśramī yadi kṛṣṇa nāhi bhaje\
 > svakarma karite se raurave paḍi' maje
 
 *cāri varṇa-āśramī*—seguidores de los cuatro órdenes sociales y espirituales de vida; *yadi*—si; *kṛṣṇa*—el Señor Kṛṣṇa; *nāhi*—no; *bhaje*—sirven; *sva-karma karite*—cumpliendo su deber en la vida; *se*—esa persona; *raurave*—en una condición infernal; *paḍi'*—cayendo; *maje*—se sumerge.

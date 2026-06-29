@@ -1,9 +1,9 @@
 ### CC Madhya 25.213
 
-> সুবুদ্ধি-রায় বহু স্নেহ করে সনাতনে ।
+> সুবুদ্ধি-রায় বহু স্নেহ করে সনাতনে ।\
 > ব্যবহার-স্নেহ সনাতন নাহি মানে ॥২১৩॥
 
-> subuddhi-rāya bahu sneha kare sanātane
+> subuddhi-rāya bahu sneha kare sanātane\
 > vyavahāra-sneha sanātana nāhi māne
 
 *subuddhi-rāya*—Subuddhi Rāya; *bahu*—mucho; *sneha*—afecto; *kare*—muestra; *sanātane*—a Sanātana Gosvāmī; *vyavahāra-sneha*—amor y afecto debido a una relación previa; *sanātana*—Sanātana Gosvāmī; *nāhi māne*—dudaba en aceptar.

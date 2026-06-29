@@ -1,11 +1,11 @@
 ### SB 2.9.46
 
-> यदुताहं त्वया पृष्टो वैराजात्पुरुषादिदम् ।
+> यदुताहं त्वया पृष्टो वैराजात्पुरुषादिदम् ।\
 > यथासीत्तदुपाख्यास्ते प्रश्नानन्यांश्च कृत्स्नशः ॥४६॥
 
-> yad utāhaṁ tvayā pṛṣṭo
-> vairājāt puruṣād idam
-> yathāsīt tad upākhyāste
+> yad utāhaṁ tvayā pṛṣṭo\
+> vairājāt puruṣād idam\
+> yathāsīt tad upākhyāste\
 > praśnān anyāṁś ca kṛtsnaśaḥ
 
 *yat*—what; *uta*—is, however; *aham*—I; *tvayā*—by you; *pṛṣṭaḥ*—I am asked; *vairājāt*—from the universal form; *puruṣāt*—from the Personality of Godhead; *idam*—this world; *yathā*—as it; *āsīt*—was; *tat*—that; *upākhyāste*—I shall explain; *praśnān*—all the questions; *anyān*—others; *ca*—as well as; *kṛtsnaśaḥ*—in great detail.

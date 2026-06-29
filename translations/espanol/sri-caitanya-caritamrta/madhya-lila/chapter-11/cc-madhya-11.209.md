@@ -1,9 +1,9 @@
 ### CC Madhya 11.209
 
-> নানা পিঠাপানা খায় আকণ্ঠ পূরিয়া ৷
+> নানা পিঠাপানা খায় আকণ্ঠ পূরিয়া ৷\
 > মধ্যে মধ্যে ‘হরি’ কহে আনন্দিত হঞা ৷৷ ২০৯ ৷৷ ॥২০৯॥
 
-> nānā piṭhā-pānā khāya ākaṇṭha pūriyā
+> nānā piṭhā-pānā khāya ākaṇṭha pūriyā\
 > madhye madhye 'hari' kahe ānandita hañā
 
 *nānā*—diversos; *piṭhā-pānā*—pasteles y arroz dulce; *khāya*—comen; *ā-kaṇṭha pūriyā*—llenándose hasta la garganta; *madhye madhye*—de vez en cuando; *hari*—el santo nombre de Kṛṣṇa; *kahe*—dicen; *ānandita hañā*—con gran júbilo.

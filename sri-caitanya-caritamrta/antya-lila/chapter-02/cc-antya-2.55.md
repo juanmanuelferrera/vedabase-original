@@ -1,9 +1,9 @@
 ### CC Antya 2.55
 
-> কালি মধ্যাহ্নে তেঁহো আসিবেন তোমার ঘরে  ।
+> কালি মধ্যাহ্নে তেঁহো আসিবেন তোমার ঘরে  ।\
 > পাক-সামগ্রী আনহ, আমি ভিক্ষা দিমু তাঁরে ॥৫৫॥
 
-> kāli madhyāhne teṅho āsibena tomāra ghare
+> kāli madhyāhne teṅho āsibena tomāra ghare\
 > pāka-sāmagrī ānaha, āmi bhikṣā dimu tāṅre
 
 *kāli madhyāhne*—tomorrow at noon; *teṅho*—He; *āsibena*—will come; *tomāra ghare*—to your place; *pāka-sāmagrī ānaha*—please bring everything necessary for cooking; *āmi*—I; *bhikṣā dimu*—shall cook and offer food; *tāṅre*—to Him.

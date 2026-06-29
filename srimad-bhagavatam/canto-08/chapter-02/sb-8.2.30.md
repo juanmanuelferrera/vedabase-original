@@ -1,11 +1,11 @@
 ### SB 8.2.30
 
-> ततो गजेन्द्रस्य मनोबलौजसां कालेन दीर्घेण महानभूद्व्ययः
+> ततो गजेन्द्रस्य मनोबलौजसां कालेन दीर्घेण महानभूद्व्ययः\
 > विकृष्यमाणस्य जलेऽवसीदतो विपर्ययोऽभूत्सकलं जलौकसः ॥३०॥
 
-> tato gajendrasya mano-balaujasāṁ
-> kālena dīrgheṇa mahān abhūd vyayaḥ
-> vikṛṣyamāṇasya jale 'vasīdato
+> tato gajendrasya mano-balaujasāṁ\
+> kālena dīrgheṇa mahān abhūd vyayaḥ\
+> vikṛṣyamāṇasya jale 'vasīdato\
 > viparyayo 'bhūt sakalaṁ jalaukasaḥ
 
 *tataḥ*—thereafter; *gaja-indrasya*—of the King of the elephants; *manaḥ*—of the strength of enthusiasm; *bala*—the physical strength; *ojasām*—and the strength of the senses; *kālena*—because of years of fighting; *dīrgheṇa*—prolonged; *mahān*—great; *abhūt*—became; *vyayaḥ*—the expenditure; *vikṛṣyamāṇasya*—who was being pulled (by the crocodile); *jale*—into the water (a foreign place); *avasīdataḥ*—reduced (mental, physical and sensory strength); *viparyayaḥ*—the opposite; *abhūt*—became; *sakalam*—all of them; *jala-okasaḥ*—the crocodile, whose home is the water.

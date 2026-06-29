@@ -1,13 +1,13 @@
 ### CC Madhya 2.63
 
-> নানা-ভাবের প্রাবল্য, হৈল্য সন্ধি-শাবল্য,
-> ভাবে-ভাবে হৈল মহারণ ।
-> ঔৎসুক্য, চাপল্য, দৈন্য, রোষামর্ষ আদি সৈন্য,
+> নানা-ভাবের প্রাবল্য, হৈল্য সন্ধি-শাবল্য,\
+> ভাবে-ভাবে হৈল মহারণ ।\
+> ঔৎসুক্য, চাপল্য, দৈন্য, রোষামর্ষ আদি সৈন্য,\
 > প্রেমোন্মাদ — সবার কারণ ॥৬৩॥
 
-> nānā-bhāvera prābalya, haila sandhi-śābalya,
-> bhāve-bhāve haila mahā-raṇa
-> autsukya, cāpalya, dainya, roṣāmarṣa ādi sainya,
+> nānā-bhāvera prābalya, haila sandhi-śābalya,\
+> bhāve-bhāve haila mahā-raṇa\
+> autsukya, cāpalya, dainya, roṣāmarṣa ādi sainya,\
 > premonmāda—sabāra kāraṇa
 
 *nānā*—various; *bhāvera*—of ecstasies; *prābalya*—the force; *haila*—there was; *sandhi*—meeting; *śābalya*—contradiction; *bhāve-bhāve*—between ecstasies; *haila*—there was; *mahā-raṇa*—a great fight; *autsukya*—eagerness; *cāpalya*—impotence; *dainya*—humility; *roṣa-amarṣa*—anger and impatience; *ādi*—all these; *sainya*—soldiers; *prema-unmāda*—madness in love; *sabāra*—of all; *kāraṇa*—the cause.

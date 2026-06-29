@@ -1,9 +1,9 @@
 ### CC Adi 7.123
 
-> বস্তুতঃ পরিণাম-বাদ — সেই সে প্রমাণ ।
+> বস্তুতঃ পরিণাম-বাদ — সেই সে প্রমাণ ।\
 > দেহে আত্মবুদ্ধি — এই বিবর্তের স্থান ॥১২৩॥
 
-> vastutaḥ pariṇāma-vāda—sei se pramāṇa
+> vastutaḥ pariṇāma-vāda—sei se pramāṇa\
 > dehe ātma-buddhi—ei vivartera sthāna
 
 *vastutaḥ*—factually; *pariṇāma-vāda*—transformation of the energy; *sei*—that; *se*—only; *pramāṇa*—proof; *dehe*—in the body; *ātma-buddhi*—concept of self; *ei*—this; *vivartera*—of illusion; *sthāna*—place.

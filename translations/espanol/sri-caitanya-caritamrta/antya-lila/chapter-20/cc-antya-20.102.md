@@ -1,9 +1,9 @@
 ### CC Antya 20.102
 
-> এবে অন্ত্যলীলাগণের করি অনুবাদ ।
+> এবে অন্ত্যলীলাগণের করি অনুবাদ ।\
 > ‘অনুবাদ’ কৈলে পাই লীলার ‘আস্বাদ’ ॥১০২॥
 
-> ebe antya-līlā-gaṇera kari anuvāda
+> ebe antya-līlā-gaṇera kari anuvāda\
 > 'anuvāda' kaile pāi līlāra 'āsvāda'
 
 *ebe*—ahora; *antya-līlā-gaṇera kari anuvāda*—suplico que se repitan todos los hechos de este Antya-līlā; *anuvāda kaile*—si se repiten; *pāi*—obtengo; *līlāra*—del pasatiempo; *āsvāda*—sabor.

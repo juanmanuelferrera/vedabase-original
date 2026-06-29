@@ -1,9 +1,9 @@
 ### CC Madhya 25.260
 
-> ত্রয়োবিংশে — প্রেমভক্তিরসের কথন ।
+> ত্রয়োবিংশে — প্রেমভক্তিরসের কথন ।\
 > চতুর্বিংশে — ‘আত্মারামাঃ’-শ্লোকার্থ বর্ণন ॥২৬০॥
 
-> trayoviṁśe-prema-bhakti-rasera kathana
+> trayoviṁśe-prema-bhakti-rasera kathana\
 > caturviṁśe-'ātmārāmāḥ'-ślokārtha varṇana
 
 *trayaḥ-viṁśe*—in the Twenty-third Chapter; *prema-bhakti*—of ecstatic love of Godhead; *rasera*—of the mellow; *kathana*—narration; *catuḥ-viṁśe*—in the Twenty-fourth Chapter; *ātmārāmāḥ*—known as *ātmārāma*; *śloka-artha*—the meaning of the verse; *varṇana*—description.

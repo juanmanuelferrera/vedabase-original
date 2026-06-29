@@ -1,18 +1,18 @@
 ### SB 4.29.76-77
 
-> यथा तृणजलूकेयं नापयात्यपयाति च ।
-> न त्यजेन्म्रियमाणोऽपि प्राग्देहाभिमतिं जनः ॥७६॥
-> यावदन्यं न विन्देत व्यवधानेन कर्मणाम् ।
+> यथा तृणजलूकेयं नापयात्यपयाति च ।\
+> न त्यजेन्म्रियमाणोऽपि प्राग्देहाभिमतिं जनः ॥७६॥\
+> यावदन्यं न विन्देत व्यवधानेन कर्मणाम् ।\
 > मन एव मनुष्येन्द्र भूतानां भवभावनम् ॥७७॥
 
-> yathā tṛṇa-jalūkeyaṁ
-> nāpayāty apayāti ca
-> na tyajen mriyamāṇo 'pi
+> yathā tṛṇa-jalūkeyaṁ\
+> nāpayāty apayāti ca\
+> na tyajen mriyamāṇo 'pi\
 > prāg-dehābhimatiṁ janaḥ
 
-> yāvad anyaṁ na vindeta
-> vyavadhānena karmaṇām
-> mana eva manuṣyendra
+> yāvad anyaṁ na vindeta\
+> vyavadhānena karmaṇām\
+> mana eva manuṣyendra\
 > bhūtānāṁ bhava-bhāvanam
 
 *yathā*—como; *tṛṇa-jalūkā*—oruga; *iyam*—esta; *na apayāti*—no va; *apayāti*—va; *ca*—también; *na*—no; *tyajet*—abandona; *mriyamāṇaḥ*—en el momento de la muerte; *api*—incluso; *prāk*—anterior; *deha*—con el cuerpo; *abhimatim*—identificación; *janaḥ*—una persona; *yāvat*—mientras; *anyam*—otro; *na*—no; *vindeta*—obtiene; *vyavadhānena*—con la terminación; *karmaṇām*—de actividades fruitivas; *manaḥ*—la mente; *eva*—ciertamente; *manuṣya-indra*—¡oh, gobernador de los hombres!; *bhūtānām*—de todas las entidades vivientes; *bhava*—de la existencia material; *bhāvanam*—la causa.

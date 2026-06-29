@@ -1,11 +1,11 @@
 ### SB 9.19.16
 
-> या दुस्त्यजा दुर्मतिभिर्जीर्यतो या न जीर्यते
+> या दुस्त्यजा दुर्मतिभिर्जीर्यतो या न जीर्यते\
 > तां तृष्णां दुःखनिवहां शर्मकामो द्रुतं त्यजेत ॥१६॥
 
-> yā dustyajā durmatibhir
-> jīryato yā na jīryate
-> tāṁ tṛṣṇāṁ duḥkha-nivahāṁ
+> yā dustyajā durmatibhir\
+> jīryato yā na jīryate\
+> tāṁ tṛṣṇāṁ duḥkha-nivahāṁ\
 > śarma-kāmo drutaṁ tyajet
 
 *yā*—that which; *dustyajā*—extremely difficult to give up; *durmatibhiḥ*—by persons too attached to material enjoyment; *jīryataḥ*—even by one who is an invalid because of old age; *yā*—that which; *na*—not; *jīryate*—is vanquished; *tām*—such; *tṛṣṇām*—desire; *duḥkha-nivahām*—which is the cause of all tribulations; *śarma-kāmaḥ*—a person desiring his own happiness; *drutam*—very soon; *tyajet*—should give up.

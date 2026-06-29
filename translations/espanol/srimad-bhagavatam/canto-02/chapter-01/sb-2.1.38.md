@@ -1,11 +1,11 @@
 ### SB 2.1.38
 
-> इयानसावीश्वरविग्रहस्य यः सन्निवेशः कथितो मया ते ।
+> इयानसावीश्वरविग्रहस्य यः सन्निवेशः कथितो मया ते ।\
 > सन्धार्यतेऽस्मिन्वपुषि स्थविष्ठे मनः स्वबुद्ध्या न यतोऽस्ति किञ्चित् ॥३८॥
 
-> iyān asāv īśvara-vigrahasya
-> yaḥ sanniveśaḥ kathito mayā te
-> sandhāryate 'smin vapuṣi sthaviṣṭhe
+> iyān asāv īśvara-vigrahasya\
+> yaḥ sanniveśaḥ kathito mayā te\
+> sandhāryate 'smin vapuṣi sthaviṣṭhe\
 > manaḥ sva-buddhyā na yato 'sti kiñcit
 
 *iyān*—todos estos; *asau*—eso; *īśvara*—el Señor Supremo; *vigrahasya*—de la forma; *yaḥ*—en absoluto; *sanniveśaḥ*—tal como están ubicados; *kathitaḥ*—explicado; *mayā*—por mí; *te*—a ti; *sandhāryate*—uno se puede concentrar; *asmin*—en esta; *vapuṣi*—forma de *virāṭ*; *sthaviṣṭhe*—en lo burdo; *manaḥ*—la mente; *sva-buddhyā*—mediante la inteligencia de uno; *na*—no; *yataḥ*—más allá de Él; *asti*—hay; *kiñcit*—nada más.

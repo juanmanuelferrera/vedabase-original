@@ -1,11 +1,11 @@
 ### SB 3.30.9
 
-> गृहेषु कूटधर्मेषु दुःखतन्त्रेष्वतन्द्रितः ।
+> गृहेषु कूटधर्मेषु दुःखतन्त्रेष्वतन्द्रितः ।\
 > कुर्वन्दुःखप्रतीकारं सुखवन्मन्यते गृही ॥९॥
 
-> gṛheṣu kūṭa-dharmeṣu
-> duḥkha-tantreṣv atandritaḥ
-> kurvan duḥkha-pratīkāraṁ
+> gṛheṣu kūṭa-dharmeṣu\
+> duḥkha-tantreṣv atandritaḥ\
+> kurvan duḥkha-pratīkāraṁ\
 > sukhavan manyate gṛhī
 
 *gṛheṣu*—en la vida familiar; *kūṭa-dharmeṣu*—que incluye la práctica de la falsedad; *duḥkha-tantreṣu*—causando infelicidad; *atandritaḥ*—atento; *kurvan*—haciendo; *duḥkha-pratīkāram*—neutralización de las miserias; *sukha-vat*—como felicidad; *manyate*—considera; *gṛhī*—el hombre casado.

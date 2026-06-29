@@ -1,9 +1,9 @@
 ### CC Madhya 14.62
 
-> সুভদ্রা-বলরাম নিজ-সিংহাসনে আইলা ।
+> সুভদ্রা-বলরাম নিজ-সিংহাসনে আইলা ।\
 > জগন্নাথের স্নানভোগ হইতে লাগিলা ॥৬২॥
 
-> subhadrā-balarāma nija-siṁhāsane āilā
+> subhadrā-balarāma nija-siṁhāsane āilā\
 > jagannāthera snāna-bhoga ha-ite lāgilā
 
 *subhadrā-balarāma*—Subhadrā and Balarāma; *nija*—own; *siṁhāsane*—on thrones; *āilā*—arrived; *jagannāthera*—of Lord Jagannātha; *snāna-bhoga*—bathing and offering food; *ha-ite lāgilā*—began to take place.

@@ -1,11 +1,11 @@
 ### SB 9.1.30
 
-> तान्विलोक्याम्बिका देवी विवासा व्रीडिता भृशम
+> तान्विलोक्याम्बिका देवी विवासा व्रीडिता भृशम\
 > भर्तुरङ्कात्समुत्थाय नीवीमाश्वथ पर्यधात ॥३०॥
 
-> tān vilokyāmbikā devī
-> vivāsā vrīḍitā bhṛśam
-> bhartur aṅkāt samutthāya
+> tān vilokyāmbikā devī\
+> vivāsā vrīḍitā bhṛśam\
+> bhartur aṅkāt samutthāya\
 > nīvīm āśv atha paryadhāt
 
 *tān*—all the saintly persons; *vilokya*—seeing them; *ambikā*—mother Durgā; *devī*—the goddess; *vivāsā*—because she was naked; *vrīḍitā*—ashamed; *bhṛśam*—highly; *bhartuḥ*—of her husband; *aṅkāt*—from the lap; *samutthāya*—getting up; *nīvīm*—breast; *āśu atha*—very quickly; *paryadhāt*—covered with cloth.

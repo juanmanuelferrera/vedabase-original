@@ -1,9 +1,9 @@
 ### CC Madhya 23.115
 
-> তবে সনাতন সব সিদ্ধান্ত পুছিলা ।
+> তবে সনাতন সব সিদ্ধান্ত পুছিলা ।\
 > ভাগবত-সিদ্ধান্ত গূঢ় সকলি কহিলা ॥১১৫॥
 
-> tabe sanātana saba siddhānta puchilā
+> tabe sanātana saba siddhānta puchilā\
 > bhāgavata-siddhānta gūḍha sakali kahilā
 
 *tabe*—thereafter; *sanātana*—Sanātana Gosvāmī; *saba*—all; *siddhānta*—conclusive statements; *puchilā*—inquired about; *bhāgavata-siddhānta*—the conclusive statements about devotional service mentioned in *Śrīmad-Bhāgavatam*; *gūḍha*—very confidential; *sakali*—all; *kahilā*—Śrī Caitanya Mahāprabhu described.

@@ -1,11 +1,11 @@
 ### SB 3.24.11
 
-> सभाजयन्विशुद्धेन चेतसा तच्चिकीर्षितम् ।
+> सभाजयन्विशुद्धेन चेतसा तच्चिकीर्षितम् ।\
 > प्रहृष्यमाणैरसुभिः कर्दमं चेदमभ्यधात् ॥११॥
 
-> sabhājayan viśuddhena
-> cetasā tac-cikīrṣitam
-> prahṛṣyamāṇair asubhiḥ
+> sabhājayan viśuddhena\
+> cetasā tac-cikīrṣitam\
+> prahṛṣyamāṇair asubhiḥ\
 > kardamaṁ cedam abhyadhāt
 
 *sabhājayan*—worshiping; *viśuddhena*—pure; *cetasā*—with a heart; *tat*—of the Supreme Personality of Godhead; *cikīrṣitam*—the intended activities; *prahṛṣyamāṇaiḥ*—gladdened; *asubhiḥ*—with senses; *kardamam*—to Kardama Muni; *ca*—and Devahūti; *idam*—this; *abhyadhāt*—spoke.

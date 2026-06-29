@@ -1,18 +1,18 @@
 ### SB 9.15.5-6
 
-> तस्य सत्यवतीं कन्यामृचीकोऽयाचत द्विजः
-> वरं विसदृशं मत्वा गाधिर्भार्गवमब्रवीत ॥५॥
-> एकतः श्यामकर्णानां हयानां चन्द्रवर्चसाम
+> तस्य सत्यवतीं कन्यामृचीकोऽयाचत द्विजः\
+> वरं विसदृशं मत्वा गाधिर्भार्गवमब्रवीत ॥५॥\
+> एकतः श्यामकर्णानां हयानां चन्द्रवर्चसाम\
 > सहस्रं दीयतां शुल्कं कन्यायाः कुशिका वयम ॥६॥
 
-> tasya satyavatīṁ kanyām
-> ṛcīko 'yācata dvijaḥ
-> varaṁ visadṛśaṁ matvā
+> tasya satyavatīṁ kanyām\
+> ṛcīko 'yācata dvijaḥ\
+> varaṁ visadṛśaṁ matvā\
 > gādhir bhārgavam abravīt
 
-> ekataḥ śyāma-karṇānāṁ
-> hayānāṁ candra-varcasām
-> sahasraṁ dīyatāṁ śulkaṁ
+> ekataḥ śyāma-karṇānāṁ\
+> hayānāṁ candra-varcasām\
+> sahasraṁ dīyatāṁ śulkaṁ\
 > kanyāyāḥ kuśikā vayam
 
 *tasya*—of Gādhi; *satyavatīm*—Satyavatī; *kanyām*—the daughter; *ṛcīkaḥ*—the great sage Ṛcīka; *ayācata*—requested; *dvijaḥ*—the *brāhmaṇa*; *varam*—as her husband; *visadṛśam*—not equal or fit; *matvā*—thinking like that; *gādhiḥ*—King Gādhi; *bhārgavam*—unto Ṛcīka; *abravīt*—replied; *ekataḥ*—by one; *śyāma-karṇānām*—whose ear is black; *hayānām*—horses; *candra-varcasām*—as brilliant as the moonshine; *sahasram*—one thousand; *dīyatām*—please deliver; *śulkam*—as a dowry; *kanyāyāḥ*—to my daughter; *kuśikāḥ*—in the family of Kuśa; *vayam*—we (are).

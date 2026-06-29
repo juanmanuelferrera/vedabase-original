@@ -1,9 +1,9 @@
 ### CC Madhya 16.165
 
-> লক্ষ লক্ষ লোক আইসে তাহা দেখিবারে ।
+> লক্ষ লক্ষ লোক আইসে তাহা দেখিবারে ।\
 > তাঁরে দেখি’ পুনরপি যাইতে নারে ঘরে ॥১৬৫॥
 
-> lakṣa lakṣa loka āise tāhā dekhibāre
+> lakṣa lakṣa loka āise tāhā dekhibāre\
 > tāṅre dekhi' punarapi yāite nāre ghare
 
 *lakṣa lakṣa*—millones y millones; *loka*—personas; *āise*—vienen; *tāhā*—eso; *dekhibāre*—a ver; *tāṅre dekhi'*—después de verlo; *punarapi*—otra vez; *yāite*—ir; *nāre*—no pueden; *ghare*—a casa.

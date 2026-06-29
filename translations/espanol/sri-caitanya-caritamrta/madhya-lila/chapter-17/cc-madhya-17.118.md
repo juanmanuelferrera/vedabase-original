@@ -1,9 +1,9 @@
 ### CC Madhya 17.118
 
-> যেই তাঁরে দেখে, সেই ঈশ্বর করি’ কহে ।
+> যেই তাঁরে দেখে, সেই ঈশ্বর করি’ কহে ।\
 > ঐছে মোহন-বিদ্যা — যে দেখে সে মোহে ॥১১৮॥
 
-> yei tāṅre dekhe, sei īśvara kari' kahe
+> yei tāṅre dekhe, sei īśvara kari' kahe\
 > aiche mohana-vidyā--ye dekhe se mohe
 
 *yei*—cualquiera que; *tāṅre*—a Él; *dekhe*—ve; *sei*—esa persona; *īśvara kari'*—como la Suprema Personalidad de Dios; *kahe*—dice; *aiche*—tal; *mohana-vidyā*—hipnosis; *ye dekhe*—cualquiera que ve; *se mohe*—queda ilusionado.

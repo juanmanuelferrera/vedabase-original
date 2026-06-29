@@ -1,11 +1,11 @@
 ### SB 4.19.8
 
-> ऊहुः सर्वरसान्नद्यः क्षीरदध्यन्नगोरसान् ।
+> ऊहुः सर्वरसान्नद्यः क्षीरदध्यन्नगोरसान् ।\
 > तरवो भूरिवर्ष्माणः प्रासूयन्त मधुच्युतः ॥८॥
 
-> ūhuḥ sarva-rasān nadyaḥ
-> kṣīra-dadhy-anna-go-rasān
-> taravo bhūri-varṣmāṇaḥ
+> ūhuḥ sarva-rasān nadyaḥ\
+> kṣīra-dadhy-anna-go-rasān\
+> taravo bhūri-varṣmāṇaḥ\
 > prāsūyanta madhu-cyutaḥ
 
 *ūhuḥ*—producían; *sarva-rasān*—toda clase de sabores; *nadyaḥ*—los ríos; *kṣīra*—leche; *dadhi*—yogur; *anna*—distintos tipos de alimento; *go-rasān*—otros productos lácteos; *taravaḥ*—árboles; *bhūri*—grandes; *varṣmāṇaḥ*—con cuerpos; *prāsūyanta*—daban fruta; *madhu-cyutaḥ*—rezumaban miel.

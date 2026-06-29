@@ -1,11 +1,11 @@
 ### SB 4.5.21
 
-> पूष्णो ह्यपातयद्दन्तान्कालिङ्गस्य यथा बलः ।
+> पूष्णो ह्यपातयद्दन्तान्कालिङ्गस्य यथा बलः ।\
 > शप्यमाने गरिमणि योऽहसद्दर्शयन्दतः ॥२१॥
 
-> pūṣṇo hy apātayad dantān
-> kāliṅgasya yathā balaḥ
-> śapyamāne garimaṇi
+> pūṣṇo hy apātayad dantān\
+> kāliṅgasya yathā balaḥ\
+> śapyamāne garimaṇi\
 > yo 'hasad darśayan dataḥ
 
 *pūṣṇaḥ*—de Pūṣā; *hi*—puesto que; *apātayat*—extrajo; *dantān*—los dientes; *kāliṅgasya*—del rey de Kaliṅga; *yathā*—como; *balaḥ*—Baladeva; *śapyamāne*—mientras era maldecido; *garimaṇi*—el Señor Śiva; *yaḥ*—quien (Pūṣā); *ahasat*—sonrió; *darśayan*—mostrando; *dataḥ*—los dientes.

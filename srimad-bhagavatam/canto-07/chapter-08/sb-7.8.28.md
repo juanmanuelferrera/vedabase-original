@@ -1,11 +1,11 @@
 ### SB 7.8.28
 
-> तं श्येनवेगं शतचन्द्रवर्त्मभिश्चरन्तमच्छिद्रमुपर्यधो हरिः
+> तं श्येनवेगं शतचन्द्रवर्त्मभिश्चरन्तमच्छिद्रमुपर्यधो हरिः\
 > कृत्वाट्टहासं खरमुत्स्वनोल्बणं निमीलिताक्षं जगृहे महाजवः ॥२८॥
 
-> taṁ śyena-vegaṁ śata-candra-vartmabhiś
-> carantam acchidram upary-adho hariḥ
-> kṛtvāṭṭa-hāsaṁ kharam utsvanolbaṇaṁ
+> taṁ śyena-vegaṁ śata-candra-vartmabhiś\
+> carantam acchidram upary-adho hariḥ\
+> kṛtvāṭṭa-hāsaṁ kharam utsvanolbaṇaṁ\
 > nimīlitākṣaṁ jagṛhe mahā-javaḥ
 
 *tam*—him (Hiraṇyakaśipu); *śyena-vegam*—possessing the speed of a hawk; *śata-candra-vartmabhiḥ*—by the maneuvers of his sword and his shield, which was marked with a hundred moonlike spots; *carantam*—moving; *acchidram*—without any weak spot; *upari-adhaḥ*—up and down; *hariḥ*—the Supreme Personality of Godhead; *kṛtvā*—making; *aṭṭa-hāsam*—loud laughter; *kharam*—extremely shrill; *utsvana-ulbaṇam*—very fearful due to its great sound; *nimīlita*—closed; *akṣam*—eyes; *jagṛhe*—captured; *mahā-javaḥ*—the greatly powerful Lord.

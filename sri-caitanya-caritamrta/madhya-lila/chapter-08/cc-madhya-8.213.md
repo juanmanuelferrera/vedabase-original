@@ -1,9 +1,9 @@
 ### CC Madhya 8.213
 
-> নানা-চ্ছলে কৃষ্ণে প্রেরি’ সঙ্গম করায় ।
+> নানা-চ্ছলে কৃষ্ণে প্রেরি’ সঙ্গম করায় ।\
 > আত্মকৃষ্ণ-সঙ্গ হৈতে কোটি-সুখ পায় ॥২১৩॥
 
-> nānā-cchale kṛṣṇe preri' saṅgama karāya
+> nānā-cchale kṛṣṇe preri' saṅgama karāya\
 > ātma-kṛṣṇa-saṅga haite koṭi-sukha pāya
 
 *nānā-chale*—under different pleas; *kṛṣṇe*—unto Kṛṣṇa; *preri'*—sending; *saṅgama*—direct association; *karāya*—induces; *ātma-kṛṣṇa-saṅga*—personal association with Kṛṣṇa; *haite*—than; *koṭi-sukha*—ten million times more happiness; *pāya*—She gets.

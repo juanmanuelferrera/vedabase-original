@@ -1,18 +1,18 @@
 ### SB 4.6.19-20
 
-> कुमुदोत्पलकह्लार शतपत्रवनर्द्धिभिः ।
-> नलिनीषु कलं कूजत् खगवृन्दोपशोभितम् ॥१९॥
-> मृगैः शाखामृगैः क्रोडैर्मृगेन्द्रैरृक्षशल्यकैः ।
+> कुमुदोत्पलकह्लार शतपत्रवनर्द्धिभिः ।\
+> नलिनीषु कलं कूजत् खगवृन्दोपशोभितम् ॥१९॥\
+> मृगैः शाखामृगैः क्रोडैर्मृगेन्द्रैरृक्षशल्यकैः ।\
 > गवयैः शरभैर्व्याघ्रै रुरुभिर्महिषादिभिः ॥२०॥
 
-> kumudotpala-kahlāra-
-> śatapatra-vanarddhibhiḥ
-> nalinīṣu kalaṁ kūjat-
+> kumudotpala-kahlāra-\
+> śatapatra-vanarddhibhiḥ\
+> nalinīṣu kalaṁ kūjat-\
 > khaga-vṛndopaśobhitam
 
-> mṛgaiḥ śākhāmṛgaiḥ kroḍair
-> mṛgendrair ṛkṣa-śalyakaiḥ
-> gavayaiḥ śarabhair vyāghrai
+> mṛgaiḥ śākhāmṛgaiḥ kroḍair\
+> mṛgendrair ṛkṣa-śalyakaiḥ\
+> gavayaiḥ śarabhair vyāghrai\
 > rurubhir mahiṣādibhiḥ
 
 *kumuda*—*kumuda*; *utpala*—*utpala*; *kahlāra*—*kahlāra*; *śatapatra*—lotuses; *vana*—forest; *ṛddhibhiḥ*—being covered with; *nalinīṣu*—in the lakes; *kalam*—very sweetly; *kūjat*—whispering; *khaga*—of birds; *vṛnda*—groups; *upaśobhitam*—decorated with; *mṛgaiḥ*—with deer; *śākhā-mṛgaiḥ*—with monkeys; *kroḍaiḥ*—with boars; *mṛga-indraiḥ*—with lions; *ṛkṣa-śalyakaiḥ*—with *ṛkṣas* and *śalyakas*; *gavayaiḥ*—with forest cows; *śarabhaiḥ*—with forest asses; *vyāghraiḥ*—with tigers; *rurubhiḥ*—with small deer; *mahiṣa-ādibhiḥ*—with buffalo, etc.

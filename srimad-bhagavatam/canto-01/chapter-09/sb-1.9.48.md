@@ -1,11 +1,11 @@
 ### SB 1.9.48
 
-> ततो युधिष्ठिरो गत्वा सहकृष्णो गजाह्वयम् ।
+> ततो युधिष्ठिरो गत्वा सहकृष्णो गजाह्वयम् ।\
 > पितरं सान्त्वयामास गान्धारीं च तपस्विनीम् ॥४८॥
 
-> tato yudhiṣṭhiro gatvā
-> saha-kṛṣṇo gajāhvayam
-> pitaraṁ sāntvayām āsa
+> tato yudhiṣṭhiro gatvā\
+> saha-kṛṣṇo gajāhvayam\
+> pitaraṁ sāntvayām āsa\
 > gāndhārīṁ ca tapasvinīm
 
 *tataḥ*—thereafter; *yudhiṣṭhiraḥ*—Mahārāja Yudhiṣṭhira; *gatvā*—going there; *saha*—with; *kṛṣṇaḥ*—the Lord; *gajāhvayam*—in the capital named Gajāhvaya Hastināpura; *pitaram*—unto his uncle (Dhṛtarāṣṭra); *sāntvayām āsa*—consoled; *gāndhārīm*—the wife of Dhṛtarāṣṭra; *ca*—and; *tapasvinīm*—an ascetic lady.

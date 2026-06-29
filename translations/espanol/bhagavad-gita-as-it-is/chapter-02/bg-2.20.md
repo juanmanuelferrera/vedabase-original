@@ -1,13 +1,13 @@
 ### Bg 2.20
 
-> न जायते म्रियते वा कदाचिन्
-> नायं भूत्वा भविता वा न भूयः ।
-> अजो नित्यः शाश्वतोऽयं पुराणो
+> न जायते म्रियते वा कदाचिन्\
+> नायं भूत्वा भविता वा न भूयः ।\
+> अजो नित्यः शाश्वतोऽयं पुराणो\
 > न हन्यते हन्यमाने शरीरे ॥२०॥
 
-> na jāyate mriyate vā kadācin
-> nāyaṁ bhūtvā bhavitā vā na bhūyaḥ
-> ajo nityaḥ śāśvato'yaṁ purāṇo
+> na jāyate mriyate vā kadācin\
+> nāyaṁ bhūtvā bhavitā vā na bhūyaḥ\
+> ajo nityaḥ śāśvato'yaṁ purāṇo\
 > na hanyate hanyamāne śarīre
 
 *na*—nunca; *jāyate*—nace; *mriyate*—nunca muere; *vā*—tampoco; *kadācit*—en ningún momento (pasado, presente o futuro); *na*—nunca; *ayam*—esto; *bhūtvā*—a existir; *bhavitā*—llegará a ser; *vā*—o; *na*—no; *bhūyaḥ*—ha llegado a existir; *ajaḥ*—que no nace; *nityaḥ*—eterno; *śāśvataḥ*—permanente; *ayam*—este; *purāṇaḥ*—el más antiguo; *na*—nunca; *hanyate*—es matado; *hanyamāne*—siendo matado; *śarīre*—por el cuerpo.

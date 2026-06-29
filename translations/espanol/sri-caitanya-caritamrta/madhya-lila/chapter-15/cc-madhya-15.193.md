@@ -1,9 +1,9 @@
 ### CC Madhya 15.193
 
-> তবে সার্বভৌম করে আর নিবেদন ৷
+> তবে সার্বভৌম করে আর নিবেদন ৷\
 > তোমার সঙ্গে সন্ন্যাসী আছে দশজন ॥১৯৩॥
 
-> tabe sārvabhauma kare āra nivedana
+> tabe sārvabhauma kare āra nivedana\
 > tomāra saṅge sannyāsī āche daśa-jana
 
 *tabe*—después de eso; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *kare*—hace; *āra*—otra; *nivedana*—súplica; *tomāra saṅge*—con Vos; *sannyāsī*—en la orden de renuncia; *āche*—hay; *daśa-jana*—diez personas.

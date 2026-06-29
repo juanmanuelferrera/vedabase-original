@@ -1,11 +1,11 @@
 ### SB 4.30.41
 
-> मनुः स्वयम्भूर्भगवान्भवश्च येऽन्ये तपोज्ञानविशुद्धसत्त्वाः ।
+> मनुः स्वयम्भूर्भगवान्भवश्च येऽन्ये तपोज्ञानविशुद्धसत्त्वाः ।\
 > अदृष्टपारा अपि यन्महिम्नः स्तुवन्त्यथो त्वात्मसमं गृणीमः ॥४१॥
 
-> manuḥ svayambhūr bhagavān bhavaś ca
-> ye 'nye tapo-jñāna-viśuddha-sattvāḥ
-> adṛṣṭa-pārā api yan-mahimnaḥ
+> manuḥ svayambhūr bhagavān bhavaś ca\
+> ye 'nye tapo-jñāna-viśuddha-sattvāḥ\
+> adṛṣṭa-pārā api yan-mahimnaḥ\
 > stuvanty atho tvātma-samaṁ gṛṇīmaḥ
 
 *manuḥ*—Svāyambhuva Manu; *svayambhūḥ*—Lord Brahmā; *bhagavān*—the most powerful; *bhavaḥ*—Lord Śiva; *ca*—also; *ye*—who; *anye*—others; *tapaḥ*—by austerity; *jñāna*—by knowledge; *viśuddha*—pure; *sattvāḥ*—whose existence; *adṛṣṭa-pārāḥ*—who cannot see the end; *api*—although; *yat*—Your; *mahimnaḥ*—of glories; *stuvanti*—they offer prayers; *atho*—therefore; *tvā*—unto You; *ātma-samam*—according to capacity; *gṛṇīmaḥ*—we offered prayers.

@@ -1,9 +1,9 @@
 ### CC Adi 8.40
 
-> বৃন্দাবনদাস-পদে কোটি নমস্কার ।
+> বৃন্দাবনদাস-পদে কোটি নমস্কার ।\
 > ঐছে গ্রন্থ করি’ তেঁহো তারিলা সংসার ॥৪০॥
 
-> vṛndāvana-dāsa-pade koṭi namaskāra
+> vṛndāvana-dāsa-pade koṭi namaskāra\
 > aiche grantha kari' teṅho tārilā saṁsāra
 
 *vṛndāvana-dāsa-pade*—a los pies de loto de Śrīla Vṛndāvana dāsa Ṭhākura; *koṭi*—millones; *namaskāra*—reverencias; *aiche*—tal; *grantha*—libro; *kari'*—compilando; *teṅho*—él; *tārilā*—liberó; *saṁsāra*—todo el mundo.

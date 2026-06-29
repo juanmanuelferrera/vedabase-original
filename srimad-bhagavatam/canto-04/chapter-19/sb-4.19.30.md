@@ -1,11 +1,11 @@
 ### SB 4.19.30
 
-> न वध्यो भवतामिन्द्रो यद्यज्ञो भगवत्तनुः ।
+> न वध्यो भवतामिन्द्रो यद्यज्ञो भगवत्तनुः ।\
 > यं जिघांसथ यज्ञेन यस्येष्टास्तनवः सुराः ॥३०॥
 
-> na vadhyo bhavatām indro
-> yad yajño bhagavat-tanuḥ
-> yaṁ jighāṁsatha yajñena
+> na vadhyo bhavatām indro\
+> yad yajño bhagavat-tanuḥ\
+> yaṁ jighāṁsatha yajñena\
 > yasyeṣṭās tanavaḥ surāḥ
 
 *na*—not; *vadhyaḥ*—ought to be killed; *bhavatām*—by all of you; *indraḥ*—the King of heaven; *yat*—because; *yajñaḥ*—a name of Indra; *bhagavat-tanuḥ*—part of the body of the Supreme Personality of Godhead; *yam*—whom; *jighāṁsatha*—you wish to kill; *yajñena*—by performing sacrifice; *yasya*—of Indra; *iṣṭāḥ*—being worshiped; *tanavaḥ*—parts of the body; *surāḥ*—the demigods.

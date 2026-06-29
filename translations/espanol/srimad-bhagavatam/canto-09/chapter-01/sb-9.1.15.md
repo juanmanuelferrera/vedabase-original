@@ -1,11 +1,11 @@
 ### SB 9.1.15
 
-> प्रेषितोऽध्वर्युणा होता व्यचरत्तत्समाहितः
+> प्रेषितोऽध्वर्युणा होता व्यचरत्तत्समाहितः\
 > गृहीते हविषि वाचा वषट्कारं गृणन्द्विजः ॥१५॥
 
-> preṣito 'dhvaryuṇā hotā
-> vyacarat tat samāhitaḥ
-> gṛhīte haviṣi vācā
+> preṣito 'dhvaryuṇā hotā\
+> vyacarat tat samāhitaḥ\
+> gṛhīte haviṣi vācā\
 > vaṣaṭ-kāraṁ gṛṇan dvijaḥ
 
 *preṣitaḥ*—al serle dicho que realizase el sacrificio; *adhvaryuṇā*—por el sacerdote *ṛtvik*; *hotā*—el sacerdote encargado de ofrecer oblaciones; *vyacarat*—ejecutó; *tat*—aquel (sacrificio); *samāhitaḥ*—con gran atención; *gṛhīte haviṣi*—al tomar la mantequilla clarificada para la primera oblación; *vācā*—con el canto del *mantra*; *vaṣaṭ-kāram*—el *mantra* que comienza con la palabra *vaṣaṭ*; *gṛṇan*—recitar; *dvijaḥ*—el *brāhmaṇa*.

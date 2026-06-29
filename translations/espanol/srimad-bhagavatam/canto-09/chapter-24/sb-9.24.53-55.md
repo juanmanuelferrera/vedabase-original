@@ -1,25 +1,25 @@
 ### SB 9.24.53-55
 
-> प्रवरश्रुतमुख्यांश्च साक्षाद्धर्मो वसूनिव
-> वसुदेवस्तु देवक्यामष्ट पुत्रानजीजनत ॥५३॥
-> कीर्तिमन्तं सुषेणं च भद्रसेनमुदारधीः
-> ऋजुं सम्मर्दनं भद्रं सङ्कर्षणमहीश्वरम ॥५४॥
-> अष्टमस्तु तयोरासीत्स्वयमेव हरिः किल
+> प्रवरश्रुतमुख्यांश्च साक्षाद्धर्मो वसूनिव\
+> वसुदेवस्तु देवक्यामष्ट पुत्रानजीजनत ॥५३॥\
+> कीर्तिमन्तं सुषेणं च भद्रसेनमुदारधीः\
+> ऋजुं सम्मर्दनं भद्रं सङ्कर्षणमहीश्वरम ॥५४॥\
+> अष्टमस्तु तयोरासीत्स्वयमेव हरिः किल\
 > सुभद्रा च महाभागा तव राजन्पितामही ॥५५॥
 
-> pravara-śruta-mukhyāṁś ca
-> sākṣād dharmo vasūn iva
-> vasudevas tu devakyām
+> pravara-śruta-mukhyāṁś ca\
+> sākṣād dharmo vasūn iva\
+> vasudevas tu devakyām\
 > aṣṭa putrān ajījanat
 
-> kīrtimantaṁ suṣeṇaṁ ca
-> bhadrasenam udāra-dhīḥ
-> ṛjuṁ sammardanaṁ bhadraṁ
+> kīrtimantaṁ suṣeṇaṁ ca\
+> bhadrasenam udāra-dhīḥ\
+> ṛjuṁ sammardanaṁ bhadraṁ\
 > saṅkarṣaṇam ahīśvaram
 
-> aṣṭamas tu tayor āsīt
-> svayam eva hariḥ kila
-> subhadrā ca mahābhāgā
+> aṣṭamas tu tayor āsīt\
+> svayam eva hariḥ kila\
+> subhadrā ca mahābhāgā\
 > tava rājan pitāmahī
 
 *pravara*—Pravara (en algunos manuscritos, Pauvara); *śruta*—Śruta; *mukhyān*—comenzando con; *ca*—y; *sākṣāt*—directamente; *dharmaḥ*—personificación de la religión; *vasūn iva*—exactamente iguales a los principales Vasus de los planetas celestiales; *vasudevaḥ*—Śrīla Vasudeva, el padre de Kṛṣṇa; *tu*—en verdad; *devakyām*—en el vientre de Devakī; *aṣṭa*—ocho; *putrān*—hijos; *ajījanat*—engendró; *kīrtimantam*—Kīrtimān; *suṣeṇam ca*—y Suṣeṇa; *bhadrasenam*—Bhadrasena; *udāra-dhīḥ*—todos con muy buenas cualidades; *ṛjum*—Ṛju; *sammardanam*—Sammardana; *bhadram*—Bhadra; *saṅkarṣaṇam*—Saṅkarṣaṇa; *ahi-īśvaram*—el controlador supremo, la encarnación serpiente; *aṣṭamaḥ*—el octavo; *tu*—pero; *tayoḥ*—de ambos (de Devakī y Vasudeva); *āsīt*—advino; *svayam eva*—directamente, personalmente; *hariḥ*—la Suprema Personalidad de Dios; *kila*—qué decir de; *subhadrā*—una hermana, Subhadrā; *ca*—y; *mahābhāgā*—muy afortunada; *tava*—tuya; *rājan*—¡oh, Mahārāja Parīkṣit!; *pitāmahī*—abuela.

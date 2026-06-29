@@ -1,13 +1,13 @@
 ### SB 1.8.11
 
-> सूत उवाच
-> उपधार्य वचस्तस्या भगवान्भक्तवत्सलः ।
+> सूत उवाच\
+> उपधार्य वचस्तस्या भगवान्भक्तवत्सलः ।\
 > अपाण्डवमिदं कर्तुं द्रौणेरस्त्रमबुध्यत ॥११॥
 
-> sūta uvāca
-> upadhārya vacas tasyā
-> bhagavān bhakta-vatsalaḥ
-> apāṇḍavam idaṁ kartuṁ
+> sūta uvāca\
+> upadhārya vacas tasyā\
+> bhagavān bhakta-vatsalaḥ\
+> apāṇḍavam idaṁ kartuṁ\
 > drauṇer astram abudhyata
 
 *sūtaḥ uvāca*—Sūta Gosvāmī dijo; *upadhārya*—por oírla pacientemente; *vacaḥ*—palabras; *tasyāḥ*—de ella; *bhagavān*—la Personalidad de Dios; *bhakta-vatsalaḥ*—Aquel que es muy afectuoso con Sus devotos; *apāṇḍavam*—sin la existencia de los descendientes de los Pāṇḍavas; *idam*—esto; *kartum*—hacerlo; *drauṇeḥ*—el hijo de Droṇācārya; *astram*—arma; *abudhyata*—entendió.

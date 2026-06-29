@@ -1,11 +1,11 @@
 ### SB 4.18.15
 
-> कृत्वा वत्सं सुरगणा इन्द्रं सोममदूदुहन् ।
+> कृत्वा वत्सं सुरगणा इन्द्रं सोममदूदुहन् ।\
 > हिरण्मयेन पात्रेण वीर्यमोजो बलं पयः ॥१५॥
 
-> kṛtvā vatsaṁ sura-gaṇā
-> indraṁ somam adūduhan
-> hiraṇmayena pātreṇa
+> kṛtvā vatsaṁ sura-gaṇā\
+> indraṁ somam adūduhan\
+> hiraṇmayena pātreṇa\
 > vīryam ojo balaṁ payaḥ
 
 *kṛtvā*—convertir; *vatsam*—ternero; *sura-gaṇāḥ*—los semidioses; *indram*—a Indra, el rey del cielo; *somam*—néctar; *adūduhan*—ordeñaron; *hiraṇmayena*—de oro; *pātreṇa*—con una vasija; *vīryam*—poder mental; *ojaḥ*—fuerza de los sentidos; *balam*—fuerza del cuerpo; *payaḥ*—leche.

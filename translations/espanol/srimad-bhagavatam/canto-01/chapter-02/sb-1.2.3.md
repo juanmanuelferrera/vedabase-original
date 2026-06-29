@@ -1,11 +1,11 @@
 ### SB 1.2.3
 
-> यः स्वानुभावमखिलश्रुतिसारमेकमध्यात्मदीपमतितितीर्षतां तमोऽन्धम् ।
+> यः स्वानुभावमखिलश्रुतिसारमेकमध्यात्मदीपमतितितीर्षतां तमोऽन्धम् ।\
 > संसारिणां करुणयाह पुराणगुह्यं तं व्याससूनुमुपयामि गुरुं मुनीनाम् ॥३॥
 
-> yaḥ svānubhāvam akhila-śruti-sāram ekam
-> adhyātma-dīpam atititīrṣatāṁ tamo 'ndham
-> saṁsāriṇāṁ karuṇayāha purāṇa-guhyaṁ
+> yaḥ svānubhāvam akhila-śruti-sāram ekam\
+> adhyātma-dīpam atititīrṣatāṁ tamo 'ndham\
+> saṁsāriṇāṁ karuṇayāha purāṇa-guhyaṁ\
 > taṁ vyāsa-sūnum upayāmi guruṁ munīnām
 
 *yaḥ*—aquel que; *sva-anubhāvam*—asimilado por uno mismo (experimentado); *akhila*—por todas partes; *śruti*—los *Vedas*; *sāram*—crema; *ekam*—el único; *adhyātma*—trascendental; *dīpam*—antorcha; *atititīrṣatām*—deseando superar; *tamaḥ andham*—la muy oscura existencia material; *saṁsāriṇām*—de los hombres materialistas; *karuṇayā*—por misericordia sin causa; *āha*—dijo; *purāṇa*—suplemento de los *Vedas*; *guhyam*—muy confidencial; *tam*—a él; *vyāsa-sūnum*—el hijo de Vyāsadeva; *upayāmi*—permítaseme ofrecer mis reverencias; *gurum*—el maestro espiritual; *munīnām*—de los grandes sabios.

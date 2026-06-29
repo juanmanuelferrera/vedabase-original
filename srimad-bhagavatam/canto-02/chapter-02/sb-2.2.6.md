@@ -1,11 +1,11 @@
 ### SB 2.2.6
 
-> एवं स्वचित्ते स्वत एव सिद्ध आत्मा प्रियोऽर्थो भगवाननन्तः ।
+> एवं स्वचित्ते स्वत एव सिद्ध आत्मा प्रियोऽर्थो भगवाननन्तः ।\
 > तं निर्वृतो नियतार्थो भजेत संसारहेतूपरमश्च यत्र ॥६॥
 
-> evaṁ sva-citte svata eva siddha
-> ātmā priyo 'rtho bhagavān anantaḥ
-> taṁ nirvṛto niyatārtho bhajeta
+> evaṁ sva-citte svata eva siddha\
+> ātmā priyo 'rtho bhagavān anantaḥ\
+> taṁ nirvṛto niyatārtho bhajeta\
 > saṁsāra-hetūparamaś ca yatra
 
 *evam*—thus; *sva-citte*—in one's own heart; *svataḥ*—by His omnipotency; *eva*—certainly; *siddhaḥ*—fully represented; *ātmā*—the Supersoul; *priyaḥ*—very dear; *arthaḥ*—substance; *bhagavān*—the Supreme Personality of Godhead; *anantaḥ*—the eternal unlimited; *tam*—unto Him; *nirvṛtaḥ*—being detached from the world; *niyata*—permanent; *arthaḥ*—the supreme gain; *bhajeta*—one must worship; *saṁsāra-hetu*—the cause of the conditioned state of existence; *uparamaḥ*—cessation; *ca*—certainly; *yatra*—in which.

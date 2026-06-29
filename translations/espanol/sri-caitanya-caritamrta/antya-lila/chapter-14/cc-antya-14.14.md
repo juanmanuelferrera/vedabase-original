@@ -1,9 +1,9 @@
 ### CC Antya 14.14
 
-> রাধিকার ভাবে প্রভুর সদা ‘অভিমান’ ।
+> রাধিকার ভাবে প্রভুর সদা ‘অভিমান’ ।\
 > সেই ভাবে আপনাকে হয় ‘রাধা’-জ্ঞান ॥১৪॥
 
-> rādhikāra bhāve prabhura sadā 'abhimāna'
+> rādhikāra bhāve prabhura sadā 'abhimāna'\
 > sei bhāve āpanāke haya 'rādhā'-jñāna
 
 *rādhikāra bhāve*—en la emoción de Śrīmatī Rādhārāṇī; *prabhura*—de Śrī Caitanya Mahāprabhu; *sadā*—siempre; *abhimāna*—concepción; *sei bhāve*—bajo tal concepción; *āpanāke*—de Sí mismo; *haya*—se da; *rādhā-jñāna*—la consideración de ser Śrīmatī Rādhārāṇī.

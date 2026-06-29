@@ -1,11 +1,11 @@
 ### SB 2.10.16
 
-> अनुप्राणन्ति यं प्राणाः प्राणन्तं सर्वजन्तुषु ।
+> अनुप्राणन्ति यं प्राणाः प्राणन्तं सर्वजन्तुषु ।\
 > अपानन्तमपानन्ति नरदेवमिवानुगाः ॥१६॥
 
-> anuprāṇanti yaṁ prāṇāḥ
-> prāṇantaṁ sarva-jantuṣu
-> apānantam apānanti
+> anuprāṇanti yaṁ prāṇāḥ\
+> prāṇantaṁ sarva-jantuṣu\
+> apānantam apānanti\
 > nara-devam ivānugāḥ
 
 *anuprāṇanti*—follow the living symptoms; *yam*—whom; *prāṇāḥ*—senses; *prāṇantam*—endeavoring; *sarva-jantuṣu*—in all living entities; *apānantam*—stop endeavoring; *apānanti*—all others stop; *nara-devam*—a king; *iva*—like; *anugāḥ*—the followers.

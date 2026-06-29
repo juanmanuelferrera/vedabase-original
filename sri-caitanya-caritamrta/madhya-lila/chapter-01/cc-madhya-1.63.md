@@ -1,9 +1,9 @@
 ### CC Madhya 1.63
 
-> হরিদাস ঠাকুর আর রূপ-সনাতন ।
+> হরিদাস ঠাকুর আর রূপ-সনাতন ।\
 > জগন্নাথ-মন্দিরে না যা’ন তিন জন ॥৬৩॥
 
-> haridāsa ṭhākura āra rūpa-sanātana
+> haridāsa ṭhākura āra rūpa-sanātana\
 > jagannātha-mandire nā yā'na tina jana
 
 *haridāsa ṭhākura*—Śrīla Haridāsa Ṭhākura; *āra*—and; *rūpa-sanātana*—Śrīla Rūpa Gosvāmī and Śrīla Sanātana Gosvāmī; *jagannātha-mandire*—in the temple of Lord Jagannātha; *nā*—not; *yā'na*—go; *tinajana*—three persons.

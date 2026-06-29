@@ -1,11 +1,11 @@
 ### SB 3.8.19
 
-> स इत्थमुद्वीक्ष्य तदब्जनाल नाडीभिरन्तर्जलमाविवेश ।
+> स इत्थमुद्वीक्ष्य तदब्जनाल नाडीभिरन्तर्जलमाविवेश ।\
 > नार्वाग्गतस्तत्खरनालनाल नाभिं विचिन्वंस्तदविन्दताजः ॥१९॥
 
-> sa ittham udvīkṣya tad-abja-nāla-
-> nāḍībhir antar-jalam āviveśa
-> nārvāg-gatas tat-khara-nāla-nāla-
+> sa ittham udvīkṣya tad-abja-nāla-\
+> nāḍībhir antar-jalam āviveśa\
+> nārvāg-gatas tat-khara-nāla-nāla-\
 > nābhiṁ vicinvaṁs tad avindatājaḥ
 
 *saḥ*—he (Brahmā); *ittham*—in this way; *udvīkṣya*—contemplating; *tat*—that; *abja*—lotus; *nāla*—stem; *nāḍībhiḥ*—by the pipe; *antaḥ-jalam*—within the water; *āviveśa*—entered into; *na*—not; *arvāk-gataḥ*—in spite of going inside; *tat-khara-nāla*—the stem of the lotus; *nāla*—pipe; *nābhim*—of the navel; *vicinvan*—thinking much of it; *tat*—that; *avindata*—understood; *ajaḥ*—the self-born.

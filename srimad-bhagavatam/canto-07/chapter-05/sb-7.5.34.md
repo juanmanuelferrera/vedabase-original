@@ -1,11 +1,11 @@
 ### SB 7.5.34
 
-> आहामर्षरुषाविष्टः कषायीभूतलोचनः
+> आहामर्षरुषाविष्टः कषायीभूतलोचनः\
 > वध्यतामाश्वयं वध्यो निःसारयत नैरृताः ॥३४॥
 
-> āhāmarṣa-ruṣāviṣṭaḥ
-> kaṣāyī-bhūta-locanaḥ
-> vadhyatām āśv ayaṁ vadhyo
+> āhāmarṣa-ruṣāviṣṭaḥ\
+> kaṣāyī-bhūta-locanaḥ\
+> vadhyatām āśv ayaṁ vadhyo\
 > niḥsārayata nairṛtāḥ
 
 *āha*—he said; *amarṣa*—indignation; *ruṣā*—and by severe anger; *āviṣṭaḥ*—overpowered; *kaṣāyī-bhūta*—becoming exactly like red-hot copper; *locanaḥ*—whose eyes; *vadhyatām*—let him be killed; *āśu*—immediately; *ayam*—this; *vadhyaḥ*—who is to be killed; *niḥsārayata*—take away; *nairṛtāḥ*—O demons.

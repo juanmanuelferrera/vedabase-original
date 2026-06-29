@@ -1,11 +1,11 @@
 ### SB 9.3.33
 
-> कालोऽभियातस्त्रिणव चतुर्युगविकल्पितः
+> कालोऽभियातस्त्रिणव चतुर्युगविकल्पितः\
 > तद्गच्छ देवदेवांशो बलदेवो महाबलः ॥३३॥
 
-> tad gaccha deva-devāṁśo
-> baladevo mahā-balaḥ
-> kanyā-ratnam idaṁ rājan
+> tad gaccha deva-devāṁśo\
+> baladevo mahā-balaḥ\
+> kanyā-ratnam idaṁ rājan\
 > nara-ratnāya dehi bhoḥ
 
 *tat*—therefore; *gaccha*—you go; *deva-deva-aṁśaḥ*—whose plenary portion is Lord Viṣṇu; *baladevaḥ*—known as Baladeva; *mahā-balaḥ*—the supreme powerful; *kanyā-ratnam*—your beautiful daughter; *idam*—this; *rājan*—O King; *nara-ratnāya*—unto the Supreme Personality of Godhead, who is always youthful; *dehi*—just give to Him (in charity); *bhoḥ*—O King.

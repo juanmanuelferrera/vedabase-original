@@ -1,9 +1,9 @@
 ### CC Madhya 14.209
 
-> এত বলি’ মহালক্ষ্মীর সব দাসীগণে  ।
+> এত বলি’ মহালক্ষ্মীর সব দাসীগণে  ।\
 > কটি-বস্ত্রে বান্ধি’ আনে প্রভুর নিজগণে ॥২০৯॥
 
-> eta bali' mahā-lakṣmīra saba dāsī-gaṇe
+> eta bali' mahā-lakṣmīra saba dāsī-gaṇe\
 > kaṭi-vastre bāndhi' āne prabhura nija-gaṇe
 
 *eta bali'*—diciendo esto; *mahā-lakṣmīra*—de la diosa de la fortuna; *saba*—todas; *dāsī-gaṇe*—las sirvientas; *kaṭi-vastre*—con sus paños de cintura; *bāndhi'*—atando; *āne*—traen; *prabhura*—de Jagannātha; *nija-gaṇe*—sirvientes personales.

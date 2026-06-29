@@ -1,11 +1,11 @@
 ### SB 6.5.21
 
-> इति व्यवसिता राजन्हर्यश्वा एकचेतसः
+> इति व्यवसिता राजन्हर्यश्वा एकचेतसः\
 > प्रययुस्तं परिक्रम्य पन्थानमनिवर्तनम ॥२१॥
 
-> iti vyavasitā rājan
-> haryaśvā eka-cetasaḥ
-> prayayus taṁ parikramya
+> iti vyavasitā rājan\
+> haryaśvā eka-cetasaḥ\
+> prayayus taṁ parikramya\
 > panthānam anivartanam
 
 *iti*—así; *vyavasitāḥ*—perfectamente convencidos por las instrucciones de Nārada Muni; *rājan*—¡oh, rey!; *haryaśvāḥ*—los hijos de Prajāpati Dakṣa; *eka-cetasaḥ*—que compartían la misma opinión; *prayayuḥ*—se fueron; *tam*—a Nārada Muni; *parikramya*—caminar alrededor; *panthānam*—por la senda; *anivartanam*—que no trae de regreso al mundo material.

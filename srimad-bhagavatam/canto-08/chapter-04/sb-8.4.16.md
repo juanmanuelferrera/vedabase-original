@@ -1,11 +1,11 @@
 ### SB 8.4.16
 
-> इदमाह हरिः प्रीतो गजेन्द्रं कुरुसत्तम
+> इदमाह हरिः प्रीतो गजेन्द्रं कुरुसत्तम\
 > शृण्वतां सर्वभूतानां सर्वभूतमयो विभुः ॥१६॥
 
-> idam āha hariḥ prīto
-> gajendraṁ kuru-sattama
-> śṛṇvatāṁ sarva-bhūtānāṁ
+> idam āha hariḥ prīto\
+> gajendraṁ kuru-sattama\
+> śṛṇvatāṁ sarva-bhūtānāṁ\
 > sarva-bhūta-mayo vibhuḥ
 
 *idam*—this; *āha*—said; *hariḥ*—the Supreme Personality of Godhead; *prītaḥ*—being pleased; *gajendram*—unto Gajendra; *kuru-sat-tama*—O best of the Kuru dynasty; *śṛṇvatām*—hearing; *sarva-bhūtānām*—in the presence of everyone; *sarva-bhūta-mayaḥ*—all-pervading Personality of Godhead; *vibhuḥ*—the great.

@@ -1,9 +1,9 @@
 ### CC Adi 5.232
 
-> সে সব পাইনু আমি বৃন্দাবনে আয় ।
+> সে সব পাইনু আমি বৃন্দাবনে আয় ।\
 > সেই সব লভ্য এই প্রভুর কৃপায় ॥২৩২॥
 
-> se saba pāinu āmi vṛndāvane āya
+> se saba pāinu āmi vṛndāvane āya\
 > sei saba labhya ei prabhura kṛpāya
 
 *se saba*—all this; *pāinu*—got; *āmi*—I; *vṛndāvane*—to Vṛndāvana; *āya*—coming; *sei saba*—all this; *labhya*—obtainable; *ei*—this; *prabhura kṛpāya*—by the mercy of Lord Nityānanda.

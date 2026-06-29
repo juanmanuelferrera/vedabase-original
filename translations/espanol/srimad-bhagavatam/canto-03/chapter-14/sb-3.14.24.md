@@ -1,11 +1,11 @@
 ### SB 3.14.24
 
-> एतस्यां साध्वि सन्ध्यायां भगवान्भूतभावनः ।
+> एतस्यां साध्वि सन्ध्यायां भगवान्भूतभावनः ।\
 > परीतो भूतपर्षद्भिर्वृषेणाटति भूतराट् ॥२४॥
 
-> etasyāṁ sādhvi sandhyāyāṁ
-> bhagavān bhūta-bhāvanaḥ
-> parīto bhūta-parṣadbhir
+> etasyāṁ sādhvi sandhyāyāṁ\
+> bhagavān bhūta-bhāvanaḥ\
+> parīto bhūta-parṣadbhir\
 > vṛṣeṇāṭati bhūtarāṭ
 
 *etasyām*—en este período; *sādhvi*—¡oh, casta!; *sandhyāyām*—en la confluencia del día y la noche (atardecer); *bhagavān*—la Personalidad de Dios; *bhūta-bhāvanaḥ*—el bienqueriente de las personas fantasmales; *parītaḥ*—rodeado por; *bhūta-parṣadbhiḥ*—por compañeros fantasmales; *vṛṣeṇa*—a lomos de su portador, el buey; *aṭati*—viaja; *bhūta-rāṭ*—el rey de los fantasmas.

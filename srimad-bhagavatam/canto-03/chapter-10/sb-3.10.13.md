@@ -2,7 +2,7 @@
 
 > यथेदानीं तथाग्रे च पश्चादप्येतदीदृश ॥१३॥
 
-> yathedānīṁ tathāgre ca
+> yathedānīṁ tathāgre ca\
 > paścād apy etad īdṛśam
 
 *yathā*—as it is; *idānīm*—at present; *tathā*—so it was; *agre*—in the beginning; *ca*—and; *paścāt*—at the end; *api*—also; *etat īdṛśam*—it continues to be the same.

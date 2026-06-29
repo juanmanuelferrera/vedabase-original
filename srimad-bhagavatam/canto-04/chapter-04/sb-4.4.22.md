@@ -1,11 +1,11 @@
 ### SB 4.4.22
 
-> नैतेन देहेन हरे कृतागसो देहोद्भवेनालमलं कुजन्मना ।
+> नैतेन देहेन हरे कृतागसो देहोद्भवेनालमलं कुजन्मना ।\
 > व्रीडा ममाभूत्कुजनप्रसङ्गतस्तज्जन्म धिग्यो महतामवद्यकृत् ॥२२॥
 
-> naitena dehena hare kṛtāgaso
-> dehodbhavenālam alaṁ kujanmanā
-> vrīḍā mamābhūt kujana-prasaṅgatas
+> naitena dehena hare kṛtāgaso\
+> dehodbhavenālam alaṁ kujanmanā\
+> vrīḍā mamābhūt kujana-prasaṅgatas\
 > taj janma dhig yo mahatām avadya-kṛt
 
 *na*—not; *etena*—by this; *dehena*—by the body; *hare*—to Lord Śiva; *kṛta-āgasaḥ*—having committed offenses; *deha-udbhavena*—produced from your body; *alam alam*—enough, enough; *ku-janmanā*—with a contemptible birth; *vrīḍā*—shame; *mama*—my; *abhūt*—was; *ku-jana-prasaṅgataḥ*—from a relationship with a bad person; *tat janma*—that birth; *dhik*—shameful; *yaḥ*—who; *mahatām*—of the great personalities; *avadya-kṛt*—an offender.

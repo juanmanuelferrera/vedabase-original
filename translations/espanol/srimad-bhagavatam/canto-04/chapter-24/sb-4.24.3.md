@@ -1,11 +1,11 @@
 ### SB 4.24.3
 
-> अन्तर्धानगतिं शक्राल्लब्ध्वान्तर्धानसंज्ञितः ।
+> अन्तर्धानगतिं शक्राल्लब्ध्वान्तर्धानसंज्ञितः ।\
 > अपत्यत्रयमाधत्त शिखण्डिन्यां सुसम्मतम् ॥३॥
 
-> antardhāna-gatiṁ śakrāl
-> labdhvāntardhāna-saṁjñitaḥ
-> apatya-trayam ādhatta
+> antardhāna-gatiṁ śakrāl\
+> labdhvāntardhāna-saṁjñitaḥ\
+> apatya-trayam ādhatta\
 > śikhaṇḍinyāṁ susammatam
 
 *antardhāna*—de desaparición; *gatim*—logro; *śakrāt*—del rey Indra; *labdhvā*—obtener; *antardhāna*—de nombre; *saṁjñitaḥ*—así llamado; *apatya*—hijos; *trayam*—tres; *ādhatta*—engendró; *śikhaṇḍinyām*—en Śikhaṇḍinī, su esposa; *su-sammatam*—con la aprobación de todos.

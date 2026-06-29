@@ -1,11 +1,11 @@
 ### SB 1.3.25
 
-> अथासौ युगसन्ध्यायां दस्युप्रायेषु राजसु ।
+> अथासौ युगसन्ध्यायां दस्युप्रायेषु राजसु ।\
 > जनिता विष्णुयशसो नाम्ना कल्किर्जगत्पतिः ॥२५॥
 
-> athāsau yuga-sandhyāyāṁ
-> dasyu-prāyeṣu rājasu
-> janitā viṣṇu-yaśaso
+> athāsau yuga-sandhyāyāṁ\
+> dasyu-prāyeṣu rājasu\
+> janitā viṣṇu-yaśaso\
 > nāmnā kalkir jagat-patiḥ
 
 *atha*—thereafter; *asau*—the same Lord; *yuga-sandhyāyām*—at the conjunction of the *yugas*; *dasyu*—plunderers; *prāyeṣu*—almost all; *rājasu*—the governing personalities; *janitā*—will take His birth; *viṣṇu*—named Viṣṇu; *yaśasaḥ*—surnamed Yaśā; *nāmnā*—in the name of; *kalkiḥ*—the incarnation of the Lord; *jagat-patiḥ*—the Lord of the creation.

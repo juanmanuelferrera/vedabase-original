@@ -1,18 +1,18 @@
 ### SB 3.21.38-39
 
-> यस्मिन्भगवतो नेत्रान्न्यपतन्नश्रुबिन्दवः ।
-> कृपया सम्परीतस्य प्रपन्नेऽर्पितया भृशम् ॥३८॥
-> तद्वै बिन्दुसरो नाम सरस्वत्या परिप्लुतम् ।
+> यस्मिन्भगवतो नेत्रान्न्यपतन्नश्रुबिन्दवः ।\
+> कृपया सम्परीतस्य प्रपन्नेऽर्पितया भृशम् ॥३८॥\
+> तद्वै बिन्दुसरो नाम सरस्वत्या परिप्लुतम् ।\
 > पुण्यं शिवामृतजलं महर्षिगणसेवितम् ॥३९॥
 
-> yasmin bhagavato netrān
-> nyapatann aśru-bindavaḥ
-> kṛpayā samparītasya
+> yasmin bhagavato netrān\
+> nyapatann aśru-bindavaḥ\
+> kṛpayā samparītasya\
 > prapanne 'rpitayā bhṛśam
 
-> tad vai bindusaro nāma
-> sarasvatyā pariplutam
-> puṇyaṁ śivāmṛta-jalaṁ
+> tad vai bindusaro nāma\
+> sarasvatyā pariplutam\
+> puṇyaṁ śivāmṛta-jalaṁ\
 > maharṣi-gaṇa-sevitam
 
 *yasmin*—en el cual; *bhagavataḥ*—del Señor; *netrāt*—del ojo; *nyapatan*—cayeron; *aśru-bindavaḥ*—lágrimas; *kṛpayā*—por compasión; *samparītasya*—que estaba abrumado; *prapanne*—hacia el alma entregada (Kardama); *arpitayā*—situado sobre; *bhṛśam*—extremadamente; *tat*—aquel; *vai*—en verdad; *bindu-saraḥ*—lago de lágrimas; *nāma*—llamado; *sarasvatyā*—del río Sarasvatī; *pariplutam*—rebosante; *puṇyam*—santa; *śiva*—auspiciosa; *amṛta*—néctar; *jalam*—agua; *mahā-ṛṣi*—de grandes sabios; *gaṇa*—por multitudes; *sevitam*—servidos.

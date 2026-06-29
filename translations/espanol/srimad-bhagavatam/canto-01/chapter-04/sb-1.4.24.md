@@ -1,11 +1,11 @@
 ### SB 1.4.24
 
-> त एव वेदा दुर्मेधैर्धार्यन्ते पुरुषैर्यथा ।
+> त एव वेदा दुर्मेधैर्धार्यन्ते पुरुषैर्यथा ।\
 > एवं चकार भगवान्व्यासः कृपणवत्सलः ॥२४॥
 
-> ta eva vedā durmedhair
-> dhāryante puruṣair yathā
-> evaṁ cakāra bhagavān
+> ta eva vedā durmedhair\
+> dhāryante puruṣair yathā\
+> evaṁ cakāra bhagavān\
 > vyāsaḥ kṛpaṇa-vatsalaḥ
 
 *te*—ese; *eva*—ciertamente; *vedāḥ*—el libro de conocimiento; *durmedhaiḥ*—por los poco intelectuales; *dhāryante*—puedan asimilar; *puruṣaiḥ*—por el hombre; *yathā*—tanto como; *evam*—así pues; *cakāra*—editó; *bhagavān*—el poderoso; *vyāsaḥ*—el gran sabio Vyāsa; *kṛpaṇa-vatsalaḥ*—muy bondadoso con las masas ignorantes.

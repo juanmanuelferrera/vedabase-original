@@ -1,13 +1,13 @@
 ### SB 7.5.30
 
-> श्रीप्रह्राद उवाच
-> मतिर्न कृष्णे परतः स्वतो वा मिथोऽभिपद्येत गृहव्रतानाम
+> श्रीप्रह्राद उवाच\
+> मतिर्न कृष्णे परतः स्वतो वा मिथोऽभिपद्येत गृहव्रतानाम\
 > अदान्तगोभिर्विशतां तमिस्रं पुनः पुनश्चर्वितचर्वणानाम ॥३०॥
 
-> śrī-prahrāda uvāca
-> matir na kṛṣṇe parataḥ svato vā
-> mitho 'bhipadyeta gṛha-vratānām
-> adānta-gobhir viśatāṁ tamisraṁ
+> śrī-prahrāda uvāca\
+> matir na kṛṣṇe parataḥ svato vā\
+> mitho 'bhipadyeta gṛha-vratānām\
+> adānta-gobhir viśatāṁ tamisraṁ\
 > punaḥ punaś carvita-carvaṇānām
 
 *śrī-prahrādaḥ uvāca*—Prahlāda Mahārāja dijo; *matiḥ*—atracción; *na*—nunca; *kṛṣṇe*—al Señor Kṛṣṇa; *parataḥ*—de los consejos de otros; *svataḥ*—de su propia comprensión; *vā*—o; *mithaḥ*—del esfuerzo combinado; *abhipadyeta*—se manifiesta; *gṛha-vratānām*—de personas demasiado adictas al concepto corporal y materialista de la vida; *adānta*—fuera de control; *gobhiḥ*—con los sentidos; *viśatām*—entrar; *tamisram*—en la vida infernal; *punaḥ*—de nuevo; *punaḥ*—de nuevo; *carvita*—cosas ya masticadas; *carvaṇānām*—que están masticando.

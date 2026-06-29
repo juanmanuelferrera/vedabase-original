@@ -1,9 +1,9 @@
 ### CC Antya 12.111
 
-> দিন দশ গেলে গোবিন্দ জানাইল আরবার ।
+> দিন দশ গেলে গোবিন্দ জানাইল আরবার ।\
 > পণ্ডিতের ইচ্ছা, — ‘তৈল প্রভু করে অঙ্গীকার’ ॥১১১॥
 
-> dina daśa gele govinda jānāila āra-bāra
+> dina daśa gele govinda jānāila āra-bāra\
 > paṇḍitera icchā,--'taila prabhu kare aṅgīkāra'
 
 *dina daśa gele*—cuando pasaron diez días; *govinda*—Govinda; *jānāila*—informó; *āra-bāra*—de nuevo; *paṇḍitera icchā*—el deseo de Jagadānanda Paṇḍita; *taila*—aceite; *prabhu*—Śrī Caitanya Mahāprabhu; *kare aṅgīkāra*—acepta.

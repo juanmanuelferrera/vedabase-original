@@ -1,9 +1,9 @@
 ### CC Adi 3.84
 
-> ভাগবত, ভারতশাস্ত্র, আগম, পুরাণ ।
+> ভাগবত, ভারতশাস্ত্র, আগম, পুরাণ ।\
 > চৈতন্য-কৃষ্ণ-অবতারে প্রকট প্রমাণ ॥৮৪॥
 
-> bhāgavata, bhārata-śāstra, āgama, purāṇa
+> bhāgavata, bhārata-śāstra, āgama, purāṇa\
 > caitanya-kṛṣṇa-avatāre prakaṭa pramāṇa
 
 *bhāgavata*—el *Śrīmad-Bhāgavatam*; *bhārata-śāstra*—el *Mahābhārata*; *āgama*—obras de literatura Védica; *purāṇa*—los Purāṇas; *caitanya*—como el Señor Caitanya Mahāprabhu; *kṛṣṇa*—del Señor Kṛṣṇa; *avatāre*—en la encarnación; *prakaṭa*—presentada; *pramāṇa*—evidencia.

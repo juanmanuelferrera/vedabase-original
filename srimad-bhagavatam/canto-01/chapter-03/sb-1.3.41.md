@@ -1,11 +1,11 @@
 ### SB 1.3.41
 
-> तदिदं ग्राहयामाससुतमात्मवतां वरम् ।
+> तदिदं ग्राहयामाससुतमात्मवतां वरम् ।\
 > सर्ववेदेतिहासानां सारं सारं समुद्धृतम् ॥४१॥
 
-> tad idaṁ grāhayām āsa
-> sutam ātmavatāṁ varam
-> sarva-vedetihāsānāṁ
+> tad idaṁ grāhayām āsa\
+> sutam ātmavatāṁ varam\
+> sarva-vedetihāsānāṁ\
 > sāraṁ sāraṁ samuddhṛtam
 
 *tat*—that; *idam*—this; *grāhayām āsa*—made to accept; *sutam*—unto his son; *ātmavatām*—of the self-realized; *varam*—most respectful; *sarva*—all; *veda*—Vedic literatures (books of knowledge); *itihāsānām*—of all the histories; *sāram*—cream; *sāram*—cream; *samuddhṛtam*—taken out.

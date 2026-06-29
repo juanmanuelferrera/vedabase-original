@@ -1,9 +1,9 @@
 ### CC Madhya 3.110
 
-> গৌর-দেহ-কান্তি সূর্য জিনিয়া উজ্জ্বল ।
+> গৌর-দেহ-কান্তি সূর্য জিনিয়া উজ্জ্বল ।\
 > অরুণ-বস্ত্রকান্তি তাহে করে ঝলমল ॥১১০॥
 
-> gaura-deha-kānti sūrya jiniyā ujjvala
+> gaura-deha-kānti sūrya jiniyā ujjvala\
 > aruṇa-vastra-kānti tāhe kare jhala-mala
 
 *gaura*—de tez clara; *deha*—del cuerpo; *kānti*—el resplandor; *sūrya*—el sol; *jiniyā*—venciendo; *ujjvala*—brillante; *aruṇa*—rojizo; *vastra-kānti*—la belleza de las vestiduras; *tāhe*—sobre él; *kare*—hace; *jhala-mala*—destellar.

@@ -1,18 +1,18 @@
 ### SB 3.25.39-40
 
-> इमं लोकं तथैवामुमात्मानमुभयायिनम् ।
-> आत्मानमनु ये चेह ये रायः पशवो गृहाः ॥३९॥
-> विसृज्य सर्वानन्यांश्च मामेवं विश्वतोमुखम् ।
+> इमं लोकं तथैवामुमात्मानमुभयायिनम् ।\
+> आत्मानमनु ये चेह ये रायः पशवो गृहाः ॥३९॥\
+> विसृज्य सर्वानन्यांश्च मामेवं विश्वतोमुखम् ।\
 > भजन्त्यनन्यया भक्त्या तान्मृत्योरतिपारये ॥४०॥
 
-> imaṁ lokaṁ tathaivāmum
-> ātmānam ubhayāyinam
-> ātmānam anu ye ceha
+> imaṁ lokaṁ tathaivāmum\
+> ātmānam ubhayāyinam\
+> ātmānam anu ye ceha\
 > ye rāyaḥ paśavo gṛhāḥ
 
-> visṛjya sarvān anyāṁś ca
-> mām evaṁ viśvato-mukham
-> bhajanty ananyayā bhaktyā
+> visṛjya sarvān anyāṁś ca\
+> mām evaṁ viśvato-mukham\
+> bhajanty ananyayā bhaktyā\
 > tān mṛtyor atipāraye
 
 *imam*—this; *lokam*—world; *tathā*—accordingly; *eva*—certainly; *amum*—that world; *ātmānam*—the subtle body; *ubhaya*—in both; *ayinam*—traveling; *ātmānam*—the body; *anu*—in relationship with; *ye*—those who; *ca*—also; *iha*—in this world; *ye*—that which; *rāyaḥ*—wealth; *paśavaḥ*—cattle; *gṛhāḥ*—houses; *visṛjya*—having given up; *sarvān*—all; *anyān*—other; *ca*—and; *mām*—Me; *evam*—thus; *viśvataḥ-mukham*—the all-pervading Lord of the universe; *bhajanti*—they worship; *ananyayā*—unflinching; *bhaktyā*—by devotional service; *tān*—them; *mṛtyoḥ*—of death; *atipāraye*—I take to the other side.

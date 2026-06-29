@@ -1,9 +1,9 @@
 ### CC Madhya 17.86
 
-> প্রভু লঞা গেলা বিশ্বেশ্বর-দরশনে ।
+> প্রভু লঞা গেলা বিশ্বেশ্বর-দরশনে ।\
 > তবে আসি’ দেখে বিন্দুমাধব-চরণে ॥৮৬॥
 
-> prabhu lañā gelā viśveśvara-daraśane
+> prabhu lañā gelā viśveśvara-daraśane\
 > tabe āsi' dekhe bindu-mādhava-caraṇe
 
 *prabhu lañā*—taking the Lord; *gelā*—he went; *viśveśvara-daraśane*—to visit the temple of Viśveśvara; *tabe*—thereafter; *āsi'*—coming; *dekhe*—see; *bindu-mādhava-caraṇe*—the lotus feet of Bindu Mādhava.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.98
 
-> ইঁহার মধ্যে রাধার প্রেম — ‘সাধ্যশিরোমণি’ ।
+> ইঁহার মধ্যে রাধার প্রেম — ‘সাধ্যশিরোমণি’ ।\
 > যাঁহার মহিমা সর্বশাস্ত্রেতে বাখানি ॥৯৮॥
 
-> iṅhāra madhye rādhāra prema—'sādhya-śiromaṇi'
+> iṅhāra madhye rādhāra prema—'sādhya-śiromaṇi'\
 > yāṅhāra mahimā sarva-śāstrete vākhāni
 
 *iṅhāra madhye*—among the loving affairs of the *gopīs*; *rādhāra prema*—the love of Godhead of Śrīmatī Rādhārāṇī; *sādhya-śiromaṇi*—the topmost perfection; *yāṅhāra*—of which; *mahimā*—the glorification; *sarva-śāstrete*—in every scripture; *vākhāni*—description.

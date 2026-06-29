@@ -1,9 +1,9 @@
 ### CC Madhya 17.121
 
-> ‘বেদান্ত’ শ্রবণ কর, না যাইহ তাঁর পাশ ।
+> ‘বেদান্ত’ শ্রবণ কর, না যাইহ তাঁর পাশ ।\
 > উচ্ছৃঙ্খল-লোক-সঙ্গে দুইলোক-নাশ ” ॥ ১২১ ॥
 
-> 'vedānta' śravaṇa kara, nā yāiha tāṅra pāśa
+> 'vedānta' śravaṇa kara, nā yāiha tāṅra pāśa\
 > ucchṛṅkhala-loka-saṅge dui-loka-nāśa"
 
 *vedānta*—la filosofía del Vedānta; *śravaṇa kara*—sigue escuchando; *nā*—no; *yāiha*—vayas; *tāṅra pāśa*—cerca de Él; *ucchṛṅkhala*—advenediza; *loka*—gente; *saṅge*—en asociación con; *dui-loka-nāśa*—destrucción en este mundo y en el siguiente.

@@ -1,11 +1,11 @@
 ### SB 1.18.19
 
-> कुतः पुनर्गृणतो नाम तस्य महत्तमैकान्तपरायणस्य ।
+> कुतः पुनर्गृणतो नाम तस्य महत्तमैकान्तपरायणस्य ।\
 > योऽनन्तशक्तिर्भगवाननन्तो महद्गुणत्वाद्यमनन्तमाहुः ॥१९॥
 
-> kutaḥ punar gṛṇato nāma tasya
-> mahattamaikānta-parāyaṇasya
-> yo 'nanta-śaktir bhagavān ananto
+> kutaḥ punar gṛṇato nāma tasya\
+> mahattamaikānta-parāyaṇasya\
+> yo 'nanta-śaktir bhagavān ananto\
 > mahad-guṇatvād yam anantam āhuḥ
 
 *kutaḥ*—ni qué hablar; *punaḥ*—de nuevo; *gṛṇataḥ*—aquel que canta; *nāma*—el santo nombre; *tasya*—Su; *mahat-tama*—grandes devotos; *ekānta*—exclusivo; *parāyaṇasya*—de aquel que se refugia en; *yaḥ*—Aquel que; *ananta*—es el Ilimitado; *śaktiḥ*—potencia; *bhagavān*—la Personalidad de Dios; *anantaḥ*—inconmensurable; *mahat*—grande; *guṇatvāt*—en virtud de esos atributos; *yam*—a quien; *anantam*—por el nombre de Ananta; *āhuḥ*—se llama.

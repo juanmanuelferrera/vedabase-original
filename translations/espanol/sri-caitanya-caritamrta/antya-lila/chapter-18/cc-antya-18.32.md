@@ -1,9 +1,9 @@
 ### CC Antya 18.32
 
-> যমুনাতে জলকেলি গোপীগণ-সঙ্গে ।
+> যমুনাতে জলকেলি গোপীগণ-সঙ্গে ।\
 > কৃষ্ণ করেন — মহাপ্রভু মগ্ন সেই রঙ্গে ॥৩২॥
 
-> yamunāte jala-keli gopī-gaṇa-saṅge
+> yamunāte jala-keli gopī-gaṇa-saṅge\
 > kṛṣṇa karena--mahāprabhu magna sei raṅge
 
 *yamunāte*—en el río Yamunā; *jala-keli*—pasatiempos en el agua; *gopī-gaṇa-saṅge*—con las gopīs; *kṛṣṇa karena*—Kṛṣṇa realiza; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *magna*—plenamente absorto; *sei raṅge*—en esos pasatiempos.

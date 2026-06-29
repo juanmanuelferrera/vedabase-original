@@ -1,11 +1,11 @@
 ### Bg 2.61
 
-> तानि सर्वाणि संयम्य युक्त आसीत मत्परः ।
+> तानि सर्वाणि संयम्य युक्त आसीत मत्परः ।\
 > वशे हि यस्येन्द्रियाणि तस्य प्रज्ञा प्रतिष्ठिता ॥६१॥
 
-> tāni sarvāṇi saṁyamya
-> yukta āsīta mat-paraḥ
-> vaśe hi yasyendriyāṇi
+> tāni sarvāṇi saṁyamya\
+> yukta āsīta mat-paraḥ\
+> vaśe hi yasyendriyāṇi\
 > tasya prajñā pratiṣṭhitā
 
 *tāni*—esos sentidos; *sarvāṇi*—todos; *saṁyamya*—manteniendo bajo control; *yuktaḥ*—estando ocupados; *āsīta*—estando así situados; *mat-paraḥ*—en relación conmigo; *vaśe*—en subyugación total; *hi*—ciertamente; *yasya*—aquel que; *indriyāṇi*—sentidos; *tasya*—su; *prajñā*—conciencia; *pratiṣṭhitā*—fija.

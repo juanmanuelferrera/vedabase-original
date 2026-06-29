@@ -1,9 +1,9 @@
 ### CC Antya 1.216
 
-> দোল অনন্তরে প্রভু রূপে বিদায় দিলা ।
+> দোল অনন্তরে প্রভু রূপে বিদায় দিলা ।\
 > অনেক প্রসাদ করি’ শক্তি সঞ্চারিলা ॥২১৬॥
 
-> dola anantare prabhu rūpe vidāya dilā
+> dola anantare prabhu rūpe vidāya dilā\
 > aneka prasāda kari' śakti sañcārilā
 
 *dola anantare*—después del Dola-yātrā; *prabhu*—Śrī Caitanya Mahāprabhu; *rūpe*—a Rūpa Gosvāmī; *vidāya dilā*—se despidió; *aneka prasāda kari'*—dotándole de toda clase de misericordia; *śakti sañcārilā*—lo facultó.

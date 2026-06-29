@@ -1,14 +1,14 @@
 ### CC Madhya 22.14-15
 
-> কাম-ক্রোধের দাস হঞা তার লাথি খায় ।
-> ভ্রমিতে ভ্রমিতে যদি সাধু-বৈদ্য পায় ॥১৪॥
-> তাঁর উপদেশ-মন্ত্রে পিশাচী পলায় ।
+> কাম-ক্রোধের দাস হঞা তার লাথি খায় ।\
+> ভ্রমিতে ভ্রমিতে যদি সাধু-বৈদ্য পায় ॥১৪॥\
+> তাঁর উপদেশ-মন্ত্রে পিশাচী পলায় ।\
 > কৃষ্ণভক্তি পায়, তবে কৃষ্ণ-নিকট যায় ॥১৫॥
 
-> kāma-krodhera dāsa hañā tāra lāthi khāya
+> kāma-krodhera dāsa hañā tāra lāthi khāya\
 > bhramite bhramite yadi sādhu-vaidya pāya
 
-> tāṅra upadeśa-mantre piśācī palāya
+> tāṅra upadeśa-mantre piśācī palāya\
 > kṛṣṇa-bhakti pāya, tabe kṛṣṇa-nikaṭa yāya
 
 *kāma*—of lusty desires; *krodhera*—and of anger; *dāsa*—the servant; *hañā*—becoming; *tāra*—by them; *lāthi khāya*—is kicked; *bhramitebhramite*—wandering and wandering; *yadi*—if; *sādhu*—a devotee; *vaidya*—physician; *pāya*—he gets; *tāṅra*—his; *upadeśa-mantre*—by instruction and hymns; *piśācī*—the witch (the external energy); *palāya*—flees; *kṛṣṇa-bhakti*—devotional service to Kṛṣṇa; *pāya*—obtains; *tabe*—in this way; *kṛṣṇa-nikaṭa yāya*—he goes to Kṛṣṇa.

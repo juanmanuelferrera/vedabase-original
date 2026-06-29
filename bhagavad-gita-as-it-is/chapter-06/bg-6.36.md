@@ -1,11 +1,11 @@
 ### Bg 6.36
 
-> असंयतात्मना योगो दुष्प्राप इति मे मतिः ।
+> असंयतात्मना योगो दुष्प्राप इति मे मतिः ।\
 > वश्यात्मना तु यतता शक्योऽवाप्तुमुपायतः ॥३६॥
 
-> asaṁyatātmanā yogo
-> duṣprāpa iti me matiḥ
-> vaśyātmanā tu yatatā
+> asaṁyatātmanā yogo\
+> duṣprāpa iti me matiḥ\
+> vaśyātmanā tu yatatā\
 > śakyo 'vāptum upāyataḥ
 
 *asaṁyata*—unbridled; *ātmanā*—by the mind; *yogaḥ*—self-realization; *duṣprāpaḥ*—difficult to obtain; *iti*—thus; *me*—My; *matiḥ*—opinion; *vaśya*—controlled; *ātmanā*—by the mind; *tu*—but; *yatatā*—while endeavoring; *śakyaḥ*—practical; *avāptum*—to achieve; *upāyataḥ*—appropriate means.

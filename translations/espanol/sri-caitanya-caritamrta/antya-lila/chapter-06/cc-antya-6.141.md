@@ -1,9 +1,9 @@
 ### CC Antya 6.141
 
-> তোমা উদ্ধারিতে গৌর আইলা আপনে  ।
+> তোমা উদ্ধারিতে গৌর আইলা আপনে  ।\
 > ছুটিল তোমার যত বিঘ্ন়াদি-বন্ধনে ॥১৪১॥
 
-> tomā uddhārite gaura āilā āpane
+> tomā uddhārite gaura āilā āpane\
 > chuṭila tomāra yata vighnādi-bandhane
 
 *tomā*—tú; *uddhārite*—para liberar; *gaura*—el Señor Śrī Caitanya Mahāprabhu, Gaurahari; *āilā āpane*—vino personalmente; *chuṭila*—se han ido; *tomāra*—tus; *yata*—toda clase de; *vighna-ādi-bandhane*—impedimentos para el cautiverio.

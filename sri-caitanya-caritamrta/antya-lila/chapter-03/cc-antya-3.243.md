@@ -1,9 +1,9 @@
 ### CC Antya 3.243
 
-> এত বলি’ করেন তেঁহো নাম-সঙ্কীর্তন ।
+> এত বলি’ করেন তেঁহো নাম-সঙ্কীর্তন ।\
 > সেই নারী বসি’ করে শ্রীনাম-শ্রবণ ॥২৪৩॥
 
-> eta bali' karena teṅho nāma-saṅkīrtana
+> eta bali' karena teṅho nāma-saṅkīrtana\
 > sei nārī vasi' kare śrī-nāma-śravaṇa
 
 *eta bali'*—saying this; *karena*—performs; *teṅho*—he; *nāma-saṅkīrtana*—chanting of the holy name; *sei nārī*—that woman; *vasi'*—sitting; *kare*—does; *śrī-nāma-śravaṇa*—hearing the holy name.

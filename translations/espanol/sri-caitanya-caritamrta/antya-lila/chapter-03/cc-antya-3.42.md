@@ -1,9 +1,9 @@
 ### CC Antya 3.42
 
-> তবে দামোদর চলি’ নদীয়া আইলা ।
+> তবে দামোদর চলি’ নদীয়া আইলা ।\
 > মাতারে মিলিয়া তাঁর চরণে রহিলা ॥৪২॥
 
-> tabe dāmodara cali' nadīyā āilā
+> tabe dāmodara cali' nadīyā āilā\
 > mātāre miliyā tāṅra caraṇe rahilā
 
 *tabe*—entonces; *dāmodara*—Dāmodara Paṇḍita; *cali'*—caminando; *nadīyā āilā*—llegó a Nadia (Navadvīpa); *mātāre miliyā*—justo después de encontrarse con Śacīmātā; *tāṅra caraṇe*—a sus pies de loto; *rahilā*—permaneció.

@@ -1,9 +1,9 @@
 ### CC Antya 14.10
 
-> স্বরূপ — ‘সূত্রকর্তা’, রঘুনাথ — ‘বৃত্তিকার’ ।
+> স্বরূপ — ‘সূত্রকর্তা’, রঘুনাথ — ‘বৃত্তিকার’ ।\
 > তার বাহুল্য বর্ণি — পাঁজি-টীকা-ব্যবহার ॥১০॥
 
-> svarūpa—'sūtra-kartā', raghunātha—'vṛttikāra'
+> svarūpa—'sūtra-kartā', raghunātha—'vṛttikāra'\
 > tāra bāhulya varṇi—pāṅji-ṭīkā-vyavahāra
 
 *svarūpa*—Svarūpa Dāmodara Gosvāmī; *sūtra-kartā*—maker of short codes; *raghunātha*—Raghunātha dāsa Gosvāmī; *vṛttikāra*—maker of elaborate explanations; *tāra*—of those; *bāhulya*—more elaborately; *varṇi*—I shall describe; *pāṅji*—fluffing out (as of cotton); *ṭīkā*—explanation; *vyavahāra*—behavior.

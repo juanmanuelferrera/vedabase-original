@@ -1,9 +1,9 @@
 ### CC Adi 16.38
 
-> তোমার কবিতা শ্লোক বুঝিতে কার শক্তি ।
+> তোমার কবিতা শ্লোক বুঝিতে কার শক্তি ।\
 > তুমি ভাল জান অর্থ কিংবা সরস্বতী ॥৩৮॥
 
-> tomāra kavitā śloka bujhite kāra śakti
+> tomāra kavitā śloka bujhite kāra śakti\
 > tumi bhāla jāna artha kiṁvā sarasvatī
 
 *tomāra*—su; *kavita*—poesía; *śloka*—versos; *bujhite*—de entender; *kāra*—de quién; *śakti*—la capacidad; *tumi*—usted; *bhāla*—bien; *jāna*—sabe; *artha*—significado; *kiṁvā*—o; *sarasvatī*—la diosa del conocimiento.

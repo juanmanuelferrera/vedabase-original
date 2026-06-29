@@ -1,9 +1,9 @@
 ### CC Antya 13.69
 
-> প্রভুর নিমিত্ত একস্থান মনে বিচারিল ।
+> প্রভুর নিমিত্ত একস্থান মনে বিচারিল ।\
 > দ্বাদশাদিত্য-টিলায় এক ‘মঠ’ পাইল ॥৬৯॥
 
-> prabhura nimitta eka-sthāna mane vicārila
+> prabhura nimitta eka-sthāna mane vicārila\
 > dvādaśāditya-ṭilāya eka 'maṭha' pāila
 
 *prabhura nimitta*—para Śrī Caitanya Mahāprabhu; *eka-sthāna*—un lugar; *mane*—en la mente; *vicārila*—consideró; *dvādaśāditya-ṭilāya*—en la meseta llamada Dvādaśāditya; *eka*—un; *maṭha*—templo; *pāila*—encontró.

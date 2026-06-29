@@ -1,13 +1,13 @@
 ### CC Madhya 2.39
 
-> ক্ষণে বাহ্য হৈল মন, আগে দেখে দুই জন,
-> তাঁরে পুছে, — আমি না চৈতন্য?
-> স্বপ্নপ্রায় কি দেখিনু, কিবা আমি প্রলাপিনু,
+> ক্ষণে বাহ্য হৈল মন, আগে দেখে দুই জন,\
+> তাঁরে পুছে, — আমি না চৈতন্য?\
+> স্বপ্নপ্রায় কি দেখিনু, কিবা আমি প্রলাপিনু,\
 > তোমরা কিছু শুনিয়াছ দৈন্য? ॥ ৩৯ ॥
 
-> kṣaṇe bāhya haila mana, āge dekhe dui jana,
-> tāṅre puche,--āmi nā caitanya?
-> svapna-prāya ki dekhinu, kibā āmi pralāpinu,
+> kṣaṇe bāhya haila mana, āge dekhe dui jana,\
+> tāṅre puche,--āmi nā caitanya?\
+> svapna-prāya ki dekhinu, kibā āmi pralāpinu,\
 > tomarā kichu śuniyācha dainya?
 
 *kṣaṇe*—en un instante; *bāhya*—exterior; *haila*—se tornó; *mana*—la mente; *āge*—delante; *dekhe*—ve; *dui jana*—dos personas; *tāṅre*—a ellas; *puche*—pregunta; *āmi*—Yo; *nā*—no; *caitanya*—consciente; *svapna-prāya*—casi como un sueño; *ki*—qué; *dekhinu*—he visto; *kibā*—qué; *āmi*—Yo; *pralāpinu*—hablé en desvarío; *tomarā*—vosotros; *kichu*—algo; *śuniyācha*—habéis oído; *dainya*—humildad.

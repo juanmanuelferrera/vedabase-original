@@ -1,27 +1,27 @@
 ### SB 4.26.1-3
 
-> नारद उवाच
-> स एकदा महेष्वासो रथं पञ्चाश्वमाशुगम् ।
-> द्वीषं द्विचक्रमेकाक्षं त्रिवेणुं पञ्चबन्धुरम् ॥१॥
-> एकरश्म्येकदमनमेकनीडं द्विकूबरम् ।
-> पञ्चप्रहरणं सप्त वरूथं पञ्चविक्रमम् ॥२॥
-> हैमोपस्करमारुह्य स्वर्णवर्माक्षयेषुधिः ।
+> नारद उवाच\
+> स एकदा महेष्वासो रथं पञ्चाश्वमाशुगम् ।\
+> द्वीषं द्विचक्रमेकाक्षं त्रिवेणुं पञ्चबन्धुरम् ॥१॥\
+> एकरश्म्येकदमनमेकनीडं द्विकूबरम् ।\
+> पञ्चप्रहरणं सप्त वरूथं पञ्चविक्रमम् ॥२॥\
+> हैमोपस्करमारुह्य स्वर्णवर्माक्षयेषुधिः ।\
 > एकादशचमूनाथः पञ्चप्रस्थमगाद्वनम् ॥३॥
 
-> nārada uvāca
-> sa ekadā maheṣvāso
-> rathaṁ pañcāśvam āśu-gam
-> dvīṣaṁ dvi-cakram ekākṣaṁ
+> nārada uvāca\
+> sa ekadā maheṣvāso\
+> rathaṁ pañcāśvam āśu-gam\
+> dvīṣaṁ dvi-cakram ekākṣaṁ\
 > tri-veṇuṁ pañca-bandhuram
 
-> eka-raśmy eka-damanam
-> eka-nīḍaṁ dvi-kūbaram
-> pañca-praharaṇaṁ sapta-
+> eka-raśmy eka-damanam\
+> eka-nīḍaṁ dvi-kūbaram\
+> pañca-praharaṇaṁ sapta-\
 > varūthaṁ pañca-vikramam
 
-> haimopaskaram āruhya
-> svarṇa-varmākṣayeṣudhiḥ
-> ekādaśa-camū-nāthaḥ
+> haimopaskaram āruhya\
+> svarṇa-varmākṣayeṣudhiḥ\
+> ekādaśa-camū-nāthaḥ\
 > pañca-prastham agād vanam
 
 *nāradaḥ uvāca*—Nārada dijo; *saḥ*—el rey Purañjana; *ekadā*—una vez; *mahā-iṣvāsaḥ*—con su poderoso arco y con flechas; *ratham*—cuadriga; *pañca-aśvam*—cinco caballos; *āśu-gam*—avanzando con gran rapidez; *dvi-īṣam*—dos flechas; *dvi-cakram*—dos ruedas; *eka*—un; *akṣam*—eje; *tri*—tres; *veṇum*—banderas; *pañca*—cinco; *bandhuram*—obstáculos; *eka*—una; *raśmi*—cuerda, rienda; *eka*—un; *damanam*—auriga; *eka*—un; *nīḍam*—asiento; *dvi*—dos; *kūbaram*—postes en que se fijan los arneses; *pañca*—cinco; *praharaṇam*—armas; *sapta*—siete; *varūtham*—cubiertas o componentes del cuerpo; *pañca*—cinco; *vikramam*—procesos; *haima*—de oro; *upaskaram*—adornos; *āruhya*—montando en; *svarṇa*—de oro; *varmā*—armadura; *akṣaya*—inagotable; *iṣu-dhiḥ*—aljaba; *ekādaśa*—once; *camū-nāthaḥ*—comandantes; *pañca*—cinco; *prastham*—destinos, objetivos; *agāt*—fueron; *vanam*—al bosque.

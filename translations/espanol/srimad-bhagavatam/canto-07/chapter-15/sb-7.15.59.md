@@ -1,11 +1,11 @@
 ### SB 7.15.59
 
-> क्षित्यादीनामिहार्थानां छाया न कतमापि हि
+> क्षित्यादीनामिहार्थानां छाया न कतमापि हि\
 > न सङ्घातो विकारोऽपि न पृथङ्नान्वितो मृषा ॥५९॥
 
-> kṣity-ādīnām ihārthānāṁ
-> chāyā na katamāpi hi
-> na saṅghāto vikāro 'pi
+> kṣity-ādīnām ihārthānāṁ\
+> chāyā na katamāpi hi\
+> na saṅghāto vikāro 'pi\
 > na pṛthaṅ nānvito mṛṣā
 
 *kṣiti-ādīnām*—de los cinco elementos, comenzando con la tierra; *iha*—en este mundo; *arthānām*—de esos cinco elementos; *chāyā*—sombra; *na*—ni; *katamā*—cuáles de ellos; *api*—en verdad; *hi*—ciertamente; *na*—ni; *saṅghātaḥ*—combinación; *vikāraḥ*—transformación; *api*—aunque; *na pṛthak*—no separados; *na anvitaḥ*—no inherentes a; *mṛṣā*—todas esas teorías carecen de fundamento.

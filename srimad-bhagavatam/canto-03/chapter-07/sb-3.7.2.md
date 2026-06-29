@@ -1,13 +1,13 @@
 ### SB 3.7.2
 
-> विदुर उवाच
-> ब्रह्मन्कथं भगवतश्चिन्मात्रस्याविकारिणः ।
+> विदुर उवाच\
+> ब्रह्मन्कथं भगवतश्चिन्मात्रस्याविकारिणः ।\
 > लीलया चापि युज्येरन्निर्गुणस्य गुणाः क्रियाः ॥२॥
 
-> vidura uvāca
-> brahman kathaṁ bhagavataś
-> cin-mātrasyāvikāriṇaḥ
-> līlayā cāpi yujyeran
+> vidura uvāca\
+> brahman kathaṁ bhagavataś\
+> cin-mātrasyāvikāriṇaḥ\
+> līlayā cāpi yujyeran\
 > nirguṇasya guṇāḥ kriyāḥ
 
 *viduraḥ uvāca*—Vidura said; *brahman*—O *brāhmaṇa*; *katham*—how; *bhagavataḥ*—of the Personality of Godhead; *cit-mātrasya*—of the complete spiritual whole; *avikāriṇaḥ*—of the unchangeable; *līlayā*—by His pastime; *ca*—either; *api*—even though it is so; *yujyeran*—take place; *nirguṇasya*—who is without the modes of nature; *guṇāḥ*—modes of nature; *kriyāḥ*—activities.

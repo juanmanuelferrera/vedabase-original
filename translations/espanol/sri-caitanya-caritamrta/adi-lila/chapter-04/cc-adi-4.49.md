@@ -1,9 +1,9 @@
 ### CC Adi 4.49
 
-> প্রৌঢ় নির্মলভাব প্রেম সর্বোত্তম ।
+> প্রৌঢ় নির্মলভাব প্রেম সর্বোত্তম ।\
 > কৃষ্ণের মাধুর্যরস-আস্বাদ-কারণ ॥৪৯॥
 
-> prauḍha nirmala-bhāva prema sarvottama
+> prauḍha nirmala-bhāva prema sarvottama\
 > kṛṣṇera mādhurya-rasa-āsvāda-kāraṇa
 
 *prauḍha*—maduro; *nirmala-bhāva*—condición pura; *prema*—amor; *sarva-uttama*—el mejor de todos; *kṛṣṇera*—del Señor Kṛṣṇa; *mādhurya-rasa*—del sabor trascendental de la relación conyugal; *āsvāda*—del saboreo; *kāraṇa*—la causa.

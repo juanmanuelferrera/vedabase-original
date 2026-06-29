@@ -1,9 +1,9 @@
 ### CC Antya 3.201
 
-> বলাই-পুরোহিত তারে করিলা ভর্ৎসন ।
+> বলাই-পুরোহিত তারে করিলা ভর্ৎসন ।\
 > “ঘট-পটিয়া মূর্খ তুঞি ভক্তি কাঁহা জান ? ॥ ২০১ ॥
 
-> balāi-purohita tāre karilā bhartsana
+> balāi-purohita tāre karilā bhartsana\
 > "ghaṭa-paṭiyā mūrkha tuñi bhakti kāṅhā jāna?
 
 *balāi-purohita*—el sacerdote llamado Balarāma Ācārya; *tāre*—a Gopāla Cakravartī; *karilā*—hizo; *bhartsana*—reprensión; *ghaṭa-paṭiyā*—interesado en la vasija y la tierra; *mūrkha*—necio; *tuñi*—tú; *bhakti*—servicio devocional; *kāṅhā*—qué; *jāna*—sabes.

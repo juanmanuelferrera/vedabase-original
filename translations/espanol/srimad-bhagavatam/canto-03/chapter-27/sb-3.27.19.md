@@ -1,11 +1,11 @@
 ### SB 3.27.19
 
-> अकर्तुः कर्मबन्धोऽयं पुरुषस्य यदाश्रयः ।
+> अकर्तुः कर्मबन्धोऽयं पुरुषस्य यदाश्रयः ।\
 > गुणेषु सत्सु प्रकृतेः कैवल्यं तेष्वतः कथम् ॥१९॥
 
-> akartuḥ karma-bandho 'yaṁ
-> puruṣasya yad-āśrayaḥ
-> guṇeṣu satsu prakṛteḥ
+> akartuḥ karma-bandho 'yaṁ\
+> puruṣasya yad-āśrayaḥ\
+> guṇeṣu satsu prakṛteḥ\
 > kaivalyaṁ teṣv ataḥ katham
 
 *akartuḥ*—del ejecutor pasivo, el que no hace; *karma-bandhaḥ*—cautiverio a las actividades fruitivas; *ayam*—este; *puruṣasya*—del alma; *yat-āśrayaḥ*—debido al apego a las modalidades; *guṇeṣu*—mientras las modalidades; *satsu*—están existiendo; *prakṛteḥ*—de la naturaleza material; *kaivalyam*—libertad; *teṣu*—aquellos; *ataḥ*—por lo tanto; *katham*—cómo.

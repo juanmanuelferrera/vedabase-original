@@ -1,11 +1,11 @@
 ### SB 3.8.23
 
-> मृणालगौरायतशेषभोग पर्यङ्क एकं पुरुषं शयानम् ।
+> मृणालगौरायतशेषभोग पर्यङ्क एकं पुरुषं शयानम् ।\
 > फणातपत्रायुतमूर्धरत्न द्युभिर्हतध्वान्तयुगान्ततोये ॥२३॥
 
-> mṛṇāla-gaurāyata-śeṣa-bhoga-
-> paryaṅka ekaṁ puruṣaṁ śayānam
-> phaṇātapatrāyuta-mūrdha-ratna-
+> mṛṇāla-gaurāyata-śeṣa-bhoga-\
+> paryaṅka ekaṁ puruṣaṁ śayānam\
+> phaṇātapatrāyuta-mūrdha-ratna-\
 > dyubhir hata-dhvānta-yugānta-toye
 
 *mṛṇāla*—flor de loto; *gaura*—blanco por todas partes; *āyata*—gigantesco; *śeṣa-bhoga*—cuerpo de Śeṣa-nāga; *paryaṅke*—en el lecho; *ekam*—solo; *puruṣam*—la Persona Suprema; *śayānam*—yacía; *phaṇa-ātapatra*—paraguas de cabeza de una serpiente; *āyuta*—adornado con; *mūrdha*—cabeza; *ratna*—joyas; *dyubhiḥ*—por los rayos; *hata-dhvānta*—oscuridad disipada; *yuga-anta*—devastación; *toye*—en el agua.

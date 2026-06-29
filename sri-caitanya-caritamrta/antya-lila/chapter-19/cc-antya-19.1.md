@@ -1,11 +1,11 @@
 ### CC Antya 19.1
 
-> বন্দে তং কৃষ্ণচৈতন্যং মাতৃভক্তশিরোমণিম্ ।
+> বন্দে তং কৃষ্ণচৈতন্যং মাতৃভক্তশিরোমণিম্ ।\
 > প্রলপ্য মুখসংঘর্ষী মধুদ্যানে ললাস যঃ ॥১॥
 
-> vande taṁ kṛṣṇa-caitanyaṁ
-> mātṛ-bhakta-śiromaṇim
-> pralapya mukha-saṅgharṣī
+> vande taṁ kṛṣṇa-caitanyaṁ\
+> mātṛ-bhakta-śiromaṇim\
+> pralapya mukha-saṅgharṣī\
 > madhūdyāne lalāsa yaḥ
 
 *vande*—I offer my respectful obeisances; *tam*—unto Him; *kṛṣṇa-caitanyam*—Lord Śrī Caitanya Mahāprabhu; *mātṛ-bhakta*—of great devotees of mothers; *śiromaṇim*—the crown jewel; *pralapya*—talking like a madman; *mukha-saṅgharṣī*—who used to rub His face; *madhu-udyāne*—in the garden known as Jagannātha-vallabha; *lalāsa*—enjoyed; *yaḥ*—who.

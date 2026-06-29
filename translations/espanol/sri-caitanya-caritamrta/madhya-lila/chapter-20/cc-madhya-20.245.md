@@ -1,9 +1,9 @@
 ### CC Madhya 20.245
 
-> অবতার হয় কৃষ্ণের ষড়্বিধ প্রকার  ।
+> অবতার হয় কৃষ্ণের ষড়্বিধ প্রকার  ।\
 > পুরুষাবতার এক, লীলাবতার আর ॥২৪৫॥
 
-> avatāra haya kṛṣṇera ṣaḍ-vidha prakāra
+> avatāra haya kṛṣṇera ṣaḍ-vidha prakāra\
 > puruṣāvatāra eka, līlāvatāra āra
 
 *avatāra*—encarnaciones; *haya*—hay; *kṛṣṇera*—del Señor Kṛṣṇa; *ṣaṭ-vidha prakāra*—seis clases; *puruṣa-avatāra*—encarnaciones de Viṣṇu; *eka*—una; *līlā-avatāra*—encarnaciones para la ejecución de pasatiempos; *āra*—también.

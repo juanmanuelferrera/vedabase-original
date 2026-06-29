@@ -1,9 +1,9 @@
 ### CC Madhya 20.184
 
-> তদেকাত্মরূপে ‘বিলাস’, ‘স্বাংশ’ — দুই ভেদ ।
+> তদেকাত্মরূপে ‘বিলাস’, ‘স্বাংশ’ — দুই ভেদ ।\
 > বিলাস, স্বাংশের ভেদে বিবিধ বিভেদ ॥১৮৪॥
 
-> tad-ekātma-rūpe 'vilāsa', 'svāṁśa'—dui bheda
+> tad-ekātma-rūpe 'vilāsa', 'svāṁśa'—dui bheda\
 > vilāsa, svāṁśera bhede vividha vibheda
 
 *tat-ekātma-rūpe*—in the form of *tad-ekātma*; *vilāsa*—pastime; *svāṁśa*—personal expansion; *dui bheda*—two divisions; *vilāsa*—of the pastime expansion; *svāṁśera*—of the personal expansion; *bhede*—by differences; *vividha*—various; *vibheda*—distinctions.

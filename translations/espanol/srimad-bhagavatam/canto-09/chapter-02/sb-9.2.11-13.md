@@ -1,25 +1,25 @@
 ### SB 9.2.11-13
 
-> वासुदेवे भगवति सर्वात्मनि परेऽमले
-> एकान्तित्वं गतो भक्त्या सर्वभूतसुहृत्समः ॥११॥
-> विमुक्तसङ्गः शान्तात्मा संयताक्षोऽपरिग्रहः
-> यदृच्छयोपपन्नेन कल्पयन्वृत्तिमात्मनः ॥१२॥
-> आत्मन्यात्मानमाधाय ज्ञआनतृप्तः समाहितः
+> वासुदेवे भगवति सर्वात्मनि परेऽमले\
+> एकान्तित्वं गतो भक्त्या सर्वभूतसुहृत्समः ॥११॥\
+> विमुक्तसङ्गः शान्तात्मा संयताक्षोऽपरिग्रहः\
+> यदृच्छयोपपन्नेन कल्पयन्वृत्तिमात्मनः ॥१२॥\
+> आत्मन्यात्मानमाधाय ज्ञआनतृप्तः समाहितः\
 > विचचार महीमेतां जडान्धबधिराकृतिः ॥१३॥
 
-> vāsudeve bhagavati
-> sarvātmani pare 'male
-> ekāntitvaṁ gato bhaktyā
+> vāsudeve bhagavati\
+> sarvātmani pare 'male\
+> ekāntitvaṁ gato bhaktyā\
 > sarva-bhūta-suhṛt samaḥ
 
-> vimukta-saṅgaḥ śāntātmā
-> saṁyatākṣo 'parigrahaḥ
-> yad-ṛcchayopapannena
+> vimukta-saṅgaḥ śāntātmā\
+> saṁyatākṣo 'parigrahaḥ\
+> yad-ṛcchayopapannena\
 > kalpayan vṛttim ātmanaḥ
 
-> ātmany ātmānam ādhāya
-> jñāna-tṛptaḥ samāhitaḥ
-> vicacāra mahīm etāṁ
+> ātmany ātmānam ādhāya\
+> jñāna-tṛptaḥ samāhitaḥ\
+> vicacāra mahīm etāṁ\
 > jaḍāndha-badhirākṛtiḥ
 
 *vāsudeve*—a la Suprema Personalidad de Dios; *bhagavati*—al Señor; *sarva-ātmani*—a la Superalma; *pare*—a la Realidad Trascendental; *amale*—a la Persona Suprema, que está libre de contaminación material; *ekāntitvam*—ofrecer servicio devocional sin distracción; *gataḥ*—situado en esa posición; *bhaktyā*—debido a la devoción pura; *sarva-bhūta-suḥrt samaḥ*—debido a que era un devoto, amistoso y ecuánime con todos; *vimukta-saṅgaḥ*—sin contaminación material; *śānta-ātmā*—una actitud pacífica; *saṁyata*—con dominio de sí mismo; *akṣaḥ*—cuya visión; *aparigrahaḥ*—sin aceptar caridad de nadie; *yat-ṛcchayā*—por la gracia del Señor; *upapannena*—por todo lo que tenía a mano para satisfacer las necesidades materiales; *kalpayan*—resolviendo de ese modo; *vṛttim*—las necesidades del cuerpo; *ātmanaḥ*—para beneficio del alma; *ātmani*—dentro de la mente; *ātmānam*—al Alma Suprema, la Personalidad de Dios; *ādhāya*—manteniendo siempre; *jñāna-tṛptaḥ*—plenamente satisfecho con el conocimiento trascendental; *samāhitaḥ*—siempre en trance; *vicacāra*—viajó por toda; *mahīm*—la Tierra; *etām*—esta; *jaḍa*—mudo; *andha*—ciego; *badhira*—sordo; *ākṛtiḥ*—como si fuera.

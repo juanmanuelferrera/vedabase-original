@@ -1,11 +1,11 @@
 ### SB 1.3.3
 
-> यस्यावयवसंस्थानैः कल्पितो लोकविस्तरः ।
+> यस्यावयवसंस्थानैः कल्पितो लोकविस्तरः ।\
 > तद्वै भगवतो रूपं विशुद्धं सत्त्वमूर्जितम् ॥३॥
 
-> yasyāvayava-saṁsthānaiḥ
-> kalpito loka-vistaraḥ
-> tad vai bhagavato rūpaṁ
+> yasyāvayava-saṁsthānaiḥ\
+> kalpito loka-vistaraḥ\
+> tad vai bhagavato rūpaṁ\
 > viśuddhaṁ sattvam ūrjitam
 
 *yasya*—whose; *avayava*—bodily expansion; *saṁsthānaiḥ*—situated in; *kalpitaḥ*—is imagined; *loka*—planets of inhabitants; *vistaraḥ*—various; *tat vai*—but that is; *bhagavataḥ*—of the Personality of Godhead; *rūpam*—form; *viśuddham*—purely; *sattvam*—existence; *ūrjitam*—excellence.

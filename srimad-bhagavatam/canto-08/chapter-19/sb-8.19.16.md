@@ -1,11 +1,11 @@
 ### SB 8.19.16
 
-> तस्मात्त्वत्तो महीमीषद्वृणेऽहं वरदर्षभात
+> तस्मात्त्वत्तो महीमीषद्वृणेऽहं वरदर्षभात\
 > पदानि त्रीणि दैत्येन्द्र सम्मितानि पदा मम ॥१६॥
 
-> tasmāt tvatto mahīm īṣad
-> vṛṇe 'haṁ varadarṣabhāt
-> padāni trīṇi daityendra
+> tasmāt tvatto mahīm īṣad\
+> vṛṇe 'haṁ varadarṣabhāt\
+> padāni trīṇi daityendra\
 > sammitāni padā mama
 
 *tasmāt*—from such a person; *tvattaḥ*—from Your Majesty; *mahīm*—land; *īṣat*—very little; *vṛṇe*—am asking for; *aham*—I; *varada-ṛṣabhāt*—from the personality who can give charity munificently; *padāni*—footsteps; *trīṇi*—three; *daitya-indra*—O King of the Daityas; *sammitāni*—to the measurement of; *padā*—by a foot; *mama*—My.

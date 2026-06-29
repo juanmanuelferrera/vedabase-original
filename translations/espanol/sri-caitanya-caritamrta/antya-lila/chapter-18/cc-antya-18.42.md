@@ -1,9 +1,9 @@
 ### CC Antya 18.42
 
-> পূর্ব-দিশায় চলে স্বরূপ লঞা কত জন ।
+> পূর্ব-দিশায় চলে স্বরূপ লঞা কত জন ।\
 > সিন্ধু-তীরে-নীরে করেন প্রভুর অন্বেষণ ॥৪২॥
 
-> pūrva-diśāya cale svarūpa lañā kata jana
+> pūrva-diśāya cale svarūpa lañā kata jana\
 > sindhu-tīre-nīre karena prabhura anveṣaṇa
 
 *pūrva-diśāya*—en dirección este; *cale*—avanza; *svarūpa*—Svarūpa Dāmodara Gosvāmī; *lañā*—llevando consigo; *kata jana*—a algunas personas; *sindhu-tīre*—en la orilla del mar; *nīre*—en el agua; *karena*—realiza; *prabhura*—de Śrī Caitanya Mahāprabhu; *anveṣaṇa*—búsqueda.

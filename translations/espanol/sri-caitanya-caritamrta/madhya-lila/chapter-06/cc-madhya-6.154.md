@@ -1,11 +1,11 @@
 ### CC Madhya 6.154
 
-> বিষ্ণুশক্তিঃ পরা প্রোক্তা ক্ষেত্রজ্ঞাখ্যা তথাপরা ।
+> বিষ্ণুশক্তিঃ পরা প্রোক্তা ক্ষেত্রজ্ঞাখ্যা তথাপরা ।\
 > অবিদ্যাকর্মসংজ্ঞান্যা তৃতীয়া শক্তিরিষ্যতে ॥১৫৪॥
 
-> viṣṇu-śaktiḥ parā proktā
-> kṣetra-jñākhyā tathā parā
-> avidyā-karma-saṁjñānyā
+> viṣṇu-śaktiḥ parā proktā\
+> kṣetra-jñākhyā tathā parā\
+> avidyā-karma-saṁjñānyā\
 > tṛtīyā śaktir iṣyate
 
 *viṣṇu-śaktiḥ*—la potencia interna del Señor Viṣṇu, la Suprema Personalidad de Dios; *parā*—espiritual; *proktā*—se dice; *kṣetra-jña*—las entidades vivientes; *ākhyā*—conocidas como; *tathā*—también; *parā*—espiritual; *avidyā*—nesciencia, o impiedad; *karma*—y actividades fruitivas; *saṁjñā*—conocida como; *anyā*—otra; *tṛtīyā*—tercera; *śaktiḥ*—potencia; *iṣyate*—se acepta como.

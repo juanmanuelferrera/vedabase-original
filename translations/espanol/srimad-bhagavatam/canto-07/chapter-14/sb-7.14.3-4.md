@@ -1,18 +1,18 @@
 ### SB 7.14.3-4
 
-> शृण्वन्भगवतोऽभीक्ष्णमवतारकथामृतम
-> श्रद्दधानो यथाकालमुपशान्तजनावृतः ॥३॥
-> सत्सङ्गाच्छनकैः सङ्गमात्मजायात्मजादिषु
+> शृण्वन्भगवतोऽभीक्ष्णमवतारकथामृतम\
+> श्रद्दधानो यथाकालमुपशान्तजनावृतः ॥३॥\
+> सत्सङ्गाच्छनकैः सङ्गमात्मजायात्मजादिषु\
 > विमुञ्चेन्मुच्यमानेषु स्वयं स्वप्नवदुत्थितः ॥४॥
 
-> śṛṇvan bhagavato 'bhīkṣṇam
-> avatāra-kathāmṛtam
-> śraddadhāno yathā-kālam
+> śṛṇvan bhagavato 'bhīkṣṇam\
+> avatāra-kathāmṛtam\
+> śraddadhāno yathā-kālam\
 > upaśānta-janāvṛtaḥ
 
-> sat-saṅgāc chanakaiḥ saṅgam
-> ātma-jāyātmajādiṣu
-> vimuñcen mucyamāneṣu
+> sat-saṅgāc chanakaiḥ saṅgam\
+> ātma-jāyātmajādiṣu\
+> vimuñcen mucyamāneṣu\
 > svayaṁ svapnavad utthitaḥ
 
 *śṛṇvan*—escuchar; *bhagavataḥ*—del Señor; *abhīkṣṇam*—siempre; *avatāra*—de las encarnaciones; *kathā*—narraciones; *amṛtam*—el néctar; *śraddadhānaḥ*—ser muy fiel en escuchar acerca de la Suprema Personalidad de Dios; *yathā-kālam*—conforme al tiempo (por lo general, el *gṛhastha* puede disponer de tiempo al anochecer o por la tarde); *upaśānta*—completamente liberadas de las actividades materiales; *jana*—por personas; *āvṛtaḥ*—rodeado; *sat-saṅgāt*—de esa buena compañía; *śanakaiḥ*—poco a poco; *saṅgam*—relación; *ātma*—en el cuerpo; *jāyā*—esposa; *ātma-ja-ādiṣu*—así como en hijos; *vimuñcet*—debe liberarse del apego por esa compañía; *mucyamāneṣu*—ser separados (de él); *svayam*—personalmente; *svapna-vat*—como un sueño; *utthitaḥ*—despertado.

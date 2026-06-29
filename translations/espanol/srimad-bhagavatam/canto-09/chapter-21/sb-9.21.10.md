@@ -1,11 +1,11 @@
 ### SB 9.21.10
 
-> पानीयमात्रमुच्छेषं तच्चैकपरितर्पणम
+> पानीयमात्रमुच्छेषं तच्चैकपरितर्पणम\
 > पास्यतः पुल्कसोऽभ्यागादपो देह्यशुभाय मे ॥१०॥
 
-> pānīya-mātram uccheṣaṁ
-> tac caika-paritarpaṇam
-> pāsyataḥ pulkaso 'bhyāgād
+> pānīya-mātram uccheṣaṁ\
+> tac caika-paritarpaṇam\
+> pāsyataḥ pulkaso 'bhyāgād\
 > apo dehy aśubhāya me
 
 *pānīya-mātram*—solo el agua de beber; *uccheṣam*—que quedaba del alimento; *tat ca*—eso también; *eka*—para uno; *paritarpaṇam*—satisfacer; *pāsyataḥ*—cuando el rey estaba a punto de beber; *pulkasaḥ*—un *caṇḍāla*; *abhyāgāt*—llegó; *apaḥ*—agua; *dehi*—dame, por favor; *aśubhāya*—aunque soy un *caṇḍāla* de baja clase; *me*—a mí.

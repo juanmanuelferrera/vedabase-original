@@ -1,11 +1,11 @@
 ### SB 6.2.33
 
-> अन्यथा म्रियमाणस्य नाशुचेर्वृषलीपतेः
+> अन्यथा म्रियमाणस्य नाशुचेर्वृषलीपतेः\
 > वैकुण्ठनामग्रहणं जिह्वा वक्तुमिहार्हति ॥३३॥
 
-> anyathā mriyamāṇasya
-> nāśucer vṛṣalī-pateḥ
-> vaikuṇṭha-nāma-grahaṇaṁ
+> anyathā mriyamāṇasya\
+> nāśucer vṛṣalī-pateḥ\
+> vaikuṇṭha-nāma-grahaṇaṁ\
 > jihvā vaktum ihārhati
 
 *anyathā*—de otra forma; *mriyamāṇasya*—de una persona que está a punto de morir; *na*—no; *aśuceḥ*—muy sucio; *vṛṣalī-pateḥ*—aquel que mantiene a una prostituta; *vaikuṇṭha*—del Señor de Vaikuṇṭha; *nāma-grahaṇam*—el canto del santo nombre; *jihvā*—la lengua; *vaktum*—hablar; *iha*—en esa situación; *arhati*—puede.

@@ -1,9 +1,9 @@
 ### CC Adi 13.5
 
-> জয় শ্রীচৈতন্যচন্দ্রের ভক্ত চন্দ্রগণ ।
+> জয় শ্রীচৈতন্যচন্দ্রের ভক্ত চন্দ্রগণ ।\
 > সবার প্রেম-জ্যোৎস্নায় উজ্জ্বল ত্রিভুবন ॥৫॥
 
-> jaya śrī-caitanyacandrera bhakta candra-gaṇa
+> jaya śrī-caitanyacandrera bhakta candra-gaṇa\
 > sabāra prema jyotsnāya ujjvala tri-bhuvana
 
 *jaya*—all glories; *śrī-caitanya*—of Lord Caitanya Mahāprabhu; *candrera*—who is as bright as the moon; *bhakta*—devotees; *candra-gaṇa*—other moons; *sabāra*—of all of them; *prema-jyotsnāya*—by the full light of love of Godhead; *ujjvala*—bright; *tri-bhuvana*—all the three worlds.

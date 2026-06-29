@@ -1,11 +1,11 @@
 ### SB 3.7.19
 
-> यत्सेवया भगवतः कूटस्थस्य मधुद्विषः ।
+> यत्सेवया भगवतः कूटस्थस्य मधुद्विषः ।\
 > रतिरासो भवेत्तीव्रः पादयोर्व्यसनार्दनः ॥१९॥
 
-> yat-sevayā bhagavataḥ
-> kūṭa-sthasya madhu-dviṣaḥ
-> rati-rāso bhavet tīvraḥ
+> yat-sevayā bhagavataḥ\
+> kūṭa-sthasya madhu-dviṣaḥ\
+> rati-rāso bhavet tīvraḥ\
 > pādayor vyasanārdanaḥ
 
 *yat*—a quien; *sevayā*—mediante el servicio; *bhagavataḥ*—de la Personalidad de Dios; *kūṭa-sthasya*—del inmutable; *madhu-dviṣaḥ*—el enemigo del *asura* Madhu; *rati-rāsaḥ*—apego en diferentes relaciones; *bhavet*—se desarrolla; *tīvraḥ*—sumamente extático; *pādayoḥ*—de los pies; *vyasana*—congojas; *ardanaḥ*—venciendo.

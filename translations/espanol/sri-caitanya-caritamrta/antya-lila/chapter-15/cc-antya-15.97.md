@@ -1,13 +1,13 @@
 ### CC Antya 15.97
 
-> পয়োরাশেস্তীরে স্ফুরদুপবনালীকলনয়া
-> মুহুর্বৃন্দারণ্যস্মরণজনিতপ্রেমবিবশঃ ।
-> ক্বচিৎ কৃষ্ণাবৃত্তিপ্রচলরসনো ভক্তিরসিকঃ
+> পয়োরাশেস্তীরে স্ফুরদুপবনালীকলনয়া\
+> মুহুর্বৃন্দারণ্যস্মরণজনিতপ্রেমবিবশঃ ।\
+> ক্বচিৎ কৃষ্ণাবৃত্তিপ্রচলরসনো ভক্তিরসিকঃ\
 > স চৈতন্যঃ কিং মে পুনরপি দৃশোর্যাস্যতি পদম্ ॥৯৭॥
 
-> payorāśes tīre sphurad-upavanālī-kalanayā
-> muhur vṛndāraṇya-smaraṇa-janita-prema-vivaśaḥ
-> kvacit kṛṣṇāvṛtti-pracala-rasano bhakti-rasikaḥ
+> payorāśes tīre sphurad-upavanālī-kalanayā\
+> muhur vṛndāraṇya-smaraṇa-janita-prema-vivaśaḥ\
+> kvacit kṛṣṇāvṛtti-pracala-rasano bhakti-rasikaḥ\
 > sa caitanyaḥ kiṁ me punarapi dṛśor yāsyati padam
 
 *payaḥ-rāśeḥ*—junto al mar; *tīre*—en la playa; *sphurat*—hermoso; *upavanālī*—jardín; *kalanayā*—al ver; *muhuḥ*—continuamente; *vṛndāraṇya*—el bosque de Vṛndāvana; *smaraṇa-janita*—al recordar; *prema-vivaśaḥ*—dominado por el amor extático por Kṛṣṇa; *kvacit*—a veces; *kṛṣṇa*—del santo nombre de Kṛṣṇa; *āvṛtti*—repetición; *pracala*—ocupada activamente en; *rasanaḥ*—cuya lengua; *bhakti-rasikaḥ*—experto en el servicio devocional; *saḥ*—ese; *caitanyaḥ*—Śrī Caitanya Mahāprabhu; *kim*—si; *me*—mi; *punarapi*—de nuevo; *dṛśoḥ*—de los ojos; *yāsyati*—irá; *padam*—ante el camino.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.81
 
-> শিষ্য কহে, — ‘ঈশ্বর-তত্ত্ব সাধি অনুমানে ৷’
+> শিষ্য কহে, — ‘ঈশ্বর-তত্ত্ব সাধি অনুমানে ৷’\
 > আচার্য কহে, — ‘অনুমানে নহে ঈশ্বরজ্ঞানে ॥৮১॥
 
-> śiṣya kahe,--'īśvara-tattva sādhi anumāne'
+> śiṣya kahe,--'īśvara-tattva sādhi anumāne'\
 > ācārya kahe,--'anumāne nahe īśvara-jñāne
 
 *śiṣya kahe*—los discípulos dijeron; *īśvara-tattva*—la verdad de lo Absoluto; *sādhi*—derivamos; *anumāne*—por hipótesis; *ācārya kahe*—Gopīnātha Ācārya respondió; *anumāne*—por hipótesis; *nahe*—no hay; *īśvara-jñāne*—verdadero conocimiento de la Suprema Personalidad de Dios.

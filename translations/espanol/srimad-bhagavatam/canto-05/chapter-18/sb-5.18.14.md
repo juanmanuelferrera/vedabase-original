@@ -1,11 +1,11 @@
 ### SB 5.18.14
 
-> तस्माद्रजोरागविषादमन्यु मानस्पृहाभयदैन्याधिमूलम
+> तस्माद्रजोरागविषादमन्यु मानस्पृहाभयदैन्याधिमूलम\
 > हित्वा गृहं संसृतिचक्रवालं नृसिंहपादं भजताकुतोभयमिति ॥१४॥
 
-> tasmād rajo-rāga-viṣāda-manyu-
-> māna-spṛhā-bhayadainyādhimūlam
-> hitvā gṛhaṁ saṁsṛti-cakravālaṁ
+> tasmād rajo-rāga-viṣāda-manyu-\
+> māna-spṛhā-bhayadainyādhimūlam\
+> hitvā gṛhaṁ saṁsṛti-cakravālaṁ\
 > nṛsiṁha-pādaṁ bhajatākutobhayam iti
 
 *tasmāt*—por lo tanto; *rajaḥ*—de pasión o deseos materiales; *rāga*—apego por cosas materiales; *viṣāda*—seguidos de la desilusión; *manyu*—la ira; *māna-spṛhā*—el deseo de ser una persona respetable en la sociedad; *bhaya*—el miedo; *dainya*—de la pobreza; *adhimūlam*—la raíz; *hitvā*—abandonar; *gṛham*—la vida familiar; *saṁsṛti-cakravālam*—el ciclo de nacimientos y muertes; *nṛsiṁha-pādam*—a los pies de loto del Señor Nṛsiṁhadeva; *bhajata*—adoren; *akutaḥ-bhayam*—el refugio en que no existe el temor; *iti*—así.

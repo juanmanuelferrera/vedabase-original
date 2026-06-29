@@ -1,11 +1,11 @@
 ### SB 4.4.20
 
-> कर्म प्रवृत्तं च निवृत्तमप्यृतं वेदे विविच्योभयलिङ्गमाश्रितम् ।
+> कर्म प्रवृत्तं च निवृत्तमप्यृतं वेदे विविच्योभयलिङ्गमाश्रितम् ।\
 > विरोधि तद्यौगपदैककर्तरि द्वयं तथा ब्रह्मणि कर्म नर्च्छति ॥२०॥
 
-> karma pravṛttaṁ ca nivṛttam apy ṛtaṁ
-> vede vivicyobhaya-liṅgam āśritam
-> virodhi tad yaugapadaika-kartari
+> karma pravṛttaṁ ca nivṛttam apy ṛtaṁ\
+> vede vivicyobhaya-liṅgam āśritam\
+> virodhi tad yaugapadaika-kartari\
 > dvayaṁ tathā brahmaṇi karma narcchati
 
 *karma*—actividades; *pravṛttam*—apegados al disfrute material; *ca*—y; *nivṛttam*—desapegados de la materia; *api*—ciertamente; *ṛtam*—verdad; *vede*—en los *Vedas*; *vivicya*—distintas; *ubhaya-liṅgam*—las características de cada una; *āśritam*—ordenadas; *virodhi*—contradictoria; *tat*—esa; *yaugapada-eka-kartari*—ambas actividades en una persona; *dvayam*—dos; *tathā*—de modo que; *brahmaṇi*—en el que está situado en el plano trascendental; *karma*—actividades; *na ṛcchati*—hace caso omiso.

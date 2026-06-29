@@ -1,11 +1,11 @@
 ### SB 3.24.21
 
-> गते शतधृतौ क्षत्तः कर्दमस्तेन चोदितः ।
+> गते शतधृतौ क्षत्तः कर्दमस्तेन चोदितः ।\
 > यथोदितं स्वदुहित्ः प्रादाद्विश्वसृजां ततः ॥२१॥
 
-> gate śata-dhṛtau kṣattaḥ
-> kardamas tena coditaḥ
-> yathoditaṁ sva-duhitṝḥ
+> gate śata-dhṛtau kṣattaḥ\
+> kardamas tena coditaḥ\
+> yathoditaṁ sva-duhitṝḥ\
 > prādād viśva-sṛjāṁ tataḥ
 
 *gate*—después de partir; *śata-dhṛtau*—Brahmā; *kṣattaḥ*—¡oh, Vidura!; *kardamaḥ*—Kardama Muni; *tena*—por él; *coditaḥ*—ordenado; *yathā-uditam*—como dijo; *sva-duhitṝḥ*—sus propias hijas; *prādāt*—entregó; *viśva-sṛjām*—a los creadores de la población del mundo; *tataḥ*—a continuación.

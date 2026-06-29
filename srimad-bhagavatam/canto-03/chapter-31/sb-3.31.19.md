@@ -1,13 +1,13 @@
 ### SB 3.31.19
 
-> पश्यत्ययं धिषणया ननु सप्तवध्रिः
-> शारीरके दमशरीर्यपरः स्वदेहे ।
-> यत्सृष्टयासं तमहं पुरुषं पुराणं
+> पश्यत्ययं धिषणया ननु सप्तवध्रिः\
+> शारीरके दमशरीर्यपरः स्वदेहे ।\
+> यत्सृष्टयासं तमहं पुरुषं पुराणं\
 > पश्ये बहिर्हृदि च चैत्यमिव प्रतीतम् ॥१९॥
 
-> paśyaty ayaṁ dhiṣaṇayā nanu sapta-vadhriḥ
-> śārīrake dama-śarīry aparaḥ sva-dehe
-> yat-sṛṣṭayāsaṁ tam ahaṁ puruṣaṁ purāṇaṁ
+> paśyaty ayaṁ dhiṣaṇayā nanu sapta-vadhriḥ\
+> śārīrake dama-śarīry aparaḥ sva-dehe\
+> yat-sṛṣṭayāsaṁ tam ahaṁ puruṣaṁ purāṇaṁ\
 > paśye bahir hṛdi ca caityam iva pratītam
 
 *paśyati*—sees; *ayam*—this living entity; *dhiṣaṇayā*—with intelligence; *nanu*—only; *sapta-vadhriḥ*—bound by the seven layers of material coverings; *śārīrake*—agreeable and disagreeable sense perceptions; *dama-śarīrī*—having a body for self-control; *aparaḥ*—another; *sva-dehe*—in his body; *yat*—by the Supreme Lord; *sṛṣṭayā*—endowed; *āsam*—was; *tam*—Him; *aham*—I; *puruṣam*—person; *purāṇam*—oldest; *paśye*—see; *bahiḥ*—outside; *hṛdi*—in the heart; *ca*—and; *caityam*—the source of the ego; *iva*—indeed; *pratītam*—recognized.

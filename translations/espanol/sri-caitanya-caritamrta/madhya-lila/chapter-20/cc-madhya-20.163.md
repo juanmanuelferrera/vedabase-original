@@ -1,11 +1,11 @@
 ### CC Madhya 20.163
 
-> অথবা বহুনৈতেন কিং জ্ঞাতেন তবার্জুন ৷
+> অথবা বহুনৈতেন কিং জ্ঞাতেন তবার্জুন ৷\
 > বিষ্টভ্যাহমিদং কৃৎস্নমেকাংশেন স্থিতো জগৎ ॥১৬৩॥
 
-> athavā bahunaitena
-> kiṁ jñātena tavārjuna
-> viṣṭabhyāham idaṁ kṛtsnam
+> athavā bahunaitena\
+> kiṁ jñātena tavārjuna\
+> viṣṭabhyāham idaṁ kṛtsnam\
 > ekāṁśena sthito jagat
 
 *athavā*—o; *bahunā*—mucho; *etena*—con esto; *kim*—de qué sirve; *jñātena*—siendo conocido; *tava*—por ti; *arjuna*—¡oh, Arjuna!; *viṣṭabhya*—impregnando; *aham*—Yo; *idam*—este; *kṛtsnam*—entero; *eka-aṁśena*—con una porción; *sthitaḥ*—situado; *jagat*—universo.

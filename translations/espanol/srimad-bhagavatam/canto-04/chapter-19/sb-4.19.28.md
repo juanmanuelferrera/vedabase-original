@@ -1,11 +1,11 @@
 ### SB 4.19.28
 
-> वयं मरुत्वन्तमिहार्थनाशनं ह्वयामहे त्वच्छ्रवसा हतत्विषम् ।
+> वयं मरुत्वन्तमिहार्थनाशनं ह्वयामहे त्वच्छ्रवसा हतत्विषम् ।\
 > अयातयामोपहवैरनन्तरं प्रसह्य राजन्जुहवाम तेऽहितम् ॥२८॥
 
-> vayaṁ marutvantam ihārtha-nāśanaṁ
-> hvayāmahe tvac-chravasā hata-tviṣam
-> ayātayāmopahavair anantaraṁ
+> vayaṁ marutvantam ihārtha-nāśanaṁ\
+> hvayāmahe tvac-chravasā hata-tviṣam\
+> ayātayāmopahavair anantaraṁ\
 > prasahya rājan juhavāma te 'hitam
 
 *vayam*—nosotros; *marut-vantam*—al rey Indra; *iha*—aquí; *artha*—de tus intereses; *nāśanam*—el destructor; *hvayāmahe*—llamaremos; *tvat-śravasā*—por tu gloria; *hata-tviṣam*—ya privado de su poder; *ayātayāma*—nunca antes usados; *upahavaiḥ*—con *mantras* de invocación; *anantaram*—sin más dilación; *prasahya*—por la fuerza; *rājan*—¡oh, rey!; *juhavāma*—sacrificaremos en el fuego; *te*—a tu; *ahitam*—enemigo.

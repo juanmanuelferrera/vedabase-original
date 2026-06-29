@@ -1,11 +1,11 @@
 ### SB 4.5.26
 
-> जुहावैतच्छिरस्तस्मिन्दक्षिणाग्नावमर्षितः ।
+> जुहावैतच्छिरस्तस्मिन्दक्षिणाग्नावमर्षितः ।\
 > तद्देवयजनं दग्ध्वा प्रातिष्ठद्गुह्यकालयम् ॥२६॥
 
-> juhāvaitac chiras tasmin
-> dakṣiṇāgnāv amarṣitaḥ
-> tad-deva-yajanaṁ dagdhvā
+> juhāvaitac chiras tasmin\
+> dakṣiṇāgnāv amarṣitaḥ\
+> tad-deva-yajanaṁ dagdhvā\
 > prātiṣṭhad guhyakālayam
 
 *juhāva*—como una oblación de sacrificio; *etat*—esa; *śiraḥ*—cabeza; *tasmin*—en esa; *dakṣiṇa-agnau*—en el lado sur del fuego de sacrificio; *amarṣitaḥ*—Vīrabhadra, que estaba muy iracundo; *tat*—de Dakṣa; *deva-yajanam*—los preparativos para el sacrificio a los semidioses; *dagdhvā*—habiendo prendido fuego; *prātiṣṭhat*—partieron; *guhyaka-ālayam*—a la morada de los *guhyakas* (Kailāsa).

@@ -1,11 +1,11 @@
 ### SB 6.2.21
 
-> इति प्रत्युदिता याम्या दूता यात्वा यमान्तिकम
+> इति प्रत्युदिता याम्या दूता यात्वा यमान्तिकम\
 > यमराज्ञए यथा सर्वमाचचक्षुररिन्दम ॥२१॥
 
-> iti pratyuditā yāmyā
-> dūtā yātvā yamāntikam
-> yama-rājñe yathā sarvam
+> iti pratyuditā yāmyā\
+> dūtā yātvā yamāntikam\
+> yama-rājñe yathā sarvam\
 > ācacakṣur arindama
 
 *iti*—thus; *pratyuditāḥ*—having been replied to (by the order carriers of Viṣṇu); *yāmyāḥ*—the servants of Yamarāja; *dūtāḥ*—the messengers; *yātvā*—going; *yama-antikam*—to the abode of Lord Yamarāja; *yama-rājñe*—unto King Yamarāja; *yathā*—duly; *sarvam*—everything; *ācacakṣuḥ*—informed in full detail; *arindama*—O subduer of the enemies.

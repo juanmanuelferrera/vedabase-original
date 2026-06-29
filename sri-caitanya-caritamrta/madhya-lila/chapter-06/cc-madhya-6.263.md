@@ -1,9 +1,9 @@
 ### CC Madhya 6.263
 
-> ভট্টাচার্য কহে — ‘ভক্তি’-সম নহে মুক্তি-ফল ।
+> ভট্টাচার্য কহে — ‘ভক্তি’-সম নহে মুক্তি-ফল ।\
 > ভগবদ্ভক্তিবিমুখের হয় দণ্ড কেবল ॥২৬৩॥
 
-> bhaṭṭācārya kahe,—'bhakti'-sama nahe mukti-phala
+> bhaṭṭācārya kahe,—'bhakti'-sama nahe mukti-phala\
 > bhagavad-bhakti-vimukhera haya daṇḍa kevala
 
 *bhaṭṭācārya*—Sārvabhauma Bhaṭṭācārya; *kahe*—said; *bhakti*—devotional service; *sama*—equal to; *nahe*—not; *mukti*—of liberation; *phala*—the result; *bhagavat-bhakti*—to the devotional service of the Supreme Personality of Godhead; *vimukhera*—of one who is averse to; *haya*—it is; *daṇḍa*—the punishment; *kevala*—only.

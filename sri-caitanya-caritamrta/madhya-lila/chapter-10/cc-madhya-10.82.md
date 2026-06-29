@@ -1,9 +1,9 @@
 ### CC Madhya 10.82
 
-> আচার্যরত্ন, আর পণ্ডিত বক্রেশ্বর ।
+> আচার্যরত্ন, আর পণ্ডিত বক্রেশ্বর ।\
 > আচার্যনিধি, আর পণ্ডিত গদাধর ॥৮২॥
 
-> ācāryaratna, āra paṇḍita vakreśvara
+> ācāryaratna, āra paṇḍita vakreśvara\
 > ācāryanidhi, āra paṇḍita gadādhara
 
 *ācāryaratna*—Ācāryaratna; *āra*—and; *paṇḍita vakreśvara*—Vakreśvara Paṇḍita; *ācāryanidhi*—Ācāryanidhi; *āra*—also; *paṇḍita gadādhara*—Gadādhara Paṇḍita.

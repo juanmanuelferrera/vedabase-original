@@ -1,9 +1,9 @@
 ### CC Antya 20.41
 
-> গোবিন্দ-বিরহে শূন্য হইল ত্রিভুবন ।
+> গোবিন্দ-বিরহে শূন্য হইল ত্রিভুবন ।\
 > তুষানলে পোড়ে, — যেন না যায় জীবন ॥৪১॥
 
-> govinda-virahe śūnya ha-ila tribhuvana
+> govinda-virahe śūnya ha-ila tribhuvana\
 > tuṣānale poḍe,--yena nā yāya jīvana
 
 *govinda-virahe*—por la separación de Govinda; *śūnya*—vacío; *ha-ila*—se volvió; *tri-bhuvana*—los tres mundos; *tuṣa-anale*—en el fuego lento; *poḍe*—arde; *yena*—tal como; *nā yāya*—no se va; *jīvana*—la vida.

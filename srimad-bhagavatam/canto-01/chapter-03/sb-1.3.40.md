@@ -1,14 +1,14 @@
 ### SB 1.3.40
 
-> इदं भागवतं नाम पुराणं ब्रह्मसम्मितम् ।
-> उत्तमश्लोकचरितं चकार भगवानृषिः ।
+> इदं भागवतं नाम पुराणं ब्रह्मसम्मितम् ।\
+> उत्तमश्लोकचरितं चकार भगवानृषिः ।\
 > निःश्रेयसाय लोकस्य धन्यं स्वस्त्ययनं महत् ॥४०॥
 
-> idaṁ bhāgavataṁ nāma
-> purāṇaṁ brahma-sammitam
-> uttama-śloka-caritaṁ
-> cakāra bhagavān ṛṣiḥ
-> niḥśreyasāya lokasya
+> idaṁ bhāgavataṁ nāma\
+> purāṇaṁ brahma-sammitam\
+> uttama-śloka-caritaṁ\
+> cakāra bhagavān ṛṣiḥ\
+> niḥśreyasāya lokasya\
 > dhanyaṁ svasty-ayanaṁ mahat
 
 *idam*—this; *bhāgavatam*—book containing the narration of the Personality of Godhead and His pure devotees; *nāma*—of the name; *purāṇam*—supplementary to the *Vedas*; *brahma-sammitam*—incarnation of Lord Śrī Kṛṣṇa; *uttama-śloka*—of the Personality of Godhead; *caritam*—activities; *cakāra*—compiled; *bhagavān*—incarnation of the Personality of Godhead; *ṛṣiḥ*—Śrī Vyāsadeva; *niḥśreyasāya*—for the ultimate good; *lokasya*—of all people; *dhanyam*—fully successful; *svasti-ayanam*—all-blissful; *mahat*—all-perfect.

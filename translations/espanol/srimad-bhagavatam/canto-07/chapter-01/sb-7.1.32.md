@@ -1,11 +1,11 @@
 ### SB 7.1.32
 
-> मातृष्वस्रेयो वश्चैद्यो दन्तवक्रश्च पाण्डव
+> मातृष्वस्रेयो वश्चैद्यो दन्तवक्रश्च पाण्डव\
 > पार्षदप्रवरौ विष्णोर्विप्रशापात्पदच्युतौ ॥३२॥
 
-> katamo 'pi na venaḥ syāt
-> pañcānāṁ puruṣaṁ prati
-> tasmāt kenāpy upāyena
+> katamo 'pi na venaḥ syāt\
+> pañcānāṁ puruṣaṁ prati\
+> tasmāt kenāpy upāyena\
 > manaḥ kṛṣṇe niveśayet
 
 *katamaḥ api*—todo el que; *na*—no; *venaḥ*—el ateo rey Vena; *syāt*—adopte; *pañcānām*—de los cinco (antes mencionados); *puruṣam*—la Suprema Personalidad de Dios; *prati*—con respecto a; *tasmāt*—por lo tanto; *kenāpi*—por cualquiera; *upāyena*—medio; *manaḥ*—la mente; *kṛṣṇe*—en Kṛṣṇa; *niveśayet*—se debe fijar.

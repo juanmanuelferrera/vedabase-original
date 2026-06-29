@@ -1,9 +1,9 @@
 ### CC Antya 6.116
 
-> দুর্বাসার ঠাঞি তেঁহো পাঞাছেন বর ।
+> দুর্বাসার ঠাঞি তেঁহো পাঞাছেন বর ।\
 > অমৃত হইতে পাক তাঁর অধিক মধুর ॥১১৬॥
 
-> durvāsāra ṭhāñi teṅho pāñāchena vara
+> durvāsāra ṭhāñi teṅho pāñāchena vara\
 > amṛta ha-ite pāka tāṅra adhika madhura
 
 *durvāsāra ṭhāñi*—de Durvāsā Muni; *teṅho*—Ella; *pāñāchena vara*—recibió la bendición; *amṛta ha-ite*—que el néctar; *pāka*—lo cocinado; *tāṅra*—por Ella; *adhika madhura*—más dulce.

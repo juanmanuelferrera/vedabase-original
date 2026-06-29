@@ -1,11 +1,11 @@
 ### SB 9.9.42
 
-> यो देवैरर्थितो दैत्यानवधीद्युधि दुर्जयः
+> यो देवैरर्थितो दैत्यानवधीद्युधि दुर्जयः\
 > मुहूर्तमायुरज्ञआत्वैत्य स्वपुरं सन्दधे मनः ॥४२॥
 
-> yo devair arthito daityān
-> avadhīd yudhi durjayaḥ
-> muhūrtam āyur jñātvaitya
+> yo devair arthito daityān\
+> avadhīd yudhi durjayaḥ\
+> muhūrtam āyur jñātvaitya\
 > sva-puraṁ sandadhe manaḥ
 
 *yaḥ*—King Khaṭvāṅga who; *devaiḥ*—by the demigods; *arthitaḥ*—being requested; *daityān*—the demons; *avadhīt*—killed; *yudhi*—in a fight; *durjayaḥ*—very fierce; *muhūrtam*—for a second only; *āyuḥ*—duration of life; *jñātvā*—knowing; *etya*—approached; *sva-puram*—his own abode; *sandadhe*—fixed; *manaḥ*—the mind.

@@ -1,11 +1,11 @@
 ### SB 8.5.43
 
-> द्रव्यं वयः कर्म गुणान्विशेषं यद्योगमायाविहितान्वदन्ति
+> द्रव्यं वयः कर्म गुणान्विशेषं यद्योगमायाविहितान्वदन्ति\
 > यद्दुर्विभाव्यं प्रबुधापबाधं प्रसीदतां नः स महाविभूतिः ॥४३॥
 
-> dravyaṁ vayaḥ karma guṇān viśeṣaṁ
-> yad-yogamāyā-vihitān vadanti
-> yad durvibhāvyaṁ prabudhāpabādhaṁ
+> dravyaṁ vayaḥ karma guṇān viśeṣaṁ\
+> yad-yogamāyā-vihitān vadanti\
+> yad durvibhāvyaṁ prabudhāpabādhaṁ\
 > prasīdatāṁ naḥ sa mahā-vibhūtiḥ
 
 *dravyam*—los cinco elementos del mundo material; *vayaḥ*—el tiempo; *karma*—las actividades fruitivas; *guṇān*—las tres modalidades de la naturaleza material; *viśeṣam*—las diversidades causadas por las combinación de los veintitrés elementos; *yat*—aquello que; *yoga-māyā*—por la potencia creativa del Señor; *vihitān*—todo hecho; *vadanti*—todos los eruditos dicen; *yat durvibhāvyam*—que en realidad es muy difícil de entender; *prabudha-apabādham*—rechazado por los eruditos, por aquellos que son perfectamente conscientes; *prasīdatām*—que Se complazca; *naḥ*—con nosotros; *saḥ*—Él; *mahā-vibhūtiḥ*—el controlador de todo.

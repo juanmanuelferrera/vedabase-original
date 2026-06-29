@@ -1,11 +1,11 @@
 ### SB 3.21.44
 
-> तथैव हरिणैः क्रोडैः श्वाविद्गवयकुञ्जरैः ।
+> तथैव हरिणैः क्रोडैः श्वाविद्गवयकुञ्जरैः ।\
 > गोपुच्छैर्हरिभिर्मर्कैर्नकुलैर्नाभिभिर्वृतम् ॥४४॥
 
-> tathaiva hariṇaiḥ kroḍaiḥ
-> śvāvid-gavaya-kuñjaraiḥ
-> gopucchair haribhir markair
+> tathaiva hariṇaiḥ kroḍaiḥ\
+> śvāvid-gavaya-kuñjaraiḥ\
+> gopucchair haribhir markair\
 > nakulair nābhibhir vṛtam
 
 *tathā eva*—así mismo; *hariṇaiḥ*—por ciervos; *kroḍaiḥ*—por jabalíes; *śvāvit*—por puercos espines; *gavaya*—un animal salvaje muy parecido a la vaca; *kuñjaraiḥ*—por elefantes; *gopucchaiḥ*—por mandriles; *haribhiḥ*—por leones; *markaiḥ*—por monos; *nakulaiḥ*—por mangostas; *nābhibhiḥ*—por ciervos almizcleros; *vṛtam*—rodeado.

@@ -1,11 +1,11 @@
 ### SB 8.20.19
 
-> तदासुरेन्द्रं दिवि देवतागणा गन्धर्वविद्याधरसिद्धचारणाः
+> तदासुरेन्द्रं दिवि देवतागणा गन्धर्वविद्याधरसिद्धचारणाः\
 > तत्कर्म सर्वेऽपि गृणन्त आर्जवं प्रसूनवर्षैर्ववृषुर्मुदान्विताः ॥१९॥
 
-> tadāsurendraṁ divi devatā-gaṇā
-> gandharva-vidyādhara-siddha-cāraṇāḥ
-> tat karma sarve 'pi gṛṇanta ārjavaṁ
+> tadāsurendraṁ divi devatā-gaṇā\
+> gandharva-vidyādhara-siddha-cāraṇāḥ\
+> tat karma sarve 'pi gṛṇanta ārjavaṁ\
 > prasūna-varṣair vavṛṣur mudānvitāḥ
 
 *tadā*—at that time; *asura-indram*—unto the King of the demons, Bali Mahārāja; *divi*—in the higher planetary system; *devatā-gaṇāḥ*—the residents known as the demigods; *gandharva*—the Gandharvas; *vidyādhara*—the Vidyādharas; *siddha*—the residents of Siddhaloka; *cāraṇāḥ*—the residents of Cāraṇaloka; *tat*—that; *karma*—action; *sarve api*—all of them; *gṛṇantaḥ*—declaring; *ārjavam*—plain and simple; *prasūna-varṣaiḥ*—with a shower of flowers; *vavṛṣuḥ*—released; *mudā-anvitāḥ*—being very pleased with him.

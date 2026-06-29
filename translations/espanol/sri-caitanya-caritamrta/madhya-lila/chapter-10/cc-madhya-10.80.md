@@ -1,9 +1,9 @@
 ### CC Madhya 10.80
 
-> śuni' ācārya-gosāñira ānanda ha-ila
+> śuni' ācārya-gosāñira ānanda ha-ila\
 > premāveśe huṅkāra bahu nṛtya-gīta kaila
 
-> śuni' ācārya-gosāñira ānanda ha-ila
+> śuni' ācārya-gosāñira ānanda ha-ila\
 > premāveśe huṅkāra bahu nṛtya-gīta kaila
 
 *śuni'*—al oír; *ācārya*—Advaita Ācārya; *gosāñira*—del maestro espiritual; *ānanda ha-ila*—hubo gran júbilo; *prema-āveśe*—en gran éxtasis; *huṅkāra*—sonido estruendoso; *bahu*—variados; *nṛtya-gīta*—canto y danza; *kaila*—realizó.

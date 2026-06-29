@@ -1,11 +1,11 @@
 ### SB 4.21.4
 
-> प्रजास्तं दीपबलिभिः सम्भृताशेषमङ्गलैः ।
+> प्रजास्तं दीपबलिभिः सम्भृताशेषमङ्गलैः ।\
 > अभीयुर्मृष्टकन्याश्च मृष्टकुण्डलमण्डिताः ॥४॥
 
-> prajās taṁ dīpa-balibhiḥ
-> sambhṛtāśeṣa-maṅgalaiḥ
-> abhīyur mṛṣṭa-kanyāś ca
+> prajās taṁ dīpa-balibhiḥ\
+> sambhṛtāśeṣa-maṅgalaiḥ\
+> abhīyur mṛṣṭa-kanyāś ca\
 > mṛṣṭa-kuṇḍala-maṇḍitāḥ
 
 *prajāḥ*—citizens; *tam*—to him; *dīpa-balibhiḥ*—with lamps; *sambhṛta*—equipped with; *aśeṣa*—unlimited; *maṅgalaiḥ*—auspicious articles; *abhīyuḥ*—came forward to welcome; *mṛṣṭa*—with beautiful bodily luster; *kanyāḥ ca*—and unmarried girls; *mṛṣṭa*—colliding with; *kuṇḍala*—earrings; *maṇḍitāḥ*—being bedecked with.

@@ -1,13 +1,13 @@
 ### SB 2.4.5
 
-> राजोवाच
-> समीचीनं वचो ब्रह्मन्सर्वज्ञस्य तवानघ ।
+> राजोवाच\
+> समीचीनं वचो ब्रह्मन्सर्वज्ञस्य तवानघ ।\
 > तमो विशीर्यते मह्यं हरेः कथयतः कथाम् ॥५॥
 
-> rājovāca
-> samīcīnaṁ vaco brahman
-> sarva-jñasya tavānagha
-> tamo viśīryate mahyaṁ
+> rājovāca\
+> samīcīnaṁ vaco brahman\
+> sarva-jñasya tavānagha\
+> tamo viśīryate mahyaṁ\
 > hareḥ kathayataḥ kathām
 
 *rājā uvāca*—el rey dijo; *samīcīnam*—muy en lo correcto; *vacaḥ*—palabras; *brahman*—¡oh, erudito *brāhmaṇa*!; *sarva-jñasya*—aquel que lo sabe todo; *tava*—tu; *anagha*—sin ninguna contaminación; *tamaḥ*—la oscuridad de la ignorancia; *viśīryate*—desapareciendo gradualmente; *mahyam*—a mí; *hareḥ*—del Señor; *kathayataḥ*—a medida que hablas; *kathām*—relatos.

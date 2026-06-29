@@ -1,9 +1,9 @@
 ### CC Madhya 8.246
 
-> ‘কীর্তিগণংমধ্যে জীবের কোন্ বড় কীর্তি?’
+> ‘কীর্তিগণংমধ্যে জীবের কোন্ বড় কীর্তি?’\
 > ‘কৃষ্ণভক্ত বলিয়া যাঁহার হয় খ্যাতি ৷৷’ ২৪৬ ৷৷ ॥২৪৬॥
 
-> 'kīrti-gaṇa-madhye jīvera kon baḍa kīrti?'
+> 'kīrti-gaṇa-madhye jīvera kon baḍa kīrti?'\
 > 'kṛṣṇa-bhakta baliyā yāṅhāra haya khyāti'
 
 *kīrti-gaṇa-madhye*—entre las actividades gloriosas; *jīvera*—de la entidad viviente; *kon*—cuál; *baḍa*—la mayor; *kīrti*—gloria; *kṛṣṇa-bhakta*—devoto del Señor Kṛṣṇa; *baliyā*—como; *yāṅhāra*—de quien; *haya*—existe; *khyāti*—la reputación.

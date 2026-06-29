@@ -1,13 +1,13 @@
 ### SB 9.13.11
 
-> देवा ऊचुः
-> विदेह उष्यतां कामं लोचनेषु शरीरिणाम
+> देवा ऊचुः\
+> विदेह उष्यतां कामं लोचनेषु शरीरिणाम\
 > उन्मेषणनिमेषाभ्यां लक्षितोऽध्यात्मसंस्थितः ॥११॥
 
-> devā ūcuḥ
-> videha uṣyatāṁ kāmaṁ
-> locaneṣu śarīriṇām
-> unmeṣaṇa-nimeṣābhyāṁ
+> devā ūcuḥ\
+> videha uṣyatāṁ kāmaṁ\
+> locaneṣu śarīriṇām\
+> unmeṣaṇa-nimeṣābhyāṁ\
 > lakṣito 'dhyātma-saṁsthitaḥ
 
 *devāḥ ūcuḥ*—los semidioses dijeron; *videhaḥ*—sin ningún cuerpo material; *uṣyatām*—vive; *kāmam*—como desees; *locaneṣu*—en la visión; *śarīriṇām*—de aquellos que tienen cuerpo material; *unmeṣaṇa-nimeṣābhyām*—manifiéstate o no te manifiestes, conforme a tu deseo; *lakṣitaḥ*—ser visto; *adhyātma-saṁsthitaḥ*—situado en un cuerpo espiritual.

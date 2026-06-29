@@ -1,18 +1,18 @@
 ### SB 4.9.58-59
 
-> ध्रुवाय पथि दृष्टाय तत्र तत्र पुरस्त्रियः ।
-> सिद्धार्थाक्षतदध्यम्बु दूर्वापुष्पफलानि च ॥५८॥
-> उपजह्रुः प्रयुञ्जाना वात्सल्यादाशिषः सतीः ।
+> ध्रुवाय पथि दृष्टाय तत्र तत्र पुरस्त्रियः ।\
+> सिद्धार्थाक्षतदध्यम्बु दूर्वापुष्पफलानि च ॥५८॥\
+> उपजह्रुः प्रयुञ्जाना वात्सल्यादाशिषः सतीः ।\
 > शृण्वंस्तद्वल्गुगीतानि प्राविशद्भवनं पितुः ॥५९॥
 
-> dhruvāya pathi dṛṣṭāya
-> tatra tatra pura-striyaḥ
-> siddhārthākṣata-dadhy-ambu-
+> dhruvāya pathi dṛṣṭāya\
+> tatra tatra pura-striyaḥ\
+> siddhārthākṣata-dadhy-ambu-\
 > dūrvā-puṣpa-phalāni ca
 
-> upajahruḥ prayuñjānā
-> vātsalyād āśiṣaḥ satīḥ
-> śṛṇvaṁs tad-valgu-gītāni
+> upajahruḥ prayuñjānā\
+> vātsalyād āśiṣaḥ satīḥ\
+> śṛṇvaṁs tad-valgu-gītāni\
 > prāviśad bhavanaṁ pituḥ
 
 *dhruvāya*—sobre Dhruva; *pathi*—en el trayecto; *dṛṣṭāya*—visto; *tatra tatra*—aquí y allí; *pura-striyaḥ*—madres de familia; *siddhārtha*—semillas de mostaza blanca; *akṣata*—cebada; *dadhi*—yogur; *ambu*—agua; *dūrvā*—brotes de hierba; *puṣpa*—flores; *phalāni*—frutas; *ca*—también; *upajahruḥ*—derramaron; *prayuñjānāḥ*—pronunciando; *vātsalyāt*—por afecto; *āśiṣaḥ*—bendiciones; *satīḥ*—ilustres damas; *śṛṇvan*—escuchando; *tat*—sus; *valgu*—muy agradables; *gītāni*—canciones; *prāviśat*—entró; *bhavanam*—en el palacio; *pituḥ*—de su padre.

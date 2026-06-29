@@ -1,9 +1,9 @@
 ### CC Madhya 16.242
 
-> এত কহি’ মহাপ্রভু তাঁরে বিদায় দিল ৷
+> এত কহি’ মহাপ্রভু তাঁরে বিদায় দিল ৷\
 > ঘরে আসি’ মহাপ্ৰভুর শিক্ষা আচরিল ॥২৪২॥
 
-> eta kahi' mahāprabhu tāṅre vidāya dila
+> eta kahi' mahāprabhu tāṅre vidāya dila\
 > ghare āsi' mahāprabhura śikṣā ācarila
 
 *eta kahi'*—diciendo esto; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a Raghunātha dāsa; *vidāya dila*—se despidió de él; *ghare āsi'*—al regresar a casa; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *śikṣā*—la instrucción; *ācarila*—puso en práctica.

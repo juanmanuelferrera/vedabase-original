@@ -1,9 +1,9 @@
 ### CC Madhya 19.33
 
-> আমি-দুইভাই চলিলাঙ তাঁহারে মিলিতে ।
+> আমি-দুইভাই চলিলাঙ তাঁহারে মিলিতে ।\
 > তুমি যৈছে তৈছে ছুটি’ আইস তাহাঁ হৈতে ॥৩৩॥
 
-> āmi-dui-bhāi calilāṅa tāṅhāre milite
+> āmi-dui-bhāi calilāṅa tāṅhāre milite\
 > tumi yaiche taiche chuṭi' āisa tāhāṅ haite
 
 *āmi-dui-bhāi*—nosotros dos hermanos; *calilāṅa*—hemos partido; *tāṅhāre milite*—para encontrarnos con Él; *tumi*—tú; *yaiche taiche*—de un modo u otro; *chuṭi'*—liberándote; *āisa*—ven; *tāhāṅ haite*—de allí.

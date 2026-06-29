@@ -1,17 +1,17 @@
 ### Bg 6.11-12
 
-> शुचौ देशे प्रतिष्ठाप्य स्थिरमासनमात्मनः ।
-> नात्युच्छ्रितं नातिनीचं चैलाजिनकुशोत्तरम् ॥११॥
-> तत्रैकाग्रं मनः कृत्वा यतचित्तेन्द्रियक्रियः ।
+> शुचौ देशे प्रतिष्ठाप्य स्थिरमासनमात्मनः ।\
+> नात्युच्छ्रितं नातिनीचं चैलाजिनकुशोत्तरम् ॥११॥\
+> तत्रैकाग्रं मनः कृत्वा यतचित्तेन्द्रियक्रियः ।\
 > उपविश्यासने युञ्ज्याद्योगमात्मविशुद्धये ॥१२॥
 
-> śucau deśe pratiṣṭhāpya
-> sthiram āsanam ātmanaḥ
-> nāty-ucchritaṁ nātinīcaṁ
-> cailājina-kuśottaram
-> tatraikāgraṁ manaḥ kṛtvā
-> yata-cittendriya-kriyaḥ
-> upaviśyāsane yuñjyād
+> śucau deśe pratiṣṭhāpya\
+> sthiram āsanam ātmanaḥ\
+> nāty-ucchritaṁ nātinīcaṁ\
+> cailājina-kuśottaram\
+> tatraikāgraṁ manaḥ kṛtvā\
+> yata-cittendriya-kriyaḥ\
+> upaviśyāsane yuñjyād\
 > yogam ātma-viśuddhaye
 
 *śucau*—en santificada; *deśe*—en la tierra; *pratiṣṭhāpya*—poniendo; *sthiram*—firme; *āsanam*—asiento; *ātmanaḥ*—dependiendo de sí mismo; *na*—no; *ati*—demasiado; *ucchritam*—alto; *na*—ni; *ati*—demasiado; *nīcam*—bajo; *caila-ajna*—tela suave y piel de venado; *kuśottaram*—hierba kusa; *tatra*—luego; *ekāgram*—atención única; *manaḥ*—mente; *kṛtvā*—haciéndolo; *yata-citta*—controlando la mente; *indriya*—los sentidos; *kriyaḥ*—las actividades; *upaviśya*—sentándose en; *āsane*—en el asiento; *yuñjyāt*—hacer; *yogam*—práctica del yoga; *ātma*—corazón; *viśuddhaye*—aclarando.

@@ -1,13 +1,13 @@
 ### SB 8.24.46
 
-> श्रीराजोवाच
-> अनाद्यविद्योपहतात्मसंविदस्तन्मूलसंसारपरिश्रमातुराः
+> श्रीराजोवाच\
+> अनाद्यविद्योपहतात्मसंविदस्तन्मूलसंसारपरिश्रमातुराः\
 > यदृच्छयोपसृता यमाप्नुयुर्विमुक्तिदो नः परमो गुरुर्भवान ॥४६॥
 
-> śrī-rājovāca
-> anādy-avidyopahatātma-saṁvidas
-> tan-mūla-saṁsāra-pariśramāturāḥ
-> yadṛcchayopasṛtā yam āpnuyur
+> śrī-rājovāca\
+> anādy-avidyopahatātma-saṁvidas\
+> tan-mūla-saṁsāra-pariśramāturāḥ\
+> yadṛcchayopasṛtā yam āpnuyur\
 > vimuktido naḥ paramo gurur bhavān
 
 *śrī-rājā uvāca*—the King offered prayers as follows; *anādi*—from time immemorial; *avidyā*—by ignorance; *upahata*—has been lost; *ātma-saṁvidaḥ*—knowledge about the self; *tat*—that is; *mūla*—the root; *saṁsāra*—material bondage; *pariśrama*—full of miserable conditions and hard work; *āturāḥ*—suffering; *yadṛcchayā*—by the supreme will; *upasṛtāḥ*—being favored by the *ācārya*; *yam*—the Supreme Personality of Godhead; *āpnuyuḥ*—can achieve; *vimukti-daḥ*—the process of liberation; *naḥ*—our; *paramaḥ*—the supreme; *guruḥ*—spiritual master; *bhavān*—Your Lordship.

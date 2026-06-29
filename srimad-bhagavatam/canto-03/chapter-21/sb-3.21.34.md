@@ -1,11 +1,11 @@
 ### SB 3.21.34
 
-> निरीक्षतस्तस्य ययावशेष सिद्धेश्वराभिष्टुतसिद्धमार्गः ।
+> निरीक्षतस्तस्य ययावशेष सिद्धेश्वराभिष्टुतसिद्धमार्गः ।\
 > आकर्णयन्पत्ररथेन्द्रपक्षैरुच्चारितं स्तोममुदीर्णसाम ॥३४॥
 
-> nirīkṣatas tasya yayāv aśeṣa-
-> siddheśvarābhiṣṭuta-siddha-mārgaḥ
-> ākarṇayan patra-rathendra-pakṣair
+> nirīkṣatas tasya yayāv aśeṣa-\
+> siddheśvarābhiṣṭuta-siddha-mārgaḥ\
+> ākarṇayan patra-rathendra-pakṣair\
 > uccāritaṁ stomam udīrṇa-sāma
 
 *nirīkṣataḥ tasya*—while he was looking on; *yayau*—He left; *aśeṣa*—all; *siddha-īśvara*—by liberated souls; *abhiṣṭuta*—is praised; *siddha-mārgaḥ*—the way to the spiritual world; *ākarṇayan*—hearing; *patra-ratha-indra*—of Garuḍa (king of birds); *pakṣaiḥ*—by the wings; *uccāritam*—vibrated; *stomam*—hymns; *udīrṇa-sāma*—forming the *Sāma Veda.*

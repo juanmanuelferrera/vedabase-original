@@ -1,11 +1,11 @@
 ### SB 3.8.5
 
-> स्वर्धुन्युदार्द्रैः स्वजटाकलापैरुपस्पृशन्तश्चरणोपधानम् ।
+> स्वर्धुन्युदार्द्रैः स्वजटाकलापैरुपस्पृशन्तश्चरणोपधानम् ।\
 > पद्मं यदर्चन्त्यहिराजकन्याः सप्रेम नानाबलिभिर्वरार्थाः ॥५॥
 
-> svardhuny-udārdraiḥ sva-jaṭā-kalāpair
-> upaspṛśantaś caraṇopadhānam
-> padmaṁ yad arcanty ahi-rāja-kanyāḥ
+> svardhuny-udārdraiḥ sva-jaṭā-kalāpair\
+> upaspṛśantaś caraṇopadhānam\
+> padmaṁ yad arcanty ahi-rāja-kanyāḥ\
 > sa-prema nānā-balibhir varārthāḥ
 
 *svardhunī-uda*—by the water of the Ganges; *ārdraiḥ*—being moistened; *sva-jaṭā*—bunch of hairs; *kalāpaiḥ*—situated on the head; *upaspṛśantaḥ*—by so touching; *caraṇa-upadhānam*—the shelter of His feet; *padmam*—the lotus shelter; *yat*—that which; *arcanti*—worships; *ahi-rāja*—the serpent-king; *kanyāḥ*—daughters; *sa-prema*—with great devotion; *nānā*—various; *balibhiḥ*—paraphernalia; *vara-arthāḥ*—being desirous of husbands.

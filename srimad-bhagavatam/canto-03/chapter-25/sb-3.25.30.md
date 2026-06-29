@@ -1,11 +1,11 @@
 ### SB 3.25.30
 
-> तदेतन्मे विजानीहि यथाहं मन्दधीर्हरे ।
+> तदेतन्मे विजानीहि यथाहं मन्दधीर्हरे ।\
 > सुखं बुद्ध्येय दुर्बोधं योषा भवदनुग्रहात् ॥३०॥
 
-> tad etan me vijānīhi
-> yathāhaṁ manda-dhīr hare
-> sukhaṁ buddhyeya durbodhaṁ
+> tad etan me vijānīhi\
+> yathāhaṁ manda-dhīr hare\
+> sukhaṁ buddhyeya durbodhaṁ\
 > yoṣā bhavad-anugrahāt
 
 *tat etat*—that same; *me*—to me; *vijānīhi*—please explain; *yathā*—so that; *aham*—I; *manda*—slow; *dhīḥ*—whose intelligence; *hare*—O my Lord; *sukham*—easily; *buddhyeya*—may understand; *durbodham*—very difficult to understand; *yoṣā*—a woman; *bhavat-anugrahāt*—by Your grace.

@@ -1,11 +1,11 @@
 ### SB 6.5.3
 
-> तत्र नारायणसरस्तीर्थं सिन्धुसमुद्रयोः
+> तत्र नारायणसरस्तीर्थं सिन्धुसमुद्रयोः\
 > सङ्गमो यत्र सुमहन्मुनिसिद्धनिषेवितम ॥३॥
 
-> tatra nārāyaṇa-saras
-> tīrthaṁ sindhu-samudrayoḥ
-> saṅgamo yatra sumahan
+> tatra nārāyaṇa-saras\
+> tīrthaṁ sindhu-samudrayoḥ\
+> saṅgamo yatra sumahan\
 > muni-siddha-niṣevitam
 
 *tatra*—en esa dirección; *nārāyaṇa-saraḥ*—el lago llamado Nārāyaṇa-saras; *tīrtham*—lugar muy sagrado; *sindhu-samudrayoḥ*—del río Sindhu y el mar; *saṅgamaḥ*—confluencia; *yatra*—donde; *su-mahat*—muy grandes; *muni*—por sabios; *siddha*—y seres humanos perfectos; *niṣevitam*—frecuentado.

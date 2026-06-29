@@ -1,13 +1,13 @@
 ### SB 4.3.16
 
-> श्रीभगवानुवाच
-> त्वयोदितं शोभनमेव शोभने अनाहुता अप्यभियन्ति बन्धुषु ।
+> श्रीभगवानुवाच\
+> त्वयोदितं शोभनमेव शोभने अनाहुता अप्यभियन्ति बन्धुषु ।\
 > ते यद्यनुत्पादितदोषदृष्टयो बलीयसानात्म्यमदेन मन्युना ॥१६॥
 
-> śrī-bhagavān uvāca
-> tvayoditaṁ śobhanam eva śobhane
-> anāhutā apy abhiyanti bandhuṣu
-> te yady anutpādita-doṣa-dṛṣṭayo
+> śrī-bhagavān uvāca\
+> tvayoditaṁ śobhanam eva śobhane\
+> anāhutā apy abhiyanti bandhuṣu\
+> te yady anutpādita-doṣa-dṛṣṭayo\
 > balīyasānātmya-madena manyunā
 
 *śrī-bhagavān uvāca*—the great lord replied; *tvayā*—by you; *uditam*—said; *śobhanam*—is true; *eva*—certainly; *śobhane*—my dear beautiful wife; *anāhutāḥ*—without being invited; *api*—even; *abhiyanti*—go; *bandhuṣu*—among friends; *te*—those (friends); *yadi*—if; *anutpādita-doṣa-dṛṣṭayaḥ*—not finding fault; *balīyasā*—more important; *anātmya-madena*—by pride caused by identification with the body; *manyunā*—by anger.

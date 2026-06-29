@@ -1,11 +1,11 @@
 ### SB 9.7.19
 
-> एवं द्वितीये तृतीये चतुर्थे पञ्चमे तथा
+> एवं द्वितीये तृतीये चतुर्थे पञ्चमे तथा\
 > अभ्येत्याभ्येत्य स्थविरो विप्रो भूत्वाह वृत्रहा ॥१९॥
 
-> evaṁ dvitīye tṛtīye
-> caturthe pañcame tathā
-> abhyetyābhyetya sthaviro
+> evaṁ dvitīye tṛtīye\
+> caturthe pañcame tathā\
+> abhyetyābhyetya sthaviro\
 > vipro bhūtvāha vṛtra-hā
 
 *evam*—in this way; *dvitīye*—on the second year; *tṛtīye*—on the third year; *caturthe*—on the fourth year; *pañcame*—on the fifth year; *tathā*—as well as; *abhyetya*—coming before him; *abhyetya*—again coming before him; *sthaviraḥ*—a very old man; *vipraḥ*—a *brāhmaṇa*; *bhūtvā*—becoming so; *āha*—said; *vṛtra-hā*—Indra.

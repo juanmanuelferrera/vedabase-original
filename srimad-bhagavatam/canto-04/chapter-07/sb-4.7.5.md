@@ -1,11 +1,11 @@
 ### SB 4.7.5
 
-> बाहुभ्यामश्विनोः पूष्णो हस्ताभ्यां कृतबाहवः ।
+> बाहुभ्यामश्विनोः पूष्णो हस्ताभ्यां कृतबाहवः ।\
 > भवन्त्वध्वर्यवश्चान्ये बस्तश्मश्रुर्भृगुर्भवेत् ॥५॥
 
-> bāhubhyām aśvinoḥ pūṣṇo
-> hastābhyāṁ kṛta-bāhavaḥ
-> bhavantv adhvaryavaś cānye
+> bāhubhyām aśvinoḥ pūṣṇo\
+> hastābhyāṁ kṛta-bāhavaḥ\
+> bhavantv adhvaryavaś cānye\
 > basta-śmaśrur bhṛgur bhavet
 
 *bāhubhyām*—with two arms; *aśvinoḥ*—of Aśvinī-kumāra; *pūṣṇaḥ*—of Pūṣā; *hastābhyām*—with two hands; *kṛta-bāhavaḥ*—those in need of arms; *bhavantu*—they will have to; *adhvaryavaḥ*—the priests; *ca*—and; *anye*—others; *basta-śmaśruḥ*—the beard of the goat; *bhṛguḥ*—Bhṛgu; *bhavet*—he may have.

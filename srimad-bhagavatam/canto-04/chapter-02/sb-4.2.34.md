@@ -1,11 +1,11 @@
 ### SB 4.2.34
 
-> तेऽपि विश्वसृजः सत्रं सहस्रपरिवत्सरान् ।
+> तेऽपि विश्वसृजः सत्रं सहस्रपरिवत्सरान् ।\
 > संविधाय महेष्वास यत्रेज्य ऋषभो हरिः ॥३४॥
 
-> te 'pi viśva-sṛjaḥ satraṁ
-> sahasra-parivatsarān
-> saṁvidhāya maheṣvāsa
+> te 'pi viśva-sṛjaḥ satraṁ\
+> sahasra-parivatsarān\
+> saṁvidhāya maheṣvāsa\
 > yatrejya ṛṣabho hariḥ
 
 *te*—those; *api*—even; *viśva-sṛjaḥ*—progenitors of the universal population; *satram*—the sacrifice; *sahasra*—one thousand; *parivatsarān*—years; *saṁvidhāya*—performing; *maheṣvāsa*—O Vidura; *yatra*—in which; *ijyaḥ*—to be worshiped; *ṛṣabhaḥ*—the presiding Deity of all demigods; *hariḥ*—Hari.

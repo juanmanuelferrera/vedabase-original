@@ -1,11 +1,11 @@
 ### SB 3.8.3
 
-> आसीनमुर्व्यां भगवन्तमाद्यं सङ्कर्षणं देवमकुण्ठसत्त्वम् ।
+> आसीनमुर्व्यां भगवन्तमाद्यं सङ्कर्षणं देवमकुण्ठसत्त्वम् ।\
 > विवित्सवस्तत्त्वमतः परस्य कुमारमुख्या मुनयोऽन्वपृच्छन् ॥३॥
 
-> āsīnam urvyāṁ bhagavantam ādyaṁ
-> saṅkarṣaṇaṁ devam akuṇṭha-sattvam
-> vivitsavas tattvam ataḥ parasya
+> āsīnam urvyāṁ bhagavantam ādyaṁ\
+> saṅkarṣaṇaṁ devam akuṇṭha-sattvam\
+> vivitsavas tattvam ataḥ parasya\
 > kumāra-mukhyā munayo 'nvapṛcchan
 
 *āsīnam*—situado; *urvyām*—en el fondo del universo; *bhagavantam*—al Señor; *ādyam*—el original; *saṅkarṣaṇam*—Saṅkarṣaṇa; *devam*—la Personalidad de Dios; *akuṇṭha-sattvam*—conocimiento imperturbable; *vivitsavaḥ*—sintiendo interés por saber; *tattvam ataḥ*—verdad como esta; *parasya*—referente a la Suprema Personalidad de Dios; *kumāra*—el santo-niño; *mukhyāḥ*—encabezados por; *munayaḥ*—grandes sabios; *anvapṛcchan*—hicieron preguntas como estas.

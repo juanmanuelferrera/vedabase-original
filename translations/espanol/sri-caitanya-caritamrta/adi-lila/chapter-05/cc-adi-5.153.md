@@ -1,9 +1,9 @@
 ### CC Adi 5.153
 
-> রাম-লক্ষ্মণ — কৃষ্ণ-রামের অংশবিশেষ ।
+> রাম-লক্ষ্মণ — কৃষ্ণ-রামের অংশবিশেষ ।\
 > অবতার-কালে দোঁহে দোঁহাতে প্রবেশ ॥১৫৩॥
 
-> rāma-lakṣmaṇa--kṛṣṇa-rāmera aṁśa-viśeṣa
+> rāma-lakṣmaṇa--kṛṣṇa-rāmera aṁśa-viśeṣa\
 > avatāra-kāle doṅhe doṅhāte praveśa
 
 *rāma-lakṣmaṇa*—Rāmacandra y Lakṣmaṇa; *kṛṣṇa-rāmera aṁśa-viśeṣa*—expansiones particulares del Señor Kṛṣṇa y el Señor Balarāma; *avatāra-kāle*—en el momento de la encarnación; *doṅhe*—ambos (Rāma y Lakṣmaṇa); *doṅhāte praveśa*—entraron en Ellos dos (Kṛṣṇa y Balarāma).

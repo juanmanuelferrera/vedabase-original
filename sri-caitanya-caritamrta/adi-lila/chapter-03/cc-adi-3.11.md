@@ -1,9 +1,9 @@
 ### CC Adi 3.11
 
-> দাস্য, সখ্য, বাৎসল্য, শৃঙ্গার — চারি রস ।
+> দাস্য, সখ্য, বাৎসল্য, শৃঙ্গার — চারি রস ।\
 > চারি ভাবের ভক্ত যত কৃষ্ণ তার বশ ॥১১॥
 
-> dāsya, sakhya, vātsalya, śṛṅgāra—cāri rasa
+> dāsya, sakhya, vātsalya, śṛṅgāra—cāri rasa\
 > cāri bhāvera bhakta yata kṛṣṇa tāra vaśa
 
 *dāsya*—servitude; *sakhya*—friendship; *vātsalya*—parental affection; *śṛṅgāra*—conjugal love; *cāri*—four; *rasa*—mellows; *cāri*—four; *bhāvera*—of the sentiments; *bhakta*—devotees; *yata*—as many as there are; *kṛṣṇa*—Lord Kṛṣṇa; *tāra*—by them; *vaśa*—subdued.

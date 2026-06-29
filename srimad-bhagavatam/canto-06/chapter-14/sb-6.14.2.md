@@ -1,11 +1,11 @@
 ### SB 6.14.2
 
-> देवानां शुद्धसत्त्वानामृषीणां चामलात्मनाम
+> देवानां शुद्धसत्त्वानामृषीणां चामलात्मनाम\
 > भक्तिर्मुकुन्दचरणे न प्रायेणोपजायते ॥२॥
 
-> devānāṁ śuddha-sattvānām
-> ṛṣīṇāṁ cāmalātmanām
-> bhaktir mukunda-caraṇe
+> devānāṁ śuddha-sattvānām\
+> ṛṣīṇāṁ cāmalātmanām\
+> bhaktir mukunda-caraṇe\
 > na prāyeṇopajāyate
 
 *devānām*—of the demigods; *śuddha-sattvānām*—whose minds are purified; *ṛṣīṇām*—of great saintly persons; *ca*—and; *amala-ātmanām*—who have purified their existence; *bhaktiḥ*—devotional service; *mukunda-caraṇe*—to the lotus feet of Mukunda, the Lord, who can give liberation; *na*—not; *prāyeṇa*—almost always; *upajāyate*—develops.

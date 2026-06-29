@@ -1,11 +1,11 @@
 ### SB 3.26.27
 
-> वैकारिकाद्विकुर्वाणान्मनस्तत्त्वमजायत ।
+> वैकारिकाद्विकुर्वाणान्मनस्तत्त्वमजायत ।\
 > यत्सङ्कल्पविकल्पाभ्यां वर्तते कामसम्भवः ॥२७॥
 
-> vaikārikād vikurvāṇān
-> manas-tattvam ajāyata
-> yat-saṅkalpa-vikalpābhyāṁ
+> vaikārikād vikurvāṇān\
+> manas-tattvam ajāyata\
+> yat-saṅkalpa-vikalpābhyāṁ\
 > vartate kāma-sambhavaḥ
 
 *vaikārikāt*—from the false ego of goodness; *vikurvāṇāt*—undergoing transformation; *manaḥ*—the mind; *tattvam*—principle; *ajāyata*—evolved; *yat*—whose; *saṅkalpa*—thoughts; *vikalpābhyām*—and by reflections; *vartate*—happens; *kāma-sambhavaḥ*—the rise of desire.

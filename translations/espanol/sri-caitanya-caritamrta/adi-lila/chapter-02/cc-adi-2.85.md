@@ -1,9 +1,9 @@
 ### CC Adi 2.85
 
-> নারায়ণ অংশী যেই স্বয়ং-ভগবান্ ।
+> নারায়ণ অংশী যেই স্বয়ং-ভগবান্ ।\
 > তেঁহ শ্রীকৃষ্ণ — ঐছে করিত ব্যাখান ॥৮৫॥
 
-> nārāyaṇa aṁśī yei svayaṁ-bhagavān
+> nārāyaṇa aṁśī yei svayaṁ-bhagavān\
 > teṅha śrī-kṛṣṇa--aiche karita vyākhyāna
 
 *nārāyaṇa*—el Señor Nārāyaṇa; *aṁśī*—la fuente de todas las encarnaciones; *yei*—quien; *svayam-bhagavān*—Él mismo la Suprema Personalidad de Dios; *teṅha*—Él; *śrī-kṛṣṇa*—el Señor Kṛṣṇa; *aiche*—de esa manera; *karita*—habría hecho; *vyākhyāna*—la explicación.

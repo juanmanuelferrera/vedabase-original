@@ -1,11 +1,11 @@
 ### CC Adi 3.22
 
-> যদা যদা হি ধর্মস্য গ্লানির্ভবতি ভারত ।
+> যদা যদা হি ধর্মস্য গ্লানির্ভবতি ভারত ।\
 > অভ্যুত্থানমধর্মস্য তদাত্মানং সৃজাম্যহম্ ॥২২॥
 
-> yadā yadā hi dharmasya
-> glānir bhavati bhārata
-> abhyutthānam adharmasya
+> yadā yadā hi dharmasya\
+> glānir bhavati bhārata\
+> abhyutthānam adharmasya\
 > tadātmānaṁ sṛjāmy aham
 
 *yadā yadā*—whenever; *hi*—certainly; *dharmasya*—of religious principles; *glāniḥ*—decrease; *bhavati*—there is; *bhārata*—O descendant of Bharata; *abhyutthānam*—increase; *adharmasya*—of irreligion; *tadā*—then; *ātmānam*—Myself; *sṛjāmi*—manifest; *aham*—I.

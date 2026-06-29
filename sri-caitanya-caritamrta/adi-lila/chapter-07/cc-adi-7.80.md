@@ -1,9 +1,9 @@
 ### CC Adi 7.80
 
-> পাগল হইলাঙ আমি, ধৈর্য নাহি মনে ।
+> পাগল হইলাঙ আমি, ধৈর্য নাহি মনে ।\
 > এত চিন্তি’ নিবেদিলুঁ গুরুর চরণে ॥৮০॥
 
-> pāgala ha-ilāṅ āmi, dhairya nāhi mane
+> pāgala ha-ilāṅ āmi, dhairya nāhi mane\
 > eta cinti' nivediluṅ gurura caraṇe
 
 *pāgala*—madman; *ha-ilāṅ*—I have become; *āmi*—I; *dhairya*—patience; *nāhi*—not; *mane*—in the mind; *eta*—thus; *cinti'*—considering; *nivediluṅ*—I submitted; *gurura*—of the spiritual master; *caraṇe*—at his lotus feet.

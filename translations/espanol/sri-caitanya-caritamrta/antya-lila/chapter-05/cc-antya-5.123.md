@@ -2,7 +2,7 @@
 
 > “দেহ-দেহি-বিভাগোঽয়ং নেশ্বরে বিদ্যতে ক্বচিৎ ।।” ॥ ১২৩ ॥
 
-> "deha-dehi-vibhāgo 'yaṁ
+> "deha-dehi-vibhāgo 'yaṁ\
 > neśvare vidyate kvacit"
 
 *deha*—del cuerpo; *dehi*—del encarnado; *vibhāgaḥ*—distinción; *ayam*—esta; *na*—no; *īśvare*—en la Suprema Personalidad de Dios; *vidyate*—existe; *kvacit*—en ningún momento.

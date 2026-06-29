@@ -1,9 +1,9 @@
 ### CC Antya 4.46
 
-> সেই ভক্ত ধন্য, যে না ছাড়ে প্রভুর চরণ ।
+> সেই ভক্ত ধন্য, যে না ছাড়ে প্রভুর চরণ ।\
 > সেই প্রভু ধন্য, যে না ছাড়ে নিজ-জন ॥৪৬॥
 
-> sei bhakta dhanya, ye nā chāḍe prabhura caraṇa
+> sei bhakta dhanya, ye nā chāḍe prabhura caraṇa\
 > sei prabhu dhanya, ye nā chāḍe nija-jana
 
 *sei bhakta*—that devotee; *dhanya*—glorious; *ye*—who; *nā*—not; *chāḍe*—gives up; *prabhura caraṇa*—the lotus feet of the Lord; *sei prabhu*—that Personality of Godhead; *dhanya*—glorious; *ye*—who; *nā*—not; *chāḍe*—gives up; *nija-jana*—His servant.

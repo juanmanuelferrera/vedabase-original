@@ -1,11 +1,11 @@
 ### SB 2.2.37
 
-> पिबन्ति ये भगवत आत्मनः सतां कथामृतं श्रवणपुटेषु सम्भृतम् ।
+> पिबन्ति ये भगवत आत्मनः सतां कथामृतं श्रवणपुटेषु सम्भृतम् ।\
 > पुनन्ति ते विषयविदूषिताशयं व्रजन्ति तच्चरणसरोरुहान्तिकम् ॥३७॥
 
-> pibanti ye bhagavata ātmanaḥ satāṁ
-> kathāmṛtaṁ śravaṇa-puṭeṣu sambhṛtam
-> punanti te viṣaya-vidūṣitāśayaṁ
+> pibanti ye bhagavata ātmanaḥ satāṁ\
+> kathāmṛtaṁ śravaṇa-puṭeṣu sambhṛtam\
+> punanti te viṣaya-vidūṣitāśayaṁ\
 > vrajanti tac-caraṇa-saroruhāntikam
 
 *pibanti*—who drink; *ye*—those; *bhagavataḥ*—of the Personality of Godhead; *ātmanaḥ*—of the most dear; *satām*—of devotees; *kathā-amṛtam*—the nectar of the messages; *śravaṇa-puṭeṣu*—within the earholes; *sambhṛtam*—fully filled; *punanti*—purify; *te*—their; *viṣaya*—material enjoyment; *vidūṣita-āśayam*—polluted aim of life; *vrajanti*—do go back; *tat*—the Lord's; *caraṇa*—feet; *saroruha-antikam*—near the lotus.

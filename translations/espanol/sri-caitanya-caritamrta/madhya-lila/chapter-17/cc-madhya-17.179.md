@@ -1,9 +1,9 @@
 ### CC Madhya 17.179
 
-> যদ্যপি ‘সনোড়িয়া’ হয় সেইত ব্রাহ্মণ ।
+> যদ্যপি ‘সনোড়িয়া’ হয় সেইত ব্রাহ্মণ ।\
 > সনোড়িয়া-ঘরে সন্ন্যাসী না করে ভোজন ॥১৭৯॥
 
-> yadyapi 'sanoḍiyā' haya seita brāhmaṇa
+> yadyapi 'sanoḍiyā' haya seita brāhmaṇa\
 > sanoḍiyā-ghare sannyāsī nā kare bhojana
 
 *yadyapi*—aunque; *sanoḍiyā*—un sacerdote de la comunidad Sanoḍiyā; *haya*—era; *seita*—aquel; *brāhmaṇa*—brāhmaṇa; *sanoḍiyā-ghare*—en la casa de un Sanoḍiyā (orfebre); *sannyāsī*—una persona en la orden de vida de renuncia; *nā kare bhojana*—no acepta alimento.

@@ -1,11 +1,11 @@
 ### SB 3.32.19
 
-> नूनं दैवेन विहता ये चाच्युतकथासुधाम् ।
+> नूनं दैवेन विहता ये चाच्युतकथासुधाम् ।\
 > हित्वा शृण्वन्त्यसद्गाथाः पुरीषमिव विड्भुजः ॥१९॥
 
-> nūnaṁ daivena vihatā
-> ye cācyuta-kathā-sudhām
-> hitvā śṛṇvanty asad-gāthāḥ
+> nūnaṁ daivena vihatā\
+> ye cācyuta-kathā-sudhām\
+> hitvā śṛṇvanty asad-gāthāḥ\
 > purīṣam iva viḍ-bhujaḥ
 
 *nūnam*—ciertamente; *daivena*—por la ley del Señor; *vihatāḥ*—condenados; *ye*—aquellos que; *ca*—también; *acyuta*—del Señor infalible; *kathā*—relatos; *sudhām*—néctar; *hitvā*—habiendo abandonado; *śṛṇvanti*—escuchan; *asat-gāthāḥ*—historias de personas materialistas; *purīṣam*—excremento; *iva*—como; *viṭ-bhujaḥ*—comedores de excremento (cerdos).

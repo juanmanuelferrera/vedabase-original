@@ -1,11 +1,11 @@
 ### SB 3.26.69
 
-> बुद्ध्या ब्रह्मापि हृदयं नोदतिष्ठत्तदा विराट् ।
+> बुद्ध्या ब्रह्मापि हृदयं नोदतिष्ठत्तदा विराट् ।\
 > रुद्रोऽभिमत्या हृदयं नोदतिष्ठत्तदा विराट् ॥६९॥
 
-> buddhyā brahmāpi hṛdayaṁ
-> nodatiṣṭhat tadā virāṭ
-> rudro 'bhimatyā hṛdayaṁ
+> buddhyā brahmāpi hṛdayaṁ\
+> nodatiṣṭhat tadā virāṭ\
+> rudro 'bhimatyā hṛdayaṁ\
 > nodatiṣṭhat tadā virāṭ
 
 *buddhyā*—with intelligence; *brahmā*—Lord Brahmā; *api*—also; *hṛdayam*—His heart; *na*—not; *udatiṣṭhat*—did arise; *tadā*—even then; *virāṭ*—the *virāṭ-puruṣa*; *rudraḥ*—Lord Śiva; *abhimatyā*—with the ego; *hṛdayam*—His heart; *na*—not; *udatiṣṭhat*—did arise; *tadā*—even then; *virāṭ*—the *virāṭ-puruṣa.*

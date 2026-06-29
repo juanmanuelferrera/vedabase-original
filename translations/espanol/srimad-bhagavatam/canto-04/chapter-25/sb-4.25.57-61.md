@@ -1,39 +1,39 @@
 ### SB 4.25.57-61
 
-> क्वचित्पिबन्त्यां पिबति मदिरां मदविह्वलः ।
-> अश्नन्त्यां क्वचिदश्नाति जक्षत्यां सह जक्षिति ॥५७॥
-> क्वचिद्गायति गायन्त्यां रुदत्यां रुदति क्वचित् ।
-> क्वचिद्धसन्त्यां हसति जल्पन्त्यामनु जल्पति ॥५८॥
-> क्वचिद्धावति धावन्त्यां तिष्ठन्त्यामनु तिष्ठति ।
-> अनु शेते शयानायामन्वास्ते क्वचिदासतीम् ॥५९॥
-> क्वचिच्छृणोति शृण्वन्त्यां पश्यन्त्यामनु पश्यति ।
-> क्वचिज्जिघ्रति जिघ्रन्त्यां स्पृशन्त्यां स्पृशति क्वचित् ॥६०॥
-> क्वचिच्च शोचतीं जायामनु शोचति दीनवत् ।
+> क्वचित्पिबन्त्यां पिबति मदिरां मदविह्वलः ।\
+> अश्नन्त्यां क्वचिदश्नाति जक्षत्यां सह जक्षिति ॥५७॥\
+> क्वचिद्गायति गायन्त्यां रुदत्यां रुदति क्वचित् ।\
+> क्वचिद्धसन्त्यां हसति जल्पन्त्यामनु जल्पति ॥५८॥\
+> क्वचिद्धावति धावन्त्यां तिष्ठन्त्यामनु तिष्ठति ।\
+> अनु शेते शयानायामन्वास्ते क्वचिदासतीम् ॥५९॥\
+> क्वचिच्छृणोति शृण्वन्त्यां पश्यन्त्यामनु पश्यति ।\
+> क्वचिज्जिघ्रति जिघ्रन्त्यां स्पृशन्त्यां स्पृशति क्वचित् ॥६०॥\
+> क्वचिच्च शोचतीं जायामनु शोचति दीनवत् ।\
 > अनु हृष्यति हृष्यन्त्यां मुदितामनु मोदते ॥६१॥
 
-> kvacit pibantyāṁ pibati
-> madirāṁ mada-vihvalaḥ
-> aśnantyāṁ kvacid aśnāti
+> kvacit pibantyāṁ pibati\
+> madirāṁ mada-vihvalaḥ\
+> aśnantyāṁ kvacid aśnāti\
 > jakṣatyāṁ saha jakṣiti
 
-> kvacid gāyati gāyantyāṁ
-> rudatyāṁ rudati kvacit
-> kvacid dhasantyāṁ hasati
+> kvacid gāyati gāyantyāṁ\
+> rudatyāṁ rudati kvacit\
+> kvacid dhasantyāṁ hasati\
 > jalpantyām anu jalpati
 
-> kvacid dhāvati dhāvantyāṁ
-> tiṣṭhantyām anu tiṣṭhati
-> anu śete śayānāyām
+> kvacid dhāvati dhāvantyāṁ\
+> tiṣṭhantyām anu tiṣṭhati\
+> anu śete śayānāyām\
 > anvāste kvacid āsatīm
 
-> kvacic chṛṇoti śṛṇvantyāṁ
-> paśyantyām anu paśyati
-> kvacij jighrati jighrantyāṁ
+> kvacic chṛṇoti śṛṇvantyāṁ\
+> paśyantyām anu paśyati\
+> kvacij jighrati jighrantyāṁ\
 > spṛśantyāṁ spṛśati kvacit
 
-> kvacic ca śocatīṁ jāyām
-> anu śocati dīnavat
-> anu hṛṣyati hṛṣyantyāṁ
+> kvacic ca śocatīṁ jāyām\
+> anu śocati dīnavat\
+> anu hṛṣyati hṛṣyantyāṁ\
 > muditām anu modate
 
 *kvacit*—a veces; *pibantyām*—mientras bebía; *pibati*—él bebía; *madirām*—alcohol; *mada-vihvalaḥ*—embriagándose; *aśnantyām*—cuando ella comía; *kvacit*—a veces; *aśnāti*—él comía; *jakṣatyām*—cuando ella masticaba; *saha*—con ella; *jakṣiti*—él masticaba; *kvacit*—a veces; *gāyati*—él cantaba; *gāyantyām*—cuando su esposa cantaba; *rudatyām*—cuando la esposa lloraba; *rudati*—él también lloraba; *kvacit*—a veces; *kvacit*—a veces; *hasantyām*—cuando ella se reía; *hasati*—él también reía; *jalpantyām*—cuando ella hablaba sin parar; *anu*—siguiéndola; *jalpati*—él también hablaba sin parar; *kvacit*—a veces; *dhāvati*—él también paseaba; *dhāvantyām*—cuando ella paseaba; *tiṣṭhantyām*—cuando ella se detenía en silencio; *anu*—siguiéndola; *tiṣṭhati*—él se detenía; *anu*—siguiéndola; *śete*—él se acostaba; *śayānāyām*—cuando ella se acostaba en la cama; *anu*—siguiéndola; *āste*—él también se sentaba; *kvacit*—a veces; *āsatīm*—cuando ella se sentaba; *kvacit*—a veces; *śṛṇoti*—él escuchaba; *śṛṇvantyām*—cuando ella se ponía a escuchar; *paśyantyām*—cuando ella veía algo; *anu*—siguiéndola; *paśyati*—él también solía ver; *kvacit*—a veces; *jighrati*—él olía; *jighrantyām*—cuando su esposa olía algo; *spṛśantyām*—cuando su esposa tocaba; *spṛśati*—él también tocaba; *kvacit*—en ese momento; *kvacit ca*—a veces también; *śocatīm*—cuando ella se lamentaba; *jāyām*—a su esposa; *anu*—siguiéndola; *śocati*—él también se lamentaba; *dīna-vat*—como un pobre hombre; *anu*—siguiéndola; *hṛṣyati*—él solía disfrutar; *hṛṣyantyām*—cuando ella sentía disfrute; *muditām*—cuando ella estaba satisfecha; *anu*—siguiéndola; *modate*—él sentía satisfacción.

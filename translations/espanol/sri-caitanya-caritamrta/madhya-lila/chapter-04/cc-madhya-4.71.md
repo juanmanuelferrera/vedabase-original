@@ -1,9 +1,9 @@
 ### CC Madhya 4.71
 
-> জনা পাঁচ-সাত রুটি করে রাশি-রাশি ।
+> জনা পাঁচ-সাত রুটি করে রাশি-রাশি ।\
 > অন্ন-ব্যঞ্জন সব রহে ঘৃতে ভাসি’ ॥৭১॥
 
-> janā pāṅca-sāta ruṭi kare rāśi-rāśi
+> janā pāṅca-sāta ruṭi kare rāśi-rāśi\
 > anna-vyañjana saba rahe ghṛte bhāsi'
 
 *janā pāṅca-sāta*—de cinco a siete hombres; *ruṭi*—chapatis; *kare*—hacen; *rāśi-rāśi*—en gran cantidad; *anna-vyañjana*—cereales y verduras; *saba*—todos; *rahe*—quedaron; *ghṛte*—en ghee; *bhāsi'*—rebosando.

@@ -1,13 +1,13 @@
 ### CC Madhya 8.70
 
-> কৃষ্ণভক্তিরসভাবিতা মতিঃ
-> ক্রীয়তাং যদি কুতোঽপি লভ্যতে ৷
-> তত্র লৌল্যমপি মূল্যমেকলং
+> কৃষ্ণভক্তিরসভাবিতা মতিঃ\
+> ক্রীয়তাং যদি কুতোঽপি লভ্যতে ৷\
+> তত্র লৌল্যমপি মূল্যমেকলং\
 > জন্মকোটিসুকৃতৈর্ন লভ্যতে ৷৷ ৭০ ৷৷ ॥৭০॥
 
-> kṛṣṇa-bhakti-rasa-bhāvitā matiḥ
-> krīyatāṁ yadi kuto 'pi labhyate
-> tatra laulyam api mūlyam ekalaṁ
+> kṛṣṇa-bhakti-rasa-bhāvitā matiḥ\
+> krīyatāṁ yadi kuto 'pi labhyate\
+> tatra laulyam api mūlyam ekalaṁ\
 > janma-koṭi-sukṛtair na labhyate
 
 *kṛṣṇa-bhakti-rasa-bhāvitā*—absorta en las melosidades de ejecutar servicio devocional a Kṛṣṇa; *matiḥ*—inteligencia; *krīyatām*—que se compre; *yadi*—si; *kutaḥ api*—en algún lugar; *labhyate*—está disponible; *tatra*—allí; *laulyam*—avidez; *api*—ciertamente; *mūlyam*—precio; *ekalam*—el único; *janma-koṭi*—de millones de nacimientos; *sukṛtaiḥ*—mediante actividades piadosas; *na*—no; *labhyate*—se obtiene.

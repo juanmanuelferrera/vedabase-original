@@ -1,13 +1,13 @@
 ### SB 5.2.12
 
-> लोकं प्रदर्शय सुहृत्तम तावकं मे
-> यत्रत्य इत्थमुरसावयवावपूर्वौ
-> अस्मद्विधस्य मनौन्नयनौ बिभर्ति
+> लोकं प्रदर्शय सुहृत्तम तावकं मे\
+> यत्रत्य इत्थमुरसावयवावपूर्वौ\
+> अस्मद्विधस्य मनौन्नयनौ बिभर्ति\
 > बह्वद्भुतं सरसराससुधादि वक्त्रे ॥१२॥
 
-> lokaṁ pradarśaya suhṛttama tāvakaṁ me
-> yatratya ittham urasāvayavāv apūrvau
-> asmad-vidhasya mana-unnayanau bibharti
+> lokaṁ pradarśaya suhṛttama tāvakaṁ me\
+> yatratya ittham urasāvayavāv apūrvau\
+> asmad-vidhasya mana-unnayanau bibharti\
 > bahv adbhutaṁ sarasa-rāsa-sudhādi vaktre
 
 *lokam*—lugar de residencia; *pradarśaya*—por favor, muestra; *suhṛt-tama*—¡oh, tú, el mejor de los amigos!; *tāvakam*—tuyo; *me*—a mí; *yatratyaḥ*—la persona que allí nace; *ittham*—así; *urasā*—por el pecho; *avayavau*—dos miembros (senos); *apūrvau*—maravillosos; *asmat-vidhasya*—de una persona como yo; *manaḥ-unnayanau*—que agitan mucho la mente; *bibharti*—sostiene; *bahu*—muchos; *adbhutam*—maravillosos; *sarasa*—palabras dulces; *rāsa*—gestos amorosos, como la sonrisa; *sudhā-ādi*—como el néctar; *vaktre*—en la boca.

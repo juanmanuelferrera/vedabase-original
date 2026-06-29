@@ -1,9 +1,9 @@
 ### CC Madhya 20.361
 
-> বিশ্বসৃষ্ট্যাদি কৈল, বেদ ব্রহ্মাকে পড়াইল ।
+> বিশ্বসৃষ্ট্যাদি কৈল, বেদ ব্রহ্মাকে পড়াইল ।\
 > অর্থাভিজ্ঞতা, স্বরূপশক্ত্যে মায়া দূর কৈল ॥৩৬১॥
 
-> viśva-sṛṣṭy-ādi kaila, veda brahmāke paḍāila
+> viśva-sṛṣṭy-ādi kaila, veda brahmāke paḍāila\
 > arthābhijñatā, svarūpa-śaktye māyā dūra kaila
 
 *viśva-sṛṣṭi-ādi*—creación, mantenimiento y disolución de la manifestación cósmica; *kaila*—realizó; *veda*—el conocimiento Védico; *brahmāke*—al Señor Brahmā; *paḍāila*—instruyó; *artha-abhijñatā*—poseyendo pleno conocimiento del pasado, presente y futuro; *svarūpa-śaktye*—por Su energía personal; *māyā*—la energía ilusoria; *dūra kaila*—separó.

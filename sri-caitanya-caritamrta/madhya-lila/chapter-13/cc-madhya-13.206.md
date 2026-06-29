@@ -1,9 +1,9 @@
 ### CC Madhya 13.206
 
-> রথাগ্রেতে প্রভু যৈছে করিলা নর্তন ।
+> রথাগ্রেতে প্রভু যৈছে করিলা নর্তন ।\
 > চৈতন্যাষ্টকে রূপ-গোসাঞি কর্যাছে বর্ণন ॥২০৬॥
 
-> rathāgrete prabhu yaiche karilā nartana
+> rathāgrete prabhu yaiche karilā nartana\
 > caitanyāṣṭake rūpa-gosāñi karyāche varṇana
 
 *ratha-agrete*—in front of the car; *prabhu*—Śrī Caitanya Mahāprabhu; *yaiche*—as; *karilā*—performed; *nartana*—dancing; *caitanya-aṣṭake*—in the prayer named *Caitanyāṣṭaka*; *rūpa-gosāñi*—Rūpa Gosvāmī; *karyāche*—has done; *varṇana*—a vivid description.

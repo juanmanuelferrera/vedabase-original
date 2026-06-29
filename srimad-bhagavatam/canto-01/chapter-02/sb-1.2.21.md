@@ -1,11 +1,11 @@
 ### SB 1.2.21
 
-> भिद्यते हृदयग्रन्थिश्छिद्यन्ते सर्वसंशयाः ।
+> भिद्यते हृदयग्रन्थिश्छिद्यन्ते सर्वसंशयाः ।\
 > क्षीयन्ते चास्य कर्माणि दृष्ट एवात्मनीश्वरे ॥२१॥
 
-> bhidyate hṛdaya-granthiś
-> chidyante sarva-saṁśayāḥ
-> kṣīyante cāsya karmāṇi
+> bhidyate hṛdaya-granthiś\
+> chidyante sarva-saṁśayāḥ\
+> kṣīyante cāsya karmāṇi\
 > dṛṣṭa evātmanīśvare
 
 *bhidyate*—pierced; *hṛdaya*—heart; *granthiḥ*—knots; *chidyante*—cut to pieces; *sarva*—all; *saṁśayāḥ*—misgivings; *kṣīyante*—terminated; *ca*—and; *asya*—his; *karmāṇi*—chain of fruitive actions; *dṛṣṭe*—having seen; *eva*—certainly; *ātmani*—unto the self; *īśvare*—dominating.

@@ -1,13 +1,13 @@
 ### CC Antya 15.21
 
-> কৃষ্ণ-অঙ্গ সুশীতল, কি কহিমু তার বল,
-> ছটায় জিনে কোটীন্দু-চন্দন ।
-> সশৈল নারীর বক্ষ, তাহা আকর্ষিতে দক্ষ,
+> কৃষ্ণ-অঙ্গ সুশীতল, কি কহিমু তার বল,\
+> ছটায় জিনে কোটীন্দু-চন্দন ।\
+> সশৈল নারীর বক্ষ, তাহা আকর্ষিতে দক্ষ,\
 > আকর্ষয়ে নারীগণ-মন ॥২১॥
 
-> kṛṣṇa-aṅga suśītala, ki kahimu tāra bala,
-> chaṭāya jine koṭīndu-candana
-> saśaila nārīra vakṣa, tāhā ākarṣite dakṣa,
+> kṛṣṇa-aṅga suśītala, ki kahimu tāra bala,\
+> chaṭāya jine koṭīndu-candana\
+> saśaila nārīra vakṣa, tāhā ākarṣite dakṣa,\
 > ākarṣaye nārī-gaṇa-mana
 
 *kṛṣṇa-aṅga*—el cuerpo de Kṛṣṇa; *su-śītala*—muy fresco; *ki kahimu*—¿qué puedo decir?; *tāra*—de eso; *bala*—la fuerza; *chaṭāya*—por los rayos; *jine*—supera; *koṭi-indu*—millones y millones de lunas; *candana*—pasta de sándalo; *sa-śaila*—como colinas elevadas; *nārīra*—de una mujer; *vakṣa*—pechos; *tāhā*—eso; *ākarṣite*—para atraer; *dakṣa*—muy experto; *ākarṣaye*—atrae; *nārī-gaṇa-mana*—las mentes de todas las mujeres.

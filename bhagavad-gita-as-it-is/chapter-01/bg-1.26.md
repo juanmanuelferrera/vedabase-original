@@ -1,14 +1,14 @@
 ### Bg 1.26
 
-> तत्रापश्यत्स्थितान्पार्थः पितॄनथ पितामहान् ।
-> आचार्यान्मातुलान्भ्रातॄन्पुत्रान्पौत्रान्सखींस्तथा ।
+> तत्रापश्यत्स्थितान्पार्थः पितॄनथ पितामहान् ।\
+> आचार्यान्मातुलान्भ्रातॄन्पुत्रान्पौत्रान्सखींस्तथा ।\
 > श्वशुरान्सुहृदश्चैव सेनयोरुभयोरपि ॥२६॥
 
-> tatrāpaśyat sthitān pārthaḥ
-> pitṝn atha pitāmahān
-> ācāryān mātulān bhrātṝn
-> putrān pautrān sakhīṁs tathā
-> śvaśurān suhṛdaś caiva
+> tatrāpaśyat sthitān pārthaḥ\
+> pitṝn atha pitāmahān\
+> ācāryān mātulān bhrātṝn\
+> putrān pautrān sakhīṁs tathā\
+> śvaśurān suhṛdaś caiva\
 > senayor ubhayor api
 
 *tatra*—there; *apaśyat*—he could see; *sthitān*—standing; *pārthaḥ*—Arjuna; *pitṝn*—fathers; *atha*—also; *pitāmahān*—grandfathers; *ācāryān*—teachers; *mātulān*—maternal uncles; *bhrātṝn*—brothers; *putrān*—sons; *pautrān*—grandsons; *sakhīn*—friends; *tathā*—too; *śvaśurān*—fathers-in-law; *suhṛdaḥ*—wellwishers; *ca*—also; *eva*—certainly; *senayoḥ*—of the armies; *ubhayoḥ*—of both parties; *api*—including.

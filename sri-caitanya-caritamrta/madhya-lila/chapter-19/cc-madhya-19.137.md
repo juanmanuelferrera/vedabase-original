@@ -1,9 +1,9 @@
 ### CC Madhya 19.137
 
-> পারাপার-শূন্য গভীর ভক্তিরস-সিন্ধু ।
+> পারাপার-শূন্য গভীর ভক্তিরস-সিন্ধু ।\
 > তোমায় চাখাইতে তার কহি এক ‘বিন্দু’ ॥১৩৭॥
 
-> pārāpāra-śūnya gabhīra bhakti-rasa-sindhu
+> pārāpāra-śūnya gabhīra bhakti-rasa-sindhu\
 > tomāya cākhāite tāra kahi eka 'bindu'
 
 *pāra-apāra*—the length and breadth; *śūnya*—without; *gabhīra*—deep; *bhakti-rasa*—of the mellows in devotional service; *sindhu*—the ocean; *tomāya*—to you; *cākhāite*—to give a taste; *tāra*—of this ocean; *kahi*—I shall speak; *eka*—one; *bindu*—drop.

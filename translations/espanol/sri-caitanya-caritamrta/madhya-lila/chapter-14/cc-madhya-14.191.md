@@ -1,9 +1,9 @@
 ### CC Madhya 14.191
 
-> মুখে-নেত্রে হয় নানা-ভাবের উদ্গার ।
+> মুখে-নেত্রে হয় নানা-ভাবের উদ্গার ।\
 > এই কান্তা-ভাবের নাম ‘ললিত’-অলঙ্কার ॥১৯১॥
 
-> mukhe-netre haya nānā-bhāvera udgāra
+> mukhe-netre haya nānā-bhāvera udgāra\
 > ei kāntā-bhāvera nāma 'lalita'-alaṅkāra
 
 *mukhe*—en la boca; *netre*—en los ojos; *haya*—hay; *nānā-bhāvera*—de diversos éxtasis; *udgāra*—el despertar; *ei*—este; *kāntā-bhāvera*—de la condición de la amada; *nāma*—el nombre; *lalita*—de lalita; *alaṅkāra*—el ornamento.

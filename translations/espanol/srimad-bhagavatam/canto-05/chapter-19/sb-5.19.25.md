@@ -1,11 +1,11 @@
 ### SB 5.19.25
 
-> प्राप्ता नृजातिं त्विह ये च जन्तवो ज्ञआनक्रियाद्रव्यकलापसम्भृताम
+> प्राप्ता नृजातिं त्विह ये च जन्तवो ज्ञआनक्रियाद्रव्यकलापसम्भृताम\
 > न वै यतेरन्नपुनर्भवाय ते भूयो वनौका इव यान्ति बन्धनम ॥२५॥
 
-> prāptā nṛ-jātiṁ tv iha ye ca jantavo
-> jñāna-kriyā-dravya-kalāpa-sambhṛtām
-> na vai yaterann apunar-bhavāya te
+> prāptā nṛ-jātiṁ tv iha ye ca jantavo\
+> jñāna-kriyā-dravya-kalāpa-sambhṛtām\
+> na vai yaterann apunar-bhavāya te\
 > bhūyo vanaukā iva yānti bandhanam
 
 *prāptāḥ*—que han obtenido; *nṛ-jātim*—un nacimiento en la sociedad humana; *tu*—ciertamente; *iha*—en esta región de Bhārata-varṣa; *ye*—aquellos que; *ca*—también; *jantavaḥ*—los seres vivos; *jñāna*—con conocimiento; *kriyā*—con actividades; *dravya*—de elementos; *kalāpa*—con un grupo; *sambhṛtām*—lleno; *na*—no; *vai*—ciertamente; *yateran*—esfuerzo; *apunaḥ-bhavāya*—para la posición de inmortalidad; *te*—esas personas; *bhūyaḥ*—de nuevo; *vanaukāḥ*—aves; *iva*—como; *yānti*—van; *bandhanam*—al cautiverio.

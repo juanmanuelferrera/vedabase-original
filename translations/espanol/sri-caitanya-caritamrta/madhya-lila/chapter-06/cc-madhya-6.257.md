@@ -1,9 +1,9 @@
 ### CC Madhya 6.257
 
-> সার্বভৌম হৈলা প্রভুর ভক্ত একতান ।
+> সার্বভৌম হৈলা প্রভুর ভক্ত একতান ।\
 > মহাপ্রভুর সেবা-বিনা নাহি জানে আন ॥২৫৭॥
 
-> sārvabhauma hailā prabhura bhakta ekatāna
+> sārvabhauma hailā prabhura bhakta ekatāna\
 > mahāprabhura sevā-vinā nāhi jāne āna
 
 *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *hailā*—se convirtió; *prabhura*—del Señor; *bhakta*—un devoto; *ekatāna*—sin desviación; *mahāprabhura*—del Señor Śrī Caitanya Mahāprabhu; *sevā*—servicio; *vinā*—excepto; *nāhi*—no; *jāne*—sabe; *āna*—nada más.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.285
 
-> প্রবেশ করিয়া দেখে, সব — অন্ধকার ।
+> প্রবেশ করিয়া দেখে, সব — অন্ধকার ।\
 > রহিতে নাহিক স্থান, করিলা বিচার ॥২৮৫॥
 
-> praveśa kariyā dekhe, saba--andhakāra
+> praveśa kariyā dekhe, saba--andhakāra\
 > rahite nāhika sthāna, karilā vicāra
 
 *praveśa kariyā*—después de entrar; *dekhe*—Él ve; *saba*—por todas partes; *andhakāra*—oscuridad completa; *rahite*—para permanecer allí; *nāhika sthāna*—no había lugar; *karilā vicāra*—entonces consideró.

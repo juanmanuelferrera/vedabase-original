@@ -1,11 +1,11 @@
 ### SB 7.9.7
 
-> अस्तौषीद्धरिमेकाग्र मनसा सुसमाहितः
+> अस्तौषीद्धरिमेकाग्र मनसा सुसमाहितः\
 > प्रेमगद्गदया वाचा तन्न्यस्तहृदयेक्षणः ॥७॥
 
-> astauṣīd dharim ekāgra-
-> manasā susamāhitaḥ
-> prema-gadgadayā vācā
+> astauṣīd dharim ekāgra-\
+> manasā susamāhitaḥ\
+> prema-gadgadayā vācā\
 > tan-nyasta-hṛdayekṣaṇaḥ
 
 *astauṣīt*—comenzó a ofrecer oraciones; *harim*—a la Suprema Personalidad de Dios; *ekāgra-manasā*—con la mente completamente fija en los pies de loto del Señor; *su-samāhitaḥ*—muy atento (sin que nada le distrajese); *prema-gadgadayā*—temblorosa por la bienaventuranza trascendental que sentía; *vācā*—con una voz; *tat-nyasta*—que estaba plenamente consagrado a Él (al Señor Nṛsiṁhadeva); *hṛdaya-īkṣaṇaḥ*—con el corazón y la vista.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.120
 
-> বাহ্যে রাজবৈদ্য ইঁহো করে রাজ-সেবা ।
+> বাহ্যে রাজবৈদ্য ইঁহো করে রাজ-সেবা ।\
 > অন্তরে কৃষ্ণ-প্রেম ইঁহার জানিবেক কেবা ॥১২০॥
 
-> bāhye rāja-vaidya iṅho kare rāja-sevā
+> bāhye rāja-vaidya iṅho kare rāja-sevā\
 > antare kṛṣṇa-prema iṅhāra jānibeka kebā
 
 *bāhye*—externally; *rāja-vaidya*—royal physician; *iṅho*—*he*; *kare*—performs; *rāja-sevā*—government service; *antare*—within the heart; *kṛṣṇa-prema*—love of Kṛṣṇa; *iṅhāra*—of Mukunda dāsa; *jānibeka*—can know; *kebā*—who.

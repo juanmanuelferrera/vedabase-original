@@ -1,11 +1,11 @@
 ### SB 4.24.50
 
-> पूररेचकसंविग्न वलिवल्गुदलोदरम् ।
+> पूररेचकसंविग्न वलिवल्गुदलोदरम् ।\
 > प्रतिसङ्क्रामयद्विश्वं नाभ्यावर्तगभीरया ॥५०॥
 
-> pūra-recaka-saṁvigna-
-> vali-valgu-dalodaram
-> pratisaṅkrāmayad viśvaṁ
+> pūra-recaka-saṁvigna-\
+> vali-valgu-dalodaram\
+> pratisaṅkrāmayad viśvaṁ\
 > nābhyāvarta-gabhīrayā
 
 *pūra*—inhaling; *recaka*—exhaling; *saṁvigna*—agitated; *vali*—the wrinkles on the abdomen; *valgu*—beautiful; *dala*—like the banyan leaf; *udaram*—abdomen; *pratisaṅkrāmayat*—coiling down; *viśvam*—universe; *nābhyā*—navel; *āvarta*—screwing; *gabhīrayā*—by deepness.

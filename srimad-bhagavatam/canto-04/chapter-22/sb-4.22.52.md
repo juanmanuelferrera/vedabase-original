@@ -1,11 +1,11 @@
 ### SB 4.22.52
 
-> गृहेषु वर्तमानोऽपि स साम्राज्यश्रियान्वितः ।
+> गृहेषु वर्तमानोऽपि स साम्राज्यश्रियान्वितः ।\
 > नासज्जतेन्द्रियार्थेषु निरहम्मतिरर्कवत् ॥५२॥
 
-> gṛheṣu vartamāno 'pi
-> sa sāmrājya-śriyānvitaḥ
-> nāsajjatendriyārtheṣu
+> gṛheṣu vartamāno 'pi\
+> sa sāmrājya-śriyānvitaḥ\
+> nāsajjatendriyārtheṣu\
 > niraham-matir arkavat
 
 *gṛheṣu*—at home; *vartamānaḥ*—being present; *api*—although; *saḥ*—King Pṛthu; *sāmrājya*—the entire empire; *śriyā*—opulence; *anvitaḥ*—being absorbed in; *na*—never; *asajjata*—became attracted; *indriya-artheṣu*—for sense gratification; *niḥ*—nor; *aham*—I am; *matiḥ*—consideration; *arka*—the sun; *vat*—like.

@@ -1,13 +1,13 @@
 ### Bg 8.9
 
-> कविं पुराणमनुशासितार-
-> मणोरणीयंसमनुस्मरेद्यः ।
-> सर्वस्य धातारमचिन्त्यरूप-
+> कविं पुराणमनुशासितार-\
+> मणोरणीयंसमनुस्मरेद्यः ।\
+> सर्वस्य धातारमचिन्त्यरूप-\
 > मादित्यवर्णं तमसः परस्तात् ॥९॥
 
-> kaviṁ purāṇam anuśāsitāram
-> aṇor aṇīyāṁsam anusmared yaḥ
-> sarvasya dhātāram acintya-rūpam
+> kaviṁ purāṇam anuśāsitāram\
+> aṇor aṇīyāṁsam anusmared yaḥ\
+> sarvasya dhātāram acintya-rūpam\
 > āditya-varṇaṁ tamasaḥ parastāt
 
 *kavim*—one who knows everything; *purāṇam*—the oldest; *anuśāsitāram*—the controller; *aṇoḥ*—of the atom; *aṇīyāṁsam*—smaller than; *anusmaret*—always thinking; *yaḥ*—one who; *sarvasya*—of everything; *dhātāram*—maintainer; *acintya*—inconceivable; *rūpam*—form; *āditya-varṇam*—illuminated like the sun; *tamasaḥ*—of the darkness; *parastāt*—transcendental.

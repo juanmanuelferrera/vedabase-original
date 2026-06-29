@@ -1,11 +1,11 @@
 ### SB 4.31.22
 
-> श्रियमनुचरतीं तदर्थिनश्च द्विपदपतीन्विबुधांश्च यत्स्वपूर्णः ।
+> श्रियमनुचरतीं तदर्थिनश्च द्विपदपतीन्विबुधांश्च यत्स्वपूर्णः ।\
 > न भजति निजभृत्यवर्गतन्त्रः कथममुमुद्विसृजेत्पुमान्कृतज्ञः ॥२२॥
 
-> śriyam anucaratīṁ tad-arthinaś ca
-> dvipada-patīn vibudhāṁś ca yat sva-pūrṇaḥ
-> na bhajati nija-bhṛtya-varga-tantraḥ
+> śriyam anucaratīṁ tad-arthinaś ca\
+> dvipada-patīn vibudhāṁś ca yat sva-pūrṇaḥ\
+> na bhajati nija-bhṛtya-varga-tantraḥ\
 > katham amum udvisṛjet pumān kṛta-jñaḥ
 
 *śriyam*—la diosa de la fortuna; *anucaratīm*—que Le sigue; *tat*—de ella; *arthinaḥ*—aquellos que aspiran al favor; *ca*—y; *dvipada-patīn*—los gobernantes de los seres humanos; *vibudhān*—los semidioses; *ca*—también; *yat*—porque; *sva-pūrṇaḥ*—autosuficiente; *na*—nunca; *bhajati*—Le importa; *nija*—propios; *bhṛtya-varga*—de Sus devotos; *tantraḥ*—depender; *katham*—cómo; *amum*—a Él; *udvisṛjet*—puede abandonar; *pumān*—una persona; *kṛta-jñaḥ*—agradecida.

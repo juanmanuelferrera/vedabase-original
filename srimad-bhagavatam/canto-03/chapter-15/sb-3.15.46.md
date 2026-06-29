@@ -1,15 +1,15 @@
 ### SB 3.15.46
 
-> कुमारा ऊचुः
-> योऽन्तर्हितो हृदि गतोऽपि दुरात्मनां त्वं
-> सोऽद्यैव नो नयनमूलमनन्त राद्धः ।
-> यर्ह्येव कर्णविवरेण गुहां गतो नः
+> कुमारा ऊचुः\
+> योऽन्तर्हितो हृदि गतोऽपि दुरात्मनां त्वं\
+> सोऽद्यैव नो नयनमूलमनन्त राद्धः ।\
+> यर्ह्येव कर्णविवरेण गुहां गतो नः\
 > पित्रानुवर्णितरहा भवदुद्भवेन ॥४६॥
 
-> kumārā ūcuḥ
-> yo 'ntarhito hṛdi gato 'pi durātmanāṁ tvaṁ
-> so 'dyaiva no nayana-mūlam ananta rāddhaḥ
-> yarhy eva karṇa-vivareṇa guhāṁ gato naḥ
+> kumārā ūcuḥ\
+> yo 'ntarhito hṛdi gato 'pi durātmanāṁ tvaṁ\
+> so 'dyaiva no nayana-mūlam ananta rāddhaḥ\
+> yarhy eva karṇa-vivareṇa guhāṁ gato naḥ\
 > pitrānuvarṇita-rahā bhavad-udbhavena
 
 *kumārāḥ ūcuḥ*—the Kumāras said; *yaḥ*—He who; *antarhitaḥ*—not manifested; *hṛdi*—in the heart; *gataḥ*—is seated; *api*—even though; *durātmanām*—to the rascals; *tvam*—You; *saḥ*—He; *adya*—today; *eva*—certainly; *naḥ*—of us; *nayana-mūlam*—face to face; *ananta*—O unlimited one; *rāddhaḥ*—attained; *yarhi*—when; *eva*—certainly; *karṇa-vivareṇa*—through the ears; *guhām*—intelligence; *gataḥ*—have attained; *naḥ*—our; *pitrā*—by our father; *anuvarṇita*—described; *rahāḥ*—mysteries; *bhavat-udbhavena*—by Your appearance.

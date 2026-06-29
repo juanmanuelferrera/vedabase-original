@@ -1,13 +1,13 @@
 ### CC Adi 4.180
 
-> ন পারয়েঽহং নিরবদ্যসংযুজাং
-> স্বসাধুকৃত্যং বিবুধায়ুষাপি বঃ ।
-> যা মাঽভজন্ দুর্জয়গেহশৃঙ্খলাঃ
+> ন পারয়েঽহং নিরবদ্যসংযুজাং\
+> স্বসাধুকৃত্যং বিবুধায়ুষাপি বঃ ।\
+> যা মাঽভজন্ দুর্জয়গেহশৃঙ্খলাঃ\
 > সংবৃশ্চ্য তদ্বঃ প্রতিযাতু সাধুনা ॥১৮০॥
 
-> na pāraye 'haṁ niravadya-saṁyujāṁ
-> sva-sādhu-kṛtyaṁ vibudhāyuṣāpi vaḥ
-> yā mābhajan durjaya-geha-śṛṅkhalāḥ
+> na pāraye 'haṁ niravadya-saṁyujāṁ\
+> sva-sādhu-kṛtyaṁ vibudhāyuṣāpi vaḥ\
+> yā mābhajan durjaya-geha-śṛṅkhalāḥ\
 > saṁvṛścya tad vaḥ pratiyātu sādhunā
 
 *na*—no; *pāraye*—soy capaz de retribuir; *aham*—Yo; *niravadya-saṁyujām*—a aquellas que están completamente libres de engaño; *sva-sādhu-kṛtyam*—la retribución apropiada; *vibudha-āyuṣā*—con una vida tan larga como la de los semidioses; *api*—aunque; *vaḥ*—a ustedes; *yāḥ*—quienes; *mā*—a Mí; *abhajan*—han adorado; *durjaya-geha-śṛṅkhalāḥ*—las cadenas de la vida familiar, difíciles de superar; *saṁvṛścya*—cortando; *tat*—eso; *vaḥ*—de ustedes; *pratiyātu*—que sea retribuido; *sādhunā*—por la buena acción misma.

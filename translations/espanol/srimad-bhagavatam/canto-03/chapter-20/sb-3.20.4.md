@@ -1,11 +1,11 @@
 ### SB 3.20.4
 
-> किमन्वपृच्छन्मैत्रेयं विरजास्तीर्थसेवया ।
+> किमन्वपृच्छन्मैत्रेयं विरजास्तीर्थसेवया ।\
 > उपगम्य कुशावर्त आसीनं तत्त्ववित्तमम् ॥४॥
 
-> kim anvapṛcchan maitreyaṁ
-> virajās tīrtha-sevayā
-> upagamya kuśāvarta
+> kim anvapṛcchan maitreyaṁ\
+> virajās tīrtha-sevayā\
+> upagamya kuśāvarta\
 > āsīnaṁ tattva-vittamam
 
 *kim*—qué; *anvapṛcchat*—preguntó; *maitreyam*—al sabio Maitreya; *virajāḥ*—Vidura, que estaba libre de contaminación material; *tīrtha-sevayā*—por el hecho de visitar lugares sagrados; *upagamya*—habiéndose encontrado; *kuśāvarte*—en Kuśāvarta (Haridvāra, o Hardwar); *āsīnam*—que residía; *tattva-vit-tamam*—al más grande conocedor de la ciencia de la vida espiritual.

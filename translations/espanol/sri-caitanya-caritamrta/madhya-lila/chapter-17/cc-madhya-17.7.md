@@ -1,9 +1,9 @@
 ### CC Madhya 17.7
 
-> প্রসন্ন হঞা আজ্ঞা দিবা, না মানিবা ‘দুঃখ’ ।
+> প্রসন্ন হঞা আজ্ঞা দিবা, না মানিবা ‘দুঃখ’ ।\
 > তোমা-সবার ‘সুখে’ পথে হবে মোর ‘সুখ’ ॥৭॥
 
-> prasanna hañā ājñā dibā, nā mānibā 'duḥkha'
+> prasanna hañā ājñā dibā, nā mānibā 'duḥkha'\
 > tomā-sabāra 'sukhe' pathe habe mora 'sukha' "
 
 *prasanna hañā*—complaciéndose; *ājñā dibā*—dad permiso; *nā*—no; *mānibā duḥkha*—os entristezcáis; *tomā-sabāra*—de todos vosotros; *sukhe*—por la felicidad; *pathe*—en el camino; *habe*—habrá; *mora*—Mi; *sukha*—felicidad.

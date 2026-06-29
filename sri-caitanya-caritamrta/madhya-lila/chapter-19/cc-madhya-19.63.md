@@ -1,9 +1,9 @@
 ### CC Madhya 19.63
 
-> কৃষ্ণকথায় প্রভুর মহাপ্রেম উথলিল ।
+> কৃষ্ণকথায় প্রভুর মহাপ্রেম উথলিল ।\
 > ভট্টের সঙ্কোচে প্রভু সম্বরণ কৈল ॥৬৩॥
 
-> kṛṣṇa-kathāya prabhura mahā-prema uthalila
+> kṛṣṇa-kathāya prabhura mahā-prema uthalila\
 > bhaṭṭera saṅkoce prabhu samvaraṇa kaila
 
 *kṛṣṇa-kathāya*—in the discussion on Kṛṣṇa; *prabhura*—of Śrī Caitanya Mahāprabhu; *mahā-prema*—great love; *uthalila*—arose; *bhaṭṭera*—of Bhaṭṭācārya; *saṅkoce*—due to shyness; *prabhu*—Śrī Caitanya Mahāprabhu; *samvaraṇa kaila*—restrained Himself.

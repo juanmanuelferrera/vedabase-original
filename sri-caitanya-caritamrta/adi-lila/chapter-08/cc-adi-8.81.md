@@ -1,9 +1,9 @@
 ### CC Adi 8.81
 
-> বৃন্দাবন-দাসের পাদপদ্ম করি’ ধ্যান ।
+> বৃন্দাবন-দাসের পাদপদ্ম করি’ ধ্যান ।\
 > তাঁর আজ্ঞা লঞা লিখি যাহাতে কল্যাণ ॥৮১॥
 
-> vṛndāvana-dāsera pāda-padma kari' dhyāna
+> vṛndāvana-dāsera pāda-padma kari' dhyāna\
 > tāṅra ājñā lañā likhi yāhāte kalyāṇa
 
 *vṛndāvana-dāsera*—of Śrīla Vṛndāvana dāsa Ṭhākura; *pāda-padma*—lotus feet; *kari'*—doing; *dhyāna*—meditation; *tāṅra*—his; *ājñā*—order; *lañā*—receiving; *likhi*—I write; *yāhāte*—in which permission; *kalyāṇa*—all auspiciousness.

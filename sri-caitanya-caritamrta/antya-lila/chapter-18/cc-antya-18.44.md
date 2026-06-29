@@ -1,9 +1,9 @@
 ### CC Antya 18.44
 
-> দেখেন — এক জালিয়া আইসে কান্ধে জাল করি’ ।
+> দেখেন — এক জালিয়া আইসে কান্ধে জাল করি’ ।\
 > হাসে, কান্দে, নাচে, গায়, বলে ‘হরি’ ‘হরি’ ॥৪৪॥
 
-> dekhena—eka jāliyā āise kāndhe jāla kari'
+> dekhena—eka jāliyā āise kāndhe jāla kari'\
 > hāse, kānde, nāce, gāya, bale 'hari' 'hari'
 
 *dekhena*—they see; *eka jāliyā*—one fisherman; *āise*—comes; *kāndhe*—on the shoulder; *jāla kari'*—carrying a net; *hāse*—laughs; *kānde*—cries; *nāce*—dances; *gāya*—sings; *bale*—says; *hari hari*—Hari, Hari.

@@ -1,11 +1,11 @@
 ### SB 4.30.35
 
-> यत्रेड्यन्ते कथा मृष्टास्तृष्णायाः प्रशमो यतः ।
+> यत्रेड्यन्ते कथा मृष्टास्तृष्णायाः प्रशमो यतः ।\
 > निर्वैरं यत्र भूतेषु नोद्वेगो यत्र कश्चन ॥३५॥
 
-> yatreḍyante kathā mṛṣṭās
-> tṛṣṇāyāḥ praśamo yataḥ
-> nirvairaṁ yatra bhūteṣu
+> yatreḍyante kathā mṛṣṭās\
+> tṛṣṇāyāḥ praśamo yataḥ\
+> nirvairaṁ yatra bhūteṣu\
 > nodvego yatra kaścana
 
 *yatra*—where; *īḍyante*—are worshiped or discussed; *kathāḥ*—words; *mṛṣṭāḥ*—pure; *tṛṣṇāyāḥ*—of material hankerings; *praśamaḥ*—satisfaction; *yataḥ*—by which; *nirvairam*—nonenviousness; *yatra*—where; *bhūteṣu*—among living entities; *na*—not; *udvegaḥ*—fear; *yatra*—where; *kaścana*—any.

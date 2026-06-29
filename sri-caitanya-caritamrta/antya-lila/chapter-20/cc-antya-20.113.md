@@ -1,9 +1,9 @@
 ### CC Antya 20.113
 
-> দামোদর-স্বরূপ-ঠাঞি তাঁরে সমর্পিল ।
+> দামোদর-স্বরূপ-ঠাঞি তাঁরে সমর্পিল ।\
 > ‘গোবর্ধন-শিলা’, ‘গুঞ্জামালা’ তাঁরে দিল ॥১১৩॥
 
-> dāmodara-svarūpa-ṭhāñi tāṅre samarpila
+> dāmodara-svarūpa-ṭhāñi tāṅre samarpila\
 > 'govardhana-śilā', 'guñjā-mālā' tāṅre dila
 
 *dāmodara-svarūpa-ṭhāñi*—to the care of Svarūpa Dāmodara Gosvāmī; *tāṅre samarpila*—the Lord entrusted him; *govardhana-śilā*—the stone from Govardhana Hill; *guñjā-mālā*—the garland of small conchshells; *tāṅre dila*—delivered to him.

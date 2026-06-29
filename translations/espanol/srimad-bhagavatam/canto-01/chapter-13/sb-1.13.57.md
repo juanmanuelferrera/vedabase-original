@@ -1,11 +1,11 @@
 ### SB 1.13.57
 
-> स वा अद्यतनाद्राजन्परतः पञ्चमेऽहनि ।
+> स वा अद्यतनाद्राजन्परतः पञ्चमेऽहनि ।\
 > कलेवरं हास्यति स्वं तच्च भस्मीभविष्यति ॥५७॥
 
-> sa vā adyatanād rājan
-> parataḥ pañcame 'hani
-> kalevaraṁ hāsyati svaṁ
+> sa vā adyatanād rājan\
+> parataḥ pañcame 'hani\
+> kalevaraṁ hāsyati svaṁ\
 > tac ca bhasmī-bhaviṣyati
 
 *saḥ*—él; *vā*—con toda probabilidad; *adya*—hoy; *tanāt*—de; *rājan*—¡oh, rey!; *parataḥ*—adelante; *pañcame*—en el quinto; *ahani*—día; *kalevaram*—cuerpo; *hāsyati*—abandonará; *svam*—su propio; *tat*—eso; *ca*—también; *bhasmī*—cenizas; *bhaviṣyati*—se convertirá en.

@@ -1,9 +1,9 @@
 ### CC Adi 13.23
 
-> বাল্যভাব ছলে প্রভু করেন ক্রন্দন ।
+> বাল্যভাব ছলে প্রভু করেন ক্রন্দন ।\
 > ‘কৃষ্ণ’ ‘হরি’ নাম শুনি’ রহয়ে রোদন ॥২৩॥
 
-> bālya-bhāva chale prabhu karena krandana
+> bālya-bhāva chale prabhu karena krandana\
 > 'kṛṣṇa' 'hari' nāma śuni' rahaye rodana
 
 *bālya-bhāva chale*—como si estuviera en Su estado infantil; *prabhu*—el Señor; *karena*—hace; *krandana*—llorar; *kṛṣṇa*—Señor Kṛṣṇa; *hari*—Señor Hari; *nāma*—nombres; *śuni'*—al oír; *rahaye*—cesa; *rodana*—el llanto.

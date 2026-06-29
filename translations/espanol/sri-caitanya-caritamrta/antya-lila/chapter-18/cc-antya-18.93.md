@@ -1,13 +1,13 @@
 ### CC Antya 18.93
 
-> এথা কৃষ্ণ রাধা-সনে, কৈলা যে আছিল মনে,
-> গোপীগণ অন্বেষিতে গেলা ।
-> তবে রাধা সূক্ষ্মমতি, জানিয়া সখীর স্থিতি,
+> এথা কৃষ্ণ রাধা-সনে, কৈলা যে আছিল মনে,\
+> গোপীগণ অন্বেষিতে গেলা ।\
+> তবে রাধা সূক্ষ্মমতি, জানিয়া সখীর স্থিতি,\
 > সখী-মধ্যে আসিয়া মিলিলা ॥৯৩॥
 
-> ethā kṛṣṇa rādhā-sane, kailā ye āchila mane,
-> gopī-gaṇa anveṣite gelā
-> tabe rādhā sūkṣma-mati, jāniyā sakhīra sthiti,
+> ethā kṛṣṇa rādhā-sane, kailā ye āchila mane,\
+> gopī-gaṇa anveṣite gelā\
+> tabe rādhā sūkṣma-mati, jāniyā sakhīra sthiti,\
 > sakhī-madhye āsiyā mililā
 
 *ethā*—aquí; *kṛṣṇa*—el Señor Kṛṣṇa; *rādhā-sane*—con Śrīmatī Rādhārāṇī; *kailā*—realizó; *ye*—lo que; *āchila*—tenía; *mane*—en la mente; *gopī-gaṇa*—todas las gopīs; *anveṣite*—para buscar; *gelā*—fueron; *tabe*—en ese momento; *rādhā*—Śrīmatī Rādhārāṇī; *sūkṣma-mati*—de inteligencia muy sutil; *jāniyā*—sabiendo; *sakhīra*—de las gopīs; *sthiti*—la situación; *sakhī-madhye*—entre las amigas; *āsiyā*—viniendo; *mililā*—se mezcló.

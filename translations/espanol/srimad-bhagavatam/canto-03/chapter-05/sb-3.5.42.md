@@ -1,11 +1,11 @@
 ### SB 3.5.42
 
-> यच्छ्रद्धया श्रुतवत्या च भक्त्या सम्मृज्यमाने हृदयेऽवधाय ।
+> यच्छ्रद्धया श्रुतवत्या च भक्त्या सम्मृज्यमाने हृदयेऽवधाय ।\
 > ज्ञानेन वैराग्यबलेन धीरा व्रजेम तत्तेऽङ्घ्रिसरोजपीठम् ॥४२॥
 
-> yac chraddhayā śrutavatyā ca bhaktyā
-> sammṛjyamāne hṛdaye 'vadhāya
-> jñānena vairāgya-balena dhīrā
+> yac chraddhayā śrutavatyā ca bhaktyā\
+> sammṛjyamāne hṛdaye 'vadhāya\
+> jñānena vairāgya-balena dhīrā\
 > vrajema tat te 'ṅghri-saroja-pīṭham
 
 *yat*—aquello que; *śraddhayā*—por el anhelo; *śrutavatyā*—simplemente por oír; *ca*—también; *bhaktyā*—con devoción; *sammṛjyamāne*—siendo limpiado; *hṛdaye*—en el corazón; *avadhāya*—meditación; *jñānena*—por el conocimiento; *vairāgya*—desapego; *balena*—por el poder de; *dhīrāḥ*—el apaciguado; *vrajema*—debe ir a; *tat*—ese; *te*—Tus; *aṅghri*—pies; *saroja-pīṭham*—santuarios de loto.

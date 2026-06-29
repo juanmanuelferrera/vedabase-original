@@ -1,11 +1,11 @@
 ### SB 1.9.40
 
-> ललितगतिविलासवल्गुहास प्रणयनिरीक्षणकल्पितोरुमानाः ।
+> ललितगतिविलासवल्गुहास प्रणयनिरीक्षणकल्पितोरुमानाः ।\
 > कृतमनुकृतवत्य उन्मदान्धाः प्रकृतिमगन्किल यस्य गोपवध्वः ॥४०॥
 
-> lalita-gati-vilāsa-valguhāsa-
-> praṇaya-nirīkṣaṇa-kalpitorumānāḥ
-> kṛta-manu-kṛta-vatya unmadāndhāḥ
+> lalita-gati-vilāsa-valguhāsa-\
+> praṇaya-nirīkṣaṇa-kalpitorumānāḥ\
+> kṛta-manu-kṛta-vatya unmadāndhāḥ\
 > prakṛtim agan kila yasya gopa-vadhvaḥ
 
 *lalita*—atractivo; *gati*—movimientos; *vilāsa*—actos fascinantes; *valgu-hāsa*—dulce sonreír; *praṇaya*—amoroso; *nirīkṣaṇa*—mirando a; *kalpita*—mentalidad; *urumānāḥ*—muy glorioso; *kṛtam anukṛta-vatyaḥ*—en el acto de copiar los movimientos; *unmada-andhāḥ*—enloquecidas de éxtasis; *prakṛtim*—características; *agan*—se sometieron; *kila*—ciertamente; *yasya*—cuyas; *gopa-vadhvaḥ*—las doncellas pastoras.

@@ -1,9 +1,9 @@
 ### CC Madhya 21.71
 
-> কৃষ্ণের অচিন্ত্য-শক্তি লখিতে কেহ নারে ।
+> কৃষ্ণের অচিন্ত্য-শক্তি লখিতে কেহ নারে ।\
 > যত ব্রহ্মা, তত মূর্তি একই শরীরে ॥৭১॥
 
-> kṛṣṇera acintya-śakti lakhite keha nāre
+> kṛṣṇera acintya-śakti lakhite keha nāre\
 > yata brahmā, tata mūrti eka-i śarīre
 
 *kṛṣṇera*—of Lord Kṛṣṇa; *acintya-śakti*—inconceivable potencies; *lakhite*—to observe; *keha*—anyone; *nāre*—not able; *yata brahmā*—all Brahmās; *tata mūrti*—so many forms; *eka-i śarīre*—in the same body.

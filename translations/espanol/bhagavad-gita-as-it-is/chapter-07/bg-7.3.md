@@ -1,11 +1,11 @@
 ### Bg 7.3
 
-> मनुष्याणां सहस्रेषु कश्चिद्यतति सिद्धये ।
+> मनुष्याणां सहस्रेषु कश्चिद्यतति सिद्धये ।\
 > यततामपि सिद्धानां कश्चिन्मां वेत्ति तत्त्वतः ॥३॥
 
-> manuṣyāṇāṁ sahasreṣu
-> kaścid yatati siddhaye
-> yatatām api siddhānāṁ
+> manuṣyāṇāṁ sahasreṣu\
+> kaścid yatati siddhaye\
+> yatatām api siddhānāṁ\
 > kaścin māṁ vetti tattvataḥ
 
 *manuṣyānām*—de los hombres; *sahasreṣu*—de entre muchos miles; *kaścit*—alguien; *yatati*—se esfuerza; *siddhaye*—por la perfección; *yatatām*—de aquellos que así se esfuerzan; *api*—en verdad; *siddhānām*—de aquellos que han alcanzado la perfección; *kaścit*—alguien; *mām*—a Mí; *vetti*—conoce; *tattvataḥ*—de hecho.

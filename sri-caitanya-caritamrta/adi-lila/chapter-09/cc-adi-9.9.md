@@ -1,9 +1,9 @@
 ### CC Adi 9.9
 
-> শ্রীচৈতন্য মালাকার পৃথিবীতে আনি’ ।
+> শ্রীচৈতন্য মালাকার পৃথিবীতে আনি’ ।\
 > ভক্তি-কল্পতরু রোপিলা সিঞ্চি’ ইচ্ছা-পানি ॥৯॥
 
-> śrī-caitanya mālākāra pṛthivīte āni'
+> śrī-caitanya mālākāra pṛthivīte āni'\
 > bhakti-kalpataru ropilā siñci' icchā-pāni
 
 *śrī-caitanya*—Lord Śrī Caitanya Mahāprabhu; *mālā-kāra*—gardener; *pṛthivīte*—on this planet; *āni'*—bringing; *bhakti-kalpa-taru*—the desire tree of devotional service; *ropilā*—sowed; *siñci'*—watering; *icchā*—will; *pāni*—water.

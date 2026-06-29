@@ -1,11 +1,11 @@
 ### SB 1.7.23
 
-> त्वमाद्यः पुरुषः साक्षादीश्वरः प्रकृतेः परः ।
+> त्वमाद्यः पुरुषः साक्षादीश्वरः प्रकृतेः परः ।\
 > मायां व्युदस्य चिच्छक्त्या कैवल्ये स्थित आत्मनि ॥२३॥
 
-> tvam ādyaḥ puruṣaḥ sākṣād
-> īśvaraḥ prakṛteḥ paraḥ
-> māyāṁ vyudasya cic-chaktyā
+> tvam ādyaḥ puruṣaḥ sākṣād\
+> īśvaraḥ prakṛteḥ paraḥ\
+> māyāṁ vyudasya cic-chaktyā\
 > kaivalye sthita ātmani
 
 *tvam ādyaḥ*—Tú eres el original; *puruṣaḥ*—la personalidad disfrutadora; *sākṣāt*—directamente; *īśvaraḥ*—el controlador; *prakṛteḥ*—de la naturaleza material; *paraḥ*—trascendental; *māyām*—la energía material; *vyudasya*—alguien que ha echado a un lado; *cit-śaktyā*—a fuerza de potencia interna; *kaivalye*—con bienaventuranza y conocimientos eternos y puros; *sthitaḥ*—colocado; *ātmani*—propio ser.

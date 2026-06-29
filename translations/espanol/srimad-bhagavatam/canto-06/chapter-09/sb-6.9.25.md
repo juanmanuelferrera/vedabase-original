@@ -1,11 +1,11 @@
 ### SB 6.9.25
 
-> य एक ईशो निजमायया नः ससर्ज येनानुसृजाम विश्वम
+> य एक ईशो निजमायया नः ससर्ज येनानुसृजाम विश्वम\
 > वयं न यस्यापि पुरः समीहतः पश्याम लिङ्गं पृथगीशमानिनः ॥२५॥
 
-> ya eka īśo nija-māyayā naḥ
-> sasarja yenānusṛjāma viśvam
-> vayaṁ na yasyāpi puraḥ samīhataḥ
+> ya eka īśo nija-māyayā naḥ\
+> sasarja yenānusṛjāma viśvam\
+> vayaṁ na yasyāpi puraḥ samīhataḥ\
 > paśyāma liṅgaṁ pṛthag īśa-māninaḥ
 
 *yaḥ*—aquel que; *ekaḥ*—uno; *īśaḥ*—controlador; *nija-māyayā*—por Su potencia trascendental; *naḥ*—nosotros; *sasarja*—creados; *yena*—por quien (a través de cuya misericordia); *anusṛjāma*—también nosotros creamos; *viśvam*—el universo; *vayam*—nosotros; *na*—no; *yasya*—de quien; *api*—aunque; *puraḥ*—frente a nosotros; *samīhataḥ*—de aquel que está actuando; *paśyāma*—vemos; *liṅgam*—la forma; *pṛthak*—separados; *īśa*—como controladores; *māninaḥ*—pensamos de nosotros.

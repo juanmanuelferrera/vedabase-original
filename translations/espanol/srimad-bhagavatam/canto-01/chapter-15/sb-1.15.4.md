@@ -1,11 +1,11 @@
 ### SB 1.15.4
 
-> सख्यं मैत्रीं सौहृदं च सारथ्यादिषु संस्मरन् ।
+> सख्यं मैत्रीं सौहृदं च सारथ्यादिषु संस्मरन् ।\
 > नृपमग्रजमित्याह बाष्पगद्गदया गिरा ॥४॥
 
-> sakhyaṁ maitrīṁ sauhṛdaṁ ca
-> sārathyādiṣu saṁsmaran
-> nṛpam agrajam ity āha
+> sakhyaṁ maitrīṁ sauhṛdaṁ ca\
+> sārathyādiṣu saṁsmaran\
+> nṛpam agrajam ity āha\
 > bāṣpa-gadgadayā girā
 
 *sakhyam*—bienqueriente; *maitrīm*—bendición; *sauhṛdam*—relacionado íntimamente; *ca*—también; *sārathya-ādiṣu*—al volverse el auriga; *saṁsmaran*—recordando todos estos; *nṛpam*—al rey; *agrajam*—el hermano mayor; *iti*—así pues; *āha*—dijo; *bāṣpa*—respirando con dificultad; *gadgadayā*—abrumadoramente; *girā*—mediante discursos.

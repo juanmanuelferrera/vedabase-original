@@ -1,11 +1,11 @@
 ### SB 6.2.13
 
-> अथैनं मापनयत कृताशेषाघनिष्कृतम
+> अथैनं मापनयत कृताशेषाघनिष्कृतम\
 > यदसौ भगवन्नाम म्रियमाणः समग्रहीत ॥१३॥
 
-> athainaṁ māpanayata
-> kṛtāśeṣāgha-niṣkṛtam
-> yad asau bhagavan-nāma
+> athainaṁ māpanayata\
+> kṛtāśeṣāgha-niṣkṛtam\
+> yad asau bhagavan-nāma\
 > mriyamāṇaḥ samagrahīt
 
 *atha*—por lo tanto; *enam*—a él (Ajāmila); *mā*—no; *apanayata*—traten de llevar; *kṛta*—ya hecha; *aśeṣa*—ilimitada; *agha-niṣkṛtam*—expiación por sus actos pecaminosos; *yat*—porque; *asau*—él; *bhagavat-nāma*—el santo nombre de la Suprema Personalidad de Dios; *mriyamāṇaḥ*—mientras moría; *samagrahīt*—cantó de modo perfecto.

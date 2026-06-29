@@ -1,9 +1,9 @@
 ### CC Adi 4.220
 
-> সেই রাধার ভাব লঞা চৈতন্যাবতার ।
+> সেই রাধার ভাব লঞা চৈতন্যাবতার ।\
 > যুগধর্ম নাম-প্রেম কৈল পরচার ॥২২০॥
 
-> sei rādhāra bhāva lañā caitanyāvatāra
+> sei rādhāra bhāva lañā caitanyāvatāra\
 > yuga-dharma nāma-prema kaila paracāra
 
 *sei*—that; *rādhāra*—of Śrīmatī Rādhārāṇī; *bhāva*—the emotion; *lañā*—taking; *caitanya*—of Lord Caitanya; *avatāra*—the incarnation; *yuga-dharma*—the religion of the age; *nāma-prema*—the holy name and love of Godhead; *kaila*—did; *paracāra*—preaching.

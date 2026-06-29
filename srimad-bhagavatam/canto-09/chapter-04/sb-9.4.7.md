@@ -1,11 +1,11 @@
 ### SB 9.4.7
 
-> ममेदमृषिभिर्दत्तमिति तर्हि स्म मानवः
+> ममेदमृषिभिर्दत्तमिति तर्हि स्म मानवः\
 > स्यान्नौ ते पितरि प्रश्नः पृष्टवान्पितरं यथा ॥७॥
 
-> mamedam ṛṣibhir dattam
-> iti tarhi sma mānavaḥ
-> syān nau te pitari praśnaḥ
+> mamedam ṛṣibhir dattam\
+> iti tarhi sma mānavaḥ\
+> syān nau te pitari praśnaḥ\
 > pṛṣṭavān pitaraṁ yathā
 
 *mama*—my; *idam*—all these; *ṛṣibhiḥ*—by the great saintly persons; *dattam*—have been delivered; *iti*—thus; *tarhi*—therefore; *sma*—indeed; *mānavaḥ*—Nābhāga; *syāt*—let there be; *nau*—of ourselves; *te*—your; *pitari*—unto the father; *praśnaḥ*—an inquiry; *pṛṣṭavān*—he also inquired; *pitaram*—from his father; *yathā*—as requested.

@@ -1,9 +1,9 @@
 ### CC Madhya 10.20
 
-> ঠাকুরের নিকট, আর হইবে নির্জনে ৷
+> ঠাকুরের নিকট, আর হইবে নির্জনে ৷\
 > এমত নির্ণয় করি’ দেহ এক স্থানে ৷৷ ২০ ৷৷ ॥২০॥
 
-> ṭhākurera nikaṭa, āra ha-ibe nirjane
+> ṭhākurera nikaṭa, āra ha-ibe nirjane\
 > e-mata nirṇaya kari' deha' eka sthāne
 
 *ṭhākurera nikaṭa*—cerca del lugar del Señor Jagannātha; *āra*—también; *ha-ibe*—debe ser; *nirjane*—apartado; *e-mata*—de esta manera; *nirṇaya kari'*—considerando cuidadosamente; *deha'*—por favor dé; *eka sthāne*—un lugar.

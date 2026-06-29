@@ -1,13 +1,13 @@
 ### SB 8.3.2
 
-> श्रीगजेन्द्र उवाच
-> ओं नमो भगवते तस्मै यत एतच्चिदात्मकम
+> श्रीगजेन्द्र उवाच\
+> ओं नमो भगवते तस्मै यत एतच्चिदात्मकम\
 > पुरुषायादिबीजाय परेशायाभिधीमहि ॥२॥
 
-> śrī-gajendra uvāca
-> oṁ namo bhagavate tasmai
-> yata etac cid-ātmakam
-> puruṣāyādi-bījāya
+> śrī-gajendra uvāca\
+> oṁ namo bhagavate tasmai\
+> yata etac cid-ātmakam\
+> puruṣāyādi-bījāya\
 > pareśāyābhidhīmahi
 
 *śrī-gajendraḥ uvāca*—Gajendra, el rey de los elefantes, dijo; *oṁ*—¡oh, mi Señor!; *namaḥ*—yo Te ofrezco mis respetuosas reverencias; *bhagavate*—a la Suprema Personalidad de Dios; *tasmai*—a Él; *yataḥ*—de quien; *etat*—este cuerpo y la manifestación material; *cit-ātmakam*—se mueve debido a la conciencia (el alma espiritual); *puruṣāya*—a la Persona Suprema; *ādi-bījāya*—que es el origen o causa original de todo; *para-īśāya*—que es supremo, trascendental y digno de la adoración de personas tan elevadas como Brahmā y Śiva; *abhidhīmahi*—en Él medito.

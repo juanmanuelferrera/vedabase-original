@@ -1,13 +1,13 @@
 ### SB 1.19.1
 
-> सूत उवाच
-> महीपतिस्त्वथ तत्कर्म गर्ह्यं विचिन्तयन्नात्मकृतं सुदुर्मनाः ।
+> सूत उवाच\
+> महीपतिस्त्वथ तत्कर्म गर्ह्यं विचिन्तयन्नात्मकृतं सुदुर्मनाः ।\
 > अहो मया नीचमनार्यवत्कृतं निरागसि ब्रह्मणि गूढतेजसि ॥१॥
 
-> sūta uvāca
-> mahī-patis tv atha tat-karma garhyaṁ
-> vicintayann ātma-kṛtaṁ sudurmanāḥ
-> aho mayā nīcam anārya-vat kṛtaṁ
+> sūta uvāca\
+> mahī-patis tv atha tat-karma garhyaṁ\
+> vicintayann ātma-kṛtaṁ sudurmanāḥ\
+> aho mayā nīcam anārya-vat kṛtaṁ\
 > nirāgasi brahmaṇi gūḍha-tejasi
 
 *sūtaḥ uvāca*—Sūta Gosvāmī said; *mahī-patiḥ*—the King; *tu*—but; *atha*—thus (while coming back home); *tat*—that; *karma*—act; *garhyam*—abominable; *vicintayan*—thus thinking; *ātma-kṛtam*—done by himself; *su-durmanāḥ*—very much depressed; *aho*—alas; *mayā*—by me; *nīcam*—heinous; *anārya*—uncivilized; *vat*—like; *kṛtam*—done; *nirāgasi*—unto one who is faultless; *brahmaṇi*—unto a *brāhmaṇa*; *gūḍha*—grave; *tejasi*—unto the powerful.

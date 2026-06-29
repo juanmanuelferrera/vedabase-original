@@ -1,11 +1,11 @@
 ### SB 7.4.20
 
-> एवमैश्वर्यमत्तस्य दृप्तस्योच्छास्त्रवर्तिनः
+> एवमैश्वर्यमत्तस्य दृप्तस्योच्छास्त्रवर्तिनः\
 > कालो महान्व्यतीयाय ब्रह्मशापमुपेयुषः ॥२०॥
 
-> evam aiśvarya-mattasya
-> dṛptasyocchāstra-vartinaḥ
-> kālo mahān vyatīyāya
+> evam aiśvarya-mattasya\
+> dṛptasyocchāstra-vartinaḥ\
+> kālo mahān vyatīyāya\
 > brahma-śāpam upeyuṣaḥ
 
 *evam*—thus; *aiśvarya-mattasya*—of one who was intoxicated by opulences; *dṛptasya*—greatly proud; *ut-śāstra-vartinaḥ*—transgressing the regulative principles mentioned in the *śāstras*; *kālaḥ*—duration of time; *mahān*—a great; *vyatīyāya*—passed; *brahma-śāpam*—a curse by exalted *brāhmaṇas*; *upeyuṣaḥ*—having obtained.

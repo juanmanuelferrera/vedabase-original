@@ -1,9 +1,9 @@
 ### CC Madhya 9.244
 
-> শৃঙ্গেরি-মঠে আইলা শঙ্করাচার্য-স্থানে ।
+> শৃঙ্গেরি-মঠে আইলা শঙ্করাচার্য-স্থানে ।\
 > মৎস্য-তীর্থ দেখি’ কৈল তুঙ্গভদ্রায় স্নানে ॥২৪৪॥
 
-> śṛṅgeri-maṭhe āilā śaṅkarācārya-sthāne
+> śṛṅgeri-maṭhe āilā śaṅkarācārya-sthāne\
 > matsya-tīrtha dekhi' kaila tuṅgabhadrāya snāne
 
 *śṛṅgeri-maṭhe*—to the Śṛṅgeri monastery; *āilā*—came; *śaṅkarācārya-sthāne*—at the place of Śaṅkarācārya; *matsya-tīrtha*—the holy place named Matsya-tīrtha; *dekhi'*—seeing; *kaila*—did; *tuṅgabhadrāya snāne*—bathing in the river Tuṅgabhadrā.

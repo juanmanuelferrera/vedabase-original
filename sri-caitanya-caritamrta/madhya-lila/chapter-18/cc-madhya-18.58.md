@@ -1,9 +1,9 @@
 ### CC Madhya 18.58
 
-> ‘পাবনাদি’ সব কুণ্ডে স্নান করিয়া ।
+> ‘পাবনাদি’ সব কুণ্ডে স্নান করিয়া ।\
 > লোকেরে পুছিল, পর্বত-উপরে যাঞা ॥৫৮॥
 
-> 'pāvanādi' saba kuṇḍe snāna kariyā
+> 'pāvanādi' saba kuṇḍe snāna kariyā\
 > lokere puchila, parvata-upare yāñā
 
 *pāvana-ādi*—Pāvana and others; *saba kuṇḍe*—in every lake; *snāna kariyā*—taking a bath; *lokere puchila*—inquired from persons there; *parvata-upare yāñā*—going up a hill.

@@ -1,12 +1,12 @@
 ### SB 9.10.51
 
-> अग्रहीदासनं भ्रात्रा प्रणिपत्य प्रसादितः
-> प्रजाः स्वधर्मनिरता वर्णाश्रमगुणान्विताः
+> अग्रहीदासनं भ्रात्रा प्रणिपत्य प्रसादितः\
+> प्रजाः स्वधर्मनिरता वर्णाश्रमगुणान्विताः\
 > जुगोप पितृवद्रामो मेनिरे पितरं च तम ॥५१॥
 
-> tretāyāṁ vartamānāyāṁ
-> kālaḥ kṛta-samo 'bhavat
-> rāme rājani dharma-jñe
+> tretāyāṁ vartamānāyāṁ\
+> kālaḥ kṛta-samo 'bhavat\
+> rāme rājani dharma-jñe\
 > sarva-bhūta-sukhāvahe
 
 *tretāyām*—en el Tretā-yuga; *vartamānāyām*—aunque situado en ese período; *kālaḥ*—el período; *kṛta*—con Satya-yuga; *samaḥ*—igual; *abhavat*—se volvió; *rāme*—debido a la presencia del Señor Rāmacandra; *rājani*—como rey gobernante; *dharma-jñe*—pues era perfectamente religioso; *sarva-bhūta*—de todas las entidades vivientes; *sukha-āvahe*—dar plena felicidad.

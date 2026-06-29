@@ -1,11 +1,11 @@
 ### Bg 5.10
 
-> ब्रह्मण्याधाय कर्माणि सङ्गं त्यक्त्वा करोति यः ।
+> ब्रह्मण्याधाय कर्माणि सङ्गं त्यक्त्वा करोति यः ।\
 > लिप्यते न स पापेन पद्मपत्रमिवाम्भसा ॥१०॥
 
-> brahmaṇy ādhāya karmāṇi
-> saṅgaṁ tyaktvā karoti yaḥ
-> lipyate na sa pāpena
+> brahmaṇy ādhāya karmāṇi\
+> saṅgaṁ tyaktvā karoti yaḥ\
+> lipyate na sa pāpena\
 > padma-patram ivāmbhasā
 
 *brahmaṇi*—la Suprema Personalidad de Dios; *ādhāya*—entregando a; *karmāṇi*—todos los trabajos; *saṅgam*—apego; *tyaktvā*—abandonando; *karoti*—realiza; *yaḥ*—quien; *lipyate*—es afectado; *na*—nunca; *saḥ*—él; *pāpena*—por el pecado; *padma-patram*—una hoja del loto; *iva*—como; *ambhasā*—en el agua.

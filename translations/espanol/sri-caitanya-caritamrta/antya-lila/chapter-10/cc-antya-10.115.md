@@ -1,9 +1,9 @@
 ### CC Antya 10.115
 
-> তুমি সে না খাও, তাঁরা পুছে বার বার  ।
+> তুমি সে না খাও, তাঁরা পুছে বার বার  ।\
 > কত বঞ্চনা করিমু, কেমনে আমার নিস্তার ?” ১১৫ ॥১১৫॥
 
-> tumi se nā khāo, tāṅrā puche bāra bāra
+> tumi se nā khāo, tāṅrā puche bāra bāra\
 > kata vañcanā karimu, kemane āmāra nistāra?"
 
 *tumi*—Tú; *se*—eso; *nā khāo*—no comes; *tāṅrā*—ellos; *puche*—preguntan; *bāra bāra*—una y otra vez; *kata vañcanā karimu*—cuánto tiempo seguiré engañando; *kemane*—cómo; *āmāra*—mi; *nistāra*—liberación.

@@ -1,13 +1,13 @@
 ### SB 6.3.28
 
-> तानानयध्वमसतो विमुखान्मुकुन्द
-> पादारविन्दमकरन्दरसादजस्रम
-> निष्किञ्चनैः परमहंसकुलैरसङ्गैर
+> तानानयध्वमसतो विमुखान्मुकुन्द\
+> पादारविन्दमकरन्दरसादजस्रम\
+> निष्किञ्चनैः परमहंसकुलैरसङ्गैर\
 > जुष्टाद्गृहे निरयवर्त्मनि बद्धतृष्णान ॥२८॥
 
-> tān ānayadhvam asato vimukhān mukunda-
-> pādāravinda-makaranda-rasād ajasram
-> niṣkiñcanaiḥ paramahaṁsa-kulair asaṅgair
+> tān ānayadhvam asato vimukhān mukunda-\
+> pādāravinda-makaranda-rasād ajasram\
+> niṣkiñcanaiḥ paramahaṁsa-kulair asaṅgair\
 > juṣṭād gṛhe niraya-vartmani baddha-tṛṣṇān
 
 *tān*—them; *ānayadhvam*—bring before me; *asataḥ*—nondevotees (those who have not taken to Kṛṣṇa consciousness); *vimukhān*—who have turned against; *mukunda*—of Mukunda, the Supreme Personality of Godhead; *pāda-aravinda*—of the lotus feet; *makaranda*—of the honey; *rasāt*—the taste; *ajasram*—continuously; *niṣkiñcanaiḥ*—by persons completely free from material attachment; *paramahaṁsa-kulaiḥ*—by the *paramahaṁsas,* the most exalted personalities; *asaṅgaiḥ*—who have no material attachment; *juṣṭāt*—which is enjoyed; *gṛhe*—to household life; *niraya-vartmani*—the path leading to hell; *baddha-tṛṣṇān*—whose desires are bound.

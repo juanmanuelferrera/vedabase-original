@@ -1,11 +1,11 @@
 ### SB 5.17.19
 
-> असद्दृशो यः प्रतिभाति मायया क्षीबेव मध्वासवताम्रलोचनः
+> असद्दृशो यः प्रतिभाति मायया क्षीबेव मध्वासवताम्रलोचनः\
 > न नागवध्वोऽर्हण ईशिरे ह्रिया यत्पादयोः स्पर्शनधर्षितेन्द्रियाः ॥१९॥
 
-> na yasya māyā-guṇa-citta-vṛttibhir
-> nirīkṣato hy aṇv api dṛṣṭir ajyate
-> īśe yathā no 'jita-manyu-raṁhasāṁ
+> na yasya māyā-guṇa-citta-vṛttibhir\
+> nirīkṣato hy aṇv api dṛṣṭir ajyate\
+> īśe yathā no 'jita-manyu-raṁhasāṁ\
 > kas taṁ na manyeta jigīṣur ātmanaḥ
 
 *na*—never; *yasya*—whose; *māyā*—of the illusory energy; *guṇa*—in the qualities; *citta*—of the heart; *vṛttibhiḥ*—by the activities (thinking. feeling and willing); *nirīkṣataḥ*—of Him who is glancing; *hi*—certainly; *aṇu*—slightly; *api*—even; *dṛṣṭiḥ*—vision; *ajyate*—is affected; *īśe*—for the purpose of regulating; *yathā*—as; *naḥ*—of us; *ajita*—who have not conquered; *manyu*—of anger; *raṁhasām*—the force; *kaḥ*—who; *tam*—unto Him (the Supreme Lord); *na*—not; *manyeta*—would worship; *jigīṣuḥ*—aspiring to conquer; *ātmanaḥ*—the senses.

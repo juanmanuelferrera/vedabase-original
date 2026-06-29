@@ -1,11 +1,11 @@
 ### SB 6.11.19
 
-> सुरेश कस्मान्न हिनोषि वज्रं पुरः स्थिते वैरिणि मय्यमोघम
+> सुरेश कस्मान्न हिनोषि वज्रं पुरः स्थिते वैरिणि मय्यमोघम\
 > मा संशयिष्ठा न गदेव वज्रः स्यान्निष्फलः कृपणार्थेव याचञ्आ ॥१९॥
 
-> sureśa kasmān na hinoṣi vajraṁ
-> puraḥ sthite vairiṇi mayy amogham
-> mā saṁśayiṣṭhā na gadeva vajraḥ
+> sureśa kasmān na hinoṣi vajraṁ\
+> puraḥ sthite vairiṇi mayy amogham\
+> mā saṁśayiṣṭhā na gadeva vajraḥ\
 > syān niṣphalaḥ kṛpaṇārtheva yācñā
 
 *sura-īśa*—¡oh, rey de los semidioses!; *kasmāt*—por qué; *na*—no; *hinoṣi*—lanzas; *vajram*—el rayo; *puraḥ sthite*—que está enfrente; *vairiṇi*—tu enemigo; *mayi*—a mí; *amogham*—que es infalible (tu rayo); *mā*—no; *saṁśayiṣṭhāḥ*—duda; *na*—no; *gadā iva*—como la maza; *vajraḥ*—el rayo; *syāt*—pueda ser; *niṣphalaḥ*—sin resultado; *kṛpaṇa*—de un avaro; *arthā*—de dinero; *iva*—como; *yācñā*—un ruego.

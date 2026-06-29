@@ -1,11 +1,11 @@
 ### SB 4.18.14
 
-> ऋषयो दुदुहुर्देवीमिन्द्रियेष्वथ सत्तम ।
+> ऋषयो दुदुहुर्देवीमिन्द्रियेष्वथ सत्तम ।\
 > वत्सं बृहस्पतिं कृत्वा पयश्छन्दोमयं शुचि ॥१४॥
 
-> ṛṣayo duduhur devīm
-> indriyeṣv atha sattama
-> vatsaṁ bṛhaspatiṁ kṛtvā
+> ṛṣayo duduhur devīm\
+> indriyeṣv atha sattama\
+> vatsaṁ bṛhaspatiṁ kṛtvā\
 > payaś chandomayaṁ śuci
 
 *ṛṣayaḥ*—the great sages; *duduhuḥ*—milked; *devīm*—the earth; *indriyeṣu*—in the senses; *atha*—then; *sattama*—O Vidura; *vatsam*—the calf; *bṛhaspatim*—the sage Bṛhaspati; *kṛtvā*—making; *payaḥ*—milk; *chandaḥ-mayam*—in the form of the Vedic hymns; *śuci*—pure.

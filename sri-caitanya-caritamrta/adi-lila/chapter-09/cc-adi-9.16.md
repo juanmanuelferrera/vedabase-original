@@ -1,9 +1,9 @@
 ### CC Adi 9.16
 
-> মধ্যমূল পরমানন্দ পুরী মহাধীর ।
+> মধ্যমূল পরমানন্দ পুরী মহাধীর ।\
 > অষ্ট দিকে অষ্ট মূল বৃক্ষ কৈল স্থির ॥১৬॥
 
-> madhya-mūla paramānanda purī mahā-dhīra
+> madhya-mūla paramānanda purī mahā-dhīra\
 > aṣṭa dike aṣṭa mūla vṛkṣa kaila sthira
 
 *madhya-mūla*—the middle root; *paramānanda purī*—of the name Paramānanda Purī; *mahā-dhīra*—most sober; *aṣṭa dike*—in the eight directions; *aṣṭa mūla*—eight roots; *vṛkṣa*—the tree; *kaila sthira*—fixed.

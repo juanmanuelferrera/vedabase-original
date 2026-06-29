@@ -1,9 +1,9 @@
 ### CC Madhya 11.43
 
-> তথাপি না করে তেঁহ রাজ-দরশন ।
+> তথাপি না করে তেঁহ রাজ-দরশন ।\
 > ক্ষেত্র ছাড়ি’ যাবেন পুনঃ যদি করি নিবেদন ॥৪৩॥
 
-> tathāpi nā kare teṅha rāja-daraśana
+> tathāpi nā kare teṅha rāja-daraśana\
 > kṣetra chāḍi' yābena punaḥ yadi kari nivedana
 
 *tathāpi*—yet; *nā kare*—does not do; *teṅha*—He; *rāja-daraśana*—visiting a king; *kṣetra chāḍi'*—leaving Jagannātha-kṣetra; *yābena*—He will go away; *punaḥ*—again; *yadi*—if; *kari nivedana*—I request.

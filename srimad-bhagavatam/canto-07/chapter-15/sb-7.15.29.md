@@ -1,11 +1,11 @@
 ### SB 7.15.29
 
-> यथा वार्तादयो ह्यर्था योगस्यार्थं न बिभ्रति
+> यथा वार्तादयो ह्यर्था योगस्यार्थं न बिभ्रति\
 > अनर्थाय भवेयुः स्म पूर्तमिष्टं तथासतः ॥२९॥
 
-> yathā vārtādayo hy arthā
-> yogasyārthaṁ na bibhrati
-> anarthāya bhaveyuḥ sma
+> yathā vārtādayo hy arthā\
+> yogasyārthaṁ na bibhrati\
+> anarthāya bhaveyuḥ sma\
 > pūrtam iṣṭaṁ tathāsataḥ
 
 *yathā*—as; *vārtā-ādayaḥ*—activities like occupational or professional duties; *hi*—certainly; *arthāḥ*—income (from such occupational duties); *yogasya*—of mystic power for self-realization; *artham*—benefit; *na*—not; *bibhrati*—help; *anarthāya*—without value (binding one to repeated birth and death); *bhaveyuḥ*—they are; *sma*—at all times; *pūrtam iṣṭam*—ritualistic Vedic ceremonies; *tathā*—similarly; *asataḥ*—of a materialistic nondevotee.

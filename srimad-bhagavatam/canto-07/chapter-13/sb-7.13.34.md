@@ -1,11 +1,11 @@
 ### SB 7.13.34
 
-> मधुकारमहासर्पौ लोकेऽस्मिन्नो गुरूत्तमौ
+> मधुकारमहासर्पौ लोकेऽस्मिन्नो गुरूत्तमौ\
 > वैराग्यं परितोषं च प्राप्ता यच्छिक्षया वयम ॥३४॥
 
-> śoka-moha-bhaya-krodha-
-> rāga-klaibya-śramādayaḥ
-> yan-mūlāḥ syur nṛṇāṁ jahyāt
+> śoka-moha-bhaya-krodha-\
+> rāga-klaibya-śramādayaḥ\
+> yan-mūlāḥ syur nṛṇāṁ jahyāt\
 > spṛhāṁ prāṇārthayor budhaḥ
 
 *śoka*—lamentation; *moha*—illusion; *bhaya*—fear; *krodha*—anger; *rāga*—attachment; *klaibya*—poverty; *śrama*—unnecessary labor; *ādayaḥ*—and so on; *yat-mūlāḥ*—the original cause of all these; *syuḥ*—become; *nṛṇām*—of human beings; *jahyāt*—should give up; *spṛhām*—the desire; *prāṇa*—for bodily strength or prestige; *arthayoḥ*—and accumulating money; *budhaḥ*—an intelligent person.

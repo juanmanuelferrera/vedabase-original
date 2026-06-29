@@ -1,12 +1,12 @@
 ### SB 8.7.36
 
-> एतत्परं प्रपश्यामो न परं ते महेश्वर
+> एतत्परं प्रपश्यामो न परं ते महेश्वर\
 > मृडनाय हि लोकस्य व्यक्तिस्तेऽव्यक्तकर्मणः ॥३६॥
 
-> śrī-śuka uvāca
-> tad-vīkṣya vyasanaṁ tāsāṁ
-> kṛpayā bhṛśa-pīḍitaḥ
-> sarva-bhūta-suhṛd deva
+> śrī-śuka uvāca\
+> tad-vīkṣya vyasanaṁ tāsāṁ\
+> kṛpayā bhṛśa-pīḍitaḥ\
+> sarva-bhūta-suhṛd deva\
 > idam āha satīṁ priyām
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *tat*—this situation; *vīkṣya*—seeing; *vyasanam*—dangerous; *tāsām*—of all the demigods; *kṛpayā*—out of compassion; *bhṛśa-pīḍitaḥ*—greatly aggrieved; *sarva-bhūta-suhṛt*—the friend of all living entities; *devaḥ*—Mahādeva; *idam*—this; *āha*—said; *satīm*—unto Satīdevī; *priyām*—his very dear wife.

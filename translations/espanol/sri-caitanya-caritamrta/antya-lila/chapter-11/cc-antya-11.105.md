@@ -1,9 +1,9 @@
 ### CC Antya 11.105
 
-> মহাভাগবত হরিদাস — পরম-বিদ্বান্ ।
+> মহাভাগবত হরিদাস — পরম-বিদ্বান্ ।\
 > এ সৌভাগ্য লাগি’ আগে করিলা প্রয়াণ ॥১০৫॥
 
-> mahā-bhāgavata haridāsa--parama-vidvān
+> mahā-bhāgavata haridāsa--parama-vidvān\
 > e saubhāgya lāgi' āge karilā prayāṇa
 
 *mahā-bhāgavata*—gran devoto; *haridāsa*—Haridāsa Ṭhākura; *parama-vidvān*—el más erudito; *e saubhāgya lāgi'*—debido a su gran fortuna; *āge*—primero; *karilā prayāṇa*—partió de este mundo.

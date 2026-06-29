@@ -1,9 +1,9 @@
 ### CC Madhya 20.273
 
-> স্বাঙ্গ-বিশেষাভাসরূপে প্রকৃতি-স্পর্শন ।
+> স্বাঙ্গ-বিশেষাভাসরূপে প্রকৃতি-স্পর্শন ।\
 > জীব-রূপ ‘বীজ’ তাতে কৈলা সমর্পণ ॥২৭৩॥
 
-> svāṅga-viśeṣābhāsa-rūpe prakṛti-sparśana
+> svāṅga-viśeṣābhāsa-rūpe prakṛti-sparśana\
 > jīva-rūpa 'bīja' tāte kailā samarpaṇa
 
 *sva-aṅga-viśeṣa-ābhāsa-rūpe*—en la forma de una sombra específica de Su cuerpo personal; *prakṛti-sparśana*—el Señor mira sobre la naturaleza material; *jīva-rūpa*—teniendo la forma de las chispeantes entidades vivientes, que son partes integrales; *bīja*—semilla; *tāte*—en esa naturaleza material; *kailā samarpaṇa*—fecundó.

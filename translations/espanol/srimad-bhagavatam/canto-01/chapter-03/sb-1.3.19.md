@@ -1,11 +1,11 @@
 ### SB 1.3.19
 
-> पञ्चदशं वामनकं कृत्वागादध्वरं बलेः ।
+> पञ्चदशं वामनकं कृत्वागादध्वरं बलेः ।\
 > पदत्रयं याचमानः प्रत्यादित्सुस्त्रिपिष्टपम् ॥१९॥
 
-> pañcadaśaṁ vāmanakaṁ
-> kṛtvāgād adhvaraṁ baleḥ
-> pada-trayaṁ yācamānaḥ
+> pañcadaśaṁ vāmanakaṁ\
+> kṛtvāgād adhvaraṁ baleḥ\
+> pada-trayaṁ yācamānaḥ\
 > pratyāditsus tri-piṣṭapam
 
 *pañcadaśam*—la decimoquinta en la línea; *vāmanakam*—el *brāhmaṇa* enano; *kṛtvā*—asumiendo; *agāt*—fue; *adhvaram*—arena de sacrificio; *baleḥ*—del rey Bali; *pada-trayam*—únicamente tres pasos; *yācamānaḥ*—mendigando; *pratyāditsuḥ*—deseando de todo corazón devolver; *tri-piṣṭapam*—el reino de los tres sistemas planetarios.

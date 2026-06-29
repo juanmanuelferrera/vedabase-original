@@ -1,9 +1,9 @@
 ### CC Madhya 1.118
 
-> শুনিয়া প্রভুর আনন্দিত হৈল মন ।
+> শুনিয়া প্রভুর আনন্দিত হৈল মন ।\
 > রামদাস বিপ্রের কথা হইল স্মরণ ॥১১৮॥
 
-> śuniyā prabhura ānandita haila mana
+> śuniyā prabhura ānandita haila mana\
 > rāma-dāsa viprera kathā ha-ila smaraṇa
 
 *śuniyā*—hearing this; *prabhura*—of Lord Caitanya Mahāprabhu; *ānandita*—very happy; *haila*—became; *mana*—the mind; *rāma-dāsa*—of the name Rāmadāsa; *viprera*—with the *brāhmaṇa*; *kathā*—of the conversation; *ha-ila*—was; *smaraṇa*—remembrance.

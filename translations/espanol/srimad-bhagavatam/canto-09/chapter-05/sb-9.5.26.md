@@ -1,13 +1,13 @@
 ### SB 9.5.26
 
-> श्रीशुक उवाच
-> अथाम्बरीषस्तनयेषु राज्यं समानशीलेषु विसृज्य धीरः
+> श्रीशुक उवाच\
+> अथाम्बरीषस्तनयेषु राज्यं समानशीलेषु विसृज्य धीरः\
 > वनं विवेशात्मनि वासुदेवे मनो दधद्ध्वस्तगुणप्रवाहः ॥२६॥
 
-> śrī-śuka uvāca
-> athāmbarīṣas tanayeṣu rājyaṁ
-> samāna-śīleṣu visṛjya dhīraḥ
-> vanaṁ viveśātmani vāsudeve
+> śrī-śuka uvāca\
+> athāmbarīṣas tanayeṣu rājyaṁ\
+> samāna-śīleṣu visṛjya dhīraḥ\
+> vanaṁ viveśātmani vāsudeve\
 > mano dadhad dhvasta-guṇa-pravāhaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *atha*—de este modo; *ambarīṣaḥ*—el rey Ambarīṣa; *tanayeṣu*—a sus hijos; *rājyam*—el reino; *samāna-śīleṣu*—que eran tan cualificados como su padre; *visṛjya*—repartir; *dhīraḥ*—la persona más erudita; *vanam*—en el bosque; *viveśa*—entró; *ātmani*—al Señor Supremo; *vāsudeve*—el Señor Kṛṣṇa, conocido con el nombre de Vāsudeva; *manaḥ*—la mente; *dadhat*—concentrar; *dhvasta*—vencida; *guṇa-pravāhaḥ*—las olas de las modalidades materiales de la naturaleza.

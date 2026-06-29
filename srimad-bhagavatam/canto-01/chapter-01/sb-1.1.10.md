@@ -1,11 +1,11 @@
 ### SB 1.1.10
 
-> प्रायेणाल्पायुषः सभ्य कलावस्मिन्युगे जनाः ।
+> प्रायेणाल्पायुषः सभ्य कलावस्मिन्युगे जनाः ।\
 > मन्दाः सुमन्दमतयो मन्दभाग्या ह्युपद्रुताः ॥१०॥
 
-> prāyeṇālpāyuṣaḥ sabhya
-> kalāv asmin yuge janāḥ
-> mandāḥ sumanda-matayo
+> prāyeṇālpāyuṣaḥ sabhya\
+> kalāv asmin yuge janāḥ\
+> mandāḥ sumanda-matayo\
 > manda-bhāgyā hy upadrutāḥ
 
 *prāyeṇa*—almost always; *alpa*—meager; *āyuṣaḥ*—duration of life; *sabhya*—member of a learned society; *kalau*—in this age of Kali (quarrel); *asmin*—herein; *yuge*—age; *janāḥ*—the public; *mandāḥ*—lazy; *sumanda-matayaḥ*—misguided; *manda-bhāgyāḥ*—unlucky; *hi*—and above all; *upadrutāḥ*—disturbed.

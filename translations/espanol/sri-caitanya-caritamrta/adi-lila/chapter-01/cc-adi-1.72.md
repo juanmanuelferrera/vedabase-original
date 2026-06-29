@@ -1,11 +1,11 @@
 ### CC Adi 1.72
 
-> রাসোৎসবঃ সংপ্রবৃত্তো গোপীমণ্ডলমণ্ডিতঃ ।
+> রাসোৎসবঃ সংপ্রবৃত্তো গোপীমণ্ডলমণ্ডিতঃ ।\
 > যোগেশ্বরেণ কৃষ্ণেন তাসাং মধ্যে দ্বয়োর্দ্বয়োঃ ॥৭২॥
 
-> rāsotsavaḥ sampravṛtto
-> gopī-maṇḍala-maṇḍitaḥ
-> yogeśvareṇa kṛṣṇena
+> rāsotsavaḥ sampravṛtto\
+> gopī-maṇḍala-maṇḍitaḥ\
+> yogeśvareṇa kṛṣṇena\
 > tāsāṁ madhye dvayor dvayoḥ
 
 *rāsa-utsavaḥ*—la festividad de la danza del *rāsa*; *sampravṛttaḥ*—comenzó; *gopī-maṇḍala*—por grupos de *gopīs*; *maṇḍitaḥ*—adornada; *yoga-īśvareṇa*—por el amo de todos los poderes místicos; *kṛṣṇena*—por el Señor Kṛṣṇa; *tāsām*—de ellas; *madhye*—en medio; *dvayoḥ dvayoḥ*—de cada dos.

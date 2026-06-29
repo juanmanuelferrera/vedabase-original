@@ -1,9 +1,9 @@
 ### CC Madhya 25.225
 
-> শুনিয়া ভক্তের গণ যেন পুনরপি জীলা ।
+> শুনিয়া ভক্তের গণ যেন পুনরপি জীলা ।\
 > দেহে প্রাণ আইলে, যেন ইন্দ্রিয় উঠিলা ॥২২৫॥
 
-> śuniyā bhaktera gaṇa yena punarapi jīlā
+> śuniyā bhaktera gaṇa yena punarapi jīlā\
 > dehe prāṇa āile, yena indriya uṭhilā
 
 *śuniyā*—hearing; *bhaktera gaṇa*—the hordes of devotees at Jagannātha Purī; *yena*—as if; *punarapi*—again; *jīlā*—became alive; *dehe*—in the body; *prāṇa āile*—consciousness returned; *yena*—as if; *indriya*—senses; *uṭhilā*—became agitated.

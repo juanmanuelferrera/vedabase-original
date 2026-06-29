@@ -1,9 +1,9 @@
 ### CC Madhya 24.118
 
-> নব-যোগীশ্বর জন্ম হৈতে ‘সাধক’ জ্ঞানী ।
+> নব-যোগীশ্বর জন্ম হৈতে ‘সাধক’ জ্ঞানী ।\
 > বিধি-শিব-নারদ-মুখে কৃষ্ণগুণ শুনি’ ॥১১৮॥
 
-> nava-yogīśvara janma haite 'sādhaka' jñānī
+> nava-yogīśvara janma haite 'sādhaka' jñānī\
 > vidhi-śiva-nārada-mukhe kṛṣṇa-guṇa śuni'
 
 *nava*—nueve; *yogi-īśvara*—grandes yogīs santos; *janma haite*—desde el nacimiento mismo; *sādhaka*—practicantes; *jñānī*—muy versados en conocimiento trascendental; *vidhi*—el Señor Brahmā; *śiva*—el Señor Śiva; *nārada*—el gran sabio Nārada; *mukhe*—en sus bocas; *kṛṣṇa-guṇa śuni'*—al escuchar las cualidades trascendentales de Kṛṣṇa.

@@ -1,9 +1,9 @@
 ### CC Adi 17.136
 
-> আগে সম্প্রদায়ে নৃত্য করে হরিদাস ।
+> আগে সম্প্রদায়ে নৃত্য করে হরিদাস ।\
 > মধ্যে নাচে আচার্য-গোসাঞি পরম উল্লাস ॥১৩৬॥
 
-> āge sampradāye nṛtya kare haridāsa
+> āge sampradāye nṛtya kare haridāsa\
 > madhye nāce ācārya-gosāñi parama ullāsa
 
 *āge*—in front; *sampradāye*—in the party; *nṛtya*—dancing; *kare*—does; *haridāsa*—Ṭhākura Haridāsa; *madhye*—in the middle; *nāce*—dances; *ācārya-gosāñi*—Śrī Advaita Ācārya; *parama*—very; *ullāsa*—happy.

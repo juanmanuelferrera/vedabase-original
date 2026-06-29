@@ -1,9 +1,9 @@
 ### CC Adi 6.80
 
-> তেঁহো করেন কৃষ্ণের দাস্য-প্রত্যাশ ।
+> তেঁহো করেন কৃষ্ণের দাস্য-প্রত্যাশ ।\
 > নিরন্তর কহে শিব, ‘মুঞি কৃষ্ণদাস’ ॥৮০॥
 
-> teṅho karena kṛṣṇera dāsya-pratyāśa
+> teṅho karena kṛṣṇera dāsya-pratyāśa\
 > nirantara kahe śiva, 'muñi kṛṣṇa-dāsa'
 
 *teṅho*—él; *karena*—tiene; *kṛṣṇera*—del Señor Kṛṣṇa; *dāsya-pratyāśa*—la expectativa de ser sirviente; *nirantara*—constantemente; *kahe*—dice; *śiva*—el Señor Śiva; *muñi*—yo; *kṛṣṇa-dāsa*—un sirviente de Kṛṣṇa.

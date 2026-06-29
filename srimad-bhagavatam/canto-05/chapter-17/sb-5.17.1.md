@@ -1,9 +1,9 @@
 ### SB 5.17.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > तत्र भगवतः साक्षाद्यज्ञअलिङ्गस्य विष्णोर्विक्रमतो वामपादाङ्गुष्ठनखनिर्भिन्नोर्ध्वाण्डकटाहविवरेणान्तःप्रविष्टा या बाह्यजलधारा तच्चरणपङ्कजावनेजनारुणकिञ्जल्कोपरञ्जिताखिलजगदघमलापहोपस्पर्शनामला साक्षाद्भगवत्पदीत्यनुपलक्षितवचोऽभिधीयमानातिमहता कालेन युगसहस्रोपलक्षणेन दिवो मूर्धन्यवततार यत्तद्विष्णुपदमाहुः ॥१॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > tatra bhagavataḥ sākṣād yajña-liṅgasya viṣṇor vikramato vāma-pādāṅguṣṭha-nakha-nirbhinnordhvāṇḍa-kaṭāha-vivareṇāntaḥ-praviṣṭā yā bāhya-jala-dhārā tac-caraṇa-paṅkajāvanejanāruṇa-kiñjalkoparañjitākhila-jagad-agha-malāpahopasparśanāmalā sākṣād bhagavat-padīty anupalakṣita-vaco 'bhidhīyamānāti-mahatā kālena yuga-sahasropalakṣaṇena divo mūrdhany avatatāra yat tad viṣṇu-padam āhuḥ.
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *tatra*—at that time; *bhagavataḥ*—of the incarnation of the Supreme Personality of Godhead; *sākṣāt*—directly; *yajña-liṅgasya*—the enjoyer of the results of all sacrifices; *viṣṇoḥ*—of Lord Viṣṇu; *vikramataḥ*—while taking His second step; *vāma-pāda*—of His left leg; *aṅguṣṭha*—of the big toe; *nakha*—by the nail; *nirbhinna*—pierced; *ūrdhva*—upper; *aṇḍa-kaṭāha*—the covering of the universe (consisting of seven layers-earth, water, fire, etc.); *vivareṇa*—through the bole; *antaḥ-praviṣṭā*—having entered the universe; *yā*—which; *bāhya-jala-dhārā*—the flow of water from the Causal Ocean outside the universe; *tat*—of Him; *caraṇa-paṅkaja*—of the lotus feet; *avanejana*—by the washing; *aruṇa-kiñjalka*—by reddish powder; *uparañjitā*—being colored; *akhila-jagat*—of the whole world; *agha-mala*—the sinful activities; *apahā*—destroys; *upasparśana*—the touching of which; *amalā*—completely pure; *sākṣāt*—directly; *bhagavat-padī*—emanating from the lotus feet of the Supreme Personality of Godhead; *iti*—thus; *anupalakṣita*—described; *vacaḥ*—by the name; *abhidhīyamānā*—being called; *ati-mahatā kālena*—after a long time; *yuga-sahasra-upalakṣaṇena*—consisting of one thousand millenniums; *divaḥ*—of the sky; *mūrdhani*—on the head (Dhruvaloka); *avatatāra*—descended; *yat*—which; *tat*—that; *viṣṇu-padam*—the lotus feet of Lord Viṣṇu; *āhuḥ*—they call.

@@ -1,9 +1,9 @@
 ### CC Antya 13.20
 
-> তাতে শয়ন করেন প্রভু, — দেখি’ সবে সুখী ।
+> তাতে শয়ন করেন প্রভু, — দেখি’ সবে সুখী ।\
 > জগদানন্দ — ভিতরে ক্রোধ বাহিরে মহাদুঃখী ॥২০॥
 
-> tāte śayana karena prabhu,—dekhi' sabe sukhī
+> tāte śayana karena prabhu,—dekhi' sabe sukhī\
 > jagadānanda—bhitare krodha bāhire mahā-duḥkhī
 
 *tāte*—on that; *śayana karena*—lies down; *prabhu*—Śrī Caitanya Mahāprabhu; *dekhi'*—seeing; *sabe sukhī*—everyone became happy; *jagadānanda*—Jagadānanda Paṇḍita; *bhitare*—within his mind; *krodha*—angry; *bāhire*—externally; *mahā-duḥkhī*—very unhappy.

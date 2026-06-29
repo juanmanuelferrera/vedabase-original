@@ -1,11 +1,11 @@
 ### SB 4.4.9
 
-> अरुद्रभागं तमवेक्ष्य चाध्वरं पित्रा च देवे कृतहेलनं विभौ ।
+> अरुद्रभागं तमवेक्ष्य चाध्वरं पित्रा च देवे कृतहेलनं विभौ ।\
 > अनादृता यज्ञसदस्यधीश्वरी चुकोप लोकानिव धक्ष्यती रुषा ॥९॥
 
-> arudra-bhāgaṁ tam avekṣya cādhvaraṁ
-> pitrā ca deve kṛta-helanaṁ vibhau
-> anādṛtā yajña-sadasy adhīśvarī
+> arudra-bhāgaṁ tam avekṣya cādhvaraṁ\
+> pitrā ca deve kṛta-helanaṁ vibhau\
+> anādṛtā yajña-sadasy adhīśvarī\
 > cukopa lokān iva dhakṣyatī ruṣā
 
 *arudra-bhāgam*—having no oblations for Lord Śiva; *tam*—that; *avekṣya*—seeing; *ca*—and; *adhvaram*—place of sacrifice; *pitrā*—by her father; *ca*—and; *deve*—to Lord Śiva; *kṛta-helanam*—contempt having been shown; *vibhau*—to the lord; *anādṛtā*—not being received; *yajña-sadasi*—in the assembly of the sacrifice; *adhīśvarī*—Satī; *cukopa*—became greatly angry; *lokān*—the fourteen worlds; *iva*—as if; *dhakṣyatī*—burning; *ruṣā*—with anger.

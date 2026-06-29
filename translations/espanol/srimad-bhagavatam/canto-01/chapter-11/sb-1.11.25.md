@@ -1,11 +1,11 @@
 ### SB 1.11.25
 
-> नित्यं निरीक्षमाणानां यदपि द्वारकौकसाम् ।
+> नित्यं निरीक्षमाणानां यदपि द्वारकौकसाम् ।\
 > न वितृप्यन्ति हि दृशः श्रियो धामाङ्गमच्युतम् ॥२५॥
 
-> nityaṁ nirīkṣamāṇānāṁ
-> yad api dvārakaukasām
-> na vitṛpyanti hi dṛśaḥ
+> nityaṁ nirīkṣamāṇānāṁ\
+> yad api dvārakaukasām\
+> na vitṛpyanti hi dṛśaḥ\
 > śriyo dhāmāṅgam acyutam
 
 *nityam*—regularmente, siempre; *nirīkṣamāṇānām*—de aquellos que lo miran a Él; *yat*—aunque; *api*—a pesar de; *dvārakā-okasām*—los habitantes de Dvārakā; *na*—nunca; *vitṛpyanti*—satisfechos; *hi*—exactamente; *dṛśaḥ*—vista; *śriyaḥ*—bellezas; *dhāma-aṅgam*—el cuerpo que es fuente; *acyutam*—el infalible.

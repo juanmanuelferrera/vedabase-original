@@ -1,9 +1,9 @@
 ### CC Madhya 8.115
 
-> ইতস্ততঃ ভ্রমি’ কাহাঁ রাধা না পাঞা ৷
+> ইতস্ততঃ ভ্রমি’ কাহাঁ রাধা না পাঞা ৷\
 > বিষাদ করেন কামবাণে খিন্ন হঞা ৷৷ ১১৫ ৷৷ ॥১১৫॥
 
-> itas-tataḥ bhrami' kāhāṅ rādhā nā pāñā
+> itas-tataḥ bhrami' kāhāṅ rādhā nā pāñā\
 > viṣāda karena kāma-bāṇe khinna hañā
 
 *itaḥ-tataḥ*—de aquí para allá; *bhrami'*—vagando; *kāhāṅ*—en ninguna parte; *rādhā*—Śrīmatī Rādhārāṇī; *nā*—no; *pāñā*—encontrando; *viṣāda*—lamentación; *karena*—hace; *kāma-bāṇe*—por la flecha de Cupido; *khinna*—herido; *hañā*—estando.

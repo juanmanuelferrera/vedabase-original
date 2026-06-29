@@ -1,9 +1,9 @@
 ### CC Adi 3.20
 
-> আপনি করিমু ভক্তভাব অঙ্গীকারে ।
+> আপনি করিমু ভক্তভাব অঙ্গীকারে ।\
 > আপনি আচরি’ ভক্তি শিখাইমু সবারে ॥২০॥
 
-> āpani karimu bhakta-bhāva aṅgīkāre
+> āpani karimu bhakta-bhāva aṅgīkāre\
 > āpani ācari' bhakti śikhāimu sabāre
 
 *āpani*—personalmente; *karimu*—haré; *bhakta-bhāva*—la posición de un devoto; *aṅgīkāre*—aceptación; *āpani*—personalmente; *ācari'*—practicando; *bhakti*—servicio devocional; *śikhāimu*—enseñaré; *sabāre*—a todos.

@@ -1,11 +1,11 @@
 ### SB 1.18.35
 
-> कृष्णे गते भगवति शास्तर्युत्पथगामिनाम् ।
+> कृष्णे गते भगवति शास्तर्युत्पथगामिनाम् ।\
 > तद्भिन्नसेतूनद्याहं शास्मि पश्यत मे बलम् ॥३५॥
 
-> kṛṣṇe gate bhagavati
-> śāstary utpatha-gāminām
-> tad bhinna-setūn adyāhaṁ
+> kṛṣṇe gate bhagavati\
+> śāstary utpatha-gāminām\
+> tad bhinna-setūn adyāhaṁ\
 > śāsmi paśyata me balam
 
 *kṛṣṇe*—el Señor Kṛṣṇa; *gate*—habiendo partido de este mundo; *bhagavati*—la Personalidad de Dios; *śāstari*—el gobernante supremo; *utpatha-gāminām*—de aquellos que son arribistas; *tat bhinna*—estando separado; *setūn*—el protector; *adya*—hoy; *aham*—yo mismo; *śāsmi*—castigaré; *paśyata*—tan solo vean; *me*—mi; *balam*—poder.

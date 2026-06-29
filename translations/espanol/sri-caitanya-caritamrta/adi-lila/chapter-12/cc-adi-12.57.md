@@ -1,9 +1,9 @@
 ### CC Adi 12.57
 
-> বাসুদেব দত্তের তেঁহো কৃপার ভাজন ।
+> বাসুদেব দত্তের তেঁহো কৃপার ভাজন ।\
 > সর্বভাবে আশ্রিয়াছে চৈতন্য-চরণ ॥৫৭॥
 
-> vāsudeva dattera teṅho kṛpāra bhājana
+> vāsudeva dattera teṅho kṛpāra bhājana\
 > sarva-bhāve āśriyāche caitanya-caraṇa
 
 *vāsudeva dattera*—de Vāsudeva Datta; *teṅho*—él era; *kṛpāra*—de la misericordia; *bhājana*—competente para recibir; *sarva-bhāve*—en todos los aspectos; *āśriyāche*—se refugió; *caitanya-caraṇa*—en los pies de loto del Señor Caitanya.

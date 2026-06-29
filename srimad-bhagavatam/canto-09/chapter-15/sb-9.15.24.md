@@ -1,11 +1,11 @@
 ### SB 9.15.24
 
-> तस्मै स नरदेवाय मुनिरर्हणमाहरत
+> तस्मै स नरदेवाय मुनिरर्हणमाहरत\
 > ससैन्यामात्यवाहाय हविष्मत्या तपोधनः ॥२४॥
 
-> tasmai sa naradevāya
-> munir arhaṇam āharat
-> sasainyāmātya-vāhāya
+> tasmai sa naradevāya\
+> munir arhaṇam āharat\
+> sasainyāmātya-vāhāya\
 > haviṣmatyā tapo-dhanaḥ
 
 *tasmai*—unto him; *saḥ*—he (Jamadagni); *naradevāya*—unto King Kārtavīryārjuna; *muniḥ*—the great sage; *arhaṇam*—paraphernalia for worship; *āharat*—offered; *sa-sainya*—with his soldiers; *amātya*—his ministers; *vāhāya*—and the chariots, the elephants, the horses or the men who carried the palanquins; *haviṣmatyā*—because of possessing a *kāmadhenu,* a cow that could supply everything; *tapaḥ-dhanaḥ*—the great sage, whose only power was his austerity, or who was engaged in austerity.

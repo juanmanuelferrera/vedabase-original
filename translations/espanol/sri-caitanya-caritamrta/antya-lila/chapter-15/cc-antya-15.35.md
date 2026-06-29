@@ -1,9 +1,9 @@
 ### CC Antya 15.35
 
-> আম্র, পনস, পিয়াল, জম্বু, কোবিদার ।
+> আম্র, পনস, পিয়াল, জম্বু, কোবিদার ।\
 > তীর্থবাসী সবে, কর পর-উপকার ॥৩৫॥
 
-> āmra, panasa, piyāla, jambu, kovidāra
+> āmra, panasa, piyāla, jambu, kovidāra\
 > tīrtha-vāsī sabe, kara para-upakāra
 
 *āmra*—¡oh, árbol de mango!; *panasa*—¡oh, árbol de jaca!; *piyāla*—¡oh, árbol *piyāla*!; *jambu*—¡oh, árbol *jambu*!; *kovidāra*—¡oh, árbol *kovidāra*!; *tīrtha-vāsī*—habitantes de un lugar sagrado; *sabe*—todos; *kara*—por favor haced; *para-upakāra*—el bien de los demás.

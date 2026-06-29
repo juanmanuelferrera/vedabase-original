@@ -1,13 +1,13 @@
 ### SB 5.19.12
 
-> गायति चेदम
-> कर्तास्य सर्गादिषु यो न बध्यते न हन्यते देहगतोऽपि दैहिकैः
+> गायति चेदम\
+> कर्तास्य सर्गादिषु यो न बध्यते न हन्यते देहगतोऽपि दैहिकैः\
 > द्रष्टुर्न दृग्यस्य गुणैर्विदूष्यते तस्मै नमोऽसक्तविविक्तसाक्षिणे ॥१२॥
 
-> gāyati cedam—
-> kartāsya sargādiṣu yo na badhyate
-> na hanyate deha-gato 'pi daihikaiḥ
-> draṣṭur na dṛg yasya guṇair vidūṣyate
+> gāyati cedam—\
+> kartāsya sargādiṣu yo na badhyate\
+> na hanyate deha-gato 'pi daihikaiḥ\
+> draṣṭur na dṛg yasya guṇair vidūṣyate\
 > tasmai namo 'sakta-vivikta-sākṣiṇe
 
 *gāyati*—canta; *ca*—y; *idam*—esto; *kartā*—el ejecutor; *asya*—de la manifestación cósmica; *sarga-ādiṣu*—de la creación, el mantenimiento y la destrucción; *yaḥ*—aquel que; *na badhyate*—no está apegado como creador, amo o propietario; *na*—no; *hanyate*—es víctima; *deha-gataḥ api*—aunque aparece con forma humana; *daihikaiḥ*—por sufrimientos corporales como el hambre, la sed y la fatiga; *draṣṭuḥ*—de Él, que es el que lo ve todo; *na*—no; *dṛk*—la facultad de ver; *yasya*—de quien; *guṇaiḥ*—por las cualidades materiales; *vidūṣyate*—está contaminado; *tasmai*—a Él; *namaḥ*—respetuosas reverencias; *asakta*—a la Persona Suprema, que está desapegado; *vivikta*—sin afecto; *sākṣiṇe*—el testigo de todo.

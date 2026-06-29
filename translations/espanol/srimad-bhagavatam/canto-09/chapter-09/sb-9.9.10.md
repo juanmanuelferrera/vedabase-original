@@ -1,11 +1,11 @@
 ### SB 9.9.10
 
-> भगीरथः स राजर्षिर्निन्ये भुवनपावनीम
+> भगीरथः स राजर्षिर्निन्ये भुवनपावनीम\
 > यत्र स्वपित्णां देहा भस्मीभूताः स्म शेरते ॥१०॥
 
-> bhagīrathaḥ sa rājarṣir
-> ninye bhuvana-pāvanīm
-> yatra sva-pitṝṇāṁ dehā
+> bhagīrathaḥ sa rājarṣir\
+> ninye bhuvana-pāvanīm\
+> yatra sva-pitṝṇāṁ dehā\
 > bhasmībhūtāḥ sma śerate
 
 *bhagīrathaḥ*—el rey Bhagīratha; *saḥ*—él; *rāja-ṛṣiḥ*—el gran rey santo; *ninye*—condujo, o llevó; *bhuvana-pāvanīm*—a madre Ganges, que puede liberar a todo el universo; *yatra*—en el lugar en que; *sva-pitṝṇām*—de sus antepasados; *dehāḥ*—los cuerpos; *bhasmībhūtāḥ*—reducidos a cenizas; *sma śerate*—yacían.

@@ -1,11 +1,11 @@
 ### SB 8.23.4
 
-> एवमिन्द्राय भगवान्प्रत्यानीय त्रिविष्टपम
+> एवमिन्द्राय भगवान्प्रत्यानीय त्रिविष्टपम\
 > पूरयित्वादितेः काममशासत्सकलं जगत ॥४॥
 
-> evam indrāya bhagavān
-> pratyānīya triviṣṭapam
-> pūrayitvāditeḥ kāmam
+> evam indrāya bhagavān\
+> pratyānīya triviṣṭapam\
+> pūrayitvāditeḥ kāmam\
 > aśāsat sakalaṁ jagat
 
 *evam*—in this way; *indrāya*—unto King Indra; *bhagavān*—the Supreme Personality of Godhead; *pratyānīya*—giving back; *tri-viṣṭapam*—his supremacy in the heavenly planets; *pūrayitvā*—fulfilling; *aditeḥ*—of Aditi; *kāmam*—the desire; *aśāsat*—ruled; *sakalam*—complete; *jagat*—universe.

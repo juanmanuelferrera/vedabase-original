@@ -1,9 +1,9 @@
 ### CC Antya 11.102
 
-> চৈতন্যের ভক্তবাৎসল্য ইহাতেই জানি ।
+> চৈতন্যের ভক্তবাৎসল্য ইহাতেই জানি ।\
 > ভক্তবাঞ্ছা পূর্ণ কৈলা ন্যাসি-শিরোমণি ॥১০২॥
 
-> caitanyera bhakta-vātsalya ihātei jāni
+> caitanyera bhakta-vātsalya ihātei jāni\
 > bhakta-vāñchā pūrṇa kailā nyāsi-śiromaṇi
 
 *caitanyera*—de Śrī Caitanya Mahāprabhu; *bhakta-vātsalya*—el afecto por Sus devotos; *ihātei*—a partir de esto; *jāni*—se puede comprender; *bhakta-vāñchā*—el deseo del devoto; *pūrṇa kailā*—satisfizo plenamente; *nyāsi-śiromaṇi*—la joya cimera de los *sannyāsīs*, Śrī Caitanya Mahāprabhu.

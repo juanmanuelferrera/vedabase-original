@@ -1,18 +1,18 @@
 ### Bg 5.8-9
 
-> नैव किञ्चित्करोमीति युक्तो मन्येत तत्त्ववित् ।
-> पश्यञ्शृण्वन्स्पृशञ्जिघ्रन्नश्नन्गच्छन्स्वपञ्श्वसन् ॥८॥
-> प्रलपन्विसृजन्गृह्णन्नुन्मिषन्निमिषन्नपि ।
+> नैव किञ्चित्करोमीति युक्तो मन्येत तत्त्ववित् ।\
+> पश्यञ्शृण्वन्स्पृशञ्जिघ्रन्नश्नन्गच्छन्स्वपञ्श्वसन् ॥८॥\
+> प्रलपन्विसृजन्गृह्णन्नुन्मिषन्निमिषन्नपि ।\
 > इन्द्रियाणीन्द्रियार्थेषु वर्तन्त इति धारयन् ॥९॥
 
-> naiva kiñcit karomīti
-> yukto manyeta tattva-vit
-> paśyañ śṛṇvan spṛśañ jighrann
+> naiva kiñcit karomīti\
+> yukto manyeta tattva-vit\
+> paśyañ śṛṇvan spṛśañ jighrann\
 > aśnan gacchan svapan śvasan
 
-> pralapan visṛjan gṛhṇann
-> unmiṣan nimiṣann api
-> indriyāṇīndriyārtheṣu
+> pralapan visṛjan gṛhṇann\
+> unmiṣan nimiṣann api\
+> indriyāṇīndriyārtheṣu\
 > vartanta iti dhārayan
 
 *na*—never; *eva*—certainly; *kiñcit*—anything; *karomi*—do I do; *iti*—thus; *yuktaḥ*—engaged in the divine consciousness; *manyeta*—thinks; *tattvavit*—one who knows the truth; *paśyan*—by seeing; *śṛṇvan*—by hearing; *spṛśan*—by touching; *jighran*—by smelling; *aśnan*—by eating; *gacchan*—by going; *svapan*—by dreaming; *śvasan*—by breathing; *pralapan*—by talking; *visṛjan*—by giving up; *gṛhṇan*—by accepting; *unmiṣan*—opening; *nimiṣan*—closing; *api*—in spite of; *indriyāṇi*—the senses; *indriya-artheṣu*—in sense gratification; *vartante*—let them be so engaged; *iti*—thus; *dhārayan*—considering.

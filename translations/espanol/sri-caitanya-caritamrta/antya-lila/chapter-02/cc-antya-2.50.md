@@ -1,9 +1,9 @@
 ### CC Antya 2.50
 
-> তবে শিবানন্দ তাঁরে সকল কহিলা ।
+> তবে শিবানন্দ তাঁরে সকল কহিলা ।\
 > ‘আসিব আজ্ঞা দিলা প্রভু কেনে না আইলা ?’ ॥ ৫০ ॥
 
-> tabe śivānanda tāṅre sakala kahilā
+> tabe śivānanda tāṅre sakala kahilā\
 > 'āsiba ājñā dilā prabhu kene nā āilā?'
 
 *tabe*—entonces; *śivānanda*—Śivānanda; *tāṅre*—a Nṛsiṁhānanda; *sakala kahilā*—le contó todo; *āsiba*—vendré; *ājñā dilā*—prometió; *prabhu*—Śrī Caitanya Mahāprabhu; *kene*—por qué; *nā āilā*—no ha venido.

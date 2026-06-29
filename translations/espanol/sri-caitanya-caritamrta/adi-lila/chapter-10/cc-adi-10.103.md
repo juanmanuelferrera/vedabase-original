@@ -1,9 +1,9 @@
 ### CC Adi 10.103
 
-> তাঁহার সাধনরীতি শুনিতে চমৎকার ।
+> তাঁহার সাধনরীতি শুনিতে চমৎকার ।\
 > সেই রূপ-রঘুনাথ প্রভু যে আমার ॥১০৩॥
 
-> tāṅhāra sādhana-rīti śunite camatkāra
+> tāṅhāra sādhana-rīti śunite camatkāra\
 > sei rūpa-raghunātha prabhu ye āmāra
 
 *tāṅhāra*—su; *sādhana-rīti*—método de servicio devocional; *śunite*—al oír; *camatkāra*—maravilloso; *sei*—esos; *rūpa*—Śrī Rūpa Gosvāmī; *raghunātha*—Raghunātha dāsa Gosvāmī; *prabhu*—señor; *ye*—que; *āmāra*—mío.

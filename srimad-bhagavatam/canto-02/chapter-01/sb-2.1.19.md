@@ -1,14 +1,14 @@
 ### SB 2.1.19
 
-> तत्रैकावयवं ध्यायेदव्युच्छिन्नेन चेतसा ।
-> मनो निर्विषयं युक्त्वा ततः किञ्चन न स्मरेत् ।
+> तत्रैकावयवं ध्यायेदव्युच्छिन्नेन चेतसा ।\
+> मनो निर्विषयं युक्त्वा ततः किञ्चन न स्मरेत् ।\
 > पदं तत्परमं विष्णोर्मनो यत्र प्रसीदति ॥१९॥
 
-> tatraikāvayavaṁ dhyāyed
-> avyucchinnena cetasā
-> mano nirviṣayaṁ yuktvā
-> tataḥ kiñcana na smaret
-> padaṁ tat paramaṁ viṣṇor
+> tatraikāvayavaṁ dhyāyed\
+> avyucchinnena cetasā\
+> mano nirviṣayaṁ yuktvā\
+> tataḥ kiñcana na smaret\
+> padaṁ tat paramaṁ viṣṇor\
 > mano yatra prasīdati
 
 *tatra*—thereafter; *eka*—one by one; *avayavam*—limbs of the body; *dhyāyet*—should be concentrated upon; *avyucchinnena*—without being deviated from the complete form; *cetasā*—by the mind; *manaḥ*—mind; *nirviṣayam*—without being contaminated by sense objects; *yuktvā*—being dovetailed; *tataḥ*—after that; *kiñcana*—anything; *na*—do not; *smaret*—think of; *padam*—personality; *tat*—that; *paramam*—Supreme; *viṣṇoḥ*—of Viṣṇu; *manaḥ*—the mind; *yatra*—whereupon; *prasīdati*—becomes reconciled.

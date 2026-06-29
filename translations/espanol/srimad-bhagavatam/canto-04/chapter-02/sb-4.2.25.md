@@ -1,11 +1,11 @@
 ### SB 4.2.25
 
-> गिरः श्रुतायाः पुष्पिण्या मधुगन्धेन भूरिणा ।
+> गिरः श्रुतायाः पुष्पिण्या मधुगन्धेन भूरिणा ।\
 > मथ्ना चोन्मथितात्मानः सम्मुह्यन्तु हरद्विषः ॥२५॥
 
-> giraḥ śrutāyāḥ puṣpiṇyā
-> madhu-gandhena bhūriṇā
-> mathnā conmathitātmānaḥ
+> giraḥ śrutāyāḥ puṣpiṇyā\
+> madhu-gandhena bhūriṇā\
+> mathnā conmathitātmānaḥ\
 > sammuhyantu hara-dviṣaḥ
 
 *giraḥ*—palabras; *śrutāyāḥ*—de los *Vedas*; *puṣpiṇyāḥ*—floridas; *madhu-gandhena*—con el aroma de la miel; *bhūriṇā*—pródigas; *mathnā*—encantadoras; *ca*—y; *unmathita-ātmānaḥ*—cuyas mentes se han embrutecido; *sammuhyantu*—que permanezcan apegados; *hara-dviṣaḥ*—envidiosos del Señor Śiva.

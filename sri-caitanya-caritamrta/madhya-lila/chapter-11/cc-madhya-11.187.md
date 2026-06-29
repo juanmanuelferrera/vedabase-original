@@ -1,9 +1,9 @@
 ### CC Madhya 11.187
 
-> দুইজনে প্রেমাবেশে করেন ক্রন্দনে ।
+> দুইজনে প্রেমাবেশে করেন ক্রন্দনে ।\
 > প্রভু-গুণে ভৃত্য বিকল, প্রভু ভৃত্য-গুণে ॥১৮৭॥
 
-> dui-jane premāveśe karena krandane
+> dui-jane premāveśe karena krandane\
 > prabhu-guṇe bhṛtya vikala, prabhu bhṛtya-guṇe
 
 *dui-jane*—both of them; *prema-āveśe*—in loving ecstasy; *karena krandane*—were crying; *prabhu-guṇe*—by the quality of the Lord; *bhṛtya*—servant; *vikala*—transformed; *prabhu*—the Lord; *bhṛtya-guṇe*—by the quality of the servant.

@@ -2,7 +2,7 @@ Preface
 
 The Kṛṣṇa consciousness movement is conducted under the supervision of Śrīla Rūpa Gosvāmī. The Gauḍīya Vaiṣṇavas, or Bengali Vaiṣṇavas, are mostly followers of Śrī Caitanya Mahāprabhu, of whom the six Gosvāmīs of Vṛndāvana are direct disciples. Therefore Śrīla Narottama dāsa Ṭhākura has sung:
 
-> rūpa-raghunātha-pade ha-ibe ākuti
+> rūpa-raghunātha-pade ha-ibe ākuti\
 > kabe hāma bujhaba se yugala-pīriti
 
 "When I am eager to understand the literature given by the Gosvāmīs, then I shall be able to understand the transcendental loving affairs of Rādhā and Kṛṣṇa." Śrī Caitanya Mahāprabhu appeared in order to bestow upon human society the benediction of the science of Kṛṣṇa. The most exalted of all the activities of Lord Kṛṣṇa are His pastimes of conjugal love with the *gopīs.* Śrī Caitanya Mahāprabhu appeared in the mood of Śrīmatī Rādhārāṇī, the best of the *gopīs.* Therefore, to understand the mission of Lord Śrī Caitanya Mahāprabhu and follow in His footsteps, one must very seriously follow in the footsteps of the six Gosvāmīs—Śrī Rūpa, Sanātana, Bhaṭṭa Raghunātha, Śrī Jīva, Gopāla Bhaṭṭa and Dāsa Raghunātha.

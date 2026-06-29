@@ -1,11 +1,11 @@
 ### SB 2.10.24
 
-> हस्तौ रुरुहतुस्तस्य नानाकर्मचिकीर्षया ।
+> हस्तौ रुरुहतुस्तस्य नानाकर्मचिकीर्षया ।\
 > तयोस्तु बलवानिन्द्र आदानमुभयाश्रयम् ॥२४॥
 
-> hastau ruruhatus tasya
-> nānā-karma-cikīrṣayā
-> tayos tu balavān indra
+> hastau ruruhatus tasya\
+> nānā-karma-cikīrṣayā\
+> tayos tu balavān indra\
 > ādānam ubhayāśrayam
 
 *hastau*—las manos; *ruruhatuḥ*—se manifestaron; *tasya*—Sus; *nānā*—diversos; *karma*—trabajo; *cikīrṣayā*—estando así de deseoso; *tayoḥ*—de ellas; *tu*—sin embargo; *balavān*—para dar fuerza; *indraḥ*—el semidiós del cielo; *ādānam*—actividades de la mano; *ubhaya-āśrayam*—dependientes tanto del semidiós como de la mano.

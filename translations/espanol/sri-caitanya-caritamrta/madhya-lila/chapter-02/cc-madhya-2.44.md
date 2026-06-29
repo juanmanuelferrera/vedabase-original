@@ -1,13 +1,13 @@
 ### CC Madhya 2.44
 
-> এত কহি’ শচীসুত, শ্লোক পড়ে অদ্ভুত,
-> শুনে দুঁহে এক-মন হঞা ।
-> আপন-হৃদয়-কাজ, কহিতে বাসিয়ে লাজ,
+> এত কহি’ শচীসুত, শ্লোক পড়ে অদ্ভুত,\
+> শুনে দুঁহে এক-মন হঞা ।\
+> আপন-হৃদয়-কাজ, কহিতে বাসিয়ে লাজ,\
 > তবু কহি লাজবীজ খাঞা ॥৪৪॥
 
-> eta kahi' śacī-suta, śloka paḍe adbhuta,
-> śune duṅhe eka-mana hañā
-> āpana-hṛdaya-kāja, kahite vāsiye lāja,
+> eta kahi' śacī-suta, śloka paḍe adbhuta,\
+> śune duṅhe eka-mana hañā\
+> āpana-hṛdaya-kāja, kahite vāsiye lāja,\
 > tabu kahi lāja-bīja khāñā
 
 *eta kahi'*—diciendo así; *śacī-suta*—el hijo de Śrīmatī Śacīmātā; *śloka*—verso; *paḍe*—recita; *adbhuta*—maravilloso; *śune*—escuchan; *duṅhe*—las dos personas; *eka-mana hañā*—con atención absorta; *āpana-hṛdaya-kāja*—las actividades del propio corazón; *kahite*—al hablar; *vāsiye*—siento; *lāja*—vergüenza; *tabu*—aun así; *kahi*—hablo; *lāja-bīja*—la semilla del pudor; *khāñā*—consumiendo.

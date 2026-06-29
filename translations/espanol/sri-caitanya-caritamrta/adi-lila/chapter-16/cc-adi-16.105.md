@@ -1,9 +1,9 @@
 ### CC Adi 16.105
 
-> এইমতে নিজ ঘরে গেলা দুই জন ।
+> এইমতে নিজ ঘরে গেলা দুই জন ।\
 > কবি রাত্রে কৈল সরস্বতী-আরাধন ॥১০৫॥
 
-> ei-mate nija ghare gelā dui jana
+> ei-mate nija ghare gelā dui jana\
 > kavi rātre kaila sarasvatī-ārādhana
 
 *ei-mate*—de esta manera; *nija ghare*—a sus respectivos hogares; *gelā*—regresaron; *dui jana*—ambos; *kavi*—el poeta; *rātre*—por la noche; *kaila*—realizó; *sarasvatī*—de la madre Sarasvatī; *ārādhana*—adoración.

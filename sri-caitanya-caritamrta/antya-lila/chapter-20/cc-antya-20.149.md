@@ -1,9 +1,9 @@
 ### CC Antya 20.149
 
-> অনিপুণা বাণী আপনে নাচিতে না জানে ।
+> অনিপুণা বাণী আপনে নাচিতে না জানে ।\
 > যত নাচাইলা, নাচি’ করিলা বিশ্রামে ॥১৪৯॥
 
-> anipuṇā vāṇī āpane nācite nā jāne
+> anipuṇā vāṇī āpane nācite nā jāne\
 > yata nācāilā, nāci' karilā viśrāme
 
 *anipuṇā vāṇī*—inexperienced words; *āpane*—by themselves; *nācite*—to dance; *nā*—not; *jāne*—know how; *yata*—whatever; *nācāilā*—caused to dance; *nāci'*—after dancing; *karilā viśrāme*—took rest.

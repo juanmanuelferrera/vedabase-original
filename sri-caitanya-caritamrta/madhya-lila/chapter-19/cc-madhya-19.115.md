@@ -1,9 +1,9 @@
 ### CC Madhya 19.115
 
-> কৃষ্ণতত্ত্ব-ভক্তিতত্ত্ব-রসতত্ত্ব-প্রান্ত ।
+> কৃষ্ণতত্ত্ব-ভক্তিতত্ত্ব-রসতত্ত্ব-প্রান্ত ।\
 > সব শিখাইল প্রভু ভাগবত-সিদ্ধান্ত ॥১১৫॥
 
-> kṛṣṇatattva-bhaktitattva-rasatattva-prānta
+> kṛṣṇatattva-bhaktitattva-rasatattva-prānta\
 > saba śikhāila prabhu bhāgavata-siddhānta
 
 *kṛṣṇa-tattva*—of the truth about Lord Kṛṣṇa; *bhakti-tattva*—of the truth about devotional service; *rasa-tattva*—of the truth about transcendental mellows; *prānta*—the ultimate limit; *saba*—all; *śikhāila*—taught; *prabhu*—Śrī Caitanya Mahāprabhu; *bhāgavata-siddhānta*—the conclusions of *Śrīmad-Bhāgavatam.*

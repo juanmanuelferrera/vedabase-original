@@ -1,11 +1,11 @@
 ### SB 8.22.17
 
-> यया हि विद्वानपि मुह्यते यतस्तत्को विचष्टे गतिमात्मनो यथा
+> यया हि विद्वानपि मुह्यते यतस्तत्को विचष्टे गतिमात्मनो यथा\
 > तस्मै नमस्ते जगदीश्वराय वै नारायणायाखिललोकसाक्षिणे ॥१७॥
 
-> yayā hi vidvān api muhyate yatas
-> tat ko vicaṣṭe gatim ātmano yathā
-> tasmai namas te jagad-īśvarāya vai
+> yayā hi vidvān api muhyate yatas\
+> tat ko vicaṣṭe gatim ātmano yathā\
+> tasmai namas te jagad-īśvarāya vai\
 > nārāyaṇāyākhila-loka-sākṣiṇe
 
 *yayā*—la opulencia material por la cual; *hi*—en verdad; *vidvān api*—incluso una persona afortunada que posee una cultura avanzada; *muhyate*—queda confundida; *yataḥ*—con dominio de sí misma; *tat*—eso; *kaḥ*—quién; *vicaṣṭe*—puede buscar; *gatim*—el progreso; *ātmanaḥ*—del ser; *yathā*—adecuadamente; *tasmai*—a Él; *namaḥ*—ofrezco respetuosas reverencias; *te*—a Ti; *jagat-īśvarāya*—al Señor del universo; *vai*—en verdad; *nārāyaṇāya*—a Tu Señoría, Nārāyaṇa; *akhila-loka-sākṣiṇe*—que eres el testigo de toda creación.

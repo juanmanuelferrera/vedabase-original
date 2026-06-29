@@ -1,11 +1,11 @@
 ### SB 4.1.59
 
-> ताविमौ वै भगवतो हरेरंशाविहागतौ ।
+> ताविमौ वै भगवतो हरेरंशाविहागतौ ।\
 > भारव्ययाय च भुवः कृष्णौ यदुकुरूद्वहौ ॥५९॥
 
-> tāv imau vai bhagavato
-> harer aṁśāv ihāgatau
-> bhāra-vyayāya ca bhuvaḥ
+> tāv imau vai bhagavato\
+> harer aṁśāv ihāgatau\
+> bhāra-vyayāya ca bhuvaḥ\
 > kṛṣṇau yadu-kurūdvahau
 
 *tau*—both; *imau*—these; *vai*—certainly; *bhagavataḥ*—of the Supreme Personality of Godhead; *hareḥ*—of Hari; *aṁśau*—part and parcel expansion; *iha*—here (in this universe); *āgatau*—has appeared; *bhāra-vyayāya*—for mitigation of the burden; *ca*—and; *bhuvaḥ*—of the world; *kṛṣṇau*—the two Kṛṣṇas (Kṛṣṇa and Arjuna); *yadu-kuru-udvahau*—who are the best of the Yadu and Kuru dynasties respectively.

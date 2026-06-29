@@ -1,11 +1,11 @@
 ### SB 4.25.36
 
-> दिष्ट्यागतोऽसि भद्रं ते ग्राम्यान्कामानभीप्ससे ।
+> दिष्ट्यागतोऽसि भद्रं ते ग्राम्यान्कामानभीप्ससे ।\
 > उद्वहिष्यामि तांस्तेऽहं स्वबन्धुभिररिन्दम ॥३६॥
 
-> diṣṭyāgato 'si bhadraṁ te
-> grāmyān kāmān abhīpsase
-> udvahiṣyāmi tāṁs te 'haṁ
+> diṣṭyāgato 'si bhadraṁ te\
+> grāmyān kāmān abhīpsase\
+> udvahiṣyāmi tāṁs te 'haṁ\
 > sva-bandhubhir arindama
 
 *diṣṭyā*—fortunately for me; *āgataḥ asi*—you have come here; *bhadram*—all auspiciousness; *te*—unto you; *grāmyān*—sensual; *kāmān*—desired enjoyable objects; *abhīpsase*—you want to enjoy; *udvahiṣyāmi*—I shall supply; *tān*—all of them; *te*—unto you; *aham*—I; *sva-bandhubhiḥ*—with all my friends; *arim-dama*—O killer of the enemy.

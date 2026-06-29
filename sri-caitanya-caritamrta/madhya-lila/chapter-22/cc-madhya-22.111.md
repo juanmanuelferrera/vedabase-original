@@ -1,11 +1,11 @@
 ### CC Madhya 22.111
 
-> মুখবাহূরুপাদেভ্যঃ পুরুষস্যাশ্রমৈঃ সহ ।
+> মুখবাহূরুপাদেভ্যঃ পুরুষস্যাশ্রমৈঃ সহ ।\
 > চত্বারো জজ্ঞিরে বর্ণা গুণৈর্বিপ্রাদয়ঃ পৃথক্ ॥১১১॥
 
-> mukha-bāhūru-pādebhyaḥ
-> puruṣasyāśramaiḥ saha
-> catvāro jajñire varṇā
+> mukha-bāhūru-pādebhyaḥ\
+> puruṣasyāśramaiḥ saha\
+> catvāro jajñire varṇā\
 > guṇair viprādayaḥ pṛthak
 
 *mukha*—the mouth; *bāhu*—the arms; *ūru*—the waist; *pādebhyaḥ*—from the legs; *puruṣasya*—of the supreme person; *āśramaiḥ*—the different spiritual orders; *saha*—with; *catvāraḥ*—the four; *jajñire*—appeared; *varṇāḥ*—social orders; *guṇaiḥ*—with particular qualifications; *vipra-ādayaḥ*—*brāhmaṇas,* etc.; *pṛthak*—separately.

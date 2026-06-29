@@ -1,9 +1,9 @@
 ### CC Antya 1.33
 
-> ঐছে দিব্যলীলা করে শচীর নন্দন ।
+> ঐছে দিব্যলীলা করে শচীর নন্দন ।\
 > কুক্কুরকে কৃষ্ণ কহাঞা করিলা মোচন ॥৩৩॥
 
-> aiche divya-līlā kare śacīra nandana
+> aiche divya-līlā kare śacīra nandana\
 > kukkurake kṛṣṇa kahāñā karilā mocana
 
 *aiche*—de esa manera; *divya-līlā*—actividades trascendentales; *kare*—realiza; *śacīra nandana*—el hijo de madre Śacī; *kukkurake*—incluso a un perro; *kṛṣṇa kahāñā*—induciéndolo a cantar el santo nombre «Kṛṣṇa»; *karilā mocana*—liberó.

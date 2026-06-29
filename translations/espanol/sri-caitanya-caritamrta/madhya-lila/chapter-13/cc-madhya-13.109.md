@@ -1,9 +1,9 @@
 ### CC Madhya 13.109
 
-> কভু নেত্রে নাসায় জল, মুখে পড়ে ফেন ।
+> কভু নেত্রে নাসায় জল, মুখে পড়ে ফেন ।\
 > অমৃতের ধারা চন্দ্রবিম্বে বহে যেন ॥১০৯॥
 
-> kabhu netre nāsāya jala, mukhe paḍe phena
+> kabhu netre nāsāya jala, mukhe paḍe phena\
 > amṛtera dhārā candra-bimbe vahe yena
 
 *kabhu*—a veces; *netre*—de los ojos; *nāsāya*—de las fosas nasales; *jala*—agua; *mukhe*—de la boca; *paḍe*—caía; *phena*—espuma; *amṛtera*—de néctar; *dhārā*—torrentes; *candra-bimbe*—de la luna; *vahe*—fluyen; *yena*—como si.

@@ -1,9 +1,9 @@
 ### CC Antya 2.27
 
-> আবেশে ব্রহ্মচারী কহে, — ‘শিবানন্দ আছে দূরে ।
+> আবেশে ব্রহ্মচারী কহে, — ‘শিবানন্দ আছে দূরে ।\
 > জন দুই চারি যাহ, বোলাহ তাহারে ।।’ ॥ ২৭ ॥
 
-> āveśe brahmacārī kahe,—'śivānanda āche dūre
+> āveśe brahmacārī kahe,—'śivānanda āche dūre\
 > jana dui cāri yāha, bolāha tāhāre'
 
 *āveśe*—in that state of possession; *brahmacārī kahe*—Nakula Brahmacārī said; *śivānanda*—Śivānanda Sena; *āche dūre*—is staying some distance off; *jana*—persons; *dui*—two; *cāri*—four; *yāha*—go; *bolāha tāhāre*—call him.

@@ -1,11 +1,11 @@
 ### SB 7.2.14
 
-> पुरग्रामव्रजोद्यान क्षेत्रारामाश्रमाकरान
+> पुरग्रामव्रजोद्यान क्षेत्रारामाश्रमाकरान\
 > खेटखर्वटघोषांश्च ददहुः पत्तनानि च ॥१४॥
 
-> pura-grāma-vrajodyāna-
-> kṣetrārāmāśramākarān
-> kheṭa-kharvaṭa-ghoṣāṁś ca
+> pura-grāma-vrajodyāna-\
+> kṣetrārāmāśramākarān\
+> kheṭa-kharvaṭa-ghoṣāṁś ca\
 > dadahuḥ pattanāni ca
 
 *pura*—cities and towns; *grāma*—villages; *vraja*—pasturing grounds; *udyāna*—gardens; *kṣetra*—agricultural fields; *ārāma*—natural forests; *āśrama*—hermitages of saintly persons; *ākarān*—and mines (that produce valuable metals to maintain brahminical culture); *kheṭa*—farm villages; *kharvaṭa*—mountain villages; *ghoṣān*—the little villages of cowherds; *ca*—and; *dadahuḥ*—they burned; *pattanāni*—the capitals; *ca*—also.

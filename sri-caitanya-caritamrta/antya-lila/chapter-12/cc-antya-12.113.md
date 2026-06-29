@@ -1,9 +1,9 @@
 ### CC Antya 12.113
 
-> এই সুখ লাগি’ আমি করিলুঁ সন্ন্যাস !
+> এই সুখ লাগি’ আমি করিলুঁ সন্ন্যাস !\
 > আমার ‘সর্বনাশ’ — তোমা-সবার ‘পরিহাস’ ॥১১৩॥
 
-> ei sukha lāgi' āmi kariluṅ sannyāsa!
+> ei sukha lāgi' āmi kariluṅ sannyāsa!\
 > āmāra 'sarva-nāśa'—tomā-sabāra 'parihāsa'
 
 *ei*—this; *sukha*—happiness; *lāgi'*—for; *āmi*—I; *kariluṅ sannyāsa*—have taken to the renounced order; *āmāra sarva-nāśa*—My ruination; *tomā-sabāra*—of all of you; *parihāsa*—joking.

@@ -1,9 +1,9 @@
 ### CC Adi 4.71
 
-> কৃষ্ণপ্রেম-ভাবিত যাঁর চিত্তেন্দ্রিয়-কায় ।
+> কৃষ্ণপ্রেম-ভাবিত যাঁর চিত্তেন্দ্রিয়-কায় ।\
 > কৃষ্ণ-নিজশক্তি রাধা ক্রীড়ার সহায় ॥৭১॥
 
-> kṛṣṇa-prema-bhāvita yāṅra cittendriya-kāya
+> kṛṣṇa-prema-bhāvita yāṅra cittendriya-kāya\
 > kṛṣṇa-nija-śakti rādhā krīḍāra sahāya
 
 *kṛṣṇa-prema*—amor por el Señor Kṛṣṇa; *bhāvita*—impregnada de; *yāṅra*—de quien; *citta*—mente; *indriya*—sentidos; *kāya*—cuerpo; *kṛṣṇa*—del Señor Kṛṣṇa; *nija-śakti*—Su propia energía; *rādhā*—Śrīmatī Rādhārāṇī; *krīḍāra*—de los pasatiempos; *sahāya*—compañera.

@@ -1,11 +1,11 @@
 ### SB 2.2.28
 
-> ततो विशेषं प्रतिपद्य निर्भयस्तेनात्मनापोऽनलमूर्तिरत्वरन् ।
+> ततो विशेषं प्रतिपद्य निर्भयस्तेनात्मनापोऽनलमूर्तिरत्वरन् ।\
 > ज्योतिर्मयो वायुमुपेत्य काले वाय्वात्मना खं बृहदात्मलिङ्गम् ॥२८॥
 
-> tato viśeṣaṁ pratipadya nirbhayas
-> tenātmanāpo 'nala-mūrtir atvaran
-> jyotirmayo vāyum upetya kāle
+> tato viśeṣaṁ pratipadya nirbhayas\
+> tenātmanāpo 'nala-mūrtir atvaran\
+> jyotirmayo vāyum upetya kāle\
 > vāyv-ātmanā khaṁ bṛhad ātma-liṅgam
 
 *tataḥ*—después; *viśeṣam*—particularmente; *pratipadya*—obteniendo; *nirbhayaḥ*—sin ninguna duda; *tena*—mediante eso; *ātmanā*—el ser puro; *āpaḥ*—agua; *anala*—fuego; *mūrtiḥ*—formas; *atvaran*—superando; *jyotiḥ-mayaḥ*—refulgente; *vāyum*—atmósfera; *upetya*—habiendo llegado ahí; *kāle*—a su debido tiempo; *vāyu*—aire; *ātmanā*—por el ser; *kham*—etéreo; *bṛhat*—gran; *ātma-liṅgam*—la verdadera forma del ser.

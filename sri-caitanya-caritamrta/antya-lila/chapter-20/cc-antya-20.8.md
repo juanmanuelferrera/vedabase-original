@@ -1,9 +1,9 @@
 ### CC Antya 20.8
 
-> হর্ষে প্রভু কহেন, — “শুন স্বরূপ-রামরায় ।
+> হর্ষে প্রভু কহেন, — “শুন স্বরূপ-রামরায় ।\
 > নামসঙ্কীর্তন — কলৌ পরম উপায় ॥৮॥
 
-> harṣe prabhu kahena,—"śuna svarūpa-rāma-rāya
+> harṣe prabhu kahena,—"śuna svarūpa-rāma-rāya\
 > nāma-saṅkīrtana—kalau parama upāya
 
 *harṣe*—in jubilation; *prabhu*—Śrī Caitanya Mahāprabhu; *kahena*—says; *śuna*—please hear; *svarūpa-rāma-rāya*—My dear Svarūpa Dāmodara Gosvāmī and Rāmānanda Rāya; *nāma-saṅkīrtana*—chanting of the holy name of the Lord; *kalau*—in the age of Kali; *parama upāya*—the most feasible means for deliverance.

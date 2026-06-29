@@ -1,11 +1,11 @@
 ### SB 3.33.8
 
-> तं त्वामहं ब्रह्म परं पुमांसं प्रत्यक्स्रोतस्यात्मनि संविभाव्यम् ।
+> तं त्वामहं ब्रह्म परं पुमांसं प्रत्यक्स्रोतस्यात्मनि संविभाव्यम् ।\
 > स्वतेजसा ध्वस्तगुणप्रवाहं वन्दे विष्णुं कपिलं वेदगर्भम् ॥८॥
 
-> taṁ tvām ahaṁ brahma paraṁ pumāṁsaṁ
-> pratyak-srotasy ātmani saṁvibhāvyam
-> sva-tejasā dhvasta-guṇa-pravāhaṁ
+> taṁ tvām ahaṁ brahma paraṁ pumāṁsaṁ\
+> pratyak-srotasy ātmani saṁvibhāvyam\
+> sva-tejasā dhvasta-guṇa-pravāhaṁ\
 > vande viṣṇuṁ kapilaṁ veda-garbham
 
 *tam*—unto Him; *tvām*—You; *aham*—I; *brahma*—Brahman; *param*—supreme; *pumāṁsam*—the Supreme Personality of Godhead; *pratyak-srotasi*—turned inwards; *ātmani*—in the mind; *saṁvibhāvyam*—meditated upon, perceived; *sva-tejasā*—by Your own potency; *dhvasta*—vanished; *guṇa-pravāham*—the influence of the modes of material nature; *vande*—I offer obeisances; *viṣṇum*—unto Lord Viṣṇu; *kapilam*—named Kapila; *veda-garbham*—the repository of the *Vedas.*

@@ -1,11 +1,11 @@
 ### SB 3.8.21
 
-> ततो निवृत्तोऽप्रतिलब्धकामः स्वधिष्ण्यमासाद्य पुनः स देवः ।
+> ततो निवृत्तोऽप्रतिलब्धकामः स्वधिष्ण्यमासाद्य पुनः स देवः ।\
 > शनैर्जितश्वासनिवृत्तचित्तो न्यषीददारूढसमाधियोगः ॥२१॥
 
-> tato nivṛtto 'pratilabdha-kāmaḥ
-> sva-dhiṣṇyam āsādya punaḥ sa devaḥ
-> śanair jita-śvāsa-nivṛtta-citto
+> tato nivṛtto 'pratilabdha-kāmaḥ\
+> sva-dhiṣṇyam āsādya punaḥ sa devaḥ\
+> śanair jita-śvāsa-nivṛtta-citto\
 > nyaṣīdad ārūḍha-samādhi-yogaḥ
 
 *tataḥ*—thereafter; *nivṛttaḥ*—retired from that endeavor; *apratilabdha-kāmaḥ*—without achievement of the desired destination; *sva-dhiṣṇyam*—own seat; *āsādya*—reaching; *punaḥ*—again; *saḥ*—he; *devaḥ*—the demigod; *śanaiḥ*—without delay; *jita-śvāsa*—controlling the breathing; *nivṛtta*—retired; *cittaḥ*—intelligence; *nyaṣīdat*—sat down; *ārūḍha*—in confidence; *samādhi-yogaḥ*—in meditation on the Lord.

@@ -1,11 +1,11 @@
 ### SB 9.6.55
 
-> ताः स्वपत्युर्महाराज निरीक्ष्याध्यात्मिकीं गतिम
+> ताः स्वपत्युर्महाराज निरीक्ष्याध्यात्मिकीं गतिम\
 > अन्वीयुस्तत्प्रभावेण अग्निं शान्तमिवार्चिषः ॥५५॥
 
-> tāḥ sva-patyur mahārāja
-> nirīkṣyādhyātmikīṁ gatim
-> anvīyus tat-prabhāveṇa
+> tāḥ sva-patyur mahārāja\
+> nirīkṣyādhyātmikīṁ gatim\
+> anvīyus tat-prabhāveṇa\
 > agniṁ śāntam ivārciṣaḥ
 
 *tāḥ*—all the wives of Saubhari; *sva-patyuḥ*—with their own husband; *mahārāja*—O King Parīkṣit; *nirīkṣya*—observing; *adhyātmikīm*—spiritual; *gatim*—progress; *anvīyuḥ*—followed; *tat-prabhāveṇa*—by the influence of their husband (although they were unfit, by the influence of their husband they also could go to the spiritual world); *agnim*—the fire; *śāntam*—completely merged; *iva*—like; *arciṣaḥ*—the flames.

@@ -1,11 +1,11 @@
 ### SB 4.12.33
 
-> इति व्यवसितं तस्य व्यवसाय सुरोत्तमौ ।
+> इति व्यवसितं तस्य व्यवसाय सुरोत्तमौ ।\
 > दर्शयामासतुर्देवीं पुरो यानेन गच्छतीम् ॥३३॥
 
-> iti vyavasitaṁ tasya
-> vyavasāya surottamau
-> darśayām āsatur devīṁ
+> iti vyavasitaṁ tasya\
+> vyavasāya surottamau\
+> darśayām āsatur devīṁ\
 > puro yānena gacchatīm
 
 *iti*—thus; *vyavasitam*—contemplation; *tasya*—of Dhruva; *vyavasāya*—understanding; *sura-uttamau*—the two chief associates; *darśayām āsatuḥ*—showed (to him); *devīm*—exalted Sunīti; *puraḥ*—before; *yānena*—by airplane; *gacchatīm*—going forward.

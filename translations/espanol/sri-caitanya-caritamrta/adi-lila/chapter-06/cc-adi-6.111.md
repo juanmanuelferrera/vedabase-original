@@ -1,9 +1,9 @@
 ### CC Adi 6.111
 
-> অবতারগণের ভক্তভাবে অধিকার ।
+> অবতারগণের ভক্তভাবে অধিকার ।\
 > ভক্তভাব হৈতে অধিক সুখ নাহি আর ॥১১১॥
 
-> avatāra-gaṇera bhakta-bhāve adhikāra
+> avatāra-gaṇera bhakta-bhāve adhikāra\
 > bhakta-bhāva haite adhika sukha nāhi āra
 
 *avatāra-gaṇera*—de todas las encarnaciones; *bhakta-bhāve*—en la emoción de devoto; *adhikāra*—está el derecho; *bhakta-bhāva*—la emoción de ser devoto; *haite*—que; *adhika*—mayor; *sukha*—felicidad; *nāhi*—no hay; *āra*—otra.

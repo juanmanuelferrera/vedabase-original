@@ -1,11 +1,11 @@
 ### SB 3.2.27
 
-> परीतो वत्सपैर्वत्सांश्चारयन्व्यहरद्विभुः ।
+> परीतो वत्सपैर्वत्सांश्चारयन्व्यहरद्विभुः ।\
 > यमुनोपवने कूजद् द्विजसङ्कुलिताङ्घ्रिपे ॥२७॥
 
-> parīto vatsapair vatsāṁś
-> cārayan vyaharad vibhuḥ
-> yamunopavane kūjad-
+> parīto vatsapair vatsāṁś\
+> cārayan vyaharad vibhuḥ\
+> yamunopavane kūjad-\
 > dvija-saṅkulitāṅghripe
 
 *parītaḥ*—rodeado por; *vatsapaiḥ*—pastorcillos de vacas; *vatsān*—terneros; *cārayan*—cuidando, vigilando; *vyaharat*—disfrutaba viajando; *vibhuḥ*—el Todopoderoso; *yamunā*—el río Yamunā; *upavane*—jardines en la orilla; *kūjat*—vibrado por la voz; *dvija*—los pájaros nacidos por segunda vez; *saṅkulita*—densamente situados; *aṅghripe*—en los árboles.

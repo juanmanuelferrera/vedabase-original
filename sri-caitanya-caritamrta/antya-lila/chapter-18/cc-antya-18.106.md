@@ -1,13 +1,13 @@
 ### CC Antya 18.106
 
-> গঙ্গাজল, অমৃতকেলি, পীযূষগ্রন্থি, কর্পূরকেলি,
-> সরপূরী, অমৃতি, পদ্মচিনি ।
-> খণ্ডক্ষীরিসার-বৃক্ষ, ঘরে করি’ নানা ভক্ষ্য,
+> গঙ্গাজল, অমৃতকেলি, পীযূষগ্রন্থি, কর্পূরকেলি,\
+> সরপূরী, অমৃতি, পদ্মচিনি ।\
+> খণ্ডক্ষীরিসার-বৃক্ষ, ঘরে করি’ নানা ভক্ষ্য,\
 > রাধা যাহা কৃষ্ণ লাগি’ আনি ॥১০৬॥
 
-> gaṅgājala, amṛtakeli, pīyūṣagranthi, karpūrakeli,
-> sarapūrī, amṛti, padmacini
-> khaṇḍa-kṣīrisāra-vṛkṣa, ghare kari' nānā bhakṣya,
+> gaṅgājala, amṛtakeli, pīyūṣagranthi, karpūrakeli,\
+> sarapūrī, amṛti, padmacini\
+> khaṇḍa-kṣīrisāra-vṛkṣa, ghare kari' nānā bhakṣya,\
 > rādhā yāhā kṛṣṇa lāgi' āni
 
 *gaṅgā-jala*—the sweetmeat *gaṅgājala*; *amṛta-keli*—a sweetmeat made of milk; *pīyūṣa-granthi*—*pīyūṣagranthi*; *karpūra-keli*—*karpūrakeli*; *sara-pūrī*—a sweet made from milk; *amṛti*—a sweet prepared from rice flour; *padma-cini*—a sweet preparation made from lotus flowers; *khaṇḍa-kṣīri-sāra-vṛkṣa*—sugar sweets made in the shape of trees; *ghare*—at home; *kari'*—making; *nānā bhakṣya*—varieties of eatables; *rādhā*—Śrīmatī Rādhārāṇī; *yāhā*—which; *kṛṣṇa lāgi'*—for Kṛṣṇa; *āni*—brought.

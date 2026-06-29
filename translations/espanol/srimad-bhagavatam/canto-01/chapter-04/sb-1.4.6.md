@@ -1,11 +1,11 @@
 ### SB 1.4.6
 
-> कथमालक्षितः पौरैः सम्प्राप्तः कुरुजाङ्गलान् ।
+> कथमालक्षितः पौरैः सम्प्राप्तः कुरुजाङ्गलान् ।\
 > उन्मत्तमूकजडवद्विचरन्गजसाह्वये ॥६॥
 
-> katham ālakṣitaḥ pauraiḥ
-> samprāptaḥ kuru-jāṅgalān
-> unmatta-mūka-jaḍavad
+> katham ālakṣitaḥ pauraiḥ\
+> samprāptaḥ kuru-jāṅgalān\
+> unmatta-mūka-jaḍavad\
 > vicaran gaja-sāhvaye
 
 *katham*—cómo; *ālakṣitaḥ*—reconocido; *pauraiḥ*—por los ciudadanos; *samprāptaḥ*—llegando; *kuru-jāṅgalān*—las provincias Kuru-jāṅgala; *unmatta*—loco; *mūka*—mudo; *jaḍavat*—retardado; *vicaran*—errando; *gaja-sāhvaye*—Hastināpura.

@@ -1,11 +1,11 @@
 ### SB 3.10.2
 
-> ये च मे भगवन्पृष्टास्त्वय्यर्था बहुवित्तम ।
+> ये च मे भगवन्पृष्टास्त्वय्यर्था बहुवित्तम ।\
 > तान्वदस्वानुपूर्व्येण छिन्धि नः सर्वसंशयान् ॥२॥
 
-> ye ca me bhagavan pṛṣṭās
-> tvayy arthā bahuvittama
-> tān vadasvānupūrvyeṇa
+> ye ca me bhagavan pṛṣṭās\
+> tvayy arthā bahuvittama\
+> tān vadasvānupūrvyeṇa\
 > chindhi naḥ sarva-saṁśayān
 
 *ye*—todos esos; *ca*—también; *me*—por mí; *bhagavan*—¡oh, tú, el poderoso!; *pṛṣṭāḥ*—preguntado; *tvayi*—a ti; *arthāḥ*—propósito; *bahu-vit-tama*—¡oh, tú, el muy erudito!; *tān*—todos ellos; *vadasva*—ten la bondad de describir; *anupūrvyeṇa*—de principio a fin; *chindhi*—ten la bondad de erradicar; *naḥ*—mis; *sarva*—todas; *saṁśayān*—dudas.

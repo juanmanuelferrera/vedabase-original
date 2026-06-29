@@ -1,9 +1,9 @@
 ### CC Madhya 17.96
 
-> ষড়্ দর্শন-ব্যাখ্যা বিনা কথা নাহি এথা ।
+> ষড়্ দর্শন-ব্যাখ্যা বিনা কথা নাহি এথা ।\
 > মিশ্র কৃপা করি’ মোরে শুনান কৃষ্ণকথা ॥৯৬॥
 
-> ṣaḍ-darśana-vyākhyā vinā kathā nāhi ethā
+> ṣaḍ-darśana-vyākhyā vinā kathā nāhi ethā\
 > miśra kṛpā kari' more śunāna kṛṣṇa-kathā
 
 *ṣaṭ-darśana*—of six kinds of philosophical theses; *vyākhyā*—explanation; *vinā*—except; *kathā*—talk; *nāhi*—not; *ethā*—here; *miśra*—Tapana Miśra; *kṛpā kari'*—being very merciful; *more*—unto me; *śunāna*—explains; *kṛṣṇa-kathā*—topics of Lord Śrī Kṛṣṇa.

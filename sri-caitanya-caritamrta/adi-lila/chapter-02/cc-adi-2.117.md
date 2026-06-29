@@ -1,9 +1,9 @@
 ### CC Adi 2.117
 
-> সিদ্ধান্ত বলিয়া চিত্তে না কর অলস ।
+> সিদ্ধান্ত বলিয়া চিত্তে না কর অলস ।\
 > ইহা হইতে কৃষ্ণে লাগে সুদৃঢ় মানস ॥১১৭॥
 
-> siddhānta baliyā citte nā kara alasa
+> siddhānta baliyā citte nā kara alasa\
 > ihā ha-ite kṛṣṇe lāge sudṛḍha mānasa
 
 *siddhānta*—conclusion; *baliyā*—considering; *citte*—in the mind; *nā kara*—do not be; *alasa*—lazy; *ihā*—this; *ha-ite*—from; *kṛṣṇe*—in Lord Kṛṣṇa; *lāge*—becomes fixed; *su-dṛḍha*—very firm; *mānasa*—the mind.

@@ -1,11 +1,11 @@
 ### SB 6.2.16
 
-> गुरूणां च लघूनां च गुरूणि च लघूनि च
+> गुरूणां च लघूनां च गुरूणि च लघूनि च\
 > प्रायश्चित्तानि पापानां ज्ञआत्वोक्तानि महर्षिभिः ॥१६॥
 
-> gurūṇāṁ ca laghūnāṁ ca
-> gurūṇi ca laghūni ca
-> prāyaścittāni pāpānāṁ
+> gurūṇāṁ ca laghūnāṁ ca\
+> gurūṇi ca laghūni ca\
+> prāyaścittāni pāpānāṁ\
 > jñātvoktāni maharṣibhiḥ
 
 *gurūṇām*—heavy; *ca*—and; *laghūnām*—light; *ca*—also; *gurūṇi*—heavy; *ca*—and; *laghūni*—light; *ca*—also; *prāyaścittāni*—the processes of atonement; *pāpānām*—of sinful activities; *jñātvā*—knowing perfectly well; *uktāni*—have been prescribed; *mahā-ṛṣibhiḥ*—by great sages.

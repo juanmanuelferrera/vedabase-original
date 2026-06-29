@@ -1,11 +1,11 @@
 ### Bg 7.16
 
-> चतुर्विधा भजन्ते मां जनाः सुकृतिनोऽर्जुन ।
+> चतुर्विधा भजन्ते मां जनाः सुकृतिनोऽर्जुन ।\
 > आर्तो जिज्ञासुरर्थार्थी ज्ञानी च भरतर्षभ ॥१६॥
 
-> catur-vidhā bhajante māṁ
-> janāḥ sukṛtino 'rjuna
-> ārto jijñāsur arthārthī
+> catur-vidhā bhajante māṁ\
+> janāḥ sukṛtino 'rjuna\
+> ārto jijñāsur arthārthī\
 > jñānī ca bharatarṣabha
 
 *catur-vidhāḥ*—four kinds of; *bhajante*—render services; *mām*—unto Me; *janāḥ*—persons; *sukṛtinaḥ*—those who are pious; *arjuna*—O Arjuna; *ārtaḥ*—the distressed; *jijñāsuḥ*—the inquisitive; *artha-arthī*—one who desires material gain; *jñānī*—one who knows things as they are; *ca*—also; *bharatarṣabha*—O great one amongst the descendants of Bharata.

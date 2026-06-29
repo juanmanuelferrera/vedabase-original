@@ -1,11 +1,11 @@
 ### SB 1.13.15
 
-> अबिभ्रदर्यमा दण्डं यथावदघकारिषु ।
+> अबिभ्रदर्यमा दण्डं यथावदघकारिषु ।\
 > यावद्दधार शूद्रत्वं शापाद्वर्षशतं यमः ॥१५॥
 
-> abibhrad aryamā daṇḍaṁ
-> yathāvad agha-kāriṣu
-> yāvad dadhāra śūdratvaṁ
+> abibhrad aryamā daṇḍaṁ\
+> yathāvad agha-kāriṣu\
+> yāvad dadhāra śūdratvaṁ\
 > śāpād varṣa-śataṁ yamaḥ
 
 *abibhrat*—administró; *aryamā*—Aryamā; *daṇḍam*—castigo; *yathāvat*—como correspondía; *agha-kāriṣu*—a personas que habían cometido pecados; *yāvat*—mientras; *dadhāra*—aceptó; *śūdratvam*—el cuerpo de un *śūdra*; *śāpāt*—como resultado de una maldición; *varṣa-śatam*—durante cien años; *yamaḥ*—Yamarāja.

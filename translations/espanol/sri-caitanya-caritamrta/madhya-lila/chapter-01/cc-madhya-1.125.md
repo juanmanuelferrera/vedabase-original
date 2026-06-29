@@ -1,9 +1,9 @@
 ### CC Madhya 1.125
 
-> বিরহে বিহ্বল প্রভু না জানে রাত্রি-দিনে ।
+> বিরহে বিহ্বল প্রভু না জানে রাত্রি-দিনে ।\
 > হেনকালে আইলা গৌড়ের ভক্তগণে ॥১২৫॥
 
-> virahe vihvala prabhu nā jāne rātri-dine
+> virahe vihvala prabhu nā jāne rātri-dine\
 > hena-kāle āilā gauḍera bhakta-gaṇe
 
 *virahe*—en separación; *vihvala*—abrumado; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *nā*—no; *jāne*—sabe; *rātri-dine*—día y noche; *hena-kāle*—en ese momento; *āilā*—llegaron; *gauḍera*—de Bengala; *bhakta-gaṇe*—todos los devotos.

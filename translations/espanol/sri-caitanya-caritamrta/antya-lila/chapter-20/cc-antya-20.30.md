@@ -1,9 +1,9 @@
 ### CC Antya 20.30
 
-> “ধন, জন নাহি মাগোঁ, কবিতা সুন্দরী ।
+> “ধন, জন নাহি মাগোঁ, কবিতা সুন্দরী ।\
 > ‘শুদ্ধভক্তি’ দেহ’ মোরে, কৃষ্ণ কৃপা করি’ ॥৩০॥
 
-> dhana, jana nāhi māgoṅ, kavitā sundarī
+> dhana, jana nāhi māgoṅ, kavitā sundarī\
 > 'śuddha-bhakti' deha' more, kṛṣṇa kṛpā kari'
 
 *dhana*—riqueza; *jana*—seguidores; *nāhi*—no; *māgoṅ*—deseo; *kavitā sundarī*—una esposa hermosa o actividades fruitivas; *śuddha-bhakti*—servicio devocional puro; *deha*—por favor, concede; *more*—a Mí; *kṛṣṇa*—oh, Señor Kṛṣṇa; *kṛpā kari'*—siendo misericordioso.

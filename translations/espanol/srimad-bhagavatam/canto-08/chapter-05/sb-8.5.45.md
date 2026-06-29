@@ -1,11 +1,11 @@
 ### SB 8.5.45
 
-> स त्वं नो दर्शयात्मानमस्मत्करणगोचरम
+> स त्वं नो दर्शयात्मानमस्मत्करणगोचरम\
 > प्रपन्नानां दिदृक्षूणां सस्मितं ते मुखाम्बुजम ॥४५॥
 
-> sa tvaṁ no darśayātmānam
-> asmat-karaṇa-gocaram
-> prapannānāṁ didṛkṣūṇāṁ
+> sa tvaṁ no darśayātmānam\
+> asmat-karaṇa-gocaram\
+> prapannānāṁ didṛkṣūṇāṁ\
 > sasmitaṁ te mukhāmbujam
 
 *saḥ*—Él (la Suprema Personalidad de Dios); *tvam*—Tú eres mi Señor; *naḥ*—a nosotros; *darśaya*—hazte visible; *ātmānam*—en Tu forma original; *asmat-karaṇa-gocaram*—que pueda ser percibida directamente por nuestros sentidos, y, en especial, por nuestros ojos; *prapannānām*—nos hemos entregado a Ti; *didṛkṣūṇām*—pero deseamos verte; *sasmitam*—sonriente; *te*—Tuya; *mukha-ambujam*—cara de loto.

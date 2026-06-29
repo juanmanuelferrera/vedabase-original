@@ -1,11 +1,11 @@
 ### CC Adi 4.70
 
-> তয়োরপ্যুভয়োর্মধ্যে রাধিকা সর্বথাধিকা ।
+> তয়োরপ্যুভয়োর্মধ্যে রাধিকা সর্বথাধিকা ।\
 > মহাভাবস্বরূপেয়ং গুণৈরতিবরীয়সী ॥৭০॥
 
-> tayor apy ubhayor madhye
-> rādhikā sarvathādhikā
-> mahābhāva-svarūpeyaṁ
+> tayor apy ubhayor madhye\
+> rādhikā sarvathādhikā\
+> mahābhāva-svarūpeyaṁ\
 > guṇair ativarīyasī
 
 *tayoḥ*—of them; *api*—even; *ubhayoḥ*—of both (Candrāvalī and Rādhārāṇī); *madhye*—in the middle; *rādhikā*—Śrīmatī Rādhārāṇī; *sarvathā*—in every way; *adhikā*—greater; *mahā-bhāva-svarūpā*—the form of *mahābhāva*; *iyam*—this one; *guṇaiḥ*—with good qualities; *ativarīyasī*—the best of all.

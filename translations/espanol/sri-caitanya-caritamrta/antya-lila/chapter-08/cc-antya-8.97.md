@@ -1,9 +1,9 @@
 ### CC Antya 8.97
 
-> তেঁহো গেলে প্রভুর গণ হৈল হরষিত ।
+> তেঁহো গেলে প্রভুর গণ হৈল হরষিত ।\
 > শিরের পাথর যেন পড়িল আচম্বিত ॥৯৭॥
 
-> teṅho gele prabhura gaṇa haila haraṣita
+> teṅho gele prabhura gaṇa haila haraṣita\
 > śirera pāthara yena paḍila ācambita
 
 *teṅho gele*—cuando él se marchó; *prabhura gaṇa*—los asociados de Śrī Caitanya Mahāprabhu; *haila haraṣita*—se pusieron muy, muy contentos; *śirera*—sobre la cabeza; *pāthara*—una piedra; *yena*—como si; *paḍila*—cayó; *ācambita*—de repente.

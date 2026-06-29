@@ -1,11 +1,11 @@
 ### SB 9.5.8
 
-> यदा विसृष्टस्त्वमनञ्जनेन वै बलं प्रविष्टोऽजित दैत्यदानवम
+> यदा विसृष्टस्त्वमनञ्जनेन वै बलं प्रविष्टोऽजित दैत्यदानवम\
 > बाहूदरोर्वङ्घ्रिशिरोधराणि वृश्चन्नजस्रं प्रधने विराजसे ॥८॥
 
-> yadā visṛṣṭas tvam anañjanena vai
-> balaṁ praviṣṭo 'jita daitya-dānavam
-> bāhūdarorv-aṅghri-śirodharāṇi
+> yadā visṛṣṭas tvam anañjanena vai\
+> balaṁ praviṣṭo 'jita daitya-dānavam\
+> bāhūdarorv-aṅghri-śirodharāṇi\
 > vṛścann ajasraṁ pradhane virājase
 
 *yadā*—cuando; *visṛṣṭaḥ*—enviado; *tvam*—Tu Gracia; *anañjanena*—por la trascendental Suprema Personalidad de Dios; *vai*—en verdad; *balam*—los soldados; *praviṣṭaḥ*—entrar entre; *ajita*—¡oh, infatigable e invencible!; *daitya-dānavam*—de los *daityas* y los *dānavas*, los demonios; *bāhu*—brazos; *udara*—vientres; *ūru*—muslos; *aṅghri*—piernas; *śiraḥ-dharāṇi*—cuellos; *vṛścan*—separando; *ajasram*—sin cesar; *pradhane*—en el campo de batalla; *virājase*—tú permaneces.

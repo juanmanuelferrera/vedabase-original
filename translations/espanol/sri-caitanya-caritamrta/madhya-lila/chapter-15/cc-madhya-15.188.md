@@ -1,9 +1,9 @@
 ### CC Madhya 15.188
 
-> এবে মোর ঘরে ভিক্ষা করহ ‘মাস’ ভরি’  ।
+> এবে মোর ঘরে ভিক্ষা করহ ‘মাস’ ভরি’  ।\
 > প্রভু কহে, — ধর্ম নহে, করিতে না পারি ॥১৮৮॥
 
-> ebe mora ghare bhikṣā karaha 'māsa' bhari'
+> ebe mora ghare bhikṣā karaha 'māsa' bhari'\
 > prabhu kahe,--dharma nahe, karite nā pāri
 
 *ebe*—ahora; *mora ghare*—en mi casa; *bhikṣā*—almuerzo; *karaha*—acepta; *māsa bhari'*—durante un mes; *prabhu kahe*—Śrī Caitanya Mahāprabhu respondió; *dharma*—principio religioso; *nahe*—no es; *karite*—hacer; *nā pāri*—no puedo.

@@ -1,11 +1,11 @@
 ### SB 4.4.30
 
-> सोऽयं दुर्मर्षहृदयो ब्रह्मध्रुक्च लोकेऽपकीर्तिं महतीमवाप्स्यति ।
+> सोऽयं दुर्मर्षहृदयो ब्रह्मध्रुक्च लोकेऽपकीर्तिं महतीमवाप्स्यति ।\
 > यदङ्गजां स्वां पुरुषद्विडुद्यतां न प्रत्यषेधन्मृतयेऽपराधतः ॥३०॥
 
-> so 'yaṁ durmarṣa-hṛdayo brahma-dhruk ca
-> loke 'pakīrtiṁ mahatīm avāpsyati
-> yad-aṅgajāṁ svāṁ puruṣa-dviḍ udyatāṁ
+> so 'yaṁ durmarṣa-hṛdayo brahma-dhruk ca\
+> loke 'pakīrtiṁ mahatīm avāpsyati\
+> yad-aṅgajāṁ svāṁ puruṣa-dviḍ udyatāṁ\
 > na pratyaṣedhan mṛtaye 'parādhataḥ
 
 *saḥ*—él; *ayam*—ese; *durmarṣa-hṛdayaḥ*—duro de corazón; *brahma-dhruk*—indigno de ser *brāhmaṇa*; *ca*—y; *loke*—en el mundo; *apakīrtim*—mala fama; *mahatīm*—amplia; *avāpsyati*—obtendrá; *yat-aṅga-jām*—cuya hija; *svām*—propia; *puruṣa-dviṭ*—el enemigo del Señor Śiva; *udyatām*—que estaba preparando; *na pratyaṣedhat*—no impidió; *mṛtaye*—de la muerte; *aparādhataḥ*—debido a sus ofensas.

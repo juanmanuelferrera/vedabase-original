@@ -1,11 +1,11 @@
 ### SB 7.10.37
 
-> शयानौ युधि निर्भिन्न हृदयौ रामशायकैः
+> शयानौ युधि निर्भिन्न हृदयौ रामशायकैः\
 > तच्चित्तौ जहतुर्देहं यथा प्राक्तनजन्मनि ॥३७॥
 
-> śayānau yudhi nirbhinna-
-> hṛdayau rāma-śāyakaiḥ
-> tac-cittau jahatur dehaṁ
+> śayānau yudhi nirbhinna-\
+> hṛdayau rāma-śāyakaiḥ\
+> tac-cittau jahatur dehaṁ\
 > yathā prāktana-janmani
 
 *śayānau*—being laid down; *yudhi*—on the battlefield; *nirbhinna*—being pierced; *hṛdayau*—in the core of the heart; *rāma-śāyakaiḥ*—by the arrows of Lord Rāmacandra; *tat-cittau*—thinking or being conscious of Lord Rāmacandra; *jahatuḥ*—gave up; *deham*—body; *yathā*—even as; *prāktana-janmani*—in their previous births.

@@ -1,9 +1,9 @@
 ### CC Madhya 10.44
 
-> মুরারি মাহাতি ইঁহ — শিখিমাহাতির ভাই ৷
+> মুরারি মাহাতি ইঁহ — শিখিমাহাতির ভাই ৷\
 > তোমার চরণ বিনু আর গতি নাই ৷৷ ৪৪ ৷৷ ॥৪৪॥
 
-> murāri māhāti iṅha—śikhi-māhātira bhāi
+> murāri māhāti iṅha—śikhi-māhātira bhāi\
 > tomāra caraṇa vinu āra gati nāi
 
 *murāri māhāti*—Murāri Māhiti; *iṅha*—este; *śikhi-māhātira*—de Śikhi Māhiti; *bhāi*—hermano menor; *tomāra*—Tus; *caraṇa*—pies de loto; *vinu*—sin; *āra*—ningún otro; *gati*—destino; *nāi*—no tiene.

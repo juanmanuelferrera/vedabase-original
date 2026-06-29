@@ -1,11 +1,11 @@
 ### SB 3.7.35
 
-> येन वा भगवांस्तुष्येद्धर्मयोनिर्जनार्दनः ।
+> येन वा भगवांस्तुष्येद्धर्मयोनिर्जनार्दनः ।\
 > सम्प्रसीदति वा येषामेतदाख्याहि मेऽनघ ॥३५॥
 
-> yena vā bhagavāṁs tuṣyed
-> dharma-yonir janārdanaḥ
-> samprasīdati vā yeṣām
+> yena vā bhagavāṁs tuṣyed\
+> dharma-yonir janārdanaḥ\
+> samprasīdati vā yeṣām\
 > etad ākhyāhi me 'nagha
 
 *yena*—by which; *vā*—either; *bhagavān*—the Personality of Godhead; *tuṣyet*—is satisfied; *dharma-yoniḥ*—the father of all religion; *janārdanaḥ*—the controller of all living being; *samprasīdati*—completely satisfied; *vā*—either, or; *yeṣām*—of those; *etat*—all these; *ākhyāhi*—kindly describe; *me*—unto me; *anagha*—O sinless one.

@@ -1,9 +1,9 @@
 ### CC Madhya 17.99
 
-> মিশ্র কহে, — ‘প্রভু, যাবৎ কাশীতে রহিবা ।
+> মিশ্র কহে, — ‘প্রভু, যাবৎ কাশীতে রহিবা ।\
 > মোর নিমন্ত্রণ বিনা অন্য না মানিবা’ ॥ ৯৯ ॥
 
-> miśra kahe,--'prabhu, yāvat kāśīte rahibā
+> miśra kahe,--'prabhu, yāvat kāśīte rahibā\
 > mora nimantraṇa vinā anya nā mānibā'
 
 *miśra kahe*—Tapana Miśra dijo; *prabhu*—mi Señor; *yāvat*—mientras; *kāśīte rahibā*—permanezcas en Kāśī, Vārāṇasī; *mora nimantraṇa*—mi invitación; *vinā*—aparte de; *anya*—otras; *nā mānibā*—no aceptes.

@@ -1,18 +1,18 @@
 ### SB 4.12.49-50
 
-> पौर्णमास्यां सिनीवाल्यां द्वादश्यां श्रवणेऽथवा ।
-> दिनक्षये व्यतीपाते सङ्क्रमेऽर्कदिनेऽपि वा ॥४९॥
-> श्रावयेच्छ्रद्दधानानां तीर्थपादपदाश्रयः ।
+> पौर्णमास्यां सिनीवाल्यां द्वादश्यां श्रवणेऽथवा ।\
+> दिनक्षये व्यतीपाते सङ्क्रमेऽर्कदिनेऽपि वा ॥४९॥\
+> श्रावयेच्छ्रद्दधानानां तीर्थपादपदाश्रयः ।\
 > नेच्छंस्तत्रात्मनात्मानं सन्तुष्ट इति सिध्यति ॥५०॥
 
-> paurṇamāsyāṁ sinīvālyāṁ
-> dvādaśyāṁ śravaṇe 'thavā
-> dina-kṣaye vyatīpāte
+> paurṇamāsyāṁ sinīvālyāṁ\
+> dvādaśyāṁ śravaṇe 'thavā\
+> dina-kṣaye vyatīpāte\
 > saṅkrame 'rkadine 'pi vā
 
-> śrāvayec chraddadhānānāṁ
-> tīrtha-pāda-padāśrayaḥ
-> necchaṁs tatrātmanātmānaṁ
+> śrāvayec chraddadhānānāṁ\
+> tīrtha-pāda-padāśrayaḥ\
+> necchaṁs tatrātmanātmānaṁ\
 > santuṣṭa iti sidhyati
 
 *paurṇamāsyām*—on the full moon; *sinīvālyām*—on the dark moon; *dvādaśyām*—on the day after Ekādaśī; *śravaṇe*—during the Śravaṇa star's appearance; *athavā*—or; *dina-kṣaye*—at the end of the *tithi*; *vyatīpāte*—a particular day of the name; *saṅkrame*—at the end of the month; *arkadine*—on Sunday; *api*—also; *vā*—or; *śrāvayet*—one should recite; *śraddadhānānām*—to a receptive audience; *tīrtha-pāda*—of the Supreme Personality of Godhead; *pada-āśrayaḥ*—taken shelter of the lotus feet; *na icchan*—without desiring remuneration; *tatra*—there; *ātmanā*—by the self; *ātmānam*—the mind; *santuṣṭaḥ*—pacified; *iti*—thus; *sidhyati*—becomes perfect.

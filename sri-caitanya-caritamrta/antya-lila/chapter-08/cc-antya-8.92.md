@@ -1,9 +1,9 @@
 ### CC Antya 8.92
 
-> ভক্তগণে সুখ দিতে প্রভুর ‘অবতার’ ।
+> ভক্তগণে সুখ দিতে প্রভুর ‘অবতার’ ।\
 > যাহাঁ যৈছে যোগ্য, তাহাঁ করেন ব্যবহার ॥৯২॥
 
-> bhakta-gaṇe sukha dite prabhura 'avatāra'
+> bhakta-gaṇe sukha dite prabhura 'avatāra'\
 > yāhāṅ yaiche yogya, tāhāṅ karena vyavahāra
 
 *bhakta-gaṇe*—to His devotees; *sukha dite*—to give happiness; *prabhura*—of Śrī Caitanya Mahāprabhu; *avatāra*—incarnation; *yāhāṅ yaiche yogya*—whatever was fitting according to the time and circumstances; *tāhāṅ karena vyavahāra*—He behaved in that way.

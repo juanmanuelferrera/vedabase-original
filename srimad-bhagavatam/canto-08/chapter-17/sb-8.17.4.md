@@ -1,11 +1,11 @@
 ### SB 8.17.4
 
-> तस्याः प्रादुरभूत्तात भगवानादिपुरुषः
+> तस्याः प्रादुरभूत्तात भगवानादिपुरुषः\
 > पीतवासाश्चतुर्बाहुः शङ्खचक्रगदाधरः ॥४॥
 
-> tasyāḥ prādurabhūt tāta
-> bhagavān ādi-puruṣaḥ
-> pīta-vāsāś catur-bāhuḥ
+> tasyāḥ prādurabhūt tāta\
+> bhagavān ādi-puruṣaḥ\
+> pīta-vāsāś catur-bāhuḥ\
 > śaṅkha-cakra-gadā-dharaḥ
 
 *tasyāḥ*—before her; *prādurabhūt*—appeared; *tāta*—my dear King; *bhagavān*—the Supreme Personality of Godhead; *ādi-puruṣaḥ*—the original person; *pīta-vāsāḥ*—dressed in yellow garments; *catuḥ-bāhuḥ*—with four arms; *śaṅkha-cakra-gadā-dharaḥ*—bearing the conchshell, disc, club and lotus flower.

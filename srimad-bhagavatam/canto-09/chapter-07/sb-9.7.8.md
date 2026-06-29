@@ -1,11 +1,11 @@
 ### SB 9.7.8
 
-> सोऽनपत्यो विषण्णात्मा नारदस्योपदेशतः
+> सोऽनपत्यो विषण्णात्मा नारदस्योपदेशतः\
 > वरुणं शरणं यातः पुत्रो मे जायतां प्रभो ॥८॥
 
-> so 'napatyo viṣaṇṇātmā
-> nāradasyopadeśataḥ
-> varuṇaṁ śaraṇaṁ yātaḥ
+> so 'napatyo viṣaṇṇātmā\
+> nāradasyopadeśataḥ\
+> varuṇaṁ śaraṇaṁ yātaḥ\
 > putro me jāyatāṁ prabho
 
 *saḥ*—that Hariścandra; *anapatyaḥ*—being without a son; *viṣaṇṇa-ātmā*—therefore very morose; *nāradasya*—of Nārada; *upadeśataḥ*—by the advice; *varuṇam*—unto Varuṇa; *śaraṇam yātaḥ*—took shelter; *putraḥ*—a son; *me*—of me; *jāyatām*—let there be born; *prabho*—O my lord.

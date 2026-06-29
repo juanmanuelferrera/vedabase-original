@@ -1,11 +1,11 @@
 ### SB 8.24.44
 
-> सोऽनुध्यातस्ततो राज्ञआ प्रादुरासीन्महार्णवे
+> सोऽनुध्यातस्ततो राज्ञआ प्रादुरासीन्महार्णवे\
 > एकशृङ्गधरो मत्स्यो हैमो नियुतयोजनः ॥४४॥
 
-> so 'nudhyātas tato rājñā
-> prādurāsīn mahārṇave
-> eka-śṛṅga-dharo matsyo
+> so 'nudhyātas tato rājñā\
+> prādurāsīn mahārṇave\
+> eka-śṛṅga-dharo matsyo\
 > haimo niyuta-yojanaḥ
 
 *saḥ*—el Señor; *anudhyātaḥ*—objeto de la meditación; *tataḥ*—a continuación (al escuchar las palabras de los *brāhmaṇas*santos); *rājñā*—por el rey; *prādurāsīt*—apareció (ante él); *mahā-arṇave*—en el gran océano de la inundación; *eka-śṛṅga-dharaḥ*—con un cuerno; *matsyaḥ*—un gran pez; *haimaḥ*—hecho de oro; *niyuta-yojanaḥ*—de trece millones de kilómetros de largo.

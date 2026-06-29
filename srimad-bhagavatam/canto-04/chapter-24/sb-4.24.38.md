@@ -1,11 +1,11 @@
 ### SB 4.24.38
 
-> नम ऊर्ज इषे त्रय्याः पतये यज्ञरेतसे ।
+> नम ऊर्ज इषे त्रय्याः पतये यज्ञरेतसे ।\
 > तृप्तिदाय च जीवानां नमः सर्वरसात्मने ॥३८॥
 
-> nama ūrja iṣe trayyāḥ
-> pataye yajña-retase
-> tṛpti-dāya ca jīvānāṁ
+> nama ūrja iṣe trayyāḥ\
+> pataye yajña-retase\
+> tṛpti-dāya ca jīvānāṁ\
 > namaḥ sarva-rasātmane
 
 *namaḥ*—I offer all obeisances unto You; *ūrje*—unto the provider of the Pitṛloka; *iṣe*—the provider of all the demigods; *trayyāḥ*—of the three *Vedas*; *pataye*—unto the master; *yajña*—sacrifices; *retase*—unto the predominating deity of the moon planet; *tṛpti-dāya*—unto Him who gives satisfaction to everyone; *ca*—also; *jīvānām*—of the living entities; *namaḥ*—I offer my obeisances; *sarva-rasa-ātmane*—unto the all-pervading Supersoul.

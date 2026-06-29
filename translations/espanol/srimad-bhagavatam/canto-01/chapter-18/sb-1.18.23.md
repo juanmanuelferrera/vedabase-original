@@ -1,11 +1,11 @@
 ### SB 1.18.23
 
-> अहं हि पृष्टोऽर्यमणो भवद्भिराचक्ष आत्मावगमोऽत्र यावान् ।
+> अहं हि पृष्टोऽर्यमणो भवद्भिराचक्ष आत्मावगमोऽत्र यावान् ।\
 > नभः पतन्त्यात्मसमं पतत्त्रिणस्तथा समं विष्णुगतिं विपश्चितः ॥२३॥
 
-> ahaṁ hi pṛṣṭo 'ryamaṇo bhavadbhir
-> ācakṣa ātmāvagamo 'tra yāvān
-> nabhaḥ patanty ātma-samaṁ patattriṇas
+> ahaṁ hi pṛṣṭo 'ryamaṇo bhavadbhir\
+> ācakṣa ātmāvagamo 'tra yāvān\
+> nabhaḥ patanty ātma-samaṁ patattriṇas\
 > tathā samaṁ viṣṇu-gatiṁ vipaścitaḥ
 
 *aham*—mi humilde persona; *hi*—ciertamente; *pṛṣṭaḥ*—preguntado por ti; *aryamaṇaḥ*—tan poderoso como el sol; *bhavadbhiḥ*—por ti; *ācakṣe*—describa; *ātma-avagamaḥ*—hasta donde mi conocimiento lo permita; *atra*—aquí; *yāvān*—hasta; *nabhaḥ*—cielo; *patanti*—vuelo; *ātma-samam*—hasta donde puede; *patattriṇaḥ*—las aves; *tathā*—así pues; *samam*—así mismo; *viṣṇu-gatim*—conocimiento acerca de Viṣṇu; *vipaścitaḥ*—aunque sean eruditos.

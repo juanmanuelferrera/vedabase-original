@@ -1,9 +1,9 @@
 ### CC Adi 4.246
 
-> যদ্যপি আমার রসে জগৎ সরস ।
+> যদ্যপি আমার রসে জগৎ সরস ।\
 > রাধার অধর-রস আমা করে বশ ॥২৪৬॥
 
-> yadyapi āmāra rase jagat sarasa
+> yadyapi āmāra rase jagat sarasa\
 > rādhāra adhara-rasa āmā kare vaśa
 
 *yadyapi*—although; *āmāra*—of Me; *rase*—by the taste; *jagat*—the whole world; *sa-rasa*—is palatable; *rādhāra*—of Śrīmatī Rādhārāṇī; *adhara-rasa*—the taste of the lips; *āmā*—Me; *kare*—makes; *vaśa*—submissive.

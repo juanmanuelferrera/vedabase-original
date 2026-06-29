@@ -1,15 +1,15 @@
 ### SB 7.8.43
 
-> श्रीऋषय ऊचुः
-> त्वं नस्तपः परममात्थ यदात्मतेजो
-> येनेदमादिपुरुषात्मगतं ससर्क्थ
-> तद्विप्रलुप्तममुनाद्य शरण्यपाल
+> श्रीऋषय ऊचुः\
+> त्वं नस्तपः परममात्थ यदात्मतेजो\
+> येनेदमादिपुरुषात्मगतं ससर्क्थ\
+> तद्विप्रलुप्तममुनाद्य शरण्यपाल\
 > रक्षागृहीतवपुषा पुनरन्वमंस्थाः ॥४३॥
 
-> śrī-ṛṣaya ūcuḥ
-> tvaṁ nas tapaḥ paramam āttha yad ātma-tejo
-> yenedam ādi-puruṣātma-gataṁ sasarktha
-> tad vipraluptam amunādya śaraṇya-pāla
+> śrī-ṛṣaya ūcuḥ\
+> tvaṁ nas tapaḥ paramam āttha yad ātma-tejo\
+> yenedam ādi-puruṣātma-gataṁ sasarktha\
+> tad vipraluptam amunādya śaraṇya-pāla\
 > rakṣā-gṛhīta-vapuṣā punar anvamaṁsthāḥ
 
 *śrī-ṛṣayaḥ ūcuḥ*—los grandes sabios dijeron; *tvam*—Tú; *naḥ*—nuestra; *tapaḥ*—austeridad; *paramam*—suprema; *āttha*—instruiste; *yat*—que; *ātma-tejaḥ*—Tu poder espiritual; *yena*—por el cual; *idam*—este (mundo material); *ādi-puruṣa*—¡oh, Personalidad de Dios original y suprema!; *ātma-gatam*—fundido en Tu propio ser; *sasarktha*—(Tú) creaste; *tat*—ese proceso de austeridad y penitencias; *vipraluptam*—arrebatado; *amunā*—por ese demonio (Hiraṇyakaśipu); *adya*—ahora; *śaraṇya-pāla*—¡oh, sustentador supremo de los necesitados de refugio!; *rakṣā-gṛhīta-vapuṣā*—por Tu cuerpo, que has adoptado para brindar protección; *punaḥ*—de nuevo; *anvamaṁsthāḥ*—Tú has aprobado.

@@ -1,11 +1,11 @@
 ### SB 5.5.7
 
-> यदा न पश्यत्ययथा गुणेहां स्वार्थे प्रमत्तः सहसा विपश्चित
+> यदा न पश्यत्ययथा गुणेहां स्वार्थे प्रमत्तः सहसा विपश्चित\
 > गतस्मृतिर्विन्दति तत्र तापानासाद्य मैथुन्यमगारमज्ञअः ॥७॥
 
-> yadā na paśyaty ayathā guṇehāṁ
-> svārthe pramattaḥ sahasā vipaścit
-> gata-smṛtir vindati tatra tāpān
+> yadā na paśyaty ayathā guṇehāṁ\
+> svārthe pramattaḥ sahasā vipaścit\
+> gata-smṛtir vindati tatra tāpān\
 > āsādya maithunyam agāram ajñaḥ
 
 *yadā*—cuando; *na*—no; *paśyati*—ve; *ayathā*—innecesario; *guṇa-īhām*—esfuerzo por satisfacer los sentidos; *sva-arthe*—en su propio interés; *pramattaḥ*—loca; *sahasā*—muy pronto; *vipaścit*—incluso la persona avanzada en conocimiento; *gata-smṛtiḥ*—olvidando; *vindati*—obtiene; *tatra*—allí; *tāpān*—miserias materiales; *āsādya*—obtener; *maithunyam*—basado en la relación sexual; *agāram*—un hogar; *ajñaḥ*—como un necio.

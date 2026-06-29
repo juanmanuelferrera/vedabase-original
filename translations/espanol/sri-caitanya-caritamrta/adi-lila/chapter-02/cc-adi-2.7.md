@@ -1,9 +1,9 @@
 ### CC Adi 2.7
 
-> অনুবাদ আগে, পাছে বিধেয় স্থাপন ।
+> অনুবাদ আগে, পাছে বিধেয় স্থাপন ।\
 > সেই অর্থ কহি, শুন শাস্ত্র-বিবরণ ॥৭॥
 
-> anuvāda āge, pāche vidheya sthāpana
+> anuvāda āge, pāche vidheya sthāpana\
 > sei artha kahi, śuna śāstra-vivaraṇa
 
 *anuvāda*—el sujeto; *āge*—primero; *pāche*—después; *vidheya*—el predicado; *sthāpana*—colocación; *sei*—este; *artha*—el significado; *kahi*—hablo; *śuna*—por favor escuchad; *śāstra-vivaraṇa*—la descripción de las escrituras.

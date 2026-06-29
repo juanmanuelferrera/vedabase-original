@@ -1,11 +1,11 @@
 ### SB 3.20.14
 
-> तानि चैकैकशः स्रष्टुमसमर्थानि भौतिकम् ।
+> तानि चैकैकशः स्रष्टुमसमर्थानि भौतिकम् ।\
 > संहत्य दैवयोगेन हैममण्डमवासृजन् ॥१४॥
 
-> tāni caikaikaśaḥ sraṣṭum
-> asamarthāni bhautikam
-> saṁhatya daiva-yogena
+> tāni caikaikaśaḥ sraṣṭum\
+> asamarthāni bhautikam\
+> saṁhatya daiva-yogena\
 > haimam aṇḍam avāsṛjan
 
 *tāni*—esos elementos; *ca*—y; *eka-ekaśaḥ*—por separado; *sraṣṭum*—producir; *asamarthāni*—incapaces; *bhautikam*—el universo material; *saṁhatya*—habiéndose combinado; *daiva-yogena*—con la energía del Señor Supremo; *haimam*—brillante como el oro; *aṇḍam*—globo; *avāsṛjan*—produjeron.

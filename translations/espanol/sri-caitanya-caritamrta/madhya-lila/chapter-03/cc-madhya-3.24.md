@@ -1,9 +1,9 @@
 ### CC Madhya 3.24
 
-> প্রভু কহে, — শ্রীপাদ, তোমার কোথাকে গমন ।
+> প্রভু কহে, — শ্রীপাদ, তোমার কোথাকে গমন ।\
 > শ্রীপাদ কহে, তোমার সঙ্গে যাব বৃন্দাবন ॥২৪॥
 
-> prabhu kahe,--śrīpāda, tomāra kothāke gamana
+> prabhu kahe,--śrīpāda, tomāra kothāke gamana\
 > śrīpāda kahe, tomāra saṅge yāba vṛndāvana
 
 *prabhu kahe*—el Señor preguntó; *śrīpāda*—señor; *tomāra*—de Ti; *kothāke*—adónde; *gamana*—ir; *śrīpāda kahe*—Nityānanda Prabhu respondió; *tomāra*—Contigo; *saṅge*—junto; *yāba*—iré; *vṛndāvana*—hacia Vṛndāvana.

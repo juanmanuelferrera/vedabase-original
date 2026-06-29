@@ -1,11 +1,11 @@
 ### SB 4.31.25
 
-> एतत्तेऽभिहितं क्षत्तर्यन्मां त्वं परिपृष्टवान् ।
+> एतत्तेऽभिहितं क्षत्तर्यन्मां त्वं परिपृष्टवान् ।\
 > प्रचेतसां नारदस्य संवादं हरिकीर्तनम् ॥२५॥
 
-> etat te 'bhihitaṁ kṣattar
-> yan māṁ tvaṁ paripṛṣṭavān
-> pracetasāṁ nāradasya
+> etat te 'bhihitaṁ kṣattar\
+> yan māṁ tvaṁ paripṛṣṭavān\
+> pracetasāṁ nāradasya\
 > saṁvādaṁ hari-kīrtanam
 
 *etat*—this; *te*—unto you; *abhihitam*—instructed; *kṣattaḥ*—O Vidura; *yat*—whatever; *mām*—unto me; *tvam*—you; *paripṛṣṭavān*—inquired; *pracetasām*—of the Pracetās; *nāradasya*—of Nārada; *saṁvādam*—conversation; *hari-kīrtanam*—describing the glories of the Lord.

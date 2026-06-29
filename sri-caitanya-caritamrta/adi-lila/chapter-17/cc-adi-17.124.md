@@ -1,9 +1,9 @@
 ### CC Adi 17.124
 
-> শুনিয়া যে ক্রুদ্ধ হৈল সকল যবন ।
+> শুনিয়া যে ক্রুদ্ধ হৈল সকল যবন ।\
 > কাজী-পাশে আসি’ সবে কৈল নিবেদন ॥১২৪॥
 
-> śuniyā ye kruddha haila sakala yavana
+> śuniyā ye kruddha haila sakala yavana\
 > kājī-pāśe āsi' sabe kaila nivedana
 
 *śuniyā*—by hearing; *ye*—that; *kruddha*—angry; *haila*—became; *sakala*—all; *yavana*—Muslims; *kājī-pāśe*—in the court of the Kazi, or magistrate; *āsi'*—coming; *sabe*—all; *kaila*—made; *nivedana*—petition.

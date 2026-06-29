@@ -1,9 +1,9 @@
 ### CC Madhya 18.118
 
-> ‘আকৃত্যে’ তোমারে দেখি ‘ব্রজেন্দ্র-নন্দন’  ।
+> ‘আকৃত্যে’ তোমারে দেখি ‘ব্রজেন্দ্র-নন্দন’  ।\
 > দেহকান্তি পীতাম্বর কৈল আচ্ছাদন ॥১১৮॥
 
-> 'ākṛtye' tomāre dekhi 'vrajendra-nandana'
+> 'ākṛtye' tomāre dekhi 'vrajendra-nandana'\
 > deha-kānti pītāmbara kaila ācchādana
 
 *ākṛtye*—by bodily features; *tomāre*—You; *dekhi*—we see; *vrajendra-nandana*—directly the son of Mahārāja Nanda; *deha-kānti*—the luster of the body; *pīta-ambara*—golden covering; *kaila ācchādana*—covered.

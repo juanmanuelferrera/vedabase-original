@@ -1,11 +1,11 @@
 ### SB 7.8.33
 
-> द्यौस्तत्सटोत्क्षिप्तविमानसङ्कुला प्रोत्सर्पत क्ष्मा च पदाभिपीडिता
+> द्यौस्तत्सटोत्क्षिप्तविमानसङ्कुला प्रोत्सर्पत क्ष्मा च पदाभिपीडिता\
 > शैलाः समुत्पेतुरमुष्य रंहसा तत्तेजसा खं ककुभो न रेजिरे ॥३३॥
 
-> dyaus tat-saṭotkṣipta-vimāna-saṅkulā
-> protsarpata kṣmā ca padābhipīḍitā
-> śailāḥ samutpetur amuṣya raṁhasā
+> dyaus tat-saṭotkṣipta-vimāna-saṅkulā\
+> protsarpata kṣmā ca padābhipīḍitā\
+> śailāḥ samutpetur amuṣya raṁhasā\
 > tat-tejasā khaṁ kakubho na rejire
 
 *dyauḥ*—espacio exterior; *tat-saṭā*—con Su cabello; *utkṣipta*—lanzados; *vimāna-saṅkulā*—lleno de aviones; *protsarpata*—desplazado; *kṣmā*—el planeta Tierra; *ca*—también; *pada-abhipīḍitā*—afligido con el gran peso de los pies de loto del Señor; *śailāḥ*—las colinas y montañas; *samutpetuḥ*—se levantaron; *amuṣya*—de aquel (del Señor); *raṁhasā*—debido a la fuerza insoportable; *tat-tejasā*—con Su refulgencia; *kham*—el cielo; *kakubhaḥ*—las diez direcciones; *na rejire*—no brillaban.

@@ -1,9 +1,9 @@
 ### CC Adi 17.94
 
-> লোক-ভয় দেখি’ প্রভুর বাহ্য হইল ।
+> লোক-ভয় দেখি’ প্রভুর বাহ্য হইল ।\
 > শ্রীবাস-গৃহেতে গিয়া গদা ফেলাইল ॥৯৪॥
 
-> loka-bhaya dekhi' prabhura bāhya ha-ila
+> loka-bhaya dekhi' prabhura bāhya ha-ila\
 > śrīvāsa-gṛhete giyā gadā phelāila
 
 *loka-bhaya*—el miedo de la gente; *dekhi'*—al ver esto; *prabhura*—del Señor; *bāhya*—conciencia externa; *ha-ila*—retornó; *śrīvāsa-gṛhete*—a la casa de Śrīvāsa Paṇḍita; *giyā*—yendo; *gadā*—la maza; *phelāila*—arrojó.

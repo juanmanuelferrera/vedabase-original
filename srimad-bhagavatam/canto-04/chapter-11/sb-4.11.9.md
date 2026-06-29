@@ -1,11 +1,11 @@
 ### SB 4.11.9
 
-> नन्वेकस्यापराधेन प्रसङ्गाद्बहवो हताः ।
+> नन्वेकस्यापराधेन प्रसङ्गाद्बहवो हताः ।\
 > भ्रातुर्वधाभितप्तेन त्वयाङ्ग भ्रातृवत्सल ॥९॥
 
-> nanv ekasyāparādhena
-> prasaṅgād bahavo hatāḥ
-> bhrātur vadhābhitaptena
+> nanv ekasyāparādhena\
+> prasaṅgād bahavo hatāḥ\
+> bhrātur vadhābhitaptena\
 > tvayāṅga bhrātṛ-vatsala
 
 *nanu*—certainly; *ekasya*—of one (Yakṣa); *aparādhena*—with the offense; *prasaṅgāt*—because of their association; *bahavaḥ*—many; *hatāḥ*—have been killed; *bhrātuḥ*—of your brother; *vadha*—by the death; *abhitaptena*—being aggrieved; *tvayā*—by you; *aṅga*—my dear son; *bhrātṛ-vatsala*—affectionate to your brother.

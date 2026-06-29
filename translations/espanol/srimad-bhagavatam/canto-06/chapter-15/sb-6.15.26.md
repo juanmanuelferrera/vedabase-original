@@ -1,11 +1,11 @@
 ### SB 6.15.26
 
-> तस्मात्स्वस्थेन मनसा विमृश्य गतिमात्मनः
+> तस्मात्स्वस्थेन मनसा विमृश्य गतिमात्मनः\
 > द्वैते ध्रुवार्थविश्रम्भं त्यजोपशममाविश ॥२६॥
 
-> tasmāt svasthena manasā
-> vimṛśya gatim ātmanaḥ
-> dvaite dhruvārtha-viśrambhaṁ
+> tasmāt svasthena manasā\
+> vimṛśya gatim ātmanaḥ\
+> dvaite dhruvārtha-viśrambhaṁ\
 > tyajopaśamam āviśa
 
 *tasmāt*—por lo tanto; *svasthena*—con una atenta; *manasā*—mente; *vimṛśya*—considerando; *gatim*—verdadera posición; *ātmanaḥ*—de ti mismo; *dvaite*—en la dualidad; *dhruva*—como permanente; *artha*—objeto; *viśrambham*—creencia; *tyaja*—abandona; *upaśamam*—un estado pacífico; *āviśa*—acepta.

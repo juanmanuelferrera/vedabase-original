@@ -1,9 +1,9 @@
 ### CC Adi 12.54
 
-> আচার্যের অভিপ্রায় প্রভুমাত্র বুঝে ।
+> আচার্যের অভিপ্রায় প্রভুমাত্র বুঝে ।\
 > প্রভুর গম্ভীর বাক্য আচার্য সমুঝে ॥৫৪॥
 
-> ācāryera abhiprāya prabhu-mātra bujhe
+> ācāryera abhiprāya prabhu-mātra bujhe\
 > prabhura gambhīra vākya ācārya samujhe
 
 *ācāryera*—of Advaita Ācārya; *abhiprāya*—intention; *prabhu-mātra*—only Lord Caitanya Mahāprabhu; *bujhe*—can understand; *prabhura*—of Lord Caitanya Mahāprabhu; *gambhīra*—grave; *vākya*—instruction; *ācārya*—Advaita Ācārya; *samujhe*—can understand.

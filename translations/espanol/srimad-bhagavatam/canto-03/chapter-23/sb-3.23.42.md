@@ -1,11 +1,11 @@
 ### SB 3.23.42
 
-> किं दुरापादनं तेषां पुंसामुद्दामचेतसाम् ।
+> किं दुरापादनं तेषां पुंसामुद्दामचेतसाम् ।\
 > यैराश्रितस्तीर्थपदश्चरणो व्यसनात्ययः ॥४२॥
 
-> kiṁ durāpādanaṁ teṣāṁ
-> puṁsām uddāma-cetasām
-> yair āśritas tīrtha-padaś
+> kiṁ durāpādanaṁ teṣāṁ\
+> puṁsām uddāma-cetasām\
+> yair āśritas tīrtha-padaś\
 > caraṇo vyasanātyayaḥ
 
 *kim*—qué; *durāpādanam*—difícil de conseguir; *teṣām*—para aquellos; *puṁsām*—hombres; *uddāma-cetasām*—que son resueltos; *yaiḥ*—quienes; *āśritaḥ*—refugiándose; *tīrtha-padaḥ*—de la Suprema Personalidad de Dios; *caraṇaḥ*—pies; *vyasana-atyayaḥ*—que vence peligros.

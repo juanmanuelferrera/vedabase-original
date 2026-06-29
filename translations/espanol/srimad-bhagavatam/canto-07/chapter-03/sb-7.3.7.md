@@ -1,12 +1,12 @@
 ### SB 7.3.7
 
-> दैत्येन्द्रतपसा तप्ता दिवि स्थातुं न शक्नुमः
-> तस्य चोपशमं भूमन्विधेहि यदि मन्यसे
+> दैत्येन्द्रतपसा तप्ता दिवि स्थातुं न शक्नुमः\
+> तस्य चोपशमं भूमन्विधेहि यदि मन्यसे\
 > लोका न यावन्नङ्क्ष्यन्ति बलिहारास्तवाभिभूः ॥७॥
 
-> tasya copaśamaṁ bhūman
-> vidhehi yadi manyase
-> lokā na yāvan naṅkṣyanti
+> tasya copaśamaṁ bhūman\
+> vidhehi yadi manyase\
+> lokā na yāvan naṅkṣyanti\
 > bali-hārās tavābhibhūḥ
 
 *tasya*—de esto; *ca*—en verdad; *upaśamam*—el cese; *bhūman*—¡oh, gran personalidad!; *vidhehi*—por favor, realiza; *yadi*—si; *manyase*—lo consideras conveniente; *lokāḥ*—todos los habitantes de los diversos planetas; *na*—no; *yāvat*—mientras; *naṅkṣyanti*—se perderán; *bali-hārāḥ*—que son obedientes a la adoración; *tava*—de ti; *abhibhūḥ*—¡oh, señor de todo el universo!.

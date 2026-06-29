@@ -1,9 +1,9 @@
 ### CC Madhya 25.43
 
-> পরমার্থ-বিচার গেল, করি মাত্র ‘বাদ’ ।
+> পরমার্থ-বিচার গেল, করি মাত্র ‘বাদ’ ।\
 > কাহাঁ মুক্তি পাব, কাহাঁ কৃষ্ণের প্রসাদ ॥৪৩॥
 
-> paramārtha-vicāra gela, kari mātra 'vāda'
+> paramārtha-vicāra gela, kari mātra 'vāda'\
 > kāhāṅ mukti pāba, kāhāṅ kṛṣṇera prasāda
 
 *parama-artha-vicāra*—discussion on spiritual matters; *gela*—has gone; *kari*—we do; *mātra vāda*—only argument and word jugglery; *kāhāṅ*—where; *mukti*—liberation; *pāba*—we shall get; *kāhāṅ*—where; *kṛṣṇera prasāda*—the mercy of the Supreme Personality of Godhead, Kṛṣṇa.

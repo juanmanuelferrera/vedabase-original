@@ -1,14 +1,14 @@
 ### SB 6.19.22
 
-> श्वोभूतेऽप उपस्पृश्य कृष्णमभ्यर्च्य पूर्ववत
-> पयःशृतेन जुहुयाच्चरुणा सह सर्पिषा
+> श्वोभूतेऽप उपस्पृश्य कृष्णमभ्यर्च्य पूर्ववत\
+> पयःशृतेन जुहुयाच्चरुणा सह सर्पिषा\
 > पाकयज्ञअविधानेन द्वादशैवाहुतीः पतिः ॥२२॥
 
-> śvo-bhūte 'pa upaspṛśya
-> kṛṣṇam abhyarcya pūrvavat
-> payaḥ-śṛtena juhuyāc
-> caruṇā saha sarpiṣā
-> pāka-yajña-vidhānena
+> śvo-bhūte 'pa upaspṛśya\
+> kṛṣṇam abhyarcya pūrvavat\
+> payaḥ-śṛtena juhuyāc\
+> caruṇā saha sarpiṣā\
+> pāka-yajña-vidhānena\
 > dvādaśaivāhutīḥ patiḥ
 
 *śvaḥ-bhūte*—on the following morning; *apaḥ*—water; *upaspṛśya*—contacting; *kṛṣṇam*—Lord Kṛṣṇa; *abhyarcya*—worshiping; *pūrva-vat*—as previously; *payaḥ-śṛtena*—with boiled milk; *juhuyāt*—one should offer; *caruṇā*—with an offering of sweet rice; *saha*—with; *sarpiṣā*—ghee; *pāka-yajña-vidhānena*—according to the injunctions of the *Gṛhya-sūtras*; *dvādaśa*—twelve; *eva*—indeed; *āhutīḥ*—oblations; *patiḥ*—the husband.

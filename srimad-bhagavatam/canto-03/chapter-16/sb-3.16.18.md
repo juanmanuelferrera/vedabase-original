@@ -1,11 +1,11 @@
 ### SB 3.16.18
 
-> त्वत्तः सनातनो धर्मो रक्ष्यते तनुभिस्तव ।
+> त्वत्तः सनातनो धर्मो रक्ष्यते तनुभिस्तव ।\
 > धर्मस्य परमो गुह्यो निर्विकारो भवान्मतः ॥१८॥
 
-> tvattaḥ sanātano dharmo
-> rakṣyate tanubhis tava
-> dharmasya paramo guhyo
+> tvattaḥ sanātano dharmo\
+> rakṣyate tanubhis tava\
+> dharmasya paramo guhyo\
 > nirvikāro bhavān mataḥ
 
 *tvattaḥ*—from You; *sanātanaḥ*—eternal; *dharmaḥ*—occupation; *rakṣyate*—is protected; *tanubhiḥ*—by multimanifestations; *tava*—Your; *dharmasya*—of religious principles; *paramaḥ*—the supreme; *guhyaḥ*—objective; *nirvikāraḥ*—unchangeable; *bhavān*—You; *mataḥ*—in our opinion.

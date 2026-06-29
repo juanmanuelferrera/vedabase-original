@@ -1,9 +1,9 @@
 ### CC Madhya 24.168
 
-> ‘আত্মা’-শব্দে ‘যত্ন’ কহে — যত্ন করিয়া ।
+> ‘আত্মা’-শব্দে ‘যত্ন’ কহে — যত্ন করিয়া ।\
 > “মুনয়োঽপি” কৃষ্ণ ভজে গুণাকৃষ্ট হঞা ॥১৬৮॥
 
-> 'ātmā'-śabde 'yatna' kahe—yatna kariyā
+> 'ātmā'-śabde 'yatna' kahe—yatna kariyā\
 > "munayo 'pi" kṛṣṇa bhaje guṇākṛṣṭa hañā
 
 *ātmā-śabde*—by the word *ātmā*; *yatna*—endeavor; *kahe*—one means; *yatna kariyā*—by great endeavor; *munayaḥ api*—even great saintly persons; *kṛṣṇa bhaje*—take to the devotional service of Kṛṣṇa; *guṇa-ākṛṣṭa hañā*—being attracted by His transcendental qualities.

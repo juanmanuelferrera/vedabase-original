@@ -1,11 +1,11 @@
 ### SB 1.15.9
 
-> यत्तेजसा नृपशिरोऽङ्घ्रिमहन्मखार्थमार्योऽनुजस्तव गजायुतसत्त्ववीर्यः ।
+> यत्तेजसा नृपशिरोऽङ्घ्रिमहन्मखार्थमार्योऽनुजस्तव गजायुतसत्त्ववीर्यः ।\
 > तेनाहृताः प्रमथनाथमखाय भूपा यन्मोचितास्तदनयन्बलिमध्वरे ते ॥९॥
 
-> yat-tejasā nṛpa-śiro-'ṅghrim ahan makhārtham
-> āryo 'nujas tava gajāyuta-sattva-vīryaḥ
-> tenāhṛtāḥ pramatha-nātha-makhāya bhūpā
+> yat-tejasā nṛpa-śiro-'ṅghrim ahan makhārtham\
+> āryo 'nujas tava gajāyuta-sattva-vīryaḥ\
+> tenāhṛtāḥ pramatha-nātha-makhāya bhūpā\
 > yan-mocitās tad-anayan balim adhvare te
 
 *yat*—cuyo; *tejasā*—por la influencia; *nṛpa-śiraḥ-aṅghrim*—aquel cuyos pies son adorados por las cabezas de los reyes; *ahan*—matado; *makha-artham*—para el sacrificio; *āryaḥ*—respetable; *anujaḥ*—hermano menor; *tava*—tu; *gaja-ayuta*—diez mil elefantes; *sattva-vīryaḥ*—existencia poderosa; *tena*—por él; *āhṛtāḥ*—reunido; *pramatha-nātha*—el señor de los fantasmas (Mahābhairava); *makhāya*—para el sacrificio; *bhūpāḥ*—reyes; *yat-mocitāḥ*—por quien fueron liberados; *tat-anayan*—todos ellos trajeron; *balim*—impuestos; *adhvare*—presentados; *te*—a ti.

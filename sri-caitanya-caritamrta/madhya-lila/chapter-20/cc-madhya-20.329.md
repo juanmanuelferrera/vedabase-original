@@ -1,9 +1,9 @@
 ### CC Madhya 20.329
 
-> যুগাবতার এবে শুন, সনাতন ।
+> যুগাবতার এবে শুন, সনাতন ।\
 > সত্য-ত্রেতা-দ্বাপর-কলি-যুগের গণন ॥৩২৯॥
 
-> yugāvatāra ebe śuna, sanātana
+> yugāvatāra ebe śuna, sanātana\
 > satya-tretā-dvāpara-kali-yugera gaṇana
 
 *yuga-avatāra*—incarnation of millenniums; *ebe*—now; *śuna*—hear; *sanātana*—O Sanātana Gosvāmī; *satya-tretā-dvāpara-kali-yugera*—of the Satya-yuga, Tretā-yuga, Dvāpara-yuga and Kali-yuga; *gaṇana*—the chronological order.

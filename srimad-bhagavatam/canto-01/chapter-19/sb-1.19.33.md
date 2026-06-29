@@ -1,11 +1,11 @@
 ### SB 1.19.33
 
-> येषां संस्मरणात्पुंसां सद्यः शुद्ध्यन्ति वै गृहाः ।
+> येषां संस्मरणात्पुंसां सद्यः शुद्ध्यन्ति वै गृहाः ।\
 > किं पुनर्दर्शनस्पर्श पादशौचासनादिभिः ॥३३॥
 
-> yeṣāṁ saṁsmaraṇāt puṁsāṁ
-> sadyaḥ śuddhyanti vai gṛhāḥ
-> kiṁ punar darśana-sparśa-
+> yeṣāṁ saṁsmaraṇāt puṁsāṁ\
+> sadyaḥ śuddhyanti vai gṛhāḥ\
+> kiṁ punar darśana-sparśa-\
 > pāda-śaucāsanādibhiḥ
 
 *yeṣām*—of whom; *saṁsmaraṇāt*—by remembrance; *puṁsām*—of a person; *sadyaḥ*—instantly; *śuddhyanti*—cleanses; *vai*—certainly; *gṛhāḥ*—all houses; *kim*—what; *punaḥ*—then; *darśana*—meeting; *sparśa*—touching; *pāda*—the feet; *śauca*—washing; *āsana-ādibhiḥ*—by offering a seat, etc.

@@ -1,11 +1,11 @@
 ### SB 4.4.6
 
-> आब्रह्मघोषोर्जितयज्ञवैशसं विप्रर्षिजुष्टं विबुधैश्च सर्वशः ।
+> आब्रह्मघोषोर्जितयज्ञवैशसं विप्रर्षिजुष्टं विबुधैश्च सर्वशः ।\
 > मृद्दार्वयःकाञ्चनदर्भचर्मभिर्निसृष्टभाण्डं यजनं समाविशत् ॥६॥
 
-> ābrahma-ghoṣorjita-yajña-vaiśasaṁ
-> viprarṣi-juṣṭaṁ vibudhaiś ca sarvaśaḥ
-> mṛd-dārv-ayaḥ-kāñcana-darbha-carmabhir
+> ābrahma-ghoṣorjita-yajña-vaiśasaṁ\
+> viprarṣi-juṣṭaṁ vibudhaiś ca sarvaśaḥ\
+> mṛd-dārv-ayaḥ-kāñcana-darbha-carmabhir\
 > nisṛṣṭa-bhāṇḍaṁ yajanaṁ samāviśat
 
 *ā*—de todas partes; *brahma-ghoṣa*—con el sonido de los himnos védicos; *ūrjita*—decorado; *yajña*—sacrificio; *vaiśasam*—destrucción de animales; *viprarṣi-juṣṭam*—al que habían acudido grandes sabios; *vibudhaiḥ*—con semidioses; *ca*—y; *sarvaśaḥ*—en todas direcciones; *mṛt*—arcilla; *dāru*—madera; *ayaḥ*—hierro; *kāñcana*—oro; *darbha*—hierba *kuśa*; *carmabhiḥ*—pieles; *nisṛṣṭa*—hechos de; *bhāṇḍam*—animales y potes para el sacrificio; *yajanam*—sacrificio; *samāviśat*—entraron.

@@ -1,11 +1,11 @@
 ### SB 8.1.12
 
-> न यस्याद्यन्तौ मध्यं च स्वः परो नान्तरं बहिः
+> न यस्याद्यन्तौ मध्यं च स्वः परो नान्तरं बहिः\
 > विश्वस्यामूनि यद्यस्माद्विश्वं च तदृतं महत ॥१२॥
 
-> na yasyādy-antau madhyaṁ ca
-> svaḥ paro nāntaraṁ bahiḥ
-> viśvasyāmūni yad yasmād
+> na yasyādy-antau madhyaṁ ca\
+> svaḥ paro nāntaraṁ bahiḥ\
+> viśvasyāmūni yad yasmād\
 > viśvaṁ ca tad ṛtaṁ mahat
 
 *na*—ni; *yasya*—de quien (de la Suprema Personalidad de Dios); *ādi*—un comienzo; *antau*—final; *madhyam*—medio; *ca*—también; *svaḥ*—propio; *paraḥ*—otros; *na*—ni; *antaram*—interior; *bahiḥ*—exterior; *viśvasya*—de toda la manifestación cósmica; *amūni*—todas esas consideraciones; *yat*—de cuya forma; *yasmāt*—de Él, que es la causa de todo; *viśvam*—el universo entero; *ca*—y; *tat*—todos ellos; *ṛtam*—verdad; *mahat*—enormemente grande.

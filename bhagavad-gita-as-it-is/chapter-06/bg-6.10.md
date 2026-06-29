@@ -1,11 +1,11 @@
 ### Bg 6.10
 
-> योगी युञ्जीत सततमात्मानं रहसि स्थितः ।
+> योगी युञ्जीत सततमात्मानं रहसि स्थितः ।\
 > एकाकी यतचित्तात्मा निराशीरपरिग्रहः ॥१०॥
 
-> yogī yuñjīta satatam
-> ātmānaṁ rahasi sthitaḥ
-> ekākī yata-cittātmā
+> yogī yuñjīta satatam\
+> ātmānaṁ rahasi sthitaḥ\
+> ekākī yata-cittātmā\
 > nirāśīr aparigrahaḥ
 
 *yogī*—a transcendentalist; *yuñjīta*—must concentrate in Kṛṣṇa consciousness; *satatam*—constantly; *ātmānam*—himself (by the body, mind and self); *rahasi*—in a secluded place; *sthitaḥ*—being so situated; *ekākī*—alone; *yata-cittātmā*—always careful in mind; *nirāśīḥ*—without being attracted by anything else; *aparigrahaḥ*—free from the feeling of possessiveness.

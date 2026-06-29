@@ -1,9 +1,9 @@
 ### CC Madhya 8.210
 
-> কৃষ্ণলীলামৃত যদি লতাকে সিঞ্চয় ।
+> কৃষ্ণলীলামৃত যদি লতাকে সিঞ্চয় ।\
 > নিজ-সুখ হৈতে পল্লবাদ্যের কোটি-সুখ হয় ॥২১০॥
 
-> kṛṣṇa-līlāmṛta yadi latāke siñcaya
+> kṛṣṇa-līlāmṛta yadi latāke siñcaya\
 > nija-sukha haite pallavādyera koṭi-sukha haya
 
 *kṛṣṇa-līlāmṛta*—the nectar of Kṛṣṇa's pastimes; *yadi*—if; *latāke*—the creeper; *siñcaya*—sprinkles; *nija-sukha haite*—than personal happiness; *pallava-ādyera*—of the twigs, flowers and leaves; *koṭi*—ten million times; *sukha*—the happiness; *haya*—there is.

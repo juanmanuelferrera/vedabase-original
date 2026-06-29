@@ -1,9 +1,9 @@
 ### CC Antya 3.222
 
-> তুমি খাইলে হয় কোটিব্রাহ্মণ-ভোজন ।”
+> তুমি খাইলে হয় কোটিব্রাহ্মণ-ভোজন ।”\
 > এত বলি, শ্রাদ্ধ-পাত্র করাইলা ভোজন ॥২২২॥
 
-> tumi khāile haya koṭi-brāhmaṇa-bhojana"
+> tumi khāile haya koṭi-brāhmaṇa-bhojana"\
 > eta bali, śrāddha-pātra karāilā bhojana
 
 *tumi khāile*—if you eat; *haya*—there is; *koṭi-brāhmaṇa-bhojana*—feeding ten million *brāhmaṇas*; *eta bali*—saying this; *śrāddha-pātra*—the dish offered to the forefathers; *karāilā bhojana*—made to eat.

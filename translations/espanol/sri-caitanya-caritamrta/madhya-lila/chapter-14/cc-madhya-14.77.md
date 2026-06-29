@@ -1,9 +1,9 @@
 ### CC Madhya 14.77
 
-> কভু এক মণ্ডল, কভু অনেক মণ্ডল ।
+> কভু এক মণ্ডল, কভু অনেক মণ্ডল ।\
 > জলমণ্ডূক-বাদ্যে সবে বাজায় করতাল ॥৭৭॥
 
-> kabhu eka maṇḍala, kabhu aneka maṇḍala
+> kabhu eka maṇḍala, kabhu aneka maṇḍala\
 > jala-maṇḍūka-vādye sabe bājāya karatāla
 
 *kabhu eka maṇḍala*—a veces un círculo; *kabhu*—a veces; *aneka maṇḍala*—varios círculos; *jala-maṇḍūka-vādye*—como el croar de las ranas en el agua; *sabe*—todos ellos; *bājāya*—tocan; *karatāla*—címbalos.

@@ -1,14 +1,14 @@
 ### SB 6.19.17
 
-> पतिं च परया भक्त्या महापुरुषचेतसा
-> प्रियैस्तैस्तैरुपनमेत्प्रेमशीलः स्वयं पतिः
+> पतिं च परया भक्त्या महापुरुषचेतसा\
+> प्रियैस्तैस्तैरुपनमेत्प्रेमशीलः स्वयं पतिः\
 > बिभृयात्सर्वकर्माणि पत्न्या उच्चावचानि च ॥१७॥
 
-> patiṁ ca parayā bhaktyā
-> mahāpuruṣa-cetasā
-> priyais tais tair upanamet
-> prema-śīlaḥ svayaṁ patiḥ
-> bibhṛyāt sarva-karmāṇi
+> patiṁ ca parayā bhaktyā\
+> mahāpuruṣa-cetasā\
+> priyais tais tair upanamet\
+> prema-śīlaḥ svayaṁ patiḥ\
+> bibhṛyāt sarva-karmāṇi\
 > patnyā uccāvacāni ca
 
 *patim*—the husband; *ca*—and; *parayā*—supreme; *bhaktyā*—with devotion; *mahā-puruṣa-cetasā*—accepting as the Supreme Person; *priyaiḥ*—dear; *taiḥ taiḥ*—by those (offerings); *upanamet*—should worship; *prema-śīlaḥ*—being affectionate; *svayam*—himself; *patiḥ*—the husband; *bibhṛyāt*—should execute; *sarva-karmāṇi*—all activities; *patnyāḥ*—of the wife; *ucca-avacāni*—high and low; *ca*—also.

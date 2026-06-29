@@ -1,13 +1,13 @@
 ### SB 3.11.16
 
-> विदुर उवाच
-> पितृदेवमनुष्याणामायुः परमिदं स्मृतम् ।
+> विदुर उवाच\
+> पितृदेवमनुष्याणामायुः परमिदं स्मृतम् ।\
 > परेषां गतिमाचक्ष्व ये स्युः कल्पाद्बहिर्विदः ॥१६॥
 
-> vidura uvāca
-> pitṛ-deva-manuṣyāṇām
-> āyuḥ param idaṁ smṛtam
-> pareṣāṁ gatim ācakṣva
+> vidura uvāca\
+> pitṛ-deva-manuṣyāṇām\
+> āyuḥ param idaṁ smṛtam\
+> pareṣāṁ gatim ācakṣva\
 > ye syuḥ kalpād bahir vidaḥ
 
 *viduraḥ uvāca*—Vidura dijo; *pitṛ*—los planetas Pitās; *deva*—los planetas celestiales; *manuṣyāṇām*—y la de los seres humanos; *āyuḥ*—duración de la vida; *param*—final; *idam*—en su propia medida; *smṛtam*—calculada; *pareṣām*—de las entidades vivientes superiores; *gatim*—duración de la vida; *ācakṣva*—ten la bondad de calcular; *ye*—todos aquellos que; *syuḥ*—son; *kalpāt*—del milenio; *bahiḥ*—fuera; *vidaḥ*—sumamente eruditos.

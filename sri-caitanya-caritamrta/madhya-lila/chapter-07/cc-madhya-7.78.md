@@ -1,9 +1,9 @@
 ### CC Madhya 7.78
 
-> চৌদিকেতে সব লোক বলে ‘হরি’ ‘হরি’ ।
+> চৌদিকেতে সব লোক বলে ‘হরি’ ‘হরি’ ।\
 > প্রেমাবেশে মধ্যে নৃত্য করে গৌরহরি ॥৭৮॥
 
-> caudikete saba loka bale 'hari' 'hari'
+> caudikete saba loka bale 'hari' 'hari'\
 > premāveśe madhye nṛtya kare gaurahari
 
 *caudikete*—all around; *saba loka*—all persons; *bale*—shout; *hari hari*—the holy name of the Lord; *prema-āveśe*—in ecstatic love; *madhye*—in the middle; *nṛtya kare*—dances; *gaurahari*—Śrī Caitanya Mahāprabhu.

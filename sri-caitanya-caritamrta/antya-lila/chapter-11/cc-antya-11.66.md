@@ -1,9 +1,9 @@
 ### CC Antya 11.66
 
-> ডোর, কড়ার, প্রসাদ, বস্ত্র অঙ্গে দিলা ।
+> ডোর, কড়ার, প্রসাদ, বস্ত্র অঙ্গে দিলা ।\
 > বালুকার গর্ত করি’ তাহে শোয়াইলা ॥৬৬॥
 
-> ḍora, kaḍāra, prasāda, vastra aṅge dilā
+> ḍora, kaḍāra, prasāda, vastra aṅge dilā\
 > vālukāra garta kari' tāhe śoyāilā
 
 *ḍora*—silken ropes; *kaḍāra*—remnants of Lord Jagannātha's sandalwood pulp; *prasāda*—remnants of Jagannātha's food; *vastra*—cloth; *aṅge*—on the body; *dilā*—gave; *vālukāra*—of sand; *garta*—a ditch; *kari'*—making; *tāhe*—within that; *śoyāilā*—put down.

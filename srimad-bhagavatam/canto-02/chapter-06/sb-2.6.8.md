@@ -1,11 +1,11 @@
 ### SB 2.6.8
 
-> अपां वीर्यस्य सर्गस्य पर्जन्यस्य प्रजापतेः ।
+> अपां वीर्यस्य सर्गस्य पर्जन्यस्य प्रजापतेः ।\
 > पुंसः शिश्न उपस्थस्तु प्रजात्यानन्दनिर्वृतेः ॥८॥
 
-> apāṁ vīryasya sargasya
-> parjanyasya prajāpateḥ
-> puṁsaḥ śiśna upasthas tu
+> apāṁ vīryasya sargasya\
+> parjanyasya prajāpateḥ\
+> puṁsaḥ śiśna upasthas tu\
 > prajāty-ānanda-nirvṛteḥ
 
 *apām*—of water; *vīryasya*—of the semen; *sargasya*—of the generative; *parjanyasya*—of rains; *prajāpateḥ*—of the creator; *puṁsaḥ*—of the Lord; *śiśnaḥ*—the genitals; *upasthaḥ tu*—the place where the genitals are situated; *prajāti*—due to begetting; *ānanda*—pleasure; *nirvṛteḥ*—cause.

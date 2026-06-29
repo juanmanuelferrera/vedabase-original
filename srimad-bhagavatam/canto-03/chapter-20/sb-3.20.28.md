@@ -1,11 +1,11 @@
 ### SB 3.20.28
 
-> सोऽवधार्यास्य कार्पण्यं विविक्ताध्यात्मदर्शनः ।
+> सोऽवधार्यास्य कार्पण्यं विविक्ताध्यात्मदर्शनः ।\
 > विमुञ्चात्मतनुं घोरामित्युक्तो विमुमोच ह ॥२८॥
 
-> so 'vadhāryāsya kārpaṇyaṁ
-> viviktādhyātma-darśanaḥ
-> vimuñcātma-tanuṁ ghorām
+> so 'vadhāryāsya kārpaṇyaṁ\
+> viviktādhyātma-darśanaḥ\
+> vimuñcātma-tanuṁ ghorām\
 > ity ukto vimumoca ha
 
 *saḥ*—the Supreme Lord, Hari; *avadhārya*—perceiving; *asya*—of Lord Brahmā; *kārpaṇyam*—the distress; *vivikta*—without a doubt; *adhyātma*—minds of others; *darśanaḥ*—one who can see; *vimuñca*—cast off; *ātma-tanum*—your body; *ghorām*—impure; *iti uktaḥ*—thus commanded; *vimumoca ha*—Lord Brahmā threw it off.

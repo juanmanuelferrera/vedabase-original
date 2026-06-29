@@ -1,11 +1,11 @@
 ### SB 7.13.35
 
-> विरागः सर्वकामेभ्यः शिक्षितो मे मधुव्रतात
+> विरागः सर्वकामेभ्यः शिक्षितो मे मधुव्रतात\
 > कृच्छ्राप्तं मधुवद्वित्तं हत्वाप्यन्यो हरेत्पतिम ॥३५॥
 
-> madhukāra-mahā-sarpau
-> loke 'smin no gurūttamau
-> vairāgyaṁ paritoṣaṁ ca
+> madhukāra-mahā-sarpau\
+> loke 'smin no gurūttamau\
+> vairāgyaṁ paritoṣaṁ ca\
 > prāptā yac-chikṣayā vayam
 
 *madhukāra*—abejas que van de flor en flor recogiendo miel; *mahā-sarpau*—la gran serpiente (la pitón, que no se mueve de un lugar a otro); *loke*—en el mundo; *asmin*—este; *naḥ*—nuestros; *guru*—maestros espirituales; *uttamau*—de primera categoría; *vairāgyam*—renunciación; *paritoṣam ca*—y satisfacción; *prāptāḥ*—obtenida; *yat-śikṣayā*—por cuya instrucción; *vayam*—nosotros.

@@ -1,11 +1,11 @@
 ### SB 3.8.30
 
-> चराचरौको भगवन्महीध्रमहीन्द्रबन्धुं सलिलोपगूढम् ।
+> चराचरौको भगवन्महीध्रमहीन्द्रबन्धुं सलिलोपगूढम् ।\
 > किरीटसाहस्रहिरण्यशृङ्गमाविर्भवत्कौस्तुभरत्नगर्भम् ॥३०॥
 
-> carācarauko bhagavan-mahīdhram
-> ahīndra-bandhuṁ salilopagūḍham
-> kirīṭa-sāhasra-hiraṇya-śṛṅgam
+> carācarauko bhagavan-mahīdhram\
+> ahīndra-bandhuṁ salilopagūḍham\
+> kirīṭa-sāhasra-hiraṇya-śṛṅgam\
 > āvirbhavat kaustubha-ratna-garbham
 
 *cara*—moving animals; *acara*—nonmoving trees; *okaḥ*—the place or situation; *bhagavat*—the Personality of Godhead; *mahīdhram*—the mountain; *ahi-indra*—Śrī Anantadeva; *bandhum*—friend; *salila*—water; *upagūḍham*—submerged; *kirīṭa*—helmets; *sāhasra*—thousands; *hiraṇya*—gold; *śṛṅgam*—peaks; *āvirbhavat*—manifested; *kaustubha*—the Kaustubha jewel; *ratna-garbham*—ocean.

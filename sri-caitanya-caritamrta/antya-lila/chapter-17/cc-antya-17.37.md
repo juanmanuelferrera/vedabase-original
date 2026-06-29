@@ -1,13 +1,13 @@
 ### CC Antya 17.37
 
-> অন্যকথা, অন্যমন, বাহিরে অন্য আচরণ,
-> এই সব শঠ-পরিপাটী ।
-> তুমি জান পরিহাস, হয় নারীর সর্বনাশ,
+> অন্যকথা, অন্যমন, বাহিরে অন্য আচরণ,\
+> এই সব শঠ-পরিপাটী ।\
+> তুমি জান পরিহাস, হয় নারীর সর্বনাশ,\
 > ছাড় এই সব কুটীনাটী ॥৩৭॥
 
-> anya-kathā, anya-mana, bāhire anya ācaraṇa,
-> ei saba śaṭha-paripāṭī
-> tumi jāna parihāsa, haya nārīra sarva-nāśa,
+> anya-kathā, anya-mana, bāhire anya ācaraṇa,\
+> ei saba śaṭha-paripāṭī\
+> tumi jāna parihāsa, haya nārīra sarva-nāśa,\
 > chāḍa ei saba kuṭīnāṭī
 
 *anya*—different; *kathā*—words; *anya*—different; *mana*—mind; *bāhire*—externally; *anya*—different; *ācaraṇa*—behavior; *ei*—these; *saba*—all; *śaṭha-paripāṭī*—well-planned cheating behavior; *tumi*—You; *jāna*—know; *parihāsa*—joking; *haya*—there is; *nārīra*—of women; *sarva-nāśa*—total annihilation; *chāḍa*—please give up; *ei*—these; *saba*—all; *kuṭīnāṭī*—clever tricks.

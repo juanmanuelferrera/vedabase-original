@@ -1,11 +1,11 @@
 ### SB 9.22.49
 
-> सुनीथः सत्यजिदथ विश्वजिद्यद्रिपुञ्जयः
+> सुनीथः सत्यजिदथ विश्वजिद्यद्रिपुञ्जयः\
 > बार्हद्रथाश्च भूपाला भाव्याः साहस्रवत्सरम ॥४९॥
 
-> sunīthaḥ satyajid atha
-> viśvajid yad ripuñjayaḥ
-> bārhadrathāś ca bhūpālā
+> sunīthaḥ satyajid atha\
+> viśvajid yad ripuñjayaḥ\
+> bārhadrathāś ca bhūpālā\
 > bhāvyāḥ sāhasra-vatsaram
 
 *sunīthaḥ*—de Subala vendrá Sunītha; *satyajit*—Satyajit; *atha*—de él; *viśvajit*—de Viśvajit; *yat*—de quien; *ripuñjayaḥ*—Ripuñjaya; *bārhadrathāḥ*—todos en la descendencia de Bṛhadratha; *ca*—también; *bhūpālāḥ*—todos esos reyes; *bhāvyāḥ*—nacerán; *sāhasra-vatsaram*—sucesivamente durante mil años.

@@ -1,14 +1,14 @@
 ### CC Adi 7.29-30
 
-> মায়াবাদী, কর্মনিষ্ঠ কুতার্কিকগণ ।
-> নিন্দক, পাষণ্ডী, যত পড়ুয়া অধম ॥২৯॥
-> সেই সব মহাদক্ষ ধাঞা পলাইল ।
+> মায়াবাদী, কর্মনিষ্ঠ কুতার্কিকগণ ।\
+> নিন্দক, পাষণ্ডী, যত পড়ুয়া অধম ॥২৯॥\
+> সেই সব মহাদক্ষ ধাঞা পলাইল ।\
 > সেই বন্যা তা-সবারে ছুঁইতে নারিল ॥৩০॥
 
-> māyāvādī, karma-niṣṭha kutārkika-gaṇa
+> māyāvādī, karma-niṣṭha kutārkika-gaṇa\
 > nindaka, pāṣaṇḍī yata paḍuyā adhama
 
-> sei saba mahādakṣa dhāñā palāila
+> sei saba mahādakṣa dhāñā palāila\
 > sei vanyā tā-sabāre chuṅite nārila
 
 *māyāvādī*—los filósofos impersonalistas; *karma-niṣṭha*—los trabajadores fruitivos; *kutārkika-gaṇa*—los falsos lógicos; *nindaka*—los blasfemos; *pāṣanḍī*—los no devotos; *yata*—todos; *paḍuyā*—estudiantes; *adhama*—la clase más baja; *sei saba*—todos ellos; *mahā-dakṣa*—son muy expertos; *dhāñā*—corriendo; *palāila*—se fueron; *sei vanyā*—esa inundación; *tā-sabāre*—todos ellos; *chuṅite*—alcanzando; *nārila*—no pudo.

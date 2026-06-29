@@ -1,18 +1,18 @@
 ### SB 9.20.8-9
 
-> दुष्मन्तो मृगयां यातः कण्वाश्रमपदं गतः
-> तत्रासीनां स्वप्रभया मण्डयन्तीं रमामिव ॥८॥
-> विलोक्य सद्यो मुमुहे देवमायामिव स्त्रियम
+> दुष्मन्तो मृगयां यातः कण्वाश्रमपदं गतः\
+> तत्रासीनां स्वप्रभया मण्डयन्तीं रमामिव ॥८॥\
+> विलोक्य सद्यो मुमुहे देवमायामिव स्त्रियम\
 > बभाषे तां वरारोहां भटैः कतिपयैर्वृतः ॥९॥
 
-> duṣmanto mṛgayāṁ yātaḥ
-> kaṇvāśrama-padaṁ gataḥ
-> tatrāsīnāṁ sva-prabhayā
+> duṣmanto mṛgayāṁ yātaḥ\
+> kaṇvāśrama-padaṁ gataḥ\
+> tatrāsīnāṁ sva-prabhayā\
 > maṇḍayantīṁ ramām iva
 
-> vilokya sadyo mumuhe
-> deva-māyām iva striyam
-> babhāṣe tāṁ varārohāṁ
+> vilokya sadyo mumuhe\
+> deva-māyām iva striyam\
+> babhāṣe tāṁ varārohāṁ\
 > bhaṭaiḥ katipayair vṛtaḥ
 
 *duṣmantaḥ*—Mahārāja Duṣmanta; *mṛgayām yātaḥ*—when he went hunting; *kaṇva-āśrama-padam*—to the residence of Kaṇva; *gataḥ*—he came; *tatra*—there; *āsīnām*—a woman sitting; *sva-prabhayā*—by her own beauty; *maṇḍayantīm*—illuminating; *ramām iva*—exactly like the goddess of fortune; *vilokya*—by observing; *sadyaḥ*—immediately; *mumuhe*—he became enchanted; *deva-māyām iva*—exactly like the illusory energy of the Lord; *striyam*—a beautiful woman; *babhāṣe*—he addressed; *tām*—her (the woman); *vara-ārohām*—who was the best of beautiful women; *bhaṭaiḥ*—by soldiers; *katipayaiḥ*—a few; *vṛtaḥ*—surrounded.

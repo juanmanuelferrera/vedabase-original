@@ -1,11 +1,11 @@
 ### SB 9.14.38
 
-> विधायालीकविश्रम्भमज्ञएषु त्यक्तसौहृदाः
+> विधायालीकविश्रम्भमज्ञएषु त्यक्तसौहृदाः\
 > नवं नवमभीप्सन्त्यः पुंश्चल्यः स्वैरवृत्तयः ॥३८॥
 
-> vidhāyālīka-viśrambham
-> ajñeṣu tyakta-sauhṛdāḥ
-> navaṁ navam abhīpsantyaḥ
+> vidhāyālīka-viśrambham\
+> ajñeṣu tyakta-sauhṛdāḥ\
+> navaṁ navam abhīpsantyaḥ\
 > puṁścalyaḥ svaira-vṛttayaḥ
 
 *vidhāya*—by establishing; *alīka*—false; *viśrambham*—faithfulness; *ajñeṣu*—unto the foolish men; *tyakta-sauhṛdāḥ*—who have given up the company of well-wishers; *navam*—new; *navam*—new; *abhīpsantyaḥ*—desiring; *puṁścalyaḥ*—women very easily allured by other men; *svaira*—independently; *vṛttayaḥ*—professional.

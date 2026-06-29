@@ -1,9 +1,9 @@
 ### CC Adi 2.18
 
-> আত্মান্তর্যামী যাঁরে যোগশাস্ত্রে কয় ।
+> আত্মান্তর্যামী যাঁরে যোগশাস্ত্রে কয় ।\
 > সেহ গোবিন্দের অংশ বিভূতি যে হয় ॥১৮॥
 
-> ātmāntaryāmī yāṅre yoga-śāstre kaya
+> ātmāntaryāmī yāṅre yoga-śāstre kaya\
 > seha govindera aṁśa vibhūti ye haya
 
 *ātmā antaḥ-yāmī*—la Superalma que mora en el interior; *yāṅre*—quien; *yoga-śāstre*—en las escrituras de yoga; *kaya*—se menciona; *seha*—eso; *govindera*—de Govinda; *aṁśa*—porción plenaria; *vibhūti*—expansión; *ye*—que; *haya*—es.

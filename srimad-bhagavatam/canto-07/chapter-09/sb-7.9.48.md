@@ -1,13 +1,13 @@
 ### SB 7.9.48
 
-> त्वं वायुरग्निरवनिर्वियदम्बु मात्राः
-> प्राणेन्द्रियाणि हृदयं चिदनुग्रहश्च
-> सर्वं त्वमेव सगुणो विगुणश्च भूमन
+> त्वं वायुरग्निरवनिर्वियदम्बु मात्राः\
+> प्राणेन्द्रियाणि हृदयं चिदनुग्रहश्च\
+> सर्वं त्वमेव सगुणो विगुणश्च भूमन\
 > नान्यत्त्वदस्त्यपि मनोवचसा निरुक्तम ॥४८॥
 
-> tvaṁ vāyur agnir avanir viyad ambu mātrāḥ
-> prāṇendriyāṇi hṛdayaṁ cid anugrahaś ca
-> sarvaṁ tvam eva saguṇo viguṇaś ca bhūman
+> tvaṁ vāyur agnir avanir viyad ambu mātrāḥ\
+> prāṇendriyāṇi hṛdayaṁ cid anugrahaś ca\
+> sarvaṁ tvam eva saguṇo viguṇaś ca bhūman\
 > nānyat tvad asty api mano-vacasā niruktam
 
 *tvam*—You (are); *vāyuḥ*—air; *agniḥ*—fire; *avaniḥ*—earth; *viyat*—sky; *ambu*—water; *mātrāḥ*—the sense objects; *prāṇa*—the life airs; *indriyāṇi*—the senses; *hṛdayam*—the mind; *cit*—consciousness; *anugrahaḥ ca*—and false ego or the demigods; *sarvam*—everything; *tvam*—You; *eva*—only; *sa-guṇaḥ*—material nature with its three modes; *viguṇaḥ*—the spiritual spark and Supersoul, which are beyond material nature; *ca*—and; *bhūman*—O my great Lord; *na*—not; *anyat*—other; *tvat*—than You; *asti*—is; *api*—although; *manaḥ-vacasā*—by mind and words; *niruktam*—everything manifested.

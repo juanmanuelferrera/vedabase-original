@@ -1,11 +1,11 @@
 ### SB 1.9.15
 
-> यत्र धर्मसुतो राजा गदापाणिर्वृकोदरः ।
+> यत्र धर्मसुतो राजा गदापाणिर्वृकोदरः ।\
 > कृष्णोऽस्त्री गाण्डिवं चापं सुहृत्कृष्णस्ततो विपत् ॥१५॥
 
-> yatra dharma-suto rājā
-> gadā-pāṇir vṛkodaraḥ
-> kṛṣṇo 'strī gāṇḍivaṁ cāpaṁ
+> yatra dharma-suto rājā\
+> gadā-pāṇir vṛkodaraḥ\
+> kṛṣṇo 'strī gāṇḍivaṁ cāpaṁ\
 > suhṛt kṛṣṇas tato vipat
 
 *yatra*—en donde esté; *dharma-sutaḥ*—el hijo de Dharmarāja; *rājā*—el rey; *gadā-pāṇiḥ*—con su poderosa maza en mano; *vṛkodaraḥ*—Bhīma; *kṛṣṇaḥ*—Arjuna; *astrī*—portador del arma; *gāṇḍivam*—Gāṇḍīva; *cāpam*—arco; *suhṛt*—bienqueriente; *kṛṣṇaḥ*—el Señor Kṛṣṇa, la Personalidad de Dios; *tataḥ*—de eso; *vipat*—revés.

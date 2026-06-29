@@ -1,11 +1,11 @@
 ### SB 4.19.26
 
-> तदभिज्ञाय भगवान्पृथुः पृथुपराक्रमः ।
+> तदभिज्ञाय भगवान्पृथुः पृथुपराक्रमः ।\
 > इन्द्राय कुपितो बाणमादत्तोद्यतकार्मुकः ॥२६॥
 
-> tad abhijñāya bhagavān
-> pṛthuḥ pṛthu-parākramaḥ
-> indrāya kupito bāṇam
+> tad abhijñāya bhagavān\
+> pṛthuḥ pṛthu-parākramaḥ\
+> indrāya kupito bāṇam\
 > ādattodyata-kārmukaḥ
 
 *tat*—eso; *abhijñāya*—entendiendo; *bhagavān*—la encarnación de Dios; *pṛthuḥ*—el rey Pṛthu; *pṛthu-parākramaḥ*—famoso por su gran poder; *indrāya*—con Indra; *kupitaḥ*—estando muy irritado; *bāṇam*—una flecha; *ādatta*—tomó; *udyata*—habiendo cogido; *kārmukaḥ*—el arco.

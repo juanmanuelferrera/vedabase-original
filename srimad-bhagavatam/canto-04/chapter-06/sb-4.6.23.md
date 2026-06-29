@@ -1,11 +1,11 @@
 ### SB 4.6.23
 
-> ददृशुस्तत्र ते रम्यामलकां नाम वै पुरीम् ।
+> ददृशुस्तत्र ते रम्यामलकां नाम वै पुरीम् ।\
 > वनं सौगन्धिकं चापि यत्र तन्नाम पङ्कजम् ॥२३॥
 
-> dadṛśus tatra te ramyām
-> alakāṁ nāma vai purīm
-> vanaṁ saugandhikaṁ cāpi
+> dadṛśus tatra te ramyām\
+> alakāṁ nāma vai purīm\
+> vanaṁ saugandhikaṁ cāpi\
 > yatra tan-nāma paṅkajam
 
 *dadṛśuḥ*—saw; *tatra*—there (in Kailāsa); *te*—they (the demigods); *ramyām*—very attractive; *alakām*—Alakā; *nāma*—known as; *vai*—indeed; *purīm*—abode; *vanam*—forest; *saugandhikam*—Saugandhika; *ca*—and; *api*—even; *yatra*—in which place; *tat-nāma*—known by that name; *paṅkajam*—species of lotus flowers.

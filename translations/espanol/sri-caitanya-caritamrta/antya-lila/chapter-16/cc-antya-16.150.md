@@ -1,13 +1,13 @@
 ### CC Antya 16.150
 
-> এতেক প্রলাপ করি’, প্রেমাবেশে গৌরহরি,
-> সঙ্গে লঞা স্বরূপ রামরায় ।
-> কভু নাচে, কভু গায়, ভাবাবেশে মূর্চ্ছা যায়,
+> এতেক প্রলাপ করি’, প্রেমাবেশে গৌরহরি,\
+> সঙ্গে লঞা স্বরূপ রামরায় ।\
+> কভু নাচে, কভু গায়, ভাবাবেশে মূর্চ্ছা যায়,\
 > এই রূপে রাত্রি-দিন যায় ॥১৫০॥
 
-> eteka pralāpa kari', premāveśe gaurahari,
-> saṅge lañā svarūpa-rāma-rāya
-> kabhu nāce, kabhu gāya, bhāvāveśe mūrcchā yāya,
+> eteka pralāpa kari', premāveśe gaurahari,\
+> saṅge lañā svarūpa-rāma-rāya\
+> kabhu nāce, kabhu gāya, bhāvāveśe mūrcchā yāya,\
 > ei-rūpe rātri-dina yāya
 
 *eteka*—tanto; *pralāpa kari'*—hablando como un loco; *prema-āveśe*—en el éxtasis del amor; *gaurahari*—Śrī Caitanya Mahāprabhu; *saṅge lañā*—llevando consigo; *svarūpa-rāma-rāya*—Svarūpa Dāmodara Gosvāmī y Rāmānanda Rāya; *kabhu nāce*—a veces danza; *kabhu gāya*—a veces canta; *bhāva-āveśe*—en el éxtasis del amor; *mūrcchā yāya*—pierde la conciencia; *ei-rūpe*—de esta manera; *rātri-dina*—toda la noche y el día; *yāya*—transcurre.

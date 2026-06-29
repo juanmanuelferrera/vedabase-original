@@ -1,11 +1,11 @@
 ### SB 1.9.30
 
-> तदोपसंहृत्य गिरः सहस्रणीर्विमुक्तसङ्गं मन आदिपूरुषे ।
+> तदोपसंहृत्य गिरः सहस्रणीर्विमुक्तसङ्गं मन आदिपूरुषे ।\
 > कृष्णे लसत्पीतपटे चतुर्भुजे पुरः स्थितेऽमीलितदृग्व्यधारयत् ॥३०॥
 
-> tadopasaṁhṛtya giraḥ sahasraṇīr
-> vimukta-saṅgaṁ mana ādi-pūruṣe
-> kṛṣṇe lasat-pīta-paṭe catur-bhuje
+> tadopasaṁhṛtya giraḥ sahasraṇīr\
+> vimukta-saṅgaṁ mana ādi-pūruṣe\
+> kṛṣṇe lasat-pīta-paṭe catur-bhuje\
 > puraḥ sthite 'mīlita-dṛg vyadhārayat
 
 *tadā*—en ese entonces; *upasaṁhṛtya*—apartando; *giraḥ*—discurso; *sahasraṇīḥ*—Bhīṣmadeva (quien era experto en miles de ciencias y artes); *vimukta-saṅgam*—completamente libre de todo lo demás; *manaḥ*—mente; *ādi-pūruṣe*—a la Personalidad de Dios original; *kṛṣṇe*—a Kṛṣṇa; *lasat-pīta-paṭe*—adornado con ropa amarilla; *catur-bhuje*—al Nārāyaṇa original de cuatro manos; *puraḥ*—justo antes; *sthite*—de pie; *amīlita*—muy abierto; *dṛk*—visión; *vyadhārayat*—fijó.

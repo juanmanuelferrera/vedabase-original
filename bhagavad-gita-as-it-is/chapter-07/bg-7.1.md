@@ -1,13 +1,13 @@
 ### Bg 7.1
 
-> श्रीभगवानुवाच ।
-> मय्यासक्तमनाः पार्थ योगं युञ्जन्मदाश्रयः ।
+> श्रीभगवानुवाच ।\
+> मय्यासक्तमनाः पार्थ योगं युञ्जन्मदाश्रयः ।\
 > असंशयं समग्रं मां यथा ज्ञास्यसि तच्छृणु ॥१॥
 
-> śrī-bhagavān uvāca
-> mayy āsakta-manāḥ pārtha
-> yogaṁ yuñjan mad-āśrayaḥ
-> asaṁśayaṁ samagraṁ māṁ
+> śrī-bhagavān uvāca\
+> mayy āsakta-manāḥ pārtha\
+> yogaṁ yuñjan mad-āśrayaḥ\
+> asaṁśayaṁ samagraṁ māṁ\
 > yathā jñāsyasi tac chṛṇu
 
 *śrī bhagavān uvāca*—the Supreme Lord said; *mayi*—unto Me; *āsakta-manāḥ*—mind attached; *pārtha*—O son of Pṛthā; *yogam*—self-realization; *yuñjan*—so practicing; *mat-āśrayaḥ*—in consciousness of Me (Kṛṣṇa consciousness); *asaṁśayam*—without doubt; *samagram*—completely; *mām*—unto Me; *yathā*—as much as; *jñāsyasi*—you can know; *tat*—that; *śṛṇu*—try to hear.

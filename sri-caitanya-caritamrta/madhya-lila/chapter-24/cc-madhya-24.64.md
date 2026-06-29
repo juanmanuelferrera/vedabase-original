@@ -1,9 +1,9 @@
 ### CC Madhya 24.64
 
-> চারি পুরুষার্থ ছাড়ায়, গুণে হরে সবার মন ।
+> চারি পুরুষার্থ ছাড়ায়, গুণে হরে সবার মন ।\
 > ‘হরি’-শব্দের এই মুখ্য কহিলুঁ লক্ষণ ॥৬৪॥
 
-> cāri puruṣārtha chāḍāya, guṇe hare sabāra mana
+> cāri puruṣārtha chāḍāya, guṇe hare sabāra mana\
 > 'hari'-śabdera ei mukhya kahiluṅ lakṣaṇa
 
 *cāri puruṣa-artha*—the four kinds of so-called goals of life; *chāḍāya*—causes to give up; *guṇe*—by the transcendental qualities; *hare*—attracts; *sabāra mana*—everyone's mind; *hari*—*hari*; *śabdera*—of the word; *ei*—this; *mukhya*—chief; *kahiluṅ*—I have explained; *lakṣaṇa*—the symptoms.

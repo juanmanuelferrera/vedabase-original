@@ -1,9 +1,9 @@
 ### CC Madhya 18.67
 
-> ‘শ্রীবন’ দেখি’ পুনঃ গেলা ‘লোহ-বন’ ।
+> ‘শ্রীবন’ দেখি’ পুনঃ গেলা ‘লোহ-বন’ ।\
 > ‘মহাবন’ গিয়া কৈলা জন্মস্থান-দরশন ॥৬৭॥
 
-> 'śrīvana' dekhi' punaḥ gelā 'loha-vana'
+> 'śrīvana' dekhi' punaḥ gelā 'loha-vana'\
 > 'mahāvana' giyā kailā janma-sthāna-daraśana
 
 *śrī-vana*—Śrīvana; *dekhi'*—viendo; *punaḥ*—de nuevo; *gelā*—fue; *loha-vana*—a Lohavana; *mahā-vana*—a Mahāvana; *giyā*—yendo; *kailā*—realizó; *janma-sthāna*—lugar de nacimiento; *daraśana*—visita.

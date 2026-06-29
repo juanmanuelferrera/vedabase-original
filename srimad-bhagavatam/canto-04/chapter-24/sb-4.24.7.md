@@ -1,11 +1,11 @@
 ### SB 4.24.7
 
-> तत्रापि हंसं पुरुषं परमात्मानमात्मदृक् ।
+> तत्रापि हंसं पुरुषं परमात्मानमात्मदृक् ।\
 > यजंस्तल्लोकतामाप कुशलेन समाधिना ॥७॥
 
-> tatrāpi haṁsaṁ puruṣaṁ
-> paramātmānam ātma-dṛk
-> yajaṁs tal-lokatām āpa
+> tatrāpi haṁsaṁ puruṣaṁ\
+> paramātmānam ātma-dṛk\
+> yajaṁs tal-lokatām āpa\
 > kuśalena samādhinā
 
 *tatra api*—despite his engagement; *haṁsam*—one who kills the distress of his kinsmen; *puruṣam*—unto the Supreme Person; *parama-ātmānam*—the most beloved Supersoul; *ātma-dṛk*—one who has seen or acquired self-realization; *yajan*—by worshiping; *tat-lokatām*—achieved the same planet; *āpa*—achieved; *kuśalena*—very easily; *samādhinā*—always keeping himself in ecstasy.

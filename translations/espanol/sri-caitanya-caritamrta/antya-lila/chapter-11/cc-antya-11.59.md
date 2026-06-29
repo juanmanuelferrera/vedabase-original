@@ -1,9 +1,9 @@
 ### CC Antya 11.59
 
-> হরিদাসের তনু প্রভু কোলে লৈলা উঠাঞা ।
+> হরিদাসের তনু প্রভু কোলে লৈলা উঠাঞা ।\
 > অঙ্গনে নাচেন প্রভু প্রেমাবিষ্ট হঞা ॥৫৯॥
 
-> haridāsera tanu prabhu kole laila uṭhāñā
+> haridāsera tanu prabhu kole laila uṭhāñā\
 > aṅgane nācena prabhu premāviṣṭa hañā
 
 *haridāsera*—de Haridāsa Ṭhākura; *tanu*—el cuerpo; *prabhu*—Śrī Caitanya Mahāprabhu; *kole*—en Su regazo; *laila*—tomó; *uṭhāñā*—levantando; *aṅgane*—en el patio; *nācena*—danza; *prabhu*—Śrī Caitanya Mahāprabhu; *premāviṣṭa hañā*—quedando abrumado de amor extático.

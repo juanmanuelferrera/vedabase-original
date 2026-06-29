@@ -1,11 +1,11 @@
 ### SB 7.2.41
 
-> भूतानि तैस्तैर्निजयोनिकर्मभिर्भवन्ति काले न भवन्ति सर्वशः
+> भूतानि तैस्तैर्निजयोनिकर्मभिर्भवन्ति काले न भवन्ति सर्वशः\
 > न तत्र हात्मा प्रकृतावपि स्थितस्तस्या गुणैरन्यतमो हि बध्यते ॥४१॥
 
-> bhūtāni tais tair nija-yoni-karmabhir
-> bhavanti kāle na bhavanti sarvaśaḥ
-> na tatra hātmā prakṛtāv api sthitas
+> bhūtāni tais tair nija-yoni-karmabhir\
+> bhavanti kāle na bhavanti sarvaśaḥ\
+> na tatra hātmā prakṛtāv api sthitas\
 > tasyā guṇair anyatamo hi badhyate
 
 *bhūtāni*—all the bodies of the living entities; *taiḥ taiḥ*—their own respective; *nija-yoni*—causing their own bodies; *karmabhiḥ*—by past activities; *bhavanti*—appear; *kāle*—in due course of time; *na bhavanti*—disappear; *sarvaśaḥ*—in all respects; *na*—not; *tatra*—there; *ha*—indeed; *ātmā*—the soul; *prakṛtau*—within this material world; *api*—although; *sthitaḥ*—situated; *tasyāḥ*—of her (the material energy); *guṇaiḥ*—by different modes; *anya-tamaḥ*—most different; *hi*—indeed; *badhyate*—is bound.

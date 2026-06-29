@@ -1,11 +1,11 @@
 ### SB 6.12.31
 
-> निगीर्णोऽप्यसुरेन्द्रेण न ममारोदरं गतः
+> निगीर्णोऽप्यसुरेन्द्रेण न ममारोदरं गतः\
 > महापुरुषसन्नद्धो योगमायाबलेन च ॥३१॥
 
-> nigīrṇo 'py asurendreṇa
-> na mamārodaraṁ gataḥ
-> mahāpuruṣa-sannaddho
+> nigīrṇo 'py asurendreṇa\
+> na mamārodaraṁ gataḥ\
+> mahāpuruṣa-sannaddho\
 > yogamāyā-balena ca
 
 *nigīrṇaḥ*—swallowed; *api*—although; *asura-indreṇa*—by the best of the demons, Vṛtrāsura; *na*—not; *mamāra*—died; *udaram*—the abdomen; *gataḥ*—reaching; *mahā-puruṣa*—by the armor of the Supreme Lord, Nārāyaṇa; *sannaddhaḥ*—being protected; *yoga-māyā-balena*—by the mystic power that Indra himself possessed; *ca*—also.

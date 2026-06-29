@@ -1,9 +1,9 @@
 ### CC Madhya 6.266
 
-> যদ্যপি সে মুক্তি হয় পঞ্চ-পরকার ।
+> যদ্যপি সে মুক্তি হয় পঞ্চ-পরকার ।\
 > সালোক্য-সামীপ্য-সারূপ্য-সার্ষ্টি-সাযুজ্য আর ॥২৬৬॥
 
-> yadyapi se mukti haya pañca-parakāra
+> yadyapi se mukti haya pañca-parakāra\
 > sālokya-sāmīpya-sārūpya-sārṣṭi-sāyujya āra
 
 *yadyapi*—although; *se*—that; *mukti*—liberation; *haya*—is; *pañca-parakāra*—of five different varieties; *sālokya*—of the name *sālokya*; *sāmīpya*—of the name *sāmīpya*; *sārūpya*—of the name *sārūpya*; *sārṣṭi*—of the name *sārṣṭi*; *sāyujya*—of the name *sāyujya*; *āra*—and.

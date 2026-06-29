@@ -1,9 +1,9 @@
 ### CC Adi 5.136
 
-> বৃষ হঞা কৃষ্ণসনে মাথামাথি রণ ।
+> বৃষ হঞা কৃষ্ণসনে মাথামাথি রণ ।\
 > কভু কৃষ্ণ করে তাঁর পাদ-সম্বাহন ॥১৩৬॥
 
-> vṛṣa hañā kṛṣṇa-sane māthā-māthi raṇa
+> vṛṣa hañā kṛṣṇa-sane māthā-māthi raṇa\
 > kabhu kṛṣṇa kare tāṅra pāda-saṁvāhana
 
 *vṛṣa hañā*—convirtiéndose en un toro; *kṛṣṇa-sane*—con Kṛṣṇa; *māthā-māthi raṇa*—luchando cabeza contra cabeza; *kabhu*—a veces; *kṛṣṇa*—Kṛṣṇa; *kare*—hace; *tāṅra*—Sus; *pāda-saṁvāhana*—masaje de los pies.

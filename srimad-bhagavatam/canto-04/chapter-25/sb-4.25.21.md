@@ -1,11 +1,11 @@
 ### SB 4.25.21
 
-> अञ्चशीर्षाहिना गुप्तां प्रतीहारेण सर्वतः ।
+> अञ्चशीर्षाहिना गुप्तां प्रतीहारेण सर्वतः ।\
 > अन्वेषमाणामृषभमप्रौढां कामरूपिणीम् ॥२१॥
 
-> pañca-śīrṣāhinā guptāṁ
-> pratīhāreṇa sarvataḥ
-> anveṣamāṇām ṛṣabham
+> pañca-śīrṣāhinā guptāṁ\
+> pratīhāreṇa sarvataḥ\
+> anveṣamāṇām ṛṣabham\
 > aprauḍhāṁ kāma-rūpiṇīm
 
 *pañca*—five; *śīrṣa*—heads; *ahinā*—by a snake; *guptām*—protected; *pratīhāreṇa*—by a bodyguard; *sarvataḥ*—all around; *anveṣamāṇām*—one who is searching after; *ṛṣabham*—a husband; *aprauḍhām*—not very old; *kāma-rūpiṇīm*—very attractive to fulfill lusty desires.

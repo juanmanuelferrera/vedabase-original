@@ -1,13 +1,13 @@
 ### CC Adi 5.72
 
-> ক্বাহং তমো-মহদহং-খ-চরাগ্নিবার্ভূ-
-> সংবেষ্টিতাণ্ডঘট-সপ্তবিতস্তিকায়ঃ ।
-> ক্বেদৃগ্বিধাঽবিগণিতাণ্ডপরাণুচর্যা-
+> ক্বাহং তমো-মহদহং-খ-চরাগ্নিবার্ভূ-\
+> সংবেষ্টিতাণ্ডঘট-সপ্তবিতস্তিকায়ঃ ।\
+> ক্বেদৃগ্বিধাঽবিগণিতাণ্ডপরাণুচর্যা-\
 > বাতাধ্বরোমবিবরস্য চ তে মহিত্বম্ ॥৭২॥
 
-> kvāhaṁ tamo-mahad-ahaṁ-kha-carāgni-vār-bhū-
-> saṁveṣṭitāṇḍa-ghaṭa-sapta-vitasti-kāyaḥ
-> kvedṛg-vidhāvigaṇitāṇḍa-parāṇu-caryā-
+> kvāhaṁ tamo-mahad-ahaṁ-kha-carāgni-vār-bhū-\
+> saṁveṣṭitāṇḍa-ghaṭa-sapta-vitasti-kāyaḥ\
+> kvedṛg-vidhāvigaṇitāṇḍa-parāṇu-caryā-\
 > vātādhva-roma-vivarasya ca te mahitvam
 
 *kva*—where; *aham*—I; *tamaḥ*—material nature; *mahat*—the total material energy; *aham*—false ego; *kha*—ether; *cara*—air; *agni*—fire; *vāḥ*—water; *bhū*—earth; *saṁveṣṭita*—surrounded by; *aṇḍa-ghaṭa*—a potlike universe; *sapta-vitasti*—seven *vitastis*; *kāyaḥ*—body; *kva*—where; *īdṛk*—such; *vidha*—like; *avigaṇita*—unlimited; *aṇḍa*—universes; *para-aṇu-caryā*—moving like the atomic dust; *vāta-adhva*—air holes; *roma*—of hair on the body; *vivarasya*—of the holes; *ca*—also; *te*—Your; *mahitvam*—greatness.

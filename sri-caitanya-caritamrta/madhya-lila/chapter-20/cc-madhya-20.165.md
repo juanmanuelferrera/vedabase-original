@@ -1,9 +1,9 @@
 ### CC Madhya 20.165
 
-> স্বয়ংরূপ, তদেকাত্মরূপ, আবেশ — নাম ।
+> স্বয়ংরূপ, তদেকাত্মরূপ, আবেশ — নাম ।\
 > প্রথমেই তিনরূপে রহেন ভগবান্ ॥১৬৫॥
 
-> sva yaṁ-rūpa, tad-ekātma-rūpa, āveśa—nāma
+> sva yaṁ-rūpa, tad-ekātma-rūpa, āveśa—nāma\
 > prathamei tina-rūpe rahena bhagavān
 
 *sva yam-rūpa*—the personal form; *tat-ekātma-rūpa*—the same form, nondifferent from svayaṁ-rūpa; *āveśa*—especially empowered; *nāma*—named; *prathamei*—in the beginning; *tina-rūpe*—in three forms; *rahena*—remains; *bhagavān*—the Supreme Personality of Godhead.

@@ -1,11 +1,11 @@
 ### SB 6.5.29
 
-> इति तानपि राजेन्द्र प्रजासर्गधियो मुनिः
+> इति तानपि राजेन्द्र प्रजासर्गधियो मुनिः\
 > उपेत्य नारदः प्राह वाचः कूटानि पूर्ववत ॥२९॥
 
-> iti tān api rājendra
-> prajā-sarga-dhiyo muniḥ
-> upetya nāradaḥ prāha
+> iti tān api rājendra\
+> prajā-sarga-dhiyo muniḥ\
+> upetya nāradaḥ prāha\
 > vācaḥ kūṭāni pūrvavat
 
 *iti*—así; *tān*—a ellos (a los hijos de Prajāpati Dakṣa conocidos con el nombre de Savalāśvas); *api*—también; *rājendra*—¡oh, rey Parīkṣit!; *prajā-sarga-dhiyaḥ*—que tenían la impresión de que el deber más importante era engendrar hijos; *muniḥ*—el gran sabio; *upetya*—fue a ver; *nāradaḥ*—Nārada; *prāha*—dijo; *vācaḥ*—palabras; *kūṭāni*—enigmáticas; *pūrva-vat*—como había hecho anteriormente.

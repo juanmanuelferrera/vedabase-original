@@ -1,11 +1,11 @@
 ### SB 6.9.32
 
-> यत्ते गतीनां तिसृणामीशितुः परमं पदम
+> यत्ते गतीनां तिसृणामीशितुः परमं पदम\
 > नार्वाचीनो विसर्गस्य धातर्वेदितुमर्हति ॥३२॥
 
-> yat te gatīnāṁ tisṛṇām
-> īśituḥ paramaṁ padam
-> nārvācīno visargasya
+> yat te gatīnāṁ tisṛṇām\
+> īśituḥ paramaṁ padam\
+> nārvācīno visargasya\
 > dhātar veditum arhati
 
 *yat*—which; *te*—of You; *gatīnām tisṛṇām*—of the three destinations (the heavenly planets, the earthly planets and hell); *īśituḥ*—who are the controller; *paramam padam*—the supreme abode, Vaikuṇṭhaloka; *na*—not; *arvācīnaḥ*—a person appearing after; *visargasya*—the creation; *dhātaḥ*—O supreme controller; *veditum*—to understand; *arhati*—is able.

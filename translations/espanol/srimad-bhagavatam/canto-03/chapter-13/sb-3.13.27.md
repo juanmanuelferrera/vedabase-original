@@ -1,11 +1,11 @@
 ### SB 3.13.27
 
-> उत्क्षिप्तवालः खचरः कठोरः सटा विधुन्वन्खररोमशत्वक् ।
+> उत्क्षिप्तवालः खचरः कठोरः सटा विधुन्वन्खररोमशत्वक् ।\
 > खुराहताभ्रः सितदंष्ट्र ईक्षा ज्योतिर्बभासे भगवान्महीध्रः ॥२७॥
 
-> utkṣipta-vālaḥ kha-caraḥ kaṭhoraḥ
-> saṭā vidhunvan khara-romaśa-tvak
-> khurāhatābhraḥ sita-daṁṣṭra īkṣā-
+> utkṣipta-vālaḥ kha-caraḥ kaṭhoraḥ\
+> saṭā vidhunvan khara-romaśa-tvak\
+> khurāhatābhraḥ sita-daṁṣṭra īkṣā-\
 > jyotir babhāse bhagavān mahīdhraḥ
 
 *utkṣipta-vālaḥ*—azotando con la cola; *kha-caraḥ*—en el cielo; *kaṭhoraḥ*—muy duros; *saṭāḥ*—pelos en el lomo; *vidhunvan*—temblando; *khara*—afilados; *romaśa-tvak*—piel llena de pelos; *khura-āhata*—golpeadas por las pezuñas; *abhraḥ*—las nubes; *sita-daṁṣṭraḥ*—colmillos blancos; *īkṣā*—mirada; *jyotiḥ*—luminosa; *babhāse*—empezó a emitir una refulgencia; *bhagavān*—la Personalidad de Dios; *mahī-dhraḥ*—el sustentador del mundo.

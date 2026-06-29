@@ -1,11 +1,11 @@
 ### SB 4.6.22
 
-> पर्यस्तं नन्दया सत्याः स्नानपुण्यतरोदया ।
+> पर्यस्तं नन्दया सत्याः स्नानपुण्यतरोदया ।\
 > विलोक्य भूतेशगिरिं विबुधा विस्मयं ययुः ॥२२॥
 
-> paryastaṁ nandayā satyāḥ
-> snāna-puṇyatarodayā
-> vilokya bhūteśa-giriṁ
+> paryastaṁ nandayā satyāḥ\
+> snāna-puṇyatarodayā\
+> vilokya bhūteśa-giriṁ\
 > vibudhā vismayaṁ yayuḥ
 
 *paryastam*—surrounded; *nandayā*—by the Nandā; *satyāḥ*—of Satī; *snāna*—by the bathing; *puṇya-tara*—especially flavored; *udayā*—with water; *vilokya*—after seeing; *bhūta-īśa*—of Bhūteśa (the lord of the ghosts, Lord Śiva); *girim*—the mountain; *vibudhāḥ*—the demigods; *vismayam*—wonder; *yayuḥ*—obtained.

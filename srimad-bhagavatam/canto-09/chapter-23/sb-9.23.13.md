@@ -1,11 +1,11 @@
 ### SB 9.23.13
 
-> योऽसौ गङ्गातटे क्रीडन्मञ्जूषान्तर्गतं शिशुम
+> योऽसौ गङ्गातटे क्रीडन्मञ्जूषान्तर्गतं शिशुम\
 > कुन्त्यापविद्धं कानीनमनपत्योऽकरोत्सुतम ॥१३॥
 
-> yo 'sau gaṅgā-taṭe krīḍan
-> mañjūṣāntargataṁ śiśum
-> kuntyāpaviddhaṁ kānīnam
+> yo 'sau gaṅgā-taṭe krīḍan\
+> mañjūṣāntargataṁ śiśum\
+> kuntyāpaviddhaṁ kānīnam\
 > anapatyo 'karot sutam
 
 *yaḥ asau*—one who (Adhiratha); *gaṅgā-taṭe*—on the bank of the Ganges; *krīḍan*—while playing; *mañjūṣa-antaḥgatam*—packed in a basket; *śiśum*—a baby was found; *kuntyā apaviddham*—this baby had been abandoned by Kuntī; *kānīnam*—because the baby was born during her maiden state, before her marriage; *anapatyaḥ*—this Adhiratha, being sonless; *akarot*—accepted the baby; *sutam*—as his son.

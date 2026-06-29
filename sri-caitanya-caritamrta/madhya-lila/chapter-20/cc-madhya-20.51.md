@@ -1,9 +1,9 @@
 ### CC Madhya 20.51
 
-> তাঁহারে অঙ্গনে দেখি’ প্রভু ধাঞা আইলা ।
+> তাঁহারে অঙ্গনে দেখি’ প্রভু ধাঞা আইলা ।\
 > তাঁরে আলিঙ্গন করি’ প্রেমাবিষ্ট হৈলা ॥৫১॥
 
-> tāṅhāre aṅgane dekhi' prabhu dhāñā āilā
+> tāṅhāre aṅgane dekhi' prabhu dhāñā āilā\
 > tāṅre āliṅgana kari' premāviṣṭa hailā
 
 *tāṅhāre*—him; *aṅgane*—in the courtyard; *dekhi'*—seeing; *prabhu*—Śrī Caitanya Mahāprabhu; *dhāñā āilā*—came to see him with great haste; *tāṅre*—him; *āliṅgana kari'*—embracing; *prema-āviṣṭa hailā*—became overwhelmed with ecstatic love.

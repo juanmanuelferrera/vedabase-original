@@ -1,9 +1,9 @@
 ### CC Adi 8.36
 
-> চৈতন্য-নিতাইর যাতে জানিয়ে মহিমা ।
+> চৈতন্য-নিতাইর যাতে জানিয়ে মহিমা ।\
 > যাতে জানি কৃষ্ণভক্তিসিদ্ধান্তের সীমা ॥৩৬॥
 
-> caitanya-nitāira yāte jāniye mahimā
+> caitanya-nitāira yāte jāniye mahimā\
 > yāte jāni kṛṣṇa-bhakti-siddhāntera sīmā
 
 *caitanya-nitāira*—del Señor Śrī Caitanya Mahāprabhu y Nityānanda Prabhu; *yāte*—en el cual; *jāniye*—se puede conocer; *mahimā*—todas las glorias; *yāte*—en el cual; *jāni*—puedo entender; *kṛṣṇa-bhakti*—de la devoción al Señor Kṛṣṇa; *siddhāntera*—de la conclusión; *sīmā*—límite.

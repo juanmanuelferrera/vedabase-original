@@ -1,11 +1,11 @@
 ### SB 6.1.15
 
-> केचित्केवलया भक्त्या वासुदेवपरायणाः
+> केचित्केवलया भक्त्या वासुदेवपरायणाः\
 > अघं धुन्वन्ति कार्त्स्न्येन नीहारमिव भास्करः ॥१५॥
 
-> kecit kevalayā bhaktyā
-> vāsudeva-parāyaṇāḥ
-> aghaṁ dhunvanti kārtsnyena
+> kecit kevalayā bhaktyā\
+> vāsudeva-parāyaṇāḥ\
+> aghaṁ dhunvanti kārtsnyena\
 > nīhāram iva bhāskaraḥ
 
 *kecit*—algunas personas; *kevalayā bhaktyā*—con la práctica de servicio devocional; *vāsudeva*—al Señor Kṛṣṇa, la omnipresente Suprema Personalidad de Dios; *parāyaṇāḥ*—completamente apegada (solo a ese servicio, sin depender de la austeridad, la penitencia, el cultivo de conocimiento o las actividades piadosas); *agham*—todo tipo de reacciones pecaminosas; *dhunvanti*—destruyen; *kārtsnyena*—por completo (sin posibilidad de que los deseos pecaminosos revivan); *nīhāram*—niebla; *iva*—como; *bhāskaraḥ*—el Sol.

@@ -1,11 +1,11 @@
 ### SB 9.2.25
 
-> विविंशतेः सुतो रम्भः खनीनेत्रोऽस्य धार्मिकः
+> विविंशतेः सुतो रम्भः खनीनेत्रोऽस्य धार्मिकः\
 > करन्धमो महाराज तस्यासीदात्मजो नृप ॥२५॥
 
-> viviṁśateḥ suto rambhaḥ
-> khanīnetro 'sya dhārmikaḥ
-> karandhamo mahārāja
+> viviṁśateḥ suto rambhaḥ\
+> khanīnetro 'sya dhārmikaḥ\
+> karandhamo mahārāja\
 > tasyāsīd ātmajo nṛpa
 
 *viviṁśateḥ*—de Viviṁśati; *sutaḥ*—el hijo; *rambhaḥ*—llamado Rambha; *khanīnetraḥ*—llamado Khanīnetra; *asya*—de Rambha; *dhārmikaḥ*—muy religioso; *karandhamaḥ*—llamado Karandhama; *mahārāja*—¡oh, rey!; *tasya*—de él (de Khanīnetra); *āsīt*—era; *ātmajaḥ*—el hijo; *nṛpa*—¡oh, rey!.

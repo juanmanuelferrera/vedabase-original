@@ -1,13 +1,13 @@
 ### CC Antya 17.51
 
-> কিমিহ কৃণুমঃ কস্য ব্রূমঃ কৃতং কৃতমাশয়া
-> কথয়ত কথামন্যাং ধন্যামহো হৃদয়েশয়ঃ ।
-> মধুরমধুরস্মেরাকারে মনোনয়নোৎসবে
+> কিমিহ কৃণুমঃ কস্য ব্রূমঃ কৃতং কৃতমাশয়া\
+> কথয়ত কথামন্যাং ধন্যামহো হৃদয়েশয়ঃ ।\
+> মধুরমধুরস্মেরাকারে মনোনয়নোৎসবে\
 > কৃপণকৃপণা কৃষ্ণে তৃষ্ণা চিরং বত লম্বতে ॥৫১॥
 
-> kim iha kṛṇumaḥ kasya brūmaḥ kṛtaṁ kṛtam āśayā
-> kathayata kathām anyāṁ dhanyām aho hṛdaye śayaḥ
-> madhura-madhura-smerākāre mano-nayanotsave
+> kim iha kṛṇumaḥ kasya brūmaḥ kṛtaṁ kṛtam āśayā\
+> kathayata kathām anyāṁ dhanyām aho hṛdaye śayaḥ\
+> madhura-madhura-smerākāre mano-nayanotsave\
 > kṛpaṇa-kṛpaṇā kṛṣṇe tṛṣṇā ciraṁ bata lambate
 
 *kim*—what; *iha*—here; *kṛṇumaḥ*—shall I do; *kasya*—to whom; *brūmaḥ*—shall I speak; *kṛtam*—what is done; *kṛtam*—done; *āśayā*—in the hope; *kathayata*—please speak; *kathām*—words; *anyām*—other; *dhanyām*—auspicious; *aho*—alas; *hṛdaye*—within My heart; *śayaḥ*—lying; *madhura-madhura*—sweeter than sweetness; *smera*—smiling; *ākāre*—whose form; *manaḥ-nayana*—to the mind and eyes; *utsave*—who gives pleasure; *kṛpaṇa-kṛpaṇā*—the best of misers; *kṛṣṇe*—for Kṛṣṇa; *tṛṣṇā*—thirst; *ciram*—at every moment; *bata*—alas; *lambate*—is increasing.

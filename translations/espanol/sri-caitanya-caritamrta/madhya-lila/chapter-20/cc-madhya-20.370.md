@@ -1,9 +1,9 @@
 ### CC Madhya 20.370
 
-> বৈকুণ্ঠে ‘শেষ’ — ধরা ধরয়ে ‘অনন্ত’ ।
+> বৈকুণ্ঠে ‘শেষ’ — ধরা ধরয়ে ‘অনন্ত’ ।\
 > এই মুখ্যাবেশাবতার — বিস্তারে নাহি অন্ত ॥৩৭০॥
 
-> vaikuṇṭhe 'śeṣa'--dharā dharaye 'ananta'
+> vaikuṇṭhe 'śeṣa'--dharā dharaye 'ananta'\
 > ei mukhyāveśāvatāra--vistāre nāhi anta
 
 *vaikuṇṭhe*—en el mundo espiritual; *śeṣa*—el Señor Śeṣa; *dharā dharaye*—sostiene innumerables planetas; *ananta*—Ananta; *ei*—estas; *mukhya-āveśa-avatāra*—encarnaciones primarias directamente investidas de poder; *vistāre*—al expandirlas; *nāhi*—no hay; *anta*—límite.

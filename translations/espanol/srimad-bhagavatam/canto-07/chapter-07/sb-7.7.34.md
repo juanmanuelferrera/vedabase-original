@@ -1,11 +1,11 @@
 ### SB 7.7.34
 
-> निशम्य कर्माणि गुणानतुल्यान्वीर्याणि लीलातनुभिः कृतानि
+> निशम्य कर्माणि गुणानतुल्यान्वीर्याणि लीलातनुभिः कृतानि\
 > यदातिहर्षोत्पुलकाश्रुगद्गदं प्रोत्कण्ठ उद्गायति रौति नृत्यति ॥३४॥
 
-> niśamya karmāṇi guṇān atulyān
-> vīryāṇi līlā-tanubhiḥ kṛtāni
-> yadātiharṣotpulakāśru-gadgadaṁ
+> niśamya karmāṇi guṇān atulyān\
+> vīryāṇi līlā-tanubhiḥ kṛtāni\
+> yadātiharṣotpulakāśru-gadgadaṁ\
 > protkaṇṭha udgāyati rauti nṛtyati
 
 *niśamya*—escuchar; *karmāṇi*—las actividades trascendentales; *guṇān*—las cualidades espirituales; *atulyān*—extraordinarias (que no suelen verse en la gente común); *vīryāṇi*—muy poderoso; *līlā-tanubhiḥ*—con diversas formas para pasatiempos; *kṛtāni*—realizados; *yadā*—cuando; *atiharṣa*—debido a su gran júbilo; *utpulaka*—erizamiento del vello; *aśru*—lágrimas en los ojos; *gadgadam*—voz ahogada; *protkaṇṭhaḥ*—en voz alta; *udgāyati*—canta muy fuerte; *rauti*—llora; *nṛtyati*—baila.

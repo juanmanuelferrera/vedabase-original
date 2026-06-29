@@ -1,9 +1,9 @@
 ### CC Adi 14.31
 
-> মাটির বিকার অন্ন খাইলে দেহ-পুষ্টি হয় ।
+> মাটির বিকার অন্ন খাইলে দেহ-পুষ্টি হয় ।\
 > মাটি খাইলে রোগ হয়, দেহ যায় ক্ষয় ॥৩১॥
 
-> māṭira vikāra anna khāile deha-puṣṭi haya
+> māṭira vikāra anna khāile deha-puṣṭi haya\
 > māṭi khāile roga haya, deha yāya kṣaya
 
 *māṭira*—of the dirt; *vikāra*—transformation; *anna*—food grains; *khāile*—by eating; *deha*—of the body; *puṣṭi*—nourishment; *haya*—becomes; *māṭi*—the dirt; *khāile*—by eating; *roga*—disease; *haya*—becomes; *deha*—the body; *yāya*—goes; *kṣaya*—to destruction.

@@ -1,13 +1,13 @@
 ### SB 4.12.21
 
-> विज्ञाय तावुत्तमगायकिङ्कराव्
-> अभ्युत्थितः साध्वसविस्मृतक्रमः ।
-> ननाम नामानि गृणन्मधुद्विषः
+> विज्ञाय तावुत्तमगायकिङ्कराव्\
+> अभ्युत्थितः साध्वसविस्मृतक्रमः ।\
+> ननाम नामानि गृणन्मधुद्विषः\
 > पार्षत्प्रधानाविति संहताञ्जलिः ॥२१॥
 
-> vijñāya tāv uttamagāya-kiṅkarāv
-> abhyutthitaḥ sādhvasa-vismṛta-kramaḥ
-> nanāma nāmāni gṛṇan madhudviṣaḥ
+> vijñāya tāv uttamagāya-kiṅkarāv\
+> abhyutthitaḥ sādhvasa-vismṛta-kramaḥ\
+> nanāma nāmāni gṛṇan madhudviṣaḥ\
 > pārṣat-pradhānāv iti saṁhatāñjaliḥ
 
 *vijñāya*—after understanding; *tau*—them; *uttama-gāya*—of Lord Viṣṇu (of excellent renown); *kiṅkarau*—two servants; *abhyutthitaḥ*—stood up; *sādhvasa*—by being puzzled; *vismṛta*—forgot; *kramaḥ*—proper behavior; *nanāma*—offered obeisances; *nāmāni*—names; *gṛṇan*—chanting; *madhu-dviṣaḥ*—of the Lord (the enemy of Madhu); *pārṣat*—associates; *pradhānau*—chief; *iti*—thus; *saṁhata*—respectfully joined; *añjaliḥ*—with folded hands.

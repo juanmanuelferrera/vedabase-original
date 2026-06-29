@@ -1,18 +1,18 @@
 ### SB 6.13.12-13
 
-> तां ददर्शानुधावन्तीं चाण्डालीमिव रूपिणीम
-> जरया वेपमानाङ्गीं यक्ष्मग्रस्तामसृक्पटाम ॥१२॥
-> विकीर्य पलितान्केशांस्तिष्ठ तिष्ठेति भाषिणीम
+> तां ददर्शानुधावन्तीं चाण्डालीमिव रूपिणीम\
+> जरया वेपमानाङ्गीं यक्ष्मग्रस्तामसृक्पटाम ॥१२॥\
+> विकीर्य पलितान्केशांस्तिष्ठ तिष्ठेति भाषिणीम\
 > मीनगन्ध्यसुगन्धेन कुर्वतीं मार्गदूषणम ॥१३॥
 
-> tāṁ dadarśānudhāvantīṁ
-> cāṇḍālīm iva rūpiṇīm
-> jarayā vepamānāṅgīṁ
+> tāṁ dadarśānudhāvantīṁ\
+> cāṇḍālīm iva rūpiṇīm\
+> jarayā vepamānāṅgīṁ\
 > yakṣma-grastām asṛk-paṭām
 
-> vikīrya palitān keśāṁs
-> tiṣṭha tiṣṭheti bhāṣiṇīm
-> mīna-gandhy-asu-gandhena
+> vikīrya palitān keśāṁs\
+> tiṣṭha tiṣṭheti bhāṣiṇīm\
+> mīna-gandhy-asu-gandhena\
 > kurvatīṁ mārga-dūṣaṇam
 
 *tām*—a la reacción pecaminosa; *dadarśa*—el vio; *anudhāvantīm*—persiguiendo; *cāṇḍālīm*—una mujer de la más baja clase; *iva*—como; *rūpiṇīm*—con la forma; *jarayā*—debido a la vejez; *vepamāna-aṅgīm*—los miembros de cuyo cuerpo temblaban; *yakṣma-grastām*—enferma de tuberculosis; *asṛk-paṭām*—cuyas ropas estaban cubiertas de sangre; *vikīrya*—sueltos; *palitān*—canosos; *keśān*—cabellos; *tiṣṭha tiṣṭha*—¡espera!, ¡espera!; *iti*—así; *bhāṣiṇīm*—llamando; *mīna-gandhi*—el olor a pescado; *asu*—cuyo aliento; *gandhena*—por el olor; *kurvatīm*—causando; *mārga-dūṣaṇam*—la contaminación de toda la calle.

@@ -1,11 +1,11 @@
 ### SB 6.6.13
 
-> ध्रुवस्य भार्या धरणिरसूत विविधाः पुरः
+> ध्रुवस्य भार्या धरणिरसूत विविधाः पुरः\
 > अर्कस्य वासना भार्या पुत्रास्तर्षादयः स्मृताः ॥१३॥
 
-> arkasya vāsanā bhāryā
-> putrās tarṣādayaḥ smṛtāḥ
-> agner bhāryā vasor dhārā
+> arkasya vāsanā bhāryā\
+> putrās tarṣādayaḥ smṛtāḥ\
+> agner bhāryā vasor dhārā\
 > putrā draviṇakādayaḥ
 
 *arkasya*—of Arka; *vāsanā*—Vāsanā; *bhāryā*—the wife; *putrāḥ*—the sons; *tarṣa-ādayaḥ*—named Tarṣa and so on; *smṛtāḥ*—celebrated; *agneḥ*—of Agni; *bhāryā*—wife; *vasoḥ*—the Vasu; *dhārā*—Dhārā; *putrāḥ*—the sons; *draviṇaka-ādayaḥ*—known as Draviṇaka and so on.

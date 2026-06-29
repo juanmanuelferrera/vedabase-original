@@ -1,11 +1,11 @@
 ### SB 9.18.39
 
-> मातामहकृतां वत्स न तृप्तो विषयेष्वहम
+> मातामहकृतां वत्स न तृप्तो विषयेष्वहम\
 > वयसा भवदीयेन रंस्ये कतिपयाः समाः ॥३९॥
 
-> mātāmaha-kṛtāṁ vatsa
-> na tṛpto viṣayeṣv aham
-> vayasā bhavadīyena
+> mātāmaha-kṛtāṁ vatsa\
+> na tṛpto viṣayeṣv aham\
+> vayasā bhavadīyena\
 > raṁsye katipayāḥ samāḥ
 
 *mātāmaha-kṛtām*—dada por tu abuelo materno, Śukrācārya; *vatsa*—mi querido hijo; *na*—no; *tṛptaḥ*—satisfecho; *viṣayeṣu*—en la vida sexual, la complacencia de los sentidos; *aham*—yo (estoy); *vayasā*—por edad; *bhavadīyena*—de Tu Gracia; *raṁsye*—yo disfrutaré de la vida sexual; *katipayāḥ*—por unos pocos; *samāḥ*—años.

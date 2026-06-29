@@ -1,11 +1,11 @@
 ### SB 1.15.17
 
-> सौत्ये वृतः कुमतिनात्मद ईश्वरो मे यत्पादपद्ममभवाय भजन्ति भव्याः ।
+> सौत्ये वृतः कुमतिनात्मद ईश्वरो मे यत्पादपद्ममभवाय भजन्ति भव्याः ।\
 > मां श्रान्तवाहमरयो रथिनो भुविष्ठं न प्राहरन्यदनुभावनिरस्तचित्ताः ॥१७॥
 
-> sautye vṛtaḥ kumatinātmada īśvaro me
-> yat-pāda-padmam abhavāya bhajanti bhavyāḥ
-> māṁ śrānta-vāham arayo rathino bhuvi-ṣṭhaṁ
+> sautye vṛtaḥ kumatinātmada īśvaro me\
+> yat-pāda-padmam abhavāya bhajanti bhavyāḥ\
+> māṁ śrānta-vāham arayo rathino bhuvi-ṣṭhaṁ\
 > na prāharan yad-anubhāva-nirasta-cittāḥ
 
 *sautye*—regarding a chariot driver; *vṛtaḥ*—engaged; *kumatinā*—by bad consciousness; *ātma-daḥ*—one who delivers; *īśvaraḥ*—the Supreme Lord; *me*—my; *yat*—whose; *pāda-padmam*—lotus feet; *abhavāya*—in the matter of salvation; *bhajanti*—do render service; *bhavyāḥ*—the intelligent class of men; *mām*—unto me; *śrānta*—thirsty; *vāham*—my horses; *arayaḥ*—the enemies; *rathinaḥ*—a great general; *bhuvi-ṣṭham*—while standing on the ground; *na*—did not; *prāharan*—attack; *yat*—whose; *anubhāva*—mercy; *nirasta*—being absent; *cittāḥ*—mind.

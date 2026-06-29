@@ -1,9 +1,9 @@
 ### CC Madhya 13.69
 
-> এইমত হৈল কৃষ্ণের রথে আরোহণ ।
+> এইমত হৈল কৃষ্ণের রথে আরোহণ ।\
 > তার আগে প্রভু নাচাইল ভক্তগণ ॥৬৯॥
 
-> ei-mata haila kṛṣṇera rathe ārohaṇa
+> ei-mata haila kṛṣṇera rathe ārohaṇa\
 > tāra āge prabhu nācāila bhakta-gaṇa
 
 *ei-mata*—in this way; *haila*—there was; *kṛṣṇera*—of Lord Śrī Kṛṣṇa; *rathe*—on the car; *ārohaṇa*—getting up; *tāra āge*—before it; *prabhu*—Śrī Caitanya Mahāprabhu; *nācāila*—caused to dance; *bhakta-gaṇa*—all devotees.

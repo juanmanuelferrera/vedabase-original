@@ -1,9 +1,9 @@
 ### CC Madhya 9.45
 
-> হারি’ হারি’ প্রভুমতে করেন প্রবেশ ৷
+> হারি’ হারি’ প্রভুমতে করেন প্রবেশ ৷\
 > এইমতে ‘বৈষ্ণব’ প্রভু কৈল দক্ষিণ দেশ ৷৷ ৪৫ ৷৷ ॥৪৫॥
 
-> hāri' hāri' prabhu-mate karena praveśa
+> hāri' hāri' prabhu-mate karena praveśa\
 > ei-mate 'vaiṣṇava' prabhu kaila dakṣiṇa deśa
 
 *hāri' hāri'*—siendo derrotados; *prabhu-mate*—en el culto de Śrī Caitanya Mahāprabhu; *karena praveśa*—entran; *ei-mate*—de este modo; *vaiṣṇava*—devotos vaiṣṇavas; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *kaila*—hizo; *dakṣiṇa*—India meridional; *deśa*—país.

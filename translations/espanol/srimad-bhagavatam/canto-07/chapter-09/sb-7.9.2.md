@@ -1,11 +1,11 @@
 ### SB 7.9.2
 
-> साक्षात्श्रीः प्रेषिता देवैर्दृष्ट्वा तं महदद्भुतम
+> साक्षात्श्रीः प्रेषिता देवैर्दृष्ट्वा तं महदद्भुतम\
 > अदृष्टाश्रुतपूर्वत्वात्सा नोपेयाय शङ्किता ॥२॥
 
-> sākṣāt śrīḥ preṣitā devair
-> dṛṣṭvā taṁ mahad adbhutam
-> adṛṣṭāśruta-pūrvatvāt
+> sākṣāt śrīḥ preṣitā devair\
+> dṛṣṭvā taṁ mahad adbhutam\
+> adṛṣṭāśruta-pūrvatvāt\
 > sā nopeyāya śaṅkitā
 
 *sākṣāt*—directamente; *śrīḥ*—la diosa de la fortuna; *preṣitā*—a quien rogaron que se acercase al Señor; *devaiḥ*—todos los semidioses (encabezados por el Señor Brahmā y el Señor Śiva); *dṛṣṭvā*—después de ver; *tam*—a Él (al Señor Nṛsiṁhadeva); *mahat*—muy grande; *adbhutam*—maravilloso; *adṛṣṭa*—nunca visto; *aśruta*—del que nunca se había escuchado; *pūrvatvāt*—debido a que antes era; *sā*—la diosa de la fortuna, Lakṣmī; *na*—no; *upeyāya*—fue ante el Señor; *śaṅkitā*—muy temerosa.

@@ -1,11 +1,11 @@
 ### SB 9.3.32
 
-> अहो राजन्निरुद्धास्ते कालेन हृदि ये कृताः
+> अहो राजन्निरुद्धास्ते कालेन हृदि ये कृताः\
 > तत्पुत्रपौत्रनप्त्णां गोत्राणि च न शृण्महे ॥३२॥
 
-> tat putra-pautra-naptṝṇāṁ
-> gotrāṇi ca na śṛṇmahe
-> kālo 'bhiyātas tri-ṇava-
+> tat putra-pautra-naptṝṇāṁ\
+> gotrāṇi ca na śṛṇmahe\
+> kālo 'bhiyātas tri-ṇava-\
 > catur-yuga-vikalpitaḥ
 
 *tat*—allí; *putra*—de los hijos; *pautra*—de los nietos; *naptṝṇām*—y de los descendientes; *gotrāṇi*—las dinastías familiares; *ca*—también; *na*—no; *śṛṇmahe*—escuchamos acerca de; *kālaḥ*—tiempo; *abhiyātaḥ*—han pasado; *tri*—tres; *nava*—nueve; *catur-yuga*—cuatro *yugas* (Satya, Tretā, Dvāpara y Kali); *vikalpitaḥ*—así medido.

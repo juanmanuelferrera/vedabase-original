@@ -1,11 +1,11 @@
 ### SB 3.31.41
 
-> यां मन्यते पतिं मोहान्मन्मायामृषभायतीम् ।
+> यां मन्यते पतिं मोहान्मन्मायामृषभायतीम् ।\
 > स्त्रीत्वं स्त्रीसङ्गतः प्राप्तो वित्तापत्यगृहप्रदम् ॥४१॥
 
-> yāṁ manyate patiṁ mohān
-> man-māyām ṛṣabhāyatīm
-> strītvaṁ strī-saṅgataḥ prāpto
+> yāṁ manyate patiṁ mohān\
+> man-māyām ṛṣabhāyatīm\
+> strītvaṁ strī-saṅgataḥ prāpto\
 > vittāpatya-gṛha-pradam
 
 *yām*—que; *manyate*—ella piensa; *patim*—su esposo; *mohāt*—debido a la ilusión; *mat-māyām*—Mi *māyā*; *ṛṣabha*—en la forma de un hombre; *āyatīm*—venir; *strītvam*—la situación de ser una mujer; *strī-saṅgataḥ*—del apego a una mujer; *prāptaḥ*—obtenida; *vitta*—riqueza; *apatya*—descendencia; *gṛha*—casa; *pradam*—proporcionar.

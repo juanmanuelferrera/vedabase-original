@@ -1,11 +1,11 @@
 ### SB 8.6.19
 
-> यात दानवदैतेयैस्तावत्सन्धिर्विधीयताम
+> यात दानवदैतेयैस्तावत्सन्धिर्विधीयताम\
 > कालेनानुगृहीतैस्तैर्यावद्वो भव आत्मनः ॥१९॥
 
-> yāta dānava-daiteyais
-> tāvat sandhir vidhīyatām
-> kālenānugṛhītais tair
+> yāta dānava-daiteyais\
+> tāvat sandhir vidhīyatām\
+> kālenānugṛhītais tair\
 > yāvad vo bhava ātmanaḥ
 
 *yāta*—hagan; *dānava*—con los demonios; *daiteyaiḥ*—y los *asuras*; *tāvat*—mientras tanto; *sandhiḥ*—una tregua; *vidhīyatām*—hagan; *kālena*—por un tiempo favorable (o: *kāvyena*—por Śukrācārya); *anugṛhītaiḥ*—recibir bendiciones; *taiḥ*—con ellos; *yāvat*—mientras tanto; *vaḥ*—de ustedes; *bhavaḥ*—buena fortuna; *ātmanaḥ*—de ustedes mismos.

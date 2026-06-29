@@ -1,11 +1,11 @@
 ### SB 3.29.42
 
-> स्रवन्ति सरितो भीता नोत्सर्पत्युदधिर्यतः ।
+> स्रवन्ति सरितो भीता नोत्सर्पत्युदधिर्यतः ।\
 > अग्निरिन्धे सगिरिभिर्भूर्न मज्जति यद्भयात् ॥४२॥
 
-> sravanti sarito bhītā
-> notsarpaty udadhir yataḥ
-> agnir indhe sa-giribhir
+> sravanti sarito bhītā\
+> notsarpaty udadhir yataḥ\
+> agnir indhe sa-giribhir\
 > bhūr na majjati yad-bhayāt
 
 *sravanti*—flow; *saritaḥ*—rivers; *bhītāḥ*—fearful; *na*—not; *utsarpati*—overflows; *uda-dhiḥ*—the ocean; *yataḥ*—because of whom; *agniḥ*—fire; *indhe*—burns; *sa-giribhiḥ*—with its mountains; *bhūḥ*—the earth; *na*—not; *majjati*—sinks; *yat*—of whom; *bhayāt*—out of fear.

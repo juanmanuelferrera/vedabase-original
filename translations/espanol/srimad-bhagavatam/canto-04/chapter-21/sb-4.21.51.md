@@ -1,11 +1,11 @@
 ### SB 4.21.51
 
-> अद्य नस्तमसः पारस्त्वयोपासादितः प्रभो ।
+> अद्य नस्तमसः पारस्त्वयोपासादितः प्रभो ।\
 > भ्राम्यतां नष्टदृष्टीनां कर्मभिर्दैवसंज्ञितैः ॥५१॥
 
-> adya nas tamasaḥ pāras
-> tvayopāsāditaḥ prabho
-> bhrāmyatāṁ naṣṭa-dṛṣṭīnāṁ
+> adya nas tamasaḥ pāras\
+> tvayopāsāditaḥ prabho\
+> bhrāmyatāṁ naṣṭa-dṛṣṭīnāṁ\
 > karmabhir daiva-saṁjñitaiḥ
 
 *adya*—hoy; *naḥ*—de nosotros; *tamasaḥ*—de la oscuridad de la existencia material; *pāraḥ*—el otro lado; *tvayā*—por ti; *upāsāditaḥ*—aumentado; *prabho*—¡oh, señor!; *bhrāmyatām*—que estamos vagando; *naṣṭa-dṛṣṭīnām*—cuyas vidas carecen de objetivo; *karmabhiḥ*—por las actividades pasadas; *daiva-saṁjñitaiḥ*—por disposición de la autoridad superior.

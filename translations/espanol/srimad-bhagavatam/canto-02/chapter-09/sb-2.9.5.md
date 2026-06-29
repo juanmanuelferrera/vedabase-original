@@ -1,11 +1,11 @@
 ### SB 2.9.5
 
-> स आदिदेवो जगतां परो गुरुः स्वधिष्ण्यमास्थाय सिसृक्षयैक्षत ।
+> स आदिदेवो जगतां परो गुरुः स्वधिष्ण्यमास्थाय सिसृक्षयैक्षत ।\
 > तां नाध्यगच्छद्दृशमत्र सम्मतां प्रपञ्चनिर्माणविधिर्यया भवेत् ॥५॥
 
-> sa ādi-devo jagatāṁ paro guruḥ
-> svadhiṣṇyam āsthāya sisṛkṣayaikṣata
-> tāṁ nādhyagacchad dṛśam atra sammatāṁ
+> sa ādi-devo jagatāṁ paro guruḥ\
+> svadhiṣṇyam āsthāya sisṛkṣayaikṣata\
+> tāṁ nādhyagacchad dṛśam atra sammatāṁ\
 > prapañca-nirmāṇa-vidhir yayā bhavet
 
 *saḥ*—él; *ādi-devaḥ*—el primer semidiós; *jagatām*—del universo; *paraḥ*—supremo; *guruḥ*—maestro espiritual; *svadhiṣṇyam*—su asiento de loto; *āsthāya*—para encontrar la fuente de él; *sisṛkṣayā*—en lo referente a crear los asuntos universales; *aikṣata*—comenzó a pensar; *tām*—en ese asunto; *na*—no pudo; *adhyagacchat*—entender; *dṛśam*—la dirección; *atra*—ahí; *sammatām*—justo el camino correcto; *prapañca*—material; *nirmāṇa*—construcción; *vidhiḥ*—proceso; *yayā*—tanto como; *bhavet*—debe ser.

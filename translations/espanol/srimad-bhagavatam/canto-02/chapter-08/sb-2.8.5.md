@@ -1,11 +1,11 @@
 ### SB 2.8.5
 
-> प्रविष्टः कर्णरन्ध्रेण स्वानां भावसरोरुहम् ।
+> प्रविष्टः कर्णरन्ध्रेण स्वानां भावसरोरुहम् ।\
 > धुनोति शमलं कृष्णः सलिलस्य यथा शरत् ॥५॥
 
-> praviṣṭaḥ karṇa-randhreṇa
-> svānāṁ bhāva-saroruham
-> dhunoti śamalaṁ kṛṣṇaḥ
+> praviṣṭaḥ karṇa-randhreṇa\
+> svānāṁ bhāva-saroruham\
+> dhunoti śamalaṁ kṛṣṇaḥ\
 > salilasya yathā śarat
 
 *praviṣṭaḥ*—habiendo entrado así; *karṇa-randhreṇa*—a través de los orificios auriculares; *svānām*—de acuerdo con la posición liberada de uno; *bhāva*—relación constitucional; *saraḥ-ruham*—la flor de loto; *dhunoti*—limpia; *śamalam*—cualidades materiales, como lujuria, ira, avaricia y anhelo; *kṛṣṇaḥ*—el Señor Kṛṣṇa, la Suprema Personalidad de Dios; *salilasya*—del manantial de las aguas; *yathā*—como si fuera; *śarat*—la estación de otoño.

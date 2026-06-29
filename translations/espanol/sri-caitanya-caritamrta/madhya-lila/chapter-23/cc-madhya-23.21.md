@@ -1,13 +1,13 @@
 ### CC Madhya 23.21
 
-> তং মোপযাতং প্রতিযন্তু বিপ্রা
-> গঙ্গা চ দেবী ধৃতচিত্তমীশে ।
-> দ্বিজোপসৃষ্টঃ কুহকস্তক্ষকো বা
+> তং মোপযাতং প্রতিযন্তু বিপ্রা\
+> গঙ্গা চ দেবী ধৃতচিত্তমীশে ।\
+> দ্বিজোপসৃষ্টঃ কুহকস্তক্ষকো বা\
 > দশত্বলং গায়ত বিষ্ণুগাথাঃ ॥২১॥
 
-> taṁ mopayātaṁ pratiyantu viprā
-> gaṅgā ca devī dhṛta-cittam īśe
-> dvijopasṛṣṭaḥ kuhakas takṣako vā
+> taṁ mopayātaṁ pratiyantu viprā\
+> gaṅgā ca devī dhṛta-cittam īśe\
+> dvijopasṛṣṭaḥ kuhakas takṣako vā\
 > daśatv alaṁ gāyata viṣṇu-gāthāḥ
 
 *tam*—a él; *mā*—a mí; *upayātam*—rendido; *pratiyantu*—que lo sepan; *viprāḥ*—¡oh, *brāhmaṇas*!; *gaṅgā*—la madre Ganges; *ca*—y; *devī*—la semidiosa; *dhṛta*—ofrecida; *cittam*—cuya mente; *īśe*—a la Suprema Personalidad de Dios; *dvija-upasṛṣṭaḥ*—creada por el *brāhmaṇa*; *kuhakaḥ*—alguna brujería; *takṣakaḥ*—ave-serpiente; *vā*—o; *daśatu*—que muerda; *alam*—no importa; *gāyata*—canten; *viṣṇu-gāthāḥ*—los santos nombres del Señor Viṣṇu.

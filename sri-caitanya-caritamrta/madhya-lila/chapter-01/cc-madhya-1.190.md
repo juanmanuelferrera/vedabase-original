@@ -1,11 +1,11 @@
 ### CC Madhya 1.190
 
-> মত্তুল্যো নাস্তি পাপাত্মা নাপরাধী চ কশ্চন ।
+> মত্তুল্যো নাস্তি পাপাত্মা নাপরাধী চ কশ্চন ।\
 > পরিহারেঽপি লজ্জা মে কিং ব্রুবে পুরুষোত্তম ॥১৯০॥
 
-> mat-tulyo nāsti pāpātmā
-> nāparādhī ca kaścana
-> parihāre 'pi lajjā me
+> mat-tulyo nāsti pāpātmā\
+> nāparādhī ca kaścana\
+> parihāre 'pi lajjā me\
 > kiṁ bruve puruṣottama
 
 *mat*—me; *tulyaḥ*—like; *naasti*—there is not; *pāpa-ātmā*—sinful man; *naaparādhī*—nor an offender; *ca*—also; *kaścana*—anyone; *parihāre*—in begging pardon; *api*—even; *lajjā*—ashamed; *me*—of me; *kim*—what; *bruve*—I shall say; *puruṣa-uttama*—O Supreme Personality of Godhead.

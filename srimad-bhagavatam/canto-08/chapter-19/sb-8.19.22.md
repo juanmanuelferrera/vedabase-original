@@ -1,11 +1,11 @@
 ### SB 8.19.22
 
-> त्रिभिः क्रमैरसन्तुष्टो द्वीपेनापि न पूर्यते
+> त्रिभिः क्रमैरसन्तुष्टो द्वीपेनापि न पूर्यते\
 > नववर्षसमेतेन सप्तद्वीपवरेच्छया ॥२२॥
 
-> tribhiḥ kramair asantuṣṭo
-> dvīpenāpi na pūryate
-> nava-varṣa-sametena
+> tribhiḥ kramair asantuṣṭo\
+> dvīpenāpi na pūryate\
+> nava-varṣa-sametena\
 > sapta-dvīpa-varecchayā
 
 *tribhiḥ*—three; *kramaiḥ*—by steps; *asantuṣṭaḥ*—one who is dissatisfied; *dvīpena*—by a complete island; *api*—although; *na pūryate*—cannot be satisfied; *nava-varṣa-sametena*—even by possessing nine *varṣas*; *sapta-dvīpa-vara-icchayā*—by the desire to take possession of seven islands.

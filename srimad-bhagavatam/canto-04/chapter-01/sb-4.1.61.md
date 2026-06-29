@@ -1,11 +1,11 @@
 ### SB 4.1.61
 
-> तेभ्योऽग्नयः समभवन्चत्वारिंशच्च पञ्च च ।
+> तेभ्योऽग्नयः समभवन्चत्वारिंशच्च पञ्च च ।\
 > त एवैकोनपञ्चाशत्साकं पितृपितामहैः ॥६१॥
 
-> tebhyo 'gnayaḥ samabhavan
-> catvāriṁśac ca pañca ca
-> ta evaikonapañcāśat
+> tebhyo 'gnayaḥ samabhavan\
+> catvāriṁśac ca pañca ca\
+> ta evaikonapañcāśat\
 > sākaṁ pitṛ-pitāmahaiḥ
 
 *tebhyaḥ*—from them; *agnayaḥ*—fire-gods; *samabhavan*—were produced; *catvāriṁśat*—forty; *ca*—and; *pañca*—five; *ca*—and; *te*—they; *eva*—certainly; *ekona-pañcāśat*—forty-nine; *sākam*—along with; *pitṛ-pitāmahaiḥ*—with the fathers and grandfather.

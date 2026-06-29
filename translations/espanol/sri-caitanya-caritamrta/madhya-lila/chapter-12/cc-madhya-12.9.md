@@ -1,9 +1,9 @@
 ### CC Madhya 12.9
 
-> তাঁ-সবার প্ৰসাদে মিলে শ্রীপ্ৰভুর পায়  ।
+> তাঁ-সবার প্ৰসাদে মিলে শ্রীপ্ৰভুর পায়  ।\
 > প্রভুকৃপা বিনা মোর রাজ্য নাহি ভায় ॥৯॥
 
-> tāṅ-sabāra prasāde mile śrī-prabhura pāya
+> tāṅ-sabāra prasāde mile śrī-prabhura pāya\
 > prabhu-kṛpā vinā mora rājya nāhi bhāya
 
 *tāṅ-sabāra prasāde*—por la misericordia de todos ellos; *mile*—se obtiene; *śrī-prabhura pāya*—los pies de loto de Śrī Caitanya Mahāprabhu; *prabhu-kṛpā*—la misericordia del Señor; *vinā*—sin; *mora*—mi; *rājya*—reino; *nāhi*—no; *bhāya*—me atrae.

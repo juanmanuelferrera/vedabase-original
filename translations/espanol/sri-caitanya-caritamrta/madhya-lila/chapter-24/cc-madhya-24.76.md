@@ -1,11 +1,11 @@
 ### CC Madhya 24.76
 
-> অহমেবাসমেবাগ্রে নান্যদ্যত্ সদসত্পরম্ ।
+> অহমেবাসমেবাগ্রে নান্যদ্যত্ সদসত্পরম্ ।\
 > পশ্চাদহং যদেতচ্চ যোঽবশিষ্যেত সোঽস্ম্যহম্ ॥৭৬॥
 
-> aham evāsam evāgre
-> nānyad yat sad-asat-param
-> paścād ahaṁ yad etac ca
+> aham evāsam evāgre\
+> nānyad yat sad-asat-param\
+> paścād ahaṁ yad etac ca\
 > yo 'vaśiṣyeta so 'smy aham
 
 *aham*—Yo, la Personalidad de Dios; *eva*—ciertamente; *āsam*—existía; *eva*—solo; *agre*—antes de la creación; *na*—nunca; *anyat*—nada más; *yat*—que; *sat*—el efecto; *asat*—la causa; *param*—lo supremo; *paścāt*—después; *aham*—Yo, la Personalidad de Dios; *yat*—que; *etat*—esta creación; *ca*—también; *yaḥ*—quien; *avaśiṣyeta*—permanece; *saḥ*—ese; *asmi*—soy; *aham*—Yo, la Personalidad de Dios.

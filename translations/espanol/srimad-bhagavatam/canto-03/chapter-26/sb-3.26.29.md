@@ -1,11 +1,11 @@
 ### SB 3.26.29
 
-> तैजसात्तु विकुर्वाणाद्बुद्धितत्त्वमभूत्सति ।
+> तैजसात्तु विकुर्वाणाद्बुद्धितत्त्वमभूत्सति ।\
 > द्रव्यस्फुरणविज्ञानमिन्द्रियाणामनुग्रहः ॥२९॥
 
-> taijasāt tu vikurvāṇād
-> buddhi-tattvam abhūt sati
-> dravya-sphuraṇa-vijñānam
+> taijasāt tu vikurvāṇād\
+> buddhi-tattvam abhūt sati\
+> dravya-sphuraṇa-vijñānam\
 > indriyāṇām anugrahaḥ
 
 *taijasāt*—del ego falso influenciado por la pasión; *tu*—entonces; *vikurvāṇāt*—transformándose; *buddhi*—inteligencia; *tattvam*—principio; *abhūt*—nació; *sati*—¡oh, dama virtuosa!; *dravya*—objetos; *sphuraṇa*—que aparecen ante la vista; *vijñānam*—discerniendo; *indriyāṇām*—a los sentidos; *anugrahaḥ*—asistiendo.

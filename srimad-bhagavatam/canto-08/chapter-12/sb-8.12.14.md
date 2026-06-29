@@ -1,13 +1,13 @@
 ### SB 8.12.14
 
-> श्रीशुक उवाच
-> एवमभ्यर्थितो विष्णुर्भगवान्शूलपाणिना
+> श्रीशुक उवाच\
+> एवमभ्यर्थितो विष्णुर्भगवान्शूलपाणिना\
 > प्रहस्य भावगम्भीरं गिरिशं प्रत्यभाषत ॥१४॥
 
-> śrī-śuka uvāca
-> evam abhyarthito viṣṇur
-> bhagavān śūla-pāṇinā
-> prahasya bhāva-gambhīraṁ
+> śrī-śuka uvāca\
+> evam abhyarthito viṣṇur\
+> bhagavān śūla-pāṇinā\
+> prahasya bhāva-gambhīraṁ\
 > giriśaṁ pratyabhāṣata
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—in this way; *abhyarthitaḥ*—being requested; *viṣṇuḥ bhagavān*—Lord Viṣṇu, the Supreme Personality of Godhead; *śūla-pāṇinā*—by Lord Śiva, who carries a trident in his hand; *prahasya*—laughing; *bhāva-gambhīram*—with serious gravity; *giriśam*—unto Lord Śiva; *pratyabhāṣata*—replied.

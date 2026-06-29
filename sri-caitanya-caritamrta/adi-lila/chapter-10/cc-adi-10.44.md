@@ -1,9 +1,9 @@
 ### CC Adi 10.44
 
-> তাঁহার অনন্ত গুণ, — কহি দিঙ্মাত্র ।
+> তাঁহার অনন্ত গুণ, — কহি দিঙ্মাত্র ।\
 > আচার্য গোসাঞি যাঁরে ভুঞ্জায় শ্রাদ্ধপাত্র ॥৪৪॥
 
-> tāṅhāra ananta guṇa—kahi diṅmātra
+> tāṅhāra ananta guṇa—kahi diṅmātra\
 > ācārya gosāñi yāṅre bhuñjāya śrāddha-pātra
 
 *tāṅhāra*—Haridāsa Ṭhākura's; *ananta*—unlimited; *guṇa*—qualities; *kahi*—I speak; *diṅ-mātra*—only a small part; *ācārya gosāñi*—Śrī Advaita Ācārya Prabhu; *yāṅre*—to whom; *bhuñjāya*—offered to eat; *śrāddha-pātra*—*prasāda* offered to Lord Viṣṇu.

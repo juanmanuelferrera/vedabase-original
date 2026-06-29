@@ -1,9 +1,9 @@
 ### CC Madhya 15.264
 
-> ষাঠীরে কহ — তারে ছাড়ুক, সে হইল ‘পতিত’ ।
+> ষাঠীরে কহ — তারে ছাড়ুক, সে হইল ‘পতিত’ ।\
 > ‘পতিত’ হইলে ভর্তা ত্যজিতে উচিত ॥২৬৪॥
 
-> ṣāṭhīre kaha--tāre chāḍuka, se ha-ila 'patita'
+> ṣāṭhīre kaha--tāre chāḍuka, se ha-ila 'patita'\
 > 'patita' ha-ile bhartā tyajite ucita
 
 *ṣāṭhīre kaha*—dile a Ṣāṭhī; *tāre chāḍuka*—que lo abandone; *se ha-ila*—él se ha vuelto; *patita*—caído; *patita ha-ile*—cuando uno ha caído; *bhartā*—a tal esposo; *tyajite*—abandonar; *ucita*—es el deber.

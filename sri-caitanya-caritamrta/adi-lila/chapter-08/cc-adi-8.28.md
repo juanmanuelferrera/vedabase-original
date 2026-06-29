@@ -1,9 +1,9 @@
 ### CC Adi 8.28
 
-> অনায়াসে ভবক্ষয়, কৃষ্ণের সেবন ।
+> অনায়াসে ভবক্ষয়, কৃষ্ণের সেবন ।\
 > এক কৃষ্ণনামের ফলে পাই এত ধন ॥২৮॥
 
-> anāyāse bhava-kṣaya, kṛṣṇera sevana
+> anāyāse bhava-kṣaya, kṛṣṇera sevana\
 > eka kṛṣṇa-nāmera phale pāi eta dhana
 
 *anāyāse*—without hard labor; *bhava-kṣaya*—stoppage of repetition of birth and death; *kṛṣṇera*—of Lord Kṛṣṇa; *sevana*—service; *eka*—one; *kṛṣṇa-nāmera*—chanting the name of Kṛṣṇa; *phale*—as a result of; *pāi*—we achieve; *eta*—so much; *dhana*—wealth.

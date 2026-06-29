@@ -1,11 +1,11 @@
 ### SB 7.13.14
 
-> कर्मणाकृतिभिर्वाचा लिङ्गैर्वर्णाश्रमादिभिः
+> कर्मणाकृतिभिर्वाचा लिङ्गैर्वर्णाश्रमादिभिः\
 > न विदन्ति जना यं वै सोऽसाविति न वेति च ॥१४॥
 
-> karmaṇākṛtibhir vācā
-> liṅgair varṇāśramādibhiḥ
-> na vidanti janā yaṁ vai
+> karmaṇākṛtibhir vācā\
+> liṅgair varṇāśramādibhiḥ\
+> na vidanti janā yaṁ vai\
 > so 'sāv iti na veti ca
 
 *karmaṇā*—por actividades; *ākṛtibhiḥ*—por aspecto físico; *vācā*—por palabras; *lingaiḥ*—por características; *varṇa-āśrama*—relativas a las divisiones específicas materiales y espirituales de *varṇa* y *āśrama*; *ādibhiḥ*—y por otras características; *na vidanti*—no podían comprender; *janāḥ*—la gente en general; *yam*—a quien; *vai*—en verdad; *saḥ*—si aquella persona; *asau*—era la misma persona; *iti*—así; *na*—no; *vā*—o; *iti*—así; *ca*—también.

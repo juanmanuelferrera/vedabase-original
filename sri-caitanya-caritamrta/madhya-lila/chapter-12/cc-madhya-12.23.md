@@ -1,9 +1,9 @@
 ### CC Madhya 12.23
 
-> তোমা-সবার ইচ্ছা, — এই আমারে লঞা  ।
+> তোমা-সবার ইচ্ছা, — এই আমারে লঞা  ।\
 > রাজাকে মিলহ ইহঁ কটকেতে গিয়া ॥২৩॥
 
-> tomā-sabāra icchā,-ei āmāre lañā
+> tomā-sabāra icchā,-ei āmāre lañā\
 > rājāke milaha ihaṅ kaṭakete giyā
 
 *tomā-sabāra*—of all of you; *icchā*—the desire; *ei*—is; *āmāre lañā*—taking Me; *rājāke*—the King; *milaha*—meet; *ihaṅ*—here; *kaṭakete giyā*—by going to Kaṭaka.

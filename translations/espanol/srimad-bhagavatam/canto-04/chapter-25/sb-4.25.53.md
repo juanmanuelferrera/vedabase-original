@@ -1,11 +1,11 @@
 ### SB 4.25.53
 
-> निरृतिर्नाम पश्चाद्द्वास्तया याति पुरञ्जनः ।
+> निरृतिर्नाम पश्चाद्द्वास्तया याति पुरञ्जनः ।\
 > वैशसं नाम विषयं लुब्धकेन समन्वितः ॥५३॥
 
-> nirṛtir nāma paścād dvās
-> tayā yāti purañjanaḥ
-> vaiśasaṁ nāma viṣayaṁ
+> nirṛtir nāma paścād dvās\
+> tayā yāti purañjanaḥ\
+> vaiśasaṁ nāma viṣayaṁ\
 > lubdhakena samanvitaḥ
 
 *nirṛtiḥ*—de nombre Nirṛti; *nāma*—llamada; *paścāt*—oeste; *dvāḥ*—puerta; *tayā*—por la cual; *yāti*—solía ir; *purañjanaḥ*—el rey Purañjana; *vaiśasam*—de nombre Vaiśasa; *nāma*—llamado; *viṣayam*—al lugar; *lubdhakena*—con el amigo llamado Lubdhaka; *samanvitaḥ*—acompañado.

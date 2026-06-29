@@ -1,13 +1,13 @@
 ### CC Madhya 8.211
 
-> সখ্যঃ শ্ৰীরাধিকায়া ব্রজকুমুদবিধোর্হ্লাদিনী-নামশক্তেঃ
-> সারাংশ-প্রেমবল্ল্যাঃ কিসলয়দলপুষ্পাদিতুল্যাঃ স্বতুল্যাঃ ।
-> সিক্তায়াং কৃষ্ণলীলামৃতরসনিচয়ৈরুল্লসন্ত্যামমুষ্যাং
+> সখ্যঃ শ্ৰীরাধিকায়া ব্রজকুমুদবিধোর্হ্লাদিনী-নামশক্তেঃ\
+> সারাংশ-প্রেমবল্ল্যাঃ কিসলয়দলপুষ্পাদিতুল্যাঃ স্বতুল্যাঃ ।\
+> সিক্তায়াং কৃষ্ণলীলামৃতরসনিচয়ৈরুল্লসন্ত্যামমুষ্যাং\
 > জাতোল্লাসাঃ স্বসেকাচ্ছতগুণমধিকং সন্তি যত্তন্ন চিত্রম্ ॥২১১॥
 
-> sakhyaḥ śrī-rādhikāyā vraja-kumuda-vidhor hlādinī-nāma-śakteḥ
-> sārāṁśa-prema-vallyāḥ kisalaya-dala-puṣpādi-tulyāḥ sva-tulyāḥ
-> siktāyāṁ kṛṣṇa-līlāmṛta-rasa-nicayair ullasantyām amuṣyāṁ
+> sakhyaḥ śrī-rādhikāyā vraja-kumuda-vidhor hlādinī-nāma-śakteḥ\
+> sārāṁśa-prema-vallyāḥ kisalaya-dala-puṣpādi-tulyāḥ sva-tulyāḥ\
+> siktāyāṁ kṛṣṇa-līlāmṛta-rasa-nicayair ullasantyām amuṣyāṁ\
 > jātollāsāḥ sva-sekāc chata-guṇam adhikaṁ santi yat tan na citram
 
 *sakhyaḥ*—friends like Lalitā and Viśākhā; *śrī-rādhikāyāḥ*—of Śrīmatī Rādhārāṇī; *vraja-kumuda*—of the lotuslike inhabitants of Vrajabhūmi; *vidhoḥ*—of the moon (Kṛṣṇa); *hlādinī*—pleasure-giving; *nāma*—of the name; *śakteḥ*—of the potency; *sāra-aṁśa*—the active principle; *prema-vallyāḥ*—of the creeper of love of Godhead; *kisalaya*—newly grown; *dala*—leaves; *puṣpa*—flowers; *ādi*—and so on; *tulyāḥ*—equal to; *sva-tulyāḥ*—equal to Herself; *siktāyām*—when sprinkled; *kṛṣṇa-līlā*—of the pastimes of Kṛṣṇa; *amṛta*—of the nectar; *rasa-nicayaiḥ*—by drops of the juice; *ullasantyām*—shining; *amuṣyām*—of Her, Śrīmatī Rādhārāṇī; *jāta-ullāsāḥ*—having awakened pleasure; *sva-sekāt*—than her own sprinkling; *śata-guṇam*—a hundred times; *adhikam*—more; *santi*—are; *yat*—which; *tat*—that; *na*—not; *citram*—wonderful.

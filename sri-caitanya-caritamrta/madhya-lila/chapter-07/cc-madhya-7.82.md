@@ -1,9 +1,9 @@
 ### CC Madhya 7.82
 
-> দেখি’ নিত্যানন্দ প্রভু কহে ভক্তগণে ।
+> দেখি’ নিত্যানন্দ প্রভু কহে ভক্তগণে ।\
 > এইরূপে নৃত্য আগে হবে গ্রামে-গ্রামে ॥৮২॥
 
-> dekhi' nityānanda prabhu kahe bhakta-gaṇe
+> dekhi' nityānanda prabhu kahe bhakta-gaṇe\
 > ei-rūpe nṛtya āge habe grāme-grāme
 
 *dekhi'*—seeing this; *nityānanda*—Lord Nityānanda Prabhu; *prabhu*—the Lord; *kahe*—says; *bhakta-gaṇe*—unto the devotees; *ei-rūpe*—in this way; *nṛtya*—dancing; *āge*—ahead; *habe*—there will be; *grāme-grāme*—in every village.

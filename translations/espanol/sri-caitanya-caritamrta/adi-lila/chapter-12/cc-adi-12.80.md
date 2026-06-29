@@ -1,9 +1,9 @@
 ### CC Adi 12.80
 
-> শাখা-শ্রেষ্ঠ ধ্রুবানন্দ, শ্রীধর ব্রহ্মচারী ।
+> শাখা-শ্রেষ্ঠ ধ্রুবানন্দ, শ্রীধর ব্রহ্মচারী ।\
 > ভাগবতাচার্য, হরিদাস ব্রহ্মচারী ॥৮০॥
 
-> śākhā-śreṣṭha dhruvānanda, śrīdhara brahmacārī
+> śākhā-śreṣṭha dhruvānanda, śrīdhara brahmacārī\
 > bhāgavatācārya, haridāsa brahmacārī
 
 *śākhā-śreṣṭha*—la rama principal; *dhruvānanda*—de nombre Dhruvānanda; *śrīdhara brahmacārī*—de nombre Śrīdhara Brahmacārī; *bhāgavatācārya*—de nombre Bhāgavatācārya; *haridāsa brahmacārī*—de nombre Haridāsa Brahmacārī.

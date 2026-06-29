@@ -1,9 +1,9 @@
 ### CC Madhya 25.120
 
-> ‘অভিধেয়’ সাধনভক্তির শুনহ বিচার ।
+> ‘অভিধেয়’ সাধনভক্তির শুনহ বিচার ।\
 > সর্ব-জন-দেশ-কাল-দশাতে ব্যাপ্তি যার ॥১২০॥
 
-> 'abhidheya' sādhana-bhaktira śunaha vicāra
+> 'abhidheya' sādhana-bhaktira śunaha vicāra\
 > sarva-jana-deśa-kāla-daśāte vyāpti yāra
 
 *abhidheya*—el medio para alcanzar un fin; *sādhana-bhaktira*—del proceso de ejecutar servicio devocional; *śunaha vicāra*—por favor escuchad el procedimiento; *sarva*—todos; *jana*—personas; *deśa*—países; *kāla*—tiempos; *daśāte*—y en circunstancias; *vyāpti yāra*—que es omnipenetrante.

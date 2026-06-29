@@ -1,18 +1,18 @@
 ### SB 6.2.5-6
 
-> यस्याङ्के शिर आधाय लोकः स्वपिति निर्वृतः
-> स्वयं धर्ममधर्मं वा न हि वेद यथा पशुः ॥५॥
-> स कथं न्यर्पितात्मानं कृतमैत्रमचेतनम
+> यस्याङ्के शिर आधाय लोकः स्वपिति निर्वृतः\
+> स्वयं धर्ममधर्मं वा न हि वेद यथा पशुः ॥५॥\
+> स कथं न्यर्पितात्मानं कृतमैत्रमचेतनम\
 > विस्रम्भणीयो भूतानां सघृणो दोग्धुमर्हति ॥६॥
 
-> yasyāṅke śira ādhāya
-> lokaḥ svapiti nirvṛtaḥ
-> svayaṁ dharmam adharmaṁ vā
+> yasyāṅke śira ādhāya\
+> lokaḥ svapiti nirvṛtaḥ\
+> svayaṁ dharmam adharmaṁ vā\
 > na hi veda yathā paśuḥ
 
-> sa kathaṁ nyarpitātmānaṁ
-> kṛta-maitram acetanam
-> visrambhaṇīyo bhūtānāṁ
+> sa kathaṁ nyarpitātmānaṁ\
+> kṛta-maitram acetanam\
+> visrambhaṇīyo bhūtānāṁ\
 > saghṛṇo dogdhum arhati
 
 *yasya*—of whom; *aṅke*—on the lap; *śiraḥ*—the head; *ādhāya*—placing; *lokaḥ*—the general mass of people; *svapiti*—sleep; *nirvṛtaḥ*—in peace; *svayam*—personally; *dharmam*—religious principles or the goal of life; *adharmam*—irreligious principles; *vā*—or; *na*—not; *hi*—indeed; *veda*—know; *yathā*—exactly like; *paśuḥ*—an animal; *saḥ*—such a person; *katham*—how; *nyarpita-ātmānam*—unto the living entity who has fully surrendered; *kṛta-maitram*—endowed with good faith and friendship; *acetanam*—with undeveloped consciousness, foolish; *visrambhaṇīyaḥ*—deserving to be the object of faith; *bhūtānām*—of the living entities; *sa-ghṛṇaḥ*—who has a soft heart for the good of all people; *dogdhum*—to give pain; *arhati*—is able.

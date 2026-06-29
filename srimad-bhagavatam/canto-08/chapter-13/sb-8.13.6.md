@@ -1,11 +1,11 @@
 ### SB 8.13.6
 
-> अत्रापि भगवज्जन्म कश्यपाददितेरभूत
+> अत्रापि भगवज्जन्म कश्यपाददितेरभूत\
 > आदित्यानामवरजो विष्णुर्वामनरूपधृक ॥६॥
 
-> atrāpi bhagavaj-janma
-> kaśyapād aditer abhūt
-> ādityānām avarajo
+> atrāpi bhagavaj-janma\
+> kaśyapād aditer abhūt\
+> ādityānām avarajo\
 > viṣṇur vāmana-rūpa-dhṛk
 
 *atra*—in this Manu's reign; *api*—certainly; *bhagavat-janma*—appearance of the Supreme Personality of Godhead; *kaśyapāt*—by Kaśyapa Muni; *aditeḥ*—of mother Aditi; *abhūt*—became possible; *ādityānām*—of the Ādityas; *avara-jaḥ*—the youngest; *viṣṇuḥ*—Lord Viṣṇu Himself; *vāmana-rūpa-dhṛk*—appearing as Lord Vāmana.

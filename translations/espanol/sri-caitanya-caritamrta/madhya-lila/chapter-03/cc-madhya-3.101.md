@@ -1,9 +1,9 @@
 ### CC Madhya 3.101
 
-> আচার্য কহে — না করিব সন্ন্যাসি-নিমন্ত্রণ ।
+> আচার্য কহে — না করিব সন্ন্যাসি-নিমন্ত্রণ ।\
 > সন্ন্যাসী নাশিল মোর সব স্মৃতি-ধর্ম ॥১০১॥
 
-> ācārya kahe--nā kariba sannyāsi-nimantraṇa
+> ācārya kahe--nā kariba sannyāsi-nimantraṇa\
 > sannyāsī nāśila mora saba smṛti-dharma
 
 *ācārya kahe*—Advaita Ācārya dijo; *nā kariba*—jamás lo haré; *sannyāsi-nimantraṇa*—invitación a los sannyāsīs; *sannyāsī*—un sannyāsī; *nāśila*—ha arruinado; *mora*—Mis; *saba*—todos; *smṛti-dharma*—principios regulativos del smṛti-śāstra.

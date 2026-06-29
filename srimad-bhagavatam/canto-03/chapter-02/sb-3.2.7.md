@@ -1,13 +1,13 @@
 ### SB 3.2.7
 
-> उद्धव उवाच
-> कृष्णद्युमणि निम्लोचे गीर्णेष्वजगरेण ह ।
+> उद्धव उवाच\
+> कृष्णद्युमणि निम्लोचे गीर्णेष्वजगरेण ह ।\
 > किं नु नः कुशलं ब्रूयां गतश्रीषु गृहेष्वहम् ॥७॥
 
-> uddhava uvāca
-> kṛṣṇa-dyumaṇi nimloce
-> gīrṇeṣv ajagareṇa ha
-> kiṁ nu naḥ kuśalaṁ brūyāṁ
+> uddhava uvāca\
+> kṛṣṇa-dyumaṇi nimloce\
+> gīrṇeṣv ajagareṇa ha\
+> kiṁ nu naḥ kuśalaṁ brūyāṁ\
 > gata-śrīṣu gṛheṣv aham
 
 *uddhavaḥ uvāca*—Śrī Uddhava said; *kṛṣṇa-dyumaṇi*—the Kṛṣṇa sun; *nimloce*—having set; *gīrṇeṣu*—being swallowed; *ajagareṇa*—by the great snake; *ha*—in the past; *kim*—what; *nu*—else; *naḥ*—our; *kuśalam*—welfare; *brūyām*—may I say; *gata*—gone away; *śrīṣu gṛheṣu*—in the house; *aham*—I.

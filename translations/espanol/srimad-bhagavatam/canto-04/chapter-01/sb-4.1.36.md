@@ -1,11 +1,11 @@
 ### SB 4.1.36
 
-> पुलस्त्योऽजनयत्पत्न्यामगस्त्यं च हविर्भुवि ।
+> पुलस्त्योऽजनयत्पत्न्यामगस्त्यं च हविर्भुवि ।\
 > सोऽन्यजन्मनि दह्राग्निर्विश्रवाश्च महातपाः ॥३६॥
 
-> pulastyo 'janayat patnyām
-> agastyaṁ ca havirbhuvi
-> so 'nya-janmani dahrāgnir
+> pulastyo 'janayat patnyām\
+> agastyaṁ ca havirbhuvi\
+> so 'nya-janmani dahrāgnir\
 > viśravāś ca mahā-tapāḥ
 
 *pulastyaḥ*—el sabio Pulastya; *ajanayat*—engendró; *patnyām*—en su esposa; *agastyam*—al gran sabio Agastya; *ca*—también; *havirbhuvi*—en Havirbhū; *saḥ*—él (Agastya); *anya-janmani*—en el siguiente nacimiento; *dahra-agniḥ*—el fuego de la digestión; *viśravāḥ*—Viśravā; *ca*—y; *mahā-tapāḥ*—muy poderoso por su austeridad.

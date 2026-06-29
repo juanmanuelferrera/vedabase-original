@@ -1,9 +1,9 @@
 ### CC Madhya 8.175
 
-> ‘কিলকিঞ্চিতাদি’-ভাব-বিংশতি-ভূষিত ৷
+> ‘কিলকিঞ্চিতাদি’-ভাব-বিংশতি-ভূষিত ৷\
 > গুণশ্রেণী-পুষ্পমালা সর্বাঙ্গে পূরিত ৷৷ ১৭৫ ৷৷ ॥১৭৫॥
 
-> 'kila-kiñcitādi'-bhāva-viṁśati-bhūṣita
+> 'kila-kiñcitādi'-bhāva-viṁśati-bhūṣita\
 > guṇa-śreṇī-puṣpamālā sarvāṅge pūrita
 
 *kila-kiñcita-ādi*—encabezados por kila-kiñcita; *bhāva*—con los éxtasis; *viṁśati*—veinte; *bhūṣita*—adornada; *guṇa-śreṇī*—de Sus cualidades atractivas; *puṣpa-mālā*—como una guirnalda de flores; *sarva-aṅge*—por todo el cuerpo; *pūrita*—colmada.

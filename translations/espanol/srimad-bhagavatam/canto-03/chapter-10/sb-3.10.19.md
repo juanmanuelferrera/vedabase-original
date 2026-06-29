@@ -1,11 +1,11 @@
 ### SB 3.10.19
 
-> सप्तमो मुख्यसर्गस्तु षड्विधस्तस्थुषां च यः ।
+> सप्तमो मुख्यसर्गस्तु षड्विधस्तस्थुषां च यः ।\
 > वनस्पत्योषधिलता त्वक्सारा वीरुधो द्रुमाः ॥१९॥
 
-> saptamo mukhya-sargas tu
-> ṣaḍ-vidhas tasthuṣāṁ ca yaḥ
-> vanaspaty-oṣadhi-latā-
+> saptamo mukhya-sargas tu\
+> ṣaḍ-vidhas tasthuṣāṁ ca yaḥ\
+> vanaspaty-oṣadhi-latā-\
 > tvaksārā vīrudho drumāḥ
 
 *saptamaḥ*—la séptima; *mukhya*—principio; *sargaḥ*—creación; *tu*—en verdad; *ṣaṭ-vidhaḥ*—seis clases de; *tasthuṣām*—de aquellos que no se mueven; *ca*—también; *yaḥ*—esos; *vanaspati*—árboles frutales sin flores; *oṣadhi*—árboles y plantas que existen hasta que el fruto madura; *latā*—enredaderas; *tvaksārāḥ*—plantas tubulares; *vīrudhaḥ*—enredaderas sin apoyo; *drumāḥ*—árboles con flores y frutas.

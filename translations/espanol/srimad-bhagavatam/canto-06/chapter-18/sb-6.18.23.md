@@ -1,13 +1,13 @@
 ### SB 6.18.23
 
-> श्रीशुक उवाच
-> हतपुत्रा दितिः शक्र पार्ष्णिग्राहेण विष्णुना
+> श्रीशुक उवाच\
+> हतपुत्रा दितिः शक्र पार्ष्णिग्राहेण विष्णुना\
 > मन्युना शोकदीप्तेन ज्वलन्ती पर्यचिन्तयत ॥२३॥
 
-> śrī-śuka uvāca
-> hata-putrā ditiḥ śakra-
-> pārṣṇi-grāheṇa viṣṇunā
-> manyunā śoka-dīptena
+> śrī-śuka uvāca\
+> hata-putrā ditiḥ śakra-\
+> pārṣṇi-grāheṇa viṣṇunā\
+> manyunā śoka-dīptena\
 > jvalantī paryacintayat
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *hata-putrā*—cuyos hijos habían sido matados; *ditiḥ*—Diti; *śakra-pārṣṇi-grāheṇa*—que estaba ayudando al Señor Indra; *viṣṇunā*—por el Señor Viṣṇu; *manyunā*—con ira; *śoka-dīptena*—encendida por la lamentación; *jvalantī*—ardiendo; *paryacintayat*—pensaba.

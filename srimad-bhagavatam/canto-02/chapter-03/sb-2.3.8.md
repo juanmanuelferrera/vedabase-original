@@ -1,11 +1,11 @@
 ### SB 2.3.8
 
-> धर्मार्थ उत्तमश्लोकं तन्तुः तन्वन्पित्न्यजेत् ।
+> धर्मार्थ उत्तमश्लोकं तन्तुः तन्वन्पित्न्यजेत् ।\
 > रक्षाकामः पुण्यजनानोजस्कामो मरुद्गणान् ॥८॥
 
-> dharmārtha uttama-ślokaṁ
-> tantuḥ tanvan pitṝn yajet
-> rakṣā-kāmaḥ puṇya-janān
+> dharmārtha uttama-ślokaṁ\
+> tantuḥ tanvan pitṝn yajet\
+> rakṣā-kāmaḥ puṇya-janān\
 > ojas-kāmo marud-gaṇān
 
 *dharma-arthaḥ*—for spiritual advancement; *uttama-ślokam*—the Supreme Lord or persons attached to the Supreme Lord; *tantuḥ*—for offspring; *tanvan*—and for their protection; *pitṝn*—the residents of Pitṛloka; *yajet*—must worship; *rakṣā-kāmaḥ*—one who desires protection; *puṇya-janān*—pious persons; *ojaḥ-kāmaḥ*—one who desires strength should worship; *marut-gaṇān*—the demigods.

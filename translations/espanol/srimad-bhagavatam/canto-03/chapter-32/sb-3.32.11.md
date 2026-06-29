@@ -1,11 +1,11 @@
 ### SB 3.32.11
 
-> अथ तं सर्वभूतानां हृत्पद्मेषु कृतालयम् ।
+> अथ तं सर्वभूतानां हृत्पद्मेषु कृतालयम् ।\
 > श्रुतानुभावं शरणं व्रज भावेन भामिनि ॥११॥
 
-> atha taṁ sarva-bhūtānāṁ
-> hṛt-padmeṣu kṛtālayam
-> śrutānubhāvaṁ śaraṇaṁ
+> atha taṁ sarva-bhūtānāṁ\
+> hṛt-padmeṣu kṛtālayam\
+> śrutānubhāvaṁ śaraṇaṁ\
 > vraja bhāvena bhāmini
 
 *atha*—así pues; *tam*—a la Suprema Personalidad de Dios; *sarva-bhūtānām*—de todas las entidades vivientes; *hṛt-padmeṣu*—en los corazones de loto; *kṛta-ālayam*—residir; *śruta-anubhāvam*—cuyas glorias has escuchado; *śaraṇam*—al refugio; *vraja*—van; *bhāvena*—por medio del servicio devocional; *bhāmini*—Mi querida madre.

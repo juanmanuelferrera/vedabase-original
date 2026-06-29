@@ -1,11 +1,11 @@
 ### SB 3.24.16
 
-> वेदाहमाद्यं पुरुषमवतीर्णं स्वमायया ।
+> वेदाहमाद्यं पुरुषमवतीर्णं स्वमायया ।\
 > भूतानां शेवधिं देहं बिभ्राणं कपिलं मुने ॥१६॥
 
-> vedāham ādyaṁ puruṣam
-> avatīrṇaṁ sva-māyayā
-> bhūtānāṁ śevadhiṁ dehaṁ
+> vedāham ādyaṁ puruṣam\
+> avatīrṇaṁ sva-māyayā\
+> bhūtānāṁ śevadhiṁ dehaṁ\
 > bibhrāṇaṁ kapilaṁ mune
 
 *veda*—know; *aham*—I; *ādyam*—the original; *puruṣam*—enjoyer; *avatīrṇam*—incarnated; *sva-māyayā*—by His own internal energy; *bhūtānām*—of all the living entities; *śevadhim*—the bestower of all desired, who is just like a vast treasure; *deham*—the body; *bibhrāṇam*—assuming; *kapilam*—Kapila Muni; *mune*—O sage Kardama.

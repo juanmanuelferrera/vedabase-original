@@ -1,9 +1,9 @@
 ### CC Adi 4.236
 
-> যে লাগি কহিতে ভয়, সে যদি না জানে ।
+> যে লাগি কহিতে ভয়, সে যদি না জানে ।\
 > ইহা বই কিবা সুখ আছে ত্রিভুবনে ॥২৩৬॥
 
-> ye lāgi kahite bhaya, se yadi nā jāne
+> ye lāgi kahite bhaya, se yadi nā jāne\
 > ihā va-i kibā sukha āche tribhuvane
 
 *ye lāgi*—por cuya causa; *kahite bhaya*—temor de hablar; *se yadi nā jāne*—si ellos no saben; *ihā va-i*—excepto esto; *kibā*—qué; *sukha*—felicidad; *āche*—hay; *tri-bhuvane*—en los tres mundos.

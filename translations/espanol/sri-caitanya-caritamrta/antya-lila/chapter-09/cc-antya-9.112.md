@@ -1,9 +1,9 @@
 ### CC Antya 9.112
 
-> প্রভুর ইচ্ছা নাহি, তারে কৌড়ি ছাড়াইবে ।
+> প্রভুর ইচ্ছা নাহি, তারে কৌড়ি ছাড়াইবে ।\
 > দ্বিগুণ বর্তন করি’ পুনঃ ‘বিষয়’ দিবে ॥১১২॥
 
-> prabhura icchā nāhi, tāre kauḍi chāḍāibe
+> prabhura icchā nāhi, tāre kauḍi chāḍāibe\
 > dviguṇa vartana kari' punaḥ 'viṣaya' dibe
 
 *prabhura icchā*—el deseo del Señor; *nāhi*—no era; *tāre kauḍi chāḍāibe*—que fuese excusado de las deudas; *dvi-guṇa*—el doble; *vartana kari'*—aumentando el salario; *punaḥ*—de nuevo; *viṣaya dibe*—que fuese nombrado en el puesto.

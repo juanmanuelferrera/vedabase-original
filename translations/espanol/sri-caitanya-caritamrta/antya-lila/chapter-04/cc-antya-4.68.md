@@ -1,9 +1,9 @@
 ### CC Antya 4.68
 
-> দীনেরে অধিক দয়া করেন ভগবান্ ।
+> দীনেরে অধিক দয়া করেন ভগবান্ ।\
 > কুলীন, পণ্ডিত, ধনীর বড় অভিমান ॥৬৮॥
 
-> dīnere adhika dayā kare bhagavān
+> dīnere adhika dayā kare bhagavān\
 > kulīna, paṇḍita, dhanīra baḍa abhimāna
 
 *dīnere*—al humilde; *adhika*—más; *dayā*—misericordia; *kare*—muestra; *bhagavān*—la Suprema Personalidad de Dios; *kulīna*—aristócrata; *paṇḍita*—erudito; *dhanīra*—de un hombre rico; *baḍa abhimāna*—gran orgullo.

@@ -1,13 +1,13 @@
 ### SB 3.15.47
 
-> तं त्वां विदाम भगवन्परमात्मतत्त्वं
-> सत्त्वेन सम्प्रति रतिं रचयन्तमेषाम् ।
-> यत्तेऽनुतापविदितैर्दृढभक्तियोगैर्
+> तं त्वां विदाम भगवन्परमात्मतत्त्वं\
+> सत्त्वेन सम्प्रति रतिं रचयन्तमेषाम् ।\
+> यत्तेऽनुतापविदितैर्दृढभक्तियोगैर्\
 > उद्ग्रन्थयो हृदि विदुर्मुनयो विरागाः ॥४७॥
 
-> taṁ tvāṁ vidāma bhagavan param ātma-tattvaṁ
-> sattvena samprati ratiṁ racayantam eṣām
-> yat te 'nutāpa-viditair dṛḍha-bhakti-yogair
+> taṁ tvāṁ vidāma bhagavan param ātma-tattvaṁ\
+> sattvena samprati ratiṁ racayantam eṣām\
+> yat te 'nutāpa-viditair dṛḍha-bhakti-yogair\
 > udgranthayo hṛdi vidur munayo virāgāḥ
 
 *tam*—Him; *tvām*—You; *vidāma*—we know; *bhagavan*—O Supreme Personality of Godhead; *param*—the Supreme; *ātma-tattvam*—Absolute Truth; *sattvena*—by Your form of pure goodness; *samprati*—now; *ratim*—love of God; *racayantam*—creating; *eṣām*—of all of them; *yat*—which; *te*—Your; *anutāpa*—mercy; *viditaiḥ*—understood; *dṛḍha*—unflinching; *bhakti-yogaiḥ*—through devotional service; *udgranthayaḥ*—without attachment, free from material bondage; *hṛdi*—in the heart; *viduḥ*—understood; *munayaḥ*—great sages; *virāgāḥ*—not interested in material life.

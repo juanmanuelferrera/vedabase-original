@@ -1,11 +1,11 @@
 ### Bg 9.6
 
-> यथाकाशस्थितो नित्यं वायुः सर्वत्रगो महान् ।
+> यथाकाशस्थितो नित्यं वायुः सर्वत्रगो महान् ।\
 > तथा सर्वाणि भूतानि मत्स्थानीत्युपधारय ॥६॥
 
-> yathākāśa-sthito nityaṁ
-> vāyuḥ sarvatra-go mahān
-> tathā sarvāṇi bhūtāni
+> yathākāśa-sthito nityaṁ\
+> vāyuḥ sarvatra-go mahān\
+> tathā sarvāṇi bhūtāni\
 > mat-sthānīty upadhāraya
 
 *yathā*—tanto como; *ākāśa-sthitaḥ*—situado en el espacio; *nityam*—siempre; *vāyuḥ*—el viento; *sarvatra-gaḥ*—que sopla por doquier; *mahān*—gran; *tathā*—de forma similar; *sarvāṇi*—todo; *bhūtāni*—los seres creados; *mat-sthāni*—situados en Mí; *iti*—de este modo; *upadhāraya*—trata de entender.

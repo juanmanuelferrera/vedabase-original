@@ -1,11 +1,11 @@
 ### Bg 9.4
 
-> मया ततमिदं सर्वं जगदव्यक्तमूर्तिना ।
+> मया ततमिदं सर्वं जगदव्यक्तमूर्तिना ।\
 > मत्स्थानि सर्वभूतानि न चाहं तेष्ववस्थितः ॥४॥
 
-> mayā tatam idaṁ sarvaṁ
-> jagad avyakta-mūrtinā
-> mat-sthāni sarva-bhūtāni
+> mayā tatam idaṁ sarvaṁ\
+> jagad avyakta-mūrtinā\
+> mat-sthāni sarva-bhūtāni\
 > na cāhaṁ teṣv avasthitaḥ
 
 *mayā*—por Mí; *tatam*—difundido; *idam*—todas estas manifestaciones; *sarvam*—todas; *jagat*—manifestación cósmica; *avyakta-mūrtinā*—forma no manifiesta; *mat-sthāni*—a Mí; *sarva-bhūtāni*—todas las entidades vivientes; *na*—no; *ca*—también; *aham*—Yo; *teṣu*—en ellos; *avasthitaḥ*—situado.

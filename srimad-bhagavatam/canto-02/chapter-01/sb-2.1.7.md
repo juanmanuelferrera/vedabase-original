@@ -1,11 +1,11 @@
 ### SB 2.1.7
 
-> प्रायेण मुनयो राजन्निवृत्ता विधिषेधतः ।
+> प्रायेण मुनयो राजन्निवृत्ता विधिषेधतः ।\
 > नैर्गुण्यस्था रमन्ते स्म गुणानुकथने हरेः ॥७॥
 
-> prāyeṇa munayo rājan
-> nivṛttā vidhi-ṣedhataḥ
-> nairguṇya-sthā ramante sma
+> prāyeṇa munayo rājan\
+> nivṛttā vidhi-ṣedhataḥ\
+> nairguṇya-sthā ramante sma\
 > guṇānukathane hareḥ
 
 *prāyeṇa*—mainly; *munayaḥ*—all sages; *rājan*—O King; *nivṛttāḥ*—above; *vidhi*—regulative principles; *ṣedhataḥ*—from restrictions; *nairguṇya-sthāḥ*—transcendentally situated; *ramante*—take pleasure in; *sma*—distinctly; *guṇa-anukathane*—describing the glories; *hareḥ*—of the Lord.

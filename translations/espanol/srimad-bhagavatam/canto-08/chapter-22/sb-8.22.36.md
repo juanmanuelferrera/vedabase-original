@@ -1,11 +1,11 @@
 ### SB 8.22.36
 
-> तत्र दानवदैत्यानां सङ्गात्ते भाव आसुरः
+> तत्र दानवदैत्यानां सङ्गात्ते भाव आसुरः\
 > दृष्ट्वा मदनुभावं वै सद्यः कुण्ठो विनङ्क्ष्यति ॥३६॥
 
-> tatra dānava-daityānāṁ
-> saṅgāt te bhāva āsuraḥ
-> dṛṣṭvā mad-anubhāvaṁ vai
+> tatra dānava-daityānāṁ\
+> saṅgāt te bhāva āsuraḥ\
+> dṛṣṭvā mad-anubhāvaṁ vai\
 > sadyaḥ kuṇṭho vinaṅkṣyati
 
 *tatra*—en ese lugar; *dānava-daityānām*—de los demonios y los *dānavas*; *saṅgāt*—debido al contacto; *te*—tuya; *bhāvaḥ*—mentalidad; *āsuraḥ*—demoníaca; *dṛṣṭvā*—por observar; *mat-anubhāvam*—Mi extraordinario poder; *vai*—en verdad; *sadyaḥ*—de inmediato; *kuṇṭhaḥ*—ansiedad; *vinaṅkṣyati*—será destruida.

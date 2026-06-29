@@ -1,13 +1,13 @@
 ### SB 4.7.41
 
-> अग्निरुवाच
-> यत्तेजसाहं सुसमिद्धतेजा हव्यं वहे स्वध्वर आज्यसिक्तम् ।
+> अग्निरुवाच\
+> यत्तेजसाहं सुसमिद्धतेजा हव्यं वहे स्वध्वर आज्यसिक्तम् ।\
 > तं यज्ञियं पञ्चविधं च पञ्चभिः स्विष्टं यजुर्भिः प्रणतोऽस्मि यज्ञम् ॥४१॥
 
-> agnir uvāca
-> yat-tejasāhaṁ susamiddha-tejā
-> havyaṁ vahe svadhvara ājya-siktam
-> taṁ yajñiyaṁ pañca-vidhaṁ ca pañcabhiḥ
+> agnir uvāca\
+> yat-tejasāhaṁ susamiddha-tejā\
+> havyaṁ vahe svadhvara ājya-siktam\
+> taṁ yajñiyaṁ pañca-vidhaṁ ca pañcabhiḥ\
 > sviṣṭaṁ yajurbhiḥ praṇato 'smi yajñam
 
 *agniḥ*—el dios del fuego; *uvāca*—dijo; *yat-tejasā*—por cuya refulgencia; *aham*—yo; *su-samiddha-tejāḥ*—tan luminoso como el fuego ardiente; *havyam*—ofrendas; *vahe*—estoy aceptando; *su-adhvare*—en el sacrificio; *ājya-siktam*—mezcladas con mantequilla; *tam*—a ese; *yajñiyam*—el protector del sacrificio; *pañca-vidham*—cinco; *ca*—y; *pañcabhiḥ*—con cinco; *su-iṣṭam*—adorado; *yajurbhiḥ*—himnos védicos; *praṇataḥ*—ofrezco respetuosas reverencias; *asmi*—yo; *yajñam*—a Yajña (Viṣṇu).

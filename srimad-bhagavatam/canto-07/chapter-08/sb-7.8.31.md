@@ -1,11 +1,11 @@
 ### SB 7.8.31
 
-> नखाङ्कुरोत्पाटितहृत्सरोरुहं विसृज्य तस्यानुचरानुदायुधान
+> नखाङ्कुरोत्पाटितहृत्सरोरुहं विसृज्य तस्यानुचरानुदायुधान\
 > अहन्समस्तान्नखशस्त्रपाणिभिर्दोर्दण्डयूथोऽनुपथान्सहस्रशः ॥३१॥
 
-> nakhāṅkurotpāṭita-hṛt-saroruhaṁ
-> visṛjya tasyānucarān udāyudhān
-> ahan samastān nakha-śastra-pāṇibhir
+> nakhāṅkurotpāṭita-hṛt-saroruhaṁ\
+> visṛjya tasyānucarān udāyudhān\
+> ahan samastān nakha-śastra-pāṇibhir\
 > dordaṇḍa-yūtho 'nupathān sahasraśaḥ
 
 *nakha-aṅkura*—by the pointed nails; *utpāṭita*—torn out; *hṛt-saroruham*—whose heart, which was like a lotus flower; *visṛjya*—leaving aside; *tasya*—of him; *anucarān*—the followers (soldiers and bodyguards); *udāyudhān*—having raised weapons; *ahan*—He killed; *samastān*—all; *nakha-śastra-pāṇibhiḥ*—with His nails and other weapons in His hands; *dordaṇḍa-yūthaḥ*—having unlimited arms; *anupathān*—the attendants of Hiraṇyakaśipu; *sahasraśaḥ*—by thousands.

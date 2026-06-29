@@ -1,9 +1,9 @@
 ### CC Madhya 8.222
 
-> ব্রজলোকের কোন ভাব লঞা যেই ভজে ৷
+> ব্রজলোকের কোন ভাব লঞা যেই ভজে ৷\
 > ভাবযোগ্য দেহ পাঞা কৃষ্ণ পায় ব্রজে ৷৷ ২২২ ৷৷ ॥২২২॥
 
-> vraja-lokera kona bhāva lañā yei bhaje
+> vraja-lokera kona bhāva lañā yei bhaje\
 > bhāva-yogya deha pāñā kṛṣṇa pāya vraje
 
 *vraja-lokera*—del planeta conocido como Goloka Vṛndāvana; *kona*—alguna; *bhāva*—disposición; *lañā*—aceptando; *yei*—quienquiera que; *bhaje*—ejecuta servicio devocional; *bhāva-yogya*—apto para esa atracción espiritual; *deha*—un cuerpo; *pāñā*—obteniendo; *kṛṣṇa*—al Señor Kṛṣṇa; *pāya*—obtiene; *vraje*—en Vṛndāvana.

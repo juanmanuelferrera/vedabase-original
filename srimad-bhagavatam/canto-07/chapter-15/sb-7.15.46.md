@@ -1,13 +1,13 @@
 ### SB 7.15.46
 
-> नोचेत्प्रमत्तमसदिन्द्रियवाजिसूता
-> नीत्वोत्पथं विषयदस्युषु निक्षिपन्ति
-> ते दस्यवः सहयसूतममुं तमोऽन्धे
+> नोचेत्प्रमत्तमसदिन्द्रियवाजिसूता\
+> नीत्वोत्पथं विषयदस्युषु निक्षिपन्ति\
+> ते दस्यवः सहयसूतममुं तमोऽन्धे\
 > संसारकूप उरुमृत्युभये क्षिपन्ति ॥४६॥
 
-> nocet pramattam asad-indriya-vāji-sūtā
-> nītvotpathaṁ viṣaya-dasyuṣu nikṣipanti
-> te dasyavaḥ sahaya-sūtam amuṁ tamo 'ndhe
+> nocet pramattam asad-indriya-vāji-sūtā\
+> nītvotpathaṁ viṣaya-dasyuṣu nikṣipanti\
+> te dasyavaḥ sahaya-sūtam amuṁ tamo 'ndhe\
 > saṁsāra-kūpa uru-mṛtyu-bhaye kṣipanti
 
 *nocet*—if we do not follow the instructions of Acyuta, Kṛṣṇa, and do not take shelter of Balarāma; *pramattam*—careless, inattentive; *asat*—which are always prone to material consciousness; *indriya*—the senses; *vāji*—acting as the horses; *sūtāḥ*—the chariot driver (intelligence); *nītvā*—bringing; *utpatham*—to the roadway of material desire; *viṣaya*—the sense objects; *dasyuṣu*—in the hands of the plunderers; *nikṣipanti*—throw; *te*—those; *dasyavaḥ*—plunderers; *sa*—with; *haya-sūtam*—the horses and chariot driver; *amum*—all of them; *tamaḥ*—dark; *andhe*—blind; *saṁsāra-kūpe*—into the well of material existence; *uru*—great; *mṛtyu-bhaye*—fear of death; *kṣipanti*—throw.

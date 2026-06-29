@@ -1,9 +1,9 @@
 ### CC Adi 10.3
 
-> এই মালীর — এই বৃক্ষের অকথ্য কথন ।
+> এই মালীর — এই বৃক্ষের অকথ্য কথন ।\
 > এবে শুন মুখ্যশাখার নাম-বিবরণ ॥৩॥
 
-> ei mālīra--ei vṛkṣera akathya kathana
+> ei mālīra--ei vṛkṣera akathya kathana\
 > ebe śuna mukhya-śākhāra nāma-vivaraṇa
 
 *ei mālīra*—de este jardinero; *ei vṛkṣera*—de este árbol; *akathya kathana*—descripción inconcebible; *ebe*—ahora; *śuna*—escuchen; *mukhya*—principales; *śākhāra*—de las ramas; *nāma*—de los nombres; *vivaraṇa*—descripción.

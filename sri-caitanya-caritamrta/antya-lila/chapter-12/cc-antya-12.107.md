@@ -1,9 +1,9 @@
 ### CC Antya 12.107
 
-> এক-কলস সুগন্ধি তৈল গৌড়েতে করিয়া ।
+> এক-কলস সুগন্ধি তৈল গৌড়েতে করিয়া ।\
 > ইঁহা আনিয়াছে বহু যতন করিয়া ।।” ॥ ১০৭ ॥
 
-> eka-kalasa sugandhi taila gauḍete kariyā
+> eka-kalasa sugandhi taila gauḍete kariyā\
 > ihāṅ āniyāche bahu yatana kariyā"
 
 *eka-kalasa*—one big full jug; *su-gandhi taila*—scented oil; *gauḍete kariyā*—manufacturing in Bengal; *ihāṅ*—here; *āniyāche*—has brought; *bahu yatana kariyā*—with great care.

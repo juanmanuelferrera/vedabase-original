@@ -1,11 +1,11 @@
 ### SB 3.21.49
 
-> गृहीतार्हणमासीनं संयतं प्रीणयन्मुनिः ।
+> गृहीतार्हणमासीनं संयतं प्रीणयन्मुनिः ।\
 > स्मरन्भगवदादेशमित्याह श्लक्ष्णया गिरा ॥४९॥
 
-> gṛhītārhaṇam āsīnaṁ
-> saṁyataṁ prīṇayan muniḥ
-> smaran bhagavad-ādeśam
+> gṛhītārhaṇam āsīnaṁ\
+> saṁyataṁ prīṇayan muniḥ\
+> smaran bhagavad-ādeśam\
 > ity āha ślakṣṇayā girā
 
 *gṛhīta*—received; *arhaṇam*—honor; *āsīnam*—seated; *saṁyatam*—remained silent; *prīṇayan*—delighting; *muniḥ*—the sage; *smaran*—remembering; *bhagavat*—of the Lord; *ādeśam*—the order; *iti*—thus; *āha*—spoke; *ślakṣṇayā*—sweet; *girā*—with a voice.

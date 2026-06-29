@@ -1,9 +1,9 @@
 ### CC Antya 6.115
 
-> কত উপহার আনে, হেন নাহি জানি ।
+> কত উপহার আনে, হেন নাহি জানি ।\
 > রাঘবের ঘরে রান্ধে রাধা-ঠাকুরাণী ॥১১৫॥
 
-> kata upahāra āne, hena nāhi jāni
+> kata upahāra āne, hena nāhi jāni\
 > rāghavera ghare rāndhe rādhā-ṭhākurāṇī
 
 *kata upahāra*—muchas ofrendas; *āne*—trae; *hena*—tales; *nāhi jāni*—no puedo comprender; *rāghavera ghare*—en la casa de Rāghava Paṇḍita; *rāndhe*—cocina; *rādhā-ṭhākurāṇī*—la madre suprema, Śrīmatī Rādhārāṇī.

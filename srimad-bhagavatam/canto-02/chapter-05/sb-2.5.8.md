@@ -1,11 +1,11 @@
 ### SB 2.5.8
 
-> एतन्मे पृच्छतः सर्वं सर्वज्ञ सकलेश्वर ।
+> एतन्मे पृच्छतः सर्वं सर्वज्ञ सकलेश्वर ।\
 > विजानीहि यथैवेदमहं बुध्येऽनुशासितः ॥८॥
 
-> etan me pṛcchataḥ sarvaṁ
-> sarva-jña sakaleśvara
-> vijānīhi yathaivedam
+> etan me pṛcchataḥ sarvaṁ\
+> sarva-jña sakaleśvara\
+> vijānīhi yathaivedam\
 > ahaṁ budhye 'nuśāsitaḥ
 
 *etat*—all those; *me*—unto me; *pṛcchataḥ*—inquisitive; *sarvam*—all that is inquired; *sarva-jña*—one who knows everything; *sakala*—over all; *īśvara*—the controller; *vijānīhi*—kindly explain; *yathā*—as; *eva*—they are; *idam*—this; *aham*—myself; *budhye*—can understand; *anuśāsitaḥ*—just learning from you.

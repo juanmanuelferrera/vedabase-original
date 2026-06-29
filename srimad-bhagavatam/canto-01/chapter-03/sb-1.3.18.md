@@ -1,11 +1,11 @@
 ### SB 1.3.18
 
-> चतुर्दशं नारसिंहं बिभ्रद्दैत्येन्द्रमूर्जितम् ।
+> चतुर्दशं नारसिंहं बिभ्रद्दैत्येन्द्रमूर्जितम् ।\
 > ददार करजैरूरावेरकां कटकृद्यथा ॥१८॥
 
-> caturdaśaṁ nārasiṁhaṁ
-> bibhrad daityendram ūrjitam
-> dadāra karajair ūrāv
+> caturdaśaṁ nārasiṁhaṁ\
+> bibhrad daityendram ūrjitam\
+> dadāra karajair ūrāv\
 > erakāṁ kaṭa-kṛd yathā
 
 *caturdaśam*—the fourteenth in the line; *nāra-siṁham*—the incarnation of the Lord as half-man and half-lion; *bibhrat*—advented; *daitya-indram*—the king of the atheists; *ūrjitam*—strongly built; *dadāra*—bifurcated; *karajaiḥ*—by the nails; *ūrau*—on the lap; *erakām*—canes; *kaṭa-kṛt*—carpenter; *yathā*—just like.

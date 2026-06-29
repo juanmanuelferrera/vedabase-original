@@ -1,17 +1,17 @@
 ### Bg 6.13-14
 
-> समं कायशिरोग्रीवं धारयन्नचलं स्थिरः ।
-> सम्प्रेक्ष्य नासिकाग्रं स्वं दिशश्चानवलोकयन् ॥१३॥
-> प्रशान्तात्मा विगतभीर्ब्रह्मचारिव्रते स्थितः ।
+> समं कायशिरोग्रीवं धारयन्नचलं स्थिरः ।\
+> सम्प्रेक्ष्य नासिकाग्रं स्वं दिशश्चानवलोकयन् ॥१३॥\
+> प्रशान्तात्मा विगतभीर्ब्रह्मचारिव्रते स्थितः ।\
 > मनः संयम्य मच्चित्तो युक्त आसीत मत्परः ॥१४॥
 
-> samaṁ kāya-śiro-grīvaṁ
-> dhārayann acalaṁ sthiraḥ
-> samprekṣya nāsikāgraṁ svaṁ
-> diśaś cānavalokayan
-> praśāntātmā vigata-bhīr
-> brahmacāri-vrate sthitaḥ
-> manaḥ saṁyamya mac-citto
+> samaṁ kāya-śiro-grīvaṁ\
+> dhārayann acalaṁ sthiraḥ\
+> samprekṣya nāsikāgraṁ svaṁ\
+> diśaś cānavalokayan\
+> praśāntātmā vigata-bhīr\
+> brahmacāri-vrate sthitaḥ\
+> manaḥ saṁyamya mac-citto\
 > yukta āsīta mat-paraḥ
 
 *samam*—recto; *kāya-śiraḥ*—cuerpo y cabeza; *grīvam*—cuello; *dhārayan*—sosteniendo; *acalam*—inmóvil; *sthiraḥ*—quieto; *samprekṣya*—mirando; *nāsikā*—nariz; *agram*—la punta; *svam*—propio; *diśaḥ*—todos los lados; *ca*—además; *anavalokayan*—sin mirar; *praśānta*—sin estar agitada; *ātmā*—mente; *vigata-bhīḥ*—libre de temor; *brahmacāri-vrate*—en el voto de celibato; *sthitaḥ*—situado; *manaḥ*—mente; *saṁyamya*—sometido por completo; *mat*—a Mí (Kṛṣṇa); *cittaḥ*—concentrado; *yuktaḥ*—el verdadero yogī; *āsīta*—siendo así; *mat*—a Mí; *paraḥ*—la meta última.

@@ -1,13 +1,13 @@
 ### SB 9.11.24
 
-> श्रीराजोवाच
-> कथं स भगवान्रामो भ्रात्न्वा स्वयमात्मनः
+> श्रीराजोवाच\
+> कथं स भगवान्रामो भ्रात्न्वा स्वयमात्मनः\
 > तस्मिन्वा तेऽन्ववर्तन्त प्रजाः पौराश्च ईश्वरे ॥२४॥
 
-> śrī-rājovāca
-> kathaṁ sa bhagavān rāmo
-> bhrātṝn vā svayam ātmanaḥ
-> tasmin vā te 'nvavartanta
+> śrī-rājovāca\
+> kathaṁ sa bhagavān rāmo\
+> bhrātṝn vā svayam ātmanaḥ\
+> tasmin vā te 'nvavartanta\
 > prajāḥ paurāś ca īśvare
 
 *śrī-rājā uvāca*—Mahārāja Parīkṣit inquired; *katham*—how; *saḥ*—He, the Lord; *bhagavān*—the Supreme Personality of Godhead; *rāmaḥ*—Lord Rāmacandra; *bhrātṝn*—unto the brothers (Lakṣmaṇa, Bharata and Śatrughna); *vā*—either; *svayam*—personally; *ātmanaḥ*—expansions of His person; *tasmin*—unto the Lord; *vā*—either; *te*—they (all the inhabitants and the brothers); *anvavartanta*—behaved; *prajāḥ*—all the inhabitants; *paurāḥ*—the citizens; *ca*—and; *īśvare*—unto the Supreme Lord.

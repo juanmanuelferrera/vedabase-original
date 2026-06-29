@@ -1,11 +1,11 @@
 ### SB 4.24.40
 
-> अर्थलिङ्गाय नभसे नमोऽन्तर्बहिरात्मने ।
+> अर्थलिङ्गाय नभसे नमोऽन्तर्बहिरात्मने ।\
 > नमः पुण्याय लोकाय अमुष्मै भूरिवर्चसे ॥४०॥
 
-> artha-liṅgāya nabhase
-> namo 'ntar-bahir-ātmane
-> namaḥ puṇyāya lokāya
+> artha-liṅgāya nabhase\
+> namo 'ntar-bahir-ātmane\
+> namaḥ puṇyāya lokāya\
 > amuṣmai bhūri-varcase
 
 *artha*—meaning; *liṅgāya*—revealing; *nabhase*—unto the sky; *namaḥ*—offering obeisances; *antaḥ*—within; *bahiḥ*—and without; *ātmane*—unto the self; *namaḥ*—offering obeisances; *puṇyāya*—pious activities; *lokāya*—for creation; *amuṣmai*—beyond death; *bhūri-varcase*—the supreme effulgence.

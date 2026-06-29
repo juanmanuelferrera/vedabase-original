@@ -1,9 +1,9 @@
 ### CC Antya 10.100
 
-> এই সব হয় ভক্তিশাস্ত্র-সূক্ষ্ম মর্ম ।
+> এই সব হয় ভক্তিশাস্ত্র-সূক্ষ্ম মর্ম ।\
 > চৈতন্যের কৃপায় জানে এই সব ধর্ম ॥১০০॥
 
-> ei saba haya bhakti-śāstra-sūkṣma marma
+> ei saba haya bhakti-śāstra-sūkṣma marma\
 > caitanyera kṛpāya jāne ei saba dharma
 
 *ei saba*—all these; *haya*—are; *bhakti-śāstra*—of the system of devotional service; *sūkṣma marma*—finer principles; *caitanyera kṛpāya*—by the mercy of Śrī Caitanya Mahāprabhu; *jāne*—one can understand; *ei saba*—all these; *dharma*—principles of devotional service.

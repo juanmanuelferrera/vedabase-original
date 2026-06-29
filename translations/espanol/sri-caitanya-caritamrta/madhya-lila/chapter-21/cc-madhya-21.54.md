@@ -1,10 +1,10 @@
 ### CC Madhya 21.54
 
-> এই তিন ধামের হয় কৃষ্ণ অধীশ্বর ।
+> এই তিন ধামের হয় কৃষ্ণ অধীশ্বর ।\
 > গোলোক-পরব্যোম — প্রকৃতির পর ॥৫৪॥
 
-> ei tina dhāmera haya kṛṣṇa adhīśvara
-> goloka-paravyoma--prakṛtira para
+> ei tina dhāmera haya kṛṣṇa adhīśvara\
+> goloka-paravyoma--prakṛtira para\
 > SYNONYMS
 
 *ei tina dhāmera*—de estos tres *dhāmas*, o lugares de residencia, a saber, Goloka Vṛndāvana-dhāma, Vaikuṇṭha-dhāma (Hari-dhāma) y Devī-dhāma (el mundo material); *haya*—es; *kṛṣṇa*—el Señor Kṛṣṇa; *adhīśvara*—el amo supremo; *goloka-paravyoma*—el planeta espiritual Goloka y el cielo espiritual; *prakṛtira para*—más allá de esta energía material.

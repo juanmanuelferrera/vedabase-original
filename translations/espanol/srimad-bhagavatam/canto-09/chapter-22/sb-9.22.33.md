@@ -1,11 +1,11 @@
 ### SB 9.22.33
 
-> तव तातः सुभद्रायामभिमन्युरजायत
+> तव तातः सुभद्रायामभिमन्युरजायत\
 > सर्वातिरथजिद्वीर उत्तरायां ततो भवान ॥३३॥
 
-> tava tātaḥ subhadrāyām
-> abhimanyur ajāyata
-> sarvātirathajid vīra
+> tava tātaḥ subhadrāyām\
+> abhimanyur ajāyata\
+> sarvātirathajid vīra\
 > uttarāyāṁ tato bhavān
 
 *tava*—tuyo; *tātaḥ*—padre; *subhadrāyām*—en el vientre de Subhadrā; *abhimanyuḥ*—Abhimanyu; *ajāyata*—nació; *sarva-atiratha-jit*—un gran luchador que podía vencer a los *atirathas*; *vīraḥ*—un gran héroe; *uttarāyām*—en el vientre de Uttarā; *tataḥ*—de Abhimanyu; *bhavān*—Tu Gracia.

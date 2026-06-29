@@ -1,11 +1,11 @@
 ### SB 4.31.2
 
-> दीक्षिता ब्रह्मसत्रेण सर्वभूतात्ममेधसा ।
+> दीक्षिता ब्रह्मसत्रेण सर्वभूतात्ममेधसा ।\
 > प्रतीच्यां दिशि वेलायां सिद्धोऽभूद्यत्र जाजलिः ॥२॥
 
-> dīkṣitā brahma-satreṇa
-> sarva-bhūtātma-medhasā
-> pratīcyāṁ diśi velāyāṁ
+> dīkṣitā brahma-satreṇa\
+> sarva-bhūtātma-medhasā\
+> pratīcyāṁ diśi velāyāṁ\
 > siddho 'bhūd yatra jājaliḥ
 
 *dīkṣitāḥ*—being determined; *brahma-satreṇa*—by understanding of the Supreme Spirit; *sarva*—all; *bhūta*—living entities; *ātma-medhasā*—considering like one's self; *pratīcyām*—in the western; *diśi*—direction; *velāyām*—on the seashore; *siddhaḥ*—perfect; *abhūt*—became; *yatra*—where; *jājaliḥ*—the great sage Jājali.

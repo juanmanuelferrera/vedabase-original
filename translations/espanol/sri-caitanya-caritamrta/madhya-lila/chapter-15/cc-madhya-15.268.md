@@ -1,9 +1,9 @@
 ### CC Madhya 15.268
 
-> ঈশ্বরে ত’ অপরাধ ফলে ততক্ষণ ।
+> ঈশ্বরে ত’ অপরাধ ফলে ততক্ষণ ।\
 > এত বলি’ পড়ে দুই শাস্ত্রের বচন ॥২৬৮॥
 
-> īśvare ta' aparādha phale tata-kṣaṇa
+> īśvare ta' aparādha phale tata-kṣaṇa\
 > eta bali' paḍe dui śāstrera vacana
 
 *īśvare*—contra la Suprema Personalidad de Dios; *ta'*—ciertamente; *aparādha*—ofensa; *phale*—produce resultados; *tata-kṣaṇa*—de inmediato; *eta bali'*—al decir esto; *paḍe*—recita; *dui*—dos; *śāstrera vacana*—citas de las escrituras reveladas.

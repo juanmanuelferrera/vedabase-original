@@ -1,9 +1,9 @@
 ### CC Antya 19.18
 
-> তরজা-প্রহেলী আচার্য কহেন ঠারে-ঠোরে ।
+> তরজা-প্রহেলী আচার্য কহেন ঠারে-ঠোরে ।\
 > প্রভু মাত্র বুঝেন, কেহ বুঝিতে না পারে ॥১৮॥
 
-> tarajā-prahelī ācārya kahena ṭhāre-ṭhore
+> tarajā-prahelī ācārya kahena ṭhāre-ṭhore\
 > prabhu mātra bujhena, keha bujhite nā pāre
 
 *tarajā-prahelī*—a sonnet in equivocal language; *ācārya*—Advaita Ācārya; *kahena*—spoke; *ṭhāre-ṭhore*—making some indications; *prabhu*—Śrī Caitanya Mahāprabhu; *mātra*—only; *bujhena*—could understand; *keha bujhite nā pāre*—others could not understand.

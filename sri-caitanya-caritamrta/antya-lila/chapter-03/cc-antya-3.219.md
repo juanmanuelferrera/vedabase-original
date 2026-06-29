@@ -1,9 +1,9 @@
 ### CC Antya 3.219
 
-> মহা-মহা-বিপ্র এথা কুলীন-সমাজ ।
+> মহা-মহা-বিপ্র এথা কুলীন-সমাজ ।\
 > নীচে আদর কর, না বাসহ ভয় লাজ !! ॥ ২১৯ ॥
 
-> mahā-mahā-vipra ethā kulīna-samāja
+> mahā-mahā-vipra ethā kulīna-samāja\
 > nīce ādara kara, nā vāsaha bhaya lāja!!
 
 *mahā-mahā-vipra*—great, great *brāhmaṇas*; *ethā*—here; *kulīna-samāja*—aristocratic society; *nīce*—to a low-class person; *ādara kara*—You show honor; *nā vāsaha*—You do not care for; *bhaya lāja*—fear or shame.

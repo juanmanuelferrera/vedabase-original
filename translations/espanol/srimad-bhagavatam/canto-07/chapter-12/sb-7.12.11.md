@@ -1,11 +1,11 @@
 ### SB 7.12.11
 
-> एतत्सर्वं गृहस्थस्य समाम्नातं यतेरपि
+> एतत्सर्वं गृहस्थस्य समाम्नातं यतेरपि\
 > गुरुवृत्तिर्विकल्पेन गृहस्थस्यर्तुगामिनः ॥११॥
 
-> etat sarvaṁ gṛhasthasya
-> samāmnātaṁ yater api
-> guru-vṛttir vikalpena
+> etat sarvaṁ gṛhasthasya\
+> samāmnātaṁ yater api\
+> guru-vṛttir vikalpena\
 > gṛhasthasyartu-gāminaḥ
 
 *etat*—esto; *sarvam*—todo; *gṛhasthasya*—de un casado; *samāmnātam*—descrito; *yateḥ api*—incluso de la persona que está en la orden de renuncia; *guru-vṛttiḥ vikalpena*—seguir las órdenes del maestro espiritual; *gṛhasthasya*—del casado; *ṛtu-gāminaḥ*—aceptar la relación sexual solo durante el período favorable a la procreación.

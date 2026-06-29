@@ -1,9 +1,9 @@
 ### CC Madhya 1.259
 
-> তবে ছোট হরিদাসে প্রভু কৈল দণ্ড ।
+> তবে ছোট হরিদাসে প্রভু কৈল দণ্ড ।\
 > দামোদর-পণ্ডিত কৈল প্রভুকে বাক্য-দণ্ড ॥২৫৯॥
 
-> tabe choṭa haridāse prabhu kaila daṇḍa
+> tabe choṭa haridāse prabhu kaila daṇḍa\
 > dāmodara-paṇḍita kaila prabhuke vākya-daṇḍa
 
 *tabe*—thereafter; *choṭa haridāse*—unto Junior Haridāsa; *prabhu*—the Lord; *kaila*—did; *daṇḍa*—punishment; *dāmodara-paṇḍita*—of the name Dāmodara Paṇḍita; *kaila*—did; *prabhuke*—unto the Lord; *vākya-daṇḍa*—chastisement as a warning.

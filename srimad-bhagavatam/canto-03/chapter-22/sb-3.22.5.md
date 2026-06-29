@@ -1,11 +1,11 @@
 ### SB 3.22.5
 
-> तव सन्दर्शनादेव च्छिन्ना मे सर्वसंशयाः ।
+> तव सन्दर्शनादेव च्छिन्ना मे सर्वसंशयाः ।\
 > यत्स्वयं भगवान्प्रीत्या धर्ममाह रिरक्षिषोः ॥५॥
 
-> tava sandarśanād eva
-> cchinnā me sarva-saṁśayāḥ
-> yat svayaṁ bhagavān prītyā
+> tava sandarśanād eva\
+> cchinnā me sarva-saṁśayāḥ\
+> yat svayaṁ bhagavān prītyā\
 > dharmam āha rirakṣiṣoḥ
 
 *tava*—your; *sandarśanāt*—by sight; *eva*—only; *chinnāḥ*—resolved; *me*—my; *sarva-saṁśayāḥ*—all doubts; *yat*—inasmuch as; *svayam*—personally; *bhagavān*—Your Lordship; *prītyā*—lovingly; *dharmam*—duty; *āha*—explained; *rirakṣiṣoḥ*—of a king anxious to protect his subjects.

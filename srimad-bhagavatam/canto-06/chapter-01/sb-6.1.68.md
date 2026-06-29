@@ -1,11 +1,11 @@
 ### SB 6.1.68
 
-> तत एनं दण्डपाणेः सकाशं कृतकिल्बिषम
+> तत एनं दण्डपाणेः सकाशं कृतकिल्बिषम\
 > नेष्यामोऽकृतनिर्वेशं यत्र दण्डेन शुद्ध्यति ॥६८॥
 
-> tata enaṁ daṇḍa-pāṇeḥ
-> sakāśaṁ kṛta-kilbiṣam
-> neṣyāmo 'kṛta-nirveśaṁ
+> tata enaṁ daṇḍa-pāṇeḥ\
+> sakāśaṁ kṛta-kilbiṣam\
+> neṣyāmo 'kṛta-nirveśaṁ\
 > yatra daṇḍena śuddhyati
 
 *tataḥ*—therefore; *enam*—him; *daṇḍa-pāṇeḥ*—of Yamarāja, who is authorized to punish; *sakāśam*—in the presence; *kṛta-kilbiṣam*—who has regularly committed all sinful activities; *neṣyāmaḥ*—we shall take; *akṛta-nirveśam*—who has not undergone atonement; *yatra*—where; *daṇḍena*—by punishment; *śuddhyati*—he will be purified.

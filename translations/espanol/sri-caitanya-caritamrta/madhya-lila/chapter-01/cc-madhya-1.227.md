@@ -1,9 +1,9 @@
 ### CC Madhya 1.227
 
-> প্রাতে চলি’ আইলা প্রভু ‘কানাইর নাটশালা’ ।
+> প্রাতে চলি’ আইলা প্রভু ‘কানাইর নাটশালা’ ।\
 > দেখিল সকল তাহাঁ কৃষ্ণচরিত্র-লীলা ॥২২৭॥
 
-> prāte cali' āilā prabhu 'kānāira nāṭaśālā'
+> prāte cali' āilā prabhu 'kānāira nāṭaśālā'\
 > dekhila sakala tāhāṅ kṛṣṇa-caritra-līlā
 
 *prāte*—por la mañana; *cali'*—partiendo; *āilā*—llegó; *prabhu*—el Señor; *kānāira nāṭaśālā*—al lugar llamado Kānāi Nāṭaśālā; *dekhila*—vio; *sakala*—todos; *tāhāṅ*—allí; *kṛṣṇa-caritra-līlā*—los pasatiempos de Kṛṣṇa.

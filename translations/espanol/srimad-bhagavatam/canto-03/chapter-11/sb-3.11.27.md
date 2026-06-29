@@ -1,11 +1,11 @@
 ### SB 3.11.27
 
-> मन्वन्तरेषु भगवान्बिभ्रत्सत्त्वं स्वमूर्तिभिः ।
+> मन्वन्तरेषु भगवान्बिभ्रत्सत्त्वं स्वमूर्तिभिः ।\
 > मन्वादिभिरिदं विश्वमवत्युदितपौरुषः ॥२७॥
 
-> manvantareṣu bhagavān
-> bibhrat sattvaṁ sva-mūrtibhiḥ
-> manv-ādibhir idaṁ viśvam
+> manvantareṣu bhagavān\
+> bibhrat sattvaṁ sva-mūrtibhiḥ\
+> manv-ādibhir idaṁ viśvam\
 > avaty udita-pauruṣaḥ
 
 *manu-antareṣu*—en cada cambio de *manu*; *bhagavān*—la Personalidad de Dios; *bibhrat*—manifestando; *sattvam*—Su potencia interna; *sva-mūrtibhiḥ*—mediante Sus diferentes encarnaciones; *manu-ādibhiḥ*—como Manu; *idam*—este; *viśvam*—el universo; *avati*—mantiene; *udita*—descubriendo; *pauruṣaḥ*—potencias divinas.

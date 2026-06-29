@@ -1,11 +1,11 @@
 ### SB 4.28.61
 
-> माया ह्येषा मया सृष्टा यत्पुमांसं स्त्रियं सतीम् ।
+> माया ह्येषा मया सृष्टा यत्पुमांसं स्त्रियं सतीम् ।\
 > मन्यसे नोभयं यद्वै हंसौ पश्यावयोर्गतिम् ॥६१॥
 
-> māyā hy eṣā mayā sṛṣṭā
-> yat pumāṁsaṁ striyaṁ satīm
-> manyase nobhayaṁ yad vai
+> māyā hy eṣā mayā sṛṣṭā\
+> yat pumāṁsaṁ striyaṁ satīm\
+> manyase nobhayaṁ yad vai\
 > haṁsau paśyāvayor gatim
 
 *māyā*—energía ilusoria; *hi*—ciertamente; *eṣā*—esta; *mayā*—por Mí; *sṛṣṭā*—creada; *yat*—de la cual; *pumāṁsam*—un varón; *striyam*—una mujer; *satīm*—casta; *manyase*—tú crees; *na*—no; *ubhayam*—ambos; *yat*—porque; *vai*—ciertamente; *haṁsau*—libre de la contaminación material; *paśya*—tan solo mira; *āvayoḥ*—nuestra; *gatim*—verdadera posición.

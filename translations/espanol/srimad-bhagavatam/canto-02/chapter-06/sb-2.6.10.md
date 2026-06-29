@@ -1,11 +1,11 @@
 ### SB 2.6.10
 
-> पराभूतेरधर्मस्य तमसश्चापि पश्चिमः ।
+> पराभूतेरधर्मस्य तमसश्चापि पश्चिमः ।\
 > नाड्यो नदनदीनां च गोत्राणामस्थिसंहतिः ॥१०॥
 
-> parābhūter adharmasya
-> tamasaś cāpi paścimaḥ
-> nāḍyo nada-nadīnāṁ ca
+> parābhūter adharmasya\
+> tamasaś cāpi paścimaḥ\
+> nāḍyo nada-nadīnāṁ ca\
 > gotrāṇām asthi-saṁhatiḥ
 
 *parābhūteḥ*—de la frustración; *adharmasya*—de la inmoralidad; *tamasaḥ*—de la ignorancia; *ca*—y; *api*—así como también; *pacimaḥ*—la espalda; *nāḍyaḥ*—de los intestinos; *nada*—de los grandes ríos; *nadīnām*—de los riachuelos; *ca*—también; *gotrāṇām*—de las montañas; *asthi*—huesos; *saṁhatiḥ*—acumulación.

@@ -1,14 +1,14 @@
 ### CC Antya 5.35-36
 
-> “আমি ত’ সন্ন্যাসী, আপনারে বিরক্ত করি’ মানি ।
-> দর্শন রহু দূরে, ‘প্রকৃতির’ নাম যদি শুনি ॥৩৫॥
-> তবহিঁ বিকার পায় মোর তনু-মন ।
+> “আমি ত’ সন্ন্যাসী, আপনারে বিরক্ত করি’ মানি ।\
+> দর্শন রহু দূরে, ‘প্রকৃতির’ নাম যদি শুনি ॥৩৫॥\
+> তবহিঁ বিকার পায় মোর তনু-মন ।\
 > প্রকৃতি-দর্শনে স্থির হয় কোন্ জন ?” ৩৬ ॥৩৬॥
 
-> "āmi ta' sannyāsī, āpanāre virakta kari' māni
+> "āmi ta' sannyāsī, āpanāre virakta kari' māni\
 > darśana rahu dūre, 'prakṛtira' nāma yadi śuni
 
-> tabahiṅ vikāra pāya mora tanu-mana
+> tabahiṅ vikāra pāya mora tanu-mana\
 > prakṛti-darśane sthira haya kon jana?"
 
 *āmi*—Yo; *ta’*—ciertamente; *sannyāsī*—en la orden de vida de renuncia; *āpanāre*—Yo mismo; *virakta kari’*—habiendo renunciado a todo; *māni*—Yo considero; *darśana rahu dūre*—qué decir de ver; *prakṛtira*—de una mujer; *nāma*—nombre; *yadi*—si; *śuni*—Yo escucho; *tabahiṅ*—inmediatamente; *vikāra*—transformación; *pāya*—experimenta; *mora*—Mi; *tanu-mana*—cuerpo y mente; *prakṛti-darśane*—por ver a una mujer; *sthira*—estable; *haya*—es; *kon jana*—qué persona.

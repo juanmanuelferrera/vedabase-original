@@ -1,9 +1,9 @@
 ### CC Madhya 19.92
 
-> হেনকালে আইলা রঘুপতি উপাধ্যায় ।
+> হেনকালে আইলা রঘুপতি উপাধ্যায় ।\
 > তিরুহিতা পণ্ডিত, বড় বৈষ্ণব, মহাশয় ॥৯২॥
 
-> hena-kāle āilā raghupati upādhyāya
+> hena-kāle āilā raghupati upādhyāya\
 > tiruhitā paṇḍita, baḍa vaiṣṇava, mahāśaya
 
 *hena-kāle*—en ese momento; *āilā*—llegó; *raghupati upādhyāya*—un *brāhmaṇa* llamado Raghupati Upādhyāya; *tiruhitā*—perteneciente al estado de Tiruhitā; *paṇḍita*—un erudito muy instruido; *baḍa*—gran; *vaiṣṇava*—devoto; *mahāśaya*—caballero respetable.

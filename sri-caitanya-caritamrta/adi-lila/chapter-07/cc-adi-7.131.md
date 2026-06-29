@@ -1,9 +1,9 @@
 ### CC Adi 7.131
 
-> সর্ববেদসূত্রে করে কৃষ্ণের অভিধান ।
+> সর্ববেদসূত্রে করে কৃষ্ণের অভিধান ।\
 > মুখ্যবৃত্তি ছাড়ি’ কৈল লক্ষণা-ব্যাখ্যান ॥১৩১॥
 
-> sarva-veda-sūtre kare kṛṣṇera abhidhāna
+> sarva-veda-sūtre kare kṛṣṇera abhidhāna\
 > mukhya-vṛtti chāḍi' kaila lakṣaṇā-vyākhyāna
 
 *sarva-veda-sūtre*—in all the aphorisms of the *Vedānta-sūtra*; *kare*—establishes; *kṛṣṇera*—of Lord Kṛṣṇa; *abhidhāna*—explanation; *mukhya-vṛtti*—direct interpretation; *chāḍi'*—giving up; *kaila*—made; *lakṣaṇā*—indirect; *vyākhyāna*—explanation.

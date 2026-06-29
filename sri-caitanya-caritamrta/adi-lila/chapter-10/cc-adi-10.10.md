@@ -1,9 +1,9 @@
 ### CC Adi 10.10
 
-> দুই শাখার উপশাখায় তাঁ-সবার গণন  ।
+> দুই শাখার উপশাখায় তাঁ-সবার গণন  ।\
 > যাঁর গৃহে মহাপ্রভুর সদা সংকীর্তন ॥১০॥
 
-> dui śākhāra upaśākhāya tāṅ-sabāra gaṇana
+> dui śākhāra upaśākhāya tāṅ-sabāra gaṇana\
 > yāṅra gṛhe mahāprabhura sadā saṅkīrtana
 
 *dui śākhāra*—of the two branches; *upaśākhāya*—on the subbranches; *tāṅ-sabāra*—of all of them; *gaṇana*—counting; *yāṅra gṛhe*—in whose house; *mahāprabhura*—of Lord Caitanya Mahāprabhu; *sadā*—always; *saṅkīrtana*—congregational chanting.

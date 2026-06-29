@@ -1,9 +1,9 @@
 ### CC Antya 9.29
 
-> রাজা বলে, — “যেই ভাল, সেই কর যায় ।
+> রাজা বলে, — “যেই ভাল, সেই কর যায় ।\
 > যে উপায়ে কৌড়ি পাই, কর সে উপায় ।।” ॥ ২৯ ॥
 
-> rājā bale,—"yei bhāla, sei kara yāya
+> rājā bale,—"yei bhāla, sei kara yāya\
 > ye upāye kauḍi pāi, kara se upāya"
 
 *rājā bale*—the King said; *yei bhāla*—whatever is best; *sei kara*—do that; *yāya*—going; *ye upāye*—by whatever means; *kauḍi pāi*—I can get back our money; *kara*—do; *se upāya*—such means.

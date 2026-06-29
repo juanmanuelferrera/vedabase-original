@@ -1,11 +1,11 @@
 ### Bg 1.12
 
-> तस्य सञ्जनयन्हर्षं कुरुवृद्धः पितामहः ।
+> तस्य सञ्जनयन्हर्षं कुरुवृद्धः पितामहः ।\
 > सिंहनादं विनद्योच्चैः शङ्खं दध्मौ प्रतापवान् ॥१२॥
 
-> tasya sañjanayan harṣaṁ
-> kuru-vṛddhaḥ pitāmahaḥ
-> siṁha-nādaṁ vinadyoccaiḥ
+> tasya sañjanayan harṣaṁ\
+> kuru-vṛddhaḥ pitāmahaḥ\
+> siṁha-nādaṁ vinadyoccaiḥ\
 > śaṅkhaṁ dadhmau pratāpavān
 
 *tasya*—his; *sañjanayan*—increasing; *harṣam*—cheerfulness; *kuru-vṛddhaḥ*—the grandsire of the Kuru dynasty (Bhīṣma); *pitāmahaḥ*—the grandfather; *siṁha-nādam*—roaring sound, like a lion; *vinadya*—vibrating; *uccaiḥ*—very loudly; *śaṅkham*—conchshell; *dadhmau*—blew; *pratāpavān*—the valiant.

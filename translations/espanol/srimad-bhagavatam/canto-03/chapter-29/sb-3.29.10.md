@@ -1,11 +1,11 @@
 ### SB 3.29.10
 
-> कर्मनिर्हारमुद्दिश्य परस्मिन्वा तदर्पणम् ।
+> कर्मनिर्हारमुद्दिश्य परस्मिन्वा तदर्पणम् ।\
 > यजेद्यष्टव्यमिति वा पृथग्भावः स सात्त्विकः ॥१०॥
 
-> karma-nirhāram uddiśya
-> parasmin vā tad-arpaṇam
-> yajed yaṣṭavyam iti vā
+> karma-nirhāram uddiśya\
+> parasmin vā tad-arpaṇam\
+> yajed yaṣṭavyam iti vā\
 > pṛthag-bhāvaḥ sa sāttvikaḥ
 
 *karma*—actividades fruitivas; *nirhāram*—liberándose de; *uddiśya*—con el propósito de; *parasmin*—a la Suprema Personalidad de Dios; *vā*—o; *tat-arpaṇam*—ofreciendo el resultado de actividades; *yajet*—que adore; *yaṣṭavyam*—para ser adorado; *iti*—de este modo; *vā*—o; *pṛthak-bhāvaḥ*—separatista; *saḥ*—él; *sāttvikaḥ*—en la modalidad de la bondad.

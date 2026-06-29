@@ -1,11 +1,11 @@
 ### SB 4.28.16
 
-> दुहितॄः पुत्रपौत्रांश्च जामिजामातृपार्षदान् ।
+> दुहितॄः पुत्रपौत्रांश्च जामिजामातृपार्षदान् ।\
 > स्वत्वावशिष्टं यत्किञ्चिद्गृहकोशपरिच्छदम् ॥१६॥
 
-> duhitṝḥ putra-pautrāṁś ca
-> jāmi-jāmātṛ-pārṣadān
-> svatvāvaśiṣṭaṁ yat kiñcid
+> duhitṝḥ putra-pautrāṁś ca\
+> jāmi-jāmātṛ-pārṣadān\
+> svatvāvaśiṣṭaṁ yat kiñcid\
 > gṛha-kośa-paricchadam
 
 *duhitṝḥ*—daughters; *putra*—sons; *pautrān*—grandsons; *ca*—and; *jāmi*—daughters-in-law; *jāmātṛ*—sons-in-law; *pārṣadān*—associates; *svatva*—property; *avaśiṣṭam*—remaining; *yat kiñcit*—whatever; *gṛha*—home; *kośa*—accumulation of wealth; *paricchadam*—household paraphernalia.

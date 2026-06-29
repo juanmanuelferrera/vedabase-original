@@ -1,11 +1,11 @@
 ### SB 3.9.33
 
-> यदा रहितमात्मानं भूतेन्द्रियगुणाशयैः ।
+> यदा रहितमात्मानं भूतेन्द्रियगुणाशयैः ।\
 > स्वरूपेण मयोपेतं पश्यन्स्वाराज्यमृच्छति ॥३३॥
 
-> yadā rahitam ātmānaṁ
-> bhūtendriya-guṇāśayaiḥ
-> svarūpeṇa mayopetaṁ
+> yadā rahitam ātmānaṁ\
+> bhūtendriya-guṇāśayaiḥ\
+> svarūpeṇa mayopetaṁ\
 > paśyan svārājyam ṛcchati
 
 *yadā*—when; *rahitam*—freed from; *ātmānam*—self; *bhūta*—material elements; *indriya*—material senses; *guṇa-āśayaiḥ*—under the influence of the material modes of nature; *svarūpeṇa*—in pure existence; *mayā*—by Me; *upetam*—approaching; *paśyan*—by seeing; *svārājyam*—spiritual kingdom; *ṛcchati*—enjoy.

@@ -1,11 +1,11 @@
 ### SB 7.5.32
 
-> नैषां मतिस्तावदुरुक्रमाङ्घ्रिं स्पृशत्यनर्थापगमो यदर्थः
+> नैषां मतिस्तावदुरुक्रमाङ्घ्रिं स्पृशत्यनर्थापगमो यदर्थः\
 > महीयसां पादरजोऽभिषेकं निष्किञ्चनानां न वृणीत यावत ॥३२॥
 
-> naiṣāṁ matis tāvad urukramāṅghriṁ
-> spṛśaty anarthāpagamo yad-arthaḥ
-> mahīyasāṁ pāda-rajo-'bhiṣekaṁ
+> naiṣāṁ matis tāvad urukramāṅghriṁ\
+> spṛśaty anarthāpagamo yad-arthaḥ\
+> mahīyasāṁ pāda-rajo-'bhiṣekaṁ\
 > niṣkiñcanānāṁ na vṛṇīta yāvat
 
 *na*—not; *eṣām*—of these; *matiḥ*—the consciousness; *tāvat*—that long; *urukrama-aṅghrim*—the lotus feet of the Supreme Personality of Godhead, who is famous for performing uncommon activities; *spṛśati*—does touch; *anartha*—of unwanted things; *apagamaḥ*—the disappearance; *yat*—of which; *arthaḥ*—the purpose; *mahīyasām*—of the great souls (the *mahātmās,* or devotees); *pāda-rajaḥ*—by the dust of the lotus feet; *abhiṣekam*—consecration; *niṣkiñcanānām*—of devotees who have nothing to do with this material world; *na*—not; *vṛṇīta*—may accept; *yāvat*—as long as.

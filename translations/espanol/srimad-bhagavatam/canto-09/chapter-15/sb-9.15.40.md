@@ -1,11 +1,11 @@
 ### SB 9.15.40
 
-> क्षमया रोचते लक्ष्मीर्ब्राह्मी सौरी यथा प्रभा
+> क्षमया रोचते लक्ष्मीर्ब्राह्मी सौरी यथा प्रभा\
 > क्षमिणामाशु भगवांस्तुष्यते हरिरीश्वरः ॥४०॥
 
-> kṣamayā rocate lakṣmīr
-> brāhmī saurī yathā prabhā
-> kṣamiṇām āśu bhagavāṁs
+> kṣamayā rocate lakṣmīr\
+> brāhmī saurī yathā prabhā\
+> kṣamiṇām āśu bhagavāṁs\
 > tuṣyate harir īśvaraḥ
 
 *kṣamayā*—por el simple hecho de perdonar; *rocate*—se complace; *lakṣmīḥ*—la diosa de la fortuna; *brāhmī*—en relación con las cualidades brahmínicas; *saurī*—el dios del sol; *yathā*—como; *prabhā*—la luz del sol; *kṣamiṇām*—a los *brāhmaṇas*, que saben perdonar; *āśu*—muy pronto; *bhagavān*—la Suprema Personalidad de Dios; *tuṣyate*—Se complace; *hariḥ*—el Señor; *īśvaraḥ*—el controlador supremo.

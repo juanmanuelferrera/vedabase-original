@@ -1,9 +1,9 @@
 ### CC Madhya 22.116
 
-> কৃষ্ণপ্রীত্যে ভোগত্যাগ, কৃষ্ণতীর্থে বাস ।
+> কৃষ্ণপ্রীত্যে ভোগত্যাগ, কৃষ্ণতীর্থে বাস ।\
 > যাবন্নিৰ্বাহ-প্রতিগ্রহ, একাদশ্যুপবাস ॥১১৬॥
 
-> kṛṣṇa-prītye bhoga-tyāga, kṛṣṇa-tīrthe vāsa
+> kṛṣṇa-prītye bhoga-tyāga, kṛṣṇa-tīrthe vāsa\
 > yāvan-nirvāha-pratigraha, ekādaśy-upavāsa
 
 *kṛṣṇa-prītye*—para la satisfacción de Kṛṣṇa; *bhoga-tyāga*—aceptación y rechazo de algo; *kṛṣṇa-tīrthe vāsa*—residencia en un lugar donde Kṛṣṇa está presente; *yāvat-nirvāha*—lo necesario para mantener juntos el cuerpo y el alma; *pratigraha*—aceptación de regalos; *ekādaśī-upavāsa*—observancia del ayuno en el día de Ekādaśī.

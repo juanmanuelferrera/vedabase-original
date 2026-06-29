@@ -1,11 +1,11 @@
 ### SB 6.4.46
 
-> तपो मे हृदयं ब्रह्मंस्तनुर्विद्या क्रियाकृतिः
+> तपो मे हृदयं ब्रह्मंस्तनुर्विद्या क्रियाकृतिः\
 > अङ्गानि क्रतवो जाता धर्म आत्मासवः सुराः ॥४६॥
 
-> tapo me hṛdayaṁ brahmaṁs
-> tanur vidyā kriyākṛtiḥ
-> aṅgāni kratavo jātā
+> tapo me hṛdayaṁ brahmaṁs\
+> tanur vidyā kriyākṛtiḥ\
+> aṅgāni kratavo jātā\
 > dharma ātmāsavaḥ surāḥ
 
 *tapaḥ*—austerities like mental control, mystic *yoga* and meditation; *me*—My; *hṛdayam*—heart; *brahman*—O *brāhmaṇa*; *tanuḥ*—the body; *vidyā*—the knowledge derived from Vedic scripture; *kriyā*—spiritual activities; *ākṛtiḥ*—form; *aṅgāni*—the limbs of the body; *kratavaḥ*—the ritualistic ceremonies and sacrifices mentioned in the Vedic literature; *jātāḥ*—completed; *dharmaḥ*—the religious principles for executing the ritualistic ceremonies; *ātmā*—My soul; *asavaḥ*—life airs; *surāḥ*—the demigods who execute My orders in different departments of the material world.

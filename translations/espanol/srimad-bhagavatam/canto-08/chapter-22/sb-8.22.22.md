@@ -1,11 +1,11 @@
 ### SB 8.22.22
 
-> कृत्स्ना तेऽनेन दत्ता भूर्लोकाः कर्मार्जिताश्च ये
+> कृत्स्ना तेऽनेन दत्ता भूर्लोकाः कर्मार्जिताश्च ये\
 > निवेदितं च सर्वस्वमात्माविक्लवया धिया ॥२२॥
 
-> kṛtsnā te 'nena dattā bhūr
-> lokāḥ karmārjitāś ca ye
-> niveditaṁ ca sarvasvam
+> kṛtsnā te 'nena dattā bhūr\
+> lokāḥ karmārjitāś ca ye\
+> niveditaṁ ca sarvasvam\
 > ātmāviklavayā dhiyā
 
 *kṛtsnāḥ*—todo; *te*—a Ti; *anena*—por Bali Mahārāja; *dattāḥ*—ha sido dado o devuelto; *bhūḥ lokāḥ*—toda la tierra y todos los planetas; *karma-arjitāḥ ca*—todo lo que obtuvo de sus actividades piadosas; *ye*—todo ello; *niveditam ca*—Te ha sido ofrecido; *sarvasvam*—todo lo que poseía; *ātmā*—incluso su cuerpo; *aviklavayā*—sin titubear; *dhiyā*—con esa inteligencia.

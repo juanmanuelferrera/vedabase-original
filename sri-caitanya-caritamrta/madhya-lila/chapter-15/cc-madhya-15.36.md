@@ -1,9 +1,9 @@
 ### CC Madhya 15.36
 
-> এইমত রাসযাত্রা, আর দীপাবলী ।
+> এইমত রাসযাত্রা, আর দীপাবলী ।\
 > উত্থান-দ্বাদশীযাত্রা দেখিলা সকলি ॥৩৬॥
 
-> ei-mata rāsa-yātrā, āra dīpāvalī
+> ei-mata rāsa-yātrā, āra dīpāvalī\
 > utthāna-dvādaśī-yātrā dekhilā sakali
 
 *ei-mata*—in this way; *rāsa-yātrā*—*rāsa* dancing of Lord Kṛṣṇa; *āra*—and; *dīpa-āvalī*—a row of lights, the day of Dīpāvalī; *utthāna-dvādaśī-yātrā*—the festival of Utthāna-dvādaśī; *dekhilā sakali*—participated in all of them.

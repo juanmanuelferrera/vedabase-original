@@ -1,11 +1,11 @@
 ### SB 8.2.4
 
-> स चावनिज्यमानाङ्घ्रिः समन्तात्पयऊर्मिभिः
+> स चावनिज्यमानाङ्घ्रिः समन्तात्पयऊर्मिभिः\
 > करोति श्यामलां भूमिं हरिन्मरकताश्मभिः ॥४॥
 
-> sa cāvanijyamānāṅghriḥ
-> samantāt paya-ūrmibhiḥ
-> karoti śyāmalāṁ bhūmiṁ
+> sa cāvanijyamānāṅghriḥ\
+> samantāt paya-ūrmibhiḥ\
+> karoti śyāmalāṁ bhūmiṁ\
 > harin-marakatāśmabhiḥ
 
 *saḥ*—esa montaña; *ca*—también; *avanijyamāna-aṅghriḥ*—cuya base es bañada constantemente; *samantāt*—alrededor; *payaḥ-ūrmibhiḥ*—por olas de leche; *karoti*—hace; *śyāmalām*—verde oscuro; *bhūmim*—suelo; *harit*—verdes; *marakata*—con esmeraldas; *aśmabhiḥ*—piedras.

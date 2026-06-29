@@ -1,9 +1,9 @@
 ### CC Adi 7.73
 
-> কৃষ্ণমন্ত্র হৈতে হবে সংসার-মোচন ।
+> কৃষ্ণমন্ত্র হৈতে হবে সংসার-মোচন ।\
 > কৃষ্ণনাম হৈতে পাবে কৃষ্ণের চরণ ॥৭৩॥
 
-> kṛṣṇa-mantra haite habe saṁsāra-mocana
+> kṛṣṇa-mantra haite habe saṁsāra-mocana\
 > kṛṣṇa-nāma haite pābe kṛṣṇera caraṇa
 
 *kṛṣṇa-mantra*—el canto del *mahā-mantra* Hare Kṛṣṇa; *haite*—de; *habe*—habrá; *saṁsāra*—existencia material; *mocana*—liberación; *kṛṣṇa-nāma*—el santo nombre del Señor Kṛṣṇa; *haite*—de; *pābe*—obtendrá; *kṛṣṇera*—del Señor Kṛṣṇa; *caraṇa*—pies de loto.

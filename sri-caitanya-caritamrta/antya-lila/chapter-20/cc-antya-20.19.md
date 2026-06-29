@@ -1,9 +1,9 @@
 ### CC Antya 20.19
 
-> “সর্বশক্তি নামে দিলা করিয়া বিভাগ ।
+> “সর্বশক্তি নামে দিলা করিয়া বিভাগ ।\
 > আমার দুর্দৈব, — নামে নাহি অনুরাগ !!” ॥ ১৯ ॥
 
-> "sarva-śakti nāme dilā kariyā vibhāga
+> "sarva-śakti nāme dilā kariyā vibhāga\
 > āmāra durdaiva,—nāme nāhi anurāga!!"
 
 *sarva-śakti*—all potencies; *nāme*—in the holy name; *dilā*—You have bestowed; *kariyā vibhāga*—making separation; *āmāra durdaiva*—My misfortune; *nāme*—for chanting the holy names; *nāhi*—there is not; *anurāga*—attachment.

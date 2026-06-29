@@ -1,11 +1,11 @@
 ### SB 4.24.63
 
-> त्वमेक आद्यः पुरुषः सुप्तशक्तिस्तया रजःसत्त्वतमो विभिद्यते ।
+> त्वमेक आद्यः पुरुषः सुप्तशक्तिस्तया रजःसत्त्वतमो विभिद्यते ।\
 > महानहं खं मरुदग्निवार्धराः सुरर्षयो भूतगणा इदं यतः ॥६३॥
 
-> tvam eka ādyaḥ puruṣaḥ supta-śaktis
-> tayā rajaḥ-sattva-tamo vibhidyate
-> mahān ahaṁ khaṁ marud agni-vār-dharāḥ
+> tvam eka ādyaḥ puruṣaḥ supta-śaktis\
+> tayā rajaḥ-sattva-tamo vibhidyate\
+> mahān ahaṁ khaṁ marud agni-vār-dharāḥ\
 > surarṣayo bhūta-gaṇā idaṁ yataḥ
 
 *tvam*—Tu Señoría; *ekaḥ*—uno; *ādyaḥ*—la original; *puruṣaḥ*—persona; *supta*—latente; *śaktiḥ*—energía; *tayā*—por la cual; *rajaḥ*—la energía de la pasión; *sattva*—bondad; *tamaḥ*—ignorancia; *vibhidyate*—se diversifica; *mahān*—la energía material total; *aham*—egotismo; *kham*—el cielo; *marut*—el aire; *agni*—el fuego; *vāḥ*—el agua; *dharāḥ*—la tierra; *sura-ṛṣayaḥ*—los semidioses y los grandes sabios; *bhūta-gaṇāḥ*—las entidades vivientes; *idam*—todo esto; *yataḥ*—de quien.

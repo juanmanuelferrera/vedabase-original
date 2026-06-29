@@ -1,11 +1,11 @@
 ### SB 7.13.3
 
-> एक एव चरेद्भिक्षुरात्मारामोऽनपाश्रयः
+> एक एव चरेद्भिक्षुरात्मारामोऽनपाश्रयः\
 > सर्वभूतसुहृच्छान्तो नारायणपरायणः ॥३॥
 
-> eka eva cared bhikṣur
-> ātmārāmo 'napāśrayaḥ
-> sarva-bhūta-suhṛc-chānto
+> eka eva cared bhikṣur\
+> ātmārāmo 'napāśrayaḥ\
+> sarva-bhūta-suhṛc-chānto\
 > nārāyaṇa-parāyaṇaḥ
 
 *ekaḥ*—alone; *eva*—only; *caret*—can move; *bhikṣuḥ*—a *sannyāsī* taking alms; *ātma-ārāmaḥ*—fully satisfied in the self; *anapāśrayaḥ*—without depending on anything; *sarva-bhūta-suhṛt*—becoming a well-wisher of all living entities; *śāntaḥ*—completely peaceful; *nārāyaṇa-parāyaṇaḥ*—becoming absolutely dependent on Nārāyaṇa and becoming His devotee.

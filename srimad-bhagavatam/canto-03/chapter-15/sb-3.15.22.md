@@ -1,13 +1,13 @@
 ### SB 3.15.22
 
-> वापीषु विद्रुमतटास्वमलामृताप्सु
-> प्रेष्यान्विता निजवने तुलसीभिरीशम् ।
-> अभ्यर्चती स्वलकमुन्नसमीक्ष्य वक्त्रम्
+> वापीषु विद्रुमतटास्वमलामृताप्सु\
+> प्रेष्यान्विता निजवने तुलसीभिरीशम् ।\
+> अभ्यर्चती स्वलकमुन्नसमीक्ष्य वक्त्रम्\
 > उच्छेषितं भगवतेत्यमताङ्ग यच्छ्रीः ॥२२॥
 
-> vāpīṣu vidruma-taṭāsv amalāmṛtāpsu
-> preṣyānvitā nija-vane tulasībhir īśam
-> abhyarcatī svalakam unnasam īkṣya vaktram
+> vāpīṣu vidruma-taṭāsv amalāmṛtāpsu\
+> preṣyānvitā nija-vane tulasībhir īśam\
+> abhyarcatī svalakam unnasam īkṣya vaktram\
 > uccheṣitaṁ bhagavatety amatāṅga yac-chrīḥ
 
 *vāpīṣu*—in the ponds; *vidruma*—made of coral; *taṭāsu*—banks; *amala*—transparent; *amṛta*—nectarean; *apsu*—water; *preṣyā-anvitā*—surrounded by maidservants; *nija-vane*—in her own garden; *tulasībhiḥ*—with *tulasī*; *īśam*—the Supreme Lord; *abhyarcatī*—worship; *su-alakam*—with her face decorated with *tilaka*; *unnasam*—raised nose; *īkṣya*—by seeing; *vaktram*—face; *uccheṣitam*—being kissed; *bhagavatā*—by the Supreme Lord; *iti*—thus; *amata*—thought; *aṅga*—O demigods; *yat-śrīḥ*—whose beauty.

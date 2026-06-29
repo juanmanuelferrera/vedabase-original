@@ -1,11 +1,11 @@
 ### SB 9.18.19
 
-> दत्त्वा स्वमुत्तरं वासस्तस्यै राजा विवाससे
+> दत्त्वा स्वमुत्तरं वासस्तस्यै राजा विवाससे\
 > गृहीत्वा पाणिना पाणिमुज्जहार दयापरः ॥१९॥
 
-> dattvā svam uttaraṁ vāsas
-> tasyai rājā vivāsase
-> gṛhītvā pāṇinā pāṇim
+> dattvā svam uttaraṁ vāsas\
+> tasyai rājā vivāsase\
+> gṛhītvā pāṇinā pāṇim\
 > ujjahāra dayā-paraḥ
 
 *dattvā*—dar; *svam*—su propia; *uttaram*—superior; *vāsaḥ*—ropa; *tasyai*—a ella (a Devayānī); *rājā*—el rey; *vivāsase*—porque ella estaba desnuda; *gṛhītvā*—tomar; *pāṇinā*—con la mano; *pāṇim*—su mano; *ujjahāra*—entregó; *dayā-paraḥ*—siendo muy bondadoso.

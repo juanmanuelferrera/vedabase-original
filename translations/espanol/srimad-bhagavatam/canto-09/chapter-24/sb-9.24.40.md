@@ -1,11 +1,11 @@
 ### SB 9.24.40
 
-> शिशुपालः सुतस्तस्याः कथितस्तस्य सम्भवः
+> शिशुपालः सुतस्तस्याः कथितस्तस्य सम्भवः\
 > देवभागस्य कंसायां चित्रकेतुबृहद्बलौ ॥४०॥
 
-> śiśupālaḥ sutas tasyāḥ
-> kathitas tasya sambhavaḥ
-> devabhāgasya kaṁsāyāṁ
+> śiśupālaḥ sutas tasyāḥ\
+> kathitas tasya sambhavaḥ\
+> devabhāgasya kaṁsāyāṁ\
 > citraketu-bṛhadbalau
 
 *śiśupālaḥ*—Śiśupāla; *sutaḥ*—el hijo; *tasyāḥ*—de ella (de Śrutaśravā); *kathitaḥ*—ya explicado (en el Séptimo Canto); *tasya*—su; *sambhavaḥ*—nacimiento; *devabhāgasya*—de Devabhāga, un hermano de Vasudeva; *kaṁsāyām*—en el vientre de Kaṁsā, su esposa; *citraketu*—a Citraketu; *bṛhadbalau*—y Bṛhadbala.

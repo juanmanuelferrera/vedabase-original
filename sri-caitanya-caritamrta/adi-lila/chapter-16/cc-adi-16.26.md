@@ -1,9 +1,9 @@
 ### CC Adi 16.26
 
-> বৃন্দাবনদাস ইহা করিয়াছেন বিস্তার ।
+> বৃন্দাবনদাস ইহা করিয়াছেন বিস্তার ।\
 > স্ফুট নাহি করে দোষ-গুণের বিচার ॥২৬॥
 
-> vṛndāvana-dāsa ihā kariyāchena vistāra
+> vṛndāvana-dāsa ihā kariyāchena vistāra\
 > sphuṭa nāhi kare doṣa-guṇera vicāra
 
 *vṛndavana-dāsa*—Śrīla Vṛndāvana dāsa Ṭhākura; *ihā*—this; *kariyāchena*—has made; *vistāra*—elaborate description; *sphuṭa*—what was clear; *nahi*—not; *kare*—does; *doṣa-guṇera*—of both the faults and the virtues; *vicāra*—analysis.

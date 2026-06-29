@@ -1,11 +1,11 @@
 ### SB 9.8.24
 
-> तं त्वां अहं ज्ञआनघनं स्वभाव प्रध्वस्तमायागुणभेदमोहैः
+> तं त्वां अहं ज्ञआनघनं स्वभाव प्रध्वस्तमायागुणभेदमोहैः\
 > सनन्दनाद्यैर्मुनिभिर्विभाव्यं कथं विमूढः परिभावयामि ॥२४॥
 
-> praśānta māyā-guṇa-karma-liṅgam
-> anāma-rūpaṁ sad-asad-vimuktam
-> jñānopadeśāya gṛhīta-dehaṁ
+> praśānta māyā-guṇa-karma-liṅgam\
+> anāma-rūpaṁ sad-asad-vimuktam\
+> jñānopadeśāya gṛhīta-dehaṁ\
 > namāmahe tvāṁ puruṣaṁ purāṇam
 
 *praśānta*—O completely peaceful one; *māyā-guṇa*—the modes of material nature; *karma-liṅgam*—symptomized by fruitive activities; *anāma-rūpam*—one who has no material name or form; *sat-asat-vimuktam*—transcendental to the manifested and nonmanifested modes of material nature; *jñāna-upadeśāya*—for distributing transcendental knowledge (as in *Bhagavad-gītā*); *gṛhīta-deham*—has assumed a form like a material body; *namāmahe*—I offer my respectful obeisances; *tvām*—unto You; *puruṣam*—the Supreme Person; *purāṇam*—the original.

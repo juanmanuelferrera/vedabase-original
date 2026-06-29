@@ -1,11 +1,11 @@
 ### SB 3.26.28
 
-> यद्विदुर्ह्यनिरुद्धाख्यं हृषीकाणामधीश्वरम् ।
+> यद्विदुर्ह्यनिरुद्धाख्यं हृषीकाणामधीश्वरम् ।\
 > शारदेन्दीवरश्यामं संराध्यं योगिभिः शनैः ॥२८॥
 
-> yad vidur hy aniruddhākhyaṁ
-> hṛṣīkāṇām adhīśvaram
-> śāradendīvara-śyāmaṁ
+> yad vidur hy aniruddhākhyaṁ\
+> hṛṣīkāṇām adhīśvaram\
+> śāradendīvara-śyāmaṁ\
 > saṁrādhyaṁ yogibhiḥ śanaiḥ
 
 *yat*—which mind; *viduḥ*—is known; *hi*—indeed; *aniruddha-ākhyam*—by the name Aniruddha; *hṛṣīkāṇām*—of the senses; *adhīśvaram*—the supreme ruler; *śārada*—autumnal; *indīvara*—like a blue lotus; *śyāmam*—bluish; *saṁrādhyam*—who is found; *yogibhiḥ*—by the *yogīs*; *śanaiḥ*—gradually.

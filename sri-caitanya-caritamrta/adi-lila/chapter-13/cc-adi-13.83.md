@@ -1,9 +1,9 @@
 ### CC Adi 13.83
 
-> শচী কহে, — মুঞি দেখোঁ আকাশ-উপরে ।
+> শচী কহে, — মুঞি দেখোঁ আকাশ-উপরে ।\
 > দিব্যমূর্তি লোক সব যেন স্তুতি করে ॥৮৩॥
 
-> śacī kahe,—muñi dekhoṅ ākāśa-upare
+> śacī kahe,—muñi dekhoṅ ākāśa-upare\
 > divya-mūrti loka saba yena stuti kare
 
 *śacī kahe*—mother Śacīdevī replied; *muñi*—I; *dekhoṅ*—see; *ākāśa-upare*—in outer space; *divya-mūrti*—brilliant forms; *loka*—people; *saba*—all; *yena*—as if; *stuti*—prayers; *kare*—offering.

@@ -1,9 +1,9 @@
 ### CC Adi 3.50
 
-> ব্যক্ত করি’ ভাগবতে কহে বার বার ।
+> ব্যক্ত করি’ ভাগবতে কহে বার বার ।\
 > কলিযুগে ধর্ম — নামসংকীর্তন সার ॥৫০॥
 
-> vyakta kari' bhāgavate kahe bāra bāra
+> vyakta kari' bhāgavate kahe bāra bāra\
 > kali-yuge dharma—nāma-saṅkīrtana sāra
 
 *vyakta*—evident; *kari'*—making; *bhāgavate*—in *Śrīmad-Bhāgavatam*; *kahe*—they say; *bāra bāra*—time and time again; *kali-yuge*—in the Age of Kali; *dharma*—the religion; *nāma-saṅkīrtana*—congregational chanting of the holy name; *sāra*—the essence.

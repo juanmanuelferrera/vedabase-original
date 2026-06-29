@@ -1,11 +1,11 @@
 ### SB 9.14.9
 
-> त्यज त्यजाशु दुष्प्रज्ञए मत्क्षेत्रादाहितं परैः
+> त्यज त्यजाशु दुष्प्रज्ञए मत्क्षेत्रादाहितं परैः\
 > नाहं त्वां भस्मसात्कुर्यां स्त्रियं सान्तानिकेऽसति ॥९॥
 
-> tyaja tyajāśu duṣprajñe
-> mat-kṣetrād āhitaṁ paraiḥ
-> nāhaṁ tvāṁ bhasmasāt kuryāṁ
+> tyaja tyajāśu duṣprajñe\
+> mat-kṣetrād āhitaṁ paraiḥ\
+> nāhaṁ tvāṁ bhasmasāt kuryāṁ\
 > striyaṁ sāntānike 'sati
 
 *tyaja*—da a luz; *tyaja*—da a luz; *āśu*—inmediatamente; *duṣprajñe*—mujer estúpida; *mat-kṣetrāt*—del vientre que yo tenía que fecundar; *āhitam*—fecundado; *paraiḥ*—por otros; *na*—no; *aham*—yo; *tvām*—a ti; *bhasmasāt*—reduciré a cenizas; *kuryām*—haré; *striyam*—porque eres una mujer; *sāntānike*—que deseaba un hijo; *asati*—aunque no eres casta.

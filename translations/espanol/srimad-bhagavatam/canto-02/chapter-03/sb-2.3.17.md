@@ -1,11 +1,11 @@
 ### SB 2.3.17
 
-> आयुर्हरति वै पुंसामुद्यन्नस्तं च यन्नसौ ।
+> आयुर्हरति वै पुंसामुद्यन्नस्तं च यन्नसौ ।\
 > तस्यर्ते यत्क्षणो नीत उत्तमश्लोकवार्तया ॥१७॥
 
-> āyur harati vai puṁsām
-> udyann astaṁ ca yann asau
-> tasyarte yat-kṣaṇo nīta
+> āyur harati vai puṁsām\
+> udyann astaṁ ca yann asau\
+> tasyarte yat-kṣaṇo nīta\
 > uttama-śloka-vārtayā
 
 *āyuḥ*—la duración de la vida; *harati*—disminuye; *vai*—ciertamente; *puṁsām*—de la gente; *udyan*—salida; *astam*—puesta; *ca*—también; *yan*—moviendo; *asau*—el Sol; *tasya*—de aquel que glorifica; *ṛte*—excepto; *yat*—por quien; *kṣaṇaḥ*—tiempo; *nītaḥ*—utilizado; *uttama-śloka*—la supremamente buena Personalidad de Dios; *vārtayā*—en los temas relacionados con.

@@ -1,13 +1,13 @@
 ### SB 8.19.1
 
-> श्रीशुक उवाच
-> इति वैरोचनेर्वाक्यं धर्मयुक्तं स सूनृतम
+> श्रीशुक उवाच\
+> इति वैरोचनेर्वाक्यं धर्मयुक्तं स सूनृतम\
 > निशम्य भगवान्प्रीतः प्रतिनन्द्येदमब्रवीत ॥१॥
 
-> śrī-śuka uvāca
-> iti vairocaner vākyaṁ
-> dharma-yuktaṁ sa sūnṛtam
-> niśamya bhagavān prītaḥ
+> śrī-śuka uvāca\
+> iti vairocaner vākyaṁ\
+> dharma-yuktaṁ sa sūnṛtam\
+> niśamya bhagavān prītaḥ\
 > pratinandyedam abravīt
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *iti*—thus; *vairocaneḥ*—of the son of Virocana; *vākyam*—the words; *dharma-yuktam*—in terms of religious principles; *saḥ*—He; *sū-nṛtam*—very pleasing; *niśamya*—hearing; *bhagavān*—the Supreme Personality of Godhead; *prītaḥ*—completely pleased; *pratinandya*—congratulating him; *idam*—the following words; *abravīt*—said.

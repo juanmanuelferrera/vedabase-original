@@ -1,11 +1,11 @@
 ### SB 6.1.52
 
-> देह्यज्ञओऽजितषड्वर्गो नेच्छन्कर्माणि कार्यते
+> देह्यज्ञओऽजितषड्वर्गो नेच्छन्कर्माणि कार्यते\
 > कोशकार इवात्मानं कर्मणाच्छाद्य मुह्यति ॥५२॥
 
-> dehy ajño 'jita-ṣaḍ-vargo
-> necchan karmāṇi kāryate
-> kośakāra ivātmānaṁ
+> dehy ajño 'jita-ṣaḍ-vargo\
+> necchan karmāṇi kāryate\
+> kośakāra ivātmānaṁ\
 > karmaṇācchādya muhyati
 
 *dehī*—el alma corporificada; *ajñaḥ*—sin conocimiento perfecto; *ajita-ṣaṭ-vargaḥ*—que no ha dominado los sentidos de percepción y la mente; *na icchan*—sin desear; *karmāṇi*—actividades de beneficio material; *kāryate*—se ve forzada arealizar; *kośakāraḥ*—el gusano de seda; *iva*—como; *ātmānam*—él mismo; *karmaṇā*—con actividades fruitivas; *ācchādya*—cubriendo; *muhyati*—se confunde.

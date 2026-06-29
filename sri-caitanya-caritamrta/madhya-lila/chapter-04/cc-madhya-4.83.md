@@ -1,9 +1,9 @@
 ### CC Madhya 4.83
 
-> পুরী-গোসাঞি আজ্ঞা দিল সকল ব্রাহ্মণে ।
+> পুরী-গোসাঞি আজ্ঞা দিল সকল ব্রাহ্মণে ।\
 > আ-বাল-বৃদ্ধ গ্রামের লোক করাহ ভোজনে ॥৮৩॥
 
-> purī-gosāñi ājñā dila sakala brāhmaṇe
+> purī-gosāñi ājñā dila sakala brāhmaṇe\
 > ā-bāla-vṛddha grāmera loka karāha bhojane
 
 *purī-gosāñi*—Mādhavendra Purī; *ājñā*—order; *dila*—gave; *sakala brāhmaṇe*—to all the *brāhmaṇas*; *ā-bāla-vṛddha*—beginning from the children up to the old persons; *grāmera*—of the village; *loka*—the people; *karāha*—make; *bhojane*—take *prasāda.*

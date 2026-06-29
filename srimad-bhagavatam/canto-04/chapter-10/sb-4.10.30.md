@@ -1,15 +1,15 @@
 ### SB 4.10.30
 
-> मुनय ऊचुः
-> औत्तानपाद भगवांस्तव शार्ङ्गधन्वा
-> देवः क्षिणोत्ववनतार्तिहरो विपक्षान् ।
-> यन्नामधेयमभिधाय निशम्य चाद्धा
+> मुनय ऊचुः\
+> औत्तानपाद भगवांस्तव शार्ङ्गधन्वा\
+> देवः क्षिणोत्ववनतार्तिहरो विपक्षान् ।\
+> यन्नामधेयमभिधाय निशम्य चाद्धा\
 > लोकोऽञ्जसा तरति दुस्तरमङ्ग मृत्युम् ॥३०॥
 
-> munaya ūcuḥ
-> auttānapāda bhagavāṁs tava śārṅgadhanvā
-> devaḥ kṣiṇotv avanatārti-haro vipakṣān
-> yan-nāmadheyam abhidhāya niśamya cāddhā
+> munaya ūcuḥ\
+> auttānapāda bhagavāṁs tava śārṅgadhanvā\
+> devaḥ kṣiṇotv avanatārti-haro vipakṣān\
+> yan-nāmadheyam abhidhāya niśamya cāddhā\
 > loko 'ñjasā tarati dustaram aṅga mṛtyum
 
 *munayaḥ ūcuḥ*—the sages said; *auttānapāda*—O son of King Uttānapāda; *bhagavān*—the Supreme Personality of Godhead; *tava*—your; *śārṅga-dhanvā*—one who bears the bow called Śārṅga; *devaḥ*—the Lord; *kṣiṇotu*—may He kill; *avanata*—of the surrendered soul; *ārti*—the distresses; *haraḥ*—who removes; *vipakṣān*—enemies; *yat*—whose; *nāmadheyam*—holy name; *abhidhāya*—uttering; *niśamya*—hearing; *ca*—also; *addhā*—immediately; *lokaḥ*—persons; *añjasā*—fully; *tarati*—overcome; *dustaram*—insurmountable; *aṅga*—O Dhruva; *mṛtyum*—death.

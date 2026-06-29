@@ -1,13 +1,13 @@
 ### SB 3.24.41
 
-> मैत्रेय उवाच
-> एवं समुदितस्तेन कपिलेन प्रजापतिः ।
+> मैत्रेय उवाच\
+> एवं समुदितस्तेन कपिलेन प्रजापतिः ।\
 > दक्षिणीकृत्य तं प्रीतो वनमेव जगाम ह ॥४१॥
 
-> maitreya uvāca
-> evaṁ samuditas tena
-> kapilena prajāpatiḥ
-> dakṣiṇī-kṛtya taṁ prīto
+> maitreya uvāca\
+> evaṁ samuditas tena\
+> kapilena prajāpatiḥ\
+> dakṣiṇī-kṛtya taṁ prīto\
 > vanam eva jagāma ha
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya dijo; *evam*—de este modo; *samuditaḥ*—escuchando; *tena*—a Él; *kapilena*—a Kapila; *prajāpatiḥ*—el progenitor de la sociedad humana; *dakṣiṇī-kṛtya*—habiendo caminado alrededor; *tam*—de Él; *prītaḥ*—apaciguado; *vanam*—al bosque; *eva*—en verdad; *jagāma*—se fue; *ha*—entonces.

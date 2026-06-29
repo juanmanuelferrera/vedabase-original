@@ -1,9 +1,9 @@
 ### CC Madhya 9.279
 
-> ত্রিতকূপে বিশালার করি’ দরশন ৷
+> ত্রিতকূপে বিশালার করি’ দরশন ৷\
 > পঞ্চাপ্সরা-তীর্থে আইলা শচীর নন্দন ৷৷ ২৭৯ ৷৷ ॥২৭৯॥
 
-> tritakūpe viśālāra kari' daraśana
+> tritakūpe viśālāra kari' daraśana\
 > pañcāpsarā-tīrthe āilā śacīra nandana
 
 *tritakūpe*—a Tritakūpa; *viśālāra*—de la Deidad llamada Viśālā; *kari'*—haciendo; *daraśana*—visita; *pañca-apsarā-tīrthe*—a Pañcāpsarā-tīrtha; *āilā*—llegó; *śacīra nandana*—el hijo de madre Śacī.

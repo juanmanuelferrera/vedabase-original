@@ -1,13 +1,13 @@
 ### SB 3.16.2
 
-> श्रीभगवानुवाच
-> एतौ तौ पार्षदौ मह्यं जयो विजय एव च ।
+> श्रीभगवानुवाच\
+> एतौ तौ पार्षदौ मह्यं जयो विजय एव च ।\
 > कदर्थीकृत्य मां यद्वो बह्वक्रातामतिक्रमम् ॥२॥
 
-> śrī-bhagavān uvāca
-> etau tau pārṣadau mahyaṁ
-> jayo vijaya eva ca
-> kadarthī-kṛtya māṁ yad vo
+> śrī-bhagavān uvāca\
+> etau tau pārṣadau mahyaṁ\
+> jayo vijaya eva ca\
+> kadarthī-kṛtya māṁ yad vo\
 > bahv akrātām atikramam
 
 *śrī-bhagavān uvāca*—the Supreme Personality of Godhead said; *etau*—these two; *tau*—they; *pārṣadau*—attendants; *mahyam*—of Mine; *jayaḥ*—named Jaya; *vijayaḥ*—named Vijaya; *eva*—certainly; *ca*—and; *kadarthī-kṛtya*—by ignoring; *mām*—Me; *yat*—which; *vaḥ*—against you; *bahu*—great; *akrātām*—have committed; *atikramam*—offense.

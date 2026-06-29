@@ -1,11 +1,11 @@
 ### SB 3.14.15
 
-> अथ मे कुरु कल्याणं कामं कमललोचन ।
+> अथ मे कुरु कल्याणं कामं कमललोचन ।\
 > आर्तोपसर्पणं भूमन्नमोघं हि महीयसि ॥१५॥
 
-> atha me kuru kalyāṇaṁ
-> kāmaṁ kamala-locana
-> ārtopasarpaṇaṁ bhūmann
+> atha me kuru kalyāṇaṁ\
+> kāmaṁ kamala-locana\
+> ārtopasarpaṇaṁ bhūmann\
 > amoghaṁ hi mahīyasi
 
 *atha*—por lo tanto; *me*—a mí; *kuru*—haz bondadosamente; *kalyāṇam*—bendición; *kāmam*—deseo; *kamala-locana*—¡oh, tú, de ojos como el loto!; *ārta*—del afligido; *upasarpaṇam*—dirigirse; *bhūman*—¡oh, gran persona!; *amogham*—sin omisión; *hi*—ciertamente; *mahīyasi*—a una gran persona.

@@ -1,9 +1,9 @@
 ### CC Antya 1.126
 
-> বিদগ্ধমাধব আর ললিতমাধব ।
+> বিদগ্ধমাধব আর ললিতমাধব ।\
 > দুই নাটকে প্রেমরস অদভুত সব ।।” ॥ ১২৬ ॥
 
-> vidagdha-mādhava āra lalita-mādhava
+> vidagdha-mādhava āra lalita-mādhava\
 > dui nāṭake prema-rasa adabhuta saba"
 
 *vidagdha-mādhava*—one is named *Vidagdha-mādhava*; *āra*—and; *lalita-mādhava*—named Lalita-mādhava; *dui nāṭake*—in two plays; *prema-rasa*—ecstatic mellows of emotional love for Kṛṣṇa; *adabhuta*—wonderful; *saba*—all.

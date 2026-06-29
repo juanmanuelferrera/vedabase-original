@@ -1,9 +1,9 @@
 ### CC Madhya 3.4
 
-> সন্ন্যাস করি’ প্রেমাবেশে চলিলা বৃন্দাবন ।
+> সন্ন্যাস করি’ প্রেমাবেশে চলিলা বৃন্দাবন ।\
 > রাঢ়-দেশে তিন দিন করিলা ভ্রমণ ॥৪॥
 
-> sannyāsa kari' premāveśe calilā vṛndāvana
+> sannyāsa kari' premāveśe calilā vṛndāvana\
 > rāḍha-deśe tina dina karilā bhramaṇa
 
 *sannyāsakari'*—after accepting the *sannyāsa* order; *prema-āveśe*—in intense love for Kṛṣṇa; *calilā*—proceeded; *vṛndāvana*—toward Vṛndāvana-dhāma; *rāḍha-deśe*—in the tract of land known as Rāḍha; *tina dina*—continuously for three days; *karilā*—did; *bhramaṇa*—wandering.

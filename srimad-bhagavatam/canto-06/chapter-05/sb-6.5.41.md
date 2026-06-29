@@ -1,11 +1,11 @@
 ### SB 6.5.41
 
-> नानुभूय न जानाति पुमान्विषयतीक्ष्णताम
+> नानुभूय न जानाति पुमान्विषयतीक्ष्णताम\
 > निर्विद्यते स्वयं तस्मान्न तथा भिन्नधीः परैः ॥४१॥
 
-> nānubhūya na jānāti
-> pumān viṣaya-tīkṣṇatām
-> nirvidyate svayaṁ tasmān
+> nānubhūya na jānāti\
+> pumān viṣaya-tīkṣṇatām\
+> nirvidyate svayaṁ tasmān\
 > na tathā bhinna-dhīḥ paraiḥ
 
 *na*—not; *anubhūya*—experiencing; *na*—not; *jānāti*—knows; *pumān*—a person; *viṣaya-tīkṣṇatām*—the sharpness of material enjoyment; *nirvidyate*—becomes aloof; *svayam*—himself; *tasmāt*—from that; *na tathā*—not like that; *bhinna-dhīḥ*—whose intelligence is changed; *paraiḥ*—by others.

@@ -1,11 +1,11 @@
 ### SB 3.17.14
 
-> ग्रहान्पुण्यतमानन्ये भगणांश्चापि दीपिताः ।
+> ग्रहान्पुण्यतमानन्ये भगणांश्चापि दीपिताः ।\
 > अतिचेरुर्वक्रगत्या युयुधुश्च परस्परम् ॥१४॥
 
-> grahān puṇyatamān anye
-> bhagaṇāṁś cāpi dīpitāḥ
-> aticerur vakra-gatyā
+> grahān puṇyatamān anye\
+> bhagaṇāṁś cāpi dīpitāḥ\
+> aticerur vakra-gatyā\
 > yuyudhuś ca parasparam
 
 *grahān*—planetas; *puṇya-tamān*—más auspiciosos; *anye*—otros (los planetas siniestros); *bha-gaṇān*—astros luminosos; *ca*—y; *api*—también; *dīpitāḥ*—iluminando; *aticeruḥ*—superponer; *vakra-gatyā*—siguiendo órbitas que retrocedían; *yuyudhuḥ*—entraron en conflicto; *ca*—y; *paraḥ-param*—unos con otros.

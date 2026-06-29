@@ -1,9 +1,9 @@
 ### SB 5.16.4
 
-> ऋषिरुवाच
+> ऋषिरुवाच\
 > न वै महाराज भगवतो मायागुणविभूतेः काष्ठां मनसा वचसा वाधिगन्तुमलंविबुधायुषापि पुरुषस्तस्मात्प्राधान्येनैव भूगोलकविशेषं नामरूपमानलक्षणतोव्याख्यास्यामः ॥४॥
 
-> ṛṣir uvāca
+> ṛṣir uvāca\
 > na vai mahārāja bhagavato māyā-guṇa-vibhūteḥ kāṣṭhāṁ manasā vacasā vādhigantum alaṁ vibudhāyuṣāpi puruṣas tasmāt prādhān-yenaiva bhū-golaka-viśeṣaṁ nāma-rūpa-māna-lakṣaṇato vyākhyāsyāmaḥ.
 
 *ṛṣiḥ uvāca*—Śrī Śukadeva Gosvāmī continued to speak; *na*—not; *vai*—indeed; *mahā-rāja*—O great King; *bhagavataḥ*—of the Supreme Personality of Godhead; *māyā-guṇa-vibhūteḥ*—of the transformation of the qualities of the material energy; *kāṣṭhām*—the end; *manasā*—by the mind; *vacasā*—by words; *vā*—either; *adhigantum*—to understand fully; *alam*—capable; *vibudha-āyuṣā*—with a duration of life like that of Brahmā; *api*—even; *puruṣaḥ*—a person; *tasmāt*—therefore; *prādhānyena*—by a general description of the chief places; *eva*—certainly; *bhū-golaka-viśeṣam*—the particular description of Bhūloka; *nāma-rūpa*—names and forms; *māna*—measurements; *lakṣaṇataḥ*—according to symptoms; *vyākhyāsyāmaḥ*—I shall try to explain.

@@ -1,9 +1,9 @@
 ### CC Adi 4.67
 
-> কৃষ্ণে ভগবত্তা-জ্ঞান — সংবিতের সার ।
+> কৃষ্ণে ভগবত্তা-জ্ঞান — সংবিতের সার ।\
 > ব্রহ্মজ্ঞানাদিক সব তার পরিবার ॥৬৭॥
 
-> kṛṣṇe bhagavattā-jñāna--saṁvitera sāra
+> kṛṣṇe bhagavattā-jñāna--saṁvitera sāra\
 > brahma-jñānādika saba tāra parivāra
 
 *kṛṣṇe*—en Kṛṣṇa; *bhagavattā*—de la cualidad de ser la Suprema Personalidad de Dios original; *jñāna*—conocimiento; *saṁvitera*—de la potencia del conocimiento; *sāra*—la esencia; *brahma-jñāna*—conocimiento del Brahman; *ādika*—y demás; *saba*—todo; *tāra*—de eso; *parivāra*—dependientes.

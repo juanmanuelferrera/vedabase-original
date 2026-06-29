@@ -1,9 +1,9 @@
 ### CC Madhya 24.119
 
-> গুণাকৃষ্ট হঞা করে কৃষ্ণের ভজন ।
+> গুণাকৃষ্ট হঞা করে কৃষ্ণের ভজন ।\
 > একাদশ-স্কন্ধে তাঁর ভক্তি-বিবরণ ॥১১৯॥
 
-> guṇākṛṣṭa hañā kare kṛṣṇera bhajana
+> guṇākṛṣṭa hañā kare kṛṣṇera bhajana\
 > ekādaśa-skandhe tāṅra bhakti-vivaraṇa
 
 *guṇa-ākṛṣṭa hañā*—atraídos por las cualidades trascendentales; *kare*—se ocuparon en; *kṛṣṇera bhajana*—el servicio devocional del Señor; *ekādaśa-skandhe*—en el Undécimo Canto del Śrīmad-Bhāgavatam; *tāṅra*—de ellos; *bhakti-vivaraṇa*—descripción del servicio devocional.

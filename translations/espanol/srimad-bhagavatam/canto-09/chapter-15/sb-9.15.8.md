@@ -1,11 +1,11 @@
 ### SB 9.15.8
 
-> स ऋषिः प्रार्थितः पत्न्या श्वश्र्वा चापत्यकाम्यया
+> स ऋषिः प्रार्थितः पत्न्या श्वश्र्वा चापत्यकाम्यया\
 > श्रपयित्वोभयैर्मन्त्रैश्चरुं स्नातुं गतो मुनिः ॥८॥
 
-> sa ṛṣiḥ prārthitaḥ patnyā
-> śvaśrvā cāpatya-kāmyayā
-> śrapayitvobhayair mantraiś
+> sa ṛṣiḥ prārthitaḥ patnyā\
+> śvaśrvā cāpatya-kāmyayā\
+> śrapayitvobhayair mantraiś\
 > caruṁ snātuṁ gato muniḥ
 
 *saḥ*—él (Ṛcīka); *ṛṣiḥ*—el gran santo; *prārthitaḥ*—ante el ruego; *patnyā*—de su esposa; *śvaśrvā*—de su suegra; *ca*—también; *apatya-kāmyayā*—que deseaban un hijo; *śrapayitvā*—después de cocinar; *ubhayaiḥ*—ambas; *mantraiḥ*—con el canto de determinados *mantras*; *carum*—una preparación para ofrecer en sacrificio; *snātum*—para bañarse; *gataḥ*—salió; *muniḥ*—el gran sabio.

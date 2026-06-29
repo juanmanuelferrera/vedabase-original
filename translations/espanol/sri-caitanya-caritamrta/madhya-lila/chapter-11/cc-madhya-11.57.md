@@ -1,9 +1,9 @@
 ### CC Madhya 11.57
 
-> bāhya-jñāna nāhi, se-kāle kṛṣṇa-nāma śuni,
+> bāhya-jñāna nāhi, se-kāle kṛṣṇa-nāma śuni,\
 > āliṅgana karibena tomāya 'vaiṣṇava' jāni'
 
-> bāhya-jñāna nāhi, se-kāle kṛṣṇa-nāma śuni,
+> bāhya-jñāna nāhi, se-kāle kṛṣṇa-nāma śuni,\
 > āliṅgana karibena tomāya 'vaiṣṇava' jāni'
 
 *bāhya-jñāna nāhi*—sin conciencia externa; *se-kāle*—en ese momento; *kṛṣṇa-nāma śuni'*—al oír el santo nombre del Señor Kṛṣṇa; *āliṅgana karibena*—Él te abrazará; *tomāya*—a ti; *vaiṣṇava jāni'*—considerándote un vaiṣṇava.

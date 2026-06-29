@@ -1,11 +1,11 @@
 ### Bg 2.53
 
-> श्रुतिविप्रतिपन्ना ते यदा स्थास्यति निश्चला ।
+> श्रुतिविप्रतिपन्ना ते यदा स्थास्यति निश्चला ।\
 > समाधावचला बुद्धिस्तदा योगमवाप्स्यसि ॥५३॥
 
-> śruti-vipratipannā te
-> yadā sthāsyati niścalā
-> samādhāv acalā buddhis
+> śruti-vipratipannā te\
+> yadā sthāsyati niścalā\
+> samādhāv acalā buddhis\
 > tadā yogam avāpsyasi
 
 *śruti*—revelación Védica; *vipratipannā*—sin ser influenciado por los resultados fruitivos de los Vedas; *te*—tu; *yadā*—cuando; *sthāsyati*—permanece; *niścalā*—inmóvil; *samādhau*—con conciencia trascendental o conciencia de Kṛṣṇa; *acalā*—inque-brantable; *buddhiḥ*—inteligencia; *tadā*—en ese momento; *yogam*—autorrealización; *avāpsyasi*—alcanzarás.

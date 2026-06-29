@@ -1,13 +1,13 @@
 ### SB 1.13.1
 
-> सूत उवाच
-> विदुरस्तीर्थयात्रायां मैत्रेयादात्मनो गतिम् ।
+> सूत उवाच\
+> विदुरस्तीर्थयात्रायां मैत्रेयादात्मनो गतिम् ।\
 > ज्ञात्वागाद्धास्तिनपुरं तयावाप्तविवित्सितः ॥१॥
 
-> sūta uvāca
-> viduras tīrtha-yātrāyāṁ
-> maitreyād ātmano gatim
-> jñātvāgād dhāstinapuraṁ
+> sūta uvāca\
+> viduras tīrtha-yātrāyāṁ\
+> maitreyād ātmano gatim\
+> jñātvāgād dhāstinapuraṁ\
 > tayāvāpta-vivitsitaḥ
 
 *sūtaḥ uvāca*—Śrī Sūta Gosvāmī said; *viduraḥ*—Vidura; *tīrtha-yātrāyām*—while traveling to different places of pilgrimage; *maitreyāt*—from the great sage Maitreya; *ātmanaḥ*—of the self; *gatim*—destination; *jñātvā*—by knowing it; *agāt*—went back; *hāstinapuram*—the city of Hastināpura; *tayā*—by that knowledge; *avāpta*—sufficiently a gainer; *vivitsitaḥ*—being well versed in everything knowable.

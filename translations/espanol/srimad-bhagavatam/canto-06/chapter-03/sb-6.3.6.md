@@ -1,11 +1,11 @@
 ### SB 6.3.6
 
-> किन्तु शास्तृबहुत्वे स्याद्बहूनामिह कर्मिणाम
+> किन्तु शास्तृबहुत्वे स्याद्बहूनामिह कर्मिणाम\
 > शास्तृत्वमुपचारो हि यथा मण्डलवर्तिनाम ॥६॥
 
-> kintu śāstṛ-bahutve syād
-> bahūnām iha karmiṇām
-> śāstṛtvam upacāro hi
+> kintu śāstṛ-bahutve syād\
+> bahūnām iha karmiṇām\
+> śāstṛtvam upacāro hi\
 > yathā maṇḍala-vartinām
 
 *kintu*—pero; *śāstṛ*—de gobernantes o jueces; *bahutve*—en la pluralidad; *syāt*—puede haber; *bahūnām*—de muchos; *iha*—en este mundo; *karmiṇām*—personas que realizan acciones; *śāstṛtvam*—gobierno regional; *upacāraḥ*—administración; *hi*—en verdad; *yathā*—tal como; *maṇḍala-vartinām*—de los jefes de departamento.

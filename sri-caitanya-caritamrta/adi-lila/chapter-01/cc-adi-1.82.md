@@ -1,9 +1,9 @@
 ### CC Adi 1.82
 
-> ভক্ত আদি ক্রমে কৈল সভার বন্দন ।
+> ভক্ত আদি ক্রমে কৈল সভার বন্দন ।\
 > এ-সভার বন্দন সর্বশুভের কারণ ॥৮২॥
 
-> bhakta ādi krame kaila sabhāra vandana
+> bhakta ādi krame kaila sabhāra vandana\
 > e-sabhāra vandana sarva-śubhera kāraṇa
 
 *bhakta*—the devotees; *ādi*—and so on; *krame*—in order; *kaila*—did; *sabhāra*—of the assembly; *vandana*—worship; *e-sabhāra*—of this assembly; *vandana*—worship; *sarva-śubhera*—of all good fortune; *kāraṇa*—the source.

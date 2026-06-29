@@ -1,11 +1,11 @@
 ### SB 4.21.25
 
-> तत्प्रजा भर्तृपिण्डार्थं स्वार्थमेवानसूयवः ।
+> तत्प्रजा भर्तृपिण्डार्थं स्वार्थमेवानसूयवः ।\
 > कुरुताधोक्षजधियस्तर्हि मेऽनुग्रहः कृतः ॥२५॥
 
-> tat prajā bhartṛ-piṇḍārthaṁ
-> svārtham evānasūyavaḥ
-> kurutādhokṣaja-dhiyas
+> tat prajā bhartṛ-piṇḍārthaṁ\
+> svārtham evānasūyavaḥ\
+> kurutādhokṣaja-dhiyas\
 > tarhi me 'nugrahaḥ kṛtaḥ
 
 *tat*—así pues; *prajāḥ*—mis queridos súbitos; *bhartṛ*—del amo; *piṇḍa-artham*—bien después de la muerte; *sva-artham*—interés personal; *eva*—ciertamente; *anasūyavaḥ*—sin ser envidiosos; *kuruta*—realicen; *adhokṣaja*—la Suprema Personalidad de Dios; *dhiyaḥ*—pensando en Él; *tarhi*—por lo tanto; *me*—a mí; *anugrahaḥ*—misericordia; *kṛtaḥ*—hecha.

@@ -1,9 +1,9 @@
 ### CC Madhya 24.235
 
-> শ্যামবর্ণ রক্তনেত্র মহাভয়ঙ্কর ।
+> শ্যামবর্ণ রক্তনেত্র মহাভয়ঙ্কর ।\
 > ধনুর্বাণ হস্তে, — যেন যম দণ্ডধর ॥২৩৫॥
 
-> śyāma-varṇa rakta-netra mahā-bhayaṅkara
+> śyāma-varṇa rakta-netra mahā-bhayaṅkara\
 > dhanur-bāṇa haste,--yena yama daṇḍa-dhara
 
 *śyāma-varṇa*—de color oscuro; *rakta-netra*—ojos rojizos; *mahā-bhayaṅkara*—rasgos corporales muy temibles; *dhanuḥ-bāṇa haste*—con flechas y arco en la mano; *yena yama daṇḍa-dhara*—exactamente como el superintendente de la muerte, Yamarāja.

@@ -1,9 +1,9 @@
 ### CC Antya 13.59
 
-> ঐছে চৈতন্যনিষ্ঠা যোগ্য তোমাতে ।
+> ঐছে চৈতন্যনিষ্ঠা যোগ্য তোমাতে ।\
 > তুমি না দেখাইলে ইহা শিখিব কেমতে ? ॥ ৫৯ ॥
 
-> aiche caitanya-niṣṭhā yogya tomāte
+> aiche caitanya-niṣṭhā yogya tomāte\
 > tumi nā dekhāile ihā śikhiba ke-mate?
 
 *aiche*—such; *caitanya-niṣṭhā*—faith in Śrī Caitanya Mahāprabhu; *yogya*—just befitting; *tomāte*—in you; *tumi nā dekhāile*—if you do not show; *ihā*—this; *śikhiba*—I shall learn; *ke-mate*—how.

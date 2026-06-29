@@ -1,11 +1,11 @@
 ### SB 3.33.16
 
-> पयःफेननिभाः शय्या दान्ता रुक्मपरिच्छदाः ।
+> पयःफेननिभाः शय्या दान्ता रुक्मपरिच्छदाः ।\
 > आसनानि च हैमानि सुस्पर्शास्तरणानि च ॥१६॥
 
-> payaḥ-phena-nibhāḥ śayyā
-> dāntā rukma-paricchadāḥ
-> āsanāni ca haimāni
+> payaḥ-phena-nibhāḥ śayyā\
+> dāntā rukma-paricchadāḥ\
+> āsanāni ca haimāni\
 > susparśāstaraṇāni ca
 
 *payaḥ*—of milk; *phena*—the foam; *nibhāḥ*—resembling; *śayyāḥ*—beds; *dāntāḥ*—made of ivory; *rukma*—golden; *paricchadāḥ*—with covers; *āsanāni*—chairs and benches; *ca*—and; *haimāni*—made of gold; *su-sparśa*—soft to the touch; *āstaraṇāni*—cushions; *ca*—and.

@@ -1,11 +1,11 @@
 ### SB 4.9.53
 
-> लाल्यमानं जनैरेवं ध्रुवं सभ्रातरं नृपः ।
+> लाल्यमानं जनैरेवं ध्रुवं सभ्रातरं नृपः ।\
 > आरोप्य करिणीं हृष्टः स्तूयमानोऽविशत्पुरम् ॥५३॥
 
-> lālyamānaṁ janair evaṁ
-> dhruvaṁ sabhrātaraṁ nṛpaḥ
-> āropya kariṇīṁ hṛṣṭaḥ
+> lālyamānaṁ janair evaṁ\
+> dhruvaṁ sabhrātaraṁ nṛpaḥ\
+> āropya kariṇīṁ hṛṣṭaḥ\
 > stūyamāno 'viśat puram
 
 *lālyamānam*—siendo así alabado; *janaiḥ*—por la gente en general; *evam*—de ese modo; *dhruvam*—a Mahārāja Dhruva; *sa-bhrātaram*—con su hermano; *nṛpaḥ*—el rey; *āropya*—poner; *kariṇīm*—a lomos de una elefanta; *hṛṣṭaḥ*—sintiéndose complacido; *stūyamānaḥ*—y siendo alabado; *aviśat*—volvió; *puram*—a la capital.

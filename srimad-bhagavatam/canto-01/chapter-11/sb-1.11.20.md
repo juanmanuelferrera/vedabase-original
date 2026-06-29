@@ -1,11 +1,11 @@
 ### SB 1.11.20
 
-> नटनर्तकगन्धर्वाः सूतमागधवन्दिनः ।
+> नटनर्तकगन्धर्वाः सूतमागधवन्दिनः ।\
 > गायन्ति चोत्तमश्लोकचरितान्यद्भुतानि च ॥२०॥
 
-> naṭa-nartaka-gandharvāḥ
-> sūta-māgadha-vandinaḥ
-> gāyanti cottamaśloka-
+> naṭa-nartaka-gandharvāḥ\
+> sūta-māgadha-vandinaḥ\
+> gāyanti cottamaśloka-\
 > caritāny adbhutāni ca
 
 *naṭa*—dramatists; *nartaka*—dancers; *gandharvāḥ*—celestial singers; *sūta*—professional historians; *māgadha*—professional genealogists; *vandinaḥ*—professional learned speakers; *gāyanti*—chant; *ca*—respectively; *uttamaśloka*—the Supreme Lord; *caritāni*—activities; *adbhutāni*—all superhuman; *ca*—and.

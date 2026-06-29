@@ -1,13 +1,13 @@
 ### SB 7.9.25
 
-> कुत्राशिषः श्रुतिसुखा मृगतृष्णिरूपाः
-> क्वेदं कलेवरमशेषरुजां विरोहः
-> निर्विद्यते न तु जनो यदपीति विद्वान
+> कुत्राशिषः श्रुतिसुखा मृगतृष्णिरूपाः\
+> क्वेदं कलेवरमशेषरुजां विरोहः\
+> निर्विद्यते न तु जनो यदपीति विद्वान\
 > कामानलं मधुलवैः शमयन्दुरापैः ॥२५॥
 
-> kutrāśiṣaḥ śruti-sukhā mṛgatṛṣṇi-rūpāḥ
-> kvedaṁ kalevaram aśeṣa-rujāṁ virohaḥ
-> nirvidyate na tu jano yad apīti vidvān
+> kutrāśiṣaḥ śruti-sukhā mṛgatṛṣṇi-rūpāḥ\
+> kvedaṁ kalevaram aśeṣa-rujāṁ virohaḥ\
+> nirvidyate na tu jano yad apīti vidvān\
 > kāmānalaṁ madhu-lavaiḥ śamayan durāpaiḥ
 
 *kutra*—where; *āśiṣaḥ*—benedictions; *śruti-sukhāḥ*—simply pleasing to hear of; *mṛgatṛṣṇi-rūpāḥ*—exactly like a mirage in the desert; *kva*—where; *idam*—this; *kalevaram*—body; *aśeṣa*—unlimited; *rujām*—of diseases; *virohaḥ*—the place for generating; *nirvidyate*—become satiated; *na*—not; *tu*—but; *janaḥ*—people in general; *yat api*—although; *iti*—thus; *vidvān*—so-called learned philosophers, scientists and politicians; *kāma-analam*—the blazing fire of lusty desires; *madhu-lavaiḥ*—with drops of honey (happiness); *śamayan*—controlling; *durāpaiḥ*—very difficult to obtain.

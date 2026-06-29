@@ -1,9 +1,9 @@
 ### CC Madhya 9.305
 
-> ব্রাহ্মণ-সমাজ সব — বৈষ্ণব-চরিত ৷
+> ব্রাহ্মণ-সমাজ সব — বৈষ্ণব-চরিত ৷\
 > বৈষ্ণব সকল পড়ে ‘কৃষ্ণকর্ণামৃত’ ৷৷ ৩০৫ ৷৷ ॥৩০৫॥
 
-> brāhmaṇa-samāja saba--vaiṣṇava-carita
+> brāhmaṇa-samāja saba--vaiṣṇava-carita\
 > vaiṣṇava sakala paḍe 'kṛṣṇa-karṇāmṛta'
 
 *brāhmaṇa-samāja*—la comunidad de brāhmaṇas; *saba*—toda; *vaiṣṇava-carita*—devotos puros; *vaiṣṇava sakala*—todos los vaiṣṇavas; *paḍe*—estudian; *kṛṣṇa-karṇāmṛta*—el Kṛṣṇa-karṇāmṛta de Bilvamaṅgala Ṭhākura.

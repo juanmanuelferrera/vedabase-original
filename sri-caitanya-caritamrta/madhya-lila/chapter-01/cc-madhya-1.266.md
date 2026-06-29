@@ -1,9 +1,9 @@
 ### CC Madhya 1.266
 
-> রামচন্দ্রপুরী-ভয়ে ভিক্ষা ঘাটাইলা ।
+> রামচন্দ্রপুরী-ভয়ে ভিক্ষা ঘাটাইলা ।\
 > বৈষ্ণবের দুঃখ দেখি’ অর্ধেক রাখিলা ॥২৬৬॥
 
-> rāmacandra-purī-bhaye bhikṣā ghāṭāilā
+> rāmacandra-purī-bhaye bhikṣā ghāṭāilā\
 > vaiṣṇavera duḥkha dekhi' ardheka rākhilā
 
 *rāmacandra-purī-bhaye*—due to fear of Rāmacandra Purī; *bhikṣā*—the proportion of eating; *ghāṭāilā*—decreased; *vaiṣṇavera*—of all the Vaiṣṇavas; *duḥkha*—unhappiness; *dekhi'*—understanding; *ardheka*—half of the portion; *rākhilā*—kept.

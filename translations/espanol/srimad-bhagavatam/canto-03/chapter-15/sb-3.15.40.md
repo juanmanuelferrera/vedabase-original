@@ -1,13 +1,13 @@
 ### SB 3.15.40
 
-> पीतांशुके पृथुनितम्बिनि विस्फुरन्त्या
-> काञ्च्यालिभिर्विरुतया वनमालया च ।
-> वल्गुप्रकोष्ठवलयं विनतासुतांसे
+> पीतांशुके पृथुनितम्बिनि विस्फुरन्त्या\
+> काञ्च्यालिभिर्विरुतया वनमालया च ।\
+> वल्गुप्रकोष्ठवलयं विनतासुतांसे\
 > विन्यस्तहस्तमितरेण धुनानमब्जम् ॥४०॥
 
-> pītāṁśuke pṛthu-nitambini visphurantyā
-> kāñcyālibhir virutayā vana-mālayā ca
-> valgu-prakoṣṭha-valayaṁ vinatā-sutāṁse
+> pītāṁśuke pṛthu-nitambini visphurantyā\
+> kāñcyālibhir virutayā vana-mālayā ca\
+> valgu-prakoṣṭha-valayaṁ vinatā-sutāṁse\
 > vinyasta-hastam itareṇa dhunānam abjam
 
 *pīta-aṁśuke*—cubierto con ropa amarilla; *pṛthu-nitambini*—sobre Sus amplias caderas; *visphurantyā*—resplandecía brillantemente; *kāñcyā*—con un cinturón; *alibhiḥ*—por las abejas; *virutayā*—zumbadoras; *vana-mālayā*—con un collar de flores frescas; *ca*—y; *valgu*—delicadas; *prakoṣṭha*—muñecas; *valayam*—pulseras; *vinatā-suta*—de Garuḍa, el hijo de Vinatā; *aṁse*—en el hombro; *vinyasta*—posaba; *hastam*—una mano; *itareṇa*—con otra mano; *dhunānam*—siendo girada; *abjam*—una flor de loto.

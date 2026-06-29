@@ -1,11 +1,11 @@
 ### SB 9.7.15
 
-> इति पुत्रानुरागेण स्नेहयन्त्रितचेतसा
+> इति पुत्रानुरागेण स्नेहयन्त्रितचेतसा\
 > कालं वञ्चयता तं तमुक्तो देवस्तमैक्षत ॥१५॥
 
-> iti putrānurāgeṇa
-> sneha-yantrita-cetasā
-> kālaṁ vañcayatā taṁ tam
+> iti putrānurāgeṇa\
+> sneha-yantrita-cetasā\
+> kālaṁ vañcayatā taṁ tam\
 > ukto devas tam aikṣata
 
 *iti*—in this way; *putra-anurāgeṇa*—because of affection for the son; *sneha-yantrita-cetasā*—his mind being controlled by such affection; *kālam*—time; *vañcayatā*—cheating; *tam*—unto him; *tam*—that; *uktaḥ*—said; *devaḥ*—the demigod Varuṇa; *tam*—unto him, Hariścandra; *aikṣata*—waited for the fulfillment of his promise.

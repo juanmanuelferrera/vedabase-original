@@ -1,21 +1,21 @@
 ### SB 9.19.5-6
 
-> सोत्तीर्य कूपात्सुश्रोणी तमेव चकमे किल
-> तया वृतं समुद्वीक्ष्य बह्व्योऽजाः कान्तकामिनीः ॥५॥
-> पीवानं श्मश्रुलं प्रेष्ठं मीढ्वांसं याभकोविदम
-> स एकोऽजवृषस्तासां बह्वीनां रतिवर्धनः
+> सोत्तीर्य कूपात्सुश्रोणी तमेव चकमे किल\
+> तया वृतं समुद्वीक्ष्य बह्व्योऽजाः कान्तकामिनीः ॥५॥\
+> पीवानं श्मश्रुलं प्रेष्ठं मीढ्वांसं याभकोविदम\
+> स एकोऽजवृषस्तासां बह्वीनां रतिवर्धनः\
 > रेमे कामग्रहग्रस्त आत्मानं नावबुध्यत ॥६॥
 
-> sottīrya kūpāt suśroṇī
-> tam eva cakame kila
-> tayā vṛtaṁ samudvīkṣya
+> sottīrya kūpāt suśroṇī\
+> tam eva cakame kila\
+> tayā vṛtaṁ samudvīkṣya\
 > bahvyo 'jāḥ kānta-kāminīḥ
 
-> pīvānaṁ śmaśrulaṁ preṣṭhaṁ
-> mīḍhvāṁsaṁ yābha-kovidam
-> sa eko 'javṛṣas tāsāṁ
-> bahvīnāṁ rati-vardhanaḥ
-> reme kāma-graha-grasta
+> pīvānaṁ śmaśrulaṁ preṣṭhaṁ\
+> mīḍhvāṁsaṁ yābha-kovidam\
+> sa eko 'javṛṣas tāsāṁ\
+> bahvīnāṁ rati-vardhanaḥ\
+> reme kāma-graha-grasta\
 > ātmānaṁ nāvabudhyata
 
 *sā*—la cabra; *uttīrya*—al salir; *kupāt*—del pozo; *su-śroṇī*—de muy hermosas ancas; *tam*—al macho cabrío; *eva*—en verdad; *cakame*—deseó aceptar por esposo; *kila*—en verdad; *tayā*—por ella; *vṛtam*—aceptado; *samudvīkṣya*—al ver; *bahvyaḥ*—muchas otras; *ajāḥ*—cabras; *kānta-kāminīḥ*—deseando que el macho fuese su esposo; *pīvānam*—muy fuerte y robusto; *śmaśrulam*—de barba y bigote bien poblados; *preṣṭham*—de primera categoría; *mīḍhvāṁsam*—experto en eyacular semen; *yābha-kovidam*—experto en el arte de la relación sexual; *saḥ*—aquel macho cabrío; *ekaḥ*—solo; *aja-vṛṣaḥ*—el héroe de las cabras; *tāsām*—de todas las cabras; *bahvīnām*—en gran cantidad; *rati-vardhanaḥ*—podía aumentar el deseo lujurioso; *reme*—disfrutó; *kāma-graha-grastaḥ*—poseído por el fantasma del deseo lujurioso; *ātmānam*—su propio ser; *na*—no; *avabudhyata*—podía comprender.

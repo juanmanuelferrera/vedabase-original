@@ -1,9 +1,9 @@
 ### CC Adi 14.67
 
-> লক্ষ্মী তাঁর অঙ্গে দিল পুষ্প-চন্দন ।
+> লক্ষ্মী তাঁর অঙ্গে দিল পুষ্প-চন্দন ।\
 > মল্লিকার মালা দিয়া করিল বন্দন ॥৬৭॥
 
-> lakṣmī tāṅra aṅge dila puṣpa-candana
+> lakṣmī tāṅra aṅge dila puṣpa-candana\
 > mallikāra mālā diyā karila vandana
 
 *lakṣmī*—Lakṣmīdevī; *tāṅra*—His; *aṅge*—on the body; *dila*—gave; *puṣpa*—flowers; *candana*—sandalwood pulp; *mallikāra*—of the flower of the name *mallikā*; *mālā*—garland; *diyā*—giving; *karila*—offered; *vandana*—prayers.

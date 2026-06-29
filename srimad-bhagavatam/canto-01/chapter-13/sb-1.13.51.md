@@ -1,11 +1,11 @@
 ### SB 1.13.51
 
-> धृतराष्ट्रः सह भ्रात्रा गान्धार्या च स्वभार्यया ।
+> धृतराष्ट्रः सह भ्रात्रा गान्धार्या च स्वभार्यया ।\
 > दक्षिणेन हिमवत ऋषीणामाश्रमं गतः ॥५१॥
 
-> dhṛtarāṣṭraḥ saha bhrātrā
-> gāndhāryā ca sva-bhāryayā
-> dakṣiṇena himavata
+> dhṛtarāṣṭraḥ saha bhrātrā\
+> gāndhāryā ca sva-bhāryayā\
+> dakṣiṇena himavata\
 > ṛṣīṇām āśramaṁ gataḥ
 
 *dhṛtarāṣṭraḥ*—Dhṛtarāṣṭra; *saha*—along with; *bhrātrā*—his brother Vidura; *gāndhāryā*—Gāndhārī also; *ca*—and; *sva-bhāryayā*—his own wife; *dakṣiṇena*—by the southern side; *himavataḥ*—of the Himalaya Mountains; *ṛṣīṇām*—of the *ṛṣis*; *āśramam*—in shelter; *gataḥ*—he has gone.

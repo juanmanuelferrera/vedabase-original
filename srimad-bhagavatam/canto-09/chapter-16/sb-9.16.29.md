@@ -1,11 +1,11 @@
 ### SB 9.16.29
 
-> विश्वामित्रस्य चैवासन्पुत्रा एकशतं नृप
+> विश्वामित्रस्य चैवासन्पुत्रा एकशतं नृप\
 > मध्यमस्तु मधुच्छन्दा मधुच्छन्दस एव ते ॥२९॥
 
-> viśvāmitrasya caivāsan
-> putrā eka-śataṁ nṛpa
-> madhyamas tu madhucchandā
+> viśvāmitrasya caivāsan\
+> putrā eka-śataṁ nṛpa\
+> madhyamas tu madhucchandā\
 > madhucchandasa eva te
 
 *viśvāmitrasya*—of Viśvāmitra; *ca*—also; *eva*—indeed; *āsan*—there were; *putrāḥ*—sons; *eka-śatam*—101; *nṛpa*—O King Parīkṣit; *madhyamaḥ*—the middle one; *tu*—indeed; *madhucchandāḥ*—known as Madhucchandā; *madhucchandasaḥ*—named the Madhucchandās; *eva*—indeed; *te*—all of them.

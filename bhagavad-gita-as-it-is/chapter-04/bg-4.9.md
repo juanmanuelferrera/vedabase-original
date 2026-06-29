@@ -1,11 +1,11 @@
 ### Bg 4.9
 
-> जन्म कर्म च मे दिव्यमेवं यो वेत्ति तत्त्वतः ।
+> जन्म कर्म च मे दिव्यमेवं यो वेत्ति तत्त्वतः ।\
 > त्यक्त्वा देहं पुनर्जन्म नैति मामेति सोऽर्जुन ॥९॥
 
-> janma karma ca me divyam
-> evaṁ yo vetti tattvataḥ
-> tyaktvā dehaṁ punar janma
+> janma karma ca me divyam\
+> evaṁ yo vetti tattvataḥ\
+> tyaktvā dehaṁ punar janma\
 > naiti mām eti so 'rjuna
 
 *janma*—birth; *karma*—work; *ca*—also; *me*—of Mine; *divyam*—transcendental; *evam*—like this; *yaḥ*—anyone who; *vetti*—knows; *tattvataḥ*—in reality; *tyaktvā*—leaving aside; *deham*—this body; *punaḥ*—again; *janma*—birth; *na*—never; *eti*—does attain; *mām*—unto Me; *eti*—does attain; *saḥ*—he; *arjuna*—O Arjuna.

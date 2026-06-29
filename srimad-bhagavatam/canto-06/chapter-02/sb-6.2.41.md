@@ -1,11 +1,11 @@
 ### SB 6.2.41
 
-> ततो गुणेभ्य आत्मानं वियुज्यात्मसमाधिना
+> ततो गुणेभ्य आत्मानं वियुज्यात्मसमाधिना\
 > युयुजे भगवद्धाम्नि ब्रह्मण्यनुभवात्मनि ॥४१॥
 
-> tato guṇebhya ātmānaṁ
-> viyujyātma-samādhinā
-> yuyuje bhagavad-dhāmni
+> tato guṇebhya ātmānaṁ\
+> viyujyātma-samādhinā\
+> yuyuje bhagavad-dhāmni\
 > brahmaṇy anubhavātmani
 
 *tataḥ*—thereafter; *guṇebhyaḥ*—from the modes of material nature; *ātmānam*—the mind; *viyujya*—detaching; *ātma-samādhinā*—by being fully engaged in devotional service; *yuyuje*—engaged; *bhagavat-dhāmni*—in the form of the Lord; *brahmaṇi*—which is Parabrahman (not idol worship); *anubhava-ātmani*—which is always thought of (beginning from the lotus feet and gradually progressing upward).

@@ -1,9 +1,9 @@
 ### CC Madhya 25.75
 
-> তেঁহো কহে, ‘তোমার পূর্বে নিন্দা-অপরাধ যে করিল ।
+> তেঁহো কহে, ‘তোমার পূর্বে নিন্দা-অপরাধ যে করিল ।\
 > তোমার চরণ-স্পর্শে, সব ক্ষয় গেল ॥৭৫॥
 
-> teṅho kahe, 'tomāra pūrve nindā-aparādha ye karila
+> teṅho kahe, 'tomāra pūrve nindā-aparādha ye karila\
 > tomāra caraṇa-sparśe, saba kṣaya gela
 
 *teṅho kahe*—él respondió; *tomāra*—de Ti; *pūrve*—anteriormente; *nindā-aparādha*—ofensas y blasfemias; *ye karila*—todo lo que he cometido; *tomāra caraṇa-sparśe*—al tocar Tus pies de loto; *saba kṣaya gela*—los efectos de todas esas ofensas han quedado destruidos.

@@ -1,11 +1,11 @@
 ### SB 8.12.26
 
-> सा तमायान्तमालोक्य विवस्त्रा व्रीडिता भृशम
+> सा तमायान्तमालोक्य विवस्त्रा व्रीडिता भृशम\
 > निलीयमाना वृक्षेषु हसन्ती नान्वतिष्ठत ॥२६॥
 
-> sā tam āyāntam ālokya
-> vivastrā vrīḍitā bhṛśam
-> nilīyamānā vṛkṣeṣu
+> sā tam āyāntam ālokya\
+> vivastrā vrīḍitā bhṛśam\
+> nilīyamānā vṛkṣeṣu\
 > hasantī nānvatiṣṭhata
 
 *sā*—that woman; *tam*—Lord Śiva; *āyāntam*—who was coming near; *ālokya*—seeing; *vivastrā*—She was naked; *vrīḍitā*—very bashful; *bhṛśam*—so much; *nilīyamānā*—was hiding; *vṛkṣeṣu*—among the trees; *hasantī*—smiling; *na*—not; *anvatiṣṭhata*—stood in one place.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.222
 
-> শান্তের গুণ, দাস্যের সেবন — সখ্যে দুই হয় ।
+> শান্তের গুণ, দাস্যের সেবন — সখ্যে দুই হয় ।\
 > দাস্যের ‘সম্ভ্রমংগৌরব’-সেবা, সখ্যে ‘বিশ্বাস’-ময় ॥২২২॥
 
-> śāntera guṇa, dāsyera sevana--sakhye dui haya
+> śāntera guṇa, dāsyera sevana--sakhye dui haya\
 > dāsyera 'sambhrama-gaurava'-sevā, sakhye 'viśvāsa'-maya
 
 *śāntera guṇa*—cualidades del śānta-rasa; *dāsyera sevana*—el servicio del dāsya-rasa; *sakhye*—en la plataforma de la fraternidad; *dui*—dos cualidades; *haya*—hay; *dāsyera*—de la plataforma del dāsya; *sambhrama-gaurava*—con temor reverente y veneración; *sevā*—servicio; *sakhye*—en la plataforma de la fraternidad; *viśvāsa-maya*—impregnado de confianza.

@@ -1,11 +1,11 @@
 ### SB 3.23.49
 
-> पतिं सा प्रव्रजिष्यन्तं तदालक्ष्योशती बहिः ।
+> पतिं सा प्रव्रजिष्यन्तं तदालक्ष्योशती बहिः ।\
 > स्मयमाना विक्लवेन हृदयेन विदूयता ॥४९॥
 
-> patiṁ sā pravrajiṣyantaṁ
-> tadālakṣyośatī bahiḥ
-> smayamānā viklavena
+> patiṁ sā pravrajiṣyantaṁ\
+> tadālakṣyośatī bahiḥ\
+> smayamānā viklavena\
 > hṛdayena vidūyatā
 
 *patim*—her husband; *sā*—she; *pravrajiṣyantam*—going to leave home; *tadā*—then; *ālakṣya*—after seeing; *uśatī*—beautiful; *bahiḥ*—outwardly; *smayamānā*—smiling; *viklavena*—agitated; *hṛdayena*—with a heart; *vidūyatā*—being distressed.

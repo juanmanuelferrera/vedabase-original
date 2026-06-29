@@ -1,11 +1,11 @@
 ### SB 9.16.14
 
-> तदुपश्रुत्य दूरस्था हा रामेत्यार्तवत्स्वनम
+> तदुपश्रुत्य दूरस्था हा रामेत्यार्तवत्स्वनम\
 > त्वरयाश्रममासाद्य ददृशुः पितरं हतम ॥१४॥
 
-> tad upaśrutya dūrasthā
-> hā rāmety ārtavat svanam
-> tvarayāśramam āsādya
+> tad upaśrutya dūrasthā\
+> hā rāmety ārtavat svanam\
+> tvarayāśramam āsādya\
 > dadṛśuḥ pitaraṁ hatam
 
 *tat*—ese llanto de Reṇukā; *upaśrutya*—al escuchar; *dūra-sthāḥ*—aunque estaban a mucha distancia; *hā rāma*—¡oh, Rāma!, ¡oh, Rāma!; *iti*—así; *ārta-vat*—lleno de dolor; *svanam*—el sonido; *tvarayā*—a toda prisa; *āśramam*—a la morada de Jamadagni; *āsādya*—yendo; *dadṛśuḥ*—vieron; *pitaram*—al padre; *hatam*—asesinado.

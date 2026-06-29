@@ -1,11 +1,11 @@
 ### Bg 5.24
 
-> योऽन्तःसुखोऽन्तरारामस्तथान्तर्ज्योतिरेव यः ।
+> योऽन्तःसुखोऽन्तरारामस्तथान्तर्ज्योतिरेव यः ।\
 > स योगी ब्रह्मनिर्वाणं ब्रह्मभूतोऽधिगच्छति ॥२४॥
 
-> yo 'ntaḥ-sukho 'ntar-ārāmas
-> tathāntar-jyotir eva yaḥ
-> sa yogī brahma-nirvāṇaṁ
+> yo 'ntaḥ-sukho 'ntar-ārāmas\
+> tathāntar-jyotir eva yaḥ\
+> sa yogī brahma-nirvāṇaṁ\
 > brahma-bhūto 'dhigacchati
 
 *yaḥ*—one who; *antaḥ-sukhaḥ*—happy from within; *antaḥ-ārāmah*—active within; *tathā*—as well as; *antaḥ-jyotiḥ*—aiming within; *eva*—certainly; *yaḥ*—anyone; *saḥ*—he; *yogī*—mystic; *brahma-nirvāṇam*—liberated in the Supreme; *brahma-bhūtaḥ*—self-realized; *adhigacchati*—attains.

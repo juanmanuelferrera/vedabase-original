@@ -1,9 +1,9 @@
 ### CC Madhya 21.62
 
-> কৃষ্ণে জানাঞা দ্বারী ব্রহ্মারে লঞা গেলা ।
+> কৃষ্ণে জানাঞা দ্বারী ব্রহ্মারে লঞা গেলা ।\
 > কৃষ্ণের চরণে ব্রহ্মা দণ্ডবৎ কৈলা ॥৬২॥
 
-> kṛṣṇe jānāñā dvārī brahmāre lañā gelā
+> kṛṣṇe jānāñā dvārī brahmāre lañā gelā\
 > kṛṣṇera caraṇe brahmā daṇḍavat kailā
 
 *kṛṣṇe jānāñā*—informando al Señor Kṛṣṇa; *dvārī*—el portero; *brahmāre*—al Señor Brahmā; *lañā*—llevando; *gelā*—fue; *kṛṣṇera caraṇe*—a los pies de loto de Kṛṣṇa; *brahmā*—el Señor Brahmā; *daṇḍavat kailā*—ofreció reverencias.

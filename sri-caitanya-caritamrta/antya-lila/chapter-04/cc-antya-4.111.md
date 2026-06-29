@@ -1,9 +1,9 @@
 ### CC Antya 4.111
 
-> যথাযোগ্য করাইল সবার চরণ বন্দন ।
+> যথাযোগ্য করাইল সবার চরণ বন্দন ।\
 > তাঁরে করাইলা সবার কৃপার ভাজন ॥১১১॥
 
-> yathā-yogya karāila sabāra caraṇa vandana
+> yathā-yogya karāila sabāra caraṇa vandana\
 > tāṅre karāilā sabāra kṛpāra bhājana
 
 *yathā-yogya*—as it is fit; *karāila*—caused to perform; *sabāra*—of all; *caraṇa vandana*—worshiping the lotus feet; *tāṅre*—him; *karāilā*—made; *sabāra*—of all of them; *kṛpāra bhājana*—object of mercy.

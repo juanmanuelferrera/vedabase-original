@@ -1,9 +1,9 @@
 ### CC Madhya 22.8
 
-> স্বাংশ-বিভিন্নাংশ-রূপে হঞা বিস্তার ।
+> স্বাংশ-বিভিন্নাংশ-রূপে হঞা বিস্তার ।\
 > অনন্ত বৈকুণ্ঠ-ব্রহ্মাণ্ডে করেন বিহার ॥৮॥
 
-> svāṁśa-vibhinnāṁśa-rūpe hañā vistāra
+> svāṁśa-vibhinnāṁśa-rūpe hañā vistāra\
 > ananta vaikuṇṭha-brahmāṇḍe karena vihāra
 
 *sva-aṁśa*—de expansiones personales; *vibhinna-aṁśa*—de expansiones separadas; *rūpe*—en las formas; *hañā*—volviéndose; *vistāra*—expandido; *ananta*—ilimitados; *vaikuṇṭha*—en los planetas espirituales conocidos como Vaikuṇṭhas; *brahmāṇḍe*—en los universos materiales; *karena vihāra*—realiza Sus pasatiempos.

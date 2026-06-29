@@ -1,9 +1,9 @@
 ### CC Antya 1.14
 
-> শুনি’ শচী আনন্দিত, সব ভক্তগণ ।
+> শুনি’ শচী আনন্দিত, সব ভক্তগণ ।\
 > সবে মিলি’ নীলাচলে করিলা গমন ॥১৪॥
 
-> śuni' śacī ānandita, saba bhakta-gaṇa
+> śuni' śacī ānandita, saba bhakta-gaṇa\
 > sabe mili' nīlācale karilā gamana
 
 *śuni'*—hearing; *śacī*—mother Śacī; *ānandita*—very pleased; *saba bhakta-gaṇa*—as well as all the other devotees of Navadvīpa; *sabe mili'*—meeting together; *nīlācale*—to Jagannātha Purī, Nīlācala; *karilā gamana*—departed.

@@ -1,11 +1,11 @@
 ### SB 4.8.30
 
-> अथ मात्रोपदिष्टेन योगेनावरुरुत्ससि ।
+> अथ मात्रोपदिष्टेन योगेनावरुरुत्ससि ।\
 > यत्प्रसादं स वै पुंसां दुराराध्यो मतो मम ॥३०॥
 
-> atha mātropadiṣṭena
-> yogenāvarurutsasi
-> yat-prasādaṁ sa vai puṁsāṁ
+> atha mātropadiṣṭena\
+> yogenāvarurutsasi\
+> yat-prasādaṁ sa vai puṁsāṁ\
 > durārādhyo mato mama
 
 *atha*—por lo tanto; *mātrā*—por tu madre; *upadiṣṭena*—siendo instruido; *yogena*—por medio de la meditación mística; *avarurutsasi*—quieres elevarte; *yat-prasādam*—cuya misericordia; *saḥ*—esa; *vai*—ciertamente; *puṁsām*—de las entidades vivientes; *durārādhyaḥ*—muy difícil de llevar a cabo; *mataḥ*—opinión; *mama*—mía.

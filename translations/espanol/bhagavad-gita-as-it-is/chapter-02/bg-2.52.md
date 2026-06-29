@@ -1,11 +1,11 @@
 ### Bg 2.52
 
-> यदा ते मोहकलिलं बुद्धिर्व्यतितरिष्यति ।
+> यदा ते मोहकलिलं बुद्धिर्व्यतितरिष्यति ।\
 > तदा गन्तासि निर्वेदं श्रोतव्यस्य श्रुतस्य च ॥५२॥
 
-> yadā te moha-kalilaṁ
-> buddhir vyatitariṣyati
-> tadā gantāsi nirvedaṁ
+> yadā te moha-kalilaṁ\
+> buddhir vyatitariṣyati\
+> tadā gantāsi nirvedaṁ\
 > śrotavyasya śrutasya ca
 
 *yadā*—cuando; *te*—tu; *moha*—ilusorio; *kalilam*—denso bosque; *budddhiḥ*—servicio trascendental con inteligencia; *vyatitariṣyati*—supera; *tadā*—en ese momento; *gantāsi*—irás; *nirvedam*—indiferencia; *śrotavyasya*—todo lo que habrá de oírse; *śrutasya*—todo lo que se ha oído; *ca*—también.

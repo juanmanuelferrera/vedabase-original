@@ -1,9 +1,9 @@
 ### CC Madhya 9.128
 
-> ব্রজলোকের ভাবে পাইয়ে তাঁহার চরণ ৷
+> ব্রজলোকের ভাবে পাইয়ে তাঁহার চরণ ৷\
 > তাঁরে ঈশ্বর করি’ নাহি জানে ব্রজজন ৷৷ ১২৮ ৷৷ ॥১২৮॥
 
-> vraja-lokera bhāve pāiye tāṅhāra caraṇa
+> vraja-lokera bhāve pāiye tāṅhāra caraṇa\
 > tāṅre īśvara kari' nāhi jāne vraja-jana
 
 *vraja-lokera*—de los habitantes de Goloka Vṛndāvana; *bhāve*—en el éxtasis; *pāiye*—se obtiene; *tāṅhāra*—del Señor Kṛṣṇa; *caraṇa*—pies de loto; *tāṅre*—a Él; *īśvara*—la Persona Suprema; *kari'*—aceptando; *nāhi*—no; *jāne*—saben; *vraja-jana*—los habitantes de Vrajabhūmi.

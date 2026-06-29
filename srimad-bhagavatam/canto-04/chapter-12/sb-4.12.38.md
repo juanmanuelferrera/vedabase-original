@@ -1,11 +1,11 @@
 ### SB 4.12.38
 
-> इत्युत्तानपदः पुत्रो ध्रुवः कृष्णपरायणः ।
+> इत्युत्तानपदः पुत्रो ध्रुवः कृष्णपरायणः ।\
 > अभूत्त्रयाणां लोकानां चूडामणिरिवामलः ॥३८॥
 
-> ity uttānapadaḥ putro
-> dhruvaḥ kṛṣṇa-parāyaṇaḥ
-> abhūt trayāṇāṁ lokānāṁ
+> ity uttānapadaḥ putro\
+> dhruvaḥ kṛṣṇa-parāyaṇaḥ\
+> abhūt trayāṇāṁ lokānāṁ\
 > cūḍā-maṇir ivāmalaḥ
 
 *iti*—thus; *uttānapadaḥ*—of Mahārāja Uttānapāda; *putraḥ*—the son; *dhruvaḥ*—Dhruva Mahārāja; *kṛṣṇa-parāyaṇaḥ*—fully Kṛṣṇa conscious; *abhūt*—became; *trayāṇām*—of the three; *lokānām*—worlds; *cūḍā-maṇiḥ*—the summit jewel; *iva*—like; *amalaḥ*—purified.

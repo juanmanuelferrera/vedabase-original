@@ -1,11 +1,11 @@
 ### CC Madhya 11.28
 
-> যে মে ভক্তজনাঃ পার্থ ন মে ভক্তাশ্চ তে জনাঃ ৷
+> যে মে ভক্তজনাঃ পার্থ ন মে ভক্তাশ্চ তে জনাঃ ৷\
 > মদ্ভক্তানাঞ্চ যে ভক্তাস্তে মে ভক্ততমা মতাঃ ৷৷ ২৮ ৷৷ ॥২৮॥
 
-> ye me bhakta-janāḥ pārtha
-> na me bhaktāś ca te janāḥ
-> mad-bhaktānāṁ ca ye bhaktās
+> ye me bhakta-janāḥ pārtha\
+> na me bhaktāś ca te janāḥ\
+> mad-bhaktānāṁ ca ye bhaktās\
 > te me bhakta-tamā matāḥ
 
 *ye*—aquellos que; *me*—Mis; *bhakta-janāḥ*—devotos; *pārtha*—¡oh, Pārtha!; *na*—no; *me*—Mis; *bhaktāḥ*—devotos; *ca*—y; *te*—esas; *janāḥ*—personas; *mat-bhaktānām*—de Mis devotos; *ca*—ciertamente; *ye*—aquellos que; *bhaktāḥ*—devotos; *te*—tales personas; *me*—Mis; *bhakta-tamāḥ*—devotos más avanzados; *matāḥ*—esa es Mi opinión.

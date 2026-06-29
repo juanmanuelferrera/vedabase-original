@@ -1,13 +1,13 @@
 ### CC Madhya 18.65
 
-> যত্তে সুজাতচরণাম্বুরুহং স্তনেষু
-> ভীতাঃ শনৈঃ প্রিয় দধিমহি কর্কশেষু ।
-> তেনাটবীমটসি তদ্ব্যথতে ন কিংস্বিৎ
+> যত্তে সুজাতচরণাম্বুরুহং স্তনেষু\
+> ভীতাঃ শনৈঃ প্রিয় দধিমহি কর্কশেষু ।\
+> তেনাটবীমটসি তদ্ব্যথতে ন কিংস্বিৎ\
 > কূর্পাদিভির্ভ্রমতি ধীর্ভবদায়ুষাং নঃ ॥৬৫॥
 
-> yat te sujāta-caraṇāmburuhaṁ staneṣu
-> bhītāḥ śanaiḥ priya dadhīmahi karkaśeṣu
-> tenāṭavīm aṭasi tad vyathate na kiṁ svit
+> yat te sujāta-caraṇāmburuhaṁ staneṣu\
+> bhītāḥ śanaiḥ priya dadhīmahi karkaśeṣu\
+> tenāṭavīm aṭasi tad vyathate na kiṁ svit\
 > kūrpādibhir bhramati dhīr bhavad-āyuṣāṁ naḥ
 
 *yat*—los cuales; *te*—Tus; *sujāta*—muy delicados; *caraṇa-ambu-ruham*—pies de loto; *staneṣu*—sobre los pechos; *bhītāḥ*—con temor; *śanaiḥ*—con suavidad; *priya*—¡oh, amado!; *dadhīmahi*—colocamos; *karkaśeṣu*—ásperos; *tena*—con ellos; *aṭavīm*—el sendero; *aṭasi*—caminas; *tat*—ellos; *vyathate*—sufren; *na*—no; *kim svit*—nos preguntamos; *kūrpa-ādibhiḥ*—por piedrecillas y demás; *bhramati*—se agita; *dhīḥ*—la mente; *bhavat-āyuṣām*—de aquellas para quienes Tu Señoría es la vida misma; *naḥ*—de nosotras.

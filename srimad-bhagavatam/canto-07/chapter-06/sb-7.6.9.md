@@ -1,11 +1,11 @@
 ### SB 7.6.9
 
-> को गृहेषु पुमान्सक्तमात्मानमजितेन्द्रियः
+> को गृहेषु पुमान्सक्तमात्मानमजितेन्द्रियः\
 > स्नेहपाशैर्दृढैर्बद्धमुत्सहेत विमोचितुम ॥९॥
 
-> ko gṛheṣu pumān saktam
-> ātmānam ajitendriyaḥ
-> sneha-pāśair dṛḍhair baddham
+> ko gṛheṣu pumān saktam\
+> ātmānam ajitendriyaḥ\
+> sneha-pāśair dṛḍhair baddham\
 > utsaheta vimocitum
 
 *kaḥ*—what; *gṛheṣu*—to household life; *pumān*—man; *saktam*—very much attached; *ātmānam*—his own self, the soul; *ajita-indriyaḥ*—who has not conquered the senses; *sneha-pāśaiḥ*—by the ropes of affection; *dṛḍhaiḥ*—very strong; *baddham*—bound hand and foot; *utsaheta*—is able; *vimocitum*—to liberate from material bondage.

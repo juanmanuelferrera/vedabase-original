@@ -1,9 +1,9 @@
 ### CC Madhya 15.246
 
-> ভোজন দেখিতে চাহে, আসিতে না পারে  ।
+> ভোজন দেখিতে চাহে, আসিতে না পারে  ।\
 > লাঠি-হাতে ভট্টাচার্য আছেন দুয়ারে ॥২৪৬॥
 
-> bhojana dekhite cāhe, āsite nā pāre
+> bhojana dekhite cāhe, āsite nā pāre\
 > lāṭhī-hāte bhaṭṭācārya āchena duyāre
 
 *bhojana*—the eating; *dekhite cāhe*—he wanted to see; *āsite nā pāre*—could not come; *lāṭhī-hāte*—with a stick in his hand; *bhaṭṭācārya*—Sārvabhauma Bhaṭṭācārya; *āchena*—was; *duyāre*—on the threshold.

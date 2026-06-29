@@ -1,9 +1,9 @@
 ### CC Adi 8.6
 
-> এ-সব না মানে যেই পণ্ডিত সকল ।
+> এ-সব না মানে যেই পণ্ডিত সকল ।\
 > তা-সবার বিদ্যাপাঠ ভেক-কোলাহল ॥৬॥
 
-> e-saba nā māne yei paṇḍita sakala
+> e-saba nā māne yei paṇḍita sakala\
 > tā-sabāra vidyā-pāṭha bheka-kolāhala
 
 *e-saba*—todas estas; *nā*—no; *māne*—acepta; *yei*—cualquiera; *paṇḍita*—supuesto erudito; *sakala*—todos; *tā-sabāra*—de todos ellos; *vidyā-pāṭha*—el cultivo educativo; *bheka*—de ranas; *kolāhala*—sonido tumultuoso.

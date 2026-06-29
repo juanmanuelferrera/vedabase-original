@@ -1,13 +1,13 @@
 ### SB 2.7.26
 
-> भूमेः सुरेतरवरूथविमर्दितायाः
-> क्लेशव्ययाय कलया सितकृष्णकेशः ।
-> जातः करिष्यति जनानुपलक्ष्यमार्गः
+> भूमेः सुरेतरवरूथविमर्दितायाः\
+> क्लेशव्ययाय कलया सितकृष्णकेशः ।\
+> जातः करिष्यति जनानुपलक्ष्यमार्गः\
 > कर्माणि चात्ममहिमोपनिबन्धनानि ॥२६॥
 
-> bhūmeḥ suretara-varūtha-vimarditāyāḥ
-> kleśa-vyayāya kalayā sita-kṛṣṇa-keśaḥ
-> jātaḥ kariṣyati janānupalakṣya-mārgaḥ
+> bhūmeḥ suretara-varūtha-vimarditāyāḥ\
+> kleśa-vyayāya kalayā sita-kṛṣṇa-keśaḥ\
+> jātaḥ kariṣyati janānupalakṣya-mārgaḥ\
 > karmāṇi cātma-mahimopanibandhanāni
 
 *bhūmeḥ*—del mundo entero; *sura-itara*—personas que no sean divinas; *varūtha*—soldados; *vimarditāyāḥ*—afligido por el peso; *kleśa*—sufrimientos; *vyayāya*—con objeto de disminuir; *kalayā*—juntamente con Su expansión plenaria; *sita-kṛṣṇa*—no solo bellos, sino también negros; *keśaḥ*—con los cabellos así; *jātaḥ*—habiendo aparecido; *kariṣyati*—actuaría; *jana*—la generalidad de la gente; *anupalakṣya*—raramente visto; *mārgaḥ*—sendero; *karmāṇi*—actividades; *ca*—también; *ātma-mahimā*—glorias del propio Señor; *upanibandhanāni*—en relación con.

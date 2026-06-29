@@ -1,9 +1,9 @@
 ### CC Antya 12.141
 
-> চন্দনাদি লঞা প্রভু বসিলা সেই স্থানে ।
+> চন্দনাদি লঞা প্রভু বসিলা সেই স্থানে ।\
 > ‘আমার আগে আজি তুমি করহ ভোজনে’ ॥১৪১॥
 
-> candanādi lañā prabhu vasilā sei sthāne
+> candanādi lañā prabhu vasilā sei sthāne\
 > 'āmāra āge āji tumi karaha bhojane'
 
 *candana-ādi lañā*—aceptando la pasta de sándalo y demás artículos; *prabhu*—Śrī Caitanya Mahāprabhu; *vasilā*—Se sentó; *sei sthāne*—en ese lugar; *āmāra āge*—delante de Mí; *āji*—ahora; *tumi*—tú; *karaha*—haz; *bhojane*—come.

@@ -1,13 +1,13 @@
 ### SB 1.9.1
 
-> सूत उवाच
-> इति भीतः प्रजाद्रोहात्सर्वधर्मविवित्सया ।
+> सूत उवाच\
+> इति भीतः प्रजाद्रोहात्सर्वधर्मविवित्सया ।\
 > ततो विनशनं प्रागाद्यत्र देवव्रतोऽपतत् ॥१॥
 
-> sūta uvāca
-> iti bhītaḥ prajā-drohāt
-> sarva-dharma-vivitsayā
-> tato vinaśanaṁ prāgād
+> sūta uvāca\
+> iti bhītaḥ prajā-drohāt\
+> sarva-dharma-vivitsayā\
+> tato vinaśanaṁ prāgād\
 > yatra deva-vrato 'patat
 
 *sūtaḥ uvāca*—Śrī Sūta Gosvāmī said; *iti*—thus; *bhītaḥ*—being afraid of; *prajā-drohāt*—because of killing the subjects; *sarva*—all; *dharma*—acts of religion; *vivitsayā*—for understanding; *tataḥ*—thereafter; *vinaśanam*—the place where the fight was held; *prāgāt*—he went; *yatra*—where; *deva-vrataḥ*—Bhīṣmadeva; *apatat*—lay down for passing away.

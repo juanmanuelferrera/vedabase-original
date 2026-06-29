@@ -1,11 +1,11 @@
 ### SB 1.1.9
 
-> तत्र तत्राञ्जसायुष्मन्भवता यद्विनिश्चितम् ।
+> तत्र तत्राञ्जसायुष्मन्भवता यद्विनिश्चितम् ।\
 > पुंसामेकान्ततः श्रेयस्तन्नः शंसितुमर्हसि ॥९॥
 
-> tatra tatrāñjasāyuṣman
-> bhavatā yad viniścitam
-> puṁsām ekāntataḥ śreyas
+> tatra tatrāñjasāyuṣman\
+> bhavatā yad viniścitam\
+> puṁsām ekāntataḥ śreyas\
 > tan naḥ śaṁsitum arhasi
 
 *tatra*—thereof; *tatra*—thereof; *añjasā*—made easy; *āyuṣman*—blessed with a long duration of life; *bhavatā*—by your good self; *yat*—whatever; *viniścitam*—ascertained; *puṁsām*—for the people in general; *ekāntataḥ*—absolutely; *śreyaḥ*—ultimate good; *tat*—that; *naḥ*—to us; *śaṁsitum*—to explain; *arhasi*—deserve.

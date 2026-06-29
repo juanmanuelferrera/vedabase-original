@@ -1,9 +1,9 @@
 ### CC Madhya 13.49
 
-> বৈষ্ণবের মেঘ-ঘটায় হইল বাদল ।
+> বৈষ্ণবের মেঘ-ঘটায় হইল বাদল ।\
 > কীর্তনানন্দে সব বর্ষে নেত্র-জল ॥৪৯॥
 
-> vaiṣṇavera megha-ghaṭāya ha-ila bādala
+> vaiṣṇavera megha-ghaṭāya ha-ila bādala\
 > kīrtanānande saba varṣe netra-jala
 
 *vaiṣṇavera*—of the devotees; *megha-ghaṭāya*—by the assembly of clouds; *ha-ila*—there was; *bādala*—rainfall; *kīrtana-ānande*—in the blissful situation of chanting; *saba*—all of them; *varṣe*—rain; *netra-jala*—tears from the eyes.

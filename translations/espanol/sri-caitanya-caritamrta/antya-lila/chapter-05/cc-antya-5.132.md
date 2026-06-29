@@ -1,9 +1,9 @@
 ### CC Antya 5.132
 
-> চৈতন্যের ভক্তগণের নিত্য কর ‘সঙ্গ’ ।
+> চৈতন্যের ভক্তগণের নিত্য কর ‘সঙ্গ’ ।\
 > তবেত জানিবা সিদ্ধান্তসমুদ্র-তরঙ্গ ॥১৩২॥
 
-> caitanyera bhakta-gaṇera nitya kara 'saṅga'
+> caitanyera bhakta-gaṇera nitya kara 'saṅga'\
 > tabeta jānibā siddhānta-samudra-taraṅga
 
 *caitanyera*—del Señor Śrī Caitanya Mahāprabhu; *bhakta-gaṇera*—de los devotos; *nitya*—regularmente; *kara*—haz; *saṅga*—asociación; *tabeta*—solo entonces; *jānibā*—comprenderás; *siddhānta-samudra-taraṅga*—las olas del océano del servicio devocional.

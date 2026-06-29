@@ -1,11 +1,11 @@
 ### SB 1.15.46
 
-> ते साधुकृतसर्वार्था ज्ञात्वात्यन्तिकमात्मनः ।
+> ते साधुकृतसर्वार्था ज्ञात्वात्यन्तिकमात्मनः ।\
 > मनसा धारयामासुर्वैकुण्ठचरणाम्बुजम् ॥४६॥
 
-> te sādhu-kṛta-sarvārthā
-> jñātvātyantikam ātmanaḥ
-> manasā dhārayām āsur
+> te sādhu-kṛta-sarvārthā\
+> jñātvātyantikam ātmanaḥ\
+> manasā dhārayām āsur\
 > vaikuṇṭha-caraṇāmbujam
 
 *te*—all of them; *sādhu-kṛta*—having performed everything worthy of a saint; *sarva-arthāḥ*—that which includes everything worthy; *jñātvā*—knowing it well; *ātyantikam*—the ultimate; *ātmanaḥ*—of the living being; *manasā*—within the mind; *dhārayām āsuḥ*—sustained; *vaikuṇṭha*—the Lord of the spiritual sky; *caraṇa-ambujam*—the lotus feet.

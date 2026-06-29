@@ -1,13 +1,13 @@
 ### SB 3.21.33
 
-> मैत्रेय उवाच
-> एवं तमनुभाष्याथ भगवान्प्रत्यगक्षजः ।
+> मैत्रेय उवाच\
+> एवं तमनुभाष्याथ भगवान्प्रत्यगक्षजः ।\
 > जगाम बिन्दुसरसः सरस्वत्या परिश्रितात् ॥३३॥
 
-> maitreya uvāca
-> evaṁ tam anubhāṣyātha
-> bhagavān pratyag-akṣajaḥ
-> jagāma bindusarasaḥ
+> maitreya uvāca\
+> evaṁ tam anubhāṣyātha\
+> bhagavān pratyag-akṣajaḥ\
+> jagāma bindusarasaḥ\
 > sarasvatyā pariśritāt
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya dijo; *evam*—así; *tam*—a él; *anubhāṣya*—habiendo hablado; *atha*—entonces; *bhagavān*—el Señor; *pratyak*—directamente; *akṣa*—con sentidos; *jaḥ*—que es percibido; *jagāma*—Se fue; *bindu-sarasaḥ*—del lago Bindu-sarovara; *sarasvatyā*—por el río Sarasvatī; *pariśritāt*—rodeado.

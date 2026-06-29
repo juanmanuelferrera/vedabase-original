@@ -1,11 +1,11 @@
 ### SB 2.9.17
 
-> अध्यर्हणीयासनमास्थितं परं वृतं चतुःषोडशपञ्चशक्तिभिः ।
+> अध्यर्हणीयासनमास्थितं परं वृतं चतुःषोडशपञ्चशक्तिभिः ।\
 > युक्तं भगैः स्वैरितरत्र चाध्रुवैः स्व एव धामन्रममाणमीश्वरम् ॥१७॥
 
-> adhyarhaṇīyāsanam āsthitaṁ paraṁ
-> vṛtaṁ catuḥ-ṣoḍaśa-pañca-śaktibhiḥ
-> yuktaṁ bhagaiḥ svair itaratra cādhruvaiḥ
+> adhyarhaṇīyāsanam āsthitaṁ paraṁ\
+> vṛtaṁ catuḥ-ṣoḍaśa-pañca-śaktibhiḥ\
+> yuktaṁ bhagaiḥ svair itaratra cādhruvaiḥ\
 > sva eva dhāman ramamāṇam īśvaram
 
 *adhyarhaṇīya*—muy venerable; *āsanam*—trono; *āsthitam*—sentado en él; *param*—el Supremo; *vṛtam*—rodeado por; *catuḥ*—cuatro, a saber *prakṛti*, *puruṣa*, *mahat* y el ego; *ṣoḍaśa*—las dieciséis; *pañca*—las cinco; *śaktibhiḥ*—por las energías; *yuktam*—apoderado con; *bhagaiḥ*—Sus opulencias; *svaiḥ*—personales; *itaratra*—otros poderes menores; *ca*—también; *adhruvaiḥ*—temporales; *sve*—propia; *eva*—ciertamente; *dhāman*—morada; *ramamāṇam*—disfrutando; *īśvaram*—el Señor Supremo.

@@ -1,11 +1,11 @@
 ### SB 1.6.22
 
-> सकृद्यद्दर्शितं रूपमेतत्कामाय तेऽनघ ।
+> सकृद्यद्दर्शितं रूपमेतत्कामाय तेऽनघ ।\
 > मत्कामः शनकैः साधु सर्वान्मुञ्चति हृच्छयान् ॥२२॥
 
-> sakṛd yad darśitaṁ rūpam
-> etat kāmāya te 'nagha
-> mat-kāmaḥ śanakaiḥ sādhu
+> sakṛd yad darśitaṁ rūpam\
+> etat kāmāya te 'nagha\
+> mat-kāmaḥ śanakaiḥ sādhu\
 > sarvān muñcati hṛc-chayān
 
 *sakṛt*—solo una vez; *yat*—esa; *darśitam*—mostrada; *rūpam*—forma; *etat*—esto es; *kāmāya*—para los anhelos; *te*—tu; *anagha*—¡oh, virtuoso!; *mat*—Mío; *kāmaḥ*—deseo; *śanakaiḥ*—mediante el aumento; *sādhuḥ*—devoto; *sarvān*—todos; *muñcati*—se deshace; *hṛt-śayān*—deseos materiales.

@@ -1,11 +1,11 @@
 ### SB 3.1.25
 
-> स वासुदेवानुचरं प्रशान्तं बृहस्पतेः प्राक्तनयं प्रतीतम् ।
+> स वासुदेवानुचरं प्रशान्तं बृहस्पतेः प्राक्तनयं प्रतीतम् ।\
 > आलिङ्ग्य गाढं प्रणयेन भद्रं स्वानामपृच्छद्भगवत्प्रजानाम् ॥२५॥
 
-> sa vāsudevānucaraṁ praśāntaṁ
-> bṛhaspateḥ prāk tanayaṁ pratītam
-> āliṅgya gāḍhaṁ praṇayena bhadraṁ
+> sa vāsudevānucaraṁ praśāntaṁ\
+> bṛhaspateḥ prāk tanayaṁ pratītam\
+> āliṅgya gāḍhaṁ praṇayena bhadraṁ\
 > svānām apṛcchad bhagavat-prajānām
 
 *saḥ*—he, Vidura; *vāsudeva*—Lord Kṛṣṇa; *anucaram*—constant companion; *praśāntam*—very sober and gentle; *bṛhaspateḥ*—of Bṛhaspati, the learned spiritual master of the demigods; *prāk*—formerly; *tanayam*—son or disciple; *pratītam*—acknowledged; *āliṅgya*—embracing; *gāḍham*—very feelingly; *praṇayena*—in love; *bhadram*—auspicious; *svānām*—his own; *apṛcchat*—asked; *bhagavat*—of the Personality of Godhead; *prajānām*—family.

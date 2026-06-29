@@ -1,11 +1,11 @@
 ### SB 7.11.28
 
-> सन्तुष्टालोलुपा दक्षा धर्मज्ञआ प्रियसत्यवाक
+> सन्तुष्टालोलुपा दक्षा धर्मज्ञआ प्रियसत्यवाक\
 > अप्रमत्ता शुचिः स्निग्धा पतिं त्वपतितं भजेत ॥२८॥
 
-> santuṣṭālolupā dakṣā
-> dharma-jñā priya-satya-vāk
-> apramattā śuciḥ snigdhā
+> santuṣṭālolupā dakṣā\
+> dharma-jñā priya-satya-vāk\
+> apramattā śuciḥ snigdhā\
 > patiṁ tv apatitaṁ bhajet
 
 *santuṣṭā*—siempre satisfecha; *alolupā*—sin ser codiciosa; *dakṣā*—muy experta en servir; *dharma-jñā*—perfectamente versada en los principios religiosos; *priya*—agradable; *satya*—veraz; *vāk*—en el hablar; *apramattā*—atenta en el servicio de su esposo; *śuciḥ*—siempre limpia y pura; *snigdhā*—afectuosa; *patim*—al esposo; *tu*—pero; *apatitam*—que no se haya degradado; *bhajet*—debe adorar.

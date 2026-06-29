@@ -1,9 +1,9 @@
 ### CC Madhya 8.49
 
-> নিমন্ত্রণ মানিল তাঁরে বৈষ্ণব জানিয়া ৷
+> নিমন্ত্রণ মানিল তাঁরে বৈষ্ণব জানিয়া ৷\
 > রামানন্দে কহে প্রভু ঈষৎ হাসিয়া ৷৷ ৪৯ ৷৷ ॥৪৯॥
 
-> nimantraṇa mānila tāṅre vaiṣṇava jāniyā
+> nimantraṇa mānila tāṅre vaiṣṇava jāniyā\
 > rāmānande kahe prabhu īṣat hāsiyā
 
 *nimantraṇa*—la invitación; *mānila*—aceptó; *tāṅre*—a él (el *brāhmaṇa*); *vaiṣṇava*—un devoto; *jāniyā*—comprendiendo; *rāmānande*—a Rāmānanda; *kahe*—dijo; *prabhu*—Śrī Caitanya Mahāprabhu; *īṣat*—un poco; *hāsiyā*—sonriendo.

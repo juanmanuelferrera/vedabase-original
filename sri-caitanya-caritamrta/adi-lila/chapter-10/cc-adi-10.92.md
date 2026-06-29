@@ -1,9 +1,9 @@
 ### CC Adi 10.92
 
-> প্রভু সমর্পিল তাঁরে স্বরূপের হাতে ।
+> প্রভু সমর্পিল তাঁরে স্বরূপের হাতে ।\
 > প্রভুর গুপ্তসেবা কৈল স্বরূপের সাথে ॥৯২॥
 
-> prabhu samarpila tāṅre svarūpera hāte
+> prabhu samarpila tāṅre svarūpera hāte\
 > prabhura gupta-sevā kaila svarūpera sāthe
 
 *prabhu*—Lord Caitanya Mahāprabhu; *samarpila*—handed over; *tāṅre*—him; *svarūpera*—Svarūpa Dāmodara; *hāte*—to the hand; *prabhura*—of the Lord; *gupta-sevā*—confidential service; *kaila*—did; *svarūpera*—Svarūpa Dāmodara; *sāthe*—with.

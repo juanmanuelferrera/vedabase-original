@@ -1,11 +1,11 @@
 ### SB 2.10.8
 
-> योऽध्यात्मिकोऽयं पुरुषः सोऽसावेवाधिदैविकः ।
+> योऽध्यात्मिकोऽयं पुरुषः सोऽसावेवाधिदैविकः ।\
 > यस्तत्रोभयविच्छेदः पुरुषो ह्याधिभौतिकः ॥८॥
 
-> yo 'dhyātmiko 'yaṁ puruṣaḥ
-> so 'sāv evādhidaivikaḥ
-> yas tatrobhaya-vicchedaḥ
+> yo 'dhyātmiko 'yaṁ puruṣaḥ\
+> so 'sāv evādhidaivikaḥ\
+> yas tatrobhaya-vicchedaḥ\
 > puruṣo hy ādhibhautikaḥ
 
 *yaḥ*—aquel que; *adhyātmikaḥ*—posee los órganos de los sentidos; *ayam*—esta; *puruṣaḥ*—personalidad; *saḥ*—él; *asau*—ese; *eva*—también; *adhidaivikaḥ*—deidad controladora; *yaḥ*—aquella que; *tatra*—ahí; *ubhaya*—de ambos; *vicchedaḥ*—separación; *puruṣaḥ*—persona; *hi*—para; *ādhibhautikaḥ*—el cuerpo visible o la entidad viviente que mora en el cuerpo.

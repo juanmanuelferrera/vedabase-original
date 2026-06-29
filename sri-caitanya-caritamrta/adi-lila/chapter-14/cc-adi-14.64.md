@@ -1,9 +1,9 @@
 ### CC Adi 14.64
 
-> সাহজিক প্রীতি দুঁহার করিল উদয় ।
+> সাহজিক প্রীতি দুঁহার করিল উদয় ।\
 > বাল্যভাবাচ্ছন্ন তভু হইল নিশ্চয় ॥৬৪॥
 
-> sāhajika prīti duṅhāra karila udaya
+> sāhajika prīti duṅhāra karila udaya\
 > bālya-bhāvācchanna tabhu ha-ila niścaya
 
 *sāhajika*—natural; *prīti*—affection; *duṅhāra*—both of them; *karila*—made; *udaya*—appearance; *bālya*—childhood; *bhāva-ācchanna*—covered by emotion; *tabhu*—still; *ha-ila*—it so became; *niścaya*—fixed up.

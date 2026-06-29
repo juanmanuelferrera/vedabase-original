@@ -1,13 +1,13 @@
 ### SB 6.11.1
 
-> श्रीशुक उवाच
-> त एवं शंसतो धर्मं वचः पत्युरचेतसः
+> श्रीशुक उवाच\
+> त एवं शंसतो धर्मं वचः पत्युरचेतसः\
 > नैवागृह्णन्त सम्भ्रान्ताः पलायनपरा नृप ॥१॥
 
-> śrī-śuka uvāca
-> ta evaṁ śaṁsato dharmaṁ
-> vacaḥ patyur acetasaḥ
-> naivāgṛhṇanta sambhrāntāḥ
+> śrī-śuka uvāca\
+> ta evaṁ śaṁsato dharmaṁ\
+> vacaḥ patyur acetasaḥ\
+> naivāgṛhṇanta sambhrāntāḥ\
 > palāyana-parā nṛpa
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *te*—ellos; *evam*—así; *śaṁsataḥ*—alabar; *dharmam*—los principios de la religión; *vacaḥ*—las palabras; *patyuḥ*—de su señor; *acetasaḥ*—con la mente muy alterada; *na*—no; *eva*—en verdad; *agṛhṇanta*—aceptaron; *sambhrāntāḥ*—aterrados; *palāyana-parāḥ*—resueltos a huir *nṛpa*—¡oh, rey!.

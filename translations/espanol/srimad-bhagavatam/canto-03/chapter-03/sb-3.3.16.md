@@ -1,11 +1,11 @@
 ### SB 3.3.16
 
-> एवं सञ्चिन्त्य भगवान्स्वराज्ये स्थाप्य धर्मजम् ।
+> एवं सञ्चिन्त्य भगवान्स्वराज्ये स्थाप्य धर्मजम् ।\
 > नन्दयामास सुहृदः साधूनां वर्त्म दर्शयन् ॥१६॥
 
-> evaṁ sañcintya bhagavān
-> sva-rājye sthāpya dharmajam
-> nandayām āsa suhṛdaḥ
+> evaṁ sañcintya bhagavān\
+> sva-rājye sthāpya dharmajam\
+> nandayām āsa suhṛdaḥ\
 > sādhūnāṁ vartma darśayan
 
 *evam*—de esa manera; *sañcintya*—pensando para Sí; *bhagavān*—la Personalidad de Dios; *sva-rājye*—en su propio reino; *sthāpya*—instalando; *dharmajam*—a Mahārāja Yudhiṣṭhira; *nandayām āsa*—contento; *suhṛdaḥ*—los amigos; *sādhūnām*—de los santos; *vartma*—el sendero; *darśayan*—por indicar.

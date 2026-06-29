@@ -1,9 +1,9 @@
 ### CC Madhya 8.248
 
-> ‘দুঃখ-মধ্যে কোন দুঃখ হয় গুরুতর?’
+> ‘দুঃখ-মধ্যে কোন দুঃখ হয় গুরুতর?’\
 > ‘কৃষ্ণভক্ত-বিরহ বিনা দুঃখ নাহি দেখি পর ।।’ ॥২৪৮॥
 
-> 'duḥkha-madhye kona duḥkha haya gurutara?'
+> 'duḥkha-madhye kona duḥkha haya gurutara?'\
 > 'kṛṣṇa-bhakta-viraha vinā duḥkha nāhi dekhi para'
 
 *duḥkha-madhye*—among the miserable conditions of life; *kona*—what; *duḥkha*—misery; *haya*—is; *gurutara*—more painful; *kṛṣṇa-bhakta-viraha*—separation from the devotee of Lord Kṛṣṇa; *vinā*—besides; *duḥkha*—unhappiness; *nāhi*—there is not; *dekhi*—I see; *para*—other.

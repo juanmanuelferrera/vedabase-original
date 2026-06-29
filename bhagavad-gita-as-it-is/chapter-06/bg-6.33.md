@@ -1,13 +1,13 @@
 ### Bg 6.33
 
-> अर्जुन उवाच ।
-> योऽयं योगस्त्वया प्रोक्तः साम्येन मधुसूदन ।
+> अर्जुन उवाच ।\
+> योऽयं योगस्त्वया प्रोक्तः साम्येन मधुसूदन ।\
 > एतस्याहं न पश्यामि चञ्चलत्वात्स्थितिं स्थिराम् ॥३३॥
 
-> arjuna uvāca
-> yo 'yaṁ yogas tvayā proktaḥ
-> sāmyena madhusūdana
-> etasyāhaṁ na paśyāmi
+> arjuna uvāca\
+> yo 'yaṁ yogas tvayā proktaḥ\
+> sāmyena madhusūdana\
+> etasyāhaṁ na paśyāmi\
 > cañcalatvāt sthitiṁ sthirām
 
 *arjunaḥ uvāca*—Arjuna said; *yaḥ*—the system; *ayam*—this; *yogaḥ*—mysticism; *tvayā*—by You; *proktaḥ*—described; *sāmyena*—generally; *madhusūdana*—O killer of the demon Madhu; *etasya*—of this; *aham*—I; *na*—do not; *paśyāmi*—see; *cañcalatvāt*—due to being restless; *sthitim*—situation; *sthirām*—stable.

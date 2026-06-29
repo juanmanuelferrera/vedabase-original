@@ -1,11 +1,11 @@
 ### SB 7.12.5
 
-> सायं प्रातश्चरेद्भैक्ष्यं गुरवे तन्निवेदयेत
+> सायं प्रातश्चरेद्भैक्ष्यं गुरवे तन्निवेदयेत\
 > भुञ्जीत यद्यनुज्ञआतो नो चेदुपवसेत्क्वचित ॥५॥
 
-> sāyaṁ prātaś cared bhaikṣyaṁ
-> gurave tan nivedayet
-> bhuñjīta yady anujñāto
+> sāyaṁ prātaś cared bhaikṣyaṁ\
+> gurave tan nivedayet\
+> bhuñjīta yady anujñāto\
 > no ced upavaset kvacit
 
 *sāyam*—por la tarde; *prātaḥ*—por la mañana; *caret*—debe salir; *bhaikṣyam*—a pedir limosna; *gurave*—al maestro espiritual; *tat*—todo lo que reúna; *nivedayet*—debe ofrecer; *bhuñjīta*—debe comer; *yadi*—si; *anujñātaḥ*—ordenado (por el maestro espiritual); *no*—de lo contrario; *cet*—si; *upavaset*—debe observar ayuno; *kvacit*—a veces.

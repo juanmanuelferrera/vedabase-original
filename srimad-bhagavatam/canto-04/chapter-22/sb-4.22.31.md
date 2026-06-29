@@ -1,11 +1,11 @@
 ### SB 4.22.31
 
-> भ्रश्यत्यनुस्मृतिश्चित्तं ज्ञानभ्रंशः स्मृतिक्षये ।
+> भ्रश्यत्यनुस्मृतिश्चित्तं ज्ञानभ्रंशः स्मृतिक्षये ।\
 > तद्रोधं कवयः प्राहुरात्मापह्नवमात्मनः ॥३१॥
 
-> bhraśyaty anusmṛtiś cittaṁ
-> jñāna-bhraṁśaḥ smṛti-kṣaye
-> tad-rodhaṁ kavayaḥ prāhur
+> bhraśyaty anusmṛtiś cittaṁ\
+> jñāna-bhraṁśaḥ smṛti-kṣaye\
+> tad-rodhaṁ kavayaḥ prāhur\
 > ātmāpahnavam ātmanaḥ
 
 *bhraśyati*—becomes destroyed; *anusmṛtiḥ*—constantly thinking; *cittam*—consciousness; *jñāna-bhraṁśaḥ*—bereft of real knowledge; *smṛti-kṣaye*—by destruction of remembrance; *tat-rodham*—choking that process; *kavayaḥ*—great learned scholars; *prāhuḥ*—have opined; *ātma*—of the soul; *apahnavam*—destruction; *ātmanaḥ*—of the soul.

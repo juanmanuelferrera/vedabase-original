@@ -1,11 +1,11 @@
 ### SB 4.28.51
 
-> तत्र पूर्वतरः कश्चित्सखा ब्राह्मण आत्मवान् ।
+> तत्र पूर्वतरः कश्चित्सखा ब्राह्मण आत्मवान् ।\
 > सान्त्वयन्वल्गुना साम्ना तामाह रुदतीं प्रभो ॥५१॥
 
-> tatra pūrvataraḥ kaścit
-> sakhā brāhmaṇa ātmavān
-> sāntvayan valgunā sāmnā
+> tatra pūrvataraḥ kaścit\
+> sakhā brāhmaṇa ātmavān\
+> sāntvayan valgunā sāmnā\
 > tām āha rudatīṁ prabho
 
 *tatra*—in that place; *pūrvataraḥ*—previous; *kaścit*—someone; *sakhā*—friend; *brāhmaṇaḥ*—a *brāhmaṇa*; *ātmavān*—very learned scholar; *sāntvayan*—pacifying; *valgunā*—by very nice; *sāmnā*—mitigating words; *tām*—unto her; *āha*—he said; *rudatīm*—while she was crying; *prabho*—my dear King.

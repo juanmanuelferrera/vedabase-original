@@ -1,11 +1,11 @@
 ### SB 3.25.41
 
-> नान्यत्र मद्भगवतः प्रधानपुरुषेश्वरात् ।
+> नान्यत्र मद्भगवतः प्रधानपुरुषेश्वरात् ।\
 > आत्मनः सर्वभूतानां भयं तीव्रं निवर्तते ॥४१॥
 
-> nānyatra mad bhagavataḥ
-> pradhāna-puruṣeśvarāt
-> ātmanaḥ sarva-bhūtānāṁ
+> nānyatra mad bhagavataḥ\
+> pradhāna-puruṣeśvarāt\
+> ātmanaḥ sarva-bhūtānāṁ\
 > bhayaṁ tīvraṁ nivartate
 
 *na*—no; *anyatra*—de otro modo; *mat*—que yo; *bhagavataḥ*—la Suprema Personalidad de Dios; *pradhāna-puruṣa-īśvarāt*—el Señor tanto de*prakṛti* como de *puruṣa*; *ātmanaḥ*—el alma; *sarva-bhūtānām*—de todos los seres vivos; *bhayam*—temor; *tīvram*—terrible; *nivartate*—es eliminado.

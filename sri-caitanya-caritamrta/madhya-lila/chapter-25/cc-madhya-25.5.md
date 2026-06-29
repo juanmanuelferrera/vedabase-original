@@ -1,9 +1,9 @@
 ### CC Madhya 25.5
 
-> সন্ন্যাসীর গণ প্রভুরে যদি উপেক্ষিল ।
+> সন্ন্যাসীর গণ প্রভুরে যদি উপেক্ষিল ।\
 > ভক্ত-দুঃখ খণ্ডাইতে তারে কৃপা কৈল ॥৫॥
 
-> sannyāsīra gaṇa prabhure yadi upekṣila
+> sannyāsīra gaṇa prabhure yadi upekṣila\
 > bhakta-duḥkha khaṇḍāite tāre kṛpā kaila
 
 *sannyāsīra gaṇa*—all the *sannyāsīs*; *prabhure*—Lord Śrī Caitanya Mahāprabhu; *yadi*—when; *upekṣila*—criticized; *bhakta-duḥkha*—the unhappiness of the devotees; *khaṇḍāite*—to drive away; *tāre*—to them; *kṛpā kaila*—showed His mercy.

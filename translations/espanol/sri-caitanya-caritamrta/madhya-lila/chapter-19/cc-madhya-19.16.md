@@ -1,9 +1,9 @@
 ### CC Madhya 19.16
 
-> লোভী কায়স্থগণ রাজকার্য করে ।
+> লোভী কায়স্থগণ রাজকার্য করে ।\
 > আপনে স্বগৃহে করে শাস্ত্রের বিচারে ॥১৬॥
 
-> lobhī kāyastha-gaṇa rāja-kārya kare
+> lobhī kāyastha-gaṇa rāja-kārya kare\
 > āpane svagṛhe kare śāstrera vicāre
 
 *lobhī*—codiciosos; *kāyastha-gaṇa*—personas dedicadas al trabajo secretarial y administrativo; *rāja-kārya kare*—ejecutaban el servicio al gobierno; *āpane*—personalmente; *sva-gṛhe*—en casa; *kare*—hacía; *śāstrera vicāre*—discusión de las escrituras reveladas.

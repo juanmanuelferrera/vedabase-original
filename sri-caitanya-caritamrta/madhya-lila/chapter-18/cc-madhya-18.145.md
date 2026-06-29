@@ -1,9 +1,9 @@
 ### CC Madhya 18.145
 
-> মাঘ-মাস লাগিল, এবে যদি যাইয়ে ।
+> মাঘ-মাস লাগিল, এবে যদি যাইয়ে ।\
 > মকরে প্রয়াগ-স্নান কত দিন পাইয়ে ॥১৪৫॥
 
-> māgha-māsa lāgila, ebe yadi yāiye
+> māgha-māsa lāgila, ebe yadi yāiye\
 > makare prayāga-snāna kata dina pāiye
 
 *māgha-māsa lāgila*—the month of Māgha has begun; *ebe*—now; *yadi*—if; *yāiye*—we go; *makare*—during the Makara-saṅkrānti; *prayāga-snāna*—bathing at Prayāga; *kata dina*—for a few days; *pāiye*—we shall get.

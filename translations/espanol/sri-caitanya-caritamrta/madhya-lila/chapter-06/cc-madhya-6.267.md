@@ -1,9 +1,9 @@
 ### CC Madhya 6.267
 
-> ‘সালোক্যাদি’ চারি যদি হয় সেবা-দ্বার ।
+> ‘সালোক্যাদি’ চারি যদি হয় সেবা-দ্বার ।\
 > তবু কদাচিৎ ভক্ত করে অঙ্গীকার ॥২৬৭॥
 
-> 'sālokyādi' cāri yadi haya sevā-dvāra
+> 'sālokyādi' cāri yadi haya sevā-dvāra\
 > tabu kadācit bhakta kare aṅgīkāra
 
 *sālokya-ādi*—comenzando con sālokya; *cāri*—cuatro clases de liberación; *yadi*—si; *haya*—son; *sevā-dvāra*—un medio de prestar servicio al Señor; *tabu*—aun así; *kadācit*—ocasionalmente; *bhakta*—un devoto puro; *kare*—hace; *aṅgīkāra*—aceptación.

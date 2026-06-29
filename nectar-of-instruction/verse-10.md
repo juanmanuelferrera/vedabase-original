@@ -1,13 +1,13 @@
 ### 10
 
-> कर्मिभ्यः परितो हरेः प्रियतया व्यक्तिं यायुर्ज्ञानिनस्
-> तेभ्यो ज्ञानविमुक्तभक्तिपरमाः प्रेमैकनिष्ठास्ततः ।
-> तेभ्यास्ताः पशुपालपङ्कजदृशस्ताभ्योऽपि सा राधिका
+> कर्मिभ्यः परितो हरेः प्रियतया व्यक्तिं यायुर्ज्ञानिनस्\
+> तेभ्यो ज्ञानविमुक्तभक्तिपरमाः प्रेमैकनिष्ठास्ततः ।\
+> तेभ्यास्ताः पशुपालपङ्कजदृशस्ताभ्योऽपि सा राधिका\
 > प्रेष्ठा तद्वदियं तदीयसरसी तां नाश्रयेत कः कृती ॥१०॥
 
-> karmibhyaḥ parito hareḥ priyatayā vyaktiṁ yayur jñāninas
-> tebhyo jñāna-vimukta-bhakti-paramāḥ premaika-niṣṭhās tataḥ
-> tebhyas tāḥ paśu-pāla-paṅkaja-dṛśas tābhyo 'pi sā rādhikā
+> karmibhyaḥ parito hareḥ priyatayā vyaktiṁ yayur jñāninas\
+> tebhyo jñāna-vimukta-bhakti-paramāḥ premaika-niṣṭhās tataḥ\
+> tebhyas tāḥ paśu-pāla-paṅkaja-dṛśas tābhyo 'pi sā rādhikā\
 > preṣṭhā tadvad iyaṁ tadīya-sarasī tāṁ nāśrayet kaḥ kṛtī
 
 *karmibhyaḥ*—than all fruitive workers; *paritaḥ*—in all respects; *hareḥ*—by the Supreme Personality of Godhead; *priyatayā*—because of being favored; *vyaktim yayuḥ*—it is said in the *śāstra*; *jñāninaḥ*—those advanced in knowledge; *tebhyaḥ*—superior to them; *jñāna-vimukta*—liberated by knowledge; *bhakti-paramāḥ*—those engaged in devotional service; *prema-eka-niṣṭhāḥ*—those who have attained pure love of God; *tataḥ*—superior to them; *tebhyaḥ*—better than them; *tāḥ*—they; *paśu-pāla-paṅkaja-dṛśaḥ*—the *gopīs* who are always dependent on Kṛṣṇa, the cowherd boy; *tābhyaḥ*—above all of them; *api*—certainly; *sā*—She; *rādhikā*—Śrīmatī Rādhikā; *preṣṭhā*—very dear; *tadvat*—similarly; *iyam*—this; *tadīya-sarasī*—Her lake, Śrī Rādhā-kuṇḍa; *tām*—Rādhā-kuṇḍa; *na*—not; *āśrayet*—would take shelter of; *kaḥ*—who; *kṛtī*—most fortunate.

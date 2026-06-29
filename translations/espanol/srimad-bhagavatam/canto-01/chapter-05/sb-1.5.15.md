@@ -1,11 +1,11 @@
 ### SB 1.5.15
 
-> जुगुप्सितं धर्मकृतेऽनुशासतः स्वभावरक्तस्य महान्व्यतिक्रमः ।
+> जुगुप्सितं धर्मकृतेऽनुशासतः स्वभावरक्तस्य महान्व्यतिक्रमः ।\
 > यद्वाक्यतो धर्म इतीतरः स्थितो न मन्यते तस्य निवारणं जनः ॥१५॥
 
-> jugupsitaṁ dharma-kṛte 'nuśāsataḥ
-> svabhāva-raktasya mahān vyatikramaḥ
-> yad-vākyato dharma itītaraḥ sthito
+> jugupsitaṁ dharma-kṛte 'nuśāsataḥ\
+> svabhāva-raktasya mahān vyatikramaḥ\
+> yad-vākyato dharma itītaraḥ sthito\
 > na manyate tasya nivāraṇaṁ janaḥ
 
 *jugupsitam*—en verdad condenado; *dharma-kṛte*—en relación con la religión; *anuśāsataḥ*—instrucción; *svabhāva-raktasya*—inclinada naturalmente; *mahān*—grande; *vyatikramaḥ*—irrazonable; *yat-vākyataḥ*—bajo cuya instrucción; *dharmaḥ*—religión; *iti*—es así; *itaraḥ*—la gente en general; *sthitaḥ*—fija; *na*—no; *manyate*—piensa; *tasya*—de eso; *nivāraṇam*—prohibición; *janaḥ*—ellos.

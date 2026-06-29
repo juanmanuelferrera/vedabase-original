@@ -1,11 +1,11 @@
 ### SB 4.22.4
 
-> गौरवाद्यन्त्रितः सभ्यः प्रश्रयानतकन्धरः ।
+> गौरवाद्यन्त्रितः सभ्यः प्रश्रयानतकन्धरः ।\
 > विधिवत्पूजयां चक्रे गृहीताध्यर्हणासनान् ॥४॥
 
-> gauravād yantritaḥ sabhyaḥ
-> praśrayānata-kandharaḥ
-> vidhivat pūjayāṁ cakre
+> gauravād yantritaḥ sabhyaḥ\
+> praśrayānata-kandharaḥ\
+> vidhivat pūjayāṁ cakre\
 > gṛhītādhyarhaṇāsanān
 
 *gauravāt*—glories; *yantritaḥ*—completely; *sabhyaḥ*—most civilized; *praśraya*—by humbleness; *ānata-kandharaḥ*—bowing down his shoulder; *vidhi-vat*—according to the instructions of the *śāstra*; *pūjayām*—by worshiping; *cakre*—performed; *gṛhīta*—accepting; *adhi*—including; *arhaṇa*—paraphernalia for reception; *āsanān*—sitting places.

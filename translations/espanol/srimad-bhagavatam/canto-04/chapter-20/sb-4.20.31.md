@@ -1,11 +1,11 @@
 ### SB 4.20.31
 
-> त्वन्माययाद्धा जन ईश खण्डितो यदन्यदाशास्त ऋतात्मनोऽबुधः ।
+> त्वन्माययाद्धा जन ईश खण्डितो यदन्यदाशास्त ऋतात्मनोऽबुधः ।\
 > यथा चरेद्बालहितं पिता स्वयं तथा त्वमेवार्हसि नः समीहितुम् ॥३१॥
 
-> tvan-māyayāddhā jana īśa khaṇḍito
-> yad anyad āśāsta ṛtātmano 'budhaḥ
-> yathā cared bāla-hitaṁ pitā svayaṁ
+> tvan-māyayāddhā jana īśa khaṇḍito\
+> yad anyad āśāsta ṛtātmano 'budhaḥ\
+> yathā cared bāla-hitaṁ pitā svayaṁ\
 > tathā tvam evārhasi naḥ samīhitum
 
 *tvat*—Tuya; *māyayā*—por la energía ilusoria; *addhā*—ciertamente; *janaḥ*—la generalidad de la gente; *īśa*—¡oh, mi Señor!; *khaṇḍitaḥ*—separado; *yat*—debido a; *anyat*—otro; *āśāste*—desean; *ṛta*—verdadero; *ātmanaḥ*—del ser; *abudhaḥ*—sin la comprensión correcta; *yathā*—como; *caret*—se ocuparía en; *bāla-hitam*—el bienestar de su hijo; *pitā*—el padre; *svayam*—personalmente; *tathā*—de manera similar; *tvam*—Tu Señoría; *eva*—ciertamente; *arhasi naḥ samīhitum*—por favor, actúa en beneficio mío.

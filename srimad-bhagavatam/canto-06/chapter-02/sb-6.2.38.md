@@ -1,11 +1,11 @@
 ### SB 6.2.38
 
-> ममाहमिति देहादौ हित्वामिथ्यार्थधीर्मतिम
+> ममाहमिति देहादौ हित्वामिथ्यार्थधीर्मतिम\
 > धास्ये मनो भगवति शुद्धं तत्कीर्तनादिभिः ॥३८॥
 
-> mamāham iti dehādau
-> hitvāmithyārtha-dhīr matim
-> dhāsye mano bhagavati
+> mamāham iti dehādau\
+> hitvāmithyārtha-dhīr matim\
+> dhāsye mano bhagavati\
 > śuddhaṁ tat-kīrtanādibhiḥ
 
 *mama*—my; *aham*—I; *iti*—thus; *deha-ādau*—in the body and things related to the body; *hitvā*—giving up; *amithyā*—not false; *artha*—on values; *dhīḥ*—with my consciousness; *matim*—the attitude; *dhāsye*—I shall engage; *manaḥ*—my mind; *bhagavati*—on the Supreme Personality of Godhead; *śuddham*—pure; *tat*—His name; *kīrtana-ādibhiḥ*—by chanting, hearing and so on.

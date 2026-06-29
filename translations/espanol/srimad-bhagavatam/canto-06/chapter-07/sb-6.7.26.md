@@ -1,13 +1,13 @@
 ### SB 6.7.26
 
-> श्रीशुक उवाच
-> त एवमुदिता राजन्ब्रह्मणा विगतज्वराः
+> श्रीशुक उवाच\
+> त एवमुदिता राजन्ब्रह्मणा विगतज्वराः\
 > ऋषिं त्वाष्ट्रमुपव्रज्य परिष्वज्येदमब्रुवन ॥२६॥
 
-> śrī-śuka uvāca
-> ta evam uditā rājan
-> brahmaṇā vigata-jvarāḥ
-> ṛṣiṁ tvāṣṭram upavrajya
+> śrī-śuka uvāca\
+> ta evam uditā rājan\
+> brahmaṇā vigata-jvarāḥ\
+> ṛṣiṁ tvāṣṭram upavrajya\
 > pariṣvajyedam abruvan
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī dijo; *te*—todos los semidioses; *evam*—así; *uditāḥ*—aconsejados; *rājan*—¡oh, rey Parīkṣit!; *brahmaṇā*—por el Señor Brahmā; *vigata-jvarāḥ*—liberados de la aflicción que les habían causado los demonios; *ṛṣim*—al gran sabio; *tvāṣṭram*—al hijo de Tvaṣṭā; *upavrajya*—yendo; *pariṣvajya*—abrazando; *idam*—esto; *abruvan*—hablaron.

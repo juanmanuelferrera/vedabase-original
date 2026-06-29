@@ -1,13 +1,13 @@
 ### CC Antya 1.159
 
-> বৃন্দাবনং দিব্যলতা-পরীতং
-> লতাশ্চ পুষ্পস্ফুরিতাগ্রভাজঃ ।
-> পুষ্পাণি চ স্ফীতমধুব্রতানি
+> বৃন্দাবনং দিব্যলতা-পরীতং\
+> লতাশ্চ পুষ্পস্ফুরিতাগ্রভাজঃ ।\
+> পুষ্পাণি চ স্ফীতমধুব্রতানি\
 > মধুব্রতাশ্চ শ্রুতিহারিগীতাঃ ॥১৫৯॥
 
-> vṛndāvanaṁ divya-latā-parītaṁ
-> latāś ca puṣpa-sphuritāgra-bhājaḥ
-> puṣpāṇi ca sphīta-madhu-vratāni
+> vṛndāvanaṁ divya-latā-parītaṁ\
+> latāś ca puṣpa-sphuritāgra-bhājaḥ\
+> puṣpāṇi ca sphīta-madhu-vratāni\
 > madhu-vratāś ca śruti-hāri-gītāḥ
 
 *vṛndāvanam*—el bosque de Vṛndāvana; *divya-latā-parītam*—rodeado de enredaderas trascendentales; *latāḥ ca*—y las enredaderas; *puṣpa*—por flores; *sphurita*—distinguidas; *agra-bhājaḥ*—que poseen puntas; *puṣpāṇi*—las flores; *ca*—y; *sphīta-madhu-vratāni*—con muchos abejorros enloquecidos; *madhu-vratāḥ*—los abejorros; *ca*—y; *śruti-hāri-gītāḥ*—cuyos cantos superan los himnos Védicos y agradan al oído.

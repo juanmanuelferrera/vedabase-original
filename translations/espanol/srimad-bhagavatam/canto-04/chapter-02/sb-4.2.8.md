@@ -1,11 +1,11 @@
 ### SB 4.2.8
 
-> प्राङ्निषण्णं मृडं दृष्ट्वा नामृष्यत्तदनादृतः ।
+> प्राङ्निषण्णं मृडं दृष्ट्वा नामृष्यत्तदनादृतः ।\
 > उवाच वामं चक्षुर्भ्यामभिवीक्ष्य दहन्निव ॥८॥
 
-> prāṅ-niṣaṇṇaṁ mṛḍaṁ dṛṣṭvā
-> nāmṛṣyat tad-anādṛtaḥ
-> uvāca vāmaṁ cakṣurbhyām
+> prāṅ-niṣaṇṇaṁ mṛḍaṁ dṛṣṭvā\
+> nāmṛṣyat tad-anādṛtaḥ\
+> uvāca vāmaṁ cakṣurbhyām\
 > abhivīkṣya dahann iva
 
 *prāk*—antes de; *niṣaṇṇam*—estar sentado; *mṛḍam*—al Señor Śiva; *dṛṣṭvā*—viendo; *na amṛṣyat*—no toleró; *tat*—por él (Śiva); *anādṛtaḥ*—no ser respetado; *uvāca*—dijo; *vāmam*—deshonesto; *cakṣurbhyām*—con los ojos; *abhivīkṣya*—mirando a; *dahan*—ardiendo; *iva*—como si.

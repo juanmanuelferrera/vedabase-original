@@ -1,9 +1,9 @@
 ### CC Adi 2.25
 
-> ভক্তিযোগে ভক্ত পায় যাঁহার দর্শন ।
+> ভক্তিযোগে ভক্ত পায় যাঁহার দর্শন ।\
 > সূর্য যেন সবিগ্রহ দেখে দেবগণ ॥২৫॥
 
-> bhakti-yoge bhakta pāya yāṅhāra darśana
+> bhakti-yoge bhakta pāya yāṅhāra darśana\
 > sūrya yena savigraha dekhe deva-gaṇa
 
 *bhakti-yoge*—by devotional service; *bhakta*—the devotee; *pāya*—obtains; *yāṅhāra*—whose; *darśana*—sight; *sūrya*—the sun-god; *yena*—like; *sa-vigraha*—with form; *dekhe*—they see; *deva-gaṇa*—the denizens of heaven.

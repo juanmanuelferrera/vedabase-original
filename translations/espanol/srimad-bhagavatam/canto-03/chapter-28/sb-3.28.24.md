@@ -1,13 +1,13 @@
 ### SB 3.28.24
 
-> ऊरू सुपर्णभुजयोरधि शोभमानाव्
-> ओजोनिधी अतसिकाकुसुमावभासौ ।
-> व्यालम्बिपीतवरवाससि वर्तमान
+> ऊरू सुपर्णभुजयोरधि शोभमानाव्\
+> ओजोनिधी अतसिकाकुसुमावभासौ ।\
+> व्यालम्बिपीतवरवाससि वर्तमान\
 > काञ्चीकलापपरिरम्भि नितम्बबिम्बम् ॥२४॥
 
-> ūrū suparṇa-bhujayor adhi śobhamānāv
-> ojo-nidhī atasikā-kusumāvabhāsau
-> vyālambi-pīta-vara-vāsasi vartamāna-
+> ūrū suparṇa-bhujayor adhi śobhamānāv\
+> ojo-nidhī atasikā-kusumāvabhāsau\
+> vyālambi-pīta-vara-vāsasi vartamāna-\
 > kāñcī-kalāpa-parirambhi nitamba-bimbam
 
 *ūrū*—los muslos; *suparṇa*—de Garuḍa; *bhujayoḥ*—los hombros; *adhi*—sobre; *śobhamānau*—hermosos; *ojaḥ-nidhī*—el depósito de toda energía; *atasikā-kusuma*—de la flor de la linaza; *avabhāsau*—como el brillo; *vyālambi*—descendiendo; *pīta*—amarilla; *vara*—exquisita; *vāsasi*—en la prenda; *vartamāna*—siendo; *kāñcī-kalāpa*—con un cinturón; *parirambhi*—ceñidas; *nitamba-bimbam*—Sus redondeadas caderas.

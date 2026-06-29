@@ -1,11 +1,11 @@
 ### SB 1.13.59
 
-> विदुरस्तु तदाश्चर्यं निशाम्य कुरुनन्दन ।
+> विदुरस्तु तदाश्चर्यं निशाम्य कुरुनन्दन ।\
 > हर्षशोकयुतस्तस्माद्गन्ता तीर्थनिषेवकः ॥५९॥
 
-> viduras tu tad āścaryaṁ
-> niśāmya kuru-nandana
-> harṣa-śoka-yutas tasmād
+> viduras tu tad āścaryaṁ\
+> niśāmya kuru-nandana\
+> harṣa-śoka-yutas tasmād\
 > gantā tīrtha-niṣevakaḥ
 
 *viduraḥ*—también Vidura; *tu*—pero; *tat*—ese incidente; *āścaryam*—maravilloso; *niśāmya*—viendo; *kuru-nandana*—¡oh, hijo de la dinastía Kuru!; *harṣa*—deleite; *śoka*—pesar; *yutaḥ*—afectado por; *tasmāt*—de ese lugar; *gantā*—se irá; *tīrtha*—lugar de peregrinaje; *niṣevakaḥ*—para animarse.

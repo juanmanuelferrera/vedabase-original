@@ -1,9 +1,9 @@
 ### CC Antya 5.118
 
-> পূর্ণানন্দ-চিত্স্বরূপ জগন্নাথ-রায় ।
+> পূর্ণানন্দ-চিত্স্বরূপ জগন্নাথ-রায় ।\
 > তাঁরে কৈলি জড়-নশ্বর-প্রাকৃত-কায়!! ॥১১৮॥
 
-> pūrṇānanda-cit-svarūpa jagannātha-rāya
+> pūrṇānanda-cit-svarūpa jagannātha-rāya\
 > tāṅre kaili jaḍa-naśvara-prākṛta-kāya!!
 
 *pūrṇa-ānanda*—bienaventuranza trascendental completa; *cit-svarūpa*—la identidad espiritual; *jagannātha-rāya*—el Señor Jagannātha; *tāṅre*—a Él; *kaili*—has hecho; *jaḍa*—inerte; *naśvara*—perecedero; *prākṛta*—material; *kāya*—que posee un cuerpo.

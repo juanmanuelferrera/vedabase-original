@@ -1,11 +1,11 @@
 ### SB 6.5.38
 
-> एवं त्वं निरनुक्रोशो बालानां मतिभिद्धरेः
+> एवं त्वं निरनुक्रोशो बालानां मतिभिद्धरेः\
 > पार्षदमध्ये चरसि यशोहा निरपत्रपः ॥३८॥
 
-> evaṁ tvaṁ niranukrośo
-> bālānāṁ mati-bhid dhareḥ
-> pārṣada-madhye carasi
+> evaṁ tvaṁ niranukrośo\
+> bālānāṁ mati-bhid dhareḥ\
+> pārṣada-madhye carasi\
 > yaśo-hā nirapatrapaḥ
 
 *evam*—así; *tvam*—tú (Nārada); *niranukrośaḥ*—sin compasión; *bālānām*—de muchachos inocentes e inexpertos; *mati-bhit*—contaminar la conciencia; *hareḥ*—de la Suprema Personalidad de Dios; *pārṣada-madhye*—entre los acompañantes personales; *carasi*—viajas; *yaśaḥ-hā*—difamando a la Suprema Personalidad de Dios; *nirapatrapaḥ*—(aunque no sabes lo que estás haciendo, realizas actividades pecaminosas) sin vergüenza.

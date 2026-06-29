@@ -1,9 +1,9 @@
 ### CC Madhya 6.73
 
-> গোপীনাথ কহে, — ইঁহার নাহি বাহ্যাপেক্ষা ।
+> গোপীনাথ কহে, — ইঁহার নাহি বাহ্যাপেক্ষা ।\
 > অতএব বড় সম্প্রদায়ের নাহিক অপেক্ষা ॥৭৩॥
 
-> gopīnātha kahe,—iṅhāra nāhi bāhyāpekṣā
+> gopīnātha kahe,—iṅhāra nāhi bāhyāpekṣā\
 > ataeva baḍa sampradāyera nāhika apekṣā
 
 *gopīnātha kahe*—Gopīnātha Ācārya replied; *iṅhāra*—of the Lord; *nāhi*—there is not; *bāhya-apekṣā*—dependence on any external formality; *ataeva*—therefore; *baḍa*—big; *sampradāyera*—of a community; *nāhika*—there is not; *apekṣā*—necessity.

@@ -1,9 +1,9 @@
 ### CC Antya 6.173
 
-> গ্রামে-গ্রামের পথ ছাড়ি’ যায় বনে বনে ।
+> গ্রামে-গ্রামের পথ ছাড়ি’ যায় বনে বনে ।\
 > কায়মনোবাক্যে চিন্তে চৈতন্য-চরণে ॥১৭৩॥
 
-> grāme-grāmera patha chāḍi' yāya vane vane
+> grāme-grāmera patha chāḍi' yāya vane vane\
 > kāya-mano-vākye cinte caitanya-caraṇe
 
 *grāme-grāmera*—de aldea en aldea; *patha*—el camino principal; *chāḍi'*—abandonando; *yāya*—avanza; *vane vane*—por las selvas; *kāya-manaḥ-vākye*—con cuerpo, mente y palabras; *cinte*—piensa; *caitanya caraṇe*—en los pies de loto de Śrī Caitanya Mahāprabhu.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.181
 
-> সার্বভৌম কহে, — আমি তার্কিক কুবুদ্ধি ।
+> সার্বভৌম কহে, — আমি তার্কিক কুবুদ্ধি ।\
 > তোমার প্রসাদে মোর এ সম্পত্-সিদ্ধি ॥১৮১॥
 
-> sārvabhauma kahe,-āmi tarkika kubuddhi
+> sārvabhauma kahe,-āmi tarkika kubuddhi\
 > tomāra prasāde mora e sampat-siddhi
 
 *sārvabhauma kahe*—Sārvabhauma Bhaṭṭācārya replied; *āmi*—I; *tārkika*—a mundane logician; *ku-buddhi*—less intelligent; *tomāra prasāde*—by your mercy; *mora*—my; *e*—this; *sampat*—opulence; *siddhi*—perfection.

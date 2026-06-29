@@ -1,13 +1,13 @@
 ### SB 2.9.25
 
-> ब्रह्मोवाच
-> भगवन्सर्वभूतानामध्यक्षोऽवस्थितो गुहाम् ।
+> ब्रह्मोवाच\
+> भगवन्सर्वभूतानामध्यक्षोऽवस्थितो गुहाम् ।\
 > वेद ह्यप्रतिरुद्धेन प्रज्ञानेन चिकीर्षितम् ॥२५॥
 
-> brahmovāca
-> bhagavan sarva-bhūtānām
-> adhyakṣo 'vasthito guhām
-> veda hy apratiruddhena
+> brahmovāca\
+> bhagavan sarva-bhūtānām\
+> adhyakṣo 'vasthito guhām\
+> veda hy apratiruddhena\
 > prajñānena cikīrṣitam
 
 *brahmā uvāca*—Lord Brahmā said; *bhagavan*—O my Lord; *sarva bhūtānām*—of all living entities; *adhyakṣaḥ*—director; *avasthitaḥ*—situated; *guhām*—within the heart; *veda*—know; *hi*—certainly; *apratiruddhena*—without hindrance; *prajñānena*—by superintelligence; *cikīrṣitam*—endeavors.

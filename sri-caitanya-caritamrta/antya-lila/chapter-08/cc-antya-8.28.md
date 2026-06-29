@@ -1,9 +1,9 @@
 ### CC Antya 8.28
 
-> ঈশ্বরপুরী গোসাঞি করে শ্রীপাদ-সেবন ।
+> ঈশ্বরপুরী গোসাঞি করে শ্রীপাদ-সেবন ।\
 > স্বহস্তে করেন মলমূত্রাদি মার্জন ॥২৮॥
 
-> īśvara-purī gosāñi kare śrī-pāda-sevana
+> īśvara-purī gosāñi kare śrī-pāda-sevana\
 > svahaste karena mala-mūtrādi mārjana
 
 *īśvara-purī*—Īśvara Purī; *gosāñi*—Gosvāmī; *kare*—performs; *śrī-pāda-sevana*—service to Mādhavendra Purī; *sva-haste*—with his own hand; *karena*—performs; *mala-mūtra-ādi*—stool, urine, and so on; *mārjana*—cleaning.

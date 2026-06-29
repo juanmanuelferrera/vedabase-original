@@ -1,9 +1,9 @@
 ### CC Antya 6.167
 
-> আচার্যের ঘর ইহার পূর্বদিশাতে ।
+> আচার্যের ঘর ইহার পূর্বদিশাতে ।\
 > কহিতে শুনিতে দুঁহে চলে সেই পথে ॥১৬৭॥
 
-> ācāryera ghara ihāra pūrva-diśāte
+> ācāryera ghara ihāra pūrva-diśāte\
 > kahite śunite duṅhe cale sei pathe
 
 *ācāryera ghara*—the house of Yadunandana Ācārya; *ihāra*—of this; *pūrva-diśāte*—to the east; *kahite*—talking; *śunite*—listening; *duṅhe*—both of them; *cale*—go; *sei pathe*—on that path.

@@ -1,9 +1,9 @@
 ### CC Madhya 11.205
 
-> নিত্যানন্দ লঞা ভিক্ষা করিতে বৈস তুমি ৷
+> নিত্যানন্দ লঞা ভিক্ষা করিতে বৈস তুমি ৷\
 > বৈষ্ণবের পরিবেশন করিতেছি আমি ৷৷ ২০৫ ৷৷ ॥২০৫॥
 
-> nityānanda lañā bhikṣā karite vaisa tumi
+> nityānanda lañā bhikṣā karite vaisa tumi\
 > vaiṣṇavera pariveśana karitechi āmi
 
 *nityānanda lañā*—tomando a Śrī Nityānanda Prabhu; *bhikṣā*—almuerzo; *karite*—para aceptar; *vaisa*—siéntate; *tumi*—Tú; *vaiṣṇavera*—a todos los devotos; *pariveśana*—distribución del prasādam; *karitechi*—estoy haciendo; *āmi*—yo.

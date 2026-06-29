@@ -1,9 +1,9 @@
 ### CC Antya 9.146
 
-> সবায় আলিঙ্গিয়া প্রভু বিদায় যবে দিলা ।
+> সবায় আলিঙ্গিয়া প্রভু বিদায় যবে দিলা ।\
 > হরিধ্বনি করি’ সব ভক্ত উঠি’ গেলা ॥১৪৬॥
 
-> sabāya āliṅgiyā prabhu vidāya yabe dilā
+> sabāya āliṅgiyā prabhu vidāya yabe dilā\
 > hari-dhvani kari' saba bhakta uṭhi' gelā
 
 *sabāya*—all of them; *āliṅgiyā*—embracing; *prabhu*—Śrī Caitanya Mahāprabhu; *vidāya*—farewell; *yabe dilā*—when He gave; *hari-dhvani kari'*—chanting the holy name of Hari; *saba bhakta*—all devotees; *uṭhi'*—getting up; *gelā*—left.

@@ -1,9 +1,9 @@
 ### CC Antya 3.39
 
-> তোমার আজ্ঞাতে আমি আছি নীলাচলে  ।
+> তোমার আজ্ঞাতে আমি আছি নীলাচলে  ।\
 > নিকটে লঞা যাও আমা তোমার প্রেমবলে’ ॥৩৯॥
 
-> tomāra ājñāte āmi āchi nīlācale
+> tomāra ājñāte āmi āchi nīlācale\
 > nikaṭe lañā yāo āmā tomāra prema-bale'
 
 *tomāra ājñāte*—on your order; *āmi*—I; *āchi*—reside; *nīlācale*—at Jagannātha Purī; *nikaṭe*—nearby; *lañā yāo*—you take away; *āmā*—Me; *tomāra*—your; *prema*—transcendental love; *bale*—on the strength of.

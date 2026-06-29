@@ -1,11 +1,11 @@
 ### SB 1.7.41
 
-> अथोपेत्य स्वशिबिरं गोविन्दप्रियसारथिः ।
+> अथोपेत्य स्वशिबिरं गोविन्दप्रियसारथिः ।\
 > न्यवेदयत्तं प्रियायै शोचन्त्या आत्मजान्हतान् ॥४१॥
 
-> athopetya sva-śibiraṁ
-> govinda-priya-sārathiḥ
-> nyavedayat taṁ priyāyai
+> athopetya sva-śibiraṁ\
+> govinda-priya-sārathiḥ\
+> nyavedayat taṁ priyāyai\
 > śocantyā ātma-jān hatān
 
 *atha*—después de esto; *upetya*—habiendo llegado; *sva*—propio; *śibiram*—campo; *govinda*—aquel que anima los sentidos (el Señor Śrī Kṛṣṇa); *priya*—querido; *sārathiḥ*—el auriga; *nyavedayat*—confió a; *tam*—él; *priyāyai*—al querido; *śocantyai*—lamentándose por; *ātma-jān*—sus propios hijos; *hatān*—asesinados.

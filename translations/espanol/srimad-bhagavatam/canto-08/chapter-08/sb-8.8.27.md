@@ -1,11 +1,11 @@
 ### SB 8.8.27
 
-> शङ्खतूर्यमृदङ्गानां वादित्राणां पृथुः स्वनः
+> शङ्खतूर्यमृदङ्गानां वादित्राणां पृथुः स्वनः\
 > देवानुगानां सस्त्रीणां नृत्यतां गायतामभूत ॥२७॥
 
-> brahma-rudrāṅgiro-mukhyāḥ
-> sarve viśva-sṛjo vibhum
-> īḍire 'vitathair mantrais
+> brahma-rudrāṅgiro-mukhyāḥ\
+> sarve viśva-sṛjo vibhum\
+> īḍire 'vitathair mantrais\
 > tal-liṅgaiḥ puṣpa-varṣiṇaḥ
 
 *brahma*—el Señor Brahmā; *rudra*—el Señor Śiva; *aṅgiraḥ*—el gran sabio Aṅgirā Muni; *mukhyāḥ*—encabezados por; *sarve*—todos ellos; *viśva-sṛjaḥ*—los directores de la administración universal; *vibhum*—a la muy grande personalidad; *īḍire*—adoraron; *avitathaiḥ*—verdadero; *mantraiḥ*—con cantos; *tat-liṅgaiḥ*—adorando a la Suprema Personalidad de Dios; *puṣpa-varṣiṇaḥ*—lanzando lluvias de flores.

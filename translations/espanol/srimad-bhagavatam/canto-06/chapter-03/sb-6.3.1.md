@@ -1,13 +1,13 @@
 ### SB 6.3.1
 
-> श्रीराजोवाच
-> निशम्य देवः स्वभटोपवर्णितं प्रत्याह किं तानपि धर्मराजः
+> श्रीराजोवाच\
+> निशम्य देवः स्वभटोपवर्णितं प्रत्याह किं तानपि धर्मराजः\
 > एवं हताज्ञओ विहतान्मुरारेर्नैदेशिकैर्यस्य वशे जनोऽयम ॥१॥
 
-> śrī-rājovāca
-> niśamya devaḥ sva-bhaṭopavarṇitaṁ
-> pratyāha kiṁ tān api dharmarājaḥ
-> evaṁ hatājño vihatān murārer
+> śrī-rājovāca\
+> niśamya devaḥ sva-bhaṭopavarṇitaṁ\
+> pratyāha kiṁ tān api dharmarājaḥ\
+> evaṁ hatājño vihatān murārer\
 > naideśikair yasya vaśe jano 'yam
 
 *śrī-rājā uvāca*—el rey dijo; *niśamya*—tras escuchar; *devaḥ*—el señor Yamarāja; *sva-bhaṭa*—de sus propios sirvientes; *upavarṇitam*—las declaraciones; *pratyāha*—contestó; *kim*—qué; *tān*—a ellos; *api*—también; *dharma-rājaḥ*—Yamarāja, el superintendente de la muerte y juez de las actividades religiosas e irreligiosas; *evam*—así; *hata-ājñaḥ*—cuya orden no había sido respetada; *vihatān*—que habían sido derrotados; *murāreḥ naideśikaiḥ*—por los mensajeros de Murāri, Kṛṣṇa; *yasya*—de quien; *vaśe*—bajo el dominio; *janaḥ ayam*—todos los habitantes del mundo.

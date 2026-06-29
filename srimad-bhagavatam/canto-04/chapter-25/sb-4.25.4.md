@@ -1,11 +1,11 @@
 ### SB 4.25.4
 
-> श्रेयस्त्वं कतमद्राजन्कर्मणात्मन ईहसे ।
+> श्रेयस्त्वं कतमद्राजन्कर्मणात्मन ईहसे ।\
 > दुःखहानिः सुखावाप्तिः श्रेयस्तन्नेह चेष्यते ॥४॥
 
-> śreyas tvaṁ katamad rājan
-> karmaṇātmana īhase
-> duḥkha-hāniḥ sukhāvāptiḥ
+> śreyas tvaṁ katamad rājan\
+> karmaṇātmana īhase\
+> duḥkha-hāniḥ sukhāvāptiḥ\
 > śreyas tan neha ceṣyate
 
 *śreyaḥ*—ultimate benediction; *tvam*—you; *katamat*—what is that; *rājan*—O King; *karmaṇā*—by fruitive activities; *ātmanaḥ*—of the soul; *īhase*—you desire; *duḥkha-hāniḥ*—disappearance of all distresses; *sukha-avāptiḥ*—attainment of all happiness; *śreyaḥ*—benediction; *tat*—that; *na*—never; *iha*—in this connection; *ca*—and; *iṣyate*—is available.

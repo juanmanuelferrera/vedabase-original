@@ -1,9 +1,9 @@
 ### CC Madhya 16.19
 
-> শিবানন্দ-সেন করে ঘাটি সমাধান ।
+> শিবানন্দ-সেন করে ঘাটি সমাধান ।\
 > সবারে পালন করি’ সুখে লঞা যান ॥১৯॥
 
-> śivānanda-sena kare ghāṭi samādhāna
+> śivānanda-sena kare ghāṭi samādhāna\
 > sabāre pālana kari' sukhe lañā yāna
 
 *śivānanda-sena*—Śivānanda Sena; *kare*—made; *ghāṭi samādhāna*—arrangements for expenditures to clear the tax collecting centers; *sabāre*—everyone; *pālana*—maintaining; *kari'*—doing; *sukhe*—in happiness; *lañā*—taking; *yāna*—goes.

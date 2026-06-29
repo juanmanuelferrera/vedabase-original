@@ -1,9 +1,9 @@
 ### CC Antya 15.30
 
-> রাসে রাধা লঞা কৃষ্ণ অন্তর্ধান কৈলা  ।
+> রাসে রাধা লঞা কৃষ্ণ অন্তর্ধান কৈলা  ।\
 > পাছে সখীগণ যৈছে চাহি’ বেড়াইলা ॥৩০॥
 
-> rāse rādhā lañā kṛṣṇa antardhāna kailā
+> rāse rādhā lañā kṛṣṇa antardhāna kailā\
 > pāche sakhī-gaṇa yaiche cāhi' beḍāilā
 
 *rāse*—in the *rāsa* dance; *rādhā*—Śrīmatī Rādhārāṇī; *lañā*—taking; *kṛṣṇa*—Lord Kṛṣṇa; *antardhāna kailā*—disappeared; *pāche*—afterward; *sakhī-gaṇa*—all the *gopīs*; *yaiche*—as; *cāhi'*—looking; *beḍāilā*—wandered.

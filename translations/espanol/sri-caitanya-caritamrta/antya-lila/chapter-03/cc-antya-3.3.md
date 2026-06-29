@@ -1,9 +1,9 @@
 ### CC Antya 3.3
 
-> পুরুষোত্তমে এক উড়িয়া-ব্রাহ্মণকুমার ।
+> পুরুষোত্তমে এক উড়িয়া-ব্রাহ্মণকুমার ।\
 > পিতৃশূন্য, মহাসুন্দর, মৃদুব্যবহার ॥৩॥
 
-> puruṣottame eka uḍiyā-brāhmaṇa-kumāra
+> puruṣottame eka uḍiyā-brāhmaṇa-kumāra\
 > pitṛ-śūnya, mahā-sundara, mṛdu-vyavahāra
 
 *puruṣottame*—en Jagannātha Purī; *eka*—un; *uḍiyā-brāhmaṇa-kumāra*—joven hijo de un *brāhmaṇa* de Orissa; *pitṛ-śūnya*—sin padre; *mahā-sundara*—que poseía facciones corporales muy hermosas; *mṛdu-vyavahāra*—de comportamiento muy apacible.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.74
 
-> যোগ্য পাত্র হয় গূঢ়রস-বিবেচনে ।
+> যোগ্য পাত্র হয় গূঢ়রস-বিবেচনে ।\
 > তুমিও কহিও তারে গূঢ়রসাখ্যানে ॥৭৪॥
 
-> yogya pātra haya gūḍha-rasa-vivecane
+> yogya pātra haya gūḍha-rasa-vivecane\
 > tumio kahio tāre gūḍha-rasākhyāne
 
 *yogya*—adecuado; *pātra*—recipiente; *haya*—es; *gūḍha*—confidenciales; *rasa*—los rasas; *vivecane*—en analizar; *tumio*—tú también; *kahio*—instrúyele; *tāre*—a él; *gūḍha*—confidenciales; *rasa*—los rasas; *ākhyāne*—en describir.

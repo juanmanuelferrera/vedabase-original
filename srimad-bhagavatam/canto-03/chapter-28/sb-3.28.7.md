@@ -1,11 +1,11 @@
 ### SB 3.28.7
 
-> एतैरन्यैश्च पथिभिर्मनो दुष्टमसत्पथम् ।
+> एतैरन्यैश्च पथिभिर्मनो दुष्टमसत्पथम् ।\
 > बुद्ध्या युञ्जीत शनकैर्जितप्राणो ह्यतन्द्रितः ॥७॥
 
-> etair anyaiś ca pathibhir
-> mano duṣṭam asat-patham
-> buddhyā yuñjīta śanakair
+> etair anyaiś ca pathibhir\
+> mano duṣṭam asat-patham\
+> buddhyā yuñjīta śanakair\
 > jita-prāṇo hy atandritaḥ
 
 *etaiḥ*—by these; *anyaiḥ*—by other; *ca*—and; *pathibhiḥ*—processes; *manaḥ*—the mind; *duṣṭam*—contaminated; *asat-patham*—on the path of material enjoyment; *buddhyā*—by the intelligence; *yuñjīta*—one must control; *śanakaiḥ*—gradually; *jita-prāṇaḥ*—the life air being fixed; *hi*—indeed; *atandritaḥ*—alert.

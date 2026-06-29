@@ -1,11 +1,11 @@
 ### SB 3.5.12
 
-> मुनिर्विवक्षुर्भगवद्गुणानां सखापि ते भारतमाह कृष्णः ।
+> मुनिर्विवक्षुर्भगवद्गुणानां सखापि ते भारतमाह कृष्णः ।\
 > यस्मिन्नृणां ग्राम्यसुखानुवादैर्मतिर्गृहीता नु हरेः कथायाम् ॥१२॥
 
-> munir vivakṣur bhagavad-guṇānāṁ
-> sakhāpi te bhāratam āha kṛṣṇaḥ
-> yasmin nṛṇāṁ grāmya-sukhānuvādair
+> munir vivakṣur bhagavad-guṇānāṁ\
+> sakhāpi te bhāratam āha kṛṣṇaḥ\
+> yasmin nṛṇāṁ grāmya-sukhānuvādair\
 > matir gṛhītā nu hareḥ kathāyām
 
 *muniḥ*—el sabio; *vivakṣuḥ*—describió; *bhagavat*—de la Personalidad de Dios; *guṇānām*—cualidades trascendentales; *sakhā*—amigo; *api*—también; *te*—tu; *bhāratam*—el *Mahābhārata*; *āha*—ha descrito; *kṛṣṇaḥ*—Kṛṣṇa-dvaipāyana Vyāsa; *yasmin*—en el cual; *nṛṇām*—de la gente; *grāmya*—mundana; *sukha-anuvādaiḥ*—placer que se obtiene de los relatos mundanos; *matiḥ*—atención; *gṛhītā nu*—solo para atraer hacia; *hareḥ*—del Señor; *kathāyām*—discursos de (el *Bhagavad-gītā*).

@@ -1,11 +1,11 @@
 ### SB 4.7.49
 
-> भगवान्स्वेन भागेन सर्वात्मा सर्वभागभुक् ।
+> भगवान्स्वेन भागेन सर्वात्मा सर्वभागभुक् ।\
 > दक्षं बभाष आभाष्य प्रीयमाण इवानघ ॥४९॥
 
-> bhagavān svena bhāgena
-> sarvātmā sarva-bhāga-bhuk
-> dakṣaṁ babhāṣa ābhāṣya
+> bhagavān svena bhāgena\
+> sarvātmā sarva-bhāga-bhuk\
+> dakṣaṁ babhāṣa ābhāṣya\
 > prīyamāṇa ivānagha
 
 *bhagavān*—el Señor Viṣṇu; *svena*—con Su propia; *bhāgena*—con la parte; *sarva-ātmā*—la Superalma de todas las entidades vivientes; *sarva-bhāga-bhuk*—el disfrutador del resultado de todo sacrificio; *dakṣam*—a Dakṣa; *babhāṣe*—dijo; *ābhāṣya*—dirigiéndose; *prīyamāṇaḥ*—estando satisfecho; *iva*—como; *anagha*—¡oh, Vidura, tú que estás libre de pecado!.

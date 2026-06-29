@@ -1,9 +1,9 @@
 ### CC Antya 3.11
 
-> অন্যোপদেশে পণ্ডিত — কহে গোসাঞির ঠাঞি ।
+> অন্যোপদেশে পণ্ডিত — কহে গোসাঞির ঠাঞি ।\
 > ‘গোসাঞি’ ‘গোসাঞি’ এবে জানিমু ‘গোসাঞি’ ॥১১॥
 
-> anyopadeśe paṇḍita—kahe gosāñira ṭhāñi
+> anyopadeśe paṇḍita—kahe gosāñira ṭhāñi\
 > 'gosāñi"gosāñi' ebe jānimu 'gosāñi'
 
 *anya-upadeśe*—by instructing others; *paṇḍita*—learned teacher; *kahe*—says; *gosāñira ṭhāñi*—in front of Śrī Caitanya Mahāprabhu; *gosāñi gosāñi*—Lord Śrī Caitanya Mahāprabhu, the supreme teacher; *ebe*—now; *jānimu*—we shall know; *gosāñi*—what kind of teacher.

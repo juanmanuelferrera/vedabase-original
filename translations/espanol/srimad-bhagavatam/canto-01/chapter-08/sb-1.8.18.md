@@ -1,13 +1,13 @@
 ### SB 1.8.18
 
-> कुन्त्युवाच
-> नमस्ये पुरुषं त्वाद्यमीश्वरं प्रकृतेः परम् ।
+> कुन्त्युवाच\
+> नमस्ये पुरुषं त्वाद्यमीश्वरं प्रकृतेः परम् ।\
 > अलक्ष्यं सर्वभूतानामन्तर्बहिरवस्थितम् ॥१८॥
 
-> kunty uvāca
-> namasye puruṣaṁ tvādyam
-> īśvaraṁ prakṛteḥ param
-> alakṣyaṁ sarva-bhūtānām
+> kunty uvāca\
+> namasye puruṣaṁ tvādyam\
+> īśvaraṁ prakṛteḥ param\
+> alakṣyaṁ sarva-bhūtānām\
 > antar bahir avasthitam
 
 *kuntī uvāca*—Śrīmatī Kuntī dijo; *namasye*—permítaseme postrarme; *puruṣam*—la Suprema Persona; *tvā*—Tú; *ādyam*—el original; *īśvaram*—el controlador; *prakṛteḥ*—del cosmos material; *param*—más allá de; *alakṣyam*—el invisible; *sarva*—todos; *bhūtānām*—de seres vivientes; *antaḥ*—dentro; *bahiḥ*—fuera; *avasthitam*—existiendo.

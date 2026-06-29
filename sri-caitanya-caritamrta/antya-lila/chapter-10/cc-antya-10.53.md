@@ -1,9 +1,9 @@
 ### CC Antya 10.53
 
-> জগন্নাথ দেখি’ পুনঃ নিজ-ঘরে আইলা ।
+> জগন্নাথ দেখি’ পুনঃ নিজ-ঘরে আইলা ।\
 > প্রসাদ আনাঞা ভক্তগণে খাওয়াইলা ॥৫৩॥
 
-> jagannātha dekhi' punaḥ nija-ghare āilā
+> jagannātha dekhi' punaḥ nija-ghare āilā\
 > prasāda ānāñā bhakta-gaṇe khāoyāilā
 
 *jagannātha dekhi'*—after seeing Lord Jagannātha; *punaḥ*—again; *nija-ghare*—to His residence; *āilā*—returned; *prasāda*—*prasāda*; *ānāñā*—causing to be brought; *bhakta-gaṇe khāoyāilā*—fed the devotees.

@@ -1,9 +1,9 @@
 ### CC Antya 7.134
 
-> শ্রীধর-উপরে গর্বে যে কিছু লিখিবে ।
+> শ্রীধর-উপরে গর্বে যে কিছু লিখিবে ।\
 > ‘অর্থব্যস্ত’ লিখন সেই, লোকে না মানিবে ॥১৩৪॥
 
-> śrīdhara-upare garve ye kichu likhibe
+> śrīdhara-upare garve ye kichu likhibe\
 > 'artha-vyasta' likhana sei, loke nā mānibe
 
 *śrīdhara-upare*—above Śrīdhara Svāmī; *garve*—in false pride; *ye kichu likhibe*—whatever you write; *artha-vyasta*—the opposite meaning; *likhana sei*—such writing; *loke nā mānibe*—no one will care about it.

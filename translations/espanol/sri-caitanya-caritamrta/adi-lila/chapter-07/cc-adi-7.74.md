@@ -1,9 +1,9 @@
 ### CC Adi 7.74
 
-> নাম বিনু কলিকালে নাহি আর ধর্ম ।
+> নাম বিনু কলিকালে নাহি আর ধর্ম ।\
 > সর্বমন্ত্রসার নাম, এই শাস্ত্রমর্ম ॥৭৪॥
 
-> nāma vinu kali-kāle nāhi āra dharma
+> nāma vinu kali-kāle nāhi āra dharma\
 > sarva-mantra-sāra nāma, ei śāstra-marma
 
 *nāma*—el santo nombre; *vinu*—sin; *kali-kāle*—en esta era de Kali; *nāhi*—no hay; *āra*—ningún otro; *dharma*—principio religioso; *sarva*—de todos; *mantra*—himnos; *sāra*—esencia; *nāma*—el santo nombre; *ei*—este es; *śāstra*—de las escrituras reveladas; *marma*—el propósito.

@@ -1,11 +1,11 @@
 ### SB 5.10.22
 
-> स्थाल्यग्नितापात्पयसोऽभितापस्तत्तापतस्तण्डुलगर्भरन्धिः
+> स्थाल्यग्नितापात्पयसोऽभितापस्तत्तापतस्तण्डुलगर्भरन्धिः\
 > देहेन्द्रियास्वाशयसन्निकर्षात्तत्संसृतिः पुरुषस्यानुरोधात ॥२२॥
 
-> sthāly-agni-tāpāt payaso 'bhitāpas
-> tat-tāpatas taṇḍula-garbha-randhiḥ
-> dehendriyāsvāśaya-sannikarṣāt
+> sthāly-agni-tāpāt payaso 'bhitāpas\
+> tat-tāpatas taṇḍula-garbha-randhiḥ\
+> dehendriyāsvāśaya-sannikarṣāt\
 > tat-saṁsṛtiḥ puruṣasyānurodhāt
 
 *sthāli*—en una olla; *agni-tāpāt*—debido al calor del fuego; *payasaḥ*—la leche que está en la olla; *abhitāpaḥ*—se calienta; *tat-tāpataḥ*—debido al calentamiento de la leche; *taṇḍula-garbha-randhiḥ*—el interior del arroz que hay en la leche queda hervido; *deha-indriya-asvāśaya*—los sentidos del cuerpo; *sannikarṣāt*—por tener contacto con; *tat-saṁsṛtiḥ*—la experiencia de la fatiga y otras miserias; *puruṣasya*—del alma; *anurodhāt*—de condescender debido al gran apego por el cuerpo, los sentidos y la mente.

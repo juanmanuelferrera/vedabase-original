@@ -1,11 +1,11 @@
 ### SB 8.14.9
 
-> सर्गं प्रजेशरूपेण दस्यून्हन्यात्स्वराड्वपुः
+> सर्गं प्रजेशरूपेण दस्यून्हन्यात्स्वराड्वपुः\
 > कालरूपेण सर्वेषामभावाय पृथग्गुणः ॥९॥
 
-> sargaṁ prajeśa-rūpeṇa
-> dasyūn hanyāt svarāḍ-vapuḥ
-> kāla-rūpeṇa sarveṣām
+> sargaṁ prajeśa-rūpeṇa\
+> dasyūn hanyāt svarāḍ-vapuḥ\
+> kāla-rūpeṇa sarveṣām\
 > abhāvāya pṛthag guṇaḥ
 
 *sargam*—creation of progeny; *prajā-īśa-rūpeṇa*—in the form of the Prajāpati Marīci and others; *dasyūn*—thieves and rogues; *hanyāt*—kills; *sva-rāṭ-vapuḥ*—in the form of the king; *kāla-rūpeṇa*—in the form of time; *sarveṣām*—of everything; *abhāvāya*—for the annihilation; *pṛthak*—different; *guṇaḥ*—possessing qualities.

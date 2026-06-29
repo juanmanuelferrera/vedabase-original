@@ -1,9 +1,9 @@
 ### CC Madhya 12.172
 
-> না খাইলে জগদানন্দ করিবে উপবাস ।
+> না খাইলে জগদানন্দ করিবে উপবাস ।\
 > তাঁর আগে কিছু খা’ন — মনে ঐ ত্রাস ॥১৭২॥
 
-> nā khāile jagadānanda karibe upavāsa
+> nā khāile jagadānanda karibe upavāsa\
 > tāṅra āge kichu khā'na-mane ai trāsa
 
 *nā khāile*—if He did not eat; *jagadānanda*—Jagadānanda; *karibe*—will observe; *upavāsa*—fasting; *tāṅra āge*—before him; *kichu khā'na*—eats something; *mane*—within the mind; *ai*—that; *trāsa*—fear.

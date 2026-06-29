@@ -1,9 +1,9 @@
 ### CC Antya 4.195
 
-> সনাতনের দেহে কৃষ্ণ কণ্ডু উপজাঞা ।
+> সনাতনের দেহে কৃষ্ণ কণ্ডু উপজাঞা ।\
 > আমা পরীক্ষিতে ইহাঁ দিলা পাঠাঞা ॥১৯৫॥
 
-> sanātanera dehe kṛṣṇa kaṇḍu upajāñā
+> sanātanera dehe kṛṣṇa kaṇḍu upajāñā\
 > āmā parīkṣite ihāṅ dilā pāṭhāñā
 
 *sanātanera*—de Sanātana Gosvāmī; *dehe*—en el cuerpo; *kṛṣṇa*—el Señor Kṛṣṇa; *kaṇḍu*—llagas con picazón; *upajāñā*—manifestando; *āmā*—a Mí; *parīkṣite*—para poner a prueba; *ihāṅ*—aquí; *dilā pāṭhāñā*—lo envió.

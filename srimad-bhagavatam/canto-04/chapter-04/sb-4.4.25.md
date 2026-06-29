@@ -1,11 +1,11 @@
 ### SB 4.4.25
 
-> कृत्वा समानावनिलौ जितासना सोदानमुत्थाप्य च नाभिचक्रतः ।
+> कृत्वा समानावनिलौ जितासना सोदानमुत्थाप्य च नाभिचक्रतः ।\
 > शनैर्हृदि स्थाप्य धियोरसि स्थितं कण्ठाद्भ्रुवोर्मध्यमनिन्दितानयत् ॥२५॥
 
-> kṛtvā samānāv anilau jitāsanā
-> sodānam utthāpya ca nābhi-cakrataḥ
-> śanair hṛdi sthāpya dhiyorasi sthitaṁ
+> kṛtvā samānāv anilau jitāsanā\
+> sodānam utthāpya ca nābhi-cakrataḥ\
+> śanair hṛdi sthāpya dhiyorasi sthitaṁ\
 > kaṇṭhād bhruvor madhyam aninditānayat
 
 *kṛtvā*—after placing; *samānau*—in equilibrium; *anilau*—the *prāṇa* and *apāna* airs; *jita-āsanā*—having controlled the sitting posture; *sā*—Satī; *udānam*—the life air; *utthāpya*—raising; *ca*—and; *nābhi-cakrataḥ*—at the circle in the navel; *śanaiḥ*—gradually; *hṛdi*—in the heart; *sthāpya*—placing; *dhiyā*—with the intelligence; *urasi*—towards the pulmonary passage; *sthitam*—having been placed; *kaṇṭhāt*—through the throat; *bhruvoḥ*—of the eyebrows; *madhyam*—to the middle; *aninditā*—the blameless (Satī); *ānayat*—raised.

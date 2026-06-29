@@ -1,9 +1,9 @@
 ### CC Antya 3.213
 
-> ভক্ত-স্বভাব, — অজ্ঞ-দোষ ক্ষমা করে ।
+> ভক্ত-স্বভাব, — অজ্ঞ-দোষ ক্ষমা করে ।\
 > কৃষ্ণ-স্বভাব, — ভক্ত-নিন্দা সহিতে না পারে ॥২১৩॥
 
-> bhakta-svabhāva,—ajña-doṣa kṣamā kare
+> bhakta-svabhāva,—ajña-doṣa kṣamā kare\
 > kṛṣṇa-svabhāva,—bhakta-nindā sahite nā pāre
 
 *bhakta-svabhāva*—the characteristic of a pure devotee; *ajña-doṣa*—offense by an ignorant rascal; *kṣamā kare*—excuses; *kṛṣṇa-svabhāva*—the characteristic of Kṛṣṇa; *bhakta-nindā*—blaspheming the devotees; *sahite nā pāre*—cannot tolerate.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.229
 
-> পঞ্চ পাইক তাঁরে রাখে রাত্রি-দিনে ।
+> পঞ্চ পাইক তাঁরে রাখে রাত্রি-দিনে ।\
 > চারি সেবক, দুই ব্রাহ্মণ রহে তাঁর সনে ॥২২৯॥
 
-> pañca pāika tāṅre rākhe rātri-dine
+> pañca pāika tāṅre rākhe rātri-dine\
 > cāri sevaka, dui brāhmaṇa rahe tāṅra sane
 
 *pañca*—five; *pāika*—watchmen; *tāṅre*—him (Raghunātha dāsa); *rākhe*—keep; *rātri-dine*—day and night; *cāri sevaka*—four personal servants; *dui brāhmaṇa*—two *brāhmaṇas* to cook; *rahe*—remain; *tāṅra sane*—with him.

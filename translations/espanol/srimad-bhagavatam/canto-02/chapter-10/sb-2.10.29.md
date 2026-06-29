@@ -1,11 +1,11 @@
 ### SB 2.10.29
 
-> आदित्सोरन्नपानानामासन्कुक्ष्यन्त्रनाडयः ।
+> आदित्सोरन्नपानानामासन्कुक्ष्यन्त्रनाडयः ।\
 > नद्यः समुद्राश्च तयोस्तुष्टिः पुष्टिस्तदाश्रये ॥२९॥
 
-> āditsor anna-pānānām
-> āsan kukṣy-antra-nāḍayaḥ
-> nadyaḥ samudrāś ca tayos
+> āditsor anna-pānānām\
+> āsan kukṣy-antra-nāḍayaḥ\
+> nadyaḥ samudrāś ca tayos\
 > tuṣṭiḥ puṣṭis tad-āśraye
 
 *āditsoḥ*—deseando tener; *anna-pānānām*—de comida y bebida; *āsan*—fueron creados; *kukṣi*—el abdomen; *antra*—los intestinos; *nāḍayaḥ*—y las arterias; *nadyaḥ*—los ríos; *samudrāḥ*—mares; *ca*—también; *tayoḥ*—de ellos; *tuṣṭiḥ*—sustento; *puṣṭiḥ*—metabolismo; *tat*—de ellos; *āśraye*—la fuente.

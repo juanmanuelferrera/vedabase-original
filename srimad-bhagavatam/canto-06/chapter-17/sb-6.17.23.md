@@ -1,11 +1,11 @@
 ### SB 6.17.23
 
-> तथापि तच्छक्तिविसर्ग एषां सुखाय दुःखाय हिताहिताय
+> तथापि तच्छक्तिविसर्ग एषां सुखाय दुःखाय हिताहिताय\
 > बन्धाय मोक्षाय च मृत्युजन्मनोः शरीरिणां संसृतयेऽवकल्पते ॥२३॥
 
-> tathāpi tac-chakti-visarga eṣāṁ
-> sukhāya duḥkhāya hitāhitāya
-> bandhāya mokṣāya ca mṛtyu-janmanoḥ
+> tathāpi tac-chakti-visarga eṣāṁ\
+> sukhāya duḥkhāya hitāhitāya\
+> bandhāya mokṣāya ca mṛtyu-janmanoḥ\
 > śarīriṇāṁ saṁsṛtaye 'vakalpate
 
 *tathāpi*—still; *tat-śakti*—of the Lord's energy; *visargaḥ*—the creation; *eṣām*—of these (conditioned souls); *sukhāya*—for the happiness; *duḥkhāya*—for the distress; *hita-ahitāya*—for the profit and loss; *bandhāya*—for the bondage; *mokṣāya*—for the liberation; *ca*—also; *mṛtyu*—of death; *janmanoḥ*—and birth; *śarīriṇām*—of all those who accept material bodies; *saṁsṛtaye*—for the repetition; *avakalpate*—acts.

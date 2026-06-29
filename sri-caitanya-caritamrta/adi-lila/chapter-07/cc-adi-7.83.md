@@ -1,9 +1,9 @@
 ### CC Adi 7.83
 
-> কৃষ্ণনাম-মহামন্ত্রের এই ত’ স্বভাব ।
+> কৃষ্ণনাম-মহামন্ত্রের এই ত’ স্বভাব ।\
 > যেই জপে, তার কৃষ্ণে উপজয়ে ভাব ॥৮৩॥
 
-> kṛṣṇa-nāma-mahā-mantrera ei ta' svabhāva
+> kṛṣṇa-nāma-mahā-mantrera ei ta' svabhāva\
 > yei jape, tāra kṛṣṇe upajaye bhāva
 
 *kṛṣṇa-nāma*—the holy name of Kṛṣṇa; *mahā-mantrera*—of the supreme hymn; *ei ta'*—this is its; *svabhāva*—nature; *yei*—anyone; *jape*—chants; *tāra*—his; *kṛṣṇe*—unto Kṛṣṇa; *upajaye*—develops; *bhāva*—ecstasy.

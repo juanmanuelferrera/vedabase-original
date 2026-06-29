@@ -1,11 +1,11 @@
 ### SB 1.19.39
 
-> नूनं भगवतो ब्रह्मन्गृहेषु गृहमेधिनाम् ।
+> नूनं भगवतो ब्रह्मन्गृहेषु गृहमेधिनाम् ।\
 > न लक्ष्यते ह्यवस्थानमपि गोदोहनं क्वचित् ॥३९॥
 
-> nūnaṁ bhagavato brahman
-> gṛheṣu gṛha-medhinām
-> na lakṣyate hy avasthānam
+> nūnaṁ bhagavato brahman\
+> gṛheṣu gṛha-medhinām\
+> na lakṣyate hy avasthānam\
 > api go-dohanaṁ kvacit
 
 *nūnam*—porque; *bhagavataḥ*—de ti, que eres poderoso; *brahman*—¡oh, *brāhmaṇa*!; *gṛheṣu*—en las casas; *gṛha-medhinām*—de los casados; *na*—no; *lakṣyate*—se ven; *hi*—exactamente; *avasthānam*—permaneciendo en; *api*—incluso; *go-dohanam*—ordeñando la vaca; *kvacit*—raramente.

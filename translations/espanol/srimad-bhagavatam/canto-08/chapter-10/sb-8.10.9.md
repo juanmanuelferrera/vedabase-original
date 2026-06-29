@@ -1,11 +1,11 @@
 ### SB 8.10.9
 
-> उष्ट्रैः केचिदिभैः केचिदपरे युयुधुः खरैः
+> उष्ट्रैः केचिदिभैः केचिदपरे युयुधुः खरैः\
 > केचिद्गौरमुखैरृक्षैर्द्वीपिभिर्हरिभिर्भटाः ॥९॥
 
-> uṣṭraiḥ kecid ibhaiḥ kecid
-> apare yuyudhuḥ kharaiḥ
-> kecid gaura-mukhair ṛkṣair
+> uṣṭraiḥ kecid ibhaiḥ kecid\
+> apare yuyudhuḥ kharaiḥ\
+> kecid gaura-mukhair ṛkṣair\
 > dvīpibhir haribhir bhaṭāḥ
 
 *uṣṭraiḥ*—montadas en camellos; *kecit*—algunas personas; *ibhaiḥ*—a lomos de elefantes; *kecit*—algunas personas; *apare*—otros; *yuyudhuḥ*—ocupados en luchar; *kharaiḥ*—montadas en asnos; *kecit*—algunas personas; *gaura-mukhaiḥ*—en monos de cara blanca; *ṛkṣaiḥ*—en monos de cara roja; *dvīpibhiḥ*—montados en tigres; *haribhiḥ*—montados en leones; *bhaṭāḥ*—todos los soldados ocupados de ese modo.

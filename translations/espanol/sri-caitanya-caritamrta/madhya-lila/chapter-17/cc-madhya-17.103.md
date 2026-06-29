@@ -1,9 +1,9 @@
 ### CC Madhya 17.103
 
-> এইমত প্রতিদিন করেন বঞ্চন ।
+> এইমত প্রতিদিন করেন বঞ্চন ।\
 > সন্ন্যাসীর সঙ্গ-ভয়ে না মানেন নিমন্ত্রণ ॥১০৩॥
 
-> ei-mata prati-dina karena vañcana
+> ei-mata prati-dina karena vañcana\
 > sannyāsīra saṅga-bhaye nā mānena nimantraṇa
 
 *ei-mata*—de esta manera; *prati-dina*—a diario; *karena vañcana*—rechaza a quienes Le invitan; *sannyāsīra*—de los sannyāsīs māyāvādīs; *saṅga-bhaye*—por temor a la asociación; *nā mānena*—no acepta; *nimantraṇa*—invitación.

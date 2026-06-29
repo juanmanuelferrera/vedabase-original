@@ -1,9 +1,9 @@
 ### CC Madhya 9.112
 
-> আমার ঠাকুর কৃষ্ণ — গোপ, গো-চারক ৷
+> আমার ঠাকুর কৃষ্ণ — গোপ, গো-চারক ৷\
 > সাধ্বী হঞা কেনে চাহে তাঁহার সঙ্গম ৷৷ ১১২ ৷৷ ॥১১২॥
 
-> āmāra ṭhākura kṛṣṇa--gopa, go-cāraka
+> āmāra ṭhākura kṛṣṇa--gopa, go-cāraka\
 > sādhvī hañā kene cāhe tāṅhāra saṅgama
 
 *āmāra ṭhākura*—Mi Deidad adorable; *kṛṣṇa*—el Señor Kṛṣṇa; *gopa*—vaquero; *go-cāraka*—pastor de vacas; *sādhvī hañā*—siendo tan casta; *kene*—¿por qué?; *cāhe*—desea; *tāṅhāra*—Su; *saṅgama*—asociación.

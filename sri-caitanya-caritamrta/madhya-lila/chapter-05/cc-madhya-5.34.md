@@ -1,9 +1,9 @@
 ### CC Madhya 5.34
 
-> এত বলি’ দুইজনে চলিলা দেশেরে ।
+> এত বলি’ দুইজনে চলিলা দেশেরে ।\
 > গুরুবুদ্ধ্যে ছোট-বিপ্ৰ বহু সেবা করে ॥৩৪॥
 
-> eta bali' dui-jane calilā deśere
+> eta bali' dui-jane calilā deśere\
 > guru-buddhye choṭa-vipra bahu sevā kare
 
 *eta bali'*—speaking this; *dui-jane*—both the *brāhmaṇas*; *calilā*—went; *deśere*—toward their own country; *guru-buddhye*—accepting the elderly *brāhmaṇa* as *guru*; *choṭa-vipra*—the young *brāhmaṇa*; *bahu*—various; *sevā*—services; *kare*—renders.

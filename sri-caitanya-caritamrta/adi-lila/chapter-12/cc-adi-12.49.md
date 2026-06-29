@@ -1,9 +1,9 @@
 ### CC Adi 12.49
 
-> প্রভু কহে, — বাউলিয়া, ঐছে কাহে কর ।
+> প্রভু কহে, — বাউলিয়া, ঐছে কাহে কর ।\
 > আচার্যের লজ্জা-ধর্ম-হানি যে আচর ॥৪৯॥
 
-> prabhu kahe—bāuliyā, aiche kāhe kara
+> prabhu kahe—bāuliyā, aiche kāhe kara\
 > ācāryera lajjā-dharma-hāni se ācara
 
 *prabhu kahe*—the Lord said; *bāuliyā*—one who does not know what is right; *aiche*—in that way; *kāhe*—why; *kara*—do; *ācāryera*—of Śrī Advaita Ācārya; *lajjā*—privacy; *dharma*—religion; *hāni*—loss; *se*—that; *ācara*—you act.

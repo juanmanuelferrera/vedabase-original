@@ -1,11 +1,11 @@
 ### SB 7.12.21
 
-> केशरोमनखश्मश्रु मलानि जटिलो दधत
+> केशरोमनखश्मश्रु मलानि जटिलो दधत\
 > कमण्डल्वजिने दण्ड वल्कलाग्निपरिच्छदान ॥२१॥
 
-> keśa-roma-nakha-śmaśru-
-> malāni jaṭilo dadhat
-> kamaṇḍalv-ajine daṇḍa-
+> keśa-roma-nakha-śmaśru-\
+> malāni jaṭilo dadhat\
+> kamaṇḍalv-ajine daṇḍa-\
 > valkalāgni-paricchadān
 
 *keśa*—hair on the head; *roma*—hair on the body; *nakha*—nails; *śmaśru*—moustache; *malāni*—and dirt on the body; *jaṭilaḥ*—with matted locks of hair; *dadhat*—one should keep; *kamaṇḍalu*—a waterpot; *ajine*—and a deerskin; *daṇḍa*—rod; *valkala*—the bark of a tree; *agni*—fire; *paricchadān*—garments.

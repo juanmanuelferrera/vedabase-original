@@ -1,11 +1,11 @@
 ### SB 3.2.3
 
-> स कथं सेवया तस्य कालेन जरसं गतः ।
+> स कथं सेवया तस्य कालेन जरसं गतः ।\
 > पृष्टो वार्तां प्रतिब्रूयाद्भर्तुः पादावनुस्मरन् ॥३॥
 
-> sa kathaṁ sevayā tasya
-> kālena jarasaṁ gataḥ
-> pṛṣṭo vārtāṁ pratibrūyād
+> sa kathaṁ sevayā tasya\
+> kālena jarasaṁ gataḥ\
+> pṛṣṭo vārtāṁ pratibrūyād\
 > bhartuḥ pādāv anusmaran
 
 *saḥ*—Uddhava; *katham*—cómo; *sevayā*—mediante ese servicio; *tasya*—su; *kālena*—con el tiempo; *jarasam*—invalidez; *gataḥ*—soportó; *pṛṣṭaḥ*—pedírsele; *vārtām*—mensaje; *pratibrūyāt*—solo para responder; *bhartuḥ*—del Señor; *pādau*—Sus pies de loto; *anusmaran*—recordando.

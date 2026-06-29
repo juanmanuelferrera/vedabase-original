@@ -1,9 +1,9 @@
 ### CC Madhya 20.14
 
-> তথাপি যবন-মন প্রসন্ন না দেখিলা ।
+> তথাপি যবন-মন প্রসন্ন না দেখিলা ।\
 > সাত-হাজার মুদ্রা তার আগে রাশি কৈলা ॥১৪॥
 
-> tathāpi yavana-mana prasanna nā dekhilā
+> tathāpi yavana-mana prasanna nā dekhilā\
 > sāta-hājāra mudrā tāra āge rāśi kailā
 
 *tathāpi*—aun así; *yavana-mana*—la mente del comedor de carne; *prasanna*—satisfecha; *nā*—no; *dekhilā*—vio; *sāta-hājāra*—siete mil; *mudrā*—monedas de oro; *tāra*—de él; *āge*—delante; *rāśi kailā*—apiló.

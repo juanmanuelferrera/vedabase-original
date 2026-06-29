@@ -1,9 +1,9 @@
 ### CC Antya 14.83
 
-> রঘুনাথ-দাসের সদা প্রভুসঙ্গে স্থিতি ।
+> রঘুনাথ-দাসের সদা প্রভুসঙ্গে স্থিতি ।\
 > তাঁর মুখে শুনি’ লিখি করিয়া প্রতীতি ॥৮৩॥
 
-> raghunātha-dāsera sadā prabhu-saṅge sthiti
+> raghunātha-dāsera sadā prabhu-saṅge sthiti\
 > tāṅra mukhe śuni' likhi kariyā pratīti
 
 *raghunātha-dāsera*—of Raghunātha dāsa Gosvāmī; *sadā*—always; *prabhu-saṅge*—with Śrī Caitanya Mahāprabhu; *sthiti*—living; *tāṅra mukhe*—from his mouth; *śuni'*—hearing; *likhi*—I write; *kariyā pratīti*—accepting in total.

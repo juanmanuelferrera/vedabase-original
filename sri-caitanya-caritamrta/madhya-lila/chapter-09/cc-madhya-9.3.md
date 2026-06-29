@@ -1,9 +1,9 @@
 ### CC Madhya 9.3
 
-> দক্ষিণগমন প্রভুর অতি বিলক্ষণ ।
+> দক্ষিণগমন প্রভুর অতি বিলক্ষণ ।\
 > সহস্র সহস্র তীর্থ কৈল দরশন ॥৩॥
 
-> dakṣiṇa-gamana prabhura ati vilakṣaṇa
+> dakṣiṇa-gamana prabhura ati vilakṣaṇa\
 > sahasra sahasra tīrtha kaila daraśana
 
 *dakṣiṇa-gamana*—touring in South India; *prabhura*—of the Lord; *ati*—very; *vilakṣaṇa*—extraordinary; *sahasra sahasra*—thousands and thousands; *tīrtha*—holy places; *kaila*—did; *daraśana*—visit.

@@ -1,9 +1,9 @@
 ### CC Adi 4.44
 
-> তটস্থ হইয়া মনে বিচার যদি করি ।
+> তটস্থ হইয়া মনে বিচার যদি করি ।\
 > সব রস হৈতে শৃঙ্গারে অধিক মাধুরী ॥৪৪॥
 
-> taṭastha ha-iyā mane vicāra yadi kari
+> taṭastha ha-iyā mane vicāra yadi kari\
 > saba rasa haite śṛṅgāre adhika mādhurī
 
 *taṭa-stha ha-iyā*—becoming impartial; *mane*—in the mind; *vicāra*—consideration; *yadi*—if; *kari*—doing; *sabarasa*—all the mellows; *haite*—than; *śṛṅgāre*—in conjugal love; *adhika*—greater; *mādhurī*—sweetness.

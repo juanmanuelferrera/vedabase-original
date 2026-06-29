@@ -1,21 +1,21 @@
 ### SB 8.21.2-3
 
-> वेदोपवेदा नियमा यमान्वितास्तर्केतिहासाङ्गपुराणसंहिताः
-> ये चापरे योगसमीरदीपित ज्ञआनाग्निना रन्धितकर्मकल्मषाः
-> ववन्दिरे यत्स्मरणानुभावतः स्वायम्भुवं धाम गता अकर्मकम ॥२॥
-> अथाङ्घ्रये प्रोन्नमिताय विष्णोरुपाहरत्पद्मभवोऽर्हणोदकम
+> वेदोपवेदा नियमा यमान्वितास्तर्केतिहासाङ्गपुराणसंहिताः\
+> ये चापरे योगसमीरदीपित ज्ञआनाग्निना रन्धितकर्मकल्मषाः\
+> ववन्दिरे यत्स्मरणानुभावतः स्वायम्भुवं धाम गता अकर्मकम ॥२॥\
+> अथाङ्घ्रये प्रोन्नमिताय विष्णोरुपाहरत्पद्मभवोऽर्हणोदकम\
 > समर्च्य भक्त्याभ्यगृणाच्छुचिश्रवा यन्नाभिपङ्केरुहसम्भवः स्वयम ॥३॥
 
-> vedopavedā niyamā yamānvitās
-> tarketihāsāṅga-purāṇa-saṁhitāḥ
-> ye cāpare yoga-samīra-dīpita-
+> vedopavedā niyamā yamānvitās\
+> tarketihāsāṅga-purāṇa-saṁhitāḥ\
+> ye cāpare yoga-samīra-dīpita-\
 > jñānāgninā randhita-karma-kalmaṣāḥ
 
-> vavandire yat-smaraṇānubhāvataḥ
-> svāyambhuvaṁ dhāma gatā akarmakam
-> athāṅghraye pronnamitāya viṣṇor
-> upāharat padma-bhavo 'rhaṇodakam
-> samarcya bhaktyābhyagṛṇāc chuci-śravā
+> vavandire yat-smaraṇānubhāvataḥ\
+> svāyambhuvaṁ dhāma gatā akarmakam\
+> athāṅghraye pronnamitāya viṣṇor\
+> upāharat padma-bhavo 'rhaṇodakam\
+> samarcya bhaktyābhyagṛṇāc chuci-śravā\
 > yan-nābhi-paṅkeruha-sambhavaḥ svayam
 
 *veda*—los cuatro *Vedas* (*Sāma, Yajur, Ṛg* y *Atharva*), el conocimiento original dado por la Suprema Personalidad de Dios; *upavedāḥ*—el conocimiento védico complementario y suplementario, como el *Āyur-veda* y el *Dhanur-veda*; *niyamāḥ*—los principios regulativos; *yama*—los métodos de control; *anvitāḥ*—completamente expertos en esos temas; *tarka*—la lógica; *itihāsa*—la historia; *aṅga*—la educación védica; *purāṇa*—la historia antigua registrada en los *Purāṇas*; *saṁhitāḥ*—los estudios védicos complementarios, como la *Brahma-saṁhitā*; *ye*—otros; *ca*—también; *apare*—que no eran el Señor Brahmā y sus acompañantes; *yoga-samīra-dīpita*—encendido por el aire de la práctica del *yoga* místico; *jñāna-agninā*—por el fuego del conocimiento; *randhita-karma-kalmaṣāḥ*—aquellos para quienes ya ha cesado la contaminación de las actividades fruitivas; *vavandire*—ofrecieron oraciones; *yat-smaraṇa-anubhāvataḥ*—por el simple hecho de meditar en quien; *svāyambhuvam*—del Señor Brahmā; *dhāma*—la morada; *gatāḥ*—habían alcanzado; *akarmakam*—que no se puede alcanzar con actividades fruitivas; *atha*—al momento; *aṅghraye*—a los pies de loto; *pronnamitāya*—ofrecieron reverencias; *viṣṇoḥ*—del Señor Viṣṇu; *upāharat*—ofrecieron adoración; *padma-bhavaḥ*—el Señor Brahmā, que nació de la flor de loto; *arhaṇa-udakam*—oblación de agua; *samarcya*—adorar; *bhaktyā*—con servicio devocional; *abhyagṛṇāt*—Le complació; *śuci-śravāḥ*—la más famosa autoridad védica; *yat-nābhi-paṅkeruha-sambhavaḥ svayam*—el Señor Brahmā, que apareció en el loto de Su ombligo (de la Suprema Personalidad de Dios).

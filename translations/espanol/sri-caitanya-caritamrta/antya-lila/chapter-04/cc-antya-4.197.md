@@ -1,9 +1,9 @@
 ### CC Antya 4.197
 
-> পারিষদ-দেহ এই, না হয় দুর্গন্ধ ।
+> পারিষদ-দেহ এই, না হয় দুর্গন্ধ ।\
 > প্রথম দিবসে পাইলুঁ চতুঃসম-গন্ধ ।।” ॥ ১৯৭ ॥
 
-> pāriṣada-deha ei, nā haya durgandha
+> pāriṣada-deha ei, nā haya durgandha\
 > prathama divase pāiluṅ catuḥsama-gandha"
 
 *pāriṣada-deha*—el cuerpo de un asociado de Kṛṣṇa; *ei*—este; *nā haya*—no tiene; *durgandha*—mal olor; *prathama divase*—el primer día; *pāiluṅ*—percibí; *catuḥsama-gandha*—el aroma de catuḥsama, una mezcla de pasta de sándalo, alcanfor, aguru y almizcle.

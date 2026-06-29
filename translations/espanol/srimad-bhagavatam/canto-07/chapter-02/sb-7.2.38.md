@@ -1,11 +1,11 @@
 ### SB 7.2.38
 
-> अहो वयं धन्यतमा यदत्र त्यक्ताः पितृभ्यां न विचिन्तयामः
+> अहो वयं धन्यतमा यदत्र त्यक्ताः पितृभ्यां न विचिन्तयामः\
 > अभक्ष्यमाणा अबला वृकादिभिः स रक्षिता रक्षति यो हि गर्भे ॥३८॥
 
-> aho vayaṁ dhanyatamā yad atra
-> tyaktāḥ pitṛbhyāṁ na vicintayāmaḥ
-> abhakṣyamāṇā abalā vṛkādibhiḥ
+> aho vayaṁ dhanyatamā yad atra\
+> tyaktāḥ pitṛbhyāṁ na vicintayāmaḥ\
+> abhakṣyamāṇā abalā vṛkādibhiḥ\
 > sa rakṣitā rakṣati yo hi garbhe
 
 *aho*—¡ay!; *vayam*—nosotros; *dhanya-tamāḥ*—muy afortunados; *yat*—pues; *atra*—en la actualidad; *tyaktāḥ*—dejado solo, sin protección; *pitṛbhyām*—por los padres; *na*—no; *vicintayāmaḥ*—nos preocupamos; *abhakṣyamāṇāḥ*—no ser comido; *abalāḥ*—muy débiles; *vṛka-ādibhiḥ*—por tigres y otros animales salvajes; *saḥ*—Él (la Suprema Personalidad de Dios); *rakṣitā*—protegerá; *rakṣati*—ha protegido; *yaḥ*—quien; *hi*—en verdad; *garbhe*—dentro del vientre.

@@ -1,9 +1,9 @@
 ### CC Antya 7.145
 
-> তাঁর প্রণয়-রোষ দেখিতে প্রভুর ইচ্ছা হয় ।
+> তাঁর প্রণয়-রোষ দেখিতে প্রভুর ইচ্ছা হয় ।\
 > ঐশ্বর্য-জ্ঞানে তাঁর রোষ নাহি উপজয় ॥১৪৫॥
 
-> tāṅra praṇaya-roṣa dekhite prabhura icchā haya
+> tāṅra praṇaya-roṣa dekhite prabhura icchā haya\
 > aiśvarya-jñāne tāṅra roṣa nāhi upajaya
 
 *tāṅra*—de él; *praṇaya-roṣa*—enojo afectuoso; *dekhite*—ver; *prabhura*—de Śrī Caitanya Mahāprabhu; *icchā haya*—hay un deseo; *aiśvarya-jñāne*—debido al conocimiento de las opulencias; *tāṅra*—de él; *roṣa*—enojo; *nāhi*—no; *upajaya*—se despierta.

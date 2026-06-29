@@ -1,11 +1,11 @@
 ### SB 8.1.11
 
-> यं पश्यति न पश्यन्तं चक्षुर्यस्य न रिष्यति
+> यं पश्यति न पश्यन्तं चक्षुर्यस्य न रिष्यति\
 > तं भूतनिलयं देवं सुपर्णमुपधावत ॥११॥
 
-> yaṁ paśyati na paśyantaṁ
-> cakṣur yasya na riṣyati
-> taṁ bhūta-nilayaṁ devaṁ
+> yaṁ paśyati na paśyantaṁ\
+> cakṣur yasya na riṣyati\
+> taṁ bhūta-nilayaṁ devaṁ\
 > suparṇam upadhāvata
 
 *yam*—He who; *paśyati*—the living entity sees; *na*—not; *paśyantam*—although always seeing; *cakṣuḥ*—eye; *yasya*—whose; *na*—never; *riṣyati*—diminishes; *tam*—Him; *bhūta-nilayam*—the original source of all living entities; *devam*—the Supreme Personality of Godhead; *suparṇam*—who accompanies the living entity as a friend; *upadhāvata*—everyone should worship.

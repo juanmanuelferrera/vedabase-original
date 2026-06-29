@@ -1,11 +1,11 @@
 ### SB 8.18.5
 
-> श्रोणायां श्रवणद्वादश्यां मुहूर्तेऽभिजिति प्रभुः
+> श्रोणायां श्रवणद्वादश्यां मुहूर्तेऽभिजिति प्रभुः\
 > सर्वे नक्षत्रताराद्याश्चक्रुस्तज्जन्म दक्षिणम ॥५॥
 
-> śroṇāyāṁ śravaṇa-dvādaśyāṁ
-> muhūrte 'bhijiti prabhuḥ
-> sarve nakṣatra-tārādyāś
+> śroṇāyāṁ śravaṇa-dvādaśyāṁ\
+> muhūrte 'bhijiti prabhuḥ\
+> sarve nakṣatra-tārādyāś\
 > cakrus taj-janma dakṣiṇam
 
 *śroṇāyām*—when the moon was situated in the Śravaṇa lunar mansion; *śravaṇa-dvādaśyām*—on the twelfth lunar day of the bright fortnight in the month of Bhādra, the day famous as the Śravaṇa-dvādaśī; *muhūrte*—in the auspicious moment; *abhijiti*—in the first portion of the Śravaṇa lunar mansion known as the Abhijit-*nakṣatra* and in the Abhijit-muhūrta (occurring at midday); *prabhuḥ*—the Lord; *sarve*—all; *nakṣatra*—stars; *tārā*—planets; *ādyāḥ*—beginning with the sun and followed by the other planets; *cakruḥ*—made; *tat-janma*—the birthday of the Lord; *dakṣiṇam*—very munificent.

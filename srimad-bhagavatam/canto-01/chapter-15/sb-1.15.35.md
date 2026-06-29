@@ -1,11 +1,11 @@
 ### SB 1.15.35
 
-> यथा मत्स्यादिरूपाणि धत्ते जह्याद्यथा नटः ।
+> यथा मत्स्यादिरूपाणि धत्ते जह्याद्यथा नटः ।\
 > भूभारः क्षपितो येनजहौ तच्च कलेवरम् ॥३५॥
 
-> yathā matsyādi-rūpāṇi
-> dhatte jahyād yathā naṭaḥ
-> bhū-bhāraḥ kṣapito yena
+> yathā matsyādi-rūpāṇi\
+> dhatte jahyād yathā naṭaḥ\
+> bhū-bhāraḥ kṣapito yena\
 > jahau tac ca kalevaram
 
 *yathā*—as much as; *matsya-ādi*—incarnation as a fish, etc.; *rūpāṇi*—forms; *dhatte*—eternally accepts; *jahyāt*—apparently relinquishes; *yathā*—exactly like; *naṭaḥ*—magician; *bhū-bhāraḥ*—burden of the world; *kṣapitaḥ*—relieved; *yena*—by which; *jahau*—let go; *tat*—that; *ca*—also; *kalevaram*—body.

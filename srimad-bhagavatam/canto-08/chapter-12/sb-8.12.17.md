@@ -1,13 +1,13 @@
 ### SB 8.12.17
 
-> श्रीशुक उवाच
-> इति ब्रुवाणो भगवांस्तत्रैवान्तरधीयत
+> श्रीशुक उवाच\
+> इति ब्रुवाणो भगवांस्तत्रैवान्तरधीयत\
 > सर्वतश्चारयंश्चक्षुर्भव आस्ते सहोमया ॥१७॥
 
-> śrī-śuka uvāca
-> iti bruvāṇo bhagavāṁs
-> tatraivāntaradhīyata
-> sarvataś cārayaṁś cakṣur
+> śrī-śuka uvāca\
+> iti bruvāṇo bhagavāṁs\
+> tatraivāntaradhīyata\
+> sarvataś cārayaṁś cakṣur\
 > bhava āste sahomayā
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *iti*—thus; *bruvāṇaḥ*—while speaking; *bhagavān*—Lord Viṣṇu, the Supreme Personality of Godhead; *tatra*—there; *eva*—immediately; *antaradhīyata*—disappeared from the vision of Lord Śiva and his associates; *sarvataḥ*—everywhere; *cārayan*—moving; *cakṣuḥ*—the eyes; *bhavaḥ*—Lord Śiva; *āste*—remained; *saha-umayā*—with his wife, Umā.

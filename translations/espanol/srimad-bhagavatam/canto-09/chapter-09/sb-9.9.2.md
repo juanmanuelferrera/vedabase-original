@@ -1,11 +1,11 @@
 ### SB 9.9.2
 
-> दिलीपस्तत्सुतस्तद्वदशक्तः कालमेयिवान
+> दिलीपस्तत्सुतस्तद्वदशक्तः कालमेयिवान\
 > भगीरथस्तस्य सुतस्तेपे स सुमहत्तपः ॥२॥
 
-> dilīpas tat-sutas tadvad
-> aśaktaḥ kālam eyivān
-> bhagīrathas tasya sutas
+> dilīpas tat-sutas tadvad\
+> aśaktaḥ kālam eyivān\
+> bhagīrathas tasya sutas\
 > tepe sa sumahat tapaḥ
 
 *dilīpaḥ*—llamado Dilīpa; *tat-sutaḥ*—el hijo de Aṁśumān; *tat-vat*—como su padre; *aśaktaḥ*—sin lograr traer el Ganges al mundo material; *kālam eyivān*—cayó víctima del tiempo y murió; *bhagīrathaḥ tasya sutaḥ*—su hijo Bhagīratha; *tepe*—hizo penitencia; *saḥ*—él; *su-mahat*—muy grande; *tapaḥ*—austeridad.

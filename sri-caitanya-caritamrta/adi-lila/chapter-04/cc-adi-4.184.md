@@ -1,11 +1,11 @@
 ### CC Adi 4.184
 
-> নিজাঙ্গমপি যা গোপ্যো মমেতি সমুপাসতে ।
+> নিজাঙ্গমপি যা গোপ্যো মমেতি সমুপাসতে ।\
 > তাভ্যঃ পরং ন মে পার্থ নিগূঢ়প্রেমভাজনম্ ॥১৮৪॥
 
-> nijāṅgam api yā gopyo
-> mameti samupāsate
-> tābhyaḥ paraṁ na me pārtha
+> nijāṅgam api yā gopyo\
+> mameti samupāsate\
+> tābhyaḥ paraṁ na me pārtha\
 > nigūḍha-prema-bhājanam
 
 *nija-aṅgam*—own body; *api*—although; *yāḥ*—who; *gopyaḥ*—the *gopīs*; *mama*—Mine; *iti*—thus thinking; *samupāsate*—engage in decorating; *tābhyaḥ*—than them; *param*—greater; *na*—not; *me*—for Me; *pārtha*—O Arjuna; *nigūḍha-prema*—of deep love; *bhājanam*—receptacles.

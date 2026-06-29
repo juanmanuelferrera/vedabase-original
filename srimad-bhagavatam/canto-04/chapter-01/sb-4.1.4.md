@@ -1,11 +1,11 @@
 ### SB 4.1.4
 
-> यस्तयोः पुरुषः साक्षाद्विष्णुर्यज्ञस्वरूपधृक् ।
+> यस्तयोः पुरुषः साक्षाद्विष्णुर्यज्ञस्वरूपधृक् ।\
 > या स्त्री सा दक्षिणा भूतेरंशभूतानपायिनी ॥४॥
 
-> yas tayoḥ puruṣaḥ sākṣād
-> viṣṇur yajña-svarūpa-dhṛk
-> yā strī sā dakṣiṇā bhūter
+> yas tayoḥ puruṣaḥ sākṣād\
+> viṣṇur yajña-svarūpa-dhṛk\
+> yā strī sā dakṣiṇā bhūter\
 > aṁśa-bhūtānapāyinī
 
 *yaḥ*—one who; *tayoḥ*—out of them; *puruṣaḥ*—male; *sākṣāt*—directly; *viṣṇuḥ*—the Supreme Lord; *yajña*—Yajña; *svarūpa-dhṛk*—accepting the form; *yā*—the other; *strī*—female; *sā*—she; *dakṣiṇā*—Dakṣiṇā; *bhūteḥ*—of the goddess of fortune; *aṁśa-bhūtā*—being a plenary expansion; *anapāyinī*—never to be separated.

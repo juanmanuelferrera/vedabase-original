@@ -1,11 +1,11 @@
 ### SB 8.15.24
 
-> मघवांस्तमभिप्रेत्य बलेः परममुद्यमम
+> मघवांस्तमभिप्रेत्य बलेः परममुद्यमम\
 > सर्वदेवगणोपेतो गुरुमेतदुवाच ह ॥२४॥
 
-> maghavāṁs tam abhipretya
-> baleḥ paramam udyamam
-> sarva-deva-gaṇopeto
+> maghavāṁs tam abhipretya\
+> baleḥ paramam udyamam\
+> sarva-deva-gaṇopeto\
 > gurum etad uvāca ha
 
 *maghavān*—Indra; *tam*—la situación; *abhipretya*—al entender; *baleḥ*—de Bali Mahārāja; *paramam udyamam*—gran entusiasmo; *sarva-deva-gaṇa*—por todos los semidioses; *upetaḥ*—acompañado; *gurum*—al maestro espiritual; *etat*—las siguientes palabras; *uvāca*—dijo; *ha*—en verdad.

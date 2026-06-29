@@ -1,14 +1,14 @@
 ### CC Madhya 9.7-8
 
-> পূর্ববৎ পথে যাইতে যে পায় দরশন ।
-> যেই গ্রামে যায়, সে গ্রামের যত জন ॥৭॥
-> সবেই বৈষ্ণব হয়, কহে ‘কৃষ্ণ’ ‘হরি’ ।
+> পূর্ববৎ পথে যাইতে যে পায় দরশন ।\
+> যেই গ্রামে যায়, সে গ্রামের যত জন ॥৭॥\
+> সবেই বৈষ্ণব হয়, কহে ‘কৃষ্ণ’ ‘হরি’ ।\
 > অন্য গ্রাম নিস্তারয়ে সেই ‘বৈষ্ণব’ করি’ ॥৮॥
 
-> pūrvavat pathe yāite ye pāya daraśana
+> pūrvavat pathe yāite ye pāya daraśana\
 > yei grāme yāya, se grāmera yata jana
 
-> sabei vaiṣṇava haya, kahe 'kṛṣṇa' 'hari'
+> sabei vaiṣṇava haya, kahe 'kṛṣṇa' 'hari'\
 > anya grāma nistāraye sei 'vaiṣṇava' kari'
 
 *pūrva-vat*—as done previously; *pathe*—on the way; *yāite*—while going; *ye*—anyone who; *pāya*—gets; *daraśana*—audience; *yei*—which; *grāme*—in the village; *yāya*—Lord Śrī Caitanya Mahāprabhu goes; *se*—that; *grāmera*—of the village; *yata*—all; *jana*—people; *sabei*—all of them; *vaiṣṇava haya*—become devotees; *kahe*—say; *kṛṣṇa hari*—the holy names of Lord Kṛṣṇa and Hari; *anya grāma*—other villages; *nistāraye*—delivers; *sei*—He; *vaiṣṇava*—devotees; *kari'*—making.

@@ -1,11 +1,11 @@
 ### SB 4.19.38
 
-> स त्वं विमृश्यास्य भवं प्रजापते सङ्कल्पनं विश्वसृजां पिपीपृहि ।
+> स त्वं विमृश्यास्य भवं प्रजापते सङ्कल्पनं विश्वसृजां पिपीपृहि ।\
 > ऐन्द्रीं च मायामुपधर्ममातरं प्रचण्डपाखण्डपथं प्रभो जहि ॥३८॥
 
-> sa tvaṁ vimṛśyāsya bhavaṁ prajāpate
-> saṅkalpanaṁ viśva-sṛjāṁ pipīpṛhi
-> aindrīṁ ca māyām upadharma-mātaraṁ
+> sa tvaṁ vimṛśyāsya bhavaṁ prajāpate\
+> saṅkalpanaṁ viśva-sṛjāṁ pipīpṛhi\
+> aindrīṁ ca māyām upadharma-mātaraṁ\
 > pracaṇḍa-pākhaṇḍa-pathaṁ prabho jahi
 
 *saḥ*—lo que antes se dijo; *tvam*—tú; *vimṛśya*—considerando; *asya*—del mundo; *bhavam*—la existencia; *prajā-pate*—¡oh, protector del pueblo!; *saṅkalpanam*—la determinación; *viśva-sṛjām*—de los progenitores del mundo; *pipīpṛhi*—sencillamente satisface; *aindrīm*—creada por el rey del cielo; *ca*—también; *māyām*—ilusión; *upadharma*—del sistema irreligioso de supuesto *sannyāsa*; *mātaram*—la madre; *pracaṇḍa*—furiosa, peligrosa; *pākhaṇḍa-patham*—la senda de las actividades pecaminosas; *prabho*—¡oh, Señor!; *jahi*—por favor, conquista.

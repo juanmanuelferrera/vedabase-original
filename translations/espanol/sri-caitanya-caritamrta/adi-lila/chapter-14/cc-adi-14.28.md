@@ -1,9 +1,9 @@
 ### CC Adi 14.28
 
-> খই-সন্দেশ-অন্ন, যতেক — মাটির বিকার ।
+> খই-সন্দেশ-অন্ন, যতেক — মাটির বিকার ।\
 > এহো মাটি, সেহ মাটি, কি ভেদ-বিচার ॥২৮॥
 
-> kha-i-sandeśa-anna yateka--māṭira vikāra
+> kha-i-sandeśa-anna yateka--māṭira vikāra\
 > eho māṭi, seha māṭi, ki bheda-vicāra
 
 *kha-i*—arroz tostado; *sandeśa*—dulces; *anna*—alimentos; *yateka*—todos; *māṭira*—de la tierra; *vikāra*—transformaciones; *eho*—esto también es; *māṭi*—tierra; *seha*—eso; *māṭi*—tierra; *ki*—qué; *bheda*—de diferencia; *vicāra*—consideración.

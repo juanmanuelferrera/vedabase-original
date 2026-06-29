@@ -1,11 +1,11 @@
 ### SB 4.19.2
 
-> तदभिप्रेत्य भगवान्कर्मातिशयमात्मनः ।
+> तदभिप्रेत्य भगवान्कर्मातिशयमात्मनः ।\
 > शतक्रतुर्न ममृषे पृथोर्यज्ञमहोत्सवम् ॥२॥
 
-> tad abhipretya bhagavān
-> karmātiśayam ātmanaḥ
-> śata-kratur na mamṛṣe
+> tad abhipretya bhagavān\
+> karmātiśayam ātmanaḥ\
+> śata-kratur na mamṛṣe\
 > pṛthor yajña-mahotsavam
 
 *tat abhipretya*—considering this matter; *bhagavān*—the most powerful; *karma-atiśayam*—excelling in fruitive activities; *ātmanaḥ*—of himself; *śata-kratuḥ*—King Indra, who had performed a hundred sacrifices; *na*—not; *mamṛṣe*—did tolerate; *pṛthoḥ*—of King Pṛthu; *yajña*—sacrificial; *mahā-utsavam*—great ceremonies.

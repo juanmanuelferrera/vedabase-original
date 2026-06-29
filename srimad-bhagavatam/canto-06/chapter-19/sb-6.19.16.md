@@ -1,11 +1,11 @@
 ### SB 6.19.16
 
-> ततः स्तुवीत स्तोत्रेण भक्तिप्रह्वेण चेतसा
+> ततः स्तुवीत स्तोत्रेण भक्तिप्रह्वेण चेतसा\
 > यज्ञओच्छिष्टमवघ्राय पुनरभ्यर्चयेद्धरिम ॥१६॥
 
-> tataḥ stuvīta stotreṇa
-> bhakti-prahveṇa cetasā
-> yajñocchiṣṭam avaghrāya
+> tataḥ stuvīta stotreṇa\
+> bhakti-prahveṇa cetasā\
+> yajñocchiṣṭam avaghrāya\
 > punar abhyarcayed dharim
 
 *tataḥ*—then; *stuvīta*—one should praise; *stotreṇa*—with prayers; *bhakti*—with devotion; *prahveṇa*—humble; *cetasā*—with a mind; *yajña-ucchiṣṭam*—the remnants of sacrifice; *avaghrāya*—smelling; *punaḥ*—again; *abhyarcayet*—one should worship; *harim*—Lord Viṣṇu.

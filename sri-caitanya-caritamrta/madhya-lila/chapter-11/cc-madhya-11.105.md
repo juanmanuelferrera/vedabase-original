@@ -1,9 +1,9 @@
 ### CC Madhya 11.105
 
-> রাজা কহে, — সবে জগন্নাথ না দেখিয়া ।
+> রাজা কহে, — সবে জগন্নাথ না দেখিয়া ।\
 > চৈতন্যের বাসা-গৃহে চলিলা ধাঞা ॥১০৫॥
 
-> rājā kahe,-sabe jagannātha nā dekhiyā
+> rājā kahe,-sabe jagannātha nā dekhiyā\
 > caitanyera vāsā-gṛhe calilā dhāñā
 
 *rājā kahe*—the King said; *sabe*—all of them; *jagannātha*—Lord Jagannātha; *nā dekhiyā*—without visiting; *caitanyera*—of Lord Śrī Caitanya Mahāprabhu; *vāsā-gṛhe*—to the residential place; *calilā*—they went; *dhāñā*—running.

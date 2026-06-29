@@ -1,11 +1,11 @@
 ### SB 4.1.5
 
-> आनिन्ये स्वगृहं पुत्र्याः पुत्रं विततरोचिषम् ।
+> आनिन्ये स्वगृहं पुत्र्याः पुत्रं विततरोचिषम् ।\
 > स्वायम्भुवो मुदा युक्तो रुचिर्जग्राह दक्षिणाम् ॥५॥
 
-> āninye sva-gṛhaṁ putryāḥ
-> putraṁ vitata-rociṣam
-> svāyambhuvo mudā yukto
+> āninye sva-gṛhaṁ putryāḥ\
+> putraṁ vitata-rociṣam\
+> svāyambhuvo mudā yukto\
 > rucir jagrāha dakṣiṇām
 
 *āninye*—se llevó; *sva-gṛham*—al hogar; *putryāḥ*—nacido de la hija; *putram*—al hijo; *vitata-rociṣam*—muy poderoso; *svāyambhuvaḥ*—el *manu* llamado Svāyambhuva; *mudā*—sintiéndose muy complacido; *yuktaḥ*—con; *ruciḥ*—el gran sabio Ruci; *jagrāha*—conservó; *dakṣiṇām*—a la hija llamada Dakṣiṇā.

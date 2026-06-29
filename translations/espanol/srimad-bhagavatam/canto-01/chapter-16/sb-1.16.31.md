@@ -1,11 +1,11 @@
 ### SB 1.16.31
 
-> आत्मानं चानुशोचामि भवन्तं चामरोत्तमम् ।
+> आत्मानं चानुशोचामि भवन्तं चामरोत्तमम् ।\
 > देवान्पितॄनृषीन्साधून्सर्वान्वर्णांस्तथाश्रमान् ॥३१॥
 
-> ātmānaṁ cānuśocāmi
-> bhavantaṁ cāmarottamam
-> devān pitṝn ṛṣīn sādhūn
+> ātmānaṁ cānuśocāmi\
+> bhavantaṁ cāmarottamam\
+> devān pitṝn ṛṣīn sādhūn\
 > sarvān varṇāṁs tathāśramān
 
 *ātmānam*—yo misma; *ca*—también; *anuśocāmi*—lamentando; *bhavantam*—ti; *ca*—así como también; *amara-uttamam*—el mejor de los semidioses; *devān*—acerca de los semidioses; *pitṝn*—acerca de los ciudadanos del planeta Pitṛloka; *ṛṣīn*—acerca de los sabios; *sādhūn*—acerca de los devotos; *sarvān*—todos ellos; *varṇān*—sectores; *tathā*—así como también; *āśramān*—órdenes de la sociedad humana.

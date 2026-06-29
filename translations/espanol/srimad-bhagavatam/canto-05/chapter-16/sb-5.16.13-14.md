@@ -1,6 +1,6 @@
 ### SB 5.16.13-14
 
-> ह्रदाश्चत्वारः पयोमध्विक्षुरसमृष्टजला यदुपस्पर्शिन उपदेवगणा योगैश्वर्याणिस्वाभाविकानि भरतर्षभ धारयन्ति ॥१३॥
+> ह्रदाश्चत्वारः पयोमध्विक्षुरसमृष्टजला यदुपस्पर्शिन उपदेवगणा योगैश्वर्याणिस्वाभाविकानि भरतर्षभ धारयन्ति ॥१३॥\
 > देवोद्यानानि च भवन्ति चत्वारि नन्दनं चैत्ररथं वैभ्राजकं सर्वतोभद्रमिति ॥१४॥
 
 > hradāś catvāraḥ payo-madhv-ikṣurasa-mṛṣṭa-jalā yad-upasparśina upadeva-gaṇā yogaiśvaryāṇi svābhāvikāni bharatarṣabha dhārayanti; devodyānāni ca bhavanti catvāri nandanaṁ caitrarathaṁ vaibhrājakaṁ sarvatobhadram iti.

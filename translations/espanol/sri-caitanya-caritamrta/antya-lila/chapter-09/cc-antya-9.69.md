@@ -1,9 +1,9 @@
 ### CC Antya 9.69
 
-> তোমার ভজন-ফলে তোমাতে ‘প্রেমধন’ ।
+> তোমার ভজন-ফলে তোমাতে ‘প্রেমধন’ ।\
 > বিষয় লাগি’ তোমায় ভজে, সেই মূর্খ জন ॥৬৯॥
 
-> tomāra bhajana-phale tomāte 'prema-dhana'
+> tomāra bhajana-phale tomāte 'prema-dhana'\
 > viṣaya lāgi' tomāya bhaje, sei mūrkha jana
 
 *tomāra*—Tu; *bhajana*—servicio devocional; *phale*—por el resultado de; *tomāte*—hacia Ti; *prema-dhana*—riqueza de amor; *viṣaya lāgi'*—por provecho material; *tomāya bhaje*—uno se dedica a Tu servicio; *sei*—él; *mūrkha jana*—un necio.

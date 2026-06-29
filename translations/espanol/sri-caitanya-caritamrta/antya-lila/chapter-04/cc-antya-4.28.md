@@ -1,9 +1,9 @@
 ### CC Antya 4.28
 
-> সনাতন কহে, — “নীচ-বংশে মোর জন্ম  ।
+> সনাতন কহে, — “নীচ-বংশে মোর জন্ম  ।\
 > অধর্ম অন্যায় যত, — আমার কুলধর্ম ॥২৮॥
 
-> sanātana kahe,--"nīca-vaṁśe mora janma
+> sanātana kahe,--"nīca-vaṁśe mora janma\
 > adharma anyāya yata,--āmāra kula-dharma
 
 *sanātana kahe*—Sanātana Gosvāmī dijo; *nīca-vaṁśe*—en una familia baja; *mora janma*—mi nacimiento; *adharma*—irreligión; *anyāya*—actividades pecaminosas; *yata*—todas; *āmāra*—mi; *kula-dharma*—ocupación familiar.

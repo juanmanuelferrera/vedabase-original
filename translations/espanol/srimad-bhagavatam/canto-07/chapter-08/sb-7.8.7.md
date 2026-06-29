@@ -1,12 +1,12 @@
 ### SB 7.8.7
 
-> क्रुद्धस्य यस्य कम्पन्ते त्रयो लोकाः सहेश्वराः
+> क्रुद्धस्य यस्य कम्पन्ते त्रयो लोकाः सहेश्वराः\
 > तस्य मेऽभीतवन्मूढ शासनं किं बलोऽत्यगाः ॥७॥
 
-> śrī-prahrāda uvāca
-> na kevalaṁ me bhavataś ca rājan
-> sa vai balaṁ balināṁ cāpareṣām
-> pare 'vare 'mī sthira-jaṅgamā ye
+> śrī-prahrāda uvāca\
+> na kevalaṁ me bhavataś ca rājan\
+> sa vai balaṁ balināṁ cāpareṣām\
+> pare 'vare 'mī sthira-jaṅgamā ye\
 > brahmādayo yena vaśaṁ praṇītāḥ
 
 *śrī-prahrādaḥ uvāca*—Prahlāda Mahārāja contestó; *na*—no; *kevalam*—solamente; *me*—de mí; *bhavataḥ*—de ti mismo; *ca*—y; *rājan*—¡oh, gran rey!; *saḥ*—Él; *vai*—en verdad; *balam*—fuerza; *balinām*—de los fuertes; *ca*—y; *apareṣām*—de los demás; *pare*—excelsas; *avare*—subordinadas; *amī*—a esas; *sthira-jaṅgamāḥ*—entidades vivientes móviles o inmóviles; *ye*—quienes; *brahma-ādayaḥ*—comenzando con el Señor Brahmā; *yena*—por quien; *vaśam*—bajo control; *praṇītāḥ*—puestas.

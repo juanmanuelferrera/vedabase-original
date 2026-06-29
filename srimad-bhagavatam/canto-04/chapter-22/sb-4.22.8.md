@@ -1,11 +1,11 @@
 ### SB 4.22.8
 
-> किं तस्य दुर्लभतरमिह लोके परत्र च ।
+> किं तस्य दुर्लभतरमिह लोके परत्र च ।\
 > यस्य विप्राः प्रसीदन्ति शिवो विष्णुश्च सानुगः ॥८॥
 
-> kiṁ tasya durlabhataram
-> iha loke paratra ca
-> yasya viprāḥ prasīdanti
+> kiṁ tasya durlabhataram\
+> iha loke paratra ca\
+> yasya viprāḥ prasīdanti\
 > śivo viṣṇuś ca sānugaḥ
 
 *kim*—what; *tasya*—his; *durlabha-taram*—very rare to achieve; *iha*—in this world; *loke*—world; *paratra*—after death; *ca*—or; *yasya*—one whose; *viprāḥ*—the *brāhmaṇas* and Vaiṣṇavas; *prasīdanti*—become pleased; *śivaḥ*—all-auspicious; *viṣṇuḥ*—Lord Viṣṇu; *ca*—as well as; *sa-anugaḥ*—going along with.

@@ -1,13 +1,13 @@
 ### CC Madhya 22.63
 
-> যথা তরোর্মূলনিষেচনেন
-> তৃপ্যন্তি তৎস্কন্ধভুজোপশাখাঃ ।
-> প্রাণোপহারাচ্চ যথেন্দ্রিয়াণাং
+> যথা তরোর্মূলনিষেচনেন\
+> তৃপ্যন্তি তৎস্কন্ধভুজোপশাখাঃ ।\
+> প্রাণোপহারাচ্চ যথেন্দ্রিয়াণাং\
 > তথৈব সর্বার্হণমচ্যুতেজ্যা ॥৬৩॥
 
-> yathā taror mūla-niṣecanena
-> tṛpyanti tat-skandha-bhujopaśākhāḥ
-> prāṇopahārāc ca yathendriyāṇāṁ
+> yathā taror mūla-niṣecanena\
+> tṛpyanti tat-skandha-bhujopaśākhāḥ\
+> prāṇopahārāc ca yathendriyāṇāṁ\
 > tathaiva sarvārhaṇam acyutejyā
 
 *yathā*—as; *taroḥ*—of a tree; *mūla*—on the root; *niṣecanena*—by pouring water; *tṛpyanti*—are satisfied; *tat*—of the tree; *skandha*—trunk; *bhuja*—branches; *upaśākhāḥ*—sub-branches; *prāṇa*—to the living force; *upahārāt*—from offering food; *ca*—also; *yathā*—as; *indriyāṇām*—of all the senses; *tathā*—similarly; *eva*—indeed; *sarva*—of all; *arhaṇam*—worship; *acyuta*—of the Supreme Personality of Godhead; *ijyā*—worship.

@@ -1,11 +1,11 @@
 ### SB 8.3.27
 
-> योगरन्धितकर्माणो हृदि योगविभाविते
+> योगरन्धितकर्माणो हृदि योगविभाविते\
 > योगिनो यं प्रपश्यन्ति योगेशं तं नतोऽस्म्यहम ॥२७॥
 
-> yoga-randhita-karmāṇo
-> hṛdi yoga-vibhāvite
-> yogino yaṁ prapaśyanti
+> yoga-randhita-karmāṇo\
+> hṛdi yoga-vibhāvite\
+> yogino yaṁ prapaśyanti\
 > yogeśaṁ taṁ nato 'smy aham
 
 *yoga-randhita-karmāṇaḥ*—personas cuyas reacciones a las actividades fruitivas han sido quemadas por el *bhakti-yoga*; *hṛdi*—en lo más hondo del corazón; *yoga-vibhāvite*—completamente purificados y limpios; *yoginaḥ*—místicos capacitados; *yam*—a la Personalidad de Dios, a quien; *prapaśyanti*—ven directamente; *yoga-īśam*—a esa Suprema Personalidad de Dios, el amo de todo *yoga* místico; *tam*—a Él; *nataḥ asmi*—ofrecer reverencias; *aham*—yo.

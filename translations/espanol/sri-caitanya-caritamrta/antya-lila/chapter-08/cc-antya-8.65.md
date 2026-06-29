@@ -1,9 +1,9 @@
 ### CC Antya 8.65
 
-> তোমারে ক্ষীণ দেখি, শুনি, — কর অর্ধাশন ।
+> তোমারে ক্ষীণ দেখি, শুনি, — কর অর্ধাশন ।\
 > এই ‘শুষ্ক-বৈরাগ্য’ নহে সন্ন্যাসীর ‘ধর্ম’ ॥৬৫॥
 
-> tomāre kṣīṇa dekhi, śuni,--kara ardhāśana
+> tomāre kṣīṇa dekhi, śuni,--kara ardhāśana\
 > ei 'śuṣka-vairāgya' nahe sannyāsīra 'dharma'
 
 *tomāre*—Tú; *kṣīṇa*—delgado; *dekhi*—veo; *śuni*—he oído; *kara ardha-aśana*—comes la mitad; *ei*—esta; *śuṣka-vairāgya*—renunciación seca; *nahe*—no es; *sannyāsīra dharma*—la religión de un *sannyāsī*.

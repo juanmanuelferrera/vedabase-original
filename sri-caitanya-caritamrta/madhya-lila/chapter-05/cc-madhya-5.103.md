@@ -1,9 +1,9 @@
 ### CC Madhya 5.103
 
-> এইমতে চলি’ বিপ্র নিজে-দেশে আইলা ।
+> এইমতে চলি’ বিপ্র নিজে-দেশে আইলা ।\
 > গ্রামের নিকট আসি’ মনেতে চিন্তিলা ॥১০৩॥
 
-> ei-mate cali' vipra nija-deśe āilā
+> ei-mate cali' vipra nija-deśe āilā\
 > grāmera nikaṭa āsi' manete cintilā
 
 *ei-mate*—in this way; *cali'*—walking; *vipra*—the *brāhmaṇa*; *nija*—own; *deśe*—to the country; *āilā*—returned; *grāmera*—to the village; *nikaṭa*—near; *āsi'*—coming; *manete*—within his mind; *cintilā*—thought.

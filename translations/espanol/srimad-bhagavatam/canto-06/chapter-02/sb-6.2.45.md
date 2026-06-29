@@ -1,11 +1,11 @@
 ### SB 6.2.45
 
-> एवं स विप्लावितसर्वधर्मा दास्याः पतिः पतितो गर्ह्यकर्मणा
+> एवं स विप्लावितसर्वधर्मा दास्याः पतिः पतितो गर्ह्यकर्मणा\
 > निपात्यमानो निरये हतव्रतः सद्यो विमुक्तो भगवन्नाम गृह्णन ॥४५॥
 
-> evaṁ sa viplāvita-sarva-dharmā
-> dāsyāḥ patiḥ patito garhya-karmaṇā
-> nipātyamāno niraye hata-vrataḥ
+> evaṁ sa viplāvita-sarva-dharmā\
+> dāsyāḥ patiḥ patito garhya-karmaṇā\
+> nipātyamāno niraye hata-vrataḥ\
 > sadyo vimukto bhagavan-nāma gṛhṇan
 
 *evam*—de este modo; *saḥ*—él (Ajāmila); *viplāvita-sarva-dharmāḥ*—que abandonó todos los principios religiosos; *dāsyāḥ patiḥ*—el esposo de una prostituta; *patitaḥ*—caído; *garhya-karmaṇā*—por ocuparse en actividades abominables; *nipātyamānaḥ*—caer; *niraye*—a la vida infernal; *hata-vrataḥ*—que rompió todos sus votos; *sadyaḥ*—inmediatamente; *vimuktaḥ*—liberado; *bhagavat-nāma*—el santo nombre del Señor; *gṛhṇan*—cantar.

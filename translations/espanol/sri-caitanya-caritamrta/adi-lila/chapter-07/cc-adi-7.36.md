@@ -1,9 +1,9 @@
 ### CC Adi 7.36
 
-> পড়ুয়া, পাষণ্ডী, কর্মী, নিন্দকাদি যত ।
+> পড়ুয়া, পাষণ্ডী, কর্মী, নিন্দকাদি যত ।\
 > তারা আসি’ প্রভু-পায় হয় অবনত ॥৩৬॥
 
-> paḍuyā, pāṣaṇḍī, karmī, nindakādi yata
+> paḍuyā, pāṣaṇḍī, karmī, nindakādi yata\
 > tārā āsi' prabhu-pāya haya avanata
 
 *paḍuyā*—estudiantes; *pāṣaṇḍī*—adaptadores materiales; *karmī*—trabajadores fruitivos; *nindaka-ādi*—críticos; *yata*—todos; *tārā*—ellos; *āsi'*—acudiendo; *prabhu*—del Señor; *pāya*—pies de loto; *haya*—quedaron; *avanata*—rendidos.

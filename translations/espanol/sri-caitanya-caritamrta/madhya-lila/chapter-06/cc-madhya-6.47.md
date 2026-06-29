@@ -1,9 +1,9 @@
 ### CC Madhya 6.47
 
-> আজ্ঞা মাগি’ গেলা গোপীনাথ আচার্যকে লঞা ।
+> আজ্ঞা মাগি’ গেলা গোপীনাথ আচার্যকে লঞা ।\
 > প্রভুর নিকট আইলা ভোজন করিঞা ॥৪৭॥
 
-> ājñā māgi' gelā gopīnātha ācāryake lañā
+> ājñā māgi' gelā gopīnātha ācāryake lañā\
 > prabhura nikaṭa āilā bhojana kariñā
 
 *ājñā māgi'*—pidiendo permiso; *gelā*—fue; *gopīnātha ācāryake lañā*—llevándose a Gopīnātha Ācārya; *prabhura*—del Señor Caitanya Mahāprabhu; *nikaṭa*—cerca; *āilā*—fue; *bhojana kariñā*—después de almorzar.

@@ -1,13 +1,13 @@
 ### SB 4.30.43
 
-> मैत्रेय उवाच
-> इति प्रचेतोभिरभिष्टुतो हरिः प्रीतस्तथेत्याह शरण्यवत्सलः ।
+> मैत्रेय उवाच\
+> इति प्रचेतोभिरभिष्टुतो हरिः प्रीतस्तथेत्याह शरण्यवत्सलः ।\
 > अनिच्छतां यानमतृप्तचक्षुषां ययौ स्वधामानपवर्गवीर्यः ॥४३॥
 
-> maitreya uvāca
-> iti pracetobhir abhiṣṭuto hariḥ
-> prītas tathety āha śaraṇya-vatsalaḥ
-> anicchatāṁ yānam atṛpta-cakṣuṣāṁ
+> maitreya uvāca\
+> iti pracetobhir abhiṣṭuto hariḥ\
+> prītas tathety āha śaraṇya-vatsalaḥ\
+> anicchatāṁ yānam atṛpta-cakṣuṣāṁ\
 > yayau sva-dhāmānapavarga-vīryaḥ
 
 *maitreyaḥ uvāca*—Maitreya dijo; *iti*—así; *pracetobhiḥ*—por los Pracetās; *abhiṣṭutaḥ*—ser alabado; *hariḥ*—la Suprema Personalidad de Dios; *prītaḥ*—sentirse complacido; *tathā*—de ese modo; *iti*—así; *āha*—dijo; *śaraṇya*—hacia las almas entregadas; *vatsalaḥ*—afectuoso; *anicchatām*—sin desear; *yānam*—Su partida; *atṛpta*—no satisfechos; *cakṣuṣām*—sus ojos; *yayau*—Se fue; *sva-dhāma*—a Su propia morada; *anapavarga-vīryaḥ*—cuyo poder nunca es vencido.

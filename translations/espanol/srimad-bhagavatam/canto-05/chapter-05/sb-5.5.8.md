@@ -1,11 +1,11 @@
 ### SB 5.5.8
 
-> पुंसः स्त्रिया मिथुनीभावमेतं तयोर्मिथो हृदयग्रन्थिमाहुः
+> पुंसः स्त्रिया मिथुनीभावमेतं तयोर्मिथो हृदयग्रन्थिमाहुः\
 > अतो गृहक्षेत्रसुताप्तवित्तैर्जनस्य मोहोऽयमहं ममेति ॥८॥
 
-> puṁsaḥ striyā mithunī-bhāvam etaṁ
-> tayor mitho hṛdaya-granthim āhuḥ
-> ato gṛha-kṣetra-sutāpta-vittair
+> puṁsaḥ striyā mithunī-bhāvam etaṁ\
+> tayor mitho hṛdaya-granthim āhuḥ\
+> ato gṛha-kṣetra-sutāpta-vittair\
 > janasya moho 'yam ahaṁ mameti
 
 *puṁsaḥ*—de un varón; *striyāḥ*—de una hembra; *mithunī-bhāvam*—atracción sexual; *etam*—esta; *tayoḥ*—de ambos; *mithaḥ*—entre uno y otro; *hṛdaya-granthim*—el nudo de los corazones; *āhuḥ*—llaman; *ataḥ*—a continuación; *gṛha*—por el hogar; *kṣetra*—el campo; *suta*—los hijos; *āpta*—los parientes; *vittaiḥ*—y por las riquezas; *janasya*—del ser vivo; *mohaḥ*—ilusión; *ayam*—esto; *aham*—yo; *mama*—mío; *iti*—así.

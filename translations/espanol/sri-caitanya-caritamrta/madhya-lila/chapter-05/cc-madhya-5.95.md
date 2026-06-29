@@ -1,9 +1,9 @@
 ### CC Madhya 5.95
 
-> কৃষ্ণ কহে, — “প্রতিমা চলে, কোথাহ না শুনি ।”
+> কৃষ্ণ কহে, — “প্রতিমা চলে, কোথাহ না শুনি ।”\
 > বিপ্র বলে, — “প্রতিমা হঞা কহ কেনে বাণী ॥৯৫॥
 
-> kṛṣṇa kahe,--"pratimā cale, kothāha nā śuni"
+> kṛṣṇa kahe,--"pratimā cale, kothāha nā śuni"\
 > vipra bale,--"pratimā hañā kaha kene vāṇī
 
 *kṛṣṇa kahe*—el Señor Kṛṣṇa dice; *pratimā cale*—una Deidad camina; *kothāha*—en ningún lado; *nā śuni*—no he oído; *vipra bale*—el brāhmaṇa joven responde; *pratimā hañā*—en Tu forma de Deidad; *kaha kene vāṇī*—cómo es que pronuncias palabras.

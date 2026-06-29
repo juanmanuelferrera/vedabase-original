@@ -1,13 +1,13 @@
 ### SB 8.9.28
 
-> एवं सुरासुरगणाः समदेशकाल
-> हेत्वर्थकर्ममतयोऽपि फले विकल्पाः
-> तत्रामृतं सुरगणाः फलमञ्जसापुर
+> एवं सुरासुरगणाः समदेशकाल\
+> हेत्वर्थकर्ममतयोऽपि फले विकल्पाः\
+> तत्रामृतं सुरगणाः फलमञ्जसापुर\
 > यत्पादपङ्कजरजःश्रयणान्न दैत्याः ॥२८॥
 
-> evaṁ surāsura-gaṇāḥ sama-deśa-kāla-
-> hetv-artha-karma-matayo 'pi phale vikalpāḥ
-> tatrāmṛtaṁ sura-gaṇāḥ phalam añjasāpur
+> evaṁ surāsura-gaṇāḥ sama-deśa-kāla-\
+> hetv-artha-karma-matayo 'pi phale vikalpāḥ\
+> tatrāmṛtaṁ sura-gaṇāḥ phalam añjasāpur\
 > yat-pāda-paṅkaja-rajaḥ-śrayaṇān na daityāḥ
 
 *evam*—thus; *sura*—the demigods; *asura-gaṇāḥ*—and the demons; *sama*—equal; *deśa*—place; *kāla*—time; *hetu*—cause; *artha*—objective; *karma*—activities; *matayaḥ*—ambition; *api*—although one; *phale*—in the result; *vikalpāḥ*—not equal; *tatra*—thereupon; *amṛtam*—nectar; *sura-gaṇāḥ*—the demigods; *phalam*—the result; *añjasā*—easily, totally or directly; *āpuḥ*—achieved; *yat*—because of; *pāda-paṅkaja*—of the lotus feet of the Supreme Personality of Godhead; *rajaḥ*—of the saffron dust; *śrayaṇāt*—because of receiving benedictions or taking shelter; *na*—not; *daityāḥ*—the demons.

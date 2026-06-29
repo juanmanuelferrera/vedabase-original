@@ -1,11 +1,11 @@
 ### SB 9.11.36
 
-> बुभुजे च यथाकालं कामान्धर्ममपीडयन
+> बुभुजे च यथाकालं कामान्धर्ममपीडयन\
 > वर्षपूगान्बहून्नॄणामभिध्याताङ्घ्रिपल्लवः ॥३६॥
 
-> bubhuje ca yathā-kālaṁ
-> kāmān dharmam apīḍayan
-> varṣa-pūgān bahūn nṝṇām
+> bubhuje ca yathā-kālaṁ\
+> kāmān dharmam apīḍayan\
+> varṣa-pūgān bahūn nṝṇām\
 > abhidhyātāṅghri-pallavaḥ
 
 *bubhuje*—Él disfrutó; *ca*—también; *yathā-kālam*—mientras fue necesario; *kāmān*—de todo disfrute; *dharmam*—los principios religiosos; *apīḍayan*—sin quebrantar; *varṣa-pūgān*—duración de años; *bahūn*—muchos; *nṝṇām*—de la gente; *abhidhyāta*—ser el objeto de meditación; *aṅghri-pallavaḥ*—Sus pies de loto.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.218
 
-> শান্তের স্বভাব — কৃষ্ণে মমতা-গন্ধহীন ।
+> শান্তের স্বভাব — কৃষ্ণে মমতা-গন্ধহীন ।\
 > ‘পরংব্রহ্ম’-‘পরমাত্মা’-জ্ঞান-প্রবীণ ॥২১৮॥
 
-> śāntera svabhāva—kṛṣṇe mamatā-gandha-hīna
+> śāntera svabhāva—kṛṣṇe mamatā-gandha-hīna\
 > 'paraṁ-brahma'-'paramātmā'-jñāna pravīṇa
 
 *śāntera sva-bhāva*—the characteristic of *śānta-rasa*; *kṛṣṇe*—in Kṛṣṇa; *mamatā-gandha-hīna*—not even the smallest quantity of intimacy; *param-brahma*—impersonal Brahman; *paramātmā*—the localized situation of the Lord; *jñāna*—knowledge; *pravīṇa*—prominence.

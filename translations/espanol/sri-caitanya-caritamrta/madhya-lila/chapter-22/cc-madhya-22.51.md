@@ -1,10 +1,10 @@
 ### CC Madhya 22.51
 
-> মহৎ-কৃপা বিনা কোন কর্মে ‘ভক্তি’ নয় ।
+> মহৎ-কৃপা বিনা কোন কর্মে ‘ভক্তি’ নয় ।\
 > কৃষ্ণভক্তি দূরে রহু, সংসার নহে ক্ষয় ॥৫১॥
 
-> jāta-śraddhas tu yaḥ pumān
-> na nirviṇṇo nātisakto
+> jāta-śraddhas tu yaḥ pumān\
+> na nirviṇṇo nātisakto\
 > bhakti-yogo 'sya siddhidaḥ
 
 *yadṛcchayā*—por alguna buena fortuna; *mat-kathā-ādau*—en conversaciones acerca de Mí; *jāta-śraddhaḥ*—ha despertado su atracción; *tu*—pero; *yaḥ pumān*—una persona que; *na nirviṇṇaḥ*—no falsamente desapegada; *na atisaktaḥ*—no apegada a la existencia material; *bhakti-yogaḥ*—el proceso del servicio devocional; *asya*—para tal persona; *siddhi-daḥ*—que otorga la perfección.

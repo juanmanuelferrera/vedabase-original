@@ -1,18 +1,18 @@
 ### SB 4.29.26-27
 
-> यदात्मानमविज्ञाय भगवन्तं परं गुरुम् ।
-> पुरुषस्तु विषज्जेत गुणेषु प्रकृतेः स्वदृक् ॥२६॥
-> गुणाभिमानी स तदा कर्माणि कुरुतेऽवशः ।
+> यदात्मानमविज्ञाय भगवन्तं परं गुरुम् ।\
+> पुरुषस्तु विषज्जेत गुणेषु प्रकृतेः स्वदृक् ॥२६॥\
+> गुणाभिमानी स तदा कर्माणि कुरुतेऽवशः ।\
 > शुक्लं कृष्णं लोहितं वा यथाकर्माभिजायते ॥२७॥
 
-> yadātmānam avijñāya
-> bhagavantaṁ paraṁ gurum
-> puruṣas tu viṣajjeta
+> yadātmānam avijñāya\
+> bhagavantaṁ paraṁ gurum\
+> puruṣas tu viṣajjeta\
 > guṇeṣu prakṛteḥ sva-dṛk
 
-> guṇābhimānī sa tadā
-> karmāṇi kurute 'vaśaḥ
-> śuklaṁ kṛṣṇaṁ lohitaṁ vā
+> guṇābhimānī sa tadā\
+> karmāṇi kurute 'vaśaḥ\
+> śuklaṁ kṛṣṇaṁ lohitaṁ vā\
 > yathā-karmābhijāyate
 
 *yadā*—cuando; *ātmānam*—al Alma Suprema; *avijñāya*—olvidar; *bhagavantam*—a la Suprema Personalidad de Dios; *param*—supremo; *gurum*—al instructor; *puruṣaḥ*—la entidad viviente; *tu*—entonces; *viṣajjeta*—se abandona; *guṇeṣu*—a las modalidades; *prakṛteḥ*—de la naturaleza material; *sva-dṛk*—el que puede ver su propio bien; *guṇa-abhimānī*—identificado con las modalidades de la naturaleza; *saḥ*—él; *tadā*—en ese momento; *karmāṇi*—actividades fruitivas; *kurute*—ejecuta; *avaśaḥ*—espontáneamente; *śuklam*—blanco; *kṛṣṇam*—negro; *lohitam*—rojo; *vā*—o; *yathā*—conforme a; *karma*—actividad; *abhijāyate*—nace.

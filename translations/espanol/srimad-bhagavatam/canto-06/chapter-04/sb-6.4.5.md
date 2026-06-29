@@ -1,11 +1,11 @@
 ### SB 6.4.5
 
-> द्रुमेभ्यः क्रुध्यमानास्ते तपोदीपितमन्यवः
+> द्रुमेभ्यः क्रुध्यमानास्ते तपोदीपितमन्यवः\
 > मुखतो वायुमग्निं च ससृजुस्तद्दिधक्षया ॥५॥
 
-> drumebhyaḥ krudhyamānās te
-> tapo-dīpita-manyavaḥ
-> mukhato vāyum agniṁ ca
+> drumebhyaḥ krudhyamānās te\
+> tapo-dīpita-manyavaḥ\
+> mukhato vāyum agniṁ ca\
 > sasṛjus tad-didhakṣayā
 
 *drumebhyaḥ*—a los árboles; *krudhyamānāḥ*—estar muy irritados; *te*—ellos (los diez hijos de Prācīnabarhi); *tapaḥ-dīpita-manyavaḥ*—cuya ira se había encendido debido al largo tiempo que ejecutaron austeridad; *mukhataḥ*—de la boca; *vāyum*—viento; *agnim*—fuego; *ca*—y; *sasṛjuḥ*—crearon; *tat*—aquellos bosques; *didhakṣayā*—con el deseo de quemar.

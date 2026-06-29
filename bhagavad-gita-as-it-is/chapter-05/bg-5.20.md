@@ -1,11 +1,11 @@
 ### Bg 5.20
 
-> न प्रहृष्येत्प्रियं प्राप्य नोद्विजेत्प्राप्य चाप्रियम् ।
+> न प्रहृष्येत्प्रियं प्राप्य नोद्विजेत्प्राप्य चाप्रियम् ।\
 > स्थिरबुद्धिरसम्मूढो ब्रह्मविद् ब्रह्मणि स्थितः ॥२०॥
 
-> na prahṛṣyet priyaṁ prāpya
-> nodvijet prāpya cāpriyam
-> sthira-buddhir asammūḍho
+> na prahṛṣyet priyaṁ prāpya\
+> nodvijet prāpya cāpriyam\
+> sthira-buddhir asammūḍho\
 > brahma-vid brahmaṇi sthitaḥ
 
 *na*—never; *prahṛṣyet*—rejoice; *priyam*—pleasant; *prāpya*—achieving; *na*—does not; *udvijet*—agitated; *prāpya*—obtaining; *ca*—also; *apriyam*—unpleasant; *sthira-buddhiḥ*—self-intelligent; *asammūḍhaḥ*—unbewildered; *brahmavit*—one who knows the Supreme perfectly; *brahmaṇi*—in the Transcendence; *sthitaḥ*—situated.

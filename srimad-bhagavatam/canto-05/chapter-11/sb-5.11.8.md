@@ -1,14 +1,14 @@
 ### SB 5.11.8
 
-> गुणानुरक्तं व्यसनाय जन्तोः क्षेमाय नैर्गुण्यमथो मनः स्यात
-> यथा प्रदीपो घृतवर्तिमश्नन्शिखाः सधूमा भजति ह्यन्यदा स्वम
+> गुणानुरक्तं व्यसनाय जन्तोः क्षेमाय नैर्गुण्यमथो मनः स्यात\
+> यथा प्रदीपो घृतवर्तिमश्नन्शिखाः सधूमा भजति ह्यन्यदा स्वम\
 > पदं तथा गुणकर्मानुबद्धं वृत्तीर्मनः श्रयतेऽन्यत्र तत्त्वम ॥८॥
 
-> guṇānuraktaṁ vyasanāya jantoḥ
-> kṣemāya nairguṇyam atho manaḥ syāt
-> yathā pradīpo ghṛta-vartim aśnan
-> śikhāḥ sadhūmā bhajati hy anyadā svam
-> padaṁ tathā guṇa-karmānubaddhaṁ
+> guṇānuraktaṁ vyasanāya jantoḥ\
+> kṣemāya nairguṇyam atho manaḥ syāt\
+> yathā pradīpo ghṛta-vartim aśnan\
+> śikhāḥ sadhūmā bhajati hy anyadā svam\
+> padaṁ tathā guṇa-karmānubaddhaṁ\
 > vṛttīr manaḥ śrayate 'nyatra tattvam
 
 *guṇa-anuraktam*—being attached to the material modes of nature; *vyasanāya*—for the conditioning in material existence; *jantoḥ*—of the living entity; *kṣemāya*—for the ultimate welfare; *nairguṇyam*—being unaffected by the material modes of nature; *atho*—thus; *manaḥ*—the mind; *syāt*—becomes; *yathā*—as much as; *pradīpaḥ*—a lamp; *ghṛta-vartim*—a wick within clarified butter; *aśnan*—burning; *śikhāḥ*—the flame; *sadhūmāḥ*—with smoke; *bhajati*—enjoys; *hi*—certainly; *anyadā*—otherwise; *svam*—its own original; *padam*—position; *tathā*—so; *guṇa-karma-anubaddham*—bound by the modes of nature and the reactions of material activities; *vṛttīḥ*—various engagements; *manaḥ*—the mind; *śrayate*—takes shelter of; *anyatra*—otherwise; *tattvam*—its original condition.

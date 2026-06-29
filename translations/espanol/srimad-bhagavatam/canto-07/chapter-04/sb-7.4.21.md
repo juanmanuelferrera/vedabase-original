@@ -1,11 +1,11 @@
 ### SB 7.4.21
 
-> तस्योग्रदण्डसंविग्नाः सर्वे लोकाः सपालकाः
+> तस्योग्रदण्डसंविग्नाः सर्वे लोकाः सपालकाः\
 > अन्यत्रालब्धशरणाः शरणं ययुरच्युतम ॥२१॥
 
-> tasyogra-daṇḍa-saṁvignāḥ
-> sarve lokāḥ sapālakāḥ
-> anyatrālabdha-śaraṇāḥ
+> tasyogra-daṇḍa-saṁvignāḥ\
+> sarve lokāḥ sapālakāḥ\
+> anyatrālabdha-śaraṇāḥ\
 > śaraṇaṁ yayur acyutam
 
 *tasya*—de él (Hiraṇyakaśipu); *ugra-daṇḍa*—por el muy terrible castigo; *saṁvignāḥ*—perturbados; *sarve*—todos; *lokāḥ*—los planetas; *sa-pālakāḥ*—con sus principales gobernantes; *anyatra*—en ningún otro lugar; *alabdha*—sin obtener; *śaraṇāḥ*—refugio; *śaraṇam*—en busca de refugio; *yayuḥ*—acudieron; *acyutam*—a la Suprema Personalidad de Dios.

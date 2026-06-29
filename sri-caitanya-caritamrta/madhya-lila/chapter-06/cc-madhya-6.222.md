@@ -1,9 +1,9 @@
 ### CC Madhya 6.222
 
-> বসিতে আসন দিয়া দুঁহেত বসিলা ।
+> বসিতে আসন দিয়া দুঁহেত বসিলা ।\
 > প্রসাদান্ন খুলি’ প্রভু তাঁর হাতে দিলা ॥২২২॥
 
-> vasite āsana diyā duṅheta vasilā
+> vasite āsana diyā duṅheta vasilā\
 > prasādānna khuli' prabhu tāṅra hāte dilā
 
 *vasite*—to sit; *āsana*—carpet; *diyā*—offering; *duṅheta*—both of them; *vasilā*—sat down; *prasāda-anna*—the *prasāda*; *khuli'*—opening; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅra*—his; *hāte*—in the hand; *dilā*—offered.

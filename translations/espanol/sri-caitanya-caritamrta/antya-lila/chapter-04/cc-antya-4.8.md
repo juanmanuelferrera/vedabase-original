@@ -1,9 +1,9 @@
 ### CC Antya 4.8
 
-> মন্দির-নিকটে শুনি তাঁর বাসা-স্থিতি  ।
+> মন্দির-নিকটে শুনি তাঁর বাসা-স্থিতি  ।\
 > মন্দির-নিকটে যাইতে মোর নাহি শক্তি ॥৮॥
 
-> mandira-nikaṭe śuni tāṅra vāsā-sthiti
+> mandira-nikaṭe śuni tāṅra vāsā-sthiti\
 > mandira-nikaṭe yāite mora nāhi śakti
 
 *mandira-nikaṭe*—cerca del templo; *śuni*—oigo; *tāṅra*—Su; *vāsā-sthiti*—lugar de residencia; *mandira-nikaṭe*—cerca del templo; *yāite*—ir; *mora*—mi; *nāhi śakti*—no hay capacidad.

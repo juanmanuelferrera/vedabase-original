@@ -1,11 +1,11 @@
 ### SB 6.8.38
 
-> इमां विद्यां पुरा कश्चित्कौशिको धारयन्द्विजः
+> इमां विद्यां पुरा कश्चित्कौशिको धारयन्द्विजः\
 > योगधारणया स्वाङ्गं जहौ स मरुधन्वनि ॥३८॥
 
-> imāṁ vidyāṁ purā kaścit
-> kauśiko dhārayan dvijaḥ
-> yoga-dhāraṇayā svāṅgaṁ
+> imāṁ vidyāṁ purā kaścit\
+> kauśiko dhārayan dvijaḥ\
+> yoga-dhāraṇayā svāṅgaṁ\
 > jahau sa maru-dhanvani
 
 *imām*—esta; *vidyām*—oración; *purā*—en el pasado; *kaścit*—alguien; *kauśikaḥ*—Kauśika; *dhārayan*—usar; *dvijaḥ*—un *brāhmaṇa*; *yoga-dhāraṇayā*—mediante el poder místico; *sva-aṅgam*—su propio cuerpo; *jahau*—abandonó; *saḥ*—él; *maru-dhanvani*—en el desierto.

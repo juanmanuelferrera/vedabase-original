@@ -1,11 +1,11 @@
 ### SB 2.9.32
 
-> यावानहं यथाभावो यद्रूपगुणकर्मकः ।
+> यावानहं यथाभावो यद्रूपगुणकर्मकः ।\
 > तथैव तत्त्वविज्ञानमस्तु ते मदनुग्रहात् ॥३२॥
 
-> yāvān ahaṁ yathā-bhāvo
-> yad-rūpa-guṇa-karmakaḥ
-> tathaiva tattva-vijñānam
+> yāvān ahaṁ yathā-bhāvo\
+> yad-rūpa-guṇa-karmakaḥ\
+> tathaiva tattva-vijñānam\
 > astu te mad-anugrahāt
 
 *yāvān*—as I am in eternal form; *aham*—Myself; *yathā*—as much as; *bhāvaḥ*—transcendental existence; *yat*—those; *rūpa*—various forms and colors; *guṇa*—qualities; *karmakaḥ*—activities; *tathā*—so and so; *eva*—certainly; *tattva-vijñānam*—factual realization; *astu*—let it be; *te*—unto you; *mat*—My; *anugrahāt*—by causeless mercy.

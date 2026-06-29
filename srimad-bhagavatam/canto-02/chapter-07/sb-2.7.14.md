@@ -1,13 +1,13 @@
 ### SB 2.7.14
 
-> त्रैपिष्टपोरुभयहा स नृसिंहरूपं
-> कृत्वा भ्रमद्भ्रुकुटिदंष्ट्रकरालवक्त्रम् ।
-> दैत्येन्द्रमाशु गदयाभिपतन्तमाराद्
+> त्रैपिष्टपोरुभयहा स नृसिंहरूपं\
+> कृत्वा भ्रमद्भ्रुकुटिदंष्ट्रकरालवक्त्रम् ।\
+> दैत्येन्द्रमाशु गदयाभिपतन्तमाराद्\
 > ऊरौ निपात्य विददार नखैः स्फुरन्तम् ॥१४॥
 
-> trai-piṣṭaporu-bhaya-hā sa nṛsiṁha-rūpaṁ
-> kṛtvā bhramad-bhrukuṭi-daṁṣṭra-karāla-vaktram
-> daityendram āśu gadayābhipatantam ārād
+> trai-piṣṭaporu-bhaya-hā sa nṛsiṁha-rūpaṁ\
+> kṛtvā bhramad-bhrukuṭi-daṁṣṭra-karāla-vaktram\
+> daityendram āśu gadayābhipatantam ārād\
 > ūrau nipātya vidadāra nakhaiḥ sphurantam
 
 *trai-piṣṭapa*—the demigods; *uru-bhaya-hā*—one who vanquishes great fears; *saḥ*—He (the Personality of Godhead); *nṛsiṁha-rūpam*—assuming the incarnation Nṛsiṁha; *kṛtvā*—doing so; *bhramat*—by rolling; *bhru-kuṭi*—eyebrows; *daṁṣṭra*—teeth; *karāla*—greatly fearful; *vaktram*—mouth; *daitya-indram*—the king of the demons; *āśu*—immediately; *gadayā*—with club in hand; *abhipatantam*—while falling down; *ārāt*—nearby; *ūrau*—on the thighs; *nipātya*—placing on; *vidadāra*—pierced; *nakhaiḥ*—by the nails; *sphurantam*—while challenging.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.70
 
-> প্রেমাবেশে নৃত্য-গীত বহুত করিল ৷
+> প্রেমাবেশে নৃত্য-গীত বহুত করিল ৷\
 > দিন-দুই রহি’ লোকে’ ‘কৃষ্ণভক্ত’ কৈল ৷৷ ৭০ ৷৷ ॥৭০॥
 
-> premāveśe nṛtya-gīta bahuta karila
+> premāveśe nṛtya-gīta bahuta karila\
 > dina-dui rahi' loke 'kṛṣṇa-bhakta' kaila
 
 *prema-āveśe*—en éxtasis de amor; *nṛtya-gīta*—danza y canto; *bahuta*—mucho; *karila*—realizó; *dina-dui*—durante dos días; *rahi'*—permaneciendo; *loke*—a las personas en general; *kṛṣṇa-bhakta*—devotos del Señor Kṛṣṇa; *kaila*—convirtió.

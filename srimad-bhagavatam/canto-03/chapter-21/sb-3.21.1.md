@@ -1,13 +1,13 @@
 ### SB 3.21.1
 
-> विदुर उवाच
-> स्वायम्भुवस्य च मनोरंशः परमसम्मतः ।
+> विदुर उवाच\
+> स्वायम्भुवस्य च मनोरंशः परमसम्मतः ।\
 > कथ्यतां भगवन्यत्र मैथुनेनैधिरे प्रजाः ॥१॥
 
-> vidura uvāca
-> svāyambhuvasya ca manor
-> vaṁśaḥ parama-sammataḥ
-> kathyatāṁ bhagavan yatra
+> vidura uvāca\
+> svāyambhuvasya ca manor\
+> vaṁśaḥ parama-sammataḥ\
+> kathyatāṁ bhagavan yatra\
 > maithunenaidhire prajāḥ
 
 *viduraḥ uvāca*—Vidura said; *svāyambhuvasya*—of Svāyambhuva; *ca*—and; *manoḥ*—of Manu; *vaṁśaḥ*—the dynasty; *parama*—most; *sammataḥ*—esteemed; *kathyatām*—kindly describe; *bhagavan*—O worshipful sage; *yatra*—in which; *maithunena*—through sexual intercourse; *edhire*—multiplied; *prajāḥ*—the progeny.

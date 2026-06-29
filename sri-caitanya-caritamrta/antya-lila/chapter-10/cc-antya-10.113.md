@@ -1,9 +1,9 @@
 ### CC Antya 10.113
 
-> কাহাঁ কিছু কহি’ গোবিন্দ করে বঞ্চন  ।
+> কাহাঁ কিছু কহি’ গোবিন্দ করে বঞ্চন  ।\
 > আর দিন প্রভুরে কহে নির্বেদ-বচন ॥১১৩॥
 
-> kāhāṅ kichu kahi' govinda kare vañcana
+> kāhāṅ kichu kahi' govinda kare vañcana\
 > āra dina prabhure kahe nirveda-vacana
 
 *kāhāṅ*—to someone; *kichu*—something; *kahi'*—saying; *govinda*—Govinda; *kare vañcana*—told lies; *āra dina*—one day; *prabhure*—unto Śrī Caitanya Mahāprabhu; *kahe*—said; *nirveda-vacana*—a statement of disappointment.

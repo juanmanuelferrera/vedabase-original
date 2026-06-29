@@ -1,9 +1,9 @@
 ### CC Adi 2.19
 
-> অনন্ত স্ফটিকে যৈছে এক সূর্য ভাসে ।
+> অনন্ত স্ফটিকে যৈছে এক সূর্য ভাসে ।\
 > তৈছে জীবে গোবিন্দের অংশ প্রকাশে ॥১৯॥
 
-> ananta sphaṭike yaiche eka sūrya bhāse
+> ananta sphaṭike yaiche eka sūrya bhāse\
 > taiche jīve govindera aṁśa prakāśe
 
 *ananta*—ilimitados; *sphaṭike*—en cristales; *yaiche*—así como; *eka*—un; *sūrya*—sol; *bhāse*—aparece; *taiche*—del mismo modo; *jīve*—en la entidad viviente; *govindera*—de Govinda; *aṁśa*—porción; *prakāśe*—se manifiesta.

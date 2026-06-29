@@ -1,11 +1,11 @@
 ### SB 9.13.6
 
-> इत्युत्ससर्ज स्वं देहं निमिरध्यात्मकोविदः
+> इत्युत्ससर्ज स्वं देहं निमिरध्यात्मकोविदः\
 > मित्रावरुणयोर्जज्ञए उर्वश्यां प्रपितामहः ॥६॥
 
-> ity utsasarja svaṁ dehaṁ
-> nimir adhyātma-kovidaḥ
-> mitrā-varuṇayor jajñe
+> ity utsasarja svaṁ dehaṁ\
+> nimir adhyātma-kovidaḥ\
+> mitrā-varuṇayor jajñe\
 > urvaśyāṁ prapitāmahaḥ
 
 *iti*—así; *utsasarja*—abandonó; *svam*—su propio; *deham*—cuerpo; *nimiḥ*—Mahārāja Nimi; *adhyātma-kovidaḥ*—plenamente versado en el conocimiento védico; *mitrā-varuṇayoḥ*—del semen de Mitra y Varuṇa (que perdieron al ver la belleza de Urvaśī); *jajñe*—nació; *urvaśyām*—a través de Urvaśī, una prostituta del reino celestial; *prapitāmahaḥ*—Vasiṣṭha, conocido como el bisabuelo.

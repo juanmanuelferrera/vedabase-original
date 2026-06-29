@@ -1,9 +1,9 @@
 ### CC Madhya 21.65
 
-> ‘কোন্ ব্রহ্মা?’ পুছিলে তুমি কোন্ অভিপ্রায়ে ?
+> ‘কোন্ ব্রহ্মা?’ পুছিলে তুমি কোন্ অভিপ্রায়ে ?\
 > আমা বই জগতে আর কোন্ ব্রহ্মা হয়ে ?’ ॥ ৬৫ ॥
 
-> 'kon brahmā?' puchile tumi kon abhiprāye?
+> 'kon brahmā?' puchile tumi kon abhiprāye?\
 > āmā ba-i jagate āra kon brahmā haye?'
 
 *kon brahmā*—which Brahmā; *puchile tumi*—You inquired; *kon abhiprāye*—by what intention; *āmā ba-i*—except me; *jagate*—within this universe; *āra*—other; *kon*—which; *brahmā*—Lord Brahmā; *haye*—is there.

@@ -1,9 +1,9 @@
 ### CC Adi 13.89
 
-> চৌদ্দশত সাতশকে মাস যে ফাল্গুন ।
+> চৌদ্দশত সাতশকে মাস যে ফাল্গুন ।\
 > পৌর্ণমাসীর সন্ধ্যাকালে হৈলে শুভক্ষণ ॥৮৯॥
 
-> caudda-śata sāta-śake māsa ye phālguna
+> caudda-śata sāta-śake māsa ye phālguna\
 > paurṇamāsīra sandhyā-kāle haile śubha-kṣaṇa
 
 *caudda-śata sāta-śake*—in 1407 of the Śaka Era (A.D. 1486); *māsa*—month; *ye*—which; *phālguna*—of the name Phālguna; *paurṇamāsira*—of the full moon; *sandhyā-kāle*—in the evening; *haile*—there was; *śubha-kṣaṇa*—an auspicious constellation.

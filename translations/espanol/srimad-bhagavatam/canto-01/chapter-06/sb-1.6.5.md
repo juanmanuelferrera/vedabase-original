@@ -1,13 +1,13 @@
 ### SB 1.6.5
 
-> नारद उवाच
-> भिक्षुभिर्विप्रवसिते विज्ञानादेष्टृभिर्मम ।
+> नारद उवाच\
+> भिक्षुभिर्विप्रवसिते विज्ञानादेष्टृभिर्मम ।\
 > वर्तमानो वयस्याद्ये तत एतदकारषम् ॥५॥
 
-> nārada uvāca
-> bhikṣubhir vipravasite
-> vijñānādeṣṭṛbhir mama
-> vartamāno vayasy ādye
+> nārada uvāca\
+> bhikṣubhir vipravasite\
+> vijñānādeṣṭṛbhir mama\
+> vartamāno vayasy ādye\
 > tata etad akāraṣam
 
 *nāradaḥ uvāca*—Śrī Nārada dijo; *bhikṣubhiḥ*—por los grandes sabios; *vipravasite*—habiendo partido para otros lugares; *vijñāna*—conocimiento espiritual y científico; *ādeṣṭṛbhiḥ*—aquellos que me impartieron; *mama*—mía; *vartamānaḥ*—actual; *vayasi ādye*—antes de esta vida; *tataḥ*—después; *etat*—este tanto; *akāraṣam*—realizado.

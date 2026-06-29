@@ -1,9 +1,9 @@
 ### CC Adi 10.39
 
-> নন্দন-আচার্য-শাখা জগতে বিদিত ।
+> নন্দন-আচার্য-শাখা জগতে বিদিত ।\
 > লুকাইয়া দুই প্রভুর যাঁর ঘরে স্থিত ॥৩৯॥
 
-> nandana-ācārya-śākhā jagate vidita
+> nandana-ācārya-śākhā jagate vidita\
 > lukāiyā dui prabhura yāṅra ghare sthita
 
 *nandana-ācārya*—of the name Nandana Ācārya; *śākhā*—the seventeenth branch; *jagate*—in the world; *vidita*—celebrated; *lukāiyā*—hiding; *dui*—two; *prabhura*—of the Lords; *yāṅra*—of whom; *ghare*—in the house; *sthita*—situated.

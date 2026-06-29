@@ -1,9 +1,9 @@
 ### CC Adi 17.45
 
-> তিন দিন রহি’ সেই গোপাল-চাপাল ।
+> তিন দিন রহি’ সেই গোপাল-চাপাল ।\
 > সর্বাঙ্গে হইল কুষ্ঠ, বহে রক্তধার ॥৪৫॥
 
-> tina dina rahi' sei gopāla-cāpāla
+> tina dina rahi' sei gopāla-cāpāla\
 > sarvāṅge ha-ila kuṣṭha, vahe rakta-dhāra
 
 *tina dina*—tres días; *rahi'*—permaneciendo así; *sei*—ese; *gopāla-cāpāla*—de nombre Gopāla Cāpāla; *sarva-aṅge*—por todo el cuerpo; *ha-ila*—se manifestó; *kuṣṭha*—lepra; *vahe*—supurando; *rakta-dhāra*—un flujo de sangre.

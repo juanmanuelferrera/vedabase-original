@@ -1,9 +1,9 @@
 ### CC Antya 13.40
 
-> আমিহ আসিতেছি, — কহিহ সনাতনে ।
+> আমিহ আসিতেছি, — কহিহ সনাতনে ।\
 > আমার তরে একস্থান যেন করে বৃন্দাবনে ।।” ॥ ৪০ ॥
 
-> āmiha āsitechi,--kahiha sanātane
+> āmiha āsitechi,--kahiha sanātane\
 > āmāra tare eka-sthāna yena kare vṛndāvane"
 
 *āmiha*—Yo también; *āsitechi*—voy a ir; *kahiha sanātane*—informa a Sanātana Gosvāmī; *āmāra tare*—para Mí; *eka-sthāna*—un lugar; *yena*—para que; *kare*—pueda preparar; *vṛndāvane*—en Vṛndāvana.

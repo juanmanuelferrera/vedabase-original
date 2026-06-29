@@ -1,11 +1,11 @@
 ### SB 8.13.35
 
-> सत्रायणस्य तनयो बृहद्भानुस्तदा हरिः
+> सत्रायणस्य तनयो बृहद्भानुस्तदा हरिः\
 > वितानायां महाराज क्रियातन्तून्वितायिता ॥३५॥
 
-> satrāyaṇasya tanayo
-> bṛhadbhānus tadā hariḥ
-> vitānāyāṁ mahārāja
+> satrāyaṇasya tanayo\
+> bṛhadbhānus tadā hariḥ\
+> vitānāyāṁ mahārāja\
 > kriyā-tantūn vitāyitā
 
 *satrāyaṇasya*—of Satrāyaṇa; *tanayaḥ*—the son; *bṛhadbhānuḥ*—Bṛhadbhānu; *tadā*—at that time; *hariḥ*—the Supreme Personality of Godhead; *vitānāyām*—in the womb of Vitānā; *mahā-rāja*—O King; *kriyā-tantūn*—all spiritual activities; *vitāyitā*—will perform.

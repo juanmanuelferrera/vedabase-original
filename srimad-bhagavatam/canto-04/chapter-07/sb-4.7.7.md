@@ -1,11 +1,11 @@
 ### SB 4.7.7
 
-> ततो मीढ्वांसमामन्त्र्य शुनासीराः सहर्षिभिः ।
+> ततो मीढ्वांसमामन्त्र्य शुनासीराः सहर्षिभिः ।\
 > भूयस्तद्देवयजनं समीढ्वद्वेधसो ययुः ॥७॥
 
-> tato mīḍhvāṁsam āmantrya
-> śunāsīrāḥ saharṣibhiḥ
-> bhūyas tad deva-yajanaṁ
+> tato mīḍhvāṁsam āmantrya\
+> śunāsīrāḥ saharṣibhiḥ\
+> bhūyas tad deva-yajanaṁ\
 > sa-mīḍhvad-vedhaso yayuḥ
 
 *tataḥ*—thereafter; *mīḍhvāṁsam*—Lord Śiva; *āmantrya*—inviting; *śunāsīrāḥ*—the demigods headed by King Indra; *saha ṛṣibhiḥ*—with all the great sages, headed by Bhṛgu; *bhūyaḥ*—again; *tat*—that; *deva-yajanam*—place where the demigods are worshiped; *sa-mīḍhvat*—with Lord Śiva; *vedhasaḥ*—with Lord Brahmā; *yayuḥ*—went.

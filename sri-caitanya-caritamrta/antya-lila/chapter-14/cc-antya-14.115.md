@@ -1,9 +1,9 @@
 ### CC Antya 14.115
 
-> প্রভু কহে, — ‘দুঁহে কেনে আইলা এত দূরে’ ?
+> প্রভু কহে, — ‘দুঁহে কেনে আইলা এত দূরে’ ?\
 > পুরীগোসাঞি কহে, — ‘তোমার নৃত্য দেখিবারে’ ॥১১৫॥
 
-> prabhu kahe,—'duṅhe kene āilā eta dūre'?
+> prabhu kahe,—'duṅhe kene āilā eta dūre'?\
 > purī-gosāñi kahe,—'tomāra nṛtya dekhibāre'
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *duṅhe*—both of you; *kene*—why; *āilā*—have come; *eta dūre*—so far; *purī-gosāñi kahe*—Purī Gosāñi said; *tomāra nṛtya*—Your dancing; *dekhibāre*—to see.

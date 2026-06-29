@@ -1,11 +1,11 @@
 ### SB 3.32.5
 
-> ये स्वधर्मान्न दुह्यन्ति धीराः कामार्थहेतवे ।
+> ये स्वधर्मान्न दुह्यन्ति धीराः कामार्थहेतवे ।\
 > निःसङ्गा न्यस्तकर्माणः प्रशान्ताः शुद्धचेतसः ॥५॥
 
-> ye sva-dharmān na duhyanti
-> dhīrāḥ kāmārtha-hetave
-> niḥsaṅgā nyasta-karmāṇaḥ
+> ye sva-dharmān na duhyanti\
+> dhīrāḥ kāmārtha-hetave\
+> niḥsaṅgā nyasta-karmāṇaḥ\
 > praśāntāḥ śuddha-cetasaḥ
 
 *ye*—those who; *sva-dharmān*—their own occupational duties; *na*—do not; *duhyanti*—take advantage of; *dhīrāḥ*—intelligent; *kāma*—sense gratification; *artha*—economic development; *hetave*—for the sake of; *niḥsaṅgāḥ*—free from material attachment; *nyasta*—given up; *karmāṇaḥ*—fruitive activities; *praśāntāḥ*—satisfied; *śuddha-cetasaḥ*—of purified consciousness.

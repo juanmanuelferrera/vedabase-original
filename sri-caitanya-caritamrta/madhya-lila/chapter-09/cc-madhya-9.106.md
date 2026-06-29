@@ -1,9 +1,9 @@
 ### CC Madhya 9.106
 
-> তবে মহাপ্রভু তাঁরে করাইল শিক্ষণ ।
+> তবে মহাপ্রভু তাঁরে করাইল শিক্ষণ ।\
 > এই বাত্ কাহাঁ না করিহ প্রকাশন ॥১০৬॥
 
-> tabe mahāprabhu tāṅre karāila śikṣaṇa
+> tabe mahāprabhu tāṅre karāila śikṣaṇa\
 > ei bāt kāhāṅ nā kariha prakāśana
 
 *tabe*—then; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—unto the *brāhmaṇa*; *karāila*—made; *śikṣaṇa*—instruction; *ei bāt*—this version; *kāhāṅ*—anywhere; *nā*—do not; *kariha*—do; *prakāśana*—revelation.

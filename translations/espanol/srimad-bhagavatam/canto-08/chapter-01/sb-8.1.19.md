@@ -1,11 +1,11 @@
 ### SB 8.1.19
 
-> स्वारोचिषो द्वितीयस्तु मनुरग्नेः सुतोऽभवत
+> स्वारोचिषो द्वितीयस्तु मनुरग्नेः सुतोऽभवत\
 > द्युमत्सुषेणरोचिष्मत्प्रमुखास्तस्य चात्मजाः ॥१९॥
 
-> svārociṣo dvitīyas tu
-> manur agneḥ suto 'bhavat
-> dyumat-suṣeṇa-rociṣmat
+> svārociṣo dvitīyas tu\
+> manur agneḥ suto 'bhavat\
+> dyumat-suṣeṇa-rociṣmat\
 > pramukhās tasya cātmajāḥ
 
 *svārociṣaḥ*—Svārociṣa; *dvitīyaḥ*—el segundo; *tu*—en verdad; *manuḥ*—*manu*; *agneḥ*—de Agni; *sutaḥ*—el hijo; *abhavat*—fue; *dyumat*—Dyumat; *suṣeṇa*—Suṣeṇa; *rociṣmat*—Rociṣmat; *pramukhāḥ*—comenzando con ellos; *tasya*—de él (de Svārociṣa); *ca*—también; *ātma-jāḥ*—hijos.

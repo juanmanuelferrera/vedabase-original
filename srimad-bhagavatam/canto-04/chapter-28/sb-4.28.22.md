@@ -1,11 +1,11 @@
 ### SB 4.28.22
 
-> एवं कृपणया बुद्ध्या शोचन्तमतदर्हणम् ।
+> एवं कृपणया बुद्ध्या शोचन्तमतदर्हणम् ।\
 > ग्रहीतुं कृतधीरेनं भयनामाभ्यपद्यत ॥२२॥
 
-> evaṁ kṛpaṇayā buddhyā
-> śocantam atad-arhaṇam
-> grahītuṁ kṛta-dhīr enaṁ
+> evaṁ kṛpaṇayā buddhyā\
+> śocantam atad-arhaṇam\
+> grahītuṁ kṛta-dhīr enaṁ\
 > bhaya-nāmābhyapadyata
 
 *evam*—thus; *kṛpaṇayā*—by miserly; *buddhyā*—intelligence; *śocantam*—lamenting; *a-tat-arhaṇam*—on which he should not have lamented; *grahītum*—in order to arrest; *kṛta-dhīḥ*—the determined King of the Yavanas; *enam*—him; *bhaya-nāmā*—whose name was fear; *abhyapadyata*—came there immediately.

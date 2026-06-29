@@ -1,9 +1,9 @@
 ### CC Antya 5.81
 
-> এইসব গুণ তাঁর প্রকাশ করিতে ।
+> এইসব গুণ তাঁর প্রকাশ করিতে ।\
 > মিশ্রেরে পাঠাইলা তাহাঁ শ্রবণ করিতে ॥৮১॥
 
-> ei-saba guṇa tāṅra prakāśa karite
+> ei-saba guṇa tāṅra prakāśa karite\
 > miśrere pāṭhāilā tāhāṅ śravaṇa karite
 
 *ei-saba*—todos estos; *guṇa*—atributos; *tāṅra*—de Rāmānanda Rāya; *prakāśa karite*—para demostrar; *miśrere*—a Pradyumna Miśra; *pāṭhāilā*—envió; *tāhāṅ*—allí; *śravaṇa karite*—a escuchar.

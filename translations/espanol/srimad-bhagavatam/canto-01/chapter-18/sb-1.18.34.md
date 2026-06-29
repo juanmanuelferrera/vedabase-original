@@ -1,11 +1,11 @@
 ### SB 1.18.34
 
-> ब्राह्मणैः क्षत्रबन्धुर्हि गृहपालो निरूपितः ।
+> ब्राह्मणैः क्षत्रबन्धुर्हि गृहपालो निरूपितः ।\
 > स कथं तद्गृहे द्वाःस्थः सभाण्डं भोक्तुमर्हति ॥३४॥
 
-> brāhmaṇaiḥ kṣatra-bandhur hi
-> gṛha-pālo nirūpitaḥ
-> sa kathaṁ tad-gṛhe dvāḥ-sthaḥ
+> brāhmaṇaiḥ kṣatra-bandhur hi\
+> gṛha-pālo nirūpitaḥ\
+> sa kathaṁ tad-gṛhe dvāḥ-sthaḥ\
 > sabhāṇḍaṁ bhoktum arhati
 
 *brāhmaṇaiḥ*—por la orden brahmínica; *kṣatra-bandhuḥ*—los hijos de los *kṣatriyas*; *hi*—ciertamente; *gṛha-pālaḥ*—el perro guardián; *nirūpitaḥ*—designado; *saḥ*—él; *katham*—con qué derecho; *tat-gṛhe*—en la casa de él (el amo); *dvāḥ-sthaḥ*—manteniendo en la puerta; *sa-bhāṇḍam*—en el mismo tarro; *bhoktum*—comer; *arhati*—merece.

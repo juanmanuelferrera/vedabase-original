@@ -1,13 +1,13 @@
 ### SB 2.7.5
 
-> तप्तं तपो विविधलोकसिसृक्षया मे
-> आदौ सनात्स्वतपसः स चतुःसनोऽभूत् ।
-> प्राक्कल्पसम्प्लवविनष्टमिहात्मतत्त्वं
+> तप्तं तपो विविधलोकसिसृक्षया मे\
+> आदौ सनात्स्वतपसः स चतुःसनोऽभूत् ।\
+> प्राक्कल्पसम्प्लवविनष्टमिहात्मतत्त्वं\
 > सम्यग्जगाद मुनयो यदचक्षतात्मन् ॥५॥
 
-> taptaṁ tapo vividha-loka-sisṛkṣayā me
-> ādau sanāt sva-tapasaḥ sa catuḥ-sano 'bhūt
-> prāk-kalpa-samplava-vinaṣṭam ihātma-tattvaṁ
+> taptaṁ tapo vividha-loka-sisṛkṣayā me\
+> ādau sanāt sva-tapasaḥ sa catuḥ-sano 'bhūt\
+> prāk-kalpa-samplava-vinaṣṭam ihātma-tattvaṁ\
 > samyag jagāda munayo yad acakṣatātman
 
 *taptam*—having undergone austerities; *tapaḥ*—penance; *vividha-loka*—different planetary systems; *sisṛkṣayā*—desiring to create; *me*—of mine; *ādau*—at first; *sanāt*—from the Personality of Godhead; *sva-tapasaḥ*—by dint of my own penances; *saḥ*—He (the Lord); *catuḥ-sanaḥ*—the four bachelors named Sanat-kumāra, Sanaka, Sanandana and Sanātana; *abhūt*—appeared; *prāk*—previous; *kalpa*—creation; *samplava*—in the inundation; *vinaṣṭam*—devastated; *iha*—in this material world; *ātma*—the spirit; *tattvam*—truth; *samyak*—in complete; *jagāda*—became manifested; *munayaḥ*—sages; *yat*—that which; *acakṣata*—saw clearly; *ātman*—the spirit.

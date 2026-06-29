@@ -1,11 +1,11 @@
 ### SB 3.17.18
 
-> प्रजापतिर्नाम तयोरकार्षीद्यः प्राक्स्वदेहाद्यमयोरजायत ।
+> प्रजापतिर्नाम तयोरकार्षीद्यः प्राक्स्वदेहाद्यमयोरजायत ।\
 > तं वै हिरण्यकशिपुं विदुः प्रजा यं तं हिरण्याक्षमसूत साग्रतः ॥१८॥
 
-> prajāpatir nāma tayor akārṣīd
-> yaḥ prāk sva-dehād yamayor ajāyata
-> taṁ vai hiraṇyakaśipuṁ viduḥ prajā
+> prajāpatir nāma tayor akārṣīd\
+> yaḥ prāk sva-dehād yamayor ajāyata\
+> taṁ vai hiraṇyakaśipuṁ viduḥ prajā\
 > yaṁ taṁ hiraṇyākṣam asūta sāgrataḥ
 
 *prajāpatiḥ*—Kaśyapa; *nāma*—nombres; *tayoḥ*—de los dos; *akārṣīt*—dio; *yaḥ*—el que; *prāk*—primero; *sva-dehāt*—de su cuerpo; *yamayoḥ*—de los mellizos; *ajāyata*—fue entregado; *tam*—a él; *vai*—en verdad; *hiraṇyakaśipum*—Hiraṇyakaśipu; *viduḥ*—sabe; *prajāḥ*—gente; *yam*—al que; *tam*—a él; *hiraṇyākṣam*—Hiraṇyākṣa; *asūta*—dio a luz a; *sā*—ella (Diti); *agrataḥ*—primero.

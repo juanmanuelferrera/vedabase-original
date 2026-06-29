@@ -1,14 +1,14 @@
 ### SB 7.11.13
 
-> संस्कारा यत्राविच्छिन्नाः स द्विजोऽजो जगाद यम
-> इज्याध्ययनदानानि विहितानि द्विजन्मनाम
+> संस्कारा यत्राविच्छिन्नाः स द्विजोऽजो जगाद यम\
+> इज्याध्ययनदानानि विहितानि द्विजन्मनाम\
 > जन्मकर्मावदातानां क्रियाश्चाश्रमचोदिताः ॥१३॥
 
-> saṁskārā yatrāvicchinnāḥ
-> sa dvijo 'jo jagāda yam
-> ijyādhyayana-dānāni
-> vihitāni dvijanmanām
-> janma-karmāvadātānāṁ
+> saṁskārā yatrāvicchinnāḥ\
+> sa dvijo 'jo jagāda yam\
+> ijyādhyayana-dānāni\
+> vihitāni dvijanmanām\
+> janma-karmāvadātānāṁ\
 > kriyāś cāśrama-coditāḥ
 
 *saṁskārāḥ*—reformatory processes; *yatra*—wherein; *avicchinnāḥ*—without interruption; *saḥ*—such a person; *dvi-jaḥ*—twice-born; *ajaḥ*—Lord Brahmā; *jagāda*—sanctioned; *yam*—who; *ijyā*—worshiping; *adhyayana*—studies of the *Vedas*; *dānāni*—and charity; *vihitāni*—prescribed; *dvi-janmanām*—of persons who are called twice-born; *janma*—by birth; *karma*—and activities; *avadātānām*—who are purified; *kriyāḥ*—activities; *ca*—also; *āśrama-coditāḥ*—recommended for the four *āśramas.*

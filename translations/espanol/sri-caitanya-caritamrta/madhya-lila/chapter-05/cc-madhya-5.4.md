@@ -1,9 +1,9 @@
 ### CC Madhya 5.4
 
-> নৃত্যগীত কৈল প্রেমে বহুত স্তবন ।
+> নৃত্যগীত কৈল প্রেমে বহুত স্তবন ।\
 > যাজপুরে সে রাত্রি করিলা যাপন ॥৪॥
 
-> nṛtya-gīta kaila preme bahuta stavana
+> nṛtya-gīta kaila preme bahuta stavana\
 > yājapure se rātri karilā yāpana
 
 *nṛtya-gīta*—danzar y cantar; *kaila*—ejecutó; *preme*—en amor por Dios; *bahuta*—diversas; *stavana*—oraciones; *yājapure*—en la aldea de Yājapura; *se rātri*—esa noche; *karilā*—hizo; *yāpana*—pasar.

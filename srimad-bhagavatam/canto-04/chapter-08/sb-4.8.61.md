@@ -1,11 +1,11 @@
 ### SB 4.8.61
 
-> विरक्तश्चेन्द्रियरतौ भक्तियोगेन भूयसा ।
+> विरक्तश्चेन्द्रियरतौ भक्तियोगेन भूयसा ।\
 > तं निरन्तरभावेन भजेताद्धा विमुक्तये ॥६१॥
 
-> viraktaś cendriya-ratau
-> bhakti-yogena bhūyasā
-> taṁ nirantara-bhāvena
+> viraktaś cendriya-ratau\
+> bhakti-yogena bhūyasā\
+> taṁ nirantara-bhāvena\
 > bhajetāddhā vimuktaye
 
 *viraktaḥ ca*—completely renounced order of life; *indriya-ratau*—in the matter of sense gratification; *bhakti-yogena*—by the process of devotional service; *bhūyasā*—with great seriousness; *tam*—unto Him (the Supreme); *nirantara*—constantly, twenty-four hours daily; *bhāvena*—in the topmost stage of ecstasy; *bhajeta*—must worship; *addhā*—directly; *vimuktaye*—for liberation.

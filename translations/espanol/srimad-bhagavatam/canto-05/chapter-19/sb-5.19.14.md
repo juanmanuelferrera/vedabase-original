@@ -1,11 +1,11 @@
 ### SB 5.19.14
 
-> यथैहिकामुष्मिककामलम्पटः सुतेषु दारेषु धनेषु चिन्तयन
+> यथैहिकामुष्मिककामलम्पटः सुतेषु दारेषु धनेषु चिन्तयन\
 > शङ्केत विद्वान्कुकलेवरात्ययाद्यस्तस्य यत्नः श्रम एव केवलम ॥१४॥
 
-> yathaihikāmuṣmika-kāma-lampaṭaḥ
-> suteṣu dāreṣu dhaneṣu cintayan
-> śaṅketa vidvān kukalevarātyayād
+> yathaihikāmuṣmika-kāma-lampaṭaḥ\
+> suteṣu dāreṣu dhaneṣu cintayan\
+> śaṅketa vidvān kukalevarātyayād\
 > yas tasya yatnaḥ śrama eva kevalam
 
 *yathā*—como; *aihika*—en la vida actual; *amuṣmika*—en la vida futura; *kāma-lampaṭaḥ*—una persona que está muy apegada a los deseos de disfrute corporal; *suteṣu*—los hijos; *dāreṣu*—la esposa; *dhaneṣu*—las riquezas; *cintayan*—pensando en; *śaṅketa*—siente temor; *vidvān*—la persona avanzada en el conocimiento espiritual; *ku-kalevara*—de este cuerpo, que está lleno de excremento y orina; *atyayāt*—por haber perdido; *yaḥ*—todo el que; *tasya*—sus; *yatnaḥ*—esfuerzos; *śramaḥ*—una pérdida de tiempo y energía; *eva*—ciertamente; *kevalam*—solamente.

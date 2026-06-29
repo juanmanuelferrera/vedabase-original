@@ -1,13 +1,13 @@
 ### CC Adi 4.72
 
-> আনন্দচিন্ময়রসপ্রতিভাবিতাভি-
-> স্তাভির্য এব নিজরূপতয়া কলাভিঃ ।
-> গোলোক এব নিবসত্যখিলাত্মভূতো
+> আনন্দচিন্ময়রসপ্রতিভাবিতাভি-\
+> স্তাভির্য এব নিজরূপতয়া কলাভিঃ ।\
+> গোলোক এব নিবসত্যখিলাত্মভূতো\
 > গোবিন্দমাদিপুরুষং তমহং ভজামি ॥৭২॥
 
-> ānanda-cinmaya-rasa-pratibhāvitābhis
-> tābhir ya eva nija-rūpatayā kalābhiḥ
-> goloka eva nivasaty akhilātma-bhūto
+> ānanda-cinmaya-rasa-pratibhāvitābhis\
+> tābhir ya eva nija-rūpatayā kalābhiḥ\
+> goloka eva nivasaty akhilātma-bhūto\
 > govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 *ānanda*—bliss; *cit*—and knowledge; *maya*—consisting of; *rasa*—mellows; *prati*—at every second; *bhāvitābhiḥ*—who are engrossed with; *tābhiḥ*—with those; *yaḥ*—who; *eva*—certainly; *nija-rūpatayā*—with His own form; *kalābhiḥ*—who are parts of portions of His pleasure potency; *goloke*—in Goloka Vṛndāvana; *eva*—certainly; *nivasati*—resides; *akhila-ātma*—as the soul of all; *bhūtaḥ*—who exists; *govindam*—Lord Govinda; *ādi-puruṣam*—the original personality; *tam*—Him; *aham*—I; *bhajāmi*—worship.

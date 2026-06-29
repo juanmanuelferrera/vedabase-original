@@ -1,11 +1,11 @@
 ### SB 4.22.59
 
-> धर्मराडिव शिक्षायामाश्चर्ये हिमवानिव ।
+> धर्मराडिव शिक्षायामाश्चर्ये हिमवानिव ।\
 > कुवेर इव कोशाढ्यो गुप्तार्थो वरुणो यथा ॥५९॥
 
-> dharma-rāḍ iva śikṣāyām
-> āścarye himavān iva
-> kuvera iva kośāḍhyo
+> dharma-rāḍ iva śikṣāyām\
+> āścarye himavān iva\
+> kuvera iva kośāḍhyo\
 > guptārtho varuṇo yathā
 
 *dharma-rāṭ iva*—like King Yamarāja (the superintendent of death); *śikṣāyām*—in education; *āścarye*—in opulence; *himavān iva*—like the Himalaya Mountains; *kuveraḥ*—the treasurer of the heavenly planets; *iva*—like; *kośa-āḍhyaḥ*—in the matter of possessing wealth; *gupta-arthaḥ*—secrecy; *varuṇaḥ*—the demigod named Varuṇa; *yathā*—like.

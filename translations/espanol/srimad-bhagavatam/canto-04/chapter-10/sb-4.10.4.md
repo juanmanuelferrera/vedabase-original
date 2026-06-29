@@ -1,11 +1,11 @@
 ### SB 4.10.4
 
-> ध्रुवो भ्रातृवधं श्रुत्वा कोपामर्षशुचार्पितः ।
+> ध्रुवो भ्रातृवधं श्रुत्वा कोपामर्षशुचार्पितः ।\
 > जैत्रं स्यन्दनमास्थाय गतः पुण्यजनालयम् ॥४॥
 
-> dhruvo bhrātṛ-vadhaṁ śrutvā
-> kopāmarṣa-śucārpitaḥ
-> jaitraṁ syandanam āsthāya
+> dhruvo bhrātṛ-vadhaṁ śrutvā\
+> kopāmarṣa-śucārpitaḥ\
+> jaitraṁ syandanam āsthāya\
 > gataḥ puṇya-janālayam
 
 *dhruvaḥ*—Dhruva Mahārāja; *bhrātṛ-vadham*—la muerte de su hermano; *śrutvā*—al escuchar la noticia; *kopa*—ira; *amarṣa*—venganza; *śucā*—lamentación; *arpitaḥ*—lleno de; *jaitram*—victoriosa; *syandanam*—cuadriga; *āsthāya*—montando; *gataḥ*—partió; *puṇya-jana-ālayam*—a la ciudad de los *yakṣas.*.

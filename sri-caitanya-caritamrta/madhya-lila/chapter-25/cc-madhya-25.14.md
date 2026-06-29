@@ -1,9 +1,9 @@
 ### CC Madhya 25.14
 
-> হেনকালে বিপ্র আসি’ করিল নিমন্ত্রণ ।
+> হেনকালে বিপ্র আসি’ করিল নিমন্ত্রণ ।\
 > অনেক দৈন্যাদি করি’ ধরিল চরণ ॥১৪॥
 
-> hena-kāle vipra āsi' karila nimantraṇa
+> hena-kāle vipra āsi' karila nimantraṇa\
 > aneka dainyādi kari' dharila caraṇa
 
 *hena-kāle*—at this time; *vipra*—the Mahārāṣṭrian *brāhmaṇa*; *āsi'*—coming; *karila nimantraṇa*—invited Śrī Caitanya Mahāprabhu; *aneka*—various; *dainya-ādi*—submissions; *kari'*—doing; *dharila caraṇa*—touched His lotus feet.

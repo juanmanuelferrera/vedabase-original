@@ -1,11 +1,11 @@
 ### Bg 4.26
 
-> श्रोत्रादीनीन्द्रियाण्यन्ये संयमाग्निषु जुह्वति ।
+> श्रोत्रादीनीन्द्रियाण्यन्ये संयमाग्निषु जुह्वति ।\
 > शब्दादीन्विषयानन्य इन्द्रियाग्निषु जुह्वति ॥२६॥
 
-> śrotrādīnīndriyāṇy anye
-> saṁyamāgniṣu juhvati
-> śabdadīn viṣayān anya
+> śrotrādīnīndriyāṇy anye\
+> saṁyamāgniṣu juhvati\
+> śabdadīn viṣayān anya\
 > indriyāgniṣu juhvati
 
 *śrotra-ādīni*—el proceso de oír; *indriyāṇi*—sentidos; *anye*—otros; *saṁyama*—de restricción; *agniṣu*—en el fuego; *juhvati*—ofrece; *śabda-ādīn*—vibración sonora, etc; *viṣayān*—objetos de la gratificación de los sentidos; *anye*—otros; *indriya*—de los órganos sensoriales; *agniṣu*—en el fuego; *juhvati*—sacrifican.

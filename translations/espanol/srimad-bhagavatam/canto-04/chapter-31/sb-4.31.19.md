@@ -1,11 +1,11 @@
 ### SB 4.31.19
 
-> दयया सर्वभूतेषु सन्तुष्ट्या येन केन वा ।
+> दयया सर्वभूतेषु सन्तुष्ट्या येन केन वा ।\
 > सर्वेन्द्रियोपशान्त्या च तुष्यत्याशु जनार्दनः ॥१९॥
 
-> dayayā sarva-bhūteṣu
-> santuṣṭyā yena kena vā
-> sarvendriyopaśāntyā ca
+> dayayā sarva-bhūteṣu\
+> santuṣṭyā yena kena vā\
+> sarvendriyopaśāntyā ca\
 > tuṣyaty āśu janārdanaḥ
 
 *dayayā*—mostrando misericordia; *sarva-bhūteṣu*—a todas las entidades vivientes; *santuṣṭyā*—estando satisfechos; *yena kena vā*—de una forma u otra; *sarva-indriya*—todos los sentidos; *upaśāntyā*—controlando; *ca*—también; *tuṣyati*—Se satisface; *āśu*—muy pronto; *janārdanaḥ*—el Señor de todas las entidades vivientes.

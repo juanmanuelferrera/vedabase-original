@@ -1,11 +1,11 @@
 ### SB 3.29.32
 
-> अर्थज्ञात्संशयच्छेत्ता ततः श्रेयान्स्वकर्मकृत् ।
+> अर्थज्ञात्संशयच्छेत्ता ततः श्रेयान्स्वकर्मकृत् ।\
 > मुक्तसङ्गस्ततो भूयानदोग्धा धर्ममात्मनः ॥३२॥
 
-> artha-jñāt saṁśaya-cchettā
-> tataḥ śreyān sva-karma-kṛt
-> mukta-saṅgas tato bhūyān
+> artha-jñāt saṁśaya-cchettā\
+> tataḥ śreyān sva-karma-kṛt\
+> mukta-saṅgas tato bhūyān\
 > adogdhā dharmam ātmanaḥ
 
 *artha-jñāt*—que el que conoce el propósito de los *Vedas*; *saṁśaya*—dudas; *chettā*—el que corta; *tataḥ*—que él; *śreyān*—mejor; *sva-karma*—sus deberes prescritos; *kṛt*—el que ejecuta; *mukta-saṅgaḥ*—liberado de la relación con la materia; *tataḥ*—que él; *bhūyān*—mejor; *adogdhā*—no ejecutando; *dharmam*—servicio devocional; *ātmanaḥ*—para sí mismo.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.248
 
-> মধ্যলীলার কৈলুঁ এই সূত্র-বিবরণ ।
+> মধ্যলীলার কৈলুঁ এই সূত্র-বিবরণ ।\
 > অন্ত্যলীলার সূত্র এবে শুন, ভক্তগণ ॥২৪৮॥
 
-> madhya-līlāra kailuṅ ei sūtra-vivaraṇa
+> madhya-līlāra kailuṅ ei sūtra-vivaraṇa\
 > antya-līlāra sūtra ebe śuna, bhakta-gaṇa
 
 *madhya-līlāra*—of the *madhya-līlā,* the middle portion of His pastimes; *kailuṅ*—I have made; *ei*—this; *sūtra*—synopsis; *vivaraṇa*—description; *antya-līlāra*—of the pastimes at the end, known as *antya-līlā*; *sūtra*—synopsis; *ebe*—now; *śuna*—hear; *bhakta-gaṇa*—all devotees.

@@ -1,14 +1,14 @@
 ### SB 7.2.15
 
-> केचित्खनित्रैर्बिभिदुः सेतुप्राकारगोपुरान
-> आजीव्यांश्चिच्छिदुर्वृक्षान्केचित्परशुपाणयः
+> केचित्खनित्रैर्बिभिदुः सेतुप्राकारगोपुरान\
+> आजीव्यांश्चिच्छिदुर्वृक्षान्केचित्परशुपाणयः\
 > प्रादहन्शरणान्येके प्रजानां ज्वलितोल्मुकैः ॥१५॥
 
-> kecit khanitrair bibhiduḥ
-> setu-prākāra-gopurān
-> ājīvyāṁś cicchidur vṛkṣān
-> kecit paraśu-pāṇayaḥ
-> prādahañ śaraṇāny eke
+> kecit khanitrair bibhiduḥ\
+> setu-prākāra-gopurān\
+> ājīvyāṁś cicchidur vṛkṣān\
+> kecit paraśu-pāṇayaḥ\
+> prādahañ śaraṇāny eke\
 > prajānāṁ jvalitolmukaiḥ
 
 *kecit*—some of the demons; *khanitraiḥ*—with digging instruments; *bibhiduḥ*—broke to pieces; *setu*—bridges; *prākāra*—protective walls; *gopurān*—city gates; *ājīvyān*—the source of livelihood; *cicchiduḥ*—cut down; *vṛkṣān*—trees; *kecit*—some; *paraśu-pāṇayaḥ*—taking axes in hand; *prādahan*—burned down; *śaraṇāni*—the dwellings; *eke*—other demons; *prajānām*—of the citizens; *jvalita*—blazing; *ulmukaiḥ*—with firebrands.

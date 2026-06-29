@@ -1,9 +1,9 @@
 ### CC Madhya 3.144
 
-> সন্ন্যাসী হইয়া পুনঃ না দিল দরশন ।
+> সন্ন্যাসী হইয়া পুনঃ না দিল দরশন ।\
 > তুমি তৈছে কৈলে মোর হইবে মরণ ॥১৪৪॥
 
-> sannyāsī ha-iyā punaḥ nā dila daraśana
+> sannyāsī ha-iyā punaḥ nā dila daraśana\
 > tumi taiche kaile mora ha-ibe maraṇa
 
 *sannyāsī*—un miembro de la orden de renuncia; *ha-iyā*—después de volverse; *punaḥ*—de nuevo; *nā*—no; *dila*—dio; *daraśana*—visita; *tumi*—Tú; *taiche*—así; *kaile*—si haciendo; *mora*—mi; *ha-ibe*—habrá; *maraṇa*—muerte.

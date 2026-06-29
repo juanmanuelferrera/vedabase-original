@@ -1,13 +1,13 @@
 ### SB 1.18.11
 
-> ऋषय ऊचुः
-> सूत जीव समाः सौम्य शाश्वतीर्विशदं यशः ।
+> ऋषय ऊचुः\
+> सूत जीव समाः सौम्य शाश्वतीर्विशदं यशः ।\
 > यस्त्वं शंससि कृष्णस्य मर्त्यानाममृतं हि नः ॥११॥
 
-> ṛṣaya ūcuḥ
-> sūta jīva samāḥ saumya
-> śāśvatīr viśadaṁ yaśaḥ
-> yas tvaṁ śaṁsasi kṛṣṇasya
+> ṛṣaya ūcuḥ\
+> sūta jīva samāḥ saumya\
+> śāśvatīr viśadaṁ yaśaḥ\
+> yas tvaṁ śaṁsasi kṛṣṇasya\
 > martyānām amṛtaṁ hi naḥ
 
 *ṛṣayaḥ ūcuḥ*—the good sages said; *sūta*—O Sūta Gosvāmī; *jīva*—we wish you life for; *samāḥ*—many years; *saumya*—grave; *śāśvatīḥ*—eternal; *viśadam*—particularly; *yaśaḥ*—in fame; *yaḥ tvam*—because you; *śaṁsasi*—speaking nicely; *kṛṣṇasya*—of Lord Śrī Kṛṣṇa; *martyānām*—of those who die; *amṛtam*—eternity of life; *hi*—certainly; *naḥ*—our.

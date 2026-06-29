@@ -1,11 +1,11 @@
 ### SB 9.23.2
 
-> जनमेजयस्तस्य पुत्रो महाशालो महामनाः
+> जनमेजयस्तस्य पुत्रो महाशालो महामनाः\
 > उशीनरस्तितिक्षुश्च महामनस आत्मजौ ॥२॥
 
-> janamejayas tasya putro
-> mahāśālo mahāmanāḥ
-> uśīnaras titikṣuś ca
+> janamejayas tasya putro\
+> mahāśālo mahāmanāḥ\
+> uśīnaras titikṣuś ca\
 > mahāmanasa ātmajau
 
 *janamejayaḥ*—Janamejaya; *tasya*—of him (Janamejaya); *putraḥ*—a son; *mahāśālaḥ*—Mahāśāla; *mahāmanāḥ*—(from Mahāśāla) a son named Mahāmanā; *uśīnaraḥ*—Uśīnara; *titikṣuḥ*—Titikṣu; *ca*—and; *mahāmanasaḥ*—from Mahāmanā; *ātmajau*—two sons.

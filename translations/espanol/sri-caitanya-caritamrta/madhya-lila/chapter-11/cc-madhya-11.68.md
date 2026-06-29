@@ -1,9 +1,9 @@
 ### CC Madhya 11.68
 
-> narendre āsiyā sabe haila vidyamāna
+> narendre āsiyā sabe haila vidyamāna\
 > tāṅ-sabāre cāhi vāsā prasāda-samādhāna
 
-> narendre āsiyā sabe haila vidyamāna
+> narendre āsiyā sabe haila vidyamāna\
 > tāṅ-sabāre cāhi vāsā prasāda-samādhāna
 
 *narendre*—en la orilla del lago Narendra; *āsiyā*—al llegar; *sabe*—todos ellos; *haila vidyamāna*—están esperando; *tāṅ-sabāre*—para todos ellos; *cāhi*—deseo; *vāsā*—residencia; *prasāda*—para distribuir prasādam; *samādhāna*—arreglos.

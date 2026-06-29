@@ -1,13 +1,13 @@
 ### SB 3.9.8
 
-> क्षुत्तृट्त्रिधातुभिरिमा मुहुरर्द्यमानाः
-> शीतोष्णवातवरषैरितरेतराच्च ।
-> कामाग्निनाच्युतरुषा च सुदुर्भरेण
+> क्षुत्तृट्त्रिधातुभिरिमा मुहुरर्द्यमानाः\
+> शीतोष्णवातवरषैरितरेतराच्च ।\
+> कामाग्निनाच्युतरुषा च सुदुर्भरेण\
 > सम्पश्यतो मन उरुक्रम सीदते मे ॥८॥
 
-> kṣut-tṛṭ-tridhātubhir imā muhur ardyamānāḥ
-> śītoṣṇa-vāta-varaṣair itaretarāc ca
-> kāmāgninācyuta-ruṣā ca sudurbhareṇa
+> kṣut-tṛṭ-tridhātubhir imā muhur ardyamānāḥ\
+> śītoṣṇa-vāta-varaṣair itaretarāc ca\
+> kāmāgninācyuta-ruṣā ca sudurbhareṇa\
 > sampaśyato mana urukrama sīdate me
 
 *kṣut*—hunger; *tṛṭ*—thirst; *tri-dhātubhiḥ*—three humors, namely mucus, bile and wind; *imāḥ*—all of them; *muhuḥ*—always; *ardyamānāḥ*—perplexed; *śīta*—winter; *uṣṇa*—summer; *vāta*—wind; *varaṣaiḥ*—by rains; *itara-itarāt*—and many other disturbances; *ca*—also; *kāma-agninā*—by strong sex urges; *acyuta-ruṣā*—indefatigable anger; *ca*—also; *sudurbhareṇa*—most unbearable; *sampaśyataḥ*—so observing; *manaḥ*—mind; *urukrama*—O great actor; *sīdate*—becomes despondent; *me*—my.

@@ -1,11 +1,11 @@
 ### SB 3.11.41
 
-> दशोत्तराधिकैर्यत्र प्रविष्टः परमाणुवत् ।
+> दशोत्तराधिकैर्यत्र प्रविष्टः परमाणुवत् ।\
 > लक्ष्यतेऽन्तर्गताश्चान्ये कोटिशो ह्यण्डराशयः ॥४१॥
 
-> daśottarādhikair yatra
-> praviṣṭaḥ paramāṇuvat
-> lakṣyate 'ntar-gatāś cānye
+> daśottarādhikair yatra\
+> praviṣṭaḥ paramāṇuvat\
+> lakṣyate 'ntar-gatāś cānye\
 > koṭiśo hy aṇḍa-rāśayaḥ
 
 *daśa-uttara-adhikaiḥ*—with ten times greater thickness; *yatra*—in which; *praviṣṭaḥ*—entered; *parama-aṇu-vat*—like atoms; *lakṣyate*—it (the mass of universes) appears; *antaḥ-gatāḥ*—come together; *ca*—and; *anye*—in the other; *koṭiśaḥ*—clustered; *hi*—for; *aṇḍa-rāśayaḥ*—huge combination of universes.

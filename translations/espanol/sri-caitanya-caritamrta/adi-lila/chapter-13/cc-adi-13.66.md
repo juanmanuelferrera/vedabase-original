@@ -1,9 +1,9 @@
 ### CC Adi 13.66
 
-> তাঁর সঙ্গে আনন্দ করে বৈষ্ণবের গণ ।
+> তাঁর সঙ্গে আনন্দ করে বৈষ্ণবের গণ ।\
 > কৃষ্ণকথা, কৃষ্ণপূজা, নামসংকীর্তন ॥৬৬॥
 
-> tāṅra saṅge ānanda kare vaiṣṇavera gaṇa
+> tāṅra saṅge ānanda kare vaiṣṇavera gaṇa\
 > kṛṣṇa-kathā, kṛṣṇa-pūjā, nāma-saṅkīrtana
 
 *tāṅra saṅge*—con Él (Advaita Ācārya); *ānanda*—placer; *kare*—sienten; *vaiṣṇavera*—de los devotos; *gaṇa*—asamblea; *kṛṣṇa-kathā*—temas del Señor Kṛṣṇa; *kṛṣṇa-pūjā*—adoración a Kṛṣṇa; *nāma-saṅkīrtana*—cantar el mahā-mantra Hare Kṛṣṇa.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.301
 
-> শ্রদ্ধা করি’ এই লীলা শুনে যেই জন ।
+> শ্রদ্ধা করি’ এই লীলা শুনে যেই জন ।\
 > অচিরাৎ পায় সেই চৈতন্য-চরণ ॥৩০১॥
 
-> śraddhā kari' ei līlā śune yei jana
+> śraddhā kari' ei līlā śune yei jana\
 > acirāt pāya sei caitanya-caraṇa
 
 *śraddhā kari'*—with faith and love; *ei līlā*—this pastime; *śune*—hears; *yei jana*—whoever; *acirāt*—very soon; *pāya*—attains; *sei*—he; *caitanya-caraṇa*—the lotus feet of Lord Caitanya.

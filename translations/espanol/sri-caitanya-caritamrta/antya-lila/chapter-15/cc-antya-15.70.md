@@ -1,13 +1,13 @@
 ### CC Antya 15.70
 
-> বীক্ষ্যালকাবৃতমুখং তব কুণ্ডলশ্রি
-> গণ্ডস্থলাধরসুধং হসিতাবলোকম্ ।
-> দত্তাভয়ঞ্চ ভুজদণ্ডযুগং বিলোক্য
+> বীক্ষ্যালকাবৃতমুখং তব কুণ্ডলশ্রি\
+> গণ্ডস্থলাধরসুধং হসিতাবলোকম্ ।\
+> দত্তাভয়ঞ্চ ভুজদণ্ডযুগং বিলোক্য\
 > বক্ষঃ শ্রিয়ৈকরমণঞ্চ ভবাম দাস্যঃ ॥৭০॥
 
-> vīkṣyālakāvṛta-mukhaṁ tava kuṇḍala-śri-
-> gaṇḍa-sthalādhara-sudhaṁ hasitāvalokam
-> dattābhayaṁ ca bhuja-daṇḍa-yugaṁ vilokya
+> vīkṣyālakāvṛta-mukhaṁ tava kuṇḍala-śri-\
+> gaṇḍa-sthalādhara-sudhaṁ hasitāvalokam\
+> dattābhayaṁ ca bhuja-daṇḍa-yugaṁ vilokya\
 > vakṣaḥ śriyaika-ramaṇaṁ ca bhavāma dāsyaḥ
 
 *vīkṣya*—al ver; *alaka-āvṛta*—decorado con rizos de cabello; *mukham*—rostro; *tava*—Tu; *kuṇḍala-śri*—la belleza de los pendientes; *gaṇḍa-sthala*—que caen sobre Tus mejillas; *adhara-sudham*—y el néctar de Tus labios; *hasita-avalokam*—Tu mirada sonriente; *datta-abhayam*—que aseguran la ausencia de temor; *ca*—y; *bhuja-daṇḍa-yugam*—los dos brazos; *vilokya*—al contemplar; *vakṣaḥ*—pecho; *śriyā*—por la belleza; *eka-ramaṇam*—que produce principalmente atracción conyugal; *ca*—y; *bhavāma*—nos hemos convertido; *dāsyaḥ*—en Tus sirvientas.

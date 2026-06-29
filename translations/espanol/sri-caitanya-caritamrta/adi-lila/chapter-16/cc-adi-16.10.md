@@ -1,9 +1,9 @@
 ### CC Adi 16.10
 
-> সেই দেশে বিপ্র, নাম — মিশ্র তপন ।
+> সেই দেশে বিপ্র, নাম — মিশ্র তপন ।\
 > নিশ্চয় করিতে নারে সাধ্য-সাধন ॥১০॥
 
-> sei deśe vipra, nāma--miśra tapana
+> sei deśe vipra, nāma--miśra tapana\
 > niścaya karite nāre sādhya-sādhana
 
 *sei deśe*—en aquella región de Bengala Oriental; *vipra*—un *brāhmaṇa*; *nāma*—de nombre; *miśra tapana*—Tapana Miśra; *niścaya karite*—determinar; *nāre*—incapaz; *sādhya*—el objetivo; *sādhana*—el proceso.

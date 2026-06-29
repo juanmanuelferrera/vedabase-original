@@ -1,11 +1,11 @@
 ### Bg 1.40
 
-> अधर्माभिभवात्कृष्ण प्रदुष्यन्ति कुलस्त्रियः ।
+> अधर्माभिभवात्कृष्ण प्रदुष्यन्ति कुलस्त्रियः ।\
 > स्त्रीषु दुष्टासु वार्ष्णेय जायते वर्णसङ्करः ॥४०॥
 
-> adharmābhibhavāt kṛṣṇa
-> praduṣyanti kula-striyaḥ
-> strīṣu duṣṭāsu vārṣṇeya
+> adharmābhibhavāt kṛṣṇa\
+> praduṣyanti kula-striyaḥ\
+> strīṣu duṣṭāsu vārṣṇeya\
 > jāyate varṇa-saṅkaraḥ
 
 *adharma*—irreligión; *abhibhavāt*—habiendo sido predominante; *kṛṣṇa*—¡oh, Kṛṣṇa!; *praduṣyanti*—se contamina; *kula-striyaḥ*—damas de la familia; *strīṣu*—de la condición de la mujer; *duṣṭāsu*—contaminándose así; *vārṣṇeya*—¡oh, descendiente de Vṛṣṇi!; *jāyate*—aparecen; *varṇa-saṅkaraḥ*—progenie indeseada.

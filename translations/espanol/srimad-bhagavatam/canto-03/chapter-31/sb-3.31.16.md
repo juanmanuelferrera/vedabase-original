@@ -1,13 +1,13 @@
 ### SB 3.31.16
 
-> ज्ञानं यदेतददधात्कतमः स देवस्
-> त्रैकालिकं स्थिरचरेष्वनुवर्तितांशः ।
-> तं जीवकर्मपदवीमनुवर्तमानास्
+> ज्ञानं यदेतददधात्कतमः स देवस्\
+> त्रैकालिकं स्थिरचरेष्वनुवर्तितांशः ।\
+> तं जीवकर्मपदवीमनुवर्तमानास्\
 > तापत्रयोपशमनाय वयं भजेम ॥१६॥
 
-> jñānaṁ yad etad adadhāt katamaḥ sa devas
-> trai-kālikaṁ sthira-careṣv anuvartitāṁśaḥ
-> taṁ jīva-karma-padavīm anuvartamānās
+> jñānaṁ yad etad adadhāt katamaḥ sa devas\
+> trai-kālikaṁ sthira-careṣv anuvartitāṁśaḥ\
+> taṁ jīva-karma-padavīm anuvartamānās\
 > tāpa-trayopaśamanāya vayaṁ bhajema
 
 *jñānam*—conocimiento; *yat*—el cual; *etat*—este; *adadhāt*—dio; *katamaḥ*—quién, aparte de; *saḥ*—esa; *devaḥ*—la Personalidad de Dios; *trai-kālikam*—de las tres fases del tiempo; *sthira-careṣu*—en los objetos inanimados y animados; *anuvartita*—morando; *aṁśaḥ*—Su representación parcial; *tam*—a Él; *jīva*—de las almas *jīva*; *karma-padavīm*—el sendero de las actividades fruitivas; *anuvartamānāḥ*—que están buscando; *tāpa-traya*—de las tres miserias; *upaśamanāya*—para liberarse; *vayam*—nosotros; *bhajema*—debemos entregarnos.

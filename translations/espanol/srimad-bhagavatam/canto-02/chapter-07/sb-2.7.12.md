@@ -1,13 +1,13 @@
 ### SB 2.7.12
 
-> मत्स्यो युगान्तसमये मनुनोपलब्धः
-> क्षोणीमयो निखिलजीवनिकायकेतः ।
-> विस्रंसितानुरुभये सलिले मुखान्मे
+> मत्स्यो युगान्तसमये मनुनोपलब्धः\
+> क्षोणीमयो निखिलजीवनिकायकेतः ।\
+> विस्रंसितानुरुभये सलिले मुखान्मे\
 > आदाय तत्र विजहार ह वेदमार्गान् ॥१२॥
 
-> matsyo yugānta-samaye manunopalabdhaḥ
-> kṣoṇīmayo nikhila-jīva-nikāya-ketaḥ
-> visraṁsitān uru-bhaye salile mukhān me
+> matsyo yugānta-samaye manunopalabdhaḥ\
+> kṣoṇīmayo nikhila-jīva-nikāya-ketaḥ\
+> visraṁsitān uru-bhaye salile mukhān me\
 > ādāya tatra vijahāra ha veda-mārgān
 
 *matsyaḥ*—la encarnación de pez; *yuga-anta*—al final del milenio; *samaye*—en el momento de; *manunā*—el futuro Vaivasvata Manu; *upalabdhaḥ*—visto; *kṣoṇīmayaḥ*—hasta los planetas terrenales; *nikhila*—todas; *jīva*—entidades vivientes; *nikāya-ketaḥ*—refugio para; *visraṁsitān*—que emana de; *uru*—grande; *bhaye*—por el temor; *salile*—en el agua; *mukhāt*—de la boca; *me*—mía; *ādāya*—habiéndose entregado a; *tatra*—ahí; *vijahāra*—disfrutado; *ha*—ciertamente; *veda-mārgān*—todos los *Vedas*.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.76
 
-> প্রভুর প্রেমাবেশ, আর প্রভাব ভক্তিসার ।
+> প্রভুর প্রেমাবেশ, আর প্রভাব ভক্তিসার ।\
 > সৌন্দর্যাদি দেখি’ ভট্টের হৈল চমৎকার ॥৭৬॥
 
-> prabhura premāveśa, āra prabhāva bhakti-sāra
+> prabhura premāveśa, āra prabhāva bhakti-sāra\
 > saundaryādi dekhi' bhaṭṭera haila camatkāra
 
 *prabhura*—of Śrī Caitanya Mahāprabhu; *prema-āveśa*—ecstasy in love of Godhead; *āra*—and; *prabhāva*—the influence; *bhakti-sāra*—the essence of devotional service; *saundarya-ādi*—personal beauty and other qualities; *dekhi'*—seeing; *bhaṭṭera*—of Vallabha Bhaṭṭācārya; *haila*—there was; *camatkāra*—astonishment.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.260
 
-> এইমত দুই জন কৃষ্ণকথা-রসে ।
+> এইমত দুই জন কৃষ্ণকথা-রসে ।\
 > নৃত্য-গীত-রোদনে হৈল রাত্রি-শেষে ॥২৬০॥
 
-> ei-mata dui jana kṛṣṇa-kathā-rase
+> ei-mata dui jana kṛṣṇa-kathā-rase\
 > nṛtya-gīta-rodane haila rātri-śeṣe
 
 *ei-mata*—in this way; *dui jana*—both of them (Lord Caitanya and Rāmānanda Rāya); *kṛṣṇa-kathā-rase*—in the mellows of discussing topics about Kṛṣṇa; *nṛtya-gīta*—in dancing and chanting; *rodane*—in crying; *haila*—there was; *rātri-śeṣe*—the end of the night.

@@ -1,9 +1,9 @@
 ### CC Antya 6.89
 
-> নিত্যানন্দ-প্রভাব-কৃপা জানিবে কোন্ জন ?
+> নিত্যানন্দ-প্রভাব-কৃপা জানিবে কোন্ জন ?\
 > মহাপ্রভু আনি’ করায় পুলিন-ভোজন ॥৮৯॥
 
-> nityānanda-prabhāva-kṛpā jānibe kon jana?
+> nityānanda-prabhāva-kṛpā jānibe kon jana?\
 > mahāprabhu āni' karā ya pulina-bhojana
 
 *nityānanda*—de Nityānanda Prabhu; *prabhāva-kṛpā*—influencia y misericordia; *jānibe*—puede conocer; *kon jana*—quién; *mahāprabhu āni'*—trayendo a Śrī Caitanya Mahāprabhu; *karāya pulina-bhojana*—le induce a comer en la ribera del río.

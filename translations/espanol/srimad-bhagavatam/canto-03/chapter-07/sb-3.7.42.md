@@ -1,13 +1,13 @@
 ### SB 3.7.42
 
-> श्रीशुक उवाच
-> स इत्थमापृष्टपुराणकल्पः कुरुप्रधानेन मुनिप्रधानः ।
+> श्रीशुक उवाच\
+> स इत्थमापृष्टपुराणकल्पः कुरुप्रधानेन मुनिप्रधानः ।\
 > प्रवृद्धहर्षो भगवत्कथायां सञ्चोदितस्तं प्रहसन्निवाह ॥४२॥
 
-> śrī-śuka uvāca
-> sa ittham āpṛṣṭa-purāṇa-kalpaḥ
-> kuru-pradhānena muni-pradhānaḥ
-> pravṛddha-harṣo bhagavat-kathāyāṁ
+> śrī-śuka uvāca\
+> sa ittham āpṛṣṭa-purāṇa-kalpaḥ\
+> kuru-pradhānena muni-pradhānaḥ\
+> pravṛddha-harṣo bhagavat-kathāyāṁ\
 > sañcoditas taṁ prahasann ivāha
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *saḥ*—él; *ittham*—de esa manera; *āpṛṣṭa*—habiéndosele preguntado; *purāṇa-kalpaḥ*—aquel que sabe cómo explicar los suplementos de los *Vedas* (los *Purāṇas*); *kuru-pradhānena*—por el principal de los Kurus; *muni-pradhānaḥ*—el principal de los sabios; *pravṛddha*—suficientemente enriquecido; *harṣaḥ*—satisfacción; *bhagavat*—la Personalidad de Dios; *kathāyām*—en los temas acerca de; *sañcoditaḥ*—siendo infundido así; *tam*—a Vidura; *prahasan*—con sonrisas; *iva*—de esa manera; *āha*—respondió.

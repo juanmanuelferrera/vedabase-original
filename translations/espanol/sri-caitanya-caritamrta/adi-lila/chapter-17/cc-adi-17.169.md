@@ -1,9 +1,9 @@
 ### CC Adi 17.169
 
-> তুমি যে কহিলে, পণ্ডিত, সেই সত্য হয় ।
+> তুমি যে কহিলে, পণ্ডিত, সেই সত্য হয় ।\
 > আধুনিক আমার শাস্ত্র, বিচার-সহ নয় ॥১৬৯॥
 
-> tumi ye kahile, paṇḍita, sei satya haya
+> tumi ye kahile, paṇḍita, sei satya haya\
 > ādhunika āmāra śāstra, vicāra-saha naya
 
 *tumi*—Tú; *ye*—todo lo que; *kahile*—has dicho; *paṇḍita*—oh, Nimāi Paṇḍita; *sei*—eso; *satya*—verdad; *haya*—es ciertamente; *ādhunika*—de los tiempos modernos; *āmāra*—nuestras; *śāstra*—Escrituras; *vicāra*—lógica; *saha*—con; *naya*—no están.

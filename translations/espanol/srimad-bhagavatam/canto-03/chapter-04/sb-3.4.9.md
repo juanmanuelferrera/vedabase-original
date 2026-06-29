@@ -1,11 +1,11 @@
 ### SB 3.4.9
 
-> तस्मिन्महाभागवतो द्वैपायनसुहृत्सखा ।
+> तस्मिन्महाभागवतो द्वैपायनसुहृत्सखा ।\
 > लोकाननुचरन्सिद्ध आससाद यदृच्छया ॥९॥
 
-> tasmin mahā-bhāgavato
-> dvaipāyana-suhṛt-sakhā
-> lokān anucaran siddha
+> tasmin mahā-bhāgavato\
+> dvaipāyana-suhṛt-sakhā\
+> lokān anucaran siddha\
 > āsasāda yadṛcchayā
 
 *tasmin*—entonces; *mahā-bhāgavataḥ*—un gran devoto del Señor; *dvaipāyana*—de Kṛṣṇa-dvaipāyana Vyāsa; *suhṛt*—un bienqueriente; *sakhā*—un amigo; *lokān*—los tres mundos; *anucaran*—viajando; *siddhe*—a ese *āśrama*; *āsasāda*—llegó; *yadṛcchayā*—por su propio y perfecto deseo.

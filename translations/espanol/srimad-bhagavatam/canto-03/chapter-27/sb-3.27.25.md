@@ -1,11 +1,11 @@
 ### SB 3.27.25
 
-> यथा ह्यप्रतिबुद्धस्य प्रस्वापो बह्वनर्थभृत् ।
+> यथा ह्यप्रतिबुद्धस्य प्रस्वापो बह्वनर्थभृत् ।\
 > स एव प्रतिबुद्धस्य न वै मोहाय कल्पते ॥२५॥
 
-> yathā hy apratibuddhasya
-> prasvāpo bahv-anartha-bhṛt
-> sa eva pratibuddhasya
+> yathā hy apratibuddhasya\
+> prasvāpo bahv-anartha-bhṛt\
+> sa eva pratibuddhasya\
 > na vai mohāya kalpate
 
 *yathā*—como; *hi*—ciertamente; *apratibuddhasya*—de aquel que está durmiendo; *prasvāpaḥ*—el sueño; *bahu-anartha-bhṛt*—que acarrea muchas cosas poco auspiciosas; *saḥ eva*—ese mismo sueño; *pratibuddhasya*—de aquel que está despierto; *na*—no; *vai*—ciertamente; *mohāya*—para crear confusión; *kalpate*—puede.

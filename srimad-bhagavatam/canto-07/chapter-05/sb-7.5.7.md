@@ -1,11 +1,11 @@
 ### SB 7.5.7
 
-> सम्यग्विधार्यतां बालो गुरुगेहे द्विजातिभिः
+> सम्यग्विधार्यतां बालो गुरुगेहे द्विजातिभिः\
 > विष्णुपक्षैः प्रतिच्छन्नैर्न भिद्येतास्य धीर्यथा ॥७॥
 
-> samyag vidhāryatāṁ bālo
-> guru-gehe dvi-jātibhiḥ
-> viṣṇu-pakṣaiḥ praticchannair
+> samyag vidhāryatāṁ bālo\
+> guru-gehe dvi-jātibhiḥ\
+> viṣṇu-pakṣaiḥ praticchannair\
 > na bhidyetāsya dhīr yathā
 
 *samyak*—completely; *vidhāryatām*—let him be protected; *bālaḥ*—this boy of tender age; *guru-gehe*—in the *guru-kula,* the place where children are sent to be instructed by the *guru*; *dvi-jātibhiḥ*—by *brāhmaṇas*; *viṣṇu-pakṣaiḥ*—who are on the side of Viṣṇu; *praticchannaiḥ*—disguised in different dresses; *na bhidyeta*—may not be influenced; *asya*—of him; *dhīḥ*—the intelligence; *yathā*—so that.

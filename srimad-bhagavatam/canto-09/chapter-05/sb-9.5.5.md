@@ -1,11 +1,11 @@
 ### SB 9.5.5
 
-> त्वं धर्मस्त्वमृतं सत्यं त्वं यज्ञओऽखिलयज्ञअभुक
+> त्वं धर्मस्त्वमृतं सत्यं त्वं यज्ञओऽखिलयज्ञअभुक\
 > त्वं लोकपालः सर्वात्मा त्वं तेजः पौरुषं परम ॥५॥
 
-> tvaṁ dharmas tvam ṛtaṁ satyaṁ
-> tvaṁ yajño 'khila-yajña-bhuk
-> tvaṁ loka-pālaḥ sarvātmā
+> tvaṁ dharmas tvam ṛtaṁ satyaṁ\
+> tvaṁ yajño 'khila-yajña-bhuk\
+> tvaṁ loka-pālaḥ sarvātmā\
 > tvaṁ tejaḥ pauruṣaṁ param
 
 *tvam*—you; *dharmaḥ*—religion; *tvam*—you; *ṛtam*—encouraging statements; *satyam*—the ultimate truth; *tvam*—you; *yajñaḥ*—sacrifice; *akhila*—universal; *yajña-bhuk*—the enjoyer of the fruits resulting from sacrifice; *tvam*—you; *loka-pālaḥ*—the maintainer of the various planets; *sarva-ātmā*—all-pervading; *tvam*—you; *tejaḥ*—prowess; *pauruṣam*—of the Supreme Personality of Godhead; *param*—transcendental.

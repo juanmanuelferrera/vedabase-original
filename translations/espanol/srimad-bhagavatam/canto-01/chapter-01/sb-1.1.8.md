@@ -1,11 +1,11 @@
 ### SB 1.1.8
 
-> वेत्थ त्वं सौम्य तत्सर्वं तत्त्वतस्तदनुग्रहात् ।
+> वेत्थ त्वं सौम्य तत्सर्वं तत्त्वतस्तदनुग्रहात् ।\
 > ब्रूयुः स्निग्धस्य शिष्यस्य गुरवो गुह्यमप्युत ॥८॥
 
-> vettha tvaṁ saumya tat sarvaṁ
-> tattvatas tad-anugrahāt
-> brūyuḥ snigdhasya śiṣyasya
+> vettha tvaṁ saumya tat sarvaṁ\
+> tattvatas tad-anugrahāt\
+> brūyuḥ snigdhasya śiṣyasya\
 > guravo guhyam apy uta
 
 *vettha*—tú estás bien versado; *tvam*—Su Eminencia; *saumya*—aquel que es puro y sencillo; *tat*—esos; *sarvam*—todos; *tattvataḥ*—de hecho; *tat*—su; *anugrahāt*—por la gracia de; *brūyuḥ*—dirás; *snigdhasya*—del que es sumiso; *śiṣyasya*—del discípulo; *guravaḥ*—los maestros espirituales; *guhyam*—secreto; *api uta*—dotado de.

@@ -1,11 +1,11 @@
 ### SB 9.3.10
 
-> सुकन्या च्यवनं प्राप्य पतिं परमकोपनम
+> सुकन्या च्यवनं प्राप्य पतिं परमकोपनम\
 > प्रीणयामास चित्तज्ञआ अप्रमत्तानुवृत्तिभिः ॥१०॥
 
-> sukanyā cyavanaṁ prāpya
-> patiṁ parama-kopanam
-> prīṇayām āsa citta-jñā
+> sukanyā cyavanaṁ prāpya\
+> patiṁ parama-kopanam\
+> prīṇayām āsa citta-jñā\
 > apramattānuvṛttibhiḥ
 
 *sukanyā*—the girl named Sukanyā, the daughter of King Śaryāti; *cyavanam*—the great sage Cyavana Muni; *prāpya*—after obtaining; *patim*—as her husband; *parama-kopanam*—who was always very angry; *prīṇayām āsa*—she satisfied him; *citta-jñā*—understanding the mind of her husband; *apramattā anuvṛttibhiḥ*—by executing services without being bewildered.

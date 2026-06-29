@@ -1,11 +1,11 @@
 ### SB 9.2.15
 
-> कविः कनीयान्विषयेषु निःस्पृहो विसृज्य राज्यं सह बन्धुभिर्वनम
+> कविः कनीयान्विषयेषु निःस्पृहो विसृज्य राज्यं सह बन्धुभिर्वनम\
 > निवेश्य चित्ते पुरुषं स्वरोचिषं विवेश कैशोरवयाः परं गतः ॥१५॥
 
-> kaviḥ kanīyān viṣayeṣu niḥspṛho
-> visṛjya rājyaṁ saha bandhubhir vanam
-> niveśya citte puruṣaṁ sva-rociṣaṁ
+> kaviḥ kanīyān viṣayeṣu niḥspṛho\
+> visṛjya rājyaṁ saha bandhubhir vanam\
+> niveśya citte puruṣaṁ sva-rociṣaṁ\
 > viveśa kaiśora-vayāḥ paraṁ gataḥ
 
 *kaviḥ*—otro hijo, llamado Kavi; *kanīyān*—que era el menor; *viṣayeṣu*—en disfrutes materiales; *niḥspṛhaḥ*—que no estaba apegado; *visṛjya*—después de abandonar; *rājyam*—la propiedad de su padre, el reino; *saha bandhubhiḥ*—en compañía de amigos; *vanam*—al bosque; *niveśya*—mantener siempre; *citte*—en lo más profundo del corazón; *puruṣam*—a la Persona Suprema; *sva-rociṣam*—autorrefulgente; *viveśa*—entró; *kaiśora-vayāḥ*—joven que no ha alcanzado la plenitud juvenil; *param*—en el mundo trascendental; *gataḥ*—entró.

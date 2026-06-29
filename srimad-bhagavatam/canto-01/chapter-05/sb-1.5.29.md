@@ -1,11 +1,11 @@
 ### SB 1.5.29
 
-> तस्यैवं मेऽनुरक्तस्य प्रश्रितस्य हतैनसः ।
+> तस्यैवं मेऽनुरक्तस्य प्रश्रितस्य हतैनसः ।\
 > श्रद्दधानस्य बालस्य दान्तस्यानुचरस्य च ॥२९॥
 
-> tasyaivaṁ me 'nuraktasya
-> praśritasya hatainasaḥ
-> śraddadhānasya bālasya
+> tasyaivaṁ me 'nuraktasya\
+> praśritasya hatainasaḥ\
+> śraddadhānasya bālasya\
 > dāntasyānucarasya ca
 
 *tasya*—his; *evam*—thus; *me*—mine; *anuraktasya*—attached to them; *praśritasya*—obediently; *hata*—freed from; *enasaḥ*—sins; *śraddadhānasya*—of the faithful; *bālasya*—of the boy; *dāntasya*—subjugated; *anucarasya*—strictly following the instructions; *ca*—and.

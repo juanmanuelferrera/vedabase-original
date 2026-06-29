@@ -1,11 +1,11 @@
 ### SB 3.10.23
 
-> खरोऽश्वोऽश्वतरो गौरः शरभश्चमरी तथा ।
+> खरोऽश्वोऽश्वतरो गौरः शरभश्चमरी तथा ।\
 > एते चैकशफाः क्षत्तः शृणु पञ्चनखान्पशून् ॥२३॥
 
-> kharo 'śvo 'śvataro gauraḥ
-> śarabhaś camarī tathā
-> ete caika-śaphāḥ kṣattaḥ
+> kharo 'śvo 'śvataro gauraḥ\
+> śarabhaś camarī tathā\
+> ete caika-śaphāḥ kṣattaḥ\
 > śṛṇu pañca-nakhān paśūn
 
 *kharaḥ*—asno; *aśvaḥ*—caballo; *aśvataraḥ*—mula; *gauraḥ*—venado blanco; *śarabhaḥ*—bisonte; *camarī*—vaca salvaje; *tathā*—de esa manera; *ete*—todos estos; *ca*—y; *eka*—únicamente una; *śaphāḥ*—pezuña; *kṣattaḥ*—¡oh, Vidura!; *śṛṇu*—óyeme bien ahora; *pañca*—cinco; *nakhān*—uñas; *paśūn*—animales.

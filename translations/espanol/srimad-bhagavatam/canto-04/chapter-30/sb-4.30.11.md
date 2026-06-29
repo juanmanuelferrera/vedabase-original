@@ -1,11 +1,11 @@
 ### SB 4.30.11
 
-> यद्यूयं पितुरादेशमग्रहीष्ट मुदान्विताः ।
+> यद्यूयं पितुरादेशमग्रहीष्ट मुदान्विताः ।\
 > अथो व उशती कीर्तिर्लोकाननु भविष्यति ॥११॥
 
-> yad yūyaṁ pitur ādeśam
-> agrahīṣṭa mudānvitāḥ
-> atho va uśatī kīrtir
+> yad yūyaṁ pitur ādeśam\
+> agrahīṣṭa mudānvitāḥ\
+> atho va uśatī kīrtir\
 > lokān anu bhaviṣyati
 
 *yat*—debido a; *yūyam*—ustedes; *pituḥ*—de su padre; *ādeśam*—la orden; *agrahīṣṭa*—aceptada; *mudā-anvitāḥ*—con gran felicidad; *atho*—por lo tanto; *vaḥ*—sus; *uśatī*—atractivas; *kīrtiḥ*—glorias; *lokān anu*—por todo el universo; *bhaviṣyati*—será posible.

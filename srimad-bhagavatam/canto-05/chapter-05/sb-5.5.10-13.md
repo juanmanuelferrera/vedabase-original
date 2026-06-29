@@ -1,32 +1,32 @@
 ### SB 5.5.10-13
 
-> हंसे गुरौ मयि भक्त्यानुवृत्या वितृष्णया द्वन्द्वतितिक्षया च
-> सर्वत्र जन्तोर्व्यसनावगत्या जिज्ञआसया तपसेहानिवृत्त्या ॥१०॥
-> मत्कर्मभिर्मत्कथया च नित्यं मद्देवसङ्गाद्गुणकीर्तनान्मे
-> निर्वैरसाम्योपशमेन पुत्रा जिहासया देहगेहात्मबुद्धेः ॥११॥
-> अध्यात्मयोगेन विविक्तसेवया प्राणेन्द्रियात्माभिजयेन सध्र्यक
-> सच्छ्रद्धया ब्रह्मचर्येण शश्वदसम्प्रमादेन यमेन वाचाम ॥१२॥
-> सर्वत्र मद्भावविचक्षणेन ज्ञआनेन विज्ञआनविराजितेन
+> हंसे गुरौ मयि भक्त्यानुवृत्या वितृष्णया द्वन्द्वतितिक्षया च\
+> सर्वत्र जन्तोर्व्यसनावगत्या जिज्ञआसया तपसेहानिवृत्त्या ॥१०॥\
+> मत्कर्मभिर्मत्कथया च नित्यं मद्देवसङ्गाद्गुणकीर्तनान्मे\
+> निर्वैरसाम्योपशमेन पुत्रा जिहासया देहगेहात्मबुद्धेः ॥११॥\
+> अध्यात्मयोगेन विविक्तसेवया प्राणेन्द्रियात्माभिजयेन सध्र्यक\
+> सच्छ्रद्धया ब्रह्मचर्येण शश्वदसम्प्रमादेन यमेन वाचाम ॥१२॥\
+> सर्वत्र मद्भावविचक्षणेन ज्ञआनेन विज्ञआनविराजितेन\
 > योगेन धृत्युद्यमसत्त्वयुक्तो लिङ्गं व्यपोहेत्कुशलोऽहमाख्यम ॥१३॥
 
-> haṁse gurau mayi bhaktyānuvṛtyā
-> vitṛṣṇayā dvandva-titikṣayā ca
-> sarvatra jantor vyasanāvagatyā
+> haṁse gurau mayi bhaktyānuvṛtyā\
+> vitṛṣṇayā dvandva-titikṣayā ca\
+> sarvatra jantor vyasanāvagatyā\
 > jijñāsayā tapasehā-nivṛttyā
 
-> mat-karmabhir mat-kathayā ca nityaṁ
-> mad-deva-saṅgād guṇa-kīrtanān me
-> nirvaira-sāmyopaśamena putrā
+> mat-karmabhir mat-kathayā ca nityaṁ\
+> mad-deva-saṅgād guṇa-kīrtanān me\
+> nirvaira-sāmyopaśamena putrā\
 > jihāsayā deha-gehātma-buddheḥ
 
-> adhyātma-yogena vivikta-sevayā
-> prāṇendriyātmābhijayena sadhryak
-> sac-chraddhayā brahmacaryeṇa śaśvad
+> adhyātma-yogena vivikta-sevayā\
+> prāṇendriyātmābhijayena sadhryak\
+> sac-chraddhayā brahmacaryeṇa śaśvad\
 > asampramādena yamena vācām
 
-> sarvatra mad-bhāva-vicakṣaṇena
-> jñānena vijñāna-virājitena
-> yogena dhṛty-udyama-sattva-yukto
+> sarvatra mad-bhāva-vicakṣaṇena\
+> jñānena vijñāna-virājitena\
+> yogena dhṛty-udyama-sattva-yukto\
 > liṅgaṁ vyapohet kuśalo 'ham-ākhyam
 
 *haṁse*—who is a *paramahaṁsa,* or the most exalted. spiritually advanced person; *gurau*—to the spiritual master; *mayi*—unto Me, the Supreme Personality of Godhead; *bhaktyā*—by devotional service; *anuvṛtyā*—by following; *vitṛṣṇayā*—by detachment from sense gratification; *dvandva*—of the dualities of the material world; *titikṣayā*—by tolerance; *ca*—also; *sarvatra*—everywhere; *jantoḥ*—of the living entity; *vyasana*—the miserable condition of life; *avagatyā*—by realizing; *jijñāsayā*—by inquiring about the truth; *tapasā*—by practicing austerities and penances; *īhā-nivṛttyā*—by giving up the endeavor for sense enjoyment; *mat-karmabhiḥ*—by working for Me; *mat-kathayā*—by hearing topics about Me; *ca*—also; *nityam*—always; *mat-deva-saṅgāt*—by association with My devotees; *guṇa-kīrtanāt me*—by chanting and glorifying My transcendental qualities; *nirvaira*—being without enmity; *sāmya*—seeing everyone equally by spiritual understanding; *upaśamena*—by subduing anger, lamentation and so on; *putrāḥ*—O sons; *jihāsayā*—by desiring to give up; *deha*—with the body; *geha*—with the home; *ātma-buddheḥ*—identification of the self; *adhyātma-yogena*—by study of the revealed scriptures; *vivikta-sevayā*—by living in a solitary place; *prāṇa*—the life air; *indriya*—the senses; *ātma*—the mind; *abhijayena*—by controlling; *sadhryak*—completely; *sat-śraddhayā*—by developing faith in the scriptures; *brahmacaryeṇa*—by observing celibacy; *śaśvat*—always; *asampramādena*—by not being bewildered; *yamena*—by restraint; *vācām*—of words; *sarvatra*—everywhere; *mat-bhāva*—thinking of Me; *vicakṣaṇena*—by observing; *jñānena*—by development of knowledge; *vijñāna*—by practical application of knowledge; *virājitena*—illumined; *yogena*—by practice of *bhakti-yoga*; *dhṛti*—patience; *udyama*—enthusiasm; *sattva*—discretion; *yuktaḥ*—endowed with; *liṅgam*—the cause of material bondage; *vyapohet*—one can give up; *kuśalaḥ*—in full auspiciousness; *aham-ākhyam*—false ego, false identification with the material world.

@@ -1,11 +1,11 @@
 ### SB 6.16.31
 
-> तद्दर्शनध्वस्तसमस्तकिल्बिषः स्वस्थामलान्तःकरणोऽभ्ययान्मुनिः
+> तद्दर्शनध्वस्तसमस्तकिल्बिषः स्वस्थामलान्तःकरणोऽभ्ययान्मुनिः\
 > प्रवृद्धभक्त्या प्रणयाश्रुलोचनः प्रहृष्टरोमानमदादिपुरुषम ॥३१॥
 
-> tad-darśana-dhvasta-samasta-kilbiṣaḥ
-> svasthāmalāntaḥkaraṇo 'bhyayān muniḥ
-> pravṛddha-bhaktyā praṇayāśru-locanaḥ
+> tad-darśana-dhvasta-samasta-kilbiṣaḥ\
+> svasthāmalāntaḥkaraṇo 'bhyayān muniḥ\
+> pravṛddha-bhaktyā praṇayāśru-locanaḥ\
 > prahṛṣṭa-romānamad ādi-puruṣam
 
 *tat-darśana*—by the sight of the Supreme Personality of Godhead; *dhvasta*—destroyed; *samasta-kilbiṣaḥ*—having all sins; *svastha*—healthy; *amala*—and pure; *antaḥkaraṇaḥ*—the core of whose heart; *abhyayāt*—approached face to face; *muniḥ*—the King, who was silent due to full mental satisfaction; *pravṛddha-bhaktyā*—with an attitude of increased devotional service; *praṇaya-aśru-locanaḥ*—with tears in his eyes because of love; *prahṛṣṭa-roma*—his hairs standing on end due to jubilation; *anamat*—offered respectful obeisances; *ādi-puruṣam*—unto the expansion of the original personality.

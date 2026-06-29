@@ -1,11 +1,11 @@
 ### CC Madhya 17.136
 
-> অতঃ শ্রীকৃষ্ণনামাদি ন ভবেদ্গ্রাহ্যমিন্দ্রিয়ৈঃ ।
+> অতঃ শ্রীকৃষ্ণনামাদি ন ভবেদ্গ্রাহ্যমিন্দ্রিয়ৈঃ ।\
 > সেবোন্মুখে হি জিহ্বাদৌ স্বয়মেব স্ফুরত্যদঃ ॥১৩৬॥
 
-> ataḥ śrī-kṛṣṇa-nāmādi
-> na bhaved grāhyam indriyaiḥ
-> sevonmukhe hi jihvādau
+> ataḥ śrī-kṛṣṇa-nāmādi\
+> na bhaved grāhyam indriyaiḥ\
+> sevonmukhe hi jihvādau\
 > svayam eva sphuraty adaḥ
 
 *ataḥ*—por lo tanto (porque el nombre, la forma y la cualidad de Kṛṣṇa están todos en la plataforma absoluta); *śrī-kṛṣṇa-nāma-ādi*—el nombre, la forma, la cualidad, los pasatiempos del Señor Kṛṣṇa, etc.; *na*—no; *bhavet*—pueden ser; *grāhyam*—percibidos; *indriyaiḥ*—por los burdos sentidos materiales; *sevā-unmukhe*—a aquel que se ocupa en Su servicio; *hi*—ciertamente; *jihvā-ādau*—comenzando por la lengua; *svayam*—personalmente; *eva*—ciertamente; *sphurati*—se manifiestan; *adaḥ*—esas cosas (el nombre, la forma, la cualidad, etc., de Kṛṣṇa).

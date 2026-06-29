@@ -1,9 +1,9 @@
 ### CC Madhya 6.159
 
-> আনন্দাংশে ‘হ্লাদিনী’, সদংশে ‘সন্ধিনী’ ।
+> আনন্দাংশে ‘হ্লাদিনী’, সদংশে ‘সন্ধিনী’ ।\
 > চিদংশে ‘সম্বিৎ’, যারে জ্ঞান করি মানি ॥১৫৯॥
 
-> ānandāṁśe 'hlādinī,' sad-aṁśe 'sandhinī'
+> ānandāṁśe 'hlādinī,' sad-aṁśe 'sandhinī'\
 > cid-aṁśe 'samvit', yāre jñāna kari māni
 
 *ānanda-aṁśe*—in the part of bliss; *hlādinī*—the pleasure potency; *sat-aṁśe*—in the part of eternity; *sandhinī*—the *sandhinī* potency; *cit-aṁśe*—in the part of knowledge; *samvit*—the *samvit* potency; *yāre*—which; *jñāna*—as knowledge; *kari māni*—we accept.

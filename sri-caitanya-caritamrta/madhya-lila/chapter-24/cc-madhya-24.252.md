@@ -1,9 +1,9 @@
 ### CC Madhya 24.252
 
-> নারদ-সঙ্গে ব্যাধের মন পরসন্ন হইল ।
+> নারদ-সঙ্গে ব্যাধের মন পরসন্ন হইল ।\
 > তাঁর বাক্য শুনি’ মনে ভয় উপজিল ॥২৫২॥
 
-> nārada-saṅge vyādhera mana parasanna ha-ila
+> nārada-saṅge vyādhera mana parasanna ha-ila\
 > tāṅra vākya śuni' mane bhaya upajila
 
 *nārada-saṅge*—in the association of the great sage Nārada Muni; *vyādhera*—of the hunter; *mana*—the mind; *parasanna ha-ila*—became cleansed and satisfied; *tāṅra*—his; *vākya*—words; *śuni'*—hearing; *mane*—in the mind; *bhaya upajila*—some fear arose.

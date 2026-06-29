@@ -1,11 +1,11 @@
 ### SB 8.8.22
 
-> धर्मः क्वचित्तत्र न भूतसौहृदं त्यागः क्वचित्तत्र न मुक्तिकारणम
+> धर्मः क्वचित्तत्र न भूतसौहृदं त्यागः क्वचित्तत्र न मुक्तिकारणम\
 > वीर्यं न पुंसोऽस्त्यजवेगनिष्कृतं न हि द्वितीयो गुणसङ्गवर्जितः ॥२२॥
 
-> kvacic cirāyur na hi śīla-maṅgalaṁ
-> kvacit tad apy asti na vedyam āyuṣaḥ
-> yatrobhayaṁ kutra ca so 'py amaṅgalaḥ
+> kvacic cirāyur na hi śīla-maṅgalaṁ\
+> kvacit tad apy asti na vedyam āyuṣaḥ\
+> yatrobhayaṁ kutra ca so 'py amaṅgalaḥ\
 > sumaṅgalaḥ kaśca na kāṅkṣate hi mām
 
 *kvacit*—someone; *cira-āyuḥ*—has a long duration of life; *na*—not; *hi*—indeed; *śīla-maṅgalam*—good behavior or auspiciousness; *kvacit*—someone; *tat api*—although possessing good behavior; *asti*—is; *na*—not; *vedyam āyuṣaḥ*—aware of the duration of life; *yatra ubhayam*—if there are both (behavior and auspiciousness); *kutra*—somewhere; *ca*—also; *saḥ*—that person; *api*—although; *amaṅgalaḥ*—a little inauspicious in some other detail; *su-maṅgalaḥ*—auspicious in every respect; *kaśca*—someone; *na*—not; *kāṅkṣate*—desires; *hi*—indeed; *mām*—me.

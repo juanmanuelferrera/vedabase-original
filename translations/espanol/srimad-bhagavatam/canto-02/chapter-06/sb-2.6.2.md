@@ -1,11 +1,11 @@
 ### SB 2.6.2
 
-> सर्वासूनां च वायोश्च तन्नासे परमायणे ।
+> सर्वासूनां च वायोश्च तन्नासे परमायणे ।\
 > अश्विनोरोषधीनां च घ्राणो मोदप्रमोदयोः ॥२॥
 
-> sarvāsūnāṁ ca vāyoś ca
-> tan-nāse paramāyaṇe
-> aśvinor oṣadhīnāṁ ca
+> sarvāsūnāṁ ca vāyoś ca\
+> tan-nāse paramāyaṇe\
+> aśvinor oṣadhīnāṁ ca\
 > ghrāṇo moda-pramodayoḥ
 
 *sarva*—todas; *asūnām*—diferentes clases de aire vital; *ca*—y; *vāyoḥ*—del aire; *ca*—también; *tat*—Su; *nāse*—en la nariz; *parama-āyaṇe*—en el centro generador trascendental; *aśvinoḥ*—de los semidioses Aśvinī-kumāra; *oṣadhīnām*—de todas las hierbas medicinales; *ca*—también; *ghrāṇaḥ*—Su poder olfativo; *moda*—placer; *pramodayoḥ*—deporte específico.

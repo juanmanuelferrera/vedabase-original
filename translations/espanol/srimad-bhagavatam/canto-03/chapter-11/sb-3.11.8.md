@@ -1,11 +1,11 @@
 ### SB 3.11.8
 
-> लघूनि वै समाम्नाता दश पञ्च च नाडिका ।
+> लघूनि वै समाम्नाता दश पञ्च च नाडिका ।\
 > ते द्वे मुहूर्तः प्रहरः षड्यामः सप्त वा नृणाम् ॥८॥
 
-> laghūni vai samāmnātā
-> daśa pañca ca nāḍikā
-> te dve muhūrtaḥ praharaḥ
+> laghūni vai samāmnātā\
+> daśa pañca ca nāḍikā\
+> te dve muhūrtaḥ praharaḥ\
 > ṣaḍ yāmaḥ sapta vā nṛṇām
 
 *laghūni*—esos *laghus* (de dos minutos cada uno); *vai*—exactamente; *samāmnātā*—se denomina; *daśa pañca*—quince; *ca*—también; *nāḍikā*—un *nāḍikā*; *te*—de ellos; *dve*—dos; *muhūrtaḥ*—un momento; *praharaḥ*—tres horas; *ṣaṭ*—seis; *yāmaḥ*—un cuarto del día o de la noche; *sapta*—siete; *vā*—o; *nṛṇām*—de cálculo humano.

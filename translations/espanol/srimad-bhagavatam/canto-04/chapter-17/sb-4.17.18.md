@@ -1,11 +1,11 @@
 ### SB 4.17.18
 
-> उवाच च महाभागं धर्मज्ञापन्नवत्सल ।
+> उवाच च महाभागं धर्मज्ञापन्नवत्सल ।\
 > त्राहि मामपि भूतानां पालनेऽवस्थितो भवान् ॥१८॥
 
-> uvāca ca mahā-bhāgaṁ
-> dharma-jñāpanna-vatsala
-> trāhi mām api bhūtānāṁ
+> uvāca ca mahā-bhāgaṁ\
+> dharma-jñāpanna-vatsala\
+> trāhi mām api bhūtānāṁ\
 > pālane 'vasthito bhavān
 
 *uvāca*—ella dijo; *ca*—y; *mahā-bhāgam*—al eminente y afortunado rey; *dharma-jña*—¡oh, conocedor de los principios de la religión!; *āpanna-vatsala*—¡oh, refugio de los que se rinden!; *trāhi*—salva; *mām*—a mí; *api*—en verdad; *bhūtānām*—de las entidades vivientes; *pālane*—en la protección; *avasthitaḥ*—situado; *bhavān*—tu majestad.

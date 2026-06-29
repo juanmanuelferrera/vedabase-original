@@ -1,9 +1,9 @@
 ### CC Antya 16.22
 
-> এক বাঞ্ছা হয়, — যদি কৃপা করি’ কর ।
+> এক বাঞ্ছা হয়, — যদি কৃপা করি’ কর ।\
 > পাদরজ দেহ’, পাদ মোর মাথে ধর ।।” ॥ ২২ ॥
 
-> eka vāñchā haya,—yadi kṛpā kari' kara
+> eka vāñchā haya,—yadi kṛpā kari' kara\
 > pāda-raja deha', pāda mora māthe dhara"
 
 *eka vāñchā*—one desire; *haya*—there is; *yadi*—if; *kṛpā kari'*—being merciful; *kara*—you do; *pāda-raja*—the dust of your feet; *deha'*—give; *pāda*—feet; *mora*—my; *māthe*—on the head; *dhara*—please place.

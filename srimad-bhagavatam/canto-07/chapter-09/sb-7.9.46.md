@@ -1,13 +1,13 @@
 ### SB 7.9.46
 
-> मौनव्रतश्रुततपोऽध्ययनस्वधर्म
-> व्याख्यारहोजपसमाधय आपवर्ग्याः
-> प्रायः परं पुरुष ते त्वजितेन्द्रियाणां
+> मौनव्रतश्रुततपोऽध्ययनस्वधर्म\
+> व्याख्यारहोजपसमाधय आपवर्ग्याः\
+> प्रायः परं पुरुष ते त्वजितेन्द्रियाणां\
 > वार्ता भवन्त्युत न वात्र तु दाम्भिकानाम ॥४६॥
 
-> mauna-vrata-śruta-tapo-'dhyayana-sva-dharma-
-> vyākhyā-raho-japa-samādhaya āpavargyāḥ
-> prāyaḥ paraṁ puruṣa te tv ajitendriyāṇāṁ
+> mauna-vrata-śruta-tapo-'dhyayana-sva-dharma-\
+> vyākhyā-raho-japa-samādhaya āpavargyāḥ\
+> prāyaḥ paraṁ puruṣa te tv ajitendriyāṇāṁ\
 > vārtā bhavanty uta na vātra tu dāmbhikānām
 
 *mauna*—silence; *vrata*—vows; *śruta*—Vedic knowledge; *tapaḥ*—austerity; *adhyayana*—study of scripture; *sva-dharma*—executing *varṇāśrama-dharma*; *vyākhyā*—explaining the *śāstras*; *rahaḥ*—living in a solitary place; *japa*—chanting or reciting *mantras*; *samādhayaḥ*—remaining in trance; *āpavargyāḥ*—these are ten types of activities for advancing on the path of liberation; *prāyaḥ*—generally; *param*—the only means; *puruṣa*—O my Lord; *te*—all of them; *tu*—but; *ajita-indriyāṇām*—of persons who cannot control the senses; *vārtāḥ*—means of living; *bhavanti*—are; *uta*—so it is said; *na*—not; *vā*—or; *atra*—in this connection; *tu*—but; *dāmbhikānām*—of persons who are falsely proud.

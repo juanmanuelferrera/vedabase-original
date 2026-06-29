@@ -1,9 +1,9 @@
 ### CC Antya 14.9
 
-> ক্ষণে ক্ষণে অনুভবি’ এই দুইজন ।
+> ক্ষণে ক্ষণে অনুভবি’ এই দুইজন ।\
 > সংক্ষেপে বাহুল্যে করেন কড়চা-গ্রন্থন ॥৯॥
 
-> kṣaṇe kṣaṇe anubhavi' ei dui-jana
+> kṣaṇe kṣaṇe anubhavi' ei dui-jana\
 > saṅkṣepe bāhulye karena kaḍacā-granthana
 
 *kṣaṇe kṣaṇe*—momento a momento; *anubhavi'*—comprendiendo; *ei dui-jana*—estas dos personas; *saṅkṣepe*—brevemente; *bāhulye*—elaboradamente; *karena*—hacen; *kaḍacā-granthana*—la compilación de los cuadernos.

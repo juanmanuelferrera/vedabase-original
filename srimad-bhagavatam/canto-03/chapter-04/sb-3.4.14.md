@@ -1,11 +1,11 @@
 ### SB 3.4.14
 
-> इत्यादृतोक्तः परमस्य पुंसः प्रतिक्षणानुग्रहभाजनोऽहम् ।
+> इत्यादृतोक्तः परमस्य पुंसः प्रतिक्षणानुग्रहभाजनोऽहम् ।\
 > स्नेहोत्थरोमा स्खलिताक्षरस्तं मुञ्चञ्छुचः प्राञ्जलिराबभाषे ॥१४॥
 
-> ity ādṛtoktaḥ paramasya puṁsaḥ
-> pratikṣaṇānugraha-bhājano 'ham
-> snehottha-romā skhalitākṣaras taṁ
+> ity ādṛtoktaḥ paramasya puṁsaḥ\
+> pratikṣaṇānugraha-bhājano 'ham\
+> snehottha-romā skhalitākṣaras taṁ\
 > muñcañ chucaḥ prāñjalir ābabhāṣe
 
 *iti*—thus; *ādṛta*—being favored; *uktaḥ*—addressed; *paramasya*—of the Supreme; *puṁsaḥ*—Personality of Godhead; *pratikṣaṇa*—every moment; *anugraha-bhājanaḥ*—object of favor; *aham*—myself; *sneha*—affection; *uttha*—eruption; *romā*—hairs on the body; *skhalita*—slackened; *akṣaraḥ*—of the eyes; *tam*—that; *muñcan*—smearing; *śucaḥ*—tears; *prāñjaliḥ*—with folded hands; *ābabhāṣe*—said.

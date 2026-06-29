@@ -1,11 +1,11 @@
 ### SB 3.27.30
 
-> यदा न योगोपचितासु चेतो मायासु सिद्धस्य विषज्जतेऽङ्ग ।
+> यदा न योगोपचितासु चेतो मायासु सिद्धस्य विषज्जतेऽङ्ग ।\
 > अनन्यहेतुष्वथ मे गतिः स्यादात्यन्तिकी यत्र न मृत्युहासः ॥३०॥
 
-> yadā na yogopacitāsu ceto
-> māyāsu siddhasya viṣajjate 'ṅga
-> ananya-hetuṣv atha me gatiḥ syād
+> yadā na yogopacitāsu ceto\
+> māyāsu siddhasya viṣajjate 'ṅga\
+> ananya-hetuṣv atha me gatiḥ syād\
 > ātyantikī yatra na mṛtyu-hāsaḥ
 
 *yadā*—cuando; *na*—no; *yoga-upacitāsu*—a los poderes adquiridos con el *yoga*; *cetaḥ*—la atención; *māyāsu*—manifestaciones de *māyā*; *siddhasya*—de un *yogī* perfecto; *viṣajjate*—se ve atraído; *aṅga*—Mi querida madre; *ananya-hetuṣu*—sin tener ninguna otra causa; *atha*—entonces; *me*—a Mí; *gatiḥ*—su avance; *syāt*—llega a ser; *ātyantikī*—sin obstrucción; *yatra*—donde; *na*—no; *mṛtyu-hāsaḥ*—el poder de la muerte.

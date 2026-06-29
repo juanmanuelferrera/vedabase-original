@@ -1,11 +1,11 @@
 ### SB 3.21.36
 
-> मनुः स्यन्दनमास्थाय शातकौम्भपरिच्छदम् ।
+> मनुः स्यन्दनमास्थाय शातकौम्भपरिच्छदम् ।\
 > आरोप्य स्वां दुहितरं सभार्यः पर्यटन्महीम् ॥३६॥
 
-> manuḥ syandanam āsthāya
-> śātakaumbha-paricchadam
-> āropya svāṁ duhitaraṁ
+> manuḥ syandanam āsthāya\
+> śātakaumbha-paricchadam\
+> āropya svāṁ duhitaraṁ\
 > sa-bhāryaḥ paryaṭan mahīm
 
 *manuḥ*—Svāyambhuva Manu; *syandanam*—en la carroza; *āsthāya*—habiendo montado; *śātakaumbha*—hecha de oro; *paricchadam*—la cubierta exterior; *āropya*—poniendo en él; *svām*—a su propia; *duhitaram*—hija; *sa-bhāryaḥ*—junto con su esposa; *paryaṭan*—viajando por todo; *mahīm*—el globo.

@@ -1,11 +1,11 @@
 ### SB 1.3.10
 
-> पञ्चमः कपिलो नाम सिद्धेशः कालविप्लुतम् ।
+> पञ्चमः कपिलो नाम सिद्धेशः कालविप्लुतम् ।\
 > प्रोवाचासुरये साङ्ख्यं तत्त्वग्रामविनिर्णयम् ॥१०॥
 
-> pañcamaḥ kapilo nāma
-> siddheśaḥ kāla-viplutam
-> provācāsuraye sāṅkhyaṁ
+> pañcamaḥ kapilo nāma\
+> siddheśaḥ kāla-viplutam\
+> provācāsuraye sāṅkhyaṁ\
 > tattva-grāma-vinirṇayam
 
 *pañcamaḥ*—la quinta; *kapilaḥ*—Kapila; *nāma*—de nombre; *siddheśaḥ*—el principal entre los perfectos; *kāla*—tiempo; *viplutam*—perdido; *provāca*—dijo; *āsuraye*—al *brāhmaṇa* llamado Āsuri; *sāṅkhyam*—metafísica; *tattva-grāma*—la suma total de los elementos creativos; *vinirṇayam*—exposición.

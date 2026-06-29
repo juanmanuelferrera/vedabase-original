@@ -1,13 +1,13 @@
 ### SB 1.6.2
 
-> व्यास उवाच
-> भिक्षुभिर्विप्रवसिते विज्ञानादेष्टृभिस्तव ।
+> व्यास उवाच\
+> भिक्षुभिर्विप्रवसिते विज्ञानादेष्टृभिस्तव ।\
 > वर्तमानो वयस्याद्ये ततः किमकरोद्भवान् ॥२॥
 
-> vyāsa uvāca
-> bhikṣubhir vipravasite
-> vijñānādeṣṭṛbhis tava
-> vartamāno vayasy ādye
+> vyāsa uvāca\
+> bhikṣubhir vipravasite\
+> vijñānādeṣṭṛbhis tava\
+> vartamāno vayasy ādye\
 > tataḥ kim akarod bhavān
 
 *vyāsaḥ uvāca*—Śrī Vyāsadeva dijo; *bhikṣubhiḥ*—por los grandes mendicantes; *vipravasite*—habiendo partido para otros lugares; *vijñāna*—conocimiento científico acerca de la trascendencia; *ādeṣṭṛbhiḥ*—aquellos que habían instruido; *tava*—de tu; *vartamānaḥ*—actual; *vayasi*—de la duración de la vida; *ādye*—antes del comienzo de; *tataḥ*—después de esto; *kim*—qué; *akarot*—hizo; *bhavān*—tu buena persona.

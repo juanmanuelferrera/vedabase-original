@@ -1,11 +1,11 @@
 ### SB 7.4.30
 
-> तस्य दैत्यपतेः पुत्राश्चत्वारः परमाद्भुताः
+> तस्य दैत्यपतेः पुत्राश्चत्वारः परमाद्भुताः\
 > प्रह्रादोऽभून्महांस्तेषां गुणैर्महदुपासकः ॥३०॥
 
-> tasya daitya-pateḥ putrāś
-> catvāraḥ paramādbhutāḥ
-> prahrādo 'bhūn mahāṁs teṣāṁ
+> tasya daitya-pateḥ putrāś\
+> catvāraḥ paramādbhutāḥ\
+> prahrādo 'bhūn mahāṁs teṣāṁ\
 > guṇair mahad-upāsakaḥ
 
 *tasya*—de él (Hiraṇyakaśipu); *daitya-pateḥ*—el rey de los *daityas*; *putrāḥ*—hijos; *catvāraḥ*—cuatro; *parama-adbhutāḥ*—maravillosos y con grandes cualidades; *prahrādaḥ*—el que llevaba el nombre de Prahlāda; *abhūt*—era; *mahān*—el más grande; *teṣām*—de todos ellos; *guṇaiḥ*—con cualidades trascendentales; *mahat-upāsakaḥ*—que era un devoto puro de la Suprema Personalidad de Dios.

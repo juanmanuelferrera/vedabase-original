@@ -1,9 +1,9 @@
 ### CC Madhya 24.180
 
-> কিংবা ‘ধৃতি’-শব্দে নিজপূর্ণতাদি-জ্ঞান কয় ।
+> কিংবা ‘ধৃতি’-শব্দে নিজপূর্ণতাদি-জ্ঞান কয় ।\
 > দুঃখাভাবে উত্তমপ্রাপ্ত্যে মহাপূর্ণ হয় ॥১৮০॥
 
-> kiṁvā'dhṛti'-śabde nija-pūrṇatādi-jñāna kaya
+> kiṁvā'dhṛti'-śabde nija-pūrṇatādi-jñāna kaya\
 > duḥkhābhāve uttama-prāptye mahā-pūrṇa haya
 
 *kiṁvā*—o; *dhṛti*—dhṛti; *śabde*—por esta palabra; *nija*—propio; *pūrṇatā-ādi*—perfección, etc.; *jñāna*—conocimiento; *kaya*—dice; *duḥkha-abhāve*—en ausencia de todas las miserias materiales; *uttama*—lo mejor; *prāptye*—al obtener; *mahā-pūrṇa haya*—se vuelve perfectamente perfecto.

@@ -1,11 +1,11 @@
 ### SB 4.17.17
 
-> लोके नाविन्दत त्राणं वैन्यान्मृत्योरिव प्रजाः ।
+> लोके नाविन्दत त्राणं वैन्यान्मृत्योरिव प्रजाः ।\
 > त्रस्ता तदा निववृते हृदयेन विदूयता ॥१७॥
 
-> loke nāvindata trāṇaṁ
-> vainyān mṛtyor iva prajāḥ
-> trastā tadā nivavṛte
+> loke nāvindata trāṇaṁ\
+> vainyān mṛtyor iva prajāḥ\
+> trastā tadā nivavṛte\
 > hṛdayena vidūyatā
 
 *loke*—within the three worlds; *na*—not; *avindata*—could obtain; *trāṇam*—release; *vainyāt*—from the hand of the son of King Vena; *mṛtyoḥ*—from death; *iva*—like; *prajāḥ*—men; *trastā*—being very much afraid; *tadā*—at that time; *nivavṛte*—turned back; *hṛdayena*—within her heart; *vidūyatā*—very much aggrieved.

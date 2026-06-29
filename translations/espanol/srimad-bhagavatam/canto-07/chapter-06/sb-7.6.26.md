@@ -1,13 +1,13 @@
 ### SB 7.6.26
 
-> धर्मार्थकाम इति योऽभिहितस्त्रिवर्ग
-> ईक्षा त्रयी नयदमौ विविधा च वार्ता
-> मन्ये तदेतदखिलं निगमस्य सत्यं
+> धर्मार्थकाम इति योऽभिहितस्त्रिवर्ग\
+> ईक्षा त्रयी नयदमौ विविधा च वार्ता\
+> मन्ये तदेतदखिलं निगमस्य सत्यं\
 > स्वात्मार्पणं स्वसुहृदः परमस्य पुंसः ॥२६॥
 
-> dharmārtha-kāma iti yo 'bhihitas tri-varga
-> īkṣā trayī naya-damau vividhā ca vārtā
-> manye tad etad akhilaṁ nigamasya satyaṁ
+> dharmārtha-kāma iti yo 'bhihitas tri-varga\
+> īkṣā trayī naya-damau vividhā ca vārtā\
+> manye tad etad akhilaṁ nigamasya satyaṁ\
 > svātmārpaṇaṁ sva-suhṛdaḥ paramasya puṁsaḥ
 
 *dharma*—la religión; *artha*—el crecimiento económico; *kāmaḥ*—la complacencia regulada de los sentidos; *iti*—así; *yaḥ*—que; *abhihitaḥ*—prescritos; *tri-vargaḥ*—el grupo de tres; *īkṣā*—autorrealización; *trayī*—las ceremonias rituales de los *Vedas*; *naya*—lógica; *damau*—y la ciencia de la ley y el orden; *vividhā*—diversidad de; *ca*—también; *vārtā*—deberes propios de la ocupación, o el propio sustento; *manye*—considero; *tat*—a ellos; *etat*—estos; *akhilam*—todos; *nigamasya*—de los *Vedas*; *satyam*—verdad; *sva-ātma-arpaṇam*—la entrega plena del propio ser; *sva-suhṛdaḥ*—al amigo supremo; *paramasya*—la suprema; *puṁsaḥ*—personalidad.

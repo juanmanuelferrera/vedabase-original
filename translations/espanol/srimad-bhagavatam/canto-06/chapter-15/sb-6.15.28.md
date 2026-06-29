@@ -1,13 +1,13 @@
 ### SB 6.15.28
 
-> यत्पादमूलमुपसृत्य नरेन्द्र पूर्वे
-> शर्वादयो भ्रममिमं द्वितयं विसृज्य
-> सद्यस्तदीयमतुलानधिकं महित्वं
+> यत्पादमूलमुपसृत्य नरेन्द्र पूर्वे\
+> शर्वादयो भ्रममिमं द्वितयं विसृज्य\
+> सद्यस्तदीयमतुलानधिकं महित्वं\
 > प्रापुर्भवानपि परं न चिरादुपैति ॥२८॥
 
-> yat-pāda-mūlam upasṛtya narendra pūrve
-> śarvādayo bhramam imaṁ dvitayaṁ visṛjya
-> sadyas tadīyam atulānadhikaṁ mahitvaṁ
+> yat-pāda-mūlam upasṛtya narendra pūrve\
+> śarvādayo bhramam imaṁ dvitayaṁ visṛjya\
+> sadyas tadīyam atulānadhikaṁ mahitvaṁ\
 > prāpur bhavān api paraṁ na cirād upaiti
 
 *yat-pāda-mūlam*—los pies de loto del cual (del Señor Saṅkarṣaṇa); *upasṛtya*—obtener refugio en; *nara-indra*—¡oh, rey!; *pūrve*—en el pasado; *śarva-ādayaḥ*—grandes semidioses como el Señor Mahādeva; *bhramam*—ilusión; *imam*—esta; *dvitayam*—que consiste en la dualidad; *visṛjya*—abandonar; *sadyaḥ*—de inmediato; *tadīyam*—Suyas; *atula*—inigualables; *anadhikam*—insuperables; *mahitvam*—glorias; *prāpuḥ*—alcanzaron; *bhavān*—tú mismo; *api*—también; *param*—la morada suprema; *na*—no; *cirāt*—después de mucho tiempo; *upaiti*—obtendrás.

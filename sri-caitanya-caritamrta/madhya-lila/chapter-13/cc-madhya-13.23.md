@@ -1,9 +1,9 @@
 ### CC Madhya 13.23
 
-> পঞ্চদশ দিন ঈশ্বর মহালক্ষ্মী লঞা ।
+> পঞ্চদশ দিন ঈশ্বর মহালক্ষ্মী লঞা ।\
 > তাঁর সঙ্গে ক্রীড়া কৈল নিভৃতে বসিয়া ॥২৩॥
 
-> pañca-daśa dina īśvara mahā-lakṣmī lañā
+> pañca-daśa dina īśvara mahā-lakṣmī lañā\
 > tāṅra saṅge krīḍā kaila nibhṛte vasiyā
 
 *pañca-daśa dina*—fifteen days; *īśvara*—the Lord; *mahā-lakṣmī*—the supreme goddess of fortune; *lañā*—with; *tāṅra saṅge*—in her company; *krīḍā*—enjoyment; *kaila*—performed; *nibhṛte*—in a solitary place; *vasiyā*—sitting.

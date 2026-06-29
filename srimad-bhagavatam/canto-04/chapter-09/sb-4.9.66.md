@@ -1,11 +1,11 @@
 ### SB 4.9.66
 
-> वीक्ष्योढवयसं तं च प्रकृतीनां च सम्मतम् ।
+> वीक्ष्योढवयसं तं च प्रकृतीनां च सम्मतम् ।\
 > अनुरक्तप्रजं राजा ध्रुवं चक्रे भुवः पतिम् ॥६६॥
 
-> vīkṣyoḍha-vayasaṁ taṁ ca
-> prakṛtīnāṁ ca sammatam
-> anurakta-prajaṁ rājā
+> vīkṣyoḍha-vayasaṁ taṁ ca\
+> prakṛtīnāṁ ca sammatam\
+> anurakta-prajaṁ rājā\
 > dhruvaṁ cakre bhuvaḥ patim
 
 *vīkṣya*—after seeing; *ūḍha-vayasam*—mature in age; *tam*—Dhruva; *ca*—and; *prakṛtīnām*—by the ministers; *ca*—also; *sammatam*—approved of; *anurakta*—beloved; *prajam*—by his subjects; *rājā*—the King; *dhruvam*—Dhruva Mahārāja; *cakre*—made; *bhuvaḥ*—of the earth; *patim*—master.

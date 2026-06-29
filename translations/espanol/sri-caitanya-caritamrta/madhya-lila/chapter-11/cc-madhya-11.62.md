@@ -1,9 +1,9 @@
 ### CC Madhya 11.62
 
-> snāna-yātrā dekhi' prabhura haila baḍa sukha
+> snāna-yātrā dekhi' prabhura haila baḍa sukha\
 > īśvarera 'anavasare' pāila baḍa duḥkha
 
-> snāna-yātrā dekhi' prabhura haila baḍa sukha
+> snāna-yātrā dekhi' prabhura haila baḍa sukha\
 > īśvarera 'anavasare' pāila baḍa duḥkha
 
 *snāna-yātrā*—la ceremonia de baño del Señor Jagannātha; *dekhi'*—al ver; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *haila*—se volvió; *baḍa*—muy grande; *sukha*—felicidad; *īśvarera*—del Señor; *anavasare*—durante el pasatiempo de retiro; *pāila*—tuvo; *baḍa*—muy grande; *duḥkha*—infelicidad.

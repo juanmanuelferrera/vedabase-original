@@ -1,18 +1,18 @@
 ### SB 6.1.4-5
 
-> प्रियव्रतोत्तानपदोर्वंशस्तच्चरितानि च
-> द्वीपवर्षसमुद्राद्रि नद्युद्यानवनस्पतीन ॥४॥
-> धरामण्डलसंस्थानं भागलक्षणमानतः
+> प्रियव्रतोत्तानपदोर्वंशस्तच्चरितानि च\
+> द्वीपवर्षसमुद्राद्रि नद्युद्यानवनस्पतीन ॥४॥\
+> धरामण्डलसंस्थानं भागलक्षणमानतः\
 > ज्योतिषां विवराणां च यथेदमसृजद्विभुः ॥५॥
 
-> priyavratottānapador
-> vaṁśas tac-caritāni ca
-> dvīpa-varṣa-samudrādri-
+> priyavratottānapador\
+> vaṁśas tac-caritāni ca\
+> dvīpa-varṣa-samudrādri-\
 > nady-udyāna-vanaspatīn
 
-> dharā-maṇḍala-saṁsthānaṁ
-> bhāga-lakṣaṇa-mānataḥ
-> jyotiṣāṁ vivarāṇāṁ ca
+> dharā-maṇḍala-saṁsthānaṁ\
+> bhāga-lakṣaṇa-mānataḥ\
+> jyotiṣāṁ vivarāṇāṁ ca\
 > yathedam asṛjad vibhuḥ
 
 *priyavrata*—of Priyavrata; *uttānapadoḥ*—and of Uttānapāda; *vaṁśaḥ*—the dynasty; *tat-caritāni*—their characteristics; *ca*—also; *dvīpa*—different planets; *varṣa*—lands; *samudra*—oceans and seas; *adri*—mountains; *nadī*—rivers; *udyāna*—gardens; *vanaspatīn*—and trees; *dharā-maṇḍala*—of the planet earth; *saṁsthānam*—situation; *bhāga*—according to divisions; *lakṣaṇa*—different symptoms; *mānataḥ*—and measurements; *jyotiṣām*—of the sun and other luminaries; *vivarāṇām*—of the lower planetary systems; *ca*—and; *yathā*—as; *idam*—this; *asṛjat*—created; *vibhuḥ*—the Supreme Personality of Godhead.

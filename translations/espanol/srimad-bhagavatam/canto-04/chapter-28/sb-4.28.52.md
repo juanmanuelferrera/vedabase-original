@@ -1,13 +1,13 @@
 ### SB 4.28.52
 
-> ब्राह्मण उवाच
-> का त्वं कस्यासि को वायं शयानो यस्य शोचसि ।
+> ब्राह्मण उवाच\
+> का त्वं कस्यासि को वायं शयानो यस्य शोचसि ।\
 > जानासि किं सखायं मां येनाग्रे विचचर्थ ह ॥५२॥
 
-> brāhmaṇa uvāca
-> kā tvaṁ kasyāsi ko vāyaṁ
-> śayāno yasya śocasi
-> jānāsi kiṁ sakhāyaṁ māṁ
+> brāhmaṇa uvāca\
+> kā tvaṁ kasyāsi ko vāyaṁ\
+> śayāno yasya śocasi\
+> jānāsi kiṁ sakhāyaṁ māṁ\
 > yenāgre vicacartha ha
 
 *brāhmaṇaḥ uvāca*—el erudito *brāhmaṇa* dijo; *kā*—quién; *tvam*—tú; *kasya*—de quién; *asi*—eres; *kaḥ*—quién; *vā*—o; *ayam*—este hombre; *śayānaḥ*—que yace; *yasya*—por quien; *śocasi*—te lamentas; *jānāsi kim*—¿conoces?; *sakhāyam*—amigo; *mām*—a Mí; *yena*—con quien; *agre*—en el pasado; *vicacartha*—has consultado; *ha*—ciertamente.

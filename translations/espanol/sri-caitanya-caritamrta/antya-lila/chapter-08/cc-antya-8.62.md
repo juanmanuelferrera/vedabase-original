@@ -1,9 +1,9 @@
 ### CC Antya 8.62
 
-> এইরূপ মহাদুঃখে দিন কত গেল ।
+> এইরূপ মহাদুঃখে দিন কত গেল ।\
 > শুনি’ রামচন্দ্রপুরী প্রভু-পাশ আইল ॥৬২॥
 
-> ei-rūpa mahā-duḥkhe dina kata gela
+> ei-rūpa mahā-duḥkhe dina kata gela\
 > śuni, rāmacandra-purī prabhu-pāśa āila
 
 *ei-rūpa*—de esta manera; *mahā-duḥkhe*—con gran infelicidad; *dina kata*—algunos días; *gela*—pasaron; *śuni'*—al oír; *rāmacandra-purī*—Rāmacandra Purī; *prabhu-pāśa āila*—vino ante Śrī Caitanya Mahāprabhu.

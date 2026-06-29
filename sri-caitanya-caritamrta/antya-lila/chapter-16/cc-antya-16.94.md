@@ -1,9 +1,9 @@
 ### CC Antya 16.94
 
-> ‘এই দ্রব্যে এত স্বাদ কাঁহা হৈতে আইল ?
+> ‘এই দ্রব্যে এত স্বাদ কাঁহা হৈতে আইল ?\
 > কৃষ্ণের অধরামৃত ইথে সঞ্চারিল ।।’ ॥ ৯৪ ॥
 
-> 'ei dravye eta svāda kāhāṅ haite āila?
+> 'ei dravye eta svāda kāhāṅ haite āila?\
 > kṛṣṇera adharāmṛta ithe sañcārila'
 
 *ei dravye*—in these ingredients; *eta*—so much; *svāda*—taste; *kāhāṅ*—where; *haite*—from; *āila*—has come; *kṛṣṇera*—of Lord Kṛṣṇa; *adhara-amṛta*—nectar from the lips; *ithe*—in this; *sañcārila*—has spread.

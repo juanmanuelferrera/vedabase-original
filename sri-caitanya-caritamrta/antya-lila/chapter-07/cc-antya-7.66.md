@@ -1,9 +1,9 @@
 ### CC Antya 7.66
 
-> গৌড়ের ভক্ত যত কহিতে না পারি ।
+> গৌড়ের ভক্ত যত কহিতে না পারি ।\
 > অঙ্গনে বসিলা সব হঞা সারি সারি ॥৬৬॥
 
-> gauḍera bhakta yata kahite nā pāri
+> gauḍera bhakta yata kahite nā pāri\
 > aṅgane vasilā saba hañā sāri sāri
 
 *gauḍera*—of Bengal; *bhakta yata*—all the devotees; *kahite*—to mention; *nā pāri*—i am unable; *aṅgane*—in the courtyard; *vasilā*—sat down; *saba*—all; *hañā*—being; *sāri sāri*—in lines.

@@ -1,11 +1,11 @@
 ### SB 4.8.31
 
-> मुनयः पदवीं यस्य निःसङ्गेनोरुजन्मभिः ।
+> मुनयः पदवीं यस्य निःसङ्गेनोरुजन्मभिः ।\
 > न विदुर्मृगयन्तोऽपि तीव्रयोगसमाधिना ॥३१॥
 
-> munayaḥ padavīṁ yasya
-> niḥsaṅgenoru-janmabhiḥ
-> na vidur mṛgayanto 'pi
+> munayaḥ padavīṁ yasya\
+> niḥsaṅgenoru-janmabhiḥ\
+> na vidur mṛgayanto 'pi\
 > tīvra-yoga-samādhinā
 
 *munayaḥ*—grandes sabios; *padavīm*—sendero; *yasya*—cuyo; *niḥsaṅgena*—mediante el desapego; *uru-janmabhiḥ*—después de muchas vidas; *na*—nunca; *viduḥ*—entendido; *mṛgayantaḥ*—buscar; *api*—ciertamente; *tīvra-yoga*—rigurosas austeridades; *samādhinā*—por medio del trance.

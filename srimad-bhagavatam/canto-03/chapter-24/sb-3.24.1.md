@@ -1,13 +1,13 @@
 ### SB 3.24.1
 
-> मैत्रेय उवाच
-> निर्वेदवादिनीमेवं मनोर्दुहितरं मुनिः ।
+> मैत्रेय उवाच\
+> निर्वेदवादिनीमेवं मनोर्दुहितरं मुनिः ।\
 > दयालुः शालिनीमाह शुक्लाभिव्याहृतं स्मरन् ॥१॥
 
-> maitreya uvāca
-> nirveda-vādinīm evaṁ
-> manor duhitaraṁ muniḥ
-> dayāluḥ śālinīm āha
+> maitreya uvāca\
+> nirveda-vādinīm evaṁ\
+> manor duhitaraṁ muniḥ\
+> dayāluḥ śālinīm āha\
 > śuklābhivyāhṛtaṁ smaran
 
 *maitreyaḥ*—the great sage Maitreya; *uvāca*—said; *nirveda-vādinīm*—who was speaking words full of renunciation; *evam*—thus; *manoḥ*—of Svāyambhuva Manu; *duhitaram*—to the daughter; *muniḥ*—the sage Kardama; *dayāluḥ*—merciful; *śālinīm*—who was worthy of praise; *āha*—replied; *śukla*—by Lord Viṣṇu; *abhivyāhṛtam*—what was said; *smaran*—recalling.

@@ -1,11 +1,11 @@
 ### Bg 2.41
 
-> व्यवसायात्मिका बुद्धिरेकेह कुरुनन्दन ।
+> व्यवसायात्मिका बुद्धिरेकेह कुरुनन्दन ।\
 > बहुशाखा ह्यनन्ताश्च बुद्धयोऽव्यवसायिनाम् ॥४१॥
 
-> vyavasāyātmikā buddhir
-> ekeha kuru-nandana
-> bahu-śākhā hy anantāś ca
+> vyavasāyātmikā buddhir\
+> ekeha kuru-nandana\
+> bahu-śākhā hy anantāś ca\
 > buddhayo'vyavasāyinām
 
 *vyavasāyātmikā*—determinado en conciencia de Kṛṣṇa; *buddhiḥ*—inteligencia; *ekā*—solo una; *iha*—en este mundo; *kuru-nandana*—¡oh, amado hijo de los Kurus!; *bahu-śākhāḥ*—diversas ramas; *hi*—en verdad; *anantāḥ*—ilimitadas; *ca*—también; *buddhayaḥ*—inteligencia; *avyavasāyinām*—de aquellos que no están en conciencia de Kṛṣṇa.

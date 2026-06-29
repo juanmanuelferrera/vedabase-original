@@ -1,9 +1,9 @@
 ### CC Madhya 14.36
 
-> এইমত জগন্নাথ করেন ভোজন ।
+> এইমত জগন্নাথ করেন ভোজন ।\
 > এই সুখে মহাপ্রভুর জুড়ায় নয়ন ॥৩৬॥
 
-> ei-mata jagannātha karena bhojana
+> ei-mata jagannātha karena bhojana\
 > ei sukhe mahāprabhura juḍāya nayana
 
 *ei-mata*—in this way; *jagannātha*—Lord Jagannātha; *karena bhojana*—accepts His food; *ei sukhe*—in this happiness; *mahāprabhura*—of Lord Śrī Caitanya Mahāprabhu; *juḍāya*—become fully satisfied; *nayana*—the eyes.

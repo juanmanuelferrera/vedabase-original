@@ -1,9 +1,9 @@
 ### CC Madhya 17.149
 
-> ‘প্রয়াগে’ আসিয়া প্রভু কৈল বেণী-স্নান ।
+> ‘প্রয়াগে’ আসিয়া প্রভু কৈল বেণী-স্নান ।\
 > ‘মাধব’ দেখিয়া প্রেমে কৈল নৃত্যগান ॥১৪৯॥
 
-> 'prayāge' āsiyā prabhu kaila veṇī-snāna
+> 'prayāge' āsiyā prabhu kaila veṇī-snāna\
 > 'mādhava' dekhiyā preme kaila nṛtya-gāna
 
 *prayāge*—a Prayāga; *āsiyā*—llegando; *prabhu*—Śrī Caitanya Mahāprabhu; *kaila*—hizo; *veṇī-snāna*—baño en la confluencia del Ganges y el Yamunā; *mādhava*—la Deidad que preside allí, Veṇī Mādhava; *dekhiyā*—viendo; *preme*—en amor extático; *kaila*—realizó; *nṛtya-gāna*—danza y canto.

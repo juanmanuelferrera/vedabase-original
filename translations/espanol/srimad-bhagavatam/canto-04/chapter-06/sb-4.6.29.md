@@ -1,11 +1,11 @@
 ### SB 4.6.29
 
-> रक्तकण्ठखगानीक स्वरमण्डितषट्पदम् ।
+> रक्तकण्ठखगानीक स्वरमण्डितषट्पदम् ।\
 > कलहंसकुलप्रेष्ठं खरदण्डजलाशयम् ॥२९॥
 
-> rakta-kaṇṭha-khagānīka-
-> svara-maṇḍita-ṣaṭpadam
-> kalahaṁsa-kula-preṣṭhaṁ
+> rakta-kaṇṭha-khagānīka-\
+> svara-maṇḍita-ṣaṭpadam\
+> kalahaṁsa-kula-preṣṭhaṁ\
 > kharadaṇḍa-jalāśayam
 
 *rakta*—rojizos; *kaṇṭha*—cuellos; *khaga-anīka*—de muchas aves; *svara*—con los dulces sonidos; *maṇḍita*—adornados; *ṣaṭ-padam*—abejas; *kalahaṁsa-kula*—de grupos de cisnes; *preṣṭham*—muy queridas; *khara-daṇḍa*—flores de loto; *jala-āśayam*—lagos.

@@ -1,13 +1,13 @@
 ### SB 3.4.25
 
-> विदुर उवाच
-> ज्ञानं परं स्वात्मरहःप्रकाशं यदाह योगेश्वर ईश्वरस्ते ।
+> विदुर उवाच\
+> ज्ञानं परं स्वात्मरहःप्रकाशं यदाह योगेश्वर ईश्वरस्ते ।\
 > वक्तुं भवान्नोऽर्हति यद्धि विष्णोर्भृत्याः स्वभृत्यार्थकृतश्चरन्ति ॥२५॥
 
-> vidura uvāca
-> jñānaṁ paraṁ svātma-rahaḥ-prakāśaṁ
-> yad āha yogeśvara īśvaras te
-> vaktuṁ bhavān no 'rhati yad dhi viṣṇor
+> vidura uvāca\
+> jñānaṁ paraṁ svātma-rahaḥ-prakāśaṁ\
+> yad āha yogeśvara īśvaras te\
+> vaktuṁ bhavān no 'rhati yad dhi viṣṇor\
 > bhṛtyāḥ sva-bhṛtyārtha-kṛtaś caranti
 
 *viduraḥ uvāca*—Vidura said; *jñānam*—knowledge; *param*—transcendental; *sva-ātma*—regarding the self; *rahaḥ*—mystery; *prakāśam*—enlightening; *yat*—that which; *āha*—said; *yoga-īśvaraḥ*—the master of all mystics; *īśvaraḥ*—the Lord; *te*—unto you; *vaktum*—to narrate; *bhavān*—your good self; *naḥ*—unto me; *arhati*—deserve; *yat*—for; *hi*—reason of; *viṣṇoḥ*—of Lord Viṣṇu; *bhṛtyāḥ*—servants; *sva-bhṛtya-artha-kṛtaḥ*—for the interest of their servants; *caranti*—do wander.

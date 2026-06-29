@@ -1,11 +1,11 @@
 ### SB 8.11.5
 
-> आरुरुक्षन्ति मायाभिरुत्सिसृप्सन्ति ये दिवम
+> आरुरुक्षन्ति मायाभिरुत्सिसृप्सन्ति ये दिवम\
 > तान्दस्यून्विधुनोम्यज्ञआन्पूर्वस्माच्च पदादधः ॥५॥
 
-> ārurukṣanti māyābhir
-> utsisṛpsanti ye divam
-> tān dasyūn vidhunomy ajñān
+> ārurukṣanti māyābhir\
+> utsisṛpsanti ye divam\
+> tān dasyūn vidhunomy ajñān\
 > pūrvasmāc ca padād adhaḥ
 
 *ārurukṣanti*—las personas que desean venir a los sistemas planetarios superiores; *māyābhiḥ*—por el supuesto poder místico o progreso material de la ciencia; *utsisṛpsanti*—o que desean liberarse con esas falsas tentativas; *ye*—a esas personas que; *divam*—el sistema planetario superior, que recibe el nombre de Svargaloka; *tān*—a esos bandidos y rufianes; *dasyūn*—a esos ladrones; *vidhunomi*—yo obligo a descender; *ajñān*—sinvergüenzas; *pūrvasmāt*—anterior; *ca*—también; *padāt*—de la posición; *adhaḥ*—hacia abajo.

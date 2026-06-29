@@ -1,14 +1,14 @@
 ### SB 1.16.8
 
-> न कश्चिन्म्रियते तावद्यावदास्त इहान्तकः ।
-> एतदर्थं हि भगवानाहूतः परमर्षिभिः ।
+> न कश्चिन्म्रियते तावद्यावदास्त इहान्तकः ।\
+> एतदर्थं हि भगवानाहूतः परमर्षिभिः ।\
 > अहो नृलोके पीयेत हरिलीलामृतं वचः ॥८॥
 
-> na kaścin mriyate tāvad
-> yāvad āsta ihāntakaḥ
-> etad-arthaṁ hi bhagavān
-> āhūtaḥ paramarṣibhiḥ
-> aho nṛ-loke pīyeta
+> na kaścin mriyate tāvad\
+> yāvad āsta ihāntakaḥ\
+> etad-arthaṁ hi bhagavān\
+> āhūtaḥ paramarṣibhiḥ\
+> aho nṛ-loke pīyeta\
 > hari-līlāmṛtaṁ vacaḥ
 
 *na*—not; *kaścit*—anyone; *mriyate*—will die; *tāvat*—so long; *yāvat*—as long as; *āste*—is present; *iha*—herein; *antakaḥ*—one who causes the end of life; *etat*—this; *artham*—reason; *hi*—certainly; *bhagavān*—the representative of the Lord; *āhūtaḥ*—invited; *parama-ṛṣibhiḥ*—by the great sages; *aho*—alas; *nṛ-loke*—in human society; *pīyeta*—let them drink; *hari-līlā*—transcendental pastimes of the Lord; *amṛtam*—nectar for eternal life; *vacaḥ*—narrations.

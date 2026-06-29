@@ -1,9 +1,9 @@
 ### CC Madhya 20.26
 
-> তবে সেই সাত মোহর হস্তেতে করিয়া  ।
+> তবে সেই সাত মোহর হস্তেতে করিয়া  ।\
 > ভূঞার কাছে যাঞা কহে মোহর ধরিয়া ॥২৬॥
 
-> tabe sei sāta mohara hastete kariyā
+> tabe sei sāta mohara hastete kariyā\
 > bhūñāra kāche yāñā kahe mohara dhariyā
 
 *tabe*—a continuación; *sei sāta mohara*—esas siete monedas de oro; *hastete kariyā*—tomándolas en las manos; *bhūñāra kāche*—al terrateniente; *yāñā*—yendo; *kahe*—dice; *mohara dhariyā*—sosteniendo las monedas de oro.

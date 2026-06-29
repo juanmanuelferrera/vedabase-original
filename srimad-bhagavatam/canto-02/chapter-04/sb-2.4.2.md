@@ -1,11 +1,11 @@
 ### SB 2.4.2
 
-> आत्मजायासुतागार पशुद्रविणबन्धुषु ।
+> आत्मजायासुतागार पशुद्रविणबन्धुषु ।\
 > राज्ये चाविकले नित्यं विरूढां ममतां जहौ ॥२॥
 
-> ātma-jāyā-sutāgāra-
-> paśu-draviṇa-bandhuṣu
-> rājye cāvikale nityaṁ
+> ātma-jāyā-sutāgāra-\
+> paśu-draviṇa-bandhuṣu\
+> rājye cāvikale nityaṁ\
 > virūḍhāṁ mamatāṁ jahau
 
 *ātma*—body; *jāyā*—wife; *suta*—son; *āgāra*—palace; *paśu*—horses and elephants; *draviṇa*—treasury house; *bandhuṣu*—unto friends and relatives; *rājye*—in the kingdom; *ca*—also; *avikale*—without being disturbed; *nityam*—constant; *virūḍhām*—deep-rooted; *mamatām*—affinity; *jahau*—gave up.

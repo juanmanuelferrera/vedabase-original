@@ -1,11 +1,11 @@
 ### SB 3.33.29
 
-> स्वाङ्गं तपोयोगमयं मुक्तकेशं गताम्बरम् ।
+> स्वाङ्गं तपोयोगमयं मुक्तकेशं गताम्बरम् ।\
 > दैवगुप्तं न बुबुधे वासुदेवप्रविष्टधीः ॥२९॥
 
-> svāṅgaṁ tapo-yogamayaṁ
-> mukta-keśaṁ gatāmbaram
-> daiva-guptaṁ na bubudhe
+> svāṅgaṁ tapo-yogamayaṁ\
+> mukta-keśaṁ gatāmbaram\
+> daiva-guptaṁ na bubudhe\
 > vāsudeva-praviṣṭa-dhīḥ
 
 *sva-aṅgam*—su cuerpo; *tapaḥ*—austeridad; *yoga*—práctica de *yoga*; *mayam*—completamente ocupada en; *mukta*—suelto; *keśam*—su cabello; *gata*—con negligencia; *ambaram*—su ropa; *daiva*—por el Señor; *guptam*—protegida; *na*—no; *bubudhe*—era consciente de; *vāsudeva*—en la Suprema Personalidad de Dios; *praviṣṭa*—absortos; *dhīḥ*—sus pensamientos.

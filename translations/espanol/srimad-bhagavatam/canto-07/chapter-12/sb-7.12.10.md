@@ -1,11 +1,11 @@
 ### SB 7.12.10
 
-> कल्पयित्वात्मना यावदाभासमिदमीश्वरः
+> कल्पयित्वात्मना यावदाभासमिदमीश्वरः\
 > द्वैतं तावन्न विरमेत्ततो ह्यस्य विपर्ययः ॥१०॥
 
-> kalpayitvātmanā yāvad
-> ābhāsam idam īśvaraḥ
-> dvaitaṁ tāvan na viramet
+> kalpayitvātmanā yāvad\
+> ābhāsam idam īśvaraḥ\
+> dvaitaṁ tāvan na viramet\
 > tato hy asya viparyayaḥ
 
 *kalpayitvā*—comprobando positivamente; *ātmanā*—por medio de la autorrealización; *yāvat*—mientras; *ābhāsam*—reflejo (del cuerpo y los sentidos originales); *idam*—este (el cuerpo y los sentidos); *īśvaraḥ*—simplemente independiente de la ilusión; *dvaitam*—dualidad; *tāvat*—mientras; *na*—no; *viramet*—ve; *tataḥ*—por esa dualidad; *hi*—en verdad; *asya*—de la persona; *viparyayaḥ*—neutralización.

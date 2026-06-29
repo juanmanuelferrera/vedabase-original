@@ -1,13 +1,13 @@
 ### SB 1.16.19
 
-> धर्म उवाच
-> कच्चिद्भद्रेऽनामयमात्मनस्ते विच्छायासि म्लायतेषन्मुखेन ।
+> धर्म उवाच\
+> कच्चिद्भद्रेऽनामयमात्मनस्ते विच्छायासि म्लायतेषन्मुखेन ।\
 > आलक्षये भवतीमन्तराधिं दूरे बन्धुं शोचसि कञ्चनाम्ब ॥१९॥
 
-> dharma uvāca
-> kaccid bhadre 'nāmayam ātmanas te
-> vicchāyāsi mlāyateṣan mukhena
-> ālakṣaye bhavatīm antar-ādhiṁ
+> dharma uvāca\
+> kaccid bhadre 'nāmayam ātmanas te\
+> vicchāyāsi mlāyateṣan mukhena\
+> ālakṣaye bhavatīm antar-ādhiṁ\
 > dūre bandhuṁ śocasi kañcanāmba
 
 *dharmaḥ uvāca*—Dharma inquired; *kaccit*—whether; *bhadre*—madam; *anāmayam*—quite hale and hearty; *ātmanaḥ*—self; *te*—unto you; *vicchāyā asi*—appear to be covered with the shadow of grief; *mlāyatā*—which darkens; *īṣat*—slightly; *mukhena*—by the face; *ālakṣaye*—you look; *bhavatīm*—unto yourself; *antarādhim*—some disease within; *dūre*—long distant; *bandhum*—friend; *śocasi*—thinking of; *kañcana*—someone; *amba*—O mother.

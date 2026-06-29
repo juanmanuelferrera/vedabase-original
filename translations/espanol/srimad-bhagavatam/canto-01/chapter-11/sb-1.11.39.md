@@ -1,11 +1,11 @@
 ### SB 1.11.39
 
-> तं मेनिरेऽबला मूढाः स्त्रैणं चानुव्रतं रहः ।
+> तं मेनिरेऽबला मूढाः स्त्रैणं चानुव्रतं रहः ।\
 > अप्रमाणविदो भर्तुरीश्वरं मतयो यथा ॥३९॥
 
-> taṁ menire 'balā mūḍhāḥ
-> straiṇaṁ cānuvrataṁ rahaḥ
-> apramāṇa-vido bhartur
+> taṁ menire 'balā mūḍhāḥ\
+> straiṇaṁ cānuvrataṁ rahaḥ\
+> apramāṇa-vido bhartur\
 > īśvaraṁ matayo yathā
 
 *tam*—al Señor Śrī Kṛṣṇa; *menire*—dieron por sentado; *abalāḥ*—delicadas; *mūḍhāḥ*—por sencillez; *straiṇam*—aquel a quien la esposa lo domina; *ca*—también; *anuvratam*—seguidor; *rahaḥ*—lugar solitario; *apramāṇa-vidaḥ*—ignorante del alcance de las glorias; *bhartuḥ*—de su esposo; *īśvaram*—el controlador supremo; *matayaḥ*—tesis; *yathā*—tal como es.

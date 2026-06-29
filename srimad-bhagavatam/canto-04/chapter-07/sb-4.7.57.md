@@ -1,11 +1,11 @@
 ### SB 4.7.57
 
-> तस्मा अप्यनुभावेन स्वेनैवावाप्तराधसे ।
+> तस्मा अप्यनुभावेन स्वेनैवावाप्तराधसे ।\
 > धर्म एव मतिं दत्त्वा त्रिदशास्ते दिवं ययुः ॥५७॥
 
-> tasmā apy anubhāvena
-> svenaivāvāpta-rādhase
-> dharma eva matiṁ dattvā
+> tasmā apy anubhāvena\
+> svenaivāvāpta-rādhase\
+> dharma eva matiṁ dattvā\
 > tridaśās te divaṁ yayuḥ
 
 *tasmai*—unto him (Dakṣa); *api*—even; *anubhāvena*—by worshiping the Supreme Lord; *svena*—by his own; *eva*—certainly; *avāpta-rādhase*—having attained perfection; *dharme*—in religion; *eva*—certainly; *matim*—intelligence; *dattvā*—having given; *tridaśāḥ*—demigods; *te*—those; *divam*—to the heavenly planets; *yayuḥ*—went.

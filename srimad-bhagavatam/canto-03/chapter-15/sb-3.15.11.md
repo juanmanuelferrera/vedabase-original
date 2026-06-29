@@ -1,13 +1,13 @@
 ### SB 3.15.11
 
-> मैत्रेय उवाच
-> स प्रहस्य महाबाहो भगवान्शब्दगोचरः ।
+> मैत्रेय उवाच\
+> स प्रहस्य महाबाहो भगवान्शब्दगोचरः ।\
 > प्रत्याचष्टात्मभूर्देवान्प्रीणन्रुचिरया गिरा ॥११॥
 
-> maitreya uvāca
-> sa prahasya mahā-bāho
-> bhagavān śabda-gocaraḥ
-> pratyācaṣṭātma-bhūr devān
+> maitreya uvāca\
+> sa prahasya mahā-bāho\
+> bhagavān śabda-gocaraḥ\
+> pratyācaṣṭātma-bhūr devān\
 > prīṇan rucirayā girā
 
 *maitreyaḥ uvāca*—Maitreya said; *saḥ*—he; *prahasya*—smiling; *mahā-bāho*—O mighty-armed (Vidura); *bhagavān*—the possessor of all opulences; *śabda-gocaraḥ*—who is understood by transcendental sound vibration; *pratyācaṣṭa*—replied; *ātma-bhūḥ*—Lord Brahmā; *devān*—the demigods; *prīṇan*—satisfying; *rucirayā*—with sweet; *girā*—words.

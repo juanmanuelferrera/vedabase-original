@@ -1,9 +1,9 @@
 ### CC Madhya 18.103
 
-> প্রাতঃকালে ভব্য-লোক প্রভু-স্থানে আইলা ।
+> প্রাতঃকালে ভব্য-লোক প্রভু-স্থানে আইলা ।\
 > ‘কৃষ্ণ দেখি’ আইলা?’ — প্ৰভু তাঁহারে পুছিলা ॥১০৩॥
 
-> prātaḥ-kāle bhavya-loka prabhu-sthāne āilā
+> prātaḥ-kāle bhavya-loka prabhu-sthāne āilā\
 > 'kṛṣṇa dekhi' āilā?'—prabhu tāṅhāre puchilā
 
 *prātaḥ-kāle*—the next morning; *bhavya-loka*—respectable gentlemen; *prabhu-sthāne*—at the place of Śrī Caitanya Mahāprabhu; *āilā*—came; *kṛṣṇa dekhi'*—seeing Lord Kṛṣṇa; *āilā*—have you come; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅhāre puchilā*—inquired from them.

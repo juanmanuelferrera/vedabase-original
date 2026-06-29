@@ -1,14 +1,14 @@
 ### CC Adi 17.178-179
 
-> কাজী কহে, — যবে আমি হিন্দুর ঘরে গিয়া ।
-> কীর্তন করিলুঁ মানা মৃদঙ্গ ভাঙ্গিয়া ॥১৭৮॥
-> সেই রাত্রে এক সিংহ মহাভয়ঙ্কর ।
+> কাজী কহে, — যবে আমি হিন্দুর ঘরে গিয়া ।\
+> কীর্তন করিলুঁ মানা মৃদঙ্গ ভাঙ্গিয়া ॥১৭৮॥\
+> সেই রাত্রে এক সিংহ মহাভয়ঙ্কর ।\
 > নরদেহ, সিংহমুখ, গর্জয়ে বিস্তর ॥১৭৯॥
 
-> kājī kahe,—yabe āmi hindura ghare giyā
+> kājī kahe,—yabe āmi hindura ghare giyā\
 > kīrtana kariluṅ mānā mṛdaṅga bhāṅgiyā
 
-> sei rātre eka siṁha mahā-bhayaṅkara
+> sei rātre eka siṁha mahā-bhayaṅkara\
 > nara-deha, siṁha-mukha, garjaye vistara
 
 *kājī kahe*—the Kazi replied; *yabe*—when; *āmi*—I; *hindura*—of a Hindu; *ghare*—in the house; *giyā*—going there; *kīrtana*—chanting of the holy name; *kariluṅ*—made; *mānā*—prohibition; *mṛdaṅga*—the drum; *bhāṅgiyā*—breaking; *sei rātre*—on that night; *eka*—one; *siṁha*—lion; *mahā-bhayaṅ-kara*—very fearful; *nara-deha*—having a body like a human being's; *siṁha-mukha*—having a face like a lion's; *garjaye*—was roaring; *vistara*—very loudly.

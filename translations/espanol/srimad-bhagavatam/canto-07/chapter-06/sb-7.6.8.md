@@ -1,11 +1,11 @@
 ### SB 7.6.8
 
-> दुरापूरेण कामेन मोहेन च बलीयसा
+> दुरापूरेण कामेन मोहेन च बलीयसा\
 > शेषं गृहेषु सक्तस्य प्रमत्तस्यापयाति हि ॥८॥
 
-> durāpūreṇa kāmena
-> mohena ca balīyasā
-> śeṣaṁ gṛheṣu saktasya
+> durāpūreṇa kāmena\
+> mohena ca balīyasā\
+> śeṣaṁ gṛheṣu saktasya\
 > pramattasyāpayāti hi
 
 *durāpūreṇa*—que nunca se cumple; *kāmena*—por una fuerte aspiración a disfrutar del mundo material; *mohena*—por confusión; *ca*—también; *balīyasā*—que es fuerte y formidable; *śeṣam*—el resto de sus años de vida; *gṛheṣu*—a la vida familiar; *saktasya*—de aquel que está demasiado apegado; *pramattasya*—loco; *apayāti*—pasan y se pierden; *hi*—en verdad.

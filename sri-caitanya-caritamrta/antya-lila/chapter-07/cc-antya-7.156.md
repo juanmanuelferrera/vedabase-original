@@ -1,9 +1,9 @@
 ### CC Antya 7.156
 
-> তুমি কেনে আসি’ তাঁরে না দিলা ওলাহন ?
+> তুমি কেনে আসি’ তাঁরে না দিলা ওলাহন ?\
 > ভীতপ্রায় হঞা কাঁহে করিলা সহন?” ॥১৫৬॥
 
-> tumi kene āsi' tāṅre nā dilā olāhana?
+> tumi kene āsi' tāṅre nā dilā olāhana?\
 > bhīta-prāya hañā kāṅhe karilā sahana?"
 
 *tumi*—you; *kene*—why; *āsi'*—coming; *tāṅre*—unto Him; *nā dilā*—did not give; *olāhana*—chastisement; *bhīta-prāya*—as if fearful; *hañā*—being; *kāṅhe*—why; *karilā sahana*—did you tolerate.

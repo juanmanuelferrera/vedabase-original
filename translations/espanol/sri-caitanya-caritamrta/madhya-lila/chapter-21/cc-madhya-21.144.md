@@ -1,13 +1,13 @@
 ### CC Madhya 21.144
 
-> কাণের ভিতর বাসা করে, আপনে তাঁহা সদা স্ফুরে,
-> অন্য শব্দ না দেয় প্রবেশিতে ।
-> আন কথা না শুনে কাণ, আন বলিতে বোলয় আন,
+> কাণের ভিতর বাসা করে, আপনে তাঁহা সদা স্ফুরে,\
+> অন্য শব্দ না দেয় প্রবেশিতে ।\
+> আন কথা না শুনে কাণ, আন বলিতে বোলয় আন,\
 > এই কৃষ্ণের বংশীর চরিতে ॥১৪৪॥
 
-> kāṇera bhitara vāsā kare, āpane tāṅhā sadā sphure,
-> anya śabda nā deya praveśite
-> āna kathā nā śune kāṇa, āna balite bolaya āna,
+> kāṇera bhitara vāsā kare, āpane tāṅhā sadā sphure,\
+> anya śabda nā deya praveśite\
+> āna kathā nā śune kāṇa, āna balite bolaya āna,\
 > ei kṛṣṇera vaṁśīra carite
 
 *kāṇera*—del orificio del oído; *bhitara*—dentro; *vāsā kare*—establece su residencia; *āpane*—personalmente; *tāṅhā*—allí; *sadā*—siempre; *sphure*—permanece prominente; *anya*—otros; *śabda*—sonidos; *nā*—no; *deya*—permite; *praveśite*—entrar; *āna kathā*—otras conversaciones; *nā*—no; *śune*—oye; *kāṇa*—el oído; *āna*—otra cosa; *balite*—decir; *bolaya*—dice; *āna*—otra cosa; *ei kṛṣṇera*—del Señor Kṛṣṇa; *vaṁśīra*—de la flauta; *carite*—las características.

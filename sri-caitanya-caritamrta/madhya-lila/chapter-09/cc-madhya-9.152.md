@@ -1,9 +1,9 @@
 ### CC Madhya 9.152
 
-> দুঃখ না ভাবিহ, ভট্ট, কৈলুঁ পরিহাস ।
+> দুঃখ না ভাবিহ, ভট্ট, কৈলুঁ পরিহাস ।\
 > শাস্ত্রসিদ্ধান্ত শুন, যাতে বৈষ্ণব-বিশ্বাস ॥১৫২॥
 
-> duḥkha nā bhāviha, bhaṭṭa, kailuṅ parihāsa
+> duḥkha nā bhāviha, bhaṭṭa, kailuṅ parihāsa\
 > śāstra-siddhānta śuna, yāte vaiṣṇava-viśvāsa
 
 *duḥkha*—unhappiness; *nā*—do not; *bhāviha*—bear; *bhaṭṭa*—My dear Veṅkaṭa Bhaṭṭa; *kailuṅ parihāsa*—I was simply making a joke; *śāstra-siddhānta*—the conclusion of the revealed scriptures; *śuna*—hear; *yāte*—in which; *vaiṣṇava-viśvāsa*—the faith of the Vaiṣṇavas.

@@ -2,7 +2,7 @@
 
 > যো ভবেৎ কোমলশ্রদ্ধঃ স কনিষ্ঠো নিগদ্যতে ॥৭০॥
 
-> yo bhavet komala-śraddhaḥ
+> yo bhavet komala-śraddhaḥ\
 > sa kaniṣṭho nigadyate
 
 *yaḥ*—todo aquel que; *bhavet*—pueda ser; *komala*—blanda; *śraddhaḥ*—que tiene fe; *saḥ*—esa persona; *kaniṣṭhaḥ*—devoto neófito; *nigadyate*—se dice que es.

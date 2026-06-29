@@ -1,11 +1,11 @@
 ### SB 3.31.10
 
-> आरभ्य सप्तमान्मासाल्लब्धबोधोऽपि वेपितः ।
+> आरभ्य सप्तमान्मासाल्लब्धबोधोऽपि वेपितः ।\
 > नैकत्रास्ते सूतिवातैर्विष्ठाभूरिव सोदरः ॥१०॥
 
-> ārabhya saptamān māsāl
-> labdha-bodho 'pi vepitaḥ
-> naikatrāste sūti-vātair
+> ārabhya saptamān māsāl\
+> labdha-bodho 'pi vepitaḥ\
+> naikatrāste sūti-vātair\
 > viṣṭhā-bhūr iva sodaraḥ
 
 *ārabhya*—beginning; *saptamāt māsāt*—from the seventh month; *labdha-bodhaḥ*—endowed with consciousness; *api*—although; *vepitaḥ*—tossed; *na*—not; *ekatra*—in one place; *āste*—he remains; *sūti-vātaiḥ*—by the winds for childbirth; *viṣṭhā-bhūḥ*—the worm; *iva*—like; *sa-udaraḥ*—born of the same womb.

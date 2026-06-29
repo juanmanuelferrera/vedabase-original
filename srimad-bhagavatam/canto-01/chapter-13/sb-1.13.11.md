@@ -1,11 +1,11 @@
 ### SB 1.13.11
 
-> अपि नः सुहृदस्तात बान्धवाः कृष्णदेवताः ।
+> अपि नः सुहृदस्तात बान्धवाः कृष्णदेवताः ।\
 > दृष्टाः श्रुता वा यदवः स्वपुर्यां सुखमासते ॥११॥
 
-> api naḥ suhṛdas tāta
-> bāndhavāḥ kṛṣṇa-devatāḥ
-> dṛṣṭāḥ śrutā vā yadavaḥ
+> api naḥ suhṛdas tāta\
+> bāndhavāḥ kṛṣṇa-devatāḥ\
+> dṛṣṭāḥ śrutā vā yadavaḥ\
 > sva-puryāṁ sukham āsate
 
 *api*—whether; *naḥ*—our; *suhṛdaḥ*—well-wishers; *tāta*—O my uncle; *bāndhavāḥ*—friends; *kṛṣṇa-devatāḥ*—those who are always rapt in the service of Lord Śrī Kṛṣṇa; *dṛṣṭāḥ*—by seeing them; *śrutāḥ*—or by hearing about them; *vā*—either; *yadavaḥ*—the descendants of Yadu; *sva-puryām*—along with their residential place; *sukham āsate*—if they are all happy.

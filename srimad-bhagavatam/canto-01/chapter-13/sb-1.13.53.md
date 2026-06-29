@@ -1,11 +1,11 @@
 ### SB 1.13.53
 
-> स्नात्वानुसवनं तस्मिन्हुत्वा चाग्नीन्यथाविधि ।
+> स्नात्वानुसवनं तस्मिन्हुत्वा चाग्नीन्यथाविधि ।\
 > अब्भक्ष उपशान्तात्मा स आस्ते विगतैषणः ॥५३॥
 
-> snātvānusavanaṁ tasmin
-> hutvā cāgnīn yathā-vidhi
-> ab-bhakṣa upaśāntātmā
+> snātvānusavanaṁ tasmin\
+> hutvā cāgnīn yathā-vidhi\
+> ab-bhakṣa upaśāntātmā\
 > sa āste vigataiṣaṇaḥ
 
 *snātvā*—by taking bath; *anusavanam*—regularly three times (morning, noon and evening); *tasmin*—in that Ganges divided into seven; *hutvā*—by performing the Agni-hotra sacrifice; *ca*—also; *agnīn*—in the fire; *yathā-vidhi*—just according to the tenets of the scripture; *ap-bhakṣaḥ*—fasting by drinking only water; *upaśānta*—completely controlled; *ātmā*—the gross senses and the subtle mind; *saḥ*—Dhṛtarāṣṭra; *āste*—would be situated; *vigata*—devoid of; *eṣaṇaḥ*—thoughts in relation with family welfare.

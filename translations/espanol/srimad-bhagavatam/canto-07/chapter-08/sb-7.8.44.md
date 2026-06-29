@@ -1,15 +1,15 @@
 ### SB 7.8.44
 
-> श्रीपितर ऊचुः
-> श्राद्धानि नोऽधिबुभुजे प्रसभं तनूजैर
-> दत्तानि तीर्थसमयेऽप्यपिबत्तिलाम्बु
-> तस्योदरान्नखविदीर्णवपाद्य आर्च्छत
+> श्रीपितर ऊचुः\
+> श्राद्धानि नोऽधिबुभुजे प्रसभं तनूजैर\
+> दत्तानि तीर्थसमयेऽप्यपिबत्तिलाम्बु\
+> तस्योदरान्नखविदीर्णवपाद्य आर्च्छत\
 > तस्मै नमो नृहरयेऽखिलधर्मगोप्त्रे ॥४४॥
 
-> śrī-pitara ūcuḥ
-> śrāddhāni no 'dhibubhuje prasabhaṁ tanūjair
-> dattāni tīrtha-samaye 'py apibat tilāmbu
-> tasyodarān nakha-vidīrṇa-vapād ya ārcchat
+> śrī-pitara ūcuḥ\
+> śrāddhāni no 'dhibubhuje prasabhaṁ tanūjair\
+> dattāni tīrtha-samaye 'py apibat tilāmbu\
+> tasyodarān nakha-vidīrṇa-vapād ya ārcchat\
 > tasmai namo nṛharaye 'khila-dharma-goptre
 
 *śrī-pitaraḥ ūcuḥ*—los habitantes de Pitṛloka dijeron; *śrāddhāni*—las celebraciones de la ceremonia *śrāddha*(ofrenda de cereales a los antepasados difuntos siguiendo un determinado ritual); *naḥ*—nuestras; *adhibubhuje*—disfrutó; *prasabham*—por la fuerza; *tanūjaiḥ*—por nuestros hijos y nietos; *dattāni*—ofrecidas; *tīrtha-samaye*—en el momento de bañarse en los lugares sagrados; *api*—incluso; *apibat*—bebió; *tila-ambu*—ofrendas de agua con semillas de sésamo; *tasya*—del demonio; *udarāt*—del abdomen; *nakha-vidīrṇa*—atravesado con las uñas de la mano; *vapāt*—la piel de los intestinos del cual; *yaḥ*—aquel que (la Personalidad de Dios); *ārcchat*—obtuvo; *tasmai*—a Él (a la Suprema Personalidad de Dios); *namaḥ*—reverencias respetuosas; *nṛ-haraye*—que ha aparecido en la forma mitad león y mitad hombre (Nṛhari); *akhila*—universales; *dharma*—principios religiosos; *goptre*—que mantiene.

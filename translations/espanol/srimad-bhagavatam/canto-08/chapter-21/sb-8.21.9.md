@@ -1,11 +1,11 @@
 ### SB 8.21.9
 
-> महीं सर्वां हृतां दृष्ट्वा त्रिपदव्याजयाचञ्अया
+> महीं सर्वां हृतां दृष्ट्वा त्रिपदव्याजयाचञ्अया\
 > ऊचुः स्वभर्तुरसुरा दीक्षितस्यात्यमर्षिताः ॥९॥
 
-> mahīṁ sarvāṁ hṛtāṁ dṛṣṭvā
-> tripada-vyāja-yācñayā
-> ūcuḥ sva-bhartur asurā
+> mahīṁ sarvāṁ hṛtāṁ dṛṣṭvā\
+> tripada-vyāja-yācñayā\
+> ūcuḥ sva-bhartur asurā\
 > dīkṣitasyātyamarṣitāḥ
 
 *mahīm*—tierra; *sarvām*—toda; *hṛtām*—perdida; *dṛṣṭvā*—después de ver; *tri-pada-vyāja-yācñayā*—con solo pedir tres pasos de tierra; *ūcuḥ*—dijeron; *sva-bhartuḥ*—de su amo; *asurāḥ*—los demonios; *dīkṣitasya*—de Bali Mahārāja, que estaba muy decidido a celebrar sacrificios; *ati*—mucho; *amarṣitāḥ*—para quienes la celebración era insoportable.

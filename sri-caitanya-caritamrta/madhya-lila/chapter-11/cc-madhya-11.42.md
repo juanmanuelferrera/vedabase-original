@@ -1,9 +1,9 @@
 ### CC Madhya 11.42
 
-> মোর লাগি’ প্রভুপদে কৈলে নিবেদন ?
+> মোর লাগি’ প্রভুপদে কৈলে নিবেদন ?\
 > সার্বভৌম কহে, — কৈনু অনেক যতন ॥৪২॥
 
-> mora lāgi' prabhu-pade kaile nivedana?
+> mora lāgi' prabhu-pade kaile nivedana?\
 > sārvabhauma kahe,-kainu aneka yatana
 
 *moralāgi'*—on my behalf; *prabhu-pade*—at the lotus feet of the Lord; *kaile nivedana*—did you submit my petition; *sārvabhauma kahe*—Sārvabhauma replied; *kainu*—I did; *aneka yatana*—much endeavor.

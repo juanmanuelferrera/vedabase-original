@@ -1,11 +1,11 @@
 ### SB 9.6.47
 
-> यद्गार्हस्थ्यं तु संवीक्ष्य सप्तद्वीपवतीपतिः
+> यद्गार्हस्थ्यं तु संवीक्ष्य सप्तद्वीपवतीपतिः\
 > विस्मितः स्तम्भमजहात्सार्वभौमश्रियान्वितम ॥४७॥
 
-> yad-gārhasthyaṁ tu saṁvīkṣya
-> sapta-dvīpavatī-patiḥ
-> vismitaḥ stambham ajahāt
+> yad-gārhasthyaṁ tu saṁvīkṣya\
+> sapta-dvīpavatī-patiḥ\
+> vismitaḥ stambham ajahāt\
 > sārvabhauma-śriyānvitam
 
 *yat*—aquel cuya; *gārhasthyam*—vida familiar, vida de casado; *tu*—pero; *saṁvīkṣya*—observar; *sapta-dvīpa-vatī-patiḥ*—Māndhātā, que era el rey del mundo entero, que está formado por siete islas; *vismitaḥ*—estaba asombrado; *stambham*—el orgullo debido a una posición de prestigio; *ajahāt*—abandonó; *sārva-bhauma*—el emperador del mundo entero; *śriyā-anvitam*—bendecido con todo tipo de opulencias.

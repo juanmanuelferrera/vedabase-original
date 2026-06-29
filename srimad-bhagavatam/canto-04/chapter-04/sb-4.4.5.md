@@ -1,11 +1,11 @@
 ### SB 4.4.5
 
-> तां सारिकाकन्दुकदर्पणाम्बुज श्वेतातपत्रव्यजनस्रगादिभिः ।
+> तां सारिकाकन्दुकदर्पणाम्बुज श्वेतातपत्रव्यजनस्रगादिभिः ।\
 > गीतायनैर्दुन्दुभिशङ्खवेणुभिर्वृषेन्द्रमारोप्य विटङ्किता ययुः ॥५॥
 
-> tāṁ sārikā-kanduka-darpaṇāmbuja-
-> śvetātapatra-vyajana-srag-ādibhiḥ
-> gītāyanair dundubhi-śaṅkha-veṇubhir
+> tāṁ sārikā-kanduka-darpaṇāmbuja-\
+> śvetātapatra-vyajana-srag-ādibhiḥ\
+> gītāyanair dundubhi-śaṅkha-veṇubhir\
 > vṛṣendram āropya viṭaṅkitā yayuḥ
 
 *tām*—her (Satī); *sārikā*—pet bird; *kanduka*—ball; *darpaṇa*—mirror; *ambuja*—lotus flower; *śveta-ātapatra*—white umbrella; *vyajana*—chowrie; *srak*—garland; *ādibhiḥ*—and others; *gīta-ayanaiḥ*—accompanied with music; *dundubhi*—drums; *śaṅkha*—conchshells; *veṇubhiḥ*—with flutes; *vṛṣa-indram*—on the bull; *āropya*—placing; *viṭaṅkitāḥ*—decorated; *yayuḥ*—they went.

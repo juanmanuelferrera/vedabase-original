@@ -1,13 +1,13 @@
 ### CC Antya 19.96
 
-> হরে নারীর তনুমন, নাসা করে ঘূর্ণন,
-> খসায় নীবি, ছুটায় কেশবন্ধ ।
-> করিয়া আগে বাউরী, নাচায় জগৎ-নারী,
+> হরে নারীর তনুমন, নাসা করে ঘূর্ণন,\
+> খসায় নীবি, ছুটায় কেশবন্ধ ।\
+> করিয়া আগে বাউরী, নাচায় জগৎ-নারী,\
 > হেন ডাকাতিয়া কৃষ্ণাঙ্গগন্ধ ॥৯৬॥
 
-> hare nārīra tanu-mana, nāsā kare ghūrṇana,
-> khasāya nīvi, chuṭāya keśa-bandha
-> kariyā āge bāurī, nācāya jagat-nāri,
+> hare nārīra tanu-mana, nāsā kare ghūrṇana,\
+> khasāya nīvi, chuṭāya keśa-bandha\
+> kariyā āge bāurī, nācāya jagat-nāri,\
 > hena ḍākātiyā kṛṣṇāṅga-gandha
 
 *hare*—hechiza; *nārīra*—de las mujeres; *tanu-mana*—las mentes y los cuerpos; *nāsā*—las fosas nasales; *kare ghūrṇana*—aturde; *khasāya*—afloja; *nīvi*—el ceñidor; *chuṭāya*—suelta; *keśa-bandha*—el moño del cabello; *kariyā*—actuando; *āge*—delante; *bāurī*—como mujeres enloquecidas; *nācāya*—hace danzar; *jagat-nārī*—a todas las mujeres del mundo; *hena*—tal; *ḍākātiyā*—un saqueador; *kṛṣṇa-aṅga-gandha*—la fragancia del cuerpo de Kṛṣṇa.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.282
 
-> এই আগে আইলা, প্রভু, বর্ষার চারি মাস ।
+> এই আগে আইলা, প্রভু, বর্ষার চারি মাস ।\
 > এই চারি মাস কর নীলাচলে বাস ॥২৮২॥
 
-> ei āge āilā, prabhu, varṣāra cāri māsa
+> ei āge āilā, prabhu, varṣāra cāri māsa\
 > ei cāri māsa kara nīlācale vāsa
 
 *ei*—just; *āge*—ahead; *āilā*—have come; *prabhu*—my Lord; *varṣāra cāri māsa*—the four months of the rainy season; *ei cāri māsa*—these four months; *kara*—just do; *nīlācale*—at Jagannātha Purī; *vāsa*—living.

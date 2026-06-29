@@ -1,18 +1,18 @@
 ### SB 8.3.20-21
 
-> एकान्तिनो यस्य न कञ्चनार्थं वाञ्छन्ति ये वै भगवत्प्रपन्नाः
-> अत्यद्भुतं तच्चरितं सुमङ्गलं गायन्त आनन्दसमुद्रमग्नाः ॥२०॥
-> तमक्षरं ब्रह्म परं परेशमव्यक्तमाध्यात्मिकयोगगम्यम
+> एकान्तिनो यस्य न कञ्चनार्थं वाञ्छन्ति ये वै भगवत्प्रपन्नाः\
+> अत्यद्भुतं तच्चरितं सुमङ्गलं गायन्त आनन्दसमुद्रमग्नाः ॥२०॥\
+> तमक्षरं ब्रह्म परं परेशमव्यक्तमाध्यात्मिकयोगगम्यम\
 > अतीन्द्रियं सूक्ष्ममिवातिदूरमनन्तमाद्यं परिपूर्णमीडे ॥२१॥
 
-> ekāntino yasya na kañcanārthaṁ
-> vāñchanti ye vai bhagavat-prapannāḥ
-> aty-adbhutaṁ tac-caritaṁ sumaṅgalaṁ
+> ekāntino yasya na kañcanārthaṁ\
+> vāñchanti ye vai bhagavat-prapannāḥ\
+> aty-adbhutaṁ tac-caritaṁ sumaṅgalaṁ\
 > gāyanta ānanda-samudra-magnāḥ
 
-> tam akṣaraṁ brahma paraṁ pareśam
-> avyaktam ādhyātmika-yoga-gamyam
-> atīndriyaṁ sūkṣmam ivātidūram
+> tam akṣaraṁ brahma paraṁ pareśam\
+> avyaktam ādhyātmika-yoga-gamyam\
+> atīndriyaṁ sūkṣmam ivātidūram\
 > anantam ādyaṁ paripūrṇam īḍe
 
 *ekāntinaḥ*—unalloyed devotees (who have no desire other than Kṛṣṇa consciousness); *yasya*—the Lord, of whom; *na*—not; *kañcana*—some; *artham*—benediction; *vāñchanti*—desire; *ye*—those devotees who; *vai*—indeed; *bhagavat-prapannāḥ*—fully surrendered unto the lotus feet of the Lord; *ati-adbhutam*—which are wonderful; *tat-caritam*—the activities of the Lord; *su-maṅgalam*—and very auspicious (to hear); *gāyantaḥ*—by chanting and hearing; *ānanda*—of transcendental bliss; *samudra*—in the ocean; *magnāḥ*—who are immersed; *tam*—unto Him; *akṣaram*—eternally existing; *brahma*—the Supreme; *param*—transcendental; *para-īśam*—the Lord of the supreme personalities; *avyaktam*—invisible or not able to be realized by the mind and senses; *ādhyātmika*—transcendental; *yoga*—by *bhakti-yoga,* devotional service; *gamyam*—obtainable (*bhaktyā mām abhijānāti*); *ati-indriyam*—beyond the perception of material senses; *sūkṣmam*—minute; *iva*—like; *ati-dūram*—very far away; *anantam*—unlimited; *ādyam*—the original cause of everything; *paripūrṇam*—completely full; *īḍe*—I offer my obeisances.

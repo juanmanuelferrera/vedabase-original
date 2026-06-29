@@ -1,11 +1,11 @@
 ### SB 4.30.27
 
-> रूपं भगवता त्वेतदशेषक्लेशसङ्क्षयम् ।
+> रूपं भगवता त्वेतदशेषक्लेशसङ्क्षयम् ।\
 > आविष्कृतं नः क्लिष्टानां किमन्यदनुकम्पितम् ॥२७॥
 
-> rūpaṁ bhagavatā tv etad
-> aśeṣa-kleśa-saṅkṣayam
-> āviṣkṛtaṁ naḥ kliṣṭānāṁ
+> rūpaṁ bhagavatā tv etad\
+> aśeṣa-kleśa-saṅkṣayam\
+> āviṣkṛtaṁ naḥ kliṣṭānāṁ\
 > kim anyad anukampitam
 
 *rūpam*—forma; *bhagavatā*—por Tu Señoría; *tu*—pero; *etat*—esta; *aśeṣa*—ilimitadas; *kleśa*—miserias; *saṅkṣayam*—que disipas; *āviṣkṛtam*—revelada; *naḥ*—de nosotros; *kliṣṭānām*—que sufrimos debido a circunstancias materiales; *kim anyat*—qué decir de; *anukampitam*—aquellos a quienes siempre estás dispuesto a mostrar Tu favor.

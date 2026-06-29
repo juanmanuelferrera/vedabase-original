@@ -1,11 +1,11 @@
 ### Bg 8.8
 
-> अभ्यासयोगयुक्तेन चेतसा नान्यगामिना ।
+> अभ्यासयोगयुक्तेन चेतसा नान्यगामिना ।\
 > परमं पुरुषं दिव्यं याति पार्थानुचिन्तयन् ॥८॥
 
-> abhyāsa-yoga-yuktena
-> cetasā nānya-gāminā
-> paramaṁ puruṣaṁ divyaṁ
+> abhyāsa-yoga-yuktena\
+> cetasā nānya-gāminā\
+> paramaṁ puruṣaṁ divyaṁ\
 > yāti pārthānucintayan
 
 *abhyāsa*—práctica; *yoga-yuktena*—estando ocupado en la meditación; *cetasā*—mediante la mente y la inteligencia; *na anya-gāminā*—sin que se desvíe; *paramam*—el Supremo; *puruṣam*—Personalidad de Dios; *divyam*—trascendental; *yāti*—alcanza; *pārtha*—¡oh, hijo de Pṛthā!; *anucintayan*—pensando constantemente en.

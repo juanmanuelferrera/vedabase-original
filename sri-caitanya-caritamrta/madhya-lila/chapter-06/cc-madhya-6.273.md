@@ -1,9 +1,9 @@
 ### CC Madhya 6.273
 
-> দুই-অর্থে ‘কৃষ্ণ’ কহি, কেনে পাঠ ফিরি ।
+> দুই-অর্থে ‘কৃষ্ণ’ কহি, কেনে পাঠ ফিরি ।\
 > সার্বভৌম কহে, — ও-পাঠ কহিতে না পারি ॥২৭৩॥
 
-> dui-arthe 'kṛṣṇa' kahi, kene pāṭha phiri
+> dui-arthe 'kṛṣṇa' kahi, kene pāṭha phiri\
 > sārvabhauma kahe,—o-pāṭha kahite nā pāri
 
 *dui-arthe*—by two interpretations; *kṛṣṇa*—Lord Śrī Kṛṣṇa; *kahi*—I accept; *kene*—why; *pāṭha*—reading; *phiri*—changing; *sārvabhauma kahe*—Sārvabhauma replied; *o-pāṭha*—such a reading; *kahite*—to say; *nā*—not; *pāri*—am able.

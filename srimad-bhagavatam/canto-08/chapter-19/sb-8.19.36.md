@@ -1,11 +1,11 @@
 ### SB 8.19.36
 
-> न तद्दानं प्रशंसन्ति येन वृत्तिर्विपद्यते
+> न तद्दानं प्रशंसन्ति येन वृत्तिर्विपद्यते\
 > दानं यज्ञअस्तपः कर्म लोके वृत्तिमतो यतः ॥३६॥
 
-> na tad dānaṁ praśaṁsanti
-> yena vṛttir vipadyate
-> dānaṁ yajñas tapaḥ karma
+> na tad dānaṁ praśaṁsanti\
+> yena vṛttir vipadyate\
+> dānaṁ yajñas tapaḥ karma\
 > loke vṛttimato yataḥ
 
 *na*—not; *tat*—that; *dānam*—charity; *praśaṁsanti*—the saintly persons praise; *yena*—by which; *vṛttiḥ*—one's livelihood; *vipadyate*—becomes endangered; *dānam*—charity; *yajñaḥ*—sacrifice; *tapaḥ*—austerity; *karma*—fruitive activities; *loke*—in this world; *vṛttimataḥ*—according to one's means of livelihood; *yataḥ*—as it is so.

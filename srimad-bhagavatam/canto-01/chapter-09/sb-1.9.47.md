@@ -1,11 +1,11 @@
 ### SB 1.9.47
 
-> तुष्टुवुर्मुनयो हृष्टाः कृष्णं तद्गुह्यनामभिः ।
+> तुष्टुवुर्मुनयो हृष्टाः कृष्णं तद्गुह्यनामभिः ।\
 > ततस्ते कृष्णहृदयाः स्वाश्रमान्प्रययुः पुनः ॥४७॥
 
-> tuṣṭuvur munayo hṛṣṭāḥ
-> kṛṣṇaṁ tad-guhya-nāmabhiḥ
-> tatas te kṛṣṇa-hṛdayāḥ
+> tuṣṭuvur munayo hṛṣṭāḥ\
+> kṛṣṇaṁ tad-guhya-nāmabhiḥ\
+> tatas te kṛṣṇa-hṛdayāḥ\
 > svāśramān prayayuḥ punaḥ
 
 *tuṣṭuvuḥ*—satisfied; *munayaḥ*—the great sages, headed by Vyāsadeva, etc.; *hṛṣṭāḥ*—all in a happy mood; *kṛṣṇam*—unto Lord Kṛṣṇa, the Personality of Godhead; *tat*—His; *guhya*—confidential; *nāmabhiḥ*—by His holy name, etc.; *tataḥ*—thereafter; *te*—they; *kṛṣṇa-hṛdayāḥ*—persons who always bear Lord Kṛṣṇa in their hearts; *sva-āśramān*—to their respective hermitages; *prayayuḥ*—returned; *punaḥ*—again.

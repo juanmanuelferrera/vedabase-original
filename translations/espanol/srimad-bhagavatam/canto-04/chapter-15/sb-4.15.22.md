@@ -1,13 +1,13 @@
 ### SB 4.15.22
 
-> पृथुरुवाच
-> भोः सूत हे मागध सौम्य वन्दिन्लोकेऽधुनास्पष्टगुणस्य मे स्यात् ।
+> पृथुरुवाच\
+> भोः सूत हे मागध सौम्य वन्दिन्लोकेऽधुनास्पष्टगुणस्य मे स्यात् ।\
 > किमाश्रयो मे स्तव एष योज्यतां मा मय्यभूवन्वितथा गिरो वः ॥२२॥
 
-> pṛthur uvāca
-> bhoḥ sūta he māgadha saumya vandiḹ
-> loke 'dhunāspaṣṭa-guṇasya me syāt
-> kim āśrayo me stava eṣa yojyatāṁ
+> pṛthur uvāca\
+> bhoḥ sūta he māgadha saumya vandiḹ\
+> loke 'dhunāspaṣṭa-guṇasya me syāt\
+> kim āśrayo me stava eṣa yojyatāṁ\
 > mā mayy abhūvan vitathā giro vaḥ
 
 *pṛthuḥ uvāca*—el rey Pṛthu dijo; *bhoḥ sūta*—¡oh, *sūta*!; *he māgadha*—¡oh, *māgadha*!; *saumya*—amables; *vandin*—¡oh, devoto que ofreces oraciones!; *loke*—en este mundo; *adhunā*—ahora mismo; *aspaṣṭa*—no se distinguen; *guṇasya*—cuyas cualidades; *me*—de mí; *syāt*—pueda ser; *kim*—por qué; *āśrayaḥ*—refugio; *me*—de mí; *stavaḥ*—alabanza; *eṣaḥ*—esa; *yojyatām*—se pueda aplicar; *mā*—nunca; *mayi*—a mí; *abhūvan*—fueron; *vitathāḥ*—en vano; *giraḥ*—palabras; *vaḥ*—sus.

@@ -1,11 +1,11 @@
 ### SB 4.11.17
 
-> निमित्तमात्रं तत्रासीन्निर्गुणः पुरुषर्षभः ।
+> निमित्तमात्रं तत्रासीन्निर्गुणः पुरुषर्षभः ।\
 > व्यक्ताव्यक्तमिदं विश्वं यत्र भ्रमति लोहवत् ॥१७॥
 
-> nimitta-mātraṁ tatrāsīn
-> nirguṇaḥ puruṣarṣabhaḥ
-> vyaktāvyaktam idaṁ viśvaṁ
+> nimitta-mātraṁ tatrāsīn\
+> nirguṇaḥ puruṣarṣabhaḥ\
+> vyaktāvyaktam idaṁ viśvaṁ\
 > yatra bhramati lohavat
 
 *nimitta-mātram*—causa remota; *tatra*—entonces; *āsīt*—era; *nirguṇaḥ*—libre de contaminación; *puruṣa-ṛṣabhaḥ*—la Persona Suprema; *vyakta*—manifestado; *avyaktam*—no manifestado; *idam*—este; *viśvam*—mundo; *yatra*—donde; *bhramati*—se mueve; *loha-vat*—como hierro.

@@ -1,11 +1,11 @@
 ### SB 1.8.10
 
-> अभिद्रवति मामीश शरस्तप्तायसो विभो ।
+> अभिद्रवति मामीश शरस्तप्तायसो विभो ।\
 > कामं दहतु मां नाथ मा मे गर्भो निपात्यताम् ॥१०॥
 
-> abhidravati mām īśa
-> śaras taptāyaso vibho
-> kāmaṁ dahatu māṁ nātha
+> abhidravati mām īśa\
+> śaras taptāyaso vibho\
+> kāmaṁ dahatu māṁ nātha\
 > mā me garbho nipātyatām
 
 *abhidravati*—coming towards; *mām*—me; *īśa*—O Lord; *śaraḥ*—the arrow; *tapta*—fiery; *ayasaḥ*—iron; *vibho*—O great one; *kāmam*—desire; *dahatu*—let it burn; *mām*—me; *nātha*—O protector; *mā*—not; *me*—my; *garbhaḥ*—embryo; *nipātyatām*—be aborted.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.80
 
-> অবসর নাহি হয়, বিলম্ব হইল ।
+> অবসর নাহি হয়, বিলম্ব হইল ।\
 > ফল-পাত্র-হাতে সেবক দ্বারে ত’ রহিল ॥৮০॥
 
-> avasara nāhi haya, vilamba ha-ila
+> avasara nāhi haya, vilamba ha-ila\
 > phala-pātra-hāte sevaka dvāre ta' rahila
 
 *avasara nāhi haya*—there was little time; *vilamba ha-ila*—it was late; *phala-pātra*—the pot of fruits; *hāte*—in the hands; *sevaka*—the servant; *dvāre*—at the door; *ta'*—indeed; *rahila*—remained.

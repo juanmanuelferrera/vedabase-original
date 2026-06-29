@@ -1,11 +1,11 @@
 ### SB 4.24.59
 
-> न यस्य चित्तं बहिरर्थविभ्रमं तमोगुहायां च विशुद्धमाविशत् ।
+> न यस्य चित्तं बहिरर्थविभ्रमं तमोगुहायां च विशुद्धमाविशत् ।\
 > यद्भक्तियोगानुगृहीतमञ्जसा मुनिर्विचष्टे ननु तत्र ते गतिम् ॥५९॥
 
-> na yasya cittaṁ bahir-artha-vibhramaṁ
-> tamo-guhāyāṁ ca viśuddham āviśat
-> yad-bhakti-yogānugṛhītam añjasā
+> na yasya cittaṁ bahir-artha-vibhramaṁ\
+> tamo-guhāyāṁ ca viśuddham āviśat\
+> yad-bhakti-yogānugṛhītam añjasā\
 > munir vicaṣṭe nanu tatra te gatim
 
 *na*—nunca; *yasya*—cuyo; *cittam*—corazón; *bahiḥ*—externo; *artha*—interés; *vibhramam*—confundido; *tamaḥ*—oscuridad; *guhāyām*—en el hueco; *ca*—también; *viśuddham*—purificado; *āviśat*—entró; *yat*—ese; *bhakti-yoga*—servicio devocional; *anugṛhītam*—favorecido por; *añjasā*—felizmente; *muniḥ*—la persona reflexiva; *vicaṣṭe*—ve; *nanu*—sin embargo; *tatra*—allí; *te*—Tus; *gatim*—actividades.

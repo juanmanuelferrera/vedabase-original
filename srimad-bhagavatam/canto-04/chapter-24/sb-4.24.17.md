@@ -1,11 +1,11 @@
 ### SB 4.24.17
 
-> सङ्गमः खलु विप्रर्षे शिवेनेह शरीरिणाम् ।
+> सङ्गमः खलु विप्रर्षे शिवेनेह शरीरिणाम् ।\
 > दुर्लभो मुनयो दध्युरसङ्गाद्यमभीप्सितम् ॥१७॥
 
-> saṅgamaḥ khalu viprarṣe
-> śiveneha śarīriṇām
-> durlabho munayo dadhyur
+> saṅgamaḥ khalu viprarṣe\
+> śiveneha śarīriṇām\
+> durlabho munayo dadhyur\
 > asaṅgād yam abhīpsitam
 
 *saṅgamaḥ*—association; *khalu*—certainly; *vipra-ṛṣe*—O best of the *brāhmaṇas*; *śivena*—along with Lord Śiva; *iha*—in this world; *śarīriṇām*—those who are encaged in material bodies; *durlabhaḥ*—very rare; *munayaḥ*—great sages; *dadhyuḥ*—engaged themselves in meditation; *asaṅgāt*—being detached from anything else; *yam*—unto whom; *abhīpsitam*—desiring.

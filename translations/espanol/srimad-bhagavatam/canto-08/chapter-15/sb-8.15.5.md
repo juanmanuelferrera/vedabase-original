@@ -1,11 +1,11 @@
 ### SB 8.15.5
 
-> ततो रथः काञ्चनपट्टनद्धो हयाश्च हर्यश्वतुरङ्गवर्णाः
+> ततो रथः काञ्चनपट्टनद्धो हयाश्च हर्यश्वतुरङ्गवर्णाः\
 > ध्वजश्च सिंहेन विराजमानो हुताशनादास हविर्भिरिष्टात ॥५॥
 
-> tato rathaḥ kāñcana-paṭṭa-naddho
-> hayāś ca haryaśva-turaṅga-varṇāḥ
-> dhvajaś ca siṁhena virājamāno
+> tato rathaḥ kāñcana-paṭṭa-naddho\
+> hayāś ca haryaśva-turaṅga-varṇāḥ\
+> dhvajaś ca siṁhena virājamāno\
 > hutāśanād āsa havirbhir iṣṭāt
 
 *tataḥ*—a continuación; *rathaḥ*—una cuadriga; *kāñcana*—con oro; *paṭṭa*—y telas de seda; *naddhaḥ*—envuelta; *hayāḥ ca*—también caballos; *haryaśva-turaṅga-varṇāḥ*—de idéntico color a los caballos de Indra (amarillos); *dhvajaḥ ca*—también una bandera; *siṁhena*—con la figura de un león; *virājamānaḥ*—existir; *huta-aśanāt*—del ardiente fuego; *āsa*—había; *havirbhiḥ*—con ofrendas de mantequilla clarificada; *iṣṭāt*—adorado.

@@ -1,11 +1,11 @@
 ### SB 4.11.6
 
-> तान्हन्यमानानभिवीक्ष्य गुह्यकाननागसश्चित्ररथेन भूरिशः ।
+> तान्हन्यमानानभिवीक्ष्य गुह्यकाननागसश्चित्ररथेन भूरिशः ।\
 > औत्तानपादिं कृपया पितामहो मनुर्जगादोपगतः सहर्षिभिः ॥६॥
 
-> tān hanyamānān abhivīkṣya guhyakān
-> anāgasaś citra-rathena bhūriśaḥ
-> auttānapādiṁ kṛpayā pitāmaho
+> tān hanyamānān abhivīkṣya guhyakān\
+> anāgasaś citra-rathena bhūriśaḥ\
+> auttānapādiṁ kṛpayā pitāmaho\
 > manur jagādopagataḥ saharṣibhiḥ
 
 *tān*—aquellos *yakṣas*; *hanyamānān*—siendo matados; *abhivīkṣya*—viendo; *guhyakān*—los *yakṣas*; *anāgasaḥ*—que no eran culpables; *citra-rathena*—por Dhruva Mahārāja, que tenía una hermosa cuadriga; *bhūriśaḥ*—muy; *auttānapādim*—al hijo de Uttānapāda; *kṛpayā*—por misericordia; *pitā-mahaḥ*—el abuelo; *manuḥ*—Svāyambhuva Manu; *jagāda*—dio instrucciones; *upagataḥ*—se acercó; *saha-ṛṣibhiḥ*—con grandes sabios.

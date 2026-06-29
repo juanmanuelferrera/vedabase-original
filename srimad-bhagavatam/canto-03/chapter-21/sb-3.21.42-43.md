@@ -1,18 +1,18 @@
 ### SB 3.21.42-43
 
-> कदम्बचम्पकाशोक करञ्जबकुलासनैः ।
-> कुन्दमन्दारकुटजैश्चूतपोतैरलङ्कृतम् ॥४२॥
-> कारण्डवैः प्लवैर्हंसैः कुररैर्जलकुक्कुटैः ।
+> कदम्बचम्पकाशोक करञ्जबकुलासनैः ।\
+> कुन्दमन्दारकुटजैश्चूतपोतैरलङ्कृतम् ॥४२॥\
+> कारण्डवैः प्लवैर्हंसैः कुररैर्जलकुक्कुटैः ।\
 > सारसैश्चक्रवाकैश्च चकोरैर्वल्गु कूजितम् ॥४३॥
 
-> kadamba-campakāśoka-
-> karañja-bakulāsanaiḥ
-> kunda-mandāra-kuṭajaiś
+> kadamba-campakāśoka-\
+> karañja-bakulāsanaiḥ\
+> kunda-mandāra-kuṭajaiś\
 > cūta-potair alaṅkṛtam
 
-> kāraṇḍavaiḥ plavair haṁsaiḥ
-> kurarair jala-kukkuṭaiḥ
-> sārasaiś cakravākaiś ca
+> kāraṇḍavaiḥ plavair haṁsaiḥ\
+> kurarair jala-kukkuṭaiḥ\
+> sārasaiś cakravākaiś ca\
 > cakorair valgu kūjitam
 
 *kadamba*—*kadamba* flowers; *campaka*—*campaka* flowers; *aśoka*—*aśoka* flowers; *karañja*—*karañja* flowers; *bakula*—*bakula* flowers; *āsanaiḥ*—by *āsana* trees; *kunda*—*kunda*; *mandāra*—*mandāra*; *kuṭajaiḥ*—and by *kuṭaja* trees; *cūta-potaiḥ*—by young mango trees; *alaṅkṛtam*—adorned; *kāraṇḍavaiḥ*—by *kāraṇḍava* ducks; *plavaiḥ*—by *plavas*; *haṁsaiḥ*—by swans; *kuraraiḥ*—by ospreys; *jala-kukkuṭaiḥ*—by waterfowl; *sārasaiḥ*—by cranes; *cakravākaiḥ*—by *cakravāka* birds; *ca*—and; *cakoraiḥ*—by *cakora* birds; *valgu*—pleasing; *kūjitam*—vibration of birds' sounds.

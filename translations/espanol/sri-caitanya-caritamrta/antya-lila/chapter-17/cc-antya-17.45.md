@@ -1,13 +1,13 @@
 ### CC Antya 17.45
 
-> সে অমৃতের এক-কণ, কর্ণ-চকোর-জীবন,
-> কর্ণ-চকোর জীয়ে সেই আশে ।
-> ভাগ্যবশে কভু পায়, অভাগ্যে কভু না পায়,
+> সে অমৃতের এক-কণ, কর্ণ-চকোর-জীবন,\
+> কর্ণ-চকোর জীয়ে সেই আশে ।\
+> ভাগ্যবশে কভু পায়, অভাগ্যে কভু না পায়,\
 > না পাইলে মরয়ে পিয়াসে ॥৪৫॥
 
-> se amṛtera eka-kaṇa, karṇa-cakora-jīvana,
-> karṇa-cakora jīye sei āśe
-> bhāgya-vaśe kabhu pāya, abhāgye kabhu nā pāya,
+> se amṛtera eka-kaṇa, karṇa-cakora-jīvana,\
+> karṇa-cakora jīye sei āśe\
+> bhāgya-vaśe kabhu pāya, abhāgye kabhu nā pāya,\
 > nā pāile maraye piyāse
 
 *se amṛtera*—de ese néctar; *eka-kaṇa*—una partícula; *karṇa-cakora*—del oído, que es como un pájaro cakora; *jīvana*—la vida; *karṇa*—el oído; *cakora*—el pájaro cakora; *jīye*—vive; *sei āśe*—con esa esperanza; *bhāgya-vaśe*—por buena fortuna; *kabhu*—a veces; *pāya*—obtiene; *abhāgye*—por desgracia; *kabhu*—a veces; *nā pāya*—no obtiene; *nā pāile*—si no obtiene; *maraye*—muere; *piyāse*—de sed.

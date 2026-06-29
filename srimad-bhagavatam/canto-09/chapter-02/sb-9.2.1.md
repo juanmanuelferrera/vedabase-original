@@ -1,13 +1,13 @@
 ### SB 9.2.1
 
-> श्रीशुक उवाच
-> एवं गतेऽथ सुद्युम्ने मनुर्वैवस्वतः सुते
+> श्रीशुक उवाच\
+> एवं गतेऽथ सुद्युम्ने मनुर्वैवस्वतः सुते\
 > पुत्रकामस्तपस्तेपे यमुनायां शतं समाः ॥१॥
 
-> śrī-śuka uvāca
-> evaṁ gate 'tha sudyumne
-> manur vaivasvataḥ sute
-> putra-kāmas tapas tepe
+> śrī-śuka uvāca\
+> evaṁ gate 'tha sudyumne\
+> manur vaivasvataḥ sute\
+> putra-kāmas tapas tepe\
 > yamunāyāṁ śataṁ samāḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—thus; *gate*—had accepted the order of *vānaprastha*; *atha*—thereafter; *sudyumne*—when Sudyumna; *manuḥ vaivasvataḥ*—Vaivasvata Manu, known as Śrāddhadeva; *sute*—his son; *putra-kāmaḥ*—desiring to get sons; *tapaḥ tepe*—executed severe austerities; *yamunāyām*—on the bank of the Yamunā; *śatam samāḥ*—for one hundred years.

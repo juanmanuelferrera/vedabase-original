@@ -1,31 +1,31 @@
 ### SB 2.7.43-45
 
-> वेदाहमङ्ग परमस्य हि योगमायां
-> यूयं भवश्च भगवानथ दैत्यवर्यः ।
-> पत्नी मनोः स च मनुश्च तदात्मजाश्च
-> प्राचीनबर्हिरृभुरङ्ग उत ध्रुवश्च ॥४३॥
-> इक्ष्वाकुरैलमुचुकुन्दविदेहगाधि
-> रघ्वम्बरीषसगरा गयनाहुषाद्याः ।
-> मान्धात्रलर्कशतधन्वनुरन्तिदेवा
-> देवव्रतो बलिरमूर्त्तरयो दिलीपः ॥४४॥
-> सौभर्युतङ्कशिबिदेवलपिप्पलाद
-> सारस्वतोद्धवपराशरभूरिषेणाः ।
-> येऽन्ये विभीषणहनूमदुपेन्द्रदत्त
+> वेदाहमङ्ग परमस्य हि योगमायां\
+> यूयं भवश्च भगवानथ दैत्यवर्यः ।\
+> पत्नी मनोः स च मनुश्च तदात्मजाश्च\
+> प्राचीनबर्हिरृभुरङ्ग उत ध्रुवश्च ॥४३॥\
+> इक्ष्वाकुरैलमुचुकुन्दविदेहगाधि\
+> रघ्वम्बरीषसगरा गयनाहुषाद्याः ।\
+> मान्धात्रलर्कशतधन्वनुरन्तिदेवा\
+> देवव्रतो बलिरमूर्त्तरयो दिलीपः ॥४४॥\
+> सौभर्युतङ्कशिबिदेवलपिप्पलाद\
+> सारस्वतोद्धवपराशरभूरिषेणाः ।\
+> येऽन्ये विभीषणहनूमदुपेन्द्रदत्त\
 > पार्थार्ष्टिषेणविदुरश्रुतदेववर्याः ॥४५॥
 
-> vedāham aṅga paramasya hi yoga-māyāṁ
-> yūyaṁ bhavaś ca bhagavān atha daitya-varyaḥ
-> patnī manoḥ sa ca manuś ca tad-ātmajāś ca
+> vedāham aṅga paramasya hi yoga-māyāṁ\
+> yūyaṁ bhavaś ca bhagavān atha daitya-varyaḥ\
+> patnī manoḥ sa ca manuś ca tad-ātmajāś ca\
 > prācīnabarhir ṛbhur aṅga uta dhruvaś ca
 
-> ikṣvākur aila-mucukunda-videha-gādhi-
-> raghv-ambarīṣa-sagarā gaya-nāhuṣādyāḥ
-> māndhātr-alarka-śatadhanv-anu-rantidevā
+> ikṣvākur aila-mucukunda-videha-gādhi-\
+> raghv-ambarīṣa-sagarā gaya-nāhuṣādyāḥ\
+> māndhātr-alarka-śatadhanv-anu-rantidevā\
 > devavrato balir amūrttarayo dilīpaḥ
 
-> saubhary-utaṅka-śibi-devala-pippalāda-
-> sārasvatoddhava-parāśara-bhūriṣeṇāḥ
-> ye 'nye vibhīṣaṇa-hanūmad-upendradatta-
+> saubhary-utaṅka-śibi-devala-pippalāda-\
+> sārasvatoddhava-parāśara-bhūriṣeṇāḥ\
+> ye 'nye vibhīṣaṇa-hanūmad-upendradatta-\
 > pārthārṣṭiṣeṇa-vidura-śrutadeva-varyāḥ
 
 *veda*—lo sé; *aham*—yo; *aṅga*—¡oh, Nārada!; *paramasya*—del Supremo; *hi*—ciertamente; *yoga-māyām*—potencia; *yūyam*—tú; *bhavaḥ*—Śiva; *ca*—y; *bhagavān*—el gran semidiós; *atha*—así como también; *daitya-varyaḥ*—Prahlāda Mahārāja, el gran devoto del Señor nacido de la familia de un ateo; *patnī*—Satarūpā; *manoḥ*—de Manu; *saḥ*—él; *ca*—también; *manuḥ*—Svāyambhuva; *ca*—y; *tat-ātma jāḥ ca*—e hijos de él como Priyavrata, Uttānapāda, Devahūti, etc.; *prācīnabarhiḥ*—Prācīnabarhi; *ṛbhuḥ*—Ṛbhu; *aṅgaḥ*—Aṅga; *uta*—incluso; *dhruvaḥ*—Dhruva; *ca*—y; *ikṣvākuḥ*—Ikṣvāku; *aila*—Aila; *mucukunda*—Mucukunda; *videha*—Mahārāja Janaka; *gādhi*—Gādhi; *raghu*—Raghu; *ambarīṣa*—Ambarīṣa; *sagarāḥ*—Sagara; *gaya*—Gaya; *nāhuṣa*—Nāhuṣa; *ādyāḥ*—etcétera; *māndhātā*—Māndhātā; *alarka*—Alarka; *śatadhanu*—Śatadhanu; *anu*—Anu; *rantidevāḥ*—Rantideva; *devavrataḥ*—Bhīma; *baliḥ*—Bali; *amūrttarayaḥ*—Amūrttaraya; *dilīpaḥ*—Dilīpa; *saubhari*—Saubhari; *utaṅka*—Utaṅka; *śibi*—Śibi; *devala*—Devala; *pippalāda*—Pippalāda; *sārasvata*—Sārasvata; *uddhava*—Uddhava; *parāśara*—Parāśara; *bhūriṣeṇāḥ*—Bhūriṣeṇa; *ye*—aquellos que; *anye*—otros; *vibhīṣaṇa*—Vibhīṣaṇa; *hanūmat*—Hanumān; *upendra-datta*—Śukadeva Gosvāmī; *pārtha*—Arjuna; *ārṣṭiṣeṇa*—Ārṣṭiṣeṇa; *vidura*—Vidura; *śrutadeva*—Śrutadeva; *varyāḥ*—el principal.

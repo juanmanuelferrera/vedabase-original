@@ -1,11 +1,11 @@
 ### SB 1.19.30
 
-> स संवृतस्तत्र महान्महीयसां ब्रह्मर्षिराजर्षिदेवर्षिसङ्घैः ।
+> स संवृतस्तत्र महान्महीयसां ब्रह्मर्षिराजर्षिदेवर्षिसङ्घैः ।\
 > व्यरोचतालं भगवान्यथेन्दुर्ग्रहर्क्षतारानिकरैः परीतः ॥३०॥
 
-> sa saṁvṛtas tatra mahān mahīyasāṁ
-> brahmarṣi-rājarṣi-devarṣi-saṅghaiḥ
-> vyarocatālaṁ bhagavān yathendur
+> sa saṁvṛtas tatra mahān mahīyasāṁ\
+> brahmarṣi-rājarṣi-devarṣi-saṅghaiḥ\
+> vyarocatālaṁ bhagavān yathendur\
 > graharkṣa-tārā-nikaraiḥ parītaḥ
 
 *saḥ*—Śrī Śukadeva Gosvāmī; *saṁvṛtaḥ*—surrounded by; *tatra*—there; *mahān*—great; *mahīyasām*—of the greatest; *brahmarṣi*—saint among the *brāhmaṇas*; *rājarṣi*—saint among the kings; *devarṣi*—saint among the demigods; *saṅghaiḥ*—by the assembly of; *vyarocata*—well deserved; *alam*—able; *bhagavān*—powerful; *yathā*—as; *induḥ*—the moon; *graha*—planets; *ṛkṣa*—heavenly bodies; *tārā*—stars; *nikaraiḥ*—by the assembly of; *parītaḥ*—surrounded by.

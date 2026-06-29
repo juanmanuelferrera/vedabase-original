@@ -1,17 +1,17 @@
 ### SB 7.13.16-17
 
-> बिभर्षि कायं पीवानं सोद्यमो भोगवान्यथा
-> वित्तं चैवोद्यमवतां भोगो वित्तवतामिह
-> भोगिनां खलु देहोऽयं पीवा भवति नान्यथा ॥१६॥
-> न ते शयानस्य निरुद्यमस्य ब्रह्मन्नु हार्थो यत एव भोगः
+> बिभर्षि कायं पीवानं सोद्यमो भोगवान्यथा\
+> वित्तं चैवोद्यमवतां भोगो वित्तवतामिह\
+> भोगिनां खलु देहोऽयं पीवा भवति नान्यथा ॥१६॥\
+> न ते शयानस्य निरुद्यमस्य ब्रह्मन्नु हार्थो यत एव भोगः\
 > अभोगिनोऽयं तव विप्र देहः पीवा यतस्तद्वद नः क्षमं चेत ॥१७॥
 
-> bibharṣi kāyaṁ pīvānaṁ
+> bibharṣi kāyaṁ pīvānaṁ\
 > sodyamo bhogavān yathā
 
-> vittaṁ caivodyamavatāṁ
-> bhogo vittavatām iha
-> bhogināṁ khalu deho 'yaṁ
+> vittaṁ caivodyamavatāṁ\
+> bhogo vittavatām iha\
+> bhogināṁ khalu deho 'yaṁ\
 > pīvā bhavati nānyathā
 
 *bibharṣi*—you are maintaining; *kāyam*—a body; *pīvānam*—fat; *sa-udyamaḥ*—one who endeavors; *bhogavān*—one who enjoys; *yathā*—as; *vittam*—money; *ca*—also; *eva*—certainly; *udyama-vatām*—of persons always engaged in economic development; *bhogaḥ*—sense gratification; *vitta-vatām*—for persons who possess considerable wealth; *iha*—in this world; *bhoginām*—of the enjoyers, *karmīs*; *khalu*—indeed; *dehaḥ*—body; *ayam*—this; *pīvā*—very fat; *bhavati*—becomes; *na*—not; *anyathā*—otherwise.

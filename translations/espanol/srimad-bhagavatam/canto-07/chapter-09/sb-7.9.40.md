@@ -1,13 +1,13 @@
 ### SB 7.9.40
 
-> जिह्वैकतोऽच्युत विकर्षति मावितृप्ता
-> शिश्नोऽन्यतस्त्वगुदरं श्रवणं कुतश्चित
-> घ्राणोऽन्यतश्चपलदृक्क्व च कर्मशक्तिर
+> जिह्वैकतोऽच्युत विकर्षति मावितृप्ता\
+> शिश्नोऽन्यतस्त्वगुदरं श्रवणं कुतश्चित\
+> घ्राणोऽन्यतश्चपलदृक्क्व च कर्मशक्तिर\
 > बह्व्यः सपत्न्य इव गेहपतिं लुनन्ति ॥४०॥
 
-> jihvaikato 'cyuta vikarṣati māvitṛptā
-> śiśno 'nyatas tvag-udaraṁ śravaṇaṁ kutaścit
-> ghrāṇo 'nyataś capala-dṛk kva ca karma-śaktir
+> jihvaikato 'cyuta vikarṣati māvitṛptā\
+> śiśno 'nyatas tvag-udaraṁ śravaṇaṁ kutaścit\
+> ghrāṇo 'nyataś capala-dṛk kva ca karma-śaktir\
 > bahvyaḥ sapatnya iva geha-patiṁ lunanti
 
 *jihvā*—la lengua; *ekataḥ*—en una dirección; *acyuta*—¡oh, mi infalible Señor!; *vikarṣati*—atrae; *mā*—a mí; *avitṛptā*—sin sentirse satisfecha; *śiśnaḥ*—los genitales; *anyataḥ*—en otra dirección; *tvak*—la piel (por tocar cosas suaves); *udaram*—el estómago (por diversidad de alimentos); *śravaṇam*—el oído (por escuchar música agradable); *kutaścit*—hacia otro lado; *ghrāṇaḥ*—la nariz (por oler); *anyataḥ*—en otra dirección distinta; *capala-dṛk*—el inquieto sentido de la vista; *kva ca*—hacia algún lugar; *karma-śaktiḥ*—los sentidos activos; *bahvyaḥ*—muchas; *sa-patnyaḥ*—coesposas; *iva*—como; *geha-patim*—a un casado; *lunanti*—aniquilan.

@@ -1,11 +1,11 @@
 ### SB 1.18.5
 
-> तावत्कलिर्न प्रभवेत्प्रविष्टोऽपीह सर्वतः ।
+> तावत्कलिर्न प्रभवेत्प्रविष्टोऽपीह सर्वतः ।\
 > यावदीशो महानुर्व्यामाभिमन्यव एकराट् ॥५॥
 
-> tāvat kalir na prabhavet
-> praviṣṭo 'pīha sarvataḥ
-> yāvad īśo mahān urvyām
+> tāvat kalir na prabhavet\
+> praviṣṭo 'pīha sarvataḥ\
+> yāvad īśo mahān urvyām\
 > ābhimanyava eka-rāṭ
 
 *tāvat*—so long; *kaliḥ*—the personality of Kali; *na*—cannot; *prabhavet*—flourish; *praviṣṭaḥ*—entered in; *api*—even though; *iha*—here; *sarvataḥ*—everywhere; *yāvat*—as long as; *īśaḥ*—the lord; *mahān*—great; *urvyām*—powerful; *ābhimanyavaḥ*—the son of Abhimanyu; *eka-rāṭ*—the one emperor.

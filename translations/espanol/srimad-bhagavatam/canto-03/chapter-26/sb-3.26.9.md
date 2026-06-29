@@ -1,13 +1,13 @@
 ### SB 3.26.9
 
-> देवहूतिरुवाच
-> प्रकृतेः पुरुषस्यापि लक्षणं पुरुषोत्तम ।
+> देवहूतिरुवाच\
+> प्रकृतेः पुरुषस्यापि लक्षणं पुरुषोत्तम ।\
 > ब्रूहि कारणयोरस्य सदसच्च यदात्मकम् ॥९॥
 
-> devahūtir uvāca
-> prakṛteḥ puruṣasyāpi
-> lakṣaṇaṁ puruṣottama
-> brūhi kāraṇayor asya
+> devahūtir uvāca\
+> prakṛteḥ puruṣasyāpi\
+> lakṣaṇaṁ puruṣottama\
+> brūhi kāraṇayor asya\
 > sad-asac ca yad-ātmakam
 
 *devahūtiḥ uvāca*—Devahūti dijo; *prakṛteḥ*—de Sus energías; *puruṣasya*—de la Persona Suprema; *api*—también; *lakṣaṇam*—características; *puruṣa-uttama*—¡oh, Suprema Personalidad de Dios!; *brūhi*—ten la bondad de explicar; *kāraṇayoḥ*—causas; *asya*—de la creación; *sat-asat*—manifiesta y no manifiesta; *ca*—y; *yat-ātmakam*—de las cuales consta.

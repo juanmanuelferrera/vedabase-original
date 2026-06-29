@@ -1,9 +1,9 @@
 ### CC Madhya 7.101
 
-> যারে দেখে, তারে কহে, — কহ কৃষ্ণনাম ৷
+> যারে দেখে, তারে কহে, — কহ কৃষ্ণনাম ৷\
 > এইমত ‘বৈষ্ণব’ কৈল সব নিজ-গ্রাম ৷৷ ১০১ ৷৷ ॥১০১॥
 
-> yāre dekhe, tāre kahe,--kaha kṛṣṇa-nāma
+> yāre dekhe, tāre kahe,--kaha kṛṣṇa-nāma\
 > ei-mata 'vaiṣṇava' kaila saba nija-grāma
 
 *yāre dekhe*—a quienquiera que encuentre; *tāre*—a él; *kahe*—le dice; *kaha kṛṣṇa-nāma*—por favor canta el mantra Hare Kṛṣṇa; *ei-mata*—de esta manera; *vaiṣṇava*—devotos de la Suprema Personalidad de Dios; *kaila*—hizo; *saba*—a todos; *nija-grāma*—su propia aldea.

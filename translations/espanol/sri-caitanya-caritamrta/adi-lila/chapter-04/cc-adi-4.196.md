@@ -1,13 +1,13 @@
 ### CC Adi 4.196
 
-> উপেত্য পথি সুন্দরীততিভিরাভিরভ্যর্চিতং
-> স্মিতাঙ্কুরকরম্বিতৈর্নটদপাঙ্গভঙ্গীশতৈঃ ।
-> স্তন-স্তবকসঞ্চরন্নয়নচঞ্চরীকাঞ্চলং
+> উপেত্য পথি সুন্দরীততিভিরাভিরভ্যর্চিতং\
+> স্মিতাঙ্কুরকরম্বিতৈর্নটদপাঙ্গভঙ্গীশতৈঃ ।\
+> স্তন-স্তবকসঞ্চরন্নয়নচঞ্চরীকাঞ্চলং\
 > ব্রজে বিজয়িনং ভজে বিপিনদেশতঃ কেশবম্ ॥১৯৬॥
 
-> upetya pathi sundarī-tatibhir ābhir abhyarcitaṁ
-> smitāṅkura-karambitair naṭad-apāṅga-bhaṅgī-śataiḥ
-> stana-stavaka-sañcaran-nayana-cañcarīkāñcalaṁ
+> upetya pathi sundarī-tatibhir ābhir abhyarcitaṁ\
+> smitāṅkura-karambitair naṭad-apāṅga-bhaṅgī-śataiḥ\
+> stana-stavaka-sañcaran-nayana-cañcarīkāñcalaṁ\
 > vraje vijayinaṁ bhaje vipina-deśataḥ keśavam
 
 *upetya*—habiendo subido a sus palacios; *pathi*—en el camino; *sundarī-tatibhiḥ ābhiḥ*—por las mujeres de Vraja; *abhyarcitam*—a quien se adora; *smita-aṅkura-karambitaiḥ*—entremezcladas con los brotes de suaves sonrisas; *naṭat*—danzantes; *apāṅga*—de miradas; *bhaṅgī-śataiḥ*—con centenares de modos; *stana-stavaka*—la multitud de pechos; *sañcarat*—vagando; *nayana*—de los dos ojos; *cañcarīka*—como abejas; *añcalam*—Aquel cuyos rabos del ojo; *vraje*—en Vraja; *vijayinam*—que llega; *bhaje*—adoro; *vipina-deśataḥ*—del bosque; *keśavam*—al Señor Keśava.

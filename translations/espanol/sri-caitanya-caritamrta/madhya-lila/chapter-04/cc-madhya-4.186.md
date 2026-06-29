@@ -1,9 +1,9 @@
 ### CC Madhya 4.186
 
-> প্রগাঢ় প্রেমের এই স্বভাব-আচার ৷
+> প্রগাঢ় প্রেমের এই স্বভাব-আচার ৷\
 > নিজ-দুঃখ-বিঘ্নাদির না করে বিচার ॥১৮৬॥
 
-> pragāḍha-premera ei svabhāva-ācāra
+> pragāḍha-premera ei svabhāva-ācāra\
 > nija-duḥkha-vighnādira nā kare vicāra
 
 *pragāḍha*—intenso; *premera*—del amor por Dios; *ei*—este; *svabhāva*—natural; *ācāra*—comportamiento; *nija*—personal; *duḥkha*—incomodidad; *vighna*—impedimentos; *ādira*—etcétera; *nā*—no; *kare*—hace; *vicāra*—consideración.

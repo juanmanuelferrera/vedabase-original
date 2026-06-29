@@ -1,11 +1,11 @@
 ### SB 3.7.39
 
-> निमित्तानि च तस्येह प्रोक्तान्यनघसूरिभिः ।
+> निमित्तानि च तस्येह प्रोक्तान्यनघसूरिभिः ।\
 > स्वतो ज्ञानं कुतः पुंसां भक्तिर्वैराग्यमेव वा ॥३९॥
 
-> nimittāni ca tasyeha
-> proktāny anagha-sūribhiḥ
-> svato jñānaṁ kutaḥ puṁsāṁ
+> nimittāni ca tasyeha\
+> proktāny anagha-sūribhiḥ\
+> svato jñānaṁ kutaḥ puṁsāṁ\
 > bhaktir vairāgyam eva vā
 
 *nimittāni*—the source of knowledge; *ca*—also; *tasya*—of such knowledge; *iha*—in this world; *proktāni*—mentioned; *anagha*—spotless; *sūribhiḥ*—by devotees; *svataḥ*—self-sufficient; *jñānam*—knowledge; *kutaḥ*—how; *puṁsām*—of the living entity; *bhaktiḥ*—devotional service; *vairāgyam*—detachment; *eva*—certainly; *vā*—also.

@@ -1,9 +1,9 @@
 ### CC Antya 1.12
 
-> পূর্বলিখিত গ্রন্থসূত্র-অনুসারে ।
+> পূর্বলিখিত গ্রন্থসূত্র-অনুসারে ।\
 > যেই নাহি লিখি, তাহা লিখিয়ে বিস্তারে ॥১২॥
 
-> pūrva-likhita grantha-sūtra-anusāre
+> pūrva-likhita grantha-sūtra-anusāre\
 > yei nāhi likhi, tāhā likhiye vistāre
 
 *pūrva-likhita*—previously mentioned; *grantha-sūtra*—the synopsis of the pastimes; *anusāre*—according to; *yei*—whatever; *nāhi likhi*—I have not mentioned; *tāhā*—hat; *likhiye*—I shall write; *vistāre*—elaborately.

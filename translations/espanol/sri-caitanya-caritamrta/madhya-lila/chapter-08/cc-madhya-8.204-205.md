@@ -1,12 +1,12 @@
 ### CC Madhya 8.204-205
 
-> sakhī vinā ei līlāya anyera nāhi gati
+> sakhī vinā ei līlāya anyera nāhi gati\
 > sakhī-bhāve ye tāṅre kare anugati
 
-> sakhī vinā ei līlāya anyera nāhi gati
+> sakhī vinā ei līlāya anyera nāhi gati\
 > sakhī-bhāve ye tāṅre kare anugati
 
-> rādhā-kṛṣṇa-kuñjasevā-sādhya sei pāya
+> rādhā-kṛṣṇa-kuñjasevā-sādhya sei pāya\
 > sei sādhya pāite āra nāhika upāya
 
 *sakhī vinā*—sin las *gopīs*; *ei līlāya*—en esos pasatiempos; *anyera*—de otros; *nāhi*—no hay; *gati*—entrada; *sakhī-bhāve*—con los sentimientos de las *gopīs*; *ye*—todo el que; *tāṅre*—el Señor Kṛṣṇa; *kare*—hace; *anugati*—seguir; *rādhā-kṛṣṇa*—de Rādhā y Kṛṣṇa; *kuñja-sevā*—de servicio en los *kuñjas,* en los jardines de Vṛndāvana; *sādhya*—el objetivo; *sei pāya*—alcanza; *sei*—ese; *sādhya*—logro; *pāite*—para recibir; *āra*—otro; *nāhika*—no hay; *upāya*—medio.

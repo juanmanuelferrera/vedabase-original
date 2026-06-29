@@ -1,11 +1,11 @@
 ### SB 3.6.31
 
-> बाहुभ्योऽवर्तत क्षत्रं क्षत्रियस्तदनुव्रतः ।
+> बाहुभ्योऽवर्तत क्षत्रं क्षत्रियस्तदनुव्रतः ।\
 > यो जातस्त्रायते वर्णान्पौरुषः कण्टकक्षतात् ॥३१॥
 
-> bāhubhyo 'vartata kṣatraṁ
-> kṣatriyas tad anuvrataḥ
-> yo jātas trāyate varṇān
+> bāhubhyo 'vartata kṣatraṁ\
+> kṣatriyas tad anuvrataḥ\
+> yo jātas trāyate varṇān\
 > pauruṣaḥ kaṇṭaka-kṣatāt
 
 *bāhubhyaḥ*—from the arms; *avartata*—generate d; *kṣatram*—the power of protection; *kṣatriyaḥ*—in relation to the power of protection; *tat*—that; *anuvrataḥ*—followers; *yaḥ*—one who; *jātaḥ*—so becomes; *trāyate*—delivers; *varṇān*—the other occupations; *pauruṣaḥ*—representative of the Personality of Godhead; *kaṇṭaka*—of disturbing elements like thieves and debauchees; *kṣatāt*—from the mischief.

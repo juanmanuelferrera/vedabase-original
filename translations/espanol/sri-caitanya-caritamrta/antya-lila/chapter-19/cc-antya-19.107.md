@@ -1,9 +1,9 @@
 ### CC Antya 19.107
 
-> ইহার সত্যত্বে প্রমাণ শ্রীভাগবতে ।
+> ইহার সত্যত্বে প্রমাণ শ্রীভাগবতে ।\
 > শ্রীরাধার প্রেম-প্রলাপ ‘ভ্রমর-গীতা’তে ॥১০৭॥
 
-> ihāra satyatve pramāṇa śrī-bhāgavate
+> ihāra satyatve pramāṇa śrī-bhāgavate\
 > śrī-rādhāra prema-pralāpa 'bhramara-gītā'te
 
 *ihāra*—de estas palabras; *satyatve*—en la veracidad; *pramāṇa*—la evidencia; *śrī-bhāgavate*—en el Śrīmad-Bhāgavatam; *śrī-rādhāra*—de Śrīmatī Rādhārāṇī; *prema-pralāpa*—hablar enloquecidamente en amor extático; *bhramara-gītāte*—en la sección conocida como Bhramara-gītā.

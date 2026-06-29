@@ -1,9 +1,9 @@
 ### CC Madhya 1.229
 
-> মথুরা যাইব আমি এত লোক সঙ্গে ।
+> মথুরা যাইব আমি এত লোক সঙ্গে ।\
 > কিছু সুখ না পাইব, হবে রসভঙ্গে ॥২২৯॥
 
-> mathurā yāiba āmi eta loka saṅge
+> mathurā yāiba āmi eta loka saṅge\
 > kichu sukha nā pāiba, habe rasa-bhaṅge
 
 *mathurā*—el lugar sagrado llamado Mathurā; *yāiba*—iré; *āmi*—Yo; *eta*—tantas; *loka*—personas; *saṅge*—con; *kichu*—alguna; *sukha*—felicidad; *nā*—no; *pāiba*—obtendré; *habe*—habrá; *rasa-bhaṅge*—una perturbación en la atmósfera.

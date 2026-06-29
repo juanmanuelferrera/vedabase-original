@@ -1,9 +1,9 @@
 ### CC Madhya 19.217
 
-> এই দুই গুণ ব্যাপে সব ভক্তজনে ৷
+> এই দুই গুণ ব্যাপে সব ভক্তজনে ৷\
 > আকাশের ‘শব্দ’-গুণ যেন ভূতগণে ॥২১৭॥
 
-> ei dui guṇa vyāpe saba bhakta-jane
+> ei dui guṇa vyāpe saba bhakta-jane\
 > ākāśera 'śabda'-guṇa yena bhūta-gaṇe
 
 *ei dui*—estas dos; *guṇa*—cualidades trascendentales; *vyāpe*—se expanden; *saba bhakta-jane*—en las vidas de todos los devotos; *ākāśera*—del cielo; *śabda-guṇa*—la cualidad del sonido; *yena*—tal como; *bhūta-gaṇe*—otros elementos materiales.

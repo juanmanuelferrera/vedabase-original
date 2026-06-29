@@ -1,11 +1,11 @@
 ### SB 1.7.3
 
-> तस्मिन्स्व आश्रमे व्यासो बदरीषण्डमण्डिते ।
+> तस्मिन्स्व आश्रमे व्यासो बदरीषण्डमण्डिते ।\
 > आसीनोऽप उपस्पृश्य प्रणिदध्यौ मनः स्वयम् ॥३॥
 
-> tasmin sva āśrame vyāso
-> badarī-ṣaṇḍa-maṇḍite
-> āsīno 'pa upaspṛśya
+> tasmin sva āśrame vyāso\
+> badarī-ṣaṇḍa-maṇḍite\
+> āsīno 'pa upaspṛśya\
 > praṇidadhyau manaḥ svayam
 
 *tasmin*—en ese (*āśrama*); *sve*—propio; *āśrame*—en la cabaña; *vyāsaḥ*—Vyāsadeva; *badarī*—baya; *ṣaṇḍa*—árboles; *maṇḍite*—circundado por; *āsīnaḥ*—sentado; *apaḥ upaspṛśya*—tocando agua; *praṇidadhyau*—concentró; *manaḥ*—la mente; *svayam*—él mismo.

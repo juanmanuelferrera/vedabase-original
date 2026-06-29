@@ -1,11 +1,11 @@
 ### SB 2.2.14
 
-> यावन्न जायेत परावरेऽस्मिन्विश्वेश्वरे द्रष्टरि भक्तियोगः ।
+> यावन्न जायेत परावरेऽस्मिन्विश्वेश्वरे द्रष्टरि भक्तियोगः ।\
 > तावत्स्थवीयः पुरुषस्य रूपं क्रियावसाने प्रयतः स्मरेत ॥१४॥
 
-> yāvan na jāyeta parāvare 'smin
-> viśveśvare draṣṭari bhakti-yogaḥ
-> tāvat sthavīyaḥ puruṣasya rūpaṁ
+> yāvan na jāyeta parāvare 'smin\
+> viśveśvare draṣṭari bhakti-yogaḥ\
+> tāvat sthavīyaḥ puruṣasya rūpaṁ\
 > kriyāvasāne prayataḥ smareta
 
 *yāvat*—as long as; *na*—does not; *jāyeta*—develop; *para*—transcendental; *avare*—mundane; *asmin*—in this form of; *viśva-īśvare*—the Lord of all worlds; *draṣṭari*—unto the seer; *bhakti-yogaḥ*—devotional service; *tāvat*—so long; *sthavīyaḥ*—the gross materialist; *puruṣasya*—of the *virāṭ-puruṣa*; *rūpam*—universal form; *kriyā-avasāne*—at the end of one's prescribed duties; *prayataḥ*—with proper attention; *smareta*—one should remember.

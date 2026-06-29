@@ -1,13 +1,13 @@
 ### CC Madhya 2.70
 
-> তুমি নাথ — ব্রজপ্রাণ, ব্রজের কর পরিত্রাণ,
-> বহু কার্যে নাহি অবকাশ ।
-> তুমি আমার রমণ, সুখ দিতে আগমন,
+> তুমি নাথ — ব্রজপ্রাণ, ব্রজের কর পরিত্রাণ,\
+> বহু কার্যে নাহি অবকাশ ।\
+> তুমি আমার রমণ, সুখ দিতে আগমন,\
 > এ তোমার বৈদগ্ধ্য-বিলাস ॥৭০॥
 
-> tumi nātha—vraja-prāṇa, vrajera kara paritrāṇa,
-> bahu kārye nāhi avakāśa
-> tumi āmāra ramaṇa, sukha dite āgamana,
+> tumi nātha—vraja-prāṇa, vrajera kara paritrāṇa,\
+> bahu kārye nāhi avakāśa\
+> tumi āmāra ramaṇa, sukha dite āgamana,\
 > e tomāra vaidagdhya-vilāsa
 
 *tumi*—You; *nātha*—the master; *vraja-prāṇa*—the life of Vrajabhūmi (Vṛndāvana); *vrajera*—of Vraja; *kara*—do; *paritrāṇa*—deliverance; *bahu*—many; *kārye*—in activities; *nāhi*—there is not; *avakāśa*—rest; *tumi*—You; *āmāra*—My; *ramaṇa*—enjoyer; *sukha*—happiness; *dite*—to give; *āgamana*—appearing; *e*—this; *tomāra*—Your; *vaidagdhya-vilāsa*—activities of expert transactions.

@@ -1,11 +1,11 @@
 ### SB 9.20.27
 
-> त्रयस्त्रिंशच्छतं ह्यश्वान्बद्ध्वा विस्मापयन्नृपान
+> त्रयस्त्रिंशच्छतं ह्यश्वान्बद्ध्वा विस्मापयन्नृपान\
 > दौष्मन्तिरत्यगान्मायां देवानां गुरुमाययौ ॥२७॥
 
-> trayas-triṁśac-chataṁ hy aśvān
-> baddhvā vismāpayan nṛpān
-> dauṣmantir atyagān māyāṁ
+> trayas-triṁśac-chataṁ hy aśvān\
+> baddhvā vismāpayan nṛpān\
+> dauṣmantir atyagān māyāṁ\
 > devānāṁ gurum āyayau
 
 *trayaḥ*—three; *triṁśat*—thirty; *śatam*—hundred; *hi*—indeed; *aśvān*—horses; *baddhvā*—arresting in the *yajña*; *vismāpayan*—astonishing; *nṛpān*—all other kings; *dauṣmantiḥ*—the son of Mahārāja Duṣmanta; *atyagāt*—surpassed; *māyām*—material opulences; *devānām*—of the demigods; *gurum*—the supreme spiritual master; *āyayau*—achieved.

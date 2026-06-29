@@ -1,9 +1,9 @@
 ### CC Adi 5.89
 
-> আমি ত’ জগতে বসি, জগৎ আমাতে ।
+> আমি ত’ জগতে বসি, জগৎ আমাতে ।\
 > না আমি জগতে বসি, না আমা জগতে ॥৮৯॥
 
-> āmi ta' jagate vasi, jagat āmāte
+> āmi ta' jagate vasi, jagat āmāte\
 > nā āmi jagate vasi, nā āmā jagate
 
 *āmi*—I; *ta'*—certainly; *jagate*—in the material world; *vasi*—situated; *jagat*—the whole material creation; *āmāte*—in Me; *nā*—not; *āmi*—I; *jagate*—within the material world; *vasi*—situated; *nā*—nor; *āmā*—on Me; *jagate*—the material world.

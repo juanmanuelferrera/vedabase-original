@@ -1,11 +1,11 @@
 ### SB 5.13.3
 
-> प्रभूतवीरुत्तृणगुल्मगह्वरे कठोरदंशैर्मशकैरुपद्रुतः
+> प्रभूतवीरुत्तृणगुल्मगह्वरे कठोरदंशैर्मशकैरुपद्रुतः\
 > क्वचित्तु गन्धर्वपुरं प्रपश्यति क्वचित्क्वचिच्चाशुरयोल्मुकग्रहम ॥३॥
 
-> prabhūta-vīrut-tṛṇa-gulma-gahvare
-> kaṭhora-daṁśair maśakair upadrutaḥ
-> kvacit tu gandharva-puraṁ prapaśyati
+> prabhūta-vīrut-tṛṇa-gulma-gahvare\
+> kaṭhora-daṁśair maśakair upadrutaḥ\
+> kvacit tu gandharva-puraṁ prapaśyati\
 > kvacit kvacic cāśu-rayolmuka-graham
 
 *prabhūta*—a very large number; *vīrut*—of creepers; *tṛṇa*—of varieties of grass; *gulma*—of thickets; *gahvare*—in bowers; *kaṭhora*—cruel; *daṁśaiḥ*—by bites; *maśakaiḥ*—by mosquitoes; *upadrutaḥ*—disturbed; *kvacit*—sometimes; *tu*—but; *gandharva-puram*—a false palace created by the Gandharvas; *prapaśyati*—be sees; *kvacit*—and sometimes; *kvacit*—sometimes; *ca*—and; *āśu-raya*—very quickly; *ulmuka*—like a meteor; *graham*—a fiend.

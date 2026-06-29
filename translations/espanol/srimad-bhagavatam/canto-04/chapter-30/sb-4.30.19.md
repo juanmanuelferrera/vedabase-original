@@ -1,11 +1,11 @@
 ### SB 4.30.19
 
-> गृहेष्वाविशतां चापि पुंसां कुशलकर्मणाम् ।
+> गृहेष्वाविशतां चापि पुंसां कुशलकर्मणाम् ।\
 > मद्वार्तायातयामानां न बन्धाय गृहा मताः ॥१९॥
 
-> gṛheṣv āviśatāṁ cāpi
-> puṁsāṁ kuśala-karmaṇām
-> mad-vārtā-yāta-yāmānāṁ
+> gṛheṣv āviśatāṁ cāpi\
+> puṁsāṁ kuśala-karmaṇām\
+> mad-vārtā-yāta-yāmānāṁ\
 > na bandhāya gṛhā matāḥ
 
 *gṛheṣu*—en vida familiar; *āviśatām*—que han entrado en; *ca*—también; *api*—incluso; *puṁsām*—de personas; *kuśala-karmaṇām*—ocupadas en actividades auspiciosas; *mat-vārtā*—en temas relacionados conmigo; *yāta*—se emplea; *yāmānām*—de quienes cada instante; *na*—no; *bandhāya*—para cautiverio; *gṛhāḥ*—vida familiar; *matāḥ*—considerados.

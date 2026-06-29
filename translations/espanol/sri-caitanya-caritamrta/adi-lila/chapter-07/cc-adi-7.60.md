@@ -1,9 +1,9 @@
 ### CC Adi 7.60
 
-> বসিয়া করিলা কিছু ঐশ্বর্য প্রকাশ ।
+> বসিয়া করিলা কিছু ঐশ্বর্য প্রকাশ ।\
 > মহাতেজোময় বপু কোটিসূর্যাভাস ॥৬০॥
 
-> vasiyā karilā kichu aiśvarya prakāśa
+> vasiyā karilā kichu aiśvarya prakāśa\
 > mahātejomaya vapu koṭi-sūryābhāsa
 
 *vasiyā*—después de sentarse; *karilā*—exhibió; *kichu*—algo; *aiśvarya*—poder místico; *prakāśa*—manifestó; *mahā-tejo-maya*—con gran brillantez; *vapu*—cuerpo; *koṭi*—millones; *sūrya*—soles; *ābhāsa*—reflejo.

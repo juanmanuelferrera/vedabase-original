@@ -1,9 +1,9 @@
 ### CC Antya 15.49
 
-> আগে বৃক্ষগণ দেখে পুষ্প ফলভরে ।
+> আগে বৃক্ষগণ দেখে পুষ্প ফলভরে ।\
 > শাখা সব পড়িয়াছে পৃথিবী-উপরে ॥৪৯॥
 
-> āge vṛkṣa-gaṇa dekhe puṣpa-phala-bhare
+> āge vṛkṣa-gaṇa dekhe puṣpa-phala-bhare\
 > śākhā saba paḍiyāche pṛthivī-upare
 
 *āge*—delante; *vṛkṣa-gaṇa*—los árboles; *dekhe*—ven; *puṣpa-phala-bhare*—por la pesada carga de flores y frutos; *śākhā saba*—todas las ramas; *paḍiyāche*—se han inclinado; *pṛthivī-upare*—hasta el suelo.

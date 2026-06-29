@@ -1,9 +1,9 @@
 ### CC Antya 1.13
 
-> বৃন্দাবন হৈতে প্রভু নীলাচলে আইলা ।
+> বৃন্দাবন হৈতে প্রভু নীলাচলে আইলা ।\
 > স্বরূপ-গোসাঞি গৌড়ে বার্তা পাঠাইলা ॥১৩॥
 
-> vṛndāvana haite prabhu nīlācale āilā
+> vṛndāvana haite prabhu nīlācale āilā\
 > svarūpa-gosāñi gauḍe vārtā pāṭhāilā
 
 *vṛndāvana haite*—desde Vṛndāvana; *prabhu*—Śrī Caitanya Mahāprabhu; *nīlācale āilā*—regresó a Jagannātha Purī, Nīlācala; *svarūpa-gosāñi*—Svarūpa Dāmodara; *gauḍe*—a Bengala; *vārtā pāṭhāilā*—envió noticias.

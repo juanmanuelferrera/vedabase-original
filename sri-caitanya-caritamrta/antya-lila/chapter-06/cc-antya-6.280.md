@@ -1,9 +1,9 @@
 ### CC Antya 6.280
 
-> ইঁহার সঙ্কোচে আমি এত দিন নিল ।
+> ইঁহার সঙ্কোচে আমি এত দিন নিল ।\
 > ভাল হৈল — জানিয়া আপনি ছাড়ি দিল ।।” ॥ ২৮০ ॥
 
-> iṅhāra saṅkoce āmi eta dina nila
+> iṅhāra saṅkoce āmi eta dina nila\
 > bhāla haila—jāniyā āpani chāḍi dila"
 
 *iṅhāra saṅkoce*—because of his eagerness; *āmi*—I; *eta dina*—for so many days; *nila*—I accepted; *bhāla haila*—it is very good; *jāniyā*—knowing; *āpani*—automatically; *chāḍi dila*—he has given up.

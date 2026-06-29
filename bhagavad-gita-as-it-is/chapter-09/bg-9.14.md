@@ -1,11 +1,11 @@
 ### Bg 9.14
 
-> सततं कीर्तयन्तो मां यतन्तश्च दृढव्रताः ।
+> सततं कीर्तयन्तो मां यतन्तश्च दृढव्रताः ।\
 > नमस्यन्तश्च मां भक्त्या नित्ययुक्ता उपासते ॥१४॥
 
-> satataṁ kīrtayanto māṁ
-> yatantaś ca dṛḍha-vratāḥ
-> namasyantaś ca māṁ bhaktyā
+> satataṁ kīrtayanto māṁ\
+> yatantaś ca dṛḍha-vratāḥ\
+> namasyantaś ca māṁ bhaktyā\
 > nitya-yuktā upāsate
 
 *satatam*—always; *kīrtayantaḥ*—chanting; *mām*—Me; *yatantaḥ ca*—fully endeavoring also; *dṛḍha-vratāḥ*—with determination; *namasyantaḥ ca*—offering obeisances; *mām*—unto Me; *bhaktyā*—in devotion; *nitya-yuktāḥ*—perpetually engaged; *upāsate*—worship.

@@ -1,9 +1,9 @@
 ### CC Adi 13.39
 
-> দ্বাদশ বৎসর শেষ রহিলা নীলাচলে ।
+> দ্বাদশ বৎসর শেষ রহিলা নীলাচলে ।\
 > প্রেমাবস্থা শিখাইলা আস্বাদন-চ্ছলে ॥৩৯॥
 
-> dvādaśa vatsara śeṣa rahilā nīlācale
+> dvādaśa vatsara śeṣa rahilā nīlācale\
 > premāvasthā śikhāilā āsvādana-cchale
 
 *dvādaśa*—twelve; *vatsara*—years; *śeṣa*—balance; *rahilā*—remained; *nīlācale*—at Jagannātha Purī; *prema-avasthā*—a state of ecstasy; *śikhāilā*—instructed everyone; *āsvādana-chale*—under the plea of tasting it Himself.

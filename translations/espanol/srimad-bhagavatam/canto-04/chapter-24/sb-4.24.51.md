@@ -1,11 +1,11 @@
 ### SB 4.24.51
 
-> श्यामश्रोण्यधिरोचिष्णु दुकूलस्वर्णमेखलम् ।
+> श्यामश्रोण्यधिरोचिष्णु दुकूलस्वर्णमेखलम् ।\
 > समचार्वङ्घ्रिजङ्घोरु निम्नजानुसुदर्शनम् ॥५१॥
 
-> śyāma-śroṇy-adhi-rociṣṇu-
-> dukūla-svarṇa-mekhalam
-> sama-cārv-aṅghri-jaṅghoru-
+> śyāma-śroṇy-adhi-rociṣṇu-\
+> dukūla-svarṇa-mekhalam\
+> sama-cārv-aṅghri-jaṅghoru-\
 > nimna-jānu-sudarśanam
 
 *śyāma*—negruzco; *śroṇi*—por debajo de la cintura; *adhi*—extra; *rociṣṇu*—agradable; *dukūla*—ropas; *svarṇa*—doradas; *mekhalam*—cinturón; *sama*—simétricos; *cāru*—hermosos; *aṅghri*—pies de loto; *jaṅgha*—pantorrillas; *ūru*—muslos; *nimna*—inferior; *jānu*—rodillas; *su-darśanam*—muy hermoso.

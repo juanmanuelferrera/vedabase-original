@@ -1,13 +1,13 @@
 ### SB 2.7.21
 
-> धन्वन्तरिश्च भगवान्स्वयमेव कीर्तिर्
-> नाम्ना नृणां पुरुरुजां रुज आशु हन्ति ।
-> यज्ञे च भागममृतायुरवावरुन्ध
+> धन्वन्तरिश्च भगवान्स्वयमेव कीर्तिर्\
+> नाम्ना नृणां पुरुरुजां रुज आशु हन्ति ।\
+> यज्ञे च भागममृतायुरवावरुन्ध\
 > आयुष्यवेदमनुशास्त्यवतीर्य लोके ॥२१॥
 
-> dhanvantariś ca bhagavān svayam eva kīrtir
-> nāmnā nṛṇāṁ puru-rujāṁ ruja āśu hanti
-> yajñe ca bhāgam amṛtāyur-avāvarundha
+> dhanvantariś ca bhagavān svayam eva kīrtir\
+> nāmnā nṛṇāṁ puru-rujāṁ ruja āśu hanti\
+> yajñe ca bhāgam amṛtāyur-avāvarundha\
 > āyuṣya-vedam anuśāsty avatīrya loke
 
 *dhanvantariḥ*—the incarnation of God named Dhanvantari; *ca*—and; *bhagavān*—the Personality of Godhead; *svayam eva*—personally Himself; *kīrtiḥ*—fame personified; *nāmnā*—by the name; *nṛṇām puru-rujām*—of the diseased living entities; *rujaḥ*—diseases; *āśu*—very soon; *hanti*—cures; *yajñe*—in the sacrifice; *ca*—also; *bhāgam*—share; *amṛta*—nectar; *āyuḥ*—duration of life; *ava*—from; *avarundhe*—obtains; *āyuṣya*—of duration of life; *vedam*—knowledge; *anuśāsti*—directs; *avatīrya*—incarnating; *loke*—in the universe.

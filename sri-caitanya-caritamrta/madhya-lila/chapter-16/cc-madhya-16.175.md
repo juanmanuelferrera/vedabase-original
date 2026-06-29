@@ -1,9 +1,9 @@
 ### CC Madhya 16.175
 
-> আপনে মহাপ্রভু তাঁর মন ফিরাইল ।
+> আপনে মহাপ্রভু তাঁর মন ফিরাইল ।\
 > দর্শন-স্মরণে যাঁর জগৎ তারিল ।।’ ॥ ১৭৫ ॥
 
-> āpane mahāprabhu tāṅra mana phirāila
+> āpane mahāprabhu tāṅra mana phirāila\
 > darśana-smaraṇe yāṅra jagat tārila'
 
 *āpane*—personally; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅra*—his; *mana*—mind; *phirāila*—changed; *darśana*—by a personal visit; *smaraṇe*—by remembrance; *yāṅra*—of whom; *jagat*—the whole world; *tārila*—He has delivered.

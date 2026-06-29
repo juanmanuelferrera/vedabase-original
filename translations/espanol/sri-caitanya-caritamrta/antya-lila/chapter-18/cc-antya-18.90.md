@@ -1,13 +1,13 @@
 ### CC Antya 18.90
 
-> যত গোপ-সুন্দরী, কৃষ্ণ তত রূপ ধরি’,
-> সবার বস্ত্র করিলা হরণে ।
-> যমুনা-জল নির্মল, অঙ্গ করে ঝলমল,
+> যত গোপ-সুন্দরী, কৃষ্ণ তত রূপ ধরি’,\
+> সবার বস্ত্র করিলা হরণে ।\
+> যমুনা-জল নির্মল, অঙ্গ করে ঝলমল,\
 > সুখে কৃষ্ণ করে দরশনে ॥৯০॥
 
-> yata gopa-sundarī, kṛṣṇa tata rūpa dhari',
-> sabāra vastra karilā haraṇe
-> yamunā-jala nirmala, aṅga kare jhalamala,
+> yata gopa-sundarī, kṛṣṇa tata rūpa dhari',\
+> sabāra vastra karilā haraṇe\
+> yamunā-jala nirmala, aṅga kare jhalamala,\
 > sukhe kṛṣṇa kare daraśane
 
 *yata*—tantas; *gopa-sundarī*—hermosas gopīs; *kṛṣṇa*—el Señor Kṛṣṇa; *tata*—otras tantas; *rūpa*—formas; *dhari'*—adoptando; *sabāra*—de todas; *vastra*—telas que las cubrían; *karilā haraṇe*—arrebató; *yamunā-jala*—el agua del Yamunā; *nirmala*—muy cristalina; *aṅga*—cuerpos; *kare jhalamala*—resplandecen; *sukhe*—dichosamente; *kṛṣṇa*—el Señor Kṛṣṇa; *kare daraśane*—contempla.

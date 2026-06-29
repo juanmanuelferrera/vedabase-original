@@ -1,11 +1,11 @@
 ### SB 7.15.80
 
-> इति दाक्षायिणीनां ते पृथग्वंशा प्रकीर्तिताः
+> इति दाक्षायिणीनां ते पृथग्वंशा प्रकीर्तिताः\
 > देवासुरमनुष्याद्या लोका यत्र चराचराः ॥८०॥
 
-> iti dākṣāyaṇīnāṁ te
-> pṛthag vaṁśāḥ prakīrtitāḥ
-> devāsura-manuṣyādyā
+> iti dākṣāyaṇīnāṁ te\
+> pṛthag vaṁśāḥ prakīrtitāḥ\
+> devāsura-manuṣyādyā\
 > lokā yatra carācarāḥ
 
 *iti*—así; *dākṣāyaṇīnām*—de las hijas de Mahārāja Dakṣa, como Aditi y Diti; *te*—a ti; *pṛthak*—por separado; *vaṁśāḥ*—las dinastías; *prakīrtitāḥ*—descritas (por mí); *deva*—los semidioses; *asura*—demonios; *manuṣya*—y seres humanos; *ādyāḥ*—y demás; *lokāḥ*—todos los planetas del universo; *yatra*—donde; *cara-acarāḥ*—entidades vivientes móviles e inmóviles.

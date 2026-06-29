@@ -1,11 +1,11 @@
 ### SB 8.9.24
 
-> देवलिङ्गप्रतिच्छन्नः स्वर्भानुर्देवसंसदि
+> देवलिङ्गप्रतिच्छन्नः स्वर्भानुर्देवसंसदि\
 > प्रविष्टः सोममपिबच्चन्द्रार्काभ्यां च सूचितः ॥२४॥
 
-> deva-liṅga-praticchannaḥ
-> svarbhānur deva-saṁsadi
-> praviṣṭaḥ somam apibac
+> deva-liṅga-praticchannaḥ\
+> svarbhānur deva-saṁsadi\
+> praviṣṭaḥ somam apibac\
 > candrārkābhyāṁ ca sūcitaḥ
 
 *deva-liṅga-praticchannaḥ*—covering himself with the dress of a demigod; *svarbhānuḥ*—Rāhu (who attacks and eclipses the sun and moon); *deva-saṁsadi*—in the group of the demigods; *praviṣṭaḥ*—having entered; *somam*—the nectar; *apibat*—drank; *candra-arkābhyām*—by both the moon and the sun; *ca*—and; *sūcitaḥ*—was pointed out.

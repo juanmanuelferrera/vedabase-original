@@ -1,11 +1,11 @@
 ### SB 7.5.3
 
-> यत्तत्र गुरुणा प्रोक्तं शुश्रुवेऽनुपपाठ च
+> यत्तत्र गुरुणा प्रोक्तं शुश्रुवेऽनुपपाठ च\
 > न साधु मनसा मेने स्वपरासद्ग्रहाश्रयम ॥३॥
 
-> yat tatra guruṇā proktaṁ
-> śuśruve 'nupapāṭha ca
-> na sādhu manasā mene
+> yat tatra guruṇā proktaṁ\
+> śuśruve 'nupapāṭha ca\
+> na sādhu manasā mene\
 > sva-parāsad-grahāśrayam
 
 *yat*—which; *tatra*—there (in the school); *guruṇā*—by the teachers; *proktam*—instructed; *śuśruve*—heard; *anupapāṭha*—recited; *ca*—and; *na*—not; *sādhu*—good; *manasā*—by the mind; *mene*—considered; *sva*—of one's own; *para*—and of others; *asat-graha*—by the bad philosophy; *āśrayam*—which was supported.

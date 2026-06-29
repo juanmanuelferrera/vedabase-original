@@ -1,9 +1,9 @@
 ### CC Adi 6.13
 
-> কোটি অংশ, কোটি শক্তি, কোটি অবতার ।
+> কোটি অংশ, কোটি শক্তি, কোটি অবতার ।\
 > এত লঞা সৃজে পুরুষ সকল সংসার ॥১৩॥
 
-> koṭi aṁśa, koṭi śakti, koṭi avatāra
+> koṭi aṁśa, koṭi śakti, koṭi avatāra\
 > eta lañā sṛje puruṣa sakala saṁsāra
 
 *koṭi aṁśa*—millones de partes y porciones; *koṭi śakti*—millones y millones de energías; *koṭi avatāra*—millones y millones de encarnaciones; *eta*—todo esto; *lañā*—tomando; *sṛje*—crea; *puruṣa*—la persona original, Mahā-Viṣṇu; *sakala saṁsāra*—todo el mundo material.

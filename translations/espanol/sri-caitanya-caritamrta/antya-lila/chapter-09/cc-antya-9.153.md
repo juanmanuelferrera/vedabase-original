@@ -1,9 +1,9 @@
 ### CC Antya 9.153
 
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।\
 > চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥১৫৩॥
 
-> śrī-rūpa-raghunātha pade yāra āśa
+> śrī-rūpa-raghunātha pade yāra āśa\
 > śrī-caitanya-caritāmṛta kahe kṛṣṇadāsa
 
 *śrī-rūpa*—Śrīla Rūpa Gosvāmī; *raghunātha*—Śrīla Raghunātha dāsa Gosvāmī; *pade*—a los pies de loto; *yāra*—cuya; *āśa*—expectativa; *caitanya-caritāmṛta*—el libro llamado Caitanya-caritāmṛta; *kahe*—describe; *kṛṣṇadāsa*—Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī.

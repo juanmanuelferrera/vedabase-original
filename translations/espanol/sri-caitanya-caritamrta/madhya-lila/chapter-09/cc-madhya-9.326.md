@@ -1,9 +1,9 @@
 ### CC Madhya 9.326
 
-> ‘গোসাঞি আইলা’ গ্রামে হইল কোলাহল ৷
+> ‘গোসাঞি আইলা’ গ্রামে হইল কোলাহল ৷\
 > প্রভুকে দেখিতে লোক আইল সকল ৷৷ ৩২৬ ৷৷ ॥৩২৬॥
 
-> 'gosāñi' āilā' grāme haila kolāhala
+> 'gosāñi' āilā' grāme haila kolāhala\
 > prabhuke dekhite loka āila sakala
 
 *gosāñi*—Śrī Caitanya Mahāprabhu; *āilā'*—ha regresado; *grāme*—en la aldea; *haila*—hubo; *kolāhala*—conmoción; *prabhuke*—al Señor Śrī Caitanya Mahāprabhu; *dekhite*—para ver; *loka*—la gente; *āila*—acudió allí; *sakala*—toda.

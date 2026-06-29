@@ -1,13 +1,13 @@
 ### CC Madhya 17.138
 
-> স্বসুখনিভৃতচেতাস্তদ্ব্যুদস্তান্যভাবো-
-> ঽপ্যজিতরুচিরলীলাকৃষ্টসারস্তদীয়ম্ ।
-> ব্যতনুত কৃপয়া যস্তত্ত্বদীপং পুরাণং
+> স্বসুখনিভৃতচেতাস্তদ্ব্যুদস্তান্যভাবো-\
+> ঽপ্যজিতরুচিরলীলাকৃষ্টসারস্তদীয়ম্ ।\
+> ব্যতনুত কৃপয়া যস্তত্ত্বদীপং পুরাণং\
 > তমখিলবৃজিনঘ্নং ব্যাসসূনুং নতোঽস্মি ॥১৩৮॥
 
-> svasukha-nibhṛta-cetās tad vyudastānya-bhāvo
-> 'py ajita-rucira-līlākṛṣṭa-sāras tadīyam
-> vyatanuta kṛpayā yas tattva-dīpaṁ puraṇaṁ
+> svasukha-nibhṛta-cetās tad vyudastānya-bhāvo\
+> 'py ajita-rucira-līlākṛṣṭa-sāras tadīyam\
+> vyatanuta kṛpayā yas tattva-dīpaṁ puraṇaṁ\
 > tam akhila-vṛjina-ghnaṁ vyāsa-sūnuṁ nato 'smi
 
 *sva-sukha*—in happiness of the self; *nibhṛta*—solitary; *cetāḥ*—whose consciousness; *tat*—because of that; *vyudasta*—given up; *anya-bhāvaḥ*—any other type of consciousness; *api*—although; *ajita*—of Śrī Kṛṣṇa; *rucira*—pleasing; *līlā*—by the pastimes; *ākṛṣṭa*—attracted; *sāraḥ*—whose heart; *tadīyam*—consisting of the activities of the Lord; *vyatanuta*—spread, manifested; *kṛpayā*—mercifully; *yaḥ*—who; *tattva-dīpam*—the bright light of the Absolute Truth; *purāṇam*—the *Purāṇa* (*Śrīmad-Bhāgavatam*); *tam*—unto him; *akhila-vṛjina-ghnam*—defeating everything inauspicious; *vyāsa-sūnum*—the son of Vyāsadeva; *nataḥ asmi*—I offer my obeisances.

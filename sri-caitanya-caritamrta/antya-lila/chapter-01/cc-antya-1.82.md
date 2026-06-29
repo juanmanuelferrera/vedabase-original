@@ -1,9 +1,9 @@
 ### CC Antya 1.82
 
-> শ্লোক পড়ি’ প্রভু সুখে প্রেমাবিষ্ট হৈলা ।
+> শ্লোক পড়ি’ প্রভু সুখে প্রেমাবিষ্ট হৈলা ।\
 > হেনকালে রূপ-গোসাঞি স্নান করি’ আইলা ॥৮২॥
 
-> śloka paḍi' prabhu sukhe premāviṣṭa hailā
+> śloka paḍi' prabhu sukhe premāviṣṭa hailā\
 > hena-kāle rūpa-gosāñi snāna kari' āilā
 
 *śloka paḍi'*—reading this verse; *prabhu*—Śrī Caitanya Mahāprabhu; *sukhe*—in great happiness; *prema-āviṣṭa hailā*—became overwhelmed by ecstatic love; *hena-kāle*—at that time; *rūpa-gosāñi*—Śrīla Rūpa Gosvāmī; *snāna kari'*—after taking his bath; *āilā*—came back.

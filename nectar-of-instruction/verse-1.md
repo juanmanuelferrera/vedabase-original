@@ -1,13 +1,13 @@
 ### 1
 
-> वाचो वेगं मनसः क्रोधवेगं
-> जिह्वावेगमुदरोपस्थवेगम् ।
-> एतान् वेगन् यो विषहेत धीरः
+> वाचो वेगं मनसः क्रोधवेगं\
+> जिह्वावेगमुदरोपस्थवेगम् ।\
+> एतान् वेगन् यो विषहेत धीरः\
 > सर्वामपीमं पृथिवीं स शिष्यात् ॥१॥
 
-> vāco vegaṁ manasaḥ krodha-vegaṁ
-> jihvā-vegam udaropastha-vegam
-> etān vegān yo viṣaheta dhīraḥ
+> vāco vegaṁ manasaḥ krodha-vegaṁ\
+> jihvā-vegam udaropastha-vegam\
+> etān vegān yo viṣaheta dhīraḥ\
 > sarvām apīmāṁ pṛthivīṁ sa śiṣyāt
 
 *vācaḥ*—of speech; *vegam*—urge; *manasaḥ*—of the mind; *krodha*—of anger; *vegam*—urge; *jihvā*—of the tongue; *vegam*—urge; *udara-upastha*—of the belly and genitals; *vegam*—urge; *etān*—these; *vegān*—urges; *yaḥ*—whoever; *viṣaheta*—can tolerate; *dhīraḥ*—sober; *sarvām*—all; *api*—certainly; *imām*—this; *pṛthivīm*—world; *saḥ*—that personality; *śiṣyāt*—can make disciples.

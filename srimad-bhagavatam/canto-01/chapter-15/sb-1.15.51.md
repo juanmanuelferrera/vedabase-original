@@ -1,11 +1,11 @@
 ### SB 1.15.51
 
-> यः श्रद्धयैतद्भगवत्प्रियाणां पाण्डोः सुतानामिति सम्प्रयाणम् ।
+> यः श्रद्धयैतद्भगवत्प्रियाणां पाण्डोः सुतानामिति सम्प्रयाणम् ।\
 > शृणोत्यलं स्वस्त्ययनं पवित्रं लब्ध्वा हरौ भक्तिमुपैति सिद्धिम् ॥५१॥
 
-> yaḥ śraddhayaitad bhagavat-priyāṇāṁ
-> pāṇḍoḥ sutānām iti samprayāṇam
-> śṛṇoty alaṁ svastyayanaṁ pavitraṁ
+> yaḥ śraddhayaitad bhagavat-priyāṇāṁ\
+> pāṇḍoḥ sutānām iti samprayāṇam\
+> śṛṇoty alaṁ svastyayanaṁ pavitraṁ\
 > labdhvā harau bhaktim upaiti siddhim
 
 *yaḥ*—anyone who; *śraddhayā*—with devotion; *etat*—this; *bhagavat-priyāṇām*—of those who are very dear to the Personality of Godhead; *pāṇḍoḥ*—of Pāṇḍu; *sutānām*—of the sons; *iti*—thus; *samprayāṇam*—departure for the ultimate goal; *śṛṇoti*—hears; *alam*—only; *svastyayanam*—good fortune; *pavitram*—perfectly pure; *labdhvā*—by obtaining; *harau*—unto the Supreme Lord; *bhaktim*—devotional service; *upaiti*—gains; *siddhim*—perfection.

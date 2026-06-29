@@ -1,11 +1,11 @@
 ### SB 7.4.19
 
-> स इत्थं निर्जितककुबेकराड्विषयान्प्रियान
+> स इत्थं निर्जितककुबेकराड्विषयान्प्रियान\
 > यथोपजोषं भुञ्जानो नातृप्यदजितेन्द्रियः ॥१९॥
 
-> sa itthaṁ nirjita-kakub
-> eka-rāḍ viṣayān priyān
-> yathopajoṣaṁ bhuñjāno
+> sa itthaṁ nirjita-kakub\
+> eka-rāḍ viṣayān priyān\
+> yathopajoṣaṁ bhuñjāno\
 > nātṛpyad ajitendriyaḥ
 
 *saḥ*—he (Hiraṇyakaśipu); *ittham*—thus; *nirjita*—conquered; *kakup*—all directions within the universe; *eka-rāṭ*—the one emperor of the whole universe; *viṣayān*—material sense objects; *priyān*—very pleasing; *yathā-upajoṣam*—as much as possible; *bhuñjānaḥ*—enjoying; *na*—did not; *atṛpyat*—was satisfied; *ajita-indriyaḥ*—being unable to control the senses.

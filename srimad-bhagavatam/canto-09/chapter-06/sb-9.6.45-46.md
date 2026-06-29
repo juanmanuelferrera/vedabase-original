@@ -1,18 +1,18 @@
 ### SB 9.6.45-46
 
-> स बह्वृचस्ताभिरपारणीय तपःश्रियानर्घ्यपरिच्छदेषु
-> गृहेषु नानोपवनामलाम्भः सरःसु सौगन्धिककाननेषु ॥४५॥
-> महार्हशय्यासनवस्त्रभूषण स्नानानुलेपाभ्यवहारमाल्यकैः
+> स बह्वृचस्ताभिरपारणीय तपःश्रियानर्घ्यपरिच्छदेषु\
+> गृहेषु नानोपवनामलाम्भः सरःसु सौगन्धिककाननेषु ॥४५॥\
+> महार्हशय्यासनवस्त्रभूषण स्नानानुलेपाभ्यवहारमाल्यकैः\
 > स्वलङ्कृतस्त्रीपुरुषेषु नित्यदा रेमेऽनुगायद्द्विजभृङ्गवन्दिषु ॥४६॥
 
-> sa bahv-ṛcas tābhir apāraṇīya-
-> tapaḥ-śriyānarghya-paricchadeṣu
-> gṛheṣu nānopavanāmalāmbhaḥ-
+> sa bahv-ṛcas tābhir apāraṇīya-\
+> tapaḥ-śriyānarghya-paricchadeṣu\
+> gṛheṣu nānopavanāmalāmbhaḥ-\
 > saraḥsu saugandhika-kānaneṣu
 
-> mahārha-śayyāsana-vastra-bhūṣaṇa-
-> snānānulepābhyavahāra-mālyakaiḥ
-> svalaṅkṛta-strī-puruṣeṣu nityadā
+> mahārha-śayyāsana-vastra-bhūṣaṇa-\
+> snānānulepābhyavahāra-mālyakaiḥ\
+> svalaṅkṛta-strī-puruṣeṣu nityadā\
 > reme 'nugāyad-dvija-bhṛṅga-vandiṣu
 
 *saḥ*—he, Saubhari Ṛṣi; *bahu-ṛcaḥ*—quite expert in utilizing Vedic *mantras*; *tābhiḥ*—with his wives; *apāraṇīya*—unlimited; *tapaḥ*—the result of austerity; *śriyā*—by opulences; *anarghya*—paraphernalia for enjoyment; *paricchadeṣu*—equipped with different garments and dresses; *gṛheṣu*—in the house and rooms; *nānā*—varieties of; *upavana*—parks; *amala*—clean; *ambhaḥ*—water; *saraḥsu*—in lakes; *saugandhika*—very fragrant; *kānaneṣu*—in gardens; *mahā-arha*—very costly; *śayyā*—bedding; *āsana*—sitting places; *vastra*—clothing; *bhūṣaṇa*—ornaments; *snāna*—bathing places; *anulepa*—sandalwood; *abhyavahāra*—palatable dishes; *mālyakaiḥ*—and with garlands; *su-alaṅkṛta*—properly dressed and decorated; *strī*—women; *puruṣeṣu*—with men also; *nityadā*—constantly; *reme*—enjoyed; *anugāyat*—followed by the singing of; *dvija*—birds; *bhṛṅga*—bumblebees; *vandiṣu*—and professional singers.

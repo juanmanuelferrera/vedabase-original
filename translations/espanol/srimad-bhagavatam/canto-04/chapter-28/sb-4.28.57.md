@@ -1,11 +1,11 @@
 ### SB 4.28.57
 
-> पञ्चेन्द्रियार्था आरामा द्वारः प्राणा नव प्रभो ।
+> पञ्चेन्द्रियार्था आरामा द्वारः प्राणा नव प्रभो ।\
 > तेजोऽबन्नानि कोष्ठानि कुलमिन्द्रियसङ्ग्रहः ॥५७॥
 
-> pañcendriyārthā ārāmā
-> dvāraḥ prāṇā nava prabho
-> tejo-'b-annāni koṣṭhāni
+> pañcendriyārthā ārāmā\
+> dvāraḥ prāṇā nava prabho\
+> tejo-'b-annāni koṣṭhāni\
 > kulam indriya-saṅgrahaḥ
 
 *pañca*—cinco; *indriya-arthāḥ*—objetos de los sentidos; *ārāmāḥ*—los jardines; *dvāraḥ*—puertas; *prāṇāḥ*—aperturas de los sentidos; *nava*—nueve; *prabho*—¡oh, rey!; *tejaḥ-ap*—fuego, agua; *annāni*—cereales o tierra; *koṣṭhāni*—viviendas; *kulam*—familias; *indriya-saṅgrahaḥ*—cinco sentidos y la mente.

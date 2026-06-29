@@ -1,11 +1,11 @@
 ### Bg 9.5
 
-> न च मत्स्थानि भूतानि पश्य मे योगमैश्वरम् ।
+> न च मत्स्थानि भूतानि पश्य मे योगमैश्वरम् ।\
 > भूतभृन्न च भूतस्थो ममात्मा भूतभावनः ॥५॥
 
-> na ca mat-sthāni bhūtāni
-> paśya me yogam aiśvaram
-> bhūta-bhṛn na ca bhūta-stho
+> na ca mat-sthāni bhūtāni\
+> paśya me yogam aiśvaram\
+> bhūta-bhṛn na ca bhūta-stho\
 > mamātmā bhūta-bhāvanaḥ
 
 *na*—never; *ca*—also; *mat-sthāni*—situated in Me; *bhūtāni*—all creation; *paśya*—just see; *me*—My; *yogam aiśvaram*—inconceivable mystic power; *bhūta-bhṛt*—maintainer of all living entities; *na*—never; *ca*—also; *bhūta-sthaḥ*—in the cosmic manifestation; *mama*—My; *ātmā*—Self; *bhūta-bhāvanaḥ*—is the source of all manifestations.

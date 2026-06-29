@@ -1,9 +1,9 @@
 ### CC Adi 6.48
 
-> নিত্যানন্দ অবধূত সবাতে আগল ।
+> নিত্যানন্দ অবধূত সবাতে আগল ।\
 > চৈতন্যের দাস্য-প্রেমে হইলা পাগল ॥৪৮॥
 
-> nityānanda avadhūta sabāte āgala
+> nityānanda avadhūta sabāte āgala\
 > caitanyera dāsya-preme ha-ilā pāgala
 
 *nityānanda avadhūta*—el mendicante Señor Nityānanda; *sabāte*—entre todos; *āgala*—el primero; *caitanyera dāsya-preme*—en el amor extático emocional de ser un sirviente de Śrī Caitanya Mahāprabhu; *ha-ilā pāgala*—enloqueció.

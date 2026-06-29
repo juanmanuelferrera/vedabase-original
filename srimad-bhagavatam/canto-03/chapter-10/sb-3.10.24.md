@@ -1,11 +1,11 @@
 ### SB 3.10.24
 
-> श्वा सृगालो वृको व्याघ्रो मार्जारः शशशल्लकौ ।
+> श्वा सृगालो वृको व्याघ्रो मार्जारः शशशल्लकौ ।\
 > सिंहः कपिर्गजः कूर्मो गोधा च मकरादयः ॥२४॥
 
-> śvā sṛgālo vṛko vyāghro
-> mārjāraḥ śaśa-śallakau
-> siṁhaḥ kapir gajaḥ kūrmo
+> śvā sṛgālo vṛko vyāghro\
+> mārjāraḥ śaśa-śallakau\
+> siṁhaḥ kapir gajaḥ kūrmo\
 > godhā ca makarādayaḥ
 
 *śvā*—dog; *sṛgālaḥ*—jackal; *vṛkaḥ*—fox; *vyāghraḥ*—tiger; *mārjāraḥ*—cat; *śaśa*—rabbit; *śallakau*—*sajāru* (with thorns on the body); *siṁhaḥ*—lion; *kapiḥ*—monkey; *gajaḥ*—elephant; *kūrmaḥ*—tortoise; *godhā*—*gosāpa* (snake with four legs); *ca*—also; *makara-ādayaḥ*—the alligator and others.

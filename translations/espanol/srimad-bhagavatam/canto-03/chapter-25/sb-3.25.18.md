@@ -1,11 +1,11 @@
 ### SB 3.25.18
 
-> ज्ञानवैराग्ययुक्तेन भक्तियुक्तेन चात्मना ।
+> ज्ञानवैराग्ययुक्तेन भक्तियुक्तेन चात्मना ।\
 > परिपश्यत्युदासीनं प्रकृतिं च हतौजसम् ॥१८॥
 
-> jñāna-vairāgya-yuktena
-> bhakti-yuktena cātmanā
-> paripaśyaty udāsīnaṁ
+> jñāna-vairāgya-yuktena\
+> bhakti-yuktena cātmanā\
+> paripaśyaty udāsīnaṁ\
 > prakṛtiṁ ca hataujasam
 
 *jñāna*—conocimiento; *vairāgya*—renunciación; *yuktena*—equipado con; *bhakti*—servicio devocional; *yuktena*—equipado con; *ca*—y; *ātmanā*—por medio de la mente; *paripaśyati*—se ve; *udāsīnam*—indiferente; *prakṛtim*—existencia material; *ca*—y; *hata-ojasam*—con una fuerza menor.

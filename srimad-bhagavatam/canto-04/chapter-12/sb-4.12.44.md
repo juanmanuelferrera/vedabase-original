@@ -1,13 +1,13 @@
 ### SB 4.12.44
 
-> मैत्रेय उवाच
-> एतत्तेऽभिहितं सर्वं यत्पृष्टोऽहमिह त्वया ।
+> मैत्रेय उवाच\
+> एतत्तेऽभिहितं सर्वं यत्पृष्टोऽहमिह त्वया ।\
 > ध्रुवस्योद्दामयशसश्चरितं सम्मतं सताम् ॥४४॥
 
-> maitreya uvāca
-> etat te 'bhihitaṁ sarvaṁ
-> yat pṛṣṭo 'ham iha tvayā
-> dhruvasyoddāma-yaśasaś
+> maitreya uvāca\
+> etat te 'bhihitaṁ sarvaṁ\
+> yat pṛṣṭo 'ham iha tvayā\
+> dhruvasyoddāma-yaśasaś\
 > caritaṁ sammataṁ satām
 
 *maitreyaḥ uvāca*—the great sage Maitreya said; *etat*—this; *te*—unto you; *abhihitam*—described; *sarvam*—everything; *yat*—what; *pṛṣṭaḥ aham*—I was asked; *iha*—here; *tvayā*—by you; *dhruvasya*—of Dhruva Mahārāja; *uddāma*—greatly uplifting; *yaśasaḥ*—whose reputation; *caritam*—character; *sammatam*—approved; *satām*—by great devotees.

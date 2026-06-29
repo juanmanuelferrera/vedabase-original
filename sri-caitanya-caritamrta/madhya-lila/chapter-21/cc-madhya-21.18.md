@@ -1,9 +1,9 @@
 ### CC Madhya 21.18
 
-> এমত অন্যত্র নাহি শুনিয়ে অদ্ভুত ।
+> এমত অন্যত্র নাহি শুনিয়ে অদ্ভুত ।\
 > যাহার শ্রবণে চিত্ত হয় অবধূত ॥১৮॥
 
-> e-mata anyatra nāhi śuniye adbhuta
+> e-mata anyatra nāhi śuniye adbhuta\
 > yāhāra śravaṇe citta haya avadhūta
 
 *e-mata*—like this; *anyatra*—anywhere else; *nāhi*—not; *śuniye*—I hear; *adbhuta*—wonderful event; *yāhāra*—of which; *śravaṇe*—by hearing; *citta*—consciousness; *haya*—becomes; *avadhūta*—agitated and cleansed.

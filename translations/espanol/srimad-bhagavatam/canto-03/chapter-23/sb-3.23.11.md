@@ -1,13 +1,13 @@
 ### SB 3.23.11
 
-> तत्रेतिकृत्यमुपशिक्ष यथोपदेशं
-> येनैष मे कर्शितोऽतिरिरंसयात्मा ।
-> सिद्ध्येत ते कृतमनोभवधर्षिताया
+> तत्रेतिकृत्यमुपशिक्ष यथोपदेशं\
+> येनैष मे कर्शितोऽतिरिरंसयात्मा ।\
+> सिद्ध्येत ते कृतमनोभवधर्षिताया\
 > दीनस्तदीश भवनं सदृशं विचक्ष्व ॥११॥
 
-> tatreti-kṛtyam upaśikṣa yathopadeśaṁ
-> yenaiṣa me karśito 'tiriraṁsayātmā
-> siddhyeta te kṛta-manobhava-dharṣitāyā
+> tatreti-kṛtyam upaśikṣa yathopadeśaṁ\
+> yenaiṣa me karśito 'tiriraṁsayātmā\
+> siddhyeta te kṛta-manobhava-dharṣitāyā\
 > dīnas tad īśa bhavanaṁ sadṛśaṁ vicakṣva
 
 *tatra*—en eso; *iti-kṛtyam*—lo que sea necesario hacer; *upaśikṣa*—ejecuta; *yathā*—de acuerdo con; *upadeśam*—instrucción de las Escrituras; *yena*—por la cual; *eṣaḥ*—este; *me*—mi; *karśitaḥ*—desmejorado; *atiriraṁ-sayā*—por no satisfacer la intensa pasión; *ātmā*—cuerpo; *siddhyeta*—pueda volver a ser adecuado; *te*—para ti; *kṛta*—excitada; *manaḥ-bhava*—con emoción; *dharṣitāyāḥ*—que estoy agitada; *dīnaḥ*—pobre; *tat*—por lo tanto; *īśa*—¡oh, mi querido señor!; *bhavanam*—casa; *sadṛśam*—adecuada; *vicakṣva*—piensa por favor en.

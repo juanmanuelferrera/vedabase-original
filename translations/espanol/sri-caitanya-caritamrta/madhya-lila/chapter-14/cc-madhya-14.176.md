@@ -1,9 +1,9 @@
 ### CC Madhya 14.176
 
-> গর্ব, অভিলাষ, ভয়, শুষ্করুদিত ।
+> গর্ব, অভিলাষ, ভয়, শুষ্করুদিত ।\
 > ক্রোধ, অসূয়া হয়, আর মন্দস্মিত ॥১৭৬॥
 
-> garva, abhilāṣa, bha ya, śuṣka-rudita
+> garva, abhilāṣa, bha ya, śuṣka-rudita\
 > krodha, asūyā haya, āra manda-smita
 
 *garva*—orgullo; *abhilāṣa*—ambición; *bhaya*—temor; *śuṣka-rudita*—llanto seco y artificial; *krodha*—ira; *asūyā*—envidia; *haya*—hay; *āra*—también; *manda-smita*—sonrisa suave.

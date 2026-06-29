@@ -1,13 +1,13 @@
 ### SB 3.14.51
 
-> मैत्रेय उवाच
-> श्रुत्वा भागवतं पौत्रममोदत दितिर्भृशम् ।
+> मैत्रेय उवाच\
+> श्रुत्वा भागवतं पौत्रममोदत दितिर्भृशम् ।\
 > पुत्रयोश्च वधं कृष्णाद्विदित्वासीन्महामनाः ॥५१॥
 
-> maitreya uvāca
-> śrutvā bhāgavataṁ pautram
-> amodata ditir bhṛśam
-> putrayoś ca vadhaṁ kṛṣṇād
+> maitreya uvāca\
+> śrutvā bhāgavataṁ pautram\
+> amodata ditir bhṛśam\
+> putrayoś ca vadhaṁ kṛṣṇād\
 > viditvāsīn mahā-manāḥ
 
 *maitreyaḥ uvāca*—el sabio Maitreya dijo; *śrutvā*—al oír; *bhāgavatam*—ser un gran devoto del Señor; *pautram*—nieto; *amodata*—sintió placer; *ditiḥ*—Diti; *bhṛśam*—en gran medida; *putrayoḥ*—de dos hijos; *ca*—también; *vadham*—la muerte; *kṛṣṇāt*—por Kṛṣṇa; *viditvā*—sabiendo esto; *āsīt*—pasó a estar; *mahā-manāḥ*—con gran placer en la mente.

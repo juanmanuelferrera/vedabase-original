@@ -1,13 +1,13 @@
 ### SB 3.15.43
 
-> तस्यारविन्दनयनस्य पदारविन्द
-> किञ्जल्कमिश्रतुलसीमकरन्दवायुः ।
-> अन्तर्गतः स्वविवरेण चकार तेषां
+> तस्यारविन्दनयनस्य पदारविन्द\
+> किञ्जल्कमिश्रतुलसीमकरन्दवायुः ।\
+> अन्तर्गतः स्वविवरेण चकार तेषां\
 > सङ्क्षोभमक्षरजुषामपि चित्ततन्वोः ॥४३॥
 
-> tasyāravinda-nayanasya padāravinda-
-> kiñjalka-miśra-tulasī-makaranda-vāyuḥ
-> antar-gataḥ sva-vivareṇa cakāra teṣāṁ
+> tasyāravinda-nayanasya padāravinda-\
+> kiñjalka-miśra-tulasī-makaranda-vāyuḥ\
+> antar-gataḥ sva-vivareṇa cakāra teṣāṁ\
 > saṅkṣobham akṣara-juṣām api citta-tanvoḥ
 
 *tasya*—de Él; *aravinda-nayanasya*—del Señor de ojos de loto; *pada-aravinda*—de los pies de loto; *kiñjalka*—con los dedos de los pies; *miśra*—mezcladas; *tulasī*—las hojas de *tulasī*; *makaranda*—fragancia; *vāyuḥ*—brisa; *antaḥ-gataḥ*—penetró en; *sva-vivareṇa*—a través de las ventanas de la nariz; *cakāra*—hizo; *teṣām*—de los Kumāras; *saṅkṣobham*—agitación por cambio; *akṣara-juṣām*—apegados a la comprensión impersonal del Brahman; *api*—a pesar de que; *citta-tanvoḥ*—tanto en el cuerpo como en la mente.

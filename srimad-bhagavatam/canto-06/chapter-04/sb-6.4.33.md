@@ -1,11 +1,11 @@
 ### SB 6.4.33
 
-> योऽनुग्रहार्थं भजतां पादमूलमनामरूपो भगवाननन्तः
+> योऽनुग्रहार्थं भजतां पादमूलमनामरूपो भगवाननन्तः\
 > नामानि रूपाणि च जन्मकर्मभिर्भेजे स मह्यं परमः प्रसीदतु ॥३३॥
 
-> yo 'nugrahārthaṁ bhajatāṁ pāda-mūlam
-> anāma-rūpo bhagavān anantaḥ
-> nāmāni rūpāṇi ca janma-karmabhir
+> yo 'nugrahārthaṁ bhajatāṁ pāda-mūlam\
+> anāma-rūpo bhagavān anantaḥ\
+> nāmāni rūpāṇi ca janma-karmabhir\
 > bheje sa mahyaṁ paramaḥ prasīdatu
 
 *yaḥ*—who (the Supreme Personality of Godhead); *anugraha-artham*—to show His causeless mercy; *bhajatām*—to the devotees who always render devotional service; *pāda-mūlam*—to His transcendental lotus feet; *anāma*—with no material name; *rūpaḥ*—or material form; *bhagavān*—the Supreme Personality of Godhead; *anantaḥ*—unlimited, all-pervading and eternally existing; *nāmāni*—transcendental holy names; *rūpāṇi*—His transcendental forms; *ca*—also; *janma-karmabhiḥ*—with His transcendental birth and activities; *bheje*—manifests; *saḥ*—He; *mahyam*—unto me; *paramaḥ*—the Supreme; *prasīdatu*—may He be merciful.

@@ -1,9 +1,9 @@
 ### CC Antya 11.23
 
-> প্রভু কহে, — ‘কোন্ ব্যাধি, কহ ত’ নির্ণয় ?’
+> প্রভু কহে, — ‘কোন্ ব্যাধি, কহ ত’ নির্ণয় ?’\
 > তেঁহো কহে, — ‘সংখ্যা-কীর্তন না পূরয়’ ॥২৩॥
 
-> prabhu kahe,--'kon vyādhi, kaha ta' nirṇaya?'
+> prabhu kahe,--'kon vyādhi, kaha ta' nirṇaya?'\
 > teṅho kahe,--'saṅkhyā-kīrtana nā pūraya'
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *kon vyādhi*—qué enfermedad; *kaha ta' nirṇaya*—¿puedes determinar?; *teṅho kahe*—él dijo; *saṅkhyā-kīrtana*—cantidad fija de canto; *nā pūraya*—no se ha completado.

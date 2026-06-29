@@ -1,18 +1,18 @@
 ### SB 7.5.39-40
 
-> नैरृतास्ते समादिष्टा भर्त्रा वै शूलपाणयः
-> तिग्मदंष्ट्रकरालास्यास्ताम्रश्मश्रुशिरोरुहाः ॥३९॥
-> नदन्तो भैरवं नादं छिन्धि भिन्धीति वादिनः
+> नैरृतास्ते समादिष्टा भर्त्रा वै शूलपाणयः\
+> तिग्मदंष्ट्रकरालास्यास्ताम्रश्मश्रुशिरोरुहाः ॥३९॥\
+> नदन्तो भैरवं नादं छिन्धि भिन्धीति वादिनः\
 > आसीनं चाहनन्शूलैः प्रह्रादं सर्वमर्मसु ॥४०॥
 
-> nairṛtās te samādiṣṭā
-> bhartrā vai śūla-pāṇayaḥ
-> tigma-daṁṣṭra-karālāsyās
+> nairṛtās te samādiṣṭā\
+> bhartrā vai śūla-pāṇayaḥ\
+> tigma-daṁṣṭra-karālāsyās\
 > tāmra-śmaśru-śiroruhāḥ
 
-> nadanto bhairavaṁ nādaṁ
-> chindhi bhindhīti vādinaḥ
-> āsīnaṁ cāhanañ śūlaiḥ
+> nadanto bhairavaṁ nādaṁ\
+> chindhi bhindhīti vādinaḥ\
+> āsīnaṁ cāhanañ śūlaiḥ\
 > prahrādaṁ sarva-marmasu
 
 *nairṛtāḥ*—the demons; *te*—they; *samādiṣṭāḥ*—being fully advised; *bhartrā*—by their master; *vai*—indeed; *śūla-pāṇayaḥ*—having tridents in their hands; *tigma*—very sharp; *daṁṣṭra*—teeth; *karāla*—and fearful; *āsyāḥ*—faces; *tāmra-śmaśru*—coppery mustaches; *śiroruhāḥ*—and hair on the head; *nadantaḥ*—vibrating; *bhairavam*—fearful; *nādam*—sound; *chindhi*—chop; *bhindhi*—divide into small parts; *iti*—thus; *vādinaḥ*—speaking; *āsīnam*—who was sitting silently; *ca*—and; *ahanan*—attacked; *śūlaiḥ*—with their tridents; *prahrādam*—Prahlāda Mahārāja; *sarva-marmasu*—on the tender parts of the body.

@@ -1,11 +1,11 @@
 ### SB 6.18.36
 
-> सोऽहं त्वयार्चितो भद्रे ईदृग्भावेन भक्तितः
+> सोऽहं त्वयार्चितो भद्रे ईदृग्भावेन भक्तितः\
 > तं ते सम्पादये काममसतीनां सुदुर्लभम ॥३६॥
 
-> so 'haṁ tvayārcito bhadre
-> īdṛg-bhāvena bhaktitaḥ
-> taṁ te sampādaye kāmam
+> so 'haṁ tvayārcito bhadre\
+> īdṛg-bhāvena bhaktitaḥ\
+> taṁ te sampādaye kāmam\
 > asatīnāṁ sudurlabham
 
 *saḥ*—esa persona; *aham*—yo; *tvayā*—por ti; *arcitaḥ*—adorada; *bhadre*—¡oh, amable mujer!; *īdṛk-bhāvena*—de esa manera; *bhaktitaḥ*—con devoción; *tam*—a esa; *te*—tuyo; *sampādaye*—satisfaré; *kāmam*—deseo; *asatīnām*—para mujeres poco castas; *su-durlabham*—que no se puede obtener.

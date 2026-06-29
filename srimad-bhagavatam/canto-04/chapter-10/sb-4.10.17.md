@@ -1,11 +1,11 @@
 ### SB 4.10.17
 
-> तस्य ते चापनिर्मुक्ता भित्त्वा वर्माणि रक्षसाम् ।
+> तस्य ते चापनिर्मुक्ता भित्त्वा वर्माणि रक्षसाम् ।\
 > कायानाविविशुस्तिग्मा गिरीनशनयो यथा ॥१७॥
 
-> tasya te cāpa-nirmuktā
-> bhittvā varmāṇi rakṣasām
-> kāyān āviviśus tigmā
+> tasya te cāpa-nirmuktā\
+> bhittvā varmāṇi rakṣasām\
+> kāyān āviviśus tigmā\
 > girīn aśanayo yathā
 
 *tasya*—of Dhruva; *te*—those arrows; *cāpa*—from the bow; *nirmuktāḥ*—released; *bhittvā*—having pierced; *varmāṇi*—shields; *rakṣasām*—of the demons; *kāyān*—bodies; *āviviśuḥ*—entered; *tigmāḥ*—sharp; *girīn*—mountains; *aśanayaḥ*—thunderbolts; *yathā*—just like.

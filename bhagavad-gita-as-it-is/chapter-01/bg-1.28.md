@@ -1,13 +1,13 @@
 ### Bg 1.28
 
-> अर्जुन उवाच ।
-> दृष्ट्वेमं स्वजनं कृष्ण युयुत्सुं समुपस्थितम् ।
+> अर्जुन उवाच ।\
+> दृष्ट्वेमं स्वजनं कृष्ण युयुत्सुं समुपस्थितम् ।\
 > सीदन्ति मम गात्राणि मुखं च परिशुष्यति ॥२८॥
 
-> arjuna uvāca
-> dṛṣṭvemaṁ sva-janaṁ kṛṣṇa
-> yuyutsuṁ samupasthitam
-> sīdanti mama gātrāṇi
+> arjuna uvāca\
+> dṛṣṭvemaṁ sva-janaṁ kṛṣṇa\
+> yuyutsuṁ samupasthitam\
+> sīdanti mama gātrāṇi\
 > mukhaṁ ca pariśuṣyati
 
 *arjunaḥ*—Arjuna; *uvāca*—said; *dṛṣṭvā*—after seeing; *imam*—all these; *svajanam*—kinsmen; *kṛṣṇa*—O Kṛṣṇa; *yuyutsum*—all in fighting spirit; *samupasthitam*—all present; *sīdanti*—quivering; *mama*—my; *gātrāṇi*—limbs of the body; *mukham*—mouth; *ca*—also; *pariśuṣyati*—drying up.

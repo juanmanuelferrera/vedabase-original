@@ -1,9 +1,9 @@
 ### CC Madhya 24.353
 
-> ‘কৃষ্ণপ্রেম’, ‘ভক্তিরস’, ‘ভক্তির সিদ্ধান্ত’ ।
+> ‘কৃষ্ণপ্রেম’, ‘ভক্তিরস’, ‘ভক্তির সিদ্ধান্ত’ ।\
 > ইহার শ্রবণে ভক্ত জানেন সব অন্ত ॥৩৫৩॥
 
-> 'kṛṣṇa-prema', 'bhakti-rasa', 'bhaktira siddhānta'
+> 'kṛṣṇa-prema', 'bhakti-rasa', 'bhaktira siddhānta'\
 > ihāra śravaṇe bhakta jānena saba anta
 
 *kṛṣṇa-prema*—love of Godhead; *bhakti-rasa*—the mellows of devotional service; *bhaktira siddhānta*—the conclusions of devotional service; *ihāra śravaṇe*—by hearing this chapter; *bhakta*—a devotee; *jānena*—knows; *saba*—all; *anta*—limits.

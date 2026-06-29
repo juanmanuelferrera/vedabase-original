@@ -1,11 +1,11 @@
 ### SB 8.16.9
 
-> यत्पूजया कामदुघान्याति लोकान्गृहान्वितः
+> यत्पूजया कामदुघान्याति लोकान्गृहान्वितः\
 > ब्राह्मणोऽग्निश्च वै विष्णोः सर्वदेवात्मनो मुखम ॥९॥
 
-> yat-pūjayā kāma-dughān
-> yāti lokān gṛhānvitaḥ
-> brāhmaṇo 'gniś ca vai viṣṇoḥ
+> yat-pūjayā kāma-dughān\
+> yāti lokān gṛhānvitaḥ\
+> brāhmaṇo 'gniś ca vai viṣṇoḥ\
 > sarva-devātmano mukham
 
 *yat-pūjayā*—por adorar al fuego y a los *brāhmaṇas*; *kāma-dughān*—que satisfacen todos los deseos; *yāti*—la persona va; *lokān*—destinada al sistema planetario superior; *gṛha-anvitaḥ*—una persona apegada a la vida familiar; *brāhmaṇaḥ*—los*brāhmaṇas*; *agniḥ ca*—y el fuego; *vai*—en verdad; *viṣṇoḥ*—del Señor Viṣṇu; *sarva-deva-ātmanaḥ*—el alma de todos los semidioses; *mukham*—la boca.

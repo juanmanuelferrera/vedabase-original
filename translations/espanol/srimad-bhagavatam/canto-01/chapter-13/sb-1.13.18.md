@@ -1,11 +1,11 @@
 ### SB 1.13.18
 
-> विदुरस्तदभिप्रेत्य धृतराष्ट्रमभाषत ।
+> विदुरस्तदभिप्रेत्य धृतराष्ट्रमभाषत ।\
 > राजन्निर्गम्यतां शीघ्रं पश्येदं भयमागतम् ॥१८॥
 
-> viduras tad abhipretya
-> dhṛtarāṣṭram abhāṣata
-> rājan nirgamyatāṁ śīghraṁ
+> viduras tad abhipretya\
+> dhṛtarāṣṭram abhāṣata\
+> rājan nirgamyatāṁ śīghraṁ\
 > paśyedaṁ bhayam āgatam
 
 *viduraḥ*—Mahātmā Vidura; *tat*—eso; *abhipretya*—sabiéndolo bien; *dhṛtarāṣṭram*—a Dhṛtarāṣṭra; *abhāṣata*—dijo; *rājan*—¡oh, rey!; *nirgamyatām*—por favor, sal de inmediato; *śīghram*—sin la menor demora; *paśya*—tan solo fíjate; *idam*—esto; *bhayam*—temor; *āgatam*—ya llegó.

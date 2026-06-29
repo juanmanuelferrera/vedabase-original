@@ -1,9 +1,9 @@
 ### CC Antya 4.185
 
-> আপনারে হয় মোর অমান্য-সমান ।
+> আপনারে হয় মোর অমান্য-সমান ।\
 > তোমা-সবারে করোঁ মুঞি বালক-অভিমান ॥১৮৫॥
 
-> āpanāre haya mora amānya-samāna
+> āpanāre haya mora amānya-samāna\
 > tomā-sabāre karoṅ muñi bālaka-abhimāna
 
 *āpanāre*—a Mí mismo; *haya*—hay; *mora*—Mi; *amānya*—que no merece respeto; *samāna*—como; *tomā-sabāre*—a todos vosotros; *karoṅ*—hago; *muñi*—Yo; *bālaka-abhimāna*—considerando como Mis hijos.

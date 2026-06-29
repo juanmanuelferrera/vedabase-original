@@ -1,11 +1,11 @@
 ### SB 7.10.28
 
-> दिष्ट्या तत्तनयः साधुर्महाभागवतोऽर्भकः
+> दिष्ट्या तत्तनयः साधुर्महाभागवतोऽर्भकः\
 > त्वया विमोचितो मृत्योर्दिष्ट्या त्वां समितोऽधुना ॥२८॥
 
-> diṣṭyā tat-tanayaḥ sādhur
-> mahā-bhāgavato 'rbhakaḥ
-> tvayā vimocito mṛtyor
+> diṣṭyā tat-tanayaḥ sādhur\
+> mahā-bhāgavato 'rbhakaḥ\
+> tvayā vimocito mṛtyor\
 > diṣṭyā tvāṁ samito 'dhunā
 
 *diṣṭyā*—by fortune; *tat-tanayaḥ*—his son; *sādhuḥ*—who is a great saintly person; *mahā-bhāgavataḥ*—a great and exalted devotee; *arbhakaḥ*—although a child; *tvayā*—by Your Lordship; *vimocitaḥ*—released; *mṛtyoḥ*—from the clutches of death; *diṣṭyā*—also by great fortune; *tvām samitaḥ*—perfectly under Your shelter; *adhunā*—now.

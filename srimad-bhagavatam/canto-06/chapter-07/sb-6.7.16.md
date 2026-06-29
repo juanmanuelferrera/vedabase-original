@@ -1,11 +1,11 @@
 ### SB 6.7.16
 
-> एवं चिन्तयतस्तस्य मघोनो भगवान्गृहात
+> एवं चिन्तयतस्तस्य मघोनो भगवान्गृहात\
 > बृहस्पतिर्गतोऽदृष्टां गतिमध्यात्ममायया ॥१६॥
 
-> evaṁ cintayatas tasya
-> maghono bhagavān gṛhāt
-> bṛhaspatir gato 'dṛṣṭāṁ
+> evaṁ cintayatas tasya\
+> maghono bhagavān gṛhāt\
+> bṛhaspatir gato 'dṛṣṭāṁ\
 > gatim adhyātma-māyayā
 
 *evam*—thus; *cintayataḥ*—while thinking very seriously; *tasya*—he; *maghonaḥ*—Indra; *bhagavān*—the most powerful; *gṛhāt*—from his home; *bṛhaspatiḥ*—Bṛhaspati; *gataḥ*—went; *adṛṣṭām*—invisible; *gatim*—to a state; *adhyātma*—due to being highly elevated in spiritual consciousness; *māyayā*—by his potency.

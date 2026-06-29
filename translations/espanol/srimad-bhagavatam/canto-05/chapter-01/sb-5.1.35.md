@@ -1,13 +1,13 @@
 ### SB 5.1.35
 
-> नैवंविधः पुरुषकार उरुक्रमस्य
-> पुंसां तदङ्घ्रिरजसा जितषड्गुणानाम
-> चित्रं विदूरविगतः सकृदाददीत
+> नैवंविधः पुरुषकार उरुक्रमस्य\
+> पुंसां तदङ्घ्रिरजसा जितषड्गुणानाम\
+> चित्रं विदूरविगतः सकृदाददीत\
 > यन्नामधेयमधुना स जहाति बन्धम ॥३४॥
 
-> naivaṁ-vidhaḥ puruṣa-kāra urukramasya
-> puṁsāṁ tad-aṅghri-rajasā jita-ṣaḍ-guṇānām
-> citraṁ vidūra-vigataḥ sakṛd ādadīta
+> naivaṁ-vidhaḥ puruṣa-kāra urukramasya\
+> puṁsāṁ tad-aṅghri-rajasā jita-ṣaḍ-guṇānām\
+> citraṁ vidūra-vigataḥ sakṛd ādadīta\
 > yan-nāmadheyam adhunā sa jahāti bandham
 
 *na*—no; *evam-vidhaḥ*—así; *puruṣa-kāraḥ*—influencia personal; *uru-kramasya*—de la Suprema Personalidad de Dios; *puṁsām*—de los devotos; *tat-aṅghri*—de Sus pies de loto; *rajasā*—por el polvo; *jita-ṣaṭ-guṇānām*—que han superado la influencia de las seis clases de azotes materiales; *citram*—maravilloso; *vidūra-vigataḥ*—la persona de quinta clase, el intocable; *sakṛt*—una sola vez; *ādadīta*—si pronuncia; *yat*—cuyo; *nāmadheyam*—santo nombre; *adhunā*—inmediatamente; *saḥ*—él; *jahāti*—abandona; *bandham*—cautiverio material.

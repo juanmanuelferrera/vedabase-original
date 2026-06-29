@@ -1,13 +1,13 @@
 ### SB 3.28.30
 
-> यच्छ्रीनिकेतमलिभिः परिसेव्यमानं
-> भूत्या स्वया कुटिलकुन्तलवृन्दजुष्टम् ।
-> मीनद्वयाश्रयमधिक्षिपदब्जनेत्रं
+> यच्छ्रीनिकेतमलिभिः परिसेव्यमानं\
+> भूत्या स्वया कुटिलकुन्तलवृन्दजुष्टम् ।\
+> मीनद्वयाश्रयमधिक्षिपदब्जनेत्रं\
 > ध्यायेन्मनोमयमतन्द्रित उल्लसद्भ्रु ॥३०॥
 
-> yac chrī-niketam alibhiḥ parisevyamānaṁ
-> bhūtyā svayā kuṭila-kuntala-vṛnda-juṣṭam
-> mīna-dvayāśrayam adhikṣipad abja-netraṁ
+> yac chrī-niketam alibhiḥ parisevyamānaṁ\
+> bhūtyā svayā kuṭila-kuntala-vṛnda-juṣṭam\
+> mīna-dvayāśrayam adhikṣipad abja-netraṁ\
 > dhyāyen manomayam atandrita ullasad-bhru
 
 *yat*—ese rostro del Señor; *śrī-niketam*—un loto; *alibhiḥ*—por abejas; *parisevyamānam*—rodeado; *bhūtyā*—por elegancia; *svayā*—suya; *kuṭila*—rizado; *kuntala*—de cabello; *vṛnda*—por una multitud; *juṣṭam*—adornado; *mīna*—de peces; *dvaya*—un par; *āśrayam*—morando; *adhikṣipat*—poniendo en ridículo; *abja*—un loto; *netram*—con ojos; *dhyāyet*—debe meditar en; *manaḥ-mayam*—formado en la mente; *atandritaḥ*—atentamente; *ullasat*—saltarinas; *bhru*—con cejas.

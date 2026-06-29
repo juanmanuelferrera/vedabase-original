@@ -1,13 +1,13 @@
 ### SB 9.10.9
 
-> रक्षःस्वसुर्व्यकृत रूपमशुद्धबुद्धेस
-> तस्याः खरत्रिशिरदूषणमुख्यबन्धून
-> जघ्ने चतुर्दशसहस्रमपारणीय
+> रक्षःस्वसुर्व्यकृत रूपमशुद्धबुद्धेस\
+> तस्याः खरत्रिशिरदूषणमुख्यबन्धून\
+> जघ्ने चतुर्दशसहस्रमपारणीय\
 > कोदण्डपाणिरटमान उवास कृच्छ्रम ॥९॥
 
-> rakṣaḥ-svasur vyakṛta rūpam aśuddha-buddhes
-> tasyāḥ khara-triśira-dūṣaṇa-mukhya-bandhūn
-> jaghne caturdaśa-sahasram apāraṇīya-
+> rakṣaḥ-svasur vyakṛta rūpam aśuddha-buddhes\
+> tasyāḥ khara-triśira-dūṣaṇa-mukhya-bandhūn\
+> jaghne caturdaśa-sahasram apāraṇīya-\
 > kodaṇḍa-pāṇir aṭamāna uvāsa kṛcchram
 
 *rakṣaḥ-svasuḥ*—of Śūrpaṇakhā, the sister of the Rākṣasa (Rāvaṇa); *vyakṛta*—(Lord Rāma) deformed; *rūpam*—the form; *aśuddha-buddheḥ*—because her intelligence was polluted by lusty desires; *tasyāḥ*—of her; *khara-triśira-dūṣaṇa-mukhya-bandhūn*—many friends, headed by Khara, Triśira and Dūṣaṇa; *jaghne*—He (Lord Rāmacandra) killed; *caturdaśa-sahasram*—fourteen thousand; *apāraṇīya*—invincible; *kodaṇḍa*—bows and arrows; *pāṇiḥ*—in His hand; *aṭamānaḥ*—wandering in the forest; *uvāsa*—lived there; *kṛcchram*—with great difficulties.

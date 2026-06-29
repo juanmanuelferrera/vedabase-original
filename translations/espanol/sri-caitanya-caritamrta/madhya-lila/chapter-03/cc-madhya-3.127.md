@@ -1,9 +1,9 @@
 ### CC Madhya 3.127
 
-> নির্বেদ, বিষাদ হর্ষ, চাপল্য, গর্ব, দৈন্য ।
+> নির্বেদ, বিষাদ হর্ষ, চাপল্য, গর্ব, দৈন্য ।\
 > প্রভুর সহিত যুদ্ধ করে ভাব-সৈন্য ॥১২৭॥
 
-> nirveda, viṣāda, harṣa, cāpalya, garva, dainya
+> nirveda, viṣāda, harṣa, cāpalya, garva, dainya\
 > prabhura sahita yuddha kare bhāva-sainya
 
 *nirveda*—decepción; *viṣāda*—melancolía; *harṣa*—placer; *cāpalya*—agitación; *garva*—orgullo; *dainya*—humildad; *prabhura*—del Señor; *sahita*—con; *yuddha*—lucha; *kare*—hacen; *bhāva*—de sentimientos extáticos; *sainya*—soldados.

@@ -1,9 +1,9 @@
 ### CC Antya 16.62
 
-> তাতে বার বার কহি, — শুন ভক্তগণ ।
+> তাতে বার বার কহি, — শুন ভক্তগণ ।\
 > বিশ্বাস করিয়া কর এ-তিন সেবন ॥৬২॥
 
-> tāte bāra bāra kahi,—śuna bhakta-gaṇa
+> tāte bāra bāra kahi,—śuna bhakta-gaṇa\
 > viśvāsa kariyā kara e-tina sevana
 
 *tāte*—therefore; *bāra bāra*—again and again; *kahi*—I say; *śuna*—hear; *bhakta-gaṇa*—devotees; *viśvāsa kariyā*—keeping faith; *kara*—do; *e-tina sevana*—rendering service to these three.

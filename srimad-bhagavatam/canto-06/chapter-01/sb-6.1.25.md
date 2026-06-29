@@ -1,11 +1,11 @@
 ### SB 6.1.25
 
-> स बद्धहृदयस्तस्मिन्नर्भके कलभाषिणि
+> स बद्धहृदयस्तस्मिन्नर्भके कलभाषिणि\
 > निरीक्षमाणस्तल्लीलां मुमुदे जरठो भृशम ॥२५॥
 
-> sa baddha-hṛdayas tasminn
-> arbhake kala-bhāṣiṇi
-> nirīkṣamāṇas tal-līlāṁ
+> sa baddha-hṛdayas tasminn\
+> arbhake kala-bhāṣiṇi\
+> nirīkṣamāṇas tal-līlāṁ\
 > mumude jaraṭho bhṛśam
 
 *saḥ*—he; *baddha-hṛdayaḥ*—being very attached; *tasmin*—to that; *arbhake*—small child; *kala-bhāṣiṇi*—who could not talk clearly but talked in broken language; *nirīkṣamāṇaḥ*—seeing; *tat*—his; *līlām*—pastimes (such as walking and talking to his father); *mumude*—enjoyed; *jaraṭhaḥ*—the old man; *bhṛśam*—very much.

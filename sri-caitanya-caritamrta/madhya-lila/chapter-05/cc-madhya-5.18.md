@@ -1,9 +1,9 @@
 ### CC Madhya 5.18
 
-> বিপ্র বলে, — তুমি মোর বহু সেবা কৈলা ।
+> বিপ্র বলে, — তুমি মোর বহু সেবা কৈলা ।\
 > সহায় হঞা মোরে তীর্থ করাইলা ॥১৮॥
 
-> vipra bale—tumi mora bahu sevā kailā
+> vipra bale—tumi mora bahu sevā kailā\
 > sahāya hañā more tīrtha karāilā
 
 *viprabale*—the elderly *brāhmaṇa* says; *tumi*—you; *mora*—my; *bahu*—various; *sevā*—service; *kailā*—have rendered; *sahāya*—assistant; *hañā*—being; *more*—to me; *tīrtha*—pilgrimage; *karāilā*—helped to do.

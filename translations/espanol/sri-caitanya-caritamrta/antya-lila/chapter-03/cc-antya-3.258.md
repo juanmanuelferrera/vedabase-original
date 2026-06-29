@@ -1,9 +1,9 @@
 ### CC Antya 3.258
 
-> কৃষ্ণনাম দেহ’ তুমি মোরে কর ধন্যা ।
+> কৃষ্ণনাম দেহ’ তুমি মোরে কর ধন্যা ।\
 > আমারে ভাসায় যৈছে এই প্রেমবন্যা ॥২৫৮॥
 
-> kṛṣṇa-nāma deha' tumi more kara dhanyā
+> kṛṣṇa-nāma deha' tumi more kara dhanyā\
 > āmāre bhāsāya yaiche ei prema-vanyā
 
 *kṛṣṇa nāma*—el santo nombre del Señor Kṛṣṇa; *deha'*—por favor da; *tumi*—tú; *more*—a mí; *kara dhanyā*—haz afortunada; *āmāre*—a mí; *bhāsāya*—pueda hacer flotar; *yaiche*—de manera que; *ei*—esta; *prema-vanyā*—inundación de amor extático por el Señor Kṛṣṇa.

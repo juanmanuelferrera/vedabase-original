@@ -1,13 +1,13 @@
 ### SB 3.9.12
 
-> नातिप्रसीदति तथोपचितोपचारैर्
-> आराधितः सुरगणैर्हृदि बद्धकामैः ।
-> यत्सर्वभूतदययासदलभ्ययैको
+> नातिप्रसीदति तथोपचितोपचारैर्\
+> आराधितः सुरगणैर्हृदि बद्धकामैः ।\
+> यत्सर्वभूतदययासदलभ्ययैको\
 > नानाजनेष्ववहितः सुहृदन्तरात्मा ॥१२॥
 
-> nātiprasīdati tathopacitopacārair
-> ārādhitaḥ sura-gaṇair hṛdi baddha-kāmaiḥ
-> yat sarva-bhūta-dayayāsad-alabhyayaiko
+> nātiprasīdati tathopacitopacārair\
+> ārādhitaḥ sura-gaṇair hṛdi baddha-kāmaiḥ\
+> yat sarva-bhūta-dayayāsad-alabhyayaiko\
 > nānā-janeṣv avahitaḥ suhṛd antar-ātmā
 
 *na*—nunca; *ati*—mucho; *prasīdati*—quedar satisfecho; *tathā*—tanto como; *upacita*—con pomposidad; *upacāraiḥ*—con muchos artículos dignos de adoración; *ārādhitaḥ*—siendo adorado; *sura-gaṇaiḥ*—por los semidioses celestiales; *hṛdi baddha-kāmaiḥ*—con corazones llenos de toda clase de deseos materiales; *yat*—aquello que; *sarva*—todas; *bhūta*—entidades vivientes; *dayayā*—para darles misericordia sin causa; *asat*—no devoto; *alabhyayā*—no siendo logrado; *ekaḥ*—aquel que no tiene igual; *nānā*—varios; *janeṣu*—en entidades vivientes; *avahitaḥ*—percibido; *suhṛt*—amigo bienqueriente; *antaḥ*—internamente; *ātmā*—Superalma.

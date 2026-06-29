@@ -1,9 +1,9 @@
 ### CC Adi 13.96
 
-> ‘হরি’ বলি’ নারীগণ দেই হুলাহুলি ।
+> ‘হরি’ বলি’ নারীগণ দেই হুলাহুলি ।\
 > স্বর্গে বাদ্য-নৃত্য করে দেব কুতূহলী ॥৯৬॥
 
-> 'hari' bali' nārīgaṇa dei hulāhuli
+> 'hari' bali' nārīgaṇa dei hulāhuli\
 > svarge vādya-nṛtya kare deva kutūhalī
 
 *hari bali'*—al pronunciar la palabra Hari; *nārī-gaṇa*—todas las mujeres; *dei*—entonando; *hulāhuli*—el sonido de hulāhuli; *svarge*—en los planetas celestiales; *vādya-nṛtya*—música y danza; *kare*—hacen; *deva*—los semidioses; *kutūhalī*—curiosos.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.55
 
-> প্রভু স্নান-কৃত্য করি’ আছেন বসিয়া ৷
+> প্রভু স্নান-কৃত্য করি’ আছেন বসিয়া ৷\
 > একভৃত্য-সঙ্গে রায় মিলিলা আসিয়া ৷৷ ৫৫ ৷৷ ॥৫৫॥
 
-> prabhu snāna-kṛtya kari' āchena vasiyā
+> prabhu snāna-kṛtya kari' āchena vasiyā\
 > eka-bhṛtya-saṅge rāya mililā āsiyā
 
 *prabhu*—el Señor; *snāna-kṛtya*—el deber diario de bañarse; *kari'*—terminando; *āchena*—estaba; *vasiyā*—sentado; *eka*—un; *bhṛtya*—sirviente; *saṅge*—con; *rāya*—Rāya Rāmānanda; *mililā*—se encontró; *āsiyā*—viniendo.

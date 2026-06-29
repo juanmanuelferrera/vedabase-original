@@ -1,9 +1,9 @@
 ### CC Adi 17.326
 
-> চতুর্দশে ‘বাল্যলীলা’র কিছু বিবরণ ।
+> চতুর্দশে ‘বাল্যলীলা’র কিছু বিবরণ ।\
 > পঞ্চদশে ‘পৌগণ্ডলীলা’র সংক্ষেপে কথন ॥৩২৬॥
 
-> caturdaśe 'bālya-līlāra' kichu vivaraṇa
+> caturdaśe 'bālya-līlāra' kichu vivaraṇa\
 > pañcadaśe 'paugaṇḍa-līlāra' saṅkṣepe kathana
 
 *caturdaśe*—in the Fourteenth Chapter; *bālya-līlāra*—of the Lord's childhood pastimes; *kichu*—some; *vivaraṇa*—description; *pañcadaśe*—in the Fifteenth Chapter; *paugaṇḍa-līlāra*—of the pastimes of the *paugaṇḍa* (boyhood) age; *saṅkṣepe*—in brief; *kathana*—the telling.

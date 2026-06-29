@@ -1,9 +1,9 @@
 ### CC Madhya 24.161
 
-> এই ছয় যোগী সাধুসঙ্গাদি-হেতু পাঞা ।
+> এই ছয় যোগী সাধুসঙ্গাদি-হেতু পাঞা ।\
 > কৃষ্ণ ভজে কৃষ্ণগুণে আকৃষ্ট হঞা ॥১৬১॥
 
-> ei chaya yogī sādhu-saṅgādi-hetu pāñā
+> ei chaya yogī sādhu-saṅgādi-hetu pāñā\
 > kṛṣṇa bhaje kṛṣṇa-guṇe ākṛṣṭa hañā
 
 *ei*—this; *chaya*—six; *yogī*—mystics; *sādhu*—of devotees; *saṅga-ādi*—the association; *hetu*—because of; *pāñā*—getting; *kṛṣṇa bhaje*—render service to Kṛṣṇa; *kṛṣṇa-guṇe*—by the transcendental qualities of Kṛṣṇa; *ākṛṣṭa*—attracted; *hañā*—becoming.

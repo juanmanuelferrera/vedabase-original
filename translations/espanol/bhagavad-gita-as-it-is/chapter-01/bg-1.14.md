@@ -1,11 +1,11 @@
 ### Bg 1.14
 
-> ततः श्वेतैर्हयैर्युक्ते महति स्यन्दने स्थितौ ।
+> ततः श्वेतैर्हयैर्युक्ते महति स्यन्दने स्थितौ ।\
 > माधवः पाण्डवश्चैव दिव्यौ शङ्खौ प्रदध्मतुः ॥१४॥
 
-> tataḥ śvetair hayair yukte
-> mahati syandane sthitau
-> mādhavaḥ pāṇḍavaś caiva
+> tataḥ śvetair hayair yukte\
+> mahati syandane sthitau\
+> mādhavaḥ pāṇḍavaś caiva\
 > divyau śaṅkhau pradadhmatuḥ
 
 *tataḥ*—después de eso; *śvetaiḥ*—con blancos; *hayaiḥ*—caballos; *yukte*—uncidos; *mahati*—en la gran; *syandane*—cuadriga; *sthitau*—situados así; *mādhavaḥ*—Kṛṣṇa (el esposo de la diosa de la fortuna); *pāṇḍavaḥ*—Arjuna (el hijo de Pāṇḍu); *ca*—también; *eva*—ciertamente; *divyau*—trascendental; *śankhau*—caracolas; *pradadhmatuḥ*—sonaron.

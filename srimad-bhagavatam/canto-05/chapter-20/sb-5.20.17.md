@@ -1,11 +1,11 @@
 ### SB 5.20.17
 
-> परस्य ब्रह्मणः साक्षाज्जातवेदोऽसि हव्यवाट
+> परस्य ब्रह्मणः साक्षाज्जातवेदोऽसि हव्यवाट\
 > देवानां पुरुषाङ्गानां यज्ञएन पुरुषं यजेति ॥१७॥
 
-> parasya brahmaṇaḥ sākṣāj
-> jāta-vedo 'si havyavāṭ
-> devānāṁ puruṣāṅgānāṁ
+> parasya brahmaṇaḥ sākṣāj\
+> jāta-vedo 'si havyavāṭ\
+> devānāṁ puruṣāṅgānāṁ\
 > yajñena puruṣaṁ yajeti
 
 *parasya*—of the Supreme; *brahmaṇaḥ*—Brahman; *sākṣāt*—directly; *jāta-vedaḥ*—O fire-god; *asi*—you are; *havyavāṭ*—the carrier of Vedic offerings of grains and ghee; *devānām*—of all the demigods; *puruṣa-aṅgānām*—who are limbs of the Supreme Person; *yajñena*—by performing the ritualistic sacrifices; *puruṣam*—to the Supreme person; *yaja*—please carry oblations; *iti*—thus.

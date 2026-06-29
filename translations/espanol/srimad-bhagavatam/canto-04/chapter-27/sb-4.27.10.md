@@ -1,11 +1,11 @@
 ### SB 4.27.10
 
-> तेषु तद्रिक्थहारेषु गृहकोशानुजीविषु ।
+> तेषु तद्रिक्थहारेषु गृहकोशानुजीविषु ।\
 > निरूढेन ममत्वेन विषयेष्वन्वबध्यत ॥१०॥
 
-> teṣu tad-riktha-hāreṣu
-> gṛha-kośānujīviṣu
-> nirūḍhena mamatvena
+> teṣu tad-riktha-hāreṣu\
+> gṛha-kośānujīviṣu\
+> nirūḍhena mamatvena\
 > viṣayeṣv anvabadhyata
 
 *teṣu*—a ellos; *tat-riktha-hāreṣu*—los saqueadores de su dinero; *gṛha*—casa; *kośa*—tesoro; *anujīviṣu*—a los seguidores; *nirūḍhena*—profundamente arraigado; *mamatvena*—por apego; *viṣayeṣu*—a los objetos de los sentidos; *anvabadhyata*—estaba atado.

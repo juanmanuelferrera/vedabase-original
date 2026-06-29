@@ -1,9 +1,9 @@
 ### CC Antya 7.31
 
-> ‘মোর সখা’, ‘মোর পুত্র’, — এই ‘শুদ্ধ’ মন ।
+> ‘মোর সখা’, ‘মোর পুত্র’, — এই ‘শুদ্ধ’ মন ।\
 > অতএব শুক-ব্যাস করে প্রশংসন ॥৩১॥
 
-> 'mora sakhā,' 'mora putra,'--ei 'śuddha' mana
+> 'mora sakhā,' 'mora putra,'--ei 'śuddha' mana\
 > ataeva śuka-vyāsa kare praśaṁsana
 
 *mora sakhā*—mi amigo; *mora putra*—mi hijo; *ei*—esta; *śuddha*—pura; *mana*—conciencia; *ataeva*—por lo tanto; *śuka-vyāsa*—Śukadeva Gosvāmī y Vyāsadeva; *kare praśaṁsana*—alaban.

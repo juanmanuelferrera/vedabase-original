@@ -1,11 +1,11 @@
 ### SB 3.27.16
 
-> एवं प्रत्यवमृश्यासावात्मानं प्रतिपद्यते ।
+> एवं प्रत्यवमृश्यासावात्मानं प्रतिपद्यते ।\
 > साहङ्कारस्य द्रव्यस्य योऽवस्थानमनुग्रहः ॥१६॥
 
-> evaṁ pratyavamṛśyāsāv
-> ātmānaṁ pratipadyate
-> sāhaṅkārasya dravyasya
+> evaṁ pratyavamṛśyāsāv\
+> ātmānaṁ pratipadyate\
+> sāhaṅkārasya dravyasya\
 > yo 'vasthānam anugrahaḥ
 
 *evam*—de este modo; *pratyavamṛśya*—después de entender; *asau*—esa persona; *ātmānam*—su ser; *pratipadyate*—comprende; *sa-ahaṅkārasya*—aceptada bajo la influencia del ego falso; *dravyasya*—de la situación; *yaḥ*—quien; *avasthānam*—lugar de reposo; *anugrahaḥ*—el que manifiesta.

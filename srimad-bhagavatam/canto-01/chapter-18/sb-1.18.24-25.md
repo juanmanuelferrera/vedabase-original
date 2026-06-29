@@ -1,18 +1,18 @@
 ### SB 1.18.24-25
 
-> एकदा धनुरुद्यम्य विचरन्मृगयां वने ।
-> मृगाननुगतः श्रान्तः क्षुधितस्तृषितो भृशम् ॥२४॥
-> जलाशयमचक्षाणः प्रविवेश तमाश्रमम् ।
+> एकदा धनुरुद्यम्य विचरन्मृगयां वने ।\
+> मृगाननुगतः श्रान्तः क्षुधितस्तृषितो भृशम् ॥२४॥\
+> जलाशयमचक्षाणः प्रविवेश तमाश्रमम् ।\
 > ददर्श मुनिमासीनं शान्तं मीलितलोचनम् ॥२५॥
 
-> ekadā dhanur udyamya
-> vicaran mṛgayāṁ vane
-> mṛgān anugataḥ śrāntaḥ
+> ekadā dhanur udyamya\
+> vicaran mṛgayāṁ vane\
+> mṛgān anugataḥ śrāntaḥ\
 > kṣudhitas tṛṣito bhṛśam
 
-> jalāśayam acakṣāṇaḥ
-> praviveśa tam āśramam
-> dadarśa munim āsīnaṁ
+> jalāśayam acakṣāṇaḥ\
+> praviveśa tam āśramam\
+> dadarśa munim āsīnaṁ\
 > śāntaṁ mīlita-locanam
 
 *ekadā*—once upon a time; *dhanuḥ*—arrows and bow; *udyamya*—taking firmly; *vicaran*—following; *mṛgayām*—hunting excursion; *vane*—in the forest; *mṛgān*—stags; *anugataḥ*—while following; *śrāntaḥ*—fatigued; *kṣudhitaḥ*—hungry; *tṛṣitaḥ*—being thirsty; *bhṛśam*—extremely; *jala-āśayam*—reservoir of water; *acakṣāṇaḥ*—while searching for; *praviveśa*—entered into; *tam*—that famous; *āśramam*—hermitage of Śamīka Ṛṣi; *dadarśa*—saw; *munim*—the sage; *āsīnam*—seated; *śāntam*—all silent; *mīlita*—closed; *locanam*—eyes.

@@ -1,11 +1,11 @@
 ### SB 4.10.3
 
-> उत्तमस्त्वकृतोद्वाहो मृगयायां बलीयसा ।
+> उत्तमस्त्वकृतोद्वाहो मृगयायां बलीयसा ।\
 > हतः पुण्यजनेनाद्रौ तन्मातास्य गतिं गता ॥३॥
 
-> uttamas tv akṛtodvāho
-> mṛgayāyāṁ balīyasā
-> hataḥ puṇya-janenādrau
+> uttamas tv akṛtodvāho\
+> mṛgayāyāṁ balīyasā\
+> hataḥ puṇya-janenādrau\
 > tan-mātāsya gatiṁ gatā
 
 *uttamaḥ*—Uttama; *tu*—pero; *akṛta*—sin; *udvāhaḥ*—matrimonio; *mṛgayāyām*—en una cacería; *balīyasā*—muy poderoso; *hataḥ*—fue matado; *puṇya-janena*—por un *yakṣa*; *adrau*—en los Himālayas; *tat*—su; *mātā*—madre (Suruci); *asya*—de su hijo; *gatim*—camino; *gatā*—siguió.

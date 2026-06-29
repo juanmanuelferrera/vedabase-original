@@ -1,9 +1,9 @@
 ### CC Madhya 3.36
 
-> গঙ্গায় যমুনা বহে হঞা একধার ।
+> গঙ্গায় যমুনা বহে হঞা একধার ।\
 > পশ্চিমে যমুনা বহে, পূর্বে গঙ্গাধার ॥৩৬॥
 
-> gaṅgāya yamunā vahe hañā eka-dhāra
+> gaṅgāya yamunā vahe hañā eka-dhāra\
 > paścime yamunā vahe, pūrve gaṅgā-dhāra
 
 *gaṅgāya*—con el río Ganges; *yamunā*—el río Yamunā; *vahe*—fluye; *hañā*—convirtiéndose; *eka-dhāra*—una sola corriente; *paścime*—en el lado occidental; *yamunā*—el río Yamunā; *vahe*—fluye; *pūrve*—en el lado oriental; *gaṅgā-dhāra*—la corriente del Ganges.

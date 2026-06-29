@@ -1,11 +1,11 @@
 ### SB 3.16.28
 
-> भगवन्तं परिक्रम्य प्रणिपत्यानुमान्य च ।
+> भगवन्तं परिक्रम्य प्रणिपत्यानुमान्य च ।\
 > प्रतिजग्मुः प्रमुदिताः शंसन्तो वैष्णवीं श्रियम् ॥२८॥
 
-> bhagavantaṁ parikramya
-> praṇipatyānumānya ca
-> pratijagmuḥ pramuditāḥ
+> bhagavantaṁ parikramya\
+> praṇipatyānumānya ca\
+> pratijagmuḥ pramuditāḥ\
 > śaṁsanto vaiṣṇavīṁ śriyam
 
 *bhagavantam*—de la Suprema Personalidad de Dios; *parikramya*—tras andar alrededor de; *praṇipatya*—tras ofrecer reverencias; *anumānya*—tras aprender; *ca*—y; *pratijagmuḥ*—regresaron; *pramuditāḥ*—sumamente deleitados; *śaṁsantaḥ*—glorificando; *vaiṣṇavīm*—de los *vaiṣṇavas*; *śriyam*—opulencia.

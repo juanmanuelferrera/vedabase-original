@@ -1,9 +1,9 @@
 ### CC Madhya 1.113
 
-> শ্রীরঙ্গপুরী সহ তাহাঞি মিলন ।
+> শ্রীরঙ্গপুরী সহ তাহাঞি মিলন ।\
 > রামদাস বিপ্রের কৈল দুঃখবিমোচন ॥১১৩॥
 
-> śrī-raṅga-purī saha tāhāñi milana
+> śrī-raṅga-purī saha tāhāñi milana\
 > rāma-dāsa viprera kaila duḥkha-vimocana
 
 *śrī-raṅga-purī*—de nombre Śrī Raṅga-purī; *saha*—con; *tāhāñi*—allí; *milana*—encuentro; *rāma-dāsa*—de nombre Rāmadāsa; *viprera*—del *brāhmaṇa*; *kaila*—hizo; *duḥkha-vimocana*—liberación de todos los sufrimientos.

@@ -1,13 +1,13 @@
 ### SB 7.9.45
 
-> यन्मैथुनादिगृहमेधिसुखं हि तुच्छं
-> कण्डूयनेन करयोरिव दुःखदुःखम
-> तृप्यन्ति नेह कृपणा बहुदुःखभाजः
+> यन्मैथुनादिगृहमेधिसुखं हि तुच्छं\
+> कण्डूयनेन करयोरिव दुःखदुःखम\
+> तृप्यन्ति नेह कृपणा बहुदुःखभाजः\
 > कण्डूतिवन्मनसिजं विषहेत धीरः ॥४५॥
 
-> yan maithunādi-gṛhamedhi-sukhaṁ hi tucchaṁ
-> kaṇḍūyanena karayor iva duḥkha-duḥkham
-> tṛpyanti neha kṛpaṇā bahu-duḥkha-bhājaḥ
+> yan maithunādi-gṛhamedhi-sukhaṁ hi tucchaṁ\
+> kaṇḍūyanena karayor iva duḥkha-duḥkham\
+> tṛpyanti neha kṛpaṇā bahu-duḥkha-bhājaḥ\
 > kaṇḍūtivan manasijaṁ viṣaheta dhīraḥ
 
 *yat*—eso que (está destinado a la complacencia material de los sentidos); *maithuna-ādi*—representado por hablar de la vida sexual, leer literatura sexual o disfrutar de la vida sexual (en el hogar o fuera, en un club, por ejemplo); *gṛhamedhi-sukham*—todas las formas de felicidad material basadas en el apego a la familia, la sociedad, la amistad, etc.; *hi*—en verdad; *tuccham*—insignificante; *kaṇḍūyanena*—con el picor; *karayoḥ*—de las dos manos (para aliviar el picor); *iva*—como; *duḥkha-duḥkham*—distintos tipos de infelicidad (que vienen tras esa complacencia de los sentidos, que es como un picor); *tṛpyanti*—se satisfacen; *na*—nunca; *iha*—en la complacencia material de los sentidos; *kṛpaṇāḥ*—los necios; *bahu-duḥkha-bhājaḥ*—sujetos a distintas clases de infelicidad material; *kaṇḍūti-vat*—si se puede aprender de ese picor; *manasi-jam*—que no es más que una invención mental (en realidad no hay felicidad); *viṣaheta*—y tolerar (ese picor); *dhīraḥ*—(se puede llegar a ser) una persona sobria, completamente perfecta.

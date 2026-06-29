@@ -1,11 +1,11 @@
 ### SB 1.12.27
 
-> तक्षकादात्मनो मृत्युं द्विजपुत्रोपसर्जितात् ।
+> तक्षकादात्मनो मृत्युं द्विजपुत्रोपसर्जितात् ।\
 > प्रपत्स्यत उपश्रुत्य मुक्तसङ्गः पदं हरेः ॥२७॥
 
-> takṣakād ātmano mṛtyuṁ
-> dvija-putropasarjitāt
-> prapatsyata upaśrutya
+> takṣakād ātmano mṛtyuṁ\
+> dvija-putropasarjitāt\
+> prapatsyata upaśrutya\
 > mukta-saṅgaḥ padaṁ hareḥ
 
 *takṣakāt*—by the snake-bird; *ātmanaḥ*—of his personal self; *mṛtyum*—death; *dvija-putra*—the son of a *brāhmaṇa*; *upasarjitāt*—being sent by; *prapatsyate*—having taken shelter of; *upaśrutya*—after hearing; *mukta-saṅgaḥ*—freed from all attachment; *padam*—position; *hareḥ*—of the Lord.

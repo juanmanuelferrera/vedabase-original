@@ -1,14 +1,14 @@
 ### Bg 1.20
 
-> अथ व्यवस्थितान्दृष्ट्वा धार्तराष्ट्रान् कपिध्वजः ।
-> प्रवृत्ते शस्त्रसम्पाते धनुरुद्यम्य पाण्डवः ।
+> अथ व्यवस्थितान्दृष्ट्वा धार्तराष्ट्रान् कपिध्वजः ।\
+> प्रवृत्ते शस्त्रसम्पाते धनुरुद्यम्य पाण्डवः ।\
 > हृषीकेशं तदा वाक्यमिदमाह महीपते ॥२०॥
 
-> atha vyavasthitān dṛṣṭvā
-> dhārtarāṣṭrān kapi-dhvajaḥ
-> pravṛtte śastra-sampāte
-> dhanur udyamya pāṇḍavaḥ
-> hṛṣīkeśaṁ tadā vākyam
+> atha vyavasthitān dṛṣṭvā\
+> dhārtarāṣṭrān kapi-dhvajaḥ\
+> pravṛtte śastra-sampāte\
+> dhanur udyamya pāṇḍavaḥ\
+> hṛṣīkeśaṁ tadā vākyam\
 > idam āha mahī-pate
 
 *atha*—thereupon; *vyavasthitān*—situated; *dṛṣṭvā*—looking on; *dhārtarāṣṭrān*—the sons of Dhṛtarāṣṭra; *kapi-dhvajaḥ*—one whose flag is marked with Hanumān; *pravṛtte*—while about to be engaged; *śastra-sampāte*—the arrows released; *dhanuḥ*—bow; *udyamya*—after taking up; *pāṇḍavaḥ*—the son of Pāṇḍu (Arjuna); *hṛṣīkeśam*—unto Lord Kṛṣṇa; *tadā*—at that time; *vākyam*—words; *idam*—these; *āha*—said; *mahī-pate*—O King.

@@ -1,13 +1,13 @@
 ### SB 3.14.10
 
-> दितिरुवाच
-> एष मां त्वत्कृते विद्वन्काम आत्तशरासनः ।
+> दितिरुवाच\
+> एष मां त्वत्कृते विद्वन्काम आत्तशरासनः ।\
 > दुनोति दीनां विक्रम्य रम्भामिव मतङ्गजः ॥१०॥
 
-> ditir uvāca
-> eṣa māṁ tvat-kṛte vidvan
-> kāma ātta-śarāsanaḥ
-> dunoti dīnāṁ vikramya
+> ditir uvāca\
+> eṣa māṁ tvat-kṛte vidvan\
+> kāma ātta-śarāsanaḥ\
+> dunoti dīnāṁ vikramya\
 > rambhām iva mataṅgajaḥ
 
 *ditiḥ uvāca*—la hermosa Diti dijo; *eṣaḥ*—todas esas; *mām*—a mí; *tvat-kṛte*—por ti; *vidvan*—¡oh, erudito!; *kāmaḥ*—Cupido; *ātta-śarāsanaḥ*—tomando sus flechas; *dunoti*—aflige; *dīnām*—mi pobre persona; *vikramya*—atacando; *rambhām*—árbol de plátanos; *iva*—como; *matam-gajaḥ*—elefante enloquecido.

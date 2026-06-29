@@ -1,11 +1,11 @@
 ### SB 1.10.3
 
-> निशम्य भीष्मोक्तमथाच्युतोक्तं प्रवृत्तविज्ञानविधूतविभ्रमः ।
+> निशम्य भीष्मोक्तमथाच्युतोक्तं प्रवृत्तविज्ञानविधूतविभ्रमः ।\
 > शशास गामिन्द्र इवाजिताश्रयः परिध्युपान्तामनुजानुवर्तितः ॥३॥
 
-> niśamya bhīṣmoktam athācyutoktaṁ
-> pravṛtta-vijñāna-vidhūta-vibhramaḥ
-> śaśāsa gām indra ivājitāśrayaḥ
+> niśamya bhīṣmoktam athācyutoktaṁ\
+> pravṛtta-vijñāna-vidhūta-vibhramaḥ\
+> śaśāsa gām indra ivājitāśrayaḥ\
 > paridhyupāntām anujānuvartitaḥ
 
 *niśamya*—después de escuchar; *bhīṣma-uktam*—lo que habló Bhīṣmadeva; *atha*—así como también; *acyuta-uktam*—lo que habló el infalible Señor Kṛṣṇa; *pravṛtta*—estando dedicado a; *vijñāna*—conocimiento perfecto; *vidhūta*—limpió por completo; *vibhramaḥ*—todos los recelos; *śaśāsa*—gobernó; *gām*—la Tierra; *indra*—el rey del planeta celestial; *iva*—como; *ajita-āśrayaḥ*—protegidos por el invencible Señor; *paridhi-upāntām*—incluso los mares; *anuja*—los hermanos menores; *anuvartitaḥ*—siendo seguido por ellos.

@@ -1,9 +1,9 @@
 ### CC Adi 17.84
 
-> দেখিয়া সন্তুষ্ট হৈলা শচীর নন্দন ।
+> দেখিয়া সন্তুষ্ট হৈলা শচীর নন্দন ।\
 > সবাকে খাওয়াল আগে করিয়া ভক্ষণ ॥৮৪॥
 
-> dekhiyā santuṣṭa hailā śacīra nandana
+> dekhiyā santuṣṭa hailā śacīra nandana\
 > sabāke khāoyāla āge kariyā bhakṣaṇa
 
 *dekhiyā*—al ver esto; *santuṣṭa*—satisfecho; *hailā*—se volvió; *śacīra*—de la madre Śacī; *nandana*—hijo; *sabāke*—a todos; *khāoyāla*—hizo comer; *āge*—primero; *kariyā*—haciendo; *bhakṣaṇa*—comiendo Él mismo.

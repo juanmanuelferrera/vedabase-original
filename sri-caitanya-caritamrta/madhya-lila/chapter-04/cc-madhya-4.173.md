@@ -1,9 +1,9 @@
 ### CC Madhya 4.173
 
-> যাঁর প্রেমে বশ হঞা প্রকট হইলা ।
+> যাঁর প্রেমে বশ হঞা প্রকট হইলা ।\
 > সেবা অঙ্গীকার করি’ জগত তারিলা ॥১৭৩॥
 
-> yāṅra preme vaśa hañā prakaṭa ha-ilā
+> yāṅra preme vaśa hañā prakaṭa ha-ilā\
 > sevā aṅgīkāra kari' jagata tārilā
 
 *yāṅra*—of whom; *preme*—by love of Godhead; *vaśa*—obliged; *hañā*—being; *prakaṭa*—manifest; *ha-ilā*—became; *sevā*—service; *aṅgīkāra*—acceptance; *kari'*—doing; *jagata*—the whole world; *tārilā*—delivered.

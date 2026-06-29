@@ -1,11 +1,11 @@
 ### SB 6.4.31
 
-> यच्छक्तयो वदतां वादिनां वै विवादसंवादभुवो भवन्ति
+> यच्छक्तयो वदतां वादिनां वै विवादसंवादभुवो भवन्ति\
 > कुर्वन्ति चैषां मुहुरात्ममोहं तस्मै नमोऽनन्तगुणाय भूम्ने ॥३१॥
 
-> yac-chaktayo vadatāṁ vādināṁ vai
-> vivāda-saṁvāda-bhuvo bhavanti
-> kurvanti caiṣāṁ muhur ātma-mohaṁ
+> yac-chaktayo vadatāṁ vādināṁ vai\
+> vivāda-saṁvāda-bhuvo bhavanti\
+> kurvanti caiṣāṁ muhur ātma-mohaṁ\
 > tasmai namo 'nanta-guṇāya bhūmne
 
 *yat-śaktayaḥ*—cuyas múltiples potencias; *vadatām*—hablando distintas filosofías; *vādinām*—de los que hablan; *vai*—en verdad; *vivāda*—de discusión; *saṁvāda*—y coincidencia; *bhuvaḥ*—las causas; *bhavanti*—son; *kurvanti*—crean; *ca*—y; *eṣām*—de ellos (los teóricos); *muhuḥ*—continuamente; *ātma-moham*—confusión con respecto a la existencia del alma; *tasmai*—a Él; *namaḥ*—respetuosas reverencias; *ananta*—ilimitados; *guṇāya*—dotado de atributos trascendentales; *bhūmne*—el Dios omnipresente.

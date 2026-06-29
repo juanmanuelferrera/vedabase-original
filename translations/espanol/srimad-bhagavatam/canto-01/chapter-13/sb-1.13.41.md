@@ -1,16 +1,16 @@
 ### SB 1.13.41
 
-> नारद उवाच
-> मा कञ्चन शुचो राजन्यदीश्वरवशं जगत् ।
-> लोकाः सपाला यस्येमे वहन्ति बलिमीशितुः ।
+> नारद उवाच\
+> मा कञ्चन शुचो राजन्यदीश्वरवशं जगत् ।\
+> लोकाः सपाला यस्येमे वहन्ति बलिमीशितुः ।\
 > स संयुनक्ति भूतानि स एव वियुनक्ति च ॥४१॥
 
-> nārada uvāca
-> mā kañcana śuco rājan
-> yad īśvara-vaśaṁ jagat
-> lokāḥ sapālā yasyeme
-> vahanti balim īśituḥ
-> sa saṁyunakti bhūtāni
+> nārada uvāca\
+> mā kañcana śuco rājan\
+> yad īśvara-vaśaṁ jagat\
+> lokāḥ sapālā yasyeme\
+> vahanti balim īśituḥ\
+> sa saṁyunakti bhūtāni\
 > sa eva viyunakti ca
 
 *nāradaḥ uvāca*—Nārada dijo; *mā*—nunca; *kañcana*—por todos los medios; *śucaḥ*—te lamentes; *rājan*—¡oh, rey!; *yat*—porque; *īśvara-vaśam*—bajo el control del Señor Supremo; *jagat*—el mundo; *lokāḥ*—todos los seres vivientes; *sa-pālāḥ*—incluso sus líderes; *yasya*—cuyos; *ime*—todos estos; *vahanti*—llevan; *balim*—medios de adoración; *īśituḥ*—para ser protegidos; *saḥ*—Él; *saṁyunakti*—reúne; *bhūtāni*—a todos los seres vivientes; *saḥ*—Él; *eva*—también; *viyunakti*—dispersa; *ca*—y.

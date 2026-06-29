@@ -1,9 +1,9 @@
 ### CC Madhya 5.105
 
-> সাক্ষাতে না দেখিলে মনে প্রতীতি না হয় ।
+> সাক্ষাতে না দেখিলে মনে প্রতীতি না হয় ।\
 > ইহাঁ যদি রহেন, তবু নাহি কিছু ভয় ।।’ ॥ ১০৫ ॥
 
-> sākṣāte nā dekhile mane pratīti nā haya
+> sākṣāte nā dekhile mane pratīti nā haya\
 > ihāṅ yadi rahena, tabu nāhi kichu bhaya'
 
 *sākṣāte*—directly; *nā*—not; *dekhile*—if seeing; *mane*—in the mind; *pratīti*—assurance; *nā*—not; *haya*—there is; *ihāṅ*—here; *yadi*—if; *rahena*—the Lord stays; *tabu*—still; *nāhi*—there is not; *kichu*—any; *bhaya*—fear.

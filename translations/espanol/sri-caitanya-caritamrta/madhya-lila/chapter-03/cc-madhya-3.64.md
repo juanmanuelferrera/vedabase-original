@@ -1,9 +1,9 @@
 ### CC Madhya 3.64
 
-> দুই প্রভু লঞা আচার্য গেলা ভিতর ঘরে ।
+> দুই প্রভু লঞা আচার্য গেলা ভিতর ঘরে ।\
 > প্রসাদ দেখিয়া প্রভুর আনন্দ অন্তরে ॥৬৪॥
 
-> dui prabhu lañā ācārya gelā bhitara ghare
+> dui prabhu lañā ācārya gelā bhitara ghare\
 > prasāda dekhiyā prabhura ānanda antare
 
 *dui prabhu*—los dos prabhus (Caitanya Mahāprabhu y Nityānanda Prabhu); *lañā*—con; *ācārya*—Advaita Ācārya; *gelā*—fue; *bhitara*—dentro; *ghare*—de la habitación; *prasāda*—el prasāda; *dekhiyā*—al ver; *prabhura*—de Caitanya Mahāprabhu; *ānanda antare*—se complació mucho internamente.

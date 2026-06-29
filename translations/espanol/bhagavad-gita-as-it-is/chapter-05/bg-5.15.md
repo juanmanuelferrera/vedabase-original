@@ -1,11 +1,11 @@
 ### Bg 5.15
 
-> नादत्ते कस्यचित्पापं न चैव सुकृतं विभुः ।
+> नादत्ते कस्यचित्पापं न चैव सुकृतं विभुः ।\
 > अज्ञानेनावृतं ज्ञानं तेन मुह्यन्ति जन्तवः ॥१५॥
 
-> nādatte kasyacit pāpaṁ
-> na caiva sukṛtaṁ vibhuḥ
-> ajñānenāvṛtaṁ jñānaṁ
+> nādatte kasyacit pāpaṁ\
+> na caiva sukṛtaṁ vibhuḥ\
+> ajñānenāvṛtaṁ jñānaṁ\
 > tena muhyanti jantavaḥ
 
 *na*—nunca; *ādatte*—acepta; *kasyacit*—nadie; *pāpam*—pecado; *na*—ni; *ca*—también; *eva*—ciertamente; *sukṛtam*—actividades piadosas; *vibhuḥ*—el Señor Supremo; *ajñānena*—por ignorancia; *āvṛtam*—cubierto; *jñānam*—conocimiento; *tena*—con eso; *muhyanti*—confundidas; *jantavaḥ*—las entidades vivientes.

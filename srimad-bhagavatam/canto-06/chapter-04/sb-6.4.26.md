@@ -1,11 +1,11 @@
 ### SB 6.4.26
 
-> यदोपरामो मनसो नामरूप रूपस्य दृष्टस्मृतिसम्प्रमोषात
+> यदोपरामो मनसो नामरूप रूपस्य दृष्टस्मृतिसम्प्रमोषात\
 > य ईयते केवलया स्वसंस्थया हंसाय तस्मै शुचिसद्मने नमः ॥२६॥
 
-> yadoparāmo manaso nāma-rūpa-
-> rūpasya dṛṣṭa-smṛti-sampramoṣāt
-> ya īyate kevalayā sva-saṁsthayā
+> yadoparāmo manaso nāma-rūpa-\
+> rūpasya dṛṣṭa-smṛti-sampramoṣāt\
+> ya īyate kevalayā sva-saṁsthayā\
 > haṁsāya tasmai śuci-sadmane namaḥ
 
 *yadā*—when in trance; *uparāmaḥ*—complete cessation; *manasaḥ*—of the mind; *nāma-rūpa*—material names and forms; *rūpasya*—of that by which they appear; *dṛṣṭa*—of material vision; *smṛti*—and of remembrance; *sampramoṣāt*—due to the destruction; *yaḥ*—who (the Supreme Personality of Godhead); *īyate*—is perceived; *kevalayā*—with spiritual; *sva-saṁsthayā*—His own original form; *haṁsāya*—unto the supreme pure; *tasmai*—unto Him; *śuci-sadmane*—who is realized only in the pure state of spiritual existence; *namaḥ*—I offer my respectful obeisances.

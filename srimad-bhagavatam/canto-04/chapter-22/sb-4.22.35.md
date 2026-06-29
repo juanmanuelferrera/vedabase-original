@@ -1,11 +1,11 @@
 ### SB 4.22.35
 
-> तत्रापि मोक्ष एवार्थ आत्यन्तिकतयेष्यते ।
+> तत्रापि मोक्ष एवार्थ आत्यन्तिकतयेष्यते ।\
 > त्रैवर्ग्योऽर्थो यतो नित्यं कृतान्तभयसंयुतः ॥३५॥
 
-> tatrāpi mokṣa evārtha
-> ātyantikatayeṣyate
-> traivargyo 'rtho yato nityaṁ
+> tatrāpi mokṣa evārtha\
+> ātyantikatayeṣyate\
+> traivargyo 'rtho yato nityaṁ\
 > kṛtānta-bhaya-saṁyutaḥ
 
 *tatra*—there; *api*—also; *mokṣaḥ*—liberation; *eva*—certainly; *arthe*—for the matter of; *ātyantikatayā*—most important; *iṣyate*—taken in that way; *trai-vargyaḥ*—the three others, namely religion, economic development and sense gratification; *arthaḥ*—interest; *yataḥ*—wherefrom; *nityam*—regularly; *kṛta-anta*—death; *bhaya*—fear; *saṁyutaḥ*—attached.

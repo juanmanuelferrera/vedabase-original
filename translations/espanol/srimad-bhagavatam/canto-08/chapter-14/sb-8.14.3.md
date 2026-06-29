@@ -1,11 +1,11 @@
 ### SB 8.14.3
 
-> यज्ञआदयो याः कथिताः पौरुष्यस्तनवो नृप
+> यज्ञआदयो याः कथिताः पौरुष्यस्तनवो नृप\
 > मन्वादयो जगद्यात्रां नयन्त्याभिः प्रचोदिताः ॥३॥
 
-> yajñādayo yāḥ kathitāḥ
-> pauruṣyas tanavo nṛpa
-> manv-ādayo jagad-yātrāṁ
+> yajñādayo yāḥ kathitāḥ\
+> pauruṣyas tanavo nṛpa\
+> manv-ādayo jagad-yātrāṁ\
 > nayanty ābhiḥ pracoditāḥ
 
 *yajña-ādayaḥ*—Yajña, la encarnación del Señor, y otras; *yāḥ*—de quien; *kathitāḥ*—ya se ha hablado; *pauruṣyaḥ*—de la Persona Suprema; *tanavaḥ*—encarnaciones; *nṛpa*—¡oh, rey!; *manu-ādayaḥ*—los *manus* y demás dirigentes; *jagat-yātrām*—los asuntos del universo; *nayanti*—dirigen; *ābhiḥ*—por las encarnaciones; *pracoditāḥ*—inspirados.

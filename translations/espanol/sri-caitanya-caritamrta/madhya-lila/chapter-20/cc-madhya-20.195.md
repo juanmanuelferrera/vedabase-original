@@ -1,9 +1,9 @@
 ### CC Madhya 20.195
 
-> চক্রাদি-ধারণ-ভেদে নাম-ভেদ সব ।
+> চক্রাদি-ধারণ-ভেদে নাম-ভেদ সব ।\
 > বাসুদেবের মূর্তি — কেশব, নারায়ণ, মাধব ॥১৯৫॥
 
-> cakrādi-dhāraṇa-bhede nāma-bheda saba
+> cakrādi-dhāraṇa-bhede nāma-bheda saba\
 > vāsudevera mūrti--keśava, nārāyaṇa, mādhava
 
 *cakra-ādi*—del disco y otras armas; *dhāraṇa*—de sostener; *bhede*—por diferencias; *nāma*—de nombres; *bheda*—diferencias; *saba*—todas; *vāsudevera mūrti*—las expansiones de Vāsudeva; *keśava*—Keśava; *nārāyaṇa*—Nārāyaṇa; *mādhava*—Mādhava.

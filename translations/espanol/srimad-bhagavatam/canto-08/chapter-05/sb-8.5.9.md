@@ -1,11 +1,11 @@
 ### SB 8.5.9
 
-> तत्रापि देवसम्भूत्यां वैराजस्याभवत्सुतः
+> तत्रापि देवसम्भूत्यां वैराजस्याभवत्सुतः\
 > अजितो नाम भगवानंशेन जगतः पतिः ॥९॥
 
-> tatrāpi devasambhūtyāṁ
-> vairājasyābhavat sutaḥ
-> ajito nāma bhagavān
+> tatrāpi devasambhūtyāṁ\
+> vairājasyābhavat sutaḥ\
+> ajito nāma bhagavān\
 > aṁśena jagataḥ patiḥ
 
 *tatra api*—también en el sexto *manvantara*; *devasambhūtyām*—por Deva-sambhūti; *vairājasya*—por su esposo, Vairāja; *abhavat*—hubo; *sutaḥ*—un hijo; *ajitaḥ nāma*—llamado Ajita; *bhagavān*—la Suprema Personalidad de Dios; *aṁśena*—parcialmente; *jagataḥ patiḥ*—el amo del universo.

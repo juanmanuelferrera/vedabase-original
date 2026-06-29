@@ -1,11 +1,11 @@
 ### Bg 6.25
 
-> शनैः शनैरुपरमेद् बुद्ध्या धृतिगृहीतया ।
+> शनैः शनैरुपरमेद् बुद्ध्या धृतिगृहीतया ।\
 > आत्मसंस्थं मनः कृत्वा न किञ्चिदपि चिन्तयेत् ॥२५॥
 
-> śanaiḥ śanair uparamed
-> buddhyā dhṛti-gṛhītayā
-> ātma-saṁsthaṁ manaḥ kṛtvā
+> śanaiḥ śanair uparamed\
+> buddhyā dhṛti-gṛhītayā\
+> ātma-saṁsthaṁ manaḥ kṛtvā\
 > na kiñcid api cintayet
 
 *śanaiḥ*—gradually; *śanaiḥ*—step by step; *uparamet*—hesitated; *buddhyā*—by intelligence; *dhṛti-gṛhītayā*—carrying the conviction; *ātma-saṁstham*—placed in transcendence; *manaḥ*—mind; *kṛtvā*—doing so; *na*—nothing; *kiñcit*—anything else; *api*—even; *cintayet*—be thinking of.

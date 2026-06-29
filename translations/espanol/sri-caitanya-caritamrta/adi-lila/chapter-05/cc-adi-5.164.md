@@ -1,9 +1,9 @@
 ### CC Adi 5.164
 
-> নমস্কার করিতে, কা’র উপরেতে চড়ে ।
+> নমস্কার করিতে, কা’র উপরেতে চড়ে ।\
 > প্রেমে কা’রে বংশী মারে, কাহাকে চাপড়ে ॥১৬৪॥
 
-> namaskāra karite, kā'ra uparete caḍe
+> namaskāra karite, kā'ra uparete caḍe\
 > preme kā're vaṁśī māre, kāhāke cāpaḍe
 
 *namaskāra karite*—al ofrecer reverencias, postrándose; *kā'ra*—de alguien; *uparete*—sobre el cuerpo; *caḍe*—se sube; *preme*—en amor extático; *kā're*—a alguien; *vaṁśī*—la flauta; *māre*—golpea; *kāhāke*—a alguien; *cāpaḍe*—da una palmada.

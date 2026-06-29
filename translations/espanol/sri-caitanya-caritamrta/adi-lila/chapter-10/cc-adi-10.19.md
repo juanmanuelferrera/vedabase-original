@@ -1,9 +1,9 @@
 ### CC Adi 10.19
 
-> “দশসহস্র গন্ধর্ব মোরে দেহ’ চন্দ্রমুখ ।
+> “দশসহস্র গন্ধর্ব মোরে দেহ’ চন্দ্রমুখ ।\
 > তারা গায়, মুঞি নাচোঁ — তবে মোর সুখ ।।” ॥ ১৯ ॥
 
-> "daśa-sahasra gandharva more deha' candramukha
+> "daśa-sahasra gandharva more deha' candramukha\
 > tārā gāya, muñi nācoṅ--tabe mora sukha"
 
 *daśa-sahasra*—diez mil; *gandharva*—residentes de Gandharvaloka; *more*—a mí; *deha'*—por favor entrega; *candra-mukha*—¡oh, de rostro como la luna!; *tārā gāya*—que ellos canten; *muñi nācoṅ*—déjame danzar; *tabe*—entonces; *mora*—mi; *sukha*—felicidad.

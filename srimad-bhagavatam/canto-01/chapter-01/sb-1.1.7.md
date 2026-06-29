@@ -1,11 +1,11 @@
 ### SB 1.1.7
 
-> यानि वेदविदां श्रेष्ठो भगवान्बादरायणः ।
+> यानि वेदविदां श्रेष्ठो भगवान्बादरायणः ।\
 > अन्ये च मुनयः सूत परावरविदो विदुः ॥७॥
 
-> yāni veda-vidāṁ śreṣṭho
-> bhagavān bādarāyaṇaḥ
-> anye ca munayaḥ sūta
+> yāni veda-vidāṁ śreṣṭho\
+> bhagavān bādarāyaṇaḥ\
+> anye ca munayaḥ sūta\
 > parāvara-vido viduḥ
 
 *yāni*—all that; *veda-vidām*—scholars of the *Vedas*; *śreṣṭhaḥ*—seniormost; *bhagavān*—incarnation of Godhead; *bādarāyaṇaḥ*—Vyāsadeva; *anye*—others; *ca*—and; *munayaḥ*—the sages; *sūta*—O Sūta Gosvāmī; *parāvara-vidaḥ*—amongst the learned scholars, one who is conversant with physical and metaphysical knowledge; *viduḥ*—one who knows.

@@ -1,13 +1,13 @@
 ### SB 3.18.1
 
-> मैत्रेय उवाच
-> तदेवमाकर्ण्य जलेशभाषितं महामनास्तद्विगणय्य दुर्मदः ।
+> मैत्रेय उवाच\
+> तदेवमाकर्ण्य जलेशभाषितं महामनास्तद्विगणय्य दुर्मदः ।\
 > हरेर्विदित्वा गतिमङ्ग नारदाद्रसातलं निर्विविशे त्वरान्वितः ॥१॥
 
-> maitreya uvāca
-> tad evam ākarṇya jaleśa-bhāṣitaṁ
-> mahā-manās tad vigaṇayya durmadaḥ
-> harer viditvā gatim aṅga nāradād
+> maitreya uvāca\
+> tad evam ākarṇya jaleśa-bhāṣitaṁ\
+> mahā-manās tad vigaṇayya durmadaḥ\
+> harer viditvā gatim aṅga nāradād\
 > rasātalaṁ nirviviśe tvarānvitaḥ
 
 *maitreyaḥ*—el gran sabio Maitreya; *uvāca*—dijo; *tat*—aquél; *evam*—así; *ākarṇya*—oyendo; *jala-īśa*—del controlador del agua, Varuṇa; *bhāṣitam*—palabras; *mahā-manāḥ*—orgulloso; *tat*—aquellas palabras; *vigaṇayya*—sin haberles prestado mucha atención; *durmadaḥ*—vanidoso; *hareḥ*—de la Suprema Personalidad de Dios; *viditvā*—habiéndose informado; *gatim*—del paradero; *aṅga*—¡oh, querido Vidura!; *nāradāt*—de Nārada; *rasātalam*—a las profundidades del océano; *nirviviśe*—entró; *tvarā-anvitaḥ*—a gran velocidad.

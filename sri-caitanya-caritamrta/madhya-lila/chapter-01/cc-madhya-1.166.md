@@ -1,9 +1,9 @@
 ### CC Madhya 1.166
 
-> ঐছে চলি, আইলা প্রভু ‘রামকেলি’ গ্রাম ।
+> ঐছে চলি, আইলা প্রভু ‘রামকেলি’ গ্রাম ।\
 > গৌড়ের নিকট গ্রাম অতি অনুপাম ॥১৬৬॥
 
-> aiche cali, āilā prabhu 'rāmakeli' grāma
+> aiche cali, āilā prabhu 'rāmakeli' grāma\
 > gauḍera nikaṭa grāma ati anupāma
 
 *aiche*—in that way; *cali*—walking; *āilā*—came; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *rāmakeli grāma*—to the village of the name Rāmakeli; *gauḍera*—Bengal; *nikaṭa*—near; *grāma*—the village; *ati*—very; *anupāma*—exquisite.

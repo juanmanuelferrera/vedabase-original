@@ -1,9 +1,9 @@
 ### CC Antya 4.25
 
-> মথুরার বৈষ্ণব-সবের কুশল পুছিলা ।
+> মথুরার বৈষ্ণব-সবের কুশল পুছিলা ।\
 > সবার কুশল সনাতন জানাইলা ॥২৫॥
 
-> mathurāra vaiṣṇava-sabera kuśala puchilā
+> mathurāra vaiṣṇava-sabera kuśala puchilā\
 > sabāra kuśala sanātana jānāilā
 
 *mathurāra*—de Mathurā; *vaiṣṇava-sabera*—de todos los vaiṣṇavas; *kuśala puchilā*—preguntó por el bienestar; *sabāra kuśala*—el bienestar de todos ellos; *sanātana*—Sanātana Gosvāmī; *jānāilā*—informó.

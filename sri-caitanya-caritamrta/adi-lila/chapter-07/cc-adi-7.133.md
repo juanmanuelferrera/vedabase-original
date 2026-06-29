@@ -1,9 +1,9 @@
 ### CC Adi 7.133
 
-> এই মত প্রতিসূত্রে সহজার্থ ছাড়িয়া ।
+> এই মত প্রতিসূত্রে সহজার্থ ছাড়িয়া ।\
 > গৌণার্থ ব্যাখ্যা করে কল্পনা করিয়া ॥১৩৩॥
 
-> ei mata pratisūtre sahajārtha chāḍiyā
+> ei mata pratisūtre sahajārtha chāḍiyā\
 > gauṇārtha vyākhyā kare kalpanā kariyā
 
 *ei mata*—like this; *prati-sūtre*—in every *sūtra,* or aphorism, of the *Vedānta-sūtra*; *sahaja-artha*—the clear, simple meaning; *chāḍiyā*—giving up; *gauṇa-artha*—indirect meaning; *vyākhyā*—explanation; *kare*—he makes; *kalpanākariyā*—by imagination.

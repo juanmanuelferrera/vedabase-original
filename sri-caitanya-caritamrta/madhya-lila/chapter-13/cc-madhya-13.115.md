@@ -1,9 +1,9 @@
 ### CC Madhya 13.115
 
-> ধীরে ধীরে জগন্নাথ করেন গমন ।
+> ধীরে ধীরে জগন্নাথ করেন গমন ।\
 > আগে নৃত্য করি’ চলেন শচীর নন্দন ॥১১৫॥
 
-> dhīre dhīre jagannātha karena gamana
+> dhīre dhīre jagannātha karena gamana\
 > āge nṛtya kari' calena śacīra nandana
 
 *dhīredhīre*—slowly, slowly; *jagannātha*—Lord Jagannātha; *karena*—does; *gamana*—movement; *āge*—in front; *nṛtya*—dancing; *kari'*—performing; *calena*—goes forward; *śacīra nandana*—the son of mother Śacī.

@@ -1,11 +1,11 @@
 ### SB 3.4.24
 
-> स तं महाभागवतं व्रजन्तं कौरवर्षभः ।
+> स तं महाभागवतं व्रजन्तं कौरवर्षभः ।\
 > विश्रम्भादभ्यधत्तेदं मुख्यं कृष्णपरिग्रहे ॥२४॥
 
-> sa taṁ mahā-bhāgavataṁ
-> vrajantaṁ kauravarṣabhaḥ
-> viśrambhād abhyadhattedaṁ
+> sa taṁ mahā-bhāgavataṁ\
+> vrajantaṁ kauravarṣabhaḥ\
+> viśrambhād abhyadhattedaṁ\
 > mukhyaṁ kṛṣṇa-parigrahe
 
 *saḥ*—Vidura; *tam*—unto Uddhava; *mahā-bhāgavatam*—the great devotee of the Lord; *vrajantam*—while going; *kaurava-ṛṣabhaḥ*—the best amongst the Kauravas; *viśrambhāt*—out of confidence; *abhyadhatta*—submitted; *idam*—this; *mukhyam*—unto the chief; *kṛṣṇa*—Lord Kṛṣṇa; *parigrahe*—in devotional service to the Lord.

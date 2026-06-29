@@ -1,11 +1,11 @@
 ### SB 2.6.5
 
-> रोमाण्युद्भिज्जजातीनां यैर्वा यज्ञस्तु सम्भृतः ।
+> रोमाण्युद्भिज्जजातीनां यैर्वा यज्ञस्तु सम्भृतः ।\
 > केशश्मश्रुनखान्यस्य शिलालोहाभ्रविद्युताम् ॥५॥
 
-> romāṇy udbhijja-jātīnāṁ
-> yair vā yajñas tu sambhṛtaḥ
-> keśa-śmaśru-nakhāny asya
+> romāṇy udbhijja-jātīnāṁ\
+> yair vā yajñas tu sambhṛtaḥ\
+> keśa-śmaśru-nakhāny asya\
 > śilā-lohābhra-vidyutām
 
 *romāṇi*—hairs on the body; *udbhijja*—vegetables; *jātīnām*—of the kingdoms; *yaiḥ*—by which; *vā*—either; *yajñaḥ*—sacrifices; *tu*—but; *sambhṛtaḥ*—particularly served; *keśa*—hairs on the head; *śmaśru*—facial hair; *nakhāni*—nails; *asya*—of Him; *śilā*—stones; *loha*—iron ores; *abhra*—clouds; *vidyutām*—electricity.

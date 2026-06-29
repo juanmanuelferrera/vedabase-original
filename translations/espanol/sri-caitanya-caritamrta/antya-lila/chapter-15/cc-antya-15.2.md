@@ -1,9 +1,9 @@
 ### CC Antya 15.2
 
-> জয় জয় শ্রীকৃষ্ণচৈতন্য অধীশ্বর ।
+> জয় জয় শ্রীকৃষ্ণচৈতন্য অধীশ্বর ।\
 > জয় নিত্যানন্দ পূর্ণানন্দ-কলেবর ॥২॥
 
-> jaya jaya śrī-kṛṣṇa-caitanya adhīśvara
+> jaya jaya śrī-kṛṣṇa-caitanya adhīśvara\
 > jaya nityānanda pūrṇānanda-kalevara
 
 *jaya jaya*—¡todas las glorias!; *śrī-kṛṣṇa-caitanya*—al Señor Caitanya Mahāprabhu; *adhīśvara*—la Suprema Personalidad de Dios; *jaya*—¡todas las glorias!; *nityānanda*—al Señor Nityānanda; *pūrṇa-ānanda*—lleno de dicha trascendental; *kalevara*—Su cuerpo.

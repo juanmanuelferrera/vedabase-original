@@ -1,9 +1,9 @@
 ### CC Madhya 17.185
 
-> ধর্ম-স্থাপন-হেতু সাধুর ব্যবহার ।
+> ধর্ম-স্থাপন-হেতু সাধুর ব্যবহার ।\
 > পুরী-গোসাঞির যে আচরণ, সেই ধর্ম সার ॥১৮৫॥
 
-> dharma-sthāpana-hetu sādhura vyavahāra
+> dharma-sthāpana-hetu sādhura vyavahāra\
 > purī-gosāñira ye ācaraṇa, sei dharma sāra
 
 *dharma-sthāpana-hetu*—para establecer los principios de la religión; *sādhura vyavahāra*—el comportamiento de un devoto; *purī-gosāñira*—de Mādhavendra Purī; *ye ācaraṇa*—el comportamiento; *sei*—esa; *dharma sāra*—la esencia de toda religión.

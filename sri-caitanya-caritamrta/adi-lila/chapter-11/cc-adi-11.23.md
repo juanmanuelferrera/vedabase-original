@@ -1,9 +1,9 @@
 ### CC Adi 11.23
 
-> সুন্দরানন্দ — নিত্যানন্দের শাখা, ভৃত্য মর্ম ।
+> সুন্দরানন্দ — নিত্যানন্দের শাখা, ভৃত্য মর্ম ।\
 > যাঁর সঙ্গে নিত্যানন্দ করে ব্রজনর্ম ॥২৩॥
 
-> sundarānanda—nityānandera śākhā, bhṛtya marma
+> sundarānanda—nityānandera śākhā, bhṛtya marma\
 > yāṅra saṅge nityānanda kare vraja-narma
 
 *sundarānanda*—of the name Sundarānanda; *nityānandera śākhā*—a branch of Nityānanda Prabhu; *bhṛtya marma*—very intimate servant; *yāṅra saṅge*—with whom; *nityānanda*—Lord Nityānanda; *kare*—performs; *vraja-narma*—activities of Vṛndāvana.

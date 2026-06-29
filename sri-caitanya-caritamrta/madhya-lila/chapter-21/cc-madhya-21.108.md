@@ -1,13 +1,13 @@
 ### CC Madhya 21.108
 
-> নিজ-সম সখা-সঙ্গে, গোগণ-চারণ রঙ্গে,
-> বৃন্দাবনে স্বচ্ছন্দ বিহার ।
-> যাঁর বেণু-ধ্বনি শুনি,’ স্থাবর-জঙ্গম প্রাণী,
+> নিজ-সম সখা-সঙ্গে, গোগণ-চারণ রঙ্গে,\
+> বৃন্দাবনে স্বচ্ছন্দ বিহার ।\
+> যাঁর বেণু-ধ্বনি শুনি,’ স্থাবর-জঙ্গম প্রাণী,\
 > পুলক, কম্প, অশ্রু বহে ধার ॥১০৮॥
 
-> nija-sama sakhā-saṅge, go-gaṇa-cāraṇa raṅge,
-> vṛndāvane svacchanda vihāra
-> yāṅra veṇu-dhvani śuni' sthāvara-jaṅgama prāṇī,
+> nija-sama sakhā-saṅge, go-gaṇa-cāraṇa raṅge,\
+> vṛndāvane svacchanda vihāra\
+> yāṅra veṇu-dhvani śuni' sthāvara-jaṅgama prāṇī,\
 > pulaka, kampa, aśru vahe dhāra
 
 *nija-sama*—equal to Himself; *sakhā-saṅge*—with the friends; *go-gaṇa*—an unlimited number of cows; *cāraṇa*—tending; *raṅge*—such pastimes; *vṛndāvane*—in Vṛndāvana; *svacchanda*—spontaneous; *vihāra*—blissful enjoyment; *yāṅra*—of whom; *veṇu-dhvani śuni'*—hearing the vibration of the flute; *sthāvara-jaṅgama prāṇī*—all living entities, moving and not moving; *pulaka*—jubilation; *kampa*—trembling; *aśru*—tears; *vahe*—flow; *dhāra*—streams.

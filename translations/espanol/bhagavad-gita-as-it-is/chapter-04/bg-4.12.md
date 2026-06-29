@@ -1,11 +1,11 @@
 ### Bg 4.12
 
-> काङ्क्षन्तः कर्मणां सिद्धिं यजन्त इह देवताः ।
+> काङ्क्षन्तः कर्मणां सिद्धिं यजन्त इह देवताः ।\
 > क्षिप्रं हि मानुषे लोके सिद्धिर्भवति कर्मजा ॥१२॥
 
-> kāṅkṣantaḥ karmaṇāṁ siddhiṁ
-> yajanta iha devatāḥ
-> kṣipraṁ hi mānuṣe loke
+> kāṅkṣantaḥ karmaṇāṁ siddhiṁ\
+> yajanta iha devatāḥ\
+> kṣipraṁ hi mānuṣe loke\
 > siddhir bhavati karmajā
 
 *kāṅkṣantaḥ*—deseando; *karmaṇām*—de las actividades fruitivas; *siddhim*—perfección; *yajante*—adoran mediante los sacrificios; *iha*—en el mundo material; *devatāḥ*—los semidioses; *kṣipram*—muy rápidamente; *hi*—ciertamente; *mānuṣe*—en la sociedad humana; *loke*—dentro de este mundo; *siddhiḥ bhavati*—alcanza el éxito; *karmajā*—del trabajador fruitivo.

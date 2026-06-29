@@ -1,9 +1,9 @@
 ### CC Madhya 20.362
 
-> এই সব কার্য — তাঁর তটস্থ-লক্ষণ ।
+> এই সব কার্য — তাঁর তটস্থ-লক্ষণ ।\
 > অন্য অবতার ঐছে জানে মুনিগণ ॥৩৬২॥
 
-> ei saba kārya--tāṅra taṭastha-lakṣaṇa
+> ei saba kārya--tāṅra taṭastha-lakṣaṇa\
 > anya avatāra aiche jāne muni-gaṇa
 
 *ei saba kārya*—todas estas actividades; *tāṅra*—Sus; *taṭastha-lakṣaṇa*—características marginales; *anya avatāra*—otra encarnación; *aiche*—del mismo modo; *jāne*—conocen; *muni-gaṇa*—las grandes personas santas como Vyāsadeva.

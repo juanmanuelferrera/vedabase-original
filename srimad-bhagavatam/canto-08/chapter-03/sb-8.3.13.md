@@ -1,11 +1,11 @@
 ### SB 8.3.13
 
-> क्षेत्रज्ञआय नमस्तुभ्यं सर्वाध्यक्षाय साक्षिणे
+> क्षेत्रज्ञआय नमस्तुभ्यं सर्वाध्यक्षाय साक्षिणे\
 > पुरुषायात्ममूलाय मूलप्रकृतये नमः ॥१३॥
 
-> kṣetra-jñāya namas tubhyaṁ
-> sarvādhyakṣāya sākṣiṇe
-> puruṣāyātma-mūlāya
+> kṣetra-jñāya namas tubhyaṁ\
+> sarvādhyakṣāya sākṣiṇe\
+> puruṣāyātma-mūlāya\
 > mūla-prakṛtaye namaḥ
 
 *kṣetra-jñāya*—unto the one who knows everything of the external body; *namaḥ*—I offer my respectful obeisances; *tubhyam*—unto You; *sarva*—everything; *adhyakṣāya*—who are superintending, managing; *sākṣiṇe*—who are the witness, Paramātmā, or *antaryāmī*; *puruṣāya*—the Supreme Person; *ātma-mūlāya*—who are the original source of everything; *mūla-prakṛtaye*—unto the *puruṣa-avatāra,* the origin of *prakṛti* and *pradhāna*; *namaḥ*—I offer my respectful obeisances.

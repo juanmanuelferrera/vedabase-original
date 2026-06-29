@@ -1,11 +1,11 @@
 ### SB 3.27.4
 
-> अर्थे ह्यविद्यमानेऽपि संसृतिर्न निवर्तते ।
+> अर्थे ह्यविद्यमानेऽपि संसृतिर्न निवर्तते ।\
 > ध्यायतो विषयानस्य स्वप्नेऽनर्थागमो यथा ॥४॥
 
-> arthe hy avidyamāne 'pi
-> saṁsṛtir na nivartate
-> dhyāyato viṣayān asya
+> arthe hy avidyamāne 'pi\
+> saṁsṛtir na nivartate\
+> dhyāyato viṣayān asya\
 > svapne 'narthāgamo yathā
 
 *arthe*—causa real; *hi*—ciertamente; *avidyamāne*—no existiendo; *api*—aunque; *saṁsṛtiḥ*—la condición material de existencia; *na*—no; *nivartate*—cesa; *dhyāyataḥ*—contemplando; *viṣayān*—objetos de los sentidos; *asya*—de la entidad viviente; *svapne*—en un sueño; *anartha*—de inconvenientes; *āgamaḥ*—llegada; *yathā*—como.

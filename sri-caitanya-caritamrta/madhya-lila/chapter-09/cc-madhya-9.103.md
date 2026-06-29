@@ -1,9 +1,9 @@
 ### CC Madhya 9.103
 
-> এত বলি’ সেই বিপ্রে কৈল আলিঙ্গন ।
+> এত বলি’ সেই বিপ্রে কৈল আলিঙ্গন ।\
 > প্রভু-পদ ধরি’ বিপ্র করেন রোদন ॥১০৩॥
 
-> eta bali' sei vipre kaila āliṅgana
+> eta bali' sei vipre kaila āliṅgana\
 > prabhu-pada dhari' vipra karena rodana
 
 *eta bali'*—saying this; *sei vipre*—that *brāhmaṇa*; *kaila āliṅgana*—He embraced; *prabhu-pada*—the lotus feet of Lord Śrī Caitanya Mahāprabhu; *dhari'*—catching; *vipra*—the *brāhmaṇa*; *karena*—does; *rodana*—crying.

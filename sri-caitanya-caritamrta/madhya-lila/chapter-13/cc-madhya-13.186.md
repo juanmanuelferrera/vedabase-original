@@ -1,9 +1,9 @@
 ### CC Madhya 13.186
 
-> প্রভুর বচনে রাজার মনে হৈল ভয় ।
+> প্রভুর বচনে রাজার মনে হৈল ভয় ।\
 > সার্বভৌম কহে, — তুমি না কর সংশয় ॥১৮৬॥
 
-> prabhura vacane rājāra mane haila bhaya
+> prabhura vacane rājāra mane haila bhaya\
 > sārvabhauma kahe,-tumi nā kaya saṁśaya
 
 *prabhura vacane*—by the words of Śrī Caitanya Mahāprabhu; *rājāra*—of the King; *mane*—in the mind; *haila*—there was; *bhaya*—fear; *sārvabhauma kahe*—Sārvabhauma Bhaṭṭācārya said; *tumi*—you (the King); *nā kaya saṁśaya*—do not be worried.

@@ -1,9 +1,9 @@
 ### CC Antya 12.83
 
-> নিজ-কৃপাগুণে প্রভু বান্ধিলা সবারে ।
+> নিজ-কৃপাগুণে প্রভু বান্ধিলা সবারে ।\
 > মহাপ্রভুর কৃপা-ঋণ কে শোধিতে পারে ? ॥ ৮৩ ॥
 
-> nija-kṛpā-guṇe prabhu bāndhilā sabāre
+> nija-kṛpā-guṇe prabhu bāndhilā sabāre\
 > mahāprabhura kṛpā-ṛṇa ke śodhite pāre?
 
 *nija*—own; *kṛpā-guṇe*—by the attribute of mercy; *prabhu*—Śrī Caitanya Mahāprabhu; *bāndhilā*—bound; *sabāre*—everyone; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *kṛpā-ṛṇa*—debt for the mercy; *ke*—who; *śodhite pāre*—can repay.

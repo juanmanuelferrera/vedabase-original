@@ -1,13 +1,13 @@
 ### SB 2.5.9
 
-> ब्रह्मोवाच
-> सम्यक्कारुणिकस्येदं वत्स ते विचिकित्सितम् ।
+> ब्रह्मोवाच\
+> सम्यक्कारुणिकस्येदं वत्स ते विचिकित्सितम् ।\
 > यदहं चोदितः सौम्य भगवद्वीर्यदर्शने ॥९॥
 
-> brahmovāca
-> samyak kāruṇikasyedaṁ
-> vatsa te vicikitsitam
-> yad ahaṁ coditaḥ saumya
+> brahmovāca\
+> samyak kāruṇikasyedaṁ\
+> vatsa te vicikitsitam\
+> yad ahaṁ coditaḥ saumya\
 > bhagavad-vīrya-darśane
 
 *brahmā uvāca*—Lord Brahmā said; *samyak*—perfectly; *kāruṇikasya*—of you, who are very kind; *idam*—this; *vatsa*—my dear boy; *te*—your; *vicikitsitam*—inquisitiveness; *yat*—by which; *aham*—myself; *coditaḥ*—inspired; *saumya*—O gentle one; *bhagavat*—of the Personality of Godhead; *vīrya*—prowess; *darśane*—in the matter of.

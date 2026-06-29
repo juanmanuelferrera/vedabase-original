@@ -1,9 +1,9 @@
 ### CC Antya 12.12
 
-> শিবানন্দ-পত্নী চলে তিন-পুত্র লঞা ।
+> শিবানন্দ-পত্নী চলে তিন-পুত্র লঞা ।\
 > রাঘব-পণ্ডিত চলে ঝালি সাজাঞা ॥১২॥
 
-> śivānanda-patnī cale tina-putra lañā
+> śivānanda-patnī cale tina-putra lañā\
 > rāghava-paṇḍita cale jhāli sājāñā
 
 *śivānanda-patnī*—la esposa de Śivānanda; *cale*—iba; *tina-putra lañā*—acompañada de sus tres hijos; *rāghava-paṇḍita cale*—Rāghava Paṇḍita iba; *jhāli sājāñā*—llevando sus bolsas.

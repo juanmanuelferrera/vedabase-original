@@ -1,9 +1,9 @@
 ### CC Madhya 13.64
 
-> কভু এক মূর্তি, কভু হন বহু-মূর্তি ।
+> কভু এক মূর্তি, কভু হন বহু-মূর্তি ।\
 > কার্য-অনুরূপ প্রভু প্রকাশয়ে শক্তি ॥৬৪॥
 
-> kabhu eka mūrti, kabhu hana bahu-mūrti
+> kabhu eka mūrti, kabhu hana bahu-mūrti\
 > kārya-anurūpa prabhu prakāśaye śakti
 
 *kabhu*—a veces; *eka mūrti*—una forma; *kabhu*—a veces; *hana*—se convierte en; *bahu-mūrti*—muchas formas; *kārya-anurūpa*—según el programa de actividades; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *prakāśaye*—exhibe; *śakti*—Su potencia interna.

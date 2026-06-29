@@ -1,11 +1,11 @@
 ### SB 7.2.53
 
-> अहो अकरुणो देवः स्त्रियाकरुणया विभुः
+> अहो अकरुणो देवः स्त्रियाकरुणया विभुः\
 > कृपणं मामनुशोचन्त्या दीनया किं करिष्यति ॥५३॥
 
-> aho akaruṇo devaḥ
-> striyākaruṇayā vibhuḥ
-> kṛpaṇaṁ mām anuśocantyā
+> aho akaruṇo devaḥ\
+> striyākaruṇayā vibhuḥ\
+> kṛpaṇaṁ mām anuśocantyā\
 > dīnayā kiṁ kariṣyati
 
 *aho*—alas; *akaruṇaḥ*—most unkind; *devaḥ*—providence; *striyā*—with my wife; *ākaruṇayā*—who is fully compassionate; *vibhuḥ*—the Supreme Lord; *kṛpaṇam*—poor; *mām*—me; *anuśocantyā*—lamenting for; *dīnayā*—poor; *kim*—what; *kariṣyati*—shall do.

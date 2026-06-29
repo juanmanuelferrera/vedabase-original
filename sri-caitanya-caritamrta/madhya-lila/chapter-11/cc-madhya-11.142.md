@@ -1,9 +1,9 @@
 ### CC Madhya 11.142
 
-> স্বরূপের ঠাঁই আছে, লহ তা লিখিয়া ।
+> স্বরূপের ঠাঁই আছে, লহ তা লিখিয়া ।\
 > বাসুদেব আনন্দিত পুস্তক পাঞা ॥১৪২॥
 
-> svarūpera ṭhāṅi āche, laha tā likhiyā
+> svarūpera ṭhāṅi āche, laha tā likhiyā\
 > vāsudeva ānandita pustaka pāñā
 
 *svarūpera ṭhāṅi*—in the possession of Svarūpa Dāmodara; *āche*—they are; *laha*—you take; *tā*—them; *likhiyā*—copying; *vāsudeva*—Vāsudeva; *ānandita*—very glad; *pustaka*—the books; *pāñā*—getting.

@@ -1,11 +1,11 @@
 ### SB 1.9.44
 
-> सम्पद्यमानमाज्ञाय भीष्मं ब्रह्मणि निष्कले ।
+> सम्पद्यमानमाज्ञाय भीष्मं ब्रह्मणि निष्कले ।\
 > सर्वे बभूवुस्ते तूष्णीं वयांसीव दिनात्यये ॥४४॥
 
-> sampadyamānam ājñāya
-> bhīṣmaṁ brahmaṇi niṣkale
-> sarve babhūvus te tūṣṇīṁ
+> sampadyamānam ājñāya\
+> bhīṣmaṁ brahmaṇi niṣkale\
+> sarve babhūvus te tūṣṇīṁ\
 > vayāṁsīva dinātyaye
 
 *sampadyamānam*—habiéndose fundido en; *ājñāya*—después de saber esto; *bhīṣmam*—acerca de Śrī Bhīṣmadeva; *brahmaṇi*—en el Absoluto Supremo; *niṣkale*—ilimitado; *sarve*—todos los presentes; *babhūvuḥ te*—todos ellos; *tūṣṇīm*—callaron; *vayāṁsi iva*—como pájaros; *dina-atyaye*—al final del día.

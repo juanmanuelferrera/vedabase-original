@@ -1,9 +1,9 @@
 ### CC Adi 3.57
 
-> দেহকান্ত্যে হয় তেঁহো অকৃষ্ণবরণ ।
+> দেহকান্ত্যে হয় তেঁহো অকৃষ্ণবরণ ।\
 > অকৃষ্ণবরণে কহে পীতবরণ ॥৫৭॥
 
-> deha-kāntye haya teṅho akṛṣṇa-varaṇa
+> deha-kāntye haya teṅho akṛṣṇa-varaṇa\
 > akṛṣṇa-varaṇe kahe pīta-varaṇa
 
 *deha-kāntye*—en el lustre del cuerpo; *haya*—es; *teṅho*—Él; *akṛṣṇa*—no negro; *varaṇa*—la tez; *akṛṣṇa-varaṇe*—mediante una tez que no es negruzca; *kahe*—se designa; *pīta*—amarilla; *varaṇa*—la tez.

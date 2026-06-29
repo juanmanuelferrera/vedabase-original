@@ -1,9 +1,9 @@
 ### CC Madhya 18.99
 
-> ভট্টাচার্য তবে কহে প্রভুর চরণে ।
+> ভট্টাচার্য তবে কহে প্রভুর চরণে ।\
 > ‘আজ্ঞা দেহ’, যাই’ করি কৃষ্ণ দরশনে !’ ॥ ৯৯ ॥
 
-> bhaṭṭācārya tabe kahe prabhura caraṇe
+> bhaṭṭācārya tabe kahe prabhura caraṇe\
 > 'ājñā deha', yāi' kari kṛṣṇa daraśane!'
 
 *bhaṭṭācārya*—Balabhadra Bhaṭṭācārya; *tabe*—en ese momento; *kahe*—dice; *prabhura caraṇe*—a los pies de loto de Śrī Caitanya Mahāprabhu; *ājñā deha'*—por favor, dame permiso; *yāi'*—yendo; *kari kṛṣṇa daraśane*—veré al Señor Kṛṣṇa directamente.

@@ -1,11 +1,11 @@
 ### SB 4.21.5
 
-> शङ्खदुन्दुभिघोषेण ब्रह्मघोषेण चर्त्विजाम् ।
+> शङ्खदुन्दुभिघोषेण ब्रह्मघोषेण चर्त्विजाम् ।\
 > विवेश भवनं वीरः स्तूयमानो गतस्मयः ॥५॥
 
-> śaṅkha-dundubhi-ghoṣeṇa
-> brahma-ghoṣeṇa cartvijām
-> viveśa bhavanaṁ vīraḥ
+> śaṅkha-dundubhi-ghoṣeṇa\
+> brahma-ghoṣeṇa cartvijām\
+> viveśa bhavanaṁ vīraḥ\
 > stūyamāno gata-smayaḥ
 
 *śaṅkha*—conchshells; *dundubhi*—kettledrums; *ghoṣeṇa*—by the sound of; *brahma*—Vedic; *ghoṣeṇa*—chanting; *ca*—also; *ṛtvijām*—of the priests; *viveśa*—entered; *bhavanam*—the palace; *vīraḥ*—the King; *stūyamānaḥ*—being worshiped; *gata-smayaḥ*—without pride.

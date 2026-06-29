@@ -1,9 +1,9 @@
 ### CC Madhya 6.136
 
-> জীবের অস্থি-বিষ্ঠা দুই — শঙ্খ-গোময় ।
+> জীবের অস্থি-বিষ্ঠা দুই — শঙ্খ-গোময় ।\
 > শ্রুতি-বাক্যে সেই দুই মহা-পবিত্র হয় ॥১৩৬॥
 
-> jīvera asthi-viṣṭhā dui--śaṅkha-gomaya
+> jīvera asthi-viṣṭhā dui--śaṅkha-gomaya\
 > śruti-vākye sei dui mahā-pavitra haya
 
 *jīvera*—de la entidad viviente; *asthi*—el hueso; *viṣṭhā*—excremento; *dui*—dos; *śaṅkha*—caracola; *go-maya*—boñiga de vaca; *śruti-vākye*—en las palabras de la versión Védica; *sei*—esos; *dui*—dos; *mahā*—sumamente; *pavitra*—puros; *haya*—son.

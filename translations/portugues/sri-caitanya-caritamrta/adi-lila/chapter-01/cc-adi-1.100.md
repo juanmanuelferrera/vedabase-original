@@ -1,6 +1,6 @@
 ### CC Adi 1.100
 
-> dui bhāgavata dvārā diyā bhakti-rasa
+> dui bhāgavata dvārā diyā bhakti-rasa\
 > tāṅhāra hṛdaye tāṅra preme haya vaśa
 
 *dui*—dois; *bhāgavata*—os *bhāgavatas*; *dvārā*—por meio de; *diyā*—dando; *bhakti-rasa*—inspiração devocional; *tāṅhāra*—de Seu devoto; *hṛdaye*—no coração; *tāṅra*—dele; *preme*—pelo amor; *haya*—fica; *vaśa*—sob controle.

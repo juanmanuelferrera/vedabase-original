@@ -1,11 +1,11 @@
 ### SB 8.21.19
 
-> हे विप्रचित्ते हे राहो हे नेमे श्रूयतां वचः
+> हे विप्रचित्ते हे राहो हे नेमे श्रूयतां वचः\
 > मा युध्यत निवर्तध्वं न नः कालोऽयमर्थकृत ॥१९॥
 
-> he vipracitte he rāho
-> he neme śrūyatāṁ vacaḥ
-> mā yudhyata nivartadhvaṁ
+> he vipracitte he rāho\
+> he neme śrūyatāṁ vacaḥ\
+> mā yudhyata nivartadhvaṁ\
 > na naḥ kālo 'yam artha-kṛt
 
 *he vipracitte*—¡oh, Vipracitti!; *he rāho*—¡oh, Rāhu!; *he neme*—¡oh, Nemi!; *śrūyatām*—por favor, escucha; *vacaḥ*—mis palabras; *mā*—no; *yudhyata*—luches; *nivartadhvam*—detén la lucha; *na*—no; *naḥ*—nuestro; *kālaḥ*—momento favorable; *ayam*—este; *artha-kṛt*—que puede traernos el éxito.

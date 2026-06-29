@@ -1,9 +1,9 @@
 ### CC Antya 18.14
 
-> কোটিযুগ পর্যন্ত যদি লিখয়ে গণেশ ।
+> কোটিযুগ পর্যন্ত যদি লিখয়ে গণেশ ।\
 > একদিনের লীলার তবু নাহি পায় শেষ ॥১৪॥
 
-> koṭi-yuga paryanta yadi likhaye gaṇeśa
+> koṭi-yuga paryanta yadi likhaye gaṇeśa\
 > eka-dinera līlāra tabu nāhi pāya śeṣa
 
 *koṭi-yuga*—millions of millenniums; *paryanta*—to the extent of; *yadi*—if; *likhaye*—writes; *gaṇeśa*—the demigod Gaṇeśa (son of Lord Śiva); *eka-dinera*—of one day; *līlāra*—of pastimes; *tabu*—still; *nāhi pāya*—can not reach; *śeṣa*—the limit.

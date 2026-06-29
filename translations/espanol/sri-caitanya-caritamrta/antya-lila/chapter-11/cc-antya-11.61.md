@@ -1,9 +1,9 @@
 ### CC Antya 11.61
 
-> এইমতে নৃত্য প্রভু কৈলা কতক্ষণ ।
+> এইমতে নৃত্য প্রভু কৈলা কতক্ষণ ।\
 > স্বরূপ-গোসাঞি প্রভুরে করাইল সাবধান ॥৬১॥
 
-> ei-mate nṛtya prabhu kailā kata-kṣaṇa
+> ei-mate nṛtya prabhu kailā kata-kṣaṇa\
 > svarūpa-gosāñi prabhure karāila sāvadhāna
 
 *ei-mate*—de esta manera; *nṛtya*—danza; *prabhu*—Śrī Caitanya Mahāprabhu; *kailā*—realizó; *kata-kṣaṇa*—durante algún tiempo; *svarūpa-gosāñi*—Svarūpa Dāmodara Gosvāmī; *prabhure*—a Śrī Caitanya Mahāprabhu; *karāila*—hizo que realizara; *sāvadhāna*—atención a otros rituales.

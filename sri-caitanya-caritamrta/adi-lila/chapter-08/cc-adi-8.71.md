@@ -1,9 +1,9 @@
 ### CC Adi 8.71
 
-> আর যত বৃন্দাবনে বৈসে ভক্তগণ ।
+> আর যত বৃন্দাবনে বৈসে ভক্তগণ ।\
 > শেষ-লীলা শুনিতে সবার হৈল মন ॥৭১॥
 
-> āra yata vṛndāvane baise bhakta-gaṇa
+> āra yata vṛndāvane baise bhakta-gaṇa\
 > śeṣa-līlā śunite sabāra haila mana
 
 *āra yata*—there are many others; *vṛndāvane*—in Vṛndāvana; *baise*—residents; *bhakta-gaṇa*—great devotees; *śeṣa-līlā*—the last portions of Caitanya Mahāprabhu's pastimes; *śunite*—to hear; *sabāra*—of everyone; *haila*—became; *mana*—the mind.

@@ -1,20 +1,20 @@
 ### SB 8.5.11-12
 
-> श्रीराजोवाच
-> यथा भगवता ब्रह्मन्मथितः क्षीरसागरः
-> यदर्थं वा यतश्चाद्रिं दधाराम्बुचरात्मना ॥११॥
-> यथामृतं सुरैः प्राप्तं किं चान्यदभवत्ततः
+> श्रीराजोवाच\
+> यथा भगवता ब्रह्मन्मथितः क्षीरसागरः\
+> यदर्थं वा यतश्चाद्रिं दधाराम्बुचरात्मना ॥११॥\
+> यथामृतं सुरैः प्राप्तं किं चान्यदभवत्ततः\
 > एतद्भगवतः कर्म वदस्व परमाद्भुतम ॥१२॥
 
-> śrī-rājovāca
-> yathā bhagavatā brahman
-> mathitaḥ kṣīra-sāgaraḥ
-> yad-arthaṁ vā yataś cādriṁ
+> śrī-rājovāca\
+> yathā bhagavatā brahman\
+> mathitaḥ kṣīra-sāgaraḥ\
+> yad-arthaṁ vā yataś cādriṁ\
 > dadhārāmbucarātmanā
 
-> yathāmṛtaṁ suraiḥ prāptaṁ
-> kiṁ cānyad abhavat tataḥ
-> etad bhagavataḥ karma
+> yathāmṛtaṁ suraiḥ prāptaṁ\
+> kiṁ cānyad abhavat tataḥ\
+> etad bhagavataḥ karma\
 > vadasva paramādbhutam
 
 *śrī-rājā uvāca*—el rey Parīkṣit preguntó; *yathā*—como; *bhagavatā*—por la Suprema Personalidad de Dios; *brahman*—¡oh, *brāhmaṇa* erudito!; *mathitaḥ*—batido; *kṣīra-sāgaraḥ*—el océano de leche; *yat-artham*—cuál era el objetivo; *vā*—o; *yataḥ*—de dónde, por qué razón; *ca*—y; *adrim*—la montaña (Mandara); *dadhāra*—se quedaba; *ambucara-ātmanā*—en forma de tortuga; *yathā*—como; *amṛtam*—néctar; *suraiḥ*—por los semidioses; *prāptam*—fue obtenido; *kim*—qué; *ca*—y; *anyat*—otras; *abhavat*—fueron; *tataḥ*—a continuación; *etat*—todos estos; *bhagavataḥ*—de la Suprema Personalidad de Dios; *karma*—pasatiempos, actividades; *vadasva*—explícame, por favor; *parama-adbhutam*—pues son tan maravillosos.

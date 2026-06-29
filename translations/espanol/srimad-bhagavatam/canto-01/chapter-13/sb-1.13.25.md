@@ -1,11 +1,11 @@
 ### SB 1.13.25
 
-> तस्यापि तव देहोऽयं कृपणस्य जिजीविषोः ।
+> तस्यापि तव देहोऽयं कृपणस्य जिजीविषोः ।\
 > परैत्यनिच्छतो जीर्णो जरया वाससी इव ॥२५॥
 
-> tasyāpi tava deho 'yaṁ
-> kṛpaṇasya jijīviṣoḥ
-> paraity anicchato jīrṇo
+> tasyāpi tava deho 'yaṁ\
+> kṛpaṇasya jijīviṣoḥ\
+> paraity anicchato jīrṇo\
 > jarayā vāsasī iva
 
 *tasya*—de esto; *api*—a pesar de; *tava*—tu; *dehaḥ*—cuerpo; *ayam*—este; *kṛpaṇasya*—de alguien que es avaro; *jijīviṣoḥ*—de ti, que deseas la vida; *paraiti*—decaerá; *anicchataḥ*—incluso en contra de la voluntad; *jīrṇaḥ*—deteriorado; *jarayā*—vieja; *vāsasī*—ropa; *iva*—como.

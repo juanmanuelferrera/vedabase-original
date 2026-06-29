@@ -1,9 +1,9 @@
 ### CC Adi 17.142
 
-> উদ্ধত লোক ভাঙ্গে কাজীর ঘর-পুষ্পবন ।
+> উদ্ধত লোক ভাঙ্গে কাজীর ঘর-পুষ্পবন ।\
 > বিস্তারি’ বর্ণিলা ইহা দাস-বৃন্দাবন ॥১৪২॥
 
-> uddhata loka bhāṅge kājīra ghara-puṣpavana
+> uddhata loka bhāṅge kājīra ghara-puṣpavana\
 > vistāri' varṇilā ihā dāsa-vṛndāvana
 
 *uddhata*—agitated; *loka*—persons; *bhāṅge*—break; *kājīra*—of the Kazi; *ghara*—house; *puṣpa-vana*—flower garden; *vistāri'*—elaborately; *varṇilā*—described; *ihā*—this; *dāsa-vṛndāvana*—Śrīla Vṛndāvana dāsa Ṭhākura.

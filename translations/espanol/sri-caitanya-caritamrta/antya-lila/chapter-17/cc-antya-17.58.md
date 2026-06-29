@@ -1,13 +1,13 @@
 ### CC Antya 17.58
 
-> ঔৎসুক্যের প্রাবীণ্যে, জিতি’ অন্য ভাব-সৈন্যে,
-> উদয় হৈল নিজ-রাজ্য-মনে ।
-> মনে হইল লালস, না হয় আপন-বশ,
+> ঔৎসুক্যের প্রাবীণ্যে, জিতি’ অন্য ভাব-সৈন্যে,\
+> উদয় হৈল নিজ-রাজ্য-মনে ।\
+> মনে হইল লালস, না হয় আপন-বশ,\
 > দুঃখে মনে করেন ভর্ৎসনে ॥৫৮॥
 
-> autsukyera prāvīṇye, jiti' anya bhāva-sainye,
-> udaya haila nija-rājya-mane
-> mane ha-ila lālasa, nā haya āpana-vaśa,
+> autsukyera prāvīṇye, jiti' anya bhāva-sainye,\
+> udaya haila nija-rājya-mane\
+> mane ha-ila lālasa, nā haya āpana-vaśa,\
 > duḥkhe mane karena bhartsane
 
 *autsukyera*—del anhelo; *prāvīṇye*—por su gran desarrollo; *jiti'*—conquistando; *anya*—otros; *bhāva-sainye*—soldados del éxtasis; *udaya*—surgimiento; *haila*—hubo; *nija-rājya-mane*—dentro del reino de Su propia mente; *mane*—dentro de la mente; *ha-ila*—hubo; *lālasa*—avidez; *nā*—no; *haya*—queda; *āpana-vaśa*—bajo Su propio control; *duḥkhe*—con infelicidad; *mane*—a la mente; *karena*—hace; *bhartsane*—reprensión.

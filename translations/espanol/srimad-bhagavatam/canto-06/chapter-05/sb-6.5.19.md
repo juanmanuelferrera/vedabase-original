@@ -1,11 +1,11 @@
 ### SB 6.5.19
 
-> कालचक्रं भ्रमि तीक्ष्णं सर्वं निष्कर्षयज्जगत
+> कालचक्रं भ्रमि तीक्ष्णं सर्वं निष्कर्षयज्जगत\
 > स्वतन्त्रमबुधस्येह किमसत्कर्मभिर्भवेत ॥१९॥
 
-> kāla-cakraṁ bhrami tīkṣṇaṁ
-> sarvaṁ niṣkarṣayaj jagat
-> svatantram abudhasyeha
+> kāla-cakraṁ bhrami tīkṣṇaṁ\
+> sarvaṁ niṣkarṣayaj jagat\
+> svatantram abudhasyeha\
 > kim asat-karmabhir bhavet
 
 *kāla-cakram*—la rueda del tiempo eterno; *bhrami*—que gira por sí sola; *tīkṣṇam*—muy afiladas; *sarvam*—todas; *niṣkarṣayat*—dirigiendo; *jagat*—el mundo; *sva-tantram*—independiente, sin preocuparse de los supuestos científicos y filósofos; *abudhasya*—del que no conoce (este principio, el tiempo); *iha*—en el mundo material; *kim asat-karmabhiḥ bhavet*—de qué sirve ocuparse en actividades fruitivas, que son temporales.

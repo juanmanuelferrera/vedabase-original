@@ -1,11 +1,11 @@
 ### CC Adi 1.2
 
-> বন্দে শ্রীকৃষ্ণচৈতন্যনিত্যানন্দৌ সহোদিতৌ ।
+> বন্দে শ্রীকৃষ্ণচৈতন্যনিত্যানন্দৌ সহোদিতৌ ।\
 > গৌড়োদয়ে পুষ্পবন্তৌ চিত্রৌ শন্দৌ তমোনুদৌ ॥২॥
 
-> vande śrī-kṛṣṇa-caitanya-
-> nityānandau sahoditau
-> gauḍodaye puṣpavantau
+> vande śrī-kṛṣṇa-caitanya-\
+> nityānandau sahoditau\
+> gauḍodaye puṣpavantau\
 > citrau śan-dau tamo-nudau
 
 *vande*—ofrezco respetuosas reverencias; *śrī-kṛṣṇa-caitanya*—al Señor Śrī Kṛṣṇa Caitanya; *nityānandau*—y al Señor Nityānanda; *saha-uditau*—aparecidos simultáneamente; *gauḍa-udaye*—en el horizonte oriental de Gauḍa; *puṣpavantau*—el sol y la luna juntos; *citrau*—maravillosos; *śam-dau*—que otorgan bendiciones; *tamaḥ-nudau*—que disipan la oscuridad.

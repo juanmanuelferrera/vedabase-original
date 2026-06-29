@@ -1,9 +1,9 @@
 ### CC Madhya 16.178
 
-> ‘বিশ্বাস’ যাঞা তাঁহারে সকল কহিল ।
+> ‘বিশ্বাস’ যাঞা তাঁহারে সকল কহিল ।\
 > হিন্দুবেশ ধরি’ সেই যবন আইল ॥১৭৮॥
 
-> 'viśvāsa' yāñā tāṅhāre sakala kahila
+> 'viśvāsa' yāñā tāṅhāre sakala kahila\
 > hindu-veśa dhari' sei yavana āila
 
 *viśvāsa*—el secretario; *yāñā*—regresando; *tāṅhāre*—al gobernador mahometano; *sakala kahila*—le contó todo; *hindu-veśa dhari'*—adoptando la vestimenta hindú; *sei yavana*—ese gobernador mahometano; *āila*—vino.

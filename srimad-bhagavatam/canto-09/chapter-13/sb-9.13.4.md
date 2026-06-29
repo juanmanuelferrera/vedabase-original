@@ -1,11 +1,11 @@
 ### SB 9.13.4
 
-> शिष्यव्यतिक्रमं वीक्ष्य तं निर्वर्त्यागतो गुरुः
+> शिष्यव्यतिक्रमं वीक्ष्य तं निर्वर्त्यागतो गुरुः\
 > अशपत्पतताद्देहो निमेः पण्डितमानिनः ॥४॥
 
-> śiṣya-vyatikramaṁ vīkṣya
-> taṁ nirvartyāgato guruḥ
-> aśapat patatād deho
+> śiṣya-vyatikramaṁ vīkṣya\
+> taṁ nirvartyāgato guruḥ\
+> aśapat patatād deho\
 > nimeḥ paṇḍita-māninaḥ
 
 *śiṣya-vyatikramam*—the disciple's deviation from the order of the *guru*; *vīkṣya*—observing; *tam*—the performance of *yajña* by Indra; *nirvartya*—after finishing; *āgataḥ*—when he returned; *guruḥ*—Vasiṣṭha Muni; *aśapat*—he cursed Nimi Mahārāja; *patatāt*—may it fall down; *dehaḥ*—the material body; *nimeḥ*—of Mahārāja Nimi; *paṇḍita-māninaḥ*—who considers himself so learned (as to disobey the order of his spiritual master).

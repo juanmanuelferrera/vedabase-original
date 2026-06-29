@@ -1,9 +1,9 @@
 ### CC Madhya 4.60
 
-> অমঙ্গলা দূর করি’ করাইল স্নান ।
+> অমঙ্গলা দূর করি’ করাইল স্নান ।\
 > বহু তৈল দিয়া কৈল শ্রীঅঙ্গ চিক্কণ ॥৬০॥
 
-> amaṅgalā dūra kari' karāila snāna
+> amaṅgalā dūra kari' karāila snāna\
 > bahu taila diyā kaila śrī-aṅga cikkaṇa
 
 *amaṅgalā*—todo lo desfavorable; *dūra kari'*—alejando; *karāila*—hizo que se realizase; *snāna*—el baño; *bahu*—una gran cantidad; *taila*—aceite; *diyā*—aplicando; *kaila*—hizo; *śrī-aṅga*—el cuerpo; *cikkaṇa*—lustroso.

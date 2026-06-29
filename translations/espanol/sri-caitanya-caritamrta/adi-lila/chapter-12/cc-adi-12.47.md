@@ -1,9 +1,9 @@
 ### CC Adi 12.47
 
-> আচার্য কহে, ইহাকে কেনে দিলে দরশন ।
+> আচার্য কহে, ইহাকে কেনে দিলে দরশন ।\
 > দুই প্রকারেতে করে মোরে বিড়ম্বন ॥৪৭॥
 
-> ācārya kahe, ihāke kene dile daraśana
+> ācārya kahe, ihāke kene dile daraśana\
 > dui prakārete kare more viḍambana
 
 *ācārya kahe*—Śrī Advaita Ācārya dijo; *ihāke*—a él; *kene*—por qué; *dile*—le has dado; *daraśana*—audiencia; *dui*—de dos; *prakārete*—maneras; *kare*—hace; *more*—a Mí; *viḍambana*—engaño.

@@ -1,11 +1,11 @@
 ### CC Adi 10.1
 
-> শ্রীচৈতন্যপদাম্ভোজ-মধুপেভ্যো নমো নমঃ ।
+> শ্রীচৈতন্যপদাম্ভোজ-মধুপেভ্যো নমো নমঃ ।\
 > কথঞ্চিদাশ্রয়াদ্ যেষাং শ্বাপি তদ্গন্ধভাগ্ভবেৎ ॥১॥
 
-> śrī-caitanya-padāmbhoja-
-> madhupebhyo namo namaḥ
-> kathañcid āśrayād yeṣāṁ
+> śrī-caitanya-padāmbhoja-\
+> madhupebhyo namo namaḥ\
+> kathañcid āśrayād yeṣāṁ\
 > śvāpi tad-gandha-bhāg bhavet
 
 *śrī-caitanya*—Lord Śrī Caitanya Mahāprabhu; *pada-ambhoja*—the lotus feet; *madhu*—honey; *pebhyaḥ*—unto those who drink; *namaḥ*—respectful obeisances; *namaḥ*—respectful obeisances; *kathañcit*—a little of it; *āśrayāt*—taking shelter of; *yeṣām*—of whom; *śvā*—dog; *api*—also; *tat-gandha*—the aroma of the lotus flower; *bhāk*—shareholder; *bhavet*—may become.

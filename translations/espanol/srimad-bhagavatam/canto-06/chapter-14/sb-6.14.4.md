@@ -1,11 +1,11 @@
 ### SB 6.14.4
 
-> प्रायो मुमुक्षवस्तेषां केचनैव द्विजोत्तम
+> प्रायो मुमुक्षवस्तेषां केचनैव द्विजोत्तम\
 > मुमुक्षूणां सहस्रेषु कश्चिन्मुच्येत सिध्यति ॥४॥
 
-> prāyo mumukṣavas teṣāṁ
-> kecanaiva dvijottama
-> mumukṣūṇāṁ sahasreṣu
+> prāyo mumukṣavas teṣāṁ\
+> kecanaiva dvijottama\
+> mumukṣūṇāṁ sahasreṣu\
 > kaścin mucyeta sidhyati
 
 *prāyaḥ*—casi siempre; *mumukṣavaḥ*—personas interesadas en la liberación; *teṣām*—de ellas; *kecana*—algunas; *eva*—en verdad; *dvija-uttama*—¡oh, el mejor de los *brāhmaṇas*!; *mumukṣūṇām*—de aquellas que desean ser liberadas; *sahasreṣu*—en muchos miles; *kaścit*—alguna; *mucyeta*—pueda ser realmente liberada; *sidhyati*—alguna es perfecta.

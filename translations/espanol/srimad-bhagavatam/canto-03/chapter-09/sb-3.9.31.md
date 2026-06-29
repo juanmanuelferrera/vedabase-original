@@ -1,11 +1,11 @@
 ### SB 3.9.31
 
-> तत आत्मनि लोके च भक्तियुक्तः समाहितः ।
+> तत आत्मनि लोके च भक्तियुक्तः समाहितः ।\
 > द्रष्टासि मां ततं ब्रह्मन्मयि लोकांस्त्वमात्मनः ॥३१॥
 
-> tata ātmani loke ca
-> bhakti-yuktaḥ samāhitaḥ
-> draṣṭāsi māṁ tataṁ brahman
+> tata ātmani loke ca\
+> bhakti-yuktaḥ samāhitaḥ\
+> draṣṭāsi māṁ tataṁ brahman\
 > mayi lokāṁs tvam ātmanaḥ
 
 *tataḥ*—después; *ātmani*—en ti; *loke*—en el universo; *ca*—también; *bhakti-yuktaḥ*—estando situado en servicio devocional; *samāhitaḥ*—estando completamente absorto; *draṣṭā asi*—verás; *mām*—a Mí; *tatam*—extendido por todas partes; *brahman*—¡oh, Brahmā!; *mayi*—en Mí; *lokān*—todo el universo; *tvam*—tú; *ātmanaḥ*—las entidades vivientes.

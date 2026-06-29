@@ -1,9 +1,9 @@
 ### CC Adi 13.70
 
-> কৃষ্ণ অবতারিতে আচার্য প্রতিজ্ঞা করিয়া ।
+> কৃষ্ণ অবতারিতে আচার্য প্রতিজ্ঞা করিয়া ।\
 > কৃষ্ণপূজা করে তুলসী-গঙ্গাজল দিয়া ॥৭০॥
 
-> kṛṣṇa avatārite ācārya pratijñā kariyā
+> kṛṣṇa avatārite ācārya pratijñā kariyā\
 > kṛṣṇa-pūjā kare tulasī-gaṅgājala diyā
 
 *kṛṣṇa*—Lord Kṛṣṇa; *avatārite*—to cause His advent; *ācārya*—Advaita Ācārya; *pratijñā*—promise; *kariyā*—making; *kṛṣṇa-pūjā*—worship of Lord Kṛṣṇa; *kare*—does; *tulasī*—*tulasī* leaves; *gaṅgā-jala diyā*—with the water of the Ganges.

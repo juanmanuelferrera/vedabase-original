@@ -1,9 +1,9 @@
 ### CC Antya 4.218
 
-> নানাশাস্ত্র আনি’ লুপ্ত-তীর্থ উদ্ধারিলা ।
+> নানাশাস্ত্র আনি’ লুপ্ত-তীর্থ উদ্ধারিলা ।\
 > বৃন্দাবনে কৃষ্ণসেবা প্রকাশ করিলা ॥২১৮॥
 
-> nānā-śāstra āni' lupta-tīrtha uddhārilā
+> nānā-śāstra āni' lupta-tīrtha uddhārilā\
 > vṛndāvane kṛṣṇa-sevā prakāśa karilā
 
 *nānā-śāstra*—distintos tipos de escrituras reveladas; *āni'*—reuniendo; *lupta-tīrtha*—los emplazamientos perdidos de los lugares sagrados; *uddhārilā*—excavaron; *vṛndāvane*—en Vṛndāvana; *kṛṣṇa-sevā*—el servicio directo al Señor Kṛṣṇa; *prakāśa karilā*—manifestaron.

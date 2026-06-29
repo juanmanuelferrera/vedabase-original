@@ -1,9 +1,9 @@
 ### CC Adi 10.137
 
-> মাধবী-দেবী — শিখিমাহিতির ভগিনী ।
+> মাধবী-দেবী — শিখিমাহিতির ভগিনী ।\
 > শ্রীরাধার দাসীমধ্যে যাঁর নাম গণি ॥১৩৭॥
 
-> mādhavī-devī--śikhi-māhitira bhaginī
+> mādhavī-devī--śikhi-māhitira bhaginī\
 > śrī-rādhāra dāsī-madhye yāṅra nāma gaṇi
 
 *mādhavī-devī*—de nombre Mādhavīdevī; *śikhi-māhitira*—de Śikhi Māhiti; *bhaginī*—hermana; *śrī-rādhāra*—de Śrīmatī Rādhārāṇī; *dāsī-madhye*—entre las sirvientas; *yāṅra*—cuyo; *nāma*—nombre; *gaṇi*—cuento.

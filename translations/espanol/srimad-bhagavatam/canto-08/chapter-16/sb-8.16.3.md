@@ -1,11 +1,11 @@
 ### SB 8.16.3
 
-> स पत्नीं दीनवदनां कृतासनपरिग्रहः
+> स पत्नीं दीनवदनां कृतासनपरिग्रहः\
 > सभाजितो यथान्यायमिदमाह कुरूद्वह ॥३॥
 
-> sa patnīṁ dīna-vadanāṁ
-> kṛtāsana-parigrahaḥ
-> sabhājito yathā-nyāyam
+> sa patnīṁ dīna-vadanāṁ\
+> kṛtāsana-parigrahaḥ\
+> sabhājito yathā-nyāyam\
 > idam āha kurūdvaha
 
 *saḥ*—Kaśyapa Muni; *patnīm*—a su esposa; *dīna-vadanām*—con el rostro lánguido; *kṛta-āsana-parigrahaḥ*—tras recibir un asiento; *sabhājitaḥ*—honrado por Aditi; *yathā-nyāyam*—conforme al momento y al lugar; *idam āha*—habló de la siguiente manera; *kuru-udvaha*—¡oh, Mahārāja Parīkṣit, el mejor de los Kurus!.

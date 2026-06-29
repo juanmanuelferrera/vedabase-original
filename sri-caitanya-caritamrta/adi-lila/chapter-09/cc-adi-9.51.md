@@ -1,9 +1,9 @@
 ### CC Adi 9.51
 
-> এই মালাকার খায় এই প্রেমফল ।
+> এই মালাকার খায় এই প্রেমফল ।\
 > নিরবধি মত্ত রহে, বিবশ-বিহ্বল ॥৫১॥
 
-> ei mālākāra khāya ei prema-phala
+> ei mālākāra khāya ei prema-phala\
 > niravadhi matta rahe, vivaśa-vihvala
 
 *ei*—this; *mālā-kāra*—great gardener; *khāya*—eats; *ei*—this; *prema-phala*—fruit of love of Godhead; *niravadhi*—always; *matta*—maddened; *rahe*—remains; *vivaśa*—as if helpless; *vihvala*—as if bewildered.

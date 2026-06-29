@@ -1,9 +1,9 @@
 ### CC Madhya 10.111
 
-> কৃষ্ণরস-তত্ত্ব-বেত্তা, দেহ — প্রেমরূপ ৷
+> কৃষ্ণরস-তত্ত্ব-বেত্তা, দেহ — প্রেমরূপ ৷\
 > সাক্ষাৎ মহাপ্রভুর দ্বিতীয় স্বরূপ ৷৷ ১১১ ৷৷ ॥১১১॥
 
-> kṛṣṇa-rasa-tattva-vettā, deha-prema-rūpa
+> kṛṣṇa-rasa-tattva-vettā, deha-prema-rūpa\
 > sākṣāt mahāprabhura dvitīya svarūpa
 
 *kṛṣṇa-rasa*—de los sabores trascendentales en relación con Kṛṣṇa; *tattva*—de la verdad; *vettā*—conocedor; *deha*—cuerpo; *prema-rūpa*—prema personificado; *sākṣāt*—directamente; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *dvitīya*—segunda; *svarūpa*—representación.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.26
 
-> ঈশ্বর-দর্শনে প্রভু প্রেমে অচেতন ।
+> ঈশ্বর-দর্শনে প্রভু প্রেমে অচেতন ।\
 > সার্বভৌম লঞা গেলা আপন-ভবন ॥২৬॥
 
-> īśvara-darśane prabhu preme acetana
+> īśvara-darśane prabhu preme acetana\
 > sārvabhauma lañā gelā āpana-bhavana
 
 *īśvara-darśane*—by seeing Lord Jagannātha; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *preme*—in the ecstasy of love of Godhead; *acetana*—unconscious; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *lañā gelā*—has taken; *āpana-bhavana*—to his own home.

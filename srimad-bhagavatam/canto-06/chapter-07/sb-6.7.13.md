@@ -1,11 +1,11 @@
 ### SB 6.7.13
 
-> यः पारमेष्ठ्यं धिषणमधितिष्ठन्न कञ्चन
+> यः पारमेष्ठ्यं धिषणमधितिष्ठन्न कञ्चन\
 > प्रत्युत्तिष्ठेदिति ब्रूयुर्धर्मं ते न परं विदुः ॥१३॥
 
-> yaḥ pārameṣṭhyaṁ dhiṣaṇam
-> adhitiṣṭhan na kañcana
-> pratyuttiṣṭhed iti brūyur
+> yaḥ pārameṣṭhyaṁ dhiṣaṇam\
+> adhitiṣṭhan na kañcana\
+> pratyuttiṣṭhed iti brūyur\
 > dharmaṁ te na paraṁ viduḥ
 
 *yaḥ*—anyone who; *pārameṣṭhyam*—royal; *dhiṣaṇam*—throne; *adhitiṣṭhan*—sitting on; *na*—not; *kañcana*—anyone; *pratyuttiṣṭhet*—should rise before; *iti*—thus; *brūyuḥ*—those who say; *dharmam*—the codes of religion; *te*—they; *na*—not; *param*—higher; *viduḥ*—know.

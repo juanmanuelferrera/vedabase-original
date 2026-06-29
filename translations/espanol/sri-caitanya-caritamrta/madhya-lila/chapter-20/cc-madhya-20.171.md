@@ -1,9 +1,9 @@
 ### CC Madhya 20.171
 
-> সেই বপু, সেই আকৃতি পৃথক্ যদি ভাসে ।
+> সেই বপু, সেই আকৃতি পৃথক্ যদি ভাসে ।\
 > ভাবাবেশ-ভেদে নাম ‘বৈভবপ্রকাশে’ ॥১৭১॥
 
-> sei vapu, sei ākṛti pṛthak yadi bhāse
+> sei vapu, sei ākṛti pṛthak yadi bhāse\
 > bhāvāveśa-bhede nāma 'vaibhava-prakāśe'
 
 *sei vapu*—esa forma; *sei ākṛti*—ese aspecto; *pṛthak*—diferente; *yadi*—si; *bhāse*—aparece; *bhāva-āveśa*—de la emoción extática; *bhede*—según las variedades; *nāma*—denominado; *vaibhava-prakāśe*—*vaibhava-prakāśa*.

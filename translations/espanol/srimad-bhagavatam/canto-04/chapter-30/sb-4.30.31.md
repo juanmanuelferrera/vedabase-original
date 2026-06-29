@@ -1,11 +1,11 @@
 ### SB 4.30.31
 
-> वरं वृणीमहेऽथापि नाथ त्वत्परतः परात् ।
+> वरं वृणीमहेऽथापि नाथ त्वत्परतः परात् ।\
 > न ह्यन्तस्त्वद्विभूतीनां सोऽनन्त इति गीयसे ॥३१॥
 
-> varaṁ vṛṇīmahe 'thāpi
-> nātha tvat parataḥ parāt
-> na hy antas tvad-vibhūtīnāṁ
+> varaṁ vṛṇīmahe 'thāpi\
+> nātha tvat parataḥ parāt\
+> na hy antas tvad-vibhūtīnāṁ\
 > so 'nanta iti gīyase
 
 *varam*—bendición; *vṛṇīmahe*—vamos a orar por; *atha api*—por lo tanto; *nātha*—¡oh, Señor!; *tvat*—de Ti; *parataḥ parāt*—más allá de la realidad trascendental; *na*—no; *hi*—ciertamente; *antaḥ*—fin; *tvat*—Tus; *vibhūtīnām*—de opulencias; *saḥ*—Tú; *anantaḥ*—ilimitado; *iti*—así; *gīyase*—eres famoso.

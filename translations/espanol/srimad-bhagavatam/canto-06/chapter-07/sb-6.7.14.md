@@ -1,11 +1,11 @@
 ### SB 6.7.14
 
-> तेषां कुपथदेष्टॄणां पततां तमसि ह्यधः
+> तेषां कुपथदेष्टॄणां पततां तमसि ह्यधः\
 > ये श्रद्दध्युर्वचस्ते वै मज्जन्त्यश्मप्लवा इव ॥१४॥
 
-> teṣāṁ kupatha-deṣṭṝṇāṁ
-> patatāṁ tamasi hy adhaḥ
-> ye śraddadhyur vacas te vai
+> teṣāṁ kupatha-deṣṭṝṇāṁ\
+> patatāṁ tamasi hy adhaḥ\
+> ye śraddadhyur vacas te vai\
 > majjanty aśma-plavā iva
 
 *teṣām*—de ellos (los que desencaminan); *ku-patha-deṣṭṛṇām*—que muestran la senda del peligro; *patatām*—cayendo ellos mismos; *tamasi*—en la oscuridad; *hi*—en verdad; *adhaḥ*—abajo; *ye*—todo el que; *śraddadhyuḥ*—pone su fe en; *vacaḥ*—las palabras; *te*—ellos; *vai*—en verdad; *majjanti*—se hunden; *aśma-plavāḥ*—naves hechas de piedra; *iva*—como.

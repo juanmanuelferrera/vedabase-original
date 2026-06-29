@@ -1,11 +1,11 @@
 ### SB 4.14.9
 
-> अराजकभयादेष कृतो राजातदर्हणः ।
+> अराजकभयादेष कृतो राजातदर्हणः ।\
 > ततोऽप्यासीद्भयं त्वद्य कथं स्यात्स्वस्ति देहिनाम् ॥९॥
 
-> arājaka-bhayād eṣa
-> kṛto rājātad-arhaṇaḥ
-> tato 'py āsīd bhayaṁ tv adya
+> arājaka-bhayād eṣa\
+> kṛto rājātad-arhaṇaḥ\
+> tato 'py āsīd bhayaṁ tv adya\
 > kathaṁ syāt svasti dehinām
 
 *arājaka*—being without a king; *bhayāt*—out of fear; *eṣaḥ*—this Vena; *kṛtaḥ*—was made; *rājā*—the king; *a-tat-arhaṇaḥ*—though not qualified for it; *tataḥ*—from him; *api*—also; *āsīt*—there was; *bhayam*—danger; *tu*—then; *adya*—now; *katham*—how; *syāt*—can there be; *svasti*—happiness; *dehinām*—of the people in general.

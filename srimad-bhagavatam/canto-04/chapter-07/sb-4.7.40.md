@@ -1,13 +1,13 @@
 ### SB 4.7.40
 
-> ब्रह्मोवाच
-> नमस्ते श्रितसत्त्वाय धर्मादीनां च सूतये ।
+> ब्रह्मोवाच\
+> नमस्ते श्रितसत्त्वाय धर्मादीनां च सूतये ।\
 > निर्गुणाय च यत्काष्ठां नाहं वेदापरेऽपि च ॥४०॥
 
-> brahmovāca
-> namas te śrita-sattvāya
-> dharmādīnāṁ ca sūtaye
-> nirguṇāya ca yat-kāṣṭhāṁ
+> brahmovāca\
+> namas te śrita-sattvāya\
+> dharmādīnāṁ ca sūtaye\
+> nirguṇāya ca yat-kāṣṭhāṁ\
 > nāhaṁ vedāpare 'pi ca
 
 *brahma*—the personified *Vedas*; *uvāca*—said; *namaḥ*—respectful obeisances; *te*—unto You; *śrita-sattvāya*—the shelter of the quality of goodness; *dharma-ādīnām*—of all religion, austerity and penance; *ca*—and; *sūtaye*—the source; *nirguṇāya*—transcendental to material qualities; *ca*—and; *yat*—of whom (of the Supreme Lord); *kāṣṭhām*—the situation; *na*—not; *aham*—I; *veda*—know; *apare*—others; *api*—certainly; *ca*—and.

@@ -1,11 +1,11 @@
 ### SB 7.15.4
 
-> देशकालोचितश्रद्धा द्रव्यपात्रार्हणानि च
+> देशकालोचितश्रद्धा द्रव्यपात्रार्हणानि च\
 > सम्यग्भवन्ति नैतानि विस्तरात्स्वजनार्पणात ॥४॥
 
-> deśa-kālocita-śraddhā-
-> dravya-pātrārhaṇāni ca
-> samyag bhavanti naitāni
+> deśa-kālocita-śraddhā-\
+> dravya-pātrārhaṇāni ca\
+> samyag bhavanti naitāni\
 > vistarāt sva-janārpaṇāt
 
 *deśa*—place; *kāla*—time; *ucita*—proper; *śraddhā*—respect; *dravya*—ingredients; *pātra*—a suitable person; *arhaṇāni*—paraphernalia for worship; *ca*—and; *samyak*—proper; *bhavanti*—are; *na*—not; *etāni*—all these; *vistarāt*—due to expansion; *sva-jana-arpaṇāt*—or due to inviting relatives.

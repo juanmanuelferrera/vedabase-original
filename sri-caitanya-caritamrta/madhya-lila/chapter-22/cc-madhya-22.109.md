@@ -1,9 +1,9 @@
 ### CC Madhya 22.109
 
-> রাগহীন জন ভজে শাস্ত্রের আজ্ঞায় ।
+> রাগহীন জন ভজে শাস্ত্রের আজ্ঞায় ।\
 > ‘বৈধী ভক্তি’ বলি’ তারে সর্বশাস্ত্রে গায় ॥১০৯॥
 
-> rāga-hīna jana bhaje śāstrera ājñāya
+> rāga-hīna jana bhaje śāstrera ājñāya\
 > 'vaidhī bhakti' bali' tāre sarva-śāstre gāya
 
 *rāga-hīna*—who are without spontaneous attachment to Kṛṣṇa; *jana*—persons; *bhaje*—execute devotional service; *śāstrera ājñāya*—according to the principles and regulations described in the revealed scriptures; *vaidhī bhakti*—regulative devotional service; *bali'*—calling; *tāre*—that; *sarva-śāstre*—all revealed scriptures; *gāya*—sing.

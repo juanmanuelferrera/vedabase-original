@@ -1,13 +1,13 @@
 ### SB 6.3.34
 
-> इत्थं स्वभर्तृगदितं भगवन्महित्वं
-> संस्मृत्य विस्मितधियो यमकिङ्करास्ते
-> नैवाच्युताश्रयजनं प्रतिशङ्कमाना
+> इत्थं स्वभर्तृगदितं भगवन्महित्वं\
+> संस्मृत्य विस्मितधियो यमकिङ्करास्ते\
+> नैवाच्युताश्रयजनं प्रतिशङ्कमाना\
 > द्रष्टुं च बिभ्यति ततः प्रभृति स्म राजन ॥३४॥
 
-> itthaṁ svabhartṛ-gaditaṁ bhagavan-mahitvaṁ
-> saṁsmṛtya vismita-dhiyo yama-kiṅkarās te
-> naivācyutāśraya-janaṁ pratiśaṅkamānā
+> itthaṁ svabhartṛ-gaditaṁ bhagavan-mahitvaṁ\
+> saṁsmṛtya vismita-dhiyo yama-kiṅkarās te\
+> naivācyutāśraya-janaṁ pratiśaṅkamānā\
 > draṣṭuṁ ca bibhyati tataḥ prabhṛti sma rājan
 
 *ittham*—de ese poder; *sva-bhartṛ-gaditam*—explicada por su amo (Yamarāja); *bhagavat-mahitvam*—la gloria extraordinaria de la Suprema Personalidad de Dios, y de Su nombre, fama, forma y atributos; *saṁsmṛtya*—recordando; *vismita-dhiyaḥ*—cuyas mentes estaban llenas de asombro; *yama-kiṅkarāḥ*—todos los sirvientes de Yamarāja; *te*—ellos; *na*—no; *eva*—en verdad; *acyuta-āśraya-janam*—una persona que se ha refugiado en los pies de loto de Acyuta, el Señor Kṛṣṇa; *pratiśaṅkamānāḥ*—siempre temiendo; *draṣṭum*—ver; *ca*—y; *bibhyati*—sienten miedo; *tataḥ prabhṛti*—comenzando por ellos; *sma*—en verdad; *rājan*—¡oh, rey!.

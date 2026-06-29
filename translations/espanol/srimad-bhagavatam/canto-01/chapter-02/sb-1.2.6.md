@@ -1,11 +1,11 @@
 ### SB 1.2.6
 
-> स वै पुंसां परो धर्मो यतो भक्तिरधोक्षजे ।
+> स वै पुंसां परो धर्मो यतो भक्तिरधोक्षजे ।\
 > अहैतुक्यप्रतिहता ययात्मा सुप्रसीदति ॥६॥
 
-> sa vai puṁsāṁ paro dharmo
-> yato bhaktir adhokṣaje
-> ahaituky apratihatā
+> sa vai puṁsāṁ paro dharmo\
+> yato bhaktir adhokṣaje\
+> ahaituky apratihatā\
 > yayātmā suprasīdati
 
 *saḥ*—esa; *vai*—indudablemente; *puṁsām*—para la humanidad; *paraḥ*—sublime; *dharmaḥ*—ocupación; *yataḥ*—mediante la cual; *bhaktiḥ*—servicio devocional; *adhokṣaje*—dirigido a la Trascendencia; *ahaitukī*—sin causa; *apratihatā*—continuo; *yayā*—mediante el cual; *ātmā*—el yo; *suprasīdati*—completamente satisfecho.

@@ -1,9 +1,9 @@
 ### CC Madhya 24.108
 
-> কেবল ব্রহ্মোপাসক তিন ভেদ হয় ।
+> কেবল ব্রহ্মোপাসক তিন ভেদ হয় ।\
 > সাধক, ব্রহ্মময়, আর প্রাপ্ত-ব্রহ্মলয় ॥১০৮॥
 
-> kevala brahmopāsaka tina bheda haya
+> kevala brahmopāsaka tina bheda haya\
 > sādhaka, brahmamaya, āra prāpta-brahma-laya
 
 *kevala brahma-upāsaka*—the worshiper of only the impersonal Brahman; *tina bheda haya*—there are three different groups; *sādhaka*—the beginner; *brahma-maya*—absorbed in thought of Brahman; *āra*—and; *prāpta-brahma-laya*—actually merged into the Brahman effulgence.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.184
 
-> কাহাঁ বহির্মুখ তার্কিক-শিষ্যগণ-সঙ্গে ।
+> কাহাঁ বহির্মুখ তার্কিক-শিষ্যগণ-সঙ্গে ।\
 > কাহাঁ এই সঙ্গসুধা-সমুদ্র-তরঙ্গে ॥১৮৪॥
 
-> kāhāṅ bahirmukha tārkika-śiṣyagaṇa-saṅge
+> kāhāṅ bahirmukha tārkika-śiṣyagaṇa-saṅge\
 > kāhāṅ ei saṅga-sudhā-samudra-taraṅge
 
 *kāhāṅ*—whereas; *bahirḥ-mukha*—nondevotees; *tārkika*—of logic; *śiṣya-gaṇa*—disciples; *saṅge*—with; *kāhāṅ*—now; *ei*—this; *saṅga*—association; *sudhā*—of nectar; *samudra*—of the ocean; *taraṅge*—in the waves.

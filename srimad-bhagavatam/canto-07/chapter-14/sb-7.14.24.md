@@ -1,11 +1,11 @@
 ### SB 7.14.24
 
-> त एते श्रेयसः काला नॄणां श्रेयोविवर्धनाः
+> त एते श्रेयसः काला नॄणां श्रेयोविवर्धनाः\
 > कुर्यात्सर्वात्मनैतेषु श्रेयोऽमोघं तदायुषः ॥२४॥
 
-> ta ete śreyasaḥ kālā
-> nṝṇāṁ śreyo-vivardhanāḥ
-> kuryāt sarvātmanaiteṣu
+> ta ete śreyasaḥ kālā\
+> nṝṇāṁ śreyo-vivardhanāḥ\
+> kuryāt sarvātmanaiteṣu\
 > śreyo 'moghaṁ tad-āyuṣaḥ
 
 *te*—therefore; *ete*—all these (descriptions of astronomical calculations); *śreyasaḥ*—of auspiciousness; *kālāḥ*—times; *nṝṇām*—for human beings; *śreyaḥ*—auspiciousness; *vivardhanāḥ*—increase; *kuryāt*—one should perform; *sarva-ātmanā*—by other activities (not only the *śrāddha* ceremony); *eteṣu*—in these (seasons); *śreyaḥ*—(causing) auspiciousness; *amogham*—and success; *tat*—of a human being; *āyuṣaḥ*—of the duration of life.

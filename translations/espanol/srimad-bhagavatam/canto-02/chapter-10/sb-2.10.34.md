@@ -1,11 +1,11 @@
 ### SB 2.10.34
 
-> अतः परं सूक्ष्मतममव्यक्तं निर्विशेषणम् ।
+> अतः परं सूक्ष्मतममव्यक्तं निर्विशेषणम् ।\
 > अनादिमध्यनिधनं नित्यं वाङ्मनसः परम् ॥३४॥
 
-> ataḥ paraṁ sūkṣmatamam
-> avyaktaṁ nirviśeṣaṇam
-> anādi-madhya-nidhanaṁ
+> ataḥ paraṁ sūkṣmatamam\
+> avyaktaṁ nirviśeṣaṇam\
+> anādi-madhya-nidhanaṁ\
 > nityaṁ vāṅ-manasaḥ param
 
 *ataḥ*—por lo tanto; *param*—trascendental; *sūkṣmatamam*—más fino que lo más fino; *avyaktam*—no manifestado; *nirviśeṣaṇam*—sin rasgos materiales; *anādi*—sin comienzo; *madhya*—sin un estado intermedio; *nidhanam*—sin final; *nityam*—eterno; *vāk*—palabras; *manasaḥ*—de la mente; *param*—trascendental.

@@ -1,9 +1,9 @@
 ### CC Antya 9.141
 
-> মহাবিষয় কর, কিবা বিরক্ত উদাস ।
+> মহাবিষয় কর, কিবা বিরক্ত উদাস ।\
 > জন্মে-জন্মে তুমি পঞ্চ — মোর ‘নিজদাস’ ॥১৪১॥
 
-> mahā-viṣaya kara, kibā virakta udāsa
+> mahā-viṣaya kara, kibā virakta udāsa\
 > janme-janme tumi pañca--mora 'nija-dāsa'
 
 *mahā-viṣaya*—grandes ocupaciones materiales; *kara*—tú realizas; *kibā*—o; *virakta*—renunciado; *udāsa*—libre de apego; *janme-janme*—vida tras vida; *tumi pañca*—vosotros cinco; *mora*—Mis; *nija-dāsa*—propios sirvientes.

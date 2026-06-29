@@ -1,11 +1,11 @@
 ### SB 8.14.4
 
-> चतुर्युगान्ते कालेन ग्रस्तान्छ्रुतिगणान्यथा
+> चतुर्युगान्ते कालेन ग्रस्तान्छ्रुतिगणान्यथा\
 > तपसा ऋषयोऽपश्यन्यतो धर्मः सनातनः ॥४॥
 
-> catur-yugānte kālena
-> grastāñ chruti-gaṇān yathā
-> tapasā ṛṣayo 'paśyan
+> catur-yugānte kālena\
+> grastāñ chruti-gaṇān yathā\
+> tapasā ṛṣayo 'paśyan\
 > yato dharmaḥ sanātanaḥ
 
 *catuḥ-yuga-ante*—al final de cada ciclo de cuatro *yugas* (Satya, Tretā, Dvāpara y Kali); *kālena*—con el paso del tiempo; *grastān*—perdidas; *śruti-gaṇān*—las instrucciones de los *Vedas*; *yathā*—como; *tapasā*—mediante la austeridad; *ṛṣayaḥ*—grandes personas santas; *apaśyan*—viendo el uso incorrecto; *yataḥ*—de donde; *dharmaḥ*—deberes prescritos; *sanātanaḥ*—eternos.

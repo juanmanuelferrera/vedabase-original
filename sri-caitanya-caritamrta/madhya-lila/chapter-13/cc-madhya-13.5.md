@@ -1,9 +1,9 @@
 ### CC Madhya 13.5
 
-> পাণ্ডুবিজয় দেখিবারে করিল গমন  ।
+> পাণ্ডুবিজয় দেখিবারে করিল গমন  ।\
 > জগন্নাথ যাত্রা কৈল ছাড়ি’ সিংহাসন ॥৫॥
 
-> pāṇḍu-vijaya dekhibāre karila gamana
+> pāṇḍu-vijaya dekhibāre karila gamana\
 > jagannātha yātrā kaila chāḍi' siṁhāsana
 
 *pāṇḍu-vijaya*—the ceremony named Pāṇḍu-vijaya; *dekhibāre*—for seeing; *karila*—did; *gamana*—go; *jagannātha*—Lord Jagannātha; *yātrā*—departure; *kaila*—did; *chāḍi'*—leaving; *siṁhāsana*—the throne.

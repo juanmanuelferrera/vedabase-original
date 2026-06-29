@@ -1,11 +1,11 @@
 ### SB 7.8.16
 
-> तदैव तस्मिन्निनदोऽतिभीषणो बभूव येनाण्डकटाहमस्फुटत
+> तदैव तस्मिन्निनदोऽतिभीषणो बभूव येनाण्डकटाहमस्फुटत\
 > यं वै स्वधिष्ण्योपगतं त्वजादयः श्रुत्वा स्वधामात्ययमङ्ग मेनिरे ॥१६॥
 
-> sa vikraman putra-vadhepsur ojasā
-> niśamya nirhrādam apūrvam adbhutam
-> antaḥ-sabhāyāṁ na dadarśa tat-padaṁ
+> sa vikraman putra-vadhepsur ojasā\
+> niśamya nirhrādam apūrvam adbhutam\
+> antaḥ-sabhāyāṁ na dadarśa tat-padaṁ\
 > vitatrasur yena surāri-yūtha-pāḥ
 
 *saḥ*—he (Hiraṇyakaśipu); *vikraman*—exhibiting his prowess; *putra-vadha-īpsuḥ*—desirous of killing his own son; *ojasā*—with great strength; *niśamya*—hearing; *nirhrādam*—the fierce sound; *apūrvam*—never heard before; *adbhutam*—very wonderful; *antaḥ-sabhāyām*—within the jurisdiction of the great assembly; *na*—not; *dadarśa*—saw; *tat-padam*—the source of that tumultuous sound; *vitatrasuḥ*—became afraid; *yena*—by which sound; *sura-ari-yūtha-pāḥ*—the other leaders of the demons (not only Hiraṇyakaśipu).

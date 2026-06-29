@@ -1,11 +1,11 @@
 ### SB 8.1.3
 
-> यद्यस्मिन्नन्तरे ब्रह्मन्भगवान्विश्वभावनः
+> यद्यस्मिन्नन्तरे ब्रह्मन्भगवान्विश्वभावनः\
 > कृतवान्कुरुते कर्ता ह्यतीतेऽनागतेऽद्य वा ॥३॥
 
-> yad yasminn antare brahman
-> bhagavān viśva-bhāvanaḥ
-> kṛtavān kurute kartā
+> yad yasminn antare brahman\
+> bhagavān viśva-bhāvanaḥ\
+> kṛtavān kurute kartā\
 > hy atīte 'nāgate 'dya vā
 
 *yat*—todas las actividades; *yasmin*—en una determinada era; *antare*—*manvantara*; *brahman*—¡oh, gran *brāhmaṇa*!; *bhagavān*—la Suprema Personalidad de Dios; *viśva-bhāvanaḥ*—que ha creado la manifestación cósmica; *kṛtavān*—ha hecho; *kurute*—está haciendo; *kartā*—y hará; *hi*—en verdad; *atīte*—en el pasado; *anāgate*—en el futuro; *adya*—en el presente; *vā*—o bien.

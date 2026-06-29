@@ -1,13 +1,13 @@
 ### CC Adi 2.2
 
-> কৃষ্ণোৎকীর্তনগাননর্তনকলাপাথোজনি-ভ্রাজিতা
-> সদ্ভক্তাবলিহংসচক্রমধুপশ্রেণীবিহারাস্পদম্ ।
-> কর্ণানন্দিকলধ্বনির্বহতু মে জিহ্বামরুপ্রাঙ্গণে
+> কৃষ্ণোৎকীর্তনগাননর্তনকলাপাথোজনি-ভ্রাজিতা\
+> সদ্ভক্তাবলিহংসচক্রমধুপশ্রেণীবিহারাস্পদম্ ।\
+> কর্ণানন্দিকলধ্বনির্বহতু মে জিহ্বামরুপ্রাঙ্গণে\
 > শ্রীচৈতন্যদয়ানিধে তব লসল্লীলাসুধাস্বর্ধুনী ॥২॥
 
-> kṛṣṇotkīrtana-gāna-nartana-kalā-pāthojani-bhrājitā
-> sad-bhaktāvali-haṁsa-cakra-madhupa-śreṇī-vihārāspadam
-> karṇānandi-kala-dhvanir vahatu me jihvā-maru-prāṅgaṇe
+> kṛṣṇotkīrtana-gāna-nartana-kalā-pāthojani-bhrājitā\
+> sad-bhaktāvali-haṁsa-cakra-madhupa-śreṇī-vihārāspadam\
+> karṇānandi-kala-dhvanir vahatu me jihvā-maru-prāṅgaṇe\
 > śrī-caitanya dayā-nidhe tava lasal-līlā-sudhā-svardhunī
 
 *kṛṣṇa*—of the holy name of Lord Kṛṣṇa; *utkīrtana*—loud chanting; *gāna*—singing; *nartana*—dancing; *kalā*—of the other fine arts; *pāthaḥ-jani*—with lotuses; *bhrājitā*—beautified; *sat-bhakta*—of pure devotees; *āvali*—rows; *haṁsa*—of swans; *cakra*—cakravāka birds; *madhu-pa*—and bumble bees; *śreṇī*—like swarms; *vihāra*—of pleasure; *āspadam*—the abode; *karṇa-ānandi*—gladdening the ears; *kala*—melodious; *dhvaniḥ*—sound; *vahatu*—let it flow; *me*—my; *jihvā*—of the tongue; *maru*—desertlike; *prāṅgaṇe*—in the courtyard; *śrī-caitanya dayā-nidhe*—O Lord Caitanya, ocean of mercy; *tava*—of You; *lasat*—shining; *līlā-sudhā*—of the nectar of the pastimes; *svardhunī*—the Ganges.

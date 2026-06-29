@@ -1,28 +1,28 @@
 ### SB 7.11.18-20
 
-> ऋतामृताभ्यां जीवेत मृतेन प्रमृतेन वा
-> सत्यानृताभ्यामपि वा न श्ववृत्त्या कदाचन ॥१८॥
-> ऋतमुञ्छशिलं प्रोक्तममृतं यदयाचितम
-> मृतं तु नित्ययाचञ्आ स्यात्प्रमृतं कर्षणं स्मृतम ॥१९॥
-> सत्यानृतं च वाणिज्यं श्ववृत्तिर्नीचसेवनम
-> वर्जयेत्तां सदा विप्रो राजन्यश्च जुगुप्सिताम
+> ऋतामृताभ्यां जीवेत मृतेन प्रमृतेन वा\
+> सत्यानृताभ्यामपि वा न श्ववृत्त्या कदाचन ॥१८॥\
+> ऋतमुञ्छशिलं प्रोक्तममृतं यदयाचितम\
+> मृतं तु नित्ययाचञ्आ स्यात्प्रमृतं कर्षणं स्मृतम ॥१९॥\
+> सत्यानृतं च वाणिज्यं श्ववृत्तिर्नीचसेवनम\
+> वर्जयेत्तां सदा विप्रो राजन्यश्च जुगुप्सिताम\
 > सर्ववेदमयो विप्रः सर्वदेवमयो नृपः ॥२०॥
 
-> ṛtāmṛtābhyāṁ jīveta
-> mṛtena pramṛtena vā
-> satyānṛtābhyām api vā
+> ṛtāmṛtābhyāṁ jīveta\
+> mṛtena pramṛtena vā\
+> satyānṛtābhyām api vā\
 > na śva-vṛttyā kadācana
 
-> ṛtam uñchaśilaṁ proktam
-> amṛtaṁ yad ayācitam
-> mṛtaṁ tu nitya-yācñā syāt
+> ṛtam uñchaśilaṁ proktam\
+> amṛtaṁ yad ayācitam\
+> mṛtaṁ tu nitya-yācñā syāt\
 > pramṛtaṁ karṣaṇaṁ smṛtam
 
-> satyānṛtaṁ ca vāṇijyaṁ
-> śva-vṛttir nīca-sevanam
-> varjayet tāṁ sadā vipro
-> rājanyaś ca jugupsitām
-> sarva-vedamayo vipraḥ
+> satyānṛtaṁ ca vāṇijyaṁ\
+> śva-vṛttir nīca-sevanam\
+> varjayet tāṁ sadā vipro\
+> rājanyaś ca jugupsitām\
+> sarva-vedamayo vipraḥ\
 > sarva-devamayo nṛpaḥ
 
 *ṛta-amṛtābhyām*—of the means of livelihood known as *ṛta* and *amṛta*; *jīveta*—one may live; *mṛtena*—by the profession of *mṛta*; *pramṛtena vā*—or by the profession of *pramṛta*; *satyānṛtābhyām api*—even by the profession of *satyānṛta*; *vā*—or; *na*—never; *śva-vṛttyā*—by the profession of the dogs; *kadācana*—at any time; *ṛtam*—*ṛta*; *uñchaśilam*—the livelihood of collecting grains left in the field or marketplace; *proktam*—it is said; *amṛtam*—the profession of *amṛta*; *yat*—which; *ayācitam*—obtained without begging from anyone else; *mṛtam*—the profession of *mṛta*; *tu*—but; *nitya-yācñā*—begging grains every day from the farmers; *syāt*—should be; *pramṛtam*—the *pramṛta* means of livelihood; *karṣaṇam*—tilling the field; *smṛtam*—it is so remembered; *satyānṛtam*—the occupation of *satyānṛta*; *ca*—and; *vāṇijyam*—trade; *śva-vṛttiḥ*—the occupation of the dogs; *nīca-sevanam*—the service of low persons (the *vaiśyas* and *śūdras*); *varjayet*—should give up; *tām*—that (the profession of the dogs); *sadā*—always; *vipraḥ*—the *brāhmaṇa*; *rājanyaḥ ca*—and the *kṣatriya*; *jugupsitām*—very abominable; *sarva-veda-mayaḥ*—learned in all the Vedic understandings; *vipraḥ*—the *brāhmaṇa*; *sarva-deva-mayaḥ*—the embodiment of all the demigods; *nṛpaḥ*—the *kṣatriya* or king.

@@ -1,11 +1,11 @@
 ### SB 7.11.29
 
-> या पतिं हरिभावेन भजेत्श्रीरिव तत्परा
+> या पतिं हरिभावेन भजेत्श्रीरिव तत्परा\
 > हर्यात्मना हरेर्लोके पत्या श्रीरिव मोदते ॥२९॥
 
-> yā patiṁ hari-bhāvena
-> bhajet śrīr iva tat-parā
-> hary-ātmanā harer loke
+> yā patiṁ hari-bhāvena\
+> bhajet śrīr iva tat-parā\
+> hary-ātmanā harer loke\
 > patyā śrīr iva modate
 
 *yā*—any woman who; *patim*—her husband; *hari-bhāvena*—mentally accepting him as equal to Hari, the Supreme Personality of Godhead; *bhajet*—worships or renders service to; *śrīḥ iva*—exactly like the goddess of fortune; *tat-parā*—being devoted; *hari-ātmanā*—completely absorbed in thoughts of Hari; *hareḥ loke*—in the spiritual world, the Vaikuṇṭha planets; *patyā*—with her husband; *śrīḥ iva*—exactly like the goddess of fortune; *modate*—enjoys spiritual, eternal life.

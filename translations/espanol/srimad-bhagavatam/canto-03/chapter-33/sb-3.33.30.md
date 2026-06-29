@@ -1,11 +1,11 @@
 ### SB 3.33.30
 
-> एवं सा कपिलोक्तेन मार्गेणाचिरतः परम् ।
+> एवं सा कपिलोक्तेन मार्गेणाचिरतः परम् ।\
 > आत्मानं ब्रह्मनिर्वाणं भगवन्तमवाप ह ॥३०॥
 
-> evaṁ sā kapiloktena
-> mārgeṇācirataḥ param
-> ātmānaṁ brahma-nirvāṇaṁ
+> evaṁ sā kapiloktena\
+> mārgeṇācirataḥ param\
+> ātmānaṁ brahma-nirvāṇaṁ\
 > bhagavantam avāpa ha
 
 *evam*—de este modo; *sā*—ella (Devahūti); *kapila*—por Kapila; *uktena*—instruida; *mārgeṇa*—en el sendero; *acirataḥ*—pronto; *param*—suprema; *ātmānam*—Superalma; *brahma*—Brahman; *nirvāṇam*—cese de la existencia materialista; *bhagavantam*—la Suprema Personalidad de Dios; *avāpa*—ella alcanzó; *ha*—ciertamente.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.132
 
-> নরহরি দাস আদি যত খণ্ডবাসী ।
+> নরহরি দাস আদি যত খণ্ডবাসী ।\
 > শিবানন্দসেন-সঙ্গে মিলিলা সবে আসি’ ॥১৩২॥
 
-> narahari dāsa ādi yata khaṇḍa-vāsī
+> narahari dāsa ādi yata khaṇḍa-vāsī\
 > śivānanda-sena-saṅge mililā sabe āsi'
 
 *narahari dāsa*—de nombre Narahari dāsa; *ādi*—encabezando la lista; *yata*—todos; *khaṇḍa-vāsī*—devotos del lugar conocido como Khaṇḍa; *śivānanda-sena*—de nombre Śivānanda Sena; *saṅge*—con; *mililā*—se encontró; *sabe*—todos; *āsi'*—llegando allí.

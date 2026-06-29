@@ -1,9 +1,9 @@
 ### CC Madhya 20.144
 
-> বেদাদি সকল শাস্ত্রে কৃষ্ণ — মুখ্য সম্বন্ধ ।
+> বেদাদি সকল শাস্ত্রে কৃষ্ণ — মুখ্য সম্বন্ধ ।\
 > তাঁর জ্ঞানে আনুষঙ্গে যায় মায়াবন্ধ ॥১৪৪॥
 
-> vedādi sakala śāstre kṛṣṇa--mukhya sambandha
+> vedādi sakala śāstre kṛṣṇa--mukhya sambandha\
 > tāṅra jñāne ānuṣaṅge yāya māyā-bandha
 
 *veda-ādi*—comenzando con los Vedas; *sakala*—todas; *śāstre*—en las escrituras reveladas; *kṛṣṇa*—el Señor Kṛṣṇa; *mukhya*—principal; *sambandha*—punto central o atracción central; *tāṅra jñāne*—por conocimiento de Él; *ānuṣaṅge*—simultáneamente; *yāya*—se va; *māyā-bandha*—el cautiverio de la existencia material.

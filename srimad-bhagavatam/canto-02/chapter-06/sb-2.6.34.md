@@ -1,11 +1,11 @@
 ### SB 2.6.34
 
-> न भारती मेऽङ्ग मृषोपलक्ष्यते न वै क्वचिन्मे मनसो मृषा गतिः ।
+> न भारती मेऽङ्ग मृषोपलक्ष्यते न वै क्वचिन्मे मनसो मृषा गतिः ।\
 > न मे हृषीकाणि पतन्त्यसत्पथे यन्मे हृदौत्कण्ठ्यवता धृतो हरिः ॥३४॥
 
-> na bhāratī me 'ṅga mṛṣopalakṣyate
-> na vai kvacin me manaso mṛṣā gatiḥ
-> na me hṛṣīkāṇi patanty asat-pathe
+> na bhāratī me 'ṅga mṛṣopalakṣyate\
+> na vai kvacin me manaso mṛṣā gatiḥ\
+> na me hṛṣīkāṇi patanty asat-pathe\
 > yan me hṛdautkaṇṭhyavatā dhṛto hariḥ
 
 *na*—never; *bhāratī*—statements; *me*—mind; *aṅga*—O Nārada; *mṛṣā*—untruth; *upalakṣyate*—prove to be; *na*—never; *vai*—certainly; *kvacit*—at any time; *me*—mine; *manasaḥ*—of the mind; *mṛṣā*—untruth; *gatiḥ*—progress; *na*—nor; *me*—mine; *hṛṣīkāṇi*—senses; *patanti*—degrades; *asat-pathe*—in temporary matter; *yat*—because; *me*—mine; *hṛdā*—heart; *autkaṇṭhyavatā*—by great earnestness; *dhṛtaḥ*—caught hold of; *hariḥ*—the Supreme Personality of Godhead.

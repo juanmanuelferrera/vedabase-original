@@ -1,11 +1,11 @@
 ### SB 5.10.10
 
-> स्थौल्यं कार्श्यं व्याधय आधयश्च क्षुत्तृड्भयं कलिरिच्छा जरा च
+> स्थौल्यं कार्श्यं व्याधय आधयश्च क्षुत्तृड्भयं कलिरिच्छा जरा च\
 > निद्रा रतिर्मन्युरहं मदः शुचो देहेन जातस्य हि मे न सन्ति ॥१०॥
 
-> sthaulyaṁ kārśyaṁ vyādhaya ādhayaś ca
-> kṣut tṛḍ bhayaṁ kalir icchā jarā ca
-> nidrā ratir manyur ahaṁ madaḥ śuco
+> sthaulyaṁ kārśyaṁ vyādhaya ādhayaś ca\
+> kṣut tṛḍ bhayaṁ kalir icchā jarā ca\
+> nidrā ratir manyur ahaṁ madaḥ śuco\
 > dehena jātasya hi me na santi
 
 *sthaulyam*—being very stout and strong; *kārśyam*—being skinny and weak; *vyādhayaḥ*—the pains of the body, such as disease; *ādhayaḥ*—the pains of the mind; *ca*—and; *kṣut tṛṭ bhayam*—hunger, thirst and fear; *kaliḥ*—quarrels between two persons; *icchā*—desires; *jarā*—old age; *ca*—and; *nidrā*—sleep; *ratiḥ*—attachment for sense gratification; *manyuḥ*—anger; *aham*—false identification (in the bodily concept of life); *madaḥ*—illusion; *śucaḥ*—lamentation; *dehena*—with this body; *jātasya*—of one who has taken birth; *hi*—certainly; *me*—of me; *na*—not; *santi*—exist.

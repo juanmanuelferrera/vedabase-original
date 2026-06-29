@@ -1,11 +1,11 @@
 ### SB 4.23.10
 
-> भगवद्धर्मिणः साधोः श्रद्धया यततः सदा ।
+> भगवद्धर्मिणः साधोः श्रद्धया यततः सदा ।\
 > भक्तिर्भगवति ब्रह्मण्यनन्यविषयाभवत् ॥१०॥
 
-> bhagavad-dharmiṇaḥ sādhoḥ
-> śraddhayā yatataḥ sadā
-> bhaktir bhagavati brahmaṇy
+> bhagavad-dharmiṇaḥ sādhoḥ\
+> śraddhayā yatataḥ sadā\
+> bhaktir bhagavati brahmaṇy\
 > ananya-viṣayābhavat
 
 *bhagavat-dharmiṇaḥ*—one who executes devotional service; *sādhoḥ*—of the devotee; *śraddhayā*—with faith; *yatataḥ*—endeavoring; *sadā*—always; *bhaktiḥ*—devotion; *bhagavati*—unto the Personality of Godhead; *brahmaṇi*—the origin of impersonal Brahman; *ananya-viṣayā*—firmly fixed without deviation; *abhavat*—became.

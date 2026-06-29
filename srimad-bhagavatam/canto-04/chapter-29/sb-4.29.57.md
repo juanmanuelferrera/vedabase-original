@@ -1,11 +1,11 @@
 ### SB 4.29.57
 
-> संशयोऽत्र तु मे विप्र सञ्छिन्नस्तत्कृतो महान् ।
+> संशयोऽत्र तु मे विप्र सञ्छिन्नस्तत्कृतो महान् ।\
 > ऋषयोऽपि हि मुह्यन्ति यत्र नेन्द्रियवृत्तयः ॥५७॥
 
-> saṁśayo 'tra tu me vipra
-> sañchinnas tat-kṛto mahān
-> ṛṣayo 'pi hi muhyanti
+> saṁśayo 'tra tu me vipra\
+> sañchinnas tat-kṛto mahān\
+> ṛṣayo 'pi hi muhyanti\
 > yatra nendriya-vṛttayaḥ
 
 *saṁśayaḥ*—doubt; *atra*—here; *tu*—but; *me*—my; *vipra*—O *brāhmaṇa*; *sañchinnaḥ*—cleared; *tat-kṛtaḥ*—done by that; *mahān*—very great; *ṛṣayaḥ*—the great sages; *api*—even; *hi*—certainly; *muhyanti*—are bewildered; *yatra*—where; *na*—not; *indriya*—of the senses; *vṛttayaḥ*—activities.

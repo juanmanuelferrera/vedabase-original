@@ -1,9 +1,9 @@
 ### CC Madhya 18.196
 
-> ‘কর্ম’, ‘জ্ঞান’, ‘যোগ’ আগে করিয়া স্থাপন ।
+> ‘কর্ম’, ‘জ্ঞান’, ‘যোগ’ আগে করিয়া স্থাপন ।\
 > সব খণ্ডি’ স্থাপে ‘ঈশ্বর’, ‘তাঁহার সেবন’ ॥১৯৬॥
 
-> 'karma', jñāna', 'yoga' āge kariyā sthāpana
+> 'karma', jñāna', 'yoga' āge kariyā sthāpana\
 > saba khaṇḍi' sthāpe 'īśvara', 'tāṅhāra sevana'
 
 *karma*—actividades fruitivas; *jñāna*—conocimiento especulativo; *yoga*—poder místico; *āge*—al principio; *kariyā sthāpana*—estableciendo; *saba khaṇḍi'*—refutándolo todo; *sthāpe*—establece; *īśvara*—la Personalidad de Dios; *tāṅhāra sevana*—Su servicio.

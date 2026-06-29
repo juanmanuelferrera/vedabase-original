@@ -1,11 +1,11 @@
 ### SB 3.29.29
 
-> तत्रापि स्पर्शवेदिभ्यः प्रवरा रसवेदिनः ।
+> तत्रापि स्पर्शवेदिभ्यः प्रवरा रसवेदिनः ।\
 > तेभ्यो गन्धविदः श्रेष्ठास्ततः शब्दविदो वराः ॥२९॥
 
-> tatrāpi sparśa-vedibhyaḥ
-> pravarā rasa-vedinaḥ
-> tebhyo gandha-vidaḥ śreṣṭhās
+> tatrāpi sparśa-vedibhyaḥ\
+> pravarā rasa-vedinaḥ\
+> tebhyo gandha-vidaḥ śreṣṭhās\
 > tataḥ śabda-vido varāḥ
 
 *tatra*—among them; *api*—moreover; *sparśa-vedibhyaḥ*—than those perceiving touch; *pravarāḥ*—better; *rasa-vedinaḥ*—those perceiving taste; *tebhyaḥ*—than them; *gandha-vidaḥ*—those perceiving smell; *śreṣṭhāḥ*—better; *tataḥ*—than them; *śabda-vidaḥ*—those perceiving sound; *varāḥ*—better.

@@ -1,9 +1,9 @@
 ### CC Madhya 11.206
 
-> তবে প্রভু প্রসাদান্ন গোবিন্দ-হাতে দিলা ।
+> তবে প্রভু প্রসাদান্ন গোবিন্দ-হাতে দিলা ।\
 > যত্ন করি’ হরিদাস-ঠাকুরে পাঠাইলা ॥২০৬॥
 
-> tabe prabhu prasādānna govinda-hāte dilā
+> tabe prabhu prasādānna govinda-hāte dilā\
 > yatna kari' haridāsa-ṭhākure pāṭhāilā
 
 *tabe*—thereafter; *prabhu*—Śrī Caitanya Mahāprabhu; *prasāda-anna*—remnants of Jagannātha's food; *govinda-hāte*—in the hand of Govinda; *dilā*—delivered; *yatna kari'*—with great attention; *haridāsa-ṭhākure*—unto Haridāsa Ṭhākura; *pāṭhāilā*—sent.

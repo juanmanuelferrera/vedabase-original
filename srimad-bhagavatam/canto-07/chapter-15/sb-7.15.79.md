@@ -1,11 +1,11 @@
 ### SB 7.15.79
 
-> कृष्णपार्थावुपामन्त्र्य पूजितः प्रययौ मुनिः
+> कृष्णपार्थावुपामन्त्र्य पूजितः प्रययौ मुनिः\
 > श्रुत्वा कृष्णं परं ब्रह्म पार्थः परमविस्मितः ॥७९॥
 
-> kṛṣṇa-pārthāv upāmantrya
-> pūjitaḥ prayayau muniḥ
-> śrutvā kṛṣṇaṁ paraṁ brahma
+> kṛṣṇa-pārthāv upāmantrya\
+> pūjitaḥ prayayau muniḥ\
+> śrutvā kṛṣṇaṁ paraṁ brahma\
 > pārthaḥ parama-vismitaḥ
 
 *kṛṣṇa*—Lord Kṛṣṇa; *pārthau*—and Mahārāja Yudhiṣṭhira; *upāmantrya*—bidding farewell; *pūjitaḥ*—being worshiped by them; *prayayau*—left (that place); *muniḥ*—Nārada Muni; *śrutvā*—after hearing; *kṛṣṇam*—about Kṛṣṇa; *param brahma*—as the Supreme Personality of Godhead; *pārthaḥ*—Mahārāja Yudhiṣṭhira; *parama-vismitaḥ*—became most amazed.

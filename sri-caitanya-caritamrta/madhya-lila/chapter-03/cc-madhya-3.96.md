@@ -1,9 +1,9 @@
 ### CC Madhya 3.96
 
-> অবধূতের ঝুঠা লাগিল মোর অঙ্গে ।
+> অবধূতের ঝুঠা লাগিল মোর অঙ্গে ।\
 > পরম পবিত্র মোরে কৈল এই ঢঙ্গে ॥৯৬॥
 
-> avadhūtera jhuṭhā lāgila mora aṅge
+> avadhūtera jhuṭhā lāgila mora aṅge\
 > parama pavitra more kaila ei ḍhaṅge
 
 *avadhūtera jhuṭhā*—the remnants of the food of the *avadhūta*; *lāgila*—touched; *mora*—My; *aṅge*—on the body; *parama pavitra*—perfectly purified; *more*—Me; *kaila*—made; *ei*—this; *ḍhaṅge*—behavior.

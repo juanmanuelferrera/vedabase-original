@@ -1,11 +1,11 @@
 ### CC Adi 4.63
 
-> হ্লাদিনী সন্ধিনী সম্বিত্ত্বয্যেকা সর্বসংস্থিতৌ ।
+> হ্লাদিনী সন্ধিনী সম্বিত্ত্বয্যেকা সর্বসংস্থিতৌ ।\
 > হ্লাদতাপকরী মিশ্রা ত্বয়ি নো গুণবর্জিতে ॥৬৩॥
 
-> hlādinī sandhinī samvit
-> tvayy ekā sarva-saṁsthitau
-> hlāda-tāpa-karī miśrā
+> hlādinī sandhinī samvit\
+> tvayy ekā sarva-saṁsthitau\
+> hlāda-tāpa-karī miśrā\
 > tvayi no guṇa-varjite
 
 *hlādinī*—pleasure potency; *sandhinī*—existence potency; *samvit*—knowledge potency; *tvayi*—in You; *ekā*—one; *sarva-saṁsthitau*—who are the basis of all things; *hlāda*—pleasure; *tāpa*—and misery; *karī*—causing; *miśrā*—a mixture of the two; *tvayi*—in You; *na u*—not; *guṇa-varjite*—who are without the three modes of material nature.

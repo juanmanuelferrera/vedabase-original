@@ -1,9 +1,9 @@
 ### CC Madhya 18.150
 
-> তবে সুখ হয় যবে গঙ্গাপথে যাইয়ে ।
+> তবে সুখ হয় যবে গঙ্গাপথে যাইয়ে ।\
 > এবে যদি যাই, ‘মকরে’ গঙ্গাস্নান পাইয়ে ॥১৫০॥
 
-> tabe sukha haya yabe gaṅgā-pathe yāiye
+> tabe sukha haya yabe gaṅgā-pathe yāiye\
 > ebe yadi yāi, 'makare' gaṅgā-snāna pāiye
 
 *tabe*—entonces; *sukha haya*—será una gran felicidad para mí; *yabe*—cuando; *gaṅgā-pathe*—por el camino del Ganges; *yāiye*—vayamos; *ebe yadi yāi*—si partimos ahora mismo; *makare*—durante Makara-saṅkrānti; *gaṅgā-snāna pāiye*—podremos bañarnos en el Ganges.

@@ -1,11 +1,11 @@
 ### SB 7.2.45
 
-> न श्रोता नानुवक्तायं मुख्योऽप्यत्र महानसुः
+> न श्रोता नानुवक्तायं मुख्योऽप्यत्र महानसुः\
 > यस्त्विहेन्द्रियवानात्मा स चान्यः प्राणदेहयोः ॥४५॥
 
-> na śrotā nānuvaktāyaṁ
-> mukhyo 'py atra mahān asuḥ
-> yas tv ihendriyavān ātmā
+> na śrotā nānuvaktāyaṁ\
+> mukhyo 'py atra mahān asuḥ\
+> yas tv ihendriyavān ātmā\
 > sa cānyaḥ prāṇa-dehayoḥ
 
 *na*—not; *śrotā*—the listener; *na*—not; *anuvaktā*—the speaker; *ayam*—this; *mukhyaḥ*—chief; *api*—although; *atra*—in this body; *mahān*—the great; *asuḥ*—life air; *yaḥ*—he who; *tu*—but; *iha*—in this body; *indriya-vān*—possessing all the sense organs; *ātmā*—the soul; *saḥ*—he; *ca*—and; *anyaḥ*—different; *prāṇa-dehayoḥ*—from the life air and the material body.

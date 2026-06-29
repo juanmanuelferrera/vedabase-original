@@ -1,11 +1,11 @@
 ### SB 4.2.6
 
-> उदतिष्ठन्सदस्यास्ते स्वधिष्ण्येभ्यः सहाग्नयः ।
+> उदतिष्ठन्सदस्यास्ते स्वधिष्ण्येभ्यः सहाग्नयः ।\
 > ऋते विरिञ्चां शर्वं च तद्भासाक्षिप्तचेतसः ॥६॥
 
-> udatiṣṭhan sadasyās te
-> sva-dhiṣṇyebhyaḥ sahāgnayaḥ
-> ṛte viriñcāṁ śarvaṁ ca
+> udatiṣṭhan sadasyās te\
+> sva-dhiṣṇyebhyaḥ sahāgnayaḥ\
+> ṛte viriñcāṁ śarvaṁ ca\
 > tad-bhāsākṣipta-cetasaḥ
 
 *udatiṣṭhan*—stood up; *sadasyāḥ*—the members of the assembly; *te*—they; *sva-dhiṣṇyebhyaḥ*—from their own seats; *saha-agnayaḥ*—along with the fire-gods; *ṛte*—except for; *viriñcām*—Brahmā; *śarvam*—Śiva; *ca*—and; *tat*—his (Dakṣa's); *bhāsa*—by the luster; *ākṣipta*—are influenced; *cetasaḥ*—those whose minds.

@@ -1,11 +1,11 @@
 ### SB 4.21.43
 
-> तेषामहं पादसरोजरेणुमार्या वहेयाधिकिरीटमायुः ।
+> तेषामहं पादसरोजरेणुमार्या वहेयाधिकिरीटमायुः ।\
 > यं नित्यदा बिभ्रत आशु पापं नश्यत्यमुं सर्वगुणा भजन्ति ॥४३॥
 
-> teṣām ahaṁ pāda-saroja-reṇum
-> āryā vaheyādhi-kirīṭam āyuḥ
-> yaṁ nityadā bibhrata āśu pāpaṁ
+> teṣām ahaṁ pāda-saroja-reṇum\
+> āryā vaheyādhi-kirīṭam āyuḥ\
+> yaṁ nityadā bibhrata āśu pāpaṁ\
 > naśyaty amuṁ sarva-guṇā bhajanti
 
 *teṣām*—of all of them; *aham*—I; *pāda*—feet; *saroja*—lotus; *reṇum*—dust; *āryāḥ*—O respectable persons; *vaheya*—shall bear; *adhi*—up to; *kirīṭam*—helmet; *āyuḥ*—up to the end of life; *yam*—which; *nityadā*—always; *bibhrataḥ*—carrying; *āśu*—very soon; *pāpam*—sinful activities; *naśyati*—are vanquished; *amum*—all those; *sarva-guṇāḥ*—fully qualified; *bhajanti*—worship.

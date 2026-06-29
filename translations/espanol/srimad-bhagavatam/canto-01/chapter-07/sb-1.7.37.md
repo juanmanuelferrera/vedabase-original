@@ -1,11 +1,11 @@
 ### SB 1.7.37
 
-> स्वप्राणान्यः परप्राणैः प्रपुष्णात्यघृणः खलः ।
+> स्वप्राणान्यः परप्राणैः प्रपुष्णात्यघृणः खलः ।\
 > तद्वधस्तस्य हि श्रेयो यद्दोषाद्यात्यधः पुमान् ॥३७॥
 
-> sva-prāṇān yaḥ para-prāṇaiḥ
-> prapuṣṇāty aghṛṇaḥ khalaḥ
-> tad-vadhas tasya hi śreyo
+> sva-prāṇān yaḥ para-prāṇaiḥ\
+> prapuṣṇāty aghṛṇaḥ khalaḥ\
+> tad-vadhas tasya hi śreyo\
 > yad-doṣād yāty adhaḥ pumān
 
 *sva-prāṇān*—la propia vida de uno; *yaḥ*—aquel que; *para-prāṇaiḥ*—a costa de la vida de otros; *prapuṣṇāti*—mantiene bien; *aghṛṇaḥ*—desvergonzado; *khalaḥ*—despreciable; *tat-vadhaḥ*—la matanza de él; *tasya*—su; *hi*—ciertamente; *śreyaḥ*—bienestar; *yat*—mediante el cual; *doṣāt*—por la culpa; *yāti*—va; *adhaḥ*—hacia abajo; *pumān*—una persona.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.54
 
-> দুগ্ধ-চিড়া-কলা আর দুগ্ধ-লক্লকী ৷
+> দুগ্ধ-চিড়া-কলা আর দুগ্ধ-লক্লকী ৷\
 > যতেক করিল’ তাহা কহিতে না শকি ॥৫৪॥
 
-> dugdha-ciḍā-kalā āra dugdha-laklakī
+> dugdha-ciḍā-kalā āra dugdha-laklakī\
 > yateka karila' tāhā kahite nā śaki
 
 *dugdha-ciḍā*—arroz aplastado preparado con leche; *kalā*—mezclado con plátanos; *āra*—y; *dugdha-laklakī*—un tipo de calabaza conocida como *lāu*, hervida con leche; *yateka*—todo lo que; *karila'*—se preparó; *tāhā*—eso; *kahite*—describir; *nā*—no; *śaki*—soy capaz.

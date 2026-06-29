@@ -1,9 +1,9 @@
 ### CC Madhya 17.168
 
-> গোপাল প্রকট করি’ সেবা কৈল ‘মহাশয়’ ।
+> গোপাল প্রকট করি’ সেবা কৈল ‘মহাশয়’ ।\
 > অদ্যাপিহ তাঁহার সেবা ‘গোবর্ধনে’ হয় ॥১৬৮॥
 
-> gopāla prakaṭa kari' sevā kaila 'mahāśaya'
+> gopāla prakaṭa kari' sevā kaila 'mahāśaya'\
 > adyāpiha tāṅhāra sevā 'govardhane' haya
 
 *gopāla*—la Deidad Gopāla; *prakaṭa kari'*—instalando; *sevā*—servicio; *kaila*—realizó; *mahāśaya*—aquella gran personalidad; *adyāpiha*—aún hoy; *tāṅhāra*—de aquella Deidad Gopāla; *sevā*—el servicio; *govardhane*—en la colina de Govardhana; *haya*—se lleva a cabo.

@@ -1,11 +1,11 @@
 ### SB 3.19.20
 
-> गिरयः प्रत्यदृश्यन्त नानायुधमुचोऽनघ ।
+> गिरयः प्रत्यदृश्यन्त नानायुधमुचोऽनघ ।\
 > दिग्वाससो यातुधान्यः शूलिन्यो मुक्तमूर्धजाः ॥२०॥
 
-> girayaḥ pratyadṛśyanta
-> nānāyudha-muco 'nagha
-> dig-vāsaso yātudhānyaḥ
+> girayaḥ pratyadṛśyanta\
+> nānāyudha-muco 'nagha\
+> dig-vāsaso yātudhānyaḥ\
 > śūlinyo mukta-mūrdhajāḥ
 
 *girayaḥ*—montañas; *pratyadṛśyanta*—aparecieron; *nānā*—diversas; *āyudha*—armas; *mucaḥ*—disparando; *anagha*—¡oh, intachable Vidura!; *dik-vāsasaḥ*—desnudas; *yātudhānyaḥ*—brujas; *śūlinyaḥ*—armadas con tridentes; *mukta*—colgando suelto; *mūrdhajāḥ*—cabello.

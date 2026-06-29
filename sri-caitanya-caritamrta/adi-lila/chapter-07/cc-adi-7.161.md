@@ -1,9 +1,9 @@
 ### CC Adi 7.161
 
-> রাত্রি-দিবসে লোকের শুনি’ কোলাহল ।
+> রাত্রি-দিবসে লোকের শুনি’ কোলাহল ।\
 > বারাণসী ছাড়ি’ প্রভু আইলা নীলাচল ॥১৬১॥
 
-> rātri-divase lokera śuni' kolāhala
+> rātri-divase lokera śuni' kolāhala\
 > vārāṇasī chāḍi' prabhu āilā nīlācala
 
 *rātri*—night; *divase*—day; *lokera*—of the people in general; *śuni*—hearing; *kolāhala*—tumult; *vārāṇasī*—the city of Benares; *chāḍi'*—leaving; *prabhu*—the Lord; *āilā*—returned; *nīlācala*—to Purī.

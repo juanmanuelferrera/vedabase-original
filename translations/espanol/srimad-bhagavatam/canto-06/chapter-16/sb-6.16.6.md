@@ -1,11 +1,11 @@
 ### SB 6.16.6
 
-> यथा वस्तूनि पण्यानि हेमादीनि ततस्ततः
+> यथा वस्तूनि पण्यानि हेमादीनि ततस्ततः\
 > पर्यटन्ति नरेष्वेवं जीवो योनिषु कर्तृषु ॥६॥
 
-> yathā vastūni paṇyāni
-> hemādīni tatas tataḥ
-> paryaṭanti nareṣv evaṁ
+> yathā vastūni paṇyāni\
+> hemādīni tatas tataḥ\
+> paryaṭanti nareṣv evaṁ\
 > jīvo yoniṣu kartṛṣu
 
 *yathā*—tal y como; *vastūni*—mercancías; *paṇyāni*—destinadas al comercio; *hema-ādīni*—como el oro; *tataḥ tataḥ*—de un lugar a otro; *paryaṭanti*—pasan; *nareṣu*—entre los hombres; *evam*—de este modo; *jīvaḥ*—la entidad viviente; *yoniṣu*—en diversas especies de vida; *kartṛṣu*—en distintos padres materiales.

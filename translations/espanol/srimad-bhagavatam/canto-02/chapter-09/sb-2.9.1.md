@@ -1,13 +1,13 @@
 ### SB 2.9.1
 
-> श्रीशुक उवाच
-> आत्ममायामृते राजन्परस्यानुभवात्मनः ।
+> श्रीशुक उवाच\
+> आत्ममायामृते राजन्परस्यानुभवात्मनः ।\
 > न घटेतार्थसम्बन्धः स्वप्नद्रष्टुरिवाञ्जसा ॥१॥
 
-> śrī-śuka uvāca
-> ātma-māyām ṛte rājan
-> parasyānubhavātmanaḥ
-> na ghaṭetārtha-sambandhaḥ
+> śrī-śuka uvāca\
+> ātma-māyām ṛte rājan\
+> parasyānubhavātmanaḥ\
+> na ghaṭetārtha-sambandhaḥ\
 > svapna-draṣṭur ivāñjasā
 
 *śrī-śukaḥ uvāca*—Śrīla Śukadeva Gosvāmī dijo; *ātma*—la Suprema Personalidad de Dios; *māyām*—energía; *ṛte*—sin; *rājan*—¡oh, rey!; *parasya*—del alma pura; *anubhava-ātmanaḥ*—de la puramente consciente; *na*—nunca; *ghaṭeta*—puede ocurrir así; *artha*—sentido; *sambandhaḥ*—relación con el cuerpo material; *svapna*—sueño; *draṣṭuḥ*—del observador; *iva*—como; *añjasā*—completamente.

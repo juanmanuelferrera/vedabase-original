@@ -1,9 +1,9 @@
 ### CC Antya 10.112
 
-> গোবিন্দেরে সবে পুছে করিয়া যতন ।
+> গোবিন্দেরে সবে পুছে করিয়া যতন ।\
 > ‘আমা-দত্ত প্রসাদ প্রভুরে কি করাইলা ভক্ষণ ?’ ॥ ১১২ ॥
 
-> govindere sabe puche kariyā yatana
+> govindere sabe puche kariyā yatana\
 > 'āmā-datta prasāda prabhure ki karāilā bhakṣaṇa?
 
 *govindere*—a Govinda; *sabe*—todos los devotos; *puche*—preguntaron; *kariyā yatana*—con gran entusiasmo; *āmā-datta prasāda*—el prasādam dado por mí; *prabhure*—a Śrī Caitanya Mahāprabhu; *ki karāilā bhakṣaṇa*—se lo has dado para que coma.

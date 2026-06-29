@@ -1,9 +1,9 @@
 ### CC Madhya 7.99
 
-> কতক্ষণে রহি’ প্রভু তারে আলিঙ্গিয়া ।
+> কতক্ষণে রহি’ প্রভু তারে আলিঙ্গিয়া ।\
 > বিদায় করিল তারে শক্তি সঞ্চারিয়া ॥৯৯॥
 
-> kata-kṣaṇe rahi' prabhu tāre āliṅgiyā
+> kata-kṣaṇe rahi' prabhu tāre āliṅgiyā\
 > vidāya karila tāre śakti sañcāriyā
 
 *kata-kṣaṇe rahi'*—after remaining for some time; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *tāre*—them; *āliṅgiyā*—embracing; *vidāya karila*—bade farewell; *tāre*—in them; *śakti*—spiritual potency; *sañcāriyā*—investing.

@@ -1,11 +1,11 @@
 ### SB 4.3.20
 
-> व्यक्तं त्वमुत्कृष्टगतेः प्रजापतेः प्रियात्मजानामसि सुभ्रु मे मता ।
+> व्यक्तं त्वमुत्कृष्टगतेः प्रजापतेः प्रियात्मजानामसि सुभ्रु मे मता ।\
 > तथापि मानं न पितुः प्रपत्स्यसे मदाश्रयात्कः परितप्यते यतः ॥२०॥
 
-> vyaktaṁ tvam utkṛṣṭa-gateḥ prajāpateḥ
-> priyātmajānām asi subhru me matā
-> tathāpi mānaṁ na pituḥ prapatsyase
+> vyaktaṁ tvam utkṛṣṭa-gateḥ prajāpateḥ\
+> priyātmajānām asi subhru me matā\
+> tathāpi mānaṁ na pituḥ prapatsyase\
 > mad-āśrayāt kaḥ paritapyate yataḥ
 
 *vyaktam*—it is clear; *tvam*—you; *utkṛṣṭa-gateḥ*—having the best behavior; *prajāpateḥ*—of Prajāpati Dakṣa; *priyā*—the pet; *ātmajānām*—of the daughters; *asi*—you are; *subhru*—O you with the beautiful eyebrows; *me*—my; *matā*—considered; *tathā api*—yet; *mānam*—honor; *na*—not; *pituḥ*—from your father; *prapatsyase*—you will meet with; *mat-āśrayāt*—from connection with me; *kaḥ*—Dakṣa; *paritapyate*—is feeling pain; *yataḥ*—from whom.

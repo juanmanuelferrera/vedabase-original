@@ -1,9 +1,9 @@
 ### CC Madhya 6.50
 
-> গোপীনাথ আচার্যেরে কহে সার্বভৌম ।
+> গোপীনাথ আচার্যেরে কহে সার্বভৌম ।\
 > গোসাঞির জানিতে চাহি কাহাঁ পূর্বাশ্রম ॥৫০॥
 
-> gopīnātha ācāryere kahe sārvabhauma
+> gopīnātha ācāryere kahe sārvabhauma\
 > gosāñira jānite cāhi kāhāṅ pūrvāśrama
 
 *gopīnātha ācāryere*—to Gopīnātha Ācārya; *kahe*—said; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *gosāñira*—of Lord Caitanya Mahāprabhu; *jānite*—to know; *cāhi*—I want; *kāhāṅ*—what; *pūrva-āśrama*—previous situation.

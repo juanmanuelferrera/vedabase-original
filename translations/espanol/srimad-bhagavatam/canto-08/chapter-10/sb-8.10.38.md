@@ -1,11 +1,11 @@
 ### SB 8.10.38
 
-> तेषां पदाघातरथाङ्गचूर्णितादायोधनादुल्बण उत्थितस्तदा
+> तेषां पदाघातरथाङ्गचूर्णितादायोधनादुल्बण उत्थितस्तदा\
 > रेणुर्दिशः खं द्युमणिं च छादयन्न्यवर्ततासृक्स्रुतिभिः परिप्लुतात ॥३८॥
 
-> teṣāṁ padāghāta-rathāṅga-cūrṇitād
-> āyodhanād ulbaṇa utthitas tadā
-> reṇur diśaḥ khaṁ dyumaṇiṁ ca chādayan
+> teṣāṁ padāghāta-rathāṅga-cūrṇitād\
+> āyodhanād ulbaṇa utthitas tadā\
+> reṇur diśaḥ khaṁ dyumaṇiṁ ca chādayan\
 > nyavartatāsṛk-srutibhiḥ pariplutāt
 
 *teṣām*—de todas las personas que combatían en el campo de batalla; *padāghāta*—debido al choque con el suelo de las piernas de los demonios y semidioses; *ratha-aṅga*—y por las ruedas de las cuadrigas; *cūrṇitāt*—que se deshacía en partículas de polvo; *āyodhanāt*—del campo de batalla; *ulbaṇaḥ*—con gran violencia; *utthitaḥ*—elevarse; *tadā*—en aquel momento; *reṇuḥ*—las partículas de polvo; *diśaḥ*—todas las direcciones; *kham*—el espacio exterior; *dyumaṇim*—hasta el Sol; *ca*—también; *chādayan*—cubriendo todo el espacio hasta allí; *nyavartata*—no se pudieron mantener flotando en el aire; *asṛk*—de sangre; *srutibhiḥ*—por partículas; *pariplutāt*—debido a que salpicaba por todas partes.

@@ -1,11 +1,11 @@
 ### SB 1.19.12
 
-> सुखोपविष्टेष्वथ तेषु भूयः कृतप्रणामः स्वचिकीर्षितं यत् ।
+> सुखोपविष्टेष्वथ तेषु भूयः कृतप्रणामः स्वचिकीर्षितं यत् ।\
 > विज्ञापयामास विविक्तचेता उपस्थितोऽग्रेऽभिगृहीतपाणिः ॥१२॥
 
-> sukhopaviṣṭeṣv atha teṣu bhūyaḥ
-> kṛta-praṇāmaḥ sva-cikīrṣitaṁ yat
-> vijñāpayām āsa vivikta-cetā
+> sukhopaviṣṭeṣv atha teṣu bhūyaḥ\
+> kṛta-praṇāmaḥ sva-cikīrṣitaṁ yat\
+> vijñāpayām āsa vivikta-cetā\
 > upasthito 'gre 'bhigṛhīta-pāṇiḥ
 
 *sukha*—happily; *upaviṣṭeṣu*—all sitting down; *atha*—thereupon; *teṣu*—unto them (the visitors); *bhūyaḥ*—again; *kṛta-praṇāmaḥ*—having offered obeisances; *sva*—his own; *cikīrṣitam*—decision of fasting; *yat*—who; *vijñāpayām āsa*—submitted; *vivikta-cetāḥ*—one whose mind is detached from worldly affairs; *upasthitaḥ*—being present; *agre*—before them; *abhigṛhīta-pāṇiḥ*—humbly with folded hands.

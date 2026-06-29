@@ -1,11 +1,11 @@
 ### SB 1.11.27
 
-> सितातपत्रव्यजनैरुपस्कृतः प्रसूनवर्षैरभिवर्षितः पथि ।
+> सितातपत्रव्यजनैरुपस्कृतः प्रसूनवर्षैरभिवर्षितः पथि ।\
 > पिशङ्गवासा वनमालया बभौ घनो यथार्कोडुपचापवैद्युतैः ॥२७॥
 
-> sitātapatra-vyajanair upaskṛtaḥ
-> prasūna-varṣair abhivarṣitaḥ pathi
-> piśaṅga-vāsā vana-mālayā babhau
+> sitātapatra-vyajanair upaskṛtaḥ\
+> prasūna-varṣair abhivarṣitaḥ pathi\
+> piśaṅga-vāsā vana-mālayā babhau\
 > ghano yathārkoḍupa-cāpa-vaidyutaiḥ
 
 *sita-ātapatra*—white umbrella; *vyajanaiḥ*—with a *cāmara* fan; *upaskṛtaḥ*—being served by; *prasūna*—flowers; *varṣaiḥ*—by the showers; *abhivarṣitaḥ*—thus being covered; *pathi*—on the road; *piśaṅga-vāsāḥ*—by the yellow garments; *vana-mālayā*—by the flower garlands; *babhau*—thus it became; *ghanaḥ*—cloud; *yathā*—as if; *arka*—the sun; *uḍupa*—the moon; *cāpa*—the rainbow; *vaidyutaiḥ*—by the lightning.

@@ -1,11 +1,11 @@
 ### SB 3.14.11
 
-> तद्भवान्दह्यमानायां सपत्नीनां समृद्धिभिः ।
+> तद्भवान्दह्यमानायां सपत्नीनां समृद्धिभिः ।\
 > प्रजावतीनां भद्रं ते मय्यायुङ्क्तामनुग्रहम् ॥११॥
 
-> tad bhavān dahyamānāyāṁ
-> sa-patnīnāṁ samṛddhibhiḥ
-> prajāvatīnāṁ bhadraṁ te
+> tad bhavān dahyamānāyāṁ\
+> sa-patnīnāṁ samṛddhibhiḥ\
+> prajāvatīnāṁ bhadraṁ te\
 > mayy āyuṅktām anugraham
 
 *tat*—por lo tanto; *bhavān*—tu noble persona; *dahyamānāyām*—estando afligida; *sa-patnīnām*—de las coesposas; *samṛddhibhiḥ*—por la prosperidad; *prajā-vatīnām*—de aquellas que tienen hijos; *bhadram*—toda prosperidad; *te*—a ti; *mayi*—a mí; *āyuṅktām*—hazme, en todos los aspectos; *anugraham*—gracia.

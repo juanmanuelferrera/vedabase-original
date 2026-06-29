@@ -1,9 +1,9 @@
 ### CC Antya 4.29
 
-> হেন বংশ ঘৃণা ছাড়ি’ কৈলা অঙ্গীকার  ।
+> হেন বংশ ঘৃণা ছাড়ি’ কৈলা অঙ্গীকার  ।\
 > তোমার কৃপায় বংশে মঙ্গল আমার ॥২৯॥
 
-> hena vaṁśa ghṛṇā chāḍi' kailā aṅgīkāra
+> hena vaṁśa ghṛṇā chāḍi' kailā aṅgīkāra\
 > tomāra kṛpāya vaṁśe maṅgala āmāra
 
 *hena*—such; *vaṁśa*—family; *ghṛṇā*—hatred; *chāḍi'*—giving up; *kailā*—You have done; *aṅgīkāra*—acceptance; *tomāra*—Your; *kṛpāya*—by mercy; *vaṁśe*—in the family; *maṅgala*—auspiciousness; *āmāra*—my.

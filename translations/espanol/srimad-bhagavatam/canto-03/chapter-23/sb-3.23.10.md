@@ -1,15 +1,15 @@
 ### SB 3.23.10
 
-> देवहूतिरुवाच
-> राद्धं बत द्विजवृषैतदमोघयोग
-> मायाधिपे त्वयि विभो तदवैमि भर्तः ।
-> यस्तेऽभ्यधायि समयः सकृदङ्गसङ्गो
+> देवहूतिरुवाच\
+> राद्धं बत द्विजवृषैतदमोघयोग\
+> मायाधिपे त्वयि विभो तदवैमि भर्तः ।\
+> यस्तेऽभ्यधायि समयः सकृदङ्गसङ्गो\
 > भूयाद्गरीयसि गुणः प्रसवः सतीनाम् ॥१०॥
 
-> devahūtir uvāca
-> rāddhaṁ bata dvija-vṛṣaitad amogha-yoga-
-> māyādhipe tvayi vibho tad avaimi bhartaḥ
-> yas te 'bhyadhāyi samayaḥ sakṛd aṅga-saṅgo
+> devahūtir uvāca\
+> rāddhaṁ bata dvija-vṛṣaitad amogha-yoga-\
+> māyādhipe tvayi vibho tad avaimi bhartaḥ\
+> yas te 'bhyadhāyi samayaḥ sakṛd aṅga-saṅgo\
 > bhūyād garīyasi guṇaḥ prasavaḥ satīnām
 
 *devahūtiḥ uvāca*—Devahūti dijo; *rāddham*—ha sido conseguida; *bata*—ciertamente; *dvija-vṛṣa*—¡oh, el mejor de los *brāhmaṇas*!; *etat*—este; *amogha*—infalibles; *yoga-māyā*—de poderes místicos; *adhipe*—el amo; *tvayi*—en ti; *vibho*—¡oh, grande!; *tat*—eso; *avaimi*—yo sé; *bhartaḥ*—¡oh, esposo!; *yaḥ*—esa que; *te*—por ti; *abhyadhāyi*—fue dada; *samayaḥ*—promesa; *sakṛt*—en cierta ocasión; *aṅga-saṅgaḥ*—unión física; *bhūyāt*—que sea; *garīyasi*—cuando muy glorioso; *guṇaḥ*—una gran cualidad; *prasavaḥ*—descendencia; *satīnām*—de las mujeres castas.

@@ -1,11 +1,11 @@
 ### SB 4.31.17
 
-> यथा नभस्यभ्रतमःप्रकाशा भवन्ति भूपा न भवन्त्यनुक्रमात् ।
+> यथा नभस्यभ्रतमःप्रकाशा भवन्ति भूपा न भवन्त्यनुक्रमात् ।\
 > एवं परे ब्रह्मणि शक्तयस्त्वमू रजस्तमः सत्त्वमिति प्रवाहः ॥१७॥
 
-> yathā nabhasy abhra-tamaḥ-prakāśā
-> bhavanti bhūpā na bhavanty anukramāt
-> evaṁ pare brahmaṇi śaktayas tv amū
+> yathā nabhasy abhra-tamaḥ-prakāśā\
+> bhavanti bhūpā na bhavanty anukramāt\
+> evaṁ pare brahmaṇi śaktayas tv amū\
 > rajas tamaḥ sattvam iti pravāhaḥ
 
 *yathā*—como; *nabhasi*—en el cielo; *abhra*—nubes; *tamaḥ*—oscuridad; *prakāśāḥ*—e iluminación; *bhavanti*—existen; *bhū-pāḥ*—¡oh, reyes!; *na bhavanti*—no aparecen; *anukramāt*—sucesivamente; *evam*—así; *pare*—supremo; *brahmaṇi*—en el Absoluto; *śaktayaḥ*—energías; *tu*—entonces; *amūḥ*—esas; *rajaḥ*—pasión; *tamaḥ*—oscuridad; *sattvam*—bondad; *iti*—así; *pravāhaḥ*—emanación.

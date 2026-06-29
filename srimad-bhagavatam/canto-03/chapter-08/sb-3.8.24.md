@@ -1,11 +1,11 @@
 ### SB 3.8.24
 
-> प्रेक्षां क्षिपन्तं हरितोपलाद्रेः सन्ध्याभ्रनीवेरुरुरुक्ममूर्ध्नः ।
+> प्रेक्षां क्षिपन्तं हरितोपलाद्रेः सन्ध्याभ्रनीवेरुरुरुक्ममूर्ध्नः ।\
 > रत्नोदधारौषधिसौमनस्य वनस्रजो वेणुभुजाङ्घ्रिपाङ्घ्रेः ॥२४॥
 
-> prekṣāṁ kṣipantaṁ haritopalādreḥ
-> sandhyābhra-nīver uru-rukma-mūrdhnaḥ
-> ratnodadhārauṣadhi-saumanasya
+> prekṣāṁ kṣipantaṁ haritopalādreḥ\
+> sandhyābhra-nīver uru-rukma-mūrdhnaḥ\
+> ratnodadhārauṣadhi-saumanasya\
 > vana-srajo veṇu-bhujāṅghripāṅghreḥ
 
 *prekṣām*—the panorama; *kṣipantam*—deriding; *harita*—green; *upala*—coral; *adreḥ*—of the hell; *sandhyā-abhra-nīveḥ*—of the dress of the evening sky; *uru*—great; *rukma*—gold; *mūrdhnaḥ*—on the summit; *ratna*—jewels; *udadhāra*—waterfalls; *auṣadhi*—herbs; *saumanasya*—of the scenery; *vana-srajaḥ*—flower garland; *veṇu*—dress; *bhuja*—hands; *aṅghripa*—trees; *aṅghreḥ*—legs.

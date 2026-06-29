@@ -1,9 +1,9 @@
 ### CC Antya 6.324
 
-> প্রভু বলে, — “নিতি-নিতি নানা প্রসাদ খাই ।
+> প্রভু বলে, — “নিতি-নিতি নানা প্রসাদ খাই ।\
 > ঐছে স্বাদ আর কোন প্রসাদে না পাই ।।” ॥ ৩২৪ ॥
 
-> prabhu bale,—"niti-niti nānā prasāda khāi
+> prabhu bale,—"niti-niti nānā prasāda khāi\
 > aiche svāda āra kona prasāde nā pāi"
 
 *prabhu bale*—Lord Śrī Caitanya Mahāprabhu said; *niti-niti*—day after day; *nānā prasāda*—varieties of *prasāda*; *khāi*—I eat; *aiche svāda*—such a nice taste; *āra*—other; *kona*—any; *prasāde*—in the remnants of Lord Jagannātha's food; *nā pāi*—I do not get.

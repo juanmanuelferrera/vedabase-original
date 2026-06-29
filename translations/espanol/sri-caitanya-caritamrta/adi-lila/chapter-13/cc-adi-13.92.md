@@ -1,9 +1,9 @@
 ### CC Adi 13.92
 
-> এত জানি’ রাহু কৈল চন্দ্রের গ্রহণ ।
+> এত জানি’ রাহু কৈল চন্দ্রের গ্রহণ ।\
 > ‘কৃষ্ণ’ ‘কৃষ্ণ’ ‘হরি’ নামে ভাসে ত্রিভুবন ॥৯২॥
 
-> eta jāni' rāhu kaila candrera grahaṇa
+> eta jāni' rāhu kaila candrera grahaṇa\
 > 'kṛṣṇa' 'kṛṣṇa' 'hari' nāme bhāse tri-bhuvana
 
 *eta jāni'*—sabiendo todo esto; *rāhu*—la figura zodiacal Rāhu; *kaila*—intentó; *candrera*—de la luna; *grahaṇa*—eclipse; *kṛṣṇa kṛṣṇa*—el santo nombre de Kṛṣṇa; *hari*—el santo nombre de Hari; *nāme*—los nombres; *bhāse*—inundó; *tri-bhuvana*—los tres mundos.

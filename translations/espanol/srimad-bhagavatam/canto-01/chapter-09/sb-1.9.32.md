@@ -1,13 +1,13 @@
 ### SB 1.9.32
 
-> श्रीभीष्म उवाच
-> इति मतिरुपकल्पिता वितृष्णा भगवति सात्वतपुङ्गवे विभूम्नि ।
+> श्रीभीष्म उवाच\
+> इति मतिरुपकल्पिता वितृष्णा भगवति सात्वतपुङ्गवे विभूम्नि ।\
 > स्वसुखमुपगते क्वचिद्विहर्तुं प्रकृतिमुपेयुषि यद्भवप्रवाहः ॥३२॥
 
-> śrī-bhīṣma uvāca
-> iti matir upakalpitā vitṛṣṇā
-> bhagavati sātvata-puṅgave vibhūmni
-> sva-sukham upagate kvacid vihartuṁ
+> śrī-bhīṣma uvāca\
+> iti matir upakalpitā vitṛṣṇā\
+> bhagavati sātvata-puṅgave vibhūmni\
+> sva-sukham upagate kvacid vihartuṁ\
 > prakṛtim upeyuṣi yad-bhava-pravāhaḥ
 
 *śrī-bhīṣmaḥ uvāca*—Śrī Bhīṣmadeva dijo; *iti*—así pues; *matiḥ*—pensando, sintiendo y deseando; *upakalpitā*—invirtió; *vitṛṣṇā*—liberado de todos los deseos de los sentidos; *bhagavati*—a la Personalidad de Dios; *sātvata-puṅgave*—al líder de los devotos; *vibhūmni*—al gran; *sva-sukham*—autosatisfacción; *upagate*—a Aquel que lo ha logrado; *kvacit*—a veces; *vihartum*—por placer trascendental; *prakṛtim*—en el mundo material; *upeyuṣi*—lo acepta; *yat-bhava*—a partir de quien la creación; *pravāhaḥ*—es hecha y aniquilada.

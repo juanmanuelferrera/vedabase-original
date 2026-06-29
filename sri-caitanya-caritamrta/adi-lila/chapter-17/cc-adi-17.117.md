@@ -1,9 +1,9 @@
 ### CC Adi 17.117
 
-> জল পান করিয়া নাচে হঞা বিহ্বল ।
+> জল পান করিয়া নাচে হঞা বিহ্বল ।\
 > যমুনাকর্ষণ-লীলা দেখয়ে সকল ॥১১৭॥
 
-> jala pāna kariyā nāce hañā vihvala
+> jala pāna kariyā nāce hañā vihvala\
 > yamunākarṣaṇa-līlā dekhaye sakala
 
 *jala*—water; *pāna kariyā*—after drinking; *nāce*—dances; *hañā*—becoming; *vihvala*—ecstatic; *yamunā-ākarṣaṇa*—attracting the river Yamunā; *līlā*—pastimes; *dekhaye*—sees; *sakala*—everyone.

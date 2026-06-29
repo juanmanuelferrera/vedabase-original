@@ -1,9 +1,9 @@
 ### CC Madhya 7.28
 
-> অতএব তুমি সব রহ নীলাচলে ৷
+> অতএব তুমি সব রহ নীলাচলে ৷\
 > দিন কত আমি তীর্থ ভ্রমিব একলে ৷৷” ২৮ ৷৷ ॥২৮॥
 
-> ataeva tumi saba raha nīlācale
+> ataeva tumi saba raha nīlācale\
 > dina kata āmi tīrtha bhramiba ekale"
 
 *ataeva*—por lo tanto; *tumi*—vosotros; *saba*—todos; *raha*—permaneced; *nīlācale*—en Jagannātha Purī; *dina*—días; *kata*—algunos; *āmi*—Yo; *tīrtha*—los lugares sagrados de peregrinaje; *bhramiba*—recorreré; *ekale*—solo.

@@ -1,13 +1,13 @@
 ### SB 6.3.25
 
-> प्रायेण वेद तदिदं न महाजनोऽयं
-> देव्या विमोहितमतिर्बत माययालम
-> त्रय्यां जडीकृतमतिर्मधुपुष्पितायां
+> प्रायेण वेद तदिदं न महाजनोऽयं\
+> देव्या विमोहितमतिर्बत माययालम\
+> त्रय्यां जडीकृतमतिर्मधुपुष्पितायां\
 > वैतानिके महति कर्मणि युज्यमानः ॥२५॥
 
-> prāyeṇa veda tad idaṁ na mahājano 'yaṁ
-> devyā vimohita-matir bata māyayālam
-> trayyāṁ jaḍī-kṛta-matir madhu-puṣpitāyāṁ
+> prāyeṇa veda tad idaṁ na mahājano 'yaṁ\
+> devyā vimohita-matir bata māyayālam\
+> trayyāṁ jaḍī-kṛta-matir madhu-puṣpitāyāṁ\
 > vaitānike mahati karmaṇi yujyamānaḥ
 
 *prāyeṇa*—casi siempre; *veda*—conocen; *tat*—que; *idam*—esto; *na*—no; *mahājanaḥ*—grandes personalidades, aparte de Svayambhū, Śambhu y los otros diez; *ayam*—este; *devyā*—por la energía de la Suprema Personalidad de Dios; *vimohita-matiḥ*—cuya inteligencia está confundida; *bata*—en verdad; *māyayā*—por la energía ilusoria; *alam*—mucho; *trayyām*—en los tres *Vedas*; *jaḍī-kṛta-matiḥ*—cuya inteligencia se ha anquilosado; *madhu-puṣpitāyām*—en el florido lenguaje que explica los resultados de las prácticas rituales; *vaitānike*—en las prácticas que se mencionan en los *Vedas*; *mahati*—muy grandes; *karmaṇi*—actividades fruitivas; *yujyamānaḥ*—estar ocupados.

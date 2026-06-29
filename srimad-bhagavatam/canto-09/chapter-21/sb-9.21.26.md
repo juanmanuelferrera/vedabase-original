@@ -1,11 +1,11 @@
 ### SB 9.21.26
 
-> जैगीषव्योपदेशेन योगतन्त्रं चकार ह
+> जैगीषव्योपदेशेन योगतन्त्रं चकार ह\
 > उदक्सेनस्ततस्तस्माद्भल्लाटो बार्हदीषवाः ॥२६॥
 
-> jaigīṣavyopadeśena
-> yoga-tantraṁ cakāra ha
-> udaksenas tatas tasmād
+> jaigīṣavyopadeśena\
+> yoga-tantraṁ cakāra ha\
+> udaksenas tatas tasmād\
 > bhallāṭo bārhadīṣavāḥ
 
 *jaigīṣavya*—of the great *ṛṣi* named Jaigīṣavya; *upadeśena*—by the instruction; *yoga-tantram*—an elaborate description of the mystic *yoga* system; *cakāra*—compiled; *ha*—in the past; *udaksenaḥ*—Udaksena; *tataḥ*—from him (Viṣvaksena); *tasmāt*—from him (Udaksena); *bhallāṭaḥ*—a son named Bhallāṭa; *bārhadīṣavāḥ*—(all of these are known as) descendants of Bṛhadiṣu.

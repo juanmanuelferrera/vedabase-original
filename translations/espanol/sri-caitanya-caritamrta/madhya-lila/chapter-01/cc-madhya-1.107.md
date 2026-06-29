@@ -1,9 +1,9 @@
 ### CC Madhya 1.107
 
-> শ্রীরঙ্গক্ষেত্র আইলা কাবেরীর তীর ।
+> শ্রীরঙ্গক্ষেত্র আইলা কাবেরীর তীর ।\
 > শ্রীরঙ্গ দেখিয়া প্রেমে হইলা অস্থির ॥১০৭॥
 
-> śrī-raṅga-kṣetra āilā kāverīra tīra
+> śrī-raṅga-kṣetra āilā kāverīra tīra\
 > śrī-raṅga dekhiyā preme ha-ilā asthira
 
 *śrī-raṅga-kṣetra*—al lugar donde se encuentra el templo de Raṅganātha; *āilā*—llegó; *kāverīra*—del río Kāverī; *tīra*—la ribera; *śrī-raṅga dekhiyā*—después de ver este templo; *preme*—en amor por Dios; *ha-ilā*—quedó; *asthira*—agitado.

@@ -1,11 +1,11 @@
 ### SB 1.14.4
 
-> जिह्मप्रायं व्यवहृतं शाठ्यमिश्रं च सौहृदम् ।
+> जिह्मप्रायं व्यवहृतं शाठ्यमिश्रं च सौहृदम् ।\
 > पितृमातृसुहृद्भ्रातृदम्पतीनां च कल्कनम् ॥४॥
 
-> jihma-prāyaṁ vyavahṛtaṁ
-> śāṭhya-miśraṁ ca sauhṛdam
-> pitṛ-mātṛ-suhṛd-bhrātṛ-
+> jihma-prāyaṁ vyavahṛtaṁ\
+> śāṭhya-miśraṁ ca sauhṛdam\
+> pitṛ-mātṛ-suhṛd-bhrātṛ-\
 > dam-patīnāṁ ca kalkanam
 
 *jihma-prāyam*—engaño; *vyavahṛtam*—en todas las transacciones ordinarias; *śāṭhya*—duplicidad; *miśram*—adulterados con; *ca*—y; *sauhṛdam*—respecto a bienquerientes y amigos; *pitṛ*—padre; *mātṛ*—respecto a la madre; *suhṛt*—bienquerientes; *bhrātṛ*—el propio hermano de uno; *dam-patīnām*—respecto al esposo y la esposa; *ca*—también; *kalkanam*—rencillas mutuas.

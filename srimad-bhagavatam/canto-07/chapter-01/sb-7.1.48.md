@@ -1,15 +1,15 @@
 ### SB 7.1.48
 
-> श्रीयुधिष्ठिर उवाच
-> विद्वेषो दयिते पुत्रे
-> कथमासीन्महात्मनि
-> ब्रूहि मे भगवन्येन
+> श्रीयुधिष्ठिर उवाच\
+> विद्वेषो दयिते पुत्रे\
+> कथमासीन्महात्मनि\
+> ब्रूहि मे भगवन्येन\
 > प्रह्लादस्याच्युतात्मता ॥४८॥
 
-> śrī-yudhiṣṭhira uvāca
-> vidveṣo dayite putre
-> katham āsīn mahātmani
-> brūhi me bhagavan yena
+> śrī-yudhiṣṭhira uvāca\
+> vidveṣo dayite putre\
+> katham āsīn mahātmani\
+> brūhi me bhagavan yena\
 > prahlādasyācyutātmatā
 
 *śrī-yudhiṣṭhiraḥ uvāca*—Mahārāja Yudhiṣṭhira said; *vidveṣaḥ*—hatred; *dayite*—for his own beloved; *putre*—son; *katham*—how; *āsīt*—there was; *mahā-ātmani*—the great soul, Prahlāda; *brūhi*—please tell; *me*—unto me; *bhagavan*—O exalted sage; *yena*—by which; *prahlādasya*—of Prahlāda Mahārāja; *acyuta*—to Acyuta; *ātmatā*—great attachment.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.106
 
-> তবে ত’ পাষণ্ডিগণে করিল দলন ।
+> তবে ত’ পাষণ্ডিগণে করিল দলন ।\
 > অহোবল-নৃসিংহাদি কৈল দরশন ॥১০৬॥
 
-> tabe ta' pāṣaṇḍī-gaṇe karila dalana
+> tabe ta' pāṣaṇḍī-gaṇe karila dalana\
 > ahovala-nṛsiṁhādi kaila daraśana
 
 *tabe ta'*—thereafter; *pāṣaṇḍī-gaṇe*—unto the atheists; *karila*—did; *dalana*—subduing; *ahovala-nṛsiṁha-ādi*—Nṛsiṁhadeva, named Ahovala or at Ahovala; *kaila*—did; *daraśana*—visit.

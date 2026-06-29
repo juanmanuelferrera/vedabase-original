@@ -1,13 +1,13 @@
 ### SB 7.9.24
 
-> तस्मादमूस्तनुभृतामहमाशिषोऽज्ञअ
-> आयुः श्रियं विभवमैन्द्रियमाविरिञ्च्यात
-> नेच्छामि ते विलुलितानुरुविक्रमेण
+> तस्मादमूस्तनुभृतामहमाशिषोऽज्ञअ\
+> आयुः श्रियं विभवमैन्द्रियमाविरिञ्च्यात\
+> नेच्छामि ते विलुलितानुरुविक्रमेण\
 > कालात्मनोपनय मां निजभृत्यपार्श्वम ॥२४॥
 
-> tasmād amūs tanu-bhṛtām aham āśiṣo 'jña
-> āyuḥ śriyaṁ vibhavam aindriyam āviriñcyāt
-> necchāmi te vilulitān uruvikrameṇa
+> tasmād amūs tanu-bhṛtām aham āśiṣo 'jña\
+> āyuḥ śriyaṁ vibhavam aindriyam āviriñcyāt\
+> necchāmi te vilulitān uruvikrameṇa\
 > kālātmanopanaya māṁ nija-bhṛtya-pārśvam
 
 *tasmāt*—therefore; *amūḥ*—all those (opulences); *tanu-bhṛtām*—with reference to living entities possessing material bodies; *aham*—I; *āśiṣaḥ ajñaḥ*—knowing well the results of such benedictions; *āyuḥ*—a long duration of life; *śriyam*—material opulences; *vibhavam*—influence and glories; *aindriyam*—all meant for sense gratification; *āviriñcyāt*—beginning from Lord Brahmā (down to the small ant); *na*—not; *icchāmi*—I want; *te*—by You; *vilulitān*—subject to be finished; *uru-vikrameṇa*—who are extremely powerful; *kāla-ātmanā*—as the master of the time factor; *upanaya*—kindly take to; *mām*—me; *nija-bhṛtya-pārśvam*—the association of Your faithful servant, Your devotee.

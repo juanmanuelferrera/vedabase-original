@@ -1,11 +1,11 @@
 ### SB 1.11.11
 
-> मधुभोजदशार्हार्हकुकुरान्धकवृष्णिभिः ।
+> मधुभोजदशार्हार्हकुकुरान्धकवृष्णिभिः ।\
 > आत्मतुल्यबलैर्गुप्तां नागैर्भोगवतीमिव ॥११॥
 
-> madhu-bhoja-daśārhārha-
-> kukurāndhaka-vṛṣṇibhiḥ
-> ātma-tulya-balair guptāṁ
+> madhu-bhoja-daśārhārha-\
+> kukurāndhaka-vṛṣṇibhiḥ\
+> ātma-tulya-balair guptāṁ\
 > nāgair bhogavatīm iva
 
 *madhu*—Madhu; *bhoja*—Bhoja; *daśārha*—Daśārha; *arha*—Arha; *kukura*—Kukura; *andhaka*—Andhaka; *vṛṣṇibhiḥ*—by the descendants of Vṛṣṇi; *ātma-tulya*—as good as Himself; *balaiḥ*—by strength; *guptām*—protected; *nāgaiḥ*—by the Nāgas; *bhogavatīm*—the capital of Nāgaloka; *iva*—like.

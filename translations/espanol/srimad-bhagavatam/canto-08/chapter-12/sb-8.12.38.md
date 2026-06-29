@@ -1,13 +1,13 @@
 ### SB 8.12.38
 
-> श्रीभगवानुवाच
-> दिष्ट्या त्वं विबुधश्रेष्ठ स्वां निष्ठामात्मना स्थितः
+> श्रीभगवानुवाच\
+> दिष्ट्या त्वं विबुधश्रेष्ठ स्वां निष्ठामात्मना स्थितः\
 > यन्मे स्त्रीरूपया स्वैरं मोहितोऽप्यङ्ग मायया ॥३८॥
 
-> śrī-bhagavān uvāca
-> diṣṭyā tvaṁ vibudha-śreṣṭha
-> svāṁ niṣṭhām ātmanā sthitaḥ
-> yan me strī-rūpayā svairaṁ
+> śrī-bhagavān uvāca\
+> diṣṭyā tvaṁ vibudha-śreṣṭha\
+> svāṁ niṣṭhām ātmanā sthitaḥ\
+> yan me strī-rūpayā svairaṁ\
 > mohito 'py aṅga māyayā
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *diṣṭyā*—toda buena fortuna; *tvam*—a ti; *vibudha-śreṣṭha*—¡oh, tú, el mejor de todos los semidioses!; *svām*—en tu propia; *niṣṭhām*—situación establecida; *ātmanā*—de tu propia persona; *sthitaḥ*—estás situado; *yat*—como; *me*—Mía; *strī-rūpayā*—aparición en forma de mujer; *svairam*—suficientemente; *mohitaḥ*—hechizado; *api*—a pesar de; *aṅga*—¡oh, Señor Śiva!; *māyayā*—por Mi potencia.

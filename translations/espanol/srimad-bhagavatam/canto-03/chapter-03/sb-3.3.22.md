@@ -1,11 +1,11 @@
 ### SB 3.3.22
 
-> तस्यैवं रममाणस्य संवत्सरगणान्बहून् ।
+> तस्यैवं रममाणस्य संवत्सरगणान्बहून् ।\
 > गृहमेधेषु योगेषु विरागः समजायत ॥२२॥
 
-> tasyaivaṁ ramamāṇasya
-> saṁvatsara-gaṇān bahūn
-> gṛhamedheṣu yogeṣu
+> tasyaivaṁ ramamāṇasya\
+> saṁvatsara-gaṇān bahūn\
+> gṛhamedheṣu yogeṣu\
 > virāgaḥ samajāyata
 
 *tasya*—Su; *evam*—de esa manera; *ramamāṇasya*—disfrutando; *saṁvatsara*—años; *gaṇān*—muchos; *bahūn*—muchísimos; *gṛhamedheṣu*—en la vida hogareña; *yogeṣu*—en la vida sexual; *virāgaḥ*—desapego; *samajāyata*—se despertó.

@@ -1,9 +1,9 @@
 ### CC Adi 17.20
 
-> তবে শুক্লাম্বরের কৈল তণ্ডুল ভক্ষণ ।
+> তবে শুক্লাম্বরের কৈল তণ্ডুল ভক্ষণ ।\
 > ‘হরের্নাম’ শ্লোকের কৈল অর্থ বিবরণ ॥২০॥
 
-> tabe śuklāmbarera kaila taṇḍula-bhakṣaṇa
+> tabe śuklāmbarera kaila taṇḍula-bhakṣaṇa\
 > 'harer nāma' ślokera kaila artha vivaraṇa
 
 *tabe*—thereafter; *śuklāmbarera*—of Śuklāmbara Brahmacārī; *kaila*—did; *taṇḍula*—raw rice; *bhakṣaṇa*—eating; *harer nāma ślokera*—of the verse celebrated as such; *kaila*—did; *artha*—of the meaning; *vivaraṇa*—explanation.

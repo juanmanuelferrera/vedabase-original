@@ -1,9 +1,9 @@
 ### CC Adi 1.37
 
-> এই ছয় গুরু — শিক্ষাগুরু যে আমার ।
+> এই ছয় গুরু — শিক্ষাগুরু যে আমার ।\
 > তাঁ’সবার পাদপদ্মে কোটি নমস্কার ॥৩৭॥
 
-> ei chaya guru--śikṣā-guru ye āmāra
+> ei chaya guru--śikṣā-guru ye āmāra\
 > tāṅ'-sabāra pāda-padme koṭi namaskāra
 
 *ei*—estos; *chaya*—seis; *guru*—maestros espirituales; *śikṣā-guru*—maestros espirituales instructores; *ye*—quienes son; *āmāra*—míos; *tāṅ'-sabāra*—de todos ellos; *pāda-padme*—a los pies de loto; *koṭi*—diez millones; *namaskāra*—respetuosas reverencias.

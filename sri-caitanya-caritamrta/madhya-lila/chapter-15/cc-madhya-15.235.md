@@ -1,9 +1,9 @@
 ### CC Madhya 15.235
 
-> ভট্ট কহে, — অন্ন, পীঠ, — সমান প্রসাদ ।
+> ভট্ট কহে, — অন্ন, পীঠ, — সমান প্রসাদ ।\
 > অন্ন খাবে, পীঠে বসিতে কাহাঁ অপরাধ ? ॥ ২৩৫ ॥
 
-> bhaṭṭa kahe,—anna, pīṭha,—samāna prasāda
+> bhaṭṭa kahe,—anna, pīṭha,—samāna prasāda\
 > anna khābe, pīṭhe vasite kāhāṅ aparādha?
 
 *bhaṭṭa kahe*—Sārvabhauma Bhaṭṭācārya said; *anna*—food; *pīṭha*—sitting place; *samāna*—equal; *prasāda*—mercy remnants of the Lord; *anna khābe*—You will eat the food; *pīṭhe vasite*—to sit on the place; *kāhāṅ aparādha*—where is the offense.

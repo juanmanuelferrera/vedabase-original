@@ -1,9 +1,9 @@
 ### CC Madhya 1.158
 
-> রত্নবাঁধা ঘাট, তাহে প্রফুল্ল কমল ।
+> রত্নবাঁধা ঘাট, তাহে প্রফুল্ল কমল ।\
 > নানা পক্ষি-কোলাহল, সুধা-সম জল ॥১৫৮॥
 
-> ratna-bāṅdhā ghāṭa, tāhe praphulla kamala
+> ratna-bāṅdhā ghāṭa, tāhe praphulla kamala\
 > nānā pakṣi-kolāhala, sudhā-sama jala
 
 *ratna-bāṅdhā*—constructed with jewels; *ghāṭa*—bathing places; *tāhe*—there; *praphulla*—fully blossoming; *kamala*—lotus flowers; *nānā*—various; *pakṣi*—of birds; *kolāhala*—vibrations; *sudhā*—nectar; *sama*—like; *jala*—water.

@@ -1,11 +1,11 @@
 ### CC Madhya 19.96
 
-> শ্রুতিমপরে স্মৃতিমিতরে ভারতমন্যে ভজন্তু ভবভীতাঃ ।
+> শ্রুতিমপরে স্মৃতিমিতরে ভারতমন্যে ভজন্তু ভবভীতাঃ ।\
 > অহমিহ নন্দং বন্দে যস্যালিন্দে পরং ব্রহ্ম ॥৯৬॥
 
-> śrutim apare smṛtim itare
-> bhāratam anye bhajantu bhava-bhītāḥ
-> aham iha nandaṁ vande
+> śrutim apare smṛtim itare\
+> bhāratam anye bhajantu bhava-bhītāḥ\
+> aham iha nandaṁ vande\
 > yasyālinde paraṁ brahma
 
 *śrutim*—Vedic literature; *apare*—someone; *smṛtim*—corollary to the Vedic literature; *itare*—others; *bhāratam*—*Mahābhārata*; *anye*—still others; *bhajantu*—let them worship; *bhava-bhītāḥ*—those who are afraid of material existence; *aham*—I; *iha*—here; *nandam*—Mahārāja Nanda; *vande*—worship; *yasya*—whose; *alinde*—in the courtyard; *param brahma*—the Supreme Brahman, Absolute Truth.

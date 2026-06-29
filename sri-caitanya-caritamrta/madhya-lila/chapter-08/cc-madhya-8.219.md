@@ -1,13 +1,13 @@
 ### CC Madhya 8.219
 
-> যত্তে সুজাতচরণাম্বুরুহং স্তনেষু
-> ভীতাঃ শনৈঃ প্রিয় দধীমহি কর্কশেষু ।
-> তেনাটবীমটসি তদ্ব্যথতে ন কিংস্বিৎ
+> যত্তে সুজাতচরণাম্বুরুহং স্তনেষু\
+> ভীতাঃ শনৈঃ প্রিয় দধীমহি কর্কশেষু ।\
+> তেনাটবীমটসি তদ্ব্যথতে ন কিংস্বিৎ\
 > কূর্পাদিভির্ভ্রমতি ধীর্ভবদায়ুষাং নঃ ॥২১৯॥
 
-> yat te sujāta-caraṇāmburuhaṁ staneṣu
-> bhītāḥ śanaiḥ priya dadhīmahi karkaśeṣu
-> tenāṭavīm aṭasi tad vyathate na kiṁ svit
+> yat te sujāta-caraṇāmburuhaṁ staneṣu\
+> bhītāḥ śanaiḥ priya dadhīmahi karkaśeṣu\
+> tenāṭavīm aṭasi tad vyathate na kiṁ svit\
 > kūrpādibhir bhramati dhīr bhavad-āyuṣāṁ naḥ
 
 *yat*—because; *te*—Your; *sujāta*—delicate; *caraṇa-ambu-ruham*—lotus feet; *staneṣu*—on the breasts; *bhītāḥ*—being afraid of; *śanaiḥ*—very carefully; *priya*—O dear one; *dadhīmahi*—we place; *karkaśeṣu*—very rough and hard; *tena*—by such lotus feet; *aṭavīm*—the forest; *aṭasi*—You wander; *tat vyathate*—that are pained; *na*—not; *kim svit*—whether; *kūrpa-ādibhiḥ*—by the small particles of stone; *bhramati*—bewilders; *dhīḥ*—intelligence; *bhavat-āyuṣām*—of persons who consider You as the duration of life; *naḥ*—of us.

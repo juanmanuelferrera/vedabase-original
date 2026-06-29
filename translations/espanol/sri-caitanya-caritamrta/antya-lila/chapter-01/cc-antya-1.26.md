@@ -1,9 +1,9 @@
 ### CC Antya 1.26
 
-> সবা লঞা কৈলা জগন্নাথ দরশন ।
+> সবা লঞা কৈলা জগন্নাথ দরশন ।\
 > সবা লঞা মহাপ্রভু করেন ভোজন ॥২৬॥
 
-> sabā lañā kailā jagannātha daraśana
+> sabā lañā kailā jagannātha daraśana\
 > sabā lañā mahāprabhu karena bhojana
 
 *sabā lañā*—llevándolos a todos; *kailā*—hizo; *jagannātha daraśana*—visitar el templo de Jagannātha; *sabā lañā*—con todos ellos; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *karena bhojana*—tomó *prasādam*.

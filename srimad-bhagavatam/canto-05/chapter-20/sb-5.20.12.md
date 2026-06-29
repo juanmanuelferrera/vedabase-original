@@ -1,11 +1,11 @@
 ### SB 5.20.12
 
-> स्वगोभिः पितृदेवेभ्यो विभजन्कृष्णशुक्लयोः
+> स्वगोभिः पितृदेवेभ्यो विभजन्कृष्णशुक्लयोः\
 > प्रजानां सर्वासां राजा न्धः सोमो न आस्त्विति ॥१२॥
 
-> sva-gobhiḥ pitṛ-devebhyo
-> vibhajan kṛṣṇa-śuklayoḥ
-> prajānāṁ sarvāsāṁ rājā-
+> sva-gobhiḥ pitṛ-devebhyo\
+> vibhajan kṛṣṇa-śuklayoḥ\
+> prajānāṁ sarvāsāṁ rājā-\
 > ndhaḥ somo na āstv iti
 
 *sva-gobhiḥ*—by expansion of his own illuminating rays; *pitṛ-devebhyaḥ*—unto the *pitās* and the demigods; *vibhajan*—dividing; *kṛṣṇa-śuklayoḥ*—into the two fortnights, dark and light; *prajānām*—of the citizens; *sarvāsām*—of all; *rājā*—the king; *andhaḥ*—food grains; *somaḥ*—the moon-god; *naḥ*—toward us; *āstu*—let him remain favorable; *iti*—thus.

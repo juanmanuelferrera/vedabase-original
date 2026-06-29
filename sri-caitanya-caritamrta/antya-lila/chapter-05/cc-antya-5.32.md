@@ -1,9 +1,9 @@
 ### CC Antya 5.32
 
-> অতিকাল দেখি’ মিশ্র কিছু না কহিল ।
+> অতিকাল দেখি’ মিশ্র কিছু না কহিল ।\
 > বিদায় হইয়া মিশ্র নিজঘর গেল ॥৩২॥
 
-> atikāla dekhi' miśra kichu nā kahila
+> atikāla dekhi' miśra kichu nā kahila\
 > vidāya ha-iyā miśra nija-ghara gela
 
 *atikāla dekhi'*—seeing that it was too late; *miśra*—Pradyumna Miśra; *kichu*—anything; *nā kahila*—did not say; *vidāya ha-iyā*—taking leave; *miśra*—Pradyumna Miśra; *nija-ghara*—to his own place; *gela*—returned.

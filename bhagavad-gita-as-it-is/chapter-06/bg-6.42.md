@@ -1,11 +1,11 @@
 ### Bg 6.42
 
-> अथवा योगिनामेव कुले भवति धीमताम् ।
+> अथवा योगिनामेव कुले भवति धीमताम् ।\
 > एतद्धि दुर्लभतरं लोके जन्म यदीदृशम् ॥४२॥
 
-> atha vā yoginām eva
-> kule bhavati dhīmatām
-> etad dhi durlabhataraṁ
+> atha vā yoginām eva\
+> kule bhavati dhīmatām\
+> etad dhi durlabhataraṁ\
 > loke janma yad īdṛśam
 
 *athavā*—or; *yoginām*—of learned transcendentalists; *eva*—certainly; *kule*—in the family of; *bhavati*—takes birth; *dhīmatām*—of those who are endowed with great wisdom; *etat*—this; *hi*—certainly; *durlabhataram*—very rare; *loke*—in this world; *janma*—birth; *yat*—that which; *īdṛśam*—like this.

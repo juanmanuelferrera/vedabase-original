@@ -1,9 +1,9 @@
 ### CC Madhya 19.189
 
-> শান্তভক্ত — নব-যোগেন্দ্র, সনকাদি আর ।
+> শান্তভক্ত — নব-যোগেন্দ্র, সনকাদি আর ।\
 > দাস্যভাব-ভক্ত — সর্বত্র সেবক অপার ॥১৮৯॥
 
-> śānta-bhakta--nava-yogendra, sanakādi āra
+> śānta-bhakta--nava-yogendra, sanakādi āra\
 > dāsya-bhāva-bhakta--sarvatra sevaka apāra
 
 *śānta-bhakta*—los devotos neutrales; *nava*—nueve; *yogendra*—personas santas; *sanaka-ādi āra*—y los cuatro Kumāras, encabezados por Sanaka; *dāsya-bhāva-bhakta*—devotos en el dāsya-rasa; *sarvatra sevaka apāra*—innumerables sirvientes similares por doquier.

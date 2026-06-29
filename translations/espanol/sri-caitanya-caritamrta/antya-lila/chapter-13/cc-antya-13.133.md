@@ -1,9 +1,9 @@
 ### CC Antya 13.133
 
-> বৈষ্ণবের নিন্দ্য-কর্ম নাহি পাড়ে কাণে ।
+> বৈষ্ণবের নিন্দ্য-কর্ম নাহি পাড়ে কাণে ।\
 > সবে কৃষ্ণ ভজন করে, — এইমাত্র জানে ॥১৩৩॥
 
-> vaiṣṇavera nindya-karma nāhi pāḍe kāṇe
+> vaiṣṇavera nindya-karma nāhi pāḍe kāṇe\
 > sabe kṛṣṇa bhajana kare,--ei-mātra jāne
 
 *vaiṣṇavera*—del vaiṣṇava; *nindya-karma*—actividades reprochables; *nāhi pāḍe kāṇe*—no le llega a los oídos; *sabe*—todos; *kṛṣṇa bhajana kare*—se ocupan en el servicio de Kṛṣṇa; *ei-mātra*—solo esto; *jāne*—entiende.

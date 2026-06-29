@@ -1,13 +1,13 @@
 ### SB 3.23.1
 
-> मैत्रेय उवाच
-> पितृभ्यां प्रस्थिते साध्वी पतिमिङ्गितकोविदा ।
+> मैत्रेय उवाच\
+> पितृभ्यां प्रस्थिते साध्वी पतिमिङ्गितकोविदा ।\
 > नित्यं पर्यचरत्प्रीत्या भवानीव भवं प्रभुम् ॥१॥
 
-> maitreya uvāca
-> pitṛbhyāṁ prasthite sādhvī
-> patim iṅgita-kovidā
-> nityaṁ paryacarat prītyā
+> maitreya uvāca\
+> pitṛbhyāṁ prasthite sādhvī\
+> patim iṅgita-kovidā\
+> nityaṁ paryacarat prītyā\
 > bhavānīva bhavaṁ prabhum
 
 *maitreyaḥ uvāca*—Maitreya dijo; *pitṛbhyām*—por los padres; *prasthite*—al partir; *sādhvī*—la casta mujer; *patim*—a su esposo; *iṅgita-kovidā*—entendiendo los deseos; *nityam*—constantemente; *paryacarat*—ella sirvió; *prītyā*—con gran amor; *bhavānī*—la diosa Pārvatī; *iva*—como; *bhavam*—al Señor Śiva; *prabhum*—su señor.

@@ -1,9 +1,9 @@
 ### CC Adi 14.56
 
-> বর শুনি’ কন্যাগণের অন্তরে সন্তোষ ।
+> বর শুনি’ কন্যাগণের অন্তরে সন্তোষ ।\
 > বাহিরে ভর্ৎসন করে করি’ মিথ্যা রোষ ॥৫৬॥
 
-> vara śuni' kanyā-gaṇera antare santoṣa
+> vara śuni' kanyā-gaṇera antare santoṣa\
 > bāhire bhartsana kare kari' mithyā roṣa
 
 *vara śuni'*—al oír la bendición; *kanyā-gaṇera*—de las jóvenes; *antare*—en el interior; *santoṣa*—mucha satisfacción; *bāhire*—externamente; *bhartsana*—regañándolo; *kare*—hacen; *kari'*—fingiendo; *mithyā*—falso; *roṣa*—enojo.

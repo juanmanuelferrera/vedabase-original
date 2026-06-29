@@ -1,11 +1,11 @@
 ### SB 4.19.23
 
-> यानि रूपाणि जगृहे इन्द्रो हयजिहीर्षया ।
+> यानि रूपाणि जगृहे इन्द्रो हयजिहीर्षया ।\
 > तानि पापस्य खण्डानि लिङ्गं खण्डमिहोच्यते ॥२३॥
 
-> yāni rūpāṇi jagṛhe
-> indro haya-jihīrṣayā
-> tāni pāpasya khaṇḍāni
+> yāni rūpāṇi jagṛhe\
+> indro haya-jihīrṣayā\
+> tāni pāpasya khaṇḍāni\
 > liṅgaṁ khaṇḍam ihocyate
 
 *yāni*—todas aquellas que; *rūpāṇi*—formas; *jagṛhe*—adoptó; *indraḥ*—el rey del cielo; *haya*—el caballo; *jihīrṣayā*—con deseo de robar; *tāni*—todas esas; *pāpasya*—de actividades pecaminosas; *khaṇḍāni*—signos; *liṅgam*—el símbolo; *khaṇḍam*—la palabra *khaṇḍa*; *iha*—aquí; *ucyate*—se dice.

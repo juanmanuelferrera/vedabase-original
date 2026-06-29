@@ -1,14 +1,14 @@
 ### CC Antya 5.49-50
 
-> যে শুনে, যে পড়ে, তাঁর ফল এতাদৃশী ।
-> সেই ভাবাবিষ্ট যেই সেবে অহর্নিশি ॥৪৯॥
-> তাঁর ফল কি কহিমু, কহনে না যায় ।
+> যে শুনে, যে পড়ে, তাঁর ফল এতাদৃশী ।\
+> সেই ভাবাবিষ্ট যেই সেবে অহর্নিশি ॥৪৯॥\
+> তাঁর ফল কি কহিমু, কহনে না যায় ।\
 > নিত্যসিদ্ধ সেই, প্রায়-সিদ্ধ তাঁর কায় ॥৫০॥
 
-> ye śune, ye paḍe, tāṅra phala etādṛśī
+> ye śune, ye paḍe, tāṅra phala etādṛśī\
 > sei bhāvāviṣṭa yei seve ahar-niśi
 
-> tāṅra phala ki kahimu, kahane nā yāya
+> tāṅra phala ki kahimu, kahane nā yāya\
 > nitya-siddha sei, prāya-siddha tāṅra kāya
 
 *ye śune*—todo el que oye; *ye paḍe*—todo el que recita; *tāṅra*—de él; *phala*—el resultado; *etādṛśī*—éste; *sei*—él; *bhāva-āviṣṭa*—siempre absorto en pensar en Kṛṣṇa; *yei seve*—que sirve; *ahaḥ-niśi*—día y noche; *tāṅra*—suyo; *phala*—el resultado; *ki kahimu*—qué diré; *kahane nā yāya*—es imposible expresar; *nitya-siddha*—eternamente liberada; *sei*—esa persona; *prāya-siddha*—trascendental; *tāṅra*—suyo; *kāya*—el cuerpo.

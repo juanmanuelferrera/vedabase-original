@@ -1,11 +1,11 @@
 ### SB 3.31.30
 
-> भूतैः पञ्चभिरारब्धे देहे देह्यबुधोऽसकृत् ।
+> भूतैः पञ्चभिरारब्धे देहे देह्यबुधोऽसकृत् ।\
 > अहं ममेत्यसद्ग्राहः करोति कुमतिर्मतिम् ॥३०॥
 
-> bhūtaiḥ pañcabhir ārabdhe
-> dehe dehy abudho 'sakṛt
-> ahaṁ mamety asad-grāhaḥ
+> bhūtaiḥ pañcabhir ārabdhe\
+> dehe dehy abudho 'sakṛt\
+> ahaṁ mamety asad-grāhaḥ\
 > karoti kumatir matim
 
 *bhūtaiḥ*—de elementos materiales; *pañcabhiḥ*—cinco; *ārabdhe*—hecho; *dehe*—en el cuerpo; *dehī*—la entidad viviente; *abudhaḥ*—ignorante; *asakṛt*—constantemente; *aham*—yo; *mama*—mío; *iti*—de este modo; *asat*—cosas no permanentes; *grāhaḥ*—considerar; *karoti*—hace; *ku-matiḥ*—siendo necio; *matim*—pensamiento.

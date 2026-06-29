@@ -1,13 +1,13 @@
 ### SB 7.9.51
 
-> श्रीनारद उवाच
-> एतावद्वर्णितगुणो भक्त्या भक्तेन निर्गुणः
+> श्रीनारद उवाच\
+> एतावद्वर्णितगुणो भक्त्या भक्तेन निर्गुणः\
 > प्रह्रादं प्रणतं प्रीतो यतमन्युरभाषत ॥५१॥
 
-> śrī-nārada uvāca
-> etāvad varṇita-guṇo
-> bhaktyā bhaktena nirguṇaḥ
-> prahrādaṁ praṇataṁ prīto
+> śrī-nārada uvāca\
+> etāvad varṇita-guṇo\
+> bhaktyā bhaktena nirguṇaḥ\
+> prahrādaṁ praṇataṁ prīto\
 > yata-manyur abhāṣata
 
 *śrī-nāradaḥ uvāca*—Śrī Nārada Muni said; *etāvat*—up to this; *varṇita*—described; *guṇaḥ*—transcendental qualities; *bhaktyā*—with devotion; *bhaktena*—by the devotee (Prahlāda Mahārāja); *nirguṇaḥ*—the transcendental Lord; *prahrādam*—unto Prahlāda Mahārāja; *praṇatam*—who was surrendered at the lotus feet of the Lord; *prītaḥ*—being pleased; *yata-manyuḥ*—controlling the anger; *abhāṣata*—began to speak (as follows).

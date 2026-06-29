@@ -1,13 +1,13 @@
 ### SB 8.20.1
 
-> श्रीशुक उवाच
-> बलिरेवं गृहपतिः कुलाचार्येण भाषितः
+> श्रीशुक उवाच\
+> बलिरेवं गृहपतिः कुलाचार्येण भाषितः\
 > तूष्णीं भूत्वा क्षणं राजन्नुवाचावहितो गुरुम ॥१॥
 
-> śrī-śuka uvāca
-> balir evaṁ gṛha-patiḥ
-> kulācāryeṇa bhāṣitaḥ
-> tūṣṇīṁ bhūtvā kṣaṇaṁ rājann
+> śrī-śuka uvāca\
+> balir evaṁ gṛha-patiḥ\
+> kulācāryeṇa bhāṣitaḥ\
+> tūṣṇīṁ bhūtvā kṣaṇaṁ rājann\
 > uvācāvahito gurum
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *baliḥ*—Bali Mahārāja; *evam*—thus; *gṛha-patiḥ*—the master of the household affairs, although guided by the priests; *kula-ācāryeṇa*—by the family *ācārya* or guide; *bhāṣitaḥ*—being thus addressed; *tūṣṇīm*—silent; *bhūtvā*—becoming; *kṣaṇam*—for a moment; *rājan*—O King (Mahārāja Parīkṣit); *uvāca*—said; *avahitaḥ*—after full deliberation; *gurum*—unto his spiritual master.

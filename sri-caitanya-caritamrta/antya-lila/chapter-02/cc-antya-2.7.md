@@ -1,9 +1,9 @@
 ### CC Antya 2.7
 
-> সাক্ষাৎ-দর্শনে সব জগৎ তারিলা ।
+> সাক্ষাৎ-দর্শনে সব জগৎ তারিলা ।\
 > একবার যে দেখিলা, সে কৃতার্থ হইলা ॥৭॥
 
-> sākṣāt-darśane saba jagat tārilā
+> sākṣāt-darśane saba jagat tārilā\
 > eka-bāra ye dekhilā, se kṛtārtha ha-ilā
 
 *sākṣāt-darśane*—by direct meetings; *saba*—all; *jagat*—the universe; *tārilā*—He delivered; *eka-bāra*—once; *ye*—anyone who; *dekhilā*—saw; *se*—he; *kṛta-artha*—fully satisfied; *ha-ilā*—became.

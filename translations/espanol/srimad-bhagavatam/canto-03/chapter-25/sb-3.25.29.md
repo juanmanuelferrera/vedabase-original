@@ -1,11 +1,11 @@
 ### SB 3.25.29
 
-> यो योगो भगवद्बाणो निर्वाणात्मंस्त्वयोदितः ।
+> यो योगो भगवद्बाणो निर्वाणात्मंस्त्वयोदितः ।\
 > कीदृशः कति चाङ्गानि यतस्तत्त्वावबोधनम् ॥२९॥
 
-> yo yogo bhagavad-bāṇo
-> nirvāṇātmaṁs tvayoditaḥ
-> kīdṛśaḥ kati cāṅgāni
+> yo yogo bhagavad-bāṇo\
+> nirvāṇātmaṁs tvayoditaḥ\
+> kīdṛśaḥ kati cāṅgāni\
 > yatas tattvāvabodhanam
 
 *yaḥ*—el cual; *yogaḥ*—proceso de *yoga* místico; *bhagavat-bāṇaḥ*—que tiene como objetivo a la Suprema Personalidad de Dios; *nirvāṇa-ātman*—¡oh, personificación del *nirvāṇa*!; *tvayā*—por Tí; *uditaḥ*—explicado; *kīdṛśaḥ*—de qué naturaleza; *kati*—cuántas; *ca*—y; *aṅgāni*—ramas; *yataḥ*—mediante las; *tattva*—de la verdad; *avabodhanam*—comprensión.

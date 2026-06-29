@@ -1,11 +1,11 @@
 ### SB 8.16.7
 
-> गृहेषु येष्वतिथयो नार्चिताः सलिलैरपि
+> गृहेषु येष्वतिथयो नार्चिताः सलिलैरपि\
 > यदि निर्यान्ति ते नूनं फेरुराजगृहोपमाः ॥७॥
 
-> gṛheṣu yeṣv atithayo
-> nārcitāḥ salilair api
-> yadi niryānti te nūnaṁ
+> gṛheṣu yeṣv atithayo\
+> nārcitāḥ salilair api\
+> yadi niryānti te nūnaṁ\
 > pherurāja-gṛhopamāḥ
 
 *gṛheṣu*—at home; *yeṣu*—which; *atithayaḥ*—uninvited guests; *na*—not; *arcitāḥ*—welcomed; *salilaiḥ api*—even by offering a glass of water; *yadi*—if; *niryānti*—they go away; *te*—such household life; *nūnam*—indeed; *pheru-rāja*—of jackals; *gṛha*—the homes; *upamāḥ*—like.

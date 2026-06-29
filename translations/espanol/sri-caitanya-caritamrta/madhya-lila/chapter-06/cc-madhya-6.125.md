@@ -1,9 +1,9 @@
 ### CC Madhya 6.125
 
-> ভালমন্দ নাহি কহ, রহ মৌন ধরি’  ।
+> ভালমন্দ নাহি কহ, রহ মৌন ধরি’  ।\
 > বুঝ, কি না বুঝ, — ইহা বুঝিতে না পারি ॥১২৫॥
 
-> bhāla-manda nāhi kaha, raha mauna dhari'
+> bhāla-manda nāhi kaha, raha mauna dhari'\
 > bujha, ki nā bujha,--ihā bujhite nā pāri
 
 *bhāla-manda*—correcto o incorrecto; *nāhi kaha*—no dices; *raha*—permaneces; *mauna*—silencio; *dhari'*—manteniendo; *bujha*—entiendes; *ki*—o; *nā*—no; *bujha*—entiendes; *ihā*—esto; *bujhite*—comprender; *nā*—no; *pāri*—puedo.

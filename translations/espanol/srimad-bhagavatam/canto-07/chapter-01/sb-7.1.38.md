@@ -1,13 +1,13 @@
 ### SB 7.1.38
 
-> एवं शप्तौ स्वभवनात्पतन्तौ तौ कृपालुभिः
+> एवं शप्तौ स्वभवनात्पतन्तौ तौ कृपालुभिः\
 > प्रोक्तौ पुनर्जन्मभिर्वां त्रिभिर्लोकाय कल्पताम ॥३८॥
 
-> aśapan kupitā evaṁ
-> yuvāṁ vāsaṁ na cārhathaḥ
-> rajas-tamobhyāṁ rahite
-> pāda-mūle madhudviṣaḥ
-> pāpiṣṭhām āsurīṁ yoniṁ
+> aśapan kupitā evaṁ\
+> yuvāṁ vāsaṁ na cārhathaḥ\
+> rajas-tamobhyāṁ rahite\
+> pāda-mūle madhudviṣaḥ\
+> pāpiṣṭhām āsurīṁ yoniṁ\
 > bāliśau yātam āśv ataḥ
 
 *aśapan*—maldijeron; *kūpitāḥ*—llenos de ira; *evam*—así; *yuvām*—ustedes dos; *vāsam*—residencia; *na*—no; *ca*—y; *arhathaḥ*—merecer; *rajaḥ-tamobhyām*—de la pasión y la ignorancia; *rahite*—libres; *pāda-mūle*—a los pies de loto; *madhu-dviṣaḥ*—de Viṣṇu, que mató al demonio Madhu; *pāpiṣṭhām*—más pecaminoso; *āsurīm*—demoníaco; *yonim*—a un vientre; *bāliśau*—de dos necios como ustedes; *yātam*—id; *āśu*—rápidamente desde aquí; *ataḥ*—por lo tanto.

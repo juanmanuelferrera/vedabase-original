@@ -1,9 +1,9 @@
 ### CC Antya 1.221
 
-> প্রভুর ভক্তগণ-পাশে বিদায় লইলা ।।
+> প্রভুর ভক্তগণ-পাশে বিদায় লইলা ।।\
 > পুনরপি গৌড়-পথে বৃন্দাবনে আইলা ॥২২১॥
 
-> prabhura bhakta-gaṇa-pāśe vidāya la-ilā
+> prabhura bhakta-gaṇa-pāśe vidāya la-ilā\
 > punarapi gauḍa-pathe vṛndāvane āilā
 
 *prabhura*—of Śrī Caitanya Mahāprabhu; *bhakta-gaṇa-pāśe*—from the devotees; *vidāya la-ilā*—took leave; *punarapi*—again; *gauḍa-pathe*—on the way to Bengal; *vṛndāvane*—to Vṛndāvana; *āilā*—returned.

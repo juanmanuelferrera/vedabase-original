@@ -1,11 +1,11 @@
 ### SB 4.4.10
 
-> जगर्ह सामर्षविपन्नया गिरा शिवद्विषं धूमपथश्रमस्मयम् ।
+> जगर्ह सामर्षविपन्नया गिरा शिवद्विषं धूमपथश्रमस्मयम् ।\
 > स्वतेजसा भूतगणान्समुत्थितान्निगृह्य देवी जगतोऽभिशृण्वतः ॥१०॥
 
-> jagarha sāmarṣa-vipannayā girā
-> śiva-dviṣaṁ dhūma-patha-śrama-smayam
-> sva-tejasā bhūta-gaṇān samutthitān
+> jagarha sāmarṣa-vipannayā girā\
+> śiva-dviṣaṁ dhūma-patha-śrama-smayam\
+> sva-tejasā bhūta-gaṇān samutthitān\
 > nigṛhya devī jagato 'bhiśṛṇvataḥ
 
 *jagarha*—comenzó a censurar; *sā*—ella; *amarṣa-vipannayā*—confusas debido a la ira; *girā*—con palabras; *śiva-dviṣam*—el enemigo del Señor Śiva; *dhūma-patha*—en sacrificios; *śrama*—con problemas; *smayam*—muy orgullosos; *sva-tejasā*—por su orden; *bhūta-gaṇān*—los fantasmas; *samutthitān*—dispuestos (a herir a Dakṣa); *nigṛhya*—detuvo; *devī*—Satī; *jagataḥ*—en presencia de todos; *abhiśṛṇvataḥ*—siendo escuchada.

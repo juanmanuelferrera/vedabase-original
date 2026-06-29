@@ -1,9 +1,9 @@
 ### CC Adi 17.103
 
-> আর দিনে জ্যোতিষ সর্বজ্ঞ এক আইল ।
+> আর দিনে জ্যোতিষ সর্বজ্ঞ এক আইল ।\
 > তাহারে সম্মান করি’ প্রভু প্রশ্ন কৈল ॥১০৩॥
 
-> āra dine jyotiṣa sarva-jña eka āila
+> āra dine jyotiṣa sarva-jña eka āila\
 > tāhāre sammāna kari' prabhu praśna kaila
 
 *āra dine*—otro día; *jyotiṣa*—un astrólogo; *sarva-jña*—que todo lo sabe; *eka*—uno; *āila*—llegó; *tāhāre*—a él; *sammāna kari'*—ofreciéndole todos los honores; *prabhu*—el Señor; *praśna*—pregunta; *kaila*—formuló.

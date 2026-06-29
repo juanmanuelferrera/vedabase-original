@@ -1,9 +1,9 @@
 ### CC Adi 7.25
 
-> উছলিল প্রেমবন্যা চৌদিকে বেড়ায় ।
+> উছলিল প্রেমবন্যা চৌদিকে বেড়ায় ।\
 > স্ত্রী, বৃদ্ধ, বালক, যুবা, সবারে ডুবায় ॥২৫॥
 
-> uchalila prema-vanyā caudike veḍāya
+> uchalila prema-vanyā caudike veḍāya\
 > strī, vṛddha, bālaka, yuvā, sabāre ḍubāya
 
 *uchalila*—se agitó; *prema-vanyā*—la inundación de amor por Dios; *caudike*—en todas las direcciones; *veḍāya*—rodeando; *strī*—mujeres; *vṛddha*—ancianos; *bālaka*—niños; *yuvā*—jóvenes; *sabāre*—a todos ellos; *ḍubāya*—sumergidos.

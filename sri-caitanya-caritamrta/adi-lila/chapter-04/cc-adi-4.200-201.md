@@ -1,14 +1,14 @@
 ### CC Adi 4.200-201
 
-> নিরুপাধি প্রেম যাঁহা, তাঁহা এই রীতি ।
-> প্রীতিবিষয়সুখে আশ্রয়ের প্রীতি ॥২০০॥
-> নিজ প্রেমানন্দে কৃষ্ণ-সেবানন্দ বাধে ।
+> নিরুপাধি প্রেম যাঁহা, তাঁহা এই রীতি ।\
+> প্রীতিবিষয়সুখে আশ্রয়ের প্রীতি ॥২০০॥\
+> নিজ প্রেমানন্দে কৃষ্ণ-সেবানন্দ বাধে ।\
 > সে আনন্দের প্রতি ভক্তের হয় মহাক্রোধে ॥২০১॥
 
-> nirupādhi prema yāṅhā, tāṅhā ei rīti
+> nirupādhi prema yāṅhā, tāṅhā ei rīti\
 > prīti-viṣaya-sukhe āśrayera prīti
 
-> nija-premānande kṛṣṇa-sevānanda bādhe
+> nija-premānande kṛṣṇa-sevānanda bādhe\
 > se ānandera prati bhaktera haya mahā-krodhe
 
 *nirupādhi*—without identification; *prema*—love; *yāṅhā*—which; *tāṅhā*—that; *ei*—this; *rīti*—style; *prīti-viṣaya*—of the object of love; *sukhe*—in the happiness; *āśrayera*—of the abode of that love; *prīti*—the pleasure; *nija*—one's own; *prema*—of love; *ānande*—by the joy; *kṛṣṇa*—to Lord Kṛṣṇa; *seva-ānanda*—the joy of service; *bādhe*—is obstructed; *se*—that; *ānandera prati*—toward the joy; *bhaktera*—of the devotee; *haya*—is; *mahā-krodhe*—great anger.

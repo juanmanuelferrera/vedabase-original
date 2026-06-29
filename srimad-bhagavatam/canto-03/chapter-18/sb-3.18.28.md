@@ -1,11 +1,11 @@
 ### SB 3.18.28
 
-> दिष्ट्या त्वां विहितं मृत्युमयमासादितः स्वयम् ।
+> दिष्ट्या त्वां विहितं मृत्युमयमासादितः स्वयम् ।\
 > विक्रम्यैनं मृधे हत्वा लोकानाधेहि शर्मणि ॥२८॥
 
-> diṣṭyā tvāṁ vihitaṁ mṛtyum
-> ayam āsāditaḥ svayam
-> vikramyainaṁ mṛdhe hatvā
+> diṣṭyā tvāṁ vihitaṁ mṛtyum\
+> ayam āsāditaḥ svayam\
+> vikramyainaṁ mṛdhe hatvā\
 > lokān ādhehi śarmaṇi
 
 *diṣṭyā*—by fortune; *tvām*—to You; *vihitam*—ordained; *mṛtyum*—death; *ayam*—this demon; *āsāditaḥ*—has come; *svayam*—of his own accord; *vikramya*—exhibiting Your prowess; *enam*—him; *mṛdhe*—in the duel; *hatvā*—killing; *lokān*—the worlds; *ādhehi*—establish; *śarmaṇi*—in peace.

@@ -1,11 +1,11 @@
 ### SB 4.8.20
 
-> यस्याङ्घ्रिपद्मं परिचर्य विश्व विभावनायात्तगुणाभिपत्तेः ।
+> यस्याङ्घ्रिपद्मं परिचर्य विश्व विभावनायात्तगुणाभिपत्तेः ।\
 > अजोऽध्यतिष्ठत्खलु पारमेष्ठ्यं पदं जितात्मश्वसनाभिवन्द्यम् ॥२०॥
 
-> yasyāṅghri-padmaṁ paricarya viśva-
-> vibhāvanāyātta-guṇābhipatteḥ
-> ajo 'dhyatiṣṭhat khalu pārameṣṭhyaṁ
+> yasyāṅghri-padmaṁ paricarya viśva-\
+> vibhāvanāyātta-guṇābhipatteḥ\
+> ajo 'dhyatiṣṭhat khalu pārameṣṭhyaṁ\
 > padaṁ jitātma-śvasanābhivandyam
 
 *yasya*—cuya; *aṅghri*—pierna; *padmam*—pies de loto; *paricarya*—adorar; *viśva*—universo; *vibhāvanāya*—para crear; *ātta*—recibió; *guṇa-abhipatteḥ*—para adquirir las cualificaciones necesarias; *ajaḥ*—el innaciente (el Señor Brahmā); *adhyatiṣṭhat*—se situó; *khalu*—indudablemente; *pārameṣṭhyam*—la posición suprema en el universo; *padam*—posición; *jita-ātma*—el que ha conquistado la mente; *śvasana*—controlando el aire vital; *abhivandyam*—digna de adoración.

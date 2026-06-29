@@ -1,9 +1,9 @@
 ### CC Madhya 21.60
 
-> কৃষ্ণ কহেন — ‘কোন্ ব্রহ্মা, কি নাম তাহার ?’
+> কৃষ্ণ কহেন — ‘কোন্ ব্রহ্মা, কি নাম তাহার ?’\
 > দ্বারী আসি’ ব্রহ্মারে পুছে আর বার ॥৬০॥
 
-> kṛṣṇa kahena—'kon brahmā, ki nāma tāhāra?'
+> kṛṣṇa kahena—'kon brahmā, ki nāma tāhāra?'\
 > dvārī āsi' brahmāre puche āra bāra
 
 *kṛṣṇa kahena*—Kṛṣṇa said; *kon brahmā*—which Brahmā; *ki nāma tāhāra*—what is his name; *dvārī āsi'*—the doorman, coming back; *brahmāre*—to Lord Brahmā; *puche*—inquires; *āra bāra*—again.

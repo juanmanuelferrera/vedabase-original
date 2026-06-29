@@ -1,9 +1,9 @@
 ### CC Madhya 1.55
 
-> “সেইত পরাণ-নাথ পাইনু ।
+> “সেইত পরাণ-নাথ পাইনু ।\
 > যাহা লাগি’ মদনদহনে ঝুরি গেনু ॥৫৫॥
 
-> seita parāṇa-nātha pāinu
+> seita parāṇa-nātha pāinu\
 > yāhā lāgī' madana-dahane jhuri genu
 
 *seita*—ese; *parāṇa-nātha*—Señor de Mi vida; *pāinu*—he obtenido; *yāhā*—a quien; *lāgi'*—por; *madana-dahane*—en el fuego del deseo lujurioso; *jhuri*—ardiendo; *genu*—he quedado.

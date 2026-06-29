@@ -1,13 +1,13 @@
 ### SB 8.7.41
 
-> पुंसः कृपयतो भद्रे सर्वात्मा प्रीयते हरिः
-> प्रीते हरौ भगवति प्रीयेऽहं सचराचरः
+> पुंसः कृपयतो भद्रे सर्वात्मा प्रीयते हरिः\
+> प्रीते हरौ भगवति प्रीयेऽहं सचराचरः\
 > तस्मादिदं गरं भुञ्जे प्रजानां स्वस्तिरस्तु मे ॥४१॥
 
-> śrī-śuka uvāca
-> evam āmantrya bhagavān
-> bhavānīṁ viśva-bhāvanaḥ
-> tad viṣaṁ jagdhum ārebhe
+> śrī-śuka uvāca\
+> evam āmantrya bhagavān\
+> bhavānīṁ viśva-bhāvanaḥ\
+> tad viṣaṁ jagdhum ārebhe\
 > prabhāva-jñānvamodata
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—in this way; *āmantrya*—addressing; *bhagavān*—Lord Śiva; *bhavānīm*—Bhavānī; *viśva-bhāvanaḥ*—the well-wisher of all the universe; *tat viṣam*—that poison; *jagdhum*—to drink; *ārebhe*—began; *prabhāva-jñā*—mother Bhavānī, who perfectly knew the capability of Lord Śiva; *anvamodata*—gave her permission.

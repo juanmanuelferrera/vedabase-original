@@ -1,11 +1,11 @@
 ### SB 6.10.31
 
-> कालोपपन्नां रुचिरां मनस्विनां जगाद वाचं पुरुषप्रवीरः
+> कालोपपन्नां रुचिरां मनस्विनां जगाद वाचं पुरुषप्रवीरः\
 > हे विप्रचित्ते नमुचे पुलोमन्मयानर्वन्छम्बर मे शृणुध्वम ॥३१॥
 
-> kālopapannāṁ rucirāṁ manasvināṁ
-> jagāda vācaṁ puruṣa-pravīraḥ
-> he vipracitte namuce puloman
+> kālopapannāṁ rucirāṁ manasvināṁ\
+> jagāda vācaṁ puruṣa-pravīraḥ\
+> he vipracitte namuce puloman\
 > mayānarvañ chambara me śṛṇudhvam
 
 *kāla-upapannām*—adecuadas al momento y las circunstancias; *rucirām*—muy hermosas; *manasvinām*—a las grandes personalidades, de mente profunda; *jagāda*—habló; *vācam*—palabras; *puruṣa-pravīraḥ*—el héroe entre los héroes, Vṛtrāsura; *he*—¡oh!; *vipracitte*—Vipracitti; *namuce*—¡oh, Namuci!; *puloman*—¡oh, Pulomā!; *maya*—¡oh, Maya!; *anarvan*—¡oh, Anarvā!; *śambara*—¡oh, Śambara!; *me*—de mí; *śṛṇudhvam*—por favor, escuchen.

@@ -1,13 +1,13 @@
 ### SB 4.21.8
 
-> सूत उवाच
-> तदादिराजस्य यशो विजृम्भितं गुणैरशेषैर्गुणवत्सभाजितम् ।
+> सूत उवाच\
+> तदादिराजस्य यशो विजृम्भितं गुणैरशेषैर्गुणवत्सभाजितम् ।\
 > क्षत्ता महाभागवतः सदस्पते कौषारविं प्राह गृणन्तमर्चयन् ॥८॥
 
-> sūta uvāca
-> tad ādi-rājasya yaśo vijṛmbhitaṁ
-> guṇair aśeṣair guṇavat-sabhājitam
-> kṣattā mahā-bhāgavataḥ sadaspate
+> sūta uvāca\
+> tad ādi-rājasya yaśo vijṛmbhitaṁ\
+> guṇair aśeṣair guṇavat-sabhājitam\
+> kṣattā mahā-bhāgavataḥ sadaspate\
 > kauṣāraviṁ prāha gṛṇantam arcayan
 
 *sūtaḥ uvāca*—Sūta Gosvāmī dijo; *tat*—a ese; *ādi-rājasya*—del rey original; *yaśaḥ*—fama; *vijṛmbhitam*—muy cualificado; *guṇaiḥ*—con cualidades; *aśeṣaiḥ*—infinidad de; *guṇa-vat*—oportunamente; *sabhājitam*—ser alabado; *kṣattā*—Vidura; *mahā-bhāgavataḥ*—el gran devoto santo; *sadaḥ-pate*—líder de los grandes sabios; *kauṣāravim*—a Maitreya; *prāha*—dijo; *gṛṇantam*—mientras hablaba; *arcayan*—ofreciendo reverencias respetuosas.

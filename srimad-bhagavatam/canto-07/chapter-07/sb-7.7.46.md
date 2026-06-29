@@ -1,11 +1,11 @@
 ### SB 7.7.46
 
-> निरूप्यतामिह स्वार्थः कियान्देहभृतोऽसुराः
+> निरूप्यतामिह स्वार्थः कियान्देहभृतोऽसुराः\
 > निषेकादिष्ववस्थासु क्लिश्यमानस्य कर्मभिः ॥४६॥
 
-> nirūpyatām iha svārthaḥ
-> kiyān deha-bhṛto 'surāḥ
-> niṣekādiṣv avasthāsu
+> nirūpyatām iha svārthaḥ\
+> kiyān deha-bhṛto 'surāḥ\
+> niṣekādiṣv avasthāsu\
 > kliśyamānasya karmabhiḥ
 
 *nirūpyatām*—let it be ascertained; *iha*—in this world; *sva-arthaḥ*—personal benefit; *kiyān*—how much; *deha-bhṛtaḥ*—of a living entity who has a material body; *asurāḥ*—O sons of demons; *niṣeka-ādiṣu*—beginning from the happiness derived from sex life; *avasthāsu*—in temporary conditions; *kliśyamānasya*—of one who is suffering in severe hardships; *karmabhiḥ*—by his previous material activities.

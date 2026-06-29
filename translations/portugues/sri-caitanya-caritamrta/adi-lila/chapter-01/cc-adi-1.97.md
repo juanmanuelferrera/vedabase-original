@@ -1,6 +1,6 @@
 ### CC Adi 1.97
 
-> sūrya candra bāhirera tamaḥ se vināśe
+> sūrya candra bāhirera tamaḥ se vināśe\
 > bahir-vastu ghaṭa-paṭa-ādi se prakāśe
 
 *sūrya*—o sol; *candra*—a lua; *bāhirera*—do mundo externo; *tamaḥ*—escuridão; *se*—eles; *vināśe*—destroem; *bahiḥ-vastu*—coisas externas; *ghaṭa*—potes de água; *paṭa-ādi*—pratos, etc.; *se*—eles; *prakāśe*—revelam.

@@ -1,9 +1,9 @@
 ### CC Antya 19.84
 
-> “ললিত-লবঙ্গলতা” পদ গাওয়াঞা ।
+> “ললিত-লবঙ্গলতা” পদ গাওয়াঞা ।\
 > নৃত্য করি’ বুলেন প্রভু নিজগণ লঞা ॥৮৪॥
 
-> "lalita-lavaṅga-latā" pada gāoyāñā
+> "lalita-lavaṅga-latā" pada gāoyāñā\
 > nṛtya kari' bulena prabhu nija-gaṇa lañā
 
 *lalita-lavaṅga-latā*—beginning with the words *lalita-lavaṅga-latā*; *pada*—the verse; *gāoyāñā*—making sing; *nṛtya kari'*—dancing; *bulena*—wanders; *prabhu*—Śrī Caitanya Mahāprabhu; *nija-gaṇa lañā*—accompanied by His personal associates.

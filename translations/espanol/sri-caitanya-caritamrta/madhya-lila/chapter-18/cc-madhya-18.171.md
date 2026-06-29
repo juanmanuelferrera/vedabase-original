@@ -1,9 +1,9 @@
 ### CC Madhya 18.171
 
-> ক্ষণেক ইহাঁ বৈস, বান্ধি’ রাখহ সবারে ।
+> ক্ষণেক ইহাঁ বৈস, বান্ধি’ রাখহ সবারে ।\
 > ইঁহাকে পুছিয়া, তবে মারিহ সবারে ॥১৭১॥
 
-> kṣaṇeka ihāṅ vaisa, bāndhi' rākhaha sabāre
+> kṣaṇeka ihāṅ vaisa, bāndhi' rākhaha sabāre\
 > iṅhāke puchiyā, tabe māriha sabāre
 
 *kṣaṇeka*—durante un tiempo; *ihāṅ vaisa*—siéntense aquí; *bāndhi'*—arrestando; *rākhaha*—mantengan; *sabāre*—a todos nosotros; *iṅhāke puchiyā*—tras interrogarle a Él; *tabe*—entonces; *māriha sabāre*—pueden matarnos a todos.

@@ -1,9 +1,9 @@
 ### CC Antya 18.8
 
-> রাসলীলার এক শ্লোক যবে পড়ে, শুনে ।
+> রাসলীলার এক শ্লোক যবে পড়ে, শুনে ।\
 > পূর্ববৎ তবে অর্থ করেন আপনে ॥৮॥
 
-> rāsa-līlāra eka śloka yabe paḍe, śune
+> rāsa-līlāra eka śloka yabe paḍe, śune\
 > pūrvavat tabe artha karena āpane
 
 *rāsa-līlāra*—del rāsa-līlā; *eka*—un; *śloka*—verso; *yabe*—cuando; *paḍe*—recita; *śune*—escucha; *pūrva-vat*—como antes; *tabe*—entonces; *artha karena*—explica; *āpane*—personalmente.

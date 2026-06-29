@@ -1,13 +1,13 @@
 ### SB 7.9.22
 
-> स त्वं हि नित्यविजितात्मगुणः स्वधाम्ना
-> कालो वशीकृतविसृज्यविसर्गशक्तिः
-> चक्रे विसृष्टमजयेश्वर षोडशारे
+> स त्वं हि नित्यविजितात्मगुणः स्वधाम्ना\
+> कालो वशीकृतविसृज्यविसर्गशक्तिः\
+> चक्रे विसृष्टमजयेश्वर षोडशारे\
 > निष्पीड्यमानमुपकर्ष विभो प्रपन्नम ॥२२॥
 
-> sa tvaṁ hi nitya-vijitātma-guṇaḥ sva-dhāmnā
-> kālo vaśī-kṛta-visṛjya-visarga-śaktiḥ
-> cakre visṛṣṭam ajayeśvara ṣoḍaśāre
+> sa tvaṁ hi nitya-vijitātma-guṇaḥ sva-dhāmnā\
+> kālo vaśī-kṛta-visṛjya-visarga-śaktiḥ\
+> cakre visṛṣṭam ajayeśvara ṣoḍaśāre\
 > niṣpīḍyamānam upakarṣa vibho prapannam
 
 *saḥ*—aquel (la persona independiente suprema, que, mediante Su energía externa, ha creado la mente material, que es la causa de todo el sufrimiento del mundo material); *tvam*—Tú (eres); *hi*—en verdad; *nitya*—eternamente; *vijita-ātma*—conquistado; *guṇaḥ*—cuya propiedad de la inteligencia; *sva-dhāmnā*—por Tu energía espiritual personal; *kālaḥ*—el elemento tiempo (que crea y aniquila); *vaśī-kṛta*—puesto bajo Tu control; *visṛjya*—mediante el cual todos los efectos; *visarga*—y causas; *śaktiḥ*—la energía; *cakre*—a la rueda del tiempo (el ciclo de nacimientos y muertes); *visṛṣṭam*—arrojado; *ajayā*—por Tu energía externa, la modalidad de la ignorancia; *īśvara*—¡oh, controlador supremo!; *ṣoḍaśa-are*—con dieciséis radios (los cinco elementos materiales, los diez sentidos, y el líder de los sentidos, es decir, la mente); *niṣpīḍyamānam*—siendo aplastado (bajo esa rueda); *upakarṣa*—por favor, llévame (al refugio de Tus pies de loto); *vibho*—¡oh, Tú, que eres grande y supremo!; *prapannam*—que estoy completamente entregado a Ti.

@@ -2,7 +2,7 @@
 
 > ম্লেচ্ছদেশে কর্পূর-চন্দন আনিতে জঞ্জাল । পুরী দুঃখ পাবে ইহা জানিয়া গোপাল ॥১৭৬॥
 
-> mleccha-deśe karpūra-candana ānite jañjāla
+> mleccha-deśe karpūra-candana ānite jañjāla\
 > purī duḥkha pābe ihā jāniyā gopāla
 
 *mleccha-deśe*—through the countries where Muslims ruled; *karpūra-candana*—camphor and sandalwood; *ānite*—to bring; *jañjāla*—inconvenience; *purī*—Mādhavendra Purī; *duḥkha*—unhappiness; *pābe*—will get; *ihā*—this; *jāniyā*—knowing; *gopāla*—Gopāla.

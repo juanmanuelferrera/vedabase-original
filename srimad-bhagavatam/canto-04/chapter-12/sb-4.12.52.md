@@ -1,11 +1,11 @@
 ### SB 4.12.52
 
-> इदं मया तेऽभिहितं कुरूद्वह ध्रुवस्य विख्यातविशुद्धकर्मणः ।
+> इदं मया तेऽभिहितं कुरूद्वह ध्रुवस्य विख्यातविशुद्धकर्मणः ।\
 > हित्वार्भकः क्रीडनकानि मातुर्गृहं च विष्णुं शरणं यो जगाम ॥५२॥
 
-> idaṁ mayā te 'bhihitaṁ kurūdvaha
-> dhruvasya vikhyāta-viśuddha-karmaṇaḥ
-> hitvārbhakaḥ krīḍanakāni mātur
+> idaṁ mayā te 'bhihitaṁ kurūdvaha\
+> dhruvasya vikhyāta-viśuddha-karmaṇaḥ\
+> hitvārbhakaḥ krīḍanakāni mātur\
 > gṛhaṁ ca viṣṇuṁ śaraṇaṁ yo jagāma
 
 *idam*—this; *mayā*—by me; *te*—unto you; *abhihitam*—described; *kuru-udvaha*—O great one among the Kurus; *dhruvasya*—of Dhruva; *vikhyāta*—very famous; *viśuddha*—very pure; *karmaṇaḥ*—whose activities; *hitvā*—giving up; *arbhakaḥ*—child; *krīḍanakāni*—toys and playthings; *mātuḥ*—of his mother; *gṛham*—home; *ca*—also; *viṣṇum*—to Lord Viṣṇu; *śaraṇam*—shelter; *yaḥ*—one who; *jagāma*—went.

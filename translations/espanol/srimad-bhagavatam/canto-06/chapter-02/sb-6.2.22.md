@@ -1,11 +1,11 @@
 ### SB 6.2.22
 
-> द्विजः पाशाद्विनिर्मुक्तो गतभीः प्रकृतिं गतः
+> द्विजः पाशाद्विनिर्मुक्तो गतभीः प्रकृतिं गतः\
 > ववन्दे शिरसा विष्णोः किङ्करान्दर्शनोत्सवः ॥२२॥
 
-> dvijaḥ pāśād vinirmukto
-> gata-bhīḥ prakṛtiṁ gataḥ
-> vavande śirasā viṣṇoḥ
+> dvijaḥ pāśād vinirmukto\
+> gata-bhīḥ prakṛtiṁ gataḥ\
+> vavande śirasā viṣṇoḥ\
 > kiṅkarān darśanotsavaḥ
 
 *dvijaḥ*—el *brāhmaṇa* (Ajāmila); *pāśāt*—del lazo; *vinirmuktaḥ*—liberado; *gata-bhīḥ*—libre de temor; *prakṛtim gataḥ*—recobró el buen sentido; *vavande*—ofreció respetuosas reverencias; *śirasā*—inclinando su cabeza; *viṣṇoḥ*—del Señor Viṣṇu; *kiṅkarān*—a los sirvientes; *darśana-utsavaḥ*—muy complacido de verlos.

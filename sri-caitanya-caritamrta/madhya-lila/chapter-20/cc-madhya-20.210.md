@@ -1,9 +1,9 @@
 ### CC Madhya 20.210
 
-> কৃষ্ণের প্রাভববিলাস — বাসুদেবাদি চারি জন ।
+> কৃষ্ণের প্রাভববিলাস — বাসুদেবাদি চারি জন ।\
 > সেই চারিজনার বিলাস — বিংশতি গণন ॥২১০॥
 
-> kṛṣṇera prābhava-vilāsa—vāsudevādi cāri jana
+> kṛṣṇera prābhava-vilāsa—vāsudevādi cāri jana\
 > sei cāri-janāra vilāsa—viṁśati gaṇana
 
 *kṛṣṇera*—of Lord Kṛṣṇa; *prābhava-vilāsa*—prābhava pastime forms; *vāsudeva-ādi*—Vāsudeva and others; *cāri jana*—quadruple expansions; *sei*—those; *cāri-janāra*—of the four-personalities; *vilāsa*—pastime forms; *viṁśati gaṇana*—counted as twenty.

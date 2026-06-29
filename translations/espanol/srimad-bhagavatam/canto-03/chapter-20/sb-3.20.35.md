@@ -1,11 +1,11 @@
 ### SB 3.20.35
 
-> या वा काचित्त्वमबले दिष्ट्या सन्दर्शनं तव ।
+> या वा काचित्त्वमबले दिष्ट्या सन्दर्शनं तव ।\
 > उत्सुनोषीक्षमाणानां कन्दुकक्रीडया मनः ॥३५॥
 
-> yā vā kācit tvam abale
-> diṣṭyā sandarśanaṁ tava
-> utsunoṣīkṣamāṇānāṁ
+> yā vā kācit tvam abale\
+> diṣṭyā sandarśanaṁ tava\
+> utsunoṣīkṣamāṇānāṁ\
 > kanduka-krīḍayā manaḥ
 
 *yā*—quienquiera; *vā*—o; *kācit*—cualquiera; *tvam*—tú; *abale*—¡oh, hermosa muchacha!; *diṣṭyā*—por fortuna; *sandarśanam*—viendo; *tava*—de ti; *utsunoṣi*—tú agitas; *īkṣamāṇānām*—de los espectadores; *kanduka*—con una pelota; *krīḍayā*—jugando; *manaḥ*—la mente.

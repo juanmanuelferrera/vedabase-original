@@ -1,13 +1,13 @@
 ### SB 7.8.51
 
-> श्रीचारणा ऊचुः
-> हरे तवाङ्घ्रिपङ्कजं भवापवर्गमाश्रिताः
+> श्रीचारणा ऊचुः\
+> हरे तवाङ्घ्रिपङ्कजं भवापवर्गमाश्रिताः\
 > यदेष साधुहृच्छयस्त्वयासुरः समापितः ॥५१॥
 
-> śrī-cāraṇā ūcuḥ
-> hare tavāṅghri-paṅkajaṁ
-> bhavāpavargam āśritāḥ
-> yad eṣa sādhu-hṛc-chayas
+> śrī-cāraṇā ūcuḥ\
+> hare tavāṅghri-paṅkajaṁ\
+> bhavāpavargam āśritāḥ\
+> yad eṣa sādhu-hṛc-chayas\
 > tvayāsuraḥ samāpitaḥ
 
 *śrī-cāraṇāḥ ūcuḥ*—los habitantes del planeta Cāraṇa dijeron; *hare*—¡oh, Señor!; *tava*—Tus; *aṅghri-paṅkajam*—pies de loto; *bhava-apavargam*—el único refugio para liberarse de la contaminación de la existencia material; *āśritāḥ*—refugiados en; *yat*—debido a; *eṣaḥ*—esta; *sādhu-hṛt-śayaḥ*—espina en el corazón de todas las personas honestas; *tvayā*—por Tu Señoría; *asuraḥ*—el demonio (Hiraṇyakaśipu); *samāpitaḥ*—acabado.

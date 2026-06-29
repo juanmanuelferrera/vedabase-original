@@ -1,9 +1,9 @@
 ### CC Antya 4.222
 
-> আর যত গ্রন্থ কৈলা, তাহা কে করে গণন ।
+> আর যত গ্রন্থ কৈলা, তাহা কে করে গণন ।\
 > ‘মদনগোপাল-গোবিন্দের সেবা’-প্রকাশন ॥২২২॥
 
-> āra yata grantha kailā, tāhā ke kare gaṇana
+> āra yata grantha kailā, tāhā ke kare gaṇana\
 > 'madana-gopāla-govindera sevā'-prakāśana
 
 *āra yata*—all other; *grantha*—books; *kailā*—compiled; *tāhā*—that; *ke kare gaṇana*—who can enumerate; *madana-gopāla*—the Deity named Madana-mohana; *govindera*—of the Deity named Śrī Govinda; *sevā*—service; *prakāśana*—exhibition.

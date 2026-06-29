@@ -1,11 +1,11 @@
 ### SB 9.9.8
 
-> इत्युक्त्वा स नृपो देवं तपसातोषयच्छिवम
+> इत्युक्त्वा स नृपो देवं तपसातोषयच्छिवम\
 > कालेनाल्पीयसा राजंस्तस्येशश्चाश्वतुष्यत ॥८॥
 
-> ity uktvā sa nṛpo devaṁ
-> tapasātoṣayac chivam
-> kālenālpīyasā rājaṁs
+> ity uktvā sa nṛpo devaṁ\
+> tapasātoṣayac chivam\
+> kālenālpīyasā rājaṁs\
 > tasyeśaś cāśv atuṣyata
 
 *iti uktvā*—tras decir esto; *saḥ*—él; *nṛpaḥ*—el rey (Bhagīratha); *devam*—al Señor Śiva; *tapasā*—con austeridades; *atoṣayat*—complació; *śivam*—al Señor Śiva, el supremo auspicioso; *kālena*—con el tiempo; *alpīyasā*—que no fue mucho; *rājan*—¡oh, rey!; *tasya*—sobre él (Bhagīratha); *īśaḥ*—el Señor Śiva; *ca*—en verdad; *āśu*—muy pronto; *atuṣyata*—se sintió satisfecho.

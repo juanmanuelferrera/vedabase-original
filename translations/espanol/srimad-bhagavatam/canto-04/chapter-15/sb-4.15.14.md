@@ -1,11 +1,11 @@
 ### SB 4.15.14
 
-> तस्मै जहार धनदो हैमं वीर वरासनम् ।
+> तस्मै जहार धनदो हैमं वीर वरासनम् ।\
 > वरुणः सलिलस्रावमातपत्रं शशिप्रभम् ॥१४॥
 
-> tasmai jahāra dhanado
-> haimaṁ vīra varāsanam
-> varuṇaḥ salila-srāvam
+> tasmai jahāra dhanado\
+> haimaṁ vīra varāsanam\
+> varuṇaḥ salila-srāvam\
 > ātapatraṁ śaśi-prabham
 
 *tasmai*—a él; *jahāra*—obsequió; *dhana-daḥ*—el tesorero de los semidioses (Kuvera); *haimam*—hecho de oro; *vīra*—¡oh, Vidura!; *vara-āsanam*—un trono real; *varuṇaḥ*—el semidiós Varuṇa; *salila-srāvam*—que desprendía agua pulverizada; *ātapatram*—sombrilla; *śaśi-prabham*—tan brillante como la Luna.

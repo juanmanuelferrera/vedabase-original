@@ -1,11 +1,11 @@
 ### SB 3.13.42
 
-> संस्थापयैनां जगतां सतस्थुषां लोकाय पत्नीमसि मातरं पिता ।
+> संस्थापयैनां जगतां सतस्थुषां लोकाय पत्नीमसि मातरं पिता ।\
 > विधेम चास्यै नमसा सह त्वया यस्यां स्वतेजोऽग्निमिवारणावधाः ॥४२॥
 
-> saṁsthāpayaināṁ jagatāṁ sa-tasthuṣāṁ
-> lokāya patnīm asi mātaraṁ pitā
-> vidhema cāsyai namasā saha tvayā
+> saṁsthāpayaināṁ jagatāṁ sa-tasthuṣāṁ\
+> lokāya patnīm asi mātaraṁ pitā\
+> vidhema cāsyai namasā saha tvayā\
 > yasyāṁ sva-tejo 'gnim ivāraṇāv adhāḥ
 
 *saṁsthāpaya enām*—levanta esta Tierra; *jagatām*—tanto los móviles como; *sa-tasthuṣām*—inmóviles; *lokāya*—para su residencia; *patnīm*—esposa; *asi*—Tú eres; *mātaram*—la madre; *pitā*—el padre; *vidhema*—nosotros ofrecemos; *ca*—también; *asyai*—a la madre; *namasā*—con todas las reverencias; *saha*—junto con; *tvayā*—contigo; *yasyām*—en quien; *sva-tejaḥ*—por Tu propia potencia; *agnim*—fuego; *iva*—comparado; *araṇau*—en la madera de *araṇi*; *adhāḥ*—investida.

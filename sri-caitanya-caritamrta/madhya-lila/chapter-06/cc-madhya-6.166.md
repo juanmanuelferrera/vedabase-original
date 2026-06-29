@@ -1,9 +1,9 @@
 ### CC Madhya 6.166
 
-> ঈশ্বরের শ্রীবিগ্রহ সচ্চিদানন্দাকার ।
+> ঈশ্বরের শ্রীবিগ্রহ সচ্চিদানন্দাকার ।\
 > সে-বিগ্রহে কহ সত্ত্বগুণের বিকার ॥১৬৬॥
 
-> īśvarera śrī-vigraha sac-cid-ānandākāra
+> īśvarera śrī-vigraha sac-cid-ānandākāra\
 > se-vigrahe kaha sattva-guṇera vikāra
 
 *īśvarera*—of the Supreme Personality of Godhead; *śrī-vigraha*—the form; *sat-cit-ānanda-ākāra*—complete in eternity, cognizance and bliss; *se-vigrahe*—about that form of the Lord; *kaha*—you say; *sattva-guṇera*—of the quality of material goodness; *vikāra*—transformation.

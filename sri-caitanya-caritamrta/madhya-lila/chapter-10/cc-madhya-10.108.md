@@ -1,9 +1,9 @@
 ### CC Madhya 10.108
 
-> সন্ন্যাস করিলা শিখা-সূত্রত্যাগ-রূপ ।
+> সন্ন্যাস করিলা শিখা-সূত্রত্যাগ-রূপ ।\
 > যোগপট্ট না নিল, নাম হৈল ‘স্বরূপ’ ॥১০৮॥
 
-> sannyāsa karilā śikhā-sūtra-tyāga-rūpa
+> sannyāsa karilā śikhā-sūtra-tyāga-rūpa\
 > yoga-paṭṭa nā nila, nāma haila 'svarūpa'
 
 *sannyāsa karilā*—accepted the *sannyāsa* order; *śikhā*—tuft of hair; *sūtra*—sacred thread; *tyāga*—giving up; *rūpa*—in the form of; *yoga-paṭṭa*—saffron-colored dress; *nā nila*—did not accept; *nāma*—name; *haila*—was; *svarūpa*—Svarūpa.

@@ -1,9 +1,9 @@
 ### CC Adi 17.225
 
-> কাজীরে বিদায় দিল শচীর নন্দন ।
+> কাজীরে বিদায় দিল শচীর নন্দন ।\
 > নাচিতে নাচিতে আইলা আপন ভবন ॥২২৫॥
 
-> kājīre vidāya dila śacīra nandana
+> kājīre vidāya dila śacīra nandana\
 > nācite nācite āilā āpana bhavana
 
 *kājīre*—unto the Kazi; *vidāya*—farewell; *dila*—gave; *śacīra*—of mother Śacī; *nandana*—the son; *nācite nācite*—dancing and dancing; *āilā*—came back; *āpana*—own; *bhavana*—house.

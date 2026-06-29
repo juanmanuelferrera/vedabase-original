@@ -1,13 +1,13 @@
 ### CC Madhya 21.133
 
-> না দিলেক লক্ষ-কোটি, সবে দিলা আঁখি দুটি,
-> তাতে দিলা নিমিষ-আচ্ছাদন ।
-> বিধি — জড় তপোধন, রসশূন্য তার মন,
+> না দিলেক লক্ষ-কোটি, সবে দিলা আঁখি দুটি,\
+> তাতে দিলা নিমিষ-আচ্ছাদন ।\
+> বিধি — জড় তপোধন, রসশূন্য তার মন,\
 > নাহি জানে যোগ্য সৃজন ॥১৩৩॥
 
-> nā dileka lakṣa-koṭi, sabe dilā āṅkhi duṭi,
-> tāte dilā nimiṣa-ācchādana
-> vidhi--jaḍa tapodhana, rasa-śūnya tāra mana,
+> nā dileka lakṣa-koṭi, sabe dilā āṅkhi duṭi,\
+> tāte dilā nimiṣa-ācchādana\
+> vidhi--jaḍa tapodhana, rasa-śūnya tāra mana,\
 > nāhi jāne yogya sṛjana
 
 *nā dileka*—no otorgó; *lakṣa-koṭi*—miles y millones; *sabe*—solo; *dilā*—dio; *āṅkhi duṭi*—dos ojos; *tāte*—en ellos; *dilā*—dio; *nimiṣa-ācchādana*—cubierta de los párpados; *vidhi*—creador; *jaḍa*—torpe; *tapaḥ-dhana*—caudal de austeridades; *rasa-śūnya*—carente de jugo; *tāra*—su; *mana*—mente; *nāhi jāne*—no sabe; *yogya*—apropiada; *sṛjana*—creación.

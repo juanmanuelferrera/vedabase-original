@@ -1,32 +1,32 @@
 ### SB 3.32.12-15
 
-> आद्यः स्थिरचराणां यो वेदगर्भः सहर्षिभिः ।
-> योगेश्वरैः कुमाराद्यैः सिद्धैर्योगप्रवर्तकैः ॥१२॥
-> भेददृष्ट्याभिमानेन निःसङ्गेनापि कर्मणा ।
-> कर्तृत्वात्सगुणं ब्रह्म पुरुषं पुरुषर्षभम् ॥१३॥
-> स संसृत्य पुनः काले कालेनेश्वरमूर्तिना ।
-> जाते गुणव्यतिकरे यथापूर्वं प्रजायते ॥१४॥
-> ऐश्वर्यं पारमेष्ठ्यं च तेऽपि धर्मविनिर्मितम् ।
+> आद्यः स्थिरचराणां यो वेदगर्भः सहर्षिभिः ।\
+> योगेश्वरैः कुमाराद्यैः सिद्धैर्योगप्रवर्तकैः ॥१२॥\
+> भेददृष्ट्याभिमानेन निःसङ्गेनापि कर्मणा ।\
+> कर्तृत्वात्सगुणं ब्रह्म पुरुषं पुरुषर्षभम् ॥१३॥\
+> स संसृत्य पुनः काले कालेनेश्वरमूर्तिना ।\
+> जाते गुणव्यतिकरे यथापूर्वं प्रजायते ॥१४॥\
+> ऐश्वर्यं पारमेष्ठ्यं च तेऽपि धर्मविनिर्मितम् ।\
 > निषेव्य पुनरायान्ति गुणव्यतिकरे सति ॥१५॥
 
-> ādyaḥ sthira-carāṇāṁ yo
-> veda-garbhaḥ saharṣibhiḥ
-> yogeśvaraiḥ kumārādyaiḥ
+> ādyaḥ sthira-carāṇāṁ yo\
+> veda-garbhaḥ saharṣibhiḥ\
+> yogeśvaraiḥ kumārādyaiḥ\
 > siddhair yoga-pravartakaiḥ
 
-> bheda-dṛṣṭyābhimānena
-> niḥsaṅgenāpi karmaṇā
-> kartṛtvāt saguṇaṁ brahma
+> bheda-dṛṣṭyābhimānena\
+> niḥsaṅgenāpi karmaṇā\
+> kartṛtvāt saguṇaṁ brahma\
 > puruṣaṁ puruṣarṣabham
 
-> sa saṁsṛtya punaḥ kāle
-> kāleneśvara-mūrtinā
-> jāte guṇa-vyatikare
+> sa saṁsṛtya punaḥ kāle\
+> kāleneśvara-mūrtinā\
+> jāte guṇa-vyatikare\
 > yathā-pūrvaṁ prajāyate
 
-> aiśvaryaṁ pārameṣṭhyaṁ ca
-> te 'pi dharma-vinirmitam
-> niṣevya punar āyānti
+> aiśvaryaṁ pārameṣṭhyaṁ ca\
+> te 'pi dharma-vinirmitam\
+> niṣevya punar āyānti\
 > guṇa-vyatikare sati
 
 *ādyaḥ*—el creador, el Señor Brahmā; *sthira-carāṇām*—de las manifestaciones móviles e inmóviles; *yaḥ*—aquel que; *veda-garbhaḥ*—el depositario de los *Vedas*; *saha*—junto con; *ṛṣibhiḥ*—los sabios; *yoga-īśvaraiḥ*—con grandes *yogīs* místicos; *kumāra-ādyaiḥ*—los Kumāras y otros; *siddhaiḥ*—con los seres vivientes perfeccionados; *yoga-pravartakaiḥ*—los autores del sistema de *yoga*; *bheda-dṛṣṭyā*—a causa de una visión independiente; *abhimānena*—por el concepto erróneo; *niḥsaṅgena*—no fruitivas; *api*—aunque; *karmaṇā*—por sus actividades; *kartṛtvāt*—del sentido de ser el hacedor; *sa-guṇam*—poseyendo cualidades espirituales; *brahma*—Brahman; *puruṣam*—a la Personalidad de Dios; *puruṣa-ṛṣabham*—a la primera encarnación *puruṣa*; *saḥ*—él; *saṁsṛtya*—habiendo alcanzado; *punaḥ*—de nuevo; *kāle*—en el momento; *kālena*—por el tiempo; *īśvara-mūrtinā*—la manifestación del Señor; *jāte guṇa-vyatikare*—cuando se suscita la interacción de las modalidades; *yathā*—como; *pūrvam*—anteriormente; *prajāyate*—nace; *aiśvaryam*—opulencia; *pārameṣṭhyam*—regia; *ca*—y; *te*—los sabios; *api*—también; *dharma*—por sus actividades piadosas; *vinirmitam*—producidas; *niṣevya*—habiendo disfrutado; *punaḥ*—de nuevo; *āyānti*—regresan; *guṇa-vyatikare sati*—cuando tiene lugar la interacción de las modalidades.

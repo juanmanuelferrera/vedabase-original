@@ -1,18 +1,18 @@
 ### SB 6.10.17-18
 
-> रुद्रैर्वसुभिरादित्यैरश्विभ्यां पितृवह्निभिः
-> मरुद्भिरृभुभिः साध्यैर्विश्वेदेवैर्मरुत्पतिम ॥१७॥
-> दृष्ट्वा वज्रधरं शक्रं रोचमानं स्वया श्रिया
+> रुद्रैर्वसुभिरादित्यैरश्विभ्यां पितृवह्निभिः\
+> मरुद्भिरृभुभिः साध्यैर्विश्वेदेवैर्मरुत्पतिम ॥१७॥\
+> दृष्ट्वा वज्रधरं शक्रं रोचमानं स्वया श्रिया\
 > नामृष्यन्नसुरा राजन्मृधे वृत्रपुरःसराः ॥१८॥
 
-> rudrair vasubhir ādityair
-> aśvibhyāṁ pitṛ-vahnibhiḥ
-> marudbhir ṛbhubhiḥ sādhyair
+> rudrair vasubhir ādityair\
+> aśvibhyāṁ pitṛ-vahnibhiḥ\
+> marudbhir ṛbhubhiḥ sādhyair\
 > viśvedevair marut-patim
 
-> dṛṣṭvā vajra-dharaṁ śakraṁ
-> rocamānaṁ svayā śriyā
-> nāmṛṣyann asurā rājan
+> dṛṣṭvā vajra-dharaṁ śakraṁ\
+> rocamānaṁ svayā śriyā\
+> nāmṛṣyann asurā rājan\
 > mṛdhe vṛtra-puraḥsarāḥ
 
 *rudraiḥ*—por los *rudras*; *vasubhiḥ*—por los Vasus; *ādityaiḥ*—por los *ādityas*; *aśvibhyām*—por los Aśvinī-kumāras; *pitṛ*—por los *pitās*; *vahnibhiḥ*—y los *vahnis*; *marudbhiḥ*—por los Maruts; *ṛbhubhiḥ*—por los *ṛbhus*; *sādhyaiḥ*—por los *sādhyas*; *viśve-devaiḥ*—por los *viśvadevas*; *marut-patim*—a Indra, el rey celestial; *dṛṣṭvā*—al ver; *vajra-dharam*—llevando el rayo; *śakram*—otro nombre de Indra; *rocamānam*—brillando; *svayā*—con su propia; *śriyā*—opulencia; *na*—no; *amṛṣyan*—toleraban; *asurāḥ*—todos los demonios; *rājan*—¡oh, rey!; *mṛdhe*—en la lucha; *vṛtra-puraḥsarāḥ*—encabezados por Vṛtrāsura.

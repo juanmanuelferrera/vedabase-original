@@ -1,9 +1,9 @@
 ### CC Madhya 22.7
 
-> অদ্বয়জ্ঞান-তত্ত্ব কৃষ্ণ — স্বয়ং ভগবান্ ।
+> অদ্বয়জ্ঞান-তত্ত্ব কৃষ্ণ — স্বয়ং ভগবান্ ।\
 > ‘স্বরূপ-শক্তি’রূপে তাঁর হয় অবস্থান ॥৭॥
 
-> advaya-jñāna-tattva kṛṣṇa--svayaṁ bhagavān
+> advaya-jñāna-tattva kṛṣṇa--svayaṁ bhagavān\
 > 'svarūpa-śakti' rūpe tāṅra haya avasthāna
 
 *advaya-jñāna*—del conocimiento no dual; *tattva*—el principio; *kṛṣṇa*—el Señor Kṛṣṇa; *svayam bhagavān*—Él mismo, la Suprema Personalidad de Dios; *svarūpa*—expansiones personales; *śakti*—de potencias; *rūpe*—en la forma; *tāṅra*—Su; *haya*—hay; *avasthāna*—existencia.

@@ -1,11 +1,11 @@
 ### Bg 4.17
 
-> कर्मणो ह्यपि बोद्धव्यं बोद्धव्यं च विकर्मणः ।
+> कर्मणो ह्यपि बोद्धव्यं बोद्धव्यं च विकर्मणः ।\
 > अकर्मणश्च बोद्धव्यं गहना कर्मणो गतिः ॥१७॥
 
-> karmaṇo hy api boddhavyaṁ
-> boddhavyaṁ ca vikarmaṇaḥ
-> akarmaṇaś ca boddhavyaṁ
+> karmaṇo hy api boddhavyaṁ\
+> boddhavyaṁ ca vikarmaṇaḥ\
+> akarmaṇaś ca boddhavyaṁ\
 > gahanā karmaṇo gatiḥ
 
 *karmaṇaḥ*—working order; *hi*—certainly; *api*—also; *boddhavyam*—should be understood; *boddhavyam*—to be understood; *ca*—also; *vikarmaṇaḥ*—forbidden work; *akarmaṇaḥ*—inaction; *ca*—also; *boddhavyam*—should be understood; *gahanā*—very difficult; *karmaṇaḥ*—working order; *gatiḥ*—to enter into.

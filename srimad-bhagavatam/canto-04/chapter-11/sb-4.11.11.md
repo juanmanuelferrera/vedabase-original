@@ -1,11 +1,11 @@
 ### SB 4.11.11
 
-> सर्वभूतात्मभावेन भूतावासं हरिं भवान् ।
+> सर्वभूतात्मभावेन भूतावासं हरिं भवान् ।\
 > आराध्याप दुराराध्यं विष्णोस्तत्परमं पदम् ॥११॥
 
-> sarva-bhūtātma-bhāvena
-> bhūtāvāsaṁ hariṁ bhavān
-> ārādhyāpa durārādhyaṁ
+> sarva-bhūtātma-bhāvena\
+> bhūtāvāsaṁ hariṁ bhavān\
+> ārādhyāpa durārādhyaṁ\
 > viṣṇos tat paramaṁ padam
 
 *sarva-bhūta*—in all living entities; *ātma*—upon the Supersoul; *bhāvena*—with meditation; *bhūta*—of all existence; *āvāsam*—the abode; *harim*—Lord Hari; *bhavān*—you; *ārādhya*—by worshiping; *āpa*—have achieved; *durārādhyam*—very difficult to propitiate; *viṣṇoḥ*—of Lord Viṣṇu; *tat*—that; *paramam*—supreme; *padam*—situation.

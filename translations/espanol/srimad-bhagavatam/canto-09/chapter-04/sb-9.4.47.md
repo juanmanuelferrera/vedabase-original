@@ -1,11 +1,11 @@
 ### SB 9.4.47
 
-> तामापतन्तीं ज्वलतीमसिहस्तां पदा भुवम
+> तामापतन्तीं ज्वलतीमसिहस्तां पदा भुवम\
 > वेपयन्तीं समुद्वीक्ष्य न चचाल पदान्नृपः ॥४७॥
 
-> tām āpatantīṁ jvalatīm
-> asi-hastāṁ padā bhuvam
-> vepayantīṁ samudvīkṣya
+> tām āpatantīṁ jvalatīm\
+> asi-hastāṁ padā bhuvam\
+> vepayantīṁ samudvīkṣya\
 > na cacāla padān nṛpaḥ
 
 *tām*—a ese (demonio); *āpatantīm*—que avanzaba para atacarle; *jvalatīm*—ardiendo como el fuego; *asi-hastām*—con un tridente en la mano; *padā*—con su paso; *bhuvam*—la superficie de la Tierra; *vepayantīm*—haciendo temblar; *samudvīkṣya*—verle perfectamente; *na*—no; *cacāla*—se movió; *padāt*—de su lugar; *nṛpaḥ*—el rey.

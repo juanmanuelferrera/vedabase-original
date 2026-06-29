@@ -1,13 +1,13 @@
 ### SB 6.3.12
 
-> यम उवाच
-> परो मदन्यो जगतस्तस्थुषश्च ओतं प्रोतं पटवद्यत्र विश्वम
+> यम उवाच\
+> परो मदन्यो जगतस्तस्थुषश्च ओतं प्रोतं पटवद्यत्र विश्वम\
 > यदंशतोऽस्य स्थितिजन्मनाशा नस्योतवद्यस्य वशे च लोकः ॥१२॥
 
-> yama uvāca
-> paro mad-anyo jagatas tasthuṣaś ca
-> otaṁ protaṁ paṭavad yatra viśvam
-> yad-aṁśato 'sya sthiti-janma-nāśā
+> yama uvāca\
+> paro mad-anyo jagatas tasthuṣaś ca\
+> otaṁ protaṁ paṭavad yatra viśvam\
+> yad-aṁśato 'sya sthiti-janma-nāśā\
 > nasy otavad yasya vaśe ca lokaḥ
 
 *yamaḥ uvāca*—Yamarāja replied; *paraḥ*—superior; *mat*—than me; *anyaḥ*—another; *jagataḥ*—of all moving things; *tasthuṣaḥ*—of nonmoving things; *ca*—and; *otam*—crosswise; *protam*—lengthwise; *paṭavat*—like a woven cloth; *yatra*—in whom; *viśvam*—the cosmic manifestation; *yat*—of whom; *aṁśataḥ*—from the partial expansions; *asya*—of this universe; *sthiti*—the maintenance; *janma*—the creation; *nāśāḥ*—the annihilation; *nasi*—in the nose; *ota-vat*—like the rope; *yasya*—of whom; *vaśe*—under the control; *ca*—and; *lokaḥ*—the whole creation.

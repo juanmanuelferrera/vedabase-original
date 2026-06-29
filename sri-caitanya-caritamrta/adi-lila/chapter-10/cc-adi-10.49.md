@@ -1,9 +1,9 @@
 ### CC Adi 10.49
 
-> শ্রীমুরারি গুপ্ত শাখা — প্রেমের ভাণ্ডার ।
+> শ্রীমুরারি গুপ্ত শাখা — প্রেমের ভাণ্ডার ।\
 > প্রভুর হৃদয় দ্রবে শুনি’ দৈন্য যাঁর ॥৪৯॥
 
-> śrī-murāri gupta śākhā—premera bhāṇḍāra
+> śrī-murāri gupta śākhā—premera bhāṇḍāra\
 > prabhura hṛdaya drave śuni' dainya yāṅra
 
 *śrī-murāri gupta*—of the name Śrī Murāri Gupta; *śākhā*—branch; *premera*—of love of Godhead; *bhāṇḍāra*—store; *prabhura*—of the Lord; *hṛdaya*—the heart; *drave*—melts; *śuni'*—hearing; *dainya*—humility; *yāṅra*—of whom.

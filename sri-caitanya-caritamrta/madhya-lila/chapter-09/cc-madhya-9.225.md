@@ -1,9 +1,9 @@
 ### CC Madhya 9.225
 
-> তমাল-কার্তিক দেখি’ আইল বেতাপনি ।
+> তমাল-কার্তিক দেখি’ আইল বেতাপনি ।\
 > রঘুনাথ দেখি’ তাহাঁ বঞ্চিলা রজনী ॥২২৫॥
 
-> tamāla-kārtika dekhi' āila vetāpani
+> tamāla-kārtika dekhi' āila vetāpani\
 > raghunātha dekhi' tāhāṅ vañcilā rajanī
 
 *tamāla-kārtika*—the place named Tamāla-kārtika; *dekhi'*—seeing; *āila*—came; *vetāpani*—to Vetāpani; *raghunātha dekhi'*—seeing the temple of Lord Rāmacandra; *tāhāṅ*—there; *vañcilā rajanī*—passed the night.

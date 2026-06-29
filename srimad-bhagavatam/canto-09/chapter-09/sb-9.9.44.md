@@ -1,11 +1,11 @@
 ### SB 9.9.44
 
-> न बाल्येऽपि मतिर्मह्यमधर्मे रमते क्वचित
+> न बाल्येऽपि मतिर्मह्यमधर्मे रमते क्वचित\
 > नापश्यमुत्तमश्लोकादन्यत्किञ्चन वस्त्वहम ॥४४॥
 
-> na bālye 'pi matir mahyam
-> adharme ramate kvacit
-> nāpaśyam uttamaślokād
+> na bālye 'pi matir mahyam\
+> adharme ramate kvacit\
+> nāpaśyam uttamaślokād\
 > anyat kiñcana vastv aham
 
 *na*—not; *bālye*—in childhood; *api*—indeed; *matiḥ*—attraction; *mahyam*—of me; *adharme*—in irreligious principles; *ramate*—enjoys; *kvacit*—at any time; *na*—nor; *apaśyam*—I saw; *uttamaślokāt*—than the Personality of Godhead; *anyat*—anything else; *kiñcana*—anything; *vastu*—substance; *aham*—I.

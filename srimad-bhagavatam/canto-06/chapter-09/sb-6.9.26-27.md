@@ -1,18 +1,18 @@
 ### SB 6.9.26-27
 
-> यो नः सपत्नैर्भृशमर्द्यमानान्देवर्षितिर्यङ्नृषु नित्य एव
-> कृतावतारस्तनुभिः स्वमायया कृत्वात्मसात्पाति युगे युगे च ॥२६॥
-> तमेव देवं वयमात्मदैवतं परं प्रधानं पुरुषं विश्वमन्यम
+> यो नः सपत्नैर्भृशमर्द्यमानान्देवर्षितिर्यङ्नृषु नित्य एव\
+> कृतावतारस्तनुभिः स्वमायया कृत्वात्मसात्पाति युगे युगे च ॥२६॥\
+> तमेव देवं वयमात्मदैवतं परं प्रधानं पुरुषं विश्वमन्यम\
 > व्रजाम सर्वे शरणं शरण्यं स्वानां स नो धास्यति शं महात्मा ॥२७॥
 
-> yo naḥ sapatnair bhṛśam ardyamānān
-> devarṣi-tiryaṅ-nṛṣu nitya eva
-> kṛtāvatāras tanubhiḥ sva-māyayā
+> yo naḥ sapatnair bhṛśam ardyamānān\
+> devarṣi-tiryaṅ-nṛṣu nitya eva\
+> kṛtāvatāras tanubhiḥ sva-māyayā\
 > kṛtvātmasāt pāti yuge yuge ca
 
-> tam eva devaṁ vayam ātma-daivataṁ
-> paraṁ pradhānaṁ puruṣaṁ viśvam anyam
-> vrajāma sarve śaraṇaṁ śaraṇyaṁ
+> tam eva devaṁ vayam ātma-daivataṁ\
+> paraṁ pradhānaṁ puruṣaṁ viśvam anyam\
+> vrajāma sarve śaraṇaṁ śaraṇyaṁ\
 > svānāṁ sa no dhāsyati śaṁ mahātmā
 
 *yaḥ*—He who; *naḥ*—us; *sapatnaiḥ*—by our enemies, the demons; *bhṛśam*—almost always; *ardyamānān*—being persecuted; *deva*—among the demigods; *ṛṣi*—the saintly persons; *tiryak*—the animals; *nṛṣu*—and men; *nityaḥ*—always; *eva*—certainly; *kṛta-avatāraḥ*—appearing as an incarnation; *tanubhiḥ*—with different forms; *sva-māyayā*—by His internal potency; *kṛtvā ātmasāt*—considering very near and dear to Him; *pāti*—protects; *yuge yuge*—in every millennium; *ca*—and; *tam*—Him; *eva*—indeed; *devam*—the Supreme Lord; *vayam*—all of us; *ātma-daivatam*—the Lord of all living entities; *param*—transcendental; *pradhānam*—the original cause of the total material energy; *puruṣam*—the supreme enjoyer; *viśvam*—whose energy constitutes this universe; *anyam*—separately situated; *vrajāma*—we approach; *sarve*—all; *śaraṇam*—shelter; *śaraṇyam*—suitable as shelter; *svānām*—unto His own devotees; *saḥ*—He; *naḥ*—unto us; *dhāsyati*—shall give; *śam*—good fortune; *mahātmā*—the Supersoul.

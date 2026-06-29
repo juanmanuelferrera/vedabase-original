@@ -1,11 +1,11 @@
 ### CC Madhya 19.140
 
-> কেশাগ্রশতভাগস্য শতাংশসদৃশাত্মকঃ ।
+> কেশাগ্রশতভাগস্য শতাংশসদৃশাত্মকঃ ।\
 > জীবঃ সূক্ষ্মস্বরূপোঽয়ং সংখ্যাতীতো হি চিৎকণঃ ॥১৪০॥
 
-> keśāgra-śata-bhāgasya
-> śatāṁśa-sadṛśātmakaḥ
-> jīvaḥ sūkṣma-svarūpo 'yaṁ
+> keśāgra-śata-bhāgasya\
+> śatāṁśa-sadṛśātmakaḥ\
+> jīvaḥ sūkṣma-svarūpo 'yaṁ\
 > saṅkhyātīto hi cit-kaṇaḥ
 
 *keśa-agra*—of the tip of a hair; *śata-bhāgasya*—of one hundredth; *śata-aṁśa*—a hundredth part; *sadṛśa*—equal to; *ātmakaḥ*—whose nature; *jīvaḥ*—the living entity; *sūkṣma*—very fine; *sva-rūpaḥ*—identification; *ayam*—this; *saṅkhya-atītaḥ*—numbering beyond calculation; *hi*—certainly; *cit-kaṇaḥ*—spiritual particle.

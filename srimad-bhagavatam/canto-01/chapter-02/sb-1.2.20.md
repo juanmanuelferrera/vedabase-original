@@ -1,11 +1,11 @@
 ### SB 1.2.20
 
-> एवं प्रसन्नमनसो भगवद्भक्तियोगतः ।
+> एवं प्रसन्नमनसो भगवद्भक्तियोगतः ।\
 > भगवत्तत्त्वविज्ञानं मुक्तसङ्गस्य जायते ॥२०॥
 
-> evaṁ prasanna-manaso
-> bhagavad-bhakti-yogataḥ
-> bhagavat-tattva-vijñānaṁ
+> evaṁ prasanna-manaso\
+> bhagavad-bhakti-yogataḥ\
+> bhagavat-tattva-vijñānaṁ\
 > mukta-saṅgasya jāyate
 
 *evam*—thus; *prasanna*—enlivened; *manasaḥ*—of the mind; *bhagavat-bhakti*—the devotional service of the Lord; *yogataḥ*—by contact of; *bhagavat*—regarding the Personality of Godhead; *tattva*—knowledge; *vijñānam*—scientific; *mukta*—liberated; *saṅgasya*—of the association; *jāyate*—becomes effective.

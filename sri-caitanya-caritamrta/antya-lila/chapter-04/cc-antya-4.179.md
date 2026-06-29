@@ -1,9 +1,9 @@
 ### CC Antya 4.179
 
-> আমি ত’ — সন্ন্যাসী, আমার ‘সম-দৃষ্টি’ ধর্ম ।
+> আমি ত’ — সন্ন্যাসী, আমার ‘সম-দৃষ্টি’ ধর্ম ।\
 > চন্দন-পঙ্কেতে আমার জ্ঞান হয় ‘সম’ ॥১৭৯॥
 
-> āmi ta'—sannyāsī, āmāra 'sama-dṛṣṭi' dharma
+> āmi ta'—sannyāsī, āmāra 'sama-dṛṣṭi' dharma\
 > candana-paṅkete āmāra jñāna haya 'sama'
 
 *āmi*—I; *ta'*—certainly; *sannyāsī*—in the renounced order of life; *āmāra*—My; *sama-dṛṣṭi*—seeing everything on the same platform; *dharma*—duty; *candana-paṅkete*—between sandalwood pulp and mud; *āmāra*—My; *jñāna*—knowledge; *haya*—is; *sama*—same.

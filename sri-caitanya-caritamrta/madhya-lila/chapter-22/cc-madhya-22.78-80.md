@@ -1,19 +1,19 @@
 ### CC Madhya 22.78-80
 
-> কৃপালু, অকৃতদ্রোহ, সত্যসার সম ।
-> নিদোষ, বদান্য, মৃদু, শুচি, অকিঞ্চন ॥৭৮॥
-> সর্বোপকারক, শান্ত, কৃষ্ণৈকশরণ ।
-> অকাম, অনীহ, স্থির, বিজিত-ষড়্গুণ ॥৭৯॥
-> মিতভুক্, অপ্রমত্ত, মানদ, অমানী ।
+> কৃপালু, অকৃতদ্রোহ, সত্যসার সম ।\
+> নিদোষ, বদান্য, মৃদু, শুচি, অকিঞ্চন ॥৭৮॥\
+> সর্বোপকারক, শান্ত, কৃষ্ণৈকশরণ ।\
+> অকাম, অনীহ, স্থির, বিজিত-ষড়্গুণ ॥৭৯॥\
+> মিতভুক্, অপ্রমত্ত, মানদ, অমানী ।\
 > গম্ভীর, করুণ, মৈত্র, কবি, দক্ষ, মৌনী ॥৮০॥
 
-> kṛpālu, akṛta-droha, satya-sāra sama
+> kṛpālu, akṛta-droha, satya-sāra sama\
 > nidoṣa, vadānya, mṛdu, śuci, akiñcana
 
-> sarvopakāraka, śānta, kṛṣṇaika-śaraṇa
+> sarvopakāraka, śānta, kṛṣṇaika-śaraṇa\
 > akāma, anīha, sthira, vijita-ṣaḍ-guṇa
 
-> mita-bhuk, apramatta, mānada, amānī
+> mita-bhuk, apramatta, mānada, amānī\
 > gambhīra, karuṇa, maitra, kavi, dakṣa, maunī
 
 *kṛpālu*—merciful; *akṛta-droha*—not defiant; *satya-sāra*—thoroughly true; *sama*—equal; *nidoṣa*—faultless; *vadānya*—magnanimous; *mṛdu*—mild; *śuci*—clean; *akiñcana*—without material possessions; *sarva-upakāraka*—working for the welfare of everyone; *śānta*—peaceful; *kṛṣṇa-eka-śaraṇa*—exclusively surrendered to Kṛṣṇa; *akāma*—desireless; *anīha*—indifferent to material acquisitions; *sthira*—fixed; *vijita-ṣaṭ-guṇa*—completely controlling the six bad qualities (lust, anger, greed, etc.); *mita-bhuk*—eating only as much as required; *apramatta*—without inebriation; *māna-da*—respectful; *amānī*—without false prestige; *gambhīra*—grave; *karuṇa*—compassionate; *maitra*—a friend; *kavi*—a poet; *dakṣa*—expert; *maunī*—silent.

@@ -1,13 +1,13 @@
 ### CC Antya 16.144
 
-> হেন কৃষ্ণাধর-সুধা, যে কৈল অমৃত মুধা,
-> যার আশায় গোপী ধরে প্রাণ ।
-> এই বেণু অযোগ্য অতি, স্থাবর ‘পুরুষজাতি’,
+> হেন কৃষ্ণাধর-সুধা, যে কৈল অমৃত মুধা,\
+> যার আশায় গোপী ধরে প্রাণ ।\
+> এই বেণু অযোগ্য অতি, স্থাবর ‘পুরুষজাতি’,\
 > সেই সুধা সদা করে পান ॥১৪৪॥
 
-> hena kṛṣṇādhara-sudhā, ye kaila amṛta mudhā,
-> yāra āśāya gopī dhare prāṇa
-> ei veṇu ayogya ati, sthāvara 'puruṣa-jāti',
+> hena kṛṣṇādhara-sudhā, ye kaila amṛta mudhā,\
+> yāra āśāya gopī dhare prāṇa\
+> ei veṇu ayogya ati, sthāvara 'puruṣa-jāti',\
 > sei sudhā sadā kare pāna
 
 *hena*—tal; *kṛṣṇa-adhara*—de los labios de Kṛṣṇa; *sudhā*—néctar; *ye*—que; *kaila*—hizo; *amṛta*—néctar; *mudhā*—superado; *yāra āśāya*—con la esperanza de lo cual; *gopī*—las gopīs; *dhare prāṇa*—continúan viviendo; *ei veṇu*—esta flauta; *ayogya*—no apta; *ati*—completamente; *sthāvara*—inerte; *puruṣa-jāti*—perteneciente a la clase masculina; *sei sudhā*—ese néctar; *sadā*—siempre; *kare pāna*—bebe.

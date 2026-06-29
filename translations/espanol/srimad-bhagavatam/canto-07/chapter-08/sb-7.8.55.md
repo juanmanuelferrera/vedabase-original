@@ -1,13 +1,13 @@
 ### SB 7.8.55
 
-> श्रीकिन्नरा ऊचुः
-> वयमीश किन्नरगणास्तवानुगा दितिजेन विष्टिममुनानुकारिताः
+> श्रीकिन्नरा ऊचुः\
+> वयमीश किन्नरगणास्तवानुगा दितिजेन विष्टिममुनानुकारिताः\
 > भवता हरे स वृजिनोऽवसादितो नरसिंह नाथ विभवाय नो भव ॥५५॥
 
-> śrī-kinnarā ūcuḥ
-> vayam īśa kinnara-gaṇās tavānugā
-> ditijena viṣṭim amunānukāritāḥ
-> bhavatā hare sa vṛjino 'vasādito
+> śrī-kinnarā ūcuḥ\
+> vayam īśa kinnara-gaṇās tavānugā\
+> ditijena viṣṭim amunānukāritāḥ\
+> bhavatā hare sa vṛjino 'vasādito\
 > narasiṁha nātha vibhavāya no bhava
 
 *śrī-kinnarāḥ ūcuḥ*—los habitantes del planeta Kinnara dijeron; *vayam*—nosotros; *īśa*—¡oh, Señor!; *kinnara-gaṇāḥ*—los habitantes del planeta Kinnara; *tava*—Tus; *anugāḥ*—fieles sirvientes; *diti-jena*—por el hijo de Diti; *viṣṭim*—servicio sin remuneración; *amunā*—por ese; *anukāritāḥ*—obligados a hacer; *bhavatā*—por Ti; *hare*—¡oh, Señor!; *saḥ*—él; *vṛjinaḥ*—muy pecaminoso; *avasāditaḥ*—destruido; *narasiṁha*—¡oh, Señor Nṛsiṁhadeva!; *nātha*—¡oh, amo y señor!; *vibhavāya*—para la felicidad y opulencia; *naḥ*—de nosotros; *bhava*—Te rogamos que seas.

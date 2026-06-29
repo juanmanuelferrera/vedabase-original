@@ -1,13 +1,13 @@
 ### SB 4.29.1b
 
-> भक्तिः कृष्णे दया जीवेष्व्
-> अकुण्ठज्ञानमात्मनि
-> यदि स्यादात्मनो भूयाद्
+> भक्तिः कृष्णे दया जीवेष्व्\
+> अकुण्ठज्ञानमात्मनि\
+> यदि स्यादात्मनो भूयाद्\
 > अपवर्गस्तु संसृतेः ॥१॥
 
-> bhaktiḥ kṛṣṇe dayā jīveṣv
-> akuṇṭha-jñānam ātmani
-> yadi syād ātmano bhūyād
+> bhaktiḥ kṛṣṇe dayā jīveṣv\
+> akuṇṭha-jñānam ātmani\
+> yadi syād ātmano bhūyād\
 > apavargas tu saṁsṛteḥ
 
 *bhaktiḥ*—devotional service; *kṛṣṇe*—unto Kṛṣṇa; *dayā*—mercy; *jīveṣu*—unto other living entities; *akuṇṭha-jñānam*—perfect knowledge; *ātmani*—of the self; *yadi*—if; *syāt*—it becomes; *ātmanaḥ*—of one's self; *bhūyāt*—there must be; *apavargaḥ*—liberation; *tu*—then; *saṁsṛteḥ*—from the bondage of material life.

@@ -1,11 +1,11 @@
 ### SB 8.11.28
 
-> स तेनैवाष्टधारेण शिरसी बलपाकयोः
+> स तेनैवाष्टधारेण शिरसी बलपाकयोः\
 > ज्ञआतीनां पश्यतां राजन्जहार जनयन्भयम ॥२८॥
 
-> sa tenaivāṣṭa-dhāreṇa
-> śirasī bala-pākayoḥ
-> jñātīnāṁ paśyatāṁ rājañ
+> sa tenaivāṣṭa-dhāreṇa\
+> śirasī bala-pākayoḥ\
+> jñātīnāṁ paśyatāṁ rājañ\
 > jahāra janayan bhayam
 
 *saḥ*—él (Indra); *tena*—con ese; *eva*—en verdad; *aṣṭa-dhāreṇa*—con el rayo; *śirasī*—las dos cabezas; *bala-pākayoḥ*—de los dos demonios llamados Bala y Pāka; *jñātīnām paśyatām*—ante los ojos de sus familiares y de sus soldados; *rājan*—¡oh, rey!; *jahāra*—(Indra) cortó; *janayan*—creando; *bhayam*—miedo (entre ellos).

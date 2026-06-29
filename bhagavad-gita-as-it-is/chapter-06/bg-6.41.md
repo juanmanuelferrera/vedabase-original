@@ -1,11 +1,11 @@
 ### Bg 6.41
 
-> प्राप्य पुण्यकृतां लोकानुषित्वा शाश्वतीः समाः ।
+> प्राप्य पुण्यकृतां लोकानुषित्वा शाश्वतीः समाः ।\
 > शुचीनां श्रीमतां गेहे योगभ्रष्टोऽभिजायते ॥४१॥
 
-> prāpya puṇya-kṛtāṁ lokān
-> uṣitvā śāśvatīḥ samāḥ
-> śucīnāṁ śrīmatāṁ gehe
+> prāpya puṇya-kṛtāṁ lokān\
+> uṣitvā śāśvatīḥ samāḥ\
+> śucīnāṁ śrīmatāṁ gehe\
 > yoga-bhraṣṭo 'bhijāyate
 
 *prāpya*—after achieving; *puṇya-kṛtām*—of those who performed pious activities; *lokān*—planets; *uṣitvā*—after dwelling; *śāśvatīḥ*—many; *samāḥ*—years; *śucīnām*—of the pious; *śrīmatām*—of the prosperous; *gehe*—in the house of; *yoga-bhraṣṭaḥ*—one who is fallen from the path of self-realization; *abhijāyate*—takes his birth.

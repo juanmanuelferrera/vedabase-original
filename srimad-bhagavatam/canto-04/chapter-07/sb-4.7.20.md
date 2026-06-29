@@ -1,13 +1,13 @@
 ### SB 4.7.20
 
-> श्यामो हिरण्यरशनोऽर्ककिरीटजुष्टो
-> नीलालकभ्रमरमण्डितकुण्डलास्यः ।
-> शङ्खाब्जचक्रशरचापगदासिचर्म
+> श्यामो हिरण्यरशनोऽर्ककिरीटजुष्टो\
+> नीलालकभ्रमरमण्डितकुण्डलास्यः ।\
+> शङ्खाब्जचक्रशरचापगदासिचर्म\
 > व्यग्रैर्हिरण्मयभुजैरिव कर्णिकारः ॥२०॥
 
-> śyāmo hiraṇya-raśano 'rka-kirīṭa-juṣṭo
-> nīlālaka-bhramara-maṇḍita-kuṇḍalāsyaḥ
-> śaṅkhābja-cakra-śara-cāpa-gadāsi-carma-
+> śyāmo hiraṇya-raśano 'rka-kirīṭa-juṣṭo\
+> nīlālaka-bhramara-maṇḍita-kuṇḍalāsyaḥ\
+> śaṅkhābja-cakra-śara-cāpa-gadāsi-carma-\
 > vyagrair hiraṇmaya-bhujair iva karṇikāraḥ
 
 *śyāmaḥ*—blackish; *hiraṇya-raśanaḥ*—a garment like gold; *arka-kirīṭa-juṣṭaḥ*—with a helmet as dazzling as the sun; *nīla-alaka*—bluish curls; *bhramara*—big black bees; *maṇḍita-kuṇḍala-āsyaḥ*—having a face decorated with earrings; *śaṅkha*—conchshell; *abja*—lotus flower; *cakra*—wheel; *śara*—arrows; *cāpa*—bow; *gadā*—club; *asi*—sword; *carma*—shield; *vyagraiḥ*—filled with; *hiraṇmaya*—golden (bracelets and bangles); *bhujaiḥ*—with hands; *iva*—as; *karṇikāraḥ*—flower tree.

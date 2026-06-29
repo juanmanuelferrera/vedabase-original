@@ -1,9 +1,9 @@
 ### CC Madhya 15.65
 
-> তাঁর প্রেমে আনি’ আমায় করায় ভোজনে ।
+> তাঁর প্রেমে আনি’ আমায় করায় ভোজনে ।\
 > অন্তরে মানয়ে সুখ, বাহ্যে নাহি মানে ॥৬৫॥
 
-> tāṅra preme āni' āmāya karāya bhojane
+> tāṅra preme āni' āmāya karāya bhojane\
 > antare mānaye sukha, bāhye nāhi māne
 
 *tāṅra preme*—por su amor; *āni'*—trayendo; *āmāya*—a Mí; *karāya bhojane*—hace comer; *antare*—dentro de sí; *mānaye*—siente; *sukha*—felicidad; *bāhye*—externamente; *nāhi māne*—no lo acepta.

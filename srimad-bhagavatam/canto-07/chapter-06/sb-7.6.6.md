@@ -1,11 +1,11 @@
 ### SB 7.6.6
 
-> पुंसो वर्षशतं ह्यायुस्तदर्धं चाजितात्मनः
+> पुंसो वर्षशतं ह्यायुस्तदर्धं चाजितात्मनः\
 > निष्फलं यदसौ रात्र्यां शेतेऽन्धं प्रापितस्तमः ॥६॥
 
-> puṁso varṣa-śataṁ hy āyus
-> tad-ardhaṁ cājitātmanaḥ
-> niṣphalaṁ yad asau rātryāṁ
+> puṁso varṣa-śataṁ hy āyus\
+> tad-ardhaṁ cājitātmanaḥ\
+> niṣphalaṁ yad asau rātryāṁ\
 > śete 'ndhaṁ prāpitas tamaḥ
 
 *puṁsaḥ*—of every human being; *varṣa-śatam*—one hundred years; *hi*—indeed; *āyuḥ*—duration of life; *tat*—of that; *ardham*—half; *ca*—and; *ajita-ātmanaḥ*—of a person who is a servant of his senses; *niṣphalam*—without profit, without meaning; *yat*—because; *asau*—that person; *rātryām*—at night; *śete*—sleeps; *andham*—ignorance (forgetting his body and soul); *prāpitaḥ*—being completely possessed of; *tamaḥ*—darkness.

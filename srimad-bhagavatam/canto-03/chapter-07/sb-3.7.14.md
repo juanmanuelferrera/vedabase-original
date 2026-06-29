@@ -1,11 +1,11 @@
 ### SB 3.7.14
 
-> अशेषसङ्क्लेशशमं विधत्ते गुणानुवादश्रवणं मुरारेः ।
+> अशेषसङ्क्लेशशमं विधत्ते गुणानुवादश्रवणं मुरारेः ।\
 > किं वा पुनस्तच्चरणारविन्द परागसेवारतिरात्मलब्धा ॥१४॥
 
-> aśeṣa-saṅkleśa-śamaṁ vidhatte
-> guṇānuvāda-śravaṇaṁ murāreḥ
-> kiṁ vā punas tac-caraṇāravinda-
+> aśeṣa-saṅkleśa-śamaṁ vidhatte\
+> guṇānuvāda-śravaṇaṁ murāreḥ\
+> kiṁ vā punas tac-caraṇāravinda-\
 > parāga-sevā-ratir ātma-labdhā
 
 *aśeṣa*—unlimited; *saṅkleśa*—miserable conditions; *śamam*—cessation; *vidhatte*—can perform; *guṇa-anuvāda*—of the transcendental name, form, qualities, pastimes, entourage and paraphernalia, etc.; *śravaṇam*—hearing and chanting; *murāreḥ*—of Murāri (Śrī Kṛṣṇa), the Personality of Godhead; *kim vā*—what to speak of; *punaḥ*—again; *tat*—His; *caraṇa-aravinda*—lotus feet; *parāga-sevā*—to the service of the flavorful dust; *ratiḥ*—attraction; *ātma-labdhā*—those who have gained such self-achievement.

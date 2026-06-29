@@ -1,9 +1,9 @@
 ### CC Adi 10.63
 
-> শ্রীবল্লভসেন, আর সেন শ্রীকান্ত ।
+> শ্রীবল্লভসেন, আর সেন শ্রীকান্ত ।\
 > শিবানন্দ-সম্বন্ধে প্রভুর ভক্ত একান্ত ॥৬৩॥
 
-> śrī-vallabhasena, āra sena śrīkānta
+> śrī-vallabhasena, āra sena śrīkānta\
 > śivānanda-sambandhe prabhura bhakta ekānta
 
 *śrī-vallabha-sena*—de nombre Śrīvallabha Sena; *āra*—y; *sena śrīkānta*—de nombre Śrīkānta Sena; *śivānanda*—Śivānanda Sena; *sambandhe*—en relación; *prabhura*—del Señor; *bhakta*—devotos; *ekānta*—inquebrantables.

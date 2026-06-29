@@ -1,11 +1,11 @@
 ### SB 4.8.75
 
-> चतुर्थमपि वै मासं द्वादशे द्वादशेऽहनि ।
+> चतुर्थमपि वै मासं द्वादशे द्वादशेऽहनि ।\
 > वायुभक्षो जितश्वासो ध्यायन्देवमधारयत् ॥७५॥
 
-> caturtham api vai māsaṁ
-> dvādaśe dvādaśe 'hani
-> vāyu-bhakṣo jita-śvāso
+> caturtham api vai māsaṁ\
+> dvādaśe dvādaśe 'hani\
+> vāyu-bhakṣo jita-śvāso\
 > dhyāyan devam adhārayat
 
 *caturtham*—cuarto; *api*—también; *vai*—de esa manera; *māsam*—el mes; *dvādaśe dvādaśe*—en el duodécimo; *ahani*—día; *vāyu*—aire; *bhakṣaḥ*—comiendo; *jita-śvāsaḥ*—controlando el proceso respiratorio; *dhyāyan*—meditando; *devam*—al Señor Supremo; *adhārayat*—adoró.

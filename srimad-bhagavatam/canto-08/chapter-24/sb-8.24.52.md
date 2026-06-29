@@ -1,11 +1,11 @@
 ### SB 8.24.52
 
-> त्वं सर्वलोकस्य सुहृत्प्रियेश्वरो ह्यात्मा गुरुरज्ञआनमभीष्टसिद्धिः
+> त्वं सर्वलोकस्य सुहृत्प्रियेश्वरो ह्यात्मा गुरुरज्ञआनमभीष्टसिद्धिः\
 > तथापि लोको न भवन्तमन्धधीर्जानाति सन्तं हृदि बद्धकामः ॥५२॥
 
-> tvaṁ sarva-lokasya suhṛt priyeśvaro
-> hy ātmā gurur jñānam abhīṣṭa-siddhiḥ
-> tathāpi loko na bhavantam andha-dhīr
+> tvaṁ sarva-lokasya suhṛt priyeśvaro\
+> hy ātmā gurur jñānam abhīṣṭa-siddhiḥ\
+> tathāpi loko na bhavantam andha-dhīr\
 > jānāti santaṁ hṛdi baddha-kāmaḥ
 
 *tvam*—You, my dear Lord; *sarva-lokasya*—of all planets and their inhabitants; *suhṛt*—the most well-wishing friend; *priya*—the most dear; *īśvaraḥ*—the supreme controller; *hi*—also; *ātmā*—the supreme soul; *guruḥ*—the supreme teacher; *jñānam*—the supreme knowledge; *abhīṣṭa-siddhiḥ*—the fulfillment of all desires; *tathā api*—still; *lokaḥ*—persons; *na*—not; *bhavantam*—unto You; *andha-dhīḥ*—because of blind intelligence; *jānāti*—can know; *santam*—situated; *hṛdi*—in his heart; *baddha-kāmaḥ*—because of being bewildered by material lusty desires.

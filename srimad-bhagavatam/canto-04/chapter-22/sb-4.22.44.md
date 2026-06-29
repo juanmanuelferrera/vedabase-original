@@ -1,11 +1,11 @@
 ### SB 4.22.44
 
-> प्राणा दाराः सुता ब्रह्मन्गृहाश्च सपरिच्छदाः ।
+> प्राणा दाराः सुता ब्रह्मन्गृहाश्च सपरिच्छदाः ।\
 > राज्यं बलं मही कोश इति सर्वं निवेदितम् ॥४४॥
 
-> prāṇā dārāḥ sutā brahman
-> gṛhāś ca sa-paricchadāḥ
-> rājyaṁ balaṁ mahī kośa
+> prāṇā dārāḥ sutā brahman\
+> gṛhāś ca sa-paricchadāḥ\
+> rājyaṁ balaṁ mahī kośa\
 > iti sarvaṁ niveditam
 
 *prāṇāḥ*—life; *dārāḥ*—wife; *sutāḥ*—children; *brahman*—O great *brāhmaṇa*; *gṛhāḥ*—home; *ca*—also; *sa*—with; *paricchadāḥ*—all paraphernalia; *rājyam*—kingdom; *balam*—strength; *mahī*—land; *kośaḥ*—treasury; *iti*—thus; *sarvam*—everything; *niveditam*—offered.

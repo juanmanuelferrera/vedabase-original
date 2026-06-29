@@ -1,11 +1,11 @@
 ### SB 3.4.20
 
-> स एवमाराधितपादतीर्थादधीततत्त्वात्मविबोधमार्गः ।
+> स एवमाराधितपादतीर्थादधीततत्त्वात्मविबोधमार्गः ।\
 > प्रणम्य पादौ परिवृत्य देवमिहागतोऽहं विरहातुरात्मा ॥२०॥
 
-> sa evam ārādhita-pāda-tīrthād
-> adhīta-tattvātma-vibodha-mārgaḥ
-> praṇamya pādau parivṛtya devam
+> sa evam ārādhita-pāda-tīrthād\
+> adhīta-tattvātma-vibodha-mārgaḥ\
+> praṇamya pādau parivṛtya devam\
 > ihāgato 'haṁ virahāturātmā
 
 *saḥ*—so myself; *evam*—thus; *ārādhita*—worshiped; *pāda-tīrthāt*—from the Personality of Godhead; *adhīta*—studied; *tattva-ātma*—self-knowledge; *vibodha*—understanding; *mārgaḥ*—path; *praṇamya*—after saluting; *pādau*—at His lotus feet; *parivṛtya*—after circumambulating; *devam*—the Lord; *iha*—at this place; *āgataḥ*—reached; *aham*—I; *viraha*—separation; *ātura-ātmā*—aggrieved in self.

@@ -1,11 +1,11 @@
 ### SB 8.20.6
 
-> यद्यद्धास्यति लोकेऽस्मिन्सम्परेतं धनादिकम
+> यद्यद्धास्यति लोकेऽस्मिन्सम्परेतं धनादिकम\
 > तस्य त्यागे निमित्तं किं विप्रस्तुष्येन्न तेन चेत ॥६॥
 
-> yad yad dhāsyati loke 'smin
-> samparetaṁ dhanādikam
-> tasya tyāge nimittaṁ kiṁ
+> yad yad dhāsyati loke 'smin\
+> samparetaṁ dhanādikam\
+> tasya tyāge nimittaṁ kiṁ\
 > vipras tuṣyen na tena cet
 
 *yat yat*—cualesquiera; *hāsyati*—abandonará; *loke*—en el mundo; *asmin*—en este; *samparetam*—quien ya está muerto; *dhana-ādikam*—sus riquezas y posesiones; *tasya*—de esa riqueza; *tyāge*—en la renuncia; *nimittam*—el objetivo; *kim*—cuál es; *vipraḥ*—el *brāhmaṇa* cuya identidad secreta es el Señor Viṣṇu; *tuṣyet*—debe ser complacido; *na*—no es; *tena*—con esas (riquezas); *cet*—si hay posibilidad.

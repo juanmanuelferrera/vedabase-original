@@ -1,9 +1,9 @@
 ### CC Madhya 10.49
 
-> হেনকালে আইলা তথা ভবানন্দ রায় ।
+> হেনকালে আইলা তথা ভবানন্দ রায় ।\
 > চারিপুত্র-সঙ্গে পড়ে মহাপ্রভুর পায় ॥৪৯॥
 
-> hena-kāle āilā tathā bhavānanda rāya
+> hena-kāle āilā tathā bhavānanda rāya\
 > cāri-putra-saṅge paḍe mahāprabhura pāya
 
 *hena-kāle*—at this time; *āilā*—came; *tathā*—there; *bhavānanda rāya*—Bhavānanda Rāya; *cāri-putra-saṅge*—with four of his sons; *paḍe*—fell down; *mahāprabhura pāya*—at the lotus feet of Śrī Caitanya Mahāprabhu.

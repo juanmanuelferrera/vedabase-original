@@ -1,9 +1,9 @@
 ### CC Madhya 5.128
 
-> এত চিন্তি’ নমস্করি’ গেলা স্বভবনে ।
+> এত চিন্তি’ নমস্করি’ গেলা স্বভবনে ।\
 > রাত্রিশেষে গোপাল তাঁরে কহেন স্বপনে ॥১২৮॥
 
-> eta cinti' namaskari' gelā sva-bhavane
+> eta cinti' namaskari' gelā sva-bhavane\
 > rātri-śeṣe gopāla tāṅre kahena svapane
 
 *eta cinti'*—pensando así; *namaskari'*—ofreciendo reverencias; *gelā*—fue; *sva-bhavane*—al palacio del rey; *rātri-śeṣe*—al final de la noche; *gopāla*—la Deidad de Gopāla; *tāṅre*—a ella; *kahena*—dice; *svapane*—en un sueño.

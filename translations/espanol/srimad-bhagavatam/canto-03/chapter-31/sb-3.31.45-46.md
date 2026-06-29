@@ -1,18 +1,18 @@
 ### SB 3.31.45-46
 
-> द्रव्योपलब्धिस्थानस्य द्रव्येक्षायोग्यता यदा ।
-> तत्पञ्चत्वमहंमानादुत्पत्तिर्द्रव्यदर्शनम् ॥४५॥
-> यथाक्ष्णोर्द्रव्यावयव दर्शनायोग्यता यदा ।
+> द्रव्योपलब्धिस्थानस्य द्रव्येक्षायोग्यता यदा ।\
+> तत्पञ्चत्वमहंमानादुत्पत्तिर्द्रव्यदर्शनम् ॥४५॥\
+> यथाक्ष्णोर्द्रव्यावयव दर्शनायोग्यता यदा ।\
 > तदैव चक्षुषो द्रष्टुर्द्रष्टृत्वायोग्यतानयोः ॥४६॥
 
-> dravyopalabdhi-sthānasya
-> dravyekṣāyogyatā yadā
-> tat pañcatvam ahaṁ-mānād
+> dravyopalabdhi-sthānasya\
+> dravyekṣāyogyatā yadā\
+> tat pañcatvam ahaṁ-mānād\
 > utpattir dravya-darśanam
 
-> yathākṣṇor dravyāvayava-
-> darśanāyogyatā yadā
-> tadaiva cakṣuṣo draṣṭur
+> yathākṣṇor dravyāvayava-\
+> darśanāyogyatā yadā\
+> tadaiva cakṣuṣo draṣṭur\
 > draṣṭṛtvāyogyatānayoḥ
 
 *dravya*—de objetos; *upalabdhi*—de percepción; *sthānasya*—del lugar; *dravya*—de objetos; *īkṣā*—de percepción; *ayogyatā*—incapacidad; *yadā*—cuando; *tat*—eso; *pañcatvam*—muerte; *aham-mānāt*—del erróneo concepto de «yo»; *utpattiḥ*—nacimiento; *dravya*—el cuerpo físico; *darśanam*—contemplando; *yathā*—tal como; *akṣṇoḥ*—de los ojos; *dravya*—de objetos; *avayava*—partes; *darśana*—de ver; *ayogyatā*—incapacidad; *yadā*—cuando; *tadā*—entonces; *eva*—en verdad; *cakṣuṣaḥ*—del sentido de la vista; *draṣṭuḥ*—del observador; *draṣṭṛtva*—de la facultad de ver; *ayogyatā*—incapacidad; *anayoḥ*—de ambos.

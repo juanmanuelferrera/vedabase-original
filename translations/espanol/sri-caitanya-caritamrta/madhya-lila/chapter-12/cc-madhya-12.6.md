@@ -1,9 +1,9 @@
 ### CC Madhya 12.6
 
-> ভট্টাচার্য লিখিল, — প্ৰভুর আজ্ঞা না হৈল  ।
+> ভট্টাচার্য লিখিল, — প্ৰভুর আজ্ঞা না হৈল  ।\
 > পুনরপি রাজা তাঁরে পত্রী পাঠাইল ॥৬॥
 
-> bhaṭṭācārya likhila,-prabhura ājñā nā haila
+> bhaṭṭācārya likhila,-prabhura ājñā nā haila\
 > punarapi rājā tāṅre patrī pāṭhāila
 
 *bhaṭṭācārya likhila*—Sārvabhauma Bhaṭṭācārya respondió; *prabhura*—de Śrī Caitanya Mahāprabhu; *ājñā*—orden; *nā*—no; *haila*—hay; *punarapi*—de nuevo; *rājā*—el rey; *tāṅre*—a él; *patrī*—una carta; *pāṭhāila*—envió.

@@ -1,13 +1,13 @@
 ### SB 3.10.3
 
-> सूत उवाच
-> एवं सञ्चोदितस्तेन क्षत्त्रा कौषारविर्मुनिः ।
+> सूत उवाच\
+> एवं सञ्चोदितस्तेन क्षत्त्रा कौषारविर्मुनिः ।\
 > प्रीतः प्रत्याह तान्प्रश्नान्हृदिस्थानथ भार्गव ॥३॥
 
-> sūta uvāca
-> evaṁ sañcoditas tena
-> kṣattrā kauṣāravir muniḥ
-> prītaḥ pratyāha tān praśnān
+> sūta uvāca\
+> evaṁ sañcoditas tena\
+> kṣattrā kauṣāravir muniḥ\
+> prītaḥ pratyāha tān praśnān\
 > hṛdi-sthān atha bhārgava
 
 *sūtaḥ uvāca*—Śrī Sūta Gosvāmī said; *evam*—thus; *sañcoditaḥ*—being enlivened; *tena*—by him; *kṣattrā*—by Vidura; *kauṣāraviḥ*—the son of Kuṣāra; *muniḥ*—great sage; *prītaḥ*—being pleased; *pratyāha*—replied; *tān*—those; *praśnān*—questions; *hṛdi-sthān*—from the core of his heart; *atha*—thus; *bhārgava*—O son of Bhṛgu.

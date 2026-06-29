@@ -1,13 +1,13 @@
 ### SB 9.15.16
 
-> श्रीराजोवाच
-> किं तदंहो भगवतो राजन्यैरजितात्मभिः
+> श्रीराजोवाच\
+> किं तदंहो भगवतो राजन्यैरजितात्मभिः\
 > कृतं येन कुलं नष्टं क्षत्रियाणामभीक्ष्णशः ॥१६॥
 
-> śrī-rājovāca
-> kiṁ tad aṁho bhagavato
-> rājanyair ajitātmabhiḥ
-> kṛtaṁ yena kulaṁ naṣṭaṁ
+> śrī-rājovāca\
+> kiṁ tad aṁho bhagavato\
+> rājanyair ajitātmabhiḥ\
+> kṛtaṁ yena kulaṁ naṣṭaṁ\
 > kṣatriyāṇām abhīkṣṇaśaḥ
 
 *śrī-rājā uvāca*—Mahārāja Parīkṣit preguntó; *kim*—qué; *tat aṁhaḥ*—esa ofensa; *bhagavataḥ*—a la Suprema Personalidad de Dios; *rājanyaiḥ*—por la familia real; *ajita-ātmabhiḥ*—que no podían controlar sus sentidos y se degradaron por ello; *kṛtam*—que había sido hecha; *yena*—por la cual; *kulam*—la dinastía; *naṣṭam*—fue exterminada; *kṣatriyāṇām*—de la familia real; *abhīkṣṇaśaḥ*—una y otra vez.

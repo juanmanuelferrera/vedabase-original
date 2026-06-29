@@ -1,11 +1,11 @@
 ### SB 6.17.12
 
-> न वेद धर्मं किल पद्मयोनिर्न ब्रह्मपुत्रा भृगुनारदाद्याः
+> न वेद धर्मं किल पद्मयोनिर्न ब्रह्मपुत्रा भृगुनारदाद्याः\
 > न वै कुमारः कपिलो मनुश्च ये नो निषेधन्त्यतिवर्तिनं हरम ॥१२॥
 
-> na veda dharmaṁ kila padmayonir
-> na brahma-putrā bhṛgu-nāradādyāḥ
-> na vai kumāraḥ kapilo manuś ca
+> na veda dharmaṁ kila padmayonir\
+> na brahma-putrā bhṛgu-nāradādyāḥ\
+> na vai kumāraḥ kapilo manuś ca\
 > ye no niṣedhanty ati-vartinaṁ haram
 
 *na*—no; *veda*—conoce; *dharmam*—los principios religiosos; *kila*—en verdad; *padma-yoniḥ*—el Señor Brahma; *na*—ni; *brahma-putrāḥ*—los hijos del Señor Brahmā; *bhṛgu*—Bhṛgu; *nārada*—Nārada; *ādyāḥ*—y los demás; *na*—ni; *vai*—en verdad; *kumarāḥ*—los cuatro Kumāras (Sanaka, Sanat-kumāra, Sanandana y Sanātana; *kapilaḥ*—el Señor Kapila; *manuḥ*—el propio Manu; *ca*—y; *ye*—quien; *no*—no; *niṣedhanti*—ordenan detener; *ati-vartinam*—que está por encima de leyes y órdenes; *haram*—el Señor Śiva.

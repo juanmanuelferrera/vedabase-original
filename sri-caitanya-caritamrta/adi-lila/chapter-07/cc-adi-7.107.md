@@ -1,9 +1,9 @@
 ### CC Adi 7.107
 
-> ভ্রম, প্রমাদ, বিপ্রলিপ্সা, করণাপাটব ।
+> ভ্রম, প্রমাদ, বিপ্রলিপ্সা, করণাপাটব ।\
 > ঈশ্বরের বাক্যে নাহি দোষ এই সব ॥১০৭॥
 
-> bhrama, pramāda, vipralipsā, karaṇāpāṭava
+> bhrama, pramāda, vipralipsā, karaṇāpāṭava\
 > īśvarera vākye nāhi doṣa ei saba
 
 *bhrama*—mistake; *pramāda*—illusion; *vipralipsā*—cheating purposes; *karaṇa-apāṭava*—inefficiency of the material senses; *īśvarera*—of the Lord; *vākye*—in the speech; *nāhi*—there is not; *doṣa*—fault; *ei saba*—all this.

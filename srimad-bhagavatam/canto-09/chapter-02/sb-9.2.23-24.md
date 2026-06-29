@@ -1,18 +1,18 @@
 ### SB 9.2.23-24
 
-> नाभागो दिष्टपुत्रोऽन्यः कर्मणा वैश्यतां गतः
-> भलन्दनः सुतस्तस्य वत्सप्रीतिर्भलन्दनात ॥२३॥
-> वत्सप्रीतेः सुतः प्रांशुस्तत्सुतं प्रमतिं विदुः
+> नाभागो दिष्टपुत्रोऽन्यः कर्मणा वैश्यतां गतः\
+> भलन्दनः सुतस्तस्य वत्सप्रीतिर्भलन्दनात ॥२३॥\
+> वत्सप्रीतेः सुतः प्रांशुस्तत्सुतं प्रमतिं विदुः\
 > खनित्रः प्रमतेस्तस्माच्चाक्षुषोऽथ विविंशतिः ॥२४॥
 
-> nābhāgo diṣṭa-putro 'nyaḥ
-> karmaṇā vaiśyatāṁ gataḥ
-> bhalandanaḥ sutas tasya
+> nābhāgo diṣṭa-putro 'nyaḥ\
+> karmaṇā vaiśyatāṁ gataḥ\
+> bhalandanaḥ sutas tasya\
 > vatsaprītir bhalandanāt
 
-> vatsaprīteḥ sutaḥ prāṁśus
-> tat-sutaṁ pramatiṁ viduḥ
-> khanitraḥ pramates tasmāc
+> vatsaprīteḥ sutaḥ prāṁśus\
+> tat-sutaṁ pramatiṁ viduḥ\
+> khanitraḥ pramates tasmāc\
 > cākṣuṣo 'tha viviṁśatiḥ
 
 *nābhāgaḥ*—by the name Nābhāga; *diṣṭa-putraḥ*—the son of Diṣṭa; *anyaḥ*—another; *karmaṇā*—by occupation; *vaiśyatām*—the order of the *vaiśyas*; *gataḥ*—achieved; *bhalandanaḥ*—by the name Bhalandana; *sutaḥ*—son; *tasya*—of him (Nābhāga); *vatsaprītiḥ*—by the name Vatsaprīti; *bhalandanāt*—from Bhalandana; *vatsaprīteḥ*—from Vatsaprīti; *sutaḥ*—the son; *prāṁśuḥ*—was named Prāṁśu; *tat-sutam*—the son of him (Prāṁśu); *pramatim*—was named Pramati; *viduḥ*—you should understand; *khanitraḥ*—was named Khanitra; *pramateḥ*—from Pramati; *tasmāt*—from him (Khanitra); *cākṣuṣaḥ*—was named Cākṣuṣa; *atha*—thus (from Cākṣuṣa); *viviṁśatiḥ*—the son named Viviṁśati.

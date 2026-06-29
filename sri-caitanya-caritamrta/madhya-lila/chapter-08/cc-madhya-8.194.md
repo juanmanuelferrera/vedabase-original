@@ -1,29 +1,29 @@
 ### CC Madhya 8.194
 
-> পহিলেহি রাগ নয়নভঙ্গে ভেল ।
-> অনুদিন বাঢ়ল, অবধি না গেল ॥
-> না সো রমণ, না হাম রমণী ।
-> দুঁহু-মন মনোভব পেষল জানি’ ॥
-> এ সখি, সে-সব প্রেমকাহিনী ।
-> কানুঠামে কহবি বিছুরল জানি’ ॥
-> না খোঁজলুঁ দূতী, না খোঁজলুঁ আন্ ।
-> দুঁহুকেরি মিলনে মধ্য ত পাঁচবাণ ॥
-> অব্ সোহি বিরাগ, তুঁহু ভেলি দূতী ।
+> পহিলেহি রাগ নয়নভঙ্গে ভেল ।\
+> অনুদিন বাঢ়ল, অবধি না গেল ॥\
+> না সো রমণ, না হাম রমণী ।\
+> দুঁহু-মন মনোভব পেষল জানি’ ॥\
+> এ সখি, সে-সব প্রেমকাহিনী ।\
+> কানুঠামে কহবি বিছুরল জানি’ ॥\
+> না খোঁজলুঁ দূতী, না খোঁজলুঁ আন্ ।\
+> দুঁহুকেরি মিলনে মধ্য ত পাঁচবাণ ॥\
+> অব্ সোহি বিরাগ, তুঁহু ভেলি দূতী ।\
 > সু-পুরুখ-প্রেমকি ঐছন রীতি ॥১৯৪॥
 
-> pahilehi rāga nayana-bhaṅge bhela
+> pahilehi rāga nayana-bhaṅge bhela\
 > anudina bāḍhala, avadhi nā gela
 
-> nā so ramaṇa, nā hāma ramaṇī
+> nā so ramaṇa, nā hāma ramaṇī\
 > duṅhu-mana manobhava peṣala jāni'
 
-> e sakhī, se-saba prema-kāhinī
+> e sakhī, se-saba prema-kāhinī\
 > kānu-ṭhāme kahabi vichurala jāni'
 
-> nā khoṅjaluṅ dūtī, nā khoṅjaluṅ ān
+> nā khoṅjaluṅ dūtī, nā khoṅjaluṅ ān\
 > duṅhukeri milane madhya ta pāṅca-bāṇa
 
-> ab sohi virāga, tuṅhu bheli dūtī
+> ab sohi virāga, tuṅhu bheli dūtī\
 > su-purukha-premaki aichana rīti
 
 *pahilehi*—in the beginning; *rāga*—attraction; *nayana-bhaṅge*—by activities of the eyes; *bhela*—there was; *anu-dina*—gradually, day after day; *bāḍhala*—increased; *avadhi*—limit; *nā*—not; *gela*—reached; *nā*—not; *so*—He; *ramaṇa*—the enjoyer; *nā*—not; *hāma*—I; *ramaṇī*—the enjoyed; *duṅhu-mana*—both the minds; *manaḥ-bhava*—the mental situation; *peṣala*—pressed together; *jāni'*—knowing; *e*—this; *sakhī*—My dear friend; *se-saba*—all those; *prema-kāhinī*—affairs of love; *kānu-ṭhāme*—before Kṛṣṇa; *kahabi*—you will say; *vichurala*—He has forgotten; *jāni'*—knowing; *nā*—not; *khoṅjaluṅ*—searched out; *dūtī*—a messenger; *nā*—not; *khoṅjaluṅ*—searched out; *ān*—anyone else; *duṅhukeri*—of both of Us; *milane*—by the meeting; *madhya*—in the middle; *ta*—indeed; *pāṅca-bāṇa*—five arrows of Cupid; *ab*—now; *sohi*—that; *virāga*—separation; *tuṅhu*—you; *bheli*—became; *dūtī*—the messenger; *su-purukha*—of a beautiful person; *premaki*—of loving affairs; *aichana*—such; *rīti*—the consequence.

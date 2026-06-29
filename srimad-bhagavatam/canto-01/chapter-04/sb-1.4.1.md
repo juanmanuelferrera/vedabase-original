@@ -1,13 +1,13 @@
 ### SB 1.4.1
 
-> व्यास उवाच
-> इति ब्रुवाणं संस्तूय मुनीनां दीर्घसत्रिणाम् ।
+> व्यास उवाच\
+> इति ब्रुवाणं संस्तूय मुनीनां दीर्घसत्रिणाम् ।\
 > वृद्धः कुलपतिः सूतं बह्वृचः शौनकोऽब्रवीत् ॥१॥
 
-> vyāsa uvāca
-> iti bruvāṇaṁ saṁstūya
-> munīnāṁ dīrgha-satriṇām
-> vṛddhaḥ kula-patiḥ sūtaṁ
+> vyāsa uvāca\
+> iti bruvāṇaṁ saṁstūya\
+> munīnāṁ dīrgha-satriṇām\
+> vṛddhaḥ kula-patiḥ sūtaṁ\
 > bahvṛcaḥ śaunako 'bravīt
 
 *vyāsaḥ*—Vyāsadeva; *uvāca*—said; *iti*—thus; *bruvāṇam*—speaking; *saṁstūya*—congratulating; *munīnām*—of the great sages; *dīrgha*—prolonged; *satriṇām*—of those engaged in the performance of sacrifice; *vṛddhaḥ*—elderly; *kula-patiḥ*—head of the assembly; *sūtam*—unto Sūta Gosvāmī; *bahu-ṛcaḥ*—learned; *śaunakaḥ*—of the name Śaunaka; *abravīt*—addressed.

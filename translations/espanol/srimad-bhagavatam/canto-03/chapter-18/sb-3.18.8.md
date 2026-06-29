@@ -1,11 +1,11 @@
 ### SB 3.18.8
 
-> स गामुदस्तात्सलिलस्य गोचरे विन्यस्य तस्यामदधात्स्वसत्त्वम् ।
+> स गामुदस्तात्सलिलस्य गोचरे विन्यस्य तस्यामदधात्स्वसत्त्वम् ।\
 > अभिष्टुतो विश्वसृजा प्रसूनैरापूर्यमाणो विबुधैः पश्यतोऽरेः ॥८॥
 
-> sa gām udastāt salilasya gocare
-> vinyasya tasyām adadhāt sva-sattvam
-> abhiṣṭuto viśva-sṛjā prasūnair
+> sa gām udastāt salilasya gocare\
+> vinyasya tasyām adadhāt sva-sattvam\
+> abhiṣṭuto viśva-sṛjā prasūnair\
 > āpūryamāṇo vibudhaiḥ paśyato 'reḥ
 
 *saḥ*—el Señor; *gām*—la Tierra; *udastāt*—sobre la superficie; *salilasya*—de las aguas; *gocare*—sin perder de vista; *vinyasya*—habiendo puesto; *tasyām*—a la Tierra; *adadhāt*—Él dotó; *sva*—Su propia; *sattvam*—existencia; *abhiṣṭutaḥ*—alabado; *viśva-sṛjā*—por Brahmā (el creador del universo); *prasūnaiḥ*—con flores; *āpūryamāṇaḥ*—sintiéndose satisfechos; *vibudhaiḥ*—por los semidioses; *paśyataḥ*—mientras miraba; *areḥ*—el enemigo.

@@ -1,13 +1,13 @@
 ### SB 2.4.1
 
-> सूत उवाच
-> वैयासकेरिति वचस्तत्त्वनिश्चयमात्मनः ।
+> सूत उवाच\
+> वैयासकेरिति वचस्तत्त्वनिश्चयमात्मनः ।\
 > उपधार्य मतिं कृष्णे औत्तरेयः सतीं व्यधात् ॥१॥
 
-> sūta uvāca
-> vaiyāsaker iti vacas
-> tattva-niścayam ātmanaḥ
-> upadhārya matiṁ kṛṣṇe
+> sūta uvāca\
+> vaiyāsaker iti vacas\
+> tattva-niścayam ātmanaḥ\
+> upadhārya matiṁ kṛṣṇe\
 > auttareyaḥ satīṁ vyadhāt
 
 *sūtaḥ uvāca*—Sūta Gosvāmī dijo; *vaiyāsakeḥ*—de Śukadeva Gosvāmī; *iti*—así; *vacaḥ*—discursos; *tattva-niścayam*—aquello que verifica la verdad; *ātmanaḥ*—en el ser; *upadhārya*—justo al haber comprendido; *matim*—concentración de la mente; *kṛṣṇe*—al Señor Kṛṣṇa; *auttareyaḥ*—el hijo de Uttarā; *satīm*—casto; *vyadhāt*—aplicó.

@@ -1,13 +1,13 @@
 ### SB 3.27.17
 
-> देवहूतिरुवाच
-> पुरुषं प्रकृतिर्ब्रह्मन्न विमुञ्चति कर्हिचित् ।
+> देवहूतिरुवाच\
+> पुरुषं प्रकृतिर्ब्रह्मन्न विमुञ्चति कर्हिचित् ।\
 > अन्योन्यापाश्रयत्वाच्च नित्यत्वादनयोः प्रभो ॥१७॥
 
-> devahūtir uvāca
-> puruṣaṁ prakṛtir brahman
-> na vimuñcati karhicit
-> anyonyāpāśrayatvāc ca
+> devahūtir uvāca\
+> puruṣaṁ prakṛtir brahman\
+> na vimuñcati karhicit\
+> anyonyāpāśrayatvāc ca\
 > nityatvād anayoḥ prabho
 
 *devahūtiḥ uvāca*—Devahūti said; *puruṣam*—the spirit soul; *prakṛtiḥ*—material nature; *brahman*—O *brāhmaṇa*; *na*—not; *vimuñcati*—does release; *karhicit*—at any time; *anyonya*—to one another; *apāśrayatvāt*—from attraction; *ca*—and; *nityatvāt*—from eternality; *anayoḥ*—of them both; *prabho*—O my Lord.

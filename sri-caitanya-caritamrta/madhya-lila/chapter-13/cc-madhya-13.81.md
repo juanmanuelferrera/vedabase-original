@@ -1,9 +1,9 @@
 ### CC Madhya 13.81
 
-> এত পড়ি’ পুনরপি করিল প্ৰণাম ।
+> এত পড়ি’ পুনরপি করিল প্ৰণাম ।\
 > যোড়হাতে ভক্তগণ বন্দে ভগবান্ ॥৮১॥
 
-> eta paḍi' punarapi karila praṇāma
+> eta paḍi' punarapi karila praṇāma\
 > yoḍa-hāte bhakta-gaṇa vande bhagavān
 
 *eta paḍi'*—reciting these; *punarapi*—again; *karila*—the Lord offered; *praṇāma*—obeisances; *yoḍa-hāte*—with folded hands; *bhakta-gaṇa*—all the devotees; *vande*—offer prayer; *bhagavān*—unto the Supreme Personality of Godhead.

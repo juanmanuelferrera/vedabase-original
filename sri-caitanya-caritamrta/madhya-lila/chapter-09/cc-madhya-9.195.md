@@ -1,9 +1,9 @@
 ### CC Madhya 9.195
 
-> বিশ্বাস করহ তুমি আমার বচনে ।
+> বিশ্বাস করহ তুমি আমার বচনে ।\
 > পুনরপি কু-ভাবনা না করিহ মনে ॥১৯৫॥
 
-> viśvāsa karaha tumi āmāra vacane
+> viśvāsa karaha tumi āmāra vacane\
 > punarapi ku-bhāvanā nā kariha mane
 
 *viśvāsa karaha*—believe; *tumi*—you; *āmāra*—My; *vacane*—in the words; *punarapi*—again; *ku-bhāvanā*—misconception; *nā kariha*—do not do; *mane*—in the mind.

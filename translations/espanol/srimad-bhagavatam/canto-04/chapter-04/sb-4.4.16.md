@@ -1,11 +1,11 @@
 ### SB 4.4.16
 
-> किं वा शिवाख्यमशिवं न विदुस्त्वदन्ये ब्रह्मादयस्तमवकीर्य जटाः श्मशाने ।
+> किं वा शिवाख्यमशिवं न विदुस्त्वदन्ये ब्रह्मादयस्तमवकीर्य जटाः श्मशाने ।\
 > तन्माल्यभस्मनृकपाल्यवसत्पिशाचैर्ये मूर्धभिर्दधति तच्चरणावसृष्टम् ॥१६॥
 
-> kiṁ vā śivākhyam aśivaṁ na vidus tvad anye
-> brahmādayas tam avakīrya jaṭāḥ śmaśāne
-> tan-mālya-bhasma-nṛkapāly avasat piśācair
+> kiṁ vā śivākhyam aśivaṁ na vidus tvad anye\
+> brahmādayas tam avakīrya jaṭāḥ śmaśāne\
+> tan-mālya-bhasma-nṛkapāly avasat piśācair\
 > ye mūrdhabhir dadhati tac-caraṇāvasṛṣṭam
 
 *kim vā*—¿quizás?; *śiva-ākhyam*—llamado Śiva; *aśivam*—inauspicioso; *na viduḥ*—no conocen; *tvat anye*—aparte de ti; *brahma-ādayaḥ*—Brahmā y otros; *tam*—a él (el Señor Śiva); *avakīrya*—suelto; *jaṭāḥ*—con el cabello enredado; *śmaśāne*—en el crematorio; *tat-mālya-bhasma-nṛ-kapālī*—con un collar de cráneos humanos, y untado con cenizas; *avasat*—relacionado; *piśācaiḥ*—con demonios; *ye*—quien; *mūrdhabhiḥ*—con la cabeza; *dadhati*—lugar; *tat-caraṇa-avasṛṣṭam*—caídas de sus pies de loto.

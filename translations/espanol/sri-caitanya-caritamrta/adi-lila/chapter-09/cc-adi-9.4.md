@@ -1,9 +1,9 @@
 ### CC Adi 9.4
 
-> শ্রীরূপ, সনাতন, ভট্ট রঘুনাথ ।
+> শ্রীরূপ, সনাতন, ভট্ট রঘুনাথ ।\
 > শ্রীজীব, গোপালভট্ট, দাস-রঘুনাথ ॥৪॥
 
-> śrī-rūpa, sanātana, bhaṭṭa raghunātha
+> śrī-rūpa, sanātana, bhaṭṭa raghunātha\
 > śrī-jīva, gopāla-bhaṭṭa, dāsa-raghunātha
 
 *śrī-rūpa*—Śrīla Rūpa Gosvāmī; *sanātana*—Śrīla Sanātana Gosvāmī; *bhaṭṭa raghunātha*—Raghunātha Bhaṭṭa Gosvāmī; *śrī-jīva*—Śrī Jīva Gosvāmī; *gopāla-bhaṭṭa*—Śrī Gopāla Bhaṭṭa Gosvāmī; *dāsa-raghunātha*—Raghunātha dāsa Gosvāmī.

@@ -1,11 +1,11 @@
 ### SB 5.11.10
 
-> गन्धाकृतिस्पर्शरसश्रवांसि विसर्गरत्यर्त्यभिजल्पशिल्पाः
+> गन्धाकृतिस्पर्शरसश्रवांसि विसर्गरत्यर्त्यभिजल्पशिल्पाः\
 > एकादशं स्वीकरणं ममेति शय्यामहं द्वादशमेक आहुः ॥१०॥
 
-> gandhākṛti-sparśa-rasa-śravāṁsi
-> visarga-raty-arty-abhijalpa-śilpāḥ
-> ekādaśaṁ svīkaraṇaṁ mameti
+> gandhākṛti-sparśa-rasa-śravāṁsi\
+> visarga-raty-arty-abhijalpa-śilpāḥ\
+> ekādaśaṁ svīkaraṇaṁ mameti\
 > śayyām ahaṁ dvādaśam eka āhuḥ
 
 *gandha*—olor; *ākṛti*—forma; *sparśa*—tacto; *rasa*—sabor; *śravāṁsi*—y sonido; *visarga*—evacuar; *rati*—relación sexual; *arti*—movimiento; *abhijalpa*—hablar; *śilpāḥ*—coger o soltar; *ekādaśam*—undécima; *svīkaraṇam*—aceptando como; *mama*—mío; *iti*—así; *śayyām*—este cuerpo; *aham*—yo; *dvādaśam*—duodécima; *eke*—algunos; *āhuḥ*—han dicho.

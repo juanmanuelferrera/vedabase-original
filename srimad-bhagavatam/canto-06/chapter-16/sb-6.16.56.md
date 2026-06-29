@@ -1,11 +1,11 @@
 ### SB 6.16.56
 
-> उभयं स्मरतः पुंसः प्रस्वापप्रतिबोधयोः
+> उभयं स्मरतः पुंसः प्रस्वापप्रतिबोधयोः\
 > अन्वेति व्यतिरिच्येत तजज्ञआनं ब्रह्म तत्परम ॥५६॥
 
-> ubhayaṁ smarataḥ puṁsaḥ
-> prasvāpa-pratibodhayoḥ
-> anveti vyatiricyeta
+> ubhayaṁ smarataḥ puṁsaḥ\
+> prasvāpa-pratibodhayoḥ\
+> anveti vyatiricyeta\
 > taj jñānaṁ brahma tat param
 
 *ubhayam*—both types of consciousness (sleep and wakefulness); *smarataḥ*—remembering; *puṁsaḥ*—of the person; *prasvāpa*—of consciousness during sleep; *pratibodhayoḥ*—and of consciousness while awake; *anveti*—extends through; *vyatiricyeta*—may reach beyond; *tat*—that; *jñānam*—knowledge; *brahma*—the Supreme Brahman; *tat*—that; *param*—transcendental.

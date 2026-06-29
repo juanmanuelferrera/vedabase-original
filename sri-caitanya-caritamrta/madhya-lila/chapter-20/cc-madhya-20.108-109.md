@@ -1,14 +1,14 @@
 ### CC Madhya 20.108-109
 
-> জীবের ‘স্বরূপ’ হয় — কৃষ্ণের ‘নিত্যদাস’ ।
-> কৃষ্ণের ‘তটস্থা-শক্তি’, ‘ভেদাভেদ-প্রকাশ’ ॥১০৮॥
-> সূর্যাংশ-কিরণ, যৈছে অগ্নিজ্বালাচয় ।
+> জীবের ‘স্বরূপ’ হয় — কৃষ্ণের ‘নিত্যদাস’ ।\
+> কৃষ্ণের ‘তটস্থা-শক্তি’, ‘ভেদাভেদ-প্রকাশ’ ॥১০৮॥\
+> সূর্যাংশ-কিরণ, যৈছে অগ্নিজ্বালাচয় ।\
 > স্বাভাবিক কৃষ্ণের তিনপ্ৰকার ‘শক্তি’ হয় ॥১০৯॥
 
-> jīvera 'svarūpa' haya—kṛṣṇera 'nitya-dāsa'
+> jīvera 'svarūpa' haya—kṛṣṇera 'nitya-dāsa'\
 > kṛṣṇera 'taṭasthā-śakti' 'bhedābheda-prakāśa
 
-> sūryāṁśa-kiraṇa, yaiche agni-jvālā-caya
+> sūryāṁśa-kiraṇa, yaiche agni-jvālā-caya\
 > svābhāvika kṛṣṇera tina-prakāra 'śakti' haya
 
 *jīvera*—of the living entity; *sva-rūpa*—the constitutional position; *haya*—is; *kṛṣṇera*—of Lord Kṛṣṇa; *nitya-dāsa*—eternal servant; *kṛṣṇera*—of Lord Kṛṣṇa; *taṭasthā*—marginal; *śakti*—potency; *bheda-abheda*—one and different; *prakāśa*—manifestation; *sūrya-aṁśa*—part and parcel of the sun; *kiraṇa*—a ray of sunshine; *yaiche*—as; *agni-jvālā-ca ya*—molecular particle of fire; *svābhāvika*—naturally; *kṛṣṇera*—of Lord Kṛṣṇa; *tina-prakāra*—three varieties; *śakti*—energies; *haya*—there are.

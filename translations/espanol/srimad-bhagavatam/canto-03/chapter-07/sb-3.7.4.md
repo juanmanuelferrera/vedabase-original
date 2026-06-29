@@ -1,11 +1,11 @@
 ### SB 3.7.4
 
-> अस्राक्षीद्भगवान्विश्वं गुणमय्यात्ममायया ।
+> अस्राक्षीद्भगवान्विश्वं गुणमय्यात्ममायया ।\
 > तया संस्थापयत्येतद्भूयः प्रत्यपिधास्यति ॥४॥
 
-> asrākṣīd bhagavān viśvaṁ
-> guṇa-mayyātma-māyayā
-> tayā saṁsthāpayaty etad
+> asrākṣīd bhagavān viśvaṁ\
+> guṇa-mayyātma-māyayā\
+> tayā saṁsthāpayaty etad\
 > bhūyaḥ pratyapidhāsyati
 
 *asrākṣīt*—hizo crear; *bhagavān*—la Personalidad de Dios; *viśvam*—el universo; *guṇa-mayyā*—dotado de tres modalidades de naturaleza material; *ātma*—el ser; *māyayā*—mediante la potencia; *tayā*—por mediación de ella; *saṁsthāpayati*—mantiene; *etat*—todos estos; *bhūyaḥ*—luego, de nuevo; *praty-apidhāsyati*—a la inversa, también disuelve.

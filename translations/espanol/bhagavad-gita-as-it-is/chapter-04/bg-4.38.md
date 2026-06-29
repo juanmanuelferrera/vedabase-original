@@ -1,11 +1,11 @@
 ### Bg 4.38
 
-> न हि ज्ञानेन सदृशं पवित्रमिह विद्यते ।
+> न हि ज्ञानेन सदृशं पवित्रमिह विद्यते ।\
 > तत्स्वयं योगसंसिद्धः कालेनात्मनि विन्दति ॥३८॥
 
-> na hi jñānena sadṛśaṁ
-> pavitram iha vidyate
-> tat svayaṁ yoga-saṁsiddhaḥ
+> na hi jñānena sadṛśaṁ\
+> pavitram iha vidyate\
+> tat svayaṁ yoga-saṁsiddhaḥ\
 > kālenātmani vindati
 
 *na*—nunca; *hi*—ciertamente; *jñānena*—con conocimiento; *sadṛśam*—en comparación; *pavitram*—santificado; *iha*—en este mundo; *vidyate*—existe; *tat*—eso; *svayam*—en si mismo; *yoga*—devoción; *saṁsiddhaḥ*—maduro; *kālena*—en el transcurso del tiempo; *ātmani*—en sí mismo; *vindati*—disfruta.

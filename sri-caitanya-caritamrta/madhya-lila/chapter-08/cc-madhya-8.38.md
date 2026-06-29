@@ -1,9 +1,9 @@
 ### CC Madhya 8.38
 
-> আমা নিস্তারিতে তোমার ইহাঁ আগমন ।
+> আমা নিস্তারিতে তোমার ইহাঁ আগমন ।\
 > পরম-দয়ালু তুমি পতিত-পাবন ॥৩৮॥
 
-> āmā nistārite tomāra ihāṅ āgamana
+> āmā nistārite tomāra ihāṅ āgamana\
 > parama-dayālu tumi patita-pāvana
 
 *āmā nistārite*—to deliver me; *tomāra*—Your; *ihāṅ*—here; *āgamana*—appearance; *parama-dayālu*—greatly merciful; *tumi*—You; *patita-pāvana*—the deliverer of all fallen souls.

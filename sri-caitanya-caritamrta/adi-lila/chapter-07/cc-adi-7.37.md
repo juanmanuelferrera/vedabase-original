@@ -1,9 +1,9 @@
 ### CC Adi 7.37
 
-> অপরাধ ক্ষমাইল, ডুবিল প্রেমজলে ।
+> অপরাধ ক্ষমাইল, ডুবিল প্রেমজলে ।\
 > কেবা এড়াইবে প্রভুর প্রেম-মহাজালে ॥৩৭॥
 
-> aparādha kṣamāila, ḍubila prema-jale
+> aparādha kṣamāila, ḍubila prema-jale\
 > kebā eḍāibe prabhura prema-mahājāle
 
 *aparādha*—offense; *kṣamāila*—excused; *ḍubila*—merged into; *prema-jale*—in the ocean of love of Godhead; *kebā*—who else; *eḍāibe*—will go away; *prabhura*—the Lord's; *prema*—loving; *mahā-jāle*—network.

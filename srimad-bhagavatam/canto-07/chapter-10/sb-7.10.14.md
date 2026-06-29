@@ -1,11 +1,11 @@
 ### SB 7.10.14
 
-> य एतत्कीर्तयेन्मह्यं त्वया गीतमिदं नरः
+> य एतत्कीर्तयेन्मह्यं त्वया गीतमिदं नरः\
 > त्वां च मां च स्मरन्काले कर्मबन्धात्प्रमुच्यते ॥१४॥
 
-> ya etat kīrtayen mahyaṁ
-> tvayā gītam idaṁ naraḥ
-> tvāṁ ca māṁ ca smaran kāle
+> ya etat kīrtayen mahyaṁ\
+> tvayā gītam idaṁ naraḥ\
+> tvāṁ ca māṁ ca smaran kāle\
 > karma-bandhāt pramucyate
 
 *yaḥ*—anyone who; *etat*—this activity; *kīrtayet*—chants; *mahyam*—unto Me; *tvayā*—by you; *gītam*—prayers offered; *idam*—this; *naraḥ*—human being; *tvām*—you; *ca*—as well as; *mām ca*—Me also; *smaran*—remembering; *kāle*—in due course of time; *karma-bandhāt*—from the bondage of material activities; *pramucyate*—becomes free.

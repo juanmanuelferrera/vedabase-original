@@ -1,9 +1,9 @@
 ### CC Adi 2.22
 
-> সেইত গোবিন্দ সাক্ষাচ্চৈতন্য গোসাঞি ।
+> সেইত গোবিন্দ সাক্ষাচ্চৈতন্য গোসাঞি ।\
 > জীব নিস্তারিতে ঐছে দয়ালু আর নাই ॥২২॥
 
-> seita govinda sākṣāc caitanya gosāñi
+> seita govinda sākṣāc caitanya gosāñi\
 > jīva nistārite aiche dayālu āra nāi
 
 *seita*—that; *govinda*—Govinda; *sākṣāt*—personally; *caitanya*—Lord Caitanya; *gosāñi*—Gosāñi; *jīva*—the fallen living entities; *nistārite*—to deliver; *aiche*—such; *dayālu*—a merciful Lord; *āra*—another; *nāi*—there is not.

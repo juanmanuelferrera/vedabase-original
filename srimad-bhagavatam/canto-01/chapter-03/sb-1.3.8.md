@@ -1,11 +1,11 @@
 ### SB 1.3.8
 
-> तृतीयमृषिसर्गं वै देवर्षित्वमुपेत्य सः ।
+> तृतीयमृषिसर्गं वै देवर्षित्वमुपेत्य सः ।\
 > तन्त्रं सात्वतमाचष्ट नैष्कर्म्यं कर्मणां यतः ॥८॥
 
-> tṛtīyam ṛṣi-sargaṁ vai
-> devarṣitvam upetya saḥ
-> tantraṁ sātvatam ācaṣṭa
+> tṛtīyam ṛṣi-sargaṁ vai\
+> devarṣitvam upetya saḥ\
+> tantraṁ sātvatam ācaṣṭa\
 > naiṣkarmyaṁ karmaṇāṁ yataḥ
 
 *tṛtīyam*—the third one; *ṛṣi-sargam*—the millennium of the *ṛṣis*; *vai*—certainly; *devarṣitvam*—incarnation of the *ṛṣi* amongst the demigods; *upetya*—having accepted; *saḥ*—he; *tantram*—exposition of the *Vedas*; *sātvatam*—which is especially meant for devotional service; *ācaṣṭa*—collected; *naiṣkarmyam*—nonfruitive; *karmaṇām*—of work; *yataḥ*—from which.

@@ -1,13 +1,13 @@
 ### SB 9.5.14
 
-> दुर्वासा उवाच
-> अहो अनन्तदासानां महत्त्वं दृष्टमद्य मे
+> दुर्वासा उवाच\
+> अहो अनन्तदासानां महत्त्वं दृष्टमद्य मे\
 > कृतागसोऽपि यद्राजन्मङ्गलानि समीहसे ॥१४॥
 
-> durvāsā uvāca
-> aho ananta-dāsānāṁ
-> mahattvaṁ dṛṣṭam adya me
-> kṛtāgaso 'pi yad rājan
+> durvāsā uvāca\
+> aho ananta-dāsānāṁ\
+> mahattvaṁ dṛṣṭam adya me\
+> kṛtāgaso 'pi yad rājan\
 > maṅgalāni samīhase
 
 *durvāsāḥ uvāca*—Durvāsā Muni said; *aho*—alas; *ananta-dāsānām*—of the servants of the Supreme Personality of Godhead; *mahattvam*—greatness; *dṛṣṭam*—seen; *adya*—today; *me*—by me; *kṛta-āgasaḥ api*—although I was an offender; *yat*—still; *rājan*—O King; *maṅgalāni*—good fortune; *samīhase*—you are praying for.

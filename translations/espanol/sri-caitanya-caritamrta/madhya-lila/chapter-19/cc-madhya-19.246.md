@@ -1,9 +1,9 @@
 ### CC Madhya 19.246
 
-> আচম্বিতে প্রভু দেখি’ চরণে পড়িলা ।
+> আচম্বিতে প্রভু দেখি’ চরণে পড়িলা ।\
 > আনন্দিত হঞা নিজ-গৃহে লঞা গেলা ॥২৪৬॥
 
-> ācambite prabhu dekhi' caraṇe paḍilā
+> ācambite prabhu dekhi' caraṇe paḍilā\
 > ānandita hañā nija-gṛhe lañā gelā
 
 *ācambite*—de repente; *prabhu*—Śrī Caitanya Mahāprabhu; *dekhi'*—al ver; *caraṇe*—a Sus pies; *paḍilā*—cayó; *ānandita hañā*—sintiéndose muy dichoso; *nija-gṛhe*—a su propio hogar; *lañā*—llevando; *gelā*—fue.

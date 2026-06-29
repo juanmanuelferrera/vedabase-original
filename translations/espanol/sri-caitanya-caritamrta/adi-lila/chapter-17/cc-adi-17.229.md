@@ -1,9 +1,9 @@
 ### CC Adi 17.229
 
-> মৃতপুত্র-মুখে কৈল জ্ঞানের কথন ।
+> মৃতপুত্র-মুখে কৈল জ্ঞানের কথন ।\
 > আপনে দুই ভাই হৈলা শ্রীবাস-নন্দন ॥২২৯॥
 
-> mṛta-putra-mukhe kaila jñānera kathana
+> mṛta-putra-mukhe kaila jñānera kathana\
 > āpane dui bhāi hailā śrīvāsa-nandana
 
 *mṛta-putra*—del hijo muerto; *mukhe*—por la boca; *kaila*—hizo; *jñānera*—de conocimiento; *kathana*—conversación; *āpane*—personalmente; *dui*—los dos; *bhāi*—hermanos; *hailā*—se convirtieron en; *śrīvāsa-nandana*—hijos de Śrīvāsa Ṭhākura.

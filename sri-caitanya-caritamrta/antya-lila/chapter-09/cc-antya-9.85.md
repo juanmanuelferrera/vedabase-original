@@ -1,9 +1,9 @@
 ### CC Antya 9.85
 
-> শুনি রাজা দুঃখী হৈলা, পুছিলেন কারণ ।
+> শুনি রাজা দুঃখী হৈলা, পুছিলেন কারণ ।\
 > তবে মিশ্র কহে তাঁরে সব বিবরণ ॥৮৫॥
 
-> śuni rājā duḥkhī hailā, puchilena kāraṇa
+> śuni rājā duḥkhī hailā, puchilena kāraṇa\
 > tabe miśra kahe tāṅre saba vivaraṇa
 
 *śuni*—hearing; *rājā*—the King; *duḥkhī hailā*—became very unhappy; *puchilena*—inquired; *kāraṇa*—the reason; *tabe*—at that time; *miśra kahe*—Miśra said; *tāṅre*—to him; *saba*—all; *vivaraṇa*—details.

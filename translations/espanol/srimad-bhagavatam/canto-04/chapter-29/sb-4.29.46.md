@@ -1,11 +1,11 @@
 ### SB 4.29.46
 
-> यदा यस्यानुगृह्णाति भगवानात्मभावितः ।
+> यदा यस्यानुगृह्णाति भगवानात्मभावितः ।\
 > स जहाति मतिं लोके वेदे च परिनिष्ठिताम् ॥४६॥
 
-> yadā yasyānugṛhṇāti
-> bhagavān ātma-bhāvitaḥ
-> sa jahāti matiṁ loke
+> yadā yasyānugṛhṇāti\
+> bhagavān ātma-bhāvitaḥ\
+> sa jahāti matiṁ loke\
 > vede ca pariniṣṭhitām
 
 *yadā*—cuando; *yasya*—a quien; *anugṛhṇāti*—favorece con misericordia sin causa; *bhagavān*—la Suprema Personalidad de Dios; *ātma-bhāvitaḥ*—comprendido por el devoto; *saḥ*—ese devoto; *jahāti*—abandona; *matim*—conciencia; *loke*—en el mundo material; *vede*—en las ceremonias védicas; *ca*—también; *pariniṣṭhitām*—fijo.

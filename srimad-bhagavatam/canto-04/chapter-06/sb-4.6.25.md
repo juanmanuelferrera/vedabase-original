@@ -1,11 +1,11 @@
 ### SB 4.6.25
 
-> ययोः सुरस्त्रियः क्षत्तरवरुह्य स्वधिष्ण्यतः ।
+> ययोः सुरस्त्रियः क्षत्तरवरुह्य स्वधिष्ण्यतः ।\
 > क्रीडन्ति पुंसः सिञ्चन्त्यो विगाह्य रतिकर्शिताः ॥२५॥
 
-> yayoḥ sura-striyaḥ kṣattar
-> avaruhya sva-dhiṣṇyataḥ
-> krīḍanti puṁsaḥ siñcantyo
+> yayoḥ sura-striyaḥ kṣattar\
+> avaruhya sva-dhiṣṇyataḥ\
+> krīḍanti puṁsaḥ siñcantyo\
 > vigāhya rati-karśitāḥ
 
 *yayoḥ*—in both of which (rivers); *sura-striyaḥ*—the celestial damsels along with their husbands; *kṣattaḥ*—O Vidura; *avaruhya*—descending; *sva-dhiṣṇyataḥ*—from their own airplanes; *krīḍanti*—they play; *puṁsaḥ*—their husbands; *siñcantyaḥ*—sprinkling with water; *vigāhya*—after entering (the water); *rati-karśitāḥ*—whose enjoyment has become diminished.

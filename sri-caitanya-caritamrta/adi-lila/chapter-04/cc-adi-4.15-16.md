@@ -1,14 +1,14 @@
 ### CC Adi 4.15-16
 
-> প্রেমরস-নির্যাস করিতে আস্বাদন ।
-> রাগমার্গ ভক্তি লোকে করিতে প্রচারণ ॥১৫॥
-> রসিক-শেখর কৃষ্ণ পরমকরুণ ।
+> প্রেমরস-নির্যাস করিতে আস্বাদন ।\
+> রাগমার্গ ভক্তি লোকে করিতে প্রচারণ ॥১৫॥\
+> রসিক-শেখর কৃষ্ণ পরমকরুণ ।\
 > এই দুই হেতু হৈতে ইচ্ছার উদ্গম ॥১৬॥
 
-> prema-rasa-niryāsa karite āsvādana
+> prema-rasa-niryāsa karite āsvādana\
 > rāga-mārga bhakti loke karite pracāraṇa
 
-> rasika-śekhara kṛṣṇa parama-karuṇa
+> rasika-śekhara kṛṣṇa parama-karuṇa\
 > ei dui hetu haite icchāra udgama
 
 *prema-rasa*—of the mellow of love of God; *niryāsa*—the essence; *karite*—to do; *āsvādana*—tasting; *rāga-mārga*—the path of spontaneous attraction; *bhakti*—devotional service; *loke*—in the world; *karite*—to do; *pracāraṇa*—propagation; *rasika-śekhara*—the supremely jubilant; *kṛṣṇa*—Lord Kṛṣṇa; *parama-karuṇa*—the most merciful; *ei*—these; *dui*—two; *hetu*—reasons; *haite*—from; *icchāra*—of desire; *udgama*—the birth.

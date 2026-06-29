@@ -1,9 +1,9 @@
 ### CC Madhya 13.203
 
-> নৃত্য-পরিশ্রমে প্রভুর দেহে ঘন ঘর্ম ।
+> নৃত্য-পরিশ্রমে প্রভুর দেহে ঘন ঘর্ম ।\
 > সুগন্ধি শীতল-বায়ু করেন সেবন ॥২০৩॥
 
-> nṛtya-pariśrame prabhura dehe ghana gharma
+> nṛtya-pariśrame prabhura dehe ghana gharma\
 > sugandhi śītala-vāyu karena sevana
 
 *nṛtya-pariśrame*—por la fatiga de la danza; *prabhura*—de Śrī Caitanya Mahāprabhu; *dehe*—en el cuerpo; *ghana gharma*—abundante transpiración; *sugandhi*—fragante; *śītala-vāyu*—brisa fresca; *karena sevana*—disfrutó enormemente.

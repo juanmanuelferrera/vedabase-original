@@ -1,9 +1,9 @@
 ### CC Madhya 18.227
 
-> যেই তর্ক করে ইহাঁ, সেই — ‘মূর্খরাজ’ ।
+> যেই তর্ক করে ইহাঁ, সেই — ‘মূর্খরাজ’ ।\
 > আপনার মুণ্ডে সে আপনি পাড়ে বাজ ॥২২৭॥
 
-> yei tarka kare ihāṅ, sei—'mūrkha-rāja'
+> yei tarka kare ihāṅ, sei—'mūrkha-rāja'\
 > āpanāra muṇḍe se āpani pāḍe vāja
 
 *yei tarka kare*—one who simply argues; *ihāṅ*—in this matter; *sei*—that person; *mūrkha-rāja*—a great fool; *āpanāra muṇḍe*—on his own head; *se*—that person; *āpani*—himself; *pāḍe vāja*—strikes with a thunderbolt.

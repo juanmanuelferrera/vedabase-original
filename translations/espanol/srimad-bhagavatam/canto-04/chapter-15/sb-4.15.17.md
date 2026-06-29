@@ -1,11 +1,11 @@
 ### SB 4.15.17
 
-> दशचन्द्रमसिं रुद्रः शतचन्द्रं तथाम्बिका ।
+> दशचन्द्रमसिं रुद्रः शतचन्द्रं तथाम्बिका ।\
 > सोमोऽमृतमयानश्वांस्त्वष्टा रूपाश्रयं रथम् ॥१७॥
 
-> daśa-candram asiṁ rudraḥ
-> śata-candraṁ tathāmbikā
-> somo 'mṛtamayān aśvāṁs
+> daśa-candram asiṁ rudraḥ\
+> śata-candraṁ tathāmbikā\
+> somo 'mṛtamayān aśvāṁs\
 > tvaṣṭā rūpāśrayaṁ ratham
 
 *daśa-candram*—adornada con diez lunas; *asim*—espada; *rudraḥ*—el Señor Śiva; *śata-candram*—adornado con cien lunas; *tathā*—de esa manera; *ambikā*—la diosa Durgā; *somaḥ*—el semidiós de la Luna; *amṛta-mayān*—hechos de néctar; *aśvān*—caballos; *tvaṣṭā*—el semidiós Viśvakarmā; *rūpa-āśrayam*—muy hermosa; *ratham*—cuadriga.

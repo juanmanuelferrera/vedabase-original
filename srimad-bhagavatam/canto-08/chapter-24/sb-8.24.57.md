@@ -1,11 +1,11 @@
 ### SB 8.24.57
 
-> अतीतप्रलयापाय उत्थिताय स वेधसे
+> अतीतप्रलयापाय उत्थिताय स वेधसे\
 > हत्वासुरं हयग्रीवं वेदान्प्रत्याहरद्धरिः ॥५७॥
 
-> atīta-pralayāpāya
-> utthitāya sa vedhase
-> hatvāsuraṁ hayagrīvaṁ
+> atīta-pralayāpāya\
+> utthitāya sa vedhase\
+> hatvāsuraṁ hayagrīvaṁ\
 > vedān pratyāharad dhariḥ
 
 *atīta*—passed; *pralaya-apāye*—at the end of the inundation; *utthitāya*—to bring him to his senses after sleeping; *saḥ*—the Supreme Lord; *vedhase*—unto Lord Brahmā; *hatvā*—after killing; *asuram*—the demon; *hayagrīvam*—by the name Hayagrīva; *vedān*—all the Vedic records; *pratyāharat*—delivered; *hariḥ*—the Supreme Personality of Godhead.

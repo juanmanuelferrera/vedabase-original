@@ -1,9 +1,9 @@
 ### CC Adi 12.73
 
-> যে যে লৈল শ্রীঅচ্যুতানন্দের মত ।
+> যে যে লৈল শ্রীঅচ্যুতানন্দের মত ।\
 > সেই আচার্যের গণ — মহাভাগবত ॥৭৩॥
 
-> ye ye laila śrī-acyutānandera mata
+> ye ye laila śrī-acyutānandera mata\
 > sei ācāryera gaṇa--mahā-bhāgavata
 
 *ye ye*—cualquiera que; *laila*—aceptó; *śrī-acyutānandera*—de Śrī Acyutānanda; *mata*—la senda; *sei*—esos; *ācāryera gaṇa*—descendientes de Advaita Ācārya; *mahā-bhāgavata*—son todos grandes devotos.

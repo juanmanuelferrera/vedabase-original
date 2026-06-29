@@ -1,11 +1,11 @@
 ### SB 5.1.3
 
-> महतां खलु विप्रर्षे उत्तमश्लोकपादयोः
+> महतां खलु विप्रर्षे उत्तमश्लोकपादयोः\
 > छायानिर्वृतचित्तानां न कुटुम्बे स्पृहामतिः ॥३॥
 
-> mahatāṁ khalu viprarṣe
-> uttamaśloka-pādayoḥ
-> chāyā-nirvṛta-cittānāṁ
+> mahatāṁ khalu viprarṣe\
+> uttamaśloka-pādayoḥ\
+> chāyā-nirvṛta-cittānāṁ\
 > na kuṭumbe spṛhā-matiḥ
 
 *mahatām*—de grandes devotos; *khalu*—ciertamente; *vipra-ṛṣe*—¡oh, gran sabio entre los *brāhmaṇas*!; *uttama-śloka-pādayoḥ*—de los pies de loto de la Suprema Personalidad de Dios; *chāyā*—por la sombra; *nirvṛta*—saciados; *cittānām*—cuya conciencia; *na*—nunca; *kuṭumbe*—a los miembros de la familia; *spṛhā-matiḥ*—conciencia con apego.

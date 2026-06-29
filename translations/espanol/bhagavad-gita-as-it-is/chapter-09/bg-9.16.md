@@ -1,11 +1,11 @@
 ### Bg 9.16
 
-> अहं क्रतुरहं यज्ञः स्वधाहमहमौषधम् ।
+> अहं क्रतुरहं यज्ञः स्वधाहमहमौषधम् ।\
 > मन्त्रोऽहमहमेवाज्यमहमग्निरहं हुतम् ॥१६॥
 
-> ahaṁ kratur ahaṁ yajñaḥ
-> svadhāham aham auṣadham
-> mantro'ham aham evājyam
+> ahaṁ kratur ahaṁ yajñaḥ\
+> svadhāham aham auṣadham\
+> mantro'ham aham evājyam\
 > aham agnir ahaṁ hutam
 
 *aham*—Yo; *kratuḥ*—ritual; *aham*—Yo; *yajñaḥ*—sacrificio; *svadhā*—oblación; *aham*—Yo; *aham*—Yo; *auṣadham*—hierba medicinal; *mantraḥ*—canto trascendental; *aham*—Yo; *aham*—Yo; *eva*—ciertamente; *ajyam*—mantequilla derretida; *aham*—Yo; *agniḥ*—fuego; *aham*—Yo; *hutam*—ofrenda.

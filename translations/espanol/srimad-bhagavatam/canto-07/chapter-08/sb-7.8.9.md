@@ -1,11 +1,11 @@
 ### SB 7.8.9
 
-> स ईश्वरः काल उरुक्रमोऽसावोजः सहः सत्त्वबलेन्द्रियात्मा
+> स ईश्वरः काल उरुक्रमोऽसावोजः सहः सत्त्वबलेन्द्रियात्मा\
 > स एव विश्वं परमः स्वशक्तिभिः सृजत्यवत्यत्ति गुणत्रयेशः ॥९॥
 
-> jahy āsuraṁ bhāvam imaṁ tvam ātmanaḥ
-> samaṁ mano dhatsva na santi vidviṣaḥ
-> ṛte 'jitād ātmana utpathe sthitāt
+> jahy āsuraṁ bhāvam imaṁ tvam ātmanaḥ\
+> samaṁ mano dhatsva na santi vidviṣaḥ\
+> ṛte 'jitād ātmana utpathe sthitāt\
 > tad dhi hy anantasya mahat samarhaṇam
 
 *jahi*—abandona; *āsuram*—demoníaca; *bhāvam*—tendencia; *imam*—esta; *tvam*—tú (mi querido padre); *ātmanaḥ*—de ti mismo; *samam*—ecuánime; *manaḥ*—la mente; *dhatsva*—haz; *na*—no; *santi*—hay; *vidviṣaḥ*—enemigos; *ṛte*—excepto; *ajitāt*—sin control; *ātmanaḥ*—la mente; *utpathe*—en la equivocada senda de las tendencias indeseables; *sthitāt*—situada; *tat hi*—esa (mentalidad); *hi*—en verdad; *anantasya*—del Señor ilimitado; *mahat*—el mejor; *samarhaṇam*—método de adoración.

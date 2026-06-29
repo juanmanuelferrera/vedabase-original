@@ -1,14 +1,14 @@
 ### CC Adi 7.31-32
 
-> তাহা দেখি’ মহাপ্রভু করেন চিন্তন ।
-> জগৎ ডুবাইতে আমি করিলুঁ যতন ॥৩১॥
-> কেহ কেহ এড়াইল, প্রতিজ্ঞা হইল ভঙ্গ ।
+> তাহা দেখি’ মহাপ্রভু করেন চিন্তন ।\
+> জগৎ ডুবাইতে আমি করিলুঁ যতন ॥৩১॥\
+> কেহ কেহ এড়াইল, প্রতিজ্ঞা হইল ভঙ্গ ।\
 > তা-সবা ডুবাইতে পাতিব কিছু রঙ্গ ॥৩২॥
 
-> tāhā dekhi' mahāprabhu karena cintana
+> tāhā dekhi' mahāprabhu karena cintana\
 > jagat ḍubāite āmi kariluṅ yatana
 
-> keha keha eḍāila, pratijñā ha-ila bhaṅga
+> keha keha eḍāila, pratijñā ha-ila bhaṅga\
 > tā-sabā ḍubaite pātiba kichu raṅga
 
 *tāhā dekhi'*—observing this advancement; *mahāprabhu*—Lord Śrī Caitanya Mahāprabhu; *karena*—does; *cintana*—thinking; *jagat*—the whole world; *ḍubāite*—to drown; *āmi*—I; *kariluṅ*—endeavored; *yatana*—attempts; *keha keha*—some of them; *eḍāila*—escaped; *pratijñā*—promise; *ha-ila*—became; *bhaṅga*—broken; *tā-sabā*—all of them; *ḍubāite*—to make them drown; *pātiba*—shall devise; *kichu*—some; *raṅga*—trick.

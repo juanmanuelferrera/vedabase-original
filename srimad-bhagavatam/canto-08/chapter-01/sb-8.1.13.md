@@ -1,11 +1,11 @@
 ### SB 8.1.13
 
-> स विश्वकायः पुरुहूतईशः सत्यः स्वयंज्योतिरजः पुराणः
+> स विश्वकायः पुरुहूतईशः सत्यः स्वयंज्योतिरजः पुराणः\
 > धत्तेऽस्य जन्माद्यजयात्मशक्त्या तां विद्ययोदस्य निरीह आस्ते ॥१३॥
 
-> sa viśva-kāyaḥ puru-hūta-īśaḥ
-> satyaḥ svayaṁ-jyotir ajaḥ purāṇaḥ
-> dhatte 'sya janmādy-ajayātma-śaktyā
+> sa viśva-kāyaḥ puru-hūta-īśaḥ\
+> satyaḥ svayaṁ-jyotir ajaḥ purāṇaḥ\
+> dhatte 'sya janmādy-ajayātma-śaktyā\
 > tāṁ vidyayodasya nirīha āste
 
 *saḥ*—that Supreme Personality of Godhead; *viśva-kāyaḥ*—the total form of the universe (the whole universe is the external body of the Supreme Personality of Godhead); *puru-hūtaḥ*—known by so many names; *īśaḥ*—the supreme controller (with full power); *satyaḥ*—the ultimate truth; *svayam*—personally; *jyotiḥ*—self-effulgent; *ajaḥ*—unborn, beginningless; *purāṇaḥ*—the oldest; *dhatte*—He performs; *asya*—of this universe; *janma-ādi*—the creation, maintenance and annihilation; *ajayā*—by His external energy; *ātma-śaktyā*—by His personal potency; *tām*—that external material energy; *vidyayā*—by His spiritual potency; *udasya*—giving up; *nirīhaḥ*—without any desire or activity; *āste*—He is existing (untouched by the material energy).

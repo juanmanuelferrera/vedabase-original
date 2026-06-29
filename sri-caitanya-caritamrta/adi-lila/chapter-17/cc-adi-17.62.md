@@ -1,9 +1,9 @@
 ### CC Adi 17.62
 
-> শাপিব তোমারে মুঞি, পাঞাছি মনোদুঃখ ।
+> শাপিব তোমারে মুঞি, পাঞাছি মনোদুঃখ ।\
 > পৈতা ছিণ্ডিয়া শাপে প্রচণ্ড দুর্মুখ ॥৬২॥
 
-> śāpiba tomāre muñi, pāñāchi mano-duḥkha
+> śāpiba tomāre muñi, pāñāchi mano-duḥkha\
 > paitā chiṇḍiyā śāpe pracaṇḍa durmukha
 
 *śapiba*—I shall curse; *tomāre*—You; *muñi*—I; *pāñāchi*—I have; *manaḥ-duḥkha*—mentally very much aggrieved; *paitā*—sacred thread; *chiṇḍiyā*—breaking; *śāpe*—cursing; *pracaṇḍa*—fiercely; *durmukha*—one who speaks harshly.

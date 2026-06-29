@@ -1,9 +1,9 @@
 ### CC Madhya 4.77
 
-> যদ্যপি গোপাল সব অন্ন-ব্যঞ্জন খাইল ।
+> যদ্যপি গোপাল সব অন্ন-ব্যঞ্জন খাইল ।\
 > তাঁর হস্ত-স্পর্শে পুনঃ তেমনি হইল ॥৭৭॥
 
-> yadyapi gopāla saba anna-vyañjana khāila
+> yadyapi gopāla saba anna-vyañjana khāila\
 > tāṅra hasta-sparśe punaḥ temani ha-ila
 
 *yadyapi*—although; *gopāla*—Lord Gopāla; *saba*—all; *anna-vyañjana*—*dāl,* rice and vegetables; *khāila*—ate; *tāṅra*—His; *hasta*—of the hands; *sparśe*—by the touch; *punaḥ*—again; *temani*—exactly as before; *ha-ila*—became.

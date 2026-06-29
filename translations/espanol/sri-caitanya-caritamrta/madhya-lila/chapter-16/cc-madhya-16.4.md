@@ -1,9 +1,9 @@
 ### CC Madhya 16.4
 
-> সার্বভৌম, রামানন্দ, আনি’ দুই জন ।
+> সার্বভৌম, রামানন্দ, আনি’ দুই জন ।\
 > দুঁহাকে কহেন রাজা বিনয়-বচন ॥৪॥
 
-> sārvabhauma, rāmānanda, āni' dui jana
+> sārvabhauma, rāmānanda, āni' dui jana\
 > duṅhāke kahena rājā vinaya-vacana
 
 *sārvabhauma*—Sārvabhauma; *rāmānanda*—Rāmānanda; *āni'*—llamando; *dui jana*—dos personas; *duṅhāke*—a ambos; *kahena*—dijo; *rājā*—el rey; *vinaya-vacana*—palabras humildes.

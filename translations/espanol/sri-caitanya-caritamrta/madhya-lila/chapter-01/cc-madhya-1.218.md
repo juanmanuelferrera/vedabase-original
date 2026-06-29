@@ -1,9 +1,9 @@
 ### CC Madhya 1.218
 
-> দুই জনে প্ৰভুর কৃপা দেখি’ ভক্তগণে ।
+> দুই জনে প্ৰভুর কৃপা দেখি’ ভক্তগণে ।\
 > ‘হরি’ ‘হরি’ বলে সবে আনন্দিত-মনে ॥২১৮॥
 
-> dui jane prabhura kṛpā dekhi' bhakta-gaṇe
+> dui jane prabhura kṛpā dekhi' bhakta-gaṇe\
 > 'hari' 'hari' bale sabe ānandita-mane
 
 *dui jane*—a las dos personas; *prabhura*—del Señor; *kṛpā*—la misericordia; *dekhi'*—viendo; *bhakta-gaṇe*—todos los devotos; *hari hari*—el santo nombre del Señor; *bale*—cantan; *sabe*—todos; *ānandita*—gozosos; *mane*—en la mente.

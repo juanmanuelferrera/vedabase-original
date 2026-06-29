@@ -1,9 +1,9 @@
 ### CC Madhya 11.241
 
-> যাবৎ আছিলা সবে মহাপ্রভু-সঙ্গে ।
+> যাবৎ আছিলা সবে মহাপ্রভু-সঙ্গে ।\
 > প্রতিদিন এইমত করে কীর্তন-রঙ্গে ॥২৪১॥
 
-> yāvat āchilā sabe mahāprabhu-saṅge
+> yāvat āchilā sabe mahāprabhu-saṅge\
 > prati-dina ei-mata kare kīrtana-raṅge
 
 *yāvat*—so long; *āchilā*—remained; *sabe*—all the devotees; *mahāprabhu-saṅge*—along with Śrī Caitanya Mahāprabhu; *prati-dina*—every day; *ei-mata*—in this way; *kare*—performed; *kīrtana-raṅge*—*saṅkīrtana* in great pleasure.

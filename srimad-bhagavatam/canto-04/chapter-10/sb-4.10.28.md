@@ -1,11 +1,11 @@
 ### SB 4.10.28
 
-> एवंविधान्यनेकानि त्रासनान्यमनस्विनाम् ।
+> एवंविधान्यनेकानि त्रासनान्यमनस्विनाम् ।\
 > ससृजुस्तिग्मगतय आसुर्या माययासुराः ॥२८॥
 
-> evaṁ-vidhāny anekāni
-> trāsanāny amanasvinām
-> sasṛjus tigma-gataya
+> evaṁ-vidhāny anekāni\
+> trāsanāny amanasvinām\
+> sasṛjus tigma-gataya\
 > āsuryā māyayāsurāḥ
 
 *evam-vidhāni*—(phenomena) like this; *anekāni*—many varieties of; *trāsanāni*—fearful; *amanasvinām*—to the less intelligent men; *sasṛjuḥ*—they created; *tigma-gatayaḥ*—of heinous nature; *āsuryā*—demoniac; *māyayā*—by illusion; *asurāḥ*—the demons.

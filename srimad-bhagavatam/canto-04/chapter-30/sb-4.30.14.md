@@ -1,11 +1,11 @@
 ### SB 4.30.14
 
-> क्षुत्क्षामाया मुखे राजा सोमः पीयूषवर्षिणीम् ।
+> क्षुत्क्षामाया मुखे राजा सोमः पीयूषवर्षिणीम् ।\
 > देशिनीं रोदमानाया निदधे स दयान्वितः ॥१४॥
 
-> kṣut-kṣāmāyā mukhe rājā
-> somaḥ pīyūṣa-varṣiṇīm
-> deśinīṁ rodamānāyā
+> kṣut-kṣāmāyā mukhe rājā\
+> somaḥ pīyūṣa-varṣiṇīm\
+> deśinīṁ rodamānāyā\
 > nidadhe sa dayānvitaḥ
 
 *kṣut*—by hunger; *kṣāmāyāḥ*—when she was distressed; *mukhe*—within the mouth; *rājā*—the king; *somaḥ*—the moon; *pīyūṣa*—nectar; *varṣiṇīm*—pouring; *deśinīm*—forefinger; *rodamānāyāḥ*—while she was crying; *nidadhe*—placed; *saḥ*—he; *dayā-anvitaḥ*—being compassionate.

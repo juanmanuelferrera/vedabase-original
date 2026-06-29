@@ -1,11 +1,11 @@
 ### SB 3.8.26
 
-> पुंसां स्वकामाय विविक्तमार्गैरभ्यर्चतां कामदुघाङ्घ्रिपद्मम् ।
+> पुंसां स्वकामाय विविक्तमार्गैरभ्यर्चतां कामदुघाङ्घ्रिपद्मम् ।\
 > प्रदर्शयन्तं कृपया नखेन्दु मयूखभिन्नाङ्गुलिचारुपत्रम् ॥२६॥
 
-> puṁsāṁ sva-kāmāya vivikta-mārgair
-> abhyarcatāṁ kāma-dughāṅghri-padmam
-> pradarśayantaṁ kṛpayā nakhendu-
+> puṁsāṁ sva-kāmāya vivikta-mārgair\
+> abhyarcatāṁ kāma-dughāṅghri-padmam\
+> pradarśayantaṁ kṛpayā nakhendu-\
 > mayūkha-bhinnāṅguli-cāru-patram
 
 *puṁsām*—del ser humano; *sva-kāmāya*—conforme al deseo; *vivikta-mārgaiḥ*—por el sendero del servicio devocional; *abhyarcatām*—adorado; *kāma-dugha-aṅghri-padmam*—los pies de loto del Señor, que pueden conceder todos los frutos deseados; *pradarśayantam*—mientras los mostraba; *kṛpayā*—por la misericordia sin causa; *nakha*—uñas; *indu*—como lunas; *mayūkha*—rayos; *bhinna*—dividido; *aṅguli*—figuras; *cāru-patram*—muy hermoso.

@@ -1,11 +1,11 @@
 ### SB 3.13.30
 
-> खुरैः क्षुरप्रैर्दरयंस्तदाप उत्पारपारं त्रिपरू रसायाम् ।
+> खुरैः क्षुरप्रैर्दरयंस्तदाप उत्पारपारं त्रिपरू रसायाम् ।\
 > ददर्श गां तत्र सुषुप्सुरग्रे यां जीवधानीं स्वयमभ्यधत्त ॥३०॥
 
-> khuraiḥ kṣuraprair darayaṁs tad āpa
-> utpāra-pāraṁ tri-parū rasāyām
-> dadarśa gāṁ tatra suṣupsur agre
+> khuraiḥ kṣuraprair darayaṁs tad āpa\
+> utpāra-pāraṁ tri-parū rasāyām\
+> dadarśa gāṁ tatra suṣupsur agre\
 > yāṁ jīva-dhānīṁ svayam abhyadhatta
 
 *khuraiḥ*—con las pezuñas; *kṣurapraiḥ*—comparadas a un arma afilada; *darayan*—penetrando; *tat*—aquella; *āpaḥ*—agua; *utpāra-pāram*—dio con el límite de lo ilimitado; *tri-paruḥ*—el amo de todo sacrificio; *rasāyām*—dentro del agua; *dadarśa*—encontró; *gām*—la Tierra; *tatra*—allí; *suṣupsuḥ*—yaciendo; *agre*—en el principio; *yām*—al cual; *jīva-dhānīm*—el lugar de reposo de todos los seres vivientes; *svayam*—en persona; *abhyadhatta*—levantó.

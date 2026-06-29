@@ -1,9 +1,9 @@
 ### CC Adi 17.159
 
-> প্রভু কহে, — বেদে কহে গোবধ নিষেধ  ।
+> প্রভু কহে, — বেদে কহে গোবধ নিষেধ  ।\
 > অতএব হিন্দুমাত্র না করে গোবধ ॥১৫৯॥
 
-> prabhu kahe,--vede kahe go-vadha niṣedha
+> prabhu kahe,--vede kahe go-vadha niṣedha\
 > ataeva hindu-mātra nā kare go-vadha
 
 *prabhu kahe*—el Señor respondió; *vede*—en los *Vedas*; *kahe*—se ordena; *go-vadha*—matanza de vacas; *niṣedha*—prohibición; *ataeva*—por lo tanto; *hindu*—hindú; *mātra*—cualquier; *nā*—no; *kare*—ejecuta; *go-vadha*—matanza de vacas.

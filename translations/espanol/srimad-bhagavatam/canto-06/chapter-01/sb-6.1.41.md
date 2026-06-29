@@ -1,11 +1,11 @@
 ### SB 6.1.41
 
-> येन स्वधाम्न्यमी भावा रजःसत्त्वतमोमयाः
+> येन स्वधाम्न्यमी भावा रजःसत्त्वतमोमयाः\
 > गुणनामक्रियारूपैर्विभाव्यन्ते यथातथम ॥४१॥
 
-> yena sva-dhāmny amī bhāvā
-> rajaḥ-sattva-tamomayāḥ
-> guṇa-nāma-kriyā-rūpair
+> yena sva-dhāmny amī bhāvā\
+> rajaḥ-sattva-tamomayāḥ\
+> guṇa-nāma-kriyā-rūpair\
 > vibhāvyante yathā-tatham
 
 *yena*—por quien (Nārāyaṇa); *sva-dhāmni*—aunque está en Su propia morada, el mundo espiritual; *amī*—todas estas; *bhāvāḥ*—manifestaciones; *rajaḥ-sattva-tamaḥ-mayāḥ*—creadas por las tres modalidades de la naturaleza material (pasión, bondad e ignorancia); *guṇa*—cualidades; *nāma*—nombres; *kriyā*—actividades; *rūpaiḥ*—y con formas; *vibhāvyante*—se manifiestan en diversidad; *yathā-tatham*—con toda exactitud.

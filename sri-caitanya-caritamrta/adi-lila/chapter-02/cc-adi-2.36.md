@@ -1,9 +1,9 @@
 ### CC Adi 2.36
 
-> প্রাকৃতাপ্রাকৃত-সৃষ্ট্যে যত জীবরূপ ।
+> প্রাকৃতাপ্রাকৃত-সৃষ্ট্যে যত জীবরূপ ।\
 > তাহার যে আত্মা তুমি মূল-স্বরূপ ॥৩৬॥
 
-> prākṛtāprākṛta-sṛṣṭye yata jīva-rūpa
+> prākṛtāprākṛta-sṛṣṭye yata jīva-rūpa\
 > tāhāra ye ātmā tumi mūla-svarūpa
 
 *prākṛta*—material; *aprākṛta*—and spiritual; *sṛṣṭye*—in the creations; *yata*—as many as there are; *jīva-rūpa*—the living beings; *tāhāra*—of them; *ye*—who; *ātmā*—the Supersoul; *tumi*—You; *mūla-svarūpa*—ultimate source.

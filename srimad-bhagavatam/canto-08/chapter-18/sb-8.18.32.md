@@ -1,14 +1,14 @@
 ### SB 8.18.32
 
-> यद्यद्वटो वाञ्छसि तत्प्रतीच्छ मे त्वामर्थिनं विप्रसुतानुतर्कये
-> गां काञ्चनं गुणवद्धाम मृष्टं तथान्नपेयमुत वा विप्रकन्याम
+> यद्यद्वटो वाञ्छसि तत्प्रतीच्छ मे त्वामर्थिनं विप्रसुतानुतर्कये\
+> गां काञ्चनं गुणवद्धाम मृष्टं तथान्नपेयमुत वा विप्रकन्याम\
 > ग्रामान्समृद्धांस्तुरगान्गजान्वा रथांस्तथार्हत्तम सम्प्रतीच्छ ॥३२॥
 
-> yad yad vaṭo vāñchasi tat pratīccha me
-> tvām arthinaṁ vipra-sutānutarkaye
-> gāṁ kāñcanaṁ guṇavad dhāma mṛṣṭaṁ
-> tathānna-peyam uta vā vipra-kanyām
-> grāmān samṛddhāṁs turagān gajān vā
+> yad yad vaṭo vāñchasi tat pratīccha me\
+> tvām arthinaṁ vipra-sutānutarkaye\
+> gāṁ kāñcanaṁ guṇavad dhāma mṛṣṭaṁ\
+> tathānna-peyam uta vā vipra-kanyām\
+> grāmān samṛddhāṁs turagān gajān vā\
 > rathāṁs tathārhattama sampratīccha
 
 *yat yat*—whatever; *vaṭo*—O *brahmacārī*; *vāñchasi*—You desire; *tat*—that; *pratīccha*—You may take; *me*—from me; *tvām*—You; *arthinam*—desiring something; *vipra-suta*—O son of a *brāhmaṇa*; *anutarkaye*—I consider; *gām*—a cow; *kāñcanam*—gold; *guṇavat dhāma*—a furnished residence; *mṛṣṭam*—palatable; *tathā*—as well as; *anna*—food grains; *peyam*—drink; *uta*—indeed; *vā*—either; *vipra-kanyām*—the daughter of a *brāhmaṇa*; *grāmān*—villages; *samṛddhān*—prosperous; *turagān*—horses; *gajān*—elephants; *vā*—either; *rathān*—chariots; *tathā*—as well as; *arhat-tama*—O best of those who are worshipable; *sampratīccha*—You may take.

@@ -1,9 +1,9 @@
 ### CC Antya 7.140
 
-> জগতের ‘হিত’ হউক, — এই প্রভুর মন ।
+> জগতের ‘হিত’ হউক, — এই প্রভুর মন ।\
 > দণ্ড করি’ করে তার হৃদয় শোধন ॥১৪০॥
 
-> jagatera 'hita' ha-uka—ei prabhura mana
+> jagatera 'hita' ha-uka—ei prabhura mana\
 > daṇḍa kari' kare tāra hṛdaya śodhana
 
 *jagatera*—of the entire world; *hita*—welfare; *ha-uka*—let there be; *ei*—this; *prabhura mana*—the mind of Śrī Caitanya Mahāprabhu; *daṇḍa kari'*—punishing; *kare*—does; *tāra*—his; *hṛdaya*—heart; *śodhana*—purifying.

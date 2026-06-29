@@ -1,11 +1,11 @@
 ### SB 6.1.45
 
-> येन यावान्यथाधर्मो धर्मो वेह समीहितः
+> येन यावान्यथाधर्मो धर्मो वेह समीहितः\
 > स एव तत्फलं भुङ्क्ते तथा तावदमुत्र वै ॥४५॥
 
-> yena yāvān yathādharmo
-> dharmo veha samīhitaḥ
-> sa eva tat-phalaṁ bhuṅkte
+> yena yāvān yathādharmo\
+> dharmo veha samīhitaḥ\
+> sa eva tat-phalaṁ bhuṅkte\
 > tathā tāvad amutra vai
 
 *yena*—by which person; *yāvān*—to which extent; *yathā*—in which manner; *adharmaḥ*—irreligious activities; *dharmaḥ*—religious activities; *vā*—or; *iha*—in this life; *samīhitaḥ*—performed; *saḥ*—that person; *eva*—indeed; *tat-phalam*—the particular result of that; *bhuṅkte*—enjoys or suffers; *tathā*—in that way; *tāvat*—to that extent; *amutra*—in the next life; *vai*—indeed.

@@ -1,11 +1,11 @@
 ### SB 2.8.29
 
-> यद्यत्परीक्षिदृषभः पाण्डूनामनुपृच्छति ।
+> यद्यत्परीक्षिदृषभः पाण्डूनामनुपृच्छति ।\
 > आनुपूर्व्येण तत्सर्वमाख्यातुमुपचक्रमे ॥२९॥
 
-> yad yat parīkṣid ṛṣabhaḥ
-> pāṇḍūnām anupṛcchati
-> ānupūrvyeṇa tat sarvam
+> yad yat parīkṣid ṛṣabhaḥ\
+> pāṇḍūnām anupṛcchati\
+> ānupūrvyeṇa tat sarvam\
 > ākhyātum upacakrame
 
 *yat yat*—cualquier cosa que; *Parīkṣit*—el rey; *abhaḥ*—el mejor; *pāṇḍūnām*—en la dinastía de Pāṇḍu; *anupṛcchati*—continúa preguntando; *ānupūrvyeṇa*—desde el comienzo hasta el final; *tat*—todas esas; *sarvam*—plenamente; *ākhyātum*—describir; *upacakrame*—él se dispuso específicamente.

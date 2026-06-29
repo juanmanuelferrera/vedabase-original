@@ -1,11 +1,11 @@
 ### SB 2.10.46
 
-> अयं तु ब्रह्मणः कल्पः सविकल्प उदाहृतः ।
+> अयं तु ब्रह्मणः कल्पः सविकल्प उदाहृतः ।\
 > विधिः साधारणो यत्र सर्गाः प्राकृतवैकृताः ॥४६॥
 
-> ayaṁ tu brahmaṇaḥ kalpaḥ
-> savikalpa udāhṛtaḥ
-> vidhiḥ sādhāraṇo yatra
+> ayaṁ tu brahmaṇaḥ kalpaḥ\
+> savikalpa udāhṛtaḥ\
+> vidhiḥ sādhāraṇo yatra\
 > sargāḥ prākṛta-vaikṛtāḥ
 
 *ayam*—este proceso de creación y aniquilación; *tu*—pero; *brahmaṇaḥ*—de Brahmā; *kalpaḥ*—un día de él; *sa-vikalpaḥ*—juntamente con la duración de los universos; *udāhṛtaḥ*—ejemplificado; *vidhiḥ*—principios regulativos; *sādhāraṇaḥ*—en resumen; *yatra*—en el cual; *sargāḥ*—creación; *prākṛta*—en lo referente a la naturaleza material; *vaikṛtāḥ*—dispersión.

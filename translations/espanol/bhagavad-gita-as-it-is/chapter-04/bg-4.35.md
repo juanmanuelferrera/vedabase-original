@@ -1,11 +1,11 @@
 ### Bg 4.35
 
-> यज्ज्ञात्वा न पुनर्मोहमेवं यास्यसि पाण्डव ।
+> यज्ज्ञात्वा न पुनर्मोहमेवं यास्यसि पाण्डव ।\
 > येन भूतान्यशेषेण द्रक्ष्यस्यात्मन्यथो मयि ॥३५॥
 
-> yaj jñātvā na punar moham
-> evaṁ yāsyasi pāṇḍava
-> yena bhūtāny aśeṣāṇi
+> yaj jñātvā na punar moham\
+> evaṁ yāsyasi pāṇḍava\
+> yena bhūtāny aśeṣāṇi\
 > drakṣyasy ātmany atho mayi
 
 *yat*—lo cual; *jñātvā*—sabiendo; *na*—nunca; *punaḥ*—de nuevo; *moham*—la ilusión; *evam*—así; *yāsyasi*—irás; *pāṇḍava*—¡oh, hijo de Pāṇḍu!; *yena*—mediante el cual; *bhūtāni*—todas las entidades vivientes; *aśeṣāṇi*—totalmente; *drakṣyasi*—verás; *ātmani*—en el Alma Suprema; *atho*—o en otras palabras; *mayi*—en Mí.

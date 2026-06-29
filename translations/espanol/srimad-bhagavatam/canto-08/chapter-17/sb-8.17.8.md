@@ -1,15 +1,15 @@
 ### SB 8.17.8
 
-> श्रीअदितिरुवाच
-> यज्ञएश यज्ञअपुरुषाच्युत तीर्थपाद
-> तीर्थश्रवः श्रवणमङ्गलनामधेय
-> आपन्नलोकवृजिनोपशमोदयाद्य
+> श्रीअदितिरुवाच\
+> यज्ञएश यज्ञअपुरुषाच्युत तीर्थपाद\
+> तीर्थश्रवः श्रवणमङ्गलनामधेय\
+> आपन्नलोकवृजिनोपशमोदयाद्य\
 > शं नः कृधीश भगवन्नसि दीननाथः ॥८॥
 
-> śrī-aditir uvāca
-> yajñeśa yajña-puruṣācyuta tīrtha-pāda
-> tīrtha-śravaḥ śravaṇa-maṅgala-nāmadheya
-> āpanna-loka-vṛjinopaśamodayādya
+> śrī-aditir uvāca\
+> yajñeśa yajña-puruṣācyuta tīrtha-pāda\
+> tīrtha-śravaḥ śravaṇa-maṅgala-nāmadheya\
+> āpanna-loka-vṛjinopaśamodayādya\
 > śaṁ naḥ kṛdhīśa bhagavann asi dīna-nāthaḥ
 
 *śrī-aditiḥ uvāca*—la semidiosa Aditi dijo; *yajña-īśa*—¡oh, controlador de todas las ceremonias de sacrificio!; *yajña-puruṣa*—la persona que disfruta los beneficios de todos los sacrificios; *acyuta*—infalible; *tīrtha-pāda*—a cuyos pies de loto se hallan todos los lugares sagrados de peregrinaje; *tīrtha-śravaḥ*—famoso por ser el refugio supremo de todas las personas santas; *śravaṇa*—escuchar acerca de quien; *maṅgala*—es auspicioso; *nāmadheya*—cantar Su nombre también es auspicioso; *āpanna*—entregada; *loka*—de gente; *vṛjina*—posición material peligrosa; *upaśama*—disminuir; *udaya*—que ha aparecido; *ādya*—la Personalidad de Dios original; *śam*—carácter auspicioso; *naḥ*—nuestro; *kṛdhi*—por favor, concédenos; *īśa*—¡oh, controlador supremo!; *bhagavan*—¡oh, Señor!; *asi*—Tú eres; *dīna-nāthaḥ*—el único refugio de los oprimidos.

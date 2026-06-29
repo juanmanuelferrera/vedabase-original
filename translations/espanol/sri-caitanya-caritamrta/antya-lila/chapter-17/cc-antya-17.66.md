@@ -1,9 +1,9 @@
 ### CC Antya 17.66
 
-> ইহা যেই শুনে, তার জুড়ায় মন-কাণ ।
+> ইহা যেই শুনে, তার জুড়ায় মন-কাণ ।\
 > অলৌকিক গূঢ়প্রেম-চেষ্টা হয় জ্ঞান ॥৬৬॥
 
-> ihā yei śune, tāra juḍāya mana-kāṇa
+> ihā yei śune, tāra juḍāya mana-kāṇa\
 > alaukika gūḍha-prema-ceṣṭā haya jñāna
 
 *ihā*—esto; *yei śune*—todo el que oiga; *tāra*—su; *juḍāya*—se satisfacen; *mana-kāṇa*—la mente y los oídos; *alaukika*—inusuales; *gūḍha-prema*—del profundo amor extático por Kṛṣṇa; *ceṣṭā*—actividades; *haya jñāna*—puede comprender.

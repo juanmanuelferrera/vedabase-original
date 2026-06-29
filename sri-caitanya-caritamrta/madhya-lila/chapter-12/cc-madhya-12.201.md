@@ -1,9 +1,9 @@
 ### CC Madhya 12.201
 
-> প্রভুর অবশেষ গোবিন্দ রাখিল ধরিয়া ।
+> প্রভুর অবশেষ গোবিন্দ রাখিল ধরিয়া ।\
 > সেই অন্ন হরিদাসে কিছু দিল লঞা ॥২০১॥
 
-> prabhura avaśeṣa govinda rākhila dhariyā
+> prabhura avaśeṣa govinda rākhila dhariyā\
 > sei anna haridāse kichu dila lañā
 
 *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *avaśeṣa*—remnants; *govinda*—Govinda; *rākhila*—saved; *dhariyā*—keeping; *sei anna*—that *prasāda*; *haridāse*—unto Haridāsa Ṭhākura; *kichu*—some; *dila*—delivered; *lañā*—taking.

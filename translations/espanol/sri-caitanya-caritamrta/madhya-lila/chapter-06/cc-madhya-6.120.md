@@ -1,9 +1,9 @@
 ### CC Madhya 6.120
 
-> বেদান্ত পড়াইতে তবে আরম্ভ করিলা ৷
+> বেদান্ত পড়াইতে তবে আরম্ভ করিলা ৷\
 > স্নেহ-ভক্তি করি’ কিছু প্রভুরে কহিলা ॥১২০॥
 
-> vedānta paḍāite tabe ārambha karilā
+> vedānta paḍāite tabe ārambha karilā\
 > sneha-bhakti kari' kichu prabhure kahilā
 
 *vedānta*—filosofía Vedānta; *paḍāite*—instruir; *tabe*—entonces; *ārambha*—comienzo; *karilā*—hizo; *sneha*—afecto; *bhakti*—y devoción; *kari'*—mostrando; *kichu*—algo; *prabhure*—al Señor; *kahilā*—dijo.

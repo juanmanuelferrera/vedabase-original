@@ -1,9 +1,9 @@
 ### CC Madhya 8.251
 
-> ‘শ্রেয়ো-মধ্যে কোন্ শ্রেয়ঃ জীবের হয় সার?’
+> ‘শ্রেয়ো-মধ্যে কোন্ শ্রেয়ঃ জীবের হয় সার?’\
 > ‘কৃষ্ণভক্ত-সঙ্গ বিনা শ্রেয়ঃ নাহি আর ।।’ ॥২৫১॥
 
-> 'śreyo-madhye kona śreyaḥ jīvera haya sāra?'
+> 'śreyo-madhye kona śreyaḥ jīvera haya sāra?'\
 > 'kṛṣṇa-bhakta-saṅga vinā śreyaḥ nāhi āra'
 
 *śreyaḥ-madhye*—among beneficial activities; *kona*—which; *śreyaḥ*—beneficial function; *jīvera*—of the living entity; *haya*—is; *sāra*—the essence; *kṛṣṇa-bhakta-saṅga*—for associating with the devotees of Lord Kṛṣṇa; *vinā*—except; *śreyaḥ*—beneficial activity; *nāhi*—there is not; *āra*—another.

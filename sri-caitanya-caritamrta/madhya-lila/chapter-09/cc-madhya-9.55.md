@@ -1,9 +1,9 @@
 ### CC Madhya 9.55
 
-> বৌদ্ধগণের উপরে অন্ন পড়ে অমেধ্য হৈয়া ।
+> বৌদ্ধগণের উপরে অন্ন পড়ে অমেধ্য হৈয়া ।\
 > বৌদ্ধাচার্যের মাথায় থালি পড়িল বাজিয়া ॥৫৫॥
 
-> bauddha-gaṇera upare anna paḍe amedhya haiyā
+> bauddha-gaṇera upare anna paḍe amedhya haiyā\
 > bauddhācāryera māthāya thāli paḍila bājiyā
 
 *bauddha-gaṇera*—all the Buddhists; *upare*—upon; *anna*—the food; *paḍe*—began to fall down; *amedhya*—untouchable; *haiyā*—being; *bauddha-ācāryera*—of the teacher of the Buddhists; *māthāya*—on the head; *thāli*—the plate; *paḍila*—fell down; *bājiyā*—making a great sound.

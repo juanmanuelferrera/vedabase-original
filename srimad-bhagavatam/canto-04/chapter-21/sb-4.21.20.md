@@ -1,11 +1,11 @@
 ### SB 4.21.20
 
-> चारु चित्रपदं श्लक्ष्णं मृष्टं गूढमविक्लवम् ।
+> चारु चित्रपदं श्लक्ष्णं मृष्टं गूढमविक्लवम् ।\
 > सर्वेषामुपकारार्थं तदा अनुवदन्निव ॥२०॥
 
-> cāru citra-padaṁ ślakṣṇaṁ
-> mṛṣṭaṁ gūḍham aviklavam
-> sarveṣām upakārārthaṁ
+> cāru citra-padaṁ ślakṣṇaṁ\
+> mṛṣṭaṁ gūḍham aviklavam\
+> sarveṣām upakārārthaṁ\
 > tadā anuvadann iva
 
 *cāru*—beautiful; *citra-padam*—flowery; *ślakṣṇam*—very clear; *mṛṣṭam*—very great; *gūḍham*—meaningful; *aviklavam*—without any doubt; *sarveṣām*—for all; *upakāra-artham*—just to benefit them; *tadā*—at that time; *anuvadan*—began to repeat; *iva*—like.

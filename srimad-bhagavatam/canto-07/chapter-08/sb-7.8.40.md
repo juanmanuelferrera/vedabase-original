@@ -1,13 +1,13 @@
 ### SB 7.8.40
 
-> श्रीब्रह्मोवाच
-> नतोऽस्म्यनन्ताय दुरन्तशक्तये विचित्रवीर्याय पवित्रकर्मणे
+> श्रीब्रह्मोवाच\
+> नतोऽस्म्यनन्ताय दुरन्तशक्तये विचित्रवीर्याय पवित्रकर्मणे\
 > विश्वस्य सर्गस्थितिसंयमान्गुणैः स्वलीलया सन्दधतेऽव्ययात्मने ॥४०॥
 
-> śrī-brahmovāca
-> nato 'smy anantāya duranta-śaktaye
-> vicitra-vīryāya pavitra-karmaṇe
-> viśvasya sarga-sthiti-saṁyamān guṇaiḥ
+> śrī-brahmovāca\
+> nato 'smy anantāya duranta-śaktaye\
+> vicitra-vīryāya pavitra-karmaṇe\
+> viśvasya sarga-sthiti-saṁyamān guṇaiḥ\
 > sva-līlayā sandadhate 'vyayātmane
 
 *śrī-brahmā uvāca*—Lord Brahmā said; *nataḥ*—bowed down; *asmi*—I am; *anantāya*—unto the unlimited Lord; *duranta*—very difficult to find an end to; *śaktaye*—who possesses different potencies; *vicitra-vīryāya*—having varieties of prowess; *pavitra-karmaṇe*—whose actions have no reaction (even though doing contrary things, He remains without contamination by the material modes); *viśvasya*—of the universe; *sarga*—creation; *sthiti*—maintenance; *saṁyamān*—and annihilation; *guṇaiḥ*—by the material qualities; *sva-līlayā*—very easily; *sandadhate*—performs; *avyaya-ātmane*—whose personality never deteriorates.

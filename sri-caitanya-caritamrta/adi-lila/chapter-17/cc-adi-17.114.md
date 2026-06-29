@@ -1,9 +1,9 @@
 ### CC Adi 17.114
 
-> যে হও, সে হও তুমি, তোমাকে নমস্কার ।।
+> যে হও, সে হও তুমি, তোমাকে নমস্কার ।।\
 > প্রভু তারে প্রেম দিয়া কৈল পুরস্কার ॥১১৪॥
 
-> ye hao, se hao tumi, tomāke namaskāra
+> ye hao, se hao tumi, tomāke namaskāra\
 > prabhu tāre prema diyā kaila puraskāra
 
 *ye hao*—whatever You are; *se hao tumi*—whatever You may be; *tomāke*—unto You; *namaskāra*—my obeisances; *prabhu*—the Lord; *tāre*—unto him; *prema*—love of Godhead; *diyā*—delivered; *kaila*—did; *puraskāra*—honor.

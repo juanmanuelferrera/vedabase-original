@@ -1,11 +1,11 @@
 ### SB 3.21.18
 
-> न तेऽजराक्षभ्रमिरायुरेषां त्रयोदशारं त्रिशतं षष्टिपर्व ।
+> न तेऽजराक्षभ्रमिरायुरेषां त्रयोदशारं त्रिशतं षष्टिपर्व ।\
 > षण्नेम्यनन्तच्छदि यत्त्रिणाभि करालस्रोतो जगदाच्छिद्य धावत् ॥१८॥
 
-> na te 'jarākṣa-bhramir āyur eṣāṁ
-> trayodaśāraṁ tri-śataṁ ṣaṣṭi-parva
-> ṣaṇ-nemy ananta-cchadi yat tri-ṇābhi
+> na te 'jarākṣa-bhramir āyur eṣāṁ\
+> trayodaśāraṁ tri-śataṁ ṣaṣṭi-parva\
+> ṣaṇ-nemy ananta-cchadi yat tri-ṇābhi\
 > karāla-sroto jagad ācchidya dhāvat
 
 *na*—no; *te*—Tu; *ajara*—del Brahman imperecedero; *akṣa*—sobre el eje; *bhramiḥ*—girando; *āyuḥ*—duración de la vida; *eṣām*—de los devotos; *trayodaśa*—trece; *aram*—radios; *tri-śatam*—trescientas; *ṣaṣṭi*—sesenta; *parva*—funciones; *ṣaṭ*—seis; *nemi*—llantas; *ananta*—innumerables; *chadi*—hojas; *yat*—el cual; *tri*—tres; *nābhi*—centros de rotación; *karāla-srotaḥ*—con tremenda velocidad; *jagat*—el universo; *ācchidya*—acortando; *dhāvat*—corre.

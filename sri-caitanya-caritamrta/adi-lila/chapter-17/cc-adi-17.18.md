@@ -1,9 +1,9 @@
 ### CC Adi 17.18
 
-> তবে সপ্তপ্রহর ছিলা প্রভু ভাবাবেশে ।
+> তবে সপ্তপ্রহর ছিলা প্রভু ভাবাবেশে ।\
 > যথা তথা ভক্তগণ দেখিল বিশেষে ॥১৮॥
 
-> tabe sapta-prahara chilā prabhu bhāvāveśe
+> tabe sapta-prahara chilā prabhu bhāvāveśe\
 > yathā tathā bhakta-gaṇa dekhila viśeṣe
 
 *tabe*—thereafter; *sapta-prahara*—twenty-one hours; *chilā*—remained; *prabhu*—the Lord; *bhāva-āveśe*—in ecstasy; *yathā*—anywhere; *tathā*—everywhere; *bhakta-gaṇa*—the devotees; *dekhila*—saw; *viśeṣe*—specifically.

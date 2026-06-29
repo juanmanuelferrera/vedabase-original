@@ -1,9 +1,9 @@
 ### CC Antya 12.136
 
-> আগ্রহ করিয়া পণ্ডিত করাইলা ভোজন ।
+> আগ্রহ করিয়া পণ্ডিত করাইলা ভোজন ।\
 > আর দিন হৈতে ভোজন হৈল দশগুণ ॥১৩৬॥
 
-> āgraha kariyā paṇḍita karāilā bhojana
+> āgraha kariyā paṇḍita karāilā bhojana\
 > āra dina haite bhojana haila daśa-guṇa
 
 *āgraha kariyā*—con gran empeño; *paṇḍita*—Jagadānanda Paṇḍita; *karāilā bhojana*—alimentó; *āra dina*—otros días; *haite*—que; *bhojana*—la comida; *haila*—fue; *daśa-guṇa*—diez veces mayor.

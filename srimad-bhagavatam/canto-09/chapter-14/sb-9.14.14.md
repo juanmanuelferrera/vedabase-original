@@ -1,11 +1,11 @@
 ### SB 9.14.14
 
-> तस्यात्मयोनिरकृत बुध इत्यभिधां नृप
+> तस्यात्मयोनिरकृत बुध इत्यभिधां नृप\
 > बुद्ध्या गम्भीरया येन पुत्रेणापोडुराण्मुदम ॥१४॥
 
-> tasyātma-yonir akṛta
-> budha ity abhidhāṁ nṛpa
-> buddhyā gambhīrayā yena
+> tasyātma-yonir akṛta\
+> budha ity abhidhāṁ nṛpa\
+> buddhyā gambhīrayā yena\
 > putreṇāpoḍurāṇ mudam
 
 *tasya*—of the child; *ātma-yoniḥ*—Lord Brahmā; *akṛta*—made; *budhaḥ*—Budha; *iti*—thus; *abhidhām*—the name; *nṛpa*—O King Parīkṣit; *buddhyā*—by intelligence; *gambhīrayā*—very deeply situated; *yena*—by whom; *putreṇa*—by such a son; *āpa*—he got; *uḍurāṭ*—the moon-god; *mudam*—jubilation.

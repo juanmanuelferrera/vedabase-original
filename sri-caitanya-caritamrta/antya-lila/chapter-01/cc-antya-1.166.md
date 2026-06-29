@@ -1,13 +1,13 @@
 ### CC Antya 1.166
 
-> জঙ্ঘাধস্তটসঙ্গিদক্ষিণপদং কিঞ্চিদ্বিভুগ্নত্রিকং
-> সাচিস্তম্ভিতকন্ধরং সখি তিরঃসঞ্চারিনেত্রাঞ্চলম্ ।
-> বংশীং কুট্মলিতে দধানমধরে লোলাঙ্গুলীসঙ্গতাং
+> জঙ্ঘাধস্তটসঙ্গিদক্ষিণপদং কিঞ্চিদ্বিভুগ্নত্রিকং\
+> সাচিস্তম্ভিতকন্ধরং সখি তিরঃসঞ্চারিনেত্রাঞ্চলম্ ।\
+> বংশীং কুট্মলিতে দধানমধরে লোলাঙ্গুলীসঙ্গতাং\
 > রিঙ্গদ্ভ্রূভ্রমরং বরাঙ্গি পরমানন্দং পুরঃ স্বীকুরু ॥১৬৬॥
 
-> jaṅghādhas-taṭa-saṅgi-dakṣiṇa-padaṁ kiñcid vibhugna-trikam-
-> sāci-stambhita-kandharaṁ sakhi tiraḥ-sañcāri-netrāñcalam
-> vaṁśīṁ kuṭmalite dadhānam adhare lolāṅgulī-saṅgatāṁ
+> jaṅghādhas-taṭa-saṅgi-dakṣiṇa-padaṁ kiñcid vibhugna-trikam-\
+> sāci-stambhita-kandharaṁ sakhi tiraḥ-sañcāri-netrāñcalam\
+> vaṁśīṁ kuṭmalite dadhānam adhare lolāṅgulī-saṅgatāṁ\
 > riṅgad-bhrū-bhramaraṁ varāṅgi paramānandaṁ puraḥ svīkuru
 
 *jaṅghā*—of the shin; *adhaḥ-taṭa*—at the lower border; *saṅgi*—connected; *dakṣiṇa-padam*—the right foot; *kiñcit*—slightly; *vibhugna-trikam*—the middle of the body bent in three places; *sāci-stumbhita-kandharam*—whose neck is fixed in a curve to the side; *sakhi*—O friend; *tiraḥ-sañcāri*—roaming sideways; *netra-añcalam*—whose borders of the eyes; *vaṁśīm*—flute; *kuṭmalite*—shut like a flower bud; *dadhānam*—placing; *adhare*—on the lips; *lolā-aṅgulī-saṅgatām*—joined with fingers moving here and there; *riṅgat-bhrū*—whose slowly moving eyebrows; *bhramaram*—like bumblebees; *varāṅgi*—O most beautiful one; *paramānandam*—the personality of bliss; *puraḥ*—situated in front; *svī-kuru*—just accept.

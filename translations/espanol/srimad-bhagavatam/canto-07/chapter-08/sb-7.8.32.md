@@ -1,11 +1,11 @@
 ### SB 7.8.32
 
-> सटावधूता जलदाः परापतन्ग्रहाश्च तद्दृष्टिविमुष्टरोचिषः
+> सटावधूता जलदाः परापतन्ग्रहाश्च तद्दृष्टिविमुष्टरोचिषः\
 > अम्भोधयः श्वासहता विचुक्षुभुर्निर्ह्रादभीता दिगिभा विचुक्रुशुः ॥३२॥
 
-> saṭāvadhūtā jaladāḥ parāpatan
-> grahāś ca tad-dṛṣṭi-vimuṣṭa-rociṣaḥ
-> ambhodhayaḥ śvāsa-hatā vicukṣubhur
+> saṭāvadhūtā jaladāḥ parāpatan\
+> grahāś ca tad-dṛṣṭi-vimuṣṭa-rociṣaḥ\
+> ambhodhayaḥ śvāsa-hatā vicukṣubhur\
 > nirhrāda-bhītā digibhā vicukruśuḥ
 
 *saṭā*—por el pelo de la cabeza del Señor Nṛsiṁhadeva; *avadhūtāḥ*—sacudidas; *jaladāḥ*—las nubes; *parāpatan*—dispersadas; *grahāḥ*—los planetas luminosos; *ca*—y; *tat-dṛṣṭi*—por Su deslumbrante refulgencia; *vimuṣṭa*—arrebatada; *rociṣaḥ*—cuya refulgencia; *ambhodhayaḥ*—el agua de los mares y océanos; *śvāsa-hatāḥ*—golpeada por la respiración del Señor Nṛsiṁhadeva; *vicukṣubhuḥ*—se agitó; *nirhrāda-bhītāḥ*—aterrorizados por los rugidos de Nṛsiṁhadeva; *digibhāḥ*—todos los elefantes que guardan las direcciones; *vicukruśuḥ*—bramaban.

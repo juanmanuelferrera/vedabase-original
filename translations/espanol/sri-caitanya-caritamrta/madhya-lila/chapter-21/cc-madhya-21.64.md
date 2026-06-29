@@ -1,9 +1,9 @@
 ### CC Madhya 21.64
 
-> ব্রহ্মা কহে, — ‘তাহা পাছে করিব নিবেদন ।
+> ব্রহ্মা কহে, — ‘তাহা পাছে করিব নিবেদন ।\
 > এক সংশয় মনে হয়, করহ ছেদন ॥৬৪॥
 
-> brahmā kahe,--'tāhā pāche kariba nivedana
+> brahmā kahe,--'tāhā pāche kariba nivedana\
 > eka saṁśaya mane haya, karaha chedana
 
 *brahmā kahe*—el Señor Brahmā dijo; *tāhā*—eso; *pāche*—después; *kariba nivedana*—te lo expondré; *eka*—una; *saṁśaya*—duda; *mane*—en la mente; *haya*—hay; *karaha chedana*—ten la bondad de disiparla.

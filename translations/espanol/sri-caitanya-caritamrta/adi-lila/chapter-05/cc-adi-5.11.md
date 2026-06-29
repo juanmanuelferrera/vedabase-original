@@ -1,9 +1,9 @@
 ### CC Adi 5.11
 
-> সর্বরূপে আস্বাদয়ে কৃষ্ণ-সেবানন্দ ।
+> সর্বরূপে আস্বাদয়ে কৃষ্ণ-সেবানন্দ ।\
 > সেই বলরাম — গৌরসঙ্গে নিত্যানন্দ ॥১১॥
 
-> sarva-rūpe āsvādaye kṛṣṇa-sevānanda
+> sarva-rūpe āsvādaye kṛṣṇa-sevānanda\
 > sei balarāma--gaura-saṅge nityānanda
 
 *sarva-rūpe*—en todas estas formas; *āsvādaye*—saborea; *kṛṣṇa-sevā-ānanda*—la bienaventuranza trascendental de servir a Kṛṣṇa; *sei balarāma*—ese Señor Balarāma; *gaura-saṅge*—con Gaurasundara; *nityānanda*—el Señor Nityānanda.

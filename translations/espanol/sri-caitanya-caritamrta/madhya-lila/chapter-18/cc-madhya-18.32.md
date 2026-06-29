@@ -1,9 +1,9 @@
 ### CC Madhya 18.32
 
-> প্রাতঃকালে প্রভু ‘মানসগঙ্গা’য় করি’ স্নান ।
+> প্রাতঃকালে প্রভু ‘মানসগঙ্গা’য় করি’ স্নান ।\
 > গোবর্ধন-পরিক্রমায় করিলা প্ৰয়াণ ॥৩২॥
 
-> prātaḥ-kāle prabhu 'mānasa-gaṅgā'ya kari' snāna
+> prātaḥ-kāle prabhu 'mānasa-gaṅgā'ya kari' snāna\
 > govardhana-parikramāya karilā prayāṇa
 
 *prātaḥ-kāle*—por la mañana; *prabhu*—Śrī Caitanya Mahāprabhu; *mānasa-gaṅgāya*—en el lago llamado Mānasa-gaṅgā; *kari'*—realizando; *snāna*—el baño; *govardhana*—la colina de Govardhana; *parikramāya*—en la circunvalación; *karilā*—hizo; *prayāṇa*—la partida.

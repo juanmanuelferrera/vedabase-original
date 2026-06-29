@@ -1,11 +1,11 @@
 ### SB 9.4.66
 
-> मयि निर्बद्धहृदयाः साधवः समदर्शनाः
+> मयि निर्बद्धहृदयाः साधवः समदर्शनाः\
 > वशे कुर्वन्ति मां भक्त्या सत्स्त्रियः सत्पतिं यथा ॥६६॥
 
-> mayi nirbaddha-hṛdayāḥ
-> sādhavaḥ sama-darśanāḥ
-> vaśe kurvanti māṁ bhaktyā
+> mayi nirbaddha-hṛdayāḥ\
+> sādhavaḥ sama-darśanāḥ\
+> vaśe kurvanti māṁ bhaktyā\
 > sat-striyaḥ sat-patiṁ yathā
 
 *mayi*—a Mí; *nirbaddha-hṛdayāḥ*—firmemente apegados en lo más profundo del corazón; *sādhavaḥ*—los devotos puros; *sama-darśanāḥ*—que son ecuánimes con todos; *vaśe*—bajo control; *kurvanti*—hacen; *mām*—a Mí; *bhaktyā*—con servicio devocional; *sat-striyaḥ*—mujeres castas; *sat-patim*—al marido noble; *yathā*—como.

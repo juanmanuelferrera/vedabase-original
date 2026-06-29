@@ -1,11 +1,11 @@
 ### SB 4.3.22
 
-> प्रत्युद्गमप्रश्रयणाभिवादनं विधीयते साधु मिथः सुमध्यमे ।
+> प्रत्युद्गमप्रश्रयणाभिवादनं विधीयते साधु मिथः सुमध्यमे ।\
 > प्राज्ञैः परस्मै पुरुषाय चेतसा गुहाशयायैव न देहमानिने ॥२२॥
 
-> pratyudgama-praśrayaṇābhivādanaṁ
-> vidhīyate sādhu mithaḥ sumadhyame
-> prājñaiḥ parasmai puruṣāya cetasā
+> pratyudgama-praśrayaṇābhivādanaṁ\
+> vidhīyate sādhu mithaḥ sumadhyame\
+> prājñaiḥ parasmai puruṣāya cetasā\
 > guhā-śayāyaiva na deha-mānine
 
 *pratyudgama*—levantándose de su asiento; *praśrayaṇa*—dando la bienvenida; *abhivādanam*—reverencias; *vidhīyate*—destinadas a; *sādhu*—adecuadas; *mithaḥ*—mutuamente; *su-madhyame*—mi querida y joven esposa; *prājñaiḥ*—por el sabio; *parasmai*—al Supremo; *puruṣāya*—a la Superalma; *cetasā*—con la inteligencia; *guhā-śayāya*—que está dentro del cuerpo; *eva*—ciertamente; *na*—no; *deha-mānine*—a la persona que se identifica con el cuerpo.

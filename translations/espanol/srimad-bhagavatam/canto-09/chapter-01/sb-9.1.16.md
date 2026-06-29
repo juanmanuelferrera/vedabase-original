@@ -1,11 +1,11 @@
 ### SB 9.1.16
 
-> होतुस्तद्व्यभिचारेण कन्येला नाम साभवत
+> होतुस्तद्व्यभिचारेण कन्येला नाम साभवत\
 > तां विलोक्य मनुः प्राह नातितुष्टमना गुरुम ॥१६॥
 
-> hotus tad-vyabhicāreṇa
-> kanyelā nāma sābhavat
-> tāṁ vilokya manuḥ prāha
+> hotus tad-vyabhicāreṇa\
+> kanyelā nāma sābhavat\
+> tāṁ vilokya manuḥ prāha\
 > nātituṣṭamanā gurum
 
 *hotuḥ*—del sacerdote; *tat*—del *yajña*; *vyabhicāreṇa*—por aquella transgresión; *kanyā*—una hija; *ilā*—Ilā; *nāma*—de nombre; *sā*—aquella hija; *abhavat*—nació; *tām*—a ella; *vilokya*—al ver; *manuḥ*—Manu; *prāha*—dijo; *na*—no; *atituṣṭamanāḥ*—muy satisfecho; *gurum*—a su *guru*.

@@ -1,9 +1,9 @@
 ### CC Antya 6.142
 
-> স্বরূপের স্থানে তোমা করিবে সমর্পণে  ।
+> স্বরূপের স্থানে তোমা করিবে সমর্পণে  ।\
 > ‘অন্তরঙ্গ’ ভৃত্য বলি’ রাখিবে চরণে ॥১৪২॥
 
-> svarūpera sthāne tomā karibe samarpaṇe
+> svarūpera sthāne tomā karibe samarpaṇe\
 > 'antaraṅga' bhṛtya bali' rākhibe caraṇe
 
 *svarūpera sthāne*—unto Svarūpa Dāmodara; *tomā*—you; *karibe samarpaṇe*—He will give; *antaraṅga*—very confidential; *bhṛtya*—servant; *bali'*—as; *rākhibe caraṇe*—will keep under His lotus feet.

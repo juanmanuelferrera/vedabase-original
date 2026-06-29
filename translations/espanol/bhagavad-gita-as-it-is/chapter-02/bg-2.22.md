@@ -1,13 +1,13 @@
 ### Bg 2.22
 
-> वासांसि जीर्णानि यथा विहाय
-> नवानि गृह्णाति नरोऽपराणि ।
-> तथा शरीराणि विहाय जीर्णा-
+> वासांसि जीर्णानि यथा विहाय\
+> नवानि गृह्णाति नरोऽपराणि ।\
+> तथा शरीराणि विहाय जीर्णा-\
 > न्यन्यानि संयाति नवानि देही ॥२२॥
 
-> vāsāṁsi jīrṇāni yathā vihāya
-> navāni gṛhṇāti naro'parāṇi
-> tathā śarīrāṇi vihāya jīrṇāny
+> vāsāṁsi jīrṇāni yathā vihāya\
+> navāni gṛhṇāti naro'parāṇi\
+> tathā śarīrāṇi vihāya jīrṇāny\
 > anyāni saṁyāti navāni dehī
 
 *vāsāṁsi*—vestiduras; *jīrṇāni*—viejas y desgastadas; *yathā*—como es; *vihāya*—abandonando; *navāni*—nuevas; *gṛhṇāti*—acepta; *naraḥ*—un hombre; *aparāṇi*—otros; *tathā*—de la misma manera; *śarīrāṇi*—cuerpos; *vihāya*—abandonando; *jīrṇāni*—viejos e inservibles; *anyāni*—diferentes; *saṁyāti*—en verdad acepta; *navāni*—nuevos; *dehī*—el ser corporificado.

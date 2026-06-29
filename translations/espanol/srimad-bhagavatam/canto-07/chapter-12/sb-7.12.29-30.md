@@ -1,21 +1,21 @@
 ### SB 7.12.29-30
 
-> मनो मनोरथैश्चन्द्रे बुद्धिं बोध्यैः कवौ परे
-> कर्माण्यध्यात्मना रुद्रे यदहं ममताक्रिया
-> सत्त्वेन चित्तं क्षेत्रज्ञए गुणैर्वैकारिकं परे ॥२९॥
-> अप्सु क्षितिमपो ज्योतिष्यदो वायौ नभस्यमुम
+> मनो मनोरथैश्चन्द्रे बुद्धिं बोध्यैः कवौ परे\
+> कर्माण्यध्यात्मना रुद्रे यदहं ममताक्रिया\
+> सत्त्वेन चित्तं क्षेत्रज्ञए गुणैर्वैकारिकं परे ॥२९॥\
+> अप्सु क्षितिमपो ज्योतिष्यदो वायौ नभस्यमुम\
 > कूटस्थे तच्च महति तदव्यक्तेऽक्षरे च तत ॥३०॥
 
-> mano manorathaiś candre
-> buddhiṁ bodhyaiḥ kavau pare
-> karmāṇy adhyātmanā rudre
-> yad-ahaṁ mamatā-kriyā
-> sattvena cittaṁ kṣetra-jñe
+> mano manorathaiś candre\
+> buddhiṁ bodhyaiḥ kavau pare\
+> karmāṇy adhyātmanā rudre\
+> yad-ahaṁ mamatā-kriyā\
+> sattvena cittaṁ kṣetra-jñe\
 > guṇair vaikārikaṁ pare
 
-> apsu kṣitim apo jyotiṣy
-> ado vāyau nabhasy amum
-> kūṭasthe tac ca mahati
+> apsu kṣitim apo jyotiṣy\
+> ado vāyau nabhasy amum\
+> kūṭasthe tac ca mahati\
 > tad avyakte 'kṣare ca tat
 
 *manaḥ*—la mente; *manorathaiḥ*—junto con los deseos materiales; *candre*—a Candra, el semidiós de la Luna; *buddhim*—la inteligencia; *bodhyaiḥ*—con el objeto de la inteligencia; *kavau pare*—a la persona erudita suprema, el Señor Brahmā; *karmāṇi*—las actividades materiales; *adhyātmanā*—con el ego falso; *rudre*—al Señor Śiva (Rudra); *yat*—de donde; *aham*—yo soy el cuerpo material; *mamatā*—todo lo que pertenece al cuerpo material es mío; *kriyā*—esas actividades; *sattvena*—junto con el concepto de la existencia; *cittam*—la conciencia; *kṣetra-jñe*—al alma individual; *guṇaiḥ*—junto con las actividades materiales dirigidas por las cualidades materiales; *vaikārikam*—las entidades vivientes sometidas a la influencia de las modalidades materiales; *pare*—en el Ser Supremo; *apsu*—en el agua; *kṣitim*—la tierra; *apaḥ*—el agua; *jyotiṣi*—en los astros luminosos, y en concreto, en el Sol; *adaḥ*—el brillo; *vāyau*—en el aire; *nabhasi*—en el cielo; *amum*—este; *kūṭasthe*—en el concepto materialista de la vida; *tat*—este; *ca*—también; *mahati*—en el *mahat-tattva*, la energía material total; *tat*—este; *avyakte*—en lo no manifestado; *akṣare*—en la Superalma; *ca*—también; *tat*—este.

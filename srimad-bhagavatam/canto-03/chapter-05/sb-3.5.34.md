@@ -1,11 +1,11 @@
 ### SB 3.5.34
 
-> अनिलोऽपि विकुर्वाणो नभसोरुबलान्वितः ।
+> अनिलोऽपि विकुर्वाणो नभसोरुबलान्वितः ।\
 > ससर्ज रूपतन्मात्रं ज्योतिर्लोकस्य लोचनम् ॥३४॥
 
-> anilo 'pi vikurvāṇo
-> nabhasoru-balānvitaḥ
-> sasarja rūpa-tanmātraṁ
+> anilo 'pi vikurvāṇo\
+> nabhasoru-balānvitaḥ\
+> sasarja rūpa-tanmātraṁ\
 > jyotir lokasya locanam
 
 *anilaḥ*—air; *api*—also; *vikurvāṇaḥ*—being transformed; *nabhasā*—sky; *uru-bala-anvitaḥ*—extremely powerful; *sasarja*—created; *rūpa*—form; *tat-mātram*—sense perception; *jyotiḥ*—electricity; *lokasya*—of the world; *locanam*—light to see.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.310
 
-> শ্রীচৈতন্য-নিত্যানন্দ-অদ্বৈত-চরণ ।
+> শ্রীচৈতন্য-নিত্যানন্দ-অদ্বৈত-চরণ ।\
 > যাঁহার সর্বস্ব, তাঁরে মিলে এই ধন ॥৩১০॥
 
-> śrī-caitanya-nityānanda-advaita-caraṇa
+> śrī-caitanya-nityānanda-advaita-caraṇa\
 > yāṅhāra sarvasva, tāṅre mile ei dhana
 
 *śrī-caitanya*—of Lord Śrī Caitanya Mahāprabhu; *nityānanda*—of Lord Nityānanda; *advaita-caraṇa*—and the lotus feet of Śrī Advaita Prabhu; *yāṅhāra sarva-sva*—whose everything; *tāṅre*—him; *mile*—meets; *ei*—this; *dhana*—treasure.

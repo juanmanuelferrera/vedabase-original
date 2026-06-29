@@ -1,11 +1,11 @@
 ### SB 4.24.56
 
-> यत्र निर्विष्टमरणं कृतान्तो नाभिमन्यते ।
+> यत्र निर्विष्टमरणं कृतान्तो नाभिमन्यते ।\
 > विश्वं विध्वंसयन्वीर्य शौर्यविस्फूर्जितभ्रुवा ॥५६॥
 
-> yatra nirviṣṭam araṇaṁ
-> kṛtānto nābhimanyate
-> viśvaṁ vidhvaṁsayan vīrya-
+> yatra nirviṣṭam araṇaṁ\
+> kṛtānto nābhimanyate\
+> viśvaṁ vidhvaṁsayan vīrya-\
 > śaurya-visphūrjita-bhruvā
 
 *yatra*—en donde; *nirviṣṭam araṇam*—un alma completamente entregada; *kṛta-antaḥ*—el tiempo invencible; *na abhimanyate*—no ataca; *viśvam*—al universo entero; *vidhvaṁsayan*—venciendo; *vīrya*—poderío; *śaurya*—influencia; *visphūrjita*—con un simple movimiento; *bhruvā*—de las cejas.

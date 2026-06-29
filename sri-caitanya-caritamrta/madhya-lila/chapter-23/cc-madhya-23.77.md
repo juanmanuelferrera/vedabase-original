@@ -1,11 +1,11 @@
 ### CC Madhya 23.77
 
-> জীবেষ্বেতে বসন্তোঽপি বিন্দুবিন্দুতয়া ক্বচিৎ ।
+> জীবেষ্বেতে বসন্তোঽপি বিন্দুবিন্দুতয়া ক্বচিৎ ।\
 > পরিপূর্ণতয়া ভান্তি তত্রৈব পুরুষোত্তমে ॥৭৭॥
 
-> jīveṣu ete vasanto 'pi
-> bindu-bindutayā kvacit
-> paripūrṇatayā bhānti
+> jīveṣu ete vasanto 'pi\
+> bindu-bindutayā kvacit\
+> paripūrṇatayā bhānti\
 > tatraiva puruṣottame
 
 *jīveṣu*—in the living entities; *ete*—these; *vasantaḥ*—are residing; *api*—though; *bindu-bindutayā*—with a very minute quantity; *kvacit*—sometimes; *paripūrṇatayā*—with fullness; *bhānti*—are manifest; *tatra*—in Him; *eva*—certainly; *puruṣa-uttame*—in the Supreme Personality of Godhead.

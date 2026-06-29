@@ -1,11 +1,11 @@
 ### SB 4.26.11
 
-> ततः क्षुत्तृट्परिश्रान्तो निवृत्तो गृहमेयिवान् ।
+> ततः क्षुत्तृट्परिश्रान्तो निवृत्तो गृहमेयिवान् ।\
 > कृतस्नानोचिताहारः संविवेश गतक्लमः ॥११॥
 
-> tataḥ kṣut-tṛṭ-pariśrānto
-> nivṛtto gṛham eyivān
-> kṛta-snānocitāhāraḥ
+> tataḥ kṣut-tṛṭ-pariśrānto\
+> nivṛtto gṛham eyivān\
+> kṛta-snānocitāhāraḥ\
 > saṁviveśa gata-klamaḥ
 
 *tataḥ*—thereafter; *kṣut*—by hunger; *tṛṭ*—thirst; *pariśrāntaḥ*—being too fatigued; *nivṛttaḥ*—having ceased; *gṛham eyivān*—came back to his home; *kṛta*—taken; *snāna*—bath; *ucita-āhāraḥ*—exactly required foodstuffs; *saṁviveśa*—took rest; *gata-klamaḥ*—freed from all fatigue.

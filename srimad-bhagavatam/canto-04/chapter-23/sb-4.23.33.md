@@ -1,11 +1,11 @@
 ### SB 4.23.33
 
-> त्रिः कृत्व इदमाकर्ण्य नरो नार्यथवादृता ।
+> त्रिः कृत्व इदमाकर्ण्य नरो नार्यथवादृता ।\
 > अप्रजः सुप्रजतमो निर्धनो धनवत्तमः ॥३३॥
 
-> triḥ kṛtva idam ākarṇya
-> naro nāry athavādṛtā
-> aprajaḥ suprajatamo
+> triḥ kṛtva idam ākarṇya\
+> naro nāry athavādṛtā\
+> aprajaḥ suprajatamo\
 > nirdhano dhanavattamaḥ
 
 *triḥ*—thrice; *kṛtvaḥ*—repeating; *idam*—this; *ākarṇya*—hearing; *naraḥ*—man; *nārī*—woman; *athavā*—or; *ādṛtā*—in great respect; *aprajaḥ*—one who has no children; *su-praja-tamaḥ*—surrounded by many children; *nirdhanaḥ*—without any money; *dhana-vat*—rich; *tamaḥ*—the greatest.

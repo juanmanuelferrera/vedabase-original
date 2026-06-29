@@ -1,9 +1,9 @@
 ### CC Adi 2.46
 
-> নারের অয়ন যাতে কর দরশন ।
+> নারের অয়ন যাতে কর দরশন ।\
 > তাহাতেও হও তুমি মূল নারায়ণ ॥৪৬॥
 
-> nārera ayana yāte kara daraśana
+> nārera ayana yāte kara daraśana\
 > tāhāteo hao tumi mūla nārāyaṇa
 
 *nārera*—de las entidades vivientes; *ayana*—el movimiento; *yāte*—puesto que; *kara*—haces; *daraśana*—observación; *tāhāteo*—por ello; *hao*—eres; *tumi*—Tú; *mūla*—original; *nārāyaṇa*—Nārāyaṇa.

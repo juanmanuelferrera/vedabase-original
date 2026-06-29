@@ -1,9 +1,9 @@
 ### CC Madhya 8.79
 
-> প্রভু কহে, — “এহো উত্তম, আগে কহ আর ।”
+> প্রভু কহে, — “এহো উত্তম, আগে কহ আর ।”\
 > রায় কহে, “কান্তাপ্রেম সর্বসাধ্যসার ।।” ॥৭৯॥
 
-> prabhu kahe, "eho uttama, āge kaha āra"
+> prabhu kahe, "eho uttama, āge kaha āra"\
 > rāya kahe, "kāntā-prema sarva-sādhya-sāra"
 
 *prabhu kahe*—the Lord replied; *eho uttama*—this is very good; *āge*—ahead; *kaha*—speak; *āra*—more; *rāya kahe*—Rāmānanda Rāya replied; *kāntā-prema*—loving service between husband and wife; *sarva-sādhya-sāra*—the highest perfectional stage.

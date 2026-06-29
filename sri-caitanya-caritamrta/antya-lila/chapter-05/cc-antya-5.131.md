@@ -1,9 +1,9 @@
 ### CC Antya 5.131
 
-> “যাহ, ভাগবত পড় বৈষ্ণবের স্থানে  ।
+> “যাহ, ভাগবত পড় বৈষ্ণবের স্থানে  ।\
 > একান্ত আশ্রয় কর চৈতন্য-চরণে ॥১৩১॥
 
-> "yāha, bhāgavata paḍa vaiṣṇavera sthāne
+> "yāha, bhāgavata paḍa vaiṣṇavera sthāne\
 > ekānta āśraya kara caitanya-caraṇe
 
 *yāha*—just go; *bhāgavata paḍa*—read *Śrīmad-Bhāgavatam*; *vaiṣṇavera sthāne*—from a self-realized Vaiṣṇava; *ekānta āśraya kara*—fully surrender; *caitanya-caraṇe*—at the lotus feet of Śrī Caitanya Mahāprabhu.

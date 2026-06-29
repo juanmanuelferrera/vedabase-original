@@ -1,11 +1,11 @@
 ### SB 1.14.39
 
-> कच्चित्तेऽनामयं तात भ्रष्टतेजा विभासि मे ।
+> कच्चित्तेऽनामयं तात भ्रष्टतेजा विभासि मे ।\
 > अलब्धमानोऽवज्ञातः किं वा तात चिरोषितः ॥३९॥
 
-> kaccit te 'nāmayaṁ tāta
-> bhraṣṭa-tejā vibhāsi me
-> alabdha-māno 'vajñātaḥ
+> kaccit te 'nāmayaṁ tāta\
+> bhraṣṭa-tejā vibhāsi me\
+> alabdha-māno 'vajñātaḥ\
 > kiṁ vā tāta ciroṣitaḥ
 
 *kaccit*—whether; *te*—your; *anāmayam*—health is all right; *tāta*—my dear brother; *bhraṣṭa*—bereft; *tejāḥ*—luster; *vibhāsi*—appear; *me*—to me; *alabdha-mānaḥ*—without respect; *avajñātaḥ*—neglected; *kim*—whether; *vā*—or; *tāta*—my dear brother; *ciroṣitaḥ*—because of long residence.

@@ -1,15 +1,15 @@
 ### SB 8.3.30
 
-> श्रीशुक उवाच
-> एवं गजेन्द्रमुपवर्णितनिर्विशेषं
-> ब्रह्मादयो विविधलिङ्गभिदाभिमानाः
-> नैते यदोपससृपुर्निखिलात्मकत्वात
+> श्रीशुक उवाच\
+> एवं गजेन्द्रमुपवर्णितनिर्विशेषं\
+> ब्रह्मादयो विविधलिङ्गभिदाभिमानाः\
+> नैते यदोपससृपुर्निखिलात्मकत्वात\
 > तत्राखिलामरमयो हरिराविरासीत ॥३०॥
 
-> śrī-śuka uvāca
-> evaṁ gajendram upavarṇita-nirviśeṣaṁ
-> brahmādayo vividha-liṅga-bhidābhimānāḥ
-> naite yadopasasṛpur nikhilātmakatvāt
+> śrī-śuka uvāca\
+> evaṁ gajendram upavarṇita-nirviśeṣaṁ\
+> brahmādayo vividha-liṅga-bhidābhimānāḥ\
+> naite yadopasasṛpur nikhilātmakatvāt\
 > tatrākhilāmara-mayo harir āvirāsīt
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *evam*—de este modo; *gajendram*—al rey de los elefantes, Gajendra; *upavarṇita*—cuya descripción; *nirviśeṣam*—no dirigida a ninguna persona en particular (sino al Supremo, aunque no sabía quién es el Supremo); *brahmā-ādayaḥ*—los semidioses, encabezados por Brahmā, Śiva, Indra y Candra; *vividha*—diversidades; *liṅga-bhidā*—con formas separadas; *abhimānāḥ*—considerándose autoridades separadas; *na*—no; *ete*—todos ellos; *yadā*—cuando; *upasasṛpuḥ*—acudieron; *nikhila-ātmakatvāt*—la Suprema Personalidad de Dios, por ser la Superalma de todos; *tatra*—allí; *akhila*—del universo; *amara-mayaḥ*—constituido por los semidioses (que no son más que partes externas del cuerpo); *hariḥ*—la Suprema Personalidad de Dios, quien puede quitarlo todo; *āvirāsīt*—apareció (ante el elefante).

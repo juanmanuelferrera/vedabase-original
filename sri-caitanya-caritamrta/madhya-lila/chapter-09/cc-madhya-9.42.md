@@ -2,7 +2,7 @@
 
 > তার্কিক-মীমাংসক, যত মায়াবাদিগণ । সাংখ্য, পাতঞ্জল, স্মৃতি, পুরাণ, আগম । নিজ-নিজ-শাস্ত্রোদ্গ্রাহে সবাই প্রচণ্ড । সর্ব মত দুষি’ প্রভু করে খণ্ড খণ্ড ॥৪২॥
 
-> tārkika-mīmāṁsaka, yata māyāvādi-gaṇa
+> tārkika-mīmāṁsaka, yata māyāvādi-gaṇa\
 > sāṅkhya, pātañjala, smṛti, purāṇa, āgama
 
 *tārkika*—logicians; *mīmāṁsaka*—followers of Mīmāṁsā philosophy; *yata*—all; *māyāvādi-gaṇa*—followers of Śaṅkarācārya; *sāṅkhya*—followers of Kapila; *pātañjala*—followers of mystic *yoga*; *smṛti*—supplementary Vedic literature; *purāṇa*—*Purāṇas*; *āgama*—the *tantra-śāstras.*

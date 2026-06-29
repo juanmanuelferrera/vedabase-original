@@ -1,18 +1,18 @@
 ### SB 1.17.43-44
 
-> स एष एतर्ह्यध्यास्त आसनं पार्थिवोचितम् ।
-> पितामहेनोपन्यस्तं राज्ञारण्यं विविक्षता ॥४३॥
-> आस्तेऽधुना स राजर्षिः कौरवेन्द्रश्रियोल्लसन् ।
+> स एष एतर्ह्यध्यास्त आसनं पार्थिवोचितम् ।\
+> पितामहेनोपन्यस्तं राज्ञारण्यं विविक्षता ॥४३॥\
+> आस्तेऽधुना स राजर्षिः कौरवेन्द्रश्रियोल्लसन् ।\
 > गजाह्वये महाभागश्चक्रवर्ती बृहच्छ्रवाः ॥४४॥
 
-> sa eṣa etarhy adhyāsta
-> āsanaṁ pārthivocitam
-> pitāmahenopanyastaṁ
+> sa eṣa etarhy adhyāsta\
+> āsanaṁ pārthivocitam\
+> pitāmahenopanyastaṁ\
 > rājñāraṇyaṁ vivikṣatā
 
-> āste 'dhunā sa rājarṣiḥ
-> kauravendra-śriyollasan
-> gajāhvaye mahā-bhāgaś
+> āste 'dhunā sa rājarṣiḥ\
+> kauravendra-śriyollasan\
+> gajāhvaye mahā-bhāgaś\
 > cakravartī bṛhac-chravāḥ
 
 *saḥ*—he; *eṣaḥ*—this; *etarhi*—at the present; *adhyāste*—is ruling over; *āsanam*—the throne; *pārthiva-ucitam*—just befitting a king; *pitāmahena*—by the grandfather; *upanyastam*—being handed over; *rājñā*—by the King; *araṇyam*—forest; *vivikṣatā*—desiring; *āste*—is there; *adhunā*—at present; *saḥ*—that; *rāja-ṛṣiḥ*—the sage amongst the kings; *kaurava-indra*—the chief amongst the Kuru kings; *śriyā*—glories; *ullasan*—spreading; *gajāhvaye*—in Hastināpura; *mahā-bhāgaḥ*—the most fortunate; *cakravartī*—the Emperor; *bṛhat-śravāḥ*—highly famous.

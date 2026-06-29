@@ -1,11 +1,11 @@
 ### SB 1.10.27
 
-> अहो बत स्वर्यशसस्तिरस्करी कुशस्थली पुण्ययशस्करी भुवः ।
+> अहो बत स्वर्यशसस्तिरस्करी कुशस्थली पुण्ययशस्करी भुवः ।\
 > पश्यन्ति नित्यं यदनुग्रहेषितं स्मितावलोकं स्वपतिं स्म यत्प्रजाः ॥२७॥
 
-> aho bata svar-yaśasas tiraskarī
-> kuśasthalī puṇya-yaśaskarī bhuvaḥ
-> paśyanti nityaṁ yad anugraheṣitaṁ
+> aho bata svar-yaśasas tiraskarī\
+> kuśasthalī puṇya-yaśaskarī bhuvaḥ\
+> paśyanti nityaṁ yad anugraheṣitaṁ\
 > smitāvalokaṁ sva-patiṁ sma yat-prajāḥ
 
 *aho bata*—how wonderful this is; *svaḥ-yaśasaḥ*—the glories of the heavenly planets; *tiraskarī*—that which defeats; *kuśasthalī*—Dvārakā; *puṇya*—virtue; *yaśaskarī*—famous; *bhuvaḥ*—the planet earth; *paśyanti*—see; *nityam*—constantly; *yat*—that which; *anugraha-iṣitam*—to bestow benediction; *smita-avalokam*—glance with the favor of sweet smiling; *sva-patim*—unto the soul of the living being (Kṛṣṇa); *sma*—used to; *yat-prajāḥ*—the inhabitants of the place.

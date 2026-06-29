@@ -1,9 +1,9 @@
 ### CC Madhya 25.142
 
-> অতএব ভাগবত — সূত্রের ‘অর্থ’-রূপ ৷
+> অতএব ভাগবত — সূত্রের ‘অর্থ’-রূপ ৷\
 > নিজ-কৃত সূত্রের নিজ-‘ভাষ্য’-স্বরূপ ৷৷ ১৪২ ৷৷ ॥১৪২॥
 
-> ataeva bhāgavata-sūtrera 'artha'-rūpa
+> ataeva bhāgavata-sūtrera 'artha'-rūpa\
 > nija-kṛta sūtrera nija-'bhāṣya'-svarūpa
 
 *ataeva*—por lo tanto; *bhāgavata*—el Śrīmad-Bhāgavatam; *sūtrera*—del Brahma-sūtra; *artha*—del significado; *rūpa*—la forma; *nija-kṛta*—hecho por él mismo; *sūtrera*—del Vedānta-sūtra; *nija-bhāṣya*—de su propio comentario; *svarūpa*—la forma original.

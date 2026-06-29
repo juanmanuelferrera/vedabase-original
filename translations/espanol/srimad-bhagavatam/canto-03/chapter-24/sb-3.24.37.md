@@ -1,11 +1,11 @@
 ### SB 3.24.37
 
-> एष आत्मपथोऽव्यक्तो नष्टः कालेन भूयसा ।
+> एष आत्मपथोऽव्यक्तो नष्टः कालेन भूयसा ।\
 > तं प्रवर्तयितुं देहमिमं विद्धि मया भृतम् ॥३७॥
 
-> eṣa ātma-patho 'vyakto
-> naṣṭaḥ kālena bhūyasā
-> taṁ pravartayituṁ deham
+> eṣa ātma-patho 'vyakto\
+> naṣṭaḥ kālena bhūyasā\
+> taṁ pravartayituṁ deham\
 > imaṁ viddhi mayā bhṛtam
 
 *eṣaḥ*—este; *ātma-pathaḥ*—sendero de autorrealización; *avyaktaḥ*—difícil de conocer; *naṣṭaḥ*—perdido; *kālena bhūyasā*—con el paso del tiempo; *tam*—este; *pravartayitum*—para introducir de nuevo; *deham*—cuerpo; *imam*—este; *viddhi*—ten presente, por favor; *mayā*—por Mí; *bhṛtam*—adoptado.

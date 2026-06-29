@@ -1,9 +1,9 @@
 ### CC Madhya 7.9
 
-> তুমি-সব বন্ধু মোর বন্ধুকৃত্য কৈলে ৷
+> তুমি-সব বন্ধু মোর বন্ধুকৃত্য কৈলে ৷\
 > ইহাঁ আনি’ মোরে জগন্নাথ দেখাইলে ৷৷ ৯ ৷৷ ॥৯॥
 
-> tumi-saba bandhu mora bandhu-kṛtya kaile
+> tumi-saba bandhu mora bandhu-kṛtya kaile\
 > ihāṅ āni' more jagannātha dekhāile
 
 *tumi-saba*—todos vosotros; *bandhu*—amigos; *mora*—Mis; *bandhu-kṛtya*—deberes de un amigo; *kaile*—habéis cumplido; *ihāṅ*—aquí; *āni'*—trayendo; *more*—a Mí; *jagannātha*—el Señor Jagannātha; *dekhāile*—me habéis mostrado.

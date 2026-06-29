@@ -1,11 +1,11 @@
 ### SB 3.3.12
 
-> अथ ते भ्रातृपुत्राणां पक्षयोः पतितान्नृपान् ।
+> अथ ते भ्रातृपुत्राणां पक्षयोः पतितान्नृपान् ।\
 > चचाल भूः कुरुक्षेत्रं येषामापततां बलैः ॥१२॥
 
-> atha te bhrātṛ-putrāṇāṁ
-> pakṣayoḥ patitān nṛpān
-> cacāla bhūḥ kurukṣetraṁ
+> atha te bhrātṛ-putrāṇāṁ\
+> pakṣayoḥ patitān nṛpān\
+> cacāla bhūḥ kurukṣetraṁ\
 > yeṣām āpatatāṁ balaiḥ
 
 *atha*—thereafter; *te*—your; *bhrātṛ-putrāṇām*—of the nephews; *pakṣayoḥ*—of both sides; *patitān*—killed; *nṛpān*—kings; *cacāla*—shook; *bhūḥ*—the earth; *kurukṣetram*—the Battle of Kurukṣetra; *yeṣām*—of whom; *āpatatām*—traversing; *balaiḥ*—by strength.

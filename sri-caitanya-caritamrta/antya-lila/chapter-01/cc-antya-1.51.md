@@ -1,9 +1,9 @@
 ### CC Antya 1.51
 
-> আমি গঙ্গাপথে আইলাঙ, তিঁহো রাজপথে  ।
+> আমি গঙ্গাপথে আইলাঙ, তিঁহো রাজপথে  ।\
 > অতএব আমার দেখা নহিল তাঁর সাথে ॥৫১॥
 
-> āmi gaṅgā-pathe āilāṅa, tiṅho rāja-pathe
+> āmi gaṅgā-pathe āilāṅa, tiṅho rāja-pathe\
 > ataeva āmāra dekhā nahila tāṅra sāthe
 
 *āmi*—I; *gaṅgā-pathe*—on the path on the bank of the Ganges; *āilāṅa*—I came; *tiṅho*—he; *rāja-pathe*—on the public road; *ataeva*—therefore; *āmāra*—my; *dekhā*—meeting; *nahila*—was not possible; *tāṅra sāthe*—with him.

@@ -1,13 +1,13 @@
 ### SB 7.9.26
 
-> क्वाहं रजःप्रभव ईश तमोऽधिकेऽस्मिन
-> जातः सुरेतरकुले क्व तवानुकम्पा
-> न ब्रह्मणो न तु भवस्य न वै रमाया
+> क्वाहं रजःप्रभव ईश तमोऽधिकेऽस्मिन\
+> जातः सुरेतरकुले क्व तवानुकम्पा\
+> न ब्रह्मणो न तु भवस्य न वै रमाया\
 > यन्मेऽर्पितः शिरसि पद्मकरः प्रसादः ॥२६॥
 
-> kvāhaṁ rajaḥ-prabhava īśa tamo 'dhike 'smin
-> jātaḥ suretara-kule kva tavānukampā
-> na brahmaṇo na tu bhavasya na vai ramāyā
+> kvāhaṁ rajaḥ-prabhava īśa tamo 'dhike 'smin\
+> jātaḥ suretara-kule kva tavānukampā\
+> na brahmaṇo na tu bhavasya na vai ramāyā\
 > yan me 'rpitaḥ śirasi padma-karaḥ prasādaḥ
 
 *kva*—dónde; *aham*—yo (estoy); *rajaḥ-prabhavaḥ*—haber nacido en un cuerpo lleno de pasión; *īśa*—¡oh, mi Señor!; *tamaḥ*—la modalidad de la ignorancia; *adhike*—superar en; *asmin*—en esto; *jātaḥ*—nacido; *sura-itara-kule*—en una familia de ateos o demonios (que están subordinados a los devotos); *kva*—dónde; *tava*—Tuya; *anukampā*—misericordia sin causa; *na*—no; *brahmaṇaḥ*—del Señor Brahmā; *na*—no; *tu*—pero; *bhavasya*—del Señor Śiva; *na*—ni; *vai*—incluso; *ramāyāḥ*—de la diosa de la fortuna; *yat*—que; *me*—de mí; *arpitaḥ*—ofrecido; *śirasi*—sobre la cabeza; *padma-karaḥ*—la mano de loto; *prasādaḥ*—el símbolo de la misericordia.

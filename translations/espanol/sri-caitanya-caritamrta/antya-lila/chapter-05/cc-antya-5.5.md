@@ -2,7 +2,7 @@
 
 > “শুন, প্রভু, মুঞি দীন গৃহস্থ অধম ! কোন ভাগ্যে পাঞাছোঁ তোমার দুর্লভ চরণ ॥৫॥
 
-> "śuna, prabhu, muñi dīna gṛhastha adhama!
+> "śuna, prabhu, muñi dīna gṛhastha adhama!\
 > kona bhāgye pāñāchoṅ tomāra durlabha caraṇa
 
 *śuna*—por favor escucha; *prabhu*—mi Señor; *muñi*—yo; *dīna*—muy caído; *gṛhastha*—cabeza de familia; *adhama*—el más bajo de los hombres; *kona bhāgye*—por alguna buena fortuna; *pāñāchoṅ*—he obtenido; *tomāra*—Tus; *durlabha*—rara vez alcanzados; *caraṇa*—pies de loto.

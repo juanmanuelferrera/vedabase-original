@@ -1,11 +1,11 @@
 ### SB 9.13.3
 
-> निमित्तश्चलमिदं विद्वान्सत्रमारभतामात्मवान
+> निमित्तश्चलमिदं विद्वान्सत्रमारभतामात्मवान\
 > ऋत्विग्भिरपरैस्तावन्नागमद्यावता गुरुः ॥३॥
 
-> nimiś calam idaṁ vidvān
-> satram ārabhatātmavān
-> ṛtvigbhir aparais tāvan
+> nimiś calam idaṁ vidvān\
+> satram ārabhatātmavān\
+> ṛtvigbhir aparais tāvan\
 > nāgamad yāvatā guruḥ
 
 *nimiḥ*—Mahārāja Nimi; *calam*—frágil, que puede terminar en cualquier momento; *idam*—esta (vida); *vidvān*—perfectamente consciente de este hecho; *satram*—el sacrificio; *ārabhata*—inauguró; *ātmavān*—persona autorrealizada; *ṛtvigbhiḥ*—con sacerdotes; *aparaiḥ*—distintos de Vasiṣṭha; *tāvat*—en ese entonces; *na*—no; *āgamat*—regresó; *yāvatā*—durante tanto tiempo; *guruḥ*—su maestro espiritual (Vasiṣṭha).

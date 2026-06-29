@@ -1,9 +1,9 @@
 ### CC Antya 3.160
 
-> আসি’ সেই দুর্গামণ্ডপে বাসা কৈল ।
+> আসি’ সেই দুর্গামণ্ডপে বাসা কৈল ।\
 > অবধ্য বধ করি’ মাংস সে-ঘরে রান্ধাইল ॥১৬০॥
 
-> āsi' sei durgā-maṇḍape vāsā kaila
+> āsi' sei durgā-maṇḍape vāsā kaila\
 > avadhya vadha kari' māṁsa se-ghare rāndhāila
 
 *āsi'*—al llegar; *sei durgā-maṇḍape*—en ese mismo lugar del Durgā-maṇḍapa; *vāsā kaila*—estableció su residencia; *avadhya*—una vaca o ternero, que no debe ser matado; *vadha kari'*—matando; *māṁsa*—carne; *se-ghare*—en ese lugar; *rāndhāila*—cocinó.

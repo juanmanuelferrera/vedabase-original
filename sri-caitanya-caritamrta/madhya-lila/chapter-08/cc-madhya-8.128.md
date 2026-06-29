@@ -1,9 +1,9 @@
 ### CC Madhya 8.128
 
-> কিবা বিপ্র, কিবা ন্যাসী, শূদ্র কেনে নয় ।
+> কিবা বিপ্র, কিবা ন্যাসী, শূদ্র কেনে নয় ।\
 > যেই কৃষ্ণতত্ত্ববেত্তা, সেই ‘গুরু’ হয় ॥১২৮॥
 
-> kibā vipra, kibā nyāsī, śūdra kene naya
+> kibā vipra, kibā nyāsī, śūdra kene naya\
 > yei kṛṣṇa-tattva-vettā, sei 'guru' haya
 
 *kibā*—whether; *vipra*—a *brāhmaṇa*; *kibā*—whether; *nyāsī*—a *sannyāsī*; *śūdra*—a *śūdra*; *kene*—why; *naya*—not; *yei*—anyone who; *kṛṣṇa-tattva-vettā*—a knower of the science of Kṛṣṇa; *sei*—that person; *guru*—the spiritual master; *haya*—is.

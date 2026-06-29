@@ -1,13 +1,13 @@
 ### SB 4.10.1
 
-> मैत्रेय उवाच
-> प्रजापतेर्दुहितरं शिशुमारस्य वै ध्रुवः ।
+> मैत्रेय उवाच\
+> प्रजापतेर्दुहितरं शिशुमारस्य वै ध्रुवः ।\
 > उपयेमे भ्रमिं नाम तत्सुतौ कल्पवत्सरौ ॥१॥
 
-> maitreya uvāca
-> prajāpater duhitaraṁ
-> śiśumārasya vai dhruvaḥ
-> upayeme bhramiṁ nāma
+> maitreya uvāca\
+> prajāpater duhitaraṁ\
+> śiśumārasya vai dhruvaḥ\
+> upayeme bhramiṁ nāma\
 > tat-sutau kalpa-vatsarau
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya continuó; *prajāpateḥ*—del *prajāpati*; *duhitaram*—hija; *śiśumārasya*—de Śiśumāra; *vai*—ciertamente; *dhruvaḥ*—Dhruva Mahārāja; *upayeme*—se casó; *bhramim*—Bhrami; *nāma*—llamada; *tat-sutau*—sus hijos; *kalpa*—Kalpa; *vatsarau*—Vatsara.

@@ -1,11 +1,11 @@
 ### SB 8.3.4
 
-> यः स्वात्मनीदं निजमाययार्पितं क्वचिद्विभातं क्व च तत्तिरोहितम
+> यः स्वात्मनीदं निजमाययार्पितं क्वचिद्विभातं क्व च तत्तिरोहितम\
 > अविद्धदृक्साक्ष्युभयं तदीक्षते स आत्ममूलोऽवतु मां परात्परः ॥४॥
 
-> yaḥ svātmanīdaṁ nija-māyayārpitaṁ
-> kvacid vibhātaṁ kva ca tat tirohitam
-> aviddha-dṛk sākṣy ubhayaṁ tad īkṣate
+> yaḥ svātmanīdaṁ nija-māyayārpitaṁ\
+> kvacid vibhātaṁ kva ca tat tirohitam\
+> aviddha-dṛk sākṣy ubhayaṁ tad īkṣate\
 > sa ātma-mūlo 'vatu māṁ parāt-paraḥ
 
 *yaḥ*—the Supreme Personality of Godhead who; *sva-ātmani*—in Him; *idam*—this cosmic manifestation; *nija-māyayā*—by His own potency; *arpitam*—invested; *kvacit*—sometimes, at the beginning of a *kalpa*; *vibhātam*—it is manifested; *kva ca*—sometimes, during dissolution; *tat*—that (manifestation); *tirohitam*—not visible; *aviddha-dṛk*—He sees everything (in all these circumstances); *sākṣī*—the witness; *ubhayam*—both (manifestation and annihilation); *tat īkṣate*—sees everything, without loss of sight; *saḥ*—that Supreme Personality of Godhead; *ātma-mūlaḥ*—self-sufficient, having no other cause; *avatu*—please give protection; *mām*—unto me; *parāt-paraḥ*—He is transcendental to transcendental, or above all transcendence.

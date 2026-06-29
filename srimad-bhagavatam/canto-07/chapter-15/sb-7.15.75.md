@@ -1,11 +1,11 @@
 ### SB 7.15.75
 
-> यूयं नृलोके बत भूरिभागा लोकं पुनाना मुनयोऽभियन्ति
+> यूयं नृलोके बत भूरिभागा लोकं पुनाना मुनयोऽभियन्ति\
 > येषां गृहानावसतीति साक्षाद्गूढं परं ब्रह्म मनुष्यलिङ्गम ॥७५॥
 
-> yūyaṁ nṛ-loke bata bhūri-bhāgā
-> lokaṁ punānā munayo 'bhiyanti
-> yeṣāṁ gṛhān āvasatīti sākṣād
+> yūyaṁ nṛ-loke bata bhūri-bhāgā\
+> lokaṁ punānā munayo 'bhiyanti\
+> yeṣāṁ gṛhān āvasatīti sākṣād\
 > gūḍhaṁ paraṁ brahma manuṣya-liṅgam
 
 *yūyam*—all of you Pāṇḍavas; *nṛ-loke*—in this material world; *bata*—indeed; *bhūri-bhāgāḥ*—extremely fortunate; *lokam*—all the planets of the universe; *punānāḥ*—who can purify; *munayaḥ*—great saintly persons; *abhiyanti*—come to visit (just like ordinary persons); *yeṣām*—of whom; *gṛhān*—the house of the Pāṇḍavas; *āvasati*—resides; *iti*—thus; *sākṣāt*—directly; *gūḍham*—very confidential; *param*—transcendental; *brahma*—the Parabrahman, Kṛṣṇa; *manuṣya-liṅgam*—as if an ordinary human being.

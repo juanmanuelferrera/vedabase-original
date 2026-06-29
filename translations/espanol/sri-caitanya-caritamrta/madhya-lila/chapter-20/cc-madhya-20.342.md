@@ -1,11 +1,11 @@
 ### CC Madhya 20.342
 
-> কৃষ্ণবর্ণং ত্বিষাঽকৃষ্ণং সাঙ্গোপাঙ্গাস্ত্রপার্ষদম্ ।
+> কৃষ্ণবর্ণং ত্বিষাঽকৃষ্ণং সাঙ্গোপাঙ্গাস্ত্রপার্ষদম্ ।\
 > যজ্ঞৈঃ সঙ্কীর্তন-প্রায়ৈর্যজন্তি হি সুমেধসঃ ॥৩৪২॥
 
-> kṛṣṇa-varṇaṁ tviṣākṛṣṇam-
-> sāṅgopāṅgāstra-pārṣadam
-> yajñaiḥ saṅkīrtana-prāyair
+> kṛṣṇa-varṇaṁ tviṣākṛṣṇam-\
+> sāṅgopāṅgāstra-pārṣadam\
+> yajñaiḥ saṅkīrtana-prāyair\
 > yajanti hi su-medhasaḥ
 
 *kṛṣṇa-varṇam*—repitiendo las sílabas kṛṣ-ṇa; *tviṣā*—con un lustre; *akṛṣṇam*—no negro (dorado); *sa-aṅga*—con asociados; *upāṅga*—servidores; *astra*—armas; *pārṣadam*—compañeros confidenciales; *yajñaiḥ*—mediante sacrificio; *saṅkīrtana-prāyaiḥ*—consistente principalmente en canto congregacional; *yajanti*—adoran; *hi*—ciertamente; *su-medhasaḥ*—personas inteligentes.

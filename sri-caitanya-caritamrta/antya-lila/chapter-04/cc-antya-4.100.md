@@ -1,9 +1,9 @@
 ### CC Antya 4.100
 
-> অবতারকার্য প্রভুর — নামপ্রচারে ।
+> অবতারকার্য প্রভুর — নামপ্রচারে ।\
 > সেই নিজকার্য প্রভু করেন তোমার দ্বারে ॥১০০॥
 
-> avatāra-kārya prabhura—nāma-pracāre
+> avatāra-kārya prabhura—nāma-pracāre\
 > sei nija-kārya prabhu karena tomāra dvāre
 
 *avatāra-kārya*—mission of the incarnation; *prabhura*—of Śrī Caitanya Mahāprabhu; *nāma-pracāre*—spreading the importance of the holy name of the Lord; *sei*—that; *nija-kārya*—mission of His life; *prabhu*—Śrī Caitanya Mahāprabhu; *karena*—performs; *tomāra dvāre*—through you.

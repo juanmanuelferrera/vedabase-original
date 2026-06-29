@@ -1,11 +1,11 @@
 ### SB 9.4.67
 
-> मत्सेवया प्रतीतं ते सालोक्यादिचतुष्टयम
+> मत्सेवया प्रतीतं ते सालोक्यादिचतुष्टयम\
 > नेच्छन्ति सेवया पूर्णाः कुतोऽन्यत्कालविप्लुतम ॥६७॥
 
-> mat-sevayā pratītaṁ te
-> sālokyādi-catuṣṭayam
-> necchanti sevayā pūrṇāḥ
+> mat-sevayā pratītaṁ te\
+> sālokyādi-catuṣṭayam\
+> necchanti sevayā pūrṇāḥ\
 > kuto 'nyat kāla-viplutam
 
 *mat-sevayā*—por dedicarse por entero a Mi servicio amoroso trascendental; *pratītam*—obtenidos de modo natural; *te*—esos devotos puros están perfectamente satisfechos; *sālokya-ādi-catuṣṭayam*—los cuatro tipos de liberación (*sālokya, sārūpya, sāmīpya* y *sārṣṭi*, por no hablar de *sāyujya*); *na*—no; *icchanti*—desean; *sevayā*—simplemente con servicio devocional; *pūrṇāḥ*—perfectamente completo; *kutaḥ*—qué sentido tienen; *anyat*—otras cosas; *kāla-viplutam*—que se terminan con el paso del tiempo.

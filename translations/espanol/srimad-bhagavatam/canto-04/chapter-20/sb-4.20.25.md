@@ -1,11 +1,11 @@
 ### SB 4.20.25
 
-> स उत्तमश्लोक महन्मुखच्युतो भवत्पदाम्भोजसुधा कणानिलः ।
+> स उत्तमश्लोक महन्मुखच्युतो भवत्पदाम्भोजसुधा कणानिलः ।\
 > स्मृतिं पुनर्विस्मृततत्त्ववर्त्मनां कुयोगिनां नो वितरत्यलं वरैः ॥२५॥
 
-> sa uttamaśloka mahan-mukha-cyuto
-> bhavat-padāmbhoja-sudhā kaṇānilaḥ
-> smṛtiṁ punar vismṛta-tattva-vartmanāṁ
+> sa uttamaśloka mahan-mukha-cyuto\
+> bhavat-padāmbhoja-sudhā kaṇānilaḥ\
+> smṛtiṁ punar vismṛta-tattva-vartmanāṁ\
 > kuyogināṁ no vitaraty alaṁ varaiḥ
 
 *saḥ*—ese; *uttama-śloka*—¡oh, Señor a quien se alaba con versos selectos!; *mahat*—de grandes devotos; *mukha-cyutaḥ*—pronunciadas por las bocas; *bhavat*—Tus; *pada-ambhoja*—de los pies de loto; *sudhā*—de néctar; *kaṇa*—partículas; *anilaḥ*—brisa refrescante; *smṛtim*—recuerdo; *punaḥ*—de nuevo; *vismṛta*—olvidado; *tattva*—a la verdad; *vartmanām*—de personas cuyo sendero; *ku-yoginām*—de personas que no siguen la línea del servicio devocional; *naḥ*—de nosotros; *vitarati*—devuelve; *alam*—innecesarias; *varaiḥ*—otras bendiciones.

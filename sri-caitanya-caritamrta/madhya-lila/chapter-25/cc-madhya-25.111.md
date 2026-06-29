@@ -1,9 +1,9 @@
 ### CC Madhya 25.111
 
-> সৃষ্টি করি’ তার মধ্যে আমি প্রবেশিয়ে ।
+> সৃষ্টি করি’ তার মধ্যে আমি প্রবেশিয়ে ।\
 > প্রপঞ্চ যে দেখ সব, সেহ আমি হইয়ে ॥১১১॥
 
-> sṛṣṭi kari' tāra madhye āmi praveśiye
+> sṛṣṭi kari' tāra madhye āmi praveśiye\
 > prapañca ye dekha saba, seha āmi ha-iye
 
 *sṛṣṭi kari'*—after creating; *tāra madhye*—within the creation; *āmi praveśiye*—I enter as Lord Viṣṇu; *prapañca*—the cosmic manifestation; *ye*—whatever; *dekha*—you see; *saba*—all; *seha*—that; *āmi ha-iye*—I am.

@@ -1,9 +1,9 @@
 ### CC Madhya 4.14
 
-> তাঁর পাদপদ্ম নিকট প্রণাম করিতে ।
+> তাঁর পাদপদ্ম নিকট প্রণাম করিতে ।\
 > তাঁর পুষ্প-চূড়া পড়িল প্ৰভুর মাথাতে ॥১৪॥
 
-> tāṅra pāda-padma nikaṭa praṇāma karite
+> tāṅra pāda-padma nikaṭa praṇāma karite\
 > tāṅra puṣpa-cūḍā paḍila prabhura māthāte
 
 *tāṅra pāda-padma*—the lotus feet of Gopīnātha; *nikaṭa*—near; *praṇāma*—obeisances; *karite*—while offering; *tāṅra*—His; *puṣpa-cūḍā*—helmet of flowers; *paḍila*—fell down; *prabhura*—of the Lord; *māthāte*—on the head.

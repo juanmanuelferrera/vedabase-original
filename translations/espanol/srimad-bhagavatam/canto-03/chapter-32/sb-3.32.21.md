@@ -1,11 +1,11 @@
 ### SB 3.32.21
 
-> ततस्ते क्षीणसुकृताः पुनर्लोकमिमं सति ।
+> ततस्ते क्षीणसुकृताः पुनर्लोकमिमं सति ।\
 > पतन्ति विवशा देवैः सद्यो विभ्रंशितोदयाः ॥२१॥
 
-> tatas te kṣīṇa-sukṛtāḥ
-> punar lokam imaṁ sati
-> patanti vivaśā devaiḥ
+> tatas te kṣīṇa-sukṛtāḥ\
+> punar lokam imaṁ sati\
+> patanti vivaśā devaiḥ\
 > sadyo vibhraṁśitodayāḥ
 
 *tataḥ*—entonces; *te*—ellos; *kṣīṇa*—agotados; *su-kṛtāḥ*—resultados de sus actividades piadosas; *punaḥ*—de nuevo; *lokam imam*—a este planeta; *sati*—¡oh, madre virtuosa!; *patanti*—caen; *vivaśāḥ*—desamparados; *devaiḥ*—por disposiciones superiores; *sadyaḥ*—repentinamente; *vibhraṁśita*—hechos caer; *udayāḥ*—su prosperidad.

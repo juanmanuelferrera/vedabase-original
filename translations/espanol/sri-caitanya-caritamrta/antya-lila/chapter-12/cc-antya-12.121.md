@@ -1,9 +1,9 @@
 ### CC Antya 12.121
 
-> তৃতীয় দিবসে প্রভু তাঁর দ্বারে যাঞা ।
+> তৃতীয় দিবসে প্রভু তাঁর দ্বারে যাঞা ।\
 > ‘উঠহ’ পণ্ডিত’ — করি’ কহেন ডাকিয়া ॥১২১॥
 
-> tṛtīya divase prabhu tāṅra dvāre yāñā
+> tṛtīya divase prabhu tāṅra dvāre yāñā\
 > 'uṭhaha' paṇḍita'--kari' kahena ḍākiyā
 
 *tṛtīya divase*—al tercer día; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅra*—de Jagadānanda Paṇḍita; *dvāre*—a la puerta; *yāñā*—yendo; *uṭhaha'*—por favor levántate; *paṇḍita*—Mi querido Jagadānanda Paṇḍita; *kari'*—diciendo; *kahena*—dijo; *ḍākiyā*—llamando.

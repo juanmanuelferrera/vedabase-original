@@ -1,11 +1,11 @@
 ### SB 9.9.9
 
-> तथेति राज्ञआभिहितं सर्वलोकहितः शिवः
+> तथेति राज्ञआभिहितं सर्वलोकहितः शिवः\
 > दधारावहितो गङ्गां पादपूतजलां हरेः ॥९॥
 
-> tatheti rājñābhihitaṁ
-> sarva-loka-hitaḥ śivaḥ
-> dadhārāvahito gaṅgāṁ
+> tatheti rājñābhihitaṁ\
+> sarva-loka-hitaḥ śivaḥ\
+> dadhārāvahito gaṅgāṁ\
 > pāda-pūta-jalāṁ hareḥ
 
 *tathā*—(que sea) así; *iti*—de este modo; *rājñā abhihitam*—tras escuchar la propuesta del rey (Bhagīratha); *sarva-loka-hitaḥ*—la Personalidad de Dios, que siempre es auspicioso para todos; *śivaḥ*—el Señor Śiva; *dadhāra*—sostuvo; *avahitaḥ*—con gran atención; *gaṅgām*—el Ganges; *pāda-pūta-jalām hareḥ*—cuyas aguas son puras y trascendentales debido a que emanan de los dedos de los pies de la Suprema Personalidad de Dios Viṣṇu.

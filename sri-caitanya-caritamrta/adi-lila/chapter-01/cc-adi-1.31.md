@@ -1,9 +1,9 @@
 ### CC Adi 1.31
 
-> সকল বৈষ্ণব, শুন করি’ একমন ।
+> সকল বৈষ্ণব, শুন করি’ একমন ।\
 > চৈতন্য-কৃষ্ণের শাস্ত্র-মত-নিরূপণ ॥৩১॥
 
-> sakala vaiṣṇava, śuna kari' eka-mana
+> sakala vaiṣṇava, śuna kari' eka-mana\
 > caitanya-kṛṣṇera śāstra-mata-nirūpaṇa
 
 *sakala*—all; *vaiṣṇava*—O devotees of the Lord; *śuna*—please hear; *kari'*—making; *eka-mana*—rapt attention; *caitanya*—Lord Caitanya Mahāprabhu; *kṛṣṇera*—of Lord Śrī Kṛṣṇa; *śāstra*—scriptural reference; *mata*—according to; *nirūpaṇa*—decision.

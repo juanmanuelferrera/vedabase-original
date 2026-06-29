@@ -1,13 +1,13 @@
 ### SB 3.11.18
 
-> मैत्रेय उवाच
-> कृतं त्रेता द्वापरं च कलिश्चेति चतुर्युगम् ।
+> मैत्रेय उवाच\
+> कृतं त्रेता द्वापरं च कलिश्चेति चतुर्युगम् ।\
 > दिव्यैर्द्वादशभिर्वर्षैः सावधानं निरूपितम् ॥१८॥
 
-> maitreya uvāca
-> kṛtaṁ tretā dvāparaṁ ca
-> kaliś ceti catur-yugam
-> divyair dvādaśabhir varṣaiḥ
+> maitreya uvāca\
+> kṛtaṁ tretā dvāparaṁ ca\
+> kaliś ceti catur-yugam\
+> divyair dvādaśabhir varṣaiḥ\
 > sāvadhānaṁ nirūpitam
 
 *maitreyaḥ uvāca*—Maitreya said; *kṛtam*—the age of Satya; *tretā*—the age of Tretā; *dvāparam*—the age of Dvāpara; *ca*—also; *kaliḥ*—the age of Kali; *ca*—and; *iti*—thus; *catuḥ-yugam*—four millenniums; *divyaiḥ*—of the demigods; *dvādaśabhiḥ*—twelve; *varṣaiḥ*—thousands of years; *sa-avadhānam*—approximately; *nirūpitam*—ascertained.

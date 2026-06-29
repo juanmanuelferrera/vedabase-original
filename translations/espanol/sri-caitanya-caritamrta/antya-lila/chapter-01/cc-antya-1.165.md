@@ -1,13 +1,13 @@
 ### CC Antya 1.165
 
-> অয়ং নয়নদণ্ডিতপ্রবরপুণ্ডরীকপ্রভঃ
-> প্রভাতি নবজাগুড়-দ্যুতিবিড়ম্বি-পীতাম্বরঃ ।
-> অরণ্যজপরিষ্ক্রিয়া-দমিতদিব্যবেশাদরো
+> অয়ং নয়নদণ্ডিতপ্রবরপুণ্ডরীকপ্রভঃ\
+> প্রভাতি নবজাগুড়-দ্যুতিবিড়ম্বি-পীতাম্বরঃ ।\
+> অরণ্যজপরিষ্ক্রিয়া-দমিতদিব্যবেশাদরো\
 > হরিন্মণিমনোহরদ্যুতিভিরুজ্জ্বলাঙ্গো হরিঃ ॥১৬৫॥
 
-> ayaṁ nayana-daṇḍita-pra vara-puṇḍarīka-prabhaḥ
-> prabhāti nava-jāguḍa-dyuti-viḍambi-pītāmbaraḥ
-> araṇyaja-pariṣkriyā-damita-divya-veśādaro
+> ayaṁ nayana-daṇḍita-pra vara-puṇḍarīka-prabhaḥ\
+> prabhāti nava-jāguḍa-dyuti-viḍambi-pītāmbaraḥ\
+> araṇyaja-pariṣkriyā-damita-divya-veśādaro\
 > harin-maṇi-manohara-dyutibhir ujjvalāṅgo hariḥ
 
 *ayam*—este; *nayana*—por cuyos bellos ojos; *daṇḍita*—derrotado; *pravara*—el mejor; *puṇḍarīka-prabhaḥ*—el resplandor de la flor de loto blanca; *prabhāti*—luce hermoso; *nava-jāguḍa-dyuti*—el brillo de *viḍambi* recién aplicado; *viḍambi*—burlando; *pīta-ambaraḥ*—cuyo vestido amarillo; *araṇya-ja*—recogidos del bosque; *pariṣkriyā*—por cuyos adornos; *damita*—sometido; *divya-veśa-ādaraḥ*—el anhelo por vestidos de primera clase; *harin-maṇi*—de esmeraldas; *manohara*—que cautiva la mente; *dyutibhiḥ*—con esplendor; *ujjvala-aṅgaḥ*—cuyo hermoso cuerpo; *hariḥ*—la Suprema Personalidad de Dios.

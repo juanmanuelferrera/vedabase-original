@@ -1,11 +1,11 @@
 ### SB 8.8.36
 
-> धन्वन्तरिरिति ख्यात आयुर्वेददृगिज्यभाक
+> धन्वन्तरिरिति ख्यात आयुर्वेददृगिज्यभाक\
 > तमालोक्यासुराः सर्वे कलसं चामृताभृतम ॥३६॥
 
-> nīyamāne 'surais tasmin
-> kalase 'mṛta-bhājane
-> viṣaṇṇa-manaso devā
+> nīyamāne 'surais tasmin\
+> kalase 'mṛta-bhājane\
+> viṣaṇṇa-manaso devā\
 > hariṁ śaraṇam āyayuḥ
 
 *nīyamāne*—llevado; *asuraiḥ*—por los demonios; *tasmin*—ese; *kalase*—jarro; *amṛta-bhājane*—lleno de néctar; *viṣaṇṇa-manasaḥ*—con la mente afligida; *devāḥ*—todos los semidioses; *harim*—al Señor Supremo; *śaraṇam*—a refugiarse; *āyayuḥ*—fueron.

@@ -1,11 +1,11 @@
 ### SB 1.8.19
 
-> मायाजवनिकाच्छन्नमज्ञाधोक्षजमव्ययम् ।
+> मायाजवनिकाच्छन्नमज्ञाधोक्षजमव्ययम् ।\
 > न लक्ष्यसे मूढदृशा नटो नाट्यधरो यथा ॥१९॥
 
-> māyā-javanikācchannam
-> ajñādhokṣajam avyayam
-> na lakṣyase mūḍha-dṛśā
+> māyā-javanikācchannam\
+> ajñādhokṣajam avyayam\
+> na lakṣyase mūḍha-dṛśā\
 > naṭo nāṭyadharo yathā
 
 *māyā*—engañadora; *javanikā*—cortina; *ācchannam*—cubierto por; *ajñā*—ignorante; *adhokṣajam*—más allá del alcance del concepto material (trascendental); *avyayam*—irreprochable; *na*—no; *lakṣyase*—observado; *mūḍha-dṛśā*—por el observador necio; *naṭaḥ*—artista; *nāṭya-dharaḥ*—vestido como un actor; *yathā*—como.

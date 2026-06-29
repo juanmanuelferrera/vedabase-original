@@ -1,9 +1,9 @@
 ### CC Adi 3.15
 
-> সকল জগতে মোরে করে বিধি-ভক্তি ।
+> সকল জগতে মোরে করে বিধি-ভক্তি ।\
 > বিধি-ভক্ত্যে ব্রজভাব পাইতে নাহি শক্তি ॥১৫॥
 
-> sakala jagate more kare vidhi-bhakti
+> sakala jagate more kare vidhi-bhakti\
 > vidhi-bhaktye vraja-bhāva pāite nāhi śakti
 
 *sakala*—todo; *jagate*—en el universo; *more*—a Mí; *kare*—hacen; *vidhi-bhakti*—servicio devocional regulado; *vidhi-bhaktye*—mediante el servicio devocional regulado; *vraja-bhāva*—los sentimientos de los de Vraja; *pāite*—obtener; *nāhi*—no; *śakti*—la capacidad.

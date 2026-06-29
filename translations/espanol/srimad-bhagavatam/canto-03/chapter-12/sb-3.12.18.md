@@ -1,11 +1,11 @@
 ### SB 3.12.18
 
-> तप आतिष्ठ भद्रं ते सर्वभूतसुखावहम् ।
+> तप आतिष्ठ भद्रं ते सर्वभूतसुखावहम् ।\
 > तपसैव यथा पूर्वं स्रष्टा विश्वमिदं भवान् ॥१८॥
 
-> tapa ātiṣṭha bhadraṁ te
-> sarva-bhūta-sukhāvaham
-> tapasaiva yathā pūrvaṁ
+> tapa ātiṣṭha bhadraṁ te\
+> sarva-bhūta-sukhāvaham\
+> tapasaiva yathā pūrvaṁ\
 > sraṣṭā viśvam idaṁ bhavān
 
 *tapaḥ*—penitencia; *ātiṣṭha*—sitúate; *bhadram*—auspiciosa; *te*—para ti; *sarva*—todas; *bhūta*—entidades vivientes; *sukha-āvaham*—que reporta felicidad; *tapasā*—por medio de la penitencia; *eva*—solamente; *yathā*—tanto como; *pūrvam*—antes; *sraṣṭā*—crearás; *viśvam*—el universo; *idam*—este; *bhavān*—tú mismo.

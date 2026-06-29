@@ -1,9 +1,9 @@
 ### CC Antya 4.237
 
-> এই ত’ কহিলুঁ পুনঃ সনাতন-সঙ্গমে ।
+> এই ত’ কহিলুঁ পুনঃ সনাতন-সঙ্গমে ।\
 > প্রভুর আশয় জানি যাহার শ্রবণে ॥২৩৭॥
 
-> ei ta' kahiluṅ punaḥ sanātana-saṅgame
+> ei ta' kahiluṅ punaḥ sanātana-saṅgame\
 > prabhura āśaya jāni yāhāra śravaṇe
 
 *ei ta' kahiluṅ*—thus I have described; *punaḥ*—again; *sanātana-saṅgame*—the meeting with Sanātana Gosvāmī; *prabhura āśaya*—Lord Śrī Caitanya Mahāprabhu's desire; *jāni*—I can understand; *yāhāra śravaṇe*—by hearing of which.

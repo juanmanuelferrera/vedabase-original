@@ -1,13 +1,13 @@
 ### SB 3.15.36
 
-> भूयादघोनि भगवद्भिरकारि दण्डो
-> यो नौ हरेत सुरहेलनमप्यशेषम् ।
-> मा वोऽनुतापकलया भगवत्स्मृतिघ्नो
+> भूयादघोनि भगवद्भिरकारि दण्डो\
+> यो नौ हरेत सुरहेलनमप्यशेषम् ।\
+> मा वोऽनुतापकलया भगवत्स्मृतिघ्नो\
 > मोहो भवेदिह तु नौ व्रजतोरधोऽधः ॥३६॥
 
-> bhūyād aghoni bhagavadbhir akāri daṇḍo
-> yo nau hareta sura-helanam apy aśeṣam
-> mā vo 'nutāpa-kalayā bhagavat-smṛti-ghno
+> bhūyād aghoni bhagavadbhir akāri daṇḍo\
+> yo nau hareta sura-helanam apy aśeṣam\
+> mā vo 'nutāpa-kalayā bhagavat-smṛti-ghno\
 > moho bhaved iha tu nau vrajator adho 'dhaḥ
 
 *bhūyāt*—que así sea; *aghoni*—para el pecador; *bhagavadbhiḥ*—por ustedes; *akāri*—se hizo; *daṇḍaḥ*—castigo; *yaḥ*—el cual; *nau*—en relación con nosotros; *hareta*—debe destruir; *sura-helanam*—desobedecer a grandes semidioses; *api*—ciertamente; *aśeṣam*—ilimitado; *mā*—no; *vaḥ*—de ustedes; *anutāpa*—arrepentimiento; *kalayā*—por un pequeño; *bhagavat*—de la Suprema Personalidad de Dios; *smṛti-ghnaḥ*—destruyendo la memoria de; *mohaḥ*—ilusión; *bhavet*—debe ser; *iha*—en las especies de vida necias; *tu*—pero; *nau*—de nosotros; *vrajatoḥ*—que estamos yendo; *adhaḥ adhaḥ*—descendiendo al mundo material.

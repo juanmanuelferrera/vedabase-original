@@ -1,13 +1,13 @@
 ### SB 6.13.3
 
-> श्रीराजोवाच
-> इन्द्रस्यानिर्वृतेर्हेतुं श्रोतुमिच्छामि भो मुने
+> श्रीराजोवाच\
+> इन्द्रस्यानिर्वृतेर्हेतुं श्रोतुमिच्छामि भो मुने\
 > येनासन्सुखिनो देवा हरेर्दुःखं कुतोऽभवत ॥३॥
 
-> śrī-rājovāca
-> indrasyānirvṛter hetuṁ
-> śrotum icchāmi bho mune
-> yenāsan sukhino devā
+> śrī-rājovāca\
+> indrasyānirvṛter hetuṁ\
+> śrotum icchāmi bho mune\
+> yenāsan sukhino devā\
 > harer duḥkhaṁ kuto 'bhavat
 
 *śrī-rājā uvāca*—el rey Parīkṣit preguntó; *indrasya*—del rey Indra; *anirvṛteḥ*—de la pesadumbre; *hetum*—la razón; *śrotum*—escuchar; *icchāmi*—yo deseo; *bhoḥ*—¡oh, mi señor!; *mune*—¡oh, gran sabio, Śukadeva Gosvāmī!; *yena*—por lo cual; *āsan*—estaban; *sukhinaḥ*—muy felices; *devāḥ*—todos los semidioses; *hareḥ*—de Indra; *duḥkham*—pesadumbre; *kutaḥ*—de dónde; *abhavat*—había.

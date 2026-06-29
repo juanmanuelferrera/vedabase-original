@@ -1,11 +1,11 @@
 ### SB 3.31.44
 
-> जीवो ह्यस्यानुगो देहो भूतेन्द्रियमनोमयः ।
+> जीवो ह्यस्यानुगो देहो भूतेन्द्रियमनोमयः ।\
 > तन्निरोधोऽस्य मरणमाविर्भावस्तु सम्भवः ॥४४॥
 
-> jīvo hy asyānugo deho
-> bhūtendriya-mano-mayaḥ
-> tan-nirodho 'sya maraṇam
+> jīvo hy asyānugo deho\
+> bhūtendriya-mano-mayaḥ\
+> tan-nirodho 'sya maraṇam\
 > āvirbhāvas tu sambhavaḥ
 
 *jīvaḥ*—the living entity; *hi*—indeed; *asya*—of him; *anugaḥ*—suitable; *dehaḥ*—body; *bhūta*—gross material elements; *indriya*—senses; *manaḥ*—mind; *mayaḥ*—made of; *tat*—of the body; *nirodhaḥ*—destruction; *asya*—of the living entity; *maraṇam*—death; *āvirbhāvaḥ*—manifestation; *tu*—but; *sambhavaḥ*—birth.

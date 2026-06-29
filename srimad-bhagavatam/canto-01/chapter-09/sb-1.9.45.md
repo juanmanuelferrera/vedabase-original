@@ -1,11 +1,11 @@
 ### SB 1.9.45
 
-> तत्र दुन्दुभयो नेदुर्देवमानववादिताः ।
+> तत्र दुन्दुभयो नेदुर्देवमानववादिताः ।\
 > शशंसुः साधवो राज्ञां खात्पेतुः पुष्पवृष्टयः ॥४५॥
 
-> tatra dundubhayo nedur
-> deva-mānava-vāditāḥ
-> śaśaṁsuḥ sādhavo rājñāṁ
+> tatra dundubhayo nedur\
+> deva-mānava-vāditāḥ\
+> śaśaṁsuḥ sādhavo rājñāṁ\
 > khāt petuḥ puṣpa-vṛṣṭayaḥ
 
 *tatra*—thereafter; *dundubhayaḥ*—drums; *neduḥ*—were sounded; *deva*—the demigods from other planets; *mānava*—men from all countries; *vāditāḥ*—beaten by; *śaśaṁsuḥ*—praised; *sādhavaḥ*—honest; *rājñām*—by the royal order; *khāt*—from the sky; *petuḥ*—began to fall; *puṣpa-vṛṣṭayaḥ*—showers of flowers.

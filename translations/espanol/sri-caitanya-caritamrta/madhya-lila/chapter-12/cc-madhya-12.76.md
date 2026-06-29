@@ -1,9 +1,9 @@
 ### CC Madhya 12.76
 
-> তোমার যোগ্য সেবা নহে মন্দির-মার্জন ।
+> তোমার যোগ্য সেবা নহে মন্দির-মার্জন ।\
 > এই এক লীলা কর, যে তোমার মন ॥৭৬॥
 
-> tomāra yogya sevā nahe mandira-mārjana
+> tomāra yogya sevā nahe mandira-mārjana\
 > ei eka līlā kara, ye tomāra mana
 
 *tomāra*—de Ti; *yogya*—apropiado; *sevā*—servicio; *nahe*—no; *mandira-mārjana*—lavar el templo; *ei*—este; *eka*—un; *līlā*—pasatiempo; *kara*—realizas; *ye tomāra mana*—como desees.

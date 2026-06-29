@@ -1,11 +1,11 @@
 ### SB 1.18.45
 
-> तदार्यधर्मः प्रविलीयते नृणां वर्णाश्रमाचारयुतस्त्रयीमयः ।
+> तदार्यधर्मः प्रविलीयते नृणां वर्णाश्रमाचारयुतस्त्रयीमयः ।\
 > ततोऽर्थकामाभिनिवेशितात्मनां शुनां कपीनामिव वर्णसङ्करः ॥४५॥
 
-> tadārya-dharmaḥ pravilīyate nṛṇāṁ
-> varṇāśramācāra-yutas trayīmayaḥ
-> tato 'rtha-kāmābhiniveśitātmanāṁ
+> tadārya-dharmaḥ pravilīyate nṛṇāṁ\
+> varṇāśramācāra-yutas trayīmayaḥ\
+> tato 'rtha-kāmābhiniveśitātmanāṁ\
 > śunāṁ kapīnām iva varṇa-saṅkaraḥ
 
 *tadā*—at that time; *ārya*—progressive civilization; *dharmaḥ*—engagement; *pravilīyate*—is systematically vanquished; *nṛṇām*—of humankind; *varṇa*—caste; *āśrama*—orders of society; *ācāra-yutaḥ*—composed in a good manner; *trayī-mayaḥ*—in terms of the Vedic injunction; *tataḥ*—thereafter; *artha*—economic development; *kāma-abhiniveśita*—fully absorbed in sense gratification; *ātmanām*—of men; *śunām*—like dogs; *kapīnām*—like monkeys; *iva*—thus; *varṇa-saṅkaraḥ*—unwanted population.

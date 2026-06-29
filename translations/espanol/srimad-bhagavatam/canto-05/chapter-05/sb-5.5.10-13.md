@@ -1,32 +1,32 @@
 ### SB 5.5.10-13
 
-> हंसे गुरौ मयि भक्त्यानुवृत्या वितृष्णया द्वन्द्वतितिक्षया च
-> सर्वत्र जन्तोर्व्यसनावगत्या जिज्ञआसया तपसेहानिवृत्त्या ॥१०॥
-> मत्कर्मभिर्मत्कथया च नित्यं मद्देवसङ्गाद्गुणकीर्तनान्मे
-> निर्वैरसाम्योपशमेन पुत्रा जिहासया देहगेहात्मबुद्धेः ॥११॥
-> अध्यात्मयोगेन विविक्तसेवया प्राणेन्द्रियात्माभिजयेन सध्र्यक
-> सच्छ्रद्धया ब्रह्मचर्येण शश्वदसम्प्रमादेन यमेन वाचाम ॥१२॥
-> सर्वत्र मद्भावविचक्षणेन ज्ञआनेन विज्ञआनविराजितेन
+> हंसे गुरौ मयि भक्त्यानुवृत्या वितृष्णया द्वन्द्वतितिक्षया च\
+> सर्वत्र जन्तोर्व्यसनावगत्या जिज्ञआसया तपसेहानिवृत्त्या ॥१०॥\
+> मत्कर्मभिर्मत्कथया च नित्यं मद्देवसङ्गाद्गुणकीर्तनान्मे\
+> निर्वैरसाम्योपशमेन पुत्रा जिहासया देहगेहात्मबुद्धेः ॥११॥\
+> अध्यात्मयोगेन विविक्तसेवया प्राणेन्द्रियात्माभिजयेन सध्र्यक\
+> सच्छ्रद्धया ब्रह्मचर्येण शश्वदसम्प्रमादेन यमेन वाचाम ॥१२॥\
+> सर्वत्र मद्भावविचक्षणेन ज्ञआनेन विज्ञआनविराजितेन\
 > योगेन धृत्युद्यमसत्त्वयुक्तो लिङ्गं व्यपोहेत्कुशलोऽहमाख्यम ॥१३॥
 
-> haṁse gurau mayi bhaktyānuvṛtyā
-> vitṛṣṇayā dvandva-titikṣayā ca
-> sarvatra jantor vyasanāvagatyā
+> haṁse gurau mayi bhaktyānuvṛtyā\
+> vitṛṣṇayā dvandva-titikṣayā ca\
+> sarvatra jantor vyasanāvagatyā\
 > jijñāsayā tapasehā-nivṛttyā
 
-> mat-karmabhir mat-kathayā ca nityaṁ
-> mad-deva-saṅgād guṇa-kīrtanān me
-> nirvaira-sāmyopaśamena putrā
+> mat-karmabhir mat-kathayā ca nityaṁ\
+> mad-deva-saṅgād guṇa-kīrtanān me\
+> nirvaira-sāmyopaśamena putrā\
 > jihāsayā deha-gehātma-buddheḥ
 
-> adhyātma-yogena vivikta-sevayā
-> prāṇendriyātmābhijayena sadhryak
-> sac-chraddhayā brahmacaryeṇa śaśvad
+> adhyātma-yogena vivikta-sevayā\
+> prāṇendriyātmābhijayena sadhryak\
+> sac-chraddhayā brahmacaryeṇa śaśvad\
 > asampramādena yamena vācām
 
-> sarvatra mad-bhāva-vicakṣaṇena
-> jñānena vijñāna-virājitena
-> yogena dhṛty-udyama-sattva-yukto
+> sarvatra mad-bhāva-vicakṣaṇena\
+> jñānena vijñāna-virājitena\
+> yogena dhṛty-udyama-sattva-yukto\
 > liṅgaṁ vyapohet kuśalo 'ham-ākhyam
 
 *haṁse*—que es un *paramahaṁsa,* la persona más excelsa y espiritualmente elevada; *gurau*—al maestro espiritual; *mayi*—a Mí, la Suprema Personalidad de Dios; *bhaktyā*—por medio del servicio devocional; *anuvṛtyā*—por seguir; *vitṛṣṇayā*—por el desapego de la complacencia de los sentidos; *dvandva*—de las dualidades del mundo material; *titikṣayā*—por la tolerancia; *ca*—también; *sarvatra*—en todas partes; *jantoḥ*—de la entidad viviente; *vyasana*—la miserable condición de vida; *avagatyā*—por comprender; *jijñāsayā*—por preguntar acerca de la verdad; *tapasā*—por practicar austeridades y penitencias; *īhā-nivṛttyā*—por abandonar el esfuerzo en busca del disfrute sensorial; *mat-karmabhiḥ*—por trabajar para Mí; *mat-kathayā*—por escuchar los temas que tratan de Mí; *ca*—también; *nityam*—siempre; *mat-deva-saṅgāt*—por la relación con Mis devotos; *guṇa-kīrtanāt me*—por cantar y glorificar Mis cualidades trascendentales; *nirvaira*—libres de enemistad; *sāmya*—ver a todos con ecuanimidad basada en el entendimiento espiritual; *upaśamena*—por subyugar la ira, la lamentación, etc.; *putrāḥ*—¡oh, hijos!; *jihāsayā*—por desear abandonar; *deha*—con el cuerpo; *geha*—con el hogar; *ātma-buddheḥ*—identificación del ser; *adhyātma-yogena*—por estudiar las Escrituras reveladas; *vivikta-sevayā*—por vivir en un lugar solitario; *prāṇa*—el aire vital; *indriya*—los sentidos; *ātma*—la mente; *abhijayena*—por controlar; *sadhryak*—completamente; *sat-śraddhayā*—por cultivar la fe en las Escrituras; *brahmacaryeṇa*—por observar celibato; *śaśvat*—siempre; *asampramādena*—por no confundirse; *yamena*—por la restricción; *vācām*—de palabras; *sarvatra*—en todas partes; *mat-bhāva*—pensar en Mí; *vicakṣaṇena*—por observar; *jñānena*—por cultivar conocimiento; *vijñāna*—por la aplicación práctica del conocimiento; *virājitena*—iluminados; *yogena*—por la práctica del *bhakti-yoga*; *dhṛti*—paciencia; *udyama*—entusiasmo; *sattva*—discreción; *yuktaḥ*—dotados de; *liṅgam*—la causa del cautiverio material; *vyapohet*—se puede abandonar; *kuśalaḥ*—de modo completamente auspicioso; *aham-ākhyam*—el ego falso, la falsa identificación con el mundo material.

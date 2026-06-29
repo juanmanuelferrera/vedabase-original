@@ -1,11 +1,11 @@
 ### SB 4.13.46
 
-> कदपत्यं वरं मन्ये सदपत्याच्छुचां पदात् ।
+> कदपत्यं वरं मन्ये सदपत्याच्छुचां पदात् ।\
 > निर्विद्येत गृहान्मर्त्यो यत्क्लेशनिवहा गृहाः ॥४६॥
 
-> kad-apatyaṁ varaṁ manye
-> sad-apatyāc chucāṁ padāt
-> nirvidyeta gṛhān martyo
+> kad-apatyaṁ varaṁ manye\
+> sad-apatyāc chucāṁ padāt\
+> nirvidyeta gṛhān martyo\
 > yat-kleśa-nivahā gṛhāḥ
 
 *kad-apatyam*—mal hijo; *varam*—mejor; *manye*—pienso; *sat-apatyāt*—que un buen hijo; *śucām*—de dolor; *padāt*—la fuente; *nirvidyeta*—se desapega; *gṛhāt*—del hogar; *martyaḥ*—un hombre mortal; *yat*—debido al cual; *kleśa-nivahāḥ*—infernal; *gṛhāḥ*—hogar.

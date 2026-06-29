@@ -1,9 +1,9 @@
 ### CC Madhya 6.113
 
-> আচার্যের সিদ্ধান্তে মুকুন্দের হৈল সন্তোষ ।
+> আচার্যের সিদ্ধান্তে মুকুন্দের হৈল সন্তোষ ।\
 > ভট্টাচার্যের বাক্যে মনে হৈল দুঃখ-রোষ ॥১১৩॥
 
-> ācāryera siddhānte mukundera haila santoṣa
+> ācāryera siddhānte mukundera haila santoṣa\
 > bhaṭṭācāryera vākya mane haila duḥkha-roṣa
 
 *ācāryera*—of Gopīnātha Ācārya; *siddhānte*—with the conclusions; *mukundera*—of Mukunda Datta; *haila*—there was; *santoṣa*—satisfaction; *bhaṭṭācāryera*—of Sārvabhauma Bhaṭṭācārya; *vākye*—by the words; *mane*—in the mind; *haila*—there was; *duḥkha*—unhappiness; *roṣa*—and anger.

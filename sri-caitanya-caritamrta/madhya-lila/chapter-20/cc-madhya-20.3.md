@@ -1,9 +1,9 @@
 ### CC Madhya 20.3
 
-> এথা গৌড়ে সনাতন আছে বন্দিশালে ।
+> এথা গৌড়ে সনাতন আছে বন্দিশালে ।\
 > শ্রীরূপ-গোসাঞির পত্রী আইল হেনকালে ॥৩॥
 
-> ethā gauḍe sanātana āche bandi-śāle
+> ethā gauḍe sanātana āche bandi-śāle\
 > śrī-rūpa-gosāñīra patrī āila hena-kāle
 
 *ethā*—here; *gauḍe*—in Bengal; *sanātana*—Sanātana Gosvāmī; *āche*—was; *bandi-śāle*—in prison; *śrī-rūpa-gosāñīra*—of Śrīla Rūpa Gosvāmī; *patrī*—the letter; *āila*—came; *hena-kāle*—at that time.

@@ -1,9 +1,9 @@
 ### CC Adi 17.87
 
-> এই সব লীলা করে শচীর নন্দন ।
+> এই সব লীলা করে শচীর নন্দন ।\
 > অন্য লোক নাহি জানে বিনা ভক্তগণ ॥৮৭॥
 
-> ei saba līlā kare śacīra nandana
+> ei saba līlā kare śacīra nandana\
 > anya loka nāhi jāne vinā bhakta-gaṇa
 
 *ei saba*—todos estos; *līlā*—pasatiempos; *kare*—realizó; *śacīra*—de la madre Śacī; *nandana*—hijo; *anya loka*—otras personas; *nāhi*—no; *jāne*—saben; *vinā*—excepto; *bhakta-gaṇa*—los devotos.

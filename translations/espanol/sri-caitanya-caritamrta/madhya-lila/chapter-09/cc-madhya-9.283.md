@@ -1,9 +1,9 @@
 ### CC Madhya 9.283
 
-> প্রেমাবেশে কৈল বহুত কীর্তন-নর্তন ৷
+> প্রেমাবেশে কৈল বহুত কীর্তন-নর্তন ৷\
 > তাহাঁ এক বিপ্র তাঁরে কৈল নিমন্ত্রণ ৷৷ ২৮৩ ৷৷ ॥২৮৩॥
 
-> premāveśe kaila bahuta kīrtana-nartana
+> premāveśe kaila bahuta kīrtana-nartana\
 > tāhāṅ eka vipra tāṅre kaila nimantraṇa
 
 *prema-āveśe*—en el gran éxtasis del amor; *kaila*—realizó; *bahuta*—mucho; *kīrtana-nartana*—canto y danza; *tāhāṅ*—allí; *eka*—un; *vipra*—brāhmaṇa; *tāṅre*—a Él; *kaila*—hizo; *nimantraṇa*—invitación.

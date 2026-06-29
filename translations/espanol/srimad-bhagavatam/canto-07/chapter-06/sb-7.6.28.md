@@ -1,11 +1,11 @@
 ### SB 7.6.28
 
-> श्रुतमेतन्मया पूर्वं ज्ञआनं विज्ञआनसंयुतम
+> श्रुतमेतन्मया पूर्वं ज्ञआनं विज्ञआनसंयुतम\
 > धर्मं भागवतं शुद्धं नारदाद्देवदर्शनात ॥२८॥
 
-> śrutam etan mayā pūrvaṁ
-> jñānaṁ vijñāna-saṁyutam
-> dharmaṁ bhāgavataṁ śuddhaṁ
+> śrutam etan mayā pūrvaṁ\
+> jñānaṁ vijñāna-saṁyutam\
+> dharmaṁ bhāgavataṁ śuddhaṁ\
 > nāradād deva-darśanāt
 
 *śrutam*—escuchado; *etat*—este; *mayā*—por mí; *pūrvam*—en el pasado; *jñānam*—conocimiento confidencial; *vijñāna-saṁyutam*—combinado con su aplicación práctica; *dharmam*—religión trascendental; *bhāgavatam*—en relación con la Suprema Personalidad de Dios; *śuddham*—que no tiene nada que ver con las actividades materiales; *nāradāt*—del gran santo Nārada; *deva*—al Señor Supremo; *darśanāt*—que siempre ve.

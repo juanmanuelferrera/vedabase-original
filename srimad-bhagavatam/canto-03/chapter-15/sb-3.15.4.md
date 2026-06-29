@@ -1,11 +1,11 @@
 ### SB 3.15.4
 
-> देवदेव जगद्धातर्लोकनाथशिखामणे ।
+> देवदेव जगद्धातर्लोकनाथशिखामणे ।\
 > परेषामपरेषां त्वं भूतानामसि भाववित् ॥४॥
 
-> deva-deva jagad-dhātar
-> lokanātha-śikhāmaṇe
-> pareṣām apareṣāṁ tvaṁ
+> deva-deva jagad-dhātar\
+> lokanātha-śikhāmaṇe\
+> pareṣām apareṣāṁ tvaṁ\
 > bhūtānām asi bhāva-vit
 
 *deva-deva*—O god of the demigods; *jagat-dhātaḥ*—O sustainer of the universe; *lokanātha-śikhāmaṇe*—O head jewel of all the demigods in other planets; *pareṣām*—of the spiritual world; *apareṣām*—of the material world; *tvam*—you; *bhūtānām*—of all living entities; *asi*—are; *bhāva-vit*—knowing the intentions.

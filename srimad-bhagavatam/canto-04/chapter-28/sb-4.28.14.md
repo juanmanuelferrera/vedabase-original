@@ -1,11 +1,11 @@
 ### SB 4.28.14
 
-> न शेके सोऽवितुं तत्र पुरुकृच्छ्रोरुवेपथुः ।
+> न शेके सोऽवितुं तत्र पुरुकृच्छ्रोरुवेपथुः ।\
 > गन्तुमैच्छत्ततो वृक्ष कोटरादिव सानलात् ॥१४॥
 
-> na śeke so 'vituṁ tatra
-> puru-kṛcchroru-vepathuḥ
-> gantum aicchat tato vṛkṣa-
+> na śeke so 'vituṁ tatra\
+> puru-kṛcchroru-vepathuḥ\
+> gantum aicchat tato vṛkṣa-\
 > koṭarād iva sānalāt
 
 *na*—not; *śeke*—was able; *saḥ*—he; *avitum*—to protect; *tatra*—there; *puru*—very much; *kṛcchra*—difficulty; *uru*—great; *vepathuḥ*—suffering; *gantum*—to go out; *aicchat*—desired; *tataḥ*—from there; *vṛkṣa*—of a tree; *koṭarāt*—from the hollow; *iva*—like; *sa-analāt*—on fire.

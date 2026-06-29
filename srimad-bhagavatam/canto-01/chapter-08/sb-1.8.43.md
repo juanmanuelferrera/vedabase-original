@@ -1,11 +1,11 @@
 ### SB 1.8.43
 
-> श्रीकृष्ण कृष्णसख वृष्ण्यृषभावनिध्रुग्राजन्यवंशदहनानपवर्गवीर्य ।
+> श्रीकृष्ण कृष्णसख वृष्ण्यृषभावनिध्रुग्राजन्यवंशदहनानपवर्गवीर्य ।\
 > गोविन्द गोद्विजसुरार्तिहरावतार योगेश्वराखिलगुरो भगवन्नमस्ते ॥४३॥
 
-> śrī-kṛṣṇa kṛṣṇa-sakha vṛṣṇy-ṛṣabhāvani-dhrug-
-> rājanya-vaṁśa-dahanānapavarga-vīrya
-> govinda go-dvija-surārti-harāvatāra
+> śrī-kṛṣṇa kṛṣṇa-sakha vṛṣṇy-ṛṣabhāvani-dhrug-\
+> rājanya-vaṁśa-dahanānapavarga-vīrya\
+> govinda go-dvija-surārti-harāvatāra\
 > yogeśvarākhila-guro bhagavan namas te
 
 *śrī-kṛṣṇa*—O Śrī Kṛṣṇa; *kṛṣṇa-sakha*—O friend of Arjuna; *vṛṣṇi*—of descendants of Vṛṣṇi; *ṛṣabha*—O chief; *avani*—the earth; *dhruk*—rebellious; *rājanya-vaṁśa*—dynasties of the kings; *dahana*—O annihilator; *anapavarga*—without deterioration of; *vīrya*—prowess; *govinda*—O proprietor of Golokadhāma; *go*—of the cows; *dvija*—the *brāhmaṇas*; *sura*—the demigods; *arti-hara*—to relieve distress; *avatāra*—O Lord who descends; *yoga-īśvara*—O master of all mystic powers; *akhila*—universal; *guro*—O preceptor; *bhagavan*—O possessor of all opulences; *namaḥ te*—respectful obeisances unto You.

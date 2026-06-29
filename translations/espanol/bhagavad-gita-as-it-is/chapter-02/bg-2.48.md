@@ -1,11 +1,11 @@
 ### Bg 2.48
 
-> योगस्थः कुरु कर्माणि सङ्गं त्यक्त्वा धनञ्जय ।
+> योगस्थः कुरु कर्माणि सङ्गं त्यक्त्वा धनञ्जय ।\
 > सिद्ध्यसिद्ध्योः समो भूत्वा समत्वं योग उच्यते ॥४८॥
 
-> yoga-sthaḥ kuru karmāṇi
-> saṅgaṁ tyaktvā dhanañjaya
-> siddhy-asiddhyoḥ samo bhūtvā
+> yoga-sthaḥ kuru karmāṇi\
+> saṅgaṁ tyaktvā dhanañjaya\
+> siddhy-asiddhyoḥ samo bhūtvā\
 > samatvaṁ yoga ucyate
 
 *yoga-sthaḥ*—fijo en el yoga; *kuru*—desempeña; *karmāṇi*—tus deberes; *saṅgam*—apego; *tyaktvā*—habiendo abandonado; *dhanañjaya*—¡O Dhanañjaya!; *siddhi-asiddhyoḥ*—en el éxito y en el fracaso; *samaḥ*—igual; *bhūtvā*—volviéndose; *samatvam*—ecuanimidad mental; *yogaḥ*—yoga; *ucyate*—es llamado.

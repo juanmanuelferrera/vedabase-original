@@ -1,9 +1,9 @@
 ### CC Madhya 14.184
 
-> তবে ত’ স্বরূপ-গোসাঞি কহিতে লাগিলা ।
+> তবে ত’ স্বরূপ-গোসাঞি কহিতে লাগিলা ।\
 > শুনি’ প্ৰভুর ভক্তগণ মহাসুখ পাইলা ॥১৮৪॥
 
-> tabe ta' svarūpa-gosāñi kahite lāgilā
+> tabe ta' svarūpa-gosāñi kahite lāgilā\
 > śuni' prabhura bhakta-gaṇa mahā-sukha pāilā
 
 *tabe*—at that time; *ta'*—indeed; *svarūpa-gosāñi*—Svarūpa Dāmodara; *kahite lāgilā*—began to speak; *śuni'*—hearing; *prabhura*—of Śrī Caitanya Mahāprabhu; *bhakta-gaṇa*—all the devotees; *mahā-sukha pāilā*—achieved great happiness.

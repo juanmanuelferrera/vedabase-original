@@ -1,13 +1,13 @@
 ### SB 8.3.32
 
-> सोऽन्तःसरस्युरुबलेन गृहीत आर्तो
-> दृष्ट्वा गरुत्मति हरिं ख उपात्तचक्रम
-> उत्क्षिप्य साम्बुजकरं गिरमाह कृच्छ्रान
+> सोऽन्तःसरस्युरुबलेन गृहीत आर्तो\
+> दृष्ट्वा गरुत्मति हरिं ख उपात्तचक्रम\
+> उत्क्षिप्य साम्बुजकरं गिरमाह कृच्छ्रान\
 > नारायणाखिलगुरो भगवन्नमस्ते ॥३२॥
 
-> so 'ntaḥ-sarasy urubalena gṛhīta ārto
-> dṛṣṭvā garutmati hariṁ kha upātta-cakram
-> utkṣipya sāmbuja-karaṁ giram āha kṛcchrān
+> so 'ntaḥ-sarasy urubalena gṛhīta ārto\
+> dṛṣṭvā garutmati hariṁ kha upātta-cakram\
+> utkṣipya sāmbuja-karaṁ giram āha kṛcchrān\
 > nārāyaṇākhila-guro bhagavan namas te
 
 *saḥ*—él (Gajendra); *antaḥ-sarasi*—en el agua; *uru-balena*—con mucha fuerza; *gṛhītaḥ*—que había sido atrapado por el cocodrilo; *ārtaḥ*—y sufriendo muchísimo; *dṛṣṭvā*—al ver; *garutmati*—a lomos de Garuḍa; *harim*—al Señor; *khe*—en el cielo; *upātta-cakram*—empuñando Su disco; *utkṣipya*—levantando; *sa-ambuja-karam*—su trompa, con una flor de loto; *giram-āha*—pronunció las palabras; *kṛcchrāt*—con gran dificultad (debido a su precaria situación); *nārāyaṇa*—¡oh, mi Señor, Nārāyaṇa!; *akhila-guro*—¡oh, Señor universal!; *bhagavan*—¡oh, Suprema Personalidad de Dios!; *namaḥ te*—Te ofrezco mis respetuosas reverencias.

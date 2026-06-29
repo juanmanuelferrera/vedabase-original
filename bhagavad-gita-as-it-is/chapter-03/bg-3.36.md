@@ -1,13 +1,13 @@
 ### Bg 3.36
 
-> अर्जुन उवाच ।
-> अथ केन प्रयुक्तोऽयं पापं चरति पूरुषः ।
+> अर्जुन उवाच ।\
+> अथ केन प्रयुक्तोऽयं पापं चरति पूरुषः ।\
 > अनिच्छन्नपि वार्ष्णेय बलादिव नियोजितः ॥३६॥
 
-> arjuna uvāca
-> atha kena prayukto 'yaṁ
-> pāpaṁ carati pūruṣaḥ
-> anicchann api vārṣṇeya
+> arjuna uvāca\
+> atha kena prayukto 'yaṁ\
+> pāpaṁ carati pūruṣaḥ\
+> anicchann api vārṣṇeya\
 > balād iva niyojitaḥ
 
 *arjunaḥ uvāca*—Arjuna said; *atha*—hereafter; *kena*—by what; *prayuktaḥ*—impelled; *ayam*—one; *pāpam*—sins; *carati*—acts; *pūruṣaḥ*—a man; *anicchan*—without desiring; *api*—although; *vārṣṇeya*—O descendant of Vṛṣṇi; *balāt*—by force; *iva*—as if; *niyojitaḥ*—engaged.

@@ -1,11 +1,11 @@
 ### SB 4.30.4
 
-> दशवर्षसहस्रान्ते पुरुषस्तु सनातनः ।
+> दशवर्षसहस्रान्ते पुरुषस्तु सनातनः ।\
 > तेषामाविरभूत्कृच्छ्रं शान्तेन शमयन्रुचा ॥४॥
 
-> daśa-varṣa-sahasrānte
-> puruṣas tu sanātanaḥ
-> teṣām āvirabhūt kṛcchraṁ
+> daśa-varṣa-sahasrānte\
+> puruṣas tu sanātanaḥ\
+> teṣām āvirabhūt kṛcchraṁ\
 > śāntena śamayan rucā
 
 *daśa-varṣa*—ten years; *sahasra-ante*—at the end of a thousand; *puruṣaḥ*—the Supreme Person; *tu*—then; *sanātanaḥ*—eternal; *teṣām*—of the Pracetās; *āvirabhūt*—appeared; *kṛcchram*—the severe austerity; *śāntena*—satisfying; *śamayan*—mitigating; *rucā*—by His beauty.

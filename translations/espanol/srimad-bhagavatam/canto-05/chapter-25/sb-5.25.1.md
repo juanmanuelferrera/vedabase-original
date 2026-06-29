@@ -1,9 +1,9 @@
 ### SB 5.25.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > तस्य मूलदेशे त्रिंशद्योजनसहस्रान्तर आस्ते या वै कला भगवतस्तामसी समाख्यातानन्त इतिसात्वतीया द्रष्टृदृश्ययोः सङ्कर्षणमहमित्यभिमानलक्षणं यं सङ्कर्षणमित्याचक्षते ॥१॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > tasya mūla-deśe triṁśad-yojana-sahasrāntara āste yā vai kalā bhagavatas tāmasī samākhyātānanta iti sātvatīyā draṣṭṛ-dṛśyayoḥ saṅkarṣaṇam aham ity abhimāna-lakṣaṇaṁ yaṁ saṅkarṣaṇam ity ācakṣate.
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *tasya*—del planeta Pātāla; *mūla-deśe*—en la región que está por debajo de la base; *triṁśat*—treinta; *yojana*—unidades de longitud equivalentes a unos trece kilómetros; *sahasra-antare*—con un intervalo de mil; *āste*—permanece; *yā*—el cual; *vai*—en verdad; *kalā*—una expansión de una expansión; *bhagavataḥ*—de la Suprema Personalidad de Dios; *tāmasī*—relacionada con la oscuridad; *samākhyātā*—llamada; *anantaḥ*—Ananta; *iti*—así; *sātvatīyāḥ*—los devotos; *draṣṭṛ-dṛśyayoḥ*—de materia y espíritu; *saṅkarṣaṇam*—la unión; *aham*—yo; *iti*—así; *abhimāna*—con el concepto del ser; *lakṣaṇam*—caracterizado; *yam*—a quien; *saṅkarṣaṇam*—Saṅkarṣaṇa; *iti*—así; *ācakṣate*—sabios eruditos describen.

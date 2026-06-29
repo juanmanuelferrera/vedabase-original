@@ -1,13 +1,13 @@
 ### CC Antya 19.43
 
-> মোর সেই কলানিধি, প্রাণরক্ষা-মহৌষধি,
-> সখি, মোর তেঁহো সুহৃত্তম ।
-> দেহ জীয়ে তাঁহা বিনে, ধিক্ এই জীবনে,
+> মোর সেই কলানিধি, প্রাণরক্ষা-মহৌষধি,\
+> সখি, মোর তেঁহো সুহৃত্তম ।\
+> দেহ জীয়ে তাঁহা বিনে, ধিক্ এই জীবনে,\
 > বিধি করে এত বিড়ম্বন !” ॥ ৪৩ ॥
 
-> mora sei kalā-nidhi, prāṇa-rakṣā-mahauṣadhi,
-> sakhi, mora teṅho suhṛttama
-> deha jīye tāṅhā vine, dhik ei jīvane,
+> mora sei kalā-nidhi, prāṇa-rakṣā-mahauṣadhi,\
+> sakhi, mora teṅho suhṛttama\
+> deha jīye tāṅhā vine, dhik ei jīvane,\
 > vidhi kare eta viḍambana!"
 
 *mora*—of Me; *sei*—that; *kalā-nidhi*—reservoir of art and culture; *prāṇa-rakṣa-mahā-auṣaudhi*—the panacea for saving My life; *sakhi*—O My dear friend; *mora*—My; *teṅho*—He; *suhṛt-tama*—the best of friends; *deha jīye*—My body lives; *tāṅhā vine*—without Him; *dhik*—condemnation; *ei jīvane*—to this life; *vidhi*—Providence; *kare*—does; *eta viḍambana*—so much cheating.

@@ -1,11 +1,11 @@
 ### Bg 3.15
 
-> कर्म ब्रह्मोद्भवं विद्धि ब्रह्माक्षरसमुद्भवम् ।
+> कर्म ब्रह्मोद्भवं विद्धि ब्रह्माक्षरसमुद्भवम् ।\
 > तस्मात्सर्वगतं ब्रह्म नित्यं यज्ञे प्रतिष्ठितम् ॥१५॥
 
-> karma brahmodbhavaṁ viddhi
-> brahmākṣara-samudbhavam
-> tasmāt sarva-gataṁ brahma
+> karma brahmodbhavaṁ viddhi\
+> brahmākṣara-samudbhavam\
+> tasmāt sarva-gataṁ brahma\
 > nityaṁ yajñe pratiṣṭhitam
 
 *karma*—trabajo; *brahma*—los Vedas; *udbhavam*—producidos de; *viddhi*—uno ha de saber; *brahma*—los Vedas; *akṣara*—el Brahman Supremo (la Personalidad de Dios); *samudbhavam*—manifestado directamente; *tasmāt*—por consiguiente; *sarva-gatam*—omnipresente; *brahma*—trascendencia; *nityam*—eternamente; *yajñe*—en sacrificio; *pratiṣthitam*—situado.

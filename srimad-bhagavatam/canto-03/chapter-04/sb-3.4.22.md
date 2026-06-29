@@ -1,11 +1,11 @@
 ### SB 3.4.22
 
-> यत्र नारायणो देवो नरश्च भगवानृषिः ।
+> यत्र नारायणो देवो नरश्च भगवानृषिः ।\
 > मृदु तीव्रं तपो दीर्घं तेपाते लोकभावनौ ॥२२॥
 
-> yatra nārāyaṇo devo
-> naraś ca bhagavān ṛṣiḥ
-> mṛdu tīvraṁ tapo dīrghaṁ
+> yatra nārāyaṇo devo\
+> naraś ca bhagavān ṛṣiḥ\
+> mṛdu tīvraṁ tapo dīrghaṁ\
 > tepāte loka-bhāvanau
 
 *yatra*—where; *nārāyaṇaḥ*—the Personality of Godhead; *devaḥ*—by incarnation; *naraḥ*—human being; *ca*—also; *bhagavān*—the Lord; *ṛṣiḥ*—great sage; *mṛdu*—amiable to everyone; *tīvram*—severe; *tapaḥ*—penance; *dīrgham*—very long; *tepāte*—performing; *loka-bhāvanau*—welfare of all living entities.

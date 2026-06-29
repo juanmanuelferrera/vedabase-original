@@ -1,11 +1,11 @@
 ### SB 3.15.8
 
-> यस्य वाचा प्रजाः सर्वा गावस्तन्त्येव यन्त्रिताः ।
+> यस्य वाचा प्रजाः सर्वा गावस्तन्त्येव यन्त्रिताः ।\
 > हरन्ति बलिमायत्तास्तस्मै मुख्याय ते नमः ॥८॥
 
-> yasya vācā prajāḥ sarvā
-> gāvas tantyeva yantritāḥ
-> haranti balim āyattās
+> yasya vācā prajāḥ sarvā\
+> gāvas tantyeva yantritāḥ\
+> haranti balim āyattās\
 > tasmai mukhyāya te namaḥ
 
 *yasya*—de quienes; *vācā*—las directrices védicas; *prajāḥ*—entidades vivientes; *sarvāḥ*—todas; *gāvaḥ*—bueyes; *tantyā*—por una cuerda; *iva*—como; *yantritāḥ*—son dirigidos; *haranti*—ofrecer, llevarse; *balim*—presentación, elementos para adoración; *āyattāḥ*—bajo control; *tasmai*—a él; *mukhyāya*—a la persona principal; *te*—a ti; *namaḥ*—respetuosas reverencias.

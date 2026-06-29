@@ -1,13 +1,13 @@
 ### SB 9.23.38
 
-> अहं बन्ध्यासपत्नी च स्नुषा मे युज्यते कथम
+> अहं बन्ध्यासपत्नी च स्नुषा मे युज्यते कथम\
 > जनयिष्यसि यं राज्ञइ तस्येयमुपयुज्यते ॥३८॥
 
-> anvamodanta tad viśve-
-> devāḥ pitara eva ca
-> śaibyā garbham adhāt kāle
-> kumāraṁ suṣuve śubham
-> sa vidarbha iti prokta
+> anvamodanta tad viśve-\
+> devāḥ pitara eva ca\
+> śaibyā garbham adhāt kāle\
+> kumāraṁ suṣuve śubham\
+> sa vidarbha iti prokta\
 > upayeme snuṣāṁ satīm
 
 *anvamodanta*—aceptada; *tat*—esa afirmación que predecía el nacimiento de un hijo; *viśvedevāḥ*—los semidioses *viśvedevas*; *pitaraḥ*—los *pitās*, los antepasados; *eva*—en verdad; *ca*—también; *śaibyā*—la esposa de Jyāmagha; *garbham*—embarazo; *adhāt*—concibió; *kāle*—a su debido tiempo; *kumāram*—un hijo; *suṣuve*—dio a luz; *śubham*—muy auspicioso; *saḥ*—aquel hijo; *vidarbhaḥ*—Vidarbha; *iti*—así; *proktaḥ*—era bien sabido; *upayeme*—se casó más tarde; *snuṣām*—que había sido aceptada como nuera; *satīm*—muchacha muy casta.

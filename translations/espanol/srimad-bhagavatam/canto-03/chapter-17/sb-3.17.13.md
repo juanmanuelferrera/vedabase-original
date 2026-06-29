@@ -1,11 +1,11 @@
 ### SB 3.17.13
 
-> गावोऽत्रसन्नसृग्दोहास्तोयदाः पूयवर्षिणः ।
+> गावोऽत्रसन्नसृग्दोहास्तोयदाः पूयवर्षिणः ।\
 > व्यरुदन्देवलिङ्गानि द्रुमाः पेतुर्विनानिलम् ॥१३॥
 
-> gāvo 'trasann asṛg-dohās
-> toyadāḥ pūya-varṣiṇaḥ
-> vyarudan deva-liṅgāni
+> gāvo 'trasann asṛg-dohās\
+> toyadāḥ pūya-varṣiṇaḥ\
+> vyarudan deva-liṅgāni\
 > drumāḥ petur vinānilam
 
 *gāvaḥ*—las vacas; *atrasan*—estaban aterrorizadas; *asṛk*—sangre; *dohāḥ*—produciendo; *toyadāḥ*—nubes; *pūya*—pus; *varṣiṇaḥ*—lloviendo; *vyarudan*—derramaban lágrimas; *deva-liṅgāni*—las imágenes de los dioses; *drumāḥ*—árboles; *petuḥ*—caían; *vinā*—sin; *anilam*—una ráfaga de viento.

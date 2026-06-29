@@ -1,11 +1,11 @@
 ### SB 4.1.21
 
-> तप्यमानं त्रिभुवनं प्राणायामैधसाग्निना ।
+> तप्यमानं त्रिभुवनं प्राणायामैधसाग्निना ।\
 > निर्गतेन मुनेर्मूर्ध्नः समीक्ष्य प्रभवस्त्रयः ॥२१॥
 
-> tapyamānaṁ tri-bhuvanaṁ
-> prāṇāyāmaidhasāgninā
-> nirgatena muner mūrdhnaḥ
+> tapyamānaṁ tri-bhuvanaṁ\
+> prāṇāyāmaidhasāgninā\
+> nirgatena muner mūrdhnaḥ\
 > samīkṣya prabhavas trayaḥ
 
 *tapyamānam*—mientras practicaba austeridades; *tri-bhuvanam*—los tres mundos; *prāṇāyāma*—práctica con ejercicios respiratorios; *edhasā*—combustible; *agninā*—por el fuego; *nirgatena*—surgiendo; *muneḥ*—del gran sabio; *mūrdhnaḥ*—la parte superior de la cabeza; *samīkṣya*—viendo; *prabhavaḥ trayaḥ*—los tres grandes dioses (Brahmā, Viṣṇu y Maheśvara).

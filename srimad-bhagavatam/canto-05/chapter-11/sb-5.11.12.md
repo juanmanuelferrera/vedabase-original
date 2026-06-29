@@ -1,11 +1,11 @@
 ### SB 5.11.12
 
-> क्षेत्रज्ञअ एता मनसो विभूतीर्जीवस्य मायारचितस्य नित्याः
+> क्षेत्रज्ञअ एता मनसो विभूतीर्जीवस्य मायारचितस्य नित्याः\
 > आविर्हिताः क्वापि तिरोहिताश्च शुद्धो विचष्टे ह्यविशुद्धकर्तुः ॥१२॥
 
-> kṣetrajña etā manaso vibhūtīr
-> jīvasya māyā-racitasya nityāḥ
-> āvirhitāḥ kvāpi tirohitāś ca
+> kṣetrajña etā manaso vibhūtīr\
+> jīvasya māyā-racitasya nityāḥ\
+> āvirhitāḥ kvāpi tirohitāś ca\
 > śuddho vicaṣṭe hy aviśuddha-kartuḥ
 
 *kṣetra-jñaḥ*—the individual soul; *etāḥ*—all these; *manasaḥ*—of the mind; *vibhūtīḥ*—different activities; *jīvasya*—of the living entity; *māyā-racitasya*—created by the external, material energy; *nityāḥ*—from time immemorial; *āvirhitāḥ*—sometimes manifested; *kvāpi*—somewhere; *tirohitāḥ ca*—and not manifested; *śuddhaḥ*—purified; *vicaṣṭe*—sees this; *hi*—certainly; *aviśuddha*—unpurified; *kartuḥ*—of the doer.

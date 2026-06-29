@@ -1,11 +1,11 @@
 ### SB 4.24.53
 
-> एतद्रूपमनुध्येयमात्मशुद्धिमभीप्सताम् ।
+> एतद्रूपमनुध्येयमात्मशुद्धिमभीप्सताम् ।\
 > यद्भक्तियोगोऽभयदः स्वधर्ममनुतिष्ठताम् ॥५३॥
 
-> etad rūpam anudhyeyam
-> ātma-śuddhim abhīpsatām
-> yad-bhakti-yogo 'bhayadaḥ
+> etad rūpam anudhyeyam\
+> ātma-śuddhim abhīpsatām\
+> yad-bhakti-yogo 'bhayadaḥ\
 > sva-dharmam anutiṣṭhatām
 
 *etat*—esta; *rūpam*—forma; *anudhyeyam*—se debe meditar en; *ātma*—ser; *śuddhim*—purificación; *abhīpsatām*—de los que desean eso; *yat*—lo cual; *bhakti-yogaḥ*—el servicio devocional; *abhaya-daḥ*—verdadera ausencia de temor; *sva-dharmam*—deberes de la propia ocupación; *anutiṣṭhatām*—ejecutar.

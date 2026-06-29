@@ -1,11 +1,11 @@
 ### SB 1.11.23
 
-> स्वयं च गुरुभिर्विप्रैः सदारैः स्थविरैरपि ।
+> स्वयं च गुरुभिर्विप्रैः सदारैः स्थविरैरपि ।\
 > आशीर्भिर्युज्यमानोऽन्यैर्वन्दिभिश्चाविशत्पुरम् ॥२३॥
 
-> svayaṁ ca gurubhir vipraiḥ
-> sadāraiḥ sthavirair api
-> āśīrbhir yujyamāno 'nyair
+> svayaṁ ca gurubhir vipraiḥ\
+> sadāraiḥ sthavirair api\
+> āśīrbhir yujyamāno 'nyair\
 > vandibhiś cāviśat puram
 
 *svayam*—Él mismo; *ca*—también; *gurubhiḥ*—por parientes mayores; *vipraiḥ*—por los *brāhmaṇas*; *sadāraiḥ*—con sus esposas; *sthaviraiḥ*—inválidos; *api*—también; *āśīrbhiḥ*—mediante la bendición de; *yujyamānaḥ*—siendo alabado por; *anyaiḥ*—por otros; *vandibhiḥ*—admiradores; *ca*—y; *aviśat*—entró; *puram*—la ciudad.

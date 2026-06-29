@@ -1,9 +1,9 @@
 ### CC Antya 5.94
 
-> সবেই প্রশংসে নাটক ‘পরম উত্তম’ ।
+> সবেই প্রশংসে নাটক ‘পরম উত্তম’ ।\
 > মহাপ্রভুরে শুনাইতে সবার হৈল মন ॥৯৪॥
 
-> sabei praśaṁse nāṭaka 'parama uttama'
+> sabei praśaṁse nāṭaka 'parama uttama'\
 > mahāprabhure śunāite sabāra haila mana
 
 *sabei*—all; *praśaṁse*—praised; *nāṭaka*—the drama; *parama uttama*—"very good, very good"; *mahāprabhure*—Śrī Caitanya Mahāprabhu; *śunāite*—to cause to hear; *sabāra*—of everyone; *haila*—there was; *mana*—mind.

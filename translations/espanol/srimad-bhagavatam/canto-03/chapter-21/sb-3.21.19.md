@@ -1,11 +1,11 @@
 ### SB 3.21.19
 
-> एकः स्वयं सन्जगतः सिसृक्षया द्वितीययात्मन्नधियोगमायया ।
+> एकः स्वयं सन्जगतः सिसृक्षया द्वितीययात्मन्नधियोगमायया ।\
 > सृजस्यदः पासि पुनर्ग्रसिष्यसे यथोर्णनाभिर्भगवन्स्वशक्तिभिः ॥१९॥
 
-> ekaḥ svayaṁ sañ jagataḥ sisṛkṣayā-
-> dvitīyayātmann adhi-yogamāyayā
-> sṛjasy adaḥ pāsi punar grasiṣyase
+> ekaḥ svayaṁ sañ jagataḥ sisṛkṣayā-\
+> dvitīyayātmann adhi-yogamāyayā\
+> sṛjasy adaḥ pāsi punar grasiṣyase\
 > yathorṇa-nābhir bhagavan sva-śaktibhiḥ
 
 *ekaḥ*—uno; *svayam*—Tú mismo; *san*—siendo; *jagataḥ*—los universos; *sisṛkṣayā*—con deseo de crear; *advitīyayā*—sin igual; *ātman*—en Ti mismo; *adhi*—controlando; *yoga-māyayā*—mediante *yoga-māyā*; *sṛjasi*—Tú creas; *adaḥ*—estos universos; *pāsi*—Tú mantienes; *punaḥ*—de nuevo; *grasiṣyase*—Tú darás fin; *yathā*—como; *ūrṇa-nābhiḥ*—una araña; *bhagavan*—¡oh, Señor!; *sva-śaktibhiḥ*—con su propia energía.

@@ -1,9 +1,9 @@
 ### CC Antya 1.49
 
-> হরিদাস-রূপে লঞা প্রভু বসিলা একস্থানে ।
+> হরিদাস-রূপে লঞা প্রভু বসিলা একস্থানে ।\
 > কুশল-প্রশ্ন, ইষ্টগোষ্ঠী কৈলা কতক্ষণে ॥৪৯॥
 
-> haridāsa-rūpe lañā prabhu vasilā eka-sthāne
+> haridāsa-rūpe lañā prabhu vasilā eka-sthāne\
 > kuśala-praśna, iṣṭa-goṣṭhī kailā kata-kṣaṇe
 
 *hari-dāsa-rūpe*—both Haridāsa Ṭhākura and Rūpa Gosvāmī; *lañā*—with; *prabhu*—Śrī Caitanya Mahāprabhu; *vasilā*—sat down; *eka-sthāne*—in one place; *kuśala-praśna*—questions about auspicious news; *iṣṭa-goṣṭhī*—talking together; *kailā kata-kṣaṇe*—continued for some time.

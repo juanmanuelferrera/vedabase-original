@@ -1,18 +1,18 @@
 ### SB 6.4.27-28
 
-> मनीषिणोऽन्तर्हृदि सन्निवेशितं स्वशक्तिभिर्नवभिश्च त्रिवृद्भिः
-> वह्निं यथा दारुणि पाञ्चदश्यं मनीषया निष्कर्षन्ति गूढम ॥२७॥
-> स वै ममाशेषविशेषमाया निषेधनिर्वाणसुखानुभूतिः
+> मनीषिणोऽन्तर्हृदि सन्निवेशितं स्वशक्तिभिर्नवभिश्च त्रिवृद्भिः\
+> वह्निं यथा दारुणि पाञ्चदश्यं मनीषया निष्कर्षन्ति गूढम ॥२७॥\
+> स वै ममाशेषविशेषमाया निषेधनिर्वाणसुखानुभूतिः\
 > स सर्वनामा स च विश्वरूपः प्रसीदतामनिरुक्तात्मशक्तिः ॥२८॥
 
-> manīṣiṇo 'ntar-hṛdi sanniveśitaṁ
-> sva-śaktibhir navabhiś ca trivṛdbhiḥ
-> vahniṁ yathā dāruṇi pāñcadaśyaṁ
+> manīṣiṇo 'ntar-hṛdi sanniveśitaṁ\
+> sva-śaktibhir navabhiś ca trivṛdbhiḥ\
+> vahniṁ yathā dāruṇi pāñcadaśyaṁ\
 > manīṣayā niṣkarṣanti gūḍham
 
-> sa vai mamāśeṣa-viśeṣa-māyā-
-> niṣedha-nirvāṇa-sukhānubhūtiḥ
-> sa sarva-nāmā sa ca viśva-rūpaḥ
+> sa vai mamāśeṣa-viśeṣa-māyā-\
+> niṣedha-nirvāṇa-sukhānubhūtiḥ\
+> sa sarva-nāmā sa ca viśva-rūpaḥ\
 > prasīdatām aniruktātma-śaktiḥ
 
 *manīṣiṇaḥ*—great learned *brāhmaṇas* performing ritualistic ceremonies and sacrifices; *antaḥ-hṛdi*—within the core of the heart; *sanniveśitam*—being situated; *sva-śaktibhiḥ*—with His own spiritual potencies; *navabhiḥ*—also with the nine different material potencies (the material nature, the total material energy, the ego, the mind and the five objects of the senses); *ca*—and (the five gross material elements and the ten acting and knowledge-gathering senses); *trivṛdbhiḥ*—by the three material modes of nature; *vahnim*—fire; *yathā*—just like; *dāruṇi*—within wood; *pāñcadaśyam*—produced by chanting the fifteen hymns known as Sāmidhenī *mantras*; *manīṣayā*—by purified intelligence; *niṣkarṣanti*—extract; *gūḍham*—although not manifesting; *saḥ*—that Supreme Personality of Godhead; *vai*—indeed; *mama*—toward me; *aśeṣa*—all; *viśeṣa*—varieties; *māyā*—of the illusory energy; *niṣedha*—by the process of negation; *nirvāṇa*—of liberation; *sukha-anubhūtiḥ*—who is realized by transcendental bliss; *saḥ*—that Supreme Personality of Godhead; *sarva-nāmā*—who is the source of all names; *saḥ*—that Supreme Personality of Godhead; *ca*—also; *viśva-rūpaḥ*—the gigantic form of the universe; *prasīdatām*—may He be merciful; *anirukta*—inconceivable; *ātma-śaktiḥ*—the reservoir of all spiritual potencies.

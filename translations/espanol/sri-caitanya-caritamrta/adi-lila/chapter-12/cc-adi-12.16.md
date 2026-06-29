@@ -1,9 +1,9 @@
 ### CC Adi 12.16
 
-> চৌদ্দ ভুবনের গুরু — চৈতন্য-গোসাঞি ।
+> চৌদ্দ ভুবনের গুরু — চৈতন্য-গোসাঞি ।\
 > তাঁর গুরু — অন্য, এই কোন শাস্ত্রে নাই ॥১৬॥
 
-> caudda bhuvanera guru--caitanya-gosāñi
+> caudda bhuvanera guru--caitanya-gosāñi\
 > tāṅra guru--anya, ei kona śāstre nāi
 
 *caudda*—catorce; *bhuvanera*—de los sistemas planetarios; *guru*—maestro; *caitanya-gosāñi*—el Señor Śrī Caitanya Mahāprabhu; *tāṅra guru*—Su maestro espiritual; *anya*—otro; *ei*—esto; *kona*—ninguna; *śāstre*—en las Escrituras; *nāi*—no se menciona.

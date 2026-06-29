@@ -1,11 +1,11 @@
 ### CC Antya 15.1
 
-> দুর্গমে কৃষ্ণভাবাব্ধৌ নিমগ্নোন্মগ্নচেতসা ।
+> দুর্গমে কৃষ্ণভাবাব্ধৌ নিমগ্নোন্মগ্নচেতসা ।\
 > গৌরেণ হরিণা প্রেমমর্যাদা ভূরি দর্শিতা ॥১॥
 
-> durgame kṛṣṇa-bhāvābdhau
-> nimagnonmagna-cetasā
-> gaureṇa hariṇā prema-
+> durgame kṛṣṇa-bhāvābdhau\
+> nimagnonmagna-cetasā\
+> gaureṇa hariṇā prema-\
 > maryādā bhūri darśitā
 
 *durgame*—very difficult to understand; *kṛṣṇa-bhāva-abdhau*—in the ocean of ecstatic love for Kṛṣṇa; *nimagna*—submerged; *unmagna-cetasā*—His heart being absorbed; *gaureṇa*—by Śrī Caitanya Mahāprabhu; *hariṇā*—by the Supreme Personality of Godhead; *prema-maryādā*—the exalted position of transcendental love; *bhūri*—in various ways; *darśitā*—was exhibited.

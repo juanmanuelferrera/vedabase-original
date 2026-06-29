@@ -2,7 +2,7 @@
 
 > শুন, ভট্টাচার্য, — “আমি গেলাঙ বহু-দেশ ৷ বনপথে দুঃখের কাহাঁ নাহি পাই লেশ ॥৬৮॥
 
-> śuna, bhaṭṭācārya,--"āmi gelāṅa bahu-deśa
+> śuna, bhaṭṭācārya,--"āmi gelāṅa bahu-deśa\
 > vana-pathe duḥkhera kāhāṅ nāhi pāi leśa
 
 *śuna*—por favor escucha; *bhaṭṭācārya*—Mi querido Bhaṭṭācārya; *āmi*—Yo; *gelāṅa*—viajé; *bahu-deśa*—muchos países; *vana-pathe*—por el sendero del bosque; *duḥkhera*—de infelicidad; *kāhāṅ*—en ningún lugar; *nāhi pāi*—no encuentro; *leśa*—ni siquiera un rastro.

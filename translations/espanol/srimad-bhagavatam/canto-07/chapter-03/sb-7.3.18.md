@@ -1,11 +1,11 @@
 ### SB 7.3.18
 
-> अद्राक्षमहमेतं ते हृत्सारं महदद्भुतम
+> अद्राक्षमहमेतं ते हृत्सारं महदद्भुतम\
 > दंशभक्षितदेहस्य प्राणा ह्यस्थिषु शेरते ॥१८॥
 
-> adrākṣam aham etaṁ te
-> hṛt-sāraṁ mahad-adbhutam
-> daṁśa-bhakṣita-dehasya
+> adrākṣam aham etaṁ te\
+> hṛt-sāraṁ mahad-adbhutam\
+> daṁśa-bhakṣita-dehasya\
 > prāṇā hy asthiṣu śerate
 
 *adrākṣam*—he visto personalmente; *aham*—yo; *etam*—esta; *te*—tuya; *hṛt-sāram*—capacidad de resistir; *mahat*—muy grande; *adbhutam*—maravillosa; *daṁśa-bhakṣita*—comido por gusanos y hormigas; *dehasya*—cuyo cuerpo; *prāṇāḥ*—el aire vital; *hi*—en verdad; *asthiṣu*—en los huesos; *śerate*—se refugia.

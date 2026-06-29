@@ -1,9 +1,9 @@
 ### CC Antya 1.32
 
-> আর দিন কেহ তার দেখা না পাইলা ।
+> আর দিন কেহ তার দেখা না পাইলা ।\
 > সিদ্ধ-দেহ পাঞা কুক্কুর বৈকুণ্ঠেতে গেলা ॥৩২॥
 
-> āra dina keha tāra dekhā nā pāilā
+> āra dina keha tāra dekhā nā pāilā\
 > siddha-deha pāñā kukkura vaikuṇṭhete gelā
 
 *āra dina*—al día siguiente; *keha*—todos ellos; *tāra*—del perro; *dekhā nā pāila*—no pudieron verlo; *siddha-deha pāñā*—al obtener un cuerpo espiritual; *kukkura*—el perro; *vaikuṇṭhete gelā*—fue al reino espiritual, Vaikuṇṭha.

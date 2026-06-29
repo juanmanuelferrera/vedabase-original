@@ -1,9 +1,9 @@
 ### CC Madhya 19.229
 
-> সে অমৃতানন্দে ভক্ত সহ ডুবেন আপনে ।
+> সে অমৃতানন্দে ভক্ত সহ ডুবেন আপনে ।\
 > ‘কৃষ্ণ — ভক্তবশ’ গুণ কহে ঐশ্বর্য-জ্ঞানিগণে ॥২২৯॥
 
-> se amṛtānande bhakta saha ḍubena āpane
+> se amṛtānande bhakta saha ḍubena āpane\
 > 'kṛṣṇa--bhakta-vaśa' guṇa kahe aiśvarya-jñāni-gaṇe
 
 *se*—ese Señor Kṛṣṇa; *amṛta-ānande*—en la felicidad espiritual; *bhakta*—el devoto; *saha*—con; *ḍubena*—se sumerge; *āpane*—Él mismo; *kṛṣṇa*—Kṛṣṇa; *bhakta-vaśa*—de ser sometido por el devoto; *guṇa*—la cualidad; *kahe*—dicen; *aiśvarya-jñāni-gaṇe*—los eruditos conocedores de la opulencia de Kṛṣṇa.

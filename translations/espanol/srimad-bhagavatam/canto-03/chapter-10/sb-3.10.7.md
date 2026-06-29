@@ -1,11 +1,11 @@
 ### SB 3.10.7
 
-> तद्विलोक्य वियद्व्यापि पुष्करं यदधिष्ठितम् ।
+> तद्विलोक्य वियद्व्यापि पुष्करं यदधिष्ठितम् ।\
 > अनेन लोकान्प्राग्लीनान्कल्पितास्मीत्यचिन्तयत् ॥७॥
 
-> tad vilokya viyad-vyāpi
-> puṣkaraṁ yad-adhiṣṭhitam
-> anena lokān prāg-līnān
+> tad vilokya viyad-vyāpi\
+> puṣkaraṁ yad-adhiṣṭhitam\
+> anena lokān prāg-līnān\
 > kalpitāsmīty acintayat
 
 *tat vilokya*—mirando dentro de eso; *viyat-vyāpi*—extendido de manera vasta; *puṣkaram*—el loto; *yat*—aquello que; *adhiṣṭhitam*—estaba situado; *anena*—por este; *lokān*—todos los planetas; *prāk-līnān*—anteriormente fundidos en la disolución; *kalpitā asmi*—he de crear; *iti*—de esa manera; *acintayat*—pensó.

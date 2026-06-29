@@ -1,9 +1,9 @@
 ### CC Adi 3.88
 
-> আপনা লুকাইতে কৃষ্ণ নানা যত্ন করে ।
+> আপনা লুকাইতে কৃষ্ণ নানা যত্ন করে ।\
 > তথাপি তাঁহার ভক্ত জানয়ে তাঁহারে ॥৮৮॥
 
-> āpanā lukāite kṛṣṇa nānā yatna kare
+> āpanā lukāite kṛṣṇa nānā yatna kare\
 > tathāpi tāṅhāra bhakta jānaye tāṅhāre
 
 *āpanā*—Himself; *lukāite*—to hide; *kṛṣṇa*—Lord Kṛṣṇa; *nānā*—various; *yatna*—efforts; *kare*—makes; *tathāpi*—still; *tāṅhāra*—His; *bhakta*—devotees; *jānaye*—know; *tāṅhāre*—Him.

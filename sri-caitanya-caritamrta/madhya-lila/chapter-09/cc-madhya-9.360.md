@@ -1,9 +1,9 @@
 ### CC Madhya 9.360
 
-> প্রভুর তীর্থযাত্রা-কথা শুনে যেই জন ।
+> প্রভুর তীর্থযাত্রা-কথা শুনে যেই জন ।\
 > চৈতন্যচরণে পায় গাঢ় প্রেমধন ॥৩৬০॥
 
-> prabhura tīrtha-yātrā-kathā śune yei jana
+> prabhura tīrtha-yātrā-kathā śune yei jana\
 > caitanya-caraṇe pāya gāḍha prema-dhana
 
 *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *tīrtha-yātrā*—touring of sacred places of pilgrimage; *kathā*—topics about; *śune*—hears; *yei*—who; *jana*—person; *caitanya-caraṇe*—at the lotus feet of Śrī Caitanya Mahāprabhu; *pāya*—gets; *gāḍha*—deep; *prema-dhana*—riches of ecstatic love.

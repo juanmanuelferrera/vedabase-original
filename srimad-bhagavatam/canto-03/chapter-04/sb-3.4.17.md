@@ -1,11 +1,11 @@
 ### SB 3.4.17
 
-> मन्त्रेषु मां वा उपहूय यत्त्वमकुण्ठिताखण्डसदात्मबोधः ।
+> मन्त्रेषु मां वा उपहूय यत्त्वमकुण्ठिताखण्डसदात्मबोधः ।\
 > पृच्छेः प्रभो मुग्ध इवाप्रमत्तस्तन्नो मनो मोहयतीव देव ॥१७॥
 
-> mantreṣu māṁ vā upahūya yat tvam
-> akuṇṭhitākhaṇḍa-sadātma-bodhaḥ
-> pṛccheḥ prabho mugdha ivāpramattas
+> mantreṣu māṁ vā upahūya yat tvam\
+> akuṇṭhitākhaṇḍa-sadātma-bodhaḥ\
+> pṛccheḥ prabho mugdha ivāpramattas\
 > tan no mano mohayatīva deva
 
 *mantreṣu*—in consultations; *mām*—unto me; *vai*—as either; *upahūya*—by calling; *yat*—as much as; *tvam*—Your Lordship; *akuṇṭhita*—without hesitation; *akhaṇḍa*—without being separated; *sadā*—eternally; *ātma*—self; *bodhaḥ*—intelligent; *pṛccheḥ*—asked; *prabho*—O my Lord; *mugdhaḥ*—bewildered; *iva*—as if it were so; *apramattaḥ*—although never bewildered; *tat*—that; *naḥ*—our; *manaḥ*—mind; *mohayati*—bewilders; *iva*—as it is so; *deva*—O my Lord.

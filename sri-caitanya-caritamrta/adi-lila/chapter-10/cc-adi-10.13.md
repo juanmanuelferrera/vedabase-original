@@ -1,9 +1,9 @@
 ### CC Adi 10.13
 
-> আচার্যরত্নের নাম ‘শ্রীচন্দ্রশেখর’ ।
+> আচার্যরত্নের নাম ‘শ্রীচন্দ্রশেখর’ ।\
 > যাঁর ঘরে দেবী-ভাবে নাচিলা ঈশ্বর ॥১৩॥
 
-> ācāryaratnera nāma 'śrī-candraśekhara'—
+> ācāryaratnera nāma 'śrī-candraśekhara'—\
 > yāṅra ghare devī-bhāve nācilā īśvara
 
 *ācāryaratnera*—of Ācāryaratna; *nāma*—name; *śrī-candraśekhara*—of the name Śrī Candraśekhara; *yāṅra*—of whom; *ghare*—in the home; *devī-bhāve*—as the goddess; *nācilā*—danced; *īśvara*—Śrī Caitanya Mahāprabhu.

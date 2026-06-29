@@ -1,9 +1,9 @@
 ### CC Adi 14.39
 
-> ব্যাধি-ছলে জগদীশ-হিরণ্য-সদনে ।
+> ব্যাধি-ছলে জগদীশ-হিরণ্য-সদনে ।\
 > বিষ্ণু-নৈবেদ্য খাইল একাদশী-দিনে ॥৩৯॥
 
-> vyādhi-chale jagadīśa-hiraṇya-sadane
+> vyādhi-chale jagadīśa-hiraṇya-sadane\
 > viṣṇu-naivedya khāila ekādaśī-dine
 
 *vyādhi-chale*—con el pretexto de estar enfermo; *jagadīśa-hiraṇya*—de nombres Jagadīśa e Hiraṇya; *sadane*—en la casa de; *viṣṇu-naivedya*—alimento ofrecido al Señor Viṣṇu; *khāila*—comió; *ekādaśī*—del Ekādaśī; *dine*—en el día.

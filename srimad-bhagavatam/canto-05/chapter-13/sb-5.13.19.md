@@ -1,11 +1,11 @@
 ### SB 5.13.19
 
-> अतः कथञ्चित्स विमुक्त आपदः पुनश्च सार्थं प्रविशत्यरिन्दम
+> अतः कथञ्चित्स विमुक्त आपदः पुनश्च सार्थं प्रविशत्यरिन्दम\
 > अध्वन्यमुष्मिन्नजया निवेशितो भ्रमञ्जनोऽद्यापि न वेद कश्चन ॥१९॥
 
-> ataḥ kathañcit sa vimukta āpadaḥ
-> punaś ca sārthaṁ praviśaty arindama
-> adhvany amuṣminn ajayā niveśito
+> ataḥ kathañcit sa vimukta āpadaḥ\
+> punaś ca sārthaṁ praviśaty arindama\
+> adhvany amuṣminn ajayā niveśito\
 > bhramañ jano 'dyāpi na veda kaścana
 
 *ataḥ*—from this; *kathañcit*—somehow; *saḥ*—he; *vimuktaḥ*—liberated; *āpadaḥ*—from the danger; *punaḥ ca*—again; *sa-artham*—taking interest in that life; *praviśati*—begins; *arim-dama*—O King, killer of the enemies; *adhvani*—on the path of enjoyment; *amuṣmin*—that; *ajayā*—by the influence of the illusory energy; *niveśitaḥ*—being absorbed; *bhraman*—traveling; *janaḥ*—the conditioned soul; *adya api*—even up to death; *na veda*—does not understand; *kaścana*—anything.

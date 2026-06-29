@@ -1,9 +1,9 @@
 ### CC Madhya 19.128
 
-> ‘বিপ্রগৃহে’ স্থূলভিক্ষা, কাহাঁ মাধুকরী ।
+> ‘বিপ্রগৃহে’ স্থূলভিক্ষা, কাহাঁ মাধুকরী ।\
 > শুষ্ক রুটী-চানা চিবায় ভোগ পরিহরি’ ॥১২৮॥
 
-> 'vipra-gṛhe' sthūla-bhikṣā, kāhāṅ mādhu-karī
+> 'vipra-gṛhe' sthūla-bhikṣā, kāhāṅ mādhu-karī\
 > śuṣka ruṭī-cānā civāya bhoga parihari'
 
 *vipra-gṛhe*—in the house of a *brāhmaṇa*; *sthūla-bhikṣā*—full meals; *kāhāṅ*—sometimes; *mādhu-karī*—begging little by little like honeybees; *śuṣka*—dry; *ruṭī*—bread; *cānā*—chick-peas; *civāya*—chew; *bhoga parihari'*—giving up all kinds of material enjoyment.

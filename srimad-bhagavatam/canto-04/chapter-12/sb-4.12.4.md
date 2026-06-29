@@ -1,11 +1,11 @@
 ### SB 4.12.4
 
-> अहं त्वमित्यपार्था धीरज्ञानात्पुरुषस्य हि ।
+> अहं त्वमित्यपार्था धीरज्ञानात्पुरुषस्य हि ।\
 > स्वाप्नीवाभात्यतद्ध्यानाद्यया बन्धविपर्ययौ ॥४॥
 
-> ahaṁ tvam ity apārthā dhīr
-> ajñānāt puruṣasya hi
-> svāpnīvābhāty atad-dhyānād
+> ahaṁ tvam ity apārthā dhīr\
+> ajñānāt puruṣasya hi\
+> svāpnīvābhāty atad-dhyānād\
 > yayā bandha-viparyayau
 
 *aham*—I; *tvam*—you; *iti*—thus; *apārthā*—misconceived; *dhīḥ*—intelligence; *ajñānāt*—from ignorance; *puruṣasya*—of a person; *hi*—certainly; *svāpni*—a dream; *iva*—like; *ābhāti*—appears; *a-tat-dhyānāt*—from the bodily concept of life; *yayā*—by which; *bandha*—bondage; *viparyayau*—and misery.

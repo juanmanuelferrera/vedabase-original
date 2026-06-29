@@ -1,13 +1,13 @@
 ### SB 4.23.11
 
-> तस्यानया भगवतः परिकर्मशुद्ध
-> सत्त्वात्मनस्तदनुसंस्मरणानुपूर्त्या ।
-> ज्ञानं विरक्तिमदभून्निशितेन येन
+> तस्यानया भगवतः परिकर्मशुद्ध\
+> सत्त्वात्मनस्तदनुसंस्मरणानुपूर्त्या ।\
+> ज्ञानं विरक्तिमदभून्निशितेन येन\
 > चिच्छेद संशयपदं निजजीवकोशम् ॥११॥
 
-> tasyānayā bhagavataḥ parikarma-śuddha-
-> sattvātmanas tad-anusaṁsmaraṇānupūrtyā
-> jñānaṁ viraktimad abhūn niśitena yena
+> tasyānayā bhagavataḥ parikarma-śuddha-\
+> sattvātmanas tad-anusaṁsmaraṇānupūrtyā\
+> jñānaṁ viraktimad abhūn niśitena yena\
 > ciccheda saṁśaya-padaṁ nija-jīva-kośam
 
 *tasya*—his; *anayā*—by this; *bhagavataḥ*—of the Supreme Personality of Godhead; *parikarma*—activities in devotional service; *śuddha*—pure, transcendental; *sattva*—existence; *ātmanaḥ*—of the mind; *tat*—of the Supreme Personality of Godhead; *anusaṁsmaraṇa*—constantly remembering; *anupūrtyā*—being perfectly done; *jñānam*—knowledge; *virakti*—nonattachment; *mat*—possessing; *abhūt*—became manifested; *niśitena*—by sharpened activities; *yena*—by which; *ciccheda*—become separated; *saṁśaya-padam*—position of doubtfulness; *nija*—own; *jīva-kośam*—encagement of the living entity.

@@ -1,9 +1,9 @@
 ### CC Madhya 5.39
 
-> নীচে কন্যা দিলে কুল যাইবেক নাশ ।
+> নীচে কন্যা দিলে কুল যাইবেক নাশ ।\
 > শুনিঞা সকল লোক করিবে উপহাস ।।’ ॥ ৩৯ ॥
 
-> nīce kanyā dile kula yāibeka nāśa
+> nīce kanyā dile kula yāibeka nāśa\
 > śuniñā sakala loka karibe upahāsa'
 
 *nīce*—to a lower family; *kanyā*—daughter; *dile*—if offering; *kula*—family tradition; *yāibeka*—will go to; *nāśa*—destruction; *śuniñā*—hearing; *sakala*—all; *loka*—friends; *karibe*—will do; *upahāsa*—joking.

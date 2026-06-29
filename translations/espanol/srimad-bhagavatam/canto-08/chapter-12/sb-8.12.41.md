@@ -1,13 +1,13 @@
 ### SB 8.12.41
 
-> श्रीशुक उवाच
-> एवं भगवता राजन्श्रीवत्साङ्केन सत्कृतः
+> श्रीशुक उवाच\
+> एवं भगवता राजन्श्रीवत्साङ्केन सत्कृतः\
 > आमन्त्र्य तं परिक्रम्य सगणः स्वालयं ययौ ॥४१॥
 
-> śrī-śuka uvāca
-> evaṁ bhagavatā rājan
-> śrīvatsāṅkena sat-kṛtaḥ
-> āmantrya taṁ parikramya
+> śrī-śuka uvāca\
+> evaṁ bhagavatā rājan\
+> śrīvatsāṅkena sat-kṛtaḥ\
+> āmantrya taṁ parikramya\
 > sagaṇaḥ svālayaṁ yayau
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *evam*—así; *bhagavatā*—por la Suprema Personalidad de Dios; *rājan*—¡oh, rey!; *śrīvatsa-aṅkena*—que siempre lleva la marca de Śrīvatsa sobre el pecho; *sat-kṛtaḥ*—muy glorificado; *āmantrya*—pedir permiso de; *tam*—Él; *parikramya*—tras caminar alrededor; *sa-gaṇaḥ*—con su séquito; *sva-ālayam*—a su propia morada; *yayau*—regresó.

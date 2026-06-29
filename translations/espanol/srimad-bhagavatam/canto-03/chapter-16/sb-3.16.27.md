@@ -1,13 +1,13 @@
 ### SB 3.16.27
 
-> ब्रह्मोवाच
-> अथ ते मुनयो दृष्ट्वा नयनानन्दभाजनम् ।
+> ब्रह्मोवाच\
+> अथ ते मुनयो दृष्ट्वा नयनानन्दभाजनम् ।\
 > वैकुण्ठं तदधिष्ठानं विकुण्ठं च स्वयंप्रभम् ॥२७॥
 
-> brahmovāca
-> atha te munayo dṛṣṭvā
-> nayanānanda-bhājanam
-> vaikuṇṭhaṁ tad-adhiṣṭhānaṁ
+> brahmovāca\
+> atha te munayo dṛṣṭvā\
+> nayanānanda-bhājanam\
+> vaikuṇṭhaṁ tad-adhiṣṭhānaṁ\
 > vikuṇṭhaṁ ca svayaṁ-prabham
 
 *brahmā uvāca*—Brahmā dijo; *atha*—ahora; *te*—aquellos; *munayaḥ*—sabios; *dṛṣṭvā*—tras ver; *nayana*—de los ojos; *ānanda*—placer; *bhājanam*—produciendo; *vaikuṇṭham*—el planeta Vaikuṇṭha; *tat*—de Él; *adhiṣṭhānam*—la morada; *vikuṇṭham*—la Suprema Personalidad de Dios; *ca*—y; *svayam-prabham*—autoluminoso.

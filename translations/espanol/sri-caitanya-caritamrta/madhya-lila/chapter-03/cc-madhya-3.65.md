@@ -1,9 +1,9 @@
 ### CC Madhya 3.65
 
-> ঐছে অন্ন যে কৃষ্ণকে করায় ভোজন ।
+> ঐছে অন্ন যে কৃষ্ণকে করায় ভোজন ।\
 > জন্মে জন্মে শিরে ধরোঁ তাঁহার চরণ ॥৬৫॥
 
-> aiche anna ye kṛṣṇake karāya bhojana
+> aiche anna ye kṛṣṇake karāya bhojana\
 > janme janme śire dharoṅ tāṅhāra caraṇa
 
 *aiche*—de este modo; *anna*—los alimentos; *ye*—todo aquel que; *kṛṣṇake*—a Kṛṣṇa; *karāya*—hizo; *bhojana*—comer; *janme janme*—vida tras vida; *śire*—sobre Mi cabeza; *dharoṅ*—mantengo; *tāṅhāra*—sus; *caraṇa*—pies de loto.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.130
 
-> গদাধর-পণ্ডিত যবে সঙ্গেতে চলিলা ।
+> গদাধর-পণ্ডিত যবে সঙ্গেতে চলিলা ।\
 > ‘ক্ষেত্র-সন্ন্যাস না ছাড়িহ’ — প্রভু নিষেধিলা ॥১৩০॥
 
-> gadādhara-paṇḍita yabe saṅgete calilā
+> gadādhara-paṇḍita yabe saṅgete calilā\
 > 'kṣetra-sannyāsa nā chāḍiha'—prabhu niṣedhilā
 
 *gadādhara-paṇḍita*—Gadādhara Paṇḍita; *yabe*—when; *saṅgete*—with Śrī Caitanya Mahāprabhu; *calilā*—started to go; *kṣetra-sannyāsa*—the renounced order of life at a holy place of pilgrimage; *nā chāḍiha*—do not give up; *prabhu niṣedhilā*—Lord Śrī Caitanya Mahāprabhu forbade.

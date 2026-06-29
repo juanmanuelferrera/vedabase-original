@@ -1,11 +1,11 @@
 ### SB 5.12.4
 
-> यदाह योगेश्वर दृश्यमानं क्रियाफलं सद्व्यवहारमूलम
+> यदाह योगेश्वर दृश्यमानं क्रियाफलं सद्व्यवहारमूलम\
 > न ह्यञ्जसा तत्त्वविमर्शनाय भवानमुष्मिन्भ्रमते मनो मे ॥४॥
 
-> yad āha yogeśvara dṛśyamānaṁ
-> kriyā-phalaṁ sad-vyavahāra-mūlam
-> na hy añjasā tattva-vimarśanāya
+> yad āha yogeśvara dṛśyamānaṁ\
+> kriyā-phalaṁ sad-vyavahāra-mūlam\
+> na hy añjasā tattva-vimarśanāya\
 > bhavān amuṣmin bhramate mano me
 
 *yat*—lo que; *āha*—has dicho; *yoga-īśvara*—¡oh, señor del poder místico!; *dṛśyamānam*—que se ha visto claramente; *kriyā-phalam*—los resultados de llevar el cuerpo de un lugar a otro, como la fatiga; *sat*—existen; *vyavahāra-mūlam*—que se basa únicamente en la etiqueta; *na*—o; *hi*—ciertamente; *añjasā*—en suma, o de hecho; *tattva-vimarśanāya*—para entender la verdad mediante consultas; *bhavān*—tu gracia; *amuṣmin*—en esa explicación; *bhramate*—se confunde; *manaḥ*—mente; *me*—mía.

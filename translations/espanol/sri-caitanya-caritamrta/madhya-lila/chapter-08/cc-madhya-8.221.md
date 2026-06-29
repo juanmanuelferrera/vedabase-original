@@ -1,9 +1,9 @@
 ### CC Madhya 8.221
 
-> রাগানুগ-মার্গে তাঁরে ভজে যেই জন ৷
+> রাগানুগ-মার্গে তাঁরে ভজে যেই জন ৷\
 > সেইজন পায় ব্রজে ব্রজেন্দ্রনন্দন ৷৷ ২২১ ৷৷ ॥২২১॥
 
-> rāgānuga-mārge tāṅre bhaje yei jana
+> rāgānuga-mārge tāṅre bhaje yei jana\
 > sei-jana pāya vraje vrajendra-nandana
 
 *rāga-anuga*—del apego espontáneo; *mārge*—por la senda; *tāṅre*—a Kṛṣṇa; *bhaje*—adora; *yei*—quien; *jana*—persona; *sei-jana*—esa persona; *pāya*—obtiene; *vraje*—en Vṛndāvana; *vrajendra-nandana*—el hijo de Mahārāja Nanda.

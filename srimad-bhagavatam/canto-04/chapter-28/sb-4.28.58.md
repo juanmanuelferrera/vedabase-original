@@ -1,11 +1,11 @@
 ### SB 4.28.58
 
-> विपणस्तु क्रियाशक्तिर्भूतप्रकृतिरव्यया ।
+> विपणस्तु क्रियाशक्तिर्भूतप्रकृतिरव्यया ।\
 > शक्त्यधीशः पुमांस्त्वत्र प्रविष्टो नावबुध्यते ॥५८॥
 
-> vipaṇas tu kriyā-śaktir
-> bhūta-prakṛtir avyayā
-> śakty-adhīśaḥ pumāṁs tv atra
+> vipaṇas tu kriyā-śaktir\
+> bhūta-prakṛtir avyayā\
+> śakty-adhīśaḥ pumāṁs tv atra\
 > praviṣṭo nāvabudhyate
 
 *vipaṇaḥ*—stores; *tu*—then; *kriyā-śaktiḥ*—the energy for activities, or the working senses; *bhūta*—the five gross elements; *prakṛtiḥ*—the material elements; *avyayā*—eternal; *śakti*—the energy; *adhīśaḥ*—controller; *pumān*—man; *tu*—then; *atra*—here; *praviṣṭaḥ*—entered; *na*—does not; *avabudhyate*—become subjected to knowledge.

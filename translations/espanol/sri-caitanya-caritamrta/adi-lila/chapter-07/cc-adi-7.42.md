@@ -1,9 +1,9 @@
 ### CC Adi 7.42
 
-> মূর্খ সন্ন্যাসী নিজ-ধর্ম নাহি জানে ।
+> মূর্খ সন্ন্যাসী নিজ-ধর্ম নাহি জানে ।\
 > ভাবুক হইয়া ফেরে ভাবুকের সনে ॥৪২॥
 
-> mūrkha sannyāsī nija-dharma nāhi jane
+> mūrkha sannyāsī nija-dharma nāhi jane\
 > bhāvuka ha-iyā phere bhāvukera sane
 
 *mūrkha*—analfabeto; *sannyāsī*—persona en la orden de renuncia; *nija-dharma*—deber propio; *nāhi*—no; *jāne*—conoce; *bhāvuka*—en éxtasis; *ha-iyā*—convirtiéndose; *phere*—deambula; *bhāvukera*—de otra persona extasiada; *sane*—en compañía.

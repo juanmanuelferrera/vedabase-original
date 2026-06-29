@@ -1,18 +1,18 @@
 ### SB 8.5.19-20
 
-> स विलोक्येन्द्रवाय्वादीन्निःसत्त्वान्विगतप्रभान
-> लोकानमङ्गलप्रायानसुरानयथा विभुः ॥१९॥
-> समाहितेन मनसा संस्मरन्पुरुषं परम
+> स विलोक्येन्द्रवाय्वादीन्निःसत्त्वान्विगतप्रभान\
+> लोकानमङ्गलप्रायानसुरानयथा विभुः ॥१९॥\
+> समाहितेन मनसा संस्मरन्पुरुषं परम\
 > उवाचोत्फुल्लवदनो देवान्स भगवान्परः ॥२०॥
 
-> sa vilokyendra-vāyv-ādīn
-> niḥsattvān vigata-prabhān
-> lokān amaṅgala-prāyān
+> sa vilokyendra-vāyv-ādīn\
+> niḥsattvān vigata-prabhān\
+> lokān amaṅgala-prāyān\
 > asurān ayathā vibhuḥ
 
-> samāhitena manasā
-> saṁsmaran puruṣaṁ param
-> uvācotphulla-vadano
+> samāhitena manasā\
+> saṁsmaran puruṣaṁ param\
+> uvācotphulla-vadano\
 > devān sa bhagavān paraḥ
 
 *saḥ*—el Señor Brahmā; *vilokya*—al ver; *indra-vāyu-ādīn*—a todos los semidioses, guiados por Indra y Vāyu; *niḥsattvān*—privados de toda potencia espiritual; *vigata-prabhān*—privados de toda refulgencia; *lokān*—los tres mundos; *amaṅgala-prāyān*—sumidos en la desdicha; *asurān*—todos los demonios; *ayathāḥ*—prosperando; *vibhuḥ*—el Señor Brahmā, el ser supremo en el mundo material; *samāhitena*—mediante un ajuste completo; *manasā*—de la mente; *saṁsmaran*—recordar una y otra vez; *puruṣam*—a la Persona Suprema; *param*—trascendental; *uvāca*—dijo; *utphulla-vadanaḥ*—con el rostro brillante; *devān*—a los semidioses; *saḥ*—él; *bhagavān*—el más poderoso; *paraḥ*—de los semidioses.

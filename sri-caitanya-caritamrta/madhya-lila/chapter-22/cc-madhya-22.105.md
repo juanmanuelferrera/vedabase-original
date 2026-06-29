@@ -1,11 +1,11 @@
 ### CC Madhya 22.105
 
-> কৃতিসাধ্যা ভবেৎ সাধ্যভাবা সা সাধনাভিধা ।
+> কৃতিসাধ্যা ভবেৎ সাধ্যভাবা সা সাধনাভিধা ।\
 > নিত্যসিদ্ধস্য ভাবস্য প্রাকট্যং হৃদি সাধ্যতা ॥১০৫॥
 
-> kṛti-sādhyā bhavet sādhya-
-> bhāvā sā sādhanābhidhā
-> nitya-siddhasya bhāvasya
+> kṛti-sādhyā bhavet sādhya-\
+> bhāvā sā sādhanābhidhā\
+> nitya-siddhasya bhāvasya\
 > prākaṭyaṁ hṛdi sādhyatā
 
 *kṛti-sādhyā*—which is to be executed by the senses; *bhavet*—should be; *sādhya-bhāvā*—by which love of Godhead is acquired; *sā*—that; *sādhana-abhidhā*—called *sādhana-bhakti,* or devotional service in practice; *nitya-siddhasya*—which is eternally present; *bhāvasya*—of love of Godhead; *prākaṭyam*—the awakening; *hṛdi*—in the heart; *sādhyatā*—potentiality.

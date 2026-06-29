@@ -1,13 +1,13 @@
 ### SB 4.23.29
 
-> मैत्रेय उवाच
-> स्तुवतीष्वमरस्त्रीषु पतिलोकं गता वधूः ।
+> मैत्रेय उवाच\
+> स्तुवतीष्वमरस्त्रीषु पतिलोकं गता वधूः ।\
 > यं वा आत्मविदां धुर्यो वैन्यः प्रापाच्युताश्रयः ॥२९॥
 
-> maitreya uvāca
-> stuvatīṣv amara-strīṣu
-> pati-lokaṁ gatā vadhūḥ
-> yaṁ vā ātma-vidāṁ dhuryo
+> maitreya uvāca\
+> stuvatīṣv amara-strīṣu\
+> pati-lokaṁ gatā vadhūḥ\
+> yaṁ vā ātma-vidāṁ dhuryo\
 > vainyaḥ prāpācyutāśrayaḥ
 
 *maitreyaḥ uvāca*—the great sage Maitreya continued to speak; *stuvatīṣu*—while glorifying; *amara-strīṣu*—by the wives of the denizens of heaven; *pati-lokam*—the planet where the husband had gone; *gatā*—reaching; *vadhūḥ*—the wife; *yam*—where; *vā*—or; *ātma-vidām*—of the self-realized souls; *dhuryaḥ*—the topmost; *vainyaḥ*—the son of King Vena (Pṛthu Mahārāja); *prāpa*—obtained; *acyuta-āśrayaḥ*—under the protection of the Supreme Personality of Godhead.

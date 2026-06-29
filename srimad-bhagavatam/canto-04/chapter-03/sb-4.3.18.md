@@ -1,11 +1,11 @@
 ### SB 4.3.18
 
-> नैतादृशानां स्वजनव्यपेक्षया गृहान्प्रतीयादनवस्थितात्मनाम् ।
+> नैतादृशानां स्वजनव्यपेक्षया गृहान्प्रतीयादनवस्थितात्मनाम् ।\
 > येऽभ्यागतान्वक्रधियाभिचक्षते आरोपितभ्रूभिरमर्षणाक्षिभिः ॥१८॥
 
-> naitādṛśānāṁ sva-jana-vyapekṣayā
-> gṛhān pratīyād anavasthitātmanām
-> ye 'bhyāgatān vakra-dhiyābhicakṣate
+> naitādṛśānāṁ sva-jana-vyapekṣayā\
+> gṛhān pratīyād anavasthitātmanām\
+> ye 'bhyāgatān vakra-dhiyābhicakṣate\
 > āropita-bhrūbhir amarṣaṇākṣibhiḥ
 
 *na*—not; *etādṛśānām*—like this; *sva-jana*—kinsmen; *vyapekṣayā*—depending on that; *gṛhān*—in the house of; *pratīyāt*—one should go; *anavasthita*—disturbed; *ātmanām*—mind; *ye*—those; *abhyāgatān*—guests; *vakra-dhiyā*—with a cold reception; *abhicakṣate*—looking at; *āropita-bhrūbhiḥ*—with raised eyebrows; *amarṣaṇa*—angry; *akṣibhiḥ*—with the eyes.

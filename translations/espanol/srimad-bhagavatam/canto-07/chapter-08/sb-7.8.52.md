@@ -1,15 +1,15 @@
 ### SB 7.8.52
 
-> श्रीयक्षा ऊचुः
-> वयमनुचरमुख्याः कर्मभिस्ते मनोज्ञऐस
-> त इह दितिसुतेन प्रापिता वाहकत्वम
-> स तु जनपरितापं तत्कृतं जानता ते
+> श्रीयक्षा ऊचुः\
+> वयमनुचरमुख्याः कर्मभिस्ते मनोज्ञऐस\
+> त इह दितिसुतेन प्रापिता वाहकत्वम\
+> स तु जनपरितापं तत्कृतं जानता ते\
 > नरहर उपनीतः पञ्चतां पञ्चविंश ॥५२॥
 
-> śrī-yakṣā ūcuḥ
-> vayam anucara-mukhyāḥ karmabhis te mano-jñais
-> ta iha diti-sutena prāpitā vāhakatvam
-> sa tu jana-paritāpaṁ tat-kṛtaṁ jānatā te
+> śrī-yakṣā ūcuḥ\
+> vayam anucara-mukhyāḥ karmabhis te mano-jñais\
+> ta iha diti-sutena prāpitā vāhakatvam\
+> sa tu jana-paritāpaṁ tat-kṛtaṁ jānatā te\
 > narahara upanītaḥ pañcatāṁ pañca-viṁśa
 
 *śrī-yakṣāḥ ūcuḥ*—los habitantes del planeta Yakṣa oraron; *vayam*—nosotros; *anucara-mukhyāḥ*—los principales entre Tus muchos sirvientes; *karmabhiḥ*—con servicios; *te*—a Ti; *mano-jñaiḥ*—muy satisfactorios; *te*—ellos; *iha*—en este momento; *diti-sutena*—por Hiraṇyakaśipu, el hijo de Diti; *prāpitāḥ*—forzados a trabajar de; *vāhakatvam*—porteadores de palanquín; *saḥ*—él; *tu*—pero; *jana-paritāpam*—la condición miserable de todos; *tat-kṛtam*—causada por él; *jānatā*—sabiendo; *te*—por Ti; *nara-hara*—¡oh, Señor en la forma de Nṛsiṁha!; *upanītaḥ*—puesto a; *pañcatām*—muerte; *pañca-viṁśa*—¡oh, vigesimoquinto principio! (el controlador de los veinticuatro elementos restantes).

@@ -1,18 +1,18 @@
 ### SB 7.4.25-26
 
-> मा भैष्ट विबुधश्रेष्ठाः सर्वेषां भद्रमस्तु वः
-> मद्दर्शनं हि भूतानां सर्वश्रेयोपपत्तये ॥२५॥
-> ज्ञआतमेतस्य दौरात्म्यं दैतेयापसदस्य यत
+> मा भैष्ट विबुधश्रेष्ठाः सर्वेषां भद्रमस्तु वः\
+> मद्दर्शनं हि भूतानां सर्वश्रेयोपपत्तये ॥२५॥\
+> ज्ञआतमेतस्य दौरात्म्यं दैतेयापसदस्य यत\
 > तस्य शान्तिं करिष्यामि कालं तावत्प्रतीक्षत ॥२६॥
 
-> mā bhaiṣṭa vibudha-śreṣṭhāḥ
-> sarveṣāṁ bhadram astu vaḥ
-> mad-darśanaṁ hi bhūtānāṁ
+> mā bhaiṣṭa vibudha-śreṣṭhāḥ\
+> sarveṣāṁ bhadram astu vaḥ\
+> mad-darśanaṁ hi bhūtānāṁ\
 > sarva-śreyopapattaye
 
-> jñātam etasya daurātmyaṁ
-> daiteyāpasadasya yat
-> tasya śāntiṁ kariṣyāmi
+> jñātam etasya daurātmyaṁ\
+> daiteyāpasadasya yat\
+> tasya śāntiṁ kariṣyāmi\
 > kālaṁ tāvat pratīkṣata
 
 *mā*—do not; *bhaiṣṭa*—fear; *vibudha-śreṣṭhāḥ*—O best of learned persons; *sarveṣām*—of all; *bhadram*—the good fortune; *astu*—let there be; *vaḥ*—unto you; *mat-darśanam*—the seeing of Me (or offering of prayers to Me or hearing about Me, all of which are absolute); *hi*—indeed; *bhūtānām*—of all living entities; *sarva-śreya*—of all good fortune; *upapattaye*—for the attainment; *jñātam*—known; *etasya*—of this; *daurātmyam*—the nefarious activities; *daiteya-apasadasya*—of the great demon, Hiraṇyakaśipu; *yat*—which; *tasya*—of this; *śāntim*—cessation; *kariṣyāmi*—I shall make; *kālam*—time; *tāvat*—until that; *pratīkṣata*—just wait.

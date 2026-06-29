@@ -1,11 +1,11 @@
 ### CC Madhya 20.57
 
-> ভবদ্বিধা ভাগবতাস্তীর্থভূতাঃ স্বয়ং প্রভো ।
+> ভবদ্বিধা ভাগবতাস্তীর্থভূতাঃ স্বয়ং প্রভো ।\
 > তীর্থীকুর্বন্তি তীর্থানি স্বান্তঃস্থেন গদাভৃতা ॥৫৭॥
 
-> bhavad-vidhā bhāgavatās
-> tīrtha-bhūtāḥ svayaṁ prabho
-> tīrthī-kurvanti tīrthāni
+> bhavad-vidhā bhāgavatās\
+> tīrtha-bhūtāḥ svayaṁ prabho\
+> tīrthī-kurvanti tīrthāni\
 > svāntaḥ-sthena gadā-bhṛtā
 
 *bhavat-vidhāḥ*—like you; *bhāgavatāḥ*—advanced devotees; *tīrtha-bhūtāḥ*—personified holy places of pilgrimage; *svayam*—personally; *prabho*—my lord; *tīrthī-kurvanti*—make into holy places; *tīrthāni*—all the holy places of pilgrimage; *sva-antaḥ-sthena*—situated within their hearts; *gadā-bhṛtā*—by Lord Viṣṇu, who carries a club.

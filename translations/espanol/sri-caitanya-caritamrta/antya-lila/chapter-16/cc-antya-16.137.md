@@ -1,9 +1,9 @@
 ### CC Antya 16.137
 
-> অযোগ্য হঞা তাহা কেহ সদা পান করে ।
+> অযোগ্য হঞা তাহা কেহ সদা পান করে ।\
 > যোগ্য জন নাহি পায়, লোভে মাত্র মরে ॥১৩৭॥
 
-> ayogya hañā tāhā keha sadā pāna kare
+> ayogya hañā tāhā keha sadā pāna kare\
 > yogya jana nāhi pāya, lobhe mātra mare
 
 *ayogya*—no apta; *hañā*—siendo; *tāhā*—eso; *keha*—alguien; *sadā*—siempre; *pāna kare*—bebe; *yogya jana*—la persona competente; *nāhi pāya*—no lo obtiene; *lobhe*—por avidez; *mātra*—simplemente; *mare*—muere.

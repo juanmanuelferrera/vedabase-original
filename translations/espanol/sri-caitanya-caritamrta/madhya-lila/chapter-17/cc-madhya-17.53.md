@@ -1,9 +1,9 @@
 ### CC Madhya 17.53
 
-> মথুরা যাইবার ছলে আসেন ঝারিখণ্ড ।
+> মথুরা যাইবার ছলে আসেন ঝারিখণ্ড ।\
 > ভিল্লপ্রায় লোক তাহাঁ পরম-পাষণ্ড ॥৫৩॥
 
-> mathurā yāibāra chale āsena jhārikhaṇḍa
+> mathurā yāibāra chale āsena jhārikhaṇḍa\
 > bhilla-prāya loka tāhāṅ parama-pāṣaṇḍa
 
 *mathurā*—a Mathurā; *yāibāra*—de ir; *chale*—con el pretexto; *āsena*—llegó; *jhārikhaṇḍa*—a Jhārikhaṇḍa; *bhilla-prāya*—como los bheels, una clase de gente incivilizada; *loka*—la gente; *tāhāṅ*—allí; *parama-pāṣaṇḍa*—sin conciencia de Dios.

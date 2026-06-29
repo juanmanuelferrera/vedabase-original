@@ -1,13 +1,13 @@
 ### SB 7.3.17
 
-> श्रीब्रह्मोवाच
-> उत्तिष्ठोत्तिष्ठ भद्रं ते तपःसिद्धोऽसि काश्यप
+> श्रीब्रह्मोवाच\
+> उत्तिष्ठोत्तिष्ठ भद्रं ते तपःसिद्धोऽसि काश्यप\
 > वरदोऽहमनुप्राप्तो व्रियतामीप्सितो वरः ॥१७॥
 
-> śrī-brahmovāca
-> uttiṣṭhottiṣṭha bhadraṁ te
-> tapaḥ-siddho 'si kāśyapa
-> varado 'ham anuprāpto
+> śrī-brahmovāca\
+> uttiṣṭhottiṣṭha bhadraṁ te\
+> tapaḥ-siddho 'si kāśyapa\
+> varado 'ham anuprāpto\
 > vriyatām īpsito varaḥ
 
 *śrī-brahmā uvāca*—el Señor Brahmā dijo; *uttiṣṭha*—por favor, levántate; *uttiṣṭha*—levántate; *bhadram*—buena fortuna; *te*—a ti; *tapaḥ-siddhaḥ*—perfecto en la ejecución de austeridades; *asi*—tú eres; *kāśyapa*—¡oh, hijo de Kaśyapa!; *vara-daḥ*—el que da bendiciones; *aham*—yo; *anuprāptaḥ*—llegado; *vriyatām*—expón; *īpsitaḥ*—deseada; *varaḥ*—bendición.

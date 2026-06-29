@@ -1,9 +1,9 @@
 ### CC Antya 1.141
 
-> ক্রমে শ্রীরূপ-গোসাঞি সকলি কহিল ।
+> ক্রমে শ্রীরূপ-গোসাঞি সকলি কহিল ।\
 > শুনি’ প্রভুর ভক্তগণের চমৎকার হৈল ॥১৪১॥
 
-> krame śrī-rūpa-gosāñi sakali kahila
+> krame śrī-rūpa-gosāñi sakali kahila\
 > śuni' prabhura bhakta-gaṇera camatkāra haila
 
 *krame*—gradualmente; *śrī-rūpa-gosāñi*—Śrīla Rūpa Gosvāmī; *sakali kahila*—lo explicó todo; *śuni'*—al escuchar; *prabhura*—de Śrī Caitanya Mahāprabhu; *bhakta-gaṇera*—de los devotos; *camatkāra*—asombro; *haila*—hubo.

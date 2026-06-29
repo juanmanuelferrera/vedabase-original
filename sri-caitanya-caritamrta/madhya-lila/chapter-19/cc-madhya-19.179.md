@@ -1,9 +1,9 @@
 ### CC Madhya 19.179
 
-> যৈছে বীজ, ইক্ষু, রস, গুড়, খণ্ড-সার ।
+> যৈছে বীজ, ইক্ষু, রস, গুড়, খণ্ড-সার ।\
 > শর্করা, সিতা, মিছরি, উত্তম-মিছরি আর ॥১৭৯॥
 
-> yaiche bīja, ikṣu, rasa, guḍa, khaṇḍa-sāra
+> yaiche bīja, ikṣu, rasa, guḍa, khaṇḍa-sāra\
 > śarkarā, sitā, michari, uttama-michari āra
 
 *yaiche*—just like; *bīja*—the seed; *ikṣu*—the sugarcane plant; *rasa*—the juice; *guḍa*—molasses; *khaṇḍa-sāra*—dry molasses; *śarkarā*—sugar; *sitā*—candy; *michari*—rock candy; *uttama-michari*—lozenges; *āra*—and.

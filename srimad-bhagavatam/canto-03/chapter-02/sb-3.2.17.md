@@ -1,11 +1,11 @@
 ### SB 3.2.17
 
-> दुनोति चेतः स्मरतो ममैतद्यदाह पादावभिवन्द्य पित्रोः ।
+> दुनोति चेतः स्मरतो ममैतद्यदाह पादावभिवन्द्य पित्रोः ।\
 > ताताम्ब कंसादुरुशङ्कितानां प्रसीदतं नोऽकृतनिष्कृतीनाम् ॥१७॥
 
-> dunoti cetaḥ smarato mamaitad
-> yad āha pādāv abhivandya pitroḥ
-> tātāmba kaṁsād uru-śaṅkitānāṁ
+> dunoti cetaḥ smarato mamaitad\
+> yad āha pādāv abhivandya pitroḥ\
+> tātāmba kaṁsād uru-śaṅkitānāṁ\
 > prasīdataṁ no 'kṛta-niṣkṛtīnām
 
 *dunoti*—it gives me pain; *cetaḥ*—heart; *smarataḥ*—while thinking of; *mama*—my; *etat*—this; *yat*—as much as; *āha*—said; *pādau*—feet; *abhivandya*—worshiping; *pitroḥ*—of the parents; *tāta*—My dear father; *amba*—My dear mother; *kaṁsāt*—out of Kaṁsa's; *uru*—great; *śaṅkitānām*—of those who are afraid; *prasīdatam*—be pleased with; *naḥ*—Our; *akṛta*—not executed; *niṣkṛtīnām*—duties to serve you.

@@ -1,9 +1,9 @@
 ### CC Madhya 7.59
 
-> সমুদ্ৰ-তীরে তীরে আলালনাথ-পথে ।
+> সমুদ্ৰ-তীরে তীরে আলালনাথ-পথে ।\
 > সার্বভৌম কহিলেন আচার্য-গোপীনাথে ॥৫৯॥
 
-> samudra-tīre tīre ālālanātha-pathe
+> samudra-tīre tīre ālālanātha-pathe\
 > sārvabhauma kahilena ācārya-gopīnāthe
 
 *samudra-tīre*—on the shore of the sea; *tīre*—on the shore; *ālālanātha-pathe*—on the path to the temple of Ālālanātha; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *kahilena*—said; *ācārya-gopīnāthe*—to Gopīnātha Ācārya.

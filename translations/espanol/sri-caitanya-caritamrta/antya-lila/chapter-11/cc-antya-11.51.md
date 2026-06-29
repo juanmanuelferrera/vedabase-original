@@ -1,9 +1,9 @@
 ### CC Antya 11.51
 
-> হরিদাসের গুণ কহিতে প্রভু হইলা পঞ্চমুখ ।
+> হরিদাসের গুণ কহিতে প্রভু হইলা পঞ্চমুখ ।\
 > কহিতে কহিতে প্রভুর বাড়ে মহাসুখ ॥৫১॥
 
-> haridāsera guṇa kahite prabhu ha-ilā pañca-mukha
+> haridāsera guṇa kahite prabhu ha-ilā pañca-mukha\
 > kahite kahite prabhura bāḍe mahā-sukha
 
 *haridāsera*—de Haridāsa Ṭhākura; *guṇa*—cualidades; *kahite*—al hablar; *prabhu*—Śrī Caitanya Mahāprabhu; *ha-ilā*—se volvió; *pañca-mukha*—como si poseyese cinco bocas; *kahite kahite*—mientras hablaba; *prabhura*—de Śrī Caitanya Mahāprabhu; *bāḍe*—aumentó; *mahā-sukha*—gran felicidad.

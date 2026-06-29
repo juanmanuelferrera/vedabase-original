@@ -1,11 +1,11 @@
 ### SB 7.15.74
 
-> धर्मस्ते गृहमेधीयो वर्णितः पापनाशनः
+> धर्मस्ते गृहमेधीयो वर्णितः पापनाशनः\
 > गृहस्थो येन पदवीमञ्जसा न्यासिनामियात ॥७४॥
 
-> dharmas te gṛha-medhīyo
-> varṇitaḥ pāpa-nāśanaḥ
-> gṛhastho yena padavīm
+> dharmas te gṛha-medhīyo\
+> varṇitaḥ pāpa-nāśanaḥ\
+> gṛhastho yena padavīm\
 > añjasā nyāsinām iyāt
 
 *dharmaḥ*—that religious process; *te*—to you; *gṛha-medhīyaḥ*—although attached to household life; *varṇitaḥ*—explained (by me); *pāpa-nāśanaḥ*—the destruction of sinful reactions; *gṛhasthaḥ*—a person in household life; *yena*—by which; *padavīm*—the position; *añjasā*—very easily; *nyāsinām*—of those in the renounced order of life; *iyāt*—can obtain.

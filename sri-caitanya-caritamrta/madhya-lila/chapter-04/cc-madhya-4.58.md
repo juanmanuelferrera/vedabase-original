@@ -1,9 +1,9 @@
 ### CC Madhya 4.58
 
-> ভোগ-সামগ্রী আইল সন্দেশাদি যত ।
+> ভোগ-সামগ্রী আইল সন্দেশাদি যত ।\
 > নানা উপহার, তাহা কহিতে পারি কত ॥৫৮॥
 
-> bhoga-sāmagrī āila sandeśādi yata
+> bhoga-sāmagrī āila sandeśādi yata\
 > nānā upahāra, tāhā kahite pāri kata
 
 *bhoga-sāmagrī*—ingredients for eatables to be offered; *āila*—brought in; *sandeśa-ādi*—sweetmeats; *yata*—all kinds of; *nānā*—various; *upahāra*—presentations; *tāhā*—that; *kahite*—to say; *pāri*—I am able; *kata*—how much.

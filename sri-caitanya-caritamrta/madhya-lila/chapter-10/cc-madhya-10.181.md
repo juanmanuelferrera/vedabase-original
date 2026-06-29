@@ -1,9 +1,9 @@
 ### CC Madhya 10.181
 
-> প্রেম বিনা কভু নহে তাঁর সাক্ষাৎকার ।
+> প্রেম বিনা কভু নহে তাঁর সাক্ষাৎকার ।\
 > ইঁহার কৃপাতে হয় দরশন ইঁহার ॥১৮১॥
 
-> prema vinā kabhu nahe tāṅra sākṣātkāra
+> prema vinā kabhu nahe tāṅra sākṣātkāra\
 > iṅhāra kṛpāte haya daraśana iṅhāra
 
 *prema vinā*—without ecstatic love; *kabhu nahe*—there is never; *tāṅra*—His; *sākṣātkāra*—direct meeting; *iṅhāra kṛpāte*—by the mercy of Śrī Caitanya Mahāprabhu; *haya*—becomes possible; *daraśana*—visit; *iṅhāra*—of Brahmānanda Bhāratī.

@@ -1,9 +1,9 @@
 ### CC Madhya 7.150
 
-> ‘বাসুদেবোদ্ধার’ এই কহিল আখ্যান ৷
+> ‘বাসুদেবোদ্ধার’ এই কহিল আখ্যান ৷\
 > ‘বাসুদেবামৃতপ্ৰদ’ হৈল প্রভুর নাম ৷৷ ১৫০ ৷৷ ॥১৫০॥
 
-> 'vāsudevoddhāra' ei kahila ākhyāna
+> 'vāsudevoddhāra' ei kahila ākhyāna\
 > 'vāsudevāmṛta-prada' haila prabhura nāma
 
 *vāsudeva-uddhāra*—dar liberación a Vāsudeva; *ei*—esta; *kahila*—se ha descrito; *ākhyāna*—narración; *vāsudeva-amṛta-prada*—el dador de néctar a Vāsudeva; *haila*—se convirtió en; *prabhura nāma*—el santo nombre del Señor Śrī Caitanya Mahāprabhu.

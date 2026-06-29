@@ -1,9 +1,9 @@
 ### CC Madhya 9.136
 
-> লক্ষ্মী চাহে সেই দেহে কৃষ্ণের সঙ্গম ৷
+> লক্ষ্মী চাহে সেই দেহে কৃষ্ণের সঙ্গম ৷\
 > গোপিকা-অনুগা হঞা না কৈল ভজন ৷৷ ১৩৬ ৷৷ ॥১৩৬॥
 
-> lakṣmī cāhe sei dehe kṛṣṇera saṅgama
+> lakṣmī cāhe sei dehe kṛṣṇera saṅgama\
 > gopikā-anugā hañā nā kaila bhajana
 
 *lakṣmī*—la diosa de la fortuna; *cāhe*—desea; *sei*—ese; *dehe*—en el cuerpo; *kṛṣṇera saṅgama*—la asociación de Kṛṣṇa; *gopikā*—de las gopīs; *anugā*—seguidora; *hañā*—haciéndose; *nā*—no; *kaila*—realizó; *bhajana*—adoración.

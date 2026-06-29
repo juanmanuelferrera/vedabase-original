@@ -1,9 +1,9 @@
 ### CC Antya 2.20
 
-> তৈছে গৌরকান্তি, তৈছে সদা প্রেমাবেশ ।
+> তৈছে গৌরকান্তি, তৈছে সদা প্রেমাবেশ ।\
 > তাহা দেখিবারে আইসে সর্ব গৌড়দেশ ॥২০॥
 
-> taiche gaura-kānti, taiche sadā premāveśa
+> taiche gaura-kānti, taiche sadā premāveśa\
 > tāhā dekhibāre āise sarva gauḍa-deśa
 
 *taiche*—de esa manera; *gaura-kānti*—un resplandor corporal como el del Señor Śrī Caitanya Mahāprabhu; *taiche*—del mismo modo; *sadā*—siempre; *prema-āveśa*—absorto en amor extático; *tāhā dekhibāre*—para ver aquello; *āise*—acuden; *sarva*—todas; *gauḍa-deśa*—las gentes de todas las provincias de Bengala.

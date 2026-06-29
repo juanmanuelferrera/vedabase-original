@@ -1,11 +1,11 @@
 ### SB 3.25.38
 
-> न कर्हिचिन्मत्पराः शान्तरूपे नङ्क्ष्यन्ति नो मेऽनिमिषो लेढि हेतिः ।
+> न कर्हिचिन्मत्पराः शान्तरूपे नङ्क्ष्यन्ति नो मेऽनिमिषो लेढि हेतिः ।\
 > येषामहं प्रिय आत्मा सुतश्च सखा गुरुः सुहृदो दैवमिष्टम् ॥३८॥
 
-> na karhicin mat-parāḥ śānta-rūpe
-> naṅkṣyanti no me 'nimiṣo leḍhi hetiḥ
-> yeṣām ahaṁ priya ātmā sutaś ca
+> na karhicin mat-parāḥ śānta-rūpe\
+> naṅkṣyanti no me 'nimiṣo leḍhi hetiḥ\
+> yeṣām ahaṁ priya ātmā sutaś ca\
 > sakhā guruḥ suhṛdo daivam iṣṭam
 
 *na*—not; *karhicit*—ever; *mat-parāḥ*—My devotees; *śānta-rūpe*—O mother; *naṅkṣyanti*—will lose; *no*—not; *me*—My; *animiṣaḥ*—time; *leḍhi*—destroys; *hetiḥ*—weapon; *yeṣām*—of whom; *aham*—I; *priyaḥ*—dear; *ātmā*—self; *sutaḥ*—son; *ca*—and; *sakhā*—friend; *guruḥ*—preceptor; *suhṛdaḥ*—benefactor; *daivam*—Deity; *iṣṭam*—chosen.

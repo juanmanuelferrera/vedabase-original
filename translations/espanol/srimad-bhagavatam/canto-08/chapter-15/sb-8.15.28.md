@@ -1,13 +1,13 @@
 ### SB 8.15.28
 
-> श्रीगुरुरुवाच
-> जानामि मघवन्छत्रोरुन्नतेरस्य कारणम
+> श्रीगुरुरुवाच\
+> जानामि मघवन्छत्रोरुन्नतेरस्य कारणम\
 > शिष्यायोपभृतं तेजो भृगुभिर्ब्रह्मवादिभिः ॥२८॥
 
-> śrī-gurur uvāca
-> jānāmi maghavañ chatror
-> unnater asya kāraṇam
-> śiṣyāyopabhṛtaṁ tejo
+> śrī-gurur uvāca\
+> jānāmi maghavañ chatror\
+> unnater asya kāraṇam\
+> śiṣyāyopabhṛtaṁ tejo\
 > bhṛgubhir brahma-vādibhiḥ
 
 *śrī-guruḥ uvāca*—Bṛhaspati dijo; *jānāmi*—conozco; *maghavan*—¡oh, Indra!; *śatroḥ*—del enemigo; *unnateḥ*—de la elevación; *asya*—de él; *kāraṇam*—la causa; *śiṣyāya*—al discípulo; *upabhṛtam*—dotado de; *tejaḥ*—poder; *bhṛgubhiḥ*—por los descendientes de Bhṛgu; *brahma-vādibhiḥ*—*brāhmaṇas* todopoderosos.

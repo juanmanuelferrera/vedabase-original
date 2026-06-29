@@ -1,13 +1,13 @@
 ### SB 3.16.8
 
-> नाहं तथाद्मि यजमानहविर्विताने
-> श्च्योतद्घृतप्लुतमदन्हुतभुङ्मुखेन ।
-> यद्ब्राह्मणस्य मुखतश्चरतोऽनुघासं
+> नाहं तथाद्मि यजमानहविर्विताने\
+> श्च्योतद्घृतप्लुतमदन्हुतभुङ्मुखेन ।\
+> यद्ब्राह्मणस्य मुखतश्चरतोऽनुघासं\
 > तुष्टस्य मय्यवहितैर्निजकर्मपाकैः ॥८॥
 
-> nāhaṁ tathādmi yajamāna-havir vitāne
-> ścyotad-ghṛta-plutam adan huta-bhuṅ-mukhena
-> yad brāhmaṇasya mukhataś carato 'nughāsaṁ
+> nāhaṁ tathādmi yajamāna-havir vitāne\
+> ścyotad-ghṛta-plutam adan huta-bhuṅ-mukhena\
+> yad brāhmaṇasya mukhataś carato 'nughāsaṁ\
 > tuṣṭasya mayy avahitair nija-karma-pākaiḥ
 
 *na*—no; *aham*—Yo; *tathā*—por otro lado; *admi*—Yo como; *yajamāna*—por el sacerdote; *haviḥ*—las oblaciones; *vitāne*—en el fuego de sacrificio; *ścyotat*—vertiendo; *ghṛta*—*ghī*; *plutam*—mezclado; *adan*—comiendo; *huta-bhuk*—el fuego de sacrificio; *mukhena*—por la boca; *yat*—como; *brāhmaṇasya*—del *brāhmaṇa*; *mukhataḥ*—de la boca; *carataḥ*—actuando; *anughāsam*—bocados; *tuṣṭasya*—satisfecho; *mayi*—a Mí; *avahitaiḥ*—ofrecido; *nija*—propias; *karma*—actividades; *pākaiḥ*—por los resultados.

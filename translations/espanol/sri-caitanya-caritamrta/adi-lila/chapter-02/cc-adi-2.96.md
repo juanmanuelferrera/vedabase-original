@@ -1,9 +1,9 @@
 ### CC Adi 2.96
 
-> কৃষ্ণের স্বরূপ, আর শক্তিত্রয়-জ্ঞান ।
+> কৃষ্ণের স্বরূপ, আর শক্তিত্রয়-জ্ঞান ।\
 > যাঁর হয়, তাঁর নাহি কৃষ্ণেতে অজ্ঞান ॥৯৬॥
 
-> kṛṣṇera svarūpa, āra śakti-traya-jñāna
+> kṛṣṇera svarūpa, āra śakti-traya-jñāna\
 > yāṅra haya, tāṅra nāhi kṛṣṇete ajñāna
 
 *kṛṣṇera*—del Señor Kṛṣṇa; *sva-rūpa*—la verdadera naturaleza; *āra*—y; *śakti-traya*—de las tres energías; *jñāna*—conocimiento; *yāṅra*—de quien; *haya*—hay; *tāṅra*—de él; *nāhi*—no hay; *kṛṣṇete*—respecto al Señor Kṛṣṇa; *ajñāna*—ignorancia.

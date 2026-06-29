@@ -1,11 +1,11 @@
 ### SB 3.19.24
 
-> विनष्टासु स्वमायासु भूयश्चाव्रज्य केशवम् ।
+> विनष्टासु स्वमायासु भूयश्चाव्रज्य केशवम् ।\
 > रुषोपगूहमानोऽमुं ददृशेऽवस्थितं बहिः ॥२४॥
 
-> vinaṣṭāsu sva-māyāsu
-> bhūyaś cāvrajya keśavam
-> ruṣopagūhamāno 'muṁ
+> vinaṣṭāsu sva-māyāsu\
+> bhūyaś cāvrajya keśavam\
+> ruṣopagūhamāno 'muṁ\
 > dadṛśe 'vasthitaṁ bahiḥ
 
 *vinaṣṭāsu*—when dispelled; *sva-māyāsu*—his magic forces; *bhūyaḥ*—again; *ca*—and; *āvrajya*—after coming into the presence; *keśavam*—the Supreme Personality of Godhead; *ruṣā*—full of rage; *upagūhamānaḥ*—embracing; *amum*—the Lord; *dadṛśe*—saw; *avasthitam*—standing; *bahiḥ*—outside.

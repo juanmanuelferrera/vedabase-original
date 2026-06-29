@@ -1,9 +1,9 @@
 ### CC Madhya 1.13
 
-> চৈতন্যলীলার ব্যাস — দাস বৃন্দাবন ।
+> চৈতন্যলীলার ব্যাস — দাস বৃন্দাবন ।\
 > তাঁর আজ্ঞায় করোঁ তাঁর উচ্ছিষ্ট চর্বণ ॥১৩॥
 
-> caitanya-līlāra vyāsa—dāsa vṛndāvana
+> caitanya-līlāra vyāsa—dāsa vṛndāvana\
 > tāṅra ājñāya karoṅ tāṅra ucchiṣṭa carvaṇa
 
 *caitanya-līlāravyāsa*—the Vyāsadeva, or compiler of the pastimes, of Lord Caitanya Mahāprabhu; *dāsavṛndāvana*—Vṛndāvana dāsa Ṭhākura; *tāṅra*—of him; *ājñāya*—upon the order; *karoṅ*—I do; *tāṅra*—his; *ucchiṣṭa*—of the remnants of food; *carvaṇa*—chewing.

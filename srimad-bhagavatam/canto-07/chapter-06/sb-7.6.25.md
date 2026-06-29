@@ -1,13 +1,13 @@
 ### SB 7.6.25
 
-> तुष्टे च तत्र किमलभ्यमनन्त आद्ये
-> किं तैर्गुणव्यतिकरादिह ये स्वसिद्धाः
-> धर्मादयः किमगुणेन च काङ्क्षितेन
+> तुष्टे च तत्र किमलभ्यमनन्त आद्ये\
+> किं तैर्गुणव्यतिकरादिह ये स्वसिद्धाः\
+> धर्मादयः किमगुणेन च काङ्क्षितेन\
 > सारं जुषां चरणयोरुपगायतां नः ॥२५॥
 
-> tuṣṭe ca tatra kim alabhyam ananta ādye
-> kiṁ tair guṇa-vyatikarād iha ye sva-siddhāḥ
-> dharmādayaḥ kim aguṇena ca kāṅkṣitena
+> tuṣṭe ca tatra kim alabhyam ananta ādye\
+> kiṁ tair guṇa-vyatikarād iha ye sva-siddhāḥ\
+> dharmādayaḥ kim aguṇena ca kāṅkṣitena\
 > sāraṁ juṣāṁ caraṇayor upagāyatāṁ naḥ
 
 *tuṣṭe*—when satisfied; *ca*—also; *tatra*—that; *kim*—what; *alabhyam*—unobtainable; *anante*—the Supreme Personality of Godhead; *ādye*—the original source of everything, the cause of all causes; *kim*—what need; *taiḥ*—with them; *guṇa-vyatikarāt*—due to the actions of the modes of material nature; *iha*—in this world; *ye*—which; *sva-siddhāḥ*—automatically achieved; *dharma-ādayaḥ*—the three principles of material advancement, namely religion, economic development and sense gratification; *kim*—what need; *aguṇena*—with liberation into the Supreme; *ca*—and; *kāṅkṣitena*—desired; *sāram*—essence; *juṣām*—relishing; *caraṇayoḥ*—of the two lotus feet of the Lord; *upagāyatām*—who glorify the qualities of the Lord; *naḥ*—of us.

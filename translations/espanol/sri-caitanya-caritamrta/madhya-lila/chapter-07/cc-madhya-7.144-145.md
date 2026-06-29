@@ -1,12 +1,12 @@
 ### CC Madhya 7.144-145
 
-> bahu stuti kari' kahe,—śuna, dayā-maya
+> bahu stuti kari' kahe,—śuna, dayā-maya\
 > jīve ei guṇa nāhi, tomāte ei haya
 
-> bahu stuti kari' kahe,—śuna, dayā-maya
+> bahu stuti kari' kahe,—śuna, dayā-maya\
 > jīve ei guṇa nāhi, tomāte ei haya
 
-> more dekhi' mora gandhe palāya pāmara
+> more dekhi' mora gandhe palāya pāmara\
 > hena-more sparśa' tumi,—svatantra īśvara
 
 *bahu*—muchas; *stuti*—oraciones; *kari’*—presentando; *kahe*—dice; *śuna*—escucha, por favor; *dayā-maya*—¡oh, muy misericordioso Señor!; *jīve*—en la entidad viviente; *ei*—esta; *guṇa*—cualidad; *nāhi*—no hay; *tomāte*—en Ti; *ei*—esto; *haya*—es; *more dekhi’*—por verme; *mora gandhe*—al oler mi cuerpo; *palāya*—sale corriendo; *pāmara*—hasta un pecador; *hena-more*—a una persona como yo; *sparśa’*—tocas; *tumi*—Tú; *svatantra*—plenamente independiente; *īśvara*—la Suprema Personalidad de Dios.

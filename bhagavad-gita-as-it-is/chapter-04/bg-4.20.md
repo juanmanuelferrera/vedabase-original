@@ -1,11 +1,11 @@
 ### Bg 4.20
 
-> त्यक्त्वा कर्मफलासङ्गं नित्यतृप्तो निराश्रयः ।
+> त्यक्त्वा कर्मफलासङ्गं नित्यतृप्तो निराश्रयः ।\
 > कर्मण्यभिप्रवृत्तोऽपि नैव किञ्चित्करोति सः ॥२०॥
 
-> tyaktvā karma-phalāsaṅgaṁ
-> nitya-tṛpto nirāśrayaḥ
-> karmaṇy abhipravṛtto 'pi
+> tyaktvā karma-phalāsaṅgaṁ\
+> nitya-tṛpto nirāśrayaḥ\
+> karmaṇy abhipravṛtto 'pi\
 > naiva kiñcit karoti saḥ
 
 *tyaktvā*—having given up; *karma-phala-āsaṅgam*—attachment for fruitive results; *nitya*—always; *tṛptaḥ*—being satisfied; *nirāśrayaḥ*—without any center; *karmaṇi*—in activity; *abhipravṛttaḥ*—being fully engaged; *api*—in spite of; *na*—does not; *eva*—certainly; *kiñcit*—anything; *karoti*—do; *saḥ*—he.

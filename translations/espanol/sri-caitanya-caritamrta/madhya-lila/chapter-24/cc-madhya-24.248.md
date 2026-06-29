@@ -1,9 +1,9 @@
 ### CC Madhya 24.248
 
-> ব্যাধ কহে, — “কিবা দান মাগিলা আমারে ।
+> ব্যাধ কহে, — “কিবা দান মাগিলা আমারে ।\
 > অর্ধ মারিলে কিবা হয়, তাহা কহ মোরে ।।” ॥ ২৪৮ ॥
 
-> vyādha kahe,--"kibā dāna māgilā āmāre
+> vyādha kahe,--"kibā dāna māgilā āmāre\
 > ardha mārile kibā haya, tāhā kaha more"
 
 *vyādha kahe*—el cazador respondió; *kibā dāna*—qué clase de caridad; *māgilā āmāre*—me habéis pedido; *ardha mārile*—al dejarlos medio muertos; *kibā*—qué; *haya*—hay; *tāhā*—eso; *kaha more*—por favor explicádmelo.

@@ -1,13 +1,13 @@
 ### SB 3.7.15
 
-> विदुर उवाच
-> सञ्छिन्नः संशयो मह्यं तव सूक्तासिना विभो ।
+> विदुर उवाच\
+> सञ्छिन्नः संशयो मह्यं तव सूक्तासिना विभो ।\
 > उभयत्रापि भगवन्मनो मे सम्प्रधावति ॥१५॥
 
-> vidura uvāca
-> sañchinnaḥ saṁśayo mahyaṁ
-> tava sūktāsinā vibho
-> ubhayatrāpi bhagavan
+> vidura uvāca\
+> sañchinnaḥ saṁśayo mahyaṁ\
+> tava sūktāsinā vibho\
+> ubhayatrāpi bhagavan\
 > mano me sampradhāvati
 
 *viduraḥ uvāca*—Vidura said; *sañchinnaḥ*—cut off; *saṁśayaḥ*—doubts; *mahyam*—unto me; *tava*—your; *sūkta-asinā*—by the weapon of convincing words; *vibho*—O my lord; *ubhayatra api*—both in God and in the living entity; *bhagavan*—O powerful one; *manaḥ*—mind; *me*—my; *sampradhāvati*—perfectly entering.

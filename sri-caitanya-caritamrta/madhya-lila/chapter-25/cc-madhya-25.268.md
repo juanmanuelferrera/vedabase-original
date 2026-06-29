@@ -1,9 +1,9 @@
 ### CC Madhya 25.268
 
-> শ্রীচৈতন্য-সম আর কৃপালু বদান্য ।
+> শ্রীচৈতন্য-সম আর কৃপালু বদান্য ।\
 > ভক্তবৎসল না দেখি ত্রিজগতে অন্য ॥২৬৮॥
 
-> śrī-caitanya-sama āra kṛpālu vadānya
+> śrī-caitanya-sama āra kṛpālu vadānya\
 > bhakta-vatsala nā dekhi trijagate anya
 
 *śrī-caitanya-sama*—equal to Śrī Caitanya Mahāprabhu; *āra*—anyone else; *kṛpālu*—merciful; *vadānya*—magnanimous; *bhakta-vatsala*—very kind to the devotees; *nā dekhi*—I do not see; *tri-jagate*—in these three worlds; *anya*—anyone else.

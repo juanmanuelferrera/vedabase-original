@@ -1,11 +1,11 @@
 ### SB 4.18.11
 
-> समां च कुरु मां राजन्देववृष्टं यथा पयः ।
+> समां च कुरु मां राजन्देववृष्टं यथा पयः ।\
 > अपर्तावपि भद्रं ते उपावर्तेत मे विभो ॥११॥
 
-> samāṁ ca kuru māṁ rājan
-> deva-vṛṣṭaṁ yathā payaḥ
-> apartāv api bhadraṁ te
+> samāṁ ca kuru māṁ rājan\
+> deva-vṛṣṭaṁ yathā payaḥ\
+> apartāv api bhadraṁ te\
 > upāvarteta me vibho
 
 *samām*—de nivel uniforme; *ca*—también; *kuru*—haz; *mām*—a mí; *rājan*—¡oh, rey!; *deva-vṛṣṭam*—que cae en forma de lluvia por la misericordia del rey Indra; *yathā*—de modo que; *payaḥ*—el agua; *apa-ṛtau*—cuando ha terminado la estación de las lluvias; *api*—incluso; *bhadram*—lo auspicioso; *te*—a ti; *upāvarteta*—puede permanecer; *me*—sobre mí; *vibho*—¡oh, Señor!.

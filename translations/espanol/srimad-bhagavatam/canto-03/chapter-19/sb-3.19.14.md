@@ -1,11 +1,11 @@
 ### SB 3.19.14
 
-> तदोजसा दैत्यमहाभटार्पितं चकासदन्तःख उदीर्णदीधिति ।
+> तदोजसा दैत्यमहाभटार्पितं चकासदन्तःख उदीर्णदीधिति ।\
 > चक्रेण चिच्छेद निशातनेमिना हरिर्यथा तार्क्ष्यपतत्रमुज्झितम् ॥१४॥
 
-> tad ojasā daitya-mahā-bhaṭārpitaṁ
-> cakāsad antaḥ-kha udīrṇa-dīdhiti
-> cakreṇa ciccheda niśāta-neminā
+> tad ojasā daitya-mahā-bhaṭārpitaṁ\
+> cakāsad antaḥ-kha udīrṇa-dīdhiti\
+> cakreṇa ciccheda niśāta-neminā\
 > harir yathā tārkṣya-patatram ujjhitam
 
 *tat*—ese tridente; *ojasā*—con toda su fuerza; *daitya*—entre los demonios; *mahā-bhaṭa*—por el poderoso luchador; *arpitam*—arrojado; *cakāsat*—brillando; *antaḥ-khe*—en medio del cielo; *udīrṇa*—aumentó; *dīdhiti*—iluminación; *cakreṇa*—mediante el disco Sudarśana; *ciccheda*—redujo a pedazos; *niśāta*—afilado; *neminā*—borde; *hariḥ*—Indra; *yathā*—como; *tārkṣya*—de Garuḍa; *patatram*—el ala; *ujjhitam*—abandonada.

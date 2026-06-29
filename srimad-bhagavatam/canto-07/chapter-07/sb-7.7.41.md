@@ -1,11 +1,11 @@
 ### SB 7.7.41
 
-> यदर्थ इह कर्माणि विद्वन्मान्यसकृन्नरः
+> यदर्थ इह कर्माणि विद्वन्मान्यसकृन्नरः\
 > करोत्यतो विपर्यासममोघं विन्दते फलम ॥४१॥
 
-> yad-artha iha karmāṇi
-> vidvan-māny asakṛn naraḥ
-> karoty ato viparyāsam
+> yad-artha iha karmāṇi\
+> vidvan-māny asakṛn naraḥ\
+> karoty ato viparyāsam\
 > amoghaṁ vindate phalam
 
 *yat*—of which; *arthe*—for the purpose; *iha*—in this material world; *karmāṇi*—many activities (in factories, industries, speculation and so on); *vidvat*—advanced in knowledge; *mānī*—thinking himself to be; *asakṛt*—again and again; *naraḥ*—a person; *karoti*—performs; *ataḥ*—from this; *viparyāsam*—the opposite; *amogham*—unfailingly; *vindate*—achieves; *phalam*—result.

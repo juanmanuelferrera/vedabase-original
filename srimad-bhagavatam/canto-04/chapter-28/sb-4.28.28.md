@@ -1,11 +1,11 @@
 ### SB 4.28.28
 
-> तामेव मनसा गृह्णन्बभूव प्रमदोत्तमा ।
+> तामेव मनसा गृह्णन्बभूव प्रमदोत्तमा ।\
 > अनन्तरं विदर्भस्य राजसिंहस्य वेश्मनि ॥२८॥
 
-> tām eva manasā gṛhṇan
-> babhūva pramadottamā
-> anantaraṁ vidarbhasya
+> tām eva manasā gṛhṇan\
+> babhūva pramadottamā\
+> anantaraṁ vidarbhasya\
 > rāja-siṁhasya veśmani
 
 *tām*—her; *eva*—certainly; *manasā*—by the mind; *gṛhṇan*—accepting; *babhūva*—became; *pramadā*—woman; *uttamā*—highly situated; *anantaram*—after death; *vidarbhasya*—of Vidarbha; *rāja-siṁhasya*—of the most powerful king; *veśmani*—at the house.

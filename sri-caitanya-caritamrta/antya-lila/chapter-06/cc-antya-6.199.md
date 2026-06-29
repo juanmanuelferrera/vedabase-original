@@ -1,9 +1,9 @@
 ### CC Antya 6.199
 
-> তথাপি বিষয়ের স্বভাব — করে মহা-অন্ধ ।
+> তথাপি বিষয়ের স্বভাব — করে মহা-অন্ধ ।\
 > সেই কর্ম করায়, যাতে হয় ভব-বন্ধ ॥১৯৯॥
 
-> tathāpi viṣayera svabhāva—kare mahā-andha
+> tathāpi viṣayera svabhāva—kare mahā-andha\
 > sei karma karāya, yāte haya bhava-bandha
 
 *tathāpi*—still; *viṣayera svabhāva*—the potency of material enjoyment; *kare mahā-andha*—makes one completely blind; *sei karma karāya*—causes one to act in that way; *yāte*—by which; *haya*—there is; *bhava-bandha*—the bondage of birth and death.

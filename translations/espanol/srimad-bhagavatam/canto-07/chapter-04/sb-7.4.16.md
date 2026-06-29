@@ -1,11 +1,11 @@
 ### SB 7.4.16
 
-> अकृष्टपच्या तस्यासीत्सप्तद्वीपवती मही
+> अकृष्टपच्या तस्यासीत्सप्तद्वीपवती मही\
 > तथा कामदुघा गावो नानाश्चर्यपदं नभः ॥१६॥
 
-> akṛṣṭa-pacyā tasyāsīt
-> sapta-dvīpavatī mahī
-> tathā kāma-dughā gāvo
+> akṛṣṭa-pacyā tasyāsīt\
+> sapta-dvīpavatī mahī\
+> tathā kāma-dughā gāvo\
 > nānāścarya-padaṁ nabhaḥ
 
 *akṛṣṭa-pacyā*—que daba granos sin ser cultivada o labrada; *tasya*—de Hiraṇyakaśipu; *āsīt*—era; *sapta-dvīpa-vatī*—formada por siete islas; *mahī*—la Tierra; *tathā*—tanto como; *kāma-dughāḥ*—que pueden dar toda la leche que se desee; *gāvaḥ*—vacas; *nānā*—diversas; *āścarya-padam*—cosas maravillosas; *nabhaḥ*—el cielo.

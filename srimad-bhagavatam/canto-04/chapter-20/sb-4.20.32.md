@@ -1,13 +1,13 @@
 ### SB 4.20.32
 
-> मैत्रेय उवाच
-> इत्यादिराजेन नुतः स विश्वदृक्तमाह राजन्मयि भक्तिरस्तु ते ।
+> मैत्रेय उवाच\
+> इत्यादिराजेन नुतः स विश्वदृक्तमाह राजन्मयि भक्तिरस्तु ते ।\
 > दिष्ट्येदृशी धीर्मयि ते कृता यया मायां मदीयां तरति स्म दुस्त्यजाम् ॥३२॥
 
-> maitreya uvāca
-> ity ādi-rājena nutaḥ sa viśva-dṛk
-> tam āha rājan mayi bhaktir astu te
-> diṣṭyedṛśī dhīr mayi te kṛtā yayā
+> maitreya uvāca\
+> ity ādi-rājena nutaḥ sa viśva-dṛk\
+> tam āha rājan mayi bhaktir astu te\
+> diṣṭyedṛśī dhīr mayi te kṛtā yayā\
 > māyāṁ madīyāṁ tarati sma dustyajām
 
 *maitreyaḥ*—Maitreya, the great sage; *uvāca*—spoke; *iti*—thus; *ādi-rājena*—by the original king (Pṛthu); *nutaḥ*—being worshiped; *saḥ*—He (the Supreme Personality of Godhead); *viśva-dṛk*—the seer of the whole universe; *tam*—unto him; *āha*—said; *rājan*—my dear King; *mayi*—unto Me; *bhaktiḥ*—devotional service; *astu*—let it be; *te*—your; *diṣṭyā*—by good fortune; *īdṛśī*—like this; *dhīḥ*—intelligence; *mayi*—unto Me; *te*—by you; *kṛtā*—having been performed; *yayā*—by which; *māyām*—illusory energy; *madīyām*—My; *tarati*—crosses over; *sma*—certainly; *dustyajām*—very difficult to give up.

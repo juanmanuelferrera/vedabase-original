@@ -1,13 +1,13 @@
 ### SB 3.25.4
 
-> सूत उवाच
-> द्वैपायनसखस्त्वेवं मैत्रेयो भगवांस्तथा ।
+> सूत उवाच\
+> द्वैपायनसखस्त्वेवं मैत्रेयो भगवांस्तथा ।\
 > प्राहेदं विदुरं प्रीत आन्वीक्षिक्यां प्रचोदितः ॥४॥
 
-> sūta uvāca
-> dvaipāyana-sakhas tv evaṁ
-> maitreyo bhagavāṁs tathā
-> prāhedaṁ viduraṁ prīta
+> sūta uvāca\
+> dvaipāyana-sakhas tv evaṁ\
+> maitreyo bhagavāṁs tathā\
+> prāhedaṁ viduraṁ prīta\
 > ānvīkṣikyāṁ pracoditaḥ
 
 *sūtaḥ uvāca*—Sūta Gosvāmī said; *dvaipāyana-sakhaḥ*—friend of Vyāsadeva; *tu*—then; *evam*—thus; *maitreyaḥ*—Maitreya; *bhagavān*—worshipful; *tathā*—in that way; *prāha*—spoke; *idam*—this; *viduram*—to Vidura; *prītaḥ*—being pleased; *ānvīkṣikyām*—about transcendental knowledge; *pracoditaḥ*—being asked.

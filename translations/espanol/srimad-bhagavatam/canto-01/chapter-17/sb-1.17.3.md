@@ -1,11 +1,11 @@
 ### SB 1.17.3
 
-> गां च धर्मदुघां दीनां भृशं शूद्रपदाहताम् ।
+> गां च धर्मदुघां दीनां भृशं शूद्रपदाहताम् ।\
 > विवत्सामाश्रुवदनां क्षामां यवसमिच्छतीम् ॥३॥
 
-> gāṁ ca dharma-dughāṁ dīnāṁ
-> bhṛśaṁ śūdra-padāhatām
-> vivatsām āśru-vadanāṁ
+> gāṁ ca dharma-dughāṁ dīnāṁ\
+> bhṛśaṁ śūdra-padāhatām\
+> vivatsām āśru-vadanāṁ\
 > kṣāmāṁ yavasam icchatīm
 
 *gām*—la vaca; *ca*—también; *dharma-dughām*—beneficiosa porque uno puede extraer religión de ella; *dīnām*—ahora empobrecida; *bhṛśam*—acongojada; *śūdra*—la clase baja; *pada-āhatām*—golpeada en las patas; *vivatsām*—sin ningún ternero; *āśru-vadanām*—con lágrimas en los ojos; *kṣāmām*—muy débil; *yavasam*—pasto; *icchatīm*—como si deseara tener algo de pasto que comer.

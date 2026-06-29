@@ -1,18 +1,18 @@
 ### SB 5.17.22-23
 
-> एते वयं यस्य वशे महात्मनः स्थिताः शकुन्ता इव सूत्रयन्त्रिताः
-> महानहं वैकृततामसेन्द्रियाः सृजाम सर्वे यदनुग्रहादिदम ॥२२॥
-> यन्निर्मितां कर्ह्यपि कर्मपर्वणीं मायां जनोऽयं गुणसर्गमोहितः
+> एते वयं यस्य वशे महात्मनः स्थिताः शकुन्ता इव सूत्रयन्त्रिताः\
+> महानहं वैकृततामसेन्द्रियाः सृजाम सर्वे यदनुग्रहादिदम ॥२२॥\
+> यन्निर्मितां कर्ह्यपि कर्मपर्वणीं मायां जनोऽयं गुणसर्गमोहितः\
 > न वेद निस्तारणयोगमञ्जसा तस्मै नमस्ते विलयोदयात्मने ॥२३॥
 
-> yasyādya āsīd guṇa-vigraho mahān
-> vijñāna-dhiṣṇyo bhagavān ajaḥ kila
-> yat-sambhavo 'haṁ tri-vṛtā sva-tejasā
+> yasyādya āsīd guṇa-vigraho mahān\
+> vijñāna-dhiṣṇyo bhagavān ajaḥ kila\
+> yat-sambhavo 'haṁ tri-vṛtā sva-tejasā\
 > vaikārikaṁ tāmasam aindriyaṁ sṛje
 
-> ete vayaṁ yasya vaśe mahātmanaḥ
-> sthitāḥ śakuntā iva sūtra-yantritāḥ
-> mahān ahaṁ vaikṛta-tāmasendriyāḥ
+> ete vayaṁ yasya vaśe mahātmanaḥ\
+> sthitāḥ śakuntā iva sūtra-yantritāḥ\
+> mahān ahaṁ vaikṛta-tāmasendriyāḥ\
 > sṛjāma sarve yad-anugrahād idam
 
 *yasya*—de quien; *ādyaḥ*—el comienzo; *āsīt*—ha sido; *guṇa-vigrahaḥ*—la encarnación de las cualidades materiales; *mahān*—la energía material total; *vijñāna*—de conocimiento completo; *dhiṣṇyaḥ*—el receptáculo; *bhagavān*—el muy poderoso; *ajaḥ*—el Señor Brahmā; *kila*—ciertamente; *yat*—de quien; *sambhavaḥ*—nacido; *aham*—yo; *tri-vṛtā*—con tres diversidades, conforme a las tres modalidades de la naturaleza material; *sva-tejasā*—por mi fuerza material; *vaikārikam*—a todos los semidioses; *tāmasam*—los elementos materiales; *aindriyam*—los sentidos; *sṛje*—creo; *ete*—todos esos; *vayam*—nosotros; *yasya*—de quien; *vaśe*—bajo el control; *mahā-ātmanaḥ*—grandes personalidades; *sthitāḥ*—situados; *śakuntāḥ*—buitres; *iva*—como; *sūtra-yantritāḥ*—atados con una cuerda; *mahān*—el *mahat-tattva*; *aham*—yo; *vaikṛta*—los semidioses; *tāmasa*—los cinco elementos materiales; *indriyāḥ*—sentidos; *sṛjāmaḥ*—creamos; *sarve*—todos nosotros; *yat*—de quien; *anugrahāt*—por la misericordia; *idam*—este mundo material.

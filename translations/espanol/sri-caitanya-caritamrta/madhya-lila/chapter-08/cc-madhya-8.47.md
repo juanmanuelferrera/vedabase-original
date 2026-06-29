@@ -1,9 +1,9 @@
 ### CC Madhya 8.47
 
-> এইমত দুঁহে স্তুতি করে দুঁহার গুণ ৷
+> এইমত দুঁহে স্তুতি করে দুঁহার গুণ ৷\
 > দুঁহে দুঁহার দরশনে আনন্দিত মন ৷৷ ৪৭ ৷৷ ॥৪৭॥
 
-> ei-mata duṅhe stuti kare duṅhāra guṇa
+> ei-mata duṅhe stuti kare duṅhāra guṇa\
 > duṅhe duṅhāra daraśane ānandita mana
 
 *ei-mata*—de esta manera; *duṅhe*—ambos; *stuti*—alabanza; *kare*—ofrecen; *duṅhāra*—de ambos; *guṇa*—cualidades; *duṅhe*—ambos; *duṅhāra*—de ambos; *daraśane*—al verse; *ānandita*—complacidos; *mana*—las mentes.

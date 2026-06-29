@@ -1,11 +1,11 @@
 ### SB 1.15.41
 
-> वाचं जुहाव मनसि तत्प्राण इतरे च तम् ।
+> वाचं जुहाव मनसि तत्प्राण इतरे च तम् ।\
 > मृत्यावपानं सोत्सर्गं तं पञ्चत्वे ह्यजोहवीत् ॥४१॥
 
-> vācaṁ juhāva manasi
-> tat prāṇa itare ca tam
-> mṛtyāv apānaṁ sotsargaṁ
+> vācaṁ juhāva manasi\
+> tat prāṇa itare ca tam\
+> mṛtyāv apānaṁ sotsargaṁ\
 > taṁ pañcatve hy ajohavīt
 
 *vācam*—speeches; *juhāva*—relinquished; *manasi*—into the mind; *tat prāṇe*—mind into breathing; *itare ca*—other senses also; *tam*—into that; *mṛtyau*—into death; *apānam*—breathing; *sa-utsargam*—with all dedication; *tam*—that; *pañcatve*—into the body made of five elements; *hi*—certainly; *ajohavīt*—amalgamated it.

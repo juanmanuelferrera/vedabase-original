@@ -1,11 +1,11 @@
 ### SB 4.11.22
 
-> केचित्कर्म वदन्त्येनं स्वभावमपरे नृप ।
+> केचित्कर्म वदन्त्येनं स्वभावमपरे नृप ।\
 > एके कालं परे दैवं पुंसः काममुतापरे ॥२२॥
 
-> kecit karma vadanty enaṁ
-> svabhāvam apare nṛpa
-> eke kālaṁ pare daivaṁ
+> kecit karma vadanty enaṁ\
+> svabhāvam apare nṛpa\
+> eke kālaṁ pare daivaṁ\
 > puṁsaḥ kāmam utāpare
 
 *kecit*—algunos; *karma*—actividades fruitivas; *vadanti*—explican; *enam*—esa; *svabhāvam*—naturaleza; *apare*—otros; *nṛpa*—mi querido rey Dhruva; *eke*—algunos; *kālam*—tiempo; *pare*—otros; *daivam*—destino; *puṁsaḥ*—de la entidad viviente; *kāmam*—deseo; *uta*—también; *apare*—otros.

@@ -1,13 +1,13 @@
 ### CC Madhya 24.349
 
-> তং সনাতনমুপাগতমক্ষ্ণো-
-> র্দৃষ্টমাত্রমতিমাত্রদয়ার্দ্রঃ ।
-> আলিলিঙ্গ পরিঘায়ত-দোর্ভ্যাং
+> তং সনাতনমুপাগতমক্ষ্ণো-\
+> র্দৃষ্টমাত্রমতিমাত্রদয়ার্দ্রঃ ।\
+> আলিলিঙ্গ পরিঘায়ত-দোর্ভ্যাং\
 > সানুকম্পমথ চম্পক-গৌরঃ ॥৩৪৯॥
 
-> taṁ sanātanam upāgatam akṣṇor
-> dṛṣṭa-mātram atimātra-dayārdraḥ
-> āliliṅga parighāyata-dorbhyāṁ
+> taṁ sanātanam upāgatam akṣṇor\
+> dṛṣṭa-mātram atimātra-dayārdraḥ\
+> āliliṅga parighāyata-dorbhyāṁ\
 > sānukampam atha campaka-gauraḥ
 
 *tam*—unto him; *sanātanam*—Sanātana Gosvāmī; *upāgatam*—having arrived; *akṣṇoḥ*—with the eyes; *dṛṣṭa-mātram*—being only seen; *ati-mātra*—greatly; *dayā-ārdraḥ*—merciful; *āliliṅga*—embraced; *parighāyata-dorbhyām*—with His two arms; *sa-anukampam*—with great affection; *atha*—thus; *campaka-gauraḥ*—Lord Śrī Caitanya Mahāprabhu, who has a complexion the color of a *campaka* flower (golden).

@@ -1,9 +1,9 @@
 ### CC Adi 2.102
 
-> মায়াশক্তি, বহিরঙ্গা, জগৎকারণ ।
+> মায়াশক্তি, বহিরঙ্গা, জগৎকারণ ।\
 > তাহার বৈভব অনন্ত ব্রহ্মাণ্ডের গণ ॥১০২॥
 
-> māyā-śakti, bahiraṅgā, jagat-kāraṇa
+> māyā-śakti, bahiraṅgā, jagat-kāraṇa\
 > tāhāra vaibhava ananta brahmāṇḍera gaṇa
 
 *māyā-śakti*—the illusory energy; *bahiḥ-aṅgā*—external; *jagat-kāraṇa*—the cause of the universe; *tāhāra*—of that; *vaibhava*—manifestations; *ananta*—unlimited; *brahma-aṇḍera*—of universes; *gaṇa*—multitudes.

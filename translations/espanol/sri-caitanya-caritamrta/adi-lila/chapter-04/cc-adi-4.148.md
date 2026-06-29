@@ -1,9 +1,9 @@
 ### CC Adi 4.148
 
-> শ্রবণে, দর্শনে আকর্ষয়ে সর্বমন ।
+> শ্রবণে, দর্শনে আকর্ষয়ে সর্বমন ।\
 > আপনা আস্বাদিতে কৃষ্ণ করেন যতন ॥১৪৮॥
 
-> śravaṇe, darśane ākarṣaye sarva-mana
+> śravaṇe, darśane ākarṣaye sarva-mana\
 > āpanā āsvādite kṛṣṇa karena yatana
 
 *śravaṇe*—al oír; *darśane*—al ver; *ākarṣaye*—atrae; *sarva-mana*—todas las mentes; *āpanā*—Él mismo; *āsvādite*—saborear; *kṛṣṇa*—el Señor Kṛṣṇa; *karena*—hace; *yatana*—esfuerzos.

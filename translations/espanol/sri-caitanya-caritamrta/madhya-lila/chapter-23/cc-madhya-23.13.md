@@ -1,9 +1,9 @@
 ### CC Madhya 23.13
 
-> সেই ‘ভাব’ গাঢ় হৈলে ধরে ‘প্রেম’-নাম ।
+> সেই ‘ভাব’ গাঢ় হৈলে ধরে ‘প্রেম’-নাম ।\
 > সেই প্রেমা — ‘প্ৰয়োজন’ সর্বানন্দ-ধাম ॥১৩॥
 
-> sei 'bhāva' gāḍha haile dhare 'prema'-nāma
+> sei 'bhāva' gāḍha haile dhare 'prema'-nāma\
 > sei premā 'prayojana' sarvānanda-dhāma
 
 *sei bhāva*—esa condición emocional; *gāḍha haile*—cuando se intensifica; *dhare*—adopta; *prema-nāma*—el nombre de amor por Dios; *sei premā*—ese amor por Dios; *prayojana*—la meta suprema de la vida; *sarva-ānanda-dhāma*—el depósito de todo placer.

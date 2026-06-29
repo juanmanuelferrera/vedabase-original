@@ -1,11 +1,11 @@
 ### SB 3.22.18
 
-> तां प्रार्थयन्तीं ललनाललाममसेवितश्रीचरणैरदृष्टाम् ।
+> तां प्रार्थयन्तीं ललनाललाममसेवितश्रीचरणैरदृष्टाम् ।\
 > वत्सां मनोरुच्चपदः स्वसारं को नानुमन्येत बुधोऽभियाताम् ॥१८॥
 
-> tāṁ prārthayantīṁ lalanā-lalāmam
-> asevita-śrī-caraṇair adṛṣṭām
-> vatsāṁ manor uccapadaḥ svasāraṁ
+> tāṁ prārthayantīṁ lalanā-lalāmam\
+> asevita-śrī-caraṇair adṛṣṭām\
+> vatsāṁ manor uccapadaḥ svasāraṁ\
 > ko nānumanyeta budho 'bhiyātām
 
 *tām*—a ella; *prārthayantīm*—buscando; *lalanā-lalāmam*—el adorno de las mujeres; *asevita-śrī-caraṇaiḥ*—por aquellos que no han adorado los pies de Lakṣmī; *adṛṣṭām*—no vista; *vatsām*—hija querida; *manoḥ*—de Svāyambhuva Manu; *uccapadaḥ*—de Uttānapāda; *svasāram*—hermana; *kaḥ*—qué; *na anumanyeta*—no recibiría bien; *budhaḥ*—hombre sabio; *abhiyātām*—que ha venido por voluntad propia.

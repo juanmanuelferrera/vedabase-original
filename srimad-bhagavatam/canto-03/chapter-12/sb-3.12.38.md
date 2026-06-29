@@ -1,11 +1,11 @@
 ### SB 3.12.38
 
-> आयुर्वेदं धनुर्वेदं गान्धर्वं वेदमात्मनः ।
+> आयुर्वेदं धनुर्वेदं गान्धर्वं वेदमात्मनः ।\
 > स्थापत्यं चासृजद्वेदं क्रमात्पूर्वादिभिर्मुखैः ॥३८॥
 
-> āyur-vedaṁ dhanur-vedaṁ
-> gāndharvaṁ vedam ātmanaḥ
-> sthāpatyaṁ cāsṛjad vedaṁ
+> āyur-vedaṁ dhanur-vedaṁ\
+> gāndharvaṁ vedam ātmanaḥ\
+> sthāpatyaṁ cāsṛjad vedaṁ\
 > kramāt pūrvādibhir mukhaiḥ
 
 *āyuḥ-vedam*—medical science; *dhanuḥ-vedam*—military science; *gāndharvam*—musical art; *vedam*—they are all Vedic knowledge; *ātmanaḥ*—of his own; *sthāpatyam*—architectural; *ca*—also; *asṛjat*—created; *vedam*—knowledge; *kramāt*—respectively; *pūrva-ādibhiḥ*—beginning from the front face; *mukhaiḥ*—by the mouths.

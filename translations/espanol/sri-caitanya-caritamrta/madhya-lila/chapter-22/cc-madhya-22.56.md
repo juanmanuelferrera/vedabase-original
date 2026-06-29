@@ -1,9 +1,9 @@
 ### CC Madhya 22.56
 
-> কৃষ্ণ কৃপালু অর্জুনেরে লক্ষ্য করিয়া ।
+> কৃষ্ণ কৃপালু অর্জুনেরে লক্ষ্য করিয়া ।\
 > জগতেরে রাখিয়াছেন উপদেশ দিয়া ॥৫৬॥
 
-> kṛṣṇa kṛpālu arjunere lakṣya kariyā
+> kṛṣṇa kṛpālu arjunere lakṣya kariyā\
 > jagatere rākhiyāchena upadeśa diyā
 
 *kṛṣṇa*—el Señor Kṛṣṇa; *kṛpālu*—misericordioso; *arjunere*—Arjuna; *lakṣya kariyā*—teniendo como objetivo; *jagatere*—el mundo entero; *rākhiyāchena*—ha protegido; *upadeśa diyā*—dando instrucciones.

@@ -1,11 +1,11 @@
 ### SB 9.3.4
 
-> ते दैवचोदिता बाला ज्योतिषी कण्टकेन वै
+> ते दैवचोदिता बाला ज्योतिषी कण्टकेन वै\
 > अविध्यन्मुग्धभावेन सुस्रावासृक्ततो बहिः ॥४॥
 
-> te daiva-coditā bālā
-> jyotiṣī kaṇṭakena vai
-> avidhyan mugdha-bhāvena
+> te daiva-coditā bālā\
+> jyotiṣī kaṇṭakena vai\
+> avidhyan mugdha-bhāvena\
 > susrāvāsṛk tato bahiḥ
 
 *te*—aquellas dos; *daiva-coditā*—como impulsada por la providencia; *bālā*—esa joven hija; *jyotiṣī*—dos luciérnagas en el agujero de una lombriz de tierra; *kaṇṭakena*—con una espina; *vai*—en verdad; *avidhyat*—pinchó; *mugdha-bhāvena*—como si no tuviese conocimiento; *susrāva*—salió; *asṛk*—sangre; *tataḥ*—de ahí; *bahiḥ*—afuera.

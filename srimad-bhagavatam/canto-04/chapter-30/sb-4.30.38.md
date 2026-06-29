@@ -1,11 +1,11 @@
 ### SB 4.30.38
 
-> वयं तु साक्षाद्भगवन्भवस्य प्रियस्य सख्युः क्षणसङ्गमेन ।
+> वयं तु साक्षाद्भगवन्भवस्य प्रियस्य सख्युः क्षणसङ्गमेन ।\
 > सुदुश्चिकित्स्यस्य भवस्य मृत्योर्भिषक्तमं त्वाद्य गतिं गताः स्म ॥३८॥
 
-> vayaṁ tu sākṣād bhagavan bhavasya
-> priyasya sakhyuḥ kṣaṇa-saṅgamena
-> suduścikitsyasya bhavasya mṛtyor
+> vayaṁ tu sākṣād bhagavan bhavasya\
+> priyasya sakhyuḥ kṣaṇa-saṅgamena\
+> suduścikitsyasya bhavasya mṛtyor\
 > bhiṣaktamaṁ tvādya gatiṁ gatāḥ sma
 
 *vayam*—we; *tu*—then; *sākṣāt*—directly; *bhagavan*—O Lord; *bhavasya*—of Lord Śiva; *priyasya*—very dear; *sakhyuḥ*—Your friend; *kṣaṇa*—for a moment; *saṅgamena*—by association; *suduścikitsyasya*—very difficult to cure; *bhavasya*—of material existence; *mṛtyoḥ*—of death; *bhiṣak-tamam*—the most expert physician; *tvā*—You; *adya*—today; *gatim*—destination; *gatāḥ*—have achieved; *sma*—certainly.

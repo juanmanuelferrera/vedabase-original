@@ -1,14 +1,14 @@
 ### SB 4.14.12
 
-> तद्विद्वद्भिरसद्वृत्तो वेनोऽस्माभिः कृतो नृपः ।
-> सान्त्वितो यदि नो वाचं न ग्रहीष्यत्यधर्मकृत् ।
+> तद्विद्वद्भिरसद्वृत्तो वेनोऽस्माभिः कृतो नृपः ।\
+> सान्त्वितो यदि नो वाचं न ग्रहीष्यत्यधर्मकृत् ।\
 > लोकधिक्कारसन्दग्धं दहिष्यामः स्वतेजसा ॥१२॥
 
-> tad-vidvadbhir asad-vṛtto
-> veno 'smābhiḥ kṛto nṛpaḥ
-> sāntvito yadi no vācaṁ
-> na grahīṣyaty adharma-kṛt
-> loka-dhikkāra-sandagdhaṁ
+> tad-vidvadbhir asad-vṛtto\
+> veno 'smābhiḥ kṛto nṛpaḥ\
+> sāntvito yadi no vācaṁ\
+> na grahīṣyaty adharma-kṛt\
+> loka-dhikkāra-sandagdhaṁ\
 > dahiṣyāmaḥ sva-tejasā
 
 *tat*—su naturaleza malvada; *vidvadbhiḥ*—conscientes de; *asat-vṛttaḥ*—impío; *venaḥ*—Vena; *asmābhiḥ*—por nosotros; *kṛtaḥ*—fue hecho; *nṛpaḥ*—rey; *sāntvitaḥ*—(a pesar de) ser calmado; *yadi*—si; *naḥ*—nuestras; *vācam*—palabras; *na*—no; *grahīṣyati*—aceptará; *adharma-kṛt*—el muy malvado; *loka-dhik-kāra*—con la condena del pueblo; *sandagdham*—quemado; *dahiṣyāmaḥ*—quemaremos; *sva-tejasā*—con nuestro poder.

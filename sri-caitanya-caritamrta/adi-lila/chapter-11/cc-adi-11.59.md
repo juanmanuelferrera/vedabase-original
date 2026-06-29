@@ -1,9 +1,9 @@
 ### CC Adi 11.59
 
-> অনর্গল প্রেম সবার, চেষ্টা অনর্গল ।
+> অনর্গল প্রেম সবার, চেষ্টা অনর্গল ।\
 > প্রেম দিতে, কৃষ্ণ দিতে ধরে মহাবল ॥৫৯॥
 
-> anargala prema sabāra, ceṣṭā anargala
+> anargala prema sabāra, ceṣṭā anargala\
 > prema dite, kṛṣṇa dite dhare mahābala
 
 *anargala*—unchecked; *prema*—love of Kṛṣṇa; *sabāra*—of everyone of them; *ceṣṭā*—activity; *anargala*—unchecked; *prema dite*—to give love of Kṛṣṇa; *kṛṣṇa dite*—to deliver Kṛṣṇa; *dhare*—they possess; *mahābala*—great strength.

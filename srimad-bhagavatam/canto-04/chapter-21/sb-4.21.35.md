@@ -1,11 +1,11 @@
 ### SB 4.21.35
 
-> प्रधानकालाशयधर्मसङ्ग्रहे शरीर एष प्रतिपद्य चेतनाम् ।
+> प्रधानकालाशयधर्मसङ्ग्रहे शरीर एष प्रतिपद्य चेतनाम् ।\
 > क्रियाफलत्वेन विभुर्विभाव्यते यथानलो दारुषु तद्गुणात्मकः ॥३५॥
 
-> pradhāna-kālāśaya-dharma-saṅgrahe
-> śarīra eṣa pratipadya cetanām
-> kriyā-phalatvena vibhur vibhāvyate
+> pradhāna-kālāśaya-dharma-saṅgrahe\
+> śarīra eṣa pratipadya cetanām\
+> kriyā-phalatvena vibhur vibhāvyate\
 > yathānalo dāruṣu tad-guṇātmakaḥ
 
 *pradhāna*—material nature; *kāla*—time; *āśaya*—desire; *dharma*—occupational duties; *saṅgrahe*—aggregate; *śarīre*—body; *eṣaḥ*—this; *pratipadya*—accepting; *cetanām*—consciousness; *kriyā*—activities; *phalatvena*—by the result of; *vibhuḥ*—the Supreme Personality of Godhead; *vibhāvyate*—manifested; *yathā*—as much as; *analaḥ*—fire; *dāruṣu*—in the wood; *tat-guṇa-ātmakaḥ*—according to shape and quality.

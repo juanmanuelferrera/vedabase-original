@@ -1,11 +1,11 @@
 ### CC Adi 3.1
 
-> শ্রীচৈতন্যপ্রভুং বন্দে যৎপাদাশ্রয়বীর্যতঃ ।
+> শ্রীচৈতন্যপ্রভুং বন্দে যৎপাদাশ্রয়বীর্যতঃ ।\
 > সংগৃহ্ণাত্যাকরব্রাতাদজ্ঞঃ সিদ্ধান্তসন্মণীন্ ॥১॥
 
-> śrī-caitanya-prabhuṁ vande
-> yat-pādāśraya-vīryataḥ
-> saṅgṛhṇāty ākara-vrātād
+> śrī-caitanya-prabhuṁ vande\
+> yat-pādāśraya-vīryataḥ\
+> saṅgṛhṇāty ākara-vrātād\
 > ajñaḥ siddhānta-san-maṇīn
 
 *śrī-caitanya-prabhum*—to Lord Caitanya Mahāprabhu; *vande*—I offer my respectful obeisances; *yat*—of whom; *pāda-āśraya*—of the shelter of the lotus feet; *vīryataḥ*—from the power; *saṅgṛhṇāti*—collects; *ākara-vrātāt*—from the multitude of mines in the form of scriptures; *ajñaḥ*—a fool; *siddhānta*—of conclusion; *sat-maṇīn*—the best jewels.

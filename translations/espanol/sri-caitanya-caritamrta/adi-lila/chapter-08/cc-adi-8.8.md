@@ -1,9 +1,9 @@
 ### CC Adi 8.8
 
-> পূর্বে যৈছে জরাসন্ধ-আদি রাজগণ ।
+> পূর্বে যৈছে জরাসন্ধ-আদি রাজগণ ।\
 > বেদ-ধর্ম করি’ করে বিষ্ণুর পূজন ॥৮॥
 
-> pūrve yaiche jarāsandha-ādi rāja-gaṇa
+> pūrve yaiche jarāsandha-ādi rāja-gaṇa\
 > veda-dharma kari' kare viṣṇura pūjana
 
 *pūrve*—antiguamente; *yaiche*—tal como era; *jarāsandha*—el rey Jarāsandha; *ādi*—encabezando; *rāja-gaṇa*—reyes; *veda-dharma*—la práctica de rituales Védicos; *kari'*—haciendo; *kare*—realiza; *viṣṇura*—del Señor Viṣṇu; *pūjana*—adoración.

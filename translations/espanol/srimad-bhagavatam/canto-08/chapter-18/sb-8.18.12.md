@@ -1,11 +1,11 @@
 ### SB 8.18.12
 
-> यत्तद्वपुर्भाति विभूषणायुधैरव्यक्तचिद्व्यक्तमधारयद्धरिः
+> यत्तद्वपुर्भाति विभूषणायुधैरव्यक्तचिद्व्यक्तमधारयद्धरिः\
 > बभूव तेनैव स वामनो वटुः सम्पश्यतोर्दिव्यगतिर्यथा नटः ॥१२॥
 
-> yat tad vapur bhāti vibhūṣaṇāyudhair
-> avyakta-cid-vyaktam adhārayad dhariḥ
-> babhūva tenaiva sa vāmano vaṭuḥ
+> yat tad vapur bhāti vibhūṣaṇāyudhair\
+> avyakta-cid-vyaktam adhārayad dhariḥ\
+> babhūva tenaiva sa vāmano vaṭuḥ\
 > sampaśyator divya-gatir yathā naṭaḥ
 
 *yat*—el cual; *tat*—ese; *vapuḥ*—cuerpo trascendental; *bhāti*—manifiesta; *vibhūṣaṇa*—con Sus adornos; *āyudhaiḥ*—y con armas; *avyakta*—no manifestado; *cit-vyaktam*—manifestado espiritualmente; *adhārayat*—adoptó; *hariḥ*—el Señor; *babhūva*—inmediatamente Se volvió; *tena*—con eso; *eva*—ciertamente; *saḥ*—Él (el Señor); *vāmanaḥ*—enano; *vaṭuḥ*—un*brāhmaṇa brahmacārī*; *sampaśyatoḥ*—ante la mirada de Sus padres; *divya-gatiḥ*—cuyos movimientos son maravillosos; *yathā*—como; *naṭaḥ*—un actor teatral.

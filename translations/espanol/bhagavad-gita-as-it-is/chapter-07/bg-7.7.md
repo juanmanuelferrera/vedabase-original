@@ -1,11 +1,11 @@
 ### Bg 7.7
 
-> मत्तः परतरं नान्यत्किञ्चिदस्ति धनञ्जय ।
+> मत्तः परतरं नान्यत्किञ्चिदस्ति धनञ्जय ।\
 > मयि सर्वमिदं प्रोतं सूत्रे मणिगणा इव ॥७॥
 
-> mattaḥ parataraṁ nānyat
-> kiñcid asti dhanañjaya
-> mayi sarvam idaṁ protaṁ
+> mattaḥ parataraṁ nānyat\
+> kiñcid asti dhanañjaya\
+> mayi sarvam idaṁ protaṁ\
 > sūtre maṇi-gaṇā iva
 
 *mattaḥ*—más allá de Mí; *parataram*—superior; *na*—no; *anyat*—cualquier otra cosa; *kiñcit*—algo; *asti*—hay; *dhanañjaya*—¡oh, conquistador de riquezas!; *mayi*—en Mí; *sarvam*—todo lo que existe; *idam*—lo cual vemos; *protam*—ensartado; *sūtre*—en un hilo; *maṇi-gaṇāḥ*—perlas; *iva*—comparado.

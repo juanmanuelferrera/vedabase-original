@@ -1,9 +1,9 @@
 ### CC Antya 5.114
 
-> কবি কহে, — “জগন্নাথ — সুন্দর-শরীর ।
+> কবি কহে, — “জগন্নাথ — সুন্দর-শরীর ।\
 > চৈতন্য-গোসাঞি — শরীরী মহাধীর ॥১১৪॥
 
-> kavi kahe,--'jagannātha--sundara-śarīra
+> kavi kahe,--'jagannātha--sundara-śarīra\
 > caitanya-gosāñi--śarīrī mahā-dhīra
 
 *kavi kahe*—el poeta dijo; *jagannātha*—el Señor Jagannātha; *sundara-śarīra*—cuerpo muy hermoso; *caitanya-gosāñi*—Śrī Caitanya Mahāprabhu; *śarīrī*—poseedor del cuerpo; *mahā-dhīra*—muy grave.

@@ -1,11 +1,11 @@
 ### SB 3.26.65
 
-> त्वचं रोमभिरोषध्यो नोदतिष्ठत्तदा विराट् ।
+> त्वचं रोमभिरोषध्यो नोदतिष्ठत्तदा विराट् ।\
 > रेतसा शिश्नमापस्तु नोदतिष्ठत्तदा विराट् ॥६५॥
 
-> tvacaṁ romabhir oṣadhyo
-> nodatiṣṭhat tadā virāṭ
-> retasā śiśnam āpas tu
+> tvacaṁ romabhir oṣadhyo\
+> nodatiṣṭhat tadā virāṭ\
+> retasā śiśnam āpas tu\
 > nodatiṣṭhat tadā virāṭ
 
 *tvacam*—la piel del *virāṭ-puruṣa*; *romabhiḥ*—con el pelo del cuerpo; *oṣadhyaḥ*—las deidades que rigen las hierbas y plantas; *na*—no; *udatiṣṭhat*—Se levantó; *tadā*—entonces; *virāṭ*—el *virāṭ-puruṣa*; *retasā*—con la facultad de procrear; *śiśnam*—el órgano generador; *āpaḥ*—el dios del agua; *tu*—luego; *na*—no; *udatiṣṭhat*—Se levantó; *tadā*—entonces; *virāṭ*—el *virāṭ-puruṣa.*.

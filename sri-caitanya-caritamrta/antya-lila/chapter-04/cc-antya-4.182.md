@@ -1,9 +1,9 @@
 ### CC Antya 4.182
 
-> আমা-সব অধমে যে করিয়াছ অঙ্গীকার ।
+> আমা-সব অধমে যে করিয়াছ অঙ্গীকার ।\
 > দীনদয়ালু-গুণ তোমার তাহাতে প্রচার ।।” ॥ ১৮২ ॥
 
-> āmā-saba adhame ye kariyācha aṅgīkāra
+> āmā-saba adhame ye kariyācha aṅgīkāra\
 > dīna-dayālu-guṇa tomāra tāhāte pracāra"
 
 *āmā-saba*—all of us; *adhame*—most fallen; *ye*—that; *kariyācha*—You have done; *aṅgīkāra*—acceptance; *dīna-dayālu*—merciful unto the fallen souls; *guṇa*—attribute; *tomāra*—of You; *tāhāte*—in that; *pracāra*—proclaiming.

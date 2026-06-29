@@ -1,11 +1,11 @@
 ### SB 3.20.5
 
-> तयोः संवदतोः सूत प्रवृत्ता ह्यमलाः कथाः ।
+> तयोः संवदतोः सूत प्रवृत्ता ह्यमलाः कथाः ।\
 > आपो गाङ्गा इवाघघ्नीर्हरेः पादाम्बुजाश्रयाः ॥५॥
 
-> tayoḥ saṁvadatoḥ sūta
-> pravṛttā hy amalāḥ kathāḥ
-> āpo gāṅgā ivāgha-ghnīr
+> tayoḥ saṁvadatoḥ sūta\
+> pravṛttā hy amalāḥ kathāḥ\
+> āpo gāṅgā ivāgha-ghnīr\
 > hareḥ pādāmbujāśrayāḥ
 
 *tayoḥ*—while the two (Maitreya and Vidura); *saṁvadatoḥ*—were conversing; *sūta*—O Sūta; *pravṛttāḥ*—arose; *hi*—certainly; *amalāḥ*—spotless; *kathāḥ*—narrations; *āpaḥ*—waters; *gāṅgāḥ*—of the River Ganges; *iva*—like; *agha-ghnīḥ*—vanquishing all sins; *hareḥ*—of the Lord; *pāda-ambuja*—the lotus feet; *āśrayāḥ*—taking shelter.

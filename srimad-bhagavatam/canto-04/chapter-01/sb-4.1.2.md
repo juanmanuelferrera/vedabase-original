@@ -1,11 +1,11 @@
 ### SB 4.1.2
 
-> आकूतिं रुचये प्रादादपि भ्रातृमतीं नृपः ।
+> आकूतिं रुचये प्रादादपि भ्रातृमतीं नृपः ।\
 > पुत्रिकाधर्ममाश्रित्य शतरूपानुमोदितः ॥२॥
 
-> ākūtiṁ rucaye prādād
-> api bhrātṛmatīṁ nṛpaḥ
-> putrikā-dharmam āśritya
+> ākūtiṁ rucaye prādād\
+> api bhrātṛmatīṁ nṛpaḥ\
+> putrikā-dharmam āśritya\
 > śatarūpānumoditaḥ
 
 *ākūtim*—Ākūti; *rucaye*—unto the great sage Ruci; *prādāt*—handed over; *api*—although; *bhrātṛ-matīm*—daughter having a brother; *nṛpaḥ*—the King; *putrikā*—get the resultant son; *dharmam*—religious rites; *āśritya*—taking shelter; *śatarūpā*—by the wife of Svāyambhuva Manu; *anumoditaḥ*—being sanctioned.

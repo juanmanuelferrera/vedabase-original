@@ -1,13 +1,13 @@
 ### SB 3.28.25
 
-> नाभिह्रदं भुवनकोशगुहोदरस्थं
-> यत्रात्मयोनिधिषणाखिललोकपद्मम् ।
-> व्यूढं हरिन्मणिवृषस्तनयोरमुष्य
+> नाभिह्रदं भुवनकोशगुहोदरस्थं\
+> यत्रात्मयोनिधिषणाखिललोकपद्मम् ।\
+> व्यूढं हरिन्मणिवृषस्तनयोरमुष्य\
 > ध्यायेद्द्वयं विशदहारमयूखगौरम् ॥२५॥
 
-> nābhi-hradaṁ bhuvana-kośa-guhodara-sthaṁ
-> yatrātma-yoni-dhiṣaṇākhila-loka-padmam
-> vyūḍhaṁ harin-maṇi-vṛṣa-stanayor amuṣya
+> nābhi-hradaṁ bhuvana-kośa-guhodara-sthaṁ\
+> yatrātma-yoni-dhiṣaṇākhila-loka-padmam\
+> vyūḍhaṁ harin-maṇi-vṛṣa-stanayor amuṣya\
 > dhyāyed dvayaṁ viśada-hāra-mayūkha-gauram
 
 *nābhi-hradam*—the navel lake; *bhuvana-kośa*—of all the worlds; *guhā*—the foundation; *udara*—on the abdomen; *stham*—situated; *yatra*—where; *ātma-yoni*—of Brahmā; *dhiṣaṇa*—residence; *akhila-loka*—containing all planetary systems; *padmam*—lotus; *vyūḍham*—sprang up; *harit-maṇi*—like emeralds; *vṛṣa*—most exquisite; *stanayoḥ*—of nipples; *amuṣya*—of the Lord; *dhyāyet*—he should meditate on; *dvayam*—the pair; *viśada*—white; *hāra*—of pearl necklaces; *mayūkha*—from the light; *gauram*—whitish.

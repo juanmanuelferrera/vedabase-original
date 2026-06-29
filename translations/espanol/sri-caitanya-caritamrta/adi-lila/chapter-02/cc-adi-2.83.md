@@ -1,9 +1,9 @@
 ### CC Adi 2.83
 
-> কৃষ্ণের স্বয়ং-ভগবত্তা — ইহা হৈল সাধ্য ।
+> কৃষ্ণের স্বয়ং-ভগবত্তা — ইহা হৈল সাধ্য ।\
 > স্বয়ং-ভগবানের কৃষ্ণত্ব হৈল বাধ্য ॥৮৩॥
 
-> kṛṣṇera svayaṁ-bhagavattā--ihā haila sādhya
+> kṛṣṇera svayaṁ-bhagavattā--ihā haila sādhya\
 > svayaṁ-bhagavānera kṛṣṇatva haila bādhya
 
 *kṛṣṇera*—del Señor Kṛṣṇa; *svayam-bhagavattā*—la cualidad de ser Él mismo la Suprema Personalidad de Dios; *ihā*—esto; *haila*—fue; *sādhya*—lo que debía establecerse; *svayam-bhagavānera*—de la Suprema Personalidad de Dios; *kṛṣṇatva*—la cualidad de ser el Señor Kṛṣṇa; *haila*—fue; *bādhya*—obligatorio.

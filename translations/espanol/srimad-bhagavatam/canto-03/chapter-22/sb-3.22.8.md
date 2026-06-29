@@ -1,11 +1,11 @@
 ### SB 3.22.8
 
-> स भवान्दुहितृस्नेह परिक्लिष्टात्मनो मम ।
+> स भवान्दुहितृस्नेह परिक्लिष्टात्मनो मम ।\
 > श्रोतुमर्हसि दीनस्य श्रावितं कृपया मुने ॥८॥
 
-> sa bhavān duhitṛ-sneha-
-> parikliṣṭātmano mama
-> śrotum arhasi dīnasya
+> sa bhavān duhitṛ-sneha-\
+> parikliṣṭātmano mama\
+> śrotum arhasi dīnasya\
 > śrāvitaṁ kṛpayā mune
 
 *saḥ*—tú; *bhavān*—tu alteza; *duhitṛ-sneha*—de afecto por mi hija; *parikliṣṭa-ātmanaḥ*—cuya mente está agitada; *mama*—mía; *śrotum*—en escuchar; *arhasi*—complácete; *dīnasya*—de mi humilde persona; *śrāvitam*—la oración; *kṛpayā*—generosamente; *mune*—¡oh, sabio!.

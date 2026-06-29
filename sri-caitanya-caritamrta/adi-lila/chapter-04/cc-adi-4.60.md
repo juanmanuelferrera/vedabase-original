@@ -1,9 +1,9 @@
 ### CC Adi 4.60
 
-> হ্লাদিনী করায় কৃষ্ণে আনন্দাস্বাদন ।
+> হ্লাদিনী করায় কৃষ্ণে আনন্দাস্বাদন ।\
 > হ্লাদিনীর দ্বারা করে ভক্তের পোষণ ॥৬০॥
 
-> hlādinī karāya kṛṣṇe ānandāsvādana
+> hlādinī karāya kṛṣṇe ānandāsvādana\
 > hlādinīra dvārā kare bhaktera poṣaṇa
 
 *hlādinī*—the *hlādinī* energy; *karāya*—causes to do; *kṛṣṇe*—in Lord Kṛṣṇa; *ānanda-āsvādana*—the tasting of bliss; *hlādinīra dvārā*—by the pleasure potency; *kare*—does; *bhaktera*—of the devotee; *poṣaṇa*—nourishing.

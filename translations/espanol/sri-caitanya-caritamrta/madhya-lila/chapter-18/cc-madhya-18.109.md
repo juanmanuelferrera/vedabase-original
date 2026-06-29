@@ -1,9 +1,9 @@
 ### CC Madhya 18.109
 
-> প্রভু কহে, — ‘কাহাঁ পাইলা কৃষ্ণ দরশন ?’
+> প্রভু কহে, — ‘কাহাঁ পাইলা কৃষ্ণ দরশন ?’\
 > লোক কহে, — ‘সন্ন্যাসী তুমি জঙ্গম-নারায়ণ ॥১০৯॥
 
-> prabhu kahe,--'kāhāṅ pāilā 'kṛṣṇa daraśana?'
+> prabhu kahe,--'kāhāṅ pāilā 'kṛṣṇa daraśana?'\
 > loka kahe,--'sannyāsī tumi jaṅgama-nārāyaṇa
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu preguntó además; *kāhāṅ pāilā*—dónde habéis tenido; *kṛṣṇa daraśana*—la visión de Kṛṣṇa; *loka kahe*—las personas respetables respondieron; *sannyāsī tumi*—Tú eres un *sannyāsī*; *jaṅgama-nārāyaṇa*—un Nārāyaṇa ambulante.

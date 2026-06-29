@@ -1,11 +1,11 @@
 ### Bg 2.44
 
-> भोगैश्वर्यप्रसक्तानां तयापहृतचेतसाम् ।
+> भोगैश्वर्यप्रसक्तानां तयापहृतचेतसाम् ।\
 > व्यवसायात्मिका बुद्धिः समाधौ न विधीयते ॥४४॥
 
-> bhogaiśvarya-prasaktānāṁ
-> tayāpahṛta-cetasām
-> vyavasāyātmikā buddhiḥ
+> bhogaiśvarya-prasaktānāṁ\
+> tayāpahṛta-cetasām\
+> vyavasāyātmikā buddhiḥ\
 > samādhau na vidhīyate
 
 *bhoga*—material enjoyment; *aiśvarya*—opulence; *prasaktānām*—those who are so attached; *tayā*—by such things; *apahṛta-cetasām*—bewildered in mind; *vyavasāyātmikā*—fixed determination; *buddhiḥ*—devotional service of the Lord; *samādhau*—in the controlled mind; *na*—never; *vidhīyate*—does take place.

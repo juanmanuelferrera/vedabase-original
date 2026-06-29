@@ -1,9 +1,9 @@
 ### CC Antya 3.59
 
-> নামের অক্ষর-সবের এই ত’ স্বভাব ।
+> নামের অক্ষর-সবের এই ত’ স্বভাব ।\
 > ব্যবহিত হৈলে না ছাড়ে আপন-প্রভাব ॥৫৯॥
 
-> nāmera akṣara-sabera ei ta' svabhāva
+> nāmera akṣara-sabera ei ta' svabhāva\
 > vyavahita haile nā chāḍe āpana-prabhāva
 
 *nāmera*—del santo nombre; *akṣara*—letras; *sabera*—de todas; *ei*—esta; *ta'*—ciertamente; *sva-bhāva*—la característica; *vyavahita haile*—incluso cuando se pronuncian incorrectamente; *nā*—no; *chāḍe*—abandonan; *āpana-prabhāva*—su propia influencia espiritual.

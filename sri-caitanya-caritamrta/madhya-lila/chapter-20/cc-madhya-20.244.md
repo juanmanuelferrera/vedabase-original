@@ -1,9 +1,9 @@
 ### CC Madhya 20.244
 
-> সঙ্কর্ষণ, মৎস্যাদিক, — দুই ভেদ তাঁর ।
+> সঙ্কর্ষণ, মৎস্যাদিক, — দুই ভেদ তাঁর ।\
 > সঙ্কর্ষণ — পুরুষাবতার, লীলাবতার আর ॥২৪৪॥
 
-> saṅkarṣaṇa, matsyādika,—dui bheda tāṅra
+> saṅkarṣaṇa, matsyādika,—dui bheda tāṅra\
 > saṅkarṣaṇa—puruṣāvatāra, līlāvatāra āra
 
 *saṅkarṣaṇa*—Saṅkarṣaṇa; *matsya-ādika*—and incarnations such as the fish; *dui*—two; *bheda*—differentiations; *tāṅra*—His; *saṅkarṣaṇa*—Saṅkarṣaṇa; *puruṣa-avatāra*—incarnations of Viṣṇu; *līlā-avatāra*—pastime incarnations; *āra*—and.

@@ -1,11 +1,11 @@
 ### SB 4.2.22
 
-> गृहेषु कूटधर्मेषु सक्तो ग्राम्यसुखेच्छया ।
+> गृहेषु कूटधर्मेषु सक्तो ग्राम्यसुखेच्छया ।\
 > कर्मतन्त्रं वितनुते वेदवादविपन्नधीः ॥२२॥
 
-> gṛheṣu kūṭa-dharmeṣu
-> sakto grāmya-sukhecchayā
-> karma-tantraṁ vitanute
+> gṛheṣu kūṭa-dharmeṣu\
+> sakto grāmya-sukhecchayā\
+> karma-tantraṁ vitanute\
 > veda-vāda-vipanna-dhīḥ
 
 *gṛheṣu*—en la vida familiar; *kūṭa-dharmeṣu*—religiosidad fingida; *saktaḥ*—siendo atraído; *grāmya-sukha-icchayā*—por el deseo de felicidad material; *karma-tantram*—actividades fruitivas; *vitanute*—realiza; *veda-vāda*—por las explicaciones de los *Vedas*; *vipanna-dhīḥ*—perdiéndose la inteligencia.

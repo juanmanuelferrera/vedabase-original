@@ -1,9 +1,9 @@
 ### CC Madhya 9.149
 
-> ‘চতুর্ভুজ-মূর্তি’ দেখায় গোপীগণের আগে ।
+> ‘চতুর্ভুজ-মূর্তি’ দেখায় গোপীগণের আগে ।\
 > সেই ‘কৃষ্ণে’ গোপিকার নহে অনুরাগে ॥১৪৯॥
 
-> 'catur-bhuja-mūrti' dekhāya gopī-gaṇera āge
+> 'catur-bhuja-mūrti' dekhāya gopī-gaṇera āge\
 > sei 'kṛṣṇe' gopikāra nahe anurāge
 
 *catur-bhuja-mūrti*—four-handed form; *dekhāya*—exhibits; *gopī-gaṇera*—of the *gopīs*; *āge*—in front; *sei kṛṣṇe*—unto that Kṛṣṇa; *gopikāra*—of the *gopīs*; *nahe*—not; *anurāge*—attraction.

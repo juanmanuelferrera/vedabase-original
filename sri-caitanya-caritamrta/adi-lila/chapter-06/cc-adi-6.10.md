@@ -1,9 +1,9 @@
 ### CC Adi 6.10
 
-> সে পুরুষের অংশ — অদ্বৈত, নাহি কিছু ভেদ ।
+> সে পুরুষের অংশ — অদ্বৈত, নাহি কিছু ভেদ ।\
 > শরীর-বিশেষ তাঁর, — নাহিক বিচ্ছেদ ॥১০॥
 
-> se puruṣera aṁśa—advaita, nāhi kichu bheda
+> se puruṣera aṁśa—advaita, nāhi kichu bheda\
 > śarīra-viśeṣa tāṅra—nāhika viccheda
 
 *se*—that; *puruṣera*—of the Lord; *aṁśa*—part; *advaita*—Advaita Ācārya; *nāhi*—not; *kichu*—any; *bheda*—difference; *śarīra-viśeṣa*—another specific transcendental body; *tāṅra*—of Him; *nāhika viccheda*—there is no separation.

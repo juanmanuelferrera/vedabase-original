@@ -1,11 +1,11 @@
 ### SB 1.5.4
 
-> जिज्ञासितमधीतं च ब्रह्म यत्तत्सनातनम् ।
+> जिज्ञासितमधीतं च ब्रह्म यत्तत्सनातनम् ।\
 > तथापि शोचस्यात्मानमकृतार्थ इव प्रभो ॥४॥
 
-> jijñāsitam adhītaṁ ca
-> brahma yat tat sanātanam
-> tathāpi śocasy ātmānam
+> jijñāsitam adhītaṁ ca\
+> brahma yat tat sanātanam\
+> tathāpi śocasy ātmānam\
 > akṛtārtha iva prabho
 
 *jijñāsitam*—deliberated fully well; *adhītam*—the knowledge obtained; *ca*—and; *brahma*—the Absolute; *yat*—what; *tat*—that; *sanātanam*—eternal; *tathāpi*—in spite of that; *śocasi*—lamenting; *ātmānam*—unto the self; *akṛta-arthaḥ*—undone; *iva*—like; *prabho*—my dear sir.

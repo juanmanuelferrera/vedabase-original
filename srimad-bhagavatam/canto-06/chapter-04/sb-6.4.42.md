@@ -1,11 +1,11 @@
 ### SB 6.4.42
 
-> तं तथावनतं भक्तं प्रजाकामं प्रजापतिम
+> तं तथावनतं भक्तं प्रजाकामं प्रजापतिम\
 > चित्तज्ञअः सर्वभूतानामिदमाह जनार्दनः ॥४२॥
 
-> taṁ tathāvanataṁ bhaktaṁ
-> prajā-kāmaṁ prajāpatim
-> citta-jñaḥ sarva-bhūtānām
+> taṁ tathāvanataṁ bhaktaṁ\
+> prajā-kāmaṁ prajāpatim\
+> citta-jñaḥ sarva-bhūtānām\
 > idam āha janārdanaḥ
 
 *tam*—him (Prajāpati Dakṣa); *tathā*—in that way; *avanatam*—prostrated before Him; *bhaktam*—a great devotee; *prajā-kāmam*—desiring to increase the population; *prajāpatim*—unto the *prajāpati* (Dakṣa); *citta-jñaḥ*—who can understand the hearts; *sarva-bhūtānām*—of all living entities; *idam*—this; *āha*—said; *janārdanaḥ*—the Supreme Personality of Godhead, who can appease everyone's desires.

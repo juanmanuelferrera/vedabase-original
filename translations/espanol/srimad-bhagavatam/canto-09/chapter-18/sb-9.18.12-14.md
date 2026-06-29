@@ -1,25 +1,25 @@
 ### SB 9.18.12-14
 
-> यैरिदं तपसा सृष्टं मुखं पुंसः परस्य ये
-> धार्यते यैरिह ज्योतिः शिवः पन्थाः प्रदर्शितः ॥१२॥
-> यान्वन्दन्त्युपतिष्ठन्ते लोकनाथाः सुरेश्वराः
-> भगवानपि विश्वात्मा पावनः श्रीनिकेतनः ॥१३॥
-> वयं तत्रापि भृगवः शिष्योऽस्या नः पितासुरः
+> यैरिदं तपसा सृष्टं मुखं पुंसः परस्य ये\
+> धार्यते यैरिह ज्योतिः शिवः पन्थाः प्रदर्शितः ॥१२॥\
+> यान्वन्दन्त्युपतिष्ठन्ते लोकनाथाः सुरेश्वराः\
+> भगवानपि विश्वात्मा पावनः श्रीनिकेतनः ॥१३॥\
+> वयं तत्रापि भृगवः शिष्योऽस्या नः पितासुरः\
 > अस्मद्धार्यं धृतवती शूद्रो वेदमिवासती ॥१४॥
 
-> yair idaṁ tapasā sṛṣṭaṁ
-> mukhaṁ puṁsaḥ parasya ye
-> dhāryate yair iha jyotiḥ
+> yair idaṁ tapasā sṛṣṭaṁ\
+> mukhaṁ puṁsaḥ parasya ye\
+> dhāryate yair iha jyotiḥ\
 > śivaḥ panthāḥ pradarśitaḥ
 
-> yān vandanty upatiṣṭhante
-> loka-nāthāḥ sureśvarāḥ
-> bhagavān api viśvātmā
+> yān vandanty upatiṣṭhante\
+> loka-nāthāḥ sureśvarāḥ\
+> bhagavān api viśvātmā\
 > pāvanaḥ śrī-niketanaḥ
 
-> vayaṁ tatrāpi bhṛgavaḥ
-> śiṣyo 'syā naḥ pitāsuraḥ
-> asmad-dhāryaṁ dhṛtavatī
+> vayaṁ tatrāpi bhṛgavaḥ\
+> śiṣyo 'syā naḥ pitāsuraḥ\
+> asmad-dhāryaṁ dhṛtavatī\
 > śūdro vedam ivāsatī
 
 *yaiḥ*—personas por las cuales; *idam*—todo este universo; *tapasā*—por austeridad; *sṛṣṭam*—fue creado; *mukham*—el rostro; *puṁsaḥ*—de la Persona Suprema; *parasya*—trascendental; *ye*—aquellos que (son); *dhāryate*—siempre nace; *yaiḥ*—personas por las cuales; *iha*—aquí; *jyotiḥ*—el *brahmajyoti*, la refulgencia del Señor Supremo; *śivaḥ*—auspiciosa; *panthāḥ*—vía; *pradarśitaḥ*—es trazada; *yān*—a quienes; *vandanti*—ofrecen oraciones; *upatiṣṭhante*—honran y siguen; *loka-nāthāḥ*—los dirigentes de los diversos planetas; *sura-īśvarāḥ*—los semidioses; *bhagavān*—la Suprema Personalidad de Dios; *api*—incluso; *viśva-ātmā*—la Superalma; *pāvanaḥ*—el purificador; *śrī-niketanaḥ*—el esposo de la diosa de la fortuna; *vayam*—nosotros (somos); *tatra api*—más grandes incluso que los *brāhmaṇas*; *bhṛgavaḥ*—descendientes de Bhṛgu; *śiṣyaḥ*—discípulo; *asyāḥ*—de ella; *naḥ*—nuestro; *pitā*—padre; *asuraḥ*—que pertenece al grupo de los demonios; *asmat-dhāryam*—hecho para que nosotras lo vistamos; *dhṛtavatī*—se lo ha puesto; *śūdraḥ*—un obrero no *brāhmaṇa*; *vedam*—los *Vedas*; *iva*—como; *asatī*—sin castidad.

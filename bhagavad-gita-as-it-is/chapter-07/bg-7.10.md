@@ -1,11 +1,11 @@
 ### Bg 7.10
 
-> बीजं मां सर्वभूतानां विद्धि पार्थ सनातनम् ।
+> बीजं मां सर्वभूतानां विद्धि पार्थ सनातनम् ।\
 > बुद्धिर्बुद्धिमतामस्मि तेजस्तेजस्विनामहम् ॥१०॥
 
-> bījaṁ māṁ sarva-bhūtānāṁ
-> viddhi pārtha sanātanam
-> buddhir buddhimatām asmi
+> bījaṁ māṁ sarva-bhūtānāṁ\
+> viddhi pārtha sanātanam\
+> buddhir buddhimatām asmi\
 > tejas tejasvinām aham
 
 *bījam*—seed; *mām*—unto Me; *sarva-bhūtānām*—of all living entities; *viddhi*—try to understand; *pārtha*—O son of Pṛthā; *sanātanam*—original, eternal; *buddhiḥ*—intelligence; *buddhimatām*—of the intelligent; *asmi*—I am; *tejaḥ*—prowess; *tejasvinām*—of the powerful; *aham*—I am.

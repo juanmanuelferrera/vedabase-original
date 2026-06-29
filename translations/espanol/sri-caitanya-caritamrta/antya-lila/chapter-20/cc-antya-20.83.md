@@ -1,9 +1,9 @@
 ### CC Antya 20.83
 
-> তাঁর আগে যদ্যপি সব লীলার ভাণ্ডার ।
+> তাঁর আগে যদ্যপি সব লীলার ভাণ্ডার ।\
 > তথাপি অল্প বর্ণিয়া ছাড়িলেন আর ॥৮৩॥
 
-> tāṅra āge yadyapi saba līlāra bhāṇḍāra
+> tāṅra āge yadyapi saba līlāra bhāṇḍāra\
 > tathāpi alpa varṇiyā chāḍilena āra
 
 *tāṅra āge*—ante él; *yadyapi*—aunque; *saba*—todos; *līlāra*—de los pasatiempos; *bhāṇḍāra*—almacén completo; *tathāpi*—aun así; *alpa*—muy poco; *varṇiyā*—describiendo; *chāḍilena*—dejó; *āra*—los demás.

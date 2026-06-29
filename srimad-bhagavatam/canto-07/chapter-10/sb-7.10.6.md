@@ -1,11 +1,11 @@
 ### SB 7.10.6
 
-> अहं त्वकामस्त्वद्भक्तस्त्वं च स्वाम्यनपाश्रयः
+> अहं त्वकामस्त्वद्भक्तस्त्वं च स्वाम्यनपाश्रयः\
 > नान्यथेहावयोरर्थो राजसेवकयोरिव ॥६॥
 
-> ahaṁ tv akāmas tvad-bhaktas
-> tvaṁ ca svāmy anapāśrayaḥ
-> nānyathehāvayor artho
+> ahaṁ tv akāmas tvad-bhaktas\
+> tvaṁ ca svāmy anapāśrayaḥ\
+> nānyathehāvayor artho\
 > rāja-sevakayor iva
 
 *aham*—as far as I am concerned; *tu*—indeed; *akāmaḥ*—without material desire; *tvat-bhaktaḥ*—fully attached to You without motivation; *tvam ca*—Your Lordship also; *svāmī*—the real master; *anapāśrayaḥ*—without motivation (You do not become the master with motivation); *na*—not; *anyathā*—without being in such a relationship as master and servant; *iha*—here; *āvayoḥ*—our; *arthaḥ*—any motivation (the Lord is the pure master, and Prahlāda Mahārāja is the pure devotee with no materialistic motivation); *rāja*—of a king; *sevakayoḥ*—and the servitor; *iva*—like (just as a king exacts taxes for the benefit of the servant or the citizens pay taxes for the benefit of the king).

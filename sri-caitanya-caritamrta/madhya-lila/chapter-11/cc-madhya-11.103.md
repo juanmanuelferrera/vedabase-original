@@ -1,9 +1,9 @@
 ### CC Madhya 11.103
 
-> তাঁর কৃপা নহে যারে, পণ্ডিত নহে কেনে ।
+> তাঁর কৃপা নহে যারে, পণ্ডিত নহে কেনে ।\
 > দেখিলে শুনিলেহ তাঁরে ‘ঈশ্বর’ না মানে ॥১০৩॥
 
-> tāṅra kṛpā nahe yāre, paṇḍita nahe kene
+> tāṅra kṛpā nahe yāre, paṇḍita nahe kene\
 > dekhile śunileha tāṅre 'īśvara' nā māne
 
 *tāṅra kṛpā*—His mercy; *nahe*—there is not; *yāre*—unto whom; *paṇḍita*—learned scholar; *nahe*—even though; *kene*—nevertheless; *dekhile*—even by seeing; *śunileha*—even by listening; *tāṅre*—Him; *īśvara*—as the Supreme Personality of Godhead; *nā māne*—does not accept.

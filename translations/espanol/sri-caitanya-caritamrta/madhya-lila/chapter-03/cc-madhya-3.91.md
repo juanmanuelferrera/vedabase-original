@@ -1,9 +1,9 @@
 ### CC Madhya 3.91
 
-> আচার্য কহে — যে দিয়াছি, তাহা না ছাড়িবা ।
+> আচার্য কহে — যে দিয়াছি, তাহা না ছাড়িবা ।\
 > এখন যে দিয়ে, তার অর্ধেক খাইবা ॥৯১॥
 
-> ācārya kahe--ye diyāchi, tāhā nā chāḍibā
+> ācārya kahe--ye diyāchi, tāhā nā chāḍibā\
 > ekhana ye diye, tāra ardheka khāibā
 
 *ācārya kahe*—Advaita Ācārya dijo; *ye diyāchi*—lo que he dado; *tāhā nā chāḍibā*—por favor no lo dejes; *ekhana*—ahora; *ye*—lo que; *diye*—estoy dando; *tāra ardheka*—la mitad de ello; *khāibā*—comerás.

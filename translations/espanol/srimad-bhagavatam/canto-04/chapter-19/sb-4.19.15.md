@@ -1,11 +1,11 @@
 ### SB 4.19.15
 
-> वधान्निवृत्तं तं भूयो हन्तवेऽत्रिरचोदयत् ।
+> वधान्निवृत्तं तं भूयो हन्तवेऽत्रिरचोदयत् ।\
 > जहि यज्ञहनं तात महेन्द्रं विबुधाधमम् ॥१५॥
 
-> vadhān nivṛttaṁ taṁ bhūyo
-> hantave 'trir acodayat
-> jahi yajña-hanaṁ tāta
+> vadhān nivṛttaṁ taṁ bhūyo\
+> hantave 'trir acodayat\
+> jahi yajña-hanaṁ tāta\
 > mahendraṁ vibudhādhamam
 
 *vadhāt*—de matar; *nivṛttam*—detenido; *tam*—al hijo de Pṛthu; *bhūyaḥ*—de nuevo; *hantave*—para que matase; *atriḥ*—el gran sabio Atri; *acodayat*—incitó; *jahi*—matar; *yajña-hanam*—al que impide la ejecución de un *yajña*; *tāta*—mi querido hijo; *mahā-indram*—al gran Indra, el rey del cielo; *vibudha-adhamam*—el más bajo de todos los semidioses.

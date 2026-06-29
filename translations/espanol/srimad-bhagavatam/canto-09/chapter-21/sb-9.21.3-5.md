@@ -1,25 +1,25 @@
 ### SB 9.21.3-5
 
-> वियद्वित्तस्य ददतो लब्धं लब्धं बुभुक्षतः
-> निष्किञ्चनस्य धीरस्य सकुटुम्बस्य सीदतः ॥३॥
-> व्यतीयुरष्टचत्वारिंशदहान्यपिबतः किल
-> घृतपायससंयावं तोयं प्रातरुपस्थितम ॥४॥
-> कृच्छ्रप्राप्तकुटुम्बस्य क्षुत्तृड्भ्यां जातवेपथोः
+> वियद्वित्तस्य ददतो लब्धं लब्धं बुभुक्षतः\
+> निष्किञ्चनस्य धीरस्य सकुटुम्बस्य सीदतः ॥३॥\
+> व्यतीयुरष्टचत्वारिंशदहान्यपिबतः किल\
+> घृतपायससंयावं तोयं प्रातरुपस्थितम ॥४॥\
+> कृच्छ्रप्राप्तकुटुम्बस्य क्षुत्तृड्भ्यां जातवेपथोः\
 > अतिथिर्ब्राह्मणः काले भोक्तुकामस्य चागमत ॥५॥
 
-> viyad-vittasya dadato
-> labdhaṁ labdhaṁ bubhukṣataḥ
-> niṣkiñcanasya dhīrasya
+> viyad-vittasya dadato\
+> labdhaṁ labdhaṁ bubhukṣataḥ\
+> niṣkiñcanasya dhīrasya\
 > sakuṭumbasya sīdataḥ
 
-> vyatīyur aṣṭa-catvāriṁśad
-> ahāny apibataḥ kila
-> ghṛta-pāyasa-saṁyāvaṁ
+> vyatīyur aṣṭa-catvāriṁśad\
+> ahāny apibataḥ kila\
+> ghṛta-pāyasa-saṁyāvaṁ\
 > toyaṁ prātar upasthitam
 
-> kṛcchra-prāpta-kuṭumbasya
-> kṣut-tṛḍbhyāṁ jāta-vepathoḥ
-> atithir brāhmaṇaḥ kāle
+> kṛcchra-prāpta-kuṭumbasya\
+> kṣut-tṛḍbhyāṁ jāta-vepathoḥ\
+> atithir brāhmaṇaḥ kāle\
 > bhoktu-kāmasya cāgamat
 
 *viyat-vittasya*—de Rantideva, que recibía lo que la providencia le enviaba, como el pájaro *cātaka* recibe el agua del cielo; *dadataḥ*—que repartía entre los demás; *labdham*—todo lo que obtenía; *labdham*—esas ganancias; *bubhukṣataḥ*—disfrutó; *niṣkiñcanasya*—siempre sin un céntimo; *dhīrasya*—pero muy sobrio; *sa-kuṭumbasya*—con los miembros de su propia familia; *sīdataḥ*—sufrir mucho; *vyatīyuḥ*—pasó; *aṣṭa-catvāriṁśat*—cuarenta y ocho; *ahāni*—días; *apibataḥ*—sin siquiera beber agua; *kila*—en verdad; *ghṛta-pāyasa*—alimentos cocinados con leche y *ghī*; *saṁyāvam*—diversos cereales; *toyam*—agua; *prātaḥ*—por la mañana; *upasthitam*—llegó por casualidad; *kṛcchra-prāpta*—que estaban sufriendo; *kuṭumbasya*—los miembros de cuya familia; *kṣut-tṛḍbhyām*—por el hambre y la sed; *jāta*—estaban; *vepathoḥ*—temblando; *atithiḥ*—una visita; *brāhmaṇaḥ*—un *brāhmaṇa*; *kāle*—justo en ese instante; *bhoktu-kāmasya*—de Rantideva, que deseaba comer algo; *ca*—también; *āgamat*—llegó allí.

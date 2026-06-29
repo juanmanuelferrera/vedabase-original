@@ -1,13 +1,13 @@
 ### SB 3.5.2
 
-> विदुर उवाच
-> सुखाय कर्माणि करोति लोको न तैः सुखं वान्यदुपारमं वा ।
+> विदुर उवाच\
+> सुखाय कर्माणि करोति लोको न तैः सुखं वान्यदुपारमं वा ।\
 > विन्देत भूयस्तत एव दुःखं यदत्र युक्तं भगवान्वदेन्नः ॥२॥
 
-> vidura uvāca
-> sukhāya karmāṇi karoti loko
-> na taiḥ sukhaṁ vānyad-upāramaṁ vā
-> vindeta bhūyas tata eva duḥkhaṁ
+> vidura uvāca\
+> sukhāya karmāṇi karoti loko\
+> na taiḥ sukhaṁ vānyad-upāramaṁ vā\
+> vindeta bhūyas tata eva duḥkhaṁ\
 > yad atra yuktaṁ bhagavān vaden naḥ
 
 *viduraḥ uvāca*—Vidura said; *sukhāya*—for attaining happiness; *karmāṇi*—fruitive activities; *karoti*—everyone does so; *lokaḥ*—in this world; *na*—never; *taiḥ*—by those activities; *sukham*—any happiness; *vā*—or; *anyat*—differently; *upāramam*—satiation; *vā*—either; *vindeta*—achieves; *bhūyaḥ*—on the contrary; *tataḥ*—by such activities; *eva*—certainly; *duḥkham*—miseries; *yat*—that which; *atra*—under the circumstances; *yuktam*—right course; *bhagavān*—O great one; *vadet*—may kindly enlighten; *naḥ*—us.

@@ -1,11 +1,11 @@
 ### SB 9.19.11
 
-> सम्बद्धवृषणः सोऽपि ह्यजया कूपलब्धया
+> सम्बद्धवृषणः सोऽपि ह्यजया कूपलब्धया\
 > कालं बहुतिथं भद्रे कामैर्नाद्यापि तुष्यति ॥११॥
 
-> sambaddha-vṛṣaṇaḥ so 'pi
-> hy ajayā kūpa-labdhayā
-> kālaṁ bahu-tithaṁ bhadre
+> sambaddha-vṛṣaṇaḥ so 'pi\
+> hy ajayā kūpa-labdhayā\
+> kālaṁ bahu-tithaṁ bhadre\
 > kāmair nādyāpi tuṣyati
 
 *sambaddha-vṛṣaṇaḥ*—con los testículos reimplantados; *saḥ*—él; *api*—también; *hi*—en verdad; *ajayā*—con la cabra; *kūpa-labdhayā*—a la que sacó del pozo; *kālam*—durante un período de tiempo; *bahu-titham*—de muchísima duración; *bhadre*—¡oh, mi querida esposa!; *kāmaiḥ*—con esos deseos de disfrute; *na*—no; *adya api*—todavía hoy; *tuṣyati*—está satisfecho.

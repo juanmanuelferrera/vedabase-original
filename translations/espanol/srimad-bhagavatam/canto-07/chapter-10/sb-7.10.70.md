@@ -1,11 +1,11 @@
 ### SB 7.10.70
 
-> एवं दग्ध्वा पुरस्तिस्रो भगवान्पुरहा नृप
+> एवं दग्ध्वा पुरस्तिस्रो भगवान्पुरहा नृप\
 > ब्रह्मादिभिः स्तूयमानः स्वं धाम प्रत्यपद्यत ॥७०॥
 
-> evaṁ vidhāny asya hareḥ sva-māyayā
-> viḍambamānasya nṛ-lokam ātmanaḥ
-> vīryāṇi gītāny ṛṣibhir jagad-guror
+> evaṁ vidhāny asya hareḥ sva-māyayā\
+> viḍambamānasya nṛ-lokam ātmanaḥ\
+> vīryāṇi gītāny ṛṣibhir jagad-guror\
 > lokaṁ punānāny aparaṁ vadāmi kim
 
 *evam vidhāni*—de este modo; *asya*—de Kṛṣṇa; *hareḥ*—de la Suprema Personalidad de Dios; *sva-māyayā*—por Sus potencias trascendentales; *viḍambamānasya*—actuar como un ser humano corriente; *nṛ-lokam*—en la sociedad humana; *ātmanaḥ*—de Él; *vīryāṇi*—actividades trascendentales; *gītāni*—narraciones; *ṛṣibhiḥ*—por grandes personas santas; *jagat-guroḥ*—del maestro supremo; *lokam*—todos los sistemas planetarios; *punānāni*—purificar; *aparam*—qué más; *vadāmi kim*—puedo yo decir.

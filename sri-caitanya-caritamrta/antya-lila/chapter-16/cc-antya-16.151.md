@@ -1,13 +1,13 @@
 ### CC Antya 16.151
 
-> স্বরূপ, রূপ, সনাতন, রঘুনাথের শ্রীচরণ,
-> শিরে ধরি’ করি যার আশ ।
-> চৈতন্যচরিতামৃত, অমৃত হৈতে পরামৃত,
+> স্বরূপ, রূপ, সনাতন, রঘুনাথের শ্রীচরণ,\
+> শিরে ধরি’ করি যার আশ ।\
+> চৈতন্যচরিতামৃত, অমৃত হৈতে পরামৃত,\
 > গায় দীনহীন কৃষ্ণদাস ॥১৫১॥
 
-> svarūpa, rūpa, sanātana, raghunāthera śrī-caraṇa,
-> śire dhari' kari yāra āśa
-> caitanya-caritāmṛta, amṛta haite parāmṛta,
+> svarūpa, rūpa, sanātana, raghunāthera śrī-caraṇa,\
+> śire dhari' kari yāra āśa\
+> caitanya-caritāmṛta, amṛta haite parāmṛta,\
 > gāya dīna-hīna kṛṣṇadāsa
 
 *svarūpa*—Svarūpa Dāmodara Gosvāmī; *rūpa*—Śrīla Rūpa Gosvāmī; *sanātana*—Sanātana Gosvāmī; *raghunāthera*—of Raghunātha dāsa Gosvāmī; *śrī-caraṇa*—the lotus feet; *śire*—on the head; *dhari'*—taking; *kari yāra āśa*—hoping for their mercy; *caitanya-caritāmṛta*—the book named *Caitanya-caritāmṛta*; *amṛta haite*—than nectar; *para-amṛta*—more nectarean; *gāya*—chants; *dīna-hīna*—the most wretched; *kṛṣṇadāsa*—Kṛṣṇadāsa Kavirāja Gosvāmī.

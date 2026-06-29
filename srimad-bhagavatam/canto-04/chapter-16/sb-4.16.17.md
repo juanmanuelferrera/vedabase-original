@@ -1,11 +1,11 @@
 ### SB 4.16.17
 
-> मातृभक्तिः परस्त्रीषु पत्न्यामर्ध इवात्मनः ।
+> मातृभक्तिः परस्त्रीषु पत्न्यामर्ध इवात्मनः ।\
 > प्रजासु पितृवत्स्निग्धः किङ्करो ब्रह्मवादिनाम् ॥१७॥
 
-> mātṛ-bhaktiḥ para-strīṣu
-> patnyām ardha ivātmanaḥ
-> prajāsu pitṛvat snigdhaḥ
+> mātṛ-bhaktiḥ para-strīṣu\
+> patnyām ardha ivātmanaḥ\
+> prajāsu pitṛvat snigdhaḥ\
 > kiṅkaro brahma-vādinām
 
 *mātṛ-bhaktiḥ*—as respectful as one is to his mother; *para-strīṣu*—to other women; *patnyām*—to his own wife; *ardhaḥ*—half; *iva*—like; *ātmanaḥ*—of his body; *prajāsu*—unto the citizens; *pitṛ-vat*—like a father; *snigdhaḥ*—affectionate; *kiṅkaraḥ*—servant; *brahma-vādinām*—of the devotees who preach the glories of the Lord.

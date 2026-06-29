@@ -1,11 +1,11 @@
 ### SB 1.8.6
 
-> याजयित्वाश्वमेधैस्तं त्रिभिरुत्तमकल्पकैः ।
+> याजयित्वाश्वमेधैस्तं त्रिभिरुत्तमकल्पकैः ।\
 > तद्यशः पावनं दिक्षु शतमन्योरिवातनोत् ॥६॥
 
-> yājayitvāśvamedhais taṁ
-> tribhir uttama-kalpakaiḥ
-> tad-yaśaḥ pāvanaṁ dikṣu
+> yājayitvāśvamedhais taṁ\
+> tribhir uttama-kalpakaiḥ\
+> tad-yaśaḥ pāvanaṁ dikṣu\
 > śata-manyor ivātanot
 
 *yājayitvā*—por ejecutar; *aśvamedhaiḥ*—*yajña* en el que se sacrifica un caballo; *tam*—a él (el rey Yudhiṣṭhira); *tribhiḥ*—tres; *uttama*—mejores; *kalpakaiḥ*—abastecidos con ingredientes adecuados y ejecutados por sacerdotes capaces; *tat*—esa; *yaśaḥ*—fama; *pāvanam*—virtuosa; *dikṣu*—en todas las direcciones; *śata-manyoḥ*—Indra, quien ejecutó cien de tales sacrificios; *iva*—como; *atanot*—propagada.

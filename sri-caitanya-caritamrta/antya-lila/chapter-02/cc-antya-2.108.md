@@ -1,9 +1,9 @@
 ### CC Antya 2.108
 
-> স্নেহে রান্ধিল প্রভুর প্রিয় যে ব্যঞ্জন ।
+> স্নেহে রান্ধিল প্রভুর প্রিয় যে ব্যঞ্জন ।\
 > দেউল প্রসাদ, আদা-চাকি, লেম্বু-সলবণ ॥১০৮॥
 
-> snehe rāndhila prabhura priya ye vyañjana
+> snehe rāndhila prabhura priya ye vyañjana\
 > deula prasāda, ādā-cāki, lembu-salavaṇa
 
 *snehe*—in great affection; *rāndhila*—cooked; *prabhura*—of Śrī Caitanya Mahāprabhu; *priya*—dear; *ye*—whatever; *vyañjana*—vegetables; *deula prasāda*—remnants from the temple of Jagannātha; *ādā-cāki*—ground ginger; *lembu*—lime; *sa-lavaṇa*—with salt.

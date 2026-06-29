@@ -1,11 +1,11 @@
 ### SB 1.15.2
 
-> शोकेन शुष्यद्वदन हृत्सरोजो हतप्रभः ।
+> शोकेन शुष्यद्वदन हृत्सरोजो हतप्रभः ।\
 > विभुं तमेवानुस्मरन्नाशक्नोत्प्रतिभाषितुम् ॥२॥
 
-> śokena śuṣyad-vadana-
-> hṛt-sarojo hata-prabhaḥ
-> vibhuṁ tam evānusmaran
+> śokena śuṣyad-vadana-\
+> hṛt-sarojo hata-prabhaḥ\
+> vibhuṁ tam evānusmaran\
 > nāśaknot pratibhāṣitum
 
 *śokena*—por la aflicción; *śuṣyat-vadana*—resecamiento de la boca; *hṛt-sarojaḥ*—corazón cual loto; *hata*—perdido; *prabhaḥ*—brillo del cuerpo; *vibhum*—el Supremo; *tam*—al Señor Kṛṣṇa; *eva*—ciertamente; *anusmaran*—pensando para sus adentros; *na*—no pudo; *aśaknot*—ser capaz; *pratibhāṣitum*—respondiendo debidamente.

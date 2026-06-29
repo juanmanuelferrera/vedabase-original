@@ -1,11 +1,11 @@
 ### SB 9.11.4
 
-> इत्ययं तदलङ्कार वासोभ्यामवशेषितः
+> इत्ययं तदलङ्कार वासोभ्यामवशेषितः\
 > तथा राज्ञयपि वैदेही सौमङ्गल्यावशेषिता ॥४॥
 
-> ity ayaṁ tad-alaṅkāra-
-> vāsobhyām avaśeṣitaḥ
-> tathā rājñy api vaidehī
+> ity ayaṁ tad-alaṅkāra-\
+> vāsobhyām avaśeṣitaḥ\
+> tathā rājñy api vaidehī\
 > saumaṅgalyāvaśeṣitā
 
 *iti*—de este modo (después de darlo todo a los *brāhmaṇas*); *ayam*—el Señor Rāmacandra; *tat*—Suyo; *alaṅkāra-vāsobhyām*—con Sus alhajas y ropas personales; *avaśeṣitaḥ*—Se quedó; *tathā*—así como; *rājñī*—la reina (madre Sītā); *api*—también; *vaidehī*—la hija del rey de Videha; *saumaṅgalyā*—solo con el arete de la nariz; *avaśeṣitā*—se quedó.

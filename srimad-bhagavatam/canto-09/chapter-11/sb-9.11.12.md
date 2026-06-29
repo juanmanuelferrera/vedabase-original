@@ -1,11 +1,11 @@
 ### SB 9.11.12
 
-> अङ्गदश्चित्रकेतुश्च लक्ष्मणस्यात्मजौ स्मृतौ
+> अङ्गदश्चित्रकेतुश्च लक्ष्मणस्यात्मजौ स्मृतौ\
 > तक्षः पुष्कल इत्यास्तां भरतस्य महीपते ॥१२॥
 
-> aṅgadaś citraketuś ca
-> lakṣmaṇasyātmajau smṛtau
-> takṣaḥ puṣkala ity āstāṁ
+> aṅgadaś citraketuś ca\
+> lakṣmaṇasyātmajau smṛtau\
+> takṣaḥ puṣkala ity āstāṁ\
 > bharatasya mahīpate
 
 *aṅgadaḥ*—Aṅgada; *citraketuḥ*—Citraketu; *ca*—also; *lakṣmaṇasya*—of Lord Lakṣmaṇa; *ātmajau*—two sons; *smṛtau*—were said to be; *takṣaḥ*—Takṣa; *puṣkalaḥ*—Puṣkala; *iti*—thus; *āstām*—were; *bharatasya*—of Lord Bharata; *mahīpate*—O King Parīkṣit.

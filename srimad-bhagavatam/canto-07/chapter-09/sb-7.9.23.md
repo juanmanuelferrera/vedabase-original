@@ -1,13 +1,13 @@
 ### SB 7.9.23
 
-> दृष्टा मया दिवि विभोऽखिलधिष्ण्यपानाम
-> आयुः श्रियो विभव इच्छति यान्जनोऽयम
-> येऽस्मत्पितुः कुपितहासविजृम्भितभ्रू
+> दृष्टा मया दिवि विभोऽखिलधिष्ण्यपानाम\
+> आयुः श्रियो विभव इच्छति यान्जनोऽयम\
+> येऽस्मत्पितुः कुपितहासविजृम्भितभ्रू\
 > विस्फूर्जितेन लुलिताः स तु ते निरस्तः ॥२३॥
 
-> dṛṣṭā mayā divi vibho 'khila-dhiṣṇya-pānām
-> āyuḥ śriyo vibhava icchati yāñ jano 'yam
-> ye 'smat pituḥ kupita-hāsa-vijṛmbhita-bhrū-
+> dṛṣṭā mayā divi vibho 'khila-dhiṣṇya-pānām\
+> āyuḥ śriyo vibhava icchati yāñ jano 'yam\
+> ye 'smat pituḥ kupita-hāsa-vijṛmbhita-bhrū-\
 > visphūrjitena lulitāḥ sa tu te nirastaḥ
 
 *dṛṣṭāḥ*—have been seen practically; *mayā*—by me; *divi*—in the higher planetary systems; *vibho*—O my Lord; *akhila*—all; *dhiṣṇya-pānām*—of the chiefs of different states or planets; *āyuḥ*—the duration of life; *śriyaḥ*—the opulences; *vibhavaḥ*—glories, influence; *icchati*—desire; *yān*—all of which; *janaḥ ayam*—these people in general; *ye*—all of which (duration of life, opulence, etc.); *asmat pituḥ*—of our father, Hiraṇyakaśipu; *kupita-hāsa*—by his critical laughing when angry; *vijṛmbhita*—being expanded; *bhrū*—of the eyebrows; *visphūrjitena*—simply by the feature; *lulitāḥ*—pulled down or finished; *saḥ*—he (my father); *tu*—but; *te*—by You; *nirastaḥ*—completely vanquished.

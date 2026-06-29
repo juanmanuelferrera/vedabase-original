@@ -1,11 +1,11 @@
 ### SB 3.31.29
 
-> सह देहेन मानेन वर्धमानेन मन्युना ।
+> सह देहेन मानेन वर्धमानेन मन्युना ।\
 > करोति विग्रहं कामी कामिष्वन्ताय चात्मनः ॥२९॥
 
-> saha dehena mānena
-> vardhamānena manyunā
-> karoti vigrahaṁ kāmī
+> saha dehena mānena\
+> vardhamānena manyunā\
+> karoti vigrahaṁ kāmī\
 > kāmiṣv antāya cātmanaḥ
 
 *saha*—con; *dehena*—el cuerpo; *mānena*—con prestigio falso; *vardhamānena*—aumentando; *manyunā*—a causa de la ira; *karoti*—crea; *vigraham*—enemistad; *kāmī*—la persona llena de deseos; *kāmiṣu*—hacia otras personas llenas de deseos; *antāya*—para la destrucción; *ca*—y; *ātmanaḥ*—de su alma.

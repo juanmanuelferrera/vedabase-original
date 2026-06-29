@@ -1,11 +1,11 @@
 ### SB 4.29.79
 
-> अतस्तदपवादार्थं भज सर्वात्मना हरिम् ।
+> अतस्तदपवादार्थं भज सर्वात्मना हरिम् ।\
 > पश्यंस्तदात्मकं विश्वं स्थित्युत्पत्त्यप्यया यतः ॥७९॥
 
-> atas tad apavādārthaṁ
-> bhaja sarvātmanā harim
-> paśyaṁs tad-ātmakaṁ viśvaṁ
+> atas tad apavādārthaṁ\
+> bhaja sarvātmanā harim\
+> paśyaṁs tad-ātmakaṁ viśvaṁ\
 > sthity-utpatty-apyayā yataḥ
 
 *ataḥ*—por lo tanto; *tat*—eso; *apavāda-artham*—para contrarrestar; *bhaja*—ocúpate en servicio devocional; *sarva-ātmanā*—con todos tus sentidos; *harim*—a la Suprema Personalidad de Dios; *paśyan*—ver; *tat*—del Señor; *ātmakam*—bajo el control; *viśvam*—la manifestación cósmica; *sthiti*—mantenimiento; *utpatti*—creación; *apyayāḥ*—y aniquilación; *yataḥ*—de quien.

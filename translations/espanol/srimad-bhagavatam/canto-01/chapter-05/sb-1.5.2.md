@@ -1,13 +1,13 @@
 ### SB 1.5.2
 
-> नारद उवाच
-> पाराशर्य महाभाग भवतः कच्चिदात्मना ।
+> नारद उवाच\
+> पाराशर्य महाभाग भवतः कच्चिदात्मना ।\
 > परितुष्यति शारीर आत्मा मानस एव वा ॥२॥
 
-> nārada uvāca
-> pārāśarya mahā-bhāga
-> bhavataḥ kaccid ātmanā
-> parituṣyati śārīra
+> nārada uvāca\
+> pārāśarya mahā-bhāga\
+> bhavataḥ kaccid ātmanā\
+> parituṣyati śārīra\
 > ātmā mānasa eva vā
 
 *nāradaḥ*—Nārada; *uvāca*—dijo; *pārāśarya*—¡oh, hijo de Parāśara!; *mahā-bhāga*—el muy afortunado; *bhavataḥ*—tu; *kaccit*—si es; *ātmanā*—mediante la autorrealización de; *parituṣyati*—satisface; *śārīraḥ*—identificando el cuerpo; *ātmā*—el yo; *mānasaḥ*—identificando la mente; *eva*—indudablemente; *vā*—y.

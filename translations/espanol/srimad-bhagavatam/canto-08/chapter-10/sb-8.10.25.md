@@ -1,11 +1,11 @@
 ### SB 8.10.25
 
-> ऐरावतं दिक्करिणमारूढः शुशुभे स्वराट
+> ऐरावतं दिक्करिणमारूढः शुशुभे स्वराट\
 > यथा स्रवत्प्रस्रवणमुदयाद्रिमहर्पतिः ॥२५॥
 
-> airāvataṁ dik-kariṇam
-> ārūḍhaḥ śuśubhe sva-rāṭ
-> yathā sravat-prasravaṇam
+> airāvataṁ dik-kariṇam\
+> ārūḍhaḥ śuśubhe sva-rāṭ\
+> yathā sravat-prasravaṇam\
 > udayādrim ahar-patiḥ
 
 *airāvatam*—Airāvata; *dik-kariṇam*—el gran elefante que podía ir a donde deseara; *ārūḍhaḥ*—montado en; *śuśubhe*—resultaba muy hermoso para la vista; *sva-rāṭ*—Indra; *yathā*—tal y como; *sravat*—flujo; *prasravaṇam*—olas de vino; *udaya-adrim*—de Udayagiri; *ahaḥ-patiḥ*—el sol.

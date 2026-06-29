@@ -1,11 +1,11 @@
 ### SB 3.32.27
 
-> एतावानेव योगेन समग्रेणेह योगिनः ।
+> एतावानेव योगेन समग्रेणेह योगिनः ।\
 > युज्यतेऽभिमतो ह्यर्थो यदसङ्गस्तु कृत्स्नशः ॥२७॥
 
-> etāvān eva yogena
-> samagreṇeha yoginaḥ
-> yujyate 'bhimato hy artho
+> etāvān eva yogena\
+> samagreṇeha yoginaḥ\
+> yujyate 'bhimato hy artho\
 > yad asaṅgas tu kṛtsnaśaḥ
 
 *etāvān*—of such a measure; *eva*—just; *yogena*—by *yoga* practice; *samagreṇa*—all; *iha*—in this world; *yoginaḥ*—of the *yogī*; *yujyate*—is achieved; *abhimataḥ*—desired; *hi*—certainly; *arthaḥ*—purpose; *yat*—which; *asaṅgaḥ*—detachment; *tu*—indeed; *kṛtsnaśaḥ*—completely.

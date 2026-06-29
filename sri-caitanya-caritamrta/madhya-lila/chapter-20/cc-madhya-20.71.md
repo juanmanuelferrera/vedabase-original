@@ -1,9 +1,9 @@
 ### CC Madhya 20.71
 
-> সেই বস্ত্র সনাতন না কৈল অঙ্গীকার ।
+> সেই বস্ত্র সনাতন না কৈল অঙ্গীকার ।\
 > শুনিয়া প্রভুর মনে আনন্দ অপার ॥৭১॥
 
-> sei vastra sanātana nā kaila aṅgīkāra
+> sei vastra sanātana nā kaila aṅgīkāra\
 > śuniyā prabhura mane ānanda apāra
 
 *sei vastra*—that new dress; *sanātana*—Sanātana Gosvāmī; *nā kaila*—did not; *aṅgīkāra*—accept; *śuniyā*—hearing; *prabhura*—of Śrī Caitanya Mahāprabhu; *mane*—in the mind; *ānanda apāra*—unlimited happiness.

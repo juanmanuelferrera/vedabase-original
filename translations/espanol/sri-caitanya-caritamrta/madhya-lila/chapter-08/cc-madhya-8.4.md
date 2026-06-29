@@ -1,9 +1,9 @@
 ### CC Madhya 8.4
 
-> নৃসিংহ দেখিয়া কৈল দণ্ডবৎপ্রণতি ৷
+> নৃসিংহ দেখিয়া কৈল দণ্ডবৎপ্রণতি ৷\
 > প্রেমাবেশে কৈল বহু নৃত্য-গীত-স্তুতি ৷৷ ৪ ৷৷ ॥৪॥
 
-> nṛsiṁha dekhiyā kaila daṇḍavat-praṇati
+> nṛsiṁha dekhiyā kaila daṇḍavat-praṇati\
 > premāveśe kaila bahu nṛtya-gīta-stuti
 
 *nṛsiṁha dekhiyā*—al ver al Señor Nṛsiṁha en el templo; *kaila*—realizó; *daṇḍavat-praṇati*—ofrenda de reverencias, postrándose ante la Deidad; *premāveśe*—en éxtasis de amor; *kaila*—ejecutó; *bahu*—toda clase de; *nṛtya*—danzas; *gīta*—cánticos; *stuti*—y ofrendas de oraciones.

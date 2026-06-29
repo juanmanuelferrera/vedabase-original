@@ -1,13 +1,13 @@
 ### SB 5.6.13
 
-> तस्यानुगुणान्श्लोकान्गायन्ति
-> अहो भुवः सप्तसमुद्रवत्या द्वीपेषु वर्षेष्वधिपुण्यमेतत
+> तस्यानुगुणान्श्लोकान्गायन्ति\
+> अहो भुवः सप्तसमुद्रवत्या द्वीपेषु वर्षेष्वधिपुण्यमेतत\
 > गायन्ति यत्रत्यजना मुरारेः कर्माणि भद्राण्यवतारवन्ति ॥१३॥
 
-> tasyānuguṇān ślokān gāyanti—
-> aho bhuvaḥ sapta-samudravatyā
-> dvīpeṣu varṣeṣv adhipuṇyam etat
-> gāyanti yatratya-janā murāreḥ
+> tasyānuguṇān ślokān gāyanti—\
+> aho bhuvaḥ sapta-samudravatyā\
+> dvīpeṣu varṣeṣv adhipuṇyam etat\
+> gāyanti yatratya-janā murāreḥ\
 > karmāṇi bhadrāṇy avatāravanti
 
 *tasya*—of Him (Lord Ṛṣabhadeva); *anuguṇān*—conforming to the instructions for liberation; *ślokān*—verses; *gāyanti*—chant; *aho*—oh; *bhuvaḥ*—of this earthly planet; *sapta-samudra-vatyāḥ*—possessing seven seas; *dvīpeṣu*—among the islands; *varṣeṣu*—among the lands; *adhipuṇyam*—more pious than any other island; *etat*—this (Bhārata-varṣa); *gāyanti*—sing about; *yatratya-janāḥ*—the people of this tract of land; *murāreḥ*—of Murāri, the Supreme Personality of Godhead; *karmāṇi*—the activities; *bhadrāṇi*—all-auspicious; *avatāravanti*—in many incarnations such as Lord Ṛṣabhadeva.

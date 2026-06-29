@@ -1,9 +1,9 @@
 ### CC Antya 9.11
 
-> বাহিরে ফুকারে লোক, দর্শন না পাঞা ।
+> বাহিরে ফুকারে লোক, দর্শন না পাঞা ।\
 > ‘কৃষ্ণ কহ’ বলেন প্রভু বাহিরে আসিয়া ॥১১॥
 
-> bāhire phukāre loka, darśana nā pāñā
+> bāhire phukāre loka, darśana nā pāñā\
 > 'kṛṣṇa kaha' balena prabhu bāhire āsiyā
 
 *bāhire*—fuera; *phu-kāre*—con un sonido tumultuoso; *loka*—las personas; *darśana nā pāñā*—al no poder ver; *kṛṣṇa kaha*—cantad Kṛṣṇa; *balena*—dice; *prabhu*—Śrī Caitanya Mahāprabhu; *bāhire āsiyā*—saliendo fuera.

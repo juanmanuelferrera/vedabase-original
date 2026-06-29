@@ -1,11 +1,11 @@
 ### SB 8.7.30
 
-> मुखानि पञ्चोपनिषदस्तवेश यैस्त्रिंशदष्टोत्तरमन्त्रवर्गः
+> मुखानि पञ्चोपनिषदस्तवेश यैस्त्रिंशदष्टोत्तरमन्त्रवर्गः\
 > यत्तच्छिवाख्यं परमात्मतत्त्वं देव स्वयंज्योतिरवस्थितिस्ते ॥३०॥
 
-> chāyā tv adharmormiṣu yair visargo
-> netra-trayaṁ sattva-rajas-tamāṁsi
-> sāṅkhyātmanaḥ śāstra-kṛtas tavekṣā
+> chāyā tv adharmormiṣu yair visargo\
+> netra-trayaṁ sattva-rajas-tamāṁsi\
+> sāṅkhyātmanaḥ śāstra-kṛtas tavekṣā\
 > chandomayo deva ṛṣiḥ purāṇaḥ
 
 *chāyā*—la sombra; *tu*—pero; *adharma-ūrmiṣu*—en las olas de la irreligión, como *kāma*, *krodha*, *lobha* y *moha*; *yaiḥ*—por las cuales; *visargaḥ*—tantas diversidades de creación; *netra-trayam*—tres ojos; *sattva*—bondad; *rajaḥ*—pasión; *tamāṁsi*—y oscuridad; *sāṅkhya-ātmanaḥ*—el origen de todas las Escrituras védicas; *śāstra*—Escrituras; *kṛtaḥ*—hechas; *tava*—por ti; *īkṣā*—simplemente por mirar; *chandaḥ-mayaḥ*—llenas de versos védicos; *deva*—¡oh, señor!; *ṛṣiḥ*—todas las Escrituras védicas; *purāṇaḥ*—y los *Purāṇas*, los *Vedas* complementarios.

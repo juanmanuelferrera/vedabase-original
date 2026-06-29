@@ -1,9 +1,9 @@
 ### CC Madhya 16.199
 
-> ‘মন্ত্রেশ্বর’-দুষ্টনদে পার করাইল ।
+> ‘মন্ত্রেশ্বর’-দুষ্টনদে পার করাইল ।\
 > ‘পিছল্দা’ পর্যন্ত সেই যবন আইল ॥১৯৯॥
 
-> 'mantreśvara'-duṣṭa-nade pāra karāila
+> 'mantreśvara'-duṣṭa-nade pāra karāila\
 > 'pichaldā' paryanta sei yavana āila
 
 *mantreśvara*—named Mantreśvara; *duṣṭa-nade*—at a dangerous spot in the river; *pāra karāila*—arranged to cross; *pichaldā paryanta*—up to the place named Pichaldā; *sei*—that; *yavana*—Mohammedan governor; *āila*—accompanied Śrī Caitanya Mahāprabhu.

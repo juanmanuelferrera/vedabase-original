@@ -1,11 +1,11 @@
 ### SB 1.15.33
 
-> पृथाप्यनुश्रुत्य धनञ्जयोदितं नाशं यदूनां भगवद्गतिं च ताम् ।
+> पृथाप्यनुश्रुत्य धनञ्जयोदितं नाशं यदूनां भगवद्गतिं च ताम् ।\
 > एकान्तभक्त्या भगवत्यधोक्षजे निवेशितात्मोपरराम संसृतेः ॥३३॥
 
-> pṛthāpy anuśrutya dhanañjayoditaṁ
-> nāśaṁ yadūnāṁ bhagavad-gatiṁ ca tām
-> ekānta-bhaktyā bhagavaty adhokṣaje
+> pṛthāpy anuśrutya dhanañjayoditaṁ\
+> nāśaṁ yadūnāṁ bhagavad-gatiṁ ca tām\
+> ekānta-bhaktyā bhagavaty adhokṣaje\
 > niveśitātmopararāma saṁsṛteḥ
 
 *pṛthā*—Kuntī; *api*—also; *anuśrutya*—overhearing; *dhanañjaya*—Arjuna; *uditam*—uttered by; *nāśam*—end; *yadūnām*—of the Yadu dynasty; *bhagavat*—of the Personality of Godhead; *gatim*—disappearance; *ca*—also; *tām*—all those; *eka-anta*—unalloyed; *bhaktyā*—devotion; *bhagavati*—unto the Supreme Lord, Śrī Kṛṣṇa; *adhokṣaje*—transcendence; *niveśita-ātmā*—with full attention; *upararāma*—became released from; *saṁsṛteḥ*—material existence.

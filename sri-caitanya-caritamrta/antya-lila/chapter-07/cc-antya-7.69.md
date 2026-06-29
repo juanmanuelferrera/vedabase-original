@@ -1,9 +1,9 @@
 ### CC Antya 7.69
 
-> মহাপ্রসাদ বল্লভ-ভট্ট বহু আনাইল ।
+> মহাপ্রসাদ বল্লভ-ভট্ট বহু আনাইল ।\
 > প্রভু-সহ সন্ন্যাসিগণ ভোজনে বসিল ॥৬৯॥
 
-> mahā-prasāda vallabha-bhaṭṭa bahu ānāila
+> mahā-prasāda vallabha-bhaṭṭa bahu ānāila\
 > prabhu-saha sannyāsi-gaṇa bhojane vasila
 
 *mahā-prasāda*—food offered to Śrī Jagannātha; *vallabha-bhaṭṭa*—Vallabha Bhaṭṭa; *bahu*—a large quantity; *ānāila*—brought; *prabhu-saha*—with Śrī Caitanya Mahāprabhu; *sannyāsi-gaṇa*—all the *sannyāsīs*; *bhojane vasila*—sat down to accept the *prasāda.*

@@ -1,11 +1,11 @@
 ### SB 4.27.29
 
-> त्वमव्यक्तगतिर्भुङ्क्ष्व लोकं कर्मविनिर्मितम् ।
+> त्वमव्यक्तगतिर्भुङ्क्ष्व लोकं कर्मविनिर्मितम् ।\
 > या हि मे पृतनायुक्ता प्रजानाशं प्रणेष्यसि ॥२९॥
 
-> tvam avyakta-gatir bhuṅkṣva
-> lokaṁ karma-vinirmitam
-> yā hi me pṛtanā-yuktā
+> tvam avyakta-gatir bhuṅkṣva\
+> lokaṁ karma-vinirmitam\
+> yā hi me pṛtanā-yuktā\
 > prajā-nāśaṁ praṇeṣyasi
 
 *tvam*—you; *avyakta-gatiḥ*—whose movement is imperceptible; *bhuṅkṣva*—enjoy; *lokam*—this world; *karma-vinirmitam*—manufactured by fruitive activities; *yā*—one who; *hi*—certainly; *me*—my; *pṛtanā*—soldiers; *yuktā*—helped by; *prajā-nāśam*—annihilation of the living entities; *praṇeṣyasi*—you shall carry out without any hindrance.

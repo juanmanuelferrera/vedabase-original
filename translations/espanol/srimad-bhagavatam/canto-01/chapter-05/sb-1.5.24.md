@@ -1,11 +1,11 @@
 ### SB 1.5.24
 
-> ते मय्यपेताखिलचापलेऽर्भके दान्तेऽधृतक्रीडनकेऽनुवर्तिनि ।
+> ते मय्यपेताखिलचापलेऽर्भके दान्तेऽधृतक्रीडनकेऽनुवर्तिनि ।\
 > चक्रुः कृपां यद्यपि तुल्यदर्शनाः शुश्रूषमाणे मुनयोऽल्पभाषिणि ॥२४॥
 
-> te mayy apetākhila-cāpale 'rbhake
-> dānte 'dhṛta-krīḍanake 'nuvartini
-> cakruḥ kṛpāṁ yadyapi tulya-darśanāḥ
+> te mayy apetākhila-cāpale 'rbhake\
+> dānte 'dhṛta-krīḍanake 'nuvartini\
+> cakruḥ kṛpāṁ yadyapi tulya-darśanāḥ\
 > śuśrūṣamāṇe munayo 'lpa-bhāṣiṇi
 
 *te*—ellos; *mayi*—a mí; *apeta*—no habiéndose sometido; *akhila*—toda clase de; *cāpale*—propensiones; *arbhake*—a un niño; *dānte*—habiendo controlado los sentidos; *adhṛta-krīḍanake*—sin estar acostumbrado a hábitos de juego; *anuvartini*—obediente; *cakruḥ*—concedieron; *kṛpām*—misericordia sin causa; *yadyapi*—aunque; *tulya-darśanāḥ*—imparciales por naturaleza; *śuśrūṣamāṇe*—a los fieles; *munayaḥ*—los *munis* seguidores del *Vedānta*; *alpa-bhāṣiṇi*—aquel que no habla más de lo necesario.

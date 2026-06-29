@@ -1,9 +1,9 @@
 ### CC Madhya 20.292
 
-> হিরণ্যগর্ভ-অন্তর্যামী — গর্ভোদকশায়ী ।
+> হিরণ্যগর্ভ-অন্তর্যামী — গর্ভোদকশায়ী ।\
 > ‘সহস্রশীর্ষাদি’ করি’ বেদে যাঁরে গাই ॥২৯২॥
 
-> hiraṇyagarbha-antaryāmī—garbhodakaśāyī
+> hiraṇyagarbha-antaryāmī—garbhodakaśāyī\
 > 'sahasra-śīrṣādi' kari' vede yāṅre gāi
 
 *hiraṇyagarbha*—named Hiraṇyagarbha; *antaryāmī*—the Supersoul; *garbha-udaka-śāyī*—Lord Garbhodakaśāyī Viṣṇu; *sahasra-śīrṣā-ādi kari'*—by the Vedic hymns beginning with sahasra-śīrṣā (*Ṛg Veda-saṁhitā* 10.90); *vede yāṅre ga-i*—unto whom the Vedas pray.

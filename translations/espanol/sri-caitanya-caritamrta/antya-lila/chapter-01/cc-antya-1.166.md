@@ -1,13 +1,13 @@
 ### CC Antya 1.166
 
-> জঙ্ঘাধস্তটসঙ্গিদক্ষিণপদং কিঞ্চিদ্বিভুগ্নত্রিকং
-> সাচিস্তম্ভিতকন্ধরং সখি তিরঃসঞ্চারিনেত্রাঞ্চলম্ ।
-> বংশীং কুট্মলিতে দধানমধরে লোলাঙ্গুলীসঙ্গতাং
+> জঙ্ঘাধস্তটসঙ্গিদক্ষিণপদং কিঞ্চিদ্বিভুগ্নত্রিকং\
+> সাচিস্তম্ভিতকন্ধরং সখি তিরঃসঞ্চারিনেত্রাঞ্চলম্ ।\
+> বংশীং কুট্মলিতে দধানমধরে লোলাঙ্গুলীসঙ্গতাং\
 > রিঙ্গদ্ভ্রূভ্রমরং বরাঙ্গি পরমানন্দং পুরঃ স্বীকুরু ॥১৬৬॥
 
-> jaṅghādhas-taṭa-saṅgi-dakṣiṇa-padaṁ kiñcid vibhugna-trikam-
-> sāci-stambhita-kandharaṁ sakhi tiraḥ-sañcāri-netrāñcalam
-> vaṁśīṁ kuṭmalite dadhānam adhare lolāṅgulī-saṅgatāṁ
+> jaṅghādhas-taṭa-saṅgi-dakṣiṇa-padaṁ kiñcid vibhugna-trikam-\
+> sāci-stambhita-kandharaṁ sakhi tiraḥ-sañcāri-netrāñcalam\
+> vaṁśīṁ kuṭmalite dadhānam adhare lolāṅgulī-saṅgatāṁ\
 > riṅgad-bhrū-bhramaraṁ varāṅgi paramānandaṁ puraḥ svīkuru
 
 *jaṅghā*—de la espinilla; *adhaḥ-taṭa*—en el borde inferior; *saṅgi*—conectado; *dakṣiṇa-padam*—el pie derecho; *kiñcit*—ligeramente; *vibhugna-trikam*—la parte media del cuerpo curvada en tres lugares; *sāci-stumbhita-kandharam*—cuyo cuello está fijo en una curva hacia el costado; *sakhi*—¡oh, amiga!; *tiraḥ-sañcāri*—errando de lado a lado; *netra-añcalam*—cuyos bordes de los ojos; *vaṁśīm*—flauta; *kuṭmalite*—cerrados como un capullo de flor; *dadhānam*—colocando; *adhare*—sobre los labios; *lolā-aṅgulī-saṅgatām*—unida con los dedos moviéndose de aquí para allá; *riṅgat-bhrū*—cuyas cejas se mueven lentamente; *bhramaram*—como abejorros; *varāṅgi*—¡oh, la más hermosa!; *paramānandam*—la personalidad de la bienaventuranza; *puraḥ*—situado enfrente; *svī-kuru*—simplemente acepta.

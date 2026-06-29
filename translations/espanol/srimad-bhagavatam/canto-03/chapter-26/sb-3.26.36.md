@@ -1,11 +1,11 @@
 ### SB 3.26.36
 
-> मृदुत्वं कठिनत्वं च शैत्यमुष्णत्वमेव च ।
+> मृदुत्वं कठिनत्वं च शैत्यमुष्णत्वमेव च ।\
 > एतत्स्पर्शस्य स्पर्शत्वं तन्मात्रत्वं नभस्वतः ॥३६॥
 
-> mṛdutvaṁ kaṭhinatvaṁ ca
-> śaityam uṣṇatvam eva ca
-> etat sparśasya sparśatvaṁ
+> mṛdutvaṁ kaṭhinatvaṁ ca\
+> śaityam uṣṇatvam eva ca\
+> etat sparśasya sparśatvaṁ\
 > tan-mātratvaṁ nabhasvataḥ
 
 *mṛdutvam*—blandura; *kaṭhinatvam*—dureza; *ca*—y; *śaityam*—frío; *uṣṇatvam*—calor; *eva*—también; *ca*—y; *etat*—esto; *sparśasya*—del tacto como elemento sutil; *sparśatvam*—los atributos diferenciadores; *tat-mātratvam*—la forma sutil; *nabhasvataḥ*—de aire.

@@ -1,8 +1,8 @@
 ### SB 2.2.6
 
-> evaṁ sva-citte svata eva siddha
-> ātmā priyo 'rtho bhagavān anantaḥ
-> taṁ nirvṛto niyatārtho bhajeta
+> evaṁ sva-citte svata eva siddha\
+> ātmā priyo 'rtho bhagavān anantaḥ\
+> taṁ nirvṛto niyatārtho bhajeta\
 > saṁsāra-hetūparamaś ca yatra
 
 *evam*—assim; *sva-citte*—no próprio coração; *svataḥ*—por Sua onipotência; *eva*—certamente; *siddhaḥ*—plenamente representado; *ātmā*—a Superalma; *priyaḥ*—muito querido; *arthaḥ*—substância; *bhagavān*—a Suprema Personalidade de Deus; *anantaḥ*—o eterno ilimitado; *tam*—a Ele; *nirvṛtaḥ*—estando desapegado do mundo; *niyata*—permanente; *arthaḥ*—o ganho supremo; *bhajeta*—deve-se adorar; *saṁsāra-hetu*—a causa do estado condicionado de existência; *uparamaḥ*—cessação; *ca*—certamente; *yatra*—na qual.

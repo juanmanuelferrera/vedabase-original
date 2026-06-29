@@ -1,18 +1,18 @@
 ### SB 9.24.3-4
 
-> क्रथस्य कुन्तिः पुत्रोऽभूद्वृष्णिस्तस्याथ निर्वृतिः
-> ततो दशार्हो नाम्नाभूत्तस्य व्योमः सुतस्ततः ॥३॥
-> जीमूतो विकृतिस्तस्य यस्य भीमरथः सुतः
+> क्रथस्य कुन्तिः पुत्रोऽभूद्वृष्णिस्तस्याथ निर्वृतिः\
+> ततो दशार्हो नाम्नाभूत्तस्य व्योमः सुतस्ततः ॥३॥\
+> जीमूतो विकृतिस्तस्य यस्य भीमरथः सुतः\
 > ततो नवरथः पुत्रो जातो दशरथस्ततः ॥४॥
 
-> krathasya kuntiḥ putro 'bhūd
-> vṛṣṇis tasyātha nirvṛtiḥ
-> tato daśārho nāmnābhūt
+> krathasya kuntiḥ putro 'bhūd\
+> vṛṣṇis tasyātha nirvṛtiḥ\
+> tato daśārho nāmnābhūt\
 > tasya vyomaḥ sutas tataḥ
 
-> jīmūto vikṛtis tasya
-> yasya bhīmarathaḥ sutaḥ
-> tato navarathaḥ putro
+> jīmūto vikṛtis tasya\
+> yasya bhīmarathaḥ sutaḥ\
+> tato navarathaḥ putro\
 > jāto daśarathas tataḥ
 
 *krathasya*—of Kratha; *kuntiḥ*—Kunti; *putraḥ*—a son; *abhūt*—was born; *vṛṣṇiḥ*—Vṛṣṇi; *tasya*—his; *atha*—then; *nirvṛtiḥ*—Nirvṛti; *tataḥ*—from him; *daśārhaḥ*—Daśārha; *nāmnā*—by name; *abhūt*—was born; *tasya*—of him; *vyomaḥ*—Vyoma; *sutaḥ*—a son; *tataḥ*—from him; *jīmūtaḥ*—Jīmūta; *vikṛtiḥ*—Vikṛti; *tasya*—his (Jīmūta's son); *yasya*—of whom (Vikṛti); *bhīmarathaḥ*—Bhīmaratha; *sutaḥ*—a son; *tataḥ*—from him (Bhīmaratha); *navarathaḥ*—Navaratha; *putraḥ*—a son; *jātaḥ*—was born; *daśarathaḥ*—Daśaratha; *tataḥ*—from him.

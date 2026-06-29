@@ -1,9 +1,9 @@
 ### CC Antya 16.54
 
-> তবে প্রভু করিলা জগন্নাথ দরশন ।
+> তবে প্রভু করিলা জগন্নাথ দরশন ।\
 > ঘরে আসি’ করিলা মধ্যাহ্ন ভোজন ॥৫৪॥
 
-> tabe prabhu karilā jagannātha daraśana
+> tabe prabhu karilā jagannātha daraśana\
 > ghare āsi' madhyāhna kari' karila bhojana
 
 *tabe*—after this; *prabhu*—Śrī Caitanya Mahāprabhu; *karilā*—did; *jagannātha daraśana*—visiting Lord Jagannātha; *ghare āsi'*—after returning home; *madhyāhna kari'*—after performing His noon activities; *karila bhojana*—took lunch.

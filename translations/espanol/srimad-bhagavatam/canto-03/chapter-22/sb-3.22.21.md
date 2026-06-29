@@ -1,13 +1,13 @@
 ### SB 3.22.21
 
-> मैत्रेय उवाच
-> स उग्रधन्वन्नियदेवाबभाषे आसीच्च तूष्णीमरविन्दनाभम् ।
+> मैत्रेय उवाच\
+> स उग्रधन्वन्नियदेवाबभाषे आसीच्च तूष्णीमरविन्दनाभम् ।\
 > धियोपगृह्णन्स्मितशोभितेन मुखेन चेतो लुलुभे देवहूत्याः ॥२१॥
 
-> maitreya uvāca
-> sa ugra-dhanvann iyad evābabhāṣe
-> āsīc ca tūṣṇīm aravinda-nābham
-> dhiyopagṛhṇan smita-śobhitena
+> maitreya uvāca\
+> sa ugra-dhanvann iyad evābabhāṣe\
+> āsīc ca tūṣṇīm aravinda-nābham\
+> dhiyopagṛhṇan smita-śobhitena\
 > mukhena ceto lulubhe devahūtyāḥ
 
 *maitreyaḥ*—el gran sabio Maitreya; *uvāca*—dijo; *saḥ*—él (Kardama); *ugra-dhanvan*—¡oh, gran guerrero Vidura!; *iyat*—esto; *eva*—solamente; *ābabhāṣe*—habló; *āsīt*—se quedó; *ca*—y; *tūṣṇīm*—silencioso; *aravinda-nābham*—el Señor Viṣṇu (de ombligo adornado por un loto); *dhiyā*—con el pensamiento; *upagṛhṇan*—sobrecogido; *smita-śobhitena*—embellecido por su sonrisa; *mukhena*—con su rostro; *cetaḥ*—la mente; *lulubhe*—quedó cautivada; *devahūtyāḥ*—de Devahūti.

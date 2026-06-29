@@ -1,13 +1,13 @@
 ### SB 7.9.41
 
-> एवं स्वकर्मपतितं भववैतरण्याम
-> अन्योन्यजन्ममरणाशनभीतभीतम
-> पश्यन्जनं स्वपरविग्रहवैरमैत्रं
+> एवं स्वकर्मपतितं भववैतरण्याम\
+> अन्योन्यजन्ममरणाशनभीतभीतम\
+> पश्यन्जनं स्वपरविग्रहवैरमैत्रं\
 > हन्तेति पारचर पीपृहि मूढमद्य ॥४१॥
 
-> evaṁ sva-karma-patitaṁ bhava-vaitaraṇyām
-> anyonya-janma-maraṇāśana-bhīta-bhītam
-> paśyañ janaṁ sva-para-vigraha-vaira-maitraṁ
+> evaṁ sva-karma-patitaṁ bhava-vaitaraṇyām\
+> anyonya-janma-maraṇāśana-bhīta-bhītam\
+> paśyañ janaṁ sva-para-vigraha-vaira-maitraṁ\
 > hanteti pāracara pīpṛhi mūḍham adya
 
 *evam*—de este modo; *sva-karma-patitam*—caídos debido a las reacciones de nuestras propias actividades materiales; *bhava*—comparado con el mundo de la nesciencia (nacimiento, muerte, vejez y enfermedades); *vaitaraṇyām*—en el río Vaitaraṇī (que discurre ante las puertas de Yamarāja, el superintendente de la muerte); *anyaḥ anya*—uno tras otro; *janma*—nacimiento; *maraṇa*—muerte; *āśana*—distintos tipos de comida; *bhīta-bhītam*—excesivamente temeroso; *paśyan*—ver; *janam*—a la entidad viviente; *sva*—el propio; *para*—de otros; *vigraha*—en el cuerpo; *vaira-maitram*—haciendo consideraciones de amistad y enemistad; *hanta*—¡ay!; *iti*—de este modo; *pāracara*—¡oh, Tú, que estás en la otra orilla del río de la muerte!; *pīpṛhi*—por favor, sálvanos a todos nosotros (de esta peligrosa situación); *mūḍham*—somos todos necios, carentes de conocimiento espiritual; *adya*—hoy (debido a Tu presencia personal aquí).

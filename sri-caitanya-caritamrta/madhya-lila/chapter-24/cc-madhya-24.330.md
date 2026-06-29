@@ -1,9 +1,9 @@
 ### CC Madhya 24.330
 
-> গুরুলক্ষণ, শিষ্যলক্ষণ, দোঁহার পরীক্ষণ ।
+> গুরুলক্ষণ, শিষ্যলক্ষণ, দোঁহার পরীক্ষণ ।\
 > সেব্য — ভগবান্, সর্বমন্ত্র-বিচারণ ॥৩৩০॥
 
-> guru-lakṣaṇa, śiṣya-lakṣaṇa, doṅhāra parīkṣaṇa
+> guru-lakṣaṇa, śiṣya-lakṣaṇa, doṅhāra parīkṣaṇa\
 > sevya—bhagavān, sarva-mantra-vicāraṇa
 
 *guru-lakṣaṇa*—the symptoms of a bona fide spiritual master; *śiṣya-lakṣaṇa*—the symptoms of a bona fide disciple; *doṅhāra*—of both; *parīkṣaṇa*—the testing; *sevya-bhagavān*—the Supreme Personality of Godhead is worshipable; *sarva-mantra-vicāraṇa*—consideration of the different types of *mantras.*

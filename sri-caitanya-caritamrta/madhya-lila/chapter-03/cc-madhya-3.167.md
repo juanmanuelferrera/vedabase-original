@@ -1,9 +1,9 @@
 ### CC Madhya 3.167
 
-> এইমত শচীদেবী বাৎসল্যে বিহ্বল ।
+> এইমত শচীদেবী বাৎসল্যে বিহ্বল ।\
 > হর্ষ-ভয়-দৈন্যভাবে হইল বিকল ॥১৬৭॥
 
-> ei-mata śacīdevī vātsalye vihvala
+> ei-mata śacīdevī vātsalye vihvala\
 > harṣa-bhaya-dainya-bhāve ha-ila vikala
 
 *ei-mata*—in this way; *śacī-devī*—mother Śacī; *vātsalye*—in parental affection; *vihvala*—overwhelmed; *harṣa*—happiness; *bhaya*—fear; *dainya-bhāve*—and in humility; *ha-ila*—became; *vikala*—transformed.

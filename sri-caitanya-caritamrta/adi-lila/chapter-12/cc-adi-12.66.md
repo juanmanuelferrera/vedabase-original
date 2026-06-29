@@ -1,9 +1,9 @@
 ### CC Adi 12.66
 
-> মালি-দত্ত জল অদ্বৈত-স্কন্ধ যোগায় ।
+> মালি-দত্ত জল অদ্বৈত-স্কন্ধ যোগায় ।\
 > সেই জলে জীয়ে শাখা, — ফুল-ফল পায় ॥৬৬॥
 
-> māli-datta jala advaita-skandha yogāya
+> māli-datta jala advaita-skandha yogāya\
 > sei jale jīye śākhā,—phula-phala pāya
 
 *māli-datta*—given by the gardener; *jala*—water; *advaita-skandha*—the branch known as Advaita Ācārya; *yogāya*—supplies; *sei*—by that; *jale*—water; *jīye*—lives; *śākhā*—branches; *phula-phala*—fruits and flowers; *pāya*—grow.

@@ -1,11 +1,11 @@
 ### SB 1.5.12
 
-> नैष्कर्म्यमप्यच्युतभाववर्जितं न शोभते ज्ञानमलं निरञ्जनम् ।
+> नैष्कर्म्यमप्यच्युतभाववर्जितं न शोभते ज्ञानमलं निरञ्जनम् ।\
 > कुतः पुनः शश्वदभद्रमीश्वरे न चार्पितं कर्म यदप्यकारणम् ॥१२॥
 
-> naiṣkarmyam apy acyuta-bhāva-varjitaṁ
-> na śobhate jñānam alaṁ nirañjanam
-> kutaḥ punaḥ śaśvad abhadram īśvare
+> naiṣkarmyam apy acyuta-bhāva-varjitaṁ\
+> na śobhate jñānam alaṁ nirañjanam\
+> kutaḥ punaḥ śaśvad abhadram īśvare\
 > na cārpitaṁ karma yad apy akāraṇam
 
 *naiṣkarmyam*—autorrealización, estando liberado de las reacciones del trabajo fruitivo; *api*—a pesar de; *acyuta*—el infalible Señor; *bhāva*—concepto; *varjitam*—desprovisto de; *na*—no; *śobhate*—se ve bien; *jñānam*—conocimiento trascendental; *alam*—luego; *nirañjanam*—libre de designaciones; *kutaḥ*—dónde está; *punaḥ*—de nuevo; *śaśvat*—siempre; *abhadram*—desagradable; *īśvare*—al Señor; *na*—no; *ca*—y; *arpitam*—ofrecido; *karma*—trabajo fruitivo; *yat api*—que es; *akāraṇam*—no fruitivo.

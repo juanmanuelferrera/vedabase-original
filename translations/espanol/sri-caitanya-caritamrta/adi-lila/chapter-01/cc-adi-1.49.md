@@ -1,11 +1,11 @@
 ### CC Adi 1.49
 
-> তেষাং সততযুক্তানাং ভজতাং প্রীতিপূর্বকম ।
+> তেষাং সততযুক্তানাং ভজতাং প্রীতিপূর্বকম ।\
 > দদামি বুদ্ধিযোগং তং যেন মামুপযান্তি তে ॥৪৯॥
 
-> teṣāṁ satata-yuktānāṁ
-> bhajatāṁ prīti-pūrvakam
-> dadāmi buddhi-yogaṁ taṁ
+> teṣāṁ satata-yuktānāṁ\
+> bhajatāṁ prīti-pūrvakam\
+> dadāmi buddhi-yogaṁ taṁ\
 > yena mām upayānti te
 
 *teṣām*—a ellos; *satata-yuktānām*—siempre ocupados; *bhajatām*—en prestar servicio devocional; *prīti-pūrvakam*—con éxtasis amoroso; *dadāmi*—Yo doy; *buddhi-yogam*—inteligencia verdadera; *tam*—esa; *yena*—por la cual; *mām*—a Mí; *upayānti*—vienen; *te*—ellos.

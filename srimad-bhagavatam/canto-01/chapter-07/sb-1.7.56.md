@@ -1,11 +1,11 @@
 ### SB 1.7.56
 
-> विमुच्य रशनाबद्धं बालहत्याहतप्रभम् ।
+> विमुच्य रशनाबद्धं बालहत्याहतप्रभम् ।\
 > तेजसा मणिना हीनं शिबिरान्निरयापयत् ॥५६॥
 
-> vimucya raśanā-baddhaṁ
-> bāla-hatyā-hata-prabham
-> tejasā maṇinā hīnaṁ
+> vimucya raśanā-baddhaṁ\
+> bāla-hatyā-hata-prabham\
+> tejasā maṇinā hīnaṁ\
 > śibirān nirayāpayat
 
 *vimucya*—after releasing him; *raśanā-baddham*—from the bondage of ropes; *bāla-hatyā*—infanticide; *hata-prabham*—loss of bodily luster; *tejasā*—of the strength of; *maṇinā*—by the jewel; *hīnam*—being deprived of; *śibirāt*—from the camp; *nirayāpayat*—drove him out.

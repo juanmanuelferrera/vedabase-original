@@ -1,11 +1,11 @@
 ### CC Madhya 25.123
 
-> এতাবদেব জিজ্ঞাস্যং তত্ত্বজিজ্ঞাসুনাত্মনঃ ।
+> এতাবদেব জিজ্ঞাস্যং তত্ত্বজিজ্ঞাসুনাত্মনঃ ।\
 > অন্বয়-ব্যতিরেকাভ্যাং যৎ স্যাৎ সর্বত্র সর্বদা ॥১২৩॥
 
-> etāvad eva jijñāsyaṁ
-> tattva-jijñāsunātmanaḥ
-> anvaya-vyatirekābhyāṁ
+> etāvad eva jijñāsyaṁ\
+> tattva-jijñāsunātmanaḥ\
+> anvaya-vyatirekābhyāṁ\
 > yat syāt sarvatra sarvadā
 
 *etāvat*—up to this; *eva*—certainly; *jijñāsyam*—to be inquired about; *tattva*—of the Absolute Truth; *jijñāsunā*—by the student; *ātmanaḥ*—of the self; *anvaya*—directly; *vyatirekābhyām*—and indirectly; *yat*—whatever; *syāt*—it may be; *sarvatra*—everywhere; *sarvadā*—always.

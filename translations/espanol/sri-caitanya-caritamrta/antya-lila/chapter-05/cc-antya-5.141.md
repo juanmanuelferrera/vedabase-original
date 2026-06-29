@@ -1,9 +1,9 @@
 ### CC Antya 5.141
 
-> বন্দ্যাভাবে ‘অনম্র’ — ‘স্তব্ধ’-শব্দে কয় ।
+> বন্দ্যাভাবে ‘অনম্র’ — ‘স্তব্ধ’-শব্দে কয় ।\
 > যাহা হৈতে অন্য ‘বিজ্ঞ’ নাহি — সে ‘অজ্ঞ’ হয় ॥১৪১॥
 
-> vandyābhāve 'anamra'--'stabdha'-śabde kaya
+> vandyābhāve 'anamra'--'stabdha'-śabde kaya\
 > yāhā haite anya 'vijña' nāhi--se 'ajña' haya
 
 *vandya-abhāve*—porque no hay nadie más a quien ofrecer reverencias; *anamra*—aquel que no ofrece reverencias; *stabdha-śadbe*—con la palabra stabdha («insolente»); *kaya*—dice; *yāhā haite*—de quien; *anya*—otro; *vijña*—erudito; *nāhi*—no hay; *se*—Él; *ajña*—aquel para quien nada es desconocido; *haya*—es.

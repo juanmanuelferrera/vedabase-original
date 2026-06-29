@@ -1,11 +1,11 @@
 ### Bg 3.16
 
-> एवं प्रवर्तितं चक्रं नानुवर्तयतीह यः ।
+> एवं प्रवर्तितं चक्रं नानुवर्तयतीह यः ।\
 > अघायुरिन्द्रियारामो मोघं पार्थ स जीवति ॥१६॥
 
-> evaṁ pravartitaṁ cakraṁ
-> nānuvartayatīha yaḥ
-> aghāyur indriyārāmo
+> evaṁ pravartitaṁ cakraṁ\
+> nānuvartayatīha yaḥ\
+> aghāyur indriyārāmo\
 > moghaṁ pārtha sa jīvati
 
 *evam*—thus prescribed; *pravartitam*—established by the *Vedas*; *cakram*—cycle; *na*—does not; *anuvartayati*—adopt; *iha*—in this life; *yaḥ*—one who; *aghāyuḥ*—life full of sins; *indriya-ārāmaḥ*—satisfied in sense gratification; *mogham*—useless; *pārtha*—O son of Pṛthā (Arjuna); *saḥ*—one who does so; *jīvati*—lives.

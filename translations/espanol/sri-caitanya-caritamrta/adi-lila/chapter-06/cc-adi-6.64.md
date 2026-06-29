@@ -1,11 +1,11 @@
 ### CC Adi 6.64
 
-> পাদসংবাহনং চক্রুঃ কেচিত্তস্য মহাত্মনঃ ।
+> পাদসংবাহনং চক্রুঃ কেচিত্তস্য মহাত্মনঃ ।\
 > অপরে হতপাপ্মানো ব্যজনৈঃ সমবীজয়ন্ ॥৬৪॥
 
-> pāda-saṁvāhanaṁ cakruḥ
-> kecit tasya mahātmanaḥ
-> apare hata-pāpmāno
+> pāda-saṁvāhanaṁ cakruḥ\
+> kecit tasya mahātmanaḥ\
+> apare hata-pāpmāno\
 > vyajanaiḥ samavījayan
 
 *pāda-saṁvāhanam*—masajear los pies; *cakruḥ*—realizaron; *kecit*—algunos de ellos; *tasya*—del Señor Kṛṣṇa; *mahā-ātmanaḥ*—de la Suprema Personalidad de Dios; *apare*—otros; *hata*—destruidas; *pāpmānaḥ*—cuyas reacciones pecaminosas; *vyajanaiḥ*—con abanicos de mano; *samavījayan*—abanicaron muy placenteramente.

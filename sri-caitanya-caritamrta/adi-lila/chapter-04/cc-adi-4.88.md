@@ -1,11 +1,11 @@
 ### CC Adi 4.88
 
-> অনয়ারাধিতো নূনং ভগবান্ হরিরীশ্বরঃ ।
+> অনয়ারাধিতো নূনং ভগবান্ হরিরীশ্বরঃ ।\
 > যন্নো বিহায় গোবিন্দঃ প্রীতো যামনয়দ্রহঃ ॥৮৮॥
 
-> anayārādhito nūnaṁ
-> bhagavān harir īśvaraḥ
-> yan no vihāya govindaḥ
+> anayārādhito nūnaṁ\
+> bhagavān harir īśvaraḥ\
+> yan no vihāya govindaḥ\
 > prīto yām anayad rahaḥ
 
 *anayā*—by this one; *ārādhitaḥ*—worshiped; *nūnam*—certainly; *bhagavān*—the Supreme Personality of Godhead; *hariḥ*—Lord Kṛṣṇa; *īśvaraḥ*—the Supreme Lord; *yat*—from which; *naḥ*—us; *vihāya*—leaving aside; *govindaḥ*—Govinda; *prītaḥ*—pleased; *yām*—whom; *anayat*—lead; *rahaḥ*—to a lonely place.

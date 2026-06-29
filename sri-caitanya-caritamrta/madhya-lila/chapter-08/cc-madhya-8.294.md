@@ -2,7 +2,7 @@
 
 > তামা, কাঁসা, রূপা, সোনা, রত্নচিন্তামণি । কেহ যদি কাহাঁ পোতা পায় একখানি । ক্রমে উঠাইতে সেই উত্তম বস্তু পায় । ঐছে প্রশ্নোত্তর কৈল প্রভু-রামরায় ॥২৯৪॥
 
-> tāmā, kāṅsā, rūpā, sonā, ratna-cintāmaṇi
+> tāmā, kāṅsā, rūpā, sonā, ratna-cintāmaṇi\
 > keha yadi kāhāṅ potā pāya eka-khāni
 
 *tāmā*—copper; *kāṅsā*—bell metal; *rūpā*—silver; *sonā*—gold; *ratna-cintāmaṇi*—touchstone the basis of all metals; *keha*—somebody; *yadi*—*if*; *kāhāṅ*—somewhere; *potā*—buried; *pāya*—finds; *eka-khāni*—in one place.

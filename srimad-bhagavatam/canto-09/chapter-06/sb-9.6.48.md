@@ -1,11 +1,11 @@
 ### SB 9.6.48
 
-> एवं गृहेष्वभिरतो विषयान्विविधैः सुखैः
+> एवं गृहेष्वभिरतो विषयान्विविधैः सुखैः\
 > सेवमानो न चातुष्यदाज्यस्तोकैरिवानलः ॥४८॥
 
-> evaṁ gṛheṣv abhirato
-> viṣayān vividhaiḥ sukhaiḥ
-> sevamāno na cātuṣyad
+> evaṁ gṛheṣv abhirato\
+> viṣayān vividhaiḥ sukhaiḥ\
+> sevamāno na cātuṣyad\
 > ājya-stokair ivānalaḥ
 
 *evam*—in this way; *gṛheṣu*—in household affairs; *abhirataḥ*—being always engaged; *viṣayān*—material paraphernalia; *vividhaiḥ*—with varieties of; *sukhaiḥ*—happiness; *sevamānaḥ*—enjoying; *na*—not; *ca*—also; *atuṣyat*—satisfied him; *ājya-stokaiḥ*—by drops of fat; *iva*—like; *analaḥ*—a fire.

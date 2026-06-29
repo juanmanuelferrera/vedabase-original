@@ -1,9 +1,9 @@
 ### CC Madhya 24.316
 
-> তুমি — বক্তা ভাগবতের, তুমি জান অর্থ ।
+> তুমি — বক্তা ভাগবতের, তুমি জান অর্থ ।\
 > তোমা বিনা অন্য জানিতে নাহিক সমর্থ ।।” ॥ ৩১৬ ॥
 
-> tumi--vaktā bhāgavatera, tumi jāna artha
+> tumi--vaktā bhāgavatera, tumi jāna artha\
 > tomā vinā anya jānite nāhika samartha"
 
 *tumi*—Su Señoría; *vaktā*—el orador; *bhāgavatera*—del Śrīmad-Bhāgavatam; *tumi*—Tú; *jāna*—conoces; *artha*—el significado; *tomā vinā*—excepto Tú; *anya*—cualquier otro; *jānite*—conocer; *nāhika*—no es; *samartha*—capaz.

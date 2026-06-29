@@ -1,11 +1,11 @@
 ### SB 8.16.2
 
-> एकदा कश्यपस्तस्या आश्रमं भगवानगात
+> एकदा कश्यपस्तस्या आश्रमं भगवानगात\
 > निरुत्सवं निरानन्दं समाधेर्विरतश्चिरात ॥२॥
 
-> ekadā kaśyapas tasyā
-> āśramaṁ bhagavān agāt
-> nirutsavaṁ nirānandaṁ
+> ekadā kaśyapas tasyā\
+> āśramaṁ bhagavān agāt\
+> nirutsavaṁ nirānandaṁ\
 > samādher virataś cirāt
 
 *ekadā*—one day; *kaśyapaḥ*—the great sage Kaśyapa Muni; *tasyāḥ*—of Aditi; *āśramam*—to the shelter; *bhagavān*—greatly powerful; *agāt*—went; *nirutsavam*—without enthusiasm; *nirānandam*—without jubilation; *samādheḥ*—his trance; *virataḥ*—stopping; *cirāt*—after a long time.

@@ -1,9 +1,9 @@
 ### CC Antya 16.90
 
-> মালা পরাঞা প্রসাদ দিল প্রভুর হাতে ।
+> মালা পরাঞা প্রসাদ দিল প্রভুর হাতে ।\
 > আস্বাদ দূরে রহু, যার গন্ধে মন মাতে ॥৯০॥
 
-> mālā parāñā prasāda dila prabhura hāte
+> mālā parāñā prasāda dila prabhura hāte\
 > āsvāda dūre rahu, yāra gandhe mana māte
 
 *mālā parāñā*—after garlanding; *prasāda*—the remnants of Lord Jagannātha's food; *dila*—delivered; *prabhura hāte*—in the hand of Śrī Caitanya Mahāprabhu; *āsvāda*—tasting; *dūre rahu*—what to speak of; *yāra*—of which; *gandhe*—by the aroma; *mana*—mind; *māte*—becomes maddened.

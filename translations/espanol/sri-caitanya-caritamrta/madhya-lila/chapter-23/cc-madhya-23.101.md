@@ -1,9 +1,9 @@
 ### CC Madhya 23.101
 
-> সংক্ষেপে কহিলুঁ এই ‘প্রয়োজন’-বিবরণ ।
+> সংক্ষেপে কহিলুঁ এই ‘প্রয়োজন’-বিবরণ ।\
 > পঞ্চম-পুরুষার্থ — এই ‘কৃষ্ণপ্রেম’-ধন ॥১০১॥
 
-> saṅkṣepe kahiluṅ ei 'prayojana'-vivaraṇa
+> saṅkṣepe kahiluṅ ei 'prayojana'-vivaraṇa\
 > pañcama-puruṣārtha--ei 'kṛṣṇa-prema'-dhana
 
 *saṅkṣepe kahiluṅ*—brevemente he hablado; *ei*—esta; *prayojana-vivaraṇa*—descripción del logro supremo; *pañcama-puruṣa-artha*—la quinta y suprema meta de la vida; *ei*—este; *kṛṣṇa-prema-dhana*—el tesoro del amor por Kṛṣṇa.

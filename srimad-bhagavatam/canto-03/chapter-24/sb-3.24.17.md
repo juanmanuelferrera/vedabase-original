@@ -1,11 +1,11 @@
 ### SB 3.24.17
 
-> ज्ञानविज्ञानयोगेन कर्मणामुद्धरन्जटाः ।
+> ज्ञानविज्ञानयोगेन कर्मणामुद्धरन्जटाः ।\
 > हिरण्यकेशः पद्माक्षः पद्ममुद्रापदाम्बुजः ॥१७॥
 
-> jñāna-vijñāna-yogena
-> karmaṇām uddharan jaṭāḥ
-> hiraṇya-keśaḥ padmākṣaḥ
+> jñāna-vijñāna-yogena\
+> karmaṇām uddharan jaṭāḥ\
+> hiraṇya-keśaḥ padmākṣaḥ\
 > padma-mudrā-padāmbujaḥ
 
 *jñāna*—of scriptural knowledge; *vijñāna*—and application; *yogena*—by means of mystic *yoga*; *karmaṇām*—of material actions; *uddharan*—uprooting; *jaṭāḥ*—the roots; *hiraṇya-keśaḥ*—golden hair; *padma-akṣaḥ*—lotus-eyed; *padma-mudrā*—marked with the sign of the lotus; *pada-ambujaḥ*—having lotus feet.

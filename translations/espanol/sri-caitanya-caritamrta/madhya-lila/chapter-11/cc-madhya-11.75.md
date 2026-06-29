@@ -1,9 +1,9 @@
 ### CC Madhya 11.75
 
-> প্রথমেতে মহাপ্রভু পাঠাইলা দুঁহারে ৷
+> প্রথমেতে মহাপ্রভু পাঠাইলা দুঁহারে ৷\
 > রাজা কহে, এই দুই কোন্ চিনাহ আমারে ৷৷ ৭৫ ৷৷ ॥৭৫॥
 
-> prathamete mahāprabhu pāṭhāilā duṅhāre
+> prathamete mahāprabhu pāṭhāilā duṅhāre\
 > rājā kahe, ei dui kon cināha āmāre
 
 *prathamete*—primero; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *pāṭhāilā*—envió; *duṅhāre*—a los dos; *rājā kahe*—el rey dijo; *ei dui*—estos dos; *kon*—quiénes son; *cināha*—identifícamelos por favor; *āmāre*—a mí.

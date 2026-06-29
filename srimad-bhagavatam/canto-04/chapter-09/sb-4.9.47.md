@@ -1,11 +1,11 @@
 ### SB 4.9.47
 
-> यस्य प्रसन्नो भगवान्गुणैर्मैत्र्यादिभिर्हरिः ।
+> यस्य प्रसन्नो भगवान्गुणैर्मैत्र्यादिभिर्हरिः ।\
 > तस्मै नमन्ति भूतानि निम्नमाप इव स्वयम् ॥४७॥
 
-> yasya prasanno bhagavān
-> guṇair maitry-ādibhir hariḥ
-> tasmai namanti bhūtāni
+> yasya prasanno bhagavān\
+> guṇair maitry-ādibhir hariḥ\
+> tasmai namanti bhūtāni\
 > nimnam āpa iva svayam
 
 *yasya*—anyone with whom; *prasannaḥ*—is pleased; *bhagavān*—the Personality of Godhead; *guṇaiḥ*—by qualities; *maitrī-ādibhiḥ*—by friendship, etc.; *hariḥ*—Lord Hari; *tasmai*—unto him; *namanti*—offer respect; *bhūtāni*—all living entities; *nimnam*—to low ground; *āpaḥ*—water; *iva*—just as; *svayam*—automatically.

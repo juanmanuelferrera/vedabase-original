@@ -1,9 +1,9 @@
 ### CC Madhya 24.282
 
-> এই ত’ কহিলুঁ তোমায় ব্যাধের আখ্যান ।
+> এই ত’ কহিলুঁ তোমায় ব্যাধের আখ্যান ।\
 > যা শুনিলে হয় সাধুসঙ্গ-প্রভাব-জ্ঞান ॥২৮২॥
 
-> ei ta' kahiluṅ tomāya vyādhera ākhyāna
+> ei ta' kahiluṅ tomāya vyādhera ākhyāna\
 > yā śunile haya sādhu-saṅga-prabhāva-jñāna
 
 *ei ta' kahiluṅ*—thus I have narrated; *tomāya*—unto you; *vyādhera ākhyāna*—the story of the hunter; *yā śunile*—hearing which; *haya*—there is; *sādhu-saṅga*—of the association of devotees; *prabhāva*—of the influence; *jñāna*—knowledge.

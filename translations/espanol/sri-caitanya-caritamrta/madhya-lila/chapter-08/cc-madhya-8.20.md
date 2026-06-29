@@ -1,9 +1,9 @@
 ### CC Madhya 8.20
 
-> উঠি’ প্রভু কহে, — উঠ, কহ ‘কৃষ্ণ’ ‘কৃষ্ণ’ ৷
+> উঠি’ প্রভু কহে, — উঠ, কহ ‘কৃষ্ণ’ ‘কৃষ্ণ’ ৷\
 > তারে আলিঙ্গিতে প্রভুর হৃদয় সতৃষ্ণ ৷৷ ২০ ৷৷ ॥২০॥
 
-> uṭhi' prabhu kahe,--ūṭha, kaha 'kṛṣṇa' 'kṛṣṇa'
+> uṭhi' prabhu kahe,--ūṭha, kaha 'kṛṣṇa' 'kṛṣṇa'\
 > tāre āliṅgite prabhura hṛdaya satṛṣṇa
 
 *uṭhi'*—poniéndose en pie; *prabhu*—el Señor; *kahe*—dijo; *uṭha*—¡levántate!; *kaha*—canta; *kṛṣṇa kṛṣṇa*—el santo nombre del Señor Kṛṣṇa; *tāre*—a él; *āliṅgite*—abrazar; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *hṛdaya*—el corazón; *sa-tṛṣṇa*—muy ansioso.

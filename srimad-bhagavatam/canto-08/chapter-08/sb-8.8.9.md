@@ -1,11 +1,11 @@
 ### SB 8.8.9
 
-> ततश्चाविरभूत्साक्षाच्छ्री रमा भगवत्परा
+> ततश्चाविरभूत्साक्षाच्छ्री रमा भगवत्परा\
 > रञ्जयन्ती दिशः कान्त्या विद्युत्सौदामनी यथा ॥९॥
 
-> tasyāṁ cakruḥ spṛhāṁ sarve
-> sasurāsura-mānavāḥ
-> rūpaudārya-vayo-varṇa-
+> tasyāṁ cakruḥ spṛhāṁ sarve\
+> sasurāsura-mānavāḥ\
+> rūpaudārya-vayo-varṇa-\
 > mahimākṣipta-cetasaḥ
 
 *tasyām*—unto her; *cakruḥ*—did; *spṛhām*—desire; *sarve*—everyone; *sa-sura-asura-mānavāḥ*—the demigods, the demons and the human beings; *rūpa-audārya*—by the exquisite beauty and bodily features; *vayaḥ*—youth; *varṇa*—complexion; *mahimā*—glories; *ākṣipta*—agitated; *cetasaḥ*—their minds.

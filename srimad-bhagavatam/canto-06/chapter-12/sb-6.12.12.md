@@ -1,11 +1,11 @@
 ### SB 6.12.12
 
-> अविद्वानेवमात्मानं मन्यतेऽनीशमीश्वरम
+> अविद्वानेवमात्मानं मन्यतेऽनीशमीश्वरम\
 > भूतैः सृजति भूतानि ग्रसते तानि तैः स्वयम ॥१२॥
 
-> avidvān evam ātmānaṁ
-> manyate 'nīśam īśvaram
-> bhūtaiḥ sṛjati bhūtāni
+> avidvān evam ātmānaṁ\
+> manyate 'nīśam īśvaram\
+> bhūtaiḥ sṛjati bhūtāni\
 > grasate tāni taiḥ svayam
 
 *avidvān*—one who is foolish, without knowledge; *evam*—thus; *ātmānam*—himself; *manyate*—considers; *anīśam*—although totally dependent on others; *īśvaram*—as the supreme controller, independent; *bhūtaiḥ*—by the living entities; *sṛjati*—He (the Lord) creates; *bhūtāni*—other living entities; *grasate*—He devours; *tāni*—them; *taiḥ*—by other living beings; *svayam*—Himself.

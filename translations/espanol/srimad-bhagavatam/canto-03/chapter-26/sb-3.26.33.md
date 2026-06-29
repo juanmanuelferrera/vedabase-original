@@ -1,11 +1,11 @@
 ### SB 3.26.33
 
-> अर्थाश्रयत्वं शब्दस्य द्रष्टुर्लिङ्गत्वमेव च ।
+> अर्थाश्रयत्वं शब्दस्य द्रष्टुर्लिङ्गत्वमेव च ।\
 > तन्मात्रत्वं च नभसो लक्षणं कवयो विदुः ॥३३॥
 
-> arthāśrayatvaṁ śabdasya
-> draṣṭur liṅgatvam eva ca
-> tan-mātratvaṁ ca nabhaso
+> arthāśrayatvaṁ śabdasya\
+> draṣṭur liṅgatvam eva ca\
+> tan-mātratvaṁ ca nabhaso\
 > lakṣaṇaṁ kavayo viduḥ
 
 *artha-āśrayatvam*—aquello que transmite el significado de un objeto; *śabdasya*—del sonido; *draṣṭuḥ*—de quien habla; *liṅgatvam*—lo que indica la presencia; *eva*—también; *ca*—y; *tat-mātratvam*—el elemento sutil; *ca*—y; *nabhasaḥ*—del éter; *lakṣaṇam*—definición; *kavayaḥ*—personas eruditas; *viduḥ*—conocen.

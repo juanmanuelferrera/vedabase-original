@@ -1,9 +1,9 @@
 ### CC Antya 9.95
 
-> একক্ষণ প্রভুর যদি পাইয়ে দরশন ।
+> একক্ষণ প্রভুর যদি পাইয়ে দরশন ।\
 > কোটিচিন্তামণি-লাভ নহে তার সম ॥৯৫॥
 
-> eka-kṣaṇa prabhura yadi pāiye daraśana
+> eka-kṣaṇa prabhura yadi pāiye daraśana\
 > koṭi-cintāmaṇi-lābha nahe tāra sama
 
 *eka-kṣaṇa*—for a moment; *prabhura*—of Śrī Caitanya Mahāprabhu; *yadi*—if; *pāiye*—I get; *daraśana*—an interview; *koṭi-cintāmaṇi-lābha*—obtaining millions of *cintāmaṇi* stones; *nahe*—is not; *tāra sama*—equal to that.

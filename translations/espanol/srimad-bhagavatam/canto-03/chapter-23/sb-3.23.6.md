@@ -1,15 +1,15 @@
 ### SB 3.23.6
 
-> कर्दम उवाच
-> तुष्टोऽहमद्य तव मानवि मानदायाः
-> शुश्रूषया परमया परया च भक्त्या ।
-> यो देहिनामयमतीव सुहृत्स देहो
+> कर्दम उवाच\
+> तुष्टोऽहमद्य तव मानवि मानदायाः\
+> शुश्रूषया परमया परया च भक्त्या ।\
+> यो देहिनामयमतीव सुहृत्स देहो\
 > नावेक्षितः समुचितः क्षपितुं मदर्थे ॥६॥
 
-> kardama uvāca
-> tuṣṭo 'ham adya tava mānavi mānadāyāḥ
-> śuśrūṣayā paramayā parayā ca bhaktyā
-> yo dehinām ayam atīva suhṛt sa deho
+> kardama uvāca\
+> tuṣṭo 'ham adya tava mānavi mānadāyāḥ\
+> śuśrūṣayā paramayā parayā ca bhaktyā\
+> yo dehinām ayam atīva suhṛt sa deho\
 > nāvekṣitaḥ samucitaḥ kṣapituṁ mad-arthe
 
 *kardamaḥ uvāca*—el gran sabio Kardama dijo; *tuṣṭaḥ*—complacido; *aham*—yo estoy; *adya*—hoy; *tava*—contigo; *mānavi*—¡oh, hija de Manu!; *māna-dāyāḥ*—que eres respetuosa; *śuśrūṣayā*—con el servicio; *paramayā*—muy excelente; *parayā*—la más elevada; *ca*—y; *bhaktyā*—con la devoción; *yaḥ*—el cual; *dehinām*—a los que habitan en un cuerpo; *ayam*—este; *atīva*—extremadamente; *suhṛt*—querido; *saḥ*—este; *dehaḥ*—cuerpo; *na*—no; *avekṣitaḥ*—preocupándote de; *samucitaḥ*—apropiadamente; *kṣapitum*—para gastar; *mat-arthe*—por mí.

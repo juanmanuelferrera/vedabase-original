@@ -1,13 +1,13 @@
 ### CC Madhya 19.1
 
-> বৃন্দাবনীয়াং রসকেলিবার্তাং
-> কালেন লুপ্তাং নিজশক্তিমুৎকঃ ।
-> সঞ্চার্য রূপে ব্যতনোৎ পুনঃ স
+> বৃন্দাবনীয়াং রসকেলিবার্তাং\
+> কালেন লুপ্তাং নিজশক্তিমুৎকঃ ।\
+> সঞ্চার্য রূপে ব্যতনোৎ পুনঃ স\
 > প্রভুর্বিধৌ প্রাগিব লোকসৃষ্টিম্ ॥১॥
 
-> vṛndāvanīyāṁ rasa-keli-vārtāṁ
-> kālena luptāṁ nija-śaktim utkaḥ
-> sañcārya rūpe vyatanot punaḥ sa
+> vṛndāvanīyāṁ rasa-keli-vārtāṁ\
+> kālena luptāṁ nija-śaktim utkaḥ\
+> sañcārya rūpe vyatanot punaḥ sa\
 > prabhur vidhau prāg iva loka-sṛṣṭim
 
 *vṛndāvanīyām*—related to Vṛndāvana; *rasa-keli-vārtām*—talks about the pastimes of Śrī Kṛṣṇa; *kālena*—with the course of time; *luptām*—lost; *nija-śaktim*—His personal potency; *utkaḥ*—being eager; *sañcārya*—infusing; *rūpe*—to Rūpa Gosvāmī; *vyatanot*—manifested; *punaḥ*—again; *saḥ*—He; *prabhuḥ*—Śrī Caitanya Mahāprabhu; *vidhau*—unto Lord Brahmā; *prāk iva*—as formerly; *loka-sṛṣṭim*—the creation of this cosmic manifestation.

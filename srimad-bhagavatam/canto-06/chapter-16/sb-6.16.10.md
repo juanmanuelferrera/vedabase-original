@@ -1,11 +1,11 @@
 ### SB 6.16.10
 
-> न ह्यस्यास्ति प्रियः कश्चिन्नाप्रियः स्वः परोऽपि वा
+> न ह्यस्यास्ति प्रियः कश्चिन्नाप्रियः स्वः परोऽपि वा\
 > एकः सर्वधियां द्रष्टा कर्तॄणां गुणदोषयोः ॥१०॥
 
-> na hy asyāsti priyaḥ kaścin
-> nāpriyaḥ svaḥ paro 'pi vā
-> ekaḥ sarva-dhiyāṁ draṣṭā
+> na hy asyāsti priyaḥ kaścin\
+> nāpriyaḥ svaḥ paro 'pi vā\
+> ekaḥ sarva-dhiyāṁ draṣṭā\
 > kartṝṇāṁ guṇa-doṣayoḥ
 
 *na*—not; *hi*—indeed; *asya*—to the living entity; *asti*—there is; *priyaḥ*—dear; *kaścit*—someone; *na*—not; *apriyaḥ*—not dear; *svaḥ*—own; *paraḥ*—other; *api*—also; *vā*—or; *ekaḥ*—the one; *sarva-dhiyām*—of the varieties of intelligence; *draṣṭā*—the seer; *kartṝṇām*—of the performers; *guṇa-doṣayoḥ*—of right and wrong activities.

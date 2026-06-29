@@ -1,11 +1,11 @@
 ### SB 9.18.33
 
-> यदुं च तुर्वसुं चैव देवयानी व्यजायत
+> यदुं च तुर्वसुं चैव देवयानी व्यजायत\
 > द्रुह्युं चानुं च पूरुं च शर्मिष्ठा वार्षपर्वणी ॥३३॥
 
-> yaduṁ ca turvasuṁ caiva
-> devayānī vyajāyata
-> druhyuṁ cānuṁ ca pūruṁ ca
+> yaduṁ ca turvasuṁ caiva\
+> devayānī vyajāyata\
+> druhyuṁ cānuṁ ca pūruṁ ca\
 > śarmiṣṭhā vārṣaparvaṇī
 
 *yadum*—Yadu; *ca*—y; *turvasum*—Turvasu; *ca eva*—así como; *devayānī*—la hija de Śukrācārya; *vyajāyata*—fue madre de; *druhyum*—Druhyu; *ca*—y; *anum*—Anu; *ca*—también; *pūrum*—Pūru; *ca*—también; *śarmiṣṭhā*—Śarmiṣṭhā; *vārṣaparvaṇī*—la hija de Vṛṣaparvā.

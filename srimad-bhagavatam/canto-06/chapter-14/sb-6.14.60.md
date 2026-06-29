@@ -1,11 +1,11 @@
 ### SB 6.14.60
 
-> तयोर्विलपतोः सर्वे दम्पत्योस्तदनुव्रताः
+> तयोर्विलपतोः सर्वे दम्पत्योस्तदनुव्रताः\
 > रुरुदुः स्म नरा नार्यः सर्वमासीदचेतनम ॥६०॥
 
-> tayor vilapatoḥ sarve
-> dampatyos tad-anuvratāḥ
-> ruruduḥ sma narā nāryaḥ
+> tayor vilapatoḥ sarve\
+> dampatyos tad-anuvratāḥ\
+> ruruduḥ sma narā nāryaḥ\
 > sarvam āsīd acetanam
 
 *tayoḥ*—while the two of them; *vilapatoḥ*—were lamenting; *sarve*—all; *dam-patyoḥ*—the King, along with his wife; *tat-anuvratāḥ*—their followers; *ruruduḥ*—cried loudly; *sma*—indeed; *narāḥ*—the male members; *nāryaḥ*—the female members; *sarvam*—the whole kingdom; *āsīt*—became; *acetanam*—almost unconscious.

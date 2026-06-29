@@ -1,14 +1,14 @@
 ### CC Antya 10.135-136
 
-> মরিচের ঝাল, আর মধুরাম্ল আর ।
-> আদা, লবণ, লেম্বু, দুগ্ধ, দধি, খণ্ডসার ॥১৩৫॥
-> শাক দুই-চারি, আর সুকুতার ঝোল ।
+> মরিচের ঝাল, আর মধুরাম্ল আর ।\
+> আদা, লবণ, লেম্বু, দুগ্ধ, দধি, খণ্ডসার ॥১৩৫॥\
+> শাক দুই-চারি, আর সুকুতার ঝোল ।\
 > নিম্ব-বার্তাকী, আর ভৃষ্ট-পটোল ॥১৩৬॥
 
-> maricera jhāla, āra madhurāmla āra
+> maricera jhāla, āra madhurāmla āra\
 > ādā, lavaṇa, lembu, dugdha, dadhi, khaṇḍa-sāra
 
-> śāka dui-cāri, āra sukutāra jhola
+> śāka dui-cāri, āra sukutāra jhola\
 > nimba-vārtākī, āra bhṛṣṭa-paṭola
 
 *maricera jhāla*—una receta picante a base de pimienta negra; *āra*—así como; *madhurāmla*—un plato agridulce; *āra*—también; *ādā*—jengibre; *lavaṇa*—platos salados; *lembu*—lima; *dugdha*—leche; *dadhi*—yogur; *khaṇḍa-sāra*—azúcar cande; *śāka dui-cāri*—de dos a cuatro variedades de espinacas; *āra*—y; *sukutāra jhola*—sopa de melón amargo; *nimba-vārtākī*—berenjena frita con hojas de *nimba*; *āra*—y; *bhṛṣṭa-paṭola*—*paṭola* frita.

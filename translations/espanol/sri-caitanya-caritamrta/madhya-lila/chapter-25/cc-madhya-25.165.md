@@ -1,9 +1,9 @@
 ### CC Madhya 25.165
 
-> সব কাশীবাসী করে নামসংকীর্তন ৷
+> সব কাশীবাসী করে নামসংকীর্তন ৷\
 > প্রেমে হাসে, কাঁদে, গায়, করয়ে নর্তন ৷৷ ১৬৫ ৷৷ ॥১৬৫॥
 
-> saba kāśī-vāsī kare nāma-saṅkīrtana
+> saba kāśī-vāsī kare nāma-saṅkīrtana\
 > preme hāse, kāṅde, gāya, karaye nartana
 
 *saba kāśī-vāsī*—todos los habitantes de Kāśī (Vārāṇasī); *kare*—realizaron; *nāma-saṅkīrtana*—canto del mantra Hare Kṛṣṇa; *preme*—en amor extático por Dios; *hāse*—reían; *kāṅde*—lloraban; *gāya*—cantaban; *karaye nartana*—y danzaban.

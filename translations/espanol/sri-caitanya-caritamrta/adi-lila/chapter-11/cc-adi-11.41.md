@@ -1,9 +1,9 @@
 ### CC Adi 11.41
 
-> মহাভাগবত-শ্রেষ্ঠ দত্ত উদ্ধারণ ।
+> মহাভাগবত-শ্রেষ্ঠ দত্ত উদ্ধারণ ।\
 > সর্বভাবে সেবে নিত্যানন্দের চরণ ॥৪১॥
 
-> mahā-bhāgavata-śreṣṭha datta uddhāraṇa
+> mahā-bhāgavata-śreṣṭha datta uddhāraṇa\
 > sarva-bhāve seve nityānandera caraṇa
 
 *mahā-bhāgavata*—gran devoto; *śreṣṭha*—principal; *datta*—el apellido Datta; *uddhāraṇa*—de nombre Uddhāraṇa; *sarva-bhāve*—en todos los aspectos; *seve*—adora; *nityānandera*—del Señor Nityānanda; *caraṇa*—los pies de loto.

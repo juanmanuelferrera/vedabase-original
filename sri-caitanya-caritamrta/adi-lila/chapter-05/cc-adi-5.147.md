@@ -1,9 +1,9 @@
 ### CC Adi 5.147
 
-> অদ্বৈত-আচার্য-গোসাঞি সাক্ষাৎ ঈশ্বর ।
+> অদ্বৈত-আচার্য-গোসাঞি সাক্ষাৎ ঈশ্বর ।\
 > প্রভু গুরু করি’ মানে, তিঁহো ত’ কিঙ্কর ॥১৪৭॥
 
-> advaita-ācārya-gosāñi sākṣāt īśvara
+> advaita-ācārya-gosāñi sākṣāt īśvara\
 > prabhu guru kari' māne, tiṅho ta' kiṅkara
 
 *advaita-ācārya*—of the name Advaita Ācārya; *gosāñi*—the Lord; *sākṣāt īśvara*—directly the Supreme Personality of Godhead; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *guru kari' māne*—accepts Him as His teacher; *tiṅho ta' kiṅkara*—but He is the servant.

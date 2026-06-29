@@ -1,9 +1,9 @@
 ### CC Adi 11.36
 
-> রাঢ়ে যাঁর জন্ম কৃষ্ণদাস দ্বিজবর ।
+> রাঢ়ে যাঁর জন্ম কৃষ্ণদাস দ্বিজবর ।\
 > শ্রীনিত্যানন্দের তেঁহো পরম কিঙ্কর ॥৩৬॥
 
-> rāḍhe yāṅra janma kṛṣṇadāsa dvijavara
+> rāḍhe yāṅra janma kṛṣṇadāsa dvijavara\
 > śrī-nityānandera teṅho parama kiṅkara
 
 *rāḍhe*—en Bengala Occidental; *yāṅra*—cuyo; *janma*—nacimiento; *kṛṣṇadāsa*—de nombre Kṛṣṇadāsa; *dvija-vara*—el mejor *brāhmaṇa*; *śrī-nityānandera*—de Nityānanda Prabhu; *teṅho*—él; *parama*—de primera clase; *kiṅkara*—sirviente.

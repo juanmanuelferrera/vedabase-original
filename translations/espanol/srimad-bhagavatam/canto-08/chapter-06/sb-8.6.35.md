@@ -1,11 +1,11 @@
 ### SB 8.6.35
 
-> निपतन्स गिरिस्तत्र बहूनमरदानवान
+> निपतन्स गिरिस्तत्र बहूनमरदानवान\
 > चूर्णयामास महता भारेण कनकाचलः ॥३५॥
 
-> nipatan sa giris tatra
-> bahūn amara-dānavān
-> cūrṇayām āsa mahatā
+> nipatan sa giris tatra\
+> bahūn amara-dānavān\
+> cūrṇayām āsa mahatā\
 > bhāreṇa kanakācalaḥ
 
 *nipatan*—al caer; *saḥ*—esa; *giriḥ*—montaña; *tatra*—allí; *bahūn*—muchos; *amara-dānavān*—semidioses y demonios; *cūrṇayām āsa*—fueron aplastados; *mahatā*—con gran; *bhāreṇa*—peso; *kanaka-acalaḥ*—la montaña Mandara, que es de oro.

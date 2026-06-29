@@ -1,11 +1,11 @@
 ### SB 8.11.40
 
-> न शुष्केण न चार्द्रेण जहार नमुचेः शिरः
+> न शुष्केण न चार्द्रेण जहार नमुचेः शिरः\
 > तं तुष्टुवुर्मुनिगणा माल्यैश्चावाकिरन्विभुम ॥४०॥
 
-> na śuṣkeṇa na cārdreṇa
-> jahāra namuceḥ śiraḥ
-> taṁ tuṣṭuvur muni-gaṇā
+> na śuṣkeṇa na cārdreṇa\
+> jahāra namuceḥ śiraḥ\
+> taṁ tuṣṭuvur muni-gaṇā\
 > mālyaiś cāvākiran vibhum
 
 *na*—ni; *śuṣkeṇa*—con medios secos; *na*—ni; *ca*—también; *ārdreṇa*—con un arma húmeda; *jahāra*—cortó; *namuceḥ*—de Namuci; *śiraḥ*—la cabeza; *tam*—a él (a Indra); *tuṣṭuvuḥ*—satisficieron; *muni-gaṇāḥ*—todos los sabios; *mālyaiḥ*—con collares de flores; *ca*—también; *avākiran*—cubierta; *vibhum*—la gran personalidad.

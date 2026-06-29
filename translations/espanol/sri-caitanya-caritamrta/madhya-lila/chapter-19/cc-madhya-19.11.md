@@ -1,9 +1,9 @@
 ### CC Madhya 19.11
 
-> রূপ-গোসাঞি নীলাচলে পাঠাইল দুইজন ।
+> রূপ-গোসাঞি নীলাচলে পাঠাইল দুইজন ।\
 > প্রভু যবে বৃন্দাবন করেন গমন ॥১১॥
 
-> rūpa-gosāñi nīlācale pāṭhāila dui-jana
+> rūpa-gosāñi nīlācale pāṭhāila dui-jana\
 > prabhu yabe vṛndāvana karena gamana
 
 *rūpa-gosāñi*—Rūpa Gosvāmī; *nīlācale*—a Jagannātha Purī; *pāṭhāila*—envió; *dui-jana*—dos personas; *prabhu*—Śrī Caitanya Mahāprabhu; *yabe*—cuando; *vṛndāvana*—a Vṛndāvana; *karena*—realiza; *gamana*—partida.

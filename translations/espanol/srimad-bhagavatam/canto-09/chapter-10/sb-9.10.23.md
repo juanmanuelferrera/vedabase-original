@@ -1,13 +1,13 @@
 ### SB 9.10.23
 
-> एवं क्षिपन्धनुषि सन्धितमुत्ससर्ज
-> बाणं स वज्रमिव तद्धृदयं बिभेद
-> सोऽसृग्वमन्दशमुखैर्न्यपतद्विमानाद
+> एवं क्षिपन्धनुषि सन्धितमुत्ससर्ज\
+> बाणं स वज्रमिव तद्धृदयं बिभेद\
+> सोऽसृग्वमन्दशमुखैर्न्यपतद्विमानाद\
 > धाहेति जल्पति जने सुकृतीव रिक्तः ॥२३॥
 
-> evaṁ kṣipan dhanuṣi sandhitam utsasarja
-> bāṇaṁ sa vajram iva tad-dhṛdayaṁ bibheda
-> so 'sṛg vaman daśa-mukhair nyapatad vimānād
+> evaṁ kṣipan dhanuṣi sandhitam utsasarja\
+> bāṇaṁ sa vajram iva tad-dhṛdayaṁ bibheda\
+> so 'sṛg vaman daśa-mukhair nyapatad vimānād\
 > dhāheti jalpati jane sukṛtīva riktaḥ
 
 *evam*—de este modo; *kṣipan*—tras reñir (a Rāvaṇa); *dhanuṣi*—en el arco; *sandhitam*—fijó una flecha; *utsasarja*—la disparó (hacia él); *bāṇam*—la flecha; *saḥ*—esa flecha; *vajram iva*—como un rayo; *tat-hṛdayam*—el corazón de Rāvaṇa; *bibheda*—atravesó; *saḥ*—él, Rāvaṇa; *asṛk*—sangre; *vaman*—vomitando; *daśa-mukhaiḥ*—por las diez bocas; *nyapatat*—cayó; *vimānāt*—de su avión; *hāhā*—¡oh, no!, ¿qué ha ocurrido?; *iti*—así; *jalpati*—clamar; *jane*—cuando todos los allí presentes; *sukṛtī iva*—como un hombre piadoso; *riktaḥ*—cuando se agotan los resultados de sus actividades piadosas.

@@ -1,11 +1,11 @@
 ### SB 1.5.17
 
-> त्यक्त्वा स्वधर्मं चरणाम्बुजं हरेर्भजन्नपक्वोऽथ पतेत्ततो यदि ।
+> त्यक्त्वा स्वधर्मं चरणाम्बुजं हरेर्भजन्नपक्वोऽथ पतेत्ततो यदि ।\
 > यत्र क्व वाभद्रमभूदमुष्य किं को वार्थ आप्तोऽभजतां स्वधर्मतः ॥१७॥
 
-> tyaktvā sva-dharmaṁ caraṇāmbujaṁ harer
-> bhajann apakvo 'tha patet tato yadi
-> yatra kva vābhadram abhūd amuṣya kiṁ
+> tyaktvā sva-dharmaṁ caraṇāmbujaṁ harer\
+> bhajann apakvo 'tha patet tato yadi\
+> yatra kva vābhadram abhūd amuṣya kiṁ\
 > ko vārtha āpto 'bhajatāṁ sva-dharmataḥ
 
 *tyaktvā*—habiendo renunciado; *sva-dharmam*—la ocupación propia de uno; *caraṇa-ambujam*—los pies de loto; *hareḥ*—de Hari (el Señor); *bhajan*—en el transcurso del servicio devocional; *apakvaḥ*—inmaduro; *atha*—en relación con; *patet*—cae; *tataḥ*—de ese lugar; *yadi*—si; *yatra*—después de lo cual; *kva*—qué clase de; *vā*—o (usado de manera sarcástica); *abhadram*—desfavorable; *abhūt*—ocurrirá; *amuṣya*—de él; *kim*—nada; *kaḥ vā arthaḥ*—qué interés; *āptaḥ*—obtenido; *abhajatām*—del no devoto; *sva-dharmataḥ*—estando dedicado al servicio propio de su ocupación.

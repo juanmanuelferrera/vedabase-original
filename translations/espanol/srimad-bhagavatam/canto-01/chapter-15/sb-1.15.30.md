@@ -1,11 +1,11 @@
 ### SB 1.15.30
 
-> गीतं भगवता ज्ञानं यत्तत्सङ्ग्राममूर्धनि ।
+> गीतं भगवता ज्ञानं यत्तत्सङ्ग्राममूर्धनि ।\
 > कालकर्मतमोरुद्धं पुनरध्यगमत्प्रभुः ॥३०॥
 
-> gītaṁ bhagavatā jñānaṁ
-> yat tat saṅgrāma-mūrdhani
-> kāla-karma-tamo-ruddhaṁ
+> gītaṁ bhagavatā jñānaṁ\
+> yat tat saṅgrāma-mūrdhani\
+> kāla-karma-tamo-ruddhaṁ\
 > punar adhyagamat prabhuḥ
 
 *gītam*—instruido; *bhagavatā*—por la Personalidad de Dios; *jñānam*—conocimiento trascendental; *yat*—el cual; *tat*—eso; *saṅgrāma-mūrdhani*—en medio de la batalla; *kāla-karma*—tiempo y acciones; *tamaḥ-ruddham*—envuelto por esa oscuridad; *punaḥ adhyagamat*—las revivió de nuevo; *prabhuḥ*—el señor de sus sentidos.

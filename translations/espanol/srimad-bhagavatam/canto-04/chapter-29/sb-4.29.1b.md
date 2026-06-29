@@ -1,13 +1,13 @@
 ### SB 4.29.1b
 
-> bhaktiḥ kṛṣṇe dayā jīveṣv
-> akuṇṭha-jñānam ātmani
-> yadi syād ātmano bhūyād
+> bhaktiḥ kṛṣṇe dayā jīveṣv\
+> akuṇṭha-jñānam ātmani\
+> yadi syād ātmano bhūyād\
 > apavargas tu saṁsṛteḥ
 
-> bhaktiḥ kṛṣṇe dayā jīveṣv
-> akuṇṭha-jñānam ātmani
-> yadi syād ātmano bhūyād
+> bhaktiḥ kṛṣṇe dayā jīveṣv\
+> akuṇṭha-jñānam ātmani\
+> yadi syād ātmano bhūyād\
 > apavargas tu saṁsṛteḥ
 
 *bhaktiḥ*—servicio devocional; *kṛṣṇe*—a Kṛṣṇa; *dayā*—misericordia; *jīveṣu*—a otras entidades vivientes; *akuṇṭha-jñānam*—conocimiento perfecto; *ātmani*—del ser; *yadi*—si; *syāt*—se vuelve; *ātmanaḥ*—del propio ser; *bhūyāt*—debe haber; *apavargaḥ*—liberación; *tu*—entonces; *saṁsṛteḥ*—del cautiverio de la vida material.

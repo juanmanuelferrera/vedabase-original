@@ -1,11 +1,11 @@
 ### SB 4.13.3
 
-> मन्ये महाभागवतं नारदं देवदर्शनम् ।
+> मन्ये महाभागवतं नारदं देवदर्शनम् ।\
 > येन प्रोक्तः क्रियायोगः परिचर्याविधिर्हरेः ॥३॥
 
-> manye mahā-bhāgavataṁ
-> nāradaṁ deva-darśanam
-> yena proktaḥ kriyā-yogaḥ
+> manye mahā-bhāgavataṁ\
+> nāradaṁ deva-darśanam\
+> yena proktaḥ kriyā-yogaḥ\
 > paricaryā-vidhir hareḥ
 
 *manye*—creo; *mahā-bhāgavatam*—el más grande de todos los devotos; *nāradam*—el sabio Nārada; *deva*—la Suprema Personalidad de Dios; *darśanam*—que tuvo contacto; *yena*—por quien; *proktaḥ*—hablado; *kriyā-yogaḥ*—servicio devocional; *paricaryā*—para ofrecer servicio; *vidhiḥ*—el procedimiento; *hareḥ*—a la Suprema Personalidad de Dios.

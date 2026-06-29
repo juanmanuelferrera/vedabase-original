@@ -1,13 +1,13 @@
 ### CC Madhya 2.19
 
-> উপজিল প্রেমাঙ্কুর, ভাঙ্গিল যে দুঃখ-পূর,
-> কৃষ্ণ তাহা নাহি করে পান ।
-> বাহিরে নাগররাজ, ভিতরে শঠের কাজ,
+> উপজিল প্রেমাঙ্কুর, ভাঙ্গিল যে দুঃখ-পূর,\
+> কৃষ্ণ তাহা নাহি করে পান ।\
+> বাহিরে নাগররাজ, ভিতরে শঠের কাজ,\
 > পরনারী বধে সাবধান ॥১৯॥
 
-> upajila premāṅkura, bhāṅgila ye duḥkha-pūra,
-> kṛṣṇa tāhā nāhi kare pāna
-> bāhire nāgara-rāja, bhitare śaṭhera kāja,
+> upajila premāṅkura, bhāṅgila ye duḥkha-pūra,\
+> kṛṣṇa tāhā nāhi kare pāna\
+> bāhire nāgara-rāja, bhitare śaṭhera kāja,\
 > para-nārī vadhe sāvadhāna
 
 *upajila*—creció; *prema-aṅkura*—el brote del amor por Dios; *bhāṅgila*—se rompió; *ye*—ese; *duḥkha-pūra*—lleno de sufrimientos; *kṛṣṇa*—el Señor Kṛṣṇa; *tāhā*—eso; *nāhi*—no; *kare*—hace; *pāna*—beber; *bāhire*—externamente; *nāgara-rāja*—la persona más atractiva; *bhitare*—por dentro; *śaṭhera*—de un embaucador; *kāja*—actividades; *para-nārī*—las esposas de otros; *vadhe*—mata; *sāvadhāna*—muy cuidadoso.

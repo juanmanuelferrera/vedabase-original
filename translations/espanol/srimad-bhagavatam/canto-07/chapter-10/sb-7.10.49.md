@@ -1,11 +1,11 @@
 ### SB 7.10.49
 
-> स वा अयं ब्रह्म महद्विमृग्य कैवल्यनिर्वाणसुखानुभूतिः
+> स वा अयं ब्रह्म महद्विमृग्य कैवल्यनिर्वाणसुखानुभूतिः\
 > प्रियः सुहृद्वः खलु मातुलेय आत्मार्हणीयो विधिकृद्गुरुश्च ॥४९॥
 
-> sa vā ayaṁ brahma mahad-vimṛgya-
-> kaivalya-nirvāṇa-sukhānubhūtiḥ
-> priyaḥ suhṛd vaḥ khalu mātuleya
+> sa vā ayaṁ brahma mahad-vimṛgya-\
+> kaivalya-nirvāṇa-sukhānubhūtiḥ\
+> priyaḥ suhṛd vaḥ khalu mātuleya\
 > ātmārhaṇīyo vidhi-kṛd guruś ca
 
 *saḥ*—esa (Suprema Personalidad de Dios, Kṛṣṇa); *vā*—también; *ayam*—este; *brahma*—el Brahman impersonal (que es una emanación de Kṛṣṇa); *mahat*—por grandes personalidades; *vimṛgya*—buscado; *kaivalya*—unidad; *nirvāṇa-sukha*—de felicidad trascendental; *anubhūtiḥ*—la fuente de experiencia práctica; *priyaḥ*—muy, muy querido; *suhṛt*—bienqueriente; *vaḥ*—de ustedes; *khalu*—en verdad; *mātuleyaḥ*—el hijo de un tío materno; *ātmā*—exactamente como el cuerpo y el alma juntos; *arhaṇīyaḥ*—adorable (porque es la Suprema Personalidad de Dios); *vidhi-kṛt*—(aun así, les sirve como) un criado; *guruḥ*—su consejero supremo; *ca*—también.

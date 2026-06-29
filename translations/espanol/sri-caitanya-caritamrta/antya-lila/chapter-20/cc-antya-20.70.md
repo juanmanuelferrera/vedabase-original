@@ -1,9 +1,9 @@
 ### CC Antya 20.70
 
-> সেই সব লীলারস আপনে অনন্ত ।
+> সেই সব লীলারস আপনে অনন্ত ।\
 > সহস্র-বদনে বর্ণি’ নাহি পা’ন অন্ত ॥৭০॥
 
-> sei saba līlā-rasa āpane ananta
+> sei saba līlā-rasa āpane ananta\
 > sahasra-vadane varṇi' nāhi pā'na anta
 
 *sei saba*—todas estas; *līlā-rasa*—melosidades trascendentales de los pasatiempos de Śrī Caitanya Mahāprabhu; *āpane*—personalmente; *ananta*—la Personalidad de Dios Ananta; *sahasra-vadane*—con Sus miles de rostros; *varṇi'*—describiendo; *nāhi*—no; *pā'na*—alcanza; *anta*—el límite.

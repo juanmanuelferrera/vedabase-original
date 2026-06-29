@@ -1,9 +1,9 @@
 ### CC Madhya 8.225
 
-> ‘সমদৃশঃ’-শব্দে কহে ‘সেই ভাবে অনুগতি’ ৷
+> ‘সমদৃশঃ’-শব্দে কহে ‘সেই ভাবে অনুগতি’ ৷\
 > ‘সমাঃ’-শব্দে কহে শ্রুতির গোপীদেহ-প্রাপ্তি ৷৷ ২২৫ ৷৷ ॥২২৫॥
 
-> 'sama-dṛśaḥ'-śabde kahe 'sei bhāve anugati'
+> 'sama-dṛśaḥ'-śabde kahe 'sei bhāve anugati'\
 > 'samāḥ'-śabde kahe śrutira gopī-deha-prāpti
 
 *sama-dṛśaḥ śabde*—con la palabra sama-dṛśaḥ; *kahe*—dice; *sei*—esa; *bhāve*—en la emoción; *anugati*—seguimiento; *samāḥ śabde*—con la palabra samāḥ; *kahe*—dice; *śrutira*—de las personas conocidas como las śrutis; *gopī-deha*—los cuerpos de gopīs; *prāpti*—obtención.

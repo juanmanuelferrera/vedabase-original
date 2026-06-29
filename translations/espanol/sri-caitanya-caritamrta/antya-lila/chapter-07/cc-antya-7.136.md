@@ -1,9 +1,9 @@
 ### CC Antya 7.136
 
-> শ্রীধরানুগত কর ভাগবত-ব্যাখ্যান ।
+> শ্রীধরানুগত কর ভাগবত-ব্যাখ্যান ।\
 > অভিমান ছাড়ি’ ভজ কৃষ্ণ ভগবান্ ॥১৩৬॥
 
-> śrīdharānugata kara bhāgavata-vyākhyāna
+> śrīdharānugata kara bhāgavata-vyākhyāna\
 > abhimāna chāḍi' bhaja kṛṣṇa bhagavān
 
 *śrīdhara-anugata*—siguiendo los pasos de Śrīdhara Svāmī; *kara*—presenta; *bhāgavata-vyākhyāna*—una explicación del *Śrīmad-Bhāgavatam*; *abhimāna chāḍi'*—abandonando el falso orgullo o las falsas concepciones; *bhaja*—adora; *kṛṣṇa bhagavān*—la Suprema Personalidad de Dios, Kṛṣṇa.

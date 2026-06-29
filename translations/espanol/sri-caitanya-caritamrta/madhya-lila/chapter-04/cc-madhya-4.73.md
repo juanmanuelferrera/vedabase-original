@@ -1,9 +1,9 @@
 ### CC Madhya 4.73
 
-> তার পাশে রুটি-রাশির পর্বত হইল ।
+> তার পাশে রুটি-রাশির পর্বত হইল ।\
 > সূপ-আদি-ব্যঞ্জন-ভাণ্ড চৌদিকে ধরিল ॥৭৩॥
 
-> tāra pāśe ruṭi-rāśira parvata ha-ila
+> tāra pāśe ruṭi-rāśira parvata ha-ila\
 > sūpa-ādi-vyañjana-bhāṇḍa caudike dharila
 
 *tāra pāśe*—alrededor de la pila de arroz; *ruṭi*—de chapatis; *rāśira*—de pilas; *parvata*—otra pequeña montaña; *ha-ila*—se formó; *sūpa-ādi*—de todas las verduras líquidas; *vyañjana*—y de todas las demás verduras; *bhāṇḍa*—ollas; *caudike*—alrededor; *dharila*—se colocaron.

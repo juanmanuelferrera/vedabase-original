@@ -1,11 +1,11 @@
 ### SB 3.24.6
 
-> तस्यां बहुतिथे काले भगवान्मधुसूदनः ।
+> तस्यां बहुतिथे काले भगवान्मधुसूदनः ।\
 > कार्दमं वीर्यमापन्नो जज्ञेऽग्निरिव दारुणि ॥६॥
 
-> tasyāṁ bahu-tithe kāle
-> bhagavān madhusūdanaḥ
-> kārdamaṁ vīryam āpanno
+> tasyāṁ bahu-tithe kāle\
+> bhagavān madhusūdanaḥ\
+> kārdamaṁ vīryam āpanno\
 > jajñe 'gnir iva dāruṇi
 
 *tasyām*—en Devahūti; *bahu-tithe kāle*—después de muchos años; *bhagavān*—la Suprema Personalidad de Dios; *madhu-sūdanaḥ*—aquel que mató al demonio Madhu; *kārdamam*—de Kardama; *vīryam*—el semen; *āpannaḥ*—entró; *jajñe*—Él apareció; *agniḥ*—fuego; *iva*—como; *dāruṇi*—en madera.

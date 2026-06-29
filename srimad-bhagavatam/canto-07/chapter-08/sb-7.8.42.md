@@ -1,15 +1,15 @@
 ### SB 7.8.42
 
-> श्रीइन्द्र उवाच
-> प्रत्यानीताः परम भवता त्रायता नः स्वभागा
-> दैत्याक्रान्तं हृदयकमलं तद्गृहं प्रत्यबोधि
-> कालग्रस्तं कियदिदमहो नाथ शुश्रूषतां ते
+> श्रीइन्द्र उवाच\
+> प्रत्यानीताः परम भवता त्रायता नः स्वभागा\
+> दैत्याक्रान्तं हृदयकमलं तद्गृहं प्रत्यबोधि\
+> कालग्रस्तं कियदिदमहो नाथ शुश्रूषतां ते\
 > मुक्तिस्तेषां न हि बहुमता नारसिंहापरैः किम ॥४२॥
 
-> śrī-indra uvāca
-> pratyānītāḥ parama bhavatā trāyatā naḥ sva-bhāgā
-> daityākrāntaṁ hṛdaya-kamalaṁ tad-gṛhaṁ pratyabodhi
-> kāla-grastaṁ kiyad idam aho nātha śuśrūṣatāṁ te
+> śrī-indra uvāca\
+> pratyānītāḥ parama bhavatā trāyatā naḥ sva-bhāgā\
+> daityākrāntaṁ hṛdaya-kamalaṁ tad-gṛhaṁ pratyabodhi\
+> kāla-grastaṁ kiyad idam aho nātha śuśrūṣatāṁ te\
 > muktis teṣāṁ na hi bahumatā nārasiṁhāparaiḥ kim
 
 *śrī-indraḥ uvāca*—Indra, the King of heaven, said; *pratyānītāḥ*—recovered; *parama*—O Supreme; *bhavatā*—by Your Lordship; *trāyatā*—who are protecting; *naḥ*—us; *sva-bhāgāḥ*—shares in the sacrifices; *daitya-ākrāntam*—afflicted by the demon; *hṛdaya-kamalam*—the lotuslike cores of our hearts; *tat-gṛham*—which is actually Your residence; *pratyabodhi*—it has been illuminated; *kāla-grastam*—devoured by time; *kiyat*—insignificant; *idam*—this (world); *aho*—alas; *nātha*—O Lord; *śuśrūṣatām*—for those who are always engaged in the service; *te*—of You; *muktiḥ*—liberation from material bondage; *teṣām*—of them (the pure devotees); *na*—not; *hi*—indeed; *bahumatā*—thought very important; *nāra-siṁha*—O Lord Nṛsiṁhadeva, half lion and half human being; *aparaiḥ kim*—then what is the use of other possessions.

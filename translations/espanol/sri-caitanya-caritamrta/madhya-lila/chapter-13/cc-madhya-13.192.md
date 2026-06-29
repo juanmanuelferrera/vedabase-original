@@ -1,9 +1,9 @@
 ### CC Madhya 13.192
 
-> তাহাঁ নৃত্য করি’ জগন্নাথ আগে আইলা ।
+> তাহাঁ নৃত্য করি’ জগন্নাথ আগে আইলা ।\
 > জগন্নাথ দেখি’ নৃত্য করিতে লাগিলা ॥১৯২॥
 
-> tāhāṅ nṛtya kari' jagannātha āge āilā
+> tāhāṅ nṛtya kari' jagannātha āge āilā\
 > jagannātha dekhi' nṛtya karite lāgilā
 
 *tāhāṅ*—allí; *nṛtya kari'*—tras ejecutar la danza; *jagannātha*—del Señor Jagannātha; *āge*—delante; *āilā*—se presentó; *jagannātha dekhi'*—al contemplar al Señor Jagannātha; *nṛtya*—danza; *karite*—ejecutar; *lāgilā*—comenzó.

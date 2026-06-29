@@ -1,11 +1,11 @@
 ### CC Antya 6.314
 
-> আত্মানং চেদ্বিজানীয়াত্ পরং জ্ঞানধুতাশয়ঃ ।
+> আত্মানং চেদ্বিজানীয়াত্ পরং জ্ঞানধুতাশয়ঃ ।\
 > কিমিচ্ছন্ কস্য বা হেতোর্দেহং পুষ্ণাতি লম্পটঃ ॥৩১৪॥
 
-> ātmānaṁ ced vijānīyāt
-> paraṁ jñāna-dhūtāśayaḥ
-> kim icchan kasya vā hetor
+> ātmānaṁ ced vijānīyāt\
+> paraṁ jñāna-dhūtāśayaḥ\
+> kim icchan kasya vā hetor\
 > dehaṁ puṣṇāti lampaṭaḥ
 
 *ātmānam*—the soul; *cet*—if; *vijānīyāt*—one understands; *param*—supreme; *jñāna*—by knowledge; *dhūta*—thrown off; *āśayaḥ*—material desires; *kim*—what; *icchan*—desiring; *kasya*—what; *vā*—or; *hetoḥ*—for reason; *deham*—the material body; *puṣṇāti*—maintains; *lampaṭaḥ*—debauchee.

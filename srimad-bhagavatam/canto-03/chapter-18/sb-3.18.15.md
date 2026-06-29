@@ -1,11 +1,11 @@
 ### SB 3.18.15
 
-> भगवांस्तु गदावेगं विसृष्टं रिपुणोरसि ।
+> भगवांस्तु गदावेगं विसृष्टं रिपुणोरसि ।\
 > अवञ्चयत्तिरश्चीनो योगारूढ इवान्तकम् ॥१५॥
 
-> bhagavāṁs tu gadā-vegaṁ
-> visṛṣṭaṁ ripuṇorasi
-> avañcayat tiraścīno
+> bhagavāṁs tu gadā-vegaṁ\
+> visṛṣṭaṁ ripuṇorasi\
+> avañcayat tiraścīno\
 > yogārūḍha ivāntakam
 
 *bhagavān*—the Lord; *tu*—however; *gadā-vegam*—the blow of the mace; *visṛṣṭam*—thrown; *ripuṇā*—by the enemy; *urasi*—at His breast; *avañcayat*—dodged; *tiraścīnaḥ*—aside; *yoga-ārūḍhaḥ*—an accomplished *yogī*; *iva*—like; *antakam*—death.

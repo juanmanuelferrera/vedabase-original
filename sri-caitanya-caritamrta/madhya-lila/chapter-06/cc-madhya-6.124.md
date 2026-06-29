@@ -1,9 +1,9 @@
 ### CC Madhya 6.124
 
-> অষ্টম-দিবসে তাঁরে পুছে সার্বভৌম  ।
+> অষ্টম-দিবসে তাঁরে পুছে সার্বভৌম  ।\
 > সাতদিন কর তুমি বেদান্ত শ্রবণ ॥১২৪॥
 
-> aṣṭama-divase tāṅre puche sārvabhauma
+> aṣṭama-divase tāṅre puche sārvabhauma\
 > sāta dina kara tumi vedānta śravaṇa
 
 *aṣṭama-divase*—on the eighth day; *tāṅre*—unto Him; *puche*—inquires; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *sāta dina*—seven days; *kara*—do; *tumi*—You; *vedānta*—Vedānta philosophy; *śravaṇa*—hearing.

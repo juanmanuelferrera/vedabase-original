@@ -1,11 +1,11 @@
 ### SB 4.25.23
 
-> पिशङ्गनीवीं सुश्रोणीं श्यामां कनकमेखलाम् ।
+> पिशङ्गनीवीं सुश्रोणीं श्यामां कनकमेखलाम् ।\
 > पद्भ्यां क्वणद्भ्यां चलन्तीं नूपुरैर्देवतामिव ॥२३॥
 
-> piśaṅga-nīvīṁ suśroṇīṁ
-> śyāmāṁ kanaka-mekhalām
-> padbhyāṁ kvaṇadbhyāṁ calantīṁ
+> piśaṅga-nīvīṁ suśroṇīṁ\
+> śyāmāṁ kanaka-mekhalām\
+> padbhyāṁ kvaṇadbhyāṁ calantīṁ\
 > nūpurair devatām iva
 
 *piśaṅga*—amarillo; *nīvīm*—vestido; *su-śroṇīm*—cintura hermosa; *śyāmām*—negruzco; *kanaka*—dorado; *mekhalām*—cinturón; *padbhyām*—con los pies; *kvaṇadbhyām*—tintinear; *calantīm*—caminar; *nūpuraiḥ*—con campanitas tobilleras; *devatām*—una habitante de los cielos; *iva*—como.

@@ -1,11 +1,11 @@
 ### SB 1.10.24
 
-> स वा अयं सख्यनुगीतसत्कथो वेदेषु गुह्येषु च गुह्यवादिभिः ।
+> स वा अयं सख्यनुगीतसत्कथो वेदेषु गुह्येषु च गुह्यवादिभिः ।\
 > य एक ईशो जगदात्मलीलया सृजत्यवत्यत्ति न तत्र सज्जते ॥२४॥
 
-> sa vā ayaṁ sakhy anugīta-sat-katho
-> vedeṣu guhyeṣu ca guhya-vādibhiḥ
-> ya eka īśo jagad-ātma-līlayā
+> sa vā ayaṁ sakhy anugīta-sat-katho\
+> vedeṣu guhyeṣu ca guhya-vādibhiḥ\
+> ya eka īśo jagad-ātma-līlayā\
 > sṛjaty avaty atti na tatra sajjate
 
 *saḥ*—Él; *vai*—también; *ayam*—este; *sakhi*—¡oh, amiga mía!; *anugīta*—descrito; *sat-kathaḥ*—los excelentes pasatiempos; *vedeṣu*—en las Escrituras védicas; *guhyeṣu*—confidencialmente; *ca*—así como también; *guhya-vādibhiḥ*—por los devotos íntimos; *yaḥ*—aquel que; *ekaḥ*—solo uno; *īśaḥ*—controlador supremo; *jagat*—de toda la creación; *ātma*—Superalma; *līlayā*—mediante la manifestación de pasatiempos; *sṛjati*—crea; *avati atti*—también mantiene y aniquila; *na*—nunca; *tatra*—allí; *sajjate*—se apega a eso.

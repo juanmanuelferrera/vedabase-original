@@ -1,11 +1,11 @@
 ### CC Adi 7.98
 
-> ত্বৎসাক্ষাৎকরণাহ্লাদ-বিশুদ্ধাব্ধিস্থিতস্য মে ।
+> ত্বৎসাক্ষাৎকরণাহ্লাদ-বিশুদ্ধাব্ধিস্থিতস্য মে ।\
 > সুখানি গোষ্পদায়ন্তে ব্রাহ্মাণ্যপি জগদ্গুরো ॥৯৮॥
 
-> tvat-sākṣāt-karaṇāhlāda-
-> viśuddhābdhi-sthitasya me
-> sukhāni goṣpadāyante
+> tvat-sākṣāt-karaṇāhlāda-\
+> viśuddhābdhi-sthitasya me\
+> sukhāni goṣpadāyante\
 > brāhmāṇy api jagad-guro
 
 *tvat*—Tu; *sākṣāt*—encuentro; *karaṇa*—tal acción; *āhlāda*—placer; *viśuddha*—espiritualmente purificado; *abdhi*—océano; *sthitasya*—estando situado; *me*—por mí; *sukhāni*—felicidad; *goṣpadāyante*—un pequeño hueco hecho por la pezuña de un becerro; *brāhmaṇi*—el placer derivado de la comprensión del Brahman impersonal; *api*—también; *jagat-guro*—oh, amo del universo.

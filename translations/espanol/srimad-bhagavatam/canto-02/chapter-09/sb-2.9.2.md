@@ -1,11 +1,11 @@
 ### SB 2.9.2
 
-> बहुरूप इवाभाति मायया बहुरूपया ।
+> बहुरूप इवाभाति मायया बहुरूपया ।\
 > रममाणो गुणेष्वस्या ममाहमिति मन्यते ॥२॥
 
-> bahu-rūpa ivābhāti
-> māyayā bahu-rūpayā
-> ramamāṇo guṇeṣv asyā
+> bahu-rūpa ivābhāti\
+> māyayā bahu-rūpayā\
+> ramamāṇo guṇeṣv asyā\
 > mamāham iti manyate
 
 *bahu-rūpaḥ*—multiforme; *iva*—como si fuera; *ābhāti*—manifestado; *māyayā*—por la influencia de la energía exterior; *bahu-rūpayā*—en múltiples formas; *ramamāṇaḥ*—disfrutando como si fuera; *guṇeṣu*—en las modalidades de diferentes cualidades; *asyāḥ*—de la energía externa; *mama*—mío; *aham*—yo; *iti*—así pues; *manyate*—piensa.

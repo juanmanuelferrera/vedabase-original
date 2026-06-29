@@ -1,11 +1,11 @@
 ### SB 8.16.14
 
-> तवैव मारीच मनःशरीरजाः प्रजा इमाः सत्त्वरजस्तमोजुषः
+> तवैव मारीच मनःशरीरजाः प्रजा इमाः सत्त्वरजस्तमोजुषः\
 > समो भवांस्तास्वसुरादिषु प्रभो तथापि भक्तं भजते महेश्वरः ॥१४॥
 
-> tavaiva mārīca manaḥ-śarīrajāḥ
-> prajā imāḥ sattva-rajas-tamo-juṣaḥ
-> samo bhavāṁs tāsv asurādiṣu prabho
+> tavaiva mārīca manaḥ-śarīrajāḥ\
+> prajā imāḥ sattva-rajas-tamo-juṣaḥ\
+> samo bhavāṁs tāsv asurādiṣu prabho\
 > tathāpi bhaktaṁ bhajate maheśvaraḥ
 
 *tava*—your; *eva*—indeed; *mārīca*—O son of Marīci; *manaḥ-śarīra-jāḥ*—born either of your body or of your mind (all the demons and demigods); *prajāḥ*—born of you; *imāḥ*—all of them; *sattva-rajaḥ-tamaḥ-juṣaḥ*—infected with *sattva-guṇa, rajo-guṇa* or *tamo-guṇa*; *samaḥ*—equal; *bhavān*—your good self; *tāsu*—to every one of them; *asura-ādiṣu*—beginning with the *asuras*; *prabho*—O my lord; *tathā api*—still; *bhaktam*—unto the devotees; *bhajate*—takes care of; *mahā-īśvaraḥ*—the Supreme Personality of Godhead, the supreme controller.

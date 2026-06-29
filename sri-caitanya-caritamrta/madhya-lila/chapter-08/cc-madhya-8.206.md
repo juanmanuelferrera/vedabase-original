@@ -1,13 +1,13 @@
 ### CC Madhya 8.206
 
-> বিভুরপি সুখরূপঃ স্বপ্ৰকাশোঽপি ভাবঃ
-> ক্ষণমপি ন হি রাধাকৃষ্ণয়োর্যা ঋতে স্বাঃ ।
-> প্ৰবহতি রসপুষ্টিং চিদ্বিভূতীরিবেশঃ
+> বিভুরপি সুখরূপঃ স্বপ্ৰকাশোঽপি ভাবঃ\
+> ক্ষণমপি ন হি রাধাকৃষ্ণয়োর্যা ঋতে স্বাঃ ।\
+> প্ৰবহতি রসপুষ্টিং চিদ্বিভূতীরিবেশঃ\
 > শ্রয়তি ন পদমাসাং কঃ সখীনাং রসজ্ঞঃ ॥২০৬॥
 
-> vibhur api sukha-rūpaḥ sva-prakāśo 'pi bhāvaḥ
-> kṣaṇam api na hi rādhā-kṛṣṇayor yā ṛte svāḥ
-> pravahati rasa-puṣṭiṁ cid-vibhūtīr iveśaḥ
+> vibhur api sukha-rūpaḥ sva-prakāśo 'pi bhāvaḥ\
+> kṣaṇam api na hi rādhā-kṛṣṇayor yā ṛte svāḥ\
+> pravahati rasa-puṣṭiṁ cid-vibhūtīr iveśaḥ\
 > śrayati na padam āsāṁ kaḥ sakhīnāṁ rasa-jñaḥ
 
 *vibhuḥ*—all-powerful; *api*—although; *sukha-rūpaḥ*—happiness personified; *sva-prakāśaḥ*—self-effulgent; *api*—although; *bhāvaḥ*—the completely spiritual activities; *kṣaṇam api*—even for a moment; *na*—*never*; *hi*—certainly; *rādhā-kṛṣṇayoḥ*—of Śrī Rādhā and Kṛṣṇa; *yāḥ*—whom; *ṛte*—without; *svāḥ*—His own entourage (the *gopīs*); *pravahati*—leads to; *rasa-puṣṭim*—completion of the highest humor; *cit-vibhūtīḥ*—spiritual potencies; *iva*—like; *īśaḥ*—the Supreme Personality of Godhead; *śrayati*—takes shelter of; *na*—not; *padam*—the position; *āsām*—of them; *kaḥ*—who; *sakhīnām*—of the personal associates; *rasa-jñaḥ*—one who is conversant with the science of mellows.

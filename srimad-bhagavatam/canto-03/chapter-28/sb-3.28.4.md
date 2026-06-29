@@ -1,11 +1,11 @@
 ### SB 3.28.4
 
-> अहिंसा सत्यमस्तेयं यावदर्थपरिग्रहः ।
+> अहिंसा सत्यमस्तेयं यावदर्थपरिग्रहः ।\
 > ब्रह्मचर्यं तपः शौचं स्वाध्यायः पुरुषार्चनम् ॥४॥
 
-> ahiṁsā satyam asteyaṁ
-> yāvad-artha-parigrahaḥ
-> brahmacaryaṁ tapaḥ śaucaṁ
+> ahiṁsā satyam asteyaṁ\
+> yāvad-artha-parigrahaḥ\
+> brahmacaryaṁ tapaḥ śaucaṁ\
 > svādhyāyaḥ puruṣārcanam
 
 *ahiṁsā*—nonviolence; *satyam*—truthfulness; *asteyam*—refraining from theft; *yāvat-artha*—as much as necessary; *parigrahaḥ*—possessing; *brahmacaryam*—celibacy; *tapaḥ*—austerity; *śaucam*—cleanliness; *sva-adhyāyaḥ*—study of the *Vedas*; *puruṣa-arcanam*—worship of the Supreme Personality of Godhead.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.81
 
-> গাল ফুলিল, আচার্য অন্তরে উল্লাস ।
+> গাল ফুলিল, আচার্য অন্তরে উল্লাস ।\
 > বিস্তারি’ বর্ণিয়াছেন বৃন্দাবন-দাস ॥৮১॥
 
-> gāla phulila, ācārya antare ullāsa
+> gāla phulila, ācārya antare ullāsa\
 > vistāri' varṇiyāchena vṛndāvana-dāsa
 
 *gāla*—the cheeks; *phulila*—became swollen; *ācārya*—Puṇḍarīka Vidyānidhi; *antare*—within the heart; *ullāsa*—very happy; *vistāri'*—elaborating; *varṇiyāchena*—has narrated; *vṛndāvana-dāsa*—Śrīla Vṛndāvana dāsa Ṭhākura.

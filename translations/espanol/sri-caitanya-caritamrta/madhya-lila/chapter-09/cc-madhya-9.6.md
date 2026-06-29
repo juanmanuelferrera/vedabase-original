@@ -1,9 +1,9 @@
 ### CC Madhya 9.6
 
-> অতএব নাম-মাত্র করিয়ে গণন ৷
+> অতএব নাম-মাত্র করিয়ে গণন ৷\
 > কহিতে না পারি তার যথা অনুক্রম ৷৷ ৬ ৷৷ ॥৬॥
 
-> ataeva nāma-mātra kariye gaṇana
+> ataeva nāma-mātra kariye gaṇana\
 > kahite nā pāri tāra yathā anukrama
 
 *ataeva*—por lo tanto; *nāma-mātra*—solo como referencia simbólica; *kariye gaṇana*—hago un recuento; *kahite*—de relatar; *nā pāri*—soy incapaz; *tāra*—de eso; *yathā*—según; *anukrama*—orden cronológico.

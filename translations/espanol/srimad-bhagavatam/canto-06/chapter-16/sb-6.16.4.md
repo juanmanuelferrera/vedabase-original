@@ -1,13 +1,13 @@
 ### SB 6.16.4
 
-> जीव उवाच
-> कस्मिन्जन्मन्यमी मह्यं पितरो मातरोऽभवन
+> जीव उवाच\
+> कस्मिन्जन्मन्यमी मह्यं पितरो मातरोऽभवन\
 > कर्मभिर्भ्राम्यमाणस्य देवतिर्यङ्नृयोनिषु ॥४॥
 
-> jīva uvāca
-> kasmiñ janmany amī mahyaṁ
-> pitaro mātaro 'bhavan
-> karmabhir bhrāmyamāṇasya
+> jīva uvāca\
+> kasmiñ janmany amī mahyaṁ\
+> pitaro mātaro 'bhavan\
+> karmabhir bhrāmyamāṇasya\
 > deva-tiryaṅ-nṛ-yoniṣu
 
 *jīvaḥ uvāca*—la entidad viviente dijo; *kasmin*—en qué; *janmani*—nacimiento; *amī*—todos estos; *mahyam*—para mí; *pitaraḥ*—padres; *mātaraḥ*—madres; *abhavan*—fueron; *karmabhiḥ*—por los resultados de la acción fruitiva; *bhrāmyamāṇasya*—que voy vagando; *deva-tiryak*—de los semidioses y los animales inferiores; *nṛ*—y de la especie humana; *yoniṣu*—en los vientres.

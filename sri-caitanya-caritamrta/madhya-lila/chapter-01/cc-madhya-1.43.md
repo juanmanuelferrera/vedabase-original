@@ -1,9 +1,9 @@
 ### CC Madhya 1.43
 
-> শ্রীভাগবতসন্দর্ভ-নাম গ্রন্থ-বিস্তার ।
+> শ্রীভাগবতসন্দর্ভ-নাম গ্রন্থ-বিস্তার ।\
 > ভক্তিসিদ্ধান্তের তাতে দেখাইয়াছেন পার ॥৪৩॥
 
-> śrī-bhāgavata-sandarbha-nāma grantha-vistāra
+> śrī-bhāgavata-sandarbha-nāma grantha-vistāra\
 > bhakti-siddhāntera tāte dekhāiyāchena pāra
 
 *śrī-bhāgavata-sandarbha-nāma*—of the name *Bhāgavata-sandarbha*; *grantha*—the book; *vistāra*—very elaborate; *bhakti-siddhāntera*—of the conclusions of devotional service; *tāte*—in that book; *dekhāiyāchena*—he has shown; *pāra*—the limit.

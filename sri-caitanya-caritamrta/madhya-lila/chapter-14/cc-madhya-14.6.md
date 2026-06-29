@@ -1,9 +1,9 @@
 ### CC Madhya 14.6
 
-> সব-ভক্তের আজ্ঞা নিল যোড়-হাত হঞা ।
+> সব-ভক্তের আজ্ঞা নিল যোড়-হাত হঞা ।\
 > প্রভু-পদ ধরি’ পড়ে সাহস করিয়া ॥৬॥
 
-> saba-bhaktera ājñā nila yoḍa-hāta hañā
+> saba-bhaktera ājñā nila yoḍa-hāta hañā\
 > prabhu-pada dhari' paḍe sāhasa kariyā
 
 *saba-bhaktera*—of all the devotees; *ājñā nila*—took permission; *yoḍa-hāta hañā*—with folded hands; *prabhu-pada dhari'*—catching the feet of Śrī Caitanya Mahāprabhu; *paḍe*—falls; *sāhasa kariyā*—with great courage.

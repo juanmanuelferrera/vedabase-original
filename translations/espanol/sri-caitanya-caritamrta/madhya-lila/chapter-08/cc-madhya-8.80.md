@@ -1,13 +1,13 @@
 ### CC Madhya 8.80
 
-> নায়ং শ্রিয়োঽঙ্গ উ নিতান্তরতেঃ প্রসাদঃ
-> স্বর্যোষিতাং নলিনগন্ধরুচাং কুতোঽন্যাঃ ৷
-> রাসোত্সবেঽস্য ভুজদণ্ডগৃহীতকণ্ঠ-
+> নায়ং শ্রিয়োঽঙ্গ উ নিতান্তরতেঃ প্রসাদঃ\
+> স্বর্যোষিতাং নলিনগন্ধরুচাং কুতোঽন্যাঃ ৷\
+> রাসোত্সবেঽস্য ভুজদণ্ডগৃহীতকণ্ঠ-\
 > লব্ধাশিষাং য উদগাদ্ব্রজসুন্দরীণাম্ ৷৷ ৮০ ৷৷ ॥৮০॥
 
-> nāyaṁ śriyo 'ṅga u nitānta-rateḥ prasādaḥ
-> svar-yoṣitāṁ nalina-gandha-rucāṁ kuto 'nyāḥ
-> rāsotsave 'sya bhuja-daṇḍa-gṛhīta-kaṇṭha-
+> nāyaṁ śriyo 'ṅga u nitānta-rateḥ prasādaḥ\
+> svar-yoṣitāṁ nalina-gandha-rucāṁ kuto 'nyāḥ\
+> rāsotsave 'sya bhuja-daṇḍa-gṛhīta-kaṇṭha-\
 > labdhāśiṣāṁ ya udagād vraja-sundarīṇām
 
 *na*—no; *ayam*—esta; *śriyaḥ*—de la diosa de la fortuna; *aṅge*—en el pecho; *u*—¡ay!; *nitānta-rateḥ*—que está muy íntimamente relacionada; *prasādaḥ*—la gracia; *svaḥ*—de los planetas celestiales; *yoṣitām*—de las mujeres; *nalina*—de la flor de loto; *gandha*—que poseen el aroma; *rucām*—y el lustre corporal; *kutaḥ*—mucho menos; *anyāḥ*—otras; *rāsa-utsave*—en el festival de la danza del rāsa; *asya*—del Señor Śrī Kṛṣṇa; *bhuja-daṇḍa*—por los brazos; *gṛhīta*—abrazados; *kaṇṭha*—sus cuellos; *labdha-āśiṣām*—que alcanzaron tal bendición; *yaḥ*—la cual; *udagāt*—se manifestó; *vraja-sundarīṇām*—de las hermosas gopīs, las muchachas trascendentales de Vrajabhūmi.

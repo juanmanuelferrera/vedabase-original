@@ -1,9 +1,9 @@
 ### CC Madhya 9.197
 
-> তাঁরে আশ্বাসিয়া প্রভু করিলা গমন ।
+> তাঁরে আশ্বাসিয়া প্রভু করিলা গমন ।\
 > কৃতমালায় স্নান করি আইলা দুর্বশন ॥১৯৭॥
 
-> tāṅre āśvāsiyā prabhu karilā gamana
+> tāṅre āśvāsiyā prabhu karilā gamana\
 > kṛtamālāya snāna kari āilā durvaśana
 
 *tāṅre āśvāsiyā*—assuring him; *prabhu*—Śrī Caitanya Mahāprabhu; *karilā gamana*—departed; *kṛtamālāya*—in the river known as Kṛtamālā; *snāna kari*—bathing; *āilā*—came; *durvaśana*—to Durvaśana.

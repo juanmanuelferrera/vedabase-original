@@ -1,11 +1,11 @@
 ### SB 6.1.6
 
-> अधुनेह महाभाग यथैव नरकान्नरः
+> अधुनेह महाभाग यथैव नरकान्नरः\
 > नानोग्रयातनान्नेयात्तन्मे व्याख्यातुमर्हसि ॥६॥
 
-> adhuneha mahā-bhāga
-> yathaiva narakān naraḥ
-> nānogra-yātanān neyāt
+> adhuneha mahā-bhāga\
+> yathaiva narakān naraḥ\
+> nānogra-yātanān neyāt\
 > tan me vyākhyātum arhasi
 
 *adhunā*—ahora mismo; *iha*—en el mundo material; *mahā-bhāga*—¡oh, muy afortunado y opulento Śukadeva Gosvāmī!; *yathā*—de modo que; *eva*—en verdad; *narakān*—todas las condiciones infernales por las que tienen que pasar los impíos; *naraḥ*—seres humanos; *nānā*—diversidades de; *ugra*—terribles; *yātanān*—condiciones de sufrimiento; *na īyāt*—no tengan que pasar; *tat*—eso; *me*—a mí; *vyākhyātum arhasi*—por favor, explica.

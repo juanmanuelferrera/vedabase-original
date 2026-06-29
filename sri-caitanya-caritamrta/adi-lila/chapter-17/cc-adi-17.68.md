@@ -1,9 +1,9 @@
 ### CC Adi 17.68
 
-> তবে আচার্য-গোসাঞির আনন্দ হইল ।
+> তবে আচার্য-গোসাঞির আনন্দ হইল ।\
 > লজ্জিত হইয়া প্রভু প্রসাদ করিল ॥৬৮॥
 
-> tabe ācārya-gosāñira ānanda ha-ila
+> tabe ācārya-gosāñira ānanda ha-ila\
 > lajjita ha-iyā prabhu prasāda karila
 
 *tabe*—at that time; *ācārya-gosāñira*—of Advaita Ācārya; *ānanda*—pleasure; *ha-ila*—aroused; *lajjita*—ashamed; *ha-iyā*—becoming; *prabhu*—the Lord; *prasāda*—benediction; *karila*—offered.

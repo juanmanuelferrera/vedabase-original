@@ -1,13 +1,13 @@
 ### CC Madhya 2.59
 
-> তোমার দর্শন-বিনে, অধন্য এ রাত্রি-দিনে,
-> এই কাল না যায় কাটন ।
-> তুমি অনাথের বন্ধু, অপার করুণা-সিন্ধু,
+> তোমার দর্শন-বিনে, অধন্য এ রাত্রি-দিনে,\
+> এই কাল না যায় কাটন ।\
+> তুমি অনাথের বন্ধু, অপার করুণা-সিন্ধু,\
 > কৃপা করি’ দেহ দরশন ॥৫৯॥
 
-> tomāra darśana-vine, adhanya e rātri-dine,
-> ei kāla nā yāya kāṭana
-> tumi anāthera bandhu, apāra karuṇā-sindhu,
+> tomāra darśana-vine, adhanya e rātri-dine,\
+> ei kāla nā yāya kāṭana\
+> tumi anāthera bandhu, apāra karuṇā-sindhu,\
 > kṛpā kari' deha daraśana
 
 *tomāra*—Tu; *darśana*—audiencia; *vine*—sin; *adhanya*—desventurados; *e*—estos; *rātri-dine*—noche y día; *ei kāla*—este tiempo; *nā yāya*—no transcurre; *kāṭana*—pasando; *tumi*—Tú; *anāthera bandhu*—amigo de los desamparados; *apāra*—ilimitado; *karuṇā-sindhu*—océano de misericordia; *kṛpā kari'*—mostrando misericordia; *deha*—concede bondadosamente; *daraśana*—audiencia.

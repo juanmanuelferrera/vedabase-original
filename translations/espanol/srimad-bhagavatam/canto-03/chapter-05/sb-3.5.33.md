@@ -1,11 +1,11 @@
 ### SB 3.5.33
 
-> कालमायांशयोगेन भगवद्वीक्षितं नभः ।
+> कालमायांशयोगेन भगवद्वीक्षितं नभः ।\
 > नभसोऽनुसृतं स्पर्शं विकुर्वन्निर्ममेऽनिलम् ॥३३॥
 
-> kāla-māyāṁśa-yogena
-> bhagavad-vīkṣitaṁ nabhaḥ
-> nabhaso 'nusṛtaṁ sparśaṁ
+> kāla-māyāṁśa-yogena\
+> bhagavad-vīkṣitaṁ nabhaḥ\
+> nabhaso 'nusṛtaṁ sparśaṁ\
 > vikurvan nirmame 'nilam
 
 *kāla*—tiempo; *māyā*—energía externa; *aṁśa-yogena*—mezclado en parte; *bhagavat*—la Personalidad de Dios; *vīkṣitam*—lanzó una mirada sobre; *nabhaḥ*—el cielo; *nabhasaḥ*—desde el cielo; *anusṛtam*—por ese contacto; *sparśam*—tacto; *vikurvat*—siendo transformado; *nirmame*—fue creado; *anilam*—el aire.

@@ -1,9 +1,9 @@
 ### CC Antya 13.49
 
-> একদিন সনাতনে পণ্ডিত নিমন্ত্রিলা ।
+> একদিন সনাতনে পণ্ডিত নিমন্ত্রিলা ।\
 > নিত্যকৃত্য করি’ তেঁহ পাক চড়াইলা ॥৪৯॥
 
-> eka-dina sanātane paṇḍita nimantrilā
+> eka-dina sanātane paṇḍita nimantrilā\
 > nitya-kṛtya kari' teṅha pāka caḍāilā
 
 *eka-dina*—un día; *sanātane*—a Sanātana Gosvāmī; *paṇḍita nimantrilā*—Jagadānanda Paṇḍita invitó; *nitya-kṛtya kari'*—después de terminar sus deberes rutinarios; *teṅha*—él; *pāka caḍāilā*—empezó a cocinar.

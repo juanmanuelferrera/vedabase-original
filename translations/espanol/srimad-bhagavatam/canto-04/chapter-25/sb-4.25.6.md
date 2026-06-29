@@ -1,11 +1,11 @@
 ### SB 4.25.6
 
-> गृहेषु कूटधर्मेषु पुत्रदारधनार्थधीः ।
+> गृहेषु कूटधर्मेषु पुत्रदारधनार्थधीः ।\
 > न परं विन्दते मूढो भ्राम्यन्संसारवर्त्मसु ॥६॥
 
-> gṛheṣu kūṭa-dharmeṣu
-> putra-dāra-dhanārtha-dhīḥ
-> na paraṁ vindate mūḍho
+> gṛheṣu kūṭa-dharmeṣu\
+> putra-dāra-dhanārtha-dhīḥ\
+> na paraṁ vindate mūḍho\
 > bhrāmyan saṁsāra-vartmasu
 
 *gṛheṣu*—en la vida familiar; *kūṭa-dharmeṣu*—en falsos deberes prescritos; *putra*—hijos; *dāra*—esposa; *dhana*—riquezas; *artha*—el objetivo de la vida; *dhīḥ*—aquel que considera; *na*—no; *param*—el plano trascendental; *vindate*—alcanza; *mūḍhaḥ*—sinvergüenza; *bhrāmyan*—vagar; *saṁsāra*—de la existencia material; *vartmasu*—en los senderos.

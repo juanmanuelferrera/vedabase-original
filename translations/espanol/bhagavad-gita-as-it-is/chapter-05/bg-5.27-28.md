@@ -1,17 +1,17 @@
 ### Bg 5.27-28
 
-> स्पर्शान्कृत्वा बहिर्बाह्यांश्चक्षुश्चैवान्तरे भ्रुवोः ।
-> प्राणापानौ समौ कृत्वा नासाभ्यन्तरचारिणौ ॥२७॥
-> यतेन्द्रियमनोबुद्धिर्मुनिर्मोक्षपरायणः ।
+> स्पर्शान्कृत्वा बहिर्बाह्यांश्चक्षुश्चैवान्तरे भ्रुवोः ।\
+> प्राणापानौ समौ कृत्वा नासाभ्यन्तरचारिणौ ॥२७॥\
+> यतेन्द्रियमनोबुद्धिर्मुनिर्मोक्षपरायणः ।\
 > विगतेच्छाभयक्रोधो यः सदा मुक्त एव सः ॥२८॥
 
-> sparśān kṛtvā bahir bāhyāṁś
-> cakṣuś caivāntare bhruvoḥ
-> prāṇāpānau samau kṛtvā
-> nāsābhyantara-cāriṇau
-> yatendriya-mano-buddhir
-> munir mokṣa-parāyaṇaḥ
-> vigatecchā-bhaya-krodho
+> sparśān kṛtvā bahir bāhyāṁś\
+> cakṣuś caivāntare bhruvoḥ\
+> prāṇāpānau samau kṛtvā\
+> nāsābhyantara-cāriṇau\
+> yatendriya-mano-buddhir\
+> munir mokṣa-parāyaṇaḥ\
+> vigatecchā-bhaya-krodho\
 > yaḥ sadā mukta eva saḥ
 
 *sparśān*—objetos externos de los sentidos, tales como el sonido etc; *kṛtvā*—haciéndolo así; *bahiḥ*—externos; *bāhyān*—innecesarios; *cakṣuḥ*—ojos; *ca*—también; *eva*—ciertamente; *antare*—dentro; *bhruvoḥ*—de las cejas; *prāṇa-apānau*—el aire que asciende y desciende; *samau*—en suspensión; *kṛtvā*—haciéndolo así; *nāsā-abhyantara*—dentro de las fosas nasales; *cāriṇau*—soplando; *yata*—controlados; *indriya*—sentidos; *manaḥ*—mente; *buddhiḥ*—inteligencia; *muniḥ*—el trascendentalista; *mokṣa*—liberación; *parāyaṇaḥ*—con ese destino; *vigata*—descartado; *icchā*—deseos; *bhaya*—temor; *krodhaḥ*—ira; *yaḥ*—aquel que; *sadā*—siempre; *muktaḥ*—liberado; *eva*—ciertamente; *saḥ*—él está.

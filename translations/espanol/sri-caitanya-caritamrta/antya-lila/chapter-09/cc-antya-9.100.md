@@ -1,9 +1,9 @@
 ### CC Antya 9.100
 
-> তুমি যাহ, প্রভুরে রাখহ যত্ন করি’ ।
+> তুমি যাহ, প্রভুরে রাখহ যত্ন করি’ ।\
 > এই মুই তাহারে ছাড়িনু সব কৌড়ি ।।” ॥ ১০০ ॥
 
-> tumi yāha, prabhure rākhaha yatna kari'
+> tumi yāha, prabhure rākhaha yatna kari'\
 > ei mui tāhāre chāḍinu saba kauḍi"
 
 *tumi*—tú; *yāha*—ve; *prabhure*—Śrī Caitanya Mahāprabhu; *rākhaha*—retén; *yatna kari'*—con gran atención; *ei mui*—en lo que a mí respecta; *tāhāre*—a él; *chāḍinu*—le perdono; *saba kauḍi*—todas las deudas.

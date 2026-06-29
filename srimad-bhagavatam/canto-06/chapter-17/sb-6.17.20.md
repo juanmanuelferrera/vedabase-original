@@ -1,11 +1,11 @@
 ### SB 6.17.20
 
-> गुणप्रवाह एतस्मिन्कः शापः को न्वनुग्रहः
+> गुणप्रवाह एतस्मिन्कः शापः को न्वनुग्रहः\
 > कः स्वर्गो नरकः को वा किं सुखं दुःखमेव वा ॥२०॥
 
-> guṇa-pravāha etasmin
-> kaḥ śāpaḥ ko nv anugrahaḥ
-> kaḥ svargo narakaḥ ko vā
+> guṇa-pravāha etasmin\
+> kaḥ śāpaḥ ko nv anugrahaḥ\
+> kaḥ svargo narakaḥ ko vā\
 > kiṁ sukhaṁ duḥkham eva vā
 
 *guṇa-pravāhe*—in the current of the modes of material nature; *etasmin*—this; *kaḥ*—what; *śāpaḥ*—a curse; *kaḥ*—what; *nu*—indeed; *anugrahaḥ*—a favor; *kaḥ*—what; *svargaḥ*—elevation to heavenly planets; *narakaḥ*—hell; *kaḥ*—what; *vā*—or; *kim*—what; *sukham*—happiness; *duḥkham*—distress; *eva*—indeed; *vā*—or.

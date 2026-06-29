@@ -1,9 +1,9 @@
 ### CC Madhya 8.114
 
-> তাঁহা বিনু রাসলীলা নাহি ভায় চিত্তে ।
+> তাঁহা বিনু রাসলীলা নাহি ভায় চিত্তে ।\
 > মণ্ডলী ছাড়িয়া গেলা রাধা অন্বেষিতে ॥১১৪॥
 
-> tāṅhā vinu rāsa-līlā nāhi bhāya citte
+> tāṅhā vinu rāsa-līlā nāhi bhāya citte\
 > maṇḍalī chāḍiyā gelā rādhā anveṣite
 
 *tāṅhā vinu*—without Her; *rāsa-līlā*—the *rāsa* dance; *nāhi*—not; *bhāya*—illuminates; *citte*—within the heart; *maṇḍalī chāḍiyā*—leaving the circle of the *rāsa* dance; *gelā*—went; *rādhā*—Śrīmatī Rādhārāṇī; *anveṣite*—to search for.

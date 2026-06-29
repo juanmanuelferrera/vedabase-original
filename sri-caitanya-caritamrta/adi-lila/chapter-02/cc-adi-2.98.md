@@ -1,9 +1,9 @@
 ### CC Adi 2.98
 
-> অংশ-শক্ত্যাবেশরূপে দ্বিবিধাবতার ।
+> অংশ-শক্ত্যাবেশরূপে দ্বিবিধাবতার ।\
 > বাল্য পৌগণ্ড ধর্ম দুই ত’ প্রকার ॥৯৮॥
 
-> aṁśa-śaktyāveśa-rūpe dvi-vidhāvatāra
+> aṁśa-śaktyāveśa-rūpe dvi-vidhāvatāra\
 > bālya paugaṇḍa dharma dui ta' prakāra
 
 *aṁśa*—of the plenary expansion; *śakti-āveśa*—of the empowered; *rūpe*—in the forms; *dvi-vidha*—two kinds; *avatāra*—incarnations; *bālya*—childhood; *paugaṇḍa*—boyhood; *dharma*—characteristics of age; *dui*—two; *ta'*—certainly; *prakāra*—kinds

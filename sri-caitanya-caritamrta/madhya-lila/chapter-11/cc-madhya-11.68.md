@@ -1,9 +1,9 @@
 ### CC Madhya 11.68
 
-> নরেন্দ্রে আসিয়া সবে হৈল বিদ্যমান ।
+> নরেন্দ্রে আসিয়া সবে হৈল বিদ্যমান ।\
 > তাঁ-সবারে চাহি বাসা প্রসাদ-সমাধান ॥৬৮॥
 
-> narendre āsiyā sabe haila vidyamāna
+> narendre āsiyā sabe haila vidyamāna\
 > tāṅ-sabāre cāhi vāsā prasāda-samādhāna
 
 *narendre*—on the bank of Lake Narendra; *āsiyā*—coming; *sabe*—all of them; *haila vidyamāna*—staying; *tāṅ-sabāre*—for all of them; *cāhi*—I want; *vāsā*—residential quarters; *prasāda*—for distributing *prasāda*; *samādhāna*—arrangement.

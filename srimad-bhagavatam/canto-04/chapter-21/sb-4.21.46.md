@@ -1,11 +1,11 @@
 ### SB 4.21.46
 
-> पुत्रेण जयते लोकानिति सत्यवती श्रुतिः ।
+> पुत्रेण जयते लोकानिति सत्यवती श्रुतिः ।\
 > ब्रह्मदण्डहतः पापो यद्वेनोऽत्यतरत्तमः ॥४६॥
 
-> putreṇa jayate lokān
-> iti satyavatī śrutiḥ
-> brahma-daṇḍa-hataḥ pāpo
+> putreṇa jayate lokān\
+> iti satyavatī śrutiḥ\
+> brahma-daṇḍa-hataḥ pāpo\
 > yad veno 'tyatarat tamaḥ
 
 *putreṇa*—by the son; *jayate*—one becomes victorious; *lokān*—all the heavenly planets; *iti*—thus; *satya-vatī*—becomes true; *śrutiḥ*—the *Vedas*; *brahma-daṇḍa*—by the curse of *brāhmaṇas*; *hataḥ*—killed; *pāpaḥ*—the most sinful; *yat*—as; *venaḥ*—the father of Mahārāja Pṛthu; *ati*—great; *atarat*—became delivered; *tamaḥ*—from the darkness of hellish life.

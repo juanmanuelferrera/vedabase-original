@@ -1,11 +1,11 @@
 ### SB 6.10.9
 
-> एतावानव्ययो धर्मः पुण्यश्लोकैरुपासितः
+> एतावानव्ययो धर्मः पुण्यश्लोकैरुपासितः\
 > यो भूतशोकहर्षाभ्यामात्मा शोचति हृष्यति ॥९॥
 
-> etāvān avyayo dharmaḥ
-> puṇya-ślokair upāsitaḥ
-> yo bhūta-śoka-harṣābhyām
+> etāvān avyayo dharmaḥ\
+> puṇya-ślokair upāsitaḥ\
+> yo bhūta-śoka-harṣābhyām\
 > ātmā śocati hṛṣyati
 
 *etāvān*—this much; *avyayaḥ*—imperishable; *dharmaḥ*—religious principle; *puṇya-ślokaiḥ*—by famous persons who are celebrated as pious; *upāsitaḥ*—recognized; *yaḥ*—which; *bhūta*—of the living beings; *śoka*—by the distress; *harṣābhyām*—and by the happiness; *ātmā*—the mind; *śocati*—laments; *hṛṣyati*—feels happiness.

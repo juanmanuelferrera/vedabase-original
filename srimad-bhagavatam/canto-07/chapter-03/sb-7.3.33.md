@@ -1,11 +1,11 @@
 ### SB 7.3.33
 
-> व्यक्तं विभो स्थूलमिदं शरीरं येनेन्द्रियप्राणमनोगुणांस्त्वम
+> व्यक्तं विभो स्थूलमिदं शरीरं येनेन्द्रियप्राणमनोगुणांस्त्वम\
 > भुङ्क्षे स्थितो धामनि पारमेष्ठ्ये अव्यक्त आत्मा पुरुषः पुराणः ॥३३॥
 
-> vyaktaṁ vibho sthūlam idaṁ śarīraṁ
-> yenendriya-prāṇa-mano-guṇāṁs tvam
-> bhuṅkṣe sthito dhāmani pārameṣṭhye
+> vyaktaṁ vibho sthūlam idaṁ śarīraṁ\
+> yenendriya-prāṇa-mano-guṇāṁs tvam\
+> bhuṅkṣe sthito dhāmani pārameṣṭhye\
 > avyakta ātmā puruṣaḥ purāṇaḥ
 
 *vyaktam*—manifested; *vibho*—O my lord; *sthūlam*—cosmic manifestation; *idam*—this; *śarīram*—external body; *yena*—by which; *indriya*—the senses; *prāṇa*—the life air; *manaḥ*—the mind; *guṇān*—transcendental qualities; *tvam*—you; *bhuṅkṣe*—enjoy; *sthitaḥ*—situated; *dhāmani*—in your own abode; *pārameṣṭhye*—the supreme; *avyaktaḥ*—not manifested through ordinary knowledge; *ātmā*—the soul; *puruṣaḥ*—the supreme person; *purāṇaḥ*—the oldest.

@@ -1,9 +1,9 @@
 ### CC Adi 17.29
 
-> এইমত বৈষ্ণব কারে কিছু না মাগিব ।
+> এইমত বৈষ্ণব কারে কিছু না মাগিব ।\
 > অযাচিত-বৃত্তি, কিম্বা শাক-ফল খাইব ॥২৯॥
 
-> ei-mata vaiṣṇava kāre kichu nā māgiba
+> ei-mata vaiṣṇava kāre kichu nā māgiba\
 > ayācita-vṛtti, kiṁvā śāka-phala khāiba
 
 *ei-mata*—in this way; *vaiṣṇava*—a devotee; *kāre*—from anyone; *kichu*—anything; *nā*—not; *māgiba*—shall ask for; *ayācita-vṛtti*—the profession of not asking for anything; *kiṁvā*—or; *śāka*—vegetables; *phala*—fruits; *khāiba*—shall eat.

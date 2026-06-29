@@ -1,11 +1,11 @@
 ### SB 7.10.13
 
-> भोगेन पुण्यं कुशलेन पापं कलेवरं कालजवेन हित्वा
+> भोगेन पुण्यं कुशलेन पापं कलेवरं कालजवेन हित्वा\
 > कीर्तिं विशुद्धां सुरलोकगीतां विताय मामेष्यसि मुक्तबन्धः ॥१३॥
 
-> bhogena puṇyaṁ kuśalena pāpaṁ
-> kalevaraṁ kāla-javena hitvā
-> kīrtiṁ viśuddhāṁ sura-loka-gītāṁ
+> bhogena puṇyaṁ kuśalena pāpaṁ\
+> kalevaraṁ kāla-javena hitvā\
+> kīrtiṁ viśuddhāṁ sura-loka-gītāṁ\
 > vitāya mām eṣyasi mukta-bandhaḥ
 
 *bhogena*—by feelings of material happiness; *puṇyam*—pious activities or their results; *kuśalena*—by acting piously (devotional service is the best of all pious activities); *pāpam*—all kinds of reactions to impious activities; *kalevaram*—the material body; *kāla-javena*—by the most powerful time factor; *hitvā*—giving up; *kīrtim*—reputation; *viśuddhām*—transcendental or fully purified; *sura-loka-gītām*—praised even in the heavenly planets; *vitāya*—spreading all through the universe; *mām*—unto Me; *eṣyasi*—you will come back; *mukta-bandhaḥ*—being liberated from all bondage.

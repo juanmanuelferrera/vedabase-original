@@ -1,11 +1,11 @@
 ### SB 1.5.38
 
-> इति मूर्त्यभिधानेन मन्त्रमूर्तिममूर्तिकम् ।
+> इति मूर्त्यभिधानेन मन्त्रमूर्तिममूर्तिकम् ।\
 > यजते यज्ञपुरुषं स सम्यग्दर्शनः पुमान् ॥३८॥
 
-> iti mūrty-abhidhānena
-> mantra-mūrtim amūrtikam
-> yajate yajña-puruṣaṁ
+> iti mūrty-abhidhānena\
+> mantra-mūrtim amūrtikam\
+> yajate yajña-puruṣaṁ\
 > sa samyag darśanaḥ pumān
 
 *iti*—thus; *mūrti*—representation; *abhidhānena*—in sound; *mantra-mūrtim*—form representation of transcendental sound; *amūrtikam*—the Lord, who has no material form; *yajate*—worship; *yajña*—Viṣṇu; *puruṣam*—the Personality of Godhead; *saḥ*—he alone; *samyak*—perfectly; *darśanaḥ*—one who has seen; *pumān*—person.

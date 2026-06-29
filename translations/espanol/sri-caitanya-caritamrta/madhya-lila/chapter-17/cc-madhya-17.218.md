@@ -1,9 +1,9 @@
 ### CC Madhya 17.218
 
-> ময়ূরের কণ্ঠ দেখি’ প্রভুর কৃষ্ণস্মৃতি হৈল ।
+> ময়ূরের কণ্ঠ দেখি’ প্রভুর কৃষ্ণস্মৃতি হৈল ।\
 > প্রেমাবেশে মহাপ্ৰভু ভূমিতে পড়িল ॥২১৮॥
 
-> mayūrera kaṇṭha dekhi' prabhura kṛṣṇa-smṛti haila
+> mayūrera kaṇṭha dekhi' prabhura kṛṣṇa-smṛti haila\
 > premāveśe mahāprabhu bhūmite paḍila
 
 *mayūrera*—de los pavos reales; *kaṇṭha*—cuellos; *dekhi'*—al ver; *prabhura*—de Śrī Caitanya Mahāprabhu; *kṛṣṇa-smṛti*—recuerdo del Señor Kṛṣṇa; *haila*—hubo; *prema-āveśe*—en amor extático; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *bhūmite*—al suelo; *paḍila*—cayó.

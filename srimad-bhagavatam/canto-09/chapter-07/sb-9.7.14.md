@@ -1,11 +1,11 @@
 ### SB 9.7.14
 
-> पुनर्जाता यजस्वेति स प्रत्याहाथ सोऽब्रवीत
+> पुनर्जाता यजस्वेति स प्रत्याहाथ सोऽब्रवीत\
 > सान्नाहिको यदा राजन्राजन्योऽथ पशुः शुचिः ॥१४॥
 
-> punar jātā yajasveti
-> sa pratyāhātha so 'bravīt
-> sānnāhiko yadā rājan
+> punar jātā yajasveti\
+> sa pratyāhātha so 'bravīt\
+> sānnāhiko yadā rājan\
 > rājanyo 'tha paśuḥ śuciḥ
 
 *punaḥ*—again; *jātāḥ*—have grown; *yajasva*—now you offer the sacrifice; *iti*—thus; *saḥ*—he, Varuṇa; *pratyāha*—replied; *atha*—thereafter; *saḥ*—he, Hariścandra; *abravīt*—said; *sānnāhikaḥ*—able to equip himself with a shield; *yadā*—when; *rājan*—O King Varuṇa; *rājanyaḥ*—the *kṣatriya*; *atha*—then; *paśuḥ*—the sacrificial animal; *śuciḥ*—becomes purified.

@@ -1,11 +1,11 @@
 ### SB 6.14.14
 
-> तस्यैकदा तु भवनमङ्गिरा भगवानृषिः
+> तस्यैकदा तु भवनमङ्गिरा भगवानृषिः\
 > लोकाननुचरन्नेतानुपागच्छद्यदृच्छया ॥१४॥
 
-> tasyaikadā tu bhavanam
-> aṅgirā bhagavān ṛṣiḥ
-> lokān anucarann etān
+> tasyaikadā tu bhavanam\
+> aṅgirā bhagavān ṛṣiḥ\
+> lokān anucarann etān\
 > upāgacchad yadṛcchayā
 
 *tasya*—de él; *ekadā*—en cierta ocasión; *tu*—pero; *bhavanam*—al palacio; *aṅgirāḥ*—Aṅgirā; *bhagavān*—muy poderoso; *ṛṣiḥ*—sabio; *lokān*—planetas; *anucaran*—viajando; *etān*—a estos; *upāgacchat*—vino; *yadṛcchayā*—repentinamente.

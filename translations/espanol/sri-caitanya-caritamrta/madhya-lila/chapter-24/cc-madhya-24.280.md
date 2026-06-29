@@ -1,9 +1,9 @@
 ### CC Madhya 24.280
 
-> এত অন্ন না পাঠাও, কিছু কার্য নাই ৷
+> এত অন্ন না পাঠাও, কিছু কার্য নাই ৷\
 > সবে দুইজনার যোগ্য ভক্ষ্যমাত্র চাই ।।” ॥ ২৮০ ॥
 
-> eta anna nā pāṭhāo, kichu kārya nāi
+> eta anna nā pāṭhāo, kichu kārya nāi\
 > sabe dui-janāra yogya bhakṣya-mātra cāi"
 
 *eta anna*—tanto alimento; *nā pāṭhāo*—no necesitas enviar; *kichu kārya nāi*—no hay tal necesidad; *sabe*—solo; *dui-janāra*—para dos personas; *yogya*—lo necesario; *bhakṣya-mātra*—solo alimento; *cāi*—queremos.

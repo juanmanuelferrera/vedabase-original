@@ -1,11 +1,11 @@
 ### SB 8.23.13
 
-> अथाहोशनसं राजन्हरिर्नारायणोऽन्तिके
+> अथाहोशनसं राजन्हरिर्नारायणोऽन्तिके\
 > आसीनमृत्विजां मध्ये सदसि ब्रह्मवादिनाम ॥१३॥
 
-> athāhośanasaṁ rājan
-> harir nārāyaṇo 'ntike
-> āsīnam ṛtvijāṁ madhye
+> athāhośanasaṁ rājan\
+> harir nārāyaṇo 'ntike\
+> āsīnam ṛtvijāṁ madhye\
 > sadasi brahma-vādinām
 
 *atha*—a continuación; *āha*—dijo; *uśanasam*—a Śukrācārya; *rājan*—¡oh, rey!; *hariḥ*—la Suprema Personalidad de Dios; *nārāyaṇaḥ*—el Señor; *antike*—cerca; *āsīnam*—que estaba sentado; *ṛtvijām madhye*—en el grupo de todos los sacerdotes; *sadasi*—en la asamblea; *brahma-vādinām*—de los seguidores de principios védicos.

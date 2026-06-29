@@ -1,11 +1,11 @@
 ### SB 3.22.32
 
-> बर्हिष्मतीं नाम विभुर्यां निर्विश्य समावसत् ।
+> बर्हिष्मतीं नाम विभुर्यां निर्विश्य समावसत् ।\
 > तस्यां प्रविष्टो भवनं तापत्रयविनाशनम् ॥३२॥
 
-> barhiṣmatīṁ nāma vibhur
-> yāṁ nirviśya samāvasat
-> tasyāṁ praviṣṭo bhavanaṁ
+> barhiṣmatīṁ nāma vibhur\
+> yāṁ nirviśya samāvasat\
+> tasyāṁ praviṣṭo bhavanaṁ\
 > tāpa-traya-vināśanam
 
 *barhiṣmatīm*—la ciudad de Barhiṣmatī; *nāma*—llamada; *vibhuḥ*—el muy poderoso Svāyambhuva Manu; *yām*—en la cual; *nirviśya*—habiendo entrado; *samāvasat*—donde él vivía antes; *tasyām*—en esa ciudad; *praviṣṭaḥ*—entró; *bhavanam*—al palacio; *tāpa-traya*—las tres clases de miserias; *vināśanam*—destruyendo.

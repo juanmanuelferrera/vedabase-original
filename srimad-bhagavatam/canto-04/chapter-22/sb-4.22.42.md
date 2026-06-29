@@ -1,13 +1,13 @@
 ### SB 4.22.42
 
-> राजोवाच
-> कृतो मेऽनुग्रहः पूर्वं हरिणार्तानुकम्पिना ।
+> राजोवाच\
+> कृतो मेऽनुग्रहः पूर्वं हरिणार्तानुकम्पिना ।\
 > तमापादयितुं ब्रह्मन्भगवन्यूयमागताः ॥४२॥
 
-> rājovāca
-> kṛto me 'nugrahaḥ pūrvaṁ
-> hariṇārtānukampinā
-> tam āpādayituṁ brahman
+> rājovāca\
+> kṛto me 'nugrahaḥ pūrvaṁ\
+> hariṇārtānukampinā\
+> tam āpādayituṁ brahman\
 > bhagavan yūyam āgatāḥ
 
 *rājā uvāca*—the King said; *kṛtaḥ*—done; *me*—unto me; *anugrahaḥ*—causeless mercy; *pūrvam*—formerly; *hariṇā*—by the Supreme Personality of Godhead, Lord Viṣṇu; *ārta-anukampinā*—compassionate for persons in distress; *tam*—that; *āpādayitum*—to confirm it; *brahman*—O *brāhmaṇa*; *bhagavan*—O powerful one; *yūyam*—all of you; *āgatāḥ*—have arrived here.

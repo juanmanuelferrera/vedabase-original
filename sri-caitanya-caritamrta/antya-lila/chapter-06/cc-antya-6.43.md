@@ -1,9 +1,9 @@
 ### CC Antya 6.43
 
-> পানিহাটি-গ্রামে পাইলা প্রভুর দরশন ।
+> পানিহাটি-গ্রামে পাইলা প্রভুর দরশন ।\
 > কীর্তনীয়া সেবক সঙ্গে আর বহুজন ॥৪৩॥
 
-> pānihāṭi-grāme pāilā prabhura daraśana
+> pānihāṭi-grāme pāilā prabhura daraśana\
 > kīrtanīyā sevaka saṅge āra bahu-jana
 
 *pānihāṭi-grāme*—in the village known as Pānihāṭi; *pāilā*—got; *prabhura daraśana*—the audience of Nityānanda Prabhu; *kīrtanīyā sevaka*—performers of saṅkīrtana and servants; *saṅge*—with; *āra*—and; *bahu-jana*—many other persons.

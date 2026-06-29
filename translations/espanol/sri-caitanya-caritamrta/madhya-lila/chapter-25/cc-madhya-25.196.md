@@ -1,9 +1,9 @@
 ### CC Madhya 25.196
 
-> কেহ কহে, — এই নহে, ‘অল্প’ দোষ হয় ।
+> কেহ কহে, — এই নহে, ‘অল্প’ দোষ হয় ।\
 > শুনিয়া রহিলা রায় করিয়া সংশয় ॥১৯৬॥
 
-> keha kahe,-ei nahe, 'alpa' doṣa haya
+> keha kahe,-ei nahe, 'alpa' doṣa haya\
 > śuniyā rahilā rāya kariyā saṁśaya
 
 *keha kahe*—algunos *brāhmaṇas* eruditos dijeron; *ei*—esto; *nahe*—no; *alpa*—insignificante; *doṣa*—falta; *haya*—es; *śuniyā*—al oír; *rahilā*—permaneció; *rāya*—Subuddhi Rāya; *kariyā*—con; *saṁśaya*—duda.

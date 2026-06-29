@@ -1,11 +1,11 @@
 ### SB 8.19.19
 
-> मां वचोभिः समाराध्य लोकानामेकमीश्वरम
+> मां वचोभिः समाराध्य लोकानामेकमीश्वरम\
 > पदत्रयं वृणीते योऽबुद्धिमान्द्वीपदाशुषम ॥१९॥
 
-> māṁ vacobhiḥ samārādhya
-> lokānām ekam īśvaram
-> pada-trayaṁ vṛṇīte yo
+> māṁ vacobhiḥ samārādhya\
+> lokānām ekam īśvaram\
+> pada-trayaṁ vṛṇīte yo\
 > 'buddhimān dvīpa-dāśuṣam
 
 *mām*—me; *vacobhiḥ*—by sweet words; *samārādhya*—after sufficiently pleasing; *lokānām*—of all the planets in this universe; *ekam*—the one and only; *īśvaram*—master, controller; *pada-trayam*—three feet; *vṛṇīte*—is asking for; *yaḥ*—He who; *abuddhimān*—not very intelligent; *dvīpa-dāśuṣam*—because I can give You an entire island.

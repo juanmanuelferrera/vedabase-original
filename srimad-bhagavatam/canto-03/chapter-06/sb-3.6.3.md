@@ -1,11 +1,11 @@
 ### SB 3.6.3
 
-> सोऽनुप्रविष्टो भगवांश्चेष्टारूपेण तं गणम् ।
+> सोऽनुप्रविष्टो भगवांश्चेष्टारूपेण तं गणम् ।\
 > भिन्नं संयोजयामास सुप्तं कर्म प्रबोधयन् ॥३॥
 
-> so 'nupraviṣṭo bhagavāṁś
-> ceṣṭārūpeṇa taṁ gaṇam
-> bhinnaṁ saṁyojayām āsa
+> so 'nupraviṣṭo bhagavāṁś\
+> ceṣṭārūpeṇa taṁ gaṇam\
+> bhinnaṁ saṁyojayām āsa\
 > suptaṁ karma prabodhayan
 
 *saḥ*—that; *anupraviṣṭaḥ*—thus entering later on; *bhagavān*—the Personality of Godhead; *ceṣṭā-rūpeṇa*—by His representation of attempt, Kālī; *tam*—them; *gaṇam*—all the living entities, including the demigods; *bhinnam*—separately; *saṁyojayām āsa*—engaged to work; *suptam*—sleeping; *karma*—work; *prabodhayan*—enlightening.

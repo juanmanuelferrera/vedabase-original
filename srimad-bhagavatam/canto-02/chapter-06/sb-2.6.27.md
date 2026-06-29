@@ -1,11 +1,11 @@
 ### SB 2.6.27
 
-> गतयो मतयश्चैव प्रायश्चित्तं समर्पणम् ।
+> गतयो मतयश्चैव प्रायश्चित्तं समर्पणम् ।\
 > पुरुषावयवैरेते सम्भाराः सम्भृता मया ॥२७॥
 
-> gatayo matayaś caiva
-> prāyaścittaṁ samarpaṇam
-> puruṣāvayavair ete
+> gatayo matayaś caiva\
+> prāyaścittaṁ samarpaṇam\
+> puruṣāvayavair ete\
 > sambhārāḥ sambhṛtā mayā
 
 *gatayaḥ*—progress to the ultimate goal (Viṣṇu); *matayaḥ*—worshiping the demigods; *ca*—as also; *eva*—certainly; *prāyaścittam*—compensation; *samarpaṇam*—ultimate offering; *puruṣa*—the Personality of Godhead; *avayavaiḥ*—from the parts of the body of the Personality of Godhead; *ete*—these; *sambhārāḥ*—the ingredients; *sambhṛtāḥ*—were arranged; *mayā*—by me.

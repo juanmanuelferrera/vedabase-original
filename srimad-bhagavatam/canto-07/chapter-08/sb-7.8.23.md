@@ -1,11 +1,11 @@
 ### SB 7.8.23
 
-> दुरासदं सर्वनिजेतरायुध प्रवेकविद्रावितदैत्यदानवम
+> दुरासदं सर्वनिजेतरायुध प्रवेकविद्रावितदैत्यदानवम\
 > प्रायेण मेऽयं हरिणोरुमायिना वधः स्मृतोऽनेन समुद्यतेन किम ॥२३॥
 
-> prāyeṇa me 'yaṁ hariṇorumāyinā
-> vadhaḥ smṛto 'nena samudyatena kim
-> evaṁ bruvaṁs tv abhyapatad gadāyudho
+> prāyeṇa me 'yaṁ hariṇorumāyinā\
+> vadhaḥ smṛto 'nena samudyatena kim\
+> evaṁ bruvaṁs tv abhyapatad gadāyudho\
 > nadan nṛsiṁhaṁ prati daitya-kuñjaraḥ
 
 *prāyeṇa*—probably; *me*—of me; *ayam*—this; *hariṇā*—by the Supreme Lord; *uru-māyinā*—who possesses the great mystic power; *vadhaḥ*—the death; *smṛtaḥ*—planned; *anena*—with this; *samudyatena*—endeavor; *kim*—what use; *evam*—in this way; *bruvan*—murmuring; *tu*—indeed; *abhyapatat*—attacked; *gadā-āyudhaḥ*—armed with his weapon, the club; *nadan*—loudly roaring; *nṛ-siṁham*—the Lord, appearing in the form of half lion and half man; *prati*—toward; *daitya-kuñjaraḥ*—Hiraṇyakaśipu, who was like an elephant.

@@ -1,13 +1,13 @@
 ### SB 3.15.1
 
-> मैत्रेय उवाच
-> प्राजापत्यं तु तत्तेजः परतेजोहनं दितिः ।
+> मैत्रेय उवाच\
+> प्राजापत्यं तु तत्तेजः परतेजोहनं दितिः ।\
 > दधार वर्षाणि शतं शङ्कमाना सुरार्दनात् ॥१॥
 
-> maitreya uvāca
-> prājāpatyaṁ tu tat tejaḥ
-> para-tejo-hanaṁ ditiḥ
-> dadhāra varṣāṇi śataṁ
+> maitreya uvāca\
+> prājāpatyaṁ tu tat tejaḥ\
+> para-tejo-hanaṁ ditiḥ\
+> dadhāra varṣāṇi śataṁ\
 > śaṅkamānā surārdanāt
 
 *maitreyaḥ uvāca*—the sage Maitreya said; *prājāpatyam*—of the great Prajāpati; *tu*—but; *tat tejaḥ*—his powerful semen; *para-tejaḥ*—others' prowess; *hanam*—troubling; *ditiḥ*—Diti (Kaśyapa's wife); *dadhāra*—bore; *varṣāṇi*—years; *śatam*—hundred; *śaṅkamānā*—being doubtful; *sura-ardanāt*—disturbing to the demigods.

@@ -1,9 +1,9 @@
 ### CC Madhya 5.153
 
-> নীলাচলে আনি’ মোর সবে হিত কৈলা ।
+> নীলাচলে আনি’ মোর সবে হিত কৈলা ।\
 > সবে দণ্ডধন ছিল, তাহা না রাখিলা ॥১৫৩॥
 
-> nīlācale āni' mora sabe hita kailā
+> nīlācale āni' mora sabe hita kailā\
 > sabe daṇḍa-dhana chila, tāhā nā rākhilā
 
 *nīlācale*—a Jagannātha Purī; *āni'*—trayendo; *mora*—a Mí; *sabe*—todos ustedes; *hita*—beneficio; *kailā*—hicieron; *sabe*—la única; *daṇḍa-dhana*—un bastón; *chila*—había; *tāhā*—eso también; *nā*—no; *rākhilā*—conservaron.

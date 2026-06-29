@@ -1,13 +1,13 @@
 ### SB 7.9.40
 
-> जिह्वैकतोऽच्युत विकर्षति मावितृप्ता
-> शिश्नोऽन्यतस्त्वगुदरं श्रवणं कुतश्चित
-> घ्राणोऽन्यतश्चपलदृक्क्व च कर्मशक्तिर
+> जिह्वैकतोऽच्युत विकर्षति मावितृप्ता\
+> शिश्नोऽन्यतस्त्वगुदरं श्रवणं कुतश्चित\
+> घ्राणोऽन्यतश्चपलदृक्क्व च कर्मशक्तिर\
 > बह्व्यः सपत्न्य इव गेहपतिं लुनन्ति ॥४०॥
 
-> jihvaikato 'cyuta vikarṣati māvitṛptā
-> śiśno 'nyatas tvag-udaraṁ śravaṇaṁ kutaścit
-> ghrāṇo 'nyataś capala-dṛk kva ca karma-śaktir
+> jihvaikato 'cyuta vikarṣati māvitṛptā\
+> śiśno 'nyatas tvag-udaraṁ śravaṇaṁ kutaścit\
+> ghrāṇo 'nyataś capala-dṛk kva ca karma-śaktir\
 > bahvyaḥ sapatnya iva geha-patiṁ lunanti
 
 *jihvā*—the tongue; *ekataḥ*—to one side; *acyuta*—O my infallible Lord; *vikarṣati*—attracts; *mā*—me; *avitṛptā*—not being satisfied; *śiśnaḥ*—the genitals; *anyataḥ*—to another side; *tvak*—the skin (for touching a soft thing); *udaram*—the belly (for various types of food); *śravaṇam*—the ear (for hearing some sweet music); *kutaścit*—to some other side; *ghrāṇaḥ*—the nose (for smelling); *anyataḥ*—to still another side; *capala-dṛk*—the restless eyesight; *kva ca*—somewhere; *karma-śaktiḥ*—the active senses; *bahvyaḥ*—many; *sa-patnyaḥ*—co-wives; *iva*—like; *geha-patim*—a householder; *lunanti*—annihilate.

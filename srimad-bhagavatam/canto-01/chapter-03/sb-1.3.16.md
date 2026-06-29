@@ -1,11 +1,11 @@
 ### SB 1.3.16
 
-> सुरासुराणामुदधिं मथ्नतां मन्दराचलम् ।
+> सुरासुराणामुदधिं मथ्नतां मन्दराचलम् ।\
 > दध्रे कमठरूपेण पृष्ठ एकादशे विभुः ॥१६॥
 
-> surāsurāṇām udadhiṁ
-> mathnatāṁ mandarācalam
-> dadhre kamaṭha-rūpeṇa
+> surāsurāṇām udadhiṁ\
+> mathnatāṁ mandarācalam\
+> dadhre kamaṭha-rūpeṇa\
 > pṛṣṭha ekādaśe vibhuḥ
 
 *sura*—the theists; *asurāṇām*—of the atheists; *udadhim*—in the ocean; *mathnatām*—churning; *mandarācalam*—the Mandarācala Hill; *dadhre*—sustained; *kamaṭha*—tortoise; *rūpeṇa*—in the form of; *pṛṣṭhe*—shell; *ekādaśe*—the eleventh in the line; *vibhuḥ*—the great.

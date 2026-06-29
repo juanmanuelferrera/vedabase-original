@@ -1,11 +1,11 @@
 ### SB 1.4.4
 
-> तस्य पुत्रो महायोगी समदृङ्निर्विकल्पकः ।
+> तस्य पुत्रो महायोगी समदृङ्निर्विकल्पकः ।\
 > एकान्तमतिरुन्निद्रो गूढो मूढ इवेयते ॥४॥
 
-> tasya putro mahā-yogī
-> sama-dṛṅ nirvikalpakaḥ
-> ekānta-matir unnidro
+> tasya putro mahā-yogī\
+> sama-dṛṅ nirvikalpakaḥ\
+> ekānta-matir unnidro\
 > gūḍho mūḍha iveyate
 
 *tasya*—his; *putraḥ*—son; *mahā-yogī*—a great devotee; *sama-dṛk*—equibalanced; *nirvikalpakaḥ*—absolute monist; *ekānta-matiḥ*—fixed in monism or oneness of mind; *unnidraḥ*—surpassed nescience; *gūḍhaḥ*—not exposed; *mūḍhaḥ*—stunted; *iva*—like; *iyate*—appears like.

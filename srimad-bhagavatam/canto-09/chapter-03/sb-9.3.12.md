@@ -1,11 +1,11 @@
 ### SB 9.3.12
 
-> ग्रहं ग्रहीष्ये सोमस्य यज्ञए वामप्यसोमपोः
+> ग्रहं ग्रहीष्ये सोमस्य यज्ञए वामप्यसोमपोः\
 > क्रियतां मे वयोरूपं प्रमदानां यदीप्सितम ॥१२॥
 
-> grahaṁ grahīṣye somasya
-> yajñe vām apy asoma-poḥ
-> kriyatāṁ me vayo-rūpaṁ
+> grahaṁ grahīṣye somasya\
+> yajñe vām apy asoma-poḥ\
+> kriyatāṁ me vayo-rūpaṁ\
 > pramadānāṁ yad īpsitam
 
 *graham*—a full pot; *grahīṣye*—I shall give; *somasya*—of *soma-rasa*; *yajñe*—in sacrifice; *vām*—of both of you; *api*—although; *asoma-poḥ*—of you two, who are not eligible to drink *soma-rasa*; *kriyatām*—just execute; *me*—my; *vayaḥ*—young age; *rūpam*—beauty of a young man; *pramadānām*—of women as a class; *yat*—which is; *īpsitam*—desirable.

@@ -1,11 +1,11 @@
 ### CC Madhya 9.146
 
-> সিদ্ধান্ততস্ত্বভেদেঽপি শ্রীশ-কৃষ্ণস্বরূপয়োঃ ।
+> সিদ্ধান্ততস্ত্বভেদেঽপি শ্রীশ-কৃষ্ণস্বরূপয়োঃ ।\
 > রসেনোৎকৃষ্যতে কৃষ্ণরূপমেষা রসস্থিতিঃ ॥১৪৬॥
 
-> siddhāntatas tv abhede 'pi
-> śrīśa-kṛṣṇa-svarūpayoḥ
-> rasenotkṛṣyate kṛṣṇa-
+> siddhāntatas tv abhede 'pi\
+> śrīśa-kṛṣṇa-svarūpayoḥ\
+> rasenotkṛṣyate kṛṣṇa-\
 > rūpam eṣā rasa-sthitiḥ
 
 *siddhāntataḥ*—in reality; *tu*—but; *abhede*—no difference; *api*—although; *śrī-īśa*—of the husband of Lakṣmī, Nārāyaṇa; *kṛṣṇa*—of Lord Kṛṣṇa; *svarūpayoḥ*—between the forms; *rasena*—by transcendental mellows; *utkṛṣyate*—is superior; *kṛṣṇa-rūpam*—the form of Lord Kṛṣṇa; *eṣā*—this; *rasa-sthitiḥ*—the reservoir of pleasure.

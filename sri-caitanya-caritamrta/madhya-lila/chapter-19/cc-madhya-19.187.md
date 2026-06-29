@@ -1,9 +1,9 @@
 ### CC Madhya 19.187
 
-> হাস্য, অদ্ভুত, বীর, করুণ, রৌদ্র, বীভৎস, ভয় ।
+> হাস্য, অদ্ভুত, বীর, করুণ, রৌদ্র, বীভৎস, ভয় ।\
 > পঞ্চবিধ-ভক্তে গৌণ সপ্তরস হয় ॥১৮৭॥
 
-> hāsya, adbhuta, vīra, karuṇa, raudra, bībhatsa, bhaya
+> hāsya, adbhuta, vīra, karuṇa, raudra, bībhatsa, bhaya\
 > pañca-vidha-bhakte gauṇa sapta-rasa haya
 
 *hāsya*—laughter; *adbhuta*—wonder; *vīra*—chivalry; *karuṇa*—pathetic feeling; *raudra*—anger; *bībhatsa*—disaster; *bhaya*—fearfulness; *pañca-vidha-bhakte*—in five kinds of devotees; *gauṇa*—indirect; *sapta-rasa*—seven kinds of mellows; *haya*—there are.

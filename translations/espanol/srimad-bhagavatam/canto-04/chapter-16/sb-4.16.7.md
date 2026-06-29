@@ -1,11 +1,11 @@
 ### SB 4.16.7
 
-> तितिक्षत्यक्रमं वैन्य उपर्याक्रमतामपि ।
+> तितिक्षत्यक्रमं वैन्य उपर्याक्रमतामपि ।\
 > भूतानां करुणः शश्वदार्तानां क्षितिवृत्तिमान् ॥७॥
 
-> titikṣaty akramaṁ vainya
-> upary ākramatām api
-> bhūtānāṁ karuṇaḥ śaśvad
+> titikṣaty akramaṁ vainya\
+> upary ākramatām api\
+> bhūtānāṁ karuṇaḥ śaśvad\
 > ārtānāṁ kṣiti-vṛttimān
 
 *titikṣati*—tolera; *akramam*—ofensa; *vainyaḥ*—el hijo del rey Vena; *upari*—en su cabeza; *ākramatām*—de los que pisan; *api*—también; *bhūtānām*—con todas las entidades vivientes; *karuṇaḥ*—de muy buen corazón; *śaśvat*—siempre; *ārtānām*—a los afligidos; *kṣiti-vṛtti-mān*—aceptando la profesión de la Tierra.

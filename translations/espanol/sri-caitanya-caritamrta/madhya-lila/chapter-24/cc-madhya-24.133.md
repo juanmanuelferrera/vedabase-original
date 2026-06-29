@@ -1,13 +1,13 @@
 ### CC Madhya 24.133
 
-> অদ্বৈতবীথীপথিকৈরুপাস্যাঃ
-> স্বানন্দসিংহাসনলব্ধদীক্ষাঃ ।
-> শঠেন কেনাপি বয়ং হঠেন
+> অদ্বৈতবীথীপথিকৈরুপাস্যাঃ\
+> স্বানন্দসিংহাসনলব্ধদীক্ষাঃ ।\
+> শঠেন কেনাপি বয়ং হঠেন\
 > দাসীকৃতা গোপবধূবিটেন ॥১৩৩॥
 
-> advaita-vīthī-pathikair upāsyāḥ
-> svānanda-siṁhāsana-labdha-dīkṣāḥ
-> śaṭhena kenāpi vayaṁ haṭhena
+> advaita-vīthī-pathikair upāsyāḥ\
+> svānanda-siṁhāsana-labdha-dīkṣāḥ\
+> śaṭhena kenāpi vayaṁ haṭhena\
 > dāsī-kṛtā gopa-vadhū-viṭena
 
 *advaita-vīthī*—del sendero del monismo; *pathikaiḥ*—por los caminantes; *upāsyāḥ*—adorable; *svānanda*—de la autorrealización; *siṁhāsana*—en el trono; *labdha-dīkṣāḥ*—habiendo sido iniciada; *śaṭhena*—por un embaucador; *kenāpi*—algún; *vayam*—yo; *haṭhena*—a la fuerza; *dāsī-kṛtā*—convertida en sirvienta; *gopa-vadhū-viṭena*—que se ocupa en bromear con las gopīs.

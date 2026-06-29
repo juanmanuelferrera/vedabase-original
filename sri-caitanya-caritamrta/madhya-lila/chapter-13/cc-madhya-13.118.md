@@ -1,9 +1,9 @@
 ### CC Madhya 13.118
 
-> গৌর যদি পাছে চলে, শ্যাম হয় স্থিরে ।
+> গৌর যদি পাছে চলে, শ্যাম হয় স্থিরে ।\
 > গৌর আগে চলে, শ্যাম চলে ধীরে-ধীরে ॥১১৮॥
 
-> gaura yadi pāche cale, śyāma haya sthire
+> gaura yadi pāche cale, śyāma haya sthire\
 > gaura āge cale, śyāma cale dhīre-dhīre
 
 *gaura*—Śrī Caitanya Mahāprabhu; *yadi*—if; *pāche cale*—goes behind; *śyāma*—Jagannātha; *haya*—becomes; *sthire*—still; *gaura*—Śrī Caitanya Mahāprabhu; *āge cale*—goes forward; *śyāma*—Lord Jagannātha; *cale*—goes; *dhīre-dhīre*—slowly.

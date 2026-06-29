@@ -1,13 +1,13 @@
 ### SB 2.7.31
 
-> नन्दं च मोक्ष्यति भयाद्वरुणस्य पाशाद्
-> गोपान्बिलेषु पिहितान्मयसूनुना च ।
-> अह्न्यापृतं निशि शयानमतिश्रमेण
+> नन्दं च मोक्ष्यति भयाद्वरुणस्य पाशाद्\
+> गोपान्बिलेषु पिहितान्मयसूनुना च ।\
+> अह्न्यापृतं निशि शयानमतिश्रमेण\
 > लोकं विकुण्ठमुपनेष्यति गोकुलं स्म ॥३१॥
 
-> nandaṁ ca mokṣyati bhayād varuṇasya pāśād
-> gopān bileṣu pihitān maya-sūnunā ca
-> ahny āpṛtaṁ niśi śayānam atiśrameṇa
+> nandaṁ ca mokṣyati bhayād varuṇasya pāśād\
+> gopān bileṣu pihitān maya-sūnunā ca\
+> ahny āpṛtaṁ niśi śayānam atiśrameṇa\
 > lokaṁ vikuṇṭham upaneṣyati gokulaṁ sma
 
 *nandam*—unto Nanda (the father of Kṛṣṇa); *ca*—also; *mokṣyati*—saves; *bhayāt*—from the fear of; *varuṇasya*—of Varuṇa, the demigod of water; *pāśāt*—from the clutches of; *gopān*—the cowherd men; *bileṣu*—in the caves of the mountain; *pihitān*—placed; *maya-sūnunā*—by the son of Maya; *ca*—also; *ahni āpṛtam*—being very engaged during the daytime; *niśi*—at night; *śayānam*—lying down; *atiśrameṇa*—because of hard labor; *lokam*—planet; *vikuṇṭham*—the spiritual sky; *upaneṣyati*—He awarded; *gokulam*—the highest planet; *sma*—certainly.

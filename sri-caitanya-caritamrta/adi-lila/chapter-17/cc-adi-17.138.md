@@ -1,9 +1,9 @@
 ### CC Adi 17.138
 
-> বৃন্দাবনদাস ইহা ‘চৈতন্যমঙ্গলে’ ।
+> বৃন্দাবনদাস ইহা ‘চৈতন্যমঙ্গলে’ ।\
 > বিস্তারি’ বর্ণিয়াছেন, প্রভু-কৃপাবলে ॥১৩৮॥
 
-> vṛndāvana-dāsa ihā 'caitanya-maṅgale'
+> vṛndāvana-dāsa ihā 'caitanya-maṅgale'\
 > vistāri' varṇiyāchena, prabhu-kṛpā-bale
 
 *vṛndāvana-dāsa*—Vṛndāvana dāsa Ṭhākura; *ihā*—this; *caitanya-maṅgale*—in his book named *Caitanya-maṅgala*; *vistāri'*—elaborately; *varṇiyāchena*—has described; *prabhu*—of the Lord; *kṛpā-bale*—by the strength of mercy.

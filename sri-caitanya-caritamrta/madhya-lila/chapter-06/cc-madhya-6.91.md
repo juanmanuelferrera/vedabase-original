@@ -1,9 +1,9 @@
 ### CC Madhya 6.91
 
-> তবু ত’ ঈশ্বর-জ্ঞান না হয় তোমার  ।
+> তবু ত’ ঈশ্বর-জ্ঞান না হয় তোমার  ।\
 > ঈশ্বরের মায়া এই — বলি ব্যবহার ॥৯১॥
 
-> tabu ta' īśvara-jñāna nā haya tomāra
+> tabu ta' īśvara-jñāna nā haya tomāra\
 > īśvarera māyā ei—bali vyavahāra
 
 *tabu ta'*—still, however; *īśvara-jñāna*—knowledge of the Supreme Personality of Godhead; *nā*—not; *haya*—there is; *tomāra*—your; *īśvarera*—of the Lord; *māyā*—the illusion; *ei*—this; *bali*—saying; *vyavahāra*—the general term.

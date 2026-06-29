@@ -1,9 +1,9 @@
 ### CC Madhya 9.272
 
-> সন্ন্যাসী দেখিয়া মোরে করহ বঞ্চন ।
+> সন্ন্যাসী দেখিয়া মোরে করহ বঞ্চন ।\
 > না কহিলা তেঞি সাধ্য-সাধন-লক্ষণ ॥২৭২॥
 
-> sannyāsī dekhiyā more karaha vañcana
+> sannyāsī dekhiyā more karaha vañcana\
 > nā kahilā teñi sādhya-sādhana-lakṣaṇa
 
 *sannyāsī*—a person in the renounced order of life; *dekhiyā*—seeing; *more*—unto Me; *karaha*—you do; *vañcana*—duplicity; *nā kahilā*—did not describe; *teñi*—therefore; *sādhya*—objective; *sādhana*—process of achievement; *lakṣaṇa*—symptoms.

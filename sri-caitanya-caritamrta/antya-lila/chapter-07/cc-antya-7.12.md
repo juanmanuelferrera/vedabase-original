@@ -1,9 +1,9 @@
 ### CC Antya 7.12
 
-> তাহা প্রবর্তাইলা তুমি, — এই ত ‘প্রমাণ’ ।
+> তাহা প্রবর্তাইলা তুমি, — এই ত ‘প্রমাণ’ ।\
 > কৃষ্ণশক্তি ধর তুমি, — ইথে নাহি আন ॥১২॥
 
-> tāhā pravartāilā tumi,—ei ta 'pramāṇa'
+> tāhā pravartāilā tumi,—ei ta 'pramāṇa'\
 > kṛṣṇa-śakti dhara tumi,—ithe nāhi āna
 
 *tāhā*—that; *pravartāilā*—have propagated; *tumi*—You; *ei*—this; *ta*—certainly; *pramāṇa*—evidence; *kṛṣṇa-śakti*—the energy of Kṛṣṇa; *dhara*—bear; *tumi*—You; *ithe nāhi āna*—there is no question about it.

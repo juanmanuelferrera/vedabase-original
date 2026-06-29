@@ -1,9 +1,9 @@
 ### CC Antya 1.201
 
-> তোমার যৈছে বিষয়ত্যাগ, তৈছে তাঁর রীতি ।
+> তোমার যৈছে বিষয়ত্যাগ, তৈছে তাঁর রীতি ।\
 > দৈন্য-বৈরাগ্য-পাণ্ডিত্যের তাঁহাতেই স্থিতি ॥২০১॥
 
-> tomāra yaiche viṣaya-tyāga, taiche tāṅra rīti
+> tomāra yaiche viṣaya-tyāga, taiche tāṅra rīti\
 > dainya-vairāgya-pāṇḍityera tāṅhātei sthiti
 
 *tomāra*—tu; *yaiche*—al igual que; *viṣaya-tyāga*—renunciación de las relaciones materiales; *taiche*—de manera similar; *tāṅra rīti*—su modo de actuar; *dainya*—humildad; *vairāgya*—renunciación; *pāṇḍityera*—de erudición; *tāṅhātei*—en él; *sthiti*—presente.

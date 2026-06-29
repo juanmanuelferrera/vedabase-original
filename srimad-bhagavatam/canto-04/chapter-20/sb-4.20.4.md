@@ -1,11 +1,11 @@
 ### SB 4.20.4
 
-> पुरुषा यदि मुह्यन्ति त्वादृशा देवमायया ।
+> पुरुषा यदि मुह्यन्ति त्वादृशा देवमायया ।\
 > श्रम एव परं जातो दीर्घया वृद्धसेवया ॥४॥
 
-> puruṣā yadi muhyanti
-> tvādṛśā deva-māyayā
-> śrama eva paraṁ jāto
+> puruṣā yadi muhyanti\
+> tvādṛśā deva-māyayā\
+> śrama eva paraṁ jāto\
 > dīrghayā vṛddha-sevayā
 
 *puruṣāḥ*—persons; *yadi*—if; *muhyanti*—become bewildered; *tvādṛśāḥ*—like you; *deva*—of the Supreme Lord; *māyayā*—by the energy; *śramaḥ*—exertion; *eva*—certainly; *param*—only; *jātaḥ*—produced; *dīrghayā*—for a long time; *vṛddha-sevayā*—by serving the superiors.

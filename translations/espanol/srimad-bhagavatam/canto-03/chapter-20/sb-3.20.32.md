@@ -1,11 +1,11 @@
 ### SB 3.20.32
 
-> अहो रूपमहो धैर्यमहो अस्या नवं वयः ।
+> अहो रूपमहो धैर्यमहो अस्या नवं वयः ।\
 > मध्ये कामयमानानामकामेव विसर्पति ॥३२॥
 
-> aho rūpam aho dhairyam
-> aho asyā navaṁ vayaḥ
-> madhye kāmayamānānām
+> aho rūpam aho dhairyam\
+> aho asyā navaṁ vayaḥ\
+> madhye kāmayamānānām\
 > akāmeva visarpati
 
 *aho*—¡oh!; *rūpam*—¡qué belleza!; *aho*—¡oh!; *dhairyam*—¡qué soltura!; *aho*—¡oh!; *asyāḥ*—de ella; *navam*—tierna; *vayaḥ*—juventud; *madhye*—en medio; *kāmayamānānām*—de los que apasionadamente la desean; *akāmā*—libre de pasión; *iva*—como; *visarpati*—paseando con nosotros.

@@ -1,11 +1,11 @@
 ### SB 3.19.36
 
-> तं सुखाराध्यमृजुभिरनन्यशरणैर्नृभिः ।
+> तं सुखाराध्यमृजुभिरनन्यशरणैर्नृभिः ।\
 > कृतज्ञः को न सेवेत दुराराध्यमसाधुभिः ॥३६॥
 
-> taṁ sukhārādhyam ṛjubhir
-> ananya-śaraṇair nṛbhiḥ
-> kṛtajñaḥ ko na seveta
+> taṁ sukhārādhyam ṛjubhir\
+> ananya-śaraṇair nṛbhiḥ\
+> kṛtajñaḥ ko na seveta\
 > durārādhyam asādhubhiḥ
 
 *tam*—a Él; *sukha*—fácilmente; *ārādhyam*—adorado; *ṛjubhiḥ*—por los modestos; *ananya*—nadie más; *śaraṇaiḥ*—que se refugian; *nṛbhiḥ*—por hombres; *kṛta-jñaḥ*—alma agradecida; *kaḥ*—qué; *na*—no; *seveta*—ofrecería servicio; *durārādhyam*—imposible que sea adorado; *asādhubhiḥ*—por los no devotos.

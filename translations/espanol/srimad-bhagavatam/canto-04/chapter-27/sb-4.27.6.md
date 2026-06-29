@@ -1,11 +1,11 @@
 ### SB 4.27.6
 
-> तस्यामजनयत्पुत्रान्पुरञ्जन्यां पुरञ्जनः ।
+> तस्यामजनयत्पुत्रान्पुरञ्जन्यां पुरञ्जनः ।\
 > शतान्येकादश विराडायुषोऽर्धमथात्यगात् ॥६॥
 
-> tasyām ajanayat putrān
-> purañjanyāṁ purañjanaḥ
-> śatāny ekādaśa virāḍ
+> tasyām ajanayat putrān\
+> purañjanyāṁ purañjanaḥ\
+> śatāny ekādaśa virāḍ\
 > āyuṣo 'rdham athātyagāt
 
 *tasyām*—en ella; *ajanayat*—engendró; *putrān*—hijos varones; *purañjanyām*—en Purañjanī; *purañjanaḥ*—el rey Purañjana; *śatāni*—cientos; *ekādaśa*—once; *virāṭ*—¡oh, rey!; *āyuṣaḥ*—de vida; *ardham*—mitad; *atha*—de esa forma; *atyagāt*—pasó.

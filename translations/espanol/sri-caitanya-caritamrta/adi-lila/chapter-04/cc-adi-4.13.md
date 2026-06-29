@@ -1,9 +1,9 @@
 ### CC Adi 4.13
 
-> অতএব বিষ্ণু তখন কৃষ্ণের শরীরে ।
+> অতএব বিষ্ণু তখন কৃষ্ণের শরীরে ।\
 > বিষ্ণুদ্বারে করে কৃষ্ণ অসুর-সংহারে ॥১৩॥
 
-> ataeva viṣṇu takhana kṛṣṇera śarīre
+> ataeva viṣṇu takhana kṛṣṇera śarīre\
 > viṣṇu-dvāre kare kṛṣṇa asura-saṁhāre
 
 *ataeva*—por lo tanto; *viṣṇu*—el Señor Viṣṇu; *takhana*—en ese momento; *kṛṣṇera*—del Señor Kṛṣṇa; *śarīre*—en el cuerpo; *viṣṇu-dvāre*—por medio del Señor Viṣṇu; *kare*—hace; *kṛṣṇa*—el Señor Kṛṣṇa; *asura-saṁhāre*—matar a los demonios.

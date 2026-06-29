@@ -1,11 +1,11 @@
 ### SB 8.5.28
 
-> अजस्य चक्रं त्वजयेर्यमाणं मनोमयं पञ्चदशारमाशु
+> अजस्य चक्रं त्वजयेर्यमाणं मनोमयं पञ्चदशारमाशु\
 > त्रिनाभि विद्युच्चलमष्टनेमि यदक्षमाहुस्तमृतं प्रपद्ये ॥२८॥
 
-> ajasya cakraṁ tv ajayeryamāṇaṁ
-> manomayaṁ pañcadaśāram āśu
-> tri-nābhi vidyuc-calam aṣṭa-nemi
+> ajasya cakraṁ tv ajayeryamāṇaṁ\
+> manomayaṁ pañcadaśāram āśu\
+> tri-nābhi vidyuc-calam aṣṭa-nemi\
 > yad-akṣam āhus tam ṛtaṁ prapadye
 
 *saṅkīrtana*—yajña. En esa encarnación, el Señor Supremo dice que Él no es el Señor Supremo; *esa es la razón por la que se Le da el nombre de Tri*—yuga.

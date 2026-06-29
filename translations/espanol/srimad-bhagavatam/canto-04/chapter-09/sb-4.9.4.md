@@ -1,11 +1,11 @@
 ### SB 4.9.4
 
-> स तं विवक्षन्तमतद्विदं हरिर्ज्ञात्वास्य सर्वस्य च हृद्यवस्थितः ।
+> स तं विवक्षन्तमतद्विदं हरिर्ज्ञात्वास्य सर्वस्य च हृद्यवस्थितः ।\
 > कृताञ्जलिं ब्रह्ममयेन कम्बुना पस्पर्श बालं कृपया कपोले ॥४॥
 
-> sa taṁ vivakṣantam atad-vidaṁ harir
-> jñātvāsya sarvasya ca hṛdy avasthitaḥ
-> kṛtāñjaliṁ brahmamayena kambunā
+> sa taṁ vivakṣantam atad-vidaṁ harir\
+> jñātvāsya sarvasya ca hṛdy avasthitaḥ\
+> kṛtāñjaliṁ brahmamayena kambunā\
 > pasparśa bālaṁ kṛpayā kapole
 
 *saḥ*—la Suprema Personalidad de Dios; *tam*—a Dhruva Mahārāja; *vivakṣantam*—que quería ofrecer oraciones glorificando Sus cualidades; *a-tat-vidam*—sin experiencia en ello; *hariḥ*—la Personalidad de Dios; *jñātvā*—habiendo comprendido; *asya*—de Dhruva Mahārāja; *sarvasya*—de todos; *ca*—y; *hṛdi*—en el corazón; *avasthitaḥ*—estando situado; *kṛta-añjalim*—con las manos juntas; *brahma-mayena*—de la misma naturaleza que las palabras de los himnos védicos; *kambunā*—con Su caracola; *pasparśa*—tocó; *bālam*—al niño; *kṛpayā*—por misericordia sin causa; *kapole*—en la frente.

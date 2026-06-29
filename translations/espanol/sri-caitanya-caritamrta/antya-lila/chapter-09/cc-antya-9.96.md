@@ -1,9 +1,9 @@
 ### CC Antya 9.96
 
-> কোন্ ছার পদার্থ এই দুইলক্ষ কাহন ?
+> কোন্ ছার পদার্থ এই দুইলক্ষ কাহন ?\
 > প্রাণ-রাজ্য করোঁ প্রভুপদে নির্মঞ্ছন ।।” ॥ ৯৬ ॥
 
-> kon chāra padārtha ei dui-lakṣa kāhana?
+> kon chāra padārtha ei dui-lakṣa kāhana?\
 > prāṇa-rājya karoṅ prabhu-pade nirmañchana"
 
 *kon*—qué; *chāra*—insignificante; *padārtha*—cosa; *ei*—estas; *dui-lakṣa kāhana*—los pies de loto de Śrī Caitanya Mahāprabhu; *nirmañchana*—sacrificando.

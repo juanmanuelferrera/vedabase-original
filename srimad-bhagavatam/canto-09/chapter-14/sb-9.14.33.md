@@ -1,11 +1,11 @@
 ### SB 9.14.33
 
-> स तां वीक्ष्य कुरुक्षेत्रे सरस्वत्यां च तत्सखीः
+> स तां वीक्ष्य कुरुक्षेत्रे सरस्वत्यां च तत्सखीः\
 > पञ्च प्रहृष्टवदनः प्राह सूक्तं पुरूरवाः ॥३३॥
 
-> sa tāṁ vīkṣya kurukṣetre
-> sarasvatyāṁ ca tat-sakhīḥ
-> pañca prahṛṣṭa-vadanaḥ
+> sa tāṁ vīkṣya kurukṣetre\
+> sarasvatyāṁ ca tat-sakhīḥ\
+> pañca prahṛṣṭa-vadanaḥ\
 > prāha sūktaṁ purūravāḥ
 
 *saḥ*—he, Purūravā; *tām*—Urvaśī; *vīkṣya*—observing; *kurukṣetre*—at the place known as Kurukṣetra; *sarasvatyām*—on the bank of the Sarasvatī; *ca*—also; *tat-sakhīḥ*—her companions; *pañca*—five; *prahṛṣṭa-vadanaḥ*—being very happy and smiling; *prāha*—said; *sūktam*—sweet words; *purūravāḥ*—King Purūravā.

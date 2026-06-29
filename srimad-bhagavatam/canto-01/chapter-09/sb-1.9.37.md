@@ -1,11 +1,11 @@
 ### SB 1.9.37
 
-> स्वनिगममपहाय मत्प्रतिज्ञामृतमधिकर्तुमवप्लुतो रथस्थः ।
+> स्वनिगममपहाय मत्प्रतिज्ञामृतमधिकर्तुमवप्लुतो रथस्थः ।\
 > धृतरथचरणोऽभ्ययाच्चलद्गुर्हरिरिव हन्तुमिभं गतोत्तरीयः ॥३७॥
 
-> sva-nigamam apahāya mat-pratijñām
-> ṛtam adhikartum avapluto rathasthaḥ
-> dhṛta-ratha-caraṇo 'bhyayāc caladgur
+> sva-nigamam apahāya mat-pratijñām\
+> ṛtam adhikartum avapluto rathasthaḥ\
+> dhṛta-ratha-caraṇo 'bhyayāc caladgur\
 > harir iva hantum ibhaṁ gatottarīyaḥ
 
 *sva-nigamam*—own truthfulness; *apahāya*—for nullifying; *mat-pratijñām*—my own promise; *ṛtam*—factual; *adhi*—more; *kartum*—for doing it; *avaplutaḥ*—getting down; *ratha-sthaḥ*—from the chariot; *dhṛta*—taking up; *ratha*—chariot; *caraṇaḥ*—wheel; *abhyayāt*—went hurriedly; *caladguḥ*—trampling the earth; *hariḥ*—lion; *iva*—like; *hantum*—to kill; *ibham*—elephant; *gata*—leaving aside; *uttarīyaḥ*—covering cloth.

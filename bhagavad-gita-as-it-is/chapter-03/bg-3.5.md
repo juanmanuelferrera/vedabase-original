@@ -1,11 +1,11 @@
 ### Bg 3.5
 
-> न हि कश्चित्क्षणमपि जातु तिष्ठत्यकर्मकृत् ।
+> न हि कश्चित्क्षणमपि जातु तिष्ठत्यकर्मकृत् ।\
 > कार्यते ह्यवशः कर्म सर्वः प्रकृतिजैर्गुणैः ॥५॥
 
-> na hi kaścit kṣaṇam api
-> jātu tiṣṭhaty akarma-kṛt
-> kāryate hy avaśaḥ karma
+> na hi kaścit kṣaṇam api\
+> jātu tiṣṭhaty akarma-kṛt\
+> kāryate hy avaśaḥ karma\
 > sarvaḥ prakṛti-jair guṇaiḥ
 
 *na*—nor; *hi*—certainly; *kaścit*—anyone; *kṣaṇam*—even a moment; *api*—also; *jātu*—even; *tiṣṭhati*—stands; *akarma-kṛt*—without doing something; *kāryate*—is forced to do; *hi*—certainly; *avaśaḥ*—helplessly; *karma*—work; *sarvaḥ*—everything; *prakṛti-jaiḥ*—out of the modes of material nature; *guṇaiḥ*—by the qualities.

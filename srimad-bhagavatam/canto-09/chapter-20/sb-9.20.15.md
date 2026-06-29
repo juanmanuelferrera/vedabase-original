@@ -1,13 +1,13 @@
 ### SB 9.20.15
 
-> श्रीदुष्मन्त उवाच
-> उपपन्नमिदं सुभ्रु जातायाः कुशिकान्वये
+> श्रीदुष्मन्त उवाच\
+> उपपन्नमिदं सुभ्रु जातायाः कुशिकान्वये\
 > स्वयं हि वृणुते राज्ञआं कन्यकाः सदृशं वरम ॥१५॥
 
-> śrī-duṣmanta uvāca
-> upapannam idaṁ subhru
-> jātāyāḥ kuśikānvaye
-> svayaṁ hi vṛṇute rājñāṁ
+> śrī-duṣmanta uvāca\
+> upapannam idaṁ subhru\
+> jātāyāḥ kuśikānvaye\
+> svayaṁ hi vṛṇute rājñāṁ\
 > kanyakāḥ sadṛśaṁ varam
 
 *śrī-duṣmantaḥ uvāca*—King Duṣmanta replied; *upapannam*—just befitting your position; *idam*—this; *su-bhru*—O Śakuntalā, with beautiful eyebrows; *jātāyāḥ*—because of your birth; *kuśika-anvaye*—in the family of Viśvāmitra; *svayam*—personally; *hi*—indeed; *vṛṇute*—select; *rājñām*—of a royal family; *kanyakāḥ*—daughters; *sadṛśam*—on an equal level; *varam*—husbands.

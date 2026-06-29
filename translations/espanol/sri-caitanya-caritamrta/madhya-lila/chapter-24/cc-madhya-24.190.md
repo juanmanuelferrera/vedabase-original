@@ -1,13 +1,13 @@
 ### CC Madhya 24.190
 
-> তে বৈ বিদন্ত্যতিতরন্তি চ দেবমায়াং
-> স্ত্রীশূদ্রহূনশবরা অপি পাপজীবাঃ ।
-> যদ্যদ্ভুতক্রমপরায়ণ-শীল-শিক্ষা-
+> তে বৈ বিদন্ত্যতিতরন্তি চ দেবমায়াং\
+> স্ত্রীশূদ্রহূনশবরা অপি পাপজীবাঃ ।\
+> যদ্যদ্ভুতক্রমপরায়ণ-শীল-শিক্ষা-\
 > স্তির্যগ্জনা অপি কিমু শ্রুতধারণা যে ॥১৯০॥
 
-> te vai vidanty atitaranti ca deva-māyāṁ
-> strī-śūdra-hūna-śabarā api pāpa-jīvāḥ
-> yady adbhuta-krama-parāyaṇa-śīla-śikṣās
+> te vai vidanty atitaranti ca deva-māyāṁ\
+> strī-śūdra-hūna-śabarā api pāpa-jīvāḥ\
+> yady adbhuta-krama-parāyaṇa-śīla-śikṣās\
 > tiryag-janā api kimu śruta-dhāraṇā ye
 
 *te*—todos ellos; *vai*—ciertamente; *vidanti*—comprenden; *atitaranti*—cruzan; *ca*—también; *deva-māyām*—la influencia de la energía ilusoria externa; *strī*—mujeres; *śūdra*—hombres de cuarta clase; *hūna*—tribus de las montañas incivilizadas; *śabarāḥ*—y cazadores; *api*—incluso; *pāpa-jīvāḥ*—criaturas pecaminosas; *yadi*—si; *adbhuta-krama*—de aquel que ejecuta actividades maravillosas; *parāyaṇa*—de los devotos; *śīla-śikṣāḥ*—características y educación; *tiryak-janāḥ*—pájaros y bestias; *api*—incluso; *kimu*—qué decir; *śruta-dhāraṇāḥ ye*—personas avanzadas en el conocimiento Védico.

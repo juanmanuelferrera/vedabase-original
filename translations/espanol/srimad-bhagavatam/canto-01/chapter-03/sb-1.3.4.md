@@ -1,11 +1,11 @@
 ### SB 1.3.4
 
-> पश्यन्त्यदो रूपमदभ्रचक्षुषा सहस्रपादोरुभुजाननाद्भुतम् ।
+> पश्यन्त्यदो रूपमदभ्रचक्षुषा सहस्रपादोरुभुजाननाद्भुतम् ।\
 > सहस्रमूर्धश्रवणाक्षिनासिकं सहस्रमौल्यम्बरकुण्डलोल्लसत् ॥४॥
 
-> paśyanty ado rūpam adabhra-cakṣuṣā
-> sahasra-pādoru-bhujānanādbhutam
-> sahasra-mūrdha-śravaṇākṣi-nāsikaṁ
+> paśyanty ado rūpam adabhra-cakṣuṣā\
+> sahasra-pādoru-bhujānanādbhutam\
+> sahasra-mūrdha-śravaṇākṣi-nāsikaṁ\
 > sahasra-mauly-ambara-kuṇḍalollasat
 
 *paśyanti*—ven; *adaḥ*—la forma del *puruṣa*; *rūpam*—forma; *adabhra*—perfecto; *cakṣuṣā*—mediante los ojos; *sahasra-pāda*—miles de piernas; *ūru*—muslos; *bhuja-ānana*—manos y caras; *adbhutam*—maravillosos; *sahasra*—miles de; *mūrdha*—cabezas; *śravaṇa*—orejas; *akṣi*—ojos; *nāsikam*—narices; *sahasra*—miles; *mauli*—guirnaldas; *ambara*—atuendos; *kuṇḍala*—aretes; *ullasat*—todos refulgentes.

@@ -1,11 +1,11 @@
 ### CC Madhya 22.150
 
-> ইষ্টে স্বারসিকী রাগঃ পরমাবিষ্টতা ভবেত্ ।
+> ইষ্টে স্বারসিকী রাগঃ পরমাবিষ্টতা ভবেত্ ।\
 > তন্ময়ী যা ভবেদ্ভক্তিঃ সাত্র রাগাত্মিকোদিতা ॥১৫০॥
 
-> iṣṭe svārasikī rāgaḥ
-> paramāviṣṭatā bhavet
-> tanmayī yā bhaved bhaktiḥ
+> iṣṭe svārasikī rāgaḥ\
+> paramāviṣṭatā bhavet\
+> tanmayī yā bhaved bhaktiḥ\
 > sātra rāgātmikoditā
 
 *iṣṭe*—unto the desired object of life; *svārasikī*—appropriate for one's own original aptitude of love; *rāgaḥ*—attachment; *parama-āviṣṭatā*—absorption in the service of the Lord; *bhavet*—is; *tat-mayī*—consisting of that transcendental attachment; *yā*—which; *bhavet*—is; *bhaktiḥ*—devotional service; *sā*—that; *atra*—here; *rāgātmikā-uditā*—called *rāgātmikā,* or spontaneous devotional service.

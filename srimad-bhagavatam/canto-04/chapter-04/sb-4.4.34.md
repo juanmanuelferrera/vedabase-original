@@ -1,11 +1,11 @@
 ### SB 4.4.34
 
-> तैरलातायुधैः सर्वे प्रमथाः सहगुह्यकाः ।
+> तैरलातायुधैः सर्वे प्रमथाः सहगुह्यकाः ।\
 > हन्यमाना दिशो भेजुरुशद्भिर्ब्रह्मतेजसा ॥३४॥
 
-> tair alātāyudhaiḥ sarve
-> pramathāḥ saha-guhyakāḥ
-> hanyamānā diśo bhejur
+> tair alātāyudhaiḥ sarve\
+> pramathāḥ saha-guhyakāḥ\
+> hanyamānā diśo bhejur\
 > uśadbhir brahma-tejasā
 
 *taiḥ*—by them; *alāta-āyudhaiḥ*—with weapons of firebrands; *sarve*—all; *pramathāḥ*—the ghosts; *saha-guhyakāḥ*—along with the Guhyakas; *hanyamānāḥ*—being attacked; *diśaḥ*—in different directions; *bhejuḥ*—fled; *uśadbhiḥ*—glowing; *brahma-tejasā*—by brahminical power.

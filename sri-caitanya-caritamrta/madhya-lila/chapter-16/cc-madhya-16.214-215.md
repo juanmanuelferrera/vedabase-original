@@ -1,14 +1,14 @@
 ### CC Madhya 16.214-215
 
-> তার মধ্যে মিলিলা যৈছে রূপ-সনাতন ।
-> নৃসিংহানন্দ কৈল যৈছে পথের সাজন ॥২১৪॥
-> সুত্রমধ্যে সেই লীলা আমি ত’ বর্ণিলুঁ ।
+> তার মধ্যে মিলিলা যৈছে রূপ-সনাতন ।\
+> নৃসিংহানন্দ কৈল যৈছে পথের সাজন ॥২১৪॥\
+> সুত্রমধ্যে সেই লীলা আমি ত’ বর্ণিলুঁ ।\
 > অতএব পুনঃ তাহা ইহাঁ না লিখিলুঁ ॥২১৫॥
 
-> tāra madhye mililā yaiche rūpa-sanātana
+> tāra madhye mililā yaiche rūpa-sanātana\
 > nṛsiṁhānanda kaila yaiche pathera sājana
 
-> sūtra-madhye sei līlā āmi ta' varṇiluṅ
+> sūtra-madhye sei līlā āmi ta' varṇiluṅ\
 > ataeva punaḥ tāhā ihāṅ nā likhiluṅ
 
 *tāra madhye*—within that; *mililā*—He met; *yaiche*—how; *rūpa-sanātana*—the two brothers Rūpa and Sanātana; *nṛsiṁhānanda*—Nṛsiṁhānanda; *kaila*—did; *yaiche*—how; *pathera sājana*—decoration of the road; *sūtra-madhye*—in the synopsis; *sei līlā*—those pastimes; *āmi*—I; *ta'*—indeed; *varṇiluṅ*—have described; *ataeva*—therefore; *punaḥ*—again; *tāhā*—that; *ihāṅ*—here; *nā likhiluṅ*—I have not written.

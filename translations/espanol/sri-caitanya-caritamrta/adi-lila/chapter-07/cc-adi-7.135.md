@@ -1,9 +1,9 @@
 ### CC Adi 7.135
 
-> সকল সন্ন্যাসী কহে, — ‘শুনহ শ্রীপাদ ।
+> সকল সন্ন্যাসী কহে, — ‘শুনহ শ্রীপাদ ।\
 > তুমি যে খণ্ডিলে অর্থ, এ নহে বিবাদ ॥১৩৫॥
 
-> sakala sannyāsī kahe,--'śunaha śrīpāda
+> sakala sannyāsī kahe,--'śunaha śrīpāda\
 > tumi ye khaṇḍile artha, e nahe vivāda
 
 *sakala*—todos; *sannyāsī*—los sannyāsīs māyāvādīs; *kahe*—dicen; *śunaha*—escuche por favor; *śrīpāda*—Su Santidad; *tumi*—Tú; *ye*—que; *khaṇḍile*—refutaste; *artha*—significado; *e*—esto; *nahe*—no es; *vivāda*—disputa.

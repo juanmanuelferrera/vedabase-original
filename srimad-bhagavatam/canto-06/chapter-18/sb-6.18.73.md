@@ -1,11 +1,11 @@
 ### SB 6.18.73
 
-> ततस्तत्परमाश्चर्यं वीक्ष्य व्यवसितं मया
+> ततस्तत्परमाश्चर्यं वीक्ष्य व्यवसितं मया\
 > महापुरुषपूजायाः सिद्धिः काप्यानुषङ्गिणी ॥७३॥
 
-> tatas tat paramāścaryaṁ
-> vīkṣya vyavasitaṁ mayā
-> mahāpuruṣa-pūjāyāḥ
+> tatas tat paramāścaryaṁ\
+> vīkṣya vyavasitaṁ mayā\
+> mahāpuruṣa-pūjāyāḥ\
 > siddhiḥ kāpy ānuṣaṅgiṇī
 
 *tataḥ*—then; *tat*—that; *parama-āścaryam*—great wonder; *vīkṣya*—seeing; *vyavasitam*—it was decided; *mayā*—by me; *mahā-puruṣa*—of Lord Viṣṇu; *pūjāyāḥ*—of worship; *siddhiḥ*—result; *kāpi*—some; *ānuṣaṅgiṇī*—secondary.

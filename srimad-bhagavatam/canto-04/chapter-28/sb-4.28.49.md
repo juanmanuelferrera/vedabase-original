@@ -1,11 +1,11 @@
 ### SB 4.28.49
 
-> एवं विलपन्ती बाला विपिनेऽनुगता पतिम् ।
+> एवं विलपन्ती बाला विपिनेऽनुगता पतिम् ।\
 > पतिता पादयोर्भर्तू रुदत्यश्रूण्यवर्तयत् ॥४९॥
 
-> evaṁ vilapantī bālā
-> vipine 'nugatā patim
-> patitā pādayor bhartū
+> evaṁ vilapantī bālā\
+> vipine 'nugatā patim\
+> patitā pādayor bhartū\
 > rudaty aśrūṇy avartayat
 
 *evam*—thus; *vilapantī*—lamenting; *bālā*—the innocent woman; *vipine*—in the solitary forest; *anugatā*—strictly adherent; *patim*—unto her husband; *patitā*—fallen down; *pādayoḥ*—at the feet; *bhartuḥ*—of her husband; *rudatī*—while crying; *aśrūṇi*—tears; *avartayat*—she shed.

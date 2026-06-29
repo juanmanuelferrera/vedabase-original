@@ -1,9 +1,9 @@
 ### CC Madhya 25.78
 
-> প্রভু কহে, — ‘বিষ্ণু’ ‘বিষ্ণু’, আমি ক্ষুদ্র জীব হীন ।
+> প্রভু কহে, — ‘বিষ্ণু’ ‘বিষ্ণু’, আমি ক্ষুদ্র জীব হীন ।\
 > জীবে ‘বিষ্ণু’ মানি — এই অপরাধ-চিহ্ন ॥৭৮॥
 
-> prabhu kahe,-'viṣṇu' 'viṣṇu', āmi kṣudra jīva hīna
+> prabhu kahe,-'viṣṇu' 'viṣṇu', āmi kṣudra jīva hīna\
 > jīve 'viṣṇu' māni-ei aparādha-cihna
 
 *prabhu kahe*—Lord Śrī Caitanya Mahāprabhu said; *viṣṇu viṣṇu*—the holy name of Viṣṇu; *āmi*—I; *kṣudra*—infinitesimal; *jīva*—a living entity; *hīna*—bereft of all good qualities; *jīve*—such a low-grade living entity; *viṣṇu māni*—accepting as Lord Viṣṇu or the Personality of Godhead; *ei aparādha-cihna*—this is a great offense.

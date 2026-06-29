@@ -1,11 +1,11 @@
 ### SB 9.3.18
 
-> यक्ष्यमाणोऽथ शर्यातिश्च्यवनस्याश्रमं गतः
+> यक्ष्यमाणोऽथ शर्यातिश्च्यवनस्याश्रमं गतः\
 > ददर्श दुहितुः पार्श्वे पुरुषं सूर्यवर्चसम ॥१८॥
 
-> yakṣyamāṇo 'tha śaryātiś
-> cyavanasyāśramaṁ gataḥ
-> dadarśa duhituḥ pārśve
+> yakṣyamāṇo 'tha śaryātiś\
+> cyavanasyāśramaṁ gataḥ\
+> dadarśa duhituḥ pārśve\
 > puruṣaṁ sūrya-varcasam
 
 *yakṣyamāṇaḥ*—desiring to perform a *yajña*; *atha*—thus; *śaryātiḥ*—King Śaryāti; *cyavanasya*—of Cyavana Muni; *āśramam*—to the residence; *gataḥ*—having gone; *dadarśa*—he saw; *duhituḥ*—of his daughter; *pārśve*—by the side; *puruṣam*—a man; *sūrya-varcasam*—beautiful and effulgent like the sun.

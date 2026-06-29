@@ -1,9 +1,9 @@
 ### CC Madhya 6.82
 
-> অনুমান প্রমাণ নহে ঈশ্বরতত্ত্বজ্ঞানে ।
+> অনুমান প্রমাণ নহে ঈশ্বরতত্ত্বজ্ঞানে ।\
 > কৃপা বিনা ঈশ্বরেরে কেহ নাহি জানে ॥৮২॥
 
-> anumāna pramāṇa nahe īśvara-tattva-jñāne
+> anumāna pramāṇa nahe īśvara-tattva-jñāne\
 > kṛpā vinā īśvarere keha nāhi jāne
 
 *anumāna pramāṇa*—evidence by hypothesis; *nahe*—there is not; *īśvara-tattva-jñāne*—in understanding the Absolute Truth, the Supreme Personality of Godhead; *kṛpā vinā*—without His mercy; *īśvarere*—the Supreme Personality of Godhead; *keha*—anyone; *nāhi*—not; *jāne*—knows.

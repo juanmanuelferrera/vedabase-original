@@ -1,9 +1,9 @@
 ### CC Madhya 14.215
 
-> নারদ-প্রকৃতি শ্রীবাস করে পরিহাস ।
+> নারদ-প্রকৃতি শ্রীবাস করে পরিহাস ।\
 > শুনি’ হাসে মহাপ্রভুর যত নিজ-দাস ॥২১৫॥
 
-> nārada-prakṛti śrīvāsa kare parihāsa
+> nārada-prakṛti śrīvāsa kare parihāsa\
 > śuni' hāse mahāprabhura yata nija-dāsa
 
 *nārada-prakṛti*—con la naturaleza de Nārada Muni; *śrīvāsa*—Śrīvāsa Ṭhākura; *kare*—hace; *parihāsa*—bromas; *śuni'*—al oír; *hāse*—sonríen; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *yata*—todos; *nija-dāsa*—sirvientes personales.

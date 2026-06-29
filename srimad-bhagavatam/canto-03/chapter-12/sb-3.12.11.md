@@ -1,11 +1,11 @@
 ### SB 3.12.11
 
-> हृदिन्द्रियाण्यसुर्व्योम वायुरग्निर्जलं मही ।
+> हृदिन्द्रियाण्यसुर्व्योम वायुरग्निर्जलं मही ।\
 > सूर्यश्चन्द्रस्तपश्चैव स्थानान्यग्रे कृतानि ते ॥११॥
 
-> hṛd indriyāṇy asur vyoma
-> vāyur agnir jalaṁ mahī
-> sūryaś candras tapaś caiva
+> hṛd indriyāṇy asur vyoma\
+> vāyur agnir jalaṁ mahī\
+> sūryaś candras tapaś caiva\
 > sthānāny agre kṛtāni te
 
 *hṛt*—the heart; *indriyāṇi*—the senses; *asuḥ*—life air; *vyoma*—the sky; *vāyuḥ*—the air; *agniḥ*—fire; *jalam*—water; *mahī*—the earth; *sūryaḥ*—the sun; *candraḥ*—the moon; *tapaḥ*—austerity; *ca*—as well as; *eva*—certainly; *sthānāni*—all these places; *agre*—hereinbefore; *kṛtāni*—already made; *te*—for you.

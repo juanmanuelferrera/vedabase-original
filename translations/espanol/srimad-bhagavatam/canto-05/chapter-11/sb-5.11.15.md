@@ -1,11 +1,11 @@
 ### SB 5.11.15
 
-> न यावदेतां तनुभृन्नरेन्द्र विधूय मायां वयुनोदयेन
+> न यावदेतां तनुभृन्नरेन्द्र विधूय मायां वयुनोदयेन\
 > विमुक्तसङ्गो जितषट्सपत्नो वेदात्मतत्त्वं भ्रमतीह तावत ॥१५॥
 
-> na yāvad etāṁ tanu-bhṛn narendra
-> vidhūya māyāṁ vayunodayena
-> vimukta-saṅgo jita-ṣaṭ-sapatno
+> na yāvad etāṁ tanu-bhṛn narendra\
+> vidhūya māyāṁ vayunodayena\
+> vimukta-saṅgo jita-ṣaṭ-sapatno\
 > vedātma-tattvaṁ bhramatīha tāvat
 
 *na*—no; *yāvat*—mientras; *etām*—este; *tanu-bhṛt*—que ha aceptado un cuerpo material; *narendra*—¡oh, rey!; *vidhūya māyām*—limpiar la infección acumulada debido a la contaminación del mundo material; *vayunā udayena*—por el despertar del conocimiento trascendental debido a la compañía adecuada y al estudio de las Escrituras védicas; *vimukta-saṅgaḥ*—libre de toda relación con la materia; *jita-ṣaṭ-sapatnaḥ*—dominar a los seis enemigos (los cinco sentidos de adquirir conocimiento y la mente); *veda*—conoce; *ātma-tattvam*—verdad espiritual; *bhramati*—vaga; *iha*—en el mundo material; *tāvat*—hasta ese momento.

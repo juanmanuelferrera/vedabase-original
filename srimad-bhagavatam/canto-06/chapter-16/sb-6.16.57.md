@@ -1,11 +1,11 @@
 ### SB 6.16.57
 
-> यदेतद्विस्मृतं पुंसो मद्भावं भिन्नमात्मनः
+> यदेतद्विस्मृतं पुंसो मद्भावं भिन्नमात्मनः\
 > ततः संसार एतस्य देहाद्देहो मृतेर्मृतिः ॥५७॥
 
-> yad etad vismṛtaṁ puṁso
-> mad-bhāvaṁ bhinnam ātmanaḥ
-> tataḥ saṁsāra etasya
+> yad etad vismṛtaṁ puṁso\
+> mad-bhāvaṁ bhinnam ātmanaḥ\
+> tataḥ saṁsāra etasya\
 > dehād deho mṛter mṛtiḥ
 
 *yat*—which; *etat*—this; *vismṛtam*—forgotten; *puṁsaḥ*—of the living entity; *mat-bhāvam*—My spiritual position; *bhinnam*—separation; *ātmanaḥ*—from the Supreme Soul; *tataḥ*—from that; *saṁsāraḥ*—material, conditional life; *etasya*—of the living entity; *dehāt*—from one body; *dehaḥ*—another body; *mṛteḥ*—from one death; *mṛtiḥ*—another death.

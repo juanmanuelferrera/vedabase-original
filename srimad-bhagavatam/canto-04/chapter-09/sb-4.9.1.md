@@ -1,13 +1,13 @@
 ### SB 4.9.1
 
-> मैत्रेय उवाच
-> त एवमुत्सन्नभया उरुक्रमे कृतावनामाः प्रययुस्त्रिविष्टपम् ।
+> मैत्रेय उवाच\
+> त एवमुत्सन्नभया उरुक्रमे कृतावनामाः प्रययुस्त्रिविष्टपम् ।\
 > सहस्रशीर्षापि ततो गरुत्मता मधोर्वनं भृत्यदिदृक्षया गतः ॥१॥
 
-> maitreya uvāca
-> ta evam utsanna-bhayā urukrame
-> kṛtāvanāmāḥ prayayus tri-viṣṭapam
-> sahasraśīrṣāpi tato garutmatā
+> maitreya uvāca\
+> ta evam utsanna-bhayā urukrame\
+> kṛtāvanāmāḥ prayayus tri-viṣṭapam\
+> sahasraśīrṣāpi tato garutmatā\
 > madhor vanaṁ bhṛtya-didṛkṣayā gataḥ
 
 *maitreyaḥ uvāca*—the great sage Maitreya continued; *te*—the demigods; *evam*—thus; *utsanna-bhayāḥ*—being freed from all fears; *urukrame*—unto the Supreme Personality of Godhead, whose actions are uncommon; *kṛta-avanāmāḥ*—they offered their obeisances; *prayayuḥ*—they returned; *tri-viṣṭapam*—to their respective heavenly planets; *sahasra-śīrṣā api*—also the Personality of Godhead known as Sahasraśīrṣā; *tataḥ*—from there; *garutmatā*—getting up on the back of Garuḍa; *madhoḥ vanam*—the forest known as Madhuvana; *bhṛtya*—servant; *didṛkṣayā*—wishing to see him; *gataḥ*—went.

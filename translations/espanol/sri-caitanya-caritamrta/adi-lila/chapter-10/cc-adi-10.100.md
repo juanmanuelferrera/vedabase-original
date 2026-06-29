@@ -1,9 +1,9 @@
 ### CC Adi 10.100
 
-> রাত্রিদিনে রাধাকৃষ্ণের মানস সেবন ।
+> রাত্রিদিনে রাধাকৃষ্ণের মানস সেবন ।\
 > প্রহরেক মহাপ্রভুর চরিত্র-কথন ॥১০০॥
 
-> rātri-dine rādhā-kṛṣṇera mānasa sevana
+> rātri-dine rādhā-kṛṣṇera mānasa sevana\
 > prahareka mahāprabhura caritra-kathana
 
 *rātri-dine*—día y noche; *rādhā-kṛṣṇera*—de Rādhā y Kṛṣṇa; *mānasa*—dentro de la mente; *sevana*—servicio; *prahareka*—unas tres horas; *mahāprabhura*—del Señor Caitanya; *caritra*—carácter; *kathana*—discurso.

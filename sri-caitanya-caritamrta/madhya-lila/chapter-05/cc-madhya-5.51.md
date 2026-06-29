@@ -1,9 +1,9 @@
 ### CC Madhya 5.51
 
-> এত শুনি’ সেই বিপ্র রহে মৌন ধরি’ ।
+> এত শুনি’ সেই বিপ্র রহে মৌন ধরি’ ।\
 > তাঁর পুত্র মারিতে আইল হাতে ঠেঙ্গা করি’ ॥৫১॥
 
-> eta śuni' sei vipra rahe mauna dhari'
+> eta śuni' sei vipra rahe mauna dhari'\
 > tāṅra putra mārite āila hāte ṭheṅgā kari'
 
 *eta śuni'*—hearing this; *sei vipra*—the elderly *brāhmaṇa*; *rahe*—remains; *mauna dhari'*—holding silence; *tāṅra*—his; *putra*—son; *mārite*—to strike; *āila*—came out; *hāte*—in hand; *ṭheṅgā*—stick; *kari'*—taking.

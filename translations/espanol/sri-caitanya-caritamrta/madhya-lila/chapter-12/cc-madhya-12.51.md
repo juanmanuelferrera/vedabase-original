@@ -1,9 +1,9 @@
 ### CC Madhya 12.51
 
-> শুক্লবস্ত্রে মসি-বিন্দু যৈছে না লুকায় ।
+> শুক্লবস্ত্রে মসি-বিন্দু যৈছে না লুকায় ।\
 > সন্ন্যাসীর অল্প ছিদ্র সর্বলোকে গায় ॥৫১॥
 
-> śukla-vastre masi-bindu yaiche nā lukāya
+> śukla-vastre masi-bindu yaiche nā lukāya\
 > sannyāsīra alpa chidra sarva-loke gāya
 
 *śukla-vastre*—sobre tela blanca; *masi-bindu*—una mancha de tinta; *yaiche*—del mismo modo que; *nā*—no; *lukāya*—se oculta; *sannyāsīra*—de un sannyāsī; *alpa*—una muy pequeña; *chidra*—falta; *sarva-loke*—el público general; *gāya*—la pregona.

@@ -1,11 +1,11 @@
 ### SB 3.10.17
 
-> वैकारिको देवसर्गः पञ्चमो यन्मयं मनः ।
+> वैकारिको देवसर्गः पञ्चमो यन्मयं मनः ।\
 > षष्ठस्तु तमसः सर्गो यस्त्वबुद्धिकृतः प्रभोः ॥१७॥
 
-> vaikāriko deva-sargaḥ
-> pañcamo yan-mayaṁ manaḥ
-> ṣaṣṭhas tu tamasaḥ sargo
+> vaikāriko deva-sargaḥ\
+> pañcamo yan-mayaṁ manaḥ\
+> ṣaṣṭhas tu tamasaḥ sargo\
 > yas tv abuddhi-kṛtaḥ prabhoḥ
 
 *vaikārikaḥ*—interacción de la modalidad de la bondad; *deva*—los semidioses o deidades controladoras; *sargaḥ*—creación; *pañcamaḥ*—quinta; *yat*—aquello que; *mayam*—total; *manaḥ*—mente; *ṣaṣṭhaḥ*—sexta; *tu*—pero; *tamasaḥ*—de oscuridad; *sargaḥ*—creación; *yaḥ*—aquello que; *tu*—expletivo; *abuddhi-kṛtaḥ*—convertido en necio; *prabhoḥ*—del amo.

@@ -1,9 +1,9 @@
 ### CC Adi 17.63
 
-> সংসার-সুখ তোমার হউক বিনাশ ।
+> সংসার-সুখ তোমার হউক বিনাশ ।\
 > শাপ শুনি’ প্রভুর চিত্তে হইল উল্লাস ॥৬৩॥
 
-> saṁsāra-sukha tomāra ha-uka vināśa
+> saṁsāra-sukha tomāra ha-uka vināśa\
 > śāpa śuni' prabhura citte ha-ila ullāsa
 
 *saṁsāra-sukha*—material happiness; *tomāra*—Your; *ha-uka*—may it become; *vināśa*—all vanquished; *śāpa śuni'*—hearing this curse; *prabhura*—of the Lord; *citte*—within His mind; *ha-ila*—there was; *ullāsa*—jubilation.

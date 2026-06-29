@@ -1,11 +1,11 @@
 ### SB 7.1.19
 
-> कथं तस्मिन्भगवति दुरवग्राह्यधामनि
+> कथं तस्मिन्भगवति दुरवग्राह्यधामनि\
 > पश्यतां सर्वलोकानां लयमीयतुरञ्जसा ॥१९॥
 
-> śapator asakṛd viṣṇuṁ
-> yad brahma param avyayam
-> śvitro na jāto jihvāyāṁ
+> śapator asakṛd viṣṇuṁ\
+> yad brahma param avyayam\
+> śvitro na jāto jihvāyāṁ\
 > nāndhaṁ viviśatus tamaḥ
 
 *śapatoḥ*—of both Śiśupāla and Dantavakra, who were blaspheming; *asakṛt*—repeatedly; *viṣṇum*—Lord Kṛṣṇa; *yat*—which; *brahma param*—the Supreme Brahman; *avyayam*—without diminution; *śvitraḥ*—white leprosy; *na*—not; *jātaḥ*—appeared; *jihvāyām*—on the tongue; *na*—not; *andham*—dark; *viviśatuḥ*—they did enter; *tamaḥ*—hell.

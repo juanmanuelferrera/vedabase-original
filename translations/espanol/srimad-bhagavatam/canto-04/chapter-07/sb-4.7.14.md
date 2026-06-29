@@ -1,13 +1,13 @@
 ### SB 4.7.14
 
-> विद्यातपोव्रतधरान्मुखतः स्म विप्रान्
-> ब्रह्मात्मतत्त्वमवितुं प्रथमं त्वमस्राक् ।
-> तद्ब्राह्मणान्परम सर्वविपत्सु पासि
+> विद्यातपोव्रतधरान्मुखतः स्म विप्रान्\
+> ब्रह्मात्मतत्त्वमवितुं प्रथमं त्वमस्राक् ।\
+> तद्ब्राह्मणान्परम सर्वविपत्सु पासि\
 > पालः पशूनिव विभो प्रगृहीतदण्डः ॥१४॥
 
-> vidyā-tapo-vrata-dharān mukhataḥ sma viprān
-> brahmātma-tattvam avituṁ prathamaṁ tvam asrāk
-> tad brāhmaṇān parama sarva-vipatsu pāsi
+> vidyā-tapo-vrata-dharān mukhataḥ sma viprān\
+> brahmātma-tattvam avituṁ prathamaṁ tvam asrāk\
+> tad brāhmaṇān parama sarva-vipatsu pāsi\
 > pālaḥ paśūn iva vibho pragṛhīta-daṇḍaḥ
 
 *vidyā*—erudición; *tapaḥ*—austeridades; *vrata*—votos; *dharān*—los seguidores; *mukhataḥ*—a partir de la boca; *sma*—fue; *viprān*—los *brāhmaṇas*; *brahmā*—el Señor Brahmā; *ātma-tattvam*—autorrealización; *avitum*—para propagar; *prathamam*—en primer lugar; *tvam*—tú; *asrāk*—creado; *tat*—por lo tanto; *brāhmaṇān*—los *brāhmaṇas*; *parama*—¡oh, tú, el grande!; *sarva*—todos; *vipatsu*—en peligros; *pāsi*—proteges; *pālaḥ*—como el protector; *paśūn*—a los animales; *iva*—como; *vibho*—¡oh, tú, el grande!; *pragṛhīta*—llevando en la mano; *daṇḍaḥ*—un palo.

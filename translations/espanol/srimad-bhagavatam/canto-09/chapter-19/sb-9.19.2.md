@@ -1,11 +1,11 @@
 ### SB 9.19.2
 
-> शृणु भार्गव्यमूं गाथां मद्विधाचरितां भुवि
+> शृणु भार्गव्यमूं गाथां मद्विधाचरितां भुवि\
 > धीरा यस्यानुशोचन्ति वने ग्रामनिवासिनः ॥२॥
 
-> śṛṇu bhārgavy amūṁ gāthāṁ
-> mad-vidhācaritāṁ bhuvi
-> dhīrā yasyānuśocanti
+> śṛṇu bhārgavy amūṁ gāthāṁ\
+> mad-vidhācaritāṁ bhuvi\
+> dhīrā yasyānuśocanti\
 > vane grāma-nivāsinaḥ
 
 *śṛṇu*—escucha, por favor; *bhārgavi*—¡oh, hija de Śukrācārya!; *amūm*—esta; *gāthām*—historia; *mat-vidhā*—que reproduce exactamente mi conducta; *ācaritām*—conducta; *bhuvi*—en este mundo; *dhīrāḥ*—los que son sobrios e inteligentes; *yasya*—de quien; *anuśocanti*—se lamentan mucho; *vane*—en el bosque; *grāma-nivāsinaḥ*—muy apegados al disfrute materialista.

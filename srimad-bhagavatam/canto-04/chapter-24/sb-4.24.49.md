@@ -1,11 +1,11 @@
 ### SB 4.24.49
 
-> सिंहस्कन्धत्विषो बिभ्रत्सौभगग्रीवकौस्तुभम् ।
+> सिंहस्कन्धत्विषो बिभ्रत्सौभगग्रीवकौस्तुभम् ।\
 > श्रियानपायिन्या क्षिप्त निकषाश्मोरसोल्लसत् ॥४९॥
 
-> siṁha-skandha-tviṣo bibhrat
-> saubhaga-grīva-kaustubham
-> śriyānapāyinyā kṣipta-
+> siṁha-skandha-tviṣo bibhrat\
+> saubhaga-grīva-kaustubham\
+> śriyānapāyinyā kṣipta-\
 > nikaṣāśmorasollasat
 
 *siṁha*—a lion; *skandha*—shoulders; *tviṣaḥ*—the coils of hair; *bibhrat*—bearing; *saubhaga*—fortunate; *grīva*—neck; *kaustubham*—the pearl of the name; *śriyā*—beauty; *anapāyinyā*—never decreasing; *kṣipta*—defeating; *nikaṣa*—the stone for testing gold; *aśma*—stone; *urasā*—with the chest; *ullasat*—glittering.

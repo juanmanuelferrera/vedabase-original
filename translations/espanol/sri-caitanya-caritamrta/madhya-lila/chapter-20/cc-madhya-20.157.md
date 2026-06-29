@@ -1,9 +1,9 @@
 ### CC Madhya 20.157
 
-> জ্ঞান, যোগ, ভক্তি, — তিন সাধনের বশে ।
+> জ্ঞান, যোগ, ভক্তি, — তিন সাধনের বশে ।\
 > ব্রহ্ম, আত্মা, ভগবান্ — ত্রিবিধ প্রকাশে ॥১৫৭॥
 
-> jñāna, yoga, bhakti,--tina sādhanera vaśe
+> jñāna, yoga, bhakti,--tina sādhanera vaśe\
 > brahma, ātmā, bhagavān--trividha prakāśe
 
 *jñāna*—conocimiento; *yoga*—poder místico; *bhakti*—servicio devocional; *tina*—tres; *sādhanera*—de los procesos de la vida espiritual; *vaśe*—bajo el control; *brahma*—Brahman impersonal; *ātmā*—Paramātmā localizado; *bhagavān*—la Suprema Personalidad de Dios; *tri-vidha prakāśe*—tres clases de manifestación.

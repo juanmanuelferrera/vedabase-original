@@ -1,11 +1,11 @@
 ### Bg 6.3
 
-> आरुरुक्षोर्मुनेर्योगं कर्म कारणमुच्यते ।
+> आरुरुक्षोर्मुनेर्योगं कर्म कारणमुच्यते ।\
 > योगारूढस्य तस्यैव शमः कारणमुच्यते ॥३॥
 
-> ārurukṣor muner yogaṁ
-> karma kāraṇam ucyate
-> yogārūḍhasya tasyaiva
+> ārurukṣor muner yogaṁ\
+> karma kāraṇam ucyate\
+> yogārūḍhasya tasyaiva\
 > śamaḥ kāraṇam ucyate
 
 *ārurukṣoḥ*—de aquel que acaba de comenzar en el yoga; *muneḥ*—del sabio; *yogam*—el sistema óctuple de yoga; *karma*—trabajo; *kāraṇam*—la causa; *ucyate*—se dice que es; *yoga*—yoga óctuple; *ārūḍhasya*—aquel que ha logrado; *tasya*—su; *eva*—ciertamente; *śamaḥ*—cese de todas las actividades materiales; *kāraṇam*—la causa; *ucyate*—se dice que es.

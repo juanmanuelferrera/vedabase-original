@@ -1,9 +1,9 @@
 ### CC Antya 2.118
 
-> দুর্বার ইন্দ্রিয় করে বিষয়-গ্রহণ ।
+> দুর্বার ইন্দ্রিয় করে বিষয়-গ্রহণ ।\
 > দারবী প্রকৃতি হরে মুনেরপি মন ॥১১৮॥
 
-> durvāra indriya kare viṣaya-grahaṇa
+> durvāra indriya kare viṣaya-grahaṇa\
 > dāravī prakṛti hare munerapi mana
 
 *durvāra*—uncontrollable; *indriya*—the senses; *kare*—do; *viṣaya-grahaṇa*—accepting sense objects; *dāravī prakṛti*—a wooden statue of a woman; *hare*—attracts; *munerapi*—even of a great sage; *mana*—the mind.

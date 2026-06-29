@@ -1,9 +1,9 @@
 ### CC Madhya 16.148
 
-> প্রভু লাগি’ ধর্ম-কর্ম ছাড়ে ভক্তগণ ।
+> প্রভু লাগি’ ধর্ম-কর্ম ছাড়ে ভক্তগণ ।\
 > ভক্ত-ধর্ম-হানি প্রভুর না হয় সহন ॥১৪৮॥
 
-> prabhu lāgi' dharma-karma chāḍe bhakta-gaṇa
+> prabhu lāgi' dharma-karma chāḍe bhakta-gaṇa\
 > bhakta-dharma-hāni prabhura nā haya sahana
 
 *prabhu lāgi'*—for the sake of Śrī Caitanya Mahāprabhu; *dharma-karma*—all prescribed duties; *chāḍe*—give up; *bhakta-gaṇa*—all the devotees; *bhakta-dharma*—of the duty of a devotee; *hāni*—the abandonment; *prabhura*—to Śrī Caitanya Mahāprabhu; *nā haya*—is not; *sahana*—tolerable.

@@ -1,11 +1,11 @@
 ### SB 4.28.30
 
-> तस्यां स जनयां चक्र आत्मजामसितेक्षणाम् ।
+> तस्यां स जनयां चक्र आत्मजामसितेक्षणाम् ।\
 > यवीयसः सप्त सुतान्सप्त द्रविडभूभृतः ॥३०॥
 
-> tasyāṁ sa janayāṁ cakra
-> ātmajām asitekṣaṇām
-> yavīyasaḥ sapta sutān
+> tasyāṁ sa janayāṁ cakra\
+> ātmajām asitekṣaṇām\
+> yavīyasaḥ sapta sutān\
 > sapta draviḍa-bhūbhṛtaḥ
 
 *tasyām*—por medio de ella; *saḥ*—el rey; *janayām cakre*—engendró; *ātmajām*—hija; *asita*—azules o negros; *īkṣaṇām*—cuyos ojos; *yavīyasaḥ*—más jóvenes, muy poderosos; *sapta*—siete; *sutān*—hijos; *sapta*—siete; *draviḍa*—provincia de Draviḍa, la India del Sur; *bhū*—de la tierra; *bhṛtaḥ*—reyes.

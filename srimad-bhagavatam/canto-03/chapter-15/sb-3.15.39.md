@@ -1,13 +1,13 @@
 ### SB 3.15.39
 
-> कृत्स्नप्रसादसुमुखं स्पृहणीयधाम
-> स्नेहावलोककलया हृदि संस्पृशन्तम् ।
-> श्यामे पृथावुरसि शोभितया श्रिया स्वश्
+> कृत्स्नप्रसादसुमुखं स्पृहणीयधाम\
+> स्नेहावलोककलया हृदि संस्पृशन्तम् ।\
+> श्यामे पृथावुरसि शोभितया श्रिया स्वश्\
 > चूडामणिं सुभगयन्तमिवात्मधिष्ण्यम् ॥३९॥
 
-> kṛtsna-prasāda-sumukhaṁ spṛhaṇīya-dhāma
-> snehāvaloka-kalayā hṛdi saṁspṛśantam
-> śyāme pṛthāv urasi śobhitayā śriyā svaś-
+> kṛtsna-prasāda-sumukhaṁ spṛhaṇīya-dhāma\
+> snehāvaloka-kalayā hṛdi saṁspṛśantam\
+> śyāme pṛthāv urasi śobhitayā śriyā svaś-\
 > cūḍāmaṇiṁ subhagayantam ivātma-dhiṣṇyam
 
 *kṛtsna-prasāda*—blessing everyone; *su-mukham*—auspicious face; *spṛhaṇīya*—desirable; *dhāma*—shelter; *sneha*—affection; *avaloka*—looking upon; *kalayā*—by expansion; *hṛdi*—within the heart; *saṁspṛśantam*—touching; *śyāme*—unto the Lord with blackish color; *pṛthau*—broad; *urasi*—chest; *śobhitayā*—being decorated; *śriyā*—goddess of fortune; *svaḥ*—heavenly planets; *cūḍā-maṇim*—summit; *subhagayantam*—spreading good fortune; *iva*—like; *ātma*—the Supreme Personality of Godhead; *dhiṣṇyam*—abode.

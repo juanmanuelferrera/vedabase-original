@@ -1,13 +1,13 @@
 ### SB 7.4.2
 
-> श्रीब्रह्मोवाच
-> तातेमे दुर्लभाः पुंसां यान्वृणीषे वरान्मम
+> श्रीब्रह्मोवाच\
+> तातेमे दुर्लभाः पुंसां यान्वृणीषे वरान्मम\
 > तथापि वितराम्यङ्ग वरान्यद्यपि दुर्लभान ॥२॥
 
-> śrī-brahmovāca
-> tāteme durlabhāḥ puṁsāṁ
-> yān vṛṇīṣe varān mama
-> tathāpi vitarāmy aṅga
+> śrī-brahmovāca\
+> tāteme durlabhāḥ puṁsāṁ\
+> yān vṛṇīṣe varān mama\
+> tathāpi vitarāmy aṅga\
 > varān yadyapi durlabhān
 
 *śrī-brahmā uvāca*—el Señor Brahmā dijo; *tāta*—¡oh, querido hijo!; *ime*—todas esas; *durlabhāḥ*—obtenidas muy rara vez; *puṁsām*—por hombres; *yān*—esas que; *vṛṇīṣe*—tú pides; *varān*—bendiciones; *mama*—de mí; *tathāpi*—aun así; *vitarāmi*—voy a conceder; *aṅga*—¡oh, Hiraṇyakaśipu!; *varān*—las bendiciones; *yadyapi*—aunque; *durlabhān*—por lo general nunca se ofrecen a nadie.

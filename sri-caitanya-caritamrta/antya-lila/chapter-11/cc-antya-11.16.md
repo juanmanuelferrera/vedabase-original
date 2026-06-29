@@ -1,9 +1,9 @@
 ### CC Antya 11.16
 
-> একদিন গোবিন্দ মহাপ্রসাদ লঞা ।
+> একদিন গোবিন্দ মহাপ্রসাদ লঞা ।\
 > হরিদাসে দিতে গেলা আনন্দিত হঞা ॥১৬॥
 
-> eka-dina govinda mahā-prasāda lañā
+> eka-dina govinda mahā-prasāda lañā\
 > haridāse dite gelā ānandita hañā
 
 *eka-dina*—one day; *govinda*—the personal servant of Lord Caitanya Mahāprabhu; *mahā-prasāda lañā*—taking *mahā-prasāda*; *haridāse dite*—to deliver to Haridāsa; *gelā*—went; *ānandita hañā*—in great jubilation.

@@ -1,11 +1,11 @@
 ### SB 1.15.38
 
-> स्वराट्पौत्रं विनयिनमात्मनः सुसमं गुणैः ।
+> स्वराट्पौत्रं विनयिनमात्मनः सुसमं गुणैः ।\
 > तोयनीव्याः पतिं भूमेरभ्यषिञ्चद्गजाह्वये ॥३८॥
 
-> sva-rāṭ pautraṁ vinayinam
-> ātmanaḥ susamaṁ guṇaiḥ
-> toya-nīvyāḥ patiṁ bhūmer
+> sva-rāṭ pautraṁ vinayinam\
+> ātmanaḥ susamaṁ guṇaiḥ\
+> toya-nīvyāḥ patiṁ bhūmer\
 > abhyaṣiñcad gajāhvaye
 
 *sva-rāṭ*—the emperor; *pautram*—unto the grandson; *vinayinam*—properly trained; *ātmanaḥ*—his own self; *su-samam*—equal in all respects; *guṇaiḥ*—by the qualities; *toya-nīvyāḥ*—bordered by the seas; *patim*—master; *bhūmeḥ*—of the land; *abhyaṣiñcat*—enthroned; *gajāhvaye*—in the capital of Hastināpura.

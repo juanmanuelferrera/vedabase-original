@@ -1,9 +1,9 @@
 ### CC Madhya 10.43
 
-> প্রদ্যুম্নমিশ্র ইঁহ বৈষ্ণব প্রধান ৷
+> প্রদ্যুম্নমিশ্র ইঁহ বৈষ্ণব প্রধান ৷\
 > জগন্নাথের মহা-সোয়ার ইঁহ ‘দাস’ নাম ৷৷ ৪৩ ৷৷ ॥৪৩॥
 
-> pradyumna-miśra iṅha vaiṣṇava pradhāna
+> pradyumna-miśra iṅha vaiṣṇava pradhāna\
 > jagannāthera mahā-soyāra iṅha 'dāsa' nāma
 
 *pradyumna-miśra*—Pradyumna Miśra; *iṅha*—esta persona; *vaiṣṇava pradhāna*—el principal de todos los vaiṣṇavas; *jagannāthera*—del Señor Jagannātha; *mahā-soyāra*—gran servidor; *iṅha*—este; *dāsa nāma*—designado como Dāsa.

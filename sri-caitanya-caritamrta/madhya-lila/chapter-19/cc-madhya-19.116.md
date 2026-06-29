@@ -1,9 +1,9 @@
 ### CC Madhya 19.116
 
-> রামানন্দ-পাশে যত সিদ্ধান্ত শুনিলা ।
+> রামানন্দ-পাশে যত সিদ্ধান্ত শুনিলা ।\
 > রূপে কৃপা করি’ তাহা সব সঞ্চারিলা ॥১১৬॥
 
-> rāmānanda-pāśe yata siddhānta śunilā
+> rāmānanda-pāśe yata siddhānta śunilā\
 > rūpe kṛpā kari' tāhā saba sañcārilā
 
 *rāmānanda-pāśe*—from Rāmānanda Rāya; *yata*—all; *siddhānta*—the ultimate conclusions; *śunilā*—he heard; *rūpe*—unto Śrī Rūpa Gosvāmī; *kṛpā kari'*—showing His causeless mercy; *tāhā saba*—all those; *sañcārilā*—infused.

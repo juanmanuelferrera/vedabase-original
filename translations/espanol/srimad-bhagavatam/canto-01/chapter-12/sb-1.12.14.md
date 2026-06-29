@@ -1,11 +1,11 @@
 ### SB 1.12.14
 
-> हिरण्यं गां महीं ग्रामान्हस्त्यश्वान्नृपतिर्वरान् ।
+> हिरण्यं गां महीं ग्रामान्हस्त्यश्वान्नृपतिर्वरान् ।\
 > प्रादात्स्वन्नं च विप्रेभ्यः प्रजातीर्थे स तीर्थवित् ॥१४॥
 
-> hiraṇyaṁ gāṁ mahīṁ grāmān
-> hasty-aśvān nṛpatir varān
-> prādāt svannaṁ ca viprebhyaḥ
+> hiraṇyaṁ gāṁ mahīṁ grāmān\
+> hasty-aśvān nṛpatir varān\
+> prādāt svannaṁ ca viprebhyaḥ\
 > prajā-tīrthe sa tīrthavit
 
 *hiraṇyam*—oro; *gām*—vacas; *mahīm*—tierras; *grāmān*—aldeas; *hasti*—elefantes; *aśvān*—caballos; *nṛpatiḥ*—el rey; *varān*—recompensa; *prādāt*—dio como caridad; *su-annam*—buenos granos alimenticios; *ca*—y; *viprebhyaḥ*—a los *brāhmaṇas*; *prajā-tīrthe*—en ocasión de dar caridad con motivo del nacimiento de un hijo; *saḥ*—él; *tīrtha-vit*—aquel que sabe cómo, cuándo y dónde debe darse caridad.

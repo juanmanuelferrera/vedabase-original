@@ -1,13 +1,13 @@
 ### SB 2.7.36
 
-> कालेन मीलितधियामवमृश्य न्णां
-> स्तोकायुषां स्वनिगमो बत दूरपारः ।
-> आविर्हितस्त्वनुयुगं स हि सत्यवत्यां
+> कालेन मीलितधियामवमृश्य न्णां\
+> स्तोकायुषां स्वनिगमो बत दूरपारः ।\
+> आविर्हितस्त्वनुयुगं स हि सत्यवत्यां\
 > वेदद्रुमं विटपशो विभजिष्यति स्म ॥३६॥
 
-> kālena mīlita-dhiyām avamṛśya nṝṇāṁ
-> stokāyuṣāṁ sva-nigamo bata dūra-pāraḥ
-> āvirhitas tv anuyugaṁ sa hi satyavatyāṁ
+> kālena mīlita-dhiyām avamṛśya nṝṇāṁ\
+> stokāyuṣāṁ sva-nigamo bata dūra-pāraḥ\
+> āvirhitas tv anuyugaṁ sa hi satyavatyāṁ\
 > veda-drumaṁ viṭa-paśo vibhajiṣyati sma
 
 *kālena*—in course of time; *mīlita-dhiyām*—of the less intelligent persons; *avamṛśya*—considering the difficulties; *nṝṇām*—of humanity at large; *stoka-āyuṣām*—of the short-living persons; *sva-nigamaḥ*—the Vedic literatures compiled by Him; *bata*—exactly; *dūra-pāraḥ*—greatly difficult; *āvirhitaḥ*—having appeared as; *tu*—but; *anuyugam*—in terms of the age; *saḥ*—He (the Lord); *hi*—certainly; *satyavatyām*—in the womb of Satyavatī; *veda-drumam*—the desire tree of the *Vedas*; *viṭa-paśaḥ*—by division of branches; *vibhajiṣyati*—will divide; *sma*—as it were.

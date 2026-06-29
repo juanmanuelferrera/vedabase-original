@@ -1,13 +1,13 @@
 ### SB 4.25.32
 
-> नारद उवाच
-> इत्थं पुरञ्जनं नारी याचमानमधीरवत् ।
+> नारद उवाच\
+> इत्थं पुरञ्जनं नारी याचमानमधीरवत् ।\
 > अभ्यनन्दत तं वीरं हसन्ती वीर मोहिता ॥३२॥
 
-> nārada uvāca
-> itthaṁ purañjanaṁ nārī
-> yācamānam adhīravat
-> abhyanandata taṁ vīraṁ
+> nārada uvāca\
+> itthaṁ purañjanaṁ nārī\
+> yācamānam adhīravat\
+> abhyanandata taṁ vīraṁ\
 > hasantī vīra mohitā
 
 *nāradaḥ uvāca*—el gran sabio Nārada continuó hablando; *ittham*—después de esto; *purañjanam*—a Purañjana; *nārī*—la mujer; *yācamānam*—pedir; *adhīra-vat*—estando demasiado impaciente; *abhyanandata*—ella habló; *tam*—a él; *vīram*—el héroe; *hasantī*—sonriendo; *vīra*—¡oh, héroe!; *mohitā*—atraída por él.

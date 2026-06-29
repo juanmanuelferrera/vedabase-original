@@ -1,11 +1,11 @@
 ### Bg 6.44
 
-> पूर्वाभ्यासेन तेनैव ह्रियते ह्यवशोऽपि सः ।
+> पूर्वाभ्यासेन तेनैव ह्रियते ह्यवशोऽपि सः ।\
 > जिज्ञासुरपि योगस्य शब्दब्रह्मातिवर्तते ॥४४॥
 
-> pūrvābhyāsena tenaiva
-> hriyate hy avaśo 'pi saḥ
-> jijñāsur api yogasya
+> pūrvābhyāsena tenaiva\
+> hriyate hy avaśo 'pi saḥ\
+> jijñāsur api yogasya\
 > śabda-brahmātivartate
 
 *pūrva*—previous; *abhyāsena*—practice; *tena*—by the influence of that; *eva*—certainly; *hriyate*—is attracted; *hi*—surely; *avaśaḥ*—helpless; *api*—also; *saḥ*—he; *jijñāsuḥ*—willing to know; *api*—so; *yogasya*—of *yoga*; *śabda-brahma*—ritualistic principles of scripture; *ativartate*—transcends.

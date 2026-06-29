@@ -1,11 +1,11 @@
 ### SB 3.22.10
 
-> यदा तु भवतः शील श्रुतरूपवयोगुणान् ।
+> यदा तु भवतः शील श्रुतरूपवयोगुणान् ।\
 > अशृणोन्नारदादेषा त्वय्यासीत्कृतनिश्चया ॥१०॥
 
-> yadā tu bhavataḥ śīla-
-> śruta-rūpa-vayo-guṇān
-> aśṛṇon nāradād eṣā
+> yadā tu bhavataḥ śīla-\
+> śruta-rūpa-vayo-guṇān\
+> aśṛṇon nāradād eṣā\
 > tvayy āsīt kṛta-niścayā
 
 *yadā*—cuando; *tu*—pero; *bhavataḥ*—tu; *śīla*—noble carácter; *śruta*—erudición; *rūpa*—hermoso aspecto; *vayaḥ*—juventud; *guṇān*—virtudes; *aśṛṇot*—escuchó; *nāradāt*—a Nārada Muni; *eṣā*—Devahūti; *tvayi*—en ti; *āsīt*—se volvió; *kṛta-niścayā*—con la determinación fija.

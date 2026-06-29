@@ -1,9 +1,9 @@
 ### CC Adi 13.60
 
-> তাঁর পত্নী ‘শচী’-নাম, পতিব্রতা সতী ।
+> তাঁর পত্নী ‘শচী’-নাম, পতিব্রতা সতী ।\
 > যাঁর পিতা ‘নীলাম্বর’ নাম চক্রবর্তী ॥৬০॥
 
-> tāṅra patnī 'śacī'-nāma, pativratā satī
+> tāṅra patnī 'śacī'-nāma, pativratā satī\
 > yāṅra pitā 'nīlāmbara' nāma cakravartī
 
 *tāṅra patnī*—su esposa; *śacī*—de nombre Śacī; *nāma*—llamada; *pati-vratā*—devota de su esposo; *satī*—casta; *yāṅra*—cuyo; *pitā*—padre; *nīlāmbara*—de nombre Nīlāmbara; *nāma*—llamado; *cakravartī*—con el título de Cakravartī.

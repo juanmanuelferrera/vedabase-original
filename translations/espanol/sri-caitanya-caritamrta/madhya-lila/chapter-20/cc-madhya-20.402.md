@@ -1,9 +1,9 @@
 ### CC Madhya 20.402
 
-> এই কৃষ্ণ — ব্রজে ‘পূর্ণতম’ ভগবান্ ।
+> এই কৃষ্ণ — ব্রজে ‘পূর্ণতম’ ভগবান্ ।\
 > আর সব স্বরূপ — ‘পূর্ণতর’ ‘পূর্ণ’ নাম ॥৪০২॥
 
-> ei kṛṣṇa--vraje 'pūrṇatama' bhagavān
+> ei kṛṣṇa--vraje 'pūrṇatama' bhagavān\
 > āra saba svarūpa--'pūrṇatara' 'pūrṇa' nāma
 
 *ei kṛṣṇa*—el mismo Kṛṣṇa; *vraje*—Vṛndāvana; *pūrṇa-tama bhagavān*—la manifestación más completa de la Suprema Personalidad de Dios; *āra*—otras; *saba*—todas; *sva-rūpa*—formas; *pūrṇa-tara*—más completas; *pūrṇa*—completas; *nāma*—denominadas.

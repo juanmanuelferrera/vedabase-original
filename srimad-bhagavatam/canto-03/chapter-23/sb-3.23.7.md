@@ -1,13 +1,13 @@
 ### SB 3.23.7
 
-> ये मे स्वधर्मनिरतस्य तपःसमाधि
-> विद्यात्मयोगविजिता भगवत्प्रसादाः ।
-> तानेव ते मदनुसेवनयावरुद्धान्
+> ये मे स्वधर्मनिरतस्य तपःसमाधि\
+> विद्यात्मयोगविजिता भगवत्प्रसादाः ।\
+> तानेव ते मदनुसेवनयावरुद्धान्\
 > दृष्टिं प्रपश्य वितराम्यभयानशोकान् ॥७॥
 
-> ye me sva-dharma-niratasya tapaḥ-samādhi-
-> vidyātma-yoga-vijitā bhagavat-prasādāḥ
-> tān eva te mad-anusevanayāvaruddhān
+> ye me sva-dharma-niratasya tapaḥ-samādhi-\
+> vidyātma-yoga-vijitā bhagavat-prasādāḥ\
+> tān eva te mad-anusevanayāvaruddhān\
 > dṛṣṭiṁ prapaśya vitarāmy abhayān aśokān
 
 *ye*—those which; *me*—by me; *sva-dharma*—own religious life; *niratasya*—fully occupied with; *tapaḥ*—in austerity; *samādhi*—in meditation; *vidyā*—in Kṛṣṇa consciousness; *ātma-yoga*—by fixing the mind; *vijitāḥ*—achieved; *bhagavat-prasādāḥ*—the blessings of the Lord; *tān*—them; *eva*—even; *te*—by you; *mat*—to me; *anusevanayā*—by devoted service; *avaruddhān*—obtained; *dṛṣṭim*—transcendental vision; *prapaśya*—just see; *vitarāmi*—I am giving; *abhayān*—which are free from fear; *aśokān*—which are free from lamentation.

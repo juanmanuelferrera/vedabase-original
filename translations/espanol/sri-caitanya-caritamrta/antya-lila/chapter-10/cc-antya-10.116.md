@@ -1,9 +1,9 @@
 ### CC Antya 10.116
 
-> প্রভু কহে, — ‘আদিবস্যা’ দুঃখ কাঁহে মানে ?
+> প্রভু কহে, — ‘আদিবস্যা’ দুঃখ কাঁহে মানে ?\
 > কেবা কি দিয়াছে, তাহা আনহ এখানে ॥১১৬॥
 
-> prabhu kahe,--'ādi-vasyā' duḥkha kāṅhe māne?
+> prabhu kahe,--'ādi-vasyā' duḥkha kāṅhe māne?\
 > kebā ki diyāche, tāhā ānaha ekhāne'
 
 *prabhu kahe*—el Señor respondió; *ādi-vasyā*—tú, que has residido Conmigo durante mucho tiempo; *duḥkha kāṅhe māne*—por qué te afliges por esto; *kebā ki diyāche*—lo que sea que hayan entregado; *tāhā*—todo eso; *ānaha ekhāne*—tráelo aquí.

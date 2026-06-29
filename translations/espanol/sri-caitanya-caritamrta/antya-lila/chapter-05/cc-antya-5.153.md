@@ -1,9 +1,9 @@
 ### CC Antya 5.153
 
-> শ্রীকৃষ্ণচৈতন্যপ্রভু দেশে দেশে যাঞা ।
+> শ্রীকৃষ্ণচৈতন্যপ্রভু দেশে দেশে যাঞা ।\
 > সব-লোকে নিস্তারিলা জঙ্গম-ব্রহ্ম হঞা ॥১৫৩॥
 
-> śrī-kṛṣṇa-caitanya-prabhu deśe deśe yāñā
+> śrī-kṛṣṇa-caitanya-prabhu deśe deśe yāñā\
 > saba-loke nistārilā jaṅgama-brahma hañā
 
 *śrī-kṛṣṇa-caitanya-prabhu*—el Señor Śrī Caitanya Mahāprabhu; *deśe deśe yāñā*—yendo de un país a otro; *saba-loke nistārilā*—liberó a todas las almas condicionadas; *jaṅgama-brahma*—Brahman en movimiento; *hañā*—siendo.

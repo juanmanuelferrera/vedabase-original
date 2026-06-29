@@ -1,11 +1,11 @@
 ### SB 4.25.40
 
-> पितृदेवर्षिमर्त्यानां भूतानामात्मनश्च ह ।
+> पितृदेवर्षिमर्त्यानां भूतानामात्मनश्च ह ।\
 > क्षेम्यं वदन्ति शरणं भवेऽस्मिन्यद्गृहाश्रमः ॥४०॥
 
-> pitṛ-devarṣi-martyānāṁ
-> bhūtānām ātmanaś ca ha
-> kṣemyaṁ vadanti śaraṇaṁ
+> pitṛ-devarṣi-martyānāṁ\
+> bhūtānām ātmanaś ca ha\
+> kṣemyaṁ vadanti śaraṇaṁ\
 > bhave 'smin yad gṛhāśramaḥ
 
 *pitṛ*—antepasados; *deva*—semidioses; *ṛṣi*—sabios; *martyānām*—de la humanidad en general; *bhūtānām*—de las entidades vivientes, que son infinitas; *ātmanaḥ*—de uno mismo; *ca*—también; *ha*—ciertamente; *kṣemyam*—beneficiosa; *vadanti*—ellos dicen; *śaraṇam*—refugio; *bhave*—en el mundo material; *asmin*—esta; *yat*—la cual; *gṛha-āśramaḥ*—vida familiar.

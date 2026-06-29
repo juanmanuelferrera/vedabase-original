@@ -1,9 +1,9 @@
 ### CC Madhya 24.262
 
-> আমি তোমায় বহু অন্ন পাঠাইমু দিনে ।
+> আমি তোমায় বহু অন্ন পাঠাইমু দিনে ।\
 > সেই অন্ন লবে, যত খাও দুইজনে ।।” ॥ ২৬২ ॥
 
-> āmi tomāya bahu anna pāṭhāimu dine
+> āmi tomāya bahu anna pāṭhāimu dine\
 > sei anna labe, yata khāo dui-jane"
 
 *āmi*—yo; *tomāya*—para ti; *bahu*—mucho; *anna*—alimento; *pāṭhāimu*—enviaré; *dine*—cada día; *sei*—ese; *anna*—alimento; *labe*—tomarás; *yata*—lo que sea; *khāo*—puedan comer; *dui-jane*—los dos.

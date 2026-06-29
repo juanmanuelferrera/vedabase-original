@@ -1,9 +1,9 @@
 ### CC Antya 14.3
 
-> জয় জয় নিত্যানন্দ চৈতন্য-জীবন ।
+> জয় জয় নিত্যানন্দ চৈতন্য-জীবন ।\
 > জয়াদ্বৈতাচার্য জয় গৌরপ্রিয়তম ॥৩॥
 
-> jaya jaya nityānanda caitanya-jīvana
+> jaya jaya nityānanda caitanya-jīvana\
 > jayādvaitācārya jaya gaura-priyatama
 
 *jaya jaya*—todas las glorias; *nityānanda*—al Señor Nityānanda; *caitanya-jīvana*—la vida de Śrī Caitanya Mahāprabhu; *jaya*—todas las glorias; *advaita-ācārya*—a Advaita Ācārya; *jaya*—todas las glorias; *gaura-priya-tama*—muy, muy querido por Śrī Caitanya Mahāprabhu.

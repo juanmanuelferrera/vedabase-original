@@ -1,18 +1,18 @@
 ### SB 6.1.13-14
 
-> तपसा ब्रह्मचर्येण शमेन च दमेन च
-> त्यागेन सत्यशौचाभ्यां यमेन नियमेन वा ॥१३॥
-> देहवाग्बुद्धिजं धीरा धर्मज्ञआः श्रद्धयान्विताः
+> तपसा ब्रह्मचर्येण शमेन च दमेन च\
+> त्यागेन सत्यशौचाभ्यां यमेन नियमेन वा ॥१३॥\
+> देहवाग्बुद्धिजं धीरा धर्मज्ञआः श्रद्धयान्विताः\
 > क्षिपन्त्यघं महदपि वेणुगुल्ममिवानलः ॥१४॥
 
-> tapasā brahmacaryeṇa
-> śamena ca damena ca
-> tyāgena satya-śaucābhyāṁ
+> tapasā brahmacaryeṇa\
+> śamena ca damena ca\
+> tyāgena satya-śaucābhyāṁ\
 > yamena niyamena vā
 
-> deha-vāg-buddhijaṁ dhīrā
-> dharmajñāḥ śraddhayānvitāḥ
-> kṣipanty aghaṁ mahad api
+> deha-vāg-buddhijaṁ dhīrā\
+> dharmajñāḥ śraddhayānvitāḥ\
+> kṣipanty aghaṁ mahad api\
 > veṇu-gulmam ivānalaḥ
 
 *tapasā*—by austerity or voluntary rejection of material enjoyment; *brahmacaryeṇa*—by celibacy (the first austerity); *śamena*—by controlling the mind; *ca*—and; *damena*—by fully controlling the senses; *ca*—also; *tyāgena*—by voluntarily giving charity to good causes; *satya*—by truthfulness; *śaucābhyām*—and by following regulative principles to keep oneself internally and externally clean; *yamena*—by avoiding cursing and violence; *niyamena*—by regularly chanting the holy name of the Lord; *vā*—and; *deha-vāk-buddhi-jam*—performed by the body, words and intelligence; *dhīrāḥ*—those who are sober; *dharma-jñāḥ*—fully imbued with knowledge of religious principles; *śraddhayā anvitāḥ*—endowed with faith; *kṣipanti*—destroy; *agham*—all kinds of sinful activities; *mahat api*—although very great and abominable; *veṇu-gulmam*—the dried creepers beneath a bamboo tree; *iva*—like; *analaḥ*—fire.

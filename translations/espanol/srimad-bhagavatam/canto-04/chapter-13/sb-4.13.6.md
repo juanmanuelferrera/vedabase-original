@@ -1,13 +1,13 @@
 ### SB 4.13.6
 
-> मैत्रेय उवाच
-> ध्रुवस्य चोत्कलः पुत्रः पितरि प्रस्थिते वनम् ।
+> मैत्रेय उवाच\
+> ध्रुवस्य चोत्कलः पुत्रः पितरि प्रस्थिते वनम् ।\
 > सार्वभौमश्रियं नैच्छदधिराजासनं पितुः ॥६॥
 
-> maitreya uvāca
-> dhruvasya cotkalaḥ putraḥ
-> pitari prasthite vanam
-> sārvabhauma-śriyaṁ naicchad
+> maitreya uvāca\
+> dhruvasya cotkalaḥ putraḥ\
+> pitari prasthite vanam\
+> sārvabhauma-śriyaṁ naicchad\
 > adhirājāsanaṁ pituḥ
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya dijo; *dhruvasya*—de Dhruva Mahārāja; *ca*—también; *utkalaḥ*—Utkala; *putraḥ*—hijo; *pitari*—después de que el padre; *prasthite*—partió; *vanam*—al bosque; *sārva-bhauma*—que incluía todas las tierras; *śriyam*—opulencia; *na aicchat*—no deseaba; *adhirāja*—real; *āsanam*—trono; *pituḥ*—del padre.

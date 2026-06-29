@@ -1,13 +1,13 @@
 ### CC Madhya 24.21
 
-> বিষ্ণোর্নু বীর্যগণনাং কতমোঽর্হতীহ
-> যঃ পার্থিবান্যপি কবির্বিমমে রজাংসি ।
-> চস্কম্ভ যঃ স্বরংহসাস্খলতা ত্রিপৃষ্ঠং
+> বিষ্ণোর্নু বীর্যগণনাং কতমোঽর্হতীহ\
+> যঃ পার্থিবান্যপি কবির্বিমমে রজাংসি ।\
+> চস্কম্ভ যঃ স্বরংহসাস্খলতা ত্রিপৃষ্ঠং\
 > যস্মাত্রিসাম্যসদনাদুরুকম্পয়ানম্ ॥২১॥
 
-> viṣṇor nu vīrya-gaṇanāṁ katamo 'rhatīha
-> yaḥ pārthivāny api kavir vimame rajāṁsi
-> caskambha yaḥ sva-raṁhasāskhalatā tripṛṣṭhaṁ
+> viṣṇor nu vīrya-gaṇanāṁ katamo 'rhatīha\
+> yaḥ pārthivāny api kavir vimame rajāṁsi\
+> caskambha yaḥ sva-raṁhasāskhalatā tripṛṣṭhaṁ\
 > yasmāt trisāmya-sadanād urukampayānam
 
 *viṣṇoḥ*—del Señor Viṣṇu; *nu*—ciertamente; *vīrya-gaṇanām*—el recuento de las diferentes potencias; *katamaḥ*—quién; *arhati*—es capaz de hacer; *iha*—en este mundo; *yaḥ*—quien; *pārthivāni*—del elemento tierra; *api*—aunque; *kaviḥ*—una persona erudita; *vimame*—ha contado; *rajāṁsi*—los átomos; *caskambha*—capturó; *yaḥ*—quien; *sva*—Su propia; *raṁhasā*—por la potencia; *askhalatā*—sin impedimentos; *tri-pṛṣṭham*—el planeta más elevado (Satyaloka); *yasmāt*—por alguna causa; *tri-sāmya*—donde hay equilibrio de las tres guṇas; *sadanāt*—del lugar (de la raíz del mundo material); *urukampayānam*—temblando enormemente.

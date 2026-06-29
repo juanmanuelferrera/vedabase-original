@@ -1,11 +1,11 @@
 ### SB 7.10.38
 
-> ताविहाथ पुनर्जातौ शिशुपालकरूषजौ
+> ताविहाथ पुनर्जातौ शिशुपालकरूषजौ\
 > हरौ वैरानुबन्धेन पश्यतस्ते समीयतुः ॥३८॥
 
-> tāv ihātha punar jātau
-> śiśupāla-karūṣa-jau
-> harau vairānubandhena
+> tāv ihātha punar jātau\
+> śiśupāla-karūṣa-jau\
+> harau vairānubandhena\
 > paśyatas te samīyatuḥ
 
 *tau*—both of them; *iha*—in this human society; *atha*—in this way; *punaḥ*—again; *jātau*—took their births; *śiśupāla*—Śiśupāla; *karūṣa-jau*—Dantavakra; *harau*—unto the Supreme Personality of Godhead; *vaira-anubandhena*—by the bondage of considering the Lord an enemy; *paśyataḥ*—were looking on; *te*—while you; *samīyatuḥ*—merged or went into the lotus feet of the Lord.

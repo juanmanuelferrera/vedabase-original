@@ -1,9 +1,9 @@
 ### SB 5.3.16
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > इति निगदेनाभिष्टूयमानो भगवाननिमिषर्षभो वर्षधराभिवादिताभिवन्दितचरणःसदयमिदमाह ॥१५॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > iti nigadenābhiṣṭūyamāno bhagavān animiṣarṣabho varṣa-dharābhivāditābhivandita-caraṇaḥ sadayam idam āha.
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *iti*—así pues; *nigadena*—por medio de oraciones en prosa; *abhiṣṭūyamānaḥ*—siendo adorado; *bhagavān*—la Suprema Personalidad de Dios; *animiṣa-ṛṣabhaḥ*—el principal de todos los semidioses; *varṣa-dhara*—por el rey Nābhi, emperador de Bhārata-varṣa; *abhivādita*—adorado; *abhivandita*—se postraron a; *caraṇaḥ*—cuyos pies; *sadayam*—bondadosamente; *idam*—esto; *āha*—dijo.

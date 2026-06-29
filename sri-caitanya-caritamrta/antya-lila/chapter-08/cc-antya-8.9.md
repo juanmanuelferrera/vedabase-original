@@ -1,9 +1,9 @@
 ### CC Antya 8.9
 
-> মহাপ্রভু কৈলা তাঁরে দণ্ডবৎ নতি ।
+> মহাপ্রভু কৈলা তাঁরে দণ্ডবৎ নতি ।\
 > আলিঙ্গন করি’ তেঁহো কৈল কৃষ্ণস্মৃতি ॥৯॥
 
-> mahāprabhu kailā tāṅre daṇḍavat nati
+> mahāprabhu kailā tāṅre daṇḍavat nati\
 > āliṅgana kari' teṅho kaila kṛṣṇa-smṛti
 
 *mahāprabhu*—Śrī Caitanya Mahāprabhu; *kailā*—did; *tāṅre*—unto him; *daṇḍavatnati*—offering obeisances; *āliṅgana kari'*—embracing; *teṅho*—Rāmacandra Purī; *kaila*—did; *kṛṣṇa-smṛti*—remembrance of Kṛṣṇa.

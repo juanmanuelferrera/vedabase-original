@@ -1,11 +1,11 @@
 ### CC Madhya 21.27
 
-> জানন্ত এব জানন্তু কিং বহূক্ত্যা ন মে প্রভো ।
+> জানন্ত এব জানন্তু কিং বহূক্ত্যা ন মে প্রভো ।\
 > মনসো বপুষো বাচো বৈভবং তব গোচরঃ ॥২৭॥
 
-> jānanta eva jānantu
-> kiṁ bahūktyā na me prabho
-> manaso vapuṣo vāco
+> jānanta eva jānantu\
+> kiṁ bahūktyā na me prabho\
+> manaso vapuṣo vāco\
 > vaibhavaṁ tava gocaraḥ"
 
 *jānantaḥ*—persons who think they are aware of Your unlimited potency; *eva*—certainly; *jānantu*—let them think like that; *kim*—what is the use; *bahu-uktyā*—with many words; *na*—not; *me*—my; *prabho*—O Lord; *manasaḥ*—of the mind; *vapuṣaḥ*—of the body; *vācaḥ*—of the words; *vaibhavam*—opulences; *tava*—Your; *gocaraḥ*—within the range.

@@ -1,11 +1,11 @@
 ### SB 1.15.44
 
-> उदीचीं प्रविवेशाशां गतपूर्वां महात्मभिः ।
+> उदीचीं प्रविवेशाशां गतपूर्वां महात्मभिः ।\
 > हृदि ब्रह्म परं ध्यायन्नावर्तेत यतो गतः ॥४४॥
 
-> udīcīṁ praviveśāśāṁ
-> gata-pūrvāṁ mahātmabhiḥ
-> hṛdi brahma paraṁ dhyāyan
+> udīcīṁ praviveśāśāṁ\
+> gata-pūrvāṁ mahātmabhiḥ\
+> hṛdi brahma paraṁ dhyāyan\
 > nāvarteta yato gataḥ
 
 *udīcīm*—el lado norte; *praviveśa-āśām*—aquellos que querían entrar ahí; *gata-pūrvām*—la senda aceptada por sus antepasados; *mahā-ātmabhiḥ*—por los magnánimos; *hṛdi*—dentro del corazón; *brahma*—el Supremo; *param*—Dios; *dhyāyan*—pensando constantemente en; *na āvarteta*—pasó sus días; *yataḥ*—dondequiera; *gataḥ*—iba.

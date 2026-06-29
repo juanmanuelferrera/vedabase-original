@@ -1,9 +1,9 @@
 ### CC Madhya 24.20
 
-> শক্তি, কম্প, পরিপাটী, যুক্তি, শক্ত্যে আক্রমণ ।
+> শক্তি, কম্প, পরিপাটী, যুক্তি, শক্ত্যে আক্রমণ ।\
 > চরণ-চালনে কাঁপাইল ত্রিভুবন ॥২০॥
 
-> śakti, kampa, paripāṭī, yukti, śaktye ākramaṇa
+> śakti, kampa, paripāṭī, yukti, śaktye ākramaṇa\
 > caraṇa-cālane kāṅpāila tribhuvana
 
 *śakti*—poder; *kampa*—temblor; *paripāṭī*—método; *yukti*—argumento; *śaktye*—con gran fuerza; *ākramaṇa*—atacar; *caraṇa-cālane*—moviendo el pie; *kāṅpāila*—hizo temblar; *tri-bhuvana*—los tres mundos.

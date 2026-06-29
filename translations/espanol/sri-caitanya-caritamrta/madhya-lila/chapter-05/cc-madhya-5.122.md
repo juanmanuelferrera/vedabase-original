@@ -1,9 +1,9 @@
 ### CC Madhya 5.122
 
-> পুরুষোত্তম-দেব সেই বড় ভক্ত আর্য ।
+> পুরুষোত্তম-দেব সেই বড় ভক্ত আর্য ।\
 > গোপাল-চরণে মাগে, — ‘চল মোর রাজ্য ।।’ ॥ ১২২ ॥
 
-> puruṣottama-deva sei baḍa bhakta ārya
+> puruṣottama-deva sei baḍa bhakta ārya\
 > gopāla-caraṇe māge,--'cala mora rājya
 
 *puruṣottama-deva*—el rey Puruṣottama-deva; *sei*—ese; *baḍa*—muy grande; *bhakta*—devoto; *ārya*—ario; *gopāla-caraṇe*—a los pies de loto de Gopāla; *māge*—ruega; *cala*—por favor, ven; *mora*—a mi; *rājya*—reino.

@@ -1,11 +1,11 @@
 ### Bg 5.23
 
-> शक्नोतीहैव यः सोढुं प्राक्शरीरविमोक्षणात् ।
+> शक्नोतीहैव यः सोढुं प्राक्शरीरविमोक्षणात् ।\
 > कामक्रोधोद्भवं वेगं स युक्तः स सुखी नरः ॥२३॥
 
-> śaknotīhaiva yaḥ soḍhuṁ
-> prāk śarīra-vimokṣaṇāt
-> kāma-krodhodbhavaṁ vegaṁ
+> śaknotīhaiva yaḥ soḍhuṁ\
+> prāk śarīra-vimokṣaṇāt\
+> kāma-krodhodbhavaṁ vegaṁ\
 > sa yuktaḥ sa sukhī naraḥ
 
 *śaknoti*—capaz de hacer; *iha eva*—en el cuerpo actual; *yaḥ*—aquel que; *soḍhum*—tolerar; *prāk*—antes; *śarīra*—el cuerpo; *vimokṣaṇāt*—abandonando; *kāma*—deseo; *krodha*—ira; *udbhavam*—generado de; *vegam*—impulso; *saḥ*—él; *yuktaḥ*—en trance; *saḥ*—él; *sukhī*—feliz; *naraḥ*—ser humano.

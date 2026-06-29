@@ -1,9 +1,9 @@
 ### CC Adi 5.9
 
-> আপনে করেন কৃষ্ণলীলার সহায় ।
+> আপনে করেন কৃষ্ণলীলার সহায় ।\
 > সৃষ্টিলীলা-কার্য করে ধরি’ চারি কায় ॥৯॥
 
-> āpane karena kṛṣṇa-līlāra sahāya
+> āpane karena kṛṣṇa-līlāra sahāya\
 > sṛṣṭi-līlā-kārya kare dhari' cāri kāya
 
 *āpane*—personalmente; *karena*—lleva a cabo; *kṛṣṇa-līlāra sahāya*—asistencia en los pasatiempos del Señor Kṛṣṇa; *sṛṣṭi-līlā*—de los pasatiempos de la creación; *kārya*—la labor; *kare*—realiza; *dhari'*—aceptando; *cāri kāya*—cuatro cuerpos.

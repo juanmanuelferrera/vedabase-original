@@ -1,9 +1,9 @@
 ### CC Antya 6.195
 
-> প্রভু কহেন, — “তোমার পিতা-জ্যেঠা দুই জনে ।
+> প্রভু কহেন, — “তোমার পিতা-জ্যেঠা দুই জনে ।\
 > চক্রবর্তী-সম্বন্ধে হাম ‘আজা’ করি’ মানে ॥১৯৫॥
 
-> prabhu kahena,--"tomāra pitā-jyeṭhā dui jane
+> prabhu kahena,--"tomāra pitā-jyeṭhā dui jane\
 > cakravarti-sambandhe hāma 'ājā' kari' māne
 
 *prabhu kahena*—el Señor Caitanya Mahāprabhu dijo; *tomāra*—tu; *pitā-jyeṭhā*—padre y su hermano mayor; *dui jane*—ambos; *cakravarti-sambandhe*—debido a una relación con Nīlāmbara Cakravartī; *hāma*—Yo; *ājā kari'*—como Mis abuelos; *māne*—considero.

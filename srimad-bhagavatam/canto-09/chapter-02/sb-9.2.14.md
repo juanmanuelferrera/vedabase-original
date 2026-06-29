@@ -1,11 +1,11 @@
 ### SB 9.2.14
 
-> एवं वृत्तो वनं गत्वा दृष्ट्वा दावाग्निमुत्थितम
+> एवं वृत्तो वनं गत्वा दृष्ट्वा दावाग्निमुत्थितम\
 > तेनोपयुक्तकरणो ब्रह्म प्राप परं मुनिः ॥१४॥
 
-> evaṁ vṛtto vanaṁ gatvā
-> dṛṣṭvā dāvāgnim utthitam
-> tenopayukta-karaṇo
+> evaṁ vṛtto vanaṁ gatvā\
+> dṛṣṭvā dāvāgnim utthitam\
+> tenopayukta-karaṇo\
 > brahma prāpa paraṁ muniḥ
 
 *evam vṛttaḥ*—being situated in such an order of life; *vanam*—to the forest; *gatvā*—after going; *dṛṣṭvā*—when he saw; *dāva-agnim*—a forest fire; *utthitam*—existing there; *tena*—by that (fire); *upayukta-karaṇaḥ*—engaging all the senses of the body by burning; *brahma*—transcendence; *prāpa*—he achieved; *param*—the ultimate goal; *muniḥ*—as a great saintly person.

@@ -1,11 +1,11 @@
 ### SB 3.21.21
 
-> तं त्वानुभूत्योपरतक्रियार्थं स्वमायया वर्तितलोकतन्त्रम् ।
+> तं त्वानुभूत्योपरतक्रियार्थं स्वमायया वर्तितलोकतन्त्रम् ।\
 > नमाम्यभीक्ष्णं नमनीयपाद सरोजमल्पीयसि कामवर्षम् ॥२१॥
 
-> taṁ tvānubhūtyoparata-kriyārthaṁ
-> sva-māyayā vartita-loka-tantram
-> namāmy abhīkṣṇaṁ namanīya-pāda-
+> taṁ tvānubhūtyoparata-kriyārthaṁ\
+> sva-māyayā vartita-loka-tantram\
+> namāmy abhīkṣṇaṁ namanīya-pāda-\
 > sarojam alpīyasi kāma-varṣam
 
 *tam*—esto; *tvā*—Tú; *anubhūtyā*—al comprender; *uparata*—sin apego; *kriyā*—disfrute de las actividades fruitivas; *artham*—para; *sva-māyayā*—mediante Tu propia energía; *vartita*—causados; *loka-tantram*—los mundos materiales; *namāmi*—ofrezco reverencias; *abhīkṣṇam*—continuamente; *namanīya*—adorables; *pāda-sarojam*—pies de loto; *alpīyasi*—al insignificante; *kāma*—deseos; *varṣam*—derramando.

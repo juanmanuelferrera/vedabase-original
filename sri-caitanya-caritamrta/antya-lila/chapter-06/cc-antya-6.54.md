@@ -1,9 +1,9 @@
 ### CC Antya 6.54
 
-> ‘মহোত্সব’-নাম শুনি’ ব্রাহ্মণ-সজ্জন ।
+> ‘মহোত্সব’-নাম শুনি’ ব্রাহ্মণ-সজ্জন ।\
 > আসিতে লাগিল লোক অসংখ্য-গণন ॥৫৪॥
 
-> 'mahotsava'-nāma śuni' brāhmaṇa-sajjana
+> 'mahotsava'-nāma śuni' brāhmaṇa-sajjana\
 > āsite lāgila loka asaṅkhya-gaṇana
 
 *mahotsava*—festival; *nāma*—name; *śuni*—hearing; *brāhmaṇa-sat-jana*—brāhmaṇas and other gentlemen; *āsite lāgila*—began to pour in; *loka*—people; *asaṅkhya-gaṇana*—in numerable.

@@ -1,9 +1,9 @@
 ### CC Madhya 5.7
 
-> সেই রাত্রি তাহাঁ রহি’ ভক্তগণ-সঙ্গে ।
+> সেই রাত্রি তাহাঁ রহি’ ভক্তগণ-সঙ্গে ।\
 > গোপালের পূর্বকথা শুনে বহু রঙ্গে ॥৭॥
 
-> sei rātri tāhāṅ rahi' bhakta-gaṇa-saṅge
+> sei rātri tāhāṅ rahi' bhakta-gaṇa-saṅge\
 > gopālera pūrva-kathā śune bahu raṅge
 
 *sei rātri*—that night; *tāhāṅ*—there; *rahi'*—remaining; *bhakta-gaṇa-saṅge*—with the other devotees; *gopālera*—of Lord Gopāla; *pūrva-kathā*—previous narration; *śune*—hears; *bahu*—much; *raṅge*—in pleasure.

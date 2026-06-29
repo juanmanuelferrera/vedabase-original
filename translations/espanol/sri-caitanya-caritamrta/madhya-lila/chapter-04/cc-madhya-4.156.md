@@ -1,9 +1,9 @@
 ### CC Madhya 4.156
 
-> পুরী দেখি’ সেবক সব সম্মান করিল ।
+> পুরী দেখি’ সেবক সব সম্মান করিল ।\
 > ক্ষীরপ্রসাদ দিয়া তাঁরে ভিক্ষা করাইল ॥১৫৬॥
 
-> purī dekhi' sevaka saba sammāna karila
+> purī dekhi' sevaka saba sammāna karila\
 > kṣīra-prasāda diyā tāṅre bhikṣā karāila
 
 *purī dekhi'*—al ver a Mādhavendra Purī; *sevaka*—el sacerdote o sirviente; *saba sammāna*—todos los respetos; *karila*—ofreció; *kṣīra-prasāda*—prasādam de arroz dulce; *diyā*—ofreciendo; *tāṅre*—a él; *bhikṣā karāila*—le hizo comer.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.61
 
-> এই — মহাভাগবত, যাঁহার দর্শনে  ।
+> এই — মহাভাগবত, যাঁহার দর্শনে  ।\
 > ব্রজেন্দ্রনন্দন-স্মৃতি হয় সর্বজনে ॥৬১॥
 
-> ei-mahā-bhāgavata, yāṅhāra darśane
+> ei-mahā-bhāgavata, yāṅhāra darśane\
 > vrajendra-nandana-smṛti haya sarva-jane
 
 *ei*—here is; *mahā-bhāgavata*—a first-class devotee; *yāṅhāra darśane*—by the sight of whom; *vrajendra-nandana*—of the son of the King of Vraja; *smṛti*—remembrance; *haya*—becomes; *sarva-jane*—for everyone.

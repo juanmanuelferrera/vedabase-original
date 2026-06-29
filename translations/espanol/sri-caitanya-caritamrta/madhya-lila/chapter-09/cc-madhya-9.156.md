@@ -1,11 +1,11 @@
 ### CC Madhya 9.156
 
-> মণির্যথা বিভাগেন নীলপীতাদিভির্যুতঃ ৷
+> মণির্যথা বিভাগেন নীলপীতাদিভির্যুতঃ ৷\
 > রূপভেদমবাপ্নোতি ধ্যানভেদাত্তথাচ্যুতঃ ৷৷ ১৫৬ ৷৷ ॥১৫৬॥
 
-> maṇir yathā vibhāgena
-> nīla-pītādibhir yutaḥ
-> rūpa-bhedam avāpnoti
+> maṇir yathā vibhāgena\
+> nīla-pītādibhir yutaḥ\
+> rūpa-bhedam avāpnoti\
 > dhyāna-bhedāt tathācyutaḥ
 
 *maṇiḥ*—joya, específicamente la joya conocida como vaidūrya; *yathā*—así como; *vibhāgena*—separadamente; *nīla*—azul; *pīta*—amarillo; *ādibhiḥ*—y con otros colores; *yutaḥ*—unida; *rūpa-bhedam*—diferencia de forma; *avāpnoti*—obtiene; *dhyāna-bhedāt*—por los diferentes tipos de meditación; *tathā*—de manera similar; *acyutaḥ*—la infalible Suprema Personalidad de Dios.

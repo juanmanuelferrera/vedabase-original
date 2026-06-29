@@ -1,13 +1,13 @@
 ### SB 6.3.29
 
-> जिह्वा न वक्ति भगवद्गुणनामधेयं
-> चेतश्च न स्मरति तच्चरणारविन्दम
-> कृष्णाय नो नमति यच्छिर एकदापि
+> जिह्वा न वक्ति भगवद्गुणनामधेयं\
+> चेतश्च न स्मरति तच्चरणारविन्दम\
+> कृष्णाय नो नमति यच्छिर एकदापि\
 > तानानयध्वमसतोऽकृतविष्णुकृत्यान ॥२९॥
 
-> jihvā na vakti bhagavad-guṇa-nāmadheyaṁ
-> cetaś ca na smarati tac-caraṇāravindam
-> kṛṣṇāya no namati yac-chira ekadāpi
+> jihvā na vakti bhagavad-guṇa-nāmadheyaṁ\
+> cetaś ca na smarati tac-caraṇāravindam\
+> kṛṣṇāya no namati yac-chira ekadāpi\
 > tān ānayadhvam asato 'kṛta-viṣṇu-kṛtyān
 
 *jihvā*—la lengua; *na*—no; *vakti*—canta; *bhagavat*—de la Suprema Personalidad de Dios; *guṇa*—cualidades trascendentales; *nāma*—y el santo nombre; *dheyam*—** que imparte; *cetaḥ*—el corazón; *ca*—también; *na*—no; *smarati*—recuerda; *tat*—** Sus; *caraṇa-aravindam*—pies de loto; *kṛṣṇāya*—ante el Señor Kṛṣṇa por intermedio de Su Deidad en el templo; *no*—no; *namati*—postra; *yat*—cuya; *śiraḥ*—cabeza; *ekadā api*—siquiera una vez; *tān*—a ellos; *ānayadhvam*—traigan ante mí; *asataḥ*—los no devotos; *akṛta*—que no llevan a cabo; *viṣṇu-kṛtyān*—deberes para con el Señor Viṣṇu.

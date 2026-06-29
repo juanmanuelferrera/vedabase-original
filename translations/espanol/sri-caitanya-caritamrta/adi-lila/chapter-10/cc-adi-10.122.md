@@ -1,9 +1,9 @@
 ### CC Adi 10.122
 
-> নীলাচলে এই সব ভক্ত প্রভুসঙ্গে ।
+> নীলাচলে এই সব ভক্ত প্রভুসঙ্গে ।\
 > দুই স্থানে প্রভু-সেবা কৈল নানা-রঙ্গে ॥১২২॥
 
-> nīlācale ei saba bhakta prabhu-saṅge
+> nīlācale ei saba bhakta prabhu-saṅge\
 > dui sthāne prabhu-sevā kaila nānā-raṅge
 
 *nīlācale*—en Jagannātha Purī; *ei*—estos; *saba*—todos; *bhakta*—devotos; *prabhu-saṅge*—en compañía del Señor Caitanya; *dui sthāne*—en dos lugares; *prabhu-sevā*—servicio al Señor; *kaila*—ejecutaron; *nānā-raṅge*—de diversas maneras.

@@ -1,11 +1,11 @@
 ### SB 4.26.8
 
-> अन्यथा कर्म कुर्वाणो मानारूढो निबध्यते ।
+> अन्यथा कर्म कुर्वाणो मानारूढो निबध्यते ।\
 > गुणप्रवाहपतितो नष्टप्रज्ञो व्रजत्यधः ॥८॥
 
-> anyathā karma kurvāṇo
-> mānārūḍho nibadhyate
-> guṇa-pravāha-patito
+> anyathā karma kurvāṇo\
+> mānārūḍho nibadhyate\
+> guṇa-pravāha-patito\
 > naṣṭa-prajño vrajaty adhaḥ
 
 *anyathā*—por el contrario; *karma*—actividades fruitivas; *kurvāṇaḥ*—cuando actúa; *māna-ārūḍhaḥ*—bajo la influencia del falso prestigio; *nibadhyate*—se enreda; *guṇa-pravāha*—por la influencia de las cualidades materiales; *patitaḥ*—caída; *naṣṭa-prajñaḥ*—privada de toda inteligencia; *vrajati*—así va; *adhaḥ*—hacia abajo.

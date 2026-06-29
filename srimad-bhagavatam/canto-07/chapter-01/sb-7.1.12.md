@@ -1,11 +1,11 @@
 ### SB 7.1.12
 
-> अत्रैवोदाहृतः पूर्वमितिहासः सुरर्षिणा
+> अत्रैवोदाहृतः पूर्वमितिहासः सुरर्षिणा\
 > प्रीत्या महाक्रतौ राजन्पृच्छतेऽजातशत्रवे ॥१२॥
 
-> ya eṣa rājann api kāla īśitā
-> sattvaṁ surānīkam ivaidhayaty ataḥ
-> tat-pratyanīkān asurān sura-priyo
+> ya eṣa rājann api kāla īśitā\
+> sattvaṁ surānīkam ivaidhayaty ataḥ\
+> tat-pratyanīkān asurān sura-priyo\
 > rajas-tamaskān pramiṇoty uruśravāḥ
 
 *yaḥ*—which; *eṣaḥ*—this; *rājan*—O King; *api*—even; *kālaḥ*—time; *īśitā*—the Supreme Lord; *sattvam*—the mode of goodness; *sura-anīkam*—numbers of demigods; *iva*—certainly; *edhayati*—causes to increase; *ataḥ*—hence; *tat-pratyanīkān*—inimical to them; *asurān*—the demons; *sura-priyaḥ*—being the friend of the demigods; *rajaḥ-tamaskān*—covered by passion and ignorance; *pramiṇoti*—destroys; *uru-śravāḥ*—whose glories are widespread.

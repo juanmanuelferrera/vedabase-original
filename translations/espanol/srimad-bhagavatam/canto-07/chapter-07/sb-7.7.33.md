@@ -1,11 +1,11 @@
 ### SB 7.7.33
 
-> एवं निर्जितषड्वर्गैः क्रियते भक्तिरीश्वरे
+> एवं निर्जितषड्वर्गैः क्रियते भक्तिरीश्वरे\
 > वासुदेवे भगवति यया संलभ्यते रतिः ॥३३॥
 
-> evaṁ nirjita-ṣaḍ-vargaiḥ
-> kriyate bhaktir īśvare
-> vāsudeve bhagavati
+> evaṁ nirjita-ṣaḍ-vargaiḥ\
+> kriyate bhaktir īśvare\
+> vāsudeve bhagavati\
 > yayā saṁlabhyate ratiḥ
 
 *evam*—así; *nirjita*—sometidas; *ṣaṭ-vargaiḥ*—por las seis manifestaciones de los sentidos (deseos lujuriosos, ira, codicia, ilusión, locura y envidia); *kriyate*—se ofrece; *bhaktiḥ*—servicio devocional; *īśvare*—al controlador supremo; *vāsudeve*—al Señor Vāsudeva; *bhagavati*—la Suprema Personalidad de Dios; *yayā*—por el cual; *saṁlabhyate*—se obtiene; *ratiḥ*—apego.

@@ -1,11 +1,11 @@
 ### SB 3.20.24
 
-> ततो हसन्स भगवानसुरैर्निरपत्रपैः ।
+> ततो हसन्स भगवानसुरैर्निरपत्रपैः ।\
 > अन्वीयमानस्तरसा क्रुद्धो भीतः परापतत् ॥२४॥
 
-> tato hasan sa bhagavān
-> asurair nirapatrapaiḥ
-> anvīyamānas tarasā
+> tato hasan sa bhagavān\
+> asurair nirapatrapaiḥ\
+> anvīyamānas tarasā\
 > kruddho bhītaḥ parāpatat
 
 *tataḥ*—entonces; *hasan*—riendo; *saḥ bhagavān*—el adorable Señor Brahmā; *asuraiḥ*—por los demonios; *nirapatrapaiḥ*—desvergonzados; *anvīyamānaḥ*—seguido; *tarasā*—a toda prisa; *kruddhaḥ*—furioso; *bhītaḥ*—temiendo; *parāpatat*—se alejó corriendo.

@@ -1,18 +1,18 @@
 ### SB 5.5.21-22
 
-> भूतेषु वीरुद्भ्य उदुत्तमा ये सरीसृपास्तेषु सबोधनिष्ठाः
-> ततो मनुष्याः प्रमथास्ततोऽपि गन्धर्वसिद्धा विबुधानुगा ये ॥२१॥
-> देवासुरेभ्यो मघवत्प्रधाना दक्षादयो ब्रह्मसुतास्तु तेषाम
+> भूतेषु वीरुद्भ्य उदुत्तमा ये सरीसृपास्तेषु सबोधनिष्ठाः\
+> ततो मनुष्याः प्रमथास्ततोऽपि गन्धर्वसिद्धा विबुधानुगा ये ॥२१॥\
+> देवासुरेभ्यो मघवत्प्रधाना दक्षादयो ब्रह्मसुतास्तु तेषाम\
 > भवः परः सोऽथ विरिञ्चवीर्यः स मत्परोऽहं द्विजदेवदेवः ॥२२॥
 
-> bhūteṣu vīrudbhya uduttamā ye
-> sarīsṛpās teṣu sabodha-niṣṭhāḥ
-> tato manuṣyāḥ pramathās tato 'pi
+> bhūteṣu vīrudbhya uduttamā ye\
+> sarīsṛpās teṣu sabodha-niṣṭhāḥ\
+> tato manuṣyāḥ pramathās tato 'pi\
 > gandharva-siddhā vibudhānugā ye
 
-> devāsurebhyo maghavat-pradhānā
-> dakṣādayo brahma-sutās tu teṣām
-> bhavaḥ paraḥ so 'tha viriñca-vīryaḥ
+> devāsurebhyo maghavat-pradhānā\
+> dakṣādayo brahma-sutās tu teṣām\
+> bhavaḥ paraḥ so 'tha viriñca-vīryaḥ\
 > sa mat-paro 'haṁ dvija-deva-devaḥ
 
 *bhūteṣu*—among things generated (with and without symptoms of life); *vīrudbhyaḥ*—than the plants; *uduttamāḥ*—far superior; *ye*—those who; *sarīsṛpāḥ*—moving entities like worms and snakes; *teṣu*—of them; *sa-bodha-niṣṭhāḥ*—those who have developed intelligence; *tataḥ*—than them; *manuṣyāḥ*—the human beings; *pramathāḥ*—the ghostly spirits; *tataḥ api*—better than them; *gandharva*—the inhabitants of Gandharvaloka (appointed singers in the planets of the demigods); *siddhāḥ*—the inhabitants of Siddhaloka, who have all mystic powers; *vibudha-anugāḥ*—the Kinnaras; *ye*—those who; *deva*—the demigods; *asurebhyaḥ*—than the *asuras*; *maghavat-pradhānāḥ*—headed by Indra; *dakṣa-ādayaḥ*—beginning with Dakṣa; *brahma-sutāḥ*—the direct sons of Brahmā; *tu*—then; *teṣām*—of them; *bhavaḥ*—Lord Śiva; *paraḥ*—the best; *saḥ*—he (Lord Śiva); *atha*—moreover; *viriñca-vīryaḥ*—producing from Lord Brahmā; *saḥ*—he (Brahmā); *mat-paraḥ*—My devotee; *aham*—I; *dvija-deva-devaḥ*—a worshiper of the *brāhmaṇas,* or the Lord of the *brāhmaṇas.*

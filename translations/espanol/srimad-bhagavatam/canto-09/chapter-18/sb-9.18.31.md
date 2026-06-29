@@ -1,11 +1,11 @@
 ### SB 9.18.31
 
-> विलोक्यौशनसीं राजञ्छर्मिष्ठा सुप्रजां क्वचित
+> विलोक्यौशनसीं राजञ्छर्मिष्ठा सुप्रजां क्वचित\
 > तमेव वव्रे रहसि सख्याः पतिमृतौ सती ॥३१॥
 
-> vilokyauśanasīṁ rājañ
-> charmiṣṭhā suprajāṁ kvacit
-> tam eva vavre rahasi
+> vilokyauśanasīṁ rājañ\
+> charmiṣṭhā suprajāṁ kvacit\
+> tam eva vavre rahasi\
 > sakhyāḥ patim ṛtau satī
 
 *vilokya*—al ver; *auśanasīm*—a Devayānī, la hija de Śukrācārya; *rājan*—¡oh, rey Parīkṣit!; *śarmiṣṭhā*—la hija de Vṛṣaparvā; *su-prajām*—que tenía hermosos hijos; *kvacit*—en algún momento; *tam*—a él (al rey Yayāti); *eva*—en verdad; *vavre*—pidió; *rahasi*—en un lugar apartado; *sakhyāḥ*—de su amiga; *patim*—al esposo; *ṛtau*—en el momento adecuado; *satī*—estar en esa posición.

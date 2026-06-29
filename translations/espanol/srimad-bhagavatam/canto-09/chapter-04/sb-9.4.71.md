@@ -1,11 +1,11 @@
 ### SB 9.4.71
 
-> ब्रह्मंस्तद्गच्छ भद्रं ते नाभागतनयं नृपम
+> ब्रह्मंस्तद्गच्छ भद्रं ते नाभागतनयं नृपम\
 > क्षमापय महाभागं ततः शान्तिर्भविष्यति ॥७१॥
 
-> brahmaṁs tad gaccha bhadraṁ te
-> nābhāga-tanayaṁ nṛpam
-> kṣamāpaya mahā-bhāgaṁ
+> brahmaṁs tad gaccha bhadraṁ te\
+> nābhāga-tanayaṁ nṛpam\
+> kṣamāpaya mahā-bhāgaṁ\
 > tataḥ śāntir bhaviṣyati
 
 *brahman*—¡oh, *brāhmaṇa*!; *tat*—por lo tanto; *gaccha*—tú ve; *bhadram*—toda buena fortuna; *te*—a ti; *nābhāga-tanayam*—al hijo de Mahārāja Nābhāga; *nṛpam*—al rey (a Ambarīṣa); *kṣamāpaya*—trata de satisfacerle; *mahā-bhāgam*—una gran personalidad, un devoto puro; *tataḥ*—a continuación; *śāntiḥ*—paz; *bhaviṣyati*—habrá.

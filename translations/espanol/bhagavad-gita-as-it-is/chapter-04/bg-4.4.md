@@ -1,13 +1,13 @@
 ### Bg 4.4
 
-> अर्जुन उवाच ।
-> अपरं भवतो जन्म परं जन्म विवस्वतः ।
+> अर्जुन उवाच ।\
+> अपरं भवतो जन्म परं जन्म विवस्वतः ।\
 > कथमेतद्विजानीयां त्वमादौ प्रोक्तवानिति ॥४॥
 
-> arjuna uvāca
-> aparaṁ bhavato janma
-> paraṁ janma vivasvataḥ
-> katham etad vijānīyāṁ
+> arjuna uvāca\
+> aparaṁ bhavato janma\
+> paraṁ janma vivasvataḥ\
+> katham etad vijānīyāṁ\
 > tvam ādau proktavān iti
 
 *arjunaḥ uvāca*—Arjuna dijo; *aparam*—menor; *bhavataḥ*—Tú; *janma*—nacimiento; *param*—superior; *janma*—nacimiento; *vivasvataḥ*—del dios del sol; *katham*—cómo; *etat*—esto; *vijānīyām*—he de entender; *tvam*—Tú; *adau*—al principio; *proktavān*—instruída; *iti*—así.

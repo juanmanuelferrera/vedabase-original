@@ -1,9 +1,9 @@
 ### CC Madhya 25.255
 
-> ষোড়শে — বৃন্দাবনযাত্রা গৌড়দেশ-পথে ।
+> ষোড়শে — বৃন্দাবনযাত্রা গৌড়দেশ-পথে ।\
 > পুনঃ নীলাচলে আইলা, নাটশালা হৈতে ॥২৫৫॥
 
-> ṣoḍaśe-vṛndāvana-yātrā gauḍa-deśa-pathe
+> ṣoḍaśe-vṛndāvana-yātrā gauḍa-deśa-pathe\
 > punaḥ nīlācale āilā, nāṭaśālā haite
 
 *ṣoḍaśe*—in the Sixteenth Chapter; *vṛndāvana-yātrā*—departure for visiting Vṛndāvana; *gauḍa-deśa-pathe*—on the way through the province of Bengal; *punaḥ*—again; *nīlācale āilā*—came back to Jagannātha Purī; *nāṭaśālā haite*—from Kānāi Nāṭaśālā.

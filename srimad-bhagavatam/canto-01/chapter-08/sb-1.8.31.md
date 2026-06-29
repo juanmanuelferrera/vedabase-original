@@ -1,11 +1,11 @@
 ### SB 1.8.31
 
-> गोप्याददे त्वयि कृतागसि दाम तावद्या ते दशाश्रुकलिलाञ्जनसम्भ्रमाक्षम् ।
+> गोप्याददे त्वयि कृतागसि दाम तावद्या ते दशाश्रुकलिलाञ्जनसम्भ्रमाक्षम् ।\
 > वक्त्रं निनीय भयभावनया स्थितस्य सा मां विमोहयति भीरपि यद्बिभेति ॥३१॥
 
-> gopy ādade tvayi kṛtāgasi dāma tāvad
-> yā te daśāśru-kalilāñjana-sambhramākṣam
-> vaktraṁ ninīya bhaya-bhāvanayā sthitasya
+> gopy ādade tvayi kṛtāgasi dāma tāvad\
+> yā te daśāśru-kalilāñjana-sambhramākṣam\
+> vaktraṁ ninīya bhaya-bhāvanayā sthitasya\
 > sā māṁ vimohayati bhīr api yad bibheti
 
 *gopī*—the cowherd lady (Yaśodā); *ādade*—took up; *tvayi*—on Your; *kṛtāgasi*—creating disturbances (by breaking the butter pot); *dāma*—rope; *tāvat*—at that time; *yā*—that which; *te*—Your; *daśā*—situation; *aśru-kalila*—overflooded with tears; *añjana*—ointment; *sambhrama*—perturbed; *akṣam*—eyes; *vaktram*—face; *ninīya*—downwards; *bhaya-bhāvanayā*—by thoughts of fear; *sthitasya*—of the situation; *sā*—that; *mām*—me; *vimohayati*—bewilders; *bhīḥ api*—even fear personified; *yat*—whom; *bibheti*—is afraid.

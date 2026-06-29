@@ -1,13 +1,13 @@
 ### CC Adi 4.202
 
-> অঙ্গস্তম্ভারম্ভমুত্তুঙ্গয়ন্তং প্রেমা-
-> নন্দং দারুকো নাভ্যনন্দৎ ।
-> কংসারাতের্বীজনে যেন সাক্ষাদ-
+> অঙ্গস্তম্ভারম্ভমুত্তুঙ্গয়ন্তং প্রেমা-\
+> নন্দং দারুকো নাভ্যনন্দৎ ।\
+> কংসারাতের্বীজনে যেন সাক্ষাদ-\
 > ক্ষোদীয়ানন্তরায়ো ব্যধায়ি ॥২০২॥
 
-> aṅga-stambhārambham uttuṅgayantaṁ
-> premānandaṁ dāruko nābhyanandat
-> kaṁsārāter vījane yena sākṣād
+> aṅga-stambhārambham uttuṅgayantaṁ\
+> premānandaṁ dāruko nābhyanandat\
+> kaṁsārāter vījane yena sākṣād\
 > akṣodīyān antarāyo vyadhāyi
 
 *aṅga*—de los miembros; *stambha-ārambham*—el comienzo del entumecimiento; *uttuṅgayantam*—que le hacía alcanzar; *prema-ānandam*—la dicha del amor; *dārukaḥ*—Dāruka, el auriga del Señor; *na*—no; *abhyanandat*—recibió con agrado; *kaṁsa-arāteḥ*—del Señor Kṛṣṇa, el enemigo de Kaṁsa; *vījane*—en abanicarle con un abanico *cāmara*; *yena*—por el cual; *sākṣāt*—claramente; *akṣodīyān*—mayor; *antarāyaḥ*—obstáculo; *vyadhāyi*—se creó.

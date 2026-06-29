@@ -1,11 +1,11 @@
 ### SB 3.14.29
 
-> ब्रह्मादयो यत्कृतसेतुपाला यत्कारणं विश्वमिदं च माया ।
+> ब्रह्मादयो यत्कृतसेतुपाला यत्कारणं विश्वमिदं च माया ।\
 > आज्ञाकरी यस्य पिशाचचर्या अहो विभूम्नश्चरितं विडम्बनम् ॥२९॥
 
-> brahmādayo yat-kṛta-setu-pālā
-> yat-kāraṇaṁ viśvam idaṁ ca māyā
-> ājñā-karī yasya piśāca-caryā
+> brahmādayo yat-kṛta-setu-pālā\
+> yat-kāraṇaṁ viśvam idaṁ ca māyā\
+> ājñā-karī yasya piśāca-caryā\
 > aho vibhūmnaś caritaṁ viḍambanam
 
 *brahma-ādayaḥ*—semidioses como Brahmā; *yat*—cuyas; *kṛta*—actividades; *setu*—ritos religiosos; *pālāḥ*—observadores; *yat*—aquel que es; *kāraṇam*—el origen de; *viśvam*—el universo; *idam*—esta; *ca*—también; *māyā*—energía material; *ājñā-karī*—que cumple las órdenes; *yasya*—cuya; *piśāca*—diabólica; *caryā*—actividad; *aho*—¡oh, mi señor!; *vibhūmnaḥ*—del gran; *caritam*—carácter; *viḍambanam*—simplemente imitación.

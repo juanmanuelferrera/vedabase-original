@@ -1,11 +1,11 @@
 ### SB 1.11.24
 
-> राजमार्गं गते कृष्णे द्वारकायाः कुलस्त्रियः ।
+> राजमार्गं गते कृष्णे द्वारकायाः कुलस्त्रियः ।\
 > हर्म्याण्यारुरुहुर्विप्र तदीक्षणमहोत्सवाः ॥२४॥
 
-> rāja-mārgaṁ gate kṛṣṇe
-> dvārakāyāḥ kula-striyaḥ
-> harmyāṇy āruruhur vipra
+> rāja-mārgaṁ gate kṛṣṇe\
+> dvārakāyāḥ kula-striyaḥ\
+> harmyāṇy āruruhur vipra\
 > tad-īkṣaṇa-mahotsavāḥ
 
 *rāja-mārgam*—the public roads; *gate*—while passing over; *kṛṣṇe*—by Lord Kṛṣṇa; *dvārakāyāḥ*—of the city of Dvārakā; *kula-striyaḥ*—ladies of the respectable families; *harmyāṇi*—on the palaces; *āruruhuḥ*—got up; *vipra*—O *brāhmaṇas*; *tat-īkṣaṇa*—just to look upon Him (Kṛṣṇa); *mahā-utsavāḥ*—accepted as the greatest festival.

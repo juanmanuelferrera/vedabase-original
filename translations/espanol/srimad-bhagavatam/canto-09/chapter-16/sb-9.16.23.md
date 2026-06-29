@@ -1,11 +1,11 @@
 ### SB 9.16.23
 
-> ततश्चावभृथस्नान विधूताशेषकिल्बिषः
+> ततश्चावभृथस्नान विधूताशेषकिल्बिषः\
 > सरस्वत्यां महानद्यां रेजे व्यब्भ्र इवांशुमान ॥२३॥
 
-> tataś cāvabhṛtha-snāna-
-> vidhūtāśeṣa-kilbiṣaḥ
-> sarasvatyāṁ mahā-nadyāṁ
+> tataś cāvabhṛtha-snāna-\
+> vidhūtāśeṣa-kilbiṣaḥ\
+> sarasvatyāṁ mahā-nadyāṁ\
 > reje vyabbhra ivāṁśumān
 
 *tataḥ*—a continuación; *ca*—también; *avabhṛtha-snāna*—bañándose después de celebrar el sacrificio; *vidhūta*—limpió; *aśeṣa*—ilimitadas; *kilbiṣaḥ*—cuyas reacciones de actividades pecaminosas; *sarasvatyām*—a orillas del gran río Sarasvatī; *mahā-nadyām*—uno de los ríos más grandes de la India; *reje*—el Señor Paraśurāma tenía el aspecto; *vyabbhraḥ*—sin nubes; *iva aṁśumān*—del sol.

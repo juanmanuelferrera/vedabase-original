@@ -1,9 +1,9 @@
 ### CC Madhya 6.143
 
-> ব্রহ্ম হৈতে জন্মে বিশ্ব, ব্রহ্মেতে জীবয় ।
+> ব্রহ্ম হৈতে জন্মে বিশ্ব, ব্রহ্মেতে জীবয় ।\
 > সেই ব্ৰহ্মে পুনরপি হয়ে যায় লয় ॥১৪৩॥
 
-> brahma haite janme viśva, brahmete jīvaya
+> brahma haite janme viśva, brahmete jīvaya\
 > sei brahme punarapi haye yāya laya
 
 *brahma haite*—del Brahman Supremo; *janme*—emana; *viśva*—toda la manifestación cósmica; *brahmete*—en la Verdad Absoluta; *jīvaya*—existe; *sei*—esa; *brahme*—en la Verdad Absoluta; *punarapi*—de nuevo; *haye*—siendo; *yāya*—va; *laya*—a la aniquilación.

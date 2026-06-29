@@ -1,18 +1,18 @@
 ### SB 9.22.16-17
 
-> एवमुक्तो द्विजैर्ज्येष्ठं छन्दयामास सोऽब्रवीत
-> तन्मन्त्रिप्रहितैर्विप्रैर्वेदाद्विभ्रंशितो गिरा ॥१६॥
-> वेदवादातिवादान्वै तदा देवो ववर्ष ह
+> एवमुक्तो द्विजैर्ज्येष्ठं छन्दयामास सोऽब्रवीत\
+> तन्मन्त्रिप्रहितैर्विप्रैर्वेदाद्विभ्रंशितो गिरा ॥१६॥\
+> वेदवादातिवादान्वै तदा देवो ववर्ष ह\
 > देवापिर्योगमास्थाय कलापग्राममाश्रितः ॥१७॥
 
-> evam ukto dvijair jyeṣṭhaṁ
-> chandayām āsa so 'bravīt
-> tan-mantri-prahitair viprair
+> evam ukto dvijair jyeṣṭhaṁ\
+> chandayām āsa so 'bravīt\
+> tan-mantri-prahitair viprair\
 > vedād vibhraṁśito girā
 
-> veda-vādātivādān vai
-> tadā devo vavarṣa ha
-> devāpir yogam āsthāya
+> veda-vādātivādān vai\
+> tadā devo vavarṣa ha\
+> devāpir yogam āsthāya\
 > kalāpa-grāmam āśritaḥ
 
 *evam*—así (como antes se mencionó); *uktaḥ*—aconsejado; *dvijaiḥ*—por los *brāhmaṇas*; *jyeṣṭham*—a su hermano mayor, Devāpi; *chandayām āsa*—pidió que se encargase del reino; *saḥ*—él (Devāpi); *abravīt*—dijo; *tat-mantri*—por el ministro de Śāntanu; *prahitaiḥ*—inducido; *vipraiḥ*—por los *brāhmaṇas*; *vedāt*—de los principios de los *Vedas*; *vibhraṁśitaḥ*—degradado; *girā*—con esas palabras; *veda-vāda-ativādān*—blasfemias contra los mandamientos védicos; *vai*—en verdad; *tadā*—en ese momento; *devaḥ*—el semidiós; *vavarṣa*—derramó lluvias; *ha*—en el pasado; *devāpiḥ*—Devāpi; *yogam āsthāya*—seguir el proceso místico de *yoga*; *kalāpa-grāmam*—la aldea de Kalāpa; *āśrita*—se refugió en (y vive aún en la actualidad).

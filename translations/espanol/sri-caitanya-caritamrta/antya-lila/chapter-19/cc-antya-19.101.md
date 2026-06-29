@@ -1,13 +1,13 @@
 ### CC Antya 19.101
 
-> মাতৃভক্তি, প্রলাপন, ভিত্ত্যে মুখ-ঘর্ষণ,
-> কৃষ্ণগন্ধ-স্ফূর্ত্যে দিব্যনৃত্য ।
-> এই চারিলীলা-ভেদে, গাইল এই পরিচ্ছেদে,
+> মাতৃভক্তি, প্রলাপন, ভিত্ত্যে মুখ-ঘর্ষণ,\
+> কৃষ্ণগন্ধ-স্ফূর্ত্যে দিব্যনৃত্য ।\
+> এই চারিলীলা-ভেদে, গাইল এই পরিচ্ছেদে,\
 > কৃষ্ণদাস রূপগোসাঞি-ভৃত্য ॥১০১॥
 
-> mātṛ-bhakti, pralāpana, bhittye mukha-gharṣaṇa,
-> kṛṣṇa-gandha-sphūrtye divya-nṛtya
-> ei cāri-līlā-bhede, gāila ei paricchede,
+> mātṛ-bhakti, pralāpana, bhittye mukha-gharṣaṇa,\
+> kṛṣṇa-gandha-sphūrtye divya-nṛtya\
+> ei cāri-līlā-bhede, gāila ei paricchede,\
 > kṛṣṇadāsa rūpa-gosāñi-bhṛtya
 
 *mātṛ-bhakti*—devoción a Su madre; *pralāpana*—palabras de locura; *bhittye*—en las paredes; *mukha-gharṣaṇa*—frotarse el rostro; *kṛṣṇa-gandha*—de la fragancia del Señor Kṛṣṇa; *sphūrtye*—ante la aparición; *divya-nṛtya*—danza trascendental; *ei*—estos; *cāri*—cuatro; *līlā*—pasatiempos; *bhede*—diferentes; *gāila*—ha cantado; *ei paricchede*—en este capítulo; *kṛṣṇadāsa*—Kṛṣṇadāsa Kavirāja; *rūpa-gosāñi-bhṛtya*—sirviente de Śrīla Rūpa Gosvāmī.

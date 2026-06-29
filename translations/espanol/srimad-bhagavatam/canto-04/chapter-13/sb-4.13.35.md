@@ -1,11 +1,11 @@
 ### SB 4.13.35
 
-> इति व्यवसिता विप्रास्तस्य राज्ञः प्रजातये ।
+> इति व्यवसिता विप्रास्तस्य राज्ञः प्रजातये ।\
 > पुरोडाशं निरवपन्शिपिविष्टाय विष्णवे ॥३५॥
 
-> iti vyavasitā viprās
-> tasya rājñaḥ prajātaye
-> puroḍāśaṁ niravapan
+> iti vyavasitā viprās\
+> tasya rājñaḥ prajātaye\
+> puroḍāśaṁ niravapan\
 > śipi-viṣṭāya viṣṇave
 
 *iti*—de esta forma; *vyavasitāḥ*—habiendo decidido; *viprāḥ*—los *brāhmaṇas*; *tasya*—su; *rājñaḥ*—del rey; *prajātaye*—para que tuviese un hijo; *puroḍāśam*—los artículos necesarios para el sacrificio; *niravapan*—ofrecieron; *śipi-viṣṭāya*—al Señor, que está situado en el fuego de sacrificio; *viṣṇave*—al Señor Viṣṇu.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.269
 
-> tomāra sammukhe dekhi kāñcana-pañcālikā
+> tomāra sammukhe dekhi kāñcana-pañcālikā\
 > tāṅra gaura-kāntye tomāra sarva aṅga ḍhākā
 
-> tomāra sammukhe dekhi kāñcana-pañcālikā
+> tomāra sammukhe dekhi kāñcana-pañcālikā\
 > tāṅra gaura-kāntye tomāra sarva aṅga ḍhākā
 
 *tomāra*—de Ti; *sammukhe*—delante; *dekhi*—veo; *kāñcana-pañcālikā*—una muñeca hecha de oro; *tāṅra*—de ella; *gaura-kāntye*—por un fulgor dorado; *tomāra*—Tu; *sarva*—todo; *aṅga*—cuerpo; *ḍhākā*—cubierto.

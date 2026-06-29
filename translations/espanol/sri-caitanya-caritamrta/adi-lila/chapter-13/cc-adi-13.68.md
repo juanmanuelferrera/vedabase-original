@@ -1,9 +1,9 @@
 ### CC Adi 13.68
 
-> লোকের নিস্তার-হেতু করেন চিন্তন ।
+> লোকের নিস্তার-হেতু করেন চিন্তন ।\
 > কেমতে এ সব লোকের হইবে তারণ ॥৬৮॥
 
-> lokera nistāra-hetu karena cintana
+> lokera nistāra-hetu karena cintana\
 > kemate e saba lokera ha-ibe tāraṇa
 
 *lokera*—de toda la gente; *nistāra-hetu*—para la liberación; *karena*—hace; *cintana*—contemplación; *kemate*—cómo; *e*—estas; *saba*—todas; *lokera*—de la gente en general; *ha-ibe*—habrá; *tāraṇa*—liberación.

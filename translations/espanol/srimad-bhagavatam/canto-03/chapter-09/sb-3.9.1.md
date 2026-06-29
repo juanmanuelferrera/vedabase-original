@@ -1,15 +1,15 @@
 ### SB 3.9.1
 
-> ब्रह्मोवाच
-> ज्ञातोऽसि मेऽद्य सुचिरान्ननु देहभाजां
-> न ज्ञायते भगवतो गतिरित्यवद्यम् ।
-> नान्यत्त्वदस्ति भगवन्नपि तन्न शुद्धं
+> ब्रह्मोवाच\
+> ज्ञातोऽसि मेऽद्य सुचिरान्ननु देहभाजां\
+> न ज्ञायते भगवतो गतिरित्यवद्यम् ।\
+> नान्यत्त्वदस्ति भगवन्नपि तन्न शुद्धं\
 > मायागुणव्यतिकराद्यदुरुर्विभासि ॥१॥
 
-> brahmovāca
-> jñāto 'si me 'dya sucirān nanu deha-bhājāṁ
-> na jñāyate bhagavato gatir ity avadyam
-> nānyat tvad asti bhagavann api tan na śuddhaṁ
+> brahmovāca\
+> jñāto 'si me 'dya sucirān nanu deha-bhājāṁ\
+> na jñāyate bhagavato gatir ity avadyam\
+> nānyat tvad asti bhagavann api tan na śuddhaṁ\
 > māyā-guṇa-vyatikarād yad urur vibhāsi
 
 *brahmā uvāca*—Brahmā dijo; *jñātaḥ*—conocido; *asi*—Tú eres; *me*—por mí; *adya*—hoy; *sucirāt*—después de mucho tiempo; *nanu*—pero; *deha-bhājām*—de aquel que tiene un cuerpo material; *na*—no; *jñāyate*—es conocido; *bhagavataḥ*—de la Personalidad de Dios; *gatiḥ*—curso; *iti*—así es; *avadyam*—gran ofensa; *na anyat*—nada más allá; *tvat*—de Ti; *asti*—hay; *bhagavan*—¡oh, mi Señor!; *api*—aunque haya; *tat*—algo que pueda ser; *na*—nunca; *śuddham*—absoluto; *māyā*—energía material; *guṇa-vyatikarāt*—debido a la mezcla de las modalidades de; *yat*—lo cual; *uruḥ*—trascendental; *vibhāsi*—Tú eres.

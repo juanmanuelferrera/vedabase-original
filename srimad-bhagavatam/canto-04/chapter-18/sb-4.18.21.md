@@ -1,11 +1,11 @@
 ### SB 4.18.21
 
-> यक्षरक्षांसि भूतानि पिशाचाः पिशिताशनाः ।
+> यक्षरक्षांसि भूतानि पिशाचाः पिशिताशनाः ।\
 > भूतेशवत्सा दुदुहुः कपाले क्षतजासवम् ॥२१॥
 
-> yakṣa-rakṣāṁsi bhūtāni
-> piśācāḥ piśitāśanāḥ
-> bhūteśa-vatsā duduhuḥ
+> yakṣa-rakṣāṁsi bhūtāni\
+> piśācāḥ piśitāśanāḥ\
+> bhūteśa-vatsā duduhuḥ\
 > kapāle kṣatajāsavam
 
 *yakṣa*—the Yakṣas (the descendants of Kuvera); *rakṣāṁsi*—the Rākṣasas (meat-eaters); *bhūtāni*—ghosts; *piśācāḥ*—witches; *piśita-aśanāḥ*—who are all habituated to eating flesh; *bhūteśa*—Lord Śiva's incarnation Rudra; *vatsāḥ*—whose calf; *duduhuḥ*—milked out; *kapāle*—in a pot of skulls; *kṣata-ja*—blood; *āsavam*—a fermented beverage.

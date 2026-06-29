@@ -1,9 +1,9 @@
 ### CC Adi 10.32
 
-> দণ্ড-কথা কহিব আগে বিস্তার করিয়া ।
+> দণ্ড-কথা কহিব আগে বিস্তার করিয়া ।\
 > দণ্ডে তুষ্ট প্রভু তাঁরে পাঠাইলা নদীয়া ॥৩২॥
 
-> daṇḍa-kathā kahiba āge vistāra kariyā
+> daṇḍa-kathā kahiba āge vistāra kariyā\
 > daṇḍe tuṣṭa prabhu tāṅre pāṭhāilā nadīyā
 
 *daṇḍa-kathā*—la narración de tal reprensión; *kahiba*—hablaré; *āge*—más adelante; *vistāra*—descripción detallada; *kariyā*—haciendo; *daṇḍe*—en lo referente a la reprensión; *tuṣṭa prabhu*—el Señor quedó muy satisfecho; *tāṅre*—a él; *pāṭhāilā*—envió de regreso; *nadīyā*—Nadia (un distrito de Bengala).

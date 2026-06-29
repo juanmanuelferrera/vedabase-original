@@ -1,9 +1,9 @@
 ### CC Adi 8.32
 
-> স্বতন্ত্র ঈশ্বর প্রভু অত্যন্ত উদার ।
+> স্বতন্ত্র ঈশ্বর প্রভু অত্যন্ত উদার ।\
 > তাঁরে না ভজিলে কভু না হয় নিস্তার ॥৩২॥
 
-> svatantra īśvara prabhu atyanta udāra
+> svatantra īśvara prabhu atyanta udāra\
 > tāṅre nā bhajile kabhu nā haya nistāra
 
 *svatantra īśvara*—the fully independent Supreme Lord; *prabhu*—the Lord; *atyanta*—very much; *udāra*—magnanimous; *tāṅre*—unto Him; *nā*—without; *bhajile*—worshiping; *kabhu nā*—never at any time; *haya*—becomes so; *nistāra*—liberation.

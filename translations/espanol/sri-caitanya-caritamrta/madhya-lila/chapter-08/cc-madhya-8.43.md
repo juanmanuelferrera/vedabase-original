@@ -1,9 +1,9 @@
 ### CC Madhya 8.43
 
-> আকৃত্যে-প্রকৃত্যে তোমার ঈশ্বর-লক্ষণ ৷
+> আকৃত্যে-প্রকৃত্যে তোমার ঈশ্বর-লক্ষণ ৷\
 > জীবে না সম্ভবে এই অপ্রাকৃত গুণ ৷৷ ৪৩ ৷৷ ॥৪৩॥
 
-> ākṛtye-prakṛtye tomāra īśvara-lakṣaṇa
+> ākṛtye-prakṛtye tomāra īśvara-lakṣaṇa\
 > jīve nā sambhave ei aprākṛta guṇa
 
 *ākṛtye*—en los rasgos corporales; *prakṛtye*—en el comportamiento; *tomāra*—de Ti; *īśvara*—de la Suprema Personalidad de Dios; *lakṣaṇa*—los síntomas; *jīve*—en una entidad viviente ordinaria; *nā*—no; *sambhave*—posible; *ei*—estas; *aprākṛta*—trascendentales; *guṇa*—cualidades.

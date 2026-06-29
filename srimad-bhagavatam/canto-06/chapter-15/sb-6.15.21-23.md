@@ -1,25 +1,25 @@
 ### SB 6.15.21-23
 
-> अधुना पुत्रिणां तापो भवतैवानुभूयते
-> एवं दारा गृहा रायो विविधैश्वर्यसम्पदः ॥२१॥
-> शब्दादयश्च विषयाश्चला राज्यविभूतयः
-> मही राज्यं बलं कोषो भृत्यामात्यसुहृज्जनाः ॥२२॥
-> सर्वेऽपि शूरसेनेमे शोकमोहभयार्तिदाः
+> अधुना पुत्रिणां तापो भवतैवानुभूयते\
+> एवं दारा गृहा रायो विविधैश्वर्यसम्पदः ॥२१॥\
+> शब्दादयश्च विषयाश्चला राज्यविभूतयः\
+> मही राज्यं बलं कोषो भृत्यामात्यसुहृज्जनाः ॥२२॥\
+> सर्वेऽपि शूरसेनेमे शोकमोहभयार्तिदाः\
 > गन्धर्वनगरप्रख्याः स्वप्नमायामनोरथाः ॥२३॥
 
-> adhunā putriṇāṁ tāpo
-> bhavataivānubhūyate
-> evaṁ dārā gṛhā rāyo
+> adhunā putriṇāṁ tāpo\
+> bhavataivānubhūyate\
+> evaṁ dārā gṛhā rāyo\
 > vividhaiśvarya-sampadaḥ
 
-> śabdādayaś ca viṣayāś
-> calā rājya-vibhūtayaḥ
-> mahī rājyaṁ balaṁ koṣo
+> śabdādayaś ca viṣayāś\
+> calā rājya-vibhūtayaḥ\
+> mahī rājyaṁ balaṁ koṣo\
 > bhṛtyāmātya-suhṛj-janāḥ
 
-> sarve 'pi śūraseneme
-> śoka-moha-bhayārtidāḥ
-> gandharva-nagara-prakhyāḥ
+> sarve 'pi śūraseneme\
+> śoka-moha-bhayārtidāḥ\
+> gandharva-nagara-prakhyāḥ\
 > svapna-māyā-manorathāḥ
 
 *adhunā*—at the present moment; *putriṇām*—of persons who have children; *tāpaḥ*—the tribulation; *bhavatā*—by you; *eva*—indeed; *anubhūyate*—is experienced; *evam*—in this way; *dārāḥ*—good wife; *gṛhāḥ*—residence; *rāyaḥ*—riches; *vividha*—various; *aiśvarya*—opulences; *sampadaḥ*—prosperities; *śabda-ādayaḥ*—sound and so on; *ca*—and; *viṣayāḥ*—the objects of sense gratification; *calāḥ*—temporary; *rājya*—of the kingdom; *vibhūtayaḥ*—opulences; *mahī*—land; *rājyam*—kingdom; *balam*—strength; *koṣaḥ*—treasury; *bhṛtya*—servants; *amātya*—ministers; *suhṛt-janāḥ*—allies; *sarve*—all; *api*—indeed; *śūrasena*—O King of Śūrasena; *ime*—these; *śoka*—of lamentation; *moha*—of illusion; *bhaya*—of fear; *arti*—and distress; *dāḥ*—givers; *gandharva-nagara-prakhyāḥ*—headed by the illusory sight of a *gandharva-nagara,* a big palace within the forest; *svapna*—dreams; *māyā*—illusions; *manorathāḥ*—and concoctions of the mind.

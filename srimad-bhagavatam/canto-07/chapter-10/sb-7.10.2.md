@@ -1,13 +1,13 @@
 ### SB 7.10.2
 
-> श्रीप्रह्राद उवाच
-> मा मां प्रलोभयोत्पत्त्या सक्तंकामेषु तैर्वरैः
+> श्रीप्रह्राद उवाच\
+> मा मां प्रलोभयोत्पत्त्या सक्तंकामेषु तैर्वरैः\
 > तत्सङ्गभीतो निर्विण्णो मुमुक्षुस्त्वामुपाश्रितः ॥२॥
 
-> śrī-prahrāda uvāca
-> mā māṁ pralobhayotpattyā
-> saktaṁkāmeṣu tair varaiḥ
-> tat-saṅga-bhīto nirviṇṇo
+> śrī-prahrāda uvāca\
+> mā māṁ pralobhayotpattyā\
+> saktaṁkāmeṣu tair varaiḥ\
+> tat-saṅga-bhīto nirviṇṇo\
 > mumukṣus tvām upāśritaḥ
 
 *śrī-prahrādaḥ uvāca*—Prahlāda Mahārāja said (to the Supreme Personality of Godhead); *mā*—please do not; *mām*—me; *pralobhaya*—allure; *utpattyā*—because of my birth (in a demoniac family); *saktam*—(I am already) attached; *kāmeṣu*—to material enjoyment; *taiḥ*—by all those; *varaiḥ*—benedictions of material possessions; *tat-saṅga-bhītaḥ*—being afraid of such material association; *nirviṇṇaḥ*—completely detached from material desires; *mumukṣuḥ*—desiring to be liberated from material conditions of life; *tvām*—unto Your lotus feet; *upāśritaḥ*—I have taken shelter.

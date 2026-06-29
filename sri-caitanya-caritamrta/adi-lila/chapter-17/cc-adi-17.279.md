@@ -1,9 +1,9 @@
 ### CC Adi 17.279
 
-> শ্যামসুন্দর, শিখিপিচ্ছ-গুঞ্জা-বিভূষণ ।
+> শ্যামসুন্দর, শিখিপিচ্ছ-গুঞ্জা-বিভূষণ ।\
 > গোপ-বেশ, ত্রিভঙ্গিম, মুরলী-বদন ॥২৭৯॥
 
-> śyāmasundara, śikhipiccha-guñjā-vibhūṣaṇa
+> śyāmasundara, śikhipiccha-guñjā-vibhūṣaṇa\
 > gopa-veśa, tri-bhaṅgima, muralī-vadana
 
 *śyāma-sundara*—Lord Kṛṣṇa, who has a bluish color; *śikhi-piccha*—with a peacock feather on the head; *guñjā*—a garland of *guñjā* (small berries or conchshells); *vibhūṣaṇa*—decorations; *gopa-veśa*—with the dress of a cowherd boy; *tri-bhaṅgima*—curved in three places; *muralī-vadana*—holding a flute to His mouth.

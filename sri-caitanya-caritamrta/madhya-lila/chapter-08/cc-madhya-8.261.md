@@ -1,9 +1,9 @@
 ### CC Madhya 8.261
 
-> দোঁহে নিজ-নিজ-কার্যে চলিলা বিহানে ।
+> দোঁহে নিজ-নিজ-কার্যে চলিলা বিহানে ।\
 > সন্ধ্যাকালে রায় আসি’ মিলিলা আর দিনে ॥২৬১॥
 
-> doṅhe nija-nija-kārye calilā vihāne
+> doṅhe nija-nija-kārye calilā vihāne\
 > sandhyā-kāle rāya āsi' mililā āra dine
 
 *doṅhe*—both of them; *nija-nija-kārye*—in their respective duties; *calilā*—departed; *vihāne*—in the morning; *sandhyā-kāle*—in the evening; *rāya*—Rāmānanda Rāya; *āsi'*—coming again; *mililā*—met; *āra*—next; *dine*—on the day.

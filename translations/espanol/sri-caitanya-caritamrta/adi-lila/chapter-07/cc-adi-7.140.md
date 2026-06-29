@@ -1,9 +1,9 @@
 ### CC Adi 7.140
 
-> তাঁরে ‘নির্বিশেষ’ কহি, চিচ্ছক্তি না মানি ।
+> তাঁরে ‘নির্বিশেষ’ কহি, চিচ্ছক্তি না মানি ।\
 > অর্ধ স্বরূপ না মানিলে পূর্ণতা হয় হানি ॥১৪০॥
 
-> tāṅre 'nirviśeṣa' kahi, cic-chakti nā māni
+> tāṅre 'nirviśeṣa' kahi, cic-chakti nā māni\
 > ardha-svarūpa nā mānile pūrṇatā haya hāni
 
 *tāṅre*—a Él; *nirviśeṣa*—impersonal; *kahi*—decimos; *cit-śakti*—energía espiritual; *nā*—no; *māni*—aceptamos; *ardha*—mitad; *svarūpa*—forma; *nā*—no; *mānile*—aceptando; *pūrṇatā*—plenitud; *haya*—resulta; *hāni*—defectuosa.

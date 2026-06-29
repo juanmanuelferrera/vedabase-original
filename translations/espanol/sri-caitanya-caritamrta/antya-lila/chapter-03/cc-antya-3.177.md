@@ -1,9 +1,9 @@
 ### CC Antya 3.177
 
-> কেহ বলে, — ‘নাম হৈতে হয় পাপক্ষয়’ ।
+> কেহ বলে, — ‘নাম হৈতে হয় পাপক্ষয়’ ।\
 > কেহ বলে, — ‘নাম হৈতে জীবের মোক্ষ হয় ।।’ ॥ ১৭৭ ॥
 
-> keha bale,--'nāma haite haya pāpa-kṣaya'
+> keha bale,--'nāma haite haya pāpa-kṣaya'\
 > keha bale,--'nāma haite jīvera mokṣa haya'
 
 *keha bale*—algunos de ellos dijeron; *nāma haite*—al cantar el mantra Hare Kṛṣṇa; *haya*—hay; *pāpa-kṣaya*—desaparición de todas las reacciones de las actividades pecaminosas; *keha bale*—algunos de ellos dijeron; *nāma haite*—al cantar el santo nombre; *jīvera*—de las entidades vivientes; *mokṣa haya*—hay liberación.

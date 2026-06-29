@@ -1,11 +1,11 @@
 ### SB 3.2.18
 
-> को वा अमुष्याङ्घ्रिसरोजरेणुं विस्मर्तुमीशीत पुमान्विजिघ्रन् ।
+> को वा अमुष्याङ्घ्रिसरोजरेणुं विस्मर्तुमीशीत पुमान्विजिघ्रन् ।\
 > यो विस्फुरद्भ्रूविटपेन भूमेर्भारं कृतान्तेन तिरश्चकार ॥१८॥
 
-> ko vā amuṣyāṅghri-saroja-reṇuṁ
-> vismartum īśīta pumān vijighran
-> yo visphurad-bhrū-viṭapena bhūmer
+> ko vā amuṣyāṅghri-saroja-reṇuṁ\
+> vismartum īśīta pumān vijighran\
+> yo visphurad-bhrū-viṭapena bhūmer\
 > bhāraṁ kṛtāntena tiraścakāra
 
 *kaḥ*—quién más; *vā*—o bien; *amuṣya*—del Señor, *aṅghri*—pies; *saroja-reṇum*—polvo del loto; *vismartum*—de olvidar; *īśīta*—podrá; *pumān*—persona; *vijighran*—oliendo; *yaḥ*—aquel que; *visphurat*—expandiendo; *bhrū-viṭapena*—mediante las cejas similares a hojas; *bhūmeḥ*—de la Tierra; *bhāram*—carga; *kṛta-antena*—mediante golpes mortales; *tiraścakāra*—ejecutó.

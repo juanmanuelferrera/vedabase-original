@@ -2,7 +2,7 @@
 
 > সিংহদ্বার ডাহিনে ছাড়ি’ সব বৈষ্ণবগণ । কাশীমিশ্র-গৃহ-পথে করিলা গমন । হেনকালে মহাপ্রভু নিজগণ-সঙ্গে । বৈষ্ণবে মিলিলা আসি’ পথে বহুরঙ্গে ॥১২৫॥
 
-> siṁha-dvāra ḍāhine chāḍi' saba vaiṣṇava-gaṇa
+> siṁha-dvāra ḍāhine chāḍi' saba vaiṣṇava-gaṇa\
 > kāśī-miśra-gṛha-pathe karilā gamana
 
 *siṁha-dvāra ḍāhine*—on the right side of the lion gate; *chāḍi'*—leaving aside; *saba*—all; *vaiṣṇava-gaṇa*—devotees of Lord Śrī Caitanya Mahāprabhu; *kāśī-miśra-gṛha*—to the house of Kāśī Miśra; *pathe*—on the way; *karilā gamana*—began to proceed.

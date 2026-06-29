@@ -1,11 +1,11 @@
 ### SB 2.1.2
 
-> श्रोतव्यादीनि राजेन्द्र नृणां सन्ति सहस्रशः ।
+> श्रोतव्यादीनि राजेन्द्र नृणां सन्ति सहस्रशः ।\
 > अपश्यतामात्मतत्त्वं गृहेषु गृहमेधिनाम् ॥२॥
 
-> śrotavyādīni rājendra
-> nṛṇāṁ santi sahasraśaḥ
-> apaśyatām ātma-tattvaṁ
+> śrotavyādīni rājendra\
+> nṛṇāṁ santi sahasraśaḥ\
+> apaśyatām ātma-tattvaṁ\
 > gṛheṣu gṛha-medhinām
 
 *śrotavya-ādīni*—subject matters for hearing; *rājendra*—O Emperor; *nṛṇām*—of human society; *santi*—there are; *sahasraśaḥ*—hundreds and thousands; *apaśyatām*—of the blind; *ātma-tattvam*—knowledge of self, the ultimate truth; *gṛheṣu*—at home; *gṛha-medhinām*—of persons too materially engrossed.

@@ -1,13 +1,13 @@
 ### CC Madhya 25.128
 
-> বিসৃজতি হৃদয়ং ন যস্য সাক্ষাং
-> দ্ধরিরবশাভিহিতোঽপ্যঘৌঘনাশঃ ।
-> প্রণয়রসনয়া ধৃতাঙ্ঘ্রিপদ্মঃ
+> বিসৃজতি হৃদয়ং ন যস্য সাক্ষাং\
+> দ্ধরিরবশাভিহিতোঽপ্যঘৌঘনাশঃ ।\
+> প্রণয়রসনয়া ধৃতাঙ্ঘ্রিপদ্মঃ\
 > স ভবতি ভাগবতপ্রধান উক্তঃ ॥১২৮॥
 
-> visṛjati hṛdayaṁ na yasya sākṣād
-> dharir avaśābhihito 'py aghaugha-nāśaḥ
-> praṇaya-rasanayā dhṛtāṅghri-padmaḥ
+> visṛjati hṛdayaṁ na yasya sākṣād\
+> dharir avaśābhihito 'py aghaugha-nāśaḥ\
+> praṇaya-rasanayā dhṛtāṅghri-padmaḥ\
 > sa bhavati bhāgavata-pradhāna uktaḥ
 
 *visṛjati*—abandona; *hṛdayam*—el corazón; *na*—no; *yasya*—de quien; *sākṣāt*—directamente; *hariḥ*—la Suprema Personalidad de Dios; *avaśa-abhihitaḥ*—que es glorificado automáticamente; *api*—aunque; *aghaugha-nāśaḥ*—que aniquila toda clase de ofensas desfavorables para un devoto; *praṇaya-rasanayā*—con la cuerda del amor; *dhṛta-aṅghri-padmaḥ*—cuyos pies de loto están atados; *saḥ*—tal devoto; *bhavati*—es; *bhāgavata-pradhānaḥ*—el devoto más elevado; *uktaḥ*—se dice.

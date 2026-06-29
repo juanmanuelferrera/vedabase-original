@@ -1,11 +1,11 @@
 ### SB 3.30.32
 
-> दैवेनासादितं तस्य शमलं निरये पुमान् ।
+> दैवेनासादितं तस्य शमलं निरये पुमान् ।\
 > भुङ्क्ते कुटुम्बपोषस्य हृतवित्त इवातुरः ॥३२॥
 
-> daivenāsāditaṁ tasya
-> śamalaṁ niraye pumān
-> bhuṅkte kuṭumba-poṣasya
+> daivenāsāditaṁ tasya\
+> śamalaṁ niraye pumān\
+> bhuṅkte kuṭumba-poṣasya\
 > hṛta-vitta ivāturaḥ
 
 *daivena*—por disposición de la Suprema Personalidad de Dios; *āsāditam*—obtenida; *tasya*—su; *śamalam*—reacción pecaminosa; *niraye*—en una condición infernal; *pumān*—el hombre; *bhuṅkte*—atraviesa; *kuṭumba-poṣasya*—de mantener una familia; *hṛta-vittaḥ*—aquel que ha perdido su riqueza; *iva*—como; *āturaḥ*—sufriendo.

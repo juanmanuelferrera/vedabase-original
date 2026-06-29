@@ -1,11 +1,11 @@
 ### SB 1.8.34
 
-> भारावतारणायान्ये भुवो नाव इवोदधौ ।
+> भारावतारणायान्ये भुवो नाव इवोदधौ ।\
 > सीदन्त्या भूरिभारेण जातो ह्यात्मभुवार्थितः ॥३४॥
 
-> bhārāvatāraṇāyānye
-> bhuvo nāva ivodadhau
-> sīdantyā bhūri-bhāreṇa
+> bhārāvatāraṇāyānye\
+> bhuvo nāva ivodadhau\
+> sīdantyā bhūri-bhāreṇa\
 > jāto hy ātma-bhuvārthitaḥ
 
 *bhāra-avatāraṇāya*—solo para reducir la carga del mundo; *anye*—otros; *bhuvaḥ*—del mundo; *nāvaḥ*—bote; *iva*—como; *udadhau*—en el mar; *sīdantyāḥ*—afligido; *bhūri*—extremadamente; *bhāreṇa*—por la carga; *jātaḥ*—Tú naciste; *hi*—ciertamente; *ātma-bhuvā*—por Brahmā; *arthitaḥ*—por quien oró.

@@ -1,20 +1,20 @@
 ### SB 7.1.4-5
 
-> श्रीऋषिरुवाच
-> साधु पृष्टं महाराज हरेश्चरितमद्भुतम
-> यद्भागवतमाहात्म्यं भगवद्भक्तिवर्धनम ॥४॥
-> गीयते परमं पुण्यमृषिभिर्नारदादिभिः
+> श्रीऋषिरुवाच\
+> साधु पृष्टं महाराज हरेश्चरितमद्भुतम\
+> यद्भागवतमाहात्म्यं भगवद्भक्तिवर्धनम ॥४॥\
+> गीयते परमं पुण्यमृषिभिर्नारदादिभिः\
 > नत्वा कृष्णाय मुनये कथयिष्ये हरेः कथाम ॥५॥
 
-> śrī-ṛṣir uvāca
-> sādhu pṛṣṭaṁ mahārāja
-> hareś caritam adbhutam
-> yad bhāgavata-māhātmyaṁ
+> śrī-ṛṣir uvāca\
+> sādhu pṛṣṭaṁ mahārāja\
+> hareś caritam adbhutam\
+> yad bhāgavata-māhātmyaṁ\
 > bhagavad-bhakti-vardhanam
 
-> gīyate paramaṁ puṇyam
-> ṛṣibhir nāradādibhiḥ
-> natvā kṛṣṇāya munaye
+> gīyate paramaṁ puṇyam\
+> ṛṣibhir nāradādibhiḥ\
+> natvā kṛṣṇāya munaye\
 > kathayiṣye hareḥ kathām
 
 *śrī-ṛṣiḥ uvāca*—el sabio Śrī Śukadeva Gosvāmī dijo; *sādhu*—excelente; *pṛṣṭam*—pregunta; *mahā-rāja*—¡oh, gran rey!; *hareḥ*—del Señor Supremo, Hari; *caritam*—actividades; *adbhutam*—maravillosas; *yat*—del cual; *bhāgavata*—del devoto del Señor (Prahlāda); *māhātmyam*—las glorias; *bhagavat-bhakti*—devoción al Señor; *vardhanam*—en aumento; *gīyate*—se canta; *paramam*—principales; *puṇyam*—piadosos; *ṛṣibhiḥ*—sabios; *nārada-ādibhiḥ*—encabezados por Śrī Nārada Muni; *natvā*—tras ofrecer reverencias; *kṛṣṇāya*—a Kṛṣṇa Dvaipāyana Vyāsa; *munaye*—el gran sabio; *kathayiṣye*—voy a narrarte; *hareḥ*—de Hari; *kathām*—los temas.

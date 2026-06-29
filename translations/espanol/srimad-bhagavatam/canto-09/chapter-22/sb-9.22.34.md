@@ -1,11 +1,11 @@
 ### SB 9.22.34
 
-> परिक्षीणेषु कुरुषु द्रौणेर्ब्रह्मास्त्रतेजसा
+> परिक्षीणेषु कुरुषु द्रौणेर्ब्रह्मास्त्रतेजसा\
 > त्वं च कृष्णानुभावेन सजीवो मोचितोऽन्तकात ॥३४॥
 
-> parikṣīṇeṣu kuruṣu
-> drauṇer brahmāstra-tejasā
-> tvaṁ ca kṛṣṇānubhāvena
+> parikṣīṇeṣu kuruṣu\
+> drauṇer brahmāstra-tejasā\
+> tvaṁ ca kṛṣṇānubhāvena\
 > sajīvo mocito 'ntakāt
 
 *parikṣīṇeṣu*—por ser aniquilados en la guerra de Kurukṣetra; *kuruṣu*—los miembros de la dinastía Kuru, como Duryodhana; *drauṇeḥ*—Aśvatthāmā, el hijo de Droṇācārya; *brahmāstra-tejasā*—debido al calor del arma nuclear *brahmāstra*; *tvam ca*—Tu Gracia también; *kṛṣṇa-anubhāvena*—por la misericordia del Señor Kṛṣṇa; *sajīvaḥ*—con tu vida; *mocitaḥ*—liberado; *antakāt*—de la muerte.

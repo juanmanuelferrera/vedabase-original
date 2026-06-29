@@ -1,9 +1,9 @@
 ### CC Adi 1.38
 
-> ভগবানের ভক্ত যত শ্রীবাস প্রধান ।
+> ভগবানের ভক্ত যত শ্রীবাস প্রধান ।\
 > তাঁ’সভার পাদপদ্মে সহস্র প্রণাম ॥৩৮॥
 
-> bhagavānera bhakta yata śrīvāsa pradhāna
+> bhagavānera bhakta yata śrīvāsa pradhāna\
 > tāṅ'-sabhāra pāda-padme sahasra praṇāma
 
 *bhagavānera*—of the Supreme Personality of Godhead; *bhakta*—the devotees; *yata*—as many (as there are); *śrīvāsa pradhāna*—headed by Śrī Śrīvāsa; *tāṅ'-sabhāra*—of all of them; *pāda-padme*—unto the lotus feet; *sahasra*—thousands; *praṇāma*—respectful obeisances.

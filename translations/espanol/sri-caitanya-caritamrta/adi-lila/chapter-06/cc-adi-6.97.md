@@ -1,9 +1,9 @@
 ### CC Adi 6.97
 
-> এ-সবাকে শাস্ত্রে কহে ‘ভক্ত-অবতার’ ।
+> এ-সবাকে শাস্ত্রে কহে ‘ভক্ত-অবতার’ ।\
 > ‘ভক্ত-অবতার’-পদ উপরি সবার ॥৯৭॥
 
-> e-sabāke śāstre kahe 'bhakta-avatāra'
+> e-sabāke śāstre kahe 'bhakta-avatāra'\
 > 'bhakta-avatāra'-pada upari sabāra
 
 *e-sabāke*—a todos ellos; *śāstre*—las escrituras; *kahe*—dicen; *bhakta-avatāra*—encarnaciones como devotos; *bhakta-avatāra*—de tal encarnación como devoto; *pada*—la posición; *upari sabāra*—por encima de todas las demás posiciones.

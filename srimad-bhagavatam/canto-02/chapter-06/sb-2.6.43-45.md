@@ -1,28 +1,28 @@
 ### SB 2.6.43-45
 
-> अहं भवो यज्ञ इमे प्रजेशा दक्षादयो ये भवदादयश्च ।
-> स्वर्लोकपालाः खगलोकपाला नृलोकपालास्तललोकपालाः ॥४३॥
-> गन्धर्वविद्याधरचारणेशा ये यक्षरक्षोरगनागनाथाः ।
-> ये वा ऋषीणामृषभाः पित्णां दैत्येन्द्रसिद्धेश्वरदानवेन्द्राः ।
-> अन्ये च ये प्रेतपिशाचभूत कूष्माण्डयादोमृगपक्ष्यधीशाः ॥४४॥
-> यत्किञ्च लोके भगवन्महस्वदोजःसहस्वद्बलवत्क्षमावत् ।
+> अहं भवो यज्ञ इमे प्रजेशा दक्षादयो ये भवदादयश्च ।\
+> स्वर्लोकपालाः खगलोकपाला नृलोकपालास्तललोकपालाः ॥४३॥\
+> गन्धर्वविद्याधरचारणेशा ये यक्षरक्षोरगनागनाथाः ।\
+> ये वा ऋषीणामृषभाः पित्णां दैत्येन्द्रसिद्धेश्वरदानवेन्द्राः ।\
+> अन्ये च ये प्रेतपिशाचभूत कूष्माण्डयादोमृगपक्ष्यधीशाः ॥४४॥\
+> यत्किञ्च लोके भगवन्महस्वदोजःसहस्वद्बलवत्क्षमावत् ।\
 > श्रीह्रीविभूत्यात्मवदद्भुतार्णं तत्त्वं परं रूपवदस्वरूपम् ॥४५॥
 
-> ahaṁ bhavo yajña ime prajeśā
-> dakṣādayo ye bhavad-ādayaś ca
-> svarloka-pālāḥ khagaloka-pālā
+> ahaṁ bhavo yajña ime prajeśā\
+> dakṣādayo ye bhavad-ādayaś ca\
+> svarloka-pālāḥ khagaloka-pālā\
 > nṛloka-pālās talaloka-pālāḥ
 
-> gandharva-vidyādhara-cāraṇeśā
-> ye yakṣa-rakṣoraga-nāga-nāthāḥ
-> ye vā ṛṣīṇām ṛṣabhāḥ pitṝṇāṁ
-> daityendra-siddheśvara-dānavendrāḥ
-> anye ca ye preta-piśāca-bhūta-
+> gandharva-vidyādhara-cāraṇeśā\
+> ye yakṣa-rakṣoraga-nāga-nāthāḥ\
+> ye vā ṛṣīṇām ṛṣabhāḥ pitṝṇāṁ\
+> daityendra-siddheśvara-dānavendrāḥ\
+> anye ca ye preta-piśāca-bhūta-\
 > kūṣmāṇḍa-yādo-mṛga-pakṣy-adhīśāḥ
 
-> yat kiñca loke bhagavan mahasvad
-> ojaḥ-sahasvad balavat kṣamāvat
-> śrī-hrī-vibhūty-ātmavad adbhutārṇaṁ
+> yat kiñca loke bhagavan mahasvad\
+> ojaḥ-sahasvad balavat kṣamāvat\
+> śrī-hrī-vibhūty-ātmavad adbhutārṇaṁ\
 > tattvaṁ paraṁ rūpavad asva-rūpam
 
 *aham*—myself (Brahmājī); *bhavaḥ*—Lord Śiva; *yajñaḥ*—Lord Viṣṇu; *ime*—all these; *prajā-īśāḥ*—the father of the living beings; *dakṣa-ādayaḥ*—Dakṣa, Marīci, Manu, etc.; *ye*—those; *bhavat*—yourself; *ādayaḥ ca*—and the bachelors (Sanat-kumāra and his brothers); *svarloka-pālāḥ*—the leaders of the heavenly planets; *khagaloka-pālāḥ*—the leaders of space travelers; *nṛloka-pālāḥ*—the leaders of mankind; *talaloka-pālāḥ*—the leaders of the lower planets; *gandharva*—the residents of Gandharvaloka; *vidyādhara*—the residents of the Vidyādhara planet; *cāraṇa-īśāḥ*—the leaders of the Cāraṇas; *ye*—as also others; *yakṣa*—the leaders of the Yakṣas; *rakṣa*—demons; *uraga*—snakes; *nāga-nāthāḥ*—the leaders of Nāgaloka (below the earth); *ye*—others; *vā*—also; *ṛṣīṇām*—of the sages; *ṛṣabhāḥ*—the chief; *pitṝṇām*—of the forefathers; *daitya-indra*—leaders of the atheists; *siddha-īśvara*—leaders of the Siddhaloka planets (spacemen); *dānava-indrāḥ*—leaders of the non-Āryans; *anye*—besides them; *ca*—also; *ye*—those; *preta*—dead bodies; *piśāca*—evil spirits; *bhūta*—jinn; *kūṣmāṇḍa*—a special type of evil spirit; *yādaḥ*—aquatics; *mṛga*—animals; *pakṣi-adhīśāḥ*—giant eagles; *yat*—anything; *kim ca*—and everything; *loke*—in the world; *bhagavat*—possessed of *bhaga,* or extraordinary power; *mahasvat*—of a special degree; *ojaḥ-sahasvat*—specific mental and sensual dexterity; *balavat*—possessed of strength; *kṣamāvat*—possessed of forgiveness; *śrī*—beauty; *hrī*—ashamed of impious acts; *vibhūti*—riches; *ātmavat*—possessed of intelligence; *adbhuta*—wonderful; *arṇam*—race; *tattvam*—specific truth; *param*—transcendental; *rūpavat*—as if the form of; *asva-rūpam*—not the form of the Lord.

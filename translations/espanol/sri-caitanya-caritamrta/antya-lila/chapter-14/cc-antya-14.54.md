@@ -1,9 +1,9 @@
 ### CC Antya 14.54
 
-> এই দশ-দশায় প্রভু ব্যাকুল রাত্রিদিনে ।
+> এই দশ-দশায় প্রভু ব্যাকুল রাত্রিদিনে ।\
 > কভু কোন দশা উঠে, স্থির নহে মনে ॥৫৪॥
 
-> ei daśa-daśāya prabhu vyākula rātri-dine
+> ei daśa-daśāya prabhu vyākula rātri-dine\
 > kabhu kona daśā uṭhe, sthira nahe mane
 
 *ei*—estos; *daśa-daśāya*—por las diez condiciones; *prabhu*—Śrī Caitanya Mahāprabhu; *vyākula*—abrumado; *rātri-dine*—noche y día; *kabhu*—a veces; *kona*—alguna; *daśā*—condición; *uṭhe*—surge; *sthira*—firme; *nahe*—no está; *mane*—la mente.

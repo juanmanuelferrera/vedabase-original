@@ -1,9 +1,9 @@
 ### CC Madhya 22.115
 
-> গুরুপাদাশ্রয়, দীক্ষা, গুরুর সেবন ।
+> গুরুপাদাশ্রয়, দীক্ষা, গুরুর সেবন ।\
 > সদ্ধর্মশিক্ষা-পৃচ্ছা সাধুমার্গানুগমন ॥১১৫॥
 
-> guru-pādāśraya, dīkṣā, gurura sevana
+> guru-pādāśraya, dīkṣā, gurura sevana\
 > sad-dharma-śikṣā, pṛcchā, sādhu-mārgānugamana
 
 *guru-pāda-āśraya*—shelter at the feet of a bona fide spiritual master; *dīkṣā*—initiation by the spiritual master; *gurura sevana*—service to the spiritual master; *sat-dharma-śikṣā*—instruction in the transcendental process of devotional service; *pṛcchā*—and inquiry; *sādhu-mārga*—the path of transcendental devotional service; *anugamana*—following strictly.

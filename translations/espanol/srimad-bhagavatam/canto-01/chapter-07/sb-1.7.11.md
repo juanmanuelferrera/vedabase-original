@@ -1,11 +1,11 @@
 ### SB 1.7.11
 
-> हरेर्गुणाक्षिप्तमतिर्भगवान्बादरायणिः ।
+> हरेर्गुणाक्षिप्तमतिर्भगवान्बादरायणिः ।\
 > अध्यगान्महदाख्यानं नित्यं विष्णुजनप्रियः ॥११॥
 
-> harer guṇākṣipta-matir
-> bhagavān bādarāyaṇiḥ
-> adhyagān mahad ākhyānaṁ
+> harer guṇākṣipta-matir\
+> bhagavān bādarāyaṇiḥ\
+> adhyagān mahad ākhyānaṁ\
 > nityaṁ viṣṇu-jana-priyaḥ
 
 *hareḥ*—de Hari, la Personalidad de Dios; *guṇa*—atributo trascendental; *ākṣipta*—estando absorto en; *matiḥ*—mente; *bhagavān*—poderoso; *bādarāyaṇiḥ*—el hijo de Vyāsadeva; *adhyagāt*—siguió estudios; *mahat*—gran; *ākhyānam*—narración; *nityam*—regularmente; *viṣṇu-jana*—devotos del Señor; *priyaḥ*—querido.

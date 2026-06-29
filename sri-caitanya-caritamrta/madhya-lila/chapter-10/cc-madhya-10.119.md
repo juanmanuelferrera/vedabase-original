@@ -1,13 +1,13 @@
 ### CC Madhya 10.119
 
-> হেলোদ্ধূনিত-খেদয়া বিশদয়া প্রোন্মীলদামোদয়া
-> শাম্যচ্ছাস্ত্রবিবাদয়া রসদয়া চিত্তার্পিতোন্মাদয়া ।
-> শশ্বদ্ভক্তিবিনোদয়া স-মদয়া মাধুর্যমর্যাদয়া
+> হেলোদ্ধূনিত-খেদয়া বিশদয়া প্রোন্মীলদামোদয়া\
+> শাম্যচ্ছাস্ত্রবিবাদয়া রসদয়া চিত্তার্পিতোন্মাদয়া ।\
+> শশ্বদ্ভক্তিবিনোদয়া স-মদয়া মাধুর্যমর্যাদয়া\
 > শ্রীচৈতন্য দয়ানিধে তব দয়া ভূয়াদমন্দোদয়া ॥১১৯॥
 
-> heloddhūnita-khedayā viśadayā pronmīlad-āmodayā
-> śāmyac-chāstra-vivādayā rasa-dayā cittārpitonmādayā
-> śaśvad-bhakti-vinodayā sa-madayā mādhurya-maryādayā
+> heloddhūnita-khedayā viśadayā pronmīlad-āmodayā\
+> śāmyac-chāstra-vivādayā rasa-dayā cittārpitonmādayā\
+> śaśvad-bhakti-vinodayā sa-madayā mādhurya-maryādayā\
 > śrī-caitanya dayā-nidhe tava dayā bhūyād amandodayā
 
 *helā*—very easily; *uddhūnita*—driven away; *khedayā*—lamentation; *viśadayā*—which purifies everything; *pronmīlat*—awakening; *āmodayā*—transcendental bliss; *śāmyat*—mitigating; *śāstra*—of revealed scriptures; *vivādayā*—disagreements; *rasa-dayā*—distributing all transcendental mellows; *citta*—in the heart; *arpita*—fixed; *unmādayā*—jubilation; *śaśvat*—always; *bhakti*—devotional service; *vinodayā*—stimulating; *sa-madayā*—full of ecstasy; *mādhurya*—of conjugal love; *maryādayā*—the limit; *śrī-caitanya*—O Lord Śrī Caitanya Mahāprabhu; *dayā-nidhe*—ocean of mercy; *tava*—Your; *dayā*—mercy; *bhūyāt*—let it be; *amanda*—of good fortune; *udayā*—in which there is awakening.

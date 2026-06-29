@@ -1,11 +1,11 @@
 ### SB 1.10.7
 
-> उषित्वा हास्तिनपुरे मासान्कतिपयान्हरिः ।
+> उषित्वा हास्तिनपुरे मासान्कतिपयान्हरिः ।\
 > सुहृदां च विशोकाय स्वसुश्च प्रियकाम्यया ॥७॥
 
-> uṣitvā hāstinapure
-> māsān katipayān hariḥ
-> suhṛdāṁ ca viśokāya
+> uṣitvā hāstinapure\
+> māsān katipayān hariḥ\
+> suhṛdāṁ ca viśokāya\
 > svasuś ca priya-kāmyayā
 
 *uṣitvā*—permaneciendo; *hāstinapure*—en la ciudad de Hastināpura; *māsān*—meses; *katipayān*—unos cuantos; *hariḥ*—el Señor Śrī Kṛṣṇa; *suhṛdām*—parientes; *ca*—también; *viśokāya*—para tranquilizarlos; *svasuḥ*—la hermana; *ca*—y; *priya-kāmyayā*—para complacer.

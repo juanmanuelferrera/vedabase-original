@@ -1,11 +1,11 @@
 ### SB 6.16.42
 
-> कः क्षेमो निजपरयोः कियान्वार्थः स्वपरद्रुहा धर्मेण
+> कः क्षेमो निजपरयोः कियान्वार्थः स्वपरद्रुहा धर्मेण\
 > स्वद्रोहात्तव कोपः परसम्पीडया च तथाधर्मः ॥४२॥
 
-> kaḥ kṣemo nija-parayoḥ
-> kiyān vārthaḥ sva-para-druhā dharmeṇa
-> sva-drohāt tava kopaḥ
+> kaḥ kṣemo nija-parayoḥ\
+> kiyān vārthaḥ sva-para-druhā dharmeṇa\
+> sva-drohāt tava kopaḥ\
 > para-sampīḍayā ca tathādharmaḥ
 
 *kaḥ*—qué; *kṣemaḥ*—beneficio; *nija*—hacia sí mismo; *parayoḥ*—y hacia los demás; *kiyān*—cuánto; *vā*—o; *arthaḥ*—objetivo; *sva-para-druhā*—que siente envidia del que actúa y de los demás; *dharmeṇa*—con el sistema religioso; *sva-drohāt*—de sentir envidia del propio ser; *tava*—de Ti; *kopaḥ*—ira; *para-sampīḍayā*—por causar dolor a otros; *ca*—también; *tathā*—así como; *adharmaḥ*—irreligión.

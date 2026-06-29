@@ -2,7 +2,7 @@
 
 > সম্ভ্রমে প্রতাপরুদ্র প্রভুকে ধরিল । তাঁহাকে দেখিতে প্ৰভুর বাহ্যজ্ঞান হইল ॥১৮১॥
 
-> sambhrame pratāparudra prabhuke dharila
+> sambhrame pratāparudra prabhuke dharila\
 > tāṅhāke dekhite prabhura bāhya-jñāna ha-ila
 
 *sambhrame*—with great respect; *pratāparudra*—King Pratāparudra; *prabhuke*—Lord Śrī Caitanya Mahāprabhu; *dharila*—picked up; *tāṅhāke*—Him; *dekhite*—to see; *prabhura*—of Śrī Caitanya Mahāprabhu; *bāhya-jñāna*—external consciousness; *ha-ila*—there was.

@@ -1,11 +1,11 @@
 ### SB 8.9.27
 
-> पीतप्रायेऽमृते देवैर्भगवान्लोकभावनः
+> पीतप्रायेऽमृते देवैर्भगवान्लोकभावनः\
 > पश्यतामसुरेन्द्राणां स्वं रूपं जगृहे हरिः ॥२७॥
 
-> pīta-prāye 'mṛte devair
-> bhagavān loka-bhāvanaḥ
-> paśyatām asurendrāṇāṁ
+> pīta-prāye 'mṛte devair\
+> bhagavān loka-bhāvanaḥ\
+> paśyatām asurendrāṇāṁ\
 > svaṁ rūpaṁ jagṛhe hariḥ
 
 *pīta-prāye*—when almost finished being drunk; *amṛte*—the nectar; *devaiḥ*—by the demigods; *bhagavān*—the Supreme Personality of Godhead as Mohinī-mūrti; *loka-bhāvanaḥ*—the maintainer and well-wisher of the three worlds; *paśyatām*—in the presence of; *asura-indrāṇām*—all the demons, with their chiefs; *svam*—own; *rūpam*—form; *jagṛhe*—manifested; *hariḥ*—the Supreme Personality of Godhead.

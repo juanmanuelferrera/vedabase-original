@@ -1,9 +1,9 @@
 ### CC Antya 2.52
 
-> তাঁহার প্রভাব-প্রেম জানে দুইজনে ।
+> তাঁহার প্রভাব-প্রেম জানে দুইজনে ।\
 > আনিবে প্রভুরে এবে নিশ্চয় কৈলা মনে ॥৫২॥
 
-> tāṅhāra prabhāva-prema jāne dui-jane
+> tāṅhāra prabhāva-prema jāne dui-jane\
 > ānibe prabhure ebe niścaya kailā mane
 
 *tāṅhāra*—su; *prabhāva*—influencia; *prema*—amor por Dios; *jāne*—conocen; *dui-jane*—ambos; *ānibe prabhure*—traerá a Śrī Caitanya Mahāprabhu; *ebe*—ahora; *niścaya kailā mane*—quedaron plenamente convencidos en sus mentes.

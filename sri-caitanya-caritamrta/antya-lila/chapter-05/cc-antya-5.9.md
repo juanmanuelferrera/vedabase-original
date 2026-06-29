@@ -1,9 +1,9 @@
 ### CC Antya 5.9
 
-> কৃষ্ণকথায় রুচি তোমার — বড় ভাগ্যবান্ ।
+> কৃষ্ণকথায় রুচি তোমার — বড় ভাগ্যবান্ ।\
 > যার কৃষ্ণকথায় রুচি, সেই ভাগ্যবান্ ॥৯॥
 
-> kṛṣṇa-kathāya ruci tomāra—baḍa bhāgyavān
+> kṛṣṇa-kathāya ruci tomāra—baḍa bhāgyavān\
 > yāra kṛṣṇa-kathāya ruci, sei bhāgyavān
 
 *kṛṣṇa-kathāya*—in talking of Kṛṣṇa; *ruci*—taste; *tomāra*—your; *baḍa bhāgyavān*—very fortunate; *yāra*—of whom; *kṛṣṇa-kathāya*—in hearing about Kṛṣṇa; *ruci*—taste; *sei bhāgyavān*—he is very fortunate.

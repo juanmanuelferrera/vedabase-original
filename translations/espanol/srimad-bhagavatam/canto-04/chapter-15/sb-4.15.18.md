@@ -1,11 +1,11 @@
 ### SB 4.15.18
 
-> अग्निराजगवं चापं सूर्यो रश्मिमयानिषून् ।
+> अग्निराजगवं चापं सूर्यो रश्मिमयानिषून् ।\
 > भूः पादुके योगमय्यौ द्यौः पुष्पावलिमन्वहम् ॥१८॥
 
-> agnir āja-gavaṁ cāpaṁ
-> sūryo raśmimayān iṣūn
-> bhūḥ pāduke yogamayyau
+> agnir āja-gavaṁ cāpaṁ\
+> sūryo raśmimayān iṣūn\
+> bhūḥ pāduke yogamayyau\
 > dyauḥ puṣpāvalim anvaham
 
 *agniḥ*—el semidiós del fuego; *āja-gavam*—hecho de cuernos de cabra y de vaca; *cāpam*—un arco; *sūryaḥ*—el dios del Sol; *raśmi-mayān*—brillantes como los rayos del Sol; *iṣūn*—flechas; *bhūḥ*—Bhūmi, la diosa regente de la Tierra; *pāduke*—unas zapatillas; *yoga-mayyau*—llenas de poder místico; *dyauḥ*—los semidioses del espacio exterior; *puṣpa*—de flores; *āvalim*—presentes; *anu-aham*—día tras día.

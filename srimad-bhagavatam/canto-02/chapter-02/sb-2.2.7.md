@@ -1,11 +1,11 @@
 ### SB 2.2.7
 
-> कस्तां त्वनादृत्य परानुचिन्तामृते पशूनसतीं नाम कुर्यात् ।
+> कस्तां त्वनादृत्य परानुचिन्तामृते पशूनसतीं नाम कुर्यात् ।\
 > पश्यञ्जनं पतितं वैतरण्यां स्वकर्मजान्परितापाञ्जुषाणम् ॥७॥
 
-> kas tāṁ tv anādṛtya parānucintām
-> ṛte paśūn asatīṁ nāma kuryāt
-> paśyañ janaṁ patitaṁ vaitaraṇyāṁ
+> kas tāṁ tv anādṛtya parānucintām\
+> ṛte paśūn asatīṁ nāma kuryāt\
+> paśyañ janaṁ patitaṁ vaitaraṇyāṁ\
 > sva-karmajān paritāpāñ juṣāṇam
 
 *kaḥ*—who else; *tām*—that; *tu*—but; *anādṛtya*—by neglecting; *para-anucintām*—transcendental thoughts; *ṛte*—without; *paśūn*—the materialists; *asatīm*—in the nonpermanent; *nāma*—name; *kuryāt*—will adopt; *paśyan*—seeing definitely; *janam*—the general mass of people; *patitam*—fallen; *vaitaraṇyām*—in Vaitaraṇī, the river of suffering; *sva-karma-jān*—produced from one's own work; *paritāpān*—suffering; *juṣāṇam*—being overtaken by.

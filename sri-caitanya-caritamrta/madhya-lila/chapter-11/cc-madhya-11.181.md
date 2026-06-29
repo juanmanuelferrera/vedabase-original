@@ -1,9 +1,9 @@
 ### CC Madhya 11.181
 
-> বাণীনাথ আইলা বহু প্রসাদ পিঠা লঞা ।
+> বাণীনাথ আইলা বহু প্রসাদ পিঠা লঞা ।\
 > গোপীনাথ আইলা বাসা সংস্কার করিয়া ॥১৮১॥
 
-> vāṇīnātha āilā bahu prasāda piṭhā lañā
+> vāṇīnātha āilā bahu prasāda piṭhā lañā\
 > gopīnātha āilā vāsā saṁskāra kariyā
 
 *vāṇīnātha*—Vāṇīnātha; *āilā*—returned; *bahu*—a very large quantity of; *prasāda*—remnants of food; *piṭhā lañā*—also taking cakes with them; *gopīnātha*—Gopīnātha Ācārya; *āilā*—returned; *vāsā*—residential places; *saṁskāra kariyā*—cleansing.

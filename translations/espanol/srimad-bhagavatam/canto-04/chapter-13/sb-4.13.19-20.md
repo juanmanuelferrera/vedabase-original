@@ -1,18 +1,18 @@
 ### SB 4.13.19-20
 
-> यमङ्ग शेपुः कुपिता वाग्वज्रा मुनयः किल ।
-> गतासोस्तस्य भूयस्ते ममन्थुर्दक्षिणं करम् ॥१९॥
-> अराजके तदा लोके दस्युभिः पीडिताः प्रजाः ।
+> यमङ्ग शेपुः कुपिता वाग्वज्रा मुनयः किल ।\
+> गतासोस्तस्य भूयस्ते ममन्थुर्दक्षिणं करम् ॥१९॥\
+> अराजके तदा लोके दस्युभिः पीडिताः प्रजाः ।\
 > जातो नारायणांशेन पृथुराद्यः क्षितीश्वरः ॥२०॥
 
-> yam aṅga śepuḥ kupitā
-> vāg-vajrā munayaḥ kila
-> gatāsos tasya bhūyas te
+> yam aṅga śepuḥ kupitā\
+> vāg-vajrā munayaḥ kila\
+> gatāsos tasya bhūyas te\
 > mamanthur dakṣiṇaṁ karam
 
-> arājake tadā loke
-> dasyubhiḥ pīḍitāḥ prajāḥ
-> jāto nārāyaṇāṁśena
+> arājake tadā loke\
+> dasyubhiḥ pīḍitāḥ prajāḥ\
+> jāto nārāyaṇāṁśena\
 > pṛthur ādyaḥ kṣitīśvaraḥ
 
 *yam*—a él (Vena); *aṅga*—mi querido Vidura; *śepuḥ*—maldijeron; *kupitāḥ*—iracundos; *vāk-vajrāḥ*—cuyas palabras son tan fuertes como un rayo; *munayaḥ*—grandes sabios; *kila*—en verdad; *gata-asoḥ tasya*—después de que murió; *bhūyaḥ*—además; *te*—ellos; *mamanthuḥ*—batieron; *dakṣiṇam*—derecho; *karam*—brazo; *arājake*—estar sin rey; *tadā*—entonces; *loke*—el mundo; *dasyubhiḥ*—por ladrones y maleantes; *pīḍitāḥ*—sufrir; *prajāḥ*—todos los ciudadanos; *jātaḥ*—advino; *nārāyaṇa*—de la Suprema Personalidad de Dios; *aṁśena*—por medio de una representación parcial; *pṛthuḥ*—Pṛthu; *ādyaḥ*—original; *kṣiti-īśvaraḥ*—gobernador del mundo.

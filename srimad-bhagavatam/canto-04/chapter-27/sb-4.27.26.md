@@ -1,11 +1,11 @@
 ### SB 4.27.26
 
-> अथो भजस्व मां भद्र भजन्तीं मे दयां कुरु ।
+> अथो भजस्व मां भद्र भजन्तीं मे दयां कुरु ।\
 > एतावान्पौरुषो धर्मो यदार्ताननुकम्पते ॥२६॥
 
-> atho bhajasva māṁ bhadra
-> bhajantīṁ me dayāṁ kuru
-> etāvān pauruṣo dharmo
+> atho bhajasva māṁ bhadra\
+> bhajantīṁ me dayāṁ kuru\
+> etāvān pauruṣo dharmo\
 > yad ārtān anukampate
 
 *atho*—therefore; *bhajasva*—accept; *mām*—me; *bhadra*—O gentle one; *bhajantīm*—willing to serve; *me*—to me; *dayām*—mercy; *kuru*—do; *etāvān*—such a measure; *pauruṣaḥ*—for any gentleman; *dharmaḥ*—religious principle; *yat*—that; *ārtān*—to the distressed; *anukampate*—is compassionate.

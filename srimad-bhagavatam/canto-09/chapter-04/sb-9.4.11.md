@@ -1,11 +1,11 @@
 ### SB 9.4.11
 
-> गृहाण द्रविणं दत्तं मत्सत्रपरिशेषितम
+> गृहाण द्रविणं दत्तं मत्सत्रपरिशेषितम\
 > इत्युक्त्वान्तर्हितो रुद्रो भगवान्धर्मवत्सलः ॥११॥
 
-> gṛhāṇa draviṇaṁ dattaṁ
-> mat-satra-pariśeṣitam
-> ity uktvāntarhito rudro
+> gṛhāṇa draviṇaṁ dattaṁ\
+> mat-satra-pariśeṣitam\
+> ity uktvāntarhito rudro\
 > bhagavān dharma-vatsalaḥ
 
 *gṛhāṇa*—please take now; *draviṇam*—all the wealth; *dattam*—is given (to you by me); *mat-satra-pariśeṣitam*—the remnants of the sacrifice executed on my behalf; *iti uktvā*—after speaking like this; *antarhitaḥ*—disappeared; *rudraḥ*—Lord Śiva; *bhagavān*—the most powerful demigod; *dharma-vatsalaḥ*—adherent to the principles of religion.

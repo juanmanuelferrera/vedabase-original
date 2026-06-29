@@ -1,9 +1,9 @@
 ### CC Madhya 25.216
 
-> এইমত সনাতন বৃন্দাবনেতে রহিলা ।
+> এইমত সনাতন বৃন্দাবনেতে রহিলা ।\
 > রূপ-গোসাঞি দুইভাই কাশীতে আইলা ॥২১৬॥
 
-> ei-mata sanātana vṛndāvanete rahilā
+> ei-mata sanātana vṛndāvanete rahilā\
 > rūpa-gosāñi dui-bhāi kāśīte āilā
 
 *ei-mata*—de esta manera; *sanātana*—Sanātana Gosvāmī; *vṛndāvanete rahilā*—permaneció en Vṛndāvana; *rūpa-gosāñi*—Rūpa Gosāñi; *dui-bhāi*—los dos hermanos; *kāśīte āilā*—llegaron a Vārāṇasī (Kāśī).

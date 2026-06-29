@@ -1,11 +1,11 @@
 ### SB 4.28.10
 
-> गन्धर्वयवनाक्रान्तां कालकन्योपमर्दिताम् ।
+> गन्धर्वयवनाक्रान्तां कालकन्योपमर्दिताम् ।\
 > हातुं प्रचक्रमे राजा तां पुरीमनिकामतः ॥१०॥
 
-> gandharva-yavanākrāntāṁ
-> kāla-kanyopamarditām
-> hātuṁ pracakrame rājā
+> gandharva-yavanākrāntāṁ\
+> kāla-kanyopamarditām\
+> hātuṁ pracakrame rājā\
 > tāṁ purīm anikāmataḥ
 
 *gandharva*—by the Gandharva soldiers; *yavana*—and by the Yavana soldiers; *ākrāntām*—overcome; *kāla-kanyā*—by Kālakanyā (the daughter of Time); *upamarditām*—being smashed; *hātum*—to give up; *pracakrame*—proceeded; *rājā*—King Purañjana; *tām*—that; *purīm*—the city; *anikāmataḥ*—unwilling.

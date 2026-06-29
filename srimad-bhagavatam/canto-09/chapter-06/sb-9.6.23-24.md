@@ -1,18 +1,18 @@
 ### SB 9.6.23-24
 
-> धुन्धुमार इति ख्यातस्तत्सुतास्ते च जज्वलुः
-> धुन्धोर्मुखाग्निना सर्वे त्रय एवावशेषिताः ॥२३॥
-> दृढाश्वः कपिलाश्वश्च भद्राश्व इति भारत
+> धुन्धुमार इति ख्यातस्तत्सुतास्ते च जज्वलुः\
+> धुन्धोर्मुखाग्निना सर्वे त्रय एवावशेषिताः ॥२३॥\
+> दृढाश्वः कपिलाश्वश्च भद्राश्व इति भारत\
 > दृढाश्वपुत्रो हर्यश्वो निकुम्भस्तत्सुतः स्मृतः ॥२४॥
 
-> dhundhumāra iti khyātas
-> tat-sutās te ca jajvaluḥ
-> dhundhor mukhāgninā sarve
+> dhundhumāra iti khyātas\
+> tat-sutās te ca jajvaluḥ\
+> dhundhor mukhāgninā sarve\
 > traya evāvaśeṣitāḥ
 
-> dṛḍhāśvaḥ kapilāśvaś ca
-> bhadrāśva iti bhārata
-> dṛḍhāśva-putro haryaśvo
+> dṛḍhāśvaḥ kapilāśvaś ca\
+> bhadrāśva iti bhārata\
+> dṛḍhāśva-putro haryaśvo\
 > nikumbhas tat-sutaḥ smṛtaḥ
 
 *dhundhu-māraḥ*—the killer of Dhundhu; *iti*—thus; *khyātaḥ*—celebrated; *tat-sutāḥ*—his sons; *te*—all of them; *ca*—also; *jajvaluḥ*—burned; *dhundhoḥ*—of Dhundhu; *mukha-agninā*—by the fire emanating from the mouth; *sarve*—all of them; *trayaḥ*—three; *eva*—only; *avaśeṣitāḥ*—remained alive; *dṛḍhāśvaḥ*—Dṛḍhāśva; *kapilāśvaḥ*—Kapilāśva; *ca*—and; *bhadrāśvaḥ*—Bhadrāśva; *iti*—thus; *bhārata*—O Mahārāja Parīkṣit; *dṛḍhāśva-putraḥ*—the son of Dṛḍhāśva; *haryaśvaḥ*—named Haryaśva; *nikumbhaḥ*—Nikumbha; *tat-sutaḥ*—his son; *smṛtaḥ*—well known.

@@ -1,9 +1,9 @@
 ### SB 5.1.20
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > इति समभिहितो महाभागवतो भगवतस्त्रिभुवनगुरोरनुशासनमात्मनो लघुतयावनतशिरोधरो बाढमिति सबहुमानमुवाह ॥२०॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > iti samabhihito mahā-bhāgavato bhagavatas tri-bhuvana-guror anuśāsanam ātmano laghutayāvanata-śirodharo bāḍham iti sabahu-mānam uvāha.
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *iti*—así; *samabhihitaḥ*—perfectamente instruido; *mahā-bhāgavataḥ*—el gran devoto; *bhagavataḥ*—del muy poderoso Señor Brahmā; *tri-bhuvana*—de los tres mundos; *guroḥ*—el maestro espiritual; *anuśāsanam*—la orden; *ātmanaḥ*—de él mismo; *laghutayā*—por la inferioridad; *avanata*—inclinó; *śirodharaḥ*—la cabeza; *bāḍham*—sí, señor; *iti*—así; *sa-bahu-mānam*—con gran respeto; *uvāha*—llevó a cabo.

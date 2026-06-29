@@ -1,11 +1,11 @@
 ### SB 7.4.41
 
-> क्वचिदुत्पुलकस्तूष्णीमास्ते संस्पर्शनिर्वृतः
+> क्वचिदुत्पुलकस्तूष्णीमास्ते संस्पर्शनिर्वृतः\
 > अस्पन्दप्रणयानन्द सलिलामीलितेक्षणः ॥४१॥
 
-> kvacid utpulakas tūṣṇīm
-> āste saṁsparśa-nirvṛtaḥ
-> aspanda-praṇayānanda-
+> kvacid utpulakas tūṣṇīm\
+> āste saṁsparśa-nirvṛtaḥ\
+> aspanda-praṇayānanda-\
 > salilāmīlitekṣaṇaḥ
 
 *kvacit*—sometimes; *utpulakaḥ*—with the hairs of his body standing on end; *tūṣṇīm*—completely silent; *āste*—remains; *saṁsparśa-nirvṛtaḥ*—feeling great joy by contact with the Lord; *aspanda*—steady; *praṇaya-ānanda*—due to transcendental bliss from a relationship of love; *salila*—filled with tears; *āmīlita*—half-closed; *īkṣaṇaḥ*—whose eyes.

@@ -1,13 +1,13 @@
 ### SB 8.8.1
 
-> श्रीशुक उवाच
-> पीते गरे वृषाङ्केण प्रीतास्तेऽमरदानवाः
+> श्रीशुक उवाच\
+> पीते गरे वृषाङ्केण प्रीतास्तेऽमरदानवाः\
 > ममन्थुस्तरसा सिन्धुं हविर्धानी ततोऽभवत ॥१॥
 
-> śrī-śuka uvāca
-> pīte gare vṛṣāṅkeṇa
-> prītās te 'mara-dānavāḥ
-> mamanthus tarasā sindhuṁ
+> śrī-śuka uvāca\
+> pīte gare vṛṣāṅkeṇa\
+> prītās te 'mara-dānavāḥ\
+> mamanthus tarasā sindhuṁ\
 > havirdhānī tato 'bhavat
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *pīte*—fue bebido; *gare*—cuando el veneno; *vṛṣa-aṅkeṇa*—por el Señor Śiva, que monta en un toro; *prītāḥ*—complacidos; *te*—todos ellos; *amara*—los semidioses; *dānavāḥ*—y los demonios; *mamanthuḥ*—comenzaron a batir de nuevo; *tarasā*—con mucha fuerza; *sindhum*—el océano de leche; *havirdhānī*—la vaca *surabhī*, fuente de mantequilla clarificada; *tataḥ*—del batir; *abhavat*—fue generada.

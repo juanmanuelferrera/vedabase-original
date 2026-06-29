@@ -1,9 +1,9 @@
 ### CC Antya 17.26
 
-> গোপীগণ-সহ বিহার, হাস, পরিহাস ।
+> গোপীগণ-সহ বিহার, হাস, পরিহাস ।\
 > কণ্ঠধ্বনি-উক্তি শুনি’ মোর কর্ণোল্লাস ॥২৬॥
 
-> gopī-gaṇa-saha vihāra, hāsa, parihāsa
+> gopī-gaṇa-saha vihāra, hāsa, parihāsa\
 > kaṇṭha-dhvani-ukti śuni' mora karṇollāsa
 
 *gopī-gaṇa-saha*—with the *gopīs*; *vihāra*—pastimes; *hāsa*—laughing; *pari-hāsa*—joking; *kaṇṭha-dhvani-ukti*—vocal expressions; *śuni'*—hearing; *mora*—My; *karṇa-ullāsa*—jubilation of the ears.

@@ -1,9 +1,9 @@
 ### CC Adi 5.65
 
-> দূর হৈতে পুরুষ করে মায়াতে অবধান ।
+> দূর হৈতে পুরুষ করে মায়াতে অবধান ।\
 > জীবরূপ বীর্য তাতে করেন আধান ॥৬৫॥
 
-> dūra haite puruṣa kare māyāte avadhāna
+> dūra haite puruṣa kare māyāte avadhāna\
 > jīva-rūpa vīrya tāte karena ādhāna
 
 *dūra haite*—desde lejos; *puruṣa*—la Suprema Personalidad de Dios; *kare*—realiza; *māyāte*—sobre la energía material; *avadhāna*—mirada; *jīva-rūpa*—las entidades vivientes; *vīrya*—semilla; *tāte*—en ella; *karena*—realiza; *ādhāna*—fecundación.

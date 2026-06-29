@@ -1,11 +1,11 @@
 ### SB 1.15.40
 
-> विसृज्य तत्र तत्सर्वं दुकूलवलयादिकम् ।
+> विसृज्य तत्र तत्सर्वं दुकूलवलयादिकम् ।\
 > निर्ममो निरहङ्कारः सञ्छिन्नाशेषबन्धनः ॥४०॥
 
-> visṛjya tatra tat sarvaṁ
-> dukūla-valayādikam
-> nirmamo nirahaṅkāraḥ
+> visṛjya tatra tat sarvaṁ\
+> dukūla-valayādikam\
+> nirmamo nirahaṅkāraḥ\
 > sañchinnāśeṣa-bandhanaḥ
 
 *visṛjya*—relinquishing; *tatra*—all those; *tat*—that; *sarvam*—everything; *dukūla*—belt; *valaya-ādikam*—and bangles; *nirmamaḥ*—uninterested; *nirahaṅkāraḥ*—unattached; *sañchinna*—perfectly cut off; *aśeṣa-bandhanaḥ*—unlimited attachment.

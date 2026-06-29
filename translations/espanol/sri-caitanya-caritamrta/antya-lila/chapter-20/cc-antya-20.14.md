@@ -1,9 +1,9 @@
 ### CC Antya 20.14
 
-> কৃষ্ণপ্রেমোদ্গম, প্রেমামৃত-আস্বাদন ।
+> কৃষ্ণপ্রেমোদ্গম, প্রেমামৃত-আস্বাদন ।\
 > কৃষ্ণপ্রাপ্তি, সেবামৃত-সমুদ্রে মজ্জন ॥১৪॥
 
-> kṛṣṇa-premodgama, premāmṛta-āsvādana
+> kṛṣṇa-premodgama, premāmṛta-āsvādana\
 > kṛṣṇa-prāpti, sevāmṛta-samudre majjana
 
 *kṛṣṇa-prema-udgama*—despertar del amor por Kṛṣṇa; *prema-amṛta-āsvādana*—saborear la bienaventuranza trascendental del amor por Kṛṣṇa; *kṛṣṇa-prāpti*—alcanzar los pies de loto de Kṛṣṇa; *sevā-amṛta*—del néctar del servicio; *samudre*—en el océano; *majjana*—sumergirse.

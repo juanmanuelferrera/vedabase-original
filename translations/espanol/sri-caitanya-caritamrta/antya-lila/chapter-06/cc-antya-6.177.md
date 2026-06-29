@@ -1,9 +1,9 @@
 ### CC Antya 6.177
 
-> তেঁহ কহে, ‘আজ্ঞা মাগি’ গেলা নিজ-ঘর ।’
+> তেঁহ কহে, ‘আজ্ঞা মাগি’ গেলা নিজ-ঘর ।’\
 > ‘পলাইল রঘুনাথ’ — উঠিল কোলাহল ॥১৭৭॥
 
-> teṅha kahe, 'ājñā māgi' gelā nija-ghara'
+> teṅha kahe, 'ājñā māgi' gelā nija-ghara'\
 > 'palāila raghunātha'--uṭhila kolāhala
 
 *teṅha kahe*—él dijo; *ājñā māgi'*—pidiendo mi permiso; *gelā*—se fue; *nija ghara*—a su casa; *palāila raghunātha*—Raghunātha dāsa se ha marchado; *uṭhila*—se levantó; *kolāhala*—un clamor tumultuoso.

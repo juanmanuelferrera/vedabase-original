@@ -1,9 +1,9 @@
 ### CC Madhya 24.43
 
-> অলৌকিক রূপ, রস, সৌরভাদি গুণ ।
+> অলৌকিক রূপ, রস, সৌরভাদি গুণ ।\
 > কারো মন কোন গুণে করে আকর্ষণ ॥৪৩॥
 
-> alaukika rūpa, rasa, saurabhādi guṇa
+> alaukika rūpa, rasa, saurabhādi guṇa\
 > kāro mana kona guṇe kare ākarṣaṇa
 
 *alaukika rūpa*—belleza fuera de lo común; *rasa*—melosidades; *saurabha-ādi guṇa*—cualidades como la fragancia trascendental; *kāro mana*—la mente de un devoto; *kona guṇe*—por alguna cualidad particular; *kare*—hace; *ākarṣaṇa*—atraer.

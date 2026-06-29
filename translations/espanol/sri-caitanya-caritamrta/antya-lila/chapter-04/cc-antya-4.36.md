@@ -1,9 +1,9 @@
 ### CC Antya 4.36
 
-> এইমত বারবার কহি দুইজন  ।
+> এইমত বারবার কহি দুইজন  ।\
 > আমা-দুঁহার গৌরবে কিছু ফিরি’ গেল মন ॥৩৬॥
 
-> ei-mata bāra-bāra kahi dui-jana
+> ei-mata bāra-bāra kahi dui-jana\
 > āmā-duṅhāra gaurave kichu phiri' gela mana
 
 *ei-mata*—de esta manera; *bāra-bāra*—una y otra vez; *kahi*—hablamos; *dui-jana*—dos personas; *āmā-duṅhāra*—de nosotros dos; *gaurave*—por respeto; *kichu*—algo; *phiri' gela*—se volvió; *mana*—mente.

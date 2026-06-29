@@ -1,11 +1,11 @@
 ### SB 9.18.48
 
-> अयजद्यज्ञअपुरुषं क्रतुभिर्भूरिदक्षिणैः
+> अयजद्यज्ञअपुरुषं क्रतुभिर्भूरिदक्षिणैः\
 > सर्वदेवमयं देवं सर्ववेदमयं हरिम ॥४८॥
 
-> ayajad yajña-puruṣaṁ
-> kratubhir bhūri-dakṣiṇaiḥ
-> sarva-devamayaṁ devaṁ
+> ayajad yajña-puruṣaṁ\
+> kratubhir bhūri-dakṣiṇaiḥ\
+> sarva-devamayaṁ devaṁ\
 > sarva-vedamayaṁ harim
 
 *ayajat*—adoró; *yajña-puruṣam*—al *yajña-puruṣa*, el Señor; *kratubhiḥ*—con una serie de sacrificios; *bhūri-dakṣiṇaiḥ*—dando regalos en abundancia a los *brāhmaṇas*; *sarva-deva-mayam*—el origen de todos los semidioses; *devam*—al Señor Supremo; *sarva-veda-mayam*—al objeto supremo de todo el conocimiento védico; *harim*—al Señor, la Suprema Personalidad de Dios.

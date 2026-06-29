@@ -1,11 +1,11 @@
 ### SB 4.8.77
 
-> सर्वतो मन आकृष्य हृदि भूतेन्द्रियाशयम् ।
+> सर्वतो मन आकृष्य हृदि भूतेन्द्रियाशयम् ।\
 > ध्यायन्भगवतो रूपं नाद्राक्षीत्किञ्चनापरम् ॥७७॥
 
-> sarvato mana ākṛṣya
-> hṛdi bhūtendriyāśayam
-> dhyāyan bhagavato rūpaṁ
+> sarvato mana ākṛṣya\
+> hṛdi bhūtendriyāśayam\
+> dhyāyan bhagavato rūpaṁ\
 > nādrākṣīt kiñcanāparam
 
 *sarvataḥ*—in all respects; *manaḥ*—mind; *ākṛṣya*—concentrating; *hṛdi*—in the heart; *bhūta-indriya-āśayam*—resting place of the senses and the objects of the senses; *dhyāyan*—meditating; *bhagavataḥ*—of the Supreme Personality of Godhead; *rūpam*—form; *na adrākṣīt*—did not see; *kiñcana*—anything; *aparam*—else.

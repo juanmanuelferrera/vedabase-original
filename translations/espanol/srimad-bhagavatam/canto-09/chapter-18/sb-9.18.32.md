@@ -1,11 +1,11 @@
 ### SB 9.18.32
 
-> राजपुत्र्यार्थितोऽपत्ये धर्मं चावेक्ष्य धर्मवित
+> राजपुत्र्यार्थितोऽपत्ये धर्मं चावेक्ष्य धर्मवित\
 > स्मरन्छुक्रवचः काले दिष्टमेवाभ्यपद्यत ॥३२॥
 
-> rāja-putryārthito 'patye
-> dharmaṁ cāvekṣya dharmavit
-> smarañ chukra-vacaḥ kāle
+> rāja-putryārthito 'patye\
+> dharmaṁ cāvekṣya dharmavit\
+> smarañ chukra-vacaḥ kāle\
 > diṣṭam evābhyapadyata
 
 *rāja-putryā*—por Śarmiṣṭha, que era la hija de un rey; *arthitaḥ*—serle rogado; *apatye*—un hijo; *dharmam*—principios religiosos; *ca*—así como; *avekṣya*—considerando; *dharma-vit*—consciente de todos los principios religiosos; *smaran*—recordando; *śukra-vacaḥ*—la advertencia de Śukrācārya; *kāle*—en el momento; *diṣṭam*—circunstancialmente; *eva*—en verdad; *abhyapadyata*—aceptó (satisfacer el deseo de Śarmiṣṭhā).

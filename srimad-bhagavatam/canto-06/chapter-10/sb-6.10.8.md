@@ -1,11 +1,11 @@
 ### SB 6.10.8
 
-> योऽध्रुवेणात्मना नाथा न धर्मं न यशः पुमान
+> योऽध्रुवेणात्मना नाथा न धर्मं न यशः पुमान\
 > ईहेत भूतदयया स शोच्यः स्थावरैरपि ॥८॥
 
-> yo 'dhruveṇātmanā nāthā
-> na dharmaṁ na yaśaḥ pumān
-> īheta bhūta-dayayā
+> yo 'dhruveṇātmanā nāthā\
+> na dharmaṁ na yaśaḥ pumān\
+> īheta bhūta-dayayā\
 > sa śocyaḥ sthāvarair api
 
 *yaḥ*—anyone who; *adhruveṇa*—impermanent; *ātmanā*—by the body; *nāthāḥ*—O lords; *na*—not; *dharmam*—religious principles; *na*—not; *yaśaḥ*—fame; *pumān*—a person; *īheta*—endeavors for; *bhūta-dayayā*—by mercy for the living beings; *saḥ*—that person; *śocyaḥ*—pitiable; *sthāvaraiḥ*—by the immobile creatures; *api*—even.

@@ -1,13 +1,13 @@
 ### CC Adi 13.117
 
-> দুর্বা, ধান্য, দিল শীর্ষে, কৈল বহু আশীষে,
-> চিরজীবী হও দুই ভাই ।
-> ডাকিনী-শাঁখিনী হৈতে, শঙ্কা উপজিল চিতে,
+> দুর্বা, ধান্য, দিল শীর্ষে, কৈল বহু আশীষে,\
+> চিরজীবী হও দুই ভাই ।\
+> ডাকিনী-শাঁখিনী হৈতে, শঙ্কা উপজিল চিতে,\
 > ডরে নাম থুইল ‘নিমাই’ ॥১১৭॥
 
-> durvā, dhānya, dila śīrṣe, kaila bahu āśīṣe,
-> cirajīvī hao dui bhāi
-> ḍākinī-śāṅkhinī haite, śaṅkā upajila cite,
+> durvā, dhānya, dila śīrṣe, kaila bahu āśīṣe,\
+> cirajīvī hao dui bhāi\
+> ḍākinī-śāṅkhinī haite, śaṅkā upajila cite,\
 > ḍare nāma thuila 'nimāi'
 
 *durvā*—hierba fresca; *dhānya*—arroz con cáscara; *dila*—puso; *śīrṣe*—en la cabeza; *kaila*—hizo; *bahu*—con muchas; *āśīṣe*—bendiciones; *cira-jīvī*—de larga vida; *hao*—que seáis; *dui bhāi*—los dos hermanos; *ḍākinī-śāṅkhinī*—fantasmas y brujas; *haite*—de; *śaṅkā*—temor; *upajila*—surgió; *cite*—en el corazón; *ḍare*—por miedo; *nāma*—nombre; *thuila*—puso; *nimāi*—el nombre de infancia del Señor Caitanya, derivado del árbol nima (nimba).

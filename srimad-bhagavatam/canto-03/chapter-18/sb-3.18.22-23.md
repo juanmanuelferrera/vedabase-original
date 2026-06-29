@@ -1,20 +1,20 @@
 ### SB 3.18.22-23
 
-> ब्रह्मोवाच
-> एष ते देव देवानामङ्घ्रिमूलमुपेयुषाम् ।
-> विप्राणां सौरभेयीणां भूतानामप्यनागसाम् ॥२२॥
-> आगस्कृद्भयकृद्दुष्कृदस्मद्राद्धवरोऽसुरः ।
+> ब्रह्मोवाच\
+> एष ते देव देवानामङ्घ्रिमूलमुपेयुषाम् ।\
+> विप्राणां सौरभेयीणां भूतानामप्यनागसाम् ॥२२॥\
+> आगस्कृद्भयकृद्दुष्कृदस्मद्राद्धवरोऽसुरः ।\
 > अन्वेषन्नप्रतिरथो लोकानटति कण्टकः ॥२३॥
 
-> brahmovāca
-> eṣa te deva devānām
-> aṅghri-mūlam upeyuṣām
-> viprāṇāṁ saurabheyīṇāṁ
+> brahmovāca\
+> eṣa te deva devānām\
+> aṅghri-mūlam upeyuṣām\
+> viprāṇāṁ saurabheyīṇāṁ\
 > bhūtānām apy anāgasām
 
-> āgas-kṛd bhaya-kṛd duṣkṛd
-> asmad-rāddha-varo 'suraḥ
-> anveṣann apratiratho
+> āgas-kṛd bhaya-kṛd duṣkṛd\
+> asmad-rāddha-varo 'suraḥ\
+> anveṣann apratiratho\
 > lokān aṭati kaṇṭakaḥ
 
 *brahmā uvāca*—Lord Brahmā said; *eṣaḥ*—this demon; *te*—Your; *deva*—O Lord; *devānām*—to the demigods; *aṅghri-mūlam*—Your feet; *upeyuṣām*—to those having obtained; *viprāṇām*—to the *brāhmaṇas*; *saurabheyīṇām*—to the cows; *bhūtānām*—to ordinary living entities; *api*—also; *anāgasām*—innocent; *āgaḥ-kṛt*—an offender; *bhaya-kṛt*—a source of fear; *duṣkṛt*—wrongdoer; *asmat*—from me; *rāddha-varaḥ*—having attained a boon; *asuraḥ*—a demon; *anveṣan*—searching; *apratirathaḥ*—having no proper combatant; *lokān*—all over the universe; *aṭati*—he wanders; *kaṇṭakaḥ*—being a pinprick for everyone.

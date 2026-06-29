@@ -1,12 +1,12 @@
 ### SB 9.22.2
 
-> तस्य पुत्रशतं तेषां यवीयान्पृषतः सुतः
-> स तस्माद्द्रुपदो जज्ञए सर्वसम्पत्समन्वितः
+> तस्य पुत्रशतं तेषां यवीयान्पृषतः सुतः\
+> स तस्माद्द्रुपदो जज्ञए सर्वसम्पत्समन्वितः\
 > द्रुपदाद्द्रौपदी तस्य धृष्टद्युम्नादयः सुताः ॥२॥
 
-> tasya putra-śataṁ teṣāṁ
-> yavīyān pṛṣataḥ sutaḥ
-> sa tasmād drupado jajñe
+> tasya putra-śataṁ teṣāṁ\
+> yavīyān pṛṣataḥ sutaḥ\
+> sa tasmād drupado jajñe\
 > sarva-sampat-samanvitaḥ
 
 *tasya*—de él (de Somaka); *putra-śatam*—cien hijos; *teṣām*—de todos ellos; *yavīyān*—el menor; *pṛṣataḥ*—Pṛṣata; *sutaḥ*—el hijo; *saḥ*—él; *tasmāt*—de él; *drupadaḥ*—Drupada; *jajñe*—nació; *sarva-sampat*—con toda opulencia; *samanvitaḥ*—adornado.

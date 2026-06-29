@@ -1,11 +1,11 @@
 ### SB 7.5.31
 
-> न ते विदुः स्वार्थगतिं हि विष्णुं दुराशया ये बहिरर्थमानिनः
+> न ते विदुः स्वार्थगतिं हि विष्णुं दुराशया ये बहिरर्थमानिनः\
 > अन्धा यथान्धैरुपनीयमानास्तेऽपीशतन्त्र्यामुरुदाम्नि बद्धाः ॥३१॥
 
-> na te viduḥ svārtha-gatiṁ hi viṣṇuṁ
-> durāśayā ye bahir-artha-māninaḥ
-> andhā yathāndhair upanīyamānās
+> na te viduḥ svārtha-gatiṁ hi viṣṇuṁ\
+> durāśayā ye bahir-artha-māninaḥ\
+> andhā yathāndhair upanīyamānās\
 > te 'pīśa-tantryām uru-dāmni baddhāḥ
 
 *na*—not; *te*—they; *viduḥ*—know; *sva-artha-gatim*—the ultimate goal of life, or their own real interest; *hi*—indeed; *viṣṇum*—Lord Viṣṇu and His abode; *durāśayāḥ*—being ambitious to enjoy this material world; *ye*—who; *bahiḥ*—external sense objects; *artha-māninaḥ*—considering as valuable; *andhāḥ*—persons who are blind; *yathā*—just as; *andhaiḥ*—by other blind men; *upanīyamānāḥ*—being led; *te*—they; *api*—although; *īśa-tantryām*—to the ropes (laws) of material nature; *uru*—having very strong; *dāmni*—cords; *baddhāḥ*—bound.

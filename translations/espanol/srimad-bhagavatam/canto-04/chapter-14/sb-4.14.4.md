@@ -1,11 +1,11 @@
 ### SB 4.14.4
 
-> स आरूढनृपस्थान उन्नद्धोऽष्टविभूतिभिः ।
+> स आरूढनृपस्थान उन्नद्धोऽष्टविभूतिभिः ।\
 > अवमेने महाभागान्स्तब्धः सम्भावितः स्वतः ॥४॥
 
-> sa ārūḍha-nṛpa-sthāna
-> unnaddho 'ṣṭa-vibhūtibhiḥ
-> avamene mahā-bhāgān
+> sa ārūḍha-nṛpa-sthāna\
+> unnaddho 'ṣṭa-vibhūtibhiḥ\
+> avamene mahā-bhāgān\
 > stabdhaḥ sambhāvitaḥ svataḥ
 
 *saḥ*—el rey Vena; *ārūḍha*—subió; *nṛpa-sthānaḥ*—al asiento real; *unnaddhaḥ*—muy orgulloso; *aṣṭa*—ocho; *vibhūtibhiḥ*—con opulencias; *avamene*—comenzó a insultar; *mahā-bhāgān*—a grandes personalidades; *stabdhaḥ*—desconsiderado; *sambhāvitaḥ*—considerado grande; *svataḥ*—por sí mismo.

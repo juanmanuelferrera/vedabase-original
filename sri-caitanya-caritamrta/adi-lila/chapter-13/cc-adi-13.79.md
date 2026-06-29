@@ -1,9 +1,9 @@
 ### CC Adi 13.79
 
-> পুত্র পাঞা দম্পতি হৈলা আনন্দিত মন ।
+> পুত্র পাঞা দম্পতি হৈলা আনন্দিত মন ।\
 > বিশেষে সেবন করে গোবিন্দচরণ ॥৭৯॥
 
-> putra pāñā dampati hailā ānandita mana
+> putra pāñā dampati hailā ānandita mana\
 > viśeṣe sevana kare govinda-caraṇa
 
 *putra*—son; *pāñā*—having gotten; *dampati*—husband and wife; *hailā*—became; *ānandita*—pleased; *mana*—mind; *viśeṣe*—specifically; *sevana*—service; *kare*—render; *govinda-caraṇa*—the lotus feet of Lord Govinda.

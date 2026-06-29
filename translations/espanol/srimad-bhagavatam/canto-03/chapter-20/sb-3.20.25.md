@@ -1,11 +1,11 @@
 ### SB 3.20.25
 
-> स उपव्रज्य वरदं प्रपन्नार्तिहरं हरिम् ।
+> स उपव्रज्य वरदं प्रपन्नार्तिहरं हरिम् ।\
 > अनुग्रहाय भक्तानामनुरूपात्मदर्शनम् ॥२५॥
 
-> sa upavrajya varadaṁ
-> prapannārti-haraṁ harim
-> anugrahāya bhaktānām
+> sa upavrajya varadaṁ\
+> prapannārti-haraṁ harim\
+> anugrahāya bhaktānām\
 > anurūpātma-darśanam
 
 *saḥ*—el Señor Brahmā; *upavrajya*—dirigiéndose; *vara-dam*—a quien otorga toda bendición; *prapanna*—de aquellos que se refugian en Sus pies de loto; *ārti*—aflicción; *haram*—que disipa; *harim*—el Señor Śrī Hari; *anugrahāya*—para mostrar misericordia; *bhaktānām*—a Sus devotos; *anurūpa*—en formas adecuadas; *ātma-darśanam*—que Se manifiesta.

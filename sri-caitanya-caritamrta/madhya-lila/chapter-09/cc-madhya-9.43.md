@@ -1,9 +1,9 @@
 ### CC Madhya 9.43
 
-> নিজ-নিজ-শাস্ত্রোদ্গ্রাহে সবাই প্রচণ্ড ।
+> নিজ-নিজ-শাস্ত্রোদ্গ্রাহে সবাই প্রচণ্ড ।\
 > সর্ব মত দুষি’ প্রভু করে খণ্ড খণ্ড ॥৪৩॥
 
-> nija-nija-śāstrodgrāhe sabāi pracaṇḍa
+> nija-nija-śāstrodgrāhe sabāi pracaṇḍa\
 > sarva mata duṣi' prabhu kare khaṇḍa khaṇḍa
 
 *nija-nija*—their own; *śāstra*—of the scripture; *udgrāhe*—to establish the conclusion; *sabāi*—all of them; *pracaṇḍa*—very powerful; *sarva*—all; *mata*—opinions; *duṣi'*—condemning; *prabhu*—Śrī Caitanya Mahāprabhu; *kare*—does; *khaṇḍa khaṇḍa*—breaking to pieces.

@@ -1,13 +1,13 @@
 ### SB 2.7.19
 
-> तुभ्यं च नारद भृशं भगवान्विवृद्ध
-> भावेन साधु परितुष्ट उवाच योगम् ।
-> ज्ञानं च भागवतमात्मसतत्त्वदीपं
+> तुभ्यं च नारद भृशं भगवान्विवृद्ध\
+> भावेन साधु परितुष्ट उवाच योगम् ।\
+> ज्ञानं च भागवतमात्मसतत्त्वदीपं\
 > यद्वासुदेवशरणा विदुरञ्जसैव ॥१९॥
 
-> tubhyaṁ ca nārada bhṛśaṁ bhagavān vivṛddha-
-> bhāvena sādhu parituṣṭa uvāca yogam
-> jñānaṁ ca bhāgavatam ātma-satattva-dīpaṁ
+> tubhyaṁ ca nārada bhṛśaṁ bhagavān vivṛddha-\
+> bhāvena sādhu parituṣṭa uvāca yogam\
+> jñānaṁ ca bhāgavatam ātma-satattva-dīpaṁ\
 > yad vāsudeva-śaraṇā vidur añjasaiva
 
 *tubhyam*—unto you; *ca*—also; *nārada*—O Nārada; *bhṛśam*—very nicely; *bhagavān*—the Personality of Godhead; *vivṛddha*—developed; *bhāvena*—by transcendental love; *sādhu*—your goodness; *parituṣṭaḥ*—being satisfied; *uvāca*—described; *yogam*—service; *jñānam*—knowledge; *ca*—also; *bhāgavatam*—the science of God and His devotional service; *ātma*—the self; *sa-tattva*—with all details; *dīpam*—just like the light in the darkness; *yat*—that which; *vāsudeva-śaraṇāḥ*—those who are souls surrendered unto Lord Vāsudeva; *viduḥ*—know them; *añjasā*—perfectly well; *eva*—as it is.

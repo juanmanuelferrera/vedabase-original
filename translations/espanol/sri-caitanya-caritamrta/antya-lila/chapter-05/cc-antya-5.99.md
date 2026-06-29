@@ -1,9 +1,9 @@
 ### CC Antya 5.99
 
-> স্বরূপের ঠাঞি আচার্য কৈলা নিবেদন ।
+> স্বরূপের ঠাঞি আচার্য কৈলা নিবেদন ।\
 > এক বিপ্র প্রভুর নাটক করিয়াছে উত্তম ॥৯৯॥
 
-> svarūpera ṭhāñi ācārya kailā nivedana
+> svarūpera ṭhāñi ācārya kailā nivedana\
 > eka vipra prabhura nāṭaka kariyāche uttama
 
 *svarūpera ṭhāñi*—ante Svarūpa Dāmodara Gosvāmī; *ācārya*—Bhagavān Ācārya; *kailā*—hizo; *nivedana*—presentación; *eka vipra*—un *brāhmaṇa*; *prabhura*—de Śrī Caitanya Mahāprabhu; *nāṭaka*—drama; *kariyāche*—ha compuesto; *uttama*—muy bueno.

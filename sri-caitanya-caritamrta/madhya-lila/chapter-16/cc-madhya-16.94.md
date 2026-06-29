@@ -1,9 +1,9 @@
 ### CC Madhya 16.94
 
-> আনন্দে মহাপ্রভু বর্ষা কৈল সমাধান ।
+> আনন্দে মহাপ্রভু বর্ষা কৈল সমাধান ।\
 > বিজয়া-দশমী-দিনে করিল পয়ান ॥৯৪॥
 
-> ānande mahāprabhu varṣā kaila samādhāna
+> ānande mahāprabhu varṣā kaila samādhāna\
 > vijayā-daśamī-dine karila payāna
 
 *ānande*—in great pleasure; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *varṣā*—the rainy season; *kaila samādhāna*—passed; *vijayā-daśamī-dine*—on Vijayā-daśamī, the day when the victory was won by Lord Rāmacandra; *karila payāna*—He departed.

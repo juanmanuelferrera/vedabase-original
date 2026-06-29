@@ -1,9 +1,9 @@
 ### CC Madhya 19.155
 
-> তাহাঁ বিস্তারিত হঞা ফলে প্রেম-ফল ।
+> তাহাঁ বিস্তারিত হঞা ফলে প্রেম-ফল ।\
 > ইহাঁ মালী সেচে নিত্য শ্রবণাদি জল ॥১৫৫॥
 
-> tāhāṅ vistārita hañā phale prema-phala
+> tāhāṅ vistārita hañā phale prema-phala\
 > ihāṅ mālī sece nitya śravaṇādi jala
 
 *tāhāṅ*—there in the spiritual world (in the Goloka Vṛndāvana planet); *vistārita*—expanded; *hañā*—becoming; *phale*—produces; *prema-phala*—the fruit known as love of Godhead; *ihāṅ*—in the material world, where the devotee is still present; *mālī*—exactly like a gardener; *sece*—sprinkles; *nitya*—regularly, without fail; *śravaṇa-ādi jala*—the water of *śravaṇa, kīrtana* and so on.

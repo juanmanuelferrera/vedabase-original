@@ -1,9 +1,9 @@
 ### CC Madhya 13.161
 
-> এই সব অর্থ প্রভু স্বরূপের সনে ।
+> এই সব অর্থ প্রভু স্বরূপের সনে ।\
 > রাত্রি-দিনে ঘরে বসি’ করে আস্বাদনে ॥১৬১॥
 
-> ei saba artha prabhu svarūpera sane
+> ei saba artha prabhu svarūpera sane\
 > rātri-dine ghare vasi' kare āsvādane
 
 *ei saba*—all these; *artha*—meanings; *prabhu*—Śrī Caitanya Mahāprabhu; *svarūpera sane*—with Svarūpa Dāmodara; *rātri-dine*—both day and night; *ghare vasi'*—sitting within His room; *kare*—does; *āsvādane*—taste.

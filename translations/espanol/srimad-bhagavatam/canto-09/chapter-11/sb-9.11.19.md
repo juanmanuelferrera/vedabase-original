@@ -1,11 +1,11 @@
 ### SB 9.11.19
 
-> स्मरतां हृदि विन्यस्य विद्धं दण्डककण्टकैः
+> स्मरतां हृदि विन्यस्य विद्धं दण्डककण्टकैः\
 > स्वपादपल्लवं राम आत्मज्योतिरगात्ततः ॥१९॥
 
-> smaratāṁ hṛdi vinyasya
-> viddhaṁ daṇḍaka-kaṇṭakaiḥ
-> sva-pāda-pallavaṁ rāma
+> smaratāṁ hṛdi vinyasya\
+> viddhaṁ daṇḍaka-kaṇṭakaiḥ\
+> sva-pāda-pallavaṁ rāma\
 > ātma-jyotir agāt tataḥ
 
 *smaratām*—de personas que siempre piensan en Él; *hṛdi*—en lo más hondo del corazón; *vinyasya*—situar; *viddham*—heridos; *daṇḍaka-kaṇṭakaiḥ*—por las espinas del bosque de Daṇḍakāraṇya (cuando el Señor Rāmacandra vivía en él); *sva-pāda-pallavam*—los pétalos de Sus pies de loto; *rāmaḥ*—el Señor Rāmacandra; *ātma-jyotiḥ*—los rayos de Su lustre corporal, denominado *brahmajyoti*; *agāt*—entró; *tataḥ*—más allá del *brahmajyoti*, en Su propio planeta Vaikuṇṭha.

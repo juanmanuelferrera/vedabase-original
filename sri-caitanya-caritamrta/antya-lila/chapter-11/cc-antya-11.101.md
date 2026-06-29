@@ -1,9 +1,9 @@
 ### CC Antya 11.101
 
-> এই ত’ কহিলুঁ হরিদাসের বিজয় ।
+> এই ত’ কহিলুঁ হরিদাসের বিজয় ।\
 > যাহার শ্রবণে কৃষ্ণে দৃঢ়ভক্তি হয় ॥১০১॥
 
-> ei ta' kahiluṅ haridāsera vijaya
+> ei ta' kahiluṅ haridāsera vijaya\
 > yāhāra śravaṇe kṛṣṇe dṛḍha-bhakti haya
 
 *ei ta'*—thus; *kahiluṅ*—I have spoken; *haridāsera*—of Haridāsa Ṭhākura; *vijaya*—victory; *yāhāra śravaṇe*—by hearing which; *kṛṣṇe*—unto Lord Kṛṣṇa; *dṛḍha-bhakti*—firm devotional service; *haya*—becomes.

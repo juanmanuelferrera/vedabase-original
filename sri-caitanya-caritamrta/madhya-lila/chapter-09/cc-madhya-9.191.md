@@ -1,9 +1,9 @@
 ### CC Madhya 9.191
 
-> ঈশ্বর-প্রেয়সী সীতা — চিদানন্দমূর্তি ।
+> ঈশ্বর-প্রেয়সী সীতা — চিদানন্দমূর্তি ।\
 > প্রাকৃত-ইন্দ্রিয়ের তাঁরে দেখিতে নাহি শক্তি ॥১৯১॥
 
-> īśvara-preyasī sītā—cid-ānanda-mūrti
+> īśvara-preyasī sītā—cid-ānanda-mūrti\
 > prākṛta-indriyera tāṅre dekhite nāhi śakti
 
 *īśvara-preyasī*—the dearmost wife of the Lord; *sītā*—mother Sītā; *cit-ānanda-mūrti*—spiritual blissful form; *prākṛta*—material; *indriyera*—of the senses; *tāṅre*—her; *dekhite*—to see; *nāhi*—there is not; *śakti*—power.

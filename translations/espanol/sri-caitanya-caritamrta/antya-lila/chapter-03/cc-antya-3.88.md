@@ -1,9 +1,9 @@
 ### CC Antya 3.88
 
-> তোমার যে লীলা মহা-অমৃতের সিন্ধু  ।
+> তোমার যে লীলা মহা-অমৃতের সিন্ধু  ।\
 > মোর মনোগোচর নহে তার এক বিন্দু ।।” ৮৮ ॥৮৮॥
 
-> tomāra ye līlā mahā-amṛtera sindhu
+> tomāra ye līlā mahā-amṛtera sindhu\
 > mora mano-gocara nahe tāra eka bindu"
 
 *tomāra*—Tus; *ye*—cualesquiera; *līlā*—pasatiempos; *mahā-amṛtera sindhu*—un gran océano de néctar; *mora*—para mí; *manaḥ-gocara nahe*—no es posible concebir; *tāra*—de ello; *eka bindu*—una gota.

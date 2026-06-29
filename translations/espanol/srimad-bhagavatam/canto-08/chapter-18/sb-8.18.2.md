@@ -1,11 +1,11 @@
 ### SB 8.18.2
 
-> श्यामावदातो झषराजकुण्डल त्विषोल्लसच्छ्रीवदनाम्बुजः पुमान
+> श्यामावदातो झषराजकुण्डल त्विषोल्लसच्छ्रीवदनाम्बुजः पुमान\
 > श्रीवत्सवक्षा बलयाङ्गदोल्लसत्किरीटकाञ्चीगुणचारुनूपुरः ॥२॥
 
-> śyāmāvadāto jhaṣa-rāja-kuṇḍala-
-> tviṣollasac-chrī-vadanāmbujaḥ pumān
-> śrīvatsa-vakṣā balayāṅgadollasat-
+> śyāmāvadāto jhaṣa-rāja-kuṇḍala-\
+> tviṣollasac-chrī-vadanāmbujaḥ pumān\
+> śrīvatsa-vakṣā balayāṅgadollasat-\
 > kirīṭa-kāñcī-guṇa-cāru-nūpuraḥ
 
 *śyāma-avadātaḥ*—cuyo cuerpo es negruzco y está libre de impurezas; *jhaṣa-rāja-kuṇḍala*—de los dos pendientes, con forma de tiburón; *tviṣā*—con el lustre; *ullasat*—deslumbrante; *śrī-vadana-ambujaḥ*—con una hermosa cara de loto; *pumān*—la Persona Suprema; *śrīvatsa-vakṣāḥ*—con la marca de Śrīvatsa en el pecho; *balaya*—pulseras; *aṅgada*—brazaletes; *ullasat*—deslumbrantes; *kirīṭa*—yelmo; *kāñcī*—cinturón; *guṇa*—cordón sagrado; *cāru*—hermoso; *nūpuraḥ*—campanitas tobilleras.

@@ -1,9 +1,9 @@
 ### CC Madhya 25.176
 
-> বাহু তুলি’ প্রভু কহে — বল ‘কৃষ্ণ’ ‘হরি’ ।
+> বাহু তুলি’ প্রভু কহে — বল ‘কৃষ্ণ’ ‘হরি’ ।\
 > দণ্ডবৎ করে লোকে হরিধ্বনি করি’ ॥১৭৬॥
 
-> bāhu tuli' prabhu kahe-bala 'kṛṣṇa' 'hari'
+> bāhu tuli' prabhu kahe-bala 'kṛṣṇa' 'hari'\
 > daṇḍavat kare loke hari-dhvani kari'
 
 *bāhu tuli'*—raising His two arms; *prabhu kahe*—Śrī Caitanya Mahāprabhu says; *bala*—please say; *kṛṣṇa hari*—Kṛṣṇa, Hari; *daṇḍa vat kare*—offer their respects; *loke*—the people; *hari-dhvani kari'*—loudly chanting the name of Hari.

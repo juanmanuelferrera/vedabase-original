@@ -1,11 +1,11 @@
 ### SB 6.7.24
 
-> त्रिपिष्टपं किं गणयन्त्यभेद्य मन्त्रा भृगूणामनुशिक्षितार्थाः
+> त्रिपिष्टपं किं गणयन्त्यभेद्य मन्त्रा भृगूणामनुशिक्षितार्थाः\
 > न विप्रगोविन्दगवीश्वराणां भवन्त्यभद्राणि नरेश्वराणाम ॥२४॥
 
-> tripiṣṭapaṁ kiṁ gaṇayanty abhedya-
-> mantrā bhṛgūṇām anuśikṣitārthāḥ
-> na vipra-govinda-gav-īśvarāṇāṁ
+> tripiṣṭapaṁ kiṁ gaṇayanty abhedya-\
+> mantrā bhṛgūṇām anuśikṣitārthāḥ\
+> na vipra-govinda-gav-īśvarāṇāṁ\
 > bhavanty abhadrāṇi nareśvarāṇām
 
 *tri-piṣṭa-pam*—todos los semidioses, y el Señor Brahmā entre ellos; *kim*—qué; *gaṇayanti*—se preocupan de; *abhedya-mantrāḥ*—cuya determinación por cumplir las órdenes del maestro espiritual es inquebrantable; *bhṛgūṇām*—de los discípulos de Bhṛgu Muni, como Śukrācārya; *anuśikṣita-arthāḥ*—que deciden seguir las instrucciones; *na*—no; *vipra*—los*brāhmaṇas*; *govinda*—la Suprema Personalidad de Dios, Kṛṣṇa; *go*—las vacas; *īśvarāṇām*—de personas que favorecen o que consideran dignos de adoración; *bhavanti*—son; *abhadrāṇi*—todas las desdichas; *nara-īśvarāṇām*—o de los reyes que siguen este principio.

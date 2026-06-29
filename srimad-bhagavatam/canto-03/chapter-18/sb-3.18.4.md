@@ -1,11 +1,11 @@
 ### SB 3.18.4
 
-> त्वं नः सपत्नैरभवाय किं भृतो यो मायया हन्त्यसुरान्परोक्षजित् ।
+> त्वं नः सपत्नैरभवाय किं भृतो यो मायया हन्त्यसुरान्परोक्षजित् ।\
 > त्वां योगमायाबलमल्पपौरुषं संस्थाप्य मूढ प्रमृजे सुहृच्छुचः ॥४॥
 
-> tvaṁ naḥ sapatnair abhavāya kiṁ bhṛto
-> yo māyayā hanty asurān parokṣa-jit
-> tvāṁ yogamāyā-balam alpa-pauruṣaṁ
+> tvaṁ naḥ sapatnair abhavāya kiṁ bhṛto\
+> yo māyayā hanty asurān parokṣa-jit\
+> tvāṁ yogamāyā-balam alpa-pauruṣaṁ\
 > saṁsthāpya mūḍha pramṛje suhṛc-chucaḥ
 
 *tvam*—You; *naḥ*—us; *sapatnaiḥ*—by our enemies; *abhavāya*—for killing; *kim*—is it that; *bhṛtaḥ*—maintained; *yaḥ*—He who; *māyayā*—by deception; *hanti*—kills; *asurān*—the demons; *parokṣa-jit*—who conquered by remaining invisible; *tvām*—You; *yogamāyā-balam*—whose strength is bewildering power; *alpa-pauruṣam*—whose power is meager; *saṁsthāpya*—after killing; *mūḍha*—fool; *pramṛje*—I shall wipe out; *suhṛt-śucaḥ*—the grief of my kinsmen.

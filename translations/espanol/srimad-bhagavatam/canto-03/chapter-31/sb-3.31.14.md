@@ -1,13 +1,13 @@
 ### SB 3.31.14
 
-> यः पञ्चभूतरचिते रहितः शरीरे
-> च्छन्नोऽयथेन्द्रियगुणार्थचिदात्मकोऽहम् ।
-> तेनाविकुण्ठमहिमानमृषिं तमेनं
+> यः पञ्चभूतरचिते रहितः शरीरे\
+> च्छन्नोऽयथेन्द्रियगुणार्थचिदात्मकोऽहम् ।\
+> तेनाविकुण्ठमहिमानमृषिं तमेनं\
 > वन्दे परं प्रकृतिपूरुषयोः पुमांसम् ॥१४॥
 
-> yaḥ pañca-bhūta-racite rahitaḥ śarīre
-> cchanno 'yathendriya-guṇārtha-cid-ātmako 'ham
-> tenāvikuṇṭha-mahimānam ṛṣiṁ tam enaṁ
+> yaḥ pañca-bhūta-racite rahitaḥ śarīre\
+> cchanno 'yathendriya-guṇārtha-cid-ātmako 'ham\
+> tenāvikuṇṭha-mahimānam ṛṣiṁ tam enaṁ\
 > vande paraṁ prakṛti-pūruṣayoḥ pumāṁsam
 
 *yaḥ*—quien; *pañca-bhūta*—cinco elementos densos; *racite*—hecho de; *rahitaḥ*—separada; *śarīre*—en el cuerpo material; *channaḥ*—cubierta; *ayathā*—de forma inadecuada; *indriya*—sentidos; *guṇa*—cualidades; *artha*—objetos de los sentidos; *cit*—ego; *ātmakaḥ*—que consta de; *aham*—yo; *tena*—por un cuerpo material; *avikuṇṭha-mahimānam*—cuyas glorias no pierden brillo; *ṛṣim*—omnisciente; *tam*—a ese; *enam*—a Él; *vande*—yo ofrezco reverencias; *param*—trascendental; *prakṛti*—a la naturaleza material; *pūruṣayoḥ*—a las entidades vivientes; *pumāṁsam*—a la Suprema Personalidad de Dios.

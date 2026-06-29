@@ -1,11 +1,11 @@
 ### SB 4.27.20
 
-> दौर्भाग्येनात्मनो लोके विश्रुता दुर्भगेति सा ।
+> दौर्भाग्येनात्मनो लोके विश्रुता दुर्भगेति सा ।\
 > या तुष्टा राजर्षये तु वृतादात्पूरवे वरम् ॥२०॥
 
-> daurbhāgyenātmano loke
-> viśrutā durbhageti sā
-> yā tuṣṭā rājarṣaye tu
+> daurbhāgyenātmano loke\
+> viśrutā durbhageti sā\
+> yā tuṣṭā rājarṣaye tu\
 > vṛtādāt pūrave varam
 
 *daurbhāgyena*—por su infortunio; *ātmanaḥ*—de sí misma; *loke*—en el mundo; *viśrutā*—famosa; *durbhagā*—muy desdichada; *iti*—así; *sā*—ella; *yā*—quien; *tuṣṭā*—sintiéndose satisfecha; *rāja-ṛṣaye*—al gran rey; *tu*—pero; *vṛtā*—al ser aceptada; *adāt*—concedió; *pūrave*—al rey Pūru; *varam*—bendición.

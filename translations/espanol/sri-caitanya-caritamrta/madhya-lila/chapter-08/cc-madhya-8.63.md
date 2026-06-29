@@ -1,11 +1,11 @@
 ### CC Madhya 8.63
 
-> সর্বধর্মান্ পরিত্যজ্য মামেকং শরণং ব্রজ ৷
+> সর্বধর্মান্ পরিত্যজ্য মামেকং শরণং ব্রজ ৷\
 > অহং ত্বাং সর্বপাপেভ্যো মোক্ষয়িষ্যামি মা শুচঃ ৷৷ ৬৩ ৷৷ ॥৬৩॥
 
-> sarva-dharmān parityajya
-> mām ekaṁ śaraṇaṁ vraja
-> ahaṁ tvāṁ sarva-pāpebhyo
+> sarva-dharmān parityajya\
+> mām ekaṁ śaraṇaṁ vraja\
+> ahaṁ tvāṁ sarva-pāpebhyo\
 > mokṣayiṣyāmi mā śucaḥ
 
 *sarva-dharmān*—toda clase de deberes ocupacionales; *parityajya*—abandonando; *mām ekam*—solo a Mí; *śaraṇam*—como refugio; *vraja*—ve; *aham*—Yo; *tvām*—a ti; *sarva-pāpebhyaḥ*—de todas las reacciones de la vida pecaminosa; *mokṣayiṣyāmi*—te daré la liberación; *mā*—no; *śucaḥ*—te preocupes.

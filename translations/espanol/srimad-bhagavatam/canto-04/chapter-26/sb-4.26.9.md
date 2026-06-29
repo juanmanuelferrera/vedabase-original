@@ -1,11 +1,11 @@
 ### SB 4.26.9
 
-> तत्र निर्भिन्नगात्राणां चित्रवाजैः शिलीमुखैः ।
+> तत्र निर्भिन्नगात्राणां चित्रवाजैः शिलीमुखैः ।\
 > विप्लवोऽभूद्दुःखितानां दुःसहः करुणात्मनाम् ॥९॥
 
-> tatra nirbhinna-gātrāṇāṁ
-> citra-vājaiḥ śilīmukhaiḥ
-> viplavo 'bhūd duḥkhitānāṁ
+> tatra nirbhinna-gātrāṇāṁ\
+> citra-vājaiḥ śilīmukhaiḥ\
+> viplavo 'bhūd duḥkhitānāṁ\
 > duḥsahaḥ karuṇātmanām
 
 *tatra*—allí; *nirbhinna*—heridos; *gātrāṇām*—cuyos cuerpos; *citra-vājaiḥ*—con distintas plumas; *śilī-mukhaiḥ*—con las flechas; *viplavaḥ*—destrucción; *abhūt*—se hizo; *duḥkhitānām*—de los muy afligidos; *duḥsahaḥ*—insoportable; *karuṇa-ātmanām*—para personas que son muy misericordiosas.

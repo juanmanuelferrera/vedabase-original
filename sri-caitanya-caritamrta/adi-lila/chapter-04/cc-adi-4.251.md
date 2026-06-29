@@ -1,9 +1,9 @@
 ### CC Adi 4.251
 
-> পরস্পর বেণুগীতে হরয়ে চেতন ।
+> পরস্পর বেণুগীতে হরয়ে চেতন ।\
 > মোর ভ্রমে তমালেরে করে আলিঙ্গন ॥২৫১॥
 
-> paraspara veṇu-gīte haraye cetana
+> paraspara veṇu-gīte haraye cetana\
 > mora bhrame tamālere kare āliṅgana
 
 *paraspara*—against each other; *veṇu-gīte*—the singing of the bamboo; *haraye*—attracts; *cetana*—consciousness; *mora*—of Me; *bhrame*—in mistake; *tamālere*—a black tree known as *tamāla*; *kare*—She does; *āliṅgana*—embracing.

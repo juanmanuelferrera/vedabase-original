@@ -1,11 +1,11 @@
 ### SB 7.14.13
 
-> कृमिविड्भस्मनिष्ठान्तं क्वेदं तुच्छं कलेवरम
+> कृमिविड्भस्मनिष्ठान्तं क्वेदं तुच्छं कलेवरम\
 > क्व तदीयरतिर्भार्या क्वायमात्मा नभश्छदिः ॥१३॥
 
-> kṛmi-viḍ-bhasma-niṣṭhāntaṁ
-> kvedaṁ tucchaṁ kalevaram
-> kva tadīya-ratir bhāryā
+> kṛmi-viḍ-bhasma-niṣṭhāntaṁ\
+> kvedaṁ tucchaṁ kalevaram\
+> kva tadīya-ratir bhāryā\
 > kvāyam ātmā nabhaś-chadiḥ
 
 *kṛmi*—insectos, gérmenes; *viṭ*—excremento; *bhasma*—cenizas; *niṣṭha*—apego; *antam*—al final; *kva*—qué es; *idam*—este (cuerpo); *tuccham*—muy insignificante; *kalevaram*—tabernáculo material; *kva*—qué es esa; *tadīya-ratiḥ*—atracción por el cuerpo; *bhāryā*—esposa; *kva ayam*—qué valor tiene este cuerpo; *ātmā*—el Alma Suprema; *nabhaḥ-chadiḥ*—omnipresente como el cielo.

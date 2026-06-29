@@ -1,11 +1,11 @@
 ### SB 1.15.21
 
-> तद्वै धनुस्त इषवः स रथो हयास्ते सोऽहं रथी नृपतयो यत आनमन्ति ।
+> तद्वै धनुस्त इषवः स रथो हयास्ते सोऽहं रथी नृपतयो यत आनमन्ति ।\
 > सर्वं क्षणेन तदभूदसदीशरिक्तं भस्मन्हुतं कुहकराद्धमिवोप्तमूष्याम् ॥२१॥
 
-> tad vai dhanus ta iṣavaḥ sa ratho hayās te
-> so 'haṁ rathī nṛpatayo yata ānamanti
-> sarvaṁ kṣaṇena tad abhūd asad īśa-riktaṁ
+> tad vai dhanus ta iṣavaḥ sa ratho hayās te\
+> so 'haṁ rathī nṛpatayo yata ānamanti\
+> sarvaṁ kṣaṇena tad abhūd asad īśa-riktaṁ\
 > bhasman hutaṁ kuhaka-rāddham ivoptam ūṣyām
 
 *tat*—el mismo; *vai*—ciertamente; *dhanuḥ te*—el mismo arco; *iṣavaḥ*—flechas; *saḥ*—la mismísima; *rathaḥ*—cuadriga; *hayāḥ te*—los mismísimos caballos; *saḥ aham*—yo soy el mismo Arjuna; *rathī*—el combatiente de la cuadriga; *nṛpatayaḥ*—todos los reyes; *yataḥ*—a quien; *ānamanti*—ofrecían sus respetos; *sarvam*—todos; *kṣaṇena*—en cuestión de segundos; *tat*—todos aquellos; *abhūt*—se volvieron; *asat*—inútiles; *īśa*—debido al Señor; *riktam*—siendo anulado; *bhasman*—cenizas; *hutam*—ofreciendo mantequilla; *kuhaka-rāddham*—dinero creado por arte de magia; *iva*—así; *uptam*—sembrado; *ūṣyām*—en suelo estéril.

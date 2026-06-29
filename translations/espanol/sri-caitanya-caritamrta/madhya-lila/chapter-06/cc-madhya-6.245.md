@@ -1,9 +1,9 @@
 ### CC Madhya 6.245
 
-> ভট্টাচার্য কহে তাঁরে করি’ নমস্কারে ।
+> ভট্টাচার্য কহে তাঁরে করি’ নমস্কারে ।\
 > তোমার সম্বন্ধে প্রভু কৃপা কৈল মোরে ॥২৪৫॥
 
-> bhaṭṭācārya kahe tāṅre kari' namaskāre
+> bhaṭṭācārya kahe tāṅre kari' namaskāre\
 > tomāra sambandhe prabhu kṛpā kaila more
 
 *bhaṭṭācārya kahe*—Sārvabhauma Bhaṭṭācārya respondió; *tāṅre*—a Gopīnātha Ācārya; *kari'*—haciendo; *namaskāre*—reverencias; *tomāra sambandhe*—debido a tu relación; *prabhu*—Śrī Caitanya Mahāprabhu; *kṛpā*—misericordia; *kaila*—mostró; *more*—a mí.

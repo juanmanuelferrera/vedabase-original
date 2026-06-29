@@ -1,11 +1,11 @@
 ### SB 9.20.33
 
-> स संराड्लोकपालाख्यमैश्वर्यमधिराट्श्रियम
+> स संराड्लोकपालाख्यमैश्वर्यमधिराट्श्रियम\
 > चक्रं चास्खलितं प्राणान्मृषेत्युपरराम ह ॥३३॥
 
-> sa saṁrāḍ loka-pālākhyam
-> aiśvaryam adhirāṭ śriyam
-> cakraṁ cāskhalitaṁ prāṇān
+> sa saṁrāḍ loka-pālākhyam\
+> aiśvaryam adhirāṭ śriyam\
+> cakraṁ cāskhalitaṁ prāṇān\
 > mṛṣety upararāma ha
 
 *saḥ*—he (Mahārāja Bharata); *saṁrāṭ*—the emperor; *loka-pāla-ākhyam*—known as the ruler of all the *lokas,* or planets; *aiśvaryam*—such opulences; *adhirāṭ*—thoroughly in power; *śriyam*—kingdom; *cakram*—soldiers or orders; *ca*—and; *askhalitam*—without failure; *prāṇān*—life or sons and family; *mṛṣā*—all false; *iti*—thus; *upararāma*—ceased to enjoy; *ha*—in the past.

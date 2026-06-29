@@ -1,13 +1,13 @@
 ### SB 8.22.16
 
-> श्रीप्रह्राद उवाच
-> त्वयैव दत्तं पदमैन्द्रमूर्जितं हृतं तदेवाद्य तथैव शोभनम
+> श्रीप्रह्राद उवाच\
+> त्वयैव दत्तं पदमैन्द्रमूर्जितं हृतं तदेवाद्य तथैव शोभनम\
 > मन्ये महानस्य कृतो ह्यनुग्रहो विभ्रंशितो यच्छ्रिय आत्ममोहनात ॥१६॥
 
-> śrī-prahrāda uvāca
-> tvayaiva dattaṁ padam aindram ūrjitaṁ
-> hṛtaṁ tad evādya tathaiva śobhanam
-> manye mahān asya kṛto hy anugraho
+> śrī-prahrāda uvāca\
+> tvayaiva dattaṁ padam aindram ūrjitaṁ\
+> hṛtaṁ tad evādya tathaiva śobhanam\
+> manye mahān asya kṛto hy anugraho\
 > vibhraṁśito yac chriya ātma-mohanāt
 
 *śrī-prahrādaḥ uvāca*—Prahlāda Mahārāja said; *tvayā*—by Your Lordship; *eva*—indeed; *dattam*—which had been given; *padam*—this position; *aindram*—of the King of heaven; *ūrjitam*—very, very great; *hṛtam*—has been taken away; *tat*—that; *eva*—indeed; *adya*—today; *tathā*—as; *eva*—indeed; *śobhanam*—beautiful; *manye*—I consider; *mahān*—very great; *asya*—of him (Bali Mahārāja); *kṛtaḥ*—has been done by You; *hi*—indeed; *anugrahaḥ*—mercy; *vibhraṁśitaḥ*—being bereft of; *yat*—because; *śriyaḥ*—from that opulence; *ātma-mohanāt*—which was covering the process of self-realization.

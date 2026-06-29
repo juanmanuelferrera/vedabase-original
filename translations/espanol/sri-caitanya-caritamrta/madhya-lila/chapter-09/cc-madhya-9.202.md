@@ -1,9 +1,9 @@
 ### CC Madhya 9.202
 
-> রাবণ দেখিয়া সীতা লৈল অগ্নির শরণ ৷
+> রাবণ দেখিয়া সীতা লৈল অগ্নির শরণ ৷\
 > রাবণ হৈতে অগ্নি কৈল সীতাকে আবরণ ৷৷ ২০২ ৷৷ ॥২০২॥
 
-> rāvaṇa dekhiyā sītā laila agnira śaraṇa
+> rāvaṇa dekhiyā sītā laila agnira śaraṇa\
 > rāvaṇa haite agni kaila sītāke āvaraṇa
 
 *rāvaṇa dekhiyā*—tras ver a Rāvaṇa; *sītā*—la madre Sītā; *laila*—tomó; *agnira*—del fuego; *śaraṇa*—refugio; *rāvaṇa*—Rāvaṇa; *haite*—de; *agni*—el fuego; *kaila*—hizo; *sītāke*—a la madre Sītā; *āvaraṇa*—cobertura.

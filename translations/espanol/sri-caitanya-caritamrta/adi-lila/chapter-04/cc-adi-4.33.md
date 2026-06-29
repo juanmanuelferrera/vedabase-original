@@ -1,9 +1,9 @@
 ### CC Adi 4.33
 
-> ব্রজের নির্মল রাগ শুনি’ ভক্তগণ ।
+> ব্রজের নির্মল রাগ শুনি’ ভক্তগণ ।\
 > রাগমার্গে ভজে যেন ছাড়ি’ ধর্ম-কর্ম ॥৩৩॥
 
-> vrajera nirmala rāga śuni' bhakta-gaṇa
+> vrajera nirmala rāga śuni' bhakta-gaṇa\
 > rāga-mārge bhaje yena chāḍi' dharma-karma
 
 *vrajera*—de Vraja; *nirmala*—inmaculado; *rāga*—amor; *śuni'*—al escuchar; *bhakta-gaṇa*—los devotos; *rāga-mārge*—por la senda del amor espontáneo; *bhaje*—adoran; *yena*—para que; *chāḍi'*—abandonando; *dharma*—religiosidad; *karma*—actividad fruitiva.

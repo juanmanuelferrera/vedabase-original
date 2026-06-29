@@ -1,11 +1,11 @@
 ### SB 2.2.31
 
-> तेनात्मनात्मानमुपैति शान्तमानन्दमानन्दमयोऽवसाने ।
+> तेनात्मनात्मानमुपैति शान्तमानन्दमानन्दमयोऽवसाने ।\
 > एतां गतिं भागवतीं गतो यः स वै पुनर्नेह विषज्जतेऽङ्ग ॥३१॥
 
-> tenātmanātmānam upaiti śāntam
-> ānandam ānandamayo 'vasāne
-> etāṁ gatiṁ bhāgavatīṁ gato yaḥ
+> tenātmanātmānam upaiti śāntam\
+> ānandam ānandamayo 'vasāne\
+> etāṁ gatiṁ bhāgavatīṁ gato yaḥ\
 > sa vai punar neha viṣajjate 'ṅga
 
 *tena*—por ese purificado; *ātmanā*—por el ser; *ātmānam*—la Superalma; *upaiti*—logra; *śāntam*—reposo; *ānandam*—satisfacción; *ānanda-mayaḥ*—siendo así naturalmente; *avasāne*—estando libre de toda contaminación material; *etām*—ese; *gatim*—destino; *bhāgavatīm*—devocional; *gataḥ*—logrado por; *yaḥ*—la persona; *saḥ*—ella; *vai*—ciertamente; *punaḥ*—de nuevo; *na*—nunca; *iha*—en este mundo material; *viṣajjate*—se siente atraída; *aṅga*—¡oh, Mahārāja Parīkṣit!.

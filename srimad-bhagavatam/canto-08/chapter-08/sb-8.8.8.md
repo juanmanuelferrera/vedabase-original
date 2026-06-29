@@ -1,11 +1,11 @@
 ### SB 8.8.8
 
-> ततश्चाप्सरसो जाता निष्ककण्ठ्यः सुवाससः
+> ततश्चाप्सरसो जाता निष्ककण्ठ्यः सुवाससः\
 > रमण्यः स्वर्गिणां वल्गु गतिलीलावलोकनैः ॥८॥
 
-> tataś cāvirabhūt sākṣāc
-> chrī ramā bhagavat-parā
-> rañjayantī diśaḥ kāntyā
+> tataś cāvirabhūt sākṣāc\
+> chrī ramā bhagavat-parā\
+> rañjayantī diśaḥ kāntyā\
 > vidyut saudāmanī yathā
 
 *tataḥ*—thereafter; *ca*—and; *āvirabhūt*—manifested; *sākṣāt*—directly; *śrī*—the goddess of fortune; *ramā*—known as Ramā; *bhagavat-parā*—absolutely inclined to be possessed by the Supreme Personality of Godhead; *rañjayantī*—illuminating; *diśaḥ*—all directions; *kāntyā*—by luster; *vidyut*—lightning; *saudāmanī*—Saudāmanī; *yathā*—as.

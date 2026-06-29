@@ -1,11 +1,11 @@
 ### SB 4.25.9
 
-> अत्र ते कथयिष्येऽमुमितिहासं पुरातनम् ।
+> अत्र ते कथयिष्येऽमुमितिहासं पुरातनम् ।\
 > पुरञ्जनस्य चरितं निबोध गदतो मम ॥९॥
 
-> atra te kathayiṣye 'mum
-> itihāsaṁ purātanam
-> purañjanasya caritaṁ
+> atra te kathayiṣye 'mum\
+> itihāsaṁ purātanam\
+> purañjanasya caritaṁ\
 > nibodha gadato mama
 
 *atra*—con esto; *te*—a ti; *kathayiṣye*—voy a hablar; *amum*—sobre este tema; *itihāsam*—historia; *purātanam*—muy antigua; *purañ-janasya*—al respecto de Purañjana; *caritam*—su personalidad; *nibodha*—trata de entender; *gadataḥ mama*—mientras hablo.

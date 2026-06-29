@@ -1,13 +1,13 @@
 ### SB 3.9.29
 
-> श्रीभगवानुवाच
-> मा वेदगर्भ गास्तन्द्रीं सर्ग उद्यममावह ।
+> श्रीभगवानुवाच\
+> मा वेदगर्भ गास्तन्द्रीं सर्ग उद्यममावह ।\
 > तन्मयापादितं ह्यग्रे यन्मां प्रार्थयते भवान् ॥२९॥
 
-> śrī-bhagavān uvāca
-> mā veda-garbha gās tandrīṁ
-> sarga udyamam āvaha
-> tan mayāpāditaṁ hy agre
+> śrī-bhagavān uvāca\
+> mā veda-garbha gās tandrīṁ\
+> sarga udyamam āvaha\
+> tan mayāpāditaṁ hy agre\
 > yan māṁ prārthayate bhavān
 
 *śrī-bhagavān uvāca*—el Señor, la Personalidad de Dios, dijo; *mā*—no; *veda-garbha*—¡oh, tú, que tienes la profundidad de toda la sabiduría védica!; *gāḥ tandrīm*—desanimarse; *sarge*—para la creación; *udyamam*—empresas; *āvaha*—tan solo sométete; *tat*—eso (que quieres); *mayā*—por Mí; *āpāditam*—ejecutado; *hi*—ciertamente; *agre*—anteriormente; *yat*—lo cual; *mām*—de Mí; *prārthayate*—suplicando; *bhavān*—tú.

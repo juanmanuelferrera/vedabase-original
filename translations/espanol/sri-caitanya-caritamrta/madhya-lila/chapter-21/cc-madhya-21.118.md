@@ -1,13 +1,13 @@
 ### CC Madhya 21.118
 
-> গোপীভাব-দরপণ, নব নব ক্ষণে ক্ষণ,
-> তার আগে কৃষ্ণের মাধুর্য ।
-> দোঁহে করে হুড়াহুড়ি, বাড়ে, মুখ নাহি মুড়ি,
+> গোপীভাব-দরপণ, নব নব ক্ষণে ক্ষণ,\
+> তার আগে কৃষ্ণের মাধুর্য ।\
+> দোঁহে করে হুড়াহুড়ি, বাড়ে, মুখ নাহি মুড়ি,\
 > নব নব দোঁহার প্রাচুর্য ॥১১৮॥
 
-> gopī-bhāva-darapaṇa, nava nava kṣaṇe kṣaṇa,
-> tāra āge kṛṣṇera mādhurya
-> doṅhe kare huḍāhuḍi, bāḍe, mukha nāhi muḍi,
+> gopī-bhāva-darapaṇa, nava nava kṣaṇe kṣaṇa,\
+> tāra āge kṛṣṇera mādhurya\
+> doṅhe kare huḍāhuḍi, bāḍe, mukha nāhi muḍi,\
 > nava nava doṅhāra prācurya
 
 *gopī-bhāva-darapaṇa*—el éxtasis de las gopīs es como un espejo; *nava nava kṣaṇe kṣaṇa*—más y más nuevo a cada instante; *tāra āge*—delante de eso; *kṛṣṇera mādhurya*—la dulzura de la belleza de Kṛṣṇa; *doṅhe*—ambos; *kare*—hacen; *huḍāhuḍi*—compitiendo entre sí; *bāḍe*—aumenta; *mukha nāhi muḍi*—sin apartar nunca el rostro; *nava nava*—más y más nuevo; *doṅhāra*—de ambos; *prācurya*—abundancia.

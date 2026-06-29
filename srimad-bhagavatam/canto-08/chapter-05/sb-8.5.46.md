@@ -1,11 +1,11 @@
 ### SB 8.5.46
 
-> तैस्तैः स्वेच्छाभूतै रूपैः काले काले स्वयं विभो
+> तैस्तैः स्वेच्छाभूतै रूपैः काले काले स्वयं विभो\
 > कर्म दुर्विषहं यन्नो भगवांस्तत्करोति हि ॥४६॥
 
-> tais taiḥ svecchā-bhūtai rūpaiḥ
-> kāle kāle svayaṁ vibho
-> karma durviṣahaṁ yan no
+> tais taiḥ svecchā-bhūtai rūpaiḥ\
+> kāle kāle svayaṁ vibho\
+> karma durviṣahaṁ yan no\
 > bhagavāṁs tat karoti hi
 
 *taiḥ*—by such appearances; *taiḥ*—by such incarnations; *sva-icchā-bhūtaiḥ*—all appearing by Your personal sweet will; *rūpaiḥ*—by factual forms; *kāle kāle*—in different millenniums; *svayam*—personally; *vibho*—O Supreme; *karma*—activities; *durviṣaham*—uncommon (unable to be enacted by anyone else); *yat*—that which; *naḥ*—unto us; *bhagavān*—the Supreme Personality of Godhead; *tat*—that; *karoti*—executes; *hi*—indeed.

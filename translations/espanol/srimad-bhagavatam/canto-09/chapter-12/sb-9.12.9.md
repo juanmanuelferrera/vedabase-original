@@ -1,11 +1,11 @@
 ### SB 9.12.9
 
-> एते हीक्ष्वाकुभूपाला अतीताः शृण्वनागतान
+> एते हीक्ष्वाकुभूपाला अतीताः शृण्वनागतान\
 > बृहद्बलस्य भविता पुत्रो नाम्ना बृहद्रणः ॥९॥
 
-> ete hīkṣvāku-bhūpālā
-> atītāḥ śṛṇv anāgatān
-> bṛhadbalasya bhavitā
+> ete hīkṣvāku-bhūpālā\
+> atītāḥ śṛṇv anāgatān\
+> bṛhadbalasya bhavitā\
 > putro nāmnā bṛhadraṇaḥ
 
 *ete*—todos ellos; *hi*—en verdad; *ikṣvāku-bhūpālāḥ*—reyes de la dinastía de Ikṣvāku; *atītāḥ*—todos ellos han muerto; *śṛṇu*—escucha; *anāgatān*—los que vendrán en el futuro; *bṛhadbalasya*—de Bṛhadbala; *bhavitā*—habrá; *putraḥ*—un hijo; *nāmnā*—de nombre; *bṛhadraṇaḥ*—Bṛhadraṇa.

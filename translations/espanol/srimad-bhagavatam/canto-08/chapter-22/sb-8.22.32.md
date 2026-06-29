@@ -1,14 +1,14 @@
 ### SB 8.22.32
 
-> तावत्सुतलमध्यास्तां विश्वकर्मविनिर्मितम
-> यदाधयो व्याधयश्च क्लमस्तन्द्रा पराभवः
+> तावत्सुतलमध्यास्तां विश्वकर्मविनिर्मितम\
+> यदाधयो व्याधयश्च क्लमस्तन्द्रा पराभवः\
 > नोपसर्गा निवसतां सम्भवन्ति ममेक्षया ॥३२॥
 
-> tāvat sutalam adhyāstāṁ
-> viśvakarma-vinirmitam
-> yad ādhayo vyādhayaś ca
-> klamas tandrā parābhavaḥ
-> nopasargā nivasatāṁ
+> tāvat sutalam adhyāstāṁ\
+> viśvakarma-vinirmitam\
+> yad ādhayo vyādhayaś ca\
+> klamas tandrā parābhavaḥ\
+> nopasargā nivasatāṁ\
 > sambhavanti mamekṣayā
 
 *tāvat*—mientras no asumas el puesto del Señor Indra; *sutalam*—en el planeta llamado Sutala; *adhyāstām*—ve a vivir allí ocupando el lugar; *viśvakarma-vinirmitam*—que fue creado especialmente por Viśvakarmā; *yat*—en donde; *ādhayaḥ*—los sufrimientos propios de la mente; *vyādhayaḥ*—los sufrimientos propios del cuerpo; *ca*—también; *klamaḥ*—fatiga; *tandrā*—vértigo o pereza; *parābhavaḥ*—ser derrotado; *na*—no; *upasargāḥ*—otras señales de perturbación; *nivasatām*—de quienes allí viven; *sambhavanti*—resulta posible; *mama*—de Mí; *īkṣayā*—por la vigilancia especial.

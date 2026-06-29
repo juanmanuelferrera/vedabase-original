@@ -1,9 +1,9 @@
 ### CC Madhya 13.103
 
-> এক এক দন্তের কম্প দেখিতে লাগে ভয় ।
+> এক এক দন্তের কম্প দেখিতে লাগে ভয় ।\
 > লোকে জানে, দন্ত সব খসিয়া পড়য় ॥১০৩॥
 
-> eka eka dantera kampa dekhite lāge bhaya
+> eka eka dantera kampa dekhite lāge bhaya\
 > loke jāne, danta saba khasiyā paḍaya
 
 *eka eka*—uno tras otro; *dantera*—de los dientes; *kampa*—movimiento; *dekhite*—al ver; *lāge*—hay; *bhaya*—miedo; *loke jāne*—la gente entendió; *danta*—los dientes; *saba*—todos; *khasiyā*—aflojándose; *paḍaya*—se caen.

@@ -1,11 +1,11 @@
 ### SB 9.4.44
 
-> अहो अस्य नृशंसस्य श्रियोन्मत्तस्य पश्यत
+> अहो अस्य नृशंसस्य श्रियोन्मत्तस्य पश्यत\
 > धर्मव्यतिक्रमं विष्णोरभक्तस्येशमानिनः ॥४४॥
 
-> aho asya nṛ-śaṁsasya
-> śriyonmattasya paśyata
-> dharma-vyatikramaṁ viṣṇor
+> aho asya nṛ-śaṁsasya\
+> śriyonmattasya paśyata\
+> dharma-vyatikramaṁ viṣṇor\
 > abhaktasyeśa-māninaḥ
 
 *aho*—alas; *asya*—of this man; *nṛ-śaṁsasya*—who is so cruel; *śriyā unmattasya*—puffed up because of great opulence; *paśyata*—everyone just see; *dharma-vyatikramam*—the transgression of the regulative principles of religion; *viṣṇoḥ abhaktasya*—who is not a devotee of Lord Viṣṇu; *īśa-māninaḥ*—considering himself the Supreme Lord, independent of everything.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.129
 
-> সকলসাধন-শ্রেষ্ঠ এই পঞ্চ অঙ্গ  ।
+> সকলসাধন-শ্রেষ্ঠ এই পঞ্চ অঙ্গ  ।\
 > কৃষ্ণপ্রেম জন্মায় এই পাঁচের অল্প সঙ্গ ॥১২৯॥
 
-> sakala-sādhana-śreṣṭha ei pañca aṅga
+> sakala-sādhana-śreṣṭha ei pañca aṅga\
 > kṛṣṇa-prema janmāya ei pāṅcera alpa saṅga
 
 *sakala-sādhana*—de todos los elementos para ejecutar servicio devocional; *śreṣṭha*—lo mejor; *ei pañca aṅga*—estas cinco partes; *kṛṣṇa-prema*—amor por Kṛṣṇa; *janmāya*—despierta; *ei*—estos; *pāṅcera*—de los cinco; *alpa saṅga*—ligera asociación o práctica.

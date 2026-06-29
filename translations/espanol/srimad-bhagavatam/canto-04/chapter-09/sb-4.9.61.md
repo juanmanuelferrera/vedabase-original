@@ -1,11 +1,11 @@
 ### SB 4.9.61
 
-> पयःफेननिभाः शय्या दान्ता रुक्मपरिच्छदाः ।
+> पयःफेननिभाः शय्या दान्ता रुक्मपरिच्छदाः ।\
 > आसनानि महार्हाणि यत्र रौक्मा उपस्कराः ॥६१॥
 
-> payaḥ-phena-nibhāḥ śayyā
-> dāntā rukma-paricchadāḥ
-> āsanāni mahārhāṇi
+> payaḥ-phena-nibhāḥ śayyā\
+> dāntā rukma-paricchadāḥ\
+> āsanāni mahārhāṇi\
 > yatra raukmā upaskarāḥ
 
 *payaḥ*—leche; *phena*—espuma; *nibhāḥ*—como; *śayyāḥ*—ropa de cama; *dāntāḥ*—hechas de marfil; *rukma*—de oro; *paricchadāḥ*—con adornos; *āsanāni*—asientos; *mahā-arhāṇi*—muy valiosos; *yatra*—donde; *raukmāḥ*—de oro; *upaskarāḥ*—mobiliario.

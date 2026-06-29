@@ -1,13 +1,13 @@
 ### CC Antya 15.77
 
-> এতেক বিলাপ করি’ প্রেমাবেশে গৌরহরি,
-> এই অর্থে পড়ে এক শ্লোক ।
-> যেই শ্লোক পড়ি’ রাধা, বিশাখারে কহে বাধা,
+> এতেক বিলাপ করি’ প্রেমাবেশে গৌরহরি,\
+> এই অর্থে পড়ে এক শ্লোক ।\
+> যেই শ্লোক পড়ি’ রাধা, বিশাখারে কহে বাধা,\
 > উঘাড়িয়া হৃদয়ের শোক ॥৭৭॥
 
-> eteka vilāpa kari' premāveśe gaurahari,
-> ei arthe paḍe eka śloka
-> sei śloka paḍi' rādhā, viśākhāre kahe bādhā,
+> eteka vilāpa kari' premāveśe gaurahari,\
+> ei arthe paḍe eka śloka\
+> sei śloka paḍi' rādhā, viśākhāre kahe bādhā,\
 > ughāḍiyā hṛdayera śoka
 
 *eteka*—así; *vilāpa kari'*—lamentándose; *prema-āveśe*—en el amor extático por Kṛṣṇa; *gaurahari*—Śrī Caitanya Mahāprabhu; *ei arthe*—para comprender el propósito; *paḍe*—recita; *eka śloka*—un verso; *sei śloka*—ese verso; *paḍi'*—leyendo; *rādhā*—Śrīmatī Rādhārāṇī; *viśākhāre*—a Viśākhā; *kahe*—expresa; *bādhā*—obstáculo; *ughāḍiyā*—exponiendo; *hṛdayera*—del corazón; *śoka*—el lamento.

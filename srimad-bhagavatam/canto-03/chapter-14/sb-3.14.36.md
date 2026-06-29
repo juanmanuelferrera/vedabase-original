@@ -1,11 +1,11 @@
 ### SB 3.14.36
 
-> स नः प्रसीदतां भामो भगवानुर्वनुग्रहः ।
+> स नः प्रसीदतां भामो भगवानुर्वनुग्रहः ।\
 > व्याधस्याप्यनुकम्प्यानां स्त्रीणां देवः सतीपतिः ॥३६॥
 
-> sa naḥ prasīdatāṁ bhāmo
-> bhagavān urv-anugrahaḥ
-> vyādhasyāpy anukampyānāṁ
+> sa naḥ prasīdatāṁ bhāmo\
+> bhagavān urv-anugrahaḥ\
+> vyādhasyāpy anukampyānāṁ\
 > strīṇāṁ devaḥ satī-patiḥ
 
 *saḥ*—he; *naḥ*—with us; *prasīdatām*—be pleased; *bhāmaḥ*—brother-in-law; *bhagavān*—the personality of all opulences; *uru*—very great; *anugrahaḥ*—merciful; *vyādhasya*—of the hunter; *api*—also; *anukampyānām*—of the objects of mercy; *strīṇām*—of the women; *devaḥ*—the worshipable lord; *satī-patiḥ*—the husband of Satī (the chaste).

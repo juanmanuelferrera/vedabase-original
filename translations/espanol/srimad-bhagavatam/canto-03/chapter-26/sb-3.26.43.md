@@ -1,11 +1,11 @@
 ### SB 3.26.43
 
-> क्लेदनं पिण्डनं तृप्तिः प्राणनाप्यायनोन्दनम् ।
+> क्लेदनं पिण्डनं तृप्तिः प्राणनाप्यायनोन्दनम् ।\
 > तापापनोदो भूयस्त्वमम्भसो वृत्तयस्त्विमाः ॥४३॥
 
-> kledanaṁ piṇḍanaṁ tṛptiḥ
-> prāṇanāpyāyanondanam
-> tāpāpanodo bhūyastvam
+> kledanaṁ piṇḍanaṁ tṛptiḥ\
+> prāṇanāpyāyanondanam\
+> tāpāpanodo bhūyastvam\
 > ambhaso vṛttayas tv imāḥ
 
 *kledanam*—humedeciendo; *piṇḍanam*—coagulando; *tṛptiḥ*—causando satisfacción; *prāṇana*—manteniendo la vida; *āpyāyana*—refrescando; *undanam*—ablandando; *tāpa*—calor; *apanodaḥ*—alejando; *bhūyastvam*—estando en abundancia; *ambhasaḥ*—del agua; *vṛttayaḥ*—las funciones características; *tu*—de hecho; *imāḥ*—estas.

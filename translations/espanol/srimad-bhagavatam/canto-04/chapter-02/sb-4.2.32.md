@@ -1,11 +1,11 @@
 ### SB 4.2.32
 
-> तद्ब्रह्म परमं शुद्धं सतां वर्त्म सनातनम् ।
+> तद्ब्रह्म परमं शुद्धं सतां वर्त्म सनातनम् ।\
 > विगर्ह्य यात पाषण्डं दैवं वो यत्र भूतराट् ॥३२॥
 
-> tad brahma paramaṁ śuddhaṁ
-> satāṁ vartma sanātanam
-> vigarhya yāta pāṣaṇḍaṁ
+> tad brahma paramaṁ śuddhaṁ\
+> satāṁ vartma sanātanam\
+> vigarhya yāta pāṣaṇḍaṁ\
 > daivaṁ vo yatra bhūta-rāṭ
 
 *tat*—ese; *brahma*—*Veda*; *paramam*—supremo; *śuddham*—puro; *satām*—de las personas santas; *vartma*—sendero; *sanātanam*—eterno; *vigarhya*—blasfemar; *yāta*—debes ir; *pāṣaṇḍam*—al ateísmo; *daivam*—deidad; *vaḥ*—su; *yatra*—donde; *bhūta-rāṭ*—el señor de los *bhūtas.*.

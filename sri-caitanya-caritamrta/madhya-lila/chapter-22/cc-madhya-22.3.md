@@ -1,9 +1,9 @@
 ### CC Madhya 22.3
 
-> এইত কহিলুঁ সম্বন্ধ-তত্ত্বের বিচার ।
+> এইত কহিলুঁ সম্বন্ধ-তত্ত্বের বিচার ।\
 > বেদশাস্ত্রে উপদেশে, কৃষ্ণ — এক সার ॥৩॥
 
-> eita kahiluṅ sambandha-tattvera vicāra
+> eita kahiluṅ sambandha-tattvera vicāra\
 > veda-śāstre upadeśe, kṛṣṇa—eka sāra
 
 *eita*—thus; *kahiluṅ*—I have described; *sambandha-tattvera vicāra*—consideration of one's relationship with Kṛṣṇa; *veda-śāstre*—all Vedic literature; *upadeśe*—instructs; *kṛṣṇa*—Lord Kṛṣṇa; *eka sāra*—the only essential point.

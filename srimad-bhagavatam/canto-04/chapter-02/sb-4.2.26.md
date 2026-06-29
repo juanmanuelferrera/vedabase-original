@@ -1,11 +1,11 @@
 ### SB 4.2.26
 
-> सर्वभक्षा द्विजा वृत्त्यै धृतविद्यातपोव्रताः ।
+> सर्वभक्षा द्विजा वृत्त्यै धृतविद्यातपोव्रताः ।\
 > वित्तदेहेन्द्रियारामा याचका विचरन्त्विह ॥२६॥
 
-> sarva-bhakṣā dvijā vṛttyai
-> dhṛta-vidyā-tapo-vratāḥ
-> vitta-dehendriyārāmā
+> sarva-bhakṣā dvijā vṛttyai\
+> dhṛta-vidyā-tapo-vratāḥ\
+> vitta-dehendriyārāmā\
 > yācakā vicarantv iha
 
 *sarva-bhakṣāḥ*—eating everything; *dvijāḥ*—the *brāhmaṇas*; *vṛttyai*—for maintaining the body; *dhṛta-vidyā*—having taken to education; *tapaḥ*—austerity; *vratāḥ*—and vows; *vitta*—money; *deha*—the body; *indriya*—the senses; *ārāmāḥ*—the satisfaction; *yācakāḥ*—as beggars; *vicarantu*—let them wander; *iha*—here.

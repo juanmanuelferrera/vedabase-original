@@ -1,14 +1,14 @@
 ### CC Madhya 4.3-4
 
-> নীলাদ্রিগমন, জগন্নাথ-দরশন ।
-> সার্বভৌম ভট্টাচার্য-প্ৰভুর মিলন ॥৩॥
-> এসব লীলা প্ৰভুর দাস বৃন্দাবন ।
+> নীলাদ্রিগমন, জগন্নাথ-দরশন ।\
+> সার্বভৌম ভট্টাচার্য-প্ৰভুর মিলন ॥৩॥\
+> এসব লীলা প্ৰভুর দাস বৃন্দাবন ।\
 > বিস্তারি’ করিয়াছেন উত্তম বর্ণন ॥৪॥
 
-> nīlādri-gamana, jagannātha-daraśana
+> nīlādri-gamana, jagannātha-daraśana\
 > sārvabhauma bhaṭṭācārya-prabhura milana
 
-> e saba līlā prabhura dāsa vṛndāvana
+> e saba līlā prabhura dāsa vṛndāvana\
 > vistāri' kariyāchena uttama varṇana
 
 *nīlādri-gamana*—going to Jagannātha Purī; *jagannātha-daraśana*—visiting the temple of Lord Jagannātha; *sārvabhauma bhaṭṭācārya*—with Sārvabhauma Bhaṭṭācārya; *prabhura*—of the Lord; *milana*—meeting; *e saba*—all these; *līlā*—pastimes; *prabhura*—of the Lord; *dāsa vṛndāvana*—Vṛndāvana dāsa Ṭhākura; *vistāri'*—elaborating; *kariyāchena*—has done; *uttama*—very nice; *varṇana*—description.

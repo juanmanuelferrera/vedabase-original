@@ -1,11 +1,11 @@
 ### SB 3.11.33
 
-> एवंविधैरहोरात्रैः कालगत्योपलक्षितैः ।
+> एवंविधैरहोरात्रैः कालगत्योपलक्षितैः ।\
 > अपक्षितमिवास्यापि परमायुर्वयःशतम् ॥३३॥
 
-> evaṁ-vidhair aho-rātraiḥ
-> kāla-gatyopalakṣitaiḥ
-> apakṣitam ivāsyāpi
+> evaṁ-vidhair aho-rātraiḥ\
+> kāla-gatyopalakṣitaiḥ\
+> apakṣitam ivāsyāpi\
 > paramāyur vayaḥ-śatam
 
 *evam*—thus; *vidhaiḥ*—by the process of; *ahaḥ*—days; *rātraiḥ*—by nights; *kāla-gatyā*—advancement of time; *upalakṣitaiḥ*—by such symptoms; *apakṣitam*—declined; *iva*—just like; *asya*—his; *api*—although; *parama-āyuḥ*—duration of life; *vayaḥ*—years; *śatam*—one hundred.

@@ -1,11 +1,11 @@
 ### SB 3.22.9
 
-> प्रियव्रतोत्तानपदोः स्वसेयं दुहिता मम ।
+> प्रियव्रतोत्तानपदोः स्वसेयं दुहिता मम ।\
 > अन्विच्छति पतिं युक्तं वयःशीलगुणादिभिः ॥९॥
 
-> priyavratottānapadoḥ
-> svaseyaṁ duhitā mama
-> anvicchati patiṁ yuktaṁ
+> priyavratottānapadoḥ\
+> svaseyaṁ duhitā mama\
+> anvicchati patiṁ yuktaṁ\
 > vayaḥ-śīla-guṇādibhiḥ
 
 *priyavrata-uttānapadoḥ*—of Priyavrata and Uttānapāda; *svasā*—sister; *iyam*—this; *duhitā*—daughter; *mama*—my; *anvicchati*—is seeking; *patim*—husband; *yuktam*—suited; *vayaḥ-śīla-guṇa-ādibhiḥ*—by age, character, good qualities, etc.

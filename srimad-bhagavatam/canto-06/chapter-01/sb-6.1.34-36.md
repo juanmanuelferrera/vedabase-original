@@ -1,25 +1,25 @@
 ### SB 6.1.34-36
 
-> सर्वे पद्मपलाशाक्षाः पीतकौशेयवाससः
-> किरीटिनः कुण्डलिनो लसत्पुष्करमालिनः ॥३४॥
-> सर्वे च नूत्नवयसः सर्वे चारुचतुर्भुजाः
-> धनुर्निषङ्गासिगदा शङ्खचक्राम्बुजश्रियः ॥३५॥
-> दिशो वितिमिरालोकाः कुर्वन्तः स्वेन तेजसा
+> सर्वे पद्मपलाशाक्षाः पीतकौशेयवाससः\
+> किरीटिनः कुण्डलिनो लसत्पुष्करमालिनः ॥३४॥\
+> सर्वे च नूत्नवयसः सर्वे चारुचतुर्भुजाः\
+> धनुर्निषङ्गासिगदा शङ्खचक्राम्बुजश्रियः ॥३५॥\
+> दिशो वितिमिरालोकाः कुर्वन्तः स्वेन तेजसा\
 > किमर्थं धर्मपालस्य किङ्करान्नो निषेधथ ॥३६॥
 
-> sarve padma-palāśākṣāḥ
-> pīta-kauśeya-vāsasaḥ
-> kirīṭinaḥ kuṇḍalino
+> sarve padma-palāśākṣāḥ\
+> pīta-kauśeya-vāsasaḥ\
+> kirīṭinaḥ kuṇḍalino\
 > lasat-puṣkara-mālinaḥ
 
-> sarve ca nūtna-vayasaḥ
-> sarve cāru-caturbhujāḥ
-> dhanur-niṣaṅgāsi-gadā-
+> sarve ca nūtna-vayasaḥ\
+> sarve cāru-caturbhujāḥ\
+> dhanur-niṣaṅgāsi-gadā-\
 > śaṅkha-cakrāmbuja-śriyaḥ
 
-> diśo vitimirālokāḥ
-> kurvantaḥ svena tejasā
-> kim arthaṁ dharma-pālasya
+> diśo vitimirālokāḥ\
+> kurvantaḥ svena tejasā\
+> kim arthaṁ dharma-pālasya\
 > kiṅkarān no niṣedhatha
 
 *sarve*—all of you; *padma-palāśa-akṣāḥ*—with eyes like the petals of a lotus flower; *pīta*—yellow; *kauśeya*—silk; *vāsasaḥ*—wearing garments; *kirīṭinaḥ*—with helmets; *kuṇḍalinaḥ*—with earrings; *lasat*—glittering; *puṣkara-mālinaḥ*—with a garland of lotus flowers; *sarve*—all of you; *ca*—also; *nūtna-vayasaḥ*—very youthful; *sarve*—all of you; *cāru*—very beautiful; *catuḥ-bhujāḥ*—with four arms; *dhanuḥ*—bow; *niṣaṅga*—quiver of arrows; *asi*—sword; *gadā*—club; *śaṅkha*—conchshell; *cakra*—disc; *ambuja*—lotus flower; *śriyaḥ*—decorated with; *diśaḥ*—all directions; *vitimira*—without darkness; *ālokāḥ*—extraordinary illumination; *kurvantaḥ*—exhibiting; *svena*—by your own; *tejasā*—effulgence; *kim artham*—what is the purpose; *dharma-pālasya*—of Yamarāja, the maintainer of religious principles; *kiṅkarān*—servants; *naḥ*—us; *niṣedhatha*—you are forbidding.

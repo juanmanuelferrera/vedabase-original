@@ -1,11 +1,11 @@
 ### SB 1.18.41
 
-> निशम्य शप्तमतदर्हं नरेन्द्रं स ब्राह्मणो नात्मजमभ्यनन्दत् ।
+> निशम्य शप्तमतदर्हं नरेन्द्रं स ब्राह्मणो नात्मजमभ्यनन्दत् ।\
 > अहो बतांहो महदद्य ते कृतमल्पीयसि द्रोह उरुर्दमो धृतः ॥४१॥
 
-> niśamya śaptam atad-arhaṁ narendraṁ
-> sa brāhmaṇo nātmajam abhyanandat
-> aho batāṁho mahad adya te kṛtam
+> niśamya śaptam atad-arhaṁ narendraṁ\
+> sa brāhmaṇo nātmajam abhyanandat\
+> aho batāṁho mahad adya te kṛtam\
 > alpīyasi droha urur damo dhṛtaḥ
 
 *niśamya*—después de oír; *śaptam*—maldecido; *atat-arham*—nunca debía ser condenado; *nara-indram*—al rey, el mejor de los hombres; *saḥ*—eso; *brāhmaṇaḥ*—*brāhmaṇa ṛṣi*; *na*—no; *ātma-jam*—su propio hijo; *abhyanandat*—congratuló; *aho*—¡ay de mí!; *bata*—doloroso; *aṁhaḥ*—pecados; *mahat*—grandes; *adya*—hoy; *te*—tú mismo; *kṛtam*—realizado; *alpīyasi*—insignificante; *drohe*—ofensa; *uruḥ*—muy grande; *damaḥ*—castigo; *dhṛtaḥ*—impuesto.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.61
 
-> মুকুন্দ, হরিদাস — দুই প্রভু বোলাইল ।
+> মুকুন্দ, হরিদাস — দুই প্রভু বোলাইল ।\
 > যোড়হাতে দুইজন কহিতে লাগিল ॥৬১॥
 
-> mukunda, haridāsa,—dui prabhu bolāila
+> mukunda, haridāsa,—dui prabhu bolāila\
 > yoḍa-hāte dui-jana kahite lāgila
 
 *mukunda*—Mukunda; *haridāsa*—Haridāsa; *dui prabhu*—the two Lords; *bolāila*—called for; *yoḍa-hāte*—with folded hands; *dui-jana*—two persons; *kahite lāgila*—began to say.

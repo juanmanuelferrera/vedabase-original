@@ -1,13 +1,13 @@
 ### CC Antya 17.38
 
-> বেণুনাদ অমৃত-ঘোলে, অমৃত-সমান মিঠা বোলে,
-> অমৃত-সমান ভূষণ-শিঞ্জিত ।
-> তিন অমৃতে হরে কাণ, হরে মন, হরে প্রাণ,
+> বেণুনাদ অমৃত-ঘোলে, অমৃত-সমান মিঠা বোলে,\
+> অমৃত-সমান ভূষণ-শিঞ্জিত ।\
+> তিন অমৃতে হরে কাণ, হরে মন, হরে প্রাণ,\
 > কেমনে নারী ধরিবেক চিত ?” ॥ ৩৮ ॥
 
-> veṇu-nāda amṛta-ghole, amṛta-samāna miṭhā bole,
-> amṛta-samāna bhūṣaṇa-śiñjita
-> tina amṛte hare kāṇa, hare mana, hare prāṇa,
+> veṇu-nāda amṛta-ghole, amṛta-samāna miṭhā bole,\
+> amṛta-samāna bhūṣaṇa-śiñjita\
+> tina amṛte hare kāṇa, hare mana, hare prāṇa,\
 > kemane nārī dharibeka cita?"
 
 *veṇu-nāda*—la vibración de la flauta; *amṛta-ghole*—como suero de leche nectáreo; *amṛta-samāna*—igual al néctar; *miṭhā bole*—hablar dulcemente; *amṛta-samāna*—exactamente como néctar; *bhūṣaṇa-śiñjita*—la vibración de los ornamentos; *tina*—tres; *amṛte*—néctares; *hare*—atraen; *kāṇa*—el oído; *hare*—atraen; *mana*—la mente; *hare*—atraen; *prāṇa*—la vida; *kemane*—cómo; *nārī*—las mujeres; *dharibeka*—mantendrán; *cita*—la paciencia o la conciencia.

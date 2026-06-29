@@ -1,9 +1,9 @@
 ### CC Madhya 6.177
 
-> বিতণ্ডা, ছল, নিগ্রহাদি অনেক উঠাইল ।
+> বিতণ্ডা, ছল, নিগ্রহাদি অনেক উঠাইল ।\
 > সব খণ্ডি’ প্রভু নিজ-মত সে স্থাপিল ॥১৭৭॥
 
-> vitaṇḍā, chala, nigrahādi aneka uṭhāila
+> vitaṇḍā, chala, nigrahādi aneka uṭhāila\
 > saba khaṇḍi' prabhu nija-mata se sthāpila
 
 *vitaṇḍā*—counterarguments; *chala*—imaginary interpretations; *nigraha-ādi*—repulses to the opposite party; *aneka*—various; *uṭhāila*—raised; *saba*—all; *khaṇḍi'*—refuting; *prabhu*—Śrī Caitanya Mahāprabhu; *nija-mata*—His own conviction; *se*—that; *sthāpila*—established.

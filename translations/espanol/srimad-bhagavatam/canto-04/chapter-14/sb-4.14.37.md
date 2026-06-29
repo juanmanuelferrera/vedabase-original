@@ -1,11 +1,11 @@
 ### SB 4.14.37
 
-> वीक्ष्योत्थितांस्तदोत्पातानाहुर्लोकभयङ्करान् ।
+> वीक्ष्योत्थितांस्तदोत्पातानाहुर्लोकभयङ्करान् ।\
 > अप्यभद्रमनाथाया दस्युभ्यो न भवेद्भुवः ॥३७॥
 
-> vīkṣyotthitāṁs tadotpātān
-> āhur loka-bhayaṅkarān
-> apy abhadram anāthāyā
+> vīkṣyotthitāṁs tadotpātān\
+> āhur loka-bhayaṅkarān\
+> apy abhadram anāthāyā\
 > dasyubhyo na bhaved bhuvaḥ
 
 *vīkṣya*—habiendo visto; *utthitān*—producidas; *tadā*—entonces; *utpātān*—situaciones de agitación; *āhuḥ*—comenzaron a decir; *loka*—en la sociedad; *bhayam-karān*—causando pánico; *api*—si; *abhadram*—desgracia; *anāthāyāḥ*—sin gobernante; *dasyubhyaḥ*—de ladrones y maleantes; *na*—no; *bhavet*—puede ocurrir; *bhuvaḥ*—del mundo.

@@ -1,11 +1,11 @@
 ### CC Madhya 14.192
 
-> বিন্যাস-ভঙ্গিরঙ্গানাং ভ্রূবিলাস-মনোহরা ।
+> বিন্যাস-ভঙ্গিরঙ্গানাং ভ্রূবিলাস-মনোহরা ।\
 > সুকুমারা ভবেদ্যত্র ললিতং তদুদাহৃতম্ ॥১৯২॥
 
-> vinyāsa-bhaṅgir aṅgānāṁ
-> bhrū-vilāsa-manoharā
-> sukumārā bhaved yatra
+> vinyāsa-bhaṅgir aṅgānāṁ\
+> bhrū-vilāsa-manoharā\
+> sukumārā bhaved yatra\
 > lalitaṁ tad udāhṛtam
 
 *vinyāsa*—in arrangement; *bhaṅgiḥ*—curvature; *aṅgānām*—of bodily limbs; *bhrū-vilāsa*—due to the pastimes of the eyebrows; *manoharā*—very beautiful; *su-kumārā*—delicate; *bhavet*—may be; *yatra*—where; *lalitam*—lalita; *tat*—that; *udāhṛtam*—called.

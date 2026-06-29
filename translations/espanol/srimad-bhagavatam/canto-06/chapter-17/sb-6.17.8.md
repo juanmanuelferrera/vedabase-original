@@ -1,11 +1,11 @@
 ### SB 6.17.8
 
-> प्रायशः प्राकृताश्चापि स्त्रियं रहसि बिभ्रति
+> प्रायशः प्राकृताश्चापि स्त्रियं रहसि बिभ्रति\
 > अयं महाव्रतधरो बिभर्ति सदसि स्त्रियम ॥८॥
 
-> prāyaśaḥ prākṛtāś cāpi
-> striyaṁ rahasi bibhrati
-> ayaṁ mahā-vrata-dharo
+> prāyaśaḥ prākṛtāś cāpi\
+> striyaṁ rahasi bibhrati\
+> ayaṁ mahā-vrata-dharo\
 > bibharti sadasi striyam
 
 *prāyaśaḥ*—por lo general; *prākṛtāḥ*—almas condicionadas; *ca*—también; *api*—aunque; *striyam*—a una mujer; *rahasi*—en un lugar solitario; *bibhrati*—abraza; *ayam*—este (el Señor Śiva); *mahā-vrata-dharaḥ*—el que cumple grandes votos y austeridades; *bibharti*—disfruta; *sadasi*—en una asamblea de grandes personas santas; *striyam*—de su esposa.

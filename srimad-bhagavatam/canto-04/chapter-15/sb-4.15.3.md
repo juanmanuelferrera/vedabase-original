@@ -1,13 +1,13 @@
 ### SB 4.15.3
 
-> ऋषय ऊचुः
-> एष विष्णोर्भगवतः कला भुवनपालिनी ।
+> ऋषय ऊचुः\
+> एष विष्णोर्भगवतः कला भुवनपालिनी ।\
 > इयं च लक्ष्म्याः सम्भूतिः पुरुषस्यानपायिनी ॥३॥
 
-> ṛṣaya ūcuḥ
-> eṣa viṣṇor bhagavataḥ
-> kalā bhuvana-pālinī
-> iyaṁ ca lakṣmyāḥ sambhūtiḥ
+> ṛṣaya ūcuḥ\
+> eṣa viṣṇor bhagavataḥ\
+> kalā bhuvana-pālinī\
+> iyaṁ ca lakṣmyāḥ sambhūtiḥ\
 > puruṣasyānapāyinī
 
 *ṛṣayaḥ ūcuḥ*—the sages said; *eṣaḥ*—this male; *viṣṇoḥ*—of Lord Viṣṇu; *bhagavataḥ*—of the Supreme Personality of Godhead; *kalā*—expansion; *bhuvana-pālinī*—who maintains the world; *iyam*—this female; *ca*—also; *lakṣmyāḥ*—of the goddess of fortune; *sambhūtiḥ*—expansion; *puruṣasya*—of the Lord; *anapāyinī*—inseparable.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.383
 
-> এইমত সব লীলা — যেন গঙ্গাধার ।
+> এইমত সব লীলা — যেন গঙ্গাধার ।\
 > সে-সে লীলা প্রকট করে ব্রজেন্দ্রকুমার ॥৩৮৩॥
 
-> ei-mata saba līlā--yena gaṅgā-dhāra
+> ei-mata saba līlā--yena gaṅgā-dhāra\
 > se-se līlā prakaṭa kare vrajendra-kumāra
 
 *ei-mata*—de esta manera; *saba līlā*—todos los pasatiempos; *yena*—como; *gaṅgā-dhāra*—el fluir del agua del Ganges; *se-se*—esos; *līlā*—pasatiempos; *prakaṭa kare*—demuestra; *vrajendra-kumāra*—el hijo de Mahārāja Nanda.

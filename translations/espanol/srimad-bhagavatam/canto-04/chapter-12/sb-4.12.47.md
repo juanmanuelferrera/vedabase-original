@@ -1,11 +1,11 @@
 ### SB 4.12.47
 
-> महत्त्वमिच्छतां तीर्थं श्रोतुः शीलादयो गुणाः ।
+> महत्त्वमिच्छतां तीर्थं श्रोतुः शीलादयो गुणाः ।\
 > यत्र तेजस्तदिच्छूनां मानो यत्र मनस्विनाम् ॥४७॥
 
-> mahattvam icchatāṁ tīrthaṁ
-> śrotuḥ śīlādayo guṇāḥ
-> yatra tejas tad icchūnāṁ
+> mahattvam icchatāṁ tīrthaṁ\
+> śrotuḥ śīlādayo guṇāḥ\
+> yatra tejas tad icchūnāṁ\
 > māno yatra manasvinām
 
 *mahattvam*—grandeza; *icchatām*—para los que desean; *tīrtham*—el proceso; *śrotuḥ*—del que escucha; *śīla-ādayaḥ*—carácter noble, etc.; *guṇāḥ*—cualidades; *yatra*—en la cual; *tejaḥ*—valor; *tat*—esa; *icchūnām*—para los que desean; *mānaḥ*—adoración; *yatra*—en la cual; *manasvinām*—para hombres reflexivos.

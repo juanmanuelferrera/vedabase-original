@@ -1,9 +1,9 @@
 ### CC Madhya 16.284
 
-> শুনি’ সব ভক্ত কহে প্রভুর চরণে ।
+> শুনি’ সব ভক্ত কহে প্রভুর চরণে ।\
 > সবাকার ইচ্ছা পণ্ডিত কৈল নিবেদনে ॥২৮৪॥
 
-> śuni' saba bhakta kahe prabhura caraṇe
+> śuni' saba bhakta kahe prabhura caraṇe\
 > sabākāra icchā paṇḍita kaila nivedane
 
 *śuni'*—oyendo; *saba*—todos; *bhakta*—devotos; *kahe*—dijeron; *prabhura caraṇe*—a los pies de loto del Señor; *sabākāra icchā*—el deseo de todos; *paṇḍita*—Gadādhara Paṇḍita; *kaila*—ha hecho; *nivedane*—su exposición.

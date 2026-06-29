@@ -1,11 +1,11 @@
 ### SB 1.18.20
 
-> एतावतालं ननु सूचितेन गुणैरसाम्यानतिशायनस्य ।
+> एतावतालं ननु सूचितेन गुणैरसाम्यानतिशायनस्य ।\
 > हित्वेतरान्प्रार्थयतो विभूतिर्यस्याङ्घ्रिरेणुं जुषतेऽनभीप्सोः ॥२०॥
 
-> etāvatālaṁ nanu sūcitena
-> guṇair asāmyānatiśāyanasya
-> hitvetarān prārthayato vibhūtir
+> etāvatālaṁ nanu sūcitena\
+> guṇair asāmyānatiśāyanasya\
+> hitvetarān prārthayato vibhūtir\
 > yasyāṅghri-reṇuṁ juṣate 'nabhīpsoḥ
 
 *etāvatā*—hasta ahora; *alam*—innecesario; *nanu*—si acaso; *sūcitena*—mediante la descripción; *guṇaiḥ*—por los atributos; *asāmya*—inconmensurable; *anati-śāyanasya*—aquel que es insuperable; *hitvā*—dejando a un lado; *itarān*—otros; *prārthayataḥ*—de aquellos que piden; *vibhūtiḥ*—favor de la diosa de la fortuna; *yasya*—aquel cuyos; *aṅghri*—pies; *reṇum*—polvo; *juṣate*—sirve; *anabhīpsoḥ*—de aquel que no está deseoso.

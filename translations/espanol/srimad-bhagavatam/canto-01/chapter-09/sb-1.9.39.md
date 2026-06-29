@@ -1,11 +1,11 @@
 ### SB 1.9.39
 
-> विजयरथकुटुम्ब आत्ततोत्रे धृतहयरश्मिनि तच्छ्रियेक्षणीये ।
+> विजयरथकुटुम्ब आत्ततोत्रे धृतहयरश्मिनि तच्छ्रियेक्षणीये ।\
 > भगवति रतिरस्तु मे मुमूर्षोर्यमिह निरीक्ष्य हता गताः स्वरूपम् ॥३९॥
 
-> vijaya-ratha-kuṭumba ātta-totre
-> dhṛta-haya-raśmini tac-chriyekṣaṇīye
-> bhagavati ratir astu me mumūrṣor
+> vijaya-ratha-kuṭumba ātta-totre\
+> dhṛta-haya-raśmini tac-chriyekṣaṇīye\
+> bhagavati ratir astu me mumūrṣor\
 > yam iha nirīkṣya hatā gatāḥ sva-rūpam
 
 *vijaya*—Arjuna; *ratha*—cuadriga; *kuṭumbe*—el objeto de protección contra todo riesgo; *ātta-totre*—con un látigo en la mano derecha; *dhṛta-haya*—controlando los caballos; *raśmini*—sogas; *tat-śriyā*—parado hermosamente; *īkṣaṇīye*—mirar a; *bhagavati*—a la Personalidad de Dios; *ratiḥ astu*—que mi atracción sea; *me*—mi; *mumūrṣoḥ*—aquel que está a punto de morir; *yam*—sobre quien; *iha*—en este mundo; *nirīkṣya*—con mirar; *hatāḥ*—aquellos que murieron; *gatāḥ*—obtuvieron; *sva-rūpam*—forma original.

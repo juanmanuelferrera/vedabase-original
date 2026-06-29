@@ -1,11 +1,11 @@
 ### CC Adi 9.46
 
-> অহো এষাং বরং জন্ম সর্বপ্রাণ্যুপজীবিনাম্ ।
+> অহো এষাং বরং জন্ম সর্বপ্রাণ্যুপজীবিনাম্ ।\
 > সুজনস্যেব যেষাং বৈ বিমুখা যান্তি নার্থিনঃ ॥৪৬॥
 
-> aho eṣāṁ varaṁ janma
-> sarva-prāṇy-upajīvinām
-> su-janasyeva yeṣāṁ vai
+> aho eṣāṁ varaṁ janma\
+> sarva-prāṇy-upajīvinām\
+> su-janasyeva yeṣāṁ vai\
 > vimukhā yānti nārthinaḥ
 
 *aho*—oh, just see; *eṣām*—of these trees; *varam*—superior; *janma*—birth; *sarva*—all; *prāṇi*—living entities; *upajīvinām*—one who provides maintenance; *su-janasya iva*—like the great personalities; *yeṣām*—from whose; *vai*—certainly; *vimukhāḥ*—disappointed; *yānti*—goes away; *na*—never; *arthinaḥ*—one who is asking for something.

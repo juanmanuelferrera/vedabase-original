@@ -1,9 +1,9 @@
 ### CC Adi 11.7
 
-> অসংখ্য অনন্ত গণ কে করু গণন ।
+> অসংখ্য অনন্ত গণ কে করু গণন ।\
 > আপনা শোধিতে কহি মুখ্য মুখ্য জন ॥৭॥
 
-> asaṅkhya ananta gaṇa ke karu gaṇana
+> asaṅkhya ananta gaṇa ke karu gaṇana\
 > āpanā śodhite kahi mukhya mukhya jana
 
 *asaṅkhya*—innumerables; *ananta*—ilimitados; *gaṇa*—devotos; *ke*—quién; *karu*—puede; *gaṇana*—contar; *āpanā*—el yo; *śodhite*—para purificar; *kahi*—menciono; *mukhya mukhya*—solo a los principales; *jana*—personas.

@@ -1,11 +1,11 @@
 ### SB 6.19.11
 
-> युवां तु विश्वस्य विभू जगतः कारणं परम
+> युवां तु विश्वस्य विभू जगतः कारणं परम\
 > इयं हि प्रकृतिः सूक्ष्मा मायाशक्तिर्दुरत्यया ॥११॥
 
-> yuvāṁ tu viśvasya vibhū
-> jagataḥ kāraṇaṁ param
-> iyaṁ hi prakṛtiḥ sūkṣmā
+> yuvāṁ tu viśvasya vibhū\
+> jagataḥ kāraṇaṁ param\
+> iyaṁ hi prakṛtiḥ sūkṣmā\
 > māyā-śaktir duratyayā
 
 *yuvām*—ustedes dos; *tu*—en verdad; *viśvasya*—del universo; *vibhū*—los propietarios; *jagataḥ*—del universo; *kāraṇam*—la causa; *param*—suprema; *iyam*—esta; *hi*—ciertamente; *prakṛtiḥ*—energía; *sūkṣmā*—difícil de entender; *māyā-śaktiḥ*—la energía interna; *duratyayā*—difícil de superar.

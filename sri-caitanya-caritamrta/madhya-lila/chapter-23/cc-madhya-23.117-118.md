@@ -1,14 +1,14 @@
 ### CC Madhya 23.117-118
 
-> মৌষল-লীলা, আর কৃষ্ণ-অন্তর্ধান ।
-> কেশাবতার, আর যত বিরুদ্ধ ব্যাখ্যান ॥১১৭॥
-> মহিষী-হরণ আদি, সব — মায়াময় ।
+> মৌষল-লীলা, আর কৃষ্ণ-অন্তর্ধান ।\
+> কেশাবতার, আর যত বিরুদ্ধ ব্যাখ্যান ॥১১৭॥\
+> মহিষী-হরণ আদি, সব — মায়াময় ।\
 > ব্যাখ্যা শিখাইল যৈছে সুসিদ্ধান্ত হয় ॥১১৮॥
 
-> mauṣala-līlā, āra kṛṣṇa-antardhāna
+> mauṣala-līlā, āra kṛṣṇa-antardhāna\
 > keśāvatāra, āra yata viruddha vyākhyāna
 
-> mahiṣī-haraṇa ādi, saba—māyāmaya
+> mahiṣī-haraṇa ādi, saba—māyāmaya\
 > vyākhyā śikhāila yaiche susiddhānta haya
 
 *mauṣala-līlā*—the pastimes of destroying the Yadu dynasty; *āra*—also; *kṛṣṇa-antardhāna*—the disappearance of Kṛṣṇa; *keśa-avatāra*—the incarnation of the hairs; *āra*—also; *yata*—all; *viruddhavyākhyāna*—statements against the Kṛṣṇa conscious conclusions; *mahiṣī-haraṇa*—kidnapping of the queens; *ādi*—and so on; *saba*—all; *māyā-maya*—made of the external energy; *vyākhyā*—explanations (countering the attack of the *asuras*); *śikhāila*—instructed; *yaiche*—which; *su-siddhānta*—proper conclusions; *haya*—are.

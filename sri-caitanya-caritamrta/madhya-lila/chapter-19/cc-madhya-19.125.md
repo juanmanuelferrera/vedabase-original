@@ -1,9 +1,9 @@
 ### CC Madhya 19.125
 
-> “কহ, — তাহাঁ কৈছে রহে রূপ-সনাতন ?
+> “কহ, — তাহাঁ কৈছে রহে রূপ-সনাতন ?\
 > কৈছে রহে, কৈছে বৈরাগ্য, কৈছে ভোজন ? ॥ ১২৫ ॥
 
-> "kaha,—tāhāṅ kaiche rahe rūpa-sanātana?
+> "kaha,—tāhāṅ kaiche rahe rūpa-sanātana?\
 > kaiche rahe, kaiche vairāgya, kaiche bhojana?
 
 *kaha*—please describe; *tāhāṅ*—there; *kaiche*—how; *rahe*—remain; *rūpa*—Rūpa Gosvāmī; *sanātana*—Sanātana Gosvāmī; *kaiche rahe*—how do they live; *kaiche vairāgya*—how do they practice renunciation; *kaiche bhojana*—how do they eat.

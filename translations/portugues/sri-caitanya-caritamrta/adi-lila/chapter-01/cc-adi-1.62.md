@@ -1,8 +1,8 @@
 ### CC Adi 1.62
 
-> sādhavo hṛdayaṁ mahyaṁ
-> sādhūnāṁ hṛdayaṁ tv aham
-> mad-anyat te na jānanti
+> sādhavo hṛdayaṁ mahyaṁ\
+> sādhūnāṁ hṛdayaṁ tv aham\
+> mad-anyat te na jānanti\
 > nāhaṁ tebhyo manāg api
 
 *sādhavaḥ*—os santos; *hṛdayam*—coração; *mahyam*—Meu; *sādhūnām*—dos santos; *hṛdayam*—o coração; *tu*—de fato; *aham*—Eu; *mat*—do que Eu; *anyat*—outro; *te*—eles; *na*—não; *jānanti*—conhecem; *na*—nem; *aham*—Eu; *tebhyaḥ*—do que eles; *manāk*—ligeiramente; *api*—mesmo.

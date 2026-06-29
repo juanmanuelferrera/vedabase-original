@@ -1,11 +1,11 @@
 ### SB 4.14.18
 
-> यस्य राष्ट्रे पुरे चैव भगवान्यज्ञपूरुषः ।
+> यस्य राष्ट्रे पुरे चैव भगवान्यज्ञपूरुषः ।\
 > इज्यते स्वेन धर्मेण जनैर्वर्णाश्रमान्वितैः ॥१८॥
 
-> yasya rāṣṭre pure caiva
-> bhagavān yajña-pūruṣaḥ
-> ijyate svena dharmeṇa
+> yasya rāṣṭre pure caiva\
+> bhagavān yajña-pūruṣaḥ\
+> ijyate svena dharmeṇa\
 > janair varṇāśramānvitaiḥ
 
 *yasya*—whose; *rāṣṭre*—in the state or kingdom; *pure*—in the cities; *ca*—also; *eva*—certainly; *bhagavān*—the Supreme Personality of Godhead; *yajña-pūruṣaḥ*—who is the enjoyer of all sacrifices; *ijyate*—is worshiped; *svena*—their own; *dharmeṇa*—by occupation; *janaiḥ*—by the people; *varṇa-āśrama*—the system of eight social orders; *anvitaiḥ*—who follow.

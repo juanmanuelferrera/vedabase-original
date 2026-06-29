@@ -1,11 +1,11 @@
 ### SB 4.19.19
 
-> उपसृज्य तमस्तीव्रं जहाराश्वं पुनर्हरिः ।
+> उपसृज्य तमस्तीव्रं जहाराश्वं पुनर्हरिः ।\
 > चषालयूपतश्छन्नो हिरण्यरशनं विभुः ॥१९॥
 
-> upasṛjya tamas tīvraṁ
-> jahārāśvaṁ punar hariḥ
-> caṣāla-yūpataś channo
+> upasṛjya tamas tīvraṁ\
+> jahārāśvaṁ punar hariḥ\
+> caṣāla-yūpataś channo\
 > hiraṇya-raśanaṁ vibhuḥ
 
 *upasṛjya*—creating; *tamaḥ*—darkness; *tīvram*—dense; *jahāra*—took away; *aśvam*—the horse; *punaḥ*—again; *hariḥ*—King Indra; *caṣāla-yūpataḥ*—from the wooden instrument where the animals were sacrificed; *channaḥ*—being covered; *hiraṇya-raśanam*—tied with a gold chain; *vibhuḥ*—very powerful.

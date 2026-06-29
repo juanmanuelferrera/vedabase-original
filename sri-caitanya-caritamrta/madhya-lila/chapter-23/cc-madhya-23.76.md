@@ -1,11 +1,11 @@
 ### CC Madhya 23.76
 
-> বরীয়ানীশ্বরশ্চেতি গুণাস্তস্যানুকীর্তিতাঃ ।
+> বরীয়ানীশ্বরশ্চেতি গুণাস্তস্যানুকীর্তিতাঃ ।\
 > সমুদ্রা ইব পঞ্চাশদ্দুর্বিগাহা হরেরমী ॥৭৬॥
 
-> varīyān īśvaraś ceti
-> guṇās tasyānukīrtitāḥ
-> samudrā iva pañcāśad
+> varīyān īśvaraś ceti\
+> guṇās tasyānukīrtitāḥ\
+> samudrā iva pañcāśad\
 > durvigāhā harer amī
 
 *varīyān*—the best; *īśvaraḥ*—the supreme controller; *ca*—and; *iti*—thus; *guṇāḥ*—the transcendental qualities; *tasya*—of Him; *anukīrtitāḥ*—described; *samudrāḥ*—oceans; *iva*—like; *pañcāśat*—fifty; *durvigāhāḥ*—difficult to penetrate fully; *hareḥ*—of the Supreme Personality of Godhead; *amī*—all these.

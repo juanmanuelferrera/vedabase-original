@@ -1,11 +1,11 @@
 ### SB 6.9.51
 
-> मघवन्यात भद्रं वो दध्यञ्चमृषिसत्तमम
+> मघवन्यात भद्रं वो दध्यञ्चमृषिसत्तमम\
 > विद्याव्रततपःसारं गात्रं याचत मा चिरम ॥५१॥
 
-> maghavan yāta bhadraṁ vo
-> dadhyañcam ṛṣi-sattamam
-> vidyā-vrata-tapaḥ-sāraṁ
+> maghavan yāta bhadraṁ vo\
+> dadhyañcam ṛṣi-sattamam\
+> vidyā-vrata-tapaḥ-sāraṁ\
 > gātraṁ yācata mā ciram
 
 *maghavan*—O Indra; *yāta*—go; *bhadram*—good fortune; *vaḥ*—to all of you; *dadhyañcam*—to Dadhyañca; *ṛṣi-sat-tamam*—the most exalted saintly person; *vidyā*—of education; *vrata*—vow; *tapaḥ*—and austerities; *sāram*—the essence; *gātram*—his body; *yācata*—ask for; *mā ciram*—without delay.

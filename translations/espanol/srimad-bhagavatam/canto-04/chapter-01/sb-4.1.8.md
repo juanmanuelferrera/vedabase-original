@@ -1,11 +1,11 @@
 ### SB 4.1.8
 
-> तुषिता नाम ते देवा आसन्स्वायम्भुवान्तरे ।
+> तुषिता नाम ते देवा आसन्स्वायम्भुवान्तरे ।\
 > मरीचिमिश्रा ऋषयो यज्ञः सुरगणेश्वरः ॥८॥
 
-> tuṣitā nāma te devā
-> āsan svāyambhuvāntare
-> marīci-miśrā ṛṣayo
+> tuṣitā nāma te devā\
+> āsan svāyambhuvāntare\
+> marīci-miśrā ṛṣayo\
 > yajñaḥ sura-gaṇeśvaraḥ
 
 *tuṣitāḥ*—la categoría de los Tuṣitas; *nāma*—de nombre; *te*—todos ellos; *devāḥ*—semidioses; *āsan*—fueron; *svāyambhuva*—el nombre del *manu*; *antare*—en ese período; *marīci-miśrāḥ*—encabezados por Marīci; *ṛṣayaḥ*—grandes sabios; *yajñaḥ*—la encarnación del Señor Viṣṇu; *sura-gaṇa-īśvaraḥ*—el rey de los semidioses.

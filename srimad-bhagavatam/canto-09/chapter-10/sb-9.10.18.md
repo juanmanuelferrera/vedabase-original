@@ -1,13 +1,13 @@
 ### SB 9.10.18
 
-> रक्षःपतिस्तदवलोक्य निकुम्भकुम्भ
-> धूम्राक्षदुर्मुखसुरान्तकनरान्तकादीन
-> पुत्रं प्रहस्तमतिकायविकम्पनादीन
+> रक्षःपतिस्तदवलोक्य निकुम्भकुम्भ\
+> धूम्राक्षदुर्मुखसुरान्तकनरान्तकादीन\
+> पुत्रं प्रहस्तमतिकायविकम्पनादीन\
 > सर्वानुगान्समहिनोदथ कुम्भकर्णम ॥१८॥
 
-> rakṣaḥ-patis tad avalokya nikumbha-kumbha-
-> dhūmrākṣa-durmukha-surāntaka-narāntakādīn
-> putraṁ prahastam atikāya-vikampanādīn
+> rakṣaḥ-patis tad avalokya nikumbha-kumbha-\
+> dhūmrākṣa-durmukha-surāntaka-narāntakādīn\
+> putraṁ prahastam atikāya-vikampanādīn\
 > sarvānugān samahinod atha kumbhakarṇam
 
 *rakṣaḥ-patiḥ*—the master of the Rākṣasas (Rāvaṇa); *tat*—such disturbances; *avalokya*—after seeing; *nikumbha*—Nikumbha; *kumbha*—Kumbha; *dhūmrākṣa*—Dhūmrākṣa; *durmukha*—Durmukha; *surāntaka*—Surāntaka; *narāntaka*—Narāntaka; *ādīn*—all of them together; *putram*—his son, Indrajit; *prahastam*—Prahasta; *atikāya*—Atikāya; *vikampana*—Vikampana; *ādīn*—all of them together; *sarva-anugān*—all followers of Rāvaṇa; *samahinot*—ordered (to fight with the enemies); *atha*—at last; *kumbhakarṇam*—Kumbhakarṇa, the most important brother.

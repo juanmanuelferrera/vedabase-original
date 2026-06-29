@@ -1,11 +1,11 @@
 ### CC Madhya 19.186
 
-> হাস্যোঽদ্ভুতস্তথা বীরঃ করুণো রৌদ্র ইত্যপি ।
+> হাস্যোঽদ্ভুতস্তথা বীরঃ করুণো রৌদ্র ইত্যপি ।\
 > ভয়ানকঃ সবীভৎস ইতি গৌণশ্চ সপ্তধা ॥১৮৬॥
 
-> hāsyo 'dbhutas tathā vīraḥ
-> karuṇo raudra ity api
-> bhayānakaḥ sa bībhatsa
+> hāsyo 'dbhutas tathā vīraḥ\
+> karuṇo raudra ity api\
+> bhayānakaḥ sa bībhatsa\
 > iti gauṇaś ca saptadhā
 
 *hāsyaḥ*—risa; *adbhutaḥ*—asombro; *tathā*—luego; *vīraḥ*—heroísmo; *karuṇaḥ*—compasión; *raudraḥ*—ira; *iti*—así; *api*—también; *bhayānakaḥ*—temor; *saḥ*—ese; *bībhatsaḥ*—desastre; *iti*—así; *gauṇaḥ*—indirecto; *ca*—también; *sapta-dhā*—siete tipos.

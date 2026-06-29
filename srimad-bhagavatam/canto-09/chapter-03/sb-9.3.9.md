@@ -1,11 +1,11 @@
 ### SB 9.3.9
 
-> तदभिप्रायमाज्ञआय प्रादाद्दुहितरं मुनेः
+> तदभिप्रायमाज्ञआय प्रादाद्दुहितरं मुनेः\
 > कृच्छ्रान्मुक्तस्तमामन्त्र्य पुरं प्रायात्समाहितः ॥९॥
 
-> tad-abhiprāyam ājñāya
-> prādād duhitaraṁ muneḥ
-> kṛcchrān muktas tam āmantrya
+> tad-abhiprāyam ājñāya\
+> prādād duhitaraṁ muneḥ\
+> kṛcchrān muktas tam āmantrya\
 > puraṁ prāyāt samāhitaḥ
 
 *tat*—of Cyavana Muni; *abhiprāyam*—the purpose; *ājñāya*—understanding; *prādāt*—delivered; *duhitaram*—his daughter; *muneḥ*—unto Cyavana Muni; *kṛcchrāt*—with great difficulty; *muktaḥ*—released; *tam*—the *muni*; *āmantrya*—taking permission; *puram*—to his own place; *prāyāt*—went away; *samāhitaḥ*—being very contemplative.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.26
 
-> তাঁহার চরণে মোর কোটি নমস্কার ।
+> তাঁহার চরণে মোর কোটি নমস্কার ।\
 > চৈতন্যের ভক্তি যেঁহো লওয়াইল সংসার ॥২৬॥
 
-> tāṅhāra caraṇe mora koṭi namaskāra
+> tāṅhāra caraṇe mora koṭi namaskāra\
 > caitanyera bhakti yeṅho laoyāila saṁsāra
 
 *tāṅhāra caraṇe*—unto His lotus feet; *mora*—my; *koṭi*—unlimited; *namaskāra*—obeisances; *caitanyera*—of Lord Śrī Caitanya Mahāprabhu; *bhakti*—the devotional service; *yeṅho*—one who; *laoyāila*—caused to take; *saṁsāra*—the whole world.

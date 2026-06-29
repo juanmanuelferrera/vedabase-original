@@ -1,9 +1,9 @@
 ### CC Adi 5.202
 
-> যাঁহা হৈতে পাইনু রঘুনাথ-মহাশয় ।
+> যাঁহা হৈতে পাইনু রঘুনাথ-মহাশয় ।\
 > যাঁহা হৈতে পাইনু শ্রীস্বরূপ-আশ্রয় ॥২০২॥
 
-> yāṅhā haite pāinu raghunātha-mahāśaya
+> yāṅhā haite pāinu raghunātha-mahāśaya\
 > yāṅhā haite pāinu śrī-svarūpa-āśraya
 
 *yāṅhā haite*—de quien; *pāinu*—obtuve; *raghunātha-mahā-āśaya*—el refugio de Raghunātha dāsa Gosvāmī; *yāṅhā haite*—de quien; *pāinu*—obtuve; *śrī-svarūpa-āśraya*—refugio a los pies de Svarūpa Dāmodara Gosvāmī.

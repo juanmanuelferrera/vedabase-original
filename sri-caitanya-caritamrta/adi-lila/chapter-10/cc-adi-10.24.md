@@ -1,9 +1,9 @@
 ### CC Adi 10.24
 
-> রাঘব-পণ্ডিত — প্রভুর আদ্য-অনুচর ।
+> রাঘব-পণ্ডিত — প্রভুর আদ্য-অনুচর ।\
 > তাঁর এক শাখা মুখ্য, — মকরধ্বজ কর ॥২৪॥
 
-> rāghava-paṇḍita—prabhura ādya-anucara
+> rāghava-paṇḍita—prabhura ādya-anucara\
 > tāṅra eka śākhā mukhya—makaradhvaja kara
 
 *rāghava paṇḍita*—of the name Rāghava Paṇḍita; *prabhura*—of the Lord; *ādya*—original; *anucara*—follower; *tāṅra*—his; *eka*—one; *śākhā*—branch; *mukhya*—chief; *makaradhvaja*—of the name Makaradhvaja; *kara*—surname.

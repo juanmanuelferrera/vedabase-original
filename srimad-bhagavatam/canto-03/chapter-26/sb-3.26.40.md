@@ -1,11 +1,11 @@
 ### SB 3.26.40
 
-> द्योतनं पचनं पानमदनं हिममर्दनम् ।
+> द्योतनं पचनं पानमदनं हिममर्दनम् ।\
 > तेजसो वृत्तयस्त्वेताः शोषणं क्षुत्तृडेव च ॥४०॥
 
-> dyotanaṁ pacanaṁ pānam
-> adanaṁ hima-mardanam
-> tejaso vṛttayas tv etāḥ
+> dyotanaṁ pacanaṁ pānam\
+> adanaṁ hima-mardanam\
+> tejaso vṛttayas tv etāḥ\
 > śoṣaṇaṁ kṣut tṛḍ eva ca
 
 *dyotanam*—illumination; *pacanam*—cooking, digesting; *pānam*—drinking; *adanam*—eating; *hima-mardanam*—destroying cold; *tejasaḥ*—of fire; *vṛttayaḥ*—functions; *tu*—indeed; *etāḥ*—these; *śoṣaṇam*—evaporating; *kṣut*—hunger; *tṛṭ*—thirst; *eva*—also; *ca*—and.

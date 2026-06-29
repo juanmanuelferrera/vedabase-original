@@ -1,11 +1,11 @@
 ### SB 7.2.56
 
-> एवं कुलिङ्गं विलपन्तमारात्प्रियावियोगातुरमश्रुकण्ठम
+> एवं कुलिङ्गं विलपन्तमारात्प्रियावियोगातुरमश्रुकण्ठम\
 > स एव तं शाकुनिकः शरेण विव्याध कालप्रहितो विलीनः ॥५६॥
 
-> evaṁ kuliṅgaṁ vilapantam ārāt
-> priyā-viyogāturam aśru-kaṇṭham
-> sa eva taṁ śākunikaḥ śareṇa
+> evaṁ kuliṅgaṁ vilapantam ārāt\
+> priyā-viyogāturam aśru-kaṇṭham\
+> sa eva taṁ śākunikaḥ śareṇa\
 > vivyādha kāla-prahito vilīnaḥ
 
 *evam*—thus; *kuliṅgam*—the bird; *vilapantam*—while lamenting; *ārāt*—from a distance; *priyā-viyoga*—because of the loss of his wife; *āturam*—very aggrieved; *aśru-kaṇṭham*—with tears in the eyes; *saḥ*—he (that hunter); *eva*—indeed; *tam*—him (the male bird); *śākunikaḥ*—who could kill even a vulture; *śareṇa*—by an arrow; *vivyādha*—pierced; *kāla-prahitaḥ*—being moved by time; *vilīnaḥ*—hidden.

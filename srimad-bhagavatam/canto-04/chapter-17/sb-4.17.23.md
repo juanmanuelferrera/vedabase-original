@@ -1,11 +1,11 @@
 ### SB 4.17.23
 
-> यवसं जग्ध्यनुदिनं नैव दोग्ध्यौधसं पयः ।
+> यवसं जग्ध्यनुदिनं नैव दोग्ध्यौधसं पयः ।\
 > तस्यामेवं हि दुष्टायां दण्डो नात्र न शस्यते ॥२३॥
 
-> yavasaṁ jagdhy anudinaṁ
-> naiva dogdhy audhasaṁ payaḥ
-> tasyām evaṁ hi duṣṭāyāṁ
+> yavasaṁ jagdhy anudinaṁ\
+> naiva dogdhy audhasaṁ payaḥ\
+> tasyām evaṁ hi duṣṭāyāṁ\
 > daṇḍo nātra na śasyate
 
 *yavasam*—green grass; *jagdhi*—you eat; *anudinam*—daily; *na*—never; *eva*—certainly; *dogdhi*—you yield; *audhasam*—in the milk bag; *payaḥ*—milk; *tasyām*—when a cow; *evam*—thus; *hi*—certainly; *duṣṭāyām*—being offensive; *daṇḍaḥ*—punishment; *na*—not; *atra*—here; *na*—not; *śasyate*—is advisable.

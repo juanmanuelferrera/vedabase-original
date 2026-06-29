@@ -1,11 +1,11 @@
 ### SB 3.27.18
 
-> यथा गन्धस्य भूमेश्च न भावो व्यतिरेकतः ।
+> यथा गन्धस्य भूमेश्च न भावो व्यतिरेकतः ।\
 > अपां रसस्य च यथा तथा बुद्धेः परस्य च ॥१८॥
 
-> yathā gandhasya bhūmeś ca
-> na bhāvo vyatirekataḥ
-> apāṁ rasasya ca yathā
+> yathā gandhasya bhūmeś ca\
+> na bhāvo vyatirekataḥ\
+> apāṁ rasasya ca yathā\
 > tathā buddheḥ parasya ca
 
 *yathā*—como; *gandhasya*—de aroma; *bhūmeḥ*—de tierra; *ca*—y; *na*—no; *bhāvaḥ*—existencia; *vyatirekataḥ*—separada; *apām*—de agua; *rasasya*—de sabor; *ca*—y; *yathā*—como; *tathā*—también; *buddheḥ*—de inteligencia; *parasya*—de conciencia; *ca*—y.

@@ -1,13 +1,13 @@
 ### SB 1.10.2
 
-> सूत उवाच
-> वंशं कुरोर्वंशदवाग्निनिर्हृतं संरोहयित्वा भवभावनो हरिः ।
+> सूत उवाच\
+> वंशं कुरोर्वंशदवाग्निनिर्हृतं संरोहयित्वा भवभावनो हरिः ।\
 > निवेशयित्वा निजराज्य ईश्वरो युधिष्ठिरं प्रीतमना बभूव ह ॥२॥
 
-> sūta uvāca
-> vaṁśaṁ kuror vaṁśa-davāgni-nirhṛtaṁ
-> saṁrohayitvā bhava-bhāvano hariḥ
-> niveśayitvā nija-rājya īśvaro
+> sūta uvāca\
+> vaṁśaṁ kuror vaṁśa-davāgni-nirhṛtaṁ\
+> saṁrohayitvā bhava-bhāvano hariḥ\
+> niveśayitvā nija-rājya īśvaro\
 > yudhiṣṭhiraṁ prīta-manā babhūva ha
 
 *sūtaḥ uvāca*—Sūta Gosvāmī respondió; *vaṁśam*—dinastía; *kuroḥ*—del rey Kuru; *vaṁśa-dava-agni*—un incendio forestal causado por los bambúes; *nirhṛtam*—acabada; *saṁrohayitvā*—el retoño de la dinastía; *bhava-bhāvanaḥ*—el sustentador de la creación; *hariḥ*—la Personalidad de Dios, Śrī Kṛṣṇa; *niveśayitvā*—habiendo restablecido; *nija-rājye*—en su propio reino; *īśvaraḥ*—el Señor Supremo; *yudhiṣṭhiram*—a Mahārāja Yudhiṣṭhira; *prīta-manāḥ*—con la mente complacida; *babhūva ha*—quedó.

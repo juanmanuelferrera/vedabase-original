@@ -1,13 +1,13 @@
 ### SB 3.28.21
 
-> सञ्चिन्तयेद्भगवतश्चरणारविन्दं
-> वज्राङ्कुशध्वजसरोरुहलाञ्छनाढ्यम् ।
-> उत्तुङ्गरक्तविलसन्नखचक्रवाल
+> सञ्चिन्तयेद्भगवतश्चरणारविन्दं\
+> वज्राङ्कुशध्वजसरोरुहलाञ्छनाढ्यम् ।\
+> उत्तुङ्गरक्तविलसन्नखचक्रवाल\
 > ज्योत्स्नाभिराहतमहद्धृदयान्धकारम् ॥२१॥
 
-> sañcintayed bhagavataś caraṇāravindaṁ
-> vajrāṅkuśa-dhvaja-saroruha-lāñchanāḍhyam
-> uttuṅga-rakta-vilasan-nakha-cakravāla-
+> sañcintayed bhagavataś caraṇāravindaṁ\
+> vajrāṅkuśa-dhvaja-saroruha-lāñchanāḍhyam\
+> uttuṅga-rakta-vilasan-nakha-cakravāla-\
 > jyotsnābhir āhata-mahad-dhṛdayāndhakāram
 
 *sañcintayet*—debe concentrar; *bhagavataḥ*—del Señor; *caraṇa-aravindam*—en los pies de loto; *vajra*—rayo; *aṅkuśa*—aguijada (vara de conducir elefantes); *dhvaja*—bandera; *saroruha*—loto; *lāñchana*—marcas; *āḍhyam*—adornados con; *uttuṅga*—túrgidas; *rakta*—rojas; *vilasat*—brillantes; *nakha*—uñas; *cakravāla*—el círculo de la Luna; *jyotsnābhiḥ*—con esplendor; *āhata*—despeja; *mahat*—densa; *hṛdaya*—del corazón; *andhakāram*—oscuridad.

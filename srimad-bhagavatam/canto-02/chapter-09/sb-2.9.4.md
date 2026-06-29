@@ -1,11 +1,11 @@
 ### SB 2.9.4
 
-> आत्मतत्त्वविशुद्ध्यर्थं यदाह भगवानृतम् ।
+> आत्मतत्त्वविशुद्ध्यर्थं यदाह भगवानृतम् ।\
 > ब्रह्मणे दर्शयन्रूपमव्यलीकव्रतादृतः ॥४॥
 
-> ātma-tattva-viśuddhy-arthaṁ
-> yad āha bhagavān ṛtam
-> brahmaṇe darśayan rūpam
+> ātma-tattva-viśuddhy-arthaṁ\
+> yad āha bhagavān ṛtam\
+> brahmaṇe darśayan rūpam\
 > avyalīka-vratādṛtaḥ
 
 *ātma-tattva*—the science of God or that of the living entity; *viśuddhi*—purification; *artham*—goal; *yat*—that which; *āha*—said; *bhagavān*—the Personality of Godhead; *ṛtam*—in reality; *brahmaṇe*—unto Lord Brahmā; *darśayan*—by showing; *rūpam*—eternal form; *avyalīka*—without any deceptive motive; *vrata*—vow; *ādṛtaḥ*—worshiped.

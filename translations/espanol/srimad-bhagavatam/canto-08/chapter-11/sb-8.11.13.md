@@ -1,11 +1,11 @@
 ### SB 8.11.13
 
-> सखायं पतितं दृष्ट्वा जम्भो बलिसखः सुहृत
+> सखायं पतितं दृष्ट्वा जम्भो बलिसखः सुहृत\
 > अभ्ययात्सौहृदं सख्युर्हतस्यापि समाचरन ॥१३॥
 
-> sakhāyaṁ patitaṁ dṛṣṭvā
-> jambho bali-sakhaḥ suhṛt
-> abhyayāt sauhṛdaṁ sakhyur
+> sakhāyaṁ patitaṁ dṛṣṭvā\
+> jambho bali-sakhaḥ suhṛt\
+> abhyayāt sauhṛdaṁ sakhyur\
 > hatasyāpi samācaran
 
 *sakhāyam*—a su íntimo amigo; *patitam*—que había caído; *dṛṣṭvā*—al ver; *jambhaḥ*—el demonio Jambha; *bali-sakhaḥ*—un amigo muy íntimo de Bali Mahārāja; *suhṛt*—y constante bienqueriente; *abhyayāt*—apareció en escena; *sauhṛdam*—con una amistad llena de compasión; *sakhyuḥ*—de su amigo; *hatasya*—que estaba herido y había caído; *api*—aunque; *samācaran*—solo por cumplir con los deberes de la amistad.

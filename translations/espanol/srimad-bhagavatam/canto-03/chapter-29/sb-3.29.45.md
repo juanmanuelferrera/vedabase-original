@@ -1,11 +1,11 @@
 ### SB 3.29.45
 
-> सोऽनन्तोऽन्तकरः कालोऽनादिरादिकृदव्ययः ।
+> सोऽनन्तोऽन्तकरः कालोऽनादिरादिकृदव्ययः ।\
 > जनं जनेन जनयन्मारयन्मृत्युनान्तकम् ॥४५॥
 
-> so 'nanto 'nta-karaḥ kālo
-> 'nādir ādi-kṛd avyayaḥ
-> janaṁ janena janayan
+> so 'nanto 'nta-karaḥ kālo\
+> 'nādir ādi-kṛd avyayaḥ\
+> janaṁ janena janayan\
 > mārayan mṛtyunāntakam
 
 *saḥ*—ese; *anantaḥ*—sin final; *anta-karaḥ*—destructor; *kālaḥ*—tiempo; *anādiḥ*—sin principio; *ādi-kṛt*—el creador; *avyayaḥ*—no sujeto a cambios; *janam*—personas; *janena*—por personas; *janayan*—creando; *mārayan*—destruyendo; *mṛtyunā*—por medio de la muerte; *antakam*—al Señor de la muerte.

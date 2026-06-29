@@ -1,11 +1,11 @@
 ### SB 3.11.39
 
-> कालोऽयं परमाण्वादिर्द्विपरार्धान्त ईश्वरः ।
+> कालोऽयं परमाण्वादिर्द्विपरार्धान्त ईश्वरः ।\
 > नैवेशितुं प्रभुर्भूम्न ईश्वरो धाममानिनाम् ॥३९॥
 
-> kālo 'yaṁ paramāṇv-ādir
-> dvi-parārdhānta īśvaraḥ
-> naiveśituṁ prabhur bhūmna
+> kālo 'yaṁ paramāṇv-ādir\
+> dvi-parārdhānta īśvaraḥ\
+> naiveśituṁ prabhur bhūmna\
 > īśvaro dhāma-māninām
 
 *kālaḥ*—el tiempo eterno; *ayam*—este; *parama-aṇu*—átomo; *ādiḥ*—comenzando desde; *dvi-parārdha*—dos grandes períodos de tiempo; *antaḥ*—hasta el final; *īśvaraḥ*—controlador; *na*—nunca; *eva*—ciertamente; *īśitum*—para controlar; *prabhuḥ*—capaz; *bhūmnaḥ*—del Supremo; *īśvaraḥ*—controlador; *dhāma-māninām*—de aquellos que están absortos en el cuerpo.

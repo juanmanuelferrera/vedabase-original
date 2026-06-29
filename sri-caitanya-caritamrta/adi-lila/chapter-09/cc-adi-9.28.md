@@ -1,9 +1,9 @@
 ### CC Adi 9.28
 
-> ত্রিজগতে যত আছে ধন-রত্নমণি ।
+> ত্রিজগতে যত আছে ধন-রত্নমণি ।\
 > একফলের মূল্য করি’ তাহা নাহি গণি ॥২৮॥
 
-> tri-jagate yata āche dhana-ratnamaṇi
+> tri-jagate yata āche dhana-ratnamaṇi\
 > eka-phalera mūlya kari' tāhā nāhi gaṇi
 
 *tri-jagate*—in the three worlds; *yata*—as much as; *āche*—there is; *dhana-ratna-maṇi*—wealth and riches; *eka-phalera*—one fruit's; *mūlya*—price; *kari'*—calculated; *tāhā*—that; *nāhi*—do not; *gaṇi*—count.

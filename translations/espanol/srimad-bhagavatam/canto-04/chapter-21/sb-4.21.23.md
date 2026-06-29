@@ -1,11 +1,11 @@
 ### SB 4.21.23
 
-> तस्य मे तदनुष्ठानाद्यानाहुर्ब्रह्मवादिनः ।
+> तस्य मे तदनुष्ठानाद्यानाहुर्ब्रह्मवादिनः ।\
 > लोकाः स्युः कामसन्दोहा यस्य तुष्यति दिष्टदृक् ॥२३॥
 
-> tasya me tad-anuṣṭhānād
-> yān āhur brahma-vādinaḥ
-> lokāḥ syuḥ kāma-sandohā
+> tasya me tad-anuṣṭhānād\
+> yān āhur brahma-vādinaḥ\
+> lokāḥ syuḥ kāma-sandohā\
 > yasya tuṣyati diṣṭa-dṛk
 
 *tasya*—sus; *me*—mis; *tat*—eso; *anuṣṭhānāt*—con la ejecución; *yān*—lo que; *āhuḥ*—dicho; *brahma-vādinaḥ*—por los expertos en conocimiento védico; *lokāḥ*—planetas; *syuḥ*—se vuelve; *kāma-sandohāḥ*—cumpliendo los objetivos deseados; *yasya*—cuyos; *tuṣyati*—se satisface; *diṣṭa-dṛk*—el observador de todo destino.

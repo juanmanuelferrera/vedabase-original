@@ -1,13 +1,13 @@
 ### CC Madhya 24.179
 
-> কিরাতহূনান্ধ্রপুলিন্দপুক্কশা
-> আভীরশুহ্মা যবনাঃ খশাদয়ঃ ।
-> যেঽন্যে চ পাপা যদুপাশ্রয়াশ্রয়াঃ
+> কিরাতহূনান্ধ্রপুলিন্দপুক্কশা\
+> আভীরশুহ্মা যবনাঃ খশাদয়ঃ ।\
+> যেঽন্যে চ পাপা যদুপাশ্রয়াশ্রয়াঃ\
 > শুধ্যন্তি তস্মৈ প্রভবিষ্ণবে নমঃ ॥১৭৯॥
 
-> kirāta-hūnāndhra-pulinda-pulkaśā
-> ābhīra-śumbhā yavanāḥ khaśādayaḥ
-> ye 'nye ca pāpā yad-upāśrayāśrayāḥ
+> kirāta-hūnāndhra-pulinda-pulkaśā\
+> ābhīra-śumbhā yavanāḥ khaśādayaḥ\
+> ye 'nye ca pāpā yad-upāśrayāśrayāḥ\
 > śudhyanti tasmai prabhaviṣṇave namaḥ
 
 *kirāta*—los aborígenes llamados Kirātas; *hūna*—los Hūnas; *āndhra*—los Āndhras; *pulinda*—los Pulindas; *pulkaśāḥ*—los Pulkaśas; *ābhīra*—los Ābhīras; *śumbhāḥ*—los Śumbhas; *yavanāḥ*—personas que no siguen las disposiciones Védicas y que comen carne de vaca; *khaśa-ādayaḥ*—los Khaśas y otros; *ye*—aquellos que; *anye*—otros similares; *ca*—también; *pāpāḥ*—personas pecaminosas; *yat*—de la Suprema Personalidad de Dios; *upāśraya*—de los devotos; *āśrayāḥ*—toman refugio; *śudhyanti*—se purifican; *tasmai*—a Él, el Señor Viṣṇu, gracias a quien se purifican; *prabhaviṣṇave*—al Señor Viṣṇu, el más poderoso; *namaḥ*—respetuosas reverencias.

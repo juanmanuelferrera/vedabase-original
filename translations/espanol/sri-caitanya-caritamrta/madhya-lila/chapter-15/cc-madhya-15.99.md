@@ -1,9 +1,9 @@
 ### CC Madhya 15.99
 
-> গুণরাজ-খাঁন কৈল শ্রীকৃষ্ণবিজয় ।
+> গুণরাজ-খাঁন কৈল শ্রীকৃষ্ণবিজয় ।\
 > তাহাঁ একবাক্য তাঁর আছে প্রেমময় ॥৯৯॥
 
-> guṇarāja-khāṅna kaila śrī-kṛṣṇa-vijaya
+> guṇarāja-khāṅna kaila śrī-kṛṣṇa-vijaya\
 > tāhāṅ eka-vākya tāṅra āche premamaya
 
 *guṇarāja-khāṅna*—Guṇarāja Khān; *kaila*—compiló; *śrī-kṛṣṇa-vijaya*—el libro titulado Śrī Kṛṣṇa-vijaya; *tāhāṅ*—allí; *eka-vākya*—una frase; *tāṅra*—de este; *āche*—hay; *prema-maya*—llena de amor por Kṛṣṇa.

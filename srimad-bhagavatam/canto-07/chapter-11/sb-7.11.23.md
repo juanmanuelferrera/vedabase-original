@@ -1,11 +1,11 @@
 ### SB 7.11.23
 
-> देवगुर्वच्युते भक्तिस्त्रिवर्गपरिपोषणम
+> देवगुर्वच्युते भक्तिस्त्रिवर्गपरिपोषणम\
 > आस्तिक्यमुद्यमो नित्यं नैपुण्यं वैश्यलक्षणम ॥२३॥
 
-> deva-gurv-acyute bhaktis
-> tri-varga-paripoṣaṇam
-> āstikyam udyamo nityaṁ
+> deva-gurv-acyute bhaktis\
+> tri-varga-paripoṣaṇam\
+> āstikyam udyamo nityaṁ\
 > naipuṇyaṁ vaiśya-lakṣaṇam
 
 *deva-guru-acyute*—unto the demigods, the spiritual master and Lord Viṣṇu; *bhaktiḥ*—engagement in devotional service; *tri-varga*—of the three principles of pious life (religion, economic development and sense gratification); *paripoṣaṇam*—execution; *āstikyam*—faith in the scriptures, the spiritual master and the Supreme Lord; *udyamaḥ*—active; *nityam*—without cessation, continuously; *naipuṇyam*—expertise; *vaiśya-lakṣaṇam*—the symptoms of a *vaiśya.*

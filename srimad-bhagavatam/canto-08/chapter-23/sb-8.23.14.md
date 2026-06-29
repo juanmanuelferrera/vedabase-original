@@ -1,11 +1,11 @@
 ### SB 8.23.14
 
-> ब्रह्मन्सन्तनु शिष्यस्य कर्मच्छिद्रं वितन्वतः
+> ब्रह्मन्सन्तनु शिष्यस्य कर्मच्छिद्रं वितन्वतः\
 > यत्तत्कर्मसु वैषम्यं ब्रह्मदृष्टं समं भवेत ॥१४॥
 
-> brahman santanu śiṣyasya
-> karma-cchidraṁ vitanvataḥ
-> yat tat karmasu vaiṣamyaṁ
+> brahman santanu śiṣyasya\
+> karma-cchidraṁ vitanvataḥ\
+> yat tat karmasu vaiṣamyaṁ\
 > brahma-dṛṣṭaṁ samaṁ bhavet
 
 *brahman*—O *brāhmaṇa*; *santanu*—please describe; *śiṣyasya*—of your disciple; *karma-chidram*—the discrepancies in the fruitive activities; *vitanvataḥ*—of he who was performing sacrifices; *yat tat*—that which; *karmasu*—in the fruitive activities; *vaiṣamyam*—discrepancy; *brahma-dṛṣṭam*—when it is judged by the *brāhmaṇas*; *samam*—equipoised; *bhavet*—it so becomes.

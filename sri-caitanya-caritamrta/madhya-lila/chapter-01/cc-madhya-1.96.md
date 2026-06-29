@@ -1,9 +1,9 @@
 ### CC Madhya 1.96
 
-> পথে নানা লীলারস, দেব-দরশন ।
+> পথে নানা লীলারস, দেব-দরশন ।\
 > মাধবপুরীর কথা, গোপাল-স্থাপন ॥৯৬॥
 
-> pathe nānā līlā-rasa, deva-daraśana
+> pathe nānā līlā-rasa, deva-daraśana\
 > mādhava-purīra kathā, gopāla-sthāpana
 
 *pathe*—on the way; *nānā*—various; *līlā-rasa*—transcendental pastimes; *deva-daraśana*—visiting the temples; *mādhava-purīra*—of Mādhavendra Purī; *kathā*—incidents; *gopāla*—of Gopāla; *sthāpana*—the installation.

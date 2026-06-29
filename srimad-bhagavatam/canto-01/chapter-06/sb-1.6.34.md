@@ -1,11 +1,11 @@
 ### SB 1.6.34
 
-> एतद्ध्यातुरचित्तानां मात्रास्पर्शेच्छया मुहुः ।
+> एतद्ध्यातुरचित्तानां मात्रास्पर्शेच्छया मुहुः ।\
 > भवसिन्धुप्लवो दृष्टो हरिचर्यानुवर्णनम् ॥३४॥
 
-> etad dhy ātura-cittānāṁ
-> mātrā-sparśecchayā muhuḥ
-> bhava-sindhu-plavo dṛṣṭo
+> etad dhy ātura-cittānāṁ\
+> mātrā-sparśecchayā muhuḥ\
+> bhava-sindhu-plavo dṛṣṭo\
 > hari-caryānuvarṇanam
 
 *etat*—this; *hi*—certainly; *ātura-cittānām*—of those whose minds are always full of cares and anxieties; *mātrā*—objects of sense enjoyment; *sparśa*—senses; *icchayā*—by desires; *muhuḥ*—always; *bhava-sindhu*—the ocean of nescience; *plavaḥ*—boat; *dṛṣṭaḥ*—experienced; *hari-carya*—activities of Hari, the Personality of Godhead; *anuvarṇanam*—constant recitation.

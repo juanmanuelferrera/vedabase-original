@@ -1,13 +1,13 @@
 ### SB 4.31.1
 
-> मैत्रेय उवाच
-> तत उत्पन्नविज्ञाना आश्वधोक्षजभाषितम् ।
+> मैत्रेय उवाच\
+> तत उत्पन्नविज्ञाना आश्वधोक्षजभाषितम् ।\
 > स्मरन्त आत्मजे भार्यां विसृज्य प्राव्रजन्गृहात् ॥१॥
 
-> maitreya uvāca
-> tata utpanna-vijñānā
-> āśv adhokṣaja-bhāṣitam
-> smaranta ātmaje bhāryāṁ
+> maitreya uvāca\
+> tata utpanna-vijñānā\
+> āśv adhokṣaja-bhāṣitam\
+> smaranta ātmaje bhāryāṁ\
 > visṛjya prāvrajan gṛhāt
 
 *maitreyaḥ uvāca*—Maitreya said; *tataḥ*—thereafter; *utpanna*—developed; *vijñānāḥ*—possessing perfect knowledge; *āśu*—very soon; *adhokṣaja*—by the Supreme Personality of Godhead; *bhāṣitam*—what was enunciated; *smarantaḥ*—remembering; *ātma-je*—unto their son; *bhāryām*—their wife; *visṛjya*—after giving; *prāvrajan*—left; *gṛhāt*—from home.

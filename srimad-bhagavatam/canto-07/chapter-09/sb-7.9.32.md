@@ -1,13 +1,13 @@
 ### SB 7.9.32
 
-> न्यस्येदमात्मनि जगद्विलयाम्बुमध्ये
-> शेषेत्मना निजसुखानुभवो निरीहः
-> योगेन मीलितदृगात्मनिपीतनिद्रस
+> न्यस्येदमात्मनि जगद्विलयाम्बुमध्ये\
+> शेषेत्मना निजसुखानुभवो निरीहः\
+> योगेन मीलितदृगात्मनिपीतनिद्रस\
 > तुर्ये स्थितो न तु तमो न गुणांश्च युङ्क्षे ॥३२॥
 
-> nyasyedam ātmani jagad vilayāmbu-madhye
-> śeṣetmanā nija-sukhānubhavo nirīhaḥ
-> yogena mīlita-dṛg-ātma-nipīta-nidras
+> nyasyedam ātmani jagad vilayāmbu-madhye\
+> śeṣetmanā nija-sukhānubhavo nirīhaḥ\
+> yogena mīlita-dṛg-ātma-nipīta-nidras\
 > turye sthito na tu tamo na guṇāṁś ca yuṅkṣe
 
 *nyasya*—throwing; *idam*—this; *ātmani*—in Your own self; *jagat*—cosmic manifestation created by You; *vilaya-ambu-madhye*—in the Causal Ocean, in which everything is preserved in a state of reserved energy; *śeṣe*—You act as if sleeping; *ātmanā*—by Yourself; *nija*—Your own personal; *sukha-anubhavaḥ*—experiencing the state of spiritual bliss; *nirīhaḥ*—appearing to be doing nothing; *yogena*—by the mystic power; *mīlita-dṛk*—the eyes appearing closed; *ātma*—by a manifestation of Yourself; *nipīta*—prevented; *nidraḥ*—whose sleeping; *turye*—in the transcendental stage; *sthitaḥ*—keeping (Yourself); *na*—not; *tu*—but; *tamaḥ*—the material condition of sleeping; *na*—nor; *guṇān*—the material modes; *ca*—and; *yuṅkṣe*—do You engage Yourself in.

@@ -1,13 +1,13 @@
 ### SB 3.9.3
 
-> नातः परं परम यद्भवतः स्वरूपम्
-> आनन्दमात्रमविकल्पमविद्धवर्चः ।
-> पश्यामि विश्वसृजमेकमविश्वमात्मन्
+> नातः परं परम यद्भवतः स्वरूपम्\
+> आनन्दमात्रमविकल्पमविद्धवर्चः ।\
+> पश्यामि विश्वसृजमेकमविश्वमात्मन्\
 > भूतेन्द्रियात्मकमदस्त उपाश्रितोऽस्मि ॥३॥
 
-> nātaḥ paraṁ parama yad bhavataḥ svarūpam
-> ānanda-mātram avikalpam aviddha-varcaḥ
-> paśyāmi viśva-sṛjam ekam aviśvam ātman
+> nātaḥ paraṁ parama yad bhavataḥ svarūpam\
+> ānanda-mātram avikalpam aviddha-varcaḥ\
+> paśyāmi viśva-sṛjam ekam aviśvam ātman\
 > bhūtendriyātmaka-madas ta upāśrito 'smi
 
 *na*—do not; *ataḥ param*—hereafter; *parama*—O Supreme; *yat*—that which; *bhavataḥ*—of Your Lordship; *svarūpam*—eternal form; *ānanda-mātram*—impersonal Brahman effulgence; *avikalpam*—without changes; *aviddha-varcaḥ*—without deterioration of potency; *paśyāmi*—do I see; *viśva-sṛjam*—creator of the cosmic manifestation; *ekam*—one without a second; *aviśvam*—and yet not of matter; *ātman*—O Supreme Cause; *bhūta*—body; *indriya*—senses; *ātmaka*—on such identification; *madaḥ*—pride; *te*—unto You; *upāśritaḥ*—surrendered; *asmi*—I am.

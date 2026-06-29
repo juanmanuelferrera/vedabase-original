@@ -1,11 +1,11 @@
 ### SB 4.25.39
 
-> धर्मो ह्यत्रार्थकामौ च प्रजानन्दोऽमृतं यशः ।
+> धर्मो ह्यत्रार्थकामौ च प्रजानन्दोऽमृतं यशः ।\
 > लोका विशोका विरजा यान्न केवलिनो विदुः ॥३९॥
 
-> dharmo hy atrārtha-kāmau ca
-> prajānando 'mṛtaṁ yaśaḥ
-> lokā viśokā virajā
+> dharmo hy atrārtha-kāmau ca\
+> prajānando 'mṛtaṁ yaśaḥ\
+> lokā viśokā virajā\
 > yān na kevalino viduḥ
 
 *dharmaḥ*—religious ritual; *hi*—certainly; *atra*—here (in this *gṛhastha-āśrama,* or householder life); *artha*—economic development; *kāmau*—sense gratification; *ca*—and; *prajā-ānandaḥ*—the pleasure of generations; *amṛtam*—the results of sacrifice; *yaśaḥ*—reputation; *lokāḥ*—planetary systems; *viśokāḥ*—without lamentation; *virajāḥ*—without disease; *yān*—which; *na*—never; *kevalinaḥ*—the transcendentalists; *viduḥ*—know.

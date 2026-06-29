@@ -1,11 +1,11 @@
 ### Bg 4.18
 
-> कर्मण्यकर्म यः पश्येदकर्मणि च कर्म यः ।
+> कर्मण्यकर्म यः पश्येदकर्मणि च कर्म यः ।\
 > स बुद्धिमान्मनुष्येषु स युक्तः कृत्स्नकर्मकृत् ॥१८॥
 
-> karmaṇy akarma yaḥ paśyed
-> akarmaṇi ca karma yaḥ
-> sa buddhimān manuṣyeṣu
+> karmaṇy akarma yaḥ paśyed\
+> akarmaṇi ca karma yaḥ\
+> sa buddhimān manuṣyeṣu\
 > sa yuktaḥ kṛtsna-karma-kṛt
 
 *karmaṇi*—in action; *akarma*—inaction; *yaḥ*—one who; *paśyet*—observes; *akarmaṇi*—in inaction; *ca*—also; *karma*—fruitive action; *yaḥ*—one who; *saḥ*—he; *buddhimān*—is intelligent; *manuṣyeṣu*—in human society; *saḥ*—he; *yuktaḥ*—is in the transcendental position; *kṛtsna-karma-kṛt*—although engaged in all activities.

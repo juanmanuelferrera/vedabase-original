@@ -1,11 +1,11 @@
 ### SB 1.6.29
 
-> कल्पान्त इदमादाय शयानेऽम्भस्युदन्वतः ।
+> कल्पान्त इदमादाय शयानेऽम्भस्युदन्वतः ।\
 > शिशयिषोरनुप्राणं विविशेऽन्तरहं विभोः ॥२९॥
 
-> kalpānta idam ādāya
-> śayāne 'mbhasy udanvataḥ
-> śiśayiṣor anuprāṇaṁ
+> kalpānta idam ādāya\
+> śayāne 'mbhasy udanvataḥ\
+> śiśayiṣor anuprāṇaṁ\
 > viviśe 'ntar ahaṁ vibhoḥ
 
 *kalpa-ante*—at the end of Brahmā's day; *idam*—this; *ādāya*—taking together; *śayāne*—having gone to lie down; *ambhasi*—in the causal water; *udanvataḥ*—devastation; *śiśayiṣoḥ*—lying of the Personality of Godhead (Nārāyaṇa); *anuprāṇam*—breathing; *viviśe*—entered into; *antaḥ*—within; *aham*—I; *vibhoḥ*—of Lord Brahmā.

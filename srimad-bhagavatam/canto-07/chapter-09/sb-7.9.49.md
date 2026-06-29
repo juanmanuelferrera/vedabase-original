@@ -1,13 +1,13 @@
 ### SB 7.9.49
 
-> नैते गुणा न गुणिनो महदादयो ये
-> सर्वे मनः प्रभृतयः सहदेवमर्त्याः
-> आद्यन्तवन्त उरुगाय विदन्ति हि त्वाम
+> नैते गुणा न गुणिनो महदादयो ये\
+> सर्वे मनः प्रभृतयः सहदेवमर्त्याः\
+> आद्यन्तवन्त उरुगाय विदन्ति हि त्वाम\
 > एवं विमृश्य सुधियो विरमन्ति शब्दात ॥४९॥
 
-> naite guṇā na guṇino mahad-ādayo ye
-> sarve manaḥ prabhṛtayaḥ sahadeva-martyāḥ
-> ādy-antavanta urugāya vidanti hi tvām
+> naite guṇā na guṇino mahad-ādayo ye\
+> sarve manaḥ prabhṛtayaḥ sahadeva-martyāḥ\
+> ādy-antavanta urugāya vidanti hi tvām\
 > evaṁ vimṛśya sudhiyo viramanti śabdāt
 
 *na*—neither; *ete*—all these; *guṇāḥ*—three qualities of material nature; *na*—nor; *guṇinaḥ*—the predominating deities of the three modes of material nature (namely Lord Brahmā, the predominating deity of passion, and Lord Śiva, the predominating deity of ignorance); *mahat-ādayaḥ*—the five elements, the senses and the sense objects; *ye*—those which; *sarve*—all; *manaḥ*—the mind; *prabhṛtayaḥ*—and so on; *saha-deva-martyāḥ*—with the demigods and the mortal human beings; *ādi-anta-vantaḥ*—who all have a beginning and end; *urugāya*—O Supreme Lord, who are glorified by all saintly persons; *vidanti*—understand; *hi*—indeed; *tvām*—Your Lordship; *evam*—thus; *vimṛśya*—considering; *sudhiyaḥ*—all wise men; *viramanti*—cease; *śabdāt*—from studying or understanding the *Vedas.*

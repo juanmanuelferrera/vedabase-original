@@ -1,11 +1,11 @@
 ### SB 3.25.10
 
-> अथ मे देव सम्मोहमपाक्रष्टुं त्वमर्हसि ।
+> अथ मे देव सम्मोहमपाक्रष्टुं त्वमर्हसि ।\
 > योऽवग्रहोऽहं ममेतीत्येतस्मिन्योजितस्त्वया ॥१०॥
 
-> atha me deva sammoham
-> apākraṣṭuṁ tvam arhasi
-> yo 'vagraho 'haṁ mametīty
+> atha me deva sammoham\
+> apākraṣṭuṁ tvam arhasi\
+> yo 'vagraho 'haṁ mametīty\
 > etasmin yojitas tvayā
 
 *atha*—now; *me*—my; *deva*—O Lord; *sammoham*—delusion; *apākraṣṭum*—to dispel; *tvam*—You; *arhasi*—be pleased; *yaḥ*—which; *avagrahaḥ*—misconception; *aham*—I; *mama*—mine; *iti*—thus; *iti*—thus; *etasmin*—in this; *yojitaḥ*—engaged; *tvayā*—by You.

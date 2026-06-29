@@ -1,9 +1,9 @@
 ### CC Madhya 4.35
 
-> স্বপ্নে দেখে, সেই বালক সম্মুখে আসিঞা ।
+> স্বপ্নে দেখে, সেই বালক সম্মুখে আসিঞা ।\
 > এক কুঞ্জে লঞা গেল হাতেতে ধরিঞা ॥৩৫॥
 
-> svapne dekhe, sei bālaka sammukhe āsiñā
+> svapne dekhe, sei bālaka sammukhe āsiñā\
 > eka kuñje lañā gela hātete dhariñā
 
 *svapne*—in a dream; *dekhe*—he saw; *sei bālaka*—the very same boy; *sammukhe*—in front; *āsiñā*—coming; *eka kuñje*—in one of the bushes; *lañā*—taking him; *gela*—went; *hātete dhariñā*—holding him by the hand.

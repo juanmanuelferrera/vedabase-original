@@ -1,9 +1,9 @@
 ### CC Madhya 16.173
 
-> বহুত উৎকণ্ঠা তাঁর, কর্যাছে বিনয় ।
+> বহুত উৎকণ্ঠা তাঁর, কর্যাছে বিনয় ।\
 > তোমা-সনে এই সন্ধি, নাহি যুদ্ধ-ভয় ।।’ ॥ ১৭৩ ॥
 
-> bahuta utkaṇṭhā tāṅra, karyāche vinaya
+> bahuta utkaṇṭhā tāṅra, karyāche vinaya\
 > tomā-sane ei sandhi, nāhi yuddha-bhaya'
 
 *bahuta*—mucha; *utkaṇṭhā*—ansiedad; *tāṅra*—su; *karyāche*—ha hecho; *vinaya*—petición sumisa; *tomā-sane*—con vos; *ei*—esta; *sandhi*—una propuesta de paz; *nāhi*—no hay; *yuddha-bhaya*—temor a un combate.

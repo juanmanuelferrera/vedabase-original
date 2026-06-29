@@ -1,9 +1,9 @@
 ### CC Adi 1.99
 
-> এক ভাগবত বড় — ভাগবত-শাস্ত্র ।
+> এক ভাগবত বড় — ভাগবত-শাস্ত্র ।\
 > আর ভাগবত — ভক্ত ভক্তি-রস-পাত্র ॥৯৯॥
 
-> eka bhāgavata baḍa—bhāgavata-śāstra
+> eka bhāgavata baḍa—bhāgavata-śāstra\
 > āra bhāgavata—bhakta bhakti-rasa-pātra
 
 *eka*—one; *bhāgavata*—in relation to the Supreme Lord; *baḍa*—great; *bhāgavata-śāstra*—*Śrīmad-Bhāgavatam*; *āra*—the other; *bhāgavata*—in relation to the Supreme Lord; *bhakta*—pure devotee; *bhakti-rasa*—of the mellow of devotion; *pātra*—the recipient.

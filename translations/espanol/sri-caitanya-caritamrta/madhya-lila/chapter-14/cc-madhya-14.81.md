@@ -1,9 +1,9 @@
 ### CC Madhya 14.81
 
-> শ্রীবাস সহিত জল খেলে গদাধর ।
+> শ্রীবাস সহিত জল খেলে গদাধর ।\
 > রাঘব-পণ্ডিত সনে খেলে বক্রেশ্বর ॥৮১॥
 
-> śrīvāsa-sahita jala khele gadādhara
+> śrīvāsa-sahita jala khele gadādhara\
 > rāghava-paṇḍita sane khele vakreśvara
 
 *śrīvāsa-sahita*—con Śrīvāsa Ṭhākura; *jala khele*—juega a este deporte acuático; *gadādhara*—Gadādhara Paṇḍita; *rāghava-paṇḍita sane*—con Rāghava Paṇḍita; *khele*—juega; *vakreśvara*—Vakreśvara Paṇḍita.

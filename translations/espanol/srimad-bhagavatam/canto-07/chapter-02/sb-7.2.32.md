@@ -1,11 +1,11 @@
 ### SB 7.2.32
 
-> रुदत्य उच्चैर्दयिताङ्घ्रिपङ्कजं सिञ्चन्त्य अस्रैः कुचकुङ्कुमारुणैः
+> रुदत्य उच्चैर्दयिताङ्घ्रिपङ्कजं सिञ्चन्त्य अस्रैः कुचकुङ्कुमारुणैः\
 > विस्रस्तकेशाभरणाः शुचं नृणां सृजन्त्य आक्रन्दनया विलेपिरे ॥३२॥
 
-> rudatya uccair dayitāṅghri-paṅkajaṁ
-> siñcantya asraiḥ kuca-kuṅkumāruṇaiḥ
-> visrasta-keśābharaṇāḥ śucaṁ nṛṇāṁ
+> rudatya uccair dayitāṅghri-paṅkajaṁ\
+> siñcantya asraiḥ kuca-kuṅkumāruṇaiḥ\
+> visrasta-keśābharaṇāḥ śucaṁ nṛṇāṁ\
 > sṛjantya ākrandanayā vilepire
 
 *rudatyaḥ*—llorar; *uccaiḥ*—en voz muy alta; *dayita*—de su querido esposo; *aṅghri-paṅkajam*—los pies de loto; *siñcantyaḥ*—humedecer; *asraiḥ*—con lágrimas; *kuca-kuṅkuma-aruṇaiḥ*—que estaban rojas del *kuṅkuma* que cubría sus senos; *visrasta*—sueltos; *keśa*—cabellos; *ābharaṇāḥ*—y alhajas; *śucam*—dolor; *nṛṇām*—de la gente; *sṛjantyaḥ*—crear; *ākrandanayā*—con llantos lastimeros; *vilepire*—comenzaron a lamentarse.

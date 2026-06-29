@@ -1,11 +1,11 @@
 ### SB 1.11.37
 
-> तमयं मन्यते लोको ह्यसङ्गमपि सङ्गिनम् ।
+> तमयं मन्यते लोको ह्यसङ्गमपि सङ्गिनम् ।\
 > आत्मौपम्येन मनुजं व्यापृण्वानं यतोऽबुधः ॥३७॥
 
-> tam ayaṁ manyate loko
-> hy asaṅgam api saṅginam
-> ātmaupamyena manujaṁ
+> tam ayaṁ manyate loko\
+> hy asaṅgam api saṅginam\
+> ātmaupamyena manujaṁ\
 > vyāpṛṇvānaṁ yato 'budhaḥ
 
 *tam*—al Señor Kṛṣṇa; *ayam*—todos estos (hombres comunes); *manyate*—especulan con la mente; *lokaḥ*—las almas condicionadas; *hi*—ciertamente; *asaṅgam*—desapegados; *api*—a pesar de; *saṅginam*—afectados; *ātma*—ser; *aupamyena*—mediante la comparación con el ser; *manujam*—hombre ordinario; *vyāpṛṇvānam*—estando dedicado a; *yataḥ*—debido a; *abudhaḥ*—tonto por ignorancia.

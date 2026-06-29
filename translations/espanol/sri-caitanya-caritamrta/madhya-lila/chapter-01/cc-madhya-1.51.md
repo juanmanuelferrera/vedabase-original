@@ -1,9 +1,9 @@
 ### CC Madhya 1.51
 
-> শেষ আর যেই রহে দ্বাদশ বৎসর ।
+> শেষ আর যেই রহে দ্বাদশ বৎসর ।\
 > কৃষ্ণের বিরহলীলা প্রভুর অন্তর ॥৫১॥
 
-> śeṣa āra yei rahe dvādaśa vatsara
+> śeṣa āra yei rahe dvādaśa vatsara\
 > kṛṣṇera viraha-līlā prabhura antara
 
 *śeṣa*—al final; *āra*—el resto; *yei*—lo que; *rahe*—queda; *dvādaśa vatsara*—doce años; *kṛṣṇera*—del Señor Kṛṣṇa; *viraha-līlā*—los pasatiempos de separación; *prabhura*—del Señor; *antara*—dentro.

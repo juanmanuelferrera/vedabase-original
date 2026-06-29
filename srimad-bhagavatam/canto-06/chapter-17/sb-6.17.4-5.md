@@ -1,18 +1,18 @@
 ### SB 6.17.4-5
 
-> एकदा स विमानेन विष्णुदत्तेन भास्वता
-> गिरिशं ददृशे गच्छन्परीतं सिद्धचारणैः ॥४॥
-> आलिङ्ग्याङ्कीकृतां देवीं बाहुना मुनिसंसदि
+> एकदा स विमानेन विष्णुदत्तेन भास्वता\
+> गिरिशं ददृशे गच्छन्परीतं सिद्धचारणैः ॥४॥\
+> आलिङ्ग्याङ्कीकृतां देवीं बाहुना मुनिसंसदि\
 > उवाच देव्याः शृण्वन्त्या जहासोच्चैस्तदन्तिके ॥५॥
 
-> ekadā sa vimānena
-> viṣṇu-dattena bhāsvatā
-> giriśaṁ dadṛśe gacchan
+> ekadā sa vimānena\
+> viṣṇu-dattena bhāsvatā\
+> giriśaṁ dadṛśe gacchan\
 > parītaṁ siddha-cāraṇaiḥ
 
-> āliṅgyāṅkīkṛtāṁ devīṁ
-> bāhunā muni-saṁsadi
-> uvāca devyāḥ śṛṇvantyā
+> āliṅgyāṅkīkṛtāṁ devīṁ\
+> bāhunā muni-saṁsadi\
+> uvāca devyāḥ śṛṇvantyā\
 > jahāsoccais tad-antike
 
 *ekadā*—one time; *saḥ*—he (King Citraketu); *vimānena*—with his airplane; *viṣṇu-dattena*—given to him by Lord Viṣṇu; *bhāsvatā*—shining brilliantly; *giriśam*—Lord Śiva; *dadṛśe*—he saw; *gacchan*—going; *parītam*—surrounded; *siddha*—by the inhabitants of Siddhaloka; *cāraṇaiḥ*—and the inhabitants of Cāraṇaloka; *āliṅgya*—embracing; *aṅkīkṛtām*—sitting on his lap; *devīm*—his wife, Pārvatī; *bāhunā*—with his arm; *muni-saṁsadi*—in the presence of great saintly persons; *uvāca*—he said; *devyāḥ*—while the goddess Pārvatī; *śṛṇvantyāḥ*—was hearing; *jahāsa*—he laughed; *uccaiḥ*—very loudly; *tad-antike*—in the vicinity.

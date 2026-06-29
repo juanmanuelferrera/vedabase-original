@@ -1,9 +1,9 @@
 ### CC Madhya 7.140
 
-> অনেক প্রকার বিলাপ করিতে লাগিলা ।
+> অনেক প্রকার বিলাপ করিতে লাগিলা ।\
 > সেইক্ষণে আসি’ প্রভু তাঁরে আলিঙ্গিলা ॥১৪০॥
 
-> aneka prakāra vilāpa karite lāgilā
+> aneka prakāra vilāpa karite lāgilā\
 > sei-kṣaṇe āsi' prabhu tāṅre āliṅgilā
 
 *aneka prakāra*—various kinds; *vilāpa*—lamentation; *karite*—to do; *lāgilā*—began; *sei-kṣaṇe*—immediately; *āsi'*—coming back; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—him; *āliṅgilā*—embraced.

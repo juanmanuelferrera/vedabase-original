@@ -1,11 +1,11 @@
 ### SB 4.22.14
 
-> भवत्सु कुशलप्रश्न आत्मारामेषु नेष्यते ।
+> भवत्सु कुशलप्रश्न आत्मारामेषु नेष्यते ।\
 > कुशलाकुशला यत्र न सन्ति मतिवृत्तयः ॥१४॥
 
-> bhavatsu kuśala-praśna
-> ātmārāmeṣu neṣyate
-> kuśalākuśalā yatra
+> bhavatsu kuśala-praśna\
+> ātmārāmeṣu neṣyate\
+> kuśalākuśalā yatra\
 > na santi mati-vṛttayaḥ
 
 *bhavatsu*—a ustedes; *kuśala*—buena fortuna; *praśnaḥ*—pregunta; *ātma-ārāmeṣu*—aquel que está siempre absorto en bienaventuranza transcendental; *na iṣyate*—no es necesario; *kuśala*—buena fortuna; *akuśalāḥ*—lo no auspicioso; *yatra*—donde; *na*—nunca; *santi*—existe; *mati-vṛttayaḥ*—invención mental.

@@ -1,18 +1,18 @@
 ### SB 7.15.38-39
 
-> गृहस्थस्य क्रियात्यागो व्रतत्यागो वटोरपि
-> तपस्विनो ग्रामसेवा भिक्षोरिन्द्रियलोलता ॥३८॥
-> आश्रमापसदा ह्येते खल्वाश्रमविडम्बनाः
+> गृहस्थस्य क्रियात्यागो व्रतत्यागो वटोरपि\
+> तपस्विनो ग्रामसेवा भिक्षोरिन्द्रियलोलता ॥३८॥\
+> आश्रमापसदा ह्येते खल्वाश्रमविडम्बनाः\
 > देवमायाविमूढांस्तानुपेक्षेतानुकम्पया ॥३९॥
 
-> gṛhasthasya kriyā-tyāgo
-> vrata-tyāgo vaṭorapi
-> tapasvino grāma-sevā
+> gṛhasthasya kriyā-tyāgo\
+> vrata-tyāgo vaṭorapi\
+> tapasvino grāma-sevā\
 > bhikṣor indriya-lolatā
 
-> āśramāpasadā hy ete
-> khalv āśrama-viḍambanāḥ
-> deva-māyā-vimūḍhāṁs tān
+> āśramāpasadā hy ete\
+> khalv āśrama-viḍambanāḥ\
+> deva-māyā-vimūḍhāṁs tān\
 > upekṣetānukampayā
 
 *gṛhasthasya*—para la persona situada en la vida familiar; *kriyā-tyāgaḥ*—abandonar el deber de un casado; *vrata-tyāgaḥ*—abandonar los votos y la austeridad; *vaṭoḥ*—para un *brahmacārī*; *api*—también; *tapasvinaḥ*—para un *vānaprastha*, el que ha aceptado una vida de austeridades; *grāma-sevā*—vivir en un pueblo y servir a la gente del lugar; *bhikṣoḥ*—para el *sannyāsī* que vive de limosnas; *indriya-lolatā*—adicto a la complacencia de los sentidos; *āśrama*—de las órdenes de vida espiritual; *apasadāḥ*—las más abominables; *hi*—en verdad; *ete*—todas esas; *khalu*—en verdad; *āśrama-viḍambanāḥ*—imitar las distintas órdenes, y, por lo tanto, engañar; *deva-māyā-vimūḍhān*—que están confundidos por la energía externa del Señor Supremo; *tān*—a ellos; *upekṣeta*—se debe rechazar sin considerar auténticos; *anukampayā*—o por compasión (enseñarles la verdadera vida).

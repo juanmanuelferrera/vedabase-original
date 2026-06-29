@@ -1,9 +1,9 @@
 ### CC Adi 17.24
 
-> ‘কেবল’ শব্দে পুনরপি নিশ্চয়-করণ ।
+> ‘কেবল’ শব্দে পুনরপি নিশ্চয়-করণ ।\
 > জ্ঞান-যোগ-তপ কর্ম-আদি নিবারণ ॥২৪॥
 
-> 'kevala'-śabde punarapi niścaya-karaṇa
+> 'kevala'-śabde punarapi niścaya-karaṇa\
 > jñāna-yoga-tapa-karma-ādi nivāraṇa
 
 *'kevala'-śabde*—by the word *kevala,* or "only"; *punarapi*—again; *niścaya-karaṇa*—final decision; *jñāna*—cultivation of knowledge; *yoga*—practice of the mystic *yoga* system; *tapa*—austerity; *karma*—fruitive activities; *ādi*—and so on; *nivāraṇa*—prohibition.

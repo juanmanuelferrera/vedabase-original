@@ -1,11 +1,11 @@
 ### SB 7.14.8
 
-> यावद्भ्रियेत जठरं तावत्स्वत्वं हि देहिनाम
+> यावद्भ्रियेत जठरं तावत्स्वत्वं हि देहिनाम\
 > अधिकं योऽभिमन्येत स स्तेनो दण्डमर्हति ॥८॥
 
-> yāvad bhriyeta jaṭharaṁ
-> tāvat svatvaṁ hi dehinām
-> adhikaṁ yo 'bhimanyeta
+> yāvad bhriyeta jaṭharaṁ\
+> tāvat svatvaṁ hi dehinām\
+> adhikaṁ yo 'bhimanyeta\
 > sa steno daṇḍam arhati
 
 *yāvat*—as much as; *bhriyeta*—may be filled; *jaṭharam*—the stomach; *tāvat*—that much; *svatvam*—proprietorship; *hi*—indeed; *dehinām*—of the living entities; *adhikam*—more than that; *yaḥ*—anyone who; *abhimanyeta*—may accept; *saḥ*—he; *stenaḥ*—a thief; *daṇḍam*—punishment; *arhati*—deserves.

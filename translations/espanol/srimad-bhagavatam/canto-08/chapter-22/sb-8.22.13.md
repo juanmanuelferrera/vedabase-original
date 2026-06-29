@@ -1,11 +1,11 @@
 ### SB 8.22.13
 
-> तमिन्द्रसेनः स्वपितामहं श्रिया विराजमानं नलिनायतेक्षणम
+> तमिन्द्रसेनः स्वपितामहं श्रिया विराजमानं नलिनायतेक्षणम\
 > प्रांशुं पिशङ्गाम्बरमञ्जनत्विषं प्रलम्बबाहुं शुभगर्षभमैक्षत ॥१३॥
 
-> tam indra-senaḥ sva-pitāmahaṁ śriyā
-> virājamānaṁ nalināyatekṣaṇam
-> prāṁśuṁ piśaṅgāmbaram añjana-tviṣaṁ
+> tam indra-senaḥ sva-pitāmahaṁ śriyā\
+> virājamānaṁ nalināyatekṣaṇam\
+> prāṁśuṁ piśaṅgāmbaram añjana-tviṣaṁ\
 > pralamba-bāhuṁ śubhagarṣabham aikṣata
 
 *tam*—a Prahlāda Mahārāja; *indra-senaḥ*—Bali Mahārāja, que poseía todo el poderío militar de Indra; *sva-pitāmaham*—a su abuelo; *śriyā*—presente con sus hermosos rasgos; *virājamānam*—que estaba de pie; *nalina-āyata-īkṣaṇam*—con ojos tan anchos como los pétalos de una flor de loto; *prāṁśum*—un cuerpo muy hermoso; *piśaṅga-ambaram*—vestido con ropas amarillas; *añjana-tviṣam*—con su cuerpo, cuyo color recordaba el cosmético negro para los ojos; *pralamba-bāhum*—brazos muy largos; *śubhaga-ṛṣabham*—a la mejor de todas las personas auspiciosas; *aikṣata*—él vio.

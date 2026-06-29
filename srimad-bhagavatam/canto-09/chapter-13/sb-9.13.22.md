@@ -1,11 +1,11 @@
 ### SB 9.13.22
 
-> शुचिस्तु तनयस्तस्मात्सनद्वाजः सुतोऽभवत
+> शुचिस्तु तनयस्तस्मात्सनद्वाजः सुतोऽभवत\
 > ऊर्जकेतुः सनद्वाजादजोऽथ पुरुजित्सुतः ॥२२॥
 
-> śucis tu tanayas tasmāt
-> sanadvājaḥ suto 'bhavat
-> ūrjaketuḥ sanadvājād
+> śucis tu tanayas tasmāt\
+> sanadvājaḥ suto 'bhavat\
+> ūrjaketuḥ sanadvājād\
 > ajo 'tha purujit sutaḥ
 
 *śuciḥ*—Śuci; *tu*—but; *tanayaḥ*—a son; *tasmāt*—from him; *sanadvājaḥ*—Sanadvāja; *sutaḥ*—a son; *abhavat*—was born; *ūrjaketuḥ*—Ūrjaketu; *sanadvājāt*—from Sanadvāja; *ajaḥ*—Aja; *atha*—thereafter; *purujit*—Purujit; *sutaḥ*—a son.

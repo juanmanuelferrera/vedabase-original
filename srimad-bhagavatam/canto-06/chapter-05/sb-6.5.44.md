@@ -1,13 +1,13 @@
 ### SB 6.5.44
 
-> श्रीशुक उवाच
-> प्रतिजग्राह तद्बाढं नारदः साधुसम्मतः
+> श्रीशुक उवाच\
+> प्रतिजग्राह तद्बाढं नारदः साधुसम्मतः\
 > एतावान्साधुवादो हि तितिक्षेतेश्वरः स्वयम ॥४४॥
 
-> śrī-śuka uvāca
-> pratijagrāha tad bāḍhaṁ
-> nāradaḥ sādhu-sammataḥ
-> etāvān sādhu-vādo hi
+> śrī-śuka uvāca\
+> pratijagrāha tad bāḍhaṁ\
+> nāradaḥ sādhu-sammataḥ\
+> etāvān sādhu-vādo hi\
 > titikṣeteśvaraḥ svayam
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *pratijagrāha*—accepted; *tat*—that; *bāḍham*—so be it; *nāradaḥ*—Nārada Muni; *sādhu-sammataḥ*—who is an approved *sādhu*; *etāvān*—this much; *sādhu-vādaḥ*—appropriate for a saintly person; *hi*—indeed; *titikṣeta*—he may tolerate; *īśvaraḥ*—although able to curse Prajāpati Dakṣa; *svayam*—himself.

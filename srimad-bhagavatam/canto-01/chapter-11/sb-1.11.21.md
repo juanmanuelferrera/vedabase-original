@@ -1,11 +1,11 @@
 ### SB 1.11.21
 
-> भगवांस्तत्र बन्धूनां पौराणामनुवर्तिनाम् ।
+> भगवांस्तत्र बन्धूनां पौराणामनुवर्तिनाम् ।\
 > यथाविध्युपसङ्गम्य सर्वेषां मानमादधे ॥२१॥
 
-> bhagavāṁs tatra bandhūnāṁ
-> paurāṇām anuvartinām
-> yathā-vidhy upasaṅgamya
+> bhagavāṁs tatra bandhūnāṁ\
+> paurāṇām anuvartinām\
+> yathā-vidhy upasaṅgamya\
 > sarveṣāṁ mānam ādadhe
 
 *bhagavān*—Śrī Kṛṣṇa, the Personality of Godhead; *tatra*—in that place; *bandhūnām*—of the friends; *paurāṇām*—of the citizens; *anuvartinām*—those who approached Him to receive and welcome; *yathā-vidhi*—as it behooves; *upasaṅgamya*—going nearer; *sarveṣām*—for each and every one; *mānam*—honor and respects; *ādadhe*—offered.

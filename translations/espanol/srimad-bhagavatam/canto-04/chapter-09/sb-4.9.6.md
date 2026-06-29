@@ -1,15 +1,15 @@
 ### SB 4.9.6
 
-> ध्रुव उवाच
-> योऽन्तः प्रविश्य मम वाचमिमां प्रसुप्तां
-> सञ्जीवयत्यखिलशक्तिधरः स्वधाम्ना ।
-> अन्यांश्च हस्तचरणश्रवणत्वगादीन्
+> ध्रुव उवाच\
+> योऽन्तः प्रविश्य मम वाचमिमां प्रसुप्तां\
+> सञ्जीवयत्यखिलशक्तिधरः स्वधाम्ना ।\
+> अन्यांश्च हस्तचरणश्रवणत्वगादीन्\
 > प्राणान्नमो भगवते पुरुषाय तुभ्यम् ॥६॥
 
-> dhruva uvāca
-> yo 'ntaḥ praviśya mama vācam imāṁ prasuptāṁ
-> sañjīvayaty akhila-śakti-dharaḥ sva-dhāmnā
-> anyāṁś ca hasta-caraṇa-śravaṇa-tvag-ādīn
+> dhruva uvāca\
+> yo 'ntaḥ praviśya mama vācam imāṁ prasuptāṁ\
+> sañjīvayaty akhila-śakti-dharaḥ sva-dhāmnā\
+> anyāṁś ca hasta-caraṇa-śravaṇa-tvag-ādīn\
 > prāṇān namo bhagavate puruṣāya tubhyam
 
 *dhruvaḥ uvāca*—Dhruva Mahārāja dijo; *yaḥ*—el Señor Supremo, que; *antaḥ*—dentro; *praviśya*—entrar; *mama*—mis; *vācam*—palabras; *imām*—todos estos; *prasuptām*—que están inactivos o muertos; *sañjīvayati*—rejuvenece; *akhila*—universal; *śakti*—energía; *dharaḥ*—poseyendo; *sva-dhāmnā*—por Su potencia interna; *anyān ca*—otros miembros también; *hasta*—como las manos; *caraṇa*—las piernas; *śravaṇa*—los oídos; *tvak*—la piel; *ādīn*—etcétera; *prāṇān*—la fuerza vital; *namaḥ*—ruego aceptes mis reverencias; *bhagavate*—a la Suprema Personalidad de Dios; *puruṣāya*—la Persona Suprema; *tubhyam*—a Ti.

@@ -1,11 +1,11 @@
 ### SB 3.31.6
 
-> कृमिभिः क्षतसर्वाङ्गः सौकुमार्यात्प्रतिक्षणम् ।
+> कृमिभिः क्षतसर्वाङ्गः सौकुमार्यात्प्रतिक्षणम् ।\
 > मूर्च्छामाप्नोत्युरुक्लेशस्तत्रत्यैः क्षुधितैर्मुहुः ॥६॥
 
-> kṛmibhiḥ kṣata-sarvāṅgaḥ
-> saukumāryāt pratikṣaṇam
-> mūrcchām āpnoty uru-kleśas
+> kṛmibhiḥ kṣata-sarvāṅgaḥ\
+> saukumāryāt pratikṣaṇam\
+> mūrcchām āpnoty uru-kleśas\
 > tatratyaiḥ kṣudhitair muhuḥ
 
 *kṛmibhiḥ*—por gusanos; *kṣata*—mordido; *sarva-aṅgaḥ*—por todo el cuerpo; *saukumāryāt*—debido a la delicadeza; *prati-kṣaṇam*—a cada instante; *mūrcchām*—inconsciencia; *āpnoti*—obtiene; *uru-kleśaḥ*—cuyo sufrimiento es grande; *tatratyaiḥ*—que están ahí (en el abdomen); *kṣudhitaiḥ*—hambrientos; *muhuḥ*—una y otra vez.

@@ -1,11 +1,11 @@
 ### SB 8.18.15
 
-> ददौ कृष्णाजिनं भूमिर्दण्डं सोमो वनस्पतिः
+> ददौ कृष्णाजिनं भूमिर्दण्डं सोमो वनस्पतिः\
 > कौपीनाच्छादनं माता द्यौश्छत्रं जगतः पतेः ॥१५॥
 
-> dadau kṛṣṇājinaṁ bhūmir
-> daṇḍaṁ somo vanaspatiḥ
-> kaupīnācchādanaṁ mātā
+> dadau kṛṣṇājinaṁ bhūmir\
+> daṇḍaṁ somo vanaspatiḥ\
+> kaupīnācchādanaṁ mātā\
 > dyauś chatraṁ jagataḥ pateḥ
 
 *dadau*—dio, ofreció; *kṛṣṇa-ajinam*—la piel de un ciervo; *bhūmiḥ*—madre Tierra; *daṇḍaṁ*—un bastón de *brahmacārī*; *somaḥ*—el dios de la Luna; *vanaḥ-patiḥ*—el rey de los bosques; *kaupīna*—la ropa interior; *ācchādanam*—que cubre el cuerpo; *mātā*—Su madre, Aditi; *dyauḥ*—el reino celestial; *chatram*—una sombrilla; *jagataḥ*—de todo el universo; *pateḥ*—del amo.

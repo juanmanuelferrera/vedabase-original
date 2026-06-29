@@ -1,9 +1,9 @@
 ### CC Madhya 17.79
 
-> অধম-কাকেরে কৈলা গরুড়-সমান ।
+> অধম-কাকেরে কৈলা গরুড়-সমান ।\
 > ‘স্বতন্ত্র ঈশ্বর’ তুমি — স্বয়ং ভগবান্ ” ॥ ৭৯ ॥
 
-> adhama-kākere kailā garuḍa-samāna
+> adhama-kākere kailā garuḍa-samāna\
 > 'svatantra īśvara' tumi—svayaṁ bhagavān"
 
 *adhama-kākere*—the most condemned crow; *kailā*—You have made; *garuḍa-samāna*—like Garuḍa; *svatantra*—independent; *īśvara*—Supreme Personality of Godhead; *tumi*—You; *svayam bhagavān*—the original Personality of Godhead.

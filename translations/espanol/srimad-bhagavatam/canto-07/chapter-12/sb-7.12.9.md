@@ -1,11 +1,11 @@
 ### SB 7.12.9
 
-> नन्वग्निः प्रमदा नाम घृतकुम्भसमः पुमान
+> नन्वग्निः प्रमदा नाम घृतकुम्भसमः पुमान\
 > सुतामपि रहो जह्यादन्यदा यावदर्थकृत ॥९॥
 
-> nanv agniḥ pramadā nāma
-> ghṛta-kumbha-samaḥ pumān
-> sutām api raho jahyād
+> nanv agniḥ pramadā nāma\
+> ghṛta-kumbha-samaḥ pumān\
+> sutām api raho jahyād\
 > anyadā yāvad-artha-kṛt
 
 *nanu*—ciertamente; *agniḥ*—el fuego; *pramadā*—la mujer (la que confunde la mente del hombre); *nāma*—el mismo nombre; *ghṛta-kumbha*—un pote de mantequilla; *samaḥ*—como; *pumān*—un hombre; *sutām api*—incluso la propia hija; *rahaḥ*—a solas en un lugar apartado; *jahyāt*—no hay que relacionarse con; *anyadā*—también con otras mujeres; *yāvat*—tanto como; *artha-kṛt*—necesario.

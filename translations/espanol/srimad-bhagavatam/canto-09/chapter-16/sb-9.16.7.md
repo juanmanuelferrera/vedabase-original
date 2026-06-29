@@ -1,11 +1,11 @@
 ### SB 9.16.7
 
-> वरेण च्छन्दयामास प्रीतः सत्यवतीसुतः
+> वरेण च्छन्दयामास प्रीतः सत्यवतीसुतः\
 > वव्रे हतानां रामोऽपि जीवितं चास्मृतिं वधे ॥७॥
 
-> vareṇa cchandayām āsa
-> prītaḥ satyavatī-sutaḥ
-> vavre hatānāṁ rāmo 'pi
+> vareṇa cchandayām āsa\
+> prītaḥ satyavatī-sutaḥ\
+> vavre hatānāṁ rāmo 'pi\
 > jīvitaṁ cāsmṛtiṁ vadhe
 
 *vareṇa cchandayām āsa*—invitado a pedir la bendición que desease; *prītaḥ*—muy complacido (con él); *satyavatī-sutaḥ*—Jamadagni, el hijo de Satyavatī; *vavre*—dijo; *hatānām*—de mi madre y mis hermanos muertos; *rāmaḥ*—Paraśurāma; *api*—también; *jīvitam*—que vivan; *ca*—también; *asmṛtim*—sin recuerdo; *vadhe*—de haber sido matados por mí.

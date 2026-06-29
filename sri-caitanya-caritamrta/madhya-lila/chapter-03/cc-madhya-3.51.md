@@ -1,9 +1,9 @@
 ### CC Madhya 3.51
 
-> বত্তিশা-আঠিয়া কলার ডোঙ্গা বড় বড় ।
+> বত্তিশা-আঠিয়া কলার ডোঙ্গা বড় বড় ।\
 > চলে হালে নাহি, — ডোঙ্গা অতি বড় দড় ॥৫১॥
 
-> battiśā-āṭhiyā kalāra ḍoṅgā baḍa baḍa
+> battiśā-āṭhiyā kalāra ḍoṅgā baḍa baḍa\
 > cale hāle nāhi,—ḍoṅgā ati baḍa daḍa
 
 *battiśā-āṭhiyā*—producing thirty-two bunches of bananas; *kalāra*—of the banana tree; *ḍoṅgā*—pots made of leaves; *baḍa baḍa*—big; *cale hāle nāhi*—they did not tilt or totter; *ḍoṅgā*—pots; *ati*—very; *baḍa*—big; *daḍa*—strong.

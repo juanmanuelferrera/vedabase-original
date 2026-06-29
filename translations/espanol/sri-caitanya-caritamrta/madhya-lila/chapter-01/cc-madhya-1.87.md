@@ -1,9 +1,9 @@
 ### CC Madhya 1.87
 
-> রাধিকা-উন্মাদ যৈছে উদ্ধব-দর্শনে ।
+> রাধিকা-উন্মাদ যৈছে উদ্ধব-দর্শনে ।\
 > উদ্ঘূর্ণা-প্রলাপ তৈছে প্রভুর রাত্রি-দিনে ॥৮৭॥
 
-> rādhikā-unmāda yaiche uddhava-darśane
+> rādhikā-unmāda yaiche uddhava-darśane\
 > udghūrṇā-pralāpa taiche prabhura rātri-dine
 
 *rādhikā-unmāda*—la locura de Śrīmatī Rādhārāṇī; *yaiche*—así como; *uddhava-darśane*—al ver a Uddhava; *udghūrṇā-pralāpa*—hablar inconsistentemente en la locura; *taiche*—del mismo modo; *prabhura*—del Señor Caitanya; *rātri-dine*—noche y día.

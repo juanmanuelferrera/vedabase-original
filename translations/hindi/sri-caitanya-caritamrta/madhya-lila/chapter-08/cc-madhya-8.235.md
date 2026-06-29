@@ -2,7 +2,7 @@
 
 > বিদায়-সময়ে প্রভুর চরণে ধরিয়া । রামানন্দ রায় কহে বিনতি করিয়া । ‘মোরে কৃপা করিতে তোমার ইহাঁ আগমন । দিন দশ রহি’ শোধ মোর দুষ্ট মন । তোমা বিনা অন্য নাহি জীব উদ্ধারিতে । তোমা বিনা অন্য নাহি কৃষ্ণপ্রেম দিতে ।।’ ॥২৩৫॥
 
-> vidāya-samaye prabhura caraṇe dhariyā
+> vidāya-samaye prabhura caraṇe dhariyā\
 > rāmānanda rāya kahe vinati kariyā
 
 *vidāya-samaye*—विदाई के समय; *prabhura caraṇe*—भगवान् श्रीचैतन्य महाप्रभु के चरणकमल; *dhariyā*—पकड़कर; *rāmānanda rāya*—रामानन्द राय; *kahe*—कहते हैं; *vinati kariyā*—अत्यन्त विनम्रता के साथ।

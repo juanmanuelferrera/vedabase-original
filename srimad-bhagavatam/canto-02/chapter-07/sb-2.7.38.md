@@ -1,13 +1,13 @@
 ### SB 2.7.38
 
-> यर्ह्यालयेष्वपि सतां न हरेः कथाः स्युः
-> पाषण्डिनो द्विजजना वृषला नृदेवाः ।
-> स्वाहा स्वधा वषडिति स्म गिरो न यत्र
+> यर्ह्यालयेष्वपि सतां न हरेः कथाः स्युः\
+> पाषण्डिनो द्विजजना वृषला नृदेवाः ।\
+> स्वाहा स्वधा वषडिति स्म गिरो न यत्र\
 > शास्ता भविष्यति कलेर्भगवान्युगान्ते ॥३८॥
 
-> yarhy ālayeṣv api satāṁ na hareḥ kathāḥ syuḥ
-> pāṣaṇḍino dvija-janā vṛṣalā nṛdevāḥ
-> svāhā svadhā vaṣaḍ iti sma giro na yatra
+> yarhy ālayeṣv api satāṁ na hareḥ kathāḥ syuḥ\
+> pāṣaṇḍino dvija-janā vṛṣalā nṛdevāḥ\
+> svāhā svadhā vaṣaḍ iti sma giro na yatra\
 > śāstā bhaviṣyati kaler bhagavān yugānte
 
 *yarhi*—when it happens; *ālayeṣu*—in the residence of; *api*—even; *satām*—civilized gentlemen; *na*—no; *hareḥ*—of the Personality of Godhead; *kathāḥ*—topics; *syuḥ*—will take place; *pāṣaṇḍinaḥ*—atheists; *dvija-janāḥ*—persons declaring themselves to be the higher three classes (*brāhmaṇas, kṣatriyas* and *vaiśyas*); *vṛṣalāḥ*—the lower class *śūdras*; *nṛ-devāḥ*—ministers of the government; *svāhā*—hymns to perform sacrifices; *svadhā*—the ingredients to perform sacrifices; *vaṣaṭ*—the altar of sacrifice; *iti*—all these; *sma*—shall; *giraḥ*—words; *na*—never; *yatra*—anywhere; *śāstā*—the chastiser; *bhaviṣyati*—will appear; *kaleḥ*—of the Kali age; *bhagavān*—the Personality of Godhead; *yuga-ante*—at the end of.

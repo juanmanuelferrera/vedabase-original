@@ -1,11 +1,11 @@
 ### SB 8.13.36
 
-> राजंश्चतुर्दशैतानि त्रिकालानुगतानि ते
+> राजंश्चतुर्दशैतानि त्रिकालानुगतानि ते\
 > प्रोक्तान्येभिर्मितः कल्पो युगसाहस्रपर्ययः ॥३६॥
 
-> rājaṁś caturdaśaitāni
-> tri-kālānugatāni te
-> proktāny ebhir mitaḥ kalpo
+> rājaṁś caturdaśaitāni\
+> tri-kālānugatāni te\
+> proktāny ebhir mitaḥ kalpo\
 > yuga-sāhasra-paryayaḥ
 
 *rājan*—¡oh, rey!; *caturdaśa*—catorce; *etāni*—todos estos; *tri-kāla*—los tres períodos de tiempo (pasado, presente y futuro); *anugatāni*—cubrir; *te*—a ti; *proktāni*—explicados; *ebhiḥ*—por esos; *mitaḥ*—calculado; *kalpaḥ*—un día de Brahmā; *yuga-sāhasra*—mil ciclos de cuatro *yugas*; *paryayaḥ*—que comprende.

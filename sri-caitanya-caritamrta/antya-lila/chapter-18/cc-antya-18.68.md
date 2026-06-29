@@ -1,9 +1,9 @@
 ### CC Antya 18.68
 
-> জালিয়া কহে, — “প্রভুরে দেখ্যাছোঁ বারবার ।
+> জালিয়া কহে, — “প্রভুরে দেখ্যাছোঁ বারবার ।\
 > তেঁহো নহেন, এই অতিবিকৃত আকার ।।” ॥ ৬৮ ॥
 
-> jāliyā kahe,—"prabhure dekhyāchoṅ bāra-bāra
+> jāliyā kahe,—"prabhure dekhyāchoṅ bāra-bāra\
 > teṅho nahena, ei ati-vikṛta ākāra"
 
 *jāliyā kahe*—the fisherman said; *prabhure*—Lord Śrī Caitanya Mahāprabhu; *dekhyāchoṅ*—I have seen; *bāra-bāra*—many times; *teṅho*—He; *nahena*—it is not; *ei*—this; *ati-vikṛta*—very deformed; *ākāra*—body.

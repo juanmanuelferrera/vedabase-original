@@ -1,11 +1,11 @@
 ### CC Madhya 6.108
 
-> যচ্ছক্তয়ো বদতাং বাদিনাং বৈ, বিবাদ-সংবাদ-ভুবো ভবন্তি ।
+> যচ্ছক্তয়ো বদতাং বাদিনাং বৈ, বিবাদ-সংবাদ-ভুবো ভবন্তি ।\
 > কুর্বন্তি চৈষাং মুহুরাত্মমোহং, তস্মৈ নমোঽনন্তগুণায় ভূম্নে ॥১০৮॥
 
-> yac-chaktayo vadatāṁ vādināṁ vai
-> vivāda-saṁvāda-bhuvo bhavanti
-> kurvanti caiṣāṁ muhur ātma-mohaṁ
+> yac-chaktayo vadatāṁ vādināṁ vai\
+> vivāda-saṁvāda-bhuvo bhavanti\
+> kurvanti caiṣāṁ muhur ātma-mohaṁ\
 > tasmai namo 'nanta-guṇāya bhūmne
 
 *yat*—whose; *śaktayaḥ*—potencies; *vadatām*—contending; *vādinām*—of the opposing disputants; *vai*—indeed; *vivāda*—of opposition; *saṁvāda*—of agreement; *bhuvaḥ*—objects; *bhavanti*—become; *kurvanti*—do; *ca*—also; *eṣām*—of them; *muhuḥ*—always; *ātma-moham*—illusion of the self; *tasmai*—unto Him; *namaḥ*—obeisances; *ananta*—unlimited; *guṇāya*—who has qualities; *bhūmne*—the Supreme.

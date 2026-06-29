@@ -1,9 +1,9 @@
 ### CC Madhya 13.94
 
-> নৃত্যাবেশে শ্রীনিবাস কিছুই না জানে  ।
+> নৃত্যাবেশে শ্রীনিবাস কিছুই না জানে  ।\
 > বার বার ঠেলে, তেঁহো ক্রোধ হৈল মনে ॥৯৪॥
 
-> nṛtyāveśe śrīnivāsa kichui nā jāne
+> nṛtyāveśe śrīnivāsa kichui nā jāne\
 > bāra bāra ṭhele, teṅho krodha haila mane
 
 *nṛtya-āveśe*—fully absorbed in seeing the dancing of Śrī Caitanya Mahāprabhu; *śrīnivāsa*—Śrīvāsa Ṭhākura; *kichui*—anything; *nā*—does not; *jāne*—know; *bāra bāra*—again and again; *ṭhele*—when he pushes; *teṅho*—Śrīvāsa; *krodha*—angry; *haila*—became; *mane*—in the mind.

@@ -1,11 +1,11 @@
 ### CC Madhya 19.150
 
-> মুক্তানামপি সিদ্ধানাং নারায়ণপরায়ণঃ ।
+> মুক্তানামপি সিদ্ধানাং নারায়ণপরায়ণঃ ।\
 > সুদুর্লভঃ প্রশান্তাত্মা কোটিষ্বপি মহামুনে ॥১৫০॥
 
-> muktānām api siddhānāṁ
-> nārāyaṇa-parāyaṇaḥ
-> sudurlabhaḥ praśāntātmā
+> muktānām api siddhānāṁ\
+> nārāyaṇa-parāyaṇaḥ\
+> sudurlabhaḥ praśāntātmā\
 > koṭiṣv api mahā-mune
 
 *muktānām*—of persons liberated or freed from the bondage of ignorance; *api*—even; *siddhānām*—of persons who have achieved perfection; *nārāyaṇa*—of the Supreme Personality of Godhead; *parāyaṇaḥ*—the devotee; *su-durlabhaḥ*—very rare; *praśānta-ātmā*—completely satisfied, desireless; *koṭiṣu*—among many millions; *api*—certainly; *mahā-mune*—O great sage.

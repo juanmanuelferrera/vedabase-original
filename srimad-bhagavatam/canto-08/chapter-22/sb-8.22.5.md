@@ -1,11 +1,11 @@
 ### SB 8.22.5
 
-> त्वं नूनमसुराणां नः परोक्षः परमो गुरुः
+> त्वं नूनमसुराणां नः परोक्षः परमो गुरुः\
 > यो नोऽनेकमदान्धानां विभ्रंशं चक्षुरादिशत ॥५॥
 
-> tvaṁ nūnam asurāṇāṁ naḥ
-> parokṣaḥ paramo guruḥ
-> yo no 'neka-madāndhānāṁ
+> tvaṁ nūnam asurāṇāṁ naḥ\
+> parokṣaḥ paramo guruḥ\
+> yo no 'neka-madāndhānāṁ\
 > vibhraṁśaṁ cakṣur ādiśat
 
 *tvam*—Your Lordship; *nūnam*—indeed; *asurāṇām*—of the demons; *naḥ*—as we are; *parokṣaḥ*—indirect; *paramaḥ*—the supreme; *guruḥ*—spiritual master; *yaḥ*—Your Lordship; *naḥ*—of us; *aneka*—many; *mada-andhānām*—blinded by material opulences; *vibhraṁśam*—destroying our false prestige; *cakṣuḥ*—the eye of knowledge; *ādiśat*—gave.

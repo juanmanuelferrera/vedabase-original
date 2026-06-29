@@ -1,9 +1,9 @@
 ### CC Antya 4.217
 
-> দুই ভাই মিলি’ বৃন্দাবনে বাস কৈলা ।
+> দুই ভাই মিলি’ বৃন্দাবনে বাস কৈলা ।\
 > প্রভুর যে আজ্ঞা, দুঁহে সব নির্বাহিলা ॥২১৭॥
 
-> dui bhāi mili' vṛndāvane vāsa kailā
+> dui bhāi mili' vṛndāvane vāsa kailā\
 > prabhura ye ājñā, duṅhe saba nirvāhilā
 
 *dui bhāi*—ambos hermanos; *mili'*—reuniéndose; *vṛndāvane*—en Vṛndāvana; *vāsa kailā*—residieron; *prabhura ye ājñā*—lo que Śrī Caitanya Mahāprabhu ordenó; *duṅhe*—ambos; *saba*—todo; *nirvāhilā*—ejecutaron.

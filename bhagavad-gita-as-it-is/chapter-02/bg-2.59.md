@@ -1,11 +1,11 @@
 ### Bg 2.59
 
-> विषया विनिवर्तन्ते निराहारस्य देहिनः ।
+> विषया विनिवर्तन्ते निराहारस्य देहिनः ।\
 > रसवर्जं रसोऽप्यस्य परं दृष्ट्वा निवर्तते ॥५९॥
 
-> viṣayā vinivartante
-> nirāhārasya dehinaḥ
-> rasa-varjaṁ raso 'py asya
+> viṣayā vinivartante\
+> nirāhārasya dehinaḥ\
+> rasa-varjaṁ raso 'py asya\
 > paraṁ dṛṣṭvā nivartate
 
 *viṣayāḥ*—objects for sense enjoyment; *vinivartante*—are practiced to be refrained from; *nirāhārasya*—by negative restrictions; *dehinaḥ*—for the embodied; *rasa-varjam*—giving up the taste; *rasaḥ*—sense of enjoyment; *api*—although there is; *asya*—his; *param*—far superior things; *dṛṣṭvā*—by experiencing; *nivartate*—ceases from.

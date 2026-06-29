@@ -1,9 +1,9 @@
 ### CC Antya 3.165
 
-> হরিদাস-ঠাকুর চলি’ আইলা চান্দপুরে ।
+> হরিদাস-ঠাকুর চলি’ আইলা চান্দপুরে ।\
 > আসিয়া রহিলা বলরাম-আচার্যের ঘরে ॥১৬৫॥
 
-> haridāsa-ṭhākura cali' āilā cāndapure
+> haridāsa-ṭhākura cali' āilā cāndapure\
 > āsiyā rahilā balarāma-ācāryera ghare
 
 *haridāsa-ṭhākura*—Haridāsa Ṭhākura; *cali'*—caminando; *āilā*—llegó; *cāndapure*—a la aldea conocida como Cāndapura; *āsiyā*—al llegar; *rahilā*—permaneció; *balarāma-ācāryera ghare*—en la residencia de Balarāma Ācārya.

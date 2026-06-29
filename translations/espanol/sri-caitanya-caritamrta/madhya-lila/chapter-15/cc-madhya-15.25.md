@@ -1,9 +1,9 @@
 ### CC Madhya 15.25
 
-> অলাত-চক্রের প্রায় লগুড় ফিরায় ।
+> অলাত-চক্রের প্রায় লগুড় ফিরায় ।\
 > দেখি’ সর্বলোক-চিত্তে চমত্কার পায় ॥২৫॥
 
-> alāta-cakrera prāya laguḍa phirāya
+> alāta-cakrera prāya laguḍa phirāya\
 > dekhi' sarva-loka-citte camatkāra pāya
 
 *alāta-cakrera*—el círculo de un tizón encendido; *prāya*—como; *laguḍa phirāya*—hace girar la vara; *dekhi'*—al ver; *sarva-loka*—todas las personas; *citte*—en el corazón; *camatkāra pāya*—quedaron muy asombradas.

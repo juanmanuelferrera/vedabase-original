@@ -1,9 +1,9 @@
 ### CC Adi 7.71
 
-> প্রভু কহে — শুন, শ্রীপাদ, ইহার কারণ ।
+> প্রভু কহে — শুন, শ্রীপাদ, ইহার কারণ ।\
 > গুরু মোরে মূর্খ দেখি’ করিল শাসন ॥৭১॥
 
-> prabhu kahe—śuna, śrīpāda, ihāra kāraṇa
+> prabhu kahe—śuna, śrīpāda, ihāra kāraṇa\
 > guru more mūrkha dekhi' karila śāsana
 
 *prabhu kahe*—the Lord replied; *śuna*—kindly hear; *śrīpāda*—Your Holiness; *ihāra*—of this; *kāraṇa*—reason; *guru*—My spiritual master; *more*—Me; *mūrkha*—fool; *dekhi'*—understanding; *karila*—he did; *śāsana*—chastisement.

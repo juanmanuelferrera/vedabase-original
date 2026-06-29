@@ -1,9 +1,9 @@
 ### CC Madhya 6.269
 
-> ব্ৰহ্মে, ঈশ্বরে সাযুজ্য দুই ত’ প্রকার ।
+> ব্ৰহ্মে, ঈশ্বরে সাযুজ্য দুই ত’ প্রকার ।\
 > ব্রহ্ম-সাযুজ্য হৈতে ঈশ্বর-সাযুজ্য ধিক্কার ॥২৬৯॥
 
-> brahme, īśvare sāyujya dui ta' prakāra
+> brahme, īśvare sāyujya dui ta' prakāra\
 > brahma-sāyujya haite īśvara-sāyujya dhikkāra
 
 *brahme*—en la refulgencia del Brahman; *īśvare*—en el cuerpo del Señor; *sāyujya*—fusión; *dui*—dos; *ta'*—ciertamente; *prakāra*—variedades; *brahma-sāyujya*—fusión en la refulgencia del Brahman; *haite*—que; *īśvara-sāyujya*—fusión en el cuerpo del Señor; *dhikkāra*—más abominable.

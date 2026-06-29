@@ -1,13 +1,13 @@
 ### CC Antya 7.40
 
-> যত্তে সুজাতচরণাম্বুরুহং স্তনেষু
-> ভীতাঃ শনৈঃ প্রিয় দধীমহি কর্কশেষু ।
-> তেনাটবীমটসী তদ্ব্যথতে ন কিং স্বিৎ
+> যত্তে সুজাতচরণাম্বুরুহং স্তনেষু\
+> ভীতাঃ শনৈঃ প্রিয় দধীমহি কর্কশেষু ।\
+> তেনাটবীমটসী তদ্ব্যথতে ন কিং স্বিৎ\
 > কূর্পাদিভির্ভ্রমতি ধীর্ভবদায়ুষাং নঃ ॥৪০॥
 
-> yat te sujāta-caraṇāmburuhaṁ staneṣu
-> bhītāḥ śanaiḥ priya dadhīmahi karkaśeṣu
-> tenāṭavīm aṭasi tad vyathate na kiṁ svit
+> yat te sujāta-caraṇāmburuhaṁ staneṣu\
+> bhītāḥ śanaiḥ priya dadhīmahi karkaśeṣu\
+> tenāṭavīm aṭasi tad vyathate na kiṁ svit\
 > kūrpādibhir bhramati dhīr bhavad-āyuṣāṁ naḥ
 
 *yat*—los cuales; *te*—Tuyos; *sujāta*—muy delicados; *caraṇa-ambu-ruham*—pies de loto; *staneṣu*—sobre los pechos; *bhītāḥ*—con temor; *śanaiḥ*—suavemente; *priya*—¡oh, querido!; *dadhīmahi*—colocamos; *karkaśeṣu*—ásperos; *tena*—con ellos; *aṭavīm*—el sendero; *aṭasi*—vagas; *tat*—ellos; *vyathate*—sufren; *na*—no; *kim svit*—nos preguntamos; *kūrpa-ādibhiḥ*—por pequeñas piedras y demás; *bhramati*—se agita; *dhīḥ*—la mente; *bhavat-āyuṣām*—de aquellas para quienes Tu Señoría es la vida misma; *naḥ*—de nosotras.

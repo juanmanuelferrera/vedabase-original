@@ -1,9 +1,9 @@
 ### CC Madhya 10.166
 
-> 'brahmānanda' nāma tumi-gaura-brahma 'cala'
+> 'brahmānanda' nāma tumi-gaura-brahma 'cala'\
 > śyama-varṇa jagannātha vasiyāchena 'acala'
 
-> 'brahmānanda' nāma tumi-gaura-brahma 'cala'
+> 'brahmānanda' nāma tumi-gaura-brahma 'cala'\
 > śyama-varṇa jagannātha vasiyāchena 'acala'
 
 *brahmānanda*—Brahmānanda; *nāma tumi*—tu nombre; *gaura-brahma*—el Brahman de nombre Gaura; *cala*—ambos se mueven; *śyāma-varṇa*—de color oscuro; *jagannātha*—el Señor Jagannātha; *vasiyāchena*—está sentado; *acala*—sin movimiento.

@@ -1,11 +1,11 @@
 ### SB 4.25.42
 
-> कस्या मनस्ते भुवि भोगिभोगयोः स्त्रिया न सज्जेद्भुजयोर्महाभुज ।
+> कस्या मनस्ते भुवि भोगिभोगयोः स्त्रिया न सज्जेद्भुजयोर्महाभुज ।\
 > योऽनाथवर्गाधिमलं घृणोद्धत स्मितावलोकेन चरत्यपोहितुम् ॥४२॥
 
-> kasyā manas te bhuvi bhogi-bhogayoḥ
-> striyā na sajjed bhujayor mahā-bhuja
-> yo 'nātha-vargādhim alaṁ ghṛṇoddhata-
+> kasyā manas te bhuvi bhogi-bhogayoḥ\
+> striyā na sajjed bhujayor mahā-bhuja\
+> yo 'nātha-vargādhim alaṁ ghṛṇoddhata-\
 > smitāvalokena caraty apohitum
 
 *kasyāḥ*—whose; *manaḥ*—mind; *te*—your; *bhuvi*—in this world; *bhogi-bhogayoḥ*—like the body of a serpent; *striyāḥ*—of a woman; *na*—not; *sajjet*—becomes attracted; *bhujayoḥ*—by the arms; *mahā-bhuja*—O mighty-armed; *yaḥ*—one who; *anātha-vargā*—of poor women like me; *adhim*—distresses of the mind; *alam*—able; *ghṛṇā-uddhata*—by aggressive mercy; *smita-avalokena*—by attractive smiling; *carati*—travels; *apohitum*—to dissipate.

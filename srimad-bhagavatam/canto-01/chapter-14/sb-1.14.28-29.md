@@ -1,18 +1,18 @@
 ### SB 1.14.28-29
 
-> कच्चिद्राजाहुको जीवत्यसत्पुत्रोऽस्य चानुजः ।
-> हृदीकः ससुतोऽक्रूरो जयन्तगदसारणाः ॥२८॥
-> आसते कुशलं कच्चिद्ये च शत्रुजिदादयः ।
+> कच्चिद्राजाहुको जीवत्यसत्पुत्रोऽस्य चानुजः ।\
+> हृदीकः ससुतोऽक्रूरो जयन्तगदसारणाः ॥२८॥\
+> आसते कुशलं कच्चिद्ये च शत्रुजिदादयः ।\
 > कच्चिदास्ते सुखं रामो भगवान्सात्वतां प्रभुः ॥२९॥
 
-> kaccid rājāhuko jīvaty
-> asat-putro 'sya cānujaḥ
-> hṛdīkaḥ sasuto 'krūro
+> kaccid rājāhuko jīvaty\
+> asat-putro 'sya cānujaḥ\
+> hṛdīkaḥ sasuto 'krūro\
 > jayanta-gada-sāraṇāḥ
 
-> āsate kuśalaṁ kaccid
-> ye ca śatrujid-ādayaḥ
-> kaccid āste sukhaṁ rāmo
+> āsate kuśalaṁ kaccid\
+> ye ca śatrujid-ādayaḥ\
+> kaccid āste sukhaṁ rāmo\
 > bhagavān sātvatāṁ prabhuḥ
 
 *kaccit*—whether; *rājā*—the King; *āhukaḥ*—another name of Ugrasena; *jīvati*—still living; *asat*—mischievous; *putraḥ*—son; *asya*—his; *ca*—also; *anujaḥ*—younger brother; *hṛdīkaḥ*—Hṛdīka; *sa-sutaḥ*—along with son, Kṛtavarmā; *akrūraḥ*—Akrūra; *jayanta*—Jayanta; *gada*—Gada; *sāraṇāḥ*—Sāraṇa; *āsate*—are they all; *kuśalam*—in happiness; *kaccit*—whether; *ye*—they; *ca*—also; *śatrujit*—Śatrujit; *ādayaḥ*—headed by; *kaccit*—whether; *āste*—are they; *sukham*—all right; *rāmaḥ*—Balarāma; *bhagavān*—the Personality of Godhead; *sātvatām*—of the devotees; *prabhuḥ*—protector.

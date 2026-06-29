@@ -1,11 +1,11 @@
 ### SB 3.32.37
 
-> प्रावोचं भक्तियोगस्य स्वरूपं ते चतुर्विधम् ।
+> प्रावोचं भक्तियोगस्य स्वरूपं ते चतुर्विधम् ।\
 > कालस्य चाव्यक्तगतेर्योऽन्तर्धावति जन्तुषु ॥३७॥
 
-> prāvocaṁ bhakti-yogasya
-> svarūpaṁ te catur-vidham
-> kālasya cāvyakta-gater
+> prāvocaṁ bhakti-yogasya\
+> svarūpaṁ te catur-vidham\
+> kālasya cāvyakta-gater\
 > yo 'ntardhāvati jantuṣu
 
 *prāvocam*—explicado; *bhakti-yogasya*—del servicio devocional; *svarūpam*—la identidad; *te*—a ti; *catuḥ-vidham*—en cuatro divisiones; *kālasya*—del tiempo; *ca*—también; *avyakta-gateḥ*—cuyo movimiento es imperceptible; *yaḥ*—el cual; *antardhāvati*—acosa; *jantuṣu*—a las entidades vivientes.

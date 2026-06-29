@@ -1,11 +1,11 @@
 ### SB 4.29.85
 
-> अध्यात्मपारोक्ष्यमिदं मयाधिगतमद्भुतम् ।
+> अध्यात्मपारोक्ष्यमिदं मयाधिगतमद्भुतम् ।\
 > एवं स्त्रियाश्रमः पुंसश्छिन्नोऽमुत्र च संशयः ॥८५॥
 
-> adhyātma-pārokṣyam idaṁ
-> mayādhigatam adbhutam
-> evaṁ striyāśramaḥ puṁsaś
+> adhyātma-pārokṣyam idaṁ\
+> mayādhigatam adbhutam\
+> evaṁ striyāśramaḥ puṁsaś\
 > chinno 'mutra ca saṁśayaḥ
 
 *adhyātma*—espiritual; *pārokṣyam*—explicada por la autoridad; *idam*—esta; *mayā*—por mí; *adhigatam*—escuchada; *adbhutam*—maravillosa; *evam*—así; *striyā*—con una esposa; *āśramaḥ*—refugio; *puṁsaḥ*—de la entidad viviente; *chinnaḥ*—acabadas; *amutra*—acerca de la vida después de la muerte; *ca*—también; *saṁśayaḥ*—dudas.

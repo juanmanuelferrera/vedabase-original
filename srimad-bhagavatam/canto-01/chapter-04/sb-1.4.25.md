@@ -1,14 +1,14 @@
 ### SB 1.4.25
 
-> स्त्रीशूद्रद्विजबन्धूनां त्रयी न श्रुतिगोचरा ।
-> कर्मश्रेयसि मूढानां श्रेय एवं भवेदिह ।
+> स्त्रीशूद्रद्विजबन्धूनां त्रयी न श्रुतिगोचरा ।\
+> कर्मश्रेयसि मूढानां श्रेय एवं भवेदिह ।\
 > इति भारतमाख्यानं कृपया मुनिना कृतम् ॥२५॥
 
-> strī-śūdra-dvijabandhūnāṁ
-> trayī na śruti-gocarā
-> karma-śreyasi mūḍhānāṁ
-> śreya evaṁ bhaved iha
-> iti bhāratam ākhyānaṁ
+> strī-śūdra-dvijabandhūnāṁ\
+> trayī na śruti-gocarā\
+> karma-śreyasi mūḍhānāṁ\
+> śreya evaṁ bhaved iha\
+> iti bhāratam ākhyānaṁ\
 > kṛpayā muninā kṛtam
 
 *strī*—the woman class; *śūdra*—the laboring class; *dvija-bandhūnām*—of the friends of the twice-born; *trayī*—three; *na*—not; *śruti-gocarā*—for understanding; *karma*—in activities; *śreyasi*—in welfare; *mūḍhānām*—of the fools; *śreyaḥ*—supreme benefit; *evam*—thus; *bhavet*—achieved; *iha*—by this; *iti*—thus thinking; *bhāratam*—the great *Mahābhārata*; *ākhyānam*—historical facts; *kṛpayā*—out of great mercy; *muninā*—by the *muni*; *kṛtam*—is completed.

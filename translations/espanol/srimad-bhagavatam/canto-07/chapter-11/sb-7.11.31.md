@@ -1,11 +1,11 @@
 ### SB 7.11.31
 
-> प्रायः स्वभावविहितो नृणां धर्मो युगे युगे
+> प्रायः स्वभावविहितो नृणां धर्मो युगे युगे\
 > वेददृग्भिः स्मृतो राजन्प्रेत्य चेह च शर्मकृत ॥३१॥
 
-> prāyaḥ sva-bhāva-vihito
-> nṛṇāṁ dharmo yuge yuge
-> veda-dṛgbhiḥ smṛto rājan
+> prāyaḥ sva-bhāva-vihito\
+> nṛṇāṁ dharmo yuge yuge\
+> veda-dṛgbhiḥ smṛto rājan\
 > pretya ceha ca śarma-kṛt
 
 *prāyaḥ*—generalmente; *sva-bhāva-vihitaḥ*—prescritos, conforme a las modalidades materiales de la naturaleza; *nṛṇām*—de la sociedad humana; *dharmaḥ*—el deber prescrito; *yuge yuge*—en cada era; *veda-dṛgbhiḥ*—por *brāhmaṇas* bien versados en el conocimiento védico; *smṛtaḥ*—reconocido; *rājan*—¡oh, rey!; *pretya*—después de la muerte; *ca*—y; *iha*—aquí (en este cuerpo); *ca*—también; *śarma-kṛt*—auspicioso.

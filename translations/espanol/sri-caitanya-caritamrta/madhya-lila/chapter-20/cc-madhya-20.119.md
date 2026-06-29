@@ -1,13 +1,13 @@
 ### CC Madhya 20.119
 
-> ভয়ং দ্বিতীয়াভিনিবেশতঃ স্যা-
-> দীশাদপেতস্য বিপর্যয়োঽস্মৃতিঃ ৷
-> তন্মায়য়াতো বুধ আভজেত্তং
+> ভয়ং দ্বিতীয়াভিনিবেশতঃ স্যা-\
+> দীশাদপেতস্য বিপর্যয়োঽস্মৃতিঃ ৷\
+> তন্মায়য়াতো বুধ আভজেত্তং\
 > ভক্ত্যৈকয়েশং গুরুদেবতাত্মা ৷৷ ১১৯ ৷৷ ॥১১৯॥
 
-> bhayaṁ dvitīyābhiniveśataḥ syād
-> īśād apetasya viparyayo 'smṛtiḥ
-> tan-māyayāto budha ābhajet taṁ
+> bhayaṁ dvitīyābhiniveśataḥ syād\
+> īśād apetasya viparyayo 'smṛtiḥ\
+> tan-māyayāto budha ābhajet taṁ\
 > bhaktyaikayeśaṁ guru-devatātmā
 
 *bhayam*—el miedo; *dvitīya-abhiniveśataḥ*—de la idea errónea de ser un producto de la energía material; *syāt*—surge; *īśāt*—de la Suprema Personalidad de Dios, Kṛṣṇa; *apetasya*—de aquel que se ha alejado (el alma condicionada); *viparyayaḥ*—inversión de la posición; *asmṛtiḥ*—ninguna concepción de su relación con el Señor Supremo; *tat-māyayā*—debido a la energía ilusoria del Señor Supremo; *ataḥ*—por lo tanto; *budhaḥ*—aquel que es sabio; *ābhajet*—debe adorar; *tam*—a Él; *bhaktyā*—mediante servicio devocional; *ekayā*—sin desviarse hacia el karma y el jñāna; *īśam*—la Suprema Personalidad de Dios; *guru*—como el maestro espiritual; *devatā*—la Deidad adorable; *ātmā*—la Superalma.

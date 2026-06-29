@@ -1,11 +1,11 @@
 ### CC Madhya 13.149
 
-> প্রাণপ্রিয়ে, শুন, মোর এ-সত্য-বচন ।
-> তোমা-সবার স্মরণে, ঝুরোঁ মুঞি রাত্রিদিনে,
+> প্রাণপ্রিয়ে, শুন, মোর এ-সত্য-বচন ।\
+> তোমা-সবার স্মরণে, ঝুরোঁ মুঞি রাত্রিদিনে,\
 > মোর দুঃখ না জানে কোন জন ।। ১৪৯ ।। ধ্রু ।। ॥১৪৯॥
 
-> prāṇa-priye, śuna, mora e-satya-vacana
-> tomā-sabāra smaraṇe, jhuroṅ muñi rātri-dine,
+> prāṇa-priye, śuna, mora e-satya-vacana\
+> tomā-sabāra smaraṇe, jhuroṅ muñi rātri-dine,\
 > mora duḥkha nā jāne kona jana
 
 *prāṇa-priye*—O My dearmost; *śuna*—please hear; *mora*—of Me; *e-satya-vacana*—this true statement; *tomā-sabāra*—of all of you; *smaraṇe*—by remembrance; *jhuroṅ*—cry; *muñi*—I; *rātri-dine*—both day and night; *mora duḥkha*—My distress; *nā jāne*—does not know; *kona jana*—anyone.

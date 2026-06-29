@@ -1,11 +1,11 @@
 ### SB 4.11.19
 
-> सोऽनन्तोऽन्तकरः कालोऽनादिरादिकृदव्ययः ।
+> सोऽनन्तोऽन्तकरः कालोऽनादिरादिकृदव्ययः ।\
 > जनं जनेन जनयन्मारयन्मृत्युनान्तकम् ॥१९॥
 
-> so 'nanto 'nta-karaḥ kālo
-> 'nādir ādi-kṛd avyayaḥ
-> janaṁ janena janayan
+> so 'nanto 'nta-karaḥ kālo\
+> 'nādir ādi-kṛd avyayaḥ\
+> janaṁ janena janayan\
 > mārayan mṛtyunāntakam
 
 *saḥ*—He; *anantaḥ*—infinite; *anta-karaḥ*—annihilator; *kālaḥ*—time; *anādiḥ*—without beginning; *ādi-kṛt*—beginning of everything; *avyayaḥ*—without decrease; *janam*—living entities; *janena*—by living entities; *janayan*—causing to be born; *mārayan*—killing; *mṛtyunā*—by death; *antakam*—killers.

@@ -1,9 +1,9 @@
 ### CC Madhya 5.32
 
-> গোপালের আগে বিপ্র কহিতে লাগিল ৷
+> গোপালের আগে বিপ্র কহিতে লাগিল ৷\
 > “তুমি জান, নিজ-কন্যা ইহারে আমি দিল ।।” ॥ ৩২ ॥
 
-> gopālera āge vipra kahite lāgila
+> gopālera āge vipra kahite lāgila\
 > 'tumi jāna, nija-kanyā ihāre āmi dila'
 
 *gopālera āge*—delante de la Deidad de Gopāla; *vipra*—el brāhmaṇa anciano; *kahite*—hablar; *lāgila*—comenzó; *tumi jāna*—mi Señor, por favor toma nota; *nija-kanyā*—mi propia hija; *ihāre*—a este muchacho; *āmi*—yo; *dila*—he dado como ofrenda.

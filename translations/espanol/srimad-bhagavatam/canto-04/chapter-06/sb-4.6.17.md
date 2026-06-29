@@ -1,11 +1,11 @@
 ### SB 4.6.17
 
-> पनसोदुम्बराश्वत्थ प्लक्षन्यग्रोधहिङ्गुभिः ।
+> पनसोदुम्बराश्वत्थ प्लक्षन्यग्रोधहिङ्गुभिः ।\
 > भूर्जैरोषधिभिः पूगै राजपूगैश्च जम्बुभिः ॥१७॥
 
-> panasodumbarāśvattha-
-> plakṣa-nyagrodha-hiṅgubhiḥ
-> bhūrjair oṣadhibhiḥ pūgai
+> panasodumbarāśvattha-\
+> plakṣa-nyagrodha-hiṅgubhiḥ\
+> bhūrjair oṣadhibhiḥ pūgai\
 > rājapūgaiś ca jambubhiḥ
 
 *panasa-udumbara-aśvattha-plakṣa-nyagrodha-hiṅgubhiḥ*—con *panasas* (árboles de la fruta *jack*), *udumbaras, aśvatthas, plakṣas, nyagrodhas* y árboles que producen asafétida; *bhūrjaiḥ*—con *bhūrjas*; *oṣadhibhiḥ*—con beteles; *pūgaiḥ*—con *pūgas*; *rājapūgaiḥ*—con *rājapūgas*; *ca*—y; *jambubhiḥ*—con *jambus.*.

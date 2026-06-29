@@ -1,12 +1,12 @@
 ### Īśo 8
 
-> स पर्यगाच्छुक्रमकायमव्रणमस्नाविरँ शुद्धमपापविद्धम्।
-> कविर्मनीषी परिभूः स्वयम्भूर्याथातथ्यतोऽर्थान्
+> स पर्यगाच्छुक्रमकायमव्रणमस्नाविरँ शुद्धमपापविद्धम्।\
+> कविर्मनीषी परिभूः स्वयम्भूर्याथातथ्यतोऽर्थान्\
 > व्यदधाच्छाश्वतीभ्यः समाभ्यः॥८॥
 
-> sa paryagāc chukram akāyam avraṇam
-> asnāviram śuddham apāpa-viddham
-> kavir manīṣī paribhūḥ svayambhūr
+> sa paryagāc chukram akāyam avraṇam\
+> asnāviram śuddham apāpa-viddham\
+> kavir manīṣī paribhūḥ svayambhūr\
 > yāthātathyato 'rthān vyadadhāc chāśvatībhyaḥ samābhyaḥ
 
 *saḥ*—esa persona; *paryagāt*—debe saber de hecho; *śukram*—el omnipotente; *akāyam*—incorpóreo; *avraṇam*—irreprochable; *asnāviram*—sin venas; *śuddham*—antiséptico; *apāpa-viddham*—profiláctico; *kaviḥ*—omnisciente; *manīṣī*—filósofo; *paribhūḥ*—el más grande de todos; *svayambhūḥ*—autosuficiente; *yāthātathyataḥ*—conforme a; *arthān*—lo deseable; *vyadadhāt*—otorga; *śāśvatībhyaḥ*—inmemorial; *samābhyaḥ*—tiempo.

@@ -1,11 +1,11 @@
 ### SB 3.6.10
 
-> स्मरन्विश्वसृजामीशो विज्ञापितमधोक्षजः ।
+> स्मरन्विश्वसृजामीशो विज्ञापितमधोक्षजः ।\
 > विराजमतपत्स्वेन तेजसैषां विवृत्तये ॥१०॥
 
-> smaran viśva-sṛjām īśo
-> vijñāpitam adhokṣajaḥ
-> virājam atapat svena
+> smaran viśva-sṛjām īśo\
+> vijñāpitam adhokṣajaḥ\
+> virājam atapat svena\
 > tejasaiṣāṁ vivṛttaye
 
 *smaran*—recordando; *viśva-sṛjām*—de los semidioses encargados de la tarea de la construcción cósmica; *īśaḥ*—el Señor Supremo; *vijñāpitam*—mientras se Le oraba; *adhokṣajaḥ*—la Realidad Trascendental; *virājam*—la gigantesca forma universal; *atapat*—consideró de esa manera; *svena*—por Su propia; *tejasā*—energía; *eṣām*—para ellos; *vivṛttaye*—para entender.

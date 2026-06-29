@@ -1,11 +1,11 @@
 ### SB 8.16.50
 
-> त्रयोदश्यामथो विष्णोः स्नपनं पञ्चकैर्विभोः
+> त्रयोदश्यामथो विष्णोः स्नपनं पञ्चकैर्विभोः\
 > कारयेच्छास्त्रदृष्टेन विधिना विधिकोविदैः ॥५०॥
 
-> trayodaśyām atho viṣṇoḥ
-> snapanaṁ pañcakair vibhoḥ
-> kārayec chāstra-dṛṣṭena
+> trayodaśyām atho viṣṇoḥ\
+> snapanaṁ pañcakair vibhoḥ\
+> kārayec chāstra-dṛṣṭena\
 > vidhinā vidhi-kovidaiḥ
 
 *trayodaśyām*—el decimotercer día de la Luna; *atho*—a continuación; *viṣṇoḥ*—del Señor Viṣṇu; *snapanam*—bañar; *pañcakaiḥ*—con *pañcāmṛta*, cinco sustancias; *vibhoḥ*—el Señor; *kārayet*—se debe hacer; *śāstra-dṛṣṭena*—ordenado en las Escrituras; *vidhinā*—bajo principios regulativos; *vidhi-kovidaiḥ*—con la asistencia de sacerdotes que conozcan los principios regulativos.

@@ -1,11 +1,11 @@
 ### SB 1.9.14
 
-> सर्वं कालकृतं मन्ये भवतां च यदप्रियम् ।
+> सर्वं कालकृतं मन्ये भवतां च यदप्रियम् ।\
 > सपालो यद्वशे लोको वायोरिव घनावलिः ॥१४॥
 
-> sarvaṁ kāla-kṛtaṁ manye
-> bhavatāṁ ca yad-apriyam
-> sapālo yad-vaśe loko
+> sarvaṁ kāla-kṛtaṁ manye\
+> bhavatāṁ ca yad-apriyam\
+> sapālo yad-vaśe loko\
 > vāyor iva ghanāvaliḥ
 
 *sarvam*—all this; *kāla-kṛtam*—done by inevitable time; *manye*—I think; *bhavatām ca*—for you also; *yat*—whatever; *apriyam*—detestable; *sa-pālaḥ*—with the rulers; *yat-vaśe*—under the control of that time; *lokaḥ*—everyone in every planet; *vāyoḥ*—the wind carries; *iva*—as; *ghana-āvaliḥ*—a line of clouds.

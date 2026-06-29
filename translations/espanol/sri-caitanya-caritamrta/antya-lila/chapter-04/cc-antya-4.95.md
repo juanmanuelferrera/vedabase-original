@@ -1,9 +1,9 @@
 ### CC Antya 4.95
 
-> নিজ-দেহে যে কার্য না পারেন করিতে  ।
+> নিজ-দেহে যে কার্য না পারেন করিতে  ।\
 > সে কার্য করাইবে তোমা, সেহ মথুরাতে ॥৯৫॥
 
-> nija-dehe ye kārya nā pārena karite
+> nija-dehe ye kārya nā pārena karite\
 > se kārya karāibe tomā, seha mathurāte
 
 *nija-dehe*—con Su cuerpo personal; *ye kārya*—cualquier tarea; *nā pārena karite*—no puede hacer; *se kārya*—esas cosas; *karāibe*—hará que hagas; *tomā*—a ti; *seha*—eso; *mathurāte*—en Mathurā.

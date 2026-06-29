@@ -1,9 +1,9 @@
 ### CC Antya 12.149
 
-> আপনে প্রভুর ‘শেষ’ করিলা ভোজন ।
+> আপনে প্রভুর ‘শেষ’ করিলা ভোজন ।\
 > তবে গোবিন্দেরে প্রভু পাঠাইলা পুনঃ ॥১৪৯॥
 
-> āpane prabhura 'śeṣa' karilā bhojana
+> āpane prabhura 'śeṣa' karilā bhojana\
 > tabe govindere prabhu pāṭhāilā punaḥ
 
 *āpane*—personalmente; *prabhura*—de Śrī Caitanya Mahāprabhu; *śeṣa*—restos de comida; *karilā bhojana*—comió; *tabe*—en ese momento; *govindere*—a Govinda; *prabhu*—Śrī Caitanya Mahāprabhu; *pāṭhāilā*—envió; *punaḥ*—de nuevo.

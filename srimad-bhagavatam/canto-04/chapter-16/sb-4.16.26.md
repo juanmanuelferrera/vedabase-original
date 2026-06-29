@@ -1,11 +1,11 @@
 ### SB 4.16.26
 
-> तत्र तत्र गिरस्तास्ता इति विश्रुतविक्रमः ।
+> तत्र तत्र गिरस्तास्ता इति विश्रुतविक्रमः ।\
 > श्रोष्यत्यात्माश्रिता गाथाः पृथुः पृथुपराक्रमः ॥२६॥
 
-> tatra tatra giras tās tā
-> iti viśruta-vikramaḥ
-> śroṣyaty ātmāśritā gāthāḥ
+> tatra tatra giras tās tā\
+> iti viśruta-vikramaḥ\
+> śroṣyaty ātmāśritā gāthāḥ\
 > pṛthuḥ pṛthu-parākramaḥ
 
 *tatra tatra*—here and there; *giraḥ*—words; *tāḥ tāḥ*—many, various; *iti*—thus; *viśruta-vikramaḥ*—he whose chivalrous activities are widely reputed; *śroṣyati*—will hear; *ātma-āśritāḥ*—about himself; *gāthāḥ*—songs, narrations; *pṛthuḥ*—King Pṛthu; *pṛthu-parākramaḥ*—distinctly powerful.

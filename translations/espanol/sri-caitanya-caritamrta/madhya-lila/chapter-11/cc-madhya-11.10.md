@@ -1,9 +1,9 @@
 ### CC Madhya 11.10
 
-> প্রভু কহে, — তথাপি রাজা কালসর্পাকার ৷
+> প্রভু কহে, — তথাপি রাজা কালসর্পাকার ৷\
 > কাষ্ঠনারী-স্পর্শে যৈছে উপজে বিকার ৷৷ ১০ ৷৷ ॥১০॥
 
-> prabhu kahe,-tathāpi rājā kāla-sarpākāra
+> prabhu kahe,-tathāpi rājā kāla-sarpākāra\
 > kāṣṭha-nārī-sparśe yaiche upaje vikāra
 
 *prabhu kahe*—el Señor Śrī Caitanya Mahāprabhu respondió; *tathāpi*—aun así; *rājā*—el rey; *kāla-sarpa-ākāra*—igual que una serpiente venenosa; *kāṣṭha-nārī*—una mujer hecha de madera; *sparśe*—al tocar; *yaiche*—como; *upaje*—surge; *vikāra*—agitación.

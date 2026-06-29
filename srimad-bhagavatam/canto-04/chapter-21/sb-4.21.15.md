@@ -1,11 +1,11 @@
 ### SB 4.21.15
 
-> प्रांशुः पीनायतभुजो गौरः कञ्जारुणेक्षणः ।
+> प्रांशुः पीनायतभुजो गौरः कञ्जारुणेक्षणः ।\
 > सुनासः सुमुखः सौम्यः पीनांसः सुद्विजस्मितः ॥१५॥
 
-> prāṁśuḥ pīnāyata-bhujo
-> gauraḥ kañjāruṇekṣaṇaḥ
-> sunāsaḥ sumukhaḥ saumyaḥ
+> prāṁśuḥ pīnāyata-bhujo\
+> gauraḥ kañjāruṇekṣaṇaḥ\
+> sunāsaḥ sumukhaḥ saumyaḥ\
 > pīnāṁsaḥ sudvija-smitaḥ
 
 *prāṁśuḥ*—very tall; *pīna-āyata*—full and broad; *bhujaḥ*—arms; *gauraḥ*—fair-complexioned; *kañja*—lotuslike; *aruṇa-īkṣaṇaḥ*—with bright eyes resembling a morning sunrise; *su-nāsaḥ*—straight nose; *su-mukhaḥ*—with a beautiful face; *saumyaḥ*—of a grave bodily stature; *pīna-aṁsaḥ*—shoulders raised; *su*—beautiful; *dvija*—teeth; *smitaḥ*—smiling.

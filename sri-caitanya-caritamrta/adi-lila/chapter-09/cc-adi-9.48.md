@@ -1,9 +1,9 @@
 ### CC Adi 9.48
 
-> যেই যাহাঁ তাহাঁ দান করে প্রেমফল ।
+> যেই যাহাঁ তাহাঁ দান করে প্রেমফল ।\
 > ফলাস্বাদে মত্ত লোক হইল সকল ॥৪৮॥
 
-> yei yāhāṅ tāhāṅ dāna kare prema-phala
+> yei yāhāṅ tāhāṅ dāna kare prema-phala\
 > phalāsvāde matta loka ha-ila sakala
 
 *yei*—anyone; *yāhāṅ*—wherever; *tāhāṅ*—anywhere; *dāna*—charity; *kare*—gives in; *prema-phala*—the fruit of love of Godhead; *phala*—fruit; *āsvāde*—by tasting; *matta*—intoxicated; *loka*—people; *ha-ila*—become; *sakala*—all.

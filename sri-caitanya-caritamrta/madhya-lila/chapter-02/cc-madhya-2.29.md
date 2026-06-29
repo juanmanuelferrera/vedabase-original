@@ -1,13 +1,13 @@
 ### CC Madhya 2.29
 
-> বংশীগানামৃত-ধাম, লাবণ্যামৃত-জন্মস্থান,
-> যে না দেখে সে চাঁদ বদন ।
-> সে নয়নে কিবা কাজ, পড়ুক তার মুণ্ডে বাজ,
+> বংশীগানামৃত-ধাম, লাবণ্যামৃত-জন্মস্থান,\
+> যে না দেখে সে চাঁদ বদন ।\
+> সে নয়নে কিবা কাজ, পড়ুক তার মুণ্ডে বাজ,\
 > সে নয়ন রহে কি কারণ ॥২৯॥
 
-> vaṁśī-gānāmṛta-dhāma, lāvaṇyāmṛta-janma-sthāna,
-> ye nā dekhe se cāṅda vadana
-> se nayane kibā kāja, paḍuka tāra muṇḍe vāja,
+> vaṁśī-gānāmṛta-dhāma, lāvaṇyāmṛta-janma-sthāna,\
+> ye nā dekhe se cāṅda vadana\
+> se nayane kibā kāja, paḍuka tāra muṇḍe vāja,\
 > se nayana rahe ki kāraṇa
 
 *vaṁśī-gāna-amṛta-dhāma*—the abode of the nectar derived from the songs of the flute; *lāvaṇya-amṛta-janma-sthāna*—the birthplace of the nectar of beauty; *ye*—anyone who; *nā*—not; *dekhe*—sees; *se*—that; *cāṅda*—moonlike; *vadana*—face; *se*—those; *nayane*—eyes; *kibā kāja*—what is the use; *paḍuka*—let there be; *tāra*—his; *muṇḍe*—on the head; *vāja*—thunderbolt; *se*—those; *nayana*—eyes; *rahe*—keeps; *ki*—what; *kāraṇa*—reason.

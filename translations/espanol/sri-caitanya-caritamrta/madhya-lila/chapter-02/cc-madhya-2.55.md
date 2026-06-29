@@ -1,13 +1,13 @@
 ### CC Madhya 2.55
 
-> তাহাঁ হৈতে ঘরে আসি’ মাটীর উপরে বসি’,
-> নখে করে পৃথিবী লিখন ৷
-> হা-হা কাহাঁ বৃন্দাবন, কাহাঁ গোপেন্দ্রনন্দন,
+> তাহাঁ হৈতে ঘরে আসি’ মাটীর উপরে বসি’,\
+> নখে করে পৃথিবী লিখন ৷\
+> হা-হা কাহাঁ বৃন্দাবন, কাহাঁ গোপেন্দ্রনন্দন,\
 > কাহাঁ সেই বংশীবদন ৷৷ ৫৫ ৷৷ ॥৫৫॥
 
-> tāhāṅ haite ghare āsi', māṭīra upare vasi',
-> nakhe kare pṛthivī likhana
-> hā-hā kāhāṅ vṛndāvana, kāhāṅ gopendra-nandana,
+> tāhāṅ haite ghare āsi', māṭīra upare vasi',\
+> nakhe kare pṛthivī likhana\
+> hā-hā kāhāṅ vṛndāvana, kāhāṅ gopendra-nandana,\
 > kāhāṅ sei vaṁśī-vadana
 
 *tāhāṅ haite*—de allí; *ghare āsi'*—al regresar a casa; *māṭīra*—del suelo; *upare*—sobre; *vasi'*—sentándose; *nakhe*—con las uñas; *kare*—hace; *pṛthivī*—en la superficie de la tierra; *likhana*—marcas; *hā-hā*—¡ay!; *kāhāṅ*—¿dónde está?; *vṛndāvana*—Vṛndāvana; *kāhāṅ*—¿dónde?; *gopa-indra-nandana*—el hijo del rey de los pastores de vacas; *kāhāṅ*—¿dónde?; *sei*—esa; *vaṁśī-vadana*—la persona con la flauta.

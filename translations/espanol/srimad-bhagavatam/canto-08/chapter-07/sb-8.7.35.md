@@ -1,13 +1,13 @@
 ### SB 8.7.35
 
-> तत्तस्य ते सदसतोः परतः परस्य
-> नाञ्जः स्वरूपगमने प्रभवन्ति भूम्नः
-> ब्रह्मादयः किमुत संस्तवने वयं तु
+> तत्तस्य ते सदसतोः परतः परस्य\
+> नाञ्जः स्वरूपगमने प्रभवन्ति भूम्नः\
+> ब्रह्मादयः किमुत संस्तवने वयं तु\
 > तत्सर्गसर्गविषया अपि शक्तिमात्रम ॥३५॥
 
-> etat paraṁ prapaśyāmo
-> na paraṁ te maheśvara
-> mṛḍanāya hi lokasya
+> etat paraṁ prapaśyāmo\
+> na paraṁ te maheśvara\
+> mṛḍanāya hi lokasya\
 > vyaktis te 'vyakta-karmaṇaḥ
 
 *etat*—todas estas cosas; *param*—trascendentales; *prapaśyāmaḥ*—podemos ver; *na*—no; *param*—la verdadera posición trascendental; *te*—de Tu Señoría; *mahā-īśvara*—¡oh, gran gobernador!; *mṛḍanāya*—para la felicidad; *hi*—en verdad; *lokasya*—de todo el mundo; *vyaktiḥ*—manifestadas; *te*—de Tu Señoría; *avyakta-karmaṇaḥ*—cuyas actividades son desconocidas para todos.

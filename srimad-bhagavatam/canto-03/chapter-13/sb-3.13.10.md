@@ -1,11 +1,11 @@
 ### SB 3.13.10
 
-> एतावत्यात्मजैर्वीर कार्या ह्यपचितिर्गुरौ ।
+> एतावत्यात्मजैर्वीर कार्या ह्यपचितिर्गुरौ ।\
 > शक्त्याप्रमत्तैर्गृह्येत सादरं गतमत्सरैः ॥१०॥
 
-> etāvaty ātmajair vīra
-> kāryā hy apacitir gurau
-> śaktyāpramattair gṛhyeta
+> etāvaty ātmajair vīra\
+> kāryā hy apacitir gurau\
+> śaktyāpramattair gṛhyeta\
 > sādaraṁ gata-matsaraiḥ
 
 *etāvatī*—just exactly like this; *ātmajaiḥ*—by the offspring; *vīra*—O hero; *kāryā*—should be performed; *hi*—certainly; *apacitiḥ*—worship; *gurau*—unto the superior; *śaktyā*—with full capacity; *apramattaiḥ*—by the sane; *gṛhyeta*—should be accepted; *sa-ādaram*—with great delight; *gata-matsaraiḥ*—by those who are beyond the limit of envy.

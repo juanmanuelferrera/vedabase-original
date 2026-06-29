@@ -1,12 +1,12 @@
 ### SB 7.1.35
 
-> श्रीनारद उवाच
-> एकदा ब्रह्मणः पुत्रा विष्णुलोकं यदृच्छया
+> श्रीनारद उवाच\
+> एकदा ब्रह्मणः पुत्रा विष्णुलोकं यदृच्छया\
 > सनन्दनादयो जग्मुश्चरन्तो भुवनत्रयम ॥३५॥
 
-> dehendriyāsu-hīnānāṁ
-> vaikuṇṭha-pura-vāsinām
-> deha-sambandha-sambaddham
+> dehendriyāsu-hīnānāṁ\
+> vaikuṇṭha-pura-vāsinām\
+> deha-sambandha-sambaddham\
 > etad ākhyātum arhasi
 
 *deha*—of a material body; *indriya*—material senses; *asu*—life breath; *hīnānām*—of those devoid; *vaikuṇṭha-pura*—of Vaikuṇṭha; *vāsinām*—of the residents; *deha-sambandha*—in a material body; *sambaddham*—bondage; *etat*—this; *ākhyātum arhasi*—please describe.

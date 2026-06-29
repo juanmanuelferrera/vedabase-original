@@ -1,9 +1,9 @@
 ### CC Antya 3.217
 
-> আচার্যের ঘরে নিত্য ভিক্ষা-নির্বাহণ ।
+> আচার্যের ঘরে নিত্য ভিক্ষা-নির্বাহণ ।\
 > দুই জনা মিলি’ কৃষ্ণ-কথা-আস্বাদন ॥২১৭॥
 
-> ācāryera ghare nitya bhikṣā-nirvāhaṇa
+> ācāryera ghare nitya bhikṣā-nirvāhaṇa\
 > dui janā mili' kṛṣṇa-kathā-āsvādana
 
 *ācāryera ghare*—at the house of Advaita Ācārya; *nitya*—daily; *bhikṣā-nirvāhaṇa*—accepting food as alms; *dui janā*—the two of them; *mili'*—meeting together; *kṛṣṇa-kathā*—discourses on the subject matter of Kṛṣṇa; *āsvādana*—tasting.

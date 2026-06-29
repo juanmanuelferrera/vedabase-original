@@ -1,9 +1,9 @@
 ### CC Madhya 6.58
 
-> “তুমি জগদ্গুরু — সর্বলোক-হিতকর্তা ।
+> “তুমি জগদ্গুরু — সর্বলোক-হিতকর্তা ।\
 > বেদান্ত পড়াও, সন্ন্যাসীর উপকর্তা ॥৫৮॥
 
-> "tumi jagad-guru--sarvaloka-hita-kartā
+> "tumi jagad-guru--sarvaloka-hita-kartā\
 > vedānta paḍāo, sannyāsīra upakartā
 
 *tumi jagat-guru*—tú eres el maestro de todas las personas; *sarva-loka*—de todas las personas; *hita-kartā*—el bienqueriente; *vedānta paḍāo*—enseñas la filosofía Vedānta; *sannyāsīra*—de los mendicantes en la orden de renuncia; *upakartā*—el benefactor.

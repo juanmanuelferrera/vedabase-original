@@ -1,18 +1,18 @@
 ### SB 3.22.29-30
 
-> बर्हिष्मती नाम पुरी सर्वसम्पत्समन्विता ।
-> न्यपतन्यत्र रोमाणि यज्ञस्याङ्गं विधुन्वतः ॥२९॥
-> कुशाः काशास्त एवासन्शश्वद्धरितवर्चसः ।
+> बर्हिष्मती नाम पुरी सर्वसम्पत्समन्विता ।\
+> न्यपतन्यत्र रोमाणि यज्ञस्याङ्गं विधुन्वतः ॥२९॥\
+> कुशाः काशास्त एवासन्शश्वद्धरितवर्चसः ।\
 > ऋषयो यैः पराभाव्य यज्ञघ्नान्यज्ञमीजिरे ॥३०॥
 
-> barhiṣmatī nāma purī
-> sarva-sampat-samanvitā
-> nyapatan yatra romāṇi
+> barhiṣmatī nāma purī\
+> sarva-sampat-samanvitā\
+> nyapatan yatra romāṇi\
 > yajñasyāṅgaṁ vidhunvataḥ
 
-> kuśāḥ kāśās ta evāsan
-> śaśvad-dharita-varcasaḥ
-> ṛṣayo yaiḥ parābhāvya
+> kuśāḥ kāśās ta evāsan\
+> śaśvad-dharita-varcasaḥ\
+> ṛṣayo yaiḥ parābhāvya\
 > yajña-ghnān yajñam ījire
 
 *barhiṣmatī*—Barhiṣmatī; *nāma*—de nombre; *purī*—ciudad; *sarva-sampat*—todo tipo de riqueza; *samanvitā*—llena de; *nyapatan*—cayeron; *yatra*—donde; *romāṇi*—los pelos; *yajñasya*—del *avatāra* Jabalí; *aṅgam*—Su cuerpo; *vidhunvataḥ*—sacudiendo; *kuśāḥ*—hierba *kuśa*; *kāśāḥ*—hierba *kāśa*; *te*—ellos; *eva*—ciertamente; *āsan*—se convirtieron; *śaśvat-harita*—de siempre verde; *varcasaḥ*—que tienen el color; *ṛṣayaḥ*—los sabios; *yaiḥ*—por los cuales; *parābhāvya*—derrotando; *yajña-ghnān*—a los perturbadores de las ejecuciones de sacrificio; *yajñam*—el Señor Viṣṇu; *ījire*—adoraron.

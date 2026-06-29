@@ -1,11 +1,11 @@
 ### SB 2.1.21
 
-> यस्यां सन्धार्यमाणायां योगिनो भक्तिलक्षणः ।
+> यस्यां सन्धार्यमाणायां योगिनो भक्तिलक्षणः ।\
 > आशु सम्पद्यते योग आश्रयं भद्रमीक्षतः ॥२१॥
 
-> yasyāṁ sandhāryamāṇāyāṁ
-> yogino bhakti-lakṣaṇaḥ
-> āśu sampadyate yoga
+> yasyāṁ sandhāryamāṇāyāṁ\
+> yogino bhakti-lakṣaṇaḥ\
+> āśu sampadyate yoga\
 > āśrayaṁ bhadram īkṣataḥ
 
 *yasyām*—mediante ese recuerdo sistemático; *sandhāryamāṇāyām*—y quedando así fijo en el hábito de; *yoginaḥ*—los místicos; *bhakti-lakṣaṇaḥ*—siendo diestro en el sistema devocional; *āśu*—muy pronto; *sampadyate*—logra el éxito; *yogaḥ*—vinculación mediante el servicio devocional; *āśrayam*—bajo el refugio de; *bhadram*—la totalmente buena; *īkṣataḥ*—lo cual, viendo eso.

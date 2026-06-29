@@ -1,11 +1,11 @@
 ### SB 9.6.53
 
-> एवं वसन्गृहे कालं विरक्तो न्यासमास्थितः
+> एवं वसन्गृहे कालं विरक्तो न्यासमास्थितः\
 > वनं जगामानुययुस्तत्पत्न्यः पतिदेवताः ॥५३॥
 
-> evaṁ vasan gṛhe kālaṁ
-> virakto nyāsam āsthitaḥ
-> vanaṁ jagāmānuyayus
+> evaṁ vasan gṛhe kālaṁ\
+> virakto nyāsam āsthitaḥ\
+> vanaṁ jagāmānuyayus\
 > tat-patnyaḥ pati-devatāḥ
 
 *evam*—in this way; *vasan*—living; *gṛhe*—at home; *kālam*—passing away time; *viraktaḥ*—became detached; *nyāsam*—in the renounced order of life; *āsthitaḥ*—became situated; *vanam*—in the forest; *jagāma*—he went; *anuyayuḥ*—was followed by; *tat-patnyaḥ*—all his wives; *pati-devatāḥ*—because their only worshipable object was their husband.

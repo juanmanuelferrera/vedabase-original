@@ -1,9 +1,9 @@
 ### CC Antya 5.71
 
-> রামানন্দ রায়-কথা কহিলে না হয় ।
+> রামানন্দ রায়-কথা কহিলে না হয় ।\
 > ‘মনুষ্য’ নহে রায়, কৃষ্ণভক্তিরসময় ॥৭১॥
 
-> rāmānanda rāya-kathā kahile nā haya
+> rāmānanda rāya-kathā kahile nā haya\
 > 'manuṣya' nahe rāya, kṛṣṇa-bhakti-rasa-maya
 
 *rāmānanda rāya-kathā*—the speeches of Rāmānanda Rāya; *kahile*—describing; *nā haya*—is not possible; *manuṣya*—an ordinary human being; *nahe*—is not; *rāya*—Rāmānanda Rāya; *kṛṣṇa-bhakti-rasa-maya*—absorbed in the devotional service of Lord Kṛṣṇa.

@@ -1,11 +1,11 @@
 ### CC Antya 7.33
 
-> ত্রয্যা চোপনিষদ্ভিশ্চ সাংখ্যযোগৈশ্চ সাত্বতৈঃ ।
+> ত্রয্যা চোপনিষদ্ভিশ্চ সাংখ্যযোগৈশ্চ সাত্বতৈঃ ।\
 > উপগীয়মানমাহাত্ম্যং হরিং সাঽমন্যতাত্মজম্ ॥৩৩॥
 
-> trayyā copaniṣadbhiś ca
-> sāṅkhya-yogaiś ca sātvataiḥ
-> upagīyamāna-māhātmyaṁ
+> trayyā copaniṣadbhiś ca\
+> sāṅkhya-yogaiś ca sātvataiḥ\
+> upagīyamāna-māhātmyaṁ\
 > hariṁ sāmanyatātmajam
 
 *trayyā*—por los seguidores de los tres Vedas, que realizan grandes sacrificios como Indra y otros semidioses; *ca*—también; *upaniṣadbhiḥ*—por los seguidores de los Upaniṣads, la porción más elevada del conocimiento Védico; *ca*—también; *sāṅkhya*—por los filósofos que estudian analíticamente el universo; *yogaiḥ*—por los yogīs místicos; *ca*—y; *sātvataiḥ*—por los devotos que siguen el método de adoración mencionado en el *Pañcarātra* y otras literaturas Védicas; *upagīyamāna*—siendo cantadas; *māhātmyam*—cuyas glorias; *harim*—a la Suprema Personalidad de Dios; *sā*—ella, la madre Yaśodā; *amanyata*—consideró; *ātma-jam*—su propio hijo, nacido de su cuerpo.

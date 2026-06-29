@@ -1,9 +1,9 @@
 ### CC Antya 12.60
 
-> প্রশ্রয়-পাগল শুদ্ধ-বৈদগ্ধী না জানে ।
+> প্রশ্রয়-পাগল শুদ্ধ-বৈদগ্ধী না জানে ।\
 > অন্তরে সুখী হৈলা প্রভু তার সেই গুণে ॥৬০॥
 
-> praśraya-pāgala śuddha-vaidagdhī nā jāne
+> praśraya-pāgala śuddha-vaidagdhī nā jāne\
 > antare sukhī hailā prabhu tāra sei guṇe
 
 *praśraya*—due to indulgence; *pāgala*—foolish; *śuddha*—pure; *vaidagdhī*—etiquette; *nā jāne*—does not know; *antare*—within the heart; *sukhī hailā*—became very happy; *prabhu*—Śrī Caitanya Mahāprabhu; *tāra*—his; *sei guṇe*—by that attribute.

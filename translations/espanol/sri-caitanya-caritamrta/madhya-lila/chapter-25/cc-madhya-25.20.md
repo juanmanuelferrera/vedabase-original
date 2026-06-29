@@ -1,10 +1,10 @@
 ### CC Madhya 25.20
 
-> সর্বশাস্ত্র খণ্ডি’ প্রভু ‘ভক্তি’ করে সার ।
+> সর্বশাস্ত্র খণ্ডি’ প্রভু ‘ভক্তি’ করে সার ।\
 > সযুক্তিক বাক্যে মন ফিরায় সবার ॥২০॥
 
-> sarva-śāstra khaṇḍi' prabhu 'bhakti' kare sāra
-> sayuktika vākye mana phirāya sabāra
+> sarva-śāstra khaṇḍi' prabhu 'bhakti' kare sāra\
+> sayuktika vākye mana phirāya sabāra\
 > SYNONYMS
 
 *sarva-śāstra khaṇḍi'*—refutando todas las falsas conclusiones de las distintas escrituras; *prabhu*—Śrī Caitanya Mahāprabhu; *bhakti kare sāra*—estableció la predominancia del servicio devocional; *sa-yuktika vākye*—con palabras llenas de lógica y argumentos convincentes; *mana phirāya*—cambia las mentes; *sabāra*—de todos.

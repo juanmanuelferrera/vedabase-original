@@ -1,11 +1,11 @@
 ### SB 3.17.27
 
-> तत्रोपलभ्यासुरलोकपालकं यादोगणानामृषभं प्रचेतसम् ।
+> तत्रोपलभ्यासुरलोकपालकं यादोगणानामृषभं प्रचेतसम् ।\
 > स्मयन्प्रलब्धुं प्रणिपत्य नीचवज्जगाद मे देह्यधिराज संयुगम् ॥२७॥
 
-> tatropalabhyāsura-loka-pālakaṁ
-> yādo-gaṇānām ṛṣabhaṁ pracetasam
-> smayan pralabdhuṁ praṇipatya nīcavaj
+> tatropalabhyāsura-loka-pālakaṁ\
+> yādo-gaṇānām ṛṣabhaṁ pracetasam\
+> smayan pralabdhuṁ praṇipatya nīcavaj\
 > jagāda me dehy adhirāja saṁyugam
 
 *tatra*—allí; *upalabhya*—habiendo llegado; *asura-loka*—de las regiones donde habitan los demonios; *pālakam*—el guardián; *yādaḥ-gaṇānām*—de las criaturas acuáticas; *ṛṣabham*—el señor; *pracetasam*—Varuṇa; *smayan*—sonriendo; *pralabdhum*—para burlarse; *praṇipatya*—habiéndose postrado; *nīca-vat*—como un hombre de bajo nacimiento; *jagāda*—dijo; *me*—a mí; *dehi*—da; *adhirāja*—¡oh, gran señor!; *saṁyugam*—pelea.

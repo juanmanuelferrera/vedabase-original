@@ -1,9 +1,9 @@
 ### CC Madhya 20.221
 
-> অস্ত্রধৃতি-ভেদ — নাম-ভেদের কারণ ।
+> অস্ত্রধৃতি-ভেদ — নাম-ভেদের কারণ ।\
 > চক্রাদি-ধারণ-ভেদ শুন, সনাতন ॥২২১॥
 
-> astra-dhṛti-bheda--nāma-bhedera kāraṇa
+> astra-dhṛti-bheda--nāma-bhedera kāraṇa\
 > cakrādi-dhāraṇa-bheda śuna, sanātana
 
 *astra-dhṛti*—de sostener el arma; *bheda*—diferencia; *nāma-bhedera*—de las diferencias de nombres; *kāraṇa*—la causa; *cakra-ādi*—de las armas, comenzando por el disco; *dhāraṇa*—de sostener; *bheda*—diferencias; *śuna*—por favor escucha; *sanātana*—oh, Sanātana.

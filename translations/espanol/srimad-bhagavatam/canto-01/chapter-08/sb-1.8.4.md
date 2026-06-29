@@ -1,11 +1,11 @@
 ### SB 1.8.4
 
-> सान्त्वयामास मुनिभिर्हतबन्धूञ्शुचार्पितान् ।
+> सान्त्वयामास मुनिभिर्हतबन्धूञ्शुचार्पितान् ।\
 > भूतेषु कालस्य गतिं दर्शयन्न प्रतिक्रियाम् ॥४॥
 
-> sāntvayām āsa munibhir
-> hata-bandhūñ śucārpitān
-> bhūteṣu kālasya gatiṁ
+> sāntvayām āsa munibhir\
+> hata-bandhūñ śucārpitān\
+> bhūteṣu kālasya gatiṁ\
 > darśayan na pratikriyām
 
 *sāntvayām āsa*—apaciguó; *munibhiḥ*—junto con los *munis* allí presentes; *hata-bandhūn*—aquellos que perdieron a sus amigos y parientes; *śucārpitān*—todos conmocionados y afectados; *bhūteṣu*—a los seres vivientes; *kālasya*—de la suprema ley del Todopoderoso; *gatim*—reacciones; *darśayan*—demostró; *na*—no; *pratikriyām*—medidas correctivas.

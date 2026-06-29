@@ -1,13 +1,13 @@
 ### SB 6.18.77
 
-> श्रीशुक उवाच
-> इन्द्रस्तयाभ्यनुज्ञआतः शुद्धभावेन तुष्टया
+> श्रीशुक उवाच\
+> इन्द्रस्तयाभ्यनुज्ञआतः शुद्धभावेन तुष्टया\
 > मरुद्भिः सह तां नत्वा जगाम त्रिदिवं प्रभुः ॥७७॥
 
-> śrī-śuka uvāca
-> indras tayābhyanujñātaḥ
-> śuddha-bhāvena tuṣṭayā
-> marudbhiḥ saha tāṁ natvā
+> śrī-śuka uvāca\
+> indras tayābhyanujñātaḥ\
+> śuddha-bhāvena tuṣṭayā\
+> marudbhiḥ saha tāṁ natvā\
 > jagāma tri-divaṁ prabhuḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *indraḥ*—Indra; *tayā*—por ella; *abhyanujñātaḥ*—con el permiso; *śuddha-bhāvena*—por la buena conducta; *tuṣṭayā*—satisfecha; *marudbhiḥ saha*—con los Maruts; *tām*—a ella; *natvā*—habiendo ofrecido reverencias; *jagāma*—se fue; *tri-divam*—a los planetas celestiales; *prabhuḥ*—el señor.

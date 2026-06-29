@@ -1,11 +1,11 @@
 ### SB 8.24.37
 
-> अहं त्वामृषिभिः सार्धं सहनावमुदन्वति
+> अहं त्वामृषिभिः सार्धं सहनावमुदन्वति\
 > विकर्षन्विचरिष्यामि यावद्ब्राह्मी निशा प्रभो ॥३७॥
 
-> ahaṁ tvām ṛṣibhiḥ sārdhaṁ
-> saha-nāvam udanvati
-> vikarṣan vicariṣyāmi
+> ahaṁ tvām ṛṣibhiḥ sārdhaṁ\
+> saha-nāvam udanvati\
+> vikarṣan vicariṣyāmi\
 > yāvad brāhmī niśā prabho
 
 *aham*—I; *tvām*—unto you; *ṛṣibhiḥ*—with all the saintly persons; *sārdham*—all together; *saha*—with; *nāvam*—the boat; *udanvati*—in the water of devastation; *vikarṣan*—contacting; *vicariṣyāmi*—I shall travel; *yāvat*—as long as; *brāhmī*—pertaining to Lord Brahmā; *niśā*—night; *prabho*—O King.

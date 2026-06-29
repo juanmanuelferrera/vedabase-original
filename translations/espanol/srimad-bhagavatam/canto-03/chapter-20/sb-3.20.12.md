@@ -1,13 +1,13 @@
 ### SB 3.20.12
 
-> मैत्रेय उवाच
-> दैवेन दुर्वितर्क्येण परेणानिमिषेण च ।
+> मैत्रेय उवाच\
+> दैवेन दुर्वितर्क्येण परेणानिमिषेण च ।\
 > जातक्षोभाद्भगवतो महानासीद्गुणत्रयात् ॥१२॥
 
-> maitreya uvāca
-> daivena durvitarkyeṇa
-> pareṇānimiṣeṇa ca
-> jāta-kṣobhād bhagavato
+> maitreya uvāca\
+> daivena durvitarkyeṇa\
+> pareṇānimiṣeṇa ca\
+> jāta-kṣobhād bhagavato\
 > mahān āsīd guṇa-trayāt
 
 *maitreyaḥ uvāca*—Maitreya dijo; *daivena*—por un gobierno superior, conocido como destino; *durvitarkyeṇa*—más allá de la especulación empírica; *pareṇa*—por Mahā-Viṣṇu; *animiṣeṇa*—por la potencia del tiempo eterno; *ca*—y; *jāta-kṣobhāt*—se agitó el equilibrio; *bhagavataḥ*—de la Personalidad de Dios; *mahān*—el conjunto total de los elementos materiales (el *mahat-tattva*); *āsīt*—se produjo; *guṇa-trayāt*—de las tres modalidades de la naturaleza.

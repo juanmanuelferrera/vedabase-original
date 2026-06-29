@@ -1,11 +1,11 @@
 ### SB 9.3.34
 
-> कन्यारत्नमिदं राजन्नररत्नाय देहि भोः
+> कन्यारत्नमिदं राजन्नररत्नाय देहि भोः\
 > भुवो भारावताराय भगवान्भूतभावनः ॥३४॥
 
-> bhuvo bhārāvatārāya
-> bhagavān bhūta-bhāvanaḥ
-> avatīrṇo nijāṁśena
+> bhuvo bhārāvatārāya\
+> bhagavān bhūta-bhāvanaḥ\
+> avatīrṇo nijāṁśena\
 > puṇya-śravaṇa-kīrtanaḥ
 
 *bhuvaḥ*—del mundo; *bhāra-avatārāya*—para disminuir la carga; *bhagavān*—la Suprema Personalidad de Dios; *bhūta-bhāvanaḥ*—siempre el bienqueriente de todas las entidades vivientes; *avatīrṇaḥ*—ahora ha descendido; *nija-aṁśena*—con todo Su séquito, que es parte de Él; *puṇya-śravaṇa-kīrtanaḥ*—a Él se Le adora con el sencillo método de escuchar y cantar, mediante el cual nos purificamos.

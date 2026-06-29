@@ -1,13 +1,13 @@
 ### CC Madhya 24.50
 
-> বীক্ষ্যালকাবৃতমুখং তব কুণ্ডলশ্রী-
-> গণ্ডস্থলাধরসুধং হসিতাবলোকম্ ।
-> দত্তাভয়ঞ্চ ভুজদণ্ডযুগং বিলোক্য
+> বীক্ষ্যালকাবৃতমুখং তব কুণ্ডলশ্রী-\
+> গণ্ডস্থলাধরসুধং হসিতাবলোকম্ ।\
+> দত্তাভয়ঞ্চ ভুজদণ্ডযুগং বিলোক্য\
 > বক্ষঃ শ্রিয়ৈকরমণঞ্চ ভবাম দাস্যঃ ॥৫০॥
 
-> vīkṣyālakāvṛta-mukhaṁ tava kuṇḍala-śrī-
-> gaṇḍa-sthalādhara-sudhaṁ hasitāvalokam
-> dattābhayaṁ ca bhuja-daṇḍa-yugaṁ vilokya
+> vīkṣyālakāvṛta-mukhaṁ tava kuṇḍala-śrī-\
+> gaṇḍa-sthalādhara-sudhaṁ hasitāvalokam\
+> dattābhayaṁ ca bhuja-daṇḍa-yugaṁ vilokya\
 > vakṣaḥ śriyaika-ramaṇaṁ ca bhavāma dāsyaḥ
 
 *vīkṣya*—viendo; *alaka-āvṛta-mukham*—el rostro adornado con ondulados mechones de cabello; *tava*—Tu; *kuṇḍala-śrī*—la belleza de los pendientes; *gaṇḍa-sthala*—cayendo sobre Tus mejillas; *adhara-sudham*—y el néctar de Tus labios; *hasita-avalokam*—Tu mirada sonriente; *datta-abhayam*—que dan seguridad de no temer; *ca*—y; *bhuja-daṇḍa-yugam*—los dos brazos; *vilokya*—al ver; *vakṣaḥ*—el pecho; *śriyā*—por la belleza; *eka-ramaṇam*—que produce principalmente atracción conyugal; *ca*—y; *bhavāma*—nos hemos vuelto; *dāsyaḥ*—Tus sirvientas.

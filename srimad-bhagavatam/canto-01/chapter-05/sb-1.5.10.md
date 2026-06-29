@@ -1,11 +1,11 @@
 ### SB 1.5.10
 
-> न यद्वचश्चित्रपदं हरेर्यशो जगत्पवित्रं प्रगृणीत कर्हिचित् ।
+> न यद्वचश्चित्रपदं हरेर्यशो जगत्पवित्रं प्रगृणीत कर्हिचित् ।\
 > तद्वायसं तीर्थमुशन्ति मानसा न यत्र हंसा निरमन्त्युशिक्क्षयाः ॥१०॥
 
-> na yad vacaś citra-padaṁ harer yaśo
-> jagat-pavitraṁ pragṛṇīta karhicit
-> tad vāyasaṁ tīrtham uśanti mānasā
+> na yad vacaś citra-padaṁ harer yaśo\
+> jagat-pavitraṁ pragṛṇīta karhicit\
+> tad vāyasaṁ tīrtham uśanti mānasā\
 > na yatra haṁsā niramanty uśik-kṣayāḥ
 
 *na*—not; *yat*—that; *vacaḥ*—vocabulary; *citra-padam*—decorative; *hareḥ*—of the Lord; *yaśaḥ*—glories; *jagat*—universe; *pavitram*—sanctified; *pragṛṇīta*—described; *karhicit*—hardly; *tat*—that; *vāyasam*—crows; *tīrtham*—place of pilgrimage; *uśanti*—think; *mānasāḥ*—saintly persons; *na*—not; *yatra*—where; *haṁsāḥ*—all-perfect beings; *niramanti*—take pleasure; *uśik-kṣayāḥ*—those who reside in the transcendental abode.

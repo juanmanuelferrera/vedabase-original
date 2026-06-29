@@ -1,11 +1,11 @@
 ### SB 6.4.47
 
-> अहमेवासमेवाग्रे नान्यत्किञ्चान्तरं बहिः
+> अहमेवासमेवाग्रे नान्यत्किञ्चान्तरं बहिः\
 > संज्ञआनमात्रमव्यक्तं प्रसुप्तमिव विश्वतः ॥४७॥
 
-> aham evāsam evāgre
-> nānyat kiñcāntaraṁ bahiḥ
-> saṁjñāna-mātram avyaktaṁ
+> aham evāsam evāgre\
+> nānyat kiñcāntaraṁ bahiḥ\
+> saṁjñāna-mātram avyaktaṁ\
 > prasuptam iva viśvataḥ
 
 *aham*—Yo, la Suprema Personalidad de Dios; *eva*—solamente; *āsam*—existía; *eva*—ciertamente; *agre*—al principio, antes de la creación; *na*—no; *anyat*—otro; *kiñca*—nada; *antaram*—aparte de Mí; *bahiḥ*—externo (puesto que la manifestación cósmica es externa al mundo espiritual, este existía cuando aún no existía el mundo material); *saṁjñāna-mātram*—solo la conciencia de las entidades vivientes; *avyaktam*—no manifestada; *prasuptam*—durmiente; *iva*—como; *viśvataḥ*—por todas partes.

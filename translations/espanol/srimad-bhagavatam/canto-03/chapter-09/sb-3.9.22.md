@@ -1,13 +1,13 @@
 ### SB 3.9.22
 
-> सोऽयं समस्तजगतां सुहृदेक आत्मा
-> सत्त्वेन यन्मृडयते भगवान्भगेन ।
-> तेनैव मे दृशमनुस्पृशताद्यथाहं
+> सोऽयं समस्तजगतां सुहृदेक आत्मा\
+> सत्त्वेन यन्मृडयते भगवान्भगेन ।\
+> तेनैव मे दृशमनुस्पृशताद्यथाहं\
 > स्रक्ष्यामि पूर्ववदिदं प्रणतप्रियोऽसौ ॥२२॥
 
-> so 'yaṁ samasta-jagatāṁ suhṛd eka ātmā
-> sattvena yan mṛḍayate bhagavān bhagena
-> tenaiva me dṛśam anuspṛśatād yathāhaṁ
+> so 'yaṁ samasta-jagatāṁ suhṛd eka ātmā\
+> sattvena yan mṛḍayate bhagavān bhagena\
+> tenaiva me dṛśam anuspṛśatād yathāhaṁ\
 > srakṣyāmi pūrvavad idaṁ praṇata-priyo 'sau
 
 *saḥ*—Él; *ayam*—el Señor; *samasta-jagatām*—de todos los universos; *suhṛt ekaḥ*—el único amigo y filósofo; *ātmā*—la Superalma; *sattvena*—por la modalidad de la bondad; *yat*—aquel que; *mṛḍayate*—causa felicidad; *bhagavān*—la Personalidad de Dios; *bhagena*—con seis opulencias; *tena*—por Él; *eva*—ciertamente; *me*—a mí; *dṛśam*—poder de introspección; *anuspṛśatāt*—que Él dé; *yathā*—como; *aham*—yo; *srakṣyāmi*—pueda crear; *pūrva-vat*—como antes; *idam*—este universo; *praṇata*—entregados; *priyaḥ*—queridos; *asau*—Él (el Señor).

@@ -1,11 +1,11 @@
 ### CC Madhya 22.154
 
-> বিরাজন্তীমভিব্যক্তাং ব্ৰজবাসিজনাদিষু ।
+> বিরাজন্তীমভিব্যক্তাং ব্ৰজবাসিজনাদিষু ।\
 > রাগাত্মিকামনুসৃতা যা সা রাগানুগোচ্যতে ॥১৫৪॥
 
-> virājantīm abhivyaktāṁ
-> vraja-vāsi-janādiṣu
-> rāgātmikām anusṛtā
+> virājantīm abhivyaktāṁ\
+> vraja-vāsi-janādiṣu\
+> rāgātmikām anusṛtā\
 > yā sā rāgānugocyate
 
 *virājantīm*—shining intensely; *abhivyaktām*—fully expressed; *vraja-vāsi-jana-ādiṣu*—among the eternal inhabitants of Vṛndāvana; *rāgātmikā*—devotional service consisting of spontaneous love; *anusṛtā*—following; *yā*—which; *sā*—that; *rāgānugā*—devotional service following in the wake of spontaneous love; *ucyate*—is said.

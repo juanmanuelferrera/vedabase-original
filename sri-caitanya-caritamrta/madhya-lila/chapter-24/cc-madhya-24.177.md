@@ -1,13 +1,13 @@
 ### CC Madhya 24.177
 
-> এতেঽলিনস্তব যশোঽখিল-লোকতীর্থং
-> গায়ন্ত আদিপুরুষানুপথং ভজন্তে ।
-> প্রায়ো অমী মুনিগণা ভবদীয়মুখ্যা
+> এতেঽলিনস্তব যশোঽখিল-লোকতীর্থং\
+> গায়ন্ত আদিপুরুষানুপথং ভজন্তে ।\
+> প্রায়ো অমী মুনিগণা ভবদীয়মুখ্যা\
 > গূঢ়ং বনেঽপি ন জহত্যনঘাত্মদৈবম্ ॥১৭৭॥
 
-> ete 'linas tava yaśo 'khila-loka-tīrthaṁ
-> gāyanta ādi-puruṣānupathaṁ bhajante
-> prāyo amī muni-gaṇā bhavadīya-mukhyā
+> ete 'linas tava yaśo 'khila-loka-tīrthaṁ\
+> gāyanta ādi-puruṣānupathaṁ bhajante\
+> prāyo amī muni-gaṇā bhavadīya-mukhyā\
 > gūḍhaṁ vane 'pi na jahaty anaghātma-daivam
 
 *ete*—all these; *alinaḥ*—bees; *tava*—Your; *yaśaḥ*—reputation; *akhila*—all; *loka-tīrtham*—auspicious for the planets; *gāyante*—are singing; *ādi-puruṣa*—O original person; *anupatham*—along the path; *bhajante*—they are engaged in transcendental loving service; *prāyaḥ*—almost; *amī*—these; *muni-gaṇāḥ*—great saintly persons; *bhavadīya*—in relation with You; *mukhyāḥ*—very advanced devotees; *gūḍham*—unknown; *vane*—in the forest; *api*—although; *na*—not; *jahati*—give up; *anagha*—O personality of transcendental goodness; *ātma-daivam*—their worshipable Deity.

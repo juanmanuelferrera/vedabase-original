@@ -1,11 +1,11 @@
 ### SB 3.15.13
 
-> त एकदा भगवतो वैकुण्ठस्यामलात्मनः ।
+> त एकदा भगवतो वैकुण्ठस्यामलात्मनः ।\
 > ययुर्वैकुण्ठनिलयं सर्वलोकनमस्कृतम् ॥१३॥
 
-> ta ekadā bhagavato
-> vaikuṇṭhasyāmalātmanaḥ
-> yayur vaikuṇṭha-nilayaṁ
+> ta ekadā bhagavato\
+> vaikuṇṭhasyāmalātmanaḥ\
+> yayur vaikuṇṭha-nilayaṁ\
 > sarva-loka-namaskṛtam
 
 *te*—they; *ekadā*—once upon a time; *bhagavataḥ*—of the Supreme Personality of Godhead; *vaikuṇṭhasya*—of Lord Viṣṇu; *amala-ātmanaḥ*—being freed from all material contamination; *yayuḥ*—entered; *vaikuṇṭha-nilayam*—the abode named Vaikuṇṭha; *sarva-loka*—by the residents of all the material planets; *namaskṛtam*—worshiped.

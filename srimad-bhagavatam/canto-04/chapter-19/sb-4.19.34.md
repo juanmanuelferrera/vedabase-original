@@ -1,11 +1,11 @@
 ### SB 4.19.34
 
-> मास्मिन्महाराज कृथाः स्म चिन्तां निशामयास्मद्वच आदृतात्मा ।
+> मास्मिन्महाराज कृथाः स्म चिन्तां निशामयास्मद्वच आदृतात्मा ।\
 > यद्ध्यायतो दैवहतं नु कर्तुं मनोऽतिरुष्टं विशते तमोऽन्धम् ॥३४॥
 
-> māsmin mahārāja kṛthāḥ sma cintāṁ
-> niśāmayāsmad-vaca ādṛtātmā
-> yad dhyāyato daiva-hataṁ nu kartuṁ
+> māsmin mahārāja kṛthāḥ sma cintāṁ\
+> niśāmayāsmad-vaca ādṛtātmā\
+> yad dhyāyato daiva-hataṁ nu kartuṁ\
 > mano 'tiruṣṭaṁ viśate tamo 'ndham
 
 *mā*—do not; *asmin*—in this; *mahā-rāja*—O King; *kṛthāḥ*—do; *sma*—as done in the past; *cintām*—agitation of the mind; *niśāmaya*—please consider; *asmat*—my; *vacaḥ*—words; *ādṛta-ātmā*—being very respectful; *yat*—because; *dhyāyataḥ*—of him who is contemplating; *daiva-hatam*—that which is thwarted by providence; *nu*—certainly; *kartum*—to do; *manaḥ*—the mind; *ati-ruṣṭam*—very angry; *viśate*—enters; *tamaḥ*—darkness; *andham*—dense.

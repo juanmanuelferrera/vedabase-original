@@ -1,9 +1,9 @@
 ### CC Antya 13.138
 
-> যে এইসকল কথা শুনে শ্রদ্ধা করি’ ।
+> যে এইসকল কথা শুনে শ্রদ্ধা করি’ ।\
 > তাঁরে কৃষ্ণপ্রেমধন দেন গৌরহরি ॥১৩৮॥
 
-> ye ei-sakala kathā śune śraddhā kari'
+> ye ei-sakala kathā śune śraddhā kari'\
 > tāṅre kṛṣṇa-prema-dhana dena gaurahari
 
 *ye*—aquel que; *ei-sakala*—todos estos; *kathā*—temas; *śune*—escucha; *śraddhā kari'*—con fe y amor; *tāṅre*—a él; *kṛṣṇa-prema-dhana*—la riqueza del amor extático por el Señor Kṛṣṇa; *dena*—concede; *gaurahari*—Śrī Caitanya Mahāprabhu.

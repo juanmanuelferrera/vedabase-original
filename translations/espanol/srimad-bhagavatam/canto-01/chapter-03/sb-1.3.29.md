@@ -1,11 +1,11 @@
 ### SB 1.3.29
 
-> जन्म गुह्यं भगवतो य एतत्प्रयतो नरः ।
+> जन्म गुह्यं भगवतो य एतत्प्रयतो नरः ।\
 > सायं प्रातर्गृणन्भक्त्या दुःखग्रामाद्विमुच्यते ॥२९॥
 
-> janma guhyaṁ bhagavato
-> ya etat prayato naraḥ
-> sāyaṁ prātar gṛṇan bhaktyā
+> janma guhyaṁ bhagavato\
+> ya etat prayato naraḥ\
+> sāyaṁ prātar gṛṇan bhaktyā\
 > duḥkha-grāmād vimucyate
 
 *janma*—nacimiento; *guhyam*—misterioso; *bhagavataḥ*—del Señor; *yaḥ*—uno; *etat*—todos estos; *prayataḥ*—cuidadosamente; *naraḥ*—hombre; *sāyam*—noche; *prātaḥ*—mañana; *gṛṇan*—recita; *bhaktyā*—con devoción; *duḥkha-grāmāt*—de todos los sufrimientos; *vimucyate*—se libera de.

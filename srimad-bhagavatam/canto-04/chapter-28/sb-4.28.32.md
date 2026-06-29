@@ -1,11 +1,11 @@
 ### SB 4.28.32
 
-> अगस्त्यः प्राग्दुहितरमुपयेमे धृतव्रताम् ।
+> अगस्त्यः प्राग्दुहितरमुपयेमे धृतव्रताम् ।\
 > यस्यां दृढच्युतो जात इध्मवाहात्मजो मुनिः ॥३२॥
 
-> agastyaḥ prāg duhitaram
-> upayeme dhṛta-vratām
-> yasyāṁ dṛḍhacyuto jāta
+> agastyaḥ prāg duhitaram\
+> upayeme dhṛta-vratām\
+> yasyāṁ dṛḍhacyuto jāta\
 > idhmavāhātmajo muniḥ
 
 *agastyaḥ*—the great sage Agastya; *prāk*—first; *duhitaram*—daughter; *upayeme*—married; *dhṛta-vratām*—taken to vows; *yasyām*—through whom; *dṛḍhacyutaḥ*—named Dṛḍhacyuta; *jātaḥ*—was born; *idhmavāha*—named Idhmavāha; *ātma-jaḥ*—son; *muniḥ*—the great sage.

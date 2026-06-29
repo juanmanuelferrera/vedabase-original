@@ -1,9 +1,9 @@
 ### CC Antya 3.139
 
-> তবে সেই বেশ্যা গুরুর আজ্ঞা লইল ।
+> তবে সেই বেশ্যা গুরুর আজ্ঞা লইল ।\
 > গৃহবিত্ত যেবা ছিল, ব্রাহ্মণেরে দিল ॥১৩৯॥
 
-> tabe sei veśyā gurura ājñā la-ila
+> tabe sei veśyā gurura ājñā la-ila\
 > gṛha-vitta yebā chila, brāhmaṇere dila
 
 *tabe*—thereafter; *sei*—that; *veśyā*—prostitute; *gurura*—of the spiritual master; *ājñā*—order; *la-ila*—took; *gṛha-vitta*—all household possessions; *yebā*—whatever; *chila*—there was; *brāhmaṇere*—to the *brāhmaṇas*; *dila*—gave.

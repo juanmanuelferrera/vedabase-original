@@ -1,18 +1,18 @@
 ### SB 8.23.26-27
 
-> ब्रह्मा शर्वः कुमारश्च भृग्वाद्या मुनयो नृप
-> पितरः सर्वभूतानि सिद्धा वैमानिकाश्च ये ॥२६॥
-> सुमहत्कर्म तद्विष्णोर्गायन्तः परमद्भुतम
+> ब्रह्मा शर्वः कुमारश्च भृग्वाद्या मुनयो नृप\
+> पितरः सर्वभूतानि सिद्धा वैमानिकाश्च ये ॥२६॥\
+> सुमहत्कर्म तद्विष्णोर्गायन्तः परमद्भुतम\
 > धिष्ण्यानि स्वानि ते जग्मुरदितिं च शशंसिरे ॥२७॥
 
-> brahmā śarvaḥ kumāraś ca
-> bhṛgv-ādyā munayo nṛpa
-> pitaraḥ sarva-bhūtāni
+> brahmā śarvaḥ kumāraś ca\
+> bhṛgv-ādyā munayo nṛpa\
+> pitaraḥ sarva-bhūtāni\
 > siddhā vaimānikāś ca ye
 
-> sumahat karma tad viṣṇor
-> gāyantaḥ param adbhutam
-> dhiṣṇyāni svāni te jagmur
+> sumahat karma tad viṣṇor\
+> gāyantaḥ param adbhutam\
+> dhiṣṇyāni svāni te jagmur\
 > aditiṁ ca śaśaṁsire
 
 *brahmā*—el Señor Brahmā; *śarvaḥ*—el Señor Śiva; *kumāraḥ ca*—también el Señor Kārttikeya; *bhṛgu-ādyāḥ*—encabezados por Bhṛgu Muni, uno de los siete *ṛṣis*; *munayaḥ*—las personas santas; *nṛpa*—¡oh, rey!; *pitaraḥ*—los habitantes de Pitṛloka; *sarva-bhūtāni*—otras entidades vivientes; *siddhāḥ*—los habitantes de Siddhaloka; *vaimānikāḥ ca*—seres humanos que pueden viajar por todo el espacio exterior en aviones; *ye*—esas personas; *sumahat*—muy dignas de alabanza; *karma*—actividades; *tat*—todas esas (actividades); *viṣṇoḥ*—hechas por el Señor Viṣṇu; *gāyantaḥ*—glorificando; *param adbhutam*—extraordinarias o maravillosas; *dhiṣṇyāni*—hacia sus respectivos planetas; *svāni*—propios; *te*—todos ellos; *jagmuḥ*—partieron; *aditim ca*—así como a Aditi; *śaśaṁsire*—alabaron todas estas actividades del Señor.

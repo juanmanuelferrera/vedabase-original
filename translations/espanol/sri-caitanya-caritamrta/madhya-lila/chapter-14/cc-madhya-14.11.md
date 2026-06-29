@@ -1,9 +1,9 @@
 ### CC Madhya 14.11
 
-> তুমি মোরে দিলে বহু অমূল্য রতন ।
+> তুমি মোরে দিলে বহু অমূল্য রতন ।\
 > মোর কিছু দিতে নাহি, দিলুঁ আলিঙ্গন ॥১১॥
 
-> tumi more dile bahu amūlya ratana
+> tumi more dile bahu amūlya ratana\
 > mora kichu dite nāhi, diluṅ āliṅgana
 
 *tumi*—tú; *more*—a Mí; *dile*—entregaste; *bahu*—diversas; *amūlya*—incalculables; *ratana*—gemas; *mora*—de Mí; *kichu*—algo; *dite*—para dar; *nāhi*—no hay; *diluṅ*—doy; *āliṅgana*—un abrazo.

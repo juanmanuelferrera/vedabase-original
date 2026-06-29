@@ -1,11 +1,11 @@
 ### SB 4.26.20
 
-> अनुनिन्येऽथ शनकैर्वीरोऽनुनयकोविदः ।
+> अनुनिन्येऽथ शनकैर्वीरोऽनुनयकोविदः ।\
 > पस्पर्श पादयुगलमाह चोत्सङ्गलालिताम् ॥२०॥
 
-> anuninye 'tha śanakair
-> vīro 'nunaya-kovidaḥ
-> pasparśa pāda-yugalam
+> anuninye 'tha śanakair\
+> vīro 'nunaya-kovidaḥ\
+> pasparśa pāda-yugalam\
 > āha cotsaṅga-lālitām
 
 *anuninye*—comenzó a adular; *atha*—así; *śanakaiḥ*—poco a poco; *vīraḥ*—el héroe; *anunaya-kovidaḥ*—el que es muy experto en adular; *pasparśa*—tocó; *pāda-yugalam*—los dos pies; *āha*—dijo; *ca*—también; *utsaṅga*—en su regazo; *lālitām*—así abrazada.

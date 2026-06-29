@@ -1,9 +1,9 @@
 ### CC Madhya 5.93
 
-> বিপ্র বলে, — “যদি হও চতুর্ভুজ-মূর্তি ।
+> বিপ্র বলে, — “যদি হও চতুর্ভুজ-মূর্তি ।\
 > তবু তোমার বাক্যে কারু না হবে প্রতীতি ॥৯৩॥
 
-> vipra bale,--"yadi hao caturbhuja-mūrti
+> vipra bale,--"yadi hao caturbhuja-mūrti\
 > tabu tomāra vākye kāru nā habe pratīti
 
 *vipra bale*—el brāhmaṇa joven dice; *yadi*—si; *hao*—Te conviertes en; *catuḥ-bhuja*—con cuatro brazos; *mūrti*—Deidad; *tabu*—aun así; *tomāra*—Tus; *vākye*—en las palabras; *kāru*—de nadie; *nā*—no; *habe*—habrá; *pratīti*—creencia.

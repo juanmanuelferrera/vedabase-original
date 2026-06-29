@@ -1,9 +1,9 @@
 ### CC Madhya 24.274
 
-> তবে সেই ব্যাধ দোঁহারে অঙ্গনে আনিল ।
+> তবে সেই ব্যাধ দোঁহারে অঙ্গনে আনিল ।\
 > কুশাসন আনি’ দোঁহারে ভক্ত্যে বসাইল ॥২৭৪॥
 
-> tabe sei vyādha doṅhāre aṅgane ānila
+> tabe sei vyādha doṅhāre aṅgane ānila\
 > kuśāsana āni' doṅhāre bhaktye vasāila
 
 *tabe*—a continuación; *sei*—aquel; *vyādha*—cazador; *doṅhāre*—a ambos, Nārada Muni y Parvata; *aṅgane ānila*—los llevó al patio de su casa; *kuśa-āsana āni'*—trayendo esteras de paja para sentarse; *doṅhāre*—a ambos; *bhaktye*—con gran devoción; *vasāila*—los hizo sentarse.

@@ -1,11 +1,11 @@
 ### CC Adi 6.74
 
-> তপশ্চরন্তীমাজ্ঞায় স্বপাদস্পর্শনাশয়া ।
+> তপশ্চরন্তীমাজ্ঞায় স্বপাদস্পর্শনাশয়া ।\
 > সখ্যোপেত্যাগ্রহীৎ পাণিং সাহং তদ্গৃহমার্জনী ॥৭৪॥
 
-> tapaś carantīm ājñāya
-> sva-pāda-sparśanāśayā
-> sakhyopetyāgrahīt pāṇiṁ
+> tapaś carantīm ājñāya\
+> sva-pāda-sparśanāśayā\
+> sakhyopetyāgrahīt pāṇiṁ\
 > sāhaṁ tad-gṛha-mārjanī
 
 *tapaḥ*—austeridad; *carantīm*—realizando; *ājñāya*—sabiendo; *sva-pāda-sparśana*—de tocar Sus pies; *āśayā*—con el deseo; *sakhyā*—con Su amigo Arjuna; *upetya*—viniendo; *agrahīt*—aceptó; *pāṇim*—mi mano; *sā*—esa mujer; *aham*—yo; *tat*—Su; *gṛha-mārjanī*—encargada del hogar.

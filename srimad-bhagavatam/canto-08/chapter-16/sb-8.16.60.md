@@ -1,11 +1,11 @@
 ### SB 8.16.60
 
-> अयं वै सर्वयज्ञआख्यः सर्वव्रतमिति स्मृतम
+> अयं वै सर्वयज्ञआख्यः सर्वव्रतमिति स्मृतम\
 > तपःसारमिदं भद्रे दानं चेश्वरतर्पणम ॥६०॥
 
-> ayaṁ vai sarva-yajñākhyaḥ
-> sarva-vratam iti smṛtam
-> tapaḥ-sāram idaṁ bhadre
+> ayaṁ vai sarva-yajñākhyaḥ\
+> sarva-vratam iti smṛtam\
+> tapaḥ-sāram idaṁ bhadre\
 > dānaṁ ceśvara-tarpaṇam
 
 *ayam*—this; *vai*—indeed; *sarva-yajña*—all kinds of religious rituals and sacrifices; *ākhyaḥ*—called; *sarva-vratam*—all religious ceremonies; *iti*—thus; *smṛtam*—understood; *tapaḥ-sāram*—the essence of all austerities; *idam*—this; *bhadre*—O good lady; *dānam*—acts of charity; *ca*—and; *īśvara*—the Supreme Personality of Godhead; *tarpaṇam*—the process of pleasing.

@@ -1,11 +1,11 @@
 ### SB 3.1.17
 
-> स निर्गतः कौरवपुण्यलब्धो गजाह्वयात्तीर्थपदः पदानि ।
+> स निर्गतः कौरवपुण्यलब्धो गजाह्वयात्तीर्थपदः पदानि ।\
 > अन्वाक्रमत्पुण्यचिकीर्षयोर्व्यामधिष्ठितो यानि सहस्रमूर्तिः ॥१७॥
 
-> sa nirgataḥ kaurava-puṇya-labdho
-> gajāhvayāt tīrtha-padaḥ padāni
-> anvākramat puṇya-cikīrṣayorvyām
+> sa nirgataḥ kaurava-puṇya-labdho\
+> gajāhvayāt tīrtha-padaḥ padāni\
+> anvākramat puṇya-cikīrṣayorvyām\
 > adhiṣṭhito yāni sahasra-mūrtiḥ
 
 *saḥ*—él (Vidura); *nirgataḥ*—tras haber abandonado; *kaurava*—la dinastía Kuru; *puṇya*—piedad; *labdhaḥ*—así lograda; *gaja-āhvayāt*—de Hastināpura; *tīrtha-padaḥ*—del Señor Supremo; *padāni*—peregrinajes; *anvākramat*—se refugió; *puṇya*—piedad; *cikīrṣayā*—deseando así; *urvyām*—de alto grado; *adhiṣṭhitaḥ*—situadas; *yāni*—todas esas; *sahasra*—miles; *mūrtiḥ*—formas.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.195
 
-> মহাপাত্র চলি’ আইলা মহাপ্ৰভুর সনে ।
+> মহাপাত্র চলি’ আইলা মহাপ্ৰভুর সনে ।\
 > ম্লেচ্ছ আসি’ কৈল প্রভুর চরণ বন্দনে ॥১৯৫॥
 
-> mahā-pātra cali' āilā mahāprabhura sane
+> mahā-pātra cali' āilā mahāprabhura sane\
 > mleccha āsi' kaila prabhura caraṇa vandane
 
 *mahā-pātra*—el representante del gobierno de Orissa; *cali'*—desplazándose; *āilā*—fue; *mahāprabhura sane*—con Śrī Caitanya Mahāprabhu; *mleccha*—el gobernador de la otra orilla; *āsi'*—llegando; *kaila*—realizó; *prabhura caraṇa vandane*—la adoración de los pies de loto del Señor.

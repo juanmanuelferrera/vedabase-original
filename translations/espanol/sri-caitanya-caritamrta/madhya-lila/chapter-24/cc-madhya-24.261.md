@@ -1,9 +1,9 @@
 ### CC Madhya 24.261
 
-> তুলসী-পরিক্রমা কর, তুলসী-সেবন  ।
+> তুলসী-পরিক্রমা কর, তুলসী-সেবন  ।\
 > নিরন্তর কৃষ্ণনাম করিহ কীর্তন ॥২৬১॥
 
-> tulasī-parikramā kara, tulasī-sevana
+> tulasī-parikramā kara, tulasī-sevana\
 > nirantara kṛṣṇa-nāma kariha kīrtana
 
 *tulasī-parikramā kara*—circunvala la planta de *tulasī*; *tulasī-sevana*—simplemente riega la raíz de *tulasī-devī*; *nirantara*—continuamente; *kṛṣṇa-nāma*—el santo nombre de Kṛṣṇa; *kariha*—simplemente realiza; *kīrtana*—el canto.

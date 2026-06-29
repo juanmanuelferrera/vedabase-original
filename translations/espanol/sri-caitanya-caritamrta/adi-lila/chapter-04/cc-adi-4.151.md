@@ -1,9 +1,9 @@
 ### CC Adi 4.151
 
-> কোটি নেত্র নাহি দিল, সবে দিল দুই ।
+> কোটি নেত্র নাহি দিল, সবে দিল দুই ।\
 > তাহাতে নিমেষ, — কৃষ্ণ কি দেখিব মুঞি ॥১৫১॥
 
-> koṭi netra nāhi dila, sabe dila dui
+> koṭi netra nāhi dila, sabe dila dui\
 > tāhāte nimeṣa,--kṛṣṇa ki dekhiba muñi
 
 *koṭi*—diez millones; *netra*—ojos; *nāhi dila*—no dio; *sabe*—a todos; *dila*—dio; *dui*—dos; *tāhāte*—además; *nimeṣa*—un parpadeo; *kṛṣṇa*—al Señor Kṛṣṇa; *ki*—cómo; *dekhiba*—veré; *muñi*—yo.

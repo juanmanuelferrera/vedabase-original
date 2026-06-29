@@ -1,20 +1,20 @@
 ### SB 3.18.22-23
 
-> ब्रह्मोवाच
-> एष ते देव देवानामङ्घ्रिमूलमुपेयुषाम् ।
-> विप्राणां सौरभेयीणां भूतानामप्यनागसाम् ॥२२॥
-> आगस्कृद्भयकृद्दुष्कृदस्मद्राद्धवरोऽसुरः ।
+> ब्रह्मोवाच\
+> एष ते देव देवानामङ्घ्रिमूलमुपेयुषाम् ।\
+> विप्राणां सौरभेयीणां भूतानामप्यनागसाम् ॥२२॥\
+> आगस्कृद्भयकृद्दुष्कृदस्मद्राद्धवरोऽसुरः ।\
 > अन्वेषन्नप्रतिरथो लोकानटति कण्टकः ॥२३॥
 
-> brahmovāca
-> eṣa te deva devānām
-> aṅghri-mūlam upeyuṣām
-> viprāṇāṁ saurabheyīṇāṁ
+> brahmovāca\
+> eṣa te deva devānām\
+> aṅghri-mūlam upeyuṣām\
+> viprāṇāṁ saurabheyīṇāṁ\
 > bhūtānām apy anāgasām
 
-> āgas-kṛd bhaya-kṛd duṣkṛd
-> asmad-rāddha-varo 'suraḥ
-> anveṣann apratiratho
+> āgas-kṛd bhaya-kṛd duṣkṛd\
+> asmad-rāddha-varo 'suraḥ\
+> anveṣann apratiratho\
 > lokān aṭati kaṇṭakaḥ
 
 *brahmā uvāca*—Brahmā dijo; *eṣaḥ*—este demonio; *te*—Tus; *deva*—¡oh, Señor!; *devānām*—a los semidioses; *aṅghri-mūlam*—Tus pies; *upeyuṣām*—a los que han alcanzado; *viprāṇām*—a los *brāhmaṇas*; *saurabheyīṇām*—a las vacas; *bhūtānām*—a las entidades vivientes comunes; *api*—también; *anāgasām*—inocentes; *āgaḥ-kṛt*—un ofensor; *bhaya-kṛt*—una fuente de temor; *duṣkṛt*—malhechor; *asmat*—de mí; *rāddha-varaḥ*—habiendo obtenido una bendición; *asuraḥ*—un demonio; *anveṣan*—buscando; *apratirathaḥ*—sin tener un rival adecuado; *lokān*—por todo el universo; *aṭati*—vaga; *kaṇṭakaḥ*—siendo causa de irritación para todos.

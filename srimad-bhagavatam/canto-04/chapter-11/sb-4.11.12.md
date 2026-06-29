@@ -1,11 +1,11 @@
 ### SB 4.11.12
 
-> स त्वं हरेरनुध्यातस्तत्पुंसामपि सम्मतः ।
+> स त्वं हरेरनुध्यातस्तत्पुंसामपि सम्मतः ।\
 > कथं त्ववद्यं कृतवाननुशिक्षन्सतां व्रतम् ॥१२॥
 
-> sa tvaṁ harer anudhyātas
-> tat-puṁsām api sammataḥ
-> kathaṁ tv avadyaṁ kṛtavān
+> sa tvaṁ harer anudhyātas\
+> tat-puṁsām api sammataḥ\
+> kathaṁ tv avadyaṁ kṛtavān\
 > anuśikṣan satāṁ vratam
 
 *saḥ*—that person; *tvam*—you; *hareḥ*—by the Supreme Lord; *anudhyātaḥ*—being always remembered; *tat*—His; *puṁsām*—by the devotees; *api*—also; *sammataḥ*—esteemed; *katham*—why; *tu*—then; *avadyam*—abominable (act); *kṛtavān*—you have undertaken; *anuśikṣan*—setting the example; *satām*—of saintly persons; *vratam*—a vow.

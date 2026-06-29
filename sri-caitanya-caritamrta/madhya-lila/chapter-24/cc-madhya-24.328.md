@@ -1,9 +1,9 @@
 ### CC Madhya 24.328
 
-> প্রভু কহে, — “যে করিতে করিবা তুমি মন ।
+> প্রভু কহে, — “যে করিতে করিবা তুমি মন ।\
 > কৃষ্ণ সেই সেই তোমা করাবে স্ফুরণ ॥৩২৮॥
 
-> prabhu kahe,—"ye karite karibā tumi mana
+> prabhu kahe,—"ye karite karibā tumi mana\
 > kṛṣṇa sei sei tomā karābe sphuraṇa
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *ye*—whatever; *karite*—to do; *karibā tumi mana*—you want; *kṛṣṇa*—Lord Kṛṣṇa; *sei sei*—that; *tomā*—to you; *karābe sphuraṇa*—will manifest.

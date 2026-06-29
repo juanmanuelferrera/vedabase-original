@@ -1,9 +1,9 @@
 ### CC Madhya 3.32
 
-> তুমি ত’ আচার্য গোসাঞি, এথা কেনে আইলা ।
+> তুমি ত’ আচার্য গোসাঞি, এথা কেনে আইলা ।\
 > আমি বৃন্দাবনে, তুমি কেমতে জানিলা ॥৩২॥
 
-> tumi ta' ācārya-gosāñi, ethā kene āilā
+> tumi ta' ācārya-gosāñi, ethā kene āilā\
 > āmi vṛndāvane, tumi ke-mate jānilā
 
 *tumi*—You are; *ta'*—certainly; *ācārya-gosāñi*—Advaita Ācārya; *ethā*—here; *kene*—why; *āilā*—You have come; *āmi*—I; *vṛndāvane*—in Vṛndāvana; *tumi*—You; *ke-mate*—how; *jānilā*—knew.

@@ -1,9 +1,9 @@
 ### CC Antya 6.185
 
-> ছত্রভোগ পার হঞা ছাড়িয়া সরাণ ।
+> ছত্রভোগ পার হঞা ছাড়িয়া সরাণ ।\
 > কুগ্রাম দিয়া দিয়া করিল প্রয়াণ ॥১৮৫॥
 
-> chatrabhoga pāra hañā chāḍiyā sarāṇa
+> chatrabhoga pāra hañā chāḍiyā sarāṇa\
 > kugrāma diyā diyā karila prayāṇa
 
 *chatra-bhoga*—el lugar llamado Chatrabhoga; *pāra hañā*—cruzando; *chāḍiyā*—abandonando; *sarāṇa*—el camino real; *kugrāma diyā diyā*—avanzando por senderos de aldea; *karila prayāṇa*—prosiguió.

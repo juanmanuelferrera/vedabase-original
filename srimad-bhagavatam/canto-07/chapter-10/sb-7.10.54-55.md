@@ -1,18 +1,18 @@
 ### SB 7.10.54-55
 
-> स निर्माय पुरस्तिस्रो हैमीरौप्यायसीर्विभुः
-> दुर्लक्ष्यापायसंयोगा दुर्वितर्क्यपरिच्छदाः ॥५४॥
-> ताभिस्तेऽसुरसेनान्यो लोकांस्त्रीन्सेश्वरान्नृप
+> स निर्माय पुरस्तिस्रो हैमीरौप्यायसीर्विभुः\
+> दुर्लक्ष्यापायसंयोगा दुर्वितर्क्यपरिच्छदाः ॥५४॥\
+> ताभिस्तेऽसुरसेनान्यो लोकांस्त्रीन्सेश्वरान्नृप\
 > स्मरन्तो नाशयां चक्रुः पूर्ववैरमलक्षिताः ॥५५॥
 
-> sa nirmāya puras tisro
-> haimī-raupyāyasīr vibhuḥ
-> durlakṣyāpāya-saṁyogā
+> sa nirmāya puras tisro\
+> haimī-raupyāyasīr vibhuḥ\
+> durlakṣyāpāya-saṁyogā\
 > durvitarkya-paricchadāḥ
 
-> tābhis te 'sura-senānyo
-> lokāṁs trīn seśvarān nṛpa
-> smaranto nāśayāṁ cakruḥ
+> tābhis te 'sura-senānyo\
+> lokāṁs trīn seśvarān nṛpa\
+> smaranto nāśayāṁ cakruḥ\
 > pūrva-vairam alakṣitāḥ
 
 *saḥ*—that (great demon Maya Dānava); *nirmāya*—constructing; *puraḥ*—big residences; *tisraḥ*—three; *haimī*—made of gold; *raupyā*—made of silver; *āyasīḥ*—made of iron; *vibhuḥ*—very great, powerful; *durlakṣya*—immeasurable; *apāya-saṁyogāḥ*—whose movements in coming and going; *durvitarkya*—uncommon; *paricchadāḥ*—possessing paraphernalia; *tābhiḥ*—by all of them (the three residences, which resembled airplanes); *te*—they; *asura-senā-anyaḥ*—the commanders of the *asuras*; *lokān trīn*—the three worlds; *sa-īśvarān*—with their chief rulers; *nṛpa*—my dear King Yudhiṣṭhira; *smarantaḥ*—remembering; *nāśayām cakruḥ*—began to annihilate; *pūrva*—former; *vairam*—enmity; *alakṣitāḥ*—unseen by anyone else.

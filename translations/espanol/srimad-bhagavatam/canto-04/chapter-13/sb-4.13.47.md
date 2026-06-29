@@ -1,11 +1,11 @@
 ### SB 4.13.47
 
-> एवं स निर्विण्णमना नृपो गृहान्निशीथ उत्थाय महोदयोदयात् ।
+> एवं स निर्विण्णमना नृपो गृहान्निशीथ उत्थाय महोदयोदयात् ।\
 > अलब्धनिद्रोऽनुपलक्षितो नृभिर्हित्वा गतो वेनसुवं प्रसुप्ताम् ॥४७॥
 
-> evaṁ sa nirviṇṇa-manā nṛpo gṛhān
-> niśītha utthāya mahodayodayāt
-> alabdha-nidro 'nupalakṣito nṛbhir
+> evaṁ sa nirviṇṇa-manā nṛpo gṛhān\
+> niśītha utthāya mahodayodayāt\
+> alabdha-nidro 'nupalakṣito nṛbhir\
 > hitvā gato vena-suvaṁ prasuptām
 
 *evam*—de este modo; *saḥ*—él; *nirviṇṇa-manāḥ*—con una mentalidad indiferente; *nṛpaḥ*—el rey Aṅga; *gṛhāt*—del hogar; *niśīthe*—en la oscuridad de la noche; *utthāya*—levantarse; *mahā-udaya-udayāt*—opulento por las bendiciones de las grandes almas; *alabdha-nidraḥ*—sin sentir sueño; *anupalakṣitaḥ*—sin ser visto; *nṛbhiḥ*—por la gente en general; *hitvā*—abandonando; *gataḥ*—se fue; *vena-suvam*—a la madre de Vena; *prasuptām*—profundamente dormida.

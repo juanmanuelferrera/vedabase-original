@@ -1,11 +1,11 @@
 ### SB 8.6.25
 
-> न भेतव्यं कालकूटाद्विषाज्जलधिसम्भवात
+> न भेतव्यं कालकूटाद्विषाज्जलधिसम्भवात\
 > लोभः कार्यो न वो जातु रोषः कामस्तु वस्तुषु ॥२५॥
 
-> na bhetavyaṁ kālakūṭād
-> viṣāj jaladhi-sambhavāt
-> lobhaḥ kāryo na vo jātu
+> na bhetavyaṁ kālakūṭād\
+> viṣāj jaladhi-sambhavāt\
+> lobhaḥ kāryo na vo jātu\
 > roṣaḥ kāmas tu vastuṣu
 
 *na*—not; *bhetavyam*—should be afraid; *kālakūṭāt*—of *kālakūṭa*; *viṣāt*—from the poison; *jaladhi*—from the ocean of milk; *sambhavāt*—which will appear; *lobhaḥ*—greed; *kāryaḥ*—execution; *na*—not; *vaḥ*—unto you; *jātu*—at any time; *roṣaḥ*—anger; *kāmaḥ*—lust; *tu*—and; *vastuṣu*—in the products.

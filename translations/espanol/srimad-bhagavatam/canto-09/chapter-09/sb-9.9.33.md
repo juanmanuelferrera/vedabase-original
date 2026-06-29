@@ -1,11 +1,11 @@
 ### SB 9.9.33
 
-> एवं करुणभाषिण्या विलपन्त्या अनाथवत
+> एवं करुणभाषिण्या विलपन्त्या अनाथवत\
 > व्याघ्रः पशुमिवाखादत्सौदासः शापमोहितः ॥३३॥
 
-> evaṁ karuṇa-bhāṣiṇyā
-> vilapantyā anāthavat
-> vyāghraḥ paśum ivākhādat
+> evaṁ karuṇa-bhāṣiṇyā\
+> vilapantyā anāthavat\
+> vyāghraḥ paśum ivākhādat\
 > saudāsaḥ śāpa-mohitaḥ
 
 *evam*—de este modo; *karuṇa-bhāṣiṇyāḥ*—mientras la esposa del *brāhmaṇa* hablaba lastimosamente; *vilapantyāḥ*—con grandes lamentaciones; *anātha-vat*—del mismo modo que una mujer sin protector; *vyāghraḥ*—un tigre; *paśum*—a un animal cazado; *iva*—como; *akhādat*—comió; *saudāsaḥ*—el rey Saudāsa; *śāpa*—por la maldición; *mohitaḥ*—por haber sido condenado.

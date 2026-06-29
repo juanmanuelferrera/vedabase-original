@@ -1,11 +1,11 @@
 ### SB 7.7.39
 
-> रायः कलत्रं पशवः सुतादयो गृहा मही कुञ्जरकोशभूतयः
+> रायः कलत्रं पशवः सुतादयो गृहा मही कुञ्जरकोशभूतयः\
 > सर्वेऽर्थकामाः क्षणभङ्गुरायुषः कुर्वन्ति मर्त्यस्य कियत्प्रियं चलाः ॥३९॥
 
-> rāyaḥ kalatraṁ paśavaḥ sutādayo
-> gṛhā mahī kuñjara-kośa-bhūtayaḥ
-> sarve 'rtha-kāmāḥ kṣaṇa-bhaṅgurāyuṣaḥ
+> rāyaḥ kalatraṁ paśavaḥ sutādayo\
+> gṛhā mahī kuñjara-kośa-bhūtayaḥ\
+> sarve 'rtha-kāmāḥ kṣaṇa-bhaṅgurāyuṣaḥ\
 > kurvanti martyasya kiyat priyaṁ calāḥ
 
 *rāyaḥ*—la riqueza; *kalatram*—la esposa y amistades femeninas; *paśavaḥ*—animales domésticos, como las vacas, los caballos, los asnos, los perros y los gatos; *suta-ādayaḥ*—los hijos y demás; *gṛhāḥ*—grandes edificios y residencias; *mahī*—** tierras; *kuñjara*—elefantes; *kośa*—sala del tesoro; *bhūtayaḥ*—y otros lujos para la complacencia de los sentidos y el disfrute material; *sarve*—todo; *artha*—el crecimiento económico; *kāmāḥ*—y la complacencia de los sentidos; *kṣaṇa-bhaṅgura*—que se termina en un instante; *āyuṣaḥ*—de aquel cuya duración de la vida; *kurvanti*—efecto de traer; *martyasya*—del que está destinado a morir; *kiyat*—cuánto; *priyam*—placer; *calāḥ*—vacilante y temporal.

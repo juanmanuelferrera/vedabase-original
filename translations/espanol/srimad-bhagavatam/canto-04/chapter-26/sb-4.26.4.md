@@ -1,11 +1,11 @@
 ### SB 4.26.4
 
-> चचार मृगयां तत्र दृप्त आत्तेषुकार्मुकः ।
+> चचार मृगयां तत्र दृप्त आत्तेषुकार्मुकः ।\
 > विहाय जायामतदर्हां मृगव्यसनलालसः ॥४॥
 
-> cacāra mṛgayāṁ tatra
-> dṛpta ātteṣu-kārmukaḥ
-> vihāya jāyām atad-arhāṁ
+> cacāra mṛgayāṁ tatra\
+> dṛpta ātteṣu-kārmukaḥ\
+> vihāya jāyām atad-arhāṁ\
 > mṛga-vyasana-lālasaḥ
 
 *cacāra*—ejecutó; *mṛgayām*—caza; *tatra*—allí; *dṛptaḥ*—estando orgulloso; *ātta*—habiendo tomado; *iṣu*—flechas; *kārmukaḥ*—arco; *vihāya*—abandonar; *jāyām*—a su esposa; *a-tat-arhām*—aunque imposible; *mṛga*—cazar; *vyasana*—actividades malignas; *lālasaḥ*—inspirado por.

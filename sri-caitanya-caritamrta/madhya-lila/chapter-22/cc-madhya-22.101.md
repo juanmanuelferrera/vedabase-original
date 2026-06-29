@@ -1,11 +1,11 @@
 ### CC Madhya 22.101
 
-> তবাস্মীতি বদন্ বাচা তথৈব মনসা বিদন্ ।
+> তবাস্মীতি বদন্ বাচা তথৈব মনসা বিদন্ ।\
 > তৎস্থানমাশ্রিতস্তন্বা মোদতে শরণাগতঃ ॥১০১॥
 
-> tavāsmīti vadan vācā
-> tathaiva manasā vidan
-> tat-sthānam āśritas tanvā
+> tavāsmīti vadan vācā\
+> tathaiva manasā vidan\
+> tat-sthānam āśritas tanvā\
 > modate śaraṇāgataḥ
 
 *tava*—His; *asmi*—I am; *iti*—thus; *vadan*—saying; *vācā*—by words; *tathā*—so; *eva*—certainly; *manasā*—with the mind; *vidan*—knowing; *tat-sthānam*—His place; *āśritaḥ*—taken shelter of; *tanvā*—by the body; *modate*—he enjoys; *śaraṇa-āgataḥ*—fully surrendered.

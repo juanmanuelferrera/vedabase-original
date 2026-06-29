@@ -1,9 +1,9 @@
 ### CC Madhya 17.160
 
-> লোক ‘হরি’ ‘হরি’ বলে, কোলাহল হৈল ।
+> লোক ‘হরি’ ‘হরি’ বলে, কোলাহল হৈল ।\
 > ‘কেশব’-সেবক প্রভুকে মালা পরাইল ॥১৬০॥
 
-> loka 'hari' 'hari' bale, kolāhala haila
+> loka 'hari' 'hari' bale, kolāhala haila\
 > 'keśava'-sevaka prabhuke mālā parāila
 
 *loka*—toda la gente; *hari hari bale*—comenzó a cantar los santos nombres Hari, Hari; *kolāhala haila*—se produjo un gran alboroto; *keśava-sevaka*—el sacerdote al servicio del Señor Keśava; *prabhuke*—a Śrī Caitanya Mahāprabhu; *mālā parāila*—le ofreció una guirnalda.

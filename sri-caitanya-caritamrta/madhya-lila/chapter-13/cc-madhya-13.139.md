@@ -1,13 +1,13 @@
 ### CC Madhya 13.139
 
-> পূর্বে উদ্ধব-দ্বারে, এবে সাক্ষাৎ আমারে,
-> যোগ-জ্ঞানে কহিলা উপায় ।
-> তুমি — বিদগ্ধ, কৃপাময়, জানহ আমার হৃদয়,
+> পূর্বে উদ্ধব-দ্বারে, এবে সাক্ষাৎ আমারে,\
+> যোগ-জ্ঞানে কহিলা উপায় ।\
+> তুমি — বিদগ্ধ, কৃপাময়, জানহ আমার হৃদয়,\
 > মোরে ঐছে কহিতে না যুয়ায় ॥১৩৯॥
 
-> pūrve uddhava-dvāre, ebe sākṣāt āmāre,
-> yoga-jñāne kahilā upāya
-> tumi-vidagdha, kṛpāmaya, jānaha āmāra hṛdaya,
+> pūrve uddhava-dvāre, ebe sākṣāt āmāre,\
+> yoga-jñāne kahilā upāya\
+> tumi-vidagdha, kṛpāmaya, jānaha āmāra hṛdaya,\
 > more aiche kahite nā yuyāya
 
 *pūrve*—previously; *uddhava-dvāre*—through Uddhava; *ebe*—now; *sākṣāt*—directly; *āmāre*—unto Me; *yoga*—mystic yogic meditation; *jñāne*—philosophical speculation; *kahilā*—You have said; *upāya*—the means; *tumi*—You; *vidagdha*—very humorous; *kṛpā-maya*—mercifu1; *jānaha*—You know; *āmāra*—My; *hṛdaya*—mind; *more*—unto Me; *aiche*—in that way; *kahite*—to speak; *nā yuyāya*—is not at all befitting.

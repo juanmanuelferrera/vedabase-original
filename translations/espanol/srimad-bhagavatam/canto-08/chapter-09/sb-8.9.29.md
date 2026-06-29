@@ -1,13 +1,13 @@
 ### SB 8.9.29
 
-> यद्युज्यतेऽसुवसुकर्ममनोवचोभिर
-> देहात्मजादिषु नृभिस्तदसत्पृथक्त्वात
-> तैरेव सद्भवति यत्क्रियतेऽपृथक्त्वात
+> यद्युज्यतेऽसुवसुकर्ममनोवचोभिर\
+> देहात्मजादिषु नृभिस्तदसत्पृथक्त्वात\
+> तैरेव सद्भवति यत्क्रियतेऽपृथक्त्वात\
 > सर्वस्य तद्भवति मूलनिषेचनं यत ॥२९॥
 
-> yad yujyate 'su-vasu-karma-mano-vacobhir
-> dehātmajādiṣu nṛbhis tad asat pṛthaktvāt
-> tair eva sad bhavati yat kriyate 'pṛthaktvāt
+> yad yujyate 'su-vasu-karma-mano-vacobhir\
+> dehātmajādiṣu nṛbhis tad asat pṛthaktvāt\
+> tair eva sad bhavati yat kriyate 'pṛthaktvāt\
 > sarvasya tad bhavati mūla-niṣecanaṁ yat
 
 *yat*—cualesquiera; *yujyate*—se realizan; *asu*—para proteger la propia vida; *vasu*—proteger la riqueza; *karma*—actividades; *manaḥ*—con los actos de la mente; *vacobhiḥ*—con los actos verbales; *deha-ātma-ja-ādiṣu*—para el propio cuerpo, la familia, etc.; *nṛbhiḥ*—por los seres humanos; *tat*—eso; *asat*—no permanente, pasajero; *pṛthaktvāt*—debido a la separación de la Suprema Personalidad de Dios; *taiḥ*—con las mismas actividades; *eva*—en verdad; *sat bhavati*—se hace real y permanente; *yat*—lo cual; *kriyate*—se realiza; *apṛthaktvāt*—debido a que no hay separación; *sarvasya*—para todos; *tat bhavati*—resulta beneficioso; *mūla-niṣecanam*—igual que el agua con que se riega la raíz de un árbol; *yat*—que.

@@ -1,18 +1,18 @@
 ### SB 1.4.17-18
 
-> भौतिकानां च भावानां शक्तिह्रासं च तत्कृतम् ।
-> अश्रद्दधानान्निःसत्त्वान्दुर्मेधान्ह्रसितायुषः ॥१७॥
-> दुर्भगांश्च जनान्वीक्ष्य मुनिर्दिव्येन चक्षुषा ।
+> भौतिकानां च भावानां शक्तिह्रासं च तत्कृतम् ।\
+> अश्रद्दधानान्निःसत्त्वान्दुर्मेधान्ह्रसितायुषः ॥१७॥\
+> दुर्भगांश्च जनान्वीक्ष्य मुनिर्दिव्येन चक्षुषा ।\
 > सर्ववर्णाश्रमाणां यद्दध्यौ हितममोघदृक् ॥१८॥
 
-> bhautikānāṁ ca bhāvānāṁ
-> śakti-hrāsaṁ ca tat-kṛtam
-> aśraddadhānān niḥsattvān
+> bhautikānāṁ ca bhāvānāṁ\
+> śakti-hrāsaṁ ca tat-kṛtam\
+> aśraddadhānān niḥsattvān\
 > durmedhān hrasitāyuṣaḥ
 
-> durbhagāṁś ca janān vīkṣya
-> munir divyena cakṣuṣā
-> sarva-varṇāśramāṇāṁ yad
+> durbhagāṁś ca janān vīkṣya\
+> munir divyena cakṣuṣā\
+> sarva-varṇāśramāṇāṁ yad\
 > dadhyau hitam amogha-dṛk
 
 *bhautikānām ca*—also of everything that is made of matter; *bhāvānām*—actions; *śakti-hrāsam ca*—and deterioration of natural power; *tat-kṛtam*—rendered by that; *aśraddadhānān*—of the faithless; *niḥsattvān*—impatient due to want of the mode of goodness; *durmedhān*—dull-witted; *hrasita*—reduced; *āyuṣaḥ*—of duration of life; *durbhagān ca*—also the unlucky; *janān*—people in general; *vīkṣya*—by seeing; *muniḥ*—the *muni*; *divyena*—by transcendental; *cakṣuṣā*—vision; *sarva*—all; *varṇa-āśramāṇām*—of all the statuses and orders of life; *yat*—what; *dadhyau*—contemplated; *hitam*—welfare; *amogha-dṛk*—one who is fully equipped in knowledge.

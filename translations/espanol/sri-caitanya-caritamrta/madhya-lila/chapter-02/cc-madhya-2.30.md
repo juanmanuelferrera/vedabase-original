@@ -1,11 +1,11 @@
 ### CC Madhya 2.30
 
-> সখি হে, শুন, মোর হত বিধিবল ।
-> মোর বপু-চিত্ত-মন, সকল ইন্দ্রিয়গণ,
+> সখি হে, শুন, মোর হত বিধিবল ।\
+> মোর বপু-চিত্ত-মন, সকল ইন্দ্রিয়গণ,\
 > কৃষ্ণ বিনু সকল বিফল ।। ৩০ ।। ধ্রু ।। ॥৩০॥
 
-> sakhī he, śuna, mora hata vidhi-bala
-> mora vapu-citta-mana, sakala indriya-gaṇa,
+> sakhī he, śuna, mora hata vidhi-bala\
+> mora vapu-citta-mana, sakala indriya-gaṇa,\
 > kṛṣṇa vinu sakala viphala
 
 *sakhī he*—¡oh, Mi querida amiga!; *śuna*—por favor escucha; *mora*—Mi; *hata*—perdida; *vidhi-bala*—la fuerza de la providencia; *mora*—Mi; *vapu*—cuerpo; *citta*—conciencia; *mana*—mente; *sakala*—todos; *indriya-gaṇa*—sentidos; *kṛṣṇa*—el Señor Kṛṣṇa; *vinu*—sin; *sakala*—todo; *viphala*—inútil.

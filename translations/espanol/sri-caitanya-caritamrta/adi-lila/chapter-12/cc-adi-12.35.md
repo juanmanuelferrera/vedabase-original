@@ -1,9 +1,9 @@
 ### CC Adi 12.35
 
-> ঈশ্বরের দৈন্য করি’ করিয়াছে ভিক্ষা ।
+> ঈশ্বরের দৈন্য করি’ করিয়াছে ভিক্ষা ।\
 > অতএব দণ্ড করি’ করাইব শিক্ষা ॥৩৫॥
 
-> īśvarera dainya kari' kariyāche bhikṣā
+> īśvarera dainya kari' kariyāche bhikṣā\
 > ataeva daṇḍa kari' karāiba śiksā
 
 *īśvarera*—de la Suprema Personalidad de Dios; *dainya*—pobreza; *kari'*—estableciendo; *kariyāche*—ha hecho; *bhikṣā*—mendicidad; *ataeva*—por lo tanto; *daṇḍa*—castigo; *kari'*—dándole; *karāiba*—le impartiré; *śikṣā*—instrucción.

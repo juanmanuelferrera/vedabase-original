@@ -1,11 +1,11 @@
 ### SB 6.11.20
 
-> नन्वेष वज्रस्तव शक्र तेजसा हरेर्दधीचेस्तपसा च तेजितः
+> नन्वेष वज्रस्तव शक्र तेजसा हरेर्दधीचेस्तपसा च तेजितः\
 > तेनैव शत्रुं जहि विष्णुयन्त्रितो यतो हरिर्विजयः श्रीर्गुणास्ततः ॥२०॥
 
-> nanv eṣa vajras tava śakra tejasā
-> harer dadhīces tapasā ca tejitaḥ
-> tenaiva śatruṁ jahi viṣṇu-yantrito
+> nanv eṣa vajras tava śakra tejasā\
+> harer dadhīces tapasā ca tejitaḥ\
+> tenaiva śatruṁ jahi viṣṇu-yantrito\
 > yato harir vijayaḥ śrīr guṇās tataḥ
 
 *nanu*—certainly; *eṣaḥ*—this; *vajraḥ*—thunderbolt; *tava*—of yours; *śakra*—O Indra; *tejasā*—by the prowess; *hareḥ*—of Lord Viṣṇu, the Supreme Personality of Godhead; *dadhīceḥ*—of Dadhīci; *tapasā*—by the austerities; *ca*—as well as; *tejitaḥ*—empowered; *tena*—with that; *eva*—certainly; *śatrum*—your enemy; *jahi*—kill; *viṣṇu-yantritaḥ*—ordered by Lord Viṣṇu; *yataḥ*—wherever; *hariḥ*—Lord Viṣṇu; *vijayaḥ*—victory; *śrīḥ*—opulences; *guṇāḥ*—and other good qualities; *tataḥ*—there.

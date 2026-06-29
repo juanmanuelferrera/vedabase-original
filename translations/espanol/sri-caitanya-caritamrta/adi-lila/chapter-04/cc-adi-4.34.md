@@ -1,11 +1,11 @@
 ### CC Adi 4.34
 
-> অনুগ্রহায় ভক্তানাং মানুষং দেহমাশ্রিতঃ ।
+> অনুগ্রহায় ভক্তানাং মানুষং দেহমাশ্রিতঃ ।\
 > ভজতে তাদৃশীঃ ক্রীড়া যাঃ শ্রুত্বা তৎপরো ভবেৎ ॥৩৪॥
 
-> anugrahāya bhaktānāṁ
-> mānuṣaṁ deham āśritaḥ
-> bhajate tādṛśīḥ krīḍā
+> anugrahāya bhaktānāṁ\
+> mānuṣaṁ deham āśritaḥ\
+> bhajate tādṛśīḥ krīḍā\
 > yāḥ śrutvā tat-paro bhavet
 
 *anugrahāya*—para favorecer; *bhaktānām*—a los devotos; *mānuṣam*—semejante a la humana; *deham*—forma corporal; *āśritaḥ*—aceptando; *bhajate*—disfruta; *tādṛśīḥ*—tales; *krīḍāḥ*—pasatiempos; *yāḥ*—los cuales; *śrutvā*—habiendo oído; *tat-paraḥ*—plenamente consagrado a Él; *bhavet*—uno debe volverse.

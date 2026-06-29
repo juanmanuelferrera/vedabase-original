@@ -1,11 +1,11 @@
 ### SB 1.19.20
 
-> न वा इदं राजर्षिवर्य चित्रं भवत्सु कृष्णं समनुव्रतेषु ।
+> न वा इदं राजर्षिवर्य चित्रं भवत्सु कृष्णं समनुव्रतेषु ।\
 > येऽध्यासनं राजकिरीटजुष्टं सद्यो जहुर्भगवत्पार्श्वकामाः ॥२०॥
 
-> na vā idaṁ rājarṣi-varya citraṁ
-> bhavatsu kṛṣṇaṁ samanuvrateṣu
-> ye 'dhyāsanaṁ rāja-kirīṭa-juṣṭaṁ
+> na vā idaṁ rājarṣi-varya citraṁ\
+> bhavatsu kṛṣṇaṁ samanuvrateṣu\
+> ye 'dhyāsanaṁ rāja-kirīṭa-juṣṭaṁ\
 > sadyo jahur bhagavat-pārśva-kāmāḥ
 
 *na*—neither; *vā*—like this; *idam*—this; *rājarṣi*—saintly king; *varya*—the chief; *citram*—astonishing; *bhavatsu*—unto all of you; *kṛṣṇam*—Lord Kṛṣṇa; *samanuvrateṣu*—unto those who are strictly in the line of; *ye*—who; *adhyāsanam*—seated on the throne; *rāja-kirīṭa*—helmets of kings; *juṣṭam*—decorated; *sadyaḥ*—immediately; *jahuḥ*—gave up; *bhagavat*—the Personality of Godhead; *pārśva-kāmāḥ*—desiring to achieve association.

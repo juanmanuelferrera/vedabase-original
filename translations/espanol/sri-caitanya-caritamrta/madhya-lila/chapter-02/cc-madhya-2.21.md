@@ -1,13 +1,13 @@
 ### CC Madhya 2.21
 
-> কুটিল প্রেমা অগেয়ান, নাহি জানে স্থানাস্থান,
-> ভাল-মন্দ নারে বিচারিতে ।
-> ক্রূর শঠের গুণডোরে, হাতে-গলে বান্ধি’ মোরে,
+> কুটিল প্রেমা অগেয়ান, নাহি জানে স্থানাস্থান,\
+> ভাল-মন্দ নারে বিচারিতে ।\
+> ক্রূর শঠের গুণডোরে, হাতে-গলে বান্ধি’ মোরে,\
 > রাখিয়াছে, নারি’ উকাশিতে ॥২১॥
 
-> kuṭila premā ageyāna, nāhi jāne sthānāsthāna,
-> bhāla-manda nāre vicārite
-> krūra śaṭhera guṇa-ḍore, hāte-gale bāndhi' more,
+> kuṭila premā ageyāna, nāhi jāne sthānāsthāna,\
+> bhāla-manda nāre vicārite\
+> krūra śaṭhera guṇa-ḍore, hāte-gale bāndhi' more,\
 > rākhiyāche, nāri' ukāśite
 
 *kuṭila*—torcido; *premā*—amor por Kṛṣṇa; *ageyāna*—ignorante; *nāhi*—no; *jāne*—sabe; *sthāna-asthāna*—un lugar apropiado o inapropiado; *bhāla-manda*—lo bueno o lo malo; *nāre*—no es capaz; *vicārite*—de considerar; *krūra*—muy cruel; *śaṭhera*—del embaucador; *guṇa-ḍore*—con las cuerdas de las buenas cualidades; *hāte*—en las manos; *gale*—en el cuello; *bāndhi'*—atando; *more*—a Mí; *rākhiyāche*—ha mantenido; *nāri'*—siendo incapaz; *ukāśite*—de obtener alivio.

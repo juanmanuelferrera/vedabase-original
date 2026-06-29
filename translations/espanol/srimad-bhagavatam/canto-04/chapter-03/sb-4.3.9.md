@@ -1,11 +1,11 @@
 ### SB 4.3.9
 
-> तस्मिन्भगिन्यो मम भर्तृभिः स्वकैर्ध्रुवं गमिष्यन्ति सुहृद्दिदृक्षवः ।
+> तस्मिन्भगिन्यो मम भर्तृभिः स्वकैर्ध्रुवं गमिष्यन्ति सुहृद्दिदृक्षवः ।\
 > अहं च तस्मिन्भवताभिकामये सहोपनीतं परिबर्हमर्हितुम् ॥९॥
 
-> tasmin bhaginyo mama bhartṛbhiḥ svakair
-> dhruvaṁ gamiṣyanti suhṛd-didṛkṣavaḥ
-> ahaṁ ca tasmin bhavatābhikāmaye
+> tasmin bhaginyo mama bhartṛbhiḥ svakair\
+> dhruvaṁ gamiṣyanti suhṛd-didṛkṣavaḥ\
+> ahaṁ ca tasmin bhavatābhikāmaye\
 > sahopanītaṁ paribarham arhitum
 
 *tasmin*—en ese gran sacrificio; *bhaginyaḥ*—hermanas; *mama*—mis; *bhartṛbhiḥ*—con sus esposos; *svakaiḥ*—sus propios; *dhruvam*—seguramente; *gamiṣyanti*—irán; *suhṛt-didṛkṣavaḥ*—deseando reunirse con sus familiares; *aham*—yo; *ca*—y; *tasmin*—en esa asamblea; *bhavatā*—contigo (el Señor Śiva); *abhikāmaye*—yo deseo; *saha*—con; *upanītam*—dadas; *paribarham*—alhajas; *arhitum*—aceptar.

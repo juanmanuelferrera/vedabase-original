@@ -1,9 +1,9 @@
 ### CC Antya 3.70
 
-> শুনিয়া জঙ্গমের হয় সংসার-ক্ষয়  ।
+> শুনিয়া জঙ্গমের হয় সংসার-ক্ষয়  ।\
 > স্থাবরে সে শব্দ লাগে, প্রতিধ্বনি হয় ॥৭০॥
 
-> śuniyā jaṅgamera haya saṁsāra-kṣaya
+> śuniyā jaṅgamera haya saṁsāra-kṣaya\
 > sthāvare se śabda lāge, pratidhvani haya
 
 *śuniyā*—hearing; *jaṅgamera*—of the living entities who can move; *haya*—there is; *saṁsāra-kṣaya*—annihilation of bondage to the material world; *sthāvare*—unto the nonmoving living entities; *se śabda*—that transcendental vibration; *lāge*—touches; *prati-dhvani*—echo; *haya*—there is.

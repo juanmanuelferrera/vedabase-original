@@ -1,9 +1,9 @@
 ### CC Madhya 8.88
 
-> পরিপূর্ণ-কৃষ্ণপ্রাপ্তি এই ‘প্রেমা’ হৈতে ৷
+> পরিপূর্ণ-কৃষ্ণপ্রাপ্তি এই ‘প্রেমা’ হৈতে ৷\
 > এই প্রেমার বশ কৃষ্ণ — কহে ভাগবতে ৷৷ ৮৮ ৷৷ ॥৮৮॥
 
-> paripūrṇa-kṛṣṇa-prāpti ei 'premā' haite
+> paripūrṇa-kṛṣṇa-prāpti ei 'premā' haite\
 > ei premāra vaśa kṛṣṇa--kahe bhāgavate
 
 *paripūrṇa*—completamente pleno; *kṛṣṇa-prāpti*—alcanzar los pies de loto del Señor Kṛṣṇa; *ei*—este; *premā*—amor a Dios; *haite*—a partir de; *ei premāra*—de este tipo de amor a Dios; *vaśa*—bajo el control; *kṛṣṇa*—el Señor Kṛṣṇa; *kahe*—se dice; *bhāgavate*—en el Śrīmad-Bhāgavatam.

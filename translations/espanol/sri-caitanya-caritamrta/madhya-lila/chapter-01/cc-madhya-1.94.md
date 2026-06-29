@@ -1,9 +1,9 @@
 ### CC Madhya 1.94
 
-> শান্তিপুরে আচার্যের গৃহে আগমন ।
+> শান্তিপুরে আচার্যের গৃহে আগমন ।\
 > প্রথম ভিক্ষা কৈল তাহাঁ, রাত্রে সংকীর্তন ॥৯৪॥
 
-> śāntipure ācāryera gṛhe āgamana
+> śāntipure ācāryera gṛhe āgamana\
 > prathama bhikṣā kaila tāhāṅ, rātre saṅkīrtana
 
 *śāntipure*—en la ciudad de Śāntipura; *ācāryera*—de Advaita Ācārya; *gṛhe*—al hogar; *āgamana*—llegada; *prathama*—primera; *bhikṣā*—aceptación de limosnas; *kaila*—realizó; *tāhāṅ*—allí; *rātre*—por la noche; *saṅkīrtana*—ejecución del canto congregacional.

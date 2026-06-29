@@ -1,9 +1,9 @@
 ### CC Antya 5.74
 
-> মোর মুখে কহায় কথা, করে পরচার  ।
+> মোর মুখে কহায় কথা, করে পরচার  ।\
 > পৃথিবীতে কে জানিবে এ-লীলা তাঁহার ?’ ৭৪ ॥৭৪॥
 
-> mora mukhe kahāya kathā, kare paracāra
+> mora mukhe kahāya kathā, kare paracāra\
 > pṛthivīte ke jānibe e-līlā tāṅhāra?'
 
 *mora mukhe*—in my mouth; *kahāya*—causes to speak; *kathā*—words; *kare paracāra*—preaches; *pṛthivīte*—in this world; *ke jānibe*—who will understand; *e-līlā*—this pastime; *tāṅhāra*—His.

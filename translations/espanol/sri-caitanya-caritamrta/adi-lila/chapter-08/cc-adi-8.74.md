@@ -1,9 +1,9 @@
 ### CC Adi 8.74
 
-> দরশন করি কৈলুঁ চরণ বন্দন ।
+> দরশন করি কৈলুঁ চরণ বন্দন ।\
 > গোসাঞিদাস পূজারী করে চরণ-সেবন ॥৭৪॥
 
-> daraśana kari kailuṅ caraṇa vandana
+> daraśana kari kailuṅ caraṇa vandana\
 > gosāñi-dāsa pūjārī kare caraṇa-sevana
 
 *daraśana*—visitando; *kari*—haciendo; *kailuṅ*—hice; *caraṇa*—pies de loto; *vandana*—adoración; *gosāñi-dāsa*—de nombre Gosāñi dāsa; *pūjārī*—sacerdote; *kare*—hace; *caraṇa*—pies de loto; *sevana*—servicio.

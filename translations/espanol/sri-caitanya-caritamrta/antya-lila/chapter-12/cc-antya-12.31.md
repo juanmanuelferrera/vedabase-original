@@ -1,9 +1,9 @@
 ### CC Antya 12.31
 
-> শুনি’ নিত্যানন্দপ্রভুর আনন্দিত মন ।
+> শুনি’ নিত্যানন্দপ্রভুর আনন্দিত মন ।\
 > উঠি’ শিবানন্দে কৈলা প্রেম-আলিঙ্গন ॥৩১॥
 
-> śuni' nityānanda-prabhura ānandita mana
+> śuni' nityānanda-prabhura ānandita mana\
 > uṭhi' śivānande kailā prema-āliṅgana
 
 *śuni'*—al oír; *nityānanda-prabhura*—del Señor Nityānanda; *ānandita*—muy complacida; *mana*—mente; *uṭhi'*—poniéndose de pie; *śivānande*—a Śivānanda Sena; *kailā*—realizó; *prema*—con amor; *āliṅgana*—abrazo.

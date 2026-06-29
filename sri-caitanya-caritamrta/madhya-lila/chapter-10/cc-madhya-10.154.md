@@ -1,9 +1,9 @@
 ### CC Madhya 10.154
 
-> ব্রহ্মানন্দ পরিয়াছে মৃগচর্মাম্বর ।
+> ব্রহ্মানন্দ পরিয়াছে মৃগচর্মাম্বর ।\
 > তাহা দেখি’ প্রভু দুঃখ পাইলা অন্তর ॥১৫৪॥
 
-> brahmānanda pariyāche mṛga-carmāmbara
+> brahmānanda pariyāche mṛga-carmāmbara\
 > tāhā dekhi' prabhu duḥkha pāilā antara
 
 *brahmānanda*—Brahmānanda; *pariyāche*—did wear; *mṛga-carma-ambara*—a garment made of deerskin; *tāhā dekhi'*—seeing that; *prabhu*—Śrī Caitanya Mahāprabhu; *duḥkha*—unhappiness; *pāilā*—got; *antara*—within Himself.

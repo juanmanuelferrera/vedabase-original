@@ -1,13 +1,13 @@
 ### CC Antya 15.71
 
-> কৃষ্ণ জিনি’ পদ্ম-চান্দ, পাতিয়াছে মুখ ফান্দ,
-> তাতে অধর-মধুস্মিত চার ।
-> ব্রজনারী আসি’ আসি’, ফান্দে পড়ি’ হয় দাসী,
+> কৃষ্ণ জিনি’ পদ্ম-চান্দ, পাতিয়াছে মুখ ফান্দ,\
+> তাতে অধর-মধুস্মিত চার ।\
+> ব্রজনারী আসি’ আসি’, ফান্দে পড়ি’ হয় দাসী,\
 > ছাড়ি’ লাজ-পতি-ঘর-দ্বার ॥৭১॥
 
-> kṛṣṇa jini' padma-cānda, pātiyāche mukha phānda,
-> tāte adhara-madhu-smita cāra
-> vraja-nārī āsi' āsi', phānde paḍi' haya dāsī,
+> kṛṣṇa jini' padma-cānda, pātiyāche mukha phānda,\
+> tāte adhara-madhu-smita cāra\
+> vraja-nārī āsi' āsi', phānde paḍi' haya dāsī,\
 > chāḍi' lāja-pati-ghara-dvāra
 
 *kṛṣṇa*—Lord Kṛṣṇa; *jini'*—surpassing; *padma-cānda*—the lotus flower and the moon; *pātiyāche*—has spread; *mukha*—the face; *phānda*—noose; *tāte*—in that; *adhara*—lips; *madhu-smita*—sweet smiling; *cāra*—bait; *vraja-nārī*—the damsels of Vraja; *āsi' āsi'*—approaching; *phānde*—in the network; *paḍi'*—falling; *haya dāsī*—become maidservants; *chāḍi'*—giving up; *lāja*—prestige; *pati*—husbands; *ghara*—home; *dvāra*—family.

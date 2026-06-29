@@ -1,9 +1,9 @@
 ### CC Madhya 16.32
 
-> মাধবপুরীর কথা, গোপাল-স্থাপন  ।
+> মাধবপুরীর কথা, গোপাল-স্থাপন  ।\
 > তাঁহারে গোপাল যৈছে মাগিল চন্দন ॥৩২॥
 
-> mādhava-purīra kathā, gopāla-sthāpana
+> mādhava-purīra kathā, gopāla-sthāpana\
 > tāṅhāre gopāla yaiche māgila candana
 
 *mādhava-purīra kathā*—la narración de Mādhavendra Purī; *gopāla-sthāpana*—instalación de la Deidad de Gopāla; *tāṅhāre*—a él; *gopāla*—el Señor Gopāla; *yaiche*—tal como; *māgila*—Le pidió; *candana*—sándalo.

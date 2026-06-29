@@ -1,13 +1,13 @@
 ### CC Antya 1.158
 
-> সুগন্ধৌ মাকন্দপ্রকরমকরন্দস্য মধুরে
-> বিনিস্যন্দে বন্দীকৃতমধুপবৃন্দং মুহুরিদম্ ।
-> কৃতান্দোলং মন্দোন্নতিভিরনিলৈশ্চন্দনগিরে-
+> সুগন্ধৌ মাকন্দপ্রকরমকরন্দস্য মধুরে\
+> বিনিস্যন্দে বন্দীকৃতমধুপবৃন্দং মুহুরিদম্ ।\
+> কৃতান্দোলং মন্দোন্নতিভিরনিলৈশ্চন্দনগিরে-\
 > র্মমানন্দং বৃন্দা-বিপিনমতুলং তুন্দিলয়তি ॥১৫৮॥
 
-> sugandhau mākanda-prakara-makarandasya madhure
-> vinisyande vandī-kṛta-madhupa-vṛndaṁ muhur idam
-> kṛtāndolaṁ mandonnatibhir anilaiś candana-girer
+> sugandhau mākanda-prakara-makarandasya madhure\
+> vinisyande vandī-kṛta-madhupa-vṛndaṁ muhur idam\
+> kṛtāndolaṁ mandonnatibhir anilaiś candana-girer\
 > mamānandaṁ vṛndā-vipinam atulaṁ tundilayati
 
 *su-gandhau*—in the fragrance; *mākanda-prakara*—of the bunches of mango buds; *makarandasya*—of the honey; *madhure*—sweet; *vinisyande*—in the oozing; *vandī-kṛta*—grouped together; *madhupa-vṛndam*—bumblebees; *muhuḥ*—again and again; *idam*—this; *kṛta-andolam*—agitated; *manda-unnatibhiḥ*—moving softly; *anilaiḥ*—by the breezes; *candana-gireḥ*—from the Malaya Hills; *mama*—My; *ānandam*—pleasure; *vṛndā-vipinam*—the forest of Vṛndāvana; *atulam*—very much; *tundilayati*—increases more and more.

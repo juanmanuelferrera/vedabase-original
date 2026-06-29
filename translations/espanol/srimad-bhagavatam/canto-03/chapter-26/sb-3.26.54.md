@@ -1,11 +1,11 @@
 ### SB 3.26.54
 
-> निरभिद्यतास्य प्रथमं मुखं वाणी ततोऽभवत् ।
+> निरभिद्यतास्य प्रथमं मुखं वाणी ततोऽभवत् ।\
 > वाण्या वह्निरथो नासे प्राणोतो घ्राण एतयोः ॥५४॥
 
-> nirabhidyatāsya prathamaṁ
-> mukhaṁ vāṇī tato 'bhavat
-> vāṇyā vahnir atho nāse
+> nirabhidyatāsya prathamaṁ\
+> mukhaṁ vāṇī tato 'bhavat\
+> vāṇyā vahnir atho nāse\
 > prāṇoto ghrāṇa etayoḥ
 
 *nirabhidyata*—apareció; *asya*—de Él; *prathamam*—en primer lugar; *mukham*—una boca; *vāṇī*—el órgano del habla; *tataḥ*—luego; *abhavat*—surgió; *vāṇyā*—con el órgano del habla; *vahniḥ*—el dios del fuego; *athaḥ*—entonces; *nāse*—las fosas nasales; *prāṇa*—el aire vital; *utaḥ*—se unió; *ghrāṇaḥ*—el sentido olfativo; *etayoḥ*—en ellas.

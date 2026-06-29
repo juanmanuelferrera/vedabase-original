@@ -1,9 +1,9 @@
 ### CC Adi 17.307
 
-> তর্কে ইহা নাহি মানে যেই দুরাচার ।
+> তর্কে ইহা নাহি মানে যেই দুরাচার ।\
 > কুম্ভীপাকে পচে, তার নাহিক নিস্তার ॥৩০৭॥
 
-> tarke ihā nāhi māne yei durācāra
+> tarke ihā nāhi māne yei durācāra\
 > kumbhīpāke pace, tāra nāhika nistāra
 
 *tarke*—mediante argumentos; *ihā*—esto; *nāhi*—no; *māne*—acepta; *yei*—quien; *durācāra*—sinvergüenza; *kumbhī-pāke*—en el aceite hirviente del infierno; *pace*—hierve; *tāra*—su; *nāhika*—no hay; *nistāra*—liberación.

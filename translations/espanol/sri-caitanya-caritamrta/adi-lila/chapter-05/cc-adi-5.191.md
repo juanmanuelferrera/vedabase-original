@@ -1,9 +1,9 @@
 ### CC Adi 5.191
 
-> পারিষদগণে দেখি’ সব গোপ-বেশে ।
+> পারিষদগণে দেখি’ সব গোপ-বেশে ।\
 > ‘কৃষ্ণ’ ‘কৃষ্ণ’ কহে সবে সপ্রেম আবেশে ॥১৯১॥
 
-> pāriṣada-gaṇe dekhi' saba gopa-veśe
+> pāriṣada-gaṇe dekhi' saba gopa-veśe\
 > 'kṛṣṇa' 'kṛṣṇa' kahe sabe saprema āveśe
 
 *pāriṣada-gaṇe*—los asociados; *dekhi'*—viendo; *saba*—todos; *gopa-veśe*—ataviados de pastorcillos de vacas; *kṛṣṇa kṛṣṇa*—Kṛṣṇa, Kṛṣṇa; *kahe*—dicen; *sabe*—todos; *sa-prema*—de amor extático; *āveśe*—en absorción.

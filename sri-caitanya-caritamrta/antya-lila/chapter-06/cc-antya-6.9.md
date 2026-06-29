@@ -1,9 +1,9 @@
 ### CC Antya 6.9
 
-> সুবল যৈছে পূর্বে কৃষ্ণসুখের সহায় ।
+> সুবল যৈছে পূর্বে কৃষ্ণসুখের সহায় ।\
 > গৌরসুখদান-হেতু তৈছে রাম-রায় ॥৯॥
 
-> subala yaiche pūrve kṛṣṇa-sukhera sahāya
+> subala yaiche pūrve kṛṣṇa-sukhera sahāya\
 > gaura-sukha-dāna-hetu taiche rāma-rāya
 
 *subala*—Subala, one of the cowherd boy friends of Kṛṣṇa; *yaiche*—just as; *pūrve*—previously; *kṛṣṇa-sukhera*—to give happiness to Kṛṣṇa; *sahāya*—helper; *gaura-sukha-dāna-hetu*—for giving happiness to Lord Śrī Caitanya Mahāprabhu; *taiche*—similarly; *rāma-rāya*—Rāmānanda Rāya.

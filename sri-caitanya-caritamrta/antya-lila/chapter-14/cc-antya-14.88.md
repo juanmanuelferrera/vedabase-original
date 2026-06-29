@@ -1,9 +1,9 @@
 ### CC Antya 14.88
 
-> ফুকার পড়িল, মহা-কোলাহল হইল ।
+> ফুকার পড়িল, মহা-কোলাহল হইল ।\
 > যেই যাহাঁ ছিল সেই উঠিয়া ধাইল ॥৮৮॥
 
-> phukāra paḍila, mahā-kolāhala ha-ila
+> phukāra paḍila, mahā-kolāhala ha-ila\
 > yei yāhāṅ chila sei uṭhiyā dhāila
 
 *phu-kāra*—a loud call; *paḍila*—arose; *mahā-kolāhala*—a tumultuous sound; *ha-ila*—there was; *yei*—whoever; *yāhāṅ*—wherever; *chila*—was; *sei*—he; *uṭhiyā dhāila*—got up and began to run.

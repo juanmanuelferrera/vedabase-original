@@ -1,13 +1,13 @@
 ### SB 1.8.1
 
-> सूत उवाच
-> अथ ते सम्परेतानां स्वानामुदकमिच्छताम् ।
+> सूत उवाच\
+> अथ ते सम्परेतानां स्वानामुदकमिच्छताम् ।\
 > दातुं सकृष्णा गङ्गायां पुरस्कृत्य ययुः स्त्रियः ॥१॥
 
-> sūta uvāca
-> atha te samparetānāṁ
-> svānām udakam icchatām
-> dātuṁ sakṛṣṇā gaṅgāyāṁ
+> sūta uvāca\
+> atha te samparetānāṁ\
+> svānām udakam icchatām\
+> dātuṁ sakṛṣṇā gaṅgāyāṁ\
 > puraskṛtya yayuḥ striyaḥ
 
 *sūtaḥ uvāca*—Sūta said; *atha*—thus; *te*—the Pāṇḍavas; *samparetānām*—of the dead; *svānām*—of the relatives; *udakam*—water; *icchatām*—willing to have; *dātum*—to deliver; *sa-kṛṣṇāḥ*—along with Draupadī; *gaṅgāyām*—on the Ganges; *puraskṛtya*—putting in the front; *yayuḥ*—went; *striyaḥ*—the women.

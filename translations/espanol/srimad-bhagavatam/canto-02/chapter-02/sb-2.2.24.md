@@ -1,11 +1,11 @@
 ### SB 2.2.24
 
-> वैश्वानरं याति विहायसा गतः सुषुम्णया ब्रह्मपथेन शोचिषा ।
+> वैश्वानरं याति विहायसा गतः सुषुम्णया ब्रह्मपथेन शोचिषा ।\
 > विधूतकल्कोऽथ हरेरुदस्तात्प्रयाति चक्रं नृप शैशुमारम् ॥२४॥
 
-> vaiśvānaraṁ yāti vihāyasā gataḥ
-> suṣumṇayā brahma-pathena śociṣā
-> vidhūta-kalko 'tha harer udastāt
+> vaiśvānaraṁ yāti vihāyasā gataḥ\
+> suṣumṇayā brahma-pathena śociṣā\
+> vidhūta-kalko 'tha harer udastāt\
 > prayāti cakraṁ nṛpa śaiśumāram
 
 *vaiśvānaram*—la deidad controladora del fuego; *yāti*—va; *vihāyasā*—por el camino que hay en el cielo (la Vía Láctea); *gataḥ*—pasando por; *suṣumṇayā*—por el Suṣumṇā; *brahma*—Brahmaloka; *pathena*—en el camino; *śociṣā*—iluminador; *vidhūta*—limpiándose de; *kalkaḥ*—suciedad; *atha*—después; *hareḥ*—del Señor Hari; *udastāt*—hacia arriba; *prayāti*—llega; *cakram*—círculo; *nṛpa*—¡oh, rey!; *śaiśumāram*—llamado Śiśumāra.

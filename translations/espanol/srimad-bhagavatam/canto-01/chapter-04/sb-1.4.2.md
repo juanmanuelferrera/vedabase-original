@@ -1,13 +1,13 @@
 ### SB 1.4.2
 
-> शौनक उवाच
-> सूत सूत महाभाग वद नो वदतां वर ।
+> शौनक उवाच\
+> सूत सूत महाभाग वद नो वदतां वर ।\
 > कथां भागवतीं पुण्यां यदाह भगवाञ्छुकः ॥२॥
 
-> śaunaka uvāca
-> sūta sūta mahā-bhāga
-> vada no vadatāṁ vara
-> kathāṁ bhāgavatīṁ puṇyāṁ
+> śaunaka uvāca\
+> sūta sūta mahā-bhāga\
+> vada no vadatāṁ vara\
+> kathāṁ bhāgavatīṁ puṇyāṁ\
 > yad āha bhagavāñ chukaḥ
 
 *śaunakaḥ*—Śaunaka; *uvāca*—dijo; *sūta sūta*—¡oh, Sūta Gosvāmī!; *mahā-bhāga*—el más afortunado; *vada*—por favor, habla; *naḥ*—a nosotros; *vadatām*—de aquellos que pueden hablar; *vara*—respetado; *kathām*—mensaje; *bhāgavatīm*—del *Bhāgavatam*; *puṇyām*—piadoso; *yat*—el cual; *āha*—dijo; *bhagavān*—sumamente poderoso; *śukaḥ*—Śrī Śukadeva Gosvāmī.

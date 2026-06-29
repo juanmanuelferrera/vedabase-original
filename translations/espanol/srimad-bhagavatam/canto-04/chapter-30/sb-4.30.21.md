@@ -1,13 +1,13 @@
 ### SB 4.30.21
 
-> मैत्रेय उवाच
-> एवं ब्रुवाणं पुरुषार्थभाजनं जनार्दनं प्राञ्जलयः प्रचेतसः ।
+> मैत्रेय उवाच\
+> एवं ब्रुवाणं पुरुषार्थभाजनं जनार्दनं प्राञ्जलयः प्रचेतसः ।\
 > तद्दर्शनध्वस्ततमोरजोमला गिरागृणन्गद्गदया सुहृत्तमम् ॥२१॥
 
-> maitreya uvāca
-> evaṁ bruvāṇaṁ puruṣārtha-bhājanaṁ
-> janārdanaṁ prāñjalayaḥ pracetasaḥ
-> tad-darśana-dhvasta-tamo-rajo-malā
+> maitreya uvāca\
+> evaṁ bruvāṇaṁ puruṣārtha-bhājanaṁ\
+> janārdanaṁ prāñjalayaḥ pracetasaḥ\
+> tad-darśana-dhvasta-tamo-rajo-malā\
 > girāgṛṇan gadgadayā suhṛttamam
 
 *maitreyaḥ uvāca*—Maitreya dijo; *evam*—así; *bruvāṇam*—hablar; *puruṣa-artha*—del objetivo supremo de la vida; *bhājanam*—el que concede; *jana-ardanam*—que aparta todos los inconvenientes que puedan presentarse ante el devoto; *prāñjalayaḥ*—con las manos juntas; *pracetasaḥ*—los hermanos Pracetās; *tat*—a Él; *darśana*—por ver; *dhvasta*—disipada; *tamaḥ*—de oscuridad; *rajaḥ*—de pasión; *malāḥ*—cuya contaminación; *girā*—con una voz; *agṛṇan*—ofrecieron oraciones; *gadgadayā*—quebrada; *suhṛt-tamam*—al más grande de los amigos.

@@ -1,9 +1,9 @@
 ### CC Antya 6.86
 
-> আজ্ঞা দিলা, — ‘হরি বলি’ করহ ভোজন’ ।
+> আজ্ঞা দিলা, — ‘হরি বলি’ করহ ভোজন’ ।\
 > ‘হরি’ ‘হরি’-ধ্বনি উঠি’ ভরিল ভুবন ॥৮৬॥
 
-> ājñā dilā,—'hari bali' karaha bhojana'
+> ājñā dilā,—'hari bali' karaha bhojana'\
 > 'hari' 'hari'-dhvani uṭhi' bharila bhuvana
 
 *ājñā dilā*—He ordered; *hari bali'*—saying "Hari"; *karaha bhojana*—all of you eat; *hari hari-dhvani*—the resounding of "Hari, Hari"; *uṭhi'*—rising; *bharila bhuvana*—filled the universe.

@@ -1,11 +1,11 @@
 ### SB 3.17.2
 
-> दितिस्तु भर्तुरादेशादपत्यपरिशङ्किनी ।
+> दितिस्तु भर्तुरादेशादपत्यपरिशङ्किनी ।\
 > पूर्णे वर्षशते साध्वी पुत्रौ प्रसुषुवे यमौ ॥२॥
 
-> ditis tu bhartur ādeśād
-> apatya-pariśaṅkinī
-> pūrṇe varṣa-śate sādhvī
+> ditis tu bhartur ādeśād\
+> apatya-pariśaṅkinī\
+> pūrṇe varṣa-śate sādhvī\
 > putrau prasuṣuve yamau
 
 *ditiḥ*—Diti; *tu*—but; *bhartuḥ*—of her husband; *ādeśāt*—by the order; *apatya*—from her children; *pariśaṅkinī*—being apprehensive of trouble; *pūrṇe*—full; *varṣa-śate*—after one hundred years; *sādhvī*—the virtuous lady; *putrau*—two sons; *prasuṣuve*—begot; *yamau*—twins.

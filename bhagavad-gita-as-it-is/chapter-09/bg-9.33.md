@@ -1,11 +1,11 @@
 ### Bg 9.33
 
-> किं पुनर्ब्राह्मणाः पुण्या भक्ता राजर्षयस्तथा ।
+> किं पुनर्ब्राह्मणाः पुण्या भक्ता राजर्षयस्तथा ।\
 > अनित्यमसुखं लोकमिमं प्राप्य भजस्व माम् ॥३३॥
 
-> kiṁ punar brāhmaṇāḥ puṇyā
-> bhaktā rājarṣayas tathā
-> anityam asukhaṁ lokam
+> kiṁ punar brāhmaṇāḥ puṇyā\
+> bhaktā rājarṣayas tathā\
+> anityam asukhaṁ lokam\
 > imaṁ prāpya bhajasva mām
 
 *kim*—how much; *punaḥ*—again; *brāhmaṇāḥ*—*brāhmaṇas*; *puṇyāḥ*—righteous; *bhaktāḥ*—devotees; *rājarṣayaḥ*—saintly kings; *tathā*—also; *anityam*—temporary; *asukham*—sorrowful; *lokam*—planets; *imam*—this; *prāpya*—gaining; *bhajasva*—are engaged in loving service; *mām*—unto Me.

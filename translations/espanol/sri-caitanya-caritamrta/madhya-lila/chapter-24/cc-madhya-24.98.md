@@ -1,11 +1,11 @@
 ### CC Madhya 24.98
 
-> সত্সঙ্গান্মুক্ত-দুঃসঙ্গো হাতুং নোত্সহতে বুধঃ ।
+> সত্সঙ্গান্মুক্ত-দুঃসঙ্গো হাতুং নোত্সহতে বুধঃ ।\
 > কীর্ত্যমানং যশো যস্য সকৃদাকর্ণ্য রোচনম্ ॥৯৮॥
 
-> sat-saṅgān mukta-duḥsaṅgo
-> hātuṁ notsahate budhaḥ
-> kīrtyamānaṁ yaśo yasya
+> sat-saṅgān mukta-duḥsaṅgo\
+> hātuṁ notsahate budhaḥ\
+> kīrtyamānaṁ yaśo yasya\
 > sakṛd ākarṇya rocanam
 
 *sat-saṅgāt*—por la asociación de devotos puros; *mukta*—liberado; *duḥsaṅgaḥ*—de la asociación de personas materialistas; *hātum*—abandonar; *na*—no; *utsahate*—es capaz; *budhaḥ*—aquel que es verdaderamente erudito; *kīrtyamānam*—siendo glorificadas; *yaśaḥ*—las glorias; *yasya*—de quien (la Suprema Personalidad de Dios); *sakṛt*—una vez; *ākarṇya*—escuchando; *rocanam*—muy agradable.

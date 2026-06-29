@@ -1,9 +1,9 @@
 ### CC Adi 7.164
 
-> মথুরাতে পাঠাইল রূপ-সনাতন ।
+> মথুরাতে পাঠাইল রূপ-সনাতন ।\
 > দুই সেনাপতি কৈল ভক্তি প্রচারণ ॥১৬৪॥
 
-> mathurāte pāṭhāila rūpa-sanātana
+> mathurāte pāṭhāila rūpa-sanātana\
 > dui senā-pati kaila bhakti pracāraṇa
 
 *mathurāte*—hacia Mathurā; *pāṭhāila*—envió; *rūpa-sanātana*—los dos hermanos Rūpa Gosvāmī y Sanātana Gosvāmī; *dui*—a ambos; *senā-pati*—como generales en jefe; *kaila*—los hizo; *bhakti*—servicio devocional; *pracāraṇa*—difundir.

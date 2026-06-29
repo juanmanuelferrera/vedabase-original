@@ -1,9 +1,9 @@
 ### CC Antya 3.185
 
-> ঐছে নামোদয়ারম্ভে পাপ-আদির ক্ষয়  ।
+> ঐছে নামোদয়ারম্ভে পাপ-আদির ক্ষয়  ।\
 > উদয় কৈলে কৃষ্ণপদে হয় প্রেমোদয় ॥১৮৫॥
 
-> aiche nāmodayārambhe pāpa-ādira kṣaya
+> aiche nāmodayārambhe pāpa-ādira kṣaya\
 > udaya kaile kṛṣṇa-pade haya premodaya
 
 *aiche*—de manera similar; *nāma-udaya*—de la aparición del santo nombre; *ārambhe*—al comienzo; *pāpa*—reacciones de las actividades pecaminosas; *ādira*—de ellas y otras; *kṣaya*—disipación; *udaya kaile*—cuando hay un verdadero despertar del canto sin ofensas; *kṛṣṇa-pade*—a los pies de loto de Kṛṣṇa; *haya prema-udaya*—hay un despertar del amor extático.

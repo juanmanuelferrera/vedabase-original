@@ -1,11 +1,11 @@
 ### SB 3.4.34
 
-> देहन्यासं च तस्यैवं धीराणां धैर्यवर्धनम् ।
+> देहन्यासं च तस्यैवं धीराणां धैर्यवर्धनम् ।\
 > अन्येषां दुष्करतरं पशूनां विक्लवात्मनाम् ॥३४॥
 
-> deha-nyāsaṁ ca tasyaivaṁ
-> dhīrāṇāṁ dhairya-vardhanam
-> anyeṣāṁ duṣkarataraṁ
+> deha-nyāsaṁ ca tasyaivaṁ\
+> dhīrāṇāṁ dhairya-vardhanam\
+> anyeṣāṁ duṣkarataraṁ\
 > paśūnāṁ viklavātmanām
 
 *deha-nyāsam*—entering the body; *ca*—also; *tasya*—His; *evam*—also; *dhīrāṇām*—of great sages; *dhairya*—perseverance; *vardhanam*—increasing; *anyeṣām*—for others; *duṣkara-taram*—very difficult to ascertain; *paśūnām*—of the beasts; *viklava*—disturbed; *ātmanām*—of such a mind.

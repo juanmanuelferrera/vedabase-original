@@ -1,9 +1,9 @@
 ### CC Madhya 8.254
 
-> ‘সর্ব ত্যজি’ জীবের কর্তব্য কাহাঁ বাস?’
+> ‘সর্ব ত্যজি’ জীবের কর্তব্য কাহাঁ বাস?’\
 > ‘ব্রজভূমি বৃন্দাবন যাহাঁ লীলারাস ।।’ ॥২৫৪॥
 
-> 'sarva tyaji' jīvera kartavya kāhāṅ vāsa?'
+> 'sarva tyaji' jīvera kartavya kāhāṅ vāsa?'\
 > 'vraja-bhūmi vṛndāvana yāhāṅ līlā-rāsa'
 
 *sarva*—everything; *tyaji'*—giving up; *jīvera*—of the living entity; *kartavya*—to be done; *kāhāṅ*—where; *vāsa*—residence; *vraja-bhūmi*—the land known as Vrajabhūmi; *vṛndāvana*—the holy place named Vṛndāvana; *yāhāṅ*—where; *līlā-rāsa*—Lord Kṛṣṇa performed His *rāsa* dance.

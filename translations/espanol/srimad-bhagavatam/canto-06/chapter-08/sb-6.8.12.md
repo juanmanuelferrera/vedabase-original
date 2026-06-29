@@ -1,11 +1,11 @@
 ### SB 6.8.12
 
-> ओं हरिर्विदध्यान्मम सर्वरक्षां न्यस्ताङ्घ्रिपद्मः पतगेन्द्रपृष्ठे
+> ओं हरिर्विदध्यान्मम सर्वरक्षां न्यस्ताङ्घ्रिपद्मः पतगेन्द्रपृष्ठे\
 > दरारिचर्मासिगदेषुचाप पाशान्दधानोऽष्टगुणोऽष्टबाहुः ॥१२॥
 
-> oṁ harir vidadhyān mama sarva-rakṣāṁ
-> nyastāṅghri-padmaḥ patagendra-pṛṣṭhe
-> darāri-carmāsi-gadeṣu-cāpa-
+> oṁ harir vidadhyān mama sarva-rakṣāṁ\
+> nyastāṅghri-padmaḥ patagendra-pṛṣṭhe\
+> darāri-carmāsi-gadeṣu-cāpa-\
 > pāśān dadhāno 'ṣṭa-guṇo 'ṣṭa-bāhuḥ
 
 *oṁ*—¡oh, Señor!; *hariḥ*—la Suprema Personalidad de Dios; *vidadhyāt*—que Él otorgue; *mama*—mía; *sarva-rakṣām*—protección en todas direcciones; *nyasta*—puestos; *aṅghri-padmaḥ*—cuyos pies de loto; *patagendra-pṛṣṭhe*—en la espalda de Garuḍa, el rey de todas las aves; *dara*—caracola; *ari*—disco; *carma*—escudo; *asi*—espada; *gadā*—maza; *iṣu*—flechas; *cāpa*—arco; *pāśān*—cuerdas; *dadhānaḥ*—sosteniendo; *aṣṭa*—con ocho; *guṇaḥ*—perfecciones; *aṣṭa*—ocho; *bāhuḥ*—brazos.

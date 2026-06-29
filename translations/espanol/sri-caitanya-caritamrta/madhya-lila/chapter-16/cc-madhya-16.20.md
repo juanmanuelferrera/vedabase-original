@@ -1,9 +1,9 @@
 ### CC Madhya 16.20
 
-> সবার সর্বকার্য করেন, দেন বাসা-স্থান ।
+> সবার সর্বকার্য করেন, দেন বাসা-স্থান ।\
 > শিবানন্দ জানে উড়িয়া-পথের সন্ধান ॥২০॥
 
-> sabāra sarva-kārya karena, dena vāsā-sthāna
+> sabāra sarva-kārya karena, dena vāsā-sthāna\
 > śivānanda jāne uḍiyā-pathera sandhāna
 
 *sabāra*—de todos ellos; *sarva-kārya*—todo lo necesario; *karena*—hace; *dena*—proporciona; *vāsā-sthāna*—lugares de alojamiento; *śivānanda*—Śivānanda; *jāne*—conoce; *uḍiyā-pathera*—de los caminos de Orissa; *sandhāna*—las encrucijadas.

@@ -1,11 +1,11 @@
 ### SB 4.28.23
 
-> पशुवद्यवनैरेष नीयमानः स्वकं क्षयम् ।
+> पशुवद्यवनैरेष नीयमानः स्वकं क्षयम् ।\
 > अन्वद्रवन्ननुपथाः शोचन्तो भृशमातुराः ॥२३॥
 
-> paśuvad yavanair eṣa
-> nīyamānaḥ svakaṁ kṣayam
-> anvadravann anupathāḥ
+> paśuvad yavanair eṣa\
+> nīyamānaḥ svakaṁ kṣayam\
+> anvadravann anupathāḥ\
 > śocanto bhṛśam āturāḥ
 
 *paśu-vat*—like an animal; *yavanaiḥ*—by the Yavanas; *eṣaḥ*—Purañjana; *nīyamānaḥ*—being arrested and taken away; *svakam*—to their own; *kṣayam*—abode; *anvadravan*—followed; *anupathāḥ*—his attendants; *śocantaḥ*—lamenting; *bhṛśam*—greatly; *āturāḥ*—being distressed.

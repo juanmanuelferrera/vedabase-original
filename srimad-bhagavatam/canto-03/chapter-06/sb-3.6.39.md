@@ -1,11 +1,11 @@
 ### SB 3.6.39
 
-> अतो भगवतो माया मायिनामपि मोहिनी ।
+> अतो भगवतो माया मायिनामपि मोहिनी ।\
 > यत्स्वयं चात्मवर्त्मात्मा न वेद किमुतापरे ॥३९॥
 
-> ato bhagavato māyā
-> māyinām api mohinī
-> yat svayaṁ cātma-vartmātmā
+> ato bhagavato māyā\
+> māyinām api mohinī\
+> yat svayaṁ cātma-vartmātmā\
 > na veda kim utāpare
 
 *ataḥ*—therefore; *bhagavataḥ*—godly; *māyā*—potencies; *māyinām*—of the jugglers; *api*—even; *mohinī*—enchanting; *yat*—that which; *svayam*—personally; *ca*—also; *ātma-vartma*—self-sufficient; *ātmā*—self; *na*—does not; *veda*—know; *kim*—what; *uta*—to speak of; *apare*—others.

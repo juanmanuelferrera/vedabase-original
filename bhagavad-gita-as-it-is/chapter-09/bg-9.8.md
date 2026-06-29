@@ -1,11 +1,11 @@
 ### Bg 9.8
 
-> प्रकृतिं स्वामवष्टभ्य विसृजामि पुनः पुनः ।
+> प्रकृतिं स्वामवष्टभ्य विसृजामि पुनः पुनः ।\
 > भूतग्राममिमं कृत्स्नमवशं प्रकृतेर्वशात् ॥८॥
 
-> prakṛtiṁ svām avaṣṭabhya
-> visṛjāmi punaḥ punaḥ
-> bhūta-grāmam imaṁ kṛtsnam
+> prakṛtiṁ svām avaṣṭabhya\
+> visṛjāmi punaḥ punaḥ\
+> bhūta-grāmam imaṁ kṛtsnam\
 > avaśaṁ prakṛter vaśāt
 
 *prakṛtim*—material nature; *svām*—of My personal self; *avaṣṭabhya*—enter in; *visṛjāmi*—create; *punaḥ punaḥ*—again, again; *bhūta-grāmam*—all these cosmic manifestations; *imam*—this; *kṛtsnam*—total; *avaśam*—automatically; *prakṛteḥ*—by the force of nature; *vaśāt*—under obligation.

@@ -1,11 +1,11 @@
 ### Bg 6.8
 
-> ज्ञानविज्ञानतृप्तात्मा कूटस्थो विजितेन्द्रियः ।
+> ज्ञानविज्ञानतृप्तात्मा कूटस्थो विजितेन्द्रियः ।\
 > युक्त इत्युच्यते योगी समलोष्टाश्मकाञ्चनः ॥८॥
 
-> jñāna-vijñāna-tṛptātmā
-> kūṭastho vijitendriyaḥ
-> yukta ity ucyate yogī
+> jñāna-vijñāna-tṛptātmā\
+> kūṭastho vijitendriyaḥ\
+> yukta ity ucyate yogī\
 > sama-loṣṭrāśma-kāñcanaḥ
 
 *jñāna*—conocimiento adquirido; *vijñāna*—sabiduría; *tṛpta*—satisfecho; *ātmā*—entidad viviente; *kūṭasthaḥ*—situado espiritualmente; *vijita-indriyaḥ*—sensorialmente controlado; *yuktaḥ*—apto para la autorrealizacion; *iti*—así pues; *ucyate*—se dice; *yogī*—el místico; *sama*—ecuánime; *loṣṭra*—guijarros; *aśma*—piedra; *kāñcanaḥ*—oro.

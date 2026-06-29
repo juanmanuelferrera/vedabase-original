@@ -1,13 +1,13 @@
 ### SB 7.9.38
 
-> इत्थं नृतिर्यगृषिदेवझषावतारैर
-> लोकान्विभावयसि हंसि जगत्प्रतीपान
-> धर्मं महापुरुष पासि युगानुवृत्तं
+> इत्थं नृतिर्यगृषिदेवझषावतारैर\
+> लोकान्विभावयसि हंसि जगत्प्रतीपान\
+> धर्मं महापुरुष पासि युगानुवृत्तं\
 > छन्नः कलौ यदभवस्त्रियुगोऽथ स त्वम ॥३८॥
 
-> itthaṁ nṛ-tiryag-ṛṣi-deva-jhaṣāvatārair
-> lokān vibhāvayasi haṁsi jagat pratīpān
-> dharmaṁ mahā-puruṣa pāsi yugānuvṛttaṁ
+> itthaṁ nṛ-tiryag-ṛṣi-deva-jhaṣāvatārair\
+> lokān vibhāvayasi haṁsi jagat pratīpān\
+> dharmaṁ mahā-puruṣa pāsi yugānuvṛttaṁ\
 > channaḥ kalau yad abhavas tri-yugo 'tha sa tvam
 
 *ittham*—in this way; *nṛ*—like a human being (such as Lord Kṛṣṇa and Lord Rāmacandra); *tiryak*—like animals (such as the boar); *ṛṣi*—as a great saint (Paraśurāma); *deva*—as demigods; *jhaṣa*—as an aquatic (such as the fish and tortoise); *avatāraiḥ*—by such different incarnations; *lokān*—all the different planetary systems; *vibhāvayasi*—You protect; *haṁsi*—You (sometimes) kill; *jagat pratīpān*—persons who have simply created trouble in this world; *dharmam*—the principles of religion; *mahā-puruṣa*—O great personality; *pāsi*—You protect; *yuga-anuvṛttam*—according to the different millenniums; *channaḥ*—covered; *kalau*—in the age of Kali; *yat*—since; *abhavaḥ*—have been (and will be in the future); *tri-yugaḥ*—named Triyuga; *atha*—therefore; *saḥ*—the same personality; *tvam*—You.

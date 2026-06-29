@@ -1,9 +1,9 @@
 ### CC Antya 2.47
 
-> এইমত মাস গেল, গোসাঞি না আইলা ।
+> এইমত মাস গেল, গোসাঞি না আইলা ।\
 > জগদানন্দ, শিবানন্দ দুঃখিত হইলা ॥৪৭॥
 
-> ei-mata māsa gela, gosāñi nā āilā
+> ei-mata māsa gela, gosāñi nā āilā\
 > jagadānanda, śivānanda duḥkhita ha-ilā
 
 *ei-mata*—in this way; *māsa gela*—the month passed; *gosāñi nā āilā*—Śrī Caitanya Mahāprabhu did not come; *jagadānanda*—Jagadānanda; *śivānanda*—Śivānanda; *duḥkhita ha-ilā*—became very unhappy.

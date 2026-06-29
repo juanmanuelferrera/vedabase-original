@@ -1,11 +1,11 @@
 ### SB 6.12.6
 
-> इन्द्रो न वज्रं जगृहे विलज्जितश्च्युतं स्वहस्तादरिसन्निधौ पुनः
+> इन्द्रो न वज्रं जगृहे विलज्जितश्च्युतं स्वहस्तादरिसन्निधौ पुनः\
 > तमाह वृत्रो हर आत्तवज्रो जहि स्वशत्रुं न विषादकालः ॥६॥
 
-> indro na vajraṁ jagṛhe vilajjitaś
-> cyutaṁ sva-hastād ari-sannidhau punaḥ
-> tam āha vṛtro hara ātta-vajro
+> indro na vajraṁ jagṛhe vilajjitaś\
+> cyutaṁ sva-hastād ari-sannidhau punaḥ\
+> tam āha vṛtro hara ātta-vajro\
 > jahi sva-śatruṁ na viṣāda-kālaḥ
 
 *indraḥ*—King Indra; *na*—not; *vajram*—the thunderbolt; *jagṛhe*—took up; *vilajjitaḥ*—being ashamed; *cyutam*—fallen; *sva-hastāt*—from his own hand; *ari-sannidhau*—in front of his enemy; *punaḥ*—again; *tam*—unto him; *āha*—said; *vṛtraḥ*—Vṛtrāsura; *hare*—O Indra; *ātta-vajraḥ*—taking up your thunderbolt; *jahi*—kill; *sva-śatrum*—your enemy; *na*—not; *viṣāda-kālaḥ*—the time for lamentation.

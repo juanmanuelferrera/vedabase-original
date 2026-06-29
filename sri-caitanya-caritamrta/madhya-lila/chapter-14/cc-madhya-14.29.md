@@ -1,9 +1,9 @@
 ### CC Madhya 14.29
 
-> অমৃতমণ্ডা, সরবতী, আর কুম্ড়া-কুরী ।
+> অমৃতমণ্ডা, সরবতী, আর কুম্ড়া-কুরী ।\
 > সরামৃত, সরভাজা, আর সরপুরী ॥২৯॥
 
-> amṛta-maṇḍā, saravatī, āra kumḍā-kurī
+> amṛta-maṇḍā, saravatī, āra kumḍā-kurī\
 > sarāmṛta, sarabhājā, āra sarapurī
 
 *amṛta-maṇḍā*—a variety of papaya; *saravatī*—a kind of orange; *āra*—and; *kumḍā-kurī*—crushed squash; *sarāmṛta*—cream; *sara-bhājā*—fried cream; *āra*—and; *sara-purī*—a kind of *purī* made with cream.

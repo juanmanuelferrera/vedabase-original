@@ -1,11 +1,11 @@
 ### SB 2.6.33
 
-> इति तेऽभिहितं तात यथेदमनुपृच्छसि ।
+> इति तेऽभिहितं तात यथेदमनुपृच्छसि ।\
 > नान्यद्भगवतः किञ्चिद्भाव्यं सदसदात्मकम् ॥३३॥
 
-> iti te 'bhihitaṁ tāta
-> yathedam anupṛcchasi
-> nānyad bhagavataḥ kiñcid
+> iti te 'bhihitaṁ tāta\
+> yathedam anupṛcchasi\
+> nānyad bhagavataḥ kiñcid\
 > bhāvyaṁ sad-asad-ātmakam
 
 *iti*—thus; *te*—unto you; *abhihitam*—explained; *tāta*—my dear son; *yathā*—as; *idam*—all these; *anupṛcchasi*—as you have inquired; *na*—never; *anyat*—anything else; *bhagavataḥ*—beyond the Personality of Godhead; *kiñcit*—nothing; *bhāvyam*—to be thought ever; *sat*—cause; *asat*—effect; *ātmakam*—in the matter of.

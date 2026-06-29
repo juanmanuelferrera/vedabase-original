@@ -1,9 +1,9 @@
 ### CC Madhya 7.126
 
-> কৃপা কর, প্রভু, মোরে, যাঙ তোমা-সঙ্গে ৷
+> কৃপা কর, প্রভু, মোরে, যাঙ তোমা-সঙ্গে ৷\
 > সহিতে না পারি দুঃখ বিষয়-তরঙ্গে ৷৷’ ১২৬ ৷৷ ॥১২৬॥
 
-> kṛpā kara, prabhu, more, yāṅ tomā-saṅge
+> kṛpā kara, prabhu, more, yāṅ tomā-saṅge\
 > sahite nā pāri duḥkha viṣaya-taraṅge'
 
 *kṛpā kara*—muestra Tu favor; *prabhu*—¡oh, mi Señor!; *more*—a mí; *yāṅ*—que vaya; *tomā-saṅge*—contigo; *sahite nā pāri*—no puedo tolerar; *duḥkha*—los sufrimientos; *viṣaya-taraṅge*—en las olas de la vida materialista.

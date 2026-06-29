@@ -1,11 +1,11 @@
 ### Bg 4.39
 
-> श्रद्धावाँल्लभते ज्ञानं तत्परः संयतेन्द्रियः ।
+> श्रद्धावाँल्लभते ज्ञानं तत्परः संयतेन्द्रियः ।\
 > ज्ञानं लब्ध्वा परां शान्तिमचिरेणाधिगच्छति ॥३९॥
 
-> śraddhāvāl labhate jñānaṁ
-> tat-paraḥ saṁyatendriyaḥ
-> jñānaṁ labdhvā parāṁ śāntim
+> śraddhāvāl labhate jñānaṁ\
+> tat-paraḥ saṁyatendriyaḥ\
+> jñānaṁ labdhvā parāṁ śāntim\
 > acireṇādhigacchati
 
 *śraddhāvān*—un hombre fiel; *labhate*—alcanza; *jñānaṁ*—conocimiento; *tat-paraḥ*—muy apegado a él; *saṁyata*—controlado; *indriyaḥ*—sentidos; *jñānam*—conocimiento; *labdhvā*—habiendo alcanzado; *parām*—trascendental; *śāntim*—paz; *acireṇa*—muy pronto; *adhigacchati*—alcanza.

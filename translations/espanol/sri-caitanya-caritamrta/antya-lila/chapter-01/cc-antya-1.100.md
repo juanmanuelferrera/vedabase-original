@@ -1,9 +1,9 @@
 ### CC Antya 1.100
 
-> শ্লোক শুনি’ হরিদাস হইলা উল্লাসী ।
+> শ্লোক শুনি’ হরিদাস হইলা উল্লাসী ।\
 > নাচিতে লাগিলা শ্লোকের অর্থ প্রশংসি’ ॥১০০॥
 
-> śloka śuni haridāsa ha-ila ullāsī
+> śloka śuni haridāsa ha-ila ullāsī\
 > nācite lāgilā ślokera artha praśaṁsi'
 
 *śloka śuni'*—al oír este verso; *hari-dāsa*—Haridāsa Ṭhākura; *ha-ilā ullāsī*—se llenó de júbilo; *nācite lāgilā*—comenzó a danzar; *ślokera*—del verso; *artha praśaṁsi'*—elogiando el significado.

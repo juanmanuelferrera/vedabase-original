@@ -1,11 +1,11 @@
 ### SB 9.10.30
 
-> ततो ददर्श भगवानशोकवनिकाश्रमे
+> ततो ददर्श भगवानशोकवनिकाश्रमे\
 > क्षामां स्वविरहव्याधिं शिंशपामूलमाश्रिताम ॥३०॥
 
-> tato dadarśa bhagavān
-> aśoka-vanikāśrame
-> kṣāmāṁ sva-viraha-vyādhiṁ
+> tato dadarśa bhagavān\
+> aśoka-vanikāśrame\
+> kṣāmāṁ sva-viraha-vyādhiṁ\
 > śiṁśapā-mūlam-āśritām
 
 *tataḥ*—a continuación; *dadarśa*—vio; *bhagavān*—la Suprema Personalidad de Dios; *aśoka-vanika-āśrame*—en una pequeña choza del bosque de árboles *aśoka*; *kṣāmām*—muy débil y delgada; *sva-viraha-vyādhim*—sufriendo la enfermedad de la separación del Señor Rāmacandra; *śiṁśapā*—del árbol Śiṁśapā; *mūlam*—la raíz; *āśritām*—refugiándose en.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.12
 
-> তৃতীয় বত্সরে সব গৌড়ের ভক্তগণ ।
+> তৃতীয় বত্সরে সব গৌড়ের ভক্তগণ ।\
 > নীলাচলে চলিতে সবার হৈল মন ॥১২॥
 
-> tṛtīya vatsare saba gauḍera bhakta-gaṇa
+> tṛtīya vatsare saba gauḍera bhakta-gaṇa\
 > nīlācale calite sabāra haila mana
 
 *tṛtīya vatsare*—in the third year; *saba*—all; *gauḍera bhakta-gaṇa*—devotees from Bengal; *nīlācale*—to Jagannātha Purī; *calite*—to go; *sabāra*—of everyone; *haila*—there was; *mana*—the mind.

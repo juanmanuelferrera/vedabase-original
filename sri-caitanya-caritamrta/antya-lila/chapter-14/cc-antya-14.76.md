@@ -1,9 +1,9 @@
 ### CC Antya 14.76
 
-> এত বলি’ প্রভুরে ধরি’ ঘরে লঞা গেলা ।
+> এত বলি’ প্রভুরে ধরি’ ঘরে লঞা গেলা ।\
 > তাঁহার অবস্থা সব কহিতে লাগিলা ॥৭৬॥
 
-> eta bali' prabhure dhari' ghare lañā gelā
+> eta bali' prabhure dhari' ghare lañā gelā\
 > tāṅhāra avasthā saba kahite lāgilā
 
 *eta bali'*—saying this; *prabhure dhari'*—taking Mahāprabhu; *ghare*—home; *lañā gelā*—took back; *tāṅhāra avasthā*—His condition; *saba*—all of them; *kahite lāgilā*—began to speak.

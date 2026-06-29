@@ -1,9 +1,9 @@
 ### CC Madhya 6.244
 
-> গোপীনাথাচার্য বলে — ‘আমি পূর্বে যে কহিল ।
+> গোপীনাথাচার্য বলে — ‘আমি পূর্বে যে কহিল ।\
 > শুন, ভট্টাচার্য, তোমার সেই ত’ হইল’ ॥২৪৪॥
 
-> gopīnāthācārya bale,--'āmi pūrve ye kahila
+> gopīnāthācārya bale,--'āmi pūrve ye kahila\
 > śuna, bhaṭṭācārya, tomāra sei ta' ha-ila'
 
 *gopīnātha-ācārya*—Gopīnātha Ācārya; *bale*—dice; *āmi*—yo; *pūrve*—anteriormente; *ye*—lo que; *kahila*—dije; *śuna*—escucha; *bhaṭṭācārya*—mi querido Bhaṭṭācārya; *tomāra*—tu; *sei*—eso; *ta'*—en verdad; *ha-ila*—ha ocurrido.

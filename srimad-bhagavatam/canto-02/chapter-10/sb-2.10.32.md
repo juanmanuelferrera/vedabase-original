@@ -1,11 +1,11 @@
 ### SB 2.10.32
 
-> गुणात्मकानीन्द्रियाणि भूतादिप्रभवा गुणाः ।
+> गुणात्मकानीन्द्रियाणि भूतादिप्रभवा गुणाः ।\
 > मनः सर्वविकारात्मा बुद्धिर्विज्ञानरूपिणी ॥३२॥
 
-> guṇātmakānīndriyāṇi
-> bhūtādi-prabhavā guṇāḥ
-> manaḥ sarva-vikārātmā
+> guṇātmakānīndriyāṇi\
+> bhūtādi-prabhavā guṇāḥ\
+> manaḥ sarva-vikārātmā\
 > buddhir vijñāna-rūpiṇī
 
 *guṇa-ātmakāni*—attached to the qualities; *indriyāṇi*—the senses; *bhūta-ādi*—material ego; *prabhavāḥ*—influenced by; *guṇāḥ*—the modes of material nature; *manaḥ*—the mind; *sarva*—all; *vikāra*—affection (happiness and distress); *ātmā*—form; *buddhiḥ*—intelligence; *vijñāna*—deliberation; *rūpiṇī*—featuring.

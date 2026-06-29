@@ -1,9 +1,9 @@
 ### CC Adi 7.24
 
-> লুটিয়া, খাইয়া, দিয়া, ভাণ্ডার উজাড়ে ।
+> লুটিয়া, খাইয়া, দিয়া, ভাণ্ডার উজাড়ে ।\
 > আশ্চর্য ভাণ্ডার, প্রেম শতগুণ বাড়ে ॥২৪॥
 
-> luṭiyā, khāiyā, diyā, bhāṇḍāra ujāḍe
+> luṭiyā, khāiyā, diyā, bhāṇḍāra ujāḍe\
 > āścarya bhāṇḍāra, prema śata-guṇa bāḍe
 
 *luṭiyā*—saqueando; *khāiyā*—comiendo; *diyā*—distribuyendo; *bhāṇḍāra*—depósito; *ujāḍe*—vaciado; *āścarya*—maravilloso; *bhāṇḍāra*—depósito; *prema*—amor por Dios; *śata-guṇa*—cien veces; *bāḍe*—aumenta.

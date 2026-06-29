@@ -1,9 +1,9 @@
 ### CC Madhya 20.296
 
-> পুরুষাবতারের এই কৈলুঁ নিরূপণ ।
+> পুরুষাবতারের এই কৈলুঁ নিরূপণ ।\
 > লীলাবতার এবে শুন, সনাতন ॥২৯৬॥
 
-> puruṣāvatārera ei kailuṅ nirūpaṇa
+> puruṣāvatārera ei kailuṅ nirūpaṇa\
 > līlāvatāra ebe śuna, sanātana
 
 *puruṣa-avatārera*—of all the puruṣa-avatāras; *ei*—this; *kailuṅ nirūpaṇa*—I have described; *līlā-avatāra*—incarnations for pastimes; *ebe*—now; *śuna*—please hear; *sanātana*—O Sanātana.

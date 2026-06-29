@@ -1,9 +1,9 @@
 ### CC Adi 5.119
 
-> পঞ্চাশৎকোটি-যোজন পৃথিবী-বিস্তার ।
+> পঞ্চাশৎকোটি-যোজন পৃথিবী-বিস্তার ।\
 > যাঁর একফণে রহে সর্ষপ-আকার ॥১১৯॥
 
-> pañcāśat-koṭi-yojana pṛthivī-vistāra
+> pañcāśat-koṭi-yojana pṛthivī-vistāra\
 > yāṅra eka-phaṇe rahe sarṣapa-ākāra
 
 *pañcāśat*—cincuenta; *koṭi*—diez millones; *yojana*—ocho millas; *pṛthivī*—del universo; *vistāra*—anchura; *yāṅra*—cuya; *eka-phaṇe*—sobre una de las capuchas; *rahe*—descansa; *sarṣapa-ākāra*—como una semilla de mostaza.

@@ -1,11 +1,11 @@
 ### SB 3.6.9
 
-> साध्यात्मः साधिदैवश्च साधिभूत इति त्रिधा ।
+> साध्यात्मः साधिदैवश्च साधिभूत इति त्रिधा ।\
 > विराट्प्राणो दशविध एकधा हृदयेन च ॥९॥
 
-> sādhyātmaḥ sādhidaivaś ca
-> sādhibhūta iti tridhā
-> virāṭ prāṇo daśa-vidha
+> sādhyātmaḥ sādhidaivaś ca\
+> sādhibhūta iti tridhā\
+> virāṭ prāṇo daśa-vidha\
 > ekadhā hṛdayena ca
 
 *sa-ādhyātmaḥ*—el cuerpo y la mente con todos los sentidos; *sa-ādhidaivaḥ*—y los semidioses controladores de los sentidos; *ca*—y; *sa-ādhibhūtaḥ*—los objetivos presentes; *iti*—de esa manera; *tridhā*—tres; *virāṭ*—gigantesco; *prāṇaḥ*—fuerza motriz; *daśa-vidhaḥ*—diez clases; *ekadhā*—solo una; *hṛdayena*—energía viviente; *ca*—también.

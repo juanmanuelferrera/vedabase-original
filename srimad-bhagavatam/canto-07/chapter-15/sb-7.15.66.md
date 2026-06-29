@@ -1,11 +1,11 @@
 ### SB 7.15.66
 
-> यद्यस्य वानिषिद्धं स्याद्येन यत्र यतो नृप
+> यद्यस्य वानिषिद्धं स्याद्येन यत्र यतो नृप\
 > स तेनेहेत कार्याणि नरो नान्यैरनापदि ॥६६॥
 
-> yad yasya vāniṣiddhaṁ syād
-> yena yatra yato nṛpa
-> sa teneheta kāryāṇi
+> yad yasya vāniṣiddhaṁ syād\
+> yena yatra yato nṛpa\
+> sa teneheta kāryāṇi\
 > naro nānyair anāpadi
 
 *yat*—whatever; *yasya*—of a man; *vā*—either; *aniṣiddham*—not forbidden; *syāt*—it is so; *yena*—by which means; *yatra*—in place and time; *yataḥ*—from which; *nṛpa*—O King; *saḥ*—such a person; *tena*—by such a process; *īheta*—should perform; *kāryāṇi*—prescribed activities; *naraḥ*—a person; *na*—not; *anyaiḥ*—by other ways; *anāpadi*—in the absence of danger.

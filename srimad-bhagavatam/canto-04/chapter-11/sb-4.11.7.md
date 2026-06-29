@@ -1,13 +1,13 @@
 ### SB 4.11.7
 
-> मनुरुवाच
-> अलं वत्सातिरोषेण तमोद्वारेण पाप्मना ।
+> मनुरुवाच\
+> अलं वत्सातिरोषेण तमोद्वारेण पाप्मना ।\
 > येन पुण्यजनानेतानवधीस्त्वमनागसः ॥७॥
 
-> manur uvāca
-> alaṁ vatsātiroṣeṇa
-> tamo-dvāreṇa pāpmanā
-> yena puṇya-janān etān
+> manur uvāca\
+> alaṁ vatsātiroṣeṇa\
+> tamo-dvāreṇa pāpmanā\
+> yena puṇya-janān etān\
 > avadhīs tvam anāgasaḥ
 
 *manuḥ uvāca*—Manu said; *alam*—enough; *vatsa*—my dear boy; *atiroṣeṇa*—with excessive anger; *tamaḥ-dvāreṇa*—the path of ignorance; *pāpmanā*—sinful; *yena*—by which; *puṇya-janān*—the Yakṣas; *etān*—all these; *avadhīḥ*—you have killed; *tvam*—you; *anāgasaḥ*—offenseless.

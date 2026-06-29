@@ -1,11 +1,11 @@
 ### SB 1.13.34
 
-> पितर्युपरते पाण्डौ सर्वान्नः सुहृदः शिशून् ।
+> पितर्युपरते पाण्डौ सर्वान्नः सुहृदः शिशून् ।\
 > अरक्षतां व्यसनतः पितृव्यौ क्व गतावितः ॥३४॥
 
-> pitary uparate pāṇḍau
-> sarvān naḥ suhṛdaḥ śiśūn
-> arakṣatāṁ vyasanataḥ
+> pitary uparate pāṇḍau\
+> sarvān naḥ suhṛdaḥ śiśūn\
+> arakṣatāṁ vyasanataḥ\
 > pitṛvyau kva gatāv itaḥ
 
 *pitari*—upon my father; *uparate*—falling down; *pāṇḍau*—Mahārāja Pāṇḍu; *sarvān*—all; *naḥ*—of us; *suhṛdaḥ*—well-wishers; *śiśūn*—small children; *arakṣatām*—protected; *vyasanataḥ*—from all kinds of dangers; *pitṛvyau*—uncles; *kva*—where; *gatau*—have departed; *itaḥ*—from this place.

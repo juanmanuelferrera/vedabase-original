@@ -1,11 +1,11 @@
 ### SB 1.15.29
 
-> वासुदेवाङ्घ्र्यनुध्यान परिबृंहितरंहसा ।
+> वासुदेवाङ्घ्र्यनुध्यान परिबृंहितरंहसा ।\
 > भक्त्या निर्मथिताशेष कषायधिषणोऽर्जुनः ॥२९॥
 
-> vāsudevāṅghry-anudhyāna-
-> paribṛṁhita-raṁhasā
-> bhaktyā nirmathitāśeṣa-
+> vāsudevāṅghry-anudhyāna-\
+> paribṛṁhita-raṁhasā\
+> bhaktyā nirmathitāśeṣa-\
 > kaṣāya-dhiṣaṇo 'rjunaḥ
 
 *vāsudeva-aṅghri*—los pies de loto del Señor; *anudhyāna*—por el recuerdo constante; *paribṛṁhita*—se expandió; *raṁhasā*—con gran velocidad; *bhaktyā*—con devoción; *nirmathita*—cedió; *aśeṣa*—ilimitado; *kaṣāya*—a fuerza de; *dhiṣaṇaḥ*—concepción; *arjunaḥ*—Arjuna.

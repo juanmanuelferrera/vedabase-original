@@ -1,13 +1,13 @@
 ### CC Antya 17.61
 
-> কাহাঁ গেলে তোমা পাই, তুমি কহ, — তাহাঁ যাই”,
-> এত কহি’ চলিলা ধাঞা ।
-> স্বরূপ উঠি’ কোলে করি’, প্রভুরে আনিল ধরি’,
+> কাহাঁ গেলে তোমা পাই, তুমি কহ, — তাহাঁ যাই”,\
+> এত কহি’ চলিলা ধাঞা ।\
+> স্বরূপ উঠি’ কোলে করি’, প্রভুরে আনিল ধরি’,\
 > নিজস্থানে বসাইলা লৈঞা ॥৬১॥
 
-> kāhāṅ gele tomā pāi, tumi kaha,--tāhāṅ yāi",
-> eta kahi' calilā dhāñā
-> svarūpa uṭhi' kole kari', prabhure ānila dhari',
+> kāhāṅ gele tomā pāi, tumi kaha,--tāhāṅ yāi",\
+> eta kahi' calilā dhāñā\
+> svarūpa uṭhi' kole kari', prabhure ānila dhari',\
 > nija-sthāne vasāilā laiñā
 
 *kāhāṅ*—adónde; *gele*—yendo; *tomā*—a Ti; *pāi*—puedo encontrar; *tumi*—Tú; *kaha*—por favor dime; *tāhāṅ*—allí; *yāi*—iré; *eta kahi'*—diciendo esto; *calilā dhāñā*—comenzó a correr; *svarūpa*—Svarūpa Dāmodara Gosvāmī; *uṭhi'*—levantándose; *kole kari'*—tomándolo en su regazo; *prabhure*—Śrī Caitanya Mahāprabhu; *ānila*—trajo de vuelta; *dhari'*—atrapándolo; *nija-sthāne*—a Su propio lugar; *vasāilā*—sentó; *laiñā*—llevando.

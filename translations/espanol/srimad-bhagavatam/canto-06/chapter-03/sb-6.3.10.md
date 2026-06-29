@@ -1,11 +1,11 @@
 ### SB 6.3.10
 
-> तांस्ते वेदितुमिच्छामो यदि नो मन्यसे क्षमम
+> तांस्ते वेदितुमिच्छामो यदि नो मन्यसे क्षमम\
 > नारायणेत्यभिहिते मा भैरित्याययुर्द्रुतम ॥१०॥
 
-> tāṁs te veditum icchāmo
-> yadi no manyase kṣamam
-> nārāyaṇety abhihite
+> tāṁs te veditum icchāmo\
+> yadi no manyase kṣamam\
+> nārāyaṇety abhihite\
 > mā bhair ity āyayur drutam
 
 *tān*—acerca de ellos; *te*—de ti; *veditum*—saber; *icchāmaḥ*—deseamos; *yadi*—si; *naḥ*—de nosotros; *manyase*—tu crees; *kṣamam*—adecuado; *nārāyaṇa*—Nārāyaṇa; *iti*—así; *abhihite*—ser pronunciado; *mā*—no; *bhaiḥ*—miedo; *iti*—así; *āyayuḥ*—llegaron; *drutam*—muy pronto.

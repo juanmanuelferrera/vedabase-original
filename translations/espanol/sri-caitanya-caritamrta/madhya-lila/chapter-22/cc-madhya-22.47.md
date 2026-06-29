@@ -1,9 +1,9 @@
 ### CC Madhya 22.47
 
-> কৃষ্ণ যদি কৃপা করে কোন ভাগ্যবানে ।
+> কৃষ্ণ যদি কৃপা করে কোন ভাগ্যবানে ।\
 > গুরু-অন্তর্যামি-রূপে শিখায় আপনে ॥৪৭॥
 
-> kṛṣṇa yadi kṛpā kare kona bhāgyavāne
+> kṛṣṇa yadi kṛpā kare kona bhāgyavāne\
 > guru-antaryāmi-rūpe śikhāya āpane
 
 *kṛṣṇa*—el Señor Kṛṣṇa; *yadi*—si; *kṛpā kare*—muestra Su misericordia; *kona bhāgyavāne*—a alguna persona afortunada; *guru*—del maestro espiritual; *antaryāmi*—de la Superalma; *rūpe*—en la forma; *śikhāya*—enseña; *āpane*—personalmente.

@@ -1,11 +1,11 @@
 ### SB 9.23.17
 
-> त्रिभानुस्तत्सुतोऽस्यापि करन्धम उदारधीः
+> त्रिभानुस्तत्सुतोऽस्यापि करन्धम उदारधीः\
 > मरुतस्तत्सुतोऽपुत्रः पुत्रं पौरवमन्वभूत ॥१७॥
 
-> tribhānus tat-suto 'syāpi
-> karandhama udāra-dhīḥ
-> marutas tat-suto 'putraḥ
+> tribhānus tat-suto 'syāpi\
+> karandhama udāra-dhīḥ\
+> marutas tat-suto 'putraḥ\
 > putraṁ pauravam anvabhūt
 
 *tribhānuḥ*—Tribhānu; *tat-sutaḥ*—the son of Bhānumān; *asya*—of him (Tribhānu); *api*—also; *karandhamaḥ*—Karandhama; *udāra-dhīḥ*—who was very magnanimous; *marutaḥ*—Maruta; *tat-sutaḥ*—the son of Karandhama; *aputraḥ*—being without issue; *putram*—as his son; *pauravam*—a son of the Pūru dynasty, Mahārāja Duṣmanta; *anvabhūt*—adopted.

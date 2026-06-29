@@ -1,11 +1,11 @@
 ### SB 6.6.23
 
-> कृत्तिकादीनि नक्षत्राणीन्दोः पत्न्यस्तु भारत
+> कृत्तिकादीनि नक्षत्राणीन्दोः पत्न्यस्तु भारत\
 > दक्षशापात्सोऽनपत्यस्तासु यक्ष्मग्रहार्दितः ॥२३॥
 
-> kṛttikādīni nakṣatrāṇ-
-> īndoḥ patnyas tu bhārata
-> dakṣa-śāpāt so 'napatyas
+> kṛttikādīni nakṣatrāṇ-\
+> īndoḥ patnyas tu bhārata\
+> dakṣa-śāpāt so 'napatyas\
 > tāsu yakṣma-grahārditaḥ
 
 *kṛttikā-ādīni*—headed by Kṛttikā; *nakṣatrāṇi*—the constellations; *indoḥ*—of the moon-god; *patnyaḥ*—the wives; *tu*—but; *bhārata*—O Mahārāja Parīkṣit, descendant of the dynasty of Bharata; *dakṣa-śāpāt*—because of being cursed by Dakṣa; *saḥ*—the moon-god; *anapatyaḥ*—without children; *tāsu*—in so many wives; *yakṣma-graha-arditaḥ*—being oppressed by a disease that brings about gradual destruction.

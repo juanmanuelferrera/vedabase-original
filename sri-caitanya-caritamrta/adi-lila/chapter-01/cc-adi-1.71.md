@@ -1,11 +1,11 @@
 ### CC Adi 1.71
 
-> চিত্রং বতৈতদেকেন বপুষা যুগপৎ পৃথক্ ।
+> চিত্রং বতৈতদেকেন বপুষা যুগপৎ পৃথক্ ।\
 > গৃহেষু দ্ব্যষ্টসাহস্রং স্ত্রিয় এক উদাবহৎ ॥৭১॥
 
-> citraṁ bataitad ekena
-> vapuṣā yugapat pṛthak
-> gṛheṣu dvy-aṣṭa-sāhasraṁ
+> citraṁ bataitad ekena\
+> vapuṣā yugapat pṛthak\
+> gṛheṣu dvy-aṣṭa-sāhasraṁ\
 > striya eka udāvahat
 
 *citram*—wonderful; *bata*—oh; *etat*—this; *ekena*—with one; *vapuṣā*—form; *yugapat*—simultaneously; *pṛthak*—separately; *gṛheṣu*—in the houses; *dvi-aṣṭa-sāhasram*—sixteen thousand; *striyaḥ*—all the queens; *ekaḥ*—the one Śrī Kṛṣṇa; *udāvahat*—married.

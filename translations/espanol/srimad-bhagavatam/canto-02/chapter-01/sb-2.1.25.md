@@ -1,11 +1,11 @@
 ### SB 2.1.25
 
-> अण्डकोशे शरीरेऽस्मिन्सप्तावरणसंयुते ।
+> अण्डकोशे शरीरेऽस्मिन्सप्तावरणसंयुते ।\
 > वैराजः पुरुषो योऽसौ भगवान्धारणाश्रयः ॥२५॥
 
-> aṇḍa-kośe śarīre 'smin
-> saptāvaraṇa-saṁyute
-> vairājaḥ puruṣo yo 'sau
+> aṇḍa-kośe śarīre 'smin\
+> saptāvaraṇa-saṁyute\
+> vairājaḥ puruṣo yo 'sau\
 > bhagavān dhāraṇāśrayaḥ
 
 *aṇḍa-kośe*—dentro del cascarón universal; *śarīre*—en el cuerpo de; *asmin*—este; *sapta*—siete; *āvaraṇa*—coberturas; *saṁyute*—habiéndolo hecho así; *vairājaḥ*—la gigantesca y universal; *puruṣaḥ*—forma del Señor; *yaḥ*—esa; *asau*—Él; *bhagavān*—la Personalidad de Dios; *dhāraṇā*—concepción; *āśrayaḥ*—objeto de.

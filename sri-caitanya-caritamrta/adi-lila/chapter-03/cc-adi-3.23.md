@@ -1,11 +1,11 @@
 ### CC Adi 3.23
 
-> পরিত্রাণায় সাধূনাং বিনাশায় চ দুষ্কৃতাম্ ।
+> পরিত্রাণায় সাধূনাং বিনাশায় চ দুষ্কৃতাম্ ।\
 > ধর্মসংস্থাপনার্থায় সম্ভবামি যুগে যুগে ॥২৩॥
 
-> paritrāṇāya sādhūnāṁ
-> vināśāya ca duṣkṛtām
-> dharma-saṁsthāpanārthāya
+> paritrāṇāya sādhūnāṁ\
+> vināśāya ca duṣkṛtām\
+> dharma-saṁsthāpanārthāya\
 > sambhavāmi yuge yuge
 
 *paritrāṇāya*—for the deliverance; *sādhūnām*—of the devotees; *vināśāya*—for the destruction; *ca*—and; *duṣkṛtām*—of the miscreants; *dharma*—religious principles; *saṁsthāpana-arthāya*—for the purpose of establishing; *sambhavāmi*—I appear; *yugeyuge*—in every age.

@@ -1,11 +1,11 @@
 ### SB 6.19.4
 
-> अलं ते निरपेक्षाय पूर्णकाम नमोऽस्तु ते
+> अलं ते निरपेक्षाय पूर्णकाम नमोऽस्तु ते\
 > महाविभूतिपतये नमः सकलसिद्धये ॥४॥
 
-> alaṁ te nirapekṣāya
-> pūrṇa-kāma namo 'stu te
-> mahāvibhūti-pataye
+> alaṁ te nirapekṣāya\
+> pūrṇa-kāma namo 'stu te\
+> mahāvibhūti-pataye\
 > namaḥ sakala-siddhaye
 
 *alam*—bastante; *te*—a Ti; *nirapekṣāya*—indiferente; *pūrṇa-kāma*—¡oh, Señor, cuyo deseo siempre se cumple!; *namaḥ*—reverencias; *astu*—que sean; *te*—a Ti; *mahā-vibhūti*—de Lakṣmī; *pataye*—al esposo; *namaḥ*—reverencias; *sakala-siddhaye*—al amo de toda perfección mística.

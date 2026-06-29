@@ -1,9 +1,9 @@
 ### CC Madhya 13.41
 
-> শ্রীকান্ত, বল্লভসেন আর দুই জন  ।
+> শ্রীকান্ত, বল্লভসেন আর দুই জন  ।\
 > হরিদাস-ঠাকুর তাহাঁ করেন নর্তন ॥৪১॥
 
-> śrīkānta, vallabha-sena āra dui jana
+> śrīkānta, vallabha-sena āra dui jana\
 > haridāsa-ṭhākura tāhāṅ karena nartana
 
 *śrīkānta, vallabha-sena*—Śrīkānta and Vallabha Sena; *āra*—another; *dui jana*—two persons; *haridāsa-ṭhākura*—Haridāsa Ṭhākura; *tāhāṅ*—there; *karena*—performs; *nartana*—dancing.

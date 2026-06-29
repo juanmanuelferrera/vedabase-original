@@ -1,11 +1,11 @@
 ### SB 3.12.23
 
-> उत्सङ्गान्नारदो जज्ञे दक्षोऽङ्गुष्ठात्स्वयम्भुवः ।
+> उत्सङ्गान्नारदो जज्ञे दक्षोऽङ्गुष्ठात्स्वयम्भुवः ।\
 > प्राणाद्वसिष्ठः सञ्जातो भृगुस्त्वचि करात्क्रतुः ॥२३॥
 
-> utsaṅgān nārado jajñe
-> dakṣo 'ṅguṣṭhāt svayambhuvaḥ
-> prāṇād vasiṣṭhaḥ sañjāto
+> utsaṅgān nārado jajñe\
+> dakṣo 'ṅguṣṭhāt svayambhuvaḥ\
+> prāṇād vasiṣṭhaḥ sañjāto\
 > bhṛgus tvaci karāt kratuḥ
 
 *utsaṅgāt*—mediante deliberación trascendental; *nāradaḥ*—Mahāmuni Nārada; *jajñe*—fue generado; *dakṣaḥ*—Dakṣa; *aṅguṣṭhāt*—del pulgar; *svayambhuvaḥ*—de Brahmā; *prāṇāt*—del aire vital o respiración; *vasiṣṭhaḥ*—Vasiṣṭha; *sañjātaḥ*—nació; *bhṛguḥ*—el sabio Bhṛgu; *tvaci*—del tacto; *karāt*—de la mano; *kratuḥ*—el sabio Kratu.

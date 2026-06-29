@@ -1,9 +1,9 @@
 ### CC Adi 17.65
 
-> মুকুন্দ-দত্তেরে কৈল দণ্ড-পরসাদ ।
+> মুকুন্দ-দত্তেরে কৈল দণ্ড-পরসাদ ।\
 > খণ্ডিল তাহার চিত্তের সব অবসাদ ॥৬৫॥
 
-> mukunda-dattere kaila daṇḍa-parasāda
+> mukunda-dattere kaila daṇḍa-parasāda\
 > khaṇḍila tāhāra cittera saba avasāda
 
 *mukunda-dattere*—unto Mukunda Datta; *kaila*—did; *daṇḍa*—punishment; *parasāda*—benediction; *khaṇḍila*—vanquished; *tāhāra*—his; *cittera*—of the mind; *saba*—all kinds of; *avasāda*—depressions.

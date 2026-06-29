@@ -1,9 +1,9 @@
 ### CC Madhya 8.28
 
-> এইমত বিপ্রগণ ভাবে মনে মন ।
+> এইমত বিপ্রগণ ভাবে মনে মন ।\
 > বিজাতীয় লোক দেখি, প্রভু কৈল সম্বরণ ॥২৮॥
 
-> ei-mata vipra-gaṇa bhāve mane mana
+> ei-mata vipra-gaṇa bhāve mane mana\
 > vijātīya loka dekhi, prabhu kaila saṁvaraṇa
 
 *ei-mata*—in this way; *vipra-gaṇa*—all the *brāhmaṇas*; *bhāve*—think; *mane mana*—within their minds; *vijātīya loka*—outside people; *dekhi*—seeing; *prabhu*—Lord Caitanya Mahāprabhu; *kaila*—did; *saṁvaraṇa*—restraining.

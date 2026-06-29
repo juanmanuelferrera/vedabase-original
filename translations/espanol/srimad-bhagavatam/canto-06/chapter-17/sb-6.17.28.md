@@ -1,11 +1,11 @@
 ### SB 6.17.28
 
-> नारायणपराः सर्वे न कुतश्चन बिभ्यति
+> नारायणपराः सर्वे न कुतश्चन बिभ्यति\
 > स्वर्गापवर्गनरकेष्वपि तुल्यार्थदर्शिनः ॥२८॥
 
-> nārāyaṇa-parāḥ sarve
-> na kutaścana bibhyati
-> svargāpavarga-narakeṣv
+> nārāyaṇa-parāḥ sarve\
+> na kutaścana bibhyati\
+> svargāpavarga-narakeṣv\
 > api tulyārtha-darśinaḥ
 
 *nārāyaṇa-parāḥ*—devotos puros, sin otro interés que el servicio de Nārāyaṇa; *sarve*—todos; *na*—no; *kutaścana*—en ningún lugar; *bibhyati*—sienten temor; *svarga*—en los sistemas planetarios superiores; *apavarga*—en la liberación; *narakeṣu*—y en el infierno; *api*—incluso; *tulya*—igual; *artha*—valor; *darśinaḥ*—que ven.

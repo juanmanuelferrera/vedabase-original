@@ -1,9 +1,9 @@
 ### CC Madhya 1.48
 
-> বিদায় সময় প্রভু কহিলা সবারে ।
+> বিদায় সময় প্রভু কহিলা সবারে ।\
 > প্রত্যব্দ আসিবে সবে গুণ্ডিচা দেখিবারে ॥৪৮॥
 
-> vidāya samaya prabhu kahilā sabāre
+> vidāya samaya prabhu kahilā sabāre\
 > pratyabda āsibe sabe guṇḍicā dekhibāre
 
 *vidāya*—al despedirse; *samaya*—en el momento; *prabhu*—el Señor; *kahilā*—dijo; *sabāre*—a todos; *pratyabda*—cada año; *āsibe*—debéis venir; *sabe*—todos; *guṇḍicā*—de nombre Guṇḍicā; *dekhibāre*—para ver.

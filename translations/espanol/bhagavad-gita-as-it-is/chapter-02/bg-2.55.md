@@ -1,13 +1,13 @@
 ### Bg 2.55
 
-> श्रीभगवानुवाच ।
-> प्रजहाति यदा कामान्सर्वान्पार्थ मनोगतान् ।
+> श्रीभगवानुवाच ।\
+> प्रजहाति यदा कामान्सर्वान्पार्थ मनोगतान् ।\
 > आत्मन्येवात्मना तुष्टः स्थितप्रज्ञस्तदोच्यते ॥५५॥
 
-> śrī bhagavān uvāca
-> prajahāti yadā kāmān
-> sarvān pārtha mano-gatān
-> ātmany evātmanā tuṣṭaḥ
+> śrī bhagavān uvāca\
+> prajahāti yadā kāmān\
+> sarvān pārtha mano-gatān\
+> ātmany evātmanā tuṣṭaḥ\
 > sthita-prajñas tadocyate
 
 *śrī bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *prajahāti*—abandona; *yadā*—cuando; *kāmān*—deseos de complacer los sentidos; *sarvān*—de todas las variedades; *pārtha*—¡oh, hijo de Pṛthā!; *manaḥ-gatān*—de la especulación mental; *ātmani*—en el estado puro del alma; *eva*—ciertamente; *ātmanā*—mediante la mente purificada; *tuṣṭaḥ*—satisfecho; *sthita-prajña*—situado en un estado trascendental; *tadā*—en ese momento; *ucyate*—se dice.

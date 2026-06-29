@@ -1,9 +1,9 @@
 ### CC Antya 11.76
 
-> স্বরূপ-গোসাঞি পসারিকে নিষেধিল ।
+> স্বরূপ-গোসাঞি পসারিকে নিষেধিল ।\
 > চাঙ্গড়া লঞা পসারি পসারে বসিল ॥৭৬॥
 
-> svarūpa-gosāñi pasārike niṣedhila
+> svarūpa-gosāñi pasārike niṣedhila\
 > cāṅgaḍā lañā pasāri pasāre vasila
 
 *svarūpa-gosāñi*—Svarūpa Dāmodara Gosvāmī; *pasārike*—the shopkeepers; *niṣedhila*—forbade; *cāṅgaḍā lañā*—taking the baskets; *pasāri*—shopkeepers; *pasāre vasila*—sat down in their shops.

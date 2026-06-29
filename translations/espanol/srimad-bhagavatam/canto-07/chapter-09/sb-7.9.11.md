@@ -1,13 +1,13 @@
 ### SB 7.9.11
 
-> नैवात्मनः प्रभुरयं निजलाभपूर्णो
-> मानं जनादविदुषः करुणो वृणीते
-> यद्यज्जनो भगवते विदधीत मानं
+> नैवात्मनः प्रभुरयं निजलाभपूर्णो\
+> मानं जनादविदुषः करुणो वृणीते\
+> यद्यज्जनो भगवते विदधीत मानं\
 > तच्चात्मने प्रतिमुखस्य यथा मुखश्रीः ॥११॥
 
-> naivātmanaḥ prabhur ayaṁ nija-lābha-pūrṇo
-> mānaṁ janād aviduṣaḥ karuṇo vṛṇīte
-> yad yaj jano bhagavate vidadhīta mānaṁ
+> naivātmanaḥ prabhur ayaṁ nija-lābha-pūrṇo\
+> mānaṁ janād aviduṣaḥ karuṇo vṛṇīte\
+> yad yaj jano bhagavate vidadhīta mānaṁ\
 > tac cātmane prati-mukhasya yathā mukha-śrīḥ
 
 *na*—ni; *eva*—ciertamente; *ātmanaḥ*—para Su beneficio personal; *prabhuḥ*—Señor; *ayam*—este; *nija-lābha-pūrṇaḥ*—está siempre satisfecho en Sí mismo (para estar satisfecho no necesita del servicio de otros); *mānam*—respeto; *janāt*—de una persona; *aviduṣaḥ*—que no sabe que el objetivo de la vida es complacer al Señor Supremo; *karuṇaḥ*—(la Suprema Personalidad de Dios,) que es muy bondadoso con esa persona necia e ignorante; *vṛṇīte*—acepta; *yat yat*—cualquier; *janaḥ*—una persona; *bhagavate*—a la Suprema Personalidad de Dios; *vidadhīta*—pueda ofrecer; *mānam*—adoración; *tat*—esa; *ca*—en verdad; *ātmane*—para su propio beneficio; *prati-mukhasya*—del reflejo de la cara en el espejo; *yathā*—tal como; *mukha-śrīḥ*—los adornos en la cara.

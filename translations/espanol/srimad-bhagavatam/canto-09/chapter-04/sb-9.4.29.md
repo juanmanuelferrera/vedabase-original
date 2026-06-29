@@ -1,11 +1,11 @@
 ### SB 9.4.29
 
-> आरिराधयिषुः कृष्णं महिष्या तुल्यशीलया
+> आरिराधयिषुः कृष्णं महिष्या तुल्यशीलया\
 > युक्तः सांवत्सरं वीरो दधार द्वादशीव्रतम ॥२९॥
 
-> ārirādhayiṣuḥ kṛṣṇaṁ
-> mahiṣyā tulya-śīlayā
-> yuktaḥ sāṁvatsaraṁ vīro
+> ārirādhayiṣuḥ kṛṣṇaṁ\
+> mahiṣyā tulya-śīlayā\
+> yuktaḥ sāṁvatsaraṁ vīro\
 > dadhāra dvādaśī-vratam
 
 *ārirādhayiṣuḥ*—aspirando a adorar; *kṛṣṇam*—al Señor Supremo, Kṛṣṇa; *mahiṣyā*—con su reina; *tulya-śīlayā*—que era tan cualificada como Mahārāja Ambarīṣa; *yuktaḥ*—juntos; *sāṁvatsaram*—durante un año; *vīraḥ*—el rey; *dadhāra*—aceptó; *dvādaśī-vratam*—el voto de observar *ekādaśī* y *dvādaśī*.

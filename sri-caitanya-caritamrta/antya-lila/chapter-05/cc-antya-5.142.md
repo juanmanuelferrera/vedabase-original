@@ -1,9 +1,9 @@
 ### CC Antya 5.142
 
-> ‘পণ্ডিতের মান্য-পাত্র হয় ‘পণ্ডিতমানী’ ।
+> ‘পণ্ডিতের মান্য-পাত্র হয় ‘পণ্ডিতমানী’ ।\
 > তথাপি ভক্তবাৎসল্যে ‘মনুষ্য’ অভিমানী ॥১৪২॥
 
-> 'paṇḍitera mānya-pātra—haya 'paṇḍita-mānī'
+> 'paṇḍitera mānya-pātra—haya 'paṇḍita-mānī'\
 > tathāpi bhakta-vātsalye 'manuṣya' abhimānī
 
 *paṇḍitera*—of learned scholars; *mānya-pātra*—worshipable object; *haya*—is; *paṇḍita-mānī*—a person honored by the learned scholars; *tathāpi*—still; *bhakta-vātsalye*—because of being very affectionate to the devotees; *manuṣya abhimānī*—presents Himself as an ordinary human being.

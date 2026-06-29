@@ -1,9 +1,9 @@
 ### CC Madhya 4.56
 
-> নব শতঘট জল কৈল উপনীত ।
+> নব শতঘট জল কৈল উপনীত ।\
 > নানা বাদ্য-ভেরী বাজে, স্ত্রীগণ গায় গীত ॥৫৬॥
 
-> nava śata-ghaṭa jala kaila upanīta
+> nava śata-ghaṭa jala kaila upanīta\
 > nānā vādya-bherī bāje, strī-gaṇa gāya gīta
 
 *nava*—nueve; *śata-ghaṭa*—cientos de cántaros; *jala*—agua; *kaila*—se hizo; *upanīta*—traer; *nānā*—diversos; *vādya*—sonidos musicales; *bherī*—cornetas; *bāje*—vibran; *strī-gaṇa*—todas las mujeres; *gāya*—cantan; *gīta*—diversas canciones.

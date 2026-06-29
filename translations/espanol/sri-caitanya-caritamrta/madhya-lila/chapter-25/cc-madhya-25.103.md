@@ -1,9 +1,9 @@
 ### CC Madhya 25.103
 
-> “আমি — ‘সম্বন্ধ’-তত্ত্ব, আমার জ্ঞানংবিজ্ঞান ।
+> “আমি — ‘সম্বন্ধ’-তত্ত্ব, আমার জ্ঞানংবিজ্ঞান ।\
 > আমা পাইতে সাধন-ভক্তি ‘অভিধেয়’-নাম ॥১০৩॥
 
-> "āmi-'sambandha'-tattva, āmāra jñāna-vijñāna
+> "āmi-'sambandha'-tattva, āmāra jñāna-vijñāna\
 > āmā pāite sādhana-bhakti 'abhidheya'-nāma
 
 *āmi*—Yo; *sambandha-tattva*—el centro de todas las relaciones; *āmāra*—de Mí; *jñāna*—conocimiento; *vijñāna*—aplicación práctica de ese conocimiento; *āmā pāite*—para obtenerme; *sādhana-bhakti*—la práctica del servicio devocional; *abhidheya-nāma*—se denomina actividades en esa relación.

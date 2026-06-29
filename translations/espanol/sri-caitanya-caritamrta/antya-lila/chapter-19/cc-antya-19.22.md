@@ -1,9 +1,9 @@
 ### CC Antya 19.22
 
-> এত শুনি’ জগদানন্দ হাসিতে লাগিলা ।
+> এত শুনি’ জগদানন্দ হাসিতে লাগিলা ।\
 > নীলাচলে আসি’ তবে প্রভুরে কহিলা ॥২২॥
 
-> eta śuni' jagadānanda hāsite lāgilā
+> eta śuni' jagadānanda hāsite lāgilā\
 > nīlācale āsi' tabe prabhure kahilā
 
 *eta śuni'*—al oír esto; *jagadānanda*—Jagadānanda Paṇḍita; *hāsite lāgilā*—empezó a reír; *nīlācale*—a Jagannātha Purī; *āsi'*—regresando; *tabe*—entonces; *prabhure kahilā*—se lo contó todo a Śrī Caitanya Mahāprabhu.

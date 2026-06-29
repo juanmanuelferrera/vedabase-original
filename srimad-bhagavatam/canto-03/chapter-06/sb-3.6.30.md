@@ -1,11 +1,11 @@
 ### SB 3.6.30
 
-> मुखतोऽवर्तत ब्रह्म पुरुषस्य कुरूद्वह ।
+> मुखतोऽवर्तत ब्रह्म पुरुषस्य कुरूद्वह ।\
 > यस्तून्मुखत्वाद्वर्णानां मुख्योऽभूद्ब्राह्मणो गुरुः ॥३०॥
 
-> mukhato 'vartata brahma
-> puruṣasya kurūdvaha
-> yas tūnmukhatvād varṇānāṁ
+> mukhato 'vartata brahma\
+> puruṣasya kurūdvaha\
+> yas tūnmukhatvād varṇānāṁ\
 > mukhyo 'bhūd brāhmaṇo guruḥ
 
 *mukhataḥ*—from the mouth; *avartata*—generated; *brahma*—the Vedic wisdom; *puruṣasya*—of the *virāṭ-puruṣa,* the gigantic form; *kuru-udvaha*—O chief of the Kuru dynasty; *yaḥ*—who are; *tu*—due to; *unmukhatvāt*—inclined to; *varṇānām*—of the orders of society; *mukhyaḥ*—the chief; *abhūt*—so became; *brāhmaṇaḥ*—called the *brāhmaṇas*; *guruḥ*—the recognized teacher or spiritual master.

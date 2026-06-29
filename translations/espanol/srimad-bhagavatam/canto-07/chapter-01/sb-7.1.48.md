@@ -1,15 +1,15 @@
 ### SB 7.1.48
 
-> śrī-yudhiṣṭhira uvāca
-> vidveṣo dayite putre
-> katham āsīn mahātmani
-> brūhi me bhagavan yena
+> śrī-yudhiṣṭhira uvāca\
+> vidveṣo dayite putre\
+> katham āsīn mahātmani\
+> brūhi me bhagavan yena\
 > prahlādasyācyutātmatā
 
-> śrī-yudhiṣṭhira uvāca
-> vidveṣo dayite putre
-> katham āsīn mahātmani
-> brūhi me bhagavan yena
+> śrī-yudhiṣṭhira uvāca\
+> vidveṣo dayite putre\
+> katham āsīn mahātmani\
+> brūhi me bhagavan yena\
 > prahlādasyācyutātmatā
 
 *śrī-yudhiṣṭhiraḥ uvāca*—Mahārāja Yudhiṣṭhira dijo; *vidveṣaḥ*—odio; *dayite*—por su propio querido; *putre*—hijo; *katham*—cómo; *āsīt*—había; *mahā-ātmani*—la gran alma, Prahlāda; *brūhi*—por favor, di; *me*—a mí; *bhagavan*—¡oh, sabio glorioso!; *yena*—por qué; *prahlādasya*—de Prahlāda Mahārāja; *acyuta*—a Acyuta; *ātmatā*—gran apego.

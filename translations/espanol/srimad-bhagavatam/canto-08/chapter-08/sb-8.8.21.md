@@ -1,11 +1,11 @@
 ### SB 8.8.21
 
-> नूनं तपो यस्य न मन्युनिर्जयो ज्ञआनं क्वचित्तच्च न सङ्गवर्जितम
+> नूनं तपो यस्य न मन्युनिर्जयो ज्ञआनं क्वचित्तच्च न सङ्गवर्जितम\
 > कश्चिन्महांस्तस्य न कामनिर्जयः स ईश्वरः किं परतो व्यपाश्रयः ॥२१॥
 
-> dharmaḥ kvacit tatra na bhūta-sauhṛdaṁ
-> tyāgaḥ kvacit tatra na mukti-kāraṇam
-> vīryaṁ na puṁso 'sty aja-vega-niṣkṛtaṁ
+> dharmaḥ kvacit tatra na bhūta-sauhṛdaṁ\
+> tyāgaḥ kvacit tatra na mukti-kāraṇam\
+> vīryaṁ na puṁso 'sty aja-vega-niṣkṛtaṁ\
 > na hi dvitīyo guṇa-saṅga-varjitaḥ
 
 *dharmaḥ*—religión; *kvacit*—alguno puede tener conocimiento perfecto de; *tatra*—en eso; *na*—no; *bhūta-sauhṛdam*—amistad con otras entidades vivientes; *tyāgaḥ*—renunciación; *kvacit*—se puede poseer; *tatra*—en eso; *na*—no; *mukti-kāraṇam*—la causa de liberación; *vīryam*—poder; *na*—no; *puṁsaḥ*—de ninguna persona; *asti*—puede haber; *aja-vega-niṣkṛtam*—sin libertad frente al poder del tiempo; *na*—ni; *hi*—en verdad; *dvitīyaḥ*—el segundo; *guṇa-saṅga-varjitaḥ*—completamente liberado de la contaminación de las modalidades de la naturaleza material.

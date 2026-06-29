@@ -1,11 +1,11 @@
 ### SB 6.6.8
 
-> साध्योगणश्च साध्याया अर्थसिद्धिस्तु तत्सुतः
+> साध्योगणश्च साध्याया अर्थसिद्धिस्तु तत्सुतः\
 > मरुत्वांश्च जयन्तश्च मरुत्वत्या बभूवतुः ॥८॥
 
-> marutvāṁś ca jayantaś ca
-> marutvatyā babhūvatuḥ
-> jayanto vāsudevāṁśa
+> marutvāṁś ca jayantaś ca\
+> marutvatyā babhūvatuḥ\
+> jayanto vāsudevāṁśa\
 > upendra iti yaṁ viduḥ
 
 *marutvān*—Marutvān; *ca*—también; *jayantaḥ*—Jayanta; *ca*—y; *marutvatyāḥ*—de Marutvatī; *babhūvatuḥ*—nacieron; *jayantaḥ*—Jayanta; *vāsudeva-aṁśaḥ*—una expansión de Vāsudeva; *upendraḥ*—Upendra; *iti*—así; *yam*—a quien; *viduḥ*—conocen.

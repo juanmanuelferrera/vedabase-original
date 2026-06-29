@@ -1,9 +1,9 @@
 ### CC Antya 19.23
 
-> তরজা শুনি’ মহাপ্রভু ঈষত্ হাসিলা ।
+> তরজা শুনি’ মহাপ্রভু ঈষত্ হাসিলা ।\
 > ‘তাঁর যেই আজ্ঞা’ — বলি’ মৌন ধরিলা ॥২৩॥
 
-> tarajā śuni' mahāprabhu īṣat hāsilā
+> tarajā śuni' mahāprabhu īṣat hāsilā\
 > 'tāṅra yei ājñā'--bali' mauna dharilā
 
 *tarajā śuni'*—al oír el soneto; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *īṣat hāsilā*—sonrió levemente; *tāṅra yei ājñā*—esa es Su orden; *bali'*—diciendo; *mauna dharilā*—se quedó en silencio.

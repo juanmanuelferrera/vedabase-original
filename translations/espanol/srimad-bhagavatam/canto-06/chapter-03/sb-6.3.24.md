@@ -1,13 +1,13 @@
 ### SB 6.3.24
 
-> एतावतालमघनिर्हरणाय पुंसां
-> सङ्कीर्तनं भगवतो गुणकर्मनाम्नाम
-> विक्रुश्य पुत्रमघवान्यदजामिलोऽपि
+> एतावतालमघनिर्हरणाय पुंसां\
+> सङ्कीर्तनं भगवतो गुणकर्मनाम्नाम\
+> विक्रुश्य पुत्रमघवान्यदजामिलोऽपि\
 > नारायणेति म्रियमाण इयाय मुक्तिम ॥२४॥
 
-> etāvatālam agha-nirharaṇāya puṁsāṁ
-> saṅkīrtanaṁ bhagavato guṇa-karma-nāmnām
-> vikruśya putram aghavān yad ajāmilo 'pi
+> etāvatālam agha-nirharaṇāya puṁsāṁ\
+> saṅkīrtanaṁ bhagavato guṇa-karma-nāmnām\
+> vikruśya putram aghavān yad ajāmilo 'pi\
 > nārāyaṇeti mriyamāṇa iyāya muktim
 
 *etāvatā*—con solo eso; *alam*—suficiente; *agha-nirharaṇāya*—para eliminar las reacciones de las actividades pecaminosas; *puṁsām*—de seres humanos; *saṅkīrtanam*—el canto en congregación; *bhagavataḥ*—de la Suprema Personalidad de Dios; *guṇa*—de las cualidades trascendentales; *karma-nāmnām*—y de Sus nombres conforme a Sus actividades y pasatiempos; *vikruśya*—llamando a voces libre de ofensas; *putram*—a su hijo; *aghavān*—el pecador; *yat*—puesto que; *ajāmilaḥ api*—incluso Ajāmila; *nārāyaṇa*—el nombre del Señor, Nārāyaṇa; *iti*—así; *mriyamāṇaḥ*—moribundo; *iyāya*—obtuvo; *muktim*—liberación.

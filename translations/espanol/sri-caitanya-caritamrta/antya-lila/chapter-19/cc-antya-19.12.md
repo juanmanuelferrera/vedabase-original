@@ -1,9 +1,9 @@
 ### CC Antya 19.12
 
-> গোপ-লীলায় পাইলা যেই প্রসাদ-বসনে ।
+> গোপ-লীলায় পাইলা যেই প্রসাদ-বসনে ।\
 > মাতারে পাঠান তাহা পুরীর বচনে ॥১২॥
 
-> gopa-līlāya pāilā yei prasāda-vasane
+> gopa-līlāya pāilā yei prasāda-vasane\
 > mātāre pāṭhāna tāhā purīra vacane
 
 *gopa-līlāya*—en Sus pasatiempos como pastorcillo de vacas; *pāilā*—obtuvo; *yei*—lo que; *prasāda*—remanente; *vasane*—ropa; *mātāre*—a Su madre; *pāṭhāna*—envió; *tāhā*—eso; *purīra vacane*—por orden de Paramānanda Purī.

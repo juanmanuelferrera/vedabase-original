@@ -1,11 +1,11 @@
 ### SB 4.12.7
 
-> वृणीहि कामं नृप यन्मनोगतं मत्तस्त्वमौत्तानपदेऽविशङ्कितः ।
+> वृणीहि कामं नृप यन्मनोगतं मत्तस्त्वमौत्तानपदेऽविशङ्कितः ।\
 > वरं वरार्होऽम्बुजनाभपादयोरनन्तरं त्वां वयमङ्ग शुश्रुम ॥७॥
 
-> vṛṇīhi kāmaṁ nṛpa yan mano-gataṁ
-> mattas tvam auttānapade 'viśaṅkitaḥ
-> varaṁ varārho 'mbuja-nābha-pādayor
+> vṛṇīhi kāmaṁ nṛpa yan mano-gataṁ\
+> mattas tvam auttānapade 'viśaṅkitaḥ\
+> varaṁ varārho 'mbuja-nābha-pādayor\
 > anantaraṁ tvāṁ vayam aṅga śuśruma
 
 *vṛṇīhi*—por favor, pide; *kāmam*—deseo; *nṛpa*—¡oh, rey!; *yat*—cualquier; *manaḥ-gatam*—en tu mente; *mattaḥ*—de mí; *tvam*—tú; *auttānapade*—¡oh, hijo de Mahārāja Uttānapāda!; *aviśaṅkitaḥ*—sin titubear; *varam*—bendición; *vara-arhaḥ*—digno de recibir bendiciones; *ambuja*—flor de loto; *nābha*—cuyo ombligo; *pādayoḥ*—a Sus pies de loto; *anantaram*—constantemente; *tvām*—acerca de ti; *vayam*—nosotros; *aṅga*—querido Dhruva; *śuśruma*—hemos oído.

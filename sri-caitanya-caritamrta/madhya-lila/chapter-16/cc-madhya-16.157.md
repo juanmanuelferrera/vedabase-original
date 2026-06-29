@@ -1,9 +1,9 @@
 ### CC Madhya 16.157
 
-> দিন দুই-চারি তেঁহো করিল সেবন ।
+> দিন দুই-চারি তেঁহো করিল সেবন ।\
 > আগে চলিবারে সেই কহে বিবরণ ॥১৫৭॥
 
-> dina dui-cāri teṅho karila sevana
+> dina dui-cāri teṅho karila sevana\
 > āge calibāre sei kahe vivaraṇa
 
 *dina dui-cāri*—two or four days; *teṅho*—he; *karila sevana*—served the Lord; *āge*—forward; *calibāre*—for going; *sei*—that officer; *kahe*—spoke; *vivaraṇa*—detailed information.

@@ -1,14 +1,14 @@
 ### CC Adi 5.77
 
-> বিষ্ণোস্তু ত্রীণি রূপাণি পুরুষাখ্যান্যথো বিদুঃ ।
-> একন্তু মহতঃ স্রষ্টৃ দ্বিতীয়ং ত্বণ্ডসংস্থিতম্ ।
+> বিষ্ণোস্তু ত্রীণি রূপাণি পুরুষাখ্যান্যথো বিদুঃ ।\
+> একন্তু মহতঃ স্রষ্টৃ দ্বিতীয়ং ত্বণ্ডসংস্থিতম্ ।\
 > তৃতীয়ং সর্বভূতস্থং তানি জ্ঞাত্বা বিমুচ্যতে ॥৭৭॥
 
-> viṣṇos tu trīṇi rūpāṇi
-> puruṣākhyāny atho viduḥ
-> ekaṁ tu mahataḥ sraṣṭṛ
-> dvitīyaṁ tv aṇḍa-saṁsthitam
-> tṛtīyaṁ sarva-bhūta-sthaṁ
+> viṣṇos tu trīṇi rūpāṇi\
+> puruṣākhyāny atho viduḥ\
+> ekaṁ tu mahataḥ sraṣṭṛ\
+> dvitīyaṁ tv aṇḍa-saṁsthitam\
+> tṛtīyaṁ sarva-bhūta-sthaṁ\
 > tāni jñātvā vimucyate
 
 *viṣṇoḥ*—of Lord Viṣṇu; *tu*—certainly; *trīṇi*—three; *rūpāṇi*—forms; *puruṣa-ākhyāni*—celebrated as the *puruṣa*; *atho*—how; *viduḥ*—they know; *ekam*—one of them; *tu*—but; *mahataḥ sraṣṭṛ*—the creator of the total material energy; *dvitīyam*—the second; *tu*—but; *aṇḍa-saṁsthitam*—situated within the universe; *tṛtīyam*—the third; *sarva-bhūta-stham*—within the hearts of all living entities; *tāni*—these three; *jñātvā*—knowing; *vimucyate*—one becomes liberated.

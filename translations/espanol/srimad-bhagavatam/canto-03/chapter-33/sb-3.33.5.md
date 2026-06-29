@@ -1,11 +1,11 @@
 ### SB 3.33.5
 
-> त्वं देहतन्त्रः प्रशमाय पाप्मनां निदेशभाजां च विभो विभूतये ।
+> त्वं देहतन्त्रः प्रशमाय पाप्मनां निदेशभाजां च विभो विभूतये ।\
 > यथावतारास्तव सूकरादयस्तथायमप्यात्मपथोपलब्धये ॥५॥
 
-> tvaṁ deha-tantraḥ praśamāya pāpmanāṁ
-> nideśa-bhājāṁ ca vibho vibhūtaye
-> yathāvatārās tava sūkarādayas
+> tvaṁ deha-tantraḥ praśamāya pāpmanāṁ\
+> nideśa-bhājāṁ ca vibho vibhūtaye\
+> yathāvatārās tava sūkarādayas\
 > tathāyam apy ātma-pathopalabdhaye
 
 *tvam*—Tú; *deha*—este cuerpo; *tantraḥ*—has adoptado; *praśamāya*—para la disminución; *pāpmanām*—de las actividades pecaminosas; *nideśa-bhājām*—de enseñanzas devocionales; *ca*—y; *vibho*—¡oh, mi Señor!; *vibhūtaye*—para la expansión; *yathā*—como; *avatārāḥ*—encarnaciones; *tava*—Tuyas; *sūkara-ādayaḥ*—el jabalí y otras formas; *tathā*—así pues; *ayam*—esta encarnación de Kapila; *api*—con seguridad; *ātma-patha*—el sendero de la iluminación trascendental; *upalabdhaye*—a fin de revelar.

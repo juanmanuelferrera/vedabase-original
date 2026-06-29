@@ -1,13 +1,13 @@
 ### SB 6.18.45
 
-> श्रीकश्यप उवाच
-> पुत्रस्ते भविता भद्रे इन्द्रहादेवबान्धवः
+> श्रीकश्यप उवाच\
+> पुत्रस्ते भविता भद्रे इन्द्रहादेवबान्धवः\
 > संवत्सरं व्रतमिदं यद्यञ्जो धारयिष्यसि ॥४५॥
 
-> śrī-kaśyapa uvāca
-> putras te bhavitā bhadre
-> indra-hādeva-bāndhavaḥ
-> saṁvatsaraṁ vratam idaṁ
+> śrī-kaśyapa uvāca\
+> putras te bhavitā bhadre\
+> indra-hādeva-bāndhavaḥ\
+> saṁvatsaraṁ vratam idaṁ\
 > yady añjo dhārayiṣyasi
 
 *śrī-kaśyapaḥ uvāca*—Kaśyapa Muni said; *putraḥ*—son; *te*—your; *bhavitā*—will be; *bhadre*—O gentle woman; *indra-hā*—killer of Indra, or follower of Indra; *adeva-bāndhavaḥ*—friend of the demons (or *deva-bāndhavaḥ*—friend of the demigods); *saṁvatsaram*—for a year; *vratam*—vow; *idam*—this; *yadi*—if; *añjaḥ*—properly; *dhārayiṣyasi*—you will execute.

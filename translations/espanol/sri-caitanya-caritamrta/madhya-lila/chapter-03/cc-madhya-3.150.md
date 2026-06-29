@@ -1,9 +1,9 @@
 ### CC Madhya 3.150
 
-> তবে আই লঞা আচার্য গেলা অভ্যন্তর ।
+> তবে আই লঞা আচার্য গেলা অভ্যন্তর ।\
 > ভক্তগণ মিলিতে প্রভু হইলা সত্বর ॥১৫০॥
 
-> tabe āi lañā ācārya gelā abhyantara
+> tabe āi lañā ācārya gelā abhyantara\
 > bhakta-gaṇa milite prabhu ha-ilā satvara
 
 *tabe*—luego; *āi*—la madre; *lañā*—llevando; *ācārya*—Advaita Ācārya; *gelā*—entró; *abhyantara*—dentro de la casa; *bhakta-gaṇa*—todos los devotos; *milite*—para encontrarse; *prabhu*—el Señor; *ha-ilā*—estuvo; *satvara*—inmediatamente.

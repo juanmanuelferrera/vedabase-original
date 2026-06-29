@@ -1,13 +1,13 @@
 ### CC Madhya 2.64
 
-> মত্তগজ ভাবগণ, প্রভুর দেহ — ইক্ষুবন,
-> গজ-যুদ্ধে বনের দলন ।
-> প্ৰভুর হৈল দিব্যোন্মাদ, তনুমনের অবসাদ,
+> মত্তগজ ভাবগণ, প্রভুর দেহ — ইক্ষুবন,\
+> গজ-যুদ্ধে বনের দলন ।\
+> প্ৰভুর হৈল দিব্যোন্মাদ, তনুমনের অবসাদ,\
 > ভাবাবেশে করে সম্বোধন ॥৬৪॥
 
-> matta-gaja bhāva-gaṇa, prabhura deha--īkṣu-vana,
-> gaja-yuddhe vanera dalana
-> prabhura haila divyonmāda, tanu-manera avasāda,
+> matta-gaja bhāva-gaṇa, prabhura deha--īkṣu-vana,\
+> gaja-yuddhe vanera dalana\
+> prabhura haila divyonmāda, tanu-manera avasāda,\
 > bhāvāveśe kare sambodhana
 
 *matta-gaja*—elefante enloquecido; *bhāva-gaṇa*—síntomas de éxtasis; *prabhura*—del Señor; *deha*—cuerpo; *ikṣu-vana*—campo de caña de azúcar; *gaja-yuddhe*—en la lucha de los elefantes; *vanera*—del campo; *dalana*—destrucción; *prabhura*—del Señor; *haila*—hubo; *divya-unmāda*—locura trascendental; *tanu-manera*—de la mente y el cuerpo; *avasāda*—abatimiento; *bhāva-āveśe*—debido a la absorción en el éxtasis; *kare*—hace; *sambodhana*—dirigirse.

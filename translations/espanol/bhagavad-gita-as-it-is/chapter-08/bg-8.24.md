@@ -1,11 +1,11 @@
 ### Bg 8.24
 
-> अग्निर्ज्योतिरहः शुक्लः षण्मासा उत्तरायणम् ।
+> अग्निर्ज्योतिरहः शुक्लः षण्मासा उत्तरायणम् ।\
 > तत्र प्रयाता गच्छन्ति ब्रह्म ब्रह्मविदो जनाः ॥२४॥
 
-> agnir jyotir ahaḥ śuklaḥ
-> ṣaṇ-māsā uttarāyaṇam
-> tatra prayātā gacchanti
+> agnir jyotir ahaḥ śuklaḥ\
+> ṣaṇ-māsā uttarāyaṇam\
+> tatra prayātā gacchanti\
 > brahma brahma-vido janāḥ
 
 *agniḥ*—fuego; *jyotiḥ*—luz; *ahaḥ*—día; *śuklaḥ*—blanca; *ṣaṭ-māsāḥ*—los seis meses; *uttarāyaṇam*—cuando el sol pasa por el lado Norte; *tatra*—allí; *prayātāḥ*—aquel que va; *gacchanti*—se van; *brahma*—el Absoluto; *brahmā-vidaḥ*—aquel que conoce el Absoluto; *janāḥ*—persona.

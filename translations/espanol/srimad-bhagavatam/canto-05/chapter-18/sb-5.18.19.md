@@ -1,11 +1,11 @@
 ### SB 5.18.19
 
-> स्त्रियो व्रतैस्त्वा हृषीकेश्वरं स्वतो ह्याराध्य लोके पतिमाशासतेऽन्यम
+> स्त्रियो व्रतैस्त्वा हृषीकेश्वरं स्वतो ह्याराध्य लोके पतिमाशासतेऽन्यम\
 > तासां न ते वै परिपान्त्यपत्यं प्रियं धनायूंषि यतोऽस्वतन्त्राः ॥१९॥
 
-> striyo vratais tvā hṛṣīkeśvaraṁ svato
-> hy ārādhya loke patim āśāsate 'nyam
-> tāsāṁ na te vai paripānty apatyaṁ
+> striyo vratais tvā hṛṣīkeśvaraṁ svato\
+> hy ārādhya loke patim āśāsate 'nyam\
+> tāsāṁ na te vai paripānty apatyaṁ\
 > priyaṁ dhanāyūṁṣi yato 'sva-tantrāḥ
 
 *striyaḥ*—todas las mujeres; *vrataiḥ*—observando ayunos y otros votos; *tvā*—a Ti; *hṛṣīkeśvaram*—la Suprema Personalidad de Dios, el amo de los sentidos; *svataḥ*—por Tu propia voluntad; *hi*—ciertamente; *ārādhya*—adorar; *loke*—en el mundo; *patim*—un esposo; *āśāsate*—piden; *anyam*—otra; *tāsām*—de todas esas mujeres; *na*—no; *te*—los esposos; *vai*—en verdad; *paripānti*—capaces de proteger; *apatyam*—a los hijos; *priyam*—muy queridos; *dhana*—las riquezas; *āyūṁṣi*—o la duración de la vida; *yataḥ*—puesto que; *asva-tantrāḥ*—dependiente.

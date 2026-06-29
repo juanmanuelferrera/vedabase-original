@@ -1,11 +1,11 @@
 ### SB 7.5.8
 
-> गृहमानीतमाहूय प्रह्रादं दैत्ययाजकाः
+> गृहमानीतमाहूय प्रह्रादं दैत्ययाजकाः\
 > प्रशस्य श्लक्ष्णया वाचा समपृच्छन्त सामभिः ॥८॥
 
-> gṛham ānītam āhūya
-> prahrādaṁ daitya-yājakāḥ
-> praśasya ślakṣṇayā vācā
+> gṛham ānītam āhūya\
+> prahrādaṁ daitya-yājakāḥ\
+> praśasya ślakṣṇayā vācā\
 > samapṛcchanta sāmabhiḥ
 
 *gṛham*—a la casa de los maestros (Ṣaṇḍa y Amarka); *ānītam*—llevado; *āhūya*—llamar; *prahrādam*—a Prahlāda; *daitya-yājakāḥ*—los sacerdotes del demonio Hiraṇyakaśipu; *praśasya*—tranquilizar; *ślakṣṇayā*—con una muy dulce; *vācā*—voz; *samapṛcchanta*—preguntaron; *sāmabhiḥ*—con palabras muy afables.

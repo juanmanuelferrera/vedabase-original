@@ -1,9 +1,9 @@
 ### CC Madhya 13.129
 
-> ইহাঁ রাজ-বেশ, সঙ্গে সব ক্ষত্রিয়গণ ।
+> ইহাঁ রাজ-বেশ, সঙ্গে সব ক্ষত্রিয়গণ ।\
 > তাহাঁ গোপবেশ, সঙ্গে মুরলী-বাদন ॥১২৯॥
 
-> ihāṅ rāja-veśa, saṅge saba kṣatriya-gaṇa
+> ihāṅ rāja-veśa, saṅge saba kṣatriya-gaṇa\
 > tāhāṅ gopa-veśa, saṅge muralī-vādana
 
 *ihāṅ*—aquí, en Kurukṣetra; *rāja-veśa*—vestido como un príncipe real; *saṅge*—junto a Ti; *saba*—todos; *kṣatriya-gaṇa*—grandes guerreros; *tāhāṅ*—allí, en Vṛndāvana; *gopa-veśa*—vestido como un pastorcillo de vacas; *saṅge*—junto a Ti; *muralī-vādana*—el sonido de Tu flauta trascendental.

@@ -1,11 +1,11 @@
 ### Bg 9.3
 
-> अश्रद्दधानाः पुरुषा धर्मस्यास्य परन्तप ।
+> अश्रद्दधानाः पुरुषा धर्मस्यास्य परन्तप ।\
 > अप्राप्य मां निवर्तन्ते मृत्युसंसारवर्त्मनि ॥३॥
 
-> aśraddadhānāḥ puruṣā
-> dharmasyāsya parantapa
-> aprāpya māṁ nivartante
+> aśraddadhānāḥ puruṣā\
+> dharmasyāsya parantapa\
+> aprāpya māṁ nivartante\
 > mṛtyu-saṁsāra-vartmani
 
 *aśraddadhānāḥ*—those who are faithless; *puruṣāḥ*—such persons; *dharmasya*—of this process of religion; *asya*—of it; *parantapa*—O killer of the enemies; *aprāpya*—without obtaining; *mām*—Me; *nivartante*—come back; *mṛtyu*—death; *saṁsāra*—material existence; *vartmani*—on the path of.

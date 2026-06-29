@@ -1,18 +1,18 @@
 ### SB 7.15.38-39
 
-> गृहस्थस्य क्रियात्यागो व्रतत्यागो वटोरपि
-> तपस्विनो ग्रामसेवा भिक्षोरिन्द्रियलोलता ॥३८॥
-> आश्रमापसदा ह्येते खल्वाश्रमविडम्बनाः
+> गृहस्थस्य क्रियात्यागो व्रतत्यागो वटोरपि\
+> तपस्विनो ग्रामसेवा भिक्षोरिन्द्रियलोलता ॥३८॥\
+> आश्रमापसदा ह्येते खल्वाश्रमविडम्बनाः\
 > देवमायाविमूढांस्तानुपेक्षेतानुकम्पया ॥३९॥
 
-> gṛhasthasya kriyā-tyāgo
-> vrata-tyāgo vaṭorapi
-> tapasvino grāma-sevā
+> gṛhasthasya kriyā-tyāgo\
+> vrata-tyāgo vaṭorapi\
+> tapasvino grāma-sevā\
 > bhikṣor indriya-lolatā
 
-> āśramāpasadā hy ete
-> khalv āśrama-viḍambanāḥ
-> deva-māyā-vimūḍhāṁs tān
+> āśramāpasadā hy ete\
+> khalv āśrama-viḍambanāḥ\
+> deva-māyā-vimūḍhāṁs tān\
 > upekṣetānukampayā
 
 *gṛhasthasya*—for a person situated in householder life; *kriyā-tyāgaḥ*—to give up the duty of a householder; *vrata-tyāgaḥ*—to give up vows and austerity; *vaṭoḥ*—for a *brahmacārī*; *api*—also; *tapasvinaḥ*—for a *vānaprastha,* one who has adopted a life of austerities; *grāma-sevā*—to live in a village and serve the people therein; *bhikṣoḥ*—for a *sannyāsī* who lived by begging alms; *indriya-lolatā*—addicted to sense enjoyment; *āśrama*—of the spiritual orders of life; *apasadāḥ*—the most abominable; *hi*—indeed; *ete*—all these; *khalu*—indeed; *āśrama-viḍambanāḥ*—imitating and therefore cheating the different spiritual orders; *deva-māyā-vimūḍhān*—who are bewildered by the external energy of the Supreme Lord; *tān*—them; *upekṣeta*—one should reject and not accept as genuine; *anukampayā*—or by compassion (teach them real life).

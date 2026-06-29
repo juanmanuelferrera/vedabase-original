@@ -1,13 +1,13 @@
 ### SB 3.30.1
 
-> कपिल उवाच
-> तस्यैतस्य जनो नूनं नायं वेदोरुविक्रमम् ।
+> कपिल उवाच\
+> तस्यैतस्य जनो नूनं नायं वेदोरुविक्रमम् ।\
 > काल्यमानोऽपि बलिनो वायोरिव घनावलिः ॥१॥
 
-> kapila uvāca
-> tasyaitasya jano nūnaṁ
-> nāyaṁ vedoru-vikramam
-> kālyamāno 'pi balino
+> kapila uvāca\
+> tasyaitasya jano nūnaṁ\
+> nāyaṁ vedoru-vikramam\
+> kālyamāno 'pi balino\
 > vāyor iva ghanāvaliḥ
 
 *kapilaḥ uvāca*—el Señor Kapila dijo; *tasya etasya*—de este mismo factor tiempo; *janaḥ*—persona; *nūnam*—ciertamente; *na*—no; *ayam*—este; *veda*—conoce; *uru-vikramam*—la gran fuerza; *kālyamānaḥ*—siendo arrastrado; *api*—aunque; *balinaḥ*—poderosa; *vāyoḥ*—del viento; *iva*—como; *ghana*—de nubes; *āvaliḥ*—una masa.

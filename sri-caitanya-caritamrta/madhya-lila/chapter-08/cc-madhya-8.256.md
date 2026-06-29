@@ -1,9 +1,9 @@
 ### CC Madhya 8.256
 
-> ‘উপাস্যের মধ্যে কোন্ উপাস্য প্রধান?’
+> ‘উপাস্যের মধ্যে কোন্ উপাস্য প্রধান?’\
 > ‘শ্রেষ্ঠ উপাস্য — যুগল ‘রাধাকৃষ্ণ’ নাম ।।’ ॥২৫৬॥
 
-> 'upāsyera madhye kon upāsya pradhāna?'
+> 'upāsyera madhye kon upāsya pradhāna?'\
 > 'śreṣṭha upāsya—yugala 'rādhā-kṛṣṇa' nāma'
 
 *upāsyera*—objects of worship; *madhye*—among; *kon*—which; *upāsya*—worshipable object; *pradhāna*—the chief; *śreṣṭha*—the chief; *upāsya*—worshipable object; *yugala*—the couple; *rādhā-kṛṣṇa nāma*—the holy name of Rādhā-Kṛṣṇa, or Hare Kṛṣṇa.

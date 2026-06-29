@@ -1,9 +1,9 @@
 ### CC Madhya 12.32
 
-> যাজ্ঞিক-ব্রাহ্মণী সব তাহাতে প্রমাণ ।
+> যাজ্ঞিক-ব্রাহ্মণী সব তাহাতে প্রমাণ ।\
 > কৃষ্ণ লাগি’ পতি-আগে ছাড়িলেক প্রাণ ॥৩২॥
 
-> yājñika-brāhmaṇī saba tāhāte pramāṇa
+> yājñika-brāhmaṇī saba tāhāte pramāṇa\
 > kṛṣṇa lāgi' pati-āge chāḍileka prāṇa
 
 *yājñika-brāhmaṇī*—the wives of the *brāhmaṇas* who were engaged in performing great sacrifices; *saba*—all; *tāhāte*—in that connection; *pramāṇa*—evidence; *kṛṣṇa lāgi'*—for the matter of Kṛṣṇa; *pati-āge*—in front of their husbands; *chāḍileka prāṇa*—gave up their lives.

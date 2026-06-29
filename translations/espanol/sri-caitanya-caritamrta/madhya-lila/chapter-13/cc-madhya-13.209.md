@@ -1,9 +1,9 @@
 ### CC Madhya 13.209
 
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।\
 > চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥২০৯॥
 
-> śrī-rūpa-raghunātha-pade yāra āśa
+> śrī-rūpa-raghunātha-pade yāra āśa\
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
 
 *śrī-rūpa*—Śrīla Rūpa Gosvāmī; *raghunātha*—Śrīla Raghunātha dāsa Gosvāmī; *pade*—a los pies de loto; *yāra*—cuya; *āśa*—aspiración; *caitanya-caritāmṛta*—el libro titulado Caitanya-caritāmṛta; *kahe*—describe; *kṛṣṇadāsa*—Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī.

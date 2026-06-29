@@ -1,11 +1,11 @@
 ### SB 4.24.29
 
-> स्वधर्मनिष्ठः शतजन्मभिः पुमान्विरिञ्चतामेति ततः परं हि माम् ।
+> स्वधर्मनिष्ठः शतजन्मभिः पुमान्विरिञ्चतामेति ततः परं हि माम् ।\
 > अव्याकृतं भागवतोऽथ वैष्णवं पदं यथाहं विबुधाः कलात्यये ॥२९॥
 
-> sva-dharma-niṣṭhaḥ śata-janmabhiḥ pumān
-> viriñcatām eti tataḥ paraṁ hi mām
-> avyākṛtaṁ bhāgavato 'tha vaiṣṇavaṁ
+> sva-dharma-niṣṭhaḥ śata-janmabhiḥ pumān\
+> viriñcatām eti tataḥ paraṁ hi mām\
+> avyākṛtaṁ bhāgavato 'tha vaiṣṇavaṁ\
 > padaṁ yathāhaṁ vibudhāḥ kalātyaye
 
 *sva-dharma-niṣṭhaḥ*—el que está situado en su propio *dharma,* su propia ocupación; *śata-janmabhiḥ*—durante cien vidas; *pumān*—la entidad viviente; *viriñcatām*—el puesto del Señor Brahmā; *eti*—obtiene; *tataḥ*—a continuación; *param*—morada; *hi*—ciertamente; *mām*—me alcanza; *avyākṛtam*—sin desviación; *bhāgavataḥ*—a la Suprema Personalidad de Dios; *atha*—por lo tanto; *vaiṣṇavam*—el devoto puro del Señor; *padam*—puesto; *yathā*—como; *aham*—yo; *vubudhāḥ*—semidioses; *kalā-atyaye*—tras la aniquilación del mundo material.

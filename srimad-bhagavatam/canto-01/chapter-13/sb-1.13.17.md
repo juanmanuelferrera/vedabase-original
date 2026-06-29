@@ -1,11 +1,11 @@
 ### SB 1.13.17
 
-> एवं गृहेषु सक्तानां प्रमत्तानां तदीहया ।
+> एवं गृहेषु सक्तानां प्रमत्तानां तदीहया ।\
 > अत्यक्रामदविज्ञातः कालः परमदुस्तरः ॥१७॥
 
-> evaṁ gṛheṣu saktānāṁ
-> pramattānāṁ tad-īhayā
-> atyakrāmad avijñātaḥ
+> evaṁ gṛheṣu saktānāṁ\
+> pramattānāṁ tad-īhayā\
+> atyakrāmad avijñātaḥ\
 > kālaḥ parama-dustaraḥ
 
 *evam*—thus; *gṛheṣu*—in the family affairs; *saktānām*—of persons who are too attached; *pramattānām*—insanely attached; *tat-īhayā*—engrossed in such thoughts; *atyakrāmat*—surpassed; *avijñātaḥ*—imperceptibly; *kālaḥ*—eternal time; *parama*—supremely; *dustaraḥ*—insurmountable.

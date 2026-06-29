@@ -1,11 +1,11 @@
 ### SB 8.12.16
 
-> तत्तेऽहं दर्शयिष्यामि दिदृक्षोः सुरसत्तम
+> तत्तेऽहं दर्शयिष्यामि दिदृक्षोः सुरसत्तम\
 > कामिनां बहु मन्तव्यं सङ्कल्पप्रभवोदयम ॥१६॥
 
-> tat te 'haṁ darśayiṣyāmi
-> didṛkṣoḥ sura-sattama
-> kāmināṁ bahu mantavyaṁ
+> tat te 'haṁ darśayiṣyāmi\
+> didṛkṣoḥ sura-sattama\
+> kāmināṁ bahu mantavyaṁ\
 > saṅkalpa-prabhavodayam
 
 *tat*—esa; *te*—a ti; *aham*—Yo; *darśayiṣyāmi*—voy a mostrar; *didṛkṣoḥ*—deseoso de ver; *sura-sattama*—¡oh, el mejor de los semidioses!; *kāminām*—de personas que son muy lujuriosas; *bahu*—mucho; *mantavyam*—un objeto de adoración; *saṅkalpa*—deseos lujuriosos; *prabhava-udayam*—que hace surgir con gran fuerza.

@@ -1,9 +1,9 @@
 ### CC Antya 4.93
 
-> সনাতনে কহে হরিদাস করি’ আলিঙ্গন  ।
+> সনাতনে কহে হরিদাস করি’ আলিঙ্গন  ।\
 > “তোমার ভাগ্যের সীমা না যায় কথন ॥৯৩॥
 
-> sanātane kahe haridāsa kari' āliṅgana
+> sanātane kahe haridāsa kari' āliṅgana\
 > "tomāra bhāgyera sīmā nā yāya kathana
 
 *sanātane*—a Sanātana Gosvāmī; *kahe*—dijo; *haridāsa*—Haridāsa Ṭhākura; *kari' āliṅgana*—abrazándolo; *tomāra*—tu; *bhāgyera*—de fortuna; *sīmā*—límite; *nā yāya kathana*—no se puede describir.

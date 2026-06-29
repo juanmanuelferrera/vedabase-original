@@ -1,11 +1,11 @@
 ### SB 8.24.10
 
-> तत्र राजऋषिः कश्चिन्नाम्ना सत्यव्रतो महान
+> तत्र राजऋषिः कश्चिन्नाम्ना सत्यव्रतो महान\
 > नारायणपरोऽतपत्तपः स सलिलाशनः ॥१०॥
 
-> tatra rāja-ṛṣiḥ kaścin
-> nāmnā satyavrato mahān
-> nārāyaṇa-paro 'tapat
+> tatra rāja-ṛṣiḥ kaścin\
+> nāmnā satyavrato mahān\
+> nārāyaṇa-paro 'tapat\
 > tapaḥ sa salilāśanaḥ
 
 *tatra*—en relación con esto; *rāja-ṛṣiḥ*—un rey que, además, tenía las cualidades de una gran persona santa; *kaścit*—alguien; *nāmnā*—de nombre; *satyavrataḥ*—Satyavrata; *mahān*—una gran personalidad; *nārāyaṇa-paraḥ*—un gran devoto del Señor Nārāyaṇa, la Suprema Personalidad de Dios; *atapat*—realizó austeridades; *tapaḥ*—penitencias; *saḥ*—él; *salila-āśanaḥ*—solo bebiendo agua.

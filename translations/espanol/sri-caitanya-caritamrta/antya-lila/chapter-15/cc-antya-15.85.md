@@ -1,9 +1,9 @@
 ### CC Antya 15.85
 
-> স্বরূপ-গোসাঞি যবে এই পদ গাহিলা ।
+> স্বরূপ-গোসাঞি যবে এই পদ গাহিলা ।\
 > উঠি’ প্রেমাবেশে প্রভু নাচিতে লাগিলা ॥৮৫॥
 
-> svarūpa-gosāñi yabe ei pada gāhilā
+> svarūpa-gosāñi yabe ei pada gāhilā\
 > uṭhi' premāveśe prabhu nācite lāgilā
 
 *svarūpa-gosāñi*—Svarūpa Dāmodara Gosvāmī; *yabe*—cuando; *ei*—este; *pada*—verso; *gāhilā*—cantó; *uṭhi'*—poniéndose de pie; *prema-āveśe*—en amor extático por Kṛṣṇa; *prabhu*—Śrī Caitanya Mahāprabhu; *nācite lāgilā*—comenzó a danzar.

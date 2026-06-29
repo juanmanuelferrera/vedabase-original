@@ -1,9 +1,9 @@
 ### CC Antya 7.165
 
-> চৈতন্যপ্রভুর লীলা কে বুঝিতে পারে ?
+> চৈতন্যপ্রভুর লীলা কে বুঝিতে পারে ?\
 > একলীলায় বহে গঙ্গার শত শত ধারে ॥১৬৫॥
 
-> caitanya-prabhura līlā ke bujhite pāre?
+> caitanya-prabhura līlā ke bujhite pāre?\
 > eka-līlāya vahe gaṅgāra śata śata dhāre
 
 *caitanya-prabhura līlā*—the pastimes of Lord Śrī Caitanya Mahāprabhu; *ke*—who; *bujhite pāre*—can understand; *eka-līlāya*—in one activity; *vahe*—flow; *gaṅgāra*—of the Ganges; *śata śata dhāre*—hundreds and hundreds of branches.

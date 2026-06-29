@@ -1,18 +1,18 @@
 ### SB 4.29.30-31
 
-> क्षुत्परीतो यथा दीनः सारमेयो गृहं गृहम् ।
-> चरन्विन्दति यद्दिष्टं दण्डमोदनमेव वा ॥३०॥
-> तथा कामाशयो जीव उच्चावचपथा भ्रमन् ।
+> क्षुत्परीतो यथा दीनः सारमेयो गृहं गृहम् ।\
+> चरन्विन्दति यद्दिष्टं दण्डमोदनमेव वा ॥३०॥\
+> तथा कामाशयो जीव उच्चावचपथा भ्रमन् ।\
 > उपर्यधो वा मध्ये वा याति दिष्टं प्रियाप्रियम् ॥३१॥
 
-> kṣut-parīto yathā dīnaḥ
-> sārameyo gṛhaṁ gṛham
-> caran vindati yad-diṣṭaṁ
+> kṣut-parīto yathā dīnaḥ\
+> sārameyo gṛhaṁ gṛham\
+> caran vindati yad-diṣṭaṁ\
 > daṇḍam odanam eva vā
 
-> tathā kāmāśayo jīva
-> uccāvaca-pathā bhraman
-> upary adho vā madhye vā
+> tathā kāmāśayo jīva\
+> uccāvaca-pathā bhraman\
+> upary adho vā madhye vā\
 > yāti diṣṭaṁ priyāpriyam
 
 *kṣut-parītaḥ*—famélico; *yathā*—como; *dīnaḥ*—pobre; *sārameyaḥ*—un perro; *gṛham*—de una casa; *gṛham*—a otra casa; *caran*—vagando; *vindati*—recibe; *yat*—cuyos; *diṣṭam*—según su destino; *daṇḍam*—castigo; *odanam*—alimento; *eva*—ciertamente; *vā*—o; *tathā*—análogamente; *kāma-āśayaḥ*—tratando de satisfacer diversos deseos; *jīvaḥ*—la entidad viviente; *ucca*—alta; *avaca*—baja; *pathā*—en un sendero; *bhraman*—vagar; *upari*—alto; *adhaḥ*—bajo; *vā*—o; *madhye*—intermedio; *vā*—o; *yāti*—va hacia; *diṣṭam*—conforme al destino; *priya*—agradable; *apriyam*—desagradable.

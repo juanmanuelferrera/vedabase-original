@@ -1,11 +1,11 @@
 ### SB 3.8.17
 
-> तस्माद्युगान्तश्वसनावघूर्ण जलोर्मिचक्रात्सलिलाद्विरूढम् ।
+> तस्माद्युगान्तश्वसनावघूर्ण जलोर्मिचक्रात्सलिलाद्विरूढम् ।\
 > उपाश्रितः कञ्जमु लोकतत्त्वं नात्मानमद्धाविददादिदेवः ॥१७॥
 
-> tasmād yugānta-śvasanāvaghūrṇa-
-> jalormi-cakrāt salilād virūḍham
-> upāśritaḥ kañjam u loka-tattvaṁ
+> tasmād yugānta-śvasanāvaghūrṇa-\
+> jalormi-cakrāt salilād virūḍham\
+> upāśritaḥ kañjam u loka-tattvaṁ\
 > nātmānam addhāvidad ādi-devaḥ
 
 *tasmāt*—from there; *yuga-anta*—at the end of the millennium; *śvasana*—the air of devastation; *avaghūrṇa*—because of movement; *jala*—water; *ūrmi-cakrāt*—out of the circle of waves; *salilāt*—from the water; *virūḍham*—situated on them; *upāśritaḥ*—having the shelter of; *kañjam*—lotus flower; *u*—in astonishment; *loka-tattvam*—the mystery of creation; *na*—not; *ātmānam*—himself; *addhā*—perfectly; *avidat*—could understand; *ādi-devaḥ*—the first demigod.

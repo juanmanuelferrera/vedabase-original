@@ -1,11 +1,11 @@
 ### SB 7.10.19
 
-> यत्र यत्र च मद्भक्ताः प्रशान्ताः समदर्शिनः
+> यत्र यत्र च मद्भक्ताः प्रशान्ताः समदर्शिनः\
 > साधवः समुदाचारास्ते पूयन्तेऽपि कीकटाः ॥१९॥
 
-> yatra yatra ca mad-bhaktāḥ
-> praśāntāḥ sama-darśinaḥ
-> sādhavaḥ samudācārās
+> yatra yatra ca mad-bhaktāḥ\
+> praśāntāḥ sama-darśinaḥ\
+> sādhavaḥ samudācārās\
 > te pūyante 'pi kīkaṭāḥ
 
 *yatra yatra*—wherever and whenever; *ca*—also; *mat-bhaktāḥ*—My devotees; *praśāntāḥ*—extremely peaceful; *sama-darśinaḥ*—equipoised; *sādhavaḥ*—decorated with all good qualities; *samudācārāḥ*—equally magnanimous; *te*—all of them; *pūyante*—are purified; *api*—even; *kīkaṭāḥ*—a degraded country or the inhabitants of such a place.

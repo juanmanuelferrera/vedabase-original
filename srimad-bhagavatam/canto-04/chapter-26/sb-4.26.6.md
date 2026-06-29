@@ -1,11 +1,11 @@
 ### SB 4.26.6
 
-> तीर्थेषु प्रतिदृष्टेषु राजा मेध्यान्पशून्वने ।
+> तीर्थेषु प्रतिदृष्टेषु राजा मेध्यान्पशून्वने ।\
 > यावदर्थमलं लुब्धो हन्यादिति नियम्यते ॥६॥
 
-> tīrtheṣu pratidṛṣṭeṣu
-> rājā medhyān paśūn vane
-> yāvad-artham alaṁ lubdho
+> tīrtheṣu pratidṛṣṭeṣu\
+> rājā medhyān paśūn vane\
+> yāvad-artham alaṁ lubdho\
 > hanyād iti niyamyate
 
 *tīrtheṣu*—in holy places; *pratidṛṣṭeṣu*—according to the direction of the *Vedas*; *rājā*—a king; *medhyān*—fit for sacrifice; *paśūn*—animals; *vane*—in the forest; *yāvat*—so much as; *artham*—required; *alam*—not more than that; *lubdhaḥ*—being greedy; *hanyāt*—one may kill; *iti*—thus; *niyamyate*—it is regulated.

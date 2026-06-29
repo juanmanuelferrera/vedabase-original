@@ -1,9 +1,9 @@
 ### CC Antya 13.85
 
-> প্রভু কহে, — “গোবিন্দ, আজি রাখিলা জীবন ।
+> প্রভু কহে, — “গোবিন্দ, আজি রাখিলা জীবন ।\
 > স্ত্রী-পরশ হৈলে আমার হইত মরণ ॥৮৫॥
 
-> prabhu kahe,--"govinda, āji rākhilā jīvana
+> prabhu kahe,--"govinda, āji rākhilā jīvana\
 > strī-paraśa haile āmāra ha-ita maraṇa
 
 *prabhu kahe*—el Señor Śrī Caitanya Mahāprabhu dijo; *govinda*—Mi querido Govinda; *āji*—hoy; *rākhilā jīvana*—me salvaste la vida; *strī-paraśa haile*—si hubiera tocado a una mujer; *āmāra*—Mi; *ha-ita*—habría habido; *maraṇa*—muerte.

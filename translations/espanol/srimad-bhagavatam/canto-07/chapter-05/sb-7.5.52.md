@@ -1,11 +1,11 @@
 ### SB 7.5.52
 
-> धर्ममर्थं च कामं च नितरां चानुपूर्वशः
+> धर्ममर्थं च कामं च नितरां चानुपूर्वशः\
 > प्रह्रादायोचतू राजन्प्रश्रितावनताय च ॥५२॥
 
-> dharmam arthaṁ ca kāmaṁ ca
-> nitarāṁ cānupūrvaśaḥ
-> prahrādāyocatū rājan
+> dharmam arthaṁ ca kāmaṁ ca\
+> nitarāṁ cānupūrvaśaḥ\
+> prahrādāyocatū rājan\
 > praśritāvanatāya ca
 
 *dharmam*—deber prescrito mundano; *artham*—crecimiento económico; *ca*—** y; *kāmam*—complacencia de los sentidos; *ca*—y; *nitarām*—siempre; *ca*—y; *anupūrvaśaḥ*—conforme al orden, o de principio a fin; *prahrādāya*—a Prahlāda Mahārāja; *ūcatuḥ*—hablaron; *rājan*—¡oh, rey!; *praśrita*—que era humilde; *avanatāya*—y sumiso; *ca*—también.

@@ -1,13 +1,13 @@
 ### SB 4.14.23
 
-> वेन उवाच
-> बालिशा बत यूयं वा अधर्मे धर्ममानिनः ।
+> वेन उवाच\
+> बालिशा बत यूयं वा अधर्मे धर्ममानिनः ।\
 > ये वृत्तिदं पतिं हित्वा जारं पतिमुपासते ॥२३॥
 
-> vena uvāca
-> bāliśā bata yūyaṁ vā
-> adharme dharma-māninaḥ
-> ye vṛttidaṁ patiṁ hitvā
+> vena uvāca\
+> bāliśā bata yūyaṁ vā\
+> adharme dharma-māninaḥ\
+> ye vṛttidaṁ patiṁ hitvā\
 > jāraṁ patim upāsate
 
 *venaḥ*—King Vena; *uvāca*—replied; *bāliśāḥ*—childish; *bata*—oh; *yūyam*—all of you; *vā*—indeed; *adharme*—in irreligious principles; *dharma-māninaḥ*—accepting as religious; *ye*—all of you who; *vṛttidam*—providing maintenance; *patim*—husband; *hitvā*—giving up; *jāram*—paramour; *patim*—husband; *upāsate*—worship.

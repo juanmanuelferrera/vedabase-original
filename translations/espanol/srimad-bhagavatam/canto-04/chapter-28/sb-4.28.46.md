@@ -1,11 +1,11 @@
 ### SB 4.28.46
 
-> यदा नोपलभेताङ्घ्रावूष्माणं पत्युरर्चती ।
+> यदा नोपलभेताङ्घ्रावूष्माणं पत्युरर्चती ।\
 > आसीत्संविग्नहृदया यूथभ्रष्टा मृगी यथा ॥४६॥
 
-> yadā nopalabhetāṅghrāv
-> ūṣmāṇaṁ patyur arcatī
-> āsīt saṁvigna-hṛdayā
+> yadā nopalabhetāṅghrāv\
+> ūṣmāṇaṁ patyur arcatī\
+> āsīt saṁvigna-hṛdayā\
 > yūtha-bhraṣṭā mṛgī yathā
 
 *yadā*—cuando; *na*—no; *upalabheta*—notó; *aṅghrau*—en los pies; *ūṣmāṇam*—calor; *patyuḥ*—de su esposo; *arcatī*—mientras servía; *āsīt*—ella quedó; *saṁvigna*—llena de ansiedad; *hṛdayā*—en el corazón; *yūtha-bhraṣṭā*—sin su esposo; *mṛgī*—la cierva; *yathā*—como.

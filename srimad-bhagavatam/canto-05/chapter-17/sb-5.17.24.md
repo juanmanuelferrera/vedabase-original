@@ -1,13 +1,13 @@
 ### SB 5.17.24
 
-> यन्निर्मितां कर्ह्यपि कर्मपर्वणीं
-> मायां जनो ऽयं गुणसर्गमोहितः
-> न वेद निस्तारणयोगमञ्जसा
+> यन्निर्मितां कर्ह्यपि कर्मपर्वणीं\
+> मायां जनो ऽयं गुणसर्गमोहितः\
+> न वेद निस्तारणयोगमञ्जसा\
 > तस्मै नमस्ते विलयोदयात्मने ॥२४॥
 
-> yan-nirmitāṁ karhy api karma-parvaṇīṁ
-> māyāṁ jano 'yaṁ guṇa-sarga-mohitaḥ
-> na veda nistāraṇa-yogam añjasā
+> yan-nirmitāṁ karhy api karma-parvaṇīṁ\
+> māyāṁ jano 'yaṁ guṇa-sarga-mohitaḥ\
+> na veda nistāraṇa-yogam añjasā\
 > tasmai namas te vilayodayātmane
 
 *yat*—by whom; *nirmitām*—created; *karhi api*—at any time; *karma-parvaṇīm*—which ties the knots of fruitive activity; *māyām*—the illusory energy; *janaḥ*—a person; *ayam*—this; *guṇa-sarga-mohitaḥ*—bewildered by the three modes of material nature; *na*—not; *veda*—knows; *nistāraṇa-yogam*—the process of getting out of material entanglement; *añjasā*—soon; *tasmai*—unto Him (the Supreme); *namaḥ*—respectful obeisances; *te*—unto You; *vilaya-udaya-ātmane*—in whom everything is annihilated and from whom everything is again manifested.

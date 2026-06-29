@@ -1,9 +1,9 @@
 ### CC Madhya 25.53
 
-> ছয়ের ছয় মত ব্যাস কৈলা আবর্তন ।
+> ছয়ের ছয় মত ব্যাস কৈলা আবর্তন ।\
 > সেই সব সূত্র লঞা ‘বেদান্ত’-বর্ণন ॥৫৩॥
 
-> chayera chaya mata vyāsa kailā āvartana
+> chayera chaya mata vyāsa kailā āvartana\
 > sei saba sūtra lañā 'vedānta'-varṇana
 
 *chayera*—of the six philosophers; *chaya mata*—six different theses; *vyāsa*—Vyāsadeva; *kailā āvartana*—analyzed fully; *sei*—that; *saba*—all; *sūtra*—the codes; *lañā*—taking; *vedānta-varṇana*—explaining the Vedānta philosophy.

@@ -1,13 +1,13 @@
 ### SB 1.16.34
 
-> यो वै ममातिभरमासुरवंशराज्ञाम्
-> अक्षौहिणीशतमपानुददात्मतन्त्रः ।
-> त्वां दुःस्थमूनपदमात्मनि पौरुषेण
+> यो वै ममातिभरमासुरवंशराज्ञाम्\
+> अक्षौहिणीशतमपानुददात्मतन्त्रः ।\
+> त्वां दुःस्थमूनपदमात्मनि पौरुषेण\
 > सम्पादयन्यदुषु रम्यमबिभ्रदङ्गम् ॥३४॥
 
-> yo vai mamātibharam āsura-vaṁśa-rājñām
-> akṣauhiṇī-śatam apānudad ātma-tantraḥ
-> tvāṁ duḥstham ūna-padam ātmani pauruṣeṇa
+> yo vai mamātibharam āsura-vaṁśa-rājñām\
+> akṣauhiṇī-śatam apānudad ātma-tantraḥ\
+> tvāṁ duḥstham ūna-padam ātmani pauruṣeṇa\
 > sampādayan yaduṣu ramyam abibhrad aṅgam
 
 *yaḥ*—He who; *vai*—certainly; *mama*—mine; *ati-bharam*—too burdensome; *āsura-vaṁśa*—unbelievers; *rājñām*—of the kings; *akṣauhiṇī*—one military division; *śatam*—hundreds of such divisions; *apānudat*—extirpated; *ātma-tantraḥ*—self-sufficient; *tvām*—unto you; *duḥstham*—put into difficulty; *ūna-padam*—devoid of strength to stand; *ātmani*—internal; *pauruṣeṇa*—by dint of energy; *sampādayan*—for executing; *yaduṣu*—in the Yadu dynasty; *ramyam*—transcendentally beautiful; *abibhrat*—accepted; *aṅgam*—body.

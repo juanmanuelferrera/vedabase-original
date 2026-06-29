@@ -1,13 +1,13 @@
 ### SB 3.13.34
 
-> ऋषय ऊचुः
-> जितं जितं तेऽजित यज्ञभावन त्रयीं तनुं स्वां परिधुन्वते नमः ।
+> ऋषय ऊचुः\
+> जितं जितं तेऽजित यज्ञभावन त्रयीं तनुं स्वां परिधुन्वते नमः ।\
 > यद्रोमगर्तेषु निलिल्युरद्धयस्तस्मै नमः कारणसूकराय ते ॥३४॥
 
-> ṛṣaya ūcuḥ
-> jitaṁ jitaṁ te 'jita yajña-bhāvana
-> trayīṁ tanuṁ svāṁ paridhunvate namaḥ
-> yad-roma-garteṣu nililyur addhayas
+> ṛṣaya ūcuḥ\
+> jitaṁ jitaṁ te 'jita yajña-bhāvana\
+> trayīṁ tanuṁ svāṁ paridhunvate namaḥ\
+> yad-roma-garteṣu nililyur addhayas\
 > tasmai namaḥ kāraṇa-sūkarāya te
 
 *ṛṣayaḥ ūcuḥ*—los glorificados sabios dijeron; *jitam*—¡toda gloria!; *jitam*—¡toda victoria!; *te*—para Ti; *ajita*—¡oh, inconquistable!; *yajña-bhāvana*—aquel a quien se comprende por medio de la ejecución de sacrificios; *trayīm*—la personificación de los *Vedas*; *tanum*—un cuerpo así; *svām*—propio; *paridhunvate*—estremeciendo; *namaḥ*—reverencias; *yat*—cuyos; *roma*—pelos; *garteṣu*—en los poros; *nililyuḥ*—sumergidos; *addhayaḥ*—los océanos; *tasmai*—a Él; *namaḥ*—ofreciendo reverencias; *kāraṇa-sūkarāya*—a la forma de cerdo adoptada por motivos; *te*—a Ti.

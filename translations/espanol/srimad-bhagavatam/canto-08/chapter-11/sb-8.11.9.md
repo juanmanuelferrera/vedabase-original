@@ -1,11 +1,11 @@
 ### SB 8.11.9
 
-> न वयं मन्यमानानामात्मानं तत्र साधनम
+> न वयं मन्यमानानामात्मानं तत्र साधनम\
 > गिरो वः साधुशोच्यानां गृह्णीमो मर्मताडनाः ॥९॥
 
-> na vayaṁ manyamānānām
-> ātmānaṁ tatra sādhanam
-> giro vaḥ sādhu-śocyānāṁ
+> na vayaṁ manyamānānām\
+> ātmānaṁ tatra sādhanam\
+> giro vaḥ sādhu-śocyānāṁ\
 > gṛhṇīmo marma-tāḍanāḥ
 
 *na*—no; *vayam*—nosotros; *manyamānānām*—que están considerando; *ātmānam*—el ser; *tatra*—en la victoria o en la derrota; *sādhanam*—la causa; *giraḥ*—las palabras; *vaḥ*—de ustedes; *sādhu-śocyānām*—que son dignos de la compasión de las personas santas; *gṛhṇīmaḥ*—aceptamos; *marma-tāḍanāḥ*—que hacen daño en el corazón.

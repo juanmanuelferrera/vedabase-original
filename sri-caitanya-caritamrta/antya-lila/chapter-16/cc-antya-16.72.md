@@ -1,9 +1,9 @@
 ### CC Antya 16.72
 
-> মনে মনে জপে, মুখে না করে আখ্যান ।
+> মনে মনে জপে, মুখে না করে আখ্যান ।\
 > এই ইহার মনঃকথা — করি অনুমান ।।” ॥ ৭২ ॥
 
-> mane mane jape, mukhe nā kare ākhyāna
+> mane mane jape, mukhe nā kare ākhyāna\
 > ei ihāra manaḥ-kathā—kari anumāna"
 
 *mane mane*—within the mind; *jape*—chants; *mukhe*—in the mouth; *nā kare ākhyāna*—does not express; *ei*—this; *ihāra*—his; *manaḥ-kathā*—intention; *kari anumāna*—I guess.

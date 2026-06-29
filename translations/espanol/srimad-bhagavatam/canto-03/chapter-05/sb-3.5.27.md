@@ -1,11 +1,11 @@
 ### SB 3.5.27
 
-> ततोऽभवन्महत्तत्त्वमव्यक्तात्कालचोदितात् ।
+> ततोऽभवन्महत्तत्त्वमव्यक्तात्कालचोदितात् ।\
 > विज्ञानात्मात्मदेहस्थं विश्वं व्यञ्जंस्तमोनुदः ॥२७॥
 
-> tato 'bhavan mahat-tattvam
-> avyaktāt kāla-coditāt
-> vijñānātmātma-deha-sthaṁ
+> tato 'bhavan mahat-tattvam\
+> avyaktāt kāla-coditāt\
+> vijñānātmātma-deha-sthaṁ\
 > viśvaṁ vyañjaṁs tamo-nudaḥ
 
 *tataḥ*—después; *abhavat*—empezó a existir; *mahat*—supremo; *tattvam*—agregado total; *avyaktāt*—de lo no manifestado; *kāla-coditāt*—por la interacción del tiempo; *vijñāna-ātmā*—bondad pura; *ātma-deha-stham*—situado sobre el ser corporal; *viśvam*—universos completos; *vyañjan*—manifestando; *tamaḥ-nudaḥ*—la luz suprema.

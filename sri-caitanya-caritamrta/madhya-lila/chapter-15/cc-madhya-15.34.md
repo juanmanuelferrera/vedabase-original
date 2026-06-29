@@ -1,9 +1,9 @@
 ### CC Madhya 15.34
 
-> ‘কাহাঁরে রাব্ণা’ প্রভু কহে ক্রোধাবেশে ।
+> ‘কাহাঁরে রাব্ণা’ প্রভু কহে ক্রোধাবেশে ।\
 > ‘জগন্মাতা হরে পাপী, মারিমু সবংশে ।।’ ॥৩৪॥
 
-> 'kāhāṅre rāvṇā' prabhu kahe krodhāveśe
+> 'kāhāṅre rāvṇā' prabhu kahe krodhāveśe\
 > jagan-mātā hare pāpī, mārimu savaṁśe'
 
 *kāhāṅre rāvṇā*—where is the rascal Rāvaṇa; *prabhu*—Śrī Caitanya Mahāprabhu; *kahe*—says; *krodha-āveśe*—in great anger; *jagat-mātā*—the mother of the universe; *hare*—kidnaps; *pāpī*—sinful; *mārimu*—I shall kill; *sa-vaṁśe*—with all his family.

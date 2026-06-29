@@ -1,11 +1,11 @@
 ### SB 4.2.5
 
-> तत्र प्रविष्टमृषयो दृष्ट्वार्कमिव रोचिषा ।
+> तत्र प्रविष्टमृषयो दृष्ट्वार्कमिव रोचिषा ।\
 > भ्राजमानं वितिमिरं कुर्वन्तं तन्महत्सदः ॥५॥
 
-> tatra praviṣṭam ṛṣayo
-> dṛṣṭvārkam iva rociṣā
-> bhrājamānaṁ vitimiraṁ
+> tatra praviṣṭam ṛṣayo\
+> dṛṣṭvārkam iva rociṣā\
+> bhrājamānaṁ vitimiraṁ\
 > kurvantaṁ tan mahat sadaḥ
 
 *tatra*—allí; *praviṣṭam*—habiendo entrado; *ṛṣayaḥ*—los sabios; *dṛṣṭvā*—viendo; *arkam*—el sol; *iva*—tal como; *rociṣā*—con lustre; *bhrājamānam*—brillar; *vitimiram*—libre de oscuridad; *kurvantam*—haciendo; *tat*—aquella; *mahat*—gran; *sadaḥ*—asamblea.

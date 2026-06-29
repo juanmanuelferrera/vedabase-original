@@ -1,9 +1,9 @@
 ### CC Adi 17.27
 
-> তরুসম সহিষ্ণুতা বৈষ্ণব করিবে ।
+> তরুসম সহিষ্ণুতা বৈষ্ণব করিবে ।\
 > ভর্ৎসন-তাড়নে কাকে কিছু না বলিবে ॥২৭॥
 
-> taru-sama sahiṣṇutā vaiṣṇava karibe
+> taru-sama sahiṣṇutā vaiṣṇava karibe\
 > bhartsana-tāḍane kāke kichu nā balibe
 
 *taru-sama*—like a tree; *sahiṣṇutā*—forbearance; *vaiṣṇava*—devotee; *karibe*—should practice; *bhartsana*—rebuking; *tāḍane*—chastising; *kāke*—unto anyone; *kichu*—something; *nā*—not; *balibe*—will utter.

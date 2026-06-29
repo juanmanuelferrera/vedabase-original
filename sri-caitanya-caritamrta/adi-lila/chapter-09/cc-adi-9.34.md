@@ -1,9 +1,9 @@
 ### CC Adi 9.34
 
-> একলা মালাকার আমি কাহাঁ কাহাঁ যাব ।
+> একলা মালাকার আমি কাহাঁ কাহাঁ যাব ।\
 > একলা বা কত ফল পাড়িয়া বিলাব ॥৩৪॥
 
-> ekalā mālākāra āmi kāhāṅ kāhāṅ yāba
+> ekalā mālākāra āmi kāhāṅ kāhāṅ yāba\
 > ekalā vā kata phala pāḍiyā vilāba
 
 *ekalā*—alone; *mālā-kāra*—gardener; *āmi*—I am; *kāhāṅ*—where; *kāhāṅ*—where; *yāba*—shall I go; *ekalā*—alone; *vā*—or; *kata*—how many; *phala*—fruits; *pāḍiyā*—picking; *vilāba*—shall distribute.

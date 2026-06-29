@@ -1,9 +1,9 @@
 ### CC Madhya 12.217
 
-> স্বেদ, কম্প, অশ্রু-জল বহে সর্বক্ষণ ।
+> স্বেদ, কম্প, অশ্রু-জল বহে সর্বক্ষণ ।\
 > দর্শনের লোভে প্রভু করে সম্বরণ ॥২১৭॥
 
-> sveda, kampa, aśru-jala vahe sarva-kṣaṇa
+> sveda, kampa, aśru-jala vahe sarva-kṣaṇa\
 > darśanera lobhe prabhu kare saṁvaraṇa
 
 *sveda*—transpiración; *kampa*—temblor; *aśru-jala*—lágrimas de los ojos; *vahe*—fluían; *sarva-kṣaṇa*—en todo momento; *darśanera*—de contemplar; *lobhe*—por la avidez; *prabhu*—Śrī Caitanya Mahāprabhu; *kare*—hace; *saṁvaraṇa*—contención.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.241
 
-> গঙ্গাতীর-পথে লঞা প্রয়াগে আইলা ।
+> গঙ্গাতীর-পথে লঞা প্রয়াগে আইলা ।\
 > শ্রীরূপ আসি’ প্রভুকে তথাই মিলিলা ॥২৪১॥
 
-> gaṅgā-tīra-pathe lañā prayāge āilā
+> gaṅgā-tīra-pathe lañā prayāge āilā\
 > śrī-rūpa āsi' prabhuke tathāi mililā
 
 *gaṅgā-tīra-pathe*—por el camino a la orilla del Ganges; *lañā*—tomando; *prayāge*—en Allahabad; *āilā*—llegó; *śrī-rūpa*—llamado Śrī Rūpa; *āsi'*—llegando allí; *prabhuke*—al Señor Śrī Caitanya Mahāprabhu; *tathāi*—allí; *mililā*—se encontró con.

@@ -1,11 +1,11 @@
 ### SB 6.5.42
 
-> यन्नस्त्वं कर्मसन्धानां साधूनां गृहमेधिनाम
+> यन्नस्त्वं कर्मसन्धानां साधूनां गृहमेधिनाम\
 > कृतवानसि दुर्मर्षं विप्रियं तव मर्षितम ॥४२॥
 
-> yan nas tvaṁ karma-sandhānāṁ
-> sādhūnāṁ gṛhamedhinām
-> kṛtavān asi durmarṣaṁ
+> yan nas tvaṁ karma-sandhānāṁ\
+> sādhūnāṁ gṛhamedhinām\
+> kṛtavān asi durmarṣaṁ\
 > vipriyaṁ tava marṣitam
 
 *yat*—which; *naḥ*—unto us; *tvam*—you; *karma-sandhānām*—who strictly follow the fruitive ritualistic ceremonies according to Vedic injunctions; *sādhūnām*—who are honest (because we honestly seek elevated social standards and bodily comfort); *gṛha-medhinām*—although situated with a wife and children; *kṛtavān asi*—have created; *durmarṣam*—unbearable; *vipriyam*—wrong; *tava*—your; *marṣitam*—forgiven.

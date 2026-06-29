@@ -1,13 +1,13 @@
 ### CC Madhya 2.79
 
-> লীলাশুক মর্ত্যজন, তাঁর হয় ভাবোদ্গম,
-> ঈশ্বরে সে — কি ইহা বিস্ময় ৷
-> তাহে মুখ্য-রসাশ্রয়, হইয়াছেন মহাশয়,
+> লীলাশুক মর্ত্যজন, তাঁর হয় ভাবোদ্গম,\
+> ঈশ্বরে সে — কি ইহা বিস্ময় ৷\
+> তাহে মুখ্য-রসাশ্রয়, হইয়াছেন মহাশয়,\
 > তাতে হয় সর্বভাবোদয় ৷৷ ৭৯ ৷৷ ॥৭৯॥
 
-> līlāśuka--martya-jana, tāṅra haya bhāvodgama,
-> īśvare se--ki ihā vismaya
-> tāhe mukhya-rasāśraya, ha-iyāchena mahāśaya,
+> līlāśuka--martya-jana, tāṅra haya bhāvodgama,\
+> īśvare se--ki ihā vismaya\
+> tāhe mukhya-rasāśraya, ha-iyāchena mahāśaya,\
 > tāte haya sarva-bhāvodaya
 
 *līlā-śuka*—Bilvamaṅgala Ṭhākura; *martya-jana*—una persona de este mundo; *tāṅra*—de él; *haya*—hay; *bhāva-udgama*—manifestación de diferentes éxtasis; *īśvare*—en el Señor Supremo; *se*—eso; *ki*—¿qué?; *ihā*—aquí; *vismaya*—asombroso; *tāhe*—en eso; *mukhya*—principal; *rasa-āśraya*—melosidades; *ha-iyāchena*—se ha convertido; *mahā-āśaya*—la gran personalidad Śrī Caitanya Mahāprabhu; *tāte*—por lo tanto; *haya*—hay; *sarva-bhāva-udaya*—una manifestación de todos los éxtasis.

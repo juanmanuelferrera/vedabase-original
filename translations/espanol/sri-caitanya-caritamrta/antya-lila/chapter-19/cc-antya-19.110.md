@@ -1,9 +1,9 @@
 ### CC Antya 19.110
 
-> শ্রদ্ধা করি, শুন ইহা, শুনিতে মহাসুখ ।
+> শ্রদ্ধা করি, শুন ইহা, শুনিতে মহাসুখ ।\
 > খণ্ডিবে আধ্যাত্মিকাদি কুতর্কাদি-দুঃখ ॥১১০॥
 
-> śraddhā kari, śuna ihā, śunite mahā-sukha
+> śraddhā kari, śuna ihā, śunite mahā-sukha\
 > khaṇḍibe ādhyātmikādi kutarkādi-duḥkha
 
 *śraddhā kari*—con gran fe; *śuna*—escuchad; *ihā*—todos estos temas; *śunite*—incluso escuchar; *mahā-sukha*—gran placer; *khaṇḍibe*—destruirá; *ādhyātmika-ādi*—todas las miserias debidas al cuerpo, la mente y demás; *kutarka-ādi-duḥkha*—y las condiciones miserables que surgen del uso de argumentos falsos.

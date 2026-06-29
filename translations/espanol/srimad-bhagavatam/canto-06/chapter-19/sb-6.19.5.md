@@ -1,11 +1,11 @@
 ### SB 6.19.5
 
-> यथा त्वं कृपया भूत्या तेजसा महिमौजसा
+> यथा त्वं कृपया भूत्या तेजसा महिमौजसा\
 > जुष्ट ईश गुणैः सर्वैस्ततोऽसि भगवान्प्रभुः ॥५॥
 
-> yathā tvaṁ kṛpayā bhūtyā
-> tejasā mahimaujasā
-> juṣṭa īśa guṇaiḥ sarvais
+> yathā tvaṁ kṛpayā bhūtyā\
+> tejasā mahimaujasā\
+> juṣṭa īśa guṇaiḥ sarvais\
 > tato 'si bhagavān prabhuḥ
 
 *yathā*—como; *tvam*—Tú; *kṛpayā*—con misericordia; *bhūtyā*—con opulencias; *tejasā*—con poder; *mahima-ojasā*—con gloria y fuerza; *juṣṭaḥ*—dotado de; *īśa*—¡oh, mi Señor!; *guṇaiḥ*—con cualidades trascendentales; *sarvaiḥ*—todas; *tataḥ*—por lo tanto; *asi*—Tú eres; *bhagavān*—la Suprema Personalidad de Dios; *prabhuḥ*—el amo y señor.

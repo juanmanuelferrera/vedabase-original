@@ -1,9 +1,9 @@
 ### CC Adi 16.32
 
-> ব্যাকরণ-মধ্যে, জানি, পড়াহ কলাপ ।
+> ব্যাকরণ-মধ্যে, জানি, পড়াহ কলাপ ।\
 > শুনিলুঁ ফাঁকিতে তোমার শিষ্যের সংলাপ ॥৩২॥
 
-> vyākaraṇa-madhye, jāni, paḍāha kalāpa
+> vyākaraṇa-madhye, jāni, paḍāha kalāpa\
 > śuniluṅ phāṅkite tomāra śiṣyera saṁlāpa
 
 *vyākaraṇa-madhye*—entre las gramáticas; *jāni*—entiendo; *paḍāha*—Tú enseñas; *kalāpa*—la Kalāpa-vyākaraṇa; *śuniluṅ*—he oído; *phāṅkite*—en el engañoso malabarismo de palabras; *tomāra*—Tus; *śiṣyera*—de los discípulos; *saṁlāpa*—el conocimiento específico.

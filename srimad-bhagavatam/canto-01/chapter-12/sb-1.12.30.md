@@ -1,11 +1,11 @@
 ### SB 1.12.30
 
-> स एष लोके विख्यातः परीक्षिदिति यत्प्रभुः ।
+> स एष लोके विख्यातः परीक्षिदिति यत्प्रभुः ।\
 > पूर्वं दृष्टमनुध्यायन्परीक्षेत नरेष्विह ॥३०॥
 
-> sa eṣa loke vikhyātaḥ
-> parīkṣid iti yat prabhuḥ
-> pūrvaṁ dṛṣṭam anudhyāyan
+> sa eṣa loke vikhyātaḥ\
+> parīkṣid iti yat prabhuḥ\
+> pūrvaṁ dṛṣṭam anudhyāyan\
 > parīkṣeta nareṣv iha
 
 *saḥ*—he; *eṣaḥ*—in this; *loke*—world; *vikhyātaḥ*—famous; *parīkṣit*—one who examines; *iti*—thus; *yat*—what; *prabhuḥ*—O my King; *pūrvam*—before; *dṛṣṭam*—seen; *anudhyāyan*—constantly contemplating; *parīkṣeta*—shall examine; *nareṣu*—unto every man; *iha*—here.

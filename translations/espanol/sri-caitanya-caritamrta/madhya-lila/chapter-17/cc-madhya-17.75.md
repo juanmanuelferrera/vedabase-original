@@ -1,9 +1,9 @@
 ### CC Madhya 17.75
 
-> কৃপার সমুদ্র, দীন-হীনে দয়াময় ।
+> কৃপার সমুদ্র, দীন-হীনে দয়াময় ।\
 > কৃষ্ণকৃপা বিনা কোন ‘সুখ’ নাহি হয় ।।” ॥ ৭৫ ॥
 
-> kṛpāra samudra, dīna-hīne dayāmaya
+> kṛpāra samudra, dīna-hīne dayāmaya\
 > kṛṣṇa-kṛpā vinā kona 'sukha' nāhi haya"
 
 *kṛpāra samudra*—océano de misericordia; *dīna-hīne*—con los pobres y caídos; *dayā-maya*—muy misericordioso; *kṛṣṇa-kṛpā*—la misericordia de Kṛṣṇa; *vinā*—sin; *kona*—alguna; *sukha*—felicidad; *nāhi haya*—no existe.

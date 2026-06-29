@@ -1,11 +1,11 @@
 ### SB 9.7.13
 
-> पशोर्निपतिता दन्ता यजस्वेत्याह सोऽब्रवीत
+> पशोर्निपतिता दन्ता यजस्वेत्याह सोऽब्रवीत\
 > यदा पशोः पुनर्दन्ता जायन्तेऽथ पशुः शुचिः ॥१३॥
 
-> paśor nipatitā dantā
-> yajasvety āha so 'bravīt
-> yadā paśoḥ punar dantā
+> paśor nipatitā dantā\
+> yajasvety āha so 'bravīt\
+> yadā paśoḥ punar dantā\
 > jāyante 'tha paśuḥ śuciḥ
 
 *paśoḥ*—of the animal; *nipatitāḥ*—have fallen out; *dantāḥ*—the teeth; *yajasva*—now sacrifice him; *iti*—thus; *āha*—said (Varuṇa); *saḥ*—he, Hariścandra; *abravīt*—replied; *yadā*—when; *paśoḥ*—of the animal; *punaḥ*—again; *dantāḥ*—the teeth; *jāyante*—grow; *atha*—then; *paśuḥ*—the animal; *śuciḥ*—is purified for being sacrificed.

@@ -1,11 +1,11 @@
 ### SB 3.24.36
 
-> एतन्मे जन्म लोकेऽस्मिन्मुमुक्षूणां दुराशयात् ।
+> एतन्मे जन्म लोकेऽस्मिन्मुमुक्षूणां दुराशयात् ।\
 > प्रसङ्ख्यानाय तत्त्वानां सम्मतायात्मदर्शने ॥३६॥
 
-> etan me janma loke 'smin
-> mumukṣūṇāṁ durāśayāt
-> prasaṅkhyānāya tattvānāṁ
+> etan me janma loke 'smin\
+> mumukṣūṇāṁ durāśayāt\
+> prasaṅkhyānāya tattvānāṁ\
 > sammatāyātma-darśane
 
 *etat*—this; *me*—My; *janma*—birth; *loke*—in the world; *asmin*—in this; *mumukṣūṇām*—by those great sages seeking liberation; *durāśayāt*—from unnecessary material desires; *prasaṅkhyānāya*—for explaining; *tattvānām*—of the truths; *sammatāya*—which is highly esteemed; *ātma-darśane*—in self-realization.

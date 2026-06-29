@@ -1,9 +1,9 @@
 ### CC Madhya 3.161
 
-> দিনে আচার্যের প্রীতি — প্রভুর দর্শন ।
+> দিনে আচার্যের প্রীতি — প্রভুর দর্শন ।\
 > রাত্রে লোক দেখে প্রভুর নর্তন-কীর্তন ॥১৬১॥
 
-> dine ācāryera prīti—prabhura darśana
+> dine ācāryera prīti—prabhura darśana\
 > rātre loka dekhe prabhura nartana-kīrtana
 
 *dine*—during the daytime; *ācāryera prīti*—the loving affairs of Adtvaita Ācārya; *prabhura darśana*—the sight of Lord Caitanya Mahāprabhu; *rātre*—at night; *loka*—all the people; *dekhe*—see; *prabhura*—of the Lord; *nartana-kīrtana*—dancing and chanting.

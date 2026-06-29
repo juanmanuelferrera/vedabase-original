@@ -1,9 +1,9 @@
 ### CC Madhya 8.160
 
-> প্রেমের পরম-সার ‘মহাভাব’ জানি ।
+> প্রেমের পরম-সার ‘মহাভাব’ জানি ।\
 > সেই মহাভাবরূপা রাধা-ঠাকুরাণী ॥১৬০॥
 
-> premera parama-sāra 'mahābhāva' jāni
+> premera parama-sāra 'mahābhāva' jāni\
 > sei mahābhāva-rūpā rādhā-ṭhākurāṇī
 
 *premera*—of love of Godhead; *parama-sāra*—the essential part; *mahā-bhāva*—the transcendental ecstasy of the name *mahābhāva*; *jāni*—we know; *sei*—that; *mahā-bhāva-rūpā*—the personification of the *mahābhāva* transcendental ecstasy; *rādhā-ṭhākurāṇī*—Śrīmatī Rādhārāṇī.

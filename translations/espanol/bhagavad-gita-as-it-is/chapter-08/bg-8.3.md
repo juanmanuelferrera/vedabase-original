@@ -1,13 +1,13 @@
 ### Bg 8.3
 
-> श्रीभगवानुवाच ।
-> अक्षरं ब्रह्म परमं स्वभावोऽध्यात्ममुच्यते ।
+> श्रीभगवानुवाच ।\
+> अक्षरं ब्रह्म परमं स्वभावोऽध्यात्ममुच्यते ।\
 > भूतभावोद्भवकरो विसर्गः कर्मसंज्ञितः ॥३॥
 
-> śrī bhagavān uvāca
-> akṣaraṁ brahma paramaṁ
-> svabhāvo'dhyātmam ucyate
-> bhūta-bhāvodbhava-karo
+> śrī bhagavān uvāca\
+> akṣaraṁ brahma paramaṁ\
+> svabhāvo'dhyātmam ucyate\
+> bhūta-bhāvodbhava-karo\
 > visargaḥ karma-saṁjñitaḥ
 
 *srī bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *akṣaram*—indes-tructible; *brahma*—Brahman; *paramam*—trascendental; *svabhāvaḥ*—naturaleza eterna; *adhyātmam*—el yo; *ucyate*—se llama; *bhūta-bhāva-udbhava-karaḥ*—acciones que producen los cuerpos materiales de las entidades vivientes; *visargaḥ*—creación; *karma*—actividades fruitivas; *saṁjñitaḥ*—es llamado.

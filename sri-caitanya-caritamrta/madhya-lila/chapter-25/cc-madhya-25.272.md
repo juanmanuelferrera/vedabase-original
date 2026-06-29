@@ -1,11 +1,11 @@
 ### CC Madhya 25.272
 
-> ভক্তগণ, শুন মোর দৈন্য-বচন ।
-> তোমা-সবার পদধূলি, অঙ্গে বিভূষণ করি’,
+> ভক্তগণ, শুন মোর দৈন্য-বচন ।\
+> তোমা-সবার পদধূলি, অঙ্গে বিভূষণ করি’,\
 > কিছু মুঞি করোঁ নিবেদন ।। ২৭২ ।। ধ্রু ।। ॥২৭২॥
 
-> bhakta-gaṇa, śuna mora dainya-vacana
-> tomā-sabāra pada-dhūli, aṅge vibhūṣaṇa kari',
+> bhakta-gaṇa, śuna mora dainya-vacana\
+> tomā-sabāra pada-dhūli, aṅge vibhūṣaṇa kari',\
 > kichu muñi karoṅ nivedana
 
 *bhakta-gaṇa*—O devotees; *śuna*—please hear; *mora*—my; *dainya-vacana*—humble submission; *tomā-sabāra*—of all of you; *pada-dhūli*—the dust of the feet; *aṅge*—on my body; *vibhūṣaṇa kari'*—taking as ornaments; *kichu*—something; *muñi*—I; *karoṅ nivedana*—wish to submit.

@@ -1,14 +1,14 @@
 ### CC Antya 1.3-4
 
-> শ্রীরূপ, সনাতন, ভট্ট-রঘুনাথ ।
-> শ্রীজীব, গোপালভট্ট, দাস-রঘুনাথ ॥৩॥
-> এই ছয় গুরুর করোঁ চরণ বন্দন ।
+> শ্রীরূপ, সনাতন, ভট্ট-রঘুনাথ ।\
+> শ্রীজীব, গোপালভট্ট, দাস-রঘুনাথ ॥৩॥\
+> এই ছয় গুরুর করোঁ চরণ বন্দন ।\
 > যাহা হৈতে বিঘ্ননাশ, অভীষ্ট-পূরণ ॥৪॥
 
-> śrī-rūpa, sanātana bhaṭṭa-raghunātha
+> śrī-rūpa, sanātana bhaṭṭa-raghunātha\
 > śrī-jīva, gopāla-bhaṭṭa, dāsa-raghunātha
 
-> ei chaya gurura karoṅ caraṇa vandana
+> ei chaya gurura karoṅ caraṇa vandana\
 > yāhā haite vighna-nāśa, abhīṣṭa-pūraṇa
 
 *śrī-rūpa*—Śrī Rūpa; *sanātana*—Sanātana; *bhaṭṭa-raghunātha*—Bhaṭṭa Raghunātha; *śrī-jīva*—Śrī Jīva; *gopāla-bhaṭṭa*—Gopāla Bhaṭṭa; *dāsa-raghunātha*—Dāsa Raghunātha; *ei chaya*—estos seis; *gurura*—de maestros espirituales; *karoṅ*—ofrezco; *caraṇa vandana*—oraciones a los pies de loto; *yāhā haite*—de los cuales; *vighna-nāśa*—destrucción de todos los obstáculos; *abhīṣṭa-pūraṇa*—cumplimiento de los deseos.

@@ -1,11 +1,11 @@
 ### SB 4.8.10
 
-> तथा चिकीर्षमाणं तं सपत्न्यास्तनयं ध्रुवम् ।
+> तथा चिकीर्षमाणं तं सपत्न्यास्तनयं ध्रुवम् ।\
 > सुरुचिः शृण्वतो राज्ञः सेर्ष्यमाहातिगर्विता ॥१०॥
 
-> tathā cikīrṣamāṇaṁ taṁ
-> sapatnyās tanayaṁ dhruvam
-> suruciḥ śṛṇvato rājñaḥ
+> tathā cikīrṣamāṇaṁ taṁ\
+> sapatnyās tanayaṁ dhruvam\
+> suruciḥ śṛṇvato rājñaḥ\
 > serṣyam āhātigarvitā
 
 *tathā*—thus; *cikīrṣamāṇam*—the child Dhruva, who was trying to get up; *tam*—unto him; *sa-patnyāḥ*—of her co-wife (Sunīti); *tanayam*—son; *dhruvam*—Dhruva; *suruciḥ*—Queen Suruci; *śṛṇvataḥ*—while hearing; *rājñaḥ*—of the King; *sa-īrṣyam*—with envy; *āha*—said; *atigarvitā*—being too proud.

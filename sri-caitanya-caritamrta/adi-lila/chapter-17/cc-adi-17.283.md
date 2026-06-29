@@ -1,9 +1,9 @@
 ### CC Adi 17.283
 
-> নিভৃতনিকুঞ্জে বসি’ দেখে রাধার বাট ।
+> নিভৃতনিকুঞ্জে বসি’ দেখে রাধার বাট ।\
 > অন্বেষিতে আইলা তাহাঁ গোপিকার ঠাট ॥২৮৩॥
 
-> nibhṛta-nikuñje vasi' dekhe rādhāra bāṭa
+> nibhṛta-nikuñje vasi' dekhe rādhāra bāṭa\
 > anveṣite āilā tāhāṅ gopikāra ṭhāṭa
 
 *nibhṛta*—solitary; *nikuñje*—in a bush; *vasi'*—sitting; *dekhe*—waiting to see; *rādhāra*—of Śrīmatī Rādhārāṇī; *bāṭa*—the passing; *anveṣite*—while searching; *āilā*—came; *tāhāṅ*—there; *gopikāra*—of the *gopīs*; *ṭhāṭa*—the phalanx.

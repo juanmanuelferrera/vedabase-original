@@ -1,9 +1,9 @@
 ### CC Antya 4.100
 
-> avatāra-kārya prabhura—nāma-pracāre
+> avatāra-kārya prabhura—nāma-pracāre\
 > sei nija-kārya prabhu karena tomāra dvāre
 
-> avatāra-kārya prabhura--nāma-pracāre
+> avatāra-kārya prabhura--nāma-pracāre\
 > sei nija-kārya prabhu karena tomāra dvāre
 
 *avatāra-kārya*—misión de la encarnación; *prabhura*—de Śrī Caitanya Mahāprabhu; *nāma-pracāre*—difundir la importancia del santo nombre del Señor; *sei*—esa; *nija-kārya*—misión de Su vida; *prabhu*—Śrī Caitanya Mahāprabhu; *karena*—realiza; *tomāra dvāre*—a través de ti.

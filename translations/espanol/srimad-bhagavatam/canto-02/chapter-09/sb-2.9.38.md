@@ -1,13 +1,13 @@
 ### SB 2.9.38
 
-> श्रीशुक उवाच
-> सम्प्रदिश्यैवमजनो जनानां परमेष्ठिनम् ।
+> श्रीशुक उवाच\
+> सम्प्रदिश्यैवमजनो जनानां परमेष्ठिनम् ।\
 > पश्यतस्तस्य तद्रूपमात्मनो न्यरुणद्धरिः ॥३८॥
 
-> śrī-śuka uvāca
-> sampradiśyaivam ajano
-> janānāṁ parameṣṭhinam
-> paśyatas tasya tad rūpam
+> śrī-śuka uvāca\
+> sampradiśyaivam ajano\
+> janānāṁ parameṣṭhinam\
+> paśyatas tasya tad rūpam\
 > ātmano nyaruṇad dhariḥ
 
 *śrī-śukaḥ uvāca*—Śrīla Śukadeva Gosvāmī dijo; *sampradiśya*—instruyendo plenamente a Brahmājī; *evam*—así pues; *ajanaḥ*—el Señor Supremo; *janānām*—de las entidades vivientes; *parameṣṭhinam*—al líder supremo, Brahmā; *paśyataḥ*—mientras él veía; *tasya*—Su; *tat rūpam*—esa forma trascendental; *ātmanaḥ*—del Absoluto; *nyaruṇat*—desapareció; *hariḥ*—el Señor, la Personalidad de Dios.

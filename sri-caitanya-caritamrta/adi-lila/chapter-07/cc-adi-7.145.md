@@ -1,9 +1,9 @@
 ### CC Adi 7.145
 
-> প্রেমা হৈতে কৃষ্ণ হয় নিজ ভক্তবশ ।
+> প্রেমা হৈতে কৃষ্ণ হয় নিজ ভক্তবশ ।\
 > প্রেমা হৈতে পায় কৃষ্ণের সেবা-সুখরস ॥১৪৫॥
 
-> premā haite kṛṣṇa haya nija bhakta-vaśa
+> premā haite kṛṣṇa haya nija bhakta-vaśa\
 > premā haite pāya kṛṣṇera sevā-sukha-rasa
 
 *premā*—love of Kṛṣṇa; *haite*—from; *kṛṣṇa*—the Supreme Personality of Godhead; *haya*—becomes; *nija*—His own; *bhakta-vaśa*—submissive to devotees; *premā*—love of God; *haite*—from; *pāya*—he gets; *kṛṣṇera*—of Lord Kṛṣṇa; *sevā-sukha-rasa*—the mellow of devotional service.

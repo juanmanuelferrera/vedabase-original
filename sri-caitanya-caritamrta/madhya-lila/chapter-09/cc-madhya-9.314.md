@@ -2,7 +2,7 @@
 
 > শূন্যস্থল দেখি’ লোকের হৈল চমৎকার । লোকে কহে, এ সন্ন্যাসী — রাম-অবতার । সশরীরে তাল গেল শ্রীবৈকুণ্ঠ-ধাম । ঐছে শক্তি কার হয়, বিনা এক রাম ॥৩১৪॥
 
-> śūnya-sthala dekhi' lokera haila camatkāra
+> śūnya-sthala dekhi' lokera haila camatkāra\
 > loke kahe, e sannyāsī—rāma-avatāra
 
 *śūnya-sthala*—the vacant place; *dekhi'*—seeing; *lokera*—of the people in general; *haila*—there was; *camatkāra*—astonishment; *loke kahe*—all people began to say; *e sannyāsī*—this *sannyāsī*; *rāma-avatāra*—incarnation of Lord Rāmacandra.

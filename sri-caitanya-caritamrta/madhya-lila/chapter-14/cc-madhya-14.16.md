@@ -1,9 +1,9 @@
 ### CC Madhya 14.16
 
-> এই দেখ, — চৈতন্যের কৃপা-মহাবল ।
+> এই দেখ, — চৈতন্যের কৃপা-মহাবল ।\
 > তার অনুসন্ধান বিনা করায় সফল ॥১৬॥
 
-> ei dekha,-caitanyera kṛpā-mahābala
+> ei dekha,-caitanyera kṛpā-mahābala\
 > tāra anusandhāna vinā karāya saphala
 
 *ei*—this; *dekha*—just see; *caitanyera*—of Śrī Caitanya Mahāprabhu; *kṛpa-mahā-bala*—how greatly powerful is the mercy; *tāra anusandhāna*—inquiring about him; *vinā*—without; *karāya*—He makes; *sa-phala*—successful.

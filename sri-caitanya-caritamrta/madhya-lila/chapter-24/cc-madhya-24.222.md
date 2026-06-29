@@ -1,9 +1,9 @@
 ### CC Madhya 24.222
 
-> ‘নির্গ্রন্থাঃ’ হঞা ইহাঁ ‘অপি’ — নির্ধারণে ।
+> ‘নির্গ্রন্থাঃ’ হঞা ইহাঁ ‘অপি’ — নির্ধারণে ।\
 > ‘রামশ্চ কৃষ্ণশ্চ’ যথা বিহরয়ে বনে ॥২২২॥
 
-> 'nirgranthāḥ' hañā ihāṅ 'api'—nirdhāraṇe
+> 'nirgranthāḥ' hañā ihāṅ 'api'—nirdhāraṇe\
 > 'rāmaś ca kṛṣṇaś ca' yathā viharaye vane
 
 *nirgranthāḥ hañā*—being liberated saintly persons; *ihāṅ*—here; *api*—the word *api*; *nirdhāraṇe*—in the sense of certainty; *rāmaḥ ca kṛṣṇaḥ ca*—both Rāma and Kṛṣṇa; *yathā*—as; *viharaye*—enjoy walking; *vane*—in the forest.

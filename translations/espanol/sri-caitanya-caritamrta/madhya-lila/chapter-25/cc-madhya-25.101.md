@@ -1,11 +1,11 @@
 ### CC Madhya 25.101
 
-> আত্মাবাস্যমিদং বিশ্বং যৎ কিঞ্চিজ্জগত্যাং জগৎ ।
+> আত্মাবাস্যমিদং বিশ্বং যৎ কিঞ্চিজ্জগত্যাং জগৎ ।\
 > তেন ত্যক্তেন ভুঞ্জীথা মা গৃধঃ কস্যস্বিদ্ধনম্ ॥১০১॥
 
-> ātmāvāsyam idaṁ viśvaṁ
-> yat kiñcij jagatyāṁ jagat
-> tena tyaktena bhuñjīthā
+> ātmāvāsyam idaṁ viśvaṁ\
+> yat kiñcij jagatyāṁ jagat\
+> tena tyaktena bhuñjīthā\
 > mā gṛdhaḥ kasyasvid dhanam
 
 *ātma-āvāsyam*—la expansión de la energía del Alma Suprema, la Personalidad de Dios; *idam*—este; *viśvam*—universo; *yat*—lo que sea; *kiñcit*—algo; *jagatyām*—dentro del universo; *jagat*—todo lo animado o inanimado; *tena*—por Él; *tyaktena*—mediante las cosas asignadas a cada persona; *bhuñjīthā*—debes aceptar para tu sustento; *mā*—nunca; *gṛdhaḥ*—usurpes; *kasyasvit*—de algún otro; *dhanam*—propiedad.

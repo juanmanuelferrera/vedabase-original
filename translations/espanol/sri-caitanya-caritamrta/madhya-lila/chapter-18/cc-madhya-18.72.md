@@ -1,9 +1,9 @@
 ### CC Madhya 18.72
 
-> ‘দ্বাদশ-আদিত্য’ হৈতে ‘কেশীতীর্থে’ আইলা ।
+> ‘দ্বাদশ-আদিত্য’ হৈতে ‘কেশীতীর্থে’ আইলা ।\
 > রাস-স্থলী দেখি’ প্রেমে মূর্চ্ছিত হইলা ॥৭২॥
 
-> 'dvādaśa-āditya' haite 'keśī-tīrthe' āilā
+> 'dvādaśa-āditya' haite 'keśī-tīrthe' āilā\
 > rāsa-sthalī dekhi' preme mūrcchita ha-ilā
 
 *dvādaśa-āditya haite*—desde Dvādaśāditya; *keśī-tīrthe āilā*—fue a Keśī-tīrtha; *rāsa-sthalī dekhi'*—al visitar el lugar de la danza rāsa; *preme*—en amor extático; *mūrcchita ha-ilā*—perdió el conocimiento.

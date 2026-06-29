@@ -1,32 +1,32 @@
 ### SB 6.15.12-15
 
-> कुमारो नारद ऋभुरङ्गिरा देवलोऽसितः
-> अपान्तरतमा व्यासो मार्कण्डेयोऽथ गौतमः ॥१२॥
-> वसिष्ठो भगवान्रामः कपिलो बादरायणिः
-> दुर्वासा याज्ञअवल्क्यश्च जातुकर्णस्तथारुणिः ॥१३॥
-> रोमशश्च्यवनो दत्त आसुरिः सपतञ्जलिः
-> ऋषिर्वेदशिरा धौम्यो मुनिः पञ्चशिखस्तथा ॥१४॥
-> हिरण्यनाभः कौशल्यः श्रुतदेव ऋतध्वजः
+> कुमारो नारद ऋभुरङ्गिरा देवलोऽसितः\
+> अपान्तरतमा व्यासो मार्कण्डेयोऽथ गौतमः ॥१२॥\
+> वसिष्ठो भगवान्रामः कपिलो बादरायणिः\
+> दुर्वासा याज्ञअवल्क्यश्च जातुकर्णस्तथारुणिः ॥१३॥\
+> रोमशश्च्यवनो दत्त आसुरिः सपतञ्जलिः\
+> ऋषिर्वेदशिरा धौम्यो मुनिः पञ्चशिखस्तथा ॥१४॥\
+> हिरण्यनाभः कौशल्यः श्रुतदेव ऋतध्वजः\
 > एते परे च सिद्धेशाश्चरन्ति ज्ञआनहेतवः ॥१५॥
 
-> kumāro nārada ṛbhur
-> aṅgirā devalo 'sitaḥ
-> apāntaratamā vyāso
+> kumāro nārada ṛbhur\
+> aṅgirā devalo 'sitaḥ\
+> apāntaratamā vyāso\
 > mārkaṇḍeyo 'tha gautamaḥ
 
-> vasiṣṭho bhagavān rāmaḥ
-> kapilo bādarāyaṇiḥ
-> durvāsā yājñavalkyaś ca
+> vasiṣṭho bhagavān rāmaḥ\
+> kapilo bādarāyaṇiḥ\
+> durvāsā yājñavalkyaś ca\
 > jātukarṇas tathāruṇiḥ
 
-> romaśaś cyavano datta
-> āsuriḥ sapatañjaliḥ
-> ṛṣir veda-śirā dhaumyo
+> romaśaś cyavano datta\
+> āsuriḥ sapatañjaliḥ\
+> ṛṣir veda-śirā dhaumyo\
 > muniḥ pañcaśikhas tathā
 
-> hiraṇyanābhaḥ kauśalyaḥ
-> śrutadeva ṛtadhvajaḥ
-> ete pare ca siddheśāś
+> hiraṇyanābhaḥ kauśalyaḥ\
+> śrutadeva ṛtadhvajaḥ\
+> ete pare ca siddheśāś\
 > caranti jñāna-hetavaḥ
 
 *kumāraḥ*—Sanat-kumāra; *nāradaḥ*—Nārada Muni; *ṛbhuḥ*—Ṛbhu; *aṅgirāḥ*—Aṅgirā; *devalaḥ*—Devala; *asitaḥ*—Asita; *apāntaratamāḥ*—Vyāsa's previous name, Apāntaratamā; *vyāsaḥ*—Vyāsa; *mārkaṇḍeyaḥ*—Mārkaṇḍeya; *atha*—and; *gautamaḥ*—Gautama; *vasiṣṭhaḥ*—Vasiṣṭha; *bhagavān rāmaḥ*—Lord Paraśurāma; *kapilaḥ*—Kapila; *bādarāyaṇiḥ*—Śukadeva Gosvāmī; *durvāsāḥ*—Durvāsā; *yājñavalkyaḥ*—Yājñavalkya; *ca*—also; *jātukarṇaḥ*—Jātukarṇa; *tathā*—as well as; *aruṇiḥ*—Aruṇi; *romaśaḥ*—Romaśa; *cyavanaḥ*—Cyavana; *dattaḥ*—Dattātreya; *āsuriḥ*—Āsuri; *sa-patañjaliḥ*—with Patañjali Ṛṣi; *ṛṣiḥ*—the sage; *veda-śirāḥ*—the head of the *Vedas*; *dhaumyaḥ*—Dhaumya; *muniḥ*—the sage; *pañcaśikhaḥ*—Pañcaśikha; *tathā*—so also; *hiraṇyanābhaḥ*—Hiraṇyanābha; *kauśalyaḥ*—Kauśalya; *śrutadevaḥ*—Śrutadeva; *ṛtadhvajaḥ*—Ṛtadhvaja; *ete*—all of these; *pare*—others; *ca*—and; *siddha-īśāḥ*—the masters of mystic power; *caranti*—wander; *jñāna-hetavaḥ*—very learned persons who preach all over the world.

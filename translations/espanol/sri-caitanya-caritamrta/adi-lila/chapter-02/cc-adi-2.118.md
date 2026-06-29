@@ -1,9 +1,9 @@
 ### CC Adi 2.118
 
-> চৈতন্য-মহিমা জানি এ সব সিদ্ধান্তে ।
+> চৈতন্য-মহিমা জানি এ সব সিদ্ধান্তে ।\
 > চিত্ত দৃঢ় হঞা লাগে মহিমা-জ্ঞান হৈতে ॥১১৮॥
 
-> caitanya-mahimā jāni e saba siddhānte
+> caitanya-mahimā jāni e saba siddhānte\
 > citta dṛḍha hañā lāge mahimā-jñāna haite
 
 *caitanya-mahimā*—la gloria del Señor Caitanya Mahāprabhu; *jāni*—conozco; *e*—estas; *saba*—todas; *siddhānte*—por las conclusiones; *citta*—la mente; *dṛḍha*—firme; *hañā*—volviéndose; *lāge*—se fija; *mahimā-jñāna*—conocimiento de la grandeza; *haite*—a partir de.

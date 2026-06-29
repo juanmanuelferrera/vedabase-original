@@ -1,9 +1,9 @@
 ### CC Antya 7.14
 
-> প্রেম-পরকাশ নহে কৃষ্ণশক্তি বিনে ।
+> প্রেম-পরকাশ নহে কৃষ্ণশক্তি বিনে ।\
 > ‘কৃষ্ণ’ — এক প্রেমদাতা, শাস্ত্র-প্রমাণে ॥১৪॥
 
-> prema-parakāśa nahe kṛṣṇa-śakti vine
+> prema-parakāśa nahe kṛṣṇa-śakti vine\
 > 'kṛṣṇa'—eka prema-dātā, śāstra-pramāṇe
 
 *prema*—of ecstatic love of Kṛṣṇa; *parakāśa*—manifestation; *nahe*—cannot be; *kṛṣṇa-śakti vine*—without the power of Kṛṣṇa; *kṛṣṇa*—Lord Kṛṣṇa; *eka*—the only one; *prema-dātā*—giver of prema; *śāstra-pramāṇe*—the verdict of all revealed scriptures.

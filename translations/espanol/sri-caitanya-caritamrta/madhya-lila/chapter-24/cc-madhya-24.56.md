@@ -1,13 +1,13 @@
 ### CC Madhya 24.56
 
-> কাস্ত্র্যঙ্গ তে কলপদামৃতবেণুগীত-
-> সম্মোহিতার্যচরিতান্ন চলেত্রিলোক্যাম্ ।
-> ত্রৈলোক্যসৌভগমিদঞ্চ নিরীক্ষ্য রূপং
+> কাস্ত্র্যঙ্গ তে কলপদামৃতবেণুগীত-\
+> সম্মোহিতার্যচরিতান্ন চলেত্রিলোক্যাম্ ।\
+> ত্রৈলোক্যসৌভগমিদঞ্চ নিরীক্ষ্য রূপং\
 > যদ্গোদ্বিজদ্রুমমৃগাঃ পুলকান্যবিভ্রন্ ॥৫৬॥
 
-> kā stry aṅga te kala-padāmṛta-veṇu-gīta-
-> sammohitārya-caritān na calet trilokyām
-> trailokya-saubhagam idaṁ ca nirīkṣya rūpaṁ
+> kā stry aṅga te kala-padāmṛta-veṇu-gīta-\
+> sammohitārya-caritān na calet trilokyām\
+> trailokya-saubhagam idaṁ ca nirīkṣya rūpaṁ\
 > yad go-dvija-druma-mṛgāḥ pulakāny abibhran
 
 *kā strī*—¿qué mujer?; *aṅga*—¡oh, Kṛṣṇa!; *te*—de Ti; *kala-pada*—por los ritmos; *amṛta-veṇu-gīta*—y las dulces canciones de Tu flauta; *sammohitā*—cautivada; *ārya-caritāt*—del sendero de la castidad según la civilización Védica; *na*—no; *calet*—se desviaría; *tri-lokyām*—dentro de los tres mundos; *trailokya-saubhagam*—que es la fortuna de los tres mundos; *idam*—esta; *ca*—y; *nirīkṣya*—al contemplar; *rūpam*—la belleza; *yat*—la cual; *go*—las vacas; *dvija*—las aves; *druma*—los árboles; *mṛgāḥ*—animales del bosque como los venados; *pulakāni*—júbilo trascendental; *abibhran*—manifestaron.

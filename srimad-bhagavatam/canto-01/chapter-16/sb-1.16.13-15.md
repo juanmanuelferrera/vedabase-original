@@ -1,25 +1,25 @@
 ### SB 1.16.13-15
 
-> तत्र तत्रोपशृण्वानः स्वपूर्वेषां महात्मनाम् ।
-> प्रगीयमाणं च यशः कृष्णमाहात्म्यसूचकम् ॥१३॥
-> आत्मानं च परित्रातमश्वत्थाम्नोऽस्त्रतेजसः ।
-> स्नेहं च वृष्णिपार्थानां तेषां भक्तिं च केशवे ॥१४॥
-> तेभ्यः परमसन्तुष्टः प्रीत्युज्जृम्भितलोचनः ।
+> तत्र तत्रोपशृण्वानः स्वपूर्वेषां महात्मनाम् ।\
+> प्रगीयमाणं च यशः कृष्णमाहात्म्यसूचकम् ॥१३॥\
+> आत्मानं च परित्रातमश्वत्थाम्नोऽस्त्रतेजसः ।\
+> स्नेहं च वृष्णिपार्थानां तेषां भक्तिं च केशवे ॥१४॥\
+> तेभ्यः परमसन्तुष्टः प्रीत्युज्जृम्भितलोचनः ।\
 > महाधनानि वासांसि ददौ हारान्महामनाः ॥१५॥
 
-> tatra tatropaśṛṇvānaḥ
-> sva-pūrveṣāṁ mahātmanām
-> pragīyamāṇaṁ ca yaśaḥ
+> tatra tatropaśṛṇvānaḥ\
+> sva-pūrveṣāṁ mahātmanām\
+> pragīyamāṇaṁ ca yaśaḥ\
 > kṛṣṇa-māhātmya-sūcakam
 
-> ātmānaṁ ca paritrātam
-> aśvatthāmno 'stra-tejasaḥ
-> snehaṁ ca vṛṣṇi-pārthānāṁ
+> ātmānaṁ ca paritrātam\
+> aśvatthāmno 'stra-tejasaḥ\
+> snehaṁ ca vṛṣṇi-pārthānāṁ\
 > teṣāṁ bhaktiṁ ca keśave
 
-> tebhyaḥ parama-santuṣṭaḥ
-> prīty-ujjṛmbhita-locanaḥ
-> mahā-dhanāni vāsāṁsi
+> tebhyaḥ parama-santuṣṭaḥ\
+> prīty-ujjṛmbhita-locanaḥ\
+> mahā-dhanāni vāsāṁsi\
 > dadau hārān mahā-manāḥ
 
 *tatra tatra*—everywhere the King visited; *upaśṛṇvānaḥ*—continuously he heard; *sva-pūrveṣām*—about his own forefathers; *mahā-ātmanām*—who were all great devotees of the Lord; *pragīyamāṇam*—unto those who were thus addressing; *ca*—also; *yaśaḥ*—glories; *kṛṣṇa*—Lord Kṛṣṇa; *māhātmya*—glorious acts; *sūcakam*—indicating; *ātmānam*—his personal self; *ca*—also; *paritrātam*—delivered; *aśvatthāmnaḥ*—of Aśvatthāmā; *astra*—weapon; *tejasaḥ*—powerful rays; *sneham*—affection; *ca*—also; *vṛṣṇi-pārthānām*—between descendants of Vṛṣṇi and those of Pṛthā; *teṣām*—of all of them; *bhaktim*—devotion; *ca*—also; *keśave*—unto Lord Kṛṣṇa; *tebhyaḥ*—unto them; *parama*—extremely; *santuṣṭaḥ*—pleased; *prīti*—attraction; *ujjṛmbhita*—pleasingly open; *locanaḥ*—one who has such eyes; *mahā-dhanāni*—valuable riches; *vāsāṁsi*—clothing; *dadau*—gave in charity; *hārān*—necklace; *mahā-manāḥ*—one who has a broader outlook.

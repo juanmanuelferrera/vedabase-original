@@ -1,6 +1,6 @@
 ### CC Adi 1.20
 
-> granthera ārambhe kari 'maṅgalācaraṇa'
+> granthera ārambhe kari 'maṅgalācaraṇa'\
 > guru, vaiṣṇava, bhagavān,—tinera smaraṇa
 
 *granthera*—deste livro; *ārambhe*—no início; *kari*—eu faço; *maṅgala-ācaraṇa*—invocação auspiciosa; *guru*—o mestre espiritual; *vaiṣṇava*—os devotos do Senhor; *bhagavān*—a Suprema Personalidade de Deus; *tinera*—destes três; *smaraṇa*—lembrança.

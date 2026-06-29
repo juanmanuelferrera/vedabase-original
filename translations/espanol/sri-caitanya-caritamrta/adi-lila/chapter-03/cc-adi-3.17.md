@@ -1,9 +1,9 @@
 ### CC Adi 3.17
 
-> ঐশ্বর্যজ্ঞানে বিধি-ভজন করিয়া ।
+> ঐশ্বর্যজ্ঞানে বিধি-ভজন করিয়া ।\
 > বৈকুণ্ঠকে যায় চতুর্বিধ মুক্তি পাঞা ॥১৭॥
 
-> aiśvarya-jñāne vidhi-bhajana kariyā
+> aiśvarya-jñāne vidhi-bhajana kariyā\
 > vaikuṇṭhake yāya catur-vidha mukti pāñā
 
 *aiśvarya-jñāne*—en conocimiento de las opulencias; *vidhi*—conforme a las reglas y regulaciones; *bhajana*—adoración; *kariyā*—ejecutando; *vaikuṇṭhake*—a Vaikuṇṭha; *yāya*—van; *catuḥ-vidha*—cuatro clases; *mukti*—liberación; *pāñā*—obteniendo.

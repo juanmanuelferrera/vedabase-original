@@ -1,11 +1,11 @@
 ### SB 3.28.9
 
-> प्राणस्य शोधयेन्मार्गं पूरकुम्भकरेचकैः ।
+> प्राणस्य शोधयेन्मार्गं पूरकुम्भकरेचकैः ।\
 > प्रतिकूलेन वा चित्तं यथा स्थिरमचञ्चलम् ॥९॥
 
-> prāṇasya śodhayen mārgaṁ
-> pūra-kumbhaka-recakaiḥ
-> pratikūlena vā cittaṁ
+> prāṇasya śodhayen mārgaṁ\
+> pūra-kumbhaka-recakaiḥ\
+> pratikūlena vā cittaṁ\
 > yathā sthiram acañcalam
 
 *prāṇasya*—of vital air; *śodhayet*—one should clear; *mārgam*—the passage; *pūra-kumbhaka-recakaiḥ*—by inhaling, retaining and exhaling; *pratikūlena*—by reversing; *vā*—or; *cittam*—the mind; *yathā*—so that; *sthiram*—steady; *acañcalam*—free from disturbances.

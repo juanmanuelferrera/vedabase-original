@@ -1,9 +1,9 @@
 ### CC Adi 5.51
 
-> বৈকুণ্ঠ-বাহিরে যেই জ্যোতির্ময় ধাম ।
+> বৈকুণ্ঠ-বাহিরে যেই জ্যোতির্ময় ধাম ।\
 > তাহার বাহিরে ‘কারণার্ণব’ নাম ॥৫১॥
 
-> vaikuṇṭha-bāhire yei jyotir-maya dhāma
+> vaikuṇṭha-bāhire yei jyotir-maya dhāma\
 > tāhāra bāhire 'kāraṇārṇava' nāma
 
 *vaikuṇṭha-bāhire*—outside the Vaikuṇṭha planets; *yei*—that; *jyotiḥ-maya dhāma*—impersonal Brahman effulgence; *tāhāra bāhire*—outside that effulgence; *kāraṇa-arṇava nāma*—an ocean called Kāraṇa.

@@ -1,9 +1,9 @@
 ### CC Adi 16.50
 
-> ব্যাকরণিয়া তুমি নাহি পড় অলঙ্কার ।
+> ব্যাকরণিয়া তুমি নাহি পড় অলঙ্কার ।\
 > তুমি কি জানিবে এই কবিত্বের সার ॥৫০॥
 
-> vyākaraṇiyā tumi nāhi paḍa alaṅkāra
+> vyākaraṇiyā tumi nāhi paḍa alaṅkāra\
 > tumi ki jānibe ei kavitvera sāra
 
 *vyākaraṇiyā*—a student of grammar; *tumi*—You are; *nāhi*—do not; *paḍa*—study; *alaṅkāra*—poetic ornaments; *tumi*—You; *ki*—what; *jānibe*—will know; *ei*—this; *kavitvera*—of poetic quality; *sāra*—review.

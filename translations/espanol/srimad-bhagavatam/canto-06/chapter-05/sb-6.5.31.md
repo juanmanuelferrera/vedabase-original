@@ -1,11 +1,11 @@
 ### SB 6.5.31
 
-> भ्रातॄणां प्रायणं भ्राता योऽनुतिष्ठति धर्मवित
+> भ्रातॄणां प्रायणं भ्राता योऽनुतिष्ठति धर्मवित\
 > स पुण्यबन्धुः पुरुषो मरुद्भिः सह मोदते ॥३१॥
 
-> bhrātṝṇāṁ prāyaṇaṁ bhrātā
-> yo 'nutiṣṭhati dharmavit
-> sa puṇya-bandhuḥ puruṣo
+> bhrātṝṇāṁ prāyaṇaṁ bhrātā\
+> yo 'nutiṣṭhati dharmavit\
+> sa puṇya-bandhuḥ puruṣo\
 > marudbhiḥ saha modate
 
 *bhrātṝṇām*—de hermanos mayores; *prāyaṇam*—el camino; *bhrātā*—un hermano fiel; *yaḥ*—aquel que; *anutiṣṭhati*—sigue; *dharma-vit*—conocer los principios religiosos; *saḥ*—esa; *puṇya-bandhuḥ*—muy piadosa; *puruṣaḥ*—persona; *marudbhiḥ*—los semidioses de los vientos; *saha*—con; *modate*—disfruta de la vida.

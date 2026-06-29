@@ -1,11 +1,11 @@
 ### SB 4.20.22
 
-> अथावमृज्याश्रुकला विलोकयन्नतृप्तदृग्गोचरमाह पूरुषम् ।
+> अथावमृज्याश्रुकला विलोकयन्नतृप्तदृग्गोचरमाह पूरुषम् ।\
 > पदा स्पृशन्तं क्षितिमंस उन्नते विन्यस्तहस्ताग्रमुरङ्गविद्विषः ॥२२॥
 
-> athāvamṛjyāśru-kalā vilokayann
-> atṛpta-dṛg-gocaram āha pūruṣam
-> padā spṛśantaṁ kṣitim aṁsa unnate
+> athāvamṛjyāśru-kalā vilokayann\
+> atṛpta-dṛg-gocaram āha pūruṣam\
+> padā spṛśantaṁ kṣitim aṁsa unnate\
 > vinyasta-hastāgram uraṅga-vidviṣaḥ
 
 *atha*—a continuación; *avamṛjya*—secando; *aśru-kalāḥ*—las lágrimas de los ojos; *vilokayan*—observando; *atṛpta*—no satisfecho; *dṛk-gocaram*—visible a simple vista; *āha*—dijo; *pūruṣam*—a la Suprema Personalidad de Dios; *padā*—con Sus pies de loto; *spṛśantam*—casi tocando; *kṣitim*—el suelo; *aṁse*—en el lomo; *unnate*—erguido; *vinyasta*—posada; *hasta*—de Su mano; *agram*—la parte de delante; *uraṅga-vidviṣaḥ*—de Garuḍa, el enemigo de las serpientes.

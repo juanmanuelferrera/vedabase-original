@@ -1,9 +1,9 @@
 ### CC Antya 14.37
 
-> ‘পাইলুঁ বৃন্দাবননাথ, পুনঃ হারাইলুঁ ।
+> ‘পাইলুঁ বৃন্দাবননাথ, পুনঃ হারাইলুঁ ।\
 > কে মোর নিলেক কৃষ্ণ? কাহাঁ মুই আইনু’ ? ॥ ৩৭ ॥
 
-> 'pāiluṅ vṛndāvana-nātha, punaḥ hārāiluṅ
+> 'pāiluṅ vṛndāvana-nātha, punaḥ hārāiluṅ\
 > ke mora nileka kṛṣṇa? kāhāṅ mui āinu'?
 
 *pāiluṅ*—encontré; *vṛndāvana-nātha*—al Señor Supremo de Vṛndāvana; *punaḥ*—de nuevo; *hārāiluṅ*—he perdido; *ke*—quién; *mora*—a Mi; *nileka*—se llevó; *kṛṣṇa*—al Señor Kṛṣṇa; *kāhāṅ*—dónde; *mui āinu*—he venido.

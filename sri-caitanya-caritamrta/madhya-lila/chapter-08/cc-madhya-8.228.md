@@ -1,9 +1,9 @@
 ### CC Madhya 8.228
 
-> অতএব গোপীভাব করি অঙ্গীকার ।
+> অতএব গোপীভাব করি অঙ্গীকার ।\
 > রাত্রি-দিন চিন্তে রাধাকৃষ্ণের বিহার ॥২২৮॥
 
-> ataeva gopī-bhāva kari aṅgīkāra
+> ataeva gopī-bhāva kari aṅgīkāra\
 > rātri-dina cinte rādhā-kṛṣṇera vihāra
 
 *ataeva*—therefore; *gopī-bhāva*—the loving mood of the *gopīs*; *kari*—making; *aṅgīkāra*—acceptance; *rātri-dina*—day and night; *cinte*—one thinks; *rādhā-kṛṣṇera*—of Rādhā and Kṛṣṇa; *vihāra*—the pastimes.

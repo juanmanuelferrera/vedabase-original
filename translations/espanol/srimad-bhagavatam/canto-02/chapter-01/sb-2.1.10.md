@@ -1,11 +1,11 @@
 ### SB 2.1.10
 
-> तदहं तेऽभिधास्यामि महापौरुषिको भवान् ।
+> तदहं तेऽभिधास्यामि महापौरुषिको भवान् ।\
 > यस्य श्रद्दधतामाशु स्यान्मुकुन्दे मतिः सती ॥१०॥
 
-> tad ahaṁ te 'bhidhāsyāmi
-> mahā-pauruṣiko bhavān
-> yasya śraddadhatām āśu
+> tad ahaṁ te 'bhidhāsyāmi\
+> mahā-pauruṣiko bhavān\
+> yasya śraddadhatām āśu\
 > syān mukunde matiḥ satī
 
 *tat*—eso; *aham*—yo; *te*—a ti; *abhidhāsyāmi*—recitaré; *mahā-pauruṣikaḥ*—el más sincero de los devotos del Señor Kṛṣṇa; *bhavān*—tu buena persona; *yasya*—de lo cual; *śraddadhatām*—de aquel que manifiesta pleno respeto y presta toda su atención; *āśu*—muy pronto; *syāt*—se vuelve; *mukunde*—al Señor, quien otorga la salvación; *matiḥ*—fe; *satī*—resuelta.

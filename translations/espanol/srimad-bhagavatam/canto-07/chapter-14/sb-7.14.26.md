@@ -1,11 +1,11 @@
 ### SB 7.14.26
 
-> संस्कारकालो जायाया अपत्यस्यात्मनस्तथा
+> संस्कारकालो जायाया अपत्यस्यात्मनस्तथा\
 > प्रेतसंस्था मृताहश्च कर्मण्यभ्युदये नृप ॥२६॥
 
-> saṁskāra-kālo jāyāyā
-> apatyasyātmanas tathā
-> preta-saṁsthā mṛtāhaś ca
+> saṁskāra-kālo jāyāyā\
+> apatyasyātmanas tathā\
+> preta-saṁsthā mṛtāhaś ca\
 > karmaṇy abhyudaye nṛpa
 
 *saṁskāra-kālaḥ*—en el momento adecuado para las celebraciones purificatorias védicas; *jāyāyāḥ*—para la esposa; *apatyasya*—para los hijos; *ātmanaḥ*—y para uno mismo; *tathā*—así como; *preta-saṁsthā*—exequias fúnebres; *mṛta-ahaḥ*—ceremonias de aniversarios de muerte; *ca*—y; *karmaṇi*—de actividad fruitiva; *abhyudaye*—para la prosperidad; *nṛpa*—¡oh, rey!.

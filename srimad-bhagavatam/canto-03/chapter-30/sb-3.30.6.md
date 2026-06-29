@@ -1,11 +1,11 @@
 ### SB 3.30.6
 
-> आत्मजायासुतागार पशुद्रविणबन्धुषु ।
+> आत्मजायासुतागार पशुद्रविणबन्धुषु ।\
 > निरूढमूलहृदय आत्मानं बहु मन्यते ॥६॥
 
-> ātma-jāyā-sutāgāra-
-> paśu-draviṇa-bandhuṣu
-> nirūḍha-mūla-hṛdaya
+> ātma-jāyā-sutāgāra-\
+> paśu-draviṇa-bandhuṣu\
+> nirūḍha-mūla-hṛdaya\
 > ātmānaṁ bahu manyate
 
 *ātma*—body; *jāyā*—wife; *suta*—children; *agāra*—home; *paśu*—animals; *draviṇa*—wealth; *bandhuṣu*—in friends; *nirūḍha-mūla*—deep-rooted; *hṛdayaḥ*—his heart; *ātmānam*—himself; *bahu*—highly; *manyate*—he thinks.

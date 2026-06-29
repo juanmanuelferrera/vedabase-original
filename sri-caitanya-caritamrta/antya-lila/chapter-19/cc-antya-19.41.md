@@ -1,13 +1,13 @@
 ### CC Antya 19.41
 
-> জিনিয়া তমালদ্যুতি, ইন্দ্রনীল-সম কান্তি,
-> সে কান্তিতে জগৎ মাতায় ।
-> শৃঙ্গার-রস-সার ছানি’ তাতে চন্দ্র-জ্যোৎস্না সানি’,
+> জিনিয়া তমালদ্যুতি, ইন্দ্রনীল-সম কান্তি,\
+> সে কান্তিতে জগৎ মাতায় ।\
+> শৃঙ্গার-রস-সার ছানি’ তাতে চন্দ্র-জ্যোৎস্না সানি’,\
 > জানি বিধি নিরমিলা তায় ॥৪১॥
 
-> jiniyā tamāla-dyuti, indranīla-sama kānti,
-> se kāntite jagat mātāya
-> śṛṅgāra-rasa-sāra chāni', tāte candra-jyotsnā sāni',
+> jiniyā tamāla-dyuti, indranīla-sama kānti,\
+> se kāntite jagat mātāya\
+> śṛṅgāra-rasa-sāra chāni', tāte candra-jyotsnā sāni',\
 > jāni vidhi niramilā tāya
 
 *jiniyā*—being victorious over; *tamāla-dyuti*—the luster of the *tamāla* tree; *indra-nīla*—the gem known as *indranīla*; *sama kānti*—the luster like; *se kāntite*—by that luster; *jagat mātāya*—the whole world becomes maddened; *śrṅgāra-rasa*—of the mellow of conjugal love; *sāra*—essence; *chāni'*—filtering; *tāte*—in that; *candra-jyotsnā*—the illumination of the full moon; *sāni'*—mixing; *jāni*—I know; *vidhi*—Providence; *niramilā*—made very clear; *tāya*—that.

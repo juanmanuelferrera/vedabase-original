@@ -1,11 +1,11 @@
 ### Bg 1.8
 
-> भवान्भीष्मश्च कर्णश्च कृपश्च समितिञ्जयः ।
+> भवान्भीष्मश्च कर्णश्च कृपश्च समितिञ्जयः ।\
 > अश्वत्थामा विकर्णश्च सौमदत्तिस्तथैव च ॥८॥
 
-> bhavān bhīṣmaś ca karṇaś ca
-> kṛpaś ca samitiñjayaḥ
-> aśvatthāmā vikarṇaś ca
+> bhavān bhīṣmaś ca karṇaś ca\
+> kṛpaś ca samitiñjayaḥ\
+> aśvatthāmā vikarṇaś ca\
 > saumadattis tathaiva ca
 
 *bhavān*—tú mismo; *bhīṣmaḥ*—el abuelo Bhīṣma; *ca*—también; *karṇaḥ*—Karṇa; *ca*—y; *kṛpaḥ*—Kṛpa; *ca*—y; *samitiñjayaḥ*—siempre triunfantes en la batalla; *aśvatthāmā*—Aśvatthāmā; *vikarṇaḥ*—Vikarṇa; *ca*—así como también; *saumadattiḥ*—el hijo de Somadatta; *tathā*—y así como; *eva*—ciertamente; *ca*—y.

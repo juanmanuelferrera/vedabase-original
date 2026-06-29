@@ -1,11 +1,11 @@
 ### SB 1.19.6
 
-> या वै लसच्छ्रीतुलसीविमिश्र कृष्णाङ्घ्रिरेण्वभ्यधिकाम्बुनेत्री ।
+> या वै लसच्छ्रीतुलसीविमिश्र कृष्णाङ्घ्रिरेण्वभ्यधिकाम्बुनेत्री ।\
 > पुनाति लोकानुभयत्र सेशान्कस्तां न सेवेत मरिष्यमाणः ॥६॥
 
-> yā vai lasac-chrī-tulasī-vimiśra-
-> kṛṣṇāṅghri-reṇv-abhyadhikāmbu-netrī
-> punāti lokān ubhayatra seśān
+> yā vai lasac-chrī-tulasī-vimiśra-\
+> kṛṣṇāṅghri-reṇv-abhyadhikāmbu-netrī\
+> punāti lokān ubhayatra seśān\
 > kas tāṁ na seveta mariṣyamāṇaḥ
 
 *yā*—the river which; *vai*—always; *lasat*—floating with; *śrī-tulasī*—*tulasī* leaves; *vimiśra*—mixed; *kṛṣṇa-aṅghri*—the lotus feet of the Lord, Śrī Kṛṣṇa; *reṇu*—dust; *abhyadhika*—auspicious; *ambu*—water; *netrī*—that which is carrying; *punāti*—sanctifies; *lokān*—planets; *ubhayatra*—both the upper and lower or inside and outside; *sa-īśān*—along with Lord Śiva; *kaḥ*—who else; *tām*—that river; *na*—does not; *seveta*—worship; *mariṣyamāṇaḥ*—one who is to die at any moment.

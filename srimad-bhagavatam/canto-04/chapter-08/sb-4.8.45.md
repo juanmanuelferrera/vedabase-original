@@ -1,11 +1,11 @@
 ### SB 4.8.45
 
-> प्रसादाभिमुखं शश्वत्प्रसन्नवदनेक्षणम् ।
+> प्रसादाभिमुखं शश्वत्प्रसन्नवदनेक्षणम् ।\
 > सुनासं सुभ्रुवं चारु कपोलं सुरसुन्दरम् ॥४५॥
 
-> prasādābhimukhaṁ śaśvat
-> prasanna-vadanekṣaṇam
-> sunāsaṁ subhruvaṁ cāru-
+> prasādābhimukhaṁ śaśvat\
+> prasanna-vadanekṣaṇam\
+> sunāsaṁ subhruvaṁ cāru-\
 > kapolaṁ sura-sundaram
 
 *prasāda-abhimukham*—always prepared to offer causeless mercy; *śaśvat*—always; *prasanna*—pleasing; *vadana*—mouth; *īkṣaṇam*—vision; *su-nāsam*—very nicely constructed nose; *su-bhruvam*—very nicely decorated eyebrows; *cāru*—beautiful; *kapolam*—forehead; *sura*—the demigods; *sundaram*—good looking.

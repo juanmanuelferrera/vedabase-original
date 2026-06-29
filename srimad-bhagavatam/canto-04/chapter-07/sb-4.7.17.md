@@ -1,11 +1,11 @@
 ### SB 4.7.17
 
-> वैष्णवं यज्ञसन्तत्यै त्रिकपालं द्विजोत्तमाः ।
+> वैष्णवं यज्ञसन्तत्यै त्रिकपालं द्विजोत्तमाः ।\
 > पुरोडाशं निरवपन्वीरसंसर्गशुद्धये ॥१७॥
 
-> vaiṣṇavaṁ yajña-santatyai
-> tri-kapālaṁ dvijottamāḥ
-> puroḍāśaṁ niravapan
+> vaiṣṇavaṁ yajña-santatyai\
+> tri-kapālaṁ dvijottamāḥ\
+> puroḍāśaṁ niravapan\
 > vīra-saṁsarga-śuddhaye
 
 *vaiṣṇavam*—meant for Lord Viṣṇu or His devotees; *yajña*—sacrifice; *santatyai*—for performances; *tri-kapālam*—three kinds of offerings; *dvija-uttamāḥ*—the best of the *brāhmaṇas*; *puroḍāśam*—the oblation called *puroḍāśa*; *niravapan*—offered; *vīra*—Vīrabhadra and other followers of Lord Śiva; *saṁsarga*—contamination (*doṣa*) due to his touching; *śuddhaye*—for purification.

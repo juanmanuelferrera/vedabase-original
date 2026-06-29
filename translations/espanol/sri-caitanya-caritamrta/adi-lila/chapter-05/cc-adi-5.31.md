@@ -1,9 +1,9 @@
 ### CC Adi 5.31
 
-> ব্রহ্মসাযুজ্য-মুক্তের তাহা নাহি গতি ।
+> ব্রহ্মসাযুজ্য-মুক্তের তাহা নাহি গতি ।\
 > বৈকুণ্ঠ-বাহিরে হয় তা’সবার স্থিতি ॥৩১॥
 
-> brahma-sāyujya-muktera tāhā nāhi gati
+> brahma-sāyujya-muktera tāhā nāhi gati\
 > vaikuṇṭha-bāhire haya tā'-sabāra sthiti
 
 *brahma-sāyujya*—de fundirse en el Brahman Supremo; *muktera*—de la liberación; *tāhā*—allí (en Vaikuṇṭha); *nāhi*—no; *gati*—entrada; *vaikuṇṭha-bāhire*—fuera de los planetas Vaikuṇṭha; *haya*—hay; *tā'-sabāra sthiti*—la residencia de todos ellos.

@@ -1,9 +1,9 @@
 ### CC Adi 12.92
 
-> যাঁ-সবা-স্মরণে পাই চৈতন্যচরণ ।
+> যাঁ-সবা-স্মরণে পাই চৈতন্যচরণ ।\
 > যাঁ-সবা-স্মরণে হয় বাঞ্ছিত পূরণ ॥৯২॥
 
-> yāṅ-sabā-smaraṇe pāi caitanya-caraṇa
+> yāṅ-sabā-smaraṇe pāi caitanya-caraṇa\
 > yāṅ-sabā-smaraṇe haya vāñchita pūraṇa
 
 *yāṅ-sabā*—all of them; *smaraṇe*—by remembering; *pāi*—I get; *caitanya-caraṇa*—the lotus feet of Śrī Caitanya Mahāprabhu; *yāṅ-sabā*—all of them; *smaraṇe*—by remembering; *haya*—becomes; *vāñchita pūraṇa*—fulfillment of all desires.

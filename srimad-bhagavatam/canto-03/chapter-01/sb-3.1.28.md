@@ -1,11 +1,11 @@
 ### SB 3.1.28
 
-> कच्चिद्वरूथाधिपतिर्यदूनां प्रद्युम्न आस्ते सुखमङ्ग वीरः ।
+> कच्चिद्वरूथाधिपतिर्यदूनां प्रद्युम्न आस्ते सुखमङ्ग वीरः ।\
 > यं रुक्मिणी भगवतोऽभिलेभे आराध्य विप्रान्स्मरमादिसर्गे ॥२८॥
 
-> kaccid varūthādhipatir yadūnāṁ
-> pradyumna āste sukham aṅga vīraḥ
-> yaṁ rukmiṇī bhagavato 'bhilebhe
+> kaccid varūthādhipatir yadūnāṁ\
+> pradyumna āste sukham aṅga vīraḥ\
+> yaṁ rukmiṇī bhagavato 'bhilebhe\
 > ārādhya viprān smaram ādi-sarge
 
 *kaccit*—whether; *varūtha*—of the military; *adhipatiḥ*—commander-in-chief; *yadūnām*—of the Yadus; *pradyumnaḥ*—the son of Kṛṣṇa named Pradyumna; *āste*—is; *sukham*—happy; *aṅga*—O Uddhava; *vīraḥ*—the great warrior; *yam*—whom; *rukmiṇī*—the wife of Kṛṣṇa named Rukmiṇī; *bhagavataḥ*—from the Personality of Godhead; *abhilebhe*—got as a prize; *ārādhya*—pleasing; *viprān*—*brāhmaṇas*; *smaram*—Cupid (Kāmadeva); *ādi-sarge*—in his previous life.

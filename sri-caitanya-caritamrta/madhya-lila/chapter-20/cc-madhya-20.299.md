@@ -1,13 +1,13 @@
 ### CC Madhya 20.299
 
-> মৎস্যাশ্বকচ্ছপনৃসিংহ-বরাহ-হংস-
-> রাজন্যবিপ্রবিবুধেষু কৃতাবতারঃ ।
-> ত্বং পাসি নস্ত্রিভুবনঞ্চ তথাধুনেশ
+> মৎস্যাশ্বকচ্ছপনৃসিংহ-বরাহ-হংস-\
+> রাজন্যবিপ্রবিবুধেষু কৃতাবতারঃ ।\
+> ত্বং পাসি নস্ত্রিভুবনঞ্চ তথাধুনেশ\
 > ভারং ভুবো হর যদূত্তম বন্দনং তে ॥২৯৯॥
 
-> matsyāśva-kacchapa-nṛsiṁha-varāha-haṁsa-
-> rājanya-vipra-vibudheṣu kṛtāvatāraḥ
-> tvaṁ pāsi nas tribhuvanaṁ ca tathādhuneśa
+> matsyāśva-kacchapa-nṛsiṁha-varāha-haṁsa-\
+> rājanya-vipra-vibudheṣu kṛtāvatāraḥ\
+> tvaṁ pāsi nas tribhuvanaṁ ca tathādhuneśa\
 > bhāraṁ bhuvo hara yadūttama vandanaṁ te
 
 *matsya*—in the forms of a fish; *aśva*—of a horse; *kacchapa*—of a tortoise; *nṛsiṁha*—of Lord Nṛsiṁhadeva; *varāha*—of a boar; *haṁsa*—of a swan; *rājanya*—of Lord Rāmacandra; *vipra*—of Lord Paraśurāma; *vibudheṣu*—and of Vāmanadeva; *kṛta-avatāraḥ*—who have accepted incarnation; *tvam*—You; *pāsi*—please protect; *naḥ*—us demigods; *tri-bhuvanam ca*—and the three worlds; *tathā*—as well; *adhunā*—now; *īśa*—O Lord; *bhāram*—the burden; *bhuvaḥ*—of the universe; *hara*—kindly take away; *yadu-uttama*—O best of the Yadu dynasty; *vandanam te*—to You we offer our prayers.

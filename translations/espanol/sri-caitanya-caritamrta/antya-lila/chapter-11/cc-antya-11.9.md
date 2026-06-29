@@ -1,9 +1,9 @@
 ### CC Antya 11.9
 
-> জয় রূপ, সনাতন, জীব, রঘুনাথ ।
+> জয় রূপ, সনাতন, জীব, রঘুনাথ ।\
 > রঘুনাথ, গোপাল, — ছয় মোর নাথ ॥৯॥
 
-> jaya rūpa, sanātana, jīva, raghunātha
+> jaya rūpa, sanātana, jīva, raghunātha\
 > raghunātha, gopāla,--chaya mora nātha
 
 *jaya*—todas las glorias; *rūpa*—a Rūpa Gosvāmī; *sanātana*—Sanātana Gosvāmī; *jīva*—Jīva Gosvāmī; *raghunātha*—Raghunātha dāsa Gosvāmī; *raghunātha*—Raghunātha Bhaṭṭa Gosvāmī; *gopāla*—Gopāla Bhaṭṭa Gosvāmī; *chaya*—seis; *mora*—mis; *nātha*—señores.

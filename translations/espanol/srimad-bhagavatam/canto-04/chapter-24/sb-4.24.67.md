@@ -1,11 +1,11 @@
 ### SB 4.24.67
 
-> कस्त्वत्पदाब्जं विजहाति पण्डितो यस्तेऽवमानव्ययमानकेतनः ।
+> कस्त्वत्पदाब्जं विजहाति पण्डितो यस्तेऽवमानव्ययमानकेतनः ।\
 > विशङ्कयास्मद्गुरुरर्चति स्म यद्विनोपपत्तिं मनवश्चतुर्दश ॥६७॥
 
-> kas tvat-padābjaṁ vijahāti paṇḍito
-> yas te 'vamāna-vyayamāna-ketanaḥ
-> viśaṅkayāsmad-gurur arcati sma yad
+> kas tvat-padābjaṁ vijahāti paṇḍito\
+> yas te 'vamāna-vyayamāna-ketanaḥ\
+> viśaṅkayāsmad-gurur arcati sma yad\
 > vinopapattiṁ manavaś caturdaśa
 
 *kaḥ*—quién; *tvat*—Tus; *pada-abjam*—pies de loto; *vijahāti*—evita; *paṇḍitaḥ*—erudito; *yaḥ*—quien; *te*—a Ti; *avamāna*—ridiculizar; *vyayamāna*—disminuir; *ketanaḥ*—este cuerpo; *viśaṅkayā*—sin duda alguna; *asmat*—nuestro; *guruḥ*—maestro espiritual, padre; *arcati*—adora; *sma*—en el pasado; *yat*—ese; *vinā*—sin; *upapattim*—agitación; *manavaḥ*—los *manus*; *catuḥ-daśa*—catorce.

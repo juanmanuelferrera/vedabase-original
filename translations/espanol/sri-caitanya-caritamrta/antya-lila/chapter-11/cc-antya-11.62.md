@@ -1,9 +1,9 @@
 ### CC Antya 11.62
 
-> হরিদাস-ঠাকুরে তবে বিমানে চড়াঞা ।
+> হরিদাস-ঠাকুরে তবে বিমানে চড়াঞা ।\
 > সমুদ্রে লঞা গেলা তবে কীর্তন করিয়া ॥৬২॥
 
-> haridāsa-ṭhākure tabe vimāne caḍāñā
+> haridāsa-ṭhākure tabe vimāne caḍāñā\
 > samudre lañā gelā tabe kīrtana kariyā
 
 *haridāsa-ṭhākure*—Haridāsa Ṭhākura; *tabe*—entonces; *vimāne*—en un transporte semejante a una nave aérea; *caḍāñā*—elevando; *samudre*—a la orilla del mar; *lañā gelā*—lo llevaron; *tabe*—entonces; *kīrtana kariyā*—cantando congregacionalmente.

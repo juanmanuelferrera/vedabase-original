@@ -1,11 +1,11 @@
 ### SB 6.6.37
 
-> विप्रचित्तिः सिंहिकायां शतं चैकमजीजनत
+> विप्रचित्तिः सिंहिकायां शतं चैकमजीजनत\
 > राहुज्येष्ठं केतुशतं ग्रहत्वं य उपागताः ॥३७॥
 
-> vipracittiḥ siṁhikāyāṁ
-> śataṁ caikam ajījanat
-> rāhu-jyeṣṭhaṁ ketu-śataṁ
+> vipracittiḥ siṁhikāyāṁ\
+> śataṁ caikam ajījanat\
+> rāhu-jyeṣṭhaṁ ketu-śataṁ\
 > grahatvaṁ ya upāgatāḥ
 
 *vipracittiḥ*—Vipracitti; *siṁhikāyām*—in the womb of his wife Siṁhikā; *śatam*—to one hundred; *ca*—and; *ekam*—one; *ajījanat*—gave birth; *rāhu-jyeṣṭham*—among whom Rāhu is the oldest; *ketu-śatam*—one hundred Ketus; *grahatvam*—planethood; *ye*—all of whom; *upāgatāḥ*—obtained.

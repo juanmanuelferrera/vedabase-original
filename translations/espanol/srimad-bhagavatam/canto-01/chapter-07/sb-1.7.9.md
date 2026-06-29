@@ -1,13 +1,13 @@
 ### SB 1.7.9
 
-> शौनक उवाच
-> स वै निवृत्तिनिरतः सर्वत्रोपेक्षको मुनिः ।
+> शौनक उवाच\
+> स वै निवृत्तिनिरतः सर्वत्रोपेक्षको मुनिः ।\
 > कस्य वा बृहतीमेतामात्मारामः समभ्यसत् ॥९॥
 
-> śaunaka uvāca
-> sa vai nivṛtti-nirataḥ
-> sarvatropekṣako muniḥ
-> kasya vā bṛhatīm etām
+> śaunaka uvāca\
+> sa vai nivṛtti-nirataḥ\
+> sarvatropekṣako muniḥ\
+> kasya vā bṛhatīm etām\
 > ātmārāmaḥ samabhyasat
 
 *śaunakaḥ uvāca*—Śrī Śaunaka preguntó; *saḥ*—él; *vai*—desde luego; *nivṛtti*—en la senda de la autorrealización; *nirataḥ*—dedicado siempre; *sarvatra*—en todo aspecto; *upekṣakaḥ*—indiferente; *muniḥ*—sabio; *kasya*—por qué razón; *vā*—o; *bṛhatīm*—vasto; *etām*—esto; *ātma-arāmaḥ*—aquel que está satisfecho en sí mismo; *samabhyasat*—someterse a los estudios.

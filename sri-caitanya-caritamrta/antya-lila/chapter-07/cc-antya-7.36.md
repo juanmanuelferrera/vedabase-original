@@ -1,9 +1,9 @@
 ### CC Antya 7.36
 
-> এ সব শিখাইলা মোরে রায়-রামানন্দ ।
+> এ সব শিখাইলা মোরে রায়-রামানন্দ ।\
 > অনর্গল রসবেত্তা প্রেমসুখানন্দ ॥৩৬॥
 
-> e saba śikhāilā more rāya-rāmānanda
+> e saba śikhāilā more rāya-rāmānanda\
 > anargala rasa-vettā prema-sukhānanda
 
 *e saba*—all this; *śikhāilā*—instructed; *more*—unto Me; *rāya-rāmānanda*—Rāmānanda Rāya; *anargala*—incessantly; *rasa-vettā*—one who understands transcendental mellows; *prema-sukha-ānanda*—absorbed in the happiness of ecstatic love of Kṛṣṇa.

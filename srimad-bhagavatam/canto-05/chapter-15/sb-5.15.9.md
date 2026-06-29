@@ -1,11 +1,11 @@
 ### SB 5.15.9
 
-> गयं नृपः कः प्रतियाति कर्मभिर्यज्वाभिमानी बहुविद्धर्मगोप्ता
+> गयं नृपः कः प्रतियाति कर्मभिर्यज्वाभिमानी बहुविद्धर्मगोप्ता\
 > समागतश्रीः सदसस्पतिः सतां सत्सेवकोऽन्यो भगवत्कलामृते ॥९॥
 
-> gayaṁ nṛpaḥ kaḥ pratiyāti karmabhir
-> yajvābhimānī bahuvid dharma-goptā
-> samāgata-śrīḥ sadasas-patiḥ satāṁ
+> gayaṁ nṛpaḥ kaḥ pratiyāti karmabhir\
+> yajvābhimānī bahuvid dharma-goptā\
+> samāgata-śrīḥ sadasas-patiḥ satāṁ\
 > sat-sevako 'nyo bhagavat-kalām ṛte
 
 *gayam*—King Gaya; *nṛpaḥ*—king; *kaḥ*—who; *pratiyāti*—is a match for; *karmabhiḥ*—by his execution of ritualistic ceremonies; *yajvā*—who performed all sacrifices; *abhimānī*—so widely respected all over the world; *bahu-vit*—fully aware of the conclusion of Vedic literature; *dharma-goptā*—protector of the occupational duties of everyone; *samāgata-śrīḥ*—possessing all kinds of opulence; *sadasaḥ-patiḥ satām*—the dean of the assembly of great persons; *sat-sevakaḥ*—servant of the devotees; *anyaḥ*—anyone else; *bhagavat-kalām*—the plenary incarnation of the Supreme Personality of Godhead; *ṛte*—besides.

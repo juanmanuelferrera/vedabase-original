@@ -1,9 +1,9 @@
 ### CC Antya 18.55
 
-> সাক্ষাৎ দেখেছোঁ, — মোরে পাইল সেই ভূত ।
+> সাক্ষাৎ দেখেছোঁ, — মোরে পাইল সেই ভূত ।\
 > মুই মৈলে মোর কৈছে জীবে স্ত্রী-পুত ্ ॥৫৫॥
 
-> sākṣāt dekhechoṅ,—more pāila sei bhūta
+> sākṣāt dekhechoṅ,—more pāila sei bhūta\
 > mui maile mora kaiche jīve strī-put
 
 *sākṣāt*—directly; *dekhechoṅ*—I have seen; *more*—me; *pāila*—has entered; *sei*—that; *bhūta*—ghost; *mui maile*—if I die; *mora*—my; *kaiche*—how; *jīve*—will live; *strī-put*—wife and children.

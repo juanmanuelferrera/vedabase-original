@@ -1,11 +1,11 @@
 ### SB 6.4.6
 
-> ताभ्यां निर्दह्यमानांस्तानुपलभ्य कुरूद्वह
+> ताभ्यां निर्दह्यमानांस्तानुपलभ्य कुरूद्वह\
 > राजोवाच महान्सोमो मन्युं प्रशमयन्निव ॥६॥
 
-> tābhyāṁ nirdahyamānāṁs tān
-> upalabhya kurūdvaha
-> rājovāca mahān somo
+> tābhyāṁ nirdahyamānāṁs tān\
+> upalabhya kurūdvaha\
+> rājovāca mahān somo\
 > manyuṁ praśamayann iva
 
 *tābhyām*—por el viento y el fuego; *nirdahyamānān*—ser quemados; *tān*—a ellos (los árboles); *upalabhya*—ver; *kurūdvaha*—¡oh, Mahārāja Parīkṣit!; *rājā*—el rey del bosque; *uvāca*—dijo; *mahān*—el grande; *somaḥ*—la deidad regente de la Luna, Somadeva; *manyum*—la ira; *praśamayan*—apaciguar; *iva*—como.

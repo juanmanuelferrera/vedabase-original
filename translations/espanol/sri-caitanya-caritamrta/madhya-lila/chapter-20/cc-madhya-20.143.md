@@ -1,9 +1,9 @@
 ### CC Madhya 20.143
 
-> বেদশাস্ত্রে কহে সম্বন্ধ, অভিধেয়, প্রয়োজন ।
+> বেদশাস্ত্রে কহে সম্বন্ধ, অভিধেয়, প্রয়োজন ।\
 > কৃষ্ণ, কৃষ্ণভক্তি, প্রেম, — তিন মহাধন ॥১৪৩॥
 
-> veda-śāstre kahe sambandha, abhidheya, prayojana
+> veda-śāstre kahe sambandha, abhidheya, prayojana\
 > kṛṣṇa, kṛṣṇa-bhakti, prema,--tina mahā-dhana
 
 *veda-śāstre*—en la literatura Védica; *kahe*—se dice; *sambandha*—relación; *abhidheya*—ejecución; *prayojana*—meta; *kṛṣṇa*—el Señor Kṛṣṇa; *kṛṣṇa-bhakti*—servicio devocional al Señor; *prema*—amor a Dios; *tina*—estos tres; *mahā-dhana*—el tesoro supremo.

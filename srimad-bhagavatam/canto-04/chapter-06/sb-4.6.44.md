@@ -1,11 +1,11 @@
 ### SB 4.6.44
 
-> त्वमेव धर्मार्थदुघाभिपत्तये दक्षेण सूत्रेण ससर्जिथाध्वरम् ।
+> त्वमेव धर्मार्थदुघाभिपत्तये दक्षेण सूत्रेण ससर्जिथाध्वरम् ।\
 > त्वयैव लोकेऽवसिताश्च सेतवो यान्ब्राह्मणाः श्रद्दधते धृतव्रताः ॥४४॥
 
-> tvam eva dharmārtha-dughābhipattaye
-> dakṣeṇa sūtreṇa sasarjithādhvaram
-> tvayaiva loke 'vasitāś ca setavo
+> tvam eva dharmārtha-dughābhipattaye\
+> dakṣeṇa sūtreṇa sasarjithādhvaram\
+> tvayaiva loke 'vasitāś ca setavo\
 > yān brāhmaṇāḥ śraddadhate dhṛta-vratāḥ
 
 *tvam*—Your Lordship; *eva*—certainly; *dharma-artha-dugha*—benefit derived from religion and economic development; *abhipattaye*—for their protection; *dakṣeṇa*—by Dakṣa; *sūtreṇa*—making him the cause; *sasarjitha*—created; *adhvaram*—sacrifices; *tvayā*—by you; *eva*—certainly; *loke*—in this world; *avasitāḥ*—regulated; *ca*—and; *setavaḥ*—respect for the *varṇāśrama* institution; *yān*—which; *brāhmaṇāḥ*—the *brāhmaṇas*; *śraddadhate*—respect very much; *dhṛta-vratāḥ*—taking it as a vow.

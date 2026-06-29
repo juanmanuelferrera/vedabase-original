@@ -1,9 +1,9 @@
 ### CC Madhya 14.247
 
-> পাণ্ডু-বিজয়ের তুলি ফাটি-ফুটি যায় ।
+> পাণ্ডু-বিজয়ের তুলি ফাটি-ফুটি যায় ।\
 > জগন্নাথের ভরে তুলা উড়িয়া পলায় ॥২৪৭॥
 
-> pāṇḍu-vijayera tuli phāṭi-phuṭi yāya
+> pāṇḍu-vijayera tuli phāṭi-phuṭi yāya\
 > jagannāthera bhare tulā uḍiyā palāya
 
 *pāṇḍu-vijayera*—of the ceremony of Pāṇḍu-vijaya; *tuli*—batches of cotton; *phāṭi-phuṭi yāya*—become broken; *jagannāthera bhare*—by the weight of Lord Jagannātha; *tulā*—the cotton; *uḍiyā palāya*—floats in the air.

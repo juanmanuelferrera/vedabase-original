@@ -1,11 +1,11 @@
 ### SB 6.10.16
 
-> ततः सुराणामसुरै रणः परमदारुणः
+> ततः सुराणामसुरै रणः परमदारुणः\
 > त्रेतामुखे नर्मदायामभवत्प्रथमे युगे ॥१६॥
 
-> tataḥ surāṇām asurai
-> raṇaḥ parama-dāruṇaḥ
-> tretā-mukhe narmadāyām
+> tataḥ surāṇām asurai\
+> raṇaḥ parama-dāruṇaḥ\
+> tretā-mukhe narmadāyām\
 > abhavat prathame yuge
 
 *tataḥ*—como consecuencia; *surāṇām*—de los semidioses; *asuraiḥ*—con los demonios; *raṇaḥ*—una gran batalla; *parama-dāruṇaḥ*—muy espantosa; *tretā-mukhe*—al principio de Tretā-yuga; *narmadāyām*—a orillas del río Narmadā; *abhavat*—tuvo lugar; *prathame*—en el primer; *yuge*—milenio.

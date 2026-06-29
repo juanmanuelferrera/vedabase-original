@@ -1,11 +1,11 @@
 ### SB 3.18.20
 
-> दैत्यस्य यज्ञावयवस्य माया गृहीतवाराहतनोर्महात्मनः ।
+> दैत्यस्य यज्ञावयवस्य माया गृहीतवाराहतनोर्महात्मनः ।\
 > कौरव्य मह्यां द्विषतोर्विमर्दनं दिदृक्षुरागादृषिभिर्वृतः स्वराट् ॥२०॥
 
-> daityasya yajñāvayavasya māyā-
-> gṛhīta-vārāha-tanor mahātmanaḥ
-> kauravya mahyāṁ dviṣator vimardanaṁ
+> daityasya yajñāvayavasya māyā-\
+> gṛhīta-vārāha-tanor mahātmanaḥ\
+> kauravya mahyāṁ dviṣator vimardanaṁ\
 > didṛkṣur āgād ṛṣibhir vṛtaḥ svarāṭ
 
 *daityasya*—del demonio; *yajña-avayavasya*—de la Personalidad de Dios (de cuyo cuerpo es una parte el *yajña*); *māyā*—por medio de Su potencia; *gṛhīta*—fue adoptada; *vārāha*—de un jabalí; *tanoḥ*—cuya forma; *mahā-ātmanaḥ*—del Señor Supremo; *kauravya*—¡oh, Vidura (descendiente de Kuru)!; *mahyām*—disputándose el mundo; *dviṣatoḥ*—de los dos enemigos; *vimardanam*—el combate; *didṛkṣuḥ*—deseoso de ver; *āgāt*—fue; *ṛṣibhiḥ*—por los sabios; *vṛtaḥ*—acompañado; *svarāṭ*—Brahmā.

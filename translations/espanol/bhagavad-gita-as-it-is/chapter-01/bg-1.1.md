@@ -1,13 +1,13 @@
 ### Bg 1.1
 
-> धृतराष्ट्र उवाच ।
-> धर्मक्षेत्रे कुरुक्षेत्रे समवेता युयुत्सवः ।
+> धृतराष्ट्र उवाच ।\
+> धर्मक्षेत्रे कुरुक्षेत्रे समवेता युयुत्सवः ।\
 > मामकाः पाण्डवाश्चैव किमकुर्वत सञ्जय ॥१॥
 
-> dhṛtarāṣṭra uvāca
-> dharma-kṣetre kuru-kṣetre
-> samavetā yuyutsavaḥ
-> māmakāḥ pāṇḍavāś caiva
+> dhṛtarāṣṭra uvāca\
+> dharma-kṣetre kuru-kṣetre\
+> samavetā yuyutsavaḥ\
+> māmakāḥ pāṇḍavāś caiva\
 > kim akurvata sañjaya
 
 *dhṛtarāṣṭra*—el rey Dhṛtarāṣṭra; *uvāca*—dijo; *dharma-kṣetre*—en el lugar de peregrinaje; *kuru-kṣetre*—en el lugar llamado Kurukṣetra; *samavetāḥ*—reunidos; *yuyutsavaḥ*—deseando luchar; *māmakāḥ*—mi bando (hijos); *pāṇḍavāḥ*—los hijos de Pāṇḍu; *ca*—y; *eva*—ciertamente; *kim*—qué; *akurvata*—hicieron; *sañjaya*—¡oh, Sañjaya!

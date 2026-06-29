@@ -1,11 +1,11 @@
 ### SB 8.5.34
 
-> सोमं मनो यस्य समामनन्ति दिवौकसां यो बलमन्ध आयुः
+> सोमं मनो यस्य समामनन्ति दिवौकसां यो बलमन्ध आयुः\
 > ईशो नगानां प्रजनः प्रजानां प्रसीदतां नः स महाविभूतिः ॥३४॥
 
-> somaṁ mano yasya samāmananti
-> divaukasāṁ yo balam andha āyuḥ
-> īśo nagānāṁ prajanaḥ prajānāṁ
+> somaṁ mano yasya samāmananti\
+> divaukasāṁ yo balam andha āyuḥ\
+> īśo nagānāṁ prajanaḥ prajānāṁ\
 > prasīdatāṁ naḥ sa mahā-vibhūtiḥ
 
 *somam*—the moon; *manaḥ*—the mind; *yasya*—of whom (of the Supreme Personality of Godhead); *samāmananti*—they say; *divaukasām*—of the denizens of the upper planetary systems; *yaḥ*—who; *balam*—the strength; *andhaḥ*—the food grains; *āyuḥ*—the duration of life; *īśaḥ*—the Supreme Lord; *nagānām*—of the trees; *prajanaḥ*—the source of breeding; *prajānām*—of all living entities; *prasīdatām*—may He be pleased; *naḥ*—upon us; *saḥ*—that Supreme Personality of Godhead; *mahā-vibhūtiḥ*—the source of all opulences.

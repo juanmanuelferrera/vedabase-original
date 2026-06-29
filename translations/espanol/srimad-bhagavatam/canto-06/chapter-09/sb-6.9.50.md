@@ -1,11 +1,11 @@
 ### SB 6.9.50
 
-> स्वयं निःश्रेयसं विद्वान्न वक्त्यज्ञआय कर्म हि
+> स्वयं निःश्रेयसं विद्वान्न वक्त्यज्ञआय कर्म हि\
 > न राति रोगिणोऽपथ्यं वाञ्छतोऽपि भिषक्तमः ॥५०॥
 
-> svayaṁ niḥśreyasaṁ vidvān
-> na vakty ajñāya karma hi
-> na rāti rogiṇo 'pathyaṁ
+> svayaṁ niḥśreyasaṁ vidvān\
+> na vakty ajñāya karma hi\
+> na rāti rogiṇo 'pathyaṁ\
 > vāñchato 'pi bhiṣaktamaḥ
 
 *svayam*—personalmente; *niḥśreyasam*—el objetivo supremo de la vida, es decir, los medios de alcanzar amor extático por la Suprema Personalidad de Dios; *vit-vān*—el que está versado en el servicio devocional; *na*—no; *vakti*—enseña; *ajñāya*—a la persona necia que no está versada en el objetivo supremo de la vida; *karma*—actividades fruitivas; *hi*—en verdad; *na*—no; *rāti*—administra; *rogiṇaḥ*—al paciente; *apathyam*—algo que no se puede tomar; *vāñchataḥ*—deseando; *api*—aunque; *bhiṣak-tamaḥ*—el médico experto.

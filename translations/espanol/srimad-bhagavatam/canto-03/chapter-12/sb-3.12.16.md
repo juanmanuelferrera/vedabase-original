@@ -1,11 +1,11 @@
 ### SB 3.12.16
 
-> रुद्राणां रुद्रसृष्टानां समन्ताद्ग्रसतां जगत् ।
+> रुद्राणां रुद्रसृष्टानां समन्ताद्ग्रसतां जगत् ।\
 > निशाम्यासङ्ख्यशो यूथान्प्रजापतिरशङ्कत ॥१६॥
 
-> rudrāṇāṁ rudra-sṛṣṭānāṁ
-> samantād grasatāṁ jagat
-> niśāmyāsaṅkhyaśo yūthān
+> rudrāṇāṁ rudra-sṛṣṭānāṁ\
+> samantād grasatāṁ jagat\
+> niśāmyāsaṅkhyaśo yūthān\
 > prajāpatir aśaṅkata
 
 *rudrāṇām*—de los hijos de Rudra; *rudra-sṛṣṭānām*—a quienes Rudra generó; *samantāt*—habiéndose reunido; *grasatām*—mientras devoraban; *jagat*—el universo; *niśāmya*—observando sus actividades; *asaṅkhyaśaḥ*—ilimitados; *yūthān*—reunión; *prajā-patiḥ*—el padre de las entidades vivientes; *aśaṅkata*—se asustó de.

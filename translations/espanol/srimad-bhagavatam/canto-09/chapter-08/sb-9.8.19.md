@@ -1,11 +1,11 @@
 ### SB 9.8.19
 
-> अयोध्यावासिनः सर्वे बालकान्पुनरागतान
+> अयोध्यावासिनः सर्वे बालकान्पुनरागतान\
 > दृष्ट्वा विसिस्मिरे राजन्राजा चाप्यन्वतप्यत ॥१९॥
 
-> aṁśumāṁś codito rājñā
-> turagānveṣaṇe yayau
-> pitṛvya-khātānupathaṁ
+> aṁśumāṁś codito rājñā\
+> turagānveṣaṇe yayau\
+> pitṛvya-khātānupathaṁ\
 > bhasmānti dadṛśe hayam
 
 *aṁśumān*—el hijo de Asamañjasa; *coditaḥ*—a quien le fue ordenado; *rājñā*—por el rey; *turaga*—el caballo; *anveṣaṇe*—a buscar; *yayau*—salió; *pitṛvya-khāta*—descrito por los hermanos de su padre; *anupatham*—siguiendo aquel camino; *bhasma-anti*—cerca del montón de cenizas; *dadṛśe*—vio; *hayam*—el caballo.

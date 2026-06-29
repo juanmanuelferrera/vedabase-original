@@ -1,9 +1,9 @@
 ### CC Madhya 15.234
 
-> এইত আসনে বসি’ করহ ভোজন ।
+> এইত আসনে বসি’ করহ ভোজন ।\
 > প্রভু কহে, — পূজ্য এই কৃষ্ণের আসন ॥২৩৪॥
 
-> eita āsane vasi' karaha bhojana
+> eita āsane vasi' karaha bhojana\
 > prabhu kahe,—pūjya ei kṛṣṇera āsana
 
 *eita āsane*—on this sitting place; *vasi'*—sitting; *karaha bhojana*—take Your lunch; *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *pūjya*—worshipable; *ei*—this; *kṛṣṇera āsana*—sitting place of Kṛṣṇa.

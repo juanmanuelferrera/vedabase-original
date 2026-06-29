@@ -1,11 +1,11 @@
 ### SB 2.4.23
 
-> भूतैर्महद्भिर्य इमाः पुरो विभुर्निर्माय शेते यदमूषु पूरुषः ।
+> भूतैर्महद्भिर्य इमाः पुरो विभुर्निर्माय शेते यदमूषु पूरुषः ।\
 > भुङ्क्ते गुणान्षोडश षोडशात्मकः सोऽलङ्कृषीष्ट भगवान्वचांसि मे ॥२३॥
 
-> bhūtair mahadbhir ya imāḥ puro vibhur
-> nirmāya śete yad amūṣu pūruṣaḥ
-> bhuṅkte guṇān ṣoḍaśa ṣoḍaśātmakaḥ
+> bhūtair mahadbhir ya imāḥ puro vibhur\
+> nirmāya śete yad amūṣu pūruṣaḥ\
+> bhuṅkte guṇān ṣoḍaśa ṣoḍaśātmakaḥ\
 > so 'laṅkṛṣīṣṭa bhagavān vacāṁsi me
 
 *bhūtaiḥ*—por los elementos; *mahadbhiḥ*—de la creación material; *yaḥ*—Aquel que; *imāḥ*—todos estos; *puraḥ*—cuerpos; *vibhuḥ*—el Señor; *nirmāya*—para ser establecido; *śete*—se acuesta; *yat amūṣu*—aquel que se encarnó; *pūruṣaḥ*—el Señor Viṣṇu; *bhuṅkte*—hace que se someta; *guṇān*—las tres modalidades de la naturaleza; *ṣoḍaśa*—en dieciséis divisiones; *ṣoḍaśa-ātmakaḥ*—siendo el generador de esas dieciséis; *saḥ*—Él; *alaṅkṛṣīṣṭa*—que decore; *bhagavān*—la Personalidad de Dios; *vacāṁsi*—declaraciones; *me*—mías.

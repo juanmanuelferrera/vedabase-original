@@ -1,9 +1,9 @@
 ### CC Antya 3.184
 
-> চৌর-প্রেত-রাক্ষসাদির ভয় হয় নাশ  ।
+> চৌর-প্রেত-রাক্ষসাদির ভয় হয় নাশ  ।\
 > উদয় হৈলে ধর্ম-কর্ম-আদি পরকাশ ॥১৮৪॥
 
-> caura-preta-rākṣasādira bhaya haya nāśa
+> caura-preta-rākṣasādira bhaya haya nāśa\
 > udaya haile dharma-karma-ādi parakāśa
 
 *caura*—ladrones; *preta*—fantasmas; *rākṣasa*—demonios; *ādira*—de ellos y otros; *bhaya*—temor; *haya*—se; *nāśa*—destruido; *udaya haile*—cuando la salida del sol es realmente visible; *dharma-karma*—todas las actividades religiosas y principios regulativos; *ādi*—todo; *parakāśa*—se manifiesta.

@@ -1,9 +1,9 @@
 ### SB 5.24.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > अधस्तात्सवितुर्योजनायुते स्वर्भानुर्नक्षत्रवच्चरतीत्येके योऽसावमरत्वं ग्रहत्वंचालभत भगवदनुकम्पया स्वयमसुरापसदः सैंहिकेयो ह्यतदर्हस्तस्य तात जन्म कर्माणिचोपरिष्टाद्वक्ष्यामः ॥१॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > adhastāt savitur yojanāyute svarbhānur nakṣatravac caratīty eke yo 'sāv amaratvaṁ grahatvaṁ cālabhata bhagavad-anukampayā svayam asurāpasadaḥ saiṁhikeyo hy atad-arhas tasya tāta janma karmāṇi copariṣṭād vakṣyāmaḥ.
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *adhastāt*—below; *savituḥ*—the sun globe; *yojana*—a measurement equal to eight miles; *ayute*—ten thousand; *svarbhānuḥ*—the planet known as Rāhu; *nakṣatra-vat*—like one of the stars; *carati*—is rotating; *iti*—thus; *eke*—some who are learned in the *Purāṇas*; *yaḥ*—which; *asau*—that; *amaratvam*—a lifetime like those of the demigods; *grahatvam*—a position as one of the chief planets; *ca*—and; *alabhata*—obtained; *bhagavat-anukampayā*—by the compassion of the Supreme Personality of Godhead; *svayam*—personally; *asura-apasadaḥ*—the lowest of the *asuras*; *saiṁhikeyaḥ*—being the son of Siṁhikā; *hi*—indeed; *a-tat-arhaḥ*—not qualified for that position; *tasya*—his; *tāta*—O my dear King; *janma*—birth; *karmāṇi*—activities; *ca*—also; *upariṣṭāt*—later; *vakṣyāmaḥ*—I shall explain.

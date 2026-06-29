@@ -1,9 +1,9 @@
 ### CC Madhya 14.34
 
-> লেম্বু-কুল-আদি নানা-প্রকার আচার ।
+> লেম্বু-কুল-আদি নানা-প্রকার আচার ।\
 > লিখিতে না পারি প্রসাদ কতেক প্রকার ॥৩৪॥
 
-> lembu-kula-ādi nānā-prakāra ācāra
+> lembu-kula-ādi nānā-prakāra ācāra\
 > likhite nā pāri prasāda kateka prakāra
 
 *lembu*—lemon; *kula*—berries; *ādi*—and so on; *nānā-prakāra*—varieties of; *ācāra*—pickles; *likhite*—to write; *nā*—not; *pāri*—I am able; *prasāda*—food offered to Jagannātha; *kateka prakāra*—how many varieties.

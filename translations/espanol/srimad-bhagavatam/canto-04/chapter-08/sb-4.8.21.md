@@ -1,11 +1,11 @@
 ### SB 4.8.21
 
-> तथा मनुर्वो भगवान्पितामहो यमेकमत्या पुरुदक्षिणैर्मखैः ।
+> तथा मनुर्वो भगवान्पितामहो यमेकमत्या पुरुदक्षिणैर्मखैः ।\
 > इष्ट्वाभिपेदे दुरवापमन्यतो भौमं सुखं दिव्यमथापवर्ग्यम् ॥२१॥
 
-> tathā manur vo bhagavān pitāmaho
-> yam eka-matyā puru-dakṣiṇair makhaiḥ
-> iṣṭvābhipede duravāpam anyato
+> tathā manur vo bhagavān pitāmaho\
+> yam eka-matyā puru-dakṣiṇair makhaiḥ\
+> iṣṭvābhipede duravāpam anyato\
 > bhaumaṁ sukhaṁ divyam athāpavargyam
 
 *tathā*—de manera similar; *manuḥ*—Svāyambhuva Manu; *vaḥ*—tu; *bhagavān*—adorable; *pitāmahaḥ*—abuelo; *yam*—a quien; *eka-matyā*—con devoción inquebrantable; *puru*—grande; *dakṣiṇaiḥ*—caridad; *makhaiḥ*—celebrando sacrificios; *iṣṭvā*—adorando; *abhipede*—logró; *duravāpam*—difícil de conseguir; *anyataḥ*—por cualquier otro medio; *bhaumam*—material; *sukham*—felicidad; *divyam*—celestial; *atha*—a continuación; *āpavargyam*—liberación.

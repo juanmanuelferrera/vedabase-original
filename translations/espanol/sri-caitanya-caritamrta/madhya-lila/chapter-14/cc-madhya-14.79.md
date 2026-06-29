@@ -1,9 +1,9 @@
 ### CC Madhya 14.79
 
-> অদ্বৈত-নিত্যানন্দে জল-ফেলাফেলি ।
+> অদ্বৈত-নিত্যানন্দে জল-ফেলাফেলি ।\
 > আচার্য হারিয়া পাছে করে গালাগালি ॥৭৯॥
 
-> advaita-nityānande jala-phelāpheli
+> advaita-nityānande jala-phelāpheli\
 > ācārya hāriyā pāche kare gālāgāli
 
 *advaita-nityānande*—entre Advaita Ācārya y Nityānanda Prabhu; *jala-phelāpheli*—lanzamiento mutuo de agua; *ācārya hāriyā*—Advaita Ācārya, tras ser derrotado; *pāche*—al final; *kare*—hace; *gālāgāli*—acusaciones.

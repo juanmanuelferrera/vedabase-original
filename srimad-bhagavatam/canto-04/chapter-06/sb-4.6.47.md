@@ -1,11 +1,11 @@
 ### SB 4.6.47
 
-> पृथग्धियः कर्मदृशो दुराशयाः परोदयेनार्पितहृद्रुजोऽनिशम् ।
+> पृथग्धियः कर्मदृशो दुराशयाः परोदयेनार्पितहृद्रुजोऽनिशम् ।\
 > परान्दुरुक्तैर्वितुदन्त्यरुन्तुदास्तान्मावधीद्दैववधान्भवद्विधः ॥४७॥
 
-> pṛthag-dhiyaḥ karma-dṛśo durāśayāḥ
-> parodayenārpita-hṛd-rujo 'niśam
-> parān duruktair vitudanty aruntudās
+> pṛthag-dhiyaḥ karma-dṛśo durāśayāḥ\
+> parodayenārpita-hṛd-rujo 'niśam\
+> parān duruktair vitudanty aruntudās\
 > tān māvadhīd daiva-vadhān bhavad-vidhaḥ
 
 *pṛthak*—differently; *dhiyaḥ*—those who are thinking; *karma*—fruitive activities; *dṛśaḥ*—observer; *durāśayāḥ*—mean minded; *para-udayena*—by others' flourishing condition; *arpita*—given up; *hṛt*—heart; *rujaḥ*—anger; *aniśam*—always; *parān*—others; *duruktaiḥ*—harsh words; *vitudanti*—gives pain; *aruntudāḥ*—by piercing words; *tān*—unto them; *mā*—not; *avadhīt*—kill; *daiva*—by providence; *vadhān*—already killed; *bhavat*—you; *vidhaḥ*—like.

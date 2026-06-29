@@ -1,18 +1,18 @@
 ### SB 2.4.3-4
 
-> पप्रच्छ चेममेवार्थं यन्मां पृच्छथ सत्तमाः ।
-> कृष्णानुभावश्रवणे श्रद्दधानो महामनाः ॥३॥
-> संस्थां विज्ञाय सन्न्यस्य कर्म त्रैवर्गिकं च यत् ।
+> पप्रच्छ चेममेवार्थं यन्मां पृच्छथ सत्तमाः ।\
+> कृष्णानुभावश्रवणे श्रद्दधानो महामनाः ॥३॥\
+> संस्थां विज्ञाय सन्न्यस्य कर्म त्रैवर्गिकं च यत् ।\
 > वासुदेवे भगवति आत्मभावं दृढं गतः ॥४॥
 
-> papraccha cemam evārthaṁ
-> yan māṁ pṛcchatha sattamāḥ
-> kṛṣṇānubhāva-śravaṇe
+> papraccha cemam evārthaṁ\
+> yan māṁ pṛcchatha sattamāḥ\
+> kṛṣṇānubhāva-śravaṇe\
 > śraddadhāno mahā-manāḥ
 
-> saṁsthāṁ vijñāya sannyasya
-> karma trai-vargikaṁ ca yat
-> vāsudeve bhagavati
+> saṁsthāṁ vijñāya sannyasya\
+> karma trai-vargikaṁ ca yat\
+> vāsudeve bhagavati\
 > ātma-bhāvaṁ dṛḍhaṁ gataḥ
 
 *papraccha*—preguntó; *ca*—además; *imam*—esto; *eva*—tal como; *artham*—propósito; *yat*—eso; *mām*—a mí; *pṛcchatha*—están preguntando; *sattamāḥ*—¡oh, grandes sabios!; *kṛṣṇa-anubhāva*—absorto en pensar en Kṛṣṇa; *śravaṇe*—en oír; *śraddadhānaḥ*—lleno de fe; *mahā-manāḥ*—la gran alma; *saṁsthām*—muerte; *vijñāya*—siendo informado; *sannyasya*—renunciando; *karma*—actividades fruitivas; *trai-vargikam*—los tres principios constituidos por la religión, el desarrollo económico y la complacencia de los sentidos; *ca*—también; *yat*—lo que pueda ser; *vāsudeve*—al Señor Kṛṣṇa; *bhagavati*—la Personalidad de Dios; *ātma-bhāvam*—atracción de amor; *dṛḍham*—firmemente fijo; *gataḥ*—alcanzó.

@@ -1,11 +1,11 @@
 ### SB 3.22.11
 
-> तत्प्रतीच्छ द्विजाग्र्येमां श्रद्धयोपहृतां मया ।
+> तत्प्रतीच्छ द्विजाग्र्येमां श्रद्धयोपहृतां मया ।\
 > सर्वात्मनानुरूपां ते गृहमेधिषु कर्मसु ॥११॥
 
-> tat pratīccha dvijāgryemāṁ
-> śraddhayopahṛtāṁ mayā
-> sarvātmanānurūpāṁ te
+> tat pratīccha dvijāgryemāṁ\
+> śraddhayopahṛtāṁ mayā\
+> sarvātmanānurūpāṁ te\
 > gṛhamedhiṣu karmasu
 
 *tat*—así pues; *pratīccha*—por favor, acepta; *dvija-agrya*—¡oh, el mejor de los *brāhmaṇas*!; *imām*—a ella; *śraddhayā*—con fe; *upahṛtām*—ofrecida como un presente; *mayā*—por mí; *sarva-ātmanā*—en todo aspecto; *anurūpām*—apta; *te*—para ti; *gṛha-medhiṣu*—en los domésticos; *karmasu*—deberes.

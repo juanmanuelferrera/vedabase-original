@@ -1,11 +1,11 @@
 ### Bg 2.14
 
-> मात्रास्पर्शास्तु कौन्तेय शीतोष्णसुखदुःखदाः ।
+> मात्रास्पर्शास्तु कौन्तेय शीतोष्णसुखदुःखदाः ।\
 > आगमापायिनोऽनित्यास्तांस्तितिक्षस्व भारत ॥१४॥
 
-> mātrā-sparśās tu kaunteya
-> śītoṣṇa-sukha-duḥkha-dāḥ
-> āgamāpāyino'nityās
+> mātrā-sparśās tu kaunteya\
+> śītoṣṇa-sukha-duḥkha-dāḥ\
+> āgamāpāyino'nityās\
 > tāṁs titikṣasva bhārata
 
 *mātrā*—sensual; *sparśāḥ*—percepción; *tu*—únicamente; *kaunteya*—¡oh hijo de Kuntī!; *śīta*—invierno; *uṣṇa*—verano; *sukha*—felicidad; *duḥkhadāḥ*—causando dolor; *āgama*—apareciendo; *apāyinaḥ*—desapareciendo; *anityāḥ*—no permanente; *tān*—todos ellos; *titikṣasva*—tan solo trata de tolerar; *bhārata*—¡oh, descendiente de la dinastía Bhārata!

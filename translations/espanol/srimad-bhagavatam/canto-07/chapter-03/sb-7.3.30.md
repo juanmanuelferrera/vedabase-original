@@ -1,11 +1,11 @@
 ### SB 7.3.30
 
-> त्वं सप्ततन्तून्वितनोषि तन्वा त्रय्या चतुर्होत्रकविद्यया च
+> त्वं सप्ततन्तून्वितनोषि तन्वा त्रय्या चतुर्होत्रकविद्यया च\
 > त्वमेक आत्मात्मवतामनादिरनन्तपारः कविरन्तरात्मा ॥३०॥
 
-> tvaṁ sapta-tantūn vitanoṣi tanvā
-> trayyā catur-hotraka-vidyayā ca
-> tvam eka ātmātmavatām anādir
+> tvaṁ sapta-tantūn vitanoṣi tanvā\
+> trayyā catur-hotraka-vidyayā ca\
+> tvam eka ātmātmavatām anādir\
 > ananta-pāraḥ kavir antarātmā
 
 *tvam*—tú; *sapta-tantūn*—los siete tipos de ceremonias rituales védicas, comenzando con el *agniṣṭoma-yajña*; *vitanoṣi*—difundidos; *tanvā*—con tu cuerpo; *trayyā*—los tres *Vedas*; *catuḥ-hotraka*—de los cuatro tipos de sacerdotes védicos, conocidos con los nombres de *hotā*, *adhvaryu*, *brahma* y *udgātā*; *vidyayā*—con el conocimiento necesario; *ca*—también; *tvam*—tú; *ekaḥ*—uno; *ātmā*—la Superalma; *ātma-vatām*—de todas las entidades vivientes; *anādiḥ*—sin principio; *ananta-pāraḥ*—sin final; *kaviḥ*—el inspirador supremo; *antaḥ-ātmā*—la Superalma que está en lo más profundo del corazón.

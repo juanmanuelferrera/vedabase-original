@@ -1,11 +1,11 @@
 ### SB 5.18.13
 
-> हरिर्हि साक्षाद्भगवान्शरीरिणामात्मा झषाणामिव तोयमीप्सितम
+> हरिर्हि साक्षाद्भगवान्शरीरिणामात्मा झषाणामिव तोयमीप्सितम\
 > हित्वा महांस्तं यदि सज्जते गृहे तदा महत्त्वं वयसा दम्पतीनाम ॥१३॥
 
-> harir hi sākṣād bhagavān śarīriṇām
-> ātmā jhaṣāṇām iva toyam īpsitam
-> hitvā mahāṁs taṁ yadi sajjate gṛhe
+> harir hi sākṣād bhagavān śarīriṇām\
+> ātmā jhaṣāṇām iva toyam īpsitam\
+> hitvā mahāṁs taṁ yadi sajjate gṛhe\
 > tadā mahattvaṁ vayasā dampatīnām
 
 *hariḥ*—el Señor; *hi*—ciertamente; *sākṣāt*—directamente; *bhagavān*—la Suprema Personalidad de Dios; *śarīriṇām*—de todas las entidades vivientes que han recibido cuerpos materiales; *ātmā*—la vida y el alma; *jhaṣāṇām*—de los seres acuáticos; *iva*—como; *toyam*—vastas extensiones de agua; *īpsitam*—es deseada; *hitvā*—abandonando; *mahān*—una gran personalidad; *tam*—a Él; *yadi*—si; *sajjate*—se apega; *gṛhe*—a la vida familiar; *tadā*—en ese momento; *mahattvam*—grandeza; *vayasā*—por la edad; *dam-patīnām*—de los esposos.

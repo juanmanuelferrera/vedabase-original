@@ -1,9 +1,9 @@
 ### CC Madhya 16.109
 
-> রাজ-পাত্রগণ কৈল প্রভুর বন্দন ।
+> রাজ-পাত্রগণ কৈল প্রভুর বন্দন ।\
 > রাজারে বিদায় দিলা শচীর নন্দন ॥১০৯॥
 
-> rāja-pātra-gaṇa kaila prabhura vandana
+> rāja-pātra-gaṇa kaila prabhura vandana\
 > rājāre vidāya dilā śacīra nandana
 
 *rāja-pātra-gaṇa*—the officers of the King; *kaila*—did; *prabhura vandana*—glorifying the Lord; *rājāre*—unto the King; *vidāya dilā*—bade farewell; *śacīra nandana*—the son of mother Śacī.

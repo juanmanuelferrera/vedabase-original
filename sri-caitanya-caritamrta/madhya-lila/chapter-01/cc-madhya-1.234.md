@@ -1,9 +1,9 @@
 ### CC Madhya 1.234
 
-> তাঁর আজ্ঞা লঞা পুনঃ করিলা গমনে ।
+> তাঁর আজ্ঞা লঞা পুনঃ করিলা গমনে ।\
 > বিনয় করিয়া বিদায় দিল ভক্তগণে ॥২৩৪॥
 
-> tāṅra ājñā lañā punaḥ karilā gamane
+> tāṅra ājñā lañā punaḥ karilā gamane\
 > vinaya kariyā vidāya dila bhakta-gaṇe
 
 *tāṅra ājñā lañā*—taking the permission of mother Śacīdevī; *punaḥ*—again; *karilā*—did; *gamane*—starting; *vinayakariyā*—by submitting pleasing words; *vidāya*—farewell; *dila*—gave; *bhakta-gaṇe*—to all the devotees.

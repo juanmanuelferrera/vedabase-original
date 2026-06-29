@@ -1,9 +1,9 @@
 ### CC Adi 3.16
 
-> ঐশ্বর্যজ্ঞানেতে সব জগৎ মিশ্রিত ।
+> ঐশ্বর্যজ্ঞানেতে সব জগৎ মিশ্রিত ।\
 > ঐশ্বর্য-শিথিল-প্রেমে নাহি মোর প্রীত ॥১৬॥
 
-> aiśvarya-jñānete saba jagat miśrita
+> aiśvarya-jñānete saba jagat miśrita\
 > aiśvarya-śithila-preme nāhi mora prīta
 
 *aiśvarya-jñānete*—with knowledge of the opulences; *saba*—all; *jagat*—the world; *miśrita*—mixed; *aiśvarya-śithila-preme*—to love enfeebled by opulence; *nāhi*—there is not; *mora*—My; *prīta*—attraction.

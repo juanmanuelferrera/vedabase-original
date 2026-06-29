@@ -1,11 +1,11 @@
 ### SB 3.32.16
 
-> ये त्विहासक्तमनसः कर्मसु श्रद्धयान्विताः ।
+> ये त्विहासक्तमनसः कर्मसु श्रद्धयान्विताः ।\
 > कुर्वन्त्यप्रतिषिद्धानि नित्यान्यपि च कृत्स्नशः ॥१६॥
 
-> ye tv ihāsakta-manasaḥ
-> karmasu śraddhayānvitāḥ
-> kurvanty apratiṣiddhāni
+> ye tv ihāsakta-manasaḥ\
+> karmasu śraddhayānvitāḥ\
+> kurvanty apratiṣiddhāni\
 > nityāny api ca kṛtsnaśaḥ
 
 *ye*—los que; *tu*—pero; *iha*—en este mundo; *āsakta*—adictos; *manasaḥ*—cuyas mentes; *karmasu*—a las actividades fruitivas; *śraddhayā*—con fe; *anvitāḥ*—dotadas; *kurvanti*—ejecutan; *apratiṣiddhāni*—con apego al resultado; *nityāni*—deberes prescritos; *api*—ciertamente; *ca*—y; *kṛtsnaśaḥ*—repetidamente.

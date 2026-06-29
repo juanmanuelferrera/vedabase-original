@@ -1,9 +1,9 @@
 ### CC Antya 2.105
 
-> প্রভু লেখা করে যারে — রাধিকার ‘গণ’  ।
+> প্রভু লেখা করে যারে — রাধিকার ‘গণ’  ।\
 > জগতের মধ্যে ‘পাত্র’ — সাড়ে তিন জন ॥১০৫॥
 
-> prabhu lekhā kare yāre--rādhikāra 'gaṇa'
+> prabhu lekhā kare yāre--rādhikāra 'gaṇa'\
 > jagatera madhye 'pātra'--sāḍe tina jana
 
 *prabhu*—Śrī Caitanya Mahāprabhu; *lekhā kare*—la acepta; *yāre*—a quien; *rādhikāra gaṇa*—como una de las asociadas de Śrīmatī Rādhārāṇī; *jagatera madhye*—en todo el mundo; *pātra*—devotos más confidenciales; *sāḍe tina*—tres y medio; *jana*—personas.

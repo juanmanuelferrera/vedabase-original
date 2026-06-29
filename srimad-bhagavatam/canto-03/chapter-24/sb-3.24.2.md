@@ -1,13 +1,13 @@
 ### SB 3.24.2
 
-> ऋषिरुवाच
-> मा खिदो राजपुत्रीत्थमात्मानं प्रत्यनिन्दिते ।
+> ऋषिरुवाच\
+> मा खिदो राजपुत्रीत्थमात्मानं प्रत्यनिन्दिते ।\
 > भगवांस्तेऽक्षरो गर्भमदूरात्सम्प्रपत्स्यते ॥२॥
 
-> ṛṣir uvāca
-> mā khido rāja-putrīttham
-> ātmānaṁ praty anindite
-> bhagavāṁs te 'kṣaro garbham
+> ṛṣir uvāca\
+> mā khido rāja-putrīttham\
+> ātmānaṁ praty anindite\
+> bhagavāṁs te 'kṣaro garbham\
 > adūrāt samprapatsyate
 
 *ṛṣiḥ uvāca*—the sage said; *mā khidaḥ*—do not be disappointed; *rāja-putri*—O princess; *ittham*—in this way; *ātmānam*—yourself; *prati*—toward; *anindite*—O praiseworthy Devahūti; *bhagavān*—the Supreme Personality of Godhead; *te*—your; *akṣaraḥ*—infallible; *garbham*—womb; *adūrāt*—without delay; *samprapatsyate*—will enter.

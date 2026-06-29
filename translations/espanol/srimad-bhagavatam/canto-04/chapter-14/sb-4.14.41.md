@@ -1,11 +1,11 @@
 ### SB 4.14.41
 
-> ब्राह्मणः समदृक्षान्तो दीनानां समुपेक्षकः ।
+> ब्राह्मणः समदृक्षान्तो दीनानां समुपेक्षकः ।\
 > स्रवते ब्रह्म तस्यापि भिन्नभाण्डात्पयो यथा ॥४१॥
 
-> brāhmaṇaḥ sama-dṛk śānto
-> dīnānāṁ samupekṣakaḥ
-> sravate brahma tasyāpi
+> brāhmaṇaḥ sama-dṛk śānto\
+> dīnānāṁ samupekṣakaḥ\
+> sravate brahma tasyāpi\
 > bhinna-bhāṇḍāt payo yathā
 
 *brāhmaṇaḥ*—un *brāhmaṇa*; *sama-dṛk*—equilibrado; *śāntaḥ*—pacífico; *dīnānām*—a los pobres; *samupekṣakaḥ*—ignorar pasando por alto; *sravate*—hace disminuir; *brahma*—poder espiritual; *tasya*—su; *api*—ciertamente; *bhinna-bhāṇḍāt*—de un cántaro resquebrajado; *payaḥ*—agua; *yathā*—tal como.

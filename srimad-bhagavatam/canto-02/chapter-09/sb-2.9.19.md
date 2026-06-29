@@ -1,11 +1,11 @@
 ### SB 2.9.19
 
-> तं प्रीयमाणं समुपस्थितं कविं प्रजाविसर्गे निजशासनार्हणम् ।
+> तं प्रीयमाणं समुपस्थितं कविं प्रजाविसर्गे निजशासनार्हणम् ।\
 > बभाष ईषत्स्मितशोचिषा गिरा प्रियः प्रियं प्रीतमनाः करे स्पृशन् ॥१९॥
 
-> taṁ prīyamāṇaṁ samupasthitaṁ kaviṁ
-> prajā-visarge nija-śāsanārhaṇam
-> babhāṣa īṣat-smita-śociṣā girā
+> taṁ prīyamāṇaṁ samupasthitaṁ kaviṁ\
+> prajā-visarge nija-śāsanārhaṇam\
+> babhāṣa īṣat-smita-śociṣā girā\
 > priyaḥ priyaṁ prīta-manāḥ kare spṛśan
 
 *tam*—unto Lord Brahmā; *prīyamāṇam*—worthy of being dear; *samupasthitam*—present before; *kavim*—the great scholar; *prajā*—living entities; *visarge*—in the matter of creation; *nija*—His own; *śāsana*—control; *arhaṇam*—just suitable; *babhāṣe*—addressed; *īṣat*—mild; *smita*—smiling; *śociṣā*—with enlightening; *girā*—words; *priyaḥ*—the beloved; *priyam*—the counterpart of love; *prīta-manāḥ*—being very much pleased; *kare*—by the hand; *spṛśan*—shaking.

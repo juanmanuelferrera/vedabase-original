@@ -1,11 +1,11 @@
 ### Bg 7.19
 
-> बहूनां जन्मनामन्ते ज्ञानवान्मां प्रपद्यते ।
+> बहूनां जन्मनामन्ते ज्ञानवान्मां प्रपद्यते ।\
 > वासुदेवः सर्वमिति स महात्मा सुदुर्लभः ॥१९॥
 
-> bahūnāṁ janmanām ante
-> jñānavān māṁ prapadyate
-> vāsudevaḥ sarvam iti
+> bahūnāṁ janmanām ante\
+> jñānavān māṁ prapadyate\
+> vāsudevaḥ sarvam iti\
 > sa mahātmā sudurlabhaḥ
 
 *bahūnām*—muchos; *janmanām*—nacimientos; *ante*—después; *jñānavān*—aquel que tiene conocimiento; *mām*—a Mí; *prapadyate*—se entrega; *vāsudevaḥ*—la causa de todas las causas; *sarvam*—todo; *iti*—así pues; *saḥ*—dicha; *mahātmā*—gran alma; *sudurlabhaḥ*—muy difícil de encontrar.

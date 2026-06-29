@@ -1,13 +1,13 @@
 ### CC Madhya 21.116
 
-> তাতে সাক্ষী সেই রমা, নারায়ণের প্রিয়তমা,
-> পতিব্রতাগণের উপাস্যা ।
-> তিঁহো যে মাধুর্যলোভে, ছাড়ি’ সব কামভোগে,
+> তাতে সাক্ষী সেই রমা, নারায়ণের প্রিয়তমা,\
+> পতিব্রতাগণের উপাস্যা ।\
+> তিঁহো যে মাধুর্যলোভে, ছাড়ি’ সব কামভোগে,\
 > ব্রত করি’ করিলা তপস্যা ॥১১৬॥
 
-> tāte sākṣī sei ramā, nārāyaṇera priyatamā,
-> pativratā-gaṇera upāsyā
-> tiṅho ye mādhurya-lobhe, chāḍi' saba kāma-bhoge,
+> tāte sākṣī sei ramā, nārāyaṇera priyatamā,\
+> pativratā-gaṇera upāsyā\
+> tiṅho ye mādhurya-lobhe, chāḍi' saba kāma-bhoge,\
 > vrata kari' karilā tapasyā
 
 *tāte*—a este respecto; *sākṣī*—la evidencia; *sei ramā*—esa diosa de la fortuna; *nārāyaṇera priya-tamā*—la consorte más querida de Nārāyaṇa; *pati-vratā-gaṇera*—de todas las mujeres castas; *upāsyā*—adorable; *tiṅho*—ella; *ye*—esa; *mādhurya-lobhe*—atraída por la misma dulzura; *chāḍi'*—abandonando; *saba*—todo; *kāma-bhoge*—para disfrutar con Kṛṣṇa; *vrata kari'*—haciendo un voto; *karilā tapasyā*—ejecutó austeridades.

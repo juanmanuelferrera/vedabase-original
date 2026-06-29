@@ -1,9 +1,9 @@
 ### CC Antya 6.96
 
-> পুষ্পমালা বিপ্র আনি’ প্রভু-গলে দিল ।
+> পুষ্পমালা বিপ্র আনি’ প্রভু-গলে দিল ।\
 > চন্দন আনি প্রভুর সর্বাঙ্গে লেপিল ॥৯৬॥
 
-> puṣpa-mālā vipra āni' prabhu-gale dila
+> puṣpa-mālā vipra āni' prabhu-gale dila\
 > candana āniyā prabhura sarvāṅge lepila
 
 *puṣpa-mālā*—una guirnalda de flores; *vipra*—un *brāhmaṇa*; *āni'*—trayendo; *prabhu-gale*—en el cuello del Señor Nityānanda Prabhu; *dila*—colocó; *candana āniyā*—trayendo pasta de sándalo; *prabhura*—del Señor Nityānanda Prabhu; *sarvāṅge lepila*—untó por todo el cuerpo.

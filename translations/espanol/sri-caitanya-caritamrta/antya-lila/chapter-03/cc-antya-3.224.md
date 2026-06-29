@@ -1,9 +1,9 @@
 ### CC Antya 3.224
 
-> কৃষ্ণে অবতারিতে অদ্বৈত প্রতিজ্ঞা করিলা ।
+> কৃষ্ণে অবতারিতে অদ্বৈত প্রতিজ্ঞা করিলা ।\
 > জল-তুলসী দিয়া পূজা করিতে লাগিলা ॥২২৪॥
 
-> kṛṣṇe avatārite advaita pratijñā karilā
+> kṛṣṇe avatārite advaita pratijñā karilā\
 > jala-tulasī diyā pūjā karite lāgilā
 
 *kṛṣṇe*—al Señor Kṛṣṇa; *avatārite*—para hacer descender; *advaita*—Advaita Ācārya; *pratijñā*—promesa; *karilā*—hizo; *jala-tulasī*—agua del Ganges y hojas de tulasī; *diyā*—ofreciendo; *pūjā*—adoración; *karite*—para hacer; *lāgilā*—comenzó.

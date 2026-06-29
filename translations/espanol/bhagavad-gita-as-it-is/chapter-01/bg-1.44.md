@@ -1,11 +1,11 @@
 ### Bg 1.44
 
-> अहो बत महत्पापं कर्तुं व्यवसिता वयम् ।
+> अहो बत महत्पापं कर्तुं व्यवसिता वयम् ।\
 > यद्राज्यसुखलोभेन हन्तुं स्वजनमुद्यताः ॥४४॥
 
-> aho bata mahat-pāpaṁ
-> kartuṁ vyavasitā vayam
-> yad rājya-sukha-lobhena
+> aho bata mahat-pāpaṁ\
+> kartuṁ vyavasitā vayam\
+> yad rājya-sukha-lobhena\
 > hantuṁ svajanam udyatāḥ
 
 *aho*—¡ay de mí!; *bata*—qué extraño es; *mahat*—gran; *pāpam*—pecados; *kartum*—hacer; *vyavasitāḥ*—decidido; *vayam*—nosotros; *yat*—para que; *rājya*—reino; *sukha-lobhena*—impulsado por la codicia de felicidad imperial; *hantum*—matar; *svajanam*—familiares; *udyatāḥ*—esforzándonos.

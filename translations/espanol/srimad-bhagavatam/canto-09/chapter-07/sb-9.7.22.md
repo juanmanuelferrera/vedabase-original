@@ -1,11 +1,11 @@
 ### SB 9.7.22
 
-> मुक्तोदरोऽयजद्देवान्वरुणादीन्महत्कथः
+> मुक्तोदरोऽयजद्देवान्वरुणादीन्महत्कथः\
 > विश्वामित्रोऽभवत्तस्मिन्होता चाध्वर्युरात्मवान ॥२२॥
 
-> viśvāmitro 'bhavat tasmin
-> hotā cādhvaryur ātmavān
-> jamadagnir abhūd brahmā
+> viśvāmitro 'bhavat tasmin\
+> hotā cādhvaryur ātmavān\
+> jamadagnir abhūd brahmā\
 > vasiṣṭho 'yāsyaḥ sāma-gaḥ
 
 *viśvāmitraḥ*—el gran sabio y místico Viśvāmitra; *abhavat*—actuó como; *tasmin*—en aquel gran sacrificio; *hotā*—el sumo sacerdote que ofrecía oblaciones; *ca*—también; *adhvaryuḥ*—la persona que recita himnos del *Yajur Veda* y ejecuta ceremonias rituales; *ātmavān*—plenamente autorrealizado; *jamadagniḥ*—Jamadagni; *abhūt*—fue; *brahmā*—como *brāhmaṇa* principal; *vasiṣṭhaḥ*—el gran sabio; *ayāsyaḥ*—otro gran sabio; *sāma-gaḥ*—ocupado en recitar los *mantras* del *Sāma Veda*.

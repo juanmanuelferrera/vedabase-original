@@ -1,9 +1,9 @@
 ### CC Adi 15.10
 
-> শচী কহে, — না খাইব, ভালই কহিলা ।
+> শচী কহে, — না খাইব, ভালই কহিলা ।\
 > সেই হৈতে একাদশী করিতে লাগিলা ॥১০॥
 
-> śacī kahe,--nā khāiba, bhāla-i kahilā
+> śacī kahe,--nā khāiba, bhāla-i kahilā\
 > sei haite ekādaśī karite lāgilā
 
 *śacī kahe*—la madre Śacī dijo; *nā khāiba*—no tomaré; *bhāla-i kahilā*—has hablado muy bien; *sei haite*—a partir de ese día; *ekādaśī*—el día de Ekādaśī; *karite lāgilā*—comenzó a observar.

@@ -1,11 +1,11 @@
 ### SB 3.29.9
 
-> विषयानभिसन्धाय यश ऐश्वर्यमेव वा ।
+> विषयानभिसन्धाय यश ऐश्वर्यमेव वा ।\
 > अर्चादावर्चयेद्यो मां पृथग्भावः स राजसः ॥९॥
 
-> viṣayān abhisandhāya
-> yaśa aiśvaryam eva vā
-> arcādāv arcayed yo māṁ
+> viṣayān abhisandhāya\
+> yaśa aiśvaryam eva vā\
+> arcādāv arcayed yo māṁ\
 > pṛthag-bhāvaḥ sa rājasaḥ
 
 *viṣayān*—objetos de los sentidos; *abhisandhāya*—apuntando a; *yaśaḥ*—fama; *aiśvaryam*—opulencia; *eva*—en verdad; *vā*—o; *arcā-ādau*—en adoración de la Deidad, etc.; *arcayet*—que adore; *yaḥ*—aquel que; *mām*—a Mí; *pṛthak-bhāvaḥ*—un separatista; *saḥ*—él; *rājasaḥ*—en la modalidad de la pasión.

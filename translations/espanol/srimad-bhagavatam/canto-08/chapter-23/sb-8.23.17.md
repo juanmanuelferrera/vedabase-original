@@ -1,11 +1,11 @@
 ### SB 8.23.17
 
-> तथापि वदतो भूमन्करिष्याम्यनुशासनम
+> तथापि वदतो भूमन्करिष्याम्यनुशासनम\
 > एतच्छ्रेयः परं पुंसां यत्तवाज्ञआनुपालनम ॥१७॥
 
-> tathāpi vadato bhūman
-> kariṣyāmy anuśāsanam
-> etac chreyaḥ paraṁ puṁsāṁ
+> tathāpi vadato bhūman\
+> kariṣyāmy anuśāsanam\
+> etac chreyaḥ paraṁ puṁsāṁ\
 > yat tavājñānupālanam
 
 *tathāpi*—aunque Bali Mahārāja estaba libre de culpa; *vadataḥ*—debido a Tu orden; *bhūman*—¡oh, Supremo!; *kariṣyāmi*—yo debo cumplir; *anuśāsanam*—pues es Tu orden; *etat*—esto es; *śreyaḥ*—lo que es lo más auspicioso; *param*—supremo; *puṁsām*—de todas las personas; *yat*—puesto que; *tava ājñā-anupālanam*—obedecer Tu orden.

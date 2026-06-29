@@ -1,11 +1,11 @@
 ### SB 3.5.21
 
-> भवान्भगवतो नित्यं सम्मतः सानुगस्य ह ।
+> भवान्भगवतो नित्यं सम्मतः सानुगस्य ह ।\
 > यस्य ज्ञानोपदेशाय मादिशद्भगवान्व्रजन् ॥२१॥
 
-> bhavān bhagavato nityaṁ
-> sammataḥ sānugasya ha
-> yasya jñānopadeśāya
+> bhavān bhagavato nityaṁ\
+> sammataḥ sānugasya ha\
+> yasya jñānopadeśāya\
 > mādiśad bhagavān vrajan
 
 *bhavān*—tu buena persona; *bhagavataḥ*—de la Personalidad de Dios; *nityam*—eterno; *sammataḥ*—reconocido; *sa-anugasya*—uno de los compañeros; *ha*—ha sido; *yasya*—de quien; *jñāna*—conocimiento; *upadeśāya*—para instruir; *mā*—a mí; *ādiśat*—así ordenado; *bhagavān*—la Personalidad de Dios; *vrajan*—mientras regresaba a Su morada.

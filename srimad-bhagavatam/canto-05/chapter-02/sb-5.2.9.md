@@ -1,13 +1,13 @@
 ### SB 5.2.9
 
-> शिष्या इमे भगवतः परितः पठन्ति
-> गायन्ति साम सरहस्यमजस्रमीशम
-> युष्मच्छिखाविलुलिताः सुमनोऽभिवृष्टीः
+> शिष्या इमे भगवतः परितः पठन्ति\
+> गायन्ति साम सरहस्यमजस्रमीशम\
+> युष्मच्छिखाविलुलिताः सुमनोऽभिवृष्टीः\
 > सर्वे भजन्त्यृषिगणा इव वेदशाखाः ॥९॥
 
-> śiṣyā ime bhagavataḥ paritaḥ paṭhanti
-> gāyanti sāma sarahasyam ajasram īśam
-> yuṣmac-chikhā-vilulitāḥ sumano 'bhivṛṣṭīḥ
+> śiṣyā ime bhagavataḥ paritaḥ paṭhanti\
+> gāyanti sāma sarahasyam ajasram īśam\
+> yuṣmac-chikhā-vilulitāḥ sumano 'bhivṛṣṭīḥ\
 > sarve bhajanty ṛṣi-gaṇā iva veda-śākhāḥ
 
 *śiṣyāḥ*—disciples, followers; *ime*—these; *bhagavataḥ*—of your worshipable self; *paritaḥ*—surrounding; *paṭhanti*—are reciting; *gāyanti*—are singing; *sāma*—the *Sāma Veda*; *sa-rahasyam*—with the confidential portion; *ajasram*—incessantly; *īśam*—unto the Lord; *yuṣmat*—your; *śikhā*—from bunches of hair; *vilulitāḥ*—fallen; *sumanaḥ*—of flowers; *abhivṛṣṭīḥ*—showers; *sarve*—all; *bhajanti*—enjoy, resort to; *ṛṣi-gaṇāḥ*—sages; *iva*—like; *veda-śākhāḥ*—branches of Vedic literature.

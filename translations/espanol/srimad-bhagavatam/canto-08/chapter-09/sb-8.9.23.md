@@ -1,11 +1,11 @@
 ### SB 8.9.23
 
-> तस्यां कृतातिप्रणयाः प्रणयापायकातराः
+> तस्यां कृतातिप्रणयाः प्रणयापायकातराः\
 > बहुमानेन चाबद्धा नोचुः किञ्चन विप्रियम ॥२३॥
 
-> tasyāṁ kṛtātipraṇayāḥ
-> praṇayāpāya-kātarāḥ
-> bahu-mānena cābaddhā
+> tasyāṁ kṛtātipraṇayāḥ\
+> praṇayāpāya-kātarāḥ\
+> bahu-mānena cābaddhā\
 > nocuḥ kiñcana vipriyam
 
 *tasyām*—de Mohinī-mūrti; *kṛta-ati-praṇayāḥ*—debido a la firme amistad; *praṇaya-apāya-kātarāḥ*—temerosos de que su amistad con Ella se rompiese; *bahu-mānena*—con gran respeto y honor; *ca*—también; *ābaddhāḥ*—estando demasiado apegados a Ella; *na*—no; *ūcuḥ*—dijeron; *kiñcana*—la más mínima palabra; *vipriyam*—por la que Mohinī-mūrti pudiera disgustarse con ellos.

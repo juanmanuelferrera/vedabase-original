@@ -1,9 +1,9 @@
 ### CC Madhya 24.312
 
-> ‘একষষ্টি’ অর্থ এবে স্ফুরিল তোমা-সঙ্গে ।
+> ‘একষষ্টি’ অর্থ এবে স্ফুরিল তোমা-সঙ্গে ।\
 > তোমার ভক্তিবশে উঠে অর্থের তরঙ্গে ॥৩১২॥
 
-> 'eka-ṣaṣṭi' artha ebe sphurila tomā-saṅge
+> 'eka-ṣaṣṭi' artha ebe sphurila tomā-saṅge\
 > tomāra bhakti-vaśe uṭhe arthera taraṅge
 
 *eka-ṣaṣṭi*—sixty-one; *artha*—imports; *ebe*—now; *sphurila*—has awakened; *tomā-saṅge*—because of your association; *tomāra*—your; *bhakti-vaśe*—by dint of devotional service; *uṭhe*—there arises; *arthera*—of imports; *taraṅge*—waves.

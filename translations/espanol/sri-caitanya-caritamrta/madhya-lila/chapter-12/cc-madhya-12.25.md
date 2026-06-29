@@ -1,9 +1,9 @@
 ### CC Madhya 12.25
 
-> তোমা-সবার আজ্ঞায় আমি না মিলি রাজারে  ।
+> তোমা-সবার আজ্ঞায় আমি না মিলি রাজারে  ।\
 > দামোদর কহে যবে, মিলি তবে তাঁরে ॥২৫॥
 
-> tomā-sabāra ājñāya āmi nā mili rājāre
+> tomā-sabāra ājñāya āmi nā mili rājāre\
 > dāmodara kahe yabe, mili tabe tāṅre
 
 *tomā-sabāra*—de todos vosotros; *ājñāya*—por la orden; *āmi*—Yo; *nā*—no; *mili*—Me reuniré; *rājāre*—con el rey; *dāmodara*—Dāmodara Paṇḍita; *kahe*—dice; *yabe*—cuando; *mili*—Me reuniré; *tabe*—entonces; *tāṅre*—con él.

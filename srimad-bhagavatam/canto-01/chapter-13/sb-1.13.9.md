@@ -1,11 +1,11 @@
 ### SB 1.13.9
 
-> कया वृत्त्या वर्तितं वश्चरद्भिः क्षितिमण्डलम् ।
+> कया वृत्त्या वर्तितं वश्चरद्भिः क्षितिमण्डलम् ।\
 > तीर्थानि क्षेत्रमुख्यानि सेवितानीह भूतले ॥९॥
 
-> kayā vṛttyā vartitaṁ vaś
-> caradbhiḥ kṣiti-maṇḍalam
-> tīrthāni kṣetra-mukhyāni
+> kayā vṛttyā vartitaṁ vaś\
+> caradbhiḥ kṣiti-maṇḍalam\
+> tīrthāni kṣetra-mukhyāni\
 > sevitānīha bhūtale
 
 *kayā*—by which; *vṛttyā*—means; *vartitam*—maintained your livelihood; *vaḥ*—your good self; *caradbhiḥ*—while traveling; *kṣiti-maṇḍalam*—on the surface of the earth; *tīrthāni*—places of pilgrimage; *kṣetra-mukhyāni*—the principal holy places; *sevitāni*—served by you; *iha*—in this world; *bhūtale*—on this planet.

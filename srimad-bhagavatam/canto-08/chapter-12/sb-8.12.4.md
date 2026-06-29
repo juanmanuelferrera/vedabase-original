@@ -1,13 +1,13 @@
 ### SB 8.12.4
 
-> श्रीमहादेव उवाच
-> देवदेव जगद्व्यापिन्जगदीश जगन्मय
+> श्रीमहादेव उवाच\
+> देवदेव जगद्व्यापिन्जगदीश जगन्मय\
 > सर्वेषामपि भावानां त्वमात्मा हेतुरीश्वरः ॥४॥
 
-> śrī-mahādeva uvāca
-> deva-deva jagad-vyāpiñ
-> jagad-īśa jagan-maya
-> sarveṣām api bhāvānāṁ
+> śrī-mahādeva uvāca\
+> deva-deva jagad-vyāpiñ\
+> jagad-īśa jagan-maya\
+> sarveṣām api bhāvānāṁ\
 > tvam ātmā hetur īśvaraḥ
 
 *śrī-mahādevaḥ uvāca*—Lord Śiva (Mahādeva) said; *deva-deva*—O best demigod among the demigods; *jagat-vyāpin*—O all-pervading Lord; *jagat-īśa*—O master of the universe; *jagat-maya*—O my Lord, who are transformed by Your energy into this creation; *sarveṣām api*—all kinds of; *bhāvānām*—situations; *tvam*—You; *ātmā*—the moving force; *hetuḥ*—because of this; *īśvaraḥ*—the Supreme Lord, Parameśvara.

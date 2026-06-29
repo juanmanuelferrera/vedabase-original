@@ -1,11 +1,11 @@
 ### SB 9.3.11
 
-> कस्यचित्त्वथ कालस्य नासत्यावाश्रमागतौ
+> कस्यचित्त्वथ कालस्य नासत्यावाश्रमागतौ\
 > तौ पूजयित्वा प्रोवाच वयो मे दत्तमीश्वरौ ॥११॥
 
-> kasyacit tv atha kālasya
-> nāsatyāv āśramāgatau
-> tau pūjayitvā provāca
+> kasyacit tv atha kālasya\
+> nāsatyāv āśramāgatau\
+> tau pūjayitvā provāca\
 > vayo me dattam īśvarau
 
 *kasyacit*—después de algún (tiempo); *tu*—pero; *atha*—de este modo; *kālasya*—pasado algún tiempo; *nāsatyau*—los dos Aśvinī-kumāras; *āśrama*—a la morada de Cyavana Muni; *āgatau*—llegaron; *tau*—a esos dos; *pūjayitvā*—ofrecer respetuosas reverencias; *provāca*—dijo; *vayaḥ*—juventud; *me*—a mí; *dattam*—de, por favor; *īśvarau*—puesto que ustedes pueden hacerlo.

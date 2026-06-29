@@ -1,9 +1,9 @@
 ### CC Madhya 20.153
 
-> সর্ব-আদি, সর্ব-অংশী, কিশোর-শেখর ।
+> সর্ব-আদি, সর্ব-অংশী, কিশোর-শেখর ।\
 > চিদানন্দ-দেহ, সর্বাশ্রয়, সর্বেশ্বর ॥১৫৩॥
 
-> sarva-ādi, sarva-aṁśī, kiśora-śekhara
+> sarva-ādi, sarva-aṁśī, kiśora-śekhara\
 > cid-ānanda-deha, sarvāśraya, sarveśvara
 
 *sarva-ādi*—origin of everything; *sarva-aṁśī*—sum total of all parts and parcels; *kiśora-śekhara*—the supreme youth; *cit-ānanda-deha*—a body of spiritual blissfulness; *sarva-āśraya*—shelter of everyone; *sarva-īśvara*—master of everyone.

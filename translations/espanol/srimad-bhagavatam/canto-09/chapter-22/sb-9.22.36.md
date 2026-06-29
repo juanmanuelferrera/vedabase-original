@@ -1,11 +1,11 @@
 ### SB 9.22.36
 
-> जनमेजयस्त्वां विदित्वा तक्षकान्निधनं गतम
+> जनमेजयस्त्वां विदित्वा तक्षकान्निधनं गतम\
 > सर्पान्वै सर्पयागाग्नौ स होष्यति रुषान्वितः ॥३६॥
 
-> janamejayas tvāṁ viditvā
-> takṣakān nidhanaṁ gatam
-> sarpān vai sarpa-yāgāgnau
+> janamejayas tvāṁ viditvā\
+> takṣakān nidhanaṁ gatam\
+> sarpān vai sarpa-yāgāgnau\
 > sa hoṣyati ruṣānvitaḥ
 
 *janamejayaḥ*—el hijo mayor; *tvām*—acerca de ti; *viditvā*—al saber; *takṣakāt*—por la serpiente *takṣaka*; *nidhanam*—la muerte; *gatam*—padecida; *sarpān*—a las serpientes; *vai*—en verdad; *sarpa-yāga-agnau*—en el sacrificio de fuego para matar a todas las serpientes; *saḥ*—él (Janamejaya); *hoṣyati*—ofrecerá como sacrificio; *ruṣā-anvitaḥ*—por estar muy iracundo.

@@ -1,13 +1,13 @@
 ### SB 3.23.39
 
-> तेनाष्टलोकपविहारकुलाचलेन्द्र
-> द्रोणीष्वनङ्गसखमारुतसौभगासु ।
-> सिद्धैर्नुतो द्युधुनिपातशिवस्वनासु
+> तेनाष्टलोकपविहारकुलाचलेन्द्र\
+> द्रोणीष्वनङ्गसखमारुतसौभगासु ।\
+> सिद्धैर्नुतो द्युधुनिपातशिवस्वनासु\
 > रेमे चिरं धनदवल्ललनावरूथी ॥३९॥
 
-> tenāṣṭa-lokapa-vihāra-kulācalendra-
-> droṇīṣv anaṅga-sakha-māruta-saubhagāsu
-> siddhair nuto dyudhuni-pāta-śiva-svanāsu
+> tenāṣṭa-lokapa-vihāra-kulācalendra-\
+> droṇīṣv anaṅga-sakha-māruta-saubhagāsu\
+> siddhair nuto dyudhuni-pāta-śiva-svanāsu\
 > reme ciraṁ dhanadaval-lalanā-varūthī
 
 *tena*—en aquel aeroplano; *aṣṭa-loka-pa*—de las deidades regentes de los ocho planetas celestiales; *vihāra*—los parques de recreo; *kula-acala-indra*—del rey de las montañas (Meru); *droṇīṣu*—en los valles; *anaṅga*—de pasión; *sakha*—las compañeras; *māruta*—con brisas; *saubhagāsu*—hermosas; *siddhaiḥ*—por los *siddhas*; *nutaḥ*—siendo alabado; *dyu-dhuni*—del Ganges; *pāta*—de la caída; *śiva-svanāsu*—vibrando con sonidos auspiciosos; *reme*—él disfrutó; *ciram*—durante mucho tiempo; *dhanada-vat*—como Kuvera; *lalanā*—de doncellas; *varūthī*—rodeado.

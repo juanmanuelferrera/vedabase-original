@@ -1,9 +1,9 @@
 ### CC Antya 4.234
 
-> আজ্ঞা দিলা, — “শীঘ্র তুমি যাহ বৃন্দাবনে ।
+> আজ্ঞা দিলা, — “শীঘ্র তুমি যাহ বৃন্দাবনে ।\
 > তোমার বংশে প্রভু দিয়াছেন সেইস্থানে ॥২৩৪॥
 
-> ājñā dilā,--"śīghra tumi yāha vṛndāvane
+> ājñā dilā,--"śīghra tumi yāha vṛndāvane\
 > tomāra vaṁśe prabhu diyāchena sei-sthāne
 
 *ājñā dilā*—dio la orden; *śīghra*—muy pronto; *tumi*—tú; *yāha*—ve; *vṛndāvane*—a Vṛndāvana; *tomāra*—tu; *vaṁśe*—a la familia; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *diyāchena*—ha otorgado; *sei-sthāne*—ese lugar.

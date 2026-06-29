@@ -1,9 +1,9 @@
 ### CC Madhya 4.155
 
-> গোপীনাথ-চরণে কৈল বহু নমস্কার ।
+> গোপীনাথ-চরণে কৈল বহু নমস্কার ।\
 > প্রেমাবেশে নৃত্য-গীত করিলা অপার ॥১৫৫॥
 
-> gopīnātha-caraṇe kaila bahu namaskāra
+> gopīnātha-caraṇe kaila bahu namaskāra\
 > premāveśe nṛtya-gīta karilā apāra
 
 *gopīnātha-caraṇe*—at the lotus feet of Lord Gopīnātha; *kaila*—made; *bahu*—many; *namaskāra*—obeisances; *prema-āveśe*—in the ecstasy of love; *nṛtya-gīta*—dancing and chanting; *karilā*—performed; *apāra*—unlimitedly.

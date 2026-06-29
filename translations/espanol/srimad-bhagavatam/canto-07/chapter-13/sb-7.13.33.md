@@ -1,11 +1,11 @@
 ### SB 7.13.33
 
-> शोकमोहभयक्रोध रागक्लैब्यश्रमादयः
+> शोकमोहभयक्रोध रागक्लैब्यश्रमादयः\
 > यन्मूलाः स्युर्नृणां जह्यात्स्पृहां प्राणार्थयोर्बुधः ॥३३॥
 
-> rājataś caurataḥ śatroḥ
-> sva-janāt paśu-pakṣitaḥ
-> arthibhyaḥ kālataḥ svasmān
+> rājataś caurataḥ śatroḥ\
+> sva-janāt paśu-pakṣitaḥ\
+> arthibhyaḥ kālataḥ svasmān\
 > nityaṁ prāṇārthavad bhayam
 
 *rājataḥ*—del gobierno; *caurataḥ*—de ladrones y bandidos; *śatroḥ*—de enemigos; *sva-janāt*—de familiares; *paśu-pakṣitaḥ*—de animales y aves; *arthibhyaḥ*—de mendigos y personas que piden caridad; *kālataḥ*—del factor tiempo; *svasmāt*—así como del propio ser; *nityam*—siempre; *prāṇa-artha-vat*—para el que tiene vida o dinero; *bhayam*—temor.

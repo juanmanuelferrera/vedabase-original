@@ -1,13 +1,13 @@
 ### CC Antya 16.125
 
-> বেণু ধৃষ্ট-পুরুষ হঞা, পুরুষাধর পিয়া পিয়া,
-> গোপীগণে জানায় নিজ-পান ।
-> ‘অহো শুন, গোপীগণ, বলে পিঙো তোমার ধন,
+> বেণু ধৃষ্ট-পুরুষ হঞা, পুরুষাধর পিয়া পিয়া,\
+> গোপীগণে জানায় নিজ-পান ।\
+> ‘অহো শুন, গোপীগণ, বলে পিঙো তোমার ধন,\
 > তোমার যদি থাকে অভিমান ॥১২৫॥
 
-> veṇu dhṛṣṭa-puruṣa hañā, puruṣādhara piyā piyā,
-> gopī-gaṇe jānāya nija-pāna
-> 'aho śuna, gopī-gaṇa, bale piṅo tomāra dhana,
+> veṇu dhṛṣṭa-puruṣa hañā, puruṣādhara piyā piyā,\
+> gopī-gaṇe jānāya nija-pāna\
+> 'aho śuna, gopī-gaṇa, bale piṅo tomāra dhana,\
 > tomāra yadi thāke abhimāna
 
 *veṇu*—la flauta; *dhṛṣṭa-puruṣa*—un varón astuto; *hañā*—siendo; *puruṣa-adhara*—los labios del varón; *piyā piyā*—bebiendo y bebiendo; *gopī-gaṇe*—a las gopīs; *jānāya*—informa; *nija-pāna*—su propio beber; *aho*—oh; *śuna*—escuchad; *gopī-gaṇa*—gopīs; *bale*—dice; *piṅo*—bebo; *tomāra*—vuestra; *dhana*—propiedad; *tomāra*—vuestra; *yadi*—si; *thāke*—hay; *abhimāna*—orgullo.

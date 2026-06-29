@@ -1,9 +1,9 @@
 ### CC Madhya 5.73
 
-> তবে ইঁহো গোপালের আগেতে কহিল ।
+> তবে ইঁহো গোপালের আগেতে কহিল ।\
 > তুমি জান, এই বিপ্রে কন্যা আমি দিল ॥৭৩॥
 
-> tabe iṅho gopālera āgete kahila
+> tabe iṅho gopālera āgete kahila\
 > tumi jāna, ei vipre kanyā āmi dila
 
 *tabe*—entonces; *iṅho*—este caballero; *gopālera*—de la Deidad de Gopāla; *āgete*—en la presencia; *kahila*—dijo; *tumi jāna*—mi Señor, sé Tú testigo; *ei vipre*—a este joven brāhmaṇa; *kanyā*—mi hija; *āmi*—yo; *dila*—he ofrecido.

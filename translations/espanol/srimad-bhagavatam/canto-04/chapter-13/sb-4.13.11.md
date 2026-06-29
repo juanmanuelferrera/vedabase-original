@@ -1,11 +1,11 @@
 ### SB 4.13.11
 
-> मत्वा तं जडमुन्मत्तं कुलवृद्धाः समन्त्रिणः ।
+> मत्वा तं जडमुन्मत्तं कुलवृद्धाः समन्त्रिणः ।\
 > वत्सरं भूपतिं चक्रुर्यवीयांसं भ्रमेः सुतम् ॥११॥
 
-> matvā taṁ jaḍam unmattaṁ
-> kula-vṛddhāḥ samantriṇaḥ
-> vatsaraṁ bhūpatiṁ cakrur
+> matvā taṁ jaḍam unmattaṁ\
+> kula-vṛddhāḥ samantriṇaḥ\
+> vatsaraṁ bhūpatiṁ cakrur\
 > yavīyāṁsaṁ bhrameḥ sutam
 
 *matvā*—creyendo; *tam*—Utkala; *jaḍam*—sin inteligencia; *unmattam*—loco; *kula-vṛddhāḥ*—los mayores de la familia; *samantriṇaḥ*—con los ministros; *vatsaram*—a Vatsara; *bhū-patim*—gobernante del mundo; *cakruḥ*—hicieron; *yavīyāṁsam*—más joven; *bhrameḥ*—de Bhrami; *sutam*—hijo.

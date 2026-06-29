@@ -1,11 +1,11 @@
 ### SB 3.22.39
 
-> एतत्त आदिराजस्य मनोश्चरितमद्भुतम् ।
+> एतत्त आदिराजस्य मनोश्चरितमद्भुतम् ।\
 > वर्णितं वर्णनीयस्य तदपत्योदयं शृणु ॥३९॥
 
-> etat ta ādi-rājasya
-> manoś caritam adbhutam
-> varṇitaṁ varṇanīyasya
+> etat ta ādi-rājasya\
+> manoś caritam adbhutam\
+> varṇitaṁ varṇanīyasya\
 > tad-apatyodayaṁ śṛṇu
 
 *etat*—this; *te*—unto you; *ādi-rājasya*—of the first emperor; *manoḥ*—of Svāyambhuva Manu; *caritam*—the character; *adbhutam*—wonderful; *varṇitam*—described; *varṇanīyasya*—whose reputation is worthy of description; *tat-apatya*—of his daughter; *udayam*—to the flourishing; *śṛṇu*—please listen.

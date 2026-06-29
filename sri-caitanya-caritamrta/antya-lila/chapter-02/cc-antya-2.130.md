@@ -1,9 +1,9 @@
 ### CC Antya 2.130
 
-> পুছিলা, — কি আজ্ঞা, কেনে হৈল আগমন ?
+> পুছিলা, — কি আজ্ঞা, কেনে হৈল আগমন ?\
 > ‘হরিদাসে প্রসাদ লাগি’ কৈলা নিবেদন ॥১৩০॥
 
-> puchilā,—ki ājñā, kene haila āgamana?
+> puchilā,—ki ājñā, kene haila āgamana?\
 > 'haridāse prasāda lāgi' kailā nivedana
 
 *puchilā*—the Lord inquired; *ki ājñā*—what is your order; *kenehaila āgamana*—what is the reason you have come; *haridāse prasāda lāgi'*—for a favor to Junior Haridāsa; *kailā nivedana*—he made a request.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.385
 
-> ‘নিত্যলীলা’ কৃষ্ণের সর্বশাস্ত্রে কয় ।
+> ‘নিত্যলীলা’ কৃষ্ণের সর্বশাস্ত্রে কয় ।\
 > বুঝিতে না পারে লীলা কেমনে ‘নিত্য’ হয় ॥৩৮৫॥
 
-> 'nitya-līlā' kṛṣṇera sarva-śāstre kaya
+> 'nitya-līlā' kṛṣṇera sarva-śāstre kaya\
 > bujhite nā pāre līlā kemane 'nitya' haya
 
 *nitya-līlā*—eternal pastimes; *kṛṣṇera*—of Lord Kṛṣṇa; *sarva-śāstre kaya*—described in every śāstra; *bujhite nā pāre*—not able to understand; *līlā*—pastimes; *kemane*—how; *nitya haya*—are eternal.

@@ -1,11 +1,11 @@
 ### SB 3.28.15
 
-> मत्तद्विरेफकलया परीतं वनमालया ।
+> मत्तद्विरेफकलया परीतं वनमालया ।\
 > परार्ध्यहारवलय किरीटाङ्गदनूपुरम् ॥१५॥
 
-> matta-dvirepha-kalayā
-> parītaṁ vana-mālayā
-> parārdhya-hāra-valaya-
+> matta-dvirepha-kalayā\
+> parītaṁ vana-mālayā\
+> parārdhya-hāra-valaya-\
 > kirīṭāṅgada-nūpuram
 
 *matta*—intoxicadas; *dvi-repha*—con abejas; *kalayā*—zumbando; *parītam*—llevando; *vana-mālayā*—con un collar de flores silvestres; *parārdhya*—de valor incalculable; *hāra*—gargantilla de perlas; *valaya*—brazaletes; *kirīṭa*—una corona; *aṅgada*—pulseras; *nūpuram*—ajorcas.

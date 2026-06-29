@@ -1,9 +1,9 @@
 ### CC Madhya 19.69
 
-> ‘ইঁহো না স্পর্শিহ, ইঁহো জাতি অতি-হীন !
+> ‘ইঁহো না স্পর্শিহ, ইঁহো জাতি অতি-হীন !\
 > বৈদিক, যাজ্ঞিক তুমি কুলীন প্রবীণ !’ ॥ ৬৯ ॥
 
-> 'iṅho nā sparśiha, iṅho jāti ati-hīna!
+> 'iṅho nā sparśiha, iṅho jāti ati-hīna!\
 > vaidika, yājñika tumi kulīna pravīṇa!'
 
 *iṅho*—him; *nā sparśiha*—do not touch; *iṅho*—he; *jāti*—caste; *ati-hīna*—very low; *vaidika*—a follower of Vedic principles; *yājñika*—a performer of many sacrifices; *tumi*—you; *kulīna*—aristocratic *brāhmaṇa*; *pravīṇa*—an experienced person.

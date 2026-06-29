@@ -1,9 +1,9 @@
 ### CC Antya 15.93
 
-> প্রভুরে লঞা গেলা সবে সমুদ্রের তীরে ।
+> প্রভুরে লঞা গেলা সবে সমুদ্রের তীরে ।\
 > স্নান করাঞা পুনঃ তাঁরে লঞা আইলা ঘরে ॥৯৩॥
 
-> prabhure lañā gelā sabe samudrera tīre
+> prabhure lañā gelā sabe samudrera tīre\
 > snāna karāñā punaḥ tāṅre lañā āilā ghare
 
 *prabhure*—Śrī Caitanya Mahāprabhu; *lañā*—taking; *gelā*—went; *sabe*—all; *samudrera tīre*—to the beach by the sea; *snāna karāñā*—bathing Him; *punaḥ*—again; *tāṅre*—Him; *lañā āilā*—brought back; *ghare*—to His residence.

@@ -1,9 +1,9 @@
 ### CC Adi 14.22
 
-> ক্রন্দনের ছলে বলাইল হরিনাম ।
+> ক্রন্দনের ছলে বলাইল হরিনাম ।\
 > নারী সব ‘হরি’ বলে, — হাসে গৌরধাম ॥২২॥
 
-> krandanera chale balāila hari-nāma
+> krandanera chale balāila hari-nāma\
 > nārī saba 'hari' bale,—hāse gaura-dhāma
 
 *krandanera*—of crying; *chale*—on the pretense of; *balāila*—caused to speak; *hari-nāma*—the holy name of the Lord; *nārī*—ladies; *saba*—all; *'hari' bale*—chant the holy name of the Lord; *hāse*—laughs; *gaura-dhāma*—Lord Śrī Caitanya as a child.

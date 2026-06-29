@@ -1,11 +1,11 @@
 ### SB 1.10.20
 
-> अन्योन्यमासीत्सञ्जल्प उत्तमश्लोकचेतसाम् ।
+> अन्योन्यमासीत्सञ्जल्प उत्तमश्लोकचेतसाम् ।\
 > कौरवेन्द्रपुरस्त्रीणां सर्वश्रुतिमनोहरः ॥२०॥
 
-> anyonyam āsīt sañjalpa
-> uttama-śloka-cetasām
-> kauravendra-pura-strīṇāṁ
+> anyonyam āsīt sañjalpa\
+> uttama-śloka-cetasām\
+> kauravendra-pura-strīṇāṁ\
 > sarva-śruti-mano-haraḥ
 
 *anyonyam*—entre sí; *āsīt*—hubo; *sañjalpaḥ*—conversación; *uttama-śloka*—el Supremo, a quien se lo alaba mediante poesía selecta; *cetasām*—de aquellos cuyos corazones están absortos de esa manera; *kaurava-indra*—el rey de los Kurus; *pura*—capital; *strīṇām*—todas las damas; *sarva*—todos; *śruti*—los *Vedas*; *manaḥ-haraḥ*—atractiva para la mente.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.160
 
-> অন্তরঙ্গা — চিচ্ছক্তি, তটস্থা — জীবশক্তি ।
+> অন্তরঙ্গা — চিচ্ছক্তি, তটস্থা — জীবশক্তি ।\
 > বহিরঙ্গা — মায়া, — তিনে করে প্রেমভক্তি ॥১৬০॥
 
-> antaraṅgā—cic-chakti, taṭasthā—jīva-śakti
+> antaraṅgā—cic-chakti, taṭasthā—jīva-śakti\
 > bahiraṅgā—māyā,—tine kare prema-bhakti
 
 *antaraṅgā*—the internal potency; *cit-śakti*—the spiritual potency; *taṭasthā*—the marginal potency; *jīva-śakti*—the living entities; *bahiraṅgā*—the external potency; *māyā*—the illusory energy; *tine*—all three of them; *kare*—do; *prema-bhakti*—devotional service in love.

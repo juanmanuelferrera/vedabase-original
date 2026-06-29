@@ -1,9 +1,9 @@
 ### CC Adi 17.70
 
-> শ্রীধরের লৌহপাত্রে কৈল জলপান ।
+> শ্রীধরের লৌহপাত্রে কৈল জলপান ।\
 > সমস্ত ভক্তেরে দিল ইষ্ট বরদান ॥৭০॥
 
-> śrīdharera lauha-pātre kaila jala-pāna
+> śrīdharera lauha-pātre kaila jala-pāna\
 > samasta bhaktere dila iṣṭa vara-dāna
 
 *śrīdharera*—of Śrīdhara; *lauha-pātre*—from the iron pot; *kaila*—did; *jala-pāna*—drinking of water; *samasta*—all; *bhaktere*—to the devotees; *dila*—gave; *iṣṭa*—desired; *vara-dāna*—benediction.

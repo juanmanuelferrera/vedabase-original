@@ -1,9 +1,9 @@
 ### CC Madhya 22.153
 
-> লোভে ব্রজবাসীর ভাবে করে অনুগতি ।
+> লোভে ব্রজবাসীর ভাবে করে অনুগতি ।\
 > শাস্ত্রযুক্তি নাহি মানে — রাগানুগার প্রকৃতি ॥১৫৩॥
 
-> lobhe vraja-vāsīra bhāve kare anugati
+> lobhe vraja-vāsīra bhāve kare anugati\
 > śāstra-yukti nāhi māne—rāgānugāra prakṛti
 
 *lobhe*—in such covetousness; *vraja-vāsīra bhāve*—in the moods of the inhabitants of Vṛndāvana, Vraja; *kare anugati*—follows; *śāstra-yukti*—injunctions or reasonings of the *śāstras*; *nāhi māne*—does not abide by; *rāgānugāra*—of spontaneous love; *prakṛti*—the nature.

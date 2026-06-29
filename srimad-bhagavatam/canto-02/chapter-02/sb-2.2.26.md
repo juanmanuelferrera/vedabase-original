@@ -1,11 +1,11 @@
 ### SB 2.2.26
 
-> अथो अनन्तस्य मुखानलेन दन्दह्यमानं स निरीक्ष्य विश्वम् ।
+> अथो अनन्तस्य मुखानलेन दन्दह्यमानं स निरीक्ष्य विश्वम् ।\
 > निर्याति सिद्धेश्वरयुष्टधिष्ण्यं यद्द्वैपरार्ध्यं तदु पारमेष्ठ्यम् ॥२६॥
 
-> atho anantasya mukhānalena
-> dandahyamānaṁ sa nirīkṣya viśvam
-> niryāti siddheśvara-yuṣṭa-dhiṣṇyaṁ
+> atho anantasya mukhānalena\
+> dandahyamānaṁ sa nirīkṣya viśvam\
+> niryāti siddheśvara-yuṣṭa-dhiṣṇyaṁ\
 > yad dvai-parārdhyaṁ tad u pārameṣṭhyam
 
 *atho*—thereupon; *anantasya*—of Ananta, the resting incarnation of Godhead; *mukha-analena*—by the fire emanating from His mouth; *dandahyamānam*—burning to ashes; *saḥ*—he; *nirīkṣya*—by seeing this; *viśvam*—the universe; *niryāti*—goes out; *siddheśvara-yuṣṭa-dhiṣṇyam*—airplanes used by the great purified souls; *yat*—the place; *dvai-parārdhyam*—15,480,000,000,000 solar years; *tat*—that; *u*—the exalted; *pārameṣṭhyam*—Satyaloka, where Brahmā resides.

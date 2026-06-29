@@ -1,6 +1,6 @@
 ### CC Adi 1.50
 
-> yathā brahmaṇe bhagavān
+> yathā brahmaṇe bhagavān\
 > svayam upadiśyānubhāvitavān
 
 *yathā*—assim como; *brahmaṇe*—ao Senhor Brahmā; *bhagavān*—o Senhor Supremo; *svayam*—Ele mesmo; *upadiśya*—tendo instruído; *anubhāvitavān*—fez perceber.

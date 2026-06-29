@@ -1,11 +1,11 @@
 ### SB 3.17.17
 
-> दिविस्पृशौ हेमकिरीटकोटिभिर्निरुद्धकाष्ठौ स्फुरदङ्गदाभुजौ ।
+> दिविस्पृशौ हेमकिरीटकोटिभिर्निरुद्धकाष्ठौ स्फुरदङ्गदाभुजौ ।\
 > गां कम्पयन्तौ चरणैः पदे पदे कट्या सुकाञ्च्यार्कमतीत्य तस्थतुः ॥१७॥
 
-> divi-spṛśau hema-kirīṭa-koṭibhir
-> niruddha-kāṣṭhau sphurad-aṅgadā-bhujau
-> gāṁ kampayantau caraṇaiḥ pade pade
+> divi-spṛśau hema-kirīṭa-koṭibhir\
+> niruddha-kāṣṭhau sphurad-aṅgadā-bhujau\
+> gāṁ kampayantau caraṇaiḥ pade pade\
 > kaṭyā sukāñcyārkam atītya tasthatuḥ
 
 *divi-spṛśau*—tocando el cielo; *hema*—oro; *kirīṭa*—de sus yelmos; *koṭibhiḥ*—con los penachos; *niruddha*—tapaban; *kāṣṭhau*—las direcciones; *sphurat*—brillantes; *aṅgadā*—brazaletes; *bhujau*—en cuyos brazos; *gām*—la Tierra; *kampayantau*—sacudiendo; *caraṇaiḥ*—con sus pies; *pade pade*—a cada paso; *kaṭyā*—con sus cinturas; *su-kāñcyā*—con cinturones hermosamente decorados; *arkam*—el Sol; *atītya*—superando; *tasthatuḥ*—estaban en pie.

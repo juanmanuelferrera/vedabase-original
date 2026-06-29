@@ -1,9 +1,9 @@
 ### CC Adi 6.51
 
-> এই মত গায়, নাচে, করে অট্টহাস ।
+> এই মত গায়, নাচে, করে অট্টহাস ।\
 > লোকে উপদেশে, — ‘হও চৈতন্যের দাস’ ॥৫১॥
 
-> ei mata gāya, nāce, kare aṭṭahāsa
+> ei mata gāya, nāce, kare aṭṭahāsa\
 > loke upadeśe,—'hao caitanyera dāsa'
 
 *ei mata*—in this way; *gāya*—chant; *nāce*—dance; *kare*—do; *aṭṭa-hāsa*—laughing like madmen; *loke*—unto the people in general; *upadeśe*—instruct; *hao*—just become; *caitanyera dāsa*—servants of Śrī Caitanya.

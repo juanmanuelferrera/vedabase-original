@@ -1,9 +1,9 @@
 ### CC Madhya 9.135
 
-> গোপজাতি কৃষ্ণ, গোপী — প্রেয়সী তাঁহার ৷
+> গোপজাতি কৃষ্ণ, গোপী — প্রেয়সী তাঁহার ৷\
 > দেবী বা অন্য স্ত্রী কৃষ্ণ না করে অঙ্গীকার ৷৷ ১৩৫ ৷৷ ॥১৩৫॥
 
-> gopa-jāti kṛṣṇa, gopī--preyasī tāṅhāra
+> gopa-jāti kṛṣṇa, gopī--preyasī tāṅhāra\
 > devī vā anya strī kṛṣṇa nā kare aṅgīkāra
 
 *gopa-jāti*—perteneciente a la comunidad de pastores de vacas; *kṛṣṇa*—el Señor Kṛṣṇa; *gopī*—las doncellas de Vrajabhūmi, las gopīs; *preyasī*—las más queridas; *tāṅhāra*—Suyas; *devī*—las esposas de los semidioses; *vā*—o; *anya*—otras; *strī*—mujeres; *kṛṣṇa*—el Señor Kṛṣṇa; *nā*—no; *kare*—hace; *aṅgīkāra*—aceptación.

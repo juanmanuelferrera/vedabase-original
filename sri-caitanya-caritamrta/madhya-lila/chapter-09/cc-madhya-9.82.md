@@ -1,9 +1,9 @@
 ### CC Madhya 9.82
 
-> শ্রী-বৈষ্ণব এক, — ‘ব্যেঙ্কট ভট্ট’ নাম ।
+> শ্রী-বৈষ্ণব এক, — ‘ব্যেঙ্কট ভট্ট’ নাম ।\
 > প্রভুরে নিমন্ত্রণ কৈল করিয়া সম্মান ॥৮২॥
 
-> śrī-vaiṣṇava eka,—'vyeṅkaṭa bhaṭṭa' nāma
+> śrī-vaiṣṇava eka,—'vyeṅkaṭa bhaṭṭa' nāma\
 > prabhure nimantraṇa kaila kariyā sammāna
 
 *śrī-vaiṣṇava eka*—a devotee belonging to the Rāmānuja-sampradāya; *vyeṅkaṭa bhaṭṭa*—Veṅkaṭa Bhaṭṭa; *nāma*—named; *prabhure*—unto Lord Caitanya Mahāprabhu; *nimantraṇa*—invitation; *kaila*—did; *kariyā*—offering; *sammāna*—great respect.

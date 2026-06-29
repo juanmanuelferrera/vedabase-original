@@ -1,9 +1,9 @@
 ### CC Adi 9.32
 
-> অলৌকিক বৃক্ষ করে, সর্বেন্দ্রিয়-কর্ম ।
+> অলৌকিক বৃক্ষ করে, সর্বেন্দ্রিয়-কর্ম ।\
 > স্থাবর হইয়া ধরে জঙ্গমের ধর্ম ॥৩২॥
 
-> alaukika vṛkṣa kare sarvendriya-karma
+> alaukika vṛkṣa kare sarvendriya-karma\
 > sthāvara ha-iyā dhare jaṅgamera dharma
 
 *alaukika*—trascendental; *vṛkṣa*—árbol; *kare*—realiza; *sarva-indriya*—todos los sentidos; *karma*—actividades; *sthāvara*—inmóvil; *ha-iyā*—siendo; *dhare*—adopta; *jaṅgamera*—de lo que se mueve; *dharma*—actividades.

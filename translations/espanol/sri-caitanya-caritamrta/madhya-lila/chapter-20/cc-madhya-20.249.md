@@ -1,11 +1,11 @@
 ### CC Madhya 20.249
 
-> অবতারা হ্যসংখ্যেয়া হরেঃ সত্ত্বনিধের্দ্বিজাঃ ।
+> অবতারা হ্যসংখ্যেয়া হরেঃ সত্ত্বনিধের্দ্বিজাঃ ।\
 > যথাঽবিদাসিনঃ কুল্যাঃ সরসঃ স্যুঃ সহস্রশঃ ॥২৪৯॥
 
-> avatārā hy asaṅkhyeyā
-> hareḥ sattva-nidher dvijāḥ
-> yathā 'vidāsinaḥ kulyāḥ
+> avatārā hy asaṅkhyeyā\
+> hareḥ sattva-nidher dvijāḥ\
+> yathā 'vidāsinaḥ kulyāḥ\
 > sarasaḥ syuḥ sahasraśaḥ
 
 *avatārāḥ*—todas las encarnaciones; *hi*—ciertamente; *asaṅkhyeyāḥ*—más allá de toda cuenta; *hareḥ*—de la Suprema Personalidad de Dios; *sattva-nidheḥ*—quien es el depósito de energía espiritual; *dvijāḥ*—¡oh, *brāhmaṇas*!; *yathā*—así como; *avidāsinaḥ*—que contiene un gran depósito de agua; *kulyāḥ*—pequeñas lagunas; *sarasaḥ*—de un lago; *syuḥ*—deben ser; *sahasraśaḥ*—por cientos y miles de veces.

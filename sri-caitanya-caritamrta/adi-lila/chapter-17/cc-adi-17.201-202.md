@@ -1,14 +1,14 @@
 ### CC Adi 17.201-202
 
-> আর ম্লেচ্ছ কহে, শুন — আমি ত’ এইমতে ।
-> হিন্দুকে পরিহাস কৈনু সে দিন হইতে ॥২০১॥
-> জিহ্বা কৃষ্ণনাম করে, না মানে বর্জন ।
+> আর ম্লেচ্ছ কহে, শুন — আমি ত’ এইমতে ।\
+> হিন্দুকে পরিহাস কৈনু সে দিন হইতে ॥২০১॥\
+> জিহ্বা কৃষ্ণনাম করে, না মানে বর্জন ।\
 > না জানি, কি মন্ত্রৌষধি জানে হিন্দুগণ ॥২০২॥
 
-> āra mleccha kahe, śuna—āmi ta' ei-mate
+> āra mleccha kahe, śuna—āmi ta' ei-mate\
 > hinduke parihāsa kainu se dina ha-ite
 
-> jihvā kṛṣṇa-nāma kare, nā māne varjana
+> jihvā kṛṣṇa-nāma kare, nā māne varjana\
 > nā jāni, ki mantrauṣadhi jāne hindu-gaṇa
 
 *āra*—another; *mleccha*—meat-eater; *kahe*—said; *śuna*—please hear; *āmi*—I; *ta'*—certainly; *ei-mate*—in this way; *hinduke*—to a Hindu; *parihāsa*—joking; *kainu*—did; *se*—that; *dina*—day; *ha-ite*—from; *jihvā*—the tongue; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *kare*—chants; *nā*—does not; *māne*—accept; *varjana*—renunciation; *nā*—not; *jāni*—I know; *ki*—what; *mantra-auṣadhi*—hymns and herbs; *jāne*—know; *hindu-gaṇa*—the Hindus.

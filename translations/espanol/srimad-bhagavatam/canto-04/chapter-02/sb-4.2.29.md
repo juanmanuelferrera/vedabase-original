@@ -1,11 +1,11 @@
 ### SB 4.2.29
 
-> नष्टशौचा मूढधियो जटाभस्मास्थिधारिणः ।
+> नष्टशौचा मूढधियो जटाभस्मास्थिधारिणः ।\
 > विशन्तु शिवदीक्षायां यत्र दैवं सुरासवम् ॥२९॥
 
-> naṣṭa-śaucā mūḍha-dhiyo
-> jaṭā-bhasmāsthi-dhāriṇaḥ
-> viśantu śiva-dīkṣāyāṁ
+> naṣṭa-śaucā mūḍha-dhiyo\
+> jaṭā-bhasmāsthi-dhāriṇaḥ\
+> viśantu śiva-dīkṣāyāṁ\
 > yatra daivaṁ surāsavam
 
 *naṣṭa-śaucāḥ*—habiendo abandonado la limpieza; *mūḍha-dhiyaḥ*—necios; *jaṭā-bhasma-asthi-dhāriṇaḥ*—llevando el pelo largo, cenizas y huesos; *viśantu*—que entren; *śiva-dīkṣāyām*—en la iniciación en el culto a Śiva; *yatra*—donde; *daivam*—son espirituales; *sura-āsavam*—vino y licores.

@@ -1,9 +1,9 @@
 ### CC Adi 7.91
 
-> ভাল হৈল, পাইলে তুমি পরমপুরুষার্থ ।
+> ভাল হৈল, পাইলে তুমি পরমপুরুষার্থ ।\
 > তোমার প্রেমেতে আমি হৈলাঙ কৃতার্থ ॥৯১॥
 
-> bhāla haila, pāile tumi parama-puruṣārtha
+> bhāla haila, pāile tumi parama-puruṣārtha\
 > tomāra premete āmi hailāṅ kṛtārtha
 
 *bhāla haila*—let it be good; *pāile*—You have gotten; *tumi*—You; *parama-puruṣārtha*—superexcellent goal of life; *tomāra*—Your; *premete*—by development in love of Godhead; *āmi*—I; *hailāṅ*—become; *kṛta-artha*—very much obliged.

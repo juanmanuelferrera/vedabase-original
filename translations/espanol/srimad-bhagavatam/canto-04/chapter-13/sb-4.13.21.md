@@ -1,13 +1,13 @@
 ### SB 4.13.21
 
-> विदुर उवाच
-> तस्य शीलनिधेः साधोर्ब्रह्मण्यस्य महात्मनः ।
+> विदुर उवाच\
+> तस्य शीलनिधेः साधोर्ब्रह्मण्यस्य महात्मनः ।\
 > राज्ञः कथमभूद्दुष्टा प्रजा यद्विमना ययौ ॥२१॥
 
-> vidura uvāca
-> tasya śīla-nidheḥ sādhor
-> brahmaṇyasya mahātmanaḥ
-> rājñaḥ katham abhūd duṣṭā
+> vidura uvāca\
+> tasya śīla-nidheḥ sādhor\
+> brahmaṇyasya mahātmanaḥ\
+> rājñaḥ katham abhūd duṣṭā\
 > prajā yad vimanā yayau
 
 *viduraḥ uvāca*—Vidura dijo; *tasya*—de él (Aṅga); *śīla-nidheḥ*—receptáculo de buenas características; *sādhoḥ*—persona santa; *brahmaṇyasya*—amante de la cultura brahmínica; *mahātmanaḥ*—gran alma; *rājñaḥ*—del rey; *katham*—cómo; *abhūt*—fue; *duṣṭā*—mal; *prajā*—hijo; *yat*—por el cual; *vimanāḥ*—siendo indiferente; *yayau*—se marchó.

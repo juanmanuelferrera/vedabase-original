@@ -1,9 +1,9 @@
 ### CC Madhya 12.141
 
-> স্বরূপের উচ্চ-গান প্রভুরে সদা ভায় ।
+> স্বরূপের উচ্চ-গান প্রভুরে সদা ভায় ।\
 > আনন্দে উদ্দণ্ড নৃত্য করে গৌররায় ॥১৪১॥
 
-> svarūpera ucca-gāna prabhure sadā bhāya
+> svarūpera ucca-gāna prabhure sadā bhāya\
 > ānande uddaṇḍa nṛtya kare gaurarāya
 
 *svarūpera*—de Svarūpa Dāmodara Gosvāmī; *ucca-gāna*—canto vigoroso; *prabhure*—a Śrī Caitanya Mahāprabhu; *sadā bhāya*—siempre le complacía mucho; *ānande*—con júbilo; *uddaṇḍa nṛtya*—danza con grandes saltos; *kare*—ejecuta; *gaurarāya*—Śrī Caitanya Mahāprabhu.

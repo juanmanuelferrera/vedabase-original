@@ -1,11 +1,11 @@
 ### SB 6.4.51
 
-> एषा पञ्चजनस्याङ्ग दुहिता वै प्रजापतेः
+> एषा पञ्चजनस्याङ्ग दुहिता वै प्रजापतेः\
 > असिक्नी नाम पत्नीत्वे प्रजेश प्रतिगृह्यताम ॥५१॥
 
-> eṣā pañcajanasyāṅga
-> duhitā vai prajāpateḥ
-> asiknī nāma patnītve
+> eṣā pañcajanasyāṅga\
+> duhitā vai prajāpateḥ\
+> asiknī nāma patnītve\
 > prajeśa pratigṛhyatām
 
 *eṣā*—this; *pañcajanasya*—of Pañcajana; *aṅga*—O My dear son; *duhitā*—the daughter; *vai*—indeed; *prajāpateḥ*—another *prajāpati*; *asiknī nāma*—of the name Asiknī; *patnītve*—as your wife; *prajeśa*—O *prajāpati*; *pratigṛhyatām*—let her be accepted.

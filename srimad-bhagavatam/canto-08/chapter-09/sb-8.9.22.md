@@ -1,11 +1,11 @@
 ### SB 8.9.22
 
-> ते पालयन्तः समयमसुराः स्वकृतं नृप
+> ते पालयन्तः समयमसुराः स्वकृतं नृप\
 > तूष्णीमासन्कृतस्नेहाः स्त्रीविवादजुगुप्सया ॥२२॥
 
-> te pālayantaḥ samayam
-> asurāḥ sva-kṛtaṁ nṛpa
-> tūṣṇīm āsan kṛta-snehāḥ
+> te pālayantaḥ samayam\
+> asurāḥ sva-kṛtaṁ nṛpa\
+> tūṣṇīm āsan kṛta-snehāḥ\
 > strī-vivāda-jugupsayā
 
 *te*—the demons; *pālayantaḥ*—keeping in order; *samayam*—equilibrium; *asurāḥ*—the demons; *sva-kṛtam*—made by them; *nṛpa*—O King; *tūṣṇīm āsan*—remained silent; *kṛta-snehāḥ*—because of having developed attachment to Mohinī-mūrti; *strī-vivāda*—disagreeing with a woman; *jugupsayā*—because of thinking such an action as abominable.

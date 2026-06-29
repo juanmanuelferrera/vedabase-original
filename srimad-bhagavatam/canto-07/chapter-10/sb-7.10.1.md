@@ -1,13 +1,13 @@
 ### SB 7.10.1
 
-> श्रीनारद उवाच
-> भक्तियोगस्य तत्सर्वमन्तरायतयार्भकः
+> श्रीनारद उवाच\
+> भक्तियोगस्य तत्सर्वमन्तरायतयार्भकः\
 > मन्यमानो हृषीकेशं स्मयमान उवाच ह ॥१॥
 
-> śrī-nārada uvāca
-> bhakti-yogasya tat sarvam
-> antarāyatayārbhakaḥ
-> manyamāno hṛṣīkeśaṁ
+> śrī-nārada uvāca\
+> bhakti-yogasya tat sarvam\
+> antarāyatayārbhakaḥ\
+> manyamāno hṛṣīkeśaṁ\
 > smayamāna uvāca ha
 
 *śrī-nāradaḥ uvāca*—Nārada Muni said; *bhakti-yogasya*—of the principles of devotional service; *tat*—those (blessings or benedictions offered by Lord Nṛsiṁhadeva); *sarvam*—each and every one of them; *antarāyatayā*—because of being impediments (on the path of *bhakti-yoga*); *arbhakaḥ*—Prahlāda Mahārāja, although only a boy; *manyamānaḥ*—considering; *hṛṣīkeśam*—unto Lord Nṛsiṁhadeva; *smayamānaḥ*—smiling; *uvāca*—said; *ha*—in the past.

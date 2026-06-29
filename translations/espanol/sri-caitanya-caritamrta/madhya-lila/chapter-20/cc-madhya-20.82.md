@@ -1,9 +1,9 @@
 ### CC Madhya 20.82
 
-> সনাতনের বৈরাগ্যে প্রভুর আনন্দ অপার ।
+> সনাতনের বৈরাগ্যে প্রভুর আনন্দ অপার ।\
 > ভোটকম্বল পানে প্রভু চাহে বারে বার ॥৮২॥
 
-> sanātanera vairāgye prabhura ānanda apāra
+> sanātanera vairāgye prabhura ānanda apāra\
 > bhoṭa-kambala pāne prabhu cāhe bāre bāra
 
 *sanātanera*—de Sanātana Gosvāmī; *vairāgye*—por la renunciación; *prabhura*—de Śrī Caitanya Mahāprabhu; *ānanda*—felicidad; *apāra*—ilimitada; *bhoṭa-kambala*—la manta de lana; *pāne*—hacia; *prabhu*—Śrī Caitanya Mahāprabhu; *cāhe*—mira; *bāre bāra*—repetidamente.

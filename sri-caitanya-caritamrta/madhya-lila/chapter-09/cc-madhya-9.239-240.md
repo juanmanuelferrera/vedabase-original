@@ -1,14 +1,14 @@
 ### CC Madhya 9.239-240
 
-> সিদ্ধান্ত-শাস্ত্র নাহি ‘ব্রহ্মসংহিতা’র সম ।
-> গোবিন্দমহিমা জ্ঞানের পরম কারণ ॥২৩৯॥
-> অল্পাক্ষরে কহে সিদ্ধান্ত অপার ।
+> সিদ্ধান্ত-শাস্ত্র নাহি ‘ব্রহ্মসংহিতা’র সম ।\
+> গোবিন্দমহিমা জ্ঞানের পরম কারণ ॥২৩৯॥\
+> অল্পাক্ষরে কহে সিদ্ধান্ত অপার ।\
 > সকল-বৈষ্ণবশাস্ত্র-মধ্যে অতি সার ॥২৪০॥
 
-> siddhānta-śāstra nāhi 'brahma-saṁhitā'ra sama
+> siddhānta-śāstra nāhi 'brahma-saṁhitā'ra sama\
 > govinda-mahimā jñānera parama kāraṇa
 
-> alpākṣare kahe siddhānta apāra
+> alpākṣare kahe siddhānta apāra\
 > sakala-vaiṣṇava-śāstra-madhye ati sāra
 
 *siddhānta-śāstra*—conclusive scripture; *nāhi*—there is not; *brahma-saṁhitāra sama*—like the scripture *Brahma-saṁhitā*; *govinda-mahimā*—of the glories of Lord Govinda; *jñānera*—of knowledge; *parama*—final; *kāraṇa*—cause; *alpa-akṣare*—briefly; *kahe*—expresses; *siddhānta*—conclusion; *apāra*—unlimited; *sakala*—all; *vaiṣṇava-śāstra*—devotional scriptures; *madhye*—among; *atisāra*—very essential.

@@ -1,11 +1,11 @@
 ### SB 6.3.7
 
-> अतस्त्वमेको भूतानां सेश्वराणामधीश्वरः
+> अतस्त्वमेको भूतानां सेश्वराणामधीश्वरः\
 > शास्ता दण्डधरो नॄणां शुभाशुभविवेचनः ॥७॥
 
-> atas tvam eko bhūtānāṁ
-> seśvarāṇām adhīśvaraḥ
-> śāstā daṇḍa-dharo nṝṇāṁ
+> atas tvam eko bhūtānāṁ\
+> seśvarāṇām adhīśvaraḥ\
+> śāstā daṇḍa-dharo nṝṇāṁ\
 > śubhāśubha-vivecanaḥ
 
 *ataḥ*—como tal; *tvam*—tú; *ekaḥ*—uno; *bhūtānām*—de todos los seres vivos; *sa-īśvarāṇām*—incluyendo a todos los semidioses; *adhīśvaraḥ*—el señor supremo; *śāstā*—el gobernador supremo; *daṇḍa-dharaḥ*—el administrador supremo de castigos; *nṝṇām*—de la sociedad humana; *śubha-aśubha-vivecanaḥ*—que discierne entre lo auspicioso y lo no auspicioso.

@@ -1,11 +1,11 @@
 ### SB 6.17.21
 
-> एकः सृजति भूतानि भगवानात्ममायया
+> एकः सृजति भूतानि भगवानात्ममायया\
 > एषां बन्धं च मोक्षं च सुखं दुःखं च निष्कलः ॥२१॥
 
-> ekaḥ sṛjati bhūtāni
-> bhagavān ātma-māyayā
-> eṣāṁ bandhaṁ ca mokṣaṁ ca
+> ekaḥ sṛjati bhūtāni\
+> bhagavān ātma-māyayā\
+> eṣāṁ bandhaṁ ca mokṣaṁ ca\
 > sukhaṁ duḥkhaṁ ca niṣkalaḥ
 
 *ekaḥ*—one; *sṛjati*—creates; *bhūtāni*—different varieties of living entities; *bhagavān*—the Supreme Personality of Godhead; *ātma-māyayā*—by His personal potencies; *eṣām*—of all the conditioned souls; *bandham*—the conditional life; *ca*—and; *mokṣam*—the liberated life; *ca*—also; *sukham*—happiness; *duḥkham*—distresses; *ca*—and; *niṣkalaḥ*—not affected by the material qualities.

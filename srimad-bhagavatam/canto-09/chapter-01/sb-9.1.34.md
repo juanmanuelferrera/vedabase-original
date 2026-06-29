@@ -1,11 +1,11 @@
 ### SB 9.1.34
 
-> अथ तामाश्रमाभ्याशे चरन्तीं प्रमदोत्तमाम
+> अथ तामाश्रमाभ्याशे चरन्तीं प्रमदोत्तमाम\
 > स्त्रीभिः परिवृतां वीक्ष्य चकमे भगवान्बुधः ॥३४॥
 
-> atha tām āśramābhyāśe
-> carantīṁ pramadottamām
-> strībhiḥ parivṛtāṁ vīkṣya
+> atha tām āśramābhyāśe\
+> carantīṁ pramadottamām\
+> strībhiḥ parivṛtāṁ vīkṣya\
 > cakame bhagavān budhaḥ
 
 *atha*—in this way; *tām*—her; *āśrama-abhyāśe*—in the neighborhood of his *āśrama*; *carantīm*—loitering; *pramadā-uttamām*—the best of beautiful women who excite sex; *strībhiḥ*—by other women; *parivṛtām*—surrounded; *vīkṣya*—seeing her; *cakame*—desired sex; *bhagavān*—the most powerful; *budhaḥ*—Budha, the son of the moon and predominating deity of the planet known as Budha, or Mercury.

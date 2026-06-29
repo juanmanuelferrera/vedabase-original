@@ -1,9 +1,9 @@
 ### CC Madhya 14.30
 
-> হরিবল্লভ, সেঁওতি, কর্পূর, মালতী ।
+> হরিবল্লভ, সেঁওতি, কর্পূর, মালতী ।\
 > ডালিমা মরিচ-লাড়ু, নবাত, অমৃতি ॥৩০॥
 
-> hari-vallabha, seṅoti, karpūra, mālatī
+> hari-vallabha, seṅoti, karpūra, mālatī\
 > ḍālimā marica-lāḍu, navāta, amṛti
 
 *hari-vallabha*—un dulce semejante al pan frito en ghī (como una rosquilla); *seṅoti*—un dulce hecho con cierta flor fragante; *karpūra*—una flor; *mālatī*—otra flor; *ḍālimā*—granada; *marica-lāḍu*—un dulce hecho con pimienta negra; *navāta*—otra clase de dulce, hecho con azúcar fundido; *amṛti*—una preparación que se conoce generalmente como amṛti-jilipi, hecha con harina de arroz y harina de garbanzo, mezcladas con yogur, fritas en ghī y sumergidas en agua azucarada.

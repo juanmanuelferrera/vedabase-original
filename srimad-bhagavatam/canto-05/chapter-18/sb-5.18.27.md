@@ -1,11 +1,11 @@
 ### SB 5.18.27
 
-> यं लोकपालाः किल मत्सरज्वरा हित्वा यतन्तोऽपि पृथक्समेत्य च
+> यं लोकपालाः किल मत्सरज्वरा हित्वा यतन्तोऽपि पृथक्समेत्य च\
 > पातुं न शेकुर्द्विपदश्चतुष्पदः सरीसृपं स्थाणु यदत्र दृश्यते ॥२७॥
 
-> yaṁ loka-pālāḥ kila matsara-jvarā
-> hitvā yatanto 'pi pṛthak sametya ca
-> pātuṁ na śekur dvi-padaś catuṣ-padaḥ
+> yaṁ loka-pālāḥ kila matsara-jvarā\
+> hitvā yatanto 'pi pṛthak sametya ca\
+> pātuṁ na śekur dvi-padaś catuṣ-padaḥ\
 > sarīsṛpaṁ sthāṇu yad atra dṛśyate
 
 *yam*—whom (You); *loka-pālāḥ*—the great leaders of the universe, beginning with Lord Brahmā; *kila*—what to speak of others; *matsara-jvarāḥ*—who are suffering from the fever of envy; *hitvā*—leaving aside; *yatantaḥ*—endeavoring; *api*—although; *pṛthak*—separately; *sametya*—combined; *ca*—also; *pātum*—to protect; *na*—not; *śekuḥ*—able; *dvi-padaḥ*—two-legged; *catuḥ-padaḥ*—four-legged; *sarīsṛpam*—reptiles; *sthāṇu*—not moving; *yat*—whatever; *atra*—within this material world; *dṛśyate*—is visible.

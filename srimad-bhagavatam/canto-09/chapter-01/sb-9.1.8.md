@@ -1,11 +1,11 @@
 ### SB 9.1.8
 
-> परावरेषां भूतानामात्मा यः पुरुषः परः
+> परावरेषां भूतानामात्मा यः पुरुषः परः\
 > स एवासीदिदं विश्वं कल्पान्तेऽन्यन्न किञ्चन ॥८॥
 
-> parāvareṣāṁ bhūtānām
-> ātmā yaḥ puruṣaḥ paraḥ
-> sa evāsīd idaṁ viśvaṁ
+> parāvareṣāṁ bhūtānām\
+> ātmā yaḥ puruṣaḥ paraḥ\
+> sa evāsīd idaṁ viśvaṁ\
 > kalpānte 'nyan na kiñcana
 
 *para-avareṣām*—of all living entities, in higher or lower statuses of life; *bhūtānām*—of those who have taken material bodies (the conditioned souls); *ātmā*—the Supersoul; *yaḥ*—one who is; *puruṣaḥ*—the Supreme Person; *paraḥ*—transcendental; *saḥ*—He; *eva*—indeed; *āsīt*—was existing; *idam*—this; *viśvam*—universe; *kalpa-ante*—at the end of the millennium; *anyat*—anything else; *na*—not; *kiñcana*—anything whatsoever.

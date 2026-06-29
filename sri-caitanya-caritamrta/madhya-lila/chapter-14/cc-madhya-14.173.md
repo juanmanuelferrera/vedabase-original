@@ -1,9 +1,9 @@
 ### CC Madhya 14.173
 
-> এইসব স্থানে ‘কিলকিঞ্চিত’ উদ্গম ।
+> এইসব স্থানে ‘কিলকিঞ্চিত’ উদ্গম ।\
 > প্রথমে ‘হর্ষ’ সঞ্চারী — মূল কারণ ॥১৭৩॥
 
-> ei-saba sthāne 'kila-kiñcita' udgama
+> ei-saba sthāne 'kila-kiñcita' udgama\
 > prathame 'harṣa' sañcārī-mūla kāraṇa
 
 *ei-saba sthāne*—in such places; *kila-kiñcita*—of the symptom of the ecstasy known as *kila-kiñcita*; *udgama*—awakening; *prathame*—in the beginning; *harṣa*—jubilation; *sañcārī*—ecstatic emotion; *mūla kāraṇa*—the root cause.

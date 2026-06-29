@@ -1,9 +1,9 @@
 ### CC Adi 16.54
 
-> পঞ্চ দোষ এই শ্লোকে পঞ্চ অলঙ্কার ।
+> পঞ্চ দোষ এই শ্লোকে পঞ্চ অলঙ্কার ।\
 > ক্রমে আমি কহি, শুন, করহ বিচার ॥৫৪॥
 
-> pañca doṣa ei śloke pañca alaṅkāra
+> pañca doṣa ei śloke pañca alaṅkāra\
 > krame āmi kahi, śuna, karaha vicāra
 
 *pañca*—cinco; *doṣa*—defectos; *ei śloke*—en este verso; *pañca*—cinco; *alaṅkāra*—ornamentos literarios; *krame*—uno tras otro; *āmi*—Yo; *kahi*—digo; *śuna*—escucha amablemente; *karaha*—emite; *vicāra*—juicio.

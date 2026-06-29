@@ -1,13 +1,13 @@
 ### SB 1.19.32
 
-> परीक्षिदुवाच
-> अहो अद्य वयं ब्रह्मन्सत्सेव्याः क्षत्रबन्धवः ।
+> परीक्षिदुवाच\
+> अहो अद्य वयं ब्रह्मन्सत्सेव्याः क्षत्रबन्धवः ।\
 > कृपयातिथिरूपेण भवद्भिस्तीर्थकाः कृताः ॥३२॥
 
-> parīkṣid uvāca
-> aho adya vayaṁ brahman
-> sat-sevyāḥ kṣatra-bandhavaḥ
-> kṛpayātithi-rūpeṇa
+> parīkṣid uvāca\
+> aho adya vayaṁ brahman\
+> sat-sevyāḥ kṣatra-bandhavaḥ\
+> kṛpayātithi-rūpeṇa\
 > bhavadbhis tīrthakāḥ kṛtāḥ
 
 *parīkṣit uvāca*—the fortunate Mahārāja Parīkṣit said; *aho*—ah; *adya*—today; *vayam*—we; *brahman*—O *brāhmaṇa*; *sat-sevyāḥ*—eligible to serve the devotee; *kṣatra*—the ruling class; *bandhavaḥ*—friends; *kṛpayā*—by your mercy; *atithi-rūpeṇa*—in the manner of a guest; *bhavadbhiḥ*—by your good self; *tīrthakāḥ*—qualified for being places of pilgrimage; *kṛtāḥ*—done by you.

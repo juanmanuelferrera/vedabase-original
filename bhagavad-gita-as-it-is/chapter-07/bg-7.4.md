@@ -1,11 +1,11 @@
 ### Bg 7.4
 
-> भूमिरापोऽनलो वायुः खं मनो बुद्धिरेव च ।
+> भूमिरापोऽनलो वायुः खं मनो बुद्धिरेव च ।\
 > अहंकार इतीयं मे भिन्ना प्रकृतिरष्टधा ॥४॥
 
-> bhūmir āpo 'nalo vāyuḥ
-> khaṁ mano buddhir eva ca
-> ahaṅkāra itīyaṁ me
+> bhūmir āpo 'nalo vāyuḥ\
+> khaṁ mano buddhir eva ca\
+> ahaṅkāra itīyaṁ me\
 > bhinnā prakṛtir aṣṭadhā
 
 *bhūmiḥ*—earth; *āpaḥ*—water; *analaḥ*—fire; *vāyuḥ*—air; *kham*—ether; *manaḥ*—mind; *buddhiḥ*—intelligence; *eva*—certainly; *ca*—and; *ahaṅkāraḥ*—false ego; *iti*—thus; *iyam*—all these; *me*—My; *bhinnā*—separated; *prakṛtiḥ*—energies; *aṣṭadhā*—total eight.

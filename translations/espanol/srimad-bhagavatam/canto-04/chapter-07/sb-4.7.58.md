@@ -1,11 +1,11 @@
 ### SB 4.7.58
 
-> एवं दाक्षायणी हित्वा सती पूर्वकलेवरम् ।
+> एवं दाक्षायणी हित्वा सती पूर्वकलेवरम् ।\
 > जज्ञे हिमवतः क्षेत्रे मेनायामिति शुश्रुम ॥५८॥
 
-> evaṁ dākṣāyaṇī hitvā
-> satī pūrva-kalevaram
-> jajñe himavataḥ kṣetre
+> evaṁ dākṣāyaṇī hitvā\
+> satī pūrva-kalevaram\
+> jajñe himavataḥ kṣetre\
 > menāyām iti śuśruma
 
 *evam*—de este modo; *dākṣāyaṇī*—la hija de Dakṣa; *hitvā*—después de abandonar; *satī*—Satī; *pūrva-kalevaram*—su cuerpo anterior; *jajñe*—nació; *himavataḥ*—de los Himālayas; *kṣetre*—en la esposa; *menāyām*—en Menā; *iti*—de este modo; *śuśruma*—he escuchado.

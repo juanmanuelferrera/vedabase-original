@@ -1,11 +1,11 @@
 ### SB 5.11.7
 
-> तावानयं व्यवहारः सदाविः क्षेत्रज्ञअसाक्ष्यो भवति स्थूलसूक्ष्मः
+> तावानयं व्यवहारः सदाविः क्षेत्रज्ञअसाक्ष्यो भवति स्थूलसूक्ष्मः\
 > तस्मान्मनो लिङ्गमदो वदन्ति गुणागुणत्वस्य परावरस्य ॥७॥
 
-> tāvān ayaṁ vyavahāraḥ sadāviḥ
-> kṣetrajña-sākṣyo bhavati sthūla-sūkṣmaḥ
-> tasmān mano liṅgam ado vadanti
+> tāvān ayaṁ vyavahāraḥ sadāviḥ\
+> kṣetrajña-sākṣyo bhavati sthūla-sūkṣmaḥ\
+> tasmān mano liṅgam ado vadanti\
 > guṇāguṇatvasya parāvarasya
 
 *tāvān*—until that time; *ayam*—this; *vyavahāraḥ*—the artificial designations (being fat or skinny, or belonging to the demigods or human beings); *sadā*—always; *āviḥ*—manifesting; *kṣetra-jña*—of the Living entity; *sākṣyaḥ*—testimony; *bhavati*—is; *sthūla-sūkṣmaḥ*—fat and skinny; *tasmāt*—therefore; *manaḥ*—the mind; *liṅgam*—the cause; *adaḥ*—this; *vadanti*—they say; *guṇa-aguṇatvasya*—of being absorbed in material qualities or devoid of material qualities; *para-avarasya*—and of lower and higher conditions of life.

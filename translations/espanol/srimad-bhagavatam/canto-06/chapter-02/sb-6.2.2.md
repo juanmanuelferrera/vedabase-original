@@ -1,13 +1,13 @@
 ### SB 6.2.2
 
-> श्रीविष्णुदूता ऊचुः
-> अहो कष्टं धर्मदृशामधर्मः स्पृशते सभाम
+> श्रीविष्णुदूता ऊचुः\
+> अहो कष्टं धर्मदृशामधर्मः स्पृशते सभाम\
 > यत्रादण्ड्येष्वपापेषु दण्डो यैर्ध्रियते वृथा ॥२॥
 
-> śrī-viṣṇudūtā ūcuḥ
-> aho kaṣṭaṁ dharma-dṛśām
-> adharmaḥ spṛśate sabhām
-> yatrādaṇḍyeṣv apāpeṣu
+> śrī-viṣṇudūtā ūcuḥ\
+> aho kaṣṭaṁ dharma-dṛśām\
+> adharmaḥ spṛśate sabhām\
+> yatrādaṇḍyeṣv apāpeṣu\
 > daṇḍo yair dhriyate vṛthā
 
 *śrī-viṣṇudūtāḥ ūcuḥ*—los *viṣṇudūtas* dijeron; *aho*—¡ay!; *kaṣṭam*—¡qué penoso resulta!; *dharma-dṛśām*—de personas interesadas en mantener la religión; *adharmaḥ*—irreligión; *spṛśate*—afecta; *sabhām*—a la asamblea; *yatra*—donde; *adaṇḍyeṣu*—a personas que no merecen castigo alguno; *apāpeṣu*—que están libres de pecado; *daṇḍaḥ*—castigo; *yaiḥ*—por el cual; *dhriyate*—se aplica; *vṛthā*—injustamente.

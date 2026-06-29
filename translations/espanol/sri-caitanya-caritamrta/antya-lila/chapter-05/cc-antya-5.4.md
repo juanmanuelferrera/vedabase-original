@@ -1,9 +1,9 @@
 ### CC Antya 5.4
 
-> একদিন প্রদ্যুম্ন-মিশ্র প্রভুর চরণে  ।
+> একদিন প্রদ্যুম্ন-মিশ্র প্রভুর চরণে  ।\
 > দণ্ডবৎ করি’ কিছু করে নিবেদনে ॥৪॥
 
-> eka-dina pradyumna-miśra prabhura caraṇe
+> eka-dina pradyumna-miśra prabhura caraṇe\
 > daṇḍavat kari' kichu kare nivedane
 
 *eka-dina*—un día; *pradyumna-miśra*—el devoto llamado Pradyumna Miśra; *prabhura caraṇe*—a los pies de loto de Śrī Caitanya Mahāprabhu; *daṇḍavat kari'*—ofreciendo sus respetos; *kichu*—algo; *kare nivedane*—presenta como petición.

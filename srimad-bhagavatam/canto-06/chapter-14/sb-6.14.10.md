@@ -1,11 +1,11 @@
 ### SB 6.14.10
 
-> आसीद्राजा सार्वभौमः शूरसेनेषु वै नृप
+> आसीद्राजा सार्वभौमः शूरसेनेषु वै नृप\
 > चित्रकेतुरिति ख्यातो यस्यासीत्कामधुङ्मही ॥१०॥
 
-> āsīd rājā sārvabhaumaḥ
-> śūraseneṣu vai nṛpa
-> citraketur iti khyāto
+> āsīd rājā sārvabhaumaḥ\
+> śūraseneṣu vai nṛpa\
+> citraketur iti khyāto\
 > yasyāsīt kāmadhuṅ mahī
 
 *āsīt*—there was; *rājā*—one king; *sārva-bhaumaḥ*—an emperor of the entire surface of the globe; *śūraseneṣu*—in the country known as Śūrasena; *vai*—indeed; *nṛpa*—O King; *citraketuḥ*—Citraketu; *iti*—thus; *khyātaḥ*—celebrated; *yasya*—of whom; *āsīt*—was; *kāma-dhuk*—supplying all the necessities; *mahī*—the earth.

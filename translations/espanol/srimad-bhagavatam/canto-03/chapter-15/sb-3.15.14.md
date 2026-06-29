@@ -1,11 +1,11 @@
 ### SB 3.15.14
 
-> वसन्ति यत्र पुरुषाः सर्वे वैकुण्ठमूर्तयः ।
+> वसन्ति यत्र पुरुषाः सर्वे वैकुण्ठमूर्तयः ।\
 > येऽनिमित्तनिमित्तेन धर्मेणाराधयन्हरिम् ॥१४॥
 
-> vasanti yatra puruṣāḥ
-> sarve vaikuṇṭha-mūrtayaḥ
-> ye 'nimitta-nimittena
+> vasanti yatra puruṣāḥ\
+> sarve vaikuṇṭha-mūrtayaḥ\
+> ye 'nimitta-nimittena\
 > dharmeṇārādhayan harim
 
 *vasanti*—viven; *yatra*—donde; *puruṣāḥ*—personas; *sarve*—todas; *vaikuṇṭha-mūrtayaḥ*—con una forma de cuatro brazos, semejante a la del Señor Supremo, Viṣṇu; *ye*—aquellas personas de Vaikuṇṭha; *animitta*—sin deseo de complacencia de los sentidos; *nimittena*—provocado por; *dharmeṇa*—mediante servicio devocional; *ārādhayan*—adorando continuamente; *harim*—a la Suprema Personalidad de Dios.

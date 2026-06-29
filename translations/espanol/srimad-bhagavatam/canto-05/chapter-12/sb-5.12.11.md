@@ -1,11 +1,11 @@
 ### SB 5.12.11
 
-> ज्ञआनं विशुद्धं परमार्थमेकमनन्तरं त्वबहिर्ब्रह्म सत्यम
+> ज्ञआनं विशुद्धं परमार्थमेकमनन्तरं त्वबहिर्ब्रह्म सत्यम\
 > प्रत्यक्प्रशान्तं भगवच्छब्दसंज्ञअं यद्वासुदेवं कवयो वदन्ति ॥११॥
 
-> jñānaṁ viśuddhaṁ paramārtham ekam
-> anantaraṁ tv abahir brahma satyam
-> pratyak praśāntaṁ bhagavac-chabda-saṁjñaṁ
+> jñānaṁ viśuddhaṁ paramārtham ekam\
+> anantaraṁ tv abahir brahma satyam\
+> pratyak praśāntaṁ bhagavac-chabda-saṁjñaṁ\
 > yad vāsudevaṁ kavayo vadanti
 
 *jñānam*—el conocimiento supremo; *viśuddham*—sin contaminación; *parama-artham*—que da el objetivo supremo de la vida; *ekam*—unificado; *anantaram*—sin interior, indiviso; *tu*—también; *abahiḥ*—sin exterior; *brahma*—la Suprema; *satyam*—Verdad Absoluta; *pratyak*—interno; *praśāntam*—el sereno y apacible Señor Supremo, a quien adoran los *yogīs*; *bhagavat-śabda-saṁjñam*—a quien en el plano más elevado se conoce como Bhagavān, o pleno en todas las opulencias; *yat*—ese; *vāsudevam*—al Señor Kṛṣṇa, el hijo de Vasudeva; *kavayaḥ*—los sabios eruditos; *vadanti*—dicen.

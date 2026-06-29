@@ -1,9 +1,9 @@
 ### CC Antya 11.53
 
-> হরিদাস নিজাগ্রেতে প্রভুরে বসাইলা ।
+> হরিদাস নিজাগ্রেতে প্রভুরে বসাইলা ।\
 > নিজ-নেত্র — দুই ভৃঙ্গ — মুখপদ্মে দিলা ॥৫৩॥
 
-> haridāsa nijāgrete prabhure vasāilā
+> haridāsa nijāgrete prabhure vasāilā\
 > nija-netra—dui bhṛṅga—mukha-padme dilā
 
 *haridāsa*—Ṭhākura Haridāsa; *nija-agrete*—in front of himself; *prabhure vasāilā*—made the Lord sit down; *nija-netra*—his eyes; *dui bhṛṅga*—as if two bumblebees; *mukha-padme*—on the lotus face; *dilā*—he fixed.

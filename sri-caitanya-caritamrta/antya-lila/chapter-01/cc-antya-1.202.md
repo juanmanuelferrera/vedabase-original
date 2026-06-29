@@ -1,9 +1,9 @@
 ### CC Antya 1.202
 
-> এই দুই ভাইয়ে আমি পাঠাইলুঁ বৃন্দাবনে ।
+> এই দুই ভাইয়ে আমি পাঠাইলুঁ বৃন্দাবনে ।\
 > শক্তি দিয়া ভক্তিশাস্ত্র করিতে প্রবর্তনে ॥২০২॥
 
-> ei dui bhāiye āmi pāṭhāiluṅ vṛndāvane
+> ei dui bhāiye āmi pāṭhāiluṅ vṛndāvane\
 > śakti diyā bhakti-śāstra karite pravartane
 
 *ei*—these; *dui*—two; *bhāiye*—brothers; *āmi*—I; *pāṭhāiluṅ*—sent; *vṛndāvane*—to Vṛndāvana; *śakti diyā*—empowering them; *bhakti-śāstra*—transcendental literature regarding devotional service; *karite*—to do; *pravartane*—establishing.

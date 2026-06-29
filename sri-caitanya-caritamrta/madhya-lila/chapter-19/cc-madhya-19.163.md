@@ -1,9 +1,9 @@
 ### CC Madhya 19.163
 
-> তাহাঁ সেই কল্পবৃক্ষের করয়ে সেবন ।
+> তাহাঁ সেই কল্পবৃক্ষের করয়ে সেবন ।\
 > সুখে প্রেমফল-রস করে আস্বাদন ॥১৬৩॥
 
-> tāhāṅ sei kalpa-vṛkṣera karaye sevana
+> tāhāṅ sei kalpa-vṛkṣera karaye sevana\
 > sukhe prema-phala-rasa kare āsvādana
 
 *tāhāṅ*—there (in Goloka Vṛndāvana); *sei kalpa-vṛkṣera*—of the lotus feet of Kṛṣṇa, which are compared to a desire tree; *karaye sevana*—engages in the service; *sukhe*—in transcendental bliss; *prema-phala-rasa*—the juice of the fruit of devotional service; *kare*—does; *āsvādana*—tasting.

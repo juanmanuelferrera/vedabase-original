@@ -1,9 +1,9 @@
 ### CC Madhya 23.56
 
-> শান্তাদি রসের ‘যোগ’, ‘বিয়োগ’ — দুই ভেদ ।
+> শান্তাদি রসের ‘যোগ’, ‘বিয়োগ’ — দুই ভেদ ।\
 > সখ্য-বাৎসল্যে যোগাদির অনেক বিভেদ ॥৫৬॥
 
-> śānta-ādi rasera 'yoga', 'viyoga'—dui bheda
+> śānta-ādi rasera 'yoga', 'viyoga'—dui bheda\
 > sakhya-vātsalye yogādira aneka vibheda
 
 *śānta-ādi rasera*—of the mellows beginning from neutrality; *yoga*—connection; *viyoga*—separation; *dui bheda*—two divisions; *sakhya*—in the mellow of friendship; *vātsalye*—in paternal affection; *yoga-ādira*—of connection and separation; *aneka vibheda*—many varieties.

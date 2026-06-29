@@ -1,11 +1,11 @@
 ### SB 4.29.63
 
-> यथानुमीयते चित्तमुभयैरिन्द्रियेहितैः ।
+> यथानुमीयते चित्तमुभयैरिन्द्रियेहितैः ।\
 > एवं प्राग्देहजं कर्म लक्ष्यते चित्तवृत्तिभिः ॥६३॥
 
-> yathānumīyate cittam
-> ubhayair indriyehitaiḥ
-> evaṁ prāg-dehajaṁ karma
+> yathānumīyate cittam\
+> ubhayair indriyehitaiḥ\
+> evaṁ prāg-dehajaṁ karma\
 > lakṣyate citta-vṛttibhiḥ
 
 *yathā*—as; *anumīyate*—can be imagined; *cittam*—one's consciousness or mental condition; *ubhayaiḥ*—both; *indriya*—of the senses; *īhitaiḥ*—by the activities; *evam*—similarly; *prāk*—previous; *dehajam*—performed by the body; *karma*—activities; *lakṣyate*—can be perceived; *citta*—of consciousness; *vṛttibhiḥ*—by the occupations.

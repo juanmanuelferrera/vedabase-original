@@ -1,13 +1,13 @@
 ### SB 4.8.24
 
-> मैत्रेय उवाच
-> एवं सञ्जल्पितं मातुराकर्ण्यार्थागमं वचः ।
+> मैत्रेय उवाच\
+> एवं सञ्जल्पितं मातुराकर्ण्यार्थागमं वचः ।\
 > सन्नियम्यात्मनात्मानं निश्चक्राम पितुः पुरात् ॥२४॥
 
-> maitreya uvāca
-> evaṁ sañjalpitaṁ mātur
-> ākarṇyārthāgamaṁ vacaḥ
-> sanniyamyātmanātmānaṁ
+> maitreya uvāca\
+> evaṁ sañjalpitaṁ mātur\
+> ākarṇyārthāgamaṁ vacaḥ\
+> sanniyamyātmanātmānaṁ\
 > niścakrāma pituḥ purāt
 
 *maitreyaḥ uvāca*—the great sage Maitreya said; *evam*—thus; *sañjalpitam*—spoken together; *mātuḥ*—from the mother; *ākarṇya*—hearing; *artha-āgamam*—purposeful; *vacaḥ*—words; *sanniyamya*—controlling; *ātmanā*—by the mind; *ātmānam*—own self; *niścakrāma*—got out; *pituḥ*—of the father; *purāt*—from the house.

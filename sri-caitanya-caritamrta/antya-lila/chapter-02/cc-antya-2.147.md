@@ -1,9 +1,9 @@
 ### CC Antya 2.147
 
-> প্রভুপদপ্রাপ্তি লাগি’ সঙ্কল্প করিল ।
+> প্রভুপদপ্রাপ্তি লাগি’ সঙ্কল্প করিল ।\
 > ত্রিবেণী প্রবেশ করি’ প্রাণ ছাড়িল ॥১৪৭॥
 
-> prabhu-pada-prāpti lāgi' saṅkalpa karila
+> prabhu-pada-prāpti lāgi' saṅkalpa karila\
 > triveṇī praveśa kari' prāṇa chāḍila
 
 *prabhu-pada*—the lotus feet of Śrī Caitanya Mahāprabhu; *prāpti lāgi'*—with a view to getting; *saṅkalpa karila*—decided definitely; *tri-veṇī praveśa kari'*—entering into the water at the confluence of the Ganges and Yamunā at Prayāga; *prāṇa chāḍila*—give up his life.

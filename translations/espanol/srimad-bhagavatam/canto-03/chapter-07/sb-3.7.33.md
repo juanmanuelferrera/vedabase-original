@@ -1,11 +1,11 @@
 ### SB 3.7.33
 
-> श्राद्धस्य च विधिं ब्रह्मन्पित्णां सर्गमेव च ।
+> श्राद्धस्य च विधिं ब्रह्मन्पित्णां सर्गमेव च ।\
 > ग्रहनक्षत्रताराणां कालावयवसंस्थितिम् ॥३३॥
 
-> śrāddhasya ca vidhiṁ brahman
-> pitṝṇāṁ sargam eva ca
-> graha-nakṣatra-tārāṇāṁ
+> śrāddhasya ca vidhiṁ brahman\
+> pitṝṇāṁ sargam eva ca\
+> graha-nakṣatra-tārāṇāṁ\
 > kālāvayava-saṁsthitim
 
 *śrāddhasya*—de los periódicos ofrecimientos de respeto; *ca*—también; *vidhim*—regulaciones; *brahman*—¡oh, *brāhmaṇa*!; *pitṝṇām*—de los antepasados; *sargam*—creación; *eva*—así como; *ca*—también; *graha*—sistema planetario; *nakṣatra*—las estrellas; *tārāṇām*—astros luminosos; *kāla*—tiempo; *avayava*—duración; *saṁsthitim*—situaciones.

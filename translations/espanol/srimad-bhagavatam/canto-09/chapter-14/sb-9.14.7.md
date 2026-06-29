@@ -1,11 +1,11 @@
 ### SB 9.14.7
 
-> सर्वदेवगणोपेतो महेन्द्रो गुरुमन्वयात
+> सर्वदेवगणोपेतो महेन्द्रो गुरुमन्वयात\
 > सुरासुरविनाशोऽभूत्समरस्तारकामयः ॥७॥
 
-> sarva-deva-gaṇopeto
-> mahendro gurum anvayāt
-> surāsura-vināśo 'bhūt
+> sarva-deva-gaṇopeto\
+> mahendro gurum anvayāt\
+> surāsura-vināśo 'bhūt\
 > samaras tārakāmayaḥ
 
 *sarva-deva-gaṇa*—por todos los semidioses; *upetaḥ*—acompañado; *mahendraḥ*—Mahendra, el rey del cielo, Indra; *gurum*—a su maestro espiritual; *anvayāt*—siguió; *sura*—de los semidioses; *asura*—y de los demonios; *vināśaḥ*—causando destrucción; *abhūt*—hubo; *samaraḥ*—una guerra; *tārakā-mayaḥ*—simplemente por Tārā, una mujer, la esposa de Bṛhaspati.

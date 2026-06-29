@@ -1,9 +1,9 @@
 ### CC Madhya 6.198
 
-> সনকাদি-শুকদেব তাহাতে প্রমাণ ।
+> সনকাদি-শুকদেব তাহাতে প্রমাণ ।\
 > এইমত নানা অর্থ করেন ব্যাখ্যান ॥১৯৮॥
 
-> sanakādi-śukadeva tāhāte pramāṇa
+> sanakādi-śukadeva tāhāte pramāṇa\
 > ei-mata nānā artha karena vyākhyāna
 
 *sanaka-ādi*—the four *Sanas*; *śukadeva*—and Śukadeva Gosvāmī; *tāhāte*—in that; *pramāṇa*—the evidence; *ei-mata*—in this way; *nānā*—varieties; *artha*—meaning; *karena*—does; *vyākhyāna*—explanation.

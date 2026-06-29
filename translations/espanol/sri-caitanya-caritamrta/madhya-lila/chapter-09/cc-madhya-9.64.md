@@ -1,9 +1,9 @@
 ### CC Madhya 9.64
 
-> মহাপ্রভু চলি’ আইলা ত্রিপতি-ত্রিমল্লে ৷
+> মহাপ্রভু চলি’ আইলা ত্রিপতি-ত্রিমল্লে ৷\
 > চতুর্ভুজ মূর্তি দেখি’ ব্যেঙ্কটাদ্র্যে চলে ৷৷ ৬৪ ৷৷ ॥৬৪॥
 
-> mahāprabhu cali' āilā tripati-trimalle
+> mahāprabhu cali' āilā tripati-trimalle\
 > catur-bhuja mūrti dekhi' vyeṅkaṭādrye cale
 
 *mahāprabhu*—el Señor Śrī Caitanya Mahāprabhu; *cali' āilā*—llegó caminando; *tripati-trimalle*—a los lugares sagrados llamados Tirupati y Tirumala; *catur-bhuja*—de cuatro brazos; *mūrti*—la Deidad; *dekhi'*—al ver; *vyeṅkaṭa-adrye*—hacia el lugar sagrado de la colina de Veṅkaṭa; *cale*—comenzó a dirigirse.

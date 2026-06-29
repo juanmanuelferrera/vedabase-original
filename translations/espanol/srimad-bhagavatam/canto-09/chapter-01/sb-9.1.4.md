@@ -1,11 +1,11 @@
 ### SB 9.1.4
 
-> तेषां वंशं पृथग्ब्रह्मन्वंशानुचरितानि च
+> तेषां वंशं पृथग्ब्रह्मन्वंशानुचरितानि च\
 > कीर्तयस्व महाभाग नित्यं शुश्रूषतां हि नः ॥४॥
 
-> teṣāṁ vaṁśaṁ pṛthag brahman
-> vaṁśānucaritāni ca
-> kīrtayasva mahā-bhāga
+> teṣāṁ vaṁśaṁ pṛthag brahman\
+> vaṁśānucaritāni ca\
+> kīrtayasva mahā-bhāga\
 > nityaṁ śuśrūṣatāṁ hi naḥ
 
 *teṣām*—de todos esos reyes; *vaṁśam*—las dinastías; *pṛthak*—por separado; *brahman*—¡oh, gran *brāhmaṇa* (Śukadeva Gosvāmī)!; *vaṁśa-anucaritāni ca*—y sus dinastías y características; *kīrtayasva*—por favor, explica; *mahā-bhāga*—¡oh, muy afortunado!; *nityam*—eternamente; *śuśrūṣatām*—que estamos ocupados en tu servicio; *hi*—en verdad; *naḥ*—de nosotros.

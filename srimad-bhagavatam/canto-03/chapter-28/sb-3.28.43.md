@@ -1,11 +1,11 @@
 ### SB 3.28.43
 
-> स्वयोनिषु यथा ज्योतिरेकं नाना प्रतीयते ।
+> स्वयोनिषु यथा ज्योतिरेकं नाना प्रतीयते ।\
 > योनीनां गुणवैषम्यात्तथात्मा प्रकृतौ स्थितः ॥४३॥
 
-> sva-yoniṣu yathā jyotir
-> ekaṁ nānā pratīyate
-> yonīnāṁ guṇa-vaiṣamyāt
+> sva-yoniṣu yathā jyotir\
+> ekaṁ nānā pratīyate\
+> yonīnāṁ guṇa-vaiṣamyāt\
 > tathātmā prakṛtau sthitaḥ
 
 *sva-yoniṣu*—in forms of wood; *yathā*—as; *jyotiḥ*—fire; *ekam*—one; *nānā*—differently; *pratīyate*—is exhibited; *yonīnām*—of different wombs; *guṇa-vaiṣamyāt*—from the different conditions of the modes; *tathā*—so; *ātmā*—the spirit soul; *prakṛtau*—in the material nature; *sthitaḥ*—situated.

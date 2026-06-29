@@ -1,9 +1,9 @@
 ### CC Madhya 25.193
 
-> স্ত্রী মরিতে চাহে, রাজা সঙ্কটে পড়িল ।
+> স্ত্রী মরিতে চাহে, রাজা সঙ্কটে পড়িল ।\
 > করোঁয়ার পানি তার মুখে দেওয়াইল ॥১৯৩॥
 
-> strī marite cāhe, rājā saṅkaṭe paḍila
+> strī marite cāhe, rājā saṅkaṭe paḍila\
 > karoṅyāra pāni tāra mukhe deoyāila
 
 *strī*—the wife; *marite cāhe*—wants to kill Subuddhi Rāya; *rājā*—the King; *saṅkaṭe paḍila*—became very perplexed; *karoṅyāra pāni*—water from a pitcher especially used by Mohammedans; *tāra mukhe*—on his head; *deoyāila*—forced to be sprinkled.

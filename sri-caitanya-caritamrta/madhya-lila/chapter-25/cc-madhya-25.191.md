@@ -1,9 +1,9 @@
 ### CC Madhya 25.191
 
-> রাজা কহে, — আমার পোষ্টা রায় হয় ‘পিতা’ ।
+> রাজা কহে, — আমার পোষ্টা রায় হয় ‘পিতা’ ।\
 > তাহারে মারিমু আমি, — ভাল নহে কথা ॥১৯১॥
 
-> rājā kahe,-āmāra poṣṭā rāya haya 'pitā'
+> rājā kahe,-āmāra poṣṭā rāya haya 'pitā'\
 > tāhāre mārimu āmi,-bhāla nahe kathā
 
 *rājā kahe*—the King said; *āmāra*—my; *poṣṭā*—maintainer; *rāya*—Subuddhi Rāya; *haya*—is; *pitā*—just like my father; *tāhāre mārimu*—shall kill him; *āmi*—I; *bhāla nahe kathā*—this is not a good proposal.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.73
 
-> আচার্য বলে — অকপটে করহ আহার ।
+> আচার্য বলে — অকপটে করহ আহার ।\
 > যদি খাইতে না পার পাতে রহিবেক আর ॥৭৩॥
 
-> ācārya bale—akapaṭe karaha āhāra
+> ācārya bale—akapaṭe karaha āhāra\
 > yadi khāite nā pāra pāte rahibeka āra
 
 *ācāryabale*—Advaita Ācārya says; *akapaṭe*—without pretense; *karaha*—kindly do; *āhāra*—eating; *yadi*—if; *khāite*—to eat; *nā pāra*—You are not able; *pāte*—on the leaf; *rahibeka āra*—let the balance remain.

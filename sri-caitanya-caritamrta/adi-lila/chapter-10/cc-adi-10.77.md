@@ -1,9 +1,9 @@
 ### CC Adi 10.77
 
-> ভাগবতী দেবানন্দ বক্রেশ্বর-কৃপাতে ।
+> ভাগবতী দেবানন্দ বক্রেশ্বর-কৃপাতে ।\
 > ভাগবতের ভক্তি-অর্থ পাইল প্রভু হৈতে ॥৭৭॥
 
-> bhāgavatī devānanda vakreśvara-kṛpāte
+> bhāgavatī devānanda vakreśvara-kṛpāte\
 > bhāgavatera bhakti-artha pāila prabhu haite
 
 *bhāgavatī devānanda*—Devānanda, who used to recite *Śrīmad-Bhāgavatam*; *vakreśvara-kṛpāte*—by the mercy of Vakreśvara; *bhāgavatera*—of *Śrīmad-Bhāgavatam*; *bhakti-artha*—the *bhakti* interpretation; *pāila*—got; *prabhuhaite*—from the Lord.

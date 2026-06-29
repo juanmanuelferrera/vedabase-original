@@ -1,11 +1,11 @@
 ### SB 3.11.28
 
-> तमोमात्रामुपादाय प्रतिसंरुद्धविक्रमः ।
+> तमोमात्रामुपादाय प्रतिसंरुद्धविक्रमः ।\
 > कालेनानुगताशेष आस्ते तूष्णीं दिनात्यये ॥२८॥
 
-> tamo-mātrām upādāya
-> pratisaṁruddha-vikramaḥ
-> kālenānugatāśeṣa
+> tamo-mātrām upādāya\
+> pratisaṁruddha-vikramaḥ\
+> kālenānugatāśeṣa\
 > āste tūṣṇīṁ dinātyaye
 
 *tamaḥ*—la modalidad de la ignorancia, o la oscuridad de la noche; *mātrām*—una insignificante porción únicamente; *upādāya*—aceptando; *pratisaṁruddha-vikramaḥ*—suspendiendo toda capacidad de manifestación; *kālena*—mediante el eterno *kāla*; *anugata*—fundido en; *aśeṣaḥ*—innumerables entidades vivientes; *āste*—permanece; *tūṣṇīm*—en silencio; *dina-atyaye*—al final del día.

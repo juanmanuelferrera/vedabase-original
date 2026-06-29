@@ -1,11 +1,11 @@
 ### SB 7.5.21
 
-> आरोप्याङ्कमवघ्राय मूर्धन्यश्रुकलाम्बुभिः
+> आरोप्याङ्कमवघ्राय मूर्धन्यश्रुकलाम्बुभिः\
 > आसिञ्चन्विकसद्वक्त्रमिदमाह युधिष्ठिर ॥२१॥
 
-> āropyāṅkam avaghrāya
-> mūrdhany aśru-kalāmbubhiḥ
-> āsiñcan vikasad-vaktram
+> āropyāṅkam avaghrāya\
+> mūrdhany aśru-kalāmbubhiḥ\
+> āsiñcan vikasad-vaktram\
 > idam āha yudhiṣṭhira
 
 *āropya*—placing; *aṅkam*—on the lap; *avaghrāya mūrdhani*—smelling his head; *aśru*—of tears; *kalā-ambubhiḥ*—with water from drops; *āsiñcan*—moistening; *vikasat-vaktram*—his smiling face; *idam*—this; *āha*—said; *yudhiṣṭhira*—O Mahārāja Yudhiṣṭhira.

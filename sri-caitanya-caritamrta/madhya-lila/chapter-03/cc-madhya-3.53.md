@@ -1,9 +1,9 @@
 ### CC Madhya 3.53
 
-> সঘৃত-পায়স নব-মৃৎকুণ্ডিকা ভরিঞা ।
+> সঘৃত-পায়স নব-মৃৎকুণ্ডিকা ভরিঞা ।\
 > তিন পাত্রে ঘনাবর্ত-দুগ্ধ রাখেত ধরিঞা ॥৫৩॥
 
-> saghṛta-pāyasa nava-mṛt-kuṇḍikā bhariñā
+> saghṛta-pāyasa nava-mṛt-kuṇḍikā bhariñā\
 > tina pātre ghanāvarta-dugdha rākheta dhariñā
 
 *sa-ghṛta-pāyasa*—sweet rice mixed with ghee; *nava-mṛt-kuṇḍikā*—new earthen pots; *bhariñā*—filling; *tina pātre*—in three pots; *ghana-āvarta-dugdha*—finely condensed milk; *rākheta*—were kept; *dhariñā*—fixing.

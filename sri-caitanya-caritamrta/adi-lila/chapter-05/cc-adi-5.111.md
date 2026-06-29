@@ -1,9 +1,9 @@
 ### CC Adi 5.111
 
-> তাঁহা ক্ষীরোদধি-মধ্যে ‘শ্বেতদ্বীপ’ নাম ।
+> তাঁহা ক্ষীরোদধি-মধ্যে ‘শ্বেতদ্বীপ’ নাম ।\
 > পালয়িতা বিষ্ণু, — তাঁর সেই নিজ ধাম ॥১১১॥
 
-> tāṅhā kṣīrodadhi-madhye 'śvetadvīpa' nāma
+> tāṅhā kṣīrodadhi-madhye 'śvetadvīpa' nāma\
 > pālayitā viṣṇu,—tāṅra sei nija dhāma
 
 *tāṅhā*—within that; *kṣīra-udadhi-madhye*—in part of the ocean known as the ocean of milk; *śvetadvīpa nāma*—the island named Śvetadvīpa; *pālayitā viṣṇu*—the maintainer, Lord Viṣṇu; *tāṅra*—of Him; *sei*—that; *nija dhāma*—own residential quarters.

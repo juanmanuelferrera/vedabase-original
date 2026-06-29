@@ -1,11 +1,11 @@
 ### SB 4.29.48
 
-> स्वं लोकं न विदुस्ते वै यत्र देवो जनार्दनः ।
+> स्वं लोकं न विदुस्ते वै यत्र देवो जनार्दनः ।\
 > आहुर्धूम्रधियो वेदं सकर्मकमतद्विदः ॥४८॥
 
-> svaṁ lokaṁ na vidus te vai
-> yatra devo janārdanaḥ
-> āhur dhūmra-dhiyo vedaṁ
+> svaṁ lokaṁ na vidus te vai\
+> yatra devo janārdanaḥ\
+> āhur dhūmra-dhiyo vedaṁ\
 > sakarmakam atad-vidaḥ
 
 *svam*—propia; *lokam*—morada; *na*—nunca; *viduḥ*—conocen; *te*—esas personas; *vai*—ciertamente; *yatra*—donde; *devaḥ*—la Suprema Personalidad de Dios; *janārdanaḥ*—Kṛṣṇa, o Viṣṇu; *āhuḥ*—hablan; *dhūmra-dhiyaḥ*—la clase de hombres poco inteligente; *vedam*—los cuatro *Vedas*; *sa-karmakam*—llenos de ceremonias rituales; *a-tat-vidaḥ*—personas carentes de conocimiento.

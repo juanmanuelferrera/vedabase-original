@@ -1,11 +1,11 @@
 ### SB 1.14.15
 
-> धूम्रा दिशः परिधयः कम्पते भूः सहाद्रिभिः ।
+> धूम्रा दिशः परिधयः कम्पते भूः सहाद्रिभिः ।\
 > निर्घातश्च महांस्तात साकं च स्तनयित्नुभिः ॥१५॥
 
-> dhūmrā diśaḥ paridhayaḥ
-> kampate bhūḥ sahādribhiḥ
-> nirghātaś ca mahāṁs tāta
+> dhūmrā diśaḥ paridhayaḥ\
+> kampate bhūḥ sahādribhiḥ\
+> nirghātaś ca mahāṁs tāta\
 > sākaṁ ca stanayitnubhiḥ
 
 *dhūmrāḥ*—humeante; *diśaḥ*—todas las direcciones; *paridhayaḥ*—circunscripción; *kampate*—estremecimiento; *bhūḥ*—la Tierra; *saha adribhiḥ*—junto con las colinas y montañas; *nirghātaḥ*—rayo del cielo; *ca*—también; *mahān*—muy grande; *tāta*—¡oh, Bhīma!; *sākam*—con; *ca*—también; *stanayitnubhiḥ*—sonido del trueno sin ninguna nube.

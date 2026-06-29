@@ -1,9 +1,9 @@
 ### CC Antya 10.132
 
-> কভু রাত্রিকালে কিছু করেন উপযোগ ।
+> কভু রাত্রিকালে কিছু করেন উপযোগ ।\
 > ভক্তের শ্রদ্ধার দ্রব্য অবশ্য করেন উপভোগ ॥১৩২॥
 
-> kabhu rātri-kāle kichu karena upayoga
+> kabhu rātri-kāle kichu karena upayoga\
 > bhaktera śraddhāra dravya avaśya karena upabhoga
 
 *kabhu*—a veces; *rātri-kāle*—por la noche; *kichu*—algo; *karena upayoga*—utilizaba; *bhaktera*—de los devotos; *śraddhāra*—con fe y amor; *dravya*—preparaciones; *avaśya*—ciertamente; *karena upabhoga*—disfruta.

@@ -1,9 +1,9 @@
 ### CC Madhya 21.78
 
-> দ্বারকাদি — বিভু, তার এই ত প্রমাণ ।
+> দ্বারকাদি — বিভু, তার এই ত প্রমাণ ।\
 > ‘আমারই ব্রহ্মাণ্ডে কৃষ্ণ’ সবার হৈল জ্ঞান ॥৭৮॥
 
-> dvārakādi—vibhu, tāra ei ta pramāṇa
+> dvārakādi—vibhu, tāra ei ta pramāṇa\
 > 'āmāra-i brahmāṇḍe kṛṣṇa' sabāra haila jñāna
 
 *dvārakā-ādi*—Dvārakā-dhāma and other abodes; *vibhu*—transcendental abode; *tāra ei ta pramāṇa*—this is the evidence of that; *āmāra-i brahmāṇḍe*—in my *brahmāṇḍa*; *kṛṣṇa*—Kṛṣṇa is now present; *sabāra*—of all of them; *haila jñāna*—there was this knowledge.

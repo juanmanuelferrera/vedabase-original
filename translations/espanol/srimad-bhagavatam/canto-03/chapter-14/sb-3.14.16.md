@@ -1,11 +1,11 @@
 ### SB 3.14.16
 
-> इति तां वीर मारीचः कृपणां बहुभाषिणीम् ।
+> इति तां वीर मारीचः कृपणां बहुभाषिणीम् ।\
 > प्रत्याहानुनयन्वाचा प्रवृद्धानङ्गकश्मलाम् ॥१६॥
 
-> iti tāṁ vīra mārīcaḥ
-> kṛpaṇāṁ bahu-bhāṣiṇīm
-> pratyāhānunayan vācā
+> iti tāṁ vīra mārīcaḥ\
+> kṛpaṇāṁ bahu-bhāṣiṇīm\
+> pratyāhānunayan vācā\
 > pravṛddhānaṅga-kaśmalām
 
 *iti*—de este modo; *tām*—a ella; *vīra*—¡oh, héroe!; *mārīcaḥ*—el hijo de Marīci (Kaśyapa); *kṛpaṇām*—a la desdichada; *bahu-bhāṣiṇīm*—demasiado locuaz; *pratyāha*—contestó; *anunayan*—tranquilizadoras; *vācā*—con palabras; *pravṛddha*—muy agitada; *anaṅga*—lujuria; *kaśmalām*—contaminada.

@@ -1,11 +1,11 @@
 ### SB 1.17.26
 
-> इयं च भूमिर्भगवता न्यासितोरुभरा सती ।
+> इयं च भूमिर्भगवता न्यासितोरुभरा सती ।\
 > श्रीमद्भिस्तत्पदन्यासैः सर्वतः कृतकौतुका ॥२६॥
 
-> iyaṁ ca bhūmir bhagavatā
-> nyāsitoru-bharā satī
-> śrīmadbhis tat-pada-nyāsaiḥ
+> iyaṁ ca bhūmir bhagavatā\
+> nyāsitoru-bharā satī\
+> śrīmadbhis tat-pada-nyāsaiḥ\
 > sarvataḥ kṛta-kautukā
 
 *iyam*—esto; *ca*—y; *bhūmiḥ*—superficie de la Tierra; *bhagavatā*—por la Personalidad de Dios; *nyāsita*—siendo ejecutado personalmente, así como también por otros; *uru*—gran; *bharā*—carga; *satī*—siendo hecho así; *śrīmadbhiḥ*—por el supremamente auspicioso; *tat*—eso; *pada-nyāsaiḥ*—huellas; *sarvataḥ*—por todas partes; *kṛta*—hecho; *kautukā*—buena fortuna.

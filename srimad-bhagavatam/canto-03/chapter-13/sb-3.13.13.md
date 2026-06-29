@@ -1,11 +1,11 @@
 ### SB 3.13.13
 
-> येषां न तुष्टो भगवान्यज्ञलिङ्गो जनार्दनः ।
+> येषां न तुष्टो भगवान्यज्ञलिङ्गो जनार्दनः ।\
 > तेषां श्रमो ह्यपार्थाय यदात्मा नादृतः स्वयम् ॥१३॥
 
-> yeṣāṁ na tuṣṭo bhagavān
-> yajña-liṅgo janārdanaḥ
-> teṣāṁ śramo hy apārthāya
+> yeṣāṁ na tuṣṭo bhagavān\
+> yajña-liṅgo janārdanaḥ\
+> teṣāṁ śramo hy apārthāya\
 > yad ātmā nādṛtaḥ svayam
 
 *yeṣām*—of those with whom; *na*—never; *tuṣṭaḥ*—satisfied; *bhagavān*—the Personality of Godhead; *yajña-liṅgaḥ*—the form of sacrifice; *janārdanaḥ*—Lord Kṛṣṇa, or the *viṣṇu-tattva*; *teṣām*—of them; *śramaḥ*—labor; *hi*—certainly; *apārthāya*—without profit; *yat*—because; *ātmā*—the Supreme Soul; *na*—not; *ādṛtaḥ*—respected; *svayam*—his own self.

@@ -1,11 +1,11 @@
 ### SB 3.25.15
 
-> चेतः खल्वस्य बन्धाय मुक्तये चात्मनो मतम् ।
+> चेतः खल्वस्य बन्धाय मुक्तये चात्मनो मतम् ।\
 > गुणेषु सक्तं बन्धाय रतं वा पुंसि मुक्तये ॥१५॥
 
-> cetaḥ khalv asya bandhāya
-> muktaye cātmano matam
-> guṇeṣu saktaṁ bandhāya
+> cetaḥ khalv asya bandhāya\
+> muktaye cātmano matam\
+> guṇeṣu saktaṁ bandhāya\
 > rataṁ vā puṁsi muktaye
 
 *cetaḥ*—conciencia; *khalu*—en verdad; *asya*—de ella; *bandhāya*—para el cautiverio; *muktaye*—para la liberación; *ca*—y; *ātmanaḥ*—de la entidad viviente; *matam*—se considera; *guṇeṣu*—en las tres modalidades de la naturaleza; *saktam*—atraída; *bandhāya*—para la vida condicionada; *ratam*—apegada; *vā*—o; *puṁsi*—en la Suprema Personalidad de Dios; *muktaye*—para la liberación.

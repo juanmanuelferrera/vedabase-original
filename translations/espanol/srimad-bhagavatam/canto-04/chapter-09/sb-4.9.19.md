@@ -1,13 +1,13 @@
 ### SB 4.9.19
 
-> श्रीभगवानुवाच
-> वेदाहं ते व्यवसितं हृदि राजन्यबालक ।
+> श्रीभगवानुवाच\
+> वेदाहं ते व्यवसितं हृदि राजन्यबालक ।\
 > तत्प्रयच्छामि भद्रं ते दुरापमपि सुव्रत ॥१९॥
 
-> śrī-bhagavān uvāca
-> vedāhaṁ te vyavasitaṁ
-> hṛdi rājanya-bālaka
-> tat prayacchāmi bhadraṁ te
+> śrī-bhagavān uvāca\
+> vedāhaṁ te vyavasitaṁ\
+> hṛdi rājanya-bālaka\
+> tat prayacchāmi bhadraṁ te\
 > durāpam api suvrata
 
 *śrī-bhagavān uvāca*—la Personalidad de Dios dijo; *veda*—sé; *aham*—Yo; *te*—tu; *vyavasitam*—determinación; *hṛdi*—en el corazón; *rājanya-bālaka*—¡oh, hijo del rey!; *tat*—eso; *prayacchāmi*—te daré; *bhadram*—toda buena fortuna; *te*—a ti; *durāpam*—aunque es muy difícil de obtener; *api*—a pesar de; *su-vrata*—el que ha hecho un voto piadoso.

@@ -1,13 +1,13 @@
 ### SB 2.7.39
 
-> सर्गे तपोऽहमृषयो नव ये प्रजेशाः
-> स्थानेऽथ धर्ममखमन्वमरावनीशाः ।
-> अन्ते त्वधर्महरमन्युवशासुराद्या
+> सर्गे तपोऽहमृषयो नव ये प्रजेशाः\
+> स्थानेऽथ धर्ममखमन्वमरावनीशाः ।\
+> अन्ते त्वधर्महरमन्युवशासुराद्या\
 > मायाविभूतय इमाः पुरुशक्तिभाजः ॥३९॥
 
-> sarge tapo 'ham ṛṣayo nava ye prajeśāḥ
-> sthāne 'tha dharma-makha-manv-amarāvanīśāḥ
-> ante tv adharma-hara-manyu-vaśāsurādyā
+> sarge tapo 'ham ṛṣayo nava ye prajeśāḥ\
+> sthāne 'tha dharma-makha-manv-amarāvanīśāḥ\
+> ante tv adharma-hara-manyu-vaśāsurādyā\
 > māyā-vibhūtaya imāḥ puru-śakti-bhājaḥ
 
 *sarge*—al comienzo de la creación; *tapaḥ*—penitencia; *aham*—yo; *ṛṣayaḥ*—sabios; *nava*—nueve; *ye prajeśāḥ*—aquellos que habrían de engendrar; *sthāne*—en medio, mientras mantiene la creación; *atha*—ciertamente; *dharma*—religión; *makha*—el Señor Viṣṇu; *manu*—el padre de la humanidad; *amara*—los semidioses comisionados para controlar los asuntos de la manutención; *avanīśāḥ*—y los reyes de diferentes planetas; *ante*—al final; *tu*—mas; *adharma*—irreligión; *hara*—el Señor Śiva; *manyu-vaśa*—sujetos a la ira; *asura-ādyāḥ*—ateo, los enemigos de los devotos; *māyā*—energía; *vibhūtayaḥ*—representantes poderosos; *imāḥ*—todos ellos; *puru-śakti-bhājaḥ*—del supremo y poderoso Señor.

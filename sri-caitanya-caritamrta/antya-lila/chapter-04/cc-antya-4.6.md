@@ -1,9 +1,9 @@
 ### CC Antya 4.6
 
-> নির্বেদ হইল পথে, করেন বিচার  ।
+> নির্বেদ হইল পথে, করেন বিচার  ।\
 > ‘নীচ-জাতি, দেহ মোর — অত্যন্ত অসার ॥৬॥
 
-> nirveda ha-ila pathe, karena vicāra
+> nirveda ha-ila pathe, karena vicāra\
 > 'nīca-jāti, deha mora—atyanta asāra
 
 *nirveda ha-ila*—there was disappointment; *pathe*—on the path; *karena vicāra*—he considered; *nīca-jāti*—of a lower caste; *deha mora*—my body; *atyanta*—completely; *asāra*—useless for devotional service.

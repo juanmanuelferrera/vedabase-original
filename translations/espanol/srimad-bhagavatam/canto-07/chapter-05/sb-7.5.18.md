@@ -1,11 +1,11 @@
 ### SB 7.5.18
 
-> इति तं विविधोपायैर्भीषयंस्तर्जनादिभिः
+> इति तं विविधोपायैर्भीषयंस्तर्जनादिभिः\
 > प्रह्रादं ग्राहयामास त्रिवर्गस्योपपादनम ॥१८॥
 
-> iti taṁ vividhopāyair
-> bhīṣayaṁs tarjanādibhiḥ
-> prahrādaṁ grāhayām āsa
+> iti taṁ vividhopāyair\
+> bhīṣayaṁs tarjanādibhiḥ\
+> prahrādaṁ grāhayām āsa\
 > tri-vargasyopapādanam
 
 *iti*—de este modo; *tam*—a él (a Prahlāda Mahārāja); *vividha-upāyaiḥ*—por distintos medios; *bhīṣayan*—amenazar; *tarjana-ādibhiḥ*—con reprimendas, amenazas, etc.; *prahrādam*—a Prahlāda Mahārāja; *grāhayām āsa*—enseñaron; *tri-vargasya*—tres objetivos de la vida (las sendas de la religión, el crecimiento económico y la complacencia de los sentidos); *upapādanam*—Escritura que expone.

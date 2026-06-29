@@ -1,11 +1,11 @@
 ### SB 6.3.23
 
-> नामोच्चारणमाहात्म्यं हरेः पश्यत पुत्रकाः
+> नामोच्चारणमाहात्म्यं हरेः पश्यत पुत्रकाः\
 > अजामिलोऽपि येनैव मृत्युपाशादमुच्यत ॥२३॥
 
-> nāmoccāraṇa-māhātmyaṁ
-> hareḥ paśyata putrakāḥ
-> ajāmilo 'pi yenaiva
+> nāmoccāraṇa-māhātmyaṁ\
+> hareḥ paśyata putrakāḥ\
+> ajāmilo 'pi yenaiva\
 > mṛtyu-pāśād amucyata
 
 *nāma*—of the holy name; *uccāraṇa*—of the pronouncing; *māhātmyam*—the exalted position; *hareḥ*—of the Supreme Lord; *paśyata*—just see; *putrakāḥ*—O my dear servants, who are like my sons; *ajāmilaḥ api*—even Ajāmila (who was considered greatly sinful); *yena*—by the chanting of which; *eva*—certainly; *mṛtyu-pāśāt*—from the ropes of death; *amucyata*—was delivered.

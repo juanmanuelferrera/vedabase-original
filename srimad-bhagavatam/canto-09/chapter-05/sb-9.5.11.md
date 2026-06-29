@@ -1,11 +1,11 @@
 ### SB 9.5.11
 
-> यदि नो भगवान्प्रीत एकः सर्वगुणाश्रयः
+> यदि नो भगवान्प्रीत एकः सर्वगुणाश्रयः\
 > सर्वभूतात्मभावेन द्विजो भवतु विज्वरः ॥११॥
 
-> yadi no bhagavān prīta
-> ekaḥ sarva-guṇāśrayaḥ
-> sarva-bhūtātma-bhāvena
+> yadi no bhagavān prīta\
+> ekaḥ sarva-guṇāśrayaḥ\
+> sarva-bhūtātma-bhāvena\
 > dvijo bhavatu vijvaraḥ
 
 *yadi*—if; *naḥ*—unto us; *bhagavān*—the Supreme Personality of Godhead; *prītaḥ*—is satisfied; *ekaḥ*—without any duplicate; *sarva-guṇa-āśrayaḥ*—the reservoir of all transcendental qualities; *sarva-bhūta-ātma-bhāvena*—by a merciful attitude toward all living entities; *dvijaḥ*—this *brāhmaṇa*; *bhavatu*—may become; *vijvaraḥ*—freed from all burning.

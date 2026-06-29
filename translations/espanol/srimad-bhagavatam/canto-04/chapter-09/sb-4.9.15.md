@@ -1,13 +1,13 @@
 ### SB 4.9.15
 
-> त्वं नित्यमुक्तपरिशुद्धविबुद्ध आत्मा
-> कूटस्थ आदिपुरुषो भगवांस्त्र्यधीशः ।
-> यद्बुद्ध्यवस्थितिमखण्डितया स्वदृष्ट्या
+> त्वं नित्यमुक्तपरिशुद्धविबुद्ध आत्मा\
+> कूटस्थ आदिपुरुषो भगवांस्त्र्यधीशः ।\
+> यद्बुद्ध्यवस्थितिमखण्डितया स्वदृष्ट्या\
 > द्रष्टा स्थितावधिमखो व्यतिरिक्त आस्से ॥१५॥
 
-> tvaṁ nitya-mukta-pariśuddha-vibuddha ātmā
-> kūṭa-stha ādi-puruṣo bhagavāṁs try-adhīśaḥ
-> yad-buddhy-avasthitim akhaṇḍitayā sva-dṛṣṭyā
+> tvaṁ nitya-mukta-pariśuddha-vibuddha ātmā\
+> kūṭa-stha ādi-puruṣo bhagavāṁs try-adhīśaḥ\
+> yad-buddhy-avasthitim akhaṇḍitayā sva-dṛṣṭyā\
 > draṣṭā sthitāv adhimakho vyatirikta āsse
 
 *tvam*—Tú; *nitya*—eternamente; *mukta*—liberado; *pariśuddha*—libre de contaminación; *vibuddhaḥ*—pleno en conocimiento; *ātmā*—el Alma Suprema; *kūṭa-sthaḥ*—inmutable; *ādi*—original; *puruṣaḥ*—persona; *bhagavān*—el Señor, con la plenitud de seis opulencias; *tri-adhīśaḥ*—el amo de las tres modalidades; *yat*—de donde; *buddhi*—de actividades intelectuales; *avasthitim*—todos los niveles; *akhaṇḍitayā*—ininterrumpida; *sva-dṛṣṭyā*—con visión trascendental; *draṣṭā*—Tú eres testigo; *sthitau*—para mantener (el universo); *adhimakhaḥ*—disfrutador del resultado de todos los sacrificios; *vyatiriktaḥ*—de manera diferente; *āsse*—estás situado.

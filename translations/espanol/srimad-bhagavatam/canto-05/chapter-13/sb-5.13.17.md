@@ -1,11 +1,11 @@
 ### SB 5.13.17
 
-> तैर्वञ्चितो हंसकुलं समाविशन्नरोचयन्शीलमुपैति वानरान
+> तैर्वञ्चितो हंसकुलं समाविशन्नरोचयन्शीलमुपैति वानरान\
 > तज्जातिरासेन सुनिर्वृतेन्द्रियः परस्परोद्वीक्षणविस्मृतावधिः ॥१७॥
 
-> tair vañcito haṁsa-kulaṁ samāviśann
-> arocayan śīlam upaiti vānarān
-> taj-jāti-rāsena sunirvṛtendriyaḥ
+> tair vañcito haṁsa-kulaṁ samāviśann\
+> arocayan śīlam upaiti vānarān\
+> taj-jāti-rāsena sunirvṛtendriyaḥ\
 > parasparodvīkṣaṇa-vismṛtāvadhiḥ
 
 *taiḥ*—por ellos (los engañadores y farsantes, los falsos *yogīs, svāmīs,* encarnaciones y *gurus*); *vañcitaḥ*—engañado; *haṁsa-kulam*—la compañía de grandes *paramahaṁsas,* o devotos; *samāviśan*—entrando en contacto; *arocayan*—sin estar satisfecho con; *śīlam*—su comportamiento; *upaiti*—se acerca; *vānarān*—a los monos, todos los cuales son libertinos y sin buen carácter; *tat-jāti-rāsena*—mediante la complacencia de los sentidos en compañía de esos libertinos; *sunirvṛta-indriyaḥ*—muy satisfecho con tener la oportunidad de complacer los sentidos; *paraspara*—unos a otros; *udvīkṣaṇa*—por ver las caras; *vismṛta*—que ha olvidado; *avadhiḥ*—el final de la vida.

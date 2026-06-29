@@ -1,11 +1,11 @@
 ### Bg 2.60
 
-> यततो ह्यपि कौन्तेय पुरुषस्य विपश्चितः ।
+> यततो ह्यपि कौन्तेय पुरुषस्य विपश्चितः ।\
 > इन्द्रियाणि प्रमाथीनि हरन्ति प्रसभं मनः ॥६०॥
 
-> yatato hy api kaunteya
-> puruṣasya vipaścitaḥ
-> indriyāṇi pramāthīni
+> yatato hy api kaunteya\
+> puruṣasya vipaścitaḥ\
+> indriyāṇi pramāthīni\
 > haranti prasabhaṁ manaḥ
 
 *yatataḥ*—while endeavoring; *hi*—certainly; *api*—in spite of; *kaunteya*—O son of Kuntī; *puruṣasya*—of the man; *vipaścitaḥ*—full of discriminating knowledge; *indriyāṇi*—the senses; *pramāthīni*—stimulated; *haranti*—throws forcefully; *prasabhaṁ*—by force; *manaḥ*—the mind.

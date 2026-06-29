@@ -1,11 +1,11 @@
 ### SB 3.29.19
 
-> मद्धर्मणो गुणैरेतैः परिसंशुद्ध आशयः ।
+> मद्धर्मणो गुणैरेतैः परिसंशुद्ध आशयः ।\
 > पुरुषस्याञ्जसाभ्येति श्रुतमात्रगुणं हि माम् ॥१९॥
 
-> mad-dharmaṇo guṇair etaiḥ
-> parisaṁśuddha āśayaḥ
-> puruṣasyāñjasābhyeti
+> mad-dharmaṇo guṇair etaiḥ\
+> parisaṁśuddha āśayaḥ\
+> puruṣasyāñjasābhyeti\
 > śruta-mātra-guṇaṁ hi mām
 
 *mat-dharmaṇaḥ*—of My devotee; *guṇaiḥ*—with the attributes; *etaiḥ*—these; *parisaṁśuddhaḥ*—completely purified; *āśayaḥ*—consciousness; *puruṣasya*—of a person; *añjasā*—instantly; *abhyeti*—approaches; *śruta*—by hearing; *mātra*—simply; *guṇam*—quality; *hi*—certainly; *mām*—Me.

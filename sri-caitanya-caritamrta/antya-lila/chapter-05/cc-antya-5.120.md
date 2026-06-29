@@ -1,9 +1,9 @@
 ### CC Antya 5.120
 
-> দুই-ঠাঞি অপরাধে পাইবি দুর্গতি !
+> দুই-ঠাঞি অপরাধে পাইবি দুর্গতি !\
 > অতত্ত্বজ্ঞ ‘তত্ত্ব’ বর্ণে, তার এই রীতি ! ॥ ১২০ ॥
 
-> dui-ṭhāñi aparādhe pāibi durgati!
+> dui-ṭhāñi aparādhe pāibi durgati!\
 > atattva-jña 'tattva' varṇe, tāra ei rīti!
 
 *dui-ṭhāñi*—unto both; *aparādhe*—by offense; *pāibi*—you will get; *durgati*—hellish destination; *a-tattva-jña*—one who has no knowledge of the Absolute Truth; *tattva varṇe*—describes the Absolute Truth; *tāra*—his; *ei*—this; *rīti*—course.

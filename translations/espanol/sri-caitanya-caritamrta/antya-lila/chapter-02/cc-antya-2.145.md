@@ -1,9 +1,9 @@
 ### CC Antya 2.145
 
-> এইমতে হরিদাসের এক বৎসর গেল ।
+> এইমতে হরিদাসের এক বৎসর গেল ।\
 > তবু মহাপ্রভুর মনে প্রসাদ নহিল ॥১৪৫॥
 
-> ei-mate haridāsera eka vatsara gela
+> ei-mate haridāsera eka vatsara gela\
 > tabu mahāprabhura mane prasāda nahila
 
 *ei-mate*—de este modo; *haridāsera*—de Haridāsa el menor; *eka vatsara*—un año; *gela*—pasó; *tabu*—aun así; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *mane*—en la mente; *prasāda nahila*—no hubo señales de misericordia.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.38
 
-> আঠারনালাকে আইলা গোসাঞি শুনিয়া ।
+> আঠারনালাকে আইলা গোসাঞি শুনিয়া ।\
 > দুইমালা পাঠাইলা গোবিন্দ-হাতে দিয়া ॥৩৮॥
 
-> āṭhāranālāke āilā gosāñi śuniyā
+> āṭhāranālāke āilā gosāñi śuniyā\
 > dui-mālā pāṭhāilā govinda-hāte diyā
 
 *āṭhāranālāke*—Āṭhāranālā; *āilā*—habían llegado; *gosāñi*—Śrī Caitanya Mahāprabhu; *śuniyā*—al oír; *dui-mālā*—dos guirnaldas; *pāṭhāilā*—envió; *govinda-hāte diyā*—por medio de Govinda.

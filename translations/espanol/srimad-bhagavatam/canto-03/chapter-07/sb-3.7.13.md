@@ -1,11 +1,11 @@
 ### SB 3.7.13
 
-> यदेन्द्रियोपरामोऽथ द्रष्ट्रात्मनि परे हरौ ।
+> यदेन्द्रियोपरामोऽथ द्रष्ट्रात्मनि परे हरौ ।\
 > विलीयन्ते तदा क्लेशाः संसुप्तस्येव कृत्स्नशः ॥१३॥
 
-> yadendriyoparāmo 'tha
-> draṣṭrātmani pare harau
-> vilīyante tadā kleśāḥ
+> yadendriyoparāmo 'tha\
+> draṣṭrātmani pare harau\
+> vilīyante tadā kleśāḥ\
 > saṁsuptasyeva kṛtsnaśaḥ
 
 *yadā*—cuando; *indriya*—sentidos; *uparāmaḥ*—saciados; *atha*—de esa manera; *draṣṭṛ-ātmani*—al observador, la Superalma; *pare*—en la Realidad Trascendental; *harau*—a la Suprema Personalidad de Dios; *vilīyante*—se funden en; *tadā*—en ese momento; *kleśāḥ*—miserias; *saṁsuptasya*—aquel que ha disfrutado de un profundo sueño; *iva*—como; *kṛtsnaśaḥ*—completamente.

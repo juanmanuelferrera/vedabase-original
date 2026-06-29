@@ -1,9 +1,9 @@
 ### CC Antya 6.135
 
-> চৈতন্য-কৃপাতে সেহ নাহি ভায় মনে  ।
+> চৈতন্য-কৃপাতে সেহ নাহি ভায় মনে  ।\
 > সবে আশীর্বাদ কর — পাউক চৈতন্য-চরণে ॥১৩৫॥
 
-> caitanya-kṛpāte seha nāhi bhāya mane
+> caitanya-kṛpāte seha nāhi bhāya mane\
 > sabe āśīrvāda kara—pāuka caitanya-caraṇe
 
 *caitanya-kṛpāte*—by the mercy of Lord Śrī Caitanya Mahāprabhu; *seha*—such a standard of material happiness; *nāhi bhāya*—he does not take as valuable; *mane*—at mind; *sabe*—all of you; *āśīrvāda kara*—give the benediction; *pāuka*—let him get; *caitanya-caraṇe*—the shelter of the lotus feet of Śrī Caitanya Mahāprabhu.

@@ -1,9 +1,9 @@
 ### CC Antya 6.246
 
-> শিবানন্দ-সেন তাঁরে কহেন বিবরণ  ।
+> শিবানন্দ-সেন তাঁরে কহেন বিবরণ  ।\
 > তোমা লৈতে তোমার পিতা পাঠাইল দশ জন ॥২৪৬॥
 
-> śivānanda-sena tāṅre kahena vivaraṇa
+> śivānanda-sena tāṅre kahena vivaraṇa\
 > tomā laite tomāra pitā pāṭhāila daśa jana
 
 *śivānanda-sena*—Śivānanda Sena; *tāṅre*—unto him; *kahena*—says; *vivarana*—description; *tomā laite*—to take you; *tomāra pitā*—your father; *pāṭhāila*—sent; *daśa jana*—ten men.

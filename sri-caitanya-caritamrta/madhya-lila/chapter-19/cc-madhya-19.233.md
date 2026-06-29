@@ -1,9 +1,9 @@
 ### CC Madhya 19.233
 
-> আকাশাদি গুণ যেন পর পর ভূতে  ।
+> আকাশাদি গুণ যেন পর পর ভূতে  ।\
 > এক-দুই-তিন-চারি ক্রমে পঞ্চ পৃথিবীতে ॥২৩৩॥
 
-> ākāśādi guṇa yena para para bhūte
+> ākāśādi guṇa yena para para bhūte\
 > eka-dui-tina-cāri krame pañca pṛthivīte
 
 *ākāśa-ādi*—beginning with the sky; *guṇa*—qualities; *yena*—as; *para para*—one after another; *bhūte*—in the material elements; *eka*—one; *dui*—two; *tina*—three; *cāri*—four; *krame*—in this way; *pañca*—all five qualities; *pṛthivīte*—in earth.

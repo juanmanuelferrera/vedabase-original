@@ -1,13 +1,13 @@
 ### CC Adi 4.131
 
-> বিভুরপি কলয়ন্ সদাভিবৃদ্ধিং
-> গুরুরপি গৌরবচর্যয়া বিহীনঃ ।
-> মুহুরুপচিতবক্রিমাপি শুদ্ধো
+> বিভুরপি কলয়ন্ সদাভিবৃদ্ধিং\
+> গুরুরপি গৌরবচর্যয়া বিহীনঃ ।\
+> মুহুরুপচিতবক্রিমাপি শুদ্ধো\
 > জয়তি মুরদ্বিষি রাধিকানুরাগঃ ॥১৩১॥
 
-> vibhur api kalayan sadābhivṛddhiṁ
-> gurur api gaurava-caryayā vihīnaḥ
-> muhur upacita-vakrimāpi śuddho
+> vibhur api kalayan sadābhivṛddhiṁ\
+> gurur api gaurava-caryayā vihīnaḥ\
+> muhur upacita-vakrimāpi śuddho\
 > jayati mura-dviṣi rādhikānurāgaḥ
 
 *vibhuḥ*—all-pervading; *api*—although; *kalayan*—making; *sadā*—always; *abhivṛddhim*—increase; *guruḥ*—important; *api*—although; *gaurava-caryayā vihīnaḥ*—without proud behavior; *muhuḥ*—again and again; *upacita*—increased; *vakrimā*—duplicity; *api*—although; *śuddhaḥ*—pure; *jayati*—all glories to; *mura-dviṣi*—for Kṛṣṇa, the enemy of the demon Mura; *rādhikā*—of Śrīmatī Rādhārāṇī; *anurāgaḥ*—the love.

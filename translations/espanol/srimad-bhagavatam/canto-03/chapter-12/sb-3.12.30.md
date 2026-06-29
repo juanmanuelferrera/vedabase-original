@@ -1,11 +1,11 @@
 ### SB 3.12.30
 
-> नैतत्पूर्वैः कृतं त्वद्ये न करिष्यन्ति चापरे ।
+> नैतत्पूर्वैः कृतं त्वद्ये न करिष्यन्ति चापरे ।\
 > यस्त्वं दुहितरं गच्छेरनिगृह्याङ्गजं प्रभुः ॥३०॥
 
-> naitat pūrvaiḥ kṛtaṁ tvad ye
-> na kariṣyanti cāpare
-> yas tvaṁ duhitaraṁ gaccher
+> naitat pūrvaiḥ kṛtaṁ tvad ye\
+> na kariṣyanti cāpare\
+> yas tvaṁ duhitaraṁ gaccher\
 > anigṛhyāṅgajaṁ prabhuḥ
 
 *na*—nunca; *etat*—cosa semejante; *pūrvaiḥ*—por ningún otro Brahmā, o tú mismo en ningún *kalpa* anterior; *kṛtam*—puesta en práctica; *tvat*—por ti; *ye*—esto que; *na*—ni; *kariṣyanti*—hará; *ca*—también; *apare*—nadie más; *yaḥ*—esto que; *tvam*—tú; *duhitaram*—a la hija; *gaccheḥ*—harías; *anigṛhya*—sin dominar; *aṅgajam*—el deseo sexual; *prabhuḥ*—¡oh, padre!.

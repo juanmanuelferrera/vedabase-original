@@ -1,9 +1,9 @@
 ### CC Madhya 6.43
 
-> সার্বভৌম পরিবেশন করেন আপনে ।
+> সার্বভৌম পরিবেশন করেন আপনে ।\
 > প্রভু কহে, — মোরে দেহ লাফ্রা-ব্যঞ্জনে ॥৪৩॥
 
-> sārvabhauma pariveśana karena āpane
+> sārvabhauma pariveśana karena āpane\
 > prabhu kahe,--more deha lāphrā-vyañjane
 
 *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *pariveśana*—distribución; *karena*—hace; *āpane*—personalmente; *prabhu kahe*—el Señor Caitanya Mahāprabhu dijo; *more*—a Mí; *deha*—por favor, da; *lāphrā-vyañjane*—verduras hervidas.

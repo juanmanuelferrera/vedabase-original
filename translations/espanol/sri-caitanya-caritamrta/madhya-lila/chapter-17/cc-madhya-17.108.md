@@ -1,9 +1,9 @@
 ### CC Madhya 17.108
 
-> আজানুলম্বিত ভুজ, কমল-নয়ন ।
+> আজানুলম্বিত ভুজ, কমল-নয়ন ।\
 > যত কিছু ঈশ্বরের সর্ব সল্লক্ষণ ॥১০৮॥
 
-> ājānu-lambita bhuja, kamala-nayana
+> ājānu-lambita bhuja, kamala-nayana\
 > yata kichu īśvarera sarva sal-lakṣaṇa
 
 *ājānu-lambita*—que llegan hasta las rodillas; *bhuja*—brazos; *kamala-nayana*—ojos como pétalos de flor de loto; *yata*—tantos como; *kichu*—cualquiera; *īśvarera*—de la Suprema Personalidad de Dios; *sarva*—todos; *sat-lakṣaṇa*—síntomas trascendentales.

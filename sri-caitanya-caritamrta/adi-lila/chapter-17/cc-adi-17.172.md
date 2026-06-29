@@ -1,9 +1,9 @@
 ### CC Adi 17.172
 
-> আর এক প্রশ্ন করি, শুন, তুমি মামা ।
+> আর এক প্রশ্ন করি, শুন, তুমি মামা ।\
 > যথার্থ কহিবে, ছলে না বঞ্চিবে আমা’ ॥১৭২॥
 
-> āra eka praśna kari, śuna, tumi māmā
+> āra eka praśna kari, śuna, tumi māmā\
 > yathārtha kahibe, chale nā vañchibe āmā'
 
 *āra eka*—one more; *praśna*—inquiry; *kari*—am putting; *śuna*—hear; *tumi*—you; *māmā*—maternal uncle; *yathā-artha*—as it is true; *kahibe*—you should speak; *chale*—by tricks; *na vañchibe*—you should not cheat; *āmā'*—Me.

@@ -1,11 +1,11 @@
 ### SB 2.4.13
 
-> भूयो नमः सद्वृजिनच्छिदेऽसतामसम्भवायाखिलसत्त्वमूर्तये ।
+> भूयो नमः सद्वृजिनच्छिदेऽसतामसम्भवायाखिलसत्त्वमूर्तये ।\
 > पुंसां पुनः पारमहंस्य आश्रमे व्यवस्थितानामनुमृग्यदाशुषे ॥१३॥
 
-> bhūyo namaḥ sad-vṛjina-cchide 'satām
-> asambhavāyākhila-sattva-mūrtaye
-> puṁsāṁ punaḥ pāramahaṁsya āśrame
+> bhūyo namaḥ sad-vṛjina-cchide 'satām\
+> asambhavāyākhila-sattva-mūrtaye\
+> puṁsāṁ punaḥ pāramahaṁsya āśrame\
 > vyavasthitānām anumṛgya-dāśuṣe
 
 *bhūyaḥ*—de nuevo; *namaḥ*—mis reverencias; *sat*—de los devotos o de los piadosos; *vṛjina*—aflicciones; *chide*—el redentor; *asatām*—de los ateos; *asambhavāya*—el cese de la infelicidad subsiguiente; *akhila*—completo; *sattva*—bondad; *mūrtaye*—a la Personalidad; *puṁsām*—de los trascendentalistas; *punaḥ*—de nuevo; *pāramahaṁsye*—la máxima etapa de la perfección; *āśrame*—en la condición; *vyavasthitānām*—situado particularmente; *anumṛgya*—el destino; *dāśuṣe*—aquel que libera.

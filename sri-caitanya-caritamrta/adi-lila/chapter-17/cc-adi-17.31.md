@@ -1,11 +1,11 @@
 ### CC Adi 17.31
 
-> তৃণাদপি সুনীচেন তরোরিব সহিষ্ণুনা ।
+> তৃণাদপি সুনীচেন তরোরিব সহিষ্ণুনা ।\
 > অমানিনা মানদেন কীর্তনীয়ঃ সদা হরিঃ ॥৩১॥
 
-> tṛṇād api su-nīcena
-> taror iva sahiṣṇunā
-> amāninā māna-dena
+> tṛṇād api su-nīcena\
+> taror iva sahiṣṇunā\
+> amāninā māna-dena\
 > kīrtanīyaḥ sadā hariḥ
 
 *tṛṇāt api*—than downtrodden grass; *su-nīcena*—being lower; *taroḥ*—than a tree; *iva*—like; *sahiṣṇunā*—with tolerance; *amāninā*—without being puffed up by false pride; *māna-dena*—giving respect to all; *kīrtanīyaḥ*—to be chanted; *sadā*—always; *hariḥ*—the holy name of the Lord.

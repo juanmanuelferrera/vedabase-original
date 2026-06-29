@@ -1,12 +1,12 @@
 ### SB 8.7.42
 
-> श्रीशुक उवाच
-> एवमामन्त्र्य भगवान्भवानीं विश्वभावनः
+> श्रीशुक उवाच\
+> एवमामन्त्र्य भगवान्भवानीं विश्वभावनः\
 > तद्विषं जग्धुमारेभे प्रभावज्ञआन्वमोदत ॥४२॥
 
-> tataḥ karatalī-kṛtya
-> vyāpi hālāhalaṁ viṣam
-> abhakṣayan mahā-devaḥ
+> tataḥ karatalī-kṛtya\
+> vyāpi hālāhalaṁ viṣam\
+> abhakṣayan mahā-devaḥ\
 > kṛpayā bhūta-bhāvanaḥ
 
 *tataḥ*—thereafter; *karatalī-kṛtya*—taking in his hand; *vyāpi*—widespread; *hālāhalam*—called *hālahala*; *viṣam*—poison; *abhakṣayat*—drank; *mahā-devaḥ*—Lord Śiva; *kṛpayā*—out of compassion; *bhūta-bhāvanaḥ*—for the welfare of all living entities.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.127
 
-> তোমার ঠাঞি আইলাঙ তোমার মহিমা শুনিয়া ।
+> তোমার ঠাঞি আইলাঙ তোমার মহিমা শুনিয়া ।\
 > তুমি মোরে স্তুতি কর ‘সন্ন্যাসী’ জানিয়া ॥১২৭॥
 
-> tomāra ṭhāñi āilāṅa tomāra mahimā śuniyā
+> tomāra ṭhāñi āilāṅa tomāra mahimā śuniyā\
 > tumi more stuti kara 'sannyāsī' jāniyā
 
 *tomāra ṭhāñi*—to your presence; *āilāṅa*—I have come; *tomāra*—your; *mahimā*—glories; *śuniyā*—hearing; *tumi*—you; *more*—Me; *stuti*—praising; *kara*—do; *sannyāsī*—a person in the renounced order of life; *jāniyā*—knowing as.

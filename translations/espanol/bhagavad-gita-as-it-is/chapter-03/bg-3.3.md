@@ -1,13 +1,13 @@
 ### Bg 3.3
 
-> श्रीभगवानुवाच ।
-> लोकेऽस्मिन् द्विविधा निष्ठा पुरा प्रोक्ता मयानघ ।
+> श्रीभगवानुवाच ।\
+> लोकेऽस्मिन् द्विविधा निष्ठा पुरा प्रोक्ता मयानघ ।\
 > ज्ञानयोगेन साङ्ख्यानां कर्मयोगेन योगिनाम् ॥३॥
 
-> śrī bhagavān uvāca
-> loke'smin dvi-vidhā niṣṭhā
-> purā proktā mayānagha
-> jñāna-yogena sāṅkhyānāṁ
+> śrī bhagavān uvāca\
+> loke'smin dvi-vidhā niṣṭhā\
+> purā proktā mayānagha\
+> jñāna-yogena sāṅkhyānāṁ\
 > karma-yogena yoginām
 
 *śrī bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *loke*—en el mundo; *asmin*—este; *dvi-vidhā*—dos clases de; *niṣṭhā*—fe; *purā*—anteriormente; *proktā*—se dijo; *mayā*—por Mí; *anagha*—¡oh, tú, que estás libre de pecado!; *jñāna-yogena*—mediante el proceso vinculante del conocimiento; *sāṅkhyānām*—de los filósofos empíricos; *karma-yogena*—mediante el proceso vinculador de la devoción; *yoginām*—de los devotos.

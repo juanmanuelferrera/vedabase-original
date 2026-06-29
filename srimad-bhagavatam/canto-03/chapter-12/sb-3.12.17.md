@@ -1,11 +1,11 @@
 ### SB 3.12.17
 
-> अलं प्रजाभिः सृष्टाभिरीदृशीभिः सुरोत्तम ।
+> अलं प्रजाभिः सृष्टाभिरीदृशीभिः सुरोत्तम ।\
 > मया सह दहन्तीभिर्दिशश्चक्षुर्भिरुल्बणैः ॥१७॥
 
-> alaṁ prajābhiḥ sṛṣṭābhir
-> īdṛśībhiḥ surottama
-> mayā saha dahantībhir
+> alaṁ prajābhiḥ sṛṣṭābhir\
+> īdṛśībhiḥ surottama\
+> mayā saha dahantībhir\
 > diśaś cakṣurbhir ulbaṇaiḥ
 
 *alam*—unnecessary; *prajābhiḥ*—by such living entities; *sṛṣṭābhiḥ*—generated; *īdṛśībhiḥ*—of this type; *sura-uttama*—O best among the demigods; *mayā*—me; *saha*—along with; *dahantībhiḥ*—who are burning; *diśaḥ*—all sides; *cakṣurbhiḥ*—by the eyes; *ulbaṇaiḥ*—fiery flames.

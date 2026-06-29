@@ -1,13 +1,13 @@
 ### SB 7.8.48
 
-> श्रीमनव ऊचुः
-> मनवो वयं तव निदेशकारिणो दितिजेन देव परिभूतसेतवः
+> श्रीमनव ऊचुः\
+> मनवो वयं तव निदेशकारिणो दितिजेन देव परिभूतसेतवः\
 > भवता खलः स उपसंहृतः प्रभो करवाम ते किमनुशाधि किङ्करान ॥४८॥
 
-> śrī-manava ūcuḥ
-> manavo vayaṁ tava nideśa-kāriṇo
-> ditijena deva paribhūta-setavaḥ
-> bhavatā khalaḥ sa upasaṁhṛtaḥ prabho
+> śrī-manava ūcuḥ\
+> manavo vayaṁ tava nideśa-kāriṇo\
+> ditijena deva paribhūta-setavaḥ\
+> bhavatā khalaḥ sa upasaṁhṛtaḥ prabho\
 > karavāma te kim anuśādhi kiṅkarān
 
 *śrī-manavaḥ ūcuḥ*—todos los *manus* ofrecieron respetuosas reverencias diciendo; *manavaḥ*—los líderes de los asuntos universales (especialmente en relación con dar conocimiento a la humanidad acerca de cómo vivir legítimamente bajo la protección de la Suprema Personalidad de Dios); *vayam*—nosotros; *tava*—de Tu Señoría; *nideśa-kāriṇaḥ*—los que cumplen las órdenes; *diti-jena*—por Hiraṇyakaśipu, el hijo de Diti; *deva*—¡oh, Señor!; *paribhūta*—pasadas por alto; *setavaḥ*—cuyas leyes de moralidad al respecto del sistema de*varṇāśrama* en la sociedad humana; *bhavatā*—por Tu Señoría; *khalaḥ*—el muy envidioso sinvergüenza; *saḥ*—él; *upasaṁhṛtaḥ*—matado; *prabho*—¡oh, Señor!; *karavāma*—haremos; *te*—Tuyo; *kim*—qué; *anuśādhi*—por favor, dirige; *kiṅkarān*—a Tus sirvientes eternos.

@@ -1,9 +1,9 @@
 ### CC Madhya 7.37
 
-> tomāra dui hasta baddha nāma-gaṇane
+> tomāra dui hasta baddha nāma-gaṇane\
 > jala-pātra-bahirvāsa vahibe kemane
 
-> tomāra dui hasta baddha nāma-gaṇane
+> tomāra dui hasta baddha nāma-gaṇane\
 > jala-pātra-bahirvāsa vahibe kemane
 
 *tomāra*—Tus; *dui*—dos; *hasta*—manos; *baddha*—ocupadas; *nāma*—el santo nombre; *gaṇane*—en contar; *jala-pātra*—recipiente de agua; *bahir-vāsa*—vestimentas exteriores; *vahibe*—llevará; *kemane*—cómo.

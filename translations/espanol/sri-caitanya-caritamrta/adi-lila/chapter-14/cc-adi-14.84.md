@@ -1,9 +1,9 @@
 ### CC Adi 14.84
 
-> রাত্রে স্বপ্ন দেখে, — এক আসি’ ব্রাহ্মণ ।
+> রাত্রে স্বপ্ন দেখে, — এক আসি’ ব্রাহ্মণ ।\
 > মিশ্রেরে কহয়ে কিছু সরোষ বচন ॥৮৪॥
 
-> rātre svapna dekhe,--eka āsi' brāhmaṇa
+> rātre svapna dekhe,--eka āsi' brāhmaṇa\
 > miśrere kahaye kichu sa-roṣa vacana
 
 *rātre*—por la noche; *svapna dekhe*—tuvo un sueño; *eka*—un; *āsi'*—acercándose; *brāhmaṇa*—*brāhmaṇa*; *miśrere*—a Jagannātha Miśra; *kahaye*—dirigió; *kichu*—ciertas; *sa-roṣa*—airadas; *vacana*—palabras.

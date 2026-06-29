@@ -1,13 +1,13 @@
 ### SB 3.9.8
 
-> क्षुत्तृट्त्रिधातुभिरिमा मुहुरर्द्यमानाः
-> शीतोष्णवातवरषैरितरेतराच्च ।
-> कामाग्निनाच्युतरुषा च सुदुर्भरेण
+> क्षुत्तृट्त्रिधातुभिरिमा मुहुरर्द्यमानाः\
+> शीतोष्णवातवरषैरितरेतराच्च ।\
+> कामाग्निनाच्युतरुषा च सुदुर्भरेण\
 > सम्पश्यतो मन उरुक्रम सीदते मे ॥८॥
 
-> kṣut-tṛṭ-tridhātubhir imā muhur ardyamānāḥ
-> śītoṣṇa-vāta-varaṣair itaretarāc ca
-> kāmāgninācyuta-ruṣā ca sudurbhareṇa
+> kṣut-tṛṭ-tridhātubhir imā muhur ardyamānāḥ\
+> śītoṣṇa-vāta-varaṣair itaretarāc ca\
+> kāmāgninācyuta-ruṣā ca sudurbhareṇa\
 > sampaśyato mana urukrama sīdate me
 
 *kṣut*—hambre; *tṛṭ*—sed; *tri-dhātubhiḥ*—tres humores, a saber: moco, bilis y viento; *imāḥ*—todos ellos; *muhuḥ*—siempre; *ardyamānāḥ*—perplejos; *śīta*—invierno; *uṣṇa*—verano; *vāta*—viento; *varaṣaiḥ*—por lluvias; *itara-itarāt*—y muchas otras perturbaciones; *ca*—también; *kāma-agninā*—por fuertes impulsos sexuales; *acyuta-ruṣā*—ira infatigable; *ca*—también; *sudurbhareṇa*—sumamente insoportable; *sampaśyataḥ*—observando así; *manaḥ*—mente; *urukrama*—¡oh, gran actor!; *sīdate*—se desanima; *me*—mía.

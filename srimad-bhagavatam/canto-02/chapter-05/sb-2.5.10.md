@@ -1,11 +1,11 @@
 ### SB 2.5.10
 
-> नानृतं तव तच्चापि यथा मां प्रब्रवीषि भोः ।
+> नानृतं तव तच्चापि यथा मां प्रब्रवीषि भोः ।\
 > अविज्ञाय परं मत्त एतावत्त्वं यतो हि मे ॥१०॥
 
-> nānṛtaṁ tava tac cāpi
-> yathā māṁ prabravīṣi bhoḥ
-> avijñāya paraṁ matta
+> nānṛtaṁ tava tac cāpi\
+> yathā māṁ prabravīṣi bhoḥ\
+> avijñāya paraṁ matta\
 > etāvat tvaṁ yato hi me
 
 *na*—not; *anṛtam*—false; *tava*—of yours; *tat*—that; *ca*—also; *api*—as you have stated; *yathā*—in the matter of; *mām*—of myself; *prabravīṣi*—as you describe; *bhoḥ*—O my son; *avijñāya*—without knowing; *param*—the Supreme; *mattaḥ*—beyond myself; *etāvat*—all that you have spoken; *tvam*—yourself; *yataḥ*—for the reason of; *hi*—certainly; *me*—about me.

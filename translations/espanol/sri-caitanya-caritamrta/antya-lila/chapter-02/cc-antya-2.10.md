@@ -1,9 +1,9 @@
 ### CC Antya 2.10
 
-> সপ্তদ্বীপের লোক আর নবখণ্ডবাসী ।
+> সপ্তদ্বীপের লোক আর নবখণ্ডবাসী ।\
 > দেব, গন্ধর্ব, কিন্নর মনুষ্য-বেশে আসি’ ॥১০॥
 
-> sapta-dvīpera loka āra nava-khaṇḍa-vāsī
+> sapta-dvīpera loka āra nava-khaṇḍa-vāsī\
 > deva, gandharva, kinnara manuṣya-veśe āsi'
 
 *sapta-dvīpera loka*—las gentes de las siete islas del universo; *āra*—y; *nava-khaṇḍa-vāsī*—los habitantes de los nueve khaṇḍas; *deva*—semidioses; *gandharva*—los habitantes de Gandharvaloka; *kinnara*—los habitantes de Kinnaraloka; *manuṣya-veśe*—en forma de seres humanos; *āsi'*—acudiendo.

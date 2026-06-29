@@ -1,9 +1,9 @@
 ### CC Madhya 6.158
 
-> সচ্চিদানন্দময় হয় ঈশ্বর-স্বরূপ ৷
+> সচ্চিদানন্দময় হয় ঈশ্বর-স্বরূপ ৷\
 > তিন অংশে চিচ্ছক্তি হয় তিন রূপ ॥১৫৮॥
 
-> sac-cid-ānanda-maya haya īśvara-svarūpa
+> sac-cid-ānanda-maya haya īśvara-svarūpa\
 > tina aṁśe cic-chakti haya tina rūpa
 
 *sat-cit-ānanda-maya*—pleno de eternidad, conocimiento y bienaventuranza; *haya*—es; *īśvara*—del Señor Supremo; *svarūpa*—la forma trascendental; *tina aṁśe*—en tres partes; *cit-śakti*—la potencia espiritual; *haya*—se manifiesta; *tina*—tres; *rūpa*—formas.

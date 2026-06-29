@@ -1,18 +1,18 @@
 ### SB 5.17.22-23
 
-> एते वयं यस्य वशे महात्मनः स्थिताः शकुन्ता इव सूत्रयन्त्रिताः
-> महानहं वैकृततामसेन्द्रियाः सृजाम सर्वे यदनुग्रहादिदम ॥२२॥
-> यन्निर्मितां कर्ह्यपि कर्मपर्वणीं मायां जनोऽयं गुणसर्गमोहितः
+> एते वयं यस्य वशे महात्मनः स्थिताः शकुन्ता इव सूत्रयन्त्रिताः\
+> महानहं वैकृततामसेन्द्रियाः सृजाम सर्वे यदनुग्रहादिदम ॥२२॥\
+> यन्निर्मितां कर्ह्यपि कर्मपर्वणीं मायां जनोऽयं गुणसर्गमोहितः\
 > न वेद निस्तारणयोगमञ्जसा तस्मै नमस्ते विलयोदयात्मने ॥२३॥
 
-> yasyādya āsīd guṇa-vigraho mahān
-> vijñāna-dhiṣṇyo bhagavān ajaḥ kila
-> yat-sambhavo 'haṁ tri-vṛtā sva-tejasā
+> yasyādya āsīd guṇa-vigraho mahān\
+> vijñāna-dhiṣṇyo bhagavān ajaḥ kila\
+> yat-sambhavo 'haṁ tri-vṛtā sva-tejasā\
 > vaikārikaṁ tāmasam aindriyaṁ sṛje
 
-> ete vayaṁ yasya vaśe mahātmanaḥ
-> sthitāḥ śakuntā iva sūtra-yantritāḥ
-> mahān ahaṁ vaikṛta-tāmasendriyāḥ
+> ete vayaṁ yasya vaśe mahātmanaḥ\
+> sthitāḥ śakuntā iva sūtra-yantritāḥ\
+> mahān ahaṁ vaikṛta-tāmasendriyāḥ\
 > sṛjāma sarve yad-anugrahād idam
 
 *yasya*—from whom; *ādyaḥ*—the beginning; *āsīt*—there was; *guṇa-vigrahaḥ*—the incarnation of the material qualities; *mahān*—the total material energy; *vijñāna*—of full knowledge; *dhiṣṇyaḥ*—the reservoir; *bhagavān*—the most powerful; *ajaḥ*—Lord Brahmā; *kila*—certainly; *yat*—from whom; *sambhavaḥ*—born; *aham*—I; *tri-vṛtā*—having three varieties according to the three modes of nature; *sva-tejasā*—by my material strength; *vaikārikam*—all the demigods; *tāmasam*—material elements; *aindriyam*—the senses; *sṛje*—I create; *ete*—all of these; *vayam*—we; *yasya*—of whom; *vaśe*—under the control; *mahā-ātmanaḥ*—great personalities; *sthitāḥ*—situated; *śakuntāḥ*—vultures; *iva*—like; *sūtra-yantritāḥ*—bound by rope; *mahān*—the *mahat-tattva*; *aham*—I; *vaikṛta*—the demigods; *tāmasa*—the five material elements; *indriyāḥ*—senses; *sṛjāmaḥ*—we create; *sarve*—all of us; *yat*—of whom; *anugrahāt*—by the mercy; *idam*—this material world.

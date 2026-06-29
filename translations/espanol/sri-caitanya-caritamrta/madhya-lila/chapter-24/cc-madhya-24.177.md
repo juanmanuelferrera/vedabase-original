@@ -1,13 +1,13 @@
 ### CC Madhya 24.177
 
-> এতেঽলিনস্তব যশোঽখিল-লোকতীর্থং
-> গায়ন্ত আদিপুরুষানুপথং ভজন্তে ।
-> প্রায়ো অমী মুনিগণা ভবদীয়মুখ্যা
+> এতেঽলিনস্তব যশোঽখিল-লোকতীর্থং\
+> গায়ন্ত আদিপুরুষানুপথং ভজন্তে ।\
+> প্রায়ো অমী মুনিগণা ভবদীয়মুখ্যা\
 > গূঢ়ং বনেঽপি ন জহত্যনঘাত্মদৈবম্ ॥১৭৭॥
 
-> ete 'linas tava yaśo 'khila-loka-tīrthaṁ
-> gāyanta ādi-puruṣānupathaṁ bhajante
-> prāyo amī muni-gaṇā bhavadīya-mukhyā
+> ete 'linas tava yaśo 'khila-loka-tīrthaṁ\
+> gāyanta ādi-puruṣānupathaṁ bhajante\
+> prāyo amī muni-gaṇā bhavadīya-mukhyā\
 > gūḍhaṁ vane 'pi na jahaty anaghātma-daivam
 
 *ete*—todas estas; *alinaḥ*—abejas; *tava*—Tu; *yaśaḥ*—reputación; *akhila-loka-tīrtham*—auspicioso para los planetas; *gāyante*—están cantando; *ādi-puruṣa*—¡oh, persona original!; *anupatham*—por el sendero; *bhajante*—están dedicadas al amoroso servicio trascendental; *prāyaḥ*—casi; *amī*—estas; *muni-gaṇāḥ*—grandes personas santas; *bhavadīya*—en relación Contigo; *mukhyāḥ*—devotos muy avanzados; *gūḍham*—desconocido; *vane*—en el bosque; *api*—aunque; *na*—no; *jahati*—abandonan; *anagha*—¡oh, personalidad de bondad trascendental!; *ātma-daivam*—su Deidad adorable.

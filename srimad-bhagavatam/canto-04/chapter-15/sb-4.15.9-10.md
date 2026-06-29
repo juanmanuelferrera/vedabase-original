@@ -1,18 +1,18 @@
 ### SB 4.15.9-10
 
-> ब्रह्मा जगद्गुरुर्देवैः सहासृत्य सुरेश्वरैः ।
-> वैन्यस्य दक्षिणे हस्ते दृष्ट्वा चिह्नं गदाभृतः ॥९॥
-> पादयोररविन्दं च तं वै मेने हरेः कलाम् ।
+> ब्रह्मा जगद्गुरुर्देवैः सहासृत्य सुरेश्वरैः ।\
+> वैन्यस्य दक्षिणे हस्ते दृष्ट्वा चिह्नं गदाभृतः ॥९॥\
+> पादयोररविन्दं च तं वै मेने हरेः कलाम् ।\
 > यस्याप्रतिहतं चक्रमंशः स परमेष्ठिनः ॥१०॥
 
-> brahmā jagad-gurur devaiḥ
-> sahāsṛtya sureśvaraiḥ
-> vainyasya dakṣiṇe haste
+> brahmā jagad-gurur devaiḥ\
+> sahāsṛtya sureśvaraiḥ\
+> vainyasya dakṣiṇe haste\
 > dṛṣṭvā cihnaṁ gadābhṛtaḥ
 
-> pādayor aravindaṁ ca
-> taṁ vai mene hareḥ kalām
-> yasyāpratihataṁ cakram
+> pādayor aravindaṁ ca\
+> taṁ vai mene hareḥ kalām\
+> yasyāpratihataṁ cakram\
 > aṁśaḥ sa parameṣṭhinaḥ
 
 *brahmā*—Lord Brahmā; *jagat-guruḥ*—the master of the universe; *devaiḥ*—by the demigods; *saha*—accompanied; *āsṛtya*—arriving; *sura-īśvaraiḥ*—with the chiefs of all the heavenly planets; *vainyasya*—of Mahārāja Pṛthu, the son of Vena; *dakṣiṇe*—right; *haste*—on the hand; *dṛṣṭvā*—seeing; *cihnam*—mark; *gadā-bhṛtaḥ*—of Lord Viṣṇu, who carries a club; *pādayoḥ*—on the two feet; *aravindam*—lotus flower; *ca*—also; *tam*—him; *vai*—certainly; *mene*—he understood; *hareḥ*—of the Supreme Personality of Godhead; *kalām*—part of a plenary expansion; *yasya*—whose; *apratihatam*—invincible; *cakram*—disc; *aṁśaḥ*—partial representation; *saḥ*—he; *parameṣṭhinaḥ*—of the Supreme Personality of Godhead.

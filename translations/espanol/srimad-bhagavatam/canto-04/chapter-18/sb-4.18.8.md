@@ -1,11 +1,11 @@
 ### SB 4.18.8
 
-> नूनं ता वीरुधः क्षीणा मयि कालेन भूयसा ।
+> नूनं ता वीरुधः क्षीणा मयि कालेन भूयसा ।\
 > तत्र योगेन दृष्टेन भवानादातुमर्हति ॥८॥
 
-> nūnaṁ tā vīrudhaḥ kṣīṇā
-> mayi kālena bhūyasā
-> tatra yogena dṛṣṭena
+> nūnaṁ tā vīrudhaḥ kṣīṇā\
+> mayi kālena bhūyasā\
+> tatra yogena dṛṣṭena\
 > bhavān ādātum arhati
 
 *nūnam*—por lo tanto; *tāḥ*—esas; *vīrudhaḥ*—hierbas y cereales; *kṣīṇāḥ*—en mal estado; *mayi*—en mi interior; *kālena*—con el paso del tiempo; *bhūyasā*—muy; *tatra*—por lo tanto; *yogena*—con medios adecuados; *dṛṣṭena*—reconocidos; *bhavān*—tu majestad; *ādātum*—tomar; *arhati*—debes.

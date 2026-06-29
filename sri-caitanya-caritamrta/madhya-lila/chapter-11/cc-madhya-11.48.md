@@ -1,9 +1,9 @@
 ### CC Madhya 11.48
 
-> তাঁর প্রতিজ্ঞা — মোরে না করিবে দরশন ।
+> তাঁর প্রতিজ্ঞা — মোরে না করিবে দরশন ।\
 > মোর প্রতিজ্ঞা — তাঁহা বিনা ছাড়িব জীবন ॥৪৮॥
 
-> tāṅra pratijñā-more nā karibe daraśana
+> tāṅra pratijñā-more nā karibe daraśana\
 > mora pratijñā-tāṅhā vinā chāḍiba jīvana
 
 *tāṅra pratijñā*—His determination; *more*—unto me; *nā*—not; *karibe*—will do; *daraśana*—seeing; *mora pratijñā*—my promise; *tāṅhā vinā*—without Him; *chāḍiba*—I will give up; *jīvana*—life.

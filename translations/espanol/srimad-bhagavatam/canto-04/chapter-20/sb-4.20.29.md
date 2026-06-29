@@ -1,11 +1,11 @@
 ### SB 4.20.29
 
-> भजन्त्यथ त्वामत एव साधवो व्युदस्तमायागुणविभ्रमोदयम् ।
+> भजन्त्यथ त्वामत एव साधवो व्युदस्तमायागुणविभ्रमोदयम् ।\
 > भवत्पदानुस्मरणादृते सतां निमित्तमन्यद्भगवन्न विद्महे ॥२९॥
 
-> bhajanty atha tvām ata eva sādhavo
-> vyudasta-māyā-guṇa-vibhramodayam
-> bhavat-padānusmaraṇād ṛte satāṁ
+> bhajanty atha tvām ata eva sādhavo\
+> vyudasta-māyā-guṇa-vibhramodayam\
+> bhavat-padānusmaraṇād ṛte satāṁ\
 > nimittam anyad bhagavan na vidmahe
 
 *bhajanti*—adoran; *atha*—por lo tanto; *tvām*—a Ti; *ataḥ eva*—por lo tanto; *sādhavaḥ*—todas las personas santas; *vyudasta*—que apartan; *māyā-guṇa*—las modalidades de la naturaleza material; *vibhrama*—conceptos erróneos *udayam*—producidos; *bhavat*—Tus; *pada*—pies de loto; *anusmaraṇāt*—recordar constantemente; *ṛte*—excepto; *satām*—de grandes personas santas; *nimittam*—razón; *anyat*—otra; *bhagavan*—¡oh, Suprema Personalidad de Dios!; *na*—no; *vidmahe*—puedo entender.

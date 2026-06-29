@@ -1,11 +1,11 @@
 ### SB 1.15.34
 
-> ययाहरद्भुवो भारं तां तनुं विजहावजः ।
+> ययाहरद्भुवो भारं तां तनुं विजहावजः ।\
 > कण्टकं कण्टकेनेव द्वयं चापीशितुः समम् ॥३४॥
 
-> yayāharad bhuvo bhāraṁ
-> tāṁ tanuṁ vijahāv ajaḥ
-> kaṇṭakaṁ kaṇṭakeneva
+> yayāharad bhuvo bhāraṁ\
+> tāṁ tanuṁ vijahāv ajaḥ\
+> kaṇṭakaṁ kaṇṭakeneva\
 > dvayaṁ cāpīśituḥ samam
 
 *yayā*—aquello por lo cual; *aharat*—se llevó; *bhuvaḥ*—del mundo; *bhāram*—carga; *tām*—ese; *tanum*—cuerpo; *vijahau*—despojó; *ajaḥ*—el innaciente; *kaṇṭakam*—espina; *kaṇṭakena*—por la espina; *iva*—como eso; *dvayam*—ambos; *ca*—también; *api*—aunque; *īśituḥ*—controlando; *samam*—igual.

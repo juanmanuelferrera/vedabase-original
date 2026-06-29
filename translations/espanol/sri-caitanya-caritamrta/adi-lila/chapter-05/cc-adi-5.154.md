@@ -1,9 +1,9 @@
 ### CC Adi 5.154
 
-> সেই অংশ লঞা জ্যেষ্ঠ-কনিষ্ঠাভিমান ।
+> সেই অংশ লঞা জ্যেষ্ঠ-কনিষ্ঠাভিমান ।\
 > অংশাংশি-রূপে শাস্ত্রে করয়ে ব্যাখ্যান ॥১৫৪॥
 
-> sei amśa lañā jyeṣṭha-kaniṣṭhābhimāna
+> sei amśa lañā jyeṣṭha-kaniṣṭhābhimāna\
 > aṁśāṁśi-rūpe śāstre karaye vyākhyāna
 
 *sei aṁśa lañā*—tomando esa porción plenaria; *jyeṣṭha-kaniṣṭha-abhimāna*—considerándose el mayor o el menor; *aṁśa-aṁśi-rūpe*—como la expansión y la Suprema Personalidad de Dios original; *śāstre*—en las escrituras reveladas; *karaye*—hace; *vyākhyāna*—explicación.

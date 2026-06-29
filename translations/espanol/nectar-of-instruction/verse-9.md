@@ -1,13 +1,13 @@
 ### 9
 
-> वैकुण्ठाज्जनितो वरा मधुपुरी तत्रापि रासोत्सवाद्
-> वृन्दारण्यमुदारपाणिरमणात्तत्रापि गोवर्धनः ।
-> राधाकुन्डमिहापि गोकुलापतेः प्रेमामृताप्लावनात्
+> वैकुण्ठाज्जनितो वरा मधुपुरी तत्रापि रासोत्सवाद्\
+> वृन्दारण्यमुदारपाणिरमणात्तत्रापि गोवर्धनः ।\
+> राधाकुन्डमिहापि गोकुलापतेः प्रेमामृताप्लावनात्\
 > कुर्यादस्य विराजतो गिरितटे सेवां विवेकी न् कः ॥९॥
 
-> vaikuṇṭhāj janito varā madhu-purī tatrāpi rāsotsavād
-> vṛndāraṇyam udāra-pāṇi-ramaṇāt tatrāpi govardhanaḥ
-> rādhā-kuṇḍam ihāpi gokula-pateḥ premāmṛtāplāvanāt
+> vaikuṇṭhāj janito varā madhu-purī tatrāpi rāsotsavād\
+> vṛndāraṇyam udāra-pāṇi-ramaṇāt tatrāpi govardhanaḥ\
+> rādhā-kuṇḍam ihāpi gokula-pateḥ premāmṛtāplāvanāt\
 > kuryād asya virājato giri-taṭe sevāṁ vivekī na kaḥ
 
 *vaikuṇṭhāt*—que Vaikuṇṭha, el mundo espiritual; *janitaḥ*—a causa del nacimiento; *varā*—mejor; *madhu-purī*—la ciudad trascendental conocida como Mathurā; *tatra api*—superior a eso; *rāsa-utsavāt*—a causa de la ejecución del rāsa-līlā; *vṛndā-araṇyam*—el bosque de Vṛndāvana; *udāra-pāṇi*—del Señor Kṛṣṇa; *ramaṇāt*—a causa de diversos pasatiempos amorosos; *tatra api*—superior a eso; *govardhanaḥ*—la colina Govardhana; *rādhā-kuṇḍam*—un lugar llamado Rādhā-kuṇḍa; *iha api*—superior a esto; *gokula-pateḥ*—de Kṛṣṇa, el amo de Gokula; *prema-amṛta*—con el néctar del amor divino; *āplāvanāt*—por estar inundado; *kuryāt*—haría; *asya*—de este (Rādhā-kuṇḍa); *virājataḥ*—situado; *giri-taṭe*—al pie de la colina Govardhana; *sevām*—servicio; *vivekī*—que es inteligente; *na*—no; *kaḥ*—quién.

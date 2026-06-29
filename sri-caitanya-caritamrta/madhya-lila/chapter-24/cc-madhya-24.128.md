@@ -1,11 +1,11 @@
 ### CC Madhya 24.128
 
-> অস্মিন্ সুখঘনমূর্তৌ পরমাত্মনি বৃষ্ণিপত্তনে স্ফুরতি ।
+> অস্মিন্ সুখঘনমূর্তৌ পরমাত্মনি বৃষ্ণিপত্তনে স্ফুরতি ।\
 > আত্মারামতয়া মে বৃথা গতো বত চিরং কালঃ ॥১২৮॥
 
-> asmin sukha-ghana-mūrtau param-
-> ātmani vṛṣṇi-pattane sphurati
-> ātmārāmatayā me vṛthā
+> asmin sukha-ghana-mūrtau param-\
+> ātmani vṛṣṇi-pattane sphurati\
+> ātmārāmatayā me vṛthā\
 > gato bata ciraṁ kālaḥ
 
 *asmin*—when this; *sukha-ghana-mūrtau*—form of complete happiness; *parama-ātmani*—the Supreme Person; *vṛṣṇi-pattane*—in Dvārakā-dhāma; *sphurati*—exists; *ātmārāmatayā*—by the process of cultivating Brahman realization; *me*—my; *vṛthā*—uselessly; *gataḥ*—wasted; *bata*—alas, what can I say; *ciram*—for a long time; *kālaḥ*—time.

@@ -1,13 +1,13 @@
 ### SB 8.8.25
 
-> तस्यांसदेश उशतीं नवकञ्जमालां
-> माद्यन्मधुव्रतवरूथगिरोपघुष्टाम
-> तस्थौ निधाय निकटे तदुरः स्वधाम
+> तस्यांसदेश उशतीं नवकञ्जमालां\
+> माद्यन्मधुव्रतवरूथगिरोपघुष्टाम\
+> तस्थौ निधाय निकटे तदुरः स्वधाम\
 > सव्रीडहासविकसन्नयनेन याता ॥२५॥
 
-> tasyāḥ śriyas tri-jagato janako jananyā
-> vakṣo nivāsam akarot paramaṁ vibhūteḥ
-> śrīḥ svāḥ prajāḥ sakaruṇena nirīkṣaṇena
+> tasyāḥ śriyas tri-jagato janako jananyā\
+> vakṣo nivāsam akarot paramaṁ vibhūteḥ\
+> śrīḥ svāḥ prajāḥ sakaruṇena nirīkṣaṇena\
 > yatra sthitaidhayata sādhipatīṁs tri-lokān
 
 *tasyāḥ*—of her; *śriyaḥ*—the goddess of fortune; *tri-jagataḥ*—of the three worlds; *janakaḥ*—the father; *jananyāḥ*—of the mother; *vakṣaḥ*—bosom; *nivāsam*—residence; *akarot*—made; *paramam*—supreme; *vibhūteḥ*—of the opulent; *śrīḥ*—the goddess of fortune; *svāḥ*—own; *prajāḥ*—descendants; *sa-karuṇena*—with favorable mercy; *nirīkṣaṇena*—by glancing over; *yatra*—wherein; *sthitā*—staying; *aidhayata*—increased; *sa-adhipatīn*—with the great directors and leaders; *tri-lokān*—the three worlds.

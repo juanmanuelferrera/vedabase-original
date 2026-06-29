@@ -1,11 +1,11 @@
 ### SB 7.14.5
 
-> यावदर्थमुपासीनो देहे गेहे च पण्डितः
+> यावदर्थमुपासीनो देहे गेहे च पण्डितः\
 > विरक्तो रक्तवत्तत्र नृलोके नरतां न्यसेत ॥५॥
 
-> yāvad-artham upāsīno
-> dehe gehe ca paṇḍitaḥ
-> virakto raktavat tatra
+> yāvad-artham upāsīno\
+> dehe gehe ca paṇḍitaḥ\
+> virakto raktavat tatra\
 > nṛ-loke naratāṁ nyaset
 
 *yāvat-artham*—as much endeavor for one's livelihood as necessary; *upāsīnaḥ*—earning; *dehe*—in the body; *gehe*—in family matters; *ca*—also; *paṇḍitaḥ*—one who is learned; *viraktaḥ*—not at all attached; *rakta-vat*—as if very much attached; *tatra*—in this; *nṛ-loke*—human society; *naratām*—the human form of life; *nyaset*—one should depict.

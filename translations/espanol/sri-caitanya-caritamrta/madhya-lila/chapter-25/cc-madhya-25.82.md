@@ -1,9 +1,9 @@
 ### CC Madhya 25.82
 
-> তবু পূজ্য হও, তুমি বড় আমা হৈতে ।
+> তবু পূজ্য হও, তুমি বড় আমা হৈতে ।\
 > সর্বনাশ হয় মোর তোমার নিন্দাতে ॥৮২॥
 
-> tabu pūjya hao, tumi baḍa āmā haite
+> tabu pūjya hao, tumi baḍa āmā haite\
 > sarva-nāśa haya mora tomāra nindāte
 
 *tabu*—aun así; *pūjya hao*—Tú eres adorable; *tumi baḍa*—Tú eres mucho más grande; *āmā haite*—que yo; *sarva-nāśa haya*—todo se pierde; *mora*—mi; *tomāra nindāte*—por blasfemar contra Ti.

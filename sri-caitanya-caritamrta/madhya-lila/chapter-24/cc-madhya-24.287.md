@@ -1,9 +1,9 @@
 ### CC Madhya 24.287
 
-> দুইবিধ ভক্ত হয় চারি চারি প্রকার  ।
+> দুইবিধ ভক্ত হয় চারি চারি প্রকার  ।\
 > পারিষদ, সাধনসিদ্ধ, সাধকগণ আর ॥২৮৭॥
 
-> dui-vidha bhakta haya cāri cāri prakāra
+> dui-vidha bhakta haya cāri cāri prakāra\
 > pāriṣada, sādhana-siddha, sādhaka-gaṇa āra
 
 *dui-vidha bhakta*—these two varieties of *ātmārāma* devotees; *haya*—are; *cāri cāri prakāra*—each of four different categories; *pāriṣada*—personal associate; *sādhana-siddha*—liberated to the position of associates by perfection in devotional service; *sādhaka-gaṇa āra*—and devotees already engaged in the devotional service of the Lord.

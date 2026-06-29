@@ -1,9 +1,9 @@
 ### CC Adi 5.70
 
-> গবাক্ষের রন্ধ্রে যেন ত্রসরেণু চলে ।
+> গবাক্ষের রন্ধ্রে যেন ত্রসরেণু চলে ।\
 > পুরুষের লোমকূপে ব্রহ্মাণ্ডের জালে ॥৭০॥
 
-> gavākṣera randhre yena trasareṇu cale
+> gavākṣera randhre yena trasareṇu cale\
 > puruṣera loma-kūpe brahmāṇḍera jāle
 
 *gavākṣera*—de las ventanas de una habitación; *randhre*—dentro de las aberturas; *yena*—como; *trasareṇu*—seis átomos juntos; *cale*—se mueven; *puruṣera*—del Señor; *loma-kūpe*—en los poros del vello; *brahmāṇḍera*—de universos; *jāle*—una red.

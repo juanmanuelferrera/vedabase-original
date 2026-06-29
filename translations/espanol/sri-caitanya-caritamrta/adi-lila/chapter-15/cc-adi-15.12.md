@@ -1,9 +1,9 @@
 ### CC Adi 15.12
 
-> বিশ্বরূপ শুনি’ ঘর ছাড়ি পলাইলা ।
+> বিশ্বরূপ শুনি’ ঘর ছাড়ি পলাইলা ।\
 > সন্ন্যাস করিয়া তীর্থ করিবারে গেলা ॥১২॥
 
-> viśvarūpa śuni' ghara chāḍi palāilā
+> viśvarūpa śuni' ghara chāḍi palāilā\
 > sannyāsa kariyā tīrtha karibāre gelā
 
 *viśvarūpa*—de nombre Viśvarūpa; *śuni'*—al escuchar esto; *ghara*—el hogar; *chāḍi*—abandonando; *palāilā*—se marchó; *sannyāsa*—la orden de renuncia; *kariyā*—aceptando; *tīrtha*—los lugares sagrados; *karibāre*—para peregrinar; *gelā*—se fue.

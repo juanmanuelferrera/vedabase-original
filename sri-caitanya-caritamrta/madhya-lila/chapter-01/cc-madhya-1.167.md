@@ -1,9 +1,9 @@
 ### CC Madhya 1.167
 
-> তাহাঁ নৃত্য করে প্রভু প্রেমে অচেতন ।
+> তাহাঁ নৃত্য করে প্রভু প্রেমে অচেতন ।\
 > কোটি কোটি লোক আইসে দেখিতে চরণ ॥১৬৭॥
 
-> tāhāṅ nṛtya kare prabhu preme acetana
+> tāhāṅ nṛtya kare prabhu preme acetana\
 > koṭi koṭi loka āise dekhite caraṇa
 
 *tāhāṅ*—there; *nṛtya*—dancing; *kare*—performed; *prabhu*—Lord Caitanya Mahāprabhu; *preme*—in love of Godhead; *acetana*—unconscious; *koṭikoṭi*—innumerable; *loka*—people; *āise*—came; *dekhite*—to see; *caraṇa*—His lotus feet.

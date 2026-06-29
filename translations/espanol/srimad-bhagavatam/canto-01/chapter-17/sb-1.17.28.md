@@ -1,11 +1,11 @@
 ### SB 1.17.28
 
-> इति धर्मं महीं चैव सान्त्वयित्वा महारथः ।
+> इति धर्मं महीं चैव सान्त्वयित्वा महारथः ।\
 > निशातमाददे खड्गं कलयेऽधर्महेतवे ॥२८॥
 
-> iti dharmaṁ mahīṁ caiva
-> sāntvayitvā mahā-rathaḥ
-> niśātam ādade khaḍgaṁ
+> iti dharmaṁ mahīṁ caiva\
+> sāntvayitvā mahā-rathaḥ\
+> niśātam ādade khaḍgaṁ\
 > kalaye 'dharma-hetave
 
 *iti*—así pues; *dharmam*—la personalidad de la religión; *mahīm*—la Tierra; *ca*—también; *eva*—como; *sāntvayitvā*—después de apaciguar; *mahā-rathaḥ*—el general que podía pelear a solas con miles de enemigos; *niśātam*—afilada; *ādade*—esgrimió; *khaḍgam*—espada; *kalaye*—para matar a Kali en persona; *adharma*—irreligión; *hetave*—la causa fundamental.

@@ -1,9 +1,9 @@
 ### CC Madhya 11.64
 
-> পাছে প্রভুর নিকট আইলা ভক্তগণ ।
+> পাছে প্রভুর নিকট আইলা ভক্তগণ ।\
 > গৌড় হৈতে ভক্ত আইসে, — কৈল নিবেদন ॥৬৪॥
 
-> pāche prabhura nikaṭa āilā bhakta-gaṇa
+> pāche prabhura nikaṭa āilā bhakta-gaṇa\
 > gauḍa haite bhakta āise,-kaila nivedana
 
 *pāche*—behind; *prabhura*—of Śrī Caitanya Mahāprabhu; *nikaṭa*—in the presence; *āilā*—came; *bhakta-gaṇa*—the devotees; *gauḍa haite*—from Bengal; *bhakta*—devotees; *āise*—come; *kaila nivedana*—submitted.

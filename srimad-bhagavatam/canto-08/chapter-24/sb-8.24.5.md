@@ -1,13 +1,13 @@
 ### SB 8.24.5
 
-> श्रीशुक उवाच
-> गोविप्रसुरसाधूनां छन्दसामपि चेश्वरः
+> श्रीशुक उवाच\
+> गोविप्रसुरसाधूनां छन्दसामपि चेश्वरः\
 > रक्षामिच्छंस्तनूर्धत्ते धर्मस्यार्थस्य चैव हि ॥५॥
 
-> śrī-śuka uvāca
-> go-vipra-sura-sādhūnāṁ
-> chandasām api ceśvaraḥ
-> rakṣām icchaṁs tanūr dhatte
+> śrī-śuka uvāca\
+> go-vipra-sura-sādhūnāṁ\
+> chandasām api ceśvaraḥ\
+> rakṣām icchaṁs tanūr dhatte\
 > dharmasyārthasya caiva hi
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *go*—of the cows; *vipra*—of the *brāhmaṇas*; *sura*—of the demigods; *sādhūnām*—and of the devotees; *chandasām api*—even of the Vedic literature; *ca*—and; *īśvaraḥ*—the supreme controller; *rakṣām*—the protection; *icchan*—desiring; *tanūḥ dhatte*—accepts the forms of incarnations; *dharmasya*—of the principles of religion; *arthasya*—of the principles of the purpose of life; *ca*—and; *eva*—indeed; *hi*—certainly.

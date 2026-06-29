@@ -1,9 +1,9 @@
 ### CC Madhya 7.112
 
-> প্রথমেই কহিল প্রভুর যেরূপে গমন ।
+> প্রথমেই কহিল প্রভুর যেরূপে গমন ।\
 > এইমত জানিহ যাবৎ দক্ষিণ-ভ্রমণ ॥১১২॥
 
-> prathamei kahila prabhura ye-rūpe gamana
+> prathamei kahila prabhura ye-rūpe gamana\
 > ei-mata jāniha yāvat dakṣiṇa-bhramaṇa
 
 *prathamei*—at the beginning; *kahila*—I have explained; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *ye-rūpe*—as; *gamana*—the touring; *ei-mata*—in this way; *jāniha*—you should know; *yāvat*—as long as; *dakṣiṇa-bhramaṇa*—touring in South India.

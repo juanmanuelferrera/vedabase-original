@@ -1,9 +1,9 @@
 ### CC Madhya 18.16
 
-> গোবর্ধন দেখি’ প্রভু হইলা দণ্ডবৎ ।
+> গোবর্ধন দেখি’ প্রভু হইলা দণ্ডবৎ ।\
 > ‘এক শিলা’ আলিঙ্গিয়া হইলা উন্মত্ত ॥১৬॥
 
-> govardhana dekhi' prabhu ha-ilā daṇḍavat
+> govardhana dekhi' prabhu ha-ilā daṇḍavat\
 > 'eka śilā' āliṅgiyā ha-ilā unmatta
 
 *govardhana dekhi'*—seeing Govardhana Hill; *prabhu*—Śrī Caitanya Mahāprabhu; *ha-ilā daṇḍavat*—offered obeisances like a straight rod; *eka śilā*—one piece of stone; *āliṅgiyā*—embracing; *ha-ilā*—became; *unmatta*—maddened.

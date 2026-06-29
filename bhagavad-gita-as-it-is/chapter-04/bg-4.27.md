@@ -1,11 +1,11 @@
 ### Bg 4.27
 
-> सर्वाणीन्द्रियकर्माणि प्राणकर्माणि चापरे ।
+> सर्वाणीन्द्रियकर्माणि प्राणकर्माणि चापरे ।\
 > आत्मसंयमयोगाग्नौ जुह्वति ज्ञानदीपिते ॥२७॥
 
-> sarvāṇīndriya-karmāṇi
-> prāṇa-karmāṇi cāpare
-> ātma-saṁyama-yogāgnau
+> sarvāṇīndriya-karmāṇi\
+> prāṇa-karmāṇi cāpare\
+> ātma-saṁyama-yogāgnau\
 > juhvati jñāna-dīpite
 
 *sarvāṇi*—all; *indriya*—senses; *karmāṇi*—functions; *prāṇa-karmāṇi*—functions of the life breath; *ca*—also; *apare*—others; *ātma-saṁyama*—controlling the mind; *yoga*—linking process; *agnau*—in the fire of; *juhvati*—offers; *jñāna-dīpite*—because of the urge for self-realization.

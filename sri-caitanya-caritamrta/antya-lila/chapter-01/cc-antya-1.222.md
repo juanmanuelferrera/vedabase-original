@@ -1,9 +1,9 @@
 ### CC Antya 1.222
 
-> এই ত’ কহিলাঙ পুনঃ রূপের মিলন ।
+> এই ত’ কহিলাঙ পুনঃ রূপের মিলন ।\
 > ইহা যেই শুনে, পায় চৈতন্যচরণ ॥২২২॥
 
-> ei ta' kahilāṅa punaḥ rūpera milana
+> ei ta' kahilāṅa punaḥ rūpera milana\
 > ihā yei śune, pāya caitanya-caraṇa
 
 *ei ta' kahilāṅa*—thus I have said; *punaḥ*—again; *rūpera milana*—the meeting with Śrīla Rūpa Gosvāmī; *ihā*—this narration; *yei śune*—anyone who hears; *pāya*—gets; *caitanya-caraṇa*—the shelter of Śrī Caitanya Mahāprabhu.

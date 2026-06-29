@@ -2,7 +2,7 @@
 
 > সরূপাণামেকশেষ একবিভক্তৌ, উক্তার্থানামপ্রয়োগ ইতি ॥২৯৭॥
 
-> sarūpāṇām eka-śeṣa eka-vibhaktau,
+> sarūpāṇām eka-śeṣa eka-vibhaktau,\
 > uktārthānām aprayoga iti
 
 *sa-rūpāṇām*—of words of the same form; *eka-śeṣaḥ*—only the last; *eka-vibhaktau*—in the same case; *ukta-arthānām*—of the previously spoken meanings; *aprayogaḥ*—nonapplication; *iti*—thus.

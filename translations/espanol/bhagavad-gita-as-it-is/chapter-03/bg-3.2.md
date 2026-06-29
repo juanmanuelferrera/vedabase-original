@@ -1,11 +1,11 @@
 ### Bg 3.2
 
-> व्यामिश्रेणेव वाक्येन बुद्धिं मोहयसीव मे ।
+> व्यामिश्रेणेव वाक्येन बुद्धिं मोहयसीव मे ।\
 > तदेकं वद निश्चित्य येन श्रेयोऽहमाप्नुयाम् ॥२॥
 
-> vyāmiśreṇeva vākyena
-> buddhiṁ mohayasīva me
-> tad ekaṁ vada niścitya
+> vyāmiśreṇeva vākyena\
+> buddhiṁ mohayasīva me\
+> tad ekaṁ vada niścitya\
 > yena śreyo'ham āpnuyām
 
 *vyāmiśreṇa*—con equívocas; *iva*—como; *vākyena*—palabras; *buddhim*—inteligencia; *mohayasi*—confundiendo; *iva*—como; *me*—mi; *tat*—por lo tanto; *ekam*—solo una; *vada*—por favor, di; *niścitya*—determinando; *yena*—mediante lo cual; *śreyaḥ*—verdadero beneficio; *aham*—yo; *āpnuyām*—pueda tener.

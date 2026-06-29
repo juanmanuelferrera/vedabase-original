@@ -1,11 +1,11 @@
 ### SB 9.19.4
 
-> तस्या उद्धरणोपायं बस्तः कामी विचिन्तयन
+> तस्या उद्धरणोपायं बस्तः कामी विचिन्तयन\
 > व्यधत्त तीर्थमुद्धृत्य विषाणाग्रेण रोधसी ॥४॥
 
-> tasyā uddharaṇopāyaṁ
-> bastaḥ kāmī vicintayan
-> vyadhatta tīrtham uddhṛtya
+> tasyā uddharaṇopāyaṁ\
+> bastaḥ kāmī vicintayan\
+> vyadhatta tīrtham uddhṛtya\
 > viṣāṇāgreṇa rodhasī
 
 *tasyāḥ*—of the she-goat; *uddharaṇa-upāyam*—the means of deliverance (from the well); *bastaḥ*—the he-goat; *kāmī*—having lusty desires; *vicintayan*—planning; *vyadhatta*—executed; *tīrtham*—a way to come out; *uddhṛtya*—digging the earth; *viṣāṇa-agreṇa*—by the point of the horns; *rodhasī*—at the edge of the well.

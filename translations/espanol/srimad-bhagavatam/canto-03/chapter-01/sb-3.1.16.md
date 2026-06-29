@@ -1,11 +1,11 @@
 ### SB 3.1.16
 
-> स्वयं धनुर्द्वारि निधाय मायां भ्रातुः पुरो मर्मसु ताडितोऽपि ।
+> स्वयं धनुर्द्वारि निधाय मायां भ्रातुः पुरो मर्मसु ताडितोऽपि ।\
 > स इत्थमत्युल्बणकर्णबाणैर्गतव्यथोऽयादुरु मानयानः ॥१६॥
 
-> svayaṁ dhanur dvāri nidhāya māyāṁ
-> bhrātuḥ puro marmasu tāḍito 'pi
-> sa ittham atyulbaṇa-karṇa-bāṇair
+> svayaṁ dhanur dvāri nidhāya māyāṁ\
+> bhrātuḥ puro marmasu tāḍito 'pi\
+> sa ittham atyulbaṇa-karṇa-bāṇair\
 > gata-vyatho 'yād uru mānayānaḥ
 
 *svayam*—él mismo; *dhanuḥ dvāri*—arco en la puerta; *nidhāya*—manteniendo; *māyām*—la naturaleza externa; *bhrātuḥ*—del hermano; *puraḥ*—del palacio; *marmasu*—en lo más íntimo del corazón; *tāḍitaḥ*—siendo afligido; *api*—a pesar de; *saḥ*—él (Vidura); *ittham*—así; *ati-ulbaṇa*—severamente; *karṇa*—oído; *bāṇaiḥ*—por las flechas; *gata-vyathaḥ*—sin sentirse triste; *ayāt*—excitado; *uru*—grandioso; *māna-yānaḥ*—pensando así.

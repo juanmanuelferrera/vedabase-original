@@ -1,11 +1,11 @@
 ### SB 6.16.36
 
-> परमाणुपरममहतोस्त्वमाद्यन्तान्तरवर्ती त्रयविधुरः
+> परमाणुपरममहतोस्त्वमाद्यन्तान्तरवर्ती त्रयविधुरः\
 > आदावन्तेऽपि च सत्त्वानां यद्ध्रुवं तदेवान्तरालेऽपि ॥३६॥
 
-> paramāṇu-parama-mahatos
-> tvam ādy-antāntara-vartī traya-vidhuraḥ
-> ādāv ante 'pi ca sattvānāṁ
+> paramāṇu-parama-mahatos\
+> tvam ādy-antāntara-vartī traya-vidhuraḥ\
+> ādāv ante 'pi ca sattvānāṁ\
 > yad dhruvaṁ tad evāntarāle 'pi
 
 *parama-aṇu*—de la partícula atómica; *parama-mahatoḥ*—y de lo más grande (el resultado de la combinación de átomos); *tvam*—Tú; *ādi-anta*—tanto al principio como al final; *antara*—y en la etapa intermedia; *vartī*—que existes; *traya-vidhuraḥ*—aunque no tienes principio, fase intermedia ni final; *ādau*—en el comienzo; *ante*—al final; *api*—también; *ca*—y; *sattvānām*—de todas las existencias; *yat*—lo cual; *dhruvam*—permanente; *tat*—eso; *eva*—sin duda; *antarāle*—en la etapa intermedia; *api*—también.

@@ -1,9 +1,9 @@
 ### CC Madhya 7.69
 
-> “ঘরে কৃষ্ণ ভজি’ মোরে করিহ আশীর্বাদে ৷
+> “ঘরে কৃষ্ণ ভজি’ মোরে করিহ আশীর্বাদে ৷\
 > নীলাচলে আসি’ যেন তোমার প্রসাদে ৷৷” ৬৯ ৷৷ ॥৬৯॥
 
-> "ghare kṛṣṇa bhaji' more kariha āśīrvāde
+> "ghare kṛṣṇa bhaji' more kariha āśīrvāde\
 > nīlācale āsi' yena tomāra prasāde"
 
 *ghare*—en casa; *kṛṣṇa*—el Señor Kṛṣṇa; *bhaji'*—adorando; *more*—a Mí; *kariha*—haz; *āśīrvāde*—bendición; *nīlācale*—en Jagannātha Purī; *āsi'*—regresando; *yena*—para que; *tomāra*—tu; *prasāde*—por la misericordia.

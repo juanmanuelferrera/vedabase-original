@@ -1,11 +1,11 @@
 ### SB 6.8.35
 
-> मघवन्निदमाख्यातं वर्म नारायणात्मकम
+> मघवन्निदमाख्यातं वर्म नारायणात्मकम\
 > विजेष्यसेऽञ्जसा येन दंशितोऽसुरयूथपान ॥३५॥
 
-> maghavann idam ākhyātaṁ
-> varma nārāyaṇātmakam
-> vijeṣyase 'ñjasā yena
+> maghavann idam ākhyātaṁ\
+> varma nārāyaṇātmakam\
+> vijeṣyase 'ñjasā yena\
 > daṁśito 'sura-yūthapān
 
 *maghavan*—O King Indra; *idam*—this; *ākhyātam*—described; *varma*—mystic armor; *nārāyaṇa-ātmakam*—related to Nārāyaṇa; *vijeṣyase*—you will conquer; *añjasā*—very easily; *yena*—by which; *daṁśitaḥ*—being protected; *asura-yūthapān*—the chief leaders of the demons.

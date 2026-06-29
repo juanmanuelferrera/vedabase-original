@@ -1,11 +1,11 @@
 ### SB 4.24.62
 
-> क्रियाकलापैरिदमेव योगिनः श्रद्धान्विताः साधु यजन्ति सिद्धये ।
+> क्रियाकलापैरिदमेव योगिनः श्रद्धान्विताः साधु यजन्ति सिद्धये ।\
 > भूतेन्द्रियान्तःकरणोपलक्षितं वेदे च तन्त्रे च त एव कोविदाः ॥६२॥
 
-> kriyā-kalāpair idam eva yoginaḥ
-> śraddhānvitāḥ sādhu yajanti siddhaye
-> bhūtendriyāntaḥ-karaṇopalakṣitaṁ
+> kriyā-kalāpair idam eva yoginaḥ\
+> śraddhānvitāḥ sādhu yajanti siddhaye\
+> bhūtendriyāntaḥ-karaṇopalakṣitaṁ\
 > vede ca tantre ca ta eva kovidāḥ
 
 *kriyā*—activities; *kalāpaiḥ*—by processes; *idam*—this; *eva*—certainly; *yoginaḥ*—transcendentalists; *śraddhā-anvitāḥ*—with faith and conviction; *sādhu*—properly; *yajanti*—worship; *siddhaye*—for perfection; *bhūta*—the material energy; *indriya*—senses; *antaḥ-karaṇa*—heart; *upalakṣitam*—symptomized by; *vede*—in the *Vedas*; *ca*—also; *tantre*—in the corollaries of the *Vedas*; *ca*—also; *te*—Your Lordship; *eva*—certainly; *kovidāḥ*—those who are experts.

@@ -1,11 +1,11 @@
 ### SB 4.17.32
 
-> नूनं बतेशस्य समीहितं जनैस्तन्मायया दुर्जययाकृतात्मभिः ।
+> नूनं बतेशस्य समीहितं जनैस्तन्मायया दुर्जययाकृतात्मभिः ।\
 > न लक्ष्यते यस्त्वकरोदकारयद्योऽनेक एकः परतश्च ईश्वरः ॥३२॥
 
-> nūnaṁ bateśasya samīhitaṁ janais
-> tan-māyayā durjayayākṛtātmabhiḥ
-> na lakṣyate yas tv akarod akārayad
+> nūnaṁ bateśasya samīhitaṁ janais\
+> tan-māyayā durjayayākṛtātmabhiḥ\
+> na lakṣyate yas tv akarod akārayad\
 > yo 'neka ekaḥ parataś ca īśvaraḥ
 
 *nūnam*—sin duda; *bata*—ciertamente; *īśasya*—de la Suprema Personalidad de Dios; *samīhitam*—actividades, plan; *janaiḥ*—por la gente; *tat-māyayā*—por medio de Su potencia; *durjayayā*—que es inconquistable; *akṛta-ātmabhiḥ*—que no tienen suficiente experiencia; *na*—nunca; *lakṣyate*—son vistos; *yaḥ*—el que; *tu*—entonces; *akarot*—creó; *akārayat*—hizo crear; *yaḥ*—el que; *anekaḥ*—muchos; *ekaḥ*—uno; *parataḥ*—por medio de Sus potencias inconcebibles; *ca*—y; *īśvaraḥ*—controlador.

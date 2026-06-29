@@ -1,13 +1,13 @@
 ### CC Madhya 8.182
 
-> কা কৃষ্ণস্য প্রণয়জনিভূঃ শ্রীমতী রাধিকৈকা
-> কাস্য প্রেয়স্যনুপমগুণা রাধিকৈকা ন চান্যা ৷
-> জৈহ্ম্যং কেশে দৃশি তরলতা নিষ্ঠুরত্বং কুচেঽস্যা
+> কা কৃষ্ণস্য প্রণয়জনিভূঃ শ্রীমতী রাধিকৈকা\
+> কাস্য প্রেয়স্যনুপমগুণা রাধিকৈকা ন চান্যা ৷\
+> জৈহ্ম্যং কেশে দৃশি তরলতা নিষ্ঠুরত্বং কুচেঽস্যা\
 > বাঞ্ছাপূর্ত্যৈ প্রভবতি হরে রাধিকৈকা ন চান্যা ৷৷ ১৮২ ৷৷ ॥১৮২॥
 
-> kā kṛṣṇasya praṇaya-jani-bhūḥ śrīmatī rādhikaikā
-> kāsya preyasy anupama-guṇā rādhikaikā na cānyā
-> jaihmyaṁ keśe dṛśi taralatā niṣṭhuratvaṁ kuce 'syā
+> kā kṛṣṇasya praṇaya-jani-bhūḥ śrīmatī rādhikaikā\
+> kāsya preyasy anupama-guṇā rādhikaikā na cānyā\
+> jaihmyaṁ keśe dṛśi taralatā niṣṭhuratvaṁ kuce 'syā\
 > vāñchā-pūrtyai prabhavati hare rādhikaikā na cānyā
 
 *kā*—quién; *kṛṣṇasya*—del Señor Kṛṣṇa; *praṇaya-jani-bhūḥ*—el lugar de nacimiento del amor por Kṛṣṇa; *śrīmatī*—la toda hermosa; *rādhikā*—Śrīmatī Rādhārāṇī; *ekā*—sola; *kā*—quién; *asya*—de Él; *preyasī*—la amiga más querida; *anupama-guṇā*—poseedora de cualidades incomparables; *rādhikā*—Śrīmatī Rādhārāṇī; *ekā*—sola; *na*—no; *ca*—también; *anyā*—ninguna otra; *jaihmyam*—rizos; *keśe*—en el cabello; *dṛśi*—en los ojos; *taralatā*—inquietud; *niṣṭhuratvam*—firmeza; *kuce*—en los pechos; *asyāḥ*—de Ella; *vāñchā*—de los deseos; *pūrtyai*—para satisfacer; *prabhavati*—se manifiesta; *hareḥ*—del Señor Kṛṣṇa; *rādhikā*—Śrīmatī Rādhārāṇī; *ekā*—sola; *na*—no; *ca anyā*—ninguna otra.

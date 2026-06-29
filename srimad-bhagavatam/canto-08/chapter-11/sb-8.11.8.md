@@ -1,11 +1,11 @@
 ### SB 8.11.8
 
-> तदिदं कालरशनं जगत्पश्यन्ति सूरयः
+> तदिदं कालरशनं जगत्पश्यन्ति सूरयः\
 > न हृष्यन्ति न शोचन्ति तत्र यूयमपण्डिताः ॥८॥
 
-> tad idaṁ kāla-raśanaṁ
-> jagat paśyanti sūrayaḥ
-> na hṛṣyanti na śocanti
+> tad idaṁ kāla-raśanaṁ\
+> jagat paśyanti sūrayaḥ\
+> na hṛṣyanti na śocanti\
 > tatra yūyam apaṇḍitāḥ
 
 *tat*—therefore; *idam*—this whole material world; *kāla-raśanam*—is moving because of time eternal; *jagat*—moving forward (this whole universe); *paśyanti*—observe; *sūrayaḥ*—those who are intelligent by admission of the truth; *na*—not; *hṛṣyanti*—become jubilant; *na*—nor; *śocanti*—lament; *tatra*—in such; *yūyam*—all of you demigods; *apaṇḍitāḥ*—not very learned (having forgotten that you are working under eternal time).

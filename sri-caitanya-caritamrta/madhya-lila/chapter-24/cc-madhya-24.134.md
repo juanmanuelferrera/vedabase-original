@@ -1,9 +1,9 @@
 ### CC Madhya 24.134
 
-> ভক্তিবলে ‘প্রাপ্তস্বরূপ’ দিব্যদেহ পায় ।
+> ভক্তিবলে ‘প্রাপ্তস্বরূপ’ দিব্যদেহ পায় ।\
 > কৃষ্ণগুণাকৃষ্ট হঞা ভজে কৃষ্ণ-পা’য় ॥১৩৪॥
 
-> bhakti-bale 'prāpta-svarūpa' divya-deha pāya
+> bhakti-bale 'prāpta-svarūpa' divya-deha pāya\
 > kṛṣṇa-guṇākṛṣṭa hañā bhaje kṛṣṇa-pā'ya
 
 *bhakti-bale*—by the strength of devotional service; *prāpta-svarūpa*—attaining his original status; *divya-deha*—a transcendental body; *pāya*—one gets; *kṛṣṇa-guṇa-ākṛṣṭa*—attracted by the transcendental qualities of Kṛṣṇa; *hañā*—being; *bhaje*—takes to devotional service; *kṛṣṇa-pā'ya*—at Kṛṣṇa's lotus feet.

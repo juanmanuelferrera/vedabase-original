@@ -1,9 +1,9 @@
 ### CC Madhya 24.253
 
-> ব্যাধ কহে, — “বাল্য হৈতে এই আমার কর্ম ।
+> ব্যাধ কহে, — “বাল্য হৈতে এই আমার কর্ম ।\
 > কেমনে তরিমু মুঞি পামর অধম ? ॥ ২৫৩ ॥
 
-> vyādha kahe,—"bālya haite ei āmāra karma
+> vyādha kahe,—"bālya haite ei āmāra karma\
 > kemane tarimu muñi pāmara adhama?
 
 *vyādha kahe*—the hunter said; *bālya haite*—from the very beginning of my childhood; *ei āmāra karma*—I have been taught this business (half-killing animals); *kemane*—how; *tarimu*—shall become free from these sinful activities; *muñi*—I; *pāmara adhama*—sinful and misled.

@@ -1,18 +1,18 @@
 ### SB 6.3.14-15
 
-> अहं महेन्द्रो निरृतिः प्रचेताः सोमोऽग्निरीशः पवनो विरिञ्चिः
-> आदित्यविश्वे वसवोऽथ साध्या मरुद्गणा रुद्रगणाः ससिद्धाः ॥१४॥
-> अन्ये च ये विश्वसृजोऽमरेशा भृग्वादयोऽस्पृष्टरजस्तमस्काः
+> अहं महेन्द्रो निरृतिः प्रचेताः सोमोऽग्निरीशः पवनो विरिञ्चिः\
+> आदित्यविश्वे वसवोऽथ साध्या मरुद्गणा रुद्रगणाः ससिद्धाः ॥१४॥\
+> अन्ये च ये विश्वसृजोऽमरेशा भृग्वादयोऽस्पृष्टरजस्तमस्काः\
 > यस्येहितं न विदुः स्पृष्टमायाः सत्त्वप्रधाना अपि किं ततोऽन्ये ॥१५॥
 
-> ahaṁ mahendro nirṛtiḥ pracetāḥ
-> somo 'gnir īśaḥ pavano viriñciḥ
-> āditya-viśve vasavo 'tha sādhyā
+> ahaṁ mahendro nirṛtiḥ pracetāḥ\
+> somo 'gnir īśaḥ pavano viriñciḥ\
+> āditya-viśve vasavo 'tha sādhyā\
 > marud-gaṇā rudra-gaṇāḥ sasiddhāḥ
 
-> anye ca ye viśva-sṛjo 'mareśā
-> bhṛgv-ādayo 'spṛṣṭa-rajas-tamaskāḥ
-> yasyehitaṁ na viduḥ spṛṣṭa-māyāḥ
+> anye ca ye viśva-sṛjo 'mareśā\
+> bhṛgv-ādayo 'spṛṣṭa-rajas-tamaskāḥ\
+> yasyehitaṁ na viduḥ spṛṣṭa-māyāḥ\
 > sattva-pradhānā api kiṁ tato 'nye
 
 *aham*—I, Yamarāja; *mahendraḥ*—Indra, the King of heaven; *nirṛtiḥ*—Nirṛti; *pracetāḥ*—Varuṇa, the controller of water; *somaḥ*—the moon; *agniḥ*—fire; *īśaḥ*—Lord Śiva; *pavanaḥ*—the demigod of the air; *viriñciḥ*—Lord Brahmā; *āditya*—the sun; *viśve*—Viśvāsu; *vasavaḥ*—the eight Vasus; *atha*—also; *sādhyāḥ*—the demigods; *marut-gaṇāḥ*—masters of the wind; *rudra-gaṇāḥ*—the expansions of Lord Śiva; *sa-siddhāḥ*—with the inhabitants of Siddhaloka; *anye*—others; *ca*—and; *ye*—who; *viśva-sṛjaḥ*—Marīci and the other creators of the universal affairs; *amara-īśāḥ*—the demigods like Bṛhaspati; *bhṛgu-ādayaḥ*—the great sages headed by Bhṛgu; *aspṛṣṭa*—who have not been contaminated; *rajaḥ-tamaskāḥ*—by the lower modes of material nature (*rajo-guṇa* and *tamo-guṇa*); *yasya*—of whom; *īhitam*—the activity; *na viduḥ*—do not know; *spṛṣṭa-māyāḥ*—who are illusioned by the illusory energy; *sattva-pradhānāḥ*—chiefly in the mode of goodness; *api*—although; *kim*—what to speak of; *tataḥ*—than them; *anye*—others.

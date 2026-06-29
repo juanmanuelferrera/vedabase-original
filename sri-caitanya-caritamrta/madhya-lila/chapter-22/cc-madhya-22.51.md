@@ -1,9 +1,9 @@
 ### CC Madhya 22.51
 
-> মহৎ-কৃপা বিনা কোন কর্মে ‘ভক্তি’ নয় ।
+> মহৎ-কৃপা বিনা কোন কর্মে ‘ভক্তি’ নয় ।\
 > কৃষ্ণভক্তি দূরে রহু, সংসার নহে ক্ষয় ॥৫১॥
 
-> mahat-kṛpā vinā kona karme 'bhakti' naya
+> mahat-kṛpā vinā kona karme 'bhakti' naya\
 > kṛṣṇa-bhakti dūre rahu, saṁsāra nahe kṣaya
 
 *mahat-kṛpā*—the mercy of great devotees; *vinā*—without; *kona karme*—by some other activity; *bhakti naya*—there is not devotional service; *kṛṣṇa-bhakti*—love of Kṛṣṇa or devotional service to Kṛṣṇa; *dūre rahu*—leaving aside; *saṁsāra*—the bondage of material existence; *nahe*—there is not; *kṣaya*—destruction.

@@ -1,11 +1,11 @@
 ### SB 6.4.40
 
-> स्तूयमानोऽनुगायद्भिः सिद्धगन्धर्वचारणैः
+> स्तूयमानोऽनुगायद्भिः सिद्धगन्धर्वचारणैः\
 > रूपं तन्महदाश्चर्यं विचक्ष्यागतसाध्वसः ॥४०॥
 
-> rūpaṁ tan mahad-āścaryaṁ
-> vicakṣyāgata-sādhvasaḥ
-> nanāma daṇḍavad bhūmau
+> rūpaṁ tan mahad-āścaryaṁ\
+> vicakṣyāgata-sādhvasaḥ\
+> nanāma daṇḍavad bhūmau\
 > prahṛṣṭātmā prajāpatiḥ
 
 *rūpam*—transcendental form; *tat*—that; *mahat-āścaryam*—greatly wonderful; *vicakṣya*—seeing; *āgata-sādhvasaḥ*—in the beginning becoming afraid; *nanāma*—offered obeisances; *daṇḍa-vat*—like a stick; *bhūmau*—on the ground; *prahṛṣṭa-ātmā*—being pleased in his body, mind and soul; *prajāpatiḥ*—the *prajāpati* known as Dakṣa.

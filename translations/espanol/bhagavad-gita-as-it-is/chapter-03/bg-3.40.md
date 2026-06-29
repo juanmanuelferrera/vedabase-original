@@ -1,11 +1,11 @@
 ### Bg 3.40
 
-> इन्द्रियाणि मनो बुद्धिरस्याधिष्ठानमुच्यते ।
+> इन्द्रियाणि मनो बुद्धिरस्याधिष्ठानमुच्यते ।\
 > एतैर्विमोहयत्येष ज्ञानमावृत्य देहिनम् ॥४०॥
 
-> indriyāṇi mano buddhir
-> asyādhiṣṭhānam ucyate
-> etair vimohayaty eṣa
+> indriyāṇi mano buddhir\
+> asyādhiṣṭhānam ucyate\
+> etair vimohayaty eṣa\
 > jñānam āvṛtya dehinam
 
 *indriyāṇi*—los sentidos; *manaḥ*—la mente; *buddhiḥ*—la inteligencia; *asya*—de la lujuria; *adhiṣṭhānam*—lugar de asiento; *ucyate*—llamado; *etaiḥ*—por todos estos; *vimohayati*—confunde; *eṣaḥ*—de esta; *jñānam*—conocimiento; *āvṛtya*—cubriendo; *dehinam*—el ser corporificado.

@@ -1,11 +1,11 @@
 ### SB 1.3.30
 
-> एतद्रूपं भगवतो ह्यरूपस्य चिदात्मनः ।
+> एतद्रूपं भगवतो ह्यरूपस्य चिदात्मनः ।\
 > मायागुणैर्विरचितं महदादिभिरात्मनि ॥३०॥
 
-> etad rūpaṁ bhagavato
-> hy arūpasya cid-ātmanaḥ
-> māyā-guṇair viracitaṁ
+> etad rūpaṁ bhagavato\
+> hy arūpasya cid-ātmanaḥ\
+> māyā-guṇair viracitaṁ\
 > mahadādibhir ātmani
 
 *etat*—all these; *rūpam*—forms; *bhagavataḥ*—of the Lord; *hi*—certainly; *arūpasya*—of one who has no material form; *cit-ātmanaḥ*—of the Transcendence; *māyā*—material energy; *guṇaiḥ*—by the qualities; *viracitam*—manufactured; *mahat-ādibhiḥ*—with the ingredients of matter; *ātmani*—in the self.

@@ -1,11 +1,11 @@
 ### SB 9.14.41
 
-> उपलभ्य मुदा युक्तः समुवास तया निशाम
+> उपलभ्य मुदा युक्तः समुवास तया निशाम\
 > अथैनमुर्वशी प्राह कृपणं विरहातुरम ॥४१॥
 
-> upalabhya mudā yuktaḥ
-> samuvāsa tayā niśām
-> athainam urvaśī prāha
+> upalabhya mudā yuktaḥ\
+> samuvāsa tayā niśām\
+> athainam urvaśī prāha\
 > kṛpaṇaṁ virahāturam
 
 *upalabhya*—obtener la compañía; *mudā*—lleno de júbilo; *yuktaḥ*—estar unido; *samuvāsa*—disfrutó de la relación sexual en su compañía; *tayā*—con ella; *niśām*—esa noche; *atha*—a continuación; *enam*—al rey Purūravā; *urvaśī*—la mujer llamada Urvaśī; *prāha*—dijo; *kṛpaṇam*—a él, que era de carácter débil; *viraha-āturam*—afligido con la idea de separarse.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.248
 
-> অনন্ত অবতার কৃষ্ণের, নাহিক গণন ।
+> অনন্ত অবতার কৃষ্ণের, নাহিক গণন ।\
 > শাখা-চন্দ্র-ন্যায় করি দিগ্দরশন ॥২৪৮॥
 
-> ananta avatāra kṛṣṇera, nāhika gaṇana
+> ananta avatāra kṛṣṇera, nāhika gaṇana\
 > śākhā-candra-nyāya kari dig-daraśana
 
 *ananta*—unlimited; *avatāra*—incarnations; *kṛṣṇera*—of Lord Kṛṣṇa; *nāhika gaṇana*—there is no possibility of counting; *śākhā-candra-nyāya*—by the analogy of the moon and the branches of a tree; *kari*—I make; *dik-daraśana*—a slight indication.

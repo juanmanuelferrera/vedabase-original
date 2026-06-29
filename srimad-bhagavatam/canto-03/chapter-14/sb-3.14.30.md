@@ -1,13 +1,13 @@
 ### SB 3.14.30
 
-> मैत्रेय उवाच
-> सैवं संविदिते भर्त्रा मन्मथोन्मथितेन्द्रिया ।
+> मैत्रेय उवाच\
+> सैवं संविदिते भर्त्रा मन्मथोन्मथितेन्द्रिया ।\
 > जग्राह वासो ब्रह्मर्षेर्वृषलीव गतत्रपा ॥३०॥
 
-> maitreya uvāca
-> saivaṁ saṁvidite bhartrā
-> manmathonmathitendriyā
-> jagrāha vāso brahmarṣer
+> maitreya uvāca\
+> saivaṁ saṁvidite bhartrā\
+> manmathonmathitendriyā\
+> jagrāha vāso brahmarṣer\
 > vṛṣalīva gata-trapā
 
 *maitreyaḥ uvāca*—Maitreya said; *sā*—she; *evam*—thus; *saṁvidite*—in spite of being informed; *bhartrā*—by her husband; *manmatha*—by Cupid; *unmathita*—being pressed; *indriyā*—senses; *jagrāha*—caught hold of; *vāsaḥ*—clothing; *brahma-ṛṣeḥ*—of the great *brāhmaṇa*-sage; *vṛṣalī*—public prostitute; *iva*—like; *gata-trapā*—without shame.

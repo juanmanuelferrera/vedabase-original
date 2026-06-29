@@ -1,11 +1,11 @@
 ### SB 3.11.2
 
-> सत एव पदार्थस्य स्वरूपावस्थितस्य यत् ।
+> सत एव पदार्थस्य स्वरूपावस्थितस्य यत् ।\
 > कैवल्यं परममहानविशेषो निरन्तरः ॥२॥
 
-> sata eva padārthasya
-> svarūpāvasthitasya yat
-> kaivalyaṁ parama-mahān
+> sata eva padārthasya\
+> svarūpāvasthitasya yat\
+> kaivalyaṁ parama-mahān\
 > aviśeṣo nirantaraḥ
 
 *sataḥ*—de la manifestación efectiva; *eva*—ciertamente; *pada-arthasya*—de cuerpos físicos; *svarūpa-avasthitasya*—permaneciendo en la misma forma, incluso hasta el momento de la disolución; *yat*—aquello que; *kaivalyam*—unidad; *parama*—lo supremo; *mahān*—ilimitado; *aviśeṣaḥ*—formas; *nirantaraḥ*—eternamente.

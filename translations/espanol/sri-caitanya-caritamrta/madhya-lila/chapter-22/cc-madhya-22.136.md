@@ -1,13 +1,13 @@
 ### CC Madhya 22.136
 
-> শ্রীবিষ্ণোঃ শ্রবণে পরীক্ষিদভবদ্বৈয়াসকিঃ কীর্তনে
-> প্রহ্লাদঃ স্মরণে তদঙ্ঘ্রিভজনে লক্ষ্মীঃ পৃথুঃ পূজনে ।
-> অক্রূরস্ত্বভিবন্দনে কপিপতির্দাস্যেঽথ সখ্যেঽর্জুনঃ
+> শ্রীবিষ্ণোঃ শ্রবণে পরীক্ষিদভবদ্বৈয়াসকিঃ কীর্তনে\
+> প্রহ্লাদঃ স্মরণে তদঙ্ঘ্রিভজনে লক্ষ্মীঃ পৃথুঃ পূজনে ।\
+> অক্রূরস্ত্বভিবন্দনে কপিপতির্দাস্যেঽথ সখ্যেঽর্জুনঃ\
 > সর্বস্বাত্মনিবেদনে বলিরভূৎ কৃষ্ণাপ্তিরেষাং পরা ॥১৩৬॥
 
-> śrī-viṣṇoḥ śravaṇe parīkṣid abhavad vaiyāsakiḥ kīrtane
-> prahlādaḥ smaraṇe tad-aṅghri-bhajane lakṣmīḥ pṛthuḥ pūjane
-> akrūras tv abhivandane kapi-patir dāsye 'tha sakhye 'rjunaḥ
+> śrī-viṣṇoḥ śravaṇe parīkṣid abhavad vaiyāsakiḥ kīrtane\
+> prahlādaḥ smaraṇe tad-aṅghri-bhajane lakṣmīḥ pṛthuḥ pūjane\
+> akrūras tv abhivandane kapi-patir dāsye 'tha sakhye 'rjunaḥ\
 > sarvasvātma-nivedane balir abhūt kṛṣṇāptir eṣāṁ parā
 
 *śrī-viṣṇoḥ*—del Señor Śrī Viṣṇu; *śravaṇe*—en escuchar; *parīkṣit*—el rey Parīkṣit, conocido también como Viṣṇurāta, es decir, aquel que está protegido por el Señor Viṣṇu; *abhavat*—fue; *vaiyāsakiḥ*—Śukadeva Gosvāmī; *kīrtane*—en recitar el Śrīmad-Bhāgavatam; *prahlādaḥ*—Mahārāja Prahlāda; *smaraṇe*—en recordar; *tat-aṅghri*—de los pies de loto del Señor Viṣṇu; *bhajane*—en servir; *lakṣmīḥ*—la diosa de la fortuna; *pṛthuḥ*—Mahārāja Pṛthu; *pūjane*—en adorar a la Deidad del Señor; *akrūraḥ*—Akrūra; *tu*—pero; *abhivandane*—en ofrecer oraciones; *kapi-patiḥ*—Hanumānjī, o Vajrāṅgajī; *dāsye*—en servidumbre al Señor Rāmacandra; *atha*—además; *sakhye*—en amistad; *arjunaḥ*—Arjuna; *sarvasva-ātma-nivedane*—en dedicarse plenamente; *baliḥ*—Mahārāja Bali; *abhūt*—fue; *kṛṣṇa-āptiḥ*—el logro de los pies de loto del Señor Kṛṣṇa; *eṣām*—de todos ellos; *parā*—trascendental.

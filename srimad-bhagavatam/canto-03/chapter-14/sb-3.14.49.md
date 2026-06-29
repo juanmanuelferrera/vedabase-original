@@ -1,11 +1,11 @@
 ### SB 3.14.49
 
-> अलम्पटः शीलधरो गुणाकरो हृष्टः परर्द्ध्या व्यथितो दुःखितेषु ।
+> अलम्पटः शीलधरो गुणाकरो हृष्टः परर्द्ध्या व्यथितो दुःखितेषु ।\
 > अभूतशत्रुर्जगतः शोकहर्ता नैदाघिकं तापमिवोडुराजः ॥४९॥
 
-> alampaṭaḥ śīla-dharo guṇākaro
-> hṛṣṭaḥ pararddhyā vyathito duḥkhiteṣu
-> abhūta-śatrur jagataḥ śoka-hartā
+> alampaṭaḥ śīla-dharo guṇākaro\
+> hṛṣṭaḥ pararddhyā vyathito duḥkhiteṣu\
+> abhūta-śatrur jagataḥ śoka-hartā\
 > naidāghikaṁ tāpam ivoḍurājaḥ
 
 *alampaṭaḥ*—virtuous; *śīla-dharaḥ*—qualified; *guṇa-ākaraḥ*—reservoir of all good qualities; *hṛṣṭaḥ*—jolly; *para-ṛddhyā*—by others' happiness; *vyathitaḥ*—distressed; *duḥkhiteṣu*—in others' unhappiness; *abhūta-śatruḥ*—without enemies; *jagataḥ*—of all the universe; *śoka-hartā*—destroyer of lamentation; *naidāghikam*—due to the summer sun; *tāpam*—distress; *iva*—likened; *uḍu-rājaḥ*—the moon.

@@ -1,9 +1,9 @@
 ### CC Antya 4.168
 
-> আমাকেহ বুঝাইতে তুমি ধর শক্তি ।
+> আমাকেহ বুঝাইতে তুমি ধর শক্তি ।\
 > কত ঠাঞি বুঝাঞাছ ব্যবহার-ভক্তি ॥১৬৮॥
 
-> āmākeha bujhāite tumi dhara śakti
+> āmākeha bujhāite tumi dhara śakti\
 > kata ṭhāñi bujhāñācha vyavahāra-bhakti
 
 *āmākeha*—even Me; *bujhāite*—to convince; *tumi*—you; *dhara*—have; *śakti*—power; *kata ṭhāñi*—in how many places; *bujhāñācha*—you have convinced; *vyavahāra-bhakti*—ordinary behavior as well as devotional service.

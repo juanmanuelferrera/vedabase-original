@@ -1,11 +1,11 @@
 ### SB 2.10.42
 
-> स एवेदं जगद्धाता भगवान्धर्मरूपधृक् ।
+> स एवेदं जगद्धाता भगवान्धर्मरूपधृक् ।\
 > पुष्णाति स्थापयन्विश्वं तिर्यङ्नरसुरादिभिः ॥४२॥
 
-> sa evedaṁ jagad-dhātā
-> bhagavān dharma-rūpa-dhṛk
-> puṣṇāti sthāpayan viśvaṁ
+> sa evedaṁ jagad-dhātā\
+> bhagavān dharma-rūpa-dhṛk\
+> puṣṇāti sthāpayan viśvaṁ\
 > tiryaṅ-nara-surādibhiḥ
 
 *saḥ*—He; *eva*—certainly; *idam*—this; *jagat-dhātā*—the maintainer of the entire universe; *bhagavān*—the Personality of Godhead; *dharma-rūpa-dhṛk*—assuming the form of religious principles; *puṣṇāti*—maintains; *sthāpayan*—after establishing; *viśvam*—the universes; *tiryak*—living entities lower than the human beings; *nara*—the human beings; *sura-ādibhiḥ*—by the demigodly incarnations.

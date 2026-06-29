@@ -1,11 +1,11 @@
 ### SB 2.2.3
 
-> अतः कविर्नामसु यावदर्थः स्यादप्रमत्तो व्यवसायबुद्धिः ।
+> अतः कविर्नामसु यावदर्थः स्यादप्रमत्तो व्यवसायबुद्धिः ।\
 > सिद्धेऽन्यथार्थे न यतेत तत्र परिश्रमं तत्र समीक्षमाणः ॥३॥
 
-> ataḥ kavir nāmasu yāvad arthaḥ
-> syād apramatto vyavasāya-buddhiḥ
-> siddhe 'nyathārthe na yateta tatra
+> ataḥ kavir nāmasu yāvad arthaḥ\
+> syād apramatto vyavasāya-buddhiḥ\
+> siddhe 'nyathārthe na yateta tatra\
 > pariśramaṁ tatra samīkṣamāṇaḥ
 
 *ataḥ*—por esta razón; *kaviḥ*—la persona iluminada; *nāmasu*—de nombres únicamente; *yāvat*—mínima; *arthaḥ*—necesidad; *syāt*—debe ser; *apramattaḥ*—sin estar loco tras ellas; *vyavasāya-buddhiḥ*—con inteligencia fija; *siddhe*—para el éxito; *anyathā*—de lo contrario; *arthe*—por el bien de; *na*—nunca debe; *yateta*—esforzarse por; *tatra*—ahí; *pariśramam*—trabajando mucho; *tatra*—ahí; *samīkṣamāṇaḥ*—aquel que ve en la práctica.

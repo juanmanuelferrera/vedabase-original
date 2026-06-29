@@ -1,9 +1,9 @@
 ### CC Adi 17.158
 
-> তোমার বেদেতে আছে গোবধের বাণী ।
+> তোমার বেদেতে আছে গোবধের বাণী ।\
 > অতএব গোবধ করে বড় বড় মুনি ॥১৫৮॥
 
-> tomāra vedete āche go-vadhera vāṇī
+> tomāra vedete āche go-vadhera vāṇī\
 > ataeva go-vadha kare baḍa baḍa muni
 
 *tomāra vedete*—en Tu literatura Védica; *āche*—hay; *go-vadhera*—para la matanza de vacas; *vāṇī*—mandato; *ataeva*—por lo tanto; *go-vadha*—matanza de vacas; *kare*—ejecutan; *baḍa baḍa*—muy, muy grandes; *muni*—sabios.

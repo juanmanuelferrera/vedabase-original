@@ -1,9 +1,9 @@
 ### CC Antya 17.12
 
-> সিংহদ্বার-দক্ষিণে আছে তৈলঙ্গী-গাভীগণ ।
+> সিংহদ্বার-দক্ষিণে আছে তৈলঙ্গী-গাভীগণ ।\
 > তাঁহা যাই’ পড়িলা প্রভু হঞা অচেতন ॥১২॥
 
-> siṁha-dvāra-dakṣiṇe āche tailaṅgī-gābhī-gaṇa
+> siṁha-dvāra-dakṣiṇe āche tailaṅgī-gābhī-gaṇa\
 > tāhāṅ yāi' paḍilā prabhu hañā acetana
 
 *siṁha-dvāra*—de la puerta llamada Siṁha-dvāra; *dakṣiṇe*—en el lado sur; *āche*—hay; *tailaṅgī-gābhī-gaṇa*—vacas pertenecientes al distrito de Tailaṅga; *tāhāṅ*—allí; *yāi'*—yendo; *paḍilā*—cayó; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *hañā acetana*—quedando inconsciente.

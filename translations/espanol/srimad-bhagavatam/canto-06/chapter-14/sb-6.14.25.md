@@ -1,11 +1,11 @@
 ### SB 6.14.25
 
-> लोकपालैरपि प्रार्थ्याः साम्राज्यैश्वर्यसम्पदः
+> लोकपालैरपि प्रार्थ्याः साम्राज्यैश्वर्यसम्पदः\
 > न नन्दयन्त्यप्रजं मां क्षुत्तृट्काममिवापरे ॥२५॥
 
-> loka-pālair api prārthyāḥ
-> sāmrājyaiśvarya-sampadaḥ
-> na nandayanty aprajaṁ māṁ
+> loka-pālair api prārthyāḥ\
+> sāmrājyaiśvarya-sampadaḥ\
+> na nandayanty aprajaṁ māṁ\
 > kṣut-tṛṭ-kāmam ivāpare
 
 *loka-pālaiḥ*—por grandes semidioses; *api*—incluso; *prārthyāḥ*—deseables; *sāmrājya*—un gran imperio; *aiśvarya*—opulencia material; *sampadaḥ*—posesiones; *na nandayanti*—no dan placer; *aprajam*—por no tener hijos varones; *mām*—a mí; *kṣut*—hambre; *tṛṭ*—sed; *kāmam*—deseando satisfacer; *iva*—como; *apare*—otros objetos de disfrute de los sentidos.

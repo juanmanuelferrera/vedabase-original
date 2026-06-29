@@ -1,13 +1,13 @@
 ### CC Antya 1.132
 
-> অনর্পিতচরীং চিরাৎ করুণয়াবতীর্ণঃ কলৌ ।
-> সমর্পয়িতুমুন্নতোজ্জ্বলরসাং স্বভক্তিশ্রিয়ম্ ।
-> হরিঃ পুরটসুন্দরদ্যুতিকদম্বসন্দীপিতঃ
+> অনর্পিতচরীং চিরাৎ করুণয়াবতীর্ণঃ কলৌ ।\
+> সমর্পয়িতুমুন্নতোজ্জ্বলরসাং স্বভক্তিশ্রিয়ম্ ।\
+> হরিঃ পুরটসুন্দরদ্যুতিকদম্বসন্দীপিতঃ\
 > সদা হৃদয়কন্দরে স্ফুরতু বঃ শচীনন্দনঃ ॥১৩২॥
 
-> anarpita-carīṁ cirāt karuṇayāvatīrṇaḥ kalau
-> samarpayitum unnatojjvala-rasāṁ sva-bhakti-śriyam
-> hariḥ puraṭa-sundara-dyuti-kadamba-sandīpitaḥ
+> anarpita-carīṁ cirāt karuṇayāvatīrṇaḥ kalau\
+> samarpayitum unnatojjvala-rasāṁ sva-bhakti-śriyam\
+> hariḥ puraṭa-sundara-dyuti-kadamba-sandīpitaḥ\
 > sadā hṛdaya-kandare sphuratu vaḥ śacī-nandanaḥ
 
 *anarpita*—not bestowed; *carīm*—having been formerly; *cirāt*—for a long time; *karuṇayā*—by causeless mercy; *avatīrṇaḥ*—descended; *kalau*—in the Age of Kali; *samarpayitum*—to bestow; *unnata*—elevated; *ujjvala-rasām*—the conjugal mellow; *sva-bhakti*—of His own service; *śriyam*—the treasure; *hariḥ*—the Supreme Lord; *puraṭa*—than gold; *sundara*—more beautiful; *dyuti*—of splendor; *kadamba*—with a multitude; *sandīpitaḥ*—illuminated; *sadā*—always; *hṛdaya-kandare*—in the cavity of the heart; *sphuratu*—let Him be manifest; *vaḥ*—your; *śacī-nandanaḥ*—the son of mother Śacī.

@@ -1,13 +1,13 @@
 ### CC Adi 3.111
 
-> ত্বং ভক্তিযোগপরিভাবিত-হৃৎসরোজ
-> আস্সে শ্রুতেক্ষিতপথো ননু নাথ পুংসাম্ ।
-> যদ্যদ্ধিয়া ত উ়রুগায় বিভাবয়ন্তি
+> ত্বং ভক্তিযোগপরিভাবিত-হৃৎসরোজ\
+> আস্সে শ্রুতেক্ষিতপথো ননু নাথ পুংসাম্ ।\
+> যদ্যদ্ধিয়া ত উ়রুগায় বিভাবয়ন্তি\
 > তত্তদ্বপুঃ প্রণয়সে সদনুগ্রহায় ॥১১১॥
 
-> tvaṁ bhakti-yoga-paribhāvita-hṛt-saroja
-> āsse śrutekṣita-patho nanu nātha puṁsām
-> yad yad dhiyā ta urugāya vibhāvayanti
+> tvaṁ bhakti-yoga-paribhāvita-hṛt-saroja\
+> āsse śrutekṣita-patho nanu nātha puṁsām\
+> yad yad dhiyā ta urugāya vibhāvayanti\
 > tat tad vapuḥ praṇayase sad-anugrahāya
 
 *tvam*—You; *bhakti-yoga*—by devotional service; *paribhāvita*—saturated; *hṛt*—of the heart; *saroje*—on the lotus; *āsse*—dwell; *śruta*—heard; *īkṣita*—seen; *pathaḥ*—whose path; *nanu*—certainly; *nātha*—O Lord; *puṁsām*—by the devotees; *yat yat*—whatever; *dhiyā*—by the mind; *te*—they; *uru-gāya*—O Lord, who are glorified in excellent ways; *vibhāvayanti*—contemplate upon; *tat tat*—that; *vapuḥ*—form; *praṇayase*—You manifest; *sat*—to Your devotees; *anugrahāya*—to show favor.

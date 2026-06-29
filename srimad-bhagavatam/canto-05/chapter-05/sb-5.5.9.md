@@ -1,11 +1,11 @@
 ### SB 5.5.9
 
-> यदा मनोहृदयग्रन्थिरस्य कर्मानुबद्धो दृढ आश्लथेत
+> यदा मनोहृदयग्रन्थिरस्य कर्मानुबद्धो दृढ आश्लथेत\
 > तदा जनः सम्परिवर्ततेऽस्माद्मुक्तः परं यात्यतिहाय हेतुम ॥९॥
 
-> yadā mano-hṛdaya-granthir asya
-> karmānubaddho dṛḍha āślatheta
-> tadā janaḥ samparivartate 'smād
+> yadā mano-hṛdaya-granthir asya\
+> karmānubaddho dṛḍha āślatheta\
+> tadā janaḥ samparivartate 'smād\
 > muktaḥ paraṁ yāty atihāya hetum
 
 *yadā*—when; *manaḥ*—the mind; *hṛdaya-granthiḥ*—the knot in the heart; *asya*—of this person; *karma-anubaddhaḥ*—bound by the results of his past deeds; *dṛḍhaḥ*—very strong; *āślatheta*—becomes slackened; *tadā*—at that time; *janaḥ*—the conditioned soul; *samparivartate*—turns away; *asmāt*—from this attachment for sex life; *muktaḥ*—liberated; *param*—to the transcendental world; *yāti*—goes; *atihāya*—giving up; *hetum*—the original cause.

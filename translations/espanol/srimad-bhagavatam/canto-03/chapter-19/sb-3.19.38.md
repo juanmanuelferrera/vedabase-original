@@ -1,11 +1,11 @@
 ### SB 3.19.38
 
-> एतन्महापुण्यमलं पवित्रं धन्यं यशस्यं पदमायुराशिषाम् ।
+> एतन्महापुण्यमलं पवित्रं धन्यं यशस्यं पदमायुराशिषाम् ।\
 > प्राणेन्द्रियाणां युधि शौर्यवर्धनं नारायणोऽन्ते गतिरङ्ग शृण्वताम् ॥३८॥
 
-> etan mahā-puṇyam alaṁ pavitraṁ
-> dhanyaṁ yaśasyaṁ padam āyur-āśiṣām
-> prāṇendriyāṇāṁ yudhi śaurya-vardhanaṁ
+> etan mahā-puṇyam alaṁ pavitraṁ\
+> dhanyaṁ yaśasyaṁ padam āyur-āśiṣām\
+> prāṇendriyāṇāṁ yudhi śaurya-vardhanaṁ\
 > nārāyaṇo 'nte gatir aṅga śṛṇvatām
 
 *etat*—esta narración; *mahā-puṇyam*—que otorga gran mérito; *alam*—muy; *pavitram*—sagrada; *dhanyam*—que otorga riqueza; *yaśasyam*—que trae fama; *padam*—el receptáculo; *āyuḥ*—de la longevidad; *āśiṣām*—de lo que una persona desee; *prāṇa*—de los órganos vitales; *indriyāṇām*—de los órganos de la acción; *yudhi*—en el campo de batalla; *śaurya*—la fuerza; *vardhanam*—aumentando; *nārāyaṇaḥ*—Śrī Nārāyaṇa; *ante*—al final de la vida; *gatiḥ*—refugio; *aṅga*—¡oh, querido Śaunaka!; *śṛṇvatām*—de aquellos que escuchan.

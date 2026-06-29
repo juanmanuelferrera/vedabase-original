@@ -1,11 +1,11 @@
 ### SB 5.5.14
 
-> कर्माशयं हृदयग्रन्थिबन्धमविद्ययासादितमप्रमत्तः
+> कर्माशयं हृदयग्रन्थिबन्धमविद्ययासादितमप्रमत्तः\
 > अनेन योगेन यथोपदेशं सम्यग्व्यपोह्योपरमेत योगात ॥१४॥
 
-> karmāśayaṁ hṛdaya-granthi-bandham
-> avidyayāsāditam apramattaḥ
-> anena yogena yathopadeśaṁ
+> karmāśayaṁ hṛdaya-granthi-bandham\
+> avidyayāsāditam apramattaḥ\
+> anena yogena yathopadeśaṁ\
 > samyag vyapohyoparameta yogāt
 
 *karma-āśayam*—el deseo de realizar actividades fruitivas; *hṛdaya-granthi*—el nudo en el corazón; *bandham*—cautiverio; *avidyayā*—debido a la ignorancia; *āsāditam*—ocasionado; *apramattaḥ*—sin estar cubiertos por la ignorancia o la ilusión, con gran prudencia; *anena*—por esa; *yogena*—práctica de *yoga*; *yathā-upadeśam*—como he aconsejado; *samyak*—completamente; *vyapohya*—liberarse de; *uparameta*—se debe desistir; *yogāt*—de la práctica del *yoga,* el medio que lleva a la liberación.

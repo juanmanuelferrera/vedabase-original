@@ -1,11 +1,11 @@
 ### SB 3.8.33
 
-> स कर्मबीजं रजसोपरक्तः प्रजाः सिसृक्षन्नियदेव दृष्ट्वा ।
+> स कर्मबीजं रजसोपरक्तः प्रजाः सिसृक्षन्नियदेव दृष्ट्वा ।\
 > अस्तौद्विसर्गाभिमुखस्तमीड्यमव्यक्तवर्त्मन्यभिवेशितात्मा ॥३३॥
 
-> sa karma-bījaṁ rajasoparaktaḥ
-> prajāḥ sisṛkṣann iyad eva dṛṣṭvā
-> astaud visargābhimukhas tam īḍyam
+> sa karma-bījaṁ rajasoparaktaḥ\
+> prajāḥ sisṛkṣann iyad eva dṛṣṭvā\
+> astaud visargābhimukhas tam īḍyam\
 > avyakta-vartmany abhiveśitātmā
 
 *saḥ*—él (Brahmā); *karma-bījam*—semilla de actividades mundanas; *rajasā uparaktaḥ*—iniciada por la modalidad de la pasión; *prajāḥ*—entidades vivientes; *sisṛkṣan*—deseando crear progenie; *iyat*—todas las cinco causas de la creación; *eva*—así; *dṛṣṭvā*—mirando; *astaut*—oró pidiendo; *visarga*—creación después de la creación del Señor; *abhimukhaḥ*—hacia; *tam*—ese; *īḍyam*—digno de adoración; *avyakta*—trascendental; *vartmani*—en el sendero de; *abhiveśita*—fija; *ātmā*—mente.

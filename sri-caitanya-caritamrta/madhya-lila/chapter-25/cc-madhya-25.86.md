@@ -1,9 +1,9 @@
 ### CC Madhya 25.86
 
-> এবে তোমার পাদাব্জে উপজিবে ভক্তি ।
+> এবে তোমার পাদাব্জে উপজিবে ভক্তি ।\
 > তথি লাগি’ করি তোমার চরণে প্রণতি ।।” ॥ ৮৬ ॥
 
-> ebe tomāra pādābje upajibe bhakti
+> ebe tomāra pādābje upajibe bhakti\
 > tathi lāgi' kari tomāra caraṇe praṇati"
 
 *ebe*—now; *tomāra*—Your; *pāda-abje*—to the lotus feet; *upajibe*—will grow; *bhakti*—devotional service; *tathi lāgi'*—for that reason; *kari*—I do; *tomāra caraṇe praṇati*—humble obeisances at Your lotus feet.

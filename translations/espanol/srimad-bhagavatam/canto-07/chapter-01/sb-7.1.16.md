@@ -1,12 +1,12 @@
 ### SB 7.1.16
 
-> एतद्वेदितुमिच्छामः सर्व एव वयं मुने
+> एतद्वेदितुमिच्छामः सर्व एव वयं मुने\
 > भगवन्निन्दया वेनो द्विजैस्तमसि पातितः ॥१६॥
 
-> śrī-yudhiṣṭhira uvāca
-> aho aty-adbhutaṁ hy etad
-> durlabhaikāntinām api
-> vāsudeve pare tattve
+> śrī-yudhiṣṭhira uvāca\
+> aho aty-adbhutaṁ hy etad\
+> durlabhaikāntinām api\
+> vāsudeve pare tattve\
 > prāptiś caidyasya vidviṣaḥ
 
 *śrī-yudhiṣṭhiraḥ uvāca*—Mahārāja Yudhiṣṭhira dijo; *aho*—¡oh!; *ati-adbhutam*—muy asombroso; *hi*—ciertamente; *etat*—eso; *durlabha*—difícil de obtener; *ekāntinām*—para los trascendentalistas; *api*—incluso; *vāsudeve*—en Vāsudeva; *pare*—la suprema; *tattve*—Verdad Absoluta; *prāptiḥ*—el logro; *caidyasya*—de Śiśupāla; *vidviṣaḥ*—envidioso.

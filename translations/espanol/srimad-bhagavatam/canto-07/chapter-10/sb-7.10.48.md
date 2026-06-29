@@ -1,11 +1,11 @@
 ### SB 7.10.48
 
-> यूयं नृलोके बत भूरिभागा लोकं पुनाना मुनयोऽभियन्ति
+> यूयं नृलोके बत भूरिभागा लोकं पुनाना मुनयोऽभियन्ति\
 > येषां गृहानावसतीति साक्षाद्गूढं परं ब्रह्म मनुष्यलिङ्गम ॥४८॥
 
-> yūyaṁ nṛ-loke bata bhūri-bhāgā
-> lokaṁ punānā munayo 'bhiyanti
-> yeṣāṁ gṛhān āvasatīti sākṣād
+> yūyaṁ nṛ-loke bata bhūri-bhāgā\
+> lokaṁ punānā munayo 'bhiyanti\
+> yeṣāṁ gṛhān āvasatīti sākṣād\
 > gūḍhaṁ paraṁ brahma manuṣya-liṅgam
 
 *yūyam*—todos ustedes (los Pāṇḍavas); *nṛ-loke*—en este mundo material; *bata*—sin embargo; *bhūri-bhāgāḥ*—extraordinariamente afortunados; *lokam*—todos los planetas; *punānāḥ*—quienes pueden purificar; *munayaḥ*—las grandes personas santas; *abhiyanti*—van casi siempre a visitar; *yeṣām*—de quienes; *gṛhān*—la casa; *āvasati*—reside en; *iti*—así; *sākṣāt*—directamente; *gūḍham*—muy confidencial; *param brahma*—la Suprema Personalidad de Dios; *manuṣya-liṅgam*—con el aspecto de un simple ser humano.

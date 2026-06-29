@@ -1,11 +1,11 @@
 ### SB 3.33.14
 
-> अभीक्ष्णावगाहकपिशान्जटिलान्कुटिलालकान् ।
+> अभीक्ष्णावगाहकपिशान्जटिलान्कुटिलालकान् ।\
 > आत्मानं चोग्रतपसा बिभ्रती चीरिणं कृशम् ॥१४॥
 
-> abhīkṣṇāvagāha-kapiśān
-> jaṭilān kuṭilālakān
-> ātmānaṁ cogra-tapasā
+> abhīkṣṇāvagāha-kapiśān\
+> jaṭilān kuṭilālakān\
+> ātmānaṁ cogra-tapasā\
 > bibhratī cīriṇaṁ kṛśam
 
 *abhīkṣṇa*—again and again; *avagāha*—by bathing; *kapiśān*—gray; *jaṭilān*—matted; *kuṭila*—curled; *alakān*—hair; *ātmānam*—her body; *ca*—and; *ugra-tapasā*—by severe austerities; *bibhratī*—became; *cīriṇam*—clothed in rags; *kṛśam*—thin.

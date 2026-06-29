@@ -1,18 +1,18 @@
 ### SB 9.2.23-24
 
-> नाभागो दिष्टपुत्रोऽन्यः कर्मणा वैश्यतां गतः
-> भलन्दनः सुतस्तस्य वत्सप्रीतिर्भलन्दनात ॥२३॥
-> वत्सप्रीतेः सुतः प्रांशुस्तत्सुतं प्रमतिं विदुः
+> नाभागो दिष्टपुत्रोऽन्यः कर्मणा वैश्यतां गतः\
+> भलन्दनः सुतस्तस्य वत्सप्रीतिर्भलन्दनात ॥२३॥\
+> वत्सप्रीतेः सुतः प्रांशुस्तत्सुतं प्रमतिं विदुः\
 > खनित्रः प्रमतेस्तस्माच्चाक्षुषोऽथ विविंशतिः ॥२४॥
 
-> nābhāgo diṣṭa-putro 'nyaḥ
-> karmaṇā vaiśyatāṁ gataḥ
-> bhalandanaḥ sutas tasya
+> nābhāgo diṣṭa-putro 'nyaḥ\
+> karmaṇā vaiśyatāṁ gataḥ\
+> bhalandanaḥ sutas tasya\
 > vatsaprītir bhalandanāt
 
-> vatsaprīteḥ sutaḥ prāṁśus
-> tat-sutaṁ pramatiṁ viduḥ
-> khanitraḥ pramates tasmāc
+> vatsaprīteḥ sutaḥ prāṁśus\
+> tat-sutaṁ pramatiṁ viduḥ\
+> khanitraḥ pramates tasmāc\
 > cākṣuṣo 'tha viviṁśatiḥ
 
 *nābhāgaḥ*—con el nombre Nābhāga; *diṣṭa-putraḥ*—el hijo de Diṣṭa; *anyaḥ*—otro; *karmaṇā*—por ocupación; *vaiśyatām*—la orden de los *vaiśyas*; *gataḥ*—obtuvo; *bhalandanaḥ*—con el nombre Bhalandana; *sutaḥ*—hijo; *tasya*—de él (de Nābhāga); *vatsaprītiḥ*—con el nombre Vatsaprīti; *bhalandanāt*—de Bhalandana; *vatsaprīteḥ*—de Vatsaprīti; *sutaḥ*—el hijo; *prāṁśuḥ*—fue llamado Prāṁśu; *tat-sutam*—el hijo de él (de Prāṁśu); *pramatim*—fue llamado Pramati; *viduḥ*—debes entender; *khanitraḥ*—fue llamado Khanitra; *pramateḥ*—de Pramati; *tasmāt*—de él (de Khanitra); *cākṣuṣaḥ*—fue llamado Cākṣuṣa; *atha*—así (de Cākṣuṣa); *viviṁśatiḥ*—el hijo llamado Viviṁśati.

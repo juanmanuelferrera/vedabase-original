@@ -1,9 +1,9 @@
 ### CC Madhya 24.163
 
-> উরুক্রমে অহৈতুকী কাহাঁ কোন অর্থ ।
+> উরুক্রমে অহৈতুকী কাহাঁ কোন অর্থ ।\
 > এই তের অর্থ কহিলুঁ পরম সমর্থ ॥১৬৩॥
 
-> urukrame ahaitukī kāhāṅ kona artha
+> urukrame ahaitukī kāhāṅ kona artha\
 > ei tera artha kahiluṅ parama samartha
 
 *urukrame*—hacia la Suprema Personalidad de Dios, que actúa de manera extraordinaria; *ahaitukī*—sin motivos; *kāhāṅ*—dondequiera; *kona*—algún; *artha*—significado; *ei*—de este modo; *tera artha*—trece significados; *kahiluṅ*—he explicado; *parama*—supremamente; *samartha*—completo.

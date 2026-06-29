@@ -1,13 +1,13 @@
 ### CC Antya 20.156
 
-> পরিমলবাসিতভুবনং
-> স্বরসোন্মাদিত-রসজ্ঞ-রোলম্বম্ ।
-> গিরিধরচরণাম্ভোজং
+> পরিমলবাসিতভুবনং\
+> স্বরসোন্মাদিত-রসজ্ঞ-রোলম্বম্ ।\
+> গিরিধরচরণাম্ভোজং\
 > কঃ খলু রসিকঃ সমীহতে হাতুম্ ॥১৫৬॥
 
-> parimala-vāsita-bhuvanaṁ
-> svarasonmādita-rasajña-rolambam
-> giridhara-caraṇāmbhojaṁ
+> parimala-vāsita-bhuvanaṁ\
+> svarasonmādita-rasajña-rolambam\
+> giridhara-caraṇāmbhojaṁ\
 > kaḥ khalu rasikaḥ samīhate hātum
 
 *parimala*—with the scent; *vāsita*—perfumed; *bhuvanam*—the whole world; *sva-rasa-unmādita*—inspired by their own mellows; *rasa-jña*—devotees; *rolambam*—like bumblebees; *giridhara-caraṇa-ambhojam*—the lotus feet of Lord Giridhari; *kaḥ*—who; *khalu*—certainly; *rasikaḥ*—a realized soul; *samīhate hātum*—endeavors to give up.

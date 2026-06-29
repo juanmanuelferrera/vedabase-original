@@ -1,11 +1,11 @@
 ### CC Madhya 22.74
 
-> অর্চায়ামেব হরয়ে পূজাং যঃ শ্রদ্ধয়েহতে ।
+> অর্চায়ামেব হরয়ে পূজাং যঃ শ্রদ্ধয়েহতে ।\
 > ন তদ্ভক্তেষু চান্যেষু স ভক্তঃ প্রাকৃতঃ স্মৃতঃ ॥৭৪॥
 
-> arcāyām eva haraye
-> pūjāṁ yaḥ śraddhayehate
-> na tad-bhakteṣu cānyeṣu
+> arcāyām eva haraye\
+> pūjāṁ yaḥ śraddhayehate\
+> na tad-bhakteṣu cānyeṣu\
 > sa bhaktaḥ prākṛtaḥ smṛtaḥ
 
 *arcāyām*—en la adoración del templo; *eva*—ciertamente; *haraye*—para el placer de la Suprema Personalidad de Dios; *pūjām*—adoración; *yaḥ*—todo aquel que; *śraddhayā*—con fe y amor; *īhate*—ejecuta; *na*—no; *tat-bhakteṣu*—a los devotos del Señor; *ca anyeṣu*—y a otros; *saḥ*—él; *bhaktaḥ*—un devoto; *prākṛtaḥ*—materialista; *smṛtaḥ*—se considera.

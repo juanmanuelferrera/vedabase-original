@@ -1,9 +1,9 @@
 ### CC Madhya 11.185
 
-> মহাপ্রভু আইলা তবে হরিদাস-মিলনে ।
+> মহাপ্রভু আইলা তবে হরিদাস-মিলনে ।\
 > হরিদাস করে প্রেমে নাম-সংকীর্তনে ॥১৮৫॥
 
-> mahāprabhu āilā tabe haridāsa-milane
+> mahāprabhu āilā tabe haridāsa-milane\
 > haridāsa kare preme nāma-saṅkīrtane
 
 *mahāprabhu*—Śrī Caitanya Mahāprabhu; *āilā*—came; *tabe*—thereafter; *haridāsa-milane*—to meet Ṭhākura Haridāsa; *haridāsa*—Ṭhākura Haridāsa; *kare*—does; *preme*—in ecstatic love; *nāma-saṅkīrtane*—chanting of the holy name.

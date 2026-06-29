@@ -1,9 +1,9 @@
 ### CC Madhya 6.80
 
-> শিষ্যগণ কহে, — ‘ঈশ্বর কহ কোন্ প্রমাণে ৷’
+> শিষ্যগণ কহে, — ‘ঈশ্বর কহ কোন্ প্রমাণে ৷’\
 > আচার্য কহে, — ‘বিজ্ঞমত ঈশ্বর-লক্ষণে ।।’ ॥ ৮০ ॥
 
-> śiṣya-gaṇa kahe,--'īśvara kaha kon pramāṇe'
+> śiṣya-gaṇa kahe,--'īśvara kaha kon pramāṇe'\
 > ācārya kahe,--'vijña-mata īśvara-lakṣaṇe'
 
 *śiṣya-gaṇa kahe*—los discípulos de Sārvabhauma Bhaṭṭācārya dijeron; *īśvara kaha*—dices que es la Suprema Personalidad de Dios; *kon pramāṇe*—¿con qué evidencia?; *ācārya kahe*—Gopīnātha Ācārya respondió; *vijña-mata*—las declaraciones de personas autorizadas; *īśvara-lakṣaṇe*—para comprender a la Suprema Personalidad de Dios.

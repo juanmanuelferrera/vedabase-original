@@ -1,9 +1,9 @@
 ### CC Madhya 9.75
 
-> গো-সমাজে শিব দেখি’ আইলা বেদাবন ।
+> গো-সমাজে শিব দেখি’ আইলা বেদাবন ।\
 > মহাদেব দেখি’ তাঁরে করিলা বন্দন ॥৭৫॥
 
-> go-samāje śiva dekhi' āilā vedāvana
+> go-samāje śiva dekhi' āilā vedāvana\
 > mahādeva dekhi' tāṅre karilā vandana
 
 *go-samāje*—at the place named Go-samāja; *śiva dekhi'*—seeing the deity of Lord Śiva; *āilā vedāvana*—He arrived at Vedāvana; *mahādeva dekhi'*—seeing Lord Śiva; *tāṅre*—unto him; *karilā vandana*—offered prayers.

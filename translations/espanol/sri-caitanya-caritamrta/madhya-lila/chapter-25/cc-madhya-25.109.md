@@ -1,11 +1,11 @@
 ### CC Madhya 25.109
 
-> যাবানহং যথা-ভাবো যদ্রূপগুণকর্মকঃ ।
+> যাবানহং যথা-ভাবো যদ্রূপগুণকর্মকঃ ।\
 > তথৈব তত্ত্ববিজ্ঞানমস্তু তে মদনুগ্রহাৎ ॥১০৯॥
 
-> yāvān ahaṁ yathā-bhāvo
-> yad-rūpa-guṇa-karmakaḥ
-> tathaiva tattva-vijñānam
+> yāvān ahaṁ yathā-bhāvo\
+> yad-rūpa-guṇa-karmakaḥ\
+> tathaiva tattva-vijñānam\
 > astu te mad-anugrahāt
 
 *yāvān*—tal como soy en Mi forma eterna; *aham*—Yo; *yathā*—de cualquier manera; *bhāvaḥ*—existencia trascendental; *yat*—cualquiera que sea; *rūpa*—diversas formas y colores; *guṇa*—cualidades; *karmakaḥ*—actividades; *tathā eva*—exactamente así; *tattva-vijñānam*—comprensión factual; *astu*—que haya; *te*—tu; *mat*—Mi; *anugrahāt*—por misericordia sin causa.

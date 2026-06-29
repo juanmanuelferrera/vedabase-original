@@ -1,11 +1,11 @@
 ### SB 4.21.13
 
-> एकदासीन्महासत्र दीक्षा तत्र दिवौकसाम् ।
+> एकदासीन्महासत्र दीक्षा तत्र दिवौकसाम् ।\
 > समाजो ब्रह्मर्षीणां च राजर्षीणां च सत्तम ॥१३॥
 
-> ekadāsīn mahā-satra-
-> dīkṣā tatra divaukasām
-> samājo brahmarṣīṇāṁ ca
+> ekadāsīn mahā-satra-\
+> dīkṣā tatra divaukasām\
+> samājo brahmarṣīṇāṁ ca\
 > rājarṣīṇāṁ ca sattama
 
 *ekadā*—once upon a time; *āsīt*—took a vow; *mahā-satra*—great sacrifice; *dīkṣā*—initiation; *tatra*—in that function; *diva-okasām*—of the demigods; *samājaḥ*—assembly; *brahma-ṛṣīṇām*—of great saintly *brāhmaṇas*; *ca*—also; *rāja-ṛṣīṇām*—of great saintly kings; *ca*—also; *sat-tama*—the greatest of devotees.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.146
 
-> বেদনিষ্ঠ-মধ্যে অর্ধেক বেদ ‘মুখে’ মানে ।
+> বেদনিষ্ঠ-মধ্যে অর্ধেক বেদ ‘মুখে’ মানে ।\
 > বেদনিষিদ্ধ পাপ করে, ধর্ম নাহি গণে ॥১৪৬॥
 
-> veda-niṣṭha-madhye ardheka veda 'mukhe' māne
+> veda-niṣṭha-madhye ardheka veda 'mukhe' māne\
 > veda-niṣiddha pāpa kare, dharma nāhi gaṇe
 
 *veda-niṣṭha-madhye*—among persons who are followers of the Vedas; *ardheka*—almost half; *veda*—Vedic scriptures; *mukhe*—in the mouth; *māne*—accept; *veda-niṣiddha*—forbidden in the Vedas; *pāpa*—sins; *kare*—perform; *dharma*—religious principles; *nāhi*—not; *gaṇe*—count.

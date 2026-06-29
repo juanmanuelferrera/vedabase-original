@@ -1,9 +1,9 @@
 ### CC Adi 6.30
 
-> বৈষ্ণবের গুরু তেঁহো জগতের আর্য ।
+> বৈষ্ণবের গুরু তেঁহো জগতের আর্য ।\
 > দুইনাম-মিলনে হৈল ‘অদ্বৈত-আচার্য’ ॥৩০॥
 
-> vaiṣṇavera guru teṅho jagatera ārya
+> vaiṣṇavera guru teṅho jagatera ārya\
 > dui-nāma-milane haila 'advaita-ācārya'
 
 *vaiṣṇavera*—de los devotos; *guru*—maestro espiritual; *teṅho*—Él; *jagatera ārya*—la personalidad más respetable del mundo; *dui-nāma-milane*—al combinar los dos nombres; *haila*—hubo; *advaita-ācārya*—el nombre Advaita Ācārya.

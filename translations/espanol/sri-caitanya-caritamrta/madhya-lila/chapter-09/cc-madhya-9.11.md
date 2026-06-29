@@ -2,7 +2,7 @@
 
 > বৈষ্ণবের মধ্যে রাম-উপাসক সব ৷ কেহ ‘তত্ত্ববাদী’, কেহ হয় ‘শ্রীবৈষ্ণব’ ৷৷ ১১ ৷৷ সেই সব বৈষ্ণব মহাপ্রভুর দর্শনে ৷ কৃষ্ণ-উপাসক হৈল, লয় কৃষ্ণনামে ৷৷ ১২৷৷ ॥১১॥
 
-> vaiṣṇavera madhye rāma-upāsaka saba
+> vaiṣṇavera madhye rāma-upāsaka saba\
 > keha 'tattvavādī', keha haya 'śrī-vaiṣṇava'
 
 *vaiṣṇavera madhye*—entre los vaiṣṇavas; *rāma-upāsaka saba*—todos adoradores del Señor Śrī Rāmacandra; *keha*—algunos; *tattva-vādī*—seguidores de Madhvācārya; *keha*—algunos; *haya*—son; *śrī-vaiṣṇava*—devotos que siguen la sucesión discipular de Śrī Rāmānujācārya.

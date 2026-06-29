@@ -1,11 +1,11 @@
 ### SB 7.3.25
 
-> उत्थाय प्राञ्जलिः प्रह्व ईक्षमाणो दृशा विभुम
+> उत्थाय प्राञ्जलिः प्रह्व ईक्षमाणो दृशा विभुम\
 > हर्षाश्रुपुलकोद्भेदो गिरा गद्गदयागृणात ॥२५॥
 
-> utthāya prāñjaliḥ prahva
-> īkṣamāṇo dṛśā vibhum
-> harṣāśru-pulakodbhedo
+> utthāya prāñjaliḥ prahva\
+> īkṣamāṇo dṛśā vibhum\
+> harṣāśru-pulakodbhedo\
 > girā gadgadayāgṛṇāt
 
 *utthāya*—getting up; *prāñjaliḥ*—with folded hands; *prahvaḥ*—in a humble manner; *īkṣamāṇaḥ*—seeing; *dṛśā*—with his eyes; *vibhum*—the supreme person within this universe; *harṣa*—of jubilation; *aśru*—with tears; *pulaka*—with hairs standing on the body; *udbhedaḥ*—enlivened; *girā*—by words; *gadgadayā*—faltering; *agṛṇāt*—prayed.

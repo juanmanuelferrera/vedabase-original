@@ -1,9 +1,9 @@
 ### CC Madhya 22.95
 
-> ভক্তবৎসল, কৃতজ্ঞ, সমর্থ, বদান্য ।
+> ভক্তবৎসল, কৃতজ্ঞ, সমর্থ, বদান্য ।\
 > হেন কৃষ্ণ ছাড়ি’ পণ্ডিত নাহি ভজে অন্য ॥৯৫॥
 
-> bhakta-vatsala, kṛtajña, samartha, vadānya
+> bhakta-vatsala, kṛtajña, samartha, vadānya\
 > hena kṛṣṇa chāḍi' paṇḍita nāhi bhaje anya
 
 *bhakta-vatsala*—very kind to the devotees; *kṛta-jña*—grateful; *samartha*—full of all abilities; *vadānya*—magnanimous; *hena*—such; *kṛṣṇa*—Lord Kṛṣṇa; *chāḍi'*—giving up; *paṇḍita*—a learned man; *nāhi*—does not; *bhaje*—worship; *anya*—anyone else.

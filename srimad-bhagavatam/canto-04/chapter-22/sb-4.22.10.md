@@ -1,11 +1,11 @@
 ### SB 4.22.10
 
-> अधना अपि ते धन्याः साधवो गृहमेधिनः ।
+> अधना अपि ते धन्याः साधवो गृहमेधिनः ।\
 > यद्गृहा ह्यर्हवर्याम्बु तृणभूमीश्वरावराः ॥१०॥
 
-> adhanā api te dhanyāḥ
-> sādhavo gṛha-medhinaḥ
-> yad-gṛhā hy arha-varyāmbu-
+> adhanā api te dhanyāḥ\
+> sādhavo gṛha-medhinaḥ\
+> yad-gṛhā hy arha-varyāmbu-\
 > tṛṇa-bhūmīśvarāvarāḥ
 
 *adhanāḥ*—not very rich; *api*—although; *te*—they; *dhanyāḥ*—glorious; *sādhavaḥ*—saintly persons; *gṛha-medhinaḥ*—persons who are attached to family life; *yat-gṛhāḥ*—whose house; *hi*—certainly; *arha-varya*—the most worshipable; *ambu*—water; *tṛṇa*—grass; *bhūmi*—land; *īśvara*—the master; *avarāḥ*—the servants.

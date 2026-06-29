@@ -1,9 +1,9 @@
 ### CC Adi 17.246
 
-> বিজয় আচার্যের ঘরে সে রাত্রে রহিলা ।
+> বিজয় আচার্যের ঘরে সে রাত্রে রহিলা ।\
 > প্রাতঃকালে ভক্ত সবে ঘরে লঞা গেলা ॥২৪৬॥
 
-> vijaya ācāryera ghare se rātre rahilā
+> vijaya ācāryera ghare se rātre rahilā\
 > prātaḥ-kāle bhakta sabe ghare lañā gelā
 
 *vijaya*—de nombre Vijaya; *ācāryera*—del maestro; *ghare*—en la casa; *se*—esa; *rātre*—noche; *rahilā*—permaneció; *prātaḥ-kāle*—por la mañana; *bhakta*—los devotos; *sabe*—todos; *ghare*—a casa; *lañā*—llevándolos; *gelā*—fue.

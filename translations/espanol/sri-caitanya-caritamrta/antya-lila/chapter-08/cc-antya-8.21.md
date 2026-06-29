@@ -1,9 +1,9 @@
 ### CC Antya 8.21
 
-> “তুমি — পূর্ণ-ব্রহ্মানন্দ, করহ স্মরণ ।
+> “তুমি — পূর্ণ-ব্রহ্মানন্দ, করহ স্মরণ ।\
 > ব্রহ্মবিৎ হঞা কেনে করহ রোদন?” ॥২১॥
 
-> «tumi--pūrṇa-brahmānanda, karaha smaraṇa
+> «tumi--pūrṇa-brahmānanda, karaha smaraṇa\
 > brahmavit hañā kene karaha rodana?»
 
 *tumi*—tú; *pūrṇa-brahma-ānanda*—colmado de bienaventuranza trascendental; *karaha smaraṇa*—deberías recordar; *brahma-vit hañā*—siendo plenamente consciente del Brahman; *kene*—por qué; *karaha rodana*—estás llorando.

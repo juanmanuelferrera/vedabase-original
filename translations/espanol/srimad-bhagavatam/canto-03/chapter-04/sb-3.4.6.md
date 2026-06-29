@@ -1,11 +1,11 @@
 ### SB 3.4.6
 
-> अद्राक्षमेकमासीनं विचिन्वन्दयितं पतिम् ।
+> अद्राक्षमेकमासीनं विचिन्वन्दयितं पतिम् ।\
 > श्रीनिकेतं सरस्वत्यां कृतकेतमकेतनम् ॥६॥
 
-> adrākṣam ekam āsīnaṁ
-> vicinvan dayitaṁ patim
-> śrī-niketaṁ sarasvatyāṁ
+> adrākṣam ekam āsīnaṁ\
+> vicinvan dayitaṁ patim\
+> śrī-niketaṁ sarasvatyāṁ\
 > kṛta-ketam aketanam
 
 *adrākṣam*—yo vi; *ekam*—solo; *āsīnam*—sentado; *vicinvan*—pensando profundamente; *dayitam*—patrón; *patim*—amo; *śrī-niketam*—el refugio de la diosa de la fortuna; *sarasvatyām*—en la ribera del Sarasvatī; *kṛta-ketam*—refugiándose; *aketanam*—encontrándose sin un refugio.

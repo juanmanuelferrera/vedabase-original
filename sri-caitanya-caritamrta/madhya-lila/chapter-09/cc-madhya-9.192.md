@@ -1,9 +1,9 @@
 ### CC Madhya 9.192
 
-> স্পর্শিবার কার্য আছুক, না পায় দর্শন ।
+> স্পর্শিবার কার্য আছুক, না পায় দর্শন ।\
 > সীতার আকৃতি-মায়া হরিল রাবণ ॥১৯২॥
 
-> sparśibāra kārya āchuka, nā pāya darśana
+> sparśibāra kārya āchuka, nā pāya darśana\
 > sītāra ākṛti-māyā harila rāvaṇa
 
 *sparśibāra*—to touch; *kārya*—business; *āchuka*—let it be; *nā*—does not; *pāya*—get; *darśana*—sight; *sītāra*—of mother Sītā; *ākṛti-māyā*—the form made of *māyā*; *harila*—took away; *rāvaṇa*—the demon Rāvaṇa.

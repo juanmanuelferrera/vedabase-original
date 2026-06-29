@@ -1,11 +1,11 @@
 ### SB 5.19.27
 
-> सत्यं दिशत्यर्थितमर्थितो नृणां नैवार्थदो यत्पुनरर्थिता यतः
+> सत्यं दिशत्यर्थितमर्थितो नृणां नैवार्थदो यत्पुनरर्थिता यतः\
 > स्वयं विधत्ते भजतामनिच्छतामिच्छापिधानं निजपादपल्लवम ॥२७॥
 
-> satyaṁ diśaty arthitam arthito nṛṇāṁ
-> naivārthado yat punar arthitā yataḥ
-> svayaṁ vidhatte bhajatām anicchatām
+> satyaṁ diśaty arthitam arthito nṛṇāṁ\
+> naivārthado yat punar arthitā yataḥ\
+> svayaṁ vidhatte bhajatām anicchatām\
 > icchāpidhānaṁ nija-pāda-pallavam
 
 *satyam*—certainly; *diśati*—He offers; *arthitam*—the object prayed for; *arthitaḥ*—being prayed to; *nṛṇām*—by the human beings; *na*—not; *eva*—indeed; *artha-daḥ*—the bestower of benedictions; *yat*—which; *punaḥ*—again; *arthitā*—a demand for a benediction; *yataḥ*—from which; *svayam*—personally; *vidhatte*—He gives; *bhajatām*—unto those engaged in His service; *anicchatām*—although not desiring it; *icchā-pidhānam*—which covers all desirable things; *nija-pāda-pallavam*—His own lotus feet.

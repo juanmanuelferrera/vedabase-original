@@ -1,11 +1,11 @@
 ### SB 3.3.19
 
-> भगवानपि विश्वात्मा लोकवेदपथानुगः ।
+> भगवानपि विश्वात्मा लोकवेदपथानुगः ।\
 > कामान्सिषेवे द्वार्वत्यामसक्तः साङ्ख्यमास्थितः ॥१९॥
 
-> bhagavān api viśvātmā
-> loka-veda-pathānugaḥ
-> kāmān siṣeve dvārvatyām
+> bhagavān api viśvātmā\
+> loka-veda-pathānugaḥ\
+> kāmān siṣeve dvārvatyām\
 > asaktaḥ sāṅkhyam āsthitaḥ
 
 *bhagavān*—la Personalidad de Dios; *api*—también; *viśva-ātmā*—la Superalma del universo; *loka*—acostumbrado; *veda*—principios védicos; *patha-anugaḥ*—seguidor del sendero; *kāmān*—las necesidades básicas de la vida; *siṣeve*—disfrutó; *dvārvatyām*—en la ciudad de Dvārakā; *asaktaḥ*—sin estar apegado; *sāṅkhyam*—conocimiento de la filosofía *sāṅkhya*; *āsthitaḥ*—estando situado.

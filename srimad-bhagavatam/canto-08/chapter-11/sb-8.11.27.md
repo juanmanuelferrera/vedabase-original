@@ -1,11 +1,11 @@
 ### SB 8.11.27
 
-> निरीक्ष्य पृतनां देवः परैरभ्यर्दितां रणे
+> निरीक्ष्य पृतनां देवः परैरभ्यर्दितां रणे\
 > उदयच्छद्रिपुं हन्तुं वज्रं वज्रधरो रुषा ॥२७॥
 
-> nirīkṣya pṛtanāṁ devaḥ
-> parair abhyarditāṁ raṇe
-> udayacchad ripuṁ hantuṁ
+> nirīkṣya pṛtanāṁ devaḥ\
+> parair abhyarditāṁ raṇe\
+> udayacchad ripuṁ hantuṁ\
 > vajraṁ vajra-dharo ruṣā
 
 *nirīkṣya*—after observing; *pṛtanām*—his own soldiers; *devaḥ*—the demigod Indra; *paraiḥ*—by the enemies; *abhyarditām*—put into great difficulties or oppressed; *raṇe*—in the battlefield; *udayacchat*—took up; *ripum*—the enemies; *hantum*—to kill; *vajram*—the thunderbolt; *vajra-dharaḥ*—the carrier of the thunderbolt; *ruṣā*—in great anger.

@@ -1,9 +1,9 @@
 ### CC Antya 12.20
 
-> ‘তিন পুত্র মরুক শিবার, এখন না আইল ।
+> ‘তিন পুত্র মরুক শিবার, এখন না আইল ।\
 > ভোখে মরি’ গেনু, মোরে বাসা না দেওয়াইল’ ॥২০॥
 
-> 'tina putra maruka śivāra, ekhana nā āila
+> 'tina putra maruka śivāra, ekhana nā āila\
 > bhokhe mari' genu, more vāsā nā deoyāila'
 
 *tina putra*—three sons; *maruka*—let them die; *śivāra*—of Śivānanda Sena; *ekhana*—here; *nā āila*—he does not come; *bhokhe mari' genu*—I am dying from hunger; *more*—for Me; *vāsā*—residential place; *nā deoyāila*—he did not arrange.

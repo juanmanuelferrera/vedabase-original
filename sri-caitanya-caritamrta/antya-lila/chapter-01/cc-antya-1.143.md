@@ -1,11 +1,11 @@
 ### CC Antya 1.143
 
-> ইয়ং সখি সুদুঃসাধ্যা রাধা-হৃদয়বেদনা ।
+> ইয়ং সখি সুদুঃসাধ্যা রাধা-হৃদয়বেদনা ।\
 > কৃতা যত্র চিকিৎসাপি কুৎসায়াং পর্যবস্যতি ॥১৪৩॥
 
-> iyam sakhi suduḥsādhyā
-> rādhā hṛdaya-vedanā
-> kṛtā yatra cikitsāpi
+> iyam sakhi suduḥsādhyā\
+> rādhā hṛdaya-vedanā\
+> kṛtā yatra cikitsāpi\
 > kutsāyāṁ paryavasyati
 
 *iyam*—this; *sakhi*—my dear friend; *suduḥsādhyā*—incurable; *rādhā*—of Śrīmatī Rādhārāṇī; *hṛdaya-vedanā*—palpitation of the heart; *kṛtā*—done; *yatra*—in which; *cikitsā*—treatment; *api*—although; *kutsāyām*—in defamation; *paryavasyati*—ends in.

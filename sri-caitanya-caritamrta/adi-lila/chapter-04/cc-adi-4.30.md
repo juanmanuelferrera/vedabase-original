@@ -1,9 +1,9 @@
 ### CC Adi 4.30
 
-> আমিহ না জানি তাহা, না জানে গোপীগণ ।
+> আমিহ না জানি তাহা, না জানে গোপীগণ ।\
 > দুঁহার রূপগুণে দুঁহার নিত্য হরে মন ॥৩০॥
 
-> āmiha nā jāni tāhā, nā jāne gopī-gaṇa
+> āmiha nā jāni tāhā, nā jāne gopī-gaṇa\
 > duṅhāra rūpa-guṇe duṅhāra nitya hare mana
 
 *āmiha*—I; *nā jāni*—shall not know; *tāhā*—that; *nā jāne*—will not know; *gopī-gaṇa*—the *gopīs*; *duṅhāra*—of the two; *rūpa-guṇe*—the beauty and qualities; *duṅhāra*—of the two; *nitya*—always; *hare*—carry away; *mana*—the minds.

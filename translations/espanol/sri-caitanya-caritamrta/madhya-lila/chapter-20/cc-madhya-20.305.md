@@ -1,9 +1,9 @@
 ### CC Madhya 20.305
 
-> কোন কল্পে যদি যোগ্য জীব নাহি পায় ৷
+> কোন কল্পে যদি যোগ্য জীব নাহি পায় ৷\
 > আপনে ঈশ্বর তবে অংশে ‘ব্ৰহ্মা’ হয় ॥৩০৫॥
 
-> kona kalpe yadi yogya jīva nāhi pāya
+> kona kalpe yadi yogya jīva nāhi pāya\
 > āpane īśvara tabe aṁśe 'brahmā' haya
 
 *kona kalpe*—en algún período de vida de Brahmā; *yadi*—si; *yogya*—adecuada; *jīva*—entidad viviente; *nāhi*—no; *pāya*—se encuentra disponible; *āpane*—personalmente; *īśvara*—el Señor Supremo; *tabe*—entonces; *aṁśe*—mediante Su expansión plenaria; *brahmā haya*—se convierte en el Señor Brahmā.

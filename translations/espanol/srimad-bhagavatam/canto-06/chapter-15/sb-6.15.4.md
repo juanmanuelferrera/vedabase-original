@@ -1,11 +1,11 @@
 ### SB 6.15.4
 
-> यथा धानासु वै धाना भवन्ति न भवन्ति च
+> यथा धानासु वै धाना भवन्ति न भवन्ति च\
 > एवं भूतानि भूतेषु चोदितानीशमायया ॥४॥
 
-> yathā dhānāsu vai dhānā
-> bhavanti na bhavanti ca
-> evaṁ bhūtāni bhūteṣu
+> yathā dhānāsu vai dhānā\
+> bhavanti na bhavanti ca\
+> evaṁ bhūtāni bhūteṣu\
 > coditānīśa-māyayā
 
 *yathā*—tal y como; *dhānāsu*—mediante semillas de arroz; *vai*—en verdad; *dhānāḥ*—granos; *bhavanti*—se generan; *na*—no; *bhavanti*—se generan; *ca*—también; *evam*—de este modo; *bhūtāni*—las entidades vivientes; *bhūteṣu*—en otras entidades vivientes; *coditāni*—impulsado; *īśa-māyayā*—por la potencia o el poder de la Suprema Personalidad de Dios.

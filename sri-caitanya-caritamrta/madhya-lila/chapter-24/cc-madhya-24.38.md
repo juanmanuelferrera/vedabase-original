@@ -1,9 +1,9 @@
 ### CC Madhya 24.38
 
-> সর্বাকর্ষক, সর্বাহ্লাদক, মহারসায়ন ।
+> সর্বাকর্ষক, সর্বাহ্লাদক, মহারসায়ন ।\
 > আপনার বলে করে সর্ব-বিস্মারণ ॥৩৮॥
 
-> sarvākarṣaka, sarvāhlādaka, mahā-rasāyana
+> sarvākarṣaka, sarvāhlādaka, mahā-rasāyana\
 > āpanāra bale kare sarva-vismāraṇa
 
 *sarva-ākarṣaka*—all-attractive; *sarva-āhlādaka*—all-pleasing; *mahā-rasa-ayana*—the complete abode of transcendental mellow; *āpanāra bale*—by His own strength; *kare*—causes; *sarva-vismāraṇa*—forgetfulness of all other bliss.

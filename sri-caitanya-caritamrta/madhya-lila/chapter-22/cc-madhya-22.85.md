@@ -1,11 +1,11 @@
 ### CC Madhya 22.85
 
-> অত আত্যন্তিকং ক্ষেমং পৃচ্ছামো ভবতোঽনঘাঃ ।
+> অত আত্যন্তিকং ক্ষেমং পৃচ্ছামো ভবতোঽনঘাঃ ।\
 > সংসারেঽস্মিন্ ক্ষণার্ধোঽপি সৎসঙ্গঃ সেবধির্নৃণাম্ ॥৮৫॥
 
-> ata ātyantikaṁ kṣemaṁ
-> pṛcchāmo bhavato 'naghāḥ
-> saṁsāre 'smin kṣaṇārdho 'pi
+> ata ātyantikaṁ kṣemaṁ\
+> pṛcchāmo bhavato 'naghāḥ\
+> saṁsāre 'smin kṣaṇārdho 'pi\
 > sat-saṅgaḥ sevadhir nṛṇām
 
 *ataḥ*—therefore (due to the rareness of seeing pure devotees of the Lord); *ātyantikam*—supreme; *kṣemam*—auspiciousness; *pṛcchāmaḥ*—we are asking; *ātyantikam*—supreme; *kṣemam*—auspiciousness; *pṛcchāmaḥ*—we are asking; *bhavataḥ*—you; *anaghāḥ*—O sinless ones; *saṁsāre*—in the material world; *asmin*—this; *kṣaṇa-ardhaḥ*—lasting half a moment; *api*—even; *sat-saṅgaḥ*—association with devotees; *sevadhiḥ*—a treasure; *nṛṇām*—for human society.

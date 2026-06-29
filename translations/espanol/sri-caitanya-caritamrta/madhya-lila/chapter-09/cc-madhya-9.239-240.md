@@ -1,12 +1,12 @@
 ### CC Madhya 9.239-240
 
-> siddhānta-śāstra nāhi 'brahma-saṁhitā'ra sama
+> siddhānta-śāstra nāhi 'brahma-saṁhitā'ra sama\
 > govinda-mahimā jñānera parama kāraṇa
 
-> siddhānta-śāstra nāhi 'brahma-saṁhitā'ra sama
+> siddhānta-śāstra nāhi 'brahma-saṁhitā'ra sama\
 > govinda-mahimā jñānera parama kāraṇa
 
-> alpākṣare kahe siddhānta apāra
+> alpākṣare kahe siddhānta apāra\
 > sakala-vaiṣṇava-śāstra-madhye ati sāra
 
 *siddhānta-śāstra*—Escritura concluyente; *nāhi*—no hay; *brahma-saṁhitāra sama*—como la Escritura *Brahma-saṁhitā*; *govinda-mahimā*—de las glorias del Señor Govinda; *jñānera*—de conocimiento; *parama*—final; *kāraṇa*—causa; *alpa-akṣare*—brevemente; *kahe*—expresa; *siddhānta*—conclusión; *apāra*—ilimitada; *sakala*—todas; *vaiṣṇava-śāstra*—las Escrituras devocionales; *madhye*—entre; *ati sāra*—muy esencial.

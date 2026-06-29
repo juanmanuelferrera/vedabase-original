@@ -1,9 +1,9 @@
 ### CC Madhya 1.179
 
-> তোমার চিত্তে চৈতন্যেরে কৈছে হয় জ্ঞান ।
+> তোমার চিত্তে চৈতন্যেরে কৈছে হয় জ্ঞান ।\
 > তোমার চিত্তে যেই লয়, সেই ত’ প্রমাণ ॥১৭৯॥
 
-> tomāra citte caitanyere kaiche haya jñāna
+> tomāra citte caitanyere kaiche haya jñāna\
 > tomāra citte yei laya, sei ta' pramāṇa
 
 *tomāra citte*—en vuestra mente; *caitanyere*—del Señor Caitanya Mahāprabhu; *kaiche*—cómo; *haya*—hay; *jñāna*—conocimiento; *tomāra*—vuestra; *citte*—mente; *yei*—lo que; *laya*—tome; *sei ta' pramāṇa*—eso es la evidencia.

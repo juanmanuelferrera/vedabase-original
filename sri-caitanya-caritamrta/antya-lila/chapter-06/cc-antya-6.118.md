@@ -1,9 +1,9 @@
 ### CC Antya 6.118
 
-> ভোজনে বসিতে রঘুনাথে কহে সর্বজন ।
+> ভোজনে বসিতে রঘুনাথে কহে সর্বজন ।\
 > পণ্ডিত কহে, — ‘ইঁহ পাছে করিবে ভোজন ।।’ ॥ ১১৮ ॥
 
-> bhojane vasite raghunāthe kahe sarva-jana
+> bhojane vasite raghunāthe kahe sarva-jana\
 > paṇḍita kahe,—iṅha pāche karibe bhojana'
 
 *bhojane*—to eat; *vasite*—to sit down; *raghunāthe*—unto Raghunātha dāsa; *kahe*—requested; *sarva-jana*—everyone; *paṇḍita kahe*—Rāghava Paṇḍita said; *iṅha*—this; *pāche*—later; *karibe bhojana*—will take food.

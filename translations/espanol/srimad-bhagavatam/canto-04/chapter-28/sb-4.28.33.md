@@ -1,11 +1,11 @@
 ### SB 4.28.33
 
-> विभज्य तनयेभ्यः क्ष्मां राजर्षिर्मलयध्वजः ।
+> विभज्य तनयेभ्यः क्ष्मां राजर्षिर्मलयध्वजः ।\
 > आरिराधयिषुः कृष्णं स जगाम कुलाचलम् ॥३३॥
 
-> vibhajya tanayebhyaḥ kṣmāṁ
-> rājarṣir malayadhvajaḥ
-> ārirādhayiṣuḥ kṛṣṇaṁ
+> vibhajya tanayebhyaḥ kṣmāṁ\
+> rājarṣir malayadhvajaḥ\
+> ārirādhayiṣuḥ kṛṣṇaṁ\
 > sa jagāma kulācalam
 
 *vibhajya*—habiendo dividido; *tanayebhyaḥ*—entre sus hijos; *kṣmām*—el mundo entero; *rāja-ṛṣiḥ*—el gran rey santo; *malayadhvajaḥ*—llamado Malayadhvaja; *ārirādhayiṣuḥ*—deseando adorar; *kṛṣṇam*—al Señor Kṛṣṇa; *saḥ*—él; *jagāma*—fue; *kulācalam*—a Kulācala.

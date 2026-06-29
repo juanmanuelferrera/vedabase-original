@@ -1,9 +1,9 @@
 ### CC Madhya 9.220
 
-> চিয়ড়তলা তীর্থে দেখি’ শ্রীরাম-লক্ষ্মণ ৷
+> চিয়ড়তলা তীর্থে দেখি’ শ্রীরাম-লক্ষ্মণ ৷\
 > তিলকাঞ্চী আসি’ কৈল শিব দরশন ৷৷ ২২০ ৷৷ ॥২২০॥
 
-> ciyaḍatalā tīrthe dekhi' śrī-rāma-lakṣmaṇa
+> ciyaḍatalā tīrthe dekhi' śrī-rāma-lakṣmaṇa\
 > tila-kāñcī āsi' kaila śiva daraśana
 
 *ciyaḍatalā*—llamado Ciyaḍatalā; *tīrthe*—en el lugar sagrado; *dekhi'*—viendo; *śrī-rāma-lakṣmaṇa*—la Deidad del Señor Rāma y Lakṣmaṇa; *tila-kāñcī*—a Tila-kāñcī; *āsi'*—llegando; *kaila*—hizo; *śiva daraśana*—visitar el templo del Señor Śiva.

@@ -1,11 +1,11 @@
 ### CC Adi 3.51
 
-> ইতি দ্বাপর উর্বীশ স্তুবন্তি জগদীশ্বরম্ ।
+> ইতি দ্বাপর উর্বীশ স্তুবন্তি জগদীশ্বরম্ ।\
 > নানাতন্ত্রবিধানেন কলাবপি যথা শৃণু ॥৫১॥
 
-> iti dvāpara urv-īśa
-> stuvanti jagad-īśvaram
-> nānā-tantra-vidhānena
+> iti dvāpara urv-īśa\
+> stuvanti jagad-īśvaram\
+> nānā-tantra-vidhānena\
 > kalāv api yathā śṛṇu
 
 *iti*—thus; *dvāpare*—in the Dvāpara Age; *uru-īśa*—O King; *stuvanti*—they praise; *jagat-īśvaram*—the Lord of the universe; *nānā*—various; *tantra*—of scriptures; *vidhānena*—by the regulations; *kalau*—in the Age of Kali; *api*—also; *yathā*—in which manner; *śṛṇu*—please hear.

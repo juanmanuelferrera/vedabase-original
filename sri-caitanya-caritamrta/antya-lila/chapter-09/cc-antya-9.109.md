@@ -1,9 +1,9 @@
 ### CC Antya 9.109
 
-> ‘রাজ্য-বিষয়’-ফল এই — কৃপার ‘আভাসে’ !
+> ‘রাজ্য-বিষয়’-ফল এই — কৃপার ‘আভাসে’ !\
 > তাহার গণনা কারো মনে নাহি আইসে ! ॥ ১০৯ ॥
 
-> 'rājya-viṣaya'-phala ei—kṛpāra 'ābhāse'!
+> 'rājya-viṣaya'-phala ei—kṛpāra 'ābhāse'!\
 > tāhāra gaṇanā kāro mane nāhi āise!
 
 *rājya-viṣaya*—kingly opulence; *phala*—result; *ei*—this; *kṛpāra ābhāse*—by only a glimpse of such mercy; *tāhāra*—of that; *gaṇanā*—calculation; *kāro*—of anyone; *mane*—within the mind; *nāhi āise*—does not come.

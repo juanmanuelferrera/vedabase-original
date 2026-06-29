@@ -1,9 +1,9 @@
 ### CC Madhya 19.83
 
-> দেশ-পাত্র দেখি’ মহাপ্রভু ধৈর্য হইল ।
+> দেশ-পাত্র দেখি’ মহাপ্রভু ধৈর্য হইল ।\
 > আড়াইলের ঘাটে নৌকা আসি’ উত্তরিল ॥৮৩॥
 
-> deśa-pātra dekhi' mahāprabhu dhairya ha-ila
+> deśa-pātra dekhi' mahāprabhu dhairya ha-ila\
 > āḍāilera ghāṭe naukā āsi' uttarila
 
 *deśa-pātra dekhi'*—seeing the circumstances; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *dhairya ha-ila*—became calm; *āḍāilera ghāṭe*—at the shore of the village Āḍāila; *naukā*—the boat; *āsi'*—coming; *uttarila*—landed.

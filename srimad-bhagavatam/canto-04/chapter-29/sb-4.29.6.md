@@ -1,11 +1,11 @@
 ### SB 4.29.6
 
-> सखाय इन्द्रियगणा ज्ञानं कर्म च यत्कृतम् ।
+> सखाय इन्द्रियगणा ज्ञानं कर्म च यत्कृतम् ।\
 > सख्यस्तद्वृत्तयः प्राणः पञ्चवृत्तिर्यथोरगः ॥६॥
 
-> sakhāya indriya-gaṇā
-> jñānaṁ karma ca yat-kṛtam
-> sakhyas tad-vṛttayaḥ prāṇaḥ
+> sakhāya indriya-gaṇā\
+> jñānaṁ karma ca yat-kṛtam\
+> sakhyas tad-vṛttayaḥ prāṇaḥ\
 > pañca-vṛttir yathoragaḥ
 
 *sakhāyaḥ*—the male friends; *indriya-gaṇāḥ*—the senses; *jñānam*—knowledge; *karma*—activity; *ca*—also; *yat-kṛtam*—done by the senses; *sakhyaḥ*—female friends; *tat*—of the senses; *vṛttayaḥ*—engagements; *prāṇaḥ*—life air; *pañca-vṛttiḥ*—having five processes; *yathā*—like; *uragaḥ*—the serpent.

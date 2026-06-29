@@ -1,11 +1,11 @@
 ### SB 8.2.33
 
-> यः कश्चनेशो बलिनोऽन्तकोरगात्प्रचण्डवेगादभिधावतो भृशम
+> यः कश्चनेशो बलिनोऽन्तकोरगात्प्रचण्डवेगादभिधावतो भृशम\
 > भीतं प्रपन्नं परिपाति यद्भयान्मृत्युः प्रधावत्यरणं तमीमहि ॥३३॥
 
-> yaḥ kaścaneśo balino 'ntakoragāt
-> pracaṇḍa-vegād abhidhāvato bhṛśam
-> bhītaṁ prapannaṁ paripāti yad-bhayān
+> yaḥ kaścaneśo balino 'ntakoragāt\
+> pracaṇḍa-vegād abhidhāvato bhṛśam\
+> bhītaṁ prapannaṁ paripāti yad-bhayān\
 > mṛtyuḥ pradhāvaty araṇaṁ tam īmahi
 
 *yaḥ*—aquel que (la Suprema Personalidad de Dios); *kaścana*—alguien; *īśaḥ*—el controlador supremo; *balinaḥ*—muy poderoso; *antaka-uragāt*—de la gran serpiente del tiempo, que trae consigo la muerte; *pracaṇḍa-vegāt*—de espantosa fuerza; *abhidhāvataḥ*—que persigue; *bhṛśam*—sin cesar (a cada hora, a cada minuto); *bhītam*—aquel que teme a la muerte; *prapannam*—que se ha entregado (a la Suprema Personalidad de Dios); *paripāti*—Él protege; *yat-bhayāt*—por miedo al Señor; *mṛtyuḥ*—la misma muerte; *pradhāvati*—sale huyendo; *araṇam*—el verdadero refugio de todos; *tam*—a Él; *īmahi*—Yo me entrego o me refugio.

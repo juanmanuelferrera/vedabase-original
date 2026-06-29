@@ -1,13 +1,13 @@
 ### Bg 2.29
 
-> आश्चर्यवत्पश्यति कश्चिदेन-
-> माश्चर्यवद्वदति तथैव चान्यः ।
-> आश्चर्यवच्चैनमन्यः शृणोति
+> आश्चर्यवत्पश्यति कश्चिदेन-\
+> माश्चर्यवद्वदति तथैव चान्यः ।\
+> आश्चर्यवच्चैनमन्यः शृणोति\
 > श्रुत्वाप्येनं वेद न चैव कश्चित् ॥२९॥
 
-> āścaryavat paśyati kaścid enam
-> āścaryavad vadati tathaiva cānyaḥ
-> āścaryavac cainam anyaḥ śṛṇoti
+> āścaryavat paśyati kaścid enam\
+> āścaryavad vadati tathaiva cānyaḥ\
+> āścaryavac cainam anyaḥ śṛṇoti\
 > śrutvāpy enaṁ veda na caiva kaścit
 
 *āścaryavat*—asombroso; *paśyati*—ve; *kaścit*—algunos; *enam*—este alma; *āścaryavat*—asombroso; *vadati*—habla; *tathā*—allí; *eva*—ciertamente; *ca*—también; *ānyaḥ*—otros; *āścaryavat*—igualmente asombroso; *ca*—también; *enam*—este alma; *anyaḥ*—otros; *śṛṇoti*—escuchar; *śrutvā*—habiendo oído; *api*—incluso; *enam*—este alma; *veda*—sabe; *na*—nunca; *ca*—y; *eva*—ciertamente; *kaścit*—cualquiera.

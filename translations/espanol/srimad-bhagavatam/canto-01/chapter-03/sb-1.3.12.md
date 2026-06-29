@@ -1,11 +1,11 @@
 ### SB 1.3.12
 
-> ततः सप्तम आकूत्यां रुचेर्यज्ञोऽभ्यजायत ।
+> ततः सप्तम आकूत्यां रुचेर्यज्ञोऽभ्यजायत ।\
 > स यामाद्यैः सुरगणैरपात्स्वायम्भुवान्तरम् ॥१२॥
 
-> tataḥ saptama ākūtyāṁ
-> rucer yajño 'bhyajāyata
-> sa yāmādyaiḥ sura-gaṇair
+> tataḥ saptama ākūtyāṁ\
+> rucer yajño 'bhyajāyata\
+> sa yāmādyaiḥ sura-gaṇair\
 > apāt svāyambhuvāntaram
 
 *tataḥ*—después de eso; *saptame*—la séptima en la línea; *ākūtyām*—en el vientre de Ākūti; *ruceḥ*—por el Prajāpati Ruci; *yajñaḥ*—la encarnación del Señor como Yajña; *abhyajāyata*—apareció; *saḥ*—Él; *yāma-ādyaiḥ*—con Yāma y otros; *sura-gaṇaiḥ*—con semidioses; *apāt*—gobernó; *svāyambhuva-antaram*—el cambio del período de Svāyambhuva Manu.

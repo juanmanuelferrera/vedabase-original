@@ -1,13 +1,13 @@
 ### CC Antya 16.148
 
-> নিজাঙ্কুরে পুলকিত, পুষ্পে হাস্য বিকশিত,
-> মধু-মিষে বহে অশ্রুধার ।
-> বেণুরে মানি’ নিজ-জাতি, আর্যের যেন পুত্র-নাতি,
+> নিজাঙ্কুরে পুলকিত, পুষ্পে হাস্য বিকশিত,\
+> মধু-মিষে বহে অশ্রুধার ।\
+> বেণুরে মানি’ নিজ-জাতি, আর্যের যেন পুত্র-নাতি,\
 > ‘বৈষ্ণব’ হৈলে আনন্দ-বিকার ॥১৪৮॥
 
-> nijāṅkure pulakita, puṣpe hāsya vikasita,
-> madhu-miṣe vahe aśru-dhāra
-> veṇure māni' nija-jāti, āryera yena putra-nāti,
+> nijāṅkure pulakita, puṣpe hāsya vikasita,\
+> madhu-miṣe vahe aśru-dhāra\
+> veṇure māni' nija-jāti, āryera yena putra-nāti,\
 > 'vaiṣṇava' haile ānanda-vikāra
 
 *nija-aṅkure*—by their buds; *pulakita*—jubilant; *puṣpe*—by flowers; *hāsya*—smiling; *vikasita*—exhibited; *madhu-miṣe*—by the oozing of honey; *vahe*—flows; *aśru-dhāra*—showers of tears; *veṇure*—the flute; *māni'*—accepting; *nija-jāti*—as belonging to the same family; *āryera*—of forefathers; *yena*—as if; *putra-nāti*—son or grandson; *vaiṣṇava*—a Vaiṣṇava; *haile*—when becomes; *ānanda-vikāra*—transformation of transcendental bliss.

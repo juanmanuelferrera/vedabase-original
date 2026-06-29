@@ -1,9 +1,9 @@
 ### CC Madhya 12.34
 
-> এক বহির্বাস যদি দেহ’ কৃপা করি’  ।
+> এক বহির্বাস যদি দেহ’ কৃপা করি’  ।\
 > তাহা পাঞা প্রাণ রাখে তোমার আশা ধরি’ ॥৩৪॥
 
-> eka bahirvāsa yadi deha' kṛpā kari'
+> eka bahirvāsa yadi deha' kṛpā kari'\
 > tāhā pāñā prāṇa rākhe tomāra āśā dhari'
 
 *eka bahirvāsa*—una vestidura exterior; *yadi*—si; *deha'*—das; *kṛpā kari'*—por Tu misericordia; *tāhā pāñā*—recibiéndola; *prāṇa rākhe*—viviría; *tomāra āśā dhari'*—manteniendo la esperanza de encontrarte en el futuro.

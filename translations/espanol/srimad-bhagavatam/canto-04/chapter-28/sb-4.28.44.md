@@ -1,11 +1,11 @@
 ### SB 4.28.44
 
-> चीरवासा व्रतक्षामा वेणीभूतशिरोरुहा ।
+> चीरवासा व्रतक्षामा वेणीभूतशिरोरुहा ।\
 > बभावुप पतिं शान्ता शिखा शान्तमिवानलम् ॥४४॥
 
-> cīra-vāsā vrata-kṣāmā
-> veṇī-bhūta-śiroruhā
-> babhāv upa patiṁ śāntā
+> cīra-vāsā vrata-kṣāmā\
+> veṇī-bhūta-śiroruhā\
+> babhāv upa patiṁ śāntā\
 > śikhā śāntam ivānalam
 
 *cīra-vāsā*—llevar ropas viejas; *vrata-kṣāmā*—flaca y delgada por las austeridades; *veṇī-bhūta*—enredado; *śiroruhā*—su cabello; *babhau*—ella brillaba; *upa patim*—cerca de su esposo; *śāntā*—apacible; *śikhā*—llamas; *śāntam*—sin agitarse; *iva*—como; *analam*—fuego.

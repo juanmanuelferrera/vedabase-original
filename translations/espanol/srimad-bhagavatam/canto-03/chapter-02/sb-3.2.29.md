@@ -1,11 +1,11 @@
 ### SB 3.2.29
 
-> स एव गोधनं लक्ष्म्या निकेतं सितगोवृषम् ।
+> स एव गोधनं लक्ष्म्या निकेतं सितगोवृषम् ।\
 > चारयन्ननुगान्गोपान्रणद्वेणुररीरमत् ॥२९॥
 
-> sa eva go-dhanaṁ lakṣmyā
-> niketaṁ sita-go-vṛṣam
-> cārayann anugān gopān
+> sa eva go-dhanaṁ lakṣmyā\
+> niketaṁ sita-go-vṛṣam\
+> cārayann anugān gopān\
 > raṇad-veṇur arīramat
 
 *saḥ*—Él (Śrī Kṛṣṇa); *eva*—ciertamente; *go-dhanam*—el tesoro que constituían las vacas; *lakṣmyāḥ*—por la opulencia; *niketam*—receptáculo; *sita-go-vṛṣam*—hermosas vacas y toros; *cārayan*—cuidando; *anugān*—los seguidores; *gopān*—pastorcillos de vacas; *raṇat*—soplando; *veṇuḥ*—flauta; *arīramat*—vivificaba.

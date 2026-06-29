@@ -1,9 +1,9 @@
 ### CC Madhya 25.240
 
-> মধ্যলীলার করিলুঁ এই দিগ্দরশন ।
+> মধ্যলীলার করিলুঁ এই দিগ্দরশন ।\
 > ছয় বৎসর কৈলা যৈছে গমনাগমন ॥২৪০॥
 
-> madhya-līlāra kariluṅ ei dig-daraśana
+> madhya-līlāra kariluṅ ei dig-daraśana\
 > chaya vatsara kailā yaiche gamanāgamana
 
 *madhya-līlāra*—of this division, known as *Madhya-līlā*; *kariluṅ*—I have done; *ei dik-daraśana*—this summary inspection; *chaya vatsara*—continuously for six years; *kailā*—performed; *yaiche*—just as; *gamana-āgamana*—going and coming back.

@@ -1,9 +1,9 @@
 ### CC Madhya 25.212
 
-> গঙ্গাপথে দুইভাই রাজপথে সনাতন ৷
+> গঙ্গাপথে দুইভাই রাজপথে সনাতন ৷\
 > অতএব তাঁহা সনে না হৈল মিলন ॥২১২॥
 
-> gaṅgā-pathe dui-bhāi rāja-pathe sanātana
+> gaṅgā-pathe dui-bhāi rāja-pathe sanātana\
 > ataeva tāṅhā sane nā haila milana
 
 *gaṅgā-pathe*—por el camino a orillas del Ganges; *dui-bhāi*—los dos hermanos, Rūpa y Anupama; *rāja-pathe*—por el camino público; *sanātana*—Sanātana Gosvāmī; *ataeva*—debido a esto; *tāṅhā sane*—con él; *nā haila milana*—no hubo encuentro.

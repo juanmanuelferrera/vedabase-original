@@ -1,13 +1,13 @@
 ### CC Madhya 22.20
 
-> তপস্বিনো দানপরা যশস্বিনো
-> মনস্বিনো মন্ত্রবিদঃ সুমঙ্গলাঃ ।
-> ক্ষেমং ন বিন্দন্তি বিনা যদর্পণং
+> তপস্বিনো দানপরা যশস্বিনো\
+> মনস্বিনো মন্ত্রবিদঃ সুমঙ্গলাঃ ।\
+> ক্ষেমং ন বিন্দন্তি বিনা যদর্পণং\
 > তস্মৈ সুভদ্রশ্রবসে নমো নমঃ ॥২০॥
 
-> tapasvino dāna-parā yaśasvino
-> manasvino mantra-vidaḥ sumaṅgalāḥ
-> kṣemaṁ na vindanti vinā yad-arpaṇaṁ
+> tapasvino dāna-parā yaśasvino\
+> manasvino mantra-vidaḥ sumaṅgalāḥ\
+> kṣemaṁ na vindanti vinā yad-arpaṇaṁ\
 > tasmai subhadra-śravase namo namaḥ
 
 *tapasvinaḥ*—los que se dedican a severas austeridades y penitencias; *dāna-parāḥ*—los que se dedican a dar sus posesiones como caridad; *yaśasvinaḥ*—los que son famosos en la sociedad; *manasvinaḥ*—expertos en especulación mental o meditación; *mantra-vidaḥ*—expertos en recitar los himnos Védicos; *su-maṅgalāḥ*—muy auspiciosos; *kṣemam*—auspiciosidad real y eterna; *na*—nunca; *vindanti*—obtienen; *vinā*—sin; *yat-arpaṇam*—dedicación a quien (la Suprema Personalidad de Dios); *tasmai*—a esa Suprema Personalidad de Dios; *su-bhadra-śravase*—cuya gloria es muy auspiciosa; *namaḥ namaḥ*—ofrezco mis repetidas y respetuosas reverencias.

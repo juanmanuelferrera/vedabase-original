@@ -1,11 +1,11 @@
 ### SB 4.29.32
 
-> दुःखेष्वेकतरेणापि दैवभूतात्महेतुषु ।
+> दुःखेष्वेकतरेणापि दैवभूतात्महेतुषु ।\
 > जीवस्य न व्यवच्छेदः स्याच्चेत्तत्तत्प्रतिक्रिया ॥३२॥
 
-> duḥkheṣv ekatareṇāpi
-> daiva-bhūtātma-hetuṣu
-> jīvasya na vyavacchedaḥ
+> duḥkheṣv ekatareṇāpi\
+> daiva-bhūtātma-hetuṣu\
+> jīvasya na vyavacchedaḥ\
 > syāc cet tat-tat-pratikriyā
 
 *duḥkheṣu*—in the matter of distresses; *ekatareṇa*—from one kind; *api*—even; *daiva*—providence; *bhūta*—other living entities; *ātma*—the body and mind; *hetuṣu*—on account of; *jīvasya*—of the living entity; *na*—never; *vyavacchedaḥ*—stopping; *syāt*—is possible; *cet*—although; *tat-tat*—of those miseries; *pratikriyā*—counteraction.

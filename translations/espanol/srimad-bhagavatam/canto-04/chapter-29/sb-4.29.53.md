@@ -1,13 +1,13 @@
 ### SB 4.29.53
 
-> क्षुद्रं चरं सुमनसां शरणे मिथित्वा
-> रक्तं षडङ्घ्रिगणसामसु लुब्धकर्णम् ।
-> अग्रे वृकानसुतृपोऽविगणय्य यान्तं
+> क्षुद्रं चरं सुमनसां शरणे मिथित्वा\
+> रक्तं षडङ्घ्रिगणसामसु लुब्धकर्णम् ।\
+> अग्रे वृकानसुतृपोऽविगणय्य यान्तं\
 > पृष्ठे मृगं मृगय लुब्धकबाणभिन्नम् ॥५३॥
 
-> kṣudraṁ caraṁ sumanasāṁ śaraṇe mithitvā
-> raktaṁ ṣaḍaṅghri-gaṇa-sāmasu lubdha-karṇam
-> agre vṛkān asu-tṛpo 'vigaṇayya yāntaṁ
+> kṣudraṁ caraṁ sumanasāṁ śaraṇe mithitvā\
+> raktaṁ ṣaḍaṅghri-gaṇa-sāmasu lubdha-karṇam\
+> agre vṛkān asu-tṛpo 'vigaṇayya yāntaṁ\
 > pṛṣṭhe mṛgaṁ mṛgaya lubdhaka-bāṇa-bhinnam
 
 *kṣudram*—sobre la hierba; *caram*—pastando; *sumanasām*—de un hermoso jardín florido; *śaraṇe*—bajo la protección; *mithitvā*—unido con una mujer; *raktam*—apegado; *ṣaṭ-aṅghri*—de abejorros; *gaṇa*—de grupos; *sāmasu*—al canto; *lubdha-karṇam*—cuyo oído esta atraído; *agre*—en frente; *vṛkān*—tigres; *asu-tṛpaḥ*—que viven a costa de la vida de otros; *avigaṇayya*—sin hacer caso; *yāntam*—moviéndose; *pṛṣṭhe*—detrás; *mṛgam*—del ciervo; *mṛgaya*—busca; *lubdhaka*—de un cazador; *bāṇa*—por las flechas; *bhinnam*—expuesto a ser herido.

@@ -1,13 +1,13 @@
 ### SB 6.1.37
 
-> श्रीशुक उवाच
-> इत्युक्ते यमदूतैस्ते वासुदेवोक्तकारिणः
+> श्रीशुक उवाच\
+> इत्युक्ते यमदूतैस्ते वासुदेवोक्तकारिणः\
 > तान्प्रत्यूचुः प्रहस्येदं मेघनिर्ह्रादया गिरा ॥३७॥
 
-> śrī-śuka uvāca
-> ity ukte yamadūtais te
-> vāsudevokta-kāriṇaḥ
-> tān pratyūcuḥ prahasyedaṁ
+> śrī-śuka uvāca\
+> ity ukte yamadūtais te\
+> vāsudevokta-kāriṇaḥ\
+> tān pratyūcuḥ prahasyedaṁ\
 > megha-nirhrādayā girā
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *iti*—thus; *ukte*—being addressed; *yamadūtaiḥ*—by the messengers of Yamarāja; *te*—they; *vāsudeva-ukta-kāriṇaḥ*—who are always ready to execute the orders of Lord Vāsudeva (being personal associates of Lord Viṣṇu who have obtained the liberation of *sālokya*); *tān*—unto them; *pratyūcuḥ*—replied; *prahasya*—smiling; *idam*—this; *megha-nirhrādayā*—resounding like a rumbling cloud; *girā*—with voices.

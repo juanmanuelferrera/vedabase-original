@@ -1,11 +1,11 @@
 ### SB 5.13.20
 
-> रहूगण त्वमपि ह्यध्वनोऽस्य सन्न्यस्तदण्डः कृतभूतमैत्रः
+> रहूगण त्वमपि ह्यध्वनोऽस्य सन्न्यस्तदण्डः कृतभूतमैत्रः\
 > असज्जितात्मा हरिसेवया शितं ज्ञआनासिमादाय तरातिपारम ॥२०॥
 
-> rahūgaṇa tvam api hy adhvano 'sya
-> sannyasta-daṇḍaḥ kṛta-bhūta-maitraḥ
-> asaj-jitātmā hari-sevayā śitaṁ
+> rahūgaṇa tvam api hy adhvano 'sya\
+> sannyasta-daṇḍaḥ kṛta-bhūta-maitraḥ\
+> asaj-jitātmā hari-sevayā śitaṁ\
 > jñānāsim ādāya tarāti-pāram
 
 *rahūgaṇa*—¡oh, rey Rahūgaṇa!; *tvam*—tú; *api*—también; *hi*—ciertamente; *adhvanaḥ*—de la senda de la existencia material; *asya*—esta; *sannyasta-daṇḍaḥ*—habiendo abandonado el cetro con que el rey castiga a los malhechores; *kṛta-bhūta-maitraḥ*—habiendo llegado a ser amistoso con todos; *asat-jita-ātmā*—cuya mente no siente atracción por el placer material de la vida; *hari-sevayā*—mediante el servicio amoroso al Señor Supremo; *śitam*—afilada; *jñāna-asim*—la espada del conocimiento; *ādāya*—empuñando; *tara*—atraviesa; *ati-pāram*—hasta el fin supremo de la existencia espiritual.

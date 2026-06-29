@@ -1,9 +1,9 @@
 ### CC Madhya 11.173
 
-> প্রভু কহে, — গোপীনাথ, যাহ’ বৈষ্ণব লঞা ।
+> প্রভু কহে, — গোপীনাথ, যাহ’ বৈষ্ণব লঞা ।\
 > যাহাঁ যাহাঁ কহে বাসা, তাহাঁ দেহ’ লঞা ॥১৭৩॥
 
-> prabhu kahe,-gopīnātha, yāha' vaiṣṇava lañā
+> prabhu kahe,-gopīnātha, yāha' vaiṣṇava lañā\
 > yāhāṅ yāhāṅ kahe vāsā, tāhāṅ deha' lañā
 
 *prabhu kahe*—the Lord Caitanya Mahāprabhu said; *gopīnātha*—My dear Gopīnātha; *yāha'*—please go; *vaiṣṇava lañā*—taking all the Vaiṣṇavas; *yāhāṅ yāhāṅ*—wherever; *kahe*—they say; *vāsā*—staying place; *tāhāṅ*—there; *deha'*—give; *lañā*—accepting.

@@ -1,11 +1,11 @@
 ### SB 8.12.33
 
-> यत्र यत्रापतन्मह्यां रेतस्तस्य महात्मनः
+> यत्र यत्रापतन्मह्यां रेतस्तस्य महात्मनः\
 > तानि रूप्यस्य हेम्नश्च क्षेत्राण्यासन्महीपते ॥३३॥
 
-> yatra yatrāpatan mahyāṁ
-> retas tasya mahātmanaḥ
-> tāni rūpyasya hemnaś ca
+> yatra yatrāpatan mahyāṁ\
+> retas tasya mahātmanaḥ\
+> tāni rūpyasya hemnaś ca\
 > kṣetrāṇy āsan mahī-pate
 
 *yatra*—allí donde; *yatra*—y dondequiera que; *apatat*—cayó; *mahyām*—en la superficie del mundo; *retaḥ*—el semen; *tasya*—de él; *mahā-ātmanaḥ*—de la gran personalidad (el Señor Śiva); *tāni*—todos esos lugares; *rūpyasya*—de plata; *hemnaḥ*—de oro; *ca*—y; *kṣetrāni*—minas; *āsan*—aparecieron; *mahī-pate*—¡oh, rey!.

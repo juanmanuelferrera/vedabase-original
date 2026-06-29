@@ -1,15 +1,15 @@
 ### SB 3.23.10
 
-> देवहूतिरुवाच
-> राद्धं बत द्विजवृषैतदमोघयोग
-> मायाधिपे त्वयि विभो तदवैमि भर्तः ।
-> यस्तेऽभ्यधायि समयः सकृदङ्गसङ्गो
+> देवहूतिरुवाच\
+> राद्धं बत द्विजवृषैतदमोघयोग\
+> मायाधिपे त्वयि विभो तदवैमि भर्तः ।\
+> यस्तेऽभ्यधायि समयः सकृदङ्गसङ्गो\
 > भूयाद्गरीयसि गुणः प्रसवः सतीनाम् ॥१०॥
 
-> devahūtir uvāca
-> rāddhaṁ bata dvija-vṛṣaitad amogha-yoga-
-> māyādhipe tvayi vibho tad avaimi bhartaḥ
-> yas te 'bhyadhāyi samayaḥ sakṛd aṅga-saṅgo
+> devahūtir uvāca\
+> rāddhaṁ bata dvija-vṛṣaitad amogha-yoga-\
+> māyādhipe tvayi vibho tad avaimi bhartaḥ\
+> yas te 'bhyadhāyi samayaḥ sakṛd aṅga-saṅgo\
 > bhūyād garīyasi guṇaḥ prasavaḥ satīnām
 
 *devahūtiḥ uvāca*—Devahūti said; *rāddham*—it has been achieved; *bata*—indeed; *dvija-vṛṣa*—O best of the *brāhmaṇas*; *etat*—this; *amogha*—infallible; *yoga-māyā*—of mystic powers; *adhipe*—the master; *tvayi*—in you; *vibho*—O great one; *tat*—that; *avaimi*—I know; *bhartaḥ*—O husband; *yaḥ*—that which; *te*—by you; *abhyadhāyi*—was given; *samayaḥ*—promise; *sakṛt*—once; *aṅga-saṅgaḥ*—bodily union; *bhūyāt*—may be; *garīyasi*—when very glorious; *guṇaḥ*—a great quality; *prasavaḥ*—progeny; *satīnām*—of chaste women.

@@ -1,11 +1,11 @@
 ### SB 6.18.11
 
-> दितेर्द्वावेव दायादौ दैत्यदानववन्दितौ
+> दितेर्द्वावेव दायादौ दैत्यदानववन्दितौ\
 > हिरण्यकशिपुर्नाम हिरण्याक्षश्च कीर्तितौ ॥११॥
 
-> diter dvāv eva dāyādau
-> daitya-dānava-vanditau
-> hiraṇyakaśipur nāma
+> diter dvāv eva dāyādau\
+> daitya-dānava-vanditau\
+> hiraṇyakaśipur nāma\
 > hiraṇyākṣaś ca kīrtitau
 
 *diteḥ*—of Diti; *dvau*—two; *eva*—certainly; *dāyādau*—sons; *daitya-dānava*—by the Daityas and Dānavas; *vanditau*—worshiped; *hiraṇyakaśipuḥ*—Hiraṇyakaśipu; *nāma*—named; *hiraṇyākṣaḥ*—Hiraṇyākṣa; *ca*—also; *kīrtitau*—known.

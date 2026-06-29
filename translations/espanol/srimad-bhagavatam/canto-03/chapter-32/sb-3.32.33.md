@@ -1,11 +1,11 @@
 ### SB 3.32.33
 
-> यथेन्द्रियैः पृथग्द्वारैरर्थो बहुगुणाश्रयः ।
+> यथेन्द्रियैः पृथग्द्वारैरर्थो बहुगुणाश्रयः ।\
 > एको नानेयते तद्वद्भगवान्शास्त्रवर्त्मभिः ॥३३॥
 
-> yathendriyaiḥ pṛthag-dvārair
-> artho bahu-guṇāśrayaḥ
-> eko nāneyate tadvad
+> yathendriyaiḥ pṛthag-dvārair\
+> artho bahu-guṇāśrayaḥ\
+> eko nāneyate tadvad\
 > bhagavān śāstra-vartmabhiḥ
 
 *yathā*—como; *indriyaiḥ*—por los sentidos; *pṛthak-dvāraiḥ*—de maneras distintas; *arthaḥ*—un objeto; *bahu-guṇa*—muchas cualidades; *āśrayaḥ*—dotado de; *ekaḥ*—uno; *nānā*—de maneras distintas; *īyate*—se percibe; *tadvat*—de la misma manera; *bhagavān*—la Suprema Personalidad de Dios; *śāstra-vartmabhiḥ*—según distintos mandamientos de las Escrituras.

@@ -1,9 +1,9 @@
 ### CC Antya 2.137
 
-> এত বলি’ পুরী-গোসাঞি গেলা নিজ-স্থানে ।
+> এত বলি’ পুরী-গোসাঞি গেলা নিজ-স্থানে ।\
 > হরিদাস-স্থানে গেলা সব ভক্তগণে ॥১৩৭॥
 
-> eta bali' purī-gosāñi gelā nija-sthāne
+> eta bali' purī-gosāñi gelā nija-sthāne\
 > haridāsa-sthāne gelā saba bhakta-gaṇe
 
 *eta bali'*—saying this; *purī-gosāñi*—Paramānanda Gosāñi; *gelā*—left; *nija-sthāne*—for his own place; *haridāsa-sthāne*—unto the place of Junior Haridāsa; *gelā*—went; *saba bhakta-gaṇe*—all the other devotees.

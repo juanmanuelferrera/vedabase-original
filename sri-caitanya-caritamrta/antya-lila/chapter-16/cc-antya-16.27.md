@@ -1,13 +1,13 @@
 ### CC Antya 16.27
 
-> অহো বত শ্বপচোঽতো গরীয়ান্
-> যজ্জিহ্বাগ্রে বর্ততে নাম তুভ্যম্ ।
-> তেপুস্তপস্তে জুহুবুঃ সস্নুরার্যা
+> অহো বত শ্বপচোঽতো গরীয়ান্\
+> যজ্জিহ্বাগ্রে বর্ততে নাম তুভ্যম্ ।\
+> তেপুস্তপস্তে জুহুবুঃ সস্নুরার্যা\
 > ব্রহ্মানূচুর্নাম গৃণন্তি যে তে ॥২৭॥
 
-> aho bata śva-paco 'to garīyān
-> yaj-jihvāgre vartate nāma tubhyam
-> tepus tapas te juhuvuḥ sasnur āryā
+> aho bata śva-paco 'to garīyān\
+> yaj-jihvāgre vartate nāma tubhyam\
+> tepus tapas te juhuvuḥ sasnur āryā\
 > brahmānūcur nāma gṛṇanti ye te
 
 *aho bata*—how wonderful it is; *śva-pacaḥ*—a dog-eater; *ataḥ*—than the initiated *brāhmaṇa*; *garīyān*—more glorious; *yat*—of whom; *jihvā-agre*—on the tip of the tongue; *vartate*—remains; *nāma*—the holy name; *tubhyam*—of You, my Lord; *tepuḥ*—have performed; *tapaḥ*—austerity; *te*—they; *juhuvuḥ*—have performed sacrifices; *sasnuḥ*—have bathed in all holy places; *āryāḥ*—actually belonging to the Āryan race; *brahma*—all the Vedas; *anūcuḥ*—have studied; *nāma*—the holy name; *gṛṇanti*—chant; *ye*—who; *te*—they.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.229
 
-> স্বেদ-কম্প-অশ্রু দুঁহে আনন্দে ভাসিলা ।
+> স্বেদ-কম্প-অশ্রু দুঁহে আনন্দে ভাসিলা ।\
 > প্রেমাবিষ্ট হঞা প্রভু কহিতে লাগিলা ॥২২৯॥
 
-> sveda-kampa-aśru duṅhe ānande bhāsilā
+> sveda-kampa-aśru duṅhe ānande bhāsilā\
 > premāviṣṭa hañā prabhu kahite lāgilā
 
 *sveda*—perspiration; *kampa*—trembling; *aśru*—tears; *duṅhe*—both of them; *ānande*—in transcendental bliss; *bhāsilā*—floated; *prema-āviṣṭa*—absorbed in ecstatic love of Godhead; *hañā*—being; *prabhu*—the Lord; *kahite*—to speak; *lāgilā*—began.

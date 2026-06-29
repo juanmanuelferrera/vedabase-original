@@ -1,9 +1,9 @@
 ### CC Adi 2.8
 
-> স্বয়ং ভগবান্ কৃষ্ণ, বিষ্ণু-পরতত্ত্ব ।
+> স্বয়ং ভগবান্ কৃষ্ণ, বিষ্ণু-পরতত্ত্ব ।\
 > পূর্ণজ্ঞান পূর্ণানন্দ পরম মহত্ত্ব ॥৮॥
 
-> svayaṁ bhagavān kṛṣṇa, viṣṇu-paratattva
+> svayaṁ bhagavān kṛṣṇa, viṣṇu-paratattva\
 > pūrṇa-jñāna pūrṇānanda parama mahattva
 
 *svayam*—Él Mismo; *bhagavān*—la Suprema Personalidad de Dios; *kṛṣṇa*—el Señor Kṛṣṇa; *viṣṇu*—del omnipenetrante Viṣṇu; *para-tattva*—la verdad última; *pūrṇa-jñāna*—conocimiento pleno; *pūrṇa-ānanda*—bienaventuranza plena; *parama*—suprema; *mahattva*—grandeza.

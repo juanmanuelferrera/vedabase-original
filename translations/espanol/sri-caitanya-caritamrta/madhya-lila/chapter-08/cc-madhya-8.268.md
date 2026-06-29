@@ -1,9 +1,9 @@
 ### CC Madhya 8.268
 
-> pahile dekhiluṅ tomāra sannyāsi-svarūpa
+> pahile dekhiluṅ tomāra sannyāsi-svarūpa\
 > ebe tomā dekhi muñi śyāma-gopa-rūpa
 
-> pahile dekhiluṅ tomāra sannyāsi-svarūpa
+> pahile dekhiluṅ tomāra sannyāsi-svarūpa\
 > ebe tomā dekhi muñi śyāma-gopa-rūpa
 
 *pahile*—al principio; *dekhiluṅ*—vi; *tomāra*—Tu; *sannyāsi-svarūpa*—forma como persona en la orden de renuncia; *ebe*—ahora; *tomā*—a Ti; *dekhi*—veo; *muñi*—yo; *śyāma-gopa-rūpa*—la forma de Śyāmasundara, el pastorcillo de vacas.

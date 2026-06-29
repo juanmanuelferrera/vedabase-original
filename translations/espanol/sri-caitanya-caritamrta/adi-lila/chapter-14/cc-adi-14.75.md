@@ -1,9 +1,9 @@
 ### CC Adi 14.75
 
-> ইহা শুনি’ মাতাকে কহিল ব্রহ্মজ্ঞান ।
+> ইহা শুনি’ মাতাকে কহিল ব্রহ্মজ্ঞান ।\
 > বিস্মিতা হইয়া মাতা করাইল স্নান ॥৭৫॥
 
-> ihā śuni' mātāke kahila brahma-jñāna
+> ihā śuni' mātāke kahila brahma-jñāna\
 > vismitā ha-iyā mātā karāila snāna
 
 *ihā śuni'*—al oír esto; *mātāke*—a Su madre; *kahila*—explicó; *brahma-jñāna*—conocimiento absoluto; *vismitā*—asombrada; *ha-iyā*—quedándose; *mātā*—la madre; *karāila*—le obligó a tomar; *snāna*—un baño.

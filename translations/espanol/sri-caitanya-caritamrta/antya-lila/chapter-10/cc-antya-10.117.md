@@ -1,9 +1,9 @@
 ### CC Antya 10.117
 
-> এত বলি’ মহাপ্রভু বসিলা ভোজনে ।
+> এত বলি’ মহাপ্রভু বসিলা ভোজনে ।\
 > নাম ধরি’ ধরি’ গোবিন্দ করে নিবেদনে ॥১১৭॥
 
-> eta bali' mahāprabhu vasilā bhojane
+> eta bali' mahāprabhu vasilā bhojane\
 > nāma dhari' dhari' govinda kare nivedane
 
 *eta bali'*—diciendo esto; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *vasilā bhojane*—se sentó a comer; *nāma*—el nombre; *dhari' dhari'*—pronunciando; *govinda*—Govinda; *kare nivedane*—ofrece.

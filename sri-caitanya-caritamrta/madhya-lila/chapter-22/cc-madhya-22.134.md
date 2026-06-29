@@ -1,9 +1,9 @@
 ### CC Madhya 22.134
 
-> ‘এক’ অঙ্গ সাধে, কেহ সাধে ‘বহু’ অঙ্গ ।
+> ‘এক’ অঙ্গ সাধে, কেহ সাধে ‘বহু’ অঙ্গ ।\
 > ‘নিষ্ঠা’ হৈলে উপজয় প্রেমের তরঙ্গ ॥১৩৪॥
 
-> 'eka' aṅga sādhe, keha sādhe 'bahu' aṅga
+> 'eka' aṅga sādhe, keha sādhe 'bahu' aṅga\
 > 'niṣṭhā' haile upajaya premera taraṅga
 
 *eka*—one; *aṅga*—portion; *sādhe*—executes; *keha*—someone; *sādhe*—executes; *bahu*—many; *aṅga*—portions; *niṣṭhā*—firm faith; *haile*—if there is; *upa-jaya*—awaken; *premera*—of love of Godhead; *taraṅga*—the waves.

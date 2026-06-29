@@ -1,9 +1,9 @@
 ### CC Madhya 16.64
 
-> প্ৰতিবর্ষ নীলাচলে তুমি না আসিবা ।
+> প্ৰতিবর্ষ নীলাচলে তুমি না আসিবা ।\
 > গৌড়ে রহি’ মোর ইচ্ছা সফল করিবা ॥৬৪॥
 
-> prati-varṣa nīlācale tumi nā āsibā
+> prati-varṣa nīlācale tumi nā āsibā\
 > gauḍe rahi' mora icchā saphala karibā
 
 *prati-varṣa*—cada año; *nīlācale*—a Jagannātha Purī; *tumi*—Tú; *nā āsibā*—no vengas; *gauḍe rahi'*—permaneciendo en Bengala; *mora icchā*—Mi deseo; *sa-phala karibā*—cumplirás.

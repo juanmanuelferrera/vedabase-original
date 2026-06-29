@@ -1,11 +1,11 @@
 ### SB 7.13.31
 
-> पश्यामि धनिनां क्लेशं लुब्धानामजितात्मनाम
+> पश्यामि धनिनां क्लेशं लुब्धानामजितात्मनाम\
 > भयादलब्धनिद्राणां सर्वतोऽभिविशङ्किनाम ॥३१॥
 
-> ādhyātmikādibhir duḥkhair
-> avimuktasya karhicit
-> martyasya kṛcchropanatair
+> ādhyātmikādibhir duḥkhair\
+> avimuktasya karhicit\
+> martyasya kṛcchropanatair\
 > arthaiḥ kāmaiḥ kriyeta kim
 
 *ādhyātmika-ādibhiḥ*—*adhyātmika, adhidaivika* and *adhibhautika*; *duḥkhaiḥ*—by the threefold miseries of material life; *avimuktasya*—of one who is not freed from such miserable conditions (or one who is subjected to birth, death, old age and disease); *karhicit*—sometimes; *martyasya*—of the living entity subjected to death; *kṛcchra-upanataiḥ*—things obtained because of severe miseries; *arthaiḥ*—even if some benefit is derived; *kāmaiḥ*—which can fulfill one's material desires; *kriyeta*—what do they do; *kim*—and what is the value of such happiness.

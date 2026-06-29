@@ -1,11 +1,11 @@
 ### SB 4.8.67
 
-> अहो मे बत दौरात्म्यं स्त्रीजितस्योपधारय ।
+> अहो मे बत दौरात्म्यं स्त्रीजितस्योपधारय ।\
 > योऽङ्कं प्रेम्णारुरुक्षन्तं नाभ्यनन्दमसत्तमः ॥६७॥
 
-> aho me bata daurātmyaṁ
-> strī-jitasyopadhāraya
-> yo 'ṅkaṁ premṇārurukṣantaṁ
+> aho me bata daurātmyaṁ\
+> strī-jitasyopadhāraya\
+> yo 'ṅkaṁ premṇārurukṣantaṁ\
 > nābhyanandam asattamaḥ
 
 *aho*—alas; *me*—my; *bata*—certainly; *daurātmyam*—cruelty; *strī-jitasya*—conquered by a woman; *upadhāraya*—just think of me in this regard; *yaḥ*—who; *aṅkam*—lap; *premṇā*—out of love; *ārurukṣantam*—trying to rise onto it; *na*—not; *abhyanandam*—received properly; *asat-tamaḥ*—the most cruel.

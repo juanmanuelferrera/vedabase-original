@@ -1,13 +1,13 @@
 ### CC Madhya 25.36
 
-> নাতঃ পরং পরম যদ্ভবতঃ স্বরূপ-
-> মানন্দমাত্রমবিকল্পমবিদ্ধবর্চঃ ।
-> পশ্যামি বিশ্বসৃজমেকমবিশ্বমাত্মন্
+> নাতঃ পরং পরম যদ্ভবতঃ স্বরূপ-\
+> মানন্দমাত্রমবিকল্পমবিদ্ধবর্চঃ ।\
+> পশ্যামি বিশ্বসৃজমেকমবিশ্বমাত্মন্\
 > ভূতেন্দ্রিয়াত্মকমদস্ত উপাশ্রিতোঽস্মি ॥৩৬॥
 
-> nātaḥ paraṁ parama yad bhavataḥ svarūpam
-> ānanda-mātram avikalpam aviddha-varcaḥ
-> paśyāmi viśva-sṛjam ekam aviśvam ātman
+> nātaḥ paraṁ parama yad bhavataḥ svarūpam\
+> ānanda-mātram avikalpam aviddha-varcaḥ\
+> paśyāmi viśva-sṛjam ekam aviśvam ātman\
 > bhūtendriyātmakam adas ta upāśrito 'smi
 
 *na*—not; *ataḥ*—than this; *param*—more supreme; *parama*—O supreme one; *yat*—which; *bhavataḥ*—of Your Lordship; *sva-rūpam*—the personal form; *ānanda*—of transcendental bliss; *mātram*—only; *avikalpam*—where there is no creation; *aviddha*—without contamination; *varcaḥ*—having an effulgence; *paśyāmi*—I see; *viśva-sṛjam ekam*—who alone has created this universe; *aviśvam*—not belonging to the destructible material world; *ātman*—O Supreme Soul; *bhūta-indriya-ātmakam*—the original cause of the senses and the living beings; *adaḥ*—transcendental; *te*—unto You; *upāśritaḥ asmi*—I take full shelter.

@@ -1,14 +1,14 @@
 ### CC Antya 10.15-16
 
-> আম্র-কাশন্দি, আদা-কাশন্দি ঝাল-কাশন্দি নাম ।
-> নেম্বু-আদা আম্রকোলি বিবিধ বিধান ॥১৫॥
-> আমিস্, আমখণ্ড, তৈলাম্র, আমসত্তা ।
+> আম্র-কাশন্দি, আদা-কাশন্দি ঝাল-কাশন্দি নাম ।\
+> নেম্বু-আদা আম্রকোলি বিবিধ বিধান ॥১৫॥\
+> আমিস্, আমখণ্ড, তৈলাম্র, আমসত্তা ।\
 > যত্ন করি’ গুণ্ডা করি’ পুরাণ সুকুতা ॥১৬॥
 
-> āmra-kāśandi, ādā-kāśandi jhāla-kāśandi nāma
+> āmra-kāśandi, ādā-kāśandi jhāla-kāśandi nāma\
 > nembu-ādā āmra-koli vividha vidhāna
 
-> āmsi, āma-khaṇḍa, tailāmra, āma-sattā
+> āmsi, āma-khaṇḍa, tailāmra, āma-sattā\
 > yatna kari' guṇḍā kari' purāṇa sukutā
 
 *āmra-kāśandi*—*āmra-kāśandi*; *ādā-kāśandi*—*ādā-kāśandi*; *jhāla-kāśandi*—*jhāla-kāśandi*; *nāma*—named; *nembu-ādā*—a preparation made with lime and ginger; *āmra-koli*—*āmra-koli*; *vividha vidhāna*—various preparations; *āmsi*—āmsi; *āma-khaṇḍa*—*āma-khaṇḍa*; *tailāmra*—mango within mustard oil; *āma-sattā*—*āma-sattā*; *yatna kari'*—with great attention; *guṇḍā kari'*—making into a powder; *purāṇa sukutā*—dried bitter vegetables such as bitter melon.

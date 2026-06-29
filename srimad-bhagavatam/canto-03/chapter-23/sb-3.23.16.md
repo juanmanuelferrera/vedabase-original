@@ -1,11 +1,11 @@
 ### SB 3.23.16
 
-> उपर्युपरि विन्यस्त निलयेषु पृथक्पृथक् ।
+> उपर्युपरि विन्यस्त निलयेषु पृथक्पृथक् ।\
 > क्षिप्तैः कशिपुभिः कान्तं पर्यङ्कव्यजनासनैः ॥१६॥
 
-> upary upari vinyasta-
-> nilayeṣu pṛthak pṛthak
-> kṣiptaiḥ kaśipubhiḥ kāntaṁ
+> upary upari vinyasta-\
+> nilayeṣu pṛthak pṛthak\
+> kṣiptaiḥ kaśipubhiḥ kāntaṁ\
 > paryaṅka-vyajanāsanaiḥ
 
 *upari upari*—one upon another; *vinyasta*—placed; *nilayeṣu*—in stories; *pṛthak pṛthak*—separately; *kṣiptaiḥ*—arranged; *kaśipubhiḥ*—with beds; *kāntam*—charming; *paryaṅka*—couches; *vyajana*—fans; *āsanaiḥ*—with seats.

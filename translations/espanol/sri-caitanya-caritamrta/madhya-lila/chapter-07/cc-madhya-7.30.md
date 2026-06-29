@@ -1,9 +1,9 @@
 ### CC Madhya 7.30
 
-> চৈতন্যের ভক্ত-বাত্সল্য — অকথ্য-কথন ৷
+> চৈতন্যের ভক্ত-বাত্সল্য — অকথ্য-কথন ৷\
 > আপনে বৈরাগ্য-দুঃখ করেন সহন ৷৷ ৩০ ৷৷ ॥৩০॥
 
-> caitanyera bhakta-vātsalya--akathya-kathana
+> caitanyera bhakta-vātsalya--akathya-kathana\
 > āpane vairāgya-duḥkha karena sahana
 
 *caitanyera*—del Señor Śrī Caitanya Mahāprabhu; *bhakta-vātsalya*—el amor por Sus devotos; *akathya-kathana*—indescriptible con palabras; *āpane*—personalmente; *vairāgya*—de la orden de renuncia; *duḥkha*—la infelicidad; *karena*—hace; *sahana*—tolerancia.

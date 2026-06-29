@@ -1,11 +1,11 @@
 ### SB 6.4.30
 
-> यस्मिन्यतो येन च यस्य यस्मै यद्यो यथा कुरुते कार्यते च
+> यस्मिन्यतो येन च यस्य यस्मै यद्यो यथा कुरुते कार्यते च\
 > परावरेषां परमं प्राक्प्रसिद्धं तद्ब्रह्म तद्धेतुरनन्यदेकम ॥३०॥
 
-> yasmin yato yena ca yasya yasmai
-> yad yo yathā kurute kāryate ca
-> parāvareṣāṁ paramaṁ prāk prasiddhaṁ
+> yasmin yato yena ca yasya yasmai\
+> yad yo yathā kurute kāryate ca\
+> parāvareṣāṁ paramaṁ prāk prasiddhaṁ\
 > tad brahma tad dhetur ananyad ekam
 
 *yasmin*—en quien (la Suprema Personalidad de Dios o el lugar de reposo supremo); *yataḥ*—de quien (todo emana); *yena*—por quien (todo se lleva a cabo); *ca*—también; *yasya*—a quien todo pertenece; *yasmai*—a quien (se ofrece todo); *yat*—que; *yaḥ*—quien; *yathā*—como; *kurute*—realiza; *kāryate*—se lleva a cabo; *ca*—también; *para-avareṣām*—de ambas, en las existencias material y espiritual; *paramam*—el supremo; *prāk*—el origen; *prasiddham*—bien conocido de todos; *tat*—ese; *brahma*—el Brahman Supremo; *tat hetuḥ*—la causa de todas las causas; *ananyat*—sin otra causa; *ekam*—uno sin par.

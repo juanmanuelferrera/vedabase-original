@@ -1,9 +1,9 @@
 ### CC Adi 17.113
 
-> সেইরূপে এইরূপে দেখি একাকার ।
+> সেইরূপে এইরূপে দেখি একাকার ।\
 > কভু ভেদ দেখি, এই মায়ায় তোমার ॥১১৩॥
 
-> sei-rūpe ei-rūpe dekhi ekākāra
+> sei-rūpe ei-rūpe dekhi ekākāra\
 > kabhu bheda dekhi, ei māyāya tomāra
 
 *sei-rūpe*—in that form; *ei-rūpe*—in this form; *dekhi*—I see; *eka-ākāra*—one form; *kabhu*—sometimes; *bheda*—difference; *dekhi*—I see; *ei*—this; *māyāya tomāra*—Your *māyā.*

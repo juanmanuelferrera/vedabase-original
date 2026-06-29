@@ -1,11 +1,11 @@
 ### SB 3.26.59
 
-> नाड्योऽस्य निरभिद्यन्त ताभ्यो लोहितमाभृतम् ।
+> नाड्योऽस्य निरभिद्यन्त ताभ्यो लोहितमाभृतम् ।\
 > नद्यस्ततः समभवन्नुदरं निरभिद्यत ॥५९॥
 
-> nāḍyo 'sya nirabhidyanta
-> tābhyo lohitam ābhṛtam
-> nadyas tataḥ samabhavann
+> nāḍyo 'sya nirabhidyanta\
+> tābhyo lohitam ābhṛtam\
+> nadyas tataḥ samabhavann\
 > udaraṁ nirabhidyata
 
 *nāḍyaḥ*—las venas; *asya*—de la forma universal; *nirabhidyanta*—se manifestaron; *tābhyaḥ*—de ellas; *lohitam*—sangre; *ābhṛtam*—se produjo; *nadyaḥ*—los ríos; *tataḥ*—de eso; *samabhavan*—aparecieron; *udaram*—el estómago; *nirabhidyata*—se manifestó.

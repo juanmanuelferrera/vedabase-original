@@ -1,11 +1,11 @@
 ### SB 3.33.26
 
-> ब्रह्मण्यवस्थितमतिर्भगवत्यात्मसंश्रये ।
+> ब्रह्मण्यवस्थितमतिर्भगवत्यात्मसंश्रये ।\
 > निवृत्तजीवापत्तित्वात्क्षीणक्लेशाप्तनिर्वृतिः ॥२६॥
 
-> brahmaṇy avasthita-matir
-> bhagavaty ātma-saṁśraye
-> nivṛtta-jīvāpattitvāt
+> brahmaṇy avasthita-matir\
+> bhagavaty ātma-saṁśraye\
+> nivṛtta-jīvāpattitvāt\
 > kṣīṇa-kleśāpta-nirvṛtiḥ
 
 *brahmaṇi*—in Brahman; *avasthita*—situated; *matiḥ*—her mind; *bhagavati*—in the Supreme Personality of Godhead; *ātma-saṁśraye*—residing in all living entities; *nivṛtta*—freed; *jīva*—of the *jīva* soul; *āpattitvāt*—from the unfortunate condition; *kṣīṇa*—disappeared; *kleśa*—material pangs; *āpta*—attained; *nirvṛtiḥ*—transcendental bliss.

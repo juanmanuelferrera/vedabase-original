@@ -1,9 +1,9 @@
 ### CC Adi 10.86
 
-> মালীর ইচ্ছায় শাখা বহুত বাড়িল ।
+> মালীর ইচ্ছায় শাখা বহুত বাড়িল ।\
 > বাড়িয়া পশ্চিম দেশ সব আচ্ছাদিল ॥৮৬॥
 
-> mālīra icchāya śākhā bahuta bāḍila
+> mālīra icchāya śākhā bahuta bāḍila\
 > bāḍiyā paścima deśa saba ācchādila
 
 *mālīra icchāya*—por el deseo del jardinero; *śākhā*—ramas; *bahuta*—muchas; *bāḍila*—se expandieron; *bāḍiyā*—expandiéndose así; *paścima*—occidentales; *deśa*—países; *saba*—todos; *ācchādila*—cubrieron.

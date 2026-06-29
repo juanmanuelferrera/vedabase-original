@@ -1,9 +1,9 @@
 ### CC Adi 5.5
 
-> একই স্বরূপ দোঁহে, ভিন্নমাত্র কায় ।
+> একই স্বরূপ দোঁহে, ভিন্নমাত্র কায় ।\
 > আদ্য কায়ব্যূহ, কৃষ্ণলীলার সহায় ॥৫॥
 
-> eka-i svarūpa doṅhe, bhinna-mātra kāya
+> eka-i svarūpa doṅhe, bhinna-mātra kāya\
 > ādya kāya-vyūha, kṛṣṇa-līlāra sahāya
 
 *eka-i*—one; *svarūpa*—identity; *doṅhe*—both of Them; *bhinna-mātra kāya*—only two different bodies; *ādya*—original; *kāya-vyūha*—quadruple expansions; *kṛṣṇa-līlāra*—in the pastimes of Lord Kṛṣṇa; *sahāya*—assistance.

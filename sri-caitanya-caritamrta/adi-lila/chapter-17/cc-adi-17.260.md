@@ -1,9 +1,9 @@
 ### CC Adi 17.260
 
-> যত অধ্যাপক, আর তাঁর শিষ্যগণ ।
+> যত অধ্যাপক, আর তাঁর শিষ্যগণ ।\
 > ধর্মী, কর্মী, তপোনিষ্ঠ, নিন্দক, দুর্জন ॥২৬০॥
 
-> yata adhyāpaka, āra tāṅra śiṣya-gaṇa
+> yata adhyāpaka, āra tāṅra śiṣya-gaṇa\
 > dharmī, karmī, tapo-niṣṭha, nindaka, durjana
 
 *yata*—all; *adhyāpaka*—professors; *āra*—and; *tāṅra*—their; *śiṣya-gaṇa*—students; *dharmī*—followers of religious ritualistic ceremonies; *karmī*—performers of fruitive activities; *tapaḥ-niṣṭha*—performers of austerities; *nindaka*—blasphemers; *durjana*—rogues.

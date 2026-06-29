@@ -1,9 +1,9 @@
 ### CC Madhya 10.42
 
-> কৃষ্ণদাস-নাম এই সুবর্ণ-বেত্রধারী ৷
+> কৃষ্ণদাস-নাম এই সুবর্ণ-বেত্রধারী ৷\
 > শিখি মাহাতি-নাম এই লিখনাধিকারী ৷৷ ৪২ ৷৷ ॥৪২॥
 
-> kṛṣṇadāsa-nāma ei suvarṇa-vetra-dhārī
+> kṛṣṇadāsa-nāma ei suvarṇa-vetra-dhārī\
 > śikhi māhāti-nāma ei likhanādhikārī
 
 *kṛṣṇadāsa*—Kṛṣṇadāsa; *nāma*—de nombre; *ei*—este; *suvarṇa*—dorada; *vetra-dhārī*—portador de la vara; *śikhi māhāti*—Śikhi Māhiti; *nāma*—de nombre; *ei*—este; *likhana-adhikārī*—encargado de la escritura.

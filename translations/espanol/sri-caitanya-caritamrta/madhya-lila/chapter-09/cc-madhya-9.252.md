@@ -1,9 +1,9 @@
 ### CC Madhya 9.252
 
-> ‘বৈষ্ণবতা’ সবার অন্তরে গর্ব জানি’ ৷
+> ‘বৈষ্ণবতা’ সবার অন্তরে গর্ব জানি’ ৷\
 > ঈষত্ হাসিয়া কিছু কহে গৌরমণি ৷৷ ২৫২ ৷৷ ॥২৫২॥
 
-> 'vaiṣṇavatā' sabāra antare garva jāni'
+> 'vaiṣṇavatā' sabāra antare garva jāni'\
 > īṣat hāsiyā kichu kahe gauramaṇi
 
 *vaiṣṇavatā*—vaiṣṇavismo; *sabāra*—de todos ellos; *antare*—dentro de la mente; *garva*—orgullo; *jāni'*—sabiendo; *īṣat*—levemente; *hāsiyā*—sonriendo; *kichu*—algo; *kahe*—dice; *gaura-maṇi*—el Señor Śrī Caitanya Mahāprabhu.

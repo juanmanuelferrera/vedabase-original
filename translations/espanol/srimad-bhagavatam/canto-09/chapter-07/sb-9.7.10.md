@@ -1,11 +1,11 @@
 ### SB 9.7.10
 
-> जातः सुतो ह्यनेनाङ्ग मां यजस्वेति सोऽब्रवीत
+> जातः सुतो ह्यनेनाङ्ग मां यजस्वेति सोऽब्रवीत\
 > यदा पशुर्निर्दशः स्यादथ मेध्यो भवेदिति ॥१०॥
 
-> jātaḥ suto hy anenāṅga
-> māṁ yajasveti so 'bravīt
-> yadā paśur nirdaśaḥ syād
+> jātaḥ suto hy anenāṅga\
+> māṁ yajasveti so 'bravīt\
+> yadā paśur nirdaśaḥ syād\
 > atha medhyo bhaved iti
 
 *jātaḥ*—ha nacido; *sutaḥ*—un hijo; *hi*—en verdad; *anena*—con este hijo; *aṅga*—¡oh, Hariścandra!; *mām*—a mí; *yajasva*—ofrece sacrificio; *iti*—así; *saḥ*—él, Varuṇa; *abravīt*—dijo; *yadā*—cuando; *paśuḥ*—un animal; *nirdaśaḥ*—ha pasado diez días; *syāt*—debe volverse; *atha*—entonces; *medhyaḥ*—adecuado para ser ofrecido en sacrificio; *bhavet*—se vuelve; *iti*—así (Hariścandra dijo).

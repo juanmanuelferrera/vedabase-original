@@ -1,17 +1,17 @@
 ### Bg 1.21-22
 
-> अर्जुन उवाच ।
-> सेनयोरुभयोर्मध्ये रथं स्थापय मेऽच्युत ॥२१॥
-> यावदेतान्निरीक्षेऽहं योद्धुकामानवस्थितान् ।
+> अर्जुन उवाच ।\
+> सेनयोरुभयोर्मध्ये रथं स्थापय मेऽच्युत ॥२१॥\
+> यावदेतान्निरीक्षेऽहं योद्धुकामानवस्थितान् ।\
 > कैर्मया सह योद्धव्यमस्मिन् रणसमुद्यमे ॥२२॥
 
-> arjuna uvāca
-> senayor ubhayor madhye
+> arjuna uvāca\
+> senayor ubhayor madhye\
 > rathaṁ sthāpaya me ’cyuta
 
-> yāvad etān nirīkṣe ’haṁ
-> yoddhu-kāmān avasthitān
-> kair mayā saha yoddhavyam
+> yāvad etān nirīkṣe ’haṁ\
+> yoddhu-kāmān avasthitān\
+> kair mayā saha yoddhavyam\
 > asmin raṇa-samudyame
 
 *arjunaḥ*—Arjuna; *uvāca*—said; *senayoḥ*—of the armies; *ubhayoḥ*—of both the parties; *madhye*—in between them; *ratham*—the chariot; *sthāpaya*—please keep; *me*—my; *acyuta*—O infallible one; *yāvat*—as long as; *etān*—all these; *nirīkṣe*—may look; *aham*—I; *yoddhu-kāmān*—desiring to fight; *avasthitān*—arrayed on the battlefield; *kaiḥ*—with whom; *mayā*—by me; *saha*—with; *yoddhavyam*—to fight with; *asmin*—in this; *raṇa*—strife; *samudyame*—in the attempt.

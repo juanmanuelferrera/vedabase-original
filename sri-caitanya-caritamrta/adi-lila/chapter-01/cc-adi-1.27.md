@@ -1,9 +1,9 @@
 ### CC Adi 1.27
 
-> এই ছয় শ্লোকে কহি চৈতন্যের তত্ত্ব ।
+> এই ছয় শ্লোকে কহি চৈতন্যের তত্ত্ব ।\
 > আর পঞ্চ শ্লোকে নিত্যানন্দের মহত্ত্ব ॥২৭॥
 
-> ei chaya śloke kahi caitanyera tattva
+> ei chaya śloke kahi caitanyera tattva\
 > āra pañca śloke nityānandera mahattva
 
 *ei*—these; *chaya*—six; *śloke*—in verses; *kahi*—I describe; *caitanyera*—of Lord Caitanya Mahāprabhu; *tattva*—truth; *āra*—further; *pañca śloke*—in five verses; *nityānandera*—of Lord Nityānanda; *mahattva*—the glory.

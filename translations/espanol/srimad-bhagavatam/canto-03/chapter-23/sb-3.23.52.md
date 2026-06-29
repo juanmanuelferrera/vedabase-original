@@ -1,11 +1,11 @@
 ### SB 3.23.52
 
-> ब्रह्मन्दुहितृभिस्तुभ्यं विमृग्याः पतयः समाः ।
+> ब्रह्मन्दुहितृभिस्तुभ्यं विमृग्याः पतयः समाः ।\
 > कश्चित्स्यान्मे विशोकाय त्वयि प्रव्रजिते वनम् ॥५२॥
 
-> brahman duhitṛbhis tubhyaṁ
-> vimṛgyāḥ patayaḥ samāḥ
-> kaścit syān me viśokāya
+> brahman duhitṛbhis tubhyaṁ\
+> vimṛgyāḥ patayaḥ samāḥ\
+> kaścit syān me viśokāya\
 > tvayi pravrajite vanam
 
 *brahman*—mi querido *brāhmaṇa*; *duhitṛbhiḥ*—por las propias hijas; *tubhyam*—por ti; *vimṛgyāḥ*—ser encontrados; *patayaḥ*—esposos; *samāḥ*—adecuados; *kaścit*—alguien; *syāt*—debe haber; *me*—mi; *viśokāya*—para consuelo; *tvayi*—cuando tú; *pravrajite*—hayas partido; *vanam*—al bosque.

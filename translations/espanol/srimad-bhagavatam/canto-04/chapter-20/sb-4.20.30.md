@@ -1,11 +1,11 @@
 ### SB 4.20.30
 
-> मन्ये गिरं ते जगतां विमोहिनीं वरं वृणीष्वेति भजन्तमात्थ यत् ।
+> मन्ये गिरं ते जगतां विमोहिनीं वरं वृणीष्वेति भजन्तमात्थ यत् ।\
 > वाचा नु तन्त्या यदि ते जनोऽसितः कथं पुनः कर्म करोति मोहितः ॥३०॥
 
-> manye giraṁ te jagatāṁ vimohinīṁ
-> varaṁ vṛṇīṣveti bhajantam āttha yat
-> vācā nu tantyā yadi te jano 'sitaḥ
+> manye giraṁ te jagatāṁ vimohinīṁ\
+> varaṁ vṛṇīṣveti bhajantam āttha yat\
+> vācā nu tantyā yadi te jano 'sitaḥ\
 > kathaṁ punaḥ karma karoti mohitaḥ
 
 *manye*—considero; *giram*—palabras; *te*—Tuyas; *jagatām*—al mundo material; *vimohinīm*—desconcertantes; *varam*—bendición; *vṛṇīṣva*—simplemente acepta; *iti*—de este modo; *bhajantam*—a Tu devoto; *āttha*—Tú hablas; *yat*—porque; *vācā*—con las afirmaciones de los *Vedas*; *nu*—ciertamente; *tantyā*—con las cuerdas; *yadi*—si; *te*—Tus; *janaḥ*—la gente en general; *asitaḥ*—no atada; *katham*—cómo; *punaḥ*—una y otra vez; *karma*—actividades fruitivas; *karoti*—ejecuta; *mohitaḥ*—seducida.

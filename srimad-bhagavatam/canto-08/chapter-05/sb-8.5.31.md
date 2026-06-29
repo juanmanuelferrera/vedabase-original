@@ -1,11 +1,11 @@
 ### SB 8.5.31
 
-> इमे वयं यत्प्रिययैव तन्वा सत्त्वेन सृष्टा बहिरन्तराविः
+> इमे वयं यत्प्रिययैव तन्वा सत्त्वेन सृष्टा बहिरन्तराविः\
 > गतिं न सूक्ष्मामृषयश्च विद्महे कुतोऽसुराद्या इतरप्रधानाः ॥३१॥
 
-> ime vayaṁ yat-priyayaiva tanvā
-> sattvena sṛṣṭā bahir-antar-āviḥ
-> gatiṁ na sūkṣmām ṛṣayaś ca vidmahe
+> ime vayaṁ yat-priyayaiva tanvā\
+> sattvena sṛṣṭā bahir-antar-āviḥ\
+> gatiṁ na sūkṣmām ṛṣayaś ca vidmahe\
 > kuto 'surādyā itara-pradhānāḥ
 
 *ime*—these; *vayam*—we (the demigods); *yat*—to whom; *priyayā*—appearing very near and dear; *eva*—certainly; *tanvā*—the material body; *sattvena*—by the mode of goodness; *sṛṣṭāḥ*—created; *bahiḥ-antaḥ-āviḥ*—although fully aware, internally and externally; *gatim*—destination; *na*—not; *sūkṣmām*—very subtle; *ṛṣayaḥ*—great saintly persons; *ca*—also; *vidmahe*—understand; *kutaḥ*—how; *asura-ādyāḥ*—the demons and atheists; *itara*—who are insignificant in their identities; *pradhānāḥ*—although they are leaders of their own societies.

@@ -1,13 +1,13 @@
 ### SB 6.17.25
 
-> श्रीशुक उवाच
-> इति प्रसाद्य गिरिशौ चित्रकेतुररिन्दम
+> श्रीशुक उवाच\
+> इति प्रसाद्य गिरिशौ चित्रकेतुररिन्दम\
 > जगाम स्वविमानेन पश्यतोः स्मयतोस्तयोः ॥२५॥
 
-> śrī-śuka uvāca
-> iti prasādya giriśau
-> citraketur arindama
-> jagāma sva-vimānena
+> śrī-śuka uvāca\
+> iti prasādya giriśau\
+> citraketur arindama\
+> jagāma sva-vimānena\
 > paśyatoḥ smayatos tayoḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *iti*—thus; *prasādya*—after satisfying; *giriśau*—Lord Śiva and his wife, Pārvatī; *citraketuḥ*—King Citraketu; *arim-dama*—O King Parīkṣit, who are always able to subdue the enemy; *jagāma*—went away; *sva-vimānena*—by his own airplane; *paśyatoḥ*—were watching; *smayatoḥ*—were smiling; *tayoḥ*—while Lord Śiva and Pārvatī.

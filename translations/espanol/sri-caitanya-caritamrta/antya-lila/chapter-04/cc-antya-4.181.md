@@ -1,9 +1,9 @@
 ### CC Antya 4.181
 
-> হরিদাস কহে, — “প্রভু, যে কহিলা তুমি ।
+> হরিদাস কহে, — “প্রভু, যে কহিলা তুমি ।\
 > এই ‘বাহ্য প্রতারণা’ নাহি মানি আমি ॥১৮১॥
 
-> haridāsa kahe,--"prabhu, ye kahilā tumi
+> haridāsa kahe,--"prabhu, ye kahilā tumi\
 > ei 'bāhya pratāraṇā' nāhi māni āmi
 
 *haridāsa kahe*—Haridāsa dijo; *prabhu*—mi Señor; *ye*—lo que; *kahilā*—has dicho; *tumi*—Tú; *ei*—esta; *bāhya pratāraṇā*—formalidad externa; *nāhi māni āmi*—no lo acepto.

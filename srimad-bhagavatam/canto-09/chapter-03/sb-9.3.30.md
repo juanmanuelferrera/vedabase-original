@@ -1,11 +1,11 @@
 ### SB 9.3.30
 
-> पुत्र्या वरं परिप्रष्टुं ब्रह्मलोकमपावृतम
+> पुत्र्या वरं परिप्रष्टुं ब्रह्मलोकमपावृतम\
 > आवर्तमाने गान्धर्वे स्थितोऽलब्धक्षणः क्षणम ॥३०॥
 
-> āvartamāne gāndharve
-> sthito 'labdha-kṣaṇaḥ kṣaṇam
-> tad-anta ādyam ānamya
+> āvartamāne gāndharve\
+> sthito 'labdha-kṣaṇaḥ kṣaṇam\
+> tad-anta ādyam ānamya\
 > svābhiprāyaṁ nyavedayat
 
 *āvartamāne*—because of being engaged; *gāndharve*—in hearing songs from the Gandharvas; *sthitaḥ*—situated; *alabdha-kṣaṇaḥ*—there was no time to talk; *kṣaṇam*—even a moment; *tat-ante*—when it ended; *ādyam*—unto the original teacher of the universe (Lord Brahmā); *ānamya*—after offering obeisances; *sva-abhiprāyam*—his own desire; *nyavedayat*—Kakudmī submitted.

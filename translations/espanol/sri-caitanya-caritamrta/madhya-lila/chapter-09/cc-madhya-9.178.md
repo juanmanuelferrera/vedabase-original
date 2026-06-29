@@ -1,9 +1,9 @@
 ### CC Madhya 9.178
 
-> দক্ষিণ-মথুরা আইলা কামকোষ্ঠী হৈতে ৷
+> দক্ষিণ-মথুরা আইলা কামকোষ্ঠী হৈতে ৷\
 > তাহাঁ দেখা হৈল এক ব্রাহ্মণ-সহিতে ৷৷ ১৭৮ ৷৷ ॥১৭৮॥
 
-> dakṣiṇa-mathurā āilā kāmakoṣṭhī haite
+> dakṣiṇa-mathurā āilā kāmakoṣṭhī haite\
 > tāhāṅ dekhā haila eka brāhmaṇa-sahite
 
 *dakṣiṇa-mathurā*—a la Mathurā del sur; *āilā*—llegó; *kāmakoṣṭhī haite*—desde Kāmakoṣṭhī; *tāhāṅ*—allí; *dekhā haila*—se encontró; *eka*—un; *brāhmaṇa-sahite*—con un *brāhmaṇa*.

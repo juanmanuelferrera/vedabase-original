@@ -1,12 +1,12 @@
 ### SB 4.29.10
 
-> पश्चिमे इत्यधो द्वारौ गुदं शिश्नमिहोच्यते ।
-> खद्योताविर्मुखी चात्र नेत्रे एकत्र निर्मिते ।
+> पश्चिमे इत्यधो द्वारौ गुदं शिश्नमिहोच्यते ।\
+> खद्योताविर्मुखी चात्र नेत्रे एकत्र निर्मिते ।\
 > रूपं विभ्राजितं ताभ्यां विचष्टे चक्षुषेश्वरः ॥१०॥
 
-> khadyotāvirmukhī cātra
-> netre ekatra nirmite
-> rūpaṁ vibhrājitaṁ tābhyāṁ
+> khadyotāvirmukhī cātra\
+> netre ekatra nirmite\
+> rūpaṁ vibhrājitaṁ tābhyāṁ\
 > vicaṣṭe cakṣuṣeśvaraḥ
 
 *khadyotā*—llamada Khadyotā; *āvirmukhī*—llamada Āvirmukhī; *ca*—también; *atra*—aquí; *netre*—los dos ojos; *ekatra*—en un lugar; *nirmite*—creados; *rūpam*—forma; *vibhrājitam*—llamada Vibhrājita (brillante); *tābhyām*—por los ojos; *vicaṣṭe*—percibe; *cakṣuṣā*—con el sentido de la vista; *īśvaraḥ*—el amo.

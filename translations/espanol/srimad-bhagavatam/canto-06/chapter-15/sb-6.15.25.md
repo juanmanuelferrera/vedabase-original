@@ -1,11 +1,11 @@
 ### SB 6.15.25
 
-> अयं हि देहिनो देहो द्रव्यज्ञआनक्रियात्मकः
+> अयं हि देहिनो देहो द्रव्यज्ञआनक्रियात्मकः\
 > देहिनो विविधक्लेश सन्तापकृदुदाहृतः ॥२५॥
 
-> ayaṁ hi dehino deho
-> dravya-jñāna-kriyātmakaḥ
-> dehino vividha-kleśa-
+> ayaṁ hi dehino deho\
+> dravya-jñāna-kriyātmakaḥ\
+> dehino vividha-kleśa-\
 > santāpa-kṛd udāhṛtaḥ
 
 *ayam*—este; *hi*—ciertamente; *dehinaḥ*—de la entidad viviente; *dehaḥ*—cuerpo; *dravya-jñāna-kriyā-ātmakaḥ*—compuesto de los elementos materiales, los sentidos para adquirir conocimiento y los sentidos para la acción; *dehinaḥ*—de la entidad viviente; *vividha*—diversos; *kleśa*—sufrimientos; *santāpa*—y de dolores; *kṛt*—la causa; *udāhṛtaḥ*—se declara.

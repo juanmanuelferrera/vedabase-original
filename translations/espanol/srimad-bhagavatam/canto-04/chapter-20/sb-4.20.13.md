@@ -1,11 +1,11 @@
 ### SB 4.20.13
 
-> समः समानोत्तममध्यमाधमः सुखे च दुःखे च जितेन्द्रियाशयः ।
+> समः समानोत्तममध्यमाधमः सुखे च दुःखे च जितेन्द्रियाशयः ।\
 > मयोपकॢप्ताखिललोकसंयुतो विधत्स्व वीराखिललोकरक्षणम् ॥१३॥
 
-> samaḥ samānottama-madhyamādhamaḥ
-> sukhe ca duḥkhe ca jitendriyāśayaḥ
-> mayopakḷptākhila-loka-saṁyuto
+> samaḥ samānottama-madhyamādhamaḥ\
+> sukhe ca duḥkhe ca jitendriyāśayaḥ\
+> mayopakḷptākhila-loka-saṁyuto\
 > vidhatsva vīrākhila-loka-rakṣaṇam
 
 *samaḥ*—equilibrado; *samāna*—totalmente ecuánime; *uttama*—el que es más grande; *madhyama*—el que está en una posición intermedia; *adhamaḥ*—el que está en un nivel de vida inferior; *sukhe*—en la felicidad; *ca*—y; *duḥkhe*—en la aflicción; *ca*—y; *jita-indriya*—habiendo controlado los sentidos; *āśayaḥ*—y la mente; *mayā*—por Mí; *upakḷpta*—dispuesto; *akhila*—toda; *loka*—la gente; *saṁyutaḥ*—acompañado; *vidhatsva*—da; *vīra*—¡oh, héroe!; *akhila*—a todos; *loka*—a los ciudadanos; *rakṣaṇam*—protección.

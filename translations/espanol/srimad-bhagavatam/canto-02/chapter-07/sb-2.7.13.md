@@ -1,13 +1,13 @@
 ### SB 2.7.13
 
-> क्षीरोदधावमरदानवयूथपानाम्
-> उन्मथ्नताममृतलब्धय आदिदेवः ।
-> पृष्ठेन कच्छपवपुर्विदधार गोत्रं
+> क्षीरोदधावमरदानवयूथपानाम्\
+> उन्मथ्नताममृतलब्धय आदिदेवः ।\
+> पृष्ठेन कच्छपवपुर्विदधार गोत्रं\
 > निद्राक्षणोऽद्रिपरिवर्तकषाणकण्डूः ॥१३॥
 
-> kṣīrodadhāv amara-dānava-yūthapānām
-> unmathnatām amṛta-labdhaya ādi-devaḥ
-> pṛṣṭhena kacchapa-vapur vidadhāra gotraṁ
+> kṣīrodadhāv amara-dānava-yūthapānām\
+> unmathnatām amṛta-labdhaya ādi-devaḥ\
+> pṛṣṭhena kacchapa-vapur vidadhāra gotraṁ\
 > nidrākṣaṇo 'dri-parivarta-kaṣāṇa-kaṇḍūḥ
 
 *kṣīra*—leche; *udadhau*—en el océano de; *amara*—los semidioses; *dānava*—los demonios; *yūtha-pānām*—de los líderes de ambas huestes; *unmathnatām*—mientras batían; *amṛta*—néctar; *labdhaya*—para obtener; *ādi-devaḥ*—el Señor primordial; *pṛṣṭhena*—por la columna vertebral; *kacchapa*—tortuga; *vapuḥ*—cuerpo; *vidadhāra*—adoptó; *gotram*—la colina Mandara; *nidrākṣaṇaḥ*—mientras dormía parcialmente; *adri-parivarta*—rodando la colina; *kaṣāṇa*—rascando; *kaṇḍūḥ*—picazón.

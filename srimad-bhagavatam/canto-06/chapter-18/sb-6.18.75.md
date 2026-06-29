@@ -1,11 +1,11 @@
 ### SB 6.18.75
 
-> आराध्यात्मप्रदं देवं स्वात्मानं जगदीश्वरम
+> आराध्यात्मप्रदं देवं स्वात्मानं जगदीश्वरम\
 > को वृणीत गुणस्पर्शं बुधः स्यान्नरकेऽपि यत ॥७५॥
 
-> ārādhyātma-pradaṁ devaṁ
-> svātmānaṁ jagad-īśvaram
-> ko vṛṇīta guṇa-sparśaṁ
+> ārādhyātma-pradaṁ devaṁ\
+> svātmānaṁ jagad-īśvaram\
+> ko vṛṇīta guṇa-sparśaṁ\
 > budhaḥ syān narake 'pi yat
 
 *ārādhya*—after worshiping; *ātma-pradam*—who gives Himself; *devam*—the Lord; *sva-ātmānam*—the most dear; *jagat-īśvaram*—the Lord of the universe; *kaḥ*—what; *vṛṇīta*—would choose; *guṇa-sparśam*—material happiness; *budhaḥ*—intelligent person; *syāt*—is; *narake*—in hell; *api*—even; *yat*—which.

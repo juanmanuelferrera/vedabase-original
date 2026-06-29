@@ -1,9 +1,9 @@
 ### CC Madhya 4.66
 
-> আরাত্রিক করি’ কৈল বহুত স্তবন ।
+> আরাত্রিক করি’ কৈল বহুত স্তবন ।\
 > দণ্ডবৎ করি’ কৈল আত্ম-সমর্পণ ॥৬৬॥
 
-> ārātrika kari' kaila bahuta stavana
+> ārātrika kari' kaila bahuta stavana\
 > daṇḍavat kari' kaila ātma-samarpaṇa
 
 *ārātrika*—la ejecución del ārātrika; *kari'*—terminando; *kaila*—cantaron; *bahuta*—diversas; *stavana*—oraciones; *daṇḍavat*—reverencias; *kari'*—ofreciendo; *kaila*—hicieron; *ātma-samarpaṇa*—entrega de sí mismos.

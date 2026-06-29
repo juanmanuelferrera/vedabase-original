@@ -1,14 +1,14 @@
 ### CC Adi 3.105-106
 
-> এই শ্লোকার্থ আচার্য করেন বিচারণ ।
-> কৃষ্ণকে তুলসীজল দেয় যেই জন ॥১০৫॥
-> তার ঋণ শোধিতে কৃষ্ণ করেন চিন্তন — ।
+> এই শ্লোকার্থ আচার্য করেন বিচারণ ।\
+> কৃষ্ণকে তুলসীজল দেয় যেই জন ॥১০৫॥\
+> তার ঋণ শোধিতে কৃষ্ণ করেন চিন্তন — ।\
 > ‘জল-তুলসীর সম কিছু ঘরে নাহি ধন’ ॥১০৬॥
 
-> ei ślokārtha ācārya karena vicāraṇa
+> ei ślokārtha ācārya karena vicāraṇa\
 > kṛṣṇake tulasī-jala deya yei jana
 
-> tāra ṛṇa śodhite kṛṣṇa karena cintana—
+> tāra ṛṇa śodhite kṛṣṇa karena cintana—\
 > 'jala-tulasīra sama kichu ghare nāhi dhana'
 
 *ei*—este; *śloka*—del verso; *artha*—el significado; *ācārya*—Advaita Ācārya; *karena*—hace; *vicāraṇa*—considerando; *kṛṣṇake*—al Señor Kṛṣṇa; *tulasī-jala*—*tulasī* y agua; *deya*—da; *yei jana*—aquella persona que; *tāra*—a Él; *ṛṇa*—la deuda; *śodhite*—pagar; *kṛṣṇa*—el Señor Kṛṣṇa; *karena*—hace; *cintana*—pensando; *jala-tulasīra sama*—igual a agua y *tulasī*; *kichu*—alguna; *ghare*—en la casa; *nāhi*—no hay; *dhana*—riqueza.

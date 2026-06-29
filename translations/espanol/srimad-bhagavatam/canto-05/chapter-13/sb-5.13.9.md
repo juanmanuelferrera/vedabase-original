@@ -1,11 +1,11 @@
 ### SB 5.13.9
 
-> क्वचिन्निगीर्णोऽजगराहिना जनो नावैति किञ्चिद्विपिनेऽपविद्धः
+> क्वचिन्निगीर्णोऽजगराहिना जनो नावैति किञ्चिद्विपिनेऽपविद्धः\
 > दष्टः स्म शेते क्व च दन्दशूकैरन्धोऽन्धकूपे पतितस्तमिस्रे ॥९॥
 
-> kvacin nigīrṇo 'jagarāhinā jano
-> nāvaiti kiñcid vipine 'paviddhaḥ
-> daṣṭaḥ sma śete kva ca danda-śūkair
+> kvacin nigīrṇo 'jagarāhinā jano\
+> nāvaiti kiñcid vipine 'paviddhaḥ\
+> daṣṭaḥ sma śete kva ca danda-śūkair\
 > andho 'ndha-kūpe patitas tamisre
 
 *kvacit*—a veces; *nigīrṇaḥ*—tragada; *ajagara-ahinā*—por la gran serpiente pitón; *janaḥ*—el alma condicionada; *na*—no; *avaiti*—entiende; *kiñcit*—nada; *vipine*—en el bosque; *apaviddhaḥ*—herida por flechas de sufrimiento; *daṣṭaḥ*—picada; *sma*—en verdad; *śete*—yace; *kva ca*—a veces; *danda-śūkaiḥ*—por otras clases de serpientes; *andhaḥ*—ciega; *andha-kūpe*—en un pozo oculto; *patitaḥ*—caída; *tamisre*—en una condición de vida infernal.

@@ -1,15 +1,15 @@
 ### SB 2.7.1
 
-> ब्रह्मोवाच
-> यत्रोद्यतः क्षितितलोद्धरणाय बिभ्रत्
-> क्रौडीं तनुं सकलयज्ञमयीमनन्तः ।
-> अन्तर्महार्णव उपागतमादिदैत्यं
+> ब्रह्मोवाच\
+> यत्रोद्यतः क्षितितलोद्धरणाय बिभ्रत्\
+> क्रौडीं तनुं सकलयज्ञमयीमनन्तः ।\
+> अन्तर्महार्णव उपागतमादिदैत्यं\
 > तं दंष्ट्रयाद्रिमिव वज्रधरो ददार ॥१॥
 
-> brahmovāca
-> yatrodyataḥ kṣiti-taloddharaṇāya bibhrat
-> krauḍīṁ tanuṁ sakala-yajña-mayīm anantaḥ
-> antar-mahārṇava upāgatam ādi-daityaṁ
+> brahmovāca\
+> yatrodyataḥ kṣiti-taloddharaṇāya bibhrat\
+> krauḍīṁ tanuṁ sakala-yajña-mayīm anantaḥ\
+> antar-mahārṇava upāgatam ādi-daityaṁ\
 > taṁ daṁṣṭrayādrim iva vajra-dharo dadāra
 
 *brahmā uvāca*—el Señor Brahmā dijo; *yatra*—en ese momento (cuando); *udyataḥ*—intentando; *kṣiti-tala*—el planeta Tierra; *uddharaṇāya*—con objeto de levantar; *bibhrat*—adoptó; *krauḍīm*—pasatiempos; *tanum*—la forma; *sakala*—total; *yajña-mayīm*—sacrificios que incluyen todo; *anantaḥ*—el Ilimitado; *antar*—dentro del universo; *mahā-arṇave*—el gran océano Garbha; *upāgatam*—habiendo llegado a; *ādi*—el primer; *daityam*—demonio; *tam*—a él; *daṁṣṭrayā*—mediante el colmillo; *adrim*—las montañas voladoras; *iva*—como; *vajra-dharaḥ*—el controlador de los relámpagos; *dadāra*—atravesó.

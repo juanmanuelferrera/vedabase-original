@@ -1,9 +1,9 @@
 ### CC Madhya 5.152
 
-> শুনি’ কিছু মহাপ্রভু দুঃখ প্রকাশিলা ।
+> শুনি’ কিছু মহাপ্রভু দুঃখ প্রকাশিলা ।\
 > ঈষৎ ক্রোধ করি’ কিছু কহিতে লাগিলা ॥১৫২॥
 
-> śuni' kichu mahāprabhu duḥkha prakāśilā
+> śuni' kichu mahāprabhu duḥkha prakāśilā\
 > īṣat krodha kari' kichu kahite lāgilā
 
 *śuni'*—hearing this; *kichu*—some; *mahāprabhu*—Lord Caitanya Mahāprabhu; *duḥkha*—unhappiness; *prakāśilā*—expressed; *īṣat*—little; *krodha*—anger; *kari'*—showing; *kichu*—something; *kahite*—to speak; *lāgilā*—began.

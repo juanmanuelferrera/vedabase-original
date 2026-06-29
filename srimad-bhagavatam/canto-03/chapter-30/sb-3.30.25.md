@@ -1,11 +1,11 @@
 ### SB 3.30.25
 
-> आदीपनं स्वगात्राणां वेष्टयित्वोल्मुकादिभिः ।
+> आदीपनं स्वगात्राणां वेष्टयित्वोल्मुकादिभिः ।\
 > आत्ममांसादनं क्वापि स्वकृत्तं परतोऽपि वा ॥२५॥
 
-> ādīpanaṁ sva-gātrāṇāṁ
-> veṣṭayitvolmukādibhiḥ
-> ātma-māṁsādanaṁ kvāpi
+> ādīpanaṁ sva-gātrāṇāṁ\
+> veṣṭayitvolmukādibhiḥ\
+> ātma-māṁsādanaṁ kvāpi\
 > sva-kṛttaṁ parato 'pi vā
 
 *ādīpanam*—setting on fire; *sva-gātrāṇām*—of his own limbs; *veṣṭayitvā*—having been surrounded; *ulmuka-ādibhiḥ*—by pieces of burning wood and so on; *ātma-māṁsa*—of his own flesh; *adanam*—eating; *kva api*—sometimes; *sva-kṛttam*—done by himself; *parataḥ*—by others; *api*—else; *vā*—or.

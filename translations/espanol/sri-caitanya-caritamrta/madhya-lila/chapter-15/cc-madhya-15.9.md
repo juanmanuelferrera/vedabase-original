@@ -1,9 +1,9 @@
 ### CC Madhya 15.9
 
-> গলে মালা দেন, মাথায় তুলসী-মঞ্জরী ।
+> গলে মালা দেন, মাথায় তুলসী-মঞ্জরী ।\
 > যোড়-হাতে স্তুতি করে পদে নমস্করি’ ॥৯॥
 
-> gale mālā dena, māthāya tulasī-mañjarī
+> gale mālā dena, māthāya tulasī-mañjarī\
 > yoḍa-hāte stuti kare pade namaskari'
 
 *gale*—en el cuello; *mālā*—guirnalda; *dena*—ofrece; *māthāya*—en la cabeza; *tulasī-mañjarī*—flores de tulasī; *yoḍa-hāte*—con las manos juntas; *stuti kare*—ofrece oraciones; *pade*—a los pies de loto; *namaskari'*—ofreciendo reverencias.

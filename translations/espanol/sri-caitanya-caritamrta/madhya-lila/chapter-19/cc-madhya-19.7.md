@@ -1,9 +1,9 @@
 ### CC Madhya 19.7
 
-> ব্রাহ্মণ-বৈষ্ণবে দিলা তার অর্ধ-ধনে ।
+> ব্রাহ্মণ-বৈষ্ণবে দিলা তার অর্ধ-ধনে ।\
 > এক চৌঠি ধন দিলা কুটুম্ব-ভরণে ॥৭॥
 
-> brāhmaṇa-vaiṣṇave dilā tāra ardha-dhane
+> brāhmaṇa-vaiṣṇave dilā tāra ardha-dhane\
 > eka cauṭhi dhana dilā kuṭumba-bharaṇe
 
 *brāhmaṇa-vaiṣṇave*—a los *brāhmaṇas* y los vaiṣṇavas; *dilā*—dio como caridad; *tāra*—de las riquezas; *ardha-dhane*—el cincuenta por ciento; *eka cauṭhi dhana*—una cuarta parte de las riquezas; *dilā*—dio; *kuṭumba-bharaṇe*—para el sustento de los familiares.

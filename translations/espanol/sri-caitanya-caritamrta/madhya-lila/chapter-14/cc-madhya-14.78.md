@@ -1,9 +1,9 @@
 ### CC Madhya 14.78
 
-> দুই-দুই জনে মেলি’ করে জল-রণ ।
+> দুই-দুই জনে মেলি’ করে জল-রণ ।\
 > কেহ হারে, কেহ জিনে — প্ৰভু করে দরশন ॥৭৮॥
 
-> dui-dui jane meli' kare jala-raṇa
+> dui-dui jane meli' kare jala-raṇa\
 > keha hāre, keha jine-prabhu kare daraśana
 
 *dui-dui jane*—formando parejas de dos; *meli'*—uniéndose; *kare*—hacen; *jala-raṇa*—batalla acuática; *keha hāre*—alguien pierde; *keha jine*—alguien vence; *prabhu*—Śrī Caitanya Mahāprabhu; *kare daraśana*—observa.

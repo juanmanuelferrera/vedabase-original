@@ -1,9 +1,9 @@
 ### CC Adi 15.7
 
-> অধ্যয়ন-লীলা প্রভুর দাস-বৃন্দাবন ।
+> অধ্যয়ন-লীলা প্রভুর দাস-বৃন্দাবন ।\
 > ‘চৈতন্যমঙ্গলে’ কৈল বিস্তারি বর্ণন ॥৭॥
 
-> adhyayana-līlā prabhura dāsa-vṛndāvana
+> adhyayana-līlā prabhura dāsa-vṛndāvana\
 > 'caitanya-maṅgale' kaila vistāri varṇana
 
 *adhyayana-līlā*—los pasatiempos de estudio; *prabhura*—del Señor; *dāsa-vṛndāvana*—Vṛndāvana dāsa Ṭhākura; *caitanya-maṅgale*—en su libro Caitanya-maṅgala; *kaila*—ha hecho; *vistāri*—elaboradamente; *varṇana*—explicación.

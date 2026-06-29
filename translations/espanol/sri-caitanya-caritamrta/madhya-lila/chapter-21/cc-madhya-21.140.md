@@ -1,13 +1,13 @@
 ### CC Madhya 21.140
 
-> স্মিত-কিরণ-সুকর্পূরে, পৈশে অধর-মধুরে,
-> সেই মধু মাতায় ত্রিভুবনে ।
-> বংশীছিদ্র আকাশে, তার গুণ শব্দে পৈশে,
+> স্মিত-কিরণ-সুকর্পূরে, পৈশে অধর-মধুরে,\
+> সেই মধু মাতায় ত্রিভুবনে ।\
+> বংশীছিদ্র আকাশে, তার গুণ শব্দে পৈশে,\
 > ধ্বনিরূপে পাঞা পরিণামে ॥১৪০॥
 
-> smita-kiraṇa-sukarpūre, paiśe adhara-madhure,
-> sei madhu mātāya tribhuvane
-> vaṁśī-chidra ākāśe, tāra guṇa śabde paiśe,
+> smita-kiraṇa-sukarpūre, paiśe adhara-madhure,\
+> sei madhu mātāya tribhuvane\
+> vaṁśī-chidra ākāśe, tāra guṇa śabde paiśe,\
 > dhvani-rūpe pāñā pariṇāme
 
 *smita-kiraṇa*—el fulgor de la sonrisa de Kṛṣṇa; *su-karpūre*—comparado con alcanfor; *paiśe*—penetra; *adhara-madhure*—en la dulzura de los labios; *sei madhu*—esa ambrosía; *mātāya*—enloquece; *tri-bhuvane*—los tres mundos; *vaṁśī-chidra*—de los orificios de la flauta; *ākāśe*—en el espacio; *tāra guṇa*—la cualidad de esa dulzura; *śabde*—en vibración sonora; *paiśe*—penetra; *dhvani-rūpe*—la forma de vibración sonora; *pāñā*—obteniendo; *pariṇāme*—por transformación.

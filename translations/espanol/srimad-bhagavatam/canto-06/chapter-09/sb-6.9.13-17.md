@@ -1,36 +1,36 @@
 ### SB 6.9.13-17
 
-> विष्वग्विवर्धमानं तमिषुमात्रं दिने दिने
-> दग्धशैलप्रतीकाशं सन्ध्याभ्रानीकवर्चसम ॥१३॥
-> तप्तताम्रशिखाश्मश्रुं मध्याह्नार्कोग्रलोचनम ॥१४॥
-> देदीप्यमाने त्रिशिखे शूल आरोप्य रोदसी
-> नृत्यन्तमुन्नदन्तं च चालयन्तं पदा महीम ॥१५॥
-> दरीगम्भीरवक्त्रेण पिबता च नभस्तलम
-> लिहता जिह्वयर्क्षाणि ग्रसता भुवनत्रयम ॥१६॥
-> महता रौद्रदंष्ट्रेण जृम्भमाणं मुहुर्मुहुः
+> विष्वग्विवर्धमानं तमिषुमात्रं दिने दिने\
+> दग्धशैलप्रतीकाशं सन्ध्याभ्रानीकवर्चसम ॥१३॥\
+> तप्तताम्रशिखाश्मश्रुं मध्याह्नार्कोग्रलोचनम ॥१४॥\
+> देदीप्यमाने त्रिशिखे शूल आरोप्य रोदसी\
+> नृत्यन्तमुन्नदन्तं च चालयन्तं पदा महीम ॥१५॥\
+> दरीगम्भीरवक्त्रेण पिबता च नभस्तलम\
+> लिहता जिह्वयर्क्षाणि ग्रसता भुवनत्रयम ॥१६॥\
+> महता रौद्रदंष्ट्रेण जृम्भमाणं मुहुर्मुहुः\
 > वित्रस्ता दुद्रुवुर्लोका वीक्ष्य सर्वे दिशो दश ॥१७॥
 
-> viṣvag vivardhamānaṁ tam
-> iṣu-mātraṁ dine dine
-> dagdha-śaila-pratīkāśaṁ
+> viṣvag vivardhamānaṁ tam\
+> iṣu-mātraṁ dine dine\
+> dagdha-śaila-pratīkāśaṁ\
 > sandhyābhrānīka-varcasam
 
-> tapta-tāmra-śikhā-śmaśruṁ
+> tapta-tāmra-śikhā-śmaśruṁ\
 > madhyāhnārkogra-locanam
 
-> dedīpyamāne tri-śikhe
-> śūla āropya rodasī
-> nṛtyantam unnadantaṁ ca
+> dedīpyamāne tri-śikhe\
+> śūla āropya rodasī\
+> nṛtyantam unnadantaṁ ca\
 > cālayantaṁ padā mahīm
 
-> darī-gambhīra-vaktreṇa
-> pibatā ca nabhastalam
-> lihatā jihvayarkṣāṇi
+> darī-gambhīra-vaktreṇa\
+> pibatā ca nabhastalam\
+> lihatā jihvayarkṣāṇi\
 > grasatā bhuvana-trayam
 
-> mahatā raudra-daṁṣṭreṇa
-> jṛmbhamāṇaṁ muhur muhuḥ
-> vitrastā dudruvur lokā
+> mahatā raudra-daṁṣṭreṇa\
+> jṛmbhamāṇaṁ muhur muhuḥ\
+> vitrastā dudruvur lokā\
 > vīkṣya sarve diśo daśa
 
 *viṣvak*—alrededor; *vivardhamānam*—aumentar; *tam*—a él; *iṣu-mātram*—el vuelo de una flecha; *dine dine*—día tras día; *dagdha*—quemada; *śaila*—montaña; *pratīkāśam*—parecía; *sandhyā*—al atardecer; *abhra-anīka*—como un cúmulo de nubes; *varcasam*—con una refulgencia; *tapta*—fundido; *tāmra*—como cobre; *śikhā*—cabello; *śmaśrum*—bigote y barba; *madhyāhna*—al mediodía; *arka*—como el Sol; *ugra-locanam*—con ojos poderosos; *dedīpyamāne*—abrasador; *tri-śikhe*—de tres puntas; *śūle*—en su lanza; *āropya*—sostener; *rodasī*—cielo y Tierra; *nṛtyantam*—bailando; *unnadantam*—gritando en voz alta; *ca*—y; *cālayantam*—mover; *padā*—con el pie; *mahīm*—la Tierra; *darī-gambhīra*—tan profunda como una caverna; *vaktreṇa*—con la boca; *pibatā*—beber; *ca*—también; *nabhastalam*—el cielo; *lihatā*—lamer; *jihvayā*—con la lengua; *ṛkṣāṇi*—las estrellas; *grasatā*—tragarse; *bhuvana-trayam*—los tres mundos; *mahatā*—muy grande; *raudra-daṁṣṭreṇa*—con terribles colmillos; *jṛmbhamāṇam*—bostezar; *muhuḥ muhuḥ*—una y otra vez; *vitrastāḥ*—terrible; *dudruvuḥ*—corría; *lokāḥ*—la gente; *vīkṣya*—al ver; *sarve*—todas; *diśaḥ daśa*—diez direcciones.

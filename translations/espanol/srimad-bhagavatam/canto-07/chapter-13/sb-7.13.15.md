@@ -1,11 +1,11 @@
 ### SB 7.13.15
 
-> तं नत्वाभ्यर्च्य विधिवत्पादयोः शिरसा स्पृशन
+> तं नत्वाभ्यर्च्य विधिवत्पादयोः शिरसा स्पृशन\
 > विवित्सुरिदमप्राक्षीन्महाभागवतोऽसुरः ॥१५॥
 
-> taṁ natvābhyarcya vidhivat
-> pādayoḥ śirasā spṛśan
-> vivitsur idam aprākṣīn
+> taṁ natvābhyarcya vidhivat\
+> pādayoḥ śirasā spṛśan\
+> vivitsur idam aprākṣīn\
 > mahā-bhāgavato 'suraḥ
 
 *tam*—a él (a la persona santa); *natvā*—tras ofrecer reverencias; *abhyarcya*—y adorar; *vidhi-vat*—conforme a las reglas y regulaciones de etiqueta; *pādayoḥ*—los pies de loto de la persona santa; *śirasā*—con la cabeza; *spṛśan*—tocar; *vivitsuḥ*—con el deseo de saber acerca de él (de la persona santa); *idam*—las siguientes palabras; *aprākṣit*—preguntó; *mahā-bhāgavataḥ*—el muy avanzado devoto del Señor; *asuraḥ*—aunque nacido en familia de *asuras*.

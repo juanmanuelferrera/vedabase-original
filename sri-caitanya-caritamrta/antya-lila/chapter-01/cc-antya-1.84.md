@@ -2,7 +2,7 @@
 
 > ‘গূঢ় মোর হৃদয় তুঞি জানিলা কেমনে ?’ এত কহি’ রূপে কৈলা দৃঢ় আলিঙ্গনে ॥৮৪॥
 
-> 'gūḍha mora hṛdaya tuñi jānilā kemane?'
+> 'gūḍha mora hṛdaya tuñi jānilā kemane?'\
 > eta kahi' rūpe kailā dṛḍha āliṅgane
 
 *gūḍha*—very confidential; *mora*—My; *hṛdaya*—heart; *tuñi*—you; *jānilā*—knew; *kemane*—how; *eta kahi'*—saying this; *rūpe*—to Rūpa Gosvāmī; *kailā*—did; *dṛḍha āliṅgane*—firm embracing.

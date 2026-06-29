@@ -1,9 +1,9 @@
 ### CC Antya 17.21
 
-> চেতন হইলে হস্ত-পাদ বাহিরে আইল ।
+> চেতন হইলে হস্ত-পাদ বাহিরে আইল ।\
 > পূর্ববৎ যথাযোগ্য শরীর হইল ॥২১॥
 
-> cetana ha-ile hasta-pāda bāhire āila
+> cetana ha-ile hasta-pāda bāhire āila\
 > pūrvavat yathā-yogya śarīra ha-ila
 
 *cetana ha-ile*—cuando hubo conciencia; *hasta-pāda*—los brazos y las piernas; *bāhire*—fuera; *āila*—salieron; *pūrvavat*—como antes; *yathā-yogya*—en perfecto orden; *śarīra*—el cuerpo; *ha-ila*—quedó.

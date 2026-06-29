@@ -1,11 +1,11 @@
 ### CC Madhya 6.242
 
-> হরের্নাম হরের্নাম হরের্নামৈব কেবলম্ ।
+> হরের্নাম হরের্নাম হরের্নামৈব কেবলম্ ।\
 > কলৌ নাস্ত্যেব নাস্ত্যেব নাস্ত্যেব গতিরন্যথা ॥২৪২॥
 
-> harer nāma harer nāma
-> harer nāmaiva kevalam
-> kalau nāsty eva nāsty eva
+> harer nāma harer nāma\
+> harer nāmaiva kevalam\
+> kalau nāsty eva nāsty eva\
 > nāsty eva gatir anyathā
 
 *hareḥ nāma*—el santo nombre del Señor Hari; *hareḥ nāma*—el santo nombre del Señor Hari; *hareḥ nāma*—el santo nombre del Señor; *eva*—ciertamente; *kevalam*—únicamente; *kalau*—en esta era de Kali; *na asti*—no hay; *eva*—ciertamente; *na asti*—no hay; *eva*—ciertamente; *na asti*—no hay; *eva*—ciertamente; *gatiḥ*—medio; *anyathā*—otro.

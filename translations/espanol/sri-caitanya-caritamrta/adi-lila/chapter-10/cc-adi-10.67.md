@@ -1,9 +1,9 @@
 ### CC Adi 10.67
 
-> খোলা-বেচা শ্রীধর প্রভুর প্রিয়দাস ।
+> খোলা-বেচা শ্রীধর প্রভুর প্রিয়দাস ।\
 > যাঁহা-সনে প্রভু করে নিত্য পরিহাস ॥৬৭॥
 
-> kholā-vecā śrīdhara prabhura priya-dāsa
+> kholā-vecā śrīdhara prabhura priya-dāsa\
 > yāṅhā-sane prabhu kare nitya parihāsa
 
 *kholā-vecā*—persona que vende la corteza de los plátanos; *śrīdhara*—Śrīdhara Prabhu; *prabhura*—del Señor; *priya-dāsa*—sirviente muy querido; *yāṅha-sane*—con quien; *prabhu*—el Señor; *kare*—hace; *nitya*—a diario; *parihāsa*—bromas.

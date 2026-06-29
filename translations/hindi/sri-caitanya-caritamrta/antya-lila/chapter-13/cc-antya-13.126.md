@@ -1,9 +1,9 @@
 ### CC Antya 13.126
 
-> রূপ-গোসাঞির সভায় করেন ভাগবত-পঠন ।
+> রূপ-গোসাঞির সভায় করেন ভাগবত-পঠন ।\
 > ভাগবত পড়িতে প্রেমে আউলায় তাঁর মন ॥১২৬॥
 
-> rūpa-gosāñira sabhāya karena bhāgavata-paṭhana
+> rūpa-gosāñira sabhāya karena bhāgavata-paṭhana\
 > bhāgavata paḍite preme āulāya tāṅra mana
 
 *रूप-गोसाञिर सभाय*—रूप, सनातन तथा अन्य

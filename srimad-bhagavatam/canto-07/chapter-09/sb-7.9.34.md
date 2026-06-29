@@ -1,13 +1,13 @@
 ### SB 7.9.34
 
-> तत्सम्भवः कविरतोऽन्यदपश्यमानस
-> त्वां बीजमात्मनि ततं स बहिर्विचिन्त्य
-> नाविन्ददब्दशतमप्सु निमज्जमानो
+> तत्सम्भवः कविरतोऽन्यदपश्यमानस\
+> त्वां बीजमात्मनि ततं स बहिर्विचिन्त्य\
+> नाविन्ददब्दशतमप्सु निमज्जमानो\
 > जातेऽङ्कुरे कथमुहोपलभेत बीजम ॥३४॥
 
-> tat-sambhavaḥ kavir ato 'nyad apaśyamānas
-> tvāṁ bījam ātmani tataṁ sa bahir vicintya
-> nāvindad abda-śatam apsu nimajjamāno
+> tat-sambhavaḥ kavir ato 'nyad apaśyamānas\
+> tvāṁ bījam ātmani tataṁ sa bahir vicintya\
+> nāvindad abda-śatam apsu nimajjamāno\
 > jāte 'ṅkure katham uhopalabheta bījam
 
 *tat-sambhavaḥ*—who was generated from that lotus flower; *kaviḥ*—he who can understand the subtle cause of creation (Lord Brahmā); *ataḥ*—from that (lotus); *anyat*—anything else; *apaśyamānaḥ*—not able to see; *tvām*—Your Lordship; *bījam*—the cause of the lotus; *ātmani*—in himself; *tatam*—expanded; *saḥ*—he (Lord Brahmā); *bahiḥ vicintya*—considering to be external; *na*—not; *avindat*—understood (You); *abda-śatam*—for a hundred years according to the demigods*; *apsu*—in the water; *nimajjamānaḥ*—diving; *jāte aṅkure*—when the seed fructifies and is manifested as a creeper; *katham*—how; *uha*—O my Lord; *upalabheta*—one can perceive; *bījam*—the seed that has already fructified.

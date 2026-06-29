@@ -1,11 +1,11 @@
 ### SB 3.24.8
 
-> पेतुः सुमनसो दिव्याः खेचरैरपवर्जिताः ।
+> पेतुः सुमनसो दिव्याः खेचरैरपवर्जिताः ।\
 > प्रसेदुश्च दिशः सर्वा अम्भांसि च मनांसि च ॥८॥
 
-> petuḥ sumanaso divyāḥ
-> khe-carair apavarjitāḥ
-> praseduś ca diśaḥ sarvā
+> petuḥ sumanaso divyāḥ\
+> khe-carair apavarjitāḥ\
+> praseduś ca diśaḥ sarvā\
 > ambhāṁsi ca manāṁsi ca
 
 *petuḥ*—cayeron; *sumanasaḥ*—flores; *divyāḥ*—hermosas; *khe-caraiḥ*—por los semidioses que volaban en el cielo; *apavarjitāḥ*—dejadas caer; *praseduḥ*—se llenaron de satisfacción; *ca*—y; *diśaḥ*—direcciones; *sarvāḥ*—todas; *ambhāṁsi*—aguas; *ca*—y; *manāṁsi*—mentes; *ca*—y.

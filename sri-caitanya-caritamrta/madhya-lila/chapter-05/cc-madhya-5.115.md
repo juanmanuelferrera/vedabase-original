@@ -1,9 +1,9 @@
 ### CC Madhya 5.115
 
-> “যদি বর দিবে, তবে রহ এই স্থানে ।
+> “যদি বর দিবে, তবে রহ এই স্থানে ।\
 > কিঙ্করেরে দয়া তব সর্বলোকে জানে ।।” ॥ ১১৫ ॥
 
-> "yadi vara dibe, tabe raha ei sthāne
+> "yadi vara dibe, tabe raha ei sthāne\
 > kiṅkarere dayā tava sarva-loke jāne"
 
 *yadi*—if; *vara*—benediction; *dibe*—You will offer; *tabe*—then; *raha*—stay; *ei sthāne*—in this quarter; *kiṅkarere*—to Your servants; *dayā*—mercy; *tava*—Your; *sarva-loke*—all people; *jāne*—may know.

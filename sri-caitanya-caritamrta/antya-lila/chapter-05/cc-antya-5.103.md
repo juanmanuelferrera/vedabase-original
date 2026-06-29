@@ -1,9 +1,9 @@
 ### CC Antya 5.103
 
-> ‘রস’, ‘রসাভাস’ যার নাহিক বিচার ।
+> ‘রস’, ‘রসাভাস’ যার নাহিক বিচার ।\
 > ভক্তিসিদ্ধান্ত-সিন্ধু নাহি পায় পার ॥১০৩॥
 
-> 'rasa', 'rasābhāsa' yāra nāhika vicāra
+> 'rasa', 'rasābhāsa' yāra nāhika vicāra\
 > bhakti-siddhānta-sindhu nāhi pāya pāra
 
 *rasa*—transcendental mellows; *rasa-ābhāsa*—overlapping of transcendental mellows; *yāra*—of whom; *nāhika vicāra*—there is no consideration; *bhakti-siddhānta-sindhu*—the ocean of the conclusions of devotional service; *nāhi*—not; *pāya*—attains; *pāra*—the limit.

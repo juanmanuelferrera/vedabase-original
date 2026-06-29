@@ -1,11 +1,11 @@
 ### SB 8.12.5
 
-> आद्यन्तावस्य यन्मध्यमिदमन्यदहं बहिः
+> आद्यन्तावस्य यन्मध्यमिदमन्यदहं बहिः\
 > यतोऽव्ययस्य नैतानि तत्सत्यं ब्रह्म चिद्भवान ॥५॥
 
-> ādy-antāv asya yan madhyam
-> idam anyad ahaṁ bahiḥ
-> yato 'vyayasya naitāni
+> ādy-antāv asya yan madhyam\
+> idam anyad ahaṁ bahiḥ\
+> yato 'vyayasya naitāni\
 > tat satyaṁ brahma cid bhavān
 
 *ādi*—el comienzo; *antau*—y el final; *asya*—del cosmos manifestado o de todo lo material o visible; *yat*—lo que; *madhyam*—entre el principio y el final, el sostenimiento; *idam*—esa manifestación cósmica; *anyat*—nada que no seas Tú; *aham*—el concepto mental erróneo; *bahiḥ*—aparte de Ti; *yataḥ*—debido a; *avyayasya*—el inagotable; *na*—no; *etāni*—todas esas diferencias; *tat*—esa; *satyam*—la Verdad Absoluta; *brahma*—el Supremo; *cit*—espiritual; *bhavān*—Tu Señoría.

@@ -1,9 +1,9 @@
 ### CC Antya 7.97
 
-> আভিজাত্যে পণ্ডিত করিতে নারে নিষেধন ।
+> আভিজাত্যে পণ্ডিত করিতে নারে নিষেধন ।\
 > “এ সঙ্কটে রাখ, কৃষ্ণ লইলাঙ শরণ ॥৯৭॥
 
-> ābhijātye paṇḍita karite nāre niṣedhana
+> ābhijātye paṇḍita karite nāre niṣedhana\
 > "e saṅkaṭe rākha, kṛṣṇa la-ilāṅa śaraṇa
 
 *ābhijātye*—debido a su aristocracia; *paṇḍita*—Gadādhara Paṇḍita; *karite nāre niṣedhana*—no pudo prohibirle; *e saṅkaṭe*—en este peligro; *rākha*—por favor protégeme; *kṛṣṇa*—¡oh, Señor Kṛṣṇa!; *la-ilāṅa*—he tomado; *śaraṇa*—refugio.

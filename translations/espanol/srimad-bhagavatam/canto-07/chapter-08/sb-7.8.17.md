@@ -1,11 +1,11 @@
 ### SB 7.8.17
 
-> स विक्रमन्पुत्रवधेप्सुरोजसा निशम्य निर्ह्रादमपूर्वमद्भुतम
+> स विक्रमन्पुत्रवधेप्सुरोजसा निशम्य निर्ह्रादमपूर्वमद्भुतम\
 > अन्तःसभायां न ददर्श तत्पदं वितत्रसुर्येन सुरारियूथपाः ॥१७॥
 
-> satyaṁ vidhātuṁ nija-bhṛtya-bhāṣitaṁ
-> vyāptiṁ ca bhūteṣv akhileṣu cātmanaḥ
-> adṛśyatātyadbhuta-rūpam udvahan
+> satyaṁ vidhātuṁ nija-bhṛtya-bhāṣitaṁ\
+> vyāptiṁ ca bhūteṣv akhileṣu cātmanaḥ\
+> adṛśyatātyadbhuta-rūpam udvahan\
 > stambhe sabhāyāṁ na mṛgaṁ na mānuṣam
 
 *satyam*—verdaderas; *vidhātum*—para probar; *nija-bhṛtya-bhāṣitam*—las palabras de Su propio sirviente (Prahlāda Mahārāja, que había dicho que el Señor está en todas partes); *vyāptim*—la omnipresencia; *ca*—y; *bhūteṣu*—entre las entidades vivientes y los elementos; *akhileṣu*—todos; *ca*—también; *ātmanaḥ*—de Él mismo; *adṛśyata*—fue vista; *ati*—muy; *adbhuta*—maravillosa; *rūpam*—forma; *udvahan*—aceptar; *stambhe*—en la columna; *sabhāyām*—con la asamblea; *na*—no; *mṛgam*—un animal; *na*—no; *mānuṣam*—un ser humano.

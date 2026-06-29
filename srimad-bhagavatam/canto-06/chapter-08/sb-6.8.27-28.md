@@ -1,18 +1,18 @@
 ### SB 6.8.27-28
 
-> यन्नो भयं ग्रहेभ्योऽभूत्केतुभ्यो नृभ्य एव च
-> सरीसृपेभ्यो दंष्ट्रिभ्यो भूतेभ्योऽंहोभ्य एव च ॥२७॥
-> सर्वाण्येतानि भगवन्नामरूपानुकीर्तनात
+> यन्नो भयं ग्रहेभ्योऽभूत्केतुभ्यो नृभ्य एव च\
+> सरीसृपेभ्यो दंष्ट्रिभ्यो भूतेभ्योऽंहोभ्य एव च ॥२७॥\
+> सर्वाण्येतानि भगवन्नामरूपानुकीर्तनात\
 > प्रयान्तु सङ्क्षयं सद्यो ये नः श्रेयःप्रतीपकाः ॥२८॥
 
-> yan no bhayaṁ grahebhyo 'bhūt
-> ketubhyo nṛbhya eva ca
-> sarīsṛpebhyo daṁṣṭribhyo
+> yan no bhayaṁ grahebhyo 'bhūt\
+> ketubhyo nṛbhya eva ca\
+> sarīsṛpebhyo daṁṣṭribhyo\
 > bhūtebhyo 'ṁhobhya eva ca
 
-> sarvāṇy etāni bhagavan-
-> nāma-rūpānukīrtanāt
-> prayāntu saṅkṣayaṁ sadyo
+> sarvāṇy etāni bhagavan-\
+> nāma-rūpānukīrtanāt\
+> prayāntu saṅkṣayaṁ sadyo\
 > ye naḥ śreyaḥ-pratīpakāḥ
 
 *yat*—which; *naḥ*—our; *bhayam*—fear; *grahebhyaḥ*—from the Graha demons; *abhūt*—was; *ketubhyaḥ*—from meteors, or falling stars; *nṛbhyaḥ*—from envious human beings; *eva ca*—also; *sarīsṛpebhyaḥ*—from snakes or scorpions; *daṁṣṭribhyaḥ*—from animals with fierce teeth like tigers, wolves and boars; *bhūtebhyaḥ*—from ghosts or the material elements (earth, water, fire, etc.); *aṁhobhyaḥ*—from sinful activities; *eva ca*—as well as; *sarvāṇi etāni*—all these; *bhagavat-nāma-rūpa-anukīrtanāt*—by glorifying the transcendental form, name, attributes and paraphernalia of the Supreme Personality of Godhead; *prayāntu*—let them go; *saṅkṣayam*—to complete destruction; *sadyaḥ*—immediately; *ye*—which; *naḥ*—our; *śreyaḥ-pratīpakāḥ*—hindrances to well-being.

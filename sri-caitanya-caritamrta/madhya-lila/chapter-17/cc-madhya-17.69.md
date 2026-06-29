@@ -1,9 +1,9 @@
 ### CC Madhya 17.69
 
-> কৃষ্ণ — কৃপালু, আমায় বহুত কৃপা কৈলা ।
+> কৃষ্ণ — কৃপালু, আমায় বহুত কৃপা কৈলা ।\
 > বনপথে আনি’ আমায় বড় সুখ দিলা ॥৬৯॥
 
-> kṛṣṇa—kṛpālu, āmāya bahuta kṛpā kailā
+> kṛṣṇa—kṛpālu, āmāya bahuta kṛpā kailā\
 > vana-pathe āni' āmāya baḍa sukha dilā
 
 *kṛṣṇa*—Lord Kṛṣṇa; *kṛpālu*—very kind; *āmāya*—upon Me; *bahuta*—greatly; *kṛpā*—mercy; *kailā*—showed; *vana-pathe*—on the path in the forest; *āni'*—bringing; *āmāya*—unto Me; *baḍa*—very much; *sukha*—happiness; *dilā*—gave.

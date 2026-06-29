@@ -1,14 +1,14 @@
 ### CC Madhya 8.130-131
 
-> যদ্যপি রায় — প্রেমী, মহাভাগবতে ।
-> তাঁর মন কৃষ্ণমায়া নারে আচ্ছাদিতে ॥১৩০॥
-> তথাপি প্রভুর ইচ্ছা — পরম প্রবল ।
+> যদ্যপি রায় — প্রেমী, মহাভাগবতে ।\
+> তাঁর মন কৃষ্ণমায়া নারে আচ্ছাদিতে ॥১৩০॥\
+> তথাপি প্রভুর ইচ্ছা — পরম প্রবল ।\
 > জানিলেহ রায়ের মন হৈল টলমল ॥১৩১॥
 
-> yadyapi rāya—premī, mahā-bhāgavate
+> yadyapi rāya—premī, mahā-bhāgavate\
 > tāṅra mana kṛṣṇa-māyā nāre ācchādite
 
-> tathāpi prabhura icchā—parama prabala
+> tathāpi prabhura icchā—parama prabala\
 > jānileha rāyera mana haila ṭalamala
 
 *yadyapi*—although; *rāya*—Rāmānanda Rāya; *premī*—a great lover of Kṛṣṇa; *mahā-bhāgavate*—a topmost devotee; *tāṅra*—his; *mana*—mind; *kṛṣṇa-māyā*—the illusory energy of Kṛṣṇa; *nāre*—not able; *ācchādite*—to cover; *tathāpi*—still; *prabhura icchā*—the Lord's desire; *parama prabala*—very intense; *jānileha*—even though it was known; *rāyera mana*—the mind of Rāmānanda Rāya; *haila*—there was; *ṭalamala*—agitation.

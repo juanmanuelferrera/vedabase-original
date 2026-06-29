@@ -1,9 +1,9 @@
 ### CC Antya 6.323
 
-> আর গ্রাস লৈতে স্বরূপ হাতেতে ধরিলা  ।
+> আর গ্রাস লৈতে স্বরূপ হাতেতে ধরিলা  ।\
 > ‘তব যোগ্য নহে’ বলি’ বলে কাড়ি’ নিলা ॥৩২৩॥
 
-> āra grāsa laite svarūpa hātete dharilā
+> āra grāsa laite svarūpa hātete dharilā\
 > 'tava yogya nahe' bali' bale kāḍi' nilā
 
 *āra*—another; *grāsa*—morsel; *laite*—taking; *svarūpa*—Svarūpa Dāmodara; *hātete*—the hand; *dharilā*—caught; *tava*—for You; *yogya*—fit; *nahe*—is not; *bali'*—saying; *bale*—by force; *kāḍi'*—snatching; *nilā*—he took.

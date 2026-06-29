@@ -1,9 +1,9 @@
 ### CC Adi 17.109
 
-> পূর্বে যৈছে ছিলা তুমি এবেহ সেরূপ ।
+> পূর্বে যৈছে ছিলা তুমি এবেহ সেরূপ ।\
 > দুর্বিজ্ঞেয় নিত্যানন্দ — তোমার স্বরূপ ॥১০৯॥
 
-> pūrve yaiche chilā tumi ebeha se-rūpa
+> pūrve yaiche chilā tumi ebeha se-rūpa\
 > durvijñeya nityānanda--tomāra svarūpa
 
 *pūrve*—en el pasado; *yaiche*—del mismo modo que; *chilā*—eras; *tumi*—Tú; *ebeha*—ahora también; *se-rūpa*—lo mismo; *durvijñeya*—inconcebible; *nityānanda*—felicidad eterna; *tomāra*—Tu; *svarūpa*—identidad.

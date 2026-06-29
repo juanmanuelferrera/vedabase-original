@@ -1,9 +1,9 @@
 ### CC Madhya 13.82
 
-> উদ্দণ্ড নৃত্য প্রভু করিয়া হুঙ্কার ৷
+> উদ্দণ্ড নৃত্য প্রভু করিয়া হুঙ্কার ৷\
 > চক্র-ভ্রমি ভ্রমে যৈছে অলাত-আকার ॥৮২॥
 
-> uddaṇḍa nṛtya prabhu kariyā huṅkāra
+> uddaṇḍa nṛtya prabhu kariyā huṅkāra\
 > cakra-bhrami bhrame yaiche alāta-ākāra
 
 *uddaṇḍa*—saltando; *nṛtya*—danza; *prabhu*—Śrī Caitanya Mahāprabhu; *kariyā*—haciendo; *huṅkāra*—vibración sonora fuerte; *cakra-bhrami*—haciendo un movimiento circular como una rueda; *bhrame*—se mueve; *yaiche*—como si; *alāta-ākāra*—círculo de fuego.

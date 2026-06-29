@@ -1,11 +1,11 @@
 ### CC Antya 14.43
 
-> “শুন, বান্ধব, কৃষ্ণের মাধুরী ।
-> যার লোভে মোর মন, ছাড়ি’ লোক-বেদধর্ম,
+> “শুন, বান্ধব, কৃষ্ণের মাধুরী ।\
+> যার লোভে মোর মন, ছাড়ি’ লোক-বেদধর্ম,\
 > যোগী হঞা হইল ভিখারী ।। ৪৩ ।। ধ্রু ।। ॥৪৩॥
 
-> "śuna, bāndhava, kṛṣṇera mādhurī
-> yāra lobhe mora mana, chāḍi' loka-veda-dharma,
+> "śuna, bāndhava, kṛṣṇera mādhurī\
+> yāra lobhe mora mana, chāḍi' loka-veda-dharma,\
 > yogī hañā ha-ila bhikhārī
 
 *śuna*—por favor, oíd; *bāndhava*—Mis amigos; *kṛṣṇera mādhurī*—la dulzura del Señor Kṛṣṇa; *yāra*—por la cual; *lobhe*—por la codicia; *mora mana*—Mi mente; *chāḍi'*—abandonando; *loka-veda-dharma*—los principios religiosos sociales y Védicos; *yogī hañā*—habiéndose vuelto un yogī; *ha-ila bhikhārī*—se ha convertido en mendigo.

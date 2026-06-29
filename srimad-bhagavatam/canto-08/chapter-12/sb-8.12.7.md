@@ -1,13 +1,13 @@
 ### SB 8.12.7
 
-> त्वं ब्रह्म पूर्णममृतं विगुणं विशोकम
-> आनन्दमात्रमविकारमनन्यदन्यत
-> विश्वस्य हेतुरुदयस्थितिसंयमानाम
+> त्वं ब्रह्म पूर्णममृतं विगुणं विशोकम\
+> आनन्दमात्रमविकारमनन्यदन्यत\
+> विश्वस्य हेतुरुदयस्थितिसंयमानाम\
 > आत्मेश्वरश्च तदपेक्षतयानपेक्षः ॥७॥
 
-> tvaṁ brahma pūrṇam amṛtaṁ viguṇaṁ viśokam
-> ānanda-mātram avikāram ananyad anyat
-> viśvasya hetur udaya-sthiti-saṁyamānām
+> tvaṁ brahma pūrṇam amṛtaṁ viguṇaṁ viśokam\
+> ānanda-mātram avikāram ananyad anyat\
+> viśvasya hetur udaya-sthiti-saṁyamānām\
 > ātmeśvaraś ca tad-apekṣatayānapekṣaḥ
 
 *tvam*—Your Lordship; *brahma*—the all-pervading Absolute Truth; *pūrṇam*—fully complete; *amṛtam*—never to be vanquished; *viguṇam*—spiritually situated, free from the material modes of nature; *viśokam*—without lamentation; *ānanda-mātram*—always in transcendental bliss; *avikāram*—changeless; *ananyat*—separated from everything; *anyat*—yet You are everything; *viśvasya*—of the cosmic manifestation; *hetuḥ*—the cause; *udaya*—of the beginning; *sthiti*—maintenance; *saṁyamānām*—and of all the directors controlling the various departments of the cosmic manifestation; *ātma-īśvaraḥ*—the Supersoul giving direction to everyone; *ca*—also; *tat-apekṣatayā*—everyone depends upon You; *anapekṣaḥ*—always fully independent.

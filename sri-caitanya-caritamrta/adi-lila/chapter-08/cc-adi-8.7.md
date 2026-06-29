@@ -1,9 +1,9 @@
 ### CC Adi 8.7
 
-> এই সব না মানে যেবা করে কৃষ্ণভক্তি ।
+> এই সব না মানে যেবা করে কৃষ্ণভক্তি ।\
 > কৃষ্ণ-কৃপা নাহি তারে, নাহি তার গতি ॥৭॥
 
-> ei saba nā māne yebā kare kṛṣṇa-bhakti
+> ei saba nā māne yebā kare kṛṣṇa-bhakti\
 > kṛṣṇa-kṛpā nāhi tāre, nāhi tāra gati
 
 *ei*—these; *saba*—all; *nā māne*—does not accept; *yebā*—anyone who; *kare*—executes; *kṛṣṇa-bhakti*—devotional service; *kṛṣṇa-kṛpā*—mercy of Kṛṣṇa; *nāhi*—is not; *tāre*—unto him; *nāhi*—there is not; *tāra*—his; *gati*—advancement.

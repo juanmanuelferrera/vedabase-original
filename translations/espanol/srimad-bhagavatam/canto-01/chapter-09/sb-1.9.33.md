@@ -1,11 +1,11 @@
 ### SB 1.9.33
 
-> त्रिभुवनकमनं तमालवर्णं रविकरगौरवराम्बरं दधाने ।
+> त्रिभुवनकमनं तमालवर्णं रविकरगौरवराम्बरं दधाने ।\
 > वपुरलककुलावृताननाब्जं विजयसखे रतिरस्तु मेऽनवद्या ॥३३॥
 
-> tri-bhuvana-kamanaṁ tamāla-varṇaṁ
-> ravi-kara-gaura-varāmbaraṁ dadhāne
-> vapur alaka-kulāvṛtānanābjaṁ
+> tri-bhuvana-kamanaṁ tamāla-varṇaṁ\
+> ravi-kara-gaura-varāmbaraṁ dadhāne\
+> vapur alaka-kulāvṛtānanābjaṁ\
 > vijaya-sakhe ratir astu me 'navadyā
 
 *tri-bhuvana*—tres niveles de sistemas planetarios; *kamanam*—lo más deseable; *tamāla-varṇam*—azulado como el árbol *tamāla*; *ravi-kara*—rayos del sol; *gaura*—color dorado; *vara-ambaram*—atuendo reluciente; *dadhāne*—aquel que lleva puesto; *vapuḥ*—cuerpo; *alaka-kula-āvṛta*—cubierto con pinturas de pasta de sándalo; *anana-abjam*—cara cual loto; *vijaya-sakhe*—al amigo de Arjuna; *ratiḥ astu*—que la atracción repose en Él; *me*—mi; *anavadyā*—sin deseo de obtener resultados fruitivos.

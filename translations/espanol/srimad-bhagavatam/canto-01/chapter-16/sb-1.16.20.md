@@ -1,11 +1,11 @@
 ### SB 1.16.20
 
-> पादैर्न्यूनं शोचसि मैकपादमात्मानं वा वृषलैर्भोक्ष्यमाणम् ।
+> पादैर्न्यूनं शोचसि मैकपादमात्मानं वा वृषलैर्भोक्ष्यमाणम् ।\
 > आहो सुरादीन्हृतयज्ञभागान्प्रजा उत स्विन्मघवत्यवर्षति ॥२०॥
 
-> pādair nyūnaṁ śocasi maika-pādam
-> ātmānaṁ vā vṛṣalair bhokṣyamāṇam
-> āho surādīn hṛta-yajña-bhāgān
+> pādair nyūnaṁ śocasi maika-pādam\
+> ātmānaṁ vā vṛṣalair bhokṣyamāṇam\
+> āho surādīn hṛta-yajña-bhāgān\
 > prajā uta svin maghavaty avarṣati
 
 *pādaiḥ*—por tres patas; *nyūnam*—menos; *śocasi*—si te estás lamentando por eso; *mā*—mi; *eka-pādam*—solo una pata; *ātmānam*—el cuerpo de uno; *vā*—o; *vṛṣalaiḥ*—por los consumidores de carne ilegales; *bhokṣyamāṇam*—ser explotada; *āhoḥ*—en el sacrificio; *sura-ādīn*—los semidioses autorizados; *hṛta-yajña*—despojados del sacrificio; *bhāgān*—ración; *prajāḥ*—los seres vivientes; *uta*—creciente; *svit*—si; *maghavati*—con hambre y escasez; *avarṣati*—por la falta de lluvia.

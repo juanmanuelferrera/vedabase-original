@@ -1,11 +1,11 @@
 ### SB 4.4.31
 
-> वदत्येवं जने सत्या दृष्ट्वासुत्यागमद्भुतम् ।
+> वदत्येवं जने सत्या दृष्ट्वासुत्यागमद्भुतम् ।\
 > दक्षं तत्पार्षदा हन्तुमुदतिष्ठन्नुदायुधाः ॥३१॥
 
-> vadaty evaṁ jane satyā
-> dṛṣṭvāsu-tyāgam adbhutam
-> dakṣaṁ tat-pārṣadā hantum
+> vadaty evaṁ jane satyā\
+> dṛṣṭvāsu-tyāgam adbhutam\
+> dakṣaṁ tat-pārṣadā hantum\
 > udatiṣṭhann udāyudhāḥ
 
 *vadati*—comentaban; *evam*—de este modo; *jane*—mientras la gente; *satyāḥ*—de Satī; *dṛṣṭvā*—después de ver; *asu-tyāgam*—la muerte; *adbhutam*—maravillosa; *dakṣam*—a Dakṣa; *tat-pārṣadāḥ*—los asistentes del Señor Śiva; *hantum*—a matar; *udatiṣṭhan*—se levantaron; *udāyudhāḥ*—empuñando las armas.

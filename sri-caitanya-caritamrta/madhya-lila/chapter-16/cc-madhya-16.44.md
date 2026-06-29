@@ -1,9 +1,9 @@
 ### CC Madhya 16.44
 
-> সবা লঞা কৈল জগন্নাথ-দরশন ।
+> সবা লঞা কৈল জগন্নাথ-দরশন ।\
 > সবা লঞা আইলা পুনঃ আপন-ভবন ॥৪৪॥
 
-> sabā lañā kaila jagannātha-daraśana
+> sabā lañā kaila jagannātha-daraśana\
 > sabā lañā āilā punaḥ āpana-bhavana
 
 *sabā lañā*—taking all of them; *kaila*—performed; *jagannātha-daraśana*—seeing Lord Jagannātha; *sabā lañā*—taking them all; *āilā*—went back; *punaḥ*—again; *āpana-bhavana*—to His own residence.

@@ -1,11 +1,11 @@
 ### SB 2.10.13
 
-> एको नानात्वमन्विच्छन्योगतल्पात्समुत्थितः ।
+> एको नानात्वमन्विच्छन्योगतल्पात्समुत्थितः ।\
 > वीर्यं हिरण्मयं देवो मायया व्यसृजत्त्रिधा ॥१३॥
 
-> eko nānātvam anvicchan
-> yoga-talpāt samutthitaḥ
-> vīryaṁ hiraṇmayaṁ devo
+> eko nānātvam anvicchan\
+> yoga-talpāt samutthitaḥ\
+> vīryaṁ hiraṇmayaṁ devo\
 > māyayā vyasṛjat tridhā
 
 *ekaḥ*—Él, uno solo; *nānātvam*—variedades; *anvicchan*—deseando así; *yoga-talpāt*—desde la cama del sueño místico; *samutthitaḥ*—generando así; *vīryam*—el semen; *hiraṇmayam*—matiz dorado; *devaḥ*—el semidiós; *māyayā*—por la energía externa; *vyasṛjat*—creó perfectamente; *tridhā*—en tres aspectos.

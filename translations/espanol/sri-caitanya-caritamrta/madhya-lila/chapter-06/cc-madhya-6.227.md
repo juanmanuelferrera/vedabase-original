@@ -1,9 +1,9 @@
 ### CC Madhya 6.227
 
-> দেখি’ আনন্দিত হৈল মহাপ্রভুর মন ।
+> দেখি’ আনন্দিত হৈল মহাপ্রভুর মন ।\
 > প্রেমাবিষ্ট হঞা প্রভু কৈলা আলিঙ্গন ॥২২৭॥
 
-> dekhi' ānandita haila mahāprabhura mana
+> dekhi' ānandita haila mahāprabhura mana\
 > premāviṣṭa hañā prabhu kailā āliṅgana
 
 *dekhi'*—al ver esto; *ānandita*—muy complacida; *haila*—quedó; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *mana*—la mente; *prema-āviṣṭa*—absorto en el éxtasis del amor por Dios; *hañā*—estando; *prabhu*—Śrī Caitanya Mahāprabhu; *kailā*—hizo; *āliṅgana*—abrazar.

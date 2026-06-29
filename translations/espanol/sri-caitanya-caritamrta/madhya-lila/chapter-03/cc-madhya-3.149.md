@@ -1,9 +1,9 @@
 ### CC Madhya 3.149
 
-> এত বলি’ পুনঃ পুনঃ করে নমস্কার ।
+> এত বলি’ পুনঃ পুনঃ করে নমস্কার ।\
 > তুষ্ট হঞা আই কোলে করে বার বার ॥১৪৯॥
 
-> eta bali' punaḥ punaḥ kare namaskāra
+> eta bali' punaḥ punaḥ kare namaskāra\
 > tuṣṭa hañā āi kole kare bāra bāra
 
 *eta bali'*—diciendo esto; *punaḥ punaḥ*—una y otra vez; *kare*—ofrece; *namaskāra*—reverencias; *tuṣṭa hañā*—complacida; *āi*—madre Śacī; *kole*—en el regazo; *kare*—toma; *bāra bāra*—una y otra vez.

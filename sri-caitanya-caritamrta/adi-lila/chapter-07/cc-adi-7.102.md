@@ -1,9 +1,9 @@
 ### CC Adi 7.102
 
-> এত শুনি’ হাসি’ প্রভু বলিলা বচন ।
+> এত শুনি’ হাসি’ প্রভু বলিলা বচন ।\
 > দুঃখ না মানহ যদি, করি নিবেদন ॥১০২॥
 
-> eta śuni' hāsi' prabhu balilā vacana
+> eta śuni' hāsi' prabhu balilā vacana\
 > duḥkha nā mānaha yadi, kari nivedana
 
 *eta*—thus; *śuni'*—hearing; *hāsi'*—smiling; *prabhu*—Lord Caitanya Mahāprabhu; *balilā*—said; *vacana*—His words; *duḥkha*—unhappy; *nā*—do not; *mānaha*—take it; *yadi*—if; *kari*—I say; *nivedana*—something unto you.

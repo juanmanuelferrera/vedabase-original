@@ -1,13 +1,13 @@
 ### SB 3.16.6
 
-> यस्यामृतामलयशःश्रवणावगाहः
-> सद्यः पुनाति जगदाश्वपचाद्विकुण्ठः ।
-> सोऽहं भवद्भ्य उपलब्धसुतीर्थकीर्तिश्
+> यस्यामृतामलयशःश्रवणावगाहः\
+> सद्यः पुनाति जगदाश्वपचाद्विकुण्ठः ।\
+> सोऽहं भवद्भ्य उपलब्धसुतीर्थकीर्तिश्\
 > छिन्द्यां स्वबाहुमपि वः प्रतिकूलवृत्तिम् ॥६॥
 
-> yasyāmṛtāmala-yaśaḥ-śravaṇāvagāhaḥ
-> sadyaḥ punāti jagad āśvapacād vikuṇṭhaḥ
-> so 'haṁ bhavadbhya upalabdha-sutīrtha-kīrtiś
+> yasyāmṛtāmala-yaśaḥ-śravaṇāvagāhaḥ\
+> sadyaḥ punāti jagad āśvapacād vikuṇṭhaḥ\
+> so 'haṁ bhavadbhya upalabdha-sutīrtha-kīrtiś\
 > chindyāṁ sva-bāhum api vaḥ pratikūla-vṛttim
 
 *yasya*—de quien; *amṛta*—néctar; *amala*—exentas de mancha; *yaśaḥ*—glorias; *śravaṇa*—oyendo; *avagāhaḥ*—entrando en; *sadyaḥ*—inmediatamente; *punāti*—purifica; *jagat*—el universo; *āśva-pacāt*—incluso los comedores de perros; *vikuṇṭhaḥ*—sin ansiedad; *saḥ*—esa persona; *aham*—Yo soy; *bhavadbhyaḥ*—de ustedes; *upalabdha*—conseguida; *su-tīrtha*—el mejor lugar de peregrinaje; *kīrtiḥ*—la fama; *chindyām*—cortaría; *sva-bāhum*—Mi propio brazo; *api*—incluso; *vaḥ*—hacia ustedes; *pratikūla-vṛttim*—actuando enemistosamente.

@@ -1,11 +1,11 @@
 ### SB 9.18.51
 
-> एवं वर्षसहस्राणि मनःषष्ठैर्मनःसुखम
+> एवं वर्षसहस्राणि मनःषष्ठैर्मनःसुखम\
 > विदधानोऽपि नातृप्यत्सार्वभौमः कदिन्द्रियैः ॥५१॥
 
-> evaṁ varṣa-sahasrāṇi
-> manaḥ-ṣaṣṭhair manaḥ-sukham
-> vidadhāno 'pi nātṛpyat
+> evaṁ varṣa-sahasrāṇi\
+> manaḥ-ṣaṣṭhair manaḥ-sukham\
+> vidadhāno 'pi nātṛpyat\
 > sārva-bhaumaḥ kad-indriyaiḥ
 
 *evam*—in this way; *varṣa-sahasrāṇi*—for one thousand years; *manaḥ-ṣaṣṭhaiḥ*—by the mind and five knowledge-acquiring senses; *manaḥ-sukham*—temporary happiness created by the mind; *vidadhānaḥ*—executing; *api*—although; *na atṛpyat*—could not be satisfied; *sārva-bhaumaḥ*—although he was the king of the entire world; *kat-indriyaiḥ*—because of possessing impure senses.

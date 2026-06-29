@@ -1,11 +1,11 @@
 ### CC Madhya 22.55
 
-> তুলয়াম লবেনাপি ন স্বর্গং নাপুনর্ভবম্ ।
+> তুলয়াম লবেনাপি ন স্বর্গং নাপুনর্ভবম্ ।\
 > ভগবৎসঙ্গিসঙ্গস্য মর্ত্যানাং কিমুতাশিষঃ ॥৫৫॥
 
-> tulayāma lavenāpi
-> na svargaṁ nāpunar-bhavam
-> bhagavat-saṅgi-saṅgasya
+> tulayāma lavenāpi\
+> na svargaṁ nāpunar-bhavam\
+> bhagavat-saṅgi-saṅgasya\
 > martyānāṁ kimutāśiṣaḥ
 
 *tulayāma*—equiparamos; *lavena*—con un instante; *api*—incluso; *na*—no; *svargam*—los planetas celestiales; *na*—ni; *apunaḥ-bhavam*—la fusión en la existencia del Supremo; *bhagavat-saṅgi-saṅgasya*—de la asociación con devotos que siempre están asociados con la Suprema Personalidad de Dios; *martyānām*—de las personas destinadas a morir; *kim uta*—qué decir de; *āśiṣaḥ*—las bendiciones.

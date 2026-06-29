@@ -1,13 +1,13 @@
 ### SB 8.11.7
 
-> श्रीबलिरुवाच
-> सङ्ग्रामे वर्तमानानां कालचोदितकर्मणाम
+> श्रीबलिरुवाच\
+> सङ्ग्रामे वर्तमानानां कालचोदितकर्मणाम\
 > कीर्तिर्जयोऽजयो मृत्युः सर्वेषां स्युरनुक्रमात ॥७॥
 
-> śrī-balir uvāca
-> saṅgrāme vartamānānāṁ
-> kāla-codita-karmaṇām
-> kīrtir jayo 'jayo mṛtyuḥ
+> śrī-balir uvāca\
+> saṅgrāme vartamānānāṁ\
+> kāla-codita-karmaṇām\
+> kīrtir jayo 'jayo mṛtyuḥ\
 > sarveṣāṁ syur anukramāt
 
 *śrī-baliḥ uvāca*—Bali Mahārāja said; *saṅgrāme*—in the battlefield; *vartamānānām*—of all persons present here; *kāla-codita*—influenced by the course of time; *karmaṇām*—for persons engaged in fighting or any other activities; *kīrtiḥ*—reputation; *jayaḥ*—victory; *ajayaḥ*—defeat; *mṛtyuḥ*—death; *sarveṣām*—of all of them; *syuḥ*—must be done; *anukramāt*—one after another.

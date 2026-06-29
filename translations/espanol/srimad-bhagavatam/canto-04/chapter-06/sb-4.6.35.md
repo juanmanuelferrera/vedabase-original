@@ -1,11 +1,11 @@
 ### SB 4.6.35
 
-> विद्यातपोयोगपथमास्थितं तमधीश्वरम् ।
+> विद्यातपोयोगपथमास्थितं तमधीश्वरम् ।\
 > चरन्तं विश्वसुहृदं वात्सल्याल्लोकमङ्गलम् ॥३५॥
 
-> vidyā-tapo-yoga-patham
-> āsthitaṁ tam adhīśvaram
-> carantaṁ viśva-suhṛdaṁ
+> vidyā-tapo-yoga-patham\
+> āsthitaṁ tam adhīśvaram\
+> carantaṁ viśva-suhṛdaṁ\
 > vātsalyāl loka-maṅgalam
 
 *vidyā*—conocimiento; *tapaḥ*—austeridad; *yoga-patham*—el sendero del servicio devocional; *āsthitam*—situado; *tam*—a él (el Señor Śiva); *adhīśvaram*—el amo de los sentidos; *carantam*—ejecutando (austeridad, etc.); *viśva-suhṛdam*—el amigo del mundo entero; *vātsalyāt*—por su afecto sin reservas; *loka-maṅgalam*—auspicioso para todos.

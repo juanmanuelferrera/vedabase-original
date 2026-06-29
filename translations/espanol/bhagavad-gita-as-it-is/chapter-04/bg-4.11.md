@@ -1,11 +1,11 @@
 ### Bg 4.11
 
-> ये यथा मां प्रपद्यन्ते तांस्तथैव भजाम्यहम् ।
+> ये यथा मां प्रपद्यन्ते तांस्तथैव भजाम्यहम् ।\
 > मम वर्त्मानुवर्तन्ते मनुष्याः पार्थ सर्वशः ॥११॥
 
-> ye yathā māṁ prapadyante
-> tāṁs tathaiva bhajāmy aham
-> mama vartmānuvartante
+> ye yathā māṁ prapadyante\
+> tāṁs tathaiva bhajāmy aham\
+> mama vartmānuvartante\
 > manuṣyāḥ pārtha sarvaśaḥ
 
 *ye*—todos ellos; *yathā*—como; *mām*—a Mí; *prapadyante*—entregarse; *tān*—a ellos; *tathā*—así; *eva*—ciertamente; *bhajāmi*—Yo recompenso; *aham*—Yo; *mama*—Mi; *vartma*—sendero; *anuvartante*—siguen; *manuṣyāḥ*—todos los hombres; *pārtha*—¡oh, hijo de Pṛthā!; *sarvaśaḥ*—en todos los aspectos.

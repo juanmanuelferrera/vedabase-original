@@ -1,9 +1,9 @@
 ### CC Madhya 18.153
 
-> “তুমি আমায় আনি’ দেখাইলা বৃন্দাবন ।
+> “তুমি আমায় আনি’ দেখাইলা বৃন্দাবন ।\
 > এই ‘ঋণ’ আমি নারিব করিতে শোধন ॥১৫৩॥
 
-> "tumi āmāya āni' dekhāilā vṛndāvana
+> "tumi āmāya āni' dekhāilā vṛndāvana\
 > ei 'ṛṇa' āmi nāriba karite śodhana
 
 *tumi*—you; *āmāya*—Me; *āni'*—bringing; *dekhāilā*—showed; *vṛndāvana*—the holy place named Vṛndāvana; *ei ṛṇa*—this debt; *āmi nāriba*—I shall not be able; *karite śodhana*—to repay.

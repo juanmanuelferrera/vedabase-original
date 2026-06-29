@@ -1,11 +1,11 @@
 ### Bg 6.38
 
-> कच्चिन्नोभयविभ्रष्टश्छिन्नाभ्रमिव नश्यति ।
+> कच्चिन्नोभयविभ्रष्टश्छिन्नाभ्रमिव नश्यति ।\
 > अप्रतिष्ठो महाबाहो विमूढो ब्रह्मणः पथि ॥३८॥
 
-> kaccin nobhaya-vibhraṣṭaś
-> chinnābhram iva naśyati
-> apratiṣṭho mahā-bāho
+> kaccin nobhaya-vibhraṣṭaś\
+> chinnābhram iva naśyati\
+> apratiṣṭho mahā-bāho\
 > vimūḍho brahmaṇaḥ pathi
 
 *kaccit*—whether; *na*—not; *ubhaya*—both; *vibhraṣṭaḥ*—deviated from; *chinna*—fallen; *abhram*—cloud; *iva*—likened; *naśyati*—perishes; *apratiṣṭhaḥ*—without any position; *mahā-bāho*—O mighty-armed Kṛṣṇa; *vimūḍhaḥ*—bewildered; *brahmaṇaḥ*—of Transcendence; *pathi*—on the path.

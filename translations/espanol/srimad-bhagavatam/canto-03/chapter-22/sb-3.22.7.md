@@ -1,11 +1,11 @@
 ### SB 3.22.7
 
-> दिष्ट्या त्वयानुशिष्टोऽहं कृतश्चानुग्रहो महान् ।
+> दिष्ट्या त्वयानुशिष्टोऽहं कृतश्चानुग्रहो महान् ।\
 > अपावृतैः कर्णरन्ध्रैर्जुष्टा दिष्ट्योशतीर्गिरः ॥७॥
 
-> diṣṭyā tvayānuśiṣṭo 'haṁ
-> kṛtaś cānugraho mahān
-> apāvṛtaiḥ karṇa-randhrair
+> diṣṭyā tvayānuśiṣṭo 'haṁ\
+> kṛtaś cānugraho mahān\
+> apāvṛtaiḥ karṇa-randhrair\
 > juṣṭā diṣṭyośatīr giraḥ
 
 *diṣṭyā*—afortunadamente; *tvayā*—por ti; *anuśiṣṭaḥ*—instruido; *aham*—yo; *kṛtaḥ*—concedido; *ca*—y; *anugrahaḥ*—favor; *mahān*—gran; *apāvṛtaiḥ*—abiertos; *karṇa-randhraiḥ*—con los agujeros de los oídos; *juṣṭāḥ*—recibido; *diṣṭyā*—por buena fortuna; *uśatīḥ*—puras; *giraḥ*—palabras.

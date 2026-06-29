@@ -1,9 +1,9 @@
 ### CC Madhya 14.207
 
-> “তোমার ঠাকুর, দেখ এত সম্পত্তি ছাড়ি’  ।
+> “তোমার ঠাকুর, দেখ এত সম্পত্তি ছাড়ি’  ।\
 > পত্র-ফল-ফুল-লোভে গেলা পুষ্পবাড়ী ॥২০৭॥
 
-> "tomāra ṭhākura, dekha eta sampatti chāḍi'
+> "tomāra ṭhākura, dekha eta sampatti chāḍi'\
 > patra-phala-phula-lobhe gelā puṣpa-bāḍī
 
 *tomāra ṭhākura*—vuestro Señor; *dekha*—ved; *eta sampatti chāḍi'*—abandonando tanta opulencia; *patra-phala-phula*—hojas, frutas y flores; *lobhe*—por el deseo de; *gelā*—fue; *puṣpa-bāḍī*—al jardín de flores de Guṇḍicā.

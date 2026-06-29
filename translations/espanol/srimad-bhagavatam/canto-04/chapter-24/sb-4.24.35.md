@@ -1,11 +1,11 @@
 ### SB 4.24.35
 
-> सङ्कर्षणाय सूक्ष्माय दुरन्तायान्तकाय च ।
+> सङ्कर्षणाय सूक्ष्माय दुरन्तायान्तकाय च ।\
 > नमो विश्वप्रबोधाय प्रद्युम्नायान्तरात्मने ॥३५॥
 
-> saṅkarṣaṇāya sūkṣmāya
-> durantāyāntakāya ca
-> namo viśva-prabodhāya
+> saṅkarṣaṇāya sūkṣmāya\
+> durantāyāntakāya ca\
+> namo viśva-prabodhāya\
 > pradyumnāyāntar-ātmane
 
 *saṅkarṣaṇāya*—al señor de la integración; *sūkṣmāya*—a los componentes materiales sutiles no manifiestos; *durantāya*—al insuperable; *antakāya*—al señor de la desintegración; *ca*—también; *namaḥ*—reverencias; *viśva-prabodhāya*—al señor de la evolución del universo; *pradyumnāya*—al Señor Pradyumna; *antaḥ-ātmane*—a la Superalma que está en el corazón de todos.

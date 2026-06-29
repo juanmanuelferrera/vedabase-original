@@ -1,11 +1,11 @@
 ### SB 2.8.12
 
-> यावान्कल्पो विकल्पो वा यथा कालोऽनुमीयते ।
+> यावान्कल्पो विकल्पो वा यथा कालोऽनुमीयते ।\
 > भूतभव्यभवच्छब्द आयुर्मानं च यत्सतः ॥१२॥
 
-> yāvān kalpo vikalpo vā
-> yathā kālo 'numīyate
-> bhūta-bhavya-bhavac-chabda
+> yāvān kalpo vikalpo vā\
+> yathā kālo 'numīyate\
+> bhūta-bhavya-bhavac-chabda\
 > āyur-mānaṁ ca yat sataḥ
 
 *yāvān*—tal como es; *kalpaḥ*—el lapso de tiempo que transcurre entre la creación y la aniquilación; *vikalpaḥ*—la creación y aniquilación secundarias; *vā*—o; *yathā*—así como también; *kālaḥ*—el tiempo; *anumīyate*—se mide; *bhūta*—pasado; *bhavya*—futuro; *bhavat*—presente; *śabdaḥ*—sonido; *āyuḥ*—la duración de la vida; *mānam*—medida; *ca*—también; *yat*—que; *sataḥ*—de todos los seres vivientes de todos los planetas.

@@ -1,11 +1,11 @@
 ### Bg 2.58
 
-> यदा संहरते चायं कूर्मोऽङ्गानीव सर्वशः ।
+> यदा संहरते चायं कूर्मोऽङ्गानीव सर्वशः ।\
 > इन्द्रियाणीन्द्रियार्थेभ्यस्तस्य प्रज्ञा प्रतिष्ठिता ॥५८॥
 
-> yadā saṁharate cāyaṁ
-> kūrmo'ṅgānīva sarvaśaḥ
-> indriyāṇīndriyārthebhyas
+> yadā saṁharate cāyaṁ\
+> kūrmo'ṅgānīva sarvaśaḥ\
+> indriyāṇīndriyārthebhyas\
 > tasya prajñā pratiṣṭhitā
 
 *yadā*—cuando; *saṁharate*—retrae; *ca*—también; *ayam*—todos estos; *kūrmaḥ*—tortuga; *aṅgāni*—extremidades; *iva*—como; *sarvaśaḥ*—por completo; *indriyāṇi*—sentidos; *indriya-arthebhyaḥ*—de los objetos de los sentidos; *tasya*—su; *prajñā*—conciencia; *pratiṣṭhitā*—fija.

@@ -1,9 +1,9 @@
 ### CC Antya 19.108
 
-> মহিষীর গীত যেন ‘দশমে’র শেষে ।
+> মহিষীর গীত যেন ‘দশমে’র শেষে ।\
 > পণ্ডিতে না বুঝে তার অর্থবিশেষে ॥১০৮॥
 
-> mahiṣīra gīta yena 'daśame'ra śeṣe
+> mahiṣīra gīta yena 'daśame'ra śeṣe\
 > paṇḍite nā bujhe tāra artha-viśeṣe
 
 *mahiṣīra*—of the queens; *gīta*—the songs; *yena*—just as; *daśamera*—of the Tenth Canto; *śeṣe*—at the end; *paṇḍite*—very learned scholars; *nā*—not; *bujhe*—understand; *tāra*—its; *artha-viśeṣe*—particular meaning.

@@ -1,18 +1,18 @@
 ### SB 4.9.39-40
 
-> सदश्वं रथमारुह्य कार्तस्वरपरिष्कृतम् ।
-> ब्राह्मणैः कुलवृद्धैश्च पर्यस्तोऽमात्यबन्धुभिः ॥३९॥
-> शङ्खदुन्दुभिनादेन ब्रह्मघोषेण वेणुभिः ।
+> सदश्वं रथमारुह्य कार्तस्वरपरिष्कृतम् ।\
+> ब्राह्मणैः कुलवृद्धैश्च पर्यस्तोऽमात्यबन्धुभिः ॥३९॥\
+> शङ्खदुन्दुभिनादेन ब्रह्मघोषेण वेणुभिः ।\
 > निश्चक्राम पुरात्तूर्णमात्मजाभीक्षणोत्सुकः ॥४०॥
 
-> sad-aśvaṁ ratham āruhya
-> kārtasvara-pariṣkṛtam
-> brāhmaṇaiḥ kula-vṛddhaiś ca
+> sad-aśvaṁ ratham āruhya\
+> kārtasvara-pariṣkṛtam\
+> brāhmaṇaiḥ kula-vṛddhaiś ca\
 > paryasto 'mātya-bandhubhiḥ
 
-> śaṅkha-dundubhi-nādena
-> brahma-ghoṣeṇa veṇubhiḥ
-> niścakrāma purāt tūrṇam
+> śaṅkha-dundubhi-nādena\
+> brahma-ghoṣeṇa veṇubhiḥ\
+> niścakrāma purāt tūrṇam\
 > ātmajābhīkṣaṇotsukaḥ
 
 *sat-aśvam*—drawn by very fine horses; *ratham*—chariot; *āruhya*—getting on; *kārtasvara-pariṣkṛtam*—bedecked with golden filigree; *brāhmaṇaiḥ*—with *brāhmaṇas*; *kula-vṛddhaiḥ*—along with elderly personalities of the family; *ca*—also; *paryastaḥ*—being surrounded; *amātya*—by officers and ministers; *bandhubhiḥ*—and friends; *śaṅkha*—of conchshells; *dundubhi*—and kettledrums; *nādena*—with the sound; *brahma-ghoṣeṇa*—by the chanting of Vedic *mantras*; *veṇubhiḥ*—by flutes; *niścakrāma*—he came out; *purāt*—from the city; *tūrṇam*—with great haste; *ātma-ja*—son; *abhīkṣaṇa*—to see; *utsukaḥ*—very eager.

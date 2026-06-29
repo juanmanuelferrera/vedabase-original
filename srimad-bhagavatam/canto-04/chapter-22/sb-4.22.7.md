@@ -1,13 +1,13 @@
 ### SB 4.22.7
 
-> पृथुरुवाच
-> अहो आचरितं किं मे मङ्गलं मङ्गलायनाः ।
+> पृथुरुवाच\
+> अहो आचरितं किं मे मङ्गलं मङ्गलायनाः ।\
 > यस्य वो दर्शनं ह्यासीद्दुर्दर्शानां च योगिभिः ॥७॥
 
-> pṛthur uvāca
-> aho ācaritaṁ kiṁ me
-> maṅgalaṁ maṅgalāyanāḥ
-> yasya vo darśanaṁ hy āsīd
+> pṛthur uvāca\
+> aho ācaritaṁ kiṁ me\
+> maṅgalaṁ maṅgalāyanāḥ\
+> yasya vo darśanaṁ hy āsīd\
 > durdarśānāṁ ca yogibhiḥ
 
 *pṛthuḥ uvāca*—King Pṛthu spoke; *aho*—O Lord; *ācaritam*—practice; *kim*—what; *me*—by me; *maṅgalam*—good fortune; *maṅgala-āyanāḥ*—O personified good fortune; *yasya*—by which; *vaḥ*—your; *darśanam*—audience; *hi*—certainly; *āsīt*—became possible; *durdarśānām*—visible with great difficulty; *ca*—also; *yogibhiḥ*—by great mystic *yogīs.*

@@ -1,11 +1,11 @@
 ### SB 1.11.28
 
-> प्रविष्टस्तु गृहं पित्रोः परिष्वक्तः स्वमातृभिः ।
+> प्रविष्टस्तु गृहं पित्रोः परिष्वक्तः स्वमातृभिः ।\
 > ववन्दे शिरसा सप्त देवकीप्रमुखा मुदा ॥२८॥
 
-> praviṣṭas tu gṛhaṁ pitroḥ
-> pariṣvaktaḥ sva-mātṛbhiḥ
-> vavande śirasā sapta
+> praviṣṭas tu gṛhaṁ pitroḥ\
+> pariṣvaktaḥ sva-mātṛbhiḥ\
+> vavande śirasā sapta\
 > devakī-pramukhā mudā
 
 *praviṣṭaḥ*—después de entrar; *tu*—pero; *gṛham*—casas; *pitroḥ*—del padre; *pariṣvaktaḥ*—abrazado; *sva-mātṛbhiḥ*—por Sus propias madres; *vavande*—ofreció reverencias; *śirasā*—Su cabeza; *sapta*—siete; *devakī*—Devakī; *pramukhā*—encabezadas por; *mudā*—con mucho gusto.

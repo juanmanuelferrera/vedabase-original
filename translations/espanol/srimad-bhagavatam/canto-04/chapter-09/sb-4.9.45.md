@@ -1,11 +1,11 @@
 ### SB 4.9.45
 
-> अभिवन्द्य पितुः पादावाशीर्भिश्चाभिमन्त्रितः ।
+> अभिवन्द्य पितुः पादावाशीर्भिश्चाभिमन्त्रितः ।\
 > ननाम मातरौ शीर्ष्णा सत्कृतः सज्जनाग्रणीः ॥४५॥
 
-> abhivandya pituḥ pādāv
-> āśīrbhiś cābhimantritaḥ
-> nanāma mātarau śīrṣṇā
+> abhivandya pituḥ pādāv\
+> āśīrbhiś cābhimantritaḥ\
+> nanāma mātarau śīrṣṇā\
 > sat-kṛtaḥ saj-janāgraṇīḥ
 
 *abhivandya*—adorar; *pituḥ*—de su padre; *pādau*—los pies; *āśīrbhiḥ*—con bendiciones; *ca*—y; *abhimantritaḥ*—fue tratado; *nanāma*—se postró; *mātarau*—a sus dos madres; *śīrṣṇā*—con su cabeza; *sat-kṛtaḥ*—fue honrado; *sat-jana*—de los nobles; *agraṇīḥ*—el principal.

@@ -1,13 +1,13 @@
 ### CC Madhya 22.53
 
-> নৈষাং মতিস্তাবদুরুক্রমাঙ্ঘ্রিং
-> স্পৃশত্যনর্থাপগমো যদর্থঃ ।
-> মহীয়সাং পাদরজোঽভিষেকং
+> নৈষাং মতিস্তাবদুরুক্রমাঙ্ঘ্রিং\
+> স্পৃশত্যনর্থাপগমো যদর্থঃ ।\
+> মহীয়সাং পাদরজোঽভিষেকং\
 > নিষ্কিঞ্চনানাং ন বৃণীত যাবৎ ॥৫৩॥
 
-> naiṣāṁ matis tāvad urukramāṅghriṁ
-> spṛśaty anarthāpagamo yad-arthaḥ
-> mahīyasāṁ pāda-rajo-'bhiṣekaṁ
+> naiṣāṁ matis tāvad urukramāṅghriṁ\
+> spṛśaty anarthāpagamo yad-arthaḥ\
+> mahīyasāṁ pāda-rajo-'bhiṣekaṁ\
 > niṣkiñcanānāṁ na vṛṇīta yāvat
 
 *na*—no; *eṣām*—de aquellos que están apegados a la vida hogareña; *matiḥ*—el interés; *tāvat*—durante tanto tiempo; *urukrama-aṅghrim*—los pies de loto de la Suprema Personalidad de Dios, a quien se acreditan actividades poco comunes; *spṛśati*—toca; *anartha*—de cosas indeseadas; *apagamaḥ*—eliminación; *yat*—de lo cual; *arthaḥ*—resultado; *mahīyasām*—de las grandes personalidades, devotos; *pāda-rajaḥ*—del polvo de los pies de loto; *abhiṣekam*—aspersión sobre la cabeza; *niṣkiñcanānām*—quienes están completamente desapegados de las posesiones materiales; *na vṛṇīta*—no lo hace; *yāvat*—mientras.

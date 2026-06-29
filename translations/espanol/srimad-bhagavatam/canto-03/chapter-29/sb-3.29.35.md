@@ -1,11 +1,11 @@
 ### SB 3.29.35
 
-> भक्तियोगश्च योगश्च मया मानव्युदीरितः ।
+> भक्तियोगश्च योगश्च मया मानव्युदीरितः ।\
 > ययोरेकतरेणैव पुरुषः पुरुषं व्रजेत् ॥३५॥
 
-> bhakti-yogaś ca yogaś ca
-> mayā mānavy udīritaḥ
-> yayor ekatareṇaiva
+> bhakti-yogaś ca yogaś ca\
+> mayā mānavy udīritaḥ\
+> yayor ekatareṇaiva\
 > puruṣaḥ puruṣaṁ vrajet
 
 *bhakti-yogaḥ*—servicio devocional; *ca*—y; *yogaḥ*—*yoga* místico; *ca*—también; *mayā*—por Mí; *mānavi*—¡oh, hija de Manu!; *udīritaḥ*—explicada; *yayoḥ*—de las dos que; *ekatareṇa*—con cualquiera de ellas; *eva*—sola; *puruṣaḥ*—una persona; *puruṣam*—a la Persona Suprema; *vrajet*—puede alcanzar.

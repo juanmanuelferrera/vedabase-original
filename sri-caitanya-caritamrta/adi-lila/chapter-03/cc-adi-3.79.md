@@ -1,9 +1,9 @@
 ### CC Adi 3.79
 
-> কোটি অশ্বমেধ এক কৃষ্ণ নাম সম ।
+> কোটি অশ্বমেধ এক কৃষ্ণ নাম সম ।\
 > যেই কহে, সে পাষণ্ডী, দণ্ডে তারে যম ॥৭৯॥
 
-> koṭi aśvamedha eka kṛṣṇa nāma sama
+> koṭi aśvamedha eka kṛṣṇa nāma sama\
 > yei kahe, se pāṣaṇḍī, daṇḍe tāre yama
 
 *koṭi*—ten million; *aśvamedha*—horse sacrifices; *eka*—one; *kṛṣṇa*—of Lord Kṛṣṇa; *nāma*—name; *sama*—equal to; *yei*—one who; *kahe*—says; *se*—he; *pāṣaṇḍī*—atheist; *daṇḍe*—punishes; *tāre*—him; *yama*—Yamarāja.

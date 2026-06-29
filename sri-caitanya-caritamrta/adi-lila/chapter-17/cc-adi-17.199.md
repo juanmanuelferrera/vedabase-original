@@ -1,9 +1,9 @@
 ### CC Adi 17.199
 
-> কেহ — হরিদাস, সদা বলে ‘হরি’ ‘হরি’ ।
+> কেহ — হরিদাস, সদা বলে ‘হরি’ ‘হরি’ ।\
 > জানি কার ঘরে ধন করিবেক চুরি ॥১৯৯॥
 
-> keha—haridāsa, sadā bale 'hari' 'hari'
+> keha—haridāsa, sadā bale 'hari' 'hari'\
 > jāni kāra ghare dhana karibeka curi
 
 *keha*—some of them; *haridāsa*—of the name Haridāsa; *sadā*—always; *bale*—says; *harihari*—the name of the Lord, "Hari, Hari"; *jāni*—I understand; *kāra*—someone's; *ghare*—at home; *dhana*—wealth; *karibeka*—will do; *curi*—theft.

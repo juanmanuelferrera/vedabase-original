@@ -1,11 +1,11 @@
 ### SB 1.14.42
 
-> कच्चित्त्वं नागमोऽगम्यां गम्यां वासत्कृतां स्त्रियम् ।
+> कच्चित्त्वं नागमोऽगम्यां गम्यां वासत्कृतां स्त्रियम् ।\
 > पराजितो वाथ भवान्नोत्तमैर्नासमैः पथि ॥४२॥
 
-> kaccit tvaṁ nāgamo 'gamyāṁ
-> gamyāṁ vāsat-kṛtāṁ striyam
-> parājito vātha bhavān
+> kaccit tvaṁ nāgamo 'gamyāṁ\
+> gamyāṁ vāsat-kṛtāṁ striyam\
+> parājito vātha bhavān\
 > nottamair nāsamaiḥ pathi
 
 *kaccit*—si; *tvam*—tú mismo; *na*—no; *agamaḥ*—te pusiste en contacto; *agamyām*—censurable; *gamyām*—aceptable; *vā*—o; *asat-kṛtām*—tratado indebidamente; *striyam*—una mujer; *parājitaḥ*—vencido por; *vā*—o; *atha*—al fin y al cabo; *bhavān*—tu buena persona; *na*—ni; *uttamaiḥ*—mediante un poder superior; *na*—no; *asamaiḥ*—por iguales; *pathi*—en el camino.

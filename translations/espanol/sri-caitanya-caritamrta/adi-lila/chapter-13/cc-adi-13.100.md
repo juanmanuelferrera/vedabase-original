@@ -1,13 +1,13 @@
 ### CC Adi 13.100
 
-> দেখি’ উপরাগ হাসি’, শীঘ্র গঙ্গাঘাটে আসি’,
-> আনন্দে করিল গঙ্গাস্নান ।
-> পাঞা উপরাগ-ছলে, আপনার মনোবলে,
+> দেখি’ উপরাগ হাসি’, শীঘ্র গঙ্গাঘাটে আসি’,\
+> আনন্দে করিল গঙ্গাস্নান ।\
+> পাঞা উপরাগ-ছলে, আপনার মনোবলে,\
 > ব্রাহ্মণেরে দিল নানা দান ॥১০০॥
 
-> dekhi' uparāga hāsi', śīghra gaṅgā-ghāṭe āsi'
-> ānande karila gaṅgā-snāna
-> pāñā uparāga-chale, āpanāra mano-bale,
+> dekhi' uparāga hāsi', śīghra gaṅgā-ghāṭe āsi'\
+> ānande karila gaṅgā-snāna\
+> pāñā uparāga-chale, āpanāra mano-bale,\
 > brāhmaṇere dila nānā dāna
 
 *dekhi'*—viendo; *uparāga*—el eclipse; *hāsi'*—riendo; *śīghra*—muy pronto; *gaṅgā-ghāṭe*—a la orilla del Ganges; *āsi'*—yendo; *ānande*—con júbilo; *karila*—tomaron; *gaṅgā-snāna*—baño en el Ganges; *pāñā*—aprovechando; *uparāga-chale*—con motivo del eclipse lunar; *āpanāra*—Su propia; *manaḥ-bale*—por la fuerza de Su mente; *brāhmaṇere*—a los brāhmaṇas; *dila*—dio; *nānā*—diversas; *dāna*—caridades.

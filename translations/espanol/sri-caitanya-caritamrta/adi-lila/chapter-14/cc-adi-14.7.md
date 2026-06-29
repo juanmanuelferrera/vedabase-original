@@ -1,9 +1,9 @@
 ### CC Adi 14.7
 
-> গৃহে দুই জন দেখি লঘুপদ-চিহ্ন ।
+> গৃহে দুই জন দেখি লঘুপদ-চিহ্ন ।\
 > তাহে শোভে ধ্বজ, বজ্র, শঙ্খ, চক্র, মীন ॥৭॥
 
-> gṛhe dui jana dekhi laghupada-cihna
+> gṛhe dui jana dekhi laghupada-cihna\
 > tāhe śobhe dhvaja, vajra, śaṅkha, cakra, mīna
 
 *gṛhe*—en la casa; *dui jana*—el padre y la madre; *dekhi*—al ver; *laghu-pada-cihna*—las marcas de los pies de loto, que eran muy pequeñas en ese entonces; *tāhe*—en ellas; *śobhe*—que se veían hermosamente; *dhvaja*—bandera; *vajra*—rayo; *śaṅkha*—caracola; *cakra*—disco; *mīna*—pez.

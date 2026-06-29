@@ -1,11 +1,11 @@
 ### CC Madhya 4.197
 
-> অয়ি দীনদয়ার্দ্রনাথ হে মথুরানাথ কদাবলোক্যসে ।
+> অয়ি দীনদয়ার্দ্রনাথ হে মথুরানাথ কদাবলোক্যসে ।\
 > হৃদয়ং ত্বদলোককাতরং দয়িত ভ্রাম্যতি কিং করোম্যহম্ ॥১৯৭॥
 
-> ayi dīna-dayārdra nātha he
-> mathurā-nātha kadāvalokyase
-> hṛdayaṁ tvad-aloka-kātaraṁ
+> ayi dīna-dayārdra nātha he\
+> mathurā-nātha kadāvalokyase\
+> hṛdayaṁ tvad-aloka-kātaraṁ\
 > dayita bhrāmyati kiṁ karomy aham
 
 *ayi*—O My Lord; *dīna*—on the poor; *dayā-ārdra*—compassionate; *nātha*—O master; *he*—O; *mathurā-nātha*—the master of Mathurā; *kadā*—when; *avalokyase*—I shall see You; *hṛdayam*—My heart; *tvat*—of You; *aloka*—without seeing; *kātaram*—very much aggrieved; *dayita*—O most beloved; *bhrāmyati*—becomes overwhelmed; *kim*—what; *karomi*—shall do; *aham*—I.

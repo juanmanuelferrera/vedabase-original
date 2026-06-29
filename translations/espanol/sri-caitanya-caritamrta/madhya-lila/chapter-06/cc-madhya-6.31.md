@@ -1,9 +1,9 @@
 ### CC Madhya 6.31
 
-> সার্বভৌমে জানাঞা সবা নিল অভ্যন্তরে ।
+> সার্বভৌমে জানাঞা সবা নিল অভ্যন্তরে ।\
 > নিত্যানন্দ-গোসাঞিরে তেঁহো কৈল নমস্কারে ॥৩১॥
 
-> sārvabhaume jānāñā sabā nila abhyantare
+> sārvabhaume jānāñā sabā nila abhyantare\
 > nityānanda-gosāñire teṅho kaila namaskāre
 
 *sārvabhaume*—a Sārvabhauma Bhaṭṭācārya; *jānāñā*—informando y pidiendo permiso; *sabā*—a todos los devotos; *nila*—llevó; *abhyantare*—al interior de la casa; *nityānanda-gosāñire*—al Señor Nityānanda Prabhu; *teṅho*—Sārvabhauma Bhaṭṭācārya; *kaila*—ofreció; *namaskāre*—reverencias.

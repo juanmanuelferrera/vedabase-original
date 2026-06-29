@@ -1,11 +1,11 @@
 ### Bg 4.10
 
-> वीतरागभयक्रोधा मन्मया मामुपाश्रिताः ।
+> वीतरागभयक्रोधा मन्मया मामुपाश्रिताः ।\
 > बहवो ज्ञानतपसा पूता मद्भावमागताः ॥१०॥
 
-> vīta-rāga-bhaya-krodhā
-> man-mayā mām upāśritāḥ
-> bahavo jñāna-tapasā
+> vīta-rāga-bhaya-krodhā\
+> man-mayā mām upāśritāḥ\
+> bahavo jñāna-tapasā\
 > pūtā mad-bhāvam āgatāḥ
 
 *vīta*—liberado de; *rāga*—apego; *bhaya*—temor; *krodhāḥ*—ira; *mat-mayā*—comple-tamente en Mí; *mām*—en Mí; *upāśritāḥ*—estando completamente situado; *bahavaḥ*—muchos; *jñāna*—conocimiento; *tapasā*—mediante la penitencia; *pūtāḥ*—estando purificados; *mat-bhāvam*—amor trascendental por Mí; *āgatāḥ*—alcanzan.

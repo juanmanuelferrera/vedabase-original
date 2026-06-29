@@ -1,9 +1,9 @@
 ### CC Adi 10.68
 
-> প্রভু যাঁর নিত্য লয় থোড়-মোচা-ফল ।
+> প্রভু যাঁর নিত্য লয় থোড়-মোচা-ফল ।\
 > যাঁর ফুটা-লৌহপাত্রে প্রভু পিলা জল ॥৬৮॥
 
-> prabhu yāṅra nitya laya thoḍa-mocā-phala
+> prabhu yāṅra nitya laya thoḍa-mocā-phala\
 > yāṅra phuṭā-lauhapātre prabhu pilā jala
 
 *prabhu*—el Señor; *yāṅra*—cuya; *nitya*—a diario; *laya*—toma; *thoḍa*—la pulpa del plátano; *mocā*—las flores del plátano; *phala*—los frutos del plátano; *yāṅra*—cuyo; *phuṭā*—roto; *lauha-pātre*—en la olla de hierro; *prabhu*—el Señor; *pilā*—bebió; *jala*—agua.

@@ -1,11 +1,11 @@
 ### SB 6.18.9
 
-> तत्कर्मगुणवीर्याणि काश्यपस्य महात्मनः
+> तत्कर्मगुणवीर्याणि काश्यपस्य महात्मनः\
 > पश्चाद्वक्ष्यामहेऽदित्यां यथैवावततार ह ॥९॥
 
-> tat-karma-guṇa-vīryāṇi
-> kāśyapasya mahātmanaḥ
-> paścād vakṣyāmahe 'dityāṁ
+> tat-karma-guṇa-vīryāṇi\
+> kāśyapasya mahātmanaḥ\
+> paścād vakṣyāmahe 'dityāṁ\
 > yathaivāvatatāra ha
 
 *tat*—His; *karma*—activities; *guṇa*—qualities; *vīryāṇi*—and power; *kāśyapasya*—of the son of Kaśyapa; *mahā-ātmanaḥ*—the great soul; *paścāt*—later; *vakṣyāmahe*—I shall describe; *adityām*—in Aditi; *yathā*—how; *eva*—certainly; *avatatāra*—descended; *ha*—indeed.

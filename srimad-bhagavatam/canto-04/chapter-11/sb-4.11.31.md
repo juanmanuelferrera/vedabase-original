@@ -1,11 +1,11 @@
 ### SB 4.11.31
 
-> संयच्छ रोषं भद्रं ते प्रतीपं श्रेयसां परम् ।
+> संयच्छ रोषं भद्रं ते प्रतीपं श्रेयसां परम् ।\
 > श्रुतेन भूयसा राजन्नगदेन यथामयम् ॥३१॥
 
-> saṁyaccha roṣaṁ bhadraṁ te
-> pratīpaṁ śreyasāṁ param
-> śrutena bhūyasā rājann
+> saṁyaccha roṣaṁ bhadraṁ te\
+> pratīpaṁ śreyasāṁ param\
+> śrutena bhūyasā rājann\
 > agadena yathāmayam
 
 *saṁyaccha*—just control; *roṣam*—anger; *bhadram*—all good fortune; *te*—to you; *pratīpam*—enemy; *śreyasām*—of all goodness; *param*—the foremost; *śrutena*—by hearing; *bhūyasā*—constantly; *rājan*—my dear King; *agadena*—by medicinal treatment; *yathā*—as; *āmayam*—disease.

@@ -1,9 +1,9 @@
 ### CC Madhya 13.176
 
-> প্রভুর নৃত্য প্রেম দেখি’ হয় চমৎকার  ।
+> প্রভুর নৃত্য প্রেম দেখি’ হয় চমৎকার  ।\
 > কৃষ্ণপ্রেম উছলিল হৃদয়ে সবার ॥১৭৬॥
 
-> prabhura nṛtya prema dekhi' haya camatkāra
+> prabhura nṛtya prema dekhi' haya camatkāra\
 > kṛṣṇa-prema uchalila hṛdaye sabāra
 
 *prabhura*—of Śrī Caitanya Mahāprabhu; *nṛtya*—dancing; *prema*—love; *dekhi'*—seeing; *haya*—become; *camatkāra*—astonished; *kṛṣṇa-prema*—love of Kṛṣṇa; *uchalila*—infatuated; *hṛdaye*—in the hearts; *sabāra*—of everyone.

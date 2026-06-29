@@ -1,11 +1,11 @@
 ### SB 8.8.11
 
-> तस्या आसनमानिन्ये महेन्द्रो महदद्भुतम
+> तस्या आसनमानिन्ये महेन्द्रो महदद्भुतम\
 > मूर्तिमत्यः सरिच्छ्रेष्ठा हेमकुम्भैर्जलं शुचि ॥११॥
 
-> ābhiṣecanikā bhūmir
-> āharat sakalauṣadhīḥ
-> gāvaḥ pañca pavitrāṇi
+> ābhiṣecanikā bhūmir\
+> āharat sakalauṣadhīḥ\
+> gāvaḥ pañca pavitrāṇi\
 > vasanto madhu-mādhavau
 
 *ābhiṣecanikāḥ*—artículos necesarios para instalar la Deidad; *bhūmiḥ*—la tierra; *āharat*—reunió; *sakala*—todo tipo de; *auṣadhīḥ*—especias y hierbas; *gāvaḥ*—las vacas; *pañca*—cinco productos de la vaca: leche, yogur, mantequilla clarificada, orina y excremento de vaca; *pavitrāṇi*—libres de contaminación; *vasantaḥ*—la personificación de la primavera; *madhu-mādhavau*—flores y frutas que se producen en primavera, durante los meses de *caitra* y *vaiśākha*.

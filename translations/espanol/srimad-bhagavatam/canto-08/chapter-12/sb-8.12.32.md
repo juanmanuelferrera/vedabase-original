@@ -1,11 +1,11 @@
 ### SB 8.12.32
 
-> तस्यानुधावतो रेतश्चस्कन्दामोघरेतसः
+> तस्यानुधावतो रेतश्चस्कन्दामोघरेतसः\
 > शुष्मिणो यूथपस्येव वासितामनुधावतः ॥३२॥
 
-> tasyānudhāvato retaś
-> caskandāmogha-retasaḥ
-> śuṣmiṇo yūthapasyeva
+> tasyānudhāvato retaś\
+> caskandāmogha-retasaḥ\
+> śuṣmiṇo yūthapasyeva\
 > vāsitām anudhāvataḥ
 
 *tasya*—de él (del Señor Śiva); *anudhāvataḥ*—que perseguía; *retaḥ*—el semen; *caskanda*—eyaculado; *amogha-retasaḥ*—de la persona cuya emisión de semen nunca es en vano; *śuṣmiṇaḥ*—enloquecido; *yūthapasya*—de un elefante macho; *iva*—tal y como; *vāsitām*—a una elefanta en celo; *anudhāvataḥ*—persiguiendo.

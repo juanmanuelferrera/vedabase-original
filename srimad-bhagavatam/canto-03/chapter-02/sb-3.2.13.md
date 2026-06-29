@@ -1,11 +1,11 @@
 ### SB 3.2.13
 
-> यद्धर्मसूनोर्बत राजसूये निरीक्ष्य दृक्स्वस्त्ययनं त्रिलोकः ।
+> यद्धर्मसूनोर्बत राजसूये निरीक्ष्य दृक्स्वस्त्ययनं त्रिलोकः ।\
 > कार्त्स्न्येन चाद्येह गतं विधातुरर्वाक्सृतौ कौशलमित्यमन्यत ॥१३॥
 
-> yad dharma-sūnor bata rājasūye
-> nirīkṣya dṛk-svastyayanaṁ tri-lokaḥ
-> kārtsnyena cādyeha gataṁ vidhātur
+> yad dharma-sūnor bata rājasūye\
+> nirīkṣya dṛk-svastyayanaṁ tri-lokaḥ\
+> kārtsnyena cādyeha gataṁ vidhātur\
 > arvāk-sṛtau kauśalam ity amanyata
 
 *yat*—the form which; *dharma-sūnoḥ*—of Mahārāja Yudhiṣṭhira; *bata*—certainly; *rājasūye*—in the arena of the *rājasūya* sacrifice; *nirīkṣya*—by observing; *dṛk*—sight; *svastyayanam*—pleasing; *tri-lokaḥ*—the three worlds; *kārtsnyena*—in sum total; *ca*—thus; *adya*—today; *iha*—within the universe; *gatam*—surpassed; *vidhātuḥ*—of the creator (Brahmā); *arvāk*—recent mankind; *sṛtau*—in the material world; *kauśalam*—dexterity; *iti*—thus; *amanyata*—contemplated.

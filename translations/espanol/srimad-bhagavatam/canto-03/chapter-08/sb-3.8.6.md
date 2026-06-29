@@ -1,11 +1,11 @@
 ### SB 3.8.6
 
-> मुहुर्गृणन्तो वचसानुराग स्खलत्पदेनास्य कृतानि तज्ज्ञाः ।
+> मुहुर्गृणन्तो वचसानुराग स्खलत्पदेनास्य कृतानि तज्ज्ञाः ।\
 > किरीटसाहस्रमणिप्रवेक प्रद्योतितोद्दामफणासहस्रम् ॥६॥
 
-> muhur gṛṇanto vacasānurāga-
-> skhalat-padenāsya kṛtāni taj-jñāḥ
-> kirīṭa-sāhasra-maṇi-praveka-
+> muhur gṛṇanto vacasānurāga-\
+> skhalat-padenāsya kṛtāni taj-jñāḥ\
+> kirīṭa-sāhasra-maṇi-praveka-\
 > pradyotitoddāma-phaṇā-sahasram
 
 *muhuḥ*—una y otra vez; *gṛṇantaḥ*—glorificando; *vacasā*—mediante palabras; *anurāga*—con gran afecto; *skhalat-padena*—con ritmo simétrico; *asya*—del Señor; *kṛtāni*—actividades; *tat-jñāḥ*—aquellos que conocen los pasatiempos; *kirīṭa*—yelmos; *sāhasra*—miles; *maṇi-praveka*—refulgencia radiante de las valiosas piedras; *pradyotita*—que emana de; *uddāma*—erguidas; *phaṇā*—cabezas; *sahasram*—miles.

@@ -1,9 +1,9 @@
 ### CC Antya 5.62
 
-> ভাল, মন্দ — কিছু আমি পুছিতে না জানি ।
+> ভাল, মন্দ — কিছু আমি পুছিতে না জানি ।\
 > ‘দীন’ দেখি’ কৃপা করি’ কহিবা আপনি ।।” ॥ ৬২ ॥
 
-> bhāla, manda--kichu āmi puchite nā jāni
+> bhāla, manda--kichu āmi puchite nā jāni\
 > 'dīna' dekhi' kṛpā kari' kahibā āpani"
 
 *bhāla*—bueno; *manda*—malo; *kichu*—algo; *āmi*—yo; *puchite*—preguntar; *nā jāni*—no sé; *dīna*—muy pobre en conocimiento; *dekhi'*—al verme; *kṛpā kari'*—muy misericordiosamente; *kahibā*—por favor habla; *āpani*—por tu propia buena voluntad.

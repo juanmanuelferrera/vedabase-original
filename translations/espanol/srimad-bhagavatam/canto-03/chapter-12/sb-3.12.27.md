@@ -1,11 +1,11 @@
 ### SB 3.12.27
 
-> छायायाः कर्दमो जज्ञे देवहूत्याः पतिः प्रभुः ।
+> छायायाः कर्दमो जज्ञे देवहूत्याः पतिः प्रभुः ।\
 > मनसो देहतश्चेदं जज्ञे विश्वकृतो जगत् ॥२७॥
 
-> chāyāyāḥ kardamo jajñe
-> devahūtyāḥ patiḥ prabhuḥ
-> manaso dehataś cedaṁ
+> chāyāyāḥ kardamo jajñe\
+> devahūtyāḥ patiḥ prabhuḥ\
+> manaso dehataś cedaṁ\
 > jajñe viśva-kṛto jagat
 
 *chāyāyāḥ*—por la sombra; *kardamaḥ*—Kardama Muni; *jajñe*—se manifestó; *devahūtyāḥ*—de Devahūti; *patiḥ*—esposo; *prabhuḥ*—el amo; *manasaḥ*—de la mente; *dehataḥ*—del cuerpo; *ca*—también; *idam*—este; *jajñe*—desarrollado; *viśva*—el universo; *kṛtaḥ*—del creador; *jagat*—la manifestación cósmica.

@@ -1,11 +1,11 @@
 ### SB 2.5.13
 
-> विलज्जमानया यस्य स्थातुमीक्षापथेऽमुया ।
+> विलज्जमानया यस्य स्थातुमीक्षापथेऽमुया ।\
 > विमोहिता विकत्थन्ते ममाहमिति दुर्धियः ॥१३॥
 
-> vilajjamānayā yasya
-> sthātum īkṣā-pathe 'muyā
-> vimohitā vikatthante
+> vilajjamānayā yasya\
+> sthātum īkṣā-pathe 'muyā\
+> vimohitā vikatthante\
 > mamāham iti durdhiyaḥ
 
 *vilajjamānayā*—by one who is ashamed; *yasya*—whose; *sthātum*—to stay; *īkṣā-pathe*—in front; *amuyā*—by the bewildering energy; *vimohitāḥ*—those who are bewildered; *vikatthante*—talk nonsense; *mama*—it is mine; *aham*—I am everything; *iti*—thus vituperating; *durdhiyaḥ*—thus ill conceived.

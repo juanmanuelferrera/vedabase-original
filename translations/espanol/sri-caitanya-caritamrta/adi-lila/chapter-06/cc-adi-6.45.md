@@ -1,9 +1,9 @@
 ### CC Adi 6.45
 
-> মুঞি যে চৈতন্যদাস, আর নিত্যানন্দ ।
+> মুঞি যে চৈতন্যদাস, আর নিত্যানন্দ ।\
 > দাস-ভাব-সম নহে অন্যত্র আনন্দ ॥৪৫॥
 
-> muñi ye caitanya-dāsa āra nityānanda
+> muñi ye caitanya-dāsa āra nityānanda\
 > dāsa-bhāva-sama nahe anyatra ānanda
 
 *muñi*—yo; *ye*—que; *caitanya-dāsa*—sirviente del Señor Caitanya; *āra*—y; *nityānanda*—del Señor Nityānanda; *dāsa-bhāva*—la emoción de ser un sirviente; *sama*—igual a; *nahe*—no; *anyatra*—en ningún otro lugar; *ānanda*—bienaventuranza trascendental.

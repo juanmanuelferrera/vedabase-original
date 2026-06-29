@@ -1,6 +1,6 @@
 ### CC Adi 1.45
 
-> guru kṛṣṇa-rūpa hana śāstrera pramāṇe
+> guru kṛṣṇa-rūpa hana śāstrera pramāṇe\
 > guru-rūpe kṛṣṇa kṛpā karena bhakta-gaṇe
 
 *guru*—o mestre espiritual; *kṛṣṇa-rūpa*—tão bom quanto Kṛṣṇa; *hana*—é; *śāstrera*—das escrituras reveladas; *pramāṇe*—pela evidência; *guru-rūpe*—sob a forma do mestre espiritual; *kṛṣṇa*—o Senhor Śrī Kṛṣṇa; *kṛpā*—misericórdia; *karena*—distribui; *bhakta-gaṇe*—a Seus devotos.

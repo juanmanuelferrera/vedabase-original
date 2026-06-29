@@ -1,11 +1,11 @@
 ### CC Madhya 1.1
 
-> যস্য প্রসাদাদজ্ঞোঽপি সদ্যঃ সর্বজ্ঞতাং ব্রজেৎ ৷
+> যস্য প্রসাদাদজ্ঞোঽপি সদ্যঃ সর্বজ্ঞতাং ব্রজেৎ ৷\
 > স শ্রীচৈতন্যদেবো মে ভগবান্ সংপ্রসীদতু ॥১॥
 
-> yasya prasādād ajño 'pi
-> sadyaḥ sarva-jñatāṁ vrajet
-> sa śrī-caitanya-devo me
+> yasya prasādād ajño 'pi\
+> sadyaḥ sarva-jñatāṁ vrajet\
+> sa śrī-caitanya-devo me\
 > bhagavān samprasīdatu
 
 *yasya*—de quien; *prasādāt*—por la misericordia; *ajñaḥ api*—incluso una persona carente de conocimiento; *sadyaḥ*—de inmediato; *sarva-jñatām*—todo el conocimiento; *vrajet*—puede alcanzar; *saḥ*—ese; *śrī-caitanya-devaḥ*—el Señor Śrī Caitanya Mahāprabhu; *me*—sobre mí; *bhagavān*—la Suprema Personalidad de Dios; *samprasīdatu*—que Él derrame Su misericordia sin causa.

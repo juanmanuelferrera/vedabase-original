@@ -1,13 +1,13 @@
 ### SB 3.9.20
 
-> योऽविद्ययानुपहतोऽपि दशार्धवृत्त्या
-> निद्रामुवाह जठरीकृतलोकयात्रः ।
-> अन्तर्जलेऽहिकशिपुस्पर्शानुकूलां
+> योऽविद्ययानुपहतोऽपि दशार्धवृत्त्या\
+> निद्रामुवाह जठरीकृतलोकयात्रः ।\
+> अन्तर्जलेऽहिकशिपुस्पर्शानुकूलां\
 > भीमोर्मिमालिनि जनस्य सुखं विवृण्वन् ॥२०॥
 
-> yo 'vidyayānupahato 'pi daśārdha-vṛttyā
-> nidrām uvāha jaṭharī-kṛta-loka-yātraḥ
-> antar-jale 'hi-kaśipu-sparśānukūlāṁ
+> yo 'vidyayānupahato 'pi daśārdha-vṛttyā\
+> nidrām uvāha jaṭharī-kṛta-loka-yātraḥ\
+> antar-jale 'hi-kaśipu-sparśānukūlāṁ\
 > bhīmormi-mālini janasya sukhaṁ vivṛṇvan
 
 *yaḥ*—aquel; *avidyayā*—influenciado por la nesciencia; *anupahataḥ*—sin ser afectado; *api*—a pesar de; *daśa-ardha*—cinco; *vṛttyā*—interacción; *nidrām*—sueño; *uvāha*—aceptó; *jaṭharī*—dentro del abdomen; *kṛta*—haciendo eso; *loka-yātraḥ*—sustento de las diferentes entidades; *antaḥ-jale*—dentro del agua de la devastación; *ahi-kaśipu*—sobre el lecho-serpiente; *sparśa-anukūlām*—feliz para el tacto; *bhīma-ūrmi*—olas violentas; *mālini*—cadena de; *janasya*—de la persona inteligente; *sukham*—felicidad; *vivṛṇvan*—mostrando.

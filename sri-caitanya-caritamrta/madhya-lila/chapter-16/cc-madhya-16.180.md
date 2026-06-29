@@ -1,9 +1,9 @@
 ### CC Madhya 16.180
 
-> মহাপাত্র আনিল তাঁরে করিয়া সম্মান ।
+> মহাপাত্র আনিল তাঁরে করিয়া সম্মান ।\
 > যোড়হাতে প্রভু-আগে লয় কৃষ্ণনাম ॥১৮০॥
 
-> mahā-pātra ānila tāṅre kariyā sammāna
+> mahā-pātra ānila tāṅre kariyā sammāna\
 > yoḍa-hāte prabhu-āge laya kṛṣṇa-nāma
 
 *mahā-pātra*—the Orissan representative; *ānila*—brought; *tāṅre*—him; *kariyā sammāna*—showing great respect; *yoḍa-hāte*—with folded hands; *prabhu-āge*—before Śrī Caitanya Mahāprabhu; *laya kṛṣṇa-nāma*—chanted the holy name of Kṛṣṇa.

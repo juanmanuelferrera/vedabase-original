@@ -1,11 +1,11 @@
 ### SB 5.17.20
 
-> यमाहुरस्य स्थितिजन्मसंयमं त्रिभिर्विहीनं यमनन्तमृषयः
+> यमाहुरस्य स्थितिजन्मसंयमं त्रिभिर्विहीनं यमनन्तमृषयः\
 > न वेद सिद्धार्थमिव क्वचित्स्थितं भूमण्डलं मूर्धसहस्रधामसु ॥२०॥
 
-> asad-dṛśo yaḥ pratibhāti māyayā
-> kṣībeva madhv-āsava-tāmra-locanaḥ
-> na nāga-vadhvo 'rhaṇa īśire hriyā
+> asad-dṛśo yaḥ pratibhāti māyayā\
+> kṣībeva madhv-āsava-tāmra-locanaḥ\
+> na nāga-vadhvo 'rhaṇa īśire hriyā\
 > yat-pādayoḥ sparśana-dharṣitendriyāḥ
 
 *asat-dṛśaḥ*—for a person with polluted vision; *yaḥ*—who; *pratibhāti*—appears; *māyayā*—the influence of *māyā*; *kṣībaḥ*—one who is inebriated or angry; *iva*—like; *madhu*—by honey; *āsava*—and liquor; *tāmra-locanaḥ*—having eyes reddish like copper; *na*—not; *nāga-vadhvaḥ*—the wives of the serpent demon; *arhaṇe*—in worshiping; *īśire*—were unable to proceed; *hriyā*—because of bashfulness; *yat-pādayoḥ*—of whose lotus feet; *sparśana*—by the touching; *dharṣita*—agitated; *indriyāḥ*—whose senses.

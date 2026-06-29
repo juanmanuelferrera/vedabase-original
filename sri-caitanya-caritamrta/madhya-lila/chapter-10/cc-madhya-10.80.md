@@ -1,9 +1,9 @@
 ### CC Madhya 10.80
 
-> শুনি’ আচার্য-গোসাঞির আনন্দ হইল ।
+> শুনি’ আচার্য-গোসাঞির আনন্দ হইল ।\
 > প্রেমাবেশে হুঙ্কার বহু নৃত্য-গীত কৈল ॥৮০॥
 
-> śuni' ācārya-gosāñira ānanda ha-ila
+> śuni' ācārya-gosāñira ānanda ha-ila\
 > premāveśe huṅkāra bahu nṛtya-gīta kaila
 
 *śuni'*—hearing; *ācārya*—Advaita Ācārya; *gosāñira*—of the spiritual master; *ānanda ha-ila*—there was much jubilation; *prema-āveśe*—in great ecstasy; *huṅkāra*—rumbling sound; *bahu*—various; *nṛtya-gīta*—chanting and dancing; *kaila*—performed.

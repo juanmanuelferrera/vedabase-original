@@ -1,11 +1,11 @@
 ### SB 7.15.12
 
-> विधर्मः परधर्मश्च आभास उपमा छलः
+> विधर्मः परधर्मश्च आभास उपमा छलः\
 > अधर्मशाखाः पञ्चेमा धर्मज्ञओऽधर्मवत्त्यजेत ॥१२॥
 
-> vidharmaḥ para-dharmaś ca
-> ābhāsa upamā chalaḥ
-> adharma-śākhāḥ pañcemā
+> vidharmaḥ para-dharmaś ca\
+> ābhāsa upamā chalaḥ\
+> adharma-śākhāḥ pañcemā\
 > dharma-jño 'dharmavat tyajet
 
 *vidharmaḥ*—irreligión; *para-dharmaḥ*—principios religiosos practicados por otros; *ca*—y; *ābhāsaḥ*—una farsa de religión; *upamā*—principios que parecen religiosos pero que no lo son; *chalaḥ*—una religión engañosa; *adharma-śākhāḥ*—que son distintas ramas de la irreligión; *pañca*—cinco; *imāḥ*—estas; *dharma-jñaḥ*—del que es consciente de los principios religiosos; *adharma-vat*—considerándolas irreligiosas; *tyajet*—debe abandonar.

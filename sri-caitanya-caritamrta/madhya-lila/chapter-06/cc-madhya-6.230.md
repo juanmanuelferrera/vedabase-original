@@ -1,9 +1,9 @@
 ### CC Madhya 6.230
 
-> “আজি মুঞি অনায়াসে জিনিনু ত্রিভুবন ।
+> “আজি মুঞি অনায়াসে জিনিনু ত্রিভুবন ।\
 > আজি মুঞি করিনু বৈকুন্ঠ আরোহণ ॥২৩০॥
 
-> "āji muñi anāyāse jininu tribhuvana
+> "āji muñi anāyāse jininu tribhuvana\
 > āji muñi karinu vaikuṇṭha ārohaṇa
 
 *āji*—today; *muñi*—I; *anāyāse*—very easily; *jininu*—conquered; *tri-bhuvana*—the three worlds; *āji*—today; *muñi*—I; *karinu*—did; *vaikuṇṭha*—to the spiritual world; *ārohaṇa*—ascending.

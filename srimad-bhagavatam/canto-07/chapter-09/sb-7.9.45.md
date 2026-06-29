@@ -1,13 +1,13 @@
 ### SB 7.9.45
 
-> यन्मैथुनादिगृहमेधिसुखं हि तुच्छं
-> कण्डूयनेन करयोरिव दुःखदुःखम
-> तृप्यन्ति नेह कृपणा बहुदुःखभाजः
+> यन्मैथुनादिगृहमेधिसुखं हि तुच्छं\
+> कण्डूयनेन करयोरिव दुःखदुःखम\
+> तृप्यन्ति नेह कृपणा बहुदुःखभाजः\
 > कण्डूतिवन्मनसिजं विषहेत धीरः ॥४५॥
 
-> yan maithunādi-gṛhamedhi-sukhaṁ hi tucchaṁ
-> kaṇḍūyanena karayor iva duḥkha-duḥkham
-> tṛpyanti neha kṛpaṇā bahu-duḥkha-bhājaḥ
+> yan maithunādi-gṛhamedhi-sukhaṁ hi tucchaṁ\
+> kaṇḍūyanena karayor iva duḥkha-duḥkham\
+> tṛpyanti neha kṛpaṇā bahu-duḥkha-bhājaḥ\
 > kaṇḍūtivan manasijaṁ viṣaheta dhīraḥ
 
 *yat*—that which (is meant for material sense gratification); *maithuna-ādi*—represented by talking of sex, reading sexual literature or enjoying sex life (at home or outside, as in a club); *gṛhamedhi-sukham*—all types of material happiness based on attachment to family, society, friendship, etc.; *hi*—indeed; *tuccham*—insignificant; *kaṇḍūyanena*—with the itching; *karayoḥ*—of the two hands (to relieve the itching); *iva*—like; *duḥkha-duḥkham*—different types of unhappiness (into which one is put after such itching sense gratification); *tṛpyanti*—become satisfied; *na*—never; *iha*—in material sense gratification; *kṛpaṇāḥ*—the foolish persons; *bahu-duḥkha-bhājaḥ*—subjected to various types of material unhappiness; *kaṇḍūti-vat*—if one can learn from such itching; *manasi-jam*—which is simply a mental concoction (actually there is no happiness); *viṣaheta*—and tolerates (such itching); *dhīraḥ*—(he can become) a most perfect, sober person.

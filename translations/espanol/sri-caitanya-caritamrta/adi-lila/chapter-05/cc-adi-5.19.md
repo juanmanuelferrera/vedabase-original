@@ -1,9 +1,9 @@
 ### CC Adi 5.19
 
-> ব্রহ্মাণ্ডে প্রকাশ তার কৃষ্ণের ইচ্ছায় ।
+> ব্রহ্মাণ্ডে প্রকাশ তার কৃষ্ণের ইচ্ছায় ।\
 > একই স্বরূপ তার, নাহি দুই কায় ॥১৯॥
 
-> brahmāṇḍe prakāśa tāra kṛṣṇera icchāya
+> brahmāṇḍe prakāśa tāra kṛṣṇera icchāya\
 > eka-i svarūpa tāra, nāhi dui kāya
 
 *brahmāṇḍe*—dentro del mundo material; *prakāśa*—manifestación; *tāra*—de ello; *kṛṣṇera icchāya*—por la voluntad suprema del Señor Kṛṣṇa; *eka-i*—es la misma; *svarūpa*—identidad; *tāra*—de ello; *nāhi*—no; *dui*—dos; *kāya*—cuerpos.

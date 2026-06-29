@@ -1,13 +1,13 @@
 ### SB 3.9.7
 
-> दैवेन ते हतधियो भवतः प्रसङ्गात्
-> सर्वाशुभोपशमनाद्विमुखेन्द्रिया ये ।
-> कुर्वन्ति कामसुखलेशलवाय दीना
+> दैवेन ते हतधियो भवतः प्रसङ्गात्\
+> सर्वाशुभोपशमनाद्विमुखेन्द्रिया ये ।\
+> कुर्वन्ति कामसुखलेशलवाय दीना\
 > लोभाभिभूतमनसोऽकुशलानि शश्वत् ॥७॥
 
-> daivena te hata-dhiyo bhavataḥ prasaṅgāt
-> sarvāśubhopaśamanād vimukhendriyā ye
-> kurvanti kāma-sukha-leśa-lavāya dīnā
+> daivena te hata-dhiyo bhavataḥ prasaṅgāt\
+> sarvāśubhopaśamanād vimukhendriyā ye\
+> kurvanti kāma-sukha-leśa-lavāya dīnā\
 > lobhābhibhūta-manaso 'kuśalāni śaśvat
 
 *daivena*—por destino del infortunio; *te*—ellos; *hata-dhiyaḥ*—desprovistos de memoria; *bhavataḥ*—de Ti; *prasaṅgāt*—de los temas; *sarva*—todo; *aśubha*—carácter de no auspicioso; *upaśamanāt*—reprimiendo; *vimukha*—puestos en contra; *indriyāḥ*—sentidos; *ye*—aquellos; *kurvanti*—actúan; *kāma*—complacencia de los sentidos; *sukha*—felicidad; *leśa*—breve; *lavāya*—únicamente por un momento; *dīnāḥ*—pobres tipos; *lobha-abhibhūta*—sobrecogidos por la codicia; *manasaḥ*—de aquel cuya mente; *akuśalāni*—actividades no auspiciosas; *śaśvat*—siempre.

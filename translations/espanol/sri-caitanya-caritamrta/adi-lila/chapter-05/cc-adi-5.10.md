@@ -1,9 +1,9 @@
 ### CC Adi 5.10
 
-> সৃষ্ট্যাদিক সেবা, — তাঁর আজ্ঞার পালন ।
+> সৃষ্ট্যাদিক সেবা, — তাঁর আজ্ঞার পালন ।\
 > ‘শেষ’-রূপে করে কৃষ্ণের বিবিধ সেবন ॥১০॥
 
-> sṛṣṭy-ādika sevā,--tāṅra ājñāra pālana
+> sṛṣṭy-ādika sevā,--tāṅra ājñāra pālana\
 > 'śeṣa'-rūpe kare kṛṣṇera vividha sevana
 
 *sṛṣṭi-ādika sevā*—servicio en lo referente a la creación; *tāṅra*—Su; *ājñāra*—de la orden; *pālana*—ejecución; *śeṣa-rūpe*—la forma del Señor Śeṣa; *kare*—presta; *kṛṣṇera*—del Señor Kṛṣṇa; *vividha sevana*—variados servicios.

@@ -1,9 +1,9 @@
 ### CC Madhya 5.108
 
-> তবে সেই বিপ্র যাই নগরে কহিল ।
+> তবে সেই বিপ্র যাই নগরে কহিল ।\
 > শুনিঞা সকল লোক চমৎকার হৈল ॥১০৮॥
 
-> tabe sei vipra yāi nagare kahila
+> tabe sei vipra yāi nagare kahila\
 > śuniñā sakala loka camatkāra haila
 
 *tabe*—después; *sei*—aquel; *vipra*—brāhmaṇa; *yāi*—yendo; *nagare*—a la ciudad; *kahila*—dijo; *śuniñā*—al oír; *sakala*—toda; *loka*—la gente; *camatkāra*—asombrada; *haila*—quedó.

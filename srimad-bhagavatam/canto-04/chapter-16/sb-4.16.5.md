@@ -1,11 +1,11 @@
 ### SB 4.16.5
 
-> एष वै लोकपालानां बिभर्त्येकस्तनौ तनूः ।
+> एष वै लोकपालानां बिभर्त्येकस्तनौ तनूः ।\
 > काले काले यथाभागं लोकयोरुभयोर्हितम् ॥५॥
 
-> eṣa vai loka-pālānāṁ
-> bibharty ekas tanau tanūḥ
-> kāle kāle yathā-bhāgaṁ
+> eṣa vai loka-pālānāṁ\
+> bibharty ekas tanau tanūḥ\
+> kāle kāle yathā-bhāgaṁ\
 > lokayor ubhayor hitam
 
 *eṣaḥ*—this King; *vai*—certainly; *loka-pālānām*—of all the demigods; *bibharti*—bears; *ekaḥ*—alone; *tanau*—in his body; *tanūḥ*—the bodies; *kāle kāle*—in due course of time; *yathā*—according to; *bhāgam*—proper share; *lokayoḥ*—of planetary systems; *ubhayoḥ*—both; *hitam*—welfare.

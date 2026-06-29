@@ -1,11 +1,11 @@
 ### SB 4.21.22
 
-> अहं दण्डधरो राजा प्रजानामिह योजितः ।
+> अहं दण्डधरो राजा प्रजानामिह योजितः ।\
 > रक्षिता वृत्तिदः स्वेषु सेतुषु स्थापिता पृथक् ॥२२॥
 
-> ahaṁ daṇḍa-dharo rājā
-> prajānām iha yojitaḥ
-> rakṣitā vṛttidaḥ sveṣu
+> ahaṁ daṇḍa-dharo rājā\
+> prajānām iha yojitaḥ\
+> rakṣitā vṛttidaḥ sveṣu\
 > setuṣu sthāpitā pṛthak
 
 *aham*—I; *daṇḍa-dharaḥ*—carrier of the scepter; *rājā*—king; *prajānām*—of the citizens; *iha*—in this world; *yojitaḥ*—engaged; *rakṣitā*—protector; *vṛtti-daḥ*—employer; *sveṣu*—in their own; *setuṣu*—respective social orders; *sthāpitā*—established; *pṛthak*—differently.

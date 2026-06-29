@@ -1,9 +1,9 @@
 ### CC Adi 10.35
 
-> শ্রীনৃসিংহ-উপাসক — প্রদ্যুম্ন ব্রহ্মচারী ।
+> শ্রীনৃসিংহ-উপাসক — প্রদ্যুম্ন ব্রহ্মচারী ।\
 > প্রভু তাঁর নাম কৈলা ‘নৃসিংহানন্দ’ করি’ ॥৩৫॥
 
-> śrī-nṛsiṁha-upāsaka--pradyumna brahmacārī
+> śrī-nṛsiṁha-upāsaka--pradyumna brahmacārī\
 > prabhu tāṅra nāma kailā 'nṛsiṁhānanda' kari'
 
 *śrī-nṛsiṁha-upāsaka*—el adorador del Señor Nṛsiṁhadeva; *pradyumna brahmacārī*—de nombre Pradyumna Brahmacārī; *prabhu*—el Señor; *tāṅra*—su; *nāma*—nombre; *kailā*—cambió a; *nṛsiṁhānanda*—de nombre Nṛsiṁhānanda; *kari'*—por medio de ese nombre.

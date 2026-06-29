@@ -1,11 +1,11 @@
 ### SB 6.12.3
 
-> ख आपतत्तद्विचलद्ग्रहोल्कवन्निरीक्ष्य दुष्प्रेक्ष्यमजातविक्लवः
+> ख आपतत्तद्विचलद्ग्रहोल्कवन्निरीक्ष्य दुष्प्रेक्ष्यमजातविक्लवः\
 > वज्रेण वज्री शतपर्वणाच्छिनद्भुजं च तस्योरगराजभोगम ॥३॥
 
-> kha āpatat tad vicalad graholkavan
-> nirīkṣya duṣprekṣyam ajāta-viklavaḥ
-> vajreṇa vajrī śata-parvaṇācchinad
+> kha āpatat tad vicalad graholkavan\
+> nirīkṣya duṣprekṣyam ajāta-viklavaḥ\
+> vajreṇa vajrī śata-parvaṇācchinad\
 > bhujaṁ ca tasyoraga-rāja-bhogam
 
 *khe*—por el cielo; *āpatat*—volando hacia él; *tat*—aquel tridente; *vicalat*—girando; *graha-ulka-vat*—como un cometa; *nirīkṣya*—observar; *duṣprekṣyam*—** insoportable para la vista; *ajāta-viklavaḥ*—sin temor; *vajreṇa*—con el rayo; *vajrī*—Indra, el portador del rayo; *śata-parvaṇā*—que tiene cien juntas; *ācchinat*—cortó; *bhujam*—el brazo; *ca*—y; *tasya*—de él; *uraga-rāja*—de la gran serpiente Vāsuki; *bhogam*—como el cuerpo.

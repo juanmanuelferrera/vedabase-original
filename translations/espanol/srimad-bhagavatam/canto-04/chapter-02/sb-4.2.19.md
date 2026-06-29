@@ -1,11 +1,11 @@
 ### SB 4.2.19
 
-> निषिध्यमानः स सदस्यमुख्यैर्दक्षो गिरित्राय विसृज्य शापम् ।
+> निषिध्यमानः स सदस्यमुख्यैर्दक्षो गिरित्राय विसृज्य शापम् ।\
 > तस्माद्विनिष्क्रम्य विवृद्धमन्युर्जगाम कौरव्य निजं निकेतनम् ॥१९॥
 
-> niṣidhyamānaḥ sa sadasya-mukhyair
-> dakṣo giritrāya visṛjya śāpam
-> tasmād viniṣkramya vivṛddha-manyur
+> niṣidhyamānaḥ sa sadasya-mukhyair\
+> dakṣo giritrāya visṛjya śāpam\
+> tasmād viniṣkramya vivṛddha-manyur\
 > jagāma kauravya nijaṁ niketanam
 
 *niṣidhyamānaḥ*—rogándosele que no; *saḥ*—él (Dakṣa); *sadasya-mukhyaiḥ*—por parte de los miembros del sacrificio; *dakṣaḥ*—Dakṣa; *giritrāya*—a Śiva; *visṛjya*—dar; *śāpam*—una maldición; *tasmāt*—de aquel lugar; *viniṣkramya*—salir; *vivṛddha-manyuḥ*—estando excesivamente iracundo; *jagāma*—fue; *kauravya*—¡oh, Vidura!; *nijam*—a su propia; *niketanam*—casa.

@@ -1,9 +1,9 @@
 ### CC Antya 20.100
 
-> না কহিলে হয় মোর কৃতঘ্নতা-দোষ ।
+> না কহিলে হয় মোর কৃতঘ্নতা-দোষ ।\
 > দম্ভ করি বলি’ শ্রোতা, না করিহ রোষ ॥১০০॥
 
-> nā kahile haya mora kṛta-ghnatā-doṣa
+> nā kahile haya mora kṛta-ghnatā-doṣa\
 > dambha kari bali' śrotā, nā kariha roṣa
 
 *nā kahile*—if I do not say; *haya*—there is; *mora*—my; *kṛta-ghnatā-doṣa*—fault of ingratitude; *dambha kari*—I am proud; *bali'*—taking as; *śrotā*—O readers; *nā kariha roṣa*—do not be angry.

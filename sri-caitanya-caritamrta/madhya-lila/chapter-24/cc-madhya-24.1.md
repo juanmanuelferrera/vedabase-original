@@ -1,11 +1,11 @@
 ### CC Madhya 24.1
 
-> আত্মারামেতি পদ্যার্কস্যার্থাংশূন্ যঃ প্রকাশয়ন্ ।
+> আত্মারামেতি পদ্যার্কস্যার্থাংশূন্ যঃ প্রকাশয়ন্ ।\
 > জগত্তমো জহারাব্যাত্ স চৈতন্যোদয়াচলঃ ॥১॥
 
-> ātmārāmeti padyārkasy-
-> ārthāṁśūn yaḥ prakāśayan
-> jagat-tamo jahārāvyāt
+> ātmārāmeti padyārkasy-\
+> ārthāṁśūn yaḥ prakāśayan\
+> jagat-tamo jahārāvyāt\
 > sa caitanyodayācalaḥ
 
 *ātmārāma-iti*—beginning with the word *ātmārāma*; *padya*—verse; *arkasya*—of the sunlike; *artha-aṁśūn*—the shining rays of different meanings; *yaḥ*—who; *prakāśayan*—manifesting; *jagat-tamaḥ*—the darkness of the material world; *jahāra*—eradicated; *avyāt*—may protect; *saḥ*—He; *caitanya-udaya-acalaḥ*—Śrī Caitanya Mahāprabhu, who is like the eastern horizon, where the sun rises.

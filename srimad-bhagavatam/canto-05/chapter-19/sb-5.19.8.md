@@ -1,11 +1,11 @@
 ### SB 5.19.8
 
-> सुरोऽसुरो वाप्यथ वानरो नरः सर्वात्मना यः सुकृतज्ञअमुत्तमम
+> सुरोऽसुरो वाप्यथ वानरो नरः सर्वात्मना यः सुकृतज्ञअमुत्तमम\
 > भजेत रामं मनुजाकृतिं हरिं य उत्तराननयत्कोसलान्दिवमिति ॥८॥
 
-> suro 'suro vāpy atha vānaro naraḥ
-> sarvātmanā yaḥ sukṛtajñam uttamam
-> bhajeta rāmaṁ manujākṛtiṁ hariṁ
+> suro 'suro vāpy atha vānaro naraḥ\
+> sarvātmanā yaḥ sukṛtajñam uttamam\
+> bhajeta rāmaṁ manujākṛtiṁ hariṁ\
 > ya uttarān anayat kosalān divam iti
 
 *suraḥ*—demigod; *asuraḥ*—demon; *vā api*—or; *atha*—therefore; *vā*—or; *anaraḥ*—other than a human being (bird, beast, animal and so on); *naraḥ*—a human being; *sarva-ātmanā*—wholeheartedly; *yaḥ*—who; *su-kṛtajñam*—easily made grateful; *uttamam*—most highly elevated; *bhajeta*—should worship; *rāmam*—Lord Rāmacandra; *manuja-ākṛtim*—appearing as a human being; *harim*—the Supreme Personality of Godhead; *yaḥ*—who; *uttarān*—of northern India; *anayat*—brought back; *kosalān*—the inhabitants of Kosala-deśa, Ayodhyā; *divam*—to the spiritual world, Vaikuṇṭha; *iti*—thus.

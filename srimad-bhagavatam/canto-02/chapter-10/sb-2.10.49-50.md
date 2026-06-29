@@ -1,18 +1,18 @@
 ### SB 2.10.49-50
 
-> क्षत्तुः कौशारवेस्तस्य संवादोऽध्यात्मसंश्रितः ।
-> यद्वा स भगवांस्तस्मै पृष्टस्तत्त्वमुवाच ह ॥४९॥
-> ब्रूहि नस्तदिदं सौम्य विदुरस्य विचेष्टितम् ।
+> क्षत्तुः कौशारवेस्तस्य संवादोऽध्यात्मसंश्रितः ।\
+> यद्वा स भगवांस्तस्मै पृष्टस्तत्त्वमुवाच ह ॥४९॥\
+> ब्रूहि नस्तदिदं सौम्य विदुरस्य विचेष्टितम् ।\
 > बन्धुत्यागनिमित्तं च यथैवागतवान्पुनः ॥५०॥
 
-> kṣattuḥ kauśāraves tasya
-> saṁvādo 'dhyātma-saṁśritaḥ
-> yad vā sa bhagavāṁs tasmai
+> kṣattuḥ kauśāraves tasya\
+> saṁvādo 'dhyātma-saṁśritaḥ\
+> yad vā sa bhagavāṁs tasmai\
 > pṛṣṭas tattvam uvāca ha
 
-> brūhi nas tad idaṁ saumya
-> vidurasya viceṣṭitam
-> bandhu-tyāga-nimittaṁ ca
+> brūhi nas tad idaṁ saumya\
+> vidurasya viceṣṭitam\
+> bandhu-tyāga-nimittaṁ ca\
 > yathaivāgatavān punaḥ
 
 *kṣattuḥ*—of Vidura; *kauśāraveḥ*—as that of Maitreya; *tasya*—their; *saṁvādaḥ*—news; *adhyātma*—in the matter of transcendental knowledge; *saṁśritaḥ*—full of; *yat*—which; *vā*—anything else; *saḥ*—he; *bhagavān*—His Grace; *tasmai*—unto him; *pṛṣṭaḥ*—inquired; *tattvam*—the truth; *uvāca*—answered; *ha*—in the past; *brūhi*—please tell; *naḥ*—unto us; *tat*—those matters; *idam*—here; *saumya*—O gentle one; *vidurasya*—of Vidura; *viceṣṭitam*—activities; *bandhu-tyāga*—renouncing the friends; *nimittam*—the cause of; *ca*—also; *yathā*—as; *eva*—also; *āgatavān*—came back; *punaḥ*—again (at home).

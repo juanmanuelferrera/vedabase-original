@@ -1,9 +1,9 @@
 ### CC Adi 4.257
 
-> দোঁহার যে সমরস, ভরতমুনি মানে ।
+> দোঁহার যে সমরস, ভরতমুনি মানে ।\
 > আমার ব্রজের রস সেহ নাহি জানে ॥২৫৭॥
 
-> doṅhāra ye sama-rasa, bharata-muni māne
+> doṅhāra ye sama-rasa, bharata-muni māne\
 > āmāra vrajera rasa seha nāhi jāne
 
 *doṅhāra*—of both; *ye*—whatever; *sama-rasa*—equal mellows; *bharata-muni*—the saintly person named Bharata Muni; *māne*—accepts; *āmāra*—My; *vrajera*—of Vṛndāvana; *rasa*—mellows; *seha*—he; *nāhi*—not; *jāne*—knows.

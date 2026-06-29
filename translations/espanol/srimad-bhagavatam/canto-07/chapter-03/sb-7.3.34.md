@@ -1,11 +1,11 @@
 ### SB 7.3.34
 
-> अनन्ताव्यक्तरूपेण येनेदमखिलं ततम
+> अनन्ताव्यक्तरूपेण येनेदमखिलं ततम\
 > चिदचिच्छक्तियुक्ताय तस्मै भगवते नमः ॥३४॥
 
-> anantāvyakta-rūpeṇa
-> yenedam akhilaṁ tatam
-> cid-acic-chakti-yuktāya
+> anantāvyakta-rūpeṇa\
+> yenedam akhilaṁ tatam\
+> cid-acic-chakti-yuktāya\
 > tasmai bhagavate namaḥ
 
 *ananta-avyakta-rūpeṇa*—por la forma ilimitada y no manifiesta; *yena*—por la cual; *idam*—este; *akhilam*—el agregado total; *tatam*—manifestado; *cit*—con espiritual; *acit*—y material; *śakti*—potencia; *yuktāya*—al que está dotado; *tasmai*—a Él; *bhagavate*—a la Suprema Personalidad de Dios; *namaḥ*—yo ofrezco respetuosas reverencias.

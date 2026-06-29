@@ -1,9 +1,9 @@
 ### CC Madhya 8.9
 
-> প্রভাতে উঠিয়া প্রভু চলিলা প্রেমাবেশে ৷
+> প্রভাতে উঠিয়া প্রভু চলিলা প্রেমাবেশে ৷\
 > দিগ্বিদিক্ নাহি জ্ঞান রাত্রি-দিবসে ৷৷ ৯ ৷৷ ॥৯॥
 
-> prabhāte uṭhiyā prabhu calilā premāveśe
+> prabhāte uṭhiyā prabhu calilā premāveśe\
 > dig-vidik nāhi jñāna rātri-divase
 
 *prabhāte*—por la mañana; *uṭhiyā*—levantándose; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *calilā*—partió; *prema-āveśe*—en gran éxtasis de amor; *dik-vidik*—la dirección correcta o incorrecta; *nāhi*—no había; *jñāna*—conocimiento; *rātri-divase*—de día y de noche.

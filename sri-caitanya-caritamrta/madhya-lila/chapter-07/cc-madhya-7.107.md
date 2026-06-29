@@ -1,9 +1,9 @@
 ### CC Madhya 7.107
 
-> প্রভুর কৃপায় হয় মহাভাগবত ।
+> প্রভুর কৃপায় হয় মহাভাগবত ।\
 > সেই সব আচার্য হঞা তারিল জগৎ ॥১০৭॥
 
-> prabhura kṛpāya haya mahābhāgavata
+> prabhura kṛpāya haya mahābhāgavata\
 > sei saba ācārya hañā tārila jagat
 
 *prabhura kṛpāya*—by the mercy of the Lord; *haya*—become; *mahā-bhāgavata*—first-class devotees; *sei saba*—all such persons; *ācārya*—teachers; *hañā*—becoming; *tārila*—liberated; *jagat*—the whole world.

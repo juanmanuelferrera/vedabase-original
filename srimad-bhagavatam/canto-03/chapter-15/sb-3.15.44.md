@@ -1,13 +1,13 @@
 ### SB 3.15.44
 
-> ते वा अमुष्य वदनासितपद्मकोशम्
-> उद्वीक्ष्य सुन्दरतराधरकुन्दहासम् ।
-> लब्धाशिषः पुनरवेक्ष्य तदीयमङ्घ्रि
+> ते वा अमुष्य वदनासितपद्मकोशम्\
+> उद्वीक्ष्य सुन्दरतराधरकुन्दहासम् ।\
+> लब्धाशिषः पुनरवेक्ष्य तदीयमङ्घ्रि\
 > द्वन्द्वं नखारुणमणिश्रयणं निदध्युः ॥४४॥
 
-> te vā amuṣya vadanāsita-padma-kośam
-> udvīkṣya sundaratarādhara-kunda-hāsam
-> labdhāśiṣaḥ punar avekṣya tadīyam aṅghri-
+> te vā amuṣya vadanāsita-padma-kośam\
+> udvīkṣya sundaratarādhara-kunda-hāsam\
+> labdhāśiṣaḥ punar avekṣya tadīyam aṅghri-\
 > dvandvaṁ nakhāruṇa-maṇi-śrayaṇaṁ nidadhyuḥ
 
 *te*—those sages; *vai*—certainly; *amuṣya*—of the Supreme Personality of Godhead; *vadana*—face; *asita*—blue; *padma*—lotus; *kośam*—inside; *udvīkṣya*—after looking up; *sundara-tara*—more beautiful; *adhara*—lips; *kunda*—jasmine flower; *hāsam*—smiling; *labdha*—achieved; *āśiṣaḥ*—aims of life; *punaḥ*—again; *avekṣya*—looking down; *tadīyam*—His; *aṅghri-dvandvam*—pair of lotus feet; *nakha*—nails; *aruṇa*—red; *maṇi*—rubies; *śrayaṇam*—shelter; *nidadhyuḥ*—meditated.

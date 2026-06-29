@@ -1,13 +1,13 @@
 ### CC Antya 7.47
 
-> আসামহো চরণরেণুজুষামহং স্যাং
-> বৃন্দাবনে কিমপি গুল্মলতৌষধীনাম্ ।
-> যা দুস্ত্যজং স্বজনমার্যপথঞ্চ হিত্বা
+> আসামহো চরণরেণুজুষামহং স্যাং\
+> বৃন্দাবনে কিমপি গুল্মলতৌষধীনাম্ ।\
+> যা দুস্ত্যজং স্বজনমার্যপথঞ্চ হিত্বা\
 > ভেজুর্মুকুন্দপদবীং শ্রুতিভির্বিমৃগ্যাম্ ॥৪৭॥
 
-> āsām aho caraṇa-reṇu-juṣām ahaṁ syāṁ
-> vṛndāvane kim api gulma-latauṣadhīnām
-> yā dustyajaṁ svajanam ārya-pathaṁ ca hitvā
+> āsām aho caraṇa-reṇu-juṣām ahaṁ syāṁ\
+> vṛndāvane kim api gulma-latauṣadhīnām\
+> yā dustyajaṁ svajanam ārya-pathaṁ ca hitvā\
 > bhejur mukunda-padavīṁ śrutibhir vimṛgyām
 
 *āsām*—of the *gopīs*; *aho*—oh; *caraṇa-reṇu*—the dust of the lotus feet; *juṣām*—devoted to; *aham syām*—let me become; *vṛndāvane*—in Vṛndāvana; *kim api*—anyone; *gulma-latā-auṣadhīnām*—among bushes, creepers and herbs; *yā*—they who; *dustyajam*—very difficult to give up; *sva-janam*—family members; *ārya-patham*—the path of chastity; *ca*—and; *hitvā*—giving up; *bhejuḥ*—worshiped; *mukunda-padavīm*—the lotus feet of Mukunda, Kṛṣṇa; *śrutibhiḥ*—by the *Vedas*; *vimṛgyām*—to be searched for.

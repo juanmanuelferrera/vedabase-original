@@ -1,9 +1,9 @@
 ### CC Antya 10.79
 
-> কোলাহল নাহি, প্রভুর কিছু বাহ্য হৈল ।
+> কোলাহল নাহি, প্রভুর কিছু বাহ্য হৈল ।\
 > তবে নিত্যানন্দ সবার শ্রম জানাইল ॥৭৯॥
 
-> kolāhala nāhi, prabhura kichu bāhya haila
+> kolāhala nāhi, prabhura kichu bāhya haila\
 > tabe nityānanda sabāra śrama jānāila
 
 *kolāhala*—tumultuous sound; *nāhi*—there was not; *prabhura*—of Śrī Caitanya Mahāprabhu; *kichu*—some; *bāhya*—external consciousness; *haila*—there was; *tabe*—at that time; *nityānanda*—Lord Nityānanda; *sabāra*—of all of them; *śrama*—fatigue; *jānāila*—informed.

@@ -1,9 +1,9 @@
 ### CC Adi 5.6
 
-> সেই কৃষ্ণ — নবদ্বীপে শ্রীচৈতন্যচন্দ্র ।
+> সেই কৃষ্ণ — নবদ্বীপে শ্রীচৈতন্যচন্দ্র ।\
 > সেই বলরাম — সঙ্গে শ্রীনিত্যানন্দ ॥৬॥
 
-> sei kṛṣṇa--navadvīpe śrī-caitanya-candra
+> sei kṛṣṇa--navadvīpe śrī-caitanya-candra\
 > sei balarāma--saṅge śrī-nityānanda
 
 *sei kṛṣṇa*—ese Kṛṣṇa original; *navadvīpe*—en Navadvīpa; *śrī-caitanya-candra*—el Señor Śrī Caitanya Mahāprabhu; *sei balarāma*—ese Señor Balarāma; *saṅge*—con Él; *śrī-nityānanda*—el Señor Nityānanda.

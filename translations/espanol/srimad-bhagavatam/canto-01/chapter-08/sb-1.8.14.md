@@ -1,11 +1,11 @@
 ### SB 1.8.14
 
-> अन्तःस्थः सर्वभूतानामात्मा योगेश्वरो हरिः ।
+> अन्तःस्थः सर्वभूतानामात्मा योगेश्वरो हरिः ।\
 > स्वमाययावृणोद्गर्भं वैराट्याः कुरुतन्तवे ॥१४॥
 
-> antaḥsthaḥ sarva-bhūtānām
-> ātmā yogeśvaro hariḥ
-> sva-māyayāvṛṇod garbhaṁ
+> antaḥsthaḥ sarva-bhūtānām\
+> ātmā yogeśvaro hariḥ\
+> sva-māyayāvṛṇod garbhaṁ\
 > vairāṭyāḥ kuru-tantave
 
 *antaḥsthaḥ*—estando dentro; *sarva*—todo; *bhūtānām*—de los seres vivientes; *ātmā*—alma; *yoga-īśvaraḥ*—el Señor de todo misticismo; *hariḥ*—el Señor Supremo; *sva-māyayā*—mediante la energía personal; *āvṛṇot*—cubrió; *garbham*—embrión; *vairāṭyāḥ*—de Uttarā; *kuru-tantave*—por el descendiente de Mahārāja Kuru.

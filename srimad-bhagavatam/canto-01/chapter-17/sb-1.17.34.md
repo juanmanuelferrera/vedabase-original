@@ -1,11 +1,11 @@
 ### SB 1.17.34
 
-> यस्मिन्हरिर्भगवानिज्यमान इज्यात्ममूर्तिर्यजतां शं तनोति ।
+> यस्मिन्हरिर्भगवानिज्यमान इज्यात्ममूर्तिर्यजतां शं तनोति ।\
 > कामानमोघान्स्थिरजङ्गमानामन्तर्बहिर्वायुरिवैष आत्मा ॥३४॥
 
-> yasmin harir bhagavān ijyamāna
-> ijyātma-mūrtir yajatāṁ śaṁ tanoti
-> kāmān amoghān sthira-jaṅgamānām
+> yasmin harir bhagavān ijyamāna\
+> ijyātma-mūrtir yajatāṁ śaṁ tanoti\
+> kāmān amoghān sthira-jaṅgamānām\
 > antar bahir vāyur ivaiṣa ātmā
 
 *yasmin*—in such sacrificial ceremonies; *hariḥ*—the Supreme Lord; *bhagavān*—the Personality of Godhead; *ijyamānaḥ*—being worshiped; *ijya-ātma*—the soul of all worshipable deities; *mūrtiḥ*—in the forms; *yajatām*—those who worship; *śam*—welfare; *tanoti*—spreads; *kāmān*—desires; *amoghān*—inviolable; *sthira-jaṅgamānām*—of all the moving and nonmoving; *antaḥ*—within; *bahiḥ*—outside; *vāyuḥ*—air; *iva*—like; *eṣaḥ*—of all of them; *ātmā*—spirit soul.

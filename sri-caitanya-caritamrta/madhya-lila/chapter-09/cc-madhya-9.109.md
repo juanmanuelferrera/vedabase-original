@@ -1,9 +1,9 @@
 ### CC Madhya 9.109
 
-> ‘শ্রী-বৈষ্ণব’ ভট্ট সেবে লক্ষ্মী-নারায়ণ ।
+> ‘শ্রী-বৈষ্ণব’ ভট্ট সেবে লক্ষ্মী-নারায়ণ ।\
 > তাঁর ভক্তি দেখি’ প্রভুর তুষ্ট হৈল মন ॥১০৯॥
 
-> śrī-vaiṣṇava' bhaṭṭa seve lakṣmī-nārāyaṇa
+> śrī-vaiṣṇava' bhaṭṭa seve lakṣmī-nārāyaṇa\
 > tāṅra bhakti dekhi' prabhura tuṣṭa haila mana
 
 *śrī-vaiṣṇava*—a devotee of the Rāmānuja-sampradāya; *bhaṭṭa*—Veṅkaṭa Bhaṭṭa; *seve*—used to worship; *lakṣmī-nārāyaṇa*—the Deities of Lord Nārāyaṇa and the goddess of fortune, Lakṣmī; *tāṅra*—his; *bhakti*—devotion; *dekhi'*—seeing; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *tuṣṭa*—happy; *haila*—became; *mana*—the mind.

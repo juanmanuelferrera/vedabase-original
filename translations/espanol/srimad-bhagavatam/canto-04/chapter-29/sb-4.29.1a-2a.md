@@ -1,18 +1,18 @@
 ### SB 4.29.1a-2a
 
-> sarveṣām eva jantūnāṁ
-> satataṁ deha-poṣaṇe
-> asti prajñā samāyattā
+> sarveṣām eva jantūnāṁ\
+> satataṁ deha-poṣaṇe\
+> asti prajñā samāyattā\
 > ko viśeṣas tadā nṛṇām
 
-> sarveṣām eva jantūnāṁ
-> satataṁ deha-poṣaṇe
-> asti prajñā samāyattā
+> sarveṣām eva jantūnāṁ\
+> satataṁ deha-poṣaṇe\
+> asti prajñā samāyattā\
 > ko viśeṣas tadā nṛṇām
 
-> labdhvehānte manuṣyatvaṁ
-> hitvā dehādy-asad-graham
-> ātma-sṛtyā vihāyedaṁ
+> labdhvehānte manuṣyatvaṁ\
+> hitvā dehādy-asad-graham\
+> ātma-sṛtyā vihāyedaṁ\
 > jīvātmā sa viśiṣyate
 
 *sarveṣām*—todos; *eva*—ciertamente; *jantūnām*—de animales; *satatam*—siempre; *deha-poṣaṇe*—para mantener el cuerpo; *asti*—hay; *prajñā*—inteligencia; *samāyattā*—que reposa en; *kaḥ*—qué; *viśeṣaḥ*—diferencia; *tadā*—entonces; *nṛṇām*—de los seres humanos; *labdhvā*—habiendo alcanzado; *iha*—aquí; *ante*—al final de muchas vidas; *manuṣyatvam*—una vida humana; *hitvā*—después de abandonar; *deha-ādi*—en los cuerpos denso y sutil; *asat-graham*—concepto incorrecto de la vida; *ātma*—de conocimiento espiritual; *sṛtyā*—por el sendero; *vihāya*—haber abandonado; *idam*—este cuerpo; *jīva-ātmā*—el alma espiritual individual; *saḥ*—esa; *viśiṣyate*—destaca.

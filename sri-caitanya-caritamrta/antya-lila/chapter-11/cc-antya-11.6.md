@@ -1,9 +1,9 @@
 ### CC Antya 11.6
 
-> জয় নিত্যানন্দচন্দ্র জয় চৈতন্যের প্রাণ ।
+> জয় নিত্যানন্দচন্দ্র জয় চৈতন্যের প্রাণ ।\
 > তোমার চরণারবিন্দে ভক্তি দেহ’ দান ॥৬॥
 
-> jaya nityānanda-candra jaya caitanyera prāṇa
+> jaya nityānanda-candra jaya caitanyera prāṇa\
 > tomāra caraṇāravinde bhakti deha' dāna
 
 *jaya*—all glories; *nityānanda-candra*—to Lord Nityānanda Prabhu; *jaya*—all glories; *caitanyera prāṇa*—to the life and soul of Śrī Caitanya Mahāprabhu; *tomāra caraṇa-aravinde*—at Your lotus feet; *bhakti*—devotional service; *deha'*—please give; *dāna*—the gift.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.255
 
-> ‘শ্রবণমধ্যে জীবের কোন্ শ্রেষ্ঠ শ্রবণ?’
+> ‘শ্রবণমধ্যে জীবের কোন্ শ্রেষ্ঠ শ্রবণ?’\
 > ‘রাধাকৃষ্ণ-প্রেমকেলি কর্ণ-রসায়ন ।।’ ॥২৫৫॥
 
-> 'śravaṇa-madhye jīvera kon śreṣṭha śravaṇa?'
+> 'śravaṇa-madhye jīvera kon śreṣṭha śravaṇa?'\
 > 'rādhā-kṛṣṇa-prema-keli karṇa-rasāyana'
 
 *śravaṇa-madhye*—out of all topics for hearing; *jīvera*—of the living entity; *kon*—what; *śreṣṭha*—most important; *śravaṇa*—topic of hearing; *rādhā-kṛṣṇa-prema-keli*—the loving affairs between Rādhā and Kṛṣṇa; *karṇa-rasa-ayana*—most pleasing to the ear.

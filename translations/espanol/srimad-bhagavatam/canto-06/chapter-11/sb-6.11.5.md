@@ -1,11 +1,11 @@
 ### SB 6.11.5
 
-> यदि वः प्रधने श्रद्धा सारं वा क्षुल्लका हृदि
+> यदि वः प्रधने श्रद्धा सारं वा क्षुल्लका हृदि\
 > अग्रे तिष्ठत मात्रं मे न चेद्ग्राम्यसुखे स्पृहा ॥५॥
 
-> yadi vaḥ pradhane śraddhā
-> sāraṁ vā kṣullakā hṛdi
-> agre tiṣṭhata mātraṁ me
+> yadi vaḥ pradhane śraddhā\
+> sāraṁ vā kṣullakā hṛdi\
+> agre tiṣṭhata mātraṁ me\
 > na ced grāmya-sukhe spṛhā
 
 *yadi*—si; *vaḥ*—de ustedes; *pradhane*—en combate; *śraddhā*—fe; *sāram*—paciencia; *vā*—o; *kṣullakāḥ*—¡oh, personas insignificantes!; *hṛdi*—en lo más profundo del corazón; *agre*—enfrente; *tiṣṭhata*—vengan; *mātram*—por un momento; *me*—de mí; *na*—no; *cet*—si; *grāmya-sukhe*—en complacencia de los sentidos; *spṛhā*—deseo.

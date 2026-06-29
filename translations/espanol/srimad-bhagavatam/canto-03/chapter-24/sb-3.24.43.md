@@ -1,11 +1,11 @@
 ### SB 3.24.43
 
-> मनो ब्रह्मणि युञ्जानो यत्तत्सदसतः परम् ।
+> मनो ब्रह्मणि युञ्जानो यत्तत्सदसतः परम् ।\
 > गुणावभासे विगुण एकभक्त्यानुभाविते ॥४३॥
 
-> mano brahmaṇi yuñjāno
-> yat tat sad-asataḥ param
-> guṇāvabhāse viguṇa
+> mano brahmaṇi yuñjāno\
+> yat tat sad-asataḥ param\
+> guṇāvabhāse viguṇa\
 > eka-bhaktyānubhāvite
 
 *manaḥ*—mente; *brahmaṇi*—en el Supremo; *yuñjānaḥ*—fijando; *yat*—que; *tat*—esa; *sat-asataḥ*—causa y efecto; *param*—más allá; *guṇa-avabhāse*—que manifiesta las tres modalidades de la naturaleza material; *viguṇe*—que está más allá de las modalidades materiales; *eka-bhaktyā*—con devoción exclusiva; *anubhāvite*—que Se percibe.

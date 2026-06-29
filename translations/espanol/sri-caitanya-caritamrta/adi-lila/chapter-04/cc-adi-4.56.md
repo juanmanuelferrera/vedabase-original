@@ -1,9 +1,9 @@
 ### CC Adi 4.56
 
-> রাধাকৃষ্ণ এক আত্মা, দুই দেহ ধরি’ ।
+> রাধাকৃষ্ণ এক আত্মা, দুই দেহ ধরি’ ।\
 > অন্যোন্যে বিলসে রস আস্বাদন করি’ ॥৫৬॥
 
-> rādhā-kṛṣṇa eka ātmā, dui deha dhari'
+> rādhā-kṛṣṇa eka ātmā, dui deha dhari'\
 > anyonye vilase rasa āsvādana kari'
 
 *rādhā-kṛṣṇa*—Rādhā y Kṛṣṇa; *eka*—un; *ātmā*—ser; *dui*—dos; *deha*—cuerpos; *dhari'*—asumiendo; *anyonye*—mutuamente; *vilase*—disfrutan; *rasa*—los sabores trascendentales del amor; *āsvādana kari'*—saboreando.

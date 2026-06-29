@@ -1,13 +1,13 @@
 ### CC Antya 17.40
 
-> নদজ্জলদনিস্বনঃ শ্রবণকর্ষিসচ্ছিঞ্জিতঃ
-> সনর্মরসসূচকাক্ষরপদার্থভঙ্গ্যুক্তিকঃ ।
-> রমাদিক-বরাঙ্গনা-হৃদয়হারি-বংশীকলঃ
+> নদজ্জলদনিস্বনঃ শ্রবণকর্ষিসচ্ছিঞ্জিতঃ\
+> সনর্মরসসূচকাক্ষরপদার্থভঙ্গ্যুক্তিকঃ ।\
+> রমাদিক-বরাঙ্গনা-হৃদয়হারি-বংশীকলঃ\
 > স মে মদনমোহনঃ সখি তনোতি কর্ণস্পৃহাম্ ॥৪০॥
 
-> nadaj-jalada-nisvanaḥ śravaṇa-karṣi-sac-chiñjitaḥ
-> sanarma-rasa-sūcakākṣara-padārtha-bhaṅgy-uktikaḥ
-> ramādika-varāṅganā-hṛdaya-hāri-vaṁśī-kalaḥ
+> nadaj-jalada-nisvanaḥ śravaṇa-karṣi-sac-chiñjitaḥ\
+> sanarma-rasa-sūcakākṣara-padārtha-bhaṅgy-uktikaḥ\
+> ramādika-varāṅganā-hṛdaya-hāri-vaṁśī-kalaḥ\
 > sa me madana-mohanaḥ sakhi tanoti karṇa-spṛhām
 
 *nadat*—retumbante; *jalada*—la nube; *nisvanaḥ*—cuya voz; *śravaṇa*—los oídos; *karṣi*—que atrae; *sat-śiñjitaḥ*—el tintineo de cuyos ornamentos; *sa-narma*—con profundo significado; *rasa-sūcaka*—en tono de broma; *akṣara*—letras; *pada-artha*—significados; *bhaṅgi*—indicaciones; *uktikaḥ*—cuya conversación; *ramā-ādika*—comenzando por la diosa de la fortuna; *vara-aṅganā*—de hermosas mujeres; *hṛdaya-hāri*—que atrae los corazones; *vaṁśī-kalaḥ*—el sonido de cuya flauta; *saḥ*—ese; *me*—Mi; *madana-mohanaḥ*—Madana-mohana; *sakhi*—Mi querida amiga; *tanoti*—expande; *karṇa-spṛhām*—el deseo de los oídos.

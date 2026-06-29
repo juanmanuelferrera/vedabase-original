@@ -1,18 +1,18 @@
 ### SB 4.18.23-24
 
-> पशवो यवसं क्षीरं वत्सं कृत्वा च गोवृषम् ।
-> अरण्यपात्रे चाधुक्षन्मृगेन्द्रेण च दंष्ट्रिणः ॥२३॥
-> क्रव्यादाः प्राणिनः क्रव्यं दुदुहुः स्वे कलेवरे ।
+> पशवो यवसं क्षीरं वत्सं कृत्वा च गोवृषम् ।\
+> अरण्यपात्रे चाधुक्षन्मृगेन्द्रेण च दंष्ट्रिणः ॥२३॥\
+> क्रव्यादाः प्राणिनः क्रव्यं दुदुहुः स्वे कलेवरे ।\
 > सुपर्णवत्सा विहगाश्चरं चाचरमेव च ॥२४॥
 
-> paśavo yavasaṁ kṣīraṁ
-> vatsaṁ kṛtvā ca go-vṛṣam
-> araṇya-pātre cādhukṣan
+> paśavo yavasaṁ kṣīraṁ\
+> vatsaṁ kṛtvā ca go-vṛṣam\
+> araṇya-pātre cādhukṣan\
 > mṛgendreṇa ca daṁṣṭriṇaḥ
 
-> kravyādāḥ prāṇinaḥ kravyaṁ
-> duduhuḥ sve kalevare
-> suparṇa-vatsā vihagāś
+> kravyādāḥ prāṇinaḥ kravyaṁ\
+> duduhuḥ sve kalevare\
+> suparṇa-vatsā vihagāś\
 > caraṁ cācaram eva ca
 
 *paśavaḥ*—ganado; *yavasam*—hierba verde; *kṣīram*—leche; *vatsam*—el ternero; *kṛtvā*—convertir; *ca*—también; *go-vṛṣam*—el toro que transporta al Señor Śiva; *araṇya-pātre*—en el recipiente del bosque; *ca*—también; *adhukṣan*—ordeñaron; *mṛga-indreṇa*—por el león; *ca*—y; *daṁṣṭriṇaḥ*—animales de colmillos agudos; *kravya-adāḥ*—animales que comen carne cruda; *prāṇinaḥ*—entidades vivientes; *kravyam*—carne; *duduhuḥ*—extrajeron; *sve*—propio; *kalevare*—en el recipiente de sus cuerpos; *suparṇa*—Garuḍa; *vatsāḥ*—cuyo ternero; *vihagāḥ*—las aves; *caram*—entidades vivientes móviles; *ca*—también; *acaram*—entidades vivientes inmóviles; *eva*—ciertamente; *ca*—también.

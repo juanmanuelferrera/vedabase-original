@@ -1,9 +1,9 @@
 ### CC Antya 13.63
 
-> প্রসাদ পাই অন্যোন্যে কৈলা আলিঙ্গন ।
+> প্রসাদ পাই অন্যোন্যে কৈলা আলিঙ্গন ।\
 > চৈতন্যবিরহে দুঁহে করিলা ক্রন্দন ॥৬৩॥
 
-> prasāda pāi anyonye kailā āliṅgana
+> prasāda pāi anyonye kailā āliṅgana\
 > caitanya-virahe duṅhe karilā krandana
 
 *prasāda pāi*—after eating the remnants of food; *anyonye*—one another; *kailā āliṅgana*—they embraced; *caitanya-virahe*—in separation from Lord Caitanya; *duṅhe*—both; *karilā krandana*—cried.

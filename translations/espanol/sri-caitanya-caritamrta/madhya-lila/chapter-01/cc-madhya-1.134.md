@@ -1,9 +1,9 @@
 ### CC Madhya 1.134
 
-> সবা-সঙ্গে রথযাত্রা কৈল দরশন ।
+> সবা-সঙ্গে রথযাত্রা কৈল দরশন ।\
 > রথ-অগ্রে নৃত্য করি’ উদ্যানে গমন ॥১৩৪॥
 
-> sabā-saṅge ratha-yātrā kaila daraśana
+> sabā-saṅge ratha-yātrā kaila daraśana\
 > ratha-agre nṛtya kari' udyāne gamana
 
 *sabā-saṅge*—con todos ellos; *ratha-yātrā*—el festival de las carrozas; *kaila*—hizo; *daraśana*—contemplación; *ratha-agre*—delante de la carroza; *nṛtya*—danza; *kari'*—realizando; *udyāne*—en el jardín; *gamana*—ir.

@@ -1,13 +1,13 @@
 ### SB 3.13.5
 
-> श्रीशुक उवाच
-> इति ब्रुवाणं विदुरं विनीतं सहस्रशीर्ष्णश्चरणोपधानम् ।
+> श्रीशुक उवाच\
+> इति ब्रुवाणं विदुरं विनीतं सहस्रशीर्ष्णश्चरणोपधानम् ।\
 > प्रहृष्टरोमा भगवत्कथायां प्रणीयमानो मुनिरभ्यचष्ट ॥५॥
 
-> śrī-śuka uvāca
-> iti bruvāṇaṁ viduraṁ vinītaṁ
-> sahasra-śīrṣṇaś caraṇopadhānam
-> prahṛṣṭa-romā bhagavat-kathāyāṁ
+> śrī-śuka uvāca\
+> iti bruvāṇaṁ viduraṁ vinītaṁ\
+> sahasra-śīrṣṇaś caraṇopadhānam\
+> prahṛṣṭa-romā bhagavat-kathāyāṁ\
 > praṇīyamāno munir abhyacaṣṭa
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *iti*—thus; *bruvāṇam*—speaking; *viduram*—unto Vidura; *vinītam*—very gentle; *sahasra-śīrṣṇaḥ*—the Personality of Godhead Kṛṣṇa; *caraṇa*—lotus feet; *upadhānam*—pillow; *prahṛṣṭa-romā*—hairs standing in ecstasy; *bhagavat*—in relationship with the Personality of Godhead; *kathāyām*—in the words; *praṇīyamānaḥ*—being influenced by such spirit; *muniḥ*—the sage; *abhyacaṣṭa*—attempted to speak.

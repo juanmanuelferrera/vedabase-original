@@ -1,11 +1,11 @@
 ### SB 1.13.48
 
-> तदिदं भगवान्राजन्नेक आत्मात्मनां स्वदृक् ।
+> तदिदं भगवान्राजन्नेक आत्मात्मनां स्वदृक् ।\
 > अन्तरोऽनन्तरो भाति पश्य तं माययोरुधा ॥४८॥
 
-> tad idaṁ bhagavān rājann
-> eka ātmātmanāṁ sva-dṛk
-> antaro 'nantaro bhāti
+> tad idaṁ bhagavān rājann\
+> eka ātmātmanāṁ sva-dṛk\
+> antaro 'nantaro bhāti\
 > paśya taṁ māyayorudhā
 
 *tat*—therefore; *idam*—this manifestation; *bhagavān*—the Personality of Godhead; *rājan*—O King; *ekaḥ*—one without a second; *ātmā*—the Supersoul; *ātmanām*—by His energies; *sva-dṛk*—qualitatively like Him; *antaraḥ*—without; *anantaraḥ*—within and by Himself; *bhāti*—so manifests; *paśya*—look; *tam*—unto Him only; *māyayā*—by manifestations of different energies; *urudhā*—appears to be many.

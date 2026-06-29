@@ -1,13 +1,13 @@
 ### SB 4.9.13
 
-> तिर्यङ्नगद्विजसरीसृपदेवदैत्य
-> मर्त्यादिभिः परिचितं सदसद्विशेषम् ।
-> रूपं स्थविष्ठमज ते महदाद्यनेकं
+> तिर्यङ्नगद्विजसरीसृपदेवदैत्य\
+> मर्त्यादिभिः परिचितं सदसद्विशेषम् ।\
+> रूपं स्थविष्ठमज ते महदाद्यनेकं\
 > नातः परं परम वेद्मि न यत्र वादः ॥१३॥
 
-> tiryaṅ-naga-dvija-sarīsṛpa-deva-daitya-
-> martyādibhiḥ paricitaṁ sad-asad-viśeṣam
-> rūpaṁ sthaviṣṭham aja te mahad-ādy-anekaṁ
+> tiryaṅ-naga-dvija-sarīsṛpa-deva-daitya-\
+> martyādibhiḥ paricitaṁ sad-asad-viśeṣam\
+> rūpaṁ sthaviṣṭham aja te mahad-ādy-anekaṁ\
 > nātaḥ paraṁ parama vedmi na yatra vādaḥ
 
 *tiryak*—los mamíferos; *naga*—los árboles; *dvija*—las aves; *sarīsṛpa*—los reptiles; *deva*—los semidioses; *daitya*—los demonios; *martya-ādibhiḥ*—los hombres, etc.; *paricitam*—extendidas; *sat-asat-viśeṣam*—con especies manifiestas y no manifiestas; *rūpam*—forma; *sthaviṣṭham*—universal densa; *aja*—¡oh, Innaciente!; *te*—Tuya; *mahat-ādi*—producto de la energía material total; *anekam*—diversas causas; *na*—no; *ataḥ*—de esta; *param*—trascendental; *parama*—¡oh, Supremo!; *vedmi*—conozco; *na*—no; *yatra*—donde; *vādaḥ*—diversos argumentos.

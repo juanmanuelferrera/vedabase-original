@@ -1,11 +1,11 @@
 ### SB 7.12.8
 
-> केशप्रसाधनोन्मर्द स्नपनाभ्यञ्जनादिकम
+> केशप्रसाधनोन्मर्द स्नपनाभ्यञ्जनादिकम\
 > गुरुस्त्रीभिर्युवतिभिः कारयेन्नात्मनो युवा ॥८॥
 
-> keśa-prasādhanonmarda-
-> snapanābhyañjanādikam
-> guru-strībhir yuvatibhiḥ
+> keśa-prasādhanonmarda-\
+> snapanābhyañjanādikam\
+> guru-strībhir yuvatibhiḥ\
 > kārayen nātmano yuvā
 
 *keśa-prasādhana*—cepillar el cabello; *unmarda*—dar masaje al cuerpo; *snapana*—bañar; *abhyañjana-ādikam*—dar masaje al cuerpo con aceite, etc.; *guru-strībhiḥ*—por la esposa del maestro espiritual; *yuvatibhiḥ*—muy joven; *kārayet*—debe permitir hacer; *na*—nunca; *ātmanaḥ*—como servicio personal; *yuvā*—si el estudiante es un muchacho.

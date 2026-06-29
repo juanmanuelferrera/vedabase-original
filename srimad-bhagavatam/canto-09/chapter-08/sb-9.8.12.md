@@ -1,11 +1,11 @@
 ### SB 9.8.12
 
-> स्वशरीराग्निना तावन्महेन्द्रहृतचेतसः
+> स्वशरीराग्निना तावन्महेन्द्रहृतचेतसः\
 > महद्व्यतिक्रमहता भस्मसादभवन्क्षणात ॥१२॥
 
-> na sādhu-vādo muni-kopa-bharjitā
-> nṛpendra-putrā iti sattva-dhāmani
-> kathaṁ tamo roṣamayaṁ vibhāvyate
+> na sādhu-vādo muni-kopa-bharjitā\
+> nṛpendra-putrā iti sattva-dhāmani\
+> kathaṁ tamo roṣamayaṁ vibhāvyate\
 > jagat-pavitrātmani khe rajo bhuvaḥ
 
 *na*—not; *sādhu-vādaḥ*—the opinion of learned persons; *muni-kopa*—by the anger of Kapila Muni; *bharjitāḥ*—were burned to ashes; *nṛpendra-putrāḥ*—all the sons of Sagara Mahārāja; *iti*—thus; *sattva-dhāmani*—in Kapila Muni, in whom the mode of goodness was predominant; *katham*—how; *tamaḥ*—the mode of ignorance; *roṣa-mayam*—manifested in the form of anger; *vibhāvyate*—can be manifested; *jagat-pavitra-ātmani*—in He whose body can purify the whole world; *khe*—in the sky; *rajaḥ*—dust; *bhuvaḥ*—earthly.

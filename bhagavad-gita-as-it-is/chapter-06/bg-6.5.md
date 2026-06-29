@@ -1,11 +1,11 @@
 ### Bg 6.5
 
-> उद्धरेदात्मनात्मानं नात्मानमवसादयेत् ।
+> उद्धरेदात्मनात्मानं नात्मानमवसादयेत् ।\
 > आत्मैव ह्यात्मनो बन्धुरात्मैव रिपुरात्मनः ॥५॥
 
-> uddhared ātmanātmānaṁ
-> nātmānam avasādayet
-> ātmaiva hy ātmano bandhur
+> uddhared ātmanātmānaṁ\
+> nātmānam avasādayet\
+> ātmaiva hy ātmano bandhur\
 > ātmaiva ripur ātmanaḥ
 
 *uddharet*—one must deliver; *ātmanā*—by the mind; *ātmānam*—the conditioned soul; *na*—never; *ātmānam*—the conditioned soul; *avasādayet*—put into degradation; *ātmā*—mind; *eva*—certainly; *hi*—indeed; *ātmanaḥ*—of the conditioned soul; *bandhuḥ*—friend; *ātmā*—mind; *eva*—certainly; *ripuḥ*—enemy; *ātmanaḥ*—of the conditioned soul.

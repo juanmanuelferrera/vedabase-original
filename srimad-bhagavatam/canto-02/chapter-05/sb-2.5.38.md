@@ -1,11 +1,11 @@
 ### SB 2.5.38
 
-> भूर्लोकः कल्पितः पद्भ्यां भुवर्लोकोऽस्य नाभितः ।
+> भूर्लोकः कल्पितः पद्भ्यां भुवर्लोकोऽस्य नाभितः ।\
 > हृदा स्वर्लोक उरसा महर्लोको महात्मनः ॥३८॥
 
-> bhūrlokaḥ kalpitaḥ padbhyāṁ
-> bhuvarloko 'sya nābhitaḥ
-> hṛdā svarloka urasā
+> bhūrlokaḥ kalpitaḥ padbhyāṁ\
+> bhuvarloko 'sya nābhitaḥ\
+> hṛdā svarloka urasā\
 > maharloko mahātmanaḥ
 
 *bhūḥ*—the lower planetary systems up to the stratum of the earth; *lokaḥ*—the planets; *kalpitaḥ*—it is so imagined or said; *padbhyām*—out of the legs; *bhuvaḥ*—the upper; *lokaḥ*—the planetary system; *asya*—of Him (the Lord); *nābhitaḥ*—from the navel abdomen; *hṛdā*—by the heart; *svarlokaḥ*—the planetary systems occupied by the demigods; *urasā*—by the chest; *maharlokaḥ*—the planetary system occupied by great sages and saints; *mahā-ātmanaḥ*—of the Supreme Personality of Godhead.

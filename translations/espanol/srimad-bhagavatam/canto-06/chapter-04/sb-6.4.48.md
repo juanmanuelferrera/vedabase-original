@@ -1,11 +1,11 @@
 ### SB 6.4.48
 
-> मय्यनन्तगुणेऽनन्ते गुणतो गुणविग्रहः
+> मय्यनन्तगुणेऽनन्ते गुणतो गुणविग्रहः\
 > यदासीत्तत एवाद्यः स्वयम्भूः समभूदजः ॥४८॥
 
-> mayy ananta-guṇe 'nante
-> guṇato guṇa-vigrahaḥ
-> yadāsīt tata evādyaḥ
+> mayy ananta-guṇe 'nante\
+> guṇato guṇa-vigrahaḥ\
+> yadāsīt tata evādyaḥ\
 > svayambhūḥ samabhūd ajaḥ
 
 *mayi*—en Mí; *ananta-guṇe*—con potencia ilimitada; *anante*—ilimitado; *guṇataḥ*—de Mi potencia denominada *māyā*; *guṇa-vigrahaḥ*—el universo, que es el resultado de las modalidades de la naturaleza; *yadā*—cuando; *āsīt*—comenzó a existir; *tataḥ*—allí; *eva*—en verdad; *ādyaḥ*—el primer ser vivo; *svayambhūḥ*—el Señor Brahmā; *samabhūt*—nació; *ajaḥ*—aunque no de una madre material.

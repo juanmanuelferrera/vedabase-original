@@ -1,13 +1,13 @@
 ### SB 2.7.46
 
-> ते वै विदन्त्यतितरन्ति च देवमायां
-> स्त्रीशूद्रहूणशबरा अपि पापजीवाः ।
-> यद्यद्भुतक्रमपरायणशीलशिक्षास्
+> ते वै विदन्त्यतितरन्ति च देवमायां\
+> स्त्रीशूद्रहूणशबरा अपि पापजीवाः ।\
+> यद्यद्भुतक्रमपरायणशीलशिक्षास्\
 > तिर्यग्जना अपि किमु श्रुतधारणा ये ॥४६॥
 
-> te vai vidanty atitaranti ca deva-māyāṁ
-> strī-śūdra-hūṇa-śabarā api pāpa-jīvāḥ
-> yady adbhuta-krama-parāyaṇa-śīla-śikṣās
+> te vai vidanty atitaranti ca deva-māyāṁ\
+> strī-śūdra-hūṇa-śabarā api pāpa-jīvāḥ\
+> yady adbhuta-krama-parāyaṇa-śīla-śikṣās\
 > tiryag-janā api kim u śruta-dhāraṇā ye
 
 *te*—esas personas; *vai*—indudablemente; *vidanti*—saben; *atitaranti*—superan; *ca*—también; *deva-māyām*—la energía cubriente del Señor; *strī*—tal como las mujeres; *śūdra*—la clase laboral; *hūṇa*—los montañeses; *śabarāḥ*—los siberianos, o aquellos que son más bajo que los *śūdras*; *api*—si bien; *pāpa jīvāḥ*—seres vivientes pecadores; *yadi*—siempre y cuando; *adbhuta-krama*—aquel cuyos actos siempre son muy maravillosos; *parāyaṇa*—aquellos que son devotos; *śīla*—comportamiento; *śikṣāḥ*—entrenados por; *tiryak janāh*—incluso aquellos que no son seres humanos; *api*—también; *kim*—ni qué; *u*—hablar de; *śruta-dhāraṇāḥ*—aquellos que se han entregado a la idea del Señor por oír hablar acerca de Él; *ye*—aquellos.

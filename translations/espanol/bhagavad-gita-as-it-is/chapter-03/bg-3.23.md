@@ -1,11 +1,11 @@
 ### Bg 3.23
 
-> यदि ह्यहं न वर्तेयं जातु कर्मण्यतन्द्रितः ।
+> यदि ह्यहं न वर्तेयं जातु कर्मण्यतन्द्रितः ।\
 > मम वर्त्मानुवर्तन्ते मनुष्याः पार्थ सर्वशः ॥२३॥
 
-> yadi hy ahaṁ na varteyaṁ
-> jātu karmaṇy atandritaḥ
-> mama vartmānuvartante
+> yadi hy ahaṁ na varteyaṁ\
+> jātu karmaṇy atandritaḥ\
+> mama vartmānuvartante\
 > manuṣyāḥ pārtha sarvaśaḥ
 
 *yadi*—si; *hi*—ciertamente; *aham*—Yo; *na*—no; *varteyam*—ocupado así; *jātu*—alguna vez; *karmaṇi*—en el desempeño de deberes prescritos; *atandritaḥ*—con gran cuidado; *mama*—Mí; *vartma*—sendero; *anuvartante*—seguirían; *manuṣyāḥ*—todos los hombres; *pārtha*—¡oh, hijo de Pṛthā!; *sarvaśaḥ*—en todos los aspectos.

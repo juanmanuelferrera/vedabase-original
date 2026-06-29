@@ -1,9 +1,9 @@
 ### CC Antya 3.20
 
-> এতেক বিচারি’ প্রভু মধ্যাহ্নে চলিলা  ।
+> এতেক বিচারি’ প্রভু মধ্যাহ্নে চলিলা  ।\
 > আর দিনে দামোদরে নিভৃতে বোলাইলা ॥২০॥
 
-> eteka vicāri' prabhu madhyāhne calilā
+> eteka vicāri' prabhu madhyāhne calilā\
 > āra dine dāmodare nibhṛte bolāilā
 
 *eteka vicāri'*—considerando de esta manera; *prabhu*—Śrī Caitanya Mahāprabhu; *madhyāhne calilā*—fue a realizar Sus deberes del mediodía; *āra dine*—al día siguiente; *dāmodare*—a Dāmodara Paṇḍita; *nibhṛte*—a un lugar apartado; *bolāilā*—llamó.

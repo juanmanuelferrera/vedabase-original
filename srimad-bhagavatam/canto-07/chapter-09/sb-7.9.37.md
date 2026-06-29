@@ -1,13 +1,13 @@
 ### SB 7.9.37
 
-> तस्मै भवान्हयशिरस्तनुवं हि बिभ्रद
-> वेदद्रुहावतिबलौ मधुकैटभाख्यौ
-> हत्वानयच्छ्रुतिगणांश्च रजस्तमश्च
+> तस्मै भवान्हयशिरस्तनुवं हि बिभ्रद\
+> वेदद्रुहावतिबलौ मधुकैटभाख्यौ\
+> हत्वानयच्छ्रुतिगणांश्च रजस्तमश्च\
 > सत्त्वं तव प्रियतमां तनुमामनन्ति ॥३७॥
 
-> tasmai bhavān haya-śiras tanuvaṁ hi bibhrad
-> veda-druhāv atibalau madhu-kaiṭabhākhyau
-> hatvānayac chruti-gaṇāṁś ca rajas tamaś ca
+> tasmai bhavān haya-śiras tanuvaṁ hi bibhrad\
+> veda-druhāv atibalau madhu-kaiṭabhākhyau\
+> hatvānayac chruti-gaṇāṁś ca rajas tamaś ca\
 > sattvaṁ tava priyatamāṁ tanum āmananti
 
 *tasmai*—unto Lord Brahmā; *bhavān*—Your Lordship; *haya-śiraḥ*—having the head and neck of a horse; *tanuvam*—the incarnation; *hi*—indeed; *bibhrat*—accepting; *veda-druhau*—two demons who were against the Vedic principles; *ati-balau*—extremely powerful; *madhu-kaiṭabha-ākhyau*—known as Madhu and Kaiṭabha; *hatvā*—killing; *anayat*—delivered; *śruti-gaṇān*—all the different *Vedas* (*Sāma, Yajur, Ṛg* and *Atharva*); *ca*—and; *rajaḥ tamaḥ ca*—by representing the modes of passion and ignorance; *sattvam*—pure transcendental goodness; *tava*—Your; *priya-tamām*—most dear; *tanum*—form (as Hayagrīva); *āmananti*—they honor.

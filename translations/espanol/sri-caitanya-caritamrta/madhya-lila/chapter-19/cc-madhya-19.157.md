@@ -1,9 +1,9 @@
 ### CC Madhya 19.157
 
-> তাতে মালী যত্ন করি’ করে আবরণ ।
+> তাতে মালী যত্ন করি’ করে আবরণ ।\
 > অপরাধ-হস্তীর যৈছে না হয় উদ্গম ॥১৫৭॥
 
-> tāte mālī yatna kari' kare āvaraṇa
+> tāte mālī yatna kari' kare āvaraṇa\
 > aparādha-hastīra yaiche nā haya udgama
 
 *tāte*—por lo tanto; *mālī*—el devoto jardinero; *yatna kari'*—con gran atención; *kare*—hace; *āvaraṇa*—una cerca protectora; *aparādha*—de las ofensas; *hastīra*—del elefante; *yaiche*—de manera que; *nā*—no; *haya*—haya; *udgama*—nacimiento.

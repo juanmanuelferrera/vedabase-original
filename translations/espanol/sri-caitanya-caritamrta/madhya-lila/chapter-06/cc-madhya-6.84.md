@@ -1,13 +1,13 @@
 ### CC Madhya 6.84
 
-> অথাপি তে দেব পদাম্বুজদ্বয়-
-> প্রসাদ-লেশানুগৃহীত এব হি ।
-> জানাতি তত্ত্বং ভগবন্মহিম্নো
+> অথাপি তে দেব পদাম্বুজদ্বয়-\
+> প্রসাদ-লেশানুগৃহীত এব হি ।\
+> জানাতি তত্ত্বং ভগবন্মহিম্নো\
 > ন চান্য একোঽপি চিরং বিচিন্বন্ ॥৮৪॥
 
-> athāpi te deva padāmbuja-dvaya-
-> prasāda-leśānugṛhīta eva hi
-> jānāti tattvaṁ bhagavan-mahimno
+> athāpi te deva padāmbuja-dvaya-\
+> prasāda-leśānugṛhīta eva hi\
+> jānāti tattvaṁ bhagavan-mahimno\
 > na cānya eko 'pi ciraṁ vicinvan
 
 *atha*—por lo tanto; *api*—ciertamente; *te*—Tus; *deva*—mi Señor; *pada-ambuja-dvaya*—de los dos pies de loto; *prasāda*—de la misericordia; *leśa*—por tan solo un vestigio; *anugṛhītaḥ*—favorecido; *eva*—ciertamente; *hi*—en verdad; *jānāti*—uno conoce; *tattvam*—la verdad; *bhagavat*—de la Suprema Personalidad de Dios; *mahimnaḥ*—de la grandeza; *na*—nunca; *ca*—y; *anyaḥ*—otro; *ekaḥ*—uno; *api*—aunque; *ciram*—durante un largo período; *vicinvan*—especulando.

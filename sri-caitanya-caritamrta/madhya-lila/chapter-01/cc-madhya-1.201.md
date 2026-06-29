@@ -1,9 +1,9 @@
 ### CC Madhya 1.201
 
-> সত্য এক বাত কহোঁ, শুন, দয়াময় ।
+> সত্য এক বাত কহোঁ, শুন, দয়াময় ।\
 > মো-বিনু দয়ার পাত্র জগতে না হয় ॥২০১॥
 
-> satya eka bāta kahoṅ, śuna, dayā-maya
+> satya eka bāta kahoṅ, śuna, dayā-maya\
 > mo-vinu dayāra pātra jagate nā haya
 
 *satya*—truthful; *eka*—one; *bāta*—word; *kahoṅ*—we say; *śuna*—please hear; *dayā-maya*—O all-merciful Lord; *mo-vinu*—except for us; *dayāra*—of mercy; *pātra*—objects; *jagate*—in the world; *nā*—not; *haya*—there is.

@@ -1,11 +1,11 @@
 ### SB 1.10.30
 
-> एताः परं स्त्रीत्वमपास्तपेशलं निरस्तशौचं बत साधु कुर्वते ।
+> एताः परं स्त्रीत्वमपास्तपेशलं निरस्तशौचं बत साधु कुर्वते ।\
 > यासां गृहात्पुष्करलोचनः पतिर्न जात्वपैत्याहृतिभिर्हृदि स्पृशन् ॥३०॥
 
-> etāḥ paraṁ strītvam apāstapeśalaṁ
-> nirasta-śaucaṁ bata sādhu kurvate
-> yāsāṁ gṛhāt puṣkara-locanaḥ patir
+> etāḥ paraṁ strītvam apāstapeśalaṁ\
+> nirasta-śaucaṁ bata sādhu kurvate\
+> yāsāṁ gṛhāt puṣkara-locanaḥ patir\
 > na jātv apaity āhṛtibhir hṛdi spṛśan
 
 *etāḥ*—all these women; *param*—highest; *strītvam*—womanhood; *apāstapeśalam*—without individuality; *nirasta*—without; *śaucam*—purity; *bata sādhu*—auspiciously glorified; *kurvate*—do they make; *yāsām*—from whose; *gṛhāt*—homes; *puṣkara-locanaḥ*—the lotus-eyed; *patiḥ*—husband; *na jātu*—never at any time; *apaiti*—goes away; *āhṛtibhiḥ*—by presentation; *hṛdi*—in the heart; *spṛśan*—endeared.

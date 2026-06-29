@@ -1,11 +1,11 @@
 ### CC Madhya 23.100
 
-> সর্বথৈব দুরূহোঽয়মভক্তৈর্ভগবদ্রসঃ ।
+> সর্বথৈব দুরূহোঽয়মভক্তৈর্ভগবদ্রসঃ ।\
 > তৎপাদাম্বুজসর্বস্বৈর্ভক্তৈরেবানুরস্যতে ॥১০০॥
 
-> sarvathaiva durūho 'yam
-> abhaktair bhagavad-rasaḥ
-> tat pādāmbuja-sarvasvair
+> sarvathaiva durūho 'yam\
+> abhaktair bhagavad-rasaḥ\
+> tat pādāmbuja-sarvasvair\
 > bhaktair evānurasyate
 
 *sarvathā*—in all respects; *eva*—certainly; *durūhaḥ*—difficult to be understood; *ayam*—this; *abhaktaiḥ*—by nondevotees; *bhagavat-rasaḥ*—the transcendental mellow exchanged with the Supreme Personality of Godhead; *tat*—that; *pāda-ambuja-sarvasvaiḥ*—whose all in all is the lotus feet; *bhaktaiḥ*—by devotees; *eva*—certainly; *anurasyate*—are relished.

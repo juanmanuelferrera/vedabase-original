@@ -1,18 +1,18 @@
 ### SB 7.15.32-33
 
-> प्राणापानौ सन्निरुन्ध्यात्पूरकुम्भकरेचकैः
-> यावन्मनस्त्यजेत्कामान्स्वनासाग्रनिरीक्षणः ॥३२॥
-> यतो यतो निःसरति मनः कामहतं भ्रमत
+> प्राणापानौ सन्निरुन्ध्यात्पूरकुम्भकरेचकैः\
+> यावन्मनस्त्यजेत्कामान्स्वनासाग्रनिरीक्षणः ॥३२॥\
+> यतो यतो निःसरति मनः कामहतं भ्रमत\
 > ततस्तत उपाहृत्य हृदि रुन्ध्याच्छनैर्बुधः ॥३३॥
 
-> prāṇāpānau sannirundhyāt
-> pūra-kumbhaka-recakaiḥ
-> yāvan manas tyajet kāmān
+> prāṇāpānau sannirundhyāt\
+> pūra-kumbhaka-recakaiḥ\
+> yāvan manas tyajet kāmān\
 > sva-nāsāgra-nirīkṣaṇaḥ
 
-> yato yato niḥsarati
-> manaḥ kāma-hataṁ bhramat
-> tatas tata upāhṛtya
+> yato yato niḥsarati\
+> manaḥ kāma-hataṁ bhramat\
+> tatas tata upāhṛtya\
 > hṛdi rundhyāc chanair budhaḥ
 
 *prāṇa*—incoming breath; *apānau*—outgoing breath; *sannirundhyāt*—should stop; *pūra-kumbhaka-recakaiḥ*—by inhaling, exhaling and holding, which are technically known as *pūraka, kumbhaka* and *recaka*; *yāvat*—so long; *manaḥ*—the mind; *tyajet*—should give up; *kāmān*—all material desires; *sva*—one's own; *nāsa-agra*—the tip of the nose; *nirīkṣaṇaḥ*—looking at; *yataḥ yataḥ*—from whatever and wherever; *niḥsarati*—withdraws; *manaḥ*—the mind; *kāma-hatam*—being defeated by lusty desires; *bhramat*—wandering; *tataḥ tataḥ*—from here and there; *upāhṛtya*—after bringing it back; *hṛdi*—within the core of the heart; *rundhyāt*—should arrest (the mind); *śanaiḥ*—gradually, by practice; *budhaḥ*—a learned *yogī.*

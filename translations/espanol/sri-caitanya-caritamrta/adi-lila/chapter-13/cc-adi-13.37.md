@@ -1,9 +1,9 @@
 ### CC Adi 13.37
 
-> এই ‘মধ্যলীলা’ নাম — লীলা-মুখ্যধাম ।
+> এই ‘মধ্যলীলা’ নাম — লীলা-মুখ্যধাম ।\
 > শেষ অষ্টাদশ বর্ষ — ‘অন্ত্যলীলা’ নাম ॥৩৭॥
 
-> ei 'madhya-līlā' nāma--līlā-mukhyadhāma
+> ei 'madhya-līlā' nāma--līlā-mukhyadhāma\
 > śeṣa aṣṭādaśa varṣa--'antya-līlā' nāma
 
 *ei*—estos; *madhya-līlā nāma*—llamados los pasatiempos intermedios; *līlā*—pasatiempos; *mukhya-dhāma*—lugar principal; *śeṣa*—últimos; *aṣṭādaśa*—dieciocho; *varṣa*—años; *antya-līlā*—los pasatiempos finales; *nāma*—llamados.

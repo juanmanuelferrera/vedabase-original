@@ -1,6 +1,6 @@
 ### CC Adi 1.43
 
-> sāvaraṇe prabhure kariyā namaskāra
+> sāvaraṇe prabhure kariyā namaskāra\
 > ei chaya teṅho yaiche—kariye vicāra
 
 *sa-āvaraṇe*—juntamente com Seus associados; *prabhure*—ao Senhor Śrī Caitanya Mahāprabhu; *kariyā*—tendo feito; *namaskāra*—respeitosas reverências; *ei*—estas; *chaya*—seis; *teṅho*—Ele; *yaiche*—como são; *kariye*—faço; *vicāra*—exposição.

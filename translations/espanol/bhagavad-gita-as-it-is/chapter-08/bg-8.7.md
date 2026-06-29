@@ -1,11 +1,11 @@
 ### Bg 8.7
 
-> तस्मात्सर्वेषु कालेषु मामनुस्मर युध्य च ।
+> तस्मात्सर्वेषु कालेषु मामनुस्मर युध्य च ।\
 > मय्यर्पितमनोबुद्धिर्मामेवैष्यस्यसंशयः ॥७॥
 
-> tasmāt sarveṣu kāleṣu
-> mām anusmara yudhya ca
-> mayy arpita-mano buddhir
+> tasmāt sarveṣu kāleṣu\
+> mām anusmara yudhya ca\
+> mayy arpita-mano buddhir\
 > mām evaiṣyasy asaṁśayaḥ
 
 *tasmāt*—por lo tanto; *sarveṣu*—siempre; *kāleṣu*—momento; *mām*—a Mí; *anusmara*—continúa recordando; *yudhya*—lucha; *ca*—también; *mayi*—a Mí; *arpita*—entrega; *manaḥ*—mente; *buddhiḥ*—intelecto; *mām*—a Mí; *eva*—con seguridad; *eṣyasi*—alcanzarás; *asaṁśayaḥ*—sin duda alguna.

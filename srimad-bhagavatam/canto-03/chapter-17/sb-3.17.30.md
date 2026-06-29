@@ -1,11 +1,11 @@
 ### SB 3.17.30
 
-> पश्यामि नान्यं पुरुषात्पुरातनाद्यः संयुगे त्वां रणमार्गकोविदम् ।
+> पश्यामि नान्यं पुरुषात्पुरातनाद्यः संयुगे त्वां रणमार्गकोविदम् ।\
 > आराधयिष्यत्यसुरर्षभेहि तं मनस्विनो यं गृणते भवादृशाः ॥३०॥
 
-> paśyāmi nānyaṁ puruṣāt purātanād
-> yaḥ saṁyuge tvāṁ raṇa-mārga-kovidam
-> ārādhayiṣyaty asurarṣabhehi taṁ
+> paśyāmi nānyaṁ puruṣāt purātanād\
+> yaḥ saṁyuge tvāṁ raṇa-mārga-kovidam\
+> ārādhayiṣyaty asurarṣabhehi taṁ\
 > manasvino yaṁ gṛṇate bhavādṛśāḥ
 
 *paśyāmi*—I see; *na*—not; *anyam*—other; *puruṣāt*—than the person; *purātanāt*—most ancient; *yaḥ*—who; *saṁyuge*—in battle; *tvām*—to you; *raṇa-mārga*—in the tactics of war; *kovidam*—very much skilled; *ārādhayiṣyati*—will give satisfaction; *asura-ṛṣabha*—O chief of the *asuras*; *ihi*—approach; *tam*—Him; *manasvinaḥ*—heroes; *yam*—whom; *gṛṇate*—praise; *bhavādṛśāḥ*—like you.

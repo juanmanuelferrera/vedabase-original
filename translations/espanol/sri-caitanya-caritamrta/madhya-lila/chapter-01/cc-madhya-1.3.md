@@ -1,11 +1,11 @@
 ### CC Madhya 1.3
 
-> জয়তাং সুরতৌ পঙ্গোর্মম মন্দমতের্গতী ।
+> জয়তাং সুরতৌ পঙ্গোর্মম মন্দমতের্গতী ।\
 > মৎসর্বস্বপদাম্ভোজৌ রাধামদনমোহনৌ ॥৩॥
 
-> jayatāṁ suratau paṅgor
-> mama manda-mater gatī
-> mat-sarvasva-padāmbhojau
+> jayatāṁ suratau paṅgor\
+> mama manda-mater gatī\
+> mat-sarvasva-padāmbhojau\
 > rādhā-madana-mohanau
 
 *jayatām*—¡toda la gloria a!; *su-ratau*—los más misericordiosos, o apegados en amor conyugal; *paṅgoḥ*—de alguien que es cojo; *mama*—de mí; *manda-mateḥ*—necio; *gatī*—refugio; *mat*—mi; *sarva-sva*—todo; *pada-ambhojau*—cuyos pies de loto; *rādhā-madana-mohanau*—Rādhārāṇī y Madana-mohana.

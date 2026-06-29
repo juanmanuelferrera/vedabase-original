@@ -1,9 +1,9 @@
 ### CC Madhya 7.139
 
-> প্রভুর গমন কূর্ম-মুখেতে শুনিঞা ।
+> প্রভুর গমন কূর্ম-মুখেতে শুনিঞা ।\
 > ভূমিতে পড়িলা দুঃখে মূর্চ্ছিত হঞা ॥১৩৯॥
 
-> prabhura gamana kūrma-mukhete śuniñā
+> prabhura gamana kūrma-mukhete śuniñā\
 > bhūmite paḍilā duḥkhe mūrcchita hañā
 
 *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *gamana*—the going; *kūrma-mukhete*—from the mouth of the *brāhmaṇa* Kūrma; *śuniñā*—hearing; *bhūmite*—on the ground; *paḍilā*—fell down; *duḥkhe*—in great distress; *mūrcchita*—unconsciousness; *hañā*—becoming.

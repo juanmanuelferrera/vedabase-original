@@ -1,11 +1,11 @@
 ### SB 4.23.39
 
-> अनुदिनमिदमादरेण शृण्वन्पृथुचरितं प्रथयन्विमुक्तसङ्गः ।
+> अनुदिनमिदमादरेण शृण्वन्पृथुचरितं प्रथयन्विमुक्तसङ्गः ।\
 > भगवति भवसिन्धुपोतपादे स च निपुणां लभते रतिं मनुष्यः ॥३९॥
 
-> anudinam idam ādareṇa śṛṇvan
-> pṛthu-caritaṁ prathayan vimukta-saṅgaḥ
-> bhagavati bhava-sindhu-pota-pāde
+> anudinam idam ādareṇa śṛṇvan\
+> pṛthu-caritaṁ prathayan vimukta-saṅgaḥ\
+> bhagavati bhava-sindhu-pota-pāde\
 > sa ca nipuṇāṁ labhate ratiṁ manuṣyaḥ
 
 *anu-dinam*—day after day; *idam*—this; *ādareṇa*—with great respect; *śṛṇvan*—hearing; *pṛthu-caritam*—the narration of Pṛthu Mahārāja; *prathayan*—chanting; *vimukta*—liberated; *saṅgaḥ*—association; *bhagavati*—unto the Supreme Personality of Godhead; *bhava-sindhu*—the ocean of nescience; *pota*—the boat; *pāde*—whose lotus feet; *saḥ*—he; *ca*—also; *nipuṇām*—complete; *labhate*—achieves; *ratim*—attachment; *manuṣyaḥ*—the person.

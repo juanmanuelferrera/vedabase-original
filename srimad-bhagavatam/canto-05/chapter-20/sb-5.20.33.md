@@ -1,11 +1,11 @@
 ### SB 5.20.33
 
-> यत्तत्कर्ममयं लिङ्गं ब्रह्मलिङ्गं जनोऽर्चयेत
+> यत्तत्कर्ममयं लिङ्गं ब्रह्मलिङ्गं जनोऽर्चयेत\
 > एकान्तमद्वयं शान्तं तस्मै भगवते नम इति ॥३३॥
 
-> yat tat karmamayaṁ liṅgaṁ
-> brahma-liṅgaṁ jano 'rcayet
-> ekāntam advayaṁ śāntaṁ
+> yat tat karmamayaṁ liṅgaṁ\
+> brahma-liṅgaṁ jano 'rcayet\
+> ekāntam advayaṁ śāntaṁ\
 > tasmai bhagavate nama iti
 
 *yat*—which; *tat*—that; *karma-mayam*—obtainable by the Vedic ritualistic system; *liṅgam*—the form; *brahma-liṅgam*—which makes known the Supreme Brahman; *janaḥ*—a person; *arcayet*—must worship; *ekāntam*—who has full faith in the one Supreme; *advayam*—nondifferent; *śāntam*—peaceful; *tasmai*—unto him; *bhagavate*—the most powerful; *namaḥ*—our respects; *iti*—thus.

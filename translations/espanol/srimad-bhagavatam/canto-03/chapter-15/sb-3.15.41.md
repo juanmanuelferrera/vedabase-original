@@ -1,13 +1,13 @@
 ### SB 3.15.41
 
-> विद्युत्क्षिपन्मकरकुण्डलमण्डनार्ह
-> गण्डस्थलोन्नसमुखं मणिमत्किरीटम् ।
-> दोर्दण्डषण्डविवरे हरता परार्ध्य
+> विद्युत्क्षिपन्मकरकुण्डलमण्डनार्ह\
+> गण्डस्थलोन्नसमुखं मणिमत्किरीटम् ।\
+> दोर्दण्डषण्डविवरे हरता परार्ध्य\
 > हारेण कन्धरगतेन च कौस्तुभेन ॥४१॥
 
-> vidyut-kṣipan-makara-kuṇḍala-maṇḍanārha-
-> gaṇḍa-sthalonnasa-mukhaṁ maṇimat-kirīṭam
-> dor-daṇḍa-ṣaṇḍa-vivare haratā parārdhya-
+> vidyut-kṣipan-makara-kuṇḍala-maṇḍanārha-\
+> gaṇḍa-sthalonnasa-mukhaṁ maṇimat-kirīṭam\
+> dor-daṇḍa-ṣaṇḍa-vivare haratā parārdhya-\
 > hāreṇa kandhara-gatena ca kaustubhena
 
 *vidyut*—rayo; *kṣipat*—eclipsando; *makara*—en forma de caimán; *kuṇḍala*—pendientes; *maṇḍana*—adorno; *arha*—como conviene; *gaṇḍa-sthala*—mejillas; *unnasa*—nariz prominente; *mukham*—semblante; *maṇi-mat*—engastada con gemas; *kirīṭam*—corona; *doḥ-daṇḍa*—de Sus cuatro fuertes brazos; *ṣaṇḍa*—grupo; *vivare*—entre; *haratā*—encantador; *para-ardhya*—por el sumamente valioso; *hāreṇa*—collar; *kandhara-gatena*—adornando Su cuello; *ca*—y; *kaustubhena*—por la joya Kaustubha.

@@ -1,13 +1,13 @@
 ### SB 8.3.1
 
-> श्रीबादरायणिरुवाच
-> एवं व्यवसितो बुद्ध्या समाधाय मनो हृदि
+> श्रीबादरायणिरुवाच\
+> एवं व्यवसितो बुद्ध्या समाधाय मनो हृदि\
 > जजाप परमं जाप्यं प्राग्जन्मन्यनुशिक्षितम ॥१॥
 
-> śrī-bādarāyaṇir uvāca
-> evaṁ vyavasito buddhyā
-> samādhāya mano hṛdi
-> jajāpa paramaṁ jāpyaṁ
+> śrī-bādarāyaṇir uvāca\
+> evaṁ vyavasito buddhyā\
+> samādhāya mano hṛdi\
+> jajāpa paramaṁ jāpyaṁ\
 > prāg-janmany anuśikṣitam
 
 *śrī-bādarāyaṇiḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—thus; *vyavasitaḥ*—fixed; *buddhyā*—by intelligence; *samādhāya*—for concentration; *manaḥ*—the mind; *hṛdi*—in consciousness or in the heart; *jajāpa*—he chanted; *paramam*—a supreme; *jāpyam*—*mantra* he had learned from great devotees; *prāk-janmani*—in his previous birth; *anuśikṣitam*—practiced.

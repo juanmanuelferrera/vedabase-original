@@ -1,9 +1,9 @@
 ### CC Antya 3.121
 
-> তাবৎ ইহাঁ বসি’ শুন নাম-সঙ্কীর্তন ।
+> তাবৎ ইহাঁ বসি’ শুন নাম-সঙ্কীর্তন ।\
 > নাম পূর্ণ হৈলে, পূর্ণ হবে তোমার মন ।।” ॥ ১২১ ॥
 
-> tāvat ihāṅ vasi' śuna nāma-saṅkīrtana
+> tāvat ihāṅ vasi' śuna nāma-saṅkīrtana\
 > nāma pūrṇa haile, pūrṇa habe tomāra mana'
 
 *tāvat*—hasta entonces; *ihāṅ*—aquí; *vasi'*—sentada; *śuna*—escucha; *nāma-saṅkīrtana*—el canto del santo nombre del Señor; *nāma pūrṇa haile*—tan pronto como se cumpla el canto regular; *pūrṇa*—satisfecha; *habe*—será; *tomāra mana*—tu mente.

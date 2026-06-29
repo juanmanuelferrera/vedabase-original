@@ -1,13 +1,13 @@
 ### CC Madhya 25.151
 
-> নিগমকল্পতরোর্গলিতং ফলং
-> শুকমুখাদমৃতদ্রবসংযুতম্ ৷
-> পিবত ভাগবতং রসমালয়ং
+> নিগমকল্পতরোর্গলিতং ফলং\
+> শুকমুখাদমৃতদ্রবসংযুতম্ ৷\
+> পিবত ভাগবতং রসমালয়ং\
 > মুহুরহো রসিকা ভুবি ভাবুকাঃ ৷৷ ১৫১ ৷৷ ॥১৫১॥
 
-> nigama-kalpa-taror galitaṁ phalaṁ
-> śuka-mukhād amṛta-drava-saṁyutam
-> pibata bhāgavataṁ rasam ālayaṁ
+> nigama-kalpa-taror galitaṁ phalaṁ\
+> śuka-mukhād amṛta-drava-saṁyutam\
+> pibata bhāgavataṁ rasam ālayaṁ\
 > muhur aho rasikā bhuvi bhāvukāḥ
 
 *nigama-kalpa-taroḥ*—de la literatura Védica, que es como un árbol de los deseos; *galitam*—completamente madurado; *phalam*—fruto (que ha descendido sin ser distorsionado); *śuka-mukhāt*—de la boca de Śukadeva Gosvāmī; *amṛta*—que es como néctar; *drava-saṁyutam*—mezclado con jugo; *pibata*—simplemente bebed; *bhāgavatam*—el Śrīmad-Bhāgavatam; *rasam ālayam*—el reservorio de todas las melosidades; *muhuḥ*—constantemente; *aho*—¡oh!; *rasikāḥ*—devotos inteligentes y con sentido del humor; *bhuvi*—en este mundo; *bhāvukāḥ*—reflexivos.

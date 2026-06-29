@@ -1,11 +1,11 @@
 ### SB 5.11.4
 
-> यावन्मनो रजसा पूरुषस्य सत्त्वेन वा तमसा वानुरुद्धम
+> यावन्मनो रजसा पूरुषस्य सत्त्वेन वा तमसा वानुरुद्धम\
 > चेतोभिराकूतिभिरातनोति निरङ्कुशं कुशलं चेतरं वा ॥४॥
 
-> yāvan mano rajasā pūruṣasya
-> sattvena vā tamasā vānuruddham
-> cetobhir ākūtibhir ātanoti
+> yāvan mano rajasā pūruṣasya\
+> sattvena vā tamasā vānuruddham\
+> cetobhir ākūtibhir ātanoti\
 > niraṅkuśaṁ kuśalaṁ cetaraṁ vā
 
 *yāvat*—as long as; *manaḥ*—the mind; *rajasā*—by the mode of passion; *pūruṣasya*—of the living entity; *sattvena*—by the mode of goodness; *vā*—or; *tamasā*—by the mode of darkness; *vā*—or; *anuruddham*—controlled; *cetobhiḥ*—by the knowledge-acquiring senses; *ākūtibhiḥ*—by the senses of action; *ātanoti*—expands; *niraṅkuśam*—independent like an elephant not controlled by a trident; *kuśalam*—auspiciousness; *ca*—also; *itaram*—other than auspiciousness, sinful activities; *vā*—or.

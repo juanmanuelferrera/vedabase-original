@@ -1,13 +1,13 @@
 ### SB 9.10.15
 
-> कामं प्रयाहि जहि विश्रवसोऽवमेहं
-> त्रैलोक्यरावणमवाप्नुहि वीर पत्नीम
-> बध्नीहि सेतुमिह ते यशसो वितत्यै
+> कामं प्रयाहि जहि विश्रवसोऽवमेहं\
+> त्रैलोक्यरावणमवाप्नुहि वीर पत्नीम\
+> बध्नीहि सेतुमिह ते यशसो वितत्यै\
 > गायन्ति दिग्विजयिनो यमुपेत्य भूपाः ॥१५॥
 
-> kāmaṁ prayāhi jahi viśravaso 'vamehaṁ
-> trailokya-rāvaṇam avāpnuhi vīra patnīm
-> badhnīhi setum iha te yaśaso vitatyai
+> kāmaṁ prayāhi jahi viśravaso 'vamehaṁ\
+> trailokya-rāvaṇam avāpnuhi vīra patnīm\
+> badhnīhi setum iha te yaśaso vitatyai\
 > gāyanti dig-vijayino yam upetya bhūpāḥ
 
 *kāmam*—as You like; *prayāhi*—You may go over my water; *jahi*—just conquer; *viśravasaḥ*—of Viśravā Muni; *avameham*—pollution, like urine; *trailokya*—for the three worlds; *rāvaṇam*—the person known as Rāvaṇa, the cause of weeping; *avāpnuhi*—regain; *vīra*—O great hero; *patnīm*—Your wife; *badhnīhi*—just construct; *setum*—a bridge; *iha*—here (on this water); *te*—of Your good self; *yaśasaḥ*—fame; *vitatyai*—to expand; *gāyanti*—will glorify; *dik-vijayinaḥ*—great heroes who have conquered all directions; *yam*—which (bridge); *upetya*—coming near; *bhūpāḥ*—great kings.

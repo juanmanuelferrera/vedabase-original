@@ -1,11 +1,11 @@
 ### SB 1.16.36
 
-> तयोरेवं कथयतोः पृथिवीधर्मयोस्तदा ।
+> तयोरेवं कथयतोः पृथिवीधर्मयोस्तदा ।\
 > परीक्षिन्नाम राजर्षिः प्राप्तः प्राचीं सरस्वतीम् ॥३६॥
 
-> tayor evaṁ kathayatoḥ
-> pṛthivī-dharmayos tadā
-> parīkṣin nāma rājarṣiḥ
+> tayor evaṁ kathayatoḥ\
+> pṛthivī-dharmayos tadā\
+> parīkṣin nāma rājarṣiḥ\
 > prāptaḥ prācīṁ sarasvatīm
 
 *tayoḥ*—between them; *evam*—thus; *kathayatoḥ*—engaged in conversation; *pṛthivī*—earth; *dharmayoḥ*—and the personality of religion; *tadā*—at that time; *parīkṣit*—King Parīkṣit; *nāma*—of the name; *rāja-ṛṣiḥ*—a saint amongst kings; *prāptaḥ*—arrived; *prācīm*—flowing towards the east; *sarasvatīm*—River Sarasvatī.

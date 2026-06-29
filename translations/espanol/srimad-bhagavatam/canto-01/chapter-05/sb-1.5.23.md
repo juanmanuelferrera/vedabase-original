@@ -1,11 +1,11 @@
 ### SB 1.5.23
 
-> अहं पुरातीतभवेऽभवं मुने दास्यास्तु कस्याश्चन वेदवादिनाम् ।
+> अहं पुरातीतभवेऽभवं मुने दास्यास्तु कस्याश्चन वेदवादिनाम् ।\
 > निरूपितो बालक एव योगिनां शुश्रूषणे प्रावृषि निर्विविक्षताम् ॥२३॥
 
-> ahaṁ purātīta-bhave 'bhavaṁ mune
-> dāsyās tu kasyāścana veda-vādinām
-> nirūpito bālaka eva yogināṁ
+> ahaṁ purātīta-bhave 'bhavaṁ mune\
+> dāsyās tu kasyāścana veda-vādinām\
+> nirūpito bālaka eva yogināṁ\
 > śuśrūṣaṇe prāvṛṣi nirvivikṣatām
 
 *aham*—yo; *purā*—anteriormente; *atīta-bhave*—en el milenio anterior; *abhavam*—me convertí en; *mune*—¡oh, *muni*!; *dāsyāḥ*—de la sirvienta; *tu*—pero; *kasyāścana*—cierta; *veda-vādinām*—de los seguidores del *Vedānta*; *nirūpitaḥ*—dedicados; *bālakaḥ*—niño sirviente; *eva*—únicamente; *yoginām*—de los devotos; *śuśrūṣaṇe*—al servicio de; *prāvṛṣi*—durante los cuatro meses de la estación lluviosa; *nirvivikṣatām*—viviendo juntos.

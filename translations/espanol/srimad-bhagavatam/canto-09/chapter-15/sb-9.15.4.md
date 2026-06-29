@@ -1,13 +1,13 @@
 ### SB 9.15.4
 
-> ततः कुशः कुशस्यापि कुशाम्बुस्तनयो वसुः
+> ततः कुशः कुशस्यापि कुशाम्बुस्तनयो वसुः\
 > कुशनाभश्च चत्वारो गाधिरासीत्कुशाम्बुजः ॥४॥
 
-> jahnos tu purus tasyātha
-> balākaś cātmajo 'jakaḥ
-> tataḥ kuśaḥ kuśasyāpi
-> kuśāmbus tanayo vasuḥ
-> kuśanābhaś ca catvāro
+> jahnos tu purus tasyātha\
+> balākaś cātmajo 'jakaḥ\
+> tataḥ kuśaḥ kuśasyāpi\
+> kuśāmbus tanayo vasuḥ\
+> kuśanābhaś ca catvāro\
 > gādhir āsīt kuśāmbujaḥ
 
 *jahnoḥ*—de Jahnu; *tu*—en verdad; *puruḥ*—un hijo llamado Puru; *tasya*—de Puru; *atha*—a continuación; *balākaḥ*—un hijo llamado Balāka; *ca*—y; *ātmajaḥ*—el hijo de Balāka; *ajakaḥ*—de nombre Ajaka; *tataḥ*—a continuación; *kuśaḥ*—Kuśa; *kuśasya*—de Kuśa; *api*—entonces; *kuśāmbuḥ*—Kuśāmbu; *tanayaḥ*—Tanaya; *vasuḥ*—Vasu; *kuśanābhaḥ*—Kuśanābha; *ca*—y; *catvāraḥ*—cuatro (hijos); *gādhiḥ*—Gādhi; *āsīt*—hubo; *kuśāmbujaḥ*—el hijo de Kuśāmbu.

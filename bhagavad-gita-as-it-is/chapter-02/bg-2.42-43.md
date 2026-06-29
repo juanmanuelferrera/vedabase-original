@@ -1,18 +1,18 @@
 ### Bg 2.42-43
 
-> यामिमां पुष्पितां वाचं प्रवदन्त्यविपश्चितः ।
-> वेदवादरताः पार्थ नान्यदस्तीति वादिनः ॥४२॥
-> कामात्मानः स्वर्गपरा जन्मकर्मफलप्रदाम् ।
+> यामिमां पुष्पितां वाचं प्रवदन्त्यविपश्चितः ।\
+> वेदवादरताः पार्थ नान्यदस्तीति वादिनः ॥४२॥\
+> कामात्मानः स्वर्गपरा जन्मकर्मफलप्रदाम् ।\
 > क्रियाविशेषबहुलां भोगैश्वर्यगतिं प्रति ॥४३॥
 
-> yām imāṁ puṣpitāṁ vācaṁ
-> pravadanty avipaścitaḥ
-> veda-vāda-ratāḥ pārtha
+> yām imāṁ puṣpitāṁ vācaṁ\
+> pravadanty avipaścitaḥ\
+> veda-vāda-ratāḥ pārtha\
 > nānyad astīti vādinaḥ
 
-> kāmātmānaḥ svarga-parā
-> janma-karma-phala-pradām
-> kriyā-viśeṣa-bahulāṁ
+> kāmātmānaḥ svarga-parā\
+> janma-karma-phala-pradām\
+> kriyā-viśeṣa-bahulāṁ\
 > bhogaiśvarya-gatiṁ prati
 
 *yām imām*—all these; *puṣpitām*—flowery; *vācam*—words; *pravadanti*—say; *avipaścitaḥ*—men with a poor fund of knowledge; *veda-vāda-ratāḥ*—supposed followers of the *Vedas*; *pārtha*—O son of Pṛthā; *na*—never; *anyat*—anything else; *asti*—there is; *iti*—this; *vādinaḥ*—advocates; *kāma-ātmānaḥ*—desirous of sense gratification; *svarga-parāḥ*—aiming to achieve heavenly planets; *janma-karma-phala-pradām*—resulting in fruitive action, good birth, etc.; *kriyā-viśeṣa*—pompous ceremonies; *bahulām*—various; *bhoga*—sense enjoyment; *aiśvarya*—opulence; *gatim*—progress; *prati*—towards.

@@ -1,11 +1,11 @@
 ### CC Madhya 21.33
 
-> স্বয়ন্ত্বসাম্যাতিশয়স্ত্র্যধীশঃ স্বারাজ্যলক্ষ্ম্যাপ্তসমস্তকামঃ ।
+> স্বয়ন্ত্বসাম্যাতিশয়স্ত্র্যধীশঃ স্বারাজ্যলক্ষ্ম্যাপ্তসমস্তকামঃ ।\
 > বলিং হরদ্ভিশ্চিরলোকপালৈঃ কিরীটকোটীড়িতপাদপীঠঃ ॥৩৩॥
 
-> svayaṁ tv asāmyātiśayas tryadhīśaḥ
-> svārājya-lakṣmy-āpta-samasta-kāmaḥ
-> baliṁ haradbhiś cira-loka-pālaiḥ
+> svayaṁ tv asāmyātiśayas tryadhīśaḥ\
+> svārājya-lakṣmy-āpta-samasta-kāmaḥ\
+> baliṁ haradbhiś cira-loka-pālaiḥ\
 > kirīṭa-koṭīḍita-pāda-pīṭhaḥ
 
 *svayam*—personalmente la Suprema Personalidad de Dios; *tu*—pero; *asāmya-atiśayaḥ*—que no tiene igual ni superior; *tri-adhīśaḥ*—el amo de tres lugares, a saber, Goloka Vṛndāvana, Vaikuṇṭhaloka y el mundo material, o el amo de Mahā-Viṣṇu, Garbhodakaśāyī Viṣṇu y Kṣīrodakaśāyī Viṣṇu, o el amo de Brahmā, Viṣṇu y Maheśvara, o el amo de los tres mundos (los sistemas planetarios superiores, inferiores e intermedios); *svārājya-lakṣmī*—por Su potencia espiritual personal; *āpta*—ya alcanzados; *samasta-kāmaḥ*—todos los objetos deseables; *balim*—una ofrenda o tributo; *haradbhiḥ*—que están ofreciendo; *cira-loka-pālaiḥ*—por las deidades predominantes de los distintos planetas; *kirīṭa-koṭi*—por millones de yelmos; *īḍita*—siendo adorados; *pāda-pīṭhaḥ*—cuyos pies de loto.

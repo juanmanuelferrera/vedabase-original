@@ -1,9 +1,9 @@
 ### CC Madhya 15.247
 
-> তেঁহো যদি প্রসাদ দিতে হৈলা আন-মন ।
+> তেঁহো যদি প্রসাদ দিতে হৈলা আন-মন ।\
 > অমোঘ আসি’ অন্ন দেখি’ করয়ে নিন্দন ॥২৪৭॥
 
-> teṅho yadi prasāda dite hailā āna-mana
+> teṅho yadi prasāda dite hailā āna-mana\
 > amogha āsi' anna dekhi' karaye nindana
 
 *teṅho*—él (Bhaṭṭācārya); *yadi*—cuando; *prasāda dite*—sirviendo el prasāda; *hailā*—se puso; *āna-mana*—desatento; *amogha*—Amogha; *āsi'*—viniendo; *anna dekhi'*—al ver el alimento; *karaye nindana*—empezó a blasfemar.

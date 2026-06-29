@@ -1,11 +1,11 @@
 ### SB 2.6.38
 
-> यस्यावतारकर्माणि गायन्ति ह्यस्मदादयः ।
+> यस्यावतारकर्माणि गायन्ति ह्यस्मदादयः ।\
 > न यं विदन्ति तत्त्वेन तस्मै भगवते नमः ॥३८॥
 
-> yasyāvatāra-karmāṇi
-> gāyanti hy asmad-ādayaḥ
-> na yaṁ vidanti tattvena
+> yasyāvatāra-karmāṇi\
+> gāyanti hy asmad-ādayaḥ\
+> na yaṁ vidanti tattvena\
 > tasmai bhagavate namaḥ
 
 *yasya*—whose; *avatāra*—incarnation; *karmāṇi*—activities; *gāyanti*—chant in glorification; *hi*—indeed; *asmat-ādayaḥ*—persons like us; *na*—do not; *yam*—whom; *vidanti*—know; *tattvena*—cent percent as He is; *tasmai*—unto Him; *bhagavate*—unto the Personality of Godhead Śrī Kṛṣṇa; *namaḥ*—respectful obeisances.

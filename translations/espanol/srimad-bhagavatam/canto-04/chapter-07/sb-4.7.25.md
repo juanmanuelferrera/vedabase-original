@@ -1,13 +1,13 @@
 ### SB 4.7.25
 
-> दक्षो गृहीतार्हणसादनोत्तमं
-> यज्ञेश्वरं विश्वसृजां परं गुरुम् ।
-> सुनन्दनन्दाद्यनुगैर्वृतं मुदा
+> दक्षो गृहीतार्हणसादनोत्तमं\
+> यज्ञेश्वरं विश्वसृजां परं गुरुम् ।\
+> सुनन्दनन्दाद्यनुगैर्वृतं मुदा\
 > गृणन्प्रपेदे प्रयतः कृताञ्जलिः ॥२५॥
 
-> dakṣo gṛhītārhaṇa-sādanottamaṁ
-> yajñeśvaraṁ viśva-sṛjāṁ paraṁ gurum
-> sunanda-nandādy-anugair vṛtaṁ mudā
+> dakṣo gṛhītārhaṇa-sādanottamaṁ\
+> yajñeśvaraṁ viśva-sṛjāṁ paraṁ gurum\
+> sunanda-nandādy-anugair vṛtaṁ mudā\
 > gṛṇan prapede prayataḥ kṛtāñjaliḥ
 
 *dakṣaḥ*—Dakṣa; *gṛhīta*—aceptó; *arhaṇa*—legítima; *sādana-uttamam*—vaso de sacrificio; *yajña-īśvaram*—al amo de todos los sacrificios; *viśva-sṛjām*—de todos los *prajāpatis*; *param*—el supremo; *gurum*—preceptor; *sunanda-nanda-ādi-anugaiḥ*—de sirvientes como Sunanda y Nanda; *vṛtam*—rodeado; *mudā*—con gran placer; *gṛṇan*—ofreciendo oraciones respetuosas; *prapede*—se refugió; *prayataḥ*—con la mente subyugada; *kṛta-añjaliḥ*—con las manos juntas.

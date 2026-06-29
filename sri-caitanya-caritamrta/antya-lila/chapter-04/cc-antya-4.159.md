@@ -1,9 +1,9 @@
 ### CC Antya 4.159
 
-> ব্যবহারে-পরমার্থে তুমি — তার গুরু-তুল্য  ।
+> ব্যবহারে-পরমার্থে তুমি — তার গুরু-তুল্য  ।\
 > তোমারে উপদেশে, না জানে আপন-মূল্য ॥১৫৯॥
 
-> vyavahāre-paramārthe tumi—tāra guru-tulya
+> vyavahāre-paramārthe tumi—tāra guru-tulya\
 > tomāre upadeśe, nā jāne āpana-mūlya
 
 *vyavahāre*—in ordinary dealings; *parama-arthe*—in spiritual matters; *tumi*—you; *tāra*—of him; *guru-tulya*—like a spiritual master; *tomāre*—you; *upadeśe*—he advises; *nā jāne*—does not know; *āpana-mūlya*—his value.

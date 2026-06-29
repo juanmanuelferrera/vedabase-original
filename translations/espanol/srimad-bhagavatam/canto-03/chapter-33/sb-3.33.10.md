@@ -1,13 +1,13 @@
 ### SB 3.33.10
 
-> कपिल उवाच
-> मार्गेणानेन मातस्ते सुसेव्येनोदितेन मे ।
+> कपिल उवाच\
+> मार्गेणानेन मातस्ते सुसेव्येनोदितेन मे ।\
 > आस्थितेन परां काष्ठामचिरादवरोत्स्यसि ॥१०॥
 
-> kapila uvāca
-> mārgeṇānena mātas te
-> susevyenoditena me
-> āsthitena parāṁ kāṣṭhām
+> kapila uvāca\
+> mārgeṇānena mātas te\
+> susevyenoditena me\
+> āsthitena parāṁ kāṣṭhām\
 > acirād avarotsyasi
 
 *kapilaḥ uvāca*—el Señor Kapila dijo; *mārgeṇa*—por el sendero; *anena*—este; *mātaḥ*—Mi querida madre; *te*—para ti; *su-sevyena*—muy fácil de llevar a cabo; *uditena*—instruido; *me*—por Mí; *āsthitena*—llevar a cabo; *parām*—suprema; *kāṣṭhām*—meta; *acirāt*—muy pronto; *avarotsyasi*—alcanzarás.

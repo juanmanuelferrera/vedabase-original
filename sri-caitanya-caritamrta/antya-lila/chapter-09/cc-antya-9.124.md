@@ -1,9 +1,9 @@
 ### CC Antya 9.124
 
-> কিছু দেয়, কিছু না দেয়, না করি বিচার ।
+> কিছু দেয়, কিছু না দেয়, না করি বিচার ।\
 > ‘জানা’-সহিত অপ্রীত্যে দুঃখ পাইল এইবার ॥১২৪॥
 
-> kichu deya, kichu nā deya, nā kari vicāra
+> kichu deya, kichu nā deya, nā kari vicāra\
 > jānā'-sahita aprītye duḥkha pāila ei-bāra
 
 *kichu*—some; *deya*—he pays; *kichu*—some; *nā deya*—he does not pay; *nā kari vicāra*—I do not consider; *jānā sahita*—with the prince; *aprītye*—due to some unfriendliness; *duḥkha pāila*—has gotten so much trouble; *ei-bāra*—this time.

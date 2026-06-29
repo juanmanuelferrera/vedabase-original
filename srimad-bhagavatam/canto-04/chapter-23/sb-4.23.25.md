@@ -1,13 +1,13 @@
 ### SB 4.23.25
 
-> देव्य ऊचुः
-> अहो इयं वधूर्धन्या या चैवं भूभुजां पतिम् ।
+> देव्य ऊचुः\
+> अहो इयं वधूर्धन्या या चैवं भूभुजां पतिम् ।\
 > सर्वात्मना पतिं भेजे यज्ञेशं श्रीर्वधूरिव ॥२५॥
 
-> devya ūcuḥ
-> aho iyaṁ vadhūr dhanyā
-> yā caivaṁ bhū-bhujāṁ patim
-> sarvātmanā patiṁ bheje
+> devya ūcuḥ\
+> aho iyaṁ vadhūr dhanyā\
+> yā caivaṁ bhū-bhujāṁ patim\
+> sarvātmanā patiṁ bheje\
 > yajñeśaṁ śrīr vadhūr iva
 
 *devyaḥ ūcuḥ*—the wives of the demigods said; *aho*—alas; *iyam*—this; *vadhūḥ*—the wife; *dhanyā*—most glorious; *yā*—who; *ca*—also; *evam*—as; *bhū*—of the world; *bhujām*—of all the kings; *patim*—the king; *sarva-ātmanā*—with full understanding; *patim*—unto the husband; *bheje*—worshiped; *yajña-īśam*—unto Lord Viṣṇu; *śrīḥ*—the goddess of fortune; *vadhūḥ*—wife; *iva*—like.

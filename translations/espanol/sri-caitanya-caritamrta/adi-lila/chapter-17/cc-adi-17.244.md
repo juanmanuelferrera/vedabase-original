@@ -1,9 +1,9 @@
 ### CC Adi 17.244
 
-> চরণের ধূলি সেই লয় বার বার ।
+> চরণের ধূলি সেই লয় বার বার ।\
 > দেখিয়া প্রভুর দুঃখ হইল অপার ॥২৪৪॥
 
-> caraṇera dhūli sei laya vāra vāra
+> caraṇera dhūli sei laya vāra vāra\
 > dekhiyā prabhura duḥkha ha-ila apāra
 
 *caraṇera*—de Sus pies de loto; *dhūli*—el polvo; *sei*—aquella mujer; *laya*—toma; *vāra vāra*—una y otra vez; *dekhiyā*—al ver esto; *prabhura*—del Señor; *duḥkha*—infelicidad; *ha-ila*—hubo; *apāra*—ilimitada.

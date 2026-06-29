@@ -1,11 +1,11 @@
 ### SB 7.5.49
 
-> जितं त्वयैकेन जगत्त्रयं भ्रुवोर्विजृम्भणत्रस्तसमस्तधिष्ण्यपम
+> जितं त्वयैकेन जगत्त्रयं भ्रुवोर्विजृम्भणत्रस्तसमस्तधिष्ण्यपम\
 > न तस्य चिन्त्यं तव नाथ चक्ष्वहे न वै शिशूनां गुणदोषयोः पदम ॥४९॥
 
-> jitaṁ tvayaikena jagat-trayaṁ bhruvor
-> vijṛmbhaṇa-trasta-samasta-dhiṣṇyapam
-> na tasya cintyaṁ tava nātha cakṣvahe
+> jitaṁ tvayaikena jagat-trayaṁ bhruvor\
+> vijṛmbhaṇa-trasta-samasta-dhiṣṇyapam\
+> na tasya cintyaṁ tava nātha cakṣvahe\
 > na vai śiśūnāṁ guṇa-doṣayoḥ padam
 
 *jitam*—conquered; *tvayā*—by you; *ekena*—alone; *jagat-trayam*—the three worlds; *bhruvoḥ*—of the eyebrows; *vijṛmbhaṇa*—by the expanding; *trasta*—become afraid; *samasta*—all; *dhiṣṇyapam*—the chief persons in every planet; *na*—not; *tasya*—from him; *cintyam*—to be anxious; *tava*—of you; *nātha*—O master; *cakṣvahe*—we find; *na*—nor; *vai*—indeed; *śiśūnām*—of children; *guṇa-doṣayoḥ*—of a good quality or fault; *padam*—the subject matter.

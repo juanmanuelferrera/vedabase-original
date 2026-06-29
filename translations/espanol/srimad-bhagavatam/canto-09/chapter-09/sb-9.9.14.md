@@ -1,11 +1,11 @@
 ### SB 9.9.14
 
-> न ह्येतत्परमाश्चर्यं स्वर्धुन्या यदिहोदितम
+> न ह्येतत्परमाश्चर्यं स्वर्धुन्या यदिहोदितम\
 > अनन्तचरणाम्भोज प्रसूताया भवच्छिदः ॥१४॥
 
-> na hy etat param āścaryaṁ
-> svardhunyā yad ihoditam
-> ananta-caraṇāmbhoja-
+> na hy etat param āścaryaṁ\
+> svardhunyā yad ihoditam\
+> ananta-caraṇāmbhoja-\
 > prasūtāyā bhava-cchidaḥ
 
 *na*—no; *hi*—en verdad; *etat*—esto; *param*—suprema; *āścaryam*—cosa maravillosa; *svardhunyāḥ*—del agua del Ganges; *yat*—lo cual; *iha*—en estos versos; *uditam*—se ha explicado; *ananta*—del Señor Supremo; *caraṇa-ambhoja*—de los pies de loto; *prasūtāyāḥ*—de lo que emana; *bhava-chidaḥ*—que puede liberar del cautiverio material.

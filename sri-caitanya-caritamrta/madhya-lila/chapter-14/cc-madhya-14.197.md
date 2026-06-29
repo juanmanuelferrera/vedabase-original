@@ -1,11 +1,11 @@
 ### CC Madhya 14.197
 
-> স্তনাধরাদিগ্রহণে হৃৎপ্রীতাবপি সম্ভ্রমাৎ ।
+> স্তনাধরাদিগ্রহণে হৃৎপ্রীতাবপি সম্ভ্রমাৎ ।\
 > বহিঃক্রোধো ব্যথিতবৎ প্রোক্তং কুট্টমিতং বুধৈঃ ॥১৯৭॥
 
-> stanādharādi-grahaṇe
-> hṛt-prītāv api sambhramāt
-> bahiḥ krodho vyathitavat
+> stanādharādi-grahaṇe\
+> hṛt-prītāv api sambhramāt\
+> bahiḥ krodho vyathitavat\
 > proktaṁ kuṭṭamitaṁ budhaiḥ
 
 *stana*—breasts; *adhara*—lips; *ādi*—and so on; *grahaṇe*—when capturing; *hṛt-prītau*—satisfaction of the heart; *api*—even though; *sambhramāt*—because of respectfulness; *bahiḥ*—externally; *krodhaḥ*—anger; *vyathita*—aggrieved; *vat*—as if; *proktam*—called; *kuṭṭamitam*—the technical term *kuṭṭamita*; *budhaiḥ*—by learned scholars.

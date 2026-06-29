@@ -1,13 +1,13 @@
 ### SB 4.11.1
 
-> मैत्रेय उवाच
-> निशम्य गदतामेवमृषीणां धनुषि ध्रुवः ।
+> मैत्रेय उवाच\
+> निशम्य गदतामेवमृषीणां धनुषि ध्रुवः ।\
 > सन्दधेऽस्त्रमुपस्पृश्य यन्नारायणनिर्मितम् ॥१॥
 
-> maitreya uvāca
-> niśamya gadatām evam
-> ṛṣīṇāṁ dhanuṣi dhruvaḥ
-> sandadhe 'stram upaspṛśya
+> maitreya uvāca\
+> niśamya gadatām evam\
+> ṛṣīṇāṁ dhanuṣi dhruvaḥ\
+> sandadhe 'stram upaspṛśya\
 > yan nārāyaṇa-nirmitam
 
 *maitreyaḥ uvāca*—the sage Maitreya continued to speak; *niśamya*—having heard; *gadatām*—the words; *evam*—thus; *ṛṣīṇām*—of the sages; *dhanuṣi*—upon his bow; *dhruvaḥ*—Dhruva Mahārāja; *sandadhe*—fixed; *astram*—an arrow; *upaspṛśya*—after touching water; *yat*—that which; *nārāyaṇa*—by Nārāyaṇa; *nirmitam*—was made.

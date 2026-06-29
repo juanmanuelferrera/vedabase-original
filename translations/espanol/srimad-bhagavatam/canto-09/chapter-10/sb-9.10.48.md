@@ -1,11 +1,11 @@
 ### SB 9.10.48
 
-> पुत्रान्स्वमातरस्तास्तु प्राणांस्तन्व इवोत्थिताः
+> पुत्रान्स्वमातरस्तास्तु प्राणांस्तन्व इवोत्थिताः\
 > आरोप्याङ्केऽभिषिञ्चन्त्यो बाष्पौघैर्विजहुः शुचः ॥४८॥
 
-> jaṭā nirmucya vidhivat
-> kula-vṛddhaiḥ samaṁ guruḥ
-> abhyaṣiñcad yathaivendraṁ
+> jaṭā nirmucya vidhivat\
+> kula-vṛddhaiḥ samaṁ guruḥ\
+> abhyaṣiñcad yathaivendraṁ\
 > catuḥ-sindhu-jalādibhiḥ
 
 *jaṭāḥ*—los enmarañados mechones de pelo de la cabeza; *nirmucya*—afeitar; *vidhi-vat*—conforme a los principios regulativos; *kula-vṛddhaiḥ*—los mayores de la familia; *samam*—con; *guruḥ*—el sacerdote o maestro espiritual de la familia; *abhyaṣiñcat*—celebraron la ceremonia de baño del Señor Rāmacandra; *yathā*—así; *eva*—como; *indram*—al Señor Indra; *catuḥ-sindhu-jala*—con agua de los cuatro océanos; *ādibhiḥ*—y con otros artículos de baño.

@@ -1,13 +1,13 @@
 ### CC Adi 2.2
 
-> কৃষ্ণোৎকীর্তনগাননর্তনকলাপাথোজনি-ভ্রাজিতা
-> সদ্ভক্তাবলিহংসচক্রমধুপশ্রেণীবিহারাস্পদম্ ।
-> কর্ণানন্দিকলধ্বনির্বহতু মে জিহ্বামরুপ্রাঙ্গণে
+> কৃষ্ণোৎকীর্তনগাননর্তনকলাপাথোজনি-ভ্রাজিতা\
+> সদ্ভক্তাবলিহংসচক্রমধুপশ্রেণীবিহারাস্পদম্ ।\
+> কর্ণানন্দিকলধ্বনির্বহতু মে জিহ্বামরুপ্রাঙ্গণে\
 > শ্রীচৈতন্যদয়ানিধে তব লসল্লীলাসুধাস্বর্ধুনী ॥২॥
 
-> kṛṣṇotkīrtana-gāna-nartana-kalā-pāthojani-bhrājitā
-> sad-bhaktāvali-haṁsa-cakra-madhupa-śreṇī-vihārāspadam
-> karṇānandi-kala-dhvanir vahatu me jihvā-maru-prāṅgaṇe
+> kṛṣṇotkīrtana-gāna-nartana-kalā-pāthojani-bhrājitā\
+> sad-bhaktāvali-haṁsa-cakra-madhupa-śreṇī-vihārāspadam\
+> karṇānandi-kala-dhvanir vahatu me jihvā-maru-prāṅgaṇe\
 > śrī-caitanya dayā-nidhe tava lasal-līlā-sudhā-svardhunī
 
 *kṛṣṇa*—del santo nombre del Señor Kṛṣṇa; *utkīrtana*—cantar en voz alta; *gāna*—cantar; *nartana*—danzar; *kalā*—de las otras bellas artes; *pāthaḥ-jani*—con lotos; *bhrājitā*—embellecida; *sat-bhakta*—de devotos puros; *āvali*—filas; *haṁsa*—de cisnes; *cakra*—pájaros *cakravāka*; *madhu-pa*—y abejorros; *śreṇī*—como enjambres; *vihāra*—de placer; *āspadam*—la morada; *karṇa-ānandi*—que alegra los oídos; *kala*—melodioso; *dhvaniḥ*—sonido; *vahatu*—que fluya; *me*—mi; *jihvā*—de la lengua; *maru*—como un desierto; *prāṅgaṇe*—en el patio; *śrī-caitanya dayā-nidhe*—¡oh, Señor Caitanya, océano de misericordia!; *tava*—Tuyas; *lasat*—resplandecientes; *līlā-sudhā*—del néctar de los pasatiempos; *svardhunī*—el Ganges.

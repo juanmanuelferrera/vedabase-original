@@ -1,9 +1,9 @@
 ### CC Madhya 16.42
 
-> নরেন্দ্র আসিয়া তাহাঁ সবারে মিলিলা ।
+> নরেন্দ্র আসিয়া তাহাঁ সবারে মিলিলা ।\
 > মহাপ্ৰভুর দত্ত মালা সবারে পরাইলা ॥৪২॥
 
-> narendra āsiyā tāhāṅ sabāre mililā
+> narendra āsiyā tāhāṅ sabāre mililā\
 > mahāprabhura datta mālā sabāre parāilā
 
 *narendra*—to the lake named Narendra; *āsiyā*—coming; *tāhāṅ*—there; *sabāre*—everyone; *mililā*—met; *mahāprabhura*—by Śrī Caitanya Mahāprabhu; *datta*—given; *mālā*—garlands; *sabāre parāilā*—offered to everyone.

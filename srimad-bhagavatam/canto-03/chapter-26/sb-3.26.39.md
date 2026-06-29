@@ -1,11 +1,11 @@
 ### SB 3.26.39
 
-> द्रव्याकृतित्वं गुणता व्यक्तिसंस्थात्वमेव च ।
+> द्रव्याकृतित्वं गुणता व्यक्तिसंस्थात्वमेव च ।\
 > तेजस्त्वं तेजसः साध्वि रूपमात्रस्य वृत्तयः ॥३९॥
 
-> dravyākṛtitvaṁ guṇatā
-> vyakti-saṁsthātvam eva ca
-> tejastvaṁ tejasaḥ sādhvi
+> dravyākṛtitvaṁ guṇatā\
+> vyakti-saṁsthātvam eva ca\
+> tejastvaṁ tejasaḥ sādhvi\
 > rūpa-mātrasya vṛttayaḥ
 
 *dravya*—of an object; *ākṛtitvam*—dimension; *guṇatā*—quality; *vyakti-saṁsthātvam*—individuality; *eva*—also; *ca*—and; *tejastvam*—effulgence; *tejasaḥ*—of fire; *sādhvi*—O virtuous lady; *rūpa-mātrasya*—of the subtle element form; *vṛttayaḥ*—the characteristics.

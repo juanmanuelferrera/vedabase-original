@@ -1,11 +1,11 @@
 ### SB 7.2.10
 
-> तावद्यात भुवं यूयं ब्रह्मक्षत्रसमेधिताम
+> तावद्यात भुवं यूयं ब्रह्मक्षत्रसमेधिताम\
 > सूदयध्वं तपोयज्ञअ स्वाध्यायव्रतदानिनः ॥१०॥
 
-> tāvad yāta bhuvaṁ yūyaṁ
-> brahma-kṣatra-samedhitām
-> sūdayadhvaṁ tapo-yajña-
+> tāvad yāta bhuvaṁ yūyaṁ\
+> brahma-kṣatra-samedhitām\
+> sūdayadhvaṁ tapo-yajña-\
 > svādhyāya-vrata-dāninaḥ
 
 *tāvat*—as long as (I am engaged in the matter of killing Viṣṇu); *yāta*—go; *bhuvam*—to the planet earth; *yūyam*—all of you; *brahma-kṣatra*—of the *brāhmaṇas* and *kṣatriyas*; *samedhitām*—made prosperous by the activities (brahminical culture and Vedic government); *sūdayadhvam*—just destroy; *tapaḥ*—the performers of austerities; *yajña*—sacrifices; *svādhyāya*—study of Vedic knowledge; *vrata*—the regulative vows; *dāninaḥ*—and those giving charity.

@@ -1,13 +1,13 @@
 ### SB 5.26.40
 
-> भूद्वीपवर्षसरिदद्रिनभ:समुद्र-
-> पातालदिङ्नरकभागणलोकसंस्था ।
-> गीता मया तव नृपाद्भुतमीश्वरस्य
+> भूद्वीपवर्षसरिदद्रिनभ:समुद्र-\
+> पातालदिङ्नरकभागणलोकसंस्था ।\
+> गीता मया तव नृपाद्भुतमीश्वरस्य\
 > स्थूलं वपु: सकलजीवनिकायधाम ॥ ४० ॥
 
-> bhū-dvīpa-varṣa-sarid-adri-nabhaḥ-samudra-
-> pātāla-diṅ-naraka-bhāgaṇa-loka-saṁsthā
-> gītā mayā tava nṛpādbhutam īśvarasya
+> bhū-dvīpa-varṣa-sarid-adri-nabhaḥ-samudra-\
+> pātāla-diṅ-naraka-bhāgaṇa-loka-saṁsthā\
+> gītā mayā tava nṛpādbhutam īśvarasya\
 > sthūlaṁ vapuḥ sakala-jīva-nikāya-dhāma
 
 *bhū*—de este planeta Tierra; *dvīpa*—y otros sistemas planetarios; *varṣa*—de regiones; *sarit*—ríos; *adri*—montañas; *nabhaḥ*—el cielo; *samudra*—océanos; *pātāla*—planetas inferiores; *dik*—direcciones; *naraka*—los planetas infernales; *bhāgaṇa-loka*—los astros luminosos y los planetas superiores; *saṁsthā*—la situación; *gītā*—descritos; *mayā*—por mí; *tava*—para ti; *nṛpa*—¡oh, rey!; *adbhutam*—maravilloso; *īśvarasya*—de la Suprema Personalidad de Dios; *sthūlam*—denso; *vapuḥ*—cuerpo; *sakala-jīva-nikāya*—de todas las multitudes de entidades vivientes; *dhāma*—que es lugar de reposo.

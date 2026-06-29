@@ -1,11 +1,11 @@
 ### SB 1.15.27
 
-> देशकालार्थयुक्तानि हृत्तापोपशमानि च ।
+> देशकालार्थयुक्तानि हृत्तापोपशमानि च ।\
 > हरन्ति स्मरतश्चित्तं गोविन्दाभिहितानि मे ॥२७॥
 
-> deśa-kālārtha-yuktāni
-> hṛt-tāpopaśamāni ca
-> haranti smarataś cittaṁ
+> deśa-kālārtha-yuktāni\
+> hṛt-tāpopaśamāni ca\
+> haranti smarataś cittaṁ\
 > govindābhihitāni me
 
 *deśa*—espacio; *kāla*—tiempo; *artha*—importancia; *yuktāni*—impregnadas de; *hṛt*—el corazón; *tāpa*—ardiente; *upaśamāni*—extinguiendo; *ca*—y; *haranti*—están atrayendo; *smarataḥ*—mediante el recuerdo; *cittam*—mente; *govinda*—la Suprema Personalidad del placer; *abhihitāni*—narrado por; *me*—a mí.

@@ -1,9 +1,9 @@
 ### CC Adi 2.4
 
-> তৃতীয় শ্লোকের অর্থ করি বিবরণ ।
+> তৃতীয় শ্লোকের অর্থ করি বিবরণ ।\
 > বস্তু-নির্দেশরূপ মঙ্গলাচরণ ॥৪॥
 
-> tṛtīya ślokera artha kari vivaraṇa
+> tṛtīya ślokera artha kari vivaraṇa\
 > vastu-nirdeśa-rūpa maṅgalācaraṇa
 
 *tṛtīya*—third; *ślokera*—of the verse; *artha*—the meaning; *kari*—I do; *vivaraṇa*—description; *vastu*—of the Absolute Truth; *nirdeśa-rūpa*—in the form of delineation; *maṅgala*—auspicious; *ācaraṇa*—conduct.

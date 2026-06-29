@@ -1,9 +1,9 @@
 ### CC Madhya 20.217
 
-> বিষ্ণুকাঞ্চীতে বিষ্ণু, হরি রহে, মায়াপুরে ।
+> বিষ্ণুকাঞ্চীতে বিষ্ণু, হরি রহে, মায়াপুরে ।\
 > ঐছে আর নানা মূর্তি ব্রহ্মাণ্ড-ভিতরে ॥২১৭॥
 
-> viṣṇu-kāñcīte viṣṇu, hari rahe, māyāpure
+> viṣṇu-kāñcīte viṣṇu, hari rahe, māyāpure\
 > aiche āra nānā mūrti brahmāṇḍa-bhitare
 
 *viṣṇu-kāñcīte*—en Viṣṇu-kāñcī; *viṣṇu*—el Señor Viṣṇu; *hari*—el Señor Hari; *rahe*—permanece; *māyāpure*—en Māyāpur; *aiche*—de manera similar; *āra*—también; *nānā*—diversas; *mūrti*—formas; *brahmāṇḍa-bhitare*—a lo largo del universo.

@@ -1,11 +1,11 @@
 ### SB 8.22.14
 
-> तस्मै बलिर्वारुणपाशयन्त्रितः समर्हणं नोपजहार पूर्ववत
+> तस्मै बलिर्वारुणपाशयन्त्रितः समर्हणं नोपजहार पूर्ववत\
 > ननाम मूर्ध्नाश्रुविलोललोचनः सव्रीडनीचीनमुखो बभूव ह ॥१४॥
 
-> tasmai balir vāruṇa-pāśa-yantritaḥ
-> samarhaṇaṁ nopajahāra pūrvavat
-> nanāma mūrdhnāśru-vilola-locanaḥ
+> tasmai balir vāruṇa-pāśa-yantritaḥ\
+> samarhaṇaṁ nopajahāra pūrvavat\
+> nanāma mūrdhnāśru-vilola-locanaḥ\
 > sa-vrīḍa-nīcīna-mukho babhūva ha
 
 *tasmai*—a Prahlāda Mahārāja; *baliḥ*—Bali Mahārāja; *vāruṇa-pāśa-yantritaḥ*—atado con las cuerdas de Varuṇa; *samarhaṇam*—el debido respeto; *na*—no; *upajahāra*—ofreció; *pūrva-vat*—como antes; *nanāma*—ofreció reverencias; *mūrdhnā*—con la cabeza; *aśru-vilola-locanaḥ*—ojos arrasados en lágrimas; *sa-vrīḍa*—con timidez; *nīcīna*—hacia abajo; *mukhaḥ*—el rostro; *babhūva ha*—él se volvió.

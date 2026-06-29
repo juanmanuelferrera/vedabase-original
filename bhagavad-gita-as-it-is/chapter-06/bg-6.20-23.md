@@ -1,29 +1,29 @@
 ### Bg 6.20-23
 
-> यत्रोपरमते चित्तं निरुद्धं योगसेवया ।
-> यत्र चैवात्मनात्मानं पश्यन्नात्मनि तुष्यति ॥२०॥
-> सुखमात्यन्तिकं यत्तद् बुद्धिग्राह्यमतीन्द्रियम् ।
-> वेत्ति यत्र न चैवायं स्थितश्चलति तत्त्वतः ॥२१॥
-> यं लब्ध्वा चापरं लाभं मन्यते नाधिकं ततः ।
-> यस्मिन्स्थितो न दुःखेन गुरुणापि विचाल्यते ॥२२॥
+> यत्रोपरमते चित्तं निरुद्धं योगसेवया ।\
+> यत्र चैवात्मनात्मानं पश्यन्नात्मनि तुष्यति ॥२०॥\
+> सुखमात्यन्तिकं यत्तद् बुद्धिग्राह्यमतीन्द्रियम् ।\
+> वेत्ति यत्र न चैवायं स्थितश्चलति तत्त्वतः ॥२१॥\
+> यं लब्ध्वा चापरं लाभं मन्यते नाधिकं ततः ।\
+> यस्मिन्स्थितो न दुःखेन गुरुणापि विचाल्यते ॥२२॥\
 > तं विद्याद् दुःखसंयोगवियोगं योगसंज्ञितम् ॥२३॥
 
-> yatroparamate cittaṁ
-> niruddhaṁ yoga-sevayā
-> yatra caivātmanātmānaṁ
+> yatroparamate cittaṁ\
+> niruddhaṁ yoga-sevayā\
+> yatra caivātmanātmānaṁ\
 > paśyann ātmani tuṣyati
 
-> sukham ātyantikaṁ yat tad
-> buddhi-grāhyam atīndriyam
-> vetti yatra na caivāyaṁ
+> sukham ātyantikaṁ yat tad\
+> buddhi-grāhyam atīndriyam\
+> vetti yatra na caivāyaṁ\
 > sthitaś calati tattvataḥ
 
-> yaṁ labdhvā cāparaṁ lābhaṁ
-> manyate nādhikaṁ tataḥ
-> yasmin sthito na duḥkhena
+> yaṁ labdhvā cāparaṁ lābhaṁ\
+> manyate nādhikaṁ tataḥ\
+> yasmin sthito na duḥkhena\
 > guruṇāpi vicālyate
 
-> taṁ vidyād duḥkha-saṁyoga-
+> taṁ vidyād duḥkha-saṁyoga-\
 > viyogaṁ yoga-saṁjñitam
 
 *yatra*—in that state of affairs; *uparamate*—when one feels transcendental happiness; *cittam*—mental activities; *niruddham*—restrained from matter; *yoga-sevayā*—by performance of *yoga*; *yatra*—in that; *ca*—also; *eva*—certainly; *ātmanā*—by the pure mind; *ātmānam*—self; *paśyan*—realizing the position; *ātmani*—in the self; *tuṣyati*—becomes satisfied; *sukham*—happiness; *ātyantikam*—supreme; *yat*—in which; *tat*—that; *buddhi*—intelligence; *grāhyam*—acceptable; *atīndriyam*—transcendental; *vetti*—knows; *yatra*—wherein; *na*—never; *ca*—also; *eva*—certainly; *ayam*—in this; *sthitaḥ*—situated; *calati*—moves; *tattvataḥ*—from the truth; *yam*—that which; *labdhvā*—by attainment; *ca*—also; *aparam*—any other; *lābham*—gain; *manyate*—does not mind; *na*—never; *adhikam*—more than that; *tataḥ*—from that; *yasmin*—in which; *sthitaḥ*—being situated; *na*—never; *duḥkhena*—by miseries; *guruṇāpi*—even though very difficult; *vicālyate*—becomes shaken; *tam*—that; *vidyāt*—you must know; *duḥkha-saṁyoga*—miseries of material contact; *viyogam*—extermination; *yoga-samjñitam*—trance in *yoga*.

@@ -1,11 +1,11 @@
 ### SB 2.10.35
 
-> अमुनी भगवद्रूपे मया ते ह्यनुवर्णिते ।
+> अमुनी भगवद्रूपे मया ते ह्यनुवर्णिते ।\
 > उभे अपि न गृह्णन्ति मायासृष्टे विपश्चितः ॥३५॥
 
-> amunī bhagavad-rūpe
-> mayā te hy anuvarṇite
-> ubhe api na gṛhṇanti
+> amunī bhagavad-rūpe\
+> mayā te hy anuvarṇite\
+> ubhe api na gṛhṇanti\
 > māyā-sṛṣṭe vipaścitaḥ
 
 *amunī*—todas estas; *bhagavat*—a la Suprema Personalidad de Dios; *rūpe*—en las formas; *mayā*—por mí; *te*—a ti; *hi*—ciertamente; *anuvarṇite*—descritas respectivamente; *ubhe*—ambas; *api*—también; *na*—nunca; *gṛhṇanti*—acepta; *māyā*—externas; *sṛṣṭe*—estando manifestadas así; *vipaḥ-citaḥ*—el entendido que sabe.

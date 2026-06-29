@@ -1,11 +1,11 @@
 ### SB 4.20.12
 
-> भिन्नस्य लिङ्गस्य गुणप्रवाहो द्रव्यक्रियाकारकचेतनात्मनः ।
+> भिन्नस्य लिङ्गस्य गुणप्रवाहो द्रव्यक्रियाकारकचेतनात्मनः ।\
 > दृष्टासु सम्पत्सु विपत्सु सूरयो न विक्रियन्ते मयि बद्धसौहृदाः ॥१२॥
 
-> bhinnasya liṅgasya guṇa-pravāho
-> dravya-kriyā-kāraka-cetanātmanaḥ
-> dṛṣṭāsu sampatsu vipatsu sūrayo
+> bhinnasya liṅgasya guṇa-pravāho\
+> dravya-kriyā-kāraka-cetanātmanaḥ\
+> dṛṣṭāsu sampatsu vipatsu sūrayo\
 > na vikriyante mayi baddha-sauhṛdāḥ
 
 *bhinnasya*—different; *liṅgasya*—of the body; *guṇa*—of the three modes of material nature; *pravāhaḥ*—the constant change; *dravya*—physical elements; *kriyā*—activities of the senses; *kāraka*—demigods; *cetanā*—and the mind; *ātmanaḥ*—consisting of; *dṛṣṭāsu*—when experienced; *sampatsu*—happiness; *vipatsu*—distress; *sūrayaḥ*—those who are advanced in knowledge; *na*—never; *vikriyante*—become disturbed; *mayi*—unto Me; *baddha-sauhṛdāḥ*—bound in friendship.

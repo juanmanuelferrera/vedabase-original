@@ -1,11 +1,11 @@
 ### CC Adi 14.15
 
-> পঞ্চদীর্ঘঃ পঞ্চসূক্ষ্মঃ সপ্তরক্তঃ ষড়ুন্নতঃ ।
+> পঞ্চদীর্ঘঃ পঞ্চসূক্ষ্মঃ সপ্তরক্তঃ ষড়ুন্নতঃ ।\
 > ত্রিহ্রস্ব-পৃথু-গম্ভীরো দ্বাত্রিংশল্লক্ষণো মহান্ ॥১৫॥
 
-> pañca-dīrghaḥ pañca-sūkṣmaḥ
-> sapta-raktaḥ ṣaḍ-unnataḥ
-> tri-hrasva-pṛthu-gambhīro
+> pañca-dīrghaḥ pañca-sūkṣmaḥ\
+> sapta-raktaḥ ṣaḍ-unnataḥ\
+> tri-hrasva-pṛthu-gambhīro\
 > dvātriṁśal-lakṣaṇo mahān
 
 *pañca-dīrghaḥ*—cinco partes grandes; *pañca-sūkṣmaḥ*—cinco finas; *sapta-raktaḥ*—siete rojizas; *ṣaṭ-unnataḥ*—seis elevadas; *tri-hrasva*—tres pequeñas; *pṛthu*—tres anchas; *gambhīraḥ*—tres graves; *dvā-triṁśat*—de esta manera treinta y dos; *lakṣaṇaḥ*—síntomas; *mahān*—de una gran personalidad.

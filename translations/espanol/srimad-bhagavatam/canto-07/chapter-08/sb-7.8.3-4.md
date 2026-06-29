@@ -1,20 +1,20 @@
 ### SB 7.8.3-4
 
-> श्रुत्वा तदप्रियं दैत्यो दुःसहं तनयानयम
-> कोपावेशचलद्गात्रः पुत्रं हन्तुं मनो दधे ॥३॥
-> क्षिप्त्वा परुषया वाचा प्रह्रादमतदर्हणम
+> श्रुत्वा तदप्रियं दैत्यो दुःसहं तनयानयम\
+> कोपावेशचलद्गात्रः पुत्रं हन्तुं मनो दधे ॥३॥\
+> क्षिप्त्वा परुषया वाचा प्रह्रादमतदर्हणम\
 > आहेक्षमाणः पापेन तिरश्चीनेन चक्षुषा ॥४॥
 
-> kopāveśa-calad-gātraḥ
-> putraṁ hantuṁ mano dadhe
-> kṣiptvā paruṣayā vācā
+> kopāveśa-calad-gātraḥ\
+> putraṁ hantuṁ mano dadhe\
+> kṣiptvā paruṣayā vācā\
 > prahrādam atad-arhaṇam
 
-> āhekṣamāṇaḥ pāpena
-> tiraścīnena cakṣuṣā
-> praśrayāvanataṁ dāntaṁ
-> baddhāñjalim avasthitam
-> sarpaḥ padāhata iva
+> āhekṣamāṇaḥ pāpena\
+> tiraścīnena cakṣuṣā\
+> praśrayāvanataṁ dāntaṁ\
+> baddhāñjalim avasthitam\
+> sarpaḥ padāhata iva\
 > śvasan prakṛti-dāruṇaḥ
 
 *kopa-āveśa*—muy furioso; *calat*—temblar; *gātraḥ*—todo el cuerpo; *putram*—a su hijo; *hantum*—matar; *manaḥ*—mente; *dadhe*—fijó; *kṣiptvā*—reñir; *paruṣayā*—con muy ásperas; *vācā*—palabras; *prahrādam*—a Prahlāda Mahārāja; *a-tat-arhaṇam*—que no merecía ser castigado (debido a su carácter noble y su tierna edad); *āha*—dijo; *īkṣamāṇaḥ*—mirándole con ira; *pāpena*—debido a sus actividades pecaminosas; *tiraścīnena*—malvados; *cakṣuṣā*—con ojos; *praśraya-avanatam*—muy amable y manso; *dāntam*—muy contenido; *baddha-añjalim*—con las manos juntas; *avasthitam*—situado; *sarpaḥ*—una serpiente; *pada-āhataḥ*—al ser pisada; *iva*—como; *śvasan*—siseando; *prakṛti*—por naturaleza; *dāruṇaḥ*—muy malvado.

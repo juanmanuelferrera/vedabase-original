@@ -1,9 +1,9 @@
 ### CC Adi 10.148
 
-> রামভদ্রাচার্য, আর ওঢ্র সিংহেশ্বর ।
+> রামভদ্রাচার্য, আর ওঢ্র সিংহেশ্বর ।\
 > তপন আচার্য, আর রঘু, নীলাম্বর ॥১৪৮॥
 
-> rāmabhadrācārya, āra oḍhra siṁheśvara
+> rāmabhadrācārya, āra oḍhra siṁheśvara\
 > tapana ācārya, āra raghu, nīlāmbara
 
 *rāmabhadrācārya*—of the name Rāmabhadra Ācārya; *āra*—and; *oḍhra*—resident of Orissa; *siṁheśvara*—of the name Siṁheśvara; *tapanaācārya*—of the name Tapana Ācārya; *āraraghu*—and another Raghunātha; *nīlāmbara*—of the name Nīlāmbara.

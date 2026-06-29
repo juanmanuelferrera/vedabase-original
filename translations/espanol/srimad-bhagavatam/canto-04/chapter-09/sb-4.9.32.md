@@ -1,11 +1,11 @@
 ### SB 4.9.32
 
-> मतिर्विदूषिता देवैः पतद्भिरसहिष्णुभिः ।
+> मतिर्विदूषिता देवैः पतद्भिरसहिष्णुभिः ।\
 > यो नारदवचस्तथ्यं नाग्राहिषमसत्तमः ॥३२॥
 
-> matir vidūṣitā devaiḥ
-> patadbhir asahiṣṇubhiḥ
-> yo nārada-vacas tathyaṁ
+> matir vidūṣitā devaiḥ\
+> patadbhir asahiṣṇubhiḥ\
+> yo nārada-vacas tathyaṁ\
 > nāgrāhiṣam asattamaḥ
 
 *matiḥ*—inteligencia; *vidūṣitā*—contaminada; *devaiḥ*—por los semidioses; *patadbhiḥ*—que caerán; *asahiṣṇubhiḥ*—intolerantes; *yaḥ*—yo, que; *nārada*—del gran sabio Nārada; *vacaḥ*—de las enseñanzas; *tathyam*—la verdad; *na*—no; *agrāhiṣam*—pude aceptar; *asat-tamaḥ*—el más infame.

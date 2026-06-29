@@ -1,9 +1,9 @@
 ### CC Adi 17.12
 
-> তবে নিত্যানন্দ-স্বরূপের আগমন ।
+> তবে নিত্যানন্দ-স্বরূপের আগমন ।\
 > প্রভুকে মিলিয়া পাইল ষড়্ভুজ-দর্শন ॥১২॥
 
-> tabe nityānanda-svarūpera āgamana
+> tabe nityānanda-svarūpera āgamana\
 > prabhuke miliyā pāila ṣaḍ-bhuja-darśana
 
 *tabe*—después de eso; *nityānanda-svarūpera*—de la Personalidad de Dios Nityānanda; *āgamana*—aparición; *prabhuke*—al Señor Caitanya Mahāprabhu; *miliyā*—al encontrarse; *pāila*—obtuvo; *ṣaṭ-bhuja-darśana*—una visión del Señor Caitanya Mahāprabhu de seis brazos.

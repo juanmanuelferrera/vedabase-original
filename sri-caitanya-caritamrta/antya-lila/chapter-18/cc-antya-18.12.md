@@ -1,9 +1,9 @@
 ### CC Antya 18.12
 
-> পূর্বে যেই দেখাঞাছি দিগ্দরশন ।
+> পূর্বে যেই দেখাঞাছি দিগ্দরশন ।\
 > তৈছে জানিহ ‘বিকার’ ‘প্রলাপ’ বর্ণন ॥১২॥
 
-> pūrve yei dekhāñāchi dig-daraśana
+> pūrve yei dekhāñāchi dig-daraśana\
 > taiche jāniha 'vikāra' 'pralāpa' varṇana
 
 *pūrve*—previously; *yei*—as; *dekhāñāchi*—I have shown; *dik-daraśana*—only an indication; *taiche*—similarly; *jāniha*—you may know; *vikāra*—transformations; *pralāpa*—crazy talks; *varṇana*—description.

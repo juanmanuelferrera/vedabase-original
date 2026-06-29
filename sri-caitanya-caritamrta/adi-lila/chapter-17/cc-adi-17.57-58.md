@@ -1,14 +1,14 @@
 ### CC Adi 17.57-58
 
-> শ্রীবাস পণ্ডিতের স্থানে আছে অপরাধ ।
-> তথা যাহ, তেঁহো যদি করেন প্রসাদ ॥৫৭॥
-> তবে তোর হবে এই পাপ-বিমোচন ।
+> শ্রীবাস পণ্ডিতের স্থানে আছে অপরাধ ।\
+> তথা যাহ, তেঁহো যদি করেন প্রসাদ ॥৫৭॥\
+> তবে তোর হবে এই পাপ-বিমোচন ।\
 > যদি পুনঃ ঐছে নাহি কর আচরণ ॥৫৮॥
 
-> śrīvāsa paṇḍitera sthāne āche aparādha
+> śrīvāsa paṇḍitera sthāne āche aparādha\
 > tathā yāha, teṅho yadi karena prasāda
 
-> tabe tora habe ei pāpa-vimocana
+> tabe tora habe ei pāpa-vimocana\
 > yadi punaḥ aiche nāhi kara ācaraṇa
 
 *śrīvāsa paṇḍitera*—of Śrīvāsa Ṭhākura; *sthāne*—at the lotus feet; *āche*—there is; *aparādha*—offense; *tathā*—there; *yāha*—go; *teṅho*—he; *yadi*—if; *karena*—does; *prasāda*—blessings; *tabe*—then; *tora*—your; *habe*—there will be; *ei*—this; *pāpa-vimocana*—immunity from sinful reaction; *yadi*—if; *punaḥ*—again; *aiche*—such; *nāhi kara*—you do not commit; *ācaraṇa*—behavior.

@@ -1,6 +1,6 @@
 ### CC Adi 1.58
 
-> jīve sākṣāt nāhi tāte guru caittya-rūpe
+> jīve sākṣāt nāhi tāte guru caittya-rūpe\
 > śikṣā-guru haya kṛṣṇa-mahānta-svarūpe
 
 *jīve*—pela entidade viva; *sākṣāt*—experiência direta; *nāhi*—não há; *tāte*—portanto; *guru*—o mestre espiritual; *caittya-rūpe*—sob a forma da Superalma; *śikṣā-guru*—o mestre espiritual que instrui; *haya*—aparece; *kṛṣṇa*—Kṛṣṇa, a Suprema Personalidade de Deus; *mahānta*—o mais elevado devoto; *sva-rūpe*—sob a forma de.

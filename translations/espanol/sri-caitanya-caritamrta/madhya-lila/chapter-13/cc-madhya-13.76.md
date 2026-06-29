@@ -1,9 +1,9 @@
 ### CC Madhya 13.76
 
-> দণ্ডবৎ করি, প্রভু যুড়ি’ দুই হাত ।
+> দণ্ডবৎ করি, প্রভু যুড়ি’ দুই হাত ।\
 > ঊর্ধ্ব মুখে স্তুতি করে দেখি’ জগন্নাথ ॥৭৬॥
 
-> daṇḍavat kari, prabhu yuḍi' dui hāta
+> daṇḍavat kari, prabhu yuḍi' dui hāta\
 > ūrdhva-mukhe stuti kare dekhi' jagannātha
 
 *daṇḍavat kari*—ofreciendo reverencias; *prabhu*—Śrī Caitanya Mahāprabhu; *yuḍi'*—juntando; *dui hāta*—las dos manos; *ūrdhva-mukhe*—levantando el rostro hacia arriba; *stuti kare*—ofrece oración; *dekhi'*—al ver; *jagannātha*—la Deidad del Señor Jagannātha.

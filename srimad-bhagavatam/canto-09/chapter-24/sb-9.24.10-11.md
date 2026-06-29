@@ -1,18 +1,18 @@
 ### SB 9.24.10-11
 
-> बभ्रुः श्रेष्ठो मनुष्याणां देवैर्देवावृधः समः
-> पुरुषाः पञ्चषष्टिश्च षट्सहस्राणि चाष्ट च ॥१०॥
-> येऽमृतत्वमनुप्राप्ता बभ्रोर्देवावृधादपि
+> बभ्रुः श्रेष्ठो मनुष्याणां देवैर्देवावृधः समः\
+> पुरुषाः पञ्चषष्टिश्च षट्सहस्राणि चाष्ट च ॥१०॥\
+> येऽमृतत्वमनुप्राप्ता बभ्रोर्देवावृधादपि\
 > महाभोजोऽतिधर्मात्मा भोजा आसंस्तदन्वये ॥११॥
 
-> babhruḥ śreṣṭho manuṣyāṇāṁ
-> devair devāvṛdhaḥ samaḥ
-> puruṣāḥ pañca-ṣaṣṭiś ca
+> babhruḥ śreṣṭho manuṣyāṇāṁ\
+> devair devāvṛdhaḥ samaḥ\
+> puruṣāḥ pañca-ṣaṣṭiś ca\
 > ṣaṭ-sahasrāṇi cāṣṭa ca
 
-> ye 'mṛtatvam anuprāptā
-> babhror devāvṛdhād api
-> mahābhojo 'tidharmātmā
+> ye 'mṛtatvam anuprāptā\
+> babhror devāvṛdhād api\
+> mahābhojo 'tidharmātmā\
 > bhojā āsaṁs tad-anvaye
 
 *babhruḥ*—King Babhru; *śreṣṭhaḥ*—the best of all kings; *manuṣyāṇām*—of all human beings; *devaiḥ*—with the demigods; *devāvṛdhaḥ*—King Devāvṛdha; *samaḥ*—equally situated; *puruṣāḥ*—persons; *pañca-ṣaṣṭiḥ*—sixty-five; *ca*—also; *ṣaṭ-sahasrāṇi*—six thousand; *ca*—also; *aṣṭa*—eight thousand; *ca*—also; *ye*—all of them who; *amṛtatvam*—liberation from material bondage; *anuprāptāḥ*—achieved; *babhroḥ*—because of association with Babhru; *devāvṛdhāt*—and because of association with Devāvṛdha; *api*—indeed; *mahābhojaḥ*—King Mahābhoja; *ati-dharma-ātmā*—exceedingly religious; *bhojāḥ*—the kings known as Bhoja; *āsan*—existed; *tat-anvaye*—in the dynasty of him (Mahābhoja).

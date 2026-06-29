@@ -1,11 +1,11 @@
 ### SB 7.2.21
 
-> भूतानामिह संवासः प्रपायामिव सुव्रते
+> भूतानामिह संवासः प्रपायामिव सुव्रते\
 > दैवेनैकत्र नीतानामुन्नीतानां स्वकर्मभिः ॥२१॥
 
-> bhūtānām iha saṁvāsaḥ
-> prapāyām iva suvrate
-> daivenaikatra nītānām
+> bhūtānām iha saṁvāsaḥ\
+> prapāyām iva suvrate\
+> daivenaikatra nītānām\
 > unnītānāṁ sva-karmabhiḥ
 
 *bhūtānām*—of all living entities; *iha*—in this material world; *saṁvāsaḥ*—the living together; *prapāyām*—in a place for drinking cold water; *iva*—like; *su-vrate*—O my gentle mother; *daivena*—by the superior arrangement; *ekatra*—in one place; *nītānām*—of those brought; *unnītānām*—of those led apart; *sva-karmabhiḥ*—by their own reactions.

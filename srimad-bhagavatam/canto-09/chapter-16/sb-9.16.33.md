@@ -1,11 +1,11 @@
 ### SB 9.16.33
 
-> ये मधुच्छन्दसो ज्येष्ठाः कुशलं मेनिरे न तत
+> ये मधुच्छन्दसो ज्येष्ठाः कुशलं मेनिरे न तत\
 > अशपत्तान्मुनिः क्रुद्धो म्लेच्छा भवत दुर्जनाः ॥३३॥
 
-> ye madhucchandaso jyeṣṭhāḥ
-> kuśalaṁ menire na tat
-> aśapat tān muniḥ kruddho
+> ye madhucchandaso jyeṣṭhāḥ\
+> kuśalaṁ menire na tat\
+> aśapat tān muniḥ kruddho\
 > mlecchā bhavata durjanāḥ
 
 *ye*—those who; *madhucchandasaḥ*—sons of Viśvāmitra, celebrated as the Madhucchandās; *jyeṣṭhāḥ*—eldest; *kuśalam*—very good; *menire*—accepting; *na*—not; *tat*—that (the proposal that he be accepted as the eldest brother); *aśapat*—cursed; *tān*—all the sons; *muniḥ*—Viśvāmitra Muni; *kruddhaḥ*—being angry; *mlecchāḥ*—disobedient to the Vedic principles; *bhavata*—all of you become; *durjanāḥ*—very bad sons.

@@ -1,9 +1,9 @@
 ### CC Adi 12.90
 
-> পণ্ডিতের গণ সব, — ভাগবত ধন্য ।
+> পণ্ডিতের গণ সব, — ভাগবত ধন্য ।\
 > প্রাণবল্লভ — সবার শ্রীকৃষ্ণচৈতন্য ॥৯০॥
 
-> paṇḍitera gaṇa saba,--bhāgavata dhanya
+> paṇḍitera gaṇa saba,--bhāgavata dhanya\
 > prāṇa-vallabha--sabāra śrī-kṛṣṇa-caitanya
 
 *paṇḍitera*—de Gadādhara Paṇḍita; *gaṇa*—seguidores; *saba*—todos; *bhāgavata dhanya*—gloriosos devotos; *prāṇa-vallabha*—el corazón y el alma; *sabāra*—de todos ellos; *śrī-kṛṣṇa-caitanya*—el Señor Śrī Caitanya Mahāprabhu.

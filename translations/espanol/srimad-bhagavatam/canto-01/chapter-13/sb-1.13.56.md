@@ -1,14 +1,14 @@
 ### SB 1.13.56
 
-> ध्वस्तमायागुणोदर्को निरुद्धकरणाशयः ।
-> निवर्तिताखिलाहार आस्ते स्थाणुरिवाचलः ।
+> ध्वस्तमायागुणोदर्को निरुद्धकरणाशयः ।\
+> निवर्तिताखिलाहार आस्ते स्थाणुरिवाचलः ।\
 > तस्यान्तरायो मैवाभूः सन्न्यस्ताखिलकर्मणः ॥५६॥
 
-> dhvasta-māyā-guṇodarko
-> niruddha-karaṇāśayaḥ
-> nivartitākhilāhāra
-> āste sthāṇur ivācalaḥ
-> tasyāntarāyo maivābhūḥ
+> dhvasta-māyā-guṇodarko\
+> niruddha-karaṇāśayaḥ\
+> nivartitākhilāhāra\
+> āste sthāṇur ivācalaḥ\
+> tasyāntarāyo maivābhūḥ\
 > sannyastākhila-karmaṇaḥ
 
 *dhvasta*—siendo destruido; *māyā-guṇa*—las modalidades de la naturaleza material; *udarkaḥ*—efectos posteriores; *niruddha*—siendo suspendidos; *karaṇa-āśayaḥ*—los sentidos y la mente; *nivartita*—deteniendo; *akhila*—todo; *āhāraḥ*—comida para los sentidos; *āste*—está sentado; *sthāṇuḥ*—inmóvil; *iva*—como; *acalaḥ*—fijo; *tasya*—su; *antarāyaḥ*—obstáculos; *mā eva*—nunca como eso; *abhūḥ*—es; *sannyasta*—renunció; *akhila*—toda clase; *karmaṇaḥ*—deberes materiales.

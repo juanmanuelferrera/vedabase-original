@@ -1,14 +1,14 @@
 ### CC Madhya 17.48-49
 
-> কেহ যদি তাঁর মুখে শুনে কৃষ্ণনাম ।
-> তাঁর মুখে আন শুনে তাঁর মুখে আন ॥৪৮॥
-> সবে ‘কৃষ্ণ’ ‘হরি’ বলি’ নাচে, কান্দে, হাসে ।
+> কেহ যদি তাঁর মুখে শুনে কৃষ্ণনাম ।\
+> তাঁর মুখে আন শুনে তাঁর মুখে আন ॥৪৮॥\
+> সবে ‘কৃষ্ণ’ ‘হরি’ বলি’ নাচে, কান্দে, হাসে ।\
 > পরম্পরায় ‘বৈষ্ণব’ হইল সর্বদেশে ॥৪৯॥
 
-> keha yadi tāṅra mukhe śune kṛṣṇa-nāma
+> keha yadi tāṅra mukhe śune kṛṣṇa-nāma\
 > tāṅra mukhe āna śune tāṅra mukhe āna
 
-> sabe 'kṛṣṇa' 'hari' bali' nāce, kānde, hāse
+> sabe 'kṛṣṇa' 'hari' bali' nāce, kānde, hāse\
 > paramparāya 'vaiṣṇava' ha-ila sarva deśe
 
 *keha*—someone; *yadi*—when; *tāṅra mukhe*—from His mouth; *śune*—hears; *kṛṣṇa-nāma*—chanting of the Hare Kṛṣṇa *mantra*; *tāṅra mukhe*—from the mouth of such chanters; *āna śune*—someone else hears; *tāṅra mukhe*—and from his mouth; *āna*—someone else; *sabe*—all of them; *kṛṣṇa*—Lord Kṛṣṇa's holy name; *hari*—another holy name of the Lord; *bali'*—chanting; *nāce*—dance; *kānde*—cry; *hāse*—smile; *paramparāya*—by disciplic succession; *vaiṣṇava*—devotees; *ha-ila*—became; *sarva-deśe*—in all countries.

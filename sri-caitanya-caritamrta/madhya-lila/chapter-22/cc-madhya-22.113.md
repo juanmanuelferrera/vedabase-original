@@ -1,11 +1,11 @@
 ### CC Madhya 22.113
 
-> স্মর্তব্যঃ সততং বিষ্ণুর্বিস্মর্তব্যো ন জাতুচিৎ ।
+> স্মর্তব্যঃ সততং বিষ্ণুর্বিস্মর্তব্যো ন জাতুচিৎ ।\
 > সর্বে বিধিনিষেধাঃ স্যুরেতয়োরেব কিঙ্করাঃ ॥১১৩॥
 
-> smartavyaḥ satataṁ viṣṇur
-> vismartavyo na jātucit
-> sarve vidhi-niṣedhāḥ syur
+> smartavyaḥ satataṁ viṣṇur\
+> vismartavyo na jātucit\
+> sarve vidhi-niṣedhāḥ syur\
 > etayor eva kiṅkarāḥ
 
 *smartavyaḥ*—to be remembered; *satatam*—always; *viṣṇuḥ*—Lord Viṣṇu; *vismartavyaḥ*—to be forgotten; *na*—not; *jātucit*—at any time; *sarve*—all; *vidhi-niṣedhāḥ*—rules and prohibitions mentioned in the revealed scripture or given by the spiritual master; *syuḥ*—should be; *etayoḥ*—of these two principles (always to remember Kṛṣṇa or Viṣṇu and never to forget Him); *eva*—certainly; *kiṅkarāḥ*—the servants.

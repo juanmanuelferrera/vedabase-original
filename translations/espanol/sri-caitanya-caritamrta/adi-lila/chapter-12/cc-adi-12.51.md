@@ -1,9 +1,9 @@
 ### CC Adi 12.51
 
-> মন দুষ্ট হইলে নহে কৃষ্ণের স্মরণ ।
+> মন দুষ্ট হইলে নহে কৃষ্ণের স্মরণ ।\
 > কৃষ্ণস্মৃতি বিনু হয় নিষ্ফল জীবন ॥৫১॥
 
-> mana duṣṭa ha-ile nahe kṛṣṇera smaraṇa
+> mana duṣṭa ha-ile nahe kṛṣṇera smaraṇa\
 > kṛṣṇa-smṛti vinu haya niṣphala jīvana
 
 *mana*—mente; *duṣṭa*—contaminada; *ha-ile*—al volverse; *nahe*—no es posible; *kṛṣṇera*—del Señor Kṛṣṇa; *smaraṇa*—recuerdo; *kṛṣṇa-smṛti*—recuerdo del Señor Kṛṣṇa; *vinu*—sin; *haya*—se vuelve; *niṣphala*—sin ningún resultado; *jīvana*—vida.

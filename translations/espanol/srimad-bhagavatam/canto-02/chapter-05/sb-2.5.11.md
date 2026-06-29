@@ -1,11 +1,11 @@
 ### SB 2.5.11
 
-> येन स्वरोचिषा विश्वं रोचितं रोचयाम्यहम् ।
+> येन स्वरोचिषा विश्वं रोचितं रोचयाम्यहम् ।\
 > यथार्कोऽग्निर्यथा सोमो यथर्क्षग्रहतारकाः ॥११॥
 
-> yena sva-rociṣā viśvaṁ
-> rocitaṁ rocayāmy aham
-> yathārko 'gnir yathā somo
+> yena sva-rociṣā viśvaṁ\
+> rocitaṁ rocayāmy aham\
+> yathārko 'gnir yathā somo\
 > yatharkṣa-graha-tārakāḥ
 
 *yena*—por quien; *sva-rociṣā*—mediante Su propia refulgencia; *viśvam*—el mundo entero; *rocitam*—creado ya potencialmente; *rocayāmi*—manifiesto; *aham*—yo; *yathā*—tanto; *arkaḥ*—el Sol; *agniḥ*—fuego; *yathā*—como; *somaḥ*—la Luna; *yathā*—así como también; *ka*—el firmamento; *graha*—los planetas influyentes; *tārakāḥ*—las estrellas.

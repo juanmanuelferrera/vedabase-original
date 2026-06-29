@@ -1,9 +1,9 @@
 ### CC Madhya 9.206
 
-> তবে মায়াসীতা অগ্নি করি অন্তর্ধান ।
+> তবে মায়াসীতা অগ্নি করি অন্তর্ধান ।\
 > সত্য-সীতা আনি’ দিল রাম-বিদ্যমান ॥২০৬॥
 
-> tabe māyā-sītā agni kari antardhāna
+> tabe māyā-sītā agni kari antardhāna\
 > satya-sītā āni' dila rāma-vidyamāna
 
 *tabe*—at that time; *māyā-sītā*—the illusory form of Sītā; *agni*—the fire-god; *kari*—doing; *antardhāna*—disappearing; *satya-sītā*—real Sītā; *āni'*—bringing; *dila*—delivered; *rāma*—of Rāmacandra; *vidyamāna*—in the presence.

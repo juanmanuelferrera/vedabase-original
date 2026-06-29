@@ -1,9 +1,9 @@
 ### CC Madhya 4.74
 
-> তার পাশে দধি, দুগ্ধ, মাঠা, শিখরিণী ।
+> তার পাশে দধি, দুগ্ধ, মাঠা, শিখরিণী ।\
 > পায়স, মথনী, সর পাশে ধরি আনি’ ॥৭৪॥
 
-> tāra pāśe dadhi, dugdha, māṭhā, śikhariṇī
+> tāra pāśe dadhi, dugdha, māṭhā, śikhariṇī\
 > pāyasa, mathanī, sara pāśe dhari āni'
 
 *tāra pāśe*—by the side of the vegetables; *dadhi*—yogurt; *dugdha*—milk; *māṭhā*—buttermilk; *śikhariṇī*—a sweet preparation made with yogurt; *pāyasa*—sweet rice; *mathanī*—cream; *sara*—solid cream collected over yogurt; *pāśe*—by the side; *dhari*—keeping; *āni'*—bringing.

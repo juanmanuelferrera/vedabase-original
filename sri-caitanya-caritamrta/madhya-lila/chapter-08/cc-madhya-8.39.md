@@ -1,9 +1,9 @@
 ### CC Madhya 8.39
 
-> মহান্ত-স্বভাব এই তারিতে পামর ।
+> মহান্ত-স্বভাব এই তারিতে পামর ।\
 > নিজ কার্য নাহি তবু যান তার ঘর ॥৩৯॥
 
-> mahānta-svabhāva ei tārite pāmara
+> mahānta-svabhāva ei tārite pāmara\
 > nija kārya nāhi tabu yāna tāra ghara
 
 *mahānta-svabhāva*—the nature of saintly persons; *ei*—this; *tārite*—to deliver; *pāmara*—fallen souls; *nija*—own; *kārya*—business; *nāhi*—there is not; *tabu*—still; *yāna*—goes; *tāra*—his; *ghara*—house.

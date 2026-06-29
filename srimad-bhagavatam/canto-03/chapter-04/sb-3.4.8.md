@@ -1,11 +1,11 @@
 ### SB 3.4.8
 
-> वाम ऊरावधिश्रित्य दक्षिणाङ्घ्रिसरोरुहम् ।
+> वाम ऊरावधिश्रित्य दक्षिणाङ्घ्रिसरोरुहम् ।\
 > अपाश्रितार्भकाश्वत्थमकृशं त्यक्तपिप्पलम् ॥८॥
 
-> vāma ūrāv adhiśritya
-> dakṣiṇāṅghri-saroruham
-> apāśritārbhakāśvattham
+> vāma ūrāv adhiśritya\
+> dakṣiṇāṅghri-saroruham\
+> apāśritārbhakāśvattham\
 > akṛśaṁ tyakta-pippalam
 
 *vāme*—on the left; *ūrau*—thigh; *adhiśritya*—placed on; *dakṣiṇa-aṅghri-saroruham*—the right lotus foot; *apāśrita*—taking rest against; *arbhaka*—young; *aśvattham*—banyan tree; *akṛśam*—cheerful; *tyakta*—having left; *pippalam*—household comforts.

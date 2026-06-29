@@ -1,13 +1,13 @@
 ### SB 8.4.13
 
-> एवं विमोक्ष्य गजयूथपमब्जनाभस
-> तेनापि पार्षदगतिं गमितेन युक्तः
-> गन्धर्वसिद्धविबुधैरुपगीयमान
+> एवं विमोक्ष्य गजयूथपमब्जनाभस\
+> तेनापि पार्षदगतिं गमितेन युक्तः\
+> गन्धर्वसिद्धविबुधैरुपगीयमान\
 > कर्माद्भुतं स्वभवनं गरुडासनोऽगात ॥१३॥
 
-> evaṁ vimokṣya gaja-yūtha-pam abja-nābhas
-> tenāpi pārṣada-gatiṁ gamitena yuktaḥ
-> gandharva-siddha-vibudhair upagīyamāna-
+> evaṁ vimokṣya gaja-yūtha-pam abja-nābhas\
+> tenāpi pārṣada-gatiṁ gamitena yuktaḥ\
+> gandharva-siddha-vibudhair upagīyamāna-\
 > karmādbhutaṁ sva-bhavanaṁ garuḍāsano 'gāt
 
 *evam*—thus; *vimokṣya*—delivering; *gaja-yūtha-pam*—the King of the elephants, Gajendra; *abja-nābhaḥ*—the Supreme Personality of Godhead, from whose navel sprouts a lotus flower; *tena*—by him (Gajendra); *api*—also; *pārṣada-gatim*—the position of the Lord's associate; *gamitena*—who had already gotten; *yuktaḥ*—accompanied; *gandharva*—by the denizens of Gandharvaloka; *siddha*—the denizens of Siddhaloka; *vibudhaiḥ*—and by all great learned sages; *upagīyamāna*—were being glorified; *karma*—whose transcendental activities; *adbhutam*—all-wonderful; *sva-bhavanam*—to His own abode; *garuḍa-āsanaḥ*—sitting on the back of Garuḍa; *agāt*—returned.

@@ -1,14 +1,14 @@
 ### CC Madhya 7.131-132
 
-> পথে যাইতে দেবালয়ে রহে যেই গ্ৰামে ।
-> যাঁর ঘরে ভিক্ষা করে, সেই মহাজনে ॥১৩১॥
-> কূর্মে যৈছে রীতি, তৈছে কৈল সর্ব ঠাঞি ।
+> পথে যাইতে দেবালয়ে রহে যেই গ্ৰামে ।\
+> যাঁর ঘরে ভিক্ষা করে, সেই মহাজনে ॥১৩১॥\
+> কূর্মে যৈছে রীতি, তৈছে কৈল সর্ব ঠাঞি ।\
 > নীলাচলে পুনঃ যাবৎ না আইলা গোসাঞি ॥১৩২॥
 
-> pathe yāite devālaye rahe yei grāme
+> pathe yāite devālaye rahe yei grāme\
 > yāṅra ghare bhikṣā kare, sei mahā-jane
 
-> kūrme yaiche rīti, taiche kaila sarva-ṭhāñi
+> kūrme yaiche rīti, taiche kaila sarva-ṭhāñi\
 > nīlācale punaḥ yāvat nā āilā gosāñi
 
 *pathe yāite*—while passing on the road; *devālaye*—in a temple; *rahe*—He stays; *yei grāme*—in any village; *yāṅra ghare*—at whose place; *bhikṣā kare*—takes alms or eats; *sei mahā-jane*—to such a great personality; *kūrme*—unto the *brāhmaṇa* Kūrma; *yaiche*—just as; *rīti*—the process; *taiche*—in the same way; *kaila*—did; *sarva-ṭhāñi*—in all places; *nīlācale*—to Jagannātha Purī; *punaḥ*—again; *yāvat*—until; *nā*—not; *āilā*—returned; *gosāñi*—the Lord.

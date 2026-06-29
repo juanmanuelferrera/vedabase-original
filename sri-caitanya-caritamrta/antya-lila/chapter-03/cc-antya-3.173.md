@@ -1,9 +1,9 @@
 ### CC Antya 3.173
 
-> ঠাকুর দেখি’ দুই ভাই কৈলা অভ্যুত্থান ।
+> ঠাকুর দেখি’ দুই ভাই কৈলা অভ্যুত্থান ।\
 > পায় পড়ি’ আসন দিলা করিয়া সম্মান ॥১৭৩॥
 
-> ṭhākura dekhi' dui bhāi kailā abhyutthāna
+> ṭhākura dekhi' dui bhāi kailā abhyutthāna\
 > pāya paḍi' āsana dilā kariyā sammāna
 
 *ṭhākura dekhi'*—seeing Haridāsa Ṭhākura; *dui bhāi*—the two brothers; *kailā abhyutthāna*—stood up; *pāya paḍi'*—falling at the lotus feet; *āsana dilā*—offered a sitting place; *kariyā sammāna*—with great respect.

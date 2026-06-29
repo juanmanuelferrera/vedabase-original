@@ -1,11 +1,11 @@
 ### SB 6.9.44
 
-> अथो ईश जहि त्वाष्ट्रं ग्रसन्तं भुवनत्रयम
+> अथो ईश जहि त्वाष्ट्रं ग्रसन्तं भुवनत्रयम\
 > ग्रस्तानि येन नः कृष्ण तेजांस्यस्त्रायुधानि च ॥४४॥
 
-> atho īśa jahi tvāṣṭraṁ
-> grasantaṁ bhuvana-trayam
-> grastāni yena naḥ kṛṣṇa
+> atho īśa jahi tvāṣṭraṁ\
+> grasantaṁ bhuvana-trayam\
+> grastāni yena naḥ kṛṣṇa\
 > tejāṁsy astrāyudhāni ca
 
 *atho*—por lo tanto; *īśa*—¡oh, controlador supremo!; *jahi*—mata; *tvāṣṭram*—el demonio Vṛtrāsura, el hijo de Tvaṣṭā; *grasantam*—que está devorando; *bhuvana-trayam*—los tres mundos; *grastāni*—devorados; *yena*—por quien; *naḥ*—nuestra; *kṛṣṇa*—¡oh, Señor Kṛṣṇa!; *tejāṁsi*—toda la fuerza y el poderío; *astra*—flechas; *āyudhāni*—y otras armas; *ca*—también.

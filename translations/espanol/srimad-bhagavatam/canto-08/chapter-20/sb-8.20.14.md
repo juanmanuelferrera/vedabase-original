@@ -1,13 +1,13 @@
 ### SB 8.20.14
 
-> श्रीशुक उवाच
-> एवमश्रद्धितं शिष्यमनादेशकरं गुरुः
+> श्रीशुक उवाच\
+> एवमश्रद्धितं शिष्यमनादेशकरं गुरुः\
 > शशाप दैवप्रहितः सत्यसन्धं मनस्विनम ॥१४॥
 
-> śrī-śuka uvāca
-> evam aśraddhitaṁ śiṣyam
-> anādeśakaraṁ guruḥ
-> śaśāpa daiva-prahitaḥ
+> śrī-śuka uvāca\
+> evam aśraddhitaṁ śiṣyam\
+> anādeśakaraṁ guruḥ\
+> śaśāpa daiva-prahitaḥ\
 > satya-sandhaṁ manasvinam
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *evam*—así; *aśraddhitam*—que no fue muy respetuoso con la instrucción del maestro espiritual; *śiṣyam*—a semejante discípulo; *anādeśa-karam*—que no estaba dispuesto a cumplir la orden de su maestro espiritual; *guruḥ*—el maestro espiritual (Śukrācārya); *śaśāpa*—maldijo; *daiva-prahitaḥ*—inspirado por el Señor Supremo; *satya-sandham*—a aquel que era fiel a la verdad; *manasvinam*—que poseía una personalidad muy elevada.

@@ -1,9 +1,9 @@
 ### CC Madhya 24.214
 
-> দেহারামী কর্মনিষ্ঠ — যাজ্ঞিকাদি জন ।
+> দেহারামী কর্মনিষ্ঠ — যাজ্ঞিকাদি জন ।\
 > সৎসঙ্গে ‘কর্ম’ ত্যজি’ করয় ভজন ॥২১৪॥
 
-> dehārāmī karma-niṣṭha--yājñikādi jana
+> dehārāmī karma-niṣṭha--yājñikādi jana\
 > sat-saṅge 'karma' tyaji' karaya bhajana
 
 *dehārāmī*—los que se hallan en el concepto corporal de la vida; *karma-niṣṭha*—atraídos por las actividades fruitivas; *yājñika-ādi jana*—personas que realizan ceremonias rituales para lograr un nivel de vida mejor; *sat-saṅge*—en contacto con devotos; *karma tyaji'*—abandonando tales actividades fruitivas; *karaya bhajana*—se ocupan en el servicio devocional del Señor.

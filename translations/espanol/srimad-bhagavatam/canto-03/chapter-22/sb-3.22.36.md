@@ -1,11 +1,11 @@
 ### SB 3.22.36
 
-> स एवं स्वान्तरं निन्ये युगानामेकसप्ततिम् ।
+> स एवं स्वान्तरं निन्ये युगानामेकसप्ततिम् ।\
 > वासुदेवप्रसङ्गेन परिभूतगतित्रयः ॥३६॥
 
-> sa evaṁ svāntaraṁ ninye
-> yugānām eka-saptatim
-> vāsudeva-prasaṅgena
+> sa evaṁ svāntaraṁ ninye\
+> yugānām eka-saptatim\
+> vāsudeva-prasaṅgena\
 > paribhūta-gati-trayaḥ
 
 *saḥ*—él (Svāyambhuva Manu); *evam*—de este modo; *sva-antaram*—su propio período; *ninye*—pasó; *yugānām*—de los ciclos de cuatro eras; *eka-saptatim*—setenta y uno; *vāsudeva*—con Vāsudeva; *prasaṅgena*—con temas relacionados; *paribhūta*—trascendió; *gati-trayaḥ*—los tres destinos.

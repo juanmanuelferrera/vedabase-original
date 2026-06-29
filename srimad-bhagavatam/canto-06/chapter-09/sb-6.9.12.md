@@ -1,11 +1,11 @@
 ### SB 6.9.12
 
-> अथान्वाहार्यपचनादुत्थितो घोरदर्शनः
+> अथान्वाहार्यपचनादुत्थितो घोरदर्शनः\
 > कृतान्त इव लोकानां युगान्तसमये यथा ॥१२॥
 
-> athānvāhārya-pacanād
-> utthito ghora-darśanaḥ
-> kṛtānta iva lokānāṁ
+> athānvāhārya-pacanād\
+> utthito ghora-darśanaḥ\
+> kṛtānta iva lokānāṁ\
 > yugānta-samaye yathā
 
 *atha*—thereafter; *anvāhārya-pacanāt*—from the fire known as Anvāhārya; *utthitaḥ*—arisen; *ghora-darśanaḥ*—appearing very fearful; *kṛtāntaḥ*—personified annihilation; *iva*—like; *lokānām*—of all the planets; *yuga-anta*—of the end of the millennium; *samaye*—at the time; *yathā*—just as.

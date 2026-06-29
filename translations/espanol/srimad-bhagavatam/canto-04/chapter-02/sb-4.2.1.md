@@ -1,13 +1,13 @@
 ### SB 4.2.1
 
-> विदुर उवाच
-> भवे शीलवतां श्रेष्ठे दक्षो दुहितृवत्सलः ।
+> विदुर उवाच\
+> भवे शीलवतां श्रेष्ठे दक्षो दुहितृवत्सलः ।\
 > विद्वेषमकरोत्कस्मादनादृत्यात्मजां सतीम् ॥१॥
 
-> vidura uvāca
-> bhave śīlavatāṁ śreṣṭhe
-> dakṣo duhitṛ-vatsalaḥ
-> vidveṣam akarot kasmād
+> vidura uvāca\
+> bhave śīlavatāṁ śreṣṭhe\
+> dakṣo duhitṛ-vatsalaḥ\
+> vidveṣam akarot kasmād\
 > anādṛtyātmajāṁ satīm
 
 *viduraḥ uvāca*—Vidura dijo; *bhave*—hacia el Señor Śiva; *śīlavatām*—entre las personas apacibles; *śreṣṭhe*—el mejor; *dakṣaḥ*—Dakṣa; *duhitṛ-vatsalaḥ*—siendo afectuoso con su hija; *vidveṣam*—enemistad; *akarot*—mostró; *kasmāt*—¿por qué?; *anādṛtya*—despreciando; *ātmajām*—a su propia hija; *satīm*—Satī.

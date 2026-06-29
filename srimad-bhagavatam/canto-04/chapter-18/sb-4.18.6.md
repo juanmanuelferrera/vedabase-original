@@ -1,11 +1,11 @@
 ### SB 4.18.6
 
-> पुरा सृष्टा ह्योषधयो ब्रह्मणा या विशाम्पते ।
+> पुरा सृष्टा ह्योषधयो ब्रह्मणा या विशाम्पते ।\
 > भुज्यमाना मया दृष्टा असद्भिरधृतव्रतैः ॥६॥
 
-> purā sṛṣṭā hy oṣadhayo
-> brahmaṇā yā viśāmpate
-> bhujyamānā mayā dṛṣṭā
+> purā sṛṣṭā hy oṣadhayo\
+> brahmaṇā yā viśāmpate\
+> bhujyamānā mayā dṛṣṭā\
 > asadbhir adhṛta-vrataiḥ
 
 *purā*—in the past; *sṛṣṭāḥ*—created; *hi*—certainly; *oṣadhayaḥ*—herbs and food grains; *brahmaṇā*—by Lord Brahmā; *yāḥ*—all those which; *viśām-pate*—O King; *bhujyamānāḥ*—being enjoyed; *mayā*—by me; *dṛṣṭāḥ*—seen; *asadbhiḥ*—by nondevotees; *adhṛta-vrataiḥ*—devoid of all spiritual activities.

@@ -1,9 +1,9 @@
 ### CC Adi 10.155
 
-> রঘুনাথ বাল্যে কৈল প্রভুর সেবন ।
+> রঘুনাথ বাল্যে কৈল প্রভুর সেবন ।\
 > উচ্ছিষ্ট-মার্জন আর পাদ-সম্বাহন ॥১৫৫॥
 
-> raghunātha bālye kaila prabhura sevana
+> raghunātha bālye kaila prabhura sevana\
 > ucchiṣṭa-mārjana āra pāda-saṁvāhana
 
 *raghunātha*—Raghunātha, el hijo de Tapana Miśra; *bālye*—en su niñez; *kaila*—hizo; *prabhura*—del Señor Caitanya; *sevana*—prestar servicio; *ucchiṣṭa-mārjana*—lavar los platos; *āra*—y; *pāda-saṁvāhana*—masajear los pies.

@@ -1,9 +1,9 @@
 ### CC Antya 10.98
 
-> প্রত্যহ প্রভুর নিদ্রায় যান প্রসাদ লইতে ।
+> প্রত্যহ প্রভুর নিদ্রায় যান প্রসাদ লইতে ।\
 > সে দিবসের শ্রম দেখি’ লাগিলা চাপিতে ॥৯৮॥
 
-> pratyaha prabhura nidrāya yāna prasāda la-ite
+> pratyaha prabhura nidrāya yāna prasāda la-ite\
 > se divasera śrama dekhi' lāgilā cāpite
 
 *prati-aha*—daily; *prabhura nidrāya*—when the Lord was asleep; *yāna*—he goes; *prasāda la-ite*—to accept his lunch; *se divasera*—of that day; *śrama*—the weariness; *dekhi'*—seeing; *lāgilā cāpite*—began to press.

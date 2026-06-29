@@ -1,9 +1,9 @@
 ### CC Madhya 20.336
 
-> ‘কৃষ্ণপদার্চন’ হয় দ্বাপরের ধর্ম ।
+> ‘কৃষ্ণপদার্চন’ হয় দ্বাপরের ধর্ম ।\
 > ‘কৃষ্ণ’-বর্ণে করায় লোকে কৃষ্ণার্চন-কর্ম ॥৩৩৬॥
 
-> 'kṛṣṇa-padārcana' haya dvāparera dharma
+> 'kṛṣṇa-padārcana' haya dvāparera dharma\
 > 'kṛṣṇa'-varṇe karāya loke kṛṣṇārcana-karma
 
 *kṛṣṇa-pada-arcana*—worshiping the lotus feet of Kṛṣṇa; *haya*—is; *dvāparera*—of the Dvāpara millennium; *dharma*—the occupational duty; *kṛṣṇa-varṇe*—in a blackish color; *karāya*—induces; *loke*—to the people; *kṛṣṇa-arcana-karma*—the activities of worshiping Lord Kṛṣṇa.

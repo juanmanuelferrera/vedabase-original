@@ -1,11 +1,11 @@
 ### CC Madhya 20.258
 
-> সহস্রপত্রং কমলং গোকুলাখ্যং মহৎপদম্ ।
+> সহস্রপত্রং কমলং গোকুলাখ্যং মহৎপদম্ ।\
 > তৎকর্ণিকারং তদ্ধাম তদনন্তাংশসম্ভবম্ ॥২৫৮॥
 
-> sahasra-patraṁ kamalaṁ
-> gokulākhyaṁ mahat-padam
-> tat-karṇikāraṁ tad-dhāma
+> sahasra-patraṁ kamalaṁ\
+> gokulākhyaṁ mahat-padam\
+> tat-karṇikāraṁ tad-dhāma\
 > tad anantāṁśa-sambhavam
 
 *sahasra-patram*—con miles de pétalos; *kamalam*—semejante a una flor de loto; *gokula-ākhyam*—llamada Gokula; *mahat-padam*—la morada suprema; *tat-karṇikāram*—el verticilo de esa flor de loto; *tat-dhāma*—la morada del Señor; *tat*—eso; *ananta-aṁśa*—de la expansión de la energía de Ananta; *sambhavam*—creación.

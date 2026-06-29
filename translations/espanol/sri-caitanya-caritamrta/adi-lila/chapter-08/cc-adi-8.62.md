@@ -1,9 +1,9 @@
 ### CC Adi 8.62
 
-> বৈষ্ণবের গুণগ্রাহী, না দেখয়ে দোষ ।
+> বৈষ্ণবের গুণগ্রাহী, না দেখয়ে দোষ ।\
 > কায়মনোবাক্যে করে বৈষ্ণব-সন্তোষ ॥৬২॥
 
-> vaiṣṇavera guṇa-grāhī, nā dekhaye doṣa
+> vaiṣṇavera guṇa-grāhī, nā dekhaye doṣa\
 > kāya-mano-vākye kare vaiṣṇava-santoṣa
 
 *vaiṣṇavera*—de los devotos; *guṇa-grāhī*—acepta las buenas cualidades; *nā*—nunca; *dekhaye*—ve; *doṣa*—ninguna falta; *kāya-manaḥ-vākye*—con el corazón y el alma; *kare*—procura; *vaiṣṇava*—del devoto; *santoṣa*—satisfacción.

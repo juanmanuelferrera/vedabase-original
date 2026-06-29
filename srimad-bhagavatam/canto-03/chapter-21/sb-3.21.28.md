@@ -1,11 +1,11 @@
 ### SB 3.21.28
 
-> समाहितं ते हृदयं यत्रेमान्परिवत्सरान् ।
+> समाहितं ते हृदयं यत्रेमान्परिवत्सरान् ।\
 > सा त्वां ब्रह्मन्नृपवधूः काममाशु भजिष्यति ॥२८॥
 
-> samāhitaṁ te hṛdayaṁ
-> yatremān parivatsarān
-> sā tvāṁ brahman nṛpa-vadhūḥ
+> samāhitaṁ te hṛdayaṁ\
+> yatremān parivatsarān\
+> sā tvāṁ brahman nṛpa-vadhūḥ\
 > kāmam āśu bhajiṣyati
 
 *samāhitam*—has been fixed; *te*—your; *hṛdayam*—heart; *yatra*—on whom; *imān*—for all these; *parivatsarān*—years; *sā*—she; *tvām*—you; *brahman*—O *brāhmaṇa*; *nṛpa-vadhūḥ*—the princess; *kāmam*—as you desire; *āśu*—very soon; *bhajiṣyati*—will serve.

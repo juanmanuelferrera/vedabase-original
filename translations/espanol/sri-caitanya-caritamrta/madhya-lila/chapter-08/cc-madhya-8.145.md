@@ -1,9 +1,9 @@
 ### CC Madhya 8.145
 
-> লক্ষ্মীকান্তাদি অবতারের হরে মন ৷
+> লক্ষ্মীকান্তাদি অবতারের হরে মন ৷\
 > লক্ষ্মী আদি নারীগণের করে আকর্ষণ ৷৷ ১৪৫ ৷৷ ॥১৪৫॥
 
-> lakṣmī-kāntādi avatārera hare mana
+> lakṣmī-kāntādi avatārera hare mana\
 > lakṣmī-ādi nārī-gaṇera kare ākarṣaṇa
 
 *lakṣmī-kānta-ādi*—el esposo de la diosa de la fortuna (Nārāyaṇa); *avatārera*—de la encarnación; *hare*—Él cautiva; *mana*—la mente; *lakṣmī*—la diosa de la fortuna; *ādi*—encabezadas por; *nārī-gaṇera*—de todas las mujeres; *kare*—lleva a cabo; *ākarṣaṇa*—la atracción.

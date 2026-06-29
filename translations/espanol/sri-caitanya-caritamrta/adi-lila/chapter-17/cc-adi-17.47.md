@@ -1,9 +1,9 @@
 ### CC Adi 17.47
 
-> গঙ্গাঘাটে বৃক্ষতলে রহে ত’ বসিয়া ।
+> গঙ্গাঘাটে বৃক্ষতলে রহে ত’ বসিয়া ।\
 > এক দিন বলে কিছু প্রভুকে দেখিয়া ॥৪৭॥
 
-> gaṅgā-ghāṭe vṛkṣa-tale rahe ta' vasiyā
+> gaṅgā-ghāṭe vṛkṣa-tale rahe ta' vasiyā\
 > eka dina bale kichu prabhuke dekhiyā
 
 *gaṅgā-ghāṭe*—a la orilla del Ganges; *vṛkṣa-tale*—debajo de un árbol; *rahe*—permanece; *ta'*—ciertamente; *vasiyā*—sentado; *eka dina*—un día; *bale*—dice; *kichu*—algo; *prabhuke*—al Señor; *dekhiyā*—al ver.

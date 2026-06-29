@@ -1,9 +1,9 @@
 ### CC Madhya 5.9
 
-> সাক্ষিগোপালের কথা শুনি, লোকমুখে ।
+> সাক্ষিগোপালের কথা শুনি, লোকমুখে ।\
 > সেই কথা কহেন, প্রভু শুনে মহাসুখে ॥৯॥
 
-> sākṣi-gopālera kathā śuni, loka-mukhe
+> sākṣi-gopālera kathā śuni, loka-mukhe\
 > sei kathā kahena, prabhu śune mahā-sukhe
 
 *sākṣi-gopālera*—del Gopāla testigo; *kathā*—la narración; *śuni*—escuchando; *loka-mukhe*—de la gente; *sei kathā*—esa narración; *kahena*—Nityānanda Prabhu narra; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *śune*—escucha; *mahā-sukhe*—con gran placer.

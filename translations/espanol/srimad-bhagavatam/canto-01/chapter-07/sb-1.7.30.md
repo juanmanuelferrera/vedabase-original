@@ -1,11 +1,11 @@
 ### SB 1.7.30
 
-> संहत्यान्योन्यमुभयोस्तेजसी शरसंवृते ।
+> संहत्यान्योन्यमुभयोस्तेजसी शरसंवृते ।\
 > आवृत्य रोदसी खं च ववृधातेऽर्कवह्निवत् ॥३०॥
 
-> saṁhatyānyonyam ubhayos
-> tejasī śara-saṁvṛte
-> āvṛtya rodasī khaṁ ca
+> saṁhatyānyonyam ubhayos\
+> tejasī śara-saṁvṛte\
+> āvṛtya rodasī khaṁ ca\
 > vavṛdhāte 'rka-vahnivat
 
 *saṁhatya*—por la combinación de; *anyonyam*—una y otra; *ubhayoḥ*—de ambas; *tejasī*—los deslumbrantes fulgores; *śara*—armas; *saṁvṛte*—cubriendo; *āvṛtya*—cubriendo; *rodasī*—todo el firmamento; *kham ca*—también el espacio sideral; *vavṛdhāte*—aumentando; *arka*—el globo solar; *vahni-vat*—como fuego.

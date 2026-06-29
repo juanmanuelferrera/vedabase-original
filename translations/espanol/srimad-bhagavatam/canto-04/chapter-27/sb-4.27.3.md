@@ -1,11 +1,11 @@
 ### SB 4.27.3
 
-> तयोपगूढः परिरब्धकन्धरो रहोऽनुमन्त्रैरपकृष्टचेतनः ।
+> तयोपगूढः परिरब्धकन्धरो रहोऽनुमन्त्रैरपकृष्टचेतनः ।\
 > न कालरंहो बुबुधे दुरत्ययं दिवा निशेति प्रमदापरिग्रहः ॥३॥
 
-> tayopagūḍhaḥ parirabdha-kandharo
-> raho 'numantrair apakṛṣṭa-cetanaḥ
-> na kāla-raṁho bubudhe duratyayaṁ
+> tayopagūḍhaḥ parirabdha-kandharo\
+> raho 'numantrair apakṛṣṭa-cetanaḥ\
+> na kāla-raṁho bubudhe duratyayaṁ\
 > divā niśeti pramadā-parigrahaḥ
 
 *tayā*—por la reina; *upagūḍhaḥ*—fue abrazado; *parirabdha*—abrazó; *kandharaḥ*—hombros; *rahaḥ*—en un lugar solitario; *anumantraiḥ*—con palabras jocosas; *apakṛṣṭa-cetanaḥ*—con la conciencia degradada; *na*—no; *kāla-raṁhaḥ*—el paso del tiempo; *bubudhe*—era consciente de; *duratyayam*—imposible de vencer; *divā*—día; *niśā*—noche; *iti*—de ese modo; *pramadā*—por la mujer; *parigrahaḥ*—cautivado.

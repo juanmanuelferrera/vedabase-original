@@ -1,11 +1,11 @@
 ### SB 8.15.25
 
-> भगवन्नुद्यमो भूयान्बलेर्नः पूर्ववैरिणः
+> भगवन्नुद्यमो भूयान्बलेर्नः पूर्ववैरिणः\
 > अविषह्यमिमं मन्ये केनासीत्तेजसोर्जितः ॥२५॥
 
-> bhagavann udyamo bhūyān
-> baler naḥ pūrva-vairiṇaḥ
-> aviṣahyam imaṁ manye
+> bhagavann udyamo bhūyān\
+> baler naḥ pūrva-vairiṇaḥ\
+> aviṣahyam imaṁ manye\
 > kenāsīt tejasorjitaḥ
 
 *bhagavan*—¡oh, mi señor!; *udyamaḥ*—entusiasmo; *bhūyān*—grande; *baleḥ*—de Bali Mahārāja; *naḥ*—nuestro; *pūrva-vairiṇaḥ*—antiguo enemigo; *aviṣahyam*—insoportable; *imam*—este; *manye*—yo pienso; *kena*—por quién; *āsīt*—recibió; *tejasā*—poder; *ūrjitaḥ*—obtenido.

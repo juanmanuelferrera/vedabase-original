@@ -1,11 +1,11 @@
 ### SB 3.5.48
 
-> तत्ते वयं लोकसिसृक्षयाद्य त्वयानुसृष्टास्त्रिभिरात्मभिः स्म ।
+> तत्ते वयं लोकसिसृक्षयाद्य त्वयानुसृष्टास्त्रिभिरात्मभिः स्म ।\
 > सर्वे वियुक्ताः स्वविहारतन्त्रं न शक्नुमस्तत्प्रतिहर्तवे ते ॥४८॥
 
-> tat te vayaṁ loka-sisṛkṣayādya
-> tvayānusṛṣṭās tribhir ātmabhiḥ sma
-> sarve viyuktāḥ sva-vihāra-tantraṁ
+> tat te vayaṁ loka-sisṛkṣayādya\
+> tvayānusṛṣṭās tribhir ātmabhiḥ sma\
+> sarve viyuktāḥ sva-vihāra-tantraṁ\
 > na śaknumas tat pratihartave te
 
 *tat*—therefore; *te*—Your; *vayam*—all of us; *loka*—world; *sisṛkṣayā*—for the sake of creation; *ādya*—O Original person; *tvayā*—by You; *anusṛṣṭāḥ*—being created one after another; *tribhiḥ*—by the three modes of nature; *ātmabhiḥ*—by one's own; *sma*—in the past; *sarve*—all; *viyuktāḥ*—separated; *sva-vihāra-tantram*—the network of activities for one's own pleasure; *na*—not; *śaknumaḥ*—could do it; *tat*—that; *pratihartave*—to award; *te*—unto Your.

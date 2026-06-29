@@ -1,11 +1,11 @@
 ### SB 2.1.16
 
-> गृहात्प्रव्रजितो धीरः पुण्यतीर्थजलाप्लुतः ।
+> गृहात्प्रव्रजितो धीरः पुण्यतीर्थजलाप्लुतः ।\
 > शुचौ विविक्त आसीनो विधिवत्कल्पितासने ॥१६॥
 
-> gṛhāt pravrajito dhīraḥ
-> puṇya-tīrtha-jalāplutaḥ
-> śucau vivikta āsīno
+> gṛhāt pravrajito dhīraḥ\
+> puṇya-tīrtha-jalāplutaḥ\
+> śucau vivikta āsīno\
 > vidhivat kalpitāsane
 
 *gṛhāt*—del hogar de uno; *pravrajitaḥ*—habiéndose ido; *dhīraḥ*—autocontrolado; *puṇya*—piadoso; *tīrtha*—lugar sagrado; *jala-āplutaḥ*—lavado por completo; *śucau*—limpio; *vivikte*—solitario; *āsīnaḥ*—sentado; *vidhivat*—de acuerdo con las regulaciones; *kalpita*—habiéndolo hecho; *āsane*—en un asiento.

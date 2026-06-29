@@ -1,11 +1,11 @@
 ### Bg 2.30
 
-> देही नित्यमवध्योऽयं देहे सर्वस्य भारत ।
+> देही नित्यमवध्योऽयं देहे सर्वस्य भारत ।\
 > तस्मात्सर्वाणि भूतानि न त्वं शोचितुमर्हसि ॥३०॥
 
-> dehī nityam avadhyo'yaṁ
-> dehe sarvasya bhārata
-> tasmāt sarvāṇi bhūtāni
+> dehī nityam avadhyo'yaṁ\
+> dehe sarvasya bhārata\
+> tasmāt sarvāṇi bhūtāni\
 > na tvaṁ śocitum arhasi
 
 *dehī*—el propietario del cuerpo material; *nityam*—eternamente; *avadhyaḥ*—no se le puede matar; *ayam*—este alma; *dehe*—en el cuerpo; *sarvasya*—de todo el mundo; *bhārata*—¡oh, descendiente de Bharata!; *tasmāt*—por consiguiente; *sarvāṇi*—todas; *bhūtāni*—entidades vivientes (que nacen); *na*—nunca; *tvam*—tú; *śocitum*—lamentarse; *arhasi*—merece.

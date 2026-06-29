@@ -1,11 +1,11 @@
 ### SB 8.19.12
 
-> अपश्यन्निति होवाच मयान्विष्टमिदं जगत
+> अपश्यन्निति होवाच मयान्विष्टमिदं जगत\
 > भ्रातृहा मे गतो नूनं यतो नावर्तते पुमान ॥१२॥
 
-> apaśyann iti hovāca
-> mayānviṣṭam idaṁ jagat
-> bhrātṛ-hā me gato nūnaṁ
+> apaśyann iti hovāca\
+> mayānviṣṭam idaṁ jagat\
+> bhrātṛ-hā me gato nūnaṁ\
 > yato nāvartate pumān
 
 *apaśyan*—not seeing Him; *iti*—in this way; *ha uvāca*—uttered; *mayā*—by me; *anviṣṭam*—has been sought; *idam*—the whole; *jagat*—universe; *bhrātṛ-hā*—Lord Viṣṇu, who killed the brother; *me*—my; *gataḥ*—must have gone; *nūnam*—indeed; *yataḥ*—from where; *na*—not; *āvartate*—comes back; *pumān*—a person.

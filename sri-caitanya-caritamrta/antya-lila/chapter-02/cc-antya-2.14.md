@@ -1,9 +1,9 @@
 ### CC Antya 2.14
 
-> সেই জীবে নিজ-ভক্তি করেন প্রকাশে ।
+> সেই জীবে নিজ-ভক্তি করেন প্রকাশে ।\
 > তাহার দর্শনে ‘বৈষ্ণব’ হয় সর্বদেশে ॥১৪॥
 
-> sei jīve nija-bhakti karena prakāśe
+> sei jīve nija-bhakti karena prakāśe\
 > tāhāra darśane 'vaiṣṇava' haya sarva-deśe
 
 *sei jīve*—in that living being; *nija-bhakti*—His own devotion; *karena prakāśe*—manifests directly; *tāhāra darśane*—by seeing such an empowered devotee; *vaiṣṇava*—devotees of Kṛṣṇa; *haya*—become; *sarva-deśe*—in all other countries.

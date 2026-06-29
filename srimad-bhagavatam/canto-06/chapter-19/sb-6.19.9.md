@@ -1,11 +1,11 @@
 ### SB 6.19.9
 
-> श्रियं विष्णुं च वरदावाशिषां प्रभवावुभौ
+> श्रियं विष्णुं च वरदावाशिषां प्रभवावुभौ\
 > भक्त्या सम्पूजयेन्नित्यं यदीच्छेत्सर्वसम्पदः ॥९॥
 
-> śriyaṁ viṣṇuṁ ca varadāv
-> āśiṣāṁ prabhavāv ubhau
-> bhaktyā sampūjayen nityaṁ
+> śriyaṁ viṣṇuṁ ca varadāv\
+> āśiṣāṁ prabhavāv ubhau\
+> bhaktyā sampūjayen nityaṁ\
 > yadīcchet sarva-sampadaḥ
 
 *śriyam*—the goddess of fortune; *viṣṇum*—Lord Viṣṇu; *ca*—and; *vara-dau*—the bestowers of benedictions; *āśiṣām*—of blessings; *prabhavau*—the sources; *ubhau*—both; *bhaktyā*—with devotion; *sampūjayet*—should worship; *nityam*—daily; *yadi*—if; *icchet*—desires; *sarva*—all; *sampadaḥ*—opulences.

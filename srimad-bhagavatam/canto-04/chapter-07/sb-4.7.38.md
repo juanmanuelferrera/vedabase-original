@@ -1,13 +1,13 @@
 ### SB 4.7.38
 
-> योगेश्वरा ऊचुः
-> प्रेयान्न तेऽन्योऽस्त्यमुतस्त्वयि प्रभो विश्वात्मनीक्षेन्न पृथग्य आत्मनः ।
+> योगेश्वरा ऊचुः\
+> प्रेयान्न तेऽन्योऽस्त्यमुतस्त्वयि प्रभो विश्वात्मनीक्षेन्न पृथग्य आत्मनः ।\
 > अथापि भक्त्येश तयोपधावतामनन्यवृत्त्यानुगृहाण वत्सल ॥३८॥
 
-> yogeśvarā ūcuḥ
-> preyān na te 'nyo 'sty amutas tvayi prabho
-> viśvātmanīkṣen na pṛthag ya ātmanaḥ
-> athāpi bhaktyeśa tayopadhāvatām
+> yogeśvarā ūcuḥ\
+> preyān na te 'nyo 'sty amutas tvayi prabho\
+> viśvātmanīkṣen na pṛthag ya ātmanaḥ\
+> athāpi bhaktyeśa tayopadhāvatām\
 > ananya-vṛttyānugṛhāṇa vatsala
 
 *yoga-īśvarāḥ*—the great mystics; *ūcuḥ*—said; *preyān*—very dear; *na*—not; *te*—of You; *anyaḥ*—another; *asti*—there is; *amutaḥ*—from that; *tvayi*—in You; *prabho*—dear Lord; *viśva-ātmani*—in the Supersoul of all living entities; *īkṣet*—see; *na*—not; *pṛthak*—different; *yaḥ*—who; *ātmanaḥ*—the living entities; *atha api*—so much more; *bhaktyā*—with devotion; *īśa*—O Lord; *tayā*—with it; *upadhāvatām*—of those who worship; *ananya-vṛttyā*—unfailing; *anugṛhāṇa*—favor; *vatsala*—O favorable Lord.

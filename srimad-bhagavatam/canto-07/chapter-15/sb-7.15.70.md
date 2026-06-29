@@ -1,11 +1,11 @@
 ### SB 7.15.70
 
-> रूपपेशलमाधुर्य सौगन्ध्यप्रियदर्शनः
+> रूपपेशलमाधुर्य सौगन्ध्यप्रियदर्शनः\
 > स्त्रीणां प्रियतमो नित्यं मत्तः स्वपुरलम्पटः ॥७०॥
 
-> rūpa-peśala-mādhurya-
-> saugandhya-priya-darśanaḥ
-> strīṇāṁ priyatamo nityaṁ
+> rūpa-peśala-mādhurya-\
+> saugandhya-priya-darśanaḥ\
+> strīṇāṁ priyatamo nityaṁ\
 > mattaḥ sva-pura-lampaṭaḥ
 
 *rūpa*—beauty; *peśala*—formation of the body; *mādhurya*—attractiveness; *saugandhya*—very fragrant, being decorated with various flower garlands and sandalwood pulp; *priya-darśanaḥ*—very beautiful to see; *strīṇām*—of the women; *priya-tamaḥ*—naturally attracted; *nityam*—daily; *mattaḥ*—proud like a madman; *sva-pura*—in his own city; *lampaṭaḥ*—very much attached to women because of lusty desires.

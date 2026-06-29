@@ -1,11 +1,11 @@
 ### SB 7.15.63
 
-> कार्यकारणवस्त्वैक्य दर्शनं पटतन्तुवत
+> कार्यकारणवस्त्वैक्य दर्शनं पटतन्तुवत\
 > अवस्तुत्वाद्विकल्पस्य भावाद्वैतं तदुच्यते ॥६३॥
 
-> kārya-kāraṇa-vastv-aikya-
-> darśanaṁ paṭa-tantuvat
-> avastutvād vikalpasya
+> kārya-kāraṇa-vastv-aikya-\
+> darśanaṁ paṭa-tantuvat\
+> avastutvād vikalpasya\
 > bhāvādvaitaṁ tad ucyate
 
 *kārya*—el resultado o efecto; *kāraṇa*—la causa; *vastu*—sustancia; *aikya*—unidad; *darśanam*—observación; *paṭa*—el tejido; *tantu*—el hilo; *vat*—como; *avastutvāt*—por ser, en última instancia, irrealidad; *vikalpasya*—de diferenciación; *bhāva-advaitam*—el concepto de unidad; *tat ucyate*—eso se denomina.

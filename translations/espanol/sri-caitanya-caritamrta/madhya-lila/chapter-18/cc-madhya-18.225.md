@@ -1,9 +1,9 @@
 ### CC Madhya 18.225
 
-> অলৌকিক-লীলা প্রভুর অলৌকিক-রীতি ।
+> অলৌকিক-লীলা প্রভুর অলৌকিক-রীতি ।\
 > শুনিলেও ভাগ্যহীনের না হয় প্রতীতি ॥২২৫॥
 
-> alaukika-līlā prabhura alaukika-rīti
+> alaukika-līlā prabhura alaukika-rīti\
 > śunileo bhāgya-hīnera nā haya pratīti
 
 *alaukika-līlā*—pasatiempos extraordinarios; *prabhura*—de Śrī Caitanya Mahāprabhu; *alaukika-rīti*—método extraordinario; *śunileo*—aunque uno escuche; *bhāgya-hīnera*—de aquel que es desafortunado; *nā haya pratīti*—no hay fe.

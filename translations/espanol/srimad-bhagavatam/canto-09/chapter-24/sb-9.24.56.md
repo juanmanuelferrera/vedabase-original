@@ -1,11 +1,11 @@
 ### SB 9.24.56
 
-> यदा यदा हि धर्मस्य क्षयो वृद्धिश्च पाप्मनः
+> यदा यदा हि धर्मस्य क्षयो वृद्धिश्च पाप्मनः\
 > तदा तु भगवानीश आत्मानं सृजते हरिः ॥५६॥
 
-> yadā yadā hi dharmasya
-> kṣayo vṛddhiś ca pāpmanaḥ
-> tadā tu bhagavān īśa
+> yadā yadā hi dharmasya\
+> kṣayo vṛddhiś ca pāpmanaḥ\
+> tadā tu bhagavān īśa\
 > ātmānaṁ sṛjate hariḥ
 
 *yadā*—siempre que; *yadā*—siempre que; *hi*—en verdad; *dharmasya*—de los principios de la religión; *kṣayaḥ*—deterioro; *vṛddhiḥ*—aumentar; *ca*—y; *pāpmanaḥ*—de actividades pecaminosas; *tadā*—en ese momento; *tu*—en verdad; *bhagavān*—la Suprema Personalidad de Dios; *īśaḥ*—el controlador supremo; *ātmānam*—personalmente; *sṛjate*—desciende; *hariḥ*—la Suprema Personalidad de Dios.

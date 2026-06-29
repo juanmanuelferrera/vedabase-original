@@ -1,11 +1,11 @@
 ### SB 9.23.16
 
-> म्लेच्छाधिपतयोऽभूवन्नुदीचीं दिशमाश्रिताः
+> म्लेच्छाधिपतयोऽभूवन्नुदीचीं दिशमाश्रिताः\
 > तुर्वसोश्च सुतो वह्निर्वह्नेर्भर्गोऽथ भानुमान ॥१६॥
 
-> mlecchādhipatayo 'bhūvann
-> udīcīṁ diśam āśritāḥ
-> turvasoś ca suto vahnir
+> mlecchādhipatayo 'bhūvann\
+> udīcīṁ diśam āśritāḥ\
+> turvasoś ca suto vahnir\
 > vahner bhargo 'tha bhānumān
 
 *mleccha*—of the lands known as Mlecchadeśa (where Vedic civilization was not present); *adhipatayaḥ*—the kings; *abhūvan*—became; *udīcīm*—on the northern side of India; *diśam*—the direction; *āśritāḥ*—accepting as the jurisdiction; *turvasoḥ ca*—of Turvasu, the second son of Mahārāja Yayāti; *sutaḥ*—the son; *vahniḥ*—Vahni; *vahneḥ*—of Vahni; *bhargaḥ*—the son named Bharga; *atha*—thereafter, his son; *bhānumān*—Bhānumān.

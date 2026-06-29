@@ -1,11 +1,11 @@
 ### SB 3.8.32
 
-> तर्ह्येव तन्नाभिसरःसरोजमात्मानमम्भः श्वसनं वियच्च ।
+> तर्ह्येव तन्नाभिसरःसरोजमात्मानमम्भः श्वसनं वियच्च ।\
 > ददर्श देवो जगतो विधाता नातः परं लोकविसर्गदृष्टिः ॥३२॥
 
-> tarhy eva tan-nābhi-saraḥ-sarojam
-> ātmānam ambhaḥ śvasanaṁ viyac ca
-> dadarśa devo jagato vidhātā
+> tarhy eva tan-nābhi-saraḥ-sarojam\
+> ātmānam ambhaḥ śvasanaṁ viyac ca\
+> dadarśa devo jagato vidhātā\
 > nātaḥ paraṁ loka-visarga-dṛṣṭiḥ
 
 *tarhi*—por lo tanto; *eva*—ciertamente; *tat*—Su; *nābhi*—ombligo; *saraḥ*—lago; *sarojam*—flor de loto; *ātmānam*—Brahmā; *ambhaḥ*—el agua devastadora; *śvasanam*—el aire que seca; *viyat*—el cielo; *ca*—también; *dadarśa*—miró a; *devaḥ*—semidiós; *jagataḥ*—del universo; *vidhātā*—autor del destino; *na*—no; *ataḥ param*—más allá; *loka-visarga*—creación de la manifestación cósmica; *dṛṣṭiḥ*—mirada.

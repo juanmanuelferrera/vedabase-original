@@ -1,9 +1,9 @@
 ### CC Antya 20.151
 
-> চৈতন্যচরিতামৃত যেই জন শুনে ।
+> চৈতন্যচরিতামৃত যেই জন শুনে ।\
 > তাঁর চরণ ধুঞা করোঁ মুঞি পানে ॥১৫১॥
 
-> caitanya-caritāmṛta yei jana śune
+> caitanya-caritāmṛta yei jana śune\
 > tāṅra caraṇa dhuñā karoṅ muñi pāne
 
 *caitanya-caritāmṛta*—the description of Lord Śrī Caitanya's pastimes; *yei jana śune*—anyone who hears; *tāṅra caraṇa*—his lotus feet; *dhuñā*—washing; *karoṅ*—do; *muñi*—I; *pāne*—drinking.

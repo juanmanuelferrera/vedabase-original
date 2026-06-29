@@ -1,11 +1,11 @@
 ### SB 3.32.25
 
-> स तदैवात्मनात्मानं निःसङ्गं समदर्शनम् ।
+> स तदैवात्मनात्मानं निःसङ्गं समदर्शनम् ।\
 > हेयोपादेयरहितमारूढं पदमीक्षते ॥२५॥
 
-> sa tadaivātmanātmānaṁ
-> niḥsaṅgaṁ sama-darśanam
-> heyopādeya-rahitam
+> sa tadaivātmanātmānaṁ\
+> niḥsaṅgaṁ sama-darśanam\
+> heyopādeya-rahitam\
 > ārūḍhaṁ padam īkṣate
 
 *saḥ*—the pure devotee; *tadā*—then; *eva*—certainly; *ātmanā*—by his transcendental intelligence; *ātmānam*—himself; *niḥsaṅgam*—without material attachment; *sama-darśanam*—equipoised in vision; *heya*—to be rejected; *upādeya*—acceptable; *rahitam*—devoid of; *ārūḍham*—elevated; *padam*—to the transcendental position; *īkṣate*—he sees.

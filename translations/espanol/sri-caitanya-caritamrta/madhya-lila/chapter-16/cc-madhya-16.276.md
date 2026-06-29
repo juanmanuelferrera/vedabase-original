@@ -1,9 +1,9 @@
 ### CC Madhya 16.276
 
-> ভক্তগণে রাখিয়া আইনু নিজ নিজ স্থানে ।
+> ভক্তগণে রাখিয়া আইনু নিজ নিজ স্থানে ।\
 > আমা-সঙ্গে আইলা সবে পাঁচ-ছয় জনে ॥২৭৬॥
 
-> bhakta-gaṇe rākhiyā āinu nija nija sthāne
+> bhakta-gaṇe rākhiyā āinu nija nija sthāne\
 > āmā-saṅge āilā sabe pāṅca-chaya jane
 
 *bhakta-gaṇe*—los devotos; *rākhiyā*—dejando; *āinu*—vine; *nija nija sthāne*—en sus respectivos lugares; *āmā-saṅge*—conmigo; *āilā*—vinieron; *sabe*—solo; *pāṅca-chaya jane*—cinco o seis personas.

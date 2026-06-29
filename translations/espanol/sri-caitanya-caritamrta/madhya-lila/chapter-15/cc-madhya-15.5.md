@@ -1,9 +1,9 @@
 ### CC Madhya 15.5
 
-> প্রথমাবসরে জগন্নাথ-দরশন ।
+> প্রথমাবসরে জগন্নাথ-দরশন ।\
 > নৃত্যগীত করে দণ্ডপরণাম, স্তবন ॥৫॥
 
-> prathamāvasare jagannātha-daraśana
+> prathamāvasare jagannātha-daraśana\
 > nṛtya-gīta kare daṇḍa-paraṇāma, stavana
 
 *prathama-avasare*—al comienzo; *jagannātha-daraśana*—ver la Deidad del Señor Jagannātha; *nṛtya-gīta kare*—ejecuta canto y danza; *daṇḍa-paraṇāma*—ofreciendo reverencias; *stavana*—ofreciendo oraciones.

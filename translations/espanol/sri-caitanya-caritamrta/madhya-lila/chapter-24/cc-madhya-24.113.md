@@ -1,9 +1,9 @@
 ### CC Madhya 24.113
 
-> জন্ম হৈতে শুক-সনকাদি ‘ব্রহ্মময়’ ৷
+> জন্ম হৈতে শুক-সনকাদি ‘ব্রহ্মময়’ ৷\
 > কৃষ্ণগুণাকৃষ্ট হঞা কৃষ্ণেরে ভজয় ॥১১৩॥
 
-> janma haite śuka-sanakādi 'brahmamaya'
+> janma haite śuka-sanakādi 'brahmamaya'\
 > kṛṣṇa-guṇākṛṣṭa hañā kṛṣṇere bhajaya
 
 *janma haite*—desde el nacimiento; *śuka*—Śukadeva Gosvāmī; *sanaka-ādi*—los cuatro Kumāras; *brahma-maya*—absortos en el pensamiento del Brahman impersonal; *kṛṣṇa-guṇa-ākṛṣṭa*—atraídos por los pasatiempos trascendentales del Señor; *hañā*—volviéndose; *kṛṣṇere bhajaya*—adoraron al Señor Kṛṣṇa.

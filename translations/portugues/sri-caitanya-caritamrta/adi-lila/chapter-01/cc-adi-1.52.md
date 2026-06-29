@@ -1,8 +1,8 @@
 ### CC Adi 1.52
 
-> yāvān ahaṁ yathā-bhāvo
-> yad-rūpa-guṇa-karmakaḥ
-> tathaiva tattva-vijñānam
+> yāvān ahaṁ yathā-bhāvo\
+> yad-rūpa-guṇa-karmakaḥ\
+> tathaiva tattva-vijñānam\
 > astu te mad-anugrahāt
 
 *yāvān*—tal como sou em Minha forma eterna; *aham*—Eu; *yathā*—de qualquer maneira que; *bhāvaḥ*—existência transcendental; *yat*—quaisquer que sejam; *rūpa*—várias formas e cores; *guṇa*—qualidades; *karmakaḥ*—atividades; *tathā eva*—exatamente assim; *tattva-vijñānam*—percepção factual; *astu*—que haja; *te*—tua; *mat*—Minha; *anugrahāt*—pela misericórdia imotivada.

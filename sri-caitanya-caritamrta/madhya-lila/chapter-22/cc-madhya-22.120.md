@@ -1,9 +1,9 @@
 ### CC Madhya 22.120
 
-> বিষ্ণুবৈষ্ণব-নিন্দা, গ্ৰাম্যবার্তা না শুনিব ।
+> বিষ্ণুবৈষ্ণব-নিন্দা, গ্ৰাম্যবার্তা না শুনিব ।\
 > প্রাণিমাত্রে মনোবাক্যে উদ্বেগ না দিব ॥১২০॥
 
-> viṣṇu-vaiṣṇava-nindā, grāmya-vārtā nā śuniba
+> viṣṇu-vaiṣṇava-nindā, grāmya-vārtā nā śuniba\
 > prāṇi-mātre manovākye udvega nā diba
 
 *viṣṇu-vaiṣṇava-nindā*—blaspheming of Lord Viṣṇu and His devotee; *grāmya-vārtā*—ordinary talks; *nā śuniba*—we should not hear; *prāṇi-mātre*—to any living entity however insignificant; *manaḥ-vākye*—by mind or by words; *udvega*—anxiety; *nā diba*—we should not give.

@@ -1,11 +1,11 @@
 ### SB 3.7.17
 
-> यश्च मूढतमो लोके यश्च बुद्धेः परं गतः ।
+> यश्च मूढतमो लोके यश्च बुद्धेः परं गतः ।\
 > तावुभौ सुखमेधेते क्लिश्यत्यन्तरितो जनः ॥१७॥
 
-> yaś ca mūḍhatamo loke
-> yaś ca buddheḥ paraṁ gataḥ
-> tāv ubhau sukham edhete
+> yaś ca mūḍhatamo loke\
+> yaś ca buddheḥ paraṁ gataḥ\
+> tāv ubhau sukham edhete\
 > kliśyaty antarito janaḥ
 
 *yaḥ*—one who is; *ca*—also; *mūḍha-tamaḥ*—the lowest of the fools; *loke*—in the world; *yaḥ ca*—and one who is; *buddheḥ*—of intelligence; *param*—transcendental; *gataḥ*—gone; *tau*—of them; *ubhau*—both; *sukham*—happiness; *edhete*—enjoy; *kliśyati*—suffer; *antaritaḥ*—situated between; *janaḥ*—persons.

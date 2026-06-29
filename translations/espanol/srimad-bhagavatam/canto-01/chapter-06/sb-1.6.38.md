@@ -1,11 +1,11 @@
 ### SB 1.6.38
 
-> अहो देवर्षिर्धन्योऽयं यत्कीर्तिं शार्ङ्गधन्वनः ।
+> अहो देवर्षिर्धन्योऽयं यत्कीर्तिं शार्ङ्गधन्वनः ।\
 > गायन्माद्यन्निदं तन्त्र्या रमयत्यातुरं जगत् ॥३८॥
 
-> aho devarṣir dhanyo 'yaṁ
-> yat-kīrtiṁ śārṅgadhanvanaḥ
-> gāyan mādyann idaṁ tantryā
+> aho devarṣir dhanyo 'yaṁ\
+> yat-kīrtiṁ śārṅgadhanvanaḥ\
+> gāyan mādyann idaṁ tantryā\
 > ramayaty āturaṁ jagat
 
 *aho*—toda gloria a; *devarṣiḥ*—el sabio de los dioses; *dhanyaḥ*—todo éxito; *ayam yat*—aquel que; *kīrtim*—glorias; *śārṅga-dhanvanaḥ*—de la Personalidad de Dios; *gāyan*—cantando; *mādyan*—complaciéndose con; *idam*—esto; *tantryā*—por medio del instrumento; *ramayati*—reanima; *āturam*—acongojado; *jagat*—mundo.

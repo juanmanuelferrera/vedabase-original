@@ -1,9 +1,9 @@
 ### CC Adi 14.48
 
-> কভু শিশু-সঙ্গে স্নান করিল গঙ্গাতে ।
+> কভু শিশু-সঙ্গে স্নান করিল গঙ্গাতে ।\
 > কন্যাগণ আইলা তাহাঁ দেবতা পূজিতে ॥৪৮॥
 
-> kabhu śiśu-saṅge snāna karila gaṅgāte
+> kabhu śiśu-saṅge snāna karila gaṅgāte\
 > kanyāgaṇa āilā tāhāṅ devatā pūjite
 
 *kabhu*—sometimes; *śiśu-saṅge*—along with other children; *snāna*—bathing; *karila*—did; *gaṅgāte*—in the Ganges; *kanyā-gaṇa*—the girls; *āilā*—came there; *tāhāṅ*—on the bank of the Ganges; *devatā*—demigods; *pūjite*—to worship.

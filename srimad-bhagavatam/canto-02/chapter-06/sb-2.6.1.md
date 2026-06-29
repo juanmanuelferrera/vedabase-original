@@ -1,13 +1,13 @@
 ### SB 2.6.1
 
-> ब्रह्मोवाच
-> वाचां वह्नेर्मुखं क्षेत्रं छन्दसां सप्त धातवः ।
+> ब्रह्मोवाच\
+> वाचां वह्नेर्मुखं क्षेत्रं छन्दसां सप्त धातवः ।\
 > हव्यकव्यामृतान्नानां जिह्वा सर्वरसस्य च ॥१॥
 
-> brahmovāca
-> vācāṁ vahner mukhaṁ kṣetraṁ
-> chandasāṁ sapta dhātavaḥ
-> havya-kavyāmṛtānnānāṁ
+> brahmovāca\
+> vācāṁ vahner mukhaṁ kṣetraṁ\
+> chandasāṁ sapta dhātavaḥ\
+> havya-kavyāmṛtānnānāṁ\
 > jihvā sarva-rasasya ca
 
 *brahmā uvāca*—Lord Brahmā said; *vācām*—of the voice; *vahneḥ*—of fire; *mukham*—the mouth; *kṣetram*—the generating center; *chandasām*—of the Vedic hymns, such as Gāyatrī; *sapta*—seven; *dhātavaḥ*—skin and six other layers; *havya-kavya*—offerings for the demigods and the forefathers; *amṛta*—food for human beings; *annānām*—of all sorts of foodstuffs; *jihvā*—the tongue; *sarva*—all; *rasasya*—of all delicacies; *ca*—also.

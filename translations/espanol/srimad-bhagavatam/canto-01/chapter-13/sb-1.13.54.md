@@ -1,11 +1,11 @@
 ### SB 1.13.54
 
-> जितासनो जितश्वासः प्रत्याहृतषडिन्द्रियः ।
+> जितासनो जितश्वासः प्रत्याहृतषडिन्द्रियः ।\
 > हरिभावनया ध्वस्तरजःसत्त्वतमोमलः ॥५४॥
 
-> jitāsano jita-śvāsaḥ
-> pratyāhṛta-ṣaḍ-indriyaḥ
-> hari-bhāvanayā dhvasta-
+> jitāsano jita-śvāsaḥ\
+> pratyāhṛta-ṣaḍ-indriyaḥ\
+> hari-bhāvanayā dhvasta-\
 > rajaḥ-sattva-tamo-malaḥ
 
 *jita-āsanaḥ*—aquel que ha controlado la manera de sentarse; *jita-śvāsaḥ*—aquel que ha controlado el proceso respiratorio; *pratyāhṛta*—volviéndose; *ṣaṭ*—seis; *indriyaḥ*—sentidos; *hari*—la Absoluta Personalidad de Dios; *bhāvanayā*—absorto en; *dhvasta*—conquistó; *rajaḥ*—pasión; *sattva*—bondad; *tamaḥ*—ignorancia; *malaḥ*—contaminaciones.

@@ -1,9 +1,9 @@
 ### CC Antya 2.166
 
-> স্বরূপাদি মিলি’ তবে বিচার করিলা ।
+> স্বরূপাদি মিলি’ তবে বিচার করিলা ।\
 > ত্রিবেণী-প্রভাবে হরিদাস প্রভুপদ পাইলা ॥১৬৬॥
 
-> svarūpādi mili' tabe vicāra karilā
+> svarūpādi mili' tabe vicāra karilā\
 > triveṇī-prabhāve haridāsa prabhu-pada pāilā
 
 *svarūpa-ādi*—devotees headed by Svarūpa Dāmodara; *mili'*—coming together; *tabe*—then; *vicāra karilā*—discussed; *triveṇī-prabhāve*—by the influence of the holy place at the confluence of the Ganges and Yamunā; *haridāsa*—Junior Haridāsa; *prabhu-pada pāilā*—achieved the shelter of the lotus feet of Śrī Caitanya Mahāprabhu.

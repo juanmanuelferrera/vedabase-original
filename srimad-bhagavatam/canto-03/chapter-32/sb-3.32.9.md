@@ -1,13 +1,13 @@
 ### SB 3.32.9
 
-> क्ष्माम्भोऽनलानिलवियन्मनैन्द्रियार्थ
-> भूतादिभिः परिवृतं प्रतिसञ्जिहीर्षुः ।
-> अव्याकृतं विशति यर्हि गुणत्रयात्माकालं
+> क्ष्माम्भोऽनलानिलवियन्मनैन्द्रियार्थ\
+> भूतादिभिः परिवृतं प्रतिसञ्जिहीर्षुः ।\
+> अव्याकृतं विशति यर्हि गुणत्रयात्माकालं\
 > पराख्यमनुभूय परः स्वयम्भूः ॥९॥
 
-> kṣmāmbho-'nalānila-viyan-mana-indriyārtha-
-> bhūtādibhiḥ parivṛtaṁ pratisañjihīrṣuḥ
-> avyākṛtaṁ viśati yarhi guṇa-trayātmā
+> kṣmāmbho-'nalānila-viyan-mana-indriyārtha-\
+> bhūtādibhiḥ parivṛtaṁ pratisañjihīrṣuḥ\
+> avyākṛtaṁ viśati yarhi guṇa-trayātmā\
 > kālaṁ parākhyam anubhūya paraḥ svayambhūḥ
 
 *kṣmā*—earth; *ambhaḥ*—water; *anala*—fire; *anila*—air; *viyat*—ether; *manaḥ*—mind; *indriya*—the senses; *artha*—the objects of the senses; *bhūta*—ego; *ādibhiḥ*—and so on; *parivṛtam*—covered by; *pratisañjihīrṣuḥ*—desiring to dissolve; *avyākṛtam*—the changeless spiritual sky; *viśati*—he enters; *yarhi*—at which time; *guṇa-traya-ātmā*—consisting of the three modes; *kālam*—the time; *para-ākhyam*—two *parārdhas*; *anubhūya*—after experiencing; *paraḥ*—the chief; *svayambhūḥ*—Lord Brahmā.

@@ -1,9 +1,9 @@
 ### CC Madhya 13.97
 
-> ভাগ্যবান্ তুমি — ইঁহার হস্ত-স্পর্শ পাইলা ।
+> ভাগ্যবান্ তুমি — ইঁহার হস্ত-স্পর্শ পাইলা ।\
 > আমার ভাগ্যে নাহি, তুমি কৃতার্থ হৈলা ॥৯৭॥
 
-> bhāgyavān tumi-iṅhāra hasta-sparśa pāilā
+> bhāgyavān tumi-iṅhāra hasta-sparśa pāilā\
 > āmāra bhāgye nāhi, tumi kṛtārtha hailā
 
 *bhāgyavān tumi*—you are very fortunate; *iṅhāra*—of Śrīvāsa Ṭhākura; *hasta*—of the hand; *sparśa*—touch; *pāilā*—have received; *āmāra bhāgye*—in my fortune; *nāhi*—there is no such thing; *tumi*—you; *kṛta-artha hailā*—have become graced.

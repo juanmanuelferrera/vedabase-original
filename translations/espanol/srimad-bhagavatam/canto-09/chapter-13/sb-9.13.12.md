@@ -1,11 +1,11 @@
 ### SB 9.13.12
 
-> अराजकभयं न्णां मन्यमाना महर्षयः
+> अराजकभयं न्णां मन्यमाना महर्षयः\
 > देहं ममन्थुः स्म निमेः कुमारः समजायत ॥१२॥
 
-> arājaka-bhayaṁ nṝṇāṁ
-> manyamānā maharṣayaḥ
-> dehaṁ mamanthuḥ sma nimeḥ
+> arājaka-bhayaṁ nṝṇāṁ\
+> manyamānā maharṣayaḥ\
+> dehaṁ mamanthuḥ sma nimeḥ\
 > kumāraḥ samajāyata
 
 *arājaka-bhayam*—por el temor a un gobierno no regulado; *nṝṇām*—para la gente en general; *manyamānāḥ*—considerando esta situación; *mahā-ṛṣayaḥ*—los grandes sabios; *deham*—el cuerpo; *mamanthuḥ*—batieron; *sma*—en el pasado; *nimeḥ*—de Mahārāja Nimi; *kumāraḥ*—un hijo; *samajāyata*—nació entonces.

@@ -1,9 +1,9 @@
 ### CC Adi 5.26
 
-> পরব্যোম-মধ্যে করি’ স্বরূপ প্রকাশ ।
+> পরব্যোম-মধ্যে করি’ স্বরূপ প্রকাশ ।\
 > নারায়ণরূপে করেন বিবিধ বিলাস ॥২৬॥
 
-> para-vyoma-madhye kari' svarūpa prakāśa
+> para-vyoma-madhye kari' svarūpa prakāśa\
 > nārāyaṇa-rūpe karena vividha vilāsa
 
 *para-vyoma-madhye*—dentro del cielo espiritual; *kari'*—haciendo; *svarūpa prakāśa*—manifestación de Su identidad; *nārāyaṇa-rūpe*—en la forma del Señor Nārāyaṇa; *karena*—realiza; *vividha vilāsa*—diversos pasatiempos.

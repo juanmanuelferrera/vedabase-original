@@ -1,9 +1,9 @@
 ### CC Madhya 8.265
 
-> অন্তর্যামী ঈশ্বরের এই রীতি হয়ে ৷
+> অন্তর্যামী ঈশ্বরের এই রীতি হয়ে ৷\
 > বাহিরে না কহে, বস্তু প্রকাশে হৃদয়ে ৷৷ ২৬৫ ৷৷ ॥২৬৫॥
 
-> antaryāmī īśvarera ei rīti haye
+> antaryāmī īśvarera ei rīti haye\
 > bāhire nā kahe, vastu prakāśe hṛdaye
 
 *antaryāmī*—la Superalma; *īśvarera*—de la Personalidad de Dios; *ei*—este; *rīti*—el sistema; *haye*—es; *bāhire*—externamente; *nā kahe*—no habla; *vastu*—los hechos; *prakāśe*—manifiesta; *hṛdaye*—dentro del corazón.

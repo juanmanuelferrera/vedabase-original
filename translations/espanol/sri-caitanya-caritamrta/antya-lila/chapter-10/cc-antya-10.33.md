@@ -1,9 +1,9 @@
 ### CC Antya 10.33
 
-> কহিতে না জানি নাম এ-জন্মে যাহার ।
+> কহিতে না জানি নাম এ-জন্মে যাহার ।\
 > ঐছে নানা ভক্ষ্যদ্রব্য সহস্রপ্রকার ॥৩৩॥
 
-> kahite nā jāni nāma e-janme yāhāra
+> kahite nā jāni nāma e-janme yāhāra\
 > aiche nānā bhakṣya-dravya sahasra-prakāra
 
 *kahite nā jāni*—no puedo decir; *nāma*—los nombres; *e-janme*—en esta vida; *yāhāra*—de los cuales; *aiche*—similares; *nānā*—muchos; *bhakṣya-dravya*—comestibles; *sahasra-prakāra*—cientos y miles de variedades.

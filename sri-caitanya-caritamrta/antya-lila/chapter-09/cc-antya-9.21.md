@@ -1,9 +1,9 @@
 ### CC Antya 9.21
 
-> ঘোড়া দশ-বার হয়, লহ’ মূল্য করি’ ।
+> ঘোড়া দশ-বার হয়, লহ’ মূল্য করি’ ।\
 > এত বলি’ ঘোড়া আনে রাজদ্বারে ধরি’ ॥২১॥
 
-> ghoḍā daśa-bāra haya, laha' mūlya kari' "
+> ghoḍā daśa-bāra haya, laha' mūlya kari' "\
 > eta bali' ghoḍā āne rāja-dvāre dhari'
 
 *ghoḍā*—horses; *daśa-bāra*—ten to twelve; *haya*—there are; *laha'*—take; *mūlya kari'*—on the proper value; *eta bali'*—saying this; *ghoḍā āne*—he brought the horses; *rāja-dvāre dhari'*—keeping at the door of the King.

@@ -1,11 +1,11 @@
 ### SB 3.6.19
 
-> मेढ्रं तस्य विनिर्भिन्नं स्वधिष्ण्यं क उपाविशत् ।
+> मेढ्रं तस्य विनिर्भिन्नं स्वधिष्ण्यं क उपाविशत् ।\
 > रेतसांशेन येनासावानन्दं प्रतिपद्यते ॥१९॥
 
-> meḍhraṁ tasya vinirbhinnaṁ
-> sva-dhiṣṇyaṁ ka upāviśat
-> retasāṁśena yenāsāv
+> meḍhraṁ tasya vinirbhinnaṁ\
+> sva-dhiṣṇyaṁ ka upāviśat\
+> retasāṁśena yenāsāv\
 > ānandaṁ pratipadyate
 
 *meḍhram*—genitals; *tasya*—of the gigantic form; *vinirbhinnam*—being separated; *sva-dhiṣṇyam*—own position; *kaḥ*—Brahmā, the original living creature; *upāviśat*—entered; *retasā aṁśena*—with the part of the semen; *yena*—by which; *asau*—the living entity; *ānandam*—sex pleasure; *pratipadyate*—experiences.

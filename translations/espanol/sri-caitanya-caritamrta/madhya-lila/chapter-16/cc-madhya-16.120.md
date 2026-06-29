@@ -1,9 +1,9 @@
 ### CC Madhya 16.120
 
-> প্রভুর দরশনে সবে হৈল প্রেমময় ।
+> প্রভুর দরশনে সবে হৈল প্রেমময় ।\
 > ‘কৃষ্ণ’ ‘কৃষ্ণ’ কহে, নেত্র অশ্রু বরিষয় ॥১২০॥
 
-> prabhura daraśane sabe haila premamaya
+> prabhura daraśane sabe haila premamaya\
 > 'kṛṣṇa' 'kṛṣṇa' kahe, netra aśru variṣaya
 
 *prabhura daraśane*—al ver al Señor; *sabe*—todas ellas; *haila*—quedaron; *prema-maya*—abrumadas de amor; *kṛṣṇa kṛṣṇa kahe*—cantaban el santo nombre de Kṛṣṇa; *netra*—los ojos; *aśru*—lágrimas; *variṣaya*—derramaban.

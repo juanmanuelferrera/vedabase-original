@@ -1,13 +1,13 @@
 ### SB 9.20.1
 
-> श्रीबादरायणिरुवाच
-> पूरोर्वंशं प्रवक्ष्यामि यत्र जातोऽसि भारत
+> श्रीबादरायणिरुवाच\
+> पूरोर्वंशं प्रवक्ष्यामि यत्र जातोऽसि भारत\
 > यत्र राजर्षयो वंश्या ब्रह्मवंश्याश्च जज्ञइरे ॥१॥
 
-> śrī-bādarāyaṇir uvāca
-> pūror vaṁśaṁ pravakṣyāmi
-> yatra jāto 'si bhārata
-> yatra rājarṣayo vaṁśyā
+> śrī-bādarāyaṇir uvāca\
+> pūror vaṁśaṁ pravakṣyāmi\
+> yatra jāto 'si bhārata\
+> yatra rājarṣayo vaṁśyā\
 > brahma-vaṁśyāś ca jajñire
 
 *śrī-bādarāyaṇiḥ uvāca*—Śrī Śukadeva Gosvāmī said; *pūroḥ vaṁśam*—the dynasty of Mahārāja Pūru; *pravakṣyāmi*—now I shall narrate; *yatra*—in which dynasty; *jātaḥ asi*—you were born; *bhārata*—O Mahārāja Parīkṣit, descendant of Mahārāja Bharata; *yatra*—in which dynasty; *rāja-ṛṣayaḥ*—all the kings were saintly; *vaṁśyāḥ*—one after another; *brahma-vaṁśyāḥ*—many *brāhmaṇa* dynasties; *ca*—also; *jajñire*—grew up.

@@ -1,9 +1,9 @@
 ### CC Adi 10.158
 
-> তাঁর স্থানে রূপ-গোসাঞি শুনেন ভাগবত ।
+> তাঁর স্থানে রূপ-গোসাঞি শুনেন ভাগবত ।\
 > প্রভুর কৃপায় তেঁহো কৃষ্ণপ্রেমে মত্ত ॥১৫৮॥
 
-> tāṅra sthāne rūpa-gosāñi śunena bhāgavata
+> tāṅra sthāne rūpa-gosāñi śunena bhāgavata\
 > prabhura kṛpāya teṅho kṛṣṇa-preme matta
 
 *tāṅra sthāne*—en su lugar; *rūpa-gosāñi*—Śrīla Rūpa Gosvāmī; *śunena*—escuchaba; *bhāgavata*—la recitación del *Śrīmad-Bhāgavatam*; *prabhura kṛpāya*—por la misericordia del Señor Caitanya; *teṅho*—él; *kṛṣṇa-preme*—en amor por Kṛṣṇa; *matta*—siempre enloquecido.

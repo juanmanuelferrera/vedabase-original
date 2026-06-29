@@ -1,11 +1,11 @@
 ### SB 4.25.10
 
-> आसीत्पुरञ्जनो नाम राजा राजन्बृहच्छ्रवाः ।
+> आसीत्पुरञ्जनो नाम राजा राजन्बृहच्छ्रवाः ।\
 > तस्याविज्ञातनामासीत्सखाविज्ञातचेष्टितः ॥१०॥
 
-> āsīt purañjano nāma
-> rājā rājan bṛhac-chravāḥ
-> tasyāvijñāta-nāmāsīt
+> āsīt purañjano nāma\
+> rājā rājan bṛhac-chravāḥ\
+> tasyāvijñāta-nāmāsīt\
 > sakhāvijñāta-ceṣṭitaḥ
 
 *āsīt*—there was; *purañjanaḥ*—Purañjana; *nāma*—named; *rājā*—king; *rājan*—O King; *bṛhat-śravāḥ*—whose activities were great; *tasya*—his; *avijñāta*—the unknown one; *nāmā*—of the name; *āsīt*—there was; *sakhā*—friend; *avijñāta*—unknown; *ceṣṭitaḥ*—whose activities.

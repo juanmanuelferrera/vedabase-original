@@ -2,7 +2,7 @@
 
 > “মুক্তা অপি লীলয়া বিগ্রহং কৃত্বা ভগবন্তং ভজন্তে ।।” ॥১৫৬॥
 
-> "muktā api līlayā vigrahaṁ
+> "muktā api līlayā vigrahaṁ\
 > kṛtvā bhagavantaṁ bhajante"
 
 *muktāḥ*—liberated; *api*—although; *līlayā*—by pastimes; *vigraham*—the form of the Lord; *kṛtvā*—having installed; *bhagavantam*—the Supreme Personality of Godhead; *bhajante*—worship.

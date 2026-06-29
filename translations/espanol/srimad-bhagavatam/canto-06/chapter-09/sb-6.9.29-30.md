@@ -1,18 +1,18 @@
 ### SB 6.9.29-30
 
-> आत्मतुल्यैः षोडशभिर्विना श्रीवत्सकौस्तुभौ
-> पर्युपासितमुन्निद्र शरदम्बुरुहेक्षणम ॥२९॥
-> दृष्ट्वा तमवनौ सर्व ईक्षणाह्लादविक्लवाः
+> आत्मतुल्यैः षोडशभिर्विना श्रीवत्सकौस्तुभौ\
+> पर्युपासितमुन्निद्र शरदम्बुरुहेक्षणम ॥२९॥\
+> दृष्ट्वा तमवनौ सर्व ईक्षणाह्लादविक्लवाः\
 > दण्डवत्पतिता राजञ्छनैरुत्थाय तुष्टुवुः ॥३०॥
 
-> ātma-tulyaiḥ ṣoḍaśabhir
-> vinā śrīvatsa-kaustubhau
-> paryupāsitam unnidra-
+> ātma-tulyaiḥ ṣoḍaśabhir\
+> vinā śrīvatsa-kaustubhau\
+> paryupāsitam unnidra-\
 > śarad-amburuhekṣaṇam
 
-> dṛṣṭvā tam avanau sarva
-> īkṣaṇāhlāda-viklavāḥ
-> daṇḍavat patitā rājañ
+> dṛṣṭvā tam avanau sarva\
+> īkṣaṇāhlāda-viklavāḥ\
+> daṇḍavat patitā rājañ\
 > chanair utthāya tuṣṭuvuḥ
 
 *ātma-tulyaiḥ*—casi iguales a Él mismo; *ṣoḍaśabhiḥ*—por dieciséis (sirvientes); *vinā*—sin; *śrīvatsa-kaustubhau*—la marca de Śrīvatsa y la joya Kaustubha; *paryupāsitam*—asistido en todas direcciones; *unnidra*—florecientes; *śarat*—del otoño; *amburuha*—como flores de loto; *īkṣaṇam*—con ojos; *dṛṣṭvā*—al ver; *tam*—a Él (a la Suprema Personalidad de Dios, Nārāyaṇa); *avanau*—en el suelo; *sarve*—todos ellos; *īkṣaṇa*—de ver directamente; *āhlāda*—con felicidad; *viklavāḥ*—abrumados; *daṇḍa-vat*—como un bastón; *patitāḥ*—se postraron; *rājan*—¡oh, rey!; *śanaiḥ*—lentamente; *utthāya*—levantándose; *tuṣṭuvuḥ*—ofrecieron oraciones.

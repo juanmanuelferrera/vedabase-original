@@ -1,18 +1,18 @@
 ### SB 6.16.18-19
 
-> ओं नमस्तुभ्यं भगवते वासुदेवाय धीमहि
-> प्रद्युम्नायानिरुद्धाय नमः सङ्कर्षणाय च ॥१८॥
-> नमो विज्ञआनमात्राय परमानन्दमूर्तये
+> ओं नमस्तुभ्यं भगवते वासुदेवाय धीमहि\
+> प्रद्युम्नायानिरुद्धाय नमः सङ्कर्षणाय च ॥१८॥\
+> नमो विज्ञआनमात्राय परमानन्दमूर्तये\
 > आत्मारामाय शान्ताय निवृत्तद्वैतदृष्टये ॥१९॥
 
-> oṁ namas tubhyaṁ bhagavate
-> vāsudevāya dhīmahi
-> pradyumnāyāniruddhāya
+> oṁ namas tubhyaṁ bhagavate\
+> vāsudevāya dhīmahi\
+> pradyumnāyāniruddhāya\
 > namaḥ saṅkarṣaṇāya ca
 
-> namo vijñāna-mātrāya
-> paramānanda-mūrtaye
-> ātmārāmāya śāntāya
+> namo vijñāna-mātrāya\
+> paramānanda-mūrtaye\
+> ātmārāmāya śāntāya\
 > nivṛtta-dvaita-dṛṣṭaye
 
 *oṁ*—¡oh, mi Señor!; *namaḥ*—reverencias; *tubhyam*—a Ti; *bhagavate*—la Suprema Personalidad de Dios; *vāsudevāya*—Kṛṣṇa, el hijo de Vasudeva; *dhīmahi*—permítaseme meditar en; *pradyumnāya*—a Pradyumna; *aniruddhāya*—a Aniruddha; *namaḥ*—reverencias respetuosas; *saṅkarṣaṇāya*—al Señor Saṅkarṣaṇa; *ca*—también; *namaḥ*—toda reverencia; *vijñāna-mātrāya*—a la forma plena de conocimiento; *parama-ānanda-mūrtaye*—llena de bienaventuranza trascendental; *ātma-ārāmāya*—al Señor, que es autosuficiente; *śāntāya*—y libre de perturbaciones; *nivṛtta-dvaita-dṛṣṭaye*—cuya visión se aparta de la dualidad, o que es uno sin par.

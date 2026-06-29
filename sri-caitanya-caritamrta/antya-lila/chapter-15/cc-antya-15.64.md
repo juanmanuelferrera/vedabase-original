@@ -1,13 +1,13 @@
 ### CC Antya 15.64
 
-> নবঘনস্নিগ্ধবর্ণ, দলিতাঞ্জন-চিক্কণ,
-> ইন্দীবর-নিন্দি সুকোমল ।
-> জিনি’ উপমান-গণ, হরে সবার নেত্র-মন,
+> নবঘনস্নিগ্ধবর্ণ, দলিতাঞ্জন-চিক্কণ,\
+> ইন্দীবর-নিন্দি সুকোমল ।\
+> জিনি’ উপমান-গণ, হরে সবার নেত্র-মন,\
 > কৃষ্ণকান্তি পরম প্রবল ॥৬৪॥
 
-> nava-ghana-snigdha-varṇa, dalitāñjana-cikkaṇa,
-> indīvara-nindi sukomala
-> jini' upamāna-gaṇa, hare sabāra netra-mana,
+> nava-ghana-snigdha-varṇa, dalitāñjana-cikkaṇa,\
+> indīvara-nindi sukomala\
+> jini' upamāna-gaṇa, hare sabāra netra-mana,\
 > kṛṣṇa-kānti parama prabala
 
 *nava-ghana*—a newly formed cloud; *snigdha*—attractive; *varṇa*—bodily complexion; *dalita*—powdered; *añjana*—ointment; *cikkaṇa*—polished; *indīvara*—a blue lotus flower; *nindi*—defeating; *su-komala*—soft; *jini*—surpassing; *upamāna-gaṇa*—all comparison; *hare*—attracts; *sabāra*—of all; *netra-mana*—the eyes and mind; *kṛṣṇa-kānti*—the complexion of Kṛṣṇa; *parama prabala*—supremely powerful.

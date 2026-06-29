@@ -1,9 +1,9 @@
 ### CC Adi 3.18
 
-> সার্ষ্টি, সারূপ্য, আর সামীপ্য, সালোক্য ।
+> সার্ষ্টি, সারূপ্য, আর সামীপ্য, সালোক্য ।\
 > সাযুজ্য না লয় ভক্ত যাতে ব্রহ্ম-ঐক্য ॥১৮॥
 
-> sārṣṭi, sārūpya, āra sāmīpya, sālokya
+> sārṣṭi, sārūpya, āra sāmīpya, sālokya\
 > sāyujya nā laya bhakta yāte brahma-aikya
 
 *sārṣṭi*—opulencias iguales a las del Señor; *sārūpya*—la misma forma que la del Señor; *āra*—y; *sāmīpya*—asociación personal con el Señor; *sālokya*—residencia en un planeta Vaikuṇṭha; *sāyujya*—unidad con el Señor; *nā laya*—no aceptan; *bhakta*—los devotos; *yāte*—puesto que; *brahma-aikya*—unidad con Brahman.

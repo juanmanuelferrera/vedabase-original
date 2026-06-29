@@ -1,11 +1,11 @@
 ### SB 4.28.65
 
-> बर्हिष्मन्नेतदध्यात्मं पारोक्ष्येण प्रदर्शितम् ।
+> बर्हिष्मन्नेतदध्यात्मं पारोक्ष्येण प्रदर्शितम् ।\
 > यत्परोक्षप्रियो देवो भगवान्विश्वभावनः ॥६५॥
 
-> barhiṣmann etad adhyātmaṁ
-> pārokṣyeṇa pradarśitam
-> yat parokṣa-priyo devo
+> barhiṣmann etad adhyātmaṁ\
+> pārokṣyeṇa pradarśitam\
+> yat parokṣa-priyo devo\
 > bhagavān viśva-bhāvanaḥ
 
 *barhiṣman*—¡oh, rey Prācīnabarhi!; *etat*—esta; *adhyātmam*—narración sobre la autorrealización; *pārokṣyeṇa*—indirectamente; *pradarśitam*—instruido; *yat*—porque; *parokṣa-priyaḥ*—interesante por medio de descripciones indirectas; *devaḥ*—el Señor Supremo; *bhagavān*—la Personalidad de Dios; *viśva-bhāvanaḥ*—la causa de todas las causas.

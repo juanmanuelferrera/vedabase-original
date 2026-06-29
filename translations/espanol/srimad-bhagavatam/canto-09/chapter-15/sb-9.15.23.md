@@ -1,11 +1,11 @@
 ### SB 9.15.23
 
-> स एकदा तु मृगयां विचरन्विजने वने
+> स एकदा तु मृगयां विचरन्विजने वने\
 > यदृच्छयाश्रमपदं जमदग्नेरुपाविशत ॥२३॥
 
-> sa ekadā tu mṛgayāṁ
-> vicaran vijane vane
-> yadṛcchayāśrama-padaṁ
+> sa ekadā tu mṛgayāṁ\
+> vicaran vijane vane\
+> yadṛcchayāśrama-padaṁ\
 > jamadagner upāviśat
 
 *saḥ*—él, Kārtavīryārjuna; *ekadā*—cierto día; *tu*—pero; *mṛgayām*—mientras cazaba; *vicaran*—paseando; *vijane*—solitario; *vane*—en un bosque; *yadṛcchayā*—sin ningún objetivo concreto; *āśrama-padam*—en la morada; *jamadagneḥ*—de Jamadagni Muni; *upāviśat*—entró.

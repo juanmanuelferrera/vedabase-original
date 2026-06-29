@@ -1,11 +1,11 @@
 ### SB 4.19.17
 
-> सोऽश्वं रूपं च तद्धित्वा तस्मा अन्तर्हितः स्वराट् ।
+> सोऽश्वं रूपं च तद्धित्वा तस्मा अन्तर्हितः स्वराट् ।\
 > वीरः स्वपशुमादाय पितुर्यज्ञमुपेयिवान् ॥१७॥
 
-> so 'śvaṁ rūpaṁ ca tad dhitvā
-> tasmā antarhitaḥ svarāṭ
-> vīraḥ sva-paśum ādāya
+> so 'śvaṁ rūpaṁ ca tad dhitvā\
+> tasmā antarhitaḥ svarāṭ\
+> vīraḥ sva-paśum ādāya\
 > pitur yajñam upeyivān
 
 *saḥ*—King Indra; *aśvam*—the horse; *rūpam*—the false dress of a saintly person; *ca*—also; *tat*—that; *hitvā*—giving up; *tasmai*—for him; *antarhitaḥ*—disappeared; *sva-rāṭ*—Indra; *vīraḥ*—the great hero; *sva-paśum*—his animal; *ādāya*—having taken; *pituḥ*—of his father; *yajñam*—to the sacrifice; *upeyivān*—he came back.

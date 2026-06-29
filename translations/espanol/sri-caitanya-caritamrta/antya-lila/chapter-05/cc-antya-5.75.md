@@ -1,9 +1,9 @@
 ### CC Antya 5.75
 
-> যে-সব শুনিলুঁ, কৃষ্ণ-রসের সাগর ।
+> যে-সব শুনিলুঁ, কৃষ্ণ-রসের সাগর ।\
 > ব্রহ্মাদি-দেবের এ সব না হয় গোচর ॥৭৫॥
 
-> ye-saba śuniluṅ, kṛṣṇa-rasera sāgara
+> ye-saba śuniluṅ, kṛṣṇa-rasera sāgara\
 > brahmādi-devera e saba nā haya gocara
 
 *ye-saba*—todo lo que; *śuniluṅ*—escuché; *kṛṣṇa-rasera*—del néctar del Señor Kṛṣṇa; *sāgara*—el océano; *brahmā-ādi-devera*—de los semidioses, comenzando por el Señor Brahmā; *e saba*—todo esto; *nā haya gocara*—no les es posible comprender.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.168
 
-> লাবণ্যামৃত-ধারায় তদুপরি স্নান ।
+> লাবণ্যামৃত-ধারায় তদুপরি স্নান ।\
 > নিজ-লজ্জা-শ্যাম-পট্টসাটি-পরিধান ॥১৬৮॥
 
-> lāvaṇyāmṛta-dhārāya tad-upari snāna
+> lāvaṇyāmṛta-dhārāya tad-upari snāna\
 > nija-lajjā-śyāma-paṭṭasāṭi-paridhāna
 
 *lāvaṇya-amṛta-dhārāya*—in the shower of the nectar of bodily luster; *tat-upari*—over and above that; *snāna*—the bath; *nija*—own; *lajjā*—shyness; *śyāma*—blackish; *paṭṭa*—silk; *sāṭi*—garments; *paridhāna*—wearing.

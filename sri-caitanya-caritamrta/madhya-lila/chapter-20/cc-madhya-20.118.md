@@ -1,9 +1,9 @@
 ### CC Madhya 20.118
 
-> কভু স্বর্গে উঠায়, কভু নরকে ডুবায় ।
+> কভু স্বর্গে উঠায়, কভু নরকে ডুবায় ।\
 > দণ্ড্যজনে রাজা যেন নদীতে চুবায় ॥১১৮॥
 
-> kabhu svarge uṭhāya, kabhu narake ḍubāya
+> kabhu svarge uṭhāya, kabhu narake ḍubāya\
 > daṇḍya-jane rājā yena nadīte cubāya
 
 *kabhu*—sometimes; *svarge*—to higher planetary systems; *uṭhāya*—he rises; *kabhu*—sometimes; *narake*—in hellish conditions of life; *ḍubāya*—he is drowned; *daṇḍya-jane*—a criminal; *rājā*—a king; *yena*—as; *nadīte*—in the river; *cubāya*—dunks.

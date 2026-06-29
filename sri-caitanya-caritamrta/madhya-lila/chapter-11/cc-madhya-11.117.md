@@ -1,9 +1,9 @@
 ### CC Madhya 11.117
 
-> যাঁরে কৃপা করি’ করেন হৃদয়ে প্রেরণ ।
+> যাঁরে কৃপা করি’ করেন হৃদয়ে প্রেরণ ।\
 > কৃষ্ণাশ্রয় হয়, ছাড়ে বেদ-লোক-ধর্ম ॥১১৭॥
 
-> yāṅre kṛpā kari' karena hṛdaye preraṇa
+> yāṅre kṛpā kari' karena hṛdaye preraṇa\
 > kṛṣṇāśraya haya, chāḍe veda-loka-dharma
 
 *yāṅre*—in whomever; *kṛpā*—mercy; *kari'*—bestowing; *karena*—does; *hṛdaye*—in the heart; *preraṇa*—inspiration; *kṛṣṇa-āśraya*—shelter of Lord Kṛṣṇa; *haya*—there is; *chāḍe*—he gives up; *veda*—Vedic principles; *loka-dharma*—social etiquette.

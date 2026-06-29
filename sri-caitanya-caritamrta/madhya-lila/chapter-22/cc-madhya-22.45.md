@@ -1,9 +1,9 @@
 ### CC Madhya 22.45
 
-> কোন ভাগ্যে কারো সংসার ক্ষয়োন্মুখ হয় ।
+> কোন ভাগ্যে কারো সংসার ক্ষয়োন্মুখ হয় ।\
 > সাধুসঙ্গে তবে কৃষ্ণে রতি উপজয় ॥৪৫॥
 
-> kona bhāgye kāro saṁsāra kṣayonmukha haya
+> kona bhāgye kāro saṁsāra kṣayonmukha haya\
 > sādhu-saṅge tabe kṛṣṇe rati upajaya
 
 *kona bhāgye*—by fortune; *kāro*—of someone; *saṁsāra*—conditioned life; *kṣaya-unmukha*—on the point of destruction; *haya*—is; *sādhu-saṅge*—by association with devotees; *tabe*—then; *kṛṣṇe*—to Lord Kṛṣṇa; *rati*—attraction; *upa-jaya*—awakens.

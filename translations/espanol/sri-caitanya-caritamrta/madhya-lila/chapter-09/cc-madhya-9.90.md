@@ -1,9 +1,9 @@
 ### CC Madhya 9.90
 
-> কৃষ্ণনাম বিনা কেহ নাহি কহে আর ৷
+> কৃষ্ণনাম বিনা কেহ নাহি কহে আর ৷\
 > সবে কৃষ্ণভক্ত হৈল, — লোকে চমৎকার ৷৷ ৯০ ৷৷ ॥৯০॥
 
-> kṛṣṇa-nāma vinā keha nāhi kahe āra
+> kṛṣṇa-nāma vinā keha nāhi kahe āra\
 > sabe kṛṣṇa-bhakta haila,--loke camatkāra
 
 *kṛṣṇa-nāma vinā*—sin cantar el mahā-mantra Hare Kṛṣṇa; *keha*—nadie; *nāhi*—no; *kahe*—dice; *āra*—nada más; *sabe*—todos ellos; *kṛṣṇa-bhakta*—devotos del Señor Kṛṣṇa; *haila*—se volvieron; *loke*—las personas; *camatkāra*—asombradas.

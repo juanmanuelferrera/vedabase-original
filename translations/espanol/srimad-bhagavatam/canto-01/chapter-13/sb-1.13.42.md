@@ -1,11 +1,11 @@
 ### SB 1.13.42
 
-> यथा गावो नसि प्रोतास्तन्त्यां बद्धाश्च दामभिः ।
+> यथा गावो नसि प्रोतास्तन्त्यां बद्धाश्च दामभिः ।\
 > वाक्तन्त्यां नामभिर्बद्धा वहन्ति बलिमीशितुः ॥४२॥
 
-> yathā gāvo nasi protās
-> tantyāṁ baddhāś ca dāmabhiḥ
-> vāk-tantyāṁ nāmabhir baddhā
+> yathā gāvo nasi protās\
+> tantyāṁ baddhāś ca dāmabhiḥ\
+> vāk-tantyāṁ nāmabhir baddhā\
 > vahanti balim īśituḥ
 
 *yathā*—tanto como; *gāvaḥ*—vaca; *nasi*—por la nariz; *protāḥ*—atada; *tantyām*—por la soga; *baddhāḥ*—sujeto; *ca*—también; *dāmabhiḥ*—mediante sogas; *vāk-tantyām*—en la red de los himnos védicos; *nāmabhiḥ*—mediante nomenclaturas; *baddhāḥ*—condicionados; *vahanti*—llevan a cabo; *balim*—órdenes; *īśituḥ*—para ser controlados por el Señor Supremo.

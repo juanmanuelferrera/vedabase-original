@@ -1,11 +1,11 @@
 ### SB 2.10.22
 
-> बोध्यमानस्य ऋषिभिरात्मनस्तज्जिघृक्षतः ।
+> बोध्यमानस्य ऋषिभिरात्मनस्तज्जिघृक्षतः ।\
 > कर्णौ च निरभिद्येतां दिशः श्रोत्रं गुणग्रहः ॥२२॥
 
-> bodhyamānasya ṛṣibhir
-> ātmanas taj jighṛkṣataḥ
-> karṇau ca nirabhidyetāṁ
+> bodhyamānasya ṛṣibhir\
+> ātmanas taj jighṛkṣataḥ\
+> karṇau ca nirabhidyetāṁ\
 > diśaḥ śrotraṁ guṇa-grahaḥ
 
 *bodhyamānasya*—desiring to understand; *ṛṣibhiḥ*—by the authorities; *ātmanaḥ*—of the Supreme Being; *tat*—that; *jighṛkṣataḥ*—when He desired to take up; *karṇau*—the ears; *ca*—also; *nirabhidyetām*—became manifested; *diśaḥ*—the direction or the god of air; *śrotram*—the power of hearing; *guṇa-grahaḥ*—and the objects of hearing.

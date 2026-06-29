@@ -1,9 +1,9 @@
 ### CC Madhya 4.104
 
-> সেই দুই শিষ্য করি’ সেবা সমর্পিল ।
+> সেই দুই শিষ্য করি’ সেবা সমর্পিল ।\
 > রাজ-সেবা হয়, — পুরীর আনন্দ বাড়িল ॥১০৪॥
 
-> sei dui śiṣya kari' sevā samarpila
+> sei dui śiṣya kari' sevā samarpila\
 > rāja-sevā haya,—purīra ānanda bāḍila
 
 *seidui*—these two persons; *śiṣya kari'*—initiating; *sevā*—with the service; *samarpila*—entrusted; *rāja-sevā*—gorgeous performance of service; *haya*—is; *purīra*—of Mādhavendra Purī; *ānanda*—pleasure; *bāḍila*—increased.

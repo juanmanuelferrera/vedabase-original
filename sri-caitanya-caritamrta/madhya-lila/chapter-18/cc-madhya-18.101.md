@@ -1,9 +1,9 @@
 ### CC Madhya 18.101
 
-> কৃষ্ণ কেনে দরশন দিবে কলিকালে ?
+> কৃষ্ণ কেনে দরশন দিবে কলিকালে ?\
 > নিজ-ভ্রমে মূর্খ লোক করে কোলাহলে ॥১০১॥
 
-> kṛṣṇa kene daraśana dibe kali-kāle?
+> kṛṣṇa kene daraśana dibe kali-kāle?\
 > nija-bhrame mūrkha-loka kare kolāhale
 
 *kṛṣṇa*—Lord Kṛṣṇa; *kene*—why; *daraśana*—interview; *dibe*—would give; *kali-kāle*—in this Age of Kali; *nija-bhrame*—by their own mistake; *mūrkha-loka*—foolish persons; *kare kolāhale*—make a chaotic tumult.

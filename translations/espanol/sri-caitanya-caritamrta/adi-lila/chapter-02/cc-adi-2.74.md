@@ -1,11 +1,11 @@
 ### CC Adi 2.74
 
-> অনুবাদমনুক্ত্বা তু ন বিধেয়মুদীরয়েৎ ।
+> অনুবাদমনুক্ত্বা তু ন বিধেয়মুদীরয়েৎ ।\
 > ন হ্যলব্ধাস্পদং কিঞ্চিৎ কুত্রচিৎ প্রতিতিষ্ঠতি ॥৭৪॥
 
-> anuvādam anuktvā tu
-> na vidheyam udīrayet
-> na hy alabdhāspadaṁ kiñcit
+> anuvādam anuktvā tu\
+> na vidheyam udīrayet\
+> na hy alabdhāspadaṁ kiñcit\
 > kutracit pratitiṣṭhati
 
 *anuvādam*—el sujeto; *anuktvā*—sin enunciar; *tu*—pero; *na*—no; *vidheyam*—el predicado; *udīrayet*—se debería enunciar; *na*—no; *hi*—ciertamente; *alabdha-āspadam*—sin una posición segura; *kiñcit*—algo; *kutracit*—en parte alguna; *pratitiṣṭhati*—se sostiene.

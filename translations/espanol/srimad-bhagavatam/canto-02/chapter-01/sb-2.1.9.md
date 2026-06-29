@@ -1,11 +1,11 @@
 ### SB 2.1.9
 
-> परिनिष्ठितोऽपि नैर्गुण्य उत्तमश्लोकलीलया ।
+> परिनिष्ठितोऽपि नैर्गुण्य उत्तमश्लोकलीलया ।\
 > गृहीतचेता राजर्षे आख्यानं यदधीतवान् ॥९॥
 
-> pariniṣṭhito 'pi nairguṇya
-> uttama-śloka-līlayā
-> gṛhīta-cetā rājarṣe
+> pariniṣṭhito 'pi nairguṇya\
+> uttama-śloka-līlayā\
+> gṛhīta-cetā rājarṣe\
 > ākhyānaṁ yad adhītavān
 
 *pariniṣṭhitaḥ*—plenamente realizado; *api*—a pesar de; *nairguṇye*—en la trascendencia; *uttama*—iluminado; *śloka*—verso; *līlayā*—por los pasatiempos; *gṛhīta*—siendo atraída; *cetāḥ*—la atención; *rājarṣe*—¡oh, santo rey!; *ākhyānam*—exposición; *yat*—que; *adhītavān*—he estudiado.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.348
 
-> মালা-প্রসাদ পাঞা প্রভু সুস্থির হইলা ।
+> মালা-প্রসাদ পাঞা প্রভু সুস্থির হইলা ।\
 > জগন্নাথের সেবক সব আনন্দে মিলিলা ॥৩৪৮॥
 
-> mālā-prasāda pāñā prabhu susthira ha-ilā
+> mālā-prasāda pāñā prabhu susthira ha-ilā\
 > jagannāthera sevaka saba ānande mililā
 
 *mālā-prasāda*—the garland and *prasāda*; *pāñā*—getting; *prabhu*—Śrī Caitanya Mahāprabhu; *su-sthira ha-ilā*—became patient; *jagannāthera*—of Lord Jagannātha; *sevaka*—servants; *saba*—all; *ānandemililā*—met Him in great pleasure.

@@ -1,9 +1,9 @@
 ### CC Antya 4.213
 
-> এইমতে সনাতন বৃন্দাবনে আইলা ।
+> এইমতে সনাতন বৃন্দাবনে আইলা ।\
 > পাছে আসি’ রূপ-গোসাঞি তাঁহারে মিলিলা ॥২১৩॥
 
-> ei-mate sanātana vṛndāvane āilā
+> ei-mate sanātana vṛndāvane āilā\
 > pāche āsi' rūpa-gosāñi tāṅhāre mililā
 
 *ei-mate*—de esta manera; *sanātana*—Sanātana Gosvāmī; *vṛndāvane āilā*—llegó a Vṛndāvana; *pāche āsi'*—viniendo después; *rūpa-gosāñi*—Śrīla Rūpa Gosvāmī; *tāṅhāre*—a él; *mililā*—encontró.

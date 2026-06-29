@@ -1,9 +1,9 @@
 ### CC Madhya 4.12
 
-> পথে বড় বড় দানী বিঘ্ন নাহি করে ।
+> পথে বড় বড় দানী বিঘ্ন নাহি করে ।\
 > তা’ সবারে কৃপা করি’ আইলা রেমুণারে ॥১২॥
 
-> pathe baḍa baḍa dānī vighna nāhi kare
+> pathe baḍa baḍa dānī vighna nāhi kare\
 > tā' sabāre kṛpā kari' āilā remuṇāre
 
 *pathe*—on the way; *baḍa baḍa*—big, big; *dānī*—toll or tax collector; *vighna*—hindrances; *nāhi*—not; *kare*—make; *tā' sabāre*—to all of them; *kṛpā kari'*—showing mercy; *āilā*—reached; *remuṇāre*—the village known as Remuṇā.

@@ -1,11 +1,11 @@
 ### SB 2.5.4
 
-> यद्विज्ञानो यदाधारो यत्परस्त्वं यदात्मकः ।
+> यद्विज्ञानो यदाधारो यत्परस्त्वं यदात्मकः ।\
 > एकः सृजसि भूतानि भूतैरेवात्ममायया ॥४॥
 
-> yad-vijñāno yad-ādhāro
-> yat-paras tvaṁ yad-ātmakaḥ
-> ekaḥ sṛjasi bhūtāni
+> yad-vijñāno yad-ādhāro\
+> yat-paras tvaṁ yad-ātmakaḥ\
+> ekaḥ sṛjasi bhūtāni\
 > bhūtair evātma-māyayā
 
 *yad vijñānaḥ*—la fuente de conocimiento; *yad-ādhāraḥ*—bajo la protección de quién; *yat-paraḥ*—bajo la subordinación de quién; *tvam*—tú; *yat-ātmakaḥ*—con qué función; *ekaḥ*—solo; *sṛjasi*—tú estás creando; *bhūtāni*—las entidades vivientes; *bhūtaiḥ*—con la ayuda de los elementos materiales; *eva*—ciertamente; *ātma*—propia; *māyayā*—mediante la potencia.

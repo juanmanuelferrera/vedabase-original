@@ -1,9 +1,9 @@
 ### CC Madhya 18.166
 
-> তবে সেই পাঠান চারি-জনেরে বাঁধিল ।
+> তবে সেই পাঠান চারি-জনেরে বাঁধিল ।\
 > কাটিতে চাহে, গৌড়িয়া সব কাঁপিতে লাগিল ॥১৬৬॥
 
-> tabe sei pāṭhāna cāri-janere bāṅdhila
+> tabe sei pāṭhāna cāri-janere bāṅdhila\
 > kāṭite cāhe, gauḍiyā saba kāṅpite lāgila
 
 *tabe*—entonces; *sei pāṭhāna*—los soldados Pāṭhānas; *cāri-janere*—a las cuatro personas; *bāṅdhila*—arrestaron; *kāṭite cāhe*—querían matarlos; *gauḍiyā*—los bengalíes; *saba*—todos; *kāṅpite lāgila*—comenzaron a temblar.

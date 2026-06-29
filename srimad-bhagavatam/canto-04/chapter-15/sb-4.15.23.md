@@ -1,11 +1,11 @@
 ### SB 4.15.23
 
-> तस्मात्परोक्षेऽस्मदुपश्रुतान्यलं करिष्यथ स्तोत्रमपीच्यवाचः ।
+> तस्मात्परोक्षेऽस्मदुपश्रुतान्यलं करिष्यथ स्तोत्रमपीच्यवाचः ।\
 > सत्युत्तमश्लोकगुणानुवादे जुगुप्सितं न स्तवयन्ति सभ्याः ॥२३॥
 
-> tasmāt parokṣe 'smad-upaśrutāny alaṁ
-> kariṣyatha stotram apīcya-vācaḥ
-> saty uttamaśloka-guṇānuvāde
+> tasmāt parokṣe 'smad-upaśrutāny alaṁ\
+> kariṣyatha stotram apīcya-vācaḥ\
+> saty uttamaśloka-guṇānuvāde\
 > jugupsitaṁ na stavayanti sabhyāḥ
 
 *tasmāt*—therefore; *parokṣe*—in some future time; *asmat*—my; *upaśrutāni*—about the qualities spoken of; *alam*—sufficiently; *kariṣyatha*—you will be able to offer; *stotram*—prayers; *apīcya-vācaḥ*—O gentle reciters; *sati*—being the proper engagement; *uttama-śloka*—of the Supreme Personality of Godhead; *guṇa*—of the qualities; *anuvāde*—discussion; *jugupsitam*—to an abominable person; *na*—never; *stavayanti*—offer prayers; *sabhyāḥ*—persons who are gentle.

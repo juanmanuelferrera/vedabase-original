@@ -1,9 +1,9 @@
 ### CC Madhya 1.32
 
-> ভক্তি প্রচারিয়া সর্বতীর্থ প্রকাশিল ।
+> ভক্তি প্রচারিয়া সর্বতীর্থ প্রকাশিল ।\
 > মদনগোপাল-গোবিন্দের সেবা প্রচারিল ॥৩২॥
 
-> bhakti pracāriyā sarva-tīrtha prakāśila
+> bhakti pracāriyā sarva-tīrtha prakāśila\
 > madana-gopāla-govindera sevā pracārila
 
 *bhakti pracāriyā*—broadcasting devotional service; *sarva-tīrtha*—all the places of pilgrimage; *prakāśila*—discovered; *madana-gopāla*—of Śrī Rādhā-Madana-mohana; *govindera*—of Śrī Rādhā-Govindajī; *sevā*—the service; *pracārila*—introduced.

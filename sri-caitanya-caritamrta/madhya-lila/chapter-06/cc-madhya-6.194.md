@@ -1,9 +1,9 @@
 ### CC Madhya 6.194
 
-> আত্মারামাশ্চ-শ্লোকে ‘একাদশ’ পদ হয় ।
+> আত্মারামাশ্চ-শ্লোকে ‘একাদশ’ পদ হয় ।\
 > পৃথক্ পৃথক্ কৈল পদের অর্থ নিশ্চয় ॥১৯৪॥
 
-> ātmārāmāś ca-śloke 'ekādaśa' pada haya
+> ātmārāmāś ca-śloke 'ekādaśa' pada haya\
 > pṛthak pṛthak kaila padera artha niścaya
 
 *ātmārāmāś ca*—known as such; *śloke*—in the verse; *ekādaśa*—eleven; *pada*—words; *haya*—there are; *pṛthak pṛthak*—separately one after another; *kaila*—made; *padera*—of the words; *artha*—the meaning; *niścaya*—certainty.

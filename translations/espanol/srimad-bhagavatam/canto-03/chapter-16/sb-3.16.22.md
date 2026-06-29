@@ -1,13 +1,13 @@
 ### SB 3.16.22
 
-> धर्मस्य ते भगवतस्त्रियुग त्रिभिः स्वैः
-> पद्भिश्चराचरमिदं द्विजदेवतार्थम् ।
-> नूनं भृतं तदभिघाति रजस्तमश्च
+> धर्मस्य ते भगवतस्त्रियुग त्रिभिः स्वैः\
+> पद्भिश्चराचरमिदं द्विजदेवतार्थम् ।\
+> नूनं भृतं तदभिघाति रजस्तमश्च\
 > सत्त्वेन नो वरदया तनुवा निरस्य ॥२२॥
 
-> dharmasya te bhagavatas tri-yuga tribhiḥ svaiḥ
-> padbhiś carācaram idaṁ dvija-devatārtham
-> nūnaṁ bhṛtaṁ tad-abhighāti rajas tamaś ca
+> dharmasya te bhagavatas tri-yuga tribhiḥ svaiḥ\
+> padbhiś carācaram idaṁ dvija-devatārtham\
+> nūnaṁ bhṛtaṁ tad-abhighāti rajas tamaś ca\
 > sattvena no varadayā tanuvā nirasya
 
 *dharmasya*—de la personificación de toda religión; *te*—de Ti; *bhagavataḥ*—de la Suprema Personalidad de Dios; *tri-yuga*—Tú, que Te manifiestas en los tres milenios; *tribhiḥ*—por tres; *svaiḥ*—Tus propios; *padbhiḥ*—pies; *cara-acaram*—animados e inanimados; *idam*—este universo; *dvija*—los nacidos dos veces; *devatā*—los semidioses; *artham*—para el bien de; *nūnam*—sin embargo; *bhṛtam*—protegidos; *tat*—esos pies; *abhighāti*—destruyendo; *rajaḥ*—la modalidad de la pasión; *tamaḥ*—la modalidad de la ignorancia; *ca*—y; *sattvena*—de la bondad pura; *naḥ*—a nosotros; *vara-dayā*—otorgando toda bendición; *tanuvā*—por Tu forma trascendental; *nirasya*—apartando.

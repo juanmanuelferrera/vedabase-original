@@ -1,9 +1,9 @@
 ### CC Madhya 25.208
 
-> মাসমাত্র রূপ-গোসাঞি রহিলা বৃন্দাবনে ।
+> মাসমাত্র রূপ-গোসাঞি রহিলা বৃন্দাবনে ।\
 > শীঘ্র চলি’ আইলা সনাতনানুসন্ধানে ॥২০৮॥
 
-> māsa-mātra rūpa-gosāñi rahilā vṛndāvane
+> māsa-mātra rūpa-gosāñi rahilā vṛndāvane\
 > śīghra cali' āilā sanātanānusandhāne
 
 *māsa-mātra*—solo un mes; *rūpa-gosāñi*—Rūpa Gosāñi; *rahilā*—permaneció; *vṛndāvane*—en Vṛndāvana; *śīghra*—muy pronto; *cali' āilā*—regresó; *sanātana-anu-sandhāne*—en busca de Sanātana Gosvāmī.

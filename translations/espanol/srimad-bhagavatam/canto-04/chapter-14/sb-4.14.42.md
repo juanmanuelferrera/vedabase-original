@@ -1,11 +1,11 @@
 ### SB 4.14.42
 
-> नाङ्गस्य वंशो राजर्षेरेष संस्थातुमर्हति ।
+> नाङ्गस्य वंशो राजर्षेरेष संस्थातुमर्हति ।\
 > अमोघवीर्या हि नृपा वंशेऽस्मिन्केशवाश्रयाः ॥४२॥
 
-> nāṅgasya vaṁśo rājarṣer
-> eṣa saṁsthātum arhati
-> amogha-vīryā hi nṛpā
+> nāṅgasya vaṁśo rājarṣer\
+> eṣa saṁsthātum arhati\
+> amogha-vīryā hi nṛpā\
 > vaṁśe 'smin keśavāśrayāḥ
 
 *na*—no; *aṅgasya*—del rey Aṅga; *vaṁśaḥ*—linaje familiar; *rāja-ṛṣeḥ*—del santo rey; *eṣaḥ*—esa; *saṁsthātum*—interrumpirse; *arhati*—debía; *amogha*—sin pecado, poderoso; *vīryāḥ*—su semen; *hi*—debido a; *nṛpāḥ*—reyes; *vaṁśe*—en la familia; *asmin*—esta; *keśava*—de la Suprema Personalidad de Dios; *āśrayāḥ*—bajo el refugio.

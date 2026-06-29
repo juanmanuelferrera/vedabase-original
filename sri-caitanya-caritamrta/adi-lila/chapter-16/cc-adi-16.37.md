@@ -1,9 +1,9 @@
 ### CC Adi 16.37
 
-> শুনিয়া করিল প্রভু বহুত সৎকার ।
+> শুনিয়া করিল প্রভু বহুত সৎকার ।\
 > তোমা সম পৃথিবীতে কবি নাহি আর ॥৩৭॥
 
-> śuniyā karila prabhu bahuta satkāra
+> śuniyā karila prabhu bahuta satkāra\
 > tomā sama pṛthivīte kavi nāhi āra
 
 *śuniyā*—hearing this; *karila*—did; *prabhu*—the Lord; *bahuta*—very much; *satkāra*—high praise; *tomā*—you; *sama*—like; *pṛthivīte*—in the world; *kavi*—poet; *nāhi*—there is not; *āra*—anyone else.

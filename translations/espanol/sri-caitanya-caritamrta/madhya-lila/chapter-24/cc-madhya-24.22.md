@@ -1,9 +1,9 @@
 ### CC Madhya 24.22
 
-> বিভুরূপে ব্যাপে, শক্ত্যে ধারণ-পোষণ ।
+> বিভুরূপে ব্যাপে, শক্ত্যে ধারণ-পোষণ ।\
 > মাধুর্যশক্ত্যে গোলোক, ঐশ্বর্যে পরব্যোম ॥২২॥
 
-> vibhu-rūpe vyāpe, śaktye dhāraṇa-poṣaṇa
+> vibhu-rūpe vyāpe, śaktye dhāraṇa-poṣaṇa\
 > mādhurya-śaktye goloka, aiśvarye paravyoma
 
 *vibhu-rūpe*—en Su rasgo omnipresente; *vyāpe*—Se expande; *śaktye*—por Su potencia; *dhāraṇa-poṣaṇa*—manteniendo y nutriendo; *mādhurya-śaktye*—por Su potencia de amor conyugal; *goloka*—el sistema planetario Goloka Vṛndāvana; *aiśvarye*—y por la opulencia; *para-vyoma*—el mundo espiritual.

@@ -1,11 +1,11 @@
 ### SB 3.25.17
 
-> तदा पुरुष आत्मानं केवलं प्रकृतेः परम् ।
+> तदा पुरुष आत्मानं केवलं प्रकृतेः परम् ।\
 > निरन्तरं स्वयंज्योतिरणिमानमखण्डितम् ॥१७॥
 
-> tadā puruṣa ātmānaṁ
-> kevalaṁ prakṛteḥ param
-> nirantaraṁ svayaṁ-jyotir
+> tadā puruṣa ātmānaṁ\
+> kevalaṁ prakṛteḥ param\
+> nirantaraṁ svayaṁ-jyotir\
 > aṇimānam akhaṇḍitam
 
 *tadā*—entonces; *puruṣaḥ*—el alma individual; *ātmānam*—a sí misma; *kevalam*—pura; *prakṛteḥ param*—trascendental a la existencia material; *nirantaram*—no diferente; *svayam-jyotiḥ*—con refulgencia propia; *aṇimānam*—infinitesimal; *akhaṇḍitam*—no fragmentada.

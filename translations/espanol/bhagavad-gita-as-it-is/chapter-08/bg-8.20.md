@@ -1,11 +1,11 @@
 ### Bg 8.20
 
-> परस्तस्मात्तु भावोऽन्योऽव्यक्तोऽव्यक्तात्सनातनः ।
+> परस्तस्मात्तु भावोऽन्योऽव्यक्तोऽव्यक्तात्सनातनः ।\
 > यः स सर्वेषु भूतेषु नश्यत्सु न विनश्यति ॥२०॥
 
-> paras tasmāt tu bhāvo'nyo
-> 'vyakto'vyaktāt sanātanaḥ
-> yaḥ sa sarveṣu bhūteṣu
+> paras tasmāt tu bhāvo'nyo\
+> 'vyakto'vyaktāt sanātanaḥ\
+> yaḥ sa sarveṣu bhūteṣu\
 > naśyatsu na vinaśyati
 
 *paraḥ*—trascendental; *tasmāt*—de eso; *tu*—pero; *bhāvaḥ*—naturaleza; *anyaḥ*—otra; *avyaktaḥ*—no manifiesta; *avyaktāt*—de lo no manifiesto; *sanātanaḥ*—eterna; *yaḥ*—aquello; *saḥ*—el cual; *sarveṣu*—toda; *bhūteṣu*—manifestación; *naśyatsu*—siendo aniquilada; *na*—nunca; *vinaśyati*—aniquilada.

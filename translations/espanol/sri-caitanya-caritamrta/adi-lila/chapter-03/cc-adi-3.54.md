@@ -1,9 +1,9 @@
 ### CC Adi 3.54
 
-> ‘কৃষ্ণ’ এই দুই বর্ণ সদা যাঁর মুখে ।
+> ‘কৃষ্ণ’ এই দুই বর্ণ সদা যাঁর মুখে ।\
 > অথবা, কৃষ্ণকে তিহোঁ বর্ণে নিজ সুখে ॥৫৪॥
 
-> 'kṛṣṇa' ei dui varṇa sadā yāṅra mukhe
+> 'kṛṣṇa' ei dui varṇa sadā yāṅra mukhe\
 > athavā, kṛṣṇake tiṅho varṇe nija sukhe
 
 *kṛṣṇa*—kṛṣ-ṇa; *ei*—estas; *dui*—dos; *varṇa*—sílabas; *sadā*—siempre; *yāṅra*—de quien; *mukhe*—en la boca; *athavā*—o bien; *kṛṣṇake*—al Señor Kṛṣṇa; *tiṅho*—Él; *varṇe*—describe; *nija*—Su propia; *sukhe*—en felicidad.

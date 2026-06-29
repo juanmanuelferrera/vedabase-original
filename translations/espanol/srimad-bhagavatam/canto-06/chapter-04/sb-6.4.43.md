@@ -1,13 +1,13 @@
 ### SB 6.4.43
 
-> श्रीभगवानुवाच
-> प्राचेतस महाभाग संसिद्धस्तपसा भवान
+> श्रीभगवानुवाच\
+> प्राचेतस महाभाग संसिद्धस्तपसा भवान\
 > यच्छ्रद्धया मत्परया मयि भावं परं गतः ॥४३॥
 
-> śrī-bhagavān uvāca
-> prācetasa mahā-bhāga
-> saṁsiddhas tapasā bhavān
-> yac chraddhayā mat-parayā
+> śrī-bhagavān uvāca\
+> prācetasa mahā-bhāga\
+> saṁsiddhas tapasā bhavān\
+> yac chraddhayā mat-parayā\
 > mayi bhāvaṁ paraṁ gataḥ
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *prācetasa*—¡oh, mi querido Prācetasa!; *mahā-bhāga*—¡oh, tú, que eres tan afortunado!; *saṁsiddhaḥ*—perfeccionado; *tapasā*—por tus austeridades; *bhavān*—Tu Gracia; *yat*—debido a; *śraddhayā*—con gran fe; *mat-parayā*—cuyo objeto soy Yo; *mayi*—en Mí; *bhāvam*—éxtasis; *param*—supremo; *gataḥ*—alcanzado.

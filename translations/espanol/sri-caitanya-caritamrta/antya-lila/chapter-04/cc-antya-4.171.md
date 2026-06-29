@@ -1,9 +1,9 @@
 ### CC Antya 4.171
 
-> যদ্যপি কাহার ‘মমতা’ বহুজনে হয় ।
+> যদ্যপি কাহার ‘মমতা’ বহুজনে হয় ।\
 > প্রীতি-স্বভাবে কাহাতে কোন ভাবোদয় ॥১৭১॥
 
-> yadyapi kāhāra 'mamatā' bahu-jane haya
+> yadyapi kāhāra 'mamatā' bahu-jane haya\
 > prīti-svabhāve kāhāte kona bhāvodaya
 
 *yadyapi*—aunque; *kāhāra*—de alguien; *mamatā*—afecto; *bahu-jane*—hacia muchas personas; *haya*—hay; *prīti-svabhāve*—según el afecto de uno; *kāhāte*—en alguien; *kona*—algún; *bhāva-udaya*—despertar del amor extático.

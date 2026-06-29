@@ -1,11 +1,11 @@
 ### SB 3.7.20
 
-> दुरापा ह्यल्पतपसः सेवा वैकुण्ठवर्त्मसु ।
+> दुरापा ह्यल्पतपसः सेवा वैकुण्ठवर्त्मसु ।\
 > यत्रोपगीयते नित्यं देवदेवो जनार्दनः ॥२०॥
 
-> durāpā hy alpa-tapasaḥ
-> sevā vaikuṇṭha-vartmasu
-> yatropagīyate nityaṁ
+> durāpā hy alpa-tapasaḥ\
+> sevā vaikuṇṭha-vartmasu\
+> yatropagīyate nityaṁ\
 > deva-devo janārdanaḥ
 
 *durāpā*—rarely obtainable; *hi*—certainly; *alpa-tapasaḥ*—of one whose austerity is meager; *sevā*—service; *vaikuṇṭha*—the transcendental kingdom of God; *vartmasu*—on the path of; *yatra*—wherein; *upagīyate*—is glorified; *nityam*—always; *deva*—of the demigods; *devaḥ*—the Lord; *jana-ardanaḥ*—the controller of the living entities.

@@ -1,9 +1,9 @@
 ### CC Antya 19.8
 
-> যে-দিনে তোমার ইচ্ছা করাইতে ভোজন ।
+> যে-দিনে তোমার ইচ্ছা করাইতে ভোজন ।\
 > সে-দিনে আসি’ অবশ্য করিয়ে ভক্ষণ ॥৮॥
 
-> ye-dine tomāra icchā karāite bhojana
+> ye-dine tomāra icchā karāite bhojana\
 > se-dine āsi' avaśya kariye bhakṣaṇa
 
 *ye-dine*—any day; *tomāra*—your; *icchā*—desire; *karāite bhojana*—to feed Me; *se-dine*—on that day; *āsi'*—coming; *avaśya*—certainly; *kariye bhakṣaṇa*—I eat.

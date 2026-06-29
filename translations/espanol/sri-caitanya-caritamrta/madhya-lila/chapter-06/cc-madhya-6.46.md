@@ -1,9 +1,9 @@
 ### CC Madhya 6.46
 
-> এত বলি’ পীঠা-পানা সব খাওয়াইলা ।
+> এত বলি’ পীঠা-পানা সব খাওয়াইলা ।\
 > ভিক্ষা করাঞা আচমন করাইলা ॥৪৬॥
 
-> eta bali' pīṭhā-pānā saba khāoyāilā
+> eta bali' pīṭhā-pānā saba khāoyāilā\
 > bhikṣā karāñā ācamana karāilā
 
 *eta bali'*—diciendo esto; *pīṭhā-pānā*—muchas clases de pasteles y preparaciones de leche condensada; *saba*—todos; *khāoyāilā*—hizo comer; *bhikṣā karāñā*—después de ofrecer prasādam; *ācamana karāilā*—les hizo lavarse las manos, los pies y la boca.

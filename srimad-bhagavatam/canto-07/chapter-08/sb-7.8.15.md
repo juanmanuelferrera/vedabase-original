@@ -1,11 +1,11 @@
 ### SB 7.8.15
 
-> एवं दुरुक्तैर्मुहुरर्दयन्रुषा सुतं महाभागवतं महासुरः
+> एवं दुरुक्तैर्मुहुरर्दयन्रुषा सुतं महाभागवतं महासुरः\
 > खड्गं प्रगृह्योत्पतितो वरासनात्स्तम्भं तताडातिबलः स्वमुष्टिना ॥१५॥
 
-> tadaiva tasmin ninado 'tibhīṣaṇo
-> babhūva yenāṇḍa-kaṭāham asphuṭat
-> yaṁ vai sva-dhiṣṇyopagataṁ tv ajādayaḥ
+> tadaiva tasmin ninado 'tibhīṣaṇo\
+> babhūva yenāṇḍa-kaṭāham asphuṭat\
+> yaṁ vai sva-dhiṣṇyopagataṁ tv ajādayaḥ\
 > śrutvā sva-dhāmātyayam aṅga menire
 
 *tadā*—at that time; *eva*—just; *tasmin*—within (the pillar); *ninadaḥ*—a sound; *ati-bhīṣaṇaḥ*—very fearful; *babhūva*—there was; *yena*—by which; *aṇḍa-kaṭāham*—the covering of the universe; *asphuṭat*—appeared to crack; *yam*—which; *vai*—indeed; *sva-dhiṣṇya-upagatam*—reaching their respective abodes; *tu*—but; *aja-ādayaḥ*—the demigods, headed by Lord Brahmā; *śrutvā*—hearing; *sva-dhāma-atyayam*—the destruction of their abodes; *aṅga*—my dear Yudhiṣṭhira; *menire*—thought.

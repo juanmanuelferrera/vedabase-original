@@ -1,9 +1,9 @@
 ### CC Antya 4.151
 
-> “হিত লাগি’ আইনু মুঞি, হৈল বিপরীত  ।
+> “হিত লাগি’ আইনু মুঞি, হৈল বিপরীত  ।\
 > সেবাযোগ্য নহি, অপরাধ করোঁ নিতি নিতি ॥১৫১॥
 
-> "hita lāgi' āinu muñi, haila viparīta
+> "hita lāgi' āinu muñi, haila viparīta\
 > sevā-yogya nahi, aparādha karoṅ niti niti
 
 *hita lāgi'*—para beneficio; *āinu muñi*—vine; *haila viparīta*—ha resultado ser justo lo contrario; *sevā-yogya nahi*—no soy apto para prestar servicio; *aparādha karoṅ*—cometo ofensas; *niti niti*—día tras día.

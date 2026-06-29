@@ -1,9 +1,9 @@
 ### CC Madhya 2.42
 
-> কই অবরহিঅং পেম্মং ণ হি হোই মাণুসে লোএ ।
+> কই অবরহিঅং পেম্মং ণ হি হোই মাণুসে লোএ ।\
 > জই হোই কস্স বিরহে হোন্তম্মি কো জীঅই ॥৪২॥
 
-> ka-i-avarahi-aṁ pemmaṁ ṇa hi hoi māṇuse loe
+> ka-i-avarahi-aṁ pemmaṁ ṇa hi hoi māṇuse loe\
 > ja-i hoi kassa virahe hontammi ko jīa-i
 
 *ka-i-avarahi-am*—sin ninguna propensión a engañar, sin motivo alguno relativo a los cuatro principios de la existencia material (a saber, religiosidad, desarrollo económico, complacencia de los sentidos y liberación); *pemmam*—amor por Dios; *ṇa*—nunca; *hi*—ciertamente; *hoi*—hay; *māṇuse*—en la sociedad humana; *loe*—en este mundo; *ja-i*—si; *hoi*—hay; *kassa*—de quién; *virahe*—en separación; *hontammi*—está; *ko*—quién; *jīa-i*—vive.

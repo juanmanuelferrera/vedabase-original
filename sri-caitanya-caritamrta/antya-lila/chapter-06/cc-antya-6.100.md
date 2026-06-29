@@ -1,9 +1,9 @@
 ### CC Antya 6.100
 
-> এই ত’ কহিলুঁ নিত্যানন্দের বিহার ।
+> এই ত’ কহিলুঁ নিত্যানন্দের বিহার ।\
 > ‘চিড়া-দধি-মহোৎসব’-নামে খ্যাতি যার ॥১০০॥
 
-> ei ta' kahiluṅ nityānandera vihāra
+> ei ta' kahiluṅ nityānandera vihāra\
 > 'ciḍā-dadhi-mahotsava'-nāme khyāti yāra
 
 *ei ta'*—in this way; *kahiluṅ*—I have described; *nityānandera vihāra*—the pastimes of Lord Nityānanda Prabhu; *ciḍā-dadhi-mahotsava*—the festival of eating chipped rice and yogurt; *nāme*—of the name; *khyāti*—the fame; *yāra*—of which.

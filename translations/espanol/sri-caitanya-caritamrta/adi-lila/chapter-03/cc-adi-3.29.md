@@ -1,9 +1,9 @@
 ### CC Adi 3.29
 
-> এত ভাবি’ কলিকালে প্রথম সন্ধ্যায় ।
+> এত ভাবি’ কলিকালে প্রথম সন্ধ্যায় ।\
 > অবতীর্ণ হৈলা কৃষ্ণ আপনি নদীয়ায় ॥২৯॥
 
-> eta bhāvi' kali-kāle prathama sandhyāya
+> eta bhāvi' kali-kāle prathama sandhyāya\
 > avatīrṇa hailā kṛṣṇa āpani nadīyāya
 
 *eta*—así; *bhāvi'*—pensando; *kali-kāle*—en la era de Kali; *prathama*—primera; *sandhyāya*—en la juntura; *avatīrṇa hailā*—descendió; *kṛṣṇa*—el Señor Kṛṣṇa; *āpani*—Él mismo; *nadīyāya*—en Nadia.

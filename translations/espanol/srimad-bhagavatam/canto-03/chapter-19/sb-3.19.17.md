@@ -1,11 +1,11 @@
 ### SB 3.19.17
 
-> अथोरुधासृजन्मायां योगमायेश्वरे हरौ ।
+> अथोरुधासृजन्मायां योगमायेश्वरे हरौ ।\
 > यां विलोक्य प्रजास्त्रस्ता मेनिरेऽस्योपसंयमम् ॥१७॥
 
-> athorudhāsṛjan māyāṁ
-> yoga-māyeśvare harau
-> yāṁ vilokya prajās trastā
+> athorudhāsṛjan māyāṁ\
+> yoga-māyeśvare harau\
+> yāṁ vilokya prajās trastā\
 > menire 'syopasaṁyamam
 
 *atha*—entonces; *urudhā*—de muchas maneras; *asṛjat*—proyectó; *māyām*—estratagemas; *yoga-māyā-īśvare*—el Señor de *yoga-māyā*; *harau*—a Hari; *yām*—las cuales; *vilokya*—tras ver; *prajāḥ*—la gente; *trastāḥ*—asustada; *menire*—pensó; *asya*—de este universo; *upasaṁyamam*—la disolución.

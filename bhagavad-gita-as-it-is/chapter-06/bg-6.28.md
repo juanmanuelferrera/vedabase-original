@@ -1,11 +1,11 @@
 ### Bg 6.28
 
-> युञ्जन्नेवं सदात्मानं योगी विगतकल्मषः ।
+> युञ्जन्नेवं सदात्मानं योगी विगतकल्मषः ।\
 > सुखेन ब्रह्मसंस्पर्शमत्यन्तं सुखमश्नुते ॥२८॥
 
-> yuñjann evaṁ sadātmānaṁ
-> yogī vigata-kalmaṣaḥ
-> sukhena brahma-saṁsparśam
+> yuñjann evaṁ sadātmānaṁ\
+> yogī vigata-kalmaṣaḥ\
+> sukhena brahma-saṁsparśam\
 > atyantaṁ sukham aśnute
 
 *yuñjan*—thus being engaged in *yoga* practice; *evam*—thus; *sadā*—always; *ātmānam*—self; *yogī*—one who is in touch with the Supreme Self; *vigata*—is freed from; *kalmaṣaḥ*—all material contamination; *sukhena*—in transcendental happiness; *brahma-saṁsparśam*—being in constant touch with the Supreme; *atyantam*—highest; *sukham*—happiness; *aśnute*—attains.

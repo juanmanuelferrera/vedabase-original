@@ -1,9 +1,9 @@
 ### CC Madhya 24.193
 
-> সৎসঙ্গ, কৃষ্ণসেবা, ভাগবত, নাম ।
+> সৎসঙ্গ, কৃষ্ণসেবা, ভাগবত, নাম ।\
 > ব্রজে বাস, — এই পঞ্চ সাধন প্রধান ॥১৯৩॥
 
-> sat-saṅga, kṛṣṇa-sevā, bhāgavata, nāma
+> sat-saṅga, kṛṣṇa-sevā, bhāgavata, nāma\
 > vraje vāsa,--ei pañca sādhana pradhāna
 
 *sat-saṅga*—asociación con devotos; *kṛṣṇa-sevā*—dedicación al servicio de Kṛṣṇa; *bhāgavata*—los devotos y el libro conocido como *Śrīmad-Bhāgavatam*; *nāma*—el canto del santo nombre; *vraje vāsa*—residir en Vṛndāvana o Mathurā; *ei*—estos; *pañca*—cinco; *sādhana pradhāna*—los principales procesos de devoción.

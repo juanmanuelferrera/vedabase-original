@@ -1,9 +1,9 @@
 ### CC Adi 16.31
 
-> ব্যাকরণ পড়াহ, নিমাঞি পণ্ডিত তোমার নাম ।
+> ব্যাকরণ পড়াহ, নিমাঞি পণ্ডিত তোমার নাম ।\
 > বাল্যশাস্ত্রে লোকে তোমার কহে গুণগ্রাম ॥৩১॥
 
-> vyākaraṇa paḍāha, nimāñi paṇḍita tomāra nāma
+> vyākaraṇa paḍāha, nimāñi paṇḍita tomāra nāma\
 > bālya-śāstre loke tomāra kahe guṇa-grāma
 
 *vyākaraṇa*—gramática; *paḍāha*—Tú enseñas; *nimāñi paṇḍita*—Nimāi Paṇḍita; *tomāra*—Tu; *nāma*—nombre; *bālya-śāstre*—en gramática, que se considera un estudio para niños; *loke*—la gente en general; *tomāra*—de Ti; *kahe*—declara; *guṇa-grāma*—muy cualificado.

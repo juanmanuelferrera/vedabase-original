@@ -1,11 +1,11 @@
 ### SB 4.1.48
 
-> तस्यां ससर्ज दुहितॄः षोडशामललोचनाः ।
+> तस्यां ससर्ज दुहितॄः षोडशामललोचनाः ।\
 > त्रयोदशादाद्धर्माय तथैकामग्नये विभुः ॥४८॥
 
-> tasyāṁ sasarja duhitṝḥ
-> ṣoḍaśāmala-locanāḥ
-> trayodaśādād dharmāya
+> tasyāṁ sasarja duhitṝḥ\
+> ṣoḍaśāmala-locanāḥ\
+> trayodaśādād dharmāya\
 > tathaikām agnaye vibhuḥ
 
 *tasyām*—en ella; *sasarja*—creadas; *duhitṝḥ*—hijas; *ṣoḍaśa*—dieciséis; *amala-locanāḥ*—con ojos de loto; *trayodaśa*—trece; *adāt*—dio; *dharmāya*—a Dharma; *tathā*—así; *ekām*—una hija; *agnaye*—a Agni; *vibhuḥ*—Dakṣa.

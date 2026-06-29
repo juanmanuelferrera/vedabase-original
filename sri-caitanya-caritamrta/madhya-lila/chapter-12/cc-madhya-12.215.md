@@ -1,9 +1,9 @@
 ### CC Madhya 12.215
 
-> যত পিয়ে তত তৃষ্ণা বাঢ়ে নিরন্তর ।
+> যত পিয়ে তত তৃষ্ণা বাঢ়ে নিরন্তর ।\
 > মুখাম্বুজ ছাড়ি’ নেত্র না যায় অন্তর ॥২১৫॥
 
-> yata piye tata tṛṣṇā bāḍhe nirantara
+> yata piye tata tṛṣṇā bāḍhe nirantara\
 > mukhāmbuja chāḍi' netra nā yāya antara
 
 *yata*—as much; *piye*—they drink; *tata*—so much; *tṛṣṇā*—thirst; *bāḍhe*—increases; *nirantara*—incessantly; *mukha-ambuja*—the lotuslike face; *chāḍi'*—giving up; *netra*—the eyes; *nā*—do not; *yāya*—go; *antara*—separate.

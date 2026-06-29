@@ -1,9 +1,9 @@
 ### CC Antya 5.133
 
-> তবেত পাণ্ডিত্য তোমার হইবে সফল ।
+> তবেত পাণ্ডিত্য তোমার হইবে সফল ।\
 > কৃষ্ণের স্বরূপ-লীলা বর্ণিবা নির্মল ॥১৩৩॥
 
-> tabeta pāṇḍitya tomāra ha-ibe saphala
+> tabeta pāṇḍitya tomāra ha-ibe saphala\
 > kṛṣṇera svarūpa-līlā varṇibā nirmala
 
 *tabeta*—then only; *pāṇḍitya*—learning; *tomāra*—your; *ha-ibe*—will become; *sa-phala*—successful; *kṛṣṇera*—of Lord Kṛṣṇa; *svarūpa-līlā*—the transcendental pastimes; *varṇibā*—you will describe; *nirmala*—without material contamination.

@@ -1,11 +1,11 @@
 ### SB 3.17.20
 
-> हिरण्याक्षोऽनुजस्तस्य प्रियः प्रीतिकृदन्वहम् ।
+> हिरण्याक्षोऽनुजस्तस्य प्रियः प्रीतिकृदन्वहम् ।\
 > गदापाणिर्दिवं यातो युयुत्सुर्मृगयन्रणम् ॥२०॥
 
-> hiraṇyākṣo 'nujas tasya
-> priyaḥ prīti-kṛd anvaham
-> gadā-pāṇir divaṁ yāto
+> hiraṇyākṣo 'nujas tasya\
+> priyaḥ prīti-kṛd anvaham\
+> gadā-pāṇir divaṁ yāto\
 > yuyutsur mṛgayan raṇam
 
 *hiraṇyākṣaḥ*—Hiraṇyākṣa; *anujaḥ*—younger brother; *tasya*—his; *priyaḥ*—beloved; *prīti-kṛt*—ready to please; *anu-aham*—every day; *gadā-pāṇiḥ*—with a club in hand; *divam*—to the higher planets; *yātaḥ*—traveled; *yuyutsuḥ*—desirous to fight; *mṛgayan*—seeking; *raṇam*—combat.

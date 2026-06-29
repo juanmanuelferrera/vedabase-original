@@ -1,13 +1,13 @@
 ### SB 3.15.48
 
-> नात्यन्तिकं विगणयन्त्यपि ते प्रसादं
-> किम्वन्यदर्पितभयं भ्रुव उन्नयैस्ते ।
-> येऽङ्ग त्वदङ्घ्रिशरणा भवतः कथायाः
+> नात्यन्तिकं विगणयन्त्यपि ते प्रसादं\
+> किम्वन्यदर्पितभयं भ्रुव उन्नयैस्ते ।\
+> येऽङ्ग त्वदङ्घ्रिशरणा भवतः कथायाः\
 > कीर्तन्यतीर्थयशसः कुशला रसज्ञाः ॥४८॥
 
-> nātyantikaṁ vigaṇayanty api te prasādaṁ
-> kimv anyad arpita-bhayaṁ bhruva unnayais te
-> ye 'ṅga tvad-aṅghri-śaraṇā bhavataḥ kathāyāḥ
+> nātyantikaṁ vigaṇayanty api te prasādaṁ\
+> kimv anyad arpita-bhayaṁ bhruva unnayais te\
+> ye 'ṅga tvad-aṅghri-śaraṇā bhavataḥ kathāyāḥ\
 > kīrtanya-tīrtha-yaśasaḥ kuśalā rasa-jñāḥ
 
 *na*—no; *ātyantikam*—liberación; *vigaṇayanti*—se interesan por; *api*—incluso; *te*—aquellas; *prasādam*—bendiciones; *kim u*—qué decir; *anyat*—otras felicidades materiales; *arpita*—dado; *bhayam*—temor; *bhruvaḥ*—de las cejas; *unnayaiḥ*—al levantar; *te*—Tus; *ye*—esos devotos; *aṅga*—¡oh, Suprema Personalidad de Dios!; *tvat*—Tus; *aṅghri*—pies de loto; *śaraṇāḥ*—que se han refugiado; *bhavataḥ*—Tus; *kathāyāḥ*—relatos; *kīrtanya*—dignas de ser cantadas; *tīrtha*—puras; *yaśasaḥ*—glorias; *kuśalāḥ*—muy expertos; *rasa-jñāḥ*—conocedores de los dulces sentimientos.

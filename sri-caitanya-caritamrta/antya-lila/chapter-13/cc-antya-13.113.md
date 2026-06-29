@@ -1,9 +1,9 @@
 ### CC Antya 13.113
 
-> বৃদ্ধ মাতা-পিতার যাই’ করহ সেবন ।
+> বৃদ্ধ মাতা-পিতার যাই’ করহ সেবন ।\
 > বৈষ্ণব-পাশ ভাগবত কর অধ্যয়ন ॥১১৩॥
 
-> vṛddha mātā-pitāra yāi' karaha sevana
+> vṛddha mātā-pitāra yāi' karaha sevana\
 > vaiṣṇava-pāśa bhāgavata kara adhyayana
 
 *vṛddha*—old; *mātā-pitāra*—of the mother and father; *yāi'*—going back; *karaha sevana*—engage in service; *vaiṣṇava-pāśa*—from a pure Vaiṣṇava; *bhāgavata*—*Śrīmad-Bhāgavatam*; *kara adhyayana*—study.

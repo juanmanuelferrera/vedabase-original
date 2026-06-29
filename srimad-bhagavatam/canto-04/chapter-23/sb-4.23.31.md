@@ -1,11 +1,11 @@
 ### SB 4.23.31
 
-> य इदं सुमहत्पुण्यं श्रद्धयावहितः पठेत् ।
+> य इदं सुमहत्पुण्यं श्रद्धयावहितः पठेत् ।\
 > श्रावयेच्छृणुयाद्वापि स पृथोः पदवीमियात् ॥३१॥
 
-> ya idaṁ sumahat puṇyaṁ
-> śraddhayāvahitaḥ paṭhet
-> śrāvayec chṛṇuyād vāpi
+> ya idaṁ sumahat puṇyaṁ\
+> śraddhayāvahitaḥ paṭhet\
+> śrāvayec chṛṇuyād vāpi\
 > sa pṛthoḥ padavīm iyāt
 
 *yaḥ*—anyone; *idam*—this; *su-mahat*—very great; *puṇyam*—pious; *śraddhayā*—with great faith; *avahitaḥ*—with great attention; *paṭhet*—reads; *śrāvayet*—explains; *śṛṇuyāt*—hears; *vā*—or; *api*—certainly; *saḥ*—that person; *pṛthoḥ*—of King Pṛthu; *padavīm*—situation; *iyāt*—attains.

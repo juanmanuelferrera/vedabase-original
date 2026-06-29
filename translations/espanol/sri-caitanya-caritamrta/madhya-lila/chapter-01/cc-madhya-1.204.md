@@ -1,9 +1,9 @@
 ### CC Madhya 1.204
 
-> আপনে অযোগ্য দেখি’ মনে পাঙ ক্ষোভ ।
+> আপনে অযোগ্য দেখি’ মনে পাঙ ক্ষোভ ।\
 > তথাপি তোমার গুণে উপজয় লোভ ॥২০৪॥
 
-> āpane ayogya dekhi' mane pāṅ kṣobha
+> āpane ayogya dekhi' mane pāṅ kṣobha\
 > tathāpi tomāra guṇe upajaya lobha
 
 *āpane*—nosotros mismos; *ayogya*—muy ineptos; *dekhi'*—viendo; *mane*—dentro de la mente; *pāṅ*—sentimos; *kṣobha*—lamentación; *tathāpi*—aun así; *tomāra*—Tus; *guṇe*—por las cualidades trascendentales; *upajaya*—hay; *lobha*—atracción.

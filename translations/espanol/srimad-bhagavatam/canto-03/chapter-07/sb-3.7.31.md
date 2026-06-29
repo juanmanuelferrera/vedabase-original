@@ -1,11 +1,11 @@
 ### SB 3.7.31
 
-> पाषण्डपथवैषम्यं प्रतिलोमनिवेशनम् ।
+> पाषण्डपथवैषम्यं प्रतिलोमनिवेशनम् ।\
 > जीवस्य गतयो याश्च यावतीर्गुणकर्मजाः ॥३१॥
 
-> pāṣaṇḍa-patha-vaiṣamyaṁ
-> pratiloma-niveśanam
-> jīvasya gatayo yāś ca
+> pāṣaṇḍa-patha-vaiṣamyaṁ\
+> pratiloma-niveśanam\
+> jīvasya gatayo yāś ca\
 > yāvatīr guṇa-karmajāḥ
 
 *pāṣaṇḍa-patha*—el sendero de los infieles; *vaiṣamyam*—imperfección por contradicción; *pratiloma*—cruce de razas; *niveśanam*—situación; *jīvasya*—de las entidades vivientes; *gatayaḥ*—movimientos; *yāḥ*—tal como son; *ca*—también; *yāvatīḥ*—tantos como; *guṇa*—modalidades de la naturaleza material; *karma-jāḥ*—generado por diferentes trabajos.

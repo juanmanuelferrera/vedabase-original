@@ -1,9 +1,9 @@
 ### CC Antya 3.40
 
-> এইমত বার বার করাইহ স্মরণ ।
+> এইমত বার বার করাইহ স্মরণ ।\
 > মোর নাম লঞা তাঁর বন্দিহ চরণ ।।” ॥ ৪০ ॥
 
-> ei-mata bāra bāra karāiha smaraṇa
+> ei-mata bāra bāra karāiha smaraṇa\
 > mora nāma lañā tāṅra vandiha caraṇa"
 
 *ei-mata*—de este modo; *bāra bāra*—una y otra vez; *karāiha*—hazle; *smaraṇa*—recordar; *mora*—Mi; *nāma*—nombre; *lañā*—tomando; *tāṅra*—sus; *vandiha*—adora; *caraṇa*—pies.

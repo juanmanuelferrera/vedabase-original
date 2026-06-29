@@ -1,9 +1,9 @@
 ### CC Madhya 9.263
 
-> কর্মনিন্দা, কর্মত্যাগ, সর্বশাস্ত্রে কহে ৷
+> কর্মনিন্দা, কর্মত্যাগ, সর্বশাস্ত্রে কহে ৷\
 > কর্ম হৈতে প্রেমভক্তি কৃষ্ণে কভু নহে ৷৷ ২৬৩ ৷৷ ॥২৬৩॥
 
-> karma-nindā, karma-tyāga, sarva-śāstre kahe
+> karma-nindā, karma-tyāga, sarva-śāstre kahe\
 > karma haite prema-bhakti kṛṣṇe kabhu nahe
 
 *karma-nindā*—condenación de las actividades fruitivas; *karma-tyāga*—renunciación de las actividades fruitivas; *sarva-śāstre kahe*—se proclama en todas las Escrituras reveladas; *karma haite*—a partir de las actividades fruitivas; *prema-bhakti*—servicio devocional en amor extático; *kṛṣṇe*—por Kṛṣṇa; *kabhu nahe*—nunca se puede lograr.

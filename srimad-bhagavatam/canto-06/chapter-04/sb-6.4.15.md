@@ -1,11 +1,11 @@
 ### SB 6.4.15
 
-> अलं दग्धैर्द्रुमैर्दीनैः खिलानां शिवमस्तु वः
+> अलं दग्धैर्द्रुमैर्दीनैः खिलानां शिवमस्तु वः\
 > वार्क्षी ह्येषा वरा कन्या पत्नीत्वे प्रतिगृह्यताम ॥१५॥
 
-> alaṁ dagdhair drumair dīnaiḥ
-> khilānāṁ śivam astu vaḥ
-> vārkṣī hy eṣā varā kanyā
+> alaṁ dagdhair drumair dīnaiḥ\
+> khilānāṁ śivam astu vaḥ\
+> vārkṣī hy eṣā varā kanyā\
 > patnītve pratigṛhyatām
 
 *alam*—enough; *dagdhaiḥ*—with burning; *drumaiḥ*—the trees; *dīnaiḥ*—poor; *khilānām*—of the remainder of the trees; *śivam*—all good fortune; *astu*—let there be; *vaḥ*—of you; *vārkṣī*—raised by the trees; *hi*—indeed; *eṣā*—this; *varā*—choice; *kanyā*—daughter; *patnītve*—into wifehood; *pratigṛhyatām*—let her be accepted.

@@ -1,11 +1,11 @@
 ### SB 8.21.28
 
-> तं बद्धं वारुणैः पाशैर्भगवानाह वामनः
+> तं बद्धं वारुणैः पाशैर्भगवानाह वामनः\
 > नष्टश्रियं स्थिरप्रज्ञअमुदारयशसं नृप ॥२८॥
 
-> taṁ baddhaṁ vāruṇaiḥ pāśair
-> bhagavān āha vāmanaḥ
-> naṣṭa-śriyaṁ sthira-prajñam
+> taṁ baddhaṁ vāruṇaiḥ pāśair\
+> bhagavān āha vāmanaḥ\
+> naṣṭa-śriyaṁ sthira-prajñam\
 > udāra-yaśasaṁ nṛpa
 
 *tam*—unto him; *baddham*—who was so arrested; *vāruṇaiḥ pāśaiḥ*—by the ropes of Varuṇa; *bhagavān*—the Supreme Personality of Godhead; *āha*—said; *vāmanaḥ*—Vāmanadeva; *naṣṭa-śriyam*—unto Bali Mahārāja, who had lost his bodily luster; *sthira-prajñam*—but was all the same determined in his decision; *udāra-yaśasam*—the most magnanimous and celebrated; *nṛpa*—O King.

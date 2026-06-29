@@ -1,13 +1,13 @@
 ### SB 7.9.36
 
-> एवं सहस्रवदनाङ्घ्रिशिरःकरोरु
-> नासाद्यकर्णनयनाभरणायुधाढ्यम
-> मायामयं सदुपलक्षितसन्निवेशं
+> एवं सहस्रवदनाङ्घ्रिशिरःकरोरु\
+> नासाद्यकर्णनयनाभरणायुधाढ्यम\
+> मायामयं सदुपलक्षितसन्निवेशं\
 > दृष्ट्वा महापुरुषमाप मुदं विरिञ्चः ॥३६॥
 
-> evaṁ sahasra-vadanāṅghri-śiraḥ-karoru-
-> nāsādya-karṇa-nayanābharaṇāyudhāḍhyam
-> māyāmayaṁ sad-upalakṣita-sanniveśaṁ
+> evaṁ sahasra-vadanāṅghri-śiraḥ-karoru-\
+> nāsādya-karṇa-nayanābharaṇāyudhāḍhyam\
+> māyāmayaṁ sad-upalakṣita-sanniveśaṁ\
 > dṛṣṭvā mahā-puruṣam āpa mudaṁ viriñcaḥ
 
 *evam*—in this way; *sahasra*—thousands and thousands; *vadana*—faces; *aṅghri*—feet; *śiraḥ*—heads; *kara*—hands; *uru*—thighs; *nāsa-ādya*—noses, etc.; *karṇa*—ears; *nayana*—eyes; *ābharaṇa*—varieties of ornaments; *āyudha*—varieties of weapons; *āḍhyam*—endowed with; *māyā-mayam*—all demonstrated by unlimited potency; *sat-upalakṣita*—appearing in different symptoms; *sanniveśam*—combined together; *dṛṣṭvā*—seeing; *mahā-puruṣam*—the Supreme Personality of Godhead; *āpa*—achieved; *mudam*—transcendental bliss; *viriñcaḥ*—Lord Brahmā.

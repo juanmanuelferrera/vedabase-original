@@ -1,14 +1,14 @@
 ### CC Antya 7.153-154
 
-> এইমত ভট্টের কথেক দিন গেল ।
-> শেষে যদি প্রভু তারে সুপ্রসন্ন হৈল ॥১৫৩॥
-> নিমন্ত্রণের দিনে পণ্ডিতে বোলাইলা ।
+> এইমত ভট্টের কথেক দিন গেল ।\
+> শেষে যদি প্রভু তারে সুপ্রসন্ন হৈল ॥১৫৩॥\
+> নিমন্ত্রণের দিনে পণ্ডিতে বোলাইলা ।\
 > স্বরূপ, জগদানন্দ, গোবিন্দে পাঠাইলা ॥১৫৪॥
 
-> ei-mata bhaṭṭera katheka dina gela
+> ei-mata bhaṭṭera katheka dina gela\
 > śeṣe yadi prabhu tāre suprasanna haila
 
-> nimantraṇera dine paṇḍite bolāilā
+> nimantraṇera dine paṇḍite bolāilā\
 > svarūpa, jagadānanda, govinde pāṭhāilā
 
 *ei-mata*—de ese modo; *bhaṭṭera*—de Vallabha Bhaṭṭa; *katheka dina*—unos días; *gela*—pasaron; *śeṣe*—por fin; *yadi*—cuando; *prabhu*—Śrī Caitanya Mahāprabhu; *tāre*—con él; *su-prasanna haila*—Se sintió muy complacido; *nimantraṇera dine*—el día de la invitación; *paṇḍite bolāilā*—llamó a Gadādhara Paṇḍita; *svarūpa*—Svarūpa Dāmodara; *jagadānanda*—Jagadānanda Paṇḍita; *govinde*—a Govinda; *pāṭhāilā*—Él envió.

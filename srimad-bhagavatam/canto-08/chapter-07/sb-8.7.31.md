@@ -1,11 +1,11 @@
 ### SB 8.7.31
 
-> छाया त्वधर्मोर्मिषु यैर्विसर्गो नेत्रत्रयं सत्त्वरजस्तमांसि
+> छाया त्वधर्मोर्मिषु यैर्विसर्गो नेत्रत्रयं सत्त्वरजस्तमांसि\
 > साङ्ख्यात्मनः शास्त्रकृतस्तवेक्षा छन्दोमयो देव ऋषिः पुराणः ॥३१॥
 
-> na te giri-trākhila-loka-pāla-
-> viriñca-vaikuṇṭha-surendra-gamyam
-> jyotiḥ paraṁ yatra rajas tamaś ca
+> na te giri-trākhila-loka-pāla-\
+> viriñca-vaikuṇṭha-surendra-gamyam\
+> jyotiḥ paraṁ yatra rajas tamaś ca\
 > sattvaṁ na yad brahma nirasta-bhedam
 
 *na*—not; *te*—of Your Lordship; *giri-tra*—O King of the mountains; *akhila-loka-pāla*—all the directors of departments of material activities; *viriñca*—Lord Brahmā; *vaikuṇṭha*—Lord Viṣṇu; *sura-indra*—the King of heaven; *gamyam*—they can understand; *jyotiḥ*—effulgence; *param*—transcendental; *yatra*—wherein; *rajaḥ*—the mode of passion; *tamaḥ ca*—and the mode of ignorance; *sattvam*—the mode of goodness; *na*—not; *yat brahma*—which is impersonal Brahman; *nirasta-bhedam*—without distinction between demigods and human beings.

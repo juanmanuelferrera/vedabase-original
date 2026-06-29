@@ -1,9 +1,9 @@
 ### CC Madhya 17.54
 
-> নাম-প্রেম দিয়া কৈল সবার নিস্তার ।
+> নাম-প্রেম দিয়া কৈল সবার নিস্তার ।\
 > চৈতন্যের গূঢ়লীলা বুঝিতে শক্তি কার ॥৫৪॥
 
-> nāma-prema diyā kaila sabāra nistāra
+> nāma-prema diyā kaila sabāra nistāra\
 > caitanyera gūḍha-līlā bujhite śakti kāra
 
 *nāma-prema diyā*—otorgándoles amor extático y el santo nombre; *kaila*—efectuó; *sabāra nistāra*—la liberación de todos ellos; *caitanyera*—de Śrī Caitanya Mahāprabhu; *gūḍha-līlā*—pasatiempos confidenciales; *bujhite*—comprender; *śakti*—el poder; *kāra*—¿quién tiene?.

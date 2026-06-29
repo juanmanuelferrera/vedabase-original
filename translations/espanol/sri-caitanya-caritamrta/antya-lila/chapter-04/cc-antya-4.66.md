@@ -1,9 +1,9 @@
 ### CC Antya 4.66
 
-> নীচ-জাতি নহে কৃষ্ণভজনে অযোগ্য ।
+> নীচ-জাতি নহে কৃষ্ণভজনে অযোগ্য ।\
 > সৎকুল-বিপ্র নহে ভজনের যোগ্য ॥৬৬॥
 
-> nīca-jāti nahe kṛṣṇa-bhajane ayogya
+> nīca-jāti nahe kṛṣṇa-bhajane ayogya\
 > sat-kula-vipra nahe bhajanera yogya
 
 *nīca-jāti*—una persona de baja cuna; *nahe*—no es; *kṛṣṇa-bhajane*—en el desempeño del servicio devocional; *ayogya*—inepta; *sat-kula-vipra*—un *brāhmaṇa* nacido en una familia aristocrática muy respetable; *nahe*—no es; *bhajanera yogya*—apta para el desempeño del servicio devocional.

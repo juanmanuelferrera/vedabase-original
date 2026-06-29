@@ -1,9 +1,9 @@
 ### CC Madhya 8.215
 
-> সহজ গোপীর প্রেম, — নহে প্রাকৃত কাম ৷
+> সহজ গোপীর প্রেম, — নহে প্রাকৃত কাম ৷\
 > কামক্রীড়া-সাম্যে তার কহি ‘কাম’-নাম ৷৷ ২১৫ ৷৷ ॥২১৫॥
 
-> sahaja gopīra prema,--nahe prākṛta kāma
+> sahaja gopīra prema,--nahe prākṛta kāma\
 > kāma-krīḍā-sāmye tāra kahi 'kāma'-nāma
 
 *sahaja*—natural; *gopīra*—de las gopīs; *prema*—amor por Dios; *nahe*—no es; *prākṛta*—material; *kāma*—lujuria; *kāma-krīḍā*—asuntos lujuriosos; *sāmye*—al parecer igual a; *tāra*—de tales actividades; *kahi*—digo; *kāma-nāma*—el nombre «lujuria».

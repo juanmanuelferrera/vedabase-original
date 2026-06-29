@@ -1,13 +1,13 @@
 ### SB 3.16.11
 
-> ये ब्राह्मणान्मयि धिया क्षिपतोऽर्चयन्तस्
-> तुष्यद्धृदः स्मितसुधोक्षितपद्मवक्त्राः ।
-> वाण्यानुरागकलयात्मजवद्गृणन्तः
+> ये ब्राह्मणान्मयि धिया क्षिपतोऽर्चयन्तस्\
+> तुष्यद्धृदः स्मितसुधोक्षितपद्मवक्त्राः ।\
+> वाण्यानुरागकलयात्मजवद्गृणन्तः\
 > सम्बोधयन्त्यहमिवाहमुपाहृतस्तैः ॥११॥
 
-> ye brāhmaṇān mayi dhiyā kṣipato 'rcayantas
-> tuṣyad-dhṛdaḥ smita-sudhokṣita-padma-vaktrāḥ
-> vāṇyānurāga-kalayātmajavad gṛṇantaḥ
+> ye brāhmaṇān mayi dhiyā kṣipato 'rcayantas\
+> tuṣyad-dhṛdaḥ smita-sudhokṣita-padma-vaktrāḥ\
+> vāṇyānurāga-kalayātmajavad gṛṇantaḥ\
 > sambodhayanty aham ivāham upāhṛtas taiḥ
 
 *ye*—which persons; *brāhmaṇān*—the *brāhmaṇas*; *mayi*—in Me; *dhiyā*—with intelligence; *kṣipataḥ*—uttering harsh words; *arcayantaḥ*—respecting; *tuṣyat*—gladdened; *hṛdaḥ*—hearts; *smita*—smiling; *sudhā*—nectar; *ukṣita*—wet; *padma*—lotuslike; *vaktrāḥ*—faces; *vāṇyā*—with words; *anurāga-kalayā*—loving; *ātmaja-vat*—like a son; *gṛṇantaḥ*—praising; *sambodhayanti*—pacify; *aham*—I; *iva*—as; *aham*—I; *upāhṛtaḥ*—being controlled; *taiḥ*—by them.

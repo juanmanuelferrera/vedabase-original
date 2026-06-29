@@ -1,11 +1,11 @@
 ### SB 2.3.9
 
-> राज्यकामो मनून्देवान्निरृतिं त्वभिचरन्यजेत् ।
+> राज्यकामो मनून्देवान्निरृतिं त्वभिचरन्यजेत् ।\
 > कामकामो यजेत्सोममकामः पुरुषं परम् ॥९॥
 
-> rājya-kāmo manūn devān
-> nirṛtiṁ tv abhicaran yajet
-> kāma-kāmo yajet somam
+> rājya-kāmo manūn devān\
+> nirṛtiṁ tv abhicaran yajet\
+> kāma-kāmo yajet somam\
 > akāmaḥ puruṣaṁ param
 
 *rājya-kāmaḥ*—anyone desiring an empire or kingdom; *manūn*—the Manus, semi-incarnations of God; *devān*—demigods; *nirṛtim*—demons; *tu*—but; *abhicaran*—desiring victory over the enemy; *yajet*—should worship; *kāma-kāmaḥ*—one who desires sense gratification; *yajet*—should worship; *somam*—the demigod named Candra; *akāmaḥ*—one who has no material desires to be fulfilled; *puruṣam*—the Supreme Personality of Godhead; *param*—the Supreme.

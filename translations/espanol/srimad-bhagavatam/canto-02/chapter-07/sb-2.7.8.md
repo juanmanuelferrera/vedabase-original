@@ -1,13 +1,13 @@
 ### SB 2.7.8
 
-> विद्धः सपत्न्युदितपत्रिभिरन्ति राज्ञो
-> बालोऽपि सन्नुपगतस्तपसे वनानि ।
-> तस्मा अदाद्ध्रुवगतिं गृणते प्रसन्नो
+> विद्धः सपत्न्युदितपत्रिभिरन्ति राज्ञो\
+> बालोऽपि सन्नुपगतस्तपसे वनानि ।\
+> तस्मा अदाद्ध्रुवगतिं गृणते प्रसन्नो\
 > दिव्याः स्तुवन्ति मुनयो यदुपर्यधस्तात् ॥८॥
 
-> viddhaḥ sapatny-udita-patribhir anti rājño
-> bālo 'pi sann upagatas tapase vanāni
-> tasmā adād dhruva-gatiṁ gṛṇate prasanno
+> viddhaḥ sapatny-udita-patribhir anti rājño\
+> bālo 'pi sann upagatas tapase vanāni\
+> tasmā adād dhruva-gatiṁ gṛṇate prasanno\
 > divyāḥ stuvanti munayo yad upary-adhastāt
 
 *viddhaḥ*—herido por; *sapatni*—una coesposa; *udita*—proferidas por; *patribhiḥ*—mediante palabras ásperas; *anti*—justamente antes; *rājñaḥ*—del rey; *bālaḥ*—un muchacho; *api*—si bien; *san*—siendo así; *upagataḥ*—se entregó a; *tapase*—severas penitencias; *vanāni*—en un gran bosque; *tasmai*—por lo tanto; *adāt*—dio como recompensa; *dhruva-gatim*—un sendero al planeta Dhruva; *gṛṇate*—habiéndosele rezado; *prasannaḥ*—estando satisfecho; *divyāḥ*—habitantes de planetas superiores; *stuvanti*—rezan; *munayaḥ*—grandes sabios; *yat*—por consiguiente; *upari*—arriba; *adhastāt*—abajo.

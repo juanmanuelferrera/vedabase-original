@@ -1,13 +1,13 @@
 ### SB 6.7.38
 
-> श्रीबादरायणिरुवाच
-> तेभ्य एवं प्रतिश्रुत्य विश्वरूपो महातपाः
+> श्रीबादरायणिरुवाच\
+> तेभ्य एवं प्रतिश्रुत्य विश्वरूपो महातपाः\
 > पौरहित्यं वृतश्चक्रे परमेण समाधिना ॥३८॥
 
-> śrī-bādarāyaṇir uvāca
-> tebhya evaṁ pratiśrutya
-> viśvarūpo mahā-tapāḥ
-> paurahityaṁ vṛtaś cakre
+> śrī-bādarāyaṇir uvāca\
+> tebhya evaṁ pratiśrutya\
+> viśvarūpo mahā-tapāḥ\
+> paurahityaṁ vṛtaś cakre\
 > parameṇa samādhinā
 
 *śrī-bādarāyaṇiḥ uvāca*—Śrī Śukadeva Gosvāmī said; *tebhyaḥ*—unto them (the demigods); *evam*—thus; *pratiśrutya*—promising; *viśvarūpaḥ*—Viśvarūpa; *mahā-tapāḥ*—the most exalted personality; *paurahityam*—the priesthood; *vṛtaḥ*—surrounded by them; *cakre*—executed; *parameṇa*—supreme; *samādhinā*—with attention.

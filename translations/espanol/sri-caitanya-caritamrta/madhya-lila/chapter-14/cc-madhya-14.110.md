@@ -1,9 +1,9 @@
 ### CC Madhya 14.110
 
-> ধ্বজাবৃন্দ-পতাকা-ঘণ্টায় করহ মণ্ডন  ।
+> ধ্বজাবৃন্দ-পতাকা-ঘণ্টায় করহ মণ্ডন  ।\
 > নানাবাদ্য-নৃত্য-দোলায় করহ সাজন ॥১১০॥
 
-> dhvajāvṛnda-patākā-ghaṇṭāya karaha maṇḍana
+> dhvajāvṛnda-patākā-ghaṇṭāya karaha maṇḍana\
 > nānā-vādya-nṛtya-dolāya karaha sājana
 
 *dhvajā-vṛnda*—todo tipo de banderas; *patākā*—banderas grandes; *ghaṇṭāya*—con campanas que repican; *karaha*—haced; *maṇḍana*—decoración; *nānā-vādya*—todo tipo de grupos musicales; *nṛtya*—danza; *dolāya*—en el palanquín; *karaha sājana*—decorad de forma atractiva.

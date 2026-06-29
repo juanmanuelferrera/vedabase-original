@@ -1,11 +1,11 @@
 ### SB 3.11.40
 
-> विकारैः सहितो युक्तैर्विशेषादिभिरावृतः ।
+> विकारैः सहितो युक्तैर्विशेषादिभिरावृतः ।\
 > आण्डकोशो बहिरयं पञ्चाशत्कोटिविस्तृतः ॥४०॥
 
-> vikāraiḥ sahito yuktair
-> viśeṣādibhir āvṛtaḥ
-> āṇḍakośo bahir ayaṁ
+> vikāraiḥ sahito yuktair\
+> viśeṣādibhir āvṛtaḥ\
+> āṇḍakośo bahir ayaṁ\
 > pañcāśat-koṭi-vistṛtaḥ
 
 *vikāraiḥ*—mediante la transformación de los elementos; *sahitaḥ*—juntamente con; *yuktaiḥ*—siendo amalgamados así; *viśeṣa*—manifestaciones; *ādibhiḥ*—por ellas; *āvṛtaḥ*—cubierto; *āṇḍa-kośaḥ*—el universo; *bahiḥ*—fuera; *ayam*—este; *pañcāśat*—cincuenta; *koṭi*—diez millones; *vistṛtaḥ*—extendido.

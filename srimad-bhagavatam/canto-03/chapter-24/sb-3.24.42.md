@@ -1,11 +1,11 @@
 ### SB 3.24.42
 
-> व्रतं स आस्थितो मौनमात्मैकशरणो मुनिः ।
+> व्रतं स आस्थितो मौनमात्मैकशरणो मुनिः ।\
 > निःसङ्गो व्यचरत्क्षोणीमनग्निरनिकेतनः ॥४२॥
 
-> vrataṁ sa āsthito maunam
-> ātmaika-śaraṇo muniḥ
-> niḥsaṅgo vyacarat kṣoṇīm
+> vrataṁ sa āsthito maunam\
+> ātmaika-śaraṇo muniḥ\
+> niḥsaṅgo vyacarat kṣoṇīm\
 > anagnir aniketanaḥ
 
 *vratam*—vow; *saḥ*—he (Kardama); *āsthitaḥ*—accepted; *maunam*—silence; *ātma*—by the Supreme Personality of Godhead; *eka*—exclusively; *śaraṇaḥ*—being sheltered; *muniḥ*—the sage; *niḥsaṅgaḥ*—without association; *vyacarat*—he traveled; *kṣoṇīm*—the earth; *anagniḥ*—without fire; *aniketanaḥ*—without shelter.

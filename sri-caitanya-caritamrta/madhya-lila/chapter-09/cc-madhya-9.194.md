@@ -1,9 +1,9 @@
 ### CC Madhya 9.194
 
-> অপ্রাকৃত বস্তু নহে প্রাকৃত-গোচর ।
+> অপ্রাকৃত বস্তু নহে প্রাকৃত-গোচর ।\
 > বেদ-পুরাণেতে এই কহে নিরন্তর ॥১৯৪॥
 
-> aprākṛta vastu nahe prākṛta-gocara
+> aprākṛta vastu nahe prākṛta-gocara\
 > veda-purāṇete ei kahe nirantara
 
 *aprākṛta*—spiritual; *vastu*—substance; *nahe*—not; *prākṛta*—of matter; *gocara*—within the jurisdiction; *veda-purāṇete*—the *Vedas* and the *Purāṇas*; *ei*—this; *kahe*—say; *nirantara*—always.

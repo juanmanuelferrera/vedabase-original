@@ -1,11 +1,11 @@
 ### SB 1.4.21
 
-> तत्रर्ग्वेदधरः पैलः सामगो जैमिनिः कविः ।
+> तत्रर्ग्वेदधरः पैलः सामगो जैमिनिः कविः ।\
 > वैशम्पायन एवैको निष्णातो यजुषामुत ॥२१॥
 
-> tatrarg-veda-dharaḥ pailaḥ
-> sāmago jaiminiḥ kaviḥ
-> vaiśampāyana evaiko
+> tatrarg-veda-dharaḥ pailaḥ\
+> sāmago jaiminiḥ kaviḥ\
+> vaiśampāyana evaiko\
 > niṣṇāto yajuṣām uta
 
 *tatra*—después; *ṛg-veda-dharaḥ*—el profesor del *Ṛg Veda*; *pailaḥ*—el *ṛṣi* de nombre Paila; *sāma-gaḥ*—el del *Sāma Veda*; *jaiminiḥ*—el *ṛṣi* de nombre Jaimini; *kaviḥ*—altamente capacitado; *vaiśampāyanaḥ*—el *ṛṣi* de nombre Vaiśampāyana; *eva*—únicamente; *ekaḥ*—solo; *niṣṇātaḥ*—bien versado; *yajuṣām*—del *Yajur Veda*; *uta*—glorificado.

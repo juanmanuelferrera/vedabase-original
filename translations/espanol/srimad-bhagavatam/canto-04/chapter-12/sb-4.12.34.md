@@ -1,11 +1,11 @@
 ### SB 4.12.34
 
-> तत्र तत्र प्रशंसद्भिः पथि वैमानिकैः सुरैः ।
+> तत्र तत्र प्रशंसद्भिः पथि वैमानिकैः सुरैः ।\
 > अवकीर्यमाणो ददृशे कुसुमैः क्रमशो ग्रहान् ॥३४॥
 
-> tatra tatra praśaṁsadbhiḥ
-> pathi vaimānikaiḥ suraiḥ
-> avakīryamāṇo dadṛśe
+> tatra tatra praśaṁsadbhiḥ\
+> pathi vaimānikaiḥ suraiḥ\
+> avakīryamāṇo dadṛśe\
 > kusumaiḥ kramaśo grahān
 
 *tatra tatra*—aquí y allá; *praśaṁsadbhiḥ*—por personas ocupadas en alabar a Dhruva Mahārāja; *pathi*—en el trayecto; *vaimānikaiḥ*—viajando en distintos tipos de aviones; *suraiḥ*—por los semidioses; *avakīryamāṇaḥ*—siendo cubierto; *dadṛśe*—pudo ver; *kusumaiḥ*—con flores; *kramaśaḥ*—uno tras otro; *grahān*—todos los planetas del sistema solar.

@@ -1,13 +1,13 @@
 ### CC Antya 6.1
 
-> কৃপাগুণৈর্যঃ কুগৃহান্ধকূপা-
-> দুদ্ধৃত্য ভঙ্গ্যা রঘুনাথদাসম্ ।
-> ন্যস্য স্বরূপে বিদধেঽন্তরঙ্গং
+> কৃপাগুণৈর্যঃ কুগৃহান্ধকূপা-\
+> দুদ্ধৃত্য ভঙ্গ্যা রঘুনাথদাসম্ ।\
+> ন্যস্য স্বরূপে বিদধেঽন্তরঙ্গং\
 > শ্রীকৃষ্ণচৈতন্যমমুং প্রপদ্যে ॥১॥
 
-> kṛpā-guṇair yaḥ kugṛhāndha-kūpād
-> uddhṛtya bhaṅgyā raghunātha-dāsam
-> nyasya svarūpe vidadhe 'ntaraṅgaṁ-
+> kṛpā-guṇair yaḥ kugṛhāndha-kūpād\
+> uddhṛtya bhaṅgyā raghunātha-dāsam\
+> nyasya svarūpe vidadhe 'ntaraṅgaṁ-\
 > śrī-kṛṣṇa-caitanyam amuṁ prapadye
 
 *kṛpā-guṇaiḥ*—by the ropes of causeless mercy; *yaḥ*—who; *ku-gṛha*—of contemptible family life; *andha-kūpāt*—from the blind well; *uddhṛtya*—having raised; *bhaṅgyā*—by a trick; *raghunātha-dāsam*—Raghunātha dāsa Gosvāmī; *nyasya*—giving over; *svarūpe*—to Svarūpa Dāmodara Gosvāmī; *vidadhe*—made; *antaraṅgam*—one of His personal associates; *śrī-kṛṣṇa-caitanyam*—unto Lord Śrī Kṛṣṇa Caitanya Mahāprabhu; *amum*—unto Him; *prapadye*—I offer my obeisances.

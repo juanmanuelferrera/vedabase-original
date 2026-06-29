@@ -1,9 +1,9 @@
 ### CC Antya 9.8
 
-> মনুষ্যের বেশে দেব-গন্ধর্ব-কিন্নর ।
+> মনুষ্যের বেশে দেব-গন্ধর্ব-কিন্নর ।\
 > সপ্তপাতালের যত দৈত্য বিষধর ॥৮॥
 
-> manuṣyera veśe deva-gandharva-kinnara
+> manuṣyera veśe deva-gandharva-kinnara\
 > sapta-pātālera yata daitya viṣadhara
 
 *manuṣyera veśe*—in the dress of human beings; *deva-gandharva-kinnara*—the demigods, the Gandharvas and the Kinnaras; *sapta-pātālera*—of the seven lower planetary systems; *yata*—all kinds of; *daitya*—demons; *viṣa-dhara*—serpentine living entities.

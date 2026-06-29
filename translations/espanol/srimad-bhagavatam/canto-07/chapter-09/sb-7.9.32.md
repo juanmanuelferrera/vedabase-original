@@ -1,13 +1,13 @@
 ### SB 7.9.32
 
-> न्यस्येदमात्मनि जगद्विलयाम्बुमध्ये
-> शेषेत्मना निजसुखानुभवो निरीहः
-> योगेन मीलितदृगात्मनिपीतनिद्रस
+> न्यस्येदमात्मनि जगद्विलयाम्बुमध्ये\
+> शेषेत्मना निजसुखानुभवो निरीहः\
+> योगेन मीलितदृगात्मनिपीतनिद्रस\
 > तुर्ये स्थितो न तु तमो न गुणांश्च युङ्क्षे ॥३२॥
 
-> nyasyedam ātmani jagad vilayāmbu-madhye
-> śeṣetmanā nija-sukhānubhavo nirīhaḥ
-> yogena mīlita-dṛg-ātma-nipīta-nidras
+> nyasyedam ātmani jagad vilayāmbu-madhye\
+> śeṣetmanā nija-sukhānubhavo nirīhaḥ\
+> yogena mīlita-dṛg-ātma-nipīta-nidras\
 > turye sthito na tu tamo na guṇāṁś ca yuṅkṣe
 
 *nyasya*—arrojar; *idam*—esta; *ātmani*—en Tu propio ser; *jagat*—manifestación cósmica creada por Ti; *vilaya-ambu-madhye*—en el océano Causal, en el que todo se conserva en un estado de energía latente; *śeṣe*—Tú actúas como si durmieses; *ātmanā*—por Ti mismo; *nija*—Tu propia personal; *sukha-anubhavaḥ*—** experimentando el estado de bienaventuranza espiritual; *nirīhaḥ*—que pareces no estar haciendo nada; *yogena*—por el poder místico; *mīlita-dṛk*—con ojos que parecen cerrados; *ātma*—por una manifestación de Ti mismo; *nipīta*—impedido; *nidraḥ*—cuyo sueño; *turye*—en el estado trascendental; *sthitaḥ*—manteniendo (Tú mismo); *na*—no; *tu*—pero; *tamaḥ*—la condición material del sueño; *na*—no; *guṇān*—las modalidades materiales; *ca*—y; *yuñkṣe*—Tú Te ocupas en.

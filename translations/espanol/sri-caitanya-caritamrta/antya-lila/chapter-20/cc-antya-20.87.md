@@ -1,9 +1,9 @@
 ### CC Antya 20.87
 
-> চৈতন্যমঙ্গলে ইহা লিখিয়াছে স্থানে-স্থানে ।
+> চৈতন্যমঙ্গলে ইহা লিখিয়াছে স্থানে-স্থানে ।\
 > সত্য কহেন, — ‘আগে ব্যাস করিব বর্ণনে’ ॥৮৭॥
 
-> caitanya-maṅgale ihā likhiyāche sthāne-sthāne
+> caitanya-maṅgale ihā likhiyāche sthāne-sthāne\
 > satya kahena,--'āge vyāsa kariba varṇane'
 
 *caitanya-maṅgale*—en el libro denominado *Caitanya-maṅgala*; *ihā*—esta declaración; *likhiyāche*—ha escrito; *sthāne-sthāne*—en muchos lugares; *satya*—la verdad; *kahena*—dice; *āge*—en el futuro; *vyāsa kariba varṇane*—Vyāsadeva los describirá más extensamente.

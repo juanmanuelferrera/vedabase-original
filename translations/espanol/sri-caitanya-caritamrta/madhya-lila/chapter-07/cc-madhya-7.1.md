@@ -1,11 +1,11 @@
 ### CC Madhya 7.1
 
-> ধন্যং তং নৌমি চৈতন্যং বাসুদেবং দয়ার্দ্রধী ৷
+> ধন্যং তং নৌমি চৈতন্যং বাসুদেবং দয়ার্দ্রধী ৷\
 > নষ্টকুষ্ঠং রূপপুষ্টং ভক্তিতুষ্টং চকার যঃ ৷৷ ১ ৷৷ ॥১॥
 
-> dhanyaṁ taṁ naumi caitanyaṁ
-> vāsudevaṁ dayārdraḥ-dhī
-> naṣṭa-kuṣṭhaṁ rūpa-puṣṭaṁ
+> dhanyaṁ taṁ naumi caitanyaṁ\
+> vāsudevaṁ dayārdraḥ-dhī\
+> naṣṭa-kuṣṭhaṁ rūpa-puṣṭaṁ\
 > bhakti-tuṣṭaṁ cakāra yaḥ
 
 *dhanyam*—auspicioso; *tam*—a Él; *naumi*—ofrezco mis reverencias; *caitanyam*—Śrī Caitanya Mahāprabhu; *vāsudevam*—al *brāhmaṇa* Vāsudeva; *dayā-ārdraḥ-dhī*—siendo compasivo; *naṣṭa-kuṣṭham*—curó la lepra; *rūpa-puṣṭam*—hermoso; *bhakti-tuṣṭam*—satisfecho en el servicio devocional; *cakāra*—hizo; *yaḥ*—la Suprema Personalidad de Dios.

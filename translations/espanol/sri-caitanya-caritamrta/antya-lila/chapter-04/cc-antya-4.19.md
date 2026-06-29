@@ -1,9 +1,9 @@
 ### CC Antya 4.19
 
-> সনাতনে আলিঙ্গিতে প্রভু আগু হৈলা  ।
+> সনাতনে আলিঙ্গিতে প্রভু আগু হৈলা  ।\
 > পাছে ভাগে সনাতন কহিতে লাগিলা ॥১৯॥
 
-> sanātane āliṅgite prabhu āgu hailā
+> sanātane āliṅgite prabhu āgu hailā\
 > pāche bhāge sanātana kahite lāgilā
 
 *sanātane*—a Sanātana Gosvāmī; *āliṅgite*—para abrazar; *prabhu*—Śrī Caitanya Mahāprabhu; *āgu hailā*—se adelantó; *pāche*—hacia atrás; *bhāge*—corre; *sanātana*—Sanātana Gosvāmī; *kahite lāgilā*—comenzó a hablar.

@@ -1,13 +1,13 @@
 ### SB 9.10.11
 
-> रक्षोऽधमेन वृकवद्विपिनेऽसमक्षं
-> वैदेहराजदुहितर्यपयापितायाम
-> भ्रात्रा वने कृपणवत्प्रियया वियुक्तः
+> रक्षोऽधमेन वृकवद्विपिनेऽसमक्षं\
+> वैदेहराजदुहितर्यपयापितायाम\
+> भ्रात्रा वने कृपणवत्प्रियया वियुक्तः\
 > स्त्रीसङ्गिनां गतिमिति प्रथयंश्चचार ॥११॥
 
-> rakṣo-'dhamena vṛkavad vipine 'samakṣaṁ
-> vaideha-rāja-duhitary apayāpitāyām
-> bhrātrā vane kṛpaṇavat priyayā viyuktaḥ
+> rakṣo-'dhamena vṛkavad vipine 'samakṣaṁ\
+> vaideha-rāja-duhitary apayāpitāyām\
+> bhrātrā vane kṛpaṇavat priyayā viyuktaḥ\
 > strī-saṅgināṁ gatim iti prathayaṁś cacāra
 
 *rakṣaḥ-adhamena*—por el más malvado de los *rākṣasas*, Rāvaṇa; *vṛka-vat*—como un tigre; *vipine*—en el bosque; *asamakṣam*—indefensa; *vaideha-rāja-duhitari*—por la situación de madre Sītā, la hija del rey de Videha; *apayāpitāyām*—haber sido raptada; *bhrātrā*—con Su hermano; *vane*—en el bosque; *kṛpaṇa-vat*—como una persona muy afligida; *priyayā*—por su querida esposa; *viyuktaḥ*—separado; *strī-saṅginām*—de personas atraídas por las mujeres o en contacto con ellas; *gatim*—destino; *iti*—así; *prathayan*—dando un ejemplo; *cacāra*—vagó.

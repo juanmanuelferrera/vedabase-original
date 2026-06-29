@@ -1,9 +1,9 @@
 ### CC Madhya 8.102
 
-> চুরি করি’ রাধাকে নিল গোপীগণের ডরে ৷
+> চুরি করি’ রাধাকে নিল গোপীগণের ডরে ৷\
 > অন্যাপেক্ষা হৈলে প্রেমের গাঢ়তা না স্ফুরে ৷৷ ১০২ ৷৷ ॥১০২॥
 
-> curi kari' rādhāke nila gopī-gaṇera ḍare
+> curi kari' rādhāke nila gopī-gaṇera ḍare\
 > anyāpekṣā haile premera gāḍhatā nā sphure
 
 *curi kari'*—robando; *rādhāke*—a Śrīmatī Rādhārāṇī; *nila*—se la llevó; *gopī-gaṇera*—de las gopīs; *ḍare*—por temor; *anya-apekṣā*—dependencia de otros; *haile*—si la hay; *premera*—del amor; *gāḍhatā*—la intensidad; *nā*—no; *sphure*—se manifiesta.

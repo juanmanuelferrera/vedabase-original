@@ -1,11 +1,11 @@
 ### SB 4.21.16
 
-> व्यूढवक्षा बृहच्छ्रोणिर्वलिवल्गुदलोदरः ।
+> व्यूढवक्षा बृहच्छ्रोणिर्वलिवल्गुदलोदरः ।\
 > आवर्तनाभिरोजस्वी काञ्चनोरुरुदग्रपात् ॥१६॥
 
-> vyūḍha-vakṣā bṛhac-chroṇir
-> vali-valgu-dalodaraḥ
-> āvarta-nābhir ojasvī
+> vyūḍha-vakṣā bṛhac-chroṇir\
+> vali-valgu-dalodaraḥ\
+> āvarta-nābhir ojasvī\
 > kāñcanorur udagra-pāt
 
 *vyūḍha*—ancho; *vakṣāḥ*—pecho; *bṛhat-śroṇiḥ*—gruesa cintura; *vali*—arrugas; *valgu*—muy hermoso; *dala*—como una hoja de árbol de los banianos; *udaraḥ*—abdomen; *āvarta*—espiral; *nābhiḥ*—ombligo; *ojasvī*—lustrosos; *kāñcana*—dorados; *uruḥ*—muslos; *udagra-pāt*—empeine arqueado.

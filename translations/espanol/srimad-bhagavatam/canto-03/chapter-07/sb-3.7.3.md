@@ -1,11 +1,11 @@
 ### SB 3.7.3
 
-> क्रीडायामुद्यमोऽर्भस्य कामश्चिक्रीडिषान्यतः ।
+> क्रीडायामुद्यमोऽर्भस्य कामश्चिक्रीडिषान्यतः ।\
 > स्वतस्तृप्तस्य च कथं निवृत्तस्य सदान्यतः ॥३॥
 
-> krīḍāyām udyamo 'rbhasya
-> kāmaś cikrīḍiṣānyataḥ
-> svatas-tṛptasya ca kathaṁ
+> krīḍāyām udyamo 'rbhasya\
+> kāmaś cikrīḍiṣānyataḥ\
+> svatas-tṛptasya ca kathaṁ\
 > nivṛttasya sadānyataḥ
 
 *krīḍāyām*—en lo referente a jugar; *udyamaḥ*—entusiasmo; *arbhasya*—de los muchachos; *kāmaḥ*—deseo; *cikrīḍiṣā*—dispuestos a jugar; *anyataḥ*—con otros muchachos; *svataḥ-tṛptasya*—para aquel que está satisfecho en sí mismo; *ca*—también; *katham*—para qué; *nivṛttasya*—aquel que está desapegado; *sadā*—en todo momento; *anyataḥ*—de lo contrario.

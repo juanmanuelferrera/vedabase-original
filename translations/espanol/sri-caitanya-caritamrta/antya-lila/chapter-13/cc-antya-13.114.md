@@ -1,9 +1,9 @@
 ### CC Antya 13.114
 
-> পুনরপি একবার আসিহ নীলাচলে ।”
+> পুনরপি একবার আসিহ নীলাচলে ।”\
 > এত বলি’ কণ্ঠ-মালা দিলা তাঁর গলে ॥১১৪॥
 
-> punarapi eka-bāra āsiha nīlācale"
+> punarapi eka-bāra āsiha nīlācale"\
 > eta bali' kaṇṭha-mālā dilā tāṅra gale
 
 *punarapi*—de nuevo, también; *eka-bāra*—una vez; *āsiha nīlācale*—ven a Jagannātha Purī; *eta bali'*—diciendo esto; *kaṇṭha-mālā*—collar de cuentas; *dilā*—le dio; *tāṅra gale*—en su cuello.

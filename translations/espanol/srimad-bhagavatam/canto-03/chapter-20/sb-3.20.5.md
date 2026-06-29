@@ -1,11 +1,11 @@
 ### SB 3.20.5
 
-> तयोः संवदतोः सूत प्रवृत्ता ह्यमलाः कथाः ।
+> तयोः संवदतोः सूत प्रवृत्ता ह्यमलाः कथाः ।\
 > आपो गाङ्गा इवाघघ्नीर्हरेः पादाम्बुजाश्रयाः ॥५॥
 
-> tayoḥ saṁvadatoḥ sūta
-> pravṛttā hy amalāḥ kathāḥ
-> āpo gāṅgā ivāgha-ghnīr
+> tayoḥ saṁvadatoḥ sūta\
+> pravṛttā hy amalāḥ kathāḥ\
+> āpo gāṅgā ivāgha-ghnīr\
 > hareḥ pādāmbujāśrayāḥ
 
 *tayoḥ*—mientras los dos (Maitreya y Vidura); *saṁvadatoḥ*—conversaban; *sūta*—¡oh, Sūta!; *pravṛttāḥ*—surgieron; *hi*—ciertamente; *amalāḥ*—inmaculadas; *kathāḥ*—narraciones; *āpaḥ*—aguas; *gāṅgāḥ*—del río Ganges; *iva*—como; *agha-ghnīḥ*—que destruyen todos los pecados; *hareḥ*—del Señor; *pāda-ambuja*—los pies de loto; *āśrayāḥ*—refugiándose.

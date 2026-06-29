@@ -1,13 +1,13 @@
 ### CC Madhya 23.1
 
-> চিরাদদত্তং নিজ-গুপ্তবিত্তং
-> স্বপ্রেম-নামামৃতমত্যুদারঃ ।
-> আপামরং যো বিততার গৌরঃ
+> চিরাদদত্তং নিজ-গুপ্তবিত্তং\
+> স্বপ্রেম-নামামৃতমত্যুদারঃ ।\
+> আপামরং যো বিততার গৌরঃ\
 > কৃষ্ণো জনেভ্যস্তমহং প্ৰপদ্যে ॥১॥
 
-> cirād adattaṁ nija-gupta-vittaṁ
-> svaprema-nāmāmṛtam atyudāraḥ
-> āpāmaraṁ yo vitatāra gauraḥ
+> cirād adattaṁ nija-gupta-vittaṁ\
+> svaprema-nāmāmṛtam atyudāraḥ\
+> āpāmaraṁ yo vitatāra gauraḥ\
 > kṛṣṇo janebhyas tam ahaṁ prapadye
 
 *cirāt*—for a long time; *adattam*—not given; *nija-gupta-vittam*—His own personal confidential property; *sva-prema*—of love for Him; *nāma*—of the holy name; *amṛtam*—the ambrosia; *ati-udāraḥ*—most munificent; *ā-pāmaram*—even down to the lowest of men; *yaḥ*—one who; *vitatāra*—distributed; *gauraḥ*—Śrī Gaurasundara; *kṛṣṇaḥ*—Lord Kṛṣṇa Himself; *janebhyaḥ*—to the people in general; *tam*—to Him; *aham*—I; *prapadye*—offer obeisances.

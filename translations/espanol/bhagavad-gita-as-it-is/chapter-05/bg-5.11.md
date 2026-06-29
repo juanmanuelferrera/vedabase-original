@@ -1,11 +1,11 @@
 ### Bg 5.11
 
-> कायेन मनसा बुद्ध्या केवलैरिन्द्रियैरपि ।
+> कायेन मनसा बुद्ध्या केवलैरिन्द्रियैरपि ।\
 > योगिनः कर्म कुर्वन्ति सङ्गं त्यक्त्वात्मशुद्धये ॥११॥
 
-> kāyena manasā buddhyā
-> kevalair indriyair api
-> yoginaḥ karma kurvanti
+> kāyena manasā buddhyā\
+> kevalair indriyair api\
+> yoginaḥ karma kurvanti\
 > saṅgaṁ tyaktvātma-śuddhaye
 
 *kāyena*—con el cuerpo; *manasā*—con la mente; *buddhyā*—con la inteligencia; *kevalaiḥ*—purificados; *indriyaiḥ*—con los sentidos; *api*—incluso con; *yoginaḥ*—las personas conscientes de Kṛṣṇa; *karma*—acciones; *kurvanti*—realizan; *saṅgam*—apego; *tyaktvā*—abandonando; *ātma*—ser; *śuddhaye*—con el propósito de purificarse.

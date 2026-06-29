@@ -1,9 +1,9 @@
 ### CC Antya 3.128
 
-> তুলসীকে, ঠাকুরকে নমস্কার করি’ ।
+> তুলসীকে, ঠাকুরকে নমস্কার করি’ ।\
 > দ্বারে বসি’ নাম শুনে, বলে ‘হরি’ ‘হরি’ ॥১২৮॥
 
-> tulasīke, ṭhākurake namaskāra kari'
+> tulasīke, ṭhākurake namaskāra kari'\
 > dvāre vasi' nāma śune, bale 'hari' 'hari'
 
 *tulasīke*—unto the *tulasī* plant; *ṭhākurake*—and unto Haridāsa Ṭhākura; *namaskāra kari'*—offers her obeisances; *dvāre vasi'*—sitting at the door; *nāma śune*—hears the holy name; *bale*—chants; *hari hari*—the holy name of the Lord.

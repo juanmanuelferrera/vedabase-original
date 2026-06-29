@@ -1,11 +1,11 @@
 ### Bg 2.62
 
-> ध्यायतो विषयान्पुंसः सङ्गस्तेषूपजायते ।
+> ध्यायतो विषयान्पुंसः सङ्गस्तेषूपजायते ।\
 > सङ्गात्सञ्जायते कामः कामात्क्रोधोऽभिजायते ॥६२॥
 
-> dhyāyato viṣayān puṁsaḥ
-> saṅgas teṣūpajāyate
-> saṅgāt sañjāyate kāmaḥ
+> dhyāyato viṣayān puṁsaḥ\
+> saṅgas teṣūpajāyate\
+> saṅgāt sañjāyate kāmaḥ\
 > kāmāt krodho'bhijāyate
 
 *dhyāyataḥ*—al contemplar; *viṣayān*—objetos de los sentidos; *puṁsaḥ*—de la persona; *saṅgaḥ*—apego; *teṣu*—en los objetos de los sentidos; *upajāyate*—desarrolla; *saṅgāt*—apego; *sañjāyate*—desarrolla; *kāmaḥ*—deseo; *kāmāt*—del deseo; *krodhaḥ*—ira; *abhijāyate*—se manifiesta.

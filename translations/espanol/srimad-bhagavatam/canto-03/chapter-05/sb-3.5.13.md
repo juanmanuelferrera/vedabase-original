@@ -1,11 +1,11 @@
 ### SB 3.5.13
 
-> सा श्रद्दधानस्य विवर्धमाना विरक्तिमन्यत्र करोति पुंसः ।
+> सा श्रद्दधानस्य विवर्धमाना विरक्तिमन्यत्र करोति पुंसः ।\
 > हरेः पदानुस्मृतिनिर्वृतस्य समस्तदुःखाप्ययमाशु धत्ते ॥१३॥
 
-> sā śraddadhānasya vivardhamānā
-> viraktim anyatra karoti puṁsaḥ
-> hareḥ padānusmṛti-nirvṛtasya
+> sā śraddadhānasya vivardhamānā\
+> viraktim anyatra karoti puṁsaḥ\
+> hareḥ padānusmṛti-nirvṛtasya\
 > samasta-duḥkhāpyayam āśu dhatte
 
 *sā*—esos relatos acerca de Kṛṣṇa, o *kṛṣṇa-kathā*; *śraddadhānasya*—de aquel que está ansioso de oír; *vivardhamānā*—aumentando gradualmente; *viraktim*—indiferencia; *anyatra*—en otras cosas (que no sean esos relatos); *karoti*—hace; *puṁsaḥ*—de aquel que está ocupado así; *hareḥ*—del Señor; *pada-anusmṛti*—recuerdo constante de los pies de loto del Señor; *nirvṛtasya*—aquel que ha logrado esa dicha trascendental; *samasta-duḥkha*—todos los sufrimientos; *apyayam*—desvanecidos; *āśu*—sin demora; *dhatte*—ejecuta.

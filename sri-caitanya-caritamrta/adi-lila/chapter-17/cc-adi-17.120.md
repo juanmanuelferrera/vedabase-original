@@ -1,9 +1,9 @@
 ### CC Adi 17.120
 
-> এইমত নৃত্য হইল চারি প্রহর ।
+> এইমত নৃত্য হইল চারি প্রহর ।\
 > সন্ধ্যায় গঙ্গাস্নান করি’ সবে গেলা ঘর ॥১২০॥
 
-> ei-mata nṛtya ha-ila cāri prahara
+> ei-mata nṛtya ha-ila cāri prahara\
 > sandhyāya gaṅgā-snāna kari' sabe gelā ghara
 
 *ei-mata*—in this way; *nṛtya*—dancing; *ha-ila*—was performed; *cāri*—four; *prahara*—a period of time lasting three hours; *sandhyāya*—in the evening; *gaṅgā-snāna*—taking bath in the Ganges; *kari'*—finishing; *sabe*—all; *gelā*—returned; *ghara*—home.

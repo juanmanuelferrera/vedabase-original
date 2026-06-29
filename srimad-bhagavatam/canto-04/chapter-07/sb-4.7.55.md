@@ -1,13 +1,13 @@
 ### SB 4.7.55
 
-> मैत्रेय उवाच
-> एवं भगवतादिष्टः प्रजापतिपतिर्हरिम् ।
+> मैत्रेय उवाच\
+> एवं भगवतादिष्टः प्रजापतिपतिर्हरिम् ।\
 > अर्चित्वा क्रतुना स्वेन देवानुभयतोऽयजत् ॥५५॥
 
-> maitreya uvāca
-> evaṁ bhagavatādiṣṭaḥ
-> prajāpati-patir harim
-> arcitvā kratunā svena
+> maitreya uvāca\
+> evaṁ bhagavatādiṣṭaḥ\
+> prajāpati-patir harim\
+> arcitvā kratunā svena\
 > devān ubhayato 'yajat
 
 *maitreyaḥ*—Maitreya; *uvāca*—said; *evam*—thus; *bhagavatā*—by the Supreme Personality of Godhead; *ādiṣṭaḥ*—having been instructed; *prajāpati-patiḥ*—the head of all the Prajāpatis; *harim*—Hari; *arcitvā*—after worshiping; *kratunā*—with the sacrificial ceremonies; *svena*—his own; *devān*—the demigods; *ubhayataḥ*—separately; *ayajat*—worshiped.

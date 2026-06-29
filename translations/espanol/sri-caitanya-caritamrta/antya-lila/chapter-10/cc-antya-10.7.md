@@ -1,9 +1,9 @@
 ### CC Antya 10.7
 
-> রাসে যৈছে ঘর যাইতে গোপীরে আজ্ঞা দিলা ।
+> রাসে যৈছে ঘর যাইতে গোপীরে আজ্ঞা দিলা ।\
 > তাঁর আজ্ঞা ভাঙ্গি তাঁর সঙ্গে সে রহিলা ॥৭॥
 
-> rāse yaiche ghara yāite gopīre ājñā dilā
+> rāse yaiche ghara yāite gopīre ājñā dilā\
 > tāṅra ājñā bhāṅgi' tāṅra saṅge se rahilā
 
 *rāse*—durante la danza del rāsa; *yaiche*—así como; *ghara yāite*—que regresasen a casa; *gopīre*—a las gopīs; *ājñā dilā*—el Señor Kṛṣṇa ordenó; *tāṅra*—Su; *ājñā*—orden; *bhāṅgi'*—desobedeciendo; *tāṅra saṅge*—en Su compañía; *se*—ellas; *rahilā*—permanecieron.

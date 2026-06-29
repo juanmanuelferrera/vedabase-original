@@ -1,11 +1,11 @@
 ### SB 8.13.27
 
-> भविता रुद्रसावर्णी राजन्द्वादशमो मनुः
+> भविता रुद्रसावर्णी राजन्द्वादशमो मनुः\
 > देववानुपदेवश्च देवश्रेष्ठादयः सुताः ॥२७॥
 
-> bhavitā rudra-sāvarṇī
-> rājan dvādaśamo manuḥ
-> devavān upadevaś ca
+> bhavitā rudra-sāvarṇī\
+> rājan dvādaśamo manuḥ\
+> devavān upadevaś ca\
 > devaśreṣṭhādayaḥ sutāḥ
 
 *bhavitā*—aparecerá; *rudra-sāvarṇiḥ*—Rudra-sāvarṇi; *rājan*—¡oh, rey!; *dvā-daśamaḥ*—el duodécimo; *manuḥ*—*manu*; *devavān*—Devavān; *upadevaḥ*—Upadeva; *ca*—y; *devaśreṣṭha*—Devaśreṣṭha; *ādayaḥ*—esas personas; *sutāḥ*—** hijos de Manu.

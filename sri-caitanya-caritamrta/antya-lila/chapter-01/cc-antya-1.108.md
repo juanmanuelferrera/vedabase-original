@@ -1,13 +1,13 @@
 ### CC Antya 1.108
 
-> ভৃত্যস্য পশ্যতি গুরূনপি নাপরাধান্
-> সেবাং মনাগপি কৃতাং বহুধাভ্যুপৈতি ।
-> আবিষ্করোতি পিশুনেষ্বপি নাভ্যসূয়াং
+> ভৃত্যস্য পশ্যতি গুরূনপি নাপরাধান্\
+> সেবাং মনাগপি কৃতাং বহুধাভ্যুপৈতি ।\
+> আবিষ্করোতি পিশুনেষ্বপি নাভ্যসূয়াং\
 > শীলেন নির্মলমতিঃ পুরুষোত্তমোঽয়ম্ ॥১০৮॥
 
-> bhṛtyasya paśyati gurūn api nāparādhān
-> sevāṁ manāg api kṛtāṁ bahudhābhyupaiti
-> āviṣkaroti piśuneṣv api nābhyasūyāṁ
+> bhṛtyasya paśyati gurūn api nāparādhān\
+> sevāṁ manāg api kṛtāṁ bahudhābhyupaiti\
+> āviṣkaroti piśuneṣv api nābhyasūyāṁ\
 > śīlena nirmala-matiḥ puruṣottamo 'yam
 
 *bhṛtyasya*—of the servant; *paśyati*—He sees; *gurūn*—very great; *api*—although; *na*—not; *aparādhān*—the offenses; *sevām*—service; *manāk api*—however small; *kṛtām*—performed; *bahu-dhā*—as great; *abhyupaiti*—accepts,; *āviṣkaroti*—manifests; *piśuneṣu*—on the enemies; *api*—also; *na*—not; *abhyasūyām*—envy; *śīlena*—by gentle behavior; *nirmala-matiḥ*—naturally clean-minded; *puruṣottamaḥ*—the Supreme Personality of Godhead, the best of all personalities; *ayam*—this.

@@ -1,11 +1,11 @@
 ### SB 3.30.18
 
-> एवं कुटुम्बभरणे व्यापृतात्माजितेन्द्रियः ।
+> एवं कुटुम्बभरणे व्यापृतात्माजितेन्द्रियः ।\
 > म्रियते रुदतां स्वानामुरुवेदनयास्तधीः ॥१८॥
 
-> evaṁ kuṭumba-bharaṇe
-> vyāpṛtātmājitendriyaḥ
-> mriyate rudatāṁ svānām
+> evaṁ kuṭumba-bharaṇe\
+> vyāpṛtātmājitendriyaḥ\
+> mriyate rudatāṁ svānām\
 > uru-vedanayāsta-dhīḥ
 
 *evam*—así; *kuṭumba-bharaṇe*—en mantener una familia; *vyāpṛta*—absorta; *ātmā*—la mente; *ajita*—descontrolados; *indriyaḥ*—los sentidos; *mriyate*—muere; *rudatām*—mientras lloran; *svānām*—sus parientes; *uru*—gran; *vedanayā*—con dolor; *asta*—privado de; *dhīḥ*—conciencia.

@@ -1,11 +1,11 @@
 ### SB 4.4.23
 
-> गोत्रं त्वदीयं भगवान्वृषध्वजो दाक्षायणीत्याह यदा सुदुर्मनाः ।
+> गोत्रं त्वदीयं भगवान्वृषध्वजो दाक्षायणीत्याह यदा सुदुर्मनाः ।\
 > व्यपेतनर्मस्मितमाशु तदाहं व्युत्स्रक्ष्य एतत्कुणपं त्वदङ्गजम् ॥२३॥
 
-> gotraṁ tvadīyaṁ bhagavān vṛṣadhvajo
-> dākṣāyaṇīty āha yadā sudurmanāḥ
-> vyapeta-narma-smitam āśu tadāhaṁ
+> gotraṁ tvadīyaṁ bhagavān vṛṣadhvajo\
+> dākṣāyaṇīty āha yadā sudurmanāḥ\
+> vyapeta-narma-smitam āśu tadāhaṁ\
 > vyutsrakṣya etat kuṇapaṁ tvad-aṅgajam
 
 *gotram*—family relationship; *tvadīyam*—your; *bhagavān*—the possessor of all opulences; *vṛṣadhvajaḥ*—Lord Śiva; *dākṣāyaṇī*—Dākṣāyaṇī (the daughter of Dakṣa); *iti*—thus; *āha*—calls; *yadā*—when; *sudurmanāḥ*—very morose; *vyapeta*—disappear; *narma-smitam*—my jolliness and smile; *āśu*—immediately; *tadā*—then; *aham*—I; *vyutsrakṣye*—I shall give up; *etat*—this (body); *kuṇapam*—dead body; *tvat-aṅga-jam*—produced from your body.

@@ -1,11 +1,11 @@
 ### SB 7.3.28
 
-> नम आद्याय बीजाय ज्ञआनविज्ञआनमूर्तये
+> नम आद्याय बीजाय ज्ञआनविज्ञआनमूर्तये\
 > प्राणेन्द्रियमनोबुद्धि विकारैर्व्यक्तिमीयुषे ॥२८॥
 
-> nama ādyāya bījāya
-> jñāna-vijñāna-mūrtaye
-> prāṇendriya-mano-buddhi-
+> nama ādyāya bījāya\
+> jñāna-vijñāna-mūrtaye\
+> prāṇendriya-mano-buddhi-\
 > vikārair vyaktim īyuṣe
 
 *namaḥ*—yo ofrezco respetuosas reverencias; *ādyāya*—a la criatura viviente original; *bījāya*—la semilla de la manifestación cósmica; *jñāna*—de conocimiento; *vijñāna*—y de aplicación práctica; *mūrtaye*—a la deidad o forma; *prāṇa*—del aire vital; *indriya*—de los sentidos; *manaḥ*—de la mente; *buddhi*—de la inteligencia; *vikāraiḥ*—por transformaciones; *vyaktim*—manifestación; *īyuṣe*—que ha obtenido.

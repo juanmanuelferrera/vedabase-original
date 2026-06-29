@@ -1,11 +1,11 @@
 ### SB 7.15.26
 
-> यस्य साक्षाद्भगवति ज्ञआनदीपप्रदे गुरौ
+> यस्य साक्षाद्भगवति ज्ञआनदीपप्रदे गुरौ\
 > मर्त्यासद्धीः श्रुतं तस्य सर्वं कुञ्जरशौचवत ॥२६॥
 
-> yasya sākṣād bhagavati
-> jñāna-dīpa-prade gurau
-> martyāsad-dhīḥ śrutaṁ tasya
+> yasya sākṣād bhagavati\
+> jñāna-dīpa-prade gurau\
+> martyāsad-dhīḥ śrutaṁ tasya\
 > sarvaṁ kuñjara-śaucavat
 
 *yasya*—aquel que; *sākṣāt*—directamente; *bhagavati*—la Suprema Personalidad de Dios; *jñāna-dīpa-prade*—que ilumina con la antorcha del conocimiento; *gurau*—al maestro espiritual; *martya-asat-dhīḥ*—considera al maestro espiritual un ser humano corriente y sostiene esa actitud desfavorable; *śrutam*—conocimiento védico; *tasya*—para él; *sarvam*—todo; *kuñjara-śauca-vat*—como el baño de un elefante en un lago.

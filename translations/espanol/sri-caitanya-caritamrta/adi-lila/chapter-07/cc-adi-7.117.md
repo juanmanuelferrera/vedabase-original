@@ -1,9 +1,9 @@
 ### CC Adi 7.117
 
-> জীবতত্ত্ব — শক্তি, কৃষ্ণতত্ত্ব — শক্তিমান্ ।
+> জীবতত্ত্ব — শক্তি, কৃষ্ণতত্ত্ব — শক্তিমান্ ।\
 > গীতা-বিষ্ণুপুরাণাদি তাহাতে প্রমাণ ॥১১৭॥
 
-> jīva-tattva--śakti, kṛṣṇa-tattva--śaktimān
+> jīva-tattva--śakti, kṛṣṇa-tattva--śaktimān\
 > gītā-viṣṇupurāṇādi tāhāte pramāṇa
 
 *jīva-tattva*—la verdad de las entidades vivientes; *śakti*—energía; *kṛṣṇa-tattva*—la verdad de la Suprema Personalidad de Dios; *śakti-mān*—el poseedor de las energías; *gītā*—el *Bhagavad-gītā*; *viṣṇu-purāṇa-ādi*—el *Viṣṇu Purāṇa* y otros *Purāṇas*; *tāhāte*—en ellos; *pramāṇa*—hay evidencias.

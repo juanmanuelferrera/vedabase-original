@@ -1,9 +1,9 @@
 ### CC Madhya 20.308
 
-> মায়াসঙ্গ-বিকারী রুদ্র — ভিন্নাভিন্ন রূপ ।
+> মায়াসঙ্গ-বিকারী রুদ্র — ভিন্নাভিন্ন রূপ ।\
 > জীবতত্ত্ব নহে, নহে কৃষ্ণের ‘স্বরূপ’ ॥৩০৮॥
 
-> māyā-saṅga-vikārī rudra--bhinnābhinna rūpa
+> māyā-saṅga-vikārī rudra--bhinnābhinna rūpa\
 > jīva-tattva nahe, nahe kṛṣṇera 'svarūpa'
 
 *māyā-saṅga*—por la asociación con la māyā; *vikārī*—transformado; *rudra*—la forma de Rudra; *bhinna-abhinna rūpa*—con diferentes tipos de formas; *jīva-tattva nahe*—aun así no se le llama jīva-tattva; *nahe*—ni; *kṛṣṇera*—del Señor Kṛṣṇa; *sva-rūpa*—forma personal.

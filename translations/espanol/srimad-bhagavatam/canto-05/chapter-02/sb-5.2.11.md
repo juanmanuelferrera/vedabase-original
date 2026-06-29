@@ -1,13 +1,13 @@
 ### SB 5.2.11
 
-> किं सम्भृतं रुचिरयोर्द्विज शृङ्गयोस्ते
-> मध्ये कृशो वहसि यत्र दृशिः श्रिता मे
-> पङ्कोऽरुणः सुरभिरात्मविषाण ईदृग
+> किं सम्भृतं रुचिरयोर्द्विज शृङ्गयोस्ते\
+> मध्ये कृशो वहसि यत्र दृशिः श्रिता मे\
+> पङ्कोऽरुणः सुरभिरात्मविषाण ईदृग\
 > येनाश्रमं सुभग मे सुरभीकरोषि ॥११॥
 
-> kiṁ sambhṛtaṁ rucirayor dvija śṛṅgayos te
-> madhye kṛśo vahasi yatra dṛśiḥ śritā me
-> paṅko 'ruṇaḥ surabhīr ātma-viṣāṇa īdṛg
+> kiṁ sambhṛtaṁ rucirayor dvija śṛṅgayos te\
+> madhye kṛśo vahasi yatra dṛśiḥ śritā me\
+> paṅko 'ruṇaḥ surabhīr ātma-viṣāṇa īdṛg\
 > yenāśramaṁ subhaga me surabhī-karoṣi
 
 *kim*—qué; *sambhṛtam*—llenos; *rucirayoḥ*—muy hermosos; *dvija*—¡oh, *brāhmaṇa*!; *śṛṅgayoḥ*—en dos cuernos; *te*—tuyas; *madhye*—en medio; *kṛśaḥ*—delgada; *vahasi*—llevas; *yatra*—a donde; *dṛśiḥ*—ojos; *śritā*—apegados; *me*—míos; *paṅkaḥ*—polvo; *aruṇaḥ*—rojo; *surabhiḥ*—fragante; *ātma-viṣāṇe*—en los dos cuernos; *īdṛk*—esos; *yena*—por medio de los cuales; *āśramam*—lugar de residencia; *su-bhaga*—¡oh, muy afortunado!; *me*—mío; *surabhī-karoṣi*—estás perfumando.

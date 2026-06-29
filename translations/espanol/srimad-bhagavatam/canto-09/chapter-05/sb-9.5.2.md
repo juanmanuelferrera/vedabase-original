@@ -1,11 +1,11 @@
 ### SB 9.5.2
 
-> तस्य सोद्यममावीक्ष्य पादस्पर्शविलज्जितः
+> तस्य सोद्यममावीक्ष्य पादस्पर्शविलज्जितः\
 > अस्तावीत्तद्धरेरस्त्रं कृपया पीडितो भृशम ॥२॥
 
-> tasya sodyamam āvīkṣya
-> pāda-sparśa-vilajjitaḥ
-> astāvīt tad dharer astraṁ
+> tasya sodyamam āvīkṣya\
+> pāda-sparśa-vilajjitaḥ\
+> astāvīt tad dharer astraṁ\
 > kṛpayā pīḍito bhṛśam
 
 *tasya*—de Durvāsā; *saḥ*—él, Mahārāja Ambarīṣa; *udyamam*—el esfuerzo; *āvīkṣya*—después de ver; *pāda-sparśa-vilajjitaḥ*—avergonzarse de que Durvāsā tocase sus pies de loto; *astāvīt*—ofreció oraciones; *tat*—a aquella; *hareḥ astram*—arma de la Suprema Personalidad de Dios; *kṛpayā*—con misericordia; *pīḍitaḥ*—afligido; *bhṛśam*—mucho.

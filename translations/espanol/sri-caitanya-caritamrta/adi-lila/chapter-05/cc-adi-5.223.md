@@ -1,9 +1,9 @@
 ### CC Adi 5.223
 
-> যাঁর মাধুরীতে করে লক্ষ্মী আকর্ষণ ।
+> যাঁর মাধুরীতে করে লক্ষ্মী আকর্ষণ ।\
 > রূপগোসাঞি করিয়াছেন সে-রূপ বর্ণন ॥২২৩॥
 
-> yāṅra mādhurīte kare lakṣmī ākarṣaṇa
+> yāṅra mādhurīte kare lakṣmī ākarṣaṇa\
 > rūpa-gosāñi kariyāchena se-rūpa varṇana
 
 *yāṅra*—de quien; *mādhurīte*—por la dulzura; *kare*—atrae; *lakṣmī*—la diosa de la fortuna; *ākarṣaṇa*—atracción; *rūpa-gosāñi*—Śrīla Rūpa Gosvāmī; *kariyāchena*—ha hecho; *se*—de esa; *rūpa*—belleza; *varṇana*—descripción.

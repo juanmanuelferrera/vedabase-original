@@ -1,10 +1,10 @@
 ### CC Madhya 21.39
 
-> মহাবিষ্ণু, পদ্মনাভ, ক্ষীরোদকস্বামী ।
+> মহাবিষ্ণু, পদ্মনাভ, ক্ষীরোদকস্বামী ।\
 > এই তিন — স্থূল-সূক্ষ্ম-সর্ব-অন্তর্যামী ॥৩৯॥
 
-> mahā-viṣṇu, padmanābha, kṣīrodaka-svāmī
-> ei tina--sthūla-sūkṣma-sarva-antaryāmī
+> mahā-viṣṇu, padmanābha, kṣīrodaka-svāmī\
+> ei tina--sthūla-sūkṣma-sarva-antaryāmī\
 > SYNONYMS
 
 *mahā-viṣṇu*—Mahā-Viṣṇu; *padmanābha*—Padmanābha (Garbhodakaśāyī Viṣṇu); *kṣīra-udaka-svāmī*—Kṣīrodakaśāyī Viṣṇu; *ei tina*—todos estos tres; *sthūla-sūkṣma*—burdo y sutil; *sarva*—de todo; *antaryāmī*—la Superalma.

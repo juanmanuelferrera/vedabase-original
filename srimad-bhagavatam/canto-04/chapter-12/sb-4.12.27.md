@@ -1,11 +1,11 @@
 ### SB 4.12.27
 
-> एतद्विमानप्रवरमुत्तमश्लोकमौलिना ।
+> एतद्विमानप्रवरमुत्तमश्लोकमौलिना ।\
 > उपस्थापितमायुष्मन्नधिरोढुं त्वमर्हसि ॥२७॥
 
-> etad vimāna-pravaram
-> uttamaśloka-maulinā
-> upasthāpitam āyuṣmann
+> etad vimāna-pravaram\
+> uttamaśloka-maulinā\
+> upasthāpitam āyuṣmann\
 > adhiroḍhuṁ tvam arhasi
 
 *etat*—this; *vimāna*—airplane; *pravaram*—unique; *uttamaśloka*—the Supreme Personality of Godhead; *maulinā*—by the head of all living entities; *upasthāpitam*—sent; *āyuṣman*—O immortal one; *adhiroḍhum*—to board; *tvam*—you; *arhasi*—are worthy.

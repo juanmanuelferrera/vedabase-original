@@ -1,11 +1,11 @@
 ### SB 2.6.31
 
-> नारायणे भगवति तदिदं विश्वमाहितम् ।
+> नारायणे भगवति तदिदं विश्वमाहितम् ।\
 > गृहीतमायोरुगुणः सर्गादावगुणः स्वतः ॥३१॥
 
-> nārāyaṇe bhagavati
-> tad idaṁ viśvam āhitam
-> gṛhīta-māyoru-guṇaḥ
+> nārāyaṇe bhagavati\
+> tad idaṁ viśvam āhitam\
+> gṛhīta-māyoru-guṇaḥ\
 > sargādāv aguṇaḥ svataḥ
 
 *nārāyaṇe*—unto Nārāyaṇa; *bhagavati*—the Personality of Godhead; *tat idam*—all these material manifestations; *viśvam*—all the universes; *āhitam*—situated; *gṛhīta*—having accepted; *māyā*—material energies; *uru-guṇaḥ*—greatly powerful; *sarga-ādau*—in creation, maintenance and destruction; *aguṇaḥ*—without affinity for the material modes; *svataḥ*—self-sufficiently.

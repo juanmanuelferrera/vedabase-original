@@ -1,11 +1,11 @@
 ### Bg 3.33
 
-> सदृशं चेष्टते स्वस्याः प्रकृतेर्ज्ञानवानपि ।
+> सदृशं चेष्टते स्वस्याः प्रकृतेर्ज्ञानवानपि ।\
 > प्रकृतिं यान्ति भूतानि निग्रहः किं करिष्यति ॥३३॥
 
-> sadṛśaṁ ceṣṭate svasyāḥ
-> prakṛter jñānavān api
-> prakṛtiṁ yānti bhūtāni
+> sadṛśaṁ ceṣṭate svasyāḥ\
+> prakṛter jñānavān api\
+> prakṛtiṁ yānti bhūtāni\
 > nigrahaḥ kiṁ kariṣyati
 
 *sadṛśam*—de acuerdo; *ceṣṭate*—trata; *svasyāḥ*—en su propia naturaleza; *prakṛteḥ*—modalidades de la naturaleza; *jñānavān*—los entendidos; *api*—aunque; *prakṛtim*—naturaleza; *yānti*—pasa por; *bhūtāni*—todas las entidades vivientes; *nigrahaḥ*—represión; *kim*—qué; *kariṣyati*—puede hacer.

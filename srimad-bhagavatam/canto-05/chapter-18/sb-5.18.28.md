@@ -1,11 +1,11 @@
 ### SB 5.18.28
 
-> भवान्युगान्तार्णव ऊर्मिमालिनि क्षोणीमिमामोषधिवीरुधां निधिम
+> भवान्युगान्तार्णव ऊर्मिमालिनि क्षोणीमिमामोषधिवीरुधां निधिम\
 > मया सहोरु क्रमतेऽज ओजसा तस्मै जगत्प्राणगणात्मने नम इति ॥२८॥
 
-> bhavān yugāntārṇava ūrmi-mālini
-> kṣoṇīm imām oṣadhi-vīrudhāṁ nidhim
-> mayā sahoru kramate 'ja ojasā
+> bhavān yugāntārṇava ūrmi-mālini\
+> kṣoṇīm imām oṣadhi-vīrudhāṁ nidhim\
+> mayā sahoru kramate 'ja ojasā\
 > tasmai jagat-prāṇa-gaṇātmane nama iti
 
 *bhavān*—Your Lordship; *yuga-anta-arṇave*—in the water of devastation at the end of the millennium; *ūrmi-mālini*—possessing rows of big waves; *kṣoṇīm*—the planet earth; *imām*—this; *oṣadhi-vīrudhām*—of all kinds of herbs and drugs; *nidhim*—the storehouse; *mayā*—me; *saha*—with; *uru*—great; *kramate*—You roamed; *aja*—O unborn one; *ojasā*—with speed; *tasmai*—unto Him; *jagat*—of the entire universe; *prāṇa-gaṇa-ātmane*—the ultimate source of life; *namaḥ*—my respectful obeisances; *iti*—thus.

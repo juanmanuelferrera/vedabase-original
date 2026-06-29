@@ -1,11 +1,11 @@
 ### SB 9.10.27
 
-> न वै वेद महाभाग भवान्कामवशं गतः
+> न वै वेद महाभाग भवान्कामवशं गतः\
 > तेजोऽनुभावं सीताया येन नीतो दशामिमाम ॥२७॥
 
-> na vai veda mahā-bhāga
-> bhavān kāma-vaśaṁ gataḥ
-> tejo 'nubhāvaṁ sītāyā
+> na vai veda mahā-bhāga\
+> bhavān kāma-vaśaṁ gataḥ\
+> tejo 'nubhāvaṁ sītāyā\
 > yena nīto daśām imām
 
 *na*—no; *vai*—en verdad; *veda*—sabías; *mahā-bhāga*—¡oh, muy afortunado!; *bhavān*—tú mismo; *kāma-vaśam*—bajo la influencia de los deseos de disfrute; *gataḥ*—llegar a estar; *tejaḥ*—por la influencia; *anubhāvam*—como resultado de esa influencia; *sītāyāḥ*—de madre Sītā; *yena*—por lo cual; *nītaḥ*—puesto en; *daśām*—una condición; *imām*—como esta (la destrucción).

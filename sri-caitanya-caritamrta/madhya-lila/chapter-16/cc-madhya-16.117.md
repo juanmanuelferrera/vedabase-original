@@ -1,9 +1,9 @@
 ### CC Madhya 16.117
 
-> সন্ধ্যাতে চলিবে প্রভু, — নৃপতি শুনিল ।
+> সন্ধ্যাতে চলিবে প্রভু, — নৃপতি শুনিল ।\
 > হস্তী-উপর তাম্বুগৃহে স্ত্রীগণে চড়াইল ॥১১৭॥
 
-> sandhyāte calibe prabhu,—nṛpati śunila
+> sandhyāte calibe prabhu,—nṛpati śunila\
 > hastī-upara tāmbu-gṛhe strī-gaṇe caḍāila
 
 *sandhyāte*—in the evening; *calibe prabhu*—the Lord will start; *nṛpati śunila*—the King heard; *hastī-upara*—upon the backs of elephants; *tāmbu-gṛhe*—in tents; *strī-gaṇe*—all the ladies; *caḍāila*—made get up.

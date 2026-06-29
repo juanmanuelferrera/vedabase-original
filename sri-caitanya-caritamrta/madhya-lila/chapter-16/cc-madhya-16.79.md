@@ -1,9 +1,9 @@
 ### CC Madhya 16.79
 
-> জগন্নাথ পরেন তথা ‘মাড়ুয়া’ বসন ।
+> জগন্নাথ পরেন তথা ‘মাড়ুয়া’ বসন ।\
 > দেখিয়া সঘৃণ হৈল বিদ্যানিধির মন ॥৭৯॥
 
-> jagannātha parena tathā 'māḍuyā' vasana
+> jagannātha parena tathā 'māḍuyā' vasana\
 > dekhiyā saghṛṇa haila vidyānidhira mana
 
 *jagannātha*—Lord Jagannātha; *parena*—puts on; *tathā*—there; *māḍuyā vasana*—cloth with starch; *dekhiyā*—seeing; *sa-ghṛṇa*—with hatred; *haila*—was; *vidyānidhira mana*—the mind of Vidyānidhi.

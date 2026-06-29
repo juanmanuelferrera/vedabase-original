@@ -1,13 +1,13 @@
 ### CC Madhya 24.115
 
-> তস্যারবিন্দনয়নস্য পদারবিন্দ-
-> কিঞ্জল্কমিশ্রতুলসীমকরন্দবায়ুঃ ।
-> অন্তর্গতঃ স্ববিবরেণ চকার তেষাং
+> তস্যারবিন্দনয়নস্য পদারবিন্দ-\
+> কিঞ্জল্কমিশ্রতুলসীমকরন্দবায়ুঃ ।\
+> অন্তর্গতঃ স্ববিবরেণ চকার তেষাং\
 > সংক্ষোভমক্ষরজুষামপি চিত্ততন্বোঃ ॥১১৫॥
 
-> tasyāravinda-nayanasya padāravinda-
-> kiñjalka-miśra-tulasī-makaranda-vāyuḥ
-> antargataḥ svavivareṇa cakāra teṣāṁ
+> tasyāravinda-nayanasya padāravinda-\
+> kiñjalka-miśra-tulasī-makaranda-vāyuḥ\
+> antargataḥ svavivareṇa cakāra teṣāṁ\
 > saṅkṣobham akṣara-juṣām api citta-tanvoḥ
 
 *tasya*—de Él; *aravinda-nayanasya*—del Señor de ojos de loto; *pada-aravinda*—de los pies de loto; *kiñjalka*—con los dedos de los pies; *miśra*—mezcladas; *tulasī*—las hojas de *tulasī*; *makaranda*—fragancia; *vāyuḥ*—brisa; *antargataḥ*—que penetró; *sva-vivareṇa*—a través de sus fosas nasales; *cakāra*—produjo; *teṣām*—de los Kumāras; *saṅkṣobham*—agitación para un cambio; *akṣara-juṣām*—apegados a la comprensión del Brahman impersonal; *api*—aunque; *citta-tanvoḥ*—tanto en la mente como en el cuerpo.

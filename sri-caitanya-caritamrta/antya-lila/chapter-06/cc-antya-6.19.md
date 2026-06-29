@@ -1,9 +1,9 @@
 ### CC Antya 6.19
 
-> বার লক্ষ দেয় রাজায়, সাধে বিশ লক্ষ ।
+> বার লক্ষ দেয় রাজায়, সাধে বিশ লক্ষ ।\
 > সে ‘তুরুক্’ কিছু না পাঞা হৈল প্রতিপক্ষ ॥১৯॥
 
-> bāra lakṣa deya rājāya, sādhe biśa lakṣa
+> bāra lakṣa deya rājāya, sādhe biśa lakṣa\
 > se 'turuk' kichu nā pāñā haila pratipakṣa
 
 *bāra lakṣa*—1,200,000 coins; *deya*—delivers; *rājāya*—unto the Mohammedan government; *sādhe*—collects; *biśa lakṣa*—2,000,000 coins; *se turuk*—that Turk; *kichu*—anything; *nā pāñā*—not getting; *haila pratipakṣa*—became his rival.

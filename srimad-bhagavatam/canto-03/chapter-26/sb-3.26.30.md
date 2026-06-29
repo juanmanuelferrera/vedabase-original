@@ -1,11 +1,11 @@
 ### SB 3.26.30
 
-> संशयोऽथ विपर्यासो निश्चयः स्मृतिरेव च ।
+> संशयोऽथ विपर्यासो निश्चयः स्मृतिरेव च ।\
 > स्वाप इत्युच्यते बुद्धेर्लक्षणं वृत्तितः पृथक् ॥३०॥
 
-> saṁśayo 'tha viparyāso
-> niścayaḥ smṛtir eva ca
-> svāpa ity ucyate buddher
+> saṁśayo 'tha viparyāso\
+> niścayaḥ smṛtir eva ca\
+> svāpa ity ucyate buddher\
 > lakṣaṇaṁ vṛttitaḥ pṛthak
 
 *saṁśayaḥ*—doubt; *atha*—then; *viparyāsaḥ*—misapprehension; *niścayaḥ*—correct apprehension; *smṛtiḥ*—memory; *eva*—also; *ca*—and; *svāpaḥ*—sleep; *iti*—thus; *ucyate*—are said; *buddheḥ*—of intelligence; *lakṣaṇam*—characteristics; *vṛttitaḥ*—by their functions; *pṛthak*—different.

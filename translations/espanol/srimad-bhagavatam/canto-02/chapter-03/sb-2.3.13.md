@@ -1,13 +1,13 @@
 ### SB 2.3.13
 
-> शौनक उवाच
-> इत्यभिव्याहृतं राजा निशम्य भरतर्षभः ।
+> शौनक उवाच\
+> इत्यभिव्याहृतं राजा निशम्य भरतर्षभः ।\
 > किमन्यत्पृष्टवान्भूयो वैयासकिमृषिं कविम् ॥१३॥
 
-> śaunaka uvāca
-> ity abhivyāhṛtaṁ rājā
-> niśamya bharatarṣabhaḥ
-> kim anyat pṛṣṭavān bhūyo
+> śaunaka uvāca\
+> ity abhivyāhṛtaṁ rājā\
+> niśamya bharatarṣabhaḥ\
+> kim anyat pṛṣṭavān bhūyo\
 > vaiyāsakim ṛṣiṁ kavim
 
 *śaunakaḥ uvāca*—Śaunaka dijo; *iti*—así pues; *abhivyāhṛtam*—todo eso se habló; *rājā*—el rey; *niśamya*—por oír; *bharata-ṛṣabhaḥ*—Mahārāja Parīkṣit; *kim*—qué; *anyat*—más; *pṛṣṭavān*—le preguntó; *bhūyaḥ*—además; *vaiyāsakim*—al hijo de Vyāsadeva; *ṛṣim*—aquel que está bien versado; *kavim*—poético.

@@ -1,11 +1,11 @@
 ### SB 9.8.2
 
-> भरुकस्तत्सुतस्तस्माद्वृकस्तस्यापि बाहुकः
+> भरुकस्तत्सुतस्तस्माद्वृकस्तस्यापि बाहुकः\
 > सोऽरिभिर्हृतभू राजा सभार्यो वनमाविशत ॥२॥
 
-> bharukas tat-sutas tasmād
-> vṛkas tasyāpi bāhukaḥ
-> so 'ribhir hṛta-bhū rājā
+> bharukas tat-sutas tasmād\
+> vṛkas tasyāpi bāhukaḥ\
+> so 'ribhir hṛta-bhū rājā\
 > sabhāryo vanam āviśat
 
 *bharukaḥ*—llamado Bharuka; *tat-sutaḥ*—el hijo de Vijaya; *tasmāt*—de él (de Bharuka); *vṛkaḥ*—llamado Vṛka; *tasya*—suyo; *api*—también; *bāhukaḥ*—llamado Bāhuka; *saḥ*—él, el rey; *aribhiḥ*—por sus enemigos; *hṛta-bhūḥ*—haberle sido arrebatadas sus tierras; *rājā*—el rey (Bāhuka); *sa-bhāryaḥ*—con su esposa; *vanam*—al bosque; *āviśat*—entró.

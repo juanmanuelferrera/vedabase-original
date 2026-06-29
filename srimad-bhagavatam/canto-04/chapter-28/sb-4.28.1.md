@@ -1,13 +1,13 @@
 ### SB 4.28.1
 
-> नारद उवाच
-> सैनिका भयनाम्नो ये बर्हिष्मन्दिष्टकारिणः ।
+> नारद उवाच\
+> सैनिका भयनाम्नो ये बर्हिष्मन्दिष्टकारिणः ।\
 > प्रज्वारकालकन्याभ्यां विचेरुरवनीमिमाम् ॥१॥
 
-> nārada uvāca
-> sainikā bhaya-nāmno ye
-> barhiṣman diṣṭa-kāriṇaḥ
-> prajvāra-kāla-kanyābhyāṁ
+> nārada uvāca\
+> sainikā bhaya-nāmno ye\
+> barhiṣman diṣṭa-kāriṇaḥ\
+> prajvāra-kāla-kanyābhyāṁ\
 > vicerur avanīm imām
 
 *nāradaḥ uvāca*—the great sage Nārada continued to speak; *sainikāḥ*—the soldiers; *bhaya-nāmnaḥ*—of Bhaya (Fear); *ye*—all of them who; *barhiṣman*—O King Prācīnabarhiṣat; *diṣṭa-kāriṇaḥ*—the order carriers of death; *prajvāra*—with Prajvāra; *kāla-kanyābhyām*—and with Kālakanyā; *viceruḥ*—traveled; *avanīm*—on earth; *imām*—this.

@@ -1,9 +1,9 @@
 ### CC Antya 14.28
 
-> তার আর্তি দেখি’ প্রভু কহিতে লাগিলা ।
+> তার আর্তি দেখি’ প্রভু কহিতে লাগিলা ।\
 > “এত আর্তি জগন্নাথ মোরে নাহি দিলা ! ॥ ২৮ ॥
 
-> tāra ārti dekhi' prabhu kahite lāgilā
+> tāra ārti dekhi' prabhu kahite lāgilā\
 > "eta ārti jagannātha more nāhi dilā!
 
 *tāra*—her; *ārti*—eagerness; *dekhi'*—seeing; *prabhu*—Śrī Caitanya Mahāprabhu; *kahite lāgilā*—began to speak; *eta ārti*—so much eagerness; *jagannātha*—Lord Jagannātha; *more*—unto Me; *nāhi dilā*—did not bestow.

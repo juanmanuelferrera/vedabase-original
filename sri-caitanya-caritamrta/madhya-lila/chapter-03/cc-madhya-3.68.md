@@ -1,9 +1,9 @@
 ### CC Madhya 3.68
 
-> কোন্ স্থানে বসিব, আর আন দুই পাত ।
+> কোন্ স্থানে বসিব, আর আন দুই পাত ।\
 > অল্প করি’ আনি’ তাহে দেহ ব্যঞ্জন ভাত ॥৬৮॥
 
-> kon sthāne vasiba, āra āna dui pāta
+> kon sthāne vasiba, āra āna dui pāta\
 > alpa kari' āni' tāhe deha vyañjana bhāta
 
 *kon sthāne vasiba*—where shall We sit down; *āra*—other; *āna*—bring; *dui pāta*—two leaves; *alpa kari'*—making a small quantity; *āni'*—bringing; *tāhe*—on that; *deha*—give; *vyañjana*—vegetables; *bhāta*—and boiled rice.

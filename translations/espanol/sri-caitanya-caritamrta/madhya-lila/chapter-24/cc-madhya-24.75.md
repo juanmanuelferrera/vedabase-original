@@ -1,9 +1,9 @@
 ### CC Madhya 24.75
 
-> সেই অদ্বয়-তত্ত্ব কৃষ্ণ — স্বয়ং-ভগবান্ ।
+> সেই অদ্বয়-তত্ত্ব কৃষ্ণ — স্বয়ং-ভগবান্ ।\
 > তিনকালে সত্য তিঁহো — শাস্ত্র-প্রমাণ ॥৭৫॥
 
-> sei advaya-tattva kṛṣṇa--svayaṁ-bhagavān
+> sei advaya-tattva kṛṣṇa--svayaṁ-bhagavān\
 > tina-kāle satya tiṅho--śāstra-pramāṇa
 
 *sei*—esa; *advaya-tattva*—Verdad Absoluta sin segundo; *kṛṣṇa*—el Señor Kṛṣṇa; *svayam-bhagavān*—la Suprema Personalidad de Dios; *tina-kāle*—en tres fases del tiempo (pasado, presente y futuro); *satya*—la verdad; *tiṅho*—Él; *śāstra-pramāṇa*—el veredicto de toda la literatura Védica.

@@ -1,18 +1,18 @@
 ### SB 8.4.3-4
 
-> योऽसौ ग्राहः स वै सद्यः परमाश्चर्यरूपधृक
-> मुक्तो देवलशापेन हूहूर्गन्धर्वसत्तमः ॥३॥
-> प्रणम्य शिरसाधीशमुत्तमश्लोकमव्ययम
+> योऽसौ ग्राहः स वै सद्यः परमाश्चर्यरूपधृक\
+> मुक्तो देवलशापेन हूहूर्गन्धर्वसत्तमः ॥३॥\
+> प्रणम्य शिरसाधीशमुत्तमश्लोकमव्ययम\
 > अगायत यशोधाम कीर्तन्यगुणसत्कथम ॥४॥
 
-> yo 'sau grāhaḥ sa vai sadyaḥ
-> paramāścarya-rūpa-dhṛk
-> mukto devala-śāpena
+> yo 'sau grāhaḥ sa vai sadyaḥ\
+> paramāścarya-rūpa-dhṛk\
+> mukto devala-śāpena\
 > hūhūr gandharva-sattamaḥ
 
-> praṇamya śirasādhīśam
-> uttama-ślokam avyayam
-> agāyata yaśo-dhāma
+> praṇamya śirasādhīśam\
+> uttama-ślokam avyayam\
+> agāyata yaśo-dhāma\
 > kīrtanya-guṇa-sat-katham
 
 *yaḥ*—aquel que; *asau*—que; *grāhaḥ*—recibió un cuerpo de cocodrilo; *saḥ*—él; *vai*—en verdad; *sadyaḥ*—inmediatamente; *parama*—muy hermosa; *āścarya*—maravillosa; *rūpa-dhṛk*—con la forma (de su posición original como *gandharva*); *muktaḥ*—fue liberado; *devala-śāpena*—por la maldición de Devala Ṛṣi; *hūhūḥ*—cuyo nombre en el pasado era Hūhū; *gandharva-sattamaḥ*—el mejor de Gandharvaloka; *praṇamya*—ofreciendo reverencias; *śirasā*—con la cabeza; *adhīśam*—al amo supremo; *uttama-ślokam*—a quien se adora con los versos más selectos; *avyayam*—que es el eterno supremo; *agāyata*—comenzó a cantar; *yaśaḥ-dhāma*—las glorias del Señor; *kīrtanya-guṇa-sat-katham*—cuyos pasatiempos y cualidades trascendentales son gloriosos.

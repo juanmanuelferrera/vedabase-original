@@ -1,11 +1,11 @@
 ### SB 4.10.9
 
-> ते वै ललाटलग्नैस्तैरिषुभिः सर्व एव हि ।
+> ते वै ललाटलग्नैस्तैरिषुभिः सर्व एव हि ।\
 > मत्वा निरस्तमात्मानमाशंसन्कर्म तस्य तत् ॥९॥
 
-> te vai lalāṭa-lagnais tair
-> iṣubhiḥ sarva eva hi
-> matvā nirastam ātmānam
+> te vai lalāṭa-lagnais tair\
+> iṣubhiḥ sarva eva hi\
+> matvā nirastam ātmānam\
 > āśaṁsan karma tasya tat
 
 *te*—they; *vai*—certainly; *lalāṭa-lagnaiḥ*—intent upon their heads; *taiḥ*—by those; *iṣubhiḥ*—arrows; *sarve*—all of them; *eva*—certainly; *hi*—without fail; *matvā*—thinking; *nirastam*—defeated; *ātmānam*—themselves; *āśaṁsan*—praised; *karma*—action; *tasya*—of him; *tat*—that.

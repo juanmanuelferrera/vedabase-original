@@ -1,9 +1,9 @@
 ### CC Madhya 20.174
 
-> বৈভবপ্রকাশ কৃষ্ণের — শ্রীবলরাম ।
+> বৈভবপ্রকাশ কৃষ্ণের — শ্রীবলরাম ।\
 > বর্ণমাত্র-ভেদ, সব — কৃষ্ণের সমান ॥১৭৪॥
 
-> vaibhava-prakāśa kṛṣṇera—śrī-balarāma
+> vaibhava-prakāśa kṛṣṇera—śrī-balarāma\
 > varṇa-mātra-bheda, saba—kṛṣṇera samāna
 
 *vaibhava-prakāśa*—manifestation of the vaibhava feature; *kṛṣṇera*—of Lord Kṛṣṇa; *śrī-balarāma*—Śrī Balarāma; *varṇa-mātra*—color only; *bheda*—difference; *saba*—everything; *kṛṣṇera samāna*—equal to Kṛṣṇa.

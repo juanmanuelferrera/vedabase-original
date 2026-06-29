@@ -1,11 +1,11 @@
 ### SB 8.22.4
 
-> पुंसां श्लाघ्यतमं मन्ये दण्डमर्हत्तमार्पितम
+> पुंसां श्लाघ्यतमं मन्ये दण्डमर्हत्तमार्पितम\
 > यं न माता पिता भ्राता सुहृदश्चादिशन्ति हि ॥४॥
 
-> puṁsāṁ ślāghyatamaṁ manye
-> daṇḍam arhattamārpitam
-> yaṁ na mātā pitā bhrātā
+> puṁsāṁ ślāghyatamaṁ manye\
+> daṇḍam arhattamārpitam\
+> yaṁ na mātā pitā bhrātā\
 > suhṛdaś cādiśanti hi
 
 *puṁsām*—of men; *ślāghya-tamam*—the most exalted; *manye*—I consider; *daṇḍam*—punishment; *arhattama-arpitam*—given by You, the supreme worshipable Lord; *yam*—which; *na*—neither; *mātā*—mother; *pitā*—father; *bhrātā*—brother; *suhṛdaḥ*—friends; *ca*—also; *ādiśanti*—offer; *hi*—indeed.

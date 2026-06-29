@@ -1,11 +1,11 @@
 ### SB 9.4.28
 
-> तस्मा अदाद्धरिश्चक्रं प्रत्यनीकभयावहम
+> तस्मा अदाद्धरिश्चक्रं प्रत्यनीकभयावहम\
 > एकान्तभक्तिभावेन प्रीतो भक्ताभिरक्षणम ॥२८॥
 
-> tasmā adād dhariś cakraṁ
-> pratyanīka-bhayāvaham
-> ekānta-bhakti-bhāvena
+> tasmā adād dhariś cakraṁ\
+> pratyanīka-bhayāvaham\
+> ekānta-bhakti-bhāvena\
 > prīto bhaktābhirakṣaṇam
 
 *tasmai*—a él (a Ambarīṣa Mahārāja); *adāt*—dio; *hariḥ*—la Suprema Personalidad de Dios; *cakram*—Su disco; *pratyanīka-bhaya-āvaham*—el disco del Señor, que causaba grandísimo temor a los enemigos del Señor y de Sus devotos; *ekānta-bhakti-bhāvena*—debido a sus prácticas de servicio devocional puro; *prītaḥ*—el Señor estaba muy complacido; *bhakta-abhirakṣaṇam*—para la protección de Sus devotos.

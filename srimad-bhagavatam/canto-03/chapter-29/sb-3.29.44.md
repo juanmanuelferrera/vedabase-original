@@ -1,11 +1,11 @@
 ### SB 3.29.44
 
-> गुणाभिमानिनो देवाः सर्गादिष्वस्य यद्भयात् ।
+> गुणाभिमानिनो देवाः सर्गादिष्वस्य यद्भयात् ।\
 > वर्तन्तेऽनुयुगं येषां वश एतच्चराचरम् ॥४४॥
 
-> guṇābhimānino devāḥ
-> sargādiṣv asya yad-bhayāt
-> vartante 'nuyugaṁ yeṣāṁ
+> guṇābhimānino devāḥ\
+> sargādiṣv asya yad-bhayāt\
+> vartante 'nuyugaṁ yeṣāṁ\
 > vaśa etac carācaram
 
 *guṇa*—the modes of material nature; *abhimāninaḥ*—in charge of; *devāḥ*—the demigods; *sarga-ādiṣu*—in the matter of creation and so on; *asya*—of this world; *yat-bhayāt*—out of fear of whom; *vartante*—carry out functions; *anuyugam*—according to the *yugas*; *yeṣām*—of whom; *vaśe*—under the control; *etat*—this; *cara-acaram*—everything animate and inanimate.

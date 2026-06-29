@@ -1,9 +1,9 @@
 ### SB 5.18.2
 
-> भद्रश्रवस ऊचुः
+> भद्रश्रवस ऊचुः\
 > ओं नमो भगवते धर्मायात्मविशोधनाय नम इति ॥२॥
 
-> bhadraśravasa ūcuḥ
+> bhadraśravasa ūcuḥ\
 > oṁ namo bhagavate dharmāyātma-viśodhanāya nama iti.
 
 *bhadraśravasaḥ ūcuḥ*—the ruler Bhadraśravā and his intimate associates said; *om*—O Lord; *namaḥ*—respectful obeisances; *bhagavate*—unto the Supreme Personality of Godhead; *dharmāya*—the source of all religious principles; *ātma-viśodhanāya*—who purifies us of material contamination; *namaḥ*—our obeisances; *iti*—thus.

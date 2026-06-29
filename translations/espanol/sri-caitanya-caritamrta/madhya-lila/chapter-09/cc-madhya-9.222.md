@@ -1,9 +1,9 @@
 ### CC Madhya 9.222
 
-> চাম্তাপুরে আসি’ দেখি’ শ্রীরাম-লক্ষ্মণ ৷
+> চাম্তাপুরে আসি’ দেখি’ শ্রীরাম-লক্ষ্মণ ৷\
 > শ্রীবৈকুণ্ঠে আসি’ কৈল বিষ্ণু দরশন ৷৷ ২২২ ৷৷ ॥২২২॥
 
-> cāmtāpure āsi' dekhi' śrī-rāma-lakṣmaṇa
+> cāmtāpure āsi' dekhi' śrī-rāma-lakṣmaṇa\
 > śrī-vaikuṇṭhe āsi' kaila viṣṇu daraśana
 
 *cāmtāpure*—a Cāmtāpura; *āsi'*—llegando; *dekhi'*—viendo; *śrī-rāma-lakṣmaṇa*—el Señor Rāmacandra y Lakṣmaṇa; *śrī-vaikuṇṭhe āsi'*—llegando a Śrī Vaikuṇṭha; *kaila*—hizo; *viṣṇu daraśana*—ver el templo del Señor Viṣṇu.

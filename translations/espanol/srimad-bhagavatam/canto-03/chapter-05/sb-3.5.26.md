@@ -1,11 +1,11 @@
 ### SB 3.5.26
 
-> कालवृत्त्या तु मायायां गुणमय्यामधोक्षजः ।
+> कालवृत्त्या तु मायायां गुणमय्यामधोक्षजः ।\
 > पुरुषेणात्मभूतेन वीर्यमाधत्त वीर्यवान् ॥२६॥
 
-> kāla-vṛttyā tu māyāyāṁ
-> guṇa-mayyām adhokṣajaḥ
-> puruṣeṇātma-bhūtena
+> kāla-vṛttyā tu māyāyāṁ\
+> guṇa-mayyām adhokṣajaḥ\
+> puruṣeṇātma-bhūtena\
 > vīryam ādhatta vīryavān
 
 *kāla*—el tiempo eterno; *vṛttyā*—por la influencia de; *tu*—pero; *māyāyām*—en la energía externa; *guṇa-mayyām*—en las modalidades cualitativas de la naturaleza; *adhokṣajaḥ*—la Realidad Trascendental; *puruṣeṇa*—por la encarnación *puruṣa*; *ātma-bhūtena*—que es la expansión plenaria del Señor; *vīryam*—las semillas de las entidades vivientes; *ādhatta*—fecundó; *vīryavān*—el Supremo Ser Viviente.

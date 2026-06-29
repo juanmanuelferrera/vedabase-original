@@ -1,13 +1,13 @@
 ### CC Antya 1.169
 
-> বলাদক্ষ্ণোর্লক্ষ্মীঃ কবলয়তি নব্যং কুবলয়ং
-> মুখোল্লাসঃ ফুল্লং কমলবনমুল্লঙ্ঘয়তি চ ।
-> দশাং কষ্টামষ্টাপদমপি নয়ত্যাঙ্গিকরুচি-
+> বলাদক্ষ্ণোর্লক্ষ্মীঃ কবলয়তি নব্যং কুবলয়ং\
+> মুখোল্লাসঃ ফুল্লং কমলবনমুল্লঙ্ঘয়তি চ ।\
+> দশাং কষ্টামষ্টাপদমপি নয়ত্যাঙ্গিকরুচি-\
 > র্বিচিত্রং রাধায়াঃ কিমপি কিল রূপং বিলসতি ॥১৬৯॥
 
-> balād akṣṇor lakṣmīḥ kavalayati navyaṁ kuvalayaṁ
-> mukhollāsaḥ phullaṁ kamala-vanam ullaṅghayati ca
-> daśāṁ kaṣṭām aṣṭā-padam api nayaty āṅgika-rucir
+> balād akṣṇor lakṣmīḥ kavalayati navyaṁ kuvalayaṁ\
+> mukhollāsaḥ phullaṁ kamala-vanam ullaṅghayati ca\
+> daśāṁ kaṣṭām aṣṭā-padam api nayaty āṅgika-rucir\
 > vicitraṁ rādhāyāḥ kim api kila rūpaṁ vilasati
 
 *balāt*—por la fuerza; *akṣṇoḥ*—de los dos ojos; *lakṣmīḥ*—la belleza; *kavalayati*—devora; *navyam*—recién florecida; *kuvalayam*—flor de loto; *mukha-ullāsaḥ*—la belleza del rostro; *phullam*—fructificado; *kamala-vanam*—un bosque de flores de loto; *ullaṅghayati*—supera; *ca*—también; *daśām*—a una situación; *kaṣṭām*—penosa; *aṣṭā-padam*—oro; *api*—incluso; *nayati*—lleva; *āṅgika-ruciḥ*—el lustre del cuerpo; *vicitram*—maravillosa; *rādhāyāḥ*—de Śrīmatī Rādhārāṇī; *kim api*—algo; *kila*—ciertamente; *rūpam*—la belleza; *vilasati*—se manifiesta.

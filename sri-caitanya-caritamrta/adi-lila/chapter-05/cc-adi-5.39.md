@@ -1,11 +1,11 @@
 ### CC Adi 5.39
 
-> সিদ্ধলোকস্তু তমসঃ পারে যত্র বসন্তি হি ।
+> সিদ্ধলোকস্তু তমসঃ পারে যত্র বসন্তি হি ।\
 > সিদ্ধা ব্রহ্মসুখে মগ্না দৈত্যাশ্চ হরিণা হতাঃ ॥৩৯॥
 
-> siddha-lokas tu tamasaḥ
-> pāre yatra vasanti hi
-> siddhā brahma-sukhe magnā
+> siddha-lokas tu tamasaḥ\
+> pāre yatra vasanti hi\
+> siddhā brahma-sukhe magnā\
 > daityāś ca hariṇā hatāḥ
 
 *siddha-lokaḥ*—Siddhaloka, or impersonal Brahman; *tu*—but; *tamasaḥ*—of darkness; *pāre*—beyond the jurisdiction; *yatra*—where; *vasanti*—reside; *hi*—certainly; *siddhāḥ*—the spiritually perfect; *brahma-sukhe*—in the transcendental bliss of becoming one with the Supreme; *magnāḥ*—absorbed; *daityāḥ ca*—as well as the demons; *hariṇā*—by the Supreme Personality of Godhead; *hatāḥ*—killed.

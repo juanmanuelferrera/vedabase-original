@@ -1,9 +1,9 @@
 ### CC Madhya 8.244
 
-> প্রভু পুছে, রামানন্দ করেন উত্তর ।
+> প্রভু পুছে, রামানন্দ করেন উত্তর ।\
 > এই মত সেই রাত্রে কথা পরস্পর ॥২৪৪॥
 
-> prabhu puche, rāmānanda karena uttara
+> prabhu puche, rāmānanda karena uttara\
 > ei mata sei rātre kathā paraspara
 
 *prabhupuche*—the Lord inquires; *rāmānanda*—Rāya Rāmānanda; *karena*—gives; *uttara*—answers; *ei mata*—in this way; *sei rātre*—on that night; *kathā*—discussion; *paraspara*—mutual.

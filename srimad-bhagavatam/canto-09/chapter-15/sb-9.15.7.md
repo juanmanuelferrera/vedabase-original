@@ -1,11 +1,11 @@
 ### SB 9.15.7
 
-> इत्युक्तस्तन्मतं ज्ञआत्वा गतः स वरुणान्तिकम
+> इत्युक्तस्तन्मतं ज्ञआत्वा गतः स वरुणान्तिकम\
 > आनीय दत्त्वा तानश्वानुपयेमे वराननाम ॥७॥
 
-> ity uktas tan-mataṁ jñātvā
-> gataḥ sa varuṇāntikam
-> ānīya dattvā tān aśvān
+> ity uktas tan-mataṁ jñātvā\
+> gataḥ sa varuṇāntikam\
+> ānīya dattvā tān aśvān\
 > upayeme varānanām
 
 *iti*—thus; *uktaḥ*—having been requested; *tat-matam*—his mind; *jñātvā*—(the sage) could understand; *gataḥ*—went; *saḥ*—he; *varuṇa-antikam*—to the place of Varuṇa; *ānīya*—having brought; *dattvā*—and after delivering; *tān*—those; *aśvān*—horses; *upayeme*—married; *vara-ānanām*—the beautiful daughter of King Gādhi.

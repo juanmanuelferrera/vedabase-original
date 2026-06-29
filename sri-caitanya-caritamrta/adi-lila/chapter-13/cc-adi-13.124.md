@@ -1,13 +1,13 @@
 ### CC Adi 13.124
 
-> শ্রীচৈতন্য-নিত্যানন্দ, আচার্য অদ্বৈতচন্দ্র,
-> স্বরূপ-রূপ-রঘুনাথদাস ।
-> ইঁহা-সবার শ্রীচরণ, শিরে বন্দি নিজধন,
+> শ্রীচৈতন্য-নিত্যানন্দ, আচার্য অদ্বৈতচন্দ্র,\
+> স্বরূপ-রূপ-রঘুনাথদাস ।\
+> ইঁহা-সবার শ্রীচরণ, শিরে বন্দি নিজধন,\
 > জন্মলীলা গাইল কৃষ্ণদাস ॥১২৪॥
 
-> śrī-caitanya-nityānanda, ācārya advaitacandra,
-> svarūpa-rūpa-raghunāthadāsa
-> iṅhā-sabāra śrī-caraṇa, śire vandi nija-dhana,
+> śrī-caitanya-nityānanda, ācārya advaitacandra,\
+> svarūpa-rūpa-raghunāthadāsa\
+> iṅhā-sabāra śrī-caraṇa, śire vandi nija-dhana,\
 > janma-līlā gāila kṛṣṇadāsa
 
 *śrī-caitanya-nityānanda*—Lord Śrī Caitanya Mahāprabhu and Nityānanda Prabhu; *ācārya advaitacandra*—Ācārya Śrī Advaitacandra; *svarūpa-rūpa-raghunāthadāsa*—Svarūpa Dāmodara, Rūpa Gosvāmī and Raghunātha dāsa Gosvāmī; *iṅhā-sabāra*—of all of them; *śrī-caraṇa*—the lotus feet; *śire*—on the head; *vandi*—offering respect; *nija-dhana*—personal property; *janma-līlā*—narration of the birth; *gāila*—sang; *kṛṣṇadāsa*—Kṛṣṇadāsa Kavirāja Gosvāmī.

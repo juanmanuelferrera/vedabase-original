@@ -1,11 +1,11 @@
 ### SB 4.28.4
 
-> तयोपभुज्यमानां वै यवनाः सर्वतोदिशम् ।
+> तयोपभुज्यमानां वै यवनाः सर्वतोदिशम् ।\
 > द्वार्भिः प्रविश्य सुभृशं प्रार्दयन्सकलां पुरीम् ॥४॥
 
-> tayopabhujyamānāṁ vai
-> yavanāḥ sarvato-diśam
-> dvārbhiḥ praviśya subhṛśaṁ
+> tayopabhujyamānāṁ vai\
+> yavanāḥ sarvato-diśam\
+> dvārbhiḥ praviśya subhṛśaṁ\
 > prārdayan sakalāṁ purīm
 
 *tayā*—by Kālakanyā; *upabhujyamānām*—being taken possession of; *vai*—certainly; *yavanāḥ*—the Yavanas; *sarvataḥ-diśam*—from all sides; *dvārbhiḥ*—through the gates; *praviśya*—having entered; *su-bhṛśam*—greatly; *prārdayan*—giving trouble; *sakalām*—all over; *purīm*—the city.

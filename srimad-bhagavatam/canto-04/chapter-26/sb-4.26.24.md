@@ -1,11 +1,11 @@
 ### SB 4.26.24
 
-> तस्मिन्दधे दममहं तव वीरपत्नि योऽन्यत्र भूसुरकुलात्कृतकिल्बिषस्तम् ।
+> तस्मिन्दधे दममहं तव वीरपत्नि योऽन्यत्र भूसुरकुलात्कृतकिल्बिषस्तम् ।\
 > पश्ये न वीतभयमुन्मुदितं त्रिलोक्यामन्यत्र वै मुररिपोरितरत्र दासात् ॥२४॥
 
-> tasmin dadhe damam ahaṁ tava vīra-patni
-> yo 'nyatra bhūsura-kulāt kṛta-kilbiṣas tam
-> paśye na vīta-bhayam unmuditaṁ tri-lokyām
+> tasmin dadhe damam ahaṁ tava vīra-patni\
+> yo 'nyatra bhūsura-kulāt kṛta-kilbiṣas tam\
+> paśye na vīta-bhayam unmuditaṁ tri-lokyām\
 > anyatra vai mura-ripor itaratra dāsāt
 
 *tasmin*—unto him; *dadhe*—shall give; *damam*—punishment; *aham*—I; *tava*—to you; *vīra-patni*—O wife of the hero; *yaḥ*—one who; *anyatra*—besides; *bhū-sura-kulāt*—from the group of demigods on this earth (the *brāhmaṇas*); *kṛta*—done; *kilbiṣaḥ*—offense; *tam*—him; *paśye*—I see; *na*—not; *vīta*—without; *bhayam*—fear; *unmuditam*—without anxiety; *tri-lokyām*—within the three worlds; *anyatra*—elsewhere; *vai*—certainly; *mura-ripoḥ*—of the enemy of Mura (Kṛṣṇa); *itaratra*—on the other hand; *dāsāt*—than the servant.

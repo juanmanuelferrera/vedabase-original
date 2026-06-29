@@ -1,9 +1,9 @@
 ### CC Madhya 20.374
 
-> ‘বিভূতি’ কহিয়ে যৈছে গীতা-একাদশে ।
+> ‘বিভূতি’ কহিয়ে যৈছে গীতা-একাদশে ।\
 > জগৎ ব্যাপিল কৃষ্ণশক্ত্যাভাসাবেশে ॥৩৭৪॥
 
-> 'vibhūti' kahiye yaiche gītā-ekādaśe
+> 'vibhūti' kahiye yaiche gītā-ekādaśe\
 > jagat vyāpila kṛṣṇa-śakty-ābhāsāveśe
 
 *vibhūti*—poder específico; *kahiye*—decimos; *yaiche*—tal como; *gītā*—del Bhagavad-gītā; *ekādaśe*—en el capítulo undécimo; *jagat*—por todo el universo; *vyāpila*—Se expandió; *kṛṣṇa-śakti-ābhāsa-āveśe*—por el reflejo de Su poder.

@@ -1,11 +1,11 @@
 ### SB 7.5.4
 
-> एकदासुरराट्पुत्रमङ्कमारोप्य पाण्डव
+> एकदासुरराट्पुत्रमङ्कमारोप्य पाण्डव\
 > पप्रच्छ कथ्यतां वत्स मन्यते साधु यद्भवान ॥४॥
 
-> ekadāsura-rāṭ putram
-> aṅkam āropya pāṇḍava
-> papraccha kathyatāṁ vatsa
+> ekadāsura-rāṭ putram\
+> aṅkam āropya pāṇḍava\
+> papraccha kathyatāṁ vatsa\
 > manyate sādhu yad bhavān
 
 *ekadā*—cierto día; *asura-rāṭ*—el emperador de los *asuras*; *putram*—a su hijo; *aṅkam*—en el regazo; *āropya*—sentando; *pāṇḍava*—¡oh, Mahārāja Yudhiṣṭhira!; *papraccha*—preguntó; *kathyatām*—dime; *vatsa*—mi querido hijo; *manyate*—consideras; *sādhu*—el mejor; *yat*—el que; *bhavān*—tu gracia.

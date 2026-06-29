@@ -1,11 +1,11 @@
 ### SB 4.11.33
 
-> हेलनं गिरिशभ्रातुर्धनदस्य त्वया कृतम् ।
+> हेलनं गिरिशभ्रातुर्धनदस्य त्वया कृतम् ।\
 > यज्जघ्निवान्पुण्यजनान्भ्रातृघ्नानित्यमर्षितः ॥३३॥
 
-> helanaṁ giriśa-bhrātur
-> dhanadasya tvayā kṛtam
-> yaj jaghnivān puṇya-janān
+> helanaṁ giriśa-bhrātur\
+> dhanadasya tvayā kṛtam\
+> yaj jaghnivān puṇya-janān\
 > bhrātṛ-ghnān ity amarṣitaḥ
 
 *helanam*—conducta irrespetuosa; *giriśa*—del Señor Śiva; *bhrātuḥ*—el hermano; *dhanadasya*—a Kuvera; *tvayā*—debido a tu; *kṛtam*—fue ejecutada; *yat*—porque; *jaghnivān*—tú has matado; *puṇya-janān*—a los *yakṣas*; *bhrātṛ*—a tu hermano; *ghnān*—que mataron; *iti*—de ese modo (pensando); *amarṣitaḥ*—furioso.

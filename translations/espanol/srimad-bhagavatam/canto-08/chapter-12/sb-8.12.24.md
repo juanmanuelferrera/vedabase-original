@@ -1,11 +1,11 @@
 ### SB 8.12.24
 
-> एवं तां रुचिरापाङ्गीं दर्शनीयां मनोरमाम
+> एवं तां रुचिरापाङ्गीं दर्शनीयां मनोरमाम\
 > दृष्ट्वा तस्यां मनश्चक्रे विषज्जन्त्यां भवः किल ॥२४॥
 
-> evaṁ tāṁ rucirāpāṅgīṁ
-> darśanīyāṁ manoramām
-> dṛṣṭvā tasyāṁ manaś cakre
+> evaṁ tāṁ rucirāpāṅgīṁ\
+> darśanīyāṁ manoramām\
+> dṛṣṭvā tasyāṁ manaś cakre\
 > viṣajjantyāṁ bhavaḥ kila
 
 *evam*—de ese modo; *tām*—a Ella; *rucira-apāṅgīm*—dotada de todos los rasgos atractivos; *darśanīyām*—agradable a la vista; *manoramām*—de hermosas formas; *dṛṣṭvā*—al ver; *tasyām*—sobre Ella; *manaḥ cakre*—pensó; *viṣajjantyām*—sentirse atraída por él; *bhavaḥ*—el Señor Śiva; *kila*—en verdad.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.53
 
-> যে কালে করেন জগন্নাথ দরশন ।
+> যে কালে করেন জগন্নাথ দরশন ।\
 > মনে ভাবে, কুরুক্ষেত্রে পাঞাছি মিলন ॥৫৩॥
 
-> ye kāle karena jagannātha daraśana
+> ye kāle karena jagannātha daraśana\
 > mane bhāve, kurukṣetre pāñāchi milana
 
 *ye kāle*—en esas ocasiones; *karena*—hace; *jagannātha*—el Señor Jagannātha; *daraśana*—visitar; *mane*—en la mente; *bhāve*—piensa; *kuru-kṣetre*—en el campo de Kurukṣetra; *pāñāchi*—he obtenido; *milana*—encuentro.

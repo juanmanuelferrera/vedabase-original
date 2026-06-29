@@ -1,11 +1,11 @@
 ### SB 6.1.17
 
-> सध्रीचीनो ह्ययं लोके पन्थाः क्षेमोऽकुतोभयः
+> सध्रीचीनो ह्ययं लोके पन्थाः क्षेमोऽकुतोभयः\
 > सुशीलाः साधवो यत्र नारायणपरायणाः ॥१७॥
 
-> sadhrīcīno hy ayaṁ loke
-> panthāḥ kṣemo 'kuto-bhayaḥ
-> suśīlāḥ sādhavo yatra
+> sadhrīcīno hy ayaṁ loke\
+> panthāḥ kṣemo 'kuto-bhayaḥ\
+> suśīlāḥ sādhavo yatra\
 > nārāyaṇa-parāyaṇāḥ
 
 *sadhrīcīnaḥ*—just appropriate; *hi*—certainly; *ayam*—this; *loke*—in the world; *panthāḥ*—path; *kṣemaḥ*—auspicious; *akutaḥ-bhayaḥ*—without fear; *su-śīlāḥ*—well-behaved; *sādhavaḥ*—saintly persons; *yatra*—wherein; *nārāyaṇa-parāyaṇāḥ*—those who have taken the path of Nārāyaṇa, devotional service, as their life and soul.

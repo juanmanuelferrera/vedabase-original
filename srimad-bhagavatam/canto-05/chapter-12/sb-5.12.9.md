@@ -1,11 +1,11 @@
 ### SB 5.12.9
 
-> एवं निरुक्तं क्षितिशब्दवृत्तमसन्निधानात्परमाणवो ये
+> एवं निरुक्तं क्षितिशब्दवृत्तमसन्निधानात्परमाणवो ये\
 > अविद्यया मनसा कल्पितास्ते येषां समूहेन कृतो विशेषः ॥९॥
 
-> evaṁ niruktaṁ kṣiti-śabda-vṛttam
-> asan nidhānāt paramāṇavo ye
-> avidyayā manasā kalpitās te
+> evaṁ niruktaṁ kṣiti-śabda-vṛttam\
+> asan nidhānāt paramāṇavo ye\
+> avidyayā manasā kalpitās te\
 > yeṣāṁ samūhena kṛto viśeṣaḥ
 
 *evam*—thus; *niruktam*—falsely described; *kṣiti-śabda*—of the word "earth"; *vṛttam*—the existence; *asat*—not real; *nidhānāt*—from the dissolution; *parama-aṇavaḥ*—atomic particles; *ye*—all of which; *avidyayā*—because of less intelligence; *manasā*—in the mind; *kalpitāḥ*—imagined; *te*—they; *yeṣām*—of which; *samūhena*—by the aggregate; *kṛtaḥ*—made; *viśeṣaḥ*—the particulars.

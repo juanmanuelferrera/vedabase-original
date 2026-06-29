@@ -1,11 +1,11 @@
 ### SB 7.7.16
 
-> तत्तु कालस्य दीर्घत्वात्स्त्रीत्वान्मातुस्तिरोदधे
+> तत्तु कालस्य दीर्घत्वात्स्त्रीत्वान्मातुस्तिरोदधे\
 > ऋषिणानुगृहीतं मां नाधुनाप्यजहात्स्मृतिः ॥१६॥
 
-> tat tu kālasya dīrghatvāt
-> strītvān mātus tirodadhe
-> ṛṣiṇānugṛhītaṁ māṁ
+> tat tu kālasya dīrghatvāt\
+> strītvān mātus tirodadhe\
+> ṛṣiṇānugṛhītaṁ māṁ\
 > nādhunāpy ajahāt smṛtiḥ
 
 *tat*—that (instruction on religion and knowledge); *tu*—indeed; *kālasya*—of time; *dīrghatvāt*—because of the longness; *strītvāt*—because of being a woman; *mātuḥ*—of my mother; *tirodadhe*—disappeared; *ṛṣiṇā*—by the sage; *anugṛhītam*—being blessed; *mām*—me; *na*—not; *adhunā*—today; *api*—even; *ajahāt*—left; *smṛtiḥ*—the memory (of Nārada Muni's instructions).

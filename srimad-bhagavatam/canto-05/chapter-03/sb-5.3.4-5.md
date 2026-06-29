@@ -1,10 +1,10 @@
 ### SB 5.3.4-5
 
-> ऋत्विज ऊचुः
-> अर्हसि मुहुरर्हत्तमार्हणमस्माकमनुपथानां नमो नम इत्येतावत्सदुपशिक्षितं कोऽर्हति पुमान्प्रकृतिगुणव्यतिकरमतिरनीश ईश्वरस्य परस्य प्रकृतिपुरुषयोरर्वाक्तनाभिर्नामरूपाकृतिभी रूपनिरूपणम्सकलजननिकायवृजिननिरसनशिवतमप्रवरगुणगणैकदेशकथनादृते ॥४॥
+> ऋत्विज ऊचुः\
+> अर्हसि मुहुरर्हत्तमार्हणमस्माकमनुपथानां नमो नम इत्येतावत्सदुपशिक्षितं कोऽर्हति पुमान्प्रकृतिगुणव्यतिकरमतिरनीश ईश्वरस्य परस्य प्रकृतिपुरुषयोरर्वाक्तनाभिर्नामरूपाकृतिभी रूपनिरूपणम्सकलजननिकायवृजिननिरसनशिवतमप्रवरगुणगणैकदेशकथनादृते ॥४॥\
 > परिजनानुरागविरचितशबलसंशब्दसलिलसितकिसलयतुलसिकादूर्वाङ्कुरैरपि सम्भृतयासपर्यया किल परम परितुष्यसि ॥५॥
 
-> ṛtvija ūcuḥ
+> ṛtvija ūcuḥ\
 > arhasi muhur arhattamārhaṇam asmākam anupathānāṁ namo nama ity etāvat sad-upaśikṣitaṁ ko 'rhati pumān prakṛti-guṇa-vyatikara-matir anīśa īśvarasya parasya prakṛti-puruṣayor arvāktanābhir nāma-rūpākṛtibhī rūpa-nirūpaṇam; sakala-jana-nikāya-vṛjina-nirasana-śivatama-pravara-guṇa-gaṇaika-deśa-kathanād ṛte.
 
 *ṛtvijaḥ ūcuḥ*—the priests said; *arhasi*—please (accept); *muhuḥ*—again and again; *arhat-tama*—O most exalted, worshipable person; *arhaṇam*—offering of worship; *asmākam*—of us; *anupathānām*—who are Your servants; *namaḥ*—respectful obeisances; *namaḥ*—respectful obeisances; *iti*—thus; *etāvat*—so far; *sat*—by exalted personalities; *upaśikṣitam*—instructed; *kaḥ*—what; *arhati*—is able (to make); *pumān*—man; *prakṛti*—of material nature; *guṇa*—of the modes; *vyatikara*—in the transformations; *matiḥ*—whose mind (is absorbed); *anīśaḥ*—who is most incapable; *īśvarasya*—of the Supreme Personality of Godhead; *parasya*—beyond; *prakṛti-puruṣayoḥ*—the jurisdiction of the three modes of material nature; *arvāktanābhiḥ*—which do not reach up to, or which are of this material world; *nāma-rūpa-ākṛtibhiḥ*—by names, forms and qualities; *rūpa*—of Your nature or position; *nirūpaṇam*—ascertainment, perception; *sakala*—all; *jana-nikāya*—of mankind; *vṛjina*—sinful actions; *nirasana*—which wipe out; *śivatama*—most auspicious; *pravara*—excellent; *guṇa-gaṇa*—of the transcendental qualities; *eka-deśa*—one part; *kathanāt*—by speaking; *ṛte*—except.

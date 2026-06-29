@@ -1,9 +1,9 @@
 ### CC Madhya 12.95
 
-> আর শত জন শত ঘটে জল ভরি’ ।
+> আর শত জন শত ঘটে জল ভরি’ ।\
 > প্রথমেই লঞা আছে কাল অপেক্ষা করি’ ॥৯৫॥
 
-> āra śata jana śata ghaṭe jala bhari'
+> āra śata jana śata ghaṭe jala bhari'\
 > prathamei lañā āche kāla apekṣā kari'
 
 *āra*—otros; *śata jana*—unos cien hombres; *śata ghaṭe*—en cien tinajas de agua; *jala*—agua; *bhari'*—llenando; *prathamei*—desde el principio; *lañā*—llevando; *āche*—estaban; *kāla*—el momento; *apekṣā kari'*—esperando.

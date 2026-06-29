@@ -1,11 +1,11 @@
 ### SB 1.18.30
 
-> स तु ब्रह्मऋषेरंसे गतासुमुरगं रुषा ।
+> स तु ब्रह्मऋषेरंसे गतासुमुरगं रुषा ।\
 > विनिर्गच्छन्धनुष्कोट्या निधाय पुरमागतः ॥३०॥
 
-> sa tu brahma-ṛṣer aṁse
-> gatāsum uragaṁ ruṣā
-> vinirgacchan dhanuṣ-koṭyā
+> sa tu brahma-ṛṣer aṁse\
+> gatāsum uragaṁ ruṣā\
+> vinirgacchan dhanuṣ-koṭyā\
 > nidhāya puram āgataḥ
 
 *saḥ*—el rey; *tu*—sin embargo; *brahma-ṛṣeḥ*—del sabio *brāhmaṇa*; *aṁse*—en el hombro; *gata-asum*—sin vida; *uragam*—serpiente; *ruṣā*—con ira; *vinirgacchan*—mientras se iba; *dhanuḥ-koṭyā*—con la punta del arco; *nidhāya*—colocándola; *puram*—palacio; *āgataḥ*—regresó.

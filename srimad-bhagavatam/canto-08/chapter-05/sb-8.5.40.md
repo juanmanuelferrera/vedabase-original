@@ -1,11 +1,11 @@
 ### SB 8.5.40
 
-> श्रीर्वक्षसः पितरश्छाययासन्धर्मः स्तनादितरः पृष्ठतोऽभूत
+> श्रीर्वक्षसः पितरश्छाययासन्धर्मः स्तनादितरः पृष्ठतोऽभूत\
 > द्यौर्यस्य शीर्ष्णोऽप्सरसो विहारात्प्रसीदतां नः स महाविभूतिः ॥४०॥
 
-> śrīr vakṣasaḥ pitaraś chāyayāsan
-> dharmaḥ stanād itaraḥ pṛṣṭhato 'bhūt
-> dyaur yasya śīrṣṇo 'psaraso vihārāt
+> śrīr vakṣasaḥ pitaraś chāyayāsan\
+> dharmaḥ stanād itaraḥ pṛṣṭhato 'bhūt\
+> dyaur yasya śīrṣṇo 'psaraso vihārāt\
 > prasīdatāṁ naḥ sa mahā-vibhūtiḥ
 
 *śrīḥ*—the goddess of fortune; *vakṣasaḥ*—from His chest; *pitaraḥ*—the inhabitants of Pitṛloka; *chāyayā*—from His shadow; *āsan*—became possible; *dharmaḥ*—the principle of religion; *stanāt*—from His bosom; *itaraḥ*—irreligion (the opposite of *dharma*); *pṛṣṭhataḥ*—from the back; *abhūt*—became possible; *dyauḥ*—the heavenly planets; *yasya*—of whom; *śīrṣṇaḥ*—from the top of the head; *apsarasaḥ*—the inhabitants of Apsaroloka; *vihārāt*—by His sense enjoyment; *prasīdatām*—kindly be pleased; *naḥ*—upon us; *saḥ*—He (the Supreme Personality of Godhead); *mahā-vibhūtiḥ*—the greatest in all prowess.

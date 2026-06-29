@@ -1,13 +1,13 @@
 ### SB 3.15.3
 
-> देवा ऊचुः
-> तम एतद्विभो वेत्थ संविग्ना यद्वयं भृशम् ।
+> देवा ऊचुः\
+> तम एतद्विभो वेत्थ संविग्ना यद्वयं भृशम् ।\
 > न ह्यव्यक्तं भगवतः कालेनास्पृष्टवर्त्मनः ॥३॥
 
-> devā ūcuḥ
-> tama etad vibho vettha
-> saṁvignā yad vayaṁ bhṛśam
-> na hy avyaktaṁ bhagavataḥ
+> devā ūcuḥ\
+> tama etad vibho vettha\
+> saṁvignā yad vayaṁ bhṛśam\
+> na hy avyaktaṁ bhagavataḥ\
 > kālenāspṛṣṭa-vartmanaḥ
 
 *devāḥ ūcuḥ*—los semidioses dijeron; *tamaḥ*—tinieblas; *etat*—estas; *vibho*—¡oh, grande!; *vettha*—tú conoces; *saṁvignāḥ*—con mucha ansiedad; *yat*—porque; *vayam*—nosotros; *bhṛśam*—mucha; *na*—no; *hi*—porque; *avyaktam*—no manifiesto; *bhagavataḥ*—de Ti (la Suprema Personalidad de Dios); *kālena*—por el tiempo; *aspṛṣṭa*—intacto; *vartmanaḥ*—cuyo camino.

@@ -1,13 +1,13 @@
 ### SB 4.24.27
 
-> श्रीरुद्र उवाच
-> यूयं वेदिषदः पुत्रा विदितं वश्चिकीर्षितम् ।
+> श्रीरुद्र उवाच\
+> यूयं वेदिषदः पुत्रा विदितं वश्चिकीर्षितम् ।\
 > अनुग्रहाय भद्रं व एवं मे दर्शनं कृतम् ॥२७॥
 
-> śrī-rudra uvāca
-> yūyaṁ vediṣadaḥ putrā
-> viditaṁ vaś cikīrṣitam
-> anugrahāya bhadraṁ va
+> śrī-rudra uvāca\
+> yūyaṁ vediṣadaḥ putrā\
+> viditaṁ vaś cikīrṣitam\
+> anugrahāya bhadraṁ va\
 > evaṁ me darśanaṁ kṛtam
 
 *śrī-rudraḥ uvāca*—Lord Śiva began to speak; *yūyam*—all of you; *vediṣadaḥ*—of King Prācīnabarhi; *putrāḥ*—sons; *viditam*—knowing; *vaḥ*—your; *cikīrṣitam*—desires; *anugrahāya*—for the matter of showing you mercy; *bhadram*—all good fortune unto you; *vaḥ*—all of you; *evam*—thus; *me*—my; *darśanam*—audience; *kṛtam*—you have done.

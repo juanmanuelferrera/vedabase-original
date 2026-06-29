@@ -1,13 +1,13 @@
 ### SB 4.29.84
 
-> एतन्मुकुन्दयशसा भुवनं पुनानं
-> देवर्षिवर्यमुखनिःसृतमात्मशौचम् ।
-> यः कीर्त्यमानमधिगच्छति पारमेष्ठ्यं
+> एतन्मुकुन्दयशसा भुवनं पुनानं\
+> देवर्षिवर्यमुखनिःसृतमात्मशौचम् ।\
+> यः कीर्त्यमानमधिगच्छति पारमेष्ठ्यं\
 > नास्मिन्भवे भ्रमति मुक्तसमस्तबन्धः ॥८४॥
 
-> etan mukunda-yaśasā bhuvanaṁ punānaṁ
-> devarṣi-varya-mukha-niḥsṛtam ātma-śaucam
-> yaḥ kīrtyamānam adhigacchati pārameṣṭhyaṁ
+> etan mukunda-yaśasā bhuvanaṁ punānaṁ\
+> devarṣi-varya-mukha-niḥsṛtam ātma-śaucam\
+> yaḥ kīrtyamānam adhigacchati pārameṣṭhyaṁ\
 > nāsmin bhave bhramati mukta-samasta-bandhaḥ
 
 *etat*—this narration; *mukunda-yaśasā*—with the fame of Lord Kṛṣṇa; *bhuvanam*—this material world; *punānam*—sanctifying; *deva-ṛṣi*—of the great sages; *varya*—of the chief; *mukha*—from the mouth; *niḥsṛtam*—uttered; *ātma-śaucam*—purifying the heart; *yaḥ*—anyone who; *kīrtyamānam*—being chanted; *adhigacchati*—goes back; *pārameṣṭhyam*—to the spiritual world; *na*—never; *asmin*—in this; *bhave*—material world; *bhramati*—wanders; *mukta*—being liberated; *samasta*—from all; *bandhaḥ*—bondage.

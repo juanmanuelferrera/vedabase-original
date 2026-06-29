@@ -1,11 +1,11 @@
 ### SB 7.2.40
 
-> पथि च्युतं तिष्ठति दिष्टरक्षितं गृहे स्थितं तद्विहतं विनश्यति
+> पथि च्युतं तिष्ठति दिष्टरक्षितं गृहे स्थितं तद्विहतं विनश्यति\
 > जीवत्यनाथोऽपि तदीक्षितो वने गृहेऽभिगुप्तोऽस्य हतो न जीवति ॥४०॥
 
-> pathi cyutaṁ tiṣṭhati diṣṭa-rakṣitaṁ
-> gṛhe sthitaṁ tad-vihataṁ vinaśyati
-> jīvaty anātho 'pi tad-īkṣito vane
+> pathi cyutaṁ tiṣṭhati diṣṭa-rakṣitaṁ\
+> gṛhe sthitaṁ tad-vihataṁ vinaśyati\
+> jīvaty anātho 'pi tad-īkṣito vane\
 > gṛhe 'bhigupto 'sya hato na jīvati
 
 *pathi*—on the public road; *cyutam*—some possession dropped; *tiṣṭhati*—it remains; *diṣṭa-rakṣitam*—protected by destiny; *gṛhe*—at home; *sthitam*—although situated; *tat-vihatam*—struck by the will of the Supreme; *vinaśyati*—it is lost; *jīvati*—remains alive; *anāthaḥ api*—although without a protector; *tat-īkṣitaḥ*—being protected by the Lord; *vane*—in the forest; *gṛhe*—at home; *abhiguptaḥ*—well hidden and protected; *asya*—of this one; *hataḥ*—struck; *na*—not; *jīvati*—lives.

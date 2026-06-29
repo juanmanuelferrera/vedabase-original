@@ -1,11 +1,11 @@
 ### Bg 4.19
 
-> यस्य सर्वे समारम्भाः कामसङ्कल्पवर्जिताः ।
+> यस्य सर्वे समारम्भाः कामसङ्कल्पवर्जिताः ।\
 > ज्ञानाग्निदग्धकर्माणं तमाहुः पण्डितं बुधाः ॥१९॥
 
-> yasya sarve samārambhāḥ
-> kāma-saṅkalpa-varjitāḥ
-> jñānāgni-dagdha-karmāṇaṁ
+> yasya sarve samārambhāḥ\
+> kāma-saṅkalpa-varjitāḥ\
+> jñānāgni-dagdha-karmāṇaṁ\
 > tam āhuḥ paṇḍitaṁ budhāḥ
 
 *yasya*—one whose; *sarve*—all sorts of; *samārambhāḥ*—in all attempts; *kāma*—desire for sense gratification; *saṅkalpa*—determination; *varjitāḥ*—are devoid of; *jñāna*—of perfect knowledge; *āgni*—fire; *dagdha*—being burnt by; *karmāṇam*—the performer; *tam*—him; *āhuḥ*—declare; *paṇḍitam*—learned; *budhāḥ*—those who know.

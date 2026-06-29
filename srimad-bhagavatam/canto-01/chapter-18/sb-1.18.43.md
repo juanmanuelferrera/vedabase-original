@@ -1,11 +1,11 @@
 ### SB 1.18.43
 
-> अलक्ष्यमाणे नरदेवनाम्नि रथाङ्गपाणावयमङ्ग लोकः ।
+> अलक्ष्यमाणे नरदेवनाम्नि रथाङ्गपाणावयमङ्ग लोकः ।\
 > तदा हि चौरप्रचुरो विनङ्क्ष्यत्यरक्ष्यमाणोऽविवरूथवत्क्षणात् ॥४३॥
 
-> alakṣyamāṇe nara-deva-nāmni
-> rathāṅga-pāṇāv ayam aṅga lokaḥ
-> tadā hi caura-pracuro vinaṅkṣyaty
+> alakṣyamāṇe nara-deva-nāmni\
+> rathāṅga-pāṇāv ayam aṅga lokaḥ\
+> tadā hi caura-pracuro vinaṅkṣyaty\
 > arakṣyamāṇo 'vivarūthavat kṣaṇāt
 
 *alakṣyamāṇe*—being abolished; *nara-deva*—monarchical; *nāmni*—of the name; *ratha-aṅga-pāṇau*—the representative of the Lord; *ayam*—this; *aṅga*—O my boy; *lokaḥ*—this world; *tadā hi*—at once; *caura*—thieves; *pracuraḥ*—too much; *vinaṅkṣyati*—vanquishes; *arakṣyamāṇaḥ*—being not protected; *avivarūtha-vat*—like lambs; *kṣaṇāt*—at once.

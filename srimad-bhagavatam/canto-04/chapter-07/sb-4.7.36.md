@@ -1,13 +1,13 @@
 ### SB 4.7.36
 
-> यजमान्युवाच
-> स्वागतं ते प्रसीदेश तुभ्यं नमः श्रीनिवास श्रिया कान्तया त्राहि नः ।
+> यजमान्युवाच\
+> स्वागतं ते प्रसीदेश तुभ्यं नमः श्रीनिवास श्रिया कान्तया त्राहि नः ।\
 > त्वामृतेऽधीश नाङ्गैर्मखः शोभते शीर्षहीनः कबन्धो यथा पुरुषः ॥३६॥
 
-> yajamāny uvāca
-> svāgataṁ te prasīdeśa tubhyaṁ namaḥ
-> śrīnivāsa śriyā kāntayā trāhi naḥ
-> tvām ṛte 'dhīśa nāṅgair makhaḥ śobhate
+> yajamāny uvāca\
+> svāgataṁ te prasīdeśa tubhyaṁ namaḥ\
+> śrīnivāsa śriyā kāntayā trāhi naḥ\
+> tvām ṛte 'dhīśa nāṅgair makhaḥ śobhate\
 > śīrṣa-hīnaḥ ka-bandho yathā puruṣaḥ
 
 *yajamānī*—the wife of Dakṣa; *uvāca*—prayed; *su-āgatam*—auspicious appearance; *te*—Your; *prasīda*—become pleased; *īśa*—my dear Lord; *tubhyam*—unto You; *namaḥ*—respectful obeisances; *śrīnivāsa*—O abode of the goddess of fortune; *śriyā*—with Lakṣmī; *kāntayā*—Your wife; *trāhi*—protect; *naḥ*—us; *tvām*—You; *ṛte*—without; *adhīśa*—O supreme controller; *na*—not; *aṅgaiḥ*—with bodily limbs; *makhaḥ*—the sacrificial arena; *śobhate*—is beautiful; *śīrṣa-hīnaḥ*—without the head; *ka-bandhaḥ*—possessed of only a body; *yathā*—as; *puruṣaḥ*—a person.

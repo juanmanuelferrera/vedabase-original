@@ -1,9 +1,9 @@
 ### CC Madhya 12.203
 
-> স্বতন্ত্র ঈশ্বর প্রভু করে নানা খেলা ।
+> স্বতন্ত্র ঈশ্বর প্রভু করে নানা খেলা ।\
 > ‘ধোয়াপাখলা’ নাম কৈল এই এক লীলা ॥২০৩॥
 
-> svatantra īśvara prabhu kare nānā khelā
+> svatantra īśvara prabhu kare nānā khelā\
 > 'dhoyā-pākhalā' nāma kaila ei eka līlā
 
 *svatantra īśvara*—the independent Personality of Godhead; *prabhu*—Śrī Caitanya Mahāprabhu; *kare*—performs; *nānā*—various; *khelā*—pastimes; *dhoyā-pākhalā*—washing and cleansing; *nāma*—named; *kaila*—performed; *ei*—this; *eka*—one; *līlā*—pastime.

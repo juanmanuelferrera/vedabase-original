@@ -1,11 +1,11 @@
 ### SB 1.16.23
 
-> यद्वाम्ब ते भूरिभरावतार कृतावतारस्य हरेर्धरित्रि ।
+> यद्वाम्ब ते भूरिभरावतार कृतावतारस्य हरेर्धरित्रि ।\
 > अन्तर्हितस्य स्मरती विसृष्टा कर्माणि निर्वाणविलम्बितानि ॥२३॥
 
-> yadvāmba te bhūri-bharāvatāra-
-> kṛtāvatārasya harer dharitri
-> antarhitasya smaratī visṛṣṭā
+> yadvāmba te bhūri-bharāvatāra-\
+> kṛtāvatārasya harer dharitri\
+> antarhitasya smaratī visṛṣṭā\
 > karmāṇi nirvāṇa-vilambitāni
 
 *yadvā*—puede que sea eso; *amba*—¡oh, madre!; *te*—su; *bhūri*—pesada; *bhara*—carga; *avatāra*—reduciendo la carga; *kṛta*—hecho; *avatārasya*—aquel que se encarnó; *hareḥ*—del Señor Śrī Kṛṣṇa; *dharitri*—¡oh, Tierra!; *antarhitasya*—de Aquel que está fuera de la vista; *smaratī*—mientras se piensa en; *visṛṣṭā*—todas las que se ejecutaron; *karmāṇi*—actividades; *nirvāṇa*—salvación; *vilambitāni*—aquello que entraña.

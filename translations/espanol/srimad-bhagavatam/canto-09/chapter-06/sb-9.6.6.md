@@ -1,11 +1,11 @@
 ### SB 9.6.6
 
-> स एकदाष्टकाश्राद्धे इक्ष्वाकुः सुतमादिशत
+> स एकदाष्टकाश्राद्धे इक्ष्वाकुः सुतमादिशत\
 > मांसमानीयतां मेध्यं विकुक्षे गच्छ मा चिरम ॥६॥
 
-> sa ekadāṣṭakā-śrāddhe
-> ikṣvākuḥ sutam ādiśat
-> māṁsam ānīyatāṁ medhyaṁ
+> sa ekadāṣṭakā-śrāddhe\
+> ikṣvākuḥ sutam ādiśat\
+> māṁsam ānīyatāṁ medhyaṁ\
 > vikukṣe gaccha mā ciram
 
 *saḥ*—ese rey (Mahārāja Ikṣvāku); *ekadā*—en cierta ocasión; *aṣṭakā-śrāddhe*—durante enero, febrero y marzo, cuando se hacen ofrendas a los antepasados; *ikṣvākuḥ*—el rey Ikṣvāku; *sutam*—a su hijo; *ādiśat*—ordenó; *māṁsam*—carne; *ānīyatām*—traer; *medhyam*—pura (de caza); *vikukṣe*—¡oh, Vikukṣi!; *gaccha*—ve inmediatamente; *mā ciram*—sin demora.

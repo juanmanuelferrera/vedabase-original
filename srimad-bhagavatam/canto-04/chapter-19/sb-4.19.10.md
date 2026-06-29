@@ -1,11 +1,11 @@
 ### SB 4.19.10
 
-> इति चाधोक्षजेशस्य पृथोस्तु परमोदयम् ।
+> इति चाधोक्षजेशस्य पृथोस्तु परमोदयम् ।\
 > असूयन्भगवानिन्द्रः प्रतिघातमचीकरत् ॥१०॥
 
-> iti cādhokṣajeśasya
-> pṛthos tu paramodayam
-> asūyan bhagavān indraḥ
+> iti cādhokṣajeśasya\
+> pṛthos tu paramodayam\
+> asūyan bhagavān indraḥ\
 > pratighātam acīkarat
 
 *iti*—thus; *ca*—also; *adhokṣaja-īśasya*—who accepted Adhokṣaja as his worshipable Lord; *pṛthoḥ*—of King Pṛthu; *tu*—then; *parama*—the topmost; *udayam*—opulence; *asūyan*—being envious of; *bhagavān*—the most powerful; *indraḥ*—the King of heaven; *pratighātam*—impediments; *acīkarat*—made.

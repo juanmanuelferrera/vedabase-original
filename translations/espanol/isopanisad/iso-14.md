@@ -1,11 +1,11 @@
 ### Īśo 14
 
-> सम्भूतिं च विनाशं च यस्तद्वेदोभयँ सह।
+> सम्भूतिं च विनाशं च यस्तद्वेदोभयँ सह।\
 > विनाशेन मृत्युं तीर्त्वा सम्भूत्याऽमृतमश्नुते॥१४॥
 
-> sambhūtiṁ ca vināśaṁ ca
-> yas tad vedobhayaṁ saha
-> vināśena mṛtyuṁ tīrtvā
+> sambhūtiṁ ca vināśaṁ ca\
+> yas tad vedobhayaṁ saha\
+> vināśena mṛtyuṁ tīrtvā\
 > sambhūtyāmṛtam aśnute
 
 *sambhūtim*—la Personalidad de Dios eterna, Su nombre trascendental, Su forma, Sus pasatiempos, cualidades y parafernalia, la variegatidad de Su morada, etc.; *ca*—y; *vināśam*—la manifestación material temporal de semidioses, hombres, animales, etc., con sus falsos nombres, fama, etc.; *ca*—también; *yaḥ*—aquel que; *tat*—eso; *veda*—conoce; *ubhayam*—ambas cosas; *saha*—junto con; *vināśena*—con todo lo que está sujeto a la aniquilación; *mṛtyum*—la muerte; *tīrtvā*—superando; *sam-bhūtyā*—en el reino eterno de Dios; *amṛtam*—la inmortalidad; *aśnute*—disfruta.

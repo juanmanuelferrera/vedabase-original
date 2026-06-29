@@ -1,18 +1,18 @@
 ### SB 4.18.9-10
 
-> वत्सं कल्पय मे वीर येनाहं वत्सला तव ।
-> धोक्ष्ये क्षीरमयान्कामाननुरूपं च दोहनम् ॥९॥
-> दोग्धारं च महाबाहो भूतानां भूतभावन ।
+> वत्सं कल्पय मे वीर येनाहं वत्सला तव ।\
+> धोक्ष्ये क्षीरमयान्कामाननुरूपं च दोहनम् ॥९॥\
+> दोग्धारं च महाबाहो भूतानां भूतभावन ।\
 > अन्नमीप्सितमूर्जस्वद्भगवान्वाञ्छते यदि ॥१०॥
 
-> vatsaṁ kalpaya me vīra
-> yenāhaṁ vatsalā tava
-> dhokṣye kṣīramayān kāmān
+> vatsaṁ kalpaya me vīra\
+> yenāhaṁ vatsalā tava\
+> dhokṣye kṣīramayān kāmān\
 > anurūpaṁ ca dohanam
 
-> dogdhāraṁ ca mahā-bāho
-> bhūtānāṁ bhūta-bhāvana
-> annam īpsitam ūrjasvad
+> dogdhāraṁ ca mahā-bāho\
+> bhūtānāṁ bhūta-bhāvana\
+> annam īpsitam ūrjasvad\
 > bhagavān vāñchate yadi
 
 *vatsam*—a calf; *kalpaya*—arrange; *me*—for me; *vīra*—O hero; *yena*—by which; *aham*—I; *vatsalā*—affectionate; *tava*—your; *dhokṣye*—shall fulfill; *kṣīra-mayān*—in the form of milk; *kāmān*—desired necessities; *anurūpam*—according to different living entities; *ca*—also; *dohanam*—milking pot; *dogdhāram*—milkman; *ca*—also; *mahā-bāho*—O mighty-armed one; *bhūtānām*—of all living entities; *bhūta-bhāvana*—O protector of the living entities; *annam*—food grains; *īpsitam*—desired; *ūrjaḥ-vat*—nourishing; *bhagavān*—your worshipable self; *vāñchate*—desires; *yadi*—if.

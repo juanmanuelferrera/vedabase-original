@@ -1,11 +1,11 @@
 ### SB 1.2.17
 
-> शृण्वतां स्वकथाः कृष्णः पुण्यश्रवणकीर्तनः ।
+> शृण्वतां स्वकथाः कृष्णः पुण्यश्रवणकीर्तनः ।\
 > हृद्यन्तःस्थो ह्यभद्राणि विधुनोति सुहृत्सताम् ॥१७॥
 
-> śṛṇvatāṁ sva-kathāḥ kṛṣṇaḥ
-> puṇya-śravaṇa-kīrtanaḥ
-> hṛdy antaḥ stho hy abhadrāṇi
+> śṛṇvatāṁ sva-kathāḥ kṛṣṇaḥ\
+> puṇya-śravaṇa-kīrtanaḥ\
+> hṛdy antaḥ stho hy abhadrāṇi\
 > vidhunoti suhṛt satām
 
 *śṛṇvatām*—aquellos que han desarrollado el vivo deseo de oír el mensaje de; *sva-kathāḥ*—Sus propias palabras; *kṛṣṇaḥ*—la Personalidad de Dios; *puṇya*—virtudes; *śravaṇa*—oyendo; *kīrtanaḥ*—cantando; *hṛdi antaḥ sthaḥ*—dentro del corazón de uno; *hi*—indudablemente; *abhadrāṇi*—deseo de disfrutar la materia; *vidhunoti*—limpia; *suhṛt*—benefactor; *satām*—de los veraces.

@@ -1,11 +1,11 @@
 ### SB 4.25.15
 
-> नीलस्फटिकवैदूर्य मुक्तामरकतारुणैः ।
+> नीलस्फटिकवैदूर्य मुक्तामरकतारुणैः ।\
 > कॢप्तहर्म्यस्थलीं दीप्तां श्रिया भोगवतीमिव ॥१५॥
 
-> nīla-sphaṭika-vaidūrya-
-> muktā-marakatāruṇaiḥ
-> kḷpta-harmya-sthalīṁ dīptāṁ
+> nīla-sphaṭika-vaidūrya-\
+> muktā-marakatāruṇaiḥ\
+> kḷpta-harmya-sthalīṁ dīptāṁ\
 > śriyā bhogavatīm iva
 
 *nīla*—zafiros; *sphaṭika*—cristal; *vaidūrya*—diamantes; *muktā*—perlas; *marakata*—esmeraldas; *aruṇaiḥ*—con rubíes; *kḷpta*—decorados; *harmya-sthalīm*—los suelos de los palacios; *dīptām*—lustrosos; *śriyā*—con belleza; *bhogavatīm*—Bhogavatī, la ciudad celestial; *iva*—como.

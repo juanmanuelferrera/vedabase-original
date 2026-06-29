@@ -1,9 +1,9 @@
 ### CC Madhya 25.115
 
-> যে ‘বিগ্রহ’ নাহি মানে, ‘নিরাকার’ মানে ।
+> যে ‘বিগ্রহ’ নাহি মানে, ‘নিরাকার’ মানে ।\
 > তারে তিরস্করিবারে করিলা নির্ধারণে ॥১১৫॥
 
-> ye 'vigraha' nāhi māne, 'nirākāra' māne
+> ye 'vigraha' nāhi māne, 'nirākāra' māne\
 > tāre tiraskaribāre karilā nirdhāraṇe
 
 *ye*—aquel que; *vigraha*—esa Personalidad de Dios; *nāhi māne*—no acepta; *nirākāra māne*—considera impersonal; *tāre*—a él; *tiraskaribāre*—para castigar; *karilā*—ha hecho; *nirdhāraṇe*—determinación.

@@ -1,11 +1,11 @@
 ### SB 3.18.11
 
-> एते वयं न्यासहरा रसौकसां गतह्रियो गदया द्रावितास्ते ।
+> एते वयं न्यासहरा रसौकसां गतह्रियो गदया द्रावितास्ते ।\
 > तिष्ठामहेऽथापि कथञ्चिदाजौ स्थेयं क्व यामो बलिनोत्पाद्य वैरम् ॥११॥
 
-> ete vayaṁ nyāsa-harā rasaukasāṁ
-> gata-hriyo gadayā drāvitās te
-> tiṣṭhāmahe 'thāpi kathañcid ājau
+> ete vayaṁ nyāsa-harā rasaukasāṁ\
+> gata-hriyo gadayā drāvitās te\
+> tiṣṭhāmahe 'thāpi kathañcid ājau\
 > stheyaṁ kva yāmo balinotpādya vairam
 
 *ete*—Nosotros mismos; *vayam*—Nosotros; *nyāsa*—de la responsabilidad; *harāḥ*—ladrones; *rasā-okasām*—de los habitantes de Rasātala; *gata-hriyaḥ*—desvergonzado; *gadayā*—por la maza; *drāvitāḥ*—perseguido; *te*—tuya; *tiṣṭhā-mahe*—Nos vamos a quedar; *atha api*—sin embargo; *kathañcit*—de un modo u otro; *ājau*—en el campo de batalla; *stheyam*—debemos quedarnos; *kva*—dónde; *yāmaḥ*—podemos ir; *balinā*—con un enemigo poderoso; *utpādya*—habiendo forjado; *vairam*—enemistad.

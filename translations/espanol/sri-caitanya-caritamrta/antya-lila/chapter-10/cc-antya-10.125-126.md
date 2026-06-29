@@ -1,14 +1,14 @@
 ### CC Antya 10.125-126
 
-> যদ্যপি মাসেকের বাসি মুকুতা নারিকেল ।
-> অমৃত-গুটিকাদি, পানাদি সকল ॥১২৫॥
-> তথাপি নূতনপ্রায় সব দ্রব্যের স্বাদ ।
+> যদ্যপি মাসেকের বাসি মুকুতা নারিকেল ।\
+> অমৃত-গুটিকাদি, পানাদি সকল ॥১২৫॥\
+> তথাপি নূতনপ্রায় সব দ্রব্যের স্বাদ ।\
 > ‘বাসি’ বিস্বাদ নহে সেই প্রভুর প্রসাদ ॥১২৬॥
 
-> yadyapi māsekera vāsi mukuta nārikela
+> yadyapi māsekera vāsi mukuta nārikela\
 > amṛta-guṭikādi, pānādi sakala
 
-> tathāpi nūtana-prāya saba dravyera svāda
+> tathāpi nūtana-prāya saba dravyera svāda\
 > 'vāsi' visvāda nahe sei prabhura prasāda
 
 *yadyapi*—aunque; *māsekera*—un mes; *vāsi*—tras permanecer; *mukutā nārikela*—un dulce de coco de consistencia muy dura; *amṛta-guṭikā*—bolas dulces *amṛta-guṭikā*; *ādi*—etc.; *pānā*—bebidas dulces; *ādi*—y demás; *sakala*—todas; *tathāpi*—aún; *nūtana-prāya*—como si fuesen frescas; *saba dravyera*—de cada receta; *svāda*—el sabor; *vāsi*—rancio; *visvāda*—desabrido; *nahe*—no era; *sei*—ésa; *prabhura prasāda*—la misericordia del Señor.

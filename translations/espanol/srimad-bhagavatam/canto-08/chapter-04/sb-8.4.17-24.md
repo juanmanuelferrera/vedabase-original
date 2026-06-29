@@ -1,62 +1,62 @@
 ### SB 8.4.17-24
 
-> श्रीभगवानुवाच
-> ये मां त्वां च सरश्चेदं गिरिकन्दरकाननम
-> वेत्रकीचकवेणूनां गुल्मानि सुरपादपान ॥१७॥
-> शृङ्गाणीमानि धिष्ण्यानि ब्रह्मणो मे शिवस्य च
-> क्षीरोदं मे प्रियं धाम श्वेतद्वीपं च भास्वरम ॥१८॥
-> श्रीवत्सं कौस्तुभं मालां गदां कौमोदकीं मम
-> सुदर्शनं पाञ्चजन्यं सुपर्णं पतगेश्वरम ॥१९॥
-> शेषं च मत्कलां सूक्ष्मां श्रियं देवीं मदाश्रयाम
-> ब्रह्माणं नारदमृषिं भवं प्रह्रादमेव च ॥२०॥
-> मत्स्यकूर्मवराहाद्यैरवतारैः कृतानि मे
-> कर्माण्यनन्तपुण्यानि सूर्यं सोमं हुताशनम ॥२१॥
-> प्रणवं सत्यमव्यक्तं गोविप्रान्धर्ममव्ययम
-> दाक्षायणीर्धर्मपत्नीः सोमकश्यपयोरपि ॥२२॥
-> गङ्गां सरस्वतीं नन्दां कालिन्दीं सितवारणम
-> ध्रुवं ब्रह्मऋषीन्सप्त पुण्यश्लोकांश्च मानवान ॥२३॥
-> उत्थायापररात्रान्ते प्रयताः सुसमाहिताः
+> श्रीभगवानुवाच\
+> ये मां त्वां च सरश्चेदं गिरिकन्दरकाननम\
+> वेत्रकीचकवेणूनां गुल्मानि सुरपादपान ॥१७॥\
+> शृङ्गाणीमानि धिष्ण्यानि ब्रह्मणो मे शिवस्य च\
+> क्षीरोदं मे प्रियं धाम श्वेतद्वीपं च भास्वरम ॥१८॥\
+> श्रीवत्सं कौस्तुभं मालां गदां कौमोदकीं मम\
+> सुदर्शनं पाञ्चजन्यं सुपर्णं पतगेश्वरम ॥१९॥\
+> शेषं च मत्कलां सूक्ष्मां श्रियं देवीं मदाश्रयाम\
+> ब्रह्माणं नारदमृषिं भवं प्रह्रादमेव च ॥२०॥\
+> मत्स्यकूर्मवराहाद्यैरवतारैः कृतानि मे\
+> कर्माण्यनन्तपुण्यानि सूर्यं सोमं हुताशनम ॥२१॥\
+> प्रणवं सत्यमव्यक्तं गोविप्रान्धर्ममव्ययम\
+> दाक्षायणीर्धर्मपत्नीः सोमकश्यपयोरपि ॥२२॥\
+> गङ्गां सरस्वतीं नन्दां कालिन्दीं सितवारणम\
+> ध्रुवं ब्रह्मऋषीन्सप्त पुण्यश्लोकांश्च मानवान ॥२३॥\
+> उत्थायापररात्रान्ते प्रयताः सुसमाहिताः\
 > स्मरन्ति मम रूपाणि मुच्यन्ते तेऽंहसोऽखिलात ॥२४॥
 
-> śrī-bhagavān uvāca
-> ye māṁ tvāṁ ca saraś cedaṁ
-> giri-kandara-kānanam
-> vetra-kīcaka-veṇūnāṁ
+> śrī-bhagavān uvāca\
+> ye māṁ tvāṁ ca saraś cedaṁ\
+> giri-kandara-kānanam\
+> vetra-kīcaka-veṇūnāṁ\
 > gulmāni sura-pādapān
 
-> śṛṅgāṇīmāni dhiṣṇyāni
-> brahmaṇo me śivasya ca
-> kṣīrodaṁ me priyaṁ dhāma
+> śṛṅgāṇīmāni dhiṣṇyāni\
+> brahmaṇo me śivasya ca\
+> kṣīrodaṁ me priyaṁ dhāma\
 > śveta-dvīpaṁ ca bhāsvaram
 
-> śrīvatsaṁ kaustubhaṁ mālāṁ
-> gadāṁ kaumodakīṁ mama
-> sudarśanaṁ pāñcajanyaṁ
+> śrīvatsaṁ kaustubhaṁ mālāṁ\
+> gadāṁ kaumodakīṁ mama\
+> sudarśanaṁ pāñcajanyaṁ\
 > suparṇaṁ patageśvaram
 
-> śeṣaṁ ca mat-kalāṁ sūkṣmāṁ
-> śriyaṁ devīṁ mad-āśrayām
-> brahmāṇaṁ nāradam ṛṣiṁ
+> śeṣaṁ ca mat-kalāṁ sūkṣmāṁ\
+> śriyaṁ devīṁ mad-āśrayām\
+> brahmāṇaṁ nāradam ṛṣiṁ\
 > bhavaṁ prahrādam eva ca
 
-> matsya-kūrma-varāhādyair
-> avatāraiḥ kṛtāni me
-> karmāṇy ananta-puṇyāni
+> matsya-kūrma-varāhādyair\
+> avatāraiḥ kṛtāni me\
+> karmāṇy ananta-puṇyāni\
 > sūryaṁ somaṁ hutāśanam
 
-> praṇavaṁ satyam avyaktaṁ
-> go-viprān dharmam avyayam
-> dākṣāyaṇīr dharma-patnīḥ
+> praṇavaṁ satyam avyaktaṁ\
+> go-viprān dharmam avyayam\
+> dākṣāyaṇīr dharma-patnīḥ\
 > soma-kaśyapayor api
 
-> gaṅgāṁ sarasvatīṁ nandāṁ
-> kālindīṁ sita-vāraṇam
-> dhruvaṁ brahma-ṛṣīn sapta
+> gaṅgāṁ sarasvatīṁ nandāṁ\
+> kālindīṁ sita-vāraṇam\
+> dhruvaṁ brahma-ṛṣīn sapta\
 > puṇya-ślokāṁś ca mānavān
 
-> utthāyāpara-rātrānte
-> prayatāḥ susamāhitāḥ
-> smaranti mama rūpāṇi
+> utthāyāpara-rātrānte\
+> prayatāḥ susamāhitāḥ\
+> smaranti mama rūpāṇi\
 > mucyante te 'ṁhaso 'khilāt
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *ye*—aquellos que; *mām*—a Mí; *tvām*—a ti; *ca*—también; *saraḥ*—lago; *ca*—también; *idam*—esta; *giri*—montaña (la montaña Trikūṭa); *kandara*—cuevas; *kānanam*—jardines; *vetra*—de caña; *kīcaka*—bambú hueco; *veṇūnām*—y de otro tipo de bambú; *gulmāni*—bosquecillos; *sura-pādapān*—árboles celestiales; *śṛṅgāṇi*—los picos; *imāni*—estos; *dhiṣṇyāni*—moradas; *brahmaṇaḥ*—del Señor Brahmā; *me*—de Mí; *śivasya*—del Señor Śiva; *ca*—también; *kṣīra-udam*—el océano de leche; *me*—Mío; *priyam*—muy querido; *dhāma*—lugar; *śveta-dvīpam*—conocido como la isla blanca; *ca*—también; *bhāsvaram*—que siempre brilla con rayos espirituales; *śrīvatsam*—la marca llamada Śrīvatsa; *kaustubham*—la joya Kaustubha; *mālām*—collar de flores; *gadām*—maza; *kaumodakīm*—llamada Kaumodakī; *mama*—Mía; *sudarśanam*—disco Sudarśana; *pāñcajanyam*—caracola Pāñcajanya; *suparṇam*—Garuḍa; *pataga-īśvaram*—el rey de todas las aves; *śeṣam*—el lugar de reposo llamado Śeṣa Nāga; *ca*—y; *mat-kalām*—Mi parte expandida; *sūkṣmām*—muy sutil; *śriyam devīm*—la diosa de la fortuna; *mat-āśrayām*—todos los cuales dependen de Mí; *brahmāṇam*—el Señor Brahmā; *nāradam ṛṣim*—el santo Nārada Muni; *bhavam*—el Señor Śiva; *prahrādam eva ca*—así como Prahlāda; *matsya*—la encarnación Matsya; *kūrma*—la encarnación Kūrma; *varāha*—la encarnación jabalí; *ādyaiḥ*—y las demás; *avatāraiḥ*—con diversas encarnaciones; *kṛtāni*—hechas; *me*—Mis; *karmāṇi*—actividades; *ananta*—ilimitadas; *puṇyāni*—auspiciosas, piadosas; *sūryam*—el dios del Sol; *somam*—el dios de la Luna; *hutāśanam*—el dios del fuego; *praṇavam*—el *mantra oṁkāra*; *satyam*—la Verdad Absoluta; *avyaktam*—la energía material total; *go-viprān*—las vacas y los *brāhmaṇas*; *dharmam*—el servicio devocional; *avyayam*—que nunca termina; *dākṣāyaṇīḥ*—las hijas de Dakṣa; *dharma-patnīḥ*—esposas ideales; *soma*—del dios de la Luna; *kaśyapayoḥ*—y del gran *ṛṣi* Kaśyapa; *api*—también; *gaṅgām*—el río Ganges; *sarasvatīm*—el río Sarasvatī; *nandām*—el río Nandā; *kālindīm*—el río Yamunā; *sita-vāraṇam*—el elefante Airāvata; *dhruvam*—Dhruva Mahārāja; *brahma-ṛṣīn*—grandes *ṛṣis*; *sapta*—siete; *puṇya-ślokān*—sumamente piadosos; *ca*—y; *mānavān*—seres humanos; *utthāya*—levantarse; *apara-rātra-ante*—al final de la noche; *prayatāḥ*—con gran atención; *su-samāhitāḥ*—con la mente concentrada; *smaranti*—recuerdan; *mama*—Mis; *rūpāṇi*—formas; *mucyante*—se liberan; *te*—esas personas; *aṁhasaḥ*—de las reacciones pecaminosas; *akhilāt*—de toda clase.

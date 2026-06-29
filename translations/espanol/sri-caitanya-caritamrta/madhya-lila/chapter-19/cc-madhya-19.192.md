@@ -1,9 +1,9 @@
 ### CC Madhya 19.192
 
-> পুনঃ কৃষ্ণরতি হয় দুইত প্রকার ।
+> পুনঃ কৃষ্ণরতি হয় দুইত প্রকার ।\
 > ঐশ্বর্যজ্ঞানমিশ্রা, কেবলা-ভেদ আর ॥১৯২॥
 
-> punaḥ kṛṣṇa-rati haya duita prakāra
+> punaḥ kṛṣṇa-rati haya duita prakāra\
 > aiśvarya-jñāna-miśrā, kevalā-bheda āra
 
 *punaḥ*—de nuevo; *kṛṣṇa-rati*—apego por Kṛṣṇa; *haya*—se convierte; *duita*—doble; *prakāra*—variedades; *aiśvarya-jñāna-miśrā*—conocimiento de Kṛṣṇa mezclado con una actitud reverente; *kevalā*—apego puro; *bheda*—división; *āra*—otra.

@@ -1,11 +1,11 @@
 ### SB 3.5.10
 
-> परावरेषां भगवन्व्रतानि श्रुतानि मे व्यासमुखादभीक्ष्णम् ।
+> परावरेषां भगवन्व्रतानि श्रुतानि मे व्यासमुखादभीक्ष्णम् ।\
 > अतृप्नुम क्षुल्लसुखावहानां तेषामृते कृष्णकथामृतौघात् ॥१०॥
 
-> parāvareṣāṁ bhagavan vratāni
-> śrutāni me vyāsa-mukhād abhīkṣṇam
-> atṛpnuma kṣulla-sukhāvahānāṁ
+> parāvareṣāṁ bhagavan vratāni\
+> śrutāni me vyāsa-mukhād abhīkṣṇam\
+> atṛpnuma kṣulla-sukhāvahānāṁ\
 > teṣām ṛte kṛṣṇa-kathāmṛtaughāt
 
 *para*—higher; *avareṣām*—of these lower; *bhagavan*—O my lord, O great one; *vratāni*—occupations; *śrutāni*—heard; *me*—by me; *vyāsa*—Vyāsa; *mukhāt*—from the mouth; *abhīkṣṇam*—repeatedly; *atṛpnuma*—I am satisfied; *kṣulla*—little; *sukha-āvahānām*—that which causes happiness; *teṣām*—out of that; *ṛte*—without; *kṛṣṇa-kathā*—talks about the Personality of Godhead, Lord Kṛṣṇa; *amṛta-oghāt*—from the nectar.

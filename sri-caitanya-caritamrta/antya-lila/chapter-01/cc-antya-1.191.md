@@ -1,13 +1,13 @@
 ### CC Antya 1.191
 
-> বিহারসুরদীর্ঘিকা মম মনঃকরীন্দ্রস্য যা
-> বিলোচন-চকোরয়োঃ শরদমন্দচন্দ্রপ্রভা ।
-> উরোঽম্বরতটস্য চাভরণচারুতারাবলী
+> বিহারসুরদীর্ঘিকা মম মনঃকরীন্দ্রস্য যা\
+> বিলোচন-চকোরয়োঃ শরদমন্দচন্দ্রপ্রভা ।\
+> উরোঽম্বরতটস্য চাভরণচারুতারাবলী\
 > ময়োন্নতমনোরথৈরিয়মলম্ভি সা রাধিকা ।।” ॥ ১৯১ ॥
 
-> vihāra-sura-dīrghikā mama manaḥ-karīndrasya yā
-> vilocana-cakorayoḥ śarad-amanda-candra-prabhā
-> uro 'mbara-taṭasya cābharaṇa-cāru-tārāvalī
+> vihāra-sura-dīrghikā mama manaḥ-karīndrasya yā\
+> vilocana-cakorayoḥ śarad-amanda-candra-prabhā\
+> uro 'mbara-taṭasya cābharaṇa-cāru-tārāvalī\
 > mayonnata-manorathair iyam alambhi sā rādhikā
 
 *vihāra-sura-dīrghikā*—the Ganges flowing in the heavenly planets; *mama*—My; *manaḥ-kari-indrasya*—of the elephant-like mind; *yā*—She who; *vilocana*—glancing; *cakorayoḥ*—of My two eyes, which are like *cakora* birds; *śarat-amanda-candra-prabhā*—like the shine of the full moon in the autumn; *uraḥ*—of My chest; *ambara*—like the sky; *taṭasya*—on the edge; *ca*—also; *ābharaṇa*—ornaments; *cāru*—beautiful; *tārā-āvalī*—like the stars; *mayā*—by Me; *unnata*—highly elevated; *manorathaiḥ*—by mental desires; *iyam*—this; *alambhi*—attained; *sā*—She; *rādhikā*—Śrīmatī Rādhārāṇī.

@@ -1,13 +1,13 @@
 ### SB 4.14.29
 
-> मैत्रेय उवाच
-> इत्थं विपर्ययमतिः पापीयानुत्पथं गतः ।
+> मैत्रेय उवाच\
+> इत्थं विपर्ययमतिः पापीयानुत्पथं गतः ।\
 > अनुनीयमानस्तद्याच्ञां न चक्रे भ्रष्टमङ्गलः ॥२९॥
 
-> maitreya uvāca
-> itthaṁ viparyaya-matiḥ
-> pāpīyān utpathaṁ gataḥ
-> anunīyamānas tad-yācñāṁ
+> maitreya uvāca\
+> itthaṁ viparyaya-matiḥ\
+> pāpīyān utpathaṁ gataḥ\
+> anunīyamānas tad-yācñāṁ\
 > na cakre bhraṣṭa-maṅgalaḥ
 
 *maitreyaḥ uvāca*—Maitreya said; *ittham*—thus; *viparyaya-matiḥ*—one who has developed perverse intelligence; *pāpīyān*—most sinful; *utpatham*—from the right path; *gataḥ*—having gone; *anunīyamānaḥ*—being offered all respect; *tat-yācñām*—the request of the sages; *na*—not; *cakre*—accepted; *bhraṣṭa*—bereft of; *maṅgalaḥ*—all good fortune.

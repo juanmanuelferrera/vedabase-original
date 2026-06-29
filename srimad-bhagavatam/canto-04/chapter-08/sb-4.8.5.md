@@ -1,11 +1,11 @@
 ### SB 4.8.5
 
-> सङ्ग्रहेण मयाख्यातः प्रतिसर्गस्तवानघ ।
+> सङ्ग्रहेण मयाख्यातः प्रतिसर्गस्तवानघ ।\
 > त्रिः श्रुत्वैतत्पुमान्पुण्यं विधुनोत्यात्मनो मलम् ॥५॥
 
-> saṅgraheṇa mayākhyātaḥ
-> pratisargas tavānagha
-> triḥ śrutvaitat pumān puṇyaṁ
+> saṅgraheṇa mayākhyātaḥ\
+> pratisargas tavānagha\
+> triḥ śrutvaitat pumān puṇyaṁ\
 > vidhunoty ātmano malam
 
 *saṅgraheṇa*—in summary; *mayā*—by me; *ākhyātaḥ*—is explained; *pratisargaḥ*—cause of devastation; *tava*—your; *anagha*—O pure one; *triḥ*—three times; *śrutvā*—having heard; *etat*—this description; *pumān*—one who; *puṇyam*—piety; *vidhunoti*—washes off; *ātmanaḥ*—of the soul; *malam*—contamination.

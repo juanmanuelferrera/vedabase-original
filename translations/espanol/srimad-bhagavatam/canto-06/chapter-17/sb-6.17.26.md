@@ -1,11 +1,11 @@
 ### SB 6.17.26
 
-> ततस्तु भगवान्रुद्रो रुद्राणीमिदमब्रवीत
+> ततस्तु भगवान्रुद्रो रुद्राणीमिदमब्रवीत\
 > देवर्षिदैत्यसिद्धानां पार्षदानां च शृण्वताम ॥२६॥
 
-> tatas tu bhagavān rudro
-> rudrāṇīm idam abravīt
-> devarṣi-daitya-siddhānāṁ
+> tatas tu bhagavān rudro\
+> rudrāṇīm idam abravīt\
+> devarṣi-daitya-siddhānāṁ\
 > pārṣadānāṁ ca śṛṇvatām
 
 *tataḥ*—a continuación; *tu*—entonces; *bhagavān*—el muy poderoso; *rudraḥ*—el Señor Śiva; *rudrāṇīm*—a su esposa, Pārvatī; *idam*—esto; *abravīt*—dijo; *devarṣi*—mientras el gran sabio Nārada; *daitya*—los demonios; *siddhānām*—y los habitantes de Siddhaloka, que son expertos en el poder yóguico; *pārṣadānām*—sus acompañantes personales; *ca*—también; *śṛṇvatām*—estaban escuchando.

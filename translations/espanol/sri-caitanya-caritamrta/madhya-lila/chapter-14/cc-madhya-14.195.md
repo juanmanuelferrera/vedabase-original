@@ -1,9 +1,9 @@
 ### CC Madhya 14.195
 
-> লোভে আসি’ কৃষ্ণ করে কঞ্চুকাকর্ষণ ।
+> লোভে আসি’ কৃষ্ণ করে কঞ্চুকাকর্ষণ ।\
 > অন্তরে উল্লাস, রাধা করে নিবারণ ॥১৯৫॥
 
-> lobhe āsi' kṛṣṇa kare kañcukākarṣaṇa
+> lobhe āsi' kṛṣṇa kare kañcukākarṣaṇa\
 > antare ullāsa, rādhā kare nivāraṇa
 
 *lobhe*—con avidez; *āsi'*—viniendo; *kṛṣṇa*—el Señor Kṛṣṇa; *kare*—hace; *kañcuka-ākarṣaṇa*—arrebatar el borde de Su sari; *antare*—por dentro; *ullāsa*—muy complacida; *rādhā*—Śrīmatī Rādhārāṇī; *kare*—hace; *nivāraṇa*—detener.

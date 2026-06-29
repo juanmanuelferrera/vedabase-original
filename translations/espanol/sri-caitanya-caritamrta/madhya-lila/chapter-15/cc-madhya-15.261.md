@@ -1,9 +1,9 @@
 ### CC Madhya 15.261
 
-> চৈতন্য-গোসাঞির নিন্দা শুনিল যাহা হৈতে  ।
+> চৈতন্য-গোসাঞির নিন্দা শুনিল যাহা হৈতে  ।\
 > তারে বধ কৈলে হয় পাপ-প্রায়শ্চিত্তে ॥২৬১॥
 
-> caitanya-gosāñira nindā śunila yāhā haite
+> caitanya-gosāñira nindā śunila yāhā haite\
 > tāre vadha kaile haya pāpa-prāyaścitte
 
 *caitanya-gosāñira*—de Śrī Caitanya Mahāprabhu; *nindā*—blasfemia; *śunila*—he oído; *yāhā haite*—de quien; *tāre vadha kaile*—si se lo mata; *haya*—hay; *pāpa-prāyaścitte*—expiación por el acto pecaminoso.

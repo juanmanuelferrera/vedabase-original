@@ -1,13 +1,13 @@
 ### SB 8.23.15
 
-> श्रीशुक्र उवाच
-> कुतस्तत्कर्मवैषम्यं यस्य कर्मेश्वरो भवान
+> श्रीशुक्र उवाच\
+> कुतस्तत्कर्मवैषम्यं यस्य कर्मेश्वरो भवान\
 > यज्ञएशो यज्ञअपुरुषः सर्वभावेन पूजितः ॥१५॥
 
-> śrī-śukra uvāca
-> kutas tat-karma-vaiṣamyaṁ
-> yasya karmeśvaro bhavān
-> yajñeśo yajña-puruṣaḥ
+> śrī-śukra uvāca\
+> kutas tat-karma-vaiṣamyaṁ\
+> yasya karmeśvaro bhavān\
+> yajñeśo yajña-puruṣaḥ\
 > sarva-bhāvena pūjitaḥ
 
 *śrī-śukraḥ uvāca*—Śrī Śukrācārya said; *kutaḥ*—where is that; *tat*—of him (Bali Mahārāja); *karma-vaiṣamyam*—discrepancy in discharging fruitive activities; *yasya*—of whom (Bali Mahārāja); *karma-īśvaraḥ*—the master of all fruitive activities; *bhavān*—Your Lordship; *yajña-īśaḥ*—You are the enjoyer of all sacrifices; *yajña-puruṣaḥ*—You are the person for whose pleasure all sacrifices are offered; *sarva-bhāvena*—in all respects; *pūjitaḥ*—having worshiped.

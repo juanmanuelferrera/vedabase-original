@@ -1,13 +1,13 @@
 ### SB 3.15.34
 
-> तद्वाममुष्य परमस्य विकुण्ठभर्तुः
-> कर्तुं प्रकृष्टमिह धीमहि मन्दधीभ्याम् ।
-> लोकानितो व्रजतमन्तरभावदृष्ट्या
+> तद्वाममुष्य परमस्य विकुण्ठभर्तुः\
+> कर्तुं प्रकृष्टमिह धीमहि मन्दधीभ्याम् ।\
+> लोकानितो व्रजतमन्तरभावदृष्ट्या\
 > पापीयसस्त्रय इमे रिपवोऽस्य यत्र ॥३४॥
 
-> tad vām amuṣya paramasya vikuṇṭha-bhartuḥ
-> kartuṁ prakṛṣṭam iha dhīmahi manda-dhībhyām
-> lokān ito vrajatam antara-bhāva-dṛṣṭyā
+> tad vām amuṣya paramasya vikuṇṭha-bhartuḥ\
+> kartuṁ prakṛṣṭam iha dhīmahi manda-dhībhyām\
+> lokān ito vrajatam antara-bhāva-dṛṣṭyā\
 > pāpīyasas traya ime ripavo 'sya yatra
 
 *tat*—así pues; *vām*—a estos dos; *amuṣya*—de Él; *paramasya*—el Supremo; *vikuṇṭha-bhartuḥ*—el Señor de Vaikuṇṭha; *kartum*—para otorgar; *prakṛṣṭam*—beneficio; *iha*—acerca de esta ofensa; *dhīmahi*—consideremos; *manda-dhībhyām*—aquellos que no tienen una inteligencia muy despierta; *lokān*—al mundo material; *itaḥ*—desde este lugar (Vaikuṇṭha); *vrajatam*—ir; *antara-bhāva*—dualidad; *dṛṣṭyā*—por haber visto; *pāpīyasaḥ*—pecadora; *trayaḥ*—tres; *ime*—estos; *ripavaḥ*—enemigos; *asya*—de una entidad viviente; *yatra*—donde.

@@ -1,9 +1,9 @@
 ### CC Antya 13.45
 
-> সনাতন করাইলা তাঁরে দ্বাদশ বন দরশন ।
+> সনাতন করাইলা তাঁরে দ্বাদশ বন দরশন ।\
 > গোকুলে রহিলা দুঁহে দেখি’ মহাবন ॥৪৫॥
 
-> sanātana karāilā tāṅre dvādaśa vana daraśana
+> sanātana karāilā tāṅre dvādaśa vana daraśana\
 > gokule rahilā duṅhe dekhi' mahāvana
 
 *sanātana*—Sanātana Gosvāmī; *karāilā*—hizo; *tāṅre*—a él; *dvādaśa*—doce; *vana*—bosques; *daraśana*—visitar; *gokule*—en Gokula; *rahilā*—permanecieron; *duṅhe*—ambos; *dekhi'*—después de ver; *mahā-vana*—Mahāvana.

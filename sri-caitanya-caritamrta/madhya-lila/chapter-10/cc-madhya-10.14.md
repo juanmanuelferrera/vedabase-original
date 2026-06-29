@@ -1,9 +1,9 @@
 ### CC Madhya 10.14
 
-> রাজা কহে, — তাঁরে তুমি যাইতে কেনে দিলে ।
+> রাজা কহে, — তাঁরে তুমি যাইতে কেনে দিলে ।\
 > পায় পড়ি’ যত্ন করি’ কেনে না রাখিলে ॥১৪॥
 
-> rājā kahe,-tāṅre tumi yāite kene dile
+> rājā kahe,-tāṅre tumi yāite kene dile\
 > pāya paḍi' yatna kari' kene nā rākhile
 
 *rājākahe*—the King said; *tāṅre*—Him; *tumi*—you; *yāite*—to go; *kene*—why; *dile*—allowed; *pāya*—at His lotus feet; *paḍi'*—falling; *yatna kari'*—endeavoring very much; *kene*—why; *nā*—not; *rākhile*—kept.

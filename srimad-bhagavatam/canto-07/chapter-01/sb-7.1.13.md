@@ -1,11 +1,11 @@
 ### SB 7.1.13
 
-> दृष्ट्वा महाद्भुतं राजा राजसूये महाक्रतौ
+> दृष्ट्वा महाद्भुतं राजा राजसूये महाक्रतौ\
 > वासुदेवे भगवति सायुज्यं चेदिभूभुजः ॥१३॥
 
-> atraivodāhṛtaḥ pūrvam
-> itihāsaḥ surarṣiṇā
-> prītyā mahā-kratau rājan
+> atraivodāhṛtaḥ pūrvam\
+> itihāsaḥ surarṣiṇā\
+> prītyā mahā-kratau rājan\
 > pṛcchate 'jāta-śatrave
 
 *atra*—in this connection; *eva*—certainly; *udāhṛtaḥ*—was recited; *pūrvam*—previously; *itihāsaḥ*—an old story; *sura-ṛṣiṇā*—by the great sage Nārada; *prītyā*—with joy; *mahā-kratau*—at the great Rājasūya sacrifice; *rājan*—O King; *pṛcchate*—to the inquiring; *ajāta-śatrave*—Mahārāja Yudhiṣṭhira, who had no enemy.

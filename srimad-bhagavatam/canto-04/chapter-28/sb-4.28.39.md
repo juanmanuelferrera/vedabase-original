@@ -1,11 +1,11 @@
 ### SB 4.28.39
 
-> आस्ते स्थाणुरिवैकत्र दिव्यं वर्षशतं स्थिरः ।
+> आस्ते स्थाणुरिवैकत्र दिव्यं वर्षशतं स्थिरः ।\
 > वासुदेवे भगवति नान्यद्वेदोद्वहन्रतिम् ॥३९॥
 
-> āste sthāṇur ivaikatra
-> divyaṁ varṣa-śataṁ sthiraḥ
-> vāsudeve bhagavati
+> āste sthāṇur ivaikatra\
+> divyaṁ varṣa-śataṁ sthiraḥ\
+> vāsudeve bhagavati\
 > nānyad vedodvahan ratim
 
 *āste*—remains; *sthāṇuḥ*—immovable; *iva*—like; *ekatra*—in one place; *divyam*—of the demigods; *varṣa*—years; *śatam*—one hundred; *sthiraḥ*—steady; *vāsudeve*—unto Lord Kṛṣṇa; *bhagavati*—the Supreme Personality of Godhead; *na*—not; *anyat*—anything else; *veda*—did know; *udvahan*—possessing; *ratim*—attraction.

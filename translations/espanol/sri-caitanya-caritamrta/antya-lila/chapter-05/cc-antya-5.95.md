@@ -1,9 +1,9 @@
 ### CC Antya 5.95
 
-> গীত, শ্লোক, গ্রন্থ, কবিত্ব — যেই করি’ আনে ।
+> গীত, শ্লোক, গ্রন্থ, কবিত্ব — যেই করি’ আনে ।\
 > প্রথমে শুনায় সেই স্বরূপের স্থানে ॥৯৫॥
 
-> gīta, śloka, grantha, kavitva--yei kari' āne
+> gīta, śloka, grantha, kavitva--yei kari' āne\
 > prathame śunāya sei svarūpera sthāne
 
 *gīta*—canción; *śloka*—verso; *grantha*—literatura; *kavitva*—poesía; *yei*—cualquiera que; *kari'*—componiendo; *āne*—trae; *prathame*—primero; *śunāya*—recita; *sei*—esa persona; *svarūpera sthāne*—ante Svarūpa Dāmodara Gosvāmī.

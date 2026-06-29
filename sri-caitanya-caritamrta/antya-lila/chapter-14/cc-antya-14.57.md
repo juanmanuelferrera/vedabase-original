@@ -1,9 +1,9 @@
 ### CC Antya 14.57
 
-> এইমত অর্ধরাত্রি কৈলা নির্যাপণ ।
+> এইমত অর্ধরাত্রি কৈলা নির্যাপণ ।\
 > ভিতর-প্রকোষ্ঠে প্রভুরে করাইলা শয়ন ॥৫৭॥
 
-> ei-mata ardha-rātri kailā niryāpaṇa
+> ei-mata ardha-rātri kailā niryāpaṇa\
 > bhitara-prakoṣṭhe prabhure karāilā śayana
 
 *ei-mata*—in this way; *ardha-rātri*—half the night; *kailā niryāpaṇa*—passed; *bhitara-prakoṣṭhe*—in the inner room; *prabhure*—Śrī Caitanya Mahāprabhu; *karāilā śayana*—they made to lie down.

@@ -1,18 +1,18 @@
 ### SB 4.6.14-15
 
-> मन्दारैः पारिजातैश्च सरलैश्चोपशोभितम् ।
-> तमालैः शालतालैश्च कोविदारासनार्जुनैः ॥१४॥
-> चूतैः कदम्बैर्नीपैश्च नागपुन्नागचम्पकैः ।
+> मन्दारैः पारिजातैश्च सरलैश्चोपशोभितम् ।\
+> तमालैः शालतालैश्च कोविदारासनार्जुनैः ॥१४॥\
+> चूतैः कदम्बैर्नीपैश्च नागपुन्नागचम्पकैः ।\
 > पाटलाशोकबकुलैः कुन्दैः कुरबकैरपि ॥१५॥
 
-> mandāraiḥ pārijātaiś ca
-> saralaiś copaśobhitam
-> tamālaiḥ śāla-tālaiś ca
+> mandāraiḥ pārijātaiś ca\
+> saralaiś copaśobhitam\
+> tamālaiḥ śāla-tālaiś ca\
 > kovidārāsanārjunaiḥ
 
-> cūtaiḥ kadambair nīpaiś ca
-> nāga-punnāga-campakaiḥ
-> pāṭalāśoka-bakulaiḥ
+> cūtaiḥ kadambair nīpaiś ca\
+> nāga-punnāga-campakaiḥ\
+> pāṭalāśoka-bakulaiḥ\
 > kundaiḥ kurabakair api
 
 *mandāraiḥ*—con *mandāras*; *pārijātaiḥ*—con *pārijātas*; *ca*—y; *saralaiḥ*—con *saralas*; *ca*—y; *upaśobhitam*—adornada; *tamālaiḥ*—con *tamālas*; *śāla-tālaiḥ*—con *śālas* y *tālas*; *ca*—y; *kovidāra-āsana-arjunaiḥ*—*kovidāras, āsanas (vijaya-sāras)* y *arjunas (kāñcanārakas)*; *cūtaiḥ*—con *cūtas* (una clase de mango); *kadambaiḥ*—con *kadambas*; *nīpaiḥ*—con *nīpas (dhūli-kadambas)*; *ca*—y; *nāga-punnāga-campakaiḥ*—con *nāgas, punnāgas* y *campakas*; *pāṭala-aśoka-bakulaiḥ*—con *pāṭalas, aśokas* y *bakulas*; *kundaiḥ*—con *kundas*; *kurabakaiḥ*—con *kurabakas*; *api*—también.

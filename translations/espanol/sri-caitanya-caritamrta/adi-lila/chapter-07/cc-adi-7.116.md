@@ -1,9 +1,9 @@
 ### CC Adi 7.116
 
-> ঈশ্বরের তত্ত্ব — যেন জ্বলিত জ্বলন ।
+> ঈশ্বরের তত্ত্ব — যেন জ্বলিত জ্বলন ।\
 > জীবের স্বরূপ — যৈছে স্ফুলিঙ্গের কণ ॥১১৬॥
 
-> īśvarera tattva--yena jvalita jvalana
+> īśvarera tattva--yena jvalita jvalana\
 > jīvera svarūpa--yaiche sphuliṅgera kaṇa
 
 *īśvarera tattva*—la verdad de la Suprema Personalidad de Dios; *yena*—es como; *jvalita*—ardiente; *jvalana*—fuego; *jīvera*—de las entidades vivientes; *svarūpa*—identidad; *yaiche*—es como; *sphuliṅgera*—de la chispa; *kaṇa*—partícula.

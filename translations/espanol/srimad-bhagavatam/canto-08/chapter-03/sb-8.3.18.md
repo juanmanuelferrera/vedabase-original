@@ -1,11 +1,11 @@
 ### SB 8.3.18
 
-> आत्मात्मजाप्तगृहवित्तजनेषु सक्तैर्दुष्प्रापणाय गुणसङ्गविवर्जिताय
+> आत्मात्मजाप्तगृहवित्तजनेषु सक्तैर्दुष्प्रापणाय गुणसङ्गविवर्जिताय\
 > मुक्तात्मभिः स्वहृदये परिभाविताय ज्ञआनात्मने भगवते नम ईश्वराय ॥१८॥
 
-> ātmātma-jāpta-gṛha-vitta-janeṣu saktair
-> duṣprāpaṇāya guṇa-saṅga-vivarjitāya
-> muktātmabhiḥ sva-hṛdaye paribhāvitāya
+> ātmātma-jāpta-gṛha-vitta-janeṣu saktair\
+> duṣprāpaṇāya guṇa-saṅga-vivarjitāya\
+> muktātmabhiḥ sva-hṛdaye paribhāvitāya\
 > jñānātmane bhagavate nama īśvarāya
 
 *ātma*—la mente y el cuerpo; *ātma-ja*—hijos e hijas; *āpta*—amigos y parientes; *gṛha*—hogar, comunidad, sociedad y nación; *vitta*—riqueza; *janeṣu*—a diversos sirvientes y criados; *saktaiḥ*—por aquellos que están demasiado apegados; *duṣprāpaṇāya*—a Ti, que eres muy difícil de obtener; *guṇa-saṅga*—por las tres modalidades de la naturaleza material; *vivarjitāya*—que no estás contaminado; *mukta-ātmabhiḥ*—por personas que están ya liberadas; *sva-hṛdaye*—en lo profundo del corazón; *paribhāvitāya*—a Ti, que eres el objeto de meditación constante; *jñāna-ātmane*—el manantial de toda iluminación; *bhagavate*—a la Suprema Personalidad de Dios; *namaḥ*—ofrezco mis respetuosas reverencias; *īśvarāya*—al controlador supremo.

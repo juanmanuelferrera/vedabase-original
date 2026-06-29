@@ -1,6 +1,6 @@
 ### SB 5.20.3-4
 
-> शिवं यवसं सुभद्रं शान्तं क्षेमममृतमभयमिति वर्षाणि तेषु गिरयो नद्यश्चसप्तैवाभिज्ञआताः ॥३॥
+> शिवं यवसं सुभद्रं शान्तं क्षेमममृतमभयमिति वर्षाणि तेषु गिरयो नद्यश्चसप्तैवाभिज्ञआताः ॥३॥\
 > मणिकूटो वज्रकूट इन्द्रसेनो ज्योतिष्मान्सुपर्णो हिरण्यष्ठीवो मेघमाल इति सेतुशैलाः अरुणानृम्णाङ्गिरसी सावित्री सुप्तभाता ऋतम्भरा सत्यम्भरा इति महानद्यः यासां जलोपस्पर्शनविधूतरजसतमसो हंसपतङ्गोर्ध्वायनसत्याङ्गसंज्ञआश्चत्वारो वर्णाः सहस्रायुषो विबुधोपमसन्दर्शनप्रजननाः स्वर्गद्वारं त्रय्या विद्यया भगवन्तं त्रयीमयं सूर्यमात्मानं यजन्ते ॥४॥
 
 śivaṁ yavasaṁ subhadraṁ śāntaṁ kṣemam amṛtam abhayam iti varṣāṇi teṣu girayo nadyaś ca saptaivābhijñātāḥ; *maṇikūṭo vajrakūṭa indraseno jyotiṣmān suparṇo hiraṇyaṣṭhīvo meghamāla iti setu-śailāḥ aruṇā nṛmṇāṅgirasī sāvitrī suptabhātā ṛtambharā satyambharā iti mahā*-nadyaḥ; *yāsāṁ jalopasparśana*-vidhūta-rajas-tamaso haṁsa-pataṅgordhvāyana-satyāṅga-saṁjñāś catvāro varṇāḥ sahasrāyuṣo vibudhopama-sandarśana-prajananāḥ svarga-dvāraṁ trayyā vidyayā bhagavantaṁ trayīmayaṁ sūryam ātmānaṁ yajante.

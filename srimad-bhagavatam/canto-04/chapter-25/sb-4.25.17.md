@@ -1,11 +1,11 @@
 ### SB 4.25.17
 
-> पुर्यास्तु बाह्योपवने दिव्यद्रुमलताकुले ।
+> पुर्यास्तु बाह्योपवने दिव्यद्रुमलताकुले ।\
 > नदद्विहङ्गालिकुल कोलाहलजलाशये ॥१७॥
 
-> puryās tu bāhyopavane
-> divya-druma-latākule
-> nadad-vihaṅgāli-kula-
+> puryās tu bāhyopavane\
+> divya-druma-latākule\
+> nadad-vihaṅgāli-kula-\
 > kolāhala-jalāśaye
 
 *puryāḥ*—of that town; *tu*—then; *bāhya-upavane*—in an outside garden; *divya*—very nice; *druma*—trees; *latā*—creepers; *ākule*—filled with; *nadat*—vibrating; *vihaṅga*—birds; *ali*—bees; *kula*—groups of; *kolāhala*—humming; *jala-āśaye*—with a lake.

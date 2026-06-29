@@ -1,11 +1,11 @@
 ### SB 3.29.30
 
-> रूपभेदविदस्तत्र ततश्चोभयतोदतः ।
+> रूपभेदविदस्तत्र ततश्चोभयतोदतः ।\
 > तेषां बहुपदाः श्रेष्ठाश्चतुष्पादस्ततो द्विपात् ॥३०॥
 
-> rūpa-bheda-vidas tatra
-> tataś cobhayato-dataḥ
-> teṣāṁ bahu-padāḥ śreṣṭhāś
+> rūpa-bheda-vidas tatra\
+> tataś cobhayato-dataḥ\
+> teṣāṁ bahu-padāḥ śreṣṭhāś\
 > catuṣ-pādas tato dvi-pāt
 
 *rūpa-bheda*—distinctions of form; *vidaḥ*—those who perceive; *tatra*—than them; *tataḥ*—than them; *ca*—and; *ubhayataḥ*—in both jaws; *dataḥ*—those with teeth; *teṣām*—of them; *bahu-padāḥ*—those who have many legs; *śreṣṭhāḥ*—better; *catuḥ-pādaḥ*—four-legged; *tataḥ*—than them; *dvi-pāt*—two-legged.

@@ -1,11 +1,11 @@
 ### SB 4.8.34
 
-> गुणाधिकान्मुदं लिप्सेदनुक्रोशं गुणाधमात् ।
+> गुणाधिकान्मुदं लिप्सेदनुक्रोशं गुणाधमात् ।\
 > मैत्रीं समानादन्विच्छेन्न तापैरभिभूयते ॥३४॥
 
-> guṇādhikān mudaṁ lipsed
-> anukrośaṁ guṇādhamāt
-> maitrīṁ samānād anvicchen
+> guṇādhikān mudaṁ lipsed\
+> anukrośaṁ guṇādhamāt\
+> maitrīṁ samānād anvicchen\
 > na tāpair abhibhūyate
 
 *guṇa-adhikāt*—el que está más cualificado; *mudam*—placer; *lipset*—se debe sentir; *anukrośam*—compasión; *guṇa-adhamāt*—el que está menos cualificado; *maitrīm*—amistad; *samānāt*—con un igual; *anvicchet*—se debe desear; *na*—no; *tāpaiḥ*—con problemas; *abhibhūyate*—se ve afectado.

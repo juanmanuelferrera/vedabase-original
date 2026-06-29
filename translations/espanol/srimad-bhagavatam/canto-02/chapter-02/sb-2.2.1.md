@@ -1,13 +1,13 @@
 ### SB 2.2.1
 
-> श्रीशुक उवाच
-> एवं पुरा धारणयात्मयोनिर्नष्टां स्मृतिं प्रत्यवरुध्य तुष्टात् ।
+> श्रीशुक उवाच\
+> एवं पुरा धारणयात्मयोनिर्नष्टां स्मृतिं प्रत्यवरुध्य तुष्टात् ।\
 > तथा ससर्जेदममोघदृष्टिर्यथाप्ययात्प्राग्व्यवसायबुद्धिः ॥१॥
 
-> śrī-śuka uvāca
-> evaṁ purā dhāraṇayātma-yonir
-> naṣṭāṁ smṛtiṁ pratyavarudhya tuṣṭāt
-> tathā sasarjedam amogha-dṛṣṭir
+> śrī-śuka uvāca\
+> evaṁ purā dhāraṇayātma-yonir\
+> naṣṭāṁ smṛtiṁ pratyavarudhya tuṣṭāt\
+> tathā sasarjedam amogha-dṛṣṭir\
 > yathāpyayāt prāg vyavasāya-buddhiḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *evam*—justo de la misma manera; *purā*—antes de la manifestación del cosmos; *dhāraṇayā*—mediante esa concepción; *ātma-yoniḥ*—de Brahmājī; *naṣṭām*—perdido; *smṛtim*—recuerdo; *pratyavarudhya*—por el hecho de recobrar el conocimiento; *tuṣṭāt*—por apaciguar al Señor; *tathā*—después; *sasarja*—creó; *idam*—este mundo material; *amogha-dṛṣṭiḥ*—aquel que ha logrado tener una visión clara; *yathā*—como; *apyayāt*—creado; *prāk*—al igual que antes; *vyavasāya*—averiguó; *buddhiḥ*—inteligencia.

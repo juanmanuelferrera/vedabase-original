@@ -1,9 +1,9 @@
 ### CC Madhya 20.142
 
-> দারিদ্র্য-নাশ, ভবক্ষয়, — প্রেমের ‘ফল’ নয় ।
+> দারিদ্র্য-নাশ, ভবক্ষয়, — প্রেমের ‘ফল’ নয় ।\
 > প্রেমসুখ-ভোগ — মুখ্য প্রয়োজন হয় ॥১৪২॥
 
-> dāridrya-nāśa, bha va-kṣa ya,--premera 'phala' naya
+> dāridrya-nāśa, bha va-kṣa ya,--premera 'phala' naya\
 > prema-sukha-bhoga--mukhya prayojana haya
 
 *dāridrya-nāśa*—el fin de la vida de pobreza; *bhava-kṣaya*—aniquilación de la existencia material; *premera*—del amor a Dios; *phala*—el resultado; *naya*—ciertamente no es; *prema-sukha-bhoga*—disfrute de la felicidad del amor a Dios; *mukhya*—principal; *prayojana*—meta de la vida; *haya*—es.

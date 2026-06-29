@@ -1,11 +1,11 @@
 ### SB 4.2.20
 
-> विज्ञाय शापं गिरिशानुगाग्रणीर्नन्दीश्वरो रोषकषायदूषितः ।
+> विज्ञाय शापं गिरिशानुगाग्रणीर्नन्दीश्वरो रोषकषायदूषितः ।\
 > दक्षाय शापं विससर्ज दारुणं ये चान्वमोदंस्तदवाच्यतां द्विजाः ॥२०॥
 
-> vijñāya śāpaṁ giriśānugāgraṇīr
-> nandīśvaro roṣa-kaṣāya-dūṣitaḥ
-> dakṣāya śāpaṁ visasarja dāruṇaṁ
+> vijñāya śāpaṁ giriśānugāgraṇīr\
+> nandīśvaro roṣa-kaṣāya-dūṣitaḥ\
+> dakṣāya śāpaṁ visasarja dāruṇaṁ\
 > ye cānvamodaṁs tad-avācyatāṁ dvijāḥ
 
 *vijñāya*—entender; *śāpam*—la maldición; *giriśa*—de Śiva; *anuga-agraṇīḥ*—uno de los principales seguidores; *nandīśvaraḥ*—Nandīśvara; *roṣa*—ira; *kaṣāya*—rojo; *dūṣitaḥ*—cegado; *dakṣāya*—a Dakṣa; *śāpam*—una maldición; *visasarja*—dio; *dāruṇam*—áspero; *ye*—quien; *ca*—y; *anvamodan*—toleraron; *tat-avācyatām*—la maldición de Śiva; *dvijāḥ*—los *brāhmaṇas.*.

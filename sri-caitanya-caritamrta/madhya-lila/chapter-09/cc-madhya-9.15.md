@@ -1,9 +1,9 @@
 ### CC Madhya 9.15
 
-> মল্লিকার্জুন-তীর্থে যাই’ মহেশ দেখিল ।
+> মল্লিকার্জুন-তীর্থে যাই’ মহেশ দেখিল ।\
 > তাহাঁ সব লোকে কৃষ্ণনাম লওয়াইল ॥১৫॥
 
-> mallikārjuna-tīrthe yāi' maheśa dekhila
+> mallikārjuna-tīrthe yāi' maheśa dekhila\
 > tāhāṅ saba loke kṛṣṇa-nāma laoyāila
 
 *mallikārjuna-tīrthe*—to the holy place known as Mallikārjuna; *yāi'*—going; *maheśa*—the deity of Lord Śiva; *dekhila*—He saw; *tāhāṅ*—there; *saba loke*—all the people; *kṛṣṇa-nāma*—Lord Kṛṣṇa's holy name; *laoyāila*—He induced to chant.

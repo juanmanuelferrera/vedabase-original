@@ -1,9 +1,9 @@
 ### CC Antya 4.17
 
-> প্রভু দেখি’ দুঁহে পড়ে দণ্ডবৎ হঞা ।
+> প্রভু দেখি’ দুঁহে পড়ে দণ্ডবৎ হঞা ।\
 > প্রভু আলিঙ্গিলা হরিদাসেরে উঠাঞা ॥১৭॥
 
-> prabhu dekhi' duṅhe paḍe daṇḍavat hañā
+> prabhu dekhi' duṅhe paḍe daṇḍavat hañā\
 > prabhu āliṅgilā haridāsere uṭhāñā
 
 *prabhu dekhi'*—al ver al Señor Śrī Caitanya Mahāprabhu; *duṅhe*—ambos; *paḍe*—cayeron al suelo; *daṇḍavat hañā*—tendidos como varas; *prabhu*—Śrī Caitanya Mahāprabhu; *āliṅgilā*—abrazó; *haridāsere*—a Haridāsa Ṭhākura; *uṭhāñā*—después de levantar.

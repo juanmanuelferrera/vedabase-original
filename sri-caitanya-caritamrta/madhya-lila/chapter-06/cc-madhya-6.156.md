@@ -1,11 +1,11 @@
 ### CC Madhya 6.156
 
-> তয়া তিরোহিতত্বাচ্চ শক্তিঃ ক্ষেত্রজ্ঞসংজ্ঞিতা ।
+> তয়া তিরোহিতত্বাচ্চ শক্তিঃ ক্ষেত্রজ্ঞসংজ্ঞিতা ।\
 > সর্বভূতেষু ভূপাল তারতম্যেন বর্ততে ॥১৫৬॥
 
-> tayā tirohitatvāc ca
-> śaktiḥ kṣetra-jña-saṁjñitā
-> sarva-bhūteṣu bhū-pāla
+> tayā tirohitatvāc ca\
+> śaktiḥ kṣetra-jña-saṁjñitā\
+> sarva-bhūteṣu bhū-pāla\
 > tāratamyena vartate
 
 *tayā*—by her; *tirohitatvātḥa*—from being freed from the influence; *ca*—also; *śaktiḥ*—the potency; *kṣetra-jña*—*kṣetra-jña*; *saṁjñitā*—known by the name; *sarva-bhūteṣu*—in different types of bodies; *bhū-pāla*—O King; *tāratamyena*—in different degrees; *vartate*—exists.

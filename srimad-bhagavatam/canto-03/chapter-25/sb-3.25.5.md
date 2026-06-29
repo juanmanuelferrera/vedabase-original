@@ -1,13 +1,13 @@
 ### SB 3.25.5
 
-> मैत्रेय उवाच
-> पितरि प्रस्थितेऽरण्यं मातुः प्रियचिकीर्षया ।
+> मैत्रेय उवाच\
+> पितरि प्रस्थितेऽरण्यं मातुः प्रियचिकीर्षया ।\
 > तस्मिन्बिन्दुसरेऽवात्सीद्भगवान्कपिलः किल ॥५॥
 
-> maitreya uvāca
-> pitari prasthite 'raṇyaṁ
-> mātuḥ priya-cikīrṣayā
-> tasmin bindusare 'vātsīd
+> maitreya uvāca\
+> pitari prasthite 'raṇyaṁ\
+> mātuḥ priya-cikīrṣayā\
+> tasmin bindusare 'vātsīd\
 > bhagavān kapilaḥ kila
 
 *maitreyaḥ uvāca*—Maitreya said; *pitari*—when the father; *prasthite*—left; *araṇyam*—for the forest; *mātuḥ*—His mother; *priya-cikīrṣayā*—with a desire to please; *tasmin*—on that; *bindusare*—Lake Bindu-sarovara; *avātsīt*—He stayed; *bhagavān*—the Lord; *kapilaḥ*—Kapila; *kila*—indeed.

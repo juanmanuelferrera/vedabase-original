@@ -1,11 +1,11 @@
 ### SB 2.2.4
 
-> सत्यां क्षितौ किं कशिपोः प्रयासैर्बाहौ स्वसिद्धे ह्युपबर्हणैः किम् ।
+> सत्यां क्षितौ किं कशिपोः प्रयासैर्बाहौ स्वसिद्धे ह्युपबर्हणैः किम् ।\
 > सत्यञ्जलौ किं पुरुधान्नपात्र्या दिग्वल्कलादौ सति किं दुकूलैः ॥४॥
 
-> satyāṁ kṣitau kiṁ kaśipoḥ prayāsair
-> bāhau svasiddhe hy upabarhaṇaiḥ kim
-> saty añjalau kiṁ purudhānna-pātryā
+> satyāṁ kṣitau kiṁ kaśipoḥ prayāsair\
+> bāhau svasiddhe hy upabarhaṇaiḥ kim\
+> saty añjalau kiṁ purudhānna-pātryā\
 > dig-valkalādau sati kiṁ dukūlaiḥ
 
 *satyām*—being in possession; *kṣitau*—earthly flats; *kim*—where is the necessity; *kaśipoḥ*—of beds and cots; *prayāsaiḥ*—endeavoring for; *bāhau*—the arms; *sva-siddhe*—being self-sufficient; *hi*—certainly; *upabarhaṇaiḥ*—bed and bedstead; *kim*—what is the use; *sati*—being present; *añjalau*—the palms of the hands; *kim*—what is the use; *purudhā*—varieties of; *anna*—eatables; *pātryā*—by the utensils; *dik*—open space; *valkala-ādau*—skins of trees; *sati*—being existent; *kim*—what is the use of; *dukūlaiḥ*—clothes.

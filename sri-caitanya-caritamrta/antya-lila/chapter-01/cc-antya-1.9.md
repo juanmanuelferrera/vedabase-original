@@ -1,9 +1,9 @@
 ### CC Antya 1.9
 
-> মধ্যলীলা সংক্ষেপেতে করিলুঁ বর্ণন ।
+> মধ্যলীলা সংক্ষেপেতে করিলুঁ বর্ণন ।\
 > অন্ত্যলীলা-বর্ণন কিছু শুন, ভক্তগণ ॥৯॥
 
-> madhya-līlā saṅkṣepete kariluṅ varṇana
+> madhya-līlā saṅkṣepete kariluṅ varṇana\
 > antya-līlā-varṇana kichu śuna, bhakta-gaṇa
 
 *madhya-līlā*—pastimes known as *madhya-līlā*; *saṅkṣepete*—in brief; *kariluṅ varṇana*—I have described; *antya-līlā*—the last pastimes; *varṇana*—description; *kichu*—something; *śuna*—hear; *bhakta-gaṇa*—O devotees.

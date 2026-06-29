@@ -1,11 +1,11 @@
 ### CC Madhya 13.1
 
-> স জীয়াৎ কৃষ্ণচৈতন্যঃ শ্রীরথাগ্রে ননর্ত যঃ ।
+> স জীয়াৎ কৃষ্ণচৈতন্যঃ শ্রীরথাগ্রে ননর্ত যঃ ।\
 > যেনাসীজ্জগতাং চিত্রং জগন্নাথোঽপি বিস্মিতঃ ॥১॥
 
-> sa jīyāt kṛṣṇa-caitanyaḥ
-> śrī-rathāgre nanarta yaḥ
-> yenāsīj jagatāṁ citraṁ
+> sa jīyāt kṛṣṇa-caitanyaḥ\
+> śrī-rathāgre nanarta yaḥ\
+> yenāsīj jagatāṁ citraṁ\
 > jagannātho 'pi vismitaḥ
 
 *saḥ*—Él; *jīyāt*—que viva largamente; *kṛṣṇa-caitanyaḥ*—el Señor Śrī Caitanya Mahāprabhu; *śrī-ratha-agre*—frente al carro; *nanarta*—bailó; *yaḥ*—quien; *yena*—por quien; *āsīt*—hubo; *jagatām*—del universo entero; *citram*—asombro; *jagannāthaḥ*—el Señor Jagannātha; *api*—también; *vismitaḥ*—quedó asombrado.

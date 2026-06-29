@@ -1,9 +1,9 @@
 ### CC Madhya 1.35
 
-> হরিভক্তিবিলাস, আর ভাগবতামৃত ।
+> হরিভক্তিবিলাস, আর ভাগবতামৃত ।\
 > দশম-টিপ্পনী, আর দশম-চরিত ॥৩৫॥
 
-> hari-bhakti-vilāsa, āra bhāgavatāmṛta
+> hari-bhakti-vilāsa, āra bhāgavatāmṛta\
 > daśama-ṭippanī, āra daśama-carita
 
 *hari-bhakti-vilāsa*—la escritura llamada Hari-bhakti-vilāsa; *āra*—y; *bhāgavatāmṛta*—la escritura llamada Bṛhad-bhāgavatāmṛta; *daśama-ṭippanī*—comentarios al Décimo Canto del Śrīmad-Bhāgavatam; *āra*—y; *daśama-carita*—poesía acerca del Décimo Canto del Śrīmad-Bhāgavatam.

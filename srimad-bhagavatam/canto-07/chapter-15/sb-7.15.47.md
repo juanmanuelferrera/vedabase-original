@@ -1,11 +1,11 @@
 ### SB 7.15.47
 
-> प्रवृत्तं च निवृत्तं च द्विविधं कर्म वैदिकम
+> प्रवृत्तं च निवृत्तं च द्विविधं कर्म वैदिकम\
 > आवर्तते प्रवृत्तेन निवृत्तेनाश्नुतेऽमृतम ॥४७॥
 
-> pravṛttaṁ ca nivṛttaṁ ca
-> dvi-vidhaṁ karma vaidikam
-> āvartate pravṛttena
+> pravṛttaṁ ca nivṛttaṁ ca\
+> dvi-vidhaṁ karma vaidikam\
+> āvartate pravṛttena\
 > nivṛttenāśnute 'mṛtam
 
 *pravṛttam*—inclination for material enjoyment; *ca*—and; *nivṛttam*—cessation of material enjoyment; *ca*—and; *dvi-vidham*—these two varieties; *karma*—of activities; *vaidikam*—recommended in the *Vedas*; *āvartate*—one travels up and down through the cycle of *saṁsāra*; *pravṛttena*—by an inclination for enjoying material activities; *nivṛttena*—but by ceasing such activities; *aśnute*—one enjoys; *amṛtam*—eternal life.

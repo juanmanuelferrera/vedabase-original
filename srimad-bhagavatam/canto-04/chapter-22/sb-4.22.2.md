@@ -1,11 +1,11 @@
 ### SB 4.22.2
 
-> तांस्तु सिद्धेश्वरान्राजा व्योम्नोऽवतरतोऽर्चिषा ।
+> तांस्तु सिद्धेश्वरान्राजा व्योम्नोऽवतरतोऽर्चिषा ।\
 > लोकानपापान्कुर्वाणान्सानुगोऽचष्ट लक्षितान् ॥२॥
 
-> tāṁs tu siddheśvarān rājā
-> vyomno 'vatarato 'rciṣā
-> lokān apāpān kurvāṇān
+> tāṁs tu siddheśvarān rājā\
+> vyomno 'vatarato 'rciṣā\
+> lokān apāpān kurvāṇān\
 > sānugo 'caṣṭa lakṣitān
 
 *tān*—them; *tu*—but; *siddha-īśvarān*—masters of all mystic power; *rājā*—the King; *vyomnaḥ*—from the sky; *avatarataḥ*—while descending; *arciṣā*—by their glaring effulgence; *lokān*—all the planets; *apāpān*—sinless; *kurvāṇān*—doing so; *sa-anugaḥ*—with his associates; *acaṣṭa*—recognized; *lakṣitān*—by seeing them.

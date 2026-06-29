@@ -1,9 +1,9 @@
 ### CC Madhya 18.187
 
-> ‘অদ্বৈত-ব্রহ্মবাদ’ সেই করিল স্থাপন ।
+> ‘অদ্বৈত-ব্রহ্মবাদ’ সেই করিল স্থাপন ।\
 > তার শাস্ত্রযুক্ত্যে তারে প্রভু কৈলা খণ্ডন ॥১৮৭॥
 
-> 'advaita-brahma-vāda' sei karila sthāpana
+> 'advaita-brahma-vāda' sei karila sthāpana\
 > tāra śāstra-yuktye tāre prabhu kailā khaṇḍana
 
 *advaita-brahma-vāda*—the impersonal Brahman conception; *sei*—that saintly person; *karila sthāpana*—established; *tāra śāstra-yuktye*—on the logic of his scripture; *tāre*—unto him; *prabhu*—Śrī Caitanya Mahāprabhu; *kailā*—did; *khaṇḍana*—refutation.

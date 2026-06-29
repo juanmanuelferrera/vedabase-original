@@ -1,13 +1,13 @@
 ### CC Madhya 22.84
 
-> ভবাপবর্গো ভ্রমতো যদা ভবে-
-> জ্জনস্য তর্হ্যচ্যুত সৎসমাগমঃ ।
-> সৎসঙ্গমো যর্হি তদৈব সদ্গতৌ
+> ভবাপবর্গো ভ্রমতো যদা ভবে-\
+> জ্জনস্য তর্হ্যচ্যুত সৎসমাগমঃ ।\
+> সৎসঙ্গমো যর্হি তদৈব সদ্গতৌ\
 > পরাবরেশে ত্বয়ি জায়তে রতিঃ ॥৮৪॥
 
-> bhavāpavargo bhramato yadā bhavej
-> janasya tarhy acyuta sat-samāgamaḥ
-> sat-saṅgamo yarhi tadaiva sad-gatau
+> bhavāpavargo bhramato yadā bhavej\
+> janasya tarhy acyuta sat-samāgamaḥ\
+> sat-saṅgamo yarhi tadaiva sad-gatau\
 > parāvareśe tvayi jāyate ratiḥ
 
 *bhava-apavargaḥ*—liberation from the nescience of material existence; *bhramataḥ*—wandering; *yadā*—when; *bhavet*—should be; *janasya*—of a person; *tarhi*—at that time; *acyuta*—O Supreme Personality of Godhead; *sat-samāgamaḥ*—association with devotees; *sat-saṅgamaḥ*—association with the devotees; *yarhi*—when; *tadā*—at that time; *eva*—only; *sat-gatau*—the highest goal of life; *parāvareśe*—the Lord of the universe; *tvayi*—to You; *jāyate*—appears; *ratiḥ*—attraction.

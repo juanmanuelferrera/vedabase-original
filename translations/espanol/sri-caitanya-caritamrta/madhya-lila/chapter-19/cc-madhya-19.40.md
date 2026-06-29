@@ -1,9 +1,9 @@
 ### CC Madhya 19.40
 
-> গঙ্গা-যমুনা প্রয়াগ নারিল ডুবাইতে ।
+> গঙ্গা-যমুনা প্রয়াগ নারিল ডুবাইতে ।\
 > প্রভু ডুবাইল কৃষ্ণপ্রেমের বন্যাতে ॥৪০॥
 
-> gaṅgā-yamunā prayāga nārila ḍubāite
+> gaṅgā-yamunā prayāga nārila ḍubāite\
 > prabhu ḍubāila kṛṣṇa-premera vanyāte
 
 *gaṅgā-yamunā*—el Ganges y el Yamunā; *prayāga*—Prayāga; *nārila*—no pudieron; *ḍubāite*—inundar; *prabhu*—Śrī Caitanya Mahāprabhu; *ḍubāila*—inundó; *kṛṣṇa-premera*—de amor extático por Kṛṣṇa; *vanyāte*—en una inundación.

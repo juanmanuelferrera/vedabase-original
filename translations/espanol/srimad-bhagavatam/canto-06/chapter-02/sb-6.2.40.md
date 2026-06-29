@@ -1,11 +1,11 @@
 ### SB 6.2.40
 
-> स तस्मिन्देवसदन आसीनो योगमास्थितः
+> स तस्मिन्देवसदन आसीनो योगमास्थितः\
 > प्रत्याहृतेन्द्रियग्रामो युयोज मन आत्मनि ॥४०॥
 
-> sa tasmin deva-sadana
-> āsīno yogam āsthitaḥ
-> pratyāhṛtendriya-grāmo
+> sa tasmin deva-sadana\
+> āsīno yogam āsthitaḥ\
+> pratyāhṛtendriya-grāmo\
 > yuyoja mana ātmani
 
 *saḥ*—él (Ajāmila); *tasmin*—en ese lugar (Hardwar); *deva-sadane*—en un templo de Viṣṇu; *āsīnaḥ*—situándose; *yogam āsthitaḥ*—practicó *bhakti-yoga*; *pratyāhṛta*—apartado de todas las actividades de complacencia de los sentidos; *indriya-grāmaḥ*—sus sentidos; *yuyoja*—fijó; *manaḥ*—la mente; *ātmani*—en el ser o la Superalma, la Suprema Personalidad de Dios.

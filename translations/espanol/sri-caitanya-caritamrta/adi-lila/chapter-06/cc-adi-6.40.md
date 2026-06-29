@@ -1,9 +1,9 @@
 ### CC Adi 6.40
 
-> মাধবেন্দ্রপুরীর ইঁহো শিষ্য, এই জ্ঞানে ।
+> মাধবেন্দ্রপুরীর ইঁহো শিষ্য, এই জ্ঞানে ।\
 > আচার্য-গোসাঞিরে প্রভু গুরু করি’ মানে ॥৪০॥
 
-> mādhavendra-purīra iṅho śiṣya, ei jñāne
+> mādhavendra-purīra iṅho śiṣya, ei jñāne\
 > ācārya-gosāñire prabhu guru kari' māne
 
 *mādhavendra-purīra*—de Mādhavendra Purī; *iṅho*—Advaita Ācārya; *śiṣya*—discípulo; *ei jñāne*—con esta consideración; *ācārya-gosāñire*—a Advaita Ācārya; *prabhu*—Śrī Caitanya Mahāprabhu; *guru*—maestro espiritual; *kari'*—tomando como; *māne*—Le obedece.

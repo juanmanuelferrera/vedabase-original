@@ -1,11 +1,11 @@
 ### CC Adi 1.51
 
-> জ্ঞানং পরমগুহ্যং মে যদ্বিজ্ঞান-সমন্বিতম্ ।
+> জ্ঞানং পরমগুহ্যং মে যদ্বিজ্ঞান-সমন্বিতম্ ।\
 > সরহস্যং তদঙ্গঞ্চ গৃহাণ গদিতং ময়া ॥৫১॥
 
-> jñānaṁ parama-guhyaṁ me
-> yad vijñāna-samanvitam
-> sa-rahasyaṁ tad-aṅgaṁ ca
+> jñānaṁ parama-guhyaṁ me\
+> yad vijñāna-samanvitam\
+> sa-rahasyaṁ tad-aṅgaṁ ca\
 > gṛhāṇa gaditaṁ mayā
 
 *jñānam*—conocimiento; *parama*—sumamente; *guhyam*—confidencial; *me*—de Mí; *yat*—el cual; *vijñāna*—realización; *samanvitam*—plenamente dotado de; *sa-rahasyam*—junto con el misterio; *tat*—de eso; *aṅgam*—partes suplementarias; *ca*—y; *gṛhāṇa*—tan solo trata de recibir; *gaditam*—explicado; *mayā*—por Mí.

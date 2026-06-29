@@ -1,9 +1,9 @@
 ### CC Madhya 17.104
 
-> প্রকাশানন্দ শ্রীপাদ সভাতে বসিয়া ।
+> প্রকাশানন্দ শ্রীপাদ সভাতে বসিয়া ।\
 > ‘বেদান্ত’ পড়ান বহু শিষ্যগণ লঞা ॥১০৪॥
 
-> prakāśānanda śrīpāda sabhāte vasiyā
+> prakāśānanda śrīpāda sabhāte vasiyā\
 > 'vedānta' paḍāna bahu śiṣya-gaṇa lañā
 
 *prakāśānanda*—Prakāśānanda; *śrīpāda*—a great *sannyāsī*; *sabhāte*—in the assembly; *vasiyā*—sitting down; *vedānta*—Vedānta philosophy; *paḍāna*—instructs; *bahu*—many; *śiṣya-gaṇa*—disciples; *lañā*—taking.

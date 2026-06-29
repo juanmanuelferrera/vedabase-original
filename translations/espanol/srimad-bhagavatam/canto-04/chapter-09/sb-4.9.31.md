@@ -1,11 +1,11 @@
 ### SB 4.9.31
 
-> अहो बत ममानात्म्यं मन्दभाग्यस्य पश्यत ।
+> अहो बत ममानात्म्यं मन्दभाग्यस्य पश्यत ।\
 > भवच्छिदः पादमूलं गत्वा याचे यदन्तवत् ॥३१॥
 
-> aho bata mamānātmyaṁ
-> manda-bhāgyasya paśyata
-> bhava-cchidaḥ pāda-mūlaṁ
+> aho bata mamānātmyaṁ\
+> manda-bhāgyasya paśyata\
+> bhava-cchidaḥ pāda-mūlaṁ\
 > gatvā yāce yad antavat
 
 *aho*—¡oh!; *bata*—¡ay!; *mama*—mi; *anātmyam*—conciencia corporal; *manda-bhāgyasya*—del desdichado; *paśyata*—mira; *bhava*—existencia material; *chidaḥ*—del Señor, que puede cortar; *pāda-mūlam*—los pies de loto; *gatvā*—habiéndome acercado; *yāce*—oré por; *yat*—lo que; *anta-vat*—perecedero.

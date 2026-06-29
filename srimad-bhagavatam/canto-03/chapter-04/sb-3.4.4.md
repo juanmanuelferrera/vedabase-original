@@ -1,11 +1,11 @@
 ### SB 3.4.4
 
-> अहं चोक्तो भगवता प्रपन्नार्तिहरेण ह ।
+> अहं चोक्तो भगवता प्रपन्नार्तिहरेण ह ।\
 > बदरीं त्वं प्रयाहीति स्वकुलं सञ्जिहीर्षुणा ॥४॥
 
-> ahaṁ cokto bhagavatā
-> prapannārti-hareṇa ha
-> badarīṁ tvaṁ prayāhīti
+> ahaṁ cokto bhagavatā\
+> prapannārti-hareṇa ha\
+> badarīṁ tvaṁ prayāhīti\
 > sva-kulaṁ sañjihīrṣuṇā
 
 *aham*—I; *ca*—and; *uktaḥ*—was told; *bhagavatā*—by the Supreme Lord; *prapanna*—of the surrendered; *ārti-hareṇa*—by He who is the vanquisher of the distresses; *ha*—indeed; *badarīm*—to Badarī; *tvam*—you; *prayāhi*—should go; *iti*—thus; *sva-kulam*—His own family; *sañjihīrṣuṇā*—who desired to destroy.

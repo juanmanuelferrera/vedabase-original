@@ -1,9 +1,9 @@
 ### CC Antya 16.33
 
-> ঝড়ু-ঠাকুর ঘর যাই’ দেখি’ আম্রফল ।
+> ঝড়ু-ঠাকুর ঘর যাই’ দেখি’ আম্রফল ।\
 > মানসেই কৃষ্ণচন্দ্রে অর্পিলা সকল ॥৩৩॥
 
-> jhaḍu-ṭhākura ghara yāi' dekhi' āmra-phala
+> jhaḍu-ṭhākura ghara yāi' dekhi' āmra-phala\
 > mānasei kṛṣṇa-candre arpilā sakala
 
 *jhaḍu-ṭhākura*—Jhaḍu Ṭhākura; *ghara yāi'*—al regresar a casa; *dekhi' āmra-phala*—al ver los mangos; *mānasei*—dentro de su mente; *kṛṣṇa-candre*—a Kṛṣṇa; *arpilā*—ofreció; *sakala*—todos.

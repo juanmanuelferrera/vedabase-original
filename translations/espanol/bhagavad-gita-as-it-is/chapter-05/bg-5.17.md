@@ -1,11 +1,11 @@
 ### Bg 5.17
 
-> तद्बुद्धयस्तदात्मानस्तन्निष्ठास्तत्परायणाः ।
+> तद्बुद्धयस्तदात्मानस्तन्निष्ठास्तत्परायणाः ।\
 > गच्छन्त्यपुनरावृत्तिं ज्ञाननिर्धूतकल्मषाः ॥१७॥
 
-> tad-buddhayas tad-ātmānas
-> tan-niṣṭhās tat-parāyaṇāḥ
-> gacchanty apunar-āvṛttiṁ
+> tad-buddhayas tad-ātmānas\
+> tan-niṣṭhās tat-parāyaṇāḥ\
+> gacchanty apunar-āvṛttiṁ\
 > jñāna-nirdhūta-kalmaṣāḥ
 
 *tad-buddhayaḥ*—aquel cuya inteligencia siempre está fija en el Supremo; *tat-ātmānaḥ*—aquel cuya mente siempre está fija en el Supremo; *tat-niṣṭhāḥ*—aquel cuya mente es solo para el Supremo; *tat-parāyaṇāḥ*—quien se ha refugiado en Él por completo; *gacchanti*—va; *apunaḥ-avṛttim*—liberación; *jñāna*—conocimiento; *nirdhūta*—limpia; *kalmaṣāḥ*—dudas.

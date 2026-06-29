@@ -1,13 +1,13 @@
 ### SB 2.4.11
 
-> सूत उवाच
-> इत्युपामन्त्रितो राज्ञा गुणानुकथने हरेः ।
+> सूत उवाच\
+> इत्युपामन्त्रितो राज्ञा गुणानुकथने हरेः ।\
 > हृषीकेशमनुस्मृत्य प्रतिवक्तुं प्रचक्रमे ॥११॥
 
-> sūta uvāca
-> ity upāmantrito rājñā
-> guṇānukathane hareḥ
-> hṛṣīkeśam anusmṛtya
+> sūta uvāca\
+> ity upāmantrito rājñā\
+> guṇānukathane hareḥ\
+> hṛṣīkeśam anusmṛtya\
 > prativaktuṁ pracakrame
 
 *sūtaḥ uvāca*—Sūta Gosvāmī said; *iti*—thus; *upāmantritaḥ*—being requested; *rājñā*—by the King; *guṇa-anukathane*—in describing the transcendental attributes of the Lord; *hareḥ*—of the Personality of Godhead; *hṛṣīkeśam*—the master of the senses; *anusmṛtya*—properly remembering; *prativaktum*—just to reply; *pracakrame*—executed the preliminaries.

@@ -1,11 +1,11 @@
 ### SB 9.17.14
 
-> आत्मानमर्पयामास प्रह्रादाद्यरिशङ्कितः
+> आत्मानमर्पयामास प्रह्रादाद्यरिशङ्कितः\
 > पितर्युपरते पुत्रा याचमानाय नो ददुः ॥१४॥
 
-> pitary uparate putrā
-> yācamānāya no daduḥ
-> triviṣṭapaṁ mahendrāya
+> pitary uparate putrā\
+> yācamānāya no daduḥ\
+> triviṣṭapaṁ mahendrāya\
 > yajña-bhāgān samādaduḥ
 
 *pitari*—when their father; *uparate*—passed away; *putrāḥ*—the sons; *yācamānāya*—although requesting from them; *no*—not; *daduḥ*—returned; *triviṣṭapam*—the heavenly kingdom; *mahendrāya*—unto Mahendra; *yajña-bhāgān*—the shares of ritualistic ceremonies; *samādaduḥ*—gave.

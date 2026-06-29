@@ -1,11 +1,11 @@
 ### SB 3.6.11
 
-> अथ तस्याभितप्तस्य कतिधायतनानि ह ।
+> अथ तस्याभितप्तस्य कतिधायतनानि ह ।\
 > निरभिद्यन्त देवानां तानि मे गदतः शृणु ॥११॥
 
-> atha tasyābhitaptasya
-> katidhāyatanāni ha
-> nirabhidyanta devānāṁ
+> atha tasyābhitaptasya\
+> katidhāyatanāni ha\
+> nirabhidyanta devānāṁ\
 > tāni me gadataḥ śṛṇu
 
 *atha*—therefore; *tasya*—His; *abhitaptasya*—in terms of His contemplation; *katidhā*—how many; *āyatanāni*—embodiments; *ha*—there were; *nirabhidyanta*—by separated parts; *devānām*—of the demigods; *tāni*—all those; *me gadataḥ*—described by me; *śṛṇu*—just hear.

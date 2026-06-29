@@ -1,13 +1,13 @@
 ### SB 4.30.6
 
-> काशिष्णुना कनकवर्णविभूषणेन
-> भ्राजत्कपोलवदनो विलसत्किरीटः ।
-> अष्टायुधैरनुचरैर्मुनिभिः सुरेन्द्रैर्
+> काशिष्णुना कनकवर्णविभूषणेन\
+> भ्राजत्कपोलवदनो विलसत्किरीटः ।\
+> अष्टायुधैरनुचरैर्मुनिभिः सुरेन्द्रैर्\
 > आसेवितो गरुडकिन्नरगीतकीर्तिः ॥६॥
 
-> kāśiṣṇunā kanaka-varṇa-vibhūṣaṇena
-> bhrājat-kapola-vadano vilasat-kirīṭaḥ
-> aṣṭāyudhair anucarair munibhiḥ surendrair
+> kāśiṣṇunā kanaka-varṇa-vibhūṣaṇena\
+> bhrājat-kapola-vadano vilasat-kirīṭaḥ\
+> aṣṭāyudhair anucarair munibhiḥ surendrair\
 > āsevito garuḍa-kinnara-gīta-kīrtiḥ
 
 *kāśiṣṇunā*—shining; *kanaka*—gold; *varṇa*—colored; *vibhūṣaṇena*—with ornaments; *bhrājat*—shining; *kapola*—forehead; *vadanaḥ*—His face; *vilasat*—dazzling; *kirīṭaḥ*—His helmet; *aṣṭa*—eight; *āyudhaiḥ*—with weapons; *anucaraiḥ*—by followers; *munibhiḥ*—by great sages; *sura-indraiḥ*—by demigods; *āsevitaḥ*—served; *garuḍa*—by Garuḍa; *kinnara*—inhabitant of the Kinnara planet; *gīta*—sung; *kīrtiḥ*—His glories.

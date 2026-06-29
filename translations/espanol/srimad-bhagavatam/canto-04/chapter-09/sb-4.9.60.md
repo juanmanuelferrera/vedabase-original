@@ -1,11 +1,11 @@
 ### SB 4.9.60
 
-> महामणिव्रातमये स तस्मिन्भवनोत्तमे ।
+> महामणिव्रातमये स तस्मिन्भवनोत्तमे ।\
 > लालितो नितरां पित्रा न्यवसद्दिवि देववत् ॥६०॥
 
-> mahāmaṇi-vrātamaye
-> sa tasmin bhavanottame
-> lālito nitarāṁ pitrā
+> mahāmaṇi-vrātamaye\
+> sa tasmin bhavanottame\
+> lālito nitarāṁ pitrā\
 > nyavasad divi devavat
 
 *mahā-maṇi*—joyas muy valiosas; *vrāta*—grupos de; *maye*—decorada con; *saḥ*—él (Dhruva Mahārāja); *tasmin*—en aquella; *bhavana-uttame*—casa brillante; *lālitaḥ*—criado; *nitarām*—siempre; *pitrā*—por el padre; *nyavasat*—vivió allí; *divi*—en los sistemas planetarios superiores; *deva-vat*—como los semidioses.

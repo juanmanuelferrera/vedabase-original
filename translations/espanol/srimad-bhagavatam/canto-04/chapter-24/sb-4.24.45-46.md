@@ -1,18 +1,18 @@
 ### SB 4.24.45-46
 
-> स्निग्धप्रावृड्घनश्यामं सर्वसौन्दर्यसङ्ग्रहम् ।
-> चार्वायतचतुर्बाहु सुजातरुचिराननम् ॥४५॥
-> पद्मकोशपलाशाक्षं सुन्दरभ्रु सुनासिकम् ।
+> स्निग्धप्रावृड्घनश्यामं सर्वसौन्दर्यसङ्ग्रहम् ।\
+> चार्वायतचतुर्बाहु सुजातरुचिराननम् ॥४५॥\
+> पद्मकोशपलाशाक्षं सुन्दरभ्रु सुनासिकम् ।\
 > सुद्विजं सुकपोलास्यं समकर्णविभूषणम् ॥४६॥
 
-> snigdha-prāvṛḍ-ghana-śyāmaṁ
-> sarva-saundarya-saṅgraham
-> cārv-āyata-catur-bāhu
+> snigdha-prāvṛḍ-ghana-śyāmaṁ\
+> sarva-saundarya-saṅgraham\
+> cārv-āyata-catur-bāhu\
 > sujāta-rucirānanam
 
-> padma-kośa-palāśākṣaṁ
-> sundara-bhru sunāsikam
-> sudvijaṁ sukapolāsyaṁ
+> padma-kośa-palāśākṣaṁ\
+> sundara-bhru sunāsikam\
+> sudvijaṁ sukapolāsyaṁ\
 > sama-karṇa-vibhūṣaṇam
 
 *snigdha*—reluciente; *prāvṛṭ*—estación de las lluvias; *ghana-śyāmam*—de espesas nubes; *sarva*—toda; *saundarya*—belleza; *saṅgraham*—reunión; *cāru*—hermoso; *āyata*—aspecto físico; *catuḥ-bāhu*—al de cuatro brazos; *su-jāta*—de belleza suprema; *rucira*—muy agradable; *ānanam*—rostro; *padma-kośa*—el verticilo de la flor de loto; *palāśa*—pétalos; *akṣam*—ojos; *sundara*—hermosas; *bhru*—cejas; *su-nāsikam*—nariz alzada; *su-dvijam*—dientes hermosos; *su-kapola*—frente hermosa; *āsyam*—cara; *sama-karṇa*—oídos igualmente hermosos; *vibhūṣaṇam*—completamente adornados.

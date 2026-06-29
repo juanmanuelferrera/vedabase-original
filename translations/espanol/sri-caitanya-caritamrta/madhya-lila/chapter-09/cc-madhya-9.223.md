@@ -1,9 +1,9 @@
 ### CC Madhya 9.223
 
-> মলয়-পর্বতে কৈল অগস্ত্য-বন্দন ৷
+> মলয়-পর্বতে কৈল অগস্ত্য-বন্দন ৷\
 > কন্যাকুমারী তাহাঁ কৈল দরশন ৷৷ ২২৩ ৷৷ ॥২২৩॥
 
-> malaya-parvate kaila agastya-vandana
+> malaya-parvate kaila agastya-vandana\
 > kanyā-kumārī tāṅhāṅ kaila daraśana
 
 *malaya-parvate*—en las colinas de Malaya; *kaila*—hizo; *agastya-vandana*—reverencias a Agastya Muni; *kanyā-kumārī*—Kanyā-kumārī; *tāṅhāṅ*—allí; *kaila daraśana*—visitó.

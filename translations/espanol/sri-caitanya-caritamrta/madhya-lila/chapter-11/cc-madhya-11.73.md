@@ -1,9 +1,9 @@
 ### CC Madhya 11.73
 
-> এত বলি’ তিন জন অট্টালিকায় চড়িল ৷
+> এত বলি’ তিন জন অট্টালিকায় চড়িল ৷\
 > হেনকালে বৈষ্ণব সব নিকটে আইল ৷৷ ৭৩ ৷৷ ॥৭৩॥
 
-> eta bali' tina jana aṭṭālikāya caḍila
+> eta bali' tina jana aṭṭālikāya caḍila\
 > hena-kāle vaiṣṇava saba nikaṭe āila
 
 *eta bali'*—habiendo dicho esto; *tina jana*—las tres personas (a saber, el rey, Gopīnātha Ācārya y Sārvabhauma Bhaṭṭācārya); *aṭṭālikāya*—a la azotea del palacio; *caḍila*—subieron; *hena-kāle*—en ese momento; *vaiṣṇava*—los devotos vaiṣṇavas; *saba*—todos; *nikaṭe*—cerca; *āila*—llegaron.

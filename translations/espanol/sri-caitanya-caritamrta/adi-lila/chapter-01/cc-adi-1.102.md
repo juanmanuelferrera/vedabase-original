@@ -1,9 +1,9 @@
 ### CC Adi 1.102
 
-> এই চন্দ্র সূর্য দুই পরম সদয় ।
+> এই চন্দ্র সূর্য দুই পরম সদয় ।\
 > জগতের ভাগ্যে গৌড়ে করিলা উদয় ॥১০২॥
 
-> ei candra sūrya dui parama sadaya
+> ei candra sūrya dui parama sadaya\
 > jagatera bhāgye gauḍe karilā udaya
 
 *ei*—estos; *candra*—luna; *sūrya*—sol; *dui*—dos; *parama*—muy; *sa-daya*—bondadosos; *jagatera*—de la gente del mundo; *bhāgye*—para la fortuna; *gauḍe*—en la tierra de Gauḍa; *karilā*—hicieron; *udaya*—aparición.

@@ -1,9 +1,9 @@
 ### CC Adi 7.13
 
-> ‘ভক্ত-অবতার’ তাঁর আচার্য-গোসাঞি ।
+> ‘ভক্ত-অবতার’ তাঁর আচার্য-গোসাঞি ।\
 > এই তিন তত্ত্ব সবে প্রভু করি’ গাই ॥১৩॥
 
-> 'bhakta-avatāra' tāṅra ācārya-gosāñi
+> 'bhakta-avatāra' tāṅra ācārya-gosāñi\
 > ei tina tattva sabe prabhu kari' gāi
 
 *bhakta-avatāra*—incarnation as a devotee; *tāṅra*—His; *ācārya-gosāñi*—the supreme teacher, Advaita Ācārya Prabhu; *ei*—all these; *tina*—three; *tattva*—truths; *sabe*—all; *prabhu*—the predominator; *kari'*—by such understanding; *gāi*—we sing.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.160
 
-> সেই দিন হৈতে শচী করেন রন্ধন ।
+> সেই দিন হৈতে শচী করেন রন্ধন ।\
 > ভক্তগণ লঞা প্রভু করেন ভোজন ॥১৬০॥
 
-> sei dina haite śacī karena randhana
+> sei dina haite śacī karena randhana\
 > bhakta-gaṇa lañā prabhu karena bhojana
 
 *sei dina haite*—desde ese día; *śacī*—madre Śacī; *karena*—hace; *randhana*—cocinar; *bhakta-gaṇa*—todos los devotos; *lañā*—acompañado por; *prabhu*—el Señor Caitanya Mahāprabhu; *karena*—hace; *bhojana*—comer.

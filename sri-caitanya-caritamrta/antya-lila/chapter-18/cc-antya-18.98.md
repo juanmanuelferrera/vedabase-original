@@ -1,13 +1,13 @@
 ### CC Antya 18.98
 
-> মিত্রের মিত্র সহবাসী, চক্রবাকে লুটে আসি’,
-> কৃষ্ণের রাজ্যে ঐছে ব্যবহার ।
-> অপরিচিত শত্রুর মিত্র, রাখে উৎপল, — এ বড় চিত্র,
+> মিত্রের মিত্র সহবাসী, চক্রবাকে লুটে আসি’,\
+> কৃষ্ণের রাজ্যে ঐছে ব্যবহার ।\
+> অপরিচিত শত্রুর মিত্র, রাখে উৎপল, — এ বড় চিত্র,\
 > এই বড় ‘বিরোধ-অলঙ্কার’ ॥৯৮॥
 
-> mitrera mitra saha-vāsī, cakravāke luṭe āsi',
-> kṛṣṇera rājye aiche vyavahāra
-> aparicita śatrura mitra, rākhe utpala,—e baḍa citra,
+> mitrera mitra saha-vāsī, cakravāke luṭe āsi',\
+> kṛṣṇera rājye aiche vyavahāra\
+> aparicita śatrura mitra, rākhe utpala,—e baḍa citra,\
 > ei baḍa 'virodha-alaṅkāra'
 
 *mitrera*—of the sun-god; *mitra*—the friend; *saha-vāsī*—living together with the *cakravāka* birds; *cakravāke*—the *cakravāka* birds; *luṭe*—plunder; *āsi'*—coming; *kṛṣṇera rājye*—in the kingdom of Kṛṣṇa; *aiche*—such; *vyavahāra*—behavior; *aparicita*—unacquainted; *śatrura mitra*—the friend of the enemy; *rākhe*—protects; *utpala*—the red lotus flower; *e*—this; *baḍa citra*—very wonderful; *ei*—this; *baḍa*—great; *virodha-alaṅkāra*—metaphor of contradiction.

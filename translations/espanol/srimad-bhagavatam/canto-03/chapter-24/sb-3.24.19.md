@@ -1,11 +1,11 @@
 ### SB 3.24.19
 
-> अयं सिद्धगणाधीशः साङ्ख्याचार्यैः सुसम्मतः ।
+> अयं सिद्धगणाधीशः साङ्ख्याचार्यैः सुसम्मतः ।\
 > लोके कपिल इत्याख्यां गन्ता ते कीर्तिवर्धनः ॥१९॥
 
-> ayaṁ siddha-gaṇādhīśaḥ
-> sāṅkhyācāryaiḥ susammataḥ
-> loke kapila ity ākhyāṁ
+> ayaṁ siddha-gaṇādhīśaḥ\
+> sāṅkhyācāryaiḥ susammataḥ\
+> loke kapila ity ākhyāṁ\
 > gantā te kīrti-vardhanaḥ
 
 *ayam*—esa Personalidad de Dios; *siddha-gaṇa*—de los sabios perfectos; *adhīśaḥ*—la cabeza; *sāṅkhya-ācāryaiḥ*—por *ācāryas* expertos en filosofía *sāṅkhya*; *su-sammataḥ*—aprobado de acuerdo con los principios védicos; *loke*—en el mundo; *kapilaḥ iti*—como Kapila; *ākhyām*—célebre; *gantā*—Él irá por; *te*—tu; *kīrti*—fama; *vardhanaḥ*—aumentando.

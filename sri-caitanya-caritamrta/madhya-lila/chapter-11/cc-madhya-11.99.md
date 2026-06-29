@@ -1,9 +1,9 @@
 ### CC Madhya 11.99
 
-> সংকীর্তন-যজ্ঞে তাঁরে করে আরাধন ।
+> সংকীর্তন-যজ্ঞে তাঁরে করে আরাধন ।\
 > সেই ত’ সুমেধা, আর — কলিহতজন ॥৯৯॥
 
-> saṅkīrtana-yajñe tāṅre kare ārādhana
+> saṅkīrtana-yajñe tāṅre kare ārādhana\
 > sei ta' sumedhā, āra-kali-hata-jana
 
 *saṅkīrtana-yajñe*—in the performance of congregational chanting; *tāṅre*—unto Śrī Caitanya Mahāprabhu; *kare*—does; *ārādhana*—worship; *sei ta'*—such a person; *su-medhā*—sharply intelligent; *āra*—others; *kali-hata-jana*—victims of this Age of Kali.

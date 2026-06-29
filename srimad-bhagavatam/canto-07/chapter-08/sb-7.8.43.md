@@ -1,15 +1,15 @@
 ### SB 7.8.43
 
-> श्रीऋषय ऊचुः
-> त्वं नस्तपः परममात्थ यदात्मतेजो
-> येनेदमादिपुरुषात्मगतं ससर्क्थ
-> तद्विप्रलुप्तममुनाद्य शरण्यपाल
+> श्रीऋषय ऊचुः\
+> त्वं नस्तपः परममात्थ यदात्मतेजो\
+> येनेदमादिपुरुषात्मगतं ससर्क्थ\
+> तद्विप्रलुप्तममुनाद्य शरण्यपाल\
 > रक्षागृहीतवपुषा पुनरन्वमंस्थाः ॥४३॥
 
-> śrī-ṛṣaya ūcuḥ
-> tvaṁ nas tapaḥ paramam āttha yad ātma-tejo
-> yenedam ādi-puruṣātma-gataṁ sasarktha
-> tad vipraluptam amunādya śaraṇya-pāla
+> śrī-ṛṣaya ūcuḥ\
+> tvaṁ nas tapaḥ paramam āttha yad ātma-tejo\
+> yenedam ādi-puruṣātma-gataṁ sasarktha\
+> tad vipraluptam amunādya śaraṇya-pāla\
 > rakṣā-gṛhīta-vapuṣā punar anvamaṁsthāḥ
 
 *śrī-ṛṣayaḥ ūcuḥ*—the great sages said; *tvam*—You; *naḥ*—our; *tapaḥ*—austerity; *paramam*—topmost; *āttha*—instructed; *yat*—which; *ātma-tejaḥ*—Your spiritual power; *yena*—by which; *idam*—this (material world); *ādi-puruṣa*—O supreme original Personality of Godhead; *ātma-gatam*—merged within Yourself; *sasarktha*—(You) created; *tat*—that process of austerity and penance; *vipraluptam*—stolen; *amunā*—by that demon (Hiraṇyakaśipu); *adya*—now; *śaraṇya-pāla*—O supreme maintainer of those who need to be sheltered; *rakṣā-gṛhīta-vapuṣā*—by Your body, which You accept to give protection; *punaḥ*—again; *anvamaṁsthāḥ*—You have approved.

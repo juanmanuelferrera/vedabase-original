@@ -1,11 +1,11 @@
 ### SB 2.2.35
 
-> भगवान्सर्वभूतेषु लक्षितः स्वात्मना हरिः ।
+> भगवान्सर्वभूतेषु लक्षितः स्वात्मना हरिः ।\
 > दृश्यैर्बुद्ध्यादिभिर्द्रष्टा लक्षणैरनुमापकैः ॥३५॥
 
-> bhagavān sarva-bhūteṣu
-> lakṣitaḥ svātmanā hariḥ
-> dṛśyair buddhy-ādibhir draṣṭā
+> bhagavān sarva-bhūteṣu\
+> lakṣitaḥ svātmanā hariḥ\
+> dṛśyair buddhy-ādibhir draṣṭā\
 > lakṣaṇair anumāpakaiḥ
 
 *bhagavān*—the Personality of Godhead; *sarva*—all; *bhūteṣu*—in the living entities; *lakṣitaḥ*—is visible; *sva-ātmanā*—along with the self; *hariḥ*—the Lord; *dṛśyaiḥ*—by what is seen; *buddhi-ādibhiḥ*—by intelligence; *draṣṭā*—one who sees; *lakṣaṇaiḥ*—by different signs; *anumāpakaiḥ*—by hypothesis.

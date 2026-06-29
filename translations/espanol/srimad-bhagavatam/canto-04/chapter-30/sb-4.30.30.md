@@ -1,11 +1,11 @@
 ### SB 4.30.30
 
-> असावेव वरोऽस्माकमीप्सितो जगतः पते ।
+> असावेव वरोऽस्माकमीप्सितो जगतः पते ।\
 > प्रसन्नो भगवान्येषामपवर्गः गुरुर्गतिः ॥३०॥
 
-> asāv eva varo 'smākam
-> īpsito jagataḥ pate
-> prasanno bhagavān yeṣām
+> asāv eva varo 'smākam\
+> īpsito jagataḥ pate\
+> prasanno bhagavān yeṣām\
 > apavarga-gurur gatiḥ
 
 *asau*—esa; *eva*—ciertamente; *varaḥ*—bendición; *asmākam*—nuestra; *īpsitaḥ*—deseada; *jagataḥ*—del universo; *pate*—¡oh, Señor!; *prasannaḥ*—satisfecho; *bhagavān*—la Suprema Personalidad de Dios; *yeṣām*—con quien; *apavarga*—del servicio amoroso trascendental; *guruḥ*—el maestro; *gatiḥ*—el objetivo supremo de la vida.

@@ -1,9 +1,9 @@
 ### CC Antya 6.108
 
-> মহাপ্রভু আসি’ সেই আসনে বসিল ।
+> মহাপ্রভু আসি’ সেই আসনে বসিল ।\
 > দেখি’ রাঘবের মনে আনন্দ বাড়িল ॥১০৮॥
 
-> mahāprabhu āsi' sei āsane vasila
+> mahāprabhu āsi' sei āsane vasila\
 > dekhi' rāghavera mane ānanda bāḍila
 
 *mahāprabhu*—Śrī Caitanya Mahāprabhu; *āsi'*—coming; *sei āsane*—on that seat; *vasila*—sat down; *dekhi'*—seeing; *rāghavera mane*—in the mind of Rāghava Paṇḍita; *ānanda*—great happiness; *bāḍila*—increased.

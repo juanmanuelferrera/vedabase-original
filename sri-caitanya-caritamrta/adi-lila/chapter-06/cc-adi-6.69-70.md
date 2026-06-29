@@ -1,14 +1,14 @@
 ### CC Adi 6.69-70
 
-> তাঁ-সবার কথা রহু, — শ্রীমতী রাধিকা ।
-> সবা হৈতে সকলাংশে পরম-অধিকা ॥৬৯॥
-> তেঁহো যাঁর দাসী হৈঞা সেবেন চরণ ।
+> তাঁ-সবার কথা রহু, — শ্রীমতী রাধিকা ।\
+> সবা হৈতে সকলাংশে পরম-অধিকা ॥৬৯॥\
+> তেঁহো যাঁর দাসী হৈঞা সেবেন চরণ ।\
 > যাঁর প্রেমগুণে কৃষ্ণ বদ্ধ অনুক্ষণ ॥৭০॥
 
-> tāṅ-sabāra kathā rahu,—śrīmatī rādhikā
+> tāṅ-sabāra kathā rahu,—śrīmatī rādhikā\
 > sabā haite sakalāṁśe parama-adhikā
 
-> teṅho yāṅra dāsī haiñā sevena caraṇa
+> teṅho yāṅra dāsī haiñā sevena caraṇa\
 > yāṅra prema-guṇe kṛṣṇa baddha anukṣaṇa
 
 *tāṅ-sabāra*—of the *gopīs*; *kathā*—talk; *rahu*—let alone; *śrīmatī rādhikā*—Śrīmatī Rādhārāṇī; *sabā haite*—than all of them; *sakala-aṁśe*—in every respect; *parama-adhikā*—highly elevated; *teṅho*—She also; *yāṅra*—whose; *dāsī*—maidservant; *haiñā*—becoming; *sevana*—worships; *caraṇa*—the lotus feet; *yāṅra*—whose; *prema-guṇe*—because of loving attributes; *kṛṣṇa*—Lord Kṛṣṇa; *baddha*—obliged; *anukṣaṇa*—always.

@@ -1,11 +1,11 @@
 ### SB 3.4.7
 
-> श्यामावदातं विरजं प्रशान्तारुणलोचनम् ।
+> श्यामावदातं विरजं प्रशान्तारुणलोचनम् ।\
 > दोर्भिश्चतुर्भिर्विदितं पीतकौशाम्बरेण च ॥७॥
 
-> śyāmāvadātaṁ virajaṁ
-> praśāntāruṇa-locanam
-> dorbhiś caturbhir viditaṁ
+> śyāmāvadātaṁ virajaṁ\
+> praśāntāruṇa-locanam\
+> dorbhiś caturbhir viditaṁ\
 > pīta-kauśāmbareṇa ca
 
 *śyāma-avadātam*—beautiful with black color; *virajam*—formed of pure goodness; *praśānta*—peaceful; *aruṇa*—reddish; *locanam*—eyes; *dorbhiḥ*—by the arms; *caturbhiḥ*—four; *viditam*—being recognized; *pīta*—yellow; *kauśa*—silken; *ambareṇa*—with garments; *ca*—and.

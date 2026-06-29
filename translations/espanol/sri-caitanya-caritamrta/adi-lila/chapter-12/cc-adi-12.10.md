@@ -1,9 +1,9 @@
 ### CC Adi 12.10
 
-> আচার্যের মত যেই, সেই মত সার ।
+> আচার্যের মত যেই, সেই মত সার ।\
 > তাঁর আজ্ঞা লঙ্ঘি’ চলে, সেই ত’ অসার ॥১০॥
 
-> ācāryera mata yei, sei mata sāra
+> ācāryera mata yei, sei mata sāra\
 > tāṅra ājñā laṅghi' cale, sei ta' asāra
 
 *ācāryera*—del maestro espiritual (Advaita Prabhu); *mata*—opinión; *yei*—lo que es; *sei*—esa; *mata*—opinión; *sāra*—principio activo; *tāṅra*—su; *ājñā*—orden; *laṅghi'*—transgrediendo; *cale*—se vuelve; *sei*—eso; *ta'*—sin embargo; *asāra*—inútil.

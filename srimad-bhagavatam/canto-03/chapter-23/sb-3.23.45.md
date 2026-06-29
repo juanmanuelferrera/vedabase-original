@@ -1,11 +1,11 @@
 ### SB 3.23.45
 
-> तस्मिन्विमान उत्कृष्टां शय्यां रतिकरीं श्रिता ।
+> तस्मिन्विमान उत्कृष्टां शय्यां रतिकरीं श्रिता ।\
 > न चाबुध्यत तं कालं पत्यापीच्येन सङ्गता ॥४५॥
 
-> tasmin vimāna utkṛṣṭāṁ
-> śayyāṁ rati-karīṁ śritā
-> na cābudhyata taṁ kālaṁ
+> tasmin vimāna utkṛṣṭāṁ\
+> śayyāṁ rati-karīṁ śritā\
+> na cābudhyata taṁ kālaṁ\
 > patyāpīcyena saṅgatā
 
 *tasmin*—in that; *vimāne*—airplane; *utkṛṣṭām*—excellent; *śayyām*—a bed; *rati-karīm*—increasing sexual desires; *śritā*—situated on; *na*—not; *ca*—and; *abudhyata*—she noticed; *tam*—that; *kālam*—time; *patyā*—with her husband; *apīcyena*—most handsome; *saṅgatā*—in company.

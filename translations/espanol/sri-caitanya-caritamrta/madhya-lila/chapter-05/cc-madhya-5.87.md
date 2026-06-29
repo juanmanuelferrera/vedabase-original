@@ -1,9 +1,9 @@
 ### CC Madhya 5.87
 
-> তবে সেই ছোটবিপ্র গেলা বৃন্দাবন ।
+> তবে সেই ছোটবিপ্র গেলা বৃন্দাবন ।\
 > দণ্ডবৎ করি’ কহে সব বিবরণ ॥৮৭॥
 
-> tabe sei choṭa-vipra gelā vṛndāvana
+> tabe sei choṭa-vipra gelā vṛndāvana\
 > daṇḍavat kari' kahe saba vivaraṇa
 
 *tabe*—después de esto; *sei*—aquel; *choṭa-vipra*—brāhmaṇa joven; *gelā*—fue; *vṛndāvana*—a Vṛndāvana; *daṇḍavat kari'*—después de ofrecer reverencias; *kahe*—narra; *saba*—toda; *vivaraṇa*—la descripción.

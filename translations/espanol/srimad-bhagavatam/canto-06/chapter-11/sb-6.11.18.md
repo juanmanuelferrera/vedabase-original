@@ -1,11 +1,11 @@
 ### SB 6.11.18
 
-> अथो हरे मे कुलिशेन वीर हर्ता प्रमथ्यैव शिरो यदीह
+> अथो हरे मे कुलिशेन वीर हर्ता प्रमथ्यैव शिरो यदीह\
 > तत्रानृणो भूतबलिं विधाय मनस्विनां पादरजः प्रपत्स्ये ॥१८॥
 
-> atho hare me kuliśena vīra
-> hartā pramathyaiva śiro yadīha
-> tatrānṛṇo bhūta-baliṁ vidhāya
+> atho hare me kuliśena vīra\
+> hartā pramathyaiva śiro yadīha\
+> tatrānṛṇo bhūta-baliṁ vidhāya\
 > manasvināṁ pāda-rajaḥ prapatsye
 
 *atho*—de otra manera; *hare*—¡oh, rey Indra!; *me*—de mí; *kuliśena*—con tu rayo; *vīra*—¡oh, gran héroe!; *hartā*—tú cortas; *pramathya*—destruir mi ejército; *eva*—ciertamente; *śiraḥ*—cabeza; *yadi*—si; *iha*—en esta batalla; *tatra*—en ese caso; *anṛṇaḥ*—liberado de todas mis deudas en el mundo material; *bhūta-balim*—un obsequio para todas las entidades vivientes; *vidhāya*—disponer; *manasvinām*—de grandes sabios como Nārada Muni; *pāda-rajaḥ*—el polvo de los pies de loto; *prapatsye*—obtendré.

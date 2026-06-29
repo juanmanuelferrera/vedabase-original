@@ -1,13 +1,13 @@
 ### SB 3.9.9
 
-> यावत्पृथक्त्वमिदमात्मन इन्द्रियार्थ
-> मायाबलं भगवतो जन ईश पश्येत् ।
-> तावन्न संसृतिरसौ प्रतिसङ्क्रमेत
+> यावत्पृथक्त्वमिदमात्मन इन्द्रियार्थ\
+> मायाबलं भगवतो जन ईश पश्येत् ।\
+> तावन्न संसृतिरसौ प्रतिसङ्क्रमेत\
 > व्यर्थापि दुःखनिवहं वहती क्रियार्था ॥९॥
 
-> yāvat pṛthaktvam idam ātmana indriyārtha-
-> māyā-balaṁ bhagavato jana īśa paśyet
-> tāvan na saṁsṛtir asau pratisaṅkrameta
+> yāvat pṛthaktvam idam ātmana indriyārtha-\
+> māyā-balaṁ bhagavato jana īśa paśyet\
+> tāvan na saṁsṛtir asau pratisaṅkrameta\
 > vyarthāpi duḥkha-nivahaṁ vahatī kriyārthā
 
 *yāvat*—mientras; *pṛthaktvam*—separatismo; *idam*—este; *ātmanaḥ*—del cuerpo; *indriya-artha*—para la complacencia de los sentidos; *māyā-balam*—influencia de la energía externa; *bhagavataḥ*—de la Personalidad de Dios; *janaḥ*—una persona; *īśa*—¡oh, mi Señor!; *paśyet*—ve; *tāvat*—mientras; *na*—no; *saṁsṛtiḥ*—la influencia de la existencia material; *asau*—ese hombre; *pratisaṅkrameta*—puede superar; *vyarthā api*—aunque sin significado; *duḥkha-nivaham*—múltiples miserias; *vahatī*—provocando; *kriyā-arthā*—para las actividades fruitivas.

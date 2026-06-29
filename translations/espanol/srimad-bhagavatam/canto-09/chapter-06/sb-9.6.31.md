@@ -1,11 +1,11 @@
 ### SB 9.6.31
 
-> कं धास्यति कुमारोऽयं स्तन्ये रोरूयते भृशम
+> कं धास्यति कुमारोऽयं स्तन्ये रोरूयते भृशम\
 > मां धाता वत्स मा रोदीरितीन्द्रो देशिनीमदात ॥३१॥
 
-> kaṁ dhāsyati kumāro 'yaṁ
-> stanye rorūyate bhṛśam
-> māṁ dhātā vatsa mā rodīr
+> kaṁ dhāsyati kumāro 'yaṁ\
+> stanye rorūyate bhṛśam\
+> māṁ dhātā vatsa mā rodīr\
 > itīndro deśinīm adāt
 
 *kam*—por quién; *dhāsyati*—será cuidado con la leche materna que necesita; *kumāraḥ*—niño; *ayam*—este; *stanye*—para mamar de la leche materna; *rorūyate*—llora; *bhṛśam*—tanto; *mām dhātā*—bébeme; *vatsa*—mi querido niño; *mā rodīḥ*—no llores; *iti*—así; *indraḥ*—el rey Indra; *deśinīm*—el dedo índice; *adāt*—le dio a chupar.

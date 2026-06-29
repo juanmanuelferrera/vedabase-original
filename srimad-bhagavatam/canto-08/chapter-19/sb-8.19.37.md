@@ -1,11 +1,11 @@
 ### SB 8.19.37
 
-> धर्माय यशसेऽर्थाय कामाय स्वजनाय च
+> धर्माय यशसेऽर्थाय कामाय स्वजनाय च\
 > पञ्चधा विभजन्वित्तमिहामुत्र च मोदते ॥३७॥
 
-> dharmāya yaśase 'rthāya
-> kāmāya sva-janāya ca
-> pañcadhā vibhajan vittam
+> dharmāya yaśase 'rthāya\
+> kāmāya sva-janāya ca\
+> pañcadhā vibhajan vittam\
 > ihāmutra ca modate
 
 *dharmāya*—for religion; *yaśase*—for one's reputation; *arthāya*—for increasing one's opulence; *kāmāya*—for increasing sense gratification; *sva-janāya ca*—and for maintaining one's family members; *pañcadhā*—for these five different objectives; *vibhajan*—dividing; *vittam*—his accumulated wealth; *iha*—in this world; *amutra*—the next world; *ca*—and; *modate*—he enjoys.

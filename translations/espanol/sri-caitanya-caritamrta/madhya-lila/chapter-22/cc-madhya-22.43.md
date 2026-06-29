@@ -1,9 +1,9 @@
 ### CC Madhya 22.43
 
-> সংসার ভ্রমিতে কোন ভাগ্যে কেহ তরে ।
+> সংসার ভ্রমিতে কোন ভাগ্যে কেহ তরে ।\
 > নদীর প্রবাহে যেন কাষ্ঠ লাগে তীরে ॥৪৩॥
 
-> saṁsāra bhramite kona bhāgye keha tare
+> saṁsāra bhramite kona bhāgye keha tare\
 > nadīra pravāhe yena kāṣṭha lāge tīre
 
 *saṁsāra bhramite*—vagando por el universo; *kona bhāgye*—por alguna buena fortuna; *keha tare*—alguien cruza el océano de la nesciencia; *nadīra pravāhe*—en la corriente del río; *yena*—tal como; *kāṣṭha*—un madero; *lāge*—se pega; *tīre*—a la orilla.

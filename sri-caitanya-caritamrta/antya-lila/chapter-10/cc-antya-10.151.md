@@ -1,9 +1,9 @@
 ### CC Antya 10.151
 
-> এত বলি’ দধি-ভাত করিলা ভোজন ।
+> এত বলি’ দধি-ভাত করিলা ভোজন ।\
 > চৈতন্যদাসেরে দিলা উচ্ছিষ্ট-ভাজন ॥১৫১॥
 
-> eta bali' dadhi-bhāta karilā bhojana
+> eta bali' dadhi-bhāta karilā bhojana\
 > caitanya-dāsere dilā ucchiṣṭa-bhājana
 
 *eta bali'*—saying this; *dadhi-bhāta*—yogurt with rice; *karilābhojana*—ate; *caitanya-dāsere*—unto Caitanya dāsa; *dilā*—He offered; *ucchiṣṭa-bhājana*—the remnants of His food.

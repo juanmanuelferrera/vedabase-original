@@ -1,9 +1,9 @@
 ### CC Adi 7.141
 
-> ভগবান্-প্রাপ্তিহেতু যে করি উপায় ।
+> ভগবান্-প্রাপ্তিহেতু যে করি উপায় ।\
 > শ্রবণাদি ভক্তি — কৃষ্ণ-প্রাপ্তির সহায় ॥১৪১॥
 
-> bhagavān-prāpti-hetu ye kari upāya
+> bhagavān-prāpti-hetu ye kari upāya\
 > śravaṇādi bhakti--kṛṣṇa-prāptira sahāya
 
 *bhagavān*—la Suprema Personalidad de Dios; *prāpti-hetu*—el medio por el cual se puede acercar a Él; *ye*—lo que; *kari*—hago; *upāya*—medio; *śravaṇa-ādi*—servicio devocional, que comienza con el oír; *bhakti*—servicio devocional; *kṛṣṇa*—el Señor Supremo; *prāptira*—para acercarse a Él; *sahāya*—medio.

@@ -1,9 +1,9 @@
 ### CC Antya 1.95
 
-> সম্ভ্রমে দুঁহে উঠি’ দণ্ডবৎ হৈলা ।
+> সম্ভ্রমে দুঁহে উঠি’ দণ্ডবৎ হৈলা ।\
 > দুঁহে আলিঙ্গিয়া প্রভু আসনে বসিলা ॥৯৫॥
 
-> sambhrame duṅhe uṭhi' daṇḍavat hailā
+> sambhrame duṅhe uṭhi' daṇḍavat hailā\
 > duṅhe āliṅgiyā prabhu āsane vasilā
 
 *sambhrame*—with great respect; *duṅhe*—Haridāsa Ṭhākura and Rūpa Gosvāmī; *uṭhi'*—standing up; *daṇḍavat hailā*—fell down to offer obeisances; *duṅhe*—the two of them; *āliṅgiyā*—embracing; *prabhu*—Śrī Caitanya Mahāprabhu; *āsane vasilā*—sat down on a seat.

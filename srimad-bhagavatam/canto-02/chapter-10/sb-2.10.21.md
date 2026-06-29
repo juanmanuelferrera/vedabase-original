@@ -1,11 +1,11 @@
 ### SB 2.10.21
 
-> यदात्मनि निरालोकमात्मानं च दिदृक्षतः ।
+> यदात्मनि निरालोकमात्मानं च दिदृक्षतः ।\
 > निर्भिन्ने ह्यक्षिणी तस्य ज्योतिश्चक्षुर्गुणग्रहः ॥२१॥
 
-> yadātmani nirālokam
-> ātmānaṁ ca didṛkṣataḥ
-> nirbhinne hy akṣiṇī tasya
+> yadātmani nirālokam\
+> ātmānaṁ ca didṛkṣataḥ\
+> nirbhinne hy akṣiṇī tasya\
 > jyotiś cakṣur guṇa-grahaḥ
 
 *yadā*—while; *ātmani*—unto Himself; *nirālokam*—without any light; *ātmānam*—His own transcendental body; *ca*—also other bodily forms; *didṛkṣataḥ*—desired to look upon; *nirbhinne*—due to being sprouted; *hi*—for; *akṣiṇī*—of the eyes; *tasya*—of Him; *jyotiḥ*—the sun; *cakṣuḥ*—the eyes; *guṇa-grahaḥ*—the power of seeing.

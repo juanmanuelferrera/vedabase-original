@@ -1,9 +1,9 @@
 ### CC Antya 4.225
 
-> ‘বিদগ্ধমাধব’, ‘ললিতমাধব’, — নাটকযুগল ।
+> ‘বিদগ্ধমাধব’, ‘ললিতমাধব’, — নাটকযুগল ।\
 > কৃষ্ণলীলা-রস তাহাঁ পাইয়ে সকল ॥২২৫॥
 
-> 'vidagdha-mādhava', 'lalita-mādhava,--nāṭaka-yuga la
+> 'vidagdha-mādhava', 'lalita-mādhava,--nāṭaka-yuga la\
 > kṛṣṇa-līlā-rasa tāhāṅ pāiye sakala
 
 *vidagdha-mādhava*—Vidagdha-mādhava; *lalita-mādhava*—Lalita-mādhava; *nāṭaka-yugala*—dos dramas; *kṛṣṇa-līlā-rasa*—la melosidad derivada de los pasatiempos del Señor Kṛṣṇa; *tāhāṅ*—allí; *pāiye sakala*—podemos comprender todo.

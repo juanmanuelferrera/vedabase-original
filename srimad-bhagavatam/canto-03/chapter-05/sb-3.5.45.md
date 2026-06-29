@@ -1,11 +1,11 @@
 ### SB 3.5.45
 
-> तान्वै ह्यसद्वृत्तिभिरक्षिभिर्ये पराहृतान्तर्मनसः परेश ।
+> तान्वै ह्यसद्वृत्तिभिरक्षिभिर्ये पराहृतान्तर्मनसः परेश ।\
 > अथो न पश्यन्त्युरुगाय नूनं ये ते पदन्यासविलासलक्ष्याः ॥४५॥
 
-> tān vai hy asad-vṛttibhir akṣibhir ye
-> parāhṛtāntar-manasaḥ pareśa
-> atho na paśyanty urugāya nūnaṁ
+> tān vai hy asad-vṛttibhir akṣibhir ye\
+> parāhṛtāntar-manasaḥ pareśa\
+> atho na paśyanty urugāya nūnaṁ\
 > ye te padanyāsa-vilāsa-lakṣyāḥ
 
 *tān*—the lotus feet of the Lord; *vai*—certainly; *hi*—for; *asat*—materialistic; *vṛttibhiḥ*—by those who are influenced by external energy; *akṣibhiḥ*—by the senses; *ye*—those; *parāhṛta*—missing at a distance; *antaḥ-manasaḥ*—of the internal mind; *pareśa*—O Supreme; *atho*—therefore; *na*—never; *paśyanti*—can see; *urugāya*—O great; *nūnam*—but; *ye*—those who; *te*—Your; *padanyāsa*—activities; *vilāsa*—transcendental enjoyment; *lakṣyāḥ*—those who see.

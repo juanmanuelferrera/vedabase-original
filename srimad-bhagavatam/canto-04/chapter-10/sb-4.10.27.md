@@ -1,11 +1,11 @@
 ### SB 4.10.27
 
-> समुद्र ऊर्मिभिर्भीमः प्लावयन्सर्वतो भुवम् ।
+> समुद्र ऊर्मिभिर्भीमः प्लावयन्सर्वतो भुवम् ।\
 > आससाद महाह्रादः कल्पान्त इव भीषणः ॥२७॥
 
-> samudra ūrmibhir bhīmaḥ
-> plāvayan sarvato bhuvam
-> āsasāda mahā-hrādaḥ
+> samudra ūrmibhir bhīmaḥ\
+> plāvayan sarvato bhuvam\
+> āsasāda mahā-hrādaḥ\
 > kalpānta iva bhīṣaṇaḥ
 
 *samudraḥ*—the sea; *ūrmibhiḥ*—with waves; *bhīmaḥ*—fierce; *plāvayan*—inundating; *sarvataḥ*—in all directions; *bhuvam*—the earth; *āsasāda*—came forward; *mahā-hrādaḥ*—making great sounds; *kalpa-ante*—(the dissolution) at the end of a *kalpa*; *iva*—like; *bhīṣaṇaḥ*—fearful.

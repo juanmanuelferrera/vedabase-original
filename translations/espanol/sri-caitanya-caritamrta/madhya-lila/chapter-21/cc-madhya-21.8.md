@@ -1,9 +1,9 @@
 ### CC Madhya 21.8
 
-> এইমত ষড়ৈশ্বর্য, স্থান, অবতার ।
+> এইমত ষড়ৈশ্বর্য, স্থান, অবতার ।\
 > ব্রহ্মা, শিব অন্ত না পায় — জীব কোন্ ছার ॥৮॥
 
-> ei-mata ṣaḍ-aiśvarya, sthāna, avatāra
+> ei-mata ṣaḍ-aiśvarya, sthāna, avatāra\
 > brahmā, śiva anta nā pāya--jīva kon chāra
 
 *ei-mata*—tales; *ṣaṭ-aiśvarya*—seis opulencias; *sthāna*—morada; *avatāra*—encarnaciones; *brahmā*—el Señor Brahmā; *śiva*—el Señor Śiva; *anta nā pāya*—no pueden hallar el límite; *jīva*—una entidad viviente; *kon*—qué decir de; *chāra*—insignificante.

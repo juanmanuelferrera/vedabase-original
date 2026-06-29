@@ -1,11 +1,11 @@
 ### SB 4.21.47
 
-> हिरण्यकशिपुश्चापि भगवन्निन्दया तमः ।
+> हिरण्यकशिपुश्चापि भगवन्निन्दया तमः ।\
 > विविक्षुरत्यगात्सूनोः प्रह्लादस्यानुभावतः ॥४७॥
 
-> hiraṇyakaśipuś cāpi
-> bhagavan-nindayā tamaḥ
-> vivikṣur atyagāt sūnoḥ
+> hiraṇyakaśipuś cāpi\
+> bhagavan-nindayā tamaḥ\
+> vivikṣur atyagāt sūnoḥ\
 > prahlādasyānubhāvataḥ
 
 *hiraṇyakaśipuḥ*—el padre de Prahlāda Mahārāja; *ca*—también; *api*—de nuevo; *bhagavat*—de la Suprema Personalidad de Dios; *nindayā*—por blasfemar; *tamaḥ*—en la región más oscura de la vida infernal; *vivikṣuḥ*—entró; *atyagāt*—fue liberado; *sūnoḥ*—de su hijo; *prahlādasya*—de Mahārāja Prahlāda; *anubhāvataḥ*—por la influencia de.

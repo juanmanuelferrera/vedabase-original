@@ -1,11 +1,11 @@
 ### SB 4.24.69
 
-> इदं जपत भद्रं वो विशुद्धा नृपनन्दनाः ।
+> इदं जपत भद्रं वो विशुद्धा नृपनन्दनाः ।\
 > स्वधर्ममनुतिष्ठन्तो भगवत्यर्पिताशयाः ॥६९॥
 
-> idaṁ japata bhadraṁ vo
-> viśuddhā nṛpa-nandanāḥ
-> sva-dharmam anutiṣṭhanto
+> idaṁ japata bhadraṁ vo\
+> viśuddhā nṛpa-nandanāḥ\
+> sva-dharmam anutiṣṭhanto\
 > bhagavaty arpitāśayāḥ
 
 *idam*—esta; *japata*—mientras cantan; *bhadram*—todo lo auspicioso; *vaḥ*—todos ustedes; *viśuddhāḥ*—purificados; *nṛpa-nandanāḥ*—los hijos del rey; *sva-dharmam*—los propios deberes prescritos; *anutiṣṭhantaḥ*—cumplir; *bhagavati*—a la Suprema Personalidad de Dios; *arpita*—abandonados; *āśayāḥ*—con todas las clases de fidelidad.

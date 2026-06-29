@@ -1,11 +1,11 @@
 ### SB 4.14.15
 
-> धर्म आचरितः पुंसां वाङ्मनःकायबुद्धिभिः ।
+> धर्म आचरितः पुंसां वाङ्मनःकायबुद्धिभिः ।\
 > लोकान्विशोकान्वितरत्यथानन्त्यमसङ्गिनाम् ॥१५॥
 
-> dharma ācaritaḥ puṁsāṁ
-> vāṅ-manaḥ-kāya-buddhibhiḥ
-> lokān viśokān vitaraty
+> dharma ācaritaḥ puṁsāṁ\
+> vāṅ-manaḥ-kāya-buddhibhiḥ\
+> lokān viśokān vitaraty\
 > athānantyam asaṅginām
 
 *dharmaḥ*—religious principles; *ācaritaḥ*—executed; *puṁsām*—to persons; *vāk*—by words; *manaḥ*—mind; *kāya*—body; *buddhibhiḥ*—and by intelligence; *lokān*—the planets; *viśokān*—without misery; *vitarati*—bestow; *atha*—certainly; *ānantyam*—unlimited happiness, liberation; *asaṅginām*—to those free from material influence.

@@ -1,11 +1,11 @@
 ### SB 6.8.11
 
-> आत्मानं परमं ध्यायेद्ध्येयं षट्शक्तिभिर्युतम
+> आत्मानं परमं ध्यायेद्ध्येयं षट्शक्तिभिर्युतम\
 > विद्यातेजस्तपोमूर्तिमिमं मन्त्रमुदाहरेत ॥११॥
 
-> ātmānaṁ paramaṁ dhyāyed
-> dhyeyaṁ ṣaṭ-śaktibhir yutam
-> vidyā-tejas-tapo-mūrtim
+> ātmānaṁ paramaṁ dhyāyed\
+> dhyeyaṁ ṣaṭ-śaktibhir yutam\
+> vidyā-tejas-tapo-mūrtim\
 > imaṁ mantram udāharet
 
 *ātmānam*—el ser; *paramam*—el supremo; *dhyāyet*—se debe meditar en; *dhyeyam*—digno de que se medite en Él; *ṣaṭ-śaktibhiḥ*—las seis opulencias; *yutam*—poseídas; *vidyā*—erudición; *tejaḥ*—influencia; *tapaḥ*—austeridad; *mūrtim*—personificación; *imam*—este; *mantram*—*mantra*; *udāharet*—debe cantar.

@@ -1,11 +1,11 @@
 ### SB 5.19.13
 
-> इदं हि योगेश्वर योगनैपुणं हिरण्यगर्भो भगवाञ्जगाद यत
+> इदं हि योगेश्वर योगनैपुणं हिरण्यगर्भो भगवाञ्जगाद यत\
 > यदन्तकाले त्वयि निर्गुणे मनो भक्त्या दधीतोज्झितदुष्कलेवरः ॥१३॥
 
-> idaṁ hi yogeśvara yoga-naipuṇaṁ
-> hiraṇyagarbho bhagavāñ jagāda yat
-> yad anta-kāle tvayi nirguṇe mano
+> idaṁ hi yogeśvara yoga-naipuṇaṁ\
+> hiraṇyagarbho bhagavāñ jagāda yat\
+> yad anta-kāle tvayi nirguṇe mano\
 > bhaktyā dadhītojjhita-duṣkalevaraḥ
 
 *idam*—this; *hi*—certainly; *yoga-īśvara*—O my Lord, master of all mystic power; *yoga-naipuṇam*—the expert process of executing yogic principles; *hiraṇya-garbhaḥ*—Lord Brahmā; *bhagavān*—the most powerful; *jagāda*—spoke; *yat*—which; *yat*—which; *anta-kāle*—at the time of death; *tvayi*—in You; *nirguṇe*—the transcendence; *manaḥ*—the mind; *bhaktyā*—with a devotional attitude; *dadhīta*—one should place; *ujjhita-duṣkalevaraḥ*—having given up his identification with the material body.

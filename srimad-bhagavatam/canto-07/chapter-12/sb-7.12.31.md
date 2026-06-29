@@ -1,11 +1,11 @@
 ### SB 7.12.31
 
-> इत्यक्षरतयात्मानं चिन्मात्रमवशेषितम
+> इत्यक्षरतयात्मानं चिन्मात्रमवशेषितम\
 > ज्ञआत्वाद्वयोऽथ विरमेद्दग्धयोनिरिवानलः ॥३१॥
 
-> ity akṣaratayātmānaṁ
-> cin-mātram avaśeṣitam
-> jñātvādvayo 'tha viramed
+> ity akṣaratayātmānaṁ\
+> cin-mātram avaśeṣitam\
+> jñātvādvayo 'tha viramed\
 > dagdha-yonir ivānalaḥ
 
 *iti*—thus; *akṣaratayā*—because of being spiritual; *ātmānam*—oneself (the individual soul); *cit-mātram*—completely spiritual; *avaśeṣitam*—the remaining balance (after the material elements are merged, one after another, into the original Supersoul); *jñātvā*—understanding; *advayaḥ*—without differentiation, or of the same quality as the Paramātmā; *atha*—thus; *viramet*—one should cease from material existence; *dagdha-yoniḥ*—whose source (the wood) has burnt up; *iva*—like; *analaḥ*—flames.

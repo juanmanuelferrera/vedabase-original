@@ -1,9 +1,9 @@
 ### CC Antya 3.49
 
-> একদিন প্রভু হরিদাসেরে মিলিলা  ।
+> একদিন প্রভু হরিদাসেরে মিলিলা  ।\
 > তাঁহা লঞা গোষ্ঠী করি’ তাঁহারে পুছিলা ॥৪৯॥
 
-> eka-dina prabhu haridāsere mililā
+> eka-dina prabhu haridāsere mililā\
 > tāṅhā lañā goṣṭhī kari' tāṅhāre puchilā
 
 *eka-dina*—un día; *prabhu*—Śrī Caitanya Mahāprabhu; *haridāsere*—con Haridāsa Ṭhākura; *mililā*—se encontró; *tāṅhā lañā*—llevándolo consigo; *goṣṭhī kari'*—entablando una conversación; *tāṅhāre puchilā*—el Señor le preguntó.

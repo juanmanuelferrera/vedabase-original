@@ -1,11 +1,11 @@
 ### SB 6.8.15
 
-> रक्षत्वसौ माध्वनि यज्ञअकल्पः स्वदंष्ट्रयोन्नीतधरो वराहः
+> रक्षत्वसौ माध्वनि यज्ञअकल्पः स्वदंष्ट्रयोन्नीतधरो वराहः\
 > रामोऽद्रिकूटेष्वथ विप्रवासे सलक्ष्मणोऽव्याद्भरताग्रजोऽस्मान ॥१५॥
 
-> rakṣatv asau mādhvani yajña-kalpaḥ
-> sva-daṁṣṭrayonnīta-dharo varāhaḥ
-> rāmo 'dri-kūṭeṣv atha vipravāse
+> rakṣatv asau mādhvani yajña-kalpaḥ\
+> sva-daṁṣṭrayonnīta-dharo varāhaḥ\
+> rāmo 'dri-kūṭeṣv atha vipravāse\
 > salakṣmaṇo 'vyād bharatāgrajo 'smān
 
 *rakṣatu*—que el Señor proteja; *asau*—eso; *mā*—a mí; *adhvani*—en la calle; *yajña-kalpaḥ*—a quien Se descubre mediante la celebración de ceremonias rituales; *sva-daṁṣṭrayā*—con Su propio colmillo; *unnīta*—levantar; *varāhaḥ*—el Señor Jabalí; *rāmaḥ*—el Señor Rāma; *adri-kūṭeṣu*—en las cumbres de las montañas; *atha*—entonces; *vipravāse*—en países extranjeros; *sa-lakṣmaṇaḥ*—con Su hermano Lakṣmaṇa; *avyāt*—que Él proteja; *bharata-agrajaḥ*—el hermano mayor de Mahārāja Bharata; *asmān*—a nosotros.

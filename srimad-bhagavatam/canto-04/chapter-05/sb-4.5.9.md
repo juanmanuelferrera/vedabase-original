@@ -1,11 +1,11 @@
 ### SB 4.5.9
 
-> प्रसूतिमिश्राः स्त्रिय उद्विग्नचित्ता ऊचुर्विपाको वृजिनस्यैव तस्य ।
+> प्रसूतिमिश्राः स्त्रिय उद्विग्नचित्ता ऊचुर्विपाको वृजिनस्यैव तस्य ।\
 > यत्पश्यन्तीनां दुहितॄणां प्रजेशः सुतां सतीमवदध्यावनागाम् ॥९॥
 
-> prasūti-miśrāḥ striya udvigna-cittā
-> ūcur vipāko vṛjinasyaiva tasya
-> yat paśyantīnāṁ duhitṝṇāṁ prajeśaḥ
+> prasūti-miśrāḥ striya udvigna-cittā\
+> ūcur vipāko vṛjinasyaiva tasya\
+> yat paśyantīnāṁ duhitṝṇāṁ prajeśaḥ\
 > sutāṁ satīm avadadhyāv anāgām
 
 *prasūti-miśrāḥ*—headed by Prasūti; *striyaḥ*—the women; *udvigna-cittāḥ*—being very anxious; *ūcuḥ*—said; *vipākaḥ*—the resultant danger; *vṛjinasya*—of the sinful activity; *eva*—indeed; *tasya*—his (Dakṣa's); *yat*—because; *paśyantīnām*—who were looking on; *duhitṝṇām*—of her sisters; *prajeśaḥ*—the lord of the created beings (Dakṣa); *sutām*—his daughter; *satīm*—Satī; *avadadhyau*—insulted; *anāgām*—completely innocent.

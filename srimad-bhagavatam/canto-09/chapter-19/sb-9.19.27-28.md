@@ -1,18 +1,18 @@
 ### SB 9.19.27-28
 
-> सा सन्निवासं सुहृदां प्रपायामिव गच्छताम
-> विज्ञआयेश्वरतन्त्राणां मायाविरचितं प्रभोः ॥२७॥
-> सर्वत्र सङ्गमुत्सृज्य स्वप्नौपम्येन भार्गवी
+> सा सन्निवासं सुहृदां प्रपायामिव गच्छताम\
+> विज्ञआयेश्वरतन्त्राणां मायाविरचितं प्रभोः ॥२७॥\
+> सर्वत्र सङ्गमुत्सृज्य स्वप्नौपम्येन भार्गवी\
 > कृष्णे मनः समावेश्य व्यधुनोल्लिङ्गमात्मनः ॥२८॥
 
-> sā sannivāsaṁ suhṛdāṁ
-> prapāyām iva gacchatām
-> vijñāyeśvara-tantrāṇāṁ
+> sā sannivāsaṁ suhṛdāṁ\
+> prapāyām iva gacchatām\
+> vijñāyeśvara-tantrāṇāṁ\
 > māyā-viracitaṁ prabhoḥ
 
-> sarvatra saṅgam utsṛjya
-> svapnaupamyena bhārgavī
-> kṛṣṇe manaḥ samāveśya
+> sarvatra saṅgam utsṛjya\
+> svapnaupamyena bhārgavī\
+> kṛṣṇe manaḥ samāveśya\
 > vyadhunol liṅgam ātmanaḥ
 
 *sā*—Devayānī; *sannivāsam*—living in the association; *suhṛdām*—of friends and relatives; *prapāyām*—in a place where water is supplied; *iva*—like; *gacchatām*—of tourists on a program for going from one place to another; *vijñāya*—understanding; *īśvara-tantrāṇām*—under the influence of the rigid laws of nature; *māyā-viracitam*—the laws enforced by *māyā,* the illusory energy; *prabhoḥ*—of the Supreme Personality of Godhead; *sarvatra*—everywhere in this material world; *saṅgam*—association; *utsṛjya*—giving up; *svapna-aupamyena*—by the analogy of a dream; *bhārgavī*—Devayānī, the daughter of Śukrācārya; *kṛṣṇe*—unto Lord Kṛṣṇa; *manaḥ*—complete attention; *samāveśya*—fixing; *vyadhunot*—gave up; *liṅgam*—the gross and subtle bodies; *ātmanaḥ*—of the soul.

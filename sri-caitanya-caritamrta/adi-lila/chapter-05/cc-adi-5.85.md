@@ -1,9 +1,9 @@
 ### CC Adi 5.85
 
-> যদ্যপি সর্বাশ্রয় তিঁহো, তাঁহাতে সংসার ।
+> যদ্যপি সর্বাশ্রয় তিঁহো, তাঁহাতে সংসার ।\
 > অন্তরাত্মা-রূপে তিঁহো জগত্-আধার ॥৮৫॥
 
-> yadyapi sarvāśraya tiṅho, tāṅhāte saṁsāra
+> yadyapi sarvāśraya tiṅho, tāṅhāte saṁsāra\
 > antarātmā-rūpe tiṅho jagat-ādhāra
 
 *yadyapi*—although; *sarva-āśraya*—the shelter of everything; *tiṅho*—He (the Lord); *tāṅhāte*—in Him; *saṁsāra*—the material creation; *antaḥ-ātmā-rūpe*—in the form of the Supersoul; *tiṅho*—He; *jagat-ādhāra*—the support of the whole creation.

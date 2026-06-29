@@ -1,13 +1,13 @@
 ### SB 6.9.47
 
-> श्रीभगवानुवाच
-> प्रीतोऽहं वः सुरश्रेष्ठा मदुपस्थानविद्यया
+> श्रीभगवानुवाच\
+> प्रीतोऽहं वः सुरश्रेष्ठा मदुपस्थानविद्यया\
 > आत्मैश्वर्यस्मृतिः पुंसां भक्तिश्चैव यया मयि ॥४७॥
 
-> śrī-bhagavān uvāca
-> prīto 'haṁ vaḥ sura-śreṣṭhā
-> mad-upasthāna-vidyayā
-> ātmaiśvarya-smṛtiḥ puṁsāṁ
+> śrī-bhagavān uvāca\
+> prīto 'haṁ vaḥ sura-śreṣṭhā\
+> mad-upasthāna-vidyayā\
+> ātmaiśvarya-smṛtiḥ puṁsāṁ\
 > bhaktiś caiva yayā mayi
 
 *śrī-bhagavān uvāca*—the Supreme Personality of Godhead said; *prītaḥ*—pleased; *aham*—I; *vaḥ*—of you; *sura-śreṣṭhāḥ*—O best of the demigods; *mat-upasthāna-vidyayā*—by the highly advanced knowledge and prayers offered unto Me; *ātma-aiśvarya-smṛtiḥ*—remembrance of the exalted transcendental position of Me, the Supreme Personality of Godhead; *puṁsām*—of men; *bhaktiḥ*—devotional service; *ca*—and; *eva*—certainly; *yayā*—by which; *mayi*—unto Me.

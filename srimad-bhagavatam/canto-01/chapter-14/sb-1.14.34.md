@@ -1,11 +1,11 @@
 ### SB 1.14.34
 
-> भगवानपि गोविन्दो ब्रह्मण्यो भक्तवत्सलः ।
+> भगवानपि गोविन्दो ब्रह्मण्यो भक्तवत्सलः ।\
 > कच्चित्पुरे सुधर्मायां सुखमास्ते सुहृद्वृतः ॥३४॥
 
-> bhagavān api govindo
-> brahmaṇyo bhakta-vatsalaḥ
-> kaccit pure sudharmāyāṁ
+> bhagavān api govindo\
+> brahmaṇyo bhakta-vatsalaḥ\
+> kaccit pure sudharmāyāṁ\
 > sukham āste suhṛd-vṛtaḥ
 
 *bhagavān*—the Personality of Godhead, Kṛṣṇa; *api*—also; *govindaḥ*—one who enlivens the cows and the senses; *brahmaṇyaḥ*—devoted to the devotees of the *brāhmaṇas*; *bhakta-vatsalaḥ*—affectionate to the devotees; *kaccit*—whether; *pure*—in Dvārakā Purī; *sudharmāyām*—pious assembly; *sukham*—happiness; *āste*—does enjoy; *suhṛt-vṛtaḥ*—surrounded by friends.

@@ -1,11 +1,11 @@
 ### SB 7.3.19
 
-> नैतत्पूर्वर्षयश्चक्रुर्न करिष्यन्ति चापरे
+> नैतत्पूर्वर्षयश्चक्रुर्न करिष्यन्ति चापरे\
 > निरम्बुर्धारयेत्प्राणान्को वै दिव्यसमाः शतम ॥१९॥
 
-> naitat pūrvarṣayaś cakrur
-> na kariṣyanti cāpare
-> nirambur dhārayet prāṇān
+> naitat pūrvarṣayaś cakrur\
+> na kariṣyanti cāpare\
+> nirambur dhārayet prāṇān\
 > ko vai divya-samāḥ śatam
 
 *na*—no; *etat*—esto; *pūrva-ṛṣayaḥ*—los sabios anteriores a ti, como Bhṛgu; *cakruḥ*—llevaron a cabo; *na*—no; *kariṣyanti*—llevarán a cabo; *ca*—también; *apare*—otros; *nirambuḥ*—sin beber agua; *dhārayet*—puede sostener; *prāṇān*—el aire de la vida; *kaḥ*—quién; *vai*—en verdad; *divya-samaḥ*—años celestiales; *śatam*—cien.

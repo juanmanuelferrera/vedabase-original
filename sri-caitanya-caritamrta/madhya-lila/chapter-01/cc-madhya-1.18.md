@@ -1,9 +1,9 @@
 ### CC Madhya 1.18
 
-> শেষলীলার ‘মধ্য’ ‘অন্ত’, — দুই নাম হয় ।
+> শেষলীলার ‘মধ্য’ ‘অন্ত’, — দুই নাম হয় ।\
 > লীলাভেদে বৈষ্ণব সব নাম-ভেদ কয় ॥১৮॥
 
-> śeṣa-līlāra 'madhya' 'antya',—dui nāma haya
+> śeṣa-līlāra 'madhya' 'antya',—dui nāma haya\
 > līlā-bhede vaiṣṇava saba nāma-bheda kaya
 
 *śeṣa-līlāra*—of the *śeṣa-līlā,* or pastimes at the end; *madhya*—the middle; *antya*—the final; *dui*—two; *nāma*—names; *haya*—are; *līlā-bhede*—by the difference of pastimes; *vaiṣṇava*—the devotees of the Supreme Lord; *saba*—all; *nāma-bheda*—different names; *kaya*—say.

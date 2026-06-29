@@ -1,11 +1,11 @@
 ### SB 6.12.14
 
-> तस्मादकीर्तियशसोर्जयापजययोरपि
+> तस्मादकीर्तियशसोर्जयापजययोरपि\
 > समः स्यात्सुखदुःखाभ्यां मृत्युजीवितयोस्तथा ॥१४॥
 
-> tasmād akīrti-yaśasor
-> jayāpajayayor api
-> samaḥ syāt sukha-duḥkhābhyāṁ
+> tasmād akīrti-yaśasor\
+> jayāpajayayor api\
+> samaḥ syāt sukha-duḥkhābhyāṁ\
 > mṛtyu-jīvitayos tathā
 
 *tasmāt*—therefore (because of being fully dependent on the pleasure of the Supreme Personality of Godhead); *akīrti*—of defamation; *yaśasoḥ*—and fame; *jaya*—of victory; *apajayayoḥ*—and defeat; *api*—even; *samaḥ*—equal; *syāt*—one should be; *sukha-duḥkhābhyām*—with the distress and happiness; *mṛtyu*—of death; *jīvitayoḥ*—or of living; *tathā*—as well as.

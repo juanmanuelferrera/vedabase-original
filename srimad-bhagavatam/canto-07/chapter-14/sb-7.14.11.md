@@ -1,11 +1,11 @@
 ### SB 7.14.11
 
-> आश्वाघान्तेऽवसायिभ्यः कामान्संविभजेद्यथा
+> आश्वाघान्तेऽवसायिभ्यः कामान्संविभजेद्यथा\
 > अप्येकामात्मनो दारां नृणां स्वत्वग्रहो यतः ॥११॥
 
-> āśvāghānte 'vasāyibhyaḥ
-> kāmān saṁvibhajed yathā
-> apy ekām ātmano dārāṁ
+> āśvāghānte 'vasāyibhyaḥ\
+> kāmān saṁvibhajed yathā\
+> apy ekām ātmano dārāṁ\
 > nṛṇāṁ svatva-graho yataḥ
 
 *ā*—even up to; *śva*—the dog; *agha*—sinful animals or living entities; *ante avasāyibhyaḥ*—unto the *caṇḍālas,* the lowest of men (dog-eaters and hog-eaters); *kāmān*—the necessities of life; *saṁvibhajet*—should divide; *yathā*—as much as (deserved); *api*—even; *ekām*—one; *ātmanaḥ*—own; *dārām*—the wife; *nṛṇām*—of the people in general; *svatva-grahaḥ*—the wife is accepted as being identical with one's self; *yataḥ*—because of which.

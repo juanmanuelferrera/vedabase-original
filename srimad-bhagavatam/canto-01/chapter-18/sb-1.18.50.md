@@ -1,11 +1,11 @@
 ### SB 1.18.50
 
-> प्रायशः साधवो लोके परैर्द्वन्द्वेषु योजिताः ।
+> प्रायशः साधवो लोके परैर्द्वन्द्वेषु योजिताः ।\
 > न व्यथन्ति न हृष्यन्ति यत आत्मागुणाश्रयः ॥५०॥
 
-> prāyaśaḥ sādhavo loke
-> parair dvandveṣu yojitāḥ
-> na vyathanti na hṛṣyanti
+> prāyaśaḥ sādhavo loke\
+> parair dvandveṣu yojitāḥ\
+> na vyathanti na hṛṣyanti\
 > yata ātmāguṇāśrayaḥ
 
 *prāyaśaḥ*—generally; *sādhavaḥ*—saints; *loke*—in this world; *paraiḥ*—by others; *dvandveṣu*—in duality; *yojitāḥ*—being engaged; *na*—never; *vyathanti*—distressed; *na*—nor; *hṛṣyanti*—takes pleasure; *yataḥ*—because; *ātmā*—self; *aguṇa-āśrayaḥ*—transcendental.

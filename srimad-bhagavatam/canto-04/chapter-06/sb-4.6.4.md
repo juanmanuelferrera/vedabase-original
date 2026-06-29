@@ -1,11 +1,11 @@
 ### SB 4.6.4
 
-> तदाकर्ण्य विभुः प्राह तेजीयसि कृतागसि ।
+> तदाकर्ण्य विभुः प्राह तेजीयसि कृतागसि ।\
 > क्षेमाय तत्र सा भूयान्न प्रायेण बुभूषताम् ॥४॥
 
-> tad ākarṇya vibhuḥ prāha
-> tejīyasi kṛtāgasi
-> kṣemāya tatra sā bhūyān
+> tad ākarṇya vibhuḥ prāha\
+> tejīyasi kṛtāgasi\
+> kṣemāya tatra sā bhūyān\
 > na prāyeṇa bubhūṣatām
 
 *tat*—the events related by the demigods and the others; *ākarṇya*—after hearing; *vibhuḥ*—Lord Brahmā; *prāha*—replied; *tejīyasi*—a great personality; *kṛta-āgasi*—has been offended; *kṣemāya*—for your happiness; *tatra*—in that way; *sā*—that; *bhūyāt na*—is not conducive; *prāyeṇa*—generally; *bubhūṣatām*—desire to exist.

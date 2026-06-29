@@ -1,9 +1,9 @@
 ### CC Madhya 11.148
 
-> দামোদর কহে, — শঙ্কর ছোট আমা হৈতে ৷
+> দামোদর কহে, — শঙ্কর ছোট আমা হৈতে ৷\
 > এবে আমার বড় ভাই তোমার কৃপাতে ৷৷ ১৪৮ ৷৷ ॥১৪৮॥
 
-> dāmodara kahe,-śaṅkara choṭa āmā haite
+> dāmodara kahe,-śaṅkara choṭa āmā haite\
 > ebe āmāra baḍa bhāi tomāra kṛpāte
 
 *dāmodara kahe*—Dāmodara Paṇḍita respondió; *śaṅkara*—Śaṅkara; *choṭa*—menor; *āmā haite*—que yo; *ebe*—ahora; *āmāra*—mi; *baḍa bhāi*—hermano mayor; *tomāra*—de Ti; *kṛpāte*—por la misericordia.

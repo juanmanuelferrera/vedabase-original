@@ -1,11 +1,11 @@
 ### SB 3.19.16
 
-> तेनेत्थमाहतः क्षत्तर्भगवानादिसूकरः ।
+> तेनेत्थमाहतः क्षत्तर्भगवानादिसूकरः ।\
 > नाकम्पत मनाक्क्वापि स्रजा हत इव द्विपः ॥१६॥
 
-> tenettham āhataḥ kṣattar
-> bhagavān ādi-sūkaraḥ
-> nākampata manāk kvāpi
+> tenettham āhataḥ kṣattar\
+> bhagavān ādi-sūkaraḥ\
+> nākampata manāk kvāpi\
 > srajā hata iva dvipaḥ
 
 *tena*—by Hiraṇyākṣa; *ittham*—thus; *āhataḥ*—struck; *kṣattaḥ*—O Vidura; *bhagavān*—the Supreme Personality of Godhead; *ādi-sūkaraḥ*—the first boar; *na akampata*—did not feel quaking; *manāk*—even slightly; *kva api*—anywhere; *srajā*—by a garland of flowers; *hataḥ*—struck; *iva*—as; *dvipaḥ*—an elephant.

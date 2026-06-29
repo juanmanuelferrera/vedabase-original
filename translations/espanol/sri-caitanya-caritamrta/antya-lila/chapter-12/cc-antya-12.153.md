@@ -1,9 +1,9 @@
 ### CC Antya 12.153
 
-> জগদানন্দের সৌভাগ্যের কে কহিবে সীমা ?
+> জগদানন্দের সৌভাগ্যের কে কহিবে সীমা ?\
 > জগদানন্দের সৌভাগ্যের তেঁহ সে উপমা ॥১৫৩॥
 
-> jagadānandera saubhāgyera ke kahibe sīmā?
+> jagadānandera saubhāgyera ke kahibe sīmā?\
 > jagadānandera saubhāgyera teṅha se upamā
 
 *jagadānandera*—de Jagadānanda Paṇḍita; *saubhāgyera*—de la fortuna; *ke*—quién; *kahibe*—habrá de decir; *sīmā*—el límite; *jagadānandera*—de Jagadānanda; *saubhāgyera*—de la fortuna; *teṅha*—él; *se*—el; *upamā*—ejemplo.

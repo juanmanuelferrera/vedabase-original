@@ -1,11 +1,11 @@
 ### SB 4.29.50
 
-> हरिर्देहभृतामात्मा स्वयं प्रकृतिरीश्वरः ।
+> हरिर्देहभृतामात्मा स्वयं प्रकृतिरीश्वरः ।\
 > तत्पादमूलं शरणं यतः क्षेमो नृणामिह ॥५०॥
 
-> harir deha-bhṛtām ātmā
-> svayaṁ prakṛtir īśvaraḥ
-> tat-pāda-mūlaṁ śaraṇaṁ
+> harir deha-bhṛtām ātmā\
+> svayaṁ prakṛtir īśvaraḥ\
+> tat-pāda-mūlaṁ śaraṇaṁ\
 > yataḥ kṣemo nṛṇām iha
 
 *hariḥ*—Śrī Hari; *deha-bhṛtām*—of living entities who have accepted material bodies; *ātmā*—the Supersoul; *svayam*—Himself; *prakṛtiḥ*—material nature; *īśvaraḥ*—the controller; *tat*—His; *pāda-mūlam*—feet; *śaraṇam*—shelter; *yataḥ*—from which; *kṣemaḥ*—good fortune; *nṛṇām*—of men; *iha*—in this world.

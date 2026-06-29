@@ -1,11 +1,11 @@
 ### SB 1.16.9
 
-> मन्दस्य मन्दप्रज्ञस्य वयो मन्दायुषश्च वै ।
+> मन्दस्य मन्दप्रज्ञस्य वयो मन्दायुषश्च वै ।\
 > निद्रया ह्रियते नक्तं दिवा च व्यर्थकर्मभिः ॥९॥
 
-> mandasya manda-prajñasya
-> vayo mandāyuṣaś ca vai
-> nidrayā hriyate naktaṁ
+> mandasya manda-prajñasya\
+> vayo mandāyuṣaś ca vai\
+> nidrayā hriyate naktaṁ\
 > divā ca vyartha-karmabhiḥ
 
 *mandasya*—of the lazy; *manda*—paltry; *prajñasya*—of intelligence; *vayaḥ*—age; *manda*—short; *āyuṣaḥ*—of duration of life; *ca*—and; *vai*—exactly; *nidrayā*—by sleeping; *hriyate*—passes away; *naktam*—night; *divā*—daytime; *ca*—also; *vyartha*—for nothing; *karmabhiḥ*—by activities.

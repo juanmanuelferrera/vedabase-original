@@ -1,9 +1,9 @@
 ### CC Antya 16.42
 
-> সেই গাড়ে করেন প্রভু পাদ-প্রক্ষালনে ।
+> সেই গাড়ে করেন প্রভু পাদ-প্রক্ষালনে ।\
 > তবে করিবারে যায় ঈশ্বর-দরশনে ॥৪২॥
 
-> sei gāḍe karena prabhu pāda-prakṣālane
+> sei gāḍe karena prabhu pāda-prakṣālane\
 > tabe karibāre yāya īśvara-daraśane
 
 *sei gāḍe*—in that ditch; *karena*—does; *prabhu*—Śrī Caitanya Mahāprabhu; *pāda-prakṣālane*—washing the feet; *tabe*—thereafter; *karibāre*—to do; *yāya*—He goes; *īśvara-daraśane*—to visit Lord Jagannātha.

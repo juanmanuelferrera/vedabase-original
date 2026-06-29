@@ -1,11 +1,11 @@
 ### SB 4.28.26
 
-> तं यज्ञपशवोऽनेन संज्ञप्ता येऽदयालुना ।
+> तं यज्ञपशवोऽनेन संज्ञप्ता येऽदयालुना ।\
 > कुठारैश्चिच्छिदुः क्रुद्धाः स्मरन्तोऽमीवमस्य तत् ॥२६॥
 
-> taṁ yajña-paśavo 'nena
-> saṁjñaptā ye 'dayālunā
-> kuṭhāraiś cicchiduḥ kruddhāḥ
+> taṁ yajña-paśavo 'nena\
+> saṁjñaptā ye 'dayālunā\
+> kuṭhāraiś cicchiduḥ kruddhāḥ\
 > smaranto 'mīvam asya tat
 
 *tam*—a él; *yajña-paśavaḥ*—los animales de sacrificio; *anena*—por él; *saṁjñaptāḥ*—matados; *ye*—todos los que; *adayālunā*—por el muy cruel; *kuṭhāraiḥ*—con hachas; *cicchiduḥ*—despedazado; *kruddhāḥ*—muy furiosos; *smarantaḥ*—recordando; *amīvam*—actividad pecaminosa; *asya*—de él; *tat*—aquella.

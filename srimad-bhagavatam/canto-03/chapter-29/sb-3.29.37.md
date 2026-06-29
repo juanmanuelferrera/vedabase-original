@@ -1,11 +1,11 @@
 ### SB 3.29.37
 
-> रूपभेदास्पदं दिव्यं काल इत्यभिधीयते ।
+> रूपभेदास्पदं दिव्यं काल इत्यभिधीयते ।\
 > भूतानां महदादीनां यतो भिन्नदृशां भयम् ॥३७॥
 
-> rūpa-bhedāspadaṁ divyaṁ
-> kāla ity abhidhīyate
-> bhūtānāṁ mahad-ādīnāṁ
+> rūpa-bhedāspadaṁ divyaṁ\
+> kāla ity abhidhīyate\
+> bhūtānāṁ mahad-ādīnāṁ\
 > yato bhinna-dṛśāṁ bhayam
 
 *rūpa-bheda*—of the transformation of forms; *āspadam*—the cause; *divyam*—divine; *kālaḥ*—time; *iti*—thus; *abhidhīyate*—is known; *bhūtānām*—of living entities; *mahat-ādīnām*—beginning with Lord Brahmā; *yataḥ*—because of which; *bhinna-dṛśām*—with separate vision; *bhayam*—fear.

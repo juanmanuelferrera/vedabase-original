@@ -1,11 +1,11 @@
 ### SB 1.17.20
 
-> अप्रतर्क्यादनिर्देश्यादिति केष्वपि निश्चयः ।
+> अप्रतर्क्यादनिर्देश्यादिति केष्वपि निश्चयः ।\
 > अत्रानुरूपं राजर्षे विमृश स्वमनीषया ॥२०॥
 
-> apratarkyād anirdeśyād
-> iti keṣv api niścayaḥ
-> atrānurūpaṁ rājarṣe
+> apratarkyād anirdeśyād\
+> iti keṣv api niścayaḥ\
+> atrānurūpaṁ rājarṣe\
 > vimṛśa sva-manīṣayā
 
 *apratarkyāt*—más allá de la capacidad de razonar; *anirdeśyāt*—más allá de la capacidad de pensar; *iti*—así pues; *keṣu*—alguien; *api*—también; *niścayaḥ*—concluido categóricamente; *atra*—en esto; *anurūpam*—cuál de ellos está en lo correcto; *rāja-ṛṣe*—¡oh, sabio entre los reyes!; *vimṛśa*—juzga por ti mismo; *sva*—con tu propio; *manīṣayā*—poder de inteligencia.

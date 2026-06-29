@@ -1,18 +1,18 @@
 ### SB 2.6.40-41
 
-> विशुद्धं केवलं ज्ञानं प्रत्यक्सम्यगवस्थितम् ।
-> सत्यं पूर्णमनाद्यन्तं निर्गुणं नित्यमद्वयम् ॥४०॥
-> ऋषे विदन्ति मुनयः प्रशान्तात्मेन्द्रियाशयाः ।
+> विशुद्धं केवलं ज्ञानं प्रत्यक्सम्यगवस्थितम् ।\
+> सत्यं पूर्णमनाद्यन्तं निर्गुणं नित्यमद्वयम् ॥४०॥\
+> ऋषे विदन्ति मुनयः प्रशान्तात्मेन्द्रियाशयाः ।\
 > यदा तदेवासत्तर्कैस्तिरोधीयेत विप्लुतम् ॥४१॥
 
-> viśuddhaṁ kevalaṁ jñānaṁ
-> pratyak samyag avasthitam
-> satyaṁ pūrṇam anādy-antaṁ
+> viśuddhaṁ kevalaṁ jñānaṁ\
+> pratyak samyag avasthitam\
+> satyaṁ pūrṇam anādy-antaṁ\
 > nirguṇaṁ nityam advayam
 
-> ṛṣe vidanti munayaḥ
-> praśāntātmendriyāśayāḥ
-> yadā tad evāsat-tarkais
+> ṛṣe vidanti munayaḥ\
+> praśāntātmendriyāśayāḥ\
+> yadā tad evāsat-tarkais\
 > tirodhīyeta viplutam
 
 *vīśuddham*—sin ningún tinte material; *kevalam*—puro y perfecto; *jñānam*—conocimiento; *pratyak*—omnipresente; *samyak*—a plenitud; *avasthitam*—situado; *satyam*—verdad; *pūrṇam*—absoluta; *anādi*—sin comienzo alguno; *antam*—y así también sin ningún final; *nirguṇam*—libre de modalidades materiales; *nityam*—eterno; *advayam*—sin rival alguno; *se*—¡Oh, Nārada!, ¡oh, gran sabio!; *vidanti*—ellos solo pueden entender; *munayaḥ*—los grandes pensadores; *paraśānta*—apaciguados; *ātma*—el yo; *indriya*—los sentidos; *āśayāḥ*—refugiados; *yadā*—mientras; *tat*—eso; *eva*—ciertamente; *asat*—insostenible; *tarkaiḥ*—argumentos; *tiraḥdhīyeta*—desaparece; *viplutam*—desvirtuado.

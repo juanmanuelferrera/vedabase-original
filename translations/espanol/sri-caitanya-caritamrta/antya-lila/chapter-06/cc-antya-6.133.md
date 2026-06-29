@@ -1,9 +1,9 @@
 ### CC Antya 6.133
 
-> মোর মাথে পদ ধরি’ করহ প্রসাদ  ।
+> মোর মাথে পদ ধরি’ করহ প্রসাদ  ।\
 > নির্বিঘ্নে চৈতন্য পাঙ — কর আশীর্বাদ ।।” ১৩৩ ॥১৩৩॥
 
-> mora māthe pada dhari' karaha prasāda
+> mora māthe pada dhari' karaha prasāda\
 > nirvighne caitanya pāṅa--kara āśīrvāda"
 
 *mora māthe*—sobre mi cabeza; *pada dhari'*—colocando Tus pies; *karaha prasāda*—bendíceme; *nirvighne*—sin dificultad; *caitanya pāṅa*—pueda obtener el refugio de Śrī Caitanya Mahāprabhu; *kara āśīrvāda*—concédeme esta bendición.

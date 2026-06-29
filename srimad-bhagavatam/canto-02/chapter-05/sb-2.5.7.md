@@ -1,11 +1,11 @@
 ### SB 2.5.7
 
-> स भवानचरद्घोरं यत्तपः सुसमाहितः ।
+> स भवानचरद्घोरं यत्तपः सुसमाहितः ।\
 > तेन खेदयसे नस्त्वं पराशङ्कां च यच्छसि ॥७॥
 
-> sa bhavān acarad ghoraṁ
-> yat tapaḥ susamāhitaḥ
-> tena khedayase nas tvaṁ
+> sa bhavān acarad ghoraṁ\
+> yat tapaḥ susamāhitaḥ\
+> tena khedayase nas tvaṁ\
 > parā-śaṅkāṁ ca yacchasi
 
 *saḥ*—he; *bhavān*—your good self; *acarat*—undertook; *ghoram*—severe; *yat tapaḥ*—meditation; *su-samāhitaḥ*—in perfect discipline; *tena*—for that reason; *khedayase*—gives pain; *naḥ*—ourselves; *tvam*—your good self; *parā*—the ultimate truth; *śaṅkām*—doubts; *ca*—and; *yacchasi*—giving us a chance.

@@ -1,11 +1,11 @@
 ### SB 6.11.6
 
-> एवं सुरगणान्क्रुद्धो भीषयन्वपुषा रिपून
+> एवं सुरगणान्क्रुद्धो भीषयन्वपुषा रिपून\
 > व्यनदत्सुमहाप्राणो येन लोका विचेतसः ॥६॥
 
-> evaṁ sura-gaṇān kruddho
-> bhīṣayan vapuṣā ripūn
-> vyanadat sumahā-prāṇo
+> evaṁ sura-gaṇān kruddho\
+> bhīṣayan vapuṣā ripūn\
+> vyanadat sumahā-prāṇo\
 > yena lokā vicetasaḥ
 
 *evam*—thus; *sura-gaṇān*—the demigods; *kruddhaḥ*—being very angry; *bhīṣayan*—terrifying; *vapuṣā*—by his body; *ripūn*—his enemies; *vyanadat*—roared; *su-mahā-prāṇaḥ*—the most powerful Vṛtrāsura; *yena*—by which; *lokāḥ*—all people; *vicetasaḥ*—unconscious.

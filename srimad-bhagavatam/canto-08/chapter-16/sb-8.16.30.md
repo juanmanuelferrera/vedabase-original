@@ -1,11 +1,11 @@
 ### SB 8.16.30
 
-> नमोऽव्यक्ताय सूक्ष्माय प्रधानपुरुषाय च
+> नमोऽव्यक्ताय सूक्ष्माय प्रधानपुरुषाय च\
 > चतुर्विंशद्गुणज्ञआय गुणसङ्ख्यानहेतवे ॥३०॥
 
-> namo 'vyaktāya sūkṣmāya
-> pradhāna-puruṣāya ca
-> catur-viṁśad-guṇa-jñāya
+> namo 'vyaktāya sūkṣmāya\
+> pradhāna-puruṣāya ca\
+> catur-viṁśad-guṇa-jñāya\
 > guṇa-saṅkhyāna-hetave
 
 *namaḥ*—I offer my respectful obeisances unto You; *avyaktāya*—who are never seen by material eyes; *sūkṣmāya*—transcendental; *pradhāna-puruṣāya*—the Supreme Person; *ca*—also; *catuḥ-viṁśat*—twenty-four; *guṇa-jñāya*—the knower of the elements; *guṇa-saṅkhyāna*—of the *sāṅkhya-yoga* system; *hetave*—the original cause.

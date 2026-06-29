@@ -1,9 +1,9 @@
 ### CC Madhya 15.61
 
-> kibā āmi anna-pātre bhrame nā bāḍila!'
+> kibā āmi anna-pātre bhrame nā bāḍila!'\
 > eta cinti' pāka-pātra yāñā dekhila
 
-> kibā āmi anna-pātre bhrame nā bāḍila!'
+> kibā āmi anna-pātre bhrame nā bāḍila!'\
 > eta cinti' pāka-pātra yāñā dekhila
 
 *kibā*—o; *āmi*—yo; *anna-pātre*—en el plato para el alimento; *bhrame*—por error; *nā bāḍila*—no puse nada; *eta cinti'*—pensando esto; *pāka-pātra*—las ollas de la cocina; *yāñā dekhila*—fue a ver.

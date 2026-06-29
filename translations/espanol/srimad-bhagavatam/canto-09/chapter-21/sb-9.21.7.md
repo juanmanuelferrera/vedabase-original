@@ -1,11 +1,11 @@
 ### SB 9.21.7
 
-> अथान्यो भोक्ष्यमाणस्य विभक्तस्य महीपतेः
+> अथान्यो भोक्ष्यमाणस्य विभक्तस्य महीपतेः\
 > विभक्तं व्यभजत्तस्मै वृषलाय हरिं स्मरन ॥७॥
 
-> athānyo bhokṣyamāṇasya
-> vibhaktasya mahīpateḥ
-> vibhaktaṁ vyabhajat tasmai
+> athānyo bhokṣyamāṇasya\
+> vibhaktasya mahīpateḥ\
+> vibhaktaṁ vyabhajat tasmai\
 > vṛṣalāya hariṁ smaran
 
 *atha*—a continuación; *anyaḥ*—otro visitante; *bhokṣyamāṇasya*—que estaba a punto de comer; *vibhaktasya*—después de reservar la parte destinada a su familia; *mahīpateḥ*—del rey; *vibhaktam*—el alimento correspondiente a la familia; *vyabhajat*—dividió y repartió; *tasmai*—a él; *vṛṣalāya*—a un *śūdra*; *harim*—a la Suprema Personalidad de Dios; *smaran*—recordando.

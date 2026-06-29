@@ -1,11 +1,11 @@
 ### SB 4.29.62
 
-> ममैते मनसा यद्यदसावहमिति ब्रुवन् ।
+> ममैते मनसा यद्यदसावहमिति ब्रुवन् ।\
 > गृह्णीयात्तत्पुमान्राद्धं कर्म येन पुनर्भवः ॥६२॥
 
-> mamaite manasā yad yad
-> asāv aham iti bruvan
-> gṛhṇīyāt tat pumān rāddhaṁ
+> mamaite manasā yad yad\
+> asāv aham iti bruvan\
+> gṛhṇīyāt tat pumān rāddhaṁ\
 > karma yena punar bhavaḥ
 
 *mama*—mía; *ete*—todas esas; *manasā*—por la mente; *yat yat*—todo lo que; *asau*—esa; *aham*—yo (soy); *iti*—así; *bruvan*—aceptar; *gṛhṇīyāt*—lleva con él; *tat*—esa; *pumān*—la entidad viviente; *rāddham*—perfeccionada; *karma*—actividad; *yena*—por el cual; *punaḥ*—de nuevo; *bhavaḥ*—existencia material.

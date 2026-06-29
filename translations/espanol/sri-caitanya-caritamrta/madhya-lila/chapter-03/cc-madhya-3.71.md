@@ -1,9 +1,9 @@
 ### CC Madhya 3.71
 
-> আচার্য কহে — ছাড় তুমি আপনার চুরি ।
+> আচার্য কহে — ছাড় তুমি আপনার চুরি ।\
 > আমি সব জানি তোমার সন্ন্যাসের ভারিভুরি ॥৭১॥
 
-> ācārya kahe--chāḍa tumi āpanāra curi
+> ācārya kahe--chāḍa tumi āpanāra curi\
 > āmi saba jāni tomāra sannyāsera bhāri-bhuri
 
 *ācārya kahe*—Advaita Ācārya respondió; *chāḍa*—abandona; *tumi*—Tú; *āpanāra*—de Ti mismo; *curi*—el ocultamiento; *āmi*—yo; *saba*—todo; *jāni*—sé; *tomāra*—de Ti; *sannyāsera*—de la aceptación de la orden de renuncia; *bhāri-bhuri*—el significado confidencial.

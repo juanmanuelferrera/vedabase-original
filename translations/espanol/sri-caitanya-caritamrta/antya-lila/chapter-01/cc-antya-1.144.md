@@ -1,13 +1,13 @@
 ### CC Antya 1.144
 
-> ধরিঅ পরিচ্ছন্দগুণং
-> সুন্দর মহ মন্দিরে তুমং বসসি ।
-> তহ তহ রুন্ধসি বলিঅং
+> ধরিঅ পরিচ্ছন্দগুণং\
+> সুন্দর মহ মন্দিরে তুমং বসসি ।\
+> তহ তহ রুন্ধসি বলিঅং\
 > জহ জহ চইদা পলাএম্হি ? ॥ ১৪৪ ॥
 
-> dhari-a paḍicchanda-guṇaṁ
-> sundara maha mandire tumaṁ vasasi
-> taha taha rundhasi bali-aṁ
+> dhari-a paḍicchanda-guṇaṁ\
+> sundara maha mandire tumaṁ vasasi\
+> taha taha rundhasi bali-aṁ\
 > jaha jaha ca-idā palāemhi
 
 *dhari-a*—capturando; *paḍicchanda-guṇam*—la cualidad de una imagen artística; *sundara*—¡oh, el más hermoso!; *maha*—mi; *mandire*—dentro del corazón; *tumam*—Tú; *vasasi*—resides; *taha taha*—en esa medida; *rundhasi*—Tú bloqueas; *bali-am*—por la fuerza; *jaha jaha*—tanto como; *ca-idā*—perturbada; *palāemhi*—intento escapar.

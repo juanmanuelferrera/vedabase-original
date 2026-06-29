@@ -1,11 +1,11 @@
 ### SB 3.30.10
 
-> अर्थैरापादितैर्गुर्व्या हिंसयेतस्ततश्च तान् ।
+> अर्थैरापादितैर्गुर्व्या हिंसयेतस्ततश्च तान् ।\
 > पुष्णाति येषां पोषेण शेषभुग्यात्यधः स्वयम् ॥१०॥
 
-> arthair āpāditair gurvyā
-> hiṁsayetas-tataś ca tān
-> puṣṇāti yeṣāṁ poṣeṇa
+> arthair āpāditair gurvyā\
+> hiṁsayetas-tataś ca tān\
+> puṣṇāti yeṣāṁ poṣeṇa\
 > śeṣa-bhug yāty adhaḥ svayam
 
 *arthaiḥ*—by wealth; *āpāditaiḥ*—secured; *gurvyā*—great; *hiṁsayā*—by violence; *itaḥ-tataḥ*—here and there; *ca*—and; *tān*—them (family members); *puṣṇāti*—he maintains; *yeṣām*—of whom; *poṣeṇa*—because of the maintenance; *śeṣa*—remnants; *bhuk*—eating; *yāti*—he goes; *adhaḥ*—downwards; *svayam*—himself.

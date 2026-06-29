@@ -1,9 +1,9 @@
 ### CC Madhya 11.225
 
-> চারিদিকে চারি সম্প্রদায় উচ্চৈঃস্বরে গায় ৷
+> চারিদিকে চারি সম্প্রদায় উচ্চৈঃস্বরে গায় ৷\
 > মধ্যে তাণ্ডব-নৃত্য করে গৌররায় ৷৷ ২২৫ ৷৷ ॥২২৫॥
 
-> cāri-dike cāri sampradāya uccaiḥsvare gāya
+> cāri-dike cāri sampradāya uccaiḥsvare gāya\
 > madhye tāṇḍava-nṛtya kare gaurarāya
 
 *cāri-dike*—por los cuatro costados; *cāri sampradāya*—los cuatro grupos; *uccaiḥ-svare*—en voz muy alta; *gāya*—cantan; *madhye*—en el centro; *tāṇḍava-nṛtya*—danza con saltos; *kare*—ejecuta; *gaurarāya*—Śrī Caitanya Mahāprabhu.

@@ -1,11 +1,11 @@
 ### SB 8.12.18
 
-> ततो ददर्शोपवने वरस्त्रियं विचित्रपुष्पारुणपल्लवद्रुमे
+> ततो ददर्शोपवने वरस्त्रियं विचित्रपुष्पारुणपल्लवद्रुमे\
 > विक्रीडतीं कन्दुकलीलया लसद्दुकूलपर्यस्तनितम्बमेखलाम ॥१८॥
 
-> tato dadarśopavane vara-striyaṁ
-> vicitra-puṣpāruṇa-pallava-drume
-> vikrīḍatīṁ kanduka-līlayā lasad-
+> tato dadarśopavane vara-striyaṁ\
+> vicitra-puṣpāruṇa-pallava-drume\
+> vikrīḍatīṁ kanduka-līlayā lasad-\
 > dukūla-paryasta-nitamba-mekhalām
 
 *tataḥ*—a continuación; *dadarśa*—el Señor Śiva vio; *upavane*—en un hermoso bosque; *vara-striyam*—a una mujer muy hermosa; *vicitra*—de muchas clases; *puṣpa*—flores; *aruṇa*—rosadas; *pallava*—hojas; *drume*—en medio de los árboles; *vikrīḍatīm*—dedicada a jugar; *kanduka*—con una pelota; *līlayā*—con pasatiempos y juegos; *lasat*—brillante; *dukūla*—con un *sārī*; *paryasta*—cubierta; *nitamba*—sobre Sus caderas; *mekhalām*—vestida con un cinturón.

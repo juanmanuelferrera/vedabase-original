@@ -1,13 +1,13 @@
 ### SB 4.30.22
 
-> प्रचेतस ऊचुः
-> नमो नमः क्लेशविनाशनाय निरूपितोदारगुणाह्वयाय ।
+> प्रचेतस ऊचुः\
+> नमो नमः क्लेशविनाशनाय निरूपितोदारगुणाह्वयाय ।\
 > मनोवचोवेगपुरोजवाय सर्वाक्षमार्गैरगताध्वने नमः ॥२२॥
 
-> pracetasa ūcuḥ
-> namo namaḥ kleśa-vināśanāya
-> nirūpitodāra-guṇāhvayāya
-> mano-vaco-vega-puro-javāya
+> pracetasa ūcuḥ\
+> namo namaḥ kleśa-vināśanāya\
+> nirūpitodāra-guṇāhvayāya\
+> mano-vaco-vega-puro-javāya\
 > sarvākṣa-mārgair agatādhvane namaḥ
 
 *pracetasaḥ ūcuḥ*—los Pracetās dijeron; *namaḥ*—reverencias; *namaḥ*—reverencias; *kleśa*—sufrimiento material; *vināśanāya*—al que destruye; *nirūpita*—establecido; *udāra*—magnánimas; *guṇa*—cualidades; *āhvayāya*—cuyo nombre; *manaḥ*—de la mente; *vacaḥ*—del habla; *vega*—la velocidad; *puraḥ*—ante; *javāya*—cuya velocidad; *sarva-akṣa*—de todos los sentidos materiales; *mārgaiḥ*—por los senderos; *agata*—no perceptible; *adhvane*—cuyo rumbo; *namaḥ*—ofrecemos nuestras reverencias.

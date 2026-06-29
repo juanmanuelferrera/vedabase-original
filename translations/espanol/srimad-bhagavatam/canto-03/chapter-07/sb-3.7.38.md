@@ -1,11 +1,11 @@
 ### SB 3.7.38
 
-> पुरुषस्य च संस्थानं स्वरूपं वा परस्य च ।
+> पुरुषस्य च संस्थानं स्वरूपं वा परस्य च ।\
 > ज्ञानं च नैगमं यत्तद्गुरुशिष्यप्रयोजनम् ॥३८॥
 
-> puruṣasya ca saṁsthānaṁ
-> svarūpaṁ vā parasya ca
-> jñānaṁ ca naigamaṁ yat tad
+> puruṣasya ca saṁsthānaṁ\
+> svarūpaṁ vā parasya ca\
+> jñānaṁ ca naigamaṁ yat tad\
 > guru-śiṣya-prayojanam
 
 *puruṣasya*—de la entidad viviente; *ca*—también; *saṁsthānam*—existencia; *svarūpam*—identidad; *vā*—bien sea, o; *parasya*—del Supremo; *ca*—también; *jñānam*—conocimiento; *ca*—también; *naigamam*—en lo referente a los *Upaniṣads*; *yat*—eso; *tat*—lo mismo; *guru*—maestro espiritual; *śiṣya*—discípulo; *prayojanam*—necesidad.

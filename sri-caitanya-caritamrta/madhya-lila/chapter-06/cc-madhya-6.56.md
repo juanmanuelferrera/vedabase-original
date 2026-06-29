@@ -1,9 +1,9 @@
 ### CC Madhya 6.56
 
-> ‘সহজেই পূজ্য তুমি, আরে ত’ সন্ন্যাস ।
+> ‘সহজেই পূজ্য তুমি, আরে ত’ সন্ন্যাস ।\
 > অতএব হঙ তোমার আমি নিজ-দাস ।।’ ॥ ৫৬ ॥
 
-> 'sahajei pūjya tumi, āre ta' sannyāsa
+> 'sahajei pūjya tumi, āre ta' sannyāsa\
 > ataeva haṅ tomāra āmi nija-dāsa'
 
 *sahajei*—naturally; *pūjya*—respectable; *tumi*—You; *āre*—over and above this; *ta'*—certainly; *sannyāsa*—the renounced order of life; *ataeva*—therefore; *haṅ*—am; *tomāra*—Your; *āmi*—I; *nija-dāsa*—personal servant.

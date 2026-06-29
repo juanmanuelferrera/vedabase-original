@@ -1,11 +1,11 @@
 ### SB 4.25.33
 
-> न विदाम वयं सम्यक्कर्तारं पुरुषर्षभ ।
+> न विदाम वयं सम्यक्कर्तारं पुरुषर्षभ ।\
 > आत्मनश्च परस्यापि गोत्रं नाम च यत्कृतम् ॥३३॥
 
-> na vidāma vayaṁ samyak
-> kartāraṁ puruṣarṣabha
-> ātmanaś ca parasyāpi
+> na vidāma vayaṁ samyak\
+> kartāraṁ puruṣarṣabha\
+> ātmanaś ca parasyāpi\
 > gotraṁ nāma ca yat-kṛtam
 
 *na*—do not; *vidāma*—know; *vayam*—I; *samyak*—perfectly; *kartāram*—maker; *puruṣa-ṛṣabha*—O best of human beings; *ātmanaḥ*—of myself; *ca*—and; *parasya*—of others; *api*—also; *gotram*—family history; *nāma*—name; *ca*—and; *yat-kṛtam*—which has been made by whom.

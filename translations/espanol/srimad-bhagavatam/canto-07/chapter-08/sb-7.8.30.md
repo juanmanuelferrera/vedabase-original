@@ -1,11 +1,11 @@
 ### SB 7.8.30
 
-> संरम्भदुष्प्रेक्ष्यकराललोचनो व्यात्ताननान्तं विलिहन्स्वजिह्वया
+> संरम्भदुष्प्रेक्ष्यकराललोचनो व्यात्ताननान्तं विलिहन्स्वजिह्वया\
 > असृग्लवाक्तारुणकेशराननो यथान्त्रमाली द्विपहत्यया हरिः ॥३०॥
 
-> saṁrambha-duṣprekṣya-karāla-locano
-> vyāttānanāntaṁ vilihan sva-jihvayā
-> asṛg-lavāktāruṇa-keśarānano
+> saṁrambha-duṣprekṣya-karāla-locano\
+> vyāttānanāntaṁ vilihan sva-jihvayā\
+> asṛg-lavāktāruṇa-keśarānano\
 > yathāntra-mālī dvipa-hatyayā hariḥ
 
 *saṁrambha*—debido a la gran ira; *duṣprekṣya*—muy difícil de mirar directamente; *karāla*—muy temibles; *locanaḥ*—ojos; *vyātta*—agrandada; *ānana-antam*—las comisuras de la boca; *vilihan*—lamiendo; *sva-jihvayā*—con Su lengua; *asṛk-lava*—con manchas de sangre; *ākta*—manchados; *aruṇa*—rojiza; *keśara*—melena; *ānanaḥ*—y rostro; *yathā*—tal como; *antra-mālī*—adornado con un collar de intestinos; *dvipa-hatyayā*—por la matanza de un elefante; *hariḥ*—el león.

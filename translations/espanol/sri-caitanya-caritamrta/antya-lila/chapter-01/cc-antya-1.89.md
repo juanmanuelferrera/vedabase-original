@@ -1,9 +1,9 @@
 ### CC Antya 1.89
 
-> তবে শক্তি সঞ্চারি’ আমি কৈলুঁ উপদেশ ।
+> তবে শক্তি সঞ্চারি’ আমি কৈলুঁ উপদেশ ।\
 > তুমিহ কহিও ইহাঁয় রসের বিশেষ ।।” ॥ ৮৯ ॥
 
-> tabe śakti sañcāri' āmi kailuṅ upadeśa
+> tabe śakti sañcāri' āmi kailuṅ upadeśa\
 > tumiha kahio ihāṅya rasera viśeṣa"
 
 *tabe*—acto seguido; *śakti sañcāri'*—confiriéndole Mi potencia trascendental; *āmi*—Yo; *kailuṅ upadeśa*—le di instrucción; *tumiha*—tú también; *kahio*—infórmale; *ihāṅya*—a él; *rasera viśeṣa*—información específica acerca de las melosidades trascendentales.

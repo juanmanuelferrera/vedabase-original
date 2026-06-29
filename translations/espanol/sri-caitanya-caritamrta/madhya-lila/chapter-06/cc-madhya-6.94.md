@@ -1,9 +1,9 @@
 ### CC Madhya 6.94
 
-> মহা-ভাগবত হয় চৈতন্য-গোসাঞি ।
+> মহা-ভাগবত হয় চৈতন্য-গোসাঞি ।\
 > এই কলিকালে বিষ্ণুর অবতার নাই ॥৯৪॥
 
-> mahā-bhāgavata haya caitanya-gosāñi
+> mahā-bhāgavata haya caitanya-gosāñi\
 > ei kali-kāle viṣṇura avatāra nāi
 
 *mahā-bhāgavata*—un gran devoto; *haya*—es; *caitanya-gosāñi*—el Señor Śrī Caitanya Mahāprabhu; *ei*—esta; *kali-kāle*—en la era de Kali; *viṣṇura*—del Señor Viṣṇu; *avatāra*—encarnación; *nāi*—no hay.

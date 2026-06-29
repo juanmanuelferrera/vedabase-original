@@ -1,13 +1,13 @@
 ### SB 2.3.12
 
-> ज्ञानं यदाप्रतिनिवृत्तगुणोर्मिचक्रम्
-> आत्मप्रसाद उत यत्र गुणेष्वसङ्गः ।
-> कैवल्यसम्मतपथस्त्वथ भक्तियोगः
+> ज्ञानं यदाप्रतिनिवृत्तगुणोर्मिचक्रम्\
+> आत्मप्रसाद उत यत्र गुणेष्वसङ्गः ।\
+> कैवल्यसम्मतपथस्त्वथ भक्तियोगः\
 > को निर्वृतो हरिकथासु रतिं न कुर्यात् ॥१२॥
 
-> jñānaṁ yad āpratinivṛtta-guṇormi-cakram
-> ātma-prasāda uta yatra guṇeṣv asaṅgaḥ
-> kaivalya-sammata-pathas tv atha bhakti-yogaḥ
+> jñānaṁ yad āpratinivṛtta-guṇormi-cakram\
+> ātma-prasāda uta yatra guṇeṣv asaṅgaḥ\
+> kaivalya-sammata-pathas tv atha bhakti-yogaḥ\
 > ko nirvṛto hari-kathāsu ratiṁ na kuryāt
 
 *jñānam*—knowledge; *yat*—that which; *ā*—up to the limit of; *pratinivṛtta*—completely withdrawn; *guṇa-ūrmi*—the waves of the material modes; *cakram*—whirlpool; *ātma-prasādaḥ*—self-satisfaction; *uta*—moreover; *yatra*—where there is; *guṇeṣu*—in the modes of nature; *asaṅgaḥ*—no attachment; *kaivalya*—transcendental; *sammata*—approved; *pathaḥ*—path; *tu*—but; *atha*—therefore; *bhakti-yogaḥ*—devotional service; *kaḥ*—who; *nirvṛtaḥ*—absorbed in; *hari-kathāsu*—in the transcendental topics of the Lord; *ratim*—attraction; *na*—shall not; *kuryāt*—do.

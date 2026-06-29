@@ -1,18 +1,18 @@
 ### SB 4.19.24-25
 
-> एवमिन्द्रे हरत्यश्वं वैन्ययज्ञजिघांसया ।
-> तद्गृहीतविसृष्टेषु पाखण्डेषु मतिर्नृणाम् ॥२४॥
-> धर्म इत्युपधर्मेषु नग्नरक्तपटादिषु ।
+> एवमिन्द्रे हरत्यश्वं वैन्ययज्ञजिघांसया ।\
+> तद्गृहीतविसृष्टेषु पाखण्डेषु मतिर्नृणाम् ॥२४॥\
+> धर्म इत्युपधर्मेषु नग्नरक्तपटादिषु ।\
 > प्रायेण सज्जते भ्रान्त्या पेशलेषु च वाग्मिषु ॥२५॥
 
-> evam indre haraty aśvaṁ
-> vainya-yajña-jighāṁsayā
-> tad-gṛhīta-visṛṣṭeṣu
+> evam indre haraty aśvaṁ\
+> vainya-yajña-jighāṁsayā\
+> tad-gṛhīta-visṛṣṭeṣu\
 > pākhaṇḍeṣu matir nṛṇām
 
-> dharma ity upadharmeṣu
-> nagna-rakta-paṭādiṣu
-> prāyeṇa sajjate bhrāntyā
+> dharma ity upadharmeṣu\
+> nagna-rakta-paṭādiṣu\
+> prāyeṇa sajjate bhrāntyā\
 > peśaleṣu ca vāgmiṣu
 
 *evam*—thus; *indre*—when the King of heaven; *harati*—stole; *aśvam*—the horse; *vainya*—of the son of King Vena; *yajña*—the sacrifice; *jighāṁsayā*—with a desire to stop; *tat*—by him; *gṛhīta*—accepted; *visṛṣṭeṣu*—abandoned; *pākhaṇḍeṣu*—towards the sinful dress; *matiḥ*—attraction; *nṛṇām*—of the people in general; *dharmaḥ*—system of religion; *iti*—thus; *upadharmeṣu*—towards false religious systems; *nagna*—naked; *rakta-paṭa*—red-robed; *ādiṣu*—etc.; *prāyeṇa*—generally; *sajjate*—is attracted; *bhrāntyā*—foolishly; *peśaleṣu*—expert; *ca*—and; *vāgmiṣu*—eloquent.

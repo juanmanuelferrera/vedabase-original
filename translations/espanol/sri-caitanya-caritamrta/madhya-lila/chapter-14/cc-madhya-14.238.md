@@ -1,9 +1,9 @@
 ### CC Madhya 14.238
 
-> ভঙ্গি করি’ স্বরূপ সবার শ্রম জানাইল ।
+> ভঙ্গি করি’ স্বরূপ সবার শ্রম জানাইল ।\
 > ভক্তগণের শ্রম দেখি’ প্রভুর বাহ্য হৈল ॥২৩৮॥
 
-> bhaṅgi kari' svarūpa sabāra śrama jānāila
+> bhaṅgi kari' svarūpa sabāra śrama jānāila\
 > bhakta-gaṇera śrama dekhi' prabhura bāhya haila
 
 *bhaṅgi kari'*—haciendo una indicación; *svarūpa*—Svarūpa Dāmodara; *sabāra*—de todos; *śrama*—la fatiga; *jānāila*—dio a conocer; *bhakta-gaṇera*—de los devotos; *śrama*—la fatiga; *dekhi'*—al ver; *prabhura*—Śrī Caitanya Mahāprabhu; *bāhya haila*—volvió a la conciencia externa.

@@ -1,11 +1,11 @@
 ### CC Madhya 17.80
 
-> মূকং করোতি বাচালং পঙ্গুং লঙ্ঘয়তে গিরিম্ ।
+> মূকং করোতি বাচালং পঙ্গুং লঙ্ঘয়তে গিরিম্ ।\
 > যৎকৃপা তমহং বন্দে পরমানন্দ-মাধবম্ ॥৮০॥
 
-> mūkaṁ karoti vācālaṁ
-> paṅguṁ laṅghayate girim
-> yat-kṛpā tam ahaṁ vande
+> mūkaṁ karoti vācālaṁ\
+> paṅguṁ laṅghayate girim\
+> yat-kṛpā tam ahaṁ vande\
 > paramānanda-mādhavam
 
 *mūkam*—a person who cannot speak; *karoti*—makes; *vācālam*—an eloquent speaker; *paṅgum*—a person who cannot even walk; *laṅghayate*—causes to cross over; *girim*—the mountain; *yat-kṛpā*—whose mercy; *tam*—unto Him; *aham*—I; *vande*—offer obeisances; *parama-ānanda*—the transcendentally blissful; *mādhavam*—Supreme Personality of Godhead.

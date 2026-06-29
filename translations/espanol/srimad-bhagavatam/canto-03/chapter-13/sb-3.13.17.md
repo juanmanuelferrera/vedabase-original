@@ -1,14 +1,14 @@
 ### SB 3.13.17
 
-> सृजतो मे क्षितिर्वार्भिः प्लाव्यमाना रसां गता ।
-> अथात्र किमनुष्ठेयमस्माभिः सर्गयोजितैः ।
+> सृजतो मे क्षितिर्वार्भिः प्लाव्यमाना रसां गता ।\
+> अथात्र किमनुष्ठेयमस्माभिः सर्गयोजितैः ।\
 > यस्याहं हृदयादासं स ईशो विदधातु मे ॥१७॥
 
-> sṛjato me kṣitir vārbhiḥ
-> plāvyamānā rasāṁ gatā
-> athātra kim anuṣṭheyam
-> asmābhiḥ sarga-yojitaiḥ
-> yasyāhaṁ hṛdayād āsaṁ
+> sṛjato me kṣitir vārbhiḥ\
+> plāvyamānā rasāṁ gatā\
+> athātra kim anuṣṭheyam\
+> asmābhiḥ sarga-yojitaiḥ\
+> yasyāhaṁ hṛdayād āsaṁ\
 > sa īśo vidadhātu me
 
 *sṛjataḥ*—mientras estaba ocupado en la creación; *me*—de mí; *kṣitiḥ*—la Tierra; *vārbhiḥ*—por el agua; *plāvyamānā*—siendo inundada; *rasām*—profundidad de agua; *gatā*—hundida; *atha*—por lo tanto; *atra*—en este asunto; *kim*—qué; *anuṣṭheyam*—es correcto intentar; *asmābhiḥ*—por nosotros; *sarga*—creación; *yojitaiḥ*—ocupados en; *yasya*—aquel desde cuyos; *aham*—yo; *hṛdayāt*—desde el corazón; *āsam*—nacido; *saḥ*—Él; *īśaḥ*—el Señor; *vidadhātu*—dirija; *me*—a mí.

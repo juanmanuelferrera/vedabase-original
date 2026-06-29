@@ -1,13 +1,13 @@
 ### SB 9.20.13
 
-> श्रीशकुन्तलोवाच
-> विश्वामित्रात्मजैवाहं त्यक्ता मेनकया वने
+> श्रीशकुन्तलोवाच\
+> विश्वामित्रात्मजैवाहं त्यक्ता मेनकया वने\
 > वेदैतद्भगवान्कण्वो वीर किं करवाम ते ॥१३॥
 
-> śrī-śakuntalovāca
-> viśvāmitrātmajaivāhaṁ
-> tyaktā menakayā vane
-> vedaitad bhagavān kaṇvo
+> śrī-śakuntalovāca\
+> viśvāmitrātmajaivāhaṁ\
+> tyaktā menakayā vane\
+> vedaitad bhagavān kaṇvo\
 > vīra kiṁ karavāma te
 
 *śrī-śakuntalā uvāca*—Śrī Śakuntalā replied; *viśvāmitra-ātmajā*—the daughter of Viśvāmitra; *eva*—indeed; *aham*—I (am); *tyaktā*—left; *menakayā*—by Menakā; *vane*—in the forest; *veda*—knows; *etat*—all these incidents; *bhagavān*—the most powerful saintly person; *kaṇvaḥ*—Kaṇva Muni; *vīra*—O hero; *kim*—what; *karavāma*—can I do; *te*—for you.

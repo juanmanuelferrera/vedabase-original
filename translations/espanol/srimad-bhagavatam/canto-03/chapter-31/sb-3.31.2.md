@@ -1,11 +1,11 @@
 ### SB 3.31.2
 
-> कललं त्वेकरात्रेण पञ्चरात्रेण बुद्बुदम् ।
+> कललं त्वेकरात्रेण पञ्चरात्रेण बुद्बुदम् ।\
 > दशाहेन तु कर्कन्धूः पेश्यण्डं वा ततः परम् ॥२॥
 
-> kalalaṁ tv eka-rātreṇa
-> pañca-rātreṇa budbudam
-> daśāhena tu karkandhūḥ
+> kalalaṁ tv eka-rātreṇa\
+> pañca-rātreṇa budbudam\
+> daśāhena tu karkandhūḥ\
 > peśy aṇḍaṁ vā tataḥ param
 
 *kalalam*—la mezcla del esperma y el óvulo; *tu*—entonces; *eka-rātreṇa*—en la primera noche; *pañca-rātreṇa*—a la quinta noche; *budbudam*—una burbuja; *daśa-ahena*—al cabo de diez días; *tu*—entonces; *karkandhūḥ*—como una ciruela; *peśī*—una masa de carne; *aṇḍam*—un huevo; *vā*—o; *tataḥ*—a partir de ahí; *param*—después.

@@ -1,11 +1,11 @@
 ### SB 1.7.32
 
-> प्रजोपद्रवमालक्ष्य लोकव्यतिकरं च तम् ।
+> प्रजोपद्रवमालक्ष्य लोकव्यतिकरं च तम् ।\
 > मतं च वासुदेवस्य सञ्जहारार्जुनो द्वयम् ॥३२॥
 
-> prajopadravam ālakṣya
-> loka-vyatikaraṁ ca tam
-> mataṁ ca vāsudevasya
+> prajopadravam ālakṣya\
+> loka-vyatikaraṁ ca tam\
+> mataṁ ca vāsudevasya\
 > sañjahārārjuno dvayam
 
 *prajā*—the people in general; *upadravam*—disturbance; *ālakṣya*—having seen it; *loka*—the planets; *vyatikaram*—destruction; *ca*—also; *tam*—that; *matam ca*—and the opinion; *vāsudevasya*—of Vāsudeva, Śrī Kṛṣṇa; *sañjahāra*—retracted; *arjunaḥ*—Arjuna; *dvayam*—both the weapons.

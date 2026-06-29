@@ -1,13 +1,13 @@
 ### SB 5.2.10
 
-> वाचं परं चरणपञ्जरतित्तिरीणां
-> ब्रह्मन्नरूपमुखरां शृणवाम तुभ्यम
-> लब्धा कदम्बरुचिरङ्कविटङ्कबिम्बे
+> वाचं परं चरणपञ्जरतित्तिरीणां\
+> ब्रह्मन्नरूपमुखरां शृणवाम तुभ्यम\
+> लब्धा कदम्बरुचिरङ्कविटङ्कबिम्बे\
 > यस्यामलातपरिधिः क्व च वल्कलं ते ॥१०॥
 
-> vācaṁ paraṁ caraṇa-pañjara-tittirīṇāṁ
-> brahmann arūpa-mukharāṁ śṛṇavāma tubhyam
-> labdhā kadamba-rucir aṅka-viṭaṅka-bimbe
+> vācaṁ paraṁ caraṇa-pañjara-tittirīṇāṁ\
+> brahmann arūpa-mukharāṁ śṛṇavāma tubhyam\
+> labdhā kadamba-rucir aṅka-viṭaṅka-bimbe\
 > yasyām alāta-paridhiḥ kva ca valkalaṁ te
 
 *vācam*—the resounding vibration; *param*—only; *caraṇa-pañjara*—of the ankle bells; *tittirīṇām*—of the *tittiri* birds; *brahman*—O *brāhmaṇa*; *arūpa*—without form; *mukharām*—able to be very distinctly heard; *śṛṇavāma*—I hear; *tubhyam*—your; *labdhā*—gotten; *kadamba*—like the *kadamba* flower; *ruciḥ*—lovely color; *aṅka-viṭaṅka-bimbe*—on the beautiful circular hips; *yasyām*—on which; *alāta-paridhiḥ*—encirclement of burning cinders; *kva*—where; *ca*—also; *valkalam*—covering cloth; *te*—your.

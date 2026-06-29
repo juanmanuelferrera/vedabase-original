@@ -1,9 +1,9 @@
 ### CC Adi 2.52
 
-> এ সভার দর্শনেতে আছে মায়াগন্ধ ।
+> এ সভার দর্শনেতে আছে মায়াগন্ধ ।\
 > তুরীয় কৃষ্ণের নাহি মায়ার সম্বন্ধ ॥৫২॥
 
-> e sabhāra darśanete āche māyā-gandha
+> e sabhāra darśanete āche māyā-gandha\
 > turīya kṛṣṇera nāhi māyāra sambandha
 
 *e*—this; *sabhāra*—of the assembly; *darśanete*—in seeing; *āche*—there is; *māyā-gandha*—connection with *māyā*; *turīya*—the fourth; *kṛṣṇera*—of Lord Kṛṣṇa; *nāhi*—there is not; *māyāra*—of the material energy; *sambandha*—connection.

@@ -1,11 +1,11 @@
 ### SB 4.24.15
 
-> यदुक्तं पथि दृष्टेन गिरिशेन प्रसीदता ।
+> यदुक्तं पथि दृष्टेन गिरिशेन प्रसीदता ।\
 > तद्ध्यायन्तो जपन्तश्च पूजयन्तश्च संयताः ॥१५॥
 
-> yad uktaṁ pathi dṛṣṭena
-> giriśena prasīdatā
-> tad dhyāyanto japantaś ca
+> yad uktaṁ pathi dṛṣṭena\
+> giriśena prasīdatā\
+> tad dhyāyanto japantaś ca\
 > pūjayantaś ca saṁyatāḥ
 
 *yat*—that; *uktam*—said; *pathi*—on the way; *dṛṣṭena*—while meeting; *giriśena*—by Lord Śiva; *prasīdatā*—being very much satisfied; *tat*—that; *dhyāyantaḥ*—meditating; *japantaḥ ca*—chanting also; *pūjayantaḥ ca*—worshiping also; *saṁyatāḥ*—with great control.

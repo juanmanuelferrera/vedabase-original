@@ -1,11 +1,11 @@
 ### SB 4.31.21
 
-> न भजति कुमनीषिणां स इज्यां हरिरधनात्मधनप्रियो रसज्ञः ।
+> न भजति कुमनीषिणां स इज्यां हरिरधनात्मधनप्रियो रसज्ञः ।\
 > श्रुतधनकुलकर्मणां मदैर्ये विदधति पापमकिञ्चनेषु सत्सु ॥२१॥
 
-> na bhajati kumanīṣiṇāṁ sa ijyāṁ
-> harir adhanātma-dhana-priyo rasa-jñaḥ
-> śruta-dhana-kula-karmaṇāṁ madair ye
+> na bhajati kumanīṣiṇāṁ sa ijyāṁ\
+> harir adhanātma-dhana-priyo rasa-jñaḥ\
+> śruta-dhana-kula-karmaṇāṁ madair ye\
 > vidadhati pāpam akiñcaneṣu satsu
 
 *na*—nunca; *bhajati*—acepta; *ku-manīṣiṇām*—de personas de corazón sucio; *saḥ*—Él; *ijyām*—ofrenda; *hariḥ*—el Señor Supremo; *adhana*—a los que no tienen posesiones materiales; *ātma-dhana*—que simplemente dependen del Señor; *priyaḥ*—que es querido; *rasa-jñaḥ*—que acepta la esencia de la vida; *śruta*—educación; *dhana*—riqueza; *kula*—aristocracia; *karmaṇām*—y de actividades fruitivas; *madaiḥ*—con orgullo; *ye*—todos aquellos que; *vidadhati*—ejecutan; *pāpam*—desgracia; *akiñcaneṣu*—sin posesiones materiales; *satsu*—a los devotos.

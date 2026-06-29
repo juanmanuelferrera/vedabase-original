@@ -1,14 +1,14 @@
 ### CC Madhya 16.263-264
 
-> তাঁর দৈন্য দেখি’ শুনি’ পাষাণ বিদরে ।
-> আমি তুষ্ট হঞা তবে কহিলুঁ দোঁহারে ॥২৬৩॥
-> “উত্তম হঞা হীন করি’ মানহ আপনারে ।
+> তাঁর দৈন্য দেখি’ শুনি’ পাষাণ বিদরে ।\
+> আমি তুষ্ট হঞা তবে কহিলুঁ দোঁহারে ॥২৬৩॥\
+> “উত্তম হঞা হীন করি’ মানহ আপনারে ।\
 > অচিরে করিবে কৃষ্ণ তোমার উদ্ধারে ।।” ২৬৪ ॥২৬৪॥
 
-> tāṅra dainya dekhi' śuni' pāṣāṇa bidare
+> tāṅra dainya dekhi' śuni' pāṣāṇa bidare\
 > āmi tuṣṭa hañā tabe kahiluṅ doṅhāre
 
-> "uttama hañā hīna kari' mānaha āpanāre
+> "uttama hañā hīna kari' mānaha āpanāre\
 > acire karibe kṛṣṇa tomāra uddhāre"
 
 *tāṅra dainya dekhi'*—by seeing their humility; *śuni'*—or even hearing about it; *pāṣāṇa*—stone; *bidare*—becomes melted; *āmi*—I; *tuṣṭa hañā*—being very pleased; *tabe*—then; *kahiluṅ doṅhāre*—said to both of them; *uttama hañā*—being actually superior in every respect; *hīna*—inferior; *kari'*—proposing as; *mānaha*—you accept; *āpanāre*—yourselves; *acire*—very soon; *karibe*—will do; *kṛṣṇa*—Lord Kṛṣṇa; *tomāra*—of you; *uddhāre*—liberation.

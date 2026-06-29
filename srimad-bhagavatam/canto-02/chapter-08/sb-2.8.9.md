@@ -1,11 +1,11 @@
 ### SB 2.8.9
 
-> अजः सृजति भूतानि भूतात्मा यदनुग्रहात् ।
+> अजः सृजति भूतानि भूतात्मा यदनुग्रहात् ।\
 > ददृशे येन तद्रूपं नाभिपद्मसमुद्भवः ॥९॥
 
-> ajaḥ sṛjati bhūtāni
-> bhūtātmā yad-anugrahāt
-> dadṛśe yena tad-rūpaṁ
+> ajaḥ sṛjati bhūtāni\
+> bhūtātmā yad-anugrahāt\
+> dadṛśe yena tad-rūpaṁ\
 > nābhi-padma-samudbhavaḥ
 
 *ajaḥ*—one who is born without a material source; *sṛjati*—creates; *bhūtāni*—all those materially born; *bhūta-ātmā*—having a body of matter; *yat*—whose; *anugrahāt*—by the mercy of; *dadṛśe*—could see; *yena*—by whom; *tat-rūpam*—His form of body; *nābhi*—navel; *padma*—lotus flower; *samudbhavaḥ*—being born of.

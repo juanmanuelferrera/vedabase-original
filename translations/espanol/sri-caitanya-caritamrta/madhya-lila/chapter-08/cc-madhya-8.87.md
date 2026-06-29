@@ -1,9 +1,9 @@
 ### CC Madhya 8.87
 
-> আকাশাদির গুণ যেন পর-পর ভূতে ৷
+> আকাশাদির গুণ যেন পর-পর ভূতে ৷\
 > দুই-তিন ক্রমে বাড়ে পঞ্চ পৃথিবীতে ৷৷ ৮৭ ৷৷ ॥৮৭॥
 
-> ākāśādira guṇa yena para-para bhūte
+> ākāśādira guṇa yena para-para bhūte\
 > dui-tina krame bāḍe pañca pṛthivīte
 
 *ākāśa-ādira*—del cielo, el aire, etcétera; *guṇa*—las cualidades; *yena*—así como; *para-para*—una tras otra; *bhūte*—en los elementos materiales; *dui-tina*—dos y luego tres; *krame*—por gradaciones; *bāḍe*—aumentan; *pañca*—las cinco; *pṛthivīte*—en la tierra.

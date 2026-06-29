@@ -1,9 +1,9 @@
 ### CC Antya 5.73
 
-> মোর মুখে কথা কহেন আপনে গৌরচন্দ্র  ।
+> মোর মুখে কথা কহেন আপনে গৌরচন্দ্র  ।\
 > যৈছে কহায়, তৈছে কহি, — যেন বীণাযন্ত্র ॥৭৩॥
 
-> mora mukhe kathā kahena āpane gauracandra
+> mora mukhe kathā kahena āpane gauracandra\
 > yaiche kahāya, taiche kahi,--yena vīṇā-yantra
 
 *mora mukhe*—en mi boca; *kathā*—temas; *kahena*—habla; *āpane*—personalmente; *gaura-candra*—el Señor Śrī Caitanya Mahāprabhu; *yaiche kahāya*—como Él hace que hable; *taiche kahi*—así hablo; *yena*—como; *vīṇā-yantra*—el instrumento de cuerdas llamado vīṇā.

@@ -1,9 +1,9 @@
 ### CC Adi 9.45
 
-> মালী হঞা বৃক্ষ হইলাঙ এই ত’ ইচ্ছাতে ।
+> মালী হঞা বৃক্ষ হইলাঙ এই ত’ ইচ্ছাতে ।\
 > সর্বপ্রাণীর উপকার হয় বৃক্ষ হৈতে ॥৪৫॥
 
-> mālī hañā vṛkṣa ha-ilāṅ ei ta' icchāte
+> mālī hañā vṛkṣa ha-ilāṅ ei ta' icchāte\
 > sarva-prāṇīra upakāra haya vṛkṣa haite
 
 *mālī hañā*—aunque soy el jardinero; *vṛkṣa ha-ilāṅ*—también soy el árbol; *ei ta'*—esto es; *icchāte*—por Mi voluntad; *sarva-prāṇīra*—de todas las entidades vivientes; *upakāra*—bienestar; *haya*—hay; *vṛkṣa*—el árbol; *haite*—de.

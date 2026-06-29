@@ -1,11 +1,11 @@
 ### SB 1.18.21
 
-> अथापि यत्पादनखावसृष्टं जगद्विरिञ्चोपहृतार्हणाम्भः ।
+> अथापि यत्पादनखावसृष्टं जगद्विरिञ्चोपहृतार्हणाम्भः ।\
 > सेशं पुनात्यन्यतमो मुकुन्दात्को नाम लोके भगवत्पदार्थः ॥२१॥
 
-> athāpi yat-pāda-nakhāvasṛṣṭaṁ
-> jagad viriñcopahṛtārhaṇāmbhaḥ
-> seśaṁ punāty anyatamo mukundāt
+> athāpi yat-pāda-nakhāvasṛṣṭaṁ\
+> jagad viriñcopahṛtārhaṇāmbhaḥ\
+> seśaṁ punāty anyatamo mukundāt\
 > ko nāma loke bhagavat-padārthaḥ
 
 *atha*—por lo tanto; *api*—ciertamente; *yat*—cuyas; *pāda-nakha*—uñas de los pies; *avasṛṣṭam*—que emana; *jagat*—el universo entero; *viriñca*—Brahmājī; *upahṛta*—recogió; *arhaṇa*—adoración; *ambhaḥ*—agua; *sa*—junto con; *īśam*—el Señor Śiva; *punāti*—purifica; *anyatamaḥ*—quien más; *mukundāt*—además de la Personalidad de Dios Śrī Kṛṣṇa; *kaḥ*—quién; *nāma*—nombre; *loke*—en el mundo; *bhagavat*—el Señor Supremo; *pada*—posición; *arthaḥ*—digno.

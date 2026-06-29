@@ -1,11 +1,11 @@
 ### SB 4.2.35
 
-> आप्लुत्यावभृथं यत्र गङ्गा यमुनयान्विता ।
+> आप्लुत्यावभृथं यत्र गङ्गा यमुनयान्विता ।\
 > विरजेनात्मना सर्वे स्वं स्वं धाम ययुस्ततः ॥३५॥
 
-> āplutyāvabhṛthaṁ yatra
-> gaṅgā yamunayānvitā
-> virajenātmanā sarve
+> āplutyāvabhṛthaṁ yatra\
+> gaṅgā yamunayānvitā\
+> virajenātmanā sarve\
 > svaṁ svaṁ dhāma yayus tataḥ
 
 *āplutya*—taking a bath; *avabhṛtham*—the bath which is taken after performing sacrifices; *yatra*—where; *gaṅgā*—the River Ganges; *yamunayā*—by the River Yamunā; *anvitā*—mixed; *virajena*—without infection; *ātmanā*—by the mind; *sarve*—all; *svam svam*—their respective; *dhāma*—abodes; *yayuḥ*—went; *tataḥ*—from there.

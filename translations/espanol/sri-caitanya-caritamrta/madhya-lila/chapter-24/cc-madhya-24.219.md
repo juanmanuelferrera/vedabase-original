@@ -1,13 +1,13 @@
 ### CC Madhya 24.219
 
-> স্থানাভিলাষী তপসি স্থিতোঽহং
-> ত্বাং প্রাপ্তবান্ দেবমুনীন্দ্রগুহ্যম্ ।
-> কাচং বিচিন্বন্নপি দিব্যরত্নং
+> স্থানাভিলাষী তপসি স্থিতোঽহং\
+> ত্বাং প্রাপ্তবান্ দেবমুনীন্দ্রগুহ্যম্ ।\
+> কাচং বিচিন্বন্নপি দিব্যরত্নং\
 > স্বামিন্ কৃতার্থোঽস্মি বরং ন যাচে ॥২১৯॥
 
-> sthānābhilāṣī tapasi sthito 'haṁ
-> tvāṁ prāptavān deva-munīndra-guhyam
-> kācaṁ vicinvann api divya-ratnaṁ
+> sthānābhilāṣī tapasi sthito 'haṁ\
+> tvāṁ prāptavān deva-munīndra-guhyam\
+> kācaṁ vicinvann api divya-ratnaṁ\
 > svāmin kṛtārtho 'smi varaṁ na yāce
 
 *sthāna-abhilāṣī*—deseando una posición muy elevada en el mundo material; *tapasi*—en severas austeridades y penitencias; *sthitaḥ*—situado; *aham*—yo; *tvām*—a Ti; *prāptavān*—he obtenido; *deva-muni-indra-guhyam*—difícil de alcanzar incluso para los grandes semidioses, santos y reyes; *kācam*—un trozo de vidrio; *vicinvan*—buscando; *api*—aunque; *divya-ratnam*—una joya trascendental; *svāmin*—¡oh, mi Señor!; *kṛta-arthaḥ asmi*—estoy plenamente satisfecho; *varam*—cualquier bendición; *na yāce*—no pido.

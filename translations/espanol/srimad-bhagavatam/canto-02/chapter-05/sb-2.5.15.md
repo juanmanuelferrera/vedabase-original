@@ -1,11 +1,11 @@
 ### SB 2.5.15
 
-> नारायणपरा वेदा देवा नारायणाङ्गजाः ।
+> नारायणपरा वेदा देवा नारायणाङ्गजाः ।\
 > नारायणपरा लोका नारायणपरा मखाः ॥१५॥
 
-> nārāyaṇa-parā vedā
-> devā nārāyaṇāṅgajāḥ
-> nārāyaṇa-parā lokā
+> nārāyaṇa-parā vedā\
+> devā nārāyaṇāṅgajāḥ\
+> nārāyaṇa-parā lokā\
 > nārāyaṇa-parā makhāḥ
 
 *nārāyaṇa*—el Señor Supremo; *parāḥ*—es la causa y está destinado a; *vedāḥ*—conocimiento; *devāḥ*—los semidioses; *nārāyaṇa*—el Señor Supremo; *aṅga-jāḥ*—manos asistentes; *narāyaṇa*—la Personalidad de Dios; *parāḥ*—por el bien de; *lokāḥ*—los planetas; *nārāyaṇa*—el Señor Supremo; *parāḥ*—tan solo para complacerlo a Él; *makhāḥ*—todo sacrificio.

@@ -1,11 +1,11 @@
 ### CC Adi 4.1
 
-> শ্রীচৈতন্যপ্রসাদেন তদ্রূপস্য বিনির্ণয়ম্ ।
+> শ্রীচৈতন্যপ্রসাদেন তদ্রূপস্য বিনির্ণয়ম্ ।\
 > বালোঽপি কুরুতে শাস্ত্রং দৃষ্ট্বা ব্রজবিলাসিনঃ ॥১॥
 
-> śrī-caitanya-prasādena
-> tad-rūpasya vinirṇayam
-> bālo 'pi kurute śāstraṁ
+> śrī-caitanya-prasādena\
+> tad-rūpasya vinirṇayam\
+> bālo 'pi kurute śāstraṁ\
 > dṛṣṭvā vraja-vilāsinaḥ
 
 *śrī-caitanya-prasādena*—by the mercy of Lord Caitanya Mahāprabhu; *tat*—of Him; *rūpasya*—of the form; *vinirṇayam*—complete determination; *bālaḥ*—a child; *api*—even; *kurute*—makes; *śāstram*—the revealed scriptures; *dṛṣṭvā*—having seen; *vraja-vilāsinaḥ*—who enjoys the pastimes of Vraja.

@@ -1,9 +1,9 @@
 ### CC Antya 12.65
 
-> এইমত নানা-লীলায় চাতুর্মাস্য গেল ।
+> এইমত নানা-লীলায় চাতুর্মাস্য গেল ।\
 > গৌড়দেশে যাইতে তবে ভক্তে আজ্ঞা দিল ॥৬৫॥
 
-> ei-mata nānā-līlāya cāturmāsya gela
+> ei-mata nānā-līlāya cāturmāsya gela\
 > gauḍa-deśe yāite tabe bhakte ājñā dila
 
 *ei-mata*—in this way; *nānā-līlāya*—in various pastimes; *cāturmāsya gela*—the four months of the rainy season passed; *gauḍa-deśe yāite*—to return to Bengal; *tabe*—at that time; *bhakte*—all the devotees; *ājñā dila*—Śrī Caitanya Mahāprabhu ordered.

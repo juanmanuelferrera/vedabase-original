@@ -1,9 +1,9 @@
 ### CC Adi 13.43
 
-> কৃষ্ণের বিয়োগে যত প্রেম-চেষ্টিত ।
+> কৃষ্ণের বিয়োগে যত প্রেম-চেষ্টিত ।\
 > আস্বাদিয়া পূর্ণ কৈল আপন বাঞ্ছিত ॥৪৩॥
 
-> kṛṣṇera viyoge yata prema-ceṣṭita
+> kṛṣṇera viyoge yata prema-ceṣṭita\
 > āsvādiyā pūrṇa kaila āpana vāñchita
 
 *kṛṣṇera*—del Señor Kṛṣṇa; *viyoge*—en separación; *yata*—tantos; *prema*—amorosos; *ceṣṭita*—actividades; *āsvādiyā*—saboreándolos; *pūrṇa*—cumplidos; *kaila*—hizo; *āpana*—propios; *vāñchita*—deseos.

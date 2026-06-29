@@ -1,13 +1,13 @@
 ### SB 6.18.37
 
-> दितिरुवाच
-> वरदो यदि मे ब्रह्मन्पुत्रमिन्द्रहणं वृणे
+> दितिरुवाच\
+> वरदो यदि मे ब्रह्मन्पुत्रमिन्द्रहणं वृणे\
 > अमृत्युं मृतपुत्राहं येन मे घातितौ सुतौ ॥३७॥
 
-> ditir uvāca
-> varado yadi me brahman
-> putram indra-haṇaṁ vṛṇe
-> amṛtyuṁ mṛta-putrāhaṁ
+> ditir uvāca\
+> varado yadi me brahman\
+> putram indra-haṇaṁ vṛṇe\
+> amṛtyuṁ mṛta-putrāhaṁ\
 > yena me ghātitau sutau
 
 *ditiḥ uvāca*—Diti said; *vara-daḥ*—the giver of benedictions; *yadi*—if; *me*—to me; *brahman*—O great soul; *putram*—a son; *indra-haṇam*—who can kill Indra; *vṛṇe*—I am asking for; *amṛtyum*—immortal; *mṛta-putrā*—whose sons are dead; *aham*—I; *yena*—by whom; *me*—my; *ghātitau*—were caused to be killed; *sutau*—two sons.

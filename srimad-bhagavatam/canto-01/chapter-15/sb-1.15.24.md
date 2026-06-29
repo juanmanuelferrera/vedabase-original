@@ -1,11 +1,11 @@
 ### SB 1.15.24
 
-> प्रायेणैतद्भगवत ईश्वरस्य विचेष्टितम् ।
+> प्रायेणैतद्भगवत ईश्वरस्य विचेष्टितम् ।\
 > मिथो निघ्नन्ति भूतानि भावयन्ति च यन्मिथः ॥२४॥
 
-> prāyeṇaitad bhagavata
-> īśvarasya viceṣṭitam
-> mitho nighnanti bhūtāni
+> prāyeṇaitad bhagavata\
+> īśvarasya viceṣṭitam\
+> mitho nighnanti bhūtāni\
 > bhāvayanti ca yan mithaḥ
 
 *prāyeṇa etat*—it is almost by; *bhagavataḥ*—of the Personality of Godhead; *īśvarasya*—of the Lord; *viceṣṭitam*—by the will of; *mithaḥ*—one another; *nighnanti*—do kill; *bhūtāni*—the living beings; *bhāvayanti*—as also protect; *ca*—also; *yat*—of whom; *mithaḥ*—one another.

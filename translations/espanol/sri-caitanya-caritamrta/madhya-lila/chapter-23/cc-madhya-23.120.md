@@ -1,9 +1,9 @@
 ### CC Madhya 23.120
 
-> “নীচজাতি, নীচসেবী, মুঞি — সুপামর ।
+> “নীচজাতি, নীচসেবী, মুঞি — সুপামর ।\
 > সিদ্ধান্ত শিখাইলা, — যেই ব্রহ্মার অগোচর ॥১২০॥
 
-> "nīca-jāti, nīca-sevī, muñi--supāmara
+> "nīca-jāti, nīca-sevī, muñi--supāmara\
 > siddhānta śikhāilā,--yei brahmāra agocara
 
 *nīca-jāti*—de clase baja; *nīca-sevī*—sirviente de personas de baja cuna; *muñi*—yo; *supāmara*—muy, muy caído; *siddhānta śikhāilā*—has enseñado las conclusiones supremas en detalle; *yei*—las cuales; *brahmāra*—de Brahmā; *agocara*—fuera del alcance.

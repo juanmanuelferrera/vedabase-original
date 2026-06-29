@@ -1,14 +1,14 @@
 ### Bg 1.36
 
-> पापमेवाश्रयेदस्मान्हत्वैतानाततायिनः ।
-> तस्मान्नार्हा वयं हन्तुं धार्तराष्ट्रान्स्वबान्धवान् ।
+> पापमेवाश्रयेदस्मान्हत्वैतानाततायिनः ।\
+> तस्मान्नार्हा वयं हन्तुं धार्तराष्ट्रान्स्वबान्धवान् ।\
 > स्वजनं हि कथं हत्वा सुखिनः स्याम माधव ॥३६॥
 
-> pāpam evāśrayed asmān
-> hatvaitān ātatāyinaḥ
-> tasmān nārhā vayaṁ hantuṁ
-> dhārtarāṣṭrān sa-bāndhavān
-> sva-janaṁ hi kathaṁ hatvā
+> pāpam evāśrayed asmān\
+> hatvaitān ātatāyinaḥ\
+> tasmān nārhā vayaṁ hantuṁ\
+> dhārtarāṣṭrān sa-bāndhavān\
+> sva-janaṁ hi kathaṁ hatvā\
 > sukhinaḥ syāma mādhava
 
 *pāpam*—vices; *eva*—certainly; *āśrayet*—must take upon; *asmān*—us; *hatvā*—by killing; *etān*—all these; *ātatāyinaḥ*—aggressors; *tasmāt*—therefore; *na*—never; *arhāḥ*—deserving; *vayam*—us; *hantum*—to kill; *dhārtarāṣṭrān*—the sons of Dhṛtarāṣṭra; *svabāndhavān*—along with friends; *svajanam*—kinsmen; *hi*—certainly; *katham*—how; *hatvā*—by killing; *sukhinaḥ*—happy; *syāma*—become; *mādhava*—O Kṛṣṇa, husband of the goddess of fortune.

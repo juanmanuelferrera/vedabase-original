@@ -1,13 +1,13 @@
 ### SB 4.1.30
 
-> देवा ऊचुः
-> यथा कृतस्ते सङ्कल्पो भाव्यं तेनैव नान्यथा ।
+> देवा ऊचुः\
+> यथा कृतस्ते सङ्कल्पो भाव्यं तेनैव नान्यथा ।\
 > सत्सङ्कल्पस्य ते ब्रह्मन्यद्वै ध्यायति ते वयम् ॥३०॥
 
-> devā ūcuḥ
-> yathā kṛtas te saṅkalpo
-> bhāvyaṁ tenaiva nānyathā
-> sat-saṅkalpasya te brahman
+> devā ūcuḥ\
+> yathā kṛtas te saṅkalpo\
+> bhāvyaṁ tenaiva nānyathā\
+> sat-saṅkalpasya te brahman\
 > yad vai dhyāyati te vayam
 
 *devāḥ ūcuḥ*—the demigods replied; *yathā*—as; *kṛtaḥ*—done; *te*—by you; *saṅkalpaḥ*—determination; *bhāvyam*—to be done; *tena eva*—by that; *na anyathā*—not otherwise; *sat-saṅkalpasya*—one whose determination is never lost; *te*—of you; *brahman*—O dear *brāhmaṇa*; *yat*—that which; *vai*—certainly; *dhyāyati*—meditating; *te*—all of them; *vayam*—we are.

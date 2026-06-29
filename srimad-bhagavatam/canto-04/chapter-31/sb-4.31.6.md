@@ -1,11 +1,11 @@
 ### SB 4.31.6
 
-> यदादिष्टं भगवता शिवेनाधोक्षजेन च ।
+> यदादिष्टं भगवता शिवेनाधोक्षजेन च ।\
 > तद्गृहेषु प्रसक्तानां प्रायशः क्षपितं प्रभो ॥६॥
 
-> yad ādiṣṭaṁ bhagavatā
-> śivenādhokṣajena ca
-> tad gṛheṣu prasaktānāṁ
+> yad ādiṣṭaṁ bhagavatā\
+> śivenādhokṣajena ca\
+> tad gṛheṣu prasaktānāṁ\
 > prāyaśaḥ kṣapitaṁ prabho
 
 *yat*—what; *ādiṣṭam*—was instructed; *bhagavatā*—by the exalted personality; *śivena*—Lord Śiva; *adhokṣajena*—by Lord Viṣṇu; *ca*—also; *tat*—that; *gṛheṣu*—to family affairs; *prasaktānām*—by us who were too much attached; *prāyaśaḥ*—almost; *kṣapitam*—forgotten; *prabho*—O master.

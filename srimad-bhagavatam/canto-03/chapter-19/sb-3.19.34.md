@@ -1,11 +1,11 @@
 ### SB 3.19.34
 
-> अन्येषां पुण्यश्लोकानामुद्दामयशसां सताम् ।
+> अन्येषां पुण्यश्लोकानामुद्दामयशसां सताम् ।\
 > उपश्रुत्य भवेन्मोदः श्रीवत्साङ्कस्य किं पुनः ॥३४॥
 
-> anyeṣāṁ puṇya-ślokānām
-> uddāma-yaśasāṁ satām
-> upaśrutya bhaven modaḥ
+> anyeṣāṁ puṇya-ślokānām\
+> uddāma-yaśasāṁ satām\
+> upaśrutya bhaven modaḥ\
 > śrīvatsāṅkasya kiṁ punaḥ
 
 *anyeṣām*—of others; *puṇya-ślokānām*—of pious reputation; *uddāma-yaśasām*—whose fame is spread everywhere; *satām*—of the devotees; *upaśrutya*—by hearing; *bhavet*—may arise; *modaḥ*—pleasure; *śrīvatsa-aṅkasya*—of the Lord, who bears the mark Śrīvatsa; *kim punaḥ*—what to speak of.

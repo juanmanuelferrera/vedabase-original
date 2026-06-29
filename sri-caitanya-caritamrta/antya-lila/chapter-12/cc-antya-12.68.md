@@ -1,9 +1,9 @@
 ### CC Antya 12.68
 
-> তোমা-সবার দুঃখ জানি’ চাহি নিষেধিতে  ।
+> তোমা-সবার দুঃখ জানি’ চাহি নিষেধিতে  ।\
 > তোমা-সবার সঙ্গসুখে লোভ বাড়ে চিত্তে ॥৬৮॥
 
-> tomā-sabāra duḥkha jāni' cāhi niṣedhite
+> tomā-sabāra duḥkha jāni' cāhi niṣedhite\
 > tomā-sabāra saṅga-sukhe lobha bāḍe citte
 
 *tomā-sabāra*—of all of you; *duḥkha*—trouble; *jāni'*—understanding; *cāhi niṣedhite*—I want to stop this; *tomā-sabāra*—of all of you; *saṅga-sukhe*—for the happiness of association; *lobha*—desire; *bāḍe*—increases; *citte*—in My mind.

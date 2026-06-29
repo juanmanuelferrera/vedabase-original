@@ -1,9 +1,9 @@
 ### CC Adi 12.9
 
-> কেহ ত’ আচার্য আজ্ঞায়, কেহ ত’ স্বতন্ত্র ।
+> কেহ ত’ আচার্য আজ্ঞায়, কেহ ত’ স্বতন্ত্র ।\
 > স্বমত কল্পনা করে দৈব-পরতন্ত্র ॥৯॥
 
-> keha ta' ācārya ājñāya, keha ta' svatantra
+> keha ta' ācārya ājñāya, keha ta' svatantra\
 > sva-mata kalpanā kare daiva-paratantra
 
 *keha ta'*—algunos; *ācārya*—el maestro espiritual; *ājñāya*—por Su orden; *keha ta'*—algunos; *sva-tantra*—independientemente; *sva-mata*—sus propias opiniones; *kalpanā kare*—inventan; *daiva-paratantra*—bajo el hechizo de la māyā.

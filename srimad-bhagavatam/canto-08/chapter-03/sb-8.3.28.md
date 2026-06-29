@@ -1,11 +1,11 @@
 ### SB 8.3.28
 
-> नमो नमस्तुभ्यमसह्यवेग शक्तित्रयायाखिलधीगुणाय
+> नमो नमस्तुभ्यमसह्यवेग शक्तित्रयायाखिलधीगुणाय\
 > प्रपन्नपालाय दुरन्तशक्तये कदिन्द्रियाणामनवाप्यवर्त्मने ॥२८॥
 
-> namo namas tubhyam asahya-vega-
-> śakti-trayāyākhila-dhī-guṇāya
-> prapanna-pālāya duranta-śaktaye
+> namo namas tubhyam asahya-vega-\
+> śakti-trayāyākhila-dhī-guṇāya\
+> prapanna-pālāya duranta-śaktaye\
 > kad-indriyāṇām anavāpya-vartmane
 
 *namaḥ*—I offer my respectful obeisances; *namaḥ*—again I offer my respectful obeisances; *tubhyam*—unto You; *asahya*—formidable; *vega*—forces; *śakti-trayāya*—unto the Supreme Person, who has threefold potencies; *akhila*—of the universe; *dhī*—for the intelligence; *guṇāya*—who appears as the sense objects; *prapanna-pālāya*—unto the Supreme, who gives shelter to the surrendered; *duranta-śaktaye*—who possesses energies very difficult to overcome; *kat-indriyāṇām*—by persons unable to control their senses; *anavāpya*—who is unattainable; *vartmane*—on the path.

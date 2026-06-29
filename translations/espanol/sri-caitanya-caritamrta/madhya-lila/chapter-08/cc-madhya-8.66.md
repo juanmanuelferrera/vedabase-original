@@ -1,9 +1,9 @@
 ### CC Madhya 8.66
 
-> প্রভু কহে, — “এহো বাহ্য, আগে কহ আর ৷”
+> প্রভু কহে, — “এহো বাহ্য, আগে কহ আর ৷”\
 > রায় কহে, “জ্ঞানশূন্যা ভক্তি — সাধ্যসার ৷৷” ৬৬ ৷৷ ॥৬৬॥
 
-> prabhu kahe,--"eho bāhya, āge kaha āra"
+> prabhu kahe,--"eho bāhya, āge kaha āra"\
 > rāya kahe,--"jñāna-śūnyā bhakti--sādhya-sāra"
 
 *prabhu kahe*—el Señor dijo; *eho*—esto; *bāhya*—externo; *āge*—más adelante; *kaha*—habla; *āra*—más; *rāya kahe*—Rāmānanda Rāya respondió; *jñāna-śūnyā bhakti*—servicio devocional independiente de la lógica y la filosofía empírica; *sādhya-sāra*—la esencia de la perfección de la vida.

@@ -1,11 +1,11 @@
 ### SB 4.4.8
 
-> सौदर्यसम्प्रश्नसमर्थवार्तया मात्रा च मातृष्वसृभिश्च सादरम् ।
+> सौदर्यसम्प्रश्नसमर्थवार्तया मात्रा च मातृष्वसृभिश्च सादरम् ।\
 > दत्तां सपर्यां वरमासनं च सा नादत्त पित्राप्रतिनन्दिता सती ॥८॥
 
-> saudarya-sampraśna-samartha-vārtayā
-> mātrā ca mātṛ-ṣvasṛbhiś ca sādaram
-> dattāṁ saparyāṁ varam āsanaṁ ca sā
+> saudarya-sampraśna-samartha-vārtayā\
+> mātrā ca mātṛ-ṣvasṛbhiś ca sādaram\
+> dattāṁ saparyāṁ varam āsanaṁ ca sā\
 > nādatta pitrāpratinanditā satī
 
 *saudarya*—of her sisters; *sampraśna*—with the greetings; *samartha*—proper; *vārtayā*—tidings; *mātrā*—by her mother; *ca*—and; *mātṛ-svasṛbhiḥ*—by her aunts; *ca*—and; *sa-ādaram*—along with respect; *dattām*—which was offered; *saparyām*—worship, adoration; *varam*—presents; *āsanam*—a seat; *ca*—and; *sā*—she (Satī); *na ādatta*—did not accept; *pitrā*—by her father; *apratinanditā*—not being welcomed; *satī*—Satī.

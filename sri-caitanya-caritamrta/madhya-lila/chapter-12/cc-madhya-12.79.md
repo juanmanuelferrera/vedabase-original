@@ -1,9 +1,9 @@
 ### CC Madhya 12.79
 
-> আর দিনে প্রভাতে লঞা নিজগণ  ।
+> আর দিনে প্রভাতে লঞা নিজগণ  ।\
 > শ্রীহস্তে সবার অঙ্গে লেপিয়া চন্দন ॥৭৯॥
 
-> āra dine prabhāte lañā nija-gaṇa
+> āra dine prabhāte lañā nija-gaṇa\
 > śrī-haste sabāra aṅge lepilā candana
 
 *āra dine*—on the next day; *prabhāte*—in the morning; *lañā*—taking; *nija-gaṇa*—His personal devotees; *śrī-haste*—by His own hand; *sabāra aṅge*—on everyone's body; *lepilā candana*—smeared pulp of sandalwood.

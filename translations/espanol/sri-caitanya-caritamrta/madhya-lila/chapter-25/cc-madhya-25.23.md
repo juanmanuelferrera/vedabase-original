@@ -1,10 +1,10 @@
 ### CC Madhya 25.23
 
-> প্রকাশানন্দের শিষ্য এক তাঁহার সমান ।
+> প্রকাশানন্দের শিষ্য এক তাঁহার সমান ।\
 > সভামধ্যে কহে প্রভুর করিয়া সম্মান ॥২৩॥
 
-> prakāśānandera śiṣya eka tāṅhāra samāna
-> sabhā-madhye kahe prabhura kariyā sammāna
+> prakāśānandera śiṣya eka tāṅhāra samāna\
+> sabhā-madhye kahe prabhura kariyā sammāna\
 > SYNONYMS
 
 *prakāśānandera śiṣya eka*—uno de los discípulos de Prakāśānanda Sarasvatī; *tāṅhāra samāna*—igual en erudición a Prakāśānanda Sarasvatī; *sabhā-madhye*—en la asamblea de los sannyāsīs; *kahe*—explica; *prabhura kariyā sammāna*—ofreciendo serios respetos a Śrī Caitanya Mahāprabhu.

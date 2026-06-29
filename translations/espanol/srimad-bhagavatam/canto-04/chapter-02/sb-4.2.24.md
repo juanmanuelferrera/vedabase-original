@@ -1,11 +1,11 @@
 ### SB 4.2.24
 
-> विद्याबुद्धिरविद्यायां कर्ममय्यामसौ जडः ।
+> विद्याबुद्धिरविद्यायां कर्ममय्यामसौ जडः ।\
 > संसरन्त्विह ये चामुमनु शर्वावमानिनम् ॥२४॥
 
-> vidyā-buddhir avidyāyāṁ
-> karmamayyām asau jaḍaḥ
-> saṁsarantv iha ye cāmum
+> vidyā-buddhir avidyāyāṁ\
+> karmamayyām asau jaḍaḥ\
+> saṁsarantv iha ye cāmum\
 > anu śarvāvamāninam
 
 *vidyā-buddhiḥ*—educación e inteligencia materialistas; *avidyāyām*—en nesciencia; *karma-mayyām*—hecha de actividades fruitivas; *asau*—él (Dakṣa); *jaḍaḥ*—torpes; *saṁsarantu*—que sigan naciendo una y otra vez; *iha*—aquí, en este mundo; *ye*—quienes; *ca*—y; *amum*—a Dakṣa; *anu*—seguir; *śarva*—Śiva; *avamāninam*—insultar.

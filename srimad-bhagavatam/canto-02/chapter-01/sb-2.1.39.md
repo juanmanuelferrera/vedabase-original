@@ -1,11 +1,11 @@
 ### SB 2.1.39
 
-> स सर्वधीवृत्त्यनुभूतसर्व आत्मा यथा स्वप्नजनेक्षितैकः ।
+> स सर्वधीवृत्त्यनुभूतसर्व आत्मा यथा स्वप्नजनेक्षितैकः ।\
 > तं सत्यमानन्दनिधिं भजेत नान्यत्र सज्जेद्यत आत्मपातः ॥३९॥
 
-> sa sarva-dhī-vṛtty-anubhūta-sarva
-> ātmā yathā svapna-janekṣitaikaḥ
-> taṁ satyam ānanda-nidhiṁ bhajeta
+> sa sarva-dhī-vṛtty-anubhūta-sarva\
+> ātmā yathā svapna-janekṣitaikaḥ\
+> taṁ satyam ānanda-nidhiṁ bhajeta\
 > nānyatra sajjed yata ātma-pātaḥ
 
 *saḥ*—He (the Supreme Person); *sarva-dhī-vṛtti*—the process of realization by all sorts of intelligence; *anubhūta*—cognizant; *sarve*—everyone; *ātmā*—the Supersoul; *yathā*—as much as; *svapna-jana*—a person dreaming; *īkṣita*—seen by; *ekaḥ*—one and the same; *tam*—unto Him; *satyam*—the Supreme Truth; *ānanda-nidhim*—the ocean of bliss; *bhajeta*—must one worship; *na*—never; *anyatra*—anything else; *sajjet*—be attached; *yataḥ*—whereby; *ātma-pātaḥ*—degradation of oneself.

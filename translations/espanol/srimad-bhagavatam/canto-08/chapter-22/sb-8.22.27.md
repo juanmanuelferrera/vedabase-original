@@ -1,11 +1,11 @@
 ### SB 8.22.27
 
-> मानस्तम्भनिमित्तानां जन्मादीनां समन्ततः
+> मानस्तम्भनिमित्तानां जन्मादीनां समन्ततः\
 > सर्वश्रेयःप्रतीपानां हन्त मुह्येन्न मत्परः ॥२७॥
 
-> māna-stambha-nimittānāṁ
-> janmādīnāṁ samantataḥ
-> sarva-śreyaḥ-pratīpānāṁ
+> māna-stambha-nimittānāṁ\
+> janmādīnāṁ samantataḥ\
+> sarva-śreyaḥ-pratīpānāṁ\
 > hanta muhyen na mat-paraḥ
 
 *māna*—de prestigio falso; *stambha*—debido a esa insolencia; *nimittānām*—que son las causas; *janma-ādīnām*—como el haber nacido en una familia noble; *samantataḥ*—en conjunto; *sarva-śreyaḥ*—para el beneficio supremo de la vida; *pratīpānām*—que son impedimentos; *hanta*—también; *muhyet*—se confunde; *na*—no; *mat-paraḥ*—Mi devoto puro.

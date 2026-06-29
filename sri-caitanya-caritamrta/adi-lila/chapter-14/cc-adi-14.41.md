@@ -1,9 +1,9 @@
 ### CC Adi 14.41
 
-> শিশু সব শচী-স্থানে কৈল নিবেদন ।
+> শিশু সব শচী-স্থানে কৈল নিবেদন ।\
 > শুনি’ শচী পুত্রে কিছু দিলা ওলাহন ॥৪১॥
 
-> śiśu saba śacī-sthāne kaila nivedana
+> śiśu saba śacī-sthāne kaila nivedana\
 > śuni' śacī putre kichu dilā olāhana
 
 *śiśu saba*—all the children; *śacī-sthāne*—in the presence of mother Śacī; *kaila*—made; *nivedana*—petition; *śuni'*—hearing that; *śacī*—mother Śacī; *putre*—unto her son; *kichu*—some; *dilā*—gave; *olāhana*—chastisement or rebuke.

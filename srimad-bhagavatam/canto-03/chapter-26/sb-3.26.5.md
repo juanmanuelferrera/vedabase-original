@@ -1,11 +1,11 @@
 ### SB 3.26.5
 
-> गुणैर्विचित्राः सृजतीं सरूपाः प्रकृतिं प्रजाः ।
+> गुणैर्विचित्राः सृजतीं सरूपाः प्रकृतिं प्रजाः ।\
 > विलोक्य मुमुहे सद्यः स इह ज्ञानगूहया ॥५॥
 
-> guṇair vicitrāḥ sṛjatīṁ
-> sa-rūpāḥ prakṛtiṁ prajāḥ
-> vilokya mumuhe sadyaḥ
+> guṇair vicitrāḥ sṛjatīṁ\
+> sa-rūpāḥ prakṛtiṁ prajāḥ\
+> vilokya mumuhe sadyaḥ\
 > sa iha jñāna-gūhayā
 
 *guṇaiḥ*—by the threefold modes; *vicitrāḥ*—variegated; *sṛjatīm*—creating; *sa-rūpāḥ*—with forms; *prakṛtim*—material nature; *prajāḥ*—living entities; *vilokya*—having seen; *mumuhe*—was illusioned; *sadyaḥ*—at once; *saḥ*—the living entity; *iha*—in this world; *jñāna-gūhayā*—by the knowledge-covering feature.

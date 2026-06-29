@@ -1,9 +1,9 @@
 ### CC Madhya 11.25
 
-> যে তাঁহার প্রেম-আর্তি দেখিলুঁ তোমাতে ।
+> যে তাঁহার প্রেম-আর্তি দেখিলুঁ তোমাতে ।\
 > তার এক প্রেম-লেশ নাহিক আমাতে ॥২৫॥
 
-> ye tāṅhāra prema-ārti dekhiluṅ tomāte
+> ye tāṅhāra prema-ārti dekhiluṅ tomāte\
 > tāra eka prema-leśa nāhika āmāte
 
 *ye*—whatever; *tāṅhāra*—his; *prema-ārti*—painful feelings of love of Godhead; *dekhiluṅ*—I saw; *tomāte*—unto You; *tāra*—of that; *eka*—one; *prema-leśa*—fraction of love; *nāhika*—there is not; *āmāte*—in me.

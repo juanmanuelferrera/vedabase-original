@@ -1,13 +1,13 @@
 ### CC Madhya 19.210
 
-> পতিসুতান্বয়ভ্রাতৃবান্ধবা-
-> নতিবিলঙ্ঘ্য তেঽন্ত্যচ্যুতাগতাঃ ।
-> গতিবিদস্তবোদ্গীতমোহিতাঃ
+> পতিসুতান্বয়ভ্রাতৃবান্ধবা-\
+> নতিবিলঙ্ঘ্য তেঽন্ত্যচ্যুতাগতাঃ ।\
+> গতিবিদস্তবোদ্গীতমোহিতাঃ\
 > কিতব যোষিতঃ কস্ত্যজেন্নিশি ॥২১০॥
 
-> pati-sutānvaya-bhrātṛ-bāndhavān
-> ativilaṅghya te 'nty acyutāgatāḥ
-> gatividas tavodgīta-mohitāḥ
+> pati-sutānvaya-bhrātṛ-bāndhavān\
+> ativilaṅghya te 'nty acyutāgatāḥ\
+> gatividas tavodgīta-mohitāḥ\
 > kitava yoṣitaḥ kas tyajen niśi
 
 *pati*—husbands; *suta*—sons; *anvaya*—family; *bhrātṛ*—brothers; *bāndhavān*—friends; *ativilaṅghya*—without caring for; *te*—Your; *anti*—dear shelter; *acyuta*—O infallible one; *āgatāḥ*—have come; *gati-vidaḥ*—who know everything of our activities; *tava*—of You; *udgīta*—by the singing flute; *mohitāḥ*—being attracted; *kitava*—O great cheater; *yoṣitaḥ*—beautiful women; *kaḥ*—who; *tyajet*—would give up; *niśi*—in the dead of night.

@@ -1,9 +1,9 @@
 ### CC Antya 5.92
 
-> ভগবান্-আচার্য-সনে তার পরিচয় ।
+> ভগবান্-আচার্য-সনে তার পরিচয় ।\
 > তাঁরে মিলি’ তাঁর ঘরে করিল আলয় ॥৯২॥
 
-> bhagavān-ācārya-sane tāra paricaya
+> bhagavān-ācārya-sane tāra paricaya\
 > tāṅre mili' tāṅra ghare karila ālaya
 
 *bhagavān-ācārya*—el devoto del Señor Śrī Caitanya Mahāprabhu llamado Bhagavān Ācārya; *sane*—con; *tāra paricaya*—su conocido; *tāṅre mili'*—encontrándose con él; *tāṅra ghare*—en su lugar; *karila ālaya*—estableció residencia.

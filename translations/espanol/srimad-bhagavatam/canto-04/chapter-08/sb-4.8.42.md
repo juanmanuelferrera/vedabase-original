@@ -1,11 +1,11 @@
 ### SB 4.8.42
 
-> तत्तात गच्छ भद्रं ते यमुनायास्तटं शुचि ।
+> तत्तात गच्छ भद्रं ते यमुनायास्तटं शुचि ।\
 > पुण्यं मधुवनं यत्र सान्निध्यं नित्यदा हरेः ॥४२॥
 
-> tat tāta gaccha bhadraṁ te
-> yamunāyās taṭaṁ śuci
-> puṇyaṁ madhuvanaṁ yatra
+> tat tāta gaccha bhadraṁ te\
+> yamunāyās taṭaṁ śuci\
+> puṇyaṁ madhuvanaṁ yatra\
 > sānnidhyaṁ nityadā hareḥ
 
 *tat*—esa; *tāta*—mi querido hijo; *gaccha*—ve; *bhadram*—buena fortuna; *te*—para ti; *yamunāyāḥ*—del Yamunā; *taṭam*—orilla; *śuci*—purificándote; *puṇyam*—el santo; *madhu-vanam*—de nombre Madhuvana; *yatra*—donde; *sānnidhyam*—estando más cerca; *nityadā*—siempre; *hareḥ*—de la Suprema Personalidad de Dios.

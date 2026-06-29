@@ -1,11 +1,11 @@
 ### SB 2.5.30
 
-> वैकारिकान्मनो जज्ञे देवा वैकारिका दश ।
+> वैकारिकान्मनो जज्ञे देवा वैकारिका दश ।\
 > दिग्वातार्कप्रचेतोऽश्वि वह्नीन्द्रोपेन्द्रमित्रकाः ॥३०॥
 
-> vaikārikān mano jajñe
-> devā vaikārikā daśa
-> dig-vātārka-praceto 'śvi-
+> vaikārikān mano jajñe\
+> devā vaikārikā daśa\
+> dig-vātārka-praceto 'śvi-\
 > vahnīndropendra-mitra-kāḥ
 
 *vaikārikāt*—de la modalidad de la bondad; *manaḥ*—la mente; *jajñe*—generada; *devāḥ*—semidioses; *vaikārikāḥ*—en la modalidad de la bondad; *daśa*—diez; *dik*—el controlador de las direcciones; *vāta*—el controlador del aire; *arka*—el Sol; *pracetaḥ*—Varuṇa; *aśvi*—los Aśvinī-kumāras; *vahni*—el dios del fuego; *indra*—el rey del cielo; *upendra*—la deidad del cielo; *mitra*—uno de los doce *ādityas*; *kāḥ*—Prajāpati Brahmā.

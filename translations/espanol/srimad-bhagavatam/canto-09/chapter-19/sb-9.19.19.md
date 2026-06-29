@@ -1,11 +1,11 @@
 ### SB 9.19.19
 
-> तस्मादेतामहं त्यक्त्वा ब्रह्मण्यध्याय मानसम
+> तस्मादेतामहं त्यक्त्वा ब्रह्मण्यध्याय मानसम\
 > निर्द्वन्द्वो निरहङ्कारश्चरिष्यामि मृगैः सह ॥१९॥
 
-> tasmād etām ahaṁ tyaktvā
-> brahmaṇy adhyāya mānasam
-> nirdvandvo nirahaṅkāraś
+> tasmād etām ahaṁ tyaktvā\
+> brahmaṇy adhyāya mānasam\
+> nirdvandvo nirahaṅkāraś\
 > cariṣyāmi mṛgaiḥ saha
 
 *tasmāt*—por lo tanto; *etām*—esos fuertes deseos de actividades de disfrute; *aham*—yo; *tyaktvā*—abandonando; *brahmaṇi*—en la Suprema Verdad Absoluta; *adhyāya*—fijando; *mānasam*—la mente; *nirdvandvaḥ*—sin dualidad; *nirahaṅkāraḥ*—sin una identidad fundada en el prestigio falso; *cariṣyāmi*—voy a deambular o vagar por el bosque; *mṛgaiḥ saha*—con los animales salvajes.

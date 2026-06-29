@@ -1,9 +1,9 @@
 ### CC Madhya 14.25
 
-> ‘বলগণ্ডি ভোগে’র প্রসাদ — উত্তম, অনন্ত ।
+> ‘বলগণ্ডি ভোগে’র প্রসাদ — উত্তম, অনন্ত ।\
 > ‘নি-সকড়ি’ প্রসাদ আইল, যার নাহি অন্ত ॥২৫॥
 
-> 'balagaṇḍi bhoge'ra prasāda-uttama, ananta
+> 'balagaṇḍi bhoge'ra prasāda-uttama, ananta\
 > 'ni-sakaḍi' prasāda āila, yāra nāhi anta
 
 *balagaṇḍi bhogera*—of food offered at Balagaṇḍi; *prasāda*—remnants; *uttama*—all of the foremost quality; *ananta*—of all varieties; *ni-sakaḍi*—uncooked food like milk products and fruits; *prasāda*—remnants of food; *āila*—arrived; *yāra*—of which; *nāhi*—there is not; *anta*—end.

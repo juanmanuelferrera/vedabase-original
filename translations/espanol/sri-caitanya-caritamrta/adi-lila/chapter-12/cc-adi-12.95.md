@@ -1,9 +1,9 @@
 ### CC Adi 12.95
 
-> তাহার মাধুর্য-গন্ধে লুব্ধ হয় মন ।
+> তাহার মাধুর্য-গন্ধে লুব্ধ হয় মন ।\
 > অতএব তটে রহি’ চাকি এক কণ ॥৯৫॥
 
-> tāhāra mādhurya-gandhe lubdha haya mana
+> tāhāra mādhurya-gandhe lubdha haya mana\
 > ataeva taṭe rahi' cāki eka kaṇa
 
 *tāhāra*—de Él; *mādhurya*—dulce y meliflua; *gandhe*—por la fragancia; *lubdha*—atraída; *haya*—se vuelve; *mana*—la mente; *ataeva*—por lo tanto; *taṭe*—en la playa; *rahi'*—permaneciendo de pie; *cāki*—saboreo; *eka*—una; *kaṇa*—partícula.

@@ -1,9 +1,9 @@
 ### CC Madhya 5.12
 
-> বনযাত্রায় বন দেখি’ দেখে গোবর্ধন ।
+> বনযাত্রায় বন দেখি’ দেখে গোবর্ধন ।\
 > দ্বাদশ-বন দেখি’ শেষে গেলা বৃন্দাবন ॥১২॥
 
-> vana-yātrāya vana dekhi' dekhe govardhana
+> vana-yātrāya vana dekhi' dekhe govardhana\
 > dvādaśa-vana dekhi' śeṣe gelā vṛndāvana
 
 *vana-yātrāya*—in touring the different forests; *vana dekhi'*—while seeing the forests; *dekhe*—they see; *govardhana*—Govardhana Hill; *dvādaśa-vana dekhi'*—visiting the twelve forests in Vṛndāvana; *śeṣe*—at last; *gelā*—reached; *vṛndāvana*—Vṛndāvana.

@@ -1,11 +1,11 @@
 ### SB 1.15.50
 
-> द्रौपदी च तदाज्ञाय पतीनामनपेक्षताम् ।
+> द्रौपदी च तदाज्ञाय पतीनामनपेक्षताम् ।\
 > वासुदेवे भगवति ह्येकान्तमतिराप तम् ॥५०॥
 
-> draupadī ca tadājñāya
-> patīnām anapekṣatām
-> vāsudeve bhagavati
+> draupadī ca tadājñāya\
+> patīnām anapekṣatām\
+> vāsudeve bhagavati\
 > hy ekānta-matir āpa tam
 
 *draupadī*—Draupadī (la esposa de los Pāṇḍavas); *ca*—y; *tadā*—en ese entonces; *ājñāya*—conociendo al Señor Kṛṣṇa muy bien; *patīnām*—de los esposos; *anapekṣatām*—que no se preocuparon por ella; *vāsudeve*—al Señor Vāsudeva (Kṛṣṇa); *bhagavati*—la Personalidad de Dios; *hi*—exactamente; *eka-anta*—absolutamente; *matiḥ*—concentración; *āpa*—recibió; *tam*—a Él (el Señor).

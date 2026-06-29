@@ -1,9 +1,9 @@
 ### CC Adi 17.203
 
-> এত শুনি’ তা’-সভারে ঘরে পাঠাইল ।
+> এত শুনি’ তা’-সভারে ঘরে পাঠাইল ।\
 > হেনকালে পাষণ্ডী হিন্দু পাঁচ-সাত আইল ॥২০৩॥
 
-> eta śuni' tā'-sabhāre ghare pāṭhāila
+> eta śuni' tā'-sabhāre ghare pāṭhāila\
 > hena-kāle pāṣaṇḍī hindu pāṅca-sāta āila
 
 *eta śuni'*—after hearing all this; *tā'-sabhāre*—all of them; *ghare*—back home; *pāṭhāila*—sent; *hena-kāle*—at that time; *pāṣaṇḍī*—nonbeliever; *hindu*—Hindus; *pāṅca-sāta*—five or seven; *āila*—came.

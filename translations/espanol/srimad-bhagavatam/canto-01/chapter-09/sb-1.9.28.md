@@ -1,11 +1,11 @@
 ### SB 1.9.28
 
-> धर्मार्थकाममोक्षांश्च सहोपायान्यथा मुने ।
+> धर्मार्थकाममोक्षांश्च सहोपायान्यथा मुने ।\
 > नानाख्यानेतिहासेषु वर्णयामास तत्त्ववित् ॥२८॥
 
-> dharmārtha-kāma-mokṣāṁś ca
-> sahopāyān yathā mune
-> nānākhyānetihāseṣu
+> dharmārtha-kāma-mokṣāṁś ca\
+> sahopāyān yathā mune\
+> nānākhyānetihāseṣu\
 > varṇayām āsa tattvavit
 
 *dharma*—deberes propios de la ocupación; *artha*—desarrollo económico; *kāma*—cumplimiento de deseos; *mokṣān*—salvación final; *ca*—y; *saha*—junto con; *upāyān*—medios; *yathā*—tal como es; *mune*—¡oh, sabio!; *nānā*—diversas; *ākhyāna*—mediante la recitación de narraciones históricas; *itihāseṣu*—en las historias; *varṇayām āsa*—describió; *tattva-vit*—aquel que conoce la verdad.

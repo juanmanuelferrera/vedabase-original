@@ -1,13 +1,13 @@
 ### SB 7.2.1
 
-> श्रीनारद उवाच
-> भ्रातर्येवं विनिहते हरिणा क्रोडमूर्तिना
+> श्रीनारद उवाच\
+> भ्रातर्येवं विनिहते हरिणा क्रोडमूर्तिना\
 > हिरण्यकशिपू राजन्पर्यतप्यद्रुषा शुचा ॥१॥
 
-> śrī-nārada uvāca
-> bhrātary evaṁ vinihate
-> hariṇā kroḍa-mūrtinā
-> hiraṇyakaśipū rājan
+> śrī-nārada uvāca\
+> bhrātary evaṁ vinihate\
+> hariṇā kroḍa-mūrtinā\
+> hiraṇyakaśipū rājan\
 > paryatapyad ruṣā śucā
 
 *śrī-nāradaḥ uvāca*—Śrī Nārada Muni dijo; *bhrātari*—cuando el hermano (Hiraṇyākṣa); *evam*—así; *vinihate*—fue matado; *hariṇā*—por Hari; *kroḍa-mūrtinā*—en la forma del *avatāra* Jabalí, Varāha; *hiraṇyakaśipuḥ*—Hiraṇyakaśipu; *rājan*—¡oh, rey!; *paryatapyat*—afligido; *ruṣā*—por la ira; *śucā*—por la pena.

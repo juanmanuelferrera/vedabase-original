@@ -1,11 +1,11 @@
 ### CC Adi 17.164
 
-> অশ্বমেধং গবালম্ভং সন্ন্যাসং পলপৈতৃকম্ ।
+> অশ্বমেধং গবালম্ভং সন্ন্যাসং পলপৈতৃকম্ ।\
 > দেবরেণ সুতোৎপত্তিং কলৌ পঞ্চ বিবর্জয়েৎ ॥১৬৪॥
 
-> aśvamedhaṁ gavālambhaṁ
-> sannyāsaṁ pala-paitṛkam
-> devareṇa sutotpattiṁ
+> aśvamedhaṁ gavālambhaṁ\
+> sannyāsaṁ pala-paitṛkam\
+> devareṇa sutotpattiṁ\
 > kalau pañca vivarjayet
 
 *aśva-medham*—a sacrifice offering a horse; *gava-ālambham*—a sacrifice of cows; *sannyāsam*—the renounced order of life; *pala-paitṛkam*—an offering of oblations of flesh to the forefathers; *devareṇa*—by a husband's brother; *suta-utpattim*—begetting children; *kalau*—in the Age of Kali; *pañca*—five; *vivarjayet*—one must give up.

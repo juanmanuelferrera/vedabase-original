@@ -1,11 +1,11 @@
 ### SB 3.21.51
 
-> योऽर्केन्द्वग्नीन्द्रवायूनां यमधर्मप्रचेतसाम् ।
+> योऽर्केन्द्वग्नीन्द्रवायूनां यमधर्मप्रचेतसाम् ।\
 > रूपाणि स्थान आधत्से तस्मै शुक्लाय ते नमः ॥५१॥
 
-> yo 'rkendv-agnīndra-vāyūnāṁ
-> yama-dharma-pracetasām
-> rūpāṇi sthāna ādhatse
+> yo 'rkendv-agnīndra-vāyūnāṁ\
+> yama-dharma-pracetasām\
+> rūpāṇi sthāna ādhatse\
 > tasmai śuklāya te namaḥ
 
 *yaḥ*—you who; *arka*—of the sun; *indu*—of the moon; *agni*—of Agni, the fire-god; *indra*—of Indra, the lord of heaven; *vāyūnām*—of Vāyu, the wind-god; *yama*—of Yama, the god of punishment; *dharma*—of Dharma, the god of piety; *pracetasām*—and of Varuṇa, the god of the waters; *rūpāṇi*—the forms; *sthāne*—when necessary; *ādhatse*—you assume; *tasmai*—unto Him; *śuklāya*—unto Lord Viṣṇu; *te*—unto you; *namaḥ*—obeisances.

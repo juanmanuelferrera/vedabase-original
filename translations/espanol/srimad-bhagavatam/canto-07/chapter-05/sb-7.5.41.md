@@ -1,11 +1,11 @@
 ### SB 7.5.41
 
-> परे ब्रह्मण्यनिर्देश्ये भगवत्यखिलात्मनि
+> परे ब्रह्मण्यनिर्देश्ये भगवत्यखिलात्मनि\
 > युक्तात्मन्यफला आसन्नपुण्यस्येव सत्क्रियाः ॥४१॥
 
-> pare brahmaṇy anirdeśye
-> bhagavaty akhilātmani
-> yuktātmany aphalā āsann
+> pare brahmaṇy anirdeśye\
+> bhagavaty akhilātmani\
+> yuktātmany aphalā āsann\
 > apuṇyasyeva sat-kriyāḥ
 
 *pare*—en el supremo; *brahmaṇi*—absoluto; *anirdeśye*—que no se puede percibir con los sentidos; *bhagavati*—a la Suprema Personalidad de Dios; *akhila-ātmani*—la Superalma de todos; *yukta-ātmani*—en aquel cuya mente estaba ocupada (Prahlāda); *aphalāḥ*—sin efecto; *āsan*—eran; *apuṇyasya*—de una persona que no ha acumulado actividades piadosas; *iva*—como; *sat-kriyāḥ*—buenas acciones (como la práctica de sacrificios o austeridades).

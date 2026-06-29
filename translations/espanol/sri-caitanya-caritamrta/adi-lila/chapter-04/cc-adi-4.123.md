@@ -1,9 +1,9 @@
 ### CC Adi 4.123
 
-> না জানি রাধার প্রেমে আছে কত বল ।
+> না জানি রাধার প্রেমে আছে কত বল ।\
 > যে বলে আমারে করে সর্বদা বিহ্বল ॥১২৩॥
 
-> nā jāni rādhāra preme āche kata bala
+> nā jāni rādhāra preme āche kata bala\
 > ye bale āmāre kare sarvadā vihvala
 
 *nā jāni*—no sé; *rādhāra*—de Śrīmatī Rādhārāṇī; *preme*—en el amor; *āche*—hay; *kata*—cuánta; *bala*—fuerza; *ye*—la cual; *bale*—fuerza; *āmāre*—a Mí; *kare*—hace; *sarvadā*—siempre; *vihvala*—abrumado.

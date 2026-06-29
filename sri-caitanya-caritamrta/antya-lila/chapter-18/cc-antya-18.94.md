@@ -1,13 +1,13 @@
 ### CC Antya 18.94
 
-> যত হেমাব্জ জলে ভাসে, তত নীলাব্জ তার পাশে,
-> আসি’ আসি’ করয়ে মিলন ।
-> নীলাব্জে হেমাব্জে ঠেকে, যুদ্ধ হয় প্রত্যেকে,
+> যত হেমাব্জ জলে ভাসে, তত নীলাব্জ তার পাশে,\
+> আসি’ আসি’ করয়ে মিলন ।\
+> নীলাব্জে হেমাব্জে ঠেকে, যুদ্ধ হয় প্রত্যেকে,\
 > কৌতুকে দেখে তীরে সখীগণ ॥৯৪॥
 
-> yata hemābja jale bhāse, tata nīlābja tāra pāśe,
-> āsi' āsi' karaye milana
-> nīlābje hemābje ṭheke, yuddha haya pratyeke,
+> yata hemābja jale bhāse, tata nīlābja tāra pāśe,\
+> āsi' āsi' karaye milana\
+> nīlābje hemābje ṭheke, yuddha haya pratyeke,\
 > kautuke dekhe tīre sakhī-gaṇa
 
 *yata*—as many as there were; *hema-abja*—white lotus flowers; *jale*—on the water; *bhāse*—float; *tata*—that many; *nīla-abja*—bluish lotus flowers; *tāra pāśe*—by their side; *āsi' āsi'*—coming closer; *karaye milana*—they meet; *nīla-abje*—the bluish lotus flowers; *hema-abje*—with the white lotus flowers; *ṭheke*—collide; *yuddha*—a fight; *haya*—there is; *prati-eke*—with one another; *kautuke*—in great fun; *dekhe*—see; *tīre*—on the bank; *sakhī-gaṇa*—the *gopīs.*

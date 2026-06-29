@@ -1,11 +1,11 @@
 ### SB 3.13.19
 
-> तस्याभिपश्यतः खस्थः क्षणेन किल भारत ।
+> तस्याभिपश्यतः खस्थः क्षणेन किल भारत ।\
 > गजमात्रः प्रववृधे तदद्भुतमभून्महत् ॥१९॥
 
-> tasyābhipaśyataḥ kha-sthaḥ
-> kṣaṇena kila bhārata
-> gaja-mātraḥ pravavṛdhe
+> tasyābhipaśyataḥ kha-sthaḥ\
+> kṣaṇena kila bhārata\
+> gaja-mātraḥ pravavṛdhe\
 > tad adbhutam abhūn mahat
 
 *tasya*—su; *abhipaśyataḥ*—mientras observaba de este modo; *kha-sthaḥ*—situado en el cielo; *kṣaṇena*—de repente; *kila*—verdaderamente; *bhārata*—¡oh, descendiente de Bharata!; *gaja-mātraḥ*—exactamente igual que un elefante; *pravavṛdhe*—completamente expandido; *tat*—que; *adbhutam*—extraordinario; *abhūt*—Se transformó; *mahat*—en un cuerpo gigantesco.

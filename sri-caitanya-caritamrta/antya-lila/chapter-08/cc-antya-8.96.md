@@ -1,9 +1,9 @@
 ### CC Antya 8.96
 
-> এইমত রামচন্দ্রপুরী নীলাচলে ।
+> এইমত রামচন্দ্রপুরী নীলাচলে ।\
 > দিন কত রহি’ গেলা ‘তীর্থ’ করিবারে ॥৯৬॥
 
-> ei-mata rāmacandra-purī nīlācale
+> ei-mata rāmacandra-purī nīlācale\
 > dina kata rahi' gelā 'tīrtha' karibāre
 
 *ei-mata*—in this way; *rāmacandra-purī*—Rāmacandra Purī; *nīlācale*—at Jagannātha Purī; *dina kata*—for some days; *rahi'*—staying; *gelā*—left; *tīrtha karibāre*—to visit holy places.

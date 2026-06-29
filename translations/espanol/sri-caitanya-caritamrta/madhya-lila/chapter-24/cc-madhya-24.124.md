@@ -1,9 +1,9 @@
 ### CC Madhya 24.124
 
-> সেই সবের সাধুসঙ্গে গুণ স্ফুরায় ।
+> সেই সবের সাধুসঙ্গে গুণ স্ফুরায় ।\
 > কৃষ্ণভজন করায়, ‘মুমুক্ষা’ ছাড়ায় ॥১২৪॥
 
-> sei sabera sādhu-saṅge guṇa sphurāya
+> sei sabera sādhu-saṅge guṇa sphurāya\
 > kṛṣṇa-bhajana karāya, 'mumukṣā' chāḍāya
 
 *sei sabera*—de todos esos adoradores de diferentes semidioses; *sādhu-saṅge*—el contacto con devotos genuinos; *guṇa sphurāya*—despierta la apreciación de las cualidades trascendentales; *kṛṣṇa-bhajana karāya*—los ocupa en el servicio devocional del Señor Kṛṣṇa; *mumukṣā chāḍāya*—y los lleva a abandonar el deseo de liberarse o de fundirse en el aspecto impersonal del Señor.

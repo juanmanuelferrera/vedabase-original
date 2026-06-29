@@ -1,13 +1,13 @@
 ### CC Madhya 22.19
 
-> নৈষ্কর্ম্যমপ্যচ্যুতভাব-বর্জিতং
-> ন শোভতে জ্ঞানমলং নিরঞ্জনম্ ।
-> কুতঃ পুনঃ শশ্বদভদ্রমীশ্বরে
+> নৈষ্কর্ম্যমপ্যচ্যুতভাব-বর্জিতং\
+> ন শোভতে জ্ঞানমলং নিরঞ্জনম্ ।\
+> কুতঃ পুনঃ শশ্বদভদ্রমীশ্বরে\
 > ন চার্পিতং কর্ম যদপ্যকারণম্ ॥১৯॥
 
-> naiṣkarmyam apy acyuta-bhāva-varjitaṁ
-> na śobhate jñānam alaṁ nirañjanam
-> kutaḥ punaḥ śaśvad abhadram īśvare
+> naiṣkarmyam apy acyuta-bhāva-varjitaṁ\
+> na śobhate jñānam alaṁ nirañjanam\
+> kutaḥ punaḥ śaśvad abhadram īśvare\
 > na cārpitaṁ karma yad apy akāraṇam
 
 *naiṣkarmyam*—que no produce el disfrute de la acción resultante; *api*—aunque; *acyuta-bhāva*—del servicio devocional a la Suprema Personalidad de Dios; *varjitam*—desprovisto; *na*—no; *śobhate*—luce hermoso; *jñānam*—conocimiento especulativo; *alam*—sumamente; *nirañjanam*—que está sin contaminación material; *kutaḥ*—cuánto menos; *punaḥ*—de nuevo; *śaśvat*—siempre (en el momento de practicar y en el momento de alcanzar la meta); *abhadram*—desfavorable; *īśvare*—a la Suprema Personalidad de Dios; *na*—no; *ca*—también; *arpitam*—dedicado; *karma*—actividades; *yat*—que; *api*—aunque; *akāraṇam*—sin causa.

@@ -1,11 +1,11 @@
 ### SB 3.20.29
 
-> तां क्वणच्चरणाम्भोजां मदविह्वललोचनाम् ।
+> तां क्वणच्चरणाम्भोजां मदविह्वललोचनाम् ।\
 > काञ्चीकलापविलसद् दुकूलच्छन्नरोधसम् ॥२९॥
 
-> tāṁ kvaṇac-caraṇāmbhojāṁ
-> mada-vihvala-locanām
-> kāñcī-kalāpa-vilasad-
+> tāṁ kvaṇac-caraṇāmbhojāṁ\
+> mada-vihvala-locanām\
+> kāñcī-kalāpa-vilasad-\
 > dukūla-cchanna-rodhasam
 
 *tām*—that body; *kvaṇat*—tinkling with ankle bells; *caraṇa-ambhojām*—with lotus feet; *mada*—intoxication; *vihvala*—overwhelmed; *locanām*—with eyes; *kāñcī-kalāpa*—with a girdle made of golden ornaments; *vilasat*—shining; *dukūla*—by fine cloth; *channa*—covered; *rodhasam*—having hips.

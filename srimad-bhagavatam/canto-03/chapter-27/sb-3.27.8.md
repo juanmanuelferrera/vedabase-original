@@ -1,11 +1,11 @@
 ### SB 3.27.8
 
-> यदृच्छयोपलब्धेन सन्तुष्टो मितभुङ्मुनिः ।
+> यदृच्छयोपलब्धेन सन्तुष्टो मितभुङ्मुनिः ।\
 > विविक्तशरणः शान्तो मैत्रः करुण आत्मवान् ॥८॥
 
-> yadṛcchayopalabdhena
-> santuṣṭo mita-bhuṅ muniḥ
-> vivikta-śaraṇaḥ śānto
+> yadṛcchayopalabdhena\
+> santuṣṭo mita-bhuṅ muniḥ\
+> vivikta-śaraṇaḥ śānto\
 > maitraḥ karuṇa ātmavān
 
 *yadṛcchayā*—without difficulty; *upalabdhena*—with what is obtained; *santuṣṭaḥ*—satisfied; *mita*—little; *bhuk*—eating; *muniḥ*—thoughtful; *vivikta-śaraṇaḥ*—living in a secluded place; *śāntaḥ*—peaceful; *maitraḥ*—friendly; *karuṇaḥ*—compassionate; *ātma-vān*—self-possessed, self-realized.

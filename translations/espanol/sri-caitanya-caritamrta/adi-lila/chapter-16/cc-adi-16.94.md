@@ -1,9 +1,9 @@
 ### CC Adi 16.94
 
-> শাস্ত্রের বিচার ভাল-মন্দ নাহি জানি ।
+> শাস্ত্রের বিচার ভাল-মন্দ নাহি জানি ।\
 > সরস্বতী যে বলায়, সেই বলি বাণী ॥৯৪॥
 
-> śāstrera vicāra bhāla-manda nāhi jāni
+> śāstrera vicāra bhāla-manda nāhi jāni\
 > sarasvatī ye balāya, sei bali vāṇī
 
 *śāstrera vicāra*—discusión sobre los śāstras; *bhāla-manda*—bueno o malo; *nāhi jāni*—no sé; *sarasvatī*—la madre Sarasvatī; *ye balāya*—lo que ella habla; *sei*—esas; *bali*—digo; *vāṇī*—palabras.

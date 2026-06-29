@@ -1,9 +1,9 @@
 ### CC Adi 6.42
 
-> চৈতন্যগোসাঞিকে আচার্য করে ‘প্রভু’-জ্ঞান ।
+> চৈতন্যগোসাঞিকে আচার্য করে ‘প্রভু’-জ্ঞান ।\
 > আপনাকে করেন তাঁর ‘দাস’-অভিমান ॥৪২॥
 
-> caitanya-gosāñike ācārya kare 'prabhu'-jñāna
+> caitanya-gosāñike ācārya kare 'prabhu'-jñāna\
 > āpanāke karena tāṅra 'dāsa'-abhimāna
 
 *caitanya-gosāñike*—unto Śrī Caitanya Mahāprabhu; *ācārya*—Advaita Ācārya; *kare*—does; *prabhu-jñāna*—considering His master; *āpanāke*—unto Himself; *karena*—does; *tāṅra*—of Śrī Caitanya Mahāprabhu; *dāsa*—as a servant; *abhimāna*—conception.

@@ -1,9 +1,9 @@
 ### CC Madhya 23.121
 
-> তুমি যে কহিলা, এই সিদ্ধান্তামৃত-সিন্ধু ।
+> তুমি যে কহিলা, এই সিদ্ধান্তামৃত-সিন্ধু ।\
 > মোর মন ছুঁইতে নারে ইহার একবিন্দু ॥১২১॥
 
-> tumi ye kahilā, ei siddhāntāmṛta-sindhu
+> tumi ye kahilā, ei siddhāntāmṛta-sindhu\
 > mora mana chuṅite nāre ihāra eka-bindu
 
 *tumi ye*—You; *kahilā*—have spoken; *ei*—this; *siddhānta-amṛta-sindhu*—the ocean of the ambrosia of conclusive truth; *mora mana*—my mind; *chuṅite*—to touch; *nāre*—is not able; *ihāra*—of it; *eka-bindu*—even a drop.

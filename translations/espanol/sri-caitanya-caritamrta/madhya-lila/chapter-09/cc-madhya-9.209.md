@@ -1,9 +1,9 @@
 ### CC Madhya 9.209
 
-> নূতন পত্র লেখাঞা পুস্তকে দেওয়াইল ৷
+> নূতন পত্র লেখাঞা পুস্তকে দেওয়াইল ৷\
 > প্রতীতি লাগি’ পুরাতন পত্র মাগি’ নিল ৷৷ ২০৯ ৷৷ ॥২০৯॥
 
-> nūtana patra lekhāñā pustake deoyāila
+> nūtana patra lekhāñā pustake deoyāila\
 > pratīti lāgi' purātana patra māgi' nila
 
 *nūtana*—nuevas; *patra*—hojas; *lekhāñā*—haciendo escribir; *pustake*—el libro; *deoyāila*—entregó; *pratīti lāgi'*—como prueba directa; *purātana*—las antiguas; *patra*—hojas; *māgi'*—solicitando; *nila*—tomó.

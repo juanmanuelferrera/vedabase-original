@@ -1,9 +1,9 @@
 ### CC Antya 5.26
 
-> প্রতিদিন রায় ঐছে করায় সাধন ।
+> প্রতিদিন রায় ঐছে করায় সাধন ।\
 > কোন্ জানে ক্ষুদ্র জীব কাঁহা তাঁর মন ? ॥ ২৬ ॥
 
-> prati-dina rāya aiche karāya sādhana
+> prati-dina rāya aiche karāya sādhana\
 > kon jāne kṣudra jīva kāṅhā tāṅra mana?
 
 *prati-dina*—diariamente; *rāya*—Rāmānanda Rāya; *aiche*—de este modo; *karāya sādhana*—instruye con regularidad; *kon jāne*—quién puede saber; *kṣudra jīva*—una entidad viviente insignificante; *kāṅhā*—dónde; *tāṅra*—su; *mana*—mente.

@@ -1,9 +1,9 @@
 ### CC Antya 7.167
 
-> অভিমান-পঙ্ক ধুঞা ভট্টেরে শোধিলা ।
+> অভিমান-পঙ্ক ধুঞা ভট্টেরে শোধিলা ।\
 > সেইদ্বারা আর সব লোকে শিখাইলা ॥১৬৭॥
 
-> abhimāna-paṅka dhuñā bhaṭṭere śodhilā
+> abhimāna-paṅka dhuñā bhaṭṭere śodhilā\
 > sei-dvārā āra saba loke śikhāilā
 
 *abhimāna-paṅka*—the mud of false pride; *dhuñā*—washing; *bhaṭṭere śodhilā*—purified Vallabha Bhaṭṭa; *sei-dvārā*—by that; *āra saba*—all other; *loke*—persons; *śikhāilā*—instructed.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.60
 
-> তোমা দেখি, তোমা স্পর্শি, গাই তোমার গুণ ।
+> তোমা দেখি, তোমা স্পর্শি, গাই তোমার গুণ ।\
 > সর্বেন্দ্রিয়-ফল, — এই শাস্ত্র-নিরূপণ ॥৬০॥
 
-> tomā dekhi, tomā sparśi, gāi tomāra guṇa
+> tomā dekhi, tomā sparśi, gāi tomāra guṇa\
 > sarvendriya-phala,--ei śāstra-nirūpaṇa
 
 *tomā dekhi*—al verte; *tomā sparśi*—al tocarte; *gāi tomāra guṇa*—al glorificar tus cualidades trascendentales; *sarva-indriya-phala*—la perfección de las actividades de todos los sentidos; *ei*—este; *śāstra-nirūpaṇa*—el veredicto de las escrituras reveladas.

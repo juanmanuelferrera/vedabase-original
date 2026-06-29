@@ -1,14 +1,14 @@
 ### SB 8.19.41
 
-> पराग्रिक्तमपूर्णं वा अक्षरं यत्तदोमिति
-> यत्किञ्चिदोमिति ब्रूयात्तेन रिच्येत वै पुमान
+> पराग्रिक्तमपूर्णं वा अक्षरं यत्तदोमिति\
+> यत्किञ्चिदोमिति ब्रूयात्तेन रिच्येत वै पुमान\
 > भिक्षवे सर्वमों कुर्वन्नालं कामेन चात्मने ॥४१॥
 
-> parāg riktam apūrṇaṁ vā
-> akṣaraṁ yat tad om iti
-> yat kiñcid om iti brūyāt
-> tena ricyeta vai pumān
-> bhikṣave sarvam oṁ kurvan
+> parāg riktam apūrṇaṁ vā\
+> akṣaraṁ yat tad om iti\
+> yat kiñcid om iti brūyāt\
+> tena ricyeta vai pumān\
+> bhikṣave sarvam oṁ kurvan\
 > nālaṁ kāmena cātmane
 
 *parāk*—lo que separa; *riktam*—lo que nos libera del apego; *apūrṇam*—lo que es insuficiente; *vā*—o; *akṣaram*—esta sílaba; *yat*—esa; *tat*—que; *om*—*oṁkāra*; *iti*—así se afirma; *yat*—que; *kiñcit*—todo lo que; *oṁ*—esta palabra *oṁ*; *iti*—así; *brūyāt*—si tú dices; *tena*—por el hecho de pronunciarla; *ricyeta*—se libera; *vai*—en verdad; *pumān*—una persona; *bhikṣave*—a un mendigo; *sarvam*—todo; *oṁ kurvan*—dar caridad pronunciando la palabra *oṁ*; *na*—no; *alam*—bastante; *kāmena*—por complacer los sentidos; *ca*—también; *ātmane*—por autorrealización.

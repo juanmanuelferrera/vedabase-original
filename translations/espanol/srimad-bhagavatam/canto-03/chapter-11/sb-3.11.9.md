@@ -1,11 +1,11 @@
 ### SB 3.11.9
 
-> द्वादशार्धपलोन्मानं चतुर्भिश्चतुरङ्गुलैः ।
+> द्वादशार्धपलोन्मानं चतुर्भिश्चतुरङ्गुलैः ।\
 > स्वर्णमाषैः कृतच्छिद्रं यावत्प्रस्थजलप्लुतम् ॥९॥
 
-> dvādaśārdha-palonmānaṁ
-> caturbhiś catur-aṅgulaiḥ
-> svarṇa-māṣaiḥ kṛta-cchidraṁ
+> dvādaśārdha-palonmānaṁ\
+> caturbhiś catur-aṅgulaiḥ\
+> svarṇa-māṣaiḥ kṛta-cchidraṁ\
 > yāvat prastha-jala-plutam
 
 *dvādaśa-ardha*—seis; *pala*—de la escala de peso; *unmānam*—tarro de medida; *caturbhiḥ*—por el peso de cuatro; *catuḥ-aṅgulaiḥ*—que mide cuatro dedos; *svarṇa*—de oro; *māṣaiḥ*—del peso; *kṛta-chidram*—haciendo un agujero; *yāvat*—mientras que; *prastha*—que mide un *prastha*; *jala-plutam*—llenado con agua.

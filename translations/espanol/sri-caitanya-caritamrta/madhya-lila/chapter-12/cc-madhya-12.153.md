@@ -1,9 +1,9 @@
 ### CC Madhya 12.153
 
-> উদ্যানে বসিলা প্রভু ভক্তগণ লঞা ।
+> উদ্যানে বসিলা প্রভু ভক্তগণ লঞা ।\
 > তবে বাণীনাথ আইলা মহাপ্রসাদ লঞা ॥১৫৩॥
 
-> udyāne vasilā prabhu bhakta-gaṇa lañā
+> udyāne vasilā prabhu bhakta-gaṇa lañā\
 > tabe vāṇīnātha āilā mahā-prasāda lañā
 
 *udyāne*—en el jardín; *vasilā*—se sentó; *prabhu*—Śrī Caitanya Mahāprabhu; *bhakta-gaṇa lañā*—con los devotos; *tabe*—en ese momento; *vāṇīnātha*—Vāṇīnātha Rāya; *āilā*—llegó; *mahā-prasāda lañā*—trayendo toda clase de mahā-prasāda.

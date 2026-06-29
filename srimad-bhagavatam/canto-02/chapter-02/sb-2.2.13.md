@@ -1,11 +1,11 @@
 ### SB 2.2.13
 
-> एकैकशोऽङ्गानि धियानुभावयेत्पादादि यावद्धसितं गदाभृतः ।
+> एकैकशोऽङ्गानि धियानुभावयेत्पादादि यावद्धसितं गदाभृतः ।\
 > जितं जितं स्थानमपोह्य धारयेत्परं परं शुद्ध्यति धीर्यथा यथा ॥१३॥
 
-> ekaikaśo 'ṅgāni dhiyānubhāvayet
-> pādādi yāvad dhasitaṁ gadābhṛtaḥ
-> jitaṁ jitaṁ sthānam apohya dhārayet
+> ekaikaśo 'ṅgāni dhiyānubhāvayet\
+> pādādi yāvad dhasitaṁ gadābhṛtaḥ\
+> jitaṁ jitaṁ sthānam apohya dhārayet\
 > paraṁ paraṁ śuddhyati dhīr yathā yathā
 
 *eka-ekaśaḥ*—one to one, or one after another; *aṅgāni*—limbs; *dhiyā*—by attention; *anubhāvayet*—meditate upon; *pāda-ādi*—legs, etc.; *yāvat*—until; *hasitam*—smiling; *gadā-bhṛtaḥ*—the Personality of Godhead; *jitam jitam*—gradually controlling the mind; *sthānam*—place; *apohya*—leaving; *dhārayet*—meditate upon; *param param*—higher and higher; *śuddhyati*—purified; *dhīḥ*—intelligence; *yathā yathā*—as much as.

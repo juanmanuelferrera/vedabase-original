@@ -1,11 +1,11 @@
 ### SB 2.10.30
 
-> निदिध्यासोरात्ममायां हृदयं निरभिद्यत ।
+> निदिध्यासोरात्ममायां हृदयं निरभिद्यत ।\
 > ततो मनश्चन्द्र इति सङ्कल्पः काम एव च ॥३०॥
 
-> nididhyāsor ātma-māyāṁ
-> hṛdayaṁ nirabhidyata
-> tato manaś candra iti
+> nididhyāsor ātma-māyāṁ\
+> hṛdayaṁ nirabhidyata\
+> tato manaś candra iti\
 > saṅkalpaḥ kāma eva ca
 
 *nididhyāsoḥ*—being desirous to know; *ātma-māyām*—own energy; *hṛdayam*—the location of the mind; *nirabhidyata*—was manifested; *tataḥ*—thereafter; *manaḥ*—the mind; *candraḥ*—the controlling deity of the mind, the moon; *iti*—thus; *saṅkalpaḥ*—determination; *kāmaḥ*—desire; *eva*—as much as; *ca*—also.

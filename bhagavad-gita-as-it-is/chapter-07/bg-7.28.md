@@ -1,11 +1,11 @@
 ### Bg 7.28
 
-> येषां त्वन्तगतं पापं जनानां पुण्यकर्मणाम् ।
+> येषां त्वन्तगतं पापं जनानां पुण्यकर्मणाम् ।\
 > ते द्वन्द्वमोहनिर्मुक्ता भजन्ते मां दृढव्रताः ॥२८॥
 
-> yeṣāṁ tv anta-gataṁ pāpaṁ
-> janānāṁ puṇya-karmaṇām
-> te dvandva-moha-nirmuktā
+> yeṣāṁ tv anta-gataṁ pāpaṁ\
+> janānāṁ puṇya-karmaṇām\
+> te dvandva-moha-nirmuktā\
 > bhajante māṁ dṛḍha-vratāḥ
 
 *yeṣām*—whose; *tu*—but; *anta-gatam*—completely eradicated; *pāpam*—sin; *janānām*—of the persons; *puṇya*—pious; *karmaṇām*—previous activities; *te*—they; *dvandva*—duality; *moha*—delusion; *nirmuktāḥ*—free from; *bhajante*—worship; *mām*—Me; *dṛḍha-vratāḥ*—with determination.

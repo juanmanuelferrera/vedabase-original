@@ -1,13 +1,13 @@
 ### SB 3.28.34
 
-> एवं हरौ भगवति प्रतिलब्धभावो
-> भक्त्या द्रवद्धृदय उत्पुलकः प्रमोदात् ।
-> औत्कण्ठ्यबाष्पकलया मुहुरर्द्यमानस्
+> एवं हरौ भगवति प्रतिलब्धभावो\
+> भक्त्या द्रवद्धृदय उत्पुलकः प्रमोदात् ।\
+> औत्कण्ठ्यबाष्पकलया मुहुरर्द्यमानस्\
 > तच्चापि चित्तबडिशं शनकैर्वियुङ्क्ते ॥३४॥
 
-> evaṁ harau bhagavati pratilabdha-bhāvo
-> bhaktyā dravad-dhṛdaya utpulakaḥ pramodāt
-> autkaṇṭhya-bāṣpa-kalayā muhur ardyamānas
+> evaṁ harau bhagavati pratilabdha-bhāvo\
+> bhaktyā dravad-dhṛdaya utpulakaḥ pramodāt\
+> autkaṇṭhya-bāṣpa-kalayā muhur ardyamānas\
 > tac cāpi citta-baḍiśaṁ śanakair viyuṅkte
 
 *evam*—thus; *harau*—towards Lord Hari; *bhagavati*—the Personality of Godhead; *pratilabdha*—developed; *bhāvaḥ*—pure love; *bhaktyā*—by devotional service; *dravat*—melting; *hṛdayaḥ*—his heart; *utpulakaḥ*—experiencing standing of the hairs of the body; *pramodāt*—from excessive joy; *autkaṇṭhya*—occasioned by intense love; *bāṣpa-kalayā*—by a stream of tears; *muhuḥ*—constantly; *ardyamānaḥ*—being afflicted; *tat*—that; *ca*—and; *api*—even; *citta*—the mind; *baḍiśam*—hook; *śanakaiḥ*—gradually; *viyuṅkte*—withdraws.

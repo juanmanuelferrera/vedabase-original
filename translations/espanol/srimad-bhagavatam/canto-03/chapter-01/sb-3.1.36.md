@@ -1,11 +1,11 @@
 ### SB 3.1.36
 
-> अपि स्वदोर्भ्यां विजयाच्युताभ्यां धर्मेण धर्मः परिपाति सेतुम् ।
+> अपि स्वदोर्भ्यां विजयाच्युताभ्यां धर्मेण धर्मः परिपाति सेतुम् ।\
 > दुर्योधनोऽतप्यत यत्सभायां साम्राज्यलक्ष्म्या विजयानुवृत्त्या ॥३६॥
 
-> api sva-dorbhyāṁ vijayācyutābhyāṁ
-> dharmeṇa dharmaḥ paripāti setum
-> duryodhano 'tapyata yat-sabhāyāṁ
+> api sva-dorbhyāṁ vijayācyutābhyāṁ\
+> dharmeṇa dharmaḥ paripāti setum\
+> duryodhano 'tapyata yat-sabhāyāṁ\
 > sāmrājya-lakṣmyā vijayānuvṛttyā
 
 *api*—así como también; *sva-dorbhyām*—propios brazos; *vijaya*—Arjuna; *acyutā-bhyām*—juntamente con Śrī Kṛṣṇa; *dharmeṇa*—sobre la base de principios religiosos; *dharmaḥ*—el rey Yudhiṣṭhira; *paripāti*—mantiene; *setum*—el respeto a la religión; *duryodhanaḥ*—Duryodhana; *atapyata*—envidiaba; *yat*—cuya; *sabhāyām*—asamblea real; *sāmrājya*—imperial; *lakṣmyā*—opulencia; *vijaya-anuvṛttyā*—por el servicio de Arjuna.

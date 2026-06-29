@@ -1,11 +1,11 @@
 ### CC Madhya 19.176
 
-> ভুক্তি-মুক্তি-স্পৃহা যাবৎ পিশাচী হৃদি বর্ততে ৷
+> ভুক্তি-মুক্তি-স্পৃহা যাবৎ পিশাচী হৃদি বর্ততে ৷\
 > তাবদ্ভক্তিসুখস্যাত্র কথমভ্যুদয়ো ভবেৎ ॥১৭৬॥
 
-> bhukti-mukti-spṛhā yāvat
-> piśācī hṛdi vartate
-> tāvad bhakti-sukhasyātra
+> bhukti-mukti-spṛhā yāvat\
+> piśācī hṛdi vartate\
+> tāvad bhakti-sukhasyātra\
 > katham abhyudayo bhavet
 
 *bhukti*—de disfrute material; *mukti*—y de liberación de la existencia material; *spṛhā*—deseo; *yāvat*—mientras; *piśācī*—las brujas; *hṛdi*—dentro del corazón; *vartate*—permanezcan; *tāvat*—durante ese tiempo; *bhakti*—del servicio devocional; *sukhasya*—de la felicidad; *atra*—aquí; *katham*—cómo; *abhyudayaḥ*—despertar; *bhavet*—puede haber.

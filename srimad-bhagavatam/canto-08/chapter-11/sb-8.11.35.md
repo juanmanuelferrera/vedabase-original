@@ -1,11 +1,11 @@
 ### SB 8.11.35
 
-> तपःसारमयं त्वाष्ट्रं वृत्रो येन विपाटितः
+> तपःसारमयं त्वाष्ट्रं वृत्रो येन विपाटितः\
 > अन्ये चापि बलोपेताः सर्वास्त्रैरक्षतत्वचः ॥३५॥
 
-> tapaḥ-sāramayaṁ tvāṣṭraṁ
-> vṛtro yena vipāṭitaḥ
-> anye cāpi balopetāḥ
+> tapaḥ-sāramayaṁ tvāṣṭraṁ\
+> vṛtro yena vipāṭitaḥ\
+> anye cāpi balopetāḥ\
 > sarvāstrair akṣata-tvacaḥ
 
 *tapaḥ*—austerities; *sāra-mayam*—greatly powerful; *tvāṣṭram*—performed by Tvaṣṭā; *vṛtraḥ*—Vṛtrāsura; *yena*—by which; *vipāṭitaḥ*—was killed; *anye*—others; *ca*—also; *api*—indeed; *bala-upetāḥ*—very powerful persons; *sarva*—all kinds; *astraiḥ*—by weapons; *akṣata*—without being injured; *tvacaḥ*—their skin.

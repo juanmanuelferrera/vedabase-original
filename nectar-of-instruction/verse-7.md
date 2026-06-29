@@ -1,13 +1,13 @@
 ### 7
 
-> स्यात् कृष्णनामचरितादिसिताप्यविद्या-
-> पित्तोपतप्तरसनस्य न रोचिका नु ।
-> किन्त्वादरादनुदिनं खलु सैव जुष्टा
+> स्यात् कृष्णनामचरितादिसिताप्यविद्या-\
+> पित्तोपतप्तरसनस्य न रोचिका नु ।\
+> किन्त्वादरादनुदिनं खलु सैव जुष्टा\
 > स्वाद्वी क्रमाद्भवति तद्गदमूलहन्त्री ॥७॥
 
-> syāt kṛṣṇa-nāma-caritādi-sitāpy avidyā-
-> pittopatapta-rasanasya na rocikā nu
-> kintv ādarād anudinaṁ khalu saiva juṣṭā
+> syāt kṛṣṇa-nāma-caritādi-sitāpy avidyā-\
+> pittopatapta-rasanasya na rocikā nu\
+> kintv ādarād anudinaṁ khalu saiva juṣṭā\
 > svādvī kramād bhavati tad-gada-mūla-hantrī
 
 *syāt*—is; *kṛṣṇa*—of Lord Kṛṣṇa; *nāma*—the holy name; *carita-ādi*—character, pastimes and so forth; *sitā*—sugar candy; *api*—although; *avidyā*—of ignorance; *pitta*—by the bile; *upatapta*—afflicted; *rasanasya*—of the tongue; *na*—not; *rocikā*—palatable; *nu*—oh, how wonderful it is; *kintu*—but; *ādarāt*—carefully; *anudinam*—every day, or twenty-four hours daily; *khalu*—naturally; *sā*—that (sugar candy of the holy name); *eva*—certainly; *juṣṭā*—taken or chanted; *svādvī*—relishable; *kramāt*—gradually; *bhavati*—becomes; *tat-gada*—of that disease; *mūla*—of the root; *hantrī*—the destroyer.

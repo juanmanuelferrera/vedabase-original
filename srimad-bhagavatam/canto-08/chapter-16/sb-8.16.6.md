@@ -1,11 +1,11 @@
 ### SB 8.16.6
 
-> अपि वातिथयोऽभ्येत्य कुटुम्बासक्तया त्वया
+> अपि वातिथयोऽभ्येत्य कुटुम्बासक्तया त्वया\
 > गृहादपूजिता याताः प्रत्युत्थानेन वा क्वचित ॥६॥
 
-> api vātithayo 'bhyetya
-> kuṭumbāsaktayā tvayā
-> gṛhād apūjitā yātāḥ
+> api vātithayo 'bhyetya\
+> kuṭumbāsaktayā tvayā\
+> gṛhād apūjitā yātāḥ\
 > pratyutthānena vā kvacit
 
 *api*—whether; *vā*—either; *atithayaḥ*—guests who come without an invitation; *abhyetya*—coming to the home; *kuṭumba-āsaktayā*—who were too attached to the family members; *tvayā*—by you; *gṛhāt*—from the house; *apūjitāḥ*—without being properly welcomed; *yātāḥ*—went away; *pratyutthānena*—by standing up; *vā*—either; *kvacit*—sometimes.

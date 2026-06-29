@@ -1,11 +1,11 @@
 ### SB 7.2.13
 
-> इति ते भर्तृनिर्देशमादाय शिरसादृताः
+> इति ते भर्तृनिर्देशमादाय शिरसादृताः\
 > तथा प्रजानां कदनं विदधुः कदनप्रियाः ॥१३॥
 
-> iti te bhartṛ-nirdeśam
-> ādāya śirasādṛtāḥ
-> tathā prajānāṁ kadanaṁ
+> iti te bhartṛ-nirdeśam\
+> ādāya śirasādṛtāḥ\
+> tathā prajānāṁ kadanaṁ\
 > vidadhuḥ kadana-priyāḥ
 
 *iti*—así; *te*—ellos; *bhartṛ*—del señor; *nirdeśam*—la orden; *ādāya*—recibir; *śirasā*—con sus cabezas; *ādṛtāḥ*—respetar; *tathā*—así también; *prajānām*—de todos los ciudadanos; *kadanam*—persecución; *vidadhuḥ*—ejecutaron; *kadana-priyāḥ*—que son expertos en perseguir a otros.

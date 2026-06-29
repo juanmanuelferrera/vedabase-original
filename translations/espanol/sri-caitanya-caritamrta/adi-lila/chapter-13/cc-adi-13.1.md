@@ -1,11 +1,11 @@
 ### CC Adi 13.1
 
-> স প্রসীদতু চৈতন্যদেবো যস্য প্রসাদতঃ ।
+> স প্রসীদতু চৈতন্যদেবো যস্য প্রসাদতঃ ।\
 > তল্লীলাবর্ণনে যোগ্যঃ সদ্যঃ স্যাদধমোঽপ্যয়ম্ ॥১॥
 
-> sa prasīdatu caitanya-
-> devo yasya prasādataḥ
-> tal-līlā-varṇane yogyaḥ
+> sa prasīdatu caitanya-\
+> devo yasya prasādataḥ\
+> tal-līlā-varṇane yogyaḥ\
 > sadyaḥ syād adhamo 'py ayam
 
 *saḥ*—Él; *prasīdatu*—que conceda Sus bendiciones; *caitanya-devaḥ*—el Señor Śrī Caitanya Mahāprabhu; *yasya*—de quien; *prasādataḥ*—por la gracia; *tat-līlā*—Sus pasatiempos; *varṇane*—en la descripción; *yogyaḥ*—capaz; *sadyaḥ*—inmediatamente; *syāt*—se vuelve posible; *adhamaḥ*—el más caído; *api*—aunque; *ayam*—yo soy.

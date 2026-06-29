@@ -1,9 +1,9 @@
 ### CC Antya 1.149
 
-> রায় কহে, — “কহ সহজ-প্রেমের লক্ষণ” ।
+> রায় কহে, — “কহ সহজ-প্রেমের লক্ষণ” ।\
 > রূপ-গোসাঞি কহে, “সাহজিক প্রেমধর্ম” ॥১৪৯॥
 
-> rāya kahe,--"kaha sahaja-premera lakṣaṇa"
+> rāya kahe,--"kaha sahaja-premera lakṣaṇa"\
 > rūpa-gosāñi kahe,--"sāhajika prema-dharma"
 
 *rāya kahe*—Śrīla Rāmānanda Rāya pregunta; *kaha*—por favor dime; *sahaja-premera*—del amor natural; *lakṣaṇa*—las características; *rūpa-gosāñi kahe*—Rūpa Gosvāmī responde; *sāhajika*—espontáneo; *prema-dharma*—el carácter del amor por Dios.

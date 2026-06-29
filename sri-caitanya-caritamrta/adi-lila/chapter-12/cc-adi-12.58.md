@@ -1,9 +1,9 @@
 ### CC Adi 12.58
 
-> ভাগবতাচার্য, আর বিষ্ণুদাসাচার্য ।
+> ভাগবতাচার্য, আর বিষ্ণুদাসাচার্য ।\
 > চক্রপাণি আচার্য, আর অনন্ত আচার্য ॥৫৮॥
 
-> bhāgavatācārya, āra viṣṇudāsācārya
+> bhāgavatācārya, āra viṣṇudāsācārya\
 > cakrapāṇi ācārya, āra ananta ācārya
 
 *bhāgavata-ācārya*—of the name Bhāgavata Ācārya; *āra*—and; *viṣṇudāsa-ācārya*—of the name Viṣṇudāsa Ācārya; *cakrapāṇi ācārya*—of the name Cakrapāṇi Ācārya; *āra*—and; *anantaācārya*—of the name Ananta Ācārya.

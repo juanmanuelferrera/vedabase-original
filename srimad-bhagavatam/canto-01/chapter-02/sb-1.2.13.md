@@ -1,11 +1,11 @@
 ### SB 1.2.13
 
-> अतः पुम्भिर्द्विजश्रेष्ठा वर्णाश्रमविभागशः ।
+> अतः पुम्भिर्द्विजश्रेष्ठा वर्णाश्रमविभागशः ।\
 > स्वनुष्ठितस्य धर्मस्य संसिद्धिर्हरितोषणम् ॥१३॥
 
-> ataḥ pumbhir dvija-śreṣṭhā
-> varṇāśrama-vibhāgaśaḥ
-> svanuṣṭhitasya dharmasya
+> ataḥ pumbhir dvija-śreṣṭhā\
+> varṇāśrama-vibhāgaśaḥ\
+> svanuṣṭhitasya dharmasya\
 > saṁsiddhir hari-toṣaṇam
 
 *ataḥ*—so; *pumbhiḥ*—by the human being; *dvija-śreṣṭhāḥ*—O best among the twice-born; *varṇa-āśrama*—the institution of four castes and four orders of life; *vibhāgaśaḥ*—by the division of; *svanuṣṭhitasya*—of one's own prescribed duties; *dharmasya*—occupational; *saṁsiddhiḥ*—the highest perfection; *hari*—the Personality of Godhead; *toṣaṇam*—pleasing.

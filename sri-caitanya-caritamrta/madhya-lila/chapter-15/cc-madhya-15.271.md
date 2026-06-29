@@ -1,9 +1,9 @@
 ### CC Madhya 15.271
 
-> গোপীনাথাচার্য গেলা প্রভু-দরশনে ।
+> গোপীনাথাচার্য গেলা প্রভু-দরশনে ।\
 > প্রভু তাঁরে পুছিল ভট্টাচার্য-বিবরণে ॥২৭১॥
 
-> gopīnāthācārya gelā prabhu-daraśane
+> gopīnāthācārya gelā prabhu-daraśane\
 > prabhu tāṅre puchila bhaṭṭācārya-vivaraṇe
 
 *gopīnāthācārya*—Gopīnātha Ācārya; *gelā*—went; *prabhu-daraśane*—to see Lord Śrī Caitanya Mahāprabhu; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *tāṅre*—unto Him; *puchila*—inquired; *bhaṭṭācārya-vivaraṇe*—the affairs in the house of Sārvabhauma Bhaṭṭācārya.

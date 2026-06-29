@@ -1,9 +1,9 @@
 ### CC Antya 8.73
 
-> পুরীর স্বভাব, — যথেষ্ট আহার করাঞা ।
+> পুরীর স্বভাব, — যথেষ্ট আহার করাঞা ।\
 > যে না খায়, তারে খাওয়ায় যতন করিয়া ॥৭৩॥
 
-> purīra svabhāva,--yatheṣṭa āhāra karāñā
+> purīra svabhāva,--yatheṣṭa āhāra karāñā\
 > ye nā khāya, tāre khāoyāya yatana kariyā
 
 *purīra svabhāva*—el carácter de Rāmacandra Purī; *yathā-iṣṭa*—tanto como se desee; *āhāra karāñā*—haciendo comer a alguien; *ye*—lo que; *nā khāya*—uno no come; *tāre khāoyāya*—le hace comer; *yatana kariyā*—con gran atención.

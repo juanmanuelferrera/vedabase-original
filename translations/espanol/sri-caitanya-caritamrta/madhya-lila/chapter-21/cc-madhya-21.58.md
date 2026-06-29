@@ -1,9 +1,9 @@
 ### CC Madhya 21.58
 
-> অনন্ত ব্রহ্মাণ্ডের যত ব্রহ্মা-রুদ্রগণ ।
+> অনন্ত ব্রহ্মাণ্ডের যত ব্রহ্মা-রুদ্রগণ ।\
 > চিরলোকপাল-শব্দে তাহার গণন ॥৫৮॥
 
-> ananta brahmāṇḍera yata brahmā-rudra-gaṇa
+> ananta brahmāṇḍera yata brahmā-rudra-gaṇa\
 > cira-loka-pāla-śabde tāhāra gaṇana
 
 *ananta*—ilimitados; *brahmāṇḍera*—de los universos; *yata*—todos; *brahmā*—los Señores Brahmās; *rudra-gaṇa*—y los Señores Śivas; *cira-loka-pāla*—gobernadores permanentes de los mundos; *śabde*—por la palabra; *tāhāra*—de ellos; *gaṇana*—recuento.

@@ -1,18 +1,18 @@
 ### SB 7.6.17-18
 
-> यतो न कश्चित्क्व च कुत्रचिद्वा दीनः स्वमात्मानमलं समर्थः
-> विमोचितुं कामदृशां विहार क्रीडामृगो यन्निगडो विसर्गः ॥१७॥
-> ततो विदूरात्परिहृत्य दैत्या दैत्येषु सङ्गं विषयात्मकेषु
+> यतो न कश्चित्क्व च कुत्रचिद्वा दीनः स्वमात्मानमलं समर्थः\
+> विमोचितुं कामदृशां विहार क्रीडामृगो यन्निगडो विसर्गः ॥१७॥\
+> ततो विदूरात्परिहृत्य दैत्या दैत्येषु सङ्गं विषयात्मकेषु\
 > उपेत नारायणमादिदेवं स मुक्तसङ्गैरिषितोऽपवर्गः ॥१८॥
 
-> yato na kaścit kva ca kutracid vā
-> dīnaḥ svam ātmānam alaṁ samarthaḥ
-> vimocituṁ kāma-dṛśāṁ vihāra-
+> yato na kaścit kva ca kutracid vā\
+> dīnaḥ svam ātmānam alaṁ samarthaḥ\
+> vimocituṁ kāma-dṛśāṁ vihāra-\
 > krīḍā-mṛgo yan-nigaḍo visargaḥ
 
-> tato vidūrāt parihṛtya daityā
-> daityeṣu saṅgaṁ viṣayātmakeṣu
-> upeta nārāyaṇam ādi-devaṁ
+> tato vidūrāt parihṛtya daityā\
+> daityeṣu saṅgaṁ viṣayātmakeṣu\
+> upeta nārāyaṇam ādi-devaṁ\
 > sa mukta-saṅgair iṣito 'pavargaḥ
 
 *yataḥ*—because; *na*—never; *kaścit*—anyone; *kva*—in any place; *ca*—also; *kutracit*—at any time; *vā*—or; *dīnaḥ*—having a poor fund of knowledge; *svam*—own; *ātmānam*—self; *alam*—exceedingly; *samarthaḥ*—able; *vimocitum*—to liberate; *kāma-dṛśām*—of lusty women; *vihāra*—in the sexual enjoyment; *krīḍā-mṛgaḥ*—a playboy; *yat*—in whom; *nigaḍaḥ*—which is the shackle of material bondage; *visargaḥ*—the expansions of family relationships; *tataḥ*—in such circumstances; *vidūrāt*—from far away; *parihṛtya*—giving up; *daityāḥ*—O my friends, sons of the demons; *daityeṣu*—among the demons; *saṅgam*—association; *viṣaya-ātma-keṣu*—who are too addicted to sense enjoyment; *upeta*—one should approach; *nārāyaṇam*—Lord Nārāyaṇa, the Supreme Personality of Godhead; *ādi-devam*—the origin of all the demigods; *saḥ*—He; *mukta-saṅgaiḥ*—by the association of liberated persons; *iṣitaḥ*—desired; *apavargaḥ*—the path of liberation.

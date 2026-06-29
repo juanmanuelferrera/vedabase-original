@@ -1,9 +1,9 @@
 ### CC Adi 5.98
 
-> জলে ভরি’ অর্ধ তাঁহা কৈল নিজ-বাস ।
+> জলে ভরি’ অর্ধ তাঁহা কৈল নিজ-বাস ।\
 > আর অর্ধে কৈল চৌদ্দভুবন প্রকাশ ॥৯৮॥
 
-> jale bhari' ardha tāṅhā kaila nija-vāsa
+> jale bhari' ardha tāṅhā kaila nija-vāsa\
 > āra ardhe kaila caudda-bhuvana prakāśa
 
 *jale*—with water; *bhari'*—filling; *ardha*—half; *tāṅhā*—there; *kaila*—made; *nija-vāsa*—own residence; *āra*—other; *ardhe*—in the half; *kaila*—did; *caudda-bhuvana*—fourteen worlds; *prakāśa*—manifestation.

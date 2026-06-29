@@ -1,9 +1,9 @@
 ### CC Madhya 3.132
 
-> এই মত প্ৰহরেক নাচে প্রভু রঙ্গে ।
+> এই মত প্ৰহরেক নাচে প্রভু রঙ্গে ।\
 > কভু হর্ষ, কভু বিষাদ, ভাবের তরঙ্গে ॥১৩২॥
 
-> ei mata prahareka nāce prabhu raṅge
+> ei mata prahareka nāce prabhu raṅge\
 > kabhu harṣa, kabhu viṣāda, bhāvera taraṅge
 
 *ei mata*—in this way; *prahareka*—for about three hours; *nāce*—dances; *prabhu*—Lord Caitanya Mahāprabhu; *raṅge*—in great ecstasy; *kabhu*—sometimes; *harṣa*—pleasure; *kabhu*—sometimes; *viṣāda*—moroseness; *bhāvera*—of ecstasy; *taraṅge*—in the waves.

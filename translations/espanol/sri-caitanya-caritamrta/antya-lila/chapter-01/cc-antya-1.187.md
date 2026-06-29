@@ -1,9 +1,9 @@
 ### CC Antya 1.187
 
-> রায় কহে, — “কহ আগে অঙ্গের বিশেষ” ।
+> রায় কহে, — “কহ আগে অঙ্গের বিশেষ” ।\
 > শ্রীরূপ কহেন কিছু সংক্ষেপ-উদ্দেশ ॥১৮৭॥
 
-> rāya kahe,--"kaha āge aṅgera viśeṣa"
+> rāya kahe,--"kaha āge aṅgera viśeṣa"\
 > śrī-rūpa kahena kichu saṅkṣepa-uddeśa
 
 *rāya kahe*—Śrīla Rāmānanda Rāya dice; *kaha*—por favor dime; *āge*—más; *aṅgera viśeṣa*—partes específicas; *śrī-rūpa kahena*—Śrīla Rūpa Gosvāmī dice; *kichu*—algo; *saṅkṣepa*—brevemente; *uddeśa*—referencia.

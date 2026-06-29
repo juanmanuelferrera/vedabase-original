@@ -1,11 +1,11 @@
 ### SB 9.24.57
 
-> न ह्यस्य जन्मनो हेतुः कर्मणो वा महीपते
+> न ह्यस्य जन्मनो हेतुः कर्मणो वा महीपते\
 > आत्ममायां विनेशस्य परस्य द्रष्टुरात्मनः ॥५७॥
 
-> na hy asya janmano hetuḥ
-> karmaṇo vā mahīpate
-> ātma-māyāṁ vineśasya
+> na hy asya janmano hetuḥ\
+> karmaṇo vā mahīpate\
+> ātma-māyāṁ vineśasya\
 > parasya draṣṭur ātmanaḥ
 
 *na*—no; *hi*—en verdad; *asya*—de Él (de la Suprema Personalidad de Dios); *janmanaḥ*—el advenimiento, es decir, el nacimiento; *hetuḥ*—no existe causa alguna; *karmaṇaḥ*—o para actuar; *vā*—o; *mahīpate*—¡oh, rey (Mahārāja Parīkṣit)!; *ātma-māyām*—Su compasión suprema por las almas caídas; *vinā*—sin; *īśasya*—del controlador supremo; *parasya*—de la Personalidad de Dios, que está más allá del mundo material; *draṣṭuḥ*—de la Superalma, testigo de las actividades de todos; *ātmanaḥ*—de la Superalma de todos.

@@ -1,11 +1,11 @@
 ### SB 3.22.25
 
-> अशक्नुवंस्तद्विरहं मुञ्चन्बाष्पकलां मुहुः ।
+> अशक्नुवंस्तद्विरहं मुञ्चन्बाष्पकलां मुहुः ।\
 > आसिञ्चदम्ब वत्सेति नेत्रोदैर्दुहितुः शिखाः ॥२५॥
 
-> aśaknuvaṁs tad-virahaṁ
-> muñcan bāṣpa-kalāṁ muhuḥ
-> āsiñcad amba vatseti
+> aśaknuvaṁs tad-virahaṁ\
+> muñcan bāṣpa-kalāṁ muhuḥ\
+> āsiñcad amba vatseti\
 > netrodair duhituḥ śikhāḥ
 
 *aśaknuvan*—no pudiendo soportar; *tat-viraham*—separarse de ella; *muñcan*—derramando; *bāṣpa-kalām*—lágrimas; *muhuḥ*—una y otra vez; *āsiñcat*—empapó; *amba*—mi querida madre; *vatsa*—mi querida hija; *iti*—de este modo; *netra-udaiḥ*—con el agua de sus ojos; *duhituḥ*—de su hija; *śikhāḥ*—los mechones de cabello.

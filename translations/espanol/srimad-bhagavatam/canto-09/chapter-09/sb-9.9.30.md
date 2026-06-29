@@ -1,11 +1,11 @@
 ### SB 9.9.30
 
-> सोऽयं ब्रह्मर्षिवर्यस्ते राजर्षिप्रवराद्विभो
+> सोऽयं ब्रह्मर्षिवर्यस्ते राजर्षिप्रवराद्विभो\
 > कथमर्हति धर्मज्ञअ वधं पितुरिवात्मजः ॥३०॥
 
-> so 'yaṁ brahmarṣi-varyas te
-> rājarṣi-pravarād vibho
-> katham arhati dharma-jña
+> so 'yaṁ brahmarṣi-varyas te\
+> rājarṣi-pravarād vibho\
+> katham arhati dharma-jña\
 > vadhaṁ pitur ivātmajaḥ
 
 *saḥ*—él, el *brāhmaṇa*; *ayam*—este; *brahma-ṛṣi-varyaḥ*—no solo *brāhmaṇa*, sino también el mejor de los grandes sabios, los *brahmarṣis*; *te*—también de ti; *rāja-ṛṣi-pravarāt*—que eres el mejor de todos los reyes santos, los *rājarṣis*; *vibho*—¡oh, señor del estado!; *katham*—cómo; *arhati*—merece; *dharma-jña*—¡oh, tú, que eres perfectamente consciente de los principios religiosos!; *vadham*—matar; *pituḥ*—del padre; *iva*—como; *ātmajaḥ*—el hijo.

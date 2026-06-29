@@ -1,9 +1,9 @@
 ### CC Madhya 11.49
 
-> যদি সেই মহাপ্রভুর না পাই কৃপা-ধন ।
+> যদি সেই মহাপ্রভুর না পাই কৃপা-ধন ।\
 > কিবা রাজ্য, কিবা দেহ, — সব অকারণ ॥৪৯॥
 
-> yadi sei mahāprabhura nā pāi kṛpā-dhana
+> yadi sei mahāprabhura nā pāi kṛpā-dhana\
 > kibā rājya, kibā deha,-saba akāraṇa
 
 *yadi*—if; *sei*—that; *mahāprabhura*—of Lord Śrī Caitanya Mahāprabhu; *nā*—not; *pāi*—I get; *kṛpā-dhana*—the treasure of mercy; *kibā rājya*—what is the value of my kingdom; *kibā deha*—what is the value of this body; *saba akāraṇa*—everything useless.

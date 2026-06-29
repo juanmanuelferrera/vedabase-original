@@ -1,9 +1,9 @@
 ### CC Adi 8.9
 
-> কৃষ্ণ নাহি মানে, তাতে দৈত্য করি’ মানি ।
+> কৃষ্ণ নাহি মানে, তাতে দৈত্য করি’ মানি ।\
 > চৈতন্য না মানিলে তৈছে দৈত্য তারে জানি ॥৯॥
 
-> kṛṣṇa nāhi māne, tāte daitya kari' māni
+> kṛṣṇa nāhi māne, tāte daitya kari' māni\
 > caitanya nā mānile taiche daitya tāre jāni
 
 *kṛṣṇa*—el Señor Kṛṣṇa; *nāhi*—no; *māne*—acepta; *tāte*—por eso; *daitya*—demonio; *kari' māni*—aceptamos; *caitanya*—el Señor Śrī Caitanya Mahāprabhu; *nā*—sin; *mānile*—aceptar; *taiche*—de igual modo; *daitya*—demonio; *tāre*—a él; *jāni*—sabemos.

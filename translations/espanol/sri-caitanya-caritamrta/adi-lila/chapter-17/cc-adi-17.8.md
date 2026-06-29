@@ -1,9 +1,9 @@
 ### CC Adi 17.8
 
-> তবেত করিলা প্রভু গয়াতে গমন ।
+> তবেত করিলা প্রভু গয়াতে গমন ।\
 > ঈশ্বরপুরীর সঙ্গে তথাই মিলন ॥৮॥
 
-> tabeta karilā prabhu gayāte gamana
+> tabeta karilā prabhu gayāte gamana\
 > īśvara-purīra saṅge tathāi milana
 
 *tabeta*—después de eso; *karilā*—realizó; *prabhu*—el Señor Caitanya Mahāprabhu; *gayāte*—a Gayā; *gamana*—viaje; *īśvara-purīra saṅge*—con Īśvara Purī; *tathāi*—allí; *milana*—encuentro.

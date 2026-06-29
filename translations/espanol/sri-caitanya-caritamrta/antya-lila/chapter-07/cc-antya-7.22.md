@@ -1,9 +1,9 @@
 ### CC Antya 7.22
 
-> তেঁহ দেখাইলা মোরে ভক্তিযোগ-পার ।
+> তেঁহ দেখাইলা মোরে ভক্তিযোগ-পার ।\
 > তাঁর প্রসাদে জানিলুঁ ‘কৃষ্ণভক্তিযোগ’ সার ॥২২॥
 
-> teṅha dekhāilā more bhakti-yoga-pāra
+> teṅha dekhāilā more bhakti-yoga-pāra\
 > tāṅra prasāde jāniluṅ 'kṛṣṇa-bhakti-yoga' sāra
 
 *teṅha*—él; *dekhāilā*—ha mostrado; *more*—a Mí; *bhakti-yoga*—del servicio devocional; *pāra*—el límite; *tāṅra prasāde*—por su misericordia; *jāniluṅ*—he comprendido; *kṛṣṇa-bhakti*—del servicio devocional al Señor Kṛṣṇa; *yoga*—del sistema de yoga; *sāra*—la esencia.

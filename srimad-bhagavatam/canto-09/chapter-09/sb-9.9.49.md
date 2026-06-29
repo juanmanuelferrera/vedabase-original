@@ -1,11 +1,11 @@
 ### SB 9.9.49
 
-> यत्तद्ब्रह्म परं सूक्ष्ममशून्यं शून्यकल्पितम
+> यत्तद्ब्रह्म परं सूक्ष्ममशून्यं शून्यकल्पितम\
 > भगवान्वासुदेवेति यं गृणन्ति हि सात्वताः ॥४९॥
 
-> yat tad brahma paraṁ sūkṣmam
-> aśūnyaṁ śūnya-kalpitam
-> bhagavān vāsudeveti
+> yat tad brahma paraṁ sūkṣmam\
+> aśūnyaṁ śūnya-kalpitam\
+> bhagavān vāsudeveti\
 > yaṁ gṛṇanti hi sātvatāḥ
 
 *yat*—that which; *tat*—such; *brahma param*—Parabrahman, the Supreme Personality of Godhead, Kṛṣṇa; *sūkṣmam*—spiritual, beyond all material conceptions; *aśūnyam*—not impersonal or void; *śūnya-kalpitam*—imagined to be void by less intelligent men; *bhagavān*—the Supreme Personality of Godhead; *vāsudeva*—Kṛṣṇa; *iti*—thus; *yam*—whom; *gṛṇanti*—sing about; *hi*—indeed; *sātvatāḥ*—pure devotees.

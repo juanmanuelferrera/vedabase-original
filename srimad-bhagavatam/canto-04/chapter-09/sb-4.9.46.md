@@ -1,11 +1,11 @@
 ### SB 4.9.46
 
-> सुरुचिस्तं समुत्थाप्य पादावनतमर्भकम् ।
+> सुरुचिस्तं समुत्थाप्य पादावनतमर्भकम् ।\
 > परिष्वज्याह जीवेति बाष्पगद्गदया गिरा ॥४६॥
 
-> surucis taṁ samutthāpya
-> pādāvanatam arbhakam
-> pariṣvajyāha jīveti
+> surucis taṁ samutthāpya\
+> pādāvanatam arbhakam\
+> pariṣvajyāha jīveti\
 > bāṣpa-gadgadayā girā
 
 *suruciḥ*—Queen Suruci; *tam*—him; *samutthāpya*—having picked up; *pāda-avanatam*—fallen at her feet; *arbhakam*—the innocent boy; *pariṣvajya*—embracing; *āha*—she said; *jīva*—may you live long; *iti*—thus; *bāṣpa*—with tears; *gadgadayā*—choked up; *girā*—with words.

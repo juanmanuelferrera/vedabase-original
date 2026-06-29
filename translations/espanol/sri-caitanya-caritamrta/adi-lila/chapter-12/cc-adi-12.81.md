@@ -1,9 +1,9 @@
 ### CC Adi 12.81
 
-> অনন্ত আচার্য, কবিদত্ত, মিশ্রনয়ন ।
+> অনন্ত আচার্য, কবিদত্ত, মিশ্রনয়ন ।\
 > গঙ্গামন্ত্রী, মামু ঠাকুর, কণ্ঠাভরণ ॥৮১॥
 
-> ananta ācārya, kavidatta, miśra-nayana
+> ananta ācārya, kavidatta, miśra-nayana\
 > gaṅgāmantrī māmu ṭhākura, kaṇṭhābharaṇa
 
 *ananta ācārya*—de nombre Ananta Ācārya; *kavi-datta*—de nombre Kavi Datta; *miśra-nayana*—de nombre Nayana Miśra; *gaṅgāmantrī*—de nombre Gaṅgāmantrī; *māmu ṭhākura*—de nombre Māmu Ṭhākura; *kaṇṭhābharaṇa*—de nombre Kaṇṭhābharaṇa.

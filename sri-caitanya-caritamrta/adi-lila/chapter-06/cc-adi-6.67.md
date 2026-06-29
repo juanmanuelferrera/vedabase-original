@@ -1,11 +1,11 @@
 ### CC Adi 6.67
 
-> ব্রজজনার্তিহন্ বীর যোষিতাং নিজ-জনস্ময়ধ্বংসনস্মিত ।
+> ব্রজজনার্তিহন্ বীর যোষিতাং নিজ-জনস্ময়ধ্বংসনস্মিত ।\
 > ভজ সখে ভবৎকিঙ্করীঃ স্ম নো জলরুহাননং চারু দর্শয় ॥৬৭॥
 
-> vraja-janārti-han vīra yoṣitāṁ
-> nija-jana-smaya-dhvaṁsana-smita
-> bhaja sakhe bhavat-kiṅkarīḥ sma no
+> vraja-janārti-han vīra yoṣitāṁ\
+> nija-jana-smaya-dhvaṁsana-smita\
+> bhaja sakhe bhavat-kiṅkarīḥ sma no\
 > jala-ruhānanaṁ cāru darśaya
 
 *vraja-jana-ārti-han*—O one who diminishes all the painful conditions of the inhabitants of Vṛndāvana; *vīra*—O hero; *yoṣitām*—of women; *nija*—personal; *jana*—of the associates; *smaya*—the pride; *dhvaṁsana*—destroying; *smita*—whose smile; *bhaja*—worship; *sakhe*—O dear friend; *bhavat-kiṅkarīḥ*—Your servants; *sma*—certainly; *naḥ*—unto us; *jala-ruha-ānanam*—a face exactly like a lotus flower; *cāru*—attractive; *darśaya*—please show.

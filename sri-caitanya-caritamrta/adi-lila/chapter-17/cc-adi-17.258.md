@@ -1,9 +1,9 @@
 ### CC Adi 17.258
 
-> তথাপি দাম্ভিক পড়ুয়া নম্র নাহি হয় ।
+> তথাপি দাম্ভিক পড়ুয়া নম্র নাহি হয় ।\
 > যাহাঁ তাহাঁ প্রভুর নিন্দা হাসি’ সে করয় ॥২৫৮॥
 
-> tathāpi dāmbhika paḍuyā namra nāhi haya
+> tathāpi dāmbhika paḍuyā namra nāhi haya\
 > yāhaṅ tāhāṅ prabhura nindā hāsi' se karaya
 
 *tathāpi*—still; *dāmbhika*—proud; *paḍuyā*—students; *namra*—submissive; *nāhi*—not; *haya*—become; *yāhāṅ*—any where; *tāhāṅ*—everywhere; *prabhura*—of the Lord; *nindā*—accusation; *hāsi'*—laughing; *se*—they; *karaya*—do.

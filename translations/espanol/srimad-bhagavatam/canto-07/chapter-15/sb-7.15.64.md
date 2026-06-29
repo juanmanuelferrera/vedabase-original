@@ -1,11 +1,11 @@
 ### SB 7.15.64
 
-> यद्ब्रह्मणि परे साक्षात्सर्वकर्मसमर्पणम
+> यद्ब्रह्मणि परे साक्षात्सर्वकर्मसमर्पणम\
 > मनोवाक्तनुभिः पार्थ क्रियाद्वैतं तदुच्यते ॥६४॥
 
-> yad brahmaṇi pare sākṣāt
-> sarva-karma-samarpaṇam
-> mano-vāk-tanubhiḥ pārtha
+> yad brahmaṇi pare sākṣāt\
+> sarva-karma-samarpaṇam\
+> mano-vāk-tanubhiḥ pārtha\
 > kriyādvaitaṁ tad ucyate
 
 *yat*—eso que; *brahmaṇi*—en el Brahman Supremo; *pare*—trascendental; *sākṣāt*—directamente; *sarva*—de todas; *karma*—las actividades; *samarpaṇam*—dedicación; *manaḥ*—por la mente; *vāk*—las palabras; *tanubhiḥ*—y el cuerpo; *pārtha*—¡oh, Mahārāja Yudhiṣṭhira!; *kriyā-advaitam*—unidad en las actividades; *tat ucyate*—se denomina.

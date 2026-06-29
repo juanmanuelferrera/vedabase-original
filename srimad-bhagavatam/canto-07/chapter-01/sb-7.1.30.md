@@ -1,11 +1,11 @@
 ### SB 7.1.30
 
-> गोप्यः कामाद्भयात्कंसो द्वेषाच्चैद्यादयो नृपाः
+> गोप्यः कामाद्भयात्कंसो द्वेषाच्चैद्यादयो नृपाः\
 > सम्बन्धाद्वृष्णयः स्नेहाद्यूयं भक्त्या वयं विभो ॥३०॥
 
-> kāmād dveṣād bhayāt snehād
-> yathā bhaktyeśvare manaḥ
-> āveśya tad-aghaṁ hitvā
+> kāmād dveṣād bhayāt snehād\
+> yathā bhaktyeśvare manaḥ\
+> āveśya tad-aghaṁ hitvā\
 > bahavas tad-gatiṁ gatāḥ
 
 *kāmāt*—from lust; *dveṣāt*—from hatred; *bhayāt*—from fear; *snehāt*—from affection; *yathā*—as well as; *bhaktyā*—by devotion; *īśvare*—in the Supreme; *manaḥ*—the mind; *āveśya*—absorbing; *tat*—of that; *agham*—sin; *hitvā*—giving up; *bahavaḥ*—many; *tat*—of that; *gatim*—path of liberation; *gatāḥ*—attained.

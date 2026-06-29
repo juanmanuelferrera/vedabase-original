@@ -1,6 +1,6 @@
 ### CC Adi 1.64
 
-> sei bhakta-gaṇa haya dvi-vidha prakāra
+> sei bhakta-gaṇa haya dvi-vidha prakāra\
 > pāriṣad-gaṇa eka, sādhaka-gaṇa āra
 
 *sei*—estes; *bhakta-gaṇa*—devotos; *haya*—são; *dvi-vidha*—dois tipos; *prakāra*—variedades; *pāriṣat-gaṇa*—devotos efetivos; *eka*—um; *sādhaka-gaṇa*—devotos em perspectiva; *āra*—o outro.

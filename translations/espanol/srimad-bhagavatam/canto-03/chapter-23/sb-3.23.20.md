@@ -1,11 +1,11 @@
 ### SB 3.23.20
 
-> हंसपारावतव्रातैस्तत्र तत्र निकूजितम् ।
+> हंसपारावतव्रातैस्तत्र तत्र निकूजितम् ।\
 > कृत्रिमान्मन्यमानैः स्वानधिरुह्याधिरुह्य च ॥२०॥
 
-> haṁsa-pārāvata-vrātais
-> tatra tatra nikūjitam
-> kṛtrimān manyamānaiḥ svān
+> haṁsa-pārāvata-vrātais\
+> tatra tatra nikūjitam\
+> kṛtrimān manyamānaiḥ svān\
 > adhiruhyādhiruhya ca
 
 *haṁsa*—de cisnes; *pārāvata*—de palomas; *vrātaiḥ*—con multitudes; *tatra tatra*—aquí y allá; *nikūjitam*—vibraban; *kṛtrimān*—artificiales; *manyamānaiḥ*—creyendo; *svān*—perteneciendo a su propia especie; *adhiruhya adhiruhya*—subiéndose repetidamente; *ca*—y.

@@ -1,11 +1,11 @@
 ### SB 1.15.13
 
-> तत्रैव मे विहरतो भुजदण्डयुग्मं गाण्डीवलक्षणमरातिवधाय देवाः ।
+> तत्रैव मे विहरतो भुजदण्डयुग्मं गाण्डीवलक्षणमरातिवधाय देवाः ।\
 > सेन्द्राः श्रिता यदनुभावितमाजमीढ तेनाहमद्य मुषितः पुरुषेण भूम्ना ॥१३॥
 
-> tatraiva me viharato bhuja-daṇḍa-yugmaṁ
-> gāṇḍīva-lakṣaṇam arāti-vadhāya devāḥ
-> sendrāḥ śritā yad-anubhāvitam ājamīḍha
+> tatraiva me viharato bhuja-daṇḍa-yugmaṁ\
+> gāṇḍīva-lakṣaṇam arāti-vadhāya devāḥ\
+> sendrāḥ śritā yad-anubhāvitam ājamīḍha\
 > tenāham adya muṣitaḥ puruṣeṇa bhūmnā
 
 *tatra*—en ese planeta celestial; *eva*—ciertamente; *me*—yo mismo; *viharataḥ*—mientras estaba de huésped; *bhuja-daṇḍa-yugmam*—mis dos brazos; *gāṇḍīva*—el arco llamado Gāṇḍīva; *lakṣaṇam*—marca; *arāti*—un demonio de nombre Nivātakavaca; *vadhāya*—para matar; *devāḥ*—todos los semidioses; *sa*—junto con; *indrāḥ*—Indra, el rey celestial; *śritāḥ*—refugiándose en; *yat*—por cuyo; *anubhāvitam*—hizo que fuera posible ser poderoso; *ājamīḍha*—¡oh, descendiente del rey Ajamīḍha!; *tena*—por Él; *aham*—yo mismo; *adya*—actualmente; *muṣitaḥ*—desprovisto de; *puruṣeṇa*—la personalidad; *bhūmnā*—suprema.

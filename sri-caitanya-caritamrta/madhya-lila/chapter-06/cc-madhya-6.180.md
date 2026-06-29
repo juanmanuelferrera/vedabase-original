@@ -1,9 +1,9 @@
 ### CC Madhya 6.180
 
-> আচার্যের দোষ নাহি, ঈশ্বর-আজ্ঞা হৈল ।
+> আচার্যের দোষ নাহি, ঈশ্বর-আজ্ঞা হৈল ।\
 > অতএব কল্পনা করি’ নাস্তিক-শাস্ত্র কৈল ॥১৮০॥
 
-> ācāryera doṣa nāhi, īśvara-ājñā haila
+> ācāryera doṣa nāhi, īśvara-ājñā haila\
 > ataeva kalpanā kari' nāstika-śāstra kaila
 
 *ācāryera*—of Śaṅkarācārya; *doṣa*—fault; *nāhi*—there is not; *īśvara-ājñā*—the order of the Supreme Personality of Godhead; *haila*—there was; *ataeva*—therefore; *kalpanā*—imagination; *kari'*—making; *nāstika*—atheistic; *śāstra*—scriptures; *kaila*—prepared.

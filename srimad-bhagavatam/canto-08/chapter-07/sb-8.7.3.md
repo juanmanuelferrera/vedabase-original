@@ -1,13 +1,13 @@
 ### SB 8.7.3
 
-> तन्नैच्छन्दैत्यपतयो महापुरुषचेष्टितम
+> तन्नैच्छन्दैत्यपतयो महापुरुषचेष्टितम\
 > न गृह्णीमो वयं पुच्छमहेरङ्गममङ्गलम ॥३॥
 
-> tan naicchan daitya-patayo
-> mahā-puruṣa-ceṣṭitam
-> na gṛhṇīmo vayaṁ puccham
-> aher aṅgam amaṅgalam
-> svādhyāya-śruta-sampannāḥ
+> tan naicchan daitya-patayo\
+> mahā-puruṣa-ceṣṭitam\
+> na gṛhṇīmo vayaṁ puccham\
+> aher aṅgam amaṅgalam\
+> svādhyāya-śruta-sampannāḥ\
 > prakhyātā janma-karmabhiḥ
 
 *tat*—that arrangement; *na aicchan*—not liking; *daitya-patayaḥ*—the leaders of the demons; *mahā-puruṣa*—of the Supreme Personality of Godhead; *ceṣṭitam*—attempt; *na*—not; *gṛhṇīmaḥ*—shall take; *vayam*—all of us (the Daityas); *puccham*—the tail; *aheḥ*—of the serpent; *aṅgam*—part of the body; *amaṅgalam*—inauspicious, inferior; *svādhyāya*—with Vedic study; *śruta*—and Vedic knowledge; *sampannāḥ*—fully equipped; *prakhyātāḥ*—prominent; *janma-karmabhiḥ*—by birth and activities.

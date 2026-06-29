@@ -1,9 +1,9 @@
 ### CC Antya 20.150
 
-> সব শ্রোতাগণের করি চরণ বন্দন ।
+> সব শ্রোতাগণের করি চরণ বন্দন ।\
 > যাঁ-সবার চরণ-কৃপা — শুভের কারণ ॥১৫০॥
 
-> saba śrotā-gaṇera kari caraṇa vandana
+> saba śrotā-gaṇera kari caraṇa vandana\
 > yāṅ-sabāra caraṇa-kṛpā—śubhera kāraṇa
 
 *saba*—all; *śrotā-gaṇera*—of the readers; *kari*—I do; *caraṇa vandana*—worshiping the lotus feet; *yāṅ-sabāra*—of all of whom; *caraṇa-kṛpā*—the mercy of the lotus feet; *śubhera kāraṇa*—the cause of all good fortune.

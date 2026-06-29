@@ -1,11 +1,11 @@
 ### SB 4.29.58
 
-> कर्माण्यारभते येन पुमानिह विहाय तम् ।
+> कर्माण्यारभते येन पुमानिह विहाय तम् ।\
 > अमुत्रान्येन देहेन जुष्टानि स यदश्नुते ॥५८॥
 
-> karmāṇy ārabhate yena
-> pumān iha vihāya tam
-> amutrānyena dehena
+> karmāṇy ārabhate yena\
+> pumān iha vihāya tam\
+> amutrānyena dehena\
 > juṣṭāni sa yad aśnute
 
 *karmāṇi*—actividades fruitivas; *ārabhate*—comienza a ejecutar; *yena*—por el cual; *pumān*—una entidad viviente; *iha*—en esta vida; *vihāya*—abandonar; *tam*—eso; *amutra*—en la siguiente vida; *anyena*—otro; *dehena*—por un cuerpo; *juṣṭāni*—los resultados; *saḥ*—él; *yat*—eso; *aśnute*—disfruta.

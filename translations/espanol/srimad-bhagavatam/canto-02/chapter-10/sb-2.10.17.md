@@ -1,11 +1,11 @@
 ### SB 2.10.17
 
-> प्राणेनाक्षिपता क्षुत्तृडन्तरा जायते विभोः ।
+> प्राणेनाक्षिपता क्षुत्तृडन्तरा जायते विभोः ।\
 > पिपासतो जक्षतश्च प्राङ्मुखं निरभिद्यत ॥१७॥
 
-> prāṇenākṣipatā kṣut tṛḍ
-> antarā jāyate vibhoḥ
-> pipāsato jakṣataś ca
+> prāṇenākṣipatā kṣut tṛḍ\
+> antarā jāyate vibhoḥ\
+> pipāsato jakṣataś ca\
 > prāṅ mukhaṁ nirabhidyata
 
 *prāṇena*—por la fuerza viviente; *ākṣipatā*—siendo agitada; *kṣut*—hambre; *tṛṭ*—sed; *antarā*—de dentro; *jāyate*—genera; *vibhoḥ*—del Supremo; *pipāsataḥ*—estando deseoso de apagar la sed; *jakṣataḥ*—estando deseoso de comer; *ca*—y; *prāk*—en primer lugar; *mukham*—la boca; *nirabhidyata*—se abrió.

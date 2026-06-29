@@ -1,9 +1,9 @@
 ### CC Madhya 5.139
 
-> এইমত মহারঙ্গে যে রাত্রি বঞ্চিয়া ।
+> এইমত মহারঙ্গে যে রাত্রি বঞ্চিয়া ।\
 > প্ৰভাতে চলিলা মঙ্গল-আরতি দেখিঞা ॥১৩৯॥
 
-> ei-mata mahā-raṅge se rātri vañciyā
+> ei-mata mahā-raṅge se rātri vañciyā\
 > prabhāte calilā maṅgala-ārati dekhiñā
 
 *ei-mata*—de esta manera; *mahā-raṅge*—con gran placer; *se*—esa; *rātri*—noche; *vañciyā*—pasando; *prabhāte*—por la mañana; *calilā*—partió; *maṅgala-ārati*—la ceremonia de maṅgala-ārati; *dekhiñā*—viendo.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.172
 
-> ভিখারী সন্ন্যাসী করে তীর্থ পর্যটন ।
+> ভিখারী সন্ন্যাসী করে তীর্থ পর্যটন ।\
 > তাঁরে দেখিবারে আইসে দুই চারি জন ॥১৭২॥
 
-> bhikhārī sannyāsī kare tīrtha paryaṭana
+> bhikhārī sannyāsī kare tīrtha paryaṭana\
 > tāṅre dekhibāre āise dui cāri jana
 
 *bhikhāri*—beggar; *sannyāsī*—mendicant; *kare*—does; *tīrtha*—of holy places; *paryaṭana*—touring; *tāṅre*—Him; *dekhibṁre*—to see; *ṁise*—come; *dui cṁri jana*—only a few people.

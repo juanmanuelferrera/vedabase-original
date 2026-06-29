@@ -1,11 +1,11 @@
 ### SB 9.4.65
 
-> ये दारागारपुत्राप्त प्राणान्वित्तमिमं परम
+> ये दारागारपुत्राप्त प्राणान्वित्तमिमं परम\
 > हित्वा मां शरणं याताः कथं तांस्त्यक्तुमुत्सहे ॥६५॥
 
-> ye dārāgāra-putrāpta-
-> prāṇān vittam imaṁ param
-> hitvā māṁ śaraṇaṁ yātāḥ
+> ye dārāgāra-putrāpta-\
+> prāṇān vittam imaṁ param\
+> hitvā māṁ śaraṇaṁ yātāḥ\
 > kathaṁ tāṁs tyaktum utsahe
 
 *ye*—esos devotos Míos que; *dāra*—la esposa; *agāra*—la casa; *putra*—los niños, hijos; *āpta*—los familiares, la sociedad; *prāṇān*—la misma vida; *vittam*—las riquezas; *imam*—todo ello; *param*—la elevación a los planetas celestiales o la unidad de fundirse en el Brahman; *hitvā*—abandonar (todas esas ambiciones y relaciones); *mām*—a Mí; *śaraṇam*—refugio; *yātāḥ*—haber aceptado; *katham*—cómo; *tān*—a esas personas; *tyaktum*—abandonarlas; *utsahe*—puedo Yo sentir entusiasmo por ello (no es posible).

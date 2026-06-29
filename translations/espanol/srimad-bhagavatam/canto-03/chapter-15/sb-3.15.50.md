@@ -1,13 +1,13 @@
 ### SB 3.15.50
 
-> प्रादुश्चकर्थ यदिदं पुरुहूत रूपं
-> तेनेश निर्वृतिमवापुरलं दृशो नः ।
-> तस्मा इदं भगवते नम इद्विधेम
+> प्रादुश्चकर्थ यदिदं पुरुहूत रूपं\
+> तेनेश निर्वृतिमवापुरलं दृशो नः ।\
+> तस्मा इदं भगवते नम इद्विधेम\
 > योऽनात्मनां दुरुदयो भगवान्प्रतीतः ॥५०॥
 
-> prāduścakartha yad idaṁ puruhūta rūpaṁ
-> teneśa nirvṛtim avāpur alaṁ dṛśo naḥ
-> tasmā idaṁ bhagavate nama id vidhema
+> prāduścakartha yad idaṁ puruhūta rūpaṁ\
+> teneśa nirvṛtim avāpur alaṁ dṛśo naḥ\
+> tasmā idaṁ bhagavate nama id vidhema\
 > yo 'nātmanāṁ durudayo bhagavān pratītaḥ
 
 *prāduścakartha*—Tú has manifestado; *yat*—lo cual; *idam*—esta; *puruhūta*—¡oh, muy adorado!; *rūpam*—forma eterna; *tena*—por esa forma; *īśa*—¡oh, Señor!; *nirvṛtim*—satisfacción; *avāpuḥ*—obtenida; *alam*—tanta; *dṛśaḥ*—visión; *naḥ*—nuestra; *tasmai*—a Él; *idam*—esta; *bhagavate*—a la Suprema Personalidad de Dios; *namaḥ*—reverencias; *it*—solo; *vidhema*—ofrezcamos; *yaḥ*—quien; *anātmanām*—de aquellos que son menos inteligentes; *durudayaḥ*—no puede ser vista; *bhagavān*—la Suprema Personalidad de Dios; *pratītaḥ*—ha sido vista por nosotros.

@@ -1,11 +1,11 @@
 ### SB 3.5.11
 
-> कस्तृप्नुयात्तीर्थपदोऽभिधानात्सत्रेषु वः सूरिभिरीड्यमानात् ।
+> कस्तृप्नुयात्तीर्थपदोऽभिधानात्सत्रेषु वः सूरिभिरीड्यमानात् ।\
 > यः कर्णनाडीं पुरुषस्य यातो भवप्रदां गेहरतिं छिनत्ति ॥११॥
 
-> kas tṛpnuyāt tīrtha-pado 'bhidhānāt
-> satreṣu vaḥ sūribhir īḍyamānāt
-> yaḥ karṇa-nāḍīṁ puruṣasya yāto
+> kas tṛpnuyāt tīrtha-pado 'bhidhānāt\
+> satreṣu vaḥ sūribhir īḍyamānāt\
+> yaḥ karṇa-nāḍīṁ puruṣasya yāto\
 > bhava-pradāṁ geha-ratiṁ chinatti
 
 *kaḥ*—quién es ese hombre; *tṛpnuyāt*—que puede satisfacerse; *tīrtha-padaḥ*—cuyos pies de loto constituyen todos los lugares de peregrinaje; *abhidhānāt*—de las conversaciones acerca de; *satreṣu*—en la sociedad humana; *vaḥ*—aquel que es; *sūribhiḥ*—por grandes devotos; *īḍyamānāt*—aquel que es adorado así; *yaḥ*—quién; *karṇa-nāḍīm*—en los agujeros de los oídos; *puruṣasya*—de un hombre; *yātaḥ*—entrando; *bhava-pradām*—aquello que otorga nacimientos y muertes; *geha-ratim*—afecto familiar; *chinatti*—es cortado.

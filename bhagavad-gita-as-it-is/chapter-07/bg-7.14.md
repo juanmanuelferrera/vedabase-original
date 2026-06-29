@@ -1,11 +1,11 @@
 ### Bg 7.14
 
-> दैवी ह्येषा गुणमयी मम माया दुरत्यया ।
+> दैवी ह्येषा गुणमयी मम माया दुरत्यया ।\
 > मामेव ये प्रपद्यन्ते मायामेतां तरन्ति ते ॥१४॥
 
-> daivī hy eṣā guṇa-mayī
-> mama māyā duratyayā
-> mām eva ye prapadyante
+> daivī hy eṣā guṇa-mayī\
+> mama māyā duratyayā\
+> mām eva ye prapadyante\
 > māyām etāṁ taranti te
 
 *daivī*—transcendental; *hi*—certainly; *eṣā*—this; *guṇamayī*—consisting of the three modes of material nature; *mama*—My; *māyā*—energy; *duratyayā*—very difficult to overcome; *mām*—unto Me; *eva*—certainly; *ye*—those; *prapadyante*—surrender; *māyām etām*—this illusory energy; *taranti*—overcome; *te*—they.

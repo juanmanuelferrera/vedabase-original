@@ -1,9 +1,9 @@
 ### CC Madhya 3.162
 
-> কীর্তন করিতে প্রভুর সর্বভাবোদয় ৷
+> কীর্তন করিতে প্রভুর সর্বভাবোদয় ৷\
 > স্তম্ভ, কম্প, পুলকাশ্রু, গদ্গদ, প্রলয় ॥১৬২॥
 
-> kīrtana karite prabhura sarva-bhāvodaya
+> kīrtana karite prabhura sarva-bhāvodaya\
 > stambha, kampa, pulakāśru, gadgada, pralaya
 
 *kīrtana karite*—al realizar el canto; *prabhura*—del Señor; *sarva*—todos; *bhāva-udaya*—manifestaciones de síntomas extáticos; *stambha*—quedar atónito; *kampa*—temblor; *pulaka*—erizamiento del vello; *aśru*—lágrimas; *gadgada*—voz entrecortada; *pralaya*—devastación.

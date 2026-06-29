@@ -1,11 +1,11 @@
 ### SB 1.8.21
 
-> कृष्णाय वासुदेवाय देवकीनन्दनाय च ।
+> कृष्णाय वासुदेवाय देवकीनन्दनाय च ।\
 > नन्दगोपकुमाराय गोविन्दाय नमो नमः ॥२१॥
 
-> kṛṣṇāya vāsudevāya
-> devakī-nandanāya ca
-> nanda-gopa-kumārāya
+> kṛṣṇāya vāsudevāya\
+> devakī-nandanāya ca\
+> nanda-gopa-kumārāya\
 > govindāya namo namaḥ
 
 *kṛṣṇāya*—el Señor Supremo; *vāsudevāya*—al hijo de Vasudeva; *devakī-nandanāya*—al hijo de Devakī; *ca*—y; *nanda-gopa*—Nanda y los pastores de vacas; *kumārāya*—al hijo de ellos; *govindāya*—a la Personalidad de Dios, que les da vida a las vacas y a los sentidos; *namaḥ*—respetuosas reverencias; *namaḥ*—reverencias.

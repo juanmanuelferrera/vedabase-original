@@ -1,11 +1,11 @@
 ### SB 6.12.8
 
-> लोकाः सपाला यस्येमे श्वसन्ति विवशा वशे
+> लोकाः सपाला यस्येमे श्वसन्ति विवशा वशे\
 > द्विजा इव शिचा बद्धाः स काल इह कारणम ॥८॥
 
-> lokāḥ sapālā yasyeme
-> śvasanti vivaśā vaśe
-> dvijā iva śicā baddhāḥ
+> lokāḥ sapālā yasyeme\
+> śvasanti vivaśā vaśe\
+> dvijā iva śicā baddhāḥ\
 > sa kāla iha kāraṇam
 
 *lokāḥ*—los mundos; *sa-pālāḥ*—con sus principales deidades o controladores; *yasya*—de quien; *ime*—todos estos; *śvasanti*—viven; *vivaśāḥ*—con total dependencia; *vaśe*—bajo el control; *dvijāḥ*—pájaros; *iva*—como; *śicā*—por una red; *baddhāḥ*—atrapados; *saḥ*—ese; *kālaḥ*—factor tiempo; *iha*—en esta; *kāraṇam*—la causa.

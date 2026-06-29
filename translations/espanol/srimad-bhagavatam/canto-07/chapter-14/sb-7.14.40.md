@@ -1,11 +1,11 @@
 ### SB 7.14.40
 
-> ततोऽर्चायां हरिं केचित्संश्रद्धाय सपर्यया
+> ततोऽर्चायां हरिं केचित्संश्रद्धाय सपर्यया\
 > उपासत उपास्तापि नार्थदा पुरुषद्विषाम ॥४०॥
 
-> tato 'rcāyāṁ hariṁ kecit
-> saṁśraddhāya saparyayā
-> upāsata upāstāpi
+> tato 'rcāyāṁ hariṁ kecit\
+> saṁśraddhāya saparyayā\
+> upāsata upāstāpi\
 > nārthadā puruṣa-dviṣām
 
 *tataḥ*—a continuación; *arcāyām*—a la Deidad; *harim*—que es la Suprema Personalidad de Dios (la forma del Señor es idéntica al Señor); *kecit*—alguien; *saṁśraddhāya*—con gran fe; *saparyayā*—y con los artículos requeridos; *upāsate*—adora; *upāstā api*—aunque adorando a la Deidad (con fe y regularidad); *na*—no; *artha-dā*—beneficioso; *puruṣa-dviṣām*—para quienes envidian al Señor Viṣṇu y a Sus devotos.

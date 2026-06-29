@@ -1,11 +1,11 @@
 ### SB 3.16.34
 
-> तदा विकुण्ठधिषणात्तयोर्निपतमानयोः ।
+> तदा विकुण्ठधिषणात्तयोर्निपतमानयोः ।\
 > हाहाकारो महानासीद्विमानाग्र्येषु पुत्रकाः ॥३४॥
 
-> tadā vikuṇṭha-dhiṣaṇāt
-> tayor nipatamānayoḥ
-> hāhā-kāro mahān āsīd
+> tadā vikuṇṭha-dhiṣaṇāt\
+> tayor nipatamānayoḥ\
+> hāhā-kāro mahān āsīd\
 > vimānāgryeṣu putrakāḥ
 
 *tadā*—then; *vikuṇṭha*—of the Supreme Lord; *dhiṣaṇāt*—from the abode; *tayoḥ*—as both of them; *nipatamānayoḥ*—were falling; *hāhā-kāraḥ*—roaring in disappointment; *mahān*—great; *āsīt*—occurred; *vimāna-agryeṣu*—in the best of airplanes; *putrakāḥ*—O demigods.

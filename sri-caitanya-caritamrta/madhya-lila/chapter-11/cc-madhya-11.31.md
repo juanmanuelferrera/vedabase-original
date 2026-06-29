@@ -1,11 +1,11 @@
 ### CC Madhya 11.31
 
-> আরাধনানাং সর্বেষাং বিষ্ণোরারাধনং পরম্ ।
+> আরাধনানাং সর্বেষাং বিষ্ণোরারাধনং পরম্ ।\
 > তস্মাৎ পরতরং দেবি তদীয়ানাং সমর্চনম্ ॥৩১॥
 
-> ārādhanānāṁ sarveṣāṁ
-> viṣṇor ārādhanaṁ param
-> tasmāt parataraṁ devi
+> ārādhanānāṁ sarveṣāṁ\
+> viṣṇor ārādhanaṁ param\
+> tasmāt parataraṁ devi\
 > tadīyānāṁ samarcanam
 
 *ārādhanānām*—of varieties of worship; *sarveṣām*—all; *viṣṇoḥ*—of Lord Viṣṇu; *ārādhanam*—worship; *param*—the most exalted; *tasmāt*—and above such worship of Lord Viṣṇu; *parataram*—of greater value; *devi*—O goddess; *tadīyānām*—of persons in relationship with Lord Viṣṇu; *samarcanam*—rigid and firm worship.

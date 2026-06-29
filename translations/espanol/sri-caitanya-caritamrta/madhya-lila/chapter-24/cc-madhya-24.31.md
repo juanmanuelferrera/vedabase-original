@@ -1,9 +1,9 @@
 ### CC Madhya 24.31
 
-> ‘রতি’-লক্ষণা, ‘প্রেম’-লক্ষণা, ইত্যাদি প্রচার ।
+> ‘রতি’-লক্ষণা, ‘প্রেম’-লক্ষণা, ইত্যাদি প্রচার ।\
 > ভাবরূপা, মহাভাব-লক্ষণরূপা আর ॥৩১॥
 
-> 'rati'-lakṣaṇā, 'prema'-lakṣaṇā, ityādi pracāra
+> 'rati'-lakṣaṇā, 'prema'-lakṣaṇā, ityādi pracāra\
 > bhāva-rūpā, mahābhāva-lakṣaṇa-rūpā āra
 
 *rati*—de la atracción; *lakṣaṇā*—los síntomas; *prema*—del amor; *lakṣaṇā*—los síntomas; *iti-ādi*—y demás; *pracāra*—se conocen; *bhāva-rūpā*—en la forma de amor extático; *mahā-bhāva*—del amor extático superior; *lakṣaṇa-rūpā*—hay muchos síntomas; *āra*—otros.

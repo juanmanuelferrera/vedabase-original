@@ -1,11 +1,11 @@
 ### Bg 6.19
 
-> यथा दीपो निवातस्थो नेङ्गते सोपमा स्मृता ।
+> यथा दीपो निवातस्थो नेङ्गते सोपमा स्मृता ।\
 > योगिनो यतचित्तस्य युञ्जतो योगमात्मनः ॥१९॥
 
-> yathā dīpo nivāta-stho
-> neṅgate sopamā smṛtā
-> yogino yata-cittasya
+> yathā dīpo nivāta-stho\
+> neṅgate sopamā smṛtā\
+> yogino yata-cittasya\
 > yuñjato yogam ātmanaḥ
 
 *yathā*—as; *dīpaḥ*—a lamp; *nivātasthaḥ*—in a place without wind; *na*—does not; *iṅgate*—waver; *sā upamā*—compared to that; *smṛtā*—likened; *yoginaḥ*—of the *yogī*; *yata-cittasya*—whose mind is controlled; *yuñjataḥ*—constantly engaged in; *yogam*—meditation; *ātmanaḥ*—on Transcendence.

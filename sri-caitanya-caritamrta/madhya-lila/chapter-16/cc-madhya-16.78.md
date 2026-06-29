@@ -1,9 +1,9 @@
 ### CC Madhya 16.78
 
-> গদাধর-পণ্ডিতে তেঁহো পুনঃ মন্ত্র দিল ।
+> গদাধর-পণ্ডিতে তেঁহো পুনঃ মন্ত্র দিল ।\
 > ওড়ন-ষষ্ঠীর দিনে যাত্রা যে দেখিল ॥৭৮॥
 
-> gadādhara-paṇḍite teṅho punaḥ mantra dila
+> gadādhara-paṇḍite teṅho punaḥ mantra dila\
 > oḍana-ṣaṣṭhīra dine yātrā ye dekhila
 
 *gadādhara-paṇḍite*—unto Gadādhara Paṇḍita; *teṅho*—Puṇḍarīka Vidyānidhi; *punaḥ*—again, the second; *mantra*—initiation; *dila*—gave; *oḍana-ṣaṣṭhīra dine*—on the day of performing the Oḍana-ṣaṣṭhī function; *yātrā*—festival; *ye*—indeed; *dekhila*—he saw.

@@ -1,11 +1,11 @@
 ### SB 6.9.45
 
-> हंसाय दह्रनिलयाय निरीक्षकाय कृष्णाय मृष्टयशसे निरुपक्रमाय
+> हंसाय दह्रनिलयाय निरीक्षकाय कृष्णाय मृष्टयशसे निरुपक्रमाय\
 > सत्सङ्ग्रहाय भवपान्थनिजाश्रमाप्तावन्ते परीष्टगतये हरये नमस्ते ॥४५॥
 
-> haṁsāya dahra-nilayāya nirīkṣakāya
-> kṛṣṇāya mṛṣṭa-yaśase nirupakramāya
-> sat-saṅgrahāya bhava-pāntha-nijāśramāptāv
+> haṁsāya dahra-nilayāya nirīkṣakāya\
+> kṛṣṇāya mṛṣṭa-yaśase nirupakramāya\
+> sat-saṅgrahāya bhava-pāntha-nijāśramāptāv\
 > ante parīṣṭa-gataye haraye namas te
 
 *haṁsāya*—unto the most exalted and pure (*pavitraṁ paramam,* the supreme pure); *dahra*—in the core of the heart; *nilayāya*—whose abode; *nirīkṣakāya*—supervising the activities of the individual soul; *kṛṣṇāya*—unto the Supersoul, who is a partial manifestation of Kṛṣṇa; *mṛṣṭa-yaśase*—whose reputation is very bright; *nirupakramāya*—who has no beginning; *sat-saṅgrahāya*—understood only by pure devotees; *bhava-pāntha-nija-āśrama-āptau*—being obtainment of the shelter of Kṛṣṇa for persons within this material world; *ante*—at the ultimate end; *parīṣṭa-gataye*—unto Him who is the ultimate goal, the highest success of life; *haraye*—unto the Supreme Personality of Godhead; *namaḥ*—respectful obeisances; *te*—unto You.

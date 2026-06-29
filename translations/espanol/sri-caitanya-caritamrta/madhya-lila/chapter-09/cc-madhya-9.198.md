@@ -1,9 +1,9 @@
 ### CC Madhya 9.198
 
-> দুর্বশনে রঘুনাথে কৈল দরশন ৷
+> দুর্বশনে রঘুনাথে কৈল দরশন ৷\
 > মহেন্দ্র-শৈলে পরশুরামের কৈল বন্দন ৷৷ ১৯৮ ৷৷ ॥১৯৮॥
 
-> durvaśane raghunāthe kaila daraśana
+> durvaśane raghunāthe kaila daraśana\
 > mahendra-śaile paraśurāmera kaila vandana
 
 *durvaśane*—en Durvaśana; *raghunāthe*—el Señor Rāmacandra; *kaila daraśana*—Śrī Caitanya Mahāprabhu visitó; *mahendra-śaile*—en Mahendra-śaila; *paraśu-rāmera*—al Señor Paraśurāma; *kaila vandana*—ofreció oraciones.

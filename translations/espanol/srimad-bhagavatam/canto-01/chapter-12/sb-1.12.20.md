@@ -1,11 +1,11 @@
 ### SB 1.12.20
 
-> एष दाता शरण्यश्च यथा ह्यौशीनरः शिबिः ।
+> एष दाता शरण्यश्च यथा ह्यौशीनरः शिबिः ।\
 > यशो वितनिता स्वानां दौष्यन्तिरिव यज्वनाम् ॥२०॥
 
-> eṣa dātā śaraṇyaś ca
-> yathā hy auśīnaraḥ śibiḥ
-> yaśo vitanitā svānāṁ
+> eṣa dātā śaraṇyaś ca\
+> yathā hy auśīnaraḥ śibiḥ\
+> yaśo vitanitā svānāṁ\
 > dauṣyantir iva yajvanām
 
 *eṣaḥ*—este niño; *dātā*—dador de caridad; *śaraṇyaḥ*—protector de los entregados; *ca*—y; *yathā*—como; *hi*—ciertamente; *auśīnaraḥ*—el país llamado Uśnara; *śibiḥ*—Śibi; *yaśaḥ*—fama; *vitanitā*—propagador; *svānām*—de los parientes; *dauṣyantiḥ iva*—como Bharata, el hijo de Duṣyanta; *yajvanām*—de aquellos que han ejecutado muchos sacrificios.

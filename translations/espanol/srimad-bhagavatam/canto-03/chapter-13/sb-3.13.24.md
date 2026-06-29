@@ -1,11 +1,11 @@
 ### SB 3.13.24
 
-> ब्रह्माणं हर्षयामास हरिस्तांश्च द्विजोत्तमान् ।
+> ब्रह्माणं हर्षयामास हरिस्तांश्च द्विजोत्तमान् ।\
 > स्वगर्जितेन ककुभः प्रतिस्वनयता विभुः ॥२४॥
 
-> brahmāṇaṁ harṣayām āsa
-> haris tāṁś ca dvijottamān
-> sva-garjitena kakubhaḥ
+> brahmāṇaṁ harṣayām āsa\
+> haris tāṁś ca dvijottamān\
+> sva-garjitena kakubhaḥ\
 > pratisvanayatā vibhuḥ
 
 *brahmāṇam*—a Brahmā; *harṣayām āsa*—animó; *hariḥ*—la Personalidad de Dios; *tān*—a todos ellos; *ca*—también; *dvija-uttamān*—*brāhmaṇas* muy elevados; *sva-garjitena*—con Su voz extraordinaria; *kakubhaḥ*—todas las direcciones; *pratisvanayatā*—que levantó ecos; *vibhuḥ*—el omnipotente.

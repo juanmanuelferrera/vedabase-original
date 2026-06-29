@@ -1,11 +1,11 @@
 ### SB 5.5.23
 
-> न ब्राह्मणैस्तुलये भूतमन्यत्पश्यामि विप्राः किमतः परं तु
+> न ब्राह्मणैस्तुलये भूतमन्यत्पश्यामि विप्राः किमतः परं तु\
 > यस्मिन्नृभिः प्रहुतं श्रद्धयाहमश्नामि कामं न तथाग्निहोत्रे ॥२३॥
 
-> na brāhmaṇais tulaye bhūtam anyat
-> paśyāmi viprāḥ kim ataḥ paraṁ tu
-> yasmin nṛbhiḥ prahutaṁ śraddhayāham
+> na brāhmaṇais tulaye bhūtam anyat\
+> paśyāmi viprāḥ kim ataḥ paraṁ tu\
+> yasmin nṛbhiḥ prahutaṁ śraddhayāham\
 > aśnāmi kāmaṁ na tathāgni-hotre
 
 *na*—not; *brāhmaṇaiḥ*—with the *brāhmaṇas*; *tulaye*—I count as equal; *bhūtam*—entity; *anyat*—other; *paśyāmi*—I can see; *viprāḥ*—O assembled *brāhmaṇas*; *kim*—anything; *ataḥ*—to the *brāhmaṇas*; *param*—superior; *tu*—certainly; *yasmin*—through whom; *nṛbhiḥ*—by people; *prahutam*—food offered after ritualistic ceremonies are properly performed; *śraddhayā*—with faith and love; *aham*—I; *aśnāmi*—eat; *kāmam*—with full satisfaction; *na*—not; *tathā*—in that way; *agni-hotre*—in the fire sacrifice.

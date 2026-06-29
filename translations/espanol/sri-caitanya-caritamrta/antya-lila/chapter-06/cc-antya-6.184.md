@@ -1,9 +1,9 @@
 ### CC Antya 6.184
 
-> এথা রঘুনাথ-দাস প্রভাতে উঠিয়া ।
+> এথা রঘুনাথ-দাস প্রভাতে উঠিয়া ।\
 > পূর্বমুখ ছাড়ি’ চলে দক্ষিণ-মুখ হঞা ॥১৮৪॥
 
-> ethā raghunātha-dāsa prabhāte uṭhiyā
+> ethā raghunātha-dāsa prabhāte uṭhiyā\
 > pūrva-mukha chāḍi' cale dakṣiṇa-mukha hañā
 
 *ethā*—aquí; *raghunātha-dāsa*—Raghunātha dāsa; *prabhāte*—temprano por la mañana; *uṭhiyā*—levantándose; *pūrva-mukha*—orientándose hacia el este; *chāḍi'*—abandonando; *cale*—comenzó a avanzar; *dakṣiṇa-mukha*—orientándose hacia el sur; *hañā*—siendo.

@@ -1,11 +1,11 @@
 ### SB 3.11.17
 
-> भगवान्वेद कालस्य गतिं भगवतो ननु ।
+> भगवान्वेद कालस्य गतिं भगवतो ननु ।\
 > विश्वं विचक्षते धीरा योगराद्धेन चक्षुषा ॥१७॥
 
-> bhagavān veda kālasya
-> gatiṁ bhagavato nanu
-> viśvaṁ vicakṣate dhīrā
+> bhagavān veda kālasya\
+> gatiṁ bhagavato nanu\
+> viśvaṁ vicakṣate dhīrā\
 > yoga-rāddhena cakṣuṣā
 
 *bhagavān*—O spiritually powerful one; *veda*—you know; *kālasya*—of the eternal time; *gatim*—movements; *bhagavataḥ*—of the Supreme Personality of Godhead; *nanu*—as a matter of course; *viśvam*—the whole universe; *vicakṣate*—see; *dhīrāḥ*—those who are self-realized; *yoga-rāddhena*—by dint of mystic vision; *cakṣuṣā*—by the eyes.

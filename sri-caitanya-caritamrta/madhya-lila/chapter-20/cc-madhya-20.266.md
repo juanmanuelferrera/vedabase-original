@@ -1,11 +1,11 @@
 ### CC Madhya 20.266
 
-> জগৃহে পৌরুষং রূপং ভগবান্মহদাদিভিঃ ।
+> জগৃহে পৌরুষং রূপং ভগবান্মহদাদিভিঃ ।\
 > সম্ভূতং ষোড়শকলমাদৌ লোকসিসৃক্ষয়া ॥২৬৬॥
 
-> jagṛhe pauruṣaṁ rūpaṁ
-> bhagavān mahad-ādibhiḥ
-> sambhūtaṁ ṣoḍaśa-kalam
+> jagṛhe pauruṣaṁ rūpaṁ\
+> bhagavān mahad-ādibhiḥ\
+> sambhūtaṁ ṣoḍaśa-kalam\
 > ādau loka-sisṛkṣayā
 
 *jagṛhe*—accepted; *pauruṣam rūpam*—the form of the puruṣa incarnation; *bhagavān*—the Supreme Personality of Godhead; *mahat-ādibhiḥ*—with the material energy, etc.; *sambhūtam*—created; *ṣoḍaśa*—sixteen; *kalam*—elements; *ādau*—in the beginning; *loka*—of the material worlds; *sisṛkṣayā*—with a desire for the creation.

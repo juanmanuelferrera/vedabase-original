@@ -1,13 +1,13 @@
 ### SB 4.9.8
 
-> त्वद्दत्तया वयुनयेदमचष्ट विश्वं
-> सुप्तप्रबुद्ध इव नाथ भवत्प्रपन्नः ।
-> तस्यापवर्ग्यशरणं तव पादमूलं
+> त्वद्दत्तया वयुनयेदमचष्ट विश्वं\
+> सुप्तप्रबुद्ध इव नाथ भवत्प्रपन्नः ।\
+> तस्यापवर्ग्यशरणं तव पादमूलं\
 > विस्मर्यते कृतविदा कथमार्तबन्धो ॥८॥
 
-> tvad-dattayā vayunayedam acaṣṭa viśvaṁ
-> supta-prabuddha iva nātha bhavat-prapannaḥ
-> tasyāpavargya-śaraṇaṁ tava pāda-mūlaṁ
+> tvad-dattayā vayunayedam acaṣṭa viśvaṁ\
+> supta-prabuddha iva nātha bhavat-prapannaḥ\
+> tasyāpavargya-śaraṇaṁ tava pāda-mūlaṁ\
 > vismaryate kṛta-vidā katham ārta-bandho
 
 *tvat-dattayā*—dado por Ti; *vayunayā*—con conocimiento; *idam*—este; *acaṣṭa*—pudo ver; *viśvam*—todo el universo; *supta-prabuddhaḥ*—un hombre que despierta de un sueño; *iva*—como; *nātha*—¡oh, mi Señor!; *bhavat-prapannaḥ*—el Señor Brahmā, que está entregado a Ti; *tasya*—su; *āpavargya*—de los que desean la liberación; *śaraṇam*—el refugio; *tava*—Tus; *pāda-mūlam*—pies de loto; *vismaryate*—puede ser olvidado; *kṛta-vidā*—por una persona erudita; *katham*—cómo; *ārta-bandho*—¡oh, amigo de los afligidos!.

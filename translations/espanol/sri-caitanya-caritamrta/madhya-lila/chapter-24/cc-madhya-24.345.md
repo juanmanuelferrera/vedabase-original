@@ -1,9 +1,9 @@
 ### CC Madhya 24.345
 
-> এই সংক্ষেপে সূত্র কহিলুঁ দিগ্দরশন ।
+> এই সংক্ষেপে সূত্র কহিলুঁ দিগ্দরশন ।\
 > যবে তুমি লিখিবা, কৃষ্ণ করাবে স্ফুরণ ॥৩৪৫॥
 
-> ei saṅkṣepe sūtra kahiluṅ dig-daraśana
+> ei saṅkṣepe sūtra kahiluṅ dig-daraśana\
 > yabe tumi likhibā, kṛṣṇa karābe sphuraṇa
 
 *ei*—así; *saṅkṣepe*—en resumen; *sūtra*—códigos; *kahiluṅ*—he descrito; *dik-daraśana*—un poco de orientación; *yabe*—cuando; *tumi*—tú; *likhibā*—intentes escribir; *kṛṣṇa*—el Señor Kṛṣṇa; *karābe*—hará; *sphuraṇa*—manifestar.

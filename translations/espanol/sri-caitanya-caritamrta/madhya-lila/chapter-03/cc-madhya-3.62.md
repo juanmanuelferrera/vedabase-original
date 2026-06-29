@@ -1,9 +1,9 @@
 ### CC Madhya 3.62
 
-> মুকুন্দ কহে — মোর কিছু কৃত্য নাহি সরে ।
+> মুকুন্দ কহে — মোর কিছু কৃত্য নাহি সরে ।\
 > পাছে মুঞি প্রসাদ পামু, তুমি যাহ ঘরে ॥৬২॥
 
-> mukunda kahe--mora kichu kṛtya nāhi sare
+> mukunda kahe--mora kichu kṛtya nāhi sare\
 > pāche muñi prasāda pāmu, tumi yāha ghare
 
 *mukunda kahe*—Mukunda dijo; *mora*—de mí; *kichu*—algo; *kṛtya*—por hacer; *nāhi sare*—aún no he terminado; *pāche*—después; *muñi*—yo; *prasāda*—prasāda; *pāmu*—aceptaré; *tumi yāha ghare*—ustedes dos entren amablemente en la habitación.

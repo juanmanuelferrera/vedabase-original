@@ -1,12 +1,12 @@
 ### SB 8.8.38
 
-> विषण्णमनसो देवा हरिं शरणमाययुः
-> इति तद्दैन्यमालोक्य भगवान्भृत्यकामकृत
+> विषण्णमनसो देवा हरिं शरणमाययुः\
+> इति तद्दैन्यमालोक्य भगवान्भृत्यकामकृत\
 > मा खिद्यत मिथोऽर्थं वः साधयिष्ये स्वमायया ॥३८॥
 
-> mithaḥ kalir abhūt teṣāṁ
-> tad-arthe tarṣa-cetasām
-> ahaṁ pūrvam ahaṁ pūrvaṁ
+> mithaḥ kalir abhūt teṣāṁ\
+> tad-arthe tarṣa-cetasām\
+> ahaṁ pūrvam ahaṁ pūrvaṁ\
 > na tvaṁ na tvam iti prabho
 
 *mithaḥ*—among themselves; *kaliḥ*—disagreement and quarrel; *abhūt*—there was; *teṣām*—of all of them; *tat-arthe*—for the sake of nectar; *tarṣa-cetasām*—bewildered in heart and soul by the illusory energy of Viṣṇu; *aham*—I; *pūrvam*—first; *aham*—I; *pūrvam*—first; *na*—not; *tvam*—you; *na*—not; *tvam*—you; *iti*—thus; *prabho*—O King.

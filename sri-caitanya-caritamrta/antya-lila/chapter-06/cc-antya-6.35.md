@@ -1,9 +1,9 @@
 ### CC Antya 6.35
 
-> এইমত রঘুনাথের বৎসরেক গেল ।
+> এইমত রঘুনাথের বৎসরেক গেল ।\
 > দ্বিতীয় বৎসরে পলাইতে মন কৈল ॥৩৫॥
 
-> ei-mata raghunāthera vatsareka gela
+> ei-mata raghunāthera vatsareka gela\
 > dvitīya vatsare palāite mana kaila
 
 *ei-mata*—in this way; *raghunāthera*—of Raghunātha dāsa; *vatsareka*—one year; *gela*—passed; *dvitīya vatsare*—the next year; *palāite*—to go away from home; *mana kaila*—he decided.

@@ -1,13 +1,13 @@
 ### CC Madhya 13.156
 
-> যাদবের বিপক্ষ, যত দুষ্ট কংসপক্ষ,
-> তাহা আমি কৈলুঁ সব ক্ষয় ।
-> আছে দুই-চারি জন, তাহা মারি’ বৃন্দাবন,
+> যাদবের বিপক্ষ, যত দুষ্ট কংসপক্ষ,\
+> তাহা আমি কৈলুঁ সব ক্ষয় ।\
+> আছে দুই-চারি জন, তাহা মারি’ বৃন্দাবন,\
 > আইলাম আমি, জানিহ নিশ্চয় ॥১৫৬॥
 
-> yādavera vipakṣa, yata duṣṭa kaṁsa-pakṣa,
-> tāhā āmi kailuṅ saba kṣaya
-> āche dui-cāri jana, tāhā māri' vṛndāvana,
+> yādavera vipakṣa, yata duṣṭa kaṁsa-pakṣa,\
+> tāhā āmi kailuṅ saba kṣaya\
+> āche dui-cāri jana, tāhā māri' vṛndāvana,\
 > āilāma āmi, jāniha niścaya
 
 *yādavera vipakṣa*—todos los enemigos de la dinastía Yadu; *yata*—todos; *duṣṭa*—perversos; *kaṁsa-pakṣa*—el bando de Kaṁsa; *tāhā*—a ellos; *āmi*—Yo; *kailuṅ saba kṣaya*—los he aniquilado a todos; *āche*—quedan todavía; *dui-cāri jana*—dos o cuatro demonios; *tāhā māri'*—después de matarlos; *vṛndāvana*—a Vṛndāvana; *āilāma āmi*—vendré muy pronto; *jāniha niścaya*—por favor, tenlo por seguro.

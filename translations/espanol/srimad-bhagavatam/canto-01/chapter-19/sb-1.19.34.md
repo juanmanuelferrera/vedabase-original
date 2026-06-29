@@ -1,11 +1,11 @@
 ### SB 1.19.34
 
-> सान्निध्यात्ते महायोगिन्पातकानि महान्त्यपि ।
+> सान्निध्यात्ते महायोगिन्पातकानि महान्त्यपि ।\
 > सद्यो नश्यन्ति वै पुंसां विष्णोरिव सुरेतराः ॥३४॥
 
-> sānnidhyāt te mahā-yogin
-> pātakāni mahānty api
-> sadyo naśyanti vai puṁsāṁ
+> sānnidhyāt te mahā-yogin\
+> pātakāni mahānty api\
+> sadyo naśyanti vai puṁsāṁ\
 > viṣṇor iva suretarāḥ
 
 *sānnidhyāt*—debido a la presencia; *te*—tu; *mahā-yogin*—¡oh, gran místico!; *pātakāni*—pecados; *mahānti*—invulnerable; *api*—a pesar de; *sadyaḥ*—de inmediato; *naśyanti*—elimina; *vai*—ciertamente; *puṁsām*—de una persona; *viṣṇoḥ*—como la presencia de la Personalidad de Dios; *iva*—como; *sura-itarāḥ*—además de los semidioses.

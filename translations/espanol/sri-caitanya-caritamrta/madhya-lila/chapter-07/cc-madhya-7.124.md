@@ -1,9 +1,9 @@
 ### CC Madhya 7.124
 
-> ‘যেই পাদপদ্ম তোমার ব্রহ্মা ধ্যান করে ৷
+> ‘যেই পাদপদ্ম তোমার ব্রহ্মা ধ্যান করে ৷\
 > সেই পাদপদ্ম সাক্ষাৎ আইল মোর ঘরে ৷৷ ১২৪ ৷৷ ॥১২৪॥
 
-> 'yei pāda-padma tomāra brahmā dhyāna kare
+> 'yei pāda-padma tomāra brahmā dhyāna kare\
 > sei pāda-padma sākṣāt āila mora ghare
 
 *yei*—aquellos; *pāda-padma*—pies de loto; *tomāra*—Tuyos; *brahmā*—el Señor Brahmā; *dhyāna kare*—medita en; *sei pāda-padma*—aquellos pies de loto; *sākṣāt*—directamente; *āila*—han venido; *mora*—mi; *ghare*—al hogar.

@@ -1,13 +1,13 @@
 ### SB 9.10.50
 
-> एवं कृतशिरःस्नानः सुवासाः स्रग्व्यलङ्कृतः
+> एवं कृतशिरःस्नानः सुवासाः स्रग्व्यलङ्कृतः\
 > स्वलङ्कृतैः सुवासोभिर्भ्रातृभिर्भार्यया बभौ ॥५०॥
 
-> agrahīd āsanaṁ bhrātrā
-> praṇipatya prasāditaḥ
-> prajāḥ sva-dharma-niratā
-> varṇāśrama-guṇānvitāḥ
-> jugopa pitṛvad rāmo
+> agrahīd āsanaṁ bhrātrā\
+> praṇipatya prasāditaḥ\
+> prajāḥ sva-dharma-niratā\
+> varṇāśrama-guṇānvitāḥ\
+> jugopa pitṛvad rāmo\
 > menire pitaraṁ ca tam
 
 *agrahīt*—accepted; *āsanam*—the throne of the state; *bhrātrā*—by His brother (Bharata); *praṇipatya*—after fully surrendering unto Him; *prasāditaḥ*—having been pleased; *prajāḥ*—and the citizens; *sva-dharma-niratāḥ*—fully engaged in their respective occupational duties; *varṇāśrama*—according to the system of *varṇa* and *āśrama*; *guṇa-anvitāḥ*—all of them being qualified in that process; *jugopa*—the Lord protected them; *pitṛ-vat*—exactly like a father; *rāmaḥ*—Lord Rāmacandra; *menire*—they considered; *pitaram*—exactly like a father; *ca*—also; *tam*—Him, Lord Rāmacandra.

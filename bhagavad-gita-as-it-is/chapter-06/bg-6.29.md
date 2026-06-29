@@ -1,11 +1,11 @@
 ### Bg 6.29
 
-> सर्वभूतस्थमात्मानं सर्वभूतानि चात्मनि ।
+> सर्वभूतस्थमात्मानं सर्वभूतानि चात्मनि ।\
 > ईक्षते योगयुक्तात्मा सर्वत्र समदर्शनः ॥२९॥
 
-> sarva-bhūta-stham ātmānaṁ
-> sarva-bhūtāni cātmani
-> īkṣate yoga-yuktātmā
+> sarva-bhūta-stham ātmānaṁ\
+> sarva-bhūtāni cātmani\
+> īkṣate yoga-yuktātmā\
 > sarvatra sama-darśanaḥ
 
 *sarva-bhūta-stham*—situated in all beings; *ātmānam*—the Supersoul; *sarva*—all; *bhūtāni*—entities; *ca*—also; *ātmani*—in the Self; *īkṣate*—does see; *yoga-yukta-ātmā*—one who is dovetailed in Kṛṣṇa consciousness; *sarvatra*—everywhere; *sama-darśanaḥ*—seeing equally.

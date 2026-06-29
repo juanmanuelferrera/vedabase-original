@@ -1,11 +1,11 @@
 ### SB 8.7.10
 
-> तमुत्थितं वीक्ष्य कुलाचलं पुनः समुद्यता निर्मथितुं सुरासुराः
+> तमुत्थितं वीक्ष्य कुलाचलं पुनः समुद्यता निर्मथितुं सुरासुराः\
 > दधार पृष्ठेन स लक्षयोजन प्रस्तारिणा द्वीप इवापरो महान ॥१०॥
 
-> surāsurendrair bhuja-vīrya-vepitaṁ
-> paribhramantaṁ girim aṅga pṛṣṭhataḥ
-> bibhrat tad-āvartanam ādi-kacchapo
+> surāsurendrair bhuja-vīrya-vepitaṁ\
+> paribhramantaṁ girim aṅga pṛṣṭhataḥ\
+> bibhrat tad-āvartanam ādi-kacchapo\
 > mene 'ṅga-kaṇḍūyanam aprameyaḥ
 
 *sura-asura-indraiḥ*—por los líderes de los demonios y de los semidioses; *bhuja-vīrya*—por la fuerza de sus brazos; *vepitam*—moviendo; *paribhramantam*—girar; *girim*—la montaña; *aṅga*—¡oh, Mahārāja Parīkṣit!; *pṛṣṭhataḥ*—sobre Su concha; *bibhrat*—llevaba; *tat*—de eso; *āvartanam*—el girar; *ādi-kacchapaḥ*—como la tortuga suprema original; *mene*—consideró; *aṅga-kaṇḍūyanam*—como un placentero rascar del cuerpo; *aprameyaḥ*—ilimitado.

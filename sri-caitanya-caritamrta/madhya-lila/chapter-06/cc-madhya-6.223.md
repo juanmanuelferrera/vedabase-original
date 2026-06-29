@@ -1,9 +1,9 @@
 ### CC Madhya 6.223
 
-> প্রসাদান্ন পাঞা ভট্টাচার্যের আনন্দ হৈল ।
+> প্রসাদান্ন পাঞা ভট্টাচার্যের আনন্দ হৈল ।\
 > স্নান, সন্ধ্যা, দন্তধাবন যদ্যপি না কৈল ॥২২৩॥
 
-> prasādānna pāñā bhaṭṭācāryera ānanda haila
+> prasādānna pāñā bhaṭṭācāryera ānanda haila\
 > snāna, sandhyā, danta-dhāvana yadyapi nā kaila
 
 *prasāda-anna*—the remnants of food; *pāñā*—getting; *bhaṭṭācāryera*—of Sārvabhauma Bhaṭṭācārya; *ānanda*—pleasure; *haila*—there was; *snāna*—bathing; *sandhyā*—morning duties; *danta-dhāvana*—washing the teeth; *yadyapi*—although; *nā*—not; *kaila*—finished.

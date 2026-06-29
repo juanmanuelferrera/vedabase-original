@@ -1,9 +1,9 @@
 ### CC Madhya 19.73
 
-> শুনি’ মহাপ্রভু তাঁরে বহু প্রশংসিলা ।
+> শুনি’ মহাপ্রভু তাঁরে বহু প্রশংসিলা ।\
 > প্রেমাবিষ্ট হঞা শ্লোক পড়িতে লাগিলা ॥৭৩॥
 
-> śuni' mahāprabhu tāṅre bahu praśaṁśilā
+> śuni' mahāprabhu tāṅre bahu praśaṁśilā\
 > premāviṣṭa hañā śloka paḍite lāgilā
 
 *śuni'*—al escuchar; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a él; *bahu*—mucho; *praśaṁśilā*—elogió; *prema-āviṣṭa hañā*—al sumirse en éxtasis de amor por Dios; *śloka*—versos; *paḍite lāgilā*—comenzó a recitar.

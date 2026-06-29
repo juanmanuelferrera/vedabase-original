@@ -1,11 +1,11 @@
 ### SB 8.21.32
 
-> प्रतिश्रुतमदातुस्ते निरये वास इष्यते
+> प्रतिश्रुतमदातुस्ते निरये वास इष्यते\
 > विश त्वं निरयं तस्माद्गुरुणा चानुमोदितः ॥३२॥
 
-> pratiśrutam adātus te
-> niraye vāsa iṣyate
-> viśa tvaṁ nirayaṁ tasmād
+> pratiśrutam adātus te\
+> niraye vāsa iṣyate\
+> viśa tvaṁ nirayaṁ tasmād\
 > guruṇā cānumoditaḥ
 
 *pratiśrutam*—what had been promised; *adātuḥ*—who could not give; *te*—of you; *niraye*—in hell; *vāsaḥ*—residence; *iṣyate*—prescribed; *viśa*—now enter; *tvam*—yourself; *nirayam*—the hellish planet; *tasmāt*—therefore; *guruṇā*—by your spiritual master; *ca*—also; *anumoditaḥ*—approved.

@@ -1,11 +1,11 @@
 ### SB 3.26.60
 
-> क्षुत्पिपासे ततः स्यातां समुद्रस्त्वेतयोरभूत् ।
+> क्षुत्पिपासे ततः स्यातां समुद्रस्त्वेतयोरभूत् ।\
 > अथास्य हृदयं भिन्नं हृदयान्मन उत्थितम् ॥६०॥
 
-> kṣut-pipāse tataḥ syātāṁ
-> samudras tv etayor abhūt
-> athāsya hṛdayaṁ bhinnaṁ
+> kṣut-pipāse tataḥ syātāṁ\
+> samudras tv etayor abhūt\
+> athāsya hṛdayaṁ bhinnaṁ\
 > hṛdayān mana utthitam
 
 *kṣut-pipāse*—hambre y sed; *tataḥ*—luego; *syātām*—apareció; *samudraḥ*—el mar; *tu*—entonces; *etayoḥ*—seguidamente; *abhūt*—apareció; *atha*—luego; *asya*—de la forma universal; *hṛdayam*—un corazón; *bhinnam*—apareció; *hṛdayāt*—del corazón; *manaḥ*—la mente; *utthitam*—apareció.

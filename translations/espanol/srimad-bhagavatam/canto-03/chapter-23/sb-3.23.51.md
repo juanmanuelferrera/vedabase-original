@@ -1,13 +1,13 @@
 ### SB 3.23.51
 
-> देवहूतिरुवाच
-> सर्वं तद्भगवान्मह्यमुपोवाह प्रतिश्रुतम् ।
+> देवहूतिरुवाच\
+> सर्वं तद्भगवान्मह्यमुपोवाह प्रतिश्रुतम् ।\
 > अथापि मे प्रपन्नाया अभयं दातुमर्हसि ॥५१॥
 
-> devahūtir uvāca
-> sarvaṁ tad bhagavān mahyam
-> upovāha pratiśrutam
-> athāpi me prapannāyā
+> devahūtir uvāca\
+> sarvaṁ tad bhagavān mahyam\
+> upovāha pratiśrutam\
+> athāpi me prapannāyā\
 > abhayaṁ dātum arhasi
 
 *devahūtiḥ*—Devahūti; *uvāca*—dijo; *sarvam*—todas; *tat*—que; *bhagavān*—Tu Señoría; *mahyam*—a mí; *upovāha*—se ha cumplido; *pratiśrutam*—prometido; *atha api*—aun así; *me*—a mí; *prapannāyai*—a aquel que se ha entregado; *abhayam*—liberación del temor; *dātum*—dar; *arhasi*—mereces.

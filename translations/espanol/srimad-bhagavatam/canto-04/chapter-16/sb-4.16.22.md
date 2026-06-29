@@ -1,11 +1,11 @@
 ### SB 4.16.22
 
-> अयं महीं गां दुदुहेऽधिराजः प्रजापतिर्वृत्तिकरः प्रजानाम् ।
+> अयं महीं गां दुदुहेऽधिराजः प्रजापतिर्वृत्तिकरः प्रजानाम् ।\
 > यो लीलयाद्रीन्स्वशरासकोट्या भिन्दन्समां गामकरोद्यथेन्द्रः ॥२२॥
 
-> ayaṁ mahīṁ gāṁ duduhe 'dhirājaḥ
-> prajāpatir vṛtti-karaḥ prajānām
-> yo līlayādrīn sva-śarāsa-koṭyā
+> ayaṁ mahīṁ gāṁ duduhe 'dhirājaḥ\
+> prajāpatir vṛtti-karaḥ prajānām\
+> yo līlayādrīn sva-śarāsa-koṭyā\
 > bhindan samāṁ gām akarod yathendraḥ
 
 *ayam*—este rey; *mahīm*—a la Tierra; *gām*—en forma de vaca; *duduhe*—ordeñará; *adhirājaḥ*—rey extraordinario; *prajā-patiḥ*—progenitor de la humanidad; *vṛtti-karaḥ*—facilitando la subsistencia; *prajānām*—de los ciudadanos; *yaḥ*—el que; *līlayā*—simplemente con pasatiempos; *adrīn*—montañas y elevaciones; *sva-śarāsa*—de su arco; *koṭyā*—con la aguda punta; *bhindan*—rompiendo; *samām*—llana; *gām*—a la Tierra; *akarot*—hará; *yathā*—como; *indraḥ*—el rey del cielo, Indra.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.57
 
-> প্রভুর প্রিয়-ব্যঞ্জন সব রান্ধেন মালিনী ।
+> প্রভুর প্রিয়-ব্যঞ্জন সব রান্ধেন মালিনী ।\
 > ‘ভক্ত্যে দাসী’-অভিমান, ‘স্নেহেতে জননী’ ॥৫৭॥
 
-> prabhura priya-vyañjana saba rāndhena mālinī
+> prabhura priya-vyañjana saba rāndhena mālinī\
 > 'bhaktye dāsī'-abhimāna, 'snehete jananī'
 
 *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *priya-vyañjana*—favorite vegetables; *saba*—all; *rāndhena*—cooks; *mālinī*—the wife of Śrīvāsa Ṭhākura; *bhaktye dāsī*—in devotion she was just like a maidservant; *abhimāna*—it was her conception; *snehete*—in affection; *jananī*—exactly like a mother.

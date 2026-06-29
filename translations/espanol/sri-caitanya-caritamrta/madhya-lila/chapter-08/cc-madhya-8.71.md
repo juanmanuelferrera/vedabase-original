@@ -1,9 +1,9 @@
 ### CC Madhya 8.71
 
-> প্রভু কহে, — “এহো হয়, আগে কহ আর ৷”
+> প্রভু কহে, — “এহো হয়, আগে কহ আর ৷”\
 > রায় কহে, “দাস্য-প্রেম — সর্বসাধ্যসার ৷৷” ৭১ ৷৷ ॥৭১॥
 
-> prabhu kahe, "eho haya, āge kaha āra"
+> prabhu kahe, "eho haya, āge kaha āra"\
 > rāya kahe, "dāsya-prema--sarva-sādhya-sāra"
 
 *prabhu kahe*—el Señor dijo; *eho haya*—eso está bien; *āge kaha āra*—por favor, habla más; *rāya kahe*—Rāmānanda Rāya respondió; *dāsya-prema*—amor espontáneo en la melosidad de la servidumbre; *sarva-sādhya-sāra*—la esencia de la perfección.

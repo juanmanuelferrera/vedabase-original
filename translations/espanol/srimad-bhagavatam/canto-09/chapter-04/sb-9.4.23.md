@@ -1,11 +1,11 @@
 ### SB 9.4.23
 
-> यस्य क्रतुषु गीर्वाणैः सदस्या ऋत्विजो जनाः
+> यस्य क्रतुषु गीर्वाणैः सदस्या ऋत्विजो जनाः\
 > तुल्यरूपाश्चानिमिषा व्यदृश्यन्त सुवाससः ॥२३॥
 
-> yasya kratuṣu gīrvāṇaiḥ
-> sadasyā ṛtvijo janāḥ
-> tulya-rūpāś cānimiṣā
+> yasya kratuṣu gīrvāṇaiḥ\
+> sadasyā ṛtvijo janāḥ\
+> tulya-rūpāś cānimiṣā\
 > vyadṛśyanta suvāsasaḥ
 
 *yasya*—de quien (de Mahārāja Ambarīṣa); *kratuṣu*—en sacrificios (celebrados por él); *gīrvāṇaiḥ*—con los semidioses; *sadasyāḥ*—quienes oficiaban en el sacrificio; *ṛtvijaḥ*—los sacerdotes; *janāḥ*—y otros expertos; *tulya-rūpāḥ*—con el mismo aspecto que; *ca*—y; *animiṣāḥ*—con ojos como los de los semidioses, que no parpadean; *vyadṛśyanta*—vistos; *su-vāsasaḥ*—bien vestidos, con ropajes costosos.

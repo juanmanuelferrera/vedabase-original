@@ -1,11 +1,11 @@
 ### SB 8.16.32
 
-> नमः शिवाय रुद्राय नमः शक्तिधराय च
+> नमः शिवाय रुद्राय नमः शक्तिधराय च\
 > सर्वविद्याधिपतये भूतानां पतये नमः ॥३२॥
 
-> namaḥ śivāya rudrāya
-> namaḥ śakti-dharāya ca
-> sarva-vidyādhipataye
+> namaḥ śivāya rudrāya\
+> namaḥ śakti-dharāya ca\
+> sarva-vidyādhipataye\
 > bhūtānāṁ pataye namaḥ
 
 *namaḥ*—I offer my respectful obeisances unto You; *śivāya*—the incarnation named Lord Śiva; *rudrāya*—the expansion named Rudra; *namaḥ*—obeisances; *śakti-dharāya*—the reservoir of all potencies; *ca*—and; *sarva-vidyā-adhipataye*—the reservoir of all knowledge; *bhūtānām*—of the living entities; *pataye*—the supreme master; *namaḥ*—I offer my respectful obeisances unto You.

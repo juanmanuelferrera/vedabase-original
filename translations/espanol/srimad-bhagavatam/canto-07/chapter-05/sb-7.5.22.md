@@ -1,13 +1,13 @@
 ### SB 7.5.22
 
-> हिरण्यकशिपुरुवाच
-> प्रह्रादानूच्यतां तात स्वधीतं किञ्चिदुत्तमम
+> हिरण्यकशिपुरुवाच\
+> प्रह्रादानूच्यतां तात स्वधीतं किञ्चिदुत्तमम\
 > कालेनैतावतायुष्मन्यदशिक्षद्गुरोर्भवान ॥२२॥
 
-> hiraṇyakaśipur uvāca
-> prahrādānūcyatāṁ tāta
-> svadhītaṁ kiñcid uttamam
-> kālenaitāvatāyuṣman
+> hiraṇyakaśipur uvāca\
+> prahrādānūcyatāṁ tāta\
+> svadhītaṁ kiñcid uttamam\
+> kālenaitāvatāyuṣman\
 > yad aśikṣad guror bhavān
 
 *hiraṇyakaśipuḥ uvāca*—el rey Hiraṇyakaśipu dijo; *prahrāda*—mi querido Prahlāda; *anūcyatām*—que se diga; *tāta*—mi querido hijo; *svadhītam*—bien aprendido; *kiñcit*—algo; *uttamam*—muy bueno; *kālena etāvatā*—durante tanto tiempo; *āyuṣman*—¡oh, tú, que gozas de larga vida!; *yat*—que; *aśikṣat*—has aprendido; *guroḥ*—de tus maestros; *bhavān*—tú mismo.

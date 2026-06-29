@@ -1,11 +1,11 @@
 ### SB 7.4.13
 
-> तमङ्ग मत्तं मधुनोरुगन्धिना विवृत्तताम्राक्षमशेषधिष्ण्यपाः
+> तमङ्ग मत्तं मधुनोरुगन्धिना विवृत्तताम्राक्षमशेषधिष्ण्यपाः\
 > उपासतोपायनपाणिभिर्विना त्रिभिस्तपोयोगबलौजसां पदम ॥१३॥
 
-> tam aṅga mattaṁ madhunoru-gandhinā
-> vivṛtta-tāmrākṣam aśeṣa-dhiṣṇya-pāḥ
-> upāsatopāyana-pāṇibhir vinā
+> tam aṅga mattaṁ madhunoru-gandhinā\
+> vivṛtta-tāmrākṣam aśeṣa-dhiṣṇya-pāḥ\
+> upāsatopāyana-pāṇibhir vinā\
 > tribhis tapo-yoga-balaujasāṁ padam
 
 *tam*—a él (Hiraṇyakaśipu); *aṅga*—¡oh, querido rey!; *mattam*—embriagado; *madhunā*—con vino; *uru-gandhinā*—de fuerte olor; *vivṛtta*—que dan vueltas; *tāmra-akṣam*—con ojos como el cobre; *aśeṣa-dhiṣṇya-pāḥ*—el hombre más importante de todos los planetas; *upāsata*—adorado; *upāyana*—con todos los objetos necesarios; *pāṇibhiḥ*—con sus propias manos; *vinā*—sin; *tribhiḥ*—las tres deidades principales (el Señor Viṣṇu, el Señor Brahmā y el Señor Śiva); *tapaḥ*—de austeridad; *yoga*—poder místico; *bala*—fuerza física; *ojasām*—y poder de los sentidos; *padam*—la morada.

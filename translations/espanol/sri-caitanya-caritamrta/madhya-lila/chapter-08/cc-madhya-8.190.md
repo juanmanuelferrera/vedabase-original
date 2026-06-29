@@ -1,13 +1,13 @@
 ### CC Madhya 8.190
 
-> বাচা সূচিতশর্বরীরতিকলা-প্রাগল্ভ্যয়া রাধিকাং
-> ব্রীড়াকুঞ্চিত-লোচনাং বিরচয়ন্নগ্রে সখীনামসৌ ৷
-> তদ্বক্ষোরুহচিত্রকেলিমকরীপাণ্ডিত্যপারং গতঃ
+> বাচা সূচিতশর্বরীরতিকলা-প্রাগল্ভ্যয়া রাধিকাং\
+> ব্রীড়াকুঞ্চিত-লোচনাং বিরচয়ন্নগ্রে সখীনামসৌ ৷\
+> তদ্বক্ষোরুহচিত্রকেলিমকরীপাণ্ডিত্যপারং গতঃ\
 > কৈশোরং সফলীকরোতি কলয়ন্ কুঞ্জে বিহারং হরিঃ ৷৷ ১৯০৷৷ ॥১৯০॥
 
-> vācā sūcita-śarvarī-rati-kalā-prāgalbhyayā rādhikāṁ
-> vrīḍā-kuñcita-locanāṁ viracayann agre sakhīnām asau
-> tad-vakṣoruha-citra-keli-makarī-pāṇḍitya-pāraṁ gataḥ
+> vācā sūcita-śarvarī-rati-kalā-prāgalbhyayā rādhikāṁ\
+> vrīḍā-kuñcita-locanāṁ viracayann agre sakhīnām asau\
+> tad-vakṣoruha-citra-keli-makarī-pāṇḍitya-pāraṁ gataḥ\
 > kaiśoraṁ saphalī-karoti kalayan kuñje vihāraṁ hariḥ
 
 *vācā*—con palabras; *sūcita*—revelando; *śarvarī*—de la noche; *rati*—en los pasatiempos amorosos; *kalā*—de la porción; *prāgalbhyayā*—la importancia; *rādhikām*—a Śrīmatī Rādhārāṇī; *vrīḍā*—de vergüenza; *kuñcita-locanām*—con los ojos cerrados; *viracayan*—haciendo; *agre*—ante; *sakhīnām*—Sus amigas; *asau*—aquel; *tat*—de Ella; *vakṣaḥ-ruha*—en los pechos; *citra-keli*—con pasatiempos variados; *makarī*—al dibujar delfines; *pāṇḍitya*—de destreza; *pāram*—el límite; *gataḥ*—que alcanzó; *kaiśoram*—la adolescencia; *sa-phalī-karoti*—hace fructífera; *kalayan*—realizando; *kuñje*—en los bosquecillos; *vihāram*—pasatiempos; *hariḥ*—la Suprema Personalidad de Dios.

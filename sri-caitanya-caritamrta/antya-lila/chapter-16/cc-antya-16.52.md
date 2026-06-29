@@ -1,11 +1,11 @@
 ### CC Antya 16.52
 
-> নমস্তে নরসিংহায় প্রহ্লাদাহ্লাদদায়িনে ।
+> নমস্তে নরসিংহায় প্রহ্লাদাহ্লাদদায়িনে ।\
 > হিরণ্যকশিপোর্বক্ষঃশিলাটঙ্ক-নখালয়ে ॥৫২॥
 
-> namas te nara-siṁhāya
-> prahlādāhlāda-dāyine
-> hiraṇyakaśipor vakṣaḥ-
+> namas te nara-siṁhāya\
+> prahlādāhlāda-dāyine\
+> hiraṇyakaśipor vakṣaḥ-\
 > śilā-ṭaṅka-nakhālaye
 
 *namaḥ*—I offer my respectful obeisances; *te*—unto You; *nara-siṁhāya*—Lord Nṛsiṁhadeva; *prahlāda*—to Mahārāja Prahlāda; *āhlāda*—of pleasure; *dāyine*—giver; *hiraṇya-kaśipoḥ*—of Hiraṇyakaśipu; *vakṣaḥ*—chest; *śilā*—like stone; *ṭaṅka*—like the chisel; *nakha-ālaye*—whose fingernails.

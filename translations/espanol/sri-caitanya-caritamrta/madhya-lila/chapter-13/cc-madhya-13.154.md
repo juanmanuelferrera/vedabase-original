@@ -1,13 +1,13 @@
 ### CC Madhya 13.154
 
-> রাখিতে তোমার জীবন, সেবি আমি নারায়ণ,
-> তাঁর শক্ত্যে আসি নিতি-নিতি ।
-> তোমা-সনে ক্রীড়া করি’, নিতি যাই যদুপুরী,
+> রাখিতে তোমার জীবন, সেবি আমি নারায়ণ,\
+> তাঁর শক্ত্যে আসি নিতি-নিতি ।\
+> তোমা-সনে ক্রীড়া করি’, নিতি যাই যদুপুরী,\
 > তাহা তুমি মানহ মোর স্ফূর্তি ॥১৫৪॥
 
-> rākhite tomāra jīvana, sevi āmi nārāyaṇa,
-> tāṅra śaktye āsi niti-niti
-> tomā-sane krīḍā kari', niti yāi yadu-purī,
+> rākhite tomāra jīvana, sevi āmi nārāyaṇa,\
+> tāṅra śaktye āsi niti-niti\
+> tomā-sane krīḍā kari', niti yāi yadu-purī,\
 > tāhā tumi mānaha mora sphūrti
 
 *rākhite*—solo para mantener; *tomāra jīvana*—Tu vida; *sevi āmi nārāyaṇa*—siempre adoro al Señor Nārāyaṇa; *tāṅra śaktye*—por Su potencia; *āsi niti-niti*—vengo a Ti a diario; *tomā-sane*—contigo; *krīḍā kari'*—disfrutando pasatiempos; *niti*—a diario; *yāi yadu-purī*—regreso a Dvārakā-dhāma, conocida como Yadu-purī; *tāhā*—eso; *tumi*—Tú; *mānaha*—experimentas; *mora*—Mi; *sphūrti*—manifestación.

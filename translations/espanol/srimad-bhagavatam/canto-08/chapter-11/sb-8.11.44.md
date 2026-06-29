@@ -1,13 +1,13 @@
 ### SB 8.11.44
 
-> श्रीनारद उवाच
-> भवद्भिरमृतं प्राप्तं नारायणभुजाश्रयैः
+> श्रीनारद उवाच\
+> भवद्भिरमृतं प्राप्तं नारायणभुजाश्रयैः\
 > श्रिया समेधिताः सर्व उपारमत विग्रहात ॥४४॥
 
-> śrī-nārada uvāca
-> bhavadbhir amṛtaṁ prāptaṁ
-> nārāyaṇa-bhujāśrayaiḥ
-> śriyā samedhitāḥ sarva
+> śrī-nārada uvāca\
+> bhavadbhir amṛtaṁ prāptaṁ\
+> nārāyaṇa-bhujāśrayaiḥ\
+> śriyā samedhitāḥ sarva\
 > upāramata vigrahāt
 
 *śrī-nāradaḥ uvāca*—Nārada Muni oró a los semidioses; *bhavadbhiḥ*—por todos ustedes; *amṛtam*—el néctar; *prāptam*—ha sido obtenido; *nārāyaṇa*—de la Suprema Personalidad de Dios; *bhuja-āśrayaiḥ*—protegidos por los brazos; *śriyā*—con toda buena fortuna; *samedhitāḥ*—han prosperado; *sarve*—todos utedes; *upāramata*—ahora abandonen; *vigrahāt*—esta lucha.

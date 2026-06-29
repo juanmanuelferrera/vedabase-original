@@ -1,11 +1,11 @@
 ### SB 8.8.20
 
-> विलोकयन्ती निरवद्यमात्मनः पदं ध्रुवं चाव्यभिचारिसद्गुणम
+> विलोकयन्ती निरवद्यमात्मनः पदं ध्रुवं चाव्यभिचारिसद्गुणम\
 > गन्धर्वसिद्धासुरयक्षचारण त्रैपिष्टपेयादिषु नान्वविन्दत ॥२०॥
 
-> nūnaṁ tapo yasya na manyu-nirjayo
-> jñānaṁ kvacit tac ca na saṅga-varjitam
-> kaścin mahāṁs tasya na kāma-nirjayaḥ
+> nūnaṁ tapo yasya na manyu-nirjayo\
+> jñānaṁ kvacit tac ca na saṅga-varjitam\
+> kaścin mahāṁs tasya na kāma-nirjayaḥ\
 > sa īśvaraḥ kiṁ parato vyapāśrayaḥ
 
 *nūnam*—certainly; *tapaḥ*—austerity; *yasya*—of someone; *na*—not; *manyu*—anger; *nirjayaḥ*—conquered; *jñānam*—knowledge; *kvacit*—in some saintly person; *tat*—that; *ca*—also; *na*—not; *saṅga-varjitam*—without the contamination of association; *kaścit*—someone; *mahān*—a very great exalted person; *tasya*—his; *na*—not; *kāma*—material desires; *nirjayaḥ*—conquered; *saḥ*—such a person; *īśvaraḥ*—controller; *kim*—how can he be; *parataḥ*—of others; *vyapāśrayaḥ*—under the control.

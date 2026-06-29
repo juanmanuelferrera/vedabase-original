@@ -1,11 +1,11 @@
 ### SB 8.17.7
 
-> प्रीत्या शनैर्गद्गदया गिरा हरिं तुष्टाव सा देव्यदितिः कुरूद्वह
+> प्रीत्या शनैर्गद्गदया गिरा हरिं तुष्टाव सा देव्यदितिः कुरूद्वह\
 > उद्वीक्षती सा पिबतीव चक्षुषा रमापतिं यज्ञअपतिं जगत्पतिम ॥७॥
 
-> prītyā śanair gadgadayā girā hariṁ
-> tuṣṭāva sā devy aditiḥ kurūdvaha
-> udvīkṣatī sā pibatīva cakṣuṣā
+> prītyā śanair gadgadayā girā hariṁ\
+> tuṣṭāva sā devy aditiḥ kurūdvaha\
+> udvīkṣatī sā pibatīva cakṣuṣā\
 > ramā-patiṁ yajña-patiṁ jagat-patim
 
 *prītyā*—debido al amor; *śanaiḥ*—una y otra vez; *gadgadayā*—entrecortada; *girā*—con una voz; *harim*—a la Suprema Personalidad de Dios; *tuṣṭāva*—complació; *sā*—ella; *devī*—la semidiosa; *aditiḥ*—Aditi; *kuru-udvaha*—¡oh, Mahārāja Parīkṣit!; *udvīkṣatī*—mientras miraba; *sā*—ella; *pibatī iva*—como si estuviera bebiendo; *cakṣuṣā*—por los ojos; *ramā-patim*—al Señor, el esposo de la diosa de la fortuna; *yajña-patim*—al Señor, el disfrutador de todas las ceremonias de sacrificio; *jagat-patim*—al amo y Señor del universo entero.

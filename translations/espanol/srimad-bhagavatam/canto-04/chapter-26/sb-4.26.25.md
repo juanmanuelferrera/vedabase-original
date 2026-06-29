@@ -1,11 +1,11 @@
 ### SB 4.26.25
 
-> वक्त्रं न ते वितिलकं मलिनं विहर्षं संरम्भभीममविमृष्टमपेतरागम् ।
+> वक्त्रं न ते वितिलकं मलिनं विहर्षं संरम्भभीममविमृष्टमपेतरागम् ।\
 > पश्ये स्तनावपि शुचोपहतौ सुजातौ बिम्बाधरं विगतकुङ्कुमपङ्करागम् ॥२५॥
 
-> vaktraṁ na te vitilakaṁ malinaṁ viharṣaṁ
-> saṁrambha-bhīmam avimṛṣṭam apeta-rāgam
-> paśye stanāv api śucopahatau sujātau
+> vaktraṁ na te vitilakaṁ malinaṁ viharṣaṁ\
+> saṁrambha-bhīmam avimṛṣṭam apeta-rāgam\
+> paśye stanāv api śucopahatau sujātau\
 > bimbādharaṁ vigata-kuṅkuma-paṅka-rāgam
 
 *vaktram*—cara; *na*—nunca; *te*—tuya; *vitilakam*—sin estar adornada; *malinam*—sucia; *viharṣam*—triste; *saṁrambha*—con enfado; *bhīmam*—peligrosa; *avimṛṣṭam*—sin lustre; *apeta-rāgam*—sin cariño; *paśye*—he visto; *stanau*—tus senos; *api*—también; *śucā-upahatau*—mojados por tus lágrimas; *su-jātau*—tan hermosos; *bimba-adharam*—labios rojos; *vigata*—sin; *kuṅkuma-paṅka*—azafrán; *rāgam*—color.

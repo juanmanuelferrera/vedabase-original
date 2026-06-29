@@ -1,9 +1,9 @@
 ### CC Madhya 10.159
 
-> ভাল কহেন, — চর্মাম্বর দম্ভ লাগি’ পরি ।
+> ভাল কহেন, — চর্মাম্বর দম্ভ লাগি’ পরি ।\
 > চর্মাম্বর-পরিধানে সংসার না তরি ॥১৫৯॥
 
-> bhāla kahena,—carmāmbara dambha lāgi' pari
+> bhāla kahena,—carmāmbara dambha lāgi' pari\
 > carmāmbara-paridhāne saṁsāra nā tari
 
 *bhāla*—well; *kahena*—He said; *carma-ambara*—the garment of deerskin; *dambha*—prestige; *lāgi'*—for the matter of; *pari*—I put on; *carma-ambara-paridhāne*—by putting on a garment of skin; *saṁsāra*—the material world; *nā tari*—I cannot cross.

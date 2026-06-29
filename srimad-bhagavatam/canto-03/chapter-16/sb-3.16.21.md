@@ -1,13 +1,13 @@
 ### SB 3.16.21
 
-> यस्तां विविक्तचरितैरनुवर्तमानां
-> नात्याद्रियत्परमभागवतप्रसङ्गः ।
-> स त्वं द्विजानुपथपुण्यरजःपुनीतः
+> यस्तां विविक्तचरितैरनुवर्तमानां\
+> नात्याद्रियत्परमभागवतप्रसङ्गः ।\
+> स त्वं द्विजानुपथपुण्यरजःपुनीतः\
 > श्रीवत्सलक्ष्म किमगा भगभाजनस्त्वम् ॥२१॥
 
-> yas tāṁ vivikta-caritair anuvartamānāṁ
-> nātyādriyat parama-bhāgavata-prasaṅgaḥ
-> sa tvaṁ dvijānupatha-puṇya-rajaḥ-punītaḥ
+> yas tāṁ vivikta-caritair anuvartamānāṁ\
+> nātyādriyat parama-bhāgavata-prasaṅgaḥ\
+> sa tvaṁ dvijānupatha-puṇya-rajaḥ-punītaḥ\
 > śrīvatsa-lakṣma kim agā bhaga-bhājanas tvam
 
 *yaḥ*—who; *tām*—Lakṣmī; *vivikta*—completely pure; *caritaiḥ*—devotional services; *anuvartamānām*—serving; *na*—not; *atyādriyat*—attached; *parama*—the highest; *bhāgavata*—devotees; *prasaṅgaḥ*—attached; *saḥ*—the Supreme Lord; *tvam*—You; *dvija*—of the *brāhmaṇas*; *anupatha*—on the path; *puṇya*—sanctified; *rajaḥ*—dust; *punītaḥ*—purified; *śrīvatsa*—of Śrīvatsa; *lakṣma*—the mark; *kim*—what; *agāḥ*—You obtained; *bhaga*—all opulences or all good qualities; *bhājanaḥ*—the reservoir; *tvam*—You.

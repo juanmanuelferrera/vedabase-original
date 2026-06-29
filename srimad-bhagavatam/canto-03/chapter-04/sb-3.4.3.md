@@ -1,11 +1,11 @@
 ### SB 3.4.3
 
-> भगवान्स्वात्ममायाया गतिं तामवलोक्य सः ।
+> भगवान्स्वात्ममायाया गतिं तामवलोक्य सः ।\
 > सरस्वतीमुपस्पृश्य वृक्षमूलमुपाविशत् ॥३॥
 
-> bhagavān svātma-māyāyā
-> gatiṁ tām avalokya saḥ
-> sarasvatīm upaspṛśya
+> bhagavān svātma-māyāyā\
+> gatiṁ tām avalokya saḥ\
+> sarasvatīm upaspṛśya\
 > vṛkṣa-mūlam upāviśat
 
 *bhagavān*—the Personality of Godhead; *sva-ātma-māyāyāḥ*—by His internal potency; *gatim*—the end; *tām*—that; *avalokya*—foreseeing; *saḥ*—He (Kṛṣṇa); *sarasvatīm*—the River Sarasvatī; *upaspṛśya*—after sipping water; *vṛkṣa-mūlam*—at the foot of a tree; *upāviśat*—sat down.

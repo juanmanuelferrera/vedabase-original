@@ -1,11 +1,11 @@
 ### SB 1.9.4
 
-> दृष्ट्वा निपतितं भूमौ दिवश्च्युतमिवामरम् ।
+> दृष्ट्वा निपतितं भूमौ दिवश्च्युतमिवामरम् ।\
 > प्रणेमुः पाण्डवा भीष्मं सानुगाः सह चक्रिणा ॥४॥
 
-> dṛṣṭvā nipatitaṁ bhūmau
-> divaś cyutam ivāmaram
-> praṇemuḥ pāṇḍavā bhīṣmaṁ
+> dṛṣṭvā nipatitaṁ bhūmau\
+> divaś cyutam ivāmaram\
+> praṇemuḥ pāṇḍavā bhīṣmaṁ\
 > sānugāḥ saha cakriṇā
 
 *dṛṣṭvā*—viendo así; *nipatitam*—yaciendo; *bhūmau*—en el suelo; *divaḥ*—del cielo; *cyutam*—caído; *iva*—como; *amaram*—semidiós; *praṇemuḥ*—se postraron; *pāṇḍavāḥ*—los hijos de Pāṇḍu; *bhīṣmam*—ante Bhīṣma; *sa-anugāḥ*—con los hermanos menores; *saha*—también con; *cakriṇā*—el Señor (que porta el disco).

@@ -1,9 +1,9 @@
 ### CC Antya 6.219
 
-> কেহ ছত্রে মাগি’ খায়, যেবা কিছু পায়  ।
+> কেহ ছত্রে মাগি’ খায়, যেবা কিছু পায়  ।\
 > কেহ রাত্রে ভিক্ষা লাগি’ সিংহদ্বারে রয় ॥২১৯॥
 
-> keha chatre māgi' khāya, yebā kichu pāya
+> keha chatre māgi' khāya, yebā kichu pāya\
 > keha rātre bhikṣā lāgi' siṁha-dvāre raya
 
 *keha*—algunos; *chatre*—en la casa de caridad; *māgi'*—pidiendo; *khāya*—comen; *yebā*—lo que sea; *kichu*—poco; *pāya*—reciben; *keha*—algunos; *rātre*—por la noche; *bhikṣā lāgi'*—para pedir limosna; *siṁha-dvāre raya*—se ponen de pie en la puerta conocida como Siṁha-dvāra.

@@ -1,9 +1,9 @@
 ### CC Adi 14.51
 
-> আপনি চন্দন পরি’ পরেন ফুলমালা ।
+> আপনি চন্দন পরি’ পরেন ফুলমালা ।\
 > নৈবেদ্য কাড়িয়া খা’ন — সন্দেশ, চাল, কলা ॥৫১॥
 
-> āpani candana pari' parena phula-mālā
+> āpani candana pari' parena phula-mālā\
 > naivedya kāḍiyā khā'na--sandeśa, cāla, kalā
 
 *āpani*—Él mismo; *candana*—pasta de sándalo; *pari'*—untándose el cuerpo; *parena*—toma; *phula-mālā*—las guirnaldas de flores; *naivedya*—ofrenda de alimentos; *kāḍiyā*—arrebatando; *khā'na*—comienza a comer; *sandeśa*—los dulces; *cāla*—arroz; *kalā*—plátanos.

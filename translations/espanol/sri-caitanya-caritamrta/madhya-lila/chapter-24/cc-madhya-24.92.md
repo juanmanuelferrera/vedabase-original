@@ -1,9 +1,9 @@
 ### CC Madhya 24.92
 
-> ভক্তি বিনু কোন সাধন দিতে নারে ফল ।
+> ভক্তি বিনু কোন সাধন দিতে নারে ফল ।\
 > সব ফল দেয় ভক্তি স্বতন্ত্র প্রবল ॥৯২॥
 
-> bhakti vinu kona sādhana dite nāre phala
+> bhakti vinu kona sādhana dite nāre phala\
 > saba phala deya bhakti svatantra prabala
 
 *bhakti vinu*—sin servicio devocional; *kona*—alguna; *sādhana*—práctica para la perfección; *dite*—dar; *nāre*—incapaz; *phala*—resultado alguno; *saba phala*—todos los resultados de los diferentes procesos; *deya*—da; *bhakti*—servicio devocional; *svatantra*—independiente; *prabala*—y poderoso.

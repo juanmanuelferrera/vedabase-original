@@ -1,9 +1,9 @@
 ### CC Adi 2.47
 
-> কৃষ্ণ কহেন — ব্রহ্মা, তোমার না বুঝি বচন ।
+> কৃষ্ণ কহেন — ব্রহ্মা, তোমার না বুঝি বচন ।\
 > জীব-হৃদি, জলে বৈসে সেই নারায়ণ ॥৪৭॥
 
-> kṛṣṇa kahena--brahmā, tomāra nā bujhi vacana
+> kṛṣṇa kahena--brahmā, tomāra nā bujhi vacana\
 > jīva-hṛdi, jale vaise sei nārāyaṇa
 
 *kṛṣṇa*—el Señor Kṛṣṇa; *kahena*—dice; *brahmā*—¡oh, Brahmā!; *tomāra*—tus; *nā*—no; *bujhi*—comprendo; *vacana*—palabras; *jīva*—de la entidad viviente; *hṛdi*—en el corazón; *jale*—en el agua; *vaise*—Se sienta; *sei*—ese; *nārāyaṇa*—el Señor Nārāyaṇa.

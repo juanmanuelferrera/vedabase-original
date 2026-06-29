@@ -1,14 +1,14 @@
 ### SB 2.10.23
 
-> वस्तुनो मृदुकाठिन्य लघुगुर्वोष्णशीतताम् ।
-> जिघृक्षतस्त्वङ्निर्भिन्ना तस्यां रोममहीरुहाः ।
+> वस्तुनो मृदुकाठिन्य लघुगुर्वोष्णशीतताम् ।\
+> जिघृक्षतस्त्वङ्निर्भिन्ना तस्यां रोममहीरुहाः ।\
 > तत्र चान्तर्बहिर्वातस्त्वचा लब्धगुणो वृतः ॥२३॥
 
-> vastuno mṛdu-kāṭhinya-
-> laghu-gurv-oṣṇa-śītatām
-> jighṛkṣatas tvaṅ nirbhinnā
-> tasyāṁ roma-mahī-ruhāḥ
-> tatra cāntar bahir vātas
+> vastuno mṛdu-kāṭhinya-\
+> laghu-gurv-oṣṇa-śītatām\
+> jighṛkṣatas tvaṅ nirbhinnā\
+> tasyāṁ roma-mahī-ruhāḥ\
+> tatra cāntar bahir vātas\
 > tvacā labdha-guṇo vṛtaḥ
 
 *vastunaḥ*—of all matter; *mṛdu*—softness; *kāṭhinya*—hardness; *laghu*—lightness; *guru*—heaviness; *oṣṇa*—warmness; *śītatām*—coldness; *jighṛkṣataḥ*—desiring to perceive; *tvak*—the touch sensation; *nirbhinnā*—distributed; *tasyām*—in the skin; *roma*—hairs on the body; *mahī-ruhāḥ*—as well as the trees, the controlling deities; *tatra*—there; *ca*—also; *antaḥ*—within; *bahiḥ*—outside; *vātaḥ tvacā*—the sense of touch or the skin; *labdha*—having been perceived; *guṇaḥ*—objects of sense perception; *vṛtaḥ*—generated.

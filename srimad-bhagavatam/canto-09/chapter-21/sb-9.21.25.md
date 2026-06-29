@@ -1,11 +1,11 @@
 ### SB 9.21.25
 
-> स कृत्व्यां शुककन्यायां ब्रह्मदत्तमजीजनत
+> स कृत्व्यां शुककन्यायां ब्रह्मदत्तमजीजनत\
 > योगी स गवि भार्यायां विष्वक्सेनमधात्सुतम ॥२५॥
 
-> sa kṛtvyāṁ śuka-kanyāyāṁ
-> brahmadattam ajījanat
-> yogī sa gavi bhāryāyāṁ
+> sa kṛtvyāṁ śuka-kanyāyāṁ\
+> brahmadattam ajījanat\
+> yogī sa gavi bhāryāyāṁ\
 > viṣvaksenam adhāt sutam
 
 *saḥ*—he (King Nīpa); *kṛtvyām*—in his wife, Kṛtvī; *śuka-kanyāyām*—who was the daughter of Śuka; *brahmadattam*—a son named Brahmadatta; *ajījanat*—begot; *yogī*—a mystic *yogī*; *saḥ*—that Brahmadatta; *gavi*—by the name Gau or Sarasvatī; *bhāryāyām*—in the womb of his wife; *viṣvaksenam*—Viṣvaksena; *adhāt*—begot; *sutam*—a son.

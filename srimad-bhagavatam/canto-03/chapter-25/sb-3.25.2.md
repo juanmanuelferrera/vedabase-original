@@ -1,11 +1,11 @@
 ### SB 3.25.2
 
-> न ह्यस्य वर्ष्मणः पुंसां वरिम्णः सर्वयोगिनाम् ।
+> न ह्यस्य वर्ष्मणः पुंसां वरिम्णः सर्वयोगिनाम् ।\
 > विश्रुतौ श्रुतदेवस्य भूरि तृप्यन्ति मेऽसवः ॥२॥
 
-> na hy asya varṣmaṇaḥ puṁsāṁ
-> varimṇaḥ sarva-yoginām
-> viśrutau śruta-devasya
+> na hy asya varṣmaṇaḥ puṁsāṁ\
+> varimṇaḥ sarva-yoginām\
+> viśrutau śruta-devasya\
 > bhūri tṛpyanti me 'savaḥ
 
 *na*—not; *hi*—indeed; *asya*—about Him; *varṣmaṇaḥ*—the greatest; *puṁsām*—among men; *varimṇaḥ*—the foremost; *sarva*—all; *yoginām*—of *yogīs*; *viśrutau*—in hearing; *śruta-devasya*—the master of the *Vedas*; *bhūri*—repeatedly; *tṛpyanti*—are sated; *me*—my; *asavaḥ*—senses.

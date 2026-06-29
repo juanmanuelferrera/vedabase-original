@@ -1,9 +1,9 @@
 ### CC Antya 6.20
 
-> রাজ-ঘরে কৈফিয়ৎ দিয়া উজীরে আনিল ।
+> রাজ-ঘরে কৈফিয়ৎ দিয়া উজীরে আনিল ।\
 > হিরণ্যদাস পলাইল, রঘুনাথেরে বান্ধিল ॥২০॥
 
-> rāja-ghare kaiphiyat diyā ujīre ānila
+> rāja-ghare kaiphiyat diyā ujīre ānila\
 > hiraṇya-dāsa palāila, raghunāthere bāndhila
 
 *rāja-ghare*—to the government treasury; *kaiphiyat diyā*—sending a confidential account; *ujīre ānila*—brought the minister in charge; *hiraṇya-dāsa palāila*—Hiraṇya dāsa fled; *raghunāthere bāndhila*—he arrested Raghunātha dāsa.

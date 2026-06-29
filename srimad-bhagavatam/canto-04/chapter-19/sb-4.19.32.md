@@ -1,11 +1,11 @@
 ### SB 4.19.32
 
-> पृथुकीर्तेः पृथोर्भूयात्तर्ह्येकोनशतक्रतुः ।
+> पृथुकीर्तेः पृथोर्भूयात्तर्ह्येकोनशतक्रतुः ।\
 > अलं ते क्रतुभिः स्विष्टैर्यद्भवान्मोक्षधर्मवित् ॥३२॥
 
-> pṛthu-kīrteḥ pṛthor bhūyāt
-> tarhy ekona-śata-kratuḥ
-> alaṁ te kratubhiḥ sviṣṭair
+> pṛthu-kīrteḥ pṛthor bhūyāt\
+> tarhy ekona-śata-kratuḥ\
+> alaṁ te kratubhiḥ sviṣṭair\
 > yad bhavān mokṣa-dharma-vit
 
 *pṛthu-kīrteḥ*—of wide renown; *pṛthoḥ*—of King Pṛthu; *bhūyāt*—let it be; *tarhi*—therefore; *eka-ūna-śata-kratuḥ*—he who performed ninety-nine *yajñas*; *alam*—there is nothing to be gained; *te*—of you; *kratubhiḥ*—by performing sacrifices; *su-iṣṭaiḥ*—well performed; *yat*—because; *bhavān*—yourself; *mokṣa-dharma-vit*—the knower of the path of liberation.

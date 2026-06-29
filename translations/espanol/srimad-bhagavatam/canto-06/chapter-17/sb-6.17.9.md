@@ -1,13 +1,13 @@
 ### SB 6.17.9
 
-> श्रीशुक उवाच
-> भगवानपि तच्छ्रुत्वा प्रहस्यागाधधीर्नृप
+> श्रीशुक उवाच\
+> भगवानपि तच्छ्रुत्वा प्रहस्यागाधधीर्नृप\
 > तूष्णीं बभूव सदसि सभ्याश्च तदनुव्रताः ॥९॥
 
-> śrī-śuka uvāca
-> bhagavān api tac chrutvā
-> prahasyāgādha-dhīr nṛpa
-> tūṣṇīṁ babhūva sadasi
+> śrī-śuka uvāca\
+> bhagavān api tac chrutvā\
+> prahasyāgādha-dhīr nṛpa\
+> tūṣṇīṁ babhūva sadasi\
 > sabhyāś ca tad-anuvratāḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *bhagavān*—el Señor Śiva; *api*—también; *tat*—eso; *śrutvā*—al escuchar; *prahasya*—sonreír; *agādhadhīḥ*—cuya inteligencia es insondable; *nṛpa*—¡oh, rey!; *tūṣṇīm*—callado; *babhūva*—permaneció; *sadasi*—en la asamblea; *sabhyāḥ*—todos los allí reunidos; *ca*—y; *tat-anuvratāḥ*—siguieron al Señor Śiva (permanecieron callados).

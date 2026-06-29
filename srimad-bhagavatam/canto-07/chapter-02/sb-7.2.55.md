@@ -1,11 +1,11 @@
 ### SB 7.2.55
 
-> कथं त्वजातपक्षांस्तान्मातृहीनान्बिभर्म्यहम
+> कथं त्वजातपक्षांस्तान्मातृहीनान्बिभर्म्यहम\
 > मन्दभाग्याः प्रतीक्षन्ते नीडे मे मातरं प्रजाः ॥५५॥
 
-> kathaṁ tv ajāta-pakṣāṁs tān
-> mātṛ-hīnān bibharmy aham
-> manda-bhāgyāḥ pratīkṣante
+> kathaṁ tv ajāta-pakṣāṁs tān\
+> mātṛ-hīnān bibharmy aham\
+> manda-bhāgyāḥ pratīkṣante\
 > nīḍe me mātaraṁ prajāḥ
 
 *katham*—how; *tu*—but; *ajāta-pakṣān*—who have not grown wings to fly; *tān*—them; *mātṛ-hīnān*—bereft of their mother; *bibharmi*—shall maintain; *aham*—I; *manda-bhāgyāḥ*—very unfortunate; *pratīkṣante*—they await; *nīḍe*—in the nest; *me*—my; *mātaram*—their mother; *prajāḥ*—baby birds.

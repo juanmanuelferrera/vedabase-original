@@ -1,11 +1,11 @@
 ### SB 8.1.14
 
-> अथाग्रे ऋषयः कर्माणीहन्तेऽकर्महेतवे
+> अथाग्रे ऋषयः कर्माणीहन्तेऽकर्महेतवे\
 > ईहमानो हि पुरुषः प्रायोऽनीहां प्रपद्यते ॥१४॥
 
-> athāgre ṛṣayaḥ karmāṇ-
-> īhante 'karma-hetave
-> īhamāno hi puruṣaḥ
+> athāgre ṛṣayaḥ karmāṇ-\
+> īhante 'karma-hetave\
+> īhamāno hi puruṣaḥ\
 > prāyo 'nīhāṁ prapadyate
 
 *atha*—therefore; *agre*—in the beginning; *ṛṣayaḥ*—all learned *ṛṣis,* saintly persons; *karmāṇi*—fruitive activities; *īhante*—execute; *akarma*—freedom from fruitive results; *hetave*—for the purpose of; *īhamānaḥ*—engaging in such activities; *hi*—indeed; *puruṣaḥ*—a person; *prāyaḥ*—almost always; *anīhām*—liberation from *karma*; *prapadyate*—attains.

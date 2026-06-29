@@ -1,9 +1,9 @@
 ### CC Adi 17.148
 
-> গ্রামসম্বন্ধে ‘চক্রবর্তী’ হয় মোর চাচা ।
+> গ্রামসম্বন্ধে ‘চক্রবর্তী’ হয় মোর চাচা ।\
 > দেহ-সম্বন্ধে হৈতে হয় গ্রাম-সম্বন্ধ সাঁচা ॥১৪৮॥
 
-> grāma-sambandhe 'cakravartī' haya mora cācā
+> grāma-sambandhe 'cakravartī' haya mora cācā\
 > deha-sambandhe haite haya grāma-sambandha sāṅcā
 
 *grāma-sambandhe*—en nuestra relación de vecindario; *cakravartī*—Tu abuelo Nīlāmbara Cakravartī; *haya*—viene a ser; *mora*—mi; *cācā*—tío; *deha-sambandhe*—que una relación corporal; *haite*—que; *haya*—resulta ser; *grāma-sambandha*—la relación de vecindario; *sāṅcā*—más poderosa.

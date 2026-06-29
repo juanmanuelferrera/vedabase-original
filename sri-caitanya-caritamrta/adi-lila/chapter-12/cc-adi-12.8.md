@@ -1,9 +1,9 @@
 ### CC Adi 12.8
 
-> প্রথমে ত’ একমত আচার্যের গণ ।
+> প্রথমে ত’ একমত আচার্যের গণ ।\
 > পাছে দুইমত হৈল দৈবের কারণ ॥৮॥
 
-> prathame ta' eka-mata ācāryera gaṇa
+> prathame ta' eka-mata ācāryera gaṇa\
 > pāche dui-mata haila daivera kāraṇa
 
 *prathame*—in the beginning; *ta'*—however; *eka-mata*—one opinion; *ācāryera*—of Advaita Ācārya; *gaṇa*—followers; *pāche*—later; *dui-mata*—two opinions; *haila*—became; *daivera*—of providence; *kāraṇa*—the cause.

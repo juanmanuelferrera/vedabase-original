@@ -1,11 +1,11 @@
 ### SB 4.3.25
 
-> यदि व्रजिष्यस्यतिहाय मद्वचो भद्रं भवत्या न ततो भविष्यति ।
+> यदि व्रजिष्यस्यतिहाय मद्वचो भद्रं भवत्या न ततो भविष्यति ।\
 > सम्भावितस्य स्वजनात्पराभवो यदा स सद्यो मरणाय कल्पते ॥२५॥
 
-> yadi vrajiṣyasy atihāya mad-vaco
-> bhadraṁ bhavatyā na tato bhaviṣyati
-> sambhāvitasya sva-janāt parābhavo
+> yadi vrajiṣyasy atihāya mad-vaco\
+> bhadraṁ bhavatyā na tato bhaviṣyati\
+> sambhāvitasya sva-janāt parābhavo\
 > yadā sa sadyo maraṇāya kalpate
 
 *yadi*—si; *vrajiṣyasi*—vas a ir; *atihāya*—sin tener en cuenta; *mat-vacaḥ*—mis palabras; *bhadram*—bien; *bhavatyāḥ*—tuyo; *na*—no; *tataḥ*—entonces; *bhaviṣyati*—será; *sambhāvitasya*—muy digna de respeto; *sva-janāt*—por tu propio familiar; *parābhavaḥ*—seas insultada; *yadā*—cuando; *saḥ*—ese insulto; *sadyaḥ*—inmediatamente; *maraṇāya*—a la muerte; *kalpate*—es igual.

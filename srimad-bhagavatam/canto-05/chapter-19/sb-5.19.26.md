@@ -1,11 +1,11 @@
 ### SB 5.19.26
 
-> यैः श्रद्धया बर्हिषि भागशो हविर्निरुप्तमिष्टं विधिमन्त्रवस्तुतः
+> यैः श्रद्धया बर्हिषि भागशो हविर्निरुप्तमिष्टं विधिमन्त्रवस्तुतः\
 > एकः पृथङ्नामभिराहुतो मुदा गृह्णाति पूर्णः स्वयमाशिषां प्रभुः ॥२६॥
 
-> yaiḥ śraddhayā barhiṣi bhāgaśo havir
-> niruptam iṣṭaṁ vidhi-mantra-vastutaḥ
-> ekaḥ pṛthaṅ-nāmabhir āhuto mudā
+> yaiḥ śraddhayā barhiṣi bhāgaśo havir\
+> niruptam iṣṭaṁ vidhi-mantra-vastutaḥ\
+> ekaḥ pṛthaṅ-nāmabhir āhuto mudā\
 > gṛhṇāti pūrṇaḥ svayam āśiṣāṁ prabhuḥ
 
 *yaiḥ*—by whom (the inhabitants of Bhārata-varṣa); *śraddhayā*—faith and confidence; *barhiṣi*—in the performance of Vedic ritualistic sacrifices; *bhāgaśaḥ*—by division; *haviḥ*—oblations; *niruptam*—offered; *iṣṭam*—to the desired deity; *vidhi*—by the proper method; *mantra*—by reciting *mantras*; *vastutaḥ*—with the proper ingredients; *ekaḥ*—that one Supreme Personality of Godhead; *pṛthak*—separate; *nāmabhiḥ*—by names; *āhutaḥ*—called; *mudā*—with great happiness; *gṛhṇāti*—He accepts; *pūrṇaḥ*—the Supreme Lord. who is full in Himself; *svayam*—personally; *āśiṣām*—of all benedictions; *prabhuḥ*—the bestower.

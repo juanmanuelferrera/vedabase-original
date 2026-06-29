@@ -1,9 +1,9 @@
 ### CC Madhya 24.295
 
-> ইতরেতর ‘চ’ দিয়া সমাস করিয়ে ।
+> ইতরেতর ‘চ’ দিয়া সমাস করিয়ে ।\
 > ‘আটান্ন’বার আত্মারাম নাম লইয়ে ॥২৯৫॥
 
-> itaretara 'ca' diyā samāsa kariye
+> itaretara 'ca' diyā samāsa kariye\
 > 'āṭānna' bāra ātmārāma nāma la-iye
 
 *itaretara*—in different varieties; *ca*—the word *ca*; *diyā*—adding; *samāsa kariye*—make a compound word; *āṭānna bāra*—fifty-eight times; *ātmārāma*—the *ātmārāma* devotees; *nāma la-iye*—I take their different names.

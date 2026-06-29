@@ -1,11 +1,11 @@
 ### SB 3.29.13
 
-> सालोक्यसार्ष्टिसामीप्य सारूप्यैकत्वमप्युत ।
+> सालोक्यसार्ष्टिसामीप्य सारूप्यैकत्वमप्युत ।\
 > दीयमानं न गृह्णन्ति विना मत्सेवनं जनाः ॥१३॥
 
-> sālokya-sārṣṭi-sāmīpya-
-> sārūpyaikatvam apy uta
-> dīyamānaṁ na gṛhṇanti
+> sālokya-sārṣṭi-sāmīpya-\
+> sārūpyaikatvam apy uta\
+> dīyamānaṁ na gṛhṇanti\
 > vinā mat-sevanaṁ janāḥ
 
 *sālokya*—living on the same planet; *sārṣṭi*—having the same opulence; *sāmīpya*—to be a personal associate; *sārūpya*—having the same bodily features; *ekatvam*—oneness; *api*—also; *uta*—even; *dīyamānam*—being offered; *na*—not; *gṛhṇanti*—do accept; *vinā*—without; *mat*—My; *sevanam*—devotional service; *janāḥ*—pure devotees.

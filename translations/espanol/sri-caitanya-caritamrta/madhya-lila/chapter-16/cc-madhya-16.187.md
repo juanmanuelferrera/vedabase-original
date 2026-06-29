@@ -1,9 +1,9 @@
 ### CC Madhya 16.187
 
-> তবে মহাপ্ৰভু তাঁরে কৃপা-দৃষ্টি করি’ ।
+> তবে মহাপ্ৰভু তাঁরে কৃপা-দৃষ্টি করি’ ।\
 > আশ্বাসিয়া কহে, — তুমি কহ ‘কৃষ্ণ’ ‘হরি’ ॥১৮৭॥
 
-> tabe mahāprabhu tāṅre kṛpā-dṛṣṭi kari'
+> tabe mahāprabhu tāṅre kṛpā-dṛṣṭi kari'\
 > āśvāsiyā kahe,--tumi kaha 'kṛṣṇa' 'hari'
 
 *tabe*—después; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a él; *kṛpā-dṛṣṭi kari'*—mirándole con misericordia; *āśvāsiyā*—dándole seguridad; *kahe*—dice; *tumi*—tú; *kaha*—pronuncia; *kṛṣṇa*—el santo nombre Kṛṣṇa; *hari*—el santo nombre Hari.

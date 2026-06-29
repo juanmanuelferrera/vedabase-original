@@ -1,11 +1,11 @@
 ### SB 4.6.7
 
-> नाहं न यज्ञो न च यूयमन्ये ये देहभाजो मुनयश्च तत्त्वम् ।
+> नाहं न यज्ञो न च यूयमन्ये ये देहभाजो मुनयश्च तत्त्वम् ।\
 > विदुः प्रमाणं बलवीर्ययोर्वा यस्यात्मतन्त्रस्य क उपायं विधित्सेत् ॥७॥
 
-> nāhaṁ na yajño na ca yūyam anye
-> ye deha-bhājo munayaś ca tattvam
-> viduḥ pramāṇaṁ bala-vīryayor vā
+> nāhaṁ na yajño na ca yūyam anye\
+> ye deha-bhājo munayaś ca tattvam\
+> viduḥ pramāṇaṁ bala-vīryayor vā\
 > yasyātma-tantrasya ka upāyaṁ vidhitset
 
 *na*—not; *aham*—I; *na*—nor; *yajñaḥ*—Indra; *na*—nor; *ca*—and; *yūyam*—all of you; *anye*—others; *ye*—who; *deha-bhājaḥ*—of those who bear material bodies; *munayaḥ*—the sages; *ca*—and; *tattvam*—the truth; *viduḥ*—know; *pramāṇam*—the extent; *bala-vīryayoḥ*—of the strength and power; *vā*—or; *yasya*—of Lord Śiva; *ātma-tantrasya*—of Lord Śiva, who is self-dependent; *kaḥ*—what; *upāyam*—means; *vidhitset*—should wish to devise.

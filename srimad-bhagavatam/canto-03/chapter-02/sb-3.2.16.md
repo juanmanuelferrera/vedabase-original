@@ -1,11 +1,11 @@
 ### SB 3.2.16
 
-> मां खेदयत्येतदजस्य जन्म विडम्बनं यद्वसुदेवगेहे ।
+> मां खेदयत्येतदजस्य जन्म विडम्बनं यद्वसुदेवगेहे ।\
 > व्रजे च वासोऽरिभयादिव स्वयं पुराद्व्यवात्सीद्यदनन्तवीर्यः ॥१६॥
 
-> māṁ khedayaty etad ajasya janma-
-> viḍambanaṁ yad vasudeva-gehe
-> vraje ca vāso 'ri-bhayād iva svayaṁ
+> māṁ khedayaty etad ajasya janma-\
+> viḍambanaṁ yad vasudeva-gehe\
+> vraje ca vāso 'ri-bhayād iva svayaṁ\
 > purād vyavātsīd yad-ananta-vīryaḥ
 
 *mām*—to me; *khedayati*—gives me distress; *etat*—this; *ajasya*—of the unborn; *janma*—birth; *viḍambanam*—bewildering; *yat*—that; *vasudeva-gehe*—in the home of Vasudeva; *vraje*—in Vṛndāvana; *ca*—also; *vāsaḥ*—inhabitation; *ari*—enemy; *bhayāt*—because of fear; *iva*—as if; *svayam*—Himself; *purāt*—from Mathurā Purī; *vyavātsīt*—fled; *yat*—one who is; *ananta-vīryaḥ*—unlimitedly powerful.

@@ -1,11 +1,11 @@
 ### SB 4.28.38
 
-> तपसा विद्यया पक्व कषायो नियमैर्यमैः ।
+> तपसा विद्यया पक्व कषायो नियमैर्यमैः ।\
 > युयुजे ब्रह्मण्यात्मानं विजिताक्षानिलाशयः ॥३८॥
 
-> tapasā vidyayā pakva-
-> kaṣāyo niyamair yamaiḥ
-> yuyuje brahmaṇy ātmānaṁ
+> tapasā vidyayā pakva-\
+> kaṣāyo niyamair yamaiḥ\
+> yuyuje brahmaṇy ātmānaṁ\
 > vijitākṣānilāśayaḥ
 
 *tapasā*—con austeridad; *vidyayā*—con educación; *pakva*—quemó; *kaṣāyaḥ*—toda la suciedad; *niyamaiḥ*—con principios regulativos; *yamaiḥ*—con dominio de sí mismo; *yuyuje*—fijó; *brahmaṇi*—en iluminación espiritual; *ātmānam*—su ser; *vijita*—completamente controlados; *akṣa*—sentidos; *anila*—vida; *āśayaḥ*—conciencia.

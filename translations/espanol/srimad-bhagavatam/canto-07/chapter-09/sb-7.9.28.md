@@ -1,13 +1,13 @@
 ### SB 7.9.28
 
-> एवं जनं निपतितं प्रभवाहिकूपे
-> कामाभिकाममनु यः प्रपतन्प्रसङ्गात
-> कृत्वात्मसात्सुरर्षिणा भगवन्गृहीतः
+> एवं जनं निपतितं प्रभवाहिकूपे\
+> कामाभिकाममनु यः प्रपतन्प्रसङ्गात\
+> कृत्वात्मसात्सुरर्षिणा भगवन्गृहीतः\
 > सोऽहं कथं नु विसृजे तव भृत्यसेवाम ॥२८॥
 
-> evaṁ janaṁ nipatitaṁ prabhavāhi-kūpe
-> kāmābhikāmam anu yaḥ prapatan prasaṅgāt
-> kṛtvātmasāt surarṣiṇā bhagavan gṛhītaḥ
+> evaṁ janaṁ nipatitaṁ prabhavāhi-kūpe\
+> kāmābhikāmam anu yaḥ prapatan prasaṅgāt\
+> kṛtvātmasāt surarṣiṇā bhagavan gṛhītaḥ\
 > so 'haṁ kathaṁ nu visṛje tava bhṛtya-sevām
 
 *evam*—así; *janam*—gente en general; *nipatitam*—caída; *prabhava*—de la existencia material; *ahi-kūpe*—en un pozo oculto lleno de serpientes; *kāma-abhikāmam*—desear los objetos de los sentidos; *anu*—siguiendo; *yaḥ*—la persona que; *prapatan*—cayendo (en esa condición); *prasaṅgāt*—por una relación indebida, o una relación cada vez mayor con los deseos materiales; *kṛtvā ātmasāt*—hacer que yo (adquiriese cualidades espirituales como él mismo, Śrī Nārada); *sura-ṛṣiṇā*—por la gran persona santa (Nārada); *bhagavan*—¡oh, mi Señor!; *gṛhītaḥ*—aceptada; *saḥ*—esa persona; *aham*—yo; *katham*—cómo; *nu*—en verdad; *visṛje*—puedo abandonar; *tava*—Tuyo; *bhṛtya-sevām*—el servicio de Tu devoto puro.

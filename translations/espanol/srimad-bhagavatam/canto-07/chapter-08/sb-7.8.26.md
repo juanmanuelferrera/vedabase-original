@@ -1,11 +1,11 @@
 ### SB 7.8.26
 
-> तं विक्रमन्तं सगदं गदाधरो महोरगं तार्क्ष्यसुतो यथाग्रहीत
+> तं विक्रमन्तं सगदं गदाधरो महोरगं तार्क्ष्यसुतो यथाग्रहीत\
 > स तस्य हस्तोत्कलितस्तदासुरो विक्रीडतो यद्वदहिर्गरुत्मतः ॥२६॥
 
-> sa tasya hastotkalitas tadāsuro
-> vikrīḍato yadvad ahir garutmataḥ
-> asādhv amanyanta hṛtaukaso 'marā
+> sa tasya hastotkalitas tadāsuro\
+> vikrīḍato yadvad ahir garutmataḥ\
+> asādhv amanyanta hṛtaukaso 'marā\
 > ghana-cchadā bhārata sarva-dhiṣṇya-pāḥ
 
 *saḥ*—él (Hiraṇyakaśipu); *tasya*—de Él (del Señor Nṛsiṁhadeva); *hasta*—de las manos; *utkalitaḥ*—se soltó; *tadā*—en ese momento; *asuraḥ*—el rey de los demonios, Hiraṇyakaśipu; *vikrīḍataḥ*—jugando; *yadvat*—igual que; *ahiḥ*—una serpiente; *garutmataḥ*—de Garuḍa; *asādhu*—no muy bueno; *amanyanta*—consideraron; *hṛta-okasaḥ*—cuyas moradas habían sido tomadas por Hiraṇyakaśipu; *amarāḥ*—los semidioses; *ghana-cchadāḥ*—situados detrás de una cubierta de nubes; *bhārata*—¡oh, gran hijo de Bharata!; *sarva-dhiṣṇya-pāḥ*—los gobernantes de los planetas celestiales.

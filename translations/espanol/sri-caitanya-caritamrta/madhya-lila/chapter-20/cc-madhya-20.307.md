@@ -1,9 +1,9 @@
 ### CC Madhya 20.307
 
-> নিজাংশ-কলায় কৃষ্ণ তমো-গুণ অঙ্গীকরি’ ।
+> নিজাংশ-কলায় কৃষ্ণ তমো-গুণ অঙ্গীকরি’ ।\
 > সংহারার্থে মায়া-সঙ্গে রুদ্র-রূপ ধরে ॥৩০৭॥
 
-> nijāṁśa-kalāya kṛṣṇa tamo-guṇa aṅgīkari'
+> nijāṁśa-kalāya kṛṣṇa tamo-guṇa aṅgīkari'\
 > saṁhārārthe māyā-saṅge rudra-rūpa dhari
 
 *nija-aṁśa*—de Su expansión plenaria personal; *kalāya*—mediante una expansión conocida como kalā; *kṛṣṇa*—el Señor Kṛṣṇa; *tamaḥ-guṇa*—la modalidad material de la oscuridad; *aṅgīkari'*—aceptando; *saṁhāra-arthe*—con el propósito de la disolución; *māyā-saṅge*—en asociación con la energía externa; *rudra-rūpa*—la forma de Rudra; *dhari*—asume.

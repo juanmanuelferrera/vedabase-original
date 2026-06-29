@@ -1,13 +1,13 @@
 ### SB 3.13.46
 
-> मैत्रेय उवाच
-> इत्युपस्थीयमानोऽसौ मुनिभिर्ब्रह्मवादिभिः ।
+> मैत्रेय उवाच\
+> इत्युपस्थीयमानोऽसौ मुनिभिर्ब्रह्मवादिभिः ।\
 > सलिले स्वखुराक्रान्त उपाधत्तावितावनिम् ॥४६॥
 
-> maitreya uvāca
-> ity upasthīyamāno 'sau
-> munibhir brahma-vādibhiḥ
-> salile sva-khurākrānta
+> maitreya uvāca\
+> ity upasthīyamāno 'sau\
+> munibhir brahma-vādibhiḥ\
+> salile sva-khurākrānta\
 > upādhattāvitāvanim
 
 *maitreyaḥ uvāca*—el sabio Maitreya dijo; *iti*—así; *upasthīyamānaḥ*—siendo alabado por; *asau*—el *avatāra* Jabalí; *munibhiḥ*—por los grandes sabios; *brahma-vādibhiḥ*—por los trascendentalistas; *salile*—sobre el agua; *sva-khura-ākrānte*—tocada por Sus propias pezuñas; *upādhatta*—colocó; *avitā*—el sustentador; *avanim*—la Tierra.

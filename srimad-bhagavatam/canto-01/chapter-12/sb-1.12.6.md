@@ -1,11 +1,11 @@
 ### SB 1.12.6
 
-> किं ते कामाः सुरस्पार्हा मुकुन्दमनसो द्विजाः ।
+> किं ते कामाः सुरस्पार्हा मुकुन्दमनसो द्विजाः ।\
 > अधिजह्रुर्मुदं राज्ञः क्षुधितस्य यथेतरे ॥६॥
 
-> kiṁ te kāmāḥ sura-spārhā
-> mukunda-manaso dvijāḥ
-> adhijahrur mudaṁ rājñaḥ
+> kiṁ te kāmāḥ sura-spārhā\
+> mukunda-manaso dvijāḥ\
+> adhijahrur mudaṁ rājñaḥ\
 > kṣudhitasya yathetare
 
 *kim*—what for; *te*—all those; *kāmāḥ*—objects of sense enjoyment; *sura*—of the denizens of heaven; *spārhāḥ*—aspirations; *mukunda-manasaḥ*—of one who is already God conscious; *dvijāḥ*—O *brāhmaṇas*; *adhijahruḥ*—could satisfy; *mudam*—pleasure; *rājñaḥ*—of the king; *kṣudhitasya*—of the hungry; *yathā*—as it is; *itare*—in other things.

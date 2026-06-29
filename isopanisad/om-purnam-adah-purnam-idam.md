@@ -1,9 +1,9 @@
-> ॐ पूर्णमदः पूर्णमिदं पूर्णात् पूर्णमुदच्यते।
+> ॐ पूर्णमदः पूर्णमिदं पूर्णात् पूर्णमुदच्यते।\
 > पूर्णस्य पूर्णमादाय पूर्णमेवावशिष्यते॥
 
-> oṁ pūrṇam adaḥ pūrṇam idaṁ
-> pūrṇāt pūrṇam udacyate
-> pūrṇasya pūrṇam ādāya
+> oṁ pūrṇam adaḥ pūrṇam idaṁ\
+> pūrṇāt pūrṇam udacyate\
+> pūrṇasya pūrṇam ādāya\
 > pūrṇam evāvaśiṣyate
 
 *oṁ*—the Complete Whole; *pūrṇam*—perfectly complete; *adaḥ*—that; *pūrṇam*—perfectly complete; *idam*—this phenomenal world; *pūrṇāt*—from the all-perfect; *pūrṇam*—complete unit; *udacyate*—is produced; *pūrṇasya*—of the Complete Whole; *pūrṇam*—completely, all; *ādāya*—having been taken away; *pūrṇam*—the complete balance; *eva*—even; *avaśiṣyate*—is remaining.

@@ -1,11 +1,11 @@
 ### SB 3.17.26
 
-> स वर्षपूगानुदधौ महाबलश्चरन्महोर्मीञ्छ्वसनेरितान्मुहुः ।
+> स वर्षपूगानुदधौ महाबलश्चरन्महोर्मीञ्छ्वसनेरितान्मुहुः ।\
 > मौर्व्याभिजघ्ने गदया विभावरीमासेदिवांस्तात पुरीं प्रचेतसः ॥२६॥
 
-> sa varṣa-pūgān udadhau mahā-balaś
-> caran mahormīñ chvasaneritān muhuḥ
-> maurvyābhijaghne gadayā vibhāvarīm
+> sa varṣa-pūgān udadhau mahā-balaś\
+> caran mahormīñ chvasaneritān muhuḥ\
+> maurvyābhijaghne gadayā vibhāvarīm\
 > āsedivāṁs tāta purīṁ pracetasaḥ
 
 *saḥ*—he; *varṣa-pūgān*—for many years; *udadhau*—in the ocean; *mahā-balaḥ*—mighty; *caran*—moving; *mahā-ūrmīn*—gigantic waves; *śvasana*—by the wind; *īritān*—tossed; *muhuḥ*—again and again; *maurvyā*—iron; *abhijaghne*—he struck; *gadayā*—with his mace; *vibhāvarīm*—Vibhāvarī; *āsedivān*—reached; *tāta*—O dear Vidura; *purīm*—the capital; *pracetasaḥ*—of Varuṇa.

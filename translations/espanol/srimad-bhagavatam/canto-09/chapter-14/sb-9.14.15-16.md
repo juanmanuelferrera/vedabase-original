@@ -1,18 +1,18 @@
 ### SB 9.14.15-16
 
-> ततः पुरूरवा जज्ञए इलायां य उदाहृतः
-> तस्य रूपगुणौदार्य शीलद्रविणविक्रमान ॥१५॥
-> श्रुत्वोर्वशीन्द्रभवने गीयमानान्सुरर्षिणा
+> ततः पुरूरवा जज्ञए इलायां य उदाहृतः\
+> तस्य रूपगुणौदार्य शीलद्रविणविक्रमान ॥१५॥\
+> श्रुत्वोर्वशीन्द्रभवने गीयमानान्सुरर्षिणा\
 > तदन्तिकमुपेयाय देवी स्मरशरार्दिता ॥१६॥
 
-> tataḥ purūravā jajñe
-> ilāyāṁ ya udāhṛtaḥ
-> tasya rūpa-guṇaudārya-
+> tataḥ purūravā jajñe\
+> ilāyāṁ ya udāhṛtaḥ\
+> tasya rūpa-guṇaudārya-\
 > śīla-draviṇa-vikramān
 
-> śrutvorvaśīndra-bhavane
-> gīyamānān surarṣiṇā
-> tad-antikam upeyāya
+> śrutvorvaśīndra-bhavane\
+> gīyamānān surarṣiṇā\
+> tad-antikam upeyāya\
 > devī smara-śarārditā
 
 *tataḥ*—de él (de Budha); *purūravāḥ*—el hijo llamado Purūravā; *jajñe*—nació; *ilāyām*—en el vientre de Ilā; *yaḥ*—aquel que; *udāhṛtaḥ*—de quien ya se ha hablado (al comienzo del Noveno Canto); *tasya*—suya (de Purūravā); *rūpa*—belleza; *guṇa*—cualidades; *audārya*—magnanimidad; *śīla*—conducta; *draviṇa*—riqueza; *vikramān*—poder; *śrutvā*—por escuchar; *urvaśī*—la mujer celestial llamada Urvaśī; *indra-bhavane*—en la corte del rey Indra; *gīyamānān*—cuando eran descritas; *sura-ṛṣiṇā*—por Nārada; *tat-antikam*—cerca de él; *upeyāya*—se dirigió; *devī*—Urvaśī; *smara-śara*—por las flechas de Cupido; *arditā*—herida.

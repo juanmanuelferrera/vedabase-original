@@ -1,11 +1,11 @@
 ### SB 6.14.36
 
-> कृच्छ्रलब्धेऽथ राजर्षेस्तनयेऽनुदिनं पितुः
+> कृच्छ्रलब्धेऽथ राजर्षेस्तनयेऽनुदिनं पितुः\
 > यथा निःस्वस्य कृच्छ्राप्ते धने स्नेहोऽन्ववर्धत ॥३६॥
 
-> kṛcchra-labdhe 'tha rājarṣes
-> tanaye 'nudinaṁ pituḥ
-> yathā niḥsvasya kṛcchrāpte
+> kṛcchra-labdhe 'tha rājarṣes\
+> tanaye 'nudinaṁ pituḥ\
+> yathā niḥsvasya kṛcchrāpte\
 > dhane sneho 'nvavardhata
 
 *kṛcchra*—with great difficulty; *labdhe*—gained; *atha*—thereafter; *rāja-ṛṣeḥ*—of the pious King Citraketu; *tanaye*—for the son; *anudinam*—day after day; *pituḥ*—of the father; *yathā*—exactly as; *niḥsvasya*—of a poor man; *kṛcchra-āpte*—gained after great difficulty; *dhane*—for riches; *snehaḥ*—affection; *anvavardhata*—increased.

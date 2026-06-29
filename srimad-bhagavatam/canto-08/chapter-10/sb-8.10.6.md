@@ -1,11 +1,11 @@
 ### SB 8.10.6
 
-> तत्रान्योन्यं सपत्नास्ते संरब्धमनसो रणे
+> तत्रान्योन्यं सपत्नास्ते संरब्धमनसो रणे\
 > समासाद्यासिभिर्बाणैर्निजघ्नुर्विविधायुधैः ॥६॥
 
-> tatrānyonyaṁ sapatnās te
-> saṁrabdha-manaso raṇe
-> samāsādyāsibhir bāṇair
+> tatrānyonyaṁ sapatnās te\
+> saṁrabdha-manaso raṇe\
+> samāsādyāsibhir bāṇair\
 > nijaghnur vividhāyudhaiḥ
 
 *tatra*—thereupon; *anyonyam*—one another; *sapatnāḥ*—all of them becoming fighters; *te*—they; *saṁrabdha*—very angry; *manasaḥ*—within their minds; *raṇe*—in that battle; *samāsādya*—getting the opportunity to fight between themselves; *asibhiḥ*—with swords; *bāṇaiḥ*—with arrows; *nijaghnuḥ*—began to beat one another; *vividha-āyudhaiḥ*—with varieties of weapons.

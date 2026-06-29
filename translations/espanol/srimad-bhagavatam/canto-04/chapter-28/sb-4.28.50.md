@@ -1,11 +1,11 @@
 ### SB 4.28.50
 
-> चितिं दारुमयीं चित्वा तस्यां पत्युः कलेवरम् ।
+> चितिं दारुमयीं चित्वा तस्यां पत्युः कलेवरम् ।\
 > आदीप्य चानुमरणे विलपन्ती मनो दधे ॥५०॥
 
-> citiṁ dārumayīṁ citvā
-> tasyāṁ patyuḥ kalevaram
-> ādīpya cānumaraṇe
+> citiṁ dārumayīṁ citvā\
+> tasyāṁ patyuḥ kalevaram\
+> ādīpya cānumaraṇe\
 > vilapantī mano dadhe
 
 *citim*—pira funeraria; *dāru-mayīm*—hecha con madera; *citvā*—habiendo amontonado; *tasyām*—sobre ella; *patyuḥ*—del esposo; *kalevaram*—el cuerpo; *ādīpya*—después de encender; *ca*—también; *anumaraṇe*—para morir con él; *vilapantī*—lamentarse; *manaḥ*—su mente; *dadhe*—fijó.

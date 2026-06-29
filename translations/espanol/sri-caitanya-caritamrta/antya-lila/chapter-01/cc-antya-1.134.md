@@ -1,9 +1,9 @@
 ### CC Antya 1.134
 
-> রায় কহে, — “কোন্ আমুখে পাত্র-সন্নিধান ?”
+> রায় কহে, — “কোন্ আমুখে পাত্র-সন্নিধান ?”\
 > রূপ কহে, — “কালসাম্যে ‘প্রবর্তক’ নাম” ॥১৩৪॥
 
-> rāya kahe,--"kon āmukhe pātra-sannidhāna?"
+> rāya kahe,--"kon āmukhe pātra-sannidhāna?"\
 > rūpa kahe,--"kāla-sāmye 'pravartaka' nāma"
 
 *rāya kahe*—Rāmānanda Rāya dice; *kon*—cuál; *āmukhe*—como introducción; *pātra-sannidhāna*—presentación de los actores; *rūpa kahe*—Śrīla Rūpa Gosvāmī responde; *kāla-sāmye*—en concordancia con el momento; *pravartaka nāma*—la introducción llamada pravartaka.

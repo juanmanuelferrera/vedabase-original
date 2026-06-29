@@ -1,25 +1,25 @@
 ### CC Madhya 23.79-81
 
-> সদা স্বরূপসংপ্রাপ্তঃ সর্বজ্ঞো নিত্যনূতনঃ ।
-> সচ্চিদানন্দসান্দ্রাঙ্গঃ সর্বসিদ্ধিনিষেবিতঃ ॥৭৯॥
-> অথোচ্যন্তে গুণাঃ পঞ্চ যে লক্ষ্মীশাদি-বর্তিনঃ ।
-> অবিচিন্ত্যমহাশক্তিঃ কোটিব্রহ্মাণ্ডবিগ্রহঃ ॥৮০॥
-> অবতারাবলীবীজং হতারিগতিদায়কঃ ।
+> সদা স্বরূপসংপ্রাপ্তঃ সর্বজ্ঞো নিত্যনূতনঃ ।\
+> সচ্চিদানন্দসান্দ্রাঙ্গঃ সর্বসিদ্ধিনিষেবিতঃ ॥৭৯॥\
+> অথোচ্যন্তে গুণাঃ পঞ্চ যে লক্ষ্মীশাদি-বর্তিনঃ ।\
+> অবিচিন্ত্যমহাশক্তিঃ কোটিব্রহ্মাণ্ডবিগ্রহঃ ॥৮০॥\
+> অবতারাবলীবীজং হতারিগতিদায়কঃ ।\
 > আত্মারামগণাকর্ষীত্যমী কৃষ্ণে কিলাদ্ভুতাঃ ॥৮১॥
 
-> sadā svarūpa-saṁprāptaḥ
-> sarva-jño nity-nūtanaḥ
-> sac-cid-ānanda-sāndrāṅgaḥ
+> sadā svarūpa-saṁprāptaḥ\
+> sarva-jño nity-nūtanaḥ\
+> sac-cid-ānanda-sāndrāṅgaḥ\
 > sarva-siddhi-niṣevitaḥ
 
-> athocyante guṇāḥ pañca
-> ye lakṣmīśādi-vartinaḥ
-> avicintya-mahā-śaktiḥ
+> athocyante guṇāḥ pañca\
+> ye lakṣmīśādi-vartinaḥ\
+> avicintya-mahā-śaktiḥ\
 > koṭi-brahmāṇḍa-vigrahaḥ
 
-> avatārāvalī-bījaṁ
-> hatāri-gati-dāyakaḥ
-> ātmārāma-gaṇākarṣīty
+> avatārāvalī-bījaṁ\
+> hatāri-gati-dāyakaḥ\
+> ātmārāma-gaṇākarṣīty\
 > amī kṛṣṇe kilādbhutāḥ
 
 *sadā*—siempre; *svarūpa-samprāptaḥ*—situado en la propia naturaleza eterna; *sarva-jñaḥ*—omnisciente; *nitya-nūtanaḥ*—siempre lozano; *sat-cit-ānanda-sāndra-aṅgaḥ*—la forma concentrada de eternidad, conocimiento y bienaventuranza; *sarva-siddhi-niṣevitaḥ*—asistido por todas las perfecciones místicas; *atha*—ahora; *ucyante*—reciben el nombre de; *guṇāḥ*—cualidades; *pañca*—cinco; *ye*—que; *lakṣmī-īśa*—en el propietario de la diosa de la fortuna; *ādi*—etc.; *vartinaḥ*—representadas; *avicintya*—inconcebible; *mahā-śaktiḥ*—que posee energía suprema; *koṭi-brahmāṇḍa*—formado por un número ilimitado de universos; *vigrahaḥ*—con un cuerpo; *avatāra*—de encarnaciones; *āvalī*—de grupos; *bījam*—la fuente; *hata-ari*—a enemigos matados por Él; *gati-dāyakaḥ*—dar la liberación; *ātmārāma-gaṇa*—de quienes están completamente satisfechos en sí mismos; *ākarṣī*—atraer; *iti*—así; *amī*—esas; *kṛṣṇe*—en Kṛṣṇa; *kila*—ciertamente; *adbhutāḥ*—muy maravillosas.

@@ -1,11 +1,11 @@
 ### SB 4.9.52
 
-> अभ्यर्चितस्त्वया नूनं भगवान्प्रणतार्तिहा ।
+> अभ्यर्चितस्त्वया नूनं भगवान्प्रणतार्तिहा ।\
 > यदनुध्यायिनो धीरा मृत्युं जिग्युः सुदुर्जयम् ॥५२॥
 
-> abhyarcitas tvayā nūnaṁ
-> bhagavān praṇatārti-hā
-> yad-anudhyāyino dhīrā
+> abhyarcitas tvayā nūnaṁ\
+> bhagavān praṇatārti-hā\
+> yad-anudhyāyino dhīrā\
 > mṛtyuṁ jigyuḥ sudurjayam
 
 *abhyarcitaḥ*—adorado; *tvayā*—por ti; *nūnam*—sin embargo; *bhagavān*—la Suprema Personalidad de Dios; *praṇata-ārti-hā*—que puede liberar a Sus devotos del mayor de los peligros; *yat*—quien; *anudhyāyinaḥ*—meditando constantemente en; *dhīrāḥ*—grandes personas santas; *mṛtyum*—muerte; *jigyuḥ*—vencen; *sudurjayam*—que verdaderamente es muy difícil de superar.

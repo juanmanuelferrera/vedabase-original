@@ -1,9 +1,9 @@
 ### CC Antya 3.259
 
-> এত বলি’ বন্দিলা হরিদাসের চরণ ।
+> এত বলি’ বন্দিলা হরিদাসের চরণ ।\
 > হরিদাস কহে, — “কর কৃষ্ণ-সঙ্কীর্তন” ॥২৫৯॥
 
-> eta bali' vandilā haridāsera caraṇa
+> eta bali' vandilā haridāsera caraṇa\
 > haridāsa kahe,--"kara kṛṣṇa-saṅkīrtana"
 
 *eta bali'*—diciendo esto; *vandilā*—adoró; *haridāsera caraṇa*—los pies de loto de Haridāsa Ṭhākura; *haridāsa kahe*—Haridāsa dijo; *kara*—simplemente realiza; *kṛṣṇa-saṅkīrtana*—el canto del santo nombre de Kṛṣṇa.

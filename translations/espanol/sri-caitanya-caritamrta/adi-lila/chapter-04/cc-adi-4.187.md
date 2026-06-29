@@ -1,9 +1,9 @@
 ### CC Adi 4.187
 
-> গোপিকা-দর্শনে কৃষ্ণের যে আনন্দ হয় ।
+> গোপিকা-দর্শনে কৃষ্ণের যে আনন্দ হয় ।\
 > তাহা হৈতে কোটিগুণ গোপী আস্বাদয় ॥১৮৭॥
 
-> gopīkā-darśane kṛṣṇera ye ānanda haya
+> gopīkā-darśane kṛṣṇera ye ānanda haya\
 > tāhā haite koṭi-guṇa gopī āsvādaya
 
 *gopikā-darśane*—al ver a las gopīs; *kṛṣṇera*—del Señor Kṛṣṇa; *ye*—toda la; *ānanda*—dicha; *haya*—hay; *tāhā haite*—que eso; *koṭi-guṇa*—diez millones de veces más; *gopī*—las gopīs; *āsvādaya*—saborean.

@@ -1,9 +1,9 @@
 ### CC Adi 7.67
 
-> সাম্প্রদায়িক সন্ন্যাসী তুমি, রহ এই গ্রামে ।
+> সাম্প্রদায়িক সন্ন্যাসী তুমি, রহ এই গ্রামে ।\
 > কি কারণে আমা-সবার না কর দর্শনে ॥৬৭॥
 
-> sāmpradāyika sannyāsī tumi, raha ei grāme
+> sāmpradāyika sannyāsī tumi, raha ei grāme\
 > ki kāraṇe āmā-sabāra nā kara darśane
 
 *sāmpradāyika*—of the community; *sannyāsī*—Māyāvādī *sannyāsi*; *tumi*—You are; *raha*—live; *ei*—this; *grāme*—in Vārāṇasī; *ki kāraṇe*—for what reason; *āmā-sabāra*—with us; *nā*—do not; *kara*—endeavor; *darśane*—to mix.

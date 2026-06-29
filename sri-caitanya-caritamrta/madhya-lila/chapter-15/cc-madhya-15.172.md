@@ -1,9 +1,9 @@
 ### CC Madhya 15.172
 
-> এক উড়ুম্বর বৃক্ষে লাগে কোটি-ফলে ।
+> এক উড়ুম্বর বৃক্ষে লাগে কোটি-ফলে ।\
 > কোটি যে ব্রহ্মাণ্ড ভাসে বিরজার জলে ॥১৭২॥
 
-> eka uḍumbara vṛkṣe lāge koṭi-phale
+> eka uḍumbara vṛkṣe lāge koṭi-phale\
 > koṭi ye brahmāṇḍa bhāse virajāra jale
 
 *eka uḍumbara vṛkṣe*—in one *uḍumbara tree*; *lāge*—there are; *koṭi-phale*—millions of fruits; *koṭi*—millions; *ye*—which; *brahmāṇḍa*—of universes; *bhāse*—float; *virajāra*—of the Virajā River; *jale*—in the water.

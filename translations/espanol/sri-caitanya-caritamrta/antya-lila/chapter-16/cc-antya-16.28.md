@@ -1,9 +1,9 @@
 ### CC Antya 16.28
 
-> শুনি’ ঠাকুর কহে, — “শাস্ত্র এই সত্য কয় ।
+> শুনি’ ঠাকুর কহে, — “শাস্ত্র এই সত্য কয় ।\
 > সেই শ্রেষ্ঠ, ঐছে যাঁতে কৃষ্ণভক্তি হয় ॥২৮॥
 
-> śuni' ṭhākura kahe,--"śāstra ei satya kaya
+> śuni' ṭhākura kahe,--"śāstra ei satya kaya\
 > sei śreṣṭha, aiche yāṅte kṛṣṇa-bhakti haya
 
 *śuni'*—al escuchar; *ṭhākura kahe*—Jhaḍu Ṭhākura dijo; *śāstra*—las Escrituras reveladas; *ei*—esta; *satya*—verdad; *kaya*—dice; *sei*—él; *śreṣṭha*—el mejor; *aiche*—de tal modo; *yāṅte*—en quien; *kṛṣṇa-bhakti*—devoción a Kṛṣṇa; *haya*—hay.

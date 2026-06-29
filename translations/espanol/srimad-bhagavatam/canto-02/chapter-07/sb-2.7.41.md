@@ -1,13 +1,13 @@
 ### SB 2.7.41
 
-> नान्तं विदाम्यहममी मुनयोऽग्रजास्ते
-> मायाबलस्य पुरुषस्य कुतोऽवरा ये ।
-> गायन्गुणान्दशशतानन आदिदेवः
+> नान्तं विदाम्यहममी मुनयोऽग्रजास्ते\
+> मायाबलस्य पुरुषस्य कुतोऽवरा ये ।\
+> गायन्गुणान्दशशतानन आदिदेवः\
 > शेषोऽधुनापि समवस्यति नास्य पारम् ॥४१॥
 
-> nāntaṁ vidāmy aham amī munayo 'gra-jās te
-> māyā-balasya puruṣasya kuto 'varā ye
-> gāyan guṇān daśa-śatānana ādi-devaḥ
+> nāntaṁ vidāmy aham amī munayo 'gra-jās te\
+> māyā-balasya puruṣasya kuto 'varā ye\
+> gāyan guṇān daśa-śatānana ādi-devaḥ\
 > śeṣo 'dhunāpi samavasyati nāsya pāram
 
 *na*—nunca; *antam*—final; *vidāmi*—yo sé; *aham*—yo; *ami*—y todos esos; *munayaḥ*—grandes sabios; *agra-jāḥ*—nacidos antes que tú; *te*—tú; *māyā-balasya*—del omnipotente; *puruṣasya*—de la Personalidad de Dios; *kutaḥ*—ni qué hablar de otros; *avarāḥ*—nacidos después de nosotros; *ye*—esos; *gāyan*—por cantar; *guṇān*—las cualidades; *daśa-śata-ānanaḥ*—aquel que tiene mil caras; *ādi-devaḥ*—la primera encarnación del Señor; *śeṣaḥ*—conocida como Śeṣa; *adhunā*—hasta ahora; *api*—ni siquiera; *samavasyati*—puede alcanzar; *na*—no; *asya*—de Él; *pāram*—límite.

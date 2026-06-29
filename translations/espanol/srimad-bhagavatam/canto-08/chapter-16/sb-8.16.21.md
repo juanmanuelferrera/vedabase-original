@@ -1,11 +1,11 @@
 ### SB 8.16.21
 
-> स विधास्यति ते कामान्हरिर्दीनानुकम्पनः
+> स विधास्यति ते कामान्हरिर्दीनानुकम्पनः\
 > अमोघा भगवद्भक्तिर्नेतरेति मतिर्मम ॥२१॥
 
-> sa vidhāsyati te kāmān
-> harir dīnānukampanaḥ
-> amoghā bhagavad-bhaktir
+> sa vidhāsyati te kāmān\
+> harir dīnānukampanaḥ\
+> amoghā bhagavad-bhaktir\
 > netareti matir mama
 
 *saḥ*—él (Vāsudeva); *vidhāsyati*—satisfará sin lugar a dudas; *te*—tus; *kāmān*—deseos; *hariḥ*—la Suprema Personalidad de Dios; *dīna*—con los pobres; *anukampanaḥ*—muy misericordioso; *amoghā*—infalible; *bhagavat-bhaktiḥ*—el servicio devocional a la Suprema Personalidad de Dios; *na*—no; *itarā*—nada excepto el *bhagavad-bhakti*; *iti*—así; *matiḥ*—opinión; *mama*—mía.

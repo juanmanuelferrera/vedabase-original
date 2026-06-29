@@ -1,9 +1,9 @@
 ### CC Adi 10.130
 
-> বড়শাখা এক, — সার্বভৌম ভট্টাচার্য ।
+> বড়শাখা এক, — সার্বভৌম ভট্টাচার্য ।\
 > তাঁর ভগ্নীপতি শ্রীগোপীনাথাচার্য ॥১৩০॥
 
-> baḍa-śākhā eka,—sārvabhauma bhaṭṭācārya
+> baḍa-śākhā eka,—sārvabhauma bhaṭṭācārya\
 > tāṅra bhagnī-pati śrī-gopīnāthācārya
 
 *baḍa-śākhā eka*—one of the biggest branches; *sārvabhaumabhaṭṭācārya*—of the name Sārvabhauma Bhaṭṭācārya; *tāṅra bhagnī-pati*—his brother-in-law (the husband of Sārvabhauma's sister); *śrī-gopīnāthācārya*—of the name Śrī Gopīnātha Ācārya.

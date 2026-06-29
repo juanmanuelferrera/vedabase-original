@@ -1,11 +1,11 @@
 ### SB 5.11.16
 
-> न यावदेतन्मन आत्मलिङ्गं संसारतापावपनं जनस्य
+> न यावदेतन्मन आत्मलिङ्गं संसारतापावपनं जनस्य\
 > यच्छोकमोहामयरागलोभ वैरानुबन्धं ममतां विधत्ते ॥१६॥
 
-> na yāvad etan mana ātma-liṅgaṁ
-> saṁsāra-tāpāvapanaṁ janasya
-> yac choka-mohāmaya-rāga-lobha-
+> na yāvad etan mana ātma-liṅgaṁ\
+> saṁsāra-tāpāvapanaṁ janasya\
+> yac choka-mohāmaya-rāga-lobha-\
 > vairānubandhaṁ mamatāṁ vidhatte
 
 *na*—no; *yāvat*—mientras; *etat*—esta; *manaḥ*—mente; *ātma-liṅgam*—que existe como identificación falsa del alma; *saṁsāra-tāpa*—de las miserias del mundo material; *āvapanam*—el campo de cultivo; *janasya*—del ser viviente; *yat*—que; *śoka*—de lamentación; *moha*—de ilusión; *āmaya*—de enfermedades; *rāga*—de apego; *lobha*—de codicia; *vaira*—de enemistad; *anubandham*—la consecuencia; *mamatām*—el sentimiento de propiedad; *vidhatte*—da.

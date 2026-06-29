@@ -1,11 +1,11 @@
 ### SB 4.24.65
 
-> स एष लोकानतिचण्डवेगो विकर्षसि त्वं खलु कालयानः ।
+> स एष लोकानतिचण्डवेगो विकर्षसि त्वं खलु कालयानः ।\
 > भूतानि भूतैरनुमेयतत्त्वो घनावलीर्वायुरिवाविषह्यः ॥६५॥
 
-> sa eṣa lokān aticaṇḍa-vego
-> vikarṣasi tvaṁ khalu kāla-yānaḥ
-> bhūtāni bhūtair anumeya-tattvo
+> sa eṣa lokān aticaṇḍa-vego\
+> vikarṣasi tvaṁ khalu kāla-yānaḥ\
+> bhūtāni bhūtair anumeya-tattvo\
 > ghanāvalīr vāyur ivāviṣahyaḥ
 
 *saḥ*—esa; *eṣaḥ*—este; *lokān*—todos los sistemas planetarios; *ati*—mucho; *caṇḍa-vegaḥ*—la gran fuerza; *vikarṣasi*—destruye; *tvam*—Tu Señoría; *khalu*—sin embargo; *kāla-yānaḥ*—a su debido tiempo; *bhūtāni*—todas las entidades vivientes; *bhūtaiḥ*—por otras entidades vivientes; *anumeya-tattvaḥ*—la Verdad Absoluta se puede intuir; *ghana-āvalīḥ*—las nubes; *vāyuḥ*—aire; *iva*—como; *aviṣahyaḥ*—insoportable.

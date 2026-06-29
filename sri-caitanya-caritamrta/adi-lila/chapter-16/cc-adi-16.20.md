@@ -1,9 +1,9 @@
 ### CC Adi 16.20
 
-> এই মত বঙ্গে প্রভু করে নানা লীলা ।
+> এই মত বঙ্গে প্রভু করে নানা লীলা ।\
 > এথা নবদ্বীপে লক্ষ্মী বিরহে দুঃখী হৈলা ॥২০॥
 
-> ei mata baṅge prabhu kare nānā līlā
+> ei mata baṅge prabhu kare nānā līlā\
 > ethā navadvīpe lakṣmī virahe duḥkhī hailā
 
 *ei mata*—in this way; *baṅge*—in East Bengal; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *kare*—does; *nānā*—various; *līlā*—pastimes; *ethā*—here; *navadvīpe*—in Navadvīpa; *lakṣmī*—the wife of Nimāi Paṇḍita; *virahe*—in separation; *duḥkhī*—unhappy; *hailā*—became.

@@ -1,11 +1,11 @@
 ### SB 9.18.26
 
-> वृषपर्वा तमाज्ञआय प्रत्यनीकविवक्षितम
+> वृषपर्वा तमाज्ञआय प्रत्यनीकविवक्षितम\
 > गुरुं प्रसादयन्मूर्ध्ना पादयोः पतितः पथि ॥२६॥
 
-> vṛṣaparvā tam ājñāya
-> pratyanīka-vivakṣitam
-> guruṁ prasādayan mūrdhnā
+> vṛṣaparvā tam ājñāya\
+> pratyanīka-vivakṣitam\
+> guruṁ prasādayan mūrdhnā\
 > pādayoḥ patitaḥ pathi
 
 *vṛṣaparvā*—el rey de los demonios; *tam ājñāya*—al conocer las intenciones de Śukrācārya; *pratyanīka*—alguna maldición; *vivakṣitam*—que deseaba pronunciar; *gurum*—a su maestro espiritual, Śukrācārya; *prasādayat*—satisfizo inmediatamente; *mūrdhnā*—con la cabeza; *pādayoḥ*—a los pies; *patitaḥ*—se postró; *pathi*—en el camino.

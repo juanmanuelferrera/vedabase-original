@@ -1,15 +1,15 @@
 ### SB 3.15.46
 
-> कुमारा ऊचुः
-> योऽन्तर्हितो हृदि गतोऽपि दुरात्मनां त्वं
-> सोऽद्यैव नो नयनमूलमनन्त राद्धः ।
-> यर्ह्येव कर्णविवरेण गुहां गतो नः
+> कुमारा ऊचुः\
+> योऽन्तर्हितो हृदि गतोऽपि दुरात्मनां त्वं\
+> सोऽद्यैव नो नयनमूलमनन्त राद्धः ।\
+> यर्ह्येव कर्णविवरेण गुहां गतो नः\
 > पित्रानुवर्णितरहा भवदुद्भवेन ॥४६॥
 
-> kumārā ūcuḥ
-> yo 'ntarhito hṛdi gato 'pi durātmanāṁ tvaṁ
-> so 'dyaiva no nayana-mūlam ananta rāddhaḥ
-> yarhy eva karṇa-vivareṇa guhāṁ gato naḥ
+> kumārā ūcuḥ\
+> yo 'ntarhito hṛdi gato 'pi durātmanāṁ tvaṁ\
+> so 'dyaiva no nayana-mūlam ananta rāddhaḥ\
+> yarhy eva karṇa-vivareṇa guhāṁ gato naḥ\
 > pitrānuvarṇita-rahā bhavad-udbhavena
 
 *kumārāḥ ūcuḥ*—los Kumāras dijeron; *yaḥ*—aquel que; *antarhitaḥ*—no manifestado; *hṛdi*—en el corazón; *gataḥ*—está situado; *api*—aunque; *durātmanām*—a los canallas; *tvam*—Tú; *saḥ*—Él; *adya*—hoy; *eva*—ciertamente; *naḥ*—de nosotros; *nayana-mūlam*—cara a cara; *ananta*—¡oh, ilimitado!; *rāddhaḥ*—obtenido; *yarhi*—cuando; *eva*—ciertamente; *karṇa-vivareṇa*—por los oídos; *guhām*—inteligencia; *gataḥ*—hemos obtenido; *naḥ*—nuestro; *pitrā*—por nuestro padre; *anuvarṇita*—descritos; *rahāḥ*—misterios; *bhavat-udbhavena*—por Tu aparición.

@@ -1,9 +1,9 @@
 ### CC Adi 17.217
 
-> তোমার মুখে কৃষ্ণনাম, — এ বড় বিচিত্র ।
+> তোমার মুখে কৃষ্ণনাম, — এ বড় বিচিত্র ।\
 > পাপক্ষয় গেল, হৈলা পরম পবিত্র ॥২১৭॥
 
-> tomāra mukhe kṛṣṇa-nāma,--e baḍa vicitra
+> tomāra mukhe kṛṣṇa-nāma,--e baḍa vicitra\
 > pāpa-kṣaya gela, hailā parama pavitra
 
 *tomāra mukhe*—en tu boca; *kṛṣṇa-nāma*—el canto del santo nombre de Kṛṣṇa; *e*—esto; *baḍa*—muy; *vicitra*—maravilloso; *pāpa-kṣaya*—eliminación de las actividades pecaminosas; *gela*—se ha hecho realidad; *hailā*—te has vuelto; *parama*—supremamente; *pavitra*—purificado.

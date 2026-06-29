@@ -1,11 +1,11 @@
 ### SB 2.2.27
 
-> न यत्र शोको न जरा न मृत्युर्नार्तिर्न चोद्वेग ऋते कुतश्चित् ।
+> न यत्र शोको न जरा न मृत्युर्नार्तिर्न चोद्वेग ऋते कुतश्चित् ।\
 > यच्चित्ततोऽदः कृपयानिदंविदां दुरन्तदुःखप्रभवानुदर्शनात् ॥२७॥
 
-> na yatra śoko na jarā na mṛtyur
-> nārtir na codvega ṛte kutaścit
-> yac cit tato 'daḥ kṛpayānidaṁ-vidāṁ
+> na yatra śoko na jarā na mṛtyur\
+> nārtir na codvega ṛte kutaścit\
+> yac cit tato 'daḥ kṛpayānidaṁ-vidāṁ\
 > duranta-duḥkha-prabhavānudarśanāt
 
 *na*—nunca; *yatra*—hay; *śokaḥ*—aflicción; *na*—ni; *jarā*—vejez; *na*—ni; *mṛtyuḥ*—muerte; *na*—ni; *artiḥ*—dolores; *na*—ni; *ca*—también; *udvegaḥ*—ansiedades; *ṛte*—con la excepción; *kutaścit*—a veces; *yat*—debido a; *cit*—conciencia; *tataḥ*—por lo tanto; *adaḥ*—compasión; *kṛpayā*—movido por la compasión sincera; *an-idam-vidām*—de aquellos que ignoran el proceso del servicio devocional; *duranta*—insuperable; *duḥkha*—desdicha; *prabhava*—reiterados nacimientos y muertes; *anudarśanāt*—mediante la experiencia sucesiva.

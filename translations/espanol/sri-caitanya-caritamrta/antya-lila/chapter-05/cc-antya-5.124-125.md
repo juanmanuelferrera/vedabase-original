@@ -1,18 +1,18 @@
 ### CC Antya 5.124-125
 
-> নাতঃ পরং পরম যদ্ভবতঃ স্বরূপ- মানন্দমাত্রমবিকল্পমবিদ্ধবর্চঃ ।
-> পশ্যামি বিশ্বসৃজমেকমবিশ্বমাত্মন্ ভূতেন্দ্রিয়াত্মকমদস্ত উপাশ্রিতোঽস্মি ॥১২৪॥
-> তদ্বা ইদং ভুবনমঙ্গল মঙ্গলায় ধ্যানে স্ম নো দরশিতং ত উপাসকানাম্ ।
+> নাতঃ পরং পরম যদ্ভবতঃ স্বরূপ- মানন্দমাত্রমবিকল্পমবিদ্ধবর্চঃ ।\
+> পশ্যামি বিশ্বসৃজমেকমবিশ্বমাত্মন্ ভূতেন্দ্রিয়াত্মকমদস্ত উপাশ্রিতোঽস্মি ॥১২৪॥\
+> তদ্বা ইদং ভুবনমঙ্গল মঙ্গলায় ধ্যানে স্ম নো দরশিতং ত উপাসকানাম্ ।\
 > তস্মৈ নমো ভগবতেঽনুবিধেম তুভ্যং যোঽনাদৃতো নরকভাগ্ভিরসৎপ্রসঙ্গৈঃ ॥১২৫॥
 
-> nātaḥ paraṁ parama yad bhavataḥ svarūpam
-> ānanda-mātram avikalpam aviddha-varcaḥ
-> paśyāmi viśva-sṛjam ekam aviśvam ātman
+> nātaḥ paraṁ parama yad bhavataḥ svarūpam\
+> ānanda-mātram avikalpam aviddha-varcaḥ\
+> paśyāmi viśva-sṛjam ekam aviśvam ātman\
 > bhūtendriyātmaka-madas ta upāśrito 'smi
 
-> tad vā idaṁ bhuvana-maṅgala maṅgalāya
-> dhyāne sma no daraśitaṁ ta upāsakānām
-> tasmai namo bhagavate 'nuvidhema tubhyaṁ
+> tad vā idaṁ bhuvana-maṅgala maṅgalāya\
+> dhyāne sma no daraśitaṁ ta upāsakānām\
+> tasmai namo bhagavate 'nuvidhema tubhyaṁ\
 > yo 'nādṛto naraka-bhāgbhir asat-prasaṅgaiḥ
 
 *na*—no; *ataḥ param*—de ahora en adelante; *parama*—¡oh, Supremo!; *yat*—la que; *bhavataḥ*—de Tu Señoría; *svarūpam*—forma eterna; *ānanda-mātram*—refulgencia del Brahman impersonal; *avikalpam*—sin cambios; *aviddha-varcaḥ*—sin deterioro de la potencia; *paśyāmi*—yo veo; *viśva-sṛjam*—creador de la manifestación cósmica; *ekam*—uno sin par; *aviśvam*—y aun así, no de materia; *ātman*—¡oh, causa suprema!; *bhūta*—cuerpo; *indriya*—sentidos; *ātmaka*—por esa identificación; *madaḥ*—orgullo; *te*—a Ti; *upāśritaḥ*—entregado; *asmi*—yo estoy; *tat*—la Suprema Personalidad de Dios; *vā*—o; *idam*—esta forma actual; *bhuvana-maṅgala*—son completamente auspiciosos para todos los universos; *maṅgalāya*—por la plena prosperidad; *dhyāne*—en meditación; *sma*—por así decir; *naḥ*—a nosotros; *daraśitam*—manifestada; *te*—Tuya; *upāsakānām*—de los devotos; *tasmai*—a Él; *namaḥ*—mis reverencias respetuosas; *bhagavate*—a la Personalidad de Dios; *anuvidhema*—yo realizo; *tubhyam*—a Ti; *yaḥ*—el cual; *anādṛtaḥ*—es desdeñado; *naraka*—*bhāgbhiḥ* —por personas destinadas a ir al infierno; *asat-prasaṅgaiḥ*—por temas materiales.

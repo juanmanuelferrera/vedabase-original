@@ -1,11 +1,11 @@
 ### SB 5.6.4
 
-> नित्यं ददाति कामस्य च्छिद्रं तमनु येऽरयः
+> नित्यं ददाति कामस्य च्छिद्रं तमनु येऽरयः\
 > योगिनः कृतमैत्रस्य पत्युर्जायेव पुंश्चली ॥४॥
 
-> nityaṁ dadāti kāmasya
-> cchidraṁ tam anu ye 'rayaḥ
-> yoginaḥ kṛta-maitrasya
+> nityaṁ dadāti kāmasya\
+> cchidraṁ tam anu ye 'rayaḥ\
+> yoginaḥ kṛta-maitrasya\
 > patyur jāyeva puṁścalī
 
 *nityam*—siempre; *dadāti*—da; *kāmasya*—de deseo de disfrute; *chidram*—facilidad; *tam*—a ese (deseo de disfrute); *anu*—seguir; *ye*—aquellos; *arayaḥ*—enemigos; *yoginaḥ*—de los *yogīs,* es decir, de las personas que tratan de avanzar en la vida espiritual; *kṛta-maitrasya*—habiéndose fiado de la mente; *patyuḥ*—del esposo; *jāyā iva*—como la esposa; *puṁścalī*—que no es casta, o que se deja seducir fácilmente por otros hombres.

@@ -1,9 +1,9 @@
 ### CC Antya 12.19
 
-> নিত্যানন্দপ্রভু ভোখে ব্যাকুল হঞা ।
+> নিত্যানন্দপ্রভু ভোখে ব্যাকুল হঞা ।\
 > শিবানন্দে গালি পাড়ে বাসা না পাঞা ॥১৯॥
 
-> nityānanda-prabhu bhokhe vyākula hañā
+> nityānanda-prabhu bhokhe vyākula hañā\
 > śivānanda gāli pāḍe vāsā nā pāñā
 
 *nityānanda-prabhu*—Lord Nityānanda Prabhu; *bhokhe*—became very hungry; *vyākula hañā*—being disturbed; *śivānanda gāli pāḍe*—was calling Śivānanda ill names; *vāsā nā pāñā*—not getting residential quarters.

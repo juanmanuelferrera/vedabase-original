@@ -1,11 +1,11 @@
 ### SB 4.31.13
 
-> श्रेयसामपि सर्वेषामात्मा ह्यवधिरर्थतः ।
+> श्रेयसामपि सर्वेषामात्मा ह्यवधिरर्थतः ।\
 > सर्वेषामपि भूतानां हरिरात्मात्मदः प्रियः ॥१३॥
 
-> śreyasām api sarveṣām
-> ātmā hy avadhir arthataḥ
-> sarveṣām api bhūtānāṁ
+> śreyasām api sarveṣām\
+> ātmā hy avadhir arthataḥ\
+> sarveṣām api bhūtānāṁ\
 > harir ātmātmadaḥ priyaḥ
 
 *śreyasām*—de actividades auspiciosas; *api*—ciertamente; *sarveṣām*—todas; *ātmā*—el ser; *hi*—ciertamente; *avadhiḥ*—destino; *arthataḥ*—en realidad; *sarveṣām*—de todas; *api*—ciertamente; *bhūtānām*—las entidades vivientes; *hariḥ*—la Suprema Personalidad de Dios; *ātmā*—la Superalma; *ātma-daḥ*—que puede darnos nuestra identidad original; *priyaḥ*—muy querida.

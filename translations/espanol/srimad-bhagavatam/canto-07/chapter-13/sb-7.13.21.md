@@ -1,12 +1,12 @@
 ### SB 7.13.21
 
-> यस्य नारायणो देवो भगवान्हृद्गतः सदा
+> यस्य नारायणो देवो भगवान्हृद्गतः सदा\
 > भक्त्या केवलयाज्ञआनं धुनोति ध्वान्तमर्कवत ॥२१॥
 
-> śrī-brāhmaṇa uvāca
-> vededam asura-śreṣṭha
-> bhavān nanv ārya-sammataḥ
-> īhoparamayor nṝṇāṁ
+> śrī-brāhmaṇa uvāca\
+> vededam asura-śreṣṭha\
+> bhavān nanv ārya-sammataḥ\
+> īhoparamayor nṝṇāṁ\
 > padāny adhyātma-cakṣuṣā
 
 *śrī-brāhmaṇaḥ uvāca*—el *brāhmaṇa* contestó; *veda*—sabes muy bien; *idam*—todas esas cosas; *asura-śreṣṭha*—¡oh, el mejor de los *asuras*!; *bhavān*—tú; *nanu*—en verdad; *ārya-sammataḥ*—cuyas actividades cuentan con la aprobación de hombres civilizados; *īhā*—de inclinación; *uparamayoḥ*—de la disminución; *nṛṇām*—de la gente en general; *padāni*—diferentes etapas; *adhyātma-cakṣuṣā*—con ojos trascendentales.

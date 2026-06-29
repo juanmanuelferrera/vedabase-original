@@ -1,9 +1,9 @@
 ### CC Adi 10.55
 
-> প্রতিবর্ষে প্রভুগণ সঙ্গেতে লইয়া ।
+> প্রতিবর্ষে প্রভুগণ সঙ্গেতে লইয়া ।\
 > নীলাচলে চলেন পথে পালন করিয়া ॥৫৫॥
 
-> prativarṣe prabhu-gaṇa saṅgete lā-iyā
+> prativarṣe prabhu-gaṇa saṅgete lā-iyā\
 > nīlācale calena pathe pālana kariyā
 
 *prati-varṣe*—cada año; *prabhu-gaṇa*—los devotos del Señor Caitanya; *saṅgete*—junto con; *lā-iyā*—llevando; *nīlācale*—a Jagannātha Purī; *calena*—se dirige; *pathe*—en el camino; *pālana*—mantenimiento; *kariyā*—proporcionando.

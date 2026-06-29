@@ -1,11 +1,11 @@
 ### SB 9.21.15
 
-> तस्य त्रिभुवनाधीशाः फलदाः फलमिच्छताम
+> तस्य त्रिभुवनाधीशाः फलदाः फलमिच्छताम\
 > आत्मानं दर्शयां चक्रुर्माया विष्णुविनिर्मिताः ॥१५॥
 
-> tasya tribhuvanādhīśāḥ
-> phaladāḥ phalam icchatām
-> ātmānaṁ darśayāṁ cakrur
+> tasya tribhuvanādhīśāḥ\
+> phaladāḥ phalam icchatām\
+> ātmānaṁ darśayāṁ cakrur\
 > māyā viṣṇu-vinirmitāḥ
 
 *tasya*—ante él (el rey Rantideva); *tri-bhuvana-adhīśāḥ*—los controladores de los tres mundos (semidioses como Brahmā y Śiva); *phaladāḥ*—que pueden dar todos los resultados fruitivos; *phalam icchatām*—de personas que desean beneficios materiales; *ātmānam*—sus propias identidades; *darśayām cakruḥ*—manifestaron; *māyāḥ*—la energía ilusoria; *viṣṇu*—por el Señor Viṣṇu; *vinirmitāḥ*—creada.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.342
 
-> প্রভু প্রেমাবেশে সবায় কৈল আলিঙ্গন ৷
+> প্রভু প্রেমাবেশে সবায় কৈল আলিঙ্গন ৷\
 > প্রেমাবেশে সবে করে আনন্দ-ক্রন্দন ৷৷ ৩৪২ ৷৷ ॥৩৪২॥
 
-> prabhu premāveśe sabāya kaila āliṅgana
+> prabhu premāveśe sabāya kaila āliṅgana\
 > premāveśe sabe kare ānanda-krandana
 
 *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *prema-āveśe*—en amor extático; *sabāya*—a todos ellos; *kaila āliṅgana*—abrazó; *prema-āveśe*—en amor extático; *sabe kare*—todos ellos hicieron; *ānanda-krandana*—llorar de placer.

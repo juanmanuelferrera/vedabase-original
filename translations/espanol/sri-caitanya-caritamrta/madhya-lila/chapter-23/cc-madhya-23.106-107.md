@@ -1,18 +1,18 @@
 ### CC Madhya 23.106-107
 
-> অদ্বেষ্টা সর্বভূতানাং মৈত্রঃ করুণ এব চ ।
-> নির্মমো নিরহঙ্কারঃ সমদুঃখসুখঃ ক্ষমী ॥১০৬॥
-> সন্তুষ্টঃ সততং যোগী যতাত্মা দৃঢ়নিশ্চয়ঃ ।
+> অদ্বেষ্টা সর্বভূতানাং মৈত্রঃ করুণ এব চ ।\
+> নির্মমো নিরহঙ্কারঃ সমদুঃখসুখঃ ক্ষমী ॥১০৬॥\
+> সন্তুষ্টঃ সততং যোগী যতাত্মা দৃঢ়নিশ্চয়ঃ ।\
 > ময্যর্পিতমনোবুদ্ধির্যো মদ্ভক্তঃ স মে প্রিয়ঃ ॥১০৭॥
 
-> adveṣṭā sarva-bhūtānāṁ
-> maitraḥ karuṇa eva ca
-> nirmamo nirahaṅkāraḥ
+> adveṣṭā sarva-bhūtānāṁ\
+> maitraḥ karuṇa eva ca\
+> nirmamo nirahaṅkāraḥ\
 > sama-duḥkha-sukhaḥ kṣamī
 
-> santuṣṭaḥ satataṁ yogī
-> yatātmā dṛḍha-niścayaḥ
-> mayy arpita-mano-buddhir
+> santuṣṭaḥ satataṁ yogī\
+> yatātmā dṛḍha-niścayaḥ\
+> mayy arpita-mano-buddhir\
 > yo mad-bhaktaḥ sa me priyaḥ
 
 *adveṣṭā*—no envidioso o celoso; *sarva-bhūtānām*—hacia todas las entidades vivientes en todas partes del mundo; *maitraḥ*—amigable; *karuṇaḥ*—compasivo; *eva*—ciertamente; *ca*—y; *nirmamaḥ*—sin sentido de posesión; *nirahaṅkāraḥ*—sin orgullo (sin considerarse un gran predicador); *sama-duḥkha-sukhaḥ*—ecuánime en el sufrimiento y la felicidad (pacífico); *kṣamī*—que tolera las ofensas que otros le hacen; *santuṣṭaḥ*—satisfecho; *satatam*—continuamente; *yogī*—ocupado en *bhakti-yoga*; *yata-ātmā*—que ha controlado los sentidos y la mente; *dṛḍha-niścayaḥ*—que tiene firme fe y confianza; *mayi*—a Mí; *arpita*—dedicadas; *manaḥ-buddhiḥ*—la mente y la inteligencia; *yaḥ*—quien; *mat-bhaktaḥ*—Mi devoto; *saḥ*—esa persona; *me*—por Mí; *priyaḥ*—querida.

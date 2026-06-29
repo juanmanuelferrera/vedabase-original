@@ -1,9 +1,9 @@
 ### CC Antya 6.213
 
-> এইমত রহে তেঁহ স্বরূপ-চরণে ।
+> এইমত রহে তেঁহ স্বরূপ-চরণে ।\
 > গোবিন্দ প্রসাদ তাঁরে দিল পঞ্চ দিনে ॥২১৩॥
 
-> ei-mata rahe teṅha svarūpa-caraṇe
+> ei-mata rahe teṅha svarūpa-caraṇe\
 > govinda prasāda tāṅre dila pañca dine
 
 *ei-mata*—in this way; *rahe*—remained; *teṅha*—he; *svarūpa-caraṇe*—under the shelter of Svarūpa Dāmodara Gosvāmī; *govinda*—the personal servant of Śrī Caitanya Mahāprabhu; *prasāda*—the remnants of the food of Śrī Caitanya Mahāprabhu; *tāṅre*—unto him; *dila*—gave; *pañca dine*—for five days.

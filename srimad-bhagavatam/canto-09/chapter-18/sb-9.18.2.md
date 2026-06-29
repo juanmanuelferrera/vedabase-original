@@ -1,11 +1,11 @@
 ### SB 9.18.2
 
-> राज्यं नैच्छद्यतिः पित्रा दत्तं तत्परिणामवित
+> राज्यं नैच्छद्यतिः पित्रा दत्तं तत्परिणामवित\
 > यत्र प्रविष्टः पुरुष आत्मानं नावबुध्यते ॥२॥
 
-> rājyaṁ naicchad yatiḥ pitrā
-> dattaṁ tat-pariṇāmavit
-> yatra praviṣṭaḥ puruṣa
+> rājyaṁ naicchad yatiḥ pitrā\
+> dattaṁ tat-pariṇāmavit\
+> yatra praviṣṭaḥ puruṣa\
 > ātmānaṁ nāvabudhyate
 
 *rājyam*—the kingdom; *na aicchat*—did not accept; *yatiḥ*—the eldest son, Yati; *pitrā*—by his father; *dattam*—offered; *tat-pariṇāma-vit*—knowing the result of becoming powerful as a king; *yatra*—wherein; *praviṣṭaḥ*—having entered; *puruṣaḥ*—such a person; *ātmānam*—self-realization; *na*—not; *avabudhyate*—will take seriously and understand.

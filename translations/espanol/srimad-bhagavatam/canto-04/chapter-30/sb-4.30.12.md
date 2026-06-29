@@ -1,11 +1,11 @@
 ### SB 4.30.12
 
-> भविता विश्रुतः पुत्रोऽनवमो ब्रह्मणो गुणैः ।
+> भविता विश्रुतः पुत्रोऽनवमो ब्रह्मणो गुणैः ।\
 > य एतामात्मवीर्येण त्रिलोकीं पूरयिष्यति ॥१२॥
 
-> bhavitā viśrutaḥ putro
-> 'navamo brahmaṇo guṇaiḥ
-> ya etām ātma-vīryeṇa
+> bhavitā viśrutaḥ putro\
+> 'navamo brahmaṇo guṇaiḥ\
+> ya etām ātma-vīryeṇa\
 > tri-lokīṁ pūrayiṣyati
 
 *bhavitā*—habrá; *viśrutaḥ*—muy famoso; *putraḥ*—hijo; *anavamaḥ*—no inferior; *brahmaṇaḥ*—al Señor Brahmā; *guṇaiḥ*—en cualidades; *yaḥ*—quien; *etām*—todo esto; *ātma-vīryeṇa*—con su progenie; *tri-lokīm*—los tres mundos; *pūrayiṣyati*—llenará.

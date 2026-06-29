@@ -1,11 +1,11 @@
 ### SB 3.5.9
 
-> येन प्रजानामुत आत्मकर्म रूपाभिधानां च भिदां व्यधत्त ।
+> येन प्रजानामुत आत्मकर्म रूपाभिधानां च भिदां व्यधत्त ।\
 > नारायणो विश्वसृगात्मयोनिरेतच्च नो वर्णय विप्रवर्य ॥९॥
 
-> yena prajānām uta ātma-karma-
-> rūpābhidhānāṁ ca bhidāṁ vyadhatta
-> nārāyaṇo viśvasṛg ātma-yonir
+> yena prajānām uta ātma-karma-\
+> rūpābhidhānāṁ ca bhidāṁ vyadhatta\
+> nārāyaṇo viśvasṛg ātma-yonir\
 > etac ca no varṇaya vipra-varya
 
 *yena*—by which; *prajānām*—of those who are born; *uta*—as also; *ātma-karma*—destined engagement; *rūpa*—form and feature; *abhidhānām*—endeavors; *ca*—also; *bhidām*—differentiation; *vyadhatta*—dispersed; *nārāyaṇaḥ*—the Supreme Personality of Godhead; *viśvasṛk*—the creator of the universe; *ātma-yoniḥ*—self-sufficient; *etat*—all these; *ca*—also; *naḥ*—unto us; *varṇaya*—describe; *vipra-varya*—O chief amongst the *brāhmaṇas.*

@@ -1,13 +1,13 @@
 ### CC Antya 1.167
 
-> কুলবরতনুধর্মগ্রাববৃন্দানি ভিন্দন্
-> সুমুখি নিশিতদীর্ঘাপাঙ্গটঙ্কচ্ছটাভিঃ ।
-> যুগপদয়মপূর্বঃ কঃ পুরো বিশ্বকর্মা
+> কুলবরতনুধর্মগ্রাববৃন্দানি ভিন্দন্\
+> সুমুখি নিশিতদীর্ঘাপাঙ্গটঙ্কচ্ছটাভিঃ ।\
+> যুগপদয়মপূর্বঃ কঃ পুরো বিশ্বকর্মা\
 > মরকতমণিলক্ষৈর্গোষ্ঠকক্ষাং চিনোতি ॥১৬৭॥
 
-> kula-varatanu-dharma-grāva-vṛndāni bhindan
-> sumukhi niśita-dīrghāpāṅga-ṭaṅka-cchaṭābhiḥ
-> yugapad ayam apūrvaḥ kaḥ puro viśva-karmā
+> kula-varatanu-dharma-grāva-vṛndāni bhindan\
+> sumukhi niśita-dīrghāpāṅga-ṭaṅka-cchaṭābhiḥ\
+> yugapad ayam apūrvaḥ kaḥ puro viśva-karmā\
 > marakata-maṇi-lakṣair goṣṭha-kakṣāṁ cinoti
 
 *kula-varatanu*—de las mujeres de familia; *dharma*—en la forma de dedicación al esposo, etc.; *grāva-vṛndāni*—las piedras; *bhindan*—partiendo; *sumukhi*—¡oh, la de hermoso rostro!; *niśita*—afilados; *dīrgha-apāṅga*—en la forma de largos rabos del ojo; *ṭaṅka-chaṭābhiḥ*—por los cinceles; *yugapat*—simultáneamente; *ayam*—este; *apūrvaḥ*—sin precedentes; *kaḥ*—quién; *puraḥ*—delante; *viśva-karmā*—persona creativa; *marakata-maṇi-lakṣaiḥ*—con incontables esmeraldas; *goṣṭha-kakṣām*—una habitación privada para encuentros; *cinoti*—Él está construyendo.

@@ -1,11 +1,11 @@
 ### CC Madhya 8.72
 
-> যন্নামশ্রুতিমাত্রেণ পুমান্ ভবতি নির্মলঃ ।
+> যন্নামশ্রুতিমাত্রেণ পুমান্ ভবতি নির্মলঃ ।\
 > তস্য তীর্থপদঃ কিংবা দাসানামবশিষ্যতে ॥৭২॥
 
-> yan-nāma-śruti-mātreṇa
-> pumān bhavati nirmalaḥ
-> tasya tīrtha-padaḥ kiṁ vā
+> yan-nāma-śruti-mātreṇa\
+> pumān bhavati nirmalaḥ\
+> tasya tīrtha-padaḥ kiṁ vā\
 > dāsānām avaśiṣyate
 
 *yat*—of whom; *nāma*—of the name; *śruti-mātreṇa*—simply by hearing; *pumān*—a person; *bhavati*—becomes; *nirmalaḥ*—pure; *tasya*—of Him; *tīrtha-padaḥ*—of the Supreme Personality of Godhead, at whose lotus feet are all places of pilgrimage; *kim*—what; *vā*—more; *dāsānām*—of the servants; *avaśiṣyate*—is remaining.

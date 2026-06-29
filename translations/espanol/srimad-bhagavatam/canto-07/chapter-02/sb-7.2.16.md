@@ -1,11 +1,11 @@
 ### SB 7.2.16
 
-> एवं विप्रकृते लोके दैत्येन्द्रानुचरैर्मुहुः
+> एवं विप्रकृते लोके दैत्येन्द्रानुचरैर्मुहुः\
 > दिवं देवाः परित्यज्य भुवि चेरुरलक्षिताः ॥१६॥
 
-> evaṁ viprakṛte loke
-> daityendrānucarair muhuḥ
-> divaṁ devāḥ parityajya
+> evaṁ viprakṛte loke\
+> daityendrānucarair muhuḥ\
+> divaṁ devāḥ parityajya\
 > bhuvi cerur alakṣitāḥ
 
 *evam*—así; *viprakṛte*—perturbada; *loke*—cuando toda la gente; *daitya-indra-anucaraiḥ*—por los seguidores de Hiraṇyakaśipu, el rey de los *daityas*; *muhuḥ*—una y otra vez; *divam*—los planetas celestiales; *devāḥ*—los semidioses; *parityajya*—abandonar; *bhuvi*—sobre el planeta Tierra; *ceruḥ*—recorrieron (para ver la magnitud del problema); *alakṣitāḥ*—sin ser vistos por los demonios.

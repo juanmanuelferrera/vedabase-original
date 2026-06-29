@@ -1,13 +1,13 @@
 ### SB 6.4.4
 
-> श्रीशुक उवाच
-> यदा प्रचेतसः पुत्रा दश प्राचीनबर्हिषः
+> श्रीशुक उवाच\
+> यदा प्रचेतसः पुत्रा दश प्राचीनबर्हिषः\
 > अन्तःसमुद्रादुन्मग्ना ददृशुर्गां द्रुमैर्वृताम ॥४॥
 
-> śrī-śuka uvāca
-> yadā pracetasaḥ putrā
-> daśa prācīnabarhiṣaḥ
-> antaḥ-samudrād unmagnā
+> śrī-śuka uvāca\
+> yadā pracetasaḥ putrā\
+> daśa prācīnabarhiṣaḥ\
+> antaḥ-samudrād unmagnā\
 > dadṛśur gāṁ drumair vṛtām
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī dijo; *yadā*—cuando; *pracetasaḥ*—los Pracetās; *putrāḥ*—los hijos; *daśa*—diez; *prācīnabarhiṣaḥ*—del rey Prācīnabarhi; *antaḥ-samudrāt*—de dentro del mar; *unmagnāḥ*—salieron; *dadṛśuḥ*—vieron; *gām*—todo el planeta; *drumaiḥ vṛtām*—cubierto de árboles.

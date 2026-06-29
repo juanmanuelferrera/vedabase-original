@@ -1,11 +1,11 @@
 ### SB 8.3.7
 
-> दिदृक्षवो यस्य पदं सुमङ्गलं विमुक्तसङ्गा मुनयः सुसाधवः
+> दिदृक्षवो यस्य पदं सुमङ्गलं विमुक्तसङ्गा मुनयः सुसाधवः\
 > चरन्त्यलोकव्रतमव्रणं वने भूतात्मभूताः सुहृदः स मे गतिः ॥७॥
 
-> didṛkṣavo yasya padaṁ sumaṅgalaṁ
-> vimukta-saṅgā munayaḥ susādhavaḥ
-> caranty aloka-vratam avraṇaṁ vane
+> didṛkṣavo yasya padaṁ sumaṅgalaṁ\
+> vimukta-saṅgā munayaḥ susādhavaḥ\
+> caranty aloka-vratam avraṇaṁ vane\
 > bhūtātma-bhūtāḥ suhṛdaḥ sa me gatiḥ
 
 *didṛkṣavaḥ*—aquellos que desean ver (a la Suprema Personalidad de Dios); *yasya*—de Él; *padam*—los pies de loto; *su-maṅgalam*—completamente auspiciosos; *vimukta-saṅgāḥ*—personas completamente libres de la infección de las condiciones materiales; *munayaḥ*—grandes sabios; *su-sādhavaḥ*—personas de conciencia espiritual muy elevada; *caranti*—practican; *aloka-vratam*—votos de *brahmacarya*, *vānaprastha* o *sannyāsa*; *avraṇam*—sin la menor falta; *vane*—en el bosque; *bhūta-ātma-bhūtāḥ*—los que son ecuánimes con todas las entidades vivientes; *suhṛdaḥ*—los que son amigos de todos; *saḥ*—esa Suprema Personalidad de Dios; *me*—mío; *gatiḥ*—destino.

@@ -1,11 +1,11 @@
 ### SB 9.14.47
 
-> तेनायजत यज्ञएशं भगवन्तमधोक्षजम
+> तेनायजत यज्ञएशं भगवन्तमधोक्षजम\
 > उर्वशीलोकमन्विच्छन्सर्वदेवमयं हरिम ॥४७॥
 
-> tenāyajata yajñeśaṁ
-> bhagavantam adhokṣajam
-> urvaśī-lokam anvicchan
+> tenāyajata yajñeśaṁ\
+> bhagavantam adhokṣajam\
+> urvaśī-lokam anvicchan\
 > sarva-devamayaṁ harim
 
 *tena*—by generating such a fire; *ayajata*—he worshiped; *yajña-īśam*—the master or enjoyer of the *yajña*; *bhagavantam*—the Supreme Personality of Godhead; *adhokṣajam*—beyond the perception of the senses; *urvaśī-lokam*—to the planet where Urvaśī was staying; *anvicchan*—although desiring to go; *sarva-deva-mayam*—the reservoir of all demigods; *harim*—the Supreme Personality of Godhead.

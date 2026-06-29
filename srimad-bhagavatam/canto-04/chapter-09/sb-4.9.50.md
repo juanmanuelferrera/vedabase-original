@@ -1,11 +1,11 @@
 ### SB 4.9.50
 
-> पयः स्तनाभ्यां सुस्राव नेत्रजैः सलिलैः शिवैः ।
+> पयः स्तनाभ्यां सुस्राव नेत्रजैः सलिलैः शिवैः ।\
 > तदाभिषिच्यमानाभ्यां वीर वीरसुवो मुहुः ॥५०॥
 
-> payaḥ stanābhyāṁ susrāva
-> netra-jaiḥ salilaiḥ śivaiḥ
-> tadābhiṣicyamānābhyāṁ
+> payaḥ stanābhyāṁ susrāva\
+> netra-jaiḥ salilaiḥ śivaiḥ\
+> tadābhiṣicyamānābhyāṁ\
 > vīra vīra-suvo muhuḥ
 
 *payaḥ*—milk; *stanābhyām*—from both breasts; *susrāva*—began to flow down; *netra-jaiḥ*—from the eyes; *salilaiḥ*—by tears; *śivaiḥ*—auspicious; *tadā*—at that time; *abhiṣicyamānābhyām*—being wetted; *vīra*—my dear Vidura; *vīra-suvaḥ*—of the mother who gave birth to a hero; *muhuḥ*—constantly.

@@ -1,11 +1,11 @@
 ### SB 4.15.19
 
-> नाट्यं सुगीतं वादित्रमन्तर्धानं च खेचराः ।
+> नाट्यं सुगीतं वादित्रमन्तर्धानं च खेचराः ।\
 > ऋषयश्चाशिषः सत्याः समुद्रः शङ्खमात्मजम् ॥१९॥
 
-> nāṭyaṁ sugītaṁ vāditram
-> antardhānaṁ ca khecarāḥ
-> ṛṣayaś cāśiṣaḥ satyāḥ
+> nāṭyaṁ sugītaṁ vāditram\
+> antardhānaṁ ca khecarāḥ\
+> ṛṣayaś cāśiṣaḥ satyāḥ\
 > samudraḥ śaṅkham ātmajam
 
 *nāṭyam*—the art of drama; *su-gītam*—the art of singing sweet songs; *vāditram*—the art of playing musical instruments; *antardhānam*—the art of disappearing; *ca*—also; *khe-carāḥ*—demigods traveling in outer space; *ṛṣayaḥ*—the great sages; *ca*—also; *āśiṣaḥ*—blessings; *satyāḥ*—infallible; *samudraḥ*—the demigod of the ocean; *śaṅkham*—conchshell; *ātma-jam*—produced from himself.

@@ -1,9 +1,9 @@
 ### CC Antya 3.167
 
-> হরিদাসের কৃপাপাত্র, তাতে ভক্তিমানে ।
+> হরিদাসের কৃপাপাত্র, তাতে ভক্তিমানে ।\
 > যত্ন করি’ ঠাকুরেরে রাখিলা সেই গ্রামে ॥১৬৭॥
 
-> haridāsera kṛpā-pātra, tāte bhakti-māne
+> haridāsera kṛpā-pātra, tāte bhakti-māne\
 > yatna kari' ṭhākurere rākhilā sei grāme
 
 *haridāsera kṛpā-pātra*—favorecido por Haridāsa Ṭhākura; *tāte*—por lo tanto; *bhakti-māne*—un gran devoto de Haridāsa Ṭhākura; *yatna kari'*—con gran cuidado y atención; *ṭhākurere*—Haridāsa Ṭhākura; *rākhilā*—mantuvo; *sei grāme*—en la aldea.

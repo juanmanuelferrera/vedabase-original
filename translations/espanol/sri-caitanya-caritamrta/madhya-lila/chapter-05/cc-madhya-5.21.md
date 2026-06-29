@@ -1,9 +1,9 @@
 ### CC Madhya 5.21
 
-> ছোটবিপ্র কহে, — “শুন, বিপ্ৰ-মহাশয় ।
+> ছোটবিপ্র কহে, — “শুন, বিপ্ৰ-মহাশয় ।\
 > অসম্ভব কহ কেনে, যেই নাহি হয় ॥২১॥
 
-> choṭa-vipra kahe, "śuna, vipra-mahāśaya
+> choṭa-vipra kahe, "śuna, vipra-mahāśaya\
 > asambhava kaha kene, yei nāhi haya
 
 *choṭa-vipra*—el brāhmaṇa más joven; *kahe*—responde; *śuna*—escuche; *vipra-mahāśaya*—mi querido brāhmaṇa; *asambhava*—improbable; *kaha*—dice; *kene*—por qué; *yei*—lo cual; *nāhi*—no; *haya*—sucede.

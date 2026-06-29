@@ -1,11 +1,11 @@
 ### SB 6.13.2
 
-> देवर्षिपितृभूतानि दैत्या देवानुगाः स्वयम
+> देवर्षिपितृभूतानि दैत्या देवानुगाः स्वयम\
 > प्रतिजग्मुः स्वधिष्ण्यानि ब्रह्मेशेन्द्रादयस्ततः ॥२॥
 
-> devarṣi-pitṛ-bhūtāni
-> daityā devānugāḥ svayam
-> pratijagmuḥ sva-dhiṣṇyāni
+> devarṣi-pitṛ-bhūtāni\
+> daityā devānugāḥ svayam\
+> pratijagmuḥ sva-dhiṣṇyāni\
 > brahmeśendrādayas tataḥ
 
 *deva*—los semidioses; *ṛṣi*—las grandes personas santas; *pitṛ*—los habitantes de Pitṛloka; *bhūtāni*—y las demás entidades vivientes; *daityāḥ*—los demonios; *deva-anugāḥ*—los habitantes de otros planetas que siguen los principios de los semidioses; *svayam*—independientemente (sin pedir permiso a Indra); *pratijagmuḥ*—regresaron; *sva-dhiṣṇyāni*—a sus respectivos planetas y hogares; *brahma*—el Señor Brahmā; *īśa*—el Señor Śiva; *indra-ādayaḥ*—y los semidioses encabezados por Indra; *tataḥ*—seguidamente.

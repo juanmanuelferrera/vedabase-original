@@ -1,13 +1,13 @@
 ### SB 4.7.32
 
-> इन्द्र उवाच
-> इदमप्यच्युत विश्वभावनं वपुरानन्दकरं मनोदृशाम् ।
+> इन्द्र उवाच\
+> इदमप्यच्युत विश्वभावनं वपुरानन्दकरं मनोदृशाम् ।\
 > सुरविद्विट्क्षपणैरुदायुधैर्भुजदण्डैरुपपन्नमष्टभिः ॥३२॥
 
-> indra uvāca
-> idam apy acyuta viśva-bhāvanaṁ
-> vapur ānanda-karaṁ mano-dṛśām
-> sura-vidviṭ-kṣapaṇair udāyudhair
+> indra uvāca\
+> idam apy acyuta viśva-bhāvanaṁ\
+> vapur ānanda-karaṁ mano-dṛśām\
+> sura-vidviṭ-kṣapaṇair udāyudhair\
 > bhuja-daṇḍair upapannam aṣṭabhiḥ
 
 *indraḥ uvāca*—el rey Indra dijo; *idam*—esta; *api*—ciertamente; *acyuta*—¡oh, infalible!; *viśva-bhāvanam*—para beneficio del universo; *vapuḥ*—forma trascendental; *ānanda-karam*—causa de placer; *manaḥ-dṛśām*—para la mente y la vista; *sura-vidviṭ*—envidiosos de Tus devotos; *kṣapaṇaiḥ*—por medio del castigo; *ud-āyudhaiḥ*—con armas levantadas; *bhuja-daṇḍaiḥ*—con brazos; *upapannam*—equivocadas; *aṣṭabhiḥ*—con ocho.

@@ -1,11 +1,11 @@
 ### Bg 8.21
 
-> अव्यक्तोऽक्षर इत्युक्तस्तमाहुः परमां गतिम् ।
+> अव्यक्तोऽक्षर इत्युक्तस्तमाहुः परमां गतिम् ।\
 > यं प्राप्य न निवर्तन्ते तद्धाम परमं मम ॥२१॥
 
-> avyakto'kṣara ity uktas
-> tam āhuḥ paramāṁ gatim
-> yaṁ prāpya na nivartante
+> avyakto'kṣara ity uktas\
+> tam āhuḥ paramāṁ gatim\
+> yaṁ prāpya na nivartante\
 > tad dhāma paramaṁ mama
 
 *avyaktaḥ*—no manifiesto; *akṣaraḥ*—infalible; *iti*—así pues; *uktaḥ*—dicho; *tam*—aquello que; *āhuḥ*—se conoce; *paramām*—supremo; *gatim*—destino; *yam*—aquello que; *prāpya*—obteniendo; *na*—nunca; *nivartante*—regresa; *tat dhāma*—esa morada; *paramam*—suprema; *mama*—Mío.

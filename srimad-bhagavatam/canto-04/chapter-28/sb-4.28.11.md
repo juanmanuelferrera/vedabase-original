@@ -1,11 +1,11 @@
 ### SB 4.28.11
 
-> भयनाम्नोऽग्रजो भ्राता प्रज्वारः प्रत्युपस्थितः ।
+> भयनाम्नोऽग्रजो भ्राता प्रज्वारः प्रत्युपस्थितः ।\
 > ददाह तां पुरीं कृत्स्नां भ्रातुः प्रियचिकीर्षया ॥११॥
 
-> bhaya-nāmno 'grajo bhrātā
-> prajvāraḥ pratyupasthitaḥ
-> dadāha tāṁ purīṁ kṛtsnāṁ
+> bhaya-nāmno 'grajo bhrātā\
+> prajvāraḥ pratyupasthitaḥ\
+> dadāha tāṁ purīṁ kṛtsnāṁ\
 > bhrātuḥ priya-cikīrṣayā
 
 *bhaya-nāmnaḥ*—of Bhaya (Fear); *agra-jaḥ*—elder; *bhrātā*—brother; *prajvāraḥ*—named Prajvāra; *pratyupasthitaḥ*—being present there; *dadāha*—set fire; *tām*—to that; *purīm*—city; *kṛtsnām*—wholesale; *bhrātuḥ*—his brother; *priya-cikīrṣayā*—in order to please.

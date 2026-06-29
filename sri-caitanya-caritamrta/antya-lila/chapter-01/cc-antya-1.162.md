@@ -1,13 +1,13 @@
 ### CC Antya 1.162
 
-> সদ্বংশতস্তব জনিঃ পুরুষোত্তমস্য
-> পাণৌ স্থিতির্মুরলিকে সরলাসি জাত্যা ।
-> কস্মাত্ত্বয়া সখি গুরোর্বিষমা গৃহীতা
+> সদ্বংশতস্তব জনিঃ পুরুষোত্তমস্য\
+> পাণৌ স্থিতির্মুরলিকে সরলাসি জাত্যা ।\
+> কস্মাত্ত্বয়া সখি গুরোর্বিষমা গৃহীতা\
 > গোপাঙ্গনাগণবিমোহনমন্ত্রদীক্ষা ॥১৬২॥
 
-> sad-vaṁśatas tava janiḥ puruṣottamasya
-> pāṇau sthitir muralike saralāsi jātyā
-> kasmāt tvayā sakhi guror viṣamā gṛhītā
+> sad-vaṁśatas tava janiḥ puruṣottamasya\
+> pāṇau sthitir muralike saralāsi jātyā\
+> kasmāt tvayā sakhi guror viṣamā gṛhītā\
 > gopāṅganā-gaṇa-vimohana-man tra-dīkṣā
 
 *sat-vaṁśataḥ*—very respectable families; *tava*—your; *janiḥ*—birth; *puruṣottamasya*—of Lord Śrī Kṛṣṇa; *pāṇau*—in the hands; *sthitiḥ*—residence; *muralike*—O good flute; *saralā*—simple; *asi*—you are; *jātyā*—by birth; *kasmāt*—why; *tvayā*—by you; *sakhi*—O my dear friend; *guroḥ*—from the spiritual master; *viṣamā*—dangerous; *gṛhītā*—taken; *gopā-aṅganā-gaṇa-vimohana*—for bewildering the groups of the *gopīs*; *mantra-dīkṣā*—initiation in the *mantra.*

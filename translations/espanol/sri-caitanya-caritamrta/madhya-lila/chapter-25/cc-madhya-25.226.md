@@ -1,9 +1,9 @@
 ### CC Madhya 25.226
 
-> আনন্দে বিহ্বল ভক্তগণ ধাঞা আইলা ।
+> আনন্দে বিহ্বল ভক্তগণ ধাঞা আইলা ।\
 > নরেন্দ্রে আসিয়া সবে প্রভুরে মিলিলা ॥২২৬॥
 
-> ānande vihvala bhakta-gaṇa dhāñā āilā
+> ānande vihvala bhakta-gaṇa dhāñā āilā\
 > narendre āsiyā sabe prabhure mililā
 
 *ānande*—con gran placer; *vihvala*—abrumados; *bhakta-gaṇa*—todos los devotos; *dhāñā āilā*—acudieron muy apresuradamente; *narendre āsiyā*—al llegar a la orilla del lago Narendra; *sabe*—todos ellos; *prabhure*—Śrī Caitanya Mahāprabhu; *mililā*—se encontraron.

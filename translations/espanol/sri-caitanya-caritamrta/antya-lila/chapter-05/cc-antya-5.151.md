@@ -1,9 +1,9 @@
 ### CC Antya 5.151
 
-> সকল সংসারী লোকের করিতে উদ্ধার ।
+> সকল সংসারী লোকের করিতে উদ্ধার ।\
 > গৌর-জঙ্গম রূপে কৈলা অবতার ॥১৫১॥
 
-> sakala saṁsārī lokera karite uddhāra
+> sakala saṁsārī lokera karite uddhāra\
 > gaura-jaṅgama-rūpe kailā avatāra
 
 *sakala*—todas; *saṁsārī*—materialmente contaminadas; *lokera*—personas; *karite uddhāra*—liberar; *gaura*—Śrī Caitanya Mahāprabhu; *jaṅgama*—que se mueve; *rūpe*—en la forma; *kailā avatāra*—ha descendido.

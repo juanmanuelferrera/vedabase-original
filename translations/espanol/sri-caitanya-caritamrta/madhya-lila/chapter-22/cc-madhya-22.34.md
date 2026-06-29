@@ -1,11 +1,11 @@
 ### CC Madhya 22.34
 
-> সকৃদেব প্রপন্নো যস্তবাস্মীতি চ যাচতে ।
+> সকৃদেব প্রপন্নো যস্তবাস্মীতি চ যাচতে ।\
 > অভয়ং সর্বদা তস্মৈ দদাম্যেতদ্ব্রতং মম ॥৩৪॥
 
-> sakṛd eva prapanno yas
-> tavāsmīti ca yācate
-> abhayaṁ sarvadā tasmai
+> sakṛd eva prapanno yas\
+> tavāsmīti ca yācate\
+> abhayaṁ sarvadā tasmai\
 > dadāmy etad vrataṁ mama
 
 *sakṛt*—solo una vez; *eva*—ciertamente; *prapannaḥ*—entregado; *yaḥ*—cualquiera que; *tava*—Tuyo; *asmi*—soy; *iti*—así; *ca*—también; *yācate*—ruega; *abhayam*—valentía; *sarvadā*—siempre; *tasmai*—a él; *dadāmi*—doy; *etat*—este; *vratam*—voto; *mama*—Mi.

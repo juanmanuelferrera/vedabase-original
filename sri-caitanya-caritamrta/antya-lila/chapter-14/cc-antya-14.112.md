@@ -1,9 +1,9 @@
 ### CC Antya 14.112
 
-> এত বলি’ মহাপ্রভু করেন ক্রন্দন ।
+> এত বলি’ মহাপ্রভু করেন ক্রন্দন ।\
 > তাঁর দশা দেখি’ বৈষ্ণব করেন রোদন ॥১১২॥
 
-> eta bali' mahāprabhu karena krandana
+> eta bali' mahāprabhu karena krandana\
 > tāṅra daśā dekhi' vaiṣṇava karena rodana
 
 *eta bali'*—saying this; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *karena krandana*—began to cry; *tāṅra daśā*—His state; *dekhi'*—seeing; *vaiṣṇava*—the Vaiṣṇavas; *karena rodana*—began to cry.

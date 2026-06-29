@@ -1,9 +1,9 @@
 ### CC Madhya 3.92
 
-> নানা যত্ন-দৈন্যে প্রভুরে করাইল ভোজন ।
+> নানা যত্ন-দৈন্যে প্রভুরে করাইল ভোজন ।\
 > আচার্যের ইচ্ছা প্রভু করিল পূরণ ॥৯২॥
 
-> nānā yatna-dainye prabhure karāila bhojana
+> nānā yatna-dainye prabhure karāila bhojana\
 > ācāryera icchā prabhu karila pūraṇa
 
 *nānā yatna-dainye*—in this way, by various efforts and by humility; *prabhure*—Lord Caitanya Mahāprabhu; *karāila*—caused; *bhojana*—eating; *ācāryera icchā*—the wish of Advaita Ācārya; *prabhu*—Lord Caitanya Mahāprabhu; *karila*—did; *pūraṇa*—fulfillment.

@@ -1,9 +1,9 @@
 ### CC Antya 9.126
 
-> তাঁহা লাগি’ দ্রব্য ছাড়ি, — ইহা মাৎ জানে ।
+> তাঁহা লাগি’ দ্রব্য ছাড়ি, — ইহা মাৎ জানে ।\
 > ‘সহজেই মোর প্রীতি হয় তাহা-সনে’ ।।” ॥ ১২৬ ॥
 
-> tāṅhā lāgi' dravya chāḍi'—ihā māt jāne
+> tāṅhā lāgi' dravya chāḍi'—ihā māt jāne\
 > 'sahajei mora prīti haya tāhā-sane' "
 
 *tāṅhā lāgi'*—for them; *dravya chāḍi'*—I remit the debt; *ihā*—this; *māt jāne*—He does not know; *sahajei*—naturally; *mora prīti*—my affection; *haya*—is; *tāhā-sane*—with them all.

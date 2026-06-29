@@ -1,18 +1,18 @@
 ### SB 9.6.39-40
 
-> यमुनान्तर्जले मग्नस्तप्यमानः परं तपः
-> निर्वृतिं मीनराजस्य दृष्ट्वा मैथुनधर्मिणः ॥३९॥
-> जातस्पृहो नृपं विप्रः कन्यामेकामयाचत
+> यमुनान्तर्जले मग्नस्तप्यमानः परं तपः\
+> निर्वृतिं मीनराजस्य दृष्ट्वा मैथुनधर्मिणः ॥३९॥\
+> जातस्पृहो नृपं विप्रः कन्यामेकामयाचत\
 > सोऽप्याह गृह्यतां ब्रह्मन्कामं कन्या स्वयंवरे ॥४०॥
 
-> yamunāntar-jale magnas
-> tapyamānaḥ paraṁ tapaḥ
-> nirvṛtiṁ mīna-rājasya
+> yamunāntar-jale magnas\
+> tapyamānaḥ paraṁ tapaḥ\
+> nirvṛtiṁ mīna-rājasya\
 > dṛṣṭvā maithuna-dharmiṇaḥ
 
-> jāta-spṛho nṛpaṁ vipraḥ
-> kanyām ekām ayācata
-> so 'py āha gṛhyatāṁ brahman
+> jāta-spṛho nṛpaṁ vipraḥ\
+> kanyām ekām ayācata\
+> so 'py āha gṛhyatāṁ brahman\
 > kāmaṁ kanyā svayaṁvare
 
 *yamunā-antaḥ-jale*—en el fondo de las aguas del Yamunā; *magnaḥ*—completamente sumergido; *tapyamānaḥ*—realizar austeridades; *param*—extraordinaria; *tapaḥ*—austeridad; *nirvṛtim*—placer; *mīna-rājasya*—de un gran pez; *dṛṣṭvā*—al ver; *maithuna-dharmiṇaḥ*—ocupado en vida sexual; *jāta-spṛhaḥ*—sintió deseos sexuales; *nṛpam*—al rey (a Māndhātā); *vipraḥ*—el *brāhmaṇa* (Saubhari Ṛṣi); *kanyām ekām*—una hija; *ayācata*—pidió; *saḥ*—él, el rey; *api*—también; *āha*—dijo; *gṛhyatām*—puedes tomar; *brahman*—¡oh, *brāhmaṇa*!; *kāmam*—según ella desee; *kanyā*—hija; *svayaṁvare*—una selección personal.

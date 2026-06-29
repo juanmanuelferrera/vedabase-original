@@ -1,11 +1,11 @@
 ### SB 9.13.25
 
-> वस्वनन्तोऽथ तत्पुत्रो युयुधो यत्सुभाषणः
+> वस्वनन्तोऽथ तत्पुत्रो युयुधो यत्सुभाषणः\
 > श्रुतस्ततो जयस्तस्माद्विजयोऽस्मादृतः सुतः ॥२५॥
 
-> vasvananto 'tha tat-putro
-> yuyudho yat subhāṣaṇaḥ
-> śrutas tato jayas tasmād
+> vasvananto 'tha tat-putro\
+> yuyudho yat subhāṣaṇaḥ\
+> śrutas tato jayas tasmād\
 > vijayo 'smād ṛtaḥ sutaḥ
 
 *vasvanantaḥ*—Vasvananta; *atha*—thereafter (the son of Upagupta); *tat-putraḥ*—his son; *yuyudhaḥ*—by the name Yuyudha; *yat*—from Yuyudha; *subhāṣaṇaḥ*—a son named Subhāṣaṇa; *śrutaḥ tataḥ*—and the son of Subhāṣaṇa was Śruta; *jayaḥ tasmāt*—the son of Śruta was Jaya; *vijayaḥ*—a son named Vijaya; *asmāt*—from Jaya; *ṛtaḥ*—Ṛta; *sutaḥ*—a son.

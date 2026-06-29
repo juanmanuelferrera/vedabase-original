@@ -1,9 +1,9 @@
 ### CC Antya 4.73
 
-> সর্বজ্ঞ মহাপ্রভু নিষেধিলা মোরে  ।
+> সর্বজ্ঞ মহাপ্রভু নিষেধিলা মোরে  ।\
 > প্রভুর চরণ ধরি’ কহেন তাঁহারে ॥৭৩॥
 
-> sarvajña mahāprabhu niṣedhilā more
+> sarvajña mahāprabhu niṣedhilā more\
 > prabhura caraṇa dhari' kahena tāṅhāre
 
 *sarva-jña*—que lo sabe todo; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *niṣedhilā*—ha prohibido; *more*—a mí; *prabhura*—de Śrī Caitanya Mahāprabhu; *caraṇa*—los pies; *dhari'*—tocando; *kahena tāṅhāre*—comenzó a hablarle.

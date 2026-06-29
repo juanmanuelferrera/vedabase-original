@@ -1,9 +1,9 @@
 ### CC Madhya 15.121
 
-> এক দিন ম্লেচ্ছ-রাজার উচ্চ-টুঙ্গিতে  ।
+> এক দিন ম্লেচ্ছ-রাজার উচ্চ-টুঙ্গিতে  ।\
 > চিকিৎসার বাত়্ কহে তাঁহার অগ্রেতে ॥১২১॥
 
-> eka dina mleccha-rājāra ucca-ṭuṅgite
+> eka dina mleccha-rājāra ucca-ṭuṅgite\
 > cikitsāra vāt kahe tāṅhāra agrete
 
 *ekadina*—one day; *mleccha-rājāra*—of the Mohammedan King; *ucca-ṭuṅgite*—on a high platform; *cikitsāra vāt*—talk of medical treatment; *kahe*—was speaking; *tāṅhāra agrete*—before him.

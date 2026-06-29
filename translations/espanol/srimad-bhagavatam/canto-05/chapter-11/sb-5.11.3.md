@@ -1,11 +1,11 @@
 ### SB 5.11.3
 
-> न तस्य तत्त्वग्रहणाय साक्षाद्वरीयसीरपि वाचः समासन
+> न तस्य तत्त्वग्रहणाय साक्षाद्वरीयसीरपि वाचः समासन\
 > स्वप्ने निरुक्त्या गृहमेधिसौख्यं न यस्य हेयानुमितं स्वयं स्यात ॥३॥
 
-> na tasya tattva-grahaṇāya sākṣād
-> varīyasīr api vācaḥ samāsan
-> svapne niruktyā gṛhamedhi-saukhyaṁ
+> na tasya tattva-grahaṇāya sākṣād\
+> varīyasīr api vācaḥ samāsan\
+> svapne niruktyā gṛhamedhi-saukhyaṁ\
 > na yasya heyānumitaṁ svayaṁ syāt
 
 *na*—no; *tasya*—de él (un estudiante dedicado a los *Vedas*); *tattva-grahaṇāya*—para aceptar el verdadero sentido del conocimiento védico; *sākṣāt*—directamente; *varīyasīḥ*—muy excelsos; *api*—aunque; *vācaḥ*—palabras de los *Vedas*; *samāsan*—resultaron suficientemente; *svapne*—en un sueño; *niruktyā*—por ejemplo; *gṛha-medhi-saukhyam*—la felicidad en este mundo material; *na*—no; *yasya*—de aquel que; *heya-anumitam*—que se concluye que es inferior; *svayam*—de modo natural; *syāt*—resulta.

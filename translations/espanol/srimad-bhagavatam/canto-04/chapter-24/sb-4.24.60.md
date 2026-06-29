@@ -1,11 +1,11 @@
 ### SB 4.24.60
 
-> यत्रेदं व्यज्यते विश्वं विश्वस्मिन्नवभाति यत् ।
+> यत्रेदं व्यज्यते विश्वं विश्वस्मिन्नवभाति यत् ।\
 > तत्त्वं ब्रह्म परं ज्योतिराकाशमिव विस्तृतम् ॥६०॥
 
-> yatredaṁ vyajyate viśvaṁ
-> viśvasminn avabhāti yat
-> tat tvaṁ brahma paraṁ jyotir
+> yatredaṁ vyajyate viśvaṁ\
+> viśvasminn avabhāti yat\
+> tat tvaṁ brahma paraṁ jyotir\
 > ākāśam iva vistṛtam
 
 *yatra*—donde; *idam*—ese; *vyajyate*—manifestado; *viśvam*—el universo; *viśvasmin*—en la manifestación cósmica; *avabhāti*—se manifiesta; *yat*—ese; *tat*—ese; *tvam*—Tú; *brahma*—el Brahman impersonal; *param*—trascendental; *jyotiḥ*—refulgencia; *ākāśam*—cielo; *iva*—como; *vistṛtam*—difundido.

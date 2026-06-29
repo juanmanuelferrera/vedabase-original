@@ -1,11 +1,11 @@
 ### SB 4.31.12
 
-> किं वा योगेन साङ्ख्येन न्यासस्वाध्याययोरपि ।
+> किं वा योगेन साङ्ख्येन न्यासस्वाध्याययोरपि ।\
 > किं वा श्रेयोभिरन्यैश्च न यत्रात्मप्रदो हरिः ॥१२॥
 
-> kiṁ vā yogena sāṅkhyena
-> nyāsa-svādhyāyayor api
-> kiṁ vā śreyobhir anyaiś ca
+> kiṁ vā yogena sāṅkhyena\
+> nyāsa-svādhyāyayor api\
+> kiṁ vā śreyobhir anyaiś ca\
 > na yatrātma-prado hariḥ
 
 *kim*—de qué sirve; *vā*—o; *yogena*—con la práctica de *yoga* místico; *sāṅkhyena*—con el estudio de la filosofía *sāṅkhya*; *nyāsa*—entrando en la orden de *sannyāsa*; *svādhyāyayoḥ*—y con el estudio de las Escrituras védicas; *api*—incluso; *kim*—de qué sirve; *vā*—o; *śreyobhiḥ*—con actividades auspiciosas; *anyaiḥ*—otras; *ca*—y; *na*—nunca; *yatra*—donde; *ātma-pradaḥ*—satisfacción plena del ser; *hariḥ*—la Suprema Personalidad de Dios.

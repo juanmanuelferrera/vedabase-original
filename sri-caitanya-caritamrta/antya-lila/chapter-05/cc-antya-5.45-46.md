@@ -1,14 +1,14 @@
 ### CC Antya 5.45-46
 
-> ব্রজবধূ-সঙ্গে কৃষ্ণের রাসাদি-বিলাস ।
-> যেই জন কহে, শুনে করিয়া বিশ্বাস ॥৪৫॥
-> হৃদ্রোগ-কাম তাঁর তৎকালে হয় ক্ষয় ।
+> ব্রজবধূ-সঙ্গে কৃষ্ণের রাসাদি-বিলাস ।\
+> যেই জন কহে, শুনে করিয়া বিশ্বাস ॥৪৫॥\
+> হৃদ্রোগ-কাম তাঁর তৎকালে হয় ক্ষয় ।\
 > তিনগুণ-ক্ষোভ নহে, ‘মহাধীর’ হয় ॥৪৬॥
 
-> vraja-vadhū-saṅge kṛṣṇera rāsādi-vilāsa
+> vraja-vadhū-saṅge kṛṣṇera rāsādi-vilāsa\
 > yei jana kahe, śune kariyā viśvāsa
 
-> hṛd-roga-kāma tāṅra tat-kāle haya kṣaya
+> hṛd-roga-kāma tāṅra tat-kāle haya kṣaya\
 > tina-guṇa-kṣobha nahe, 'mahā-dhīra' haya
 
 *vraja-vadhū-saṅge*—in the association of the damsels of Vrajabhūmi; *kṛṣṇera*—of Lord Kṛṣṇa; *rāsa-ādi-vilāsa*—pastimes like the *rāsa* dance; *yei*—which; *jana*—person; *kahe*—describes; *śune*—hears; *kariyā viśvāsa*—with great faith; *hṛt-roga*—the disease of the heart; *kāma*—lust; *tāṅra*—of him; *tat-kāle*—at that time; *haya kṣaya*—becomes nullified; *tina-guṇa*—of the three modes of material nature; *kṣobha*—agitation; *nahe*—is not; *mahā-dhīra*—very sober; *haya*—becomes.

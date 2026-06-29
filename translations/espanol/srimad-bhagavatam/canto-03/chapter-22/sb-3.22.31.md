@@ -1,11 +1,11 @@
 ### SB 3.22.31
 
-> कुशकाशमयं बर्हिरास्तीर्य भगवान्मनुः ।
+> कुशकाशमयं बर्हिरास्तीर्य भगवान्मनुः ।\
 > अयजद्यज्ञपुरुषं लब्धा स्थानं यतो भुवम् ॥३१॥
 
-> kuśa-kāśamayaṁ barhir
-> āstīrya bhagavān manuḥ
-> ayajad yajña-puruṣaṁ
+> kuśa-kāśamayaṁ barhir\
+> āstīrya bhagavān manuḥ\
+> ayajad yajña-puruṣaṁ\
 > labdhā sthānaṁ yato bhuvam
 
 *kuśa*—de hierba *kuśa*; *kāśa*—y de hierba *kāśa*; *mayam*—hecho; *barhiḥ*—un asiento; *āstīrya*—habiendo extendido; *bhagavān*—el muy afortunado; *manuḥ*—Svāyambhuva Manu; *ayajat*—adoró; *yajña-puruṣam*—al Señor Viṣṇu; *labdhā*—había conseguido; *sthānam*—la morada; *yataḥ*—de quien; *bhuvam*—la Tierra.

@@ -1,11 +1,11 @@
 ### SB 2.8.17
 
-> युगानि युगमानं च धर्मो यश्च युगे युगे ।
+> युगानि युगमानं च धर्मो यश्च युगे युगे ।\
 > अवतारानुचरितं यदाश्चर्यतमं हरेः ॥१७॥
 
-> yugāni yuga-mānaṁ ca
-> dharmo yaś ca yuge yuge
-> avatārānucaritaṁ
+> yugāni yuga-mānaṁ ca\
+> dharmo yaś ca yuge yuge\
+> avatārānucaritaṁ\
 > yad āścaryatamaṁ hareḥ
 
 *yugāni*—las diferentes eras; *yuga-mānam*—la duración de cada era; *ca*—así como también; *dharmaḥ*—la ocupación obligatoria específica; *yaḥ ca*—y que; *yuge yuge*—en todos y cada uno de los *yugas* o eras particulares; *avatāra*—la encarnación; *anucaritam*—y las actividades de la encarnación; *yat*—que; *āścaryatamam*—las actividades más maravillosas; *hareḥ*—del Señor Supremo.

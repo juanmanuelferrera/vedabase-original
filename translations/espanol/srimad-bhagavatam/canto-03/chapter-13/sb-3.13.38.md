@@ -1,11 +1,11 @@
 ### SB 3.13.38
 
-> सोमस्तु रेतः सवनान्यवस्थितिः संस्थाविभेदास्तव देव धातवः ।
+> सोमस्तु रेतः सवनान्यवस्थितिः संस्थाविभेदास्तव देव धातवः ।\
 > सत्राणि सर्वाणि शरीरसन्धिस्त्वं सर्वयज्ञक्रतुरिष्टिबन्धनः ॥३८॥
 
-> somas tu retaḥ savanāny avasthitiḥ
-> saṁsthā-vibhedās tava deva dhātavaḥ
-> satrāṇi sarvāṇi śarīra-sandhis
+> somas tu retaḥ savanāny avasthitiḥ\
+> saṁsthā-vibhedās tava deva dhātavaḥ\
+> satrāṇi sarvāṇi śarīra-sandhis\
 > tvaṁ sarva-yajña-kratur iṣṭi-bandhanaḥ
 
 *somaḥ tu retaḥ*—Tu semen es el sacrificio llamado *soma*; *savanāni*—prácticas rituales de la mañana; *avasthitiḥ*—diferentes estados de crecimiento corporal; *saṁsthā-vibhedāḥ*—siete variedades de sacrificios; *tava*—Tus; *deva*—¡oh, Señor!; *dhātavaḥ*—elementos del cuerpo, como la piel y la carne; *satrāṇi*—sacrificios ejecutados en doce días; *sarvāṇi*—todos ellos; *śarīra*—las corporales; *sandhiḥ*—articulaciones; *tvam*—Tu Señoría; *sarva*—todos; *yajña*—sacrificios *asoma*; *kratuḥ*—sacrificios *soma*; *iṣṭi*—el deseo final; *bandhanaḥ*—apego.

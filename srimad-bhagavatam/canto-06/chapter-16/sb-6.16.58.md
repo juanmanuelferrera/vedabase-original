@@ -1,11 +1,11 @@
 ### SB 6.16.58
 
-> लब्ध्वेह मानुषीं योनिं ज्ञआनविज्ञआनसम्भवाम
+> लब्ध्वेह मानुषीं योनिं ज्ञआनविज्ञआनसम्भवाम\
 > आत्मानं यो न बुद्ध्येत न क्वचित्क्षेममाप्नुयात ॥५८॥
 
-> labdhveha mānuṣīṁ yoniṁ
-> jñāna-vijñāna-sambhavām
-> ātmānaṁ yo na buddhyeta
+> labdhveha mānuṣīṁ yoniṁ\
+> jñāna-vijñāna-sambhavām\
+> ātmānaṁ yo na buddhyeta\
 > na kvacit kṣemam āpnuyāt
 
 *labdhvā*—achieving; *iha*—in this material world (especially in this pious land of Bhārata-varṣa, India); *mānuṣīm*—the human; *yonim*—species; *jñāna*—of knowledge through Vedic scriptures; *vijñāna*—and practical application of that knowledge in life; *sambhavām*—wherein there is a possibility; *ātmānam*—one's real identity; *yaḥ*—anyone who; *na*—not; *buddhyeta*—understands; *na*—never; *kvacit*—at any time; *kṣemam*—success in life; *āpnuyāt*—can obtain.

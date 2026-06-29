@@ -1,32 +1,32 @@
 ### SB 7.14.20-23
 
-> अयने विषुवे कुर्याद्व्यतीपाते दिनक्षये
-> चन्द्रादित्योपरागे च द्वादश्यां श्रवणेषु च ॥२०॥
-> तृतीयायां शुक्लपक्षे नवम्यामथ कार्तिके
-> चतसृष्वप्यष्टकासु हेमन्ते शिशिरे तथा ॥२१॥
-> माघे च सितसप्तम्यां मघाराकासमागमे
-> राकया चानुमत्या च मासर्क्षाणि युतान्यपि ॥२२॥
-> द्वादश्यामनुराधा स्याच्छ्रवणस्तिस्र उत्तराः
+> अयने विषुवे कुर्याद्व्यतीपाते दिनक्षये\
+> चन्द्रादित्योपरागे च द्वादश्यां श्रवणेषु च ॥२०॥\
+> तृतीयायां शुक्लपक्षे नवम्यामथ कार्तिके\
+> चतसृष्वप्यष्टकासु हेमन्ते शिशिरे तथा ॥२१॥\
+> माघे च सितसप्तम्यां मघाराकासमागमे\
+> राकया चानुमत्या च मासर्क्षाणि युतान्यपि ॥२२॥\
+> द्वादश्यामनुराधा स्याच्छ्रवणस्तिस्र उत्तराः\
 > तिसृष्वेकादशी वासु जन्मर्क्षश्रोणयोगयुक ॥२३॥
 
-> ayane viṣuve kuryād
-> vyatīpāte dina-kṣaye
-> candrādityoparāge ca
+> ayane viṣuve kuryād\
+> vyatīpāte dina-kṣaye\
+> candrādityoparāge ca\
 > dvādaśyāṁ śravaṇeṣu ca
 
-> tṛtīyāyāṁ śukla-pakṣe
-> navamyām atha kārtike
-> catasṛṣv apy aṣṭakāsu
+> tṛtīyāyāṁ śukla-pakṣe\
+> navamyām atha kārtike\
+> catasṛṣv apy aṣṭakāsu\
 > hemante śiśire tathā
 
-> māghe ca sita-saptamyāṁ
-> maghā-rākā-samāgame
-> rākayā cānumatyā ca
+> māghe ca sita-saptamyāṁ\
+> maghā-rākā-samāgame\
+> rākayā cānumatyā ca\
 > māsarkṣāṇi yutāny api
 
-> dvādaśyām anurādhā syāc
-> chravaṇas tisra uttarāḥ
-> tisṛṣv ekādaśī vāsu
+> dvādaśyām anurādhā syāc\
+> chravaṇas tisra uttarāḥ\
+> tisṛṣv ekādaśī vāsu\
 > janmarkṣa-śroṇa-yoga-yuk
 
 *ayane*—en el día de *makara-saṅkrānti*, cuando el Sol comienza su curso por el norte, y en el día de *karkaṭa-saṅkrānti*, cuando el Sol comienza su curso por el sur; *viṣuve*—en el *meṣa-saṅkrānti* y en el *tulā-saṅkrānti*; *kuryāt*—se debe celebrar; *vyatīpāte*—en el *yoga* denominado *vyatīpāta*; *dina-kṣaye*—en el día en que confluyen tres *tithis*; *candra-āditya-uparāge*—en el momento de un eclipse lunar o solar; *ca*—y también; *dvādaśyām śravaṇeṣu*—en el duodécimo día lunar y en el *nakṣatra* llamado Śravaṇa; *ca*—y; *tṛtīyāyām*—en el día de *akṣaya-tṛtīyā*; *śukla-pakṣe*—en la quincena de Luna creciente del mes; *navamyām*—en el noveno día lunar; *atha*—también; *kārtike*—en el mes de *kārtika* (octubre-noviembre); *catasṛṣu*—en el cuarto; *api*—también; *aṣṭakāsu*—en los *aṣṭakās*; *hemante*—antes de la estación del invierno; *śiśire*—en el invierno; *tathā*—y también; *māghe*—en el mes de *māgha* (enero-febrero); *ca*—y; *sita-saptamyām*—en el séptimo día lunar de la quincena de Luna creciente; *maghā-rākā-samāgame*—en la conjunción de *maghā-nakṣatra* y el día de Luna llena; *rākayā*—con un día de plenilunio completo; *ca*—y; *anumatyā*—con un día de Luna llena que no llega a plenilunio completo; *ca*—y; *māsa-ṛkṣāṇi*—los *nakṣatras* que dan nombre a los meses; *yutāni*—en conjunción; *api*—también; *dvādaśyām*—en el duodécimo día lunar; *anurādhā*—el *nakṣatra* llamado Anurādhā; *syāt*—puede ocurrir; *śravaṇaḥ*—el *nakṣatra* llamado Śravaṇa; *tisraḥ*—los tres (*nakṣatras*); *uttarāḥ*—los *nakṣatras* llamados *uttarā* (*uttara-phalgunī, uttarāṣāḍhā* y *uttara-bhādrapadā*); *tisṛṣu*—en tres; *ekādaśī*—el undécimo día lunar; *vā*—o; *āsu*—en esos; *janma-ṛkṣa*—del propio *janma-nakṣatra*, o estrella de nacimiento; *śroṇa*—de *śravana-nakṣatra*; *yoga*—por una conjunción; *yuk*—al haber.

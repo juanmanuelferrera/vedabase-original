@@ -1,11 +1,11 @@
 ### SB 7.4.43
 
-> तस्मिन्महाभागवते महाभागे महात्मनि
+> तस्मिन्महाभागवते महाभागे महात्मनि\
 > हिरण्यकशिपू राजन्नकरोदघमात्मजे ॥४३॥
 
-> tasmin mahā-bhāgavate
-> mahā-bhāge mahātmani
-> hiraṇyakaśipū rājann
+> tasmin mahā-bhāgavate\
+> mahā-bhāge mahātmani\
+> hiraṇyakaśipū rājann\
 > akarod agham ātmaje
 
 *tasmin*—unto him; *mahā-bhāgavate*—an exalted devotee of the Lord; *mahā-bhāge*—most fortunate; *mahā-ātmani*—whose mind was very broad; *hiraṇyakaśipuḥ*—the demon Hiraṇyakaśipu; *rājan*—O King; *akarot*—performed; *agham*—very great sin; *ātma-je*—to his own son.

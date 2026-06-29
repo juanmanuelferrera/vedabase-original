@@ -1,11 +1,11 @@
 ### SB 4.1.22
 
-> अप्सरोमुनिगन्धर्व सिद्धविद्याधरोरगैः ।
+> अप्सरोमुनिगन्धर्व सिद्धविद्याधरोरगैः ।\
 > वितायमानयशसस्तदाश्रमपदं ययुः ॥२२॥
 
-> apsaro-muni-gandharva-
-> siddha-vidyādharoragaiḥ
-> vitāyamāna-yaśasas
+> apsaro-muni-gandharva-\
+> siddha-vidyādharoragaiḥ\
+> vitāyamāna-yaśasas\
 > tad-āśrama-padaṁ yayuḥ
 
 *apsaraḥ*—mujeres de sociedad celestiales; *muni*—grandes sabios; *gandharva*—habitantes del planeta Gandharva; *siddha*—de Siddhaloka; *vidyādhara*—otros semidioses; *uragaiḥ*—los habitantes de Nāgaloka; *vitāyamāna*—difundida; *yaśasaḥ*—fama, reputación; *tat*—su; *āśrama-padam*—ermita; *yayuḥ*—fueron.

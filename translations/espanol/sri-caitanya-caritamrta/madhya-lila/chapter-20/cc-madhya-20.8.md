@@ -1,9 +1,9 @@
 ### CC Madhya 20.8
 
-> পাঁচ সহস্র মুদ্রা তুমি কর অঙ্গীকার ।
+> পাঁচ সহস্র মুদ্রা তুমি কর অঙ্গীকার ।\
 > পুণ্য, অর্থ, — দুই লাভ হইবে তোমার ।।” ॥ ৮ ॥
 
-> pāṅca sahasra mudrā tumi kara aṅgīkāra
+> pāṅca sahasra mudrā tumi kara aṅgīkāra\
 > puṇya, artha,--dui lābha ha-ibe tomāra"
 
 *pāṅca sahasra*—cinco mil; *mudrā*—monedas de oro; *tumi*—tú; *kara aṅgīkāra*—por favor acepta; *puṇya*—actividad piadosa; *artha*—ganancia material; *dui lābha*—dos clases de logro; *ha-ibe*—serán; *tomāra*—tuyos.

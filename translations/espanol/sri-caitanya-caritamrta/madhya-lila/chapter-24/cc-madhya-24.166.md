@@ -1,13 +1,13 @@
 ### CC Madhya 24.166
 
-> উদরমুপাসতে য ঋষিবর্ত্মসু কূর্পদৃশঃ
-> পরিসরপদ্ধতিং হৃদয়মারুণয়ো দহরম্ ।
-> তত উদ্গাদনন্ত তব ধাম শিরঃ পরমং
+> উদরমুপাসতে য ঋষিবর্ত্মসু কূর্পদৃশঃ\
+> পরিসরপদ্ধতিং হৃদয়মারুণয়ো দহরম্ ।\
+> তত উদ্গাদনন্ত তব ধাম শিরঃ পরমং\
 > পুনরিহ যৎ সমেত্য ন পতন্তি কৃতান্তমুখে ॥১৬৬॥
 
-> udaram upāsate ya ṛṣi-vartmasu kūrpa-dṛśaḥ
-> parisara-paddhatiṁ hṛdayam āruṇayo daharam
-> tata udagād ananta tava dhāma śiraḥ paramaṁ
+> udaram upāsate ya ṛṣi-vartmasu kūrpa-dṛśaḥ\
+> parisara-paddhatiṁ hṛdayam āruṇayo daharam\
+> tata udagād ananta tava dhāma śiraḥ paramaṁ\
 > punar iha yat sametya na patanti kṛtānta-mukhe
 
 *udaram*—el abdomen; *upāsate*—adoran; *ye*—aquellos que; *ṛṣi-vartmasu*—en el sendero marcado por las grandes personas santas; *kūrpa-dṛśaḥ*—cuya visión se sitúa burdamente en el concepto corporal de la vida; *parisara-paddhatim*—de donde proviene el sistema de las arterias; *hṛdayam*—el corazón; *āruṇayaḥ*—personas santas encabezadas por Āruṇa Ṛṣi; *daharam*—el cielo dentro del corazón, la concepción sutil de la Superalma dentro del corazón; *tataḥ*—de eso; *udagāt*—ascendió; *ananta*—¡oh, ilimitado!; *tava*—Tu; *dhāma*—morada; *śiraḥ*—la coronilla; *paramam*—supremo; *punaḥ*—de nuevo; *iha*—en este mundo material; *yat*—la cual; *sametya*—habiendo alcanzado; *na*—no; *patanti*—caen; *kṛta-anta-mukhe*—en la repetición del nacimiento y la muerte.

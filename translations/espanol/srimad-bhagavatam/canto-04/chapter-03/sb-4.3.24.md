@@ -1,11 +1,11 @@
 ### SB 4.3.24
 
-> तत्ते निरीक्ष्यो न पितापि देहकृद्दक्षो मम द्विट्तदनुव्रताश्च ये ।
+> तत्ते निरीक्ष्यो न पितापि देहकृद्दक्षो मम द्विट्तदनुव्रताश्च ये ।\
 > यो विश्वसृग्यज्ञगतं वरोरु मामनागसं दुर्वचसाकरोत्तिरः ॥२४॥
 
-> tat te nirīkṣyo na pitāpi deha-kṛd
-> dakṣo mama dviṭ tad-anuvratāś ca ye
-> yo viśvasṛg-yajña-gataṁ varoru mām
+> tat te nirīkṣyo na pitāpi deha-kṛd\
+> dakṣo mama dviṭ tad-anuvratāś ca ye\
+> yo viśvasṛg-yajña-gataṁ varoru mām\
 > anāgasaṁ durvacasākarot tiraḥ
 
 *tat*—por lo tanto; *te*—tu; *nirīkṣyaḥ*—para ser visto; *na*—no; *pitā*—tu padre; *api*—aunque; *deha-kṛt*—el que te ha dado el cuerpo; *dakṣaḥ*—Dakṣa; *mama*—mi; *dviṭ*—envidioso; *tat-anuvratāḥ*—sus (de Dakṣa) seguidores; *ca*—también; *ye*—quien; *yaḥ*—quien (Dakṣa); *viśva-sṛk*—de los *viśvasṛks*; *yajña-gatam*—estar presente en el sacrificio; *vara-ūru*—¡oh, Satī!; *mām*—a mí; *anāgasam*—siendo inocente; *durvacasā*—con palabras crueles; *akarot tiraḥ*—ha insultado.

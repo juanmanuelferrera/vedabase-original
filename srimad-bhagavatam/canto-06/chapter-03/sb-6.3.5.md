@@ -1,11 +1,11 @@
 ### SB 6.3.5
 
-> यदि स्युर्बहवो लोके शास्तारो दण्डधारिणः
+> यदि स्युर्बहवो लोके शास्तारो दण्डधारिणः\
 > कस्य स्यातां न वा कस्य मृत्युश्चामृतमेव वा ॥५॥
 
-> yadi syur bahavo loke
-> śāstāro daṇḍa-dhāriṇaḥ
-> kasya syātāṁ na vā kasya
+> yadi syur bahavo loke\
+> śāstāro daṇḍa-dhāriṇaḥ\
+> kasya syātāṁ na vā kasya\
 > mṛtyuś cāmṛtam eva vā
 
 *yadi*—if; *syuḥ*—there are; *bahavaḥ*—many; *loke*—in this world; *śāstāraḥ*—rulers or controllers; *daṇḍa-dhāriṇaḥ*—who punish the sinful men; *kasya*—of whom; *syātām*—there may be; *na*—not; *vā*—or; *kasya*—of whom; *mṛtyuḥ*—distress or unhappiness; *ca*—and; *amṛtam*—happiness; *eva*—certainly; *vā*—or.

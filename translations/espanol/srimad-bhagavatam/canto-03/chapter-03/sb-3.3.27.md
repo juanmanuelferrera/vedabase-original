@@ -1,11 +1,11 @@
 ### SB 3.3.27
 
-> हिरण्यं रजतं शय्यां वासांस्यजिनकम्बलान् ।
+> हिरण्यं रजतं शय्यां वासांस्यजिनकम्बलान् ।\
 > यानं रथानिभान्कन्या धरां वृत्तिकरीमपि ॥२७॥
 
-> hiraṇyaṁ rajataṁ śayyāṁ
-> vāsāṁsy ajina-kambalān
-> yānaṁ rathān ibhān kanyā
+> hiraṇyaṁ rajataṁ śayyāṁ\
+> vāsāṁsy ajina-kambalān\
+> yānaṁ rathān ibhān kanyā\
 > dharāṁ vṛtti-karīm api
 
 *hiraṇyam*—oro; *rajatam*—monedas de oro; *śayyām*—ropa de cama; *vāsāṁsi*—vestidos; *ajina*—piel animal para asiento; *kambalān*—mantas; *yānam*—caballos; *rathān*—cuadrigas; *ibhān*—elefantes; *kanyāḥ*—muchachas; *dharām*—tierra; *vṛtti-karīm*—para proveer medios de sustento; *api*—también.

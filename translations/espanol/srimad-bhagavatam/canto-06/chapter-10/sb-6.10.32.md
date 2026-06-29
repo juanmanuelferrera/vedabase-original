@@ -1,11 +1,11 @@
 ### SB 6.10.32
 
-> जातस्य मृत्युर्ध्रुव एव सर्वतः प्रतिक्रिया यस्य न चेह कॢप्ता
+> जातस्य मृत्युर्ध्रुव एव सर्वतः प्रतिक्रिया यस्य न चेह कॢप्ता\
 > लोको यशश्चाथ ततो यदि ह्यमुं को नाम मृत्युं न वृणीत युक्तम ॥३२॥
 
-> jātasya mṛtyur dhruva eva sarvataḥ
-> pratikriyā yasya na ceha kḷptā
-> loko yaśaś cātha tato yadi hy amuṁ
+> jātasya mṛtyur dhruva eva sarvataḥ\
+> pratikriyā yasya na ceha kḷptā\
+> loko yaśaś cātha tato yadi hy amuṁ\
 > ko nāma mṛtyuṁ na vṛṇīta yuktam
 
 *jātasya*—de aquel que ha nacido (todos los seres vivos); *mṛtyuḥ*—muerte; *dhruvaḥ*—inevitable; *eva*—en verdad; *sarvataḥ*—en todo el universo; *pratikriyā*—neutralización; *yasya*—de la cual; *na*—no; *ca*—también; *iha*—en el mundo material; *ḳlptā*—dispuesta; *lokaḥ*—elevación a los planetas superiores; *yaśaḥ*—prestigio y gloria; *ca*—y; *atha*—entonces; *tataḥ*—de eso; *yadi*—si; *hi*—en verdad; *amum*—eso; *kaḥ*—quién; *nāma*—en verdad; *mṛtyum*—muerte; *na*—no; *vṛṇīta*—aceptaría; *yuktam*—digna.

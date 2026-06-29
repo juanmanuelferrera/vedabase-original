@@ -1,11 +1,11 @@
 ### SB 1.13.60
 
-> इत्युक्त्वाथारुहत्स्वर्गं नारदः सहतुम्बुरुः ।
+> इत्युक्त्वाथारुहत्स्वर्गं नारदः सहतुम्बुरुः ।\
 > युधिष्ठिरो वचस्तस्य हृदि कृत्वाजहाच्छुचः ॥६०॥
 
-> ity uktvāthāruhat svargaṁ
-> nāradaḥ saha-tumburuḥ
-> yudhiṣṭhiro vacas tasya
+> ity uktvāthāruhat svargaṁ\
+> nāradaḥ saha-tumburuḥ\
+> yudhiṣṭhiro vacas tasya\
 > hṛdi kṛtvājahāc chucaḥ
 
 *iti*—thus; *uktvā*—having addressed; *atha*—thereafter; *āruhat*—ascended; *svargam*—into outer space; *nāradaḥ*—the great sage Nārada; *saha*—along with; *tumburuḥ*—his stringed instrument; *yudhiṣṭhiraḥ*—Mahārāja Yudhiṣṭhira; *vacaḥ*—instructions; *tasya*—of his; *hṛdi kṛtvā*—keeping in the heart; *ajahāt*—gave up; *śucaḥ*—all lamentations.

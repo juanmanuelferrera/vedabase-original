@@ -1,11 +1,11 @@
 ### SB 2.9.28
 
-> क्रीडस्यमोघसङ्कल्प ऊर्णनाभिर्यथोर्णुते ।
+> क्रीडस्यमोघसङ्कल्प ऊर्णनाभिर्यथोर्णुते ।\
 > तथा तद्विषयां धेहि मनीषां मयि माधव ॥२८॥
 
-> krīḍasy amogha-saṅkalpa
-> ūrṇanābhir yathorṇute
-> tathā tad-viṣayāṁ dhehi
+> krīḍasy amogha-saṅkalpa\
+> ūrṇanābhir yathorṇute\
+> tathā tad-viṣayāṁ dhehi\
 > manīṣāṁ mayi mādhava
 
 *krīḍasi*—as You play; *amogha*—infallible; *saṅkalpa*—determination; *ūrṇanābhiḥ*—the spider; *yathā*—as much as; *ūrṇute*—covers; *tathā*—so and so; *tat-viṣayām*—in the subject of all those; *dhehi*—do let me know; *manīṣām*—philosophically; *mayi*—unto me; *mādhava*—O master of all energies.

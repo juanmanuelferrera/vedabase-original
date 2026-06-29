@@ -1,9 +1,9 @@
 ### CC Antya 2.13
 
-> তা-সবা তারিতে প্রভু সেই সব দেশে  ।
+> তা-সবা তারিতে প্রভু সেই সব দেশে  ।\
 > যোগ্যভক্ত জীবদেহে করেন ‘আবেশে’ ॥১৩॥
 
-> tā-sabā tārite prabhu sei saba deśe
+> tā-sabā tārite prabhu sei saba deśe\
 > yogya-bhakta jīva-dehe karena 'āveśe'
 
 *tā-sabā*—all of them; *tārite*—to deliver; *prabhu*—Śrī Caitanya Mahāprabhu; *sei*—those; *saba*—all; *deśe*—in countries; *yogya-bhakta*—a suitable devotee; *jīva-dehe*—in the body of such a living entity; *karena*—does; *āveśe*—entrance.

@@ -1,11 +1,11 @@
 ### SB 3.26.51
 
-> ततस्तेनानुविद्धेभ्यो युक्तेभ्योऽण्डमचेतनम् ।
+> ततस्तेनानुविद्धेभ्यो युक्तेभ्योऽण्डमचेतनम् ।\
 > उत्थितं पुरुषो यस्मादुदतिष्ठदसौ विराट् ॥५१॥
 
-> tatas tenānuviddhebhyo
-> yuktebhyo 'ṇḍam acetanam
-> utthitaṁ puruṣo yasmād
+> tatas tenānuviddhebhyo\
+> yuktebhyo 'ṇḍam acetanam\
+> utthitaṁ puruṣo yasmād\
 > udatiṣṭhad asau virāṭ
 
 *tataḥ*—entonces; *tena*—por el Señor; *anuviddhebhyaḥ*—de estos siete principios, activados; *yuktebhyaḥ*—unidos; *aṇḍam*—un huevo; *acetanam*—sin inteligencia; *utthitam*—surgió; *puruṣaḥ*—Ser Cósmico; *yasmāt*—del cual; *udatiṣṭhat*—apareció; *asau*—ese; *virāṭ*—célebre.

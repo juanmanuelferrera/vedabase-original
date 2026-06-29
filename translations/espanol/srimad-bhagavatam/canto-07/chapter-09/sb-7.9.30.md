@@ -1,13 +1,13 @@
 ### SB 7.9.30
 
-> एकस्त्वमेव जगदेतममुष्य यत्त्वम
-> आद्यन्तयोः पृथगवस्यसि मध्यतश्च
-> सृष्ट्वा गुणव्यतिकरं निजमाययेदं
+> एकस्त्वमेव जगदेतममुष्य यत्त्वम\
+> आद्यन्तयोः पृथगवस्यसि मध्यतश्च\
+> सृष्ट्वा गुणव्यतिकरं निजमाययेदं\
 > नानेव तैरवसितस्तदनुप्रविष्टः ॥३०॥
 
-> ekas tvam eva jagad etam amuṣya yat tvam
-> ādy-antayoḥ pṛthag avasyasi madhyataś ca
-> sṛṣṭvā guṇa-vyatikaraṁ nija-māyayedaṁ
+> ekas tvam eva jagad etam amuṣya yat tvam\
+> ādy-antayoḥ pṛthag avasyasi madhyataś ca\
+> sṛṣṭvā guṇa-vyatikaraṁ nija-māyayedaṁ\
 > nāneva tair avasitas tad anupraviṣṭaḥ
 
 *ekaḥ*—uno; *tvam*—Tú; *eva*—solamente; *jagat*—la manifestación cósmica; *etam*—esta; *amuṣya*—de ese (el universo entero); *yat*—puesto que; *tvam*—Tú; *ādi*—en el principio; *antayoḥ*—al final; *pṛthak*—por separado; *avasyasi*—existes (como causa); *madhyataḥ ca*—también en el intermedio (el intervalo entre el principio y el fin); *sṛṣṭvā*—crear; *guṇa-vyatikaram*—la transformación de las tres modalidades de la naturaleza material; *nija-māyayā*—por Tu propia energía externa; *idam*—esta; *nānā iva*—como muchas diversidades; *taiḥ*—por ellas (las modalidades); *avasitaḥ*—experimentado; *tat*—eso; *anupraviṣṭaḥ*—entrar en.

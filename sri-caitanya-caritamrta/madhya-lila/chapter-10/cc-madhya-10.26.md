@@ -2,7 +2,7 @@
 
 > শুনি’ আনন্দিত হৈল সবাকার মন । সবে আসি’ সার্বভৌমে কৈল নিবেদন । প্রভুর সহিত আমা-সবার করাহ মিলন । তোমার প্রসাদে পাই প্রভুর চরণ ॥২৬॥
 
-> śuni' ānandita haila sabākāra mana
+> śuni' ānandita haila sabākāra mana\
 > sabe āsi' sārvabhaume kaila nivedana
 
 *śuni'*—hearing; *ānandita*—happy; *haila*—were; *sabākāra*—of everyone; *mana*—the minds; *sabe āsi'*—everyone coming; *sārvabhaume*—unto Sārvabhauma Bhaṭṭācārya; *kaila*—did; *nivedana*—submission.

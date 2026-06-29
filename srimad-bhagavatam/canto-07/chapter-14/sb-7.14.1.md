@@ -1,13 +1,13 @@
 ### SB 7.14.1
 
-> श्रीयुधिष्ठिर उवाच
-> गृहस्थ एतां पदवीं विधिना येन चाञ्जसा
+> श्रीयुधिष्ठिर उवाच\
+> गृहस्थ एतां पदवीं विधिना येन चाञ्जसा\
 > यायाद्देवऋषे ब्रूहि मादृशो गृहमूढधीः ॥१॥
 
-> śrī-yudhiṣṭhira uvāca
-> gṛhastha etāṁ padavīṁ
-> vidhinā yena cāñjasā
-> yāyād deva-ṛṣe brūhi
+> śrī-yudhiṣṭhira uvāca\
+> gṛhastha etāṁ padavīṁ\
+> vidhinā yena cāñjasā\
+> yāyād deva-ṛṣe brūhi\
 > mādṛśo gṛha-mūḍha-dhīḥ
 
 *śrī-yudhiṣṭhiraḥ uvāca*—Yudhiṣṭhira Mahārāja said; *gṛhasthaḥ*—a person living with his family; *etām*—this (the process mentioned in the previous chapter); *padavīm*—position of liberation; *vidhinā*—according to the instructions of Vedic scripture; *yena*—by which; *ca*—also; *añjasā*—easily; *yāyāt*—may get; *deva-ṛṣe*—O great sage among the demigods; *brūhi*—kindly explain; *mādṛśaḥ*—such as me; *gṛha-mūḍha-dhīḥ*—completely ignorant of the goal of life.

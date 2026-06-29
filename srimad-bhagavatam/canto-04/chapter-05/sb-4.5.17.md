@@ -1,11 +1,11 @@
 ### SB 4.5.17
 
-> भृगुं बबन्ध मणिमान्वीरभद्रः प्रजापतिम् ।
+> भृगुं बबन्ध मणिमान्वीरभद्रः प्रजापतिम् ।\
 > चण्डेशः पूषणं देवं भगं नन्दीश्वरोऽग्रहीत् ॥१७॥
 
-> bhṛguṁ babandha maṇimān
-> vīrabhadraḥ prajāpatim
-> caṇḍeśaḥ pūṣaṇaṁ devaṁ
+> bhṛguṁ babandha maṇimān\
+> vīrabhadraḥ prajāpatim\
+> caṇḍeśaḥ pūṣaṇaṁ devaṁ\
 > bhagaṁ nandīśvaro 'grahīt
 
 *bhṛgum*—Bhṛgu Muni; *babandha*—arrested; *maṇimān*—Maṇimān; *vīrabhadraḥ*—Vīrabhadra; *prajāpatim*—Prajāpati Dakṣa; *caṇḍeśaḥ*—Caṇḍeśa; *pūṣaṇam*—Pūṣā; *devam*—the demigod; *bhagam*—Bhaga; *nandīśvaraḥ*—Nandīśvara; *agrahīt*—arrested.

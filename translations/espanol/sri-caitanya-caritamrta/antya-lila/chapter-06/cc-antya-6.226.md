@@ -1,9 +1,9 @@
 ### CC Antya 6.226
 
-> বৈরাগীর কৃত্য — সদা নাম-সঙ্কীর্তন ।
+> বৈরাগীর কৃত্য — সদা নাম-সঙ্কীর্তন ।\
 > শাক-পত্র-ফল-মূলে উদর-ভরণ ॥২২৬॥
 
-> vairāgīra kṛtya--sadā nāma-saṅkīrtana
+> vairāgīra kṛtya--sadā nāma-saṅkīrtana\
 > śāka-patra-phala-mūle udara-bharaṇa
 
 *vairāgīra*—de una persona en la orden de renuncia; *kṛtya*—deber; *sadā*—siempre; *nāma-saṅkīrtana*—canto del santo nombre del Señor; *śāka*—verduras; *patra*—hojas; *phala*—frutas; *mūle*—con raíces; *udara-bharaṇa*—llenar el estómago.

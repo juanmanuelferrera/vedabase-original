@@ -1,9 +1,9 @@
 ### CC Antya 4.211
 
-> মহাপ্রভুর ভক্তগণে সবারে মিলিয়া ।
+> মহাপ্রভুর ভক্তগণে সবারে মিলিয়া ।\
 > সেইপথে চলি’ যায় সে-স্থান দেখিয়া ॥২১১॥
 
-> mahāprabhura bhakta-gaṇe sabāre miliyā
+> mahāprabhura bhakta-gaṇe sabāre miliyā\
 > sei-pathe cali' yāya se-sthāna dekhiyā
 
 *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *bhakta-gaṇe*—los devotos; *sabāre*—a todos; *miliyā*—encontrándose; *sei-pathe*—por ese sendero; *cali' yāya*—pasó por; *se*—esos; *sthāna*—lugares; *dekhiyā*—visitando.

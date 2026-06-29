@@ -1,11 +1,11 @@
 ### SB 7.15.2
 
-> ज्ञआननिष्ठाय देयानि कव्यान्यानन्त्यमिच्छता
+> ज्ञआननिष्ठाय देयानि कव्यान्यानन्त्यमिच्छता\
 > दैवे च तदभावे स्यादितरेभ्यो यथार्हतः ॥२॥
 
-> jñāna-niṣṭhāya deyāni
-> kavyāny ānantyam icchatā
-> daive ca tad-abhāve syād
+> jñāna-niṣṭhāya deyāni\
+> kavyāny ānantyam icchatā\
+> daive ca tad-abhāve syād\
 > itarebhyo yathārhataḥ
 
 *jñāna-niṣṭhāya*—to the impersonalist or the transcendentalist desiring to merge into the Supreme; *deyāni*—to be given in charity; *kavyāni*—ingredients offered to the forefathers as oblations; *ānantyam*—liberation from material bondage; *icchatā*—by a person desiring; *daive*—the ingredients to be offered to the demigods; *ca*—also; *tat-abhāve*—in the absence of such advanced transcendentalists; *syāt*—it should be done; *itarebhyaḥ*—to others (namely, those addicted to fruitive activities); *yathā-arhataḥ*—comparatively or with discrimination.

@@ -1,9 +1,9 @@
 ### CC Madhya 4.34
 
-> বসি’ নাম লয় পুরী, নিদ্রা নাহি হয় ।
+> বসি’ নাম লয় পুরী, নিদ্রা নাহি হয় ।\
 > শেষরাত্রে তন্দ্রা হৈল, — বাহ্যবৃত্তি-লয় ॥৩৪॥
 
-> vasi' nāma laya purī, nidrā nāhi haya
+> vasi' nāma laya purī, nidrā nāhi haya\
 > śeṣa-rātre tandrā haila,—bāhya-vṛtti-laya
 
 *vasi'*—sitting there; *nāma laya*—chants the Hare Kṛṣṇa *mahā-mantra*; *purī*—Mādhavendra Purī; *nidrā*—sleep; *nāhi haya*—there was not; *śeṣa-rātre*—at the end of the night; *tandrā*—dozing; *haila*—there was; *bāhya-vṛtti*—of external activities; *laya*—stop.

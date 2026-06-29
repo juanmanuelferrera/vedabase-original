@@ -1,14 +1,14 @@
 ### SB 2.10.41
 
-> सत्त्वं रजस्तम इति तिस्रः सुरनृनारकाः ।
-> तत्राप्येकैकशो राजन्भिद्यन्ते गतयस्त्रिधा ।
+> सत्त्वं रजस्तम इति तिस्रः सुरनृनारकाः ।\
+> तत्राप्येकैकशो राजन्भिद्यन्ते गतयस्त्रिधा ।\
 > यदैकैकतरोऽन्याभ्यां स्वभाव उपहन्यते ॥४१॥
 
-> sattvaṁ rajas tama iti
-> tisraḥ sura-nṛ-nārakāḥ
-> tatrāpy ekaikaśo rājan
-> bhidyante gatayas tridhā
-> yadaikaikataro 'nyābhyāṁ
+> sattvaṁ rajas tama iti\
+> tisraḥ sura-nṛ-nārakāḥ\
+> tatrāpy ekaikaśo rājan\
+> bhidyante gatayas tridhā\
+> yadaikaikataro 'nyābhyāṁ\
 > sva-bhāva upahanyate
 
 *sattvam*—the mode of goodness; *rajaḥ*—the mode of passion; *tamaḥ*—the mode of darkness; *iti*—thus; *tisraḥ*—the three; *sura*—demigod; *nṛ*—human being; *nārakāḥ*—one who is suffering hellish conditions; *tatra api*—even there; *ekaikaśaḥ*—another; *rājan*—O King; *bhidyante*—divide into; *gatayaḥ*—movements; *tridhā*—three; *yadā*—at that time; *ekaikataraḥ*—one in relation with another; *anyābhyām*—from the other; *sva-bhāvaḥ*—habit; *upahanyate*—develops.

@@ -1,9 +1,9 @@
 ### CC Madhya 25.184
 
-> এত বলি’ চলিলা প্রভু সবা আলিঙ্গিয়া ।
+> এত বলি’ চলিলা প্রভু সবা আলিঙ্গিয়া ।\
 > সবেই পড়িলা তথা মূর্চ্ছিত হঞা ॥১৮৪॥
 
-> eta bali' calilā prabhu sabā āliṅgiyā
+> eta bali' calilā prabhu sabā āliṅgiyā\
 > sabei paḍilā tathā mūrcchita hañā
 
 *eta bali'*—saying this; *calilā*—began to proceed; *prabhu*—Śrī Caitanya Mahāprabhu; *sabā*—all of them; *āliṅgiyā*—embracing; *sabei*—all of them; *paḍilā*—fell down; *tathā*—there; *mūrcchita hañā*—fainting.

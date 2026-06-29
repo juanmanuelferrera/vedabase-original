@@ -1,11 +1,11 @@
 ### Bg 6.27
 
-> प्रशान्तमनसं ह्येनं योगिनं सुखमुत्तमम् ।
+> प्रशान्तमनसं ह्येनं योगिनं सुखमुत्तमम् ।\
 > उपैति शान्तरजसं ब्रह्मभूतमकल्मषम् ॥२७॥
 
-> praśānta-manasaṁ hy enaṁ
-> yoginaṁ sukham uttamam
-> upaiti śānta-rajasaṁ
+> praśānta-manasaṁ hy enaṁ\
+> yoginaṁ sukham uttamam\
+> upaiti śānta-rajasaṁ\
 > brahma-bhūtam akalmaṣam
 
 *praśānta*—la mente fija en los pies de loto de Kṛṣṇa; *manasam*—de aquel cuya mente está así fija; *hi*—ciertamente; *enam*—este; *yoginam*—el yogī; *sukham*—felicidad; *uttamam*—lo más elevado; *upaiti*—alcanza; *śānta-rajasam*—pasión apaciguada; *brahma-bhūtam*—liberado mediante la identificación con el Absoluto; *akalmaṣam*—libre de toda reacción pecaminosa pasada.

@@ -1,11 +1,11 @@
 ### SB 4.17.13
 
-> इति व्यवसितो बुद्ध्या प्रगृहीतशरासनः ।
+> इति व्यवसितो बुद्ध्या प्रगृहीतशरासनः ।\
 > सन्दधे विशिखं भूमेः क्रुद्धस्त्रिपुरहा यथा ॥१३॥
 
-> iti vyavasito buddhyā
-> pragṛhīta-śarāsanaḥ
-> sandadhe viśikhaṁ bhūmeḥ
+> iti vyavasito buddhyā\
+> pragṛhīta-śarāsanaḥ\
+> sandadhe viśikhaṁ bhūmeḥ\
 > kruddhas tripura-hā yathā
 
 *iti*—thus; *vyavasitaḥ*—having arrived at the conclusion; *buddhyā*—by intelligence; *pragṛhīta*—having taken up; *śarāsanaḥ*—the bow; *sandadhe*—fixed; *viśikham*—an arrow; *bhūmeḥ*—at the earth; *kruddhaḥ*—angry; *tri-pura-hā*—Lord Śiva; *yathā*—like.

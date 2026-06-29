@@ -1,9 +1,9 @@
 ### SB 5.10.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > अथ सिन्धुसौवीरपते रहूगणस्य व्रजत इक्षुमत्यास्तटे तत्कुलपतिना शिबिकावाहपुरुषान्वेषणसमये दैवेनोपसादितः स द्विजवर उपलब्ध एष पीवा युवा संहननाङ्गो गोखरवद्धुरं वोढुमलमिति पूर्वविष्टिगृहीतैः सह गृहीतः प्रसभमतदर्ह उवाह शिबिकां समहानुभावः ॥१॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > atha sindhu-sauvīra-pate rahūgaṇasya vrajata ikṣumatyās taṭe tat-kula-patinā śibikā-vāha-puruṣānveṣaṇa-samaye daivenopasāditaḥ sa dvija-vara upalabdha eṣa pīvā yuvā saṁhananāṅgo go-kharavad dhuraṁ voḍhum alam iti pūrva-viṣṭi-gṛhītaiḥ saha gṛhītaḥ prasabham atad-arha uvāha śibikāṁ sa mahānubhāvaḥ.
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī continued to speak; *atha*—thus; *sindhu-sauvīra-pateḥ*—of the ruler of the states known as Sindhu and Sauvīra; *rahū-gaṇasya*—the King known as Rahūgaṇa; *vrajataḥ*—while going (to the *āśrama* of Kapila); *ikṣu-matyāḥ taṭe*—on the bank of the river known as Ikṣumatī; *tat-kula-patinā*—by the leader of the palanquin carriers; *śibikā-vāha*—to become a carrier of the palanquin; *puruṣa-anveṣaṇa-samaye*—at the time of searching for a man; *daivena*—by chance; *upasāditaḥ*—led near; *saḥ*—that; *dvija-varaḥ*—Jaḍa Bharata, the son of a *brāhmaṇa*; *upalabdhaḥ*—obtained; *eṣaḥ*—this man; *pīvā*—very strong and stout; *yuvā*—young; *saṁhanana-aṅgaḥ*—having very firm limbs; *go-khara-vat*—like a cow or an ass; *dhuram*—a load; *voḍhum*—to carry; *alam*—able; *iti*—thus thinking; *pūrva-viṣṭi-gṛhītaiḥ*—others who were formerly forced to do the task; *saha*—with; *gṛhītaḥ*—being taken; *prasabham*—by force; *a-tat-arhaḥ*—although not fit for carrying the palanquin; *uvāha*—carried; *śibikām*—the palanquin; *saḥ*—he; *mahā-anubhāvaḥ*—a great soul.

@@ -1,11 +1,11 @@
 ### SB 9.3.3
 
-> सा सखीभिः परिवृता विचिन्वन्त्यङ्घ्रिपान्वने
+> सा सखीभिः परिवृता विचिन्वन्त्यङ्घ्रिपान्वने\
 > वल्मीकरन्ध्रे ददृशे खद्योते इव ज्योतिषी ॥३॥
 
-> sā sakhībhiḥ parivṛtā
-> vicinvanty aṅghripān vane
-> valmīka-randhre dadṛśe
+> sā sakhībhiḥ parivṛtā\
+> vicinvanty aṅghripān vane\
+> valmīka-randhre dadṛśe\
 > khadyote iva jyotiṣī
 
 *sā*—Sukanyā; *sakhībhiḥ*—por sus amigas; *parivṛtā*—rodeada; *vicinvantī*—recoger; *aṅghripān*—frutas y flores de los árboles; *vane*—en el bosque; *valmīka-randhre*—en el agujero de una lombriz de tierra; *dadṛśe*—observó; *khadyote*—dos estrellas; *iva*—como; *jyotiṣī*—dos cosas brillantes.

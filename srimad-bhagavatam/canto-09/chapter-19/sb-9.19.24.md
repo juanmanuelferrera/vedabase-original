@@ -1,11 +1,11 @@
 ### SB 9.19.24
 
-> आसेवितं वर्षपूगान्षड्वर्गं विषयेषु सः
+> आसेवितं वर्षपूगान्षड्वर्गं विषयेषु सः\
 > क्षणेन मुमुचे नीडं जातपक्ष इव द्विजः ॥२४॥
 
-> āsevitaṁ varṣa-pūgān
-> ṣaḍ-vargaṁ viṣayeṣu saḥ
-> kṣaṇena mumuce nīḍaṁ
+> āsevitaṁ varṣa-pūgān\
+> ṣaḍ-vargaṁ viṣayeṣu saḥ\
+> kṣaṇena mumuce nīḍaṁ\
 > jāta-pakṣa iva dvijaḥ
 
 *āsevitam*—being always engaged in; *varṣa-pūgān*—for many, many years; *ṣaṭ-vargam*—the six senses, including the mind; *viṣayeṣu*—in sense enjoyment; *saḥ*—King Yayāti; *kṣaṇena*—within a moment; *mumuce*—gave up; *nīḍam*—nest; *jāta-pakṣaḥ*—one that has grown its wings; *iva*—like; *dvijaḥ*—a bird.

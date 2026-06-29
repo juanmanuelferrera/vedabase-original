@@ -1,9 +1,9 @@
 ### CC Madhya 6.199
 
-> শুনি’ ভট্টাচার্যের মনে হৈল চমৎকার ।
+> শুনি’ ভট্টাচার্যের মনে হৈল চমৎকার ।\
 > প্রভুকে কৃষ্ণ জানি’ করে আপনা ধিক্কার ॥১৯৯॥
 
-> śuni' bhaṭṭācāryera mane haila camatkāra
+> śuni' bhaṭṭācāryera mane haila camatkāra\
 > prabhuke kṛṣṇa jāni' kare āpanā dhikkāra
 
 *śuni'*—hearing this; *bhaṭṭācāryera*—of Sārvabhauma Bhaṭṭācārya; *mane*—in the mind; *haila*—there was; *camatkāra*—wonder; *prabhuke*—Lord Śrī Caitanya Mahāprabhu; *kṛṣṇa*—Lord Kṛṣṇa; *jāni'*—accepting as; *kare*—does; *āpanā*—himself; *dhikkāra*—condemnation.

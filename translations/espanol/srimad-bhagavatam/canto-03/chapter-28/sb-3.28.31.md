@@ -1,13 +1,13 @@
 ### SB 3.28.31
 
-> तस्यावलोकमधिकं कृपयातिघोर
-> तापत्रयोपशमनाय निसृष्टमक्ष्णोः ।
-> स्निग्धस्मितानुगुणितं विपुलप्रसादं
+> तस्यावलोकमधिकं कृपयातिघोर\
+> तापत्रयोपशमनाय निसृष्टमक्ष्णोः ।\
+> स्निग्धस्मितानुगुणितं विपुलप्रसादं\
 > ध्यायेच्चिरं विपुलभावनया गुहायाम् ॥३१॥
 
-> tasyāvalokam adhikaṁ kṛpayātighora-
-> tāpa-trayopaśamanāya nisṛṣṭam akṣṇoḥ
-> snigdha-smitānuguṇitaṁ vipula-prasādaṁ
+> tasyāvalokam adhikaṁ kṛpayātighora-\
+> tāpa-trayopaśamanāya nisṛṣṭam akṣṇoḥ\
+> snigdha-smitānuguṇitaṁ vipula-prasādaṁ\
 > dhyāyec ciraṁ vipula-bhāvanayā guhāyām
 
 *tasya*—de la Personalidad de Dios; *avalokam*—miradas; *adhikam*—frecuentes; *kṛpayā*—con compasión; *atighora*—sumamente espantosa; *tāpa-traya*—las tres clases de agonías; *upaśamanāya*—calmando; *nisṛṣṭam*—lanzadas; *akṣṇoḥ*—de Sus ojos; *snigdha*—amorosas; *smita*—sonrisas; *anuguṇitam*—acompañadas de; *vipula*—abundante; *prasādam*—repletas de gracia; *dhyāyet*—debe contemplar; *ciram*—durante mucho tiempo; *vipula*—lleno; *bhāvanayā*—de devoción; *guhāyām*—en el corazón.

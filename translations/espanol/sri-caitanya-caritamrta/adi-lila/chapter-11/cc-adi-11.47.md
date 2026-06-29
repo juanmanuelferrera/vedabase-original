@@ -1,9 +1,9 @@
 ### CC Adi 11.47
 
-> হোড় কৃষ্ণদাস — নিত্যানন্দপ্রভু-প্রাণ ।
+> হোড় কৃষ্ণদাস — নিত্যানন্দপ্রভু-প্রাণ ।\
 > নিত্যানন্দ-পদ বিনু নাহি জানে আন ॥৪৭॥
 
-> hoḍa kṛṣṇadāsa--nityānanda-prabhu-prāṇa
+> hoḍa kṛṣṇadāsa--nityānanda-prabhu-prāṇa\
 > nityānanda-pada vinu nāhi jāne āna
 
 *hoḍa kṛṣṇadāsa*—de nombre Hoḍa Kṛṣṇadāsa; *nityānanda-prabhu*—del Señor Nityānanda; *prāṇa*—vida y alma; *nityānanda-pada*—los pies de loto del Señor Nityānanda; *vinu*—excepto; *nāhi*—no; *jāne*—conoce; *āna*—ninguna otra cosa.

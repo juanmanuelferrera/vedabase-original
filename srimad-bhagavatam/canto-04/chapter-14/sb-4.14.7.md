@@ -1,11 +1,11 @@
 ### SB 4.14.7
 
-> वेनस्यावेक्ष्य मुनयो दुर्वृत्तस्य विचेष्टितम् ।
+> वेनस्यावेक्ष्य मुनयो दुर्वृत्तस्य विचेष्टितम् ।\
 > विमृश्य लोकव्यसनं कृपयोचुः स्म सत्रिणः ॥७॥
 
-> venasyāvekṣya munayo
-> durvṛttasya viceṣṭitam
-> vimṛśya loka-vyasanaṁ
+> venasyāvekṣya munayo\
+> durvṛttasya viceṣṭitam\
+> vimṛśya loka-vyasanaṁ\
 > kṛpayocuḥ sma satriṇaḥ
 
 *venasya*—of King Vena; *āvekṣya*—after observing; *munayaḥ*—all the great sages; *durvṛttasya*—of the great rogue; *viceṣṭitam*—activities; *vimṛśya*—considering; *loka-vyasanam*—danger to the people in general; *kṛpayā*—out of compassion; *ūcuḥ*—talked; *sma*—in the past; *satriṇaḥ*—the performers of sacrifices.

@@ -1,9 +1,9 @@
 ### CC Antya 14.12
 
-> কৃষ্ণ মথুরায় গেলে, গোপীর যে দশা হৈল ।
+> কৃষ্ণ মথুরায় গেলে, গোপীর যে দশা হৈল ।\
 > কৃষ্ণবিচ্ছেদে প্রভুর সে দশা উপজিল ॥১২॥
 
-> kṛṣṇa mathurāya gele, gopīra ye daśā haila
+> kṛṣṇa mathurāya gele, gopīra ye daśā haila\
 > kṛṣṇa-vicchede prabhura se daśā upajila
 
 *kṛṣṇa mathurāya gele*—cuando el Señor Kṛṣṇa partió hacia Mathurā; *gopīra*—de las gopīs; *ye daśā*—la condición que; *haila*—hubo; *kṛṣṇa-vicchede*—por la separación de Kṛṣṇa; *prabhura*—de Śrī Caitanya Mahāprabhu; *se daśā*—esa situación; *upajila*—surgió.

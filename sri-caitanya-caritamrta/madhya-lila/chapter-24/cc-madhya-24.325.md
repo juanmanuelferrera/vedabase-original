@@ -1,9 +1,9 @@
 ### CC Madhya 24.325
 
-> মুঞি — নীচ-জাতি, কিছু না জানোঁ আচার  ।
+> মুঞি — নীচ-জাতি, কিছু না জানোঁ আচার  ।\
 > মো-হৈতে কৈছে হয় স্মৃতি-পরচার ॥৩২৫॥
 
-> muñi—nīca-jāti, kichu nā jānoṅ ācāra
+> muñi—nīca-jāti, kichu nā jānoṅ ācāra\
 > mo-haite kaiche haya smṛti-paracāra
 
 *muñi*—I; *nīca-jāti*—belong to a lower caste; *kichu*—anything; *nā*—not; *jānoṅ*—I know; *ācāra*—about proper behavior; *mo-haite*—from me; *kaiche*—how; *haya*—there is; *smṛti-paracāra*—propagation of the directions of Vaiṣṇava behavior.

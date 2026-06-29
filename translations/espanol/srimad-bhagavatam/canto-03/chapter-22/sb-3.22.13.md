@@ -1,11 +1,11 @@
 ### SB 3.22.13
 
-> य उद्यतमनादृत्य कीनाशमभियाचते ।
+> य उद्यतमनादृत्य कीनाशमभियाचते ।\
 > क्षीयते तद्यशः स्फीतं मानश्चावज्ञया हतः ॥१३॥
 
-> ya udyatam anādṛtya
-> kīnāśam abhiyācate
-> kṣīyate tad-yaśaḥ sphītaṁ
+> ya udyatam anādṛtya\
+> kīnāśam abhiyācate\
+> kṣīyate tad-yaśaḥ sphītaṁ\
 > mānaś cāvajñayā hataḥ
 
 *yaḥ*—quien; *udyatam*—una ofrenda; *anādṛtya*—rechazando; *kīnāśam*—a un avaro; *abhiyācate*—pide; *kṣīyate*—se pierde; *tat*—su; *yaśaḥ*—reputación; *sphītam*—extensa; *mānaḥ*—honor; *ca*—y; *avajñayā*—por el comportamiento desatento; *hataḥ*—destruido.

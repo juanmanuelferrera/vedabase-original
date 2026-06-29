@@ -1,9 +1,9 @@
 ### CC Madhya 10.13
 
-> বৈষ্ণবের এই হয় এক স্বভাব নিশ্চল ।
+> বৈষ্ণবের এই হয় এক স্বভাব নিশ্চল ।\
 > তেঁহো জীব নহেন, হন স্বতন্ত্র ঈশ্বর ॥১৩॥
 
-> vaiṣṇavera ei haya eka svabhāva niścala
+> vaiṣṇavera ei haya eka svabhāva niścala\
 > teṅho jīva nahena, hana svatantra īśvara
 
 *vaiṣṇavera*—of great devotees; *ei*—this; *haya*—is; *eka*—one; *svabhāva*—nature; *niścala*—unflinching; *teṅho*—He; *jīva*—conditioned soul; *nahena*—is not; *hana*—is; *svatantra*—independent; *īśvara*—controller.

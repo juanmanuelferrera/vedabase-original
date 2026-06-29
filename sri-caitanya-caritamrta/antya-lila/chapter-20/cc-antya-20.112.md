@@ -1,9 +1,9 @@
 ### CC Antya 20.112
 
-> ষষ্ঠে — রঘুনাথ-দাস প্রভুরে মিলিলা ।
+> ষষ্ঠে — রঘুনাথ-দাস প্রভুরে মিলিলা ।\
 > নিত্যানন্দ-আজ্ঞায় চিড়া-মহোৎসব কৈলা ॥১১২॥
 
-> ṣaṣṭhe—raghunātha-dāsa prabhure mililā
+> ṣaṣṭhe—raghunātha-dāsa prabhure mililā\
 > nityānanda-ājñāya ciḍā-mahotsava kailā
 
 *ṣaṣṭhe*—in the Sixth Chapter; *raghunātha-dāsa*—Raghunātha dāsa Gosvāmī; *prabhure mililā*—met Lord Śrī Caitanya Mahāprabhu; *nityānanda-ājñāya*—by the order of Nityānanda Prabhu; *ciḍā-mahotsava kailā*—performed the festival of chipped rice.

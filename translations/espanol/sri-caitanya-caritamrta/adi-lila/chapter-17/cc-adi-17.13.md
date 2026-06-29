@@ -1,9 +1,9 @@
 ### CC Adi 17.13
 
-> প্রথমে ষড়্ভুজ তাঁরে দেখাইল ঈশ্বর ।
+> প্রথমে ষড়্ভুজ তাঁরে দেখাইল ঈশ্বর ।\
 > শঙ্খচক্রগদাপদ্ম-শার্ঙ্গবেণুধর ॥১৩॥
 
-> prathame ṣaḍ-bhuja tāṅre dekhāila īśvara
+> prathame ṣaḍ-bhuja tāṅre dekhāila īśvara\
 > śaṅkha-cakra-gadā-padma-śārṅga-veṇu-dhara
 
 *prathame*—al principio; *ṣaṭ-bhuja*—de seis brazos; *tāṅre*—a Él; *dekhāila*—mostró; *īśvara*—el Señor; *śaṅkha*—caracola; *cakra*—disco; *gadā*—maza; *padma*—flor de loto; *śārṅga*—arco; *veṇu*—flauta; *dhara*—portando.

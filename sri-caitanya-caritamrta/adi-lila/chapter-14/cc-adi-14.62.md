@@ -1,9 +1,9 @@
 ### CC Adi 14.62
 
-> একদিন বল্লভাচার্য-কন্যা ‘লক্ষ্মী’ নাম ।
+> একদিন বল্লভাচার্য-কন্যা ‘লক্ষ্মী’ নাম ।\
 > দেবতা পূজিতে আইল করি গঙ্গাস্নান ॥৬২॥
 
-> eka-dina vallabhācārya-kanyā 'lakṣmī' nāma
+> eka-dina vallabhācārya-kanyā 'lakṣmī' nāma\
 > devatā pūjite āila kari gaṅgā-snāna
 
 *eka-dina*—one day; *vallabhācārya-kanyā*—the daughter of Vallabhācārya; *lakṣmī*—Lakṣmī; *nāma*—named; *devatā*—demigods; *pūjite*—to worship; *āila*—came; *kari*—taking; *gaṅgā-snāna*—bath in the Ganges.

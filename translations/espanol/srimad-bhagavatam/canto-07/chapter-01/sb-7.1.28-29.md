@@ -1,18 +1,18 @@
 ### SB 7.1.28-29
 
-> एवं कृष्णे भगवति मायामनुज ईश्वरे
-> वैरेण पूतपाप्मानस्तमापुरनुचिन्तया ॥२८॥
-> कामाद्द्वेषाद्भयात्स्नेहाद्यथा भक्त्येश्वरे मनः
+> एवं कृष्णे भगवति मायामनुज ईश्वरे\
+> वैरेण पूतपाप्मानस्तमापुरनुचिन्तया ॥२८॥\
+> कामाद्द्वेषाद्भयात्स्नेहाद्यथा भक्त्येश्वरे मनः\
 > आवेश्य तदघं हित्वा बहवस्तद्गतिं गताः ॥२९॥
 
-> kīṭaḥ peśaskṛtā ruddhaḥ
-> kuḍyāyāṁ tam anusmaran
-> saṁrambha-bhaya-yogena
+> kīṭaḥ peśaskṛtā ruddhaḥ\
+> kuḍyāyāṁ tam anusmaran\
+> saṁrambha-bhaya-yogena\
 > vindate tat-svarūpatām
 
-> evaṁ kṛṣṇe bhagavati
-> māyā-manuja īśvare
-> vaireṇa pūta-pāpmānas
+> evaṁ kṛṣṇe bhagavati\
+> māyā-manuja īśvare\
+> vaireṇa pūta-pāpmānas\
 > tam āpur anucintayā
 
 *kītaḥ*—la oruga; *peśaskṛtā*—por una abeja; *ruddhaḥ*—encerrada; *kuḍyāyām*—** en el hueco de un muro; *tam*—esa (abeja); *anusmaran*—pensando en; *saṁrambha-bhaya-yogena*—con temor y hostilidad intensos; *vindate*—obtiene; *tat*—de esa abeja; *sva-rūpatām*—la misma forma; *evam*—así; *kṛṣṇe*—en Kṛṣṇa; *bhagavati*—la Personalidad de Dios; *māyā-manuje*—que apareció mediante Su propia energía en Su forma eterna semejante a la humana; *īśvare*—el Supremo; *vaireṇa*—por enemistad; *pūta-pāpmānaḥ*—los que están purificados de los pecados; *tam*—a Él; *āpuḥ*—alcanzado; *anucintayā*—por pensar en.

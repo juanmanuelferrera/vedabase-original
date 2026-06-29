@@ -1,14 +1,14 @@
 ### SB 9.4.69
 
-> उपायं कथयिष्यामि तव विप्र शृणुष्व तत
-> अयं ह्यात्माभिचारस्ते यतस्तं याहि मा चिरम
+> उपायं कथयिष्यामि तव विप्र शृणुष्व तत\
+> अयं ह्यात्माभिचारस्ते यतस्तं याहि मा चिरम\
 > साधुषु प्रहितं तेजः प्रहर्तुः कुरुतेऽशिवम ॥६९॥
 
-> upāyaṁ kathayiṣyāmi
-> tava vipra śṛṇuṣva tat
-> ayaṁ hy ātmābhicāras te
-> yatas taṁ yāhi mā ciram
-> sādhuṣu prahitaṁ tejaḥ
+> upāyaṁ kathayiṣyāmi\
+> tava vipra śṛṇuṣva tat\
+> ayaṁ hy ātmābhicāras te\
+> yatas taṁ yāhi mā ciram\
+> sādhuṣu prahitaṁ tejaḥ\
 > prahartuḥ kurute 'śivam
 
 *upāyam*—the means of protection in this dangerous position; *kathayiṣyāmi*—I shall speak to you; *tava*—of your deliverance from this danger; *vipra*—O *brāhmaṇa*; *śṛṇuṣva*—just hear from me; *tat*—what I say; *ayam*—this action taken by you; *hi*—indeed; *ātma-abhicāraḥ*—self-envy or envious of yourself (your mind has become your enemy); *te*—for you; *yataḥ*—because of whom; *tam*—to him (Mahārāja Ambarīṣa); *yāhi*—immediately go; *mā ciram*—do not wait even a moment; *sādhuṣu*—unto devotees; *prahitam*—applied; *tejaḥ*—power; *prahartuḥ*—of the executor; *kurute*—does; *aśivam*—inauspiciousness.

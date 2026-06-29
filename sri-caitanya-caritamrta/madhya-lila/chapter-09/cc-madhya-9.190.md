@@ -1,9 +1,9 @@
 ### CC Madhya 9.190
 
-> প্রভু কহে, — এ ভাবনা না করিহ আর ।
+> প্রভু কহে, — এ ভাবনা না করিহ আর ।\
 > পণ্ডিত হঞা কেনে না করহ বিচার ॥১৯০॥
 
-> prabhu kahe,—e bhāvanā nā kariha āra
+> prabhu kahe,—e bhāvanā nā kariha āra\
 > paṇḍita hañā kene nā karaha vicāra
 
 *prabhu kahe*—the Lord said; *e bhāvanā*—this kind of thinking; *nā*—do not; *kariha*—do; *āra*—anymore; *paṇḍita hañā*—being a learned *paṇḍita*; *kena*—why; *nā karaha*—you do not make; *vicāra*—consideration.

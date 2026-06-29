@@ -1,11 +1,11 @@
 ### Bg 2.32
 
-> यदृच्छया चोपपन्नं स्वर्गद्वारमपावृतम् ।
+> यदृच्छया चोपपन्नं स्वर्गद्वारमपावृतम् ।\
 > सुखिनः क्षत्रियाः पार्थ लभन्ते युद्धमीदृशम् ॥३२॥
 
-> yadṛcchayā copapannam
-> svarga-dvāram apāvṛtam
-> sukhinaḥ kṣatriyāḥ pārtha
+> yadṛcchayā copapannam\
+> svarga-dvāram apāvṛtam\
+> sukhinaḥ kṣatriyāḥ pārtha\
 > labhante yuddham īdṛśam
 
 *yadṛcchayā*—por sí mismo; *ca*—también; *upapannam*—llegado a; *svarga*—los planetas celestiales; *dvāram*—puertas; *apāvṛtam*—abiertas de par en par; *sukhinaḥ*—muy feliz; *kṣatriyāḥ*—los miembros de la orden real; *pārtha*—¡oh, hijo de Pṛthā!; *labhante*—alcanzan; *yuddham*—guerra; *īdṛśam*—como esta.

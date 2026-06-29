@@ -1,11 +1,11 @@
 ### SB 4.11.28
 
-> यः पञ्चवर्षो जननीं त्वं विहाय मातुः सपत्न्या वचसा भिन्नमर्मा ।
+> यः पञ्चवर्षो जननीं त्वं विहाय मातुः सपत्न्या वचसा भिन्नमर्मा ।\
 > वनं गतस्तपसा प्रत्यगक्षमाराध्य लेभे मूर्ध्नि पदं त्रिलोक्याः ॥२८॥
 
-> yaḥ pañca-varṣo jananīṁ tvaṁ vihāya
-> mātuḥ sapatnyā vacasā bhinna-marmā
-> vanaṁ gatas tapasā pratyag-akṣam
+> yaḥ pañca-varṣo jananīṁ tvaṁ vihāya\
+> mātuḥ sapatnyā vacasā bhinna-marmā\
+> vanaṁ gatas tapasā pratyag-akṣam\
 > ārādhya lebhe mūrdhni padaṁ tri-lokyāḥ
 
 *yaḥ*—one who; *pañca-varṣaḥ*—five years old; *jananīm*—mother; *tvam*—you; *vihāya*—leaving aside; *mātuḥ*—of the mother; *sa-patnyāḥ*—of the co-wife; *vacasā*—by the words; *bhinna-marmā*—aggrieved at heart; *vanam*—to the forest; *gataḥ*—went; *tapasā*—by austerity; *pratyak-akṣam*—the Supreme Lord; *ārādhya*—worshiping; *lebhe*—achieved; *mūrdhni*—on the top; *padam*—the position; *tri-lokyāḥ*—of the three worlds.

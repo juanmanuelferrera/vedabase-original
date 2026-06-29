@@ -1,9 +1,9 @@
 ### CC Madhya 12.200
 
-> তবে পরিবেশক স্বরূপাদি সাত জন ।
+> তবে পরিবেশক স্বরূপাদি সাত জন ।\
 > গৃহের ভিতরে কৈল প্রসাদ ভোজন ॥২০০॥
 
-> tabe pariveśaka svarūpādi sāta jana
+> tabe pariveśaka svarūpādi sāta jana\
 > gṛhera bhitare kaila prasāda bhojana
 
 *tabe*—a continuación; *pariveśaka*—los distribuidores de prasāda; *svarūpa-ādi*—encabezados por Svarūpa Dāmodara; *sāta jana*—siete hombres; *gṛhera bhitare*—dentro de la habitación; *kaila*—hicieron; *prasāda bhojana*—comida de prasāda.

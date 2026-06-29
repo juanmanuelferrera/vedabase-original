@@ -1,9 +1,9 @@
 ### CC Madhya 4.158
 
-> গোপাল আসিয়া কহে, — শুন হে মাধব ।
+> গোপাল আসিয়া কহে, — শুন হে মাধব ।\
 > কর্পূর-চন্দন আমি পাইলাম সব ॥১৫৮॥
 
-> gopāla āsiyā kahe,—śuna he mādhava
+> gopāla āsiyā kahe,—śuna he mādhava\
 > karpūra-candana āmi pāilāma saba
 
 *gopāla*—the Deity of Gopāla; *āsiyā*—coming; *kahe*—says; *śuna*—hear; *he*—O; *mādhava*—Mādhavendra Purī; *karpūra-candana*—the camphor and sandalwood; *āmi*—I; *pāilāma*—have received; *saba*—all.

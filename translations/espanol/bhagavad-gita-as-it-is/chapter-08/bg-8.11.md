@@ -1,13 +1,13 @@
 ### Bg 8.11
 
-> यदक्षरं वेदविदो वदन्ति
-> विशन्ति यद्यतयो वीतरागाः ।
-> यदिच्छन्तो ब्रह्मचर्यं चरन्ति
+> यदक्षरं वेदविदो वदन्ति\
+> विशन्ति यद्यतयो वीतरागाः ।\
+> यदिच्छन्तो ब्रह्मचर्यं चरन्ति\
 > तत्ते पदं संग्रहेण प्रवक्ष्ये ॥११॥
 
-> yad akṣaraṁ veda-vido vadanti
-> viśanti yad yatayo vīta-rāgāḥ
-> yad icchanto brahmacaryaṁ caranti
+> yad akṣaraṁ veda-vido vadanti\
+> viśanti yad yatayo vīta-rāgāḥ\
+> yad icchanto brahmacaryaṁ caranti\
 > tat te padaṁ saṅgraheṇa pravakṣye
 
 *yat*—aquello que; *akṣaram*—inagotable; *veda-vidaḥ*—personas versadas en los Vedas; *vadanti*—dicen; *viśanti*—entran; *yat*—en el cual; *yatayaḥ*—grandes sabios; *vīta-rāgāḥ*—en la orden de vida de renuncia; *yat*—aquello que; *icchantaḥ*—deseando; *brahmacaryam*—celibato; *caranti*—practican; *tat*—aquello; *te*—a ti; *padam*—situación; *saṅgraheṇa*—en resumen; *pravakṣye*—explicaré.

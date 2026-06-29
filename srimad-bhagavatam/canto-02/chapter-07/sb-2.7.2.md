@@ -1,13 +1,13 @@
 ### SB 2.7.2
 
-> जातो रुचेरजनयत्सुयमान्सुयज्ञ
-> आकूतिसूनुरमरानथ दक्षिणायाम् ।
-> लोकत्रयस्य महतीमहरद्यदार्तिं
+> जातो रुचेरजनयत्सुयमान्सुयज्ञ\
+> आकूतिसूनुरमरानथ दक्षिणायाम् ।\
+> लोकत्रयस्य महतीमहरद्यदार्तिं\
 > स्वायम्भुवेन मनुना हरिरित्यनूक्तः ॥२॥
 
-> jāto rucer ajanayat suyamān suyajña
-> ākūti-sūnur amarān atha dakṣiṇāyām
-> loka-trayasya mahatīm aharad yad ārtiṁ
+> jāto rucer ajanayat suyamān suyajña\
+> ākūti-sūnur amarān atha dakṣiṇāyām\
+> loka-trayasya mahatīm aharad yad ārtiṁ\
 > svāyambhuvena manunā harir ity anūktaḥ
 
 *jātaḥ*—was born; *ruceḥ*—of the wife of Prajāpati; *ajanayat*—gave birth; *suyamān*—headed by Suyama; *suyajñaḥ*—Suyajña; *ākūti-sūnuḥ*—of the son of Ākūti; *amarān*—the demigods; *atha*—thus; *dakṣiṇāyām*—unto the wife of the name Dakṣiṇā; *loka*—the planetary systems; *trayasya*—of the three; *mahatīm*—very great; *aharat*—diminished; *yat*—all those; *ārtim*—distresses; *svāyambhuvena*—by the Manu named Svāyambhuva; *manunā*—by the father of mankind; *hariḥ*—Hari; *iti*—thus; *anūktaḥ*—named.

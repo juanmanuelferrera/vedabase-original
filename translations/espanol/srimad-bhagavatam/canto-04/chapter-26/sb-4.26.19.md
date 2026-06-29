@@ -1,11 +1,11 @@
 ### SB 4.26.19
 
-> सान्त्वयन्श्लक्ष्णया वाचा हृदयेन विदूयता ।
+> सान्त्वयन्श्लक्ष्णया वाचा हृदयेन विदूयता ।\
 > प्रेयस्याः स्नेहसंरम्भ लिङ्गमात्मनि नाभ्यगात् ॥१९॥
 
-> sāntvayan ślakṣṇayā vācā
-> hṛdayena vidūyatā
-> preyasyāḥ sneha-saṁrambha-
+> sāntvayan ślakṣṇayā vācā\
+> hṛdayena vidūyatā\
+> preyasyāḥ sneha-saṁrambha-\
 > liṅgam ātmani nābhyagāt
 
 *sāntvayan*—sosegar; *ślakṣṇayā*—con dulces; *vācā*—palabras; *hṛdayena*—con un corazón; *vidūyatā*—sintiéndolo mucho; *preyasyāḥ*—de su querida; *sneha*—del cariño; *saṁrambha*—de ira; *liṅgam*—señal; *ātmani*—en su corazón; *na*—no; *abhyagāt*—surgió.

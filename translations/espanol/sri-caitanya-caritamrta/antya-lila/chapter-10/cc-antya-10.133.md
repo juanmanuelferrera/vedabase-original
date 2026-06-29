@@ -1,9 +1,9 @@
 ### CC Antya 10.133
 
-> এইমত মহাপ্রভু ভক্তগণ-সঙ্গে ।
+> এইমত মহাপ্রভু ভক্তগণ-সঙ্গে ।\
 > চাতুর্মাস্য গোঙাইলা কৃষ্ণকথা-রঙ্গে ॥১৩৩॥
 
-> ei-mata mahāprabhu bhakta-gaṇa-saṅge
+> ei-mata mahāprabhu bhakta-gaṇa-saṅge\
 > cāturmāsya goṅāilā kṛṣṇa-kathā-raṅge
 
 *ei-mata*—de esta manera; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *bhakta-gaṇa-saṅge*—con Sus devotos personales; *cāturmāsya goṅāilā*—pasó los cuatro meses de la estación de lluvias; *kṛṣṇa-kathā-raṅge*—en la felicidad de conversar sobre temas de Kṛṣṇa.

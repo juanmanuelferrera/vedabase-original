@@ -1,9 +1,9 @@
 ### CC Adi 4.226
 
-> সেই দ্বারে প্রবর্তাইল কলিযুগ-ধর্ম ।
+> সেই দ্বারে প্রবর্তাইল কলিযুগ-ধর্ম ।\
 > চৈতন্যের দাসে জানে এই সব মর্ম ॥২২৬॥
 
-> sei dvāre pravartāila kali-yuga-dharma
+> sei dvāre pravartāila kali-yuga-dharma\
 > caitanyera dāse jāne ei saba marma
 
 *sei dvāre*—in that way; *pravartāila*—He initiated; *kali-yuga*—of the Age of Kali; *dharma*—the religion; *caitanyera*—of Lord Caitanya Mahāprabhu; *dāse*—the servant; *jāne*—knows; *ei*—these; *saba*—all; *marma*—secrets.

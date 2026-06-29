@@ -1,11 +1,11 @@
 ### SB 4.13.30
 
-> नागच्छन्त्याहुता देवा न गृह्णन्ति ग्रहानिह ।
+> नागच्छन्त्याहुता देवा न गृह्णन्ति ग्रहानिह ।\
 > सदसस्पतयो ब्रूत किमवद्यं मया कृतम् ॥३०॥
 
-> nāgacchanty āhutā devā
-> na gṛhṇanti grahān iha
-> sadasas-patayo brūta
+> nāgacchanty āhutā devā\
+> na gṛhṇanti grahān iha\
+> sadasas-patayo brūta\
 > kim avadyaṁ mayā kṛtam
 
 *na*—not; *āgacchanti*—are coming; *āhutāḥ*—being invited; *devāḥ*—the demigods; *na*—not; *gṛhṇanti*—are accepting; *grahān*—shares; *iha*—in the sacrifice; *sadasaḥ-patayaḥ*—my dear priests; *brūta*—kindly tell me; *kim*—what; *avadyam*—offense; *mayā*—by me; *kṛtam*—was committed.

@@ -1,9 +1,9 @@
 ### CC Antya 8.84
 
-> প্রভু কহে, — “সবে কেনে পুরীরে কর রোষ ?
+> প্রভু কহে, — “সবে কেনে পুরীরে কর রোষ ?\
 > ‘সহজ’ ধর্ম কহে তেঁহো, তাঁর কিবা দোষ? ॥৮৪॥
 
-> prabhu kahe,—"sabe kene purīre kara roṣa?
+> prabhu kahe,—"sabe kene purīre kara roṣa?\
 > 'sahaja' dharma kahe teṅho, tāṅra kibā doṣa?
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu replied; *sabe*—all of you; *kene*—why; *purīre*—at Rāmacandra Purī; *kara roṣa*—are angry; *sahaja*—natural; *dharma*—religious principles; *kahe*—speaks; *teṅho*—he; *tāṅra*—of him; *kibā*—what; *doṣa*—fault.

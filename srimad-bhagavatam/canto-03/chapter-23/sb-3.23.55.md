@@ -1,11 +1,11 @@
 ### SB 3.23.55
 
-> सङ्गो यः संसृतेर्हेतुरसत्सु विहितोऽधिया ।
+> सङ्गो यः संसृतेर्हेतुरसत्सु विहितोऽधिया ।\
 > स एव साधुषु कृतो निःसङ्गत्वाय कल्पते ॥५५॥
 
-> saṅgo yaḥ saṁsṛter hetur
-> asatsu vihito 'dhiyā
-> sa eva sādhuṣu kṛto
+> saṅgo yaḥ saṁsṛter hetur\
+> asatsu vihito 'dhiyā\
+> sa eva sādhuṣu kṛto\
 > niḥsaṅgatvāya kalpate
 
 *saṅgaḥ*—association; *yaḥ*—which; *saṁsṛteḥ*—of the cycle of birth and death; *hetuḥ*—the cause; *asatsu*—with those engaged in sense gratification; *vihitaḥ*—done; *adhiyā*—through ignorance; *saḥ*—the same thing; *eva*—certainly; *sādhuṣu*—with saintly persons; *kṛtaḥ*—performed; *niḥsaṅgatvāya*—to liberation; *kalpate*—leads.

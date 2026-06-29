@@ -1,13 +1,13 @@
 ### CC Antya 17.50
 
-> ভাবশাবল্যে রাধার উক্তি, লীলাশুকে হৈল স্ফূর্তি,
-> সেই ভাবে পড়ে এক শ্লোক ।
-> উন্মাদের সামর্থ্যে, সেই শ্লোকের করে অর্থে,
+> ভাবশাবল্যে রাধার উক্তি, লীলাশুকে হৈল স্ফূর্তি,\
+> সেই ভাবে পড়ে এক শ্লোক ।\
+> উন্মাদের সামর্থ্যে, সেই শ্লোকের করে অর্থে,\
 > যেই অর্থ নাহি জানে লোক ॥৫০॥
 
-> bhāva-śābalye rādhāra ukti, līlā-śuke haila sphūrti,
-> sei bhāve paḍe eka śloka
-> unmādera sāmarthye, sei ślokera kare arthe,
+> bhāva-śābalye rādhāra ukti, līlā-śuke haila sphūrti,\
+> sei bhāve paḍe eka śloka\
+> unmādera sāmarthye, sei ślokera kare arthe,\
 > yei artha nāhi jāne loka
 
 *bhāva-śābalye*—en la confluencia de todos los éxtasis; *rādhāra*—de Śrīmatī Rādhārāṇī; *ukti*—declaración; *līlā-śuke*—en Bilvamaṅgala Ṭhākura; *haila*—hubo; *sphūrti*—despertar; *sei bhāve*—en ese éxtasis; *paḍe*—recita; *eka*—un; *śloka*—verso; *unmādera*—de locura; *sāmarthye*—en la capacidad; *sei ślokera*—de ese verso; *kare arthe*—describe el significado; *yei artha*—cuyo significado; *nāhi*—no; *jāne*—conocen; *loka*—las personas.

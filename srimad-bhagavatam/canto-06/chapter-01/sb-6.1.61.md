@@ -1,11 +1,11 @@
 ### SB 6.1.61
 
-> दृष्ट्वा तां कामलिप्तेन बाहुना परिरम्भिताम
+> दृष्ट्वा तां कामलिप्तेन बाहुना परिरम्भिताम\
 > जगाम हृच्छयवशं सहसैव विमोहितः ॥६१॥
 
-> dṛṣṭvā tāṁ kāma-liptena
-> bāhunā parirambhitām
-> jagāma hṛc-chaya-vaśaṁ
+> dṛṣṭvā tāṁ kāma-liptena\
+> bāhunā parirambhitām\
+> jagāma hṛc-chaya-vaśaṁ\
 > sahasaiva vimohitaḥ
 
 *dṛṣṭvā*—by seeing; *tām*—her (the prostitute); *kāma-liptena*—decorated with turmeric to incite lusty desires; *bāhunā*—with the arm; *parirambhitām*—embraced; *jagāma*—went; *hṛt-śaya*—of lusty desires within the heart; *vaśam*—under the control; *sahasā*—suddenly; *eva*—indeed; *vimohitaḥ*—being illusioned.

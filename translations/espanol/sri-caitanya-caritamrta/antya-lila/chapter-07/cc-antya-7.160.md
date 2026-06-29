@@ -1,9 +1,9 @@
 ### CC Antya 7.160
 
-> ঈষৎ হাসিয়া প্রভু কৈলা আলিঙ্গন  ।
+> ঈষৎ হাসিয়া প্রভু কৈলা আলিঙ্গন  ।\
 > সবারে শুনাঞা কহেন মধুর বচন ॥১৬০॥
 
-> īṣat hāsiyā prabhu kailā āliṅgana
+> īṣat hāsiyā prabhu kailā āliṅgana\
 > sabāre śunāñā kahena madhura vacana
 
 *īṣat hāsiyā*—sonriendo levemente; *prabhu*—Śrī Caitanya Mahāprabhu; *kailā āliṅgana*—abrazó; *sabāre*—a todos los demás; *śunāñā*—haciendo oír; *kahena*—comenzó a decir; *madhura vacana*—dulces palabras.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.160
 
-> সেকজল পাঞা উপশাখা বাড়ি’ যায় ।
+> সেকজল পাঞা উপশাখা বাড়ি’ যায় ।\
 > স্তব্ধ হঞা মূলশাখা বাড়িতে না পায় ॥১৬০॥
 
-> seka-jala pāñā upaśākhā bāḍi' yāya
+> seka-jala pāñā upaśākhā bāḍi' yāya\
 > stabdha hañā mūla-śākhā bāḍite nā pāya
 
 *seka-jala*—sprinkling water; *pāñā*—getting; *upaśākhā*—the unwanted creepers; *bāḍi' yāya*—grow luxuriantly; *stabdha hañā*—becoming stopped; *mūla-śākhā*—the chief creeper; *bāḍite*—to increase; *nā pāya*—is not able.

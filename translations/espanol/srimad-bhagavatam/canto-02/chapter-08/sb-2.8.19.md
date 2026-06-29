@@ -1,11 +1,11 @@
 ### SB 2.8.19
 
-> तत्त्वानां परिसङ्ख्यानं लक्षणं हेतुलक्षणम् ।
+> तत्त्वानां परिसङ्ख्यानं लक्षणं हेतुलक्षणम् ।\
 > पुरुषाराधनविधिर्योगस्याध्यात्मिकस्य च ॥१९॥
 
-> tattvānāṁ parisaṅkhyānaṁ
-> lakṣaṇaṁ hetu-lakṣaṇam
-> puruṣārādhana-vidhir
+> tattvānāṁ parisaṅkhyānaṁ\
+> lakṣaṇaṁ hetu-lakṣaṇam\
+> puruṣārādhana-vidhir\
 > yogasyādhyātmikasya ca
 
 *tattvānām*—de los elementos que constituyen la creación; *parisaṅkhyānam*—del número de esos elementos; *lakṣaṇam*—síntomas; *hetu-lakṣaṇam*—los síntomas de las causas; *puruṣa*—del Señor; *ārādhana*—del servicio devocional; *vidhiḥ*—reglas y regulaciones; *yogasya*—del cultivo del sistema de *yoga*; *adhyātmikasya*—métodos espirituales que conducen hacia el servicio devocional; *ca*—también.

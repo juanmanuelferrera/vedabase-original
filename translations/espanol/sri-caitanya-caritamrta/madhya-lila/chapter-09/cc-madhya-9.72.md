@@ -1,9 +1,9 @@
 ### CC Madhya 9.72
 
-> পক্ষিতীর্থ দেখি’ কৈল শিব দরশন ৷
+> পক্ষিতীর্থ দেখি’ কৈল শিব দরশন ৷\
 > বৃদ্ধকোল-তীর্থে তবে করিলা গমন ৷৷ ৭২ ৷৷ ॥৭২॥
 
-> pakṣi-tīrtha dekhi' kaila śiva daraśana
+> pakṣi-tīrtha dekhi' kaila śiva daraśana\
 > vṛddhakola-tīrthe tabe karilā gamana
 
 *pakṣi-tīrtha dekhi'*—tras visitar el lugar conocido como Pakṣi-tīrtha; *kaila*—hizo; *śiva daraśana*—visita al templo del Señor Śiva; *vṛddhakola-tīrthe*—al lugar sagrado conocido como Vṛddhakola; *tabe*—entonces; *karilā gamana*—se dirigió.

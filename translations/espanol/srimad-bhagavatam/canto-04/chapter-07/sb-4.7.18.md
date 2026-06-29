@@ -1,11 +1,11 @@
 ### SB 4.7.18
 
-> अध्वर्युणात्तहविषा यजमानो विशाम्पते ।
+> अध्वर्युणात्तहविषा यजमानो विशाम्पते ।\
 > धिया विशुद्धया दध्यौ तथा प्रादुरभूद्धरिः ॥१८॥
 
-> adhvaryuṇātta-haviṣā
-> yajamāno viśāmpate
-> dhiyā viśuddhayā dadhyau
+> adhvaryuṇātta-haviṣā\
+> yajamāno viśāmpate\
+> dhiyā viśuddhayā dadhyau\
 > tathā prādurabhūd dhariḥ
 
 *adhvaryuṇā*—con el *Yajur Veda*; *ātta*—tomar; *haviṣā*—con mantequilla clarificada; *yajamānaḥ*—el rey Dakṣa; *viśām-pate*—¡oh, Vidura!; *dhiyā*—con meditación; *viśuddhayā*—santificada; *dadhyau*—ofreció; *tathā*—de inmediato; *prāduḥ*—manifiesto; *abhūt*—Se hizo; *hariḥ*—Hari, el Señor.

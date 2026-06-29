@@ -1,9 +1,9 @@
 ### CC Adi 4.195
 
-> অতএব সেই সুখ কৃষ্ণ-সুখ পোষে ।
+> অতএব সেই সুখ কৃষ্ণ-সুখ পোষে ।\
 > এই হেতু গোপী-প্রেমে নাহি কাম-দোষে ॥১৯৫॥
 
-> ataeva sei sukha kṛṣṇa-sukha poṣe
+> ataeva sei sukha kṛṣṇa-sukha poṣe\
 > ei hetu gopī-preme nāhi kāma-doṣe
 
 *ataeva*—por lo tanto; *sei*—esa; *sukha*—felicidad; *kṛṣṇa-sukha*—la felicidad del Señor Kṛṣṇa; *poṣe*—nutre; *ei*—esta; *hetu*—razón; *gopī-preme*—en el amor de las gopīs; *nāhi*—no hay; *kāma-doṣe*—el defecto de la lujuria.

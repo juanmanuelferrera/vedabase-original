@@ -1,11 +1,11 @@
 ### SB 5.18.32
 
-> जरायुजं स्वेदजमण्डजोद्भिदं चराचरं देवर्षिपितृभूतमैन्द्रियम
+> जरायुजं स्वेदजमण्डजोद्भिदं चराचरं देवर्षिपितृभूतमैन्द्रियम\
 > द्यौः खं क्षितिः शैलसरित्समुद्र द्वीपग्रहर्क्षेत्यभिधेय एकः ॥३२॥
 
-> jarāyujaṁ svedajam aṇḍajodbhidaṁ
-> carācaraṁ devarṣi-pitṛ-bhūtam aindriyam
-> dyauḥ khaṁ kṣitiḥ śaila-sarit-samudra-
+> jarāyujaṁ svedajam aṇḍajodbhidaṁ\
+> carācaraṁ devarṣi-pitṛ-bhūtam aindriyam\
+> dyauḥ khaṁ kṣitiḥ śaila-sarit-samudra-\
 > dvīpa-graharkṣety abhidheya ekaḥ
 
 *jarāyu-jam*—el que nace de un vientre; *sveda-jam*—el que nace del sudor; *aṇḍa-ja*—el que nace de un huevo; *udbhidam*—el que nace de la tierra; *cara-acaram*—el móvil y el estático; *deva*—los semidioses; *ṛṣi*—los grandes sabios; *pitṛ*—los habitantes de Pitṛloka; *bhūtam*—los elementos materiales: aire, fuego, agua y tierra; *aindriyam*—todos los sentidos; *dyauḥ*—los sistemas planetarios superiores; *kham*—el cielo; *kṣitiḥ*—los planetas terrenales; *śaila*—las colinas y montañas; *sarit*—los ríos; *samudra*—los océanos; *dvīpa*—las islas; *graha-ṛkṣa*—las estrellas y planetas; *iti*—así; *abhidheyaḥ*—de diversos nombres; *ekaḥ*—uno.

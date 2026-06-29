@@ -1,13 +1,13 @@
 ### SB 8.9.29
 
-> यद्युज्यतेऽसुवसुकर्ममनोवचोभिर
-> देहात्मजादिषु नृभिस्तदसत्पृथक्त्वात
-> तैरेव सद्भवति यत्क्रियतेऽपृथक्त्वात
+> यद्युज्यतेऽसुवसुकर्ममनोवचोभिर\
+> देहात्मजादिषु नृभिस्तदसत्पृथक्त्वात\
+> तैरेव सद्भवति यत्क्रियतेऽपृथक्त्वात\
 > सर्वस्य तद्भवति मूलनिषेचनं यत ॥२९॥
 
-> yad yujyate 'su-vasu-karma-mano-vacobhir
-> dehātmajādiṣu nṛbhis tad asat pṛthaktvāt
-> tair eva sad bhavati yat kriyate 'pṛthaktvāt
+> yad yujyate 'su-vasu-karma-mano-vacobhir\
+> dehātmajādiṣu nṛbhis tad asat pṛthaktvāt\
+> tair eva sad bhavati yat kriyate 'pṛthaktvāt\
 > sarvasya tad bhavati mūla-niṣecanaṁ yat
 
 *yat*—whatever; *yujyate*—is performed; *asu*—for the protection of one's life; *vasu*—protection of wealth; *karma*—activities; *manaḥ*—by the acts of the mind; *vacobhiḥ*—by the acts of words; *deha-ātma-ja-ādiṣu*—for the sake of one's personal body or family, etc., with reference to the body; *nṛbhiḥ*—by the human beings; *tat*—that; *asat*—impermanent, transient; *pṛthaktvāt*—because of separation from the Supreme Personality of Godhead; *taiḥ*—by the same activities; *eva*—indeed; *sat bhavati*—becomes factual and permanent; *yat*—which; *kriyate*—is performed; *apṛthaktvāt*—because of nonseparation; *sarvasya*—for everyone; *tat bhavati*—becomes beneficial; *mūla-niṣecanam*—exactly like pouring water on the root of a tree; *yat*—which.

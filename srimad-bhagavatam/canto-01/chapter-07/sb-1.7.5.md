@@ -1,11 +1,11 @@
 ### SB 1.7.5
 
-> यया सम्मोहितो जीव आत्मानं त्रिगुणात्मकम् ।
+> यया सम्मोहितो जीव आत्मानं त्रिगुणात्मकम् ।\
 > परोऽपि मनुतेऽनर्थं तत्कृतं चाभिपद्यते ॥५॥
 
-> yayā sammohito jīva
-> ātmānaṁ tri-guṇātmakam
-> paro 'pi manute 'narthaṁ
+> yayā sammohito jīva\
+> ātmānaṁ tri-guṇātmakam\
+> paro 'pi manute 'narthaṁ\
 > tat-kṛtaṁ cābhipadyate
 
 *yayā*—by whom; *sammohitaḥ*—illusioned; *jīvaḥ*—the living entities; *ātmānam*—self; *tri-guṇa-ātmakam*—conditioned by the three modes of nature, or a product of matter; *paraḥ*—transcendental; *api*—in spite of; *manute*—takes it for granted; *anartham*—things not wanted; *tat*—by that; *kṛtam ca*—reaction; *abhipadyate*—undergoes thereof.

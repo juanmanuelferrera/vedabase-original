@@ -1,11 +1,11 @@
 ### SB 1.6.8
 
-> अहं च तद्ब्रह्मकुले ऊषिवांस्तदुपेक्षया ।
+> अहं च तद्ब्रह्मकुले ऊषिवांस्तदुपेक्षया ।\
 > दिग्देशकालाव्युत्पन्नो बालकः पञ्चहायनः ॥८॥
 
-> ahaṁ ca tad-brahma-kule
-> ūṣivāṁs tad-upekṣayā
-> dig-deśa-kālāvyutpanno
+> ahaṁ ca tad-brahma-kule\
+> ūṣivāṁs tad-upekṣayā\
+> dig-deśa-kālāvyutpanno\
 > bālakaḥ pañca-hāyanaḥ
 
 *aham*—I; *ca*—also; *tat*—that; *brahma-kule*—in the school of the *brāhmaṇas*; *ūṣivān*—lived; *tat*—her; *upekṣayā*—being dependent on; *dik-deśa*—direction and country; *kāla*—time; *avyutpannaḥ*—having no experience; *bālakaḥ*—a mere child; *pañca*—five; *hāyanaḥ*—years old.

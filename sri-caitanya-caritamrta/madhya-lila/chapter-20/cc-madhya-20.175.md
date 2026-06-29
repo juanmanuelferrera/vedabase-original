@@ -1,9 +1,9 @@
 ### CC Madhya 20.175
 
-> বৈভবপ্রকাশ যৈছে দেবকী-তনুজ ।
+> বৈভবপ্রকাশ যৈছে দেবকী-তনুজ ।\
 > দ্বিভুজ-স্বরূপ কভু, কভু হয় চতুর্ভুজ ॥১৭৫॥
 
-> vaibhava-prakāśa yaiche devakī-tanuja
+> vaibhava-prakāśa yaiche devakī-tanuja\
 > dvibhuja-svarūpa kabhu, kabhu haya caturbhuja
 
 *vaibhava-prakāśa*—the feature of *vaibhava-prakāśa*; *yaiche*—just as; *devakī-tanuja*—the son of Devakī; *dvi-bhuja*—two-handed; *svarūpa*—form; *kabhu*—sometimes; *kabhu*—sometimes; *haya*—is; *catuḥ-bhuja*—four-handed.

@@ -1,9 +1,9 @@
 ### CC Adi 7.147
 
-> এইমত সর্বসূত্রের ব্যাখ্যান শুনিয়া ।
+> এইমত সর্বসূত্রের ব্যাখ্যান শুনিয়া ।\
 > সকল সন্ন্যাসী কহে বিনয় করিয়া ॥১৪৭॥
 
-> ei-mata sarva-sūtrera vyākhyāna śuniyā
+> ei-mata sarva-sūtrera vyākhyāna śuniyā\
 > sakala sannyāsī kahe vinaya kariyā
 
 *ei-mata*—de este modo; *sarva-sūtrera*—de todos los aforismos del Vedānta-sūtra; *vyākhyāna*—explicación; *śuniyā*—al escuchar; *sakala*—todos; *sannyāsī*—los grupos de *sannyāsīs* māyāvādīs; *kahe*—dijeron; *vinaya*—con humildad; *kariyā*—haciéndolo.

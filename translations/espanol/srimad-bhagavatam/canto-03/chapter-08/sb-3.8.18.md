@@ -1,11 +1,11 @@
 ### SB 3.8.18
 
-> क एष योऽसावहमब्जपृष्ठ एतत्कुतो वाब्जमनन्यदप्सु ।
+> क एष योऽसावहमब्जपृष्ठ एतत्कुतो वाब्जमनन्यदप्सु ।\
 > अस्ति ह्यधस्तादिह किञ्चनैतदधिष्ठितं यत्र सता नु भाव्यम् ॥१८॥
 
-> ka eṣa yo 'sāv aham abja-pṛṣṭha
-> etat kuto vābjam ananyad apsu
-> asti hy adhastād iha kiñcanaitad
+> ka eṣa yo 'sāv aham abja-pṛṣṭha\
+> etat kuto vābjam ananyad apsu\
+> asti hy adhastād iha kiñcanaitad\
 > adhiṣṭhitaṁ yatra satā nu bhāvyam
 
 *kaḥ*—quién; *eṣaḥ*—esto; *yaḥ asau aham*—que yo soy; *abja-pṛṣṭhe*—encima de la flor de loto; *etat*—este; *kutaḥ*—de dónde; *vā*—o bien; *abjam*—flor de loto; *ananyat*—de lo contrario; *apsu*—en el agua; *asti*—hay; *hi*—ciertamente; *adhastāt*—desde abajo; *iha*—en este; *kiñcana*—cualquier cosa; *etat*—ese; *adhiṣṭhitam*—situado; *yatra*—en el cual; *satā*—automáticamente; *nu*—o no; *bhāvyam*—debe ser.

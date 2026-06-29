@@ -1,9 +1,9 @@
 ### CC Antya 2.149
 
-> গন্ধর্ব-দেহে গান করেন অন্তর্ধানে ।
+> গন্ধর্ব-দেহে গান করেন অন্তর্ধানে ।\
 > রাত্র্যে প্রভুরে শুনায় গীত, অন্যে নাহি জানে ॥১৪৯॥
 
-> gandharva-dehe gāna karena antardhāne
+> gandharva-dehe gāna karena antardhāne\
 > rātrye prabhure śunāya gīta, anye nāhi jāne
 
 *gandharva-dehe*—en el cuerpo de un Gandharva; *gāna karena*—canta; *antardhāne*—sin ser visible; *rātrye*—por la noche; *prabhure*—a Śrī Caitanya Mahāprabhu; *śunāya gīta*—cantaba; *anye*—otros; *nāhi jāne*—no podían comprender.

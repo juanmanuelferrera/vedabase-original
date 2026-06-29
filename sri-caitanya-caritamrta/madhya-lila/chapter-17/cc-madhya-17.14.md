@@ -1,9 +1,9 @@
 ### CC Madhya 17.14
 
-> নূতন সঙ্গী হইবেক, — স্নিগ্ধ যাঁর মন ।
+> নূতন সঙ্গী হইবেক, — স্নিগ্ধ যাঁর মন ।\
 > ঐছে যবে পাই, তবে লই ‘এক’ জন ॥১৪॥
 
-> nūtana saṅgī ha-ibeka,—snigdha yāṅra mana
+> nūtana saṅgī ha-ibeka,—snigdha yāṅra mana\
 > aiche yabe pāi, tabe la-i 'eka' jana
 
 *nūtana*—new; *saṅgī*—associate; *ha-ibeka*—must be; *snigdha*—very peaceful; *yāṅra*—whose; *mana*—mind; *aiche*—such; *yabe*—if; *pāi*—I get; *tabe*—then; *la-i*—I take; *eka jana*—one person.

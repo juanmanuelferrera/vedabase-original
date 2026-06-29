@@ -1,13 +1,13 @@
 ### CC Antya 1.155
 
-> হিত্বা দূরে পথি ধবতরোরন্তিকং ধর্মসেতো-
-> র্ভঙ্গোদগ্রা গুরুশিখরিণং রংহসা লঙ্ঘয়ন্তী ।
-> লেভে কৃষ্ণার্ণব নবরসা রাধিকা-বাহিনী ত্বাং
+> হিত্বা দূরে পথি ধবতরোরন্তিকং ধর্মসেতো-\
+> র্ভঙ্গোদগ্রা গুরুশিখরিণং রংহসা লঙ্ঘয়ন্তী ।\
+> লেভে কৃষ্ণার্ণব নবরসা রাধিকা-বাহিনী ত্বাং\
 > বাগ্বীচীভিঃ কিমিব বিমুখীভাবমস্যাস্তনোষি ॥১৫৫॥
 
-> hitvā dūre pathi dhava-taror antikaṁ dharā-setor
-> bhaṅgodagrā guru-śikhariṇaṁ raṁhasā laṅghayantī
-> lebhe kṛṣṇārṇava nava-rasā rādhikā-vāhinī tvāṁ
+> hitvā dūre pathi dhava-taror antikaṁ dharā-setor\
+> bhaṅgodagrā guru-śikhariṇaṁ raṁhasā laṅghayantī\
+> lebhe kṛṣṇārṇava nava-rasā rādhikā-vāhinī tvāṁ\
 > vāg-vīcibhiḥ kim iva vimukhī-bhāvam asyās tanoṣi
 
 *hitvā*—giving up; *dūre*—far away; *pathi*—on the road; *dhava-taroḥ*—of the tree of the husband; *antikam*—the vicinity; *dharma-setoḥ*—the bridge of religion; *bhaṅga-udagrā*—being strong enough for breaking; *guru-śikhariṇam*—the hill of the superior relatives; *raṁhasā*—with great force; *laṅghayantī*—crossing over; *lebhe*—has obtained; *kṛṣṇa-arṇava*—O ocean of Kṛṣṇa; *nava-rasā*—being influenced by new ecstatic love; *rādhikā*—Śrīmatī Rādhārāṇī; *vāhinī*—like a river; *tvām*—You; *vāk-vīcibhiḥ*—only by the waves of words; *kim*—how; *iva*—like this; *vimukhī-bhāvam*—indifference; *asyāḥ*—toward Her; *tanoṣi*—You are spreading.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.164
 
-> ‘ভক্ত্যে’ ভগবানের অনুভব — পূর্ণরূপ ।
+> ‘ভক্ত্যে’ ভগবানের অনুভব — পূর্ণরূপ ।\
 > একই বিগ্রহে তাঁর অনন্ত স্বরূপ ॥১৬৪॥
 
-> 'bhaktye' bhagavānera anubhava—pūrṇa-rūpa
+> 'bhaktye' bhagavānera anubhava—pūrṇa-rūpa\
 > eka-i vigrahe tāṅra ananta svarūpa
 
 *bhaktye*—by devotional service; *bhagavānera*—of the Supreme Personality of Godhead; *anubhava*—perception; *pūrṇa-rūpa*—perfectly; *eka-i*—one; *vigrahe*—in the transcendental form; *tāṅra*—His; *ananta*—unlimited; *sva-rūpa*—expansions of plenary portions.

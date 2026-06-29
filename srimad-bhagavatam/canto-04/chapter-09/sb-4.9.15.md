@@ -1,13 +1,13 @@
 ### SB 4.9.15
 
-> त्वं नित्यमुक्तपरिशुद्धविबुद्ध आत्मा
-> कूटस्थ आदिपुरुषो भगवांस्त्र्यधीशः ।
-> यद्बुद्ध्यवस्थितिमखण्डितया स्वदृष्ट्या
+> त्वं नित्यमुक्तपरिशुद्धविबुद्ध आत्मा\
+> कूटस्थ आदिपुरुषो भगवांस्त्र्यधीशः ।\
+> यद्बुद्ध्यवस्थितिमखण्डितया स्वदृष्ट्या\
 > द्रष्टा स्थितावधिमखो व्यतिरिक्त आस्से ॥१५॥
 
-> tvaṁ nitya-mukta-pariśuddha-vibuddha ātmā
-> kūṭa-stha ādi-puruṣo bhagavāṁs try-adhīśaḥ
-> yad-buddhy-avasthitim akhaṇḍitayā sva-dṛṣṭyā
+> tvaṁ nitya-mukta-pariśuddha-vibuddha ātmā\
+> kūṭa-stha ādi-puruṣo bhagavāṁs try-adhīśaḥ\
+> yad-buddhy-avasthitim akhaṇḍitayā sva-dṛṣṭyā\
 > draṣṭā sthitāv adhimakho vyatirikta āsse
 
 *tvam*—You; *nitya*—eternally; *mukta*—liberated; *pariśuddha*—uncontaminated; *vibuddhaḥ*—full of knowledge; *ātmā*—the Supreme Soul; *kūṭa-sthaḥ*—changeless; *ādi*—original; *puruṣaḥ*—person; *bhagavān*—the Lord, full with six opulences; *tri-adhīśaḥ*—master of the three modes; *yat*—whence; *buddhi*—of intellectual activities; *avasthitim*—all stages; *akhaṇḍitayā*—unbroken; *sva-dṛṣṭyā*—by transcendental vision; *draṣṭā*—You witness; *sthitau*—for maintaining (the universe); *adhimakhaḥ*—enjoyer of the results of all sacrifices; *vyatiriktaḥ*—differently; *āsse*—You are situated.

@@ -1,11 +1,11 @@
 ### SB 6.4.7
 
-> न द्रुमेभ्यो महाभागा दीनेभ्यो द्रोग्धुमर्हथ
+> न द्रुमेभ्यो महाभागा दीनेभ्यो द्रोग्धुमर्हथ\
 > विवर्धयिषवो यूयं प्रजानां पतयः स्मृताः ॥७॥
 
-> na drumebhyo mahā-bhāgā
-> dīnebhyo drogdhum arhatha
-> vivardhayiṣavo yūyaṁ
+> na drumebhyo mahā-bhāgā\
+> dīnebhyo drogdhum arhatha\
+> vivardhayiṣavo yūyaṁ\
 > prajānāṁ patayaḥ smṛtāḥ
 
 *na*—no; *drumebhyaḥ*—los árboles; *mahā-bhāgāḥ*—¡oh, personas muy afortunadas!; *dīnebhyaḥ*—que son muy pobres; *drogdhum*—reducir a cenizas; *arhatha*—merecen; *vivardhayiṣavaḥ*—deseando traer un aumento; *yūyam*—ustedes; *prajānām*—de todas las entidades vivientes que se han refugiado en ustedes; *patayaḥ*—los amos o protectores; *smṛtāḥ*—conocidos como.

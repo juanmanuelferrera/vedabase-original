@@ -1,9 +1,9 @@
 ### CC Madhya 1.123
 
-> ভক্তসনে দিন কত তাহাঞি রহিলা ।
+> ভক্তসনে দিন কত তাহাঞি রহিলা ।\
 > গৌড়ের ভক্ত আইসে, সমাচার পাইলা ॥১২৩॥
 
-> bhakta-sane dina kata tāhāñi rahilā
+> bhakta-sane dina kata tāhāñi rahilā\
 > gauḍera bhakta āise, samācāra pāilā
 
 *bhakta-sane*—con los devotos; *dina kata*—algunos días; *tāhāñi*—allí en Ālālanātha; *rahilā*—permaneció; *gauḍera*—de Bengala; *bhakta*—devotos; *āise*—vienen; *samācāra*—noticias; *pāilā*—recibió.

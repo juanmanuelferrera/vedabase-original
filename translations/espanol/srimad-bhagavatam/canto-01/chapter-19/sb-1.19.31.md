@@ -1,11 +1,11 @@
 ### SB 1.19.31
 
-> प्रशान्तमासीनमकुण्ठमेधसं मुनिं नृपो भागवतोऽभ्युपेत्य ।
+> प्रशान्तमासीनमकुण्ठमेधसं मुनिं नृपो भागवतोऽभ्युपेत्य ।\
 > प्रणम्य मूर्ध्नावहितः कृताञ्जलिर्नत्वा गिरा सूनृतयान्वपृच्छत् ॥३१॥
 
-> praśāntam āsīnam akuṇṭha-medhasaṁ
-> muniṁ nṛpo bhāgavato 'bhyupetya
-> praṇamya mūrdhnāvahitaḥ kṛtāñjalir
+> praśāntam āsīnam akuṇṭha-medhasaṁ\
+> muniṁ nṛpo bhāgavato 'bhyupetya\
+> praṇamya mūrdhnāvahitaḥ kṛtāñjalir\
 > natvā girā sūnṛtayānvapṛcchat
 
 *praśāntam*—perfectamente apacible; *āsīnam*—sentado; *akuṇṭha*—sin vacilación; *medhasam*—aquel que tiene suficiente inteligencia; *munim*—al gran sabio; *nṛpaḥ*—el rey (Mahārāja Parīkṣit); *bhāgavataḥ*—el gran devoto; *abhyupetya*—acercándose a él; *praṇamya*—postrándose; *mūrdhnā*—la cabeza; *avahitaḥ*—debidamente; *kṛta-añjaliḥ*—con las manos juntas; *natvā*—cortésmente; *girā*—mediante palabras; *sūnṛtayā*—con una voz grata; *anvapṛcchat*—preguntó.

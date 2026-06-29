@@ -1,11 +1,11 @@
 ### SB 1.17.12
 
-> कोऽवृश्चत्तव पादांस्त्रीन्सौरभेय चतुष्पद ।
+> कोऽवृश्चत्तव पादांस्त्रीन्सौरभेय चतुष्पद ।\
 > मा भूवंस्त्वादृशा राष्ट्रे राज्ञां कृष्णानुवर्तिनाम् ॥१२॥
 
-> ko 'vṛścat tava pādāṁs trīn
-> saurabheya catuṣ-pada
-> mā bhūvaṁs tvādṛśā rāṣṭre
+> ko 'vṛścat tava pādāṁs trīn\
+> saurabheya catuṣ-pada\
+> mā bhūvaṁs tvādṛśā rāṣṭre\
 > rājñāṁ kṛṣṇānuvartinām
 
 *kaḥ*—who is he; *avṛścat*—cut off; *tava*—your; *pādān*—legs; *trīn*—three; *saurabheya*—O son of Surabhi; *catuḥ-pada*—you are four-legged; *mā*—never to be; *bhūvan*—it so happened; *tvādṛśāḥ*—as yourself; *rāṣṭre*—in the state; *rājñām*—of the kings; *kṛṣṇa-anuvartinām*—those who follow the codes of Kṛṣṇa, the Supreme Personality of Godhead.

@@ -1,9 +1,9 @@
 ### CC Antya 12.114
 
-> পথে যাইতে তৈলগন্ধ মোর যেই পাবে ।
+> পথে যাইতে তৈলগন্ধ মোর যেই পাবে ।\
 > ‘দারী সন্ন্যাসী’ করি’ আমারে কহিবে ॥১১৪॥
 
-> pathe yāite taila-gandha mora yei pābe
+> pathe yāite taila-gandha mora yei pābe\
 > 'dārī sannyāsī' kari' āmāre kahibe
 
 *pathe yāite*—al pasar por el camino; *taila-gandha*—el aroma del aceite; *mora*—Mío; *yei pābe*—quienquiera que lo huela; *dārī sannyāsī*—un *sannyāsī* tántrico que mantiene mujeres para la complacencia de los sentidos; *kari'*—como; *āmāre kahibe*—hablarán de Mí.

@@ -1,13 +1,13 @@
 ### SB 8.22.2
 
-> श्रीबलिरुवाच
-> यद्युत्तमश्लोक भवान्ममेरितं वचो व्यलीकं सुरवर्य मन्यते
+> श्रीबलिरुवाच\
+> यद्युत्तमश्लोक भवान्ममेरितं वचो व्यलीकं सुरवर्य मन्यते\
 > करोम्यृतं तन्न भवेत्प्रलम्भनं पदं तृतीयं कुरु शीर्ष्णि मे निजम ॥२॥
 
-> śrī-balir uvāca
-> yady uttamaśloka bhavān mameritaṁ
-> vaco vyalīkaṁ sura-varya manyate
-> karomy ṛtaṁ tan na bhavet pralambhanaṁ
+> śrī-balir uvāca\
+> yady uttamaśloka bhavān mameritaṁ\
+> vaco vyalīkaṁ sura-varya manyate\
+> karomy ṛtaṁ tan na bhavet pralambhanaṁ\
 > padaṁ tṛtīyaṁ kuru śīrṣṇi me nijam
 
 *śrī-baliḥ uvāca*—Bali Mahārāja dijo; *yadi*—si; *uttamaśloka*—¡oh, Señor Supremo!; *bhavān*—Tu Gracia; *mama*—mis; *īritam*—prometidas; *vacaḥ*—palabras; *vyalīkam*—falsas; *sura-varya*—¡oh, el más grande de todos los *suras* (semidioses)!; *manvate*—Tú así lo crees; *karomi*—yo la haré; *ṛtam*—verdad; *tat*—esa (promesa); *na*—no; *bhavet*—resultará; *pralambhanam*—engaño; *padam*—paso; *tṛtīyam*—el tercero; *kuru*—simplemente dalo; *śīrṣṇi*—sobre la cabeza; *me*—mía; *nijam*—Tus pies de loto.

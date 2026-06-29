@@ -1,12 +1,12 @@
 ### SB 9.8.22
 
-> अंशुमानुवाच
-> न पश्यति त्वां परमात्मनोऽजनो न बुध्यतेऽद्यापि समाधियुक्तिभिः
+> अंशुमानुवाच\
+> न पश्यति त्वां परमात्मनोऽजनो न बुध्यतेऽद्यापि समाधियुक्तिभिः\
 > कुतोऽपरे तस्य मनःशरीरधी विसर्गसृष्टा वयमप्रकाशाः ॥२२॥
 
-> ye deha-bhājas tri-guṇa-pradhānā
-> guṇān vipaśyanty uta vā tamaś ca
-> yan-māyayā mohita-cetasas tvāṁ
+> ye deha-bhājas tri-guṇa-pradhānā\
+> guṇān vipaśyanty uta vā tamaś ca\
+> yan-māyayā mohita-cetasas tvāṁ\
 > viduḥ sva-saṁsthaṁ na bahiḥ-prakāśāḥ
 
 *ye*—las personas que; *deha-bhājaḥ*—han recibido un cuerpo material; *tri-guṇa-pradhānāḥ*—bajo la influencia de las tres modalidades de la naturaleza material; *guṇān*—la manifestación de las tres modalidades de la naturaleza material; *vipaśyanti*—solo pueden ver; *uta*—se dice; *vā*—o bien; *tamaḥ*—la modalidad de la ignorancia; *ca*—y; *yat-māyayā*—por la energía ilusoria de quien; *mohita*—ha sido confundido; *cetasaḥ*—lo más profundo de cuyo corazón; *tvām*—a Tu Señoría; *viduḥ*—conocen; *sva-saṁstham*—situado en nuestro propio cuerpo; *na*—no; *bahiḥ-prakāśāḥ*—quienes solo pueden ver los productos de la energía externa.

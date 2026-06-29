@@ -1,11 +1,11 @@
 ### SB 3.2.8
 
-> दुर्भगो बत लोकोऽयं यदवो नितरामपि ।
+> दुर्भगो बत लोकोऽयं यदवो नितरामपि ।\
 > ये संवसन्तो न विदुर्हरिं मीना इवोडुपम् ॥८॥
 
-> durbhago bata loko 'yaṁ
-> yadavo nitarām api
-> ye saṁvasanto na vidur
+> durbhago bata loko 'yaṁ\
+> yadavo nitarām api\
+> ye saṁvasanto na vidur\
 > hariṁ mīnā ivoḍupam
 
 *durbhagaḥ*—desafortunado; *bata*—ciertamente; *lokaḥ*—universo; *ayam*—este; *yadavaḥ*—la dinastía Yadu; *nitarām*—más específicamente; *api*—también; *ye*—aquellos; *saṁvasantaḥ*—viviendo juntos; *na*—no; *viduḥ*—entendieron; *harim*—a la Personalidad de Dios; *mīnāḥ*—los peces; *iva uḍupam*—como la Luna.

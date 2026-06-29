@@ -1,9 +1,9 @@
 ### CC Antya 13.11
 
-> গোবিন্দেরে পুছেন, — ‘ইহা করাইল কোন্ জন ?’
+> গোবিন্দেরে পুছেন, — ‘ইহা করাইল কোন্ জন ?’\
 > জগদানন্দের নাম শুনি’ সঙ্কোচ হৈল মন ॥১১॥
 
-> govindere puchena,--'ihā karāila kon jana?'
+> govindere puchena,--'ihā karāila kon jana?'\
 > jagadānandera nāma śuni' saṅkoca haila mana
 
 *govindere puchena*—Le preguntó a Govinda; *ihā*—esto; *karāila*—ha hecho; *kon jana*—qué persona; *jagadānandera*—de Jagadānanda Paṇḍita; *nāma*—nombre; *śuni'*—al oír; *saṅkoca*—temeroso; *haila*—se puso; *mana*—la mente.

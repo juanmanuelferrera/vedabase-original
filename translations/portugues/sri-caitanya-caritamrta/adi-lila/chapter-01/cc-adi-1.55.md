@@ -1,8 +1,8 @@
 ### CC Adi 1.55
 
-> yathā mahānti bhūtāni
-> bhūteṣūccāvaceṣv anu
-> praviṣṭāny apraviṣṭāni
+> yathā mahānti bhūtāni\
+> bhūteṣūccāvaceṣv anu\
+> praviṣṭāny apraviṣṭāni\
 > tathā teṣu na teṣv aham
 
 *yathā*—assim como; *mahānti*—os universais; *bhūtāni*—elementos; *bhūteṣu*—nas entidades vivas; *ucca-avaceṣu*—tanto gigantescas quanto diminutas; *anu*—após; *praviṣṭāni*—situados internamente; *apraviṣṭāni*—situados externamente; *tathā*—assim; *teṣu*—neles; *na*—não; *teṣu*—neles; *aham*—Eu.

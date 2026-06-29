@@ -1,9 +1,9 @@
 ### CC Madhya 8.281
 
-> আপনে আইলে মোরে করিতে উদ্ধার ।
+> আপনে আইলে মোরে করিতে উদ্ধার ।\
 > এবে কপট কর, — তোমার কোন ব্যবহার ॥২৮১॥
 
-> āpane āile more karite uddhāra
+> āpane āile more karite uddhāra\
 > ebe kapaṭa kara,—tomāra kona vyavahāra
 
 *āpane*—personally; *āile*—You have come; *more*—unto me; *karite*—to make; *uddhāra*—deliverance; *ebe*—*now*; *kapaṭa*—duplicity; *kara*—You do; *tomāra*—Your; *kona*—what; *vyavahāra*—behavior.

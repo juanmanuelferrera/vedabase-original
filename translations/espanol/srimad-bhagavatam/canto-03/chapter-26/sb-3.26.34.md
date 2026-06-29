@@ -1,11 +1,11 @@
 ### SB 3.26.34
 
-> भूतानां छिद्रदातृत्वं बहिरन्तरमेव च ।
+> भूतानां छिद्रदातृत्वं बहिरन्तरमेव च ।\
 > प्राणेन्द्रियात्मधिष्ण्यत्वं नभसो वृत्तिलक्षणम् ॥३४॥
 
-> bhūtānāṁ chidra-dātṛtvaṁ
-> bahir antaram eva ca
-> prāṇendriyātma-dhiṣṇyatvaṁ
+> bhūtānāṁ chidra-dātṛtvaṁ\
+> bahir antaram eva ca\
+> prāṇendriyātma-dhiṣṇyatvaṁ\
 > nabhaso vṛtti-lakṣaṇam
 
 *bhūtānām*—de todas las entidades vivientes; *chidra-dātṛtvam*—emplazamiento del ámbito; *bahiḥ*—externa; *antaram*—interna; *eva*—también; *ca*—y; *prāṇa*—del aire vital; *indriya*—los sentidos; *ātma*—y la mente; *dhiṣṇyatvam*—siendo el campo de actividades; *nabhasaḥ*—del elemento etéreo; *vṛtti*—actividades; *lakṣaṇam*—características.

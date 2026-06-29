@@ -1,11 +1,11 @@
 ### SB 1.16.18
 
-> धर्मः पदैकेन चरन्विच्छायामुपलभ्य गाम् ।
+> धर्मः पदैकेन चरन्विच्छायामुपलभ्य गाम् ।\
 > पृच्छति स्माश्रुवदनां विवत्सामिव मातरम् ॥१८॥
 
-> dharmaḥ padaikena caran
-> vicchāyām upalabhya gām
-> pṛcchati smāśru-vadanāṁ
+> dharmaḥ padaikena caran\
+> vicchāyām upalabhya gām\
+> pṛcchati smāśru-vadanāṁ\
 > vivatsām iva mātaram
 
 *dharmaḥ*—la personalidad de los principios religiosos; *padā*—pata; *ekena*—en una sola; *caran*—deambulando; *vicchāyām*—dominada por la sombra de la angustia; *upalabhya*—habiéndose encontrado; *gām*—la vaca; *pṛcchati sma*—preguntando; *aśru-vadanām*—con lágrimas en la cara; *vivatsām*—aquella que ha perdido a su hijo; *iva*—como; *mātaram*—la madre.

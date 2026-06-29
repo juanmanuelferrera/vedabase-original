@@ -1,9 +1,9 @@
 ### SB 5.3.19
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > इति निशामयन्त्या मेरुदेव्याः पतिमभिधायान्तर्दधे भगवान ॥१८॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > iti niśāmayantyā merudevyāḥ patim abhidhāyāntardadhe bhagavān.
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *iti*—así; *niśāmayantyāḥ*—que estaba escuchando; *merudevyāḥ*—en presencia de Merudevī; *patim*—a su esposo; *abhidhāya*—haber hablado; *antardadhe*—desapareció; *bhagavān*—la Suprema Personalidad de Dios.

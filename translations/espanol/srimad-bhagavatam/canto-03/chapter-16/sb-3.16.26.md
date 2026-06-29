@@ -1,15 +1,15 @@
 ### SB 3.16.26
 
-> श्रीभगवानुवाच
-> एतौ सुरेतरगतिं प्रतिपद्य सद्यः
-> संरम्भसम्भृतसमाध्यनुबद्धयोगौ ।
-> भूयः सकाशमुपयास्यत आशु यो वः
+> श्रीभगवानुवाच\
+> एतौ सुरेतरगतिं प्रतिपद्य सद्यः\
+> संरम्भसम्भृतसमाध्यनुबद्धयोगौ ।\
+> भूयः सकाशमुपयास्यत आशु यो वः\
 > शापो मयैव निमितस्तदवेत विप्राः ॥२६॥
 
-> śrī-bhagavān uvāca
-> etau suretara-gatiṁ pratipadya sadyaḥ
-> saṁrambha-sambhṛta-samādhy-anubaddha-yogau
-> bhūyaḥ sakāśam upayāsyata āśu yo vaḥ
+> śrī-bhagavān uvāca\
+> etau suretara-gatiṁ pratipadya sadyaḥ\
+> saṁrambha-sambhṛta-samādhy-anubaddha-yogau\
+> bhūyaḥ sakāśam upayāsyata āśu yo vaḥ\
 > śāpo mayaiva nimitas tad aveta viprāḥ
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios contestó; *etau*—estos dos porteros; *sura-itara*—demoníaco; *gatim*—el vientre; *pratipadya*—obteniendo; *sadyaḥ*—rápidamente; *saṁrambha*—por la ira; *sambhṛta*—intensificada; *samādhi*—concentración de la mente; *anubaddha*—firmemente; *yogau*—unidos a Mí; *bhūyaḥ*—de nuevo; *sakāśam*—ante Mi presencia; *upayāsyataḥ*—regresarán; *āśu*—en breve; *yaḥ*—la cual; *vaḥ*—de ustedes; *śāpaḥ*—maldición; *mayā*—por Mí; *eva*—solo; *nimitaḥ*—ordenada; *tat*—eso; *aveta*—sepan; *viprāḥ*—¡oh, *brāhmaṇas*!.

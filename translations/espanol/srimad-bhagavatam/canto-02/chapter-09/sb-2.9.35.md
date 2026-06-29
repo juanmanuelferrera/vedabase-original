@@ -1,11 +1,11 @@
 ### SB 2.9.35
 
-> यथा महान्ति भूतानि भूतेषूच्चावचेष्वनु ।
+> यथा महान्ति भूतानि भूतेषूच्चावचेष्वनु ।\
 > प्रविष्टान्यप्रविष्टानि तथा तेषु न तेष्वहम् ॥३५॥
 
-> yathā mahānti bhūtāni
-> bhūteṣūccāvaceṣv anu
-> praviṣṭāny apraviṣṭāni
+> yathā mahānti bhūtāni\
+> bhūteṣūccāvaceṣv anu\
+> praviṣṭāny apraviṣṭāni\
 > tathā teṣu na teṣv aham
 
 *yathā*—así como; *mahānti*—del universo; *bhūtāni*—elementos; *bhūteṣu ucca-avaceṣu*—en el diminuto y gigantesco; *anu*—después; *praviṣṭāni*—entrados; *apraviṣṭāni*—no entrados; *tathā*—así; *teṣu*—en ellos; *na*—no; *teṣu*—en ellos; *aham*—Yo.

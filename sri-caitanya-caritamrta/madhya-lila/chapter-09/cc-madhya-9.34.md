@@ -2,7 +2,7 @@
 
 > এই বাক্যে কৃষ্ণ নামের মহিমা অপার । তথাপি লইতে নারি, শুন হেতু তার । ইষ্টদেব রাম, তাঁর নামে সুখ পাই । সুখ পাঞা রামনাম রাত্রিদিন গাই ॥৩৪॥
 
-> ei vākye kṛṣṇa-nāmera mahimā apāra
+> ei vākye kṛṣṇa-nāmera mahimā apāra\
 > tathāpi la-ite nāri, śuna hetu tāra
 
 *eivākye*—in this statement; *kṛṣṇa-nāmera*—of the holy name of Kṛṣṇa; *mahimā*—glories; *apāra*—unlimited; *tathāpi*—still; *la-ite*—to chant; *nāri*—I am unable; *śuna*—just hear; *hetu*—the reason; *tāra*—of that.

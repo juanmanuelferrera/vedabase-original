@@ -1,11 +1,11 @@
 ### SB 1.16.4
 
-> निजग्राहौजसा वीरः कलिं दिग्विजये क्वचित् ।
+> निजग्राहौजसा वीरः कलिं दिग्विजये क्वचित् ।\
 > नृपलिङ्गधरं शूद्रं घ्नन्तं गोमिथुनं पदा ॥४॥
 
-> nijagrāhaujasā vīraḥ
-> kaliṁ digvijaye kvacit
-> nṛpa-liṅga-dharaṁ śūdraṁ
+> nijagrāhaujasā vīraḥ\
+> kaliṁ digvijaye kvacit\
+> nṛpa-liṅga-dharaṁ śūdraṁ\
 > ghnantaṁ go-mithunaṁ padā
 
 *nijagrāha*—sufficiently punished; *ojasā*—by prowess; *vīraḥ*—valiant hero; *kalim*—unto Kali, the master of the age; *digvijaye*—on his way to conquer the world; *kvacit*—once upon a time; *nṛpa-liṅga-dharam*—one who passes in the dress of a king; *śūdram*—the lower class; *ghnantam*—hurting; *go-mithunam*—a cow and bull; *padā*—on the leg.

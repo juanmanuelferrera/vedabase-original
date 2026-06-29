@@ -1,11 +1,11 @@
 ### SB 2.10.10
 
-> पुरुषोऽण्डं विनिर्भिद्य यदासौ स विनिर्गतः ।
+> पुरुषोऽण्डं विनिर्भिद्य यदासौ स विनिर्गतः ।\
 > आत्मनोऽयनमन्विच्छन्नपोऽस्राक्षीच्छुचिः शुचीः ॥१०॥
 
-> puruṣo 'ṇḍaṁ vinirbhidya
-> yadāsau sa vinirgataḥ
-> ātmano 'yanam anvicchann
+> puruṣo 'ṇḍaṁ vinirbhidya\
+> yadāsau sa vinirgataḥ\
+> ātmano 'yanam anvicchann\
 > apo 'srākṣīc chuciḥ śucīḥ
 
 *puruṣaḥ*—the Supreme Person, Paramātmā; *aṇḍam*—the universes; *vinirbhidya*—making them each separately situated; *yadā*—when; *asau*—the same; *saḥ*—He (the Lord); *vinirgataḥ*—came out; *ātmanaḥ*—of Himself; *ayanam*—lying in place; *anvicchan*—desiring; *apaḥ*—water; *asrākṣīt*—created; *śuciḥ*—the most pure; *śucīḥ*—transcendental.

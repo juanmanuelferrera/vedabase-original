@@ -1,27 +1,27 @@
 ### SB 4.23.1-3
 
-> मैत्रेय उवाच
-> दृष्ट्वात्मानं प्रवयसमेकदा वैन्य आत्मवान् ।
-> आत्मना वर्धिताशेष स्वानुसर्गः प्रजापतिः ॥१॥
-> जगतस्तस्थुषश्चापि वृत्तिदो धर्मभृत्सताम् ।
-> निष्पादितेश्वरादेशो यदर्थमिह जज्ञिवान् ॥२॥
-> आत्मजेष्वात्मजां न्यस्य विरहाद्रुदतीमिव ।
+> मैत्रेय उवाच\
+> दृष्ट्वात्मानं प्रवयसमेकदा वैन्य आत्मवान् ।\
+> आत्मना वर्धिताशेष स्वानुसर्गः प्रजापतिः ॥१॥\
+> जगतस्तस्थुषश्चापि वृत्तिदो धर्मभृत्सताम् ।\
+> निष्पादितेश्वरादेशो यदर्थमिह जज्ञिवान् ॥२॥\
+> आत्मजेष्वात्मजां न्यस्य विरहाद्रुदतीमिव ।\
 > प्रजासु विमनःस्वेकः सदारोऽगात्तपोवनम् ॥३॥
 
-> maitreya uvāca
-> dṛṣṭvātmānaṁ pravayasam
-> ekadā vainya ātmavān
-> ātmanā vardhitāśeṣa-
+> maitreya uvāca\
+> dṛṣṭvātmānaṁ pravayasam\
+> ekadā vainya ātmavān\
+> ātmanā vardhitāśeṣa-\
 > svānusargaḥ prajāpatiḥ
 
-> jagatas tasthuṣaś cāpi
-> vṛttido dharma-bhṛt satām
-> niṣpāditeśvarādeśo
+> jagatas tasthuṣaś cāpi\
+> vṛttido dharma-bhṛt satām\
+> niṣpāditeśvarādeśo\
 > yad-artham iha jajñivān
 
-> ātmajeṣv ātmajāṁ nyasya
-> virahād rudatīm iva
-> prajāsu vimanaḥsv ekaḥ
+> ātmajeṣv ātmajāṁ nyasya\
+> virahād rudatīm iva\
+> prajāsu vimanaḥsv ekaḥ\
 > sa-dāro 'gāt tapo-vanam
 
 *maitreyaḥ uvāca*—el sabio Maitreya continuó hablando; *dṛṣṭvā*—después de ver; *ātmānam*—del cuerpo; *pravayasam*—vejez; *ekadā*—en cierta ocasión; *vainyaḥ*—el rey Pṛthu; *ātma-vān*—plenamente versado en la educación espiritual; *ātmanā*—por uno mismo; *vardhita*—aumentada; *aśeṣa*—ilimitadamente; *sva-anusargaḥ*—creación de opulencias materiales; *prajā-patiḥ*—un protector de los ciudadanos; *jagataḥ*—móviles; *tasthuṣaḥ*—inmóviles; *ca*—también; *api*—ciertamente; *vṛtti-daḥ*—el que concede pensiones; *dharma-bhṛt*—el que observa los principios religiosos; *satām*—de los devotos; *niṣpādita*—cumplida por completo; *īśvara*—de la Suprema Personalidad de Dios; *ādeśaḥ*—orden; *yat-artham*—en armonía con Él; *iha*—en este mundo; *jajñivān*—cumplió; *ātma-jeṣu*—a sus hijos; *ātma-jām*—la Tierra; *nyasya*—indicando; *virahāt*—por separación; *rudatīm iva*—como si se lamentasen; *prajāsu*—a los súbditos; *vimanaḥsu*—a los afligidos; *ekaḥ*—solo; *sa-dāraḥ*—con su esposa; *agāt*—fue; *tapaḥ-vanam*—al bosque, donde se pueden ejecutar austeridades.

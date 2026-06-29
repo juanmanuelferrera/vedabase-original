@@ -1,11 +1,11 @@
 ### CC Madhya 20.151
 
-> দশমে দশমং লক্ষ্যমাশ্রিতাশ্রয়-বিগ্রহম্ ।
+> দশমে দশমং লক্ষ্যমাশ্রিতাশ্রয়-বিগ্রহম্ ।\
 > শ্রীকৃষ্ণাখ্যং পরং ধাম জগদ্ধাম নমামি তৎ ॥১৫১॥
 
-> daśame daśamaṁ lakṣyam
-> āśritāśraya-vigraham
-> śrī-kṛṣṇākhyaṁ paraṁ dhāma
+> daśame daśamaṁ lakṣyam\
+> āśritāśraya-vigraham\
+> śrī-kṛṣṇākhyaṁ paraṁ dhāma\
 > jagad-dhāma namāmi tat
 
 *daśame*—en el Décimo Canto; *daśamam*—el décimo tema; *lakṣyam*—que debe ser contemplado; *āśrita*—de los refugiados; *āśraya*—del refugio; *vigraham*—quien es la forma; *śrī-kṛṣṇa-ākhyam*—conocido como el Señor Śrī Kṛṣṇa; *param*—suprema; *dhāma*—morada; *jagat-dhāma*—la morada de los universos; *namāmi*—ofrezco mis reverencias; *tat*—a Él.

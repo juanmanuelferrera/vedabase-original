@@ -1,9 +1,9 @@
 ### CC Antya 9.138
 
-> রাম-রায়ে, বাণীনাথে কৈলা ‘নির্বিষয়’ ।
+> রাম-রায়ে, বাণীনাথে কৈলা ‘নির্বিষয়’ ।\
 > সেই কৃপা মোতে নাহি, যাতে ঐছে হয় ! ॥ ১৩৮ ॥
 
-> rāma-rāye, vāṇīnāthe kailā 'nirviṣaya'
+> rāma-rāye, vāṇīnāthe kailā 'nirviṣaya'\
 > sei kṛpā mote nāhi, yāte aiche haya!
 
 *rāma-rāye*—Rāmānanda Rāya; *vāṇīnāthe*—Vāṇīnātha; *kailā*—has hecho; *nirviṣaya*—libre de todo apego material; *sei kṛpā*—esa misericordia; *mote nāhi*—yo no la he recibido; *yāte*—por la cual; *aiche*—tal; *haya*—es.

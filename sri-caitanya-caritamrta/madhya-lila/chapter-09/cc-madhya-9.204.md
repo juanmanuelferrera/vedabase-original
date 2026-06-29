@@ -1,9 +1,9 @@
 ### CC Madhya 9.204
 
-> সীতা লঞা রাখিলেন পার্বতীর স্থানে ।
+> সীতা লঞা রাখিলেন পার্বতীর স্থানে ।\
 > ‘মায়াসীতা’ দিয়া অগ্নি বঞ্চিলা রাবণে ॥২০৪॥
 
-> sītā lañā rākhilena pārvatīra sthāne
+> sītā lañā rākhilena pārvatīra sthāne\
 > 'māyā-sītā' diyā agni vañcilā rāvaṇe
 
 *sītā lañā*—taking away mother Sītā; *rākhilena*—kept; *pārvatīra sthāne*—with mother Pārvatī, or goddess Durgā; *māyā-sītā*—the false, illusory form of Sītā; *diyā*—delivering; *agni*—fire-god; *vañcilā*—cheated; *rāvaṇe*—the demon Rāvaṇa.

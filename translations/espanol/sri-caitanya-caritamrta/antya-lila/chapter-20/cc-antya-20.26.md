@@ -1,9 +1,9 @@
 ### CC Antya 20.26
 
-> এইমত হঞা যেই কৃষ্ণনাম লয় ।
+> এইমত হঞা যেই কৃষ্ণনাম লয় ।\
 > শ্রীকৃষ্ণচরণে তাঁর প্রেম উপজয় ॥২৬॥
 
-> ei-mata hañā yei kṛṣṇa-nāma laya
+> ei-mata hañā yei kṛṣṇa-nāma laya\
 > śrī-kṛṣṇa-caraṇe tāṅra prema upajaya
 
 *ei-mata*—de esta manera; *hañā*—volviéndose; *yei*—cualquiera que; *kṛṣṇa-nāma laya*—canta el santo nombre de Kṛṣṇa; *śrī-kṛṣṇa-caraṇe*—a los pies de loto del Señor Kṛṣṇa; *tāṅra*—su; *prema upajaya*—el amor por Kṛṣṇa despierta.

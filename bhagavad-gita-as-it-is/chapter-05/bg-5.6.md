@@ -1,11 +1,11 @@
 ### Bg 5.6
 
-> संन्यासस्तु महाबाहो दुःखमाप्तुमयोगतः ।
+> संन्यासस्तु महाबाहो दुःखमाप्तुमयोगतः ।\
 > योगयुक्तो मुनिर्ब्रह्म नचिरेणाधिगच्छति ॥६॥
 
-> sannyāsas tu mahā-bāho
-> duḥkham āptum ayogataḥ
-> yoga-yukto munir brahma
+> sannyāsas tu mahā-bāho\
+> duḥkham āptum ayogataḥ\
+> yoga-yukto munir brahma\
 > na cireṇādhigacchati
 
 *sannyāsaḥ*—the renounced order of life; *tu*—but; *mahā-bāho*—O mighty-armed one; *duḥkham*—distress; *āptum*—to be afflicted with; *ayogataḥ*—without devotional service; *yoga-yuktaḥ*—one engaged in devotional service; *muniḥ*—thinker; *brahma*—Supreme; *na*—without; *cireṇa*—delay; *adhigacchati*—attains.

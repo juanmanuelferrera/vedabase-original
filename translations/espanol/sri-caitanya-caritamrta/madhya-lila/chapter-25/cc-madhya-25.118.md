@@ -1,9 +1,9 @@
 ### CC Madhya 25.118
 
-> মায়াতীত হৈলে হয় আমার ‘অনুভব’ ।
+> মায়াতীত হৈলে হয় আমার ‘অনুভব’ ।\
 > এই ‘সম্বন্ধ’-তত্ত্ব কহিলুঁ, শুন আর সব ॥১১৮॥
 
-> māyātīta haile haya āmāra 'anubhava'
+> māyātīta haile haya āmāra 'anubhava'\
 > ei 'sambandha'-tattva kahiluṅ, śuna āra saba
 
 *māyā-atīta haile*—cuando uno se sitúa trascendentalmente por encima de esta energía externa; *haya*—hay; *āmāra anubhava*—percepción de Mí; *ei sambandha-tattva kahiluṅ*—esto se ha explicado como el principio de la relación conmigo; *śuna*—por favor escuchad; *āra saba*—todo lo demás.

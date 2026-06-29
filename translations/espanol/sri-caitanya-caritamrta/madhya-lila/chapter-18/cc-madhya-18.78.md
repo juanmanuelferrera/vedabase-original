@@ -1,9 +1,9 @@
 ### CC Madhya 18.78
 
-> তেঁতুল-তলে বসি’ করে নাম সংকীর্তন ।
+> তেঁতুল-তলে বসি’ করে নাম সংকীর্তন ।\
 > মধ্যাহ্ন করি’ আসি’ করে ‘অক্রূরে’ ভোজন ॥৭৮॥
 
-> teṅtula-tale vasi' kare nāma-saṅkīrtana
+> teṅtula-tale vasi' kare nāma-saṅkīrtana\
 > madhyāhna kari' āsi' kare 'akrūre' bhojana
 
 *teṅtula-tale*—bajo el árbol de tamarindo; *vasi'*—sentándose; *kare*—realiza; *nāma-saṅkīrtana*—el canto del santo nombre del Señor; *madhyāhna kari'*—al mediodía; *āsi'*—al regresar; *kare*—realiza; *akrūre*—en Akrūra-tīrtha; *bhojana*—tomar el almuerzo.

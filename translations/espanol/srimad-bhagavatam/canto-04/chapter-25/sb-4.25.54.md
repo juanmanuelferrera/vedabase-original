@@ -1,11 +1,11 @@
 ### SB 4.25.54
 
-> अन्धावमीषां पौराणां निर्वाक्पेशस्कृतावुभौ ।
+> अन्धावमीषां पौराणां निर्वाक्पेशस्कृतावुभौ ।\
 > अक्षण्वतामधिपतिस्ताभ्यां याति करोति च ॥५४॥
 
-> andhāv amīṣāṁ paurāṇāṁ
-> nirvāk-peśaskṛtāv ubhau
-> akṣaṇvatām adhipatis
+> andhāv amīṣāṁ paurāṇāṁ\
+> nirvāk-peśaskṛtāv ubhau\
+> akṣaṇvatām adhipatis\
 > tābhyāṁ yāti karoti ca
 
 *andhau*—ciegos; *amīṣām*—entre aquellos; *paurāṇām*—de los habitantes; *nirvāk*—de nombre Nirvāk; *peśaskṛtau*—de nombre Peśaskṛt; *ubhau*—ambos; *akṣaṇ-vatām*—de la gente que tiene ojos; *adhipatiḥ*—gobernador; *tābhyām*—con ambos; *yāti*—solía ir; *karoti*—solía actuar; *ca*—y.

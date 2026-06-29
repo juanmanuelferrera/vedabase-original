@@ -1,9 +1,9 @@
 ### CC Madhya 7.32
 
-> গুণে দোষোদ্গার-চ্ছলে সবা নিষেধিয়া ৷
+> গুণে দোষোদ্গার-চ্ছলে সবা নিষেধিয়া ৷\
 > একাকী ভ্রমিবেন তীর্থ বৈরাগ্য করিয়া ৷৷ ৩২ ৷৷ ॥৩২॥
 
-> guṇe doṣodgāra-cchale sabā niṣedhiyā
+> guṇe doṣodgāra-cchale sabā niṣedhiyā\
 > ekākī bhramibena tīrtha vairāgya kariyā
 
 *guṇe*—en las buenas cualidades; *doṣa-udgāra-chale*—con el pretexto de atribuir defectos; *sabā*—a todos ellos; *niṣedhiyā*—prohibiendo; *ekākī*—solo; *bhramibena*—recorrerá; *tīrtha*—los lugares sagrados de peregrinaje; *vairāgya*—principios regulativos de la orden de vida de renuncia; *kariyā*—observando.

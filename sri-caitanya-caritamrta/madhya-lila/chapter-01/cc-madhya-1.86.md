@@ -1,9 +1,9 @@
 ### CC Madhya 1.86
 
-> ত্রিভঙ্গ-সুন্দর ব্রজে ব্রজেন্দ্রনন্দন ।
+> ত্রিভঙ্গ-সুন্দর ব্রজে ব্রজেন্দ্রনন্দন ।\
 > কাহাঁ পাব, এই বাঞ্ছা বাড়ে অনুক্ষণ ॥৮৬॥
 
-> tri-bhaṅga-sundara vraje vrajendra-nandana
+> tri-bhaṅga-sundara vraje vrajendra-nandana\
 > kāhāṅ pāba, ei vāñchā bāḍe anukṣaṇa
 
 *tri-bhaṅga*—bent in three places; *sundara*—beautiful; *vraje*—in Vṛndāvana; *vrajendra-nandana*—the son of Nanda Mahārāja; *kāhāṅ*—where; *pāba*—shall I get; *ei*—this; *vāñchā*—desire; *bāḍe*—increases; *anukṣaṇa*—incessantly.

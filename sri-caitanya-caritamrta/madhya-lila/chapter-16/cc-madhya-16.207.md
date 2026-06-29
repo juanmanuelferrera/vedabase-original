@@ -1,9 +1,9 @@
 ### CC Madhya 16.207
 
-> ‘বাচস্পতি-গৃহে’ প্রভু যেমতে রহিলা ।
+> ‘বাচস্পতি-গৃহে’ প্রভু যেমতে রহিলা ।\
 > লোক-ভিড় ভয়ে যৈছে ‘কুলিয়া’ আইলা ॥২০৭॥
 
-> 'vācaspati-gṛhe' prabhu yemate rahilā
+> 'vācaspati-gṛhe' prabhu yemate rahilā\
 > loka-bhiḍa bhaye yaiche 'kuliyā' āilā
 
 *vācaspati-gṛhe*—at the house of Vidyā-vācaspati; *prabhu*—the Lord; *yemate*—as; *rahilā*—stayed there for some time; *loka-bhiḍa bhaye*—due to fear of crowds of people; *yaiche*—just as; *kuliyā āilā*—He came to Kuliyā, the present city of Navadvīpa.

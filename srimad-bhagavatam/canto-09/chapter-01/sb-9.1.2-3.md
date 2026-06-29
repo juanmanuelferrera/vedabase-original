@@ -1,18 +1,18 @@
 ### SB 9.1.2-3
 
-> योऽसौ सत्यव्रतो नाम राजर्षिर्द्रविडेश्वरः
-> ज्ञआनं योऽतीतकल्पान्ते लेभे पुरुषसेवया ॥२॥
-> स वै विवस्वतः पुत्रो मनुरासीदिति श्रुतम
+> योऽसौ सत्यव्रतो नाम राजर्षिर्द्रविडेश्वरः\
+> ज्ञआनं योऽतीतकल्पान्ते लेभे पुरुषसेवया ॥२॥\
+> स वै विवस्वतः पुत्रो मनुरासीदिति श्रुतम\
 > त्वत्तस्तस्य सुताः प्रोक्ता इक्ष्वाकुप्रमुखा नृपाः ॥३॥
 
-> yo 'sau satyavrato nāma
-> rājarṣir draviḍeśvaraḥ
-> jñānaṁ yo 'tīta-kalpānte
+> yo 'sau satyavrato nāma\
+> rājarṣir draviḍeśvaraḥ\
+> jñānaṁ yo 'tīta-kalpānte\
 > lebhe puruṣa-sevayā
 
-> sa vai vivasvataḥ putro
-> manur āsīd iti śrutam
-> tvattas tasya sutāḥ proktā
+> sa vai vivasvataḥ putro\
+> manur āsīd iti śrutam\
+> tvattas tasya sutāḥ proktā\
 > ikṣvāku-pramukhā nṛpāḥ
 
 *yaḥ asau*—he who was known; *satyavrataḥ*—Satyavrata; *nāma*—by the name; *rāja-ṛṣiḥ*—the saintly king; *draviḍa-īśvaraḥ*—the ruler of the Draviḍa countries; *jñānam*—knowledge; *yaḥ*—one who; *atīta-kalpa-ante*—at the end of the period of the last Manu, or at the end of the last millennium; *lebhe*—received; *puruṣa-sevayā*—by rendering service to the Supreme Personality of Godhead; *saḥ*—he; *vai*—indeed; *vivasvataḥ*—of Vivasvān; *putraḥ*—son; *manuḥ āsīt*—became the Vaivasvata Manu; *iti*—thus; *śrutam*—I have already heard; *tvattaḥ*—from you; *tasya*—his; *sutāḥ*—sons; *proktāḥ*—have been explained; *ikṣvāku-pramukhāḥ*—headed by Ikṣvāku; *nṛpāḥ*—many kings.

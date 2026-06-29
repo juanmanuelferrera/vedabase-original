@@ -1,9 +1,9 @@
 ### CC Antya 17.28
 
-> শুনিতে না পাইনু সেই অমৃতসম বাণী ।
+> শুনিতে না পাইনু সেই অমৃতসম বাণী ।\
 > শুনিতে না পাইনু ভূষণ-মুরলীর ধ্বনি ।।” ॥ ২৮ ॥
 
-> śunite nā pāinu sei amṛta-sama vāṇī
+> śunite nā pāinu sei amṛta-sama vāṇī\
 > śunite nā pāinu bhūṣaṇa-muralīra dhvani"
 
 *śunite nā pāinu*—I could not hear; *sei*—those; *amṛta-sama*—exactly like nectar; *vāṇī*—voices; *śunite nā pāinu*—I could not hear; *bhūṣaṇa*—of ornaments; *muralīra*—of the flute; *dhvani*—vibration.

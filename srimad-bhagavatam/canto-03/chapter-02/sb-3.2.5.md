@@ -1,11 +1,11 @@
 ### SB 3.2.5
 
-> पुलकोद्भिन्नसर्वाङ्गो मुञ्चन्मीलद्दृशा शुचः ।
+> पुलकोद्भिन्नसर्वाङ्गो मुञ्चन्मीलद्दृशा शुचः ।\
 > पूर्णार्थो लक्षितस्तेन स्नेहप्रसरसम्प्लुतः ॥५॥
 
-> pulakodbhinna-sarvāṅgo
-> muñcan mīlad-dṛśā śucaḥ
-> pūrṇārtho lakṣitas tena
+> pulakodbhinna-sarvāṅgo\
+> muñcan mīlad-dṛśā śucaḥ\
+> pūrṇārtho lakṣitas tena\
 > sneha-prasara-samplutaḥ
 
 *pulaka-udbhinna*—bodily changes of transcendental ecstasy; *sarva-aṅgaḥ*—every part of the body; *muñcan*—smearing; *mīlat*—opening; *dṛśā*—by the eyes; *śucaḥ*—tears of grief; *pūrṇa-arthaḥ*—complete achievement; *lakṣitaḥ*—thus observed; *tena*—by Vidura; *sneha-prasara*—extensive love; *samplutaḥ*—thoroughly assimilated.

@@ -1,9 +1,9 @@
 ### CC Madhya 18.147
 
-> গঙ্গাতীর-পথে সুখ জানাইহ তাঁরে ।
+> গঙ্গাতীর-পথে সুখ জানাইহ তাঁরে ।\
 > ভট্টাচার্য আসি’ তবে কহিল প্রভুরে ॥১৪৭॥
 
-> gaṅgā-tīra-pathe sukha jānāiha tāṅre
+> gaṅgā-tīra-pathe sukha jānāiha tāṅre\
 > bhaṭṭācārya āsi' tabe kahila prabhure
 
 *gaṅgā-tīra*—en la ribera del Ganges; *pathe*—por el camino; *sukha*—felicidad; *jānāiha*—ten la bondad de hacerle saber; *tāṅre*—a Śrī Caitanya Mahāprabhu; *bhaṭṭācārya*—Balabhadra Bhaṭṭācārya; *āsi'*—viniendo; *tabe*—después de eso; *kahila prabhure*—informó a Śrī Caitanya Mahāprabhu.

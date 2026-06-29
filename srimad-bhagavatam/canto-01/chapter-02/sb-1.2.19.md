@@ -1,11 +1,11 @@
 ### SB 1.2.19
 
-> तदा रजस्तमोभावाः कामलोभादयश्च ये ।
+> तदा रजस्तमोभावाः कामलोभादयश्च ये ।\
 > चेत एतैरनाविद्धं स्थितं सत्त्वे प्रसीदति ॥१९॥
 
-> tadā rajas-tamo-bhāvāḥ
-> kāma-lobhādayaś ca ye
-> ceta etair anāviddhaṁ
+> tadā rajas-tamo-bhāvāḥ\
+> kāma-lobhādayaś ca ye\
+> ceta etair anāviddhaṁ\
 > sthitaṁ sattve prasīdati
 
 *tadā*—at that time; *rajaḥ*—in the mode of passion; *tamaḥ*—the mode of ignorance; *bhāvāḥ*—the situation; *kāma*—lust and desire; *lobha*—hankering; *ādayaḥ*—others; *ca*—and; *ye*—whatever they are; *cetaḥ*—the mind; *etaiḥ*—by these; *anāviddham*—without being affected; *sthitam*—being fixed; *sattve*—in the mode of goodness; *prasīdati*—thus becomes fully satisfied.

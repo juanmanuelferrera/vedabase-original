@@ -1,11 +1,11 @@
 ### SB 5.13.18
 
-> द्रुमेषु रंस्यन्सुतदारवत्सलो व्यवायदीनो विवशः स्वबन्धने
+> द्रुमेषु रंस्यन्सुतदारवत्सलो व्यवायदीनो विवशः स्वबन्धने\
 > क्वचित्प्रमादाद्गिरिकन्दरे पतन्वल्लीं गृहीत्वा गजभीत आस्थितः ॥१८॥
 
-> drumeṣu raṁsyan suta-dāra-vatsalo
-> vyavāya-dīno vivaśaḥ sva-bandhane
-> kvacit pramādād giri-kandare patan
+> drumeṣu raṁsyan suta-dāra-vatsalo\
+> vyavāya-dīno vivaśaḥ sva-bandhane\
+> kvacit pramādād giri-kandare patan\
 > vallīṁ gṛhītvā gaja-bhīta āsthitaḥ
 
 *drumeṣu*—en los árboles (o en las casas que se alzan como árboles en los que los monos saltan de rama en rama); *raṁsyan*—disfrutando; *suta-dāra-vatsalaḥ*—apegado a la esposa y los hijos; *vyavāya-dīnaḥ*—de corazón mezquino por actuar en el plano del deseo sexual; *vivaśaḥ*—incapaz de abandonar; *sva-bandhane*—en el cautiverio de las reacciones de las propias actividades; *kvacit*—a veces; *pramādāt*—del temor a la muerte inminente; *giri-kandare*—en una cueva de la montaña; *patan*—caer; *vallīm*—las ramas de una enredadera; *gṛhītvā*—agarrando; *gaja-bhītaḥ*—temeroso del elefante de la muerte; *āsthitaḥ*—permanece en esa posición.

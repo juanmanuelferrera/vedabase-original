@@ -1,11 +1,11 @@
 ### SB 1.7.20
 
-> अथोपस्पृश्य सलिलं सन्दधे तत्समाहितः ।
+> अथोपस्पृश्य सलिलं सन्दधे तत्समाहितः ।\
 > अजानन्नपि संहारं प्राणकृच्छ्र उपस्थिते ॥२०॥
 
-> athopaspṛśya salilaṁ
-> sandadhe tat samāhitaḥ
-> ajānann api saṁhāraṁ
+> athopaspṛśya salilaṁ\
+> sandadhe tat samāhitaḥ\
+> ajānann api saṁhāraṁ\
 > prāṇa-kṛcchra upasthite
 
 *atha*—thus; *upaspṛśya*—touching in sanctity; *salilam*—water; *sandadhe*—chanted the hymns; *tat*—that; *samāhitaḥ*—being in concentration; *ajānan*—without knowing; *api*—although; *saṁhāram*—withdrawal; *prāṇa-kṛcchre*—life being put in danger; *upasthite*—being placed in such a position.

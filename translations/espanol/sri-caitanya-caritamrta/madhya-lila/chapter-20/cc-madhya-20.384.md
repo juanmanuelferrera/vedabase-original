@@ -1,9 +1,9 @@
 ### CC Madhya 20.384
 
-> ক্রমে বাল্য-পৌগণ্ড-কৈশোরতা-প্রাপ্তি ।
+> ক্রমে বাল্য-পৌগণ্ড-কৈশোরতা-প্রাপ্তি ।\
 > রাস-আদি লীলা করে, কৈশোরে নিত্যস্থিতি ॥৩৮৪॥
 
-> krame bālya-paugaṇḍa-kaiśoratā-prāpti
+> krame bālya-paugaṇḍa-kaiśoratā-prāpti\
 > rāsa-ādi līlā kare, kaiśore nitya-sthiti
 
 *krame*—gradualmente; *bālya*—infancia; *paugaṇḍa*—niñez; *kaiśoratā*—juventud; *prāpti*—desarrollo; *rāsa*—la danza con las gopīs; *ādi*—y otros; *līlā*—pasatiempos; *kare*—realiza; *kaiśore*—en Su edad de prejuventud; *nitya-sthiti*—existiendo eternamente.

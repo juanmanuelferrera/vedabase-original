@@ -1,9 +1,9 @@
 ### CC Antya 17.17
 
-> অচেতন পড়িয়াছেন, — যেন কুষ্মাণ্ড-ফল ।
+> অচেতন পড়িয়াছেন, — যেন কুষ্মাণ্ড-ফল ।\
 > বাহিরে জড়িমা, অন্তরে আনন্দ-বিহ্বল ॥১৭॥
 
-> acetana paḍiyāchena,--yena kuṣmāṇḍa-phala
+> acetana paḍiyāchena,--yena kuṣmāṇḍa-phala\
 > bāhire jaḍimā, antare ānanda-vihvala
 
 *acetana*—inconsciente; *paḍiyāchena*—estaba tendido; *yena*—como si fuera; *kuṣmāṇḍa-phala*—una calabaza; *bāhire*—externamente; *jaḍimā*—completa inercia; *antare*—internamente; *ānanda-vihvala*—abrumado de dicha trascendental.

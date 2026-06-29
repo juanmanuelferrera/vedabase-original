@@ -1,11 +1,11 @@
 ### SB 4.24.18
 
-> आत्मारामोऽपि यस्त्वस्य लोककल्पस्य राधसे ।
+> आत्मारामोऽपि यस्त्वस्य लोककल्पस्य राधसे ।\
 > शक्त्या युक्तो विचरति घोरया भगवान्भवः ॥१८॥
 
-> ātmārāmo 'pi yas tv asya
-> loka-kalpasya rādhase
-> śaktyā yukto vicarati
+> ātmārāmo 'pi yas tv asya\
+> loka-kalpasya rādhase\
+> śaktyā yukto vicarati\
 > ghorayā bhagavān bhavaḥ
 
 *ātma-ārāmaḥ*—satisfecho en sí mismo; *api*—aunque está; *yaḥ*—el que está; *tu*—pero; *asya*—este; *loka*—mundo material; *kalpasya*—cuando se manifiesta; *rādhase*—para colaborar en su existencia; *śaktyā*—potencias; *yuktaḥ*—ocupado; *vicarati*—actúa; *ghorayā*—muy peligrosas; *bhagavān*—Su Señoría; *bhavaḥ*—Śiva.

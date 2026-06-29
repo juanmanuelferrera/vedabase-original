@@ -1,13 +1,13 @@
 ### SB 7.9.26
 
-> क्वाहं रजःप्रभव ईश तमोऽधिकेऽस्मिन
-> जातः सुरेतरकुले क्व तवानुकम्पा
-> न ब्रह्मणो न तु भवस्य न वै रमाया
+> क्वाहं रजःप्रभव ईश तमोऽधिकेऽस्मिन\
+> जातः सुरेतरकुले क्व तवानुकम्पा\
+> न ब्रह्मणो न तु भवस्य न वै रमाया\
 > यन्मेऽर्पितः शिरसि पद्मकरः प्रसादः ॥२६॥
 
-> kvāhaṁ rajaḥ-prabhava īśa tamo 'dhike 'smin
-> jātaḥ suretara-kule kva tavānukampā
-> na brahmaṇo na tu bhavasya na vai ramāyā
+> kvāhaṁ rajaḥ-prabhava īśa tamo 'dhike 'smin\
+> jātaḥ suretara-kule kva tavānukampā\
+> na brahmaṇo na tu bhavasya na vai ramāyā\
 > yan me 'rpitaḥ śirasi padma-karaḥ prasādaḥ
 
 *kva*—where; *aham*—I (am); *rajaḥ-prabhavaḥ*—being born in a body full of passion; *īśa*—O my Lord; *tamaḥ*—the mode of ignorance; *adhike*—surpassing in; *asmin*—in this; *jātaḥ*—born; *sura-itara-kule*—in a family of atheists or demons (who are subordinate to the devotees); *kva*—where; *tava*—Your; *anukampā*—causeless mercy; *na*—not; *brahmaṇaḥ*—of Lord Brahmā; *na*—not; *tu*—but; *bhavasya*—of Lord Śiva; *na*—nor; *vai*—even; *ramāyāḥ*—of the goddess of fortune; *yat*—which; *me*—of me; *arpitaḥ*—offered; *śirasi*—on the head; *padma-karaḥ*—lotus hand; *prasādaḥ*—the symbol of mercy.

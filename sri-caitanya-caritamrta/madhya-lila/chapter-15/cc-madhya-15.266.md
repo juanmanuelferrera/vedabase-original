@@ -1,9 +1,9 @@
 ### CC Madhya 15.266
 
-> সেই রাত্রে অমোঘ কাহাঁ পলাঞা গেল ।
+> সেই রাত্রে অমোঘ কাহাঁ পলাঞা গেল ।\
 > প্রাতঃকালে তার বিসূচিকা-ব্যাধি হৈল ॥২৬৬॥
 
-> sei rātre amogha kāhāṅ palāñā gela
+> sei rātre amogha kāhāṅ palāñā gela\
 > prātaḥ-kāle tāra visūcikā-vyādhi haila
 
 *sei rātre*—that night; *amogha*—the son-in-law of Sārvabhauma Bhaṭṭācārya; *kāhāṅ*—where; *palāñā gela*—fled; *prātaḥ-kāle*—in the morning; *tāra*—his; *visūcikā-vyādhi*—infection of cholera; *haila*—there was.

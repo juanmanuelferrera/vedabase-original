@@ -1,9 +1,9 @@
 ### CC Madhya 19.93
 
-> আসি’তেঁহো কৈল প্রভুর চরণ বন্দন ।
+> আসি’তেঁহো কৈল প্রভুর চরণ বন্দন ।\
 > ‘কৃষ্ণে মতি রহু’ বলি’ প্রভুর বচন ॥৯৩॥
 
-> āsi' teṅho kaila prabhura caraṇa vandana
+> āsi' teṅho kaila prabhura caraṇa vandana\
 > 'kṛṣṇe mati rahu' bali' prabhura vacana
 
 *āsi'*—coming; *teṅho*—he; *kaila*—did; *prabhura*—of Śrī Caitanya Mahāprabhu; *caraṇa vandana*—worshiping the lotus feet; *kṛṣṇe mati rahu*—just remain always Kṛṣṇa conscious; *bali'*—saying; *prabhura vacana*—the blessings of Śrī Caitanya Mahāprabhu.

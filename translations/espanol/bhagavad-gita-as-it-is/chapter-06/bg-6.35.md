@@ -1,13 +1,13 @@
 ### Bg 6.35
 
-> श्रीभगवानुवाच ।
-> असंशयं महाबाहो मनो दुर्निग्रहं चलम् ।
+> श्रीभगवानुवाच ।\
+> असंशयं महाबाहो मनो दुर्निग्रहं चलम् ।\
 > अभ्यासेन तु कौन्तेय वैराग्येण च गृह्यते ॥३५॥
 
-> śrī bhagavān uvāca
-> asaṁśayaṁ mahā-bāho
-> mano durnigrahaṁ calam
-> abhyāsena tu kaunteya
+> śrī bhagavān uvāca\
+> asaṁśayaṁ mahā-bāho\
+> mano durnigrahaṁ calam\
+> abhyāsena tu kaunteya\
 > vairāgyeṇa ca gṛhyate
 
 *śrī bhagavān uvāca*—la Personalidad de Dios dijo; *asaṁśayaṁ*—indudablemente; *mahā-bāho*—¡oh, el de los poderosos brazos!; *manaḥ*—la mente; *durnigraham*—difícil de someter; *calam*—fluctuante; *abhyāsena*—mediante la práctica; *tu*—pero; *kaunteya*—¡oh, hijo de Kuntī!; *vairāgyeṇa*—mediante el desapego; *ca*—también; *gṛhyate*—se puede controlar de ese modo.

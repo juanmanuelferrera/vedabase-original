@@ -1,11 +1,11 @@
 ### SB 4.5.10
 
-> यस्त्वन्तकाले व्युप्तजटाकलापः स्वशूलसूच्यर्पितदिग्गजेन्द्रः ।
+> यस्त्वन्तकाले व्युप्तजटाकलापः स्वशूलसूच्यर्पितदिग्गजेन्द्रः ।\
 > वितत्य नृत्यत्युदितास्त्रदोर्ध्वजानुच्चाट्टहासस्तनयित्नुभिन्नदिक् ॥१०॥
 
-> yas tv anta-kāle vyupta-jaṭā-kalāpaḥ
-> sva-śūla-sūcy-arpita-dig-gajendraḥ
-> vitatya nṛtyaty uditāstra-dor-dhvajān
+> yas tv anta-kāle vyupta-jaṭā-kalāpaḥ\
+> sva-śūla-sūcy-arpita-dig-gajendraḥ\
+> vitatya nṛtyaty uditāstra-dor-dhvajān\
 > uccāṭṭa-hāsa-stanayitnu-bhinna-dik
 
 *yaḥ*—who (Lord Śiva); *tu*—but; *anta-kāle*—at the time of dissolution; *vyupta*—having scattered; *jaṭā-kalāpaḥ*—his bunch of hair; *sva-śūla*—his own trident; *sūci*—on the points; *arpita*—pierced; *dik-gajendraḥ*—the rulers of the different directions; *vitatya*—scattering; *nṛtyati*—dances; *udita*—upraised; *astra*—weapons; *doḥ*—hands; *dhvajān*—flags; *ucca*—loud; *aṭṭa-hāsa*—laughing; *stanayitnu*—by the thundering sound; *bhinna*—divided; *dik*—the directions.

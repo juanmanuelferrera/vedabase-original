@@ -1,11 +1,11 @@
 ### SB 7.3.21
 
-> ततस्त आशिषः सर्वा ददाम्यसुरपुङ्गव
+> ततस्त आशिषः सर्वा ददाम्यसुरपुङ्गव\
 > मर्तस्य ते ह्यमर्तस्य दर्शनं नाफलं मम ॥२१॥
 
-> tatas ta āśiṣaḥ sarvā
-> dadāmy asura-puṅgava
-> martasya te hy amartasya
+> tatas ta āśiṣaḥ sarvā\
+> dadāmy asura-puṅgava\
+> martasya te hy amartasya\
 > darśanaṁ nāphalaṁ mama
 
 *tataḥ*—debido a esto; *te*—a ti; *āśiṣaḥ*—bendiciones; *sarvāḥ*—todas; *dadāmi*—yo daré; *asura-puṅgava*—¡oh, tú, el mejor de los *asuras*!; *martasya*—de quien está destinado a morir; *te*—como tú; *hi*—en verdad; *amartasya*—de quien no muere; *darśanam*—la audiencia; *na*—no; *aphalam*—sin resultados; *mama*—mía.

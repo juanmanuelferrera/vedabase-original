@@ -1,13 +1,13 @@
 ### SB 3.26.1
 
-> श्रीभगवानुवाच
-> अथ ते सम्प्रवक्ष्यामि तत्त्वानां लक्षणं पृथक् ।
+> श्रीभगवानुवाच\
+> अथ ते सम्प्रवक्ष्यामि तत्त्वानां लक्षणं पृथक् ।\
 > यद्विदित्वा विमुच्येत पुरुषः प्राकृतैर्गुणैः ॥१॥
 
-> śrī-bhagavān uvāca
-> atha te sampravakṣyāmi
-> tattvānāṁ lakṣaṇaṁ pṛthak
-> yad viditvā vimucyeta
+> śrī-bhagavān uvāca\
+> atha te sampravakṣyāmi\
+> tattvānāṁ lakṣaṇaṁ pṛthak\
+> yad viditvā vimucyeta\
 > puruṣaḥ prākṛtair guṇaiḥ
 
 *śrī-bhagavān uvāca*—the Personality of Godhead said; *atha*—now; *te*—to you; *sampravakṣyāmi*—I shall describe; *tattvānām*—of the categories of the Absolute Truth; *lakṣaṇam*—the distinctive features; *pṛthak*—one by one; *yat*—which; *viditvā*—knowing; *vimucyeta*—one can be released; *puruṣaḥ*—any person; *prākṛtaiḥ*—of the material nature; *guṇaiḥ*—from the modes.

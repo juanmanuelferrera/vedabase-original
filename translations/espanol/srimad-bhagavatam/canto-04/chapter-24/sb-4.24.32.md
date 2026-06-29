@@ -1,13 +1,13 @@
 ### SB 4.24.32
 
-> मैत्रेय उवाच
-> इत्यनुक्रोशहृदयो भगवानाह ताञ्छिवः ।
+> मैत्रेय उवाच\
+> इत्यनुक्रोशहृदयो भगवानाह ताञ्छिवः ।\
 > बद्धाञ्जलीन्राजपुत्रान्नारायणपरो वचः ॥३२॥
 
-> maitreya uvāca
-> ity anukrośa-hṛdayo
-> bhagavān āha tāñ chivaḥ
-> baddhāñjalīn rāja-putrān
+> maitreya uvāca\
+> ity anukrośa-hṛdayo\
+> bhagavān āha tāñ chivaḥ\
+> baddhāñjalīn rāja-putrān\
 > nārāyaṇa-paro vacaḥ
 
 *maitreyaḥ uvāca*—el gran santo Maitreya continuó hablando; *iti*—así; *anukrośa-hṛdayaḥ*—de muy buen corazón; *bhagavān*—el señor; *āha*—dijo; *tān*—a los Pracetās; *śivaḥ*—el Señor Śiva; *baddha-añjalīn*—que estaban de pie con las manos juntas; *rāja-putrān*—los hijos del rey; *nārāyaṇa-paraḥ*—el Señor Śiva, el gran devoto de Nārāyaṇa; *vacaḥ*—palabras.

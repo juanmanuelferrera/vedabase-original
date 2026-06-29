@@ -1,11 +1,11 @@
 ### SB 7.13.10
 
-> अव्यक्तलिङ्गो व्यक्तार्थो मनीष्युन्मत्तबालवत
+> अव्यक्तलिङ्गो व्यक्तार्थो मनीष्युन्मत्तबालवत\
 > कविर्मूकवदात्मानं स दृष्ट्या दर्शयेन्नृणाम ॥१०॥
 
-> avyakta-liṅgo vyaktārtho
-> manīṣy unmatta-bālavat
-> kavir mūkavad ātmānaṁ
+> avyakta-liṅgo vyaktārtho\
+> manīṣy unmatta-bālavat\
+> kavir mūkavad ātmānaṁ\
 > sa dṛṣṭyā darśayen nṛṇām
 
 *avyakta-liṅgaḥ*—cuyas características de *sannyāsa* no están manifiestas; *vyakta-arthaḥ*—cuyo objetivo es manifiesto; *manīṣī*—esa gran persona santa; *unmatta*—inquieto; *bāla-vat*—como un niño; *kaviḥ*—un gran poeta u orador; *mūka-vat*—como un mudo; *ātmānam*—a sí mismo; *saḥ*—él; *dṛṣṭyā*—por el ejemplo; *darśayet*—debe presentar; *nṛṇām*—a la sociedad humana.

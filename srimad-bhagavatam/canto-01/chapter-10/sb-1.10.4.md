@@ -1,11 +1,11 @@
 ### SB 1.10.4
 
-> कामं ववर्ष पर्जन्यः सर्वकामदुघा मही ।
+> कामं ववर्ष पर्जन्यः सर्वकामदुघा मही ।\
 > सिषिचुः स्म व्रजान्गावः पयसोधस्वतीर्मुदा ॥४॥
 
-> kāmaṁ vavarṣa parjanyaḥ
-> sarva-kāma-dughā mahī
-> siṣicuḥ sma vrajān gāvaḥ
+> kāmaṁ vavarṣa parjanyaḥ\
+> sarva-kāma-dughā mahī\
+> siṣicuḥ sma vrajān gāvaḥ\
 > payasodhasvatīr mudā
 
 *kāmam*—everything needed; *vavarṣa*—was showered; *parjanyaḥ*—rains; *sarva*—everything; *kāma*—necessities; *dughā*—producer; *mahī*—the land; *siṣicuḥ sma*—moisten; *vrajān*—pasturing grounds; *gāvaḥ*—the cow; *payasā udhasvatīḥ*—due to swollen milk bags; *mudā*—because of a joyful attitude.

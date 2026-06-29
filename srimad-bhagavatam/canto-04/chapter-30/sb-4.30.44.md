@@ -1,11 +1,11 @@
 ### SB 4.30.44
 
-> अथ निर्याय सलिलात्प्रचेतस उदन्वतः ।
+> अथ निर्याय सलिलात्प्रचेतस उदन्वतः ।\
 > वीक्ष्याकुप्यन्द्रुमैश्छन्नां गां गां रोद्धुमिवोच्छ्रितैः ॥४४॥
 
-> atha niryāya salilāt
-> pracetasa udanvataḥ
-> vīkṣyākupyan drumaiś channāṁ
+> atha niryāya salilāt\
+> pracetasa udanvataḥ\
+> vīkṣyākupyan drumaiś channāṁ\
 > gāṁ gāṁ roddhum ivocchritaiḥ
 
 *atha*—thereafter; *niryāya*—after coming out; *salilāt*—from the water; *pracetasaḥ*—all the Pracetās; *udanvataḥ*—of the sea; *vīkṣya*—having observed; *akupyan*—became very angry; *drumaiḥ*—by trees; *channām*—covered; *gām*—the world; *gām*—the heavenly planets; *roddhum*—to obstruct; *iva*—as if; *ucchritaiḥ*—very tall.

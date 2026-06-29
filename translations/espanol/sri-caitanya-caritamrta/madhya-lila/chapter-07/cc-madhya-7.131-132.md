@@ -1,12 +1,12 @@
 ### CC Madhya 7.131-132
 
-> pathe yāite devālaye rahe yei grāme
+> pathe yāite devālaye rahe yei grāme\
 > yāṅra ghare bhikṣā kare, sei mahā-jane
 
-> pathe yāite devālaye rahe yei grāme
+> pathe yāite devālaye rahe yei grāme\
 > yāṅra ghare bhikṣā kare, sei mahā-jane
 
-> kūrme yaiche rīti, taiche kaila sarva-ṭhāñi
+> kūrme yaiche rīti, taiche kaila sarva-ṭhāñi\
 > nīlācale punaḥ yāvat nā āilā gosāñi
 
 *pathe yāite*—mientras sigue Su camino; *devālaye*—en un templo; *rahe*—Él Se queda; *yei grāme*—en alguna aldea; *yāṅra ghare*—lugar en el que; *bhikṣā kare*—recibe limosna o come; *sei mahā-jane*—a esa gran personalidad; *kūrme*—al *brāhmaṇa* Kūrma; *yaiche*—tal y como; *rīti*—el proceso; *taiche*—del mismo modo; *kaila*—hizo; *sarva-ṭhāñi*—en todos los lugares; *nīlācale*—a Jagannātha Purī; *punaḥ*—de nuevo; *yāvat*—hasta que; *nā*—no; *āilā*—regresó; *gosāñi*—el Señor.

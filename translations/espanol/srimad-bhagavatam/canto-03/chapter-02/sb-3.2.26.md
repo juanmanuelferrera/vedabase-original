@@ -1,11 +1,11 @@
 ### SB 3.2.26
 
-> ततो नन्दव्रजमितः पित्रा कंसाद्विबिभ्यता ।
+> ततो नन्दव्रजमितः पित्रा कंसाद्विबिभ्यता ।\
 > एकादश समास्तत्र गूढार्चिः सबलोऽवसत् ॥२६॥
 
-> tato nanda-vrajam itaḥ
-> pitrā kaṁsād vibibhyatā
-> ekādaśa samās tatra
+> tato nanda-vrajam itaḥ\
+> pitrā kaṁsād vibibhyatā\
+> ekādaśa samās tatra\
 > gūḍhārciḥ sa-balo 'vasat
 
 *tataḥ*—después; *nanda-vrajam*—los pastizales de vacas de Nanda Mahārāja; *itaḥ*—siendo criado; *pitrā*—por Su padre, *kaṁsāt*—de Kaṁsa; *vibibhyatā*—sintiendo temor de; *ekādaśa*—once; *samāḥ*—años; *tatra*—allí; *gūḍha-arciḥ*—fuego cubierto; *sa-balaḥ*—con Baladeva; *avasat*—residió.

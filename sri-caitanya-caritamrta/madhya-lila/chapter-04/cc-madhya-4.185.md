@@ -1,9 +1,9 @@
 ### CC Madhya 4.185
 
-> সঙ্গে এক বট নাহি ঘাটীদান দিতে ।
+> সঙ্গে এক বট নাহি ঘাটীদান দিতে ।\
 > তথাপি উৎসাহ বড় চন্দন লঞা যাইতে ॥১৮৫॥
 
-> saṅge eka vaṭa nāhi ghāṭī-dāna dite
+> saṅge eka vaṭa nāhi ghāṭī-dāna dite\
 > tathāpi utsāha baḍa candana lañā yāite
 
 *saṅge*—with him; *eka*—one; *vaṭa*—farthing; *nāhi*—there was not; *ghāṭī-dāna*—as a toll tax; *dite*—to give; *tathāpi*—still; *utsāha*—enthusiasm; *baḍa*—much; *candana*—sandalwood; *lañā*—taking; *yāite*—to go.

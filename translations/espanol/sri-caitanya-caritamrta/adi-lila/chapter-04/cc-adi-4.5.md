@@ -1,9 +1,9 @@
 ### CC Adi 4.5
 
-> চতুর্থ শ্লোকের অর্থ এই কৈল সার ।
+> চতুর্থ শ্লোকের অর্থ এই কৈল সার ।\
 > প্রেম-নাম প্রচারিতে এই অবতার ॥৫॥
 
-> caturtha ślokera artha ei kaila sāra
+> caturtha ślokera artha ei kaila sāra\
 > prema-nāma pracārite ei avatāra
 
 *caturtha*—cuarto; *ślokera*—del verso; *artha*—el significado; *ei*—este; *kaila*—dio; *sāra*—esencia; *prema*—amor por Dios; *nāma*—el santo nombre; *pracārite*—propagar; *ei*—esta; *avatāra*—encarnación.

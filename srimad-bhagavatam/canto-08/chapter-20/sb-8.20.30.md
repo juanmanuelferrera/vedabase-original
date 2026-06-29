@@ -1,11 +1,11 @@
 ### SB 8.20.30
 
-> सर्वात्मनीदं भुवनं निरीक्ष्य सर्वेऽसुराः कश्मलमापुरङ्ग
+> सर्वात्मनीदं भुवनं निरीक्ष्य सर्वेऽसुराः कश्मलमापुरङ्ग\
 > सुदर्शनं चक्रमसह्यतेजो धनुश्च शारङ्गं स्तनयित्नुघोषम ॥३०॥
 
-> sarvātmanīdaṁ bhuvanaṁ nirīkṣya
-> sarve 'surāḥ kaśmalam āpur aṅga
-> sudarśanaṁ cakram asahya-tejo
+> sarvātmanīdaṁ bhuvanaṁ nirīkṣya\
+> sarve 'surāḥ kaśmalam āpur aṅga\
+> sudarśanaṁ cakram asahya-tejo\
 > dhanuś ca śārṅgaṁ stanayitnu-ghoṣam
 
 *sarva-ātmani*—in the supreme whole, the Supreme Personality of Godhead; *idam*—this universe; *bhuvanam*—the three worlds; *nirīkṣya*—by observing; *sarve*—all; *asurāḥ*—the demons, the associates of Bali Mahārāja; *kaśmalam*—lamentation; *āpuḥ*—received; *aṅga*—O King; *sudarśanam*—named Sudarśana; *cakram*—the disc; *asahya*—unbearable; *tejaḥ*—the heat of which; *dhanuḥ ca*—and the bow; *śārṅgam*—named Śārṅga; *stanayitnu*—the resounding of assembled clouds; *ghoṣam*—sounding like.

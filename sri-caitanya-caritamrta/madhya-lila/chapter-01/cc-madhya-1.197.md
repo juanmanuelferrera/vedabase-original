@@ -1,9 +1,9 @@
 ### CC Madhya 1.197
 
-> ম্লেচ্ছজাতি, ম্লেচ্ছসেবী, করি ম্লেচ্ছকর্ম ।
+> ম্লেচ্ছজাতি, ম্লেচ্ছসেবী, করি ম্লেচ্ছকর্ম ।\
 > গো-ব্রাহ্মণ-দ্রোহি-সঙ্গে আমার সঙ্গম ॥১৯৭॥
 
-> mleccha-jāti, mleccha-sevī, kari mleccha-karma
+> mleccha-jāti, mleccha-sevī, kari mleccha-karma\
 > go-brāhmaṇa-drohi-saṅge āmāra saṅgama
 
 *mleccha-jāti*—belonging to the meat-eater caste; *mleccha-sevī*—servants of the meat-eaters; *kari*—we execute; *mleccha-karma*—the work of meat-eaters; *go*—cows; *brāhmaṇa*—*brāhmaṇas*; *drohi*—those inimical to; *saṅge*—with; *āmāra*—our; *saṅgama*—association.

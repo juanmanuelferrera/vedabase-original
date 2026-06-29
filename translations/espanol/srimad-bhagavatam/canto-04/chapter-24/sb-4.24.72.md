@@ -1,11 +1,11 @@
 ### SB 4.24.72
 
-> इदमाह पुरास्माकं भगवान्विश्वसृक्पतिः ।
+> इदमाह पुरास्माकं भगवान्विश्वसृक्पतिः ।\
 > भृग्वादीनामात्मजानां सिसृक्षुः संसिसृक्षताम् ॥७२॥
 
-> idam āha purāsmākaṁ
-> bhagavān viśvasṛk-patiḥ
-> bhṛgv-ādīnām ātmajānāṁ
+> idam āha purāsmākaṁ\
+> bhagavān viśvasṛk-patiḥ\
+> bhṛgv-ādīnām ātmajānāṁ\
 > sisṛkṣuḥ saṁsisṛkṣatām
 
 *idam*—esto; *āha*—dijo; *purā*—en el pasado; *asmākam*—a nosotros; *bhagavān*—el señor; *viśva-sṛk*—los creadores del universo; *patiḥ*—señor; *bhṛgu-ādīnām*—de los grandes sabios encabezados por Bhṛgu; *ātmajānām*—de sus hijos; *sisṛkṣuḥ*—deseosos de crear; *saṁsisṛkṣatām*—que están a cargo de la creación.

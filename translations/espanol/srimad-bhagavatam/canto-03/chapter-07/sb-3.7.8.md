@@ -1,13 +1,13 @@
 ### SB 3.7.8
 
-> श्रीशुक उवाच
-> स इत्थं चोदितः क्षत्त्रा तत्त्वजिज्ञासुना मुनिः ।
+> श्रीशुक उवाच\
+> स इत्थं चोदितः क्षत्त्रा तत्त्वजिज्ञासुना मुनिः ।\
 > प्रत्याह भगवच्चित्तः स्मयन्निव गतस्मयः ॥८॥
 
-> śrī-śuka uvāca
-> sa itthaṁ coditaḥ kṣattrā
-> tattva-jijñāsunā muniḥ
-> pratyāha bhagavac-cittaḥ
+> śrī-śuka uvāca\
+> sa itthaṁ coditaḥ kṣattrā\
+> tattva-jijñāsunā muniḥ\
+> pratyāha bhagavac-cittaḥ\
 > smayann iva gata-smayaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *saḥ*—él (Maitreya Muni); *ittham*—de esta manera; *coditaḥ*—siendo agitado; *kṣattrā*—por Vidura; *tattva-jijñāsunā*—por aquel que estaba ansioso de inquirir para conocer la verdad; *muniḥ*—el gran sabio; *pratyāha*—respondió; *bhagavat-cittaḥ*—consciente de Dios; *smayan*—perplejo; *iva*—como si; *gata-smayaḥ*—sin vacilación.

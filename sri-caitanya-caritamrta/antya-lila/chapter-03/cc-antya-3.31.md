@@ -1,9 +1,9 @@
 ### CC Antya 3.31
 
-> ভোজন করিয়ে আমি, তুমি তাহা জান ।
+> ভোজন করিয়ে আমি, তুমি তাহা জান ।\
 > বাহ্য বিরহে তাহা স্বপ্ন করি মান ॥৩১॥
 
-> bhojana kariye āmi, tumi tāhā jāna
+> bhojana kariye āmi, tumi tāhā jāna\
 > bāhya virahe tāhā svapna kari māna
 
 *bhojana*—dining; *kariye*—do; *āmi*—I; *tumi*—you; *tāhā*—that; *jāna*—know; *bāhya*—externally; *virahe*—in separation; *tāhā*—that; *svapna*—dream; *kari*—as; *māna*—you accept.

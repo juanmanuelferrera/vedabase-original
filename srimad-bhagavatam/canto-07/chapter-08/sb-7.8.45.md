@@ -1,13 +1,13 @@
 ### SB 7.8.45
 
-> श्रीसिद्धा ऊचुः
-> यो नो गतिं योगसिद्धामसाधुरहार्षीद्योगतपोबलेन
+> श्रीसिद्धा ऊचुः\
+> यो नो गतिं योगसिद्धामसाधुरहार्षीद्योगतपोबलेन\
 > नाना दर्पं तं नखैर्विददार तस्मै तुभ्यं प्रणताः स्मो नृसिंह ॥४५॥
 
-> śrī-siddhā ūcuḥ
-> yo no gatiṁ yoga-siddhām asādhur
-> ahārṣīd yoga-tapo-balena
-> nānā darpaṁ taṁ nakhair vidadāra
+> śrī-siddhā ūcuḥ\
+> yo no gatiṁ yoga-siddhām asādhur\
+> ahārṣīd yoga-tapo-balena\
+> nānā darpaṁ taṁ nakhair vidadāra\
 > tasmai tubhyaṁ praṇatāḥ smo nṛsiṁha
 
 *śrī-siddhāḥ ūcuḥ*—the inhabitants of Siddhaloka said; *yaḥ*—the person who; *naḥ*—our; *gatim*—perfection; *yoga-siddhām*—achieved by mystic *yoga*; *asādhuḥ*—most uncivilized and dishonest; *ahārṣīt*—stole away; *yoga*—of mysticism; *tapaḥ*—and austerities; *balena*—by the power; *nānā darpam*—proud due to wealth, opulence and strength; *tam*—him; *nakhaiḥ*—by the nails; *vidadāra*—pierced; *tasmai*—unto him; *tubhyam*—unto You; *praṇatāḥ*—bowed down; *smaḥ*—we are; *nṛsiṁha*—O Lord Nṛsiṁhadeva.

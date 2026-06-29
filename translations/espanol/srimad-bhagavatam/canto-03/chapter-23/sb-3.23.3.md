@@ -1,11 +1,11 @@
 ### SB 3.23.3
 
-> विसृज्य कामं दम्भं च द्वेषं लोभमघं मदम् ।
+> विसृज्य कामं दम्भं च द्वेषं लोभमघं मदम् ।\
 > अप्रमत्तोद्यता नित्यं तेजीयांसमतोषयत् ॥३॥
 
-> visṛjya kāmaṁ dambhaṁ ca
-> dveṣaṁ lobham aghaṁ madam
-> apramattodyatā nityaṁ
+> visṛjya kāmaṁ dambhaṁ ca\
+> dveṣaṁ lobham aghaṁ madam\
+> apramattodyatā nityaṁ\
 > tejīyāṁsam atoṣayat
 
 *visṛjya*—abandonando; *kāmam*—lujuria; *dambham*—orgullo; *ca*—y; *dveṣam*—envidia; *lobham*—codicia; *agham*—actividades pecaminosas; *madam*—vanidad; *apramattā*—sensata; *udyatā*—trabajando esmeradamente; *nityam*—siempre; *tejīyāṁsam*—a su muy poderoso esposo; *atoṣayat*—complació.

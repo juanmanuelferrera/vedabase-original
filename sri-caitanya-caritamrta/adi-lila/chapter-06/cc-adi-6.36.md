@@ -1,9 +1,9 @@
 ### CC Adi 6.36
 
-> আচার্য গোসাঞির গুণ-মহিমা অপার ।
+> আচার্য গোসাঞির গুণ-মহিমা অপার ।\
 > জীবকীট কোথায় পাইবেক তার পার ॥৩৬॥
 
-> ācārya gosāñira guṇa-mahimā apāra
+> ācārya gosāñira guṇa-mahimā apāra\
 > jīva-kīṭa kothāya pāibeka tāra pāra
 
 *ācārya gosāñira*—of Advaita Ācārya; *guṇa-mahimā*—the glory of the attributes; *apāra*—unfathomable; *jīva-kīṭa*—a living being who is just like a worm; *kothāya*—where; *pāibeka*—will get; *tāra*—of that; *pāra*—the other side.

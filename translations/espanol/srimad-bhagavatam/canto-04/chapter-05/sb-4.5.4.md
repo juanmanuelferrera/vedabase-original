@@ -1,11 +1,11 @@
 ### SB 4.5.4
 
-> तं किं करोमीति गृणन्तमाह बद्धाञ्जलिं भगवान्भूतनाथः ।
+> तं किं करोमीति गृणन्तमाह बद्धाञ्जलिं भगवान्भूतनाथः ।\
 > दक्षं सयज्ञं जहि मद्भटानां त्वमग्रणी रुद्र भटांशको मे ॥४॥
 
-> taṁ kiṁ karomīti gṛṇantam āha
-> baddhāñjaliṁ bhagavān bhūta-nāthaḥ
-> dakṣaṁ sa-yajñaṁ jahi mad-bhaṭānāṁ
+> taṁ kiṁ karomīti gṛṇantam āha\
+> baddhāñjaliṁ bhagavān bhūta-nāthaḥ\
+> dakṣaṁ sa-yajñaṁ jahi mad-bhaṭānāṁ\
 > tvam agraṇī rudra bhaṭāṁśako me
 
 *tam*—a él (Vīrabhadra); *kim*—qué; *karomi*—debo hacer; *iti*—de este modo; *gṛṇantam*—preguntando; *āha*—ordenó; *baddha-añjalim*—con las manos juntas; *bhagavān*—el que posee toda opulencia (el Señor Śiva); *bhūta-nāthaḥ*—el señor de los fantasmas; *dakṣam*—a Dakṣa; *sa-yajñam*—junto con su sacrificio; *jahi*—mata; *mat-bhaṭānām*—de todos mis aliados; *tvam*—tú; *agraṇīḥ*—el jefe; *rudra*—¡oh, Rudra!; *bhaṭa*—¡oh, experto en la batalla!; *aṁśakaḥ*—nacido de mi cuerpo; *me*—mío.

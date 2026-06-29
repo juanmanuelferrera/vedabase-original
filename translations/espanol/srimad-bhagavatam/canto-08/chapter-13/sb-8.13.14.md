@@ -1,11 +1,11 @@
 ### SB 8.13.14
 
-> योऽसौ भगवता बद्धः प्रीतेन सुतले पुनः
+> योऽसौ भगवता बद्धः प्रीतेन सुतले पुनः\
 > निवेशितोऽधिके स्वर्गादधुनास्ते स्वराडिव ॥१४॥
 
-> yo 'sau bhagavatā baddhaḥ
-> prītena sutale punaḥ
-> niveśito 'dhike svargād
+> yo 'sau bhagavatā baddhaḥ\
+> prītena sutale punaḥ\
+> niveśito 'dhike svargād\
 > adhunāste sva-rāḍ iva
 
 *yaḥ*—Bali Mahārāja; *asau*—él; *bhagavatā*—por la Personalidad de Dios; *baddhaḥ*—atado; *prītena*—por el favor; *sutale*—en el reino de Sutala; *punaḥ*—de nuevo; *niveśitaḥ*—situado; *adhike*—más opulento; *svargāt*—que los planetas celestiales; *adhunā*—en la actualidad; *āste*—se encuentra; *sva-rāṭ iva*—en igual posición que Indra.

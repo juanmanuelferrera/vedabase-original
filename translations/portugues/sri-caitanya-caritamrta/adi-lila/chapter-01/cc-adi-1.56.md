@@ -1,8 +1,8 @@
 ### CC Adi 1.56
 
-> etāvad eva jijñāsyaṁ
-> tattva-jijñāsunātmanaḥ
-> anvaya-vyatirekābhyāṁ
+> etāvad eva jijñāsyaṁ\
+> tattva-jijñāsunātmanaḥ\
+> anvaya-vyatirekābhyāṁ\
 > yat syāt sarvatra sarvadā
 
 *etāvat*—até aqui; *eva*—certeza; *jijñāsyam*—a ser indagado; *tattva*—da Verdade Absoluta; *jijñāsunā*—pelo estudante; *ātmanaḥ*—do Eu; *anvaya*—diretamente; *vyatirekābhyām*—e indiretamente; *yat*—o que quer que seja; *syāt*—possa ser; *sarvatra*—em toda parte; *sarvadā*—sempre.

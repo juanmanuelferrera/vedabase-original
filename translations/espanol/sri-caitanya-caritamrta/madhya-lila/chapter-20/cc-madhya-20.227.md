@@ -1,9 +1,9 @@
 ### CC Madhya 20.227
 
-> শ্রীকেশব — পদ্মশঙ্খচক্রগদাধর ।
+> শ্রীকেশব — পদ্মশঙ্খচক্রগদাধর ।\
 > নারায়ণ — শঙ্খপদ্মগদাচক্রধর ॥২২৭॥
 
-> śrī-keśava--padma-śaṅkha-cakra-gadā-dhara
+> śrī-keśava--padma-śaṅkha-cakra-gadā-dhara\
 > nārāyaṇa--śaṅkha-padma-gadā-cakra-dhara
 
 *śrī-keśava*—el Señor Keśava; *padma*—loto; *śaṅkha*—caracola; *cakra*—disco; *gadā*—maza; *dhara*—que sostiene; *nārāyaṇa*—el Señor Nārāyaṇa; *śaṅkha*—caracola; *padma*—loto; *gadā*—maza; *cakra*—disco; *dhara*—que sostiene.

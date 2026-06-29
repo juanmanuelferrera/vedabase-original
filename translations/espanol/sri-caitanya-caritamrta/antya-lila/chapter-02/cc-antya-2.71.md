@@ -1,9 +1,9 @@
 ### CC Antya 2.71
 
-> তিন জনার ভোগ তেঁহো একেলা খাইলা  ।
+> তিন জনার ভোগ তেঁহো একেলা খাইলা  ।\
 > জগন্নাথ-নৃসিংহ উপবাসী হইলা ।।” ৭১ ॥৭১॥
 
-> tina janāra bhoga teṅho ekelā khāilā
+> tina janāra bhoga teṅho ekelā khāilā\
 > jagannātha-nṛsiṁha upavāsī ha-ilā"
 
 *tina janāra*—de las tres Deidades; *bhoga*—ofrendas; *teṅho*—Él; *ekelā*—solo; *khāilā*—comió; *jagannātha-nṛsiṁha*—el Señor Jagannātha y el Señor Nṛsiṁhadeva; *upavāsī ha-ilā*—quedaron en ayunas.

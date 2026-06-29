@@ -1,11 +1,11 @@
 ### SB 1.18.13
 
-> तुलयाम लवेनापि न स्वर्गं नापुनर्भवम् ।
+> तुलयाम लवेनापि न स्वर्गं नापुनर्भवम् ।\
 > भगवत्सङ्गिसङ्गस्य मर्त्यानां किमुताशिषः ॥१३॥
 
-> tulayāma lavenāpi
-> na svargaṁ nāpunar-bhavam
-> bhagavat-saṅgi-saṅgasya
+> tulayāma lavenāpi\
+> na svargaṁ nāpunar-bhavam\
+> bhagavat-saṅgi-saṅgasya\
 > martyānāṁ kim utāśiṣaḥ
 
 *tulayāma*—to be balanced with; *lavena*—by a moment; *api*—even; *na*—never; *svargam*—heavenly planets; *na*—nor; *apunaḥ-bhavam*—liberation from matter; *bhagavat-saṅgi*—devotee of the Lord; *saṅgasya*—of the association; *martyānām*—those who are meant for death; *kim*—what is there; *uta*—to speak of; *āśiṣaḥ*—worldly benediction.

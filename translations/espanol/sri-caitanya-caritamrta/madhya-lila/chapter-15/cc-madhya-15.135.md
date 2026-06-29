@@ -1,9 +1,9 @@
 ### CC Madhya 15.135
 
-> ‘দারুব্রহ্ম’-রূপে — সাক্ষাৎ শ্ৰীপুরুষোত্তম  ।
+> ‘দারুব্রহ্ম’-রূপে — সাক্ষাৎ শ্ৰীপুরুষোত্তম  ।\
 > ভাগীরথী হন সাক্ষাৎ ‘জলব্রহ্ম’-সম ॥১৩৫॥
 
-> 'dāru-brahma'-rūpe--sākṣāt śrī-puruṣottama
+> 'dāru-brahma'-rūpe--sākṣāt śrī-puruṣottama\
 > bhāgīrathī hana sākṣāt 'jala-brahma'-sama
 
 *dāru-brahma-rūpe*—en la forma de Brahman como madera; *sākṣāt*—directamente; *śrī-puruṣottama*—el Señor Jagannātha; *bhāgīrathī*—el río Ganges; *hana*—es; *sākṣāt*—directamente; *jala-brahma-sama*—el Supremo en la forma de agua.

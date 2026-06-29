@@ -1,11 +1,11 @@
 ### SB 9.17.9
 
-> धृष्टकेतुस्ततस्तस्मात्सुकुमारः क्षितीश्वरः
+> धृष्टकेतुस्ततस्तस्मात्सुकुमारः क्षितीश्वरः\
 > वीतिहोत्रोऽस्य भर्गोऽतो भार्गभूमिरभून्नृप ॥९॥
 
-> dhṛṣṭaketus tatas tasmāt
-> sukumāraḥ kṣitīśvaraḥ
-> vītihotro 'sya bhargo 'to
+> dhṛṣṭaketus tatas tasmāt\
+> sukumāraḥ kṣitīśvaraḥ\
+> vītihotro 'sya bhargo 'to\
 > bhārgabhūmir abhūn nṛpa
 
 *dhṛṣṭaketuḥ*—Dhṛṣṭaketu; *tataḥ*—thereafter; *tasmāt*—from Dhṛṣṭaketu; *sukumāraḥ*—a son named Sukumāra; *kṣiti-īśvaraḥ*—the emperor of the entire world; *vītihotraḥ*—a son named Vītihotra; *asya*—his son; *bhargaḥ*—Bharga; *ataḥ*—from him; *bhārgabhūmiḥ*—a son named Bhārgabhūmi; *abhūt*—generated; *nṛpa*—O King.

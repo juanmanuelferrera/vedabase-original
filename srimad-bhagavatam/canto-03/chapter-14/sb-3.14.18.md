@@ -1,11 +1,11 @@
 ### SB 3.14.18
 
-> सर्वाश्रमानुपादाय स्वाश्रमेण कलत्रवान् ।
+> सर्वाश्रमानुपादाय स्वाश्रमेण कलत्रवान् ।\
 > व्यसनार्णवमत्येति जलयानैर्यथार्णवम् ॥१८॥
 
-> sarvāśramān upādāya
-> svāśrameṇa kalatravān
-> vyasanārṇavam atyeti
+> sarvāśramān upādāya\
+> svāśrameṇa kalatravān\
+> vyasanārṇavam atyeti\
 > jala-yānair yathārṇavam
 
 *sarva*—all; *āśramān*—social orders; *upādāya*—completing; *sva*—own; *āśrameṇa*—by the social orders; *kalatra-vān*—a person living with a wife; *vyasana-arṇavam*—the dangerous ocean of material existence; *atyeti*—one can cross over; *jala-yānaiḥ*—with seagoing vessels; *yathā*—as; *arṇavam*—the ocean.

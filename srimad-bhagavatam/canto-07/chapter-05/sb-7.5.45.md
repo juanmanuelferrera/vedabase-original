@@ -1,11 +1,11 @@
 ### SB 7.5.45
 
-> एष मे बह्वसाधूक्तो वधोपायाश्च निर्मिताः
+> एष मे बह्वसाधूक्तो वधोपायाश्च निर्मिताः\
 > तैस्तैर्द्रोहैरसद्धर्मैर्मुक्तः स्वेनैव तेजसा ॥४५॥
 
-> eṣa me bahv-asādhūkto
-> vadhopāyāś ca nirmitāḥ
-> tais tair drohair asad-dharmair
+> eṣa me bahv-asādhūkto\
+> vadhopāyāś ca nirmitāḥ\
+> tais tair drohair asad-dharmair\
 > muktaḥ svenaiva tejasā
 
 *eṣaḥ*—this; *me*—of me; *bahu*—many; *asādhu-uktaḥ*—ill names; *vadha-upāyāḥ*—many varieties of means to kill him; *ca*—and; *nirmitāḥ*—devised; *taiḥ*—by those; *taiḥ*—by those; *drohaiḥ*—treacherous; *asat-dharmaiḥ*—abominable actions; *muktaḥ*—released; *svena*—his own; *eva*—indeed; *tejasā*—by prowess.

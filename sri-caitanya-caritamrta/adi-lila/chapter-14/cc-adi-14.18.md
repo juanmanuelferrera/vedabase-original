@@ -1,9 +1,9 @@
 ### CC Adi 14.18
 
-> মহোৎসব কর, সব বোলাহ ব্রাহ্মণ ।
+> মহোৎসব কর, সব বোলাহ ব্রাহ্মণ ।\
 > আজি দিন ভাল, — করিব নামকরণ ॥১৮॥
 
-> mahotsava kara, saba bolāha brāhmaṇa
+> mahotsava kara, saba bolāha brāhmaṇa\
 > āji dina bhāla,—kariba nāma-karaṇa
 
 *mahotsava*—a festival; *kara*—observe; *saba*—all; *bolāha*—call; *brāhmaṇa*—the *brāhmaṇas*; *āji*—today; *dina*—day; *bhāla*—auspicious; *kariba*—I shall perform; *nāma-karaṇa*—the name-giving ceremony.

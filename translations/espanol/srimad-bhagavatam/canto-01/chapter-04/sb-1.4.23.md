@@ -1,11 +1,11 @@
 ### SB 1.4.23
 
-> त एत ऋषयो वेदं स्वं स्वं व्यस्यन्ननेकधा ।
+> त एत ऋषयो वेदं स्वं स्वं व्यस्यन्ननेकधा ।\
 > शिष्यैः प्रशिष्यैस्तच्छिष्यैर्वेदास्ते शाखिनोऽभवन् ॥२३॥
 
-> ta eta ṛṣayo vedaṁ
-> svaṁ svaṁ vyasyann anekadhā
-> śiṣyaiḥ praśiṣyais tac-chiṣyair
+> ta eta ṛṣayo vedaṁ\
+> svaṁ svaṁ vyasyann anekadhā\
+> śiṣyaiḥ praśiṣyais tac-chiṣyair\
 > vedās te śākhino 'bhavan
 
 *te*—ellos; *ete*—todos estos; *ṛṣayaḥ*—sabios eruditos; *vedam*—los respectivos *Vedas*; *svam svam*—en las materias que se les había confiado a cada quien; *vyasyan*—dieron; *anekadhā*—muchos; *śiṣyaiḥ*—discípulos; *praśiṣyaiḥ*—discípulos de sus discípulos; *tat-śiṣyaiḥ*—discípulos de los discípulos de sus discípulos; *vedāḥ te*—seguidores de los *Vedas* respectivos; *śākhinaḥ*—diferentes ramas; *abhavan*—así se convirtieron en.

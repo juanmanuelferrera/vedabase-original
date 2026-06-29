@@ -1,11 +1,11 @@
 ### SB 5.13.6
 
-> क्वचिद्वितोयाः सरितोऽभियाति परस्परं चालषते निरन्धः
+> क्वचिद्वितोयाः सरितोऽभियाति परस्परं चालषते निरन्धः\
 > आसाद्य दावं क्वचिदग्नितप्तो निर्विद्यते क्व च यक्षैर्हृतासुः ॥६॥
 
-> kvacid vitoyāḥ sarito 'bhiyāti
-> parasparaṁ cālaṣate nirandhaḥ
-> āsādya dāvaṁ kvacid agni-tapto
+> kvacid vitoyāḥ sarito 'bhiyāti\
+> parasparaṁ cālaṣate nirandhaḥ\
+> āsādya dāvaṁ kvacid agni-tapto\
 > nirvidyate kva ca yakṣair hṛtāsuḥ
 
 *kvacit*—a veces; *vitoyāḥ*—que llevan poca agua; *saritaḥ*—ríos; *abhiyāti*—va a bañarse o se lanza en; *parasparam*—a otro; *ca*—y; *ālaṣate*—desea; *nirandhaḥ*—sin alimentos almacenados; *āsādya*—sintiendo; *dāvam*—un incendio forestal en la vida familiar; *kvacit*—a veces; *agni-taptaḥ*—quemado por el fuego; *nirvidyate*—se desanima; *kva*—en alguna parte; *ca*—y; *yakṣaiḥ*—por reyes que son como ladrones y maleantes; *hṛta*—robada; *asuḥ*—riqueza, tan querida como la misma vida.

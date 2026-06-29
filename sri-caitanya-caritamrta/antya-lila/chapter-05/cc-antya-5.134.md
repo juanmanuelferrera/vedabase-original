@@ -1,9 +1,9 @@
 ### CC Antya 5.134
 
-> এই শ্লোক করিয়াছ পাঞা সন্তোষ ।
+> এই শ্লোক করিয়াছ পাঞা সন্তোষ ।\
 > তোমার হৃদয়ের অর্থে দুঁহায় লাগে ‘দোষ’ ॥১৩৪॥
 
-> ei śloka kariyācha pāñā santoṣa
+> ei śloka kariyācha pāñā santoṣa\
 > tomāra hṛdayera arthe duṅhāya lāge 'doṣa'
 
 *ei śloka*—this verse; *kariyācha*—you have composed; *pāñā santoṣa*—getting satisfaction; *tomāra hṛdayera*—of your heart; *arthe*—by the meaning; *duṅhāya*—to both; *lāge doṣa*—there is an offense.

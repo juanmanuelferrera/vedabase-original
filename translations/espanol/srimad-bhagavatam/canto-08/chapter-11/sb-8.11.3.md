@@ -1,11 +1,11 @@
 ### SB 8.11.3
 
-> वज्रपाणिस्तमाहेदं तिरस्कृत्य पुरःस्थितम
+> वज्रपाणिस्तमाहेदं तिरस्कृत्य पुरःस्थितम\
 > मनस्विनं सुसम्पन्नं विचरन्तं महामृधे ॥३॥
 
-> vajra-pāṇis tam āhedaṁ
-> tiraskṛtya puraḥ-sthitam
-> manasvinaṁ susampannaṁ
+> vajra-pāṇis tam āhedaṁ\
+> tiraskṛtya puraḥ-sthitam\
+> manasvinaṁ susampannaṁ\
 > vicarantaṁ mahā-mṛdhe
 
 *vajra-pāṇiḥ*—Indra, que siempre lleva el rayo en la mano; *tam*—a Bali Mahārāja; *āha*—se dirigió; *idam*—de este modo; *tiraskṛtya*—riñéndole; *puraḥ-sthitam*—de pie ante él; *manasvinam*—muy sobrio y tolerante; *su-sampannam*—bien pertrechado para la contienda; *vicarantam*—moviéndose; *mahā-mṛdhe*—en el gran campo de batalla.

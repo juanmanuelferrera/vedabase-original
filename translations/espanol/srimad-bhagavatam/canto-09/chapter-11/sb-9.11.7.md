@@ -1,11 +1,11 @@
 ### SB 9.11.7
 
-> नमो ब्रह्मण्यदेवाय रामायाकुण्ठमेधसे
+> नमो ब्रह्मण्यदेवाय रामायाकुण्ठमेधसे\
 > उत्तमश्लोकधुर्याय न्यस्तदण्डार्पिताङ्घ्रये ॥७॥
 
-> namo brahmaṇya-devāya
-> rāmāyākuṇṭha-medhase
-> uttamaśloka-dhuryāya
+> namo brahmaṇya-devāya\
+> rāmāyākuṇṭha-medhase\
+> uttamaśloka-dhuryāya\
 > nyasta-daṇḍārpitāṅghraye
 
 *namaḥ*—ofrecemos respetuosas reverencias; *brahmaṇya-devāya*—a la Suprema Personalidad de Dios, que ha hecho de los *brāhmaṇas* Su deidad adorable; *rāmāya*—al Señor Rāmacandra; *akuṇṭha-medhase*—cuya memoria y cuyo conocimiento nunca se ven afectados por la ansiedad; *uttamaśloka-dhuryāya*—la mejor de las personas muy famosas; *nyasta-daṇḍa-arpita-aṅghraye*—cuyos pies de loto son adorados por sabios que están más allá de todo castigo.

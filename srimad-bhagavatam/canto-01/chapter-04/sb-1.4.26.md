@@ -1,11 +1,11 @@
 ### SB 1.4.26
 
-> एवं प्रवृत्तस्य सदा भूतानां श्रेयसि द्विजाः ।
+> एवं प्रवृत्तस्य सदा भूतानां श्रेयसि द्विजाः ।\
 > सर्वात्मकेनापि यदा नातुष्यद्धृदयं ततः ॥२६॥
 
-> evaṁ pravṛttasya sadā
-> bhūtānāṁ śreyasi dvijāḥ
-> sarvātmakenāpi yadā
+> evaṁ pravṛttasya sadā\
+> bhūtānāṁ śreyasi dvijāḥ\
+> sarvātmakenāpi yadā\
 > nātuṣyad dhṛdayaṁ tataḥ
 
 *evam*—thus; *pravṛttasya*—one who is engaged in; *sadā*—always; *bhūtānām*—of the living beings; *śreyasi*—in the ultimate good; *dvijāḥ*—O twice-born; *sarvātmakena api*—by all means; *yadā*—when; *na*—not; *atuṣyat*—become satisfied; *hṛdayam*—mind; *tataḥ*—at that.

@@ -1,13 +1,13 @@
 ### SB 9.13.1
 
-> श्रीशुक उवाच
-> निमिरिक्ष्वाकुतनयो वसिष्ठमवृतर्त्विजम
+> श्रीशुक उवाच\
+> निमिरिक्ष्वाकुतनयो वसिष्ठमवृतर्त्विजम\
 > आरभ्य सत्रं सोऽप्याह शक्रेण प्राग्वृतोऽस्मि भोः ॥१॥
 
-> śrī-śuka uvāca
-> nimir ikṣvāku-tanayo
-> vasiṣṭham avṛtartvijam
-> ārabhya satraṁ so 'py āha
+> śrī-śuka uvāca\
+> nimir ikṣvāku-tanayo\
+> vasiṣṭham avṛtartvijam\
+> ārabhya satraṁ so 'py āha\
 > śakreṇa prāg vṛto 'smi bhoḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *nimiḥ*—el rey Nimi; *ikṣvāku-tanayaḥ*—el hijo de Mahārāja Ikṣvāku; *vasiṣṭham*—al gran sabio Vasiṣṭha; *avṛta*—designó; *ṛtvijam*—sumo sacerdote en el sacrificio; *ārabhya*—comenzar; *satram*—el sacrificio; *saḥ*—él, Vasiṣṭha; *api*—también; *āha*—dijo; *śakreṇa*—por el Señor Indra; *prāk*—antes; *vṛtaḥ asmi*—fui designado; *bhoḥ*—¡oh, Mahārāja Nimi!.

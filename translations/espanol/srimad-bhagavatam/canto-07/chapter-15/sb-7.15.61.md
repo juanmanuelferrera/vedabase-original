@@ -1,11 +1,11 @@
 ### SB 7.15.61
 
-> स्यात्सादृश्यभ्रमस्तावद्विकल्पे सति वस्तुनः
+> स्यात्सादृश्यभ्रमस्तावद्विकल्पे सति वस्तुनः\
 > जाग्रत्स्वापौ यथा स्वप्ने तथा विधिनिषेधता ॥६१॥
 
-> syāt sādṛśya-bhramas tāvad
-> vikalpe sati vastunaḥ
-> jāgrat-svāpau yathā svapne
+> syāt sādṛśya-bhramas tāvad\
+> vikalpe sati vastunaḥ\
+> jāgrat-svāpau yathā svapne\
 > tathā vidhi-niṣedhatā
 
 *syāt*—se vuelve así; *sādṛśya*—semejanza; *bhramaḥ*—error; *tāvat*—mientras tanto; *vikalpe*—en separación; *sati*—la parte; *vastunaḥ*—de la sustancia; *jāgrat*—despertar; *svāpau*—dormir; *yathā*—como; *svapne*—en un sueño; *tathā*—de manera similar; *vidhi-niṣedhatā*—los principios regulativos, compuestos de mandamientos y prohibiciones.

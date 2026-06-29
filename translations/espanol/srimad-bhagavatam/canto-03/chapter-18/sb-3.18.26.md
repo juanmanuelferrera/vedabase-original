@@ -1,11 +1,11 @@
 ### SB 3.18.26
 
-> एषा घोरतमा सन्ध्या लोकच्छम्बट्करी प्रभो ।
+> एषा घोरतमा सन्ध्या लोकच्छम्बट्करी प्रभो ।\
 > उपसर्पति सर्वात्मन्सुराणां जयमावह ॥२६॥
 
-> eṣā ghoratamā sandhyā
-> loka-cchambaṭ-karī prabho
-> upasarpati sarvātman
+> eṣā ghoratamā sandhyā\
+> loka-cchambaṭ-karī prabho\
+> upasarpati sarvātman\
 > surāṇāṁ jayam āvaha
 
 *eṣā*—este; *ghora-tamā*—muy oscuro; *sandhyā*—tiempo nocturno; *loka*—el mundo; *chambaṭ-karī*—destruyendo; *prabho*—¡oh, Señor!; *upasarpati*—se acerca; *sarva-ātman*—¡oh, Alma de toda alma!; *surāṇām*—a los semidioses; *jayam*—victoria; *āvaha*—trae.

@@ -1,11 +1,11 @@
 ### SB 1.7.28
 
-> न ह्यस्यान्यतमं किञ्चिदस्त्रं प्रत्यवकर्शनम् ।
+> न ह्यस्यान्यतमं किञ्चिदस्त्रं प्रत्यवकर्शनम् ।\
 > जह्यस्त्रतेज उन्नद्धमस्त्रज्ञो ह्यस्त्रतेजसा ॥२८॥
 
-> na hy asyānyatamaṁ kiñcid
-> astraṁ pratyavakarśanam
-> jahy astra-teja unnaddham
+> na hy asyānyatamaṁ kiñcid\
+> astraṁ pratyavakarśanam\
+> jahy astra-teja unnaddham\
 > astra-jño hy astra-tejasā
 
 *na*—no; *hi*—indudablemente; *asya*—de él; *anyatamam*—otro; *kiñcit*—cualquier cosa; *astram*—arma; *prati*—contra; *avakarśanam*—reaccionario; *jahi*—subyúgalo; *astra-tejaḥ*—el deslumbrante fulgor de esta arma; *unnaddham*—muy poderoso; *astra-jñaḥ*—experto en la ciencia militar; *hi*—de hecho; *astra-tejasā*—por la influencia del arma.

@@ -1,11 +1,11 @@
 ### SB 3.7.36
 
-> अनुव्रतानां शिष्याणां पुत्राणां च द्विजोत्तम ।
+> अनुव्रतानां शिष्याणां पुत्राणां च द्विजोत्तम ।\
 > अनापृष्टमपि ब्रूयुर्गुरवो दीनवत्सलाः ॥३६॥
 
-> anuvratānāṁ śiṣyāṇāṁ
-> putrāṇāṁ ca dvijottama
-> anāpṛṣṭam api brūyur
+> anuvratānāṁ śiṣyāṇāṁ\
+> putrāṇāṁ ca dvijottama\
+> anāpṛṣṭam api brūyur\
 > guravo dīna-vatsalāḥ
 
 *anuvratānām*—los seguidores; *śiṣyāṇām*—de los discípulos; *putrāṇām*—de los hijos; *ca*—también; *dvija-uttama*—¡oh, el mejor de los *brāhmaṇas*!; *anāpṛṣṭam*—aquello que no se ha pedido; *api*—a pesar de; *brūyuḥ*—por favor, describe; *guravaḥ*—los maestros espirituales; *dīna-vatsalāḥ*—que son bondadosos con los necesitados.

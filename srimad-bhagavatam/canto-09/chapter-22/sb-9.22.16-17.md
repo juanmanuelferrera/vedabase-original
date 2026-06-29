@@ -1,18 +1,18 @@
 ### SB 9.22.16-17
 
-> एवमुक्तो द्विजैर्ज्येष्ठं छन्दयामास सोऽब्रवीत
-> तन्मन्त्रिप्रहितैर्विप्रैर्वेदाद्विभ्रंशितो गिरा ॥१६॥
-> वेदवादातिवादान्वै तदा देवो ववर्ष ह
+> एवमुक्तो द्विजैर्ज्येष्ठं छन्दयामास सोऽब्रवीत\
+> तन्मन्त्रिप्रहितैर्विप्रैर्वेदाद्विभ्रंशितो गिरा ॥१६॥\
+> वेदवादातिवादान्वै तदा देवो ववर्ष ह\
 > देवापिर्योगमास्थाय कलापग्राममाश्रितः ॥१७॥
 
-> evam ukto dvijair jyeṣṭhaṁ
-> chandayām āsa so 'bravīt
-> tan-mantri-prahitair viprair
+> evam ukto dvijair jyeṣṭhaṁ\
+> chandayām āsa so 'bravīt\
+> tan-mantri-prahitair viprair\
 > vedād vibhraṁśito girā
 
-> veda-vādātivādān vai
-> tadā devo vavarṣa ha
-> devāpir yogam āsthāya
+> veda-vādātivādān vai\
+> tadā devo vavarṣa ha\
+> devāpir yogam āsthāya\
 > kalāpa-grāmam āśritaḥ
 
 *evam*—thus (as above mentioned); *uktaḥ*—being advised; *dvijaiḥ*—by the *brāhmaṇas*; *jyeṣṭham*—unto his eldest brother, Devāpi; *chandayām āsa*—requested to take charge of the kingdom; *saḥ*—he (Devāpi); *abravīt*—said; *tat-mantri*—by Śāntanu's minister; *prahitaiḥ*—instigated; *vipraiḥ*—by the *brāhmaṇas*; *vedāt*—from the principles of the *Vedas*; *vibhraṁśitaḥ*—fallen; *girā*—by such words; *veda-vāda-ativādān*—words blaspheming the Vedic injunctions; *vai*—indeed; *tadā*—at that time; *devaḥ*—the demigod; *vavarṣa*—showered rains; *ha*—in the past; *devāpiḥ*—Devāpi; *yogam āsthāya*—accepting the process of mystic *yoga*; *kalāpa-grāmam*—the village known as Kalāpa; *āśritaḥ*—took shelter of (and is living in even now).

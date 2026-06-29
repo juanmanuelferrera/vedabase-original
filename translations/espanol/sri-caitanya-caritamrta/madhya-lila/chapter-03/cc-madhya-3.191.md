@@ -1,9 +1,9 @@
 ### CC Madhya 3.191
 
-> আজ্ঞা দেহ নীলাচলে করিয়ে গমন ।
+> আজ্ঞা দেহ নীলাচলে করিয়ে গমন ।\
 > মধ্যে মধ্যে আসি’ তোমায় দিব দরশন ॥১৯১॥
 
-> ājñā deha nīlācale kariye gamana
+> ājñā deha nīlācale kariye gamana\
 > madhye madhye āsi' tomāya diba daraśana
 
 *ājñā deha*—dad permiso; *nīlācale*—a Jagannātha Purī; *kariye*—hago; *gamana*—marcha; *madhye madhye*—de vez en cuando; *āsi'*—viniendo aquí; *tomāya*—a todos vosotros; *diba*—daré; *daraśana*—audiencia.

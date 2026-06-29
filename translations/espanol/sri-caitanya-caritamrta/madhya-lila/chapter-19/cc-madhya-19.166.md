@@ -1,9 +1,9 @@
 ### CC Madhya 19.166
 
-> ‘শুদ্ধভক্তি’ হৈতে হয় ‘প্রেমা’ উৎপন্ন ।
+> ‘শুদ্ধভক্তি’ হৈতে হয় ‘প্রেমা’ উৎপন্ন ।\
 > অতএব শুদ্ধভক্তির কহিয়ে ‘লক্ষণ’ ॥১৬৬॥
 
-> 'śuddha-bhakti' haite haya 'premā' utpanna
+> 'śuddha-bhakti' haite haya 'premā' utpanna\
 > ataeva śuddha-bhaktira kahiye 'lakṣaṇa'
 
 *śuddha-bhakti*—servicio devocional puro, sin contaminaciones materiales; *haite*—del cual; *haya*—existe; *premā*—amor por la Suprema Personalidad de Dios; *utpanna*—producido; *ataeva*—por lo tanto; *śuddha-bhaktira*—del servicio devocional puro; *kahiye*—permítaseme explicar; *lakṣaṇa*—los síntomas.

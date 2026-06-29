@@ -1,11 +1,11 @@
 ### CC Antya 17.1
 
-> লিখ্যতে শ্রীল-গৌরেন্দোরত্যদ্ভুতমলৌকিকম্ ।
+> লিখ্যতে শ্রীল-গৌরেন্দোরত্যদ্ভুতমলৌকিকম্ ।\
 > যৈর্দৃষ্টং তন্মুখাচ্ছ্রুত্বা দিব্যোন্মাদ-বিচেষ্টিতম্ ॥১॥
 
-> likhyate śrīla-gaurendor
-> atyadbhutam alaukikam
-> yair dṛṣṭaṁ tan-mukhāc chrutvā
+> likhyate śrīla-gaurendor\
+> atyadbhutam alaukikam\
+> yair dṛṣṭaṁ tan-mukhāc chrutvā\
 > divyonmāda-viceṣṭitam
 
 *likhyate*—they are being written; *śrīla*—most opulent; *gaura*—of Śrī Caitanya Mahāprabhu; *indoḥ*—moonlike; *ati*—very; *adbhutam*—wonderful; *alaukikam*—uncommon; *yaiḥ*—by whom; *dṛṣṭam*—personally seen; *tat-mukhāt*—from their mouths; *śrutvā*—after hearing; *divya-unmāda*—in transcendental madness; *viceṣṭitam*—activities.

@@ -1,9 +1,9 @@
 ### CC Madhya 18.20
 
-> প্রভু-প্রেম-সৌন্দর্য দেখি’ লোকে চমৎকার ।
+> প্রভু-প্রেম-সৌন্দর্য দেখি’ লোকে চমৎকার ।\
 > হরিদেবের ভৃত্য প্ৰভুর করিল সত্কার ॥২০॥
 
-> prabhu-prema-saundarya dekhi' loke camatkāra
+> prabhu-prema-saundarya dekhi' loke camatkāra\
 > haridevera bhṛtya prabhura karila satkāra
 
 *prabhu*—of Śrī Caitanya Mahāprabhu; *prema-saundarya*—ecstatic love and beauty; *dekhi'*—seeing; *loke*—people; *camatkāra*—astonished; *hari-devera*—of Lord Harideva; *bhṛtya*—servants; *prabhura*—of Śrī Caitanya Mahāprabhu; *karila satkāra*—offered a good reception.

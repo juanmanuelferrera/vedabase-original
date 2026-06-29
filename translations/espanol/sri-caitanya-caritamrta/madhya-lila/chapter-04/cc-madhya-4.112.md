@@ -1,9 +1,9 @@
 ### CC Madhya 4.112
 
-> রেমুণাতে কৈল গোপীনাথ দরশন ।
+> রেমুণাতে কৈল গোপীনাথ দরশন ।\
 > তাঁর রূপ দেখিঞা হৈল বিহ্বল-মন ॥১১২॥
 
-> remuṇāte kaila gopīnātha daraśana
+> remuṇāte kaila gopīnātha daraśana\
 > tāṅra rūpa dekhiñā haila vihvala-mana
 
 *remuṇāte*—en la aldea de Remuṇā; *kaila*—hizo; *gopīnātha*—la Deidad de Gopīnātha; *daraśana*—ver; *tāṅra*—Su; *rūpa*—belleza; *dekhiñā*—al contemplar; *haila*—quedó; *vihvala*—perturbada; *mana*—la mente.

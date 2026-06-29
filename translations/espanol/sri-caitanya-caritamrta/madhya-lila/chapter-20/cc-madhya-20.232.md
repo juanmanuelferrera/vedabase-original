@@ -1,9 +1,9 @@
 ### CC Madhya 20.232
 
-> পদ্মনাভ — শঙ্খপদ্মচক্রগদাকর ।
+> পদ্মনাভ — শঙ্খপদ্মচক্রগদাকর ।\
 > দামোদর — পদ্মচক্রগদাশঙ্খধর ॥২৩২॥
 
-> padmanābha--śaṅkha-padma-cakra-gadā-kara
+> padmanābha--śaṅkha-padma-cakra-gadā-kara\
 > dāmodara--padma-cakra-gadā-śaṅkha-dhara
 
 *padmanābha*—el Señor Padmanābha; *śaṅkha*—caracola; *padma*—loto; *cakra*—disco; *gadā*—maza; *kara*—en las manos; *dāmodara*—el Señor Dāmodara; *padma*—loto; *cakra*—disco; *gadā*—maza; *śaṅkha*—caracola; *dhara*—que sostiene.

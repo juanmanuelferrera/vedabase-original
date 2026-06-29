@@ -1,11 +1,11 @@
 ### SB 7.1.2
 
-> न ह्यस्यार्थः सुरगणैः साक्षान्निःश्रेयसात्मनः
+> न ह्यस्यार्थः सुरगणैः साक्षान्निःश्रेयसात्मनः\
 > नैवासुरेभ्यो विद्वेषो नोद्वेगश्चागुणस्य हि ॥२॥
 
-> na hy asyārthaḥ sura-gaṇaiḥ
-> sākṣān niḥśreyasātmanaḥ
-> naivāsurebhyo vidveṣo
+> na hy asyārthaḥ sura-gaṇaiḥ\
+> sākṣān niḥśreyasātmanaḥ\
+> naivāsurebhyo vidveṣo\
 > nodvegaś cāguṇasya hi
 
 *na*—not; *hi*—certainly; *asya*—His; *arthaḥ*—benefit, interest; *sura-gaṇaiḥ*—with the demigods; *sākṣāt*—personally; *niḥśreyasa*—of the highest bliss; *ātmanaḥ*—whose nature; *na*—not; *eva*—certainly; *asurebhyaḥ*—for the demons; *vidveṣaḥ*—envy; *na*—not; *udvegaḥ*—fear; *ca*—and; *aguṇasya*—who possesses no material qualities; *hi*—certainly.

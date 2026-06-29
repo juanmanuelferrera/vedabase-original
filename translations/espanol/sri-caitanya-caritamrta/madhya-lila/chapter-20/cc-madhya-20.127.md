@@ -1,9 +1,9 @@
 ### CC Madhya 20.127
 
-> ইহাতে দৃষ্টান্ত — যৈছে দরিদ্রের ঘরে ৷
+> ইহাতে দৃষ্টান্ত — যৈছে দরিদ্রের ঘরে ৷\
 > ‘সর্বজ্ঞ’ আসি’ দুঃখ দেখি’ পুছয়ে তাহারে ৷৷ ১২৭ ৷৷ ॥১২৭॥
 
-> ihāte dṛṣṭānta--yaiche daridrera ghare
+> ihāte dṛṣṭānta--yaiche daridrera ghare\
 > 'sarvajña' āsi' duḥkha dekhi' puchaye tāhāre
 
 *ihāte*—en relación con esto; *dṛṣṭānta*—el ejemplo; *yaiche*—tal como; *daridrera ghare*—en la casa de un hombre pobre; *sarva-jña*—un astrólogo; *āsi'*—viniendo; *duḥkha*—condición de aflicción; *dekhi'*—viendo; *puchaye tāhāre*—le pregunta.

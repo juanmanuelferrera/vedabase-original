@@ -1,11 +1,11 @@
 ### SB 7.8.2
 
-> अथाचार्यसुतस्तेषां बुद्धिमेकान्तसंस्थिताम
+> अथाचार्यसुतस्तेषां बुद्धिमेकान्तसंस्थिताम\
 > आलक्ष्य भीतस्त्वरितो राज्ञअ आवेदयद्यथा ॥२॥
 
-> athācārya-sutas teṣāṁ
-> buddhim ekānta-saṁsthitām
-> ālakṣya bhītas tvarito
+> athācārya-sutas teṣāṁ\
+> buddhim ekānta-saṁsthitām\
+> ālakṣya bhītas tvarito\
 > rājña āvedayad yathā
 
 *atha*—thereupon; *ācārya-sutaḥ*—the son of Śukrācārya; *teṣām*—of them (the sons of the demons); *buddhim*—the intelligence; *ekānta-saṁsthitām*—fixed in one subject matter, devotional service; *ālakṣya*—realizing or seeing practically; *bhītaḥ*—being afraid; *tvaritaḥ*—as soon as possible; *rājñe*—unto the King (Hiraṇyakaśipu); *āvedayat*—submitted; *yathā*—fittingly.

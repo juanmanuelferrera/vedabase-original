@@ -1,14 +1,14 @@
 ### CC Adi 4.271-272
 
-> পিতামাতা, গুরুগণ, আগে অবতারি’ ।
-> রাধিকার ভাব-বর্ণ অঙ্গীকার করি’ ॥২৭১॥
-> নবদ্বীপে শচীগর্ভ-শুদ্ধদুগ্ধসিন্ধু ।
+> পিতামাতা, গুরুগণ, আগে অবতারি’ ।\
+> রাধিকার ভাব-বর্ণ অঙ্গীকার করি’ ॥২৭১॥\
+> নবদ্বীপে শচীগর্ভ-শুদ্ধদুগ্ধসিন্ধু ।\
 > তাহাতে প্রকট হৈলা কৃষ্ণ পূর্ণ ইন্দু ॥২৭২॥
 
-> pitā-mātā, guru-gaṇa, āge avatāri'
+> pitā-mātā, guru-gaṇa, āge avatāri'\
 > rādhikāra bhāva-varṇa aṅgīkāra kari'
 
-> nava-dvīpe śacī-garbha-śuddha-dugdha-sindhu
+> nava-dvīpe śacī-garbha-śuddha-dugdha-sindhu\
 > tāhāte prakaṭa hailā kṛṣṇa pūrṇa indu
 
 *pitā-mātā*—parents; *guru-gaṇa*—teachers; *āge*—first; *avatāri'*—descending; *rādhikāra*—of Śrīmatī Rādhārāṇī; *bhāva-varṇa*—the luster of transcendental ecstasy; *aṅgīkāra kari'*—accepting; *navadvīpe*—in Navadvīpa; *śacī-garbha*—the womb of Śacī; *śuddha*—pure; *dugdha-sindhu*—the ocean of milk; *tāhāte*—in that; *prakaṭa*—manifested; *hailā*—became; *kṛṣṇa*—Lord Kṛṣṇa; *pūrṇa indu*—full moon.

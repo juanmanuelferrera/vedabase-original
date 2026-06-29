@@ -1,11 +1,11 @@
 ### SB 9.5.20
 
-> प्रीतोऽस्म्यनुगृहीतोऽस्मि तव भागवतस्य वै
+> प्रीतोऽस्म्यनुगृहीतोऽस्मि तव भागवतस्य वै\
 > दर्शनस्पर्शनालापैरातिथ्येनात्ममेधसा ॥२०॥
 
-> prīto 'smy anugṛhīto 'smi
-> tava bhāgavatasya vai
-> darśana-sparśanālāpair
+> prīto 'smy anugṛhīto 'smi\
+> tava bhāgavatasya vai\
+> darśana-sparśanālāpair\
 > ātithyenātma-medhasā
 
 *prītaḥ*—very much satisfied; *asmi*—I am; *anugṛhītaḥ*—very much favored; *asmi*—I am; *tava*—your; *bhāgavatasya*—because of your being a pure devotee; *vai*—indeed; *darśana*—by seeing you; *sparśana*—and touching your feet; *ālāpaiḥ*—by talking with you; *ātithyena*—by your hospitality; *ātma-medhasā*—by my own intelligence.

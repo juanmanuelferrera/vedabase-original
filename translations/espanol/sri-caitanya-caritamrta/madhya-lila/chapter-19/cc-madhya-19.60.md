@@ -1,9 +1,9 @@
 ### CC Madhya 19.60
 
-> ত্রিবেণী-উপর প্রভুর বাসা-ঘর স্থান ।
+> ত্রিবেণী-উপর প্রভুর বাসা-ঘর স্থান ।\
 > দুই ভাই বাসা কৈল প্রভু-সন্নিধান ॥৬০॥
 
-> triveṇī-upara prabhura vāsā-ghara sthāna
+> triveṇī-upara prabhura vāsā-ghara sthāna\
 > dui bhāi vāsā kaila prabhu-sannidhāna
 
 *tri-veṇī-upara*—en la ribera de la confluencia del Yamunā y el Ganges; *prabhura*—de Śrī Caitanya Mahāprabhu; *vāsā-ghara*—de la casa de residencia; *sthāna*—el lugar; *dui bhāi*—los dos hermanos; *vāsā kaila*—residieron; *prabhu-sannidhāna*—cerca de Śrī Caitanya Mahāprabhu.

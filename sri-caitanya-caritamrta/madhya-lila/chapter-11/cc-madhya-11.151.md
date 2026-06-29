@@ -1,11 +1,11 @@
 ### CC Madhya 11.151
 
-> নিমজ্জতোঽনন্ত ভবার্ণবান্তশ্চিরায় মে কূলমিবাসি লব্ধঃ ।
+> নিমজ্জতোঽনন্ত ভবার্ণবান্তশ্চিরায় মে কূলমিবাসি লব্ধঃ ।\
 > ত্বয়াপি লব্ধং ভগবন্নিদানীমনুত্তমং পাত্রমিদং দয়ায়াঃ ॥১৫১॥
 
-> nimajjato 'nanta bhavārṇavāntaś
-> cirāya me kūlam ivāsi labdhaḥ
-> tvayāpi labdhaṁ bhagavann idānīm
+> nimajjato 'nanta bhavārṇavāntaś\
+> cirāya me kūlam ivāsi labdhaḥ\
+> tvayāpi labdhaṁ bhagavann idānīm\
 > anuttamaṁ pātram idaṁ dayāyāḥ
 
 *nimajjataḥ*—being immersed; *ananta*—O unlimited one; *bhava-arṇava-antaḥ*—within the ocean of nescience; *cirāya*—after a long time; *me*—of me; *kūlam*—the shore; *iva*—like; *asi*—You are; *labdhaḥ*—obtained; *tvayā*—by You; *api*—also; *labdham*—has been gained; *bhagavan*—O my Lord; *idānīm*—now; *anuttamam*—the best; *pātram*—candidate; *idam*—this; *dayāyāḥ*—for showing Your mercy.

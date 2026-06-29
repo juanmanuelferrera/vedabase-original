@@ -1,13 +1,13 @@
 ### SB 4.29.56
 
-> राजोवाच
-> श्रुतमन्वीक्षितं ब्रह्मन्भगवान्यदभाषत ।
+> राजोवाच\
+> श्रुतमन्वीक्षितं ब्रह्मन्भगवान्यदभाषत ।\
 > नैतज्जानन्त्युपाध्यायाः किं न ब्रूयुर्विदुर्यदि ॥५६॥
 
-> rājovāca
-> śrutam anvīkṣitaṁ brahman
-> bhagavān yad abhāṣata
-> naitaj jānanty upādhyāyāḥ
+> rājovāca\
+> śrutam anvīkṣitaṁ brahman\
+> bhagavān yad abhāṣata\
+> naitaj jānanty upādhyāyāḥ\
 > kiṁ na brūyur vidur yadi
 
 *rājā uvāca*—the King said; *śrutam*—was heard; *anvīkṣitam*—was considered; *brahman*—O *brāhmaṇa*; *bhagavān*—the most powerful; *yat*—which; *abhāṣata*—you have spoken; *na*—not; *etat*—this; *jānanti*—do know; *upādhyāyāḥ*—the teachers of fruitive activities; *kim*—why; *na brūyuḥ*—they did not instruct; *viduḥ*—they understood; *yadi*—if.

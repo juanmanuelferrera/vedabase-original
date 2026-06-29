@@ -1,9 +1,9 @@
 ### CC Madhya 9.339
 
-> প্রভুর আগমন শুনি’ নিত্যানন্দ রায় ৷
+> প্রভুর আগমন শুনি’ নিত্যানন্দ রায় ৷\
 > উঠিয়া চলিলা, প্রেমে থেহ নাহি পায় ৷৷ ৩৩৯ ৷৷ ॥৩৩৯॥
 
-> prabhura āgamana śuni' nityānanda rāya
+> prabhura āgamana śuni' nityānanda rāya\
 > uṭhiyā calilā, preme theha nāhi pāya
 
 *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *āgamana*—la llegada; *śuni'*—al oír; *nityānanda rāya*—el Señor Nityānanda; *uṭhiyā calilā*—se levantó y se puso en marcha; *preme*—en gran éxtasis; *theha*—paciencia; *nāhi pāya*—no tiene.

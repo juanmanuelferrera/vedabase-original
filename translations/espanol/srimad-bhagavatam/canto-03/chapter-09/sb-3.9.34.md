@@ -1,11 +1,11 @@
 ### SB 3.9.34
 
-> नानाकर्मवितानेन प्रजा बह्वीः सिसृक्षतः ।
+> नानाकर्मवितानेन प्रजा बह्वीः सिसृक्षतः ।\
 > नात्मावसीदत्यस्मिंस्ते वर्षीयान्मदनुग्रहः ॥३४॥
 
-> nānā-karma-vitānena
-> prajā bahvīḥ sisṛkṣataḥ
-> nātmāvasīdaty asmiṁs te
+> nānā-karma-vitānena\
+> prajā bahvīḥ sisṛkṣataḥ\
+> nātmāvasīdaty asmiṁs te\
 > varṣīyān mad-anugrahaḥ
 
 *nānā-karma*—variedades de servicio; *vitānena*—mediante la expansión de; *prajāḥ*—población; *bahvīḥ*—innumerable; *sisṛkṣataḥ*—deseando aumentar; *na*—nunca; *ātmā*—el ser; *avasīdati*—será privado; *asmin*—en lo referente a; *te*—de ti; *varṣīyān*—siempre aumentando; *mat*—Mi; *anugrahaḥ*—misericordia sin causa.

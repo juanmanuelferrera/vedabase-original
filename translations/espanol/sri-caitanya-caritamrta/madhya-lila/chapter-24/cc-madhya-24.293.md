@@ -1,10 +1,10 @@
 ### CC Madhya 24.293
 
-> ‘মুনি’, ‘নির্গ্রন্থ’, ‘চ’ ‘অপি’, — চারি শব্দের অর্থ ৷
+> ‘মুনি’, ‘নির্গ্রন্থ’, ‘চ’ ‘অপি’, — চারি শব্দের অর্থ ৷\
 > যাহাঁ যেই লাগে, তাহা করিয়ে সমর্থ ॥২৯৩॥
 
-> 'muni', 'nirgrantha', 'ca' 'api',--cāri śabdera artha
-> yāhāṅ yei lāge, tāhā kariye samartha
+> 'muni', 'nirgrantha', 'ca' 'api',--cāri śabdera artha\
+> yāhāṅ yei lāge, tāhā kariye samartha\
 > SYNONYMS
 
 *muni*—el sabio; *nirgrantha*—erudito o necio; *ca*—también; *api*—a pesar de; *cāri śabdera artha*—los significados de estas cuatro palabras; *yāhāṅ*—dondequiera; *yei lāge*—se apliquen; *tāhā kariye samartha*—los hacen consistentes.

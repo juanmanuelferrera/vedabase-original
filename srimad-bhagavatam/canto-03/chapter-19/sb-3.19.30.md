@@ -1,13 +1,13 @@
 ### SB 3.19.30
 
-> देवा ऊचुः
-> नमो नमस्तेऽखिलयज्ञतन्तवे स्थितौ गृहीतामलसत्त्वमूर्तये ।
+> देवा ऊचुः\
+> नमो नमस्तेऽखिलयज्ञतन्तवे स्थितौ गृहीतामलसत्त्वमूर्तये ।\
 > दिष्ट्या हतोऽयं जगतामरुन्तुदस्त्वत्पादभक्त्या वयमीश निर्वृताः ॥३०॥
 
-> devā ūcuḥ
-> namo namas te 'khila-yajña-tantave
-> sthitau gṛhītāmala-sattva-mūrtaye
-> diṣṭyā hato 'yaṁ jagatām aruntudas
+> devā ūcuḥ\
+> namo namas te 'khila-yajña-tantave\
+> sthitau gṛhītāmala-sattva-mūrtaye\
+> diṣṭyā hato 'yaṁ jagatām aruntudas\
 > tvat-pāda-bhaktyā vayam īśa nirvṛtāḥ
 
 *devāḥ*—the demigods; *ūcuḥ*—said; *namaḥ*—obeisances; *namaḥ*—obeisances; *te*—unto You; *akhila-yajña-tantave*—the enjoyer of all sacrifices; *sthitau*—for the purpose of maintaining; *gṛhīta*—assumed; *amala*—pure; *sattva*—goodness; *mūrtaye*—form; *diṣṭyā*—fortunately; *hataḥ*—slain; *ayam*—this; *jagatām*—to the worlds; *aruntudaḥ*—causing torment; *tvat-pāda*—to Your feet; *bhaktyā*—with devotion; *vayam*—we; *īśa*—O Lord; *nirvṛtāḥ*—have attained happiness.

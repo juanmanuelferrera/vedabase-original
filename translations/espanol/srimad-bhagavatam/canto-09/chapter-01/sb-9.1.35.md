@@ -1,11 +1,11 @@
 ### SB 9.1.35
 
-> सापि तं चकमे सुभ्रूः सोमराजसुतं पतिम
+> सापि तं चकमे सुभ्रूः सोमराजसुतं पतिम\
 > स तस्यां जनयामास पुरूरवसमात्मजम ॥३५॥
 
-> sāpi taṁ cakame subhrūḥ
-> somarāja-sutaṁ patim
-> sa tasyāṁ janayām āsa
+> sāpi taṁ cakame subhrūḥ\
+> somarāja-sutaṁ patim\
+> sa tasyāṁ janayām āsa\
 > purūravasam ātmajam
 
 *sā*—Sudyumna, transformado en mujer; *api*—también; *tam*—a él (a Budha); *cakame*—deseó relación sexual; *su-bhrūḥ*—muy hermosa; *somarāja-sutam*—al hijo del rey de la Luna; *patim*—como esposo; *saḥ*—él (Budha); *tasyām*—en su vientre; *janayām āsa*—engendró; *purūravasam*—llamado Purūravā; *ātma-jam*—un hijo.

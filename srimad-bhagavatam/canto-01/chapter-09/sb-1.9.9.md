@@ -1,11 +1,11 @@
 ### SB 1.9.9
 
-> तान्समेतान्महाभागानुपलभ्य वसूत्तमः ।
+> तान्समेतान्महाभागानुपलभ्य वसूत्तमः ।\
 > पूजयामास धर्मज्ञो देशकालविभागवित् ॥९॥
 
-> tān sametān mahā-bhāgān
-> upalabhya vasūttamaḥ
-> pūjayām āsa dharma-jño
+> tān sametān mahā-bhāgān\
+> upalabhya vasūttamaḥ\
+> pūjayām āsa dharma-jño\
 > deśa-kāla-vibhāgavit
 
 *tān*—all of them; *sametān*—assembled together; *mahā-bhāgān*—all greatly powerful; *upalabhya*—having received; *vasu-uttamaḥ*—the best among the Vasus (Bhīṣmadeva); *pūjayām āsa*—welcomed; *dharma-jñaḥ*—one who knows religious principles; *deśa*—place; *kāla*—time; *vibhāga-vit*—one who knows the adjustment of place and time.

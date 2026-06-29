@@ -1,11 +1,11 @@
 ### SB 6.1.67
 
-> यदसौ शास्त्रमुल्लङ्घ्य स्वैरचार्यतिगर्हितः
+> यदसौ शास्त्रमुल्लङ्घ्य स्वैरचार्यतिगर्हितः\
 > अवर्तत चिरं कालमघायुरशुचिर्मलात ॥६७॥
 
-> yad asau śāstram ullaṅghya
-> svaira-cāry ati-garhitaḥ
-> avartata ciraṁ kālam
+> yad asau śāstram ullaṅghya\
+> svaira-cāry ati-garhitaḥ\
+> avartata ciraṁ kālam\
 > aghāyur aśucir malāt
 
 *yat*—because; *asau*—this *brāhmaṇa*; *śāstram ullaṅghya*—transgressing the laws of *śāstra*; *svaira-cārī*—acting irresponsibly; *ati-garhitaḥ*—very much condemned; *avartata*—passed; *ciram kālam*—a long time; *agha-āyuḥ*—whose life was full of sinful activities; *aśuciḥ*—unclean; *malāt*—because of impurity.

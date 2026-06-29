@@ -1,9 +1,9 @@
 ### CC Madhya 1.228
 
-> সেই রাত্রে প্রভু তাহাঁ চিন্তে মনে মন ।
+> সেই রাত্রে প্রভু তাহাঁ চিন্তে মনে মন ।\
 > সঙ্গে সংঘট্ট ভাল নহে, কৈল সনাতন ॥২২৮॥
 
-> sei rātre prabhu tāhāṅ cinte mane mana
+> sei rātre prabhu tāhāṅ cinte mane mana\
 > saṅge saṅghaṭṭa bhāla nahe, kaila sanātana
 
 *sei rātre*—that night; *prabhu*—the Lord; *tāhāṅ*—there; *cinte*—thinks; *mane*—within His mind; *mana*—the mind; *saṅge*—with Him; *saṅghaṭṭa*—crowds of men; *bhālanahe*—is not good; *kailasanātana*—Sanātana has so spoken.

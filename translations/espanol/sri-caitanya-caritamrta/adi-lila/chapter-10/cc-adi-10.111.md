@@ -1,9 +1,9 @@
 ### CC Adi 10.111
 
-> সুবুদ্ধি মিশ্র, হৃদয়ানন্দ, কমলনয়ন ।
+> সুবুদ্ধি মিশ্র, হৃদয়ানন্দ, কমলনয়ন ।\
 > মহেশ পণ্ডিত, শ্রীকর, শ্রীমধুসূদন ॥১১১॥
 
-> subuddhi miśra, hṛdayānanda, kamala-nayana
+> subuddhi miśra, hṛdayānanda, kamala-nayana\
 > maheśa paṇḍita, śrīkara, śrī-madhusūdana
 
 *subuddhi miśra*—de nombre Subuddhi Miśra; *hṛdayānanda*—de nombre Hṛdayānanda; *kamala-nayana*—de nombre Kamala-nayana; *maheśa paṇḍita*—de nombre Maheśa Paṇḍita; *śrīkara*—de nombre Śrīkara; *śrī-madhusūdana*—de nombre Śrī Madhusūdana.

@@ -1,11 +1,11 @@
 ### SB 8.21.22
 
-> बलेन सचिवैर्बुद्ध्या दुर्गैर्मन्त्रौषधादिभिः
+> बलेन सचिवैर्बुद्ध्या दुर्गैर्मन्त्रौषधादिभिः\
 > सामादिभिरुपायैश्च कालं नात्येति वै जनः ॥२२॥
 
-> balena sacivair buddhyā
-> durgair mantrauṣadhādibhiḥ
-> sāmādibhir upāyaiś ca
+> balena sacivair buddhyā\
+> durgair mantrauṣadhādibhiḥ\
+> sāmādibhir upāyaiś ca\
 > kālaṁ nātyeti vai janaḥ
 
 *balena*—con poder material; *sacivaiḥ*—con el consejo de los ministros; *buddhyā*—con inteligencia; *durgaiḥ*—con fortificaciones; *mantra-auṣadha-ādibhiḥ*—con cánticos místicos o la influencia de hierbas y drogas; *sāma-ādibhiḥ*—con diplomacia u otros medios por el estilo; *upāyaiḥ ca*—y otros procedimientos similares; *kālam*—al factor tiempo, que representa al Señor Supremo; *na*—nunca; *atyeti*—puede vencer; *vai*—en verdad; *janaḥ*—ninguna persona.

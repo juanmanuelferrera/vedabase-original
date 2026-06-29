@@ -1,11 +1,11 @@
 ### SB 7.5.12
 
-> स यदानुव्रतः पुंसां पशुबुद्धिर्विभिद्यते
+> स यदानुव्रतः पुंसां पशुबुद्धिर्विभिद्यते\
 > अन्य एष तथान्योऽहमिति भेदगतासती ॥१२॥
 
-> sa yadānuvrataḥ puṁsāṁ
-> paśu-buddhir vibhidyate
-> anya eṣa tathānyo 'ham
+> sa yadānuvrataḥ puṁsāṁ\
+> paśu-buddhir vibhidyate\
+> anya eṣa tathānyo 'ham\
 > iti bheda-gatāsatī
 
 *saḥ*—esa Suprema Personalidad de Dios; *yadā*—cuando; *anuvrataḥ*—favorable o complacido; *puṁsām*—de las almas condicionadas; *paśu-buddhiḥ*—el concepto animal de la vida («yo soy el Supremo, y todos somos Dios»); *vibhidyate*—se destruye; *anyaḥ*—otro; *eṣaḥ*—este; *tathā*—así como; *anyaḥ*—otro; *aham*—yo; *iti*—así; *bheda*—distinción; *gata*—teniendo; *asatī*—que es desastroso.

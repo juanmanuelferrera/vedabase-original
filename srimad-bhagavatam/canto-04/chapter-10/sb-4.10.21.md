@@ -1,11 +1,11 @@
 ### SB 4.10.21
 
-> अपश्यमानः स तदाततायिनं महामृधे कञ्चन मानवोत्तमः ।
+> अपश्यमानः स तदाततायिनं महामृधे कञ्चन मानवोत्तमः ।\
 > पुरीं दिदृक्षन्नपि नाविशद्द्विषां न मायिनां वेद चिकीर्षितं जनः ॥२१॥
 
-> apaśyamānaḥ sa tadātatāyinaṁ
-> mahā-mṛdhe kañcana mānavottamaḥ
-> purīṁ didṛkṣann api nāviśad dviṣāṁ
+> apaśyamānaḥ sa tadātatāyinaṁ\
+> mahā-mṛdhe kañcana mānavottamaḥ\
+> purīṁ didṛkṣann api nāviśad dviṣāṁ\
 > na māyināṁ veda cikīrṣitaṁ janaḥ
 
 *apaśyamānaḥ*—while not observing; *saḥ*—Dhruva; *tadā*—at that time; *ātatāyinam*—armed opposing soldiers; *mahā-mṛdhe*—in that great battlefield; *kañcana*—any; *mānava-uttamaḥ*—the best of the human beings; *purīm*—the city; *didṛkṣan*—wishing to see; *api*—although; *na āviśat*—did not enter; *dviṣām*—of the enemies; *na*—not; *māyinām*—of the mystics; *veda*—knows; *cikīrṣitam*—the plans; *janaḥ*—anyone.

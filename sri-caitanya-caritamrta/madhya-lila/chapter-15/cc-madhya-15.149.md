@@ -1,9 +1,9 @@
 ### CC Madhya 15.149
 
-> রঘুনাথের পায় মুঞি বেচিয়াছোঁ মাথা  ।
+> রঘুনাথের পায় মুঞি বেচিয়াছোঁ মাথা  ।\
 > কাঢ়িতে না পারি মাথা, মনে পাই ব্যথা ॥১৪৯॥
 
-> raghunāthera pāya muñi veciyāchoṅ māthā
+> raghunāthera pāya muñi veciyāchoṅ māthā\
 > kāḍhite nā pāri māthā, mane pāi vyathā
 
 *raghunāthera pāya*—unto the lotus feet of Lord Raghunātha; *muñi*—I; *veciyāchoṅ*—sold; *māthā*—head; *kāḍhite*—to cut off; *nā pāri*—I am unable; *māthā*—my head; *mane*—in my mind; *pāi vyathā*—I get too much pain.

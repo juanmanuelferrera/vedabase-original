@@ -1,9 +1,9 @@
 ### CC Madhya 19.148
 
-> কোটিজ্ঞানি-মধ্যে হয় একজন ‘মুক্ত’ ।
+> কোটিজ্ঞানি-মধ্যে হয় একজন ‘মুক্ত’ ।\
 > কোটিমুক্ত-মধ্যে ‘দুর্লভ’ এক কৃষ্ণভক্ত ॥১৪৮॥
 
-> koṭi-jñāni-madhye haya eka-jana 'mukta'
+> koṭi-jñāni-madhye haya eka-jana 'mukta'\
 > koṭi-mukta-madhye 'durlabha' eka kṛṣṇa-bhakta
 
 *koṭi-jñāni-madhye*—de entre muchos millones de tales hombres sabios; *haya*—hay; *eka-jana*—una persona; *mukta*—verdaderamente liberada; *koṭi-mukta-madhye*—de entre muchos millones de tales personas liberadas; *durlabha*—muy raro; *eka*—uno; *kṛṣṇa-bhakta*—devoto puro del Señor Kṛṣṇa.

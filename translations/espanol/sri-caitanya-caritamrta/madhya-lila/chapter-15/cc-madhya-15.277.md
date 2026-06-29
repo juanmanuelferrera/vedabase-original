@@ -1,9 +1,9 @@
 ### CC Madhya 15.277
 
-> উঠহ, অমোঘ, তুমি লও কৃষ্ণনাম ।
+> উঠহ, অমোঘ, তুমি লও কৃষ্ণনাম ।\
 > অচিরে তোমারে কৃপা করিবে ভগবান্ ॥২৭৭॥
 
-> uṭhaha, amogha, tumi lao kṛṣṇa-nāma
+> uṭhaha, amogha, tumi lao kṛṣṇa-nāma\
 > acire tomāre kṛpā karibe bhagavān
 
 *uṭhaha*—levántate; *amogha*—Amogha; *tumi*—tú; *lao*—canta; *kṛṣṇa-nāma*—el santo nombre del Señor Kṛṣṇa; *acire*—muy pronto; *tomāre*—a ti; *kṛpā*—misericordia; *karibe*—concederá; *bhagavān*—la Suprema Personalidad de Dios.

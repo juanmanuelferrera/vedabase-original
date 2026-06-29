@@ -1,11 +1,11 @@
 ### CC Adi 16.71
 
-> রসালঙ্কারবৎ কাব্যং দোষযুক্ চেদ্বিভূষিতম্ ।
+> রসালঙ্কারবৎ কাব্যং দোষযুক্ চেদ্বিভূষিতম্ ।\
 > স্যাদ্বপুঃ সুন্দরমপি শ্বিত্রেণৈকেন দুর্ভগম্ ॥৭১॥
 
-> rasālaṅkāra-vat kāvyaṁ
-> doṣa-yuk ced vibhūṣitam
-> syād vapuḥ sundaram api
+> rasālaṅkāra-vat kāvyaṁ\
+> doṣa-yuk ced vibhūṣitam\
+> syād vapuḥ sundaram api\
 > śvitreṇaikena durbhagam
 
 *rasa*—con rasas; *alaṅkāra-vat*—con ornamentos (metáforas, símiles, etc.); *kāvyam*—poesía; *doṣa-yuk*—defectuoso; *cet*—si; *vibhūṣitam*—muy bien decorado; *syāt*—se convierte; *vapuḥ*—el cuerpo; *sundaram*—hermoso; *api*—aunque; *śvitreṇa*—por una mancha blanca de lepra; *ekena*—una; *durbhagam*—desdichado.

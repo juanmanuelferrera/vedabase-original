@@ -1,11 +1,11 @@
 ### SB 3.6.2
 
-> कालसञ्ज्ञां तदा देवीं बिभ्रच्छक्तिमुरुक्रमः ।
+> कालसञ्ज्ञां तदा देवीं बिभ्रच्छक्तिमुरुक्रमः ।\
 > त्रयोविंशति तत्त्वानां गणं युगपदाविशत् ॥२॥
 
-> kāla-sañjñāṁ tadā devīṁ
-> bibhrac-chaktim urukramaḥ
-> trayoviṁśati tattvānāṁ
+> kāla-sañjñāṁ tadā devīṁ\
+> bibhrac-chaktim urukramaḥ\
+> trayoviṁśati tattvānāṁ\
 > gaṇaṁ yugapad āviśat
 
 *kāla-sañjñām*—known as Kālī; *tadā*—at that time; *devīm*—the goddess; *bibhrat*—destructive; *śaktim*—potency; *urukramaḥ*—the supreme powerful; *trayaḥ-viṁśati*—twenty-three; *tattvānām*—of the elements; *gaṇam*—all of them; *yugapat*—simultaneously; *āviśat*—entered.

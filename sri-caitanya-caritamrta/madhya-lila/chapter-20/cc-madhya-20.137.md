@@ -1,11 +1,11 @@
 ### CC Madhya 20.137
 
-> ন সাধয়তি মাং যোগো ন সাংখ্যং ধর্ম উদ্ধব ।
+> ন সাধয়তি মাং যোগো ন সাংখ্যং ধর্ম উদ্ধব ।\
 > ন স্বাধ্যায়স্তপস্ত্যাগো যথা ভক্তির্মমোর্জিতা ॥১৩৭॥
 
-> na sādhayati māṁ yogo
-> na sāṅkhyaṁ dharma uddhava
-> na svādhyāyas tapas tyāgo
+> na sādhayati māṁ yogo\
+> na sāṅkhyaṁ dharma uddhava\
+> na svādhyāyas tapas tyāgo\
 > yathā bhaktir mamorjitā
 
 *na*—never; *sādhayati*—causes to remain satisfied; *mām*—Me; *yogaḥ*—the process of control; *na*—nor; *sāṅkhyam*—the process of gaining philosophical knowledge about the Absolute Truth; *dharmaḥ*—such an occupation; *uddhava*—My dear Uddhava; *na*—nor; *svādhyāyaḥ*—study of the Vedas; *tapaḥ*—austerities; *tyāgaḥ*—renunciation, acceptance of sannyāsa, or charity; *yathā*—as much as; *bhaktiḥ*—devotional service; *mama*—unto Me; *ūrjitā*—developed.

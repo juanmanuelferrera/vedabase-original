@@ -1,9 +1,9 @@
 ### CC Antya 15.86
 
-> ‘অষ্টসাত্ত্বিক’ ভাব অঙ্গে প্রকট হইল ।
+> ‘অষ্টসাত্ত্বিক’ ভাব অঙ্গে প্রকট হইল ।\
 > হর্ষাদি ‘ব্যভিচারী’ সব উথলিল ॥৮৬॥
 
-> 'aṣṭa-sāttvika' bhāva aṅge prakaṭa ha-ila
+> 'aṣṭa-sāttvika' bhāva aṅge prakaṭa ha-ila\
 > harṣādi 'vyabhicārī' saba uthalila
 
 *asta-sāttvika*—eight spiritual; *bhāva*—emotions; *aṅge*—on the body; *prakaṭa ha-ila*—became manifest; *harṣa-ādi*—beginning with jubilation; *vyabhicārī*—thirty-three changes of *vyabhicārī-bhāva*; *saba*—all; *uthalila*—were manifest.

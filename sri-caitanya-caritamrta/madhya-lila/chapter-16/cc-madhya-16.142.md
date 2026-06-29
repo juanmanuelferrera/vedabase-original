@@ -1,9 +1,9 @@
 ### CC Madhya 16.142
 
-> এত বলি’ মহাপ্রভু নৌকাতে চড়িলা ।
+> এত বলি’ মহাপ্রভু নৌকাতে চড়িলা ।\
 > মূর্চ্ছিত হঞা পণ্ডিত তথাই পড়িলা ॥১৪২॥
 
-> eta bali' mahāprabhu naukāte caḍilā
+> eta bali' mahāprabhu naukāte caḍilā\
 > mūrcchita hañā paṇḍita tathāi paḍilā
 
 *eta bali'*—saying this; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *naukāte caḍilā*—got on a boat; *mūrcchita hañā*—fainting; *paṇḍita*—Gadādhara Paṇḍita Gosvāmī; *tathāi*—there; *paḍilā*—fell down.

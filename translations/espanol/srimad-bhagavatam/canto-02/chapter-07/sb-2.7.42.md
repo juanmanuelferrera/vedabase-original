@@ -1,13 +1,13 @@
 ### SB 2.7.42
 
-> येषां स एष भगवान्दययेदनन्तः
-> सर्वात्मनाश्रितपदो यदि निर्व्यलीकम् ।
-> ते दुस्तरामतितरन्ति च देवमायां
+> येषां स एष भगवान्दययेदनन्तः\
+> सर्वात्मनाश्रितपदो यदि निर्व्यलीकम् ।\
+> ते दुस्तरामतितरन्ति च देवमायां\
 > नैषां ममाहमिति धीः श्वशृगालभक्ष्ये ॥४२॥
 
-> yeṣāṁ sa eṣa bhagavān dayayed anantaḥ
-> sarvātmanāśrita-pado yadi nirvyalīkam
-> te dustarām atitaranti ca deva-māyāṁ
+> yeṣāṁ sa eṣa bhagavān dayayed anantaḥ\
+> sarvātmanāśrita-pado yadi nirvyalīkam\
+> te dustarām atitaranti ca deva-māyāṁ\
 > naiṣāṁ mamāham iti dhīḥ śva-śṛgāla-bhakṣye
 
 *yeṣāṁ*—solo aquellos; *saḥ*—el Señor; *eṣaḥ*—la; *bhagavān*—la Personalidad de Dios; *dayayet*—otorga Su misericordia; *anantaḥ*—el potencial ilimitado; *sarva-ātmanā*—por todos los medios, sin reserva; *āśrita-padaḥ*—alma rendida; *yadi*—si esa entrega; *nirvyalīkam*—sin presunción; *te*—esos solo; *dustarām*—infranqueable; *atitaranti*—puede superar; *ca*—y los enseres; *deva-māyām*—diversas energías del Señor; *na*—no; *eṣām*—de ellos; *mama*—mío; *aham*—yo; *iti*—así pues; *dhīḥ*—conscientes; *śva*—perros; *śṛgāla*—chacales; *bhakṣye*—en cuanto a comer.

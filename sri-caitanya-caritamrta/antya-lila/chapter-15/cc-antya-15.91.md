@@ -1,9 +1,9 @@
 ### CC Antya 15.91
 
-> ‘বল্’ ‘বল্’ প্রভু বলেন, ভক্তগণ শুনি’ ।
+> ‘বল্’ ‘বল্’ প্রভু বলেন, ভক্তগণ শুনি’ ।\
 > চৌদিকেতে সবে মেলি’ করে হরিধ্বনি ॥৯১॥
 
-> 'bal' 'bal' prabhu balena, bhakta-gaṇa śuni'
+> 'bal' 'bal' prabhu balena, bhakta-gaṇa śuni'\
 > caudikete sabe meli' kare hari-dhvani
 
 *bal bal*—go on singing, go on singing; *prabhu balena*—Śrī Caitanya Mahāprabhu said; *bhakta-gaṇa*—the devotees; *śuni'*—hearing; *cau-dikete*—all around; *sabe*—all; *meli'*—combining; *kare hari-dhvani*—vibrate the holy name of Hari.

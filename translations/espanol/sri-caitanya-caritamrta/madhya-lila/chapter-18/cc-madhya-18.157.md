@@ -1,9 +1,9 @@
 ### CC Madhya 18.157
 
-> এত বলি’ মহাপ্রভুরে নৌকায় বসাঞা ।
+> এত বলি’ মহাপ্রভুরে নৌকায় বসাঞা ।\
 > পার করি’ ভট্টাচার্য চলিলা লঞা ॥১৫৭॥
 
-> eta bali' mahāprabhure naukāya vasāñā
+> eta bali' mahāprabhure naukāya vasāñā\
 > pāra kari' bhaṭṭācārya calilā lañā
 
 *eta bali'*—diciendo esto; *mahāprabhure*—a Śrī Caitanya Mahāprabhu; *naukāya*—en un bote; *vasāñā*—haciéndole sentar; *pāra kari'*—cruzando el río; *bhaṭṭācārya*—Balabhadra Bhaṭṭācārya; *calilā*—fue; *lañā*—llevándose.

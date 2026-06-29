@@ -1,13 +1,13 @@
 ### CC Madhya 14.194
 
-> হ্রিয়া তির্যগ্-গ্রীবা-চরণ-কটি-ভঙ্গী-সুমধুরা
-> চলচ্চিল্লী-বল্লী-দলিত-রতিনাথোর্জিত-ধনুঃ ।
-> প্রিয়-প্রেমোল্লাসোল্লসিত-ললিতালালিত-তনুঃ
+> হ্রিয়া তির্যগ্-গ্রীবা-চরণ-কটি-ভঙ্গী-সুমধুরা\
+> চলচ্চিল্লী-বল্লী-দলিত-রতিনাথোর্জিত-ধনুঃ ।\
+> প্রিয়-প্রেমোল্লাসোল্লসিত-ললিতালালিত-তনুঃ\
 > প্রিয়প্রীত্যৈ সাসীদুদিতললিতালঙ্কৃতিযুতা ॥১৯৪॥
 
-> hriyā tiryag-grīvā-caraṇa-kaṭi-bhaṅgī-sumadhurā
-> calac-cillī-vallī-dalita-ratināthorjita-dhanuḥ
-> priya-premollāsollasita-lalitālālita-tanuḥ
+> hriyā tiryag-grīvā-caraṇa-kaṭi-bhaṅgī-sumadhurā\
+> calac-cillī-vallī-dalita-ratināthorjita-dhanuḥ\
+> priya-premollāsollasita-lalitālālita-tanuḥ\
 > priya-prītyai sāsīd udita-lalitālaṅkṛti-yutā
 
 *hriyā*—por Su actitud de timidez; *tiryak*—yendo de lado; *grīvā*—del cuello; *caraṇa*—de las rodillas; *kaṭi*—de la cintura; *bhaṅgī*—por la curva; *su-madhura*—muy dulce; *calat-cillī*—de las cejas en movimiento; *vallī*—por las enredaderas; *dalita*—conquistado; *rati-nātha*—de Cupido; *ūrjita*—poderoso; *dhanuḥ*—por lo cual el arco; *priya-prema-ullāsa*—debido a la actitud amorosa del amado; *ullasita*—inspirado; *lalita*—por el estado de ánimo conocido como lalita; *ālālita-tanuḥ*—cuyo cuerpo está cubierto; *priya-prītyai*—para complacer al amado; *sā*—Śrīmatī Rādhārāṇī; *āsīt*—estaba; *udita*—despierto; *lalita-alaṅkṛti-yutā*—poseedora del lalita-alaṅkāra.

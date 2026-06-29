@@ -1,11 +1,11 @@
 ### CC Madhya 24.138
 
-> দৈবী হ্যেষা গুণময়ী মম মায়া দুরত্যয়া ।
+> দৈবী হ্যেষা গুণময়ী মম মায়া দুরত্যয়া ।\
 > মামেব যে প্রপদ্যন্তে মায়ামেতাং তরন্তি তে ॥১৩৮॥
 
-> daivī hy eṣā guṇa-mayī
-> mama māyā duratyayā
-> mām eva ye prapadyante
+> daivī hy eṣā guṇa-mayī\
+> mama māyā duratyayā\
+> mām eva ye prapadyante\
 > māyām etāṁ taranti te
 
 *daivī*—perteneciente al Señor Supremo; *hi*—ciertamente; *eṣā*—esta; *guṇa-mayī*—compuesta de las tres modalidades; *mama*—Mi; *māyā*—energía externa; *duratyayā*—muy difícil de superar; *mām*—a Mí; *eva*—ciertamente; *ye*—aquellos que; *prapadyante*—se rinden plenamente; *māyām*—la energía ilusoria; *etām*—esta; *taranti*—atraviesan; *te*—ellos.

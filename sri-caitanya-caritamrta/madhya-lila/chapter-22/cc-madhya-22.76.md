@@ -1,13 +1,13 @@
 ### CC Madhya 22.76
 
-> যস্যাস্তি ভক্তির্ভগবত্যকিঞ্চনা
-> সর্বৈর্গুণৈস্তত্র সমাসতে সুরাঃ ।
-> হরাবভক্তস্য কুতো মহদ্গুণা
+> যস্যাস্তি ভক্তির্ভগবত্যকিঞ্চনা\
+> সর্বৈর্গুণৈস্তত্র সমাসতে সুরাঃ ।\
+> হরাবভক্তস্য কুতো মহদ্গুণা\
 > মনোরথেনাসতি ধাবতো বহিঃ ॥৭৬॥
 
-> yasyāsti bhaktir bhagavaty akiñcanā
-> sarvair guṇais tatra samāsate surāḥ
-> harāv abhaktasya kuto mahad-guṇā
+> yasyāsti bhaktir bhagavaty akiñcanā\
+> sarvair guṇais tatra samāsate surāḥ\
+> harāv abhaktasya kuto mahad-guṇā\
 > mano-rathenāsati dhāvato bahiḥ
 
 *yasya*—of whom; *asti*—there is; *bhaktiḥ*—devotional service; *bhagavati*—unto the Supreme Personality of Godhead; *akiñcanā*—without material desires; *sarvaiḥ*—all; *guṇaiḥ*—with good qualities; *tatra*—there; *samāsate*—live; *surāḥ*—the demigods; *harau*—unto the Lord; *abhaktasya*—of the nondevotee; *kutaḥ*—where; *mahat-guṇāḥ*—the high qualities; *manaḥ-rathena*—by mental concoction; *asati*—to temporary material happiness; *dhāvataḥ*—running; *bahiḥ*—externally.

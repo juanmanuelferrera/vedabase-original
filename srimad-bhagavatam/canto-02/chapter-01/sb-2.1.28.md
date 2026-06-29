@@ -1,11 +1,11 @@
 ### SB 2.1.28
 
-> उरःस्थलं ज्योतिरनीकमस्य ग्रीवा महर्वदनं वै जनोऽस्य ।
+> उरःस्थलं ज्योतिरनीकमस्य ग्रीवा महर्वदनं वै जनोऽस्य ।\
 > तपो वराटीं विदुरादिपुंसः सत्यं तु शीर्षाणि सहस्रशीर्ष्णः ॥२८॥
 
-> uraḥ-sthalaṁ jyotir-anīkam asya
-> grīvā mahar vadanaṁ vai jano 'sya
-> tapo varāṭīṁ vidur ādi-puṁsaḥ
+> uraḥ-sthalaṁ jyotir-anīkam asya\
+> grīvā mahar vadanaṁ vai jano 'sya\
+> tapo varāṭīṁ vidur ādi-puṁsaḥ\
 > satyaṁ tu śīrṣāṇi sahasra-śīrṣṇaḥ
 
 *uraḥ*—high; *sthalam*—place (the chest); *jyotiḥ-anīkam*—the luminary planets; *asya*—of Him; *grīvā*—the neck; *mahaḥ*—the planetary system above the luminaries; *vadanam*—mouth; *vai*—exactly; *janaḥ*—the planetary system above Mahar; *asya*—of Him; *tapaḥ*—the planetary system above the Janas; *varāṭīm*—forehead; *viduḥ*—is known; *ādi*—the original; *puṁsaḥ*—personality; *satyam*—the topmost planetary system; *tu*—but; *śīrṣāṇi*—the head; *sahasra*—one thousand; *śīrṣṇaḥ*—one with heads.

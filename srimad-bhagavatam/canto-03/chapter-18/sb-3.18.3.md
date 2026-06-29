@@ -1,11 +1,11 @@
 ### SB 3.18.3
 
-> आहैनमेह्यज्ञ महीं विमुञ्च नो रसौकसां विश्वसृजेयमर्पिता ।
+> आहैनमेह्यज्ञ महीं विमुञ्च नो रसौकसां विश्वसृजेयमर्पिता ।\
 > न स्वस्ति यास्यस्यनया ममेक्षतः सुराधमासादितसूकराकृते ॥३॥
 
-> āhainam ehy ajña mahīṁ vimuñca no
-> rasaukasāṁ viśva-sṛjeyam arpitā
-> na svasti yāsyasy anayā mamekṣataḥ
+> āhainam ehy ajña mahīṁ vimuñca no\
+> rasaukasāṁ viśva-sṛjeyam arpitā\
+> na svasti yāsyasy anayā mamekṣataḥ\
 > surādhamāsādita-sūkarākṛte
 
 *āha*—Hiraṇyākṣa said; *enam*—to the Lord; *ehi*—come and fight; *ajña*—O fool; *mahīm*—the earth; *vimuñca*—give up; *naḥ*—to us; *rasā-okasām*—of the inhabitants of the lower regions; *viśva-sṛjā*—by the creator of the universe; *iyam*—this earth; *arpitā*—entrusted; *na*—not; *svasti*—well-being; *yāsyasi*—You will go; *anayā*—with this; *mama īkṣataḥ*—while I am seeing; *sura-adhama*—O lowest of the demigods; *āsādita*—having taken; *sūkara-ākṛte*—the form of a boar.

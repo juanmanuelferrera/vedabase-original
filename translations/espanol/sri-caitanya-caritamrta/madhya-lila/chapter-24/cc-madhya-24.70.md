@@ -1,9 +1,9 @@
 ### CC Madhya 24.70
 
-> এই ত’ একাদশ পদের অর্থ-নির্ণয় ।
+> এই ত’ একাদশ পদের অর্থ-নির্ণয় ।\
 > এবে শ্লোকার্থ করি, যথা যে লাগয় ॥৭০॥
 
-> ei ta' ekādaśa padera artha-nirṇaya
+> ei ta' ekādaśa padera artha-nirṇaya\
 > ebe ślokārtha kari, yathā ye lāgaya
 
 *ei ta'*—esto; *ekādaśa*—once; *padera*—de las palabras; *artha-nirṇaya*—demostración del significado; *ebe*—ahora; *śloka-artha*—el significado total del verso; *kari*—permítanme hacer; *yathā*—tanto como; *ye*—lo que; *lāgaya*—sea aplicable.

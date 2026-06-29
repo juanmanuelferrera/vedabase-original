@@ -1,9 +1,9 @@
 ### CC Madhya 17.226
 
-> নীলাচলে ছিলা যৈছে প্রেমাবেশ মন ।
+> নীলাচলে ছিলা যৈছে প্রেমাবেশ মন ।\
 > বৃন্দাবন যাইতে পথে হৈল শত-গুণ ॥২২৬॥
 
-> nīlācale chilā yaiche premāveśa mana
+> nīlācale chilā yaiche premāveśa mana\
 > vṛndāvana yāite pathe haila śata-guṇa
 
 *nīlācale*—en Jagannātha Purī; *chilā*—estaba; *yaiche*—como; *prema-āveśa mana*—siempre con una mentalidad de amor extático; *vṛndāvana*—a Vṛndāvana; *yāite*—yendo; *pathe*—por el camino; *haila*—se volvió; *śata-guṇa*—cien veces mayor.

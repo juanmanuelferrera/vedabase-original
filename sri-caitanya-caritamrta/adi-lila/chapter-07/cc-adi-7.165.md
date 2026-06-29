@@ -1,9 +1,9 @@
 ### CC Adi 7.165
 
-> নিত্যানন্দ-গোসাঞে পাঠাইলা গৌড়দেশে ।
+> নিত্যানন্দ-গোসাঞে পাঠাইলা গৌড়দেশে ।\
 > তেঁহো ভক্তি প্রচারিলা অশেষ-বিশেষে ॥১৬৫॥
 
-> nityānanda-gosāñe pāṭhāilā gauḍa-deśe
+> nityānanda-gosāñe pāṭhāilā gauḍa-deśe\
 > teṅho bhakti pracārilā aśeṣa-viśeṣe
 
 *nityānanda*—Lord Nityānanda; *gosāñe*—the *ācārya*; *pāṭhāilā*—was sent; *gauḍa-deśe*—in Bengal; *teṅho*—He; *bhakti*—devotional cult; *pracārilā*—preached; *aśeṣa-viśeṣe*—in a very extensive way.

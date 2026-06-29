@@ -1,11 +1,11 @@
 ### SB 1.12.23
 
-> पितामहसमः साम्ये प्रसादे गिरिशोपमः ।
+> पितामहसमः साम्ये प्रसादे गिरिशोपमः ।\
 > आश्रयः सर्वभूतानां यथा देवो रमाश्रयः ॥२३॥
 
-> pitāmaha-samaḥ sāmye
-> prasāde giriśopamaḥ
-> āśrayaḥ sarva-bhūtānāṁ
+> pitāmaha-samaḥ sāmye\
+> prasāde giriśopamaḥ\
+> āśrayaḥ sarva-bhūtānāṁ\
 > yathā devo ramāśrayaḥ
 
 *pitāmaha*—the grandfather, or Brahmā; *samaḥ*—equally good; *sāmye*—in the matter; *prasāde*—in charity or in munificence; *giriśa*—Lord Śiva; *upamaḥ*—comparison of equilibrium; *āśrayaḥ*—resort; *sarva*—all; *bhūtānām*—of the living beings; *yathā*—as; *devaḥ*—the Supreme Lord; *ramā-āśrayaḥ*—the Personality of Godhead.

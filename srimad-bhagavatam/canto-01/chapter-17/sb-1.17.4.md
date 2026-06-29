@@ -1,11 +1,11 @@
 ### SB 1.17.4
 
-> पप्रच्छ रथमारूढः कार्तस्वरपरिच्छदम् ।
+> पप्रच्छ रथमारूढः कार्तस्वरपरिच्छदम् ।\
 > मेघगम्भीरया वाचा समारोपितकार्मुकः ॥४॥
 
-> papraccha ratham ārūḍhaḥ
-> kārtasvara-paricchadam
-> megha-gambhīrayā vācā
+> papraccha ratham ārūḍhaḥ\
+> kārtasvara-paricchadam\
+> megha-gambhīrayā vācā\
 > samāropita-kārmukaḥ
 
 *papraccha*—inquired; *ratham*—chariot; *ārūḍhaḥ*—seated on; *kārtasvara*—gold; *paricchadam*—embossed with; *megha*—cloud; *gambhīrayā*—exonerating; *vācā*—sound; *samāropita*—well equipped; *kārmukaḥ*—arrows and bow.

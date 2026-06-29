@@ -1,11 +1,11 @@
 ### SB 7.6.14
 
-> कुटुम्बपोषाय वियन्निजायुर्न बुध्यतेऽर्थं विहतं प्रमत्तः
+> कुटुम्बपोषाय वियन्निजायुर्न बुध्यतेऽर्थं विहतं प्रमत्तः\
 > सर्वत्र तापत्रयदुःखितात्मा निर्विद्यते न स्वकुटुम्बरामः ॥१४॥
 
-> kuṭumba-poṣāya viyan nijāyur
-> na budhyate 'rthaṁ vihataṁ pramattaḥ
-> sarvatra tāpa-traya-duḥkhitātmā
+> kuṭumba-poṣāya viyan nijāyur\
+> na budhyate 'rthaṁ vihataṁ pramattaḥ\
+> sarvatra tāpa-traya-duḥkhitātmā\
 > nirvidyate na sva-kuṭumba-rāmaḥ
 
 *kuṭumba*—de los miembros de la familia; *poṣāya*—para mantener; *viyat*—disminuir; *nija-āyuḥ*—su tiempo de vida; *na*—no; *budhyate*—entiende; *artham*—el interés o propósito de la vida; *vihatam*—arruinado; *pramattaḥ*—enloquecido por las condiciones materiales; *sarvatra*—en todas partes; *tāpa-traya*—por las tres clases de miserias (*adhyātmika, adhidaivika* y *adhibhautika*); *duḥkhita*—afligido; *ātmā*—él mismo; *nirvidyate*—se llena de remordimientos; *na*—no; *sva-kuṭumba-rāmaḥ*—disfrutando con el simple hecho de mantener a los miembros de la familia.

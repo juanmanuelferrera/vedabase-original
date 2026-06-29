@@ -1,18 +1,18 @@
 ### SB 1.11.10
 
-> कथं वयं नाथ चिरोषिते त्वयि प्रसन्नदृष्ट्याखिलतापशोषणम्
-> जीवेम ते सुन्दरहासशोभितमपश्यमाना वदनं मनोहरम् ।
-> इति चोदीरिता वाचः प्रजानां भक्तवत्सलः
+> कथं वयं नाथ चिरोषिते त्वयि प्रसन्नदृष्ट्याखिलतापशोषणम्\
+> जीवेम ते सुन्दरहासशोभितमपश्यमाना वदनं मनोहरम् ।\
+> इति चोदीरिता वाचः प्रजानां भक्तवत्सलः\
 > शृण्वानोऽनुग्रहं दृष्ट्या वितन्वन्प्राविशत्पुरम् ॥१०॥
 
-> kathaṁ vayaṁ nātha ciroṣite tvayi
-> prasanna-dṛṣṭyākhila-tāpa-śoṣaṇam
-> jīvema te sundara-hāsa-śobhitam
+> kathaṁ vayaṁ nātha ciroṣite tvayi\
+> prasanna-dṛṣṭyākhila-tāpa-śoṣaṇam\
+> jīvema te sundara-hāsa-śobhitam\
 > apaśyamānā vadanaṁ manoharam
 
-> iti codīritā vācaḥ
-> prajānāṁ bhakta-vatsalaḥ
-> śṛṇvāno 'nugrahaṁ dṛṣṭyā
+> iti codīritā vācaḥ\
+> prajānāṁ bhakta-vatsalaḥ\
+> śṛṇvāno 'nugrahaṁ dṛṣṭyā\
 > vitanvan prāviśat puram
 
 *katham*—how; *vayam*—we; *nātha*—O Lord; *ciroṣite*—being abroad almost always; *tvayi*—by You; *prasanna*—satisfaction; *dṛṣṭyā*—by the glance; *akhila*—universal; *tāpa*—miseries; *śoṣaṇam*—vanquishing; *jīvema*—shall be able to live; *te*—Your; *sundara*—beautiful; *hāsa*—smiling; *śobhitam*—decorated; *apaśyamānāḥ*—without seeing; *vadanam*—face; *manoharam*—attractive; *iti*—thus; *ca*—and; *udīritāḥ*—speaking; *vācaḥ*—words; *prajānām*—of the citizens; *bhakta-vatsalaḥ*—kind to the devotees; *śṛṇvānaḥ*—thus learning; *anugraham*—kindness; *dṛṣṭyā*—by glances; *vitanvan*—distributing; *prāviśat*—entered; *puram*—Dvārakāpurī.

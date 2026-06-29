@@ -1,13 +1,13 @@
 ### SB 1.14.1
 
-> सूत उवाच
-> सम्प्रस्थिते द्वारकायांजिष्णौ बन्धुदिदृक्षया ।
+> सूत उवाच\
+> सम्प्रस्थिते द्वारकायांजिष्णौ बन्धुदिदृक्षया ।\
 > ज्ञातुं च पुण्यश्लोकस्य कृष्णस्य च विचेष्टितम् ॥१॥
 
-> sūta uvāca
-> samprasthite dvārakāyāṁ
-> jiṣṇau bandhu-didṛkṣayā
-> jñātuṁ ca puṇya-ślokasya
+> sūta uvāca\
+> samprasthite dvārakāyāṁ\
+> jiṣṇau bandhu-didṛkṣayā\
+> jñātuṁ ca puṇya-ślokasya\
 > kṛṣṇasya ca viceṣṭitam
 
 *sūtaḥ uvāca*—Śrī Sūta Gosvāmī said; *samprasthite*—having gone to; *dvārakāyām*—the city of Dvārakā; *jiṣṇau*—Arjuna; *bandhu*—friends and relatives; *didṛkṣayā*—for meeting them; *jñātum*—to know; *ca*—also; *puṇya-ślokasya*—of one whose glories are sung by Vedic hymns; *kṛṣṇasya*—of Lord Kṛṣṇa; *ca*—and; *viceṣṭitam*—further programs of work.

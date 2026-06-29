@@ -1,11 +1,11 @@
 ### SB 4.5.13
 
-> तावत्स रुद्रानुचरैर्महामखो नानायुधैर्वामनकैरुदायुधैः ।
+> तावत्स रुद्रानुचरैर्महामखो नानायुधैर्वामनकैरुदायुधैः ।\
 > पिङ्गैः पिशङ्गैर्मकरोदराननैः पर्याद्रवद्भिर्विदुरान्वरुध्यत ॥१३॥
 
-> tāvat sa rudrānucarair mahā-makho
-> nānāyudhair vāmanakair udāyudhaiḥ
-> piṅgaiḥ piśaṅgair makarodarānanaiḥ
+> tāvat sa rudrānucarair mahā-makho\
+> nānāyudhair vāmanakair udāyudhaiḥ\
+> piṅgaiḥ piśaṅgair makarodarānanaiḥ\
 > paryādravadbhir vidurānvarudhyata
 
 *tāvat*—very quickly; *saḥ*—that; *rudra-anucaraiḥ*—by the followers of Lord Śiva; *mahā-makhaḥ*—the arena of the great sacrifice; *nānā*—various kinds; *āyudhaiḥ*—with weapons; *vāmanakaiḥ*—of short stature; *udāyudhaiḥ*—upraised; *piṅgaiḥ*—blackish; *piśaṅgaiḥ*—yellowish; *makara-udara-ānanaiḥ*—with bellies and faces like sharks'; *paryādravadbhiḥ*—running all around; *vidura*—O Vidura; *anvarudhyata*—was surrounded.

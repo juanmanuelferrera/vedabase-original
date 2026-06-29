@@ -1,9 +1,9 @@
 ### CC Adi 9.50
 
-> কেহ গড়াগড়ি যায়, কেহ ত’ হুঙ্কার ।
+> কেহ গড়াগড়ি যায়, কেহ ত’ হুঙ্কার ।\
 > দেখি’ আনন্দিত হঞা হাসে মালাকার ॥৫০॥
 
-> keha gaḍāgaḍi yāya, keha ta' huṅkāra
+> keha gaḍāgaḍi yāya, keha ta' huṅkāra\
 > dekhi' ānandita hañā hāse mālākāra
 
 *keha*—some of them; *gaḍāgaḍi yāya*—roll on the floor; *keha*—some of them; *ta'*—certainly; *huṅkāra*—hum very loudly; *dekhi'*—seeing this; *ānandita*—gladdened; *hañā*—becoming so; *hāse*—smiles; *mālā-kāra*—the great gardener.

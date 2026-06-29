@@ -1,9 +1,9 @@
 ### CC Adi 11.37
 
-> কালা-কৃষ্ণদাস বড় বৈষ্ণবপ্রধান ।
+> কালা-কৃষ্ণদাস বড় বৈষ্ণবপ্রধান ।\
 > নিত্যানন্দ-চন্দ্র বিনু নাহি জানে আন ॥৩৭॥
 
-> kālā-kṛṣṇadāsa baḍa vaiṣṇava-pradhāna
+> kālā-kṛṣṇadāsa baḍa vaiṣṇava-pradhāna\
 > nityānanda-candra vinu nahi jāne āna
 
 *kālā-kṛṣṇadāsa*—de nombre Kālā Kṛṣṇadāsa; *baḍa*—gran; *vaiṣṇava-pradhāna*—*vaiṣṇava* de primera clase; *nityānanda-candra*—el Señor Nityānanda; *vinu*—excepto; *nāhi jāne*—no conocía; *āna*—nada más.

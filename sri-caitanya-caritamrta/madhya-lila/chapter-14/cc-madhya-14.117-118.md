@@ -1,13 +1,13 @@
 ### CC Madhya 14.117-118
 
-> যদ্যপি জগন্নাথ করেন দ্বারকায় বিহার । সহজ প্রকট করে পরম উদার ॥১১৭॥
-> তথাপি বত্সর-মধ্যে হয় একবার ।
+> যদ্যপি জগন্নাথ করেন দ্বারকায় বিহার । সহজ প্রকট করে পরম উদার ॥১১৭॥\
+> তথাপি বত্সর-মধ্যে হয় একবার ।\
 > বৃন্দাবন দেখিতে তাঁর উৎকণ্ঠা অপার ॥১১৮॥
 
-> yadyapi jagannātha karena dvārakāya vihāra
+> yadyapi jagannātha karena dvārakāya vihāra\
 > sahaja prakaṭa kare parama udāra
 
-> tathāpi vatsara-madhye haya eka-bāra
+> tathāpi vatsara-madhye haya eka-bāra\
 > vṛndāvana dekhite tāṅra utkaṇṭhā apāra
 
 *yadyapi*—although; *jagannātha*—Lord Jagannātha; *karena*—does; *dvārakāya*—in Dvārakā-dhāma; *vihāra*—enjoyment; *sahaja*—natural; *prakaṭa*—manifestation; *kare*—does; *parama*—sublime; *udāra*—liberal; *tathāpi*—still; *vatsara-madhye*—within a year; *haya*—becomes; *eka-bāra*—once; *vṛndāvana dekhite*—to visit Vṛndāvana; *tāṅra*—His; *utkaṇṭhā*—eagerness; *apāra*—unlimited.

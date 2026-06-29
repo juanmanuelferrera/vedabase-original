@@ -1,13 +1,13 @@
 ### SB 6.9.31
 
-> श्रीदेवा ऊचुः
-> नमस्ते यज्ञअवीर्याय वयसे उत ते नमः
+> श्रीदेवा ऊचुः\
+> नमस्ते यज्ञअवीर्याय वयसे उत ते नमः\
 > नमस्ते ह्यस्तचक्राय नमः सुपुरुहूतये ॥३१॥
 
-> śrī-devā ūcuḥ
-> namas te yajña-vīryāya
-> vayase uta te namaḥ
-> namas te hy asta-cakrāya
+> śrī-devā ūcuḥ\
+> namas te yajña-vīryāya\
+> vayase uta te namaḥ\
+> namas te hy asta-cakrāya\
 > namaḥ supuru-hūtaye
 
 *śrī-devāḥ ūcuḥ*—the demigods said; *namaḥ*—obeisances; *te*—unto You; *yajña-vīryāya*—unto the Supreme Personality of Godhead, who is able to give the results of sacrifice; *vayase*—who is the time factor, which ends the results of *yajña*; *uta*—although; *te*—unto You; *namaḥ*—obeisances; *namaḥ*—obeisances; *te*—unto You; *hi*—indeed; *asta-cakrāya*—who throws the disc; *namaḥ*—respectful obeisances; *supuru-hūtaye*—having varieties of transcendental names.

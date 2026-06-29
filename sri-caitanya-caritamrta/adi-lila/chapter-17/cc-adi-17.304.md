@@ -1,9 +1,9 @@
 ### CC Adi 17.304
 
-> সেই কৃষ্ণ, সেই গোপী, — পরম বিরোধ ।
+> সেই কৃষ্ণ, সেই গোপী, — পরম বিরোধ ।\
 > অচিন্ত্য চরিত্র প্রভুর অতি সুদুর্বোধ ॥৩০৪॥
 
-> sei kṛṣṇa, sei gopī,—parama virodha
+> sei kṛṣṇa, sei gopī,—parama virodha\
 > acintya caritra prabhura ati sudurbodha
 
 *sei kṛṣṇa*—that Kṛṣṇa; *sei gopī*—that *gopī*; *parama virodha*—very much contradictory; *acintya*—inconceivable; *caritra*—character; *prabhura*—of the Lord; *ati*—very much; *sudurbodha*—difficult to understand.

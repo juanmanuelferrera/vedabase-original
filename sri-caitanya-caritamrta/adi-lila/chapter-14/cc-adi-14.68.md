@@ -1,9 +1,9 @@
 ### CC Adi 14.68
 
-> প্রভু তাঁর পূজা পাঞা হাসিতে লাগিলা ।
+> প্রভু তাঁর পূজা পাঞা হাসিতে লাগিলা ।\
 > শ্লোক পড়ি’ তাঁর ভাব অঙ্গীকার কৈলা ॥৬৮॥
 
-> prabhu tāṅra pūjā pāñā hāsite lāgilā
+> prabhu tāṅra pūjā pāñā hāsite lāgilā\
 > śloka paḍi' tāṅra bhāva aṅgīkāra kailā
 
 *prabhu*—the Lord; *tāṅra*—her; *pūjā*—worship; *pāñā*—receiving; *hāsite*—to smile; *lāgilā*—began; *śloka paḍi'*—reciting one verse; *tāṅra*—her; *bhāva*—emotion; *aṅgīkāra kailā*—accepted.

@@ -1,11 +1,11 @@
 ### SB 3.7.11
 
-> यथा जले चन्द्रमसः कम्पादिस्तत्कृतो गुणः ।
+> यथा जले चन्द्रमसः कम्पादिस्तत्कृतो गुणः ।\
 > दृश्यतेऽसन्नपि द्रष्टुरात्मनोऽनात्मनो गुणः ॥११॥
 
-> yathā jale candramasaḥ
-> kampādis tat-kṛto guṇaḥ
-> dṛśyate 'sann api draṣṭur
+> yathā jale candramasaḥ\
+> kampādis tat-kṛto guṇaḥ\
+> dṛśyate 'sann api draṣṭur\
 > ātmano 'nātmano guṇaḥ
 
 *yathā*—as; *jale*—in the water; *candramasaḥ*—of the moon; *kampa-ādiḥ*—quivering, etc.; *tat-kṛtaḥ*—done by the water; *guṇaḥ*—quality; *dṛśyate*—it is so seen; *asan api*—without existence; *draṣṭuḥ*—of the seer; *ātmanaḥ*—of the self; *anātmanaḥ*—of other than the self; *guṇaḥ*—quality.

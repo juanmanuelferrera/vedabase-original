@@ -1,13 +1,13 @@
 ### SB 4.29.52
 
-> नारद उवाच
-> प्रश्न एवं हि सञ्छिन्नो भवतः पुरुषर्षभ ।
+> नारद उवाच\
+> प्रश्न एवं हि सञ्छिन्नो भवतः पुरुषर्षभ ।\
 > अत्र मे वदतो गुह्यं निशामय सुनिश्चितम् ॥५२॥
 
-> nārada uvāca
-> praśna evaṁ hi sañchinno
-> bhavataḥ puruṣarṣabha
-> atra me vadato guhyaṁ
+> nārada uvāca\
+> praśna evaṁ hi sañchinno\
+> bhavataḥ puruṣarṣabha\
+> atra me vadato guhyaṁ\
 > niśāmaya suniścitam
 
 *nāradaḥ uvāca*—Nārada said; *praśnaḥ*—question; *evam*—thus; *hi*—certainly; *sañchinnaḥ*—answered; *bhavataḥ*—your; *puruṣa-ṛṣabha*—O great personality; *atra*—here; *me vadataḥ*—as I am speaking; *guhyam*—confidential; *niśāmaya*—hear; *su-niścitam*—perfectly ascertained.

@@ -1,11 +1,11 @@
 ### SB 1.18.12
 
-> कर्मण्यस्मिन्ननाश्वासे धूमधूम्रात्मनां भवान् ।
+> कर्मण्यस्मिन्ननाश्वासे धूमधूम्रात्मनां भवान् ।\
 > आपाययति गोविन्द पादपद्मासवं मधु ॥१२॥
 
-> karmaṇy asminn anāśvāse
-> dhūma-dhūmrātmanāṁ bhavān
-> āpāyayati govinda-
+> karmaṇy asminn anāśvāse\
+> dhūma-dhūmrātmanāṁ bhavān\
+> āpāyayati govinda-\
 > pāda-padmāsavaṁ madhu
 
 *karmaṇi*—performance of; *asmin*—in this; *anāśvāse*—without certainty; *dhūma*—smoke; *dhūmra-ātmanām*—tinged body and mind; *bhavān*—your good self; *āpāyayati*—very much pleasing; *govinda*—the Personality of Godhead; *pāda*—feet; *padma-āsavam*—nectar of the lotus flower; *madhu*—honey.

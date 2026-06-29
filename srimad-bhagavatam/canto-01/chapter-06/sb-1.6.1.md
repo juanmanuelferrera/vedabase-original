@@ -1,13 +1,13 @@
 ### SB 1.6.1
 
-> सूत उवाच
-> एवं निशम्य भगवान्देवर्षेर्जन्म कर्म च ।
+> सूत उवाच\
+> एवं निशम्य भगवान्देवर्षेर्जन्म कर्म च ।\
 > भूयः पप्रच्छ तं ब्रह्मन्व्यासः सत्यवतीसुतः ॥१॥
 
-> sūta uvāca
-> evaṁ niśamya bhagavān
-> devarṣer janma karma ca
-> bhūyaḥ papraccha taṁ brahman
+> sūta uvāca\
+> evaṁ niśamya bhagavān\
+> devarṣer janma karma ca\
+> bhūyaḥ papraccha taṁ brahman\
 > vyāsaḥ satyavatī-sutaḥ
 
 *sūtaḥ uvāca*—Sūta said; *evam*—thus; *niśamya*—hearing; *bhagavān*—the powerful incarnation of God; *devarṣeḥ*—of the great sage among the gods; *janma*—birth; *karma*—work; *ca*—and; *bhūyaḥ*—again; *papraccha*—asked; *tam*—him; *brahman*—O *brāhmaṇas*; *vyāsaḥ*—Vyāsadeva; *satyavatī-sutaḥ*—the son of Satyavatī.

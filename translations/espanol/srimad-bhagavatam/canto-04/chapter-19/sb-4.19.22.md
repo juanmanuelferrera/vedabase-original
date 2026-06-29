@@ -1,11 +1,11 @@
 ### SB 4.19.22
 
-> वीरश्चाश्वमुपादाय पितृयज्ञमथाव्रजत् ।
+> वीरश्चाश्वमुपादाय पितृयज्ञमथाव्रजत् ।\
 > तदवद्यं हरे रूपं जगृहुर्ज्ञानदुर्बलाः ॥२२॥
 
-> vīraś cāśvam upādāya
-> pitṛ-yajñam athāvrajat
-> tad avadyaṁ hare rūpaṁ
+> vīraś cāśvam upādāya\
+> pitṛ-yajñam athāvrajat\
+> tad avadyaṁ hare rūpaṁ\
 > jagṛhur jñāna-durbalāḥ
 
 *vīraḥ*—el hijo del rey Pṛthu; *ca*—también; *aśvam*—el caballo; *upādāya*—llevar; *pitṛ-yajñam*—al recinto de sacrificios de su padre; *atha*—a continuación; *avrajat*—fue; *tat*—esos; *avadyam*—abominable; *hareḥ*—de Indra; *rūpam*—hábitos; *jagṛhuḥ*—adoptaron; *jñāna-durbalāḥ*—los que tienen escaso conocimiento.

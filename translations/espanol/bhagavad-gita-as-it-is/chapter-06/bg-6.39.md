@@ -1,11 +1,11 @@
 ### Bg 6.39
 
-> एतन्मे संशयं कृष्ण छेत्तुमर्हस्यशेषतः ।
+> एतन्मे संशयं कृष्ण छेत्तुमर्हस्यशेषतः ।\
 > त्वदन्यः संशयस्यास्य छेत्ता न ह्युपपद्यते ॥३९॥
 
-> etan me saṁśayaṁ kṛṣṇa
-> chettum arhasy aśeṣataḥ
-> tvad-anyaḥ saṁśayasyāsya
+> etan me saṁśayaṁ kṛṣṇa\
+> chettum arhasy aśeṣataḥ\
+> tvad-anyaḥ saṁśayasyāsya\
 > chettā na hy upapadyate
 
 *etat*—esta es; *me*—mi; *saṁśayam*—duda; *kṛṣṇa*—¡oh, Kṛṣṇa!; *chettum*—para disipar; *arhasi*—pedir que hagas; *aśeṣataḥ*—completamente; *tvat*—Tú Mismo; *anyaḥ*—sin; *saṁśayasya*—de la duda; *asya*—de esta; *chettā*—disipador; *na*—nunca; *hi*—ciertamente; *upapadyate*—ser encontrado.

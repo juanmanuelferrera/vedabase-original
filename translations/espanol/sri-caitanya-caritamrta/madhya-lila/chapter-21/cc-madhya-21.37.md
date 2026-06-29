@@ -1,11 +1,11 @@
 ### CC Madhya 21.37
 
-> সৃজামি তন্নিযুক্তোঽহং হরো হরতি তদ্বশঃ ।
+> সৃজামি তন্নিযুক্তোঽহং হরো হরতি তদ্বশঃ ।\
 > বিশ্বং পুরুষরূপেণ পরিপাতি ত্রিশক্তিধৃক্ ॥৩৭॥
 
-> sṛjāmi tan-niyukto 'haṁ
-> haro harati tad-vaśaḥ
-> viśvaṁ puruṣa-rūpeṇa
+> sṛjāmi tan-niyukto 'haṁ\
+> haro harati tad-vaśaḥ\
+> viśvaṁ puruṣa-rūpeṇa\
 > paripāti triśakti-dhṛk
 
 *sṛjāmi*—creo; *tat-niyuktaḥ*—ocupado por Él; *aham*—yo; *haraḥ*—el Señor Śiva; *harati*—aniquila; *tat-vaśaḥ*—bajo Su control; *viśvam*—el universo entero; *puruṣa-rūpeṇa*—en la forma del Señor Viṣṇu; *paripāti*—mantiene; *tri-śakti-dhṛk*—el controlador de las tres modalidades de la naturaleza material.

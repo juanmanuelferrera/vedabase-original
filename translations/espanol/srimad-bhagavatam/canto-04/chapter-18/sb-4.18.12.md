@@ -1,11 +1,11 @@
 ### SB 4.18.12
 
-> इति प्रियं हितं वाक्यं भुव आदाय भूपतिः ।
+> इति प्रियं हितं वाक्यं भुव आदाय भूपतिः ।\
 > वत्सं कृत्वा मनुं पाणावदुहत्सकलौषधीः ॥१२॥
 
-> iti priyaṁ hitaṁ vākyaṁ
-> bhuva ādāya bhūpatiḥ
-> vatsaṁ kṛtvā manuṁ pāṇāv
+> iti priyaṁ hitaṁ vākyaṁ\
+> bhuva ādāya bhūpatiḥ\
+> vatsaṁ kṛtvā manuṁ pāṇāv\
 > aduhat sakalauṣadhīḥ
 
 *iti*—de este modo; *priyam*—agradables; *hitam*—beneficiosas; *vākyam*—palabras; *bhuvaḥ*—de la Tierra; *ādāya*—habiendo considerado; *bhū-patiḥ*—el rey; *vatsam*—ternero; *kṛtvā*—haciendo; *manum*—a Svāyambhuva Manu; *pāṇau*—en las manos; *aduhat*—ordeñó; *sakala*—todas; *oṣadhīḥ*—las hierbas y los cereales.

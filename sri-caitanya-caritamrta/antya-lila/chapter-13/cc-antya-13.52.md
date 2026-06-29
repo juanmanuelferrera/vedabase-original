@@ -1,9 +1,9 @@
 ### CC Antya 13.52
 
-> রাতুল বস্ত্র দেখি’ পণ্ডিত প্রেমাবিষ্ট হইলা  ।
+> রাতুল বস্ত্র দেখি’ পণ্ডিত প্রেমাবিষ্ট হইলা  ।\
 > ‘মহাপ্রভুর প্রসাদ’ জানি’ তাঁহারে পুছিলা ॥৫২॥
 
-> rātula vastra dekhi' paṇḍita premāviṣṭa ha-ilā
+> rātula vastra dekhi' paṇḍita premāviṣṭa ha-ilā\
 > 'mahāprabhura prasāda' jāni' tāṅhāre puchilā
 
 *rātula*—red; *vastra*—cloth; *dekhi'*—seeing; *paṇḍita*—Jagadānanda Paṇḍita; *prema-āviṣṭa ha-ilā*—became overwhelmed in ecstatic love; *mahāprabhura prasāda*—the blessed gift of Śrī Caitanya Mahāprabhu; *jāni'*—thinking; *tāṅhāre puchilā*—inquired from him.

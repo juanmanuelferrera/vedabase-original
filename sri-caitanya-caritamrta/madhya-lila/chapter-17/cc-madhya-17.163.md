@@ -1,9 +1,9 @@
 ### CC Madhya 17.163
 
-> সর্বথা-নিশ্চিত — ইঁহো কৃষ্ণ-অবতার  ।
+> সর্বথা-নিশ্চিত — ইঁহো কৃষ্ণ-অবতার  ।\
 > মথুরা আইলা লোকের করিতে নিস্তার ॥১৬৩॥
 
-> sarvathā-niścita—iṅho kṛṣṇa-avatāra
+> sarvathā-niścita—iṅho kṛṣṇa-avatāra\
 > mathurā āilā lokera karite nistāra
 
 *sarvathā*—in every respect; *niścita*—ascertained; *iṅho*—He; *kṛṣṇa-avatāra*—incarnation of Lord Kṛṣṇa; *mathurā āilā*—has come to Mathurā; *lokera*—of the people; *karite*—to perform; *nistāra*—deliverance.

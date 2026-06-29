@@ -1,9 +1,9 @@
 ### CC Madhya 3.183
 
-> নীলাচলে নবদ্বীপে যেন দুই ঘর ।
+> নীলাচলে নবদ্বীপে যেন দুই ঘর ।\
 > লোক-গতাগতি-বার্তা পাব নিরন্তর ॥১৮৩॥
 
-> nīlācale navadvīpe yena dui ghara
+> nīlācale navadvīpe yena dui ghara\
 > loka-gatāgati-vārtā pāba nirantara
 
 *nīlācale*—en Jagannātha Purī; *navadvīpe*—así como Navadvīpa; *yena*—como si; *dui*—dos; *ghara*—habitaciones; *loka*—personas; *gatāgati*—van y vienen; *vārtā*—noticias; *pāba*—recibiré; *nirantara*—siempre.

@@ -1,11 +1,11 @@
 ### SB 4.14.17
 
-> राजन्नसाध्वमात्येभ्यश्चोरादिभ्यः प्रजा नृपः ।
+> राजन्नसाध्वमात्येभ्यश्चोरादिभ्यः प्रजा नृपः ।\
 > रक्षन्यथा बलिं गृह्णन्निह प्रेत्य च मोदते ॥१७॥
 
-> rājann asādhv-amātyebhyaś
-> corādibhyaḥ prajā nṛpaḥ
-> rakṣan yathā baliṁ gṛhṇann
+> rājann asādhv-amātyebhyaś\
+> corādibhyaḥ prajā nṛpaḥ\
+> rakṣan yathā baliṁ gṛhṇann\
 > iha pretya ca modate
 
 *rājan*—¡oh, rey!; *asādhu*—malvados; *amātyebhyaḥ*—de ministros; *cora-ādibhyaḥ*—de ladrones y maleantes; *prajāḥ*—los ciudadanos; *nṛpaḥ*—el rey; *rakṣan*—proteger; *yathā*—conforme a como; *balim*—tributos; *gṛhṇan*—recaudar; *iha*—en este mundo; *pretya*—tras la muerte; *ca*—también; *modate*—disfruta.

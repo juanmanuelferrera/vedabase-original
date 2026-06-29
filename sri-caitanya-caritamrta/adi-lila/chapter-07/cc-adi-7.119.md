@@ -1,11 +1,11 @@
 ### CC Adi 7.119
 
-> বিষ্ণুশক্তিঃ পরা প্রোক্তা ক্ষেত্রজ্ঞাখ্যা তথাপরা ।
+> বিষ্ণুশক্তিঃ পরা প্রোক্তা ক্ষেত্রজ্ঞাখ্যা তথাপরা ।\
 > অবিদ্যাকর্মসংজ্ঞান্যা তৃতীয়া শক্তিরিষ্যতে ॥১১৯॥
 
-> viṣṇu-śaktiḥ parā proktā
-> kṣetra-jñākhyā tathā parā
-> avidyā-karma-saṁjñānyā
+> viṣṇu-śaktiḥ parā proktā\
+> kṣetra-jñākhyā tathā parā\
+> avidyā-karma-saṁjñānyā\
 > tṛtīyā śaktir iṣyate
 
 *viṣṇu-śaktiḥ*—the potency of Lord Viṣṇu; *parā*—spiritual; *proktā*—it is said; *kṣetra-jña-ākhyā*—the potency known as *kṣetra-jña*; *tathā*—as well as; *parā*—spiritual; *avidyā*—ignorance; *karma*—fruitive activities; *saṁjñā*—known as; *anyā*—other; *tṛtīyā*—third; *śaktiḥ*—potency; *iṣyate*—known thus.

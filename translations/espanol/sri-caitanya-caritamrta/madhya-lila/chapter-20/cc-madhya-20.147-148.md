@@ -1,21 +1,21 @@
 ### CC Madhya 20.147-148
 
-> কিং বিধত্তে কিমাচষ্টে কিমনূদ্য বিকল্পয়েৎ ।
-> ইত্যস্যা হৃদয়ং লোকে নান্যো মদ্বেদ কশ্চন ॥১৪৭॥
-> মাং বিধত্তেঽভিধত্তে মাং বিকল্প্যাপোহ্যতে হ্যহম্ ।
-> এতাবান্ সর্ববেদার্থঃ শব্দ আস্থায় মাং ভিদাম্ ।
+> কিং বিধত্তে কিমাচষ্টে কিমনূদ্য বিকল্পয়েৎ ।\
+> ইত্যস্যা হৃদয়ং লোকে নান্যো মদ্বেদ কশ্চন ॥১৪৭॥\
+> মাং বিধত্তেঽভিধত্তে মাং বিকল্প্যাপোহ্যতে হ্যহম্ ।\
+> এতাবান্ সর্ববেদার্থঃ শব্দ আস্থায় মাং ভিদাম্ ।\
 > মায়ামাত্রমনূদ্যান্তে প্রতিষিধ্য প্রসীদতি ॥১৪৮॥
 
-> kiṁ vidhatte kim ācaṣṭe
-> kim anūdya vikalpayet
-> ity asyā hṛdayaṁ loke
+> kiṁ vidhatte kim ācaṣṭe\
+> kim anūdya vikalpayet\
+> ity asyā hṛdayaṁ loke\
 > nānyo mad veda kaścana
 
-> māṁ vidhatte 'bhidhatte māṁ
-> vikalpyāpohyate hy aham
-> etāvān sarva-vedārthaḥ
-> śabda āsthāya māṁ bhidām
-> māyā-mātram anūdyānte
+> māṁ vidhatte 'bhidhatte māṁ\
+> vikalpyāpohyate hy aham\
+> etāvān sarva-vedārthaḥ\
+> śabda āsthāya māṁ bhidām\
+> māyā-mātram anūdyānte\
 > pratiṣidhya prasīdati
 
 *kim*—qué; *vidhatte*—directo; *kim*—qué; *ācaṣṭe*—declaran; *kim*—qué; *anūdya*—tomando como objeto; *vikalpayet*—puede hacer conjeturas; *iti*—así; *asyāḥ*—de las Escrituras védicas; *hṛdayam*—intención; *loke*—en este mundo; *na*—no; *anyaḥ*—otro; *mat*—que Yo; *veda*—conoce; *kaścana*—nadie; *mām*—a Mí; *vidhatte*—ellos presentan; *abhidhatte*—enuncian; *mām*—a Mí; *vikalpya*—especulando; *apohyate*—soy establecido firmemente; *hi*—ciertamente; *aham*—Yo; *etāvān*—de esas medidas; *sarva-veda-arthaḥ*—el significado de los *Vedas*; *śabdaḥ*—los *Vedas*; *āsthāya*—refugiarse en; *mām*—Mí; *bhidām*—diferente; *māyā*—energía ilusoria; *mātram*—solamente; *anūdya*—decir; *ante*—al final; *pratiṣidhya*—alejar; *prasīdati*—obtiene satisfacción.

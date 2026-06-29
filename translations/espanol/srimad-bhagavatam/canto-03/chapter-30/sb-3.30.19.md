@@ -1,11 +1,11 @@
 ### SB 3.30.19
 
-> यमदूतौ तदा प्राप्तौ भीमौ सरभसेक्षणौ ।
+> यमदूतौ तदा प्राप्तौ भीमौ सरभसेक्षणौ ।\
 > स दृष्ट्वा त्रस्तहृदयः शकृन्मूत्रं विमुञ्चति ॥१९॥
 
-> yama-dūtau tadā prāptau
-> bhīmau sarabhasekṣaṇau
-> sa dṛṣṭvā trasta-hṛdayaḥ
+> yama-dūtau tadā prāptau\
+> bhīmau sarabhasekṣaṇau\
+> sa dṛṣṭvā trasta-hṛdayaḥ\
 > śakṛn-mūtraṁ vimuñcati
 
 *yama-dūtau*—dos mensajeros de Yamarāja; *tadā*—en ese momento; *prāptau*—venidos; *bhīmau*—terribles; *sa-rabhasa*—llenos de ira; *īkṣaṇau*—sus ojos; *saḥ*—él; *dṛṣṭvā*—viendo; *trasta*—aterrorizado; *hṛdayaḥ*—su corazón; *śakṛt*—excremento; *mūtram*—orina; *vimuñcati*—expulsa.

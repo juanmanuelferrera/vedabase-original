@@ -1,11 +1,11 @@
 ### SB 4.18.3
 
-> अस्मिन्लोकेऽथवामुष्मिन्मुनिभिस्तत्त्वदर्शिभिः ।
+> अस्मिन्लोकेऽथवामुष्मिन्मुनिभिस्तत्त्वदर्शिभिः ।\
 > दृष्टा योगाः प्रयुक्ताश्च पुंसां श्रेयःप्रसिद्धये ॥३॥
 
-> asmiḹ loke 'thavāmuṣmin
-> munibhis tattva-darśibhiḥ
-> dṛṣṭā yogāḥ prayuktāś ca
+> asmiḹ loke 'thavāmuṣmin\
+> munibhis tattva-darśibhiḥ\
+> dṛṣṭā yogāḥ prayuktāś ca\
 > puṁsāṁ śreyaḥ-prasiddhaye
 
 *asmin*—en este; *loke*—lapso de vida; *atha vā*—o; *amuṣmin*—en la siguiente vida; *munibhiḥ*—por los grandes sabios; *tattva*—la verdad; *darśibhiḥ*—por aquellos que la han visto; *dṛṣṭāḥ*—prescritos; *yogāḥ*—métodos; *prayuktāḥ*—aplicados; *ca*—también; *puṁsām*—de la generalidad de la gente; *śreyaḥ*—beneficio; *prasiddhaye*—en cuestión de obtener.

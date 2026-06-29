@@ -1,11 +1,11 @@
 ### SB 3.11.37
 
-> अयं तु कथितः कल्पो द्वितीयस्यापि भारत ।
+> अयं तु कथितः कल्पो द्वितीयस्यापि भारत ।\
 > वाराह इति विख्यातो यत्रासीच्छूकरो हरिः ॥३७॥
 
-> ayaṁ tu kathitaḥ kalpo
-> dvitīyasyāpi bhārata
-> vārāha iti vikhyāto
+> ayaṁ tu kathitaḥ kalpo\
+> dvitīyasyāpi bhārata\
+> vārāha iti vikhyāto\
 > yatrāsīc chūkaro hariḥ
 
 *ayam*—this; *tu*—but; *kathitaḥ*—known as; *kalpaḥ*—the current millennium; *dvitīyasya*—of the second half; *api*—certainly; *bhārata*—O descendant of Bharata; *vārāhaḥ*—Vārāha; *iti*—thus; *vikhyātaḥ*—is celebrated; *yatra*—in which; *āsīt*—appeared; *śūkaraḥ*—hog shape; *hariḥ*—the Personality of Godhead.

@@ -1,13 +1,13 @@
 ### SB 8.16.22
 
-> श्रीअदितिरुवाच
-> केनाहं विधिना ब्रह्मन्नुपस्थास्ये जगत्पतिम
+> श्रीअदितिरुवाच\
+> केनाहं विधिना ब्रह्मन्नुपस्थास्ये जगत्पतिम\
 > यथा मे सत्यसङ्कल्पो विदध्यात्स मनोरथम ॥२२॥
 
-> śrī-aditir uvāca
-> kenāhaṁ vidhinā brahmann
-> upasthāsye jagat-patim
-> yathā me satya-saṅkalpo
+> śrī-aditir uvāca\
+> kenāhaṁ vidhinā brahmann\
+> upasthāsye jagat-patim\
+> yathā me satya-saṅkalpo\
 > vidadhyāt sa manoratham
 
 *śrī-aditiḥ uvāca*—Śrīmatī Aditi comenzó a orar; *kena*—con qué; *aham*—yo; *vidhinā*—con principios regulativos; *brahman*—¡oh, *brāhmaṇa*!; *upasthāsye*—puedo complacer; *jagat-patim*—al Señor del universo, Jagannātha; *yathā*—por medio del cual; *me*—mío; *satya-saṅkalpaḥ*—deseo pueda verse realmente satisfecho; *vidadhyāt*—pueda satisfacer; *saḥ*—Él (el Señor Supremo); *manoratham*—ambiciones o deseos.

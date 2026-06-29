@@ -1,19 +1,19 @@
 ### CC Adi 9.13-15
 
-> পরমানন্দ পুরী, আর কেশব ভারতী ।
-> ব্রহ্মানন্দ পুরী, আর ব্রহ্মানন্দ ভারতী ॥১৩॥
-> বিষ্ণুপুরী, কেশবপুরী, পুরী কৃষ্ণানন্দ ।
-> শ্রীনৃসিংহতীর্থ, আর পুরী সুখানন্দ ॥১৪॥
-> এই নব মূল নিকসিল বৃক্ষমূলে ।
+> পরমানন্দ পুরী, আর কেশব ভারতী ।\
+> ব্রহ্মানন্দ পুরী, আর ব্রহ্মানন্দ ভারতী ॥১৩॥\
+> বিষ্ণুপুরী, কেশবপুরী, পুরী কৃষ্ণানন্দ ।\
+> শ্রীনৃসিংহতীর্থ, আর পুরী সুখানন্দ ॥১৪॥\
+> এই নব মূল নিকসিল বৃক্ষমূলে ।\
 > এই নব মূলে বৃক্ষ করিল নিশ্চলে ॥১৫॥
 
-> paramānanda purī, āra keśava bhāratī
+> paramānanda purī, āra keśava bhāratī\
 > brahmānanda purī, āra brahmānanda bhāratī
 
-> viṣṇu-purī, keśava-purī, purī kṛṣṇānanda
+> viṣṇu-purī, keśava-purī, purī kṛṣṇānanda\
 > śrī-nṛsiṁhatīrtha, āra purī sukhānanda
 
-> ei nava mūla nikasila vṛkṣa-mūle
+> ei nava mūla nikasila vṛkṣa-mūle\
 > ei nava mūle vṛkṣa karila niścale
 
 *paramānanda purī*—Paramānanda Purī; *āra*—y; *keśava bhāratī*—Keśava Bhāratī; *brahmānanda purī*—Brahmānanda Purī; *āra*—y; *brahmānanda bhāratī*—Brahmānanda Bhāratī; *viṣṇu-purī*—Viṣṇu Purī; *keśava-purī*—Keśava Purī; *purī kṛṣṇānanda*—Kṛṣṇānanda Purī; *śrī-nṛsiṁhatīrtha*—Śrī Nṛsiṁha Tīrtha; *āra*—y; *purī sukhānanda*—Sukhānanda Purī; *ei nava*—de estas nueve; *mūla*—raíces; *nikasila*—fructificaron; *vṛkṣa-mūle*—en el tronco del árbol; *ei nava mūle*—en estas nueve raíces; *vṛkṣa*—el árbol; *karila niścale*—se hizo muy firme.

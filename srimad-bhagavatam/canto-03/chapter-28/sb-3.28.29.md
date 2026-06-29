@@ -1,13 +1,13 @@
 ### SB 3.28.29
 
-> भृत्यानुकम्पितधियेह गृहीतमूर्तेः
-> सञ्चिन्तयेद्भगवतो वदनारविन्दम् ।
-> यद्विस्फुरन्मकरकुण्डलवल्गितेन
+> भृत्यानुकम्पितधियेह गृहीतमूर्तेः\
+> सञ्चिन्तयेद्भगवतो वदनारविन्दम् ।\
+> यद्विस्फुरन्मकरकुण्डलवल्गितेन\
 > विद्योतितामलकपोलमुदारनासम् ॥२९॥
 
-> bhṛtyānukampita-dhiyeha gṛhīta-mūrteḥ
-> sañcintayed bhagavato vadanāravindam
-> yad visphuran-makara-kuṇḍala-valgitena
+> bhṛtyānukampita-dhiyeha gṛhīta-mūrteḥ\
+> sañcintayed bhagavato vadanāravindam\
+> yad visphuran-makara-kuṇḍala-valgitena\
 > vidyotitāmala-kapolam udāra-nāsam
 
 *bhṛtya*—for the devotees; *anukampita-dhiyā*—out of compassion; *iha*—in this world; *gṛhīta-mūrteḥ*—who presents different forms; *sañcintayet*—one should meditate on; *bhagavataḥ*—of the Personality of Godhead; *vadana*—countenance; *aravindam*—lotuslike; *yat*—which; *visphuran*—glittering; *makara*—alligator-shaped; *kuṇḍala*—of His earrings; *valgitena*—by the oscillation; *vidyotita*—illuminated; *amala*—crystal clear; *kapolam*—His cheeks; *udāra*—prominent; *nāsam*—His nose.

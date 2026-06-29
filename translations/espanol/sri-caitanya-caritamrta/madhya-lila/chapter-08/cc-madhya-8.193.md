@@ -1,9 +1,9 @@
 ### CC Madhya 8.193
 
-> এত বলি’ আপন-কৃত গীত এক গাহিল ৷
+> এত বলি’ আপন-কৃত গীত এক গাহিল ৷\
 > প্রেমে প্রভু স্বহস্তে তাঁর মুখ আচ্ছাদিল ৷৷ ১৯৩ ৷৷ ॥১৯৩॥
 
-> eta bali' āpana-kṛta gīta eka gāhila
+> eta bali' āpana-kṛta gīta eka gāhila\
 > preme prabhu sva-haste tāṅra mukha ācchādila
 
 *eta bali'*—diciendo esto; *āpana-kṛta*—compuesta por él mismo; *gīta*—canción; *eka*—una; *gāhila*—cantó; *preme*—en amor por Dios; *prabhu*—Śrī Caitanya Mahāprabhu; *sva-haste*—con Su propia mano; *tāṅra*—su (de Rāmānanda Rāya); *mukha*—boca; *ācchādila*—cubrió.

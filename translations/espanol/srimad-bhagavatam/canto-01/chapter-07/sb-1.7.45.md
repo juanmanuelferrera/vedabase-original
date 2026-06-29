@@ -1,11 +1,11 @@
 ### SB 1.7.45
 
-> स एष भगवान्द्रोणः प्रजारूपेण वर्तते ।
+> स एष भगवान्द्रोणः प्रजारूपेण वर्तते ।\
 > तस्यात्मनोऽर्धं पत्न्यास्ते नान्वगाद्वीरसूः कृपी ॥४५॥
 
-> sa eṣa bhagavān droṇaḥ
-> prajā-rūpeṇa vartate
-> tasyātmano 'rdhaṁ patny āste
+> sa eṣa bhagavān droṇaḥ\
+> prajā-rūpeṇa vartate\
+> tasyātmano 'rdhaṁ patny āste\
 > nānvagād vīrasūḥ kṛpī
 
 *saḥ*—él; *eṣaḥ*—ciertamente; *bhagavān*—señor; *droṇaḥ*—Droṇācārya; *prajā-rūpeṇa*—en la forma de su hijo Aśvatthāmā; *vartate*—está existiendo; *tasya*—su; *ātmanaḥ*—del cuerpo; *ardham*—mitad; *patnī*—esposa; *āste*—viviendo; *na*—no; *anvagāt*—emprendió; *vīrasūḥ*—teniendo el hijo presente; *kṛpī*—la hermana de Kṛpācārya.

@@ -1,11 +1,11 @@
 ### SB 3.19.28
 
-> यं योगिनो योगसमाधिना रहो ध्यायन्ति लिङ्गादसतो मुमुक्षया ।
+> यं योगिनो योगसमाधिना रहो ध्यायन्ति लिङ्गादसतो मुमुक्षया ।\
 > तस्यैष दैत्यऋषभः पदाहतो मुखं प्रपश्यंस्तनुमुत्ससर्ज ह ॥२८॥
 
-> yaṁ yogino yoga-samādhinā raho
-> dhyāyanti liṅgād asato mumukṣayā
-> tasyaiṣa daitya-ṛṣabhaḥ padāhato
+> yaṁ yogino yoga-samādhinā raho\
+> dhyāyanti liṅgād asato mumukṣayā\
+> tasyaiṣa daitya-ṛṣabhaḥ padāhato\
 > mukhaṁ prapaśyaṁs tanum utsasarja ha
 
 *yam*—whom; *yoginaḥ*—the *yogīs*; *yoga-samādhinā*—in mystic trance; *rahaḥ*—in seclusion; *dhyāyanti*—meditate upon; *liṅgāt*—from the body; *asataḥ*—unreal; *mumukṣayā*—seeking freedom; *tasya*—of Him; *eṣaḥ*—this; *daitya*—son of Diti; *ṛṣabhaḥ*—the crest jewel; *padā*—by a foot; *āhataḥ*—struck; *mukham*—countenance; *prapaśyan*—while gazing on; *tanum*—the body; *utsasarja*—he cast off; *ha*—indeed.

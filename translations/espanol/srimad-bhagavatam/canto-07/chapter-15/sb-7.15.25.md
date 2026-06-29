@@ -1,11 +1,11 @@
 ### SB 7.15.25
 
-> रजस्तमश्च सत्त्वेन सत्त्वं चोपशमेन च
+> रजस्तमश्च सत्त्वेन सत्त्वं चोपशमेन च\
 > एतत्सर्वं गुरौ भक्त्या पुरुषो ह्यञ्जसा जयेत ॥२५॥
 
-> rajas tamaś ca sattvena
-> sattvaṁ copaśamena ca
-> etat sarvaṁ gurau bhaktyā
+> rajas tamaś ca sattvena\
+> sattvaṁ copaśamena ca\
+> etat sarvaṁ gurau bhaktyā\
 > puruṣo hy añjasā jayet
 
 *rajaḥ tamaḥ*—las modalidades de la pasión y la ignorancia; *ca*—y; *sattvena*—mediante el cultivo de la modalidad de la bondad; *sattvam*—la modalidad de la bondad; *ca*—también; *upaśamena*—por abandonar el apego; *ca*—y; *etat*—esas; *sarvam*—todas; *gurau*—al maestro espiritual; *bhaktyā*—por ofrecer servicio con devoción; *puruṣaḥ*—una persona; *hi*—en verdad; *añjasā*—fácilmente; *jayet*—puede vencer.

@@ -1,9 +1,9 @@
 ### CC Adi 16.100
 
-> তোমার কবিত্ব যেন গঙ্গাজল-ধার ।
+> তোমার কবিত্ব যেন গঙ্গাজল-ধার ।\
 > তোমা-সম কবি কোথা নাহি দেখি আর ॥১০০॥
 
-> tomāra kavitva yena gaṅgā-jala-dhāra
+> tomāra kavitva yena gaṅgā-jala-dhāra\
 > tomā-sama kavi kothā nāhi dekhi āra
 
 *tomāra*—tu; *kavitva*—ingenio poético; *yena*—como; *gaṅgā-jala-dhāra*—el fluir de las aguas del Ganges; *tomā-sama*—como tú; *kavi*—poeta; *kothā*—en ninguna parte; *nāhi*—no; *dekhi*—veo; *āra*—a nadie más.

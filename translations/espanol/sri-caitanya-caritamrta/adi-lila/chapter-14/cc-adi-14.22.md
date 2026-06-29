@@ -1,9 +1,9 @@
 ### CC Adi 14.22
 
-> krandanera chale balāila hari-nāma
+> krandanera chale balāila hari-nāma\
 > nārī saba 'hari' bale,—hāse gaura-dhāma
 
-> krandanera chale balāila hari-nāma
+> krandanera chale balāila hari-nāma\
 > nārī saba 'hari' bale,--hāse gaura-dhāma
 
 *krandanera*—del llanto; *chale*—con el pretexto; *balāila*—hizo que dijeran; *hari-nāma*—el santo nombre del Señor; *nārī*—las señoras; *saba*—todas; *'hari' bale*—cantan el santo nombre del Señor; *hāse*—se ríe; *gaura-dhāma*—el Señor Śrī Caitanya siendo un niño.

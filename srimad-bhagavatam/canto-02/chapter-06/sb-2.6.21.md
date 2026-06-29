@@ -1,11 +1,11 @@
 ### SB 2.6.21
 
-> सृती विचक्रमे विश्वम्साशनानशने उभे ।
+> सृती विचक्रमे विश्वम्साशनानशने उभे ।\
 > यदविद्या च विद्या च पुरुषस्तूभयाश्रयः ॥२१॥
 
-> sṛtī vicakrame viśvam
-> sāśanānaśane ubhe
-> yad avidyā ca vidyā ca
+> sṛtī vicakrame viśvam\
+> sāśanānaśane ubhe\
+> yad avidyā ca vidyā ca\
 > puruṣas tūbhayāśrayaḥ
 
 *sṛtī*—the destination of the living entities; *vicakrame*—exists comprehensively; *viśvaṅ*—the all-pervading Personality of Godhead; *sāśana*—activities of lording it over; *anaśane*—activities in devotional service; *ubhe*—both; *yat*—what is; *avidyā*—nescience; *ca*—as well as; *vidyā*—factual knowledge; *ca*—and; *puruṣaḥ*—the Supreme Person; *tu*—but; *ubhaya*—for both of them; *āśrayaḥ*—the master.

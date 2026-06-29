@@ -1,13 +1,13 @@
 ### SB 4.7.31
 
-> ब्रह्मोवाच
-> नैतत्स्वरूपं भवतोऽसौ पदार्थ भेदग्रहैः पुरुषो यावदीक्षेत् ।
+> ब्रह्मोवाच\
+> नैतत्स्वरूपं भवतोऽसौ पदार्थ भेदग्रहैः पुरुषो यावदीक्षेत् ।\
 > ज्ञानस्य चार्थस्य गुणस्य चाश्रयो मायामयाद्व्यतिरिक्तो मतस्त्वम् ॥३१॥
 
-> brahmovāca
-> naitat svarūpaṁ bhavato 'sau padārtha-
-> bheda-grahaiḥ puruṣo yāvad īkṣet
-> jñānasya cārthasya guṇasya cāśrayo
+> brahmovāca\
+> naitat svarūpaṁ bhavato 'sau padārtha-\
+> bheda-grahaiḥ puruṣo yāvad īkṣet\
+> jñānasya cārthasya guṇasya cāśrayo\
 > māyāmayād vyatirikto matas tvam
 
 *brahmā uvāca*—el Señor Brahmā dijo; *na*—no; *etat*—esta; *svarūpam*—forma eterna; *bhavataḥ*—Tuya; *asau*—ese otro; *pada-artha*—conocimiento; *bheda*—diferente; *grahaiḥ*—con la adquisición; *puruṣaḥ*—persona; *yāvat*—mientras; *īkṣet*—desee ver; *jñānasya*—de conocimiento; *ca*—también; *arthasya*—del objetivo; *guṇasya*—de los instrumentos de conocimiento; *ca*—también; *āśrayaḥ*—la base; *māyā-mayāt*—de estar hecho de energía material; *vyatiriktaḥ*—distinto; *mataḥ*—considerado; *tvam*—Tú.

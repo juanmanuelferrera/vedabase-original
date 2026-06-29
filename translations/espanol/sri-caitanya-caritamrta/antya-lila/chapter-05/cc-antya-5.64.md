@@ -1,9 +1,9 @@
 ### CC Antya 5.64
 
-> আপনে প্রশ্ন করি’ পাছে করেন সিদ্ধান্ত ।
+> আপনে প্রশ্ন করি’ পাছে করেন সিদ্ধান্ত ।\
 > তৃতীয় প্রহর হৈল, নহে কথা-অন্ত ॥৬৪॥
 
-> āpane praśna kari' pāche karena siddhānta
+> āpane praśna kari' pāche karena siddhānta\
 > tṛtīya prahara haila, nahe kathā-anta
 
 *āpane*—personalmente; *praśna kari'*—formulando la pregunta; *pāche*—después de eso; *karena siddhānta*—da la conclusión; *tṛtīya prahara haila*—llegó la tarde; *nahe kathā-anta*—no había fin para aquellos temas.

@@ -1,9 +1,9 @@
 ### CC Antya 8.50
 
-> প্রভু পরম্পরায় নিন্দা কৈরাছেন শ্রবণ ।
+> প্রভু পরম্পরায় নিন্দা কৈরাছেন শ্রবণ ।\
 > এবে সাক্ষাৎ শুনিলেন ‘কল্পিত’ নিন্দন ॥৫০॥
 
-> prabhu paramparāya nindā kairāchena śravaṇa
+> prabhu paramparāya nindā kairāchena śravaṇa\
 > ebe sākṣāt śunilena 'kalpita' nindana
 
 *prabhu*—Śrī Caitanya Mahāprabhu; *paramparāya*—de oídas; *nindā*—blasfemia; *kairāchena śravaṇa*—había oído; *ebe*—ahora; *sākṣāt*—directamente; *śunilena*—oyó; *kalpita*—imaginaria; *nindana*—blasfemia.

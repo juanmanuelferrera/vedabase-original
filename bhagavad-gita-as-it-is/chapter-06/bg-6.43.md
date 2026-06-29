@@ -1,11 +1,11 @@
 ### Bg 6.43
 
-> तत्र तं बुद्धिसंयोगं लभते पौर्वदेहिकम् ।
+> तत्र तं बुद्धिसंयोगं लभते पौर्वदेहिकम् ।\
 > यतते च ततो भूयः संसिद्धौ कुरुनन्दन ॥४३॥
 
-> tatra taṁ buddhi-saṁyogaṁ
-> labhate paurva-dehikam
-> yatate ca tato bhūyaḥ
+> tatra taṁ buddhi-saṁyogaṁ\
+> labhate paurva-dehikam\
+> yatate ca tato bhūyaḥ\
 > saṁsiddhau kuru-nandana
 
 *tatra*—thereupon; *tam*—that; *buddhi-saṁyogam*—revival of such consciousness; *labhate*—regains; *paurva*—previous; *dehikam*—bodily consciousness; *yatate*—endeavors; *ca*—also; *tataḥ*—thereafter; *bhūyaḥ*—again; *saṁsiddhau*—for perfection; *kuru-nandana*—O son of Kuru.

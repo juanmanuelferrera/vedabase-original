@@ -1,13 +1,13 @@
 ### SB 6.12.1
 
-> श्रीऋषिरुवाच
-> एवं जिहासुर्नृप देहमाजौ मृत्युं वरं विजयान्मन्यमानः
+> श्रीऋषिरुवाच\
+> एवं जिहासुर्नृप देहमाजौ मृत्युं वरं विजयान्मन्यमानः\
 > शूलं प्रगृह्याभ्यपतत्सुरेन्द्रं यथा महापुरुषं कैटभोऽप्सु ॥१॥
 
-> śrī-ṛṣir uvāca
-> evaṁ jihāsur nṛpa deham ājau
-> mṛtyuṁ varaṁ vijayān manyamānaḥ
-> śūlaṁ pragṛhyābhyapatat surendraṁ
+> śrī-ṛṣir uvāca\
+> evaṁ jihāsur nṛpa deham ājau\
+> mṛtyuṁ varaṁ vijayān manyamānaḥ\
+> śūlaṁ pragṛhyābhyapatat surendraṁ\
 > yathā mahā-puruṣaṁ kaiṭabho 'psu
 
 *śrī-ṛṣiḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—thus; *jihāsuḥ*—very eager to give up; *nṛpa*—O King Parīkṣit; *deham*—the body; *ājau*—in battle; *mṛtyum*—death; *varam*—better; *vijayāt*—than victory; *manyamānaḥ*—thinking; *śūlam*—trident; *pragṛhya*—taking up; *abhyapatat*—attacked; *sura-indram*—the King of heaven, Indra; *yathā*—just as; *mahā-puruṣam*—the Supreme Personality of Godhead; *kaiṭabhaḥ*—the demon Kaiṭabha; *apsu*—when the whole universe was inundated.

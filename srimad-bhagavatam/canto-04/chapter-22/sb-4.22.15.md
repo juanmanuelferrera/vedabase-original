@@ -1,11 +1,11 @@
 ### SB 4.22.15
 
-> तदहं कृतविश्रम्भः सुहृदो वस्तपस्विनाम् ।
+> तदहं कृतविश्रम्भः सुहृदो वस्तपस्विनाम् ।\
 > सम्पृच्छे भव एतस्मिन्क्षेमः केनाञ्जसा भवेत् ॥१५॥
 
-> tad ahaṁ kṛta-viśrambhaḥ
-> suhṛdo vas tapasvinām
-> sampṛcche bhava etasmin
+> tad ahaṁ kṛta-viśrambhaḥ\
+> suhṛdo vas tapasvinām\
+> sampṛcche bhava etasmin\
 > kṣemaḥ kenāñjasā bhavet
 
 *tat*—therefore; *aham*—I; *kṛta-viśrambhaḥ*—being completely assured; *su-hṛdaḥ*—friend; *vaḥ*—our; *tapasvinām*—suffering material pangs; *sampṛcche*—wish to inquire; *bhave*—in this material world; *etasmin*—this; *kṣemaḥ*—ultimate reality; *kena*—by which means; *añjasā*—without delay; *bhavet*—can be achieved.

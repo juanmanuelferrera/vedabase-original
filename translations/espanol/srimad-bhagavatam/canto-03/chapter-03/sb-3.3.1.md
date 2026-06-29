@@ -1,13 +1,13 @@
 ### SB 3.3.1
 
-> उद्धव उवाच
-> ततः स आगत्य पुरं स्वपित्रोश्चिकीर्षया शं बलदेवसंयुतः ।
+> उद्धव उवाच\
+> ततः स आगत्य पुरं स्वपित्रोश्चिकीर्षया शं बलदेवसंयुतः ।\
 > निपात्य तुङ्गाद्रिपुयूथनाथं हतं व्यकर्षद्व्यसुमोजसोर्व्याम् ॥१॥
 
-> uddhava uvāca
-> tataḥ sa āgatya puraṁ sva-pitroś
-> cikīrṣayā śaṁ baladeva-saṁyutaḥ
-> nipātya tuṅgād ripu-yūtha-nāthaṁ
+> uddhava uvāca\
+> tataḥ sa āgatya puraṁ sva-pitroś\
+> cikīrṣayā śaṁ baladeva-saṁyutaḥ\
+> nipātya tuṅgād ripu-yūtha-nāthaṁ\
 > hataṁ vyakarṣad vyasum ojasorvyām
 
 *uddhavaḥ uvāca*—Śrī Uddhava dijo; *tataḥ*—después; *saḥ*—el Señor; *āgatya*—yendo; *puram*—a la ciudad de Mathurā; *sva-pitroḥ*—Sus propios padres; *cikīrṣayā*—deseando bien; *śam*—bienestar; *baladeva-saṁyutaḥ*—con Baladeva; *nipātya*—bajando a la fuerza; *tuṅgāt*—del trono; *ripu-yūtha-nātham*—líder de los enemigos públicos; *hatam*—mataron; *vyakarṣat*—arrastraron; *vyasum*—muerto; *ojasā*—con la fuerza; *urvyām*—en el suelo.

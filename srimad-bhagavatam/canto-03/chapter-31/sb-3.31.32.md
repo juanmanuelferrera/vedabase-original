@@ -1,11 +1,11 @@
 ### SB 3.31.32
 
-> यद्यसद्भिः पथि पुनः शिश्नोदरकृतोद्यमैः ।
+> यद्यसद्भिः पथि पुनः शिश्नोदरकृतोद्यमैः ।\
 > आस्थितो रमते जन्तुस्तमो विशति पूर्ववत् ॥३२॥
 
-> yady asadbhiḥ pathi punaḥ
-> śiśnodara-kṛtodyamaiḥ
-> āsthito ramate jantus
+> yady asadbhiḥ pathi punaḥ\
+> śiśnodara-kṛtodyamaiḥ\
+> āsthito ramate jantus\
 > tamo viśati pūrvavat
 
 *yadi*—if; *asadbhiḥ*—with the unrighteous; *pathi*—on the path; *punaḥ*—again; *śiśna*—for the genitals; *udara*—for the stomach; *kṛta*—done; *udyamaiḥ*—whose endeavors; *āsthitaḥ*—associating; *ramate*—enjoys; *jantuḥ*—the living entity; *tamaḥ*—darkness; *viśati*—enters; *pūrva-vat*—as before.

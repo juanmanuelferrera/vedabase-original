@@ -1,11 +1,11 @@
 ### SB 2.1.26
 
-> पातालमेतस्य हि पादमूलं पठन्ति पार्ष्णिप्रपदे रसातलम् ।
+> पातालमेतस्य हि पादमूलं पठन्ति पार्ष्णिप्रपदे रसातलम् ।\
 > महातलं विश्वसृजोऽथ गुल्फौ तलातलं वै पुरुषस्य जङ्घे ॥२६॥
 
-> pātālam etasya hi pāda-mūlaṁ
-> paṭhanti pārṣṇi-prapade rasātalam
-> mahātalaṁ viśva-sṛjo 'tha gulphau
+> pātālam etasya hi pāda-mūlaṁ\
+> paṭhanti pārṣṇi-prapade rasātalam\
+> mahātalaṁ viśva-sṛjo 'tha gulphau\
 > talātalaṁ vai puruṣasya jaṅghe
 
 *pātālam*—los planetas que se encuentran en el fondo del universo; *etasya*—de Su; *hi*—exactamente; *pāda-mūlam*—las plantas de los pies; *paṭhanti*—lo estudian; *pārṣṇi*—los talones; *prapade*—los dedos de los pies; *rasātalam*—los planetas llamados Rasātala; *mahātalam*—los planetas llamados Mahātala; *viśva-sṛjaḥ*—del creador del universo; *atha*—así pues; *gulphau*—los tobillos; *talātalam*—los planetas llamados Talātala; *vai*—tal como son; *puruṣasya*—de la gigantesca persona; *jaṅghe*—las canillas.

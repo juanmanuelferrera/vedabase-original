@@ -1,18 +1,18 @@
 ### SB 4.14.26-27
 
-> विष्णुर्विरिञ्चो गिरिश इन्द्रो वायुर्यमो रविः ।
-> पर्जन्यो धनदः सोमः क्षितिरग्निरपाम्पतिः ॥२६॥
-> एते चान्ये च विबुधाः प्रभवो वरशापयोः ।
+> विष्णुर्विरिञ्चो गिरिश इन्द्रो वायुर्यमो रविः ।\
+> पर्जन्यो धनदः सोमः क्षितिरग्निरपाम्पतिः ॥२६॥\
+> एते चान्ये च विबुधाः प्रभवो वरशापयोः ।\
 > देहे भवन्ति नृपतेः सर्वदेवमयो नृपः ॥२७॥
 
-> viṣṇur viriñco giriśa
-> indro vāyur yamo raviḥ
-> parjanyo dhanadaḥ somaḥ
+> viṣṇur viriñco giriśa\
+> indro vāyur yamo raviḥ\
+> parjanyo dhanadaḥ somaḥ\
 > kṣitir agnir apāmpatiḥ
 
-> ete cānye ca vibudhāḥ
-> prabhavo vara-śāpayoḥ
-> dehe bhavanti nṛpateḥ
+> ete cānye ca vibudhāḥ\
+> prabhavo vara-śāpayoḥ\
+> dehe bhavanti nṛpateḥ\
 > sarva-devamayo nṛpaḥ
 
 *viṣṇuḥ*—el Señor Viṣṇu; *viriñcaḥ*—el Señor Brahmā; *giriśaḥ*—el Señor Śiva; *indraḥ*—el Señor Indra; *vāyuḥ*—Vāyu, el regente del aire; *yamaḥ*—Yama, el superintendente de la muerte; *raviḥ*—el dios del Sol; *parjanyaḥ*—el regente de las lluvias; *dhana-daḥ*—Kuvera, el tesorero; *somaḥ*—el dios de la Luna; *kṣitiḥ*—la deidad regente de la Tierra; *agniḥ*—el dios del fuego; *apām-patiḥ*—Varuṇa, el señor de las aguas; *ete*—todos ellos; *ca*—y; *anye*—los demás; *ca*—y; *vibudhāḥ*—semidioses; *prabhavaḥ*—capacitados; *vara-śāpayoḥ*—tanto para bendecir como para maldecir; *dehe*—en el cuerpo; *bhavanti*—residen; *nṛpateḥ*—del rey; *sarva-devamayaḥ*—incluir a todos los semidioses; *nṛpaḥ*—el rey.

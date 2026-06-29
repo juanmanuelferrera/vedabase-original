@@ -1,11 +1,11 @@
 ### SB 7.2.57
 
-> एवं यूयमपश्यन्त्य आत्मापायमबुद्धयः
+> एवं यूयमपश्यन्त्य आत्मापायमबुद्धयः\
 > नैनं प्राप्स्यथ शोचन्त्यः पतिं वर्षशतैरपि ॥५७॥
 
-> evaṁ yūyam apaśyantya
-> ātmāpāyam abuddhayaḥ
-> nainaṁ prāpsyatha śocantyaḥ
+> evaṁ yūyam apaśyantya\
+> ātmāpāyam abuddhayaḥ\
+> nainaṁ prāpsyatha śocantyaḥ\
 > patiṁ varṣa-śatair api
 
 *evam*—thus; *yūyam*—you; *apaśyantyaḥ*—not seeing; *ātma-apāyam*—own death; *abuddhayaḥ*—O ignorant ones; *na*—not; *enam*—him; *prāpsyatha*—you will obtain; *śocantyaḥ*—lamenting for; *patim*—your husband; *varṣa-śataiḥ*—for a hundred years; *api*—even.

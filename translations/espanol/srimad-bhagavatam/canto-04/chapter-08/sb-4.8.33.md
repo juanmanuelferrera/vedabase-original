@@ -1,11 +1,11 @@
 ### SB 4.8.33
 
-> यस्य यद्दैवविहितं स तेन सुखदुःखयोः ।
+> यस्य यद्दैवविहितं स तेन सुखदुःखयोः ।\
 > आत्मानं तोषयन्देही तमसः पारमृच्छति ॥३३॥
 
-> yasya yad daiva-vihitaṁ
-> sa tena sukha-duḥkhayoḥ
-> ātmānaṁ toṣayan dehī
+> yasya yad daiva-vihitaṁ\
+> sa tena sukha-duḥkhayoḥ\
+> ātmānaṁ toṣayan dehī\
 > tamasaḥ pāram ṛcchati
 
 *yasya*—todo el que; *yat*—lo que; *daiva*—por destino; *vihitam*—destinado; *saḥ*—esa persona; *tena*—por esa; *sukha-duḥkhayoḥ*—felicidad o aflicción; *ātmānam*—el propio ser; *toṣayan*—sentirse satisfecho; *dehī*—un alma corporificada; *tamasaḥ*—de la oscuridad; *pāram*—al otro lado; *ṛcchati*—cruza.

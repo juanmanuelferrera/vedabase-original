@@ -1,9 +1,9 @@
 ### CC Antya 19.33
 
-> রামানন্দের গলা ধরি’ করেন প্রলাপন ।
+> রামানন্দের গলা ধরি’ করেন প্রলাপন ।\
 > স্বরূপে পুছেন মানি’ নিজ-সখীগণ ॥৩৩॥
 
-> rāmānandera galā dhari' karena pralāpana
+> rāmānandera galā dhari' karena pralāpana\
 > svarūpe puchena māni' nija-sakhī-gaṇa
 
 *rāmānandera*—de Rāmānanda Rāya; *galā dhari'*—tomándole del cuello; *karena pralāpana*—comienza a hablar como un loco; *svarūpe puchena*—le preguntó a Svarūpa Dāmodara; *māni'*—considerándole; *nija-sakhī-gaṇa*—como una amiga gopī.

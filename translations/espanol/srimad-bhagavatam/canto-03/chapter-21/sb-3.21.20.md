@@ -1,11 +1,11 @@
 ### SB 3.21.20
 
-> नैतद्बताधीश पदं तवेप्सितं यन्मायया नस्तनुषे भूतसूक्ष्मम् ।
+> नैतद्बताधीश पदं तवेप्सितं यन्मायया नस्तनुषे भूतसूक्ष्मम् ।\
 > अनुग्रहायास्त्वपि यर्हि मायया लसत्तुलस्या भगवान्विलक्षितः ॥२०॥
 
-> naitad batādhīśa padaṁ tavepsitaṁ
-> yan māyayā nas tanuṣe bhūta-sūkṣmam
-> anugrahāyāstv api yarhi māyayā
+> naitad batādhīśa padaṁ tavepsitaṁ\
+> yan māyayā nas tanuṣe bhūta-sūkṣmam\
+> anugrahāyāstv api yarhi māyayā\
 > lasat-tulasyā bhagavān vilakṣitaḥ
 
 *na*—no; *etat*—este; *bata*—en verdad; *adhīśa*—¡oh, Señor!; *padam*—mundo material; *tava*—Tu; *īpsitam*—deseo; *yat*—el cual; *māyayā*—por Tu energía externa; *naḥ*—para nosotros; *tanuṣe*—Tú manifiestas; *bhūta-sūkṣmam*—los elementos densos y sutiles; *anugrahāya*—para otorgar misericordia; *astu*—que sea; *api*—también; *yarhi*—cuando; *māyayā*—por medio de Tu misericordia sin causa; *lasat*—espléndida; *tulasyā*—con un collar de hojas de *tulasī*; *bhagavān*—la Suprema Personalidad de Dios; *vilakṣitaḥ*—se percibe.

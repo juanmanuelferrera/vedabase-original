@@ -1,11 +1,11 @@
 ### SB 6.4.32
 
-> अस्तीति नास्तीति च वस्तुनिष्ठयोरेकस्थयोर्भिन्नविरुद्धधर्मणोः
+> अस्तीति नास्तीति च वस्तुनिष्ठयोरेकस्थयोर्भिन्नविरुद्धधर्मणोः\
 > अवेक्षितं किञ्चन योगसाङ्ख्ययोः समं परं ह्यनुकूलं बृहत्तत ॥३२॥
 
-> astīti nāstīti ca vastu-niṣṭhayor
-> eka-sthayor bhinna-viruddha-dharmaṇoḥ
-> avekṣitaṁ kiñcana yoga-sāṅkhyayoḥ
+> astīti nāstīti ca vastu-niṣṭhayor\
+> eka-sthayor bhinna-viruddha-dharmaṇoḥ\
+> avekṣitaṁ kiñcana yoga-sāṅkhyayoḥ\
 > samaṁ paraṁ hy anukūlaṁ bṛhat tat
 
 *asti*—there is; *iti*—thus; *na*—not; *asti*—there is; *iti*—thus; *ca*—and; *vastu-niṣṭhayoḥ*—professing knowledge of the ultimate cause; *eka-sthayoḥ*—with one and the same subject matter, establishing Brahman; *bhinna*—demonstrating different; *viruddha-dharmaṇoḥ*—and opposing characteristics; *avekṣitam*—perceived; *kiñcana*—that something which; *yoga-sāṅkhyayoḥ*—of mystic *yoga* and the Sāṅkhya philosophy (analysis of the ways of nature); *samam*—the same; *param*—transcendental; *hi*—indeed; *anukūlam*—dwelling place; *bṛhat tat*—that ultimate cause.

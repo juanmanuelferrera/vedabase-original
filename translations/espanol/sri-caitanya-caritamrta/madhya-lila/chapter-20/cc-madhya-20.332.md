@@ -1,11 +1,11 @@
 ### CC Madhya 20.332
 
-> কৃতে শুক্লশ্চতুর্বাহুর্জটিলো বল্কলাম্বরঃ ।
+> কৃতে শুক্লশ্চতুর্বাহুর্জটিলো বল্কলাম্বরঃ ।\
 > কৃষ্ণাজিনোপবীতাক্ষান্ বিভ্রদ্দণ্ডকমণ্ডলূ ॥৩৩২॥
 
-> kṛte śuklaś catur-bāhur
-> jaṭilo valkalāmbaraḥ
-> kṛṣṇājinopavītākṣān
+> kṛte śuklaś catur-bāhur\
+> jaṭilo valkalāmbaraḥ\
+> kṛṣṇājinopavītākṣān\
 > bibhrad daṇḍa-kamaṇḍalū
 
 *kṛte*—en el Satya-yuga; *śuklaḥ*—de color blanco y con el nombre Śukla; *catuḥ-bāhuḥ*—con cuatro brazos; *jaṭilaḥ*—con un mechón de cabello; *valkala-ambaraḥ*—vestido con una prenda hecha de corteza de árbol; *kṛṣṇa-ajina*—piel de antílope de color negro; *upavīta*—cordón sagrado; *akṣān*—un collar de cuentas para el canto; *bibhrat*—portaba; *daṇḍa-kamaṇḍalū*—una vara y un cántaro de agua.

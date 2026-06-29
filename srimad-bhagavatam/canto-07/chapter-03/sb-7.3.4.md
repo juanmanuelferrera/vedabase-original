@@ -1,11 +1,11 @@
 ### SB 7.3.4
 
-> तस्य मूर्ध्नः समुद्भूतः सधूमोऽग्निस्तपोमयः
+> तस्य मूर्ध्नः समुद्भूतः सधूमोऽग्निस्तपोमयः\
 > तीर्यगूर्ध्वमधो लोकान्प्रातपद्विष्वगीरितः ॥४॥
 
-> tasya mūrdhnaḥ samudbhūtaḥ
-> sadhūmo 'gnis tapomayaḥ
-> tīryag ūrdhvam adho lokān
+> tasya mūrdhnaḥ samudbhūtaḥ\
+> sadhūmo 'gnis tapomayaḥ\
+> tīryag ūrdhvam adho lokān\
 > prātapad viṣvag īritaḥ
 
 *tasya*—his; *mūrdhnaḥ*—from the head; *samudbhūtaḥ*—generated; *sa-dhūmaḥ*—with smoke; *agniḥ*—fire; *tapaḥ-mayaḥ*—because of severe austerities; *tīryak*—sideways; *ūrdhvam*—upward; *adhaḥ*—downward; *lokān*—all the planets; *prātapat*—heated; *viṣvak*—all around; *īritaḥ*—spreading.

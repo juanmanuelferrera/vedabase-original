@@ -1,9 +1,9 @@
 ### CC Antya 19.61
 
-> দীপ জ্বালি’ ঘরে গেলা, দেখি’ প্রভুর মুখ ।
+> দীপ জ্বালি’ ঘরে গেলা, দেখি’ প্রভুর মুখ ।\
 > স্বরূপ, গোবিন্দ দুঁহার হৈল বড় দুঃখ ॥৬১॥
 
-> dīpa jvāli' ghare gelā, dekhi' prabhura mukha
+> dīpa jvāli' ghare gelā, dekhi' prabhura mukha\
 > svarūpa, govinda duṅhāra haila baḍa duḥkha
 
 *dīpa jvāli'*—encendiendo la lámpara; *ghare*—en la habitación; *gelā*—fueron; *dekhi'*—al ver; *prabhura mukha*—el rostro del Señor; *svarūpa*—Svarūpa Dāmodara Gosvāmī; *govinda*—y Govinda; *duṅhāra*—de ambos; *haila baḍa duḥkha*—hubo gran infelicidad.

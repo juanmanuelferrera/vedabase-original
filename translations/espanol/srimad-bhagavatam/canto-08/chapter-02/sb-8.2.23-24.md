@@ -1,18 +1,18 @@
 ### SB 8.2.23-24
 
-> स घर्मतप्तः करिभिः करेणुभिर्वृतो मदच्युत्करभैरनुद्रुतः
-> गिरिं गरिम्णा परितः प्रकम्पयन्निषेव्यमाणोऽलिकुलैर्मदाशनैः ॥२३॥
-> सरोऽनिलं पङ्कजरेणुरूषितं जिघ्रन्विदूरान्मदविह्वलेक्षणः
+> स घर्मतप्तः करिभिः करेणुभिर्वृतो मदच्युत्करभैरनुद्रुतः\
+> गिरिं गरिम्णा परितः प्रकम्पयन्निषेव्यमाणोऽलिकुलैर्मदाशनैः ॥२३॥\
+> सरोऽनिलं पङ्कजरेणुरूषितं जिघ्रन्विदूरान्मदविह्वलेक्षणः\
 > वृतः स्वयूथेन तृषार्दितेन तत्सरोवराभ्यासमथागमद्द्रुतम ॥२४॥
 
-> sa gharma-taptaḥ karibhiḥ kareṇubhir
-> vṛto madacyut-karabhair anudrutaḥ
-> giriṁ garimṇā paritaḥ prakampayan
+> sa gharma-taptaḥ karibhiḥ kareṇubhir\
+> vṛto madacyut-karabhair anudrutaḥ\
+> giriṁ garimṇā paritaḥ prakampayan\
 > niṣevyamāṇo 'likulair madāśanaiḥ
 
-> saro 'nilaṁ paṅkaja-reṇu-rūṣitaṁ
-> jighran vidūrān mada-vihvalekṣaṇaḥ
-> vṛtaḥ sva-yūthena tṛṣārditena tat
+> saro 'nilaṁ paṅkaja-reṇu-rūṣitaṁ\
+> jighran vidūrān mada-vihvalekṣaṇaḥ\
+> vṛtaḥ sva-yūthena tṛṣārditena tat\
 > sarovarābhyāsam athāgamad drutam
 
 *saḥ*—él (el líder de los elefantes); *gharma-taptaḥ*—transpirando; *karibhiḥ*—por otros elefantes; *kareṇubhiḥ*—y elefantas; *vṛtaḥ*—rodeado; *mada-cyut*—con gotas de licor chorreando de su boca; *karabhaiḥ*—por elefantes pequeños; *anudrutaḥ*—seguido; *girim*—aquella montaña; *garimṇā*—con el peso del cuerpo; *paritaḥ*—alrededor de él; *prakampayan*—hacer temblar; *niṣevyamāṇaḥ*—servido; *alikulaiḥ*—por los abejorros; *mada-aśanaiḥ*—que beben miel; *saraḥ*—del lago; *anilam*—la brisa; *paṅkaja-reṇu-rūṣitam*—que lleva el polvo de las flores de loto; *jighran*—oliendo; *vidūrāt*—desde lejos; *mada-vihvala*—ebria; *īkṣaṇaḥ*—cuya visión; *vṛtaḥ*—rodeado; *sva-yūthena*—de sus compañeros; *tṛṣārditena*—que estaban sedientos; *tat*—aquel; *sarovara-abhyāsam*—a la orilla del lago; *atha*—así; *agamat*—fueron; *drutam*—muy pronto.

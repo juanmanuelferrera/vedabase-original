@@ -1,11 +1,11 @@
 ### SB 8.8.14
 
-> मेघा मृदङ्गपणव मुरजानकगोमुखान
+> मेघा मृदङ्गपणव मुरजानकगोमुखान\
 > व्यनादयन्शङ्खवेणु वीणास्तुमुलनिःस्वनान ॥१४॥
 
-> tato 'bhiṣiṣicur devīṁ
-> śriyaṁ padma-karāṁ satīm
-> digibhāḥ pūrṇa-kalaśaiḥ
+> tato 'bhiṣiṣicur devīṁ\
+> śriyaṁ padma-karāṁ satīm\
+> digibhāḥ pūrṇa-kalaśaiḥ\
 > sūkta-vākyair dvijeritaiḥ
 
 *tataḥ*—thereafter; *abhiṣiṣicuḥ*—poured all-auspicious water on the body; *devīm*—the goddess of fortune; *śriyam*—very beautiful; *padma-karām*—with a lotus in her hand; *satīm*—she who is most chaste, not knowing anyone but the Supreme Personality of Godhead; *digibhāḥ*—the great elephants; *pūrṇa-kalaśaiḥ*—by completely full water jugs; *sūkta-vākyaiḥ*—with Vedic *mantras*; *dvi-ja*—by *brāhmaṇas*; *īritaiḥ*—chanted.

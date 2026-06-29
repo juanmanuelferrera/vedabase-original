@@ -1,9 +1,9 @@
 ### CC Madhya 24.251
 
-> কদর্থিয়া তুমি যত মারিলা জীবেরে ।
+> কদর্থিয়া তুমি যত মারিলা জীবেরে ।\
 > তারা তৈছে তোমা মারিবে জন্ম-জন্মান্তরে ।।” ॥ ২৫১ ॥
 
-> kadarthiyā tumi yata mārilā jīvere
+> kadarthiyā tumi yata mārilā jīvere\
 > tārā taiche tomā māribe janma-janmāntare"
 
 *kadarthiyā*—causando sufrimiento innecesario; *tumi*—tú; *yata*—a todos; *mārilā*—mataste; *jīvere*—las entidades vivientes; *tārā*—todos ellos; *taiche*—de la misma manera; *tomā*—a ti; *māribe*—matarán; *janma-janma-antare*—vida tras vida.

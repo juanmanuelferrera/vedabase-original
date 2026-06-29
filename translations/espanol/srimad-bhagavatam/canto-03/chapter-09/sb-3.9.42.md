@@ -1,11 +1,11 @@
 ### SB 3.9.42
 
-> अहमात्मात्मनां धातः प्रेष्ठः सन्प्रेयसामपि ।
+> अहमात्मात्मनां धातः प्रेष्ठः सन्प्रेयसामपि ।\
 > अतो मयि रतिं कुर्याद्देहादिर्यत्कृते प्रियः ॥४२॥
 
-> aham ātmātmanāṁ dhātaḥ
-> preṣṭhaḥ san preyasām api
-> ato mayi ratiṁ kuryād
+> aham ātmātmanāṁ dhātaḥ\
+> preṣṭhaḥ san preyasām api\
+> ato mayi ratiṁ kuryād\
 > dehādir yat-kṛte priyaḥ
 
 *aham*—Yo soy; *ātmā*—la Superalma; *ātmanām*—de todas las demás almas; *dhātaḥ*—director; *preṣṭhaḥ*—el más querido; *san*—ser; *preyasām*—de todas las cosas queridas; *api*—ciertamente; *ataḥ*—por lo tanto; *mayi*—a Mí; *ratim*—apego; *kuryāt*—uno debe hacer; *deha-ādiḥ*—el cuerpo y la mente; *yat-kṛte*—por cuenta de quien; *priyaḥ*—muy querido.

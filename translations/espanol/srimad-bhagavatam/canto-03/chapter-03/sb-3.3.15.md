@@ -1,11 +1,11 @@
 ### SB 3.3.15
 
-> मिथो यदैषां भविता विवादो मध्वामदाताम्रविलोचनानाम् ।
+> मिथो यदैषां भविता विवादो मध्वामदाताम्रविलोचनानाम् ।\
 > नैषां वधोपाय इयानतोऽन्यो मय्युद्यतेऽन्तर्दधते स्वयं स्म ॥१५॥
 
-> mitho yadaiṣāṁ bhavitā vivādo
-> madhv-āmadātāmra-vilocanānām
-> naiṣāṁ vadhopāya iyān ato 'nyo
+> mitho yadaiṣāṁ bhavitā vivādo\
+> madhv-āmadātāmra-vilocanānām\
+> naiṣāṁ vadhopāya iyān ato 'nyo\
 > mayy udyate 'ntardadhate svayaṁ sma
 
 *mithaḥ*—entre sí; *yadā*—cuando; *eṣām*—de ellos; *bhavitā*—ocurrirá; *vivādaḥ*—riña; *madhu-āmada*—embriaguez causada por la bebida; *ātāmra-vilocanānām*—de sus ojos color rojo cobre; *na*—no; *eṣām*—de ellos; *vadha-upāyaḥ*—medios de desaparición; *iyān*—de esta manera; *ataḥ*—además de esto; *anyaḥ*—alternativa; *mayi*—a Mi; *udyate*—partida; *antaḥ-dadhate*—desaparecerán; *svayam*—ellos mismos; *sma*—ciertamente.

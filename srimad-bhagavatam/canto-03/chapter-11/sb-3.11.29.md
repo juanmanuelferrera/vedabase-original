@@ -1,11 +1,11 @@
 ### SB 3.11.29
 
-> तमेवान्वपि धीयन्ते लोका भूरादयस्त्रयः ।
+> तमेवान्वपि धीयन्ते लोका भूरादयस्त्रयः ।\
 > निशायामनुवृत्तायां निर्मुक्तशशिभास्करम् ॥२९॥
 
-> tam evānv api dhīyante
-> lokā bhūr-ādayas trayaḥ
-> niśāyām anuvṛttāyāṁ
+> tam evānv api dhīyante\
+> lokā bhūr-ādayas trayaḥ\
+> niśāyām anuvṛttāyāṁ\
 > nirmukta-śaśi-bhāskaram
 
 *tam*—that; *eva*—certainly; *anu*—after; *api dhīyante*—are out of sight; *lokāḥ*—the planets; *bhūḥ-ādayaḥ*—the three worlds, Bhūḥ, Bhuvaḥ and Svaḥ; *trayaḥ*—three; *niśāyām*—in the night; *anuvṛttāyām*—ordinary; *nirmukta*—without glare; *śaśi*—the moon; *bhāskaram*—the sun.

@@ -1,11 +1,11 @@
 ### SB 4.7.54
 
-> त्रयाणामेकभावानां यो न पश्यति वै भिदाम् ।
+> त्रयाणामेकभावानां यो न पश्यति वै भिदाम् ।\
 > सर्वभूतात्मनां ब्रह्मन्स शान्तिमधिगच्छति ॥५४॥
 
-> trayāṇām eka-bhāvānāṁ
-> yo na paśyati vai bhidām
-> sarva-bhūtātmanāṁ brahman
+> trayāṇām eka-bhāvānāṁ\
+> yo na paśyati vai bhidām\
+> sarva-bhūtātmanāṁ brahman\
 > sa śāntim adhigacchati
 
 *trayāṇām*—de los tres; *eka-bhāvānām*—con una naturaleza; *yaḥ*—quien; *na paśyati*—no ve; *vai*—ciertamente; *bhidām*—separación; *sarva-bhūta-ātmanām*—de la Superalma de todas las entidades vivientes; *brahman*—¡oh, Dakṣa!; *saḥ*—él; *śāntim*—paz; *adhigacchati*—experimenta.

@@ -1,11 +1,11 @@
 ### SB 4.23.14
 
-> सम्पीड्य पायुं पार्ष्णिभ्यां वायुमुत्सारयञ्छनैः ।
+> सम्पीड्य पायुं पार्ष्णिभ्यां वायुमुत्सारयञ्छनैः ।\
 > नाभ्यां कोष्ठेष्ववस्थाप्य हृदुरःकण्ठशीर्षणि ॥१४॥
 
-> sampīḍya pāyuṁ pārṣṇibhyāṁ
-> vāyum utsārayañ chanaiḥ
-> nābhyāṁ koṣṭheṣv avasthāpya
+> sampīḍya pāyuṁ pārṣṇibhyāṁ\
+> vāyum utsārayañ chanaiḥ\
+> nābhyāṁ koṣṭheṣv avasthāpya\
 > hṛd-uraḥ-kaṇṭha-śīrṣaṇi
 
 *sampīḍya*—by blocking; *pāyum*—the door of the anus; *pārṣṇibhyām*—by the calves; *vāyum*—the air which goes up; *utsārayan*—pushing upward; *śanaiḥ*—gradually; *nābhyām*—by the navel; *koṣṭheṣu*—in the heart and in the throat; *avasthāpya*—fixing; *hṛt*—in the heart; *uraḥ*—upward; *kaṇṭha*—throat; *śīrṣaṇi*—between the two eyebrows.

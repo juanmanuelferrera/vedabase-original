@@ -1,11 +1,11 @@
 ### SB 8.6.28
 
-> दृष्ट्वारीनप्यसंयत्तान्जातक्षोभान्स्वनायकान
+> दृष्ट्वारीनप्यसंयत्तान्जातक्षोभान्स्वनायकान\
 > न्यषेधद्दैत्यराट्श्लोक्यः सन्धिविग्रहकालवित ॥२८॥
 
-> dṛṣṭvārīn apy asaṁyattāñ
-> jāta-kṣobhān sva-nāyakān
-> nyaṣedhad daitya-rāṭ ślokyaḥ
+> dṛṣṭvārīn apy asaṁyattāñ\
+> jāta-kṣobhān sva-nāyakān\
+> nyaṣedhad daitya-rāṭ ślokyaḥ\
 > sandhi-vigraha-kālavit
 
 *dṛṣṭvā*—observando; *arīn*—a los enemigos; *api*—aunque; *asaṁyattān*—que no se esforzaban por luchar; *jāta-kṣobhān*—que se agitaron; *sva-nāyakān*—a sus propios capitanes y generales; *nyaṣedhat*—impidió; *daitya-rāṭ*—el emperador de los *daityas*, Mahārāja Bali; *ślokyaḥ*—muy respetable y eminente; *sandhi*—para negociar; *vigraha*—así como para luchar; *kāla*—el momento; *vit*—perfectamente consciente de.

@@ -1,13 +1,13 @@
 ### SB 3.16.24
 
-> तत्तेऽनभीष्टमिव सत्त्वनिधेर्विधित्सोः
-> क्षेमं जनाय निजशक्तिभिरुद्धृतारेः ।
-> नैतावता त्र्यधिपतेर्बत विश्वभर्तुस्
+> तत्तेऽनभीष्टमिव सत्त्वनिधेर्विधित्सोः\
+> क्षेमं जनाय निजशक्तिभिरुद्धृतारेः ।\
+> नैतावता त्र्यधिपतेर्बत विश्वभर्तुस्\
 > तेजः क्षतं त्ववनतस्य स ते विनोदः ॥२४॥
 
-> tat te 'nabhīṣṭam iva sattva-nidher vidhitsoḥ
-> kṣemaṁ janāya nija-śaktibhir uddhṛtāreḥ
-> naitāvatā try-adhipater bata viśva-bhartus
+> tat te 'nabhīṣṭam iva sattva-nidher vidhitsoḥ\
+> kṣemaṁ janāya nija-śaktibhir uddhṛtāreḥ\
+> naitāvatā try-adhipater bata viśva-bhartus\
 > tejaḥ kṣataṁ tv avanatasya sa te vinodaḥ
 
 *tat*—that destruction of the path of auspiciousness; *te*—by You; *anabhīṣṭam*—is not liked; *iva*—as; *sattva-nidheḥ*—the reservoir of all goodness; *vidhitsoḥ*—desiring to do; *kṣemam*—good; *janāya*—for the people in general; *nija-śaktibhiḥ*—by Your own potencies; *uddhṛta*—destroyed; *areḥ*—the opposite element; *na*—not; *etāvatā*—by this; *tri-adhipateḥ*—of the proprietor of the three kinds of creations; *bata*—O Lord; *viśva-bhartuḥ*—the maintainer of the universe; *tejaḥ*—potency; *kṣatam*—reduced; *tu*—but; *avanatasya*—submissive; *saḥ*—that; *te*—Your; *vinodaḥ*—pleasure.

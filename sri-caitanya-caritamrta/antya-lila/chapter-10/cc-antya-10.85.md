@@ -1,9 +1,9 @@
 ### CC Antya 10.85
 
-> সব দ্বার যুড়ি’ প্রভু করিয়াছেন শয়ন  ।
+> সব দ্বার যুড়ি’ প্রভু করিয়াছেন শয়ন  ।\
 > ভিতরে যাইতে নারে, গোবিন্দ করে নিবেদন ॥৮৫॥
 
-> saba dvāra yuḍi' prabhu kariyāchena śayana
+> saba dvāra yuḍi' prabhu kariyāchena śayana\
 > bhitare yāite nāre, govinda kare nivedana
 
 *saba dvāra*—the whole door; *yuḍi'*—occupying the space of; *prabhu*—Śrī Caitanya Mahāprabhu; *kariyāchena śayana*—was lying down; *bhitare*—within; *yāite nāre*—could not go; *govinda*—Govinda; *kare nivedana*—he requested.

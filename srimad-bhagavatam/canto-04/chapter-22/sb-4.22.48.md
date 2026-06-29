@@ -1,13 +1,13 @@
 ### SB 4.22.48
 
-> मैत्रेय उवाच
-> त आत्मयोगपतय आदिराजेन पूजिताः ।
+> मैत्रेय उवाच\
+> त आत्मयोगपतय आदिराजेन पूजिताः ।\
 > शीलं तदीयं शंसन्तः खेऽभवन्मिषतां नृणाम् ॥४८॥
 
-> maitreya uvāca
-> ta ātma-yoga-pataya
-> ādi-rājena pūjitāḥ
-> śīlaṁ tadīyaṁ śaṁsantaḥ
+> maitreya uvāca\
+> ta ātma-yoga-pataya\
+> ādi-rājena pūjitāḥ\
+> śīlaṁ tadīyaṁ śaṁsantaḥ\
 > khe 'bhavan miṣatāṁ nṛṇām
 
 *maitreyaḥ uvāca*—the great sage Maitreya continued to speak; *te*—they; *ātma-yoga-patayaḥ*—the masters of self-realization by devotional service; *ādi-rājena*—by the original king (Pṛthu); *pūjitāḥ*—being worshiped; *śīlam*—character; *tadīyam*—of the King; *śaṁsantaḥ*—eulogizing; *khe*—in the sky; *abhavan*—appeared; *miṣatām*—while observing; *nṛṇām*—of the people.

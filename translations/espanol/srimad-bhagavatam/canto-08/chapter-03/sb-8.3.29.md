@@ -1,11 +1,11 @@
 ### SB 8.3.29
 
-> नायं वेद स्वमात्मानं यच्छक्त्याहंधिया हतम
+> नायं वेद स्वमात्मानं यच्छक्त्याहंधिया हतम\
 > तं दुरत्ययमाहात्म्यं भगवन्तमितोऽस्म्यहम ॥२९॥
 
-> nāyaṁ veda svam ātmānaṁ
-> yac-chaktyāhaṁ-dhiyā hatam
-> taṁ duratyaya-māhātmyaṁ
+> nāyaṁ veda svam ātmānaṁ\
+> yac-chaktyāhaṁ-dhiyā hatam\
+> taṁ duratyaya-māhātmyaṁ\
 > bhagavantam ito 'smy aham
 
 *na*—no; *ayam*—la gente; *veda*—conoce; *svam*—propia; *ātmānam*—identidad; *yat-śaktyā*—por cuya influencia; *aham*—soy independiente; *dhiyā*—con esa inteligencia; *hatam*—vencida o cubierta; *tam*—a Él; *duratyaya*—difíciles de entender; *māhātmyam*—cuyas glorias; *bhagavantam*—de la Suprema Personalidad de Dios; *itaḥ*—refugiándome; *asmi aham*—estoy.

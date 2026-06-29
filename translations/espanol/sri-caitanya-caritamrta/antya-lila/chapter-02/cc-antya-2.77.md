@@ -1,9 +1,9 @@
 ### CC Antya 2.77
 
-> ‘গতবর্ষ পৌষে মোরে করাইল ভোজন ।
+> ‘গতবর্ষ পৌষে মোরে করাইল ভোজন ।\
 > কভু নাহি খাই ঐছে মিষ্টান্ন-ব্যঞ্জন ॥৭৭॥
 
-> 'gata-varṣa pauṣe more karāila bhojana
+> 'gata-varṣa pauṣe more karāila bhojana\
 > kabhu nāhi khāi aiche miṣṭānna-vyañjana'
 
 *gata-varṣa*—el año pasado; *pauṣe*—en el mes de Pauṣa (diciembre-enero); *more*—a Mí; *karāila bhojana*—ofreció muchos alimentos; *kabhu nāhi khāi*—nunca había probado; *aiche*—tales; *miṣṭānna*—dulces; *vyañjana*—verduras.

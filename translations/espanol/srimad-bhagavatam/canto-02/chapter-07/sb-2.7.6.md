@@ -1,13 +1,13 @@
 ### SB 2.7.6
 
-> धर्मस्य दक्षदुहितर्यजनिष्ट मूर्त्यां
-> नारायणो नर इति स्वतपःप्रभावः ।
-> दृष्ट्वात्मनो भगवतो नियमावलोपं
+> धर्मस्य दक्षदुहितर्यजनिष्ट मूर्त्यां\
+> नारायणो नर इति स्वतपःप्रभावः ।\
+> दृष्ट्वात्मनो भगवतो नियमावलोपं\
 > देव्यस्त्वनङ्गपृतना घटितुं न शेकुः ॥६॥
 
-> dharmasya dakṣa-duhitary ajaniṣṭa mūrtyāṁ
-> nārāyaṇo nara iti sva-tapaḥ-prabhāvaḥ
-> dṛṣṭvātmano bhagavato niyamāvalopaṁ
+> dharmasya dakṣa-duhitary ajaniṣṭa mūrtyāṁ\
+> nārāyaṇo nara iti sva-tapaḥ-prabhāvaḥ\
+> dṛṣṭvātmano bhagavato niyamāvalopaṁ\
 > devyas tv anaṅga-pṛtanā ghaṭituṁ na śekuḥ
 
 *dharmasya*—de Dharma (el controlador de los principios religiosos); *dakṣa*—Dakṣa, uno de los *prajāpatis*; *duhitari*—a la hija; *ajaniṣṭa*—nació; *mūrtyām*—de nombre Mūrti; *nārāyaṇaḥ*—Nārāyaṇa; *naraḥ*—Nara; *iti*—así pues; *sva-tapaḥ*—penitencias personales; *prabhāvaḥ*—fuerza; *dṛṣṭvā*—por ver; *ātmanaḥ*—de Su propio; *bhagavataḥ*—de la Personalidad de Dios; *niyama-avalopam*—rompiendo el voto; *devyaḥ*—bellezas celestiales; *tu*—pero; *anaṅga-pṛtanāḥ*—acompañante de Cupido; *ghaṭitum*—ocurrir; *na*—nunca; *śekuḥ*—se hizo posible.

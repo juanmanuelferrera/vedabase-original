@@ -1,9 +1,9 @@
 ### CC Madhya 11.195
 
-> মন্দিরের চক্র দেখি’ করিহ প্রণাম ৷
+> মন্দিরের চক্র দেখি’ করিহ প্রণাম ৷\
 > এই ঠাঞি তোমার আসিবে প্রসাদান্ন ৷৷ ১৯৫ ৷৷ ॥১৯৫॥
 
-> mandirera cakra dekhi' kariha praṇāma
+> mandirera cakra dekhi' kariha praṇāma\
 > ei ṭhāñi tomāra āsibe prasādānna
 
 *mandirera*—del templo de Jagannātha; *cakra*—la rueda de la cúspide; *dekhi'*—viendo; *kariha praṇāma*—ofrece tus reverencias; *ei ṭhāñi*—en este lugar; *tomāra*—tu; *āsibe*—vendrá; *prasāda-anna*—remanentes de la comida de Jagannātha.

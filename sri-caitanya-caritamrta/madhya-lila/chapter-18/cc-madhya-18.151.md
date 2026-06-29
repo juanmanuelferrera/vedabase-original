@@ -1,9 +1,9 @@
 ### CC Madhya 18.151
 
-> উদ্বিগ্ন হইল প্রাণ, সহিতে না পারি ।
+> উদ্বিগ্ন হইল প্রাণ, সহিতে না পারি ।\
 > প্রভুর যে আজ্ঞা হয়, সেই শিরে ধরি ।।” ॥ ১৫১ ॥
 
-> udvigna ha-ila prāṇa, sahite nā pāri
+> udvigna ha-ila prāṇa, sahite nā pāri\
 > prabhura ye ājñā haya, sei śire dhari"
 
 *udvigna*—agitated; *ha-ila*—has become; *prāṇa*—my mind; *sahite*—to bear; *nā pāri*—I am unable; *prabhura*—of Śrī Caitanya Mahāprabhu; *ye*—what; *ājñā*—order; *haya*—there is; *sei śire dhari*—I accept that.

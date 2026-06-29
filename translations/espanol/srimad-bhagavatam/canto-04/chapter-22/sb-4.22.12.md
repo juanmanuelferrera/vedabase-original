@@ -1,11 +1,11 @@
 ### SB 4.22.12
 
-> स्वागतं वो द्विजश्रेष्ठा यद्व्रतानि मुमुक्षवः ।
+> स्वागतं वो द्विजश्रेष्ठा यद्व्रतानि मुमुक्षवः ।\
 > चरन्ति श्रद्धया धीरा बाला एव बृहन्ति च ॥१२॥
 
-> svāgataṁ vo dvija-śreṣṭhā
-> yad-vratāni mumukṣavaḥ
-> caranti śraddhayā dhīrā
+> svāgataṁ vo dvija-śreṣṭhā\
+> yad-vratāni mumukṣavaḥ\
+> caranti śraddhayā dhīrā\
 > bālā eva bṛhanti ca
 
 *su-āgatam*—bienvenida; *vaḥ*—a ustedes; *dvija-śreṣṭhāḥ*—los mejores entre los *brāhmaṇas*; *yat*—cuyos; *vratāni*—votos; *mumukṣavaḥ*—de personas que desean la liberación; *caranti*—se comportan; *śraddhayā*—con gran fe; *dhīrāḥ*—controlados; *bālāḥ*—niños; *eva*—como; *bṛhanti*—observan; *ca*—también.

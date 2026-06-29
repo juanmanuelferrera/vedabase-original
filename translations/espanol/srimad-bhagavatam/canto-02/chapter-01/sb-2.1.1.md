@@ -1,13 +1,13 @@
 ### SB 2.1.1
 
-> श्रीशुक उवाच
-> वरीयानेष ते प्रश्नः कृतो लोकहितं नृप ।
+> श्रीशुक उवाच\
+> वरीयानेष ते प्रश्नः कृतो लोकहितं नृप ।\
 > आत्मवित्सम्मतः पुंसां श्रोतव्यादिषु यः परः ॥१॥
 
-> śrī-śuka uvāca
-> varīyān eṣa te praśnaḥ
-> kṛto loka-hitaṁ nṛpa
-> ātmavit-sammataḥ puṁsāṁ
+> śrī-śuka uvāca\
+> varīyān eṣa te praśnaḥ\
+> kṛto loka-hitaṁ nṛpa\
+> ātmavit-sammataḥ puṁsāṁ\
 > śrotavyādiṣu yaḥ paraḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *varīyān*—gloriosa; *eṣaḥ*—esta; *te*—tu; *praśnaḥ*—pregunta; *kṛtaḥ*—hecha por ti; *lokahitam*—de beneficio para todos los hombres; *nṛpa*—¡oh, rey!; *ātmavit*—trascendentalista; *sammataḥ*—aprobada; *puṁsām*—de todos los hombres; *śrotavya-ādiṣu*—en toda clase de audiciones; *yaḥ*—que es; *paraḥ*—lo supremo.

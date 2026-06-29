@@ -1,11 +1,11 @@
 ### SB 6.5.39
 
-> ननु भागवता नित्यं भूतानुग्रहकातराः
+> ननु भागवता नित्यं भूतानुग्रहकातराः\
 > ऋते त्वां सौहृदघ्नं वै वैरङ्करमवैरिणाम ॥३९॥
 
-> nanu bhāgavatā nityaṁ
-> bhūtānugraha-kātarāḥ
-> ṛte tvāṁ sauhṛda-ghnaṁ vai
+> nanu bhāgavatā nityaṁ\
+> bhūtānugraha-kātarāḥ\
+> ṛte tvāṁ sauhṛda-ghnaṁ vai\
 > vairaṅ-karam avairiṇām
 
 *nanu*—ahora; *bhāgavatāḥ*—devotos de la Suprema Personalidad de Dios; *nityam*—eternamente; *bhūta-anugraha-kātarāḥ*—muy ansiosos de conceder bendiciones a las caídas almas condicionadas; *ṛte*—excepto; *tvām*—tú mismo; *sauhṛda-ghnam*—que rompes lazos de amistad (y que por lo tanto no debes ser incluido entre los *bhāgavatas*, los devotos del Señor); *vai*—en verdad; *vairam-karam*—tú creas enemistad; *avairiṇām*—hacia personas que no son enemigos.

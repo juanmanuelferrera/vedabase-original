@@ -1,13 +1,13 @@
 ### SB 8.24.61
 
-> प्रलयपयसि धातुः सुप्तशक्तेर्मुखेभ्यः
-> श्रुतिगणमपनीतं प्रत्युपादत्त हत्वा
-> दितिजमकथयद्यो ब्रह्म सत्यव्रतानां
+> प्रलयपयसि धातुः सुप्तशक्तेर्मुखेभ्यः\
+> श्रुतिगणमपनीतं प्रत्युपादत्त हत्वा\
+> दितिजमकथयद्यो ब्रह्म सत्यव्रतानां\
 > तमहमखिलहेतुं जिह्ममीनं नतोऽस्मि ॥६१॥
 
-> pralaya-payasi dhātuḥ supta-śakter mukhebhyaḥ
-> śruti-gaṇam apanītaṁ pratyupādatta hatvā
-> ditijam akathayad yo brahma satyavratānāṁ
+> pralaya-payasi dhātuḥ supta-śakter mukhebhyaḥ\
+> śruti-gaṇam apanītaṁ pratyupādatta hatvā\
+> ditijam akathayad yo brahma satyavratānāṁ\
 > tam aham akhila-hetuṁ jihma-mīnaṁ nato 'smi
 
 *pralaya-payasi*—en las aguas de la inundación; *dhātuḥ*—del Señor Brahmā; *supta-śakteḥ*—que yacía inerte debido al sueño; *mukhebhyaḥ*—de las bocas; *śruti-gaṇam*—escritos védicos; *apanītam*—robados; *pratyupādatta*—le devolvió; *hatvā*—matando; *ditijam*—al gran demonio; *akathayat*—explicó; *yaḥ*—aquel que; *brahma*—conocimiento védico; *satyavratānām*—para iluminación de Satyavrata y de las grandes personas santas; *tam*—a Él; *aham*—yo; *akhila-hetum*—a la causa de todas las causas; *jihma-mīnam*—con el aspecto de un gran pez, o haciéndose pasar por un gran pez; *nataḥ asmi*—ofrezco respetuosas reverencias.

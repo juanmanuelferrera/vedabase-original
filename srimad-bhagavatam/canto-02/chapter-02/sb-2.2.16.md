@@ -1,11 +1,11 @@
 ### SB 2.2.16
 
-> मनः स्वबुद्ध्यामलया नियम्य क्षेत्रज्ञ एतां निनयेत्तमात्मनि ।
+> मनः स्वबुद्ध्यामलया नियम्य क्षेत्रज्ञ एतां निनयेत्तमात्मनि ।\
 > आत्मानमात्मन्यवरुध्य धीरो लब्धोपशान्तिर्विरमेत कृत्यात् ॥१६॥
 
-> manaḥ sva-buddhyāmalayā niyamya
-> kṣetra-jña etāṁ ninayet tam ātmani
-> ātmānam ātmany avarudhya dhīro
+> manaḥ sva-buddhyāmalayā niyamya\
+> kṣetra-jña etāṁ ninayet tam ātmani\
+> ātmānam ātmany avarudhya dhīro\
 > labdhopaśāntir virameta kṛtyāt
 
 *manaḥ*—the mind; *sva-buddhyā*—by his own intelligence; *amalayā*—unalloyed; *niyamya*—by regulating; *kṣetra-jñe*—unto the living entity; *etām*—all of them; *ninayet*—merge; *tam*—that; *ātmani*—the self; *ātmānam*—the self; *ātmani*—in the Superself; *avarudhya*—being locked up; *dhīraḥ*—the fully satisfied; *labdha-upaśāntiḥ*—one who has attained full bliss; *virameta*—ceases from; *kṛtyāt*—all other activities.

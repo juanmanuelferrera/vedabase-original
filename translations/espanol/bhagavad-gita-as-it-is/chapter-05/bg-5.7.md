@@ -1,11 +1,11 @@
 ### Bg 5.7
 
-> योगयुक्तो विशुद्धात्मा विजितात्मा जितेन्द्रियः ।
+> योगयुक्तो विशुद्धात्मा विजितात्मा जितेन्द्रियः ।\
 > सर्वभूतात्मभूतात्मा कुर्वन्नपि न लिप्यते ॥७॥
 
-> yoga-yukto viśuddhātmā
-> vijitātmā jitendriyaḥ
-> sarvabhūtātmabhūtātmā
+> yoga-yukto viśuddhātmā\
+> vijitātmā jitendriyaḥ\
+> sarvabhūtātmabhūtātmā\
 > kurvann api na lipyate
 
 *yoga-yuktaḥ*—ocupado en el servicio devocional; *viśuddha-ātmā*—un alma purificada; *vijita-ātmā*—autocontrolado; *jita-indriyaḥ*—habiendo conquistado los sentidos; *sarvabhūta-ātmabhūta-ātmā*—compasivo con todas las entidades vivientes; *kurvan api*—aunque ocupado en trabajo; *na*—nunca; *lipyate*—se enreda.

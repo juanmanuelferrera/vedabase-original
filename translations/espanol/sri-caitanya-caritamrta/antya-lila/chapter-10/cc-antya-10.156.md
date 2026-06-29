@@ -1,9 +1,9 @@
 ### CC Antya 10.156
 
-> প্রথমে আছিল ‘নির্বন্ধ’ কৌড়ি চারিপণ ।
+> প্রথমে আছিল ‘নির্বন্ধ’ কৌড়ি চারিপণ ।\
 > রামচন্দ্রপুরী-ভয়ে ঘাটাইলা নিমন্ত্রণ ॥১৫৬॥
 
-> prathame āchila 'nirbandha' kauḍi cāri-paṇa
+> prathame āchila 'nirbandha' kauḍi cāri-paṇa\
 > rāmacandra-purī-bha ye ghāṭāilā nimantraṇa
 
 *prathame*—al principio; *āchila*—era; *nirbandha*—fijo; *kauḍi cāri-paṇa*—cuatro paṇas de caracolillas; *rāmacandra-purī-bhaye*—debido a la restricción de Rāmacandra Purī; *ghāṭāilā*—disminuyó; *nimantraṇa*—el precio de una invitación.

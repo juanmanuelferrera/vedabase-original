@@ -1,11 +1,11 @@
 ### SB 9.15.31
 
-> यतो यतोऽसौ प्रहरत्परश्वधो मनोऽनिलौजाः परचक्रसूदनः
+> यतो यतोऽसौ प्रहरत्परश्वधो मनोऽनिलौजाः परचक्रसूदनः\
 > ततश्ततस्छिन्नभुजोरुकन्धरा निपेतुरुर्व्यां हतसूतवाहनाः ॥३१॥
 
-> yato yato 'sau praharat-paraśvadho
-> mano-'nilaujāḥ para-cakra-sūdanaḥ
-> tatas tataś chinna-bhujoru-kandharā
+> yato yato 'sau praharat-paraśvadho\
+> mano-'nilaujāḥ para-cakra-sūdanaḥ\
+> tatas tataś chinna-bhujoru-kandharā\
 > nipetur urvyāṁ hata-sūta-vāhanāḥ
 
 *yataḥ*—allí donde; *yataḥ*—allí donde; *asau*—el Señor Paraśurāma; *praharat*—cortar; *paraśvadhaḥ*—que era experto en el manejo de su arma, el hacha, *paraśu*; *manaḥ*—como la mente; *anila*—como el viento; *ojāḥ*—que era violento; *para-cakra*—de la fuerza militar de los enemigos; *sūdanaḥ*—que destruía; *tataḥ*—allí; *tataḥ*—y allí; *chinna*—desperdigados y cortados; *bhuja*—brazos; *ūru*—piernas; *kandharāḥ*—hombros; *nipetuḥ*—caían; *urvyām*—al suelo; *hata*—matados; *sūta*—aurigas; *vāhanāḥ*—monturas, caballos y elefantes.

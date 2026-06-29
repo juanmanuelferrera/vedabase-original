@@ -1,11 +1,11 @@
 ### CC Madhya 7.73
 
-> বজ্রাদপি কঠোরাণি মৃদূনি কুসুমাদপি ।
+> বজ্রাদপি কঠোরাণি মৃদূনি কুসুমাদপি ।\
 > লোকোত্তরাণাং চেতাংসি কো নু বিজ্ঞাতুমীশ্বরঃ ॥৭৩॥
 
-> vajrād api kaṭhorāṇi
-> mṛdūni kusumād api
-> lokottarāṇāṁ cetāṁsi
+> vajrād api kaṭhorāṇi\
+> mṛdūni kusumād api\
+> lokottarāṇāṁ cetāṁsi\
 > ko nu vijñātum īśvaraḥ
 
 *vajrāt api*—than a thunderbolt; *kaṭhorāṇi*—harder; *mṛdūni*—softer; *kusumāt api*—than a flower; *loka-uttarāṇām*—persons above the human platform of behavior; *cetāṁsi*—the hearts; *kaḥ*—who; *nu*—but; *vijñātum*—to understand; *īśvaraḥ*—able.

@@ -1,11 +1,11 @@
 ### SB 6.18.30
 
-> विलोक्यैकान्तभूतानि भूतान्यादौ प्रजापतिः
+> विलोक्यैकान्तभूतानि भूतान्यादौ प्रजापतिः\
 > स्त्रियं चक्रे स्वदेहार्धं यया पुंसां मतिर्हृता ॥३०॥
 
-> vilokyaikānta-bhūtāni
-> bhūtāny ādau prajāpatiḥ
-> striyaṁ cakre sva-dehārdhaṁ
+> vilokyaikānta-bhūtāni\
+> bhūtāny ādau prajāpatiḥ\
+> striyaṁ cakre sva-dehārdhaṁ\
 > yayā puṁsāṁ matir hṛtā
 
 *vilokya*—al ver; *ekānta-bhūtāni*—desapegadas; *bhūtāni*—a las entidades vivientes; *ādau*—en el comienzo; *prajāpatiḥ*—el Señor Brahmā; *striyam*—a la mujer; *cakre*—creó; *sva-deha*—de su cuerpo; *ardham*—mitad; *yayā*—por quien; *puṁsām*—de los hombres; *matiḥ*—la mente; *hṛtā*—arrastrada.

@@ -1,11 +1,11 @@
 ### SB 3.1.21
 
-> तत्राथ शुश्राव सुहृद्विनष्टिं वनं यथा वेणुजवह्निसंश्रयम् ।
+> तत्राथ शुश्राव सुहृद्विनष्टिं वनं यथा वेणुजवह्निसंश्रयम् ।\
 > संस्पर्धया दग्धमथानुशोचन्सरस्वतीं प्रत्यगियाय तूष्णीम् ॥२१॥
 
-> tatrātha śuśrāva suhṛd-vinaṣṭiṁ
-> vanaṁ yathā veṇuja-vahni-saṁśrayam
-> saṁspardhayā dagdham athānuśocan
+> tatrātha śuśrāva suhṛd-vinaṣṭiṁ\
+> vanaṁ yathā veṇuja-vahni-saṁśrayam\
+> saṁspardhayā dagdham athānuśocan\
 > sarasvatīṁ pratyag iyāya tūṣṇīm
 
 *tatra*—allí; *atha*—luego; *śuśrāva*—oyó; *suhṛt*—parientes; *vinaṣṭim*—todos muertos; *vanam*—bosque; *yathā*—al igual que; *veṇuja-vahni*—fuego provocado por los bambúes; *saṁśrayam*—fricción entre uno y otro; *saṁspardhayā*—por una violenta pasión; *dagdham*—incendiado; *atha*—así pues; *anuśocan*—pensando; *sarasvatīm*—el río Sarasvatī; *pratyak*—hacia el oeste; *iyāya*—fue; *tūṣṇīm*—silenciosamente.

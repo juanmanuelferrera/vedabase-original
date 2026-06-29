@@ -1,11 +1,11 @@
 ### SB 8.8.2
 
-> तामग्निहोत्रीमृषयो जगृहुर्ब्रह्मवादिनः
+> तामग्निहोत्रीमृषयो जगृहुर्ब्रह्मवादिनः\
 > यज्ञअस्य देवयानस्य मेध्याय हविषे नृप ॥२॥
 
-> tām agni-hotrīm ṛṣayo
-> jagṛhur brahma-vādinaḥ
-> yajñasya deva-yānasya
+> tām agni-hotrīm ṛṣayo\
+> jagṛhur brahma-vādinaḥ\
+> yajñasya deva-yānasya\
 > medhyāya haviṣe nṛpa
 
 *tām*—that cow; *agni-hotrīm*—absolutely necessary for the production of yogurt, milk and ghee to offer as oblations in the fire; *ṛṣayaḥ*—sages who perform such sacrifices; *jagṛhuḥ*—took in charge; *brahma-vādinaḥ*—because such sages know the Vedic ritualistic ceremonies; *yajñasya*—of sacrifice; *deva-yānasya*—which fulfills the desire to be elevated to the higher planetary systems and to Brahmaloka; *medhyāya*—fit for offering oblations; *haviṣe*—for the sake of pure clarified butter; *nṛpa*—O King.

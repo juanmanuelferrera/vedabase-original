@@ -1,11 +1,11 @@
 ### SB 3.21.55
 
-> अधर्मश्च समेधेत लोलुपैर्व्यङ्कुशैर्नृभिः ।
+> अधर्मश्च समेधेत लोलुपैर्व्यङ्कुशैर्नृभिः ।\
 > शयाने त्वयि लोकोऽयं दस्युग्रस्तो विनङ्क्ष्यति ॥५५॥
 
-> adharmaś ca samedheta
-> lolupair vyaṅkuśair nṛbhiḥ
-> śayāne tvayi loko 'yaṁ
+> adharmaś ca samedheta\
+> lolupair vyaṅkuśair nṛbhiḥ\
+> śayāne tvayi loko 'yaṁ\
 > dasyu-grasto vinaṅkṣyati
 
 *adharmaḥ*—iniquidad; *ca*—y; *samedheta*—prosperaría; *lolupaiḥ*—que simplemente van tras el dinero; *vyaṅkuśaiḥ*—sin ser controlados; *nṛbhiḥ*—por hombres; *śayāne tvayi*—cuando tú te tiendas a descansar; *lokaḥ*—el mundo; *ayam*—este; *dasyu*—por los malvados; *grastaḥ*—atacado; *vinaṅkṣyati*—perecerá.

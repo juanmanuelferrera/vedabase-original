@@ -1,9 +1,9 @@
 ### CC Antya 9.137
 
-> কিন্তু তোমার স্মরণের নহে এই ‘মুখ্যফল’ ।
+> কিন্তু তোমার স্মরণের নহে এই ‘মুখ্যফল’ ।\
 > ‘ফলাভাস’ এই, — যাতে ‘বিষয়’ চঞ্চল ॥১৩৭॥
 
-> kintu tomāra smaraṇera nahe ei 'mukhya-phala'
+> kintu tomāra smaraṇera nahe ei 'mukhya-phala'\
 > 'phalābhāsa' ei,—yāte 'viṣaya' cañcala
 
 *kintu*—but; *tomāra*—Your; *smaraṇera*—of remembrance; *nahe*—not; *ei*—this; *mukhya-phala*—chief result; *phala-ābhāsa*—a glimpse of the result; *ei*—this; *yāte*—because; *viṣaya*—material opulence; *cañcala*—flickering.

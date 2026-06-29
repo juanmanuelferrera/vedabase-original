@@ -1,11 +1,11 @@
 ### SB 4.14.11
 
-> निरूपितः प्रजापालः स जिघांसति वै प्रजाः ।
+> निरूपितः प्रजापालः स जिघांसति वै प्रजाः ।\
 > तथापि सान्त्वयेमामुं नास्मांस्तत्पातकं स्पृशेत् ॥११॥
 
-> nirūpitaḥ prajā-pālaḥ
-> sa jighāṁsati vai prajāḥ
-> tathāpi sāntvayemāmuṁ
+> nirūpitaḥ prajā-pālaḥ\
+> sa jighāṁsati vai prajāḥ\
+> tathāpi sāntvayemāmuṁ\
 > nāsmāṁs tat-pātakaṁ spṛśet
 
 *nirūpitaḥ*—elegido; *prajā-pālaḥ*—rey; *saḥ*—él; *jighāṁsati*—desea hacer daño; *vai*—ciertamente; *prajāḥ*—los ciudadanos; *tathā api*—a pesar de todo; *sāntvayema*—debemos calmar; *amum*—a él; *na*—no; *asmān*—nosotros; *tat*—su; *pātakam*—resultado pecaminoso; *spṛśet*—nos afecte.

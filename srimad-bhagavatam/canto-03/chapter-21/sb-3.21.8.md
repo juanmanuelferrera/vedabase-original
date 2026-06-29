@@ -1,11 +1,11 @@
 ### SB 3.21.8
 
-> तावत्प्रसन्नो भगवान्पुष्कराक्षः कृते युगे ।
+> तावत्प्रसन्नो भगवान्पुष्कराक्षः कृते युगे ।\
 > दर्शयामास तं क्षत्तः शाब्दं ब्रह्म दधद्वपुः ॥८॥
 
-> tāvat prasanno bhagavān
-> puṣkarākṣaḥ kṛte yuge
-> darśayām āsa taṁ kṣattaḥ
+> tāvat prasanno bhagavān\
+> puṣkarākṣaḥ kṛte yuge\
+> darśayām āsa taṁ kṣattaḥ\
 > śābdaṁ brahma dadhad vapuḥ
 
 *tāvat*—then; *prasannaḥ*—being pleased; *bhagavān*—the Supreme Personality of Godhead; *puṣkara-akṣaḥ*—lotus-eyed; *kṛte yuge*—in the Satya-yuga; *darśayām āsa*—showed; *tam*—to that Kardama Muni; *kṣattaḥ*—O Vidura; *śābdam*—which is to be understood only through the *Vedas*; *brahma*—the Absolute Truth; *dadhat*—exhibiting; *vapuḥ*—His transcendental body.

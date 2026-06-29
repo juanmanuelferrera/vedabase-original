@@ -1,11 +1,11 @@
 ### Bg 1.31
 
-> न च श्रेयोऽनुपश्यामि हत्वा स्वजनमाहवे ।
+> न च श्रेयोऽनुपश्यामि हत्वा स्वजनमाहवे ।\
 > न काङ्क्षे विजयं कृष्ण न च राज्यं सुखानि च ॥३१॥
 
-> na ca śreyo'nupaśyāmi
-> hatvā svajanam āhave
-> na kāṅkṣe vijayaṁ kṛṣṇa
+> na ca śreyo'nupaśyāmi\
+> hatvā svajanam āhave\
+> na kāṅkṣe vijayaṁ kṛṣṇa\
 > na ca rājyaṁ sukhāni ca
 
 *na*—ni; *ca*—también; *śreyaḥ*—bien; *anupaśyāmi*—preveo; *hatvā*—por matar; *svajanam*—a los propios familiares; *āhave*—en la lucha; *na*—no; *kāṅkṣe*—deseo; *vijayam*—victoria; *kṛṣṇa*—¡oh, Kṛṣṇa!; *na*—ni; *ca*—también; *rājyam*—reino; *sukhāni*—felicidad subsecuente; *ca*—también.

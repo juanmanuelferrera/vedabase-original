@@ -1,9 +1,9 @@
 ### CC Antya 4.163
 
-> জগদানন্দে পিয়াও আত্মীয়তা-সুধারস ।
+> জগদানন্দে পিয়াও আত্মীয়তা-সুধারস ।\
 > মোরে পিয়াও গৌরবস্তুতি-নিম্ব-নিশিন্দা-রস ॥১৬৩॥
 
-> jagadānande piyāo ātmīyatā-sudhā-rasa
+> jagadānande piyāo ātmīyatā-sudhā-rasa\
 > more piyāo gaurava-stuti-nimba-niśindā-rasa
 
 *jagadānande*—a Jagadānanda Paṇḍita; *piyāo*—haces beber; *ātmīyatā-sudhā-rasa*—el néctar de las relaciones afectuosas; *more*—a mí; *piyāo*—me haces beber; *gaurava-stuti*—oraciones honorables; *nimba-niśindā-rasa*—el jugo de fruto de nimba y niśindā.

@@ -1,11 +1,11 @@
 ### SB 5.13.11
 
-> क्वचिच्च शीतातपवातवर्ष प्रतिक्रियां कर्तुमनीश आस्ते
+> क्वचिच्च शीतातपवातवर्ष प्रतिक्रियां कर्तुमनीश आस्ते\
 > क्वचिन्मिथो विपणन्यच्च किञ्चिद्विद्वेषमृच्छत्युत वित्तशाठ्यात ॥११॥
 
-> kvacic ca śītātapa-vāta-varṣa-
-> pratikriyāṁ kartum anīśa āste
-> kvacin mitho vipaṇan yac ca kiñcid
+> kvacic ca śītātapa-vāta-varṣa-\
+> pratikriyāṁ kartum anīśa āste\
+> kvacin mitho vipaṇan yac ca kiñcid\
 > vidveṣam ṛcchaty uta vitta-śāṭhyāt
 
 *kvacit*—sometimes; *ca*—also; *śīta-ātapa-vāta-varṣa*—of freezing cold, scorching heat, strong wind and excessive rainfall; *pratikriyām*—counteraction; *kartum*—to do; *anīśaḥ*—being unable; *āste*—remains in misery; *kvacit*—sometimes; *mithaḥ*—one another; *vipaṇan*—selling; *yat ca*—whatever; *kiñcit*—a little bit; *vidveṣam*—mutual enmity; *ṛcchati*—obtain; *uta*—it is so said; *vitta-śāṭhyāt*—because of cheating one another merely for money.

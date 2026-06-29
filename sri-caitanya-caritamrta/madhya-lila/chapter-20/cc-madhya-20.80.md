@@ -1,9 +1,9 @@
 ### CC Madhya 20.80
 
-> “সনাতন, তুমি যাবৎ কাশীতে রহিবা  ।
+> “সনাতন, তুমি যাবৎ কাশীতে রহিবা  ।\
 > তাবৎ আমার ঘরে ভিক্ষা যে করিবা ।।” ৮০ ॥৮০॥
 
-> "sanātana, tumi yāvat kāśīte rahibā
+> "sanātana, tumi yāvat kāśīte rahibā\
 > tāvat āmāra ghare bhikṣā ye karibā"
 
 *sanātana*—O Sanātana; *tumi*—you; *yāvat*—as long as; *kāśīte*—in Benares; *rahibā*—will remain; *tāvat*—so long; *āmāra*—my; *ghare*—at the home; *bhikṣā*—lunch; *ye*—that; *karibā*—please accept.

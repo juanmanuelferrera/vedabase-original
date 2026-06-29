@@ -1,11 +1,11 @@
 ### CC Adi 3.27
 
-> সন্ত্ববতারা বহবঃ পঙ্কজনাভস্য সর্বতোভদ্রাঃ ।
+> সন্ত্ববতারা বহবঃ পঙ্কজনাভস্য সর্বতোভদ্রাঃ ।\
 > কৃষ্ণাদন্যঃ কো বা লতাস্বপি প্রেমদো ভবতি ॥২৭॥
 
-> santv avatārā bahavaḥ
-> paṅkaja-nābhasya sarvato-bhadrāḥ
-> kṛṣṇād anyaḥ ko vā latāsv
+> santv avatārā bahavaḥ\
+> paṅkaja-nābhasya sarvato-bhadrāḥ\
+> kṛṣṇād anyaḥ ko vā latāsv\
 > api prema-do bhavati
 
 *santu*—que haya; *avatārāḥ*—encarnaciones; *bahavaḥ*—muchas; *paṅkaja-nābhasya*—del Señor, de cuyo ombligo crece una flor de loto; *sarvataḥ-bhadrāḥ*—completamente auspiciosas; *kṛṣṇāt*—que el Señor Kṛṣṇa; *anyaḥ*—otro; *kaḥ vā*—quién posiblemente; *latāsu*—a las almas rendidas; *api*—también; *prema-daḥ*—el otorgador de amor; *bhavati*—es.

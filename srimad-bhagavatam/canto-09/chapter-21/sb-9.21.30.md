@@ -1,11 +1,11 @@
 ### SB 9.21.30
 
-> ततो बहुरथो नाम पुरुमीढोऽप्रजोऽभवत
+> ततो बहुरथो नाम पुरुमीढोऽप्रजोऽभवत\
 > नलिन्यामजमीढस्य नीलः शान्तिस्तु तत्सुतः ॥३०॥
 
-> tato bahuratho nāma
-> purumīḍho 'prajo 'bhavat
-> nalinyām ajamīḍhasya
+> tato bahuratho nāma\
+> purumīḍho 'prajo 'bhavat\
+> nalinyām ajamīḍhasya\
 > nīlaḥ śāntis tu tat-sutaḥ
 
 *tataḥ*—from him (Ripuñjaya); *bahurathaḥ*—Bahuratha; *nāma*—named; *purumīḍhaḥ*—Purumīḍha, the younger brother of Dvimīḍha; *aprajaḥ*—sonless; *abhavat*—became; *nalinyām*—through Nalinī; *ajamīḍhasya*—of Ajamīḍha; *nīlaḥ*—Nīla; *śāntiḥ*—Śānti; *tu*—then; *tat-sutaḥ*—the son of Nīla.

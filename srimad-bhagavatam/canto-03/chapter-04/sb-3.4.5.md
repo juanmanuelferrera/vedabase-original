@@ -1,11 +1,11 @@
 ### SB 3.4.5
 
-> तथापि तदभिप्रेतं जानन्नहमरिन्दम ।
+> तथापि तदभिप्रेतं जानन्नहमरिन्दम ।\
 > पृष्ठतोऽन्वगमं भर्तुः पादविश्लेषणाक्षमः ॥५॥
 
-> tathāpi tad-abhipretaṁ
-> jānann aham arindama
-> pṛṣṭhato 'nvagamaṁ bhartuḥ
+> tathāpi tad-abhipretaṁ\
+> jānann aham arindama\
+> pṛṣṭhato 'nvagamaṁ bhartuḥ\
 > pāda-viśleṣaṇākṣamaḥ
 
 *tathā api*—yet, in spite of; *tat-abhipretam*—His desire; *jānan*—knowing; *aham*—I; *arim-dama*—O subduer of the enemy (Vidura); *pṛṣṭhataḥ*—behind; *anvagamam*—followed; *bhartuḥ*—of the master; *pāda-viśleṣaṇa*—separation from His lotus feet; *akṣamaḥ*—not being able.

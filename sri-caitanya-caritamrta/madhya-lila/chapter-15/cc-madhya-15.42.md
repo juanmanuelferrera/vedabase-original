@@ -1,9 +1,9 @@
 ### CC Madhya 15.42
 
-> নিত্যানন্দে আজ্ঞা দিল, — ‘যাহ গৌড়দেশে ।
+> নিত্যানন্দে আজ্ঞা দিল, — ‘যাহ গৌড়দেশে ।\
 > অনর্গল প্রেমভক্তি করিহ প্রকাশে ॥৪২॥
 
-> nityānande ājñā dila,—'yāha gauḍa-deśe
+> nityānande ājñā dila,—'yāha gauḍa-deśe\
 > anargala prema-bhakti kariha prakāśe
 
 *nityānande*—unto Nityānanda Prabhu; *ājñā dila*—Lord Śrī Caitanya Mahāprabhu ordered; *yāha gauḍa-deśe*—go to Gauḍa-deśa (Bengal); *anargala*—without restriction; *prema-bhakti*—devotional service in love of Godhead; *kariha prakāśe*—manifest.

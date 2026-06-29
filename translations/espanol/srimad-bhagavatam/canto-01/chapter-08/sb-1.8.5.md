@@ -1,11 +1,11 @@
 ### SB 1.8.5
 
-> साधयित्वाजातशत्रोः स्वं राज्यं कितवैर्हृतम् ।
+> साधयित्वाजातशत्रोः स्वं राज्यं कितवैर्हृतम् ।\
 > घातयित्वासतो राज्ञः कचस्पर्शक्षतायुषः ॥५॥
 
-> sādhayitvājāta-śatroḥ
-> svaṁ rājyaṁ kitavair hṛtam
-> ghātayitvāsato rājñaḥ
+> sādhayitvājāta-śatroḥ\
+> svaṁ rājyaṁ kitavair hṛtam\
+> ghātayitvāsato rājñaḥ\
 > kaca-sparśa-kṣatāyuṣaḥ
 
 *sādhayitvā*—habiendo ejecutado; *ajāta-śatroḥ*—de aquel que no tiene enemigos; *svam rājyam*—reino propio; *kitavaiḥ*—por los astutos (Duryodhana y su gente); *hṛtam*—usurparon; *ghātayitvā*—habiendo matado; *asataḥ*—los inescrupulosos; *rājñaḥ*—del de la reina; *kaca*—manojo de cabellos; *sparśa*—manipularon ásperamente; *kṣata*—disminuido; *āyuṣaḥ*—por la duración de la vida.

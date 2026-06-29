@@ -1,13 +1,13 @@
 ### CC Madhya 7.96
 
-> কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! হে ।
+> কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! হে ।\
 > কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! কৃষ্ণ! হে ॥ ॥৯৬॥
 
-> kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! he
-> kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! he
-> kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! rakṣa mām
-> kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! pāhi mām
-> rāma! rāghava! rāma! rāghava! rāma! rāghava! rakṣa mām
+> kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! he\
+> kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! he\
+> kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! rakṣa mām\
+> kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! kṛṣṇa! pāhi mām\
+> rāma! rāghava! rāma! rāghava! rāma! rāghava! rakṣa mām\
 > kṛṣṇa! keśava! kṛṣṇa! keśava! kṛṣṇa! keśava! pāhi mām
 
 *kṛṣṇa*—Lord Kṛṣṇa; *he*—O; *rakṣa*—please protect; *mām*—Me; *pāhi*—please maintain; *rāma*—Lord Rāma; *rāghava*—descendant of King Raghu; *keśava*—killer of the Keśī demon.

@@ -1,9 +1,9 @@
 ### CC Madhya 21.30
 
-> অপার ঐশ্বর্য কৃষ্ণের — নাহিক গণন ।
+> অপার ঐশ্বর্য কৃষ্ণের — নাহিক গণন ।\
 > শাখা-চন্দ্র-ন্যায়ে করি দিগ্দরশন ॥৩০॥
 
-> apāra aiśvarya kṛṣṇera—nāhika gaṇana
+> apāra aiśvarya kṛṣṇera—nāhika gaṇana\
 > śākhā-candra-nyāye kari dig-daraśana
 
 *apāra*—unlimited; *aiśvarya*—opulence; *kṛṣṇera*—of Lord Kṛṣṇa; *nāhika gaṇana*—there is no estimation; *śākhā-candra-nyāye*—according to the logic of seeing the moon through the branches of a tree; *kari*—I make; *dik-daraśana*—an indication only.

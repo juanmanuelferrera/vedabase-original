@@ -1,9 +1,9 @@
 ### CC Antya 6.124
 
-> ভক্ত-চিত্তে ভক্ত-গৃহে সদা অবস্থান ।
+> ভক্ত-চিত্তে ভক্ত-গৃহে সদা অবস্থান ।\
 > কভু গুপ্ত, কভু ব্যক্ত, স্বতন্ত্র ভগবান্ ॥১২৪॥
 
-> bhakta-citte bhakta-gṛhe sadā avasthāna
+> bhakta-citte bhakta-gṛhe sadā avasthāna\
 > kabhu gupta, kabhu vyakta, svatantra bhagavān
 
 *bhakta-citte*—en el corazón de un devoto; *bhakta-gṛhe*—en la casa de un devoto; *sadā avasthāna*—siempre reside; *kabhu gupta*—a veces oculto; *kabhu vyakta*—a veces manifiesto; *svatantra*—plenamente independiente; *bhagavān*—la Suprema Personalidad de Dios.

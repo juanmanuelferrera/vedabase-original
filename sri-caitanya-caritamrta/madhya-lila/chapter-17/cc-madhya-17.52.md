@@ -1,9 +1,9 @@
 ### CC Madhya 17.52
 
-> গৌড়, বঙ্গ, উৎকল, দক্ষিণ-দেশে গিয়া ।
+> গৌড়, বঙ্গ, উৎকল, দক্ষিণ-দেশে গিয়া ।\
 > লোকের নিস্তার কৈল আপনে ভ্রমিয়া ॥৫২॥
 
-> gauḍa, baṅga, utkala, dakṣiṇa-deśe giyā
+> gauḍa, baṅga, utkala, dakṣiṇa-deśe giyā\
 > lokera nistāra kaila āpane bhramiyā
 
 *gauḍa*—Bengal; *baṅga*—East Bengal; *utkala*—Orissa; *dakṣiṇa-deśe*—southern India; *giyā*—going; *lokera*—of all the people; *nistāra*—liberation; *kaila*—did; *āpane*—personally; *bhramiyā*—touring.

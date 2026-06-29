@@ -1,11 +1,11 @@
 ### SB 8.24.41
 
-> ततः समुद्र उद्वेलः सर्वतः प्लावयन्महीम
+> ततः समुद्र उद्वेलः सर्वतः प्लावयन्महीम\
 > वर्धमानो महामेघैर्वर्षद्भिः समदृश्यत ॥४१॥
 
-> tataḥ samudra udvelaḥ
-> sarvataḥ plāvayan mahīm
-> vardhamāno mahā-meghair
+> tataḥ samudra udvelaḥ\
+> sarvataḥ plāvayan mahīm\
+> vardhamāno mahā-meghair\
 > varṣadbhiḥ samadṛśyata
 
 *tataḥ*—a continuación; *samudraḥ*—el océano; *udvelaḥ*—desbordarse; *sarvataḥ*—por todas partes; *plāvayan*—inundar; *mahīm*—la Tierra; *vardhamānaḥ*—aumentar cada vez más; *mahā-meghaiḥ*—por nubes gigantescas; *varṣadbhiḥ*—derramando lluvia sin cesar; *samadṛśyata*—el rey Satyavrata lo vio.

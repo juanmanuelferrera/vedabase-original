@@ -1,13 +1,13 @@
 ### CC Adi 4.260
 
-> রূপে কংসহরস্য লুব্ধনয়নাং স্পর্শেঽতিহৃষ্যত্ত্বচং
-> বাণ্যামুৎকলিতশ্রুতিং পরিমলে সংহৃষ্টনাসাপুটাম্ ।
-> আরজ্যদ্রসনাং কিলাধরপুটে ন্যঞ্চন্মুখাম্ভোরুহাং
+> রূপে কংসহরস্য লুব্ধনয়নাং স্পর্শেঽতিহৃষ্যত্ত্বচং\
+> বাণ্যামুৎকলিতশ্রুতিং পরিমলে সংহৃষ্টনাসাপুটাম্ ।\
+> আরজ্যদ্রসনাং কিলাধরপুটে ন্যঞ্চন্মুখাম্ভোরুহাং\
 > দম্ভোদ্গীর্ণমহাধৃতিং বহিরপি প্রোদ্যদ্বিকারাকুলাম্ ॥২৬০॥
 
-> rūpe kaṁsa-harasya lubdha-nayanāṁ sparśe 'tihṛṣyat-tvacaṁ
-> vāṇyām utkalita-śrutiṁ parimale saṁhṛṣṭa-nāsā-puṭām
-> ārajyad-rasanāṁ kilādhara-puṭe nyañcan-mukhāmbho-ruhāṁ
+> rūpe kaṁsa-harasya lubdha-nayanāṁ sparśe 'tihṛṣyat-tvacaṁ\
+> vāṇyām utkalita-śrutiṁ parimale saṁhṛṣṭa-nāsā-puṭām\
+> ārajyad-rasanāṁ kilādhara-puṭe nyañcan-mukhāmbho-ruhāṁ\
 > dambhodgīrṇa-mahā-dhṛtiṁ bahir api prodyad-vikārākulām
 
 *rūpe*—en la belleza; *kaṁsa-harasya*—de Kṛṣṇa, el enemigo de Kaṁsa; *lubdha*—cautivados; *nayanām*—cuyos ojos; *sparśe*—en el contacto; *ati-hṛṣyat*—sumamente jubilosa; *tvacam*—cuya piel; *vāṇyām*—en la vibración de las palabras; *utkalita*—sumamente anhelante; *śrutim*—cuyo oído; *parimale*—en la fragancia; *saṁhṛṣṭa*—embargados de felicidad; *nāsā-puṭām*—cuyas fosas nasales; *ārajyat*—completamente atraída; *rasanām*—cuya lengua; *kila*—qué hablar de; *adhara-puṭe*—hacia los labios; *nyañcat*—que se inclina; *mukha*—cuyo rostro; *ambhaḥ-ruhām*—como una flor de loto; *dambha*—por orgullo; *udgīrṇa*—manifestando; *mahā-dhṛtim*—gran paciencia; *bahiḥ*—externamente; *api*—aunque; *prodyat*—manifestando; *vikāra*—transformaciones; *ākulām*—abrumada.

@@ -1,9 +1,9 @@
 ### CC Adi 10.70
 
-> জগদীশ পণ্ডিত, আর হিরণ্য মহাশয় ।
+> জগদীশ পণ্ডিত, আর হিরণ্য মহাশয় ।\
 > যারে কৃপা কৈল বাল্যে প্রভু দয়াময় ॥৭০॥
 
-> jagadīśa paṇḍita, āra hiraṇya mahāśaya
+> jagadīśa paṇḍita, āra hiraṇya mahāśaya\
 > yāre kṛpā kaila bālye prabhu dayāmaya
 
 *jagadīśa paṇḍita*—of the name Jagadīśa Paṇḍita; *āra*—and; *hiraṇya*—of the name Hiraṇya; *mahāśaya*—great personality; *yāre*—unto whom; *kṛpā*—mercy; *kaila*—showed; *bālye*—in childhood; *prabhu*—the Lord; *dayāmaya*—merciful.

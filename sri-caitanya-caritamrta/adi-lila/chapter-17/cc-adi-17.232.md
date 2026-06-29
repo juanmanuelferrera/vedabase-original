@@ -1,9 +1,9 @@
 ### CC Adi 17.232
 
-> ‘দেখিনু’ ‘দেখিনু’ বলি’ হইল পাগল ।
+> ‘দেখিনু’ ‘দেখিনু’ বলি’ হইল পাগল ।\
 > প্রেমে নৃত্য করে, হৈল বৈষ্ণব আগল ॥২৩২॥
 
-> 'dekhinu' 'dekhinu' bali' ha-ila pāgala
+> 'dekhinu' 'dekhinu' bali' ha-ila pāgala\
 > preme nṛtya kare, haila vaiṣṇava āgala
 
 *dekhinu*—I have seen; *dekhinu*—I have seen; *bali'*—saying; *ha-ila*—became; *pāgala*—mad; *preme*—in the ecstasy of love; *nṛtya*—dancing; *kare*—does; *haila*—became; *vaiṣṇava*—devotee; *āgala*—first class.

@@ -1,8 +1,8 @@
 ### CC Adi 1.75
 
-> anekatra prakaṭatā
-> rūpasyaikasya yaikadā
-> sarvathā tat-svarūpaiva
+> anekatra prakaṭatā\
+> rūpasyaikasya yaikadā\
+> sarvathā tat-svarūpaiva\
 > sa prakāśa itīryate
 
 *anekatra*—em muitos lugares; *prakaṭatā*—a manifestação; *rūpasya*—da forma; *ekasya*—uma; *yā*—que; *ekadā*—de uma só vez; *sarvathā*—sob todos os aspectos; *tat*—Sua; *sva-rūpa*—própria forma; *eva*—certamente; *saḥ*—essa; *prakāśaḥ*—forma manifestada; *iti*—assim; *īryate*—é chamada.

@@ -1,11 +1,11 @@
 ### CC Madhya 23.25
 
-> যো দুস্ত্যজান্ দারসুতান্ সুহৃদ্রাজ্যং হৃদিস্পৃশঃ ।
+> যো দুস্ত্যজান্ দারসুতান্ সুহৃদ্রাজ্যং হৃদিস্পৃশঃ ।\
 > জহৌ যুবৈব মলবদুত্তমঃশ্লোকলালসঃ ॥২৫॥
 
-> yo dustyajān dāra-sutān
-> suḥrd-rājyaṁ hṛdi spṛśaḥ
-> jahau yuvaiva malavad
+> yo dustyajān dāra-sutān\
+> suḥrd-rājyaṁ hṛdi spṛśaḥ\
+> jahau yuvaiva malavad\
 > uttamaḥśloka-lālasaḥ
 
 *yaḥ*—quien (Bharata Mahārāja); *dustyajān*—difíciles de abandonar; *dāra-sutān*—esposa e hijos; *suḥrt*—amigos; *rājyam*—reino; *hṛdi spṛśaḥ*—queridos en lo más profundo del corazón; *jahau*—abandonó; *yuvā*—joven; *eva*—en aquel entonces; *malavat*—como excremento; *uttamaḥ-śloka-lālasaḥ*—cautivado por las cualidades trascendentales, los pasatiempos y la asociación de la Suprema Personalidad de Dios.

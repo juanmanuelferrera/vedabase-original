@@ -1,11 +1,11 @@
 ### Bg 7.15
 
-> न मां दुष्कृतिनो मूढाः प्रपद्यन्ते नराधमाः ।
+> न मां दुष्कृतिनो मूढाः प्रपद्यन्ते नराधमाः ।\
 > माययापहृतज्ञाना आसुरं भावमाश्रिताः ॥१५॥
 
-> na māṁ duṣkṛtino mūḍhāḥ
-> prapadyante narādhamāḥ
-> māyayāpahṛta-jñānā
+> na māṁ duṣkṛtino mūḍhāḥ\
+> prapadyante narādhamāḥ\
+> māyayāpahṛta-jñānā\
 > āsuraṁ bhāvam āśritāḥ
 
 *na*—no; *mām*—a Mí; *duṣkṛtinaḥ*—malvados; *mūḍhāḥ*—necios; *prapadyante*—se entregan; *narādhamāḥ*—lo más bajo de la humanidad; *māyayā*—por la energía ilusoria; *apahṛta*—robado por la ilusión; *jñānāḥ*—conocimiento; *āsuram*—demoniaco; *bhāvam*—naturaleza; *āśritāḥ*—aceptando.

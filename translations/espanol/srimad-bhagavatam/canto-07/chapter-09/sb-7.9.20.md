@@ -1,13 +1,13 @@
 ### SB 7.9.20
 
-> यस्मिन्यतो यर्हि येन च यस्य यस्माद
-> यस्मै यथा यदुत यस्त्वपरः परो वा
-> भावः करोति विकरोति पृथक्स्वभावः
+> यस्मिन्यतो यर्हि येन च यस्य यस्माद\
+> यस्मै यथा यदुत यस्त्वपरः परो वा\
+> भावः करोति विकरोति पृथक्स्वभावः\
 > सञ्चोदितस्तदखिलं भवतः स्वरूपम ॥२०॥
 
-> yasmin yato yarhi yena ca yasya yasmād
-> yasmai yathā yad uta yas tv aparaḥ paro vā
-> bhāvaḥ karoti vikaroti pṛthak svabhāvaḥ
+> yasmin yato yarhi yena ca yasya yasmād\
+> yasmai yathā yad uta yas tv aparaḥ paro vā\
+> bhāvaḥ karoti vikaroti pṛthak svabhāvaḥ\
 > sañcoditas tad akhilaṁ bhavataḥ svarūpam
 
 *yasmin*—en toda condición de vida; *yataḥ*—por nada; *yarhi*—en ningún momento (pasado, presente o futuro); *yena*—por algo; *ca*—también; *yasya*—en relación con nadie; *yasmāt*—de todo representante causal; *yasmai*—a todo aquel que (sin hacer diferencias en relación con el lugar, la persona o el tiempo); *yathā*—de todas las maneras; *yat*—cualquiera que pueda ser; *uta*—ciertamente; *yaḥ*—todo el que; *tu*—pero; *aparaḥ*—el otro; *paraḥ*—el supremo; *vā*—o; *bhāvaḥ*—ser; *karoti*—hace; *vikaroti*—cambia; *pṛthak*—separado; *svabhāvaḥ*—naturaleza (bajo la influencia de diversas modalidades de la naturaleza material); *sañcoditaḥ*—influido; *tat*—eso; *akhilam*—todo; *bhavataḥ*—de Tu Señoría; *svarūpam*—que ha emanado de Tus diversas energías.

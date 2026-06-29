@@ -1,9 +1,9 @@
 ### CC Madhya 8.12
 
-> সেই বনে কতক্ষণ করি’ নৃত্য-গান ৷
+> সেই বনে কতক্ষণ করি’ নৃত্য-গান ৷\
 > গোদাবরী পার হঞা তাহাঁ কৈল স্নান ৷৷ ১২ ৷৷ ॥১২॥
 
-> sei vane kata-kṣaṇa kari' nṛtya-gāna
+> sei vane kata-kṣaṇa kari' nṛtya-gāna\
 > godāvarī pāra hañā tāhāṅ kaila snāna
 
 *sei vane*—en aquel bosque; *kata-kṣaṇa*—durante algún tiempo; *kari'*—ejecutando; *nṛtya-gāna*—danzas y cánticos; *godāvarī*—el río; *pāra hañā*—cruzando; *tāhāṅ*—allí; *kaila*—tomó; *snāna*—baño.

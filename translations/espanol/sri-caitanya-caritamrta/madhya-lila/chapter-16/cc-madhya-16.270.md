@@ -1,9 +1,9 @@
 ### CC Madhya 16.270
 
-> ‘দুর্লভ’ ‘দুর্গম’ সেই ‘নির্জন’ বৃন্দাবন ।
+> ‘দুর্লভ’ ‘দুর্গম’ সেই ‘নির্জন’ বৃন্দাবন ।\
 > একাকী যাইব, কিবা সঙ্গে একজন ॥২৭০॥
 
-> 'durlabha' 'durgama' sei 'nirjana' vṛndāvana
+> 'durlabha' 'durgama' sei 'nirjana' vṛndāvana\
 > ekākī yāiba, kibā saṅge eka-jana
 
 *durlabha*—muy raro; *durgama*—invencible; *sei*—ese; *nirjana*—solitario; *vṛndāvana*—la tierra de Vṛndāvana; *ekākī*—solo; *yāiba*—iré; *kibā*—o; *saṅge*—conmigo; *eka-jana*—solo una persona.

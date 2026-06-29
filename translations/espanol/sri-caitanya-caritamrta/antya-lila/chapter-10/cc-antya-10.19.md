@@ -1,9 +1,9 @@
 ### CC Antya 10.19
 
-> ‘মনুষ্য’-বুদ্ধি দময়ন্তী করে প্রভুর পায় ।
+> ‘মনুষ্য’-বুদ্ধি দময়ন্তী করে প্রভুর পায় ।\
 > গুরু-ভোজনে উদরে কভু ‘আম’ হঞা যায় ॥১৯॥
 
-> 'manuṣya'-buddhi damayantī kare prabhura pāya
+> 'manuṣya'-buddhi damayantī kare prabhura pāya\
 > guru-bhojane udare kabhu 'āma' hañā yāya
 
 *manuṣya-buddhi*—considerándolo un ser humano ordinario; *damayantī*—la hermana de Rāghava Paṇḍita; *kare*—hace; *prabhura pāya*—a los pies de loto de Śrī Caitanya Mahāprabhu; *guru-bhojane*—por comer en exceso; *udare*—en el abdomen; *kabhu*—a veces; *āma*—mucosidad; *hañā yāya*—se produce.

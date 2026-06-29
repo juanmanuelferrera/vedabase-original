@@ -1,11 +1,11 @@
 ### SB 5.12.8
 
-> यदा क्षितावेव चराचरस्य विदाम निष्ठां प्रभवं च नित्यम
+> यदा क्षितावेव चराचरस्य विदाम निष्ठां प्रभवं च नित्यम\
 > तन्नामतोऽन्यद्व्यवहारमूलं निरूप्यतां सत्क्रिययानुमेयम ॥८॥
 
-> yadā kṣitāv eva carācarasya
-> vidāma niṣṭhāṁ prabhavaṁ ca nityam
-> tan nāmato 'nyad vyavahāra-mūlaṁ
+> yadā kṣitāv eva carācarasya\
+> vidāma niṣṭhāṁ prabhavaṁ ca nityam\
+> tan nāmato 'nyad vyavahāra-mūlaṁ\
 > nirūpyatāṁ sat-kriyayānumeyam
 
 *yadā*—por lo tanto; *kṣitau*—en la Tierra; *eva*—ciertamente; *cara-acarasya*—de distintos cuerpos, unos móviles y otros inmóviles; *vidāma*—sabemos; *niṣṭhām*—aniquilación; *prabhavam*—aparición; *ca*—y; *nityam*—regularmente conforme a los principios de la naturaleza; *tat*—eso; *nāmataḥ*—que simplemente por el nombre; *anyat*—otra; *vyavahāra-mūlam*—causa de actividades materiales; *nirūpyatām*—que se distinga; *sat-kriyayā*—mediante el empleo efectivo; *anumeyam*—deducirse.

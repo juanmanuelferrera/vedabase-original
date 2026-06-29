@@ -1,9 +1,9 @@
 ### CC Madhya 8.278
 
-> রায় কহে, — প্ৰভু তুমি ছাড় ভারিভূরি ৷
+> রায় কহে, — প্ৰভু তুমি ছাড় ভারিভূরি ৷\
 > মোর আগে নিজরূপ না করিহ চুরি ৷৷ ২৭৮ ৷৷ ॥২৭৮॥
 
-> rāya kahe,--prabhu tumi chāḍa bhāri-bhūri
+> rāya kahe,--prabhu tumi chāḍa bhāri-bhūri\
 > mora āge nija-rūpa nā kariha curi
 
 *rāya kahe*—Rāmānanda Rāya respondió; *prabhu*—mi Señor; *tumi*—Tú; *chāḍa*—abandona; *bhāri-bhūri*—estas conversaciones solemnes; *mora*—de mí; *āge*—delante; *nija-rūpa*—Tu forma verdadera; *nā*—no; *kariha*—hagas; *curi*—robar.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.136
 
-> এইমত দশদিন ভোজন-কীর্তন ।
+> এইমত দশদিন ভোজন-কীর্তন ।\
 > একরূপে করি’ করে প্রভুর সেবন ॥১৩৬॥
 
-> ei-mata daśa-dina bhojana-kīrtana
+> ei-mata daśa-dina bhojana-kīrtana\
 > eka-rūpe kari' kare prabhura sevana
 
 *ei-mata*—in this way; *daśa-dina*—continuously for ten days; *bhojana-kīrtana*—eating and chanting; *eka-rūpe*—without change; *kari'*—doing; *kare*—does; *prabhura*—of the Lord; *sevana*—service.

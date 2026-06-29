@@ -1,25 +1,25 @@
 ### SB 9.24.21-23
 
-> तस्याहुकश्चाहुकी च कन्या चैवाहुकात्मजौ
-> देवकश्चोग्रसेनश्च चत्वारो देवकात्मजाः ॥२१॥
-> देववानुपदेवश्च सुदेवो देववर्धनः
-> तेषां स्वसारः सप्तासन्धृतदेवादयो नृप ॥२२॥
-> शान्तिदेवोपदेवा च श्रीदेवा देवरक्षिता
+> तस्याहुकश्चाहुकी च कन्या चैवाहुकात्मजौ\
+> देवकश्चोग्रसेनश्च चत्वारो देवकात्मजाः ॥२१॥\
+> देववानुपदेवश्च सुदेवो देववर्धनः\
+> तेषां स्वसारः सप्तासन्धृतदेवादयो नृप ॥२२॥\
+> शान्तिदेवोपदेवा च श्रीदेवा देवरक्षिता\
 > सहदेवा देवकी च वसुदेव उवाह ताः ॥२३॥
 
-> tasyāhukaś cāhukī ca
-> kanyā caivāhukātmajau
-> devakaś cograsenaś ca
+> tasyāhukaś cāhukī ca\
+> kanyā caivāhukātmajau\
+> devakaś cograsenaś ca\
 > catvāro devakātmajāḥ
 
-> devavān upadevaś ca
-> sudevo devavardhanaḥ
-> teṣāṁ svasāraḥ saptāsan
+> devavān upadevaś ca\
+> sudevo devavardhanaḥ\
+> teṣāṁ svasāraḥ saptāsan\
 > dhṛtadevādayo nṛpa
 
-> śāntidevopadevā ca
-> śrīdevā devarakṣitā
-> sahadevā devakī ca
+> śāntidevopadevā ca\
+> śrīdevā devarakṣitā\
+> sahadevā devakī ca\
 > vasudeva uvāha tāḥ
 
 *tasya*—de él (de Punarvasu); *āhukaḥ*—Āhuka; *ca*—y; *āhukī*—Āhukī; *ca*—también; *kanyā*—una hija; *ca*—también; *eva*—en verdad; *āhuka*—de Āhuka; *ātmajau*—dos hijos; *devakaḥ*—Devaka; *ca*—y; *ugrasenaḥ*—Ugrasena; *ca*—también; *catvāraḥ*—cuatro; *devaka-ātmajāḥ*—hijos de Devaka; *devavān*—Devavān; *upadevaḥ*—Upadeva; *ca*—y; *sudevaḥ*—Sudeva; *devavardhanaḥ*—Devavardhana; *teṣām*—de todos ellos; *svasāraḥ*—hermanas; *sapta*—siete; *āsan*—existieron; *dhṛtadevā-ādayaḥ*—comenzando con Dhṛtadevā; *nṛpa*—¡oh, rey (Mahārāja Parīkṣit)!; *śāntidevā*—Śāntidevā; *upadevā*—Upadevā; *ca*—también; *śrīdevā*—Śrīdevā; *devarakṣitā*—Devarakṣitā; *sahadevā*—Sahadevā; *devakī*—Devakī; *ca*—y; *vasudevaḥ*—Śrī Vasudeva, el padre de Kṛṣṇa; *uvāha*—se casó; *tāḥ*—con ellas.

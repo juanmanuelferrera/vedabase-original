@@ -1,13 +1,13 @@
 ### CC Adi 5.83
 
-> আদ্যোঽবতারঃ পুরুষঃ পরস্য
-> কালঃ স্বভাবঃ সদসন্মনশ্চ ।
-> দ্রব্যং বিকারো গুণ ইন্দ্রিয়াণি
+> আদ্যোঽবতারঃ পুরুষঃ পরস্য\
+> কালঃ স্বভাবঃ সদসন্মনশ্চ ।\
+> দ্রব্যং বিকারো গুণ ইন্দ্রিয়াণি\
 > বিরাট্ স্বরাট্ স্থাস্নু চরিষ্ণু ভূম্নঃ ॥৮৩॥
 
-> ādyo 'vatāraḥ puruṣaḥ parasya
-> kālaḥ svabhāvaḥ sad-asan manaś ca
-> dravyaṁ vikāro guṇa indriyāṇi
+> ādyo 'vatāraḥ puruṣaḥ parasya\
+> kālaḥ svabhāvaḥ sad-asan manaś ca\
+> dravyaṁ vikāro guṇa indriyāṇi\
 > virāṭ svarāṭ sthāsnu cariṣṇu bhūmnaḥ
 
 *ādyaḥ avatāraḥ*—original incarnation; *puruṣaḥ*—the Lord; *parasya*—of the Supreme; *kālaḥ*—time; *svabhāvaḥ*—nature; *sat-asat*—cause and effect; *manaḥ ca*—as well as the mind; *dravyam*—the five elements; *vikāraḥ*—transformation or the false ego; *guṇaḥ*—modes of nature; *indriyāṇi*—senses; *virāṭ*—the universal form; *svarāṭ*—complete independence; *sthāsnu*—immovable; *cariṣṇu*—movable; *bhūmnaḥ*—of the Supreme Personality of Godhead.

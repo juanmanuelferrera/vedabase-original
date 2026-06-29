@@ -1,11 +1,11 @@
 ### SB 8.6.32
 
-> ततो देवासुराः कृत्वा संविदं कृतसौहृदाः
+> ततो देवासुराः कृत्वा संविदं कृतसौहृदाः\
 > उद्यमं परमं चक्रुरमृतार्थे परन्तप ॥३२॥
 
-> tato devāsurāḥ kṛtvā
-> saṁvidaṁ kṛta-sauhṛdāḥ
-> udyamaṁ paramaṁ cakrur
+> tato devāsurāḥ kṛtvā\
+> saṁvidaṁ kṛta-sauhṛdāḥ\
+> udyamaṁ paramaṁ cakrur\
 > amṛtārthe parantapa
 
 *tataḥ*—a continuación; *deva-asurāḥ*—ambos, demonios y semidioses; *kṛtvā*—realizar; *saṁvidam*—indicar; *kṛta-sauhṛdāḥ*—un armisticio entre ellos; *udyamam*—empresa; *paramam*—suprema; *cakruḥ*—hicieron; *amṛta-arthe*—para obtener néctar; *parantapa*—¡oh, Mahārāja Parīkṣit, castigador de enemigos!.

@@ -1,9 +1,9 @@
 ### CC Antya 12.106
 
-> তাঁর ইচ্ছা, — প্রভু অল্প মস্তকে লাগায়  ।
+> তাঁর ইচ্ছা, — প্রভু অল্প মস্তকে লাগায়  ।\
 > পিত্ত-বায়ু-ব্যাধি-প্রকোপ শান্ত হঞা যায় ॥১০৬॥
 
-> tāṅra icchā,--prabhu alpa mastake lāgāya
+> tāṅra icchā,--prabhu alpa mastake lāgāya\
 > pitta-vāyu-vyādhi-prakopa śānta hañā yāya
 
 *tāṅra icchā*—su deseo; *prabhu*—Śrī Caitanya Mahāprabhu; *alpa*—muy poco; *mastake lāgāya*—se aplica en la cabeza; *pitta-vāyu-vyādhi*—de la presión sanguínea debida a la bilis y al aire; *prakopa*—gravedad; *śānta hañā yāya*—disminuirá.

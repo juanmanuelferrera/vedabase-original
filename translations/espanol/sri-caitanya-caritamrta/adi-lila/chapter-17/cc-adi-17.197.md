@@ -1,9 +1,9 @@
 ### CC Adi 17.197
 
-> তুমিত যবন হঞা কেনে অনুক্ষণ ।
+> তুমিত যবন হঞা কেনে অনুক্ষণ ।\
 > হিন্দুর দেবতার নাম লহ কি কারণ ॥১৯৭॥
 
-> tumita yavana hañā kene anukṣaṇa
+> tumita yavana hañā kene anukṣaṇa\
 > hindura devatāra nāma laha ki kāraṇa
 
 *tumita*—pero ustedes; *yavana*—carnívoros; *hañā*—siendo; *kene*—¿por qué?; *anukṣaṇa*—siempre; *hindura*—de los hindúes; *devatāra*—de Dios; *nāma*—el nombre; *laha*—toman; *ki*—cuál; *kāraṇa*—la razón.

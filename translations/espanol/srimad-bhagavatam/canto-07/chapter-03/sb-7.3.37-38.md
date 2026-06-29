@@ -1,18 +1,18 @@
 ### SB 7.3.37-38
 
-> व्यसुभिर्वासुमद्भिर्वा सुरासुरमहोरगैः
-> अप्रतिद्वन्द्वतां युद्धे ऐकपत्यं च देहिनाम ॥३७॥
-> सर्वेषां लोकपालानां महिमानं यथात्मनः
+> व्यसुभिर्वासुमद्भिर्वा सुरासुरमहोरगैः\
+> अप्रतिद्वन्द्वतां युद्धे ऐकपत्यं च देहिनाम ॥३७॥\
+> सर्वेषां लोकपालानां महिमानं यथात्मनः\
 > तपोयोगप्रभावाणां यन्न रिष्यति कर्हिचित ॥३८॥
 
-> vyasubhir vāsumadbhir vā
-> surāsura-mahoragaiḥ
-> apratidvandvatāṁ yuddhe
+> vyasubhir vāsumadbhir vā\
+> surāsura-mahoragaiḥ\
+> apratidvandvatāṁ yuddhe\
 > aika-patyaṁ ca dehinām
 
-> sarveṣāṁ loka-pālānāṁ
-> mahimānaṁ yathātmanaḥ
-> tapo-yoga-prabhāvāṇāṁ
+> sarveṣāṁ loka-pālānāṁ\
+> mahimānaṁ yathātmanaḥ\
+> tapo-yoga-prabhāvāṇāṁ\
 > yan na riṣyati karhicit
 
 *vyasubhiḥ*—por cosas que no tienen vida; *vā*—o; *asumadbhiḥ*—por entidades que tienen vida; *vā*—o; *sura*—por los semidioses; *asura*—los demonios; *mahā-uragaiḥ*—por las grandes serpientes que viven en los planetas inferiores; *apratidvandvatām*—sin rival; *yuddhe*—en la batalla; *aika-patyam*—supremacía; *ca*—y; *dehinām*—sobre aquellos que tienen cuerpos materiales; *sarveṣām*—de todas; *loka-pālānām*—las deidades regentes de todos los planetas; *mahimānam*—la gloria; *yathā*—tal como; *ātmanaḥ*—de ti mismo; *tapaḥ-yoga-prabhāvāṇām*—de aquellos que obtienen su poder mediante austeridades y la práctica del *yoga* místico; *yat*—que; *na*—nunca; *riṣyati*—se destruye; *karhicit*—en ningún momento.

@@ -1,9 +1,9 @@
 ### CC Madhya 17.15
 
-> স্বরূপ কহে, — এই বলভদ্র-ভট্টাচার্য ।
+> স্বরূপ কহে, — এই বলভদ্র-ভট্টাচার্য ।\
 > তোমাতে সুস্নিগ্ধ বড়, পণ্ডিত, সাধু, আর্য ॥১৫॥
 
-> svarūpa kahe,—ei balabhadra-bhaṭṭācārya
+> svarūpa kahe,—ei balabhadra-bhaṭṭācārya\
 > tomāte susnigdha baḍa, paṇḍita, sādhu, ārya
 
 *svarūpa kahe*—Svarūpa Dāmodara Gosvāmī said; *ei*—this; *balabhadra-bhaṭṭācārya*—Balabhadra Bhaṭṭācārya; *tomāte*—unto You; *su-snigdha*—affectionate; *baḍa*—very; *paṇḍita*—educated; *sādhu*—honest; *ārya*—advanced in spiritual consciousness.

@@ -1,11 +1,11 @@
 ### SB 3.28.19
 
-> स्थितं व्रजन्तमासीनं शयानं वा गुहाशयम् ।
+> स्थितं व्रजन्तमासीनं शयानं वा गुहाशयम् ।\
 > प्रेक्षणीयेहितं ध्यायेच्छुद्धभावेन चेतसा ॥१९॥
 
-> sthitaṁ vrajantam āsīnaṁ
-> śayānaṁ vā guhāśayam
-> prekṣaṇīyehitaṁ dhyāyec
+> sthitaṁ vrajantam āsīnaṁ\
+> śayānaṁ vā guhāśayam\
+> prekṣaṇīyehitaṁ dhyāyec\
 > chuddha-bhāvena cetasā
 
 *sthitam*—de pie; *vrajantam*—moviéndose; *āsīnam*—sentado; *śayānam*—acostado; *vā*—o; *guhā-āśayam*—el Señor que mora en el corazón; *prekṣaṇīya*—hermosos; *īhitam*—pasatiempos; *dhyāyet*—debe visualizar; *śuddha-bhāvena*—pura; *cetasā*—con la mente.

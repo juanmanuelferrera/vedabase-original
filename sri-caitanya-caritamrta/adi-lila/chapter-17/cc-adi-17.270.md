@@ -1,9 +1,9 @@
 ### CC Adi 17.270
 
-> তুমি ত’ ঈশ্বর বট, — সাক্ষাৎ নারায়ণ ।
+> তুমি ত’ ঈশ্বর বট, — সাক্ষাৎ নারায়ণ ।\
 > কৃপা করি’ কর মোর সংসার মোচন ॥২৭০॥
 
-> tumi ta' īśvara baṭa,—sākṣāt nārāyaṇa
+> tumi ta' īśvara baṭa,—sākṣāt nārāyaṇa\
 > kṛpā kari' kara mora saṁsāra mocana
 
 *tumi*—you; *ta'*—certainly; *īśvara*—the Lord; *baṭa*—are; *sākṣāt*—directly; *nārāyaṇa*—the Supreme Lord, Nārāyaṇa; *kṛpā kari'*—showing mercy; *kara*—please do; *mora*—My; *saṁsāra*—material life; *mocana*—deliverance.

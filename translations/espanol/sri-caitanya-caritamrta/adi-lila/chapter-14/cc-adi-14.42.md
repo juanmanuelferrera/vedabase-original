@@ -1,9 +1,9 @@
 ### CC Adi 14.42
 
-> “কেনে চুরি কর, কেনে মারহ শিশুরে ।
+> “কেনে চুরি কর, কেনে মারহ শিশুরে ।\
 > কেনে পর-ঘরে যাহ, কিবা নাহি ঘরে ।।” ॥ ৪২ ॥
 
-> "kene curi kara, kene māraha śiśure
+> "kene curi kara, kene māraha śiśure\
 > kene para-ghare yāha, kibā nāhi ghare"
 
 *kene curi kara*—¿por qué robas?; *kene māraha śiśure*—¿por qué pegas a otros niños?; *kene*—por qué; *para-ghare*—a casas ajenas; *yāha*—vas; *kibā*—qué; *nāhi*—no hay; *ghare*—en Tu propia casa.

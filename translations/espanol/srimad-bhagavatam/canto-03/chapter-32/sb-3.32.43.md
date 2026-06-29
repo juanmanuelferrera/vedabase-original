@@ -1,11 +1,11 @@
 ### SB 3.32.43
 
-> य इदं शृणुयादम्ब श्रद्धया पुरुषः सकृत् ।
+> य इदं शृणुयादम्ब श्रद्धया पुरुषः सकृत् ।\
 > यो वाभिधत्ते मच्चित्तः स ह्येति पदवीं च मे ॥४३॥
 
-> ya idaṁ śṛṇuyād amba
-> śraddhayā puruṣaḥ sakṛt
-> yo vābhidhatte mac-cittaḥ
+> ya idaṁ śṛṇuyād amba\
+> śraddhayā puruṣaḥ sakṛt\
+> yo vābhidhatte mac-cittaḥ\
 > sa hy eti padavīṁ ca me
 
 *yaḥ*—aquel que; *idam*—este; *śṛṇuyāt*—escuche; *amba*—¡oh, madre!; *śraddhayā*—con fe; *puruṣaḥ*—una persona; *sakṛt*—una vez; *yaḥ*—aquel que; *vā*—o; *abhidhatte*—repita; *mat-cittaḥ*—con la mente fija en Mí; *saḥ*—él; *hi*—ciertamente; *eti*—alcanza; *padavīm*—morada; *ca*—y; *me*—a Mí.

@@ -1,11 +1,11 @@
 ### SB 1.13.2
 
-> यावतः कृतवान्प्रश्नान्क्षत्ता कौषारवाग्रतः ।
+> यावतः कृतवान्प्रश्नान्क्षत्ता कौषारवाग्रतः ।\
 > जातैकभक्तिर्गोविन्दे तेभ्यश्चोपरराम ह ॥२॥
 
-> yāvataḥ kṛtavān praśnān
-> kṣattā kauṣāravāgrataḥ
-> jātaika-bhaktir govinde
+> yāvataḥ kṛtavān praśnān\
+> kṣattā kauṣāravāgrataḥ\
+> jātaika-bhaktir govinde\
 > tebhyaś copararāma ha
 
 *yāvataḥ*—all that; *kṛtavān*—did he put; *praśnān*—questions; *kṣattā*—a name of Vidura; *kauṣārava*—a name of Maitreya; *agrataḥ*—in the presence of; *jāta*—having grown up; *eka*—one; *bhaktiḥ*—transcendental loving service; *govinde*—unto Lord Kṛṣṇa; *tebhyaḥ*—regarding further questions; *ca*—and; *upararāma*—retired from; *ha*—in the past.

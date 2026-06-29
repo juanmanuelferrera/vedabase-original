@@ -1,9 +1,9 @@
 ### CC Madhya 6.51
 
-> গোপীনাথাচার্য কহে, — নবদ্বীপে ঘর ।
+> গোপীনাথাচার্য কহে, — নবদ্বীপে ঘর ।\
 > ‘জগন্নাথ’ নাম, পদবী — ‘মিশ্র পুরন্দর’ ॥৫১॥
 
-> gopīnāthācārya kahe,--navadvīpe ghara
+> gopīnāthācārya kahe,--navadvīpe ghara\
 > 'jagannātha'--nāma, padavī--'miśra purandara'
 
 *gopīnātha-ācārya kahe*—Gopīnātha Ācārya respondió; *navadvīpe*—en Navadvīpa; *ghara*—residencia; *jagannātha*—de nombre Jagannātha; *nāma*—llamado; *padavī*—el apellido; *miśra purandara*—Miśra Purandara.

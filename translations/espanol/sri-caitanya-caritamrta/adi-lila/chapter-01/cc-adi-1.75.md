@@ -1,11 +1,11 @@
 ### CC Adi 1.75
 
-> অনেকত্র প্রকটতা রূপস্যৈকস্য যৈকদা ।
+> অনেকত্র প্রকটতা রূপস্যৈকস্য যৈকদা ।\
 > সর্বথা তত্স্বরূপৈব স প্রকাশ ইতীর্যতে ॥৭৫॥
 
-> anekatra prakaṭatā
-> rūpasyaikasya yaikadā
-> sarvathā tat-svarūpaiva
+> anekatra prakaṭatā\
+> rūpasyaikasya yaikadā\
+> sarvathā tat-svarūpaiva\
 > sa prakāśa itīryate
 
 *anekatra*—en muchos lugares; *prakaṭatā*—la manifestación; *rūpasya*—de la forma; *ekasya*—una; *yā*—la cual; *ekadā*—en un momento; *sarvathā*—en todos los aspectos; *tat*—Su; *sva-rūpa*—propia forma; *eva*—ciertamente; *saḥ*—esa; *prakāśaḥ*—forma manifestada; *iti*—así; *īryate*—se denomina.

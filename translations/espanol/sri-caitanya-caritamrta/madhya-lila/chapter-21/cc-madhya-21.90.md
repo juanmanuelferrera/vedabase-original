@@ -1,9 +1,9 @@
 ### CC Madhya 21.90
 
-> ‘ত্র্যধীশ্বর’-শব্দের অর্থ ‘গূঢ়’ আর হয় ।
+> ‘ত্র্যধীশ্বর’-শব্দের অর্থ ‘গূঢ়’ আর হয় ।\
 > ‘ত্রি’-শব্দে কৃষ্ণের তিন লোক কয় ॥৯০॥
 
-> 'tryadhīśvara'-śabdera artha 'gūḍha' āra haya
+> 'tryadhīśvara'-śabdera artha 'gūḍha' āra haya\
 > 'tri'-śabde kṛṣṇera tina loka kaya
 
 *tri-adhīśvara*—tryadhīśvara; *śabdera*—de la palabra; *artha*—un significado; *gūḍha*—confidencial; *āra*—otro; *haya*—hay; *tri-śabde*—por la palabra «tres»; *kṛṣṇera*—de Kṛṣṇa; *tina loka kaya*—los tres lugares o propiedades del Señor Kṛṣṇa.

@@ -1,11 +1,11 @@
 ### SB 6.18.54
 
-> सांवत्सरं पुंसवनं व्रतमेतदविप्लुतम
+> सांवत्सरं पुंसवनं व्रतमेतदविप्लुतम\
 > धारयिष्यसि चेत्तुभ्यं शक्रहा भविता सुतः ॥५४॥
 
-> sāṁvatsaraṁ puṁsavanaṁ
-> vratam etad aviplutam
-> dhārayiṣyasi cet tubhyaṁ
+> sāṁvatsaraṁ puṁsavanaṁ\
+> vratam etad aviplutam\
+> dhārayiṣyasi cet tubhyaṁ\
 > śakra-hā bhavitā sutaḥ
 
 *sāṁvatsaram*—for one year; *puṁsavanam*—called *puṁsavana*; *vratam*—vow; *etat*—this; *aviplutam*—without violation; *dhārayiṣyasi*—you will perform; *cet*—if; *tubhyam*—for you; *śakra-hā*—the killer of Indra; *bhavitā*—will be; *sutaḥ*—a son.

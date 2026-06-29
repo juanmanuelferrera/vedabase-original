@@ -1,18 +1,18 @@
 ### SB 7.2.25-26
 
-> एष आत्मविपर्यासो ह्यलिङ्गे लिङ्गभावना
-> एष प्रियाप्रियैर्योगो वियोगः कर्मसंसृतिः ॥२५॥
-> सम्भवश्च विनाशश्च शोकश्च विविधः स्मृतः
+> एष आत्मविपर्यासो ह्यलिङ्गे लिङ्गभावना\
+> एष प्रियाप्रियैर्योगो वियोगः कर्मसंसृतिः ॥२५॥\
+> सम्भवश्च विनाशश्च शोकश्च विविधः स्मृतः\
 > अविवेकश्च चिन्ता च विवेकास्मृतिरेव च ॥२६॥
 
-> eṣa ātma-viparyāso
-> hy aliṅge liṅga-bhāvanā
-> eṣa priyāpriyair yogo
+> eṣa ātma-viparyāso\
+> hy aliṅge liṅga-bhāvanā\
+> eṣa priyāpriyair yogo\
 > viyogaḥ karma-saṁsṛtiḥ
 
-> sambhavaś ca vināśaś ca
-> śokaś ca vividhaḥ smṛtaḥ
-> avivekaś ca cintā ca
+> sambhavaś ca vināśaś ca\
+> śokaś ca vividhaḥ smṛtaḥ\
+> avivekaś ca cintā ca\
 > vivekāsmṛtir eva ca
 
 *eṣaḥ*—esta; *ātma-viparyāsaḥ*—confusión de la entidad viviente; *hi*—en verdad; *aliṅge*—en la que no posee un cuerpo material; *liṅga-bhāvanā*—identificar el cuerpo material con el ser; *eṣaḥ*—este; *priya*—con aquellos que son muy queridos; *apriyaiḥ*—y con los que no son queridos (enemigos, los que no pertenecen a la familia, etc.); *yogaḥ*—relación; *viyogaḥ*—separación; *karma*—los frutos de la acción; *saṁsṛtiḥ*—la condición material de la vida; *sambhavaḥ*—aceptar el nacimiento; *ca*—y; *vināśaḥ*—aceptar la muerte; *ca*—y; *śokaḥ*—lamentación; *ca*—y; *vividhaḥ*—diversidades; *smṛtaḥ*—mencionadas en las Escrituras; *avivekaḥ*—falta de discriminación; *ca*—también; *cintā*—ansiedad; *ca*—y; *viveka*—de discriminación adecuada; *asmṛtiḥ*—olvido; *eva*—en verdad; *ca*—también.

@@ -1,13 +1,13 @@
 ### CC Madhya 24.125
 
-> অহো মহাত্মন্ বহুদোষদুষ্টোঽ-
-> প্যেকেন ভাত্যেষ ভবো গুণেন ।
-> সৎসঙ্গমাখ্যেন সুখাবহেন
+> অহো মহাত্মন্ বহুদোষদুষ্টোঽ-\
+> প্যেকেন ভাত্যেষ ভবো গুণেন ।\
+> সৎসঙ্গমাখ্যেন সুখাবহেন\
 > কৃতাদ্য নো যেন কৃশা মুমুক্ষা ॥১২৫॥
 
-> aho mahātman bahu-doṣa-duṣṭo
-> 'py ekena bhāty eṣa bhavo guṇena
-> sat-saṅgamākhyena sukhāvahena
+> aho mahātman bahu-doṣa-duṣṭo\
+> 'py ekena bhāty eṣa bhavo guṇena\
+> sat-saṅgamākhyena sukhāvahena\
 > kṛtādya no yena kṛśā mumukṣā
 
 *aho mahātman*—O great devotee; *bahu-doṣa-duṣṭaḥ*—infected with varieties of material disease or attachment; *api*—although; *ekena*—with one; *bhāti*—shines; *eṣaḥ*—this; *bhavaḥ*—birth in this material world; *guṇena*—with a good quality; *sat-saṅgama-ākhyena*—known as association with devotees; *sukhā-āvahena*—which brings about happiness; *kṛtā*—made; *adya*—now; *naḥ*—our; *yena*—by which; *kṛśā*—insignificant; *mumukṣā*—the desire for liberation.

@@ -1,11 +1,11 @@
 ### SB 4.14.3
 
-> श्रुत्वा नृपासनगतं वेनमत्युग्रशासनम् ।
+> श्रुत्वा नृपासनगतं वेनमत्युग्रशासनम् ।\
 > निलिल्युर्दस्यवः सद्यः सर्पत्रस्ता इवाखवः ॥३॥
 
-> śrutvā nṛpāsana-gataṁ
-> venam atyugra-śāsanam
-> nililyur dasyavaḥ sadyaḥ
+> śrutvā nṛpāsana-gataṁ\
+> venam atyugra-śāsanam\
+> nililyur dasyavaḥ sadyaḥ\
 > sarpa-trastā ivākhavaḥ
 
 *śrutvā*—tras escuchar; *nṛpa*—del rey; *āsana-gatam*—elevado al trono; *venam*—Vena; *ati*—muy; *ugra*—severo; *śāsanam*—castigador; *nililyuḥ*—se ocultaron; *dasyavaḥ*—todos los ladrones; *sadyaḥ*—inmediatamente; *sarpa*—de una serpiente; *trastāḥ*—temerosas; *iva*—como; *ākhavaḥ*—ratas.

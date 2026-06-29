@@ -1,13 +1,13 @@
 ### CC Adi 6.23
 
-> নারায়ণস্ত্বং ন হি সর্বদেহিনা-
-> মাত্মাস্যধীশাখিল-লোকসাক্ষী ।
-> নারায়ণোঽঙ্গং নর-ভূ-জলায়না-
+> নারায়ণস্ত্বং ন হি সর্বদেহিনা-\
+> মাত্মাস্যধীশাখিল-লোকসাক্ষী ।\
+> নারায়ণোঽঙ্গং নর-ভূ-জলায়না-\
 > ত্তচ্চাপি সত্যং ন তবৈব মায়া ॥২৩॥
 
-> nārāyaṇas tvaṁ na hi sarva-dehinām
-> ātmāsy adhīśākhila-loka-sākṣī
-> nārāyaṇo 'ṅgaṁ nara-bhū-jalāyanāt
+> nārāyaṇas tvaṁ na hi sarva-dehinām\
+> ātmāsy adhīśākhila-loka-sākṣī\
+> nārāyaṇo 'ṅgaṁ nara-bhū-jalāyanāt\
 > tac cāpi satyaṁ na tavaiva māyā
 
 *nārāyaṇaḥ*—el Señor Nārāyaṇa; *tvam*—Tú; *na*—no; *hi*—ciertamente; *sarva*—de todos; *dehinām*—los seres encarnados; *ātmā*—la Superalma; *asi*—Tú eres; *adhīśa*—¡oh, Señor!; *akhila-loka*—de todos los mundos; *sākṣī*—el testigo; *nārāyaṇaḥ*—conocido como Nārāyaṇa; *aṅgam*—porción plenaria; *nara*—de Nara; *bhū*—nacida; *jala*—en el agua; *ayanāt*—debido al lugar de refugio; *tat*—eso; *ca*—y; *api*—ciertamente; *satyam*—la verdad más elevada; *na*—no; *tava*—Tu; *eva*—en absoluto; *māyā*—la energía ilusoria.

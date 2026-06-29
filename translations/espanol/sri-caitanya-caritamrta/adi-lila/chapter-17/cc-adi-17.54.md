@@ -1,9 +1,9 @@
 ### CC Adi 17.54
 
-> এত বলি’ গেলা প্রভু করিতে গঙ্গাস্নান ।
+> এত বলি’ গেলা প্রভু করিতে গঙ্গাস্নান ।\
 > সেই পাপী দুঃখ ভোগে, না যায় পরাণ ॥৫৪॥
 
-> eta bali' gelā prabhu karite gaṅgā-snāna
+> eta bali' gelā prabhu karite gaṅgā-snāna\
 > sei pāpī duḥkha bhoge, nā yāya parāṇa
 
 *eta bali'*—diciendo esto; *gelā*—se fue; *prabhu*—el Señor; *karite*—para tomar; *gaṅgā-snāna*—un baño en el Ganges; *sei*—aquel; *pāpī*—hombre pecaminoso; *duḥkha*—dolores; *bhoge*—sufre; *nā*—no; *yāya*—se va; *parāṇa*—la vida.

@@ -1,11 +1,11 @@
 ### SB 3.15.6
 
-> ये त्वानन्येन भावेन भावयन्त्यात्मभावनम् ।
+> ये त्वानन्येन भावेन भावयन्त्यात्मभावनम् ।\
 > आत्मनि प्रोतभुवनं परं सदसदात्मकम् ॥६॥
 
-> ye tvānanyena bhāvena
-> bhāvayanty ātma-bhāvanam
-> ātmani prota-bhuvanaṁ
+> ye tvānanyena bhāvena\
+> bhāvayanty ātma-bhāvanam\
+> ātmani prota-bhuvanaṁ\
 > paraṁ sad-asad-ātmakam
 
 *ye*—aquellos que; *tvā*—en ti; *ananyena*—sin desviarse; *bhāvena*—con devoción; *bhāvayanti*—meditan; *ātma-bhāvanam*—que genera a todas las entidades vivientes; *ātmani*—dentro de ti; *prota*—unidos; *bhuvanam*—todos los planetas; *param*—el supremo; *sat*—efecto; *asat*—causa; *ātmakam*—generador.

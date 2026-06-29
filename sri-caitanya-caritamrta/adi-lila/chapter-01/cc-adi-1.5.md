@@ -1,13 +1,13 @@
 ### CC Adi 1.5
 
-> রাধা কৃষ্ণপ্রণয়বিকৃতির্হ্লাদিনীশক্তিরস্মা-
-> দেকাত্মানাবপি ভুবি পুরা দেহভেদং গতৌ তৌ ।
-> চৈতন্যাখ্যং প্রকটমধুনা তদ্দ্বয়ং চৈক্যমাপ্তং
+> রাধা কৃষ্ণপ্রণয়বিকৃতির্হ্লাদিনীশক্তিরস্মা-\
+> দেকাত্মানাবপি ভুবি পুরা দেহভেদং গতৌ তৌ ।\
+> চৈতন্যাখ্যং প্রকটমধুনা তদ্দ্বয়ং চৈক্যমাপ্তং\
 > রাধাভাবদ্যুতিসুবলিতং নৌমি কৃষ্ণস্বরূপম্ ॥৫॥
 
-> rādhā kṛṣṇa-praṇaya-vikṛtir hlādinī śaktir asmād
-> ekātmānāv api bhuvi purā deha-bhedaṁ gatau tau
-> caitanyākhyaṁ prakaṭam adhunā tad-dvayaṁ caikyam āptaṁ
+> rādhā kṛṣṇa-praṇaya-vikṛtir hlādinī śaktir asmād\
+> ekātmānāv api bhuvi purā deha-bhedaṁ gatau tau\
+> caitanyākhyaṁ prakaṭam adhunā tad-dvayaṁ caikyam āptaṁ\
 > rādhā-bhāva-dyuti-suvalitaṁ naumi kṛṣṇa-svarūpam
 
 *rādhā*—Śrīmatī Rādhārāṇī; *kṛṣṇa*—of Lord Kṛṣṇa; *praṇaya*—of love; *vikṛtiḥ*—the transformation; *hlādinī śaktiḥ*—pleasure potency; *asmāt*—from this; *eka-ātmānau*—both the same in identity; *api*—although; *bhuvi*—on earth; *purā*—from beginningless time; *deha-bhedam*—separate forms; *gatau*—obtained; *tau*—those two; *caitanya-ākhyam*—known as Śrī Caitanya; *prakaṭam*—manifest; *adhunā*—now; *tat-dvayam*—the two of Them; *ca*—and; *aikyam*—unity; *āptam*—obtained; *rādhā*—of Śrīmatī Rādhārāṇī; *bhāva*—mood; *dyuti*—the luster; *su-valitam*—who is adorned with; *naumi*—I offer my obeisances; *kṛṣṇa-svarūpam*—to Him who is identical with Śrī Kṛṣṇa.

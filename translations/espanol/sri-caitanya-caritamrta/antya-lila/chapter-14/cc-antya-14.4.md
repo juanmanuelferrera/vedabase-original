@@ -1,9 +1,9 @@
 ### CC Antya 14.4
 
-> জয় স্বরূপ, শ্রীবাসাদি প্রভুভক্তগণ ।
+> জয় স্বরূপ, শ্রীবাসাদি প্রভুভক্তগণ ।\
 > শক্তি দেহ’, — করি যেন চৈতন্যবর্ণন ॥৪॥
 
-> jaya svarūpa, śrīvāsādi prabhu-bhakta-gaṇa
+> jaya svarūpa, śrīvāsādi prabhu-bhakta-gaṇa\
 > śakti deha',--kari yena caitanya-varṇana
 
 *jaya*—todas las glorias; *svarūpa*—a Svarūpa Dāmodara; *śrīvāsa-ādi*—encabezados por Śrīvāsa Ṭhākura; *prabhu-bhakta-gaṇa*—a los devotos del Señor; *śakti deha'*—por favor concédanme fuerza; *kari*—pueda hacer; *yena*—para que; *caitanya-varṇana*—la descripción del Señor Caitanya Mahāprabhu.

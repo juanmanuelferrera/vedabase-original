@@ -1,11 +1,11 @@
 ### SB 3.29.18
 
-> आध्यात्मिकानुश्रवणान्नामसङ्कीर्तनाच्च मे ।
+> आध्यात्मिकानुश्रवणान्नामसङ्कीर्तनाच्च मे ।\
 > आर्जवेनार्यसङ्गेन निरहङ्क्रियया तथा ॥१८॥
 
-> ādhyātmikānuśravaṇān
-> nāma-saṅkīrtanāc ca me
-> ārjavenārya-saṅgena
+> ādhyātmikānuśravaṇān\
+> nāma-saṅkīrtanāc ca me\
+> ārjavenārya-saṅgena\
 > nirahaṅkriyayā tathā
 
 *ādhyātmika*—spiritual matters; *anuśravaṇāt*—from hearing; *nāma-saṅkīrtanāt*—from chanting the holy name; *ca*—and; *me*—My; *ārjavena*—with straightforward behavior; *ārya-saṅgena*—with association of saintly persons; *nirahaṅkriyayā*—without false ego; *tathā*—thus.

@@ -1,11 +1,11 @@
 ### SB 5.18.38
 
-> करोति विश्वस्थितिसंयमोदयं यस्येप्सितं नेप्सितमीक्षितुर्गुणैः
+> करोति विश्वस्थितिसंयमोदयं यस्येप्सितं नेप्सितमीक्षितुर्गुणैः\
 > माया यथायो भ्रमते तदाश्रयं ग्राव्णो नमस्ते गुणकर्मसाक्षिणे ॥३८॥
 
-> karoti viśva-sthiti-saṁyamodayaṁ
-> yasyepsitaṁ nepsitam īkṣitur guṇaiḥ
-> māyā yathāyo bhramate tad-āśrayaṁ
+> karoti viśva-sthiti-saṁyamodayaṁ\
+> yasyepsitaṁ nepsitam īkṣitur guṇaiḥ\
+> māyā yathāyo bhramate tad-āśrayaṁ\
 > grāvṇo namas te guṇa-karma-sākṣiṇe
 
 *karoti*—performing; *viśva*—of the universe; *sthiti*—the maintenance; *saṁyama*—winding up; *udayam*—creation; *yasya*—of whom; *īpsitam*—desired; *na*—not; *īpsitam*—desired; *īkṣituḥ*—of the one glancing over; *guṇaiḥ*—with the modes of material nature; *māyā*—the material energy; *yathā*—as much as; *ayaḥ*—iron; *bhramate*—moves; *tat-āśrayam*—placed near that; *grāvṇaḥ*—a magnetic stone; *namaḥ*—my respectful obeisances; *te*—unto You; *guṇa-karma-sākṣiṇe*—the witness of the actions and reactions of material nature.

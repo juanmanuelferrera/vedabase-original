@@ -1,9 +1,9 @@
 ### CC Antya 13.124
 
-> সেই মালা, ছুটা পান প্রভু তাঁরে দিলা ।
+> সেই মালা, ছুটা পান প্রভু তাঁরে দিলা ।\
 > ‘ইষ্টদেব’ করি’ মালা ধরিয়া রাখিলা ॥১২৪॥
 
-> sei mālā, chuṭā pāna prabhu tāṅre dilā
+> sei mālā, chuṭā pāna prabhu tāṅre dilā\
 > 'iṣṭa-deva' kari' mālā dhariyā rākhilā
 
 *sei mālā*—esa guirnalda; *chuṭā pāna*—el betel; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre dilā*—se lo entregó; *iṣṭa-deva*—su Deidad adorable; *kari'*—aceptando como; *mālā*—esa guirnalda; *dhariyā rākhilā*—la conservó.

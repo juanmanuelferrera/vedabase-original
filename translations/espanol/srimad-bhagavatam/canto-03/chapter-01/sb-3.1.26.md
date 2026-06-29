@@ -1,11 +1,11 @@
 ### SB 3.1.26
 
-> कच्चित्पुराणौ पुरुषौ स्वनाभ्य पाद्मानुवृत्त्येह किलावतीर्णौ ।
+> कच्चित्पुराणौ पुरुषौ स्वनाभ्य पाद्मानुवृत्त्येह किलावतीर्णौ ।\
 > आसात उर्व्याः कुशलं विधाय कृतक्षणौ कुशलं शूरगेहे ॥२६॥
 
-> kaccit purāṇau puruṣau svanābhya-
-> pādmānuvṛttyeha kilāvatīrṇau
-> āsāta urvyāḥ kuśalaṁ vidhāya
+> kaccit purāṇau puruṣau svanābhya-\
+> pādmānuvṛttyeha kilāvatīrṇau\
+> āsāta urvyāḥ kuśalaṁ vidhāya\
 > kṛta-kṣaṇau kuśalaṁ śūra-gehe
 
 *kaccit*—si; *purāṇau*—las originales; *puruṣau*—Personalidades de Dios (Kṛṣṇa y Balarāma); *svanābhya*—Brahmā; *pādma-anuvṛttyā*—por el pedido de aquel que nace del loto; *iha*—aquí; *kila*—ciertamente; *avatīrṇau*—encarnadas; *āsāte*—están; *urvyāḥ*—en el mundo; *kuśalam*—bienestar; *vidhāya*—para hacer eso; *kṛta-kṣaṇau*—los que elevan la prosperidad de todos; *kuśalam*—todos bien; *śūra-gehe*—en la casa de Śūrasena.

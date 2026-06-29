@@ -1,9 +1,9 @@
 ### CC Madhya 16.239
 
-> অন্তরে নিষ্ঠা কর, বাহ্যে লোকব্যবহার ।
+> অন্তরে নিষ্ঠা কর, বাহ্যে লোকব্যবহার ।\
 > অচিরাৎ কৃষ্ণ তোমায় করিবে উদ্ধার ॥২৩৯॥
 
-> antare niṣṭhā kara, bāhye loka-vyavahāra
+> antare niṣṭhā kara, bāhye loka-vyavahāra\
 > acirāt kṛṣṇa tomāya karibe uddhāra
 
 *antare*—dentro del corazón; *niṣṭhā kara*—mantén una fe firme; *bāhye*—externamente; *loka-vyavahāra*—comportamiento como el de los hombres comunes; *acirāt*—muy pronto; *kṛṣṇa*—el Señor Kṛṣṇa; *tomāya*—a ti; *karibe*—hará; *uddhāra*—liberación.

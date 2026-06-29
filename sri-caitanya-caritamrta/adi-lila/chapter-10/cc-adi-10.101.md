@@ -1,9 +1,9 @@
 ### CC Adi 10.101
 
-> তিন সন্ধ্যা রাধাকুণ্ডে অপতিত স্নান ।
+> তিন সন্ধ্যা রাধাকুণ্ডে অপতিত স্নান ।\
 > ব্রজবাসী বৈষ্ণবে করে আলিঙ্গন মান ॥১০১॥
 
-> tina sandhyā rādhā-kuṇḍe apatita snāna
+> tina sandhyā rādhā-kuṇḍe apatita snāna\
 > vraja-vāsī vaiṣṇave kare āliṅgana māna
 
 *tina sandhyā*—three times, namely morning, evening and noon; *rādhā-kuṇḍe*—in the lake of Rādhā-kuṇḍa; *apatita*—without failure; *snāna*—taking bath; *vraja-vāsī*—inhabitants of Vrajabhūmi; *vaiṣṇave*—all devotees; *kare*—does; *āliṅgana*—embracing; *māna*—and offering respect.

@@ -1,11 +1,11 @@
 ### SB 3.20.52
 
-> तपसा विद्यया युक्तो योगेन सुसमाधिना ।
+> तपसा विद्यया युक्तो योगेन सुसमाधिना ।\
 > ऋषीनृषिर्हृषीकेशः ससर्जाभिमताः प्रजाः ॥५२॥
 
-> tapasā vidyayā yukto
-> yogena susamādhinā
-> ṛṣīn ṛṣir hṛṣīkeśaḥ
+> tapasā vidyayā yukto\
+> yogena susamādhinā\
+> ṛṣīn ṛṣir hṛṣīkeśaḥ\
 > sasarjābhimatāḥ prajāḥ
 
 *tapasā*—con penitencia; *vidyayā*—con adoración; *yuktaḥ*—ocupado; *yogena*—con concentración de la mente y devoción; *su-samādhinā*—con intensa meditación; *ṛṣīn*—a los sabios; *ṛṣiḥ*—el primer vidente (Brahmā); *hṛṣīkeśaḥ*—aquel que controla sus sentidos; *sasarja*—creó; *abhimatāḥ*—queridos; *prajāḥ*—hijos.

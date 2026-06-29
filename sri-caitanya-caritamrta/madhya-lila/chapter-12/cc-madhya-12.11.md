@@ -1,9 +1,9 @@
 ### CC Madhya 12.11
 
-> ভট্টাচার্য পত্রী দেখি’ চিন্তিত হঞা ।
+> ভট্টাচার্য পত্রী দেখি’ চিন্তিত হঞা ।\
 > ভক্তগণ-পাশ গেলা সেই পত্রী লঞা ॥১১॥
 
-> bhaṭṭācārya patrī dekhi' cintita hañā
+> bhaṭṭācārya patrī dekhi' cintita hañā\
 > bhakta-gaṇa-pāśa gelā sei patrī lañā
 
 *bhaṭṭācārya*—Sārvabhauma Bhaṭṭācārya; *patrī*—the letter; *dekhi'*—seeing; *cintita hañā*—becoming very anxious; *bhakta-gaṇa*—all the devotees; *pāśa*—near; *gelā*—went; *sei*—that; *patrī*—letter; *lañā*—taking.

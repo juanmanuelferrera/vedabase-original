@@ -1,11 +1,11 @@
 ### SB 1.2.30
 
-> स एवेदं ससर्जाग्रे भगवानात्ममायया ।
+> स एवेदं ससर्जाग्रे भगवानात्ममायया ।\
 > सदसद्रूपया चासौ गुणमयागुणो विभुः ॥३०॥
 
-> sa evedaṁ sasarjāgre
-> bhagavān ātma-māyayā
-> sad-asad-rūpayā cāsau
+> sa evedaṁ sasarjāgre\
+> bhagavān ātma-māyayā\
+> sad-asad-rūpayā cāsau\
 > guṇamayāguṇo vibhuḥ
 
 *saḥ*—that; *eva*—certainly; *idam*—this; *sasarja*—created; *agre*—before; *bhagavān*—the Personality of Godhead; *ātma-māyayā*—by His personal potency; *sat*—the cause; *asat*—the effect; *rūpayā*—by forms; *ca*—and; *asau*—the same Lord; *guṇa-maya*—in the modes of material nature; *aguṇaḥ*—transcendental; *vibhuḥ*—the Absolute.

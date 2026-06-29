@@ -1,11 +1,11 @@
 ### SB 3.7.40
 
-> एतान्मे पृच्छतः प्रश्नान्हरेः कर्मविवित्सया ।
+> एतान्मे पृच्छतः प्रश्नान्हरेः कर्मविवित्सया ।\
 > ब्रूहि मेऽज्ञस्य मित्रत्वादजया नष्टचक्षुषः ॥४०॥
 
-> etān me pṛcchataḥ praśnān
-> hareḥ karma-vivitsayā
-> brūhi me 'jñasya mitratvād
+> etān me pṛcchataḥ praśnān\
+> hareḥ karma-vivitsayā\
+> brūhi me 'jñasya mitratvād\
 > ajayā naṣṭa-cakṣuṣaḥ
 
 *etān*—all these; *me*—my; *pṛcchataḥ*—of one who inquires; *praśnān*—questions; *hareḥ*—of the Supreme Lord; *karma*—pastimes; *vivitsayā*—desiring to know; *brūhi*—kindly describe; *me*—unto me; *ajñasya*—of one who is ignorant; *mitratvāt*—because of friendship; *ajayā*—by the external energy; *naṣṭa-cakṣuṣaḥ*—those who have lost their vision.

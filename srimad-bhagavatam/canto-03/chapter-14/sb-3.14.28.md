@@ -1,11 +1,11 @@
 ### SB 3.14.28
 
-> हसन्ति यस्याचरितं हि दुर्भगाः स्वात्मन्रतस्याविदुषः समीहितम् ।
+> हसन्ति यस्याचरितं हि दुर्भगाः स्वात्मन्रतस्याविदुषः समीहितम् ।\
 > यैर्वस्त्रमाल्याभरणानुलेपनैः श्वभोजनं स्वात्मतयोपलालितम् ॥२८॥
 
-> hasanti yasyācaritaṁ hi durbhagāḥ
-> svātman-ratasyāviduṣaḥ samīhitam
-> yair vastra-mālyābharaṇānulepanaiḥ
+> hasanti yasyācaritaṁ hi durbhagāḥ\
+> svātman-ratasyāviduṣaḥ samīhitam\
+> yair vastra-mālyābharaṇānulepanaiḥ\
 > śva-bhojanaṁ svātmatayopalālitam
 
 *hasanti*—laugh at; *yasya*—whose; *ācaritam*—activity; *hi*—certainly; *durbhagāḥ*—the unfortunate; *sva-ātman*—in the self; *ratasya*—of one engaged; *aviduṣaḥ*—not knowing; *samīhitam*—his purpose; *yaiḥ*—by whom; *vastra*—clothing; *mālya*—garlands; *ābharaṇa*—ornaments; *anu*—such luxurious; *lepanaiḥ*—with ointments; *śva-bhojanam*—eatable by the dogs; *sva-ātmatayā*—as if the self; *upalālitam*—fondled.

@@ -1,13 +1,13 @@
 ### SB 4.29.1
 
-> प्राचीनबर्हिरुवाच
-> भगवंस्ते वचोऽस्माभिर्न सम्यगवगम्यते ।
+> प्राचीनबर्हिरुवाच\
+> भगवंस्ते वचोऽस्माभिर्न सम्यगवगम्यते ।\
 > कवयस्तद्विजानन्ति न वयं कर्ममोहिताः ॥१॥
 
-> prācīnabarhir uvāca
-> bhagavaṁs te vaco 'smābhir
-> na samyag avagamyate
-> kavayas tad vijānanti
+> prācīnabarhir uvāca\
+> bhagavaṁs te vaco 'smābhir\
+> na samyag avagamyate\
+> kavayas tad vijānanti\
 > na vayaṁ karma-mohitāḥ
 
 *prācīnabarhiḥ uvāca*—el rey Prācīnabarhi dijo; *bhagavan*—¡oh, mi señor!; *te*—tus; *vacaḥ*—palabras; *asmābhiḥ*—por nosotros; *na*—nunca; *samyak*—perfectamente; *avagamyate*—se entienden; *kavayaḥ*—los que tienen experiencia; *tat*—eso; *vijānanti*—pueden entender; *na*—nunca; *vayam*—nosotros; *karma*—por actividades fruitivas; *mohitāḥ*—encantados.

@@ -1,11 +1,11 @@
 ### SB 4.24.12
 
-> विबुधासुरगन्धर्व मुनिसिद्धनरोरगाः ।
+> विबुधासुरगन्धर्व मुनिसिद्धनरोरगाः ।\
 > विजिताः सूर्यया दिक्षु क्वणयन्त्यैव नूपुरैः ॥१२॥
 
-> vibudhāsura-gandharva-
-> muni-siddha-naroragāḥ
-> vijitāḥ sūryayā dikṣu
+> vibudhāsura-gandharva-\
+> muni-siddha-naroragāḥ\
+> vijitāḥ sūryayā dikṣu\
 > kvaṇayantyaiva nūpuraiḥ
 
 *vibudha*—learned; *asura*—the demons; *gandharva*—the denizens of Gandharvaloka; *muni*—great sages; *siddha*—the denizens of Siddhaloka; *nara*—the inhabitants of the earthly planets; *uragāḥ*—denizens of Nāgaloka; *vijitāḥ*—captivated; *sūryayā*—by the new bride; *dikṣu*—in all directions; *kvaṇayantyā*—tinkling; *eva*—only; *nūpuraiḥ*—by her ankle bells.

@@ -1,11 +1,11 @@
 ### SB 4.9.55
 
-> चूतपल्लववासःस्रङ् मुक्तादामविलम्बिभिः ।
+> चूतपल्लववासःस्रङ् मुक्तादामविलम्बिभिः ।\
 > उपस्कृतं प्रतिद्वारमपां कुम्भैः सदीपकैः ॥५५॥
 
-> cūta-pallava-vāsaḥ-sraṅ-
-> muktā-dāma-vilambibhiḥ
-> upaskṛtaṁ prati-dvāram
+> cūta-pallava-vāsaḥ-sraṅ-\
+> muktā-dāma-vilambibhiḥ\
+> upaskṛtaṁ prati-dvāram\
 > apāṁ kumbhaiḥ sadīpakaiḥ
 
 *cūta-pallava*—with mango leaves; *vāsaḥ*—cloth; *srak*—flower garlands; *muktā-dāma*—strings of pearls; *vilambibhiḥ*—hanging; *upaskṛtam*—decorated; *prati-dvāram*—at every gate; *apām*—full of water; *kumbhaiḥ*—with waterpots; *sa-dīpakaiḥ*—with burning lamps.

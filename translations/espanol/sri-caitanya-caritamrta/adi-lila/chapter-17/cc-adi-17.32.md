@@ -1,9 +1,9 @@
 ### CC Adi 17.32
 
-> ঊর্ধ্ববাহু করি’ কহোঁ, শুন, সর্বলোক ।
+> ঊর্ধ্ববাহু করি’ কহোঁ, শুন, সর্বলোক ।\
 > নাম-সূত্রে গাঁথি’ পর কণ্ঠে এই শ্লোক ॥৩২॥
 
-> ūrdhva-bāhu kari' kahoṅ, śuna, sarva-loka
+> ūrdhva-bāhu kari' kahoṅ, śuna, sarva-loka\
 > nāma-sūtre gāṅthi' para kaṇṭhe ei śloka
 
 *ūrdhva-bāhu*—levantando mis manos; *kari'*—haciéndolo; *kahoṅ*—declaro; *śuna*—escuchad, por favor; *sarva-loka*—todas las personas; *nāma*—del santo nombre; *sūtre*—en el hilo; *gāṅthi*—ensartando; *para*—colocadlo; *kaṇṭhe*—en el cuello; *ei*—este; *śloka*—verso.

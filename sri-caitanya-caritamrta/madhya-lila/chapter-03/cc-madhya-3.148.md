@@ -1,9 +1,9 @@
 ### CC Madhya 3.148
 
-> তুমি যাহাঁ কহ, আমি তাহাঁই রহিব ।
+> তুমি যাহাঁ কহ, আমি তাহাঁই রহিব ।\
 > তুমি যেই আজ্ঞা কর, সেই ত’ করিব ॥১৪৮॥
 
-> tumi yāhāṅ kaha, āmi tāhāṅi rahiba
+> tumi yāhāṅ kaha, āmi tāhāṅi rahiba\
 > tumi yei ājñā kara, sei ta' kariba
 
 *tumi*—you; *yāhāṅ*—wherever; *kaha*—ask; *āmi*—I; *tāhāṅi*—there; *rahiba*—shall stay; *tumi*—you; *yei*—whatever; *ājñā*—order; *kara*—give; *sei*—that; *ta'*—certainly; *kariba*—I shall execute.

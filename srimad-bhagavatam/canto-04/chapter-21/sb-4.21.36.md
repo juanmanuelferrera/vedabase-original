@@ -1,11 +1,11 @@
 ### SB 4.21.36
 
-> अहो ममामी वितरन्त्यनुग्रहं हरिं गुरुं यज्ञभुजामधीश्वरम् ।
+> अहो ममामी वितरन्त्यनुग्रहं हरिं गुरुं यज्ञभुजामधीश्वरम् ।\
 > स्वधर्मयोगेन यजन्ति मामका निरन्तरं क्षोणितले दृढव्रताः ॥३६॥
 
-> aho mamāmī vitaranty anugrahaṁ
-> hariṁ guruṁ yajña-bhujām adhīśvaram
-> sva-dharma-yogena yajanti māmakā
+> aho mamāmī vitaranty anugrahaṁ\
+> hariṁ guruṁ yajña-bhujām adhīśvaram\
+> sva-dharma-yogena yajanti māmakā\
 > nirantaraṁ kṣoṇi-tale dṛḍha-vratāḥ
 
 *aho*—O all of you; *mama*—unto me; *amī*—all of them; *vitaranti*—distributing; *anugraham*—mercy; *harim*—the Supreme Personality of Godhead; *gurum*—the supreme spiritual master; *yajña-bhujām*—all the demigods eligible to accept *yajña* offerings; *adhīśvaram*—the supreme master; *sva-dharma*—occupational duties; *yogena*—by dint of; *yajanti*—worship; *māmakāḥ*—having a relationship with me; *nirantaram*—incessantly; *kṣoṇi-tale*—on the surface of the globe; *dṛḍha-vratāḥ*—with firm determination.

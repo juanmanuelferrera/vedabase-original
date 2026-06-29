@@ -1,11 +1,11 @@
 ### SB 4.15.24
 
-> महद्गुणानात्मनि कर्तुमीशः कः स्तावकैः स्तावयतेऽसतोऽपि ।
+> महद्गुणानात्मनि कर्तुमीशः कः स्तावकैः स्तावयतेऽसतोऽपि ।\
 > तेऽस्याभविष्यन्निति विप्रलब्धो जनावहासं कुमतिर्न वेद ॥२४॥
 
-> mahad-guṇān ātmani kartum īśaḥ
-> kaḥ stāvakaiḥ stāvayate 'sato 'pi
-> te 'syābhaviṣyann iti vipralabdho
+> mahad-guṇān ātmani kartum īśaḥ\
+> kaḥ stāvakaiḥ stāvayate 'sato 'pi\
+> te 'syābhaviṣyann iti vipralabdho\
 > janāvahāsaṁ kumatir na veda
 
 *mahat*—gloriosas; *guṇān*—cualidades; *ātmani*—en sí mismo; *kartum*—manifestar; *īśaḥ*—capacitado; *kaḥ*—quien; *stāvakaiḥ*—por seguidores; *stāvayate*—hace que le alaben; *asataḥ*—no existentes; *api*—aunque; *te*—ellos; *asya*—de él; *abhaviṣyan*—podría haber sido; *iti*—de ese modo; *vipralabdhaḥ*—engañado; *jana*—de la gente; *avahāsam*—insulto; *kumatiḥ*—un necio; *na*—no; *veda*—sabe.

@@ -1,11 +1,11 @@
 ### SB 1.14.31
 
-> सुषेणश्चारुदेष्णश्च साम्बो जाम्बवतीसुतः ।
+> सुषेणश्चारुदेष्णश्च साम्बो जाम्बवतीसुतः ।\
 > अन्ये च कार्ष्णिप्रवराः सपुत्रा ऋषभादयः ॥३१॥
 
-> suṣeṇaś cārudeṣṇaś ca
-> sāmbo jāmbavatī-sutaḥ
-> anye ca kārṣṇi-pravarāḥ
+> suṣeṇaś cārudeṣṇaś ca\
+> sāmbo jāmbavatī-sutaḥ\
+> anye ca kārṣṇi-pravarāḥ\
 > saputrā ṛṣabhādayaḥ
 
 *suṣeṇaḥ*—Suṣeṇa; *cārudeṣṇaḥ*—Cārudeṣṇa; *ca*—y; *sāmbaḥ*—Sāmba; *jāmbavatī-sutaḥ*—el hijo de Jāmbavatī; *anye*—otros; *ca*—también; *kārṣṇi*—los hijos del Señor Kṛṣṇa; *pravarāḥ*—todos los principales; *sa-putrāḥ*—junto con sus hijos; *ṛṣabha*—Ṛṣabha; *ādayaḥ*—etc.

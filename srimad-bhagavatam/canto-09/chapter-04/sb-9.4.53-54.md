@@ -1,20 +1,20 @@
 ### SB 9.4.53-54
 
-> श्रीब्रह्मोवाच
-> स्थानं मदीयं सहविश्वमेतत्क्रीडावसाने द्विपरार्धसंज्ञए
-> भ्रूभङ्गमात्रेण हि सन्दिधक्षोः कालात्मनो यस्य तिरोभविष्यति ॥५३॥
-> अहं भवो दक्षभृगुप्रधानाः प्रजेशभूतेशसुरेशमुख्याः
+> श्रीब्रह्मोवाच\
+> स्थानं मदीयं सहविश्वमेतत्क्रीडावसाने द्विपरार्धसंज्ञए\
+> भ्रूभङ्गमात्रेण हि सन्दिधक्षोः कालात्मनो यस्य तिरोभविष्यति ॥५३॥\
+> अहं भवो दक्षभृगुप्रधानाः प्रजेशभूतेशसुरेशमुख्याः\
 > सर्वे वयं यन्नियमं प्रपन्ना मूर्ध्न्यार्पितं लोकहितं वहामः ॥५४॥
 
-> śrī-brahmovāca
-> sthānaṁ madīyaṁ saha-viśvam etat
-> krīḍāvasāne dvi-parārdha-saṁjñe
-> bhrū-bhaṅga-mātreṇa hi sandidhakṣoḥ
+> śrī-brahmovāca\
+> sthānaṁ madīyaṁ saha-viśvam etat\
+> krīḍāvasāne dvi-parārdha-saṁjñe\
+> bhrū-bhaṅga-mātreṇa hi sandidhakṣoḥ\
 > kālātmano yasya tirobhaviṣyati
 
-> ahaṁ bhavo dakṣa-bhṛgu-pradhānāḥ
-> prajeśa-bhūteśa-sureśa-mukhyāḥ
-> sarve vayaṁ yan-niyamaṁ prapannā
+> ahaṁ bhavo dakṣa-bhṛgu-pradhānāḥ\
+> prajeśa-bhūteśa-sureśa-mukhyāḥ\
+> sarve vayaṁ yan-niyamaṁ prapannā\
 > mūrdhnyārpitaṁ loka-hitaṁ vahāmaḥ
 
 *śrī-brahmā uvāca*—Lord Brahmā said; *sthānam*—the place where I am; *madīyam*—my residence, Brahmaloka; *saha*—with; *viśvam*—the whole universe; *etat*—this; *krīḍā-avasāne*—at the end of the period for the pastimes of the Supreme Personality of Godhead; *dvi-parārdha-saṁjñe*—the time known as the end of a *dvi-parārdha*; *bhrū-bhaṅga-mātreṇa*—simply by the flicking of the eyebrows; *hi*—indeed; *sandidhakṣoḥ*—of the Supreme Personality of Godhead, when He desires to burn the whole universe; *kāla-ātmanaḥ*—of the form of destruction; *yasya*—of whom; *tirobhaviṣyati*—will be vanquished; *aham*—I; *bhavaḥ*—Lord Śiva; *dakṣa*—Prajāpati Dakṣa; *bhṛgu*—the great saint Bhṛgu; *pradhānāḥ*—and others headed by them; *prajā-īśa*—the controllers of the *prajās*; *bhūta-īśa*—the controllers of the living entities; *sura-īśa*—the controllers of the demigods; *mukhyāḥ*—headed by them; *sarve*—all of them; *vayam*—we also; *yat-niyamam*—whose regulative principle; *prapannāḥ*—are surrendered; *mūrdhnyā arpitam*—bowing our heads; *loka-hitam*—for the benefit of all living entities; *vahāmaḥ*—carry out the orders ruling over the living entities.

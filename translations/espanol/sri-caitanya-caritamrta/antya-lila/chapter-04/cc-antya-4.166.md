@@ -1,9 +1,9 @@
 ### CC Antya 4.166
 
-> “জগদানন্দ প্রিয় আমার নহে তোমা হৈতে ।
+> “জগদানন্দ প্রিয় আমার নহে তোমা হৈতে ।\
 > মর্যাদা-লঙ্ঘন আমি না পারোঁ সহিতে ॥১৬৬॥
 
-> 'jagadānanda priya āmāra nahe tomā haite
+> 'jagadānanda priya āmāra nahe tomā haite\
 > maryādā-laṅghana āmi nā pāroṅ sahite
 
 *jagadānanda*—Jagadānanda Paṇḍita; *priya*—más querido; *āmāra*—para Mí; *nahe*—no es; *tomā haite*—que tú; *maryādā-laṅghana*—transgredir la etiqueta; *āmi*—Yo; *nā*—no; *pāroṅ*—puedo; *sahite*—tolerar.

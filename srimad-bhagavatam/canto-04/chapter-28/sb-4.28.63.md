@@ -1,11 +1,11 @@
 ### SB 4.28.63
 
-> यथा पुरुष आत्मानमेकमादर्शचक्षुषोः ।
+> यथा पुरुष आत्मानमेकमादर्शचक्षुषोः ।\
 > द्विधाभूतमवेक्षेत तथैवान्तरमावयोः ॥६३॥
 
-> yathā puruṣa ātmānam
-> ekam ādarśa-cakṣuṣoḥ
-> dvidhābhūtam avekṣeta
+> yathā puruṣa ātmānam\
+> ekam ādarśa-cakṣuṣoḥ\
+> dvidhābhūtam avekṣeta\
 > tathaivāntaram āvayoḥ
 
 *yathā*—as; *puruṣaḥ*—the living entity; *ātmānam*—his body; *ekam*—one; *ādarśa*—in a mirror; *cakṣuṣoḥ*—by the eyes; *dvidhā-ābhūtam*—existing as two; *avekṣeta*—sees; *tathā*—similarly; *eva*—certainly; *antaram*—difference; *āvayoḥ*—between ourselves.

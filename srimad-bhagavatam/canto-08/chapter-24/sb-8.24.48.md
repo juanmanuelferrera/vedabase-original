@@ -1,11 +1,11 @@
 ### SB 8.24.48
 
-> यत्सेवयाग्नेरिव रुद्ररोदनं पुमान्विजह्यान्मलमात्मनस्तमः
+> यत्सेवयाग्नेरिव रुद्ररोदनं पुमान्विजह्यान्मलमात्मनस्तमः\
 > भजेत वर्णं निजमेष सोऽव्ययो भूयात्स ईशः परमो गुरोर्गुरुः ॥४८॥
 
-> yat-sevayāgner iva rudra-rodanaṁ
-> pumān vijahyān malam ātmanas tamaḥ
-> bhajeta varṇaṁ nijam eṣa so 'vyayo
+> yat-sevayāgner iva rudra-rodanaṁ\
+> pumān vijahyān malam ātmanas tamaḥ\
+> bhajeta varṇaṁ nijam eṣa so 'vyayo\
 > bhūyāt sa īśaḥ paramo guror guruḥ
 
 *yat-sevayā*—the Supreme Personality of Godhead, by serving whom; *agneḥ*—in touch with fire; *iva*—as it is; *rudra-rodanam*—a block of silver or gold becomes purified; *pumān*—a person; *vijahyāt*—can give up; *malam*—all the dirty things of material existence; *ātmanaḥ*—of one's self; *tamaḥ*—the mode of ignorance, by which one performs pious and impious activities; *bhajeta*—may revive; *varṇam*—his original identity; *nijam*—one's own; *eṣaḥ*—such; *saḥ*—He; *avyayaḥ*—inexhaustible; *bhūyāt*—let Him become; *saḥ*—He; *īśaḥ*—the Supreme Personality of Godhead; *paramaḥ*—the supreme; *guroḥ guruḥ*—the spiritual master of all other spiritual masters.

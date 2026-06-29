@@ -1,11 +1,11 @@
 ### SB 3.33.11
 
-> श्रद्धत्स्वैतन्मतं मह्यं जुष्टं यद्ब्रह्मवादिभिः ।
+> श्रद्धत्स्वैतन्मतं मह्यं जुष्टं यद्ब्रह्मवादिभिः ।\
 > येन मामभयं याया मृत्युमृच्छन्त्यतद्विदः ॥११॥
 
-> śraddhatsvaitan mataṁ mahyaṁ
-> juṣṭaṁ yad brahma-vādibhiḥ
-> yena mām abhayaṁ yāyā
+> śraddhatsvaitan mataṁ mahyaṁ\
+> juṣṭaṁ yad brahma-vādibhiḥ\
+> yena mām abhayaṁ yāyā\
 > mṛtyum ṛcchanty atad-vidaḥ
 
 *śraddhatsva*—puedes tener la seguridad; *etat*—acerca de esto; *matam*—enseñanzas; *mahyam*—Mías; *juṣṭam*—seguidas; *yat*—las cuales; *brahma-vādibhiḥ*—por los trascendentalistas; *yena*—por las cuales; *mām*—a Mí; *abhayam*—sin temor; *yāyāḥ*—alcanzarás; *mṛtyum*—muerte; *ṛcchanti*—alcanzan; *a-tat-vidaḥ*—personas que no las conocen a fondo.

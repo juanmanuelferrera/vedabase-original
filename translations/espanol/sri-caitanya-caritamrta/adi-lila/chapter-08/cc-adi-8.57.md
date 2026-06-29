@@ -1,9 +1,9 @@
 ### CC Adi 8.57
 
-> কৃষ্ণের যে সাধারণ সদ্গুণ পঞ্চাশ ।
+> কৃষ্ণের যে সাধারণ সদ্গুণ পঞ্চাশ ।\
 > সে সব গুণের তাঁর শরীরে নিবাস ॥৫৭॥
 
-> kṛṣṇera ye sādhāraṇa sad-guṇa pañcāśa
+> kṛṣṇera ye sādhāraṇa sad-guṇa pañcāśa\
 > se saba guṇera tāṅra śarīre nivāsa
 
 *kṛṣṇera*—del Señor Kṛṣṇa; *ye*—esas; *sādhāraṇa*—generales; *sat-guṇa*—buenas cualidades; *pañcāśa*—cincuenta; *se*—esas; *saba*—todas; *guṇera*—cualidades; *tāṅra*—su; *śarīre*—en el cuerpo; *nivāsa*—estaban siempre presentes.

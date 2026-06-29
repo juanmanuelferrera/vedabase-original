@@ -1,9 +1,9 @@
 ### CC Antya 9.37
 
-> “রামানন্দ-রায়ের গোষ্ঠী, সব — তোমার ‘দাস’  ।
+> “রামানন্দ-রায়ের গোষ্ঠী, সব — তোমার ‘দাস’  ।\
 > তোমার উচিত নহে ঐছন উদাস ।।” ৩৭ ॥৩৭॥
 
-> "rāmānanda-rāyera goṣṭhī, saba—tomāra 'dāsa'
+> "rāmānanda-rāyera goṣṭhī, saba—tomāra 'dāsa'\
 > tomāra ucita nahe aichana udāsa"
 
 *rāmānanda-rāyera*—of Rāmānanda Rāya; *goṣṭhī*—family; *saba*—all; *tomāra dāsa*—Your servants; *tomāra*—for You; *ucita*—befitting; *nahe*—is not; *aichana*—such; *udāsa*—indifference.

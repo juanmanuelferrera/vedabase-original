@@ -1,11 +1,11 @@
 ### SB 3.22.19
 
-> अतो भजिष्ये समयेन साध्वीं यावत्तेजो बिभृयादात्मनो मे ।
+> अतो भजिष्ये समयेन साध्वीं यावत्तेजो बिभृयादात्मनो मे ।\
 > अतो धर्मान्पारमहंस्यमुख्यान्शुक्लप्रोक्तान्बहु मन्येऽविहिंस्रान् ॥१९॥
 
-> ato bhajiṣye samayena sādhvīṁ
-> yāvat tejo bibhṛyād ātmano me
-> ato dharmān pāramahaṁsya-mukhyān
+> ato bhajiṣye samayena sādhvīṁ\
+> yāvat tejo bibhṛyād ātmano me\
+> ato dharmān pāramahaṁsya-mukhyān\
 > śukla-proktān bahu manye 'vihiṁsrān
 
 *ataḥ*—por consiguiente; *bhajiṣye*—aceptaré; *samayena*—bajo las condiciones; *sādhvīm*—a la casta joven; *yāvat*—hasta que; *tejaḥ*—semen; *bibhṛyāt*—lleve en su interior; *ātmanaḥ*—de mi cuerpo; *me*—mío; *ataḥ*—a continuación; *dharmān*—los deberes; *pāramahaṁsya-mukhyān*—del mejor de los *paramahaṁsas*; *śukla-proktān*—hablado por el Señor Viṣṇu; *bahu*—mucho; *manye*—consideraré; *avihiṁsrān*—libre de envidia.

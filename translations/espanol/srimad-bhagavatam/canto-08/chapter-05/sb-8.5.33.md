@@ -1,11 +1,11 @@
 ### SB 8.5.33
 
-> अम्भस्तु यद्रेत उदारवीर्यं सिध्यन्ति जीवन्त्युत वर्धमानाः
+> अम्भस्तु यद्रेत उदारवीर्यं सिध्यन्ति जीवन्त्युत वर्धमानाः\
 > लोका यतोऽथाखिललोकपालाः प्रसीदतां नः स महाविभूतिः ॥३३॥
 
-> ambhas tu yad-reta udāra-vīryaṁ
-> sidhyanti jīvanty uta vardhamānāḥ
-> lokā yato 'thākhila-loka-pālāḥ
+> ambhas tu yad-reta udāra-vīryaṁ\
+> sidhyanti jīvanty uta vardhamānāḥ\
+> lokā yato 'thākhila-loka-pālāḥ\
 > prasīdatāṁ naḥ sa mahā-vibhūtiḥ
 
 *ambhaḥ*—las masas de agua que pueden verse en este o en otros planetas; *tu*—pero; *yat-retaḥ*—Su semen; *udāra-vīryam*—tan poderoso; *sidhyanti*—se generan; *jīvanti*—viven; *uta*—en verdad; *vardhamānāḥ*—florecen; *lokāḥ*—los tres mundos; *yataḥ*—de la cual; *atha*—también; *akhila-loka-pālāḥ*—todos los semidioses, en todo el universo; *prasīdatām*—que Se complazca; *naḥ*—sobre nosotros; *saḥ*—Él; *mahā-vibhūtiḥ*—una persona de ilimitada potencia.

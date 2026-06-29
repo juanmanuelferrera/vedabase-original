@@ -1,11 +1,11 @@
 ### SB 7.15.13
 
-> धर्मबाधो विधर्मः स्यात्परधर्मोऽन्यचोदितः
+> धर्मबाधो विधर्मः स्यात्परधर्मोऽन्यचोदितः\
 > उपधर्मस्तु पाखण्डो दम्भो वा शब्दभिच्छलः ॥१३॥
 
-> dharma-bādho vidharmaḥ syāt
-> para-dharmo 'nya-coditaḥ
-> upadharmas tu pākhaṇḍo
+> dharma-bādho vidharmaḥ syāt\
+> para-dharmo 'nya-coditaḥ\
+> upadharmas tu pākhaṇḍo\
 > dambho vā śabda-bhic chalaḥ
 
 *dharma-bādhaḥ*—impide seguir los principios religiosos propios; *vidharmaḥ*—en contra de los principios de la religión; *syāt*—debe ser; *para-dharmaḥ*—imitar sistemas religiosos para los que no se es apto; *anya-coditaḥ*—que es introducido por otra persona; *upadharmaḥ*—principios religiosos inventados; *tu*—en verdad; *pākhaṇḍaḥ*—por alquien que va contra los principios de los *Vedas*, las Escrituras establecidas; *dambhaḥ*—que está lleno de orgullo falso; *vā*—o; *śabda-bhit*—con malabarismos de palabras; *chalaḥ*—un sistema religioso engañoso.

@@ -1,11 +1,11 @@
 ### SB 1.9.34
 
-> युधि तुरगरजोविधूम्रविष्वक्कचलुलितश्रमवार्यलङ्कृतास्ये ।
+> युधि तुरगरजोविधूम्रविष्वक्कचलुलितश्रमवार्यलङ्कृतास्ये ।\
 > मम निशितशरैर्विभिद्यमान त्वचि विलसत्कवचेऽस्तु कृष्ण आत्मा ॥३४॥
 
-> yudhi turaga-rajo-vidhūmra-viṣvak-
-> kaca-lulita-śramavāry-alaṅkṛtāsye
-> mama niśita-śarair vibhidyamāna-
+> yudhi turaga-rajo-vidhūmra-viṣvak-\
+> kaca-lulita-śramavāry-alaṅkṛtāsye\
+> mama niśita-śarair vibhidyamāna-\
 > tvaci vilasat-kavace 'stu kṛṣṇa ātmā
 
 *yudhi*—on the battlefield; *turaga*—horses; *rajaḥ*—dust; *vidhūmra*—turned an ashen color; *viṣvak*—waving; *kaca*—hair; *lulita*—scattered; *śramavāri*—perspiration; *alaṅkṛta*—decorated with; *āsye*—unto the face; *mama*—my; *niśita*—sharp; *śaraiḥ*—by the arrows; *vibhidyamāna*—pierced by; *tvaci*—in the skin; *vilasat*—enjoying pleasure; *kavace*—protecting armor; *astu*—let there be; *kṛṣṇe*—unto Śrī Kṛṣṇa; *ātmā*—mind.

@@ -1,25 +1,25 @@
 ### SB 4.29.18-20
 
-> देहो रथस्त्विन्द्रियाश्वः संवत्सररयोऽगतिः ।
-> द्विकर्मचक्रस्त्रिगुण ध्वजः पञ्चासुबन्धुरः ॥१८॥
-> मनोरश्मिर्बुद्धिसूतो हृन्नीडो द्वन्द्वकूबरः ।
-> पञ्चेन्द्रियार्थप्रक्षेपः सप्तधातुवरूथकः ॥१९॥
-> आकूतिर्विक्रमो बाह्यो मृगतृष्णां प्रधावति ।
+> देहो रथस्त्विन्द्रियाश्वः संवत्सररयोऽगतिः ।\
+> द्विकर्मचक्रस्त्रिगुण ध्वजः पञ्चासुबन्धुरः ॥१८॥\
+> मनोरश्मिर्बुद्धिसूतो हृन्नीडो द्वन्द्वकूबरः ।\
+> पञ्चेन्द्रियार्थप्रक्षेपः सप्तधातुवरूथकः ॥१९॥\
+> आकूतिर्विक्रमो बाह्यो मृगतृष्णां प्रधावति ।\
 > एकादशेन्द्रियचमूः पञ्चसूनाविनोदकृत् ॥२०॥
 
-> deho rathas tv indriyāśvaḥ
-> saṁvatsara-rayo 'gatiḥ
-> dvi-karma-cakras tri-guṇa-
+> deho rathas tv indriyāśvaḥ\
+> saṁvatsara-rayo 'gatiḥ\
+> dvi-karma-cakras tri-guṇa-\
 > dhvajaḥ pañcāsu-bandhuraḥ
 
-> mano-raśmir buddhi-sūto
-> hṛn-nīḍo dvandva-kūbaraḥ
-> pañcendriyārtha-prakṣepaḥ
+> mano-raśmir buddhi-sūto\
+> hṛn-nīḍo dvandva-kūbaraḥ\
+> pañcendriyārtha-prakṣepaḥ\
 > sapta-dhātu-varūthakaḥ
 
-> ākūtir vikramo bāhyo
-> mṛga-tṛṣṇāṁ pradhāvati
-> ekādaśendriya-camūḥ
+> ākūtir vikramo bāhyo\
+> mṛga-tṛṣṇāṁ pradhāvati\
+> ekādaśendriya-camūḥ\
 > pañca-sūnā-vinoda-kṛt
 
 *dehaḥ*—el cuerpo; *rathaḥ*—la cuadriga; *tu*—pero; *indriya*—los sentidos para adquirir conocimiento; *aśvaḥ*—los caballos; *saṁvatsara*—todos los años; *rayaḥ*—duración de la vida; *agatiḥ*—sin avanzar; *dvi*—dos; *karma*—actividades; *cakraḥ*—ruedas; *tri*—tres; *guṇa*—modalidades de la naturaleza; *dhvajaḥ*—banderas; *pañca*—cinco; *asu*—aires vitales; *bandhuraḥ*—atadura; *manaḥ*—la mente; *raśmiḥ*—riendas; *buddhi*—la inteligencia; *sūtaḥ*—el auriga; *hṛt*—el corazón; *nīḍaḥ*—el asiento; *dvandva*—la dualidad; *kūbaraḥ*—los postes de sujeción de los arneses; *pañca*—cinco; *indriya-artha*—objetos de los sentidos; *prakṣepaḥ*—las armas; *sapta*—siete; *dhātu*—elementos; *varūthakaḥ*—las cubiertas; *ākūtiḥ*—las tentativas de los cinco sentidos para la acción; *vikramaḥ*—los poderes o procesos; *bāhyaḥ*—externos; *mṛga-tṛṣṇām*—la aspiración falsa; *pradhāvati*—corre en pos; *ekādaśa*—once; *indriya*—sentidos; *camūḥ*—soldados; *pañca*—cinco; *sūnā*—envidia; *vinoda*—placer; *kṛt*—hacer.

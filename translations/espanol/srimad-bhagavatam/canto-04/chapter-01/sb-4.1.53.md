@@ -1,11 +1,11 @@
 ### SB 4.1.53
 
-> ययोर्जन्मन्यदो विश्वमभ्यनन्दत्सुनिर्वृतम् ।
+> ययोर्जन्मन्यदो विश्वमभ्यनन्दत्सुनिर्वृतम् ।\
 > मनांसि ककुभो वाताः प्रसेदुः सरितोऽद्रयः ॥५३॥
 
-> yayor janmany ado viśvam
-> abhyanandat sunirvṛtam
-> manāṁsi kakubho vātāḥ
+> yayor janmany ado viśvam\
+> abhyanandat sunirvṛtam\
+> manāṁsi kakubho vātāḥ\
 > praseduḥ sarito 'drayaḥ
 
 *yayoḥ*—ambos (Nara y Nārāyaṇa); *janmani*—con ocasión del advenimiento; *adaḥ*—ese; *viśvam*—universo; *abhyanandat*—se alegró; *su-nirvṛtam*—lleno de júbilo; *manāṁsi*—las mentes de todos; *kakubhaḥ*—las direcciones; *vātāḥ*—el aire; *praseduḥ*—se volvieron agradables; *saritaḥ*—los ríos; *adrayaḥ*—las montañas.

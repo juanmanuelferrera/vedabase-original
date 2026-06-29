@@ -1,9 +1,9 @@
 ### CC Madhya 7.111
 
-> অলৌকিক-লীলায় যার না হয় বিশ্বাস ।
+> অলৌকিক-লীলায় যার না হয় বিশ্বাস ।\
 > ইহলোক, পরলোক তার হয় নাশ ॥১১১॥
 
-> alaukika-līlāya yāra nā haya viśvāsa
+> alaukika-līlāya yāra nā haya viśvāsa\
 > iha-loka, para-loka tāra haya nāśa
 
 *alaukika*—uncommon; *līlāya*—in the pastimes; *yāra*—of someone; *nā*—not; *haya*—there is; *viśvāsa*—faith; *iha-loka*—in this world; *para-loka*—in the next world; *tāra*—of him; *haya*—there is; *nāśa*—destruction.

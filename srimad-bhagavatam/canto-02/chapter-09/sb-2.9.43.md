@@ -1,11 +1,11 @@
 ### SB 2.9.43
 
-> तुष्टं निशाम्य पितरं लोकानां प्रपितामहम् ।
+> तुष्टं निशाम्य पितरं लोकानां प्रपितामहम् ।\
 > देवर्षिः परिपप्रच्छ भवान्यन्मानुपृच्छति ॥४३॥
 
-> tuṣṭaṁ niśāmya pitaraṁ
-> lokānāṁ prapitāmaham
-> devarṣiḥ paripapraccha
+> tuṣṭaṁ niśāmya pitaraṁ\
+> lokānāṁ prapitāmaham\
+> devarṣiḥ paripapraccha\
 > bhavān yan mānupṛcchati
 
 *tuṣṭam*—satisfied; *niśāmya*—after seeing; *pitaram*—the father; *lokānām*—of the whole universe; *prapitāmaham*—the great-grandfather; *devarṣiḥ*—the great sage Nārada; *paripapraccha*—inquired; *bhavān*—yourself; *yat*—as it is; *mā*—from me; *anupṛcchati*—inquiring.

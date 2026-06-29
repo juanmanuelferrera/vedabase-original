@@ -1,9 +1,9 @@
 ### CC Madhya 4.210
 
-> গোপাল-গোপীনাথ-পুরীগোসাঞির গুণ ।
+> গোপাল-গোপীনাথ-পুরীগোসাঞির গুণ ।\
 > ভক্ত-সঙ্গে শ্রীমুখে প্রভু কৈলা আস্বাদন ॥২১০॥
 
-> gopāla-gopīnātha-purī-gosāñira guṇa
+> gopāla-gopīnātha-purī-gosāñira guṇa\
 > bhakta-saṅge śrī-mukhe prabhu kailā āsvādana
 
 *gopāla*—de la Deidad de Gopāla; *gopīnātha*—de la Deidad de Gopīnātha; *purī-gosāñira*—de Mādhavendra Purī; *guṇa*—las cualidades; *bhakta-saṅge*—con los devotos; *śrī-mukhe*—con Su propia boca; *prabhu*—Śrī Caitanya Mahāprabhu; *kailā*—hizo; *āsvādana*—saborear.

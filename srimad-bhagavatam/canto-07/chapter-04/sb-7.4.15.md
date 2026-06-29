@@ -1,11 +1,11 @@
 ### SB 7.4.15
 
-> स एव वर्णाश्रमिभिः क्रतुभिर्भूरिदक्षिणैः
+> स एव वर्णाश्रमिभिः क्रतुभिर्भूरिदक्षिणैः\
 > इज्यमानो हविर्भागानग्रहीत्स्वेन तेजसा ॥१५॥
 
-> sa eva varṇāśramibhiḥ
-> kratubhir bhūri-dakṣiṇaiḥ
-> ijyamāno havir-bhāgān
+> sa eva varṇāśramibhiḥ\
+> kratubhir bhūri-dakṣiṇaiḥ\
+> ijyamāno havir-bhāgān\
 > agrahīt svena tejasā
 
 *saḥ*—he (Hiraṇyakaśipu); *eva*—indeed; *varṇa-āśramibhiḥ*—by persons who strictly followed the regulative principles of the four *varṇas* and four *āśramas*; *kratubhiḥ*—by ritualistic ceremonies; *bhūri*—abundant; *dakṣiṇaiḥ*—offered with gifts; *ijyamānaḥ*—being worshiped; *haviḥ-bhāgān*—the portions of the oblations; *agrahīt*—usurped; *svena*—by his own; *tejasā*—prowess.

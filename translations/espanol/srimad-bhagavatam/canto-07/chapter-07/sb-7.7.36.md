@@ -1,11 +1,11 @@
 ### SB 7.7.36
 
-> तदा पुमान्मुक्तसमस्तबन्धनस्तद्भावभावानुकृताशयाकृतिः
+> तदा पुमान्मुक्तसमस्तबन्धनस्तद्भावभावानुकृताशयाकृतिः\
 > निर्दग्धबीजानुशयो महीयसा भक्तिप्रयोगेण समेत्यधोक्षजम ॥३६॥
 
-> tadā pumān mukta-samasta-bandhanas
-> tad-bhāva-bhāvānukṛtāśayākṛtiḥ
-> nirdagdha-bījānuśayo mahīyasā
+> tadā pumān mukta-samasta-bandhanas\
+> tad-bhāva-bhāvānukṛtāśayākṛtiḥ\
+> nirdagdha-bījānuśayo mahīyasā\
 > bhakti-prayogeṇa samety adhokṣajam
 
 *tadā*—en ese momento; *pumān*—la entidad viviente; *mukta*—liberada; *samasta-bandhanaḥ*—de todos los obstáculos materiales en la senda del servicio devocional; *tat-bhāva*—de la situación de las actividades del Señor Supremo; *bhāva*—por pensar; *anukṛta*—que se han vuelto semejantes; *āśaya-ākṛtiḥ*—cuya mente y cuyo cuerpo; *nirdagdha*—completamente reducida a cenizas; *bīja*—la semilla o causa original de la existencia material; *anuśayaḥ*—deseo; *mahīyasā*—muy poderoso; *bhakti*—de servicio devocional; *prayogeṇa*—por la aplicación; *sameti*—obtiene; *adhokṣajam*—a la Suprema Personalidad de Dios, que está fuera del alcance de la mente y el conocimiento materiales.

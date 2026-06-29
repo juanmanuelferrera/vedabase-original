@@ -1,13 +1,13 @@
 ### CC Madhya 24.120
 
-> অক্লেশাং কমলভুবঃ প্রবিশ্য গোষ্ঠীং
-> কুর্বন্তঃ শ্রুতিশিরসাং শ্রুতিং শ্রুতজ্ঞাঃ ।
-> উত্তুঙ্গং যদুপুরসঙ্গমায় রঙ্গং
+> অক্লেশাং কমলভুবঃ প্রবিশ্য গোষ্ঠীং\
+> কুর্বন্তঃ শ্রুতিশিরসাং শ্রুতিং শ্রুতজ্ঞাঃ ।\
+> উত্তুঙ্গং যদুপুরসঙ্গমায় রঙ্গং\
 > যোগীন্দ্রাঃ পুলকভৃতো নবাপ্যবাপুঃ ॥১২০॥
 
-> akleśāṁ kamala-bhuvaḥ praviśya goṣṭhīṁ
-> kurvantaḥ śruti-śirasāṁ śrutiṁ śrutajñāḥ
-> uttuṅgaṁ yadu-pura-saṅgamāya raṅgaṁ
+> akleśāṁ kamala-bhuvaḥ praviśya goṣṭhīṁ\
+> kurvantaḥ śruti-śirasāṁ śrutiṁ śrutajñāḥ\
+> uttuṅgaṁ yadu-pura-saṅgamāya raṅgaṁ\
 > yogīndrāḥ pulaka-bhṛto navāpy avāpuḥ
 
 *akleśām*—without material trouble; *kamala-bhuvaḥ*—of Lord Brahmā, who took his birth from the lotus flower; *praviśya*—entering; *goṣṭhīm*—the association; *kurvantaḥ*—continuously performing; *śruti-śirasām*—of the topmost Vedic knowledge; *śrutim*—hearing; *śruta-jñāḥ*—who are expert in Vedic knowledge; *uttuṅgam*—very high; *yadu-pura-saṅgamāya*—for going back home, back to Godhead, to Dvārakā; *raṅgam*—to Raṅga-kṣetra; *yogīndrāḥ*—great saintly persons; *pulaka-bhṛtaḥ*—being spiritually pleased; *nava*—nine; *api*—although; *avāpuḥ*—achieved.

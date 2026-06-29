@@ -1,11 +1,11 @@
 ### SB 2.8.26
 
-> न मेऽसवः परायन्ति ब्रह्मन्ननशनादमी ।
+> न मेऽसवः परायन्ति ब्रह्मन्ननशनादमी ।\
 > पिबतो ञ्च्युतपीयूषम्तद्वाक्याब्धिविनिःसृतम् ॥२६॥
 
-> na me 'savaḥ parāyanti
-> brahmann anaśanād amī
-> pibato 'cyuta-pīyūṣam
+> na me 'savaḥ parāyanti\
+> brahmann anaśanād amī\
+> pibato 'cyuta-pīyūṣam\
 > tad vākyābdhi-viniḥsṛtam
 
 *na*—nunca; *me*—mía; *asavaḥ*—vida; *parāyanti*—queda agotada; *brahman*—¡oh, *brāhmaṇa* erudito!; *anaṣanāt amī*—por ayunar; *pibataḥ*—por mi acción de beber; *acyuta*—del Infalible; *pīyūṣam*—néctar; *tat*—tu; *vākya-abdhi*—océano de habla; *viniḥsṛtam*—fluyendo hacia abajo desde.

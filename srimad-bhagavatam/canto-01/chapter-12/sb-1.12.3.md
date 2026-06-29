@@ -1,11 +1,11 @@
 ### SB 1.12.3
 
-> तदिदं श्रोतुमिच्छामो गदितुं यदि मन्यसे ।
+> तदिदं श्रोतुमिच्छामो गदितुं यदि मन्यसे ।\
 > ब्रूहि नः श्रद्दधानानां यस्य ज्ञानमदाच्छुकः ॥३॥
 
-> tad idaṁ śrotum icchāmo
-> gadituṁ yadi manyase
-> brūhi naḥ śraddadhānānāṁ
+> tad idaṁ śrotum icchāmo\
+> gadituṁ yadi manyase\
+> brūhi naḥ śraddadhānānāṁ\
 > yasya jñānam adāc chukaḥ
 
 *tat*—all; *idam*—this; *śrotum*—to hear; *icchāmaḥ*—all willing; *gaditum*—to narrate; *yadi*—if; *manyase*—you think; *brūhi*—please speak; *naḥ*—we; *śraddadhānānām*—who are very much respectful; *yasya*—whose; *jñānam*—transcendental knowledge; *adāt*—delivered; *śukaḥ*—Śrī Śukadeva Gosvāmī.

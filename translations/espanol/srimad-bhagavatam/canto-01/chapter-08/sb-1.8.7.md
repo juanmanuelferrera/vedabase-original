@@ -1,11 +1,11 @@
 ### SB 1.8.7
 
-> आमन्त्र्य पाण्डुपुत्रांश्च शैनेयोद्धवसंयुतः ।
+> आमन्त्र्य पाण्डुपुत्रांश्च शैनेयोद्धवसंयुतः ।\
 > द्वैपायनादिभिर्विप्रैः पूजितैः प्रतिपूजितः ॥७॥
 
-> āmantrya pāṇḍu-putrāṁś ca
-> śaineyoddhava-saṁyutaḥ
-> dvaipāyanādibhir vipraiḥ
+> āmantrya pāṇḍu-putrāṁś ca\
+> śaineyoddhava-saṁyutaḥ\
+> dvaipāyanādibhir vipraiḥ\
 > pūjitaiḥ pratipūjitaḥ
 
 *āmantrya*—invitando; *pāṇḍu-putrān*—todos los hijos de Pāṇḍu; *ca*—también; *śaineya*—Sātyaki; *uddhava*—Uddhava; *saṁyutaḥ*—acompañado; *dvaipāyana-ādibhiḥ*—por los *ṛṣis* tales como Vedavyāsa; *vipraiḥ*—por los *brāhmaṇas*; *pūjitaiḥ*—siendo adorado; *pratipūjitaḥ*—el Señor también correspondió equitativamente.

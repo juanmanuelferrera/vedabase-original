@@ -1,11 +1,11 @@
 ### SB 3.8.20
 
-> तमस्यपारे विदुरात्मसर्गं विचिन्वतोऽभूत्सुमहांस्त्रिणेमिः ।
+> तमस्यपारे विदुरात्मसर्गं विचिन्वतोऽभूत्सुमहांस्त्रिणेमिः ।\
 > यो देहभाजां भयमीरयाणः परिक्षिणोत्यायुरजस्य हेतिः ॥२०॥
 
-> tamasy apāre vidurātma-sargaṁ
-> vicinvato 'bhūt sumahāṁs tri-ṇemiḥ
-> yo deha-bhājāṁ bhayam īrayāṇaḥ
+> tamasy apāre vidurātma-sargaṁ\
+> vicinvato 'bhūt sumahāṁs tri-ṇemiḥ\
+> yo deha-bhājāṁ bhayam īrayāṇaḥ\
 > parikṣiṇoty āyur ajasya hetiḥ
 
 *tamasi apāre*—because of an ignorant way of searching; *vidura*—O Vidura; *ātma-sargam*—the cause of his creation; *vicinvataḥ*—while contemplating; *abhūt*—it so became; *su-mahān*—very great; *tri-nemiḥ*—time of three dimensions; *yaḥ*—which; *deha-bhājām*—of the embodied; *bhayam*—fearfulness; *īrayāṇaḥ*—generating; *parikṣiṇoti*—diminishing the one hundred years; *āyuḥ*—duration of life; *ajasya*—of the self-born; *hetiḥ*—the wheel of eternal time.

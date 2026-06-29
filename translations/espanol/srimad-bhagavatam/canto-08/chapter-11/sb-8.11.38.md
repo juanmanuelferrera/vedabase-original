@@ -1,11 +1,11 @@
 ### SB 8.11.38
 
-> मयास्मै यद्वरो दत्तो मृत्युर्नैवार्द्रशुष्कयोः
+> मयास्मै यद्वरो दत्तो मृत्युर्नैवार्द्रशुष्कयोः\
 > अतोऽन्यश्चिन्तनीयस्ते उपायो मघवन्रिपोः ॥३८॥
 
-> mayāsmai yad varo datto
-> mṛtyur naivārdra-śuṣkayoḥ
-> ato 'nyaś cintanīyas te
+> mayāsmai yad varo datto\
+> mṛtyur naivārdra-śuṣkayoḥ\
+> ato 'nyaś cintanīyas te\
 > upāyo maghavan ripoḥ
 
 *mayā*—por mí; *asmai*—a él; *yat*—debido a que; *varaḥ*—una bendición; *dattaḥ*—fue concedida; *mṛtyuḥ*—muerte; *na*—no; *eva*—en verdad; *ārdra*—ni por un húmedo; *śuṣkayoḥ*—ni por un medio seco; *ataḥ*—por lo tanto; *anyaḥ*—otra cosa, otro; *cintanīyaḥ*—se tiene que pensar en; *te*—por ti; *upāyaḥ*—medio; *maghavan*—¡oh, Indra!; *ripoḥ*—de tu enemigo.

@@ -1,9 +1,9 @@
 ### CC Antya 3.251
 
-> ব্রহ্মাদি জীব, আমি সবারে মোহিলুঁ ।
+> ব্রহ্মাদি জীব, আমি সবারে মোহিলুঁ ।\
 > একেলা তোমারে আমি মোহিতে নারিলুঁ ॥২৫১॥
 
-> brahmādi jīva, āmi sabāre mohiluṅ
+> brahmādi jīva, āmi sabāre mohiluṅ\
 > ekelā tomāre āmi mohite nāriluṅ
 
 *brahma-ādi jīva*—all living entities, beginning from Lord Brahmā; *āmi*—I; *sabāre mohiluṅ*—captivated everyone; *ekelā*—alone; *tomāre*—you; *āmi*—I; *mohite nāriluṅ*—could not attract.

@@ -1,9 +1,9 @@
 ### CC Antya 4.229
 
-> ‘ভাগবত-সন্দর্ভ’-নাম কৈল গ্রন্থ সার ।
+> ‘ভাগবত-সন্দর্ভ’-নাম কৈল গ্রন্থ সার ।\
 > ভাগবত-সিদ্ধান্তের তাহাঁ পাইয়ে পার ॥২২৯॥
 
-> 'bhāgavata-sandarbha'-nāma kaila grantha-sāra
+> 'bhāgavata-sandarbha'-nāma kaila grantha-sāra\
 > bhāgavata-siddhāntera tāhāṅ pāiye pāra
 
 *bhāgavata-sandarbha*—the *Bhāgavata-sandarbha,* which is also known as *Ṣaṭ-sandarbha*; *nāma*—named; *kaila*—made; *grantha-sāra*—the essence of all scriptures; *bhāgavata-siddhāntera*—of conclusive information about the Supreme Personality of Godhead and His service; *tāhāṅ*—there; *pāiye*—we get; *pāra*—the limit.

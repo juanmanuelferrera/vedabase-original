@@ -1,11 +1,11 @@
 ### SB 6.17.22
 
-> न तस्य कश्चिद्दयितः प्रतीपो न ज्ञआतिबन्धुर्न परो न च स्वः
+> न तस्य कश्चिद्दयितः प्रतीपो न ज्ञआतिबन्धुर्न परो न च स्वः\
 > समस्य सर्वत्र निरञ्जनस्य सुखे न रागः कुत एव रोषः ॥२२॥
 
-> na tasya kaścid dayitaḥ pratīpo
-> na jñāti-bandhur na paro na ca svaḥ
-> samasya sarvatra nirañjanasya
+> na tasya kaścid dayitaḥ pratīpo\
+> na jñāti-bandhur na paro na ca svaḥ\
+> samasya sarvatra nirañjanasya\
 > sukhe na rāgaḥ kuta eva roṣaḥ
 
 *na*—not; *tasya*—of Him (the Supreme Lord); *kaścit*—anyone; *dayitaḥ*—dear; *pratīpaḥ*—not dear; *na*—nor; *jñāti*—kinsman; *bandhuḥ*—friend; *na*—nor; *paraḥ*—other; *na*—nor; *ca*—also; *svaḥ*—own; *samasya*—who is equal; *sarvatra*—everywhere; *nirañjanasya*—without being affected by material nature; *sukhe*—in happiness; *na*—not; *rāgaḥ*—attachment; *kutaḥ*—from where; *eva*—indeed; *roṣaḥ*—anger.

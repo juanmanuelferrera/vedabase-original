@@ -1,11 +1,11 @@
 ### SB 3.26.62
 
-> एते ह्यभ्युत्थिता देवा नैवास्योत्थापनेऽशकन् ।
+> एते ह्यभ्युत्थिता देवा नैवास्योत्थापनेऽशकन् ।\
 > पुनराविविशुः खानि तमुत्थापयितुं क्रमात् ॥६२॥
 
-> ete hy abhyutthitā devā
-> naivāsyotthāpane 'śakan
-> punar āviviśuḥ khāni
+> ete hy abhyutthitā devā\
+> naivāsyotthāpane 'śakan\
+> punar āviviśuḥ khāni\
 > tam utthāpayituṁ kramāt
 
 *ete*—estos; *hi*—ciertamente; *abhyutthitāḥ*—manifestados; *devāḥ*—semidioses; *na*—no; *eva*—en absoluto; *asya*—del *virāṭ-puruṣa*; *utthāpane*—despertar; *aśakan*—pudieron; *punaḥ*—de nuevo; *āviviśuḥ*—entraron; *khāni*—las aberturas del cuerpo; *tam*—a Él; *utthāpayitum*—para despertar; *kramāt*—uno tras otro.

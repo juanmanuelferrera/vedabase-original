@@ -1,13 +1,13 @@
 ### CC Madhya 22.42
 
-> স্থানাভিলাষী তপসি স্থিতোঽহং
-> ত্বাং প্রাপ্তবান্ দেবমুনীন্দ্রগুহ্যম্ ।
-> কাচং বিচিন্বন্নপি দিব্যরত্নং
+> স্থানাভিলাষী তপসি স্থিতোঽহং\
+> ত্বাং প্রাপ্তবান্ দেবমুনীন্দ্রগুহ্যম্ ।\
+> কাচং বিচিন্বন্নপি দিব্যরত্নং\
 > স্বামিন্ কৃতার্থোঽস্মি বরং ন যাচে ॥৪২॥
 
-> sthānābhilāṣī tapasi sthito 'haṁ
-> tvāṁ prāptavān deva-munīndra-guhyam
-> kācaṁ vicinvann api divya-ratnaṁ
+> sthānābhilāṣī tapasi sthito 'haṁ\
+> tvāṁ prāptavān deva-munīndra-guhyam\
+> kācaṁ vicinvann api divya-ratnaṁ\
 > svāmin kṛtārtho 'smi varaṁ na yāce
 
 *sthāna-abhilāṣī*—desiring a very high position in the material world; *tapasi*—in severe austerities and penances; *sthitaḥ*—situated; *aham*—I; *tvām*—You; *prāptavān*—have obtained; *deva-muni-indra-guhyam*—difficult to achieve even for great demigods, saintly persons and kings; *kācam*—a piece of glass; *vicinvan*—searching for; *api*—although; *divya-ratnam*—a transcendental gem; *svāmin*—O my Lord; *kṛta-arthaḥ asmi*—I am fully satisfied; *varam*—any benediction; *na yāce*—I do not ask.

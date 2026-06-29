@@ -1,9 +1,9 @@
 ### CC Madhya 17.153
 
-> পূর্বে যেন ‘দক্ষিণ’ যাইতে লোক নিস্তারিলা ।
+> পূর্বে যেন ‘দক্ষিণ’ যাইতে লোক নিস্তারিলা ।\
 > ‘পশ্চিম’-দেশে তৈছে সব ‘বৈষ্ণব’ করিলা ॥১৫৩॥
 
-> pūrve yena 'dakṣiṇa' yāite loka nistārilā
+> pūrve yena 'dakṣiṇa' yāite loka nistārilā\
 > 'paścima'-deśe taiche saba 'vaiṣṇava' karilā
 
 *pūrve*—formerly; *yena*—as; *dakṣiṇa*—South India; *yāite*—going to; *loka*—the people; *nistārilā*—He delivered; *paścima-deśe*—in the western countries; *taiche*—similarly; *saba*—all; *vaiṣṇava*—devotees; *karilā*—made.

@@ -1,9 +1,9 @@
 ### CC Antya 18.48
 
-> বড় মৎস্য বলি’ আমি উঠাইলুঁ যতনে ।
+> বড় মৎস্য বলি’ আমি উঠাইলুঁ যতনে ।\
 > মৃতক দেখিতে মোর ভয় হৈল মনে ॥৪৮॥
 
-> baḍa matsya bali' āmi uṭhāiluṅ yatane
+> baḍa matsya bali' āmi uṭhāiluṅ yatane\
 > mṛtaka dekhite mora bhaya haila mane
 
 *baḍa*—gran; *matsya*—pez; *bali'*—pensando que era; *āmi*—yo; *uṭhāiluṅ*—levanté; *yatane*—con cuidado; *mṛtaka*—el cadáver; *dekhite*—al ver; *mora*—mi; *bhaya*—miedo; *haila*—hubo; *mane*—en la mente.

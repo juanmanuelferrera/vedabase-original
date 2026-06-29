@@ -1,9 +1,9 @@
 ### CC Madhya 12.84
 
-> চারিদিকে শত ভক্ত সংমার্জনী করে ।
+> চারিদিকে শত ভক্ত সংমার্জনী করে ।\
 > আপনি শোধেন প্রভু, শিখা’ন সবারে ॥৮৪॥
 
-> cāri-dike śata bhakta sammārjanī-kare
+> cāri-dike śata bhakta sammārjanī-kare\
 > āpani śodhena prabhu, śikhā'na sabāre
 
 *cāri-dike*—all around; *śata*—hundreds of; *bhakta*—devotees; *sammārjanī-kare*—do the cleansing work; *āpani*—personally; *śodhena*—cleanses; *prabhu*—the Lord; *śikhā'na sabāre*—teaching all others.

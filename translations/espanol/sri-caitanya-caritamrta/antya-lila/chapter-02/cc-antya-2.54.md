@@ -1,9 +1,9 @@
 ### CC Antya 2.54
 
-> দুই দিন ধ্যান করি’ শিবানন্দেরে কহিল  ।
+> দুই দিন ধ্যান করি’ শিবানন্দেরে কহিল  ।\
 > “পাণিহাটি গ্রামে আমি প্রভুরে আনিল ॥৫৪॥
 
-> dui dina dhyāna kari' śivānandere kahila
+> dui dina dhyāna kari' śivānandere kahila\
 > "pāṇihāṭi grāme āmi prabhure ānila
 
 *dui dina*—durante dos días; *dhyāna kari'*—después de meditar; *śivānandere kahila*—le dijo a Śivānanda Sena; *pāṇihāṭi grāme*—a la aldea llamada Pāṇihāṭi; *āmi*—yo; *prabhure ānila*—he traído a Śrī Caitanya Mahāprabhu.

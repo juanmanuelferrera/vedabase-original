@@ -1,11 +1,11 @@
 ### SB 4.24.70
 
-> तमेवात्मानमात्मस्थं सर्वभूतेष्ववस्थितम् ।
+> तमेवात्मानमात्मस्थं सर्वभूतेष्ववस्थितम् ।\
 > पूजयध्वं गृणन्तश्च ध्यायन्तश्चासकृद्धरिम् ॥७०॥
 
-> tam evātmānam ātma-sthaṁ
-> sarva-bhūteṣv avasthitam
-> pūjayadhvaṁ gṛṇantaś ca
+> tam evātmānam ātma-sthaṁ\
+> sarva-bhūteṣv avasthitam\
+> pūjayadhvaṁ gṛṇantaś ca\
 > dhyāyantaś cāsakṛd dharim
 
 *tam*—unto Him; *eva*—certainly; *ātmānam*—the Supreme Soul; *ātma-stham*—within your hearts; *sarva*—all; *bhūteṣu*—in every living being; *avasthitam*—situated; *pūjayadhvam*—just worship Him; *gṛṇantaḥ ca*—always chanting; *dhyāyantaḥ ca*—always meditating upon; *asakṛt*—continuously; *harim*—the Supreme Personality of Godhead.

@@ -1,11 +1,11 @@
 ### Bg 4.8
 
-> परित्राणाय साधूनां विनाशाय च दुष्कृताम् ।
+> परित्राणाय साधूनां विनाशाय च दुष्कृताम् ।\
 > धर्मसंस्थापनार्थाय सम्भवामि युगे युगे ॥८॥
 
-> paritrāṇāya sādhūnāṁ
-> vināśāya ca duṣkṛtām
-> dharma-saṁsthāpanārthāya
+> paritrāṇāya sādhūnāṁ\
+> vināśāya ca duṣkṛtām\
+> dharma-saṁsthāpanārthāya\
 > sambhavāmi yuge yuge
 
 *paritrāṇāya*—for the deliverance; *sādhūnām*—of the devotees; *vināśāya*—for the annihilation; *ca*—also; *duṣkṛtām*—of the miscreants; *dharma*—principles of religion; *saṁsthāpana-arthāya*—to reestablish; *sambhavāmi*—I do appear; *yuge*—millennium; *yuge*—after millennium.

@@ -1,14 +1,14 @@
 ### SB 3.29.33
 
-> तस्मान्मय्यर्पिताशेष क्रियार्थात्मा निरन्तरः ।
-> मय्यर्पितात्मनः पुंसो मयि सन्न्यस्तकर्मणः ।
+> तस्मान्मय्यर्पिताशेष क्रियार्थात्मा निरन्तरः ।\
+> मय्यर्पितात्मनः पुंसो मयि सन्न्यस्तकर्मणः ।\
 > न पश्यामि परं भूतमकर्तुः समदर्शनात् ॥३३॥
 
-> tasmān mayy arpitāśeṣa-
-> kriyārthātmā nirantaraḥ
-> mayy arpitātmanaḥ puṁso
-> mayi sannyasta-karmaṇaḥ
-> na paśyāmi paraṁ bhūtam
+> tasmān mayy arpitāśeṣa-\
+> kriyārthātmā nirantaraḥ\
+> mayy arpitātmanaḥ puṁso\
+> mayi sannyasta-karmaṇaḥ\
+> na paśyāmi paraṁ bhūtam\
 > akartuḥ sama-darśanāt
 
 *tasmāt*—que él; *mayi*—a Mí; *arpita*—ofrecidas; *aśeṣa*—todas; *kriyā*—acciones; *artha*—riqueza; *ātmā*—vida, alma; *nirantaraḥ*—sin interrupción; *mayi*—a Mí; *arpita*—ofrecida; *ātmanaḥ*—cuya mente; *puṁsaḥ*—que una persona; *mayi*—a Mí; *sannyasta*—dedicadas; *karmaṇaḥ*—cuyas actividades; *na*—no; *paśyāmi*—Yo veo; *param*—más grande; *bhūtam*—entidad viviente; *akartuḥ*—sin sentido de propiedad; *sama*—misma; *darśanāt*—cuya visión.

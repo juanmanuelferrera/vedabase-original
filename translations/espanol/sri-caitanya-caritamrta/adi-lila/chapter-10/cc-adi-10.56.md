@@ -1,9 +1,9 @@
 ### CC Adi 10.56
 
-> ভক্তে কৃপা করেন প্রভু এ-তিন স্বরূপে ।
+> ভক্তে কৃপা করেন প্রভু এ-তিন স্বরূপে ।\
 > ‘সাক্ষাৎ’, ‘আবেশ’ আর ‘আবির্ভাব’-রূপে ॥৫৬॥
 
-> bhakte kṛpā karena prabhu e-tina svarūpe
+> bhakte kṛpā karena prabhu e-tina svarūpe\
 > 'sākṣāt,' 'āveśa' āra 'āvirbhāva'-rūpe
 
 *bhakte*—a los devotos; *kṛpā*—misericordia; *karena*—otorga; *prabhu*—el Señor Caitanya; *e*—estos; *tina*—tres; *svarūpe*—rasgos; *sākṣāt*—directamente; *āveśa*—investido de poder por el Señor; *āra*—y; *āvirbhāva*—aparición; *rūpe*—en los rasgos.

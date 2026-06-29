@@ -1,18 +1,18 @@
 ### SB 3.10.28-29
 
-> देवसर्गश्चाष्टविधो विबुधाः पितरोऽसुराः ।
-> गन्धर्वाप्सरसः सिद्धा यक्षरक्षांसि चारणाः ॥२८॥
-> भूतप्रेतपिशाचाश्च विद्याध्राः किन्नरादयः ।
+> देवसर्गश्चाष्टविधो विबुधाः पितरोऽसुराः ।\
+> गन्धर्वाप्सरसः सिद्धा यक्षरक्षांसि चारणाः ॥२८॥\
+> भूतप्रेतपिशाचाश्च विद्याध्राः किन्नरादयः ।\
 > दशैते विदुराख्याताः सर्गास्ते विश्वसृक्कृताः ॥२९॥
 
-> deva-sargaś cāṣṭa-vidho
-> vibudhāḥ pitaro 'surāḥ
-> gandharvāpsarasaḥ siddhā
+> deva-sargaś cāṣṭa-vidho\
+> vibudhāḥ pitaro 'surāḥ\
+> gandharvāpsarasaḥ siddhā\
 > yakṣa-rakṣāṁsi cāraṇāḥ
 
-> bhūta-preta-piśācāś ca
-> vidyādhrāḥ kinnarādayaḥ
-> daśaite vidurākhyātāḥ
+> bhūta-preta-piśācāś ca\
+> vidyādhrāḥ kinnarādayaḥ\
+> daśaite vidurākhyātāḥ\
 > sargās te viśva-sṛk-kṛtāḥ
 
 *deva-sargaḥ*—creation of the demigods; *ca*—also; *aṣṭa-vidhaḥ*—eight kinds; *vibudhāḥ*—the demigods; *pitaraḥ*—the forefathers; *asurāḥ*—the demons; *gandharva*—the expert artisans in the higher planets; *apsarasaḥ*—the angels; *siddhāḥ*—persons who are perfect in mystic powers; *yakṣa*—the superprotectors; *rakṣāṁsi*—giants; *cāraṇāḥ*—the celestial singers; *bhūta*—jinn; *preta*—evil spirits; *piśācāḥ*—attendant spirits; *ca*—also; *vidyādhrāḥ*—the celestial denizens named Vidyādharas; *kinnara*—superhuman beings; *ādayaḥ*—and others; *daśa ete*—all these ten (creations); *vidura*—O Vidura; *ākhyātāḥ*—described; *sargāḥ*—creations; *te*—unto you; *viśva-sṛk*—the creator of the universe (Brahmā); *kṛtāḥ*—done by him.

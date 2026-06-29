@@ -1,9 +1,9 @@
 ### CC Madhya 8.293
 
-> নিগূঢ় ব্রজের রস-লীলার বিচার ।
+> নিগূঢ় ব্রজের রস-লীলার বিচার ।\
 > অনেক কহিল, তার না পাইল পার ॥২৯৩॥
 
-> nigūḍha vrajera rasa-līlāra vicāra
+> nigūḍha vrajera rasa-līlāra vicāra\
 > aneka kahila, tāra nā pāila pāra
 
 *nigūḍha*—very confidential; *vrajera*—of Vṛndāvana, or Vrajabhūmi; *rasa-līlāra*—of the pastimes of conjugal love between Kṛṣṇa and the *gopīs*; *vicāra*—consideration; *aneka*—various; *kahila*—spoke; *tāra*—of that; *nā*—not; *pāila*—got; *pāra*—the limit.

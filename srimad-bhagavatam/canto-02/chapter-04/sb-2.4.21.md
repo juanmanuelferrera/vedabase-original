@@ -1,11 +1,11 @@
 ### SB 2.4.21
 
-> यदङ्घ्र्यभिध्यानसमाधिधौतया धियानुपश्यन्ति हि तत्त्वमात्मनः ।
+> यदङ्घ्र्यभिध्यानसमाधिधौतया धियानुपश्यन्ति हि तत्त्वमात्मनः ।\
 > वदन्ति चैतत्कवयो यथारुचं स मे मुकुन्दो भगवान्प्रसीदताम् ॥२१॥
 
-> yad-aṅghry-abhidhyāna-samādhi-dhautayā
-> dhiyānupaśyanti hi tattvam ātmanaḥ
-> vadanti caitat kavayo yathā-rucaṁ
+> yad-aṅghry-abhidhyāna-samādhi-dhautayā\
+> dhiyānupaśyanti hi tattvam ātmanaḥ\
+> vadanti caitat kavayo yathā-rucaṁ\
 > sa me mukundo bhagavān prasīdatām
 
 *yat-aṅghri*—whose lotus feet; *abhidhyāna*—thinking of, at every second; *samādhi*—trance; *dhautayā*—being washed off; *dhiyā*—by such clean intelligence; *anupaśyanti*—does see by following authorities; *hi*—certainly; *tattvam*—the Absolute Truth; *ātmanaḥ*—of the Supreme Lord and of oneself; *vadanti*—they say; *ca*—also; *etat*—this; *kavayaḥ*—philosophers or learned scholars; *yathā-rucam*—as he thinks; *saḥ*—He; *me*—mine; *mukundaḥ*—Lord Kṛṣṇa (who gives liberation); *bhagavān*—the Personality of Godhead; *prasīdatām*—be pleased with me.

@@ -1,9 +1,9 @@
 ### CC Madhya 13.111
 
-> এইমত তাণ্ডব-নৃত্য কৈল কতক্ষণ ।
+> এইমত তাণ্ডব-নৃত্য কৈল কতক্ষণ ।\
 > ভাব-বিশেষে প্রভুর প্ৰবেশিল মন ॥১১১॥
 
-> ei-mata tāṇḍava-nṛtya kaila kata-kṣaṇa
+> ei-mata tāṇḍava-nṛtya kaila kata-kṣaṇa\
 > bhāva-viśeṣe prabhura praveśila mana
 
 *ei-mata*—de este modo; *tāṇḍava-nṛtya*—danza arrolladora; *kaila*—realizó; *kata-kṣaṇa*—durante algún tiempo; *bhāva-viśeṣe*—en un éxtasis particular; *prabhura*—del Señor Caitanya Mahāprabhu; *praveśila mana*—la mente entró.

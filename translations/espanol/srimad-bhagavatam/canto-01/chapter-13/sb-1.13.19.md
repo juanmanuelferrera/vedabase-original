@@ -1,11 +1,11 @@
 ### SB 1.13.19
 
-> प्रतिक्रिया न यस्येह कुतश्चित्कर्हिचित्प्रभो ।
+> प्रतिक्रिया न यस्येह कुतश्चित्कर्हिचित्प्रभो ।\
 > स एष भगवान्कालः सर्वेषां नः समागतः ॥१९॥
 
-> pratikriyā na yasyeha
-> kutaścit karhicit prabho
-> sa eṣa bhagavān kālaḥ
+> pratikriyā na yasyeha\
+> kutaścit karhicit prabho\
+> sa eṣa bhagavān kālaḥ\
 > sarveṣāṁ naḥ samāgataḥ
 
 *pratikriyā*—medida correctiva; *na*—no hay ninguna; *yasya*—de lo cual; *iha*—en este mundo material; *kutaścit*—por ningún medio; *karhicit*—ni por nadie; *prabho*—¡oh, mi Señor!; *saḥ*—eso; *eṣaḥ*—positivamente; *bhagavān*—la Personalidad de Dios; *kālaḥ*—el tiempo eterno; *sarveṣām*—de todos; *naḥ*—de nosotros; *samāgataḥ*—llegó.

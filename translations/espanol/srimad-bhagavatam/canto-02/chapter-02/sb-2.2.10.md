@@ -1,11 +1,11 @@
 ### SB 2.2.10
 
-> उन्निद्रहृत्पङ्कजकर्णिकालये योगेश्वरास्थापितपादपल्लवम् ।
+> उन्निद्रहृत्पङ्कजकर्णिकालये योगेश्वरास्थापितपादपल्लवम् ।\
 > श्रीलक्षणं कौस्तुभरत्नकन्धरमम्लानलक्ष्म्या वनमालयाचितम् ॥१०॥
 
-> unnidra-hṛt-paṅkaja-karṇikālaye
-> yogeśvarāsthāpita-pāda-pallavam
-> śrī-lakṣaṇaṁ kaustubha-ratna-kandharam
+> unnidra-hṛt-paṅkaja-karṇikālaye\
+> yogeśvarāsthāpita-pāda-pallavam\
+> śrī-lakṣaṇaṁ kaustubha-ratna-kandharam\
 > amlāna-lakṣmyā vana-mālayācitam
 
 *unnidra*—floreciente; *hṛt*—corazón; *paṅkaja*—flor de loto; *karṇikā-ālaye*—en la superficie del verticilo; *yoga-īśvara*—los grandes místicos; *āsthāpita*—colocaron; *pāda-pallavam*—los pies de loto; *śrī*—la diosa de la fortuna, o un hermoso ternero; *lakṣaṇam*—marcado de ese modo; *kaustubha*—la joya Kaustubha; *ratna*—otras joyas; *kandharam*—en el hombro; *amlāna*—muy fresca; *lakṣmyā*—belleza; *vana-mālayā*—con una guirnalda de flores; *ācitam*—extendida.

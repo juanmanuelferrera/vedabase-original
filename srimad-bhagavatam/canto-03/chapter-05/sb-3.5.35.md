@@ -1,11 +1,11 @@
 ### SB 3.5.35
 
-> अनिलेनान्वितं ज्योतिर्विकुर्वत्परवीक्षितम् ।
+> अनिलेनान्वितं ज्योतिर्विकुर्वत्परवीक्षितम् ।\
 > आधत्ताम्भो रसमयं कालमायांशयोगतः ॥३५॥
 
-> anilenānvitaṁ jyotir
-> vikurvat paravīkṣitam
-> ādhattāmbho rasa-mayaṁ
+> anilenānvitaṁ jyotir\
+> vikurvat paravīkṣitam\
+> ādhattāmbho rasa-mayaṁ\
 > kāla-māyāṁśa-yogataḥ
 
 *anilena*—by the air; *anvitam*—interacted; *jyotiḥ*—electricity; *vikurvat*—being transformed; *paravīkṣitam*—being glanced over by the Supreme; *ādhatta*—created; *ambhaḥ rasa-mayam*—water with taste; *kāla*—of eternal time; *māyā-aṁśa*—and external energy; *yogataḥ*—by a mixture.

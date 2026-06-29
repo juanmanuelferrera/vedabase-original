@@ -1,11 +1,11 @@
 ### SB 4.28.37
 
-> शीतोष्णवातवर्षाणि क्षुत्पिपासे प्रियाप्रिये ।
+> शीतोष्णवातवर्षाणि क्षुत्पिपासे प्रियाप्रिये ।\
 > सुखदुःखे इति द्वन्द्वान्यजयत्समदर्शनः ॥३७॥
 
-> śītoṣṇa-vāta-varṣāṇi
-> kṣut-pipāse priyāpriye
-> sukha-duḥkhe iti dvandvāny
+> śītoṣṇa-vāta-varṣāṇi\
+> kṣut-pipāse priyāpriye\
+> sukha-duḥkhe iti dvandvāny\
 > ajayat sama-darśanaḥ
 
 *śīta*—cold; *uṣṇa*—heat; *vāta*—wind; *varṣāṇi*—and rainy seasons; *kṣut*—hunger; *pipāse*—and thirst; *priya*—pleasant; *apriye*—and unpleasant; *sukha*—happiness; *duḥkhe*—and distress; *iti*—thus; *dvandvāni*—dualities; *ajayat*—he conquered; *sama-darśanaḥ*—equipoised.

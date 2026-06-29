@@ -1,11 +1,11 @@
 ### SB 1.4.27
 
-> नातिप्रसीदद्धृदयः सरस्वत्यास्तटे शुचौ ।
+> नातिप्रसीदद्धृदयः सरस्वत्यास्तटे शुचौ ।\
 > वितर्कयन्विविक्तस्थ इदं चोवाच धर्मवित् ॥२७॥
 
-> nātiprasīdad dhṛdayaḥ
-> sarasvatyās taṭe śucau
-> vitarkayan vivikta-stha
+> nātiprasīdad dhṛdayaḥ\
+> sarasvatyās taṭe śucau\
+> vitarkayan vivikta-stha\
 > idaṁ covāca dharma-vit
 
 *na*—no; *atiprasīdat*—sumamente satisfecho; *hṛdayaḥ*—de corazón; *sarasvatyāḥ*—del río Sarasvatī; *taṭe*—a orillas de; *śucau*—estando purificado; *vitarkayan*—habiendo considerado; *vivikta-sthaḥ*—situado en un lugar solitario; *idam ca*—también esto; *uvāca*—dijo; *dharma-vit*—aquel que conoce lo que es la religión.

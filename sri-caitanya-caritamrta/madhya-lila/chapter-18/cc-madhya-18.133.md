@@ -1,9 +1,9 @@
 ### CC Madhya 18.133
 
-> কান্যকুব্জ-দাক্ষিণাত্যের বৈদিক ব্রাহ্মণ ।
+> কান্যকুব্জ-দাক্ষিণাত্যের বৈদিক ব্রাহ্মণ ।\
 > দৈন্য করি, করে মহাপ্রভুর নিমন্ত্রণ ॥১৩৩॥
 
-> kānyakubja-dākṣiṇātyera vaidika brāhmaṇa
+> kānyakubja-dākṣiṇātyera vaidika brāhmaṇa\
 > dainya kari, kare mahāprabhura nimantraṇa
 
 *kānyakubja*—brāhmaṇas from Kānyakubja; *dākṣiṇātyera*—certain *brāhmaṇas* from South India; *vaidika*—followers of the Vedic religion; *brāhmaṇa*—*brāhmaṇas*; *dainya kari*—with great humility; *kare*—do; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *nimantraṇa*—invitation.

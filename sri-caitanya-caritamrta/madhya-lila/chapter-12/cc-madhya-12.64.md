@@ -1,9 +1,9 @@
 ### CC Madhya 12.64
 
-> ‘কৃষ্ণ’ ‘কৃষ্ণ’ কহে, নাচে, করয়ে রোদন ।
+> ‘কৃষ্ণ’ ‘কৃষ্ণ’ কহে, নাচে, করয়ে রোদন ।\
 > তাঁর ভাগ্য দেখি’ শ্লাঘা করে ভক্তগণ ॥৬৪॥
 
-> 'kṛṣṇa' 'kṛṣṇa' kahe, nāce, karaye rodana
+> 'kṛṣṇa' 'kṛṣṇa' kahe, nāce, karaye rodana\
 > tāṅra bhāgya dekhi' ślāghā kare bhakta-gaṇa
 
 *kṛṣṇa kṛṣṇa*—O Kṛṣṇa, O Kṛṣṇa; *kahe*—chants; *nāce*—dances; *karaye*—does; *rodana*—crying; *tāṅra*—his; *bhāgya*—fortune; *dekhi'*—seeing; *ślāghā*—praise; *kare*—do; *bhakta-gaṇa*—all the devotees.

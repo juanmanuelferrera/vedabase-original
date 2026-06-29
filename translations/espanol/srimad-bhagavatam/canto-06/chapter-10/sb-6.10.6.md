@@ -1,11 +1,11 @@
 ### SB 6.10.6
 
-> नूनं स्वार्थपरो लोको न वेद परसङ्कटम
+> नूनं स्वार्थपरो लोको न वेद परसङ्कटम\
 > यदि वेद न याचेत नेति नाह यदीश्वरः ॥६॥
 
-> nūnaṁ svārtha-paro loko
-> na veda para-saṅkaṭam
-> yadi veda na yāceta
+> nūnaṁ svārtha-paro loko\
+> na veda para-saṅkaṭam\
+> yadi veda na yāceta\
 > neti nāha yad īśvaraḥ
 
 *nūnam*—ciertamente; *sva-artha-paraḥ*—cuyo único interés es la complacencia de los sentidos, en esta vida o en la siguiente; *lokaḥ*—la gente materialista en general; *na*—no; *veda*—conoce; *para-saṅkaṭam*—el sufrimiento ajeno; *yadi*—si; *veda*—conociese; *na*—no; *yāceta*—pediría; *na*—no; *iti*—así; *na āha*—no dice; *yat*—puesto que; *īśvaraḥ*—que puede dar caridad.

@@ -1,27 +1,27 @@
 ### SB 4.23.1-3
 
-> मैत्रेय उवाच
-> दृष्ट्वात्मानं प्रवयसमेकदा वैन्य आत्मवान् ।
-> आत्मना वर्धिताशेष स्वानुसर्गः प्रजापतिः ॥१॥
-> जगतस्तस्थुषश्चापि वृत्तिदो धर्मभृत्सताम् ।
-> निष्पादितेश्वरादेशो यदर्थमिह जज्ञिवान् ॥२॥
-> आत्मजेष्वात्मजां न्यस्य विरहाद्रुदतीमिव ।
+> मैत्रेय उवाच\
+> दृष्ट्वात्मानं प्रवयसमेकदा वैन्य आत्मवान् ।\
+> आत्मना वर्धिताशेष स्वानुसर्गः प्रजापतिः ॥१॥\
+> जगतस्तस्थुषश्चापि वृत्तिदो धर्मभृत्सताम् ।\
+> निष्पादितेश्वरादेशो यदर्थमिह जज्ञिवान् ॥२॥\
+> आत्मजेष्वात्मजां न्यस्य विरहाद्रुदतीमिव ।\
 > प्रजासु विमनःस्वेकः सदारोऽगात्तपोवनम् ॥३॥
 
-> maitreya uvāca
-> dṛṣṭvātmānaṁ pravayasam
-> ekadā vainya ātmavān
-> ātmanā vardhitāśeṣa-
+> maitreya uvāca\
+> dṛṣṭvātmānaṁ pravayasam\
+> ekadā vainya ātmavān\
+> ātmanā vardhitāśeṣa-\
 > svānusargaḥ prajāpatiḥ
 
-> jagatas tasthuṣaś cāpi
-> vṛttido dharma-bhṛt satām
-> niṣpāditeśvarādeśo
+> jagatas tasthuṣaś cāpi\
+> vṛttido dharma-bhṛt satām\
+> niṣpāditeśvarādeśo\
 > yad-artham iha jajñivān
 
-> ātmajeṣv ātmajāṁ nyasya
-> virahād rudatīm iva
-> prajāsu vimanaḥsv ekaḥ
+> ātmajeṣv ātmajāṁ nyasya\
+> virahād rudatīm iva\
+> prajāsu vimanaḥsv ekaḥ\
 > sa-dāro 'gāt tapo-vanam
 
 *maitreyaḥ uvāca*—the sage Maitreya continued to speak; *dṛṣṭvā*—after seeing; *ātmānam*—of the body; *pravayasam*—old age; *ekadā*—once upon a time; *vainyaḥ*—King Pṛthu; *ātma-vān*—fully conversant in spiritual education; *ātmanā*—by oneself; *vardhita*—increased; *aśeṣa*—unlimitedly; *sva-anusargaḥ*—creation of material opulences; *prajā-patiḥ*—a protector of citizens; *jagataḥ*—moving; *tasthuṣaḥ*—not moving; *ca*—also; *api*—certainly; *vṛtti-daḥ*—one who gives pensions; *dharma-bhṛt*—one who observes the religious principles; *satām*—of the devotees; *niṣpādita*—fully executed; *īśvara*—of the Supreme Personality of Godhead; *ādeśaḥ*—order; *yat-artham*—in coordination with Him; *iha*—in this world; *jajñivān*—performed; *ātma-jeṣu*—unto his sons; *ātma-jām*—the earth; *nyasya*—indicating; *virahāt*—out of separation; *rudatīm iva*—just like lamenting; *prajāsu*—unto the citizens; *vimanaḥsu*—unto the aggrieved; *ekaḥ*—alone; *sa-dāraḥ*—with his wife; *agāt*—went; *tapaḥ-vanam*—in the forest where one can execute austerities.

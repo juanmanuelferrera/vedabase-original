@@ -1,9 +1,9 @@
 ### CC Antya 16.104
 
-> সন্ধ্যা-কৃত্য করি’ পুনঃ নিজগণ-সঙ্গে ।
+> সন্ধ্যা-কৃত্য করি’ পুনঃ নিজগণ-সঙ্গে ।\
 > নিভৃতে বসিলা নানা-কৃষ্ণকথা-রঙ্গে ॥১০৪॥
 
-> sandhyā-kṛtya kari' punaḥ nija-gaṇa-saṅge
+> sandhyā-kṛtya kari' punaḥ nija-gaṇa-saṅge\
 > nibhṛte vasilā nānā-kṛṣṇa-kathā-raṅge
 
 *sandhyā-kṛtya*—los deberes vespertinos; *kari'*—tras realizar; *punaḥ*—de nuevo; *nija-gaṇa-saṅge*—junto con Sus asociados personales; *nibhṛte*—en un lugar apartado; *vasilā*—se sentó; *nānā*—diversos; *kṛṣṇa-kathā*—de temas acerca de Kṛṣṇa; *raṅge*—en el júbilo.

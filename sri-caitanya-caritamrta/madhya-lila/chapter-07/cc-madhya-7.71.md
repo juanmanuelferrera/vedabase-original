@@ -1,9 +1,9 @@
 ### CC Madhya 7.71
 
-> তাঁরে উপেক্ষিয়া কৈল শীঘ্র গমন ।
+> তাঁরে উপেক্ষিয়া কৈল শীঘ্র গমন ।\
 > কে বুঝিতে পারে মহাপ্রভুর চিত্ত-মন ॥৭১॥
 
-> tāṅre upekṣiyā kaila śīghra gamana
+> tāṅre upekṣiyā kaila śīghra gamana\
 > ke bujhite pāre mahāprabhura citta-mana
 
 *tāṅre*—unto Sārvabhauma Bhaṭṭācārya; *upekṣiyā*—not paying serious attention; *kaila*—did; *śīghra*—very fast; *gamana*—walking; *ke*—who; *bujhite*—to understand; *pāre*—is able; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *citta-mana*—the mind and intention.

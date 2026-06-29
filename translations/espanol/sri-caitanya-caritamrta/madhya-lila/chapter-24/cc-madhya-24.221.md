@@ -1,9 +1,9 @@
 ### CC Madhya 24.221
 
-> চ-শব্দে ‘সমুচ্চয়ে,’ আর অর্থ কয় ।
+> চ-শব্দে ‘সমুচ্চয়ে,’ আর অর্থ কয় ।\
 > ‘আত্মারামাশ্চ মুনয়শ্চ’ কৃষ্ণেরে ভজয় ॥২২১॥
 
-> ca-śabde 'samuccaye', āra artha kaya
+> ca-śabde 'samuccaye', āra artha kaya\
 > 'ātmārāmāś ca munayaś ca' kṛṣṇere bhajaya
 
 *ca-śabde*—con la palabra *ca*; *samuccaye*—en agregación; *āra*—otra; *artha*—acepción; *kaya*—se entiende; *ātmārāmāḥ ca munayaḥ ca*—todos los *ātmārāmas* y los *munis*; *kṛṣṇere bhajaya*—adoran a Kṛṣṇa.

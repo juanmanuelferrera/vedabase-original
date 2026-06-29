@@ -1,11 +1,11 @@
 ### SB 6.17.37
 
-> इति भागवतो देव्याः प्रतिशप्तुमलन्तमः
+> इति भागवतो देव्याः प्रतिशप्तुमलन्तमः\
 > मूर्ध्ना स जगृहे शापमेतावत्साधुलक्षणम ॥३७॥
 
-> iti bhāgavato devyāḥ
-> pratiśaptum alantamaḥ
-> mūrdhnā sa jagṛhe śāpam
+> iti bhāgavato devyāḥ\
+> pratiśaptum alantamaḥ\
+> mūrdhnā sa jagṛhe śāpam\
 > etāvat sādhu-lakṣaṇam
 
 *iti*—así; *bhāgavataḥ*—el muy excelso devoto; *devyāḥ*—de Pārvatī; *pratiśaptum*—responder con otra maldición; *alantamaḥ*—capaz en todo aspecto; *mūrdhnā*—con la cabeza; *saḥ*—él (Citraketu); *jagṛhe*—aceptó; *śāpam*—la maldición; *etāvat*—en este medida; *sādhu-lakṣaṇam*—la característica del devoto.

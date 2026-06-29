@@ -1,11 +1,11 @@
 ### Bg 9.19
 
-> तपाम्यहमहं वर्षं निगृह्णाम्युत्सृजामि च ।
+> तपाम्यहमहं वर्षं निगृह्णाम्युत्सृजामि च ।\
 > अमृतं चैव मृत्युश्च सदसच्चाहमर्जुन ॥१९॥
 
-> tapāmy aham ahaṁ varṣaṁ
-> nigṛhṇāmy utsṛjāmi ca
-> amṛtaṁ caiva mṛtyuś ca
+> tapāmy aham ahaṁ varṣaṁ\
+> nigṛhṇāmy utsṛjāmi ca\
+> amṛtaṁ caiva mṛtyuś ca\
 > sad asac cāham arjuna
 
 *tapāmi*—give heat; *aham*—I; *aham*—I; *varṣam*—rain; *nigṛhṇāmi*—withold; *utsṛjāmi*—send forth; *ca*—and; *amṛtam*—immortality; *ca*—and; *eva*—certainly; *mṛtyuḥ*—death; *ca*—and; *sat*—being; *asat*—nonbeing; *ca*—and; *aham*—I; *arjuna*—O Arjuna.

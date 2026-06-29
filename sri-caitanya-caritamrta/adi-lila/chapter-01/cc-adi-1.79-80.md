@@ -1,14 +1,14 @@
 ### CC Adi 1.79-80
 
-> ঈশ্বরের শক্তি হয় এ-তিন প্রকার ।
-> এক লক্ষ্মীগণ, পুরে মহিষীগণ আর ॥৭৯॥
-> ব্রজে গোপীগণ আর সভাতে প্রধান ।
+> ঈশ্বরের শক্তি হয় এ-তিন প্রকার ।\
+> এক লক্ষ্মীগণ, পুরে মহিষীগণ আর ॥৭৯॥\
+> ব্রজে গোপীগণ আর সভাতে প্রধান ।\
 > ব্রজেন্দ্রনন্দন যা’তে স্বয়ং ভগবান্ ॥৮০॥
 
-> īśvarera śakti haya e-tina prakāra
+> īśvarera śakti haya e-tina prakāra\
 > eka lakṣmī-gaṇa, pure mahiṣī-gaṇa āra
 
-> vraje gopī-gaṇa āra sabhāte pradhāna
+> vraje gopī-gaṇa āra sabhāte pradhāna\
 > vrajendra-nandana yā'te svayaṁ bhagavān
 
 *īśvarera*—of the Supreme Lord; *śakti*—energy; *haya*—is; *e-tina*—these three; *prakāra*—kinds; *eka*—one; *lakṣmī-gaṇa*—the goddesses of fortune in Vaikuṇṭha; *pure*—in Dvārakā; *mahiṣī-gaṇa*—the queens; *āra*—and; *vraje*—in Vṛndāvana; *gopī-gaṇa*—the *gopīs*; *āra*—and; *sabhāte*—among all of them; *pradhāna*—the chief; *vraja-indra-nandana*—Kṛṣṇa, the son of the King of Vraja; *yā'te*—because; *svayam*—Himself; *bhagavān*—the primeval Lord.

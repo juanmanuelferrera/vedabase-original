@@ -1,9 +1,9 @@
 ### CC Adi 10.146
 
-> বলভদ্র ভট্টাচার্য — ভক্তি অধিকারী ।
+> বলভদ্র ভট্টাচার্য — ভক্তি অধিকারী ।\
 > মথুরা-গমনে প্রভুর যেঁহো ব্রহ্মচারী ॥১৪৬॥
 
-> balabhadra bhaṭṭācārya--bhakti adhikārī
+> balabhadra bhaṭṭācārya--bhakti adhikārī\
 > mathurā-gamane prabhura yeṅho brahmacārī
 
 *balabhadra bhaṭṭācārya*—de nombre Balabhadra Bhaṭṭācārya; *bhakti adhikārī*—devoto genuino; *mathurā-gamane*—mientras recorría Mathurā; *prabhura*—del Señor; *yeṅho*—quien; *brahmacārī*—actuó como *brahmacārī*.

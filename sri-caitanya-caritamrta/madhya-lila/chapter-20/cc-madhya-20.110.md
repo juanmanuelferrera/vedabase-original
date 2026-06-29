@@ -1,11 +1,11 @@
 ### CC Madhya 20.110
 
-> একদেশস্থিতস্যাগ্নের্জ্যোৎস্না বিস্তারিণী যথা ।
+> একদেশস্থিতস্যাগ্নের্জ্যোৎস্না বিস্তারিণী যথা ।\
 > পরস্য ব্রহ্মণঃ শক্তিস্তথেদমখিলং জগৎ ॥১১০॥
 
-> eka-deśa-sthitasyāgner
-> jyotsnā vistāriṇī yathā
-> parasya brahmaṇaḥ śaktis
+> eka-deśa-sthitasyāgner\
+> jyotsnā vistāriṇī yathā\
+> parasya brahmaṇaḥ śaktis\
 > tathedam akhilaṁ jagat
 
 *eka-deśa*—in one place; *sthitasya*—being situated; *agneḥ*—of fire; *jyotsnā*—the illumination; *vistāriṇī*—expanded everywhere; *yathā*—just as; *parasya*—of the illumination; *vistāriṇī*—expanded everywhere; *yathā*—just as; *parasya*—of the Supreme; *brahmaṇaḥ*—of the Absolute Truth; *śaktiḥ*—the energy; *tathā*—similarly; *idam*—this; *akhilam*—entire; *jagat*—universe.

@@ -1,9 +1,9 @@
 ### CC Madhya 13.16
 
-> চন্দন-জলেতে করে পথ নিষেচনে ।
+> চন্দন-জলেতে করে পথ নিষেচনে ।\
 > তুচ্ছ সেবা করে বসি’ রাজ-সিংহাসনে ॥১৬॥
 
-> candana-jalete kare patha niṣecane
+> candana-jalete kare patha niṣecane\
 > tuccha sevā kare vasi' rāja-siṁhāsane
 
 *candana-jalete*—with sandalwood water; *kare*—does; *patha*—road; *niṣecane*—sprinkling; *tuccha*—insignificant, menial; *sevā*—service; *kare*—performs; *vasi'*—although in possession of; *rāja-siṁhāsane*—the royal throne.

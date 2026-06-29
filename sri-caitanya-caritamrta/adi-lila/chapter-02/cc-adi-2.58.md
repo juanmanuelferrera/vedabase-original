@@ -1,9 +1,9 @@
 ### CC Adi 2.58
 
-> অতএব ব্রহ্মবাক্যে — পরব্যোম-নারায়ণ ।
+> অতএব ব্রহ্মবাক্যে — পরব্যোম-নারায়ণ ।\
 > তেঁহো কৃষ্ণের বিলাস — এই তত্ত্ব-বিবরণ ॥৫৮॥
 
-> ataeva brahma-vākye—paravyoma-nārāyaṇa
+> ataeva brahma-vākye—paravyoma-nārāyaṇa\
 > teṅho kṛṣṇera vilāsa—ei tattva-vivaraṇa
 
 *ataeva*—therefore; *brahma*—of Lord Brahmā; *vākye*—in the speech; *para-vyoma*—in the spiritual sky; *nārāyaṇa*—Lord Nārāyaṇa; *teṅho*—He; *kṛṣṇera*—of Lord Kṛṣṇa; *vilāsa*—pastime incarnation; *ei*—this; *tattva*—of the truth; *vivaraṇa*—description.

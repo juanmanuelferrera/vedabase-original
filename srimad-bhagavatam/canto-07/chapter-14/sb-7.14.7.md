@@ -1,11 +1,11 @@
 ### SB 7.14.7
 
-> दिव्यं भौमं चान्तरीक्षं वित्तमच्युतनिर्मितम
+> दिव्यं भौमं चान्तरीक्षं वित्तमच्युतनिर्मितम\
 > तत्सर्वमुपयुञ्जान एतत्कुर्यात्स्वतो बुधः ॥७॥
 
-> divyaṁ bhaumaṁ cāntarīkṣaṁ
-> vittam acyuta-nirmitam
-> tat sarvam upayuñjāna
+> divyaṁ bhaumaṁ cāntarīkṣaṁ\
+> vittam acyuta-nirmitam\
+> tat sarvam upayuñjāna\
 > etat kuryāt svato budhaḥ
 
 *divyam*—easily obtained because of rainfall from the sky; *bhaumam*—obtained from the mines and the sea; *ca*—and; *āntarīkṣam*—obtained by chance; *vittam*—all property; *acyuta-nirmitam*—created by the Supreme Personality of Godhead; *tat*—those things; *sarvam*—all; *upayuñjāna*—utilizing (for all human society or all living beings); *etat*—this (maintaining body and soul together); *kuryāt*—one must do; *svataḥ*—obtained of itself, without extra endeavor; *budhaḥ*—the intelligent person.

@@ -1,9 +1,9 @@
 ### CC Adi 4.255
 
-> আমার সঙ্গমে রাধা পায় যে আনন্দ ।
+> আমার সঙ্গমে রাধা পায় যে আনন্দ ।\
 > শতমুখে বলি, তবু না পাই তার অন্ত ॥২৫৫॥
 
-> āmāra saṅgame rādhā pāya ye ānanda
+> āmāra saṅgame rādhā pāya ye ānanda\
 > śata-mukhe bali, tabu nā pāi tāra anta
 
 *āmāra*—Mi; *saṅgame*—en la compañía; *rādhā*—Śrīmatī Rādhārāṇī; *pāya*—obtiene; *ye*—cualquier; *ānanda*—dicha trascendental; *śata-mukhe*—con cientos de bocas; *bali*—si digo; *tabu*—aun así; *nā*—no; *pāi*—alcanzo; *tāra*—de ella; *anta*—el límite.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.299
 
-> সার্বভৌম-ঘরে এই ভোজন-চরিত ।
+> সার্বভৌম-ঘরে এই ভোজন-চরিত ।\
 > সার্বভৌম-প্রেম যাঁহা হইলা বিদিত ॥২৯৯॥
 
-> sārvabhauma-ghare ei bhojana-carita
+> sārvabhauma-ghare ei bhojana-carita\
 > sārvabhauma-prema yāṅhā ha-ilā vidita
 
 *sārvabhauma-ghare*—in the house of Sārvabhauma Bhaṭṭācārya; *ei*—these; *bhojana-carita*—eating affairs; *sārvabhauma-prema*—love of Sārvabhauma Bhaṭṭācārya; *yāṅhā*—where; *ha-ilā*—became; *vidita*—well known.

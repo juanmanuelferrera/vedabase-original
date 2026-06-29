@@ -1,11 +1,11 @@
 ### CC Madhya 19.171
 
-> মদ্গুণশ্রুতিমাত্রেণ ময়ি সর্বগুহাশয়ে ।
+> মদ্গুণশ্রুতিমাত্রেণ ময়ি সর্বগুহাশয়ে ।\
 > মনোগতিরবিচ্ছিন্না যথা গঙ্গাম্ভসোঽম্বুধৌ ॥১৭১॥
 
-> mad-guṇa-śruti-mātreṇa
-> mayi sarva-guhāśaye
-> manogatir avicchinnā
+> mad-guṇa-śruti-mātreṇa\
+> mayi sarva-guhāśaye\
+> manogatir avicchinnā\
 > yathā gaṅgāmbhaso 'mbudhau
 
 *mat*—de Mí; *guṇa*—de las cualidades; *śruti-mātreṇa*—con solo escuchar; *mayi*—hacia Mí; *sarva-guhā*—en todos los corazones; *āśaye*—que estoy situado; *manaḥ-gatiḥ*—el movimiento de la mente; *avicchinnā*—sin obstrucción; *yathā*—tal como; *gaṅgā-ambhasaḥ*—de las aguas celestiales del Ganges; *ambudhau*—hacia el océano.

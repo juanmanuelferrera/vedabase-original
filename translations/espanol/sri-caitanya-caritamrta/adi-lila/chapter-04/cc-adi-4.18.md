@@ -1,9 +1,9 @@
 ### CC Adi 4.18
 
-> আমারে ঈশ্বর মানে, আপনাকে হীন ।
+> আমারে ঈশ্বর মানে, আপনাকে হীন ।\
 > তার প্রেমে বশ আমি না হই অধীন ॥১৮॥
 
-> āmāre īśvara māne, āpanāke hīna
+> āmāre īśvara māne, āpanāke hīna\
 > tāra preme vaśa āmi nā ha-i adhīna
 
 *āmāre*—a Mí; *īśvara*—el Señor; *māne*—considera; *āpanāke*—a sí mismo; *hīna*—inferior; *tāra*—de él; *preme*—por el amor; *vaśa*—controlado; *āmi*—Yo; *nā ha-i*—no llego a ser; *adhīna*—subordinado.

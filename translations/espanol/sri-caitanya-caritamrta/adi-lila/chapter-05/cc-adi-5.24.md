@@ -1,9 +1,9 @@
 ### CC Adi 5.24
 
-> বাসুদেব-সঙ্কর্ষণ-প্রদ্যুম্নানিরুদ্ধ ।
+> বাসুদেব-সঙ্কর্ষণ-প্রদ্যুম্নানিরুদ্ধ ।\
 > সর্বচতুর্ব্যূহ-অংশী, তুরীয়, বিশুদ্ধ ॥২৪॥
 
-> vāsudeva-saṅkarṣaṇa-pradyumnāniruddha
+> vāsudeva-saṅkarṣaṇa-pradyumnāniruddha\
 > sarva-catur-vyūha-aṁśī, turīya, viśuddha
 
 *vāsudeva*—el Señor Vāsudeva; *saṅkarṣaṇa*—el Señor Saṅkarṣaṇa; *pradyumna*—el Señor Pradyumna; *aniruddha*—y el Señor Aniruddha; *sarva-catuḥ-vyūha*—de todas las demás expansiones cuádruples; *aṁśī*—fuente; *turīya*—trascendental; *viśuddha*—puro.

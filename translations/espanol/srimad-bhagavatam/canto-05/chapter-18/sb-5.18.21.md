@@ -1,11 +1,11 @@
 ### SB 5.18.21
 
-> या तस्य ते पादसरोरुहार्हणं निकामयेत्साखिलकामलम्पटा
+> या तस्य ते पादसरोरुहार्हणं निकामयेत्साखिलकामलम्पटा\
 > तदेव रासीप्सितमीप्सितोऽर्चितो यद्भग्नयाचञ्आ भगवन्प्रतप्यते ॥२१॥
 
-> yā tasya te pāda-saroruhārhaṇaṁ
-> nikāmayet sākhila-kāma-lampaṭā
-> tad eva rāsīpsitam īpsito 'rcito
+> yā tasya te pāda-saroruhārhaṇaṁ\
+> nikāmayet sākhila-kāma-lampaṭā\
+> tad eva rāsīpsitam īpsito 'rcito\
 > yad-bhagna-yācñā bhagavan pratapyate
 
 *yā*—una mujer que; *tasya*—de Él; *te*—de Ti; *pāda-saroruha*—de los pies de loto; *arhaṇam*—la adoración; *nikāmayet*—desea completamente; *sā*—esa mujer; *akhila-kāma-lampaṭā*—aunque alimenta todo tipo de deseos materiales; *tat*—eso; *eva*—solamente; *rāsi*—Tú concedes; *īpsitam*—alguna otra bendición que se desee; *īpsitaḥ*—que se busca; *arcitaḥ*—adorados; *yat*—de lo cual; *bhagna-yācñā*—aquel que desea otros objetos aparte de Tus pies de loto, y que, de ese modo, acaba con el corazón roto; *bhagavan*—¡oh, mi Señor!; *pratapyate*—sufre.

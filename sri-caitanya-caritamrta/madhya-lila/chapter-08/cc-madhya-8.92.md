@@ -1,9 +1,9 @@
 ### CC Madhya 8.92
 
-> এই ‘প্রেমে’র অনুরূপ না পারে ভজিতে ।
+> এই ‘প্রেমে’র অনুরূপ না পারে ভজিতে ।\
 > অতএব ‘ঋণী’ হয় — কহে ভাগবতে ॥৯২॥
 
-> ei 'preme'ra anurūpa nā pāre bhajite
+> ei 'preme'ra anurūpa nā pāre bhajite\
 > ataeva 'ṛṇī' haya—kahe bhāgavate
 
 *ei*—this; *premera*—of love of God; *anurūpa*—exactly to the proportion; *nā*—not; *pāre*—is able; *bhajite*—to reciprocate; *ataeva*—therefore; *ṛṇī*—debtor; *haya*—becomes; *kahe*—is stated; *bhāgavate*—in *Śrīmad-Bhāgavatam.*

@@ -1,11 +1,11 @@
 ### SB 6.16.59
 
-> स्मृत्वेहायां परिक्लेशं ततः फलविपर्ययम
+> स्मृत्वेहायां परिक्लेशं ततः फलविपर्ययम\
 > अभयं चाप्यनीहायां सङ्कल्पाद्विरमेत्कविः ॥५९॥
 
-> smṛtvehāyāṁ parikleśaṁ
-> tataḥ phala-viparyayam
-> abhayaṁ cāpy anīhāyāṁ
+> smṛtvehāyāṁ parikleśaṁ\
+> tataḥ phala-viparyayam\
+> abhayaṁ cāpy anīhāyāṁ\
 > saṅkalpād viramet kaviḥ
 
 *smṛtvā*—remembering; *īhāyām*—in the field of activities with fruitive results; *parikleśam*—the waste of energy and the miserable conditions; *tataḥ*—from that; *phala-viparyayam*—the opposite of the desired result; *abhayam*—fearlessness; *ca*—also; *api*—indeed; *anīhāyām*—when there is no desire for fruitive results; *saṅkalpāt*—from material desire; *viramet*—should cease; *kaviḥ*—one who is advanced in knowledge.

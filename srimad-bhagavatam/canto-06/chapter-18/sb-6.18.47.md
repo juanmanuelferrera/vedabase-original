@@ -1,13 +1,13 @@
 ### SB 6.18.47
 
-> श्रीकश्यप उवाच
-> न हिंस्याद्भूतजातानि न शपेन्नानृतं वदेत
+> श्रीकश्यप उवाच\
+> न हिंस्याद्भूतजातानि न शपेन्नानृतं वदेत\
 > न छिन्द्यान्नखरोमाणि न स्पृशेद्यदमङ्गलम ॥४७॥
 
-> śrī-kaśyapa uvāca
-> na hiṁsyād bhūta-jātāni
-> na śapen nānṛtaṁ vadet
-> na chindyān nakha-romāṇi
+> śrī-kaśyapa uvāca\
+> na hiṁsyād bhūta-jātāni\
+> na śapen nānṛtaṁ vadet\
+> na chindyān nakha-romāṇi\
 > na spṛśed yad amaṅgalam
 
 *śrī-kaśyapaḥ uvāca*—Kaśyapa Muni said; *na hiṁsyāt*—must not harm; *bhūta-jātāni*—the living entities; *na śapet*—must not curse; *na*—not; *anṛtam*—a lie; *vadet*—must speak; *na chindyāt*—must not cut; *nakha-romāṇi*—the nails and hair; *na spṛśet*—must not touch; *yat*—that which; *amaṅgalam*—impure.

@@ -1,11 +1,11 @@
 ### SB 8.5.30
 
-> न यस्य कश्चातितितर्ति मायां यया जनो मुह्यति वेद नार्थम
+> न यस्य कश्चातितितर्ति मायां यया जनो मुह्यति वेद नार्थम\
 > तं निर्जितात्मात्मगुणं परेशं नमाम भूतेषु समं चरन्तम ॥३०॥
 
-> na yasya kaścātititarti māyāṁ
-> yayā jano muhyati veda nārtham
-> taṁ nirjitātmātma-guṇaṁ pareśaṁ
+> na yasya kaścātititarti māyāṁ\
+> yayā jano muhyati veda nārtham\
+> taṁ nirjitātmātma-guṇaṁ pareśaṁ\
 > namāma bhūteṣu samaṁ carantam
 
 *na*—no; *yasya*—de quien (de la Suprema Personalidad de Dios); *kaśca*—nadie; *atititarti*—puede superar; *māyām*—la energía ilusoria; *yayā*—por quien (por la energía ilusoria); *janaḥ*—la gente; *muhyati*—queda confundida; *veda*—entiende; *na*—no; *artham*—el objetivo de la vida; *tam*—a Él (a la Suprema Personalidad de Dios); *nirjita*—que controla completamente; *ātmā*—a las entidades vivientes; *ātma-guṇam*—y Su energía externa; *para-īśam*—el Señor, cuya posición es trascendental; *namāma*—ofrecemos respetuosas reverencias; *bhūteṣu*—a todas las entidades vivientes; *samam*—en una posición ecuánime o equilibrada; *carantam*—controlando o gobernándolas.

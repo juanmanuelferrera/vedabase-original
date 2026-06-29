@@ -1,9 +1,9 @@
 ### CC Madhya 6.228
 
-> দুইজনে ধরি’ দুঁহে করেন নর্তন ।
+> দুইজনে ধরি’ দুঁহে করেন নর্তন ।\
 > প্ৰভু-ভৃত্য দুঁহা স্পর্শে, দোঁহার ফুলে মন ॥২২৮॥
 
-> dui-jane dhari' duṅhe karena nartana
+> dui-jane dhari' duṅhe karena nartana\
 > prabhu-bhṛtya duṅhā sparśe, doṅhāra phule mana
 
 *dui-jane*—ambos; *dhari'*—abrazando; *duṅhe*—los dos; *karena*—hacen; *nartana*—danza; *prabhu-bhṛtya*—el amo y el sirviente; *duṅhā*—ambos; *sparśe*—al tocarse mutuamente; *doṅhāra*—de ambos; *phule*—se excitaron; *mana*—las mentes.

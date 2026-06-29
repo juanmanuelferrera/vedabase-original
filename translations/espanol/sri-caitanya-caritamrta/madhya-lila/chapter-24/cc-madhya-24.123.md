@@ -1,11 +1,11 @@
 ### CC Madhya 24.123
 
-> মুমুক্ষবো ঘোররূপান্ হিত্বা ভূতপতীনথ ।
+> মুমুক্ষবো ঘোররূপান্ হিত্বা ভূতপতীনথ ।\
 > নারায়ণ-কলাঃ শান্তা ভজন্তি হ্যনসূয়বঃ ॥১২৩॥
 
-> mumukṣavo ghora-rūpān
-> hitvā bhūta-patīn atha
-> nārāyaṇa-kalāḥ śāntā
+> mumukṣavo ghora-rūpān\
+> hitvā bhūta-patīn atha\
+> nārāyaṇa-kalāḥ śāntā\
 > bhajanti hy anasūyavaḥ
 
 *mumukṣavaḥ*—aquellos que poseen conocimiento perfecto, que desean la perfección más elevada y que, a diferencia de los demonios y los no devotos, jamás envidian a nadie; *ghora-rūpān*—semidioses con rasgos corporales temibles; *hitvā*—abandonando; *bhūta-patīn*—los antepasados (prajāpatis); *atha*—por lo tanto; *nārāyaṇa-kalāḥ*—las expansiones plenarias del Señor Nārāyaṇa; *śāntāḥ*—muy pacíficos; *bhajanti*—adoran; *hi*—ciertamente; *anasūyavaḥ*—que no son envidiosos.

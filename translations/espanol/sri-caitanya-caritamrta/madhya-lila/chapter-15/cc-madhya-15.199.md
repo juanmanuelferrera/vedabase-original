@@ -1,9 +1,9 @@
 ### CC Madhya 15.199
 
-> প্রভুর ইঙ্গিত পাঞা আনন্দিত মন ৷
+> প্রভুর ইঙ্গিত পাঞা আনন্দিত মন ৷\
 > সেই দিন মহাপ্রভুর কৈল নিমন্ত্রণ ॥১৯৯॥
 
-> prabhura iṅgita pāñā ānandita mana
+> prabhura iṅgita pāñā ānandita mana\
 > sei dina mahāprabhura kaila nimantraṇa
 
 *prabhura*—de Śrī Caitanya Mahāprabhu; *iṅgita*—aceptación; *pāñā*—recibiendo; *ānandita*—muy contento; *mana*—la mente; *sei dina*—ese día; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *kaila*—hizo; *nimantraṇa*—invitación.

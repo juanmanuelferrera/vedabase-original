@@ -1,11 +1,11 @@
 ### SB 3.7.29
 
-> वर्णाश्रमविभागांश्च रूपशीलस्वभावतः ।
+> वर्णाश्रमविभागांश्च रूपशीलस्वभावतः ।\
 > ऋषीणां जन्मकर्माणि वेदस्य च विकर्षणम् ॥२९॥
 
-> varṇāśrama-vibhāgāṁś ca
-> rūpa-śīla-svabhāvataḥ
-> ṛṣīṇāṁ janma-karmāṇi
+> varṇāśrama-vibhāgāṁś ca\
+> rūpa-śīla-svabhāvataḥ\
+> ṛṣīṇāṁ janma-karmāṇi\
 > vedasya ca vikarṣaṇam
 
 *varṇa-āśrama*—las cuatro divisiones de niveles sociales y órdenes de cultivo espiritual; *vibhāgān*—divisiones respectivas; *ca*—también; *rūpa*—características personales; *śīla-svabhāvataḥ*—carácter personal; *ṛṣīṇām*—de los sabios; *janma*—nacimiento; *karmāṇi*—actividades; *vedasya*—de los *Vedas*; *ca*—y; *vikarṣaṇam*—divisiones por categoría.

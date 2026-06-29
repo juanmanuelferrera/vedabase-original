@@ -1,9 +1,9 @@
 ### CC Adi 12.7
 
-> সেই জল স্কন্ধে করে শাখাতে সঞ্চার ।
+> সেই জল স্কন্ধে করে শাখাতে সঞ্চার ।\
 > ফলে-ফুলে বাড়ে, — শাখা হইল বিস্তার ॥৭॥
 
-> sei jala skandhe kare śākhāte sañcāra
+> sei jala skandhe kare śākhāte sañcāra\
 > phale-phule bāḍe,—śākhā ha-ila vistāra
 
 *sei jala*—that water; *skandhe*—on the branches; *kare*—does; *śākhāte*—on the subbranches; *sañcāra*—growing; *phale-phule*—in fruits and flowers; *bāḍe*—increases; *śākhā*—the branches; *ha-ila*—became; *vistāra*—widespread.

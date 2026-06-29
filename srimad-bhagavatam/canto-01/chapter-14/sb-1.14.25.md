@@ -1,13 +1,13 @@
 ### SB 1.14.25
 
-> युधिष्ठिर उवाच
-> कच्चिदानर्तपुर्यां नः स्वजनाः सुखमासते ।
+> युधिष्ठिर उवाच\
+> कच्चिदानर्तपुर्यां नः स्वजनाः सुखमासते ।\
 > मधुभोजदशार्हार्ह सात्वतान्धकवृष्णयः ॥२५॥
 
-> yudhiṣṭhira uvāca
-> kaccid ānarta-puryāṁ naḥ
-> sva-janāḥ sukham āsate
-> madhu-bhoja-daśārhārha-
+> yudhiṣṭhira uvāca\
+> kaccid ānarta-puryāṁ naḥ\
+> sva-janāḥ sukham āsate\
+> madhu-bhoja-daśārhārha-\
 > sātvatāndhaka-vṛṣṇayaḥ
 
 *yudhiṣṭhiraḥ uvāca*—Yudhiṣṭhira said; *kaccit*—whether; *ānarta-puryām*—of Dvārakā; *naḥ*—our; *sva-janāḥ*—relatives; *sukham*—happily; *āsate*—are passing their days; *madhu*—Madhu; *bhoja*—Bhoja; *daśārha*—Daśārha; *ārha*—Ārha; *sātvata*—Sātvata; *andhaka*—Andhaka; *vṛṣṇayaḥ*—of the family of Vṛṣṇi.

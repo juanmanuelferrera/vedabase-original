@@ -1,9 +1,9 @@
 ### CC Antya 11.10
 
-> এ-সব প্রসাদে লিখি চৈতন্য-লীলা-গুণ ।
+> এ-সব প্রসাদে লিখি চৈতন্য-লীলা-গুণ ।\
 > যৈছে তৈছে লিখি, করি আপন পাবন ॥১০॥
 
-> e-saba prasāde likhi caitanya-līlā-guṇa
+> e-saba prasāde likhi caitanya-līlā-guṇa\
 > yaiche taiche likhi, kari āpana pāvana
 
 *e-saba*—de todos ellos; *prasāde*—por la misericordia; *likhi*—escribo; *caitanya-līlā guṇa*—los atributos y pasatiempos de Śrī Caitanya Mahāprabhu; *yaiche taiche*—de un modo u otro; *likhi*—escribo; *kari*—hago; *āpana pāvana*—purificándome a mí mismo.

@@ -1,13 +1,13 @@
 ### SB 3.29.7
 
-> श्रीभगवानुवाच
-> भक्तियोगो बहुविधो मार्गैर्भामिनि भाव्यते ।
+> श्रीभगवानुवाच\
+> भक्तियोगो बहुविधो मार्गैर्भामिनि भाव्यते ।\
 > स्वभावगुणमार्गेण पुंसां भावो विभिद्यते ॥७॥
 
-> śrī-bhagavān uvāca
-> bhakti-yogo bahu-vidho
-> mārgair bhāmini bhāvyate
-> svabhāva-guṇa-mārgeṇa
+> śrī-bhagavān uvāca\
+> bhakti-yogo bahu-vidho\
+> mārgair bhāmini bhāvyate\
+> svabhāva-guṇa-mārgeṇa\
 > puṁsāṁ bhāvo vibhidyate
 
 *śrī-bhagavān uvāca*—la Personalidad de Dios respondió; *bhakti-yogaḥ*—servicio devocional; *bahu-vidhaḥ*—múltiples; *mārgaiḥ*—con senderos; *bhāmini*—¡oh, noble dama!; *bhāvyate*—se manifiesta; *svabhāva*—naturaleza; *guṇa*—cualidades; *mārgeṇa*—en función del comportamiento; *puṁsām*—de los ejecutores; *bhāvaḥ*—la aparición; *vibhidyate*—se divide.

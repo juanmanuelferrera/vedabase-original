@@ -1,9 +1,9 @@
 ### CC Madhya 4.87
 
-> সকল ব্রাহ্মণে পুরী বৈষ্ণব করিল ।
+> সকল ব্রাহ্মণে পুরী বৈষ্ণব করিল ।\
 > সেই সেই সেবা-মধ্যে সবা নিয়োজিল ॥৮৭॥
 
-> sakala brāhmaṇe purī vaiṣṇava karila
+> sakala brāhmaṇe purī vaiṣṇava karila\
 > sei sei sevā-madhye sabā niyojila
 
 *sakala brāhmaṇe*—all the *brāhmaṇas* who were present there; *purī*—Mādhavendra Purī Gosvāmī; *vaiṣṇava karila*—elevated to the position of Vaiṣṇavas; *sei sei*—under different divisions; *sevā-madhye*—in rendering service; *sabā*—all of them; *niyojila*—were engaged.

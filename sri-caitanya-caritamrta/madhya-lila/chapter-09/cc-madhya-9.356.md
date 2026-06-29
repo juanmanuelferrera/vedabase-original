@@ -1,9 +1,9 @@
 ### CC Madhya 9.356
 
-> প্রভু কহে, — এত তীর্থ কৈলুঁ পর্যটন ।
+> প্রভু কহে, — এত তীর্থ কৈলুঁ পর্যটন ।\
 > তোমা-সম বৈষ্ণব না দেখিলুঁ একজন ॥৩৫৬॥
 
-> prabhu kahe,—eta tīrtha kailuṅ paryaṭana
+> prabhu kahe,—eta tīrtha kailuṅ paryaṭana\
 > tomā-sama vaiṣṇava nā dekhiluṅ eka-jana
 
 *prabhu kahe*—the Lord said; *eta tīrtha*—to so many holy places; *kailuṅ paryaṭana*—I have traveled; *tomā-sama*—like you; *vaiṣṇava*—devotee; *nā*—not; *dekhiluṅ*—I could see; *eka-jana*—one man.

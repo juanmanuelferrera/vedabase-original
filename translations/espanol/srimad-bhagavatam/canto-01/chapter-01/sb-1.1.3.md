@@ -1,13 +1,13 @@
 ### SB 1.1.3
 
-> निगमकल्पतरोर्गलितं फलं
-> शुकमुखादमृतद्रवसंयुतम् ।
-> पिबत भागवतं रसमालयं
+> निगमकल्पतरोर्गलितं फलं\
+> शुकमुखादमृतद्रवसंयुतम् ।\
+> पिबत भागवतं रसमालयं\
 > मुहुरहो रसिका भुवि भावुकाः ॥३॥
 
-> nigama-kalpa-taror galitaṁ phalaṁ
-> śuka-mukhād amṛta-drava-saṁyutam
-> pibata bhāgavataṁ rasam ālayaṁ
+> nigama-kalpa-taror galitaṁ phalaṁ\
+> śuka-mukhād amṛta-drava-saṁyutam\
+> pibata bhāgavataṁ rasam ālayaṁ\
 > muhur aho rasikā bhuvi bhāvukāḥ
 
 *nigama*—Las Escrituras védicas; *kalpa-taroḥ*—el árbol de los deseos; *galitam*—completamente madura; *phalam*—fruto; *śuka*—Śrīla Śukadeva Gosvāmī, el orador original del *Śrīmad-Bhāgavatam*; *mukhāt*—de los labios de; *amṛta*—néctar; *drava*—semisólido y blando, y por ello, fácil de tragar; *saṁyutam*—perfecto en todos los aspectos; *pibata*—lo saborea; *bhāgavatam*—el libro que trata de la ciencia acerca de la relación eterna con el Señor; *rasam*—jugo (lo que se saborea); *ālayam*—hasta la liberación, o incluso en una condición liberada; *muhuḥ*—siempre; *aho*—¡oh!; *rasikāḥ*—aquellos que poseen pleno conocimiento acerca de los sabores trascendentales; *bhuvi*—en la Tierra; *bhāvukāḥ*—pensadores y expertos.

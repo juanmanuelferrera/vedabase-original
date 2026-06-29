@@ -1,11 +1,11 @@
 ### SB 3.17.22
 
-> मनोवीर्यवरोत्सिक्तमसृण्यमकुतोभयम् ।
+> मनोवीर्यवरोत्सिक्तमसृण्यमकुतोभयम् ।\
 > भीता निलिल्यिरे देवास्तार्क्ष्यत्रस्ता इवाहयः ॥२२॥
 
-> mano-vīrya-varotsiktam
-> asṛṇyam akuto-bhayam
-> bhītā nililyire devās
+> mano-vīrya-varotsiktam\
+> asṛṇyam akuto-bhayam\
+> bhītā nililyire devās\
 > tārkṣya-trastā ivāhayaḥ
 
 *manaḥ-vīrya*—por fortaleza mental y corporal; *vara*—por la bendición; *utsiktam*—orgulloso; *asṛṇyam*—a quien nadie podía detener; *akutaḥ-bhayam*—sin temer a nadie; *bhītāḥ*—aterrorizados; *nililyire*—se escondían; *devāḥ*—los semidioses; *tārkṣya*—Garuḍa; *trastāḥ*—aterrorizadas por; *iva*—como; *ahayaḥ*—las serpientes.

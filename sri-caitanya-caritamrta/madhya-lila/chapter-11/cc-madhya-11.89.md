@@ -1,9 +1,9 @@
 ### CC Madhya 11.89
 
-> রাঘব পণ্ডিত, ইঁহ আচার্য নন্দন
+> রাঘব পণ্ডিত, ইঁহ আচার্য নন্দন\
 > শ্রীমান্ পণ্ডিত এই, শ্রীকান্ত, নারায়ণ ॥৮৯॥
 
-> rāghava paṇḍita, iṅha ācārya nandana
+> rāghava paṇḍita, iṅha ācārya nandana\
 > śrīmān paṇḍita ei, śrīkānta, nārāyaṇa
 
 *rāghava paṇḍita*—Rāghava Paṇḍita; *iṅha*—here; *ācārya nandana*—Ācārya Nandana; *śrīmān paṇḍita*—Śrīmān Paṇḍita; *ei*—this; *śrīkānta*—Śrīkānta; *nārāyaṇa*—and also Nārāyaṇa.

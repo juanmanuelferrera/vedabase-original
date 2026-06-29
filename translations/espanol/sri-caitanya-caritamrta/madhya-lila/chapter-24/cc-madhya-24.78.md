@@ -2,7 +2,7 @@
 
 > আততত্বাচ্চ মাতৃত্বাদাত্মা হি পরমো হরিঃ ॥৭৮॥
 
-> ātatatvāc ca mātṛtvād
+> ātatatvāc ca mātṛtvād\
 > ātmā hi paramo hariḥ
 
 *ātatatvāt*—porque todo lo abarca; *ca*—y; *mātṛtvāt*—porque es el progenitor; *ātmā*—el alma; *hi*—ciertamente; *paramaḥ*—supremo; *hariḥ*—la Suprema Personalidad de Dios.

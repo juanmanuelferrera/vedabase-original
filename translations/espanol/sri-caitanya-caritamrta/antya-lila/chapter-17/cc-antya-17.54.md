@@ -1,13 +1,13 @@
 ### CC Antya 17.54
 
-> ক্ষণে মন স্থির হয়, তবে মনে বিচারয়,
-> বলিতে হইল ভাবোদ্গম ।
-> পিঙ্গলার বচন-স্মৃতি, করাইল ভাব-মতি,
+> ক্ষণে মন স্থির হয়, তবে মনে বিচারয়,\
+> বলিতে হইল ভাবোদ্গম ।\
+> পিঙ্গলার বচন-স্মৃতি, করাইল ভাব-মতি,\
 > তাতে করে অর্থ-নির্ধারণ ॥৫৪॥
 
-> kṣaṇe mana sthira haya, tabe mane vicāraya,
-> balite ha-ila bhāvodgama
-> piṅgalāra vacana-smṛti, karāila bhāva-mati,
+> kṣaṇe mana sthira haya, tabe mane vicāraya,\
+> balite ha-ila bhāvodgama\
+> piṅgalāra vacana-smṛti, karāila bhāva-mati,\
 > tāte kare artha-nirdhāraṇa
 
 *kṣaṇe*—en un momento; *mana*—la mente; *sthira haya*—se calma; *tabe*—entonces; *mane*—dentro de la mente; *vicāraya*—considera; *balite*—al hablar; *ha-ila*—hubo; *bhāva-udgama*—despertar del éxtasis; *piṅgalāra*—de Piṅgalā; *vacana-smṛti*—recuerdo de las palabras; *karāila*—causó; *bhāva-mati*—mente extática; *tāte*—en eso; *kare*—hace; *artha-nirdhāraṇa*—determinación del significado.

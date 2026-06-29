@@ -1,11 +1,11 @@
 ### SB 8.10.35
 
-> त एवमाजावसुराः सुरेन्द्रा द्वन्द्वेन संहत्य च युध्यमानाः
+> त एवमाजावसुराः सुरेन्द्रा द्वन्द्वेन संहत्य च युध्यमानाः\
 > अन्योन्यमासाद्य निजघ्नुरोजसा जिगीषवस्तीक्ष्णशरासितोमरैः ॥३५॥
 
-> ta evam ājāv asurāḥ surendrā
-> dvandvena saṁhatya ca yudhyamānāḥ
-> anyonyam āsādya nijaghnur ojasā
+> ta evam ājāv asurāḥ surendrā\
+> dvandvena saṁhatya ca yudhyamānāḥ\
+> anyonyam āsādya nijaghnur ojasā\
 > jigīṣavas tīkṣṇa-śarāsi-tomaraiḥ
 
 *te*—todos ellos; *evam*—de este modo; *ājau*—en el campo de batalla; *asurāḥ*—los demonios; *sura-indrāḥ*—y los semidioses; *dvandvena*—dos a dos; *saṁhatya*—juntándose; *ca*—y; *yudhyamānāḥ*—ocupados en luchar; *anyonyam*—el uno al otro; *āsādya*—acercarse; *nijaghnuḥ*—cortaron con armas y mataron; *ojasā*—con muchísima fuerza; *jigīṣavaḥ*—todos deseando la victoria; *tīkṣṇa*—afiladas; *śara*—con flechas; *asi*—con espadas; *tomaraiḥ*—con lanzas.

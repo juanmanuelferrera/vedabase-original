@@ -1,11 +1,11 @@
 ### SB 3.20.27
 
-> त्वमेकः किल लोकानां क्लिष्टानां क्लेशनाशनः ।
+> त्वमेकः किल लोकानां क्लिष्टानां क्लेशनाशनः ।\
 > त्वमेकः क्लेशदस्तेषामनासन्नपदां तव ॥२७॥
 
-> tvam ekaḥ kila lokānāṁ
-> kliṣṭānāṁ kleśa-nāśanaḥ
-> tvam ekaḥ kleśadas teṣām
+> tvam ekaḥ kila lokānāṁ\
+> kliṣṭānāṁ kleśa-nāśanaḥ\
+> tvam ekaḥ kleśadas teṣām\
 > anāsanna-padāṁ tava
 
 *tvam*—You; *ekaḥ*—alone; *kila*—indeed; *lokānām*—of the people; *kliṣṭānām*—afflicted with miseries; *kleśa*—the distresses; *nāśanaḥ*—relieving; *tvam ekaḥ*—You alone; *kleśa-daḥ*—inflicting distress; *teṣām*—on those; *anāsanna*—not taken shelter; *padām*—feet; *tava*—Your.

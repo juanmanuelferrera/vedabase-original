@@ -1,11 +1,11 @@
 ### SB 8.16.29
 
-> नमस्तुभ्यं भगवते पुरुषाय महीयसे
+> नमस्तुभ्यं भगवते पुरुषाय महीयसे\
 > सर्वभूतनिवासाय वासुदेवाय साक्षिणे ॥२९॥
 
-> namas tubhyaṁ bhagavate
-> puruṣāya mahīyase
-> sarva-bhūta-nivāsāya
+> namas tubhyaṁ bhagavate\
+> puruṣāya mahīyase\
+> sarva-bhūta-nivāsāya\
 > vāsudevāya sākṣiṇe
 
 *namaḥ tubhyam*—yo Te ofrezco respetuosas reverencias; *bhagavate*—a la Suprema Personalidad de Dios; *puruṣāya*—la Persona Suprema; *mahīyase*—la mejor de todas las personalidades; *sarva-bhūta-nivāsāya*—la persona que vive en el corazón de todos; *vāsudevāya*—el Señor que vive en todas partes; *sākṣiṇe*—el testigo de todo.

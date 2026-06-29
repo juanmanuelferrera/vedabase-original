@@ -1,11 +1,11 @@
 ### SB 4.8.43
 
-> स्नात्वानुसवनं तस्मिन्कालिन्द्याः सलिले शिवे ।
+> स्नात्वानुसवनं तस्मिन्कालिन्द्याः सलिले शिवे ।\
 > कृत्वोचितानि निवसन्नात्मनः कल्पितासनः ॥४३॥
 
-> snātvānusavanaṁ tasmin
-> kālindyāḥ salile śive
-> kṛtvocitāni nivasann
+> snātvānusavanaṁ tasmin\
+> kālindyāḥ salile śive\
+> kṛtvocitāni nivasann\
 > ātmanaḥ kalpitāsanaḥ
 
 *snātvā*—después de bañarte; *anusavanam*—tres veces; *tasmin*—en ese; *kālindyāḥ*—en el río Kālindī (el Yamunā); *salile*—en el agua; *śive*—que es muy auspiciosa; *kṛtvā*—ejecutando; *ucitāni*—adecuado; *nivasan*—asiento; *ātmanaḥ*—del ser; *kalpita-āsanaḥ*—habiendo preparado un lugar para sentarte.

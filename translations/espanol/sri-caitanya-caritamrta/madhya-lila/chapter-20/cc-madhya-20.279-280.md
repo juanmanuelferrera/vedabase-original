@@ -1,14 +1,14 @@
 ### CC Madhya 20.279-280
 
-> গবাক্ষে উড়িয়া যৈছে রেণু আসে যায় ।
-> পুরুষ-নিশ্বাস-সহ ব্রহ্মাণ্ড বাহিরায় ॥২৭৯॥
-> পুনরপি নিশ্বাস-সহ যায় অভ্যন্তর ।
+> গবাক্ষে উড়িয়া যৈছে রেণু আসে যায় ।\
+> পুরুষ-নিশ্বাস-সহ ব্রহ্মাণ্ড বাহিরায় ॥২৭৯॥\
+> পুনরপি নিশ্বাস-সহ যায় অভ্যন্তর ।\
 > অনন্ত ঐশ্বর্য তাঁর, সব — মায়া-পার ॥২৮০॥
 
-> gavākṣe uḍiyā yaiche reṇu āse yāya
+> gavākṣe uḍiyā yaiche reṇu āse yāya\
 > puruṣa-niśvāsa-saha brahmāṇḍa bāhirāya
 
-> punarapi niśvāsa-saha yāya abhyantara
+> punarapi niśvāsa-saha yāya abhyantara\
 > ananta aiśvarya tāṅra, saba—māyā-pāra
 
 *gavākṣe*—de un orificio en lo alto de una pared; *uḍiyā*—flotando; *yaiche*—como; *reṇu*—partículas atómicas; *āse yāya*—vienen y van; *puruṣa-niśvāsa-saha*—con el exhalar de Mahā-Viṣṇu; *brahmāṇḍa*—los universos; *bāhirāya*—salen; *punarapi*—de nuevo; *niśvāsa-saha*—por Su inhalación; *yāya*—van; *abhyantara*—dentro; *ananta*—ilimitadas; *aiśvarya*—opulencias; *tāṅra*—de Él; *saba*—todo; *māyā-pāra*—más allá de los conceptos materiales.

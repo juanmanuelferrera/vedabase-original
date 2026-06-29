@@ -1,9 +1,9 @@
 ### CC Madhya 7.97
 
-> এই শ্লোক পড়ি’ পথে চলিলা গৌরহরি ৷
+> এই শ্লোক পড়ি’ পথে চলিলা গৌরহরি ৷\
 > লোক দেখি’ পথে কহে, — বল ‘হরি’ ‘হরি’ ৷৷ ৯৭ ৷৷ ॥৯৭॥
 
-> ei śloka paḍi' pathe calilā gaurahari
+> ei śloka paḍi' pathe calilā gaurahari\
 > loka dekhi' pathe kahe,--bala 'hari' 'hari'
 
 *ei śloka paḍi'*—recitando este verso kṛṣṇa! kṛṣṇa!; *pathe*—por el camino; *calilā*—fue; *gaurahari*—el Señor Śrī Caitanya Mahāprabhu; *loka dekhi'*—viendo a otras personas; *pathe*—por el camino; *kahe*—dice; *bala*—decid; *hari hari*—el santo nombre del Señor Hari.

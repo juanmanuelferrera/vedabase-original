@@ -1,11 +1,11 @@
 ### SB 1.10.29
 
-> या वीर्यशुल्केन हृताः स्वयंवरे प्रमथ्य चैद्यप्रमुखान्हि शुष्मिणः ।
+> या वीर्यशुल्केन हृताः स्वयंवरे प्रमथ्य चैद्यप्रमुखान्हि शुष्मिणः ।\
 > प्रद्युम्नसाम्बाम्बसुतादयोऽपरा याश्चाहृता भौमवधे सहस्रशः ॥२९॥
 
-> yā vīrya-śulkena hṛtāḥ svayaṁvare
-> pramathya caidya-pramukhān hi śuṣmiṇaḥ
-> pradyumna-sāmbāmba-sutādayo 'parā
+> yā vīrya-śulkena hṛtāḥ svayaṁvare\
+> pramathya caidya-pramukhān hi śuṣmiṇaḥ\
+> pradyumna-sāmbāmba-sutādayo 'parā\
 > yāś cāhṛtā bhauma-vadhe sahasraśaḥ
 
 *yā*—the lady; *vīrya*—prowess; *śulkena*—by payment of the price; *hṛtāḥ*—taken away by force; *svayaṁvare*—in the open selection of the bridegroom; *pramathya*—harassing; *caidya*—King Śiśupāla; *pramukhān*—headed by; *hi*—positively; *śuṣmiṇaḥ*—all very powerful; *pradyumna*—Pradyumna (Kṛṣṇa's son); *sāmba*—Sāmba; *amba*—Amba; *suta-ādayaḥ*—children; *aparāḥ*—other ladies; *yāḥ*—those; *ca*—also; *āhṛtāḥ*—similarly brought; *bhauma-vadhe*—after killing kings; *sahasraśaḥ*—by the thousands.

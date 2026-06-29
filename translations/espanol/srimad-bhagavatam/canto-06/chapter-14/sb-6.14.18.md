@@ -1,11 +1,11 @@
 ### SB 6.14.18
 
-> आत्मानं प्रकृतिष्वद्धा निधाय श्रेय आप्नुयात
+> आत्मानं प्रकृतिष्वद्धा निधाय श्रेय आप्नुयात\
 > राज्ञआ तथा प्रकृतयो नरदेवाहिताधयः ॥१८॥
 
-> ātmānaṁ prakṛtiṣv addhā
-> nidhāya śreya āpnuyāt
-> rājñā tathā prakṛtayo
+> ātmānaṁ prakṛtiṣv addhā\
+> nidhāya śreya āpnuyāt\
+> rājñā tathā prakṛtayo\
 > naradevāhitādhayaḥ
 
 *ātmānam*—él mismo; *prakṛtiṣu*—bajo estos siete elementos de la realeza; *addhā*—directamente; *nidhāya*—situar; *śreyaḥ*—felicidad suprema; *āpnuyāt*—puede obtener; *rājñā*—por el rey; *tathā*—así también; *prakṛtayaḥ*—los elementos subordinados de la realeza; *nara-deva*—¡oh, rey!; *āhita-adhayaḥ*—ofrecer riquezas y otros artículos.

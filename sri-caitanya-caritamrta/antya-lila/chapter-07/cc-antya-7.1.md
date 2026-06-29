@@ -1,11 +1,11 @@
 ### CC Antya 7.1
 
-> চৈতন্যচরণাম্ভোজমকরন্দলিহো ভজে ।
+> চৈতন্যচরণাম্ভোজমকরন্দলিহো ভজে ।\
 > যেষাং প্রসাদমাত্রেণ পামরোঽপ্যমরো ভবেৎ ॥১॥
 
-> caitanya-caraṇāmbhoja-
-> makaranda-liho bhaje
-> yeṣāṁ prasāda-mātreṇa
+> caitanya-caraṇāmbhoja-\
+> makaranda-liho bhaje\
+> yeṣāṁ prasāda-mātreṇa\
 > pāmaro 'py amaro bhavet
 
 *caitanya*—of Śrī Caitanya Mahāprabhu; *caraṇa-ambhoja*—at the lotus feet; *makaranda*—the honey; *lihaḥ*—unto those engaged in licking; *bhaje*—I offer my obeisances; *yeṣām*—of whom; *prasāda-mātreṇa*—simply by the mercy; *pāmaraḥ*—a fallen soul; *api*—even; *amaraḥ*—liberated; *bhavet*—becomes.

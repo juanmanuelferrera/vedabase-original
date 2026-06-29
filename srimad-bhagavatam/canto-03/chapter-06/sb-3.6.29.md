@@ -1,11 +1,11 @@
 ### SB 3.6.29
 
-> तार्तीयेन स्वभावेन भगवन्नाभिमाश्रिताः ।
+> तार्तीयेन स्वभावेन भगवन्नाभिमाश्रिताः ।\
 > उभयोरन्तरं व्योम ये रुद्रपार्षदां गणाः ॥२९॥
 
-> tārtīyena svabhāvena
-> bhagavan-nābhim āśritāḥ
-> ubhayor antaraṁ vyoma
+> tārtīyena svabhāvena\
+> bhagavan-nābhim āśritāḥ\
+> ubhayor antaraṁ vyoma\
 > ye rudra-pārṣadāṁ gaṇāḥ
 
 *tārtīyena*—by excessive development of the third mode of material nature, the mode of ignorance; *svabhāvena*—by such nature; *bhagavat-nābhim*—the abdominal navel of the gigantic form of the Personality of Godhead; *āśritāḥ*—those who are so situated; *ubhayoḥ*—between the two; *antaram*—in between; *vyoma*—the sky; *ye*—all of whom; *rudra-pārṣadām*—associates of Rudra; *gaṇāḥ*—population.

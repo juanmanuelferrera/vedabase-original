@@ -1,9 +1,9 @@
 ### CC Madhya 24.105
 
-> আগে যত যত অর্থ ব্যাখ্যান করিব ।
+> আগে যত যত অর্থ ব্যাখ্যান করিব ।\
 > কৃষ্ণগুণাস্বাদের এই হেতু জানিব ॥১০৫॥
 
-> āge yata yata artha vyākhyāna kariba
+> āge yata yata artha vyākhyāna kariba\
 > kṛṣṇa-guṇāsvādera ei hetu jāniba
 
 *āge*—ahead; *yata yata*—as many as; *artha*—meanings; *vyākhyāna kariba*—I shall explain; *kṛṣṇa-guṇa-āsvādera*—of tasting the transcendental qualities of Kṛṣṇa; *ei*—this; *hetu*—reason; *jāniba*—we shall understand.

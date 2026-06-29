@@ -1,11 +1,11 @@
 ### SB 2.8.10
 
-> स चापि यत्र पुरुषो विश्वस्थित्युद्भवाप्ययः ।
+> स चापि यत्र पुरुषो विश्वस्थित्युद्भवाप्ययः ।\
 > मुक्त्वात्ममायां मायेशः शेते सर्वगुहाशयः ॥१०॥
 
-> sa cāpi yatra puruṣo
-> viśva-sthity-udbhavāpyayaḥ
-> muktvātma-māyāṁ māyeśaḥ
+> sa cāpi yatra puruṣo\
+> viśva-sthity-udbhavāpyayaḥ\
+> muktvātma-māyāṁ māyeśaḥ\
 > śete sarva-guhāśayaḥ
 
 *saḥ*—Él; *ca*—también; *api*—tal como Él es; *yatra*—donde; *puruṣaḥ*—la Personalidad de Dios; *viśva*—los mundos materiales; *sthiti*—manutención; *udbhava*—creación; *apyayaḥ*—aniquilación; *muktvā*—sin ser tocado; *ātma-māyām*—energía propia; *māyā-īśaḥ*—el Señor de todas las energías; *śete*—yace en; *sarva-guhā-śayaḥ*—aquel que yace en el corazón de todos.

@@ -1,11 +1,11 @@
 ### CC Madhya 24.86
 
-> নায়ং সুখাপো ভগবান্ দেহিনাং গোপিকাসুতঃ ।
+> নায়ং সুখাপো ভগবান্ দেহিনাং গোপিকাসুতঃ ।\
 > জ্ঞানিনাঞ্চাত্মভূতানাং যথা ভক্তিমতামিহ ॥৮৬॥
 
-> nāyaṁ sukhāpo bhagavān
-> dehināṁ gopikā-sutaḥ
-> jñānināṁ cātma-bhūtānāṁ
+> nāyaṁ sukhāpo bhagavān\
+> dehināṁ gopikā-sutaḥ\
+> jñānināṁ cātma-bhūtānāṁ\
 > yathā bhaktimatām iha
 
 *na*—no; *ayam*—este Señor Śrī Kṛṣṇa; *sukha-āpaḥ*—fácilmente accesible; *bhagavān*—la Suprema Personalidad de Dios; *dehinām*—para las personas materialistas que han aceptado el cuerpo como el yo; *gopikā-sutaḥ*—el hijo de madre Yaśodā; *jñāninām*—para las personas adictas a la especulación mental; *ca*—y; *ātma-bhūtānām*—para las personas que practican severas austeridades y penitencias; *yathā*—como; *bhakti-matām*—para las personas que se ocupan en el servicio devocional espontáneo; *iha*—en este mundo.

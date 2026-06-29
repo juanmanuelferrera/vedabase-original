@@ -1,9 +1,9 @@
 ### CC Adi 11.8
 
-> শ্রীবীরভদ্র গোসাঞি — স্কন্ধ-মহাশাখা ।
+> শ্রীবীরভদ্র গোসাঞি — স্কন্ধ-মহাশাখা ।\
 > তাঁর উপশাখা যত, অসংখ্য তার লেখা ॥৮॥
 
-> śrī-vīrabhadra gosāñi—skandha-mahāśākhā
+> śrī-vīrabhadra gosāñi—skandha-mahāśākhā\
 > tāṅra upaśākhā yata, asaṅkhya tāra lekhā
 
 *śrī-vīrabhadra gosāñi*—of the name Śrī Vīrabhadra Gosāñi; *skandha*—of the trunk; *mahā-śākhā*—the biggest branch; *tāṅra*—his; *upaśākhā*—subbranches; *yata*—all; *asaṅkhya*—innumerable; *tāra*—of that; *lekhā*—the description.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.131
 
-> ‘বাপের ধন আছে’ — জ্ঞানে ধন নাহি পায় ৷
+> ‘বাপের ধন আছে’ — জ্ঞানে ধন নাহি পায় ৷\
 > তবে সর্বজ্ঞ কহে তারে প্রাপ্তির উপায় ৷৷ ১৩১ ৷৷ ॥১৩১॥
 
-> 'bāpera dhana āche'--jñāne dhana nāhi pāya
+> 'bāpera dhana āche'--jñāne dhana nāhi pāya\
 > tabe sarvajña kahe tāre prāptira upāya
 
 *bāpera dhana āche*—el padre tiene algún tesoro; *jñāne*—por este conocimiento; *dhana*—tesoro; *nāhi pāya*—no se obtiene; *tabe*—entonces; *sarvajña*—el astrólogo; *kahe*—dice; *tāre*—al hombre pobre; *prāptira upāya*—los medios para obtener el tesoro.

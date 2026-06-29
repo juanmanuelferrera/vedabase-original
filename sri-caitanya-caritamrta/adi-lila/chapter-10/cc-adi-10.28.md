@@ -1,9 +1,9 @@
 ### CC Adi 10.28
 
-> সে-সব সামগ্রী আগে করিব বিস্তার ।
+> সে-সব সামগ্রী আগে করিব বিস্তার ।\
 > যাহার শ্রবণে ভক্তের বহে অশ্রুধার ॥২৮॥
 
-> se-saba sāmagrī āge kariba vistāra
+> se-saba sāmagrī āge kariba vistāra\
 > yāhāra śravaṇe bhaktera vahe aśrudhāra
 
 *se-saba*—all these things; *sāmagrī*—ingredients of the foods; *āge*—further on; *kariba*—I shall describe; *vistāra*—vividly; *yāhāra*—of which; *śravaṇe*—by the hearing; *bhaktera*—of a devotee; *vahe*—flowing; *aśru-dhāra*—tears.

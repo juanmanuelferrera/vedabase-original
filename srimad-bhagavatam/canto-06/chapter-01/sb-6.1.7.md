@@ -1,13 +1,13 @@
 ### SB 6.1.7
 
-> श्रीशुक उवाच
-> न चेदिहैवापचितिं यथांहसः कृतस्य कुर्यान्मनौक्तपाणिभिः
+> श्रीशुक उवाच\
+> न चेदिहैवापचितिं यथांहसः कृतस्य कुर्यान्मनौक्तपाणिभिः\
 > ध्रुवं स वै प्रेत्य नरकानुपैति ये कीर्तिता मे भवतस्तिग्मयातनाः ॥७॥
 
-> śrī-śuka uvāca
-> na ced ihaivāpacitiṁ yathāṁhasaḥ
-> kṛtasya kuryān mana-ukta-pāṇibhiḥ
-> dhruvaṁ sa vai pretya narakān upaiti
+> śrī-śuka uvāca\
+> na ced ihaivāpacitiṁ yathāṁhasaḥ\
+> kṛtasya kuryān mana-ukta-pāṇibhiḥ\
+> dhruvaṁ sa vai pretya narakān upaiti\
 > ye kīrtitā me bhavatas tigma-yātanāḥ
 
 *śrī-śukaḥ uvāca*—Śrīla Śukadeva Gosvāmī said; *na*—not; *cet*—if; *iha*—within this life; *eva*—certainly; *apacitim*—counteraction, atonement; *yathā*—duly; *aṁhasaḥ kṛtasya*—when one has performed sinful activities; *kuryāt*—performs; *manaḥ*—with the mind; *ukta*—words; *pāṇibhiḥ*—and with the senses; *dhruvam*—undoubtedly; *saḥ*—that person; *vai*—indeed; *pretya*—after death; *narakān*—different varieties of hellish conditions; *upaiti*—attains; *ye*—which; *kīrtitāḥ*—were already described; *me*—by me; *bhavataḥ*—unto you; *tigma-yātanāḥ*—in which there is very terrible suffering.

@@ -1,9 +1,9 @@
 ### CC Antya 2.73
 
-> তবে শিবানন্দে কিছু কহে ব্রহ্মচারী ।
+> তবে শিবানন্দে কিছু কহে ব্রহ্মচারী ।\
 > ‘সামগ্রী আন নৃসিংহ লাগি পুনঃ পাক করি’ ॥৭৩॥
 
-> tabe śivānande kichu kahe brahmacārī
+> tabe śivānande kichu kahe brahmacārī\
 > sāmagrī āna nṛsiṁha lāgi punaḥ pāka kari'
 
 *tabe*—acto seguido; *śivānande*—a Śivānanda; *kichu*—algo; *kahe*—dice; *brahmacārī*—Nṛsiṁhānanda Brahmacārī; *sāmagrī āna*—trae más ingredientes; *nṛsiṁha lāgi'*—para el Señor Nṛsiṁhadeva; *punaḥ*—de nuevo; *pāka kari'*—déjame cocinar.

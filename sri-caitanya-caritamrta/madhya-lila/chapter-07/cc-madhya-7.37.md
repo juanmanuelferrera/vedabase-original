@@ -1,9 +1,9 @@
 ### CC Madhya 7.37
 
-> তোমার দুই হস্ত বদ্ধ নাম-গণনে ।
+> তোমার দুই হস্ত বদ্ধ নাম-গণনে ।\
 > জলপাত্র-বহির্বাস বহিবে কেমনে ॥৩৭॥
 
-> tomāra dui hasta baddha nāma-gaṇane
+> tomāra dui hasta baddha nāma-gaṇane\
 > jala-pātra-bahirvāsa vahibe kemane
 
 *tomāra*—Your; *dui*—two; *hasta*—hands; *baddha*—engaged; *nāma*—the holy name; *gaṇane*—in counting; *jala-pātra*—waterpot; *bahir-vāsa*—external garments; *vahibe*—will carry; *kemane*—how.

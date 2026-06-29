@@ -1,9 +1,9 @@
 ### CC Madhya 18.92
 
-> একদিন অক্রূরেতে লোক প্রাতঃকালে ।
+> একদিন অক্রূরেতে লোক প্রাতঃকালে ।\
 > বৃন্দাবন হৈতে আইসে করি’ কোলাহলে ॥৯২॥
 
-> eka-dina akrūrete loka prātaḥ-kāle
+> eka-dina akrūrete loka prātaḥ-kāle\
 > vṛndāvana haite āise kari' kolāhale
 
 *eka-dina*—one day; *akrūrete*—at Akrūra-tīrtha; *loka*—people; *prātaḥ-kāle*—in the morning; *vṛndāvana haite*—from Vṛndāvana; *āise*—came; *kari'*—making; *kolāhale*—tumult.

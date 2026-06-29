@@ -1,13 +1,13 @@
 ### SB 2.8.1
 
-> राजोवाच
-> ब्रह्मणा चोदितो ब्रह्मन्गुणाख्यानेऽगुणस्य च ।
+> राजोवाच\
+> ब्रह्मणा चोदितो ब्रह्मन्गुणाख्यानेऽगुणस्य च ।\
 > यस्मै यस्मै यथा प्राह नारदो देवदर्शनः ॥१॥
 
-> rājovāca
-> brahmaṇā codito brahman
-> guṇākhyāne 'guṇasya ca
-> yasmai yasmai yathā prāha
+> rājovāca\
+> brahmaṇā codito brahman\
+> guṇākhyāne 'guṇasya ca\
+> yasmai yasmai yathā prāha\
 > nārado deva-darśanaḥ
 
 *rājā*—el rey; *uvāca*—preguntó; *brahmaṇā*—por el Señor Brahmā; *coditaḥ*—siendo instruido; *brahman*—¡oh, *brāhmaṇa* erudito (Śukadeva Gosvāmī)!; *guṇa-ākhyāne*—al describir las cualidades trascendentales; *aguṇasya*—del Señor, que está exento de cualidades materiales; *ca*—y; *yasmai yasmai*—y a quién; *yathā*—tanto como; *prāha*—explicó; *nāradaḥ*—Nārada Muni; *deva-darśanaḥ*—aquel cuya audiencia tiene el mismo efecto que la de cualquier semidiós.

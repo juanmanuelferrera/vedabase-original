@@ -1,9 +1,9 @@
 ### CC Madhya 13.83
 
-> নৃত্যে প্রভুর যাঁহা যাঁহা পড়ে পদতল ।
+> নৃত্যে প্রভুর যাঁহা যাঁহা পড়ে পদতল ।\
 > সসাগর-শৈল মহী করে টলমল ॥৮৩॥
 
-> nṛtye prabhura yāhāṅ yāṅhā paḍe pada-tala
+> nṛtye prabhura yāhāṅ yāṅhā paḍe pada-tala\
 > sasāgara-śaila mahī kare ṭalamala
 
 *nṛtye*—mientras danzaba; *prabhura*—de Śrī Caitanya Mahāprabhu; *yāhāṅ yāṅhā*—dondequiera; *paḍe*—pisa; *pada-tala*—Su pie; *sa-sāgara*—con los océanos; *śaila*—colinas y montañas; *mahī*—la tierra; *kare*—hace; *ṭalamala*—inclinarse.

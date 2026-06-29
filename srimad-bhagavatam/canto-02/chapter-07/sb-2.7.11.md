@@ -1,13 +1,13 @@
 ### SB 2.7.11
 
-> सत्रे ममास भगवान्हयशीरषाथो
-> साक्षात्स यज्ञपुरुषस्तपनीयवर्णः ।
-> छन्दोमयो मखमयोऽखिलदेवतात्मा
+> सत्रे ममास भगवान्हयशीरषाथो\
+> साक्षात्स यज्ञपुरुषस्तपनीयवर्णः ।\
+> छन्दोमयो मखमयोऽखिलदेवतात्मा\
 > वाचो बभूवुरुशतीः श्वसतोऽस्य नस्तः ॥११॥
 
-> satre mamāsa bhagavān haya-śīraṣātho
-> sākṣāt sa yajña-puruṣas tapanīya-varṇaḥ
-> chandomayo makhamayo 'khila-devatātmā
+> satre mamāsa bhagavān haya-śīraṣātho\
+> sākṣāt sa yajña-puruṣas tapanīya-varṇaḥ\
+> chandomayo makhamayo 'khila-devatātmā\
 > vāco babhūvur uśatīḥ śvasato 'sya nastaḥ
 
 *satre*—in the sacrificial ceremony; *mama*—of mine; *āsa*—appeared; *bhagavān*—the Personality of Godhead; *haya-śīraṣā*—with His horselike head; *atha*—thus; *sākṣāt*—directly; *saḥ*—He; *yajña-puruṣaḥ*—the person who is pleased by performances of sacrifice; *tapanīya*—golden; *varṇaḥ*—hue; *chandaḥ-mayaḥ*—personified Vedic hymns; *makha-mayaḥ*—personified sacrifices; *akhila*—all that be; *devatā-ātmā*—the soul of the demigods; *vācaḥ*—sounds; *babhūvuḥ*—become audible; *uśatīḥ*—very pleasing to hear; *śvasataḥ*—while breathing; *asya*—His; *nastaḥ*—through the nostrils.

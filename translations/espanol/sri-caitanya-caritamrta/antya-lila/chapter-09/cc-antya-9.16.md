@@ -1,9 +1,9 @@
 ### CC Antya 9.16
 
-> প্রভু কহে, — ‘রাজা কেনে করয়ে তাড়ন ?’
+> প্রভু কহে, — ‘রাজা কেনে করয়ে তাড়ন ?’\
 > তবে সেই লোক কহে সব বিবরণ ॥১৬॥
 
-> prabhu kahe,--'rājā kene karaye tāḍana?'
+> prabhu kahe,--'rājā kene karaye tāḍana?'\
 > tabe sei loka kahe saba vivaraṇa
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *rājā*—el rey; *kene*—por qué; *karaye tāḍana*—castiga; *tabe*—entonces; *sei loka*—aquellas personas; *kahe*—relataron; *saba vivaraṇa*—toda la descripción.

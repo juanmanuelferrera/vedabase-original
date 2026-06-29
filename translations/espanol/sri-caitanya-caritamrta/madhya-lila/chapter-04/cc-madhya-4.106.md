@@ -1,9 +1,9 @@
 ### CC Madhya 4.106
 
-> গোপাল কহে, পুরী আমার তাপ নাহি যায় ।
+> গোপাল কহে, পুরী আমার তাপ নাহি যায় ।\
 > মলয়জ-চন্দন লেপ’, তবে সে জুড়ায় ॥১০৬॥
 
-> gopāla kahe, purī āmāra tāpa nāhi yāya
+> gopāla kahe, purī āmāra tāpa nāhi yāya\
 > malayaja-candana lepa', tabe se juḍāya
 
 *gopāla*—la Deidad de Gopāla; *kahe*—dijo; *purī*—mi querido Mādhavendra Purī; *āmāra*—Mi; *tāpa*—temperatura corporal; *nāhi*—no; *yāya*—se va; *malayaja-candana*—sándalo producido en las colinas de Malaya; *lepa'*—unta sobre el cuerpo; *tabe*—entonces; *se*—eso; *juḍāya*—refresca.

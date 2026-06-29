@@ -1,13 +1,13 @@
 ### SB 3.16.9
 
-> येषां बिभर्म्यहमखण्डविकुण्ठयोग
-> मायाविभूतिरमलाङ्घ्रिरजः किरीटैः ।
-> विप्रांस्तु को न विषहेत यदर्हणाम्भः
+> येषां बिभर्म्यहमखण्डविकुण्ठयोग\
+> मायाविभूतिरमलाङ्घ्रिरजः किरीटैः ।\
+> विप्रांस्तु को न विषहेत यदर्हणाम्भः\
 > सद्यः पुनाति सहचन्द्रललामलोकान् ॥९॥
 
-> yeṣāṁ bibharmy aham akhaṇḍa-vikuṇṭha-yoga-
-> māyā-vibhūtir amalāṅghri-rajaḥ kirīṭaiḥ
-> viprāṁs tu ko na viṣaheta yad-arhaṇāmbhaḥ
+> yeṣāṁ bibharmy aham akhaṇḍa-vikuṇṭha-yoga-\
+> māyā-vibhūtir amalāṅghri-rajaḥ kirīṭaiḥ\
+> viprāṁs tu ko na viṣaheta yad-arhaṇāmbhaḥ\
 > sadyaḥ punāti saha-candra-lalāma-lokān
 
 *yeṣām*—de los *brāhmaṇas*; *bibharmi*—Yo llevo; *aham*—Yo; *akhaṇḍa*—ininterrumpida; *vikuṇṭha*—incontenible; *yoga-māyā*—energía interna; *vibhūtiḥ*—opulencia; *amala*—puro; *aṅghri*—de los pies; *rajaḥ*—el polvo; *kirīṭaiḥ*—sobre Mi yelmo; *viprān*—los *brāhmaṇas*; *tu*—entonces; *kaḥ*—quién; *na*—no; *viṣaheta*—llevar; *yat*—del Señor Supremo; *arhaṇa-ambhaḥ*—agua que ha lavado los pies; *sadyaḥ*—al momento; *punāti*—santifica; *saha*—junto con; *candra-lalāma*—Śiva; *lokān*—los tres mundos.

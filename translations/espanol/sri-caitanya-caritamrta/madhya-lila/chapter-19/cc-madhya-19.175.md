@@ -1,9 +1,9 @@
 ### CC Madhya 19.175
 
-> ভুক্তি-মুক্তি আদি-বাঞ্ছা যদি মনে হয় ।
+> ভুক্তি-মুক্তি আদি-বাঞ্ছা যদি মনে হয় ।\
 > সাধন করিলে প্রেম উৎপন্ন না হয় ॥১৭৫॥
 
-> bhukti-mukti ādi-vāñchā yadi mane haya
+> bhukti-mukti ādi-vāñchā yadi mane haya\
 > sādhana karile prema utpanna nā haya
 
 *bhukti*—disfrute material; *mukti*—liberarse del cautiverio material; *ādi*—y demás; *vāñchā*—deseos; *yadi*—si; *mane*—en la mente; *haya*—hay; *sādhana karile*—incluso ejecutando servicio devocional conforme a la rutina regulativa; *prema*—amor genuino por Kṛṣṇa; *utpanna*—despertado; *nā*—no; *haya*—se produce.

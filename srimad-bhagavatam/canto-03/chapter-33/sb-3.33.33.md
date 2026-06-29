@@ -1,11 +1,11 @@
 ### SB 3.33.33
 
-> कपिलोऽपि महायोगी भगवान्पितुराश्रमात् ।
+> कपिलोऽपि महायोगी भगवान्पितुराश्रमात् ।\
 > मातरं समनुज्ञाप्य प्रागुदीचीं दिशं ययौ ॥३३॥
 
-> kapilo 'pi mahā-yogī
-> bhagavān pitur āśramāt
-> mātaraṁ samanujñāpya
+> kapilo 'pi mahā-yogī\
+> bhagavān pitur āśramāt\
+> mātaraṁ samanujñāpya\
 > prāg-udīcīṁ diśaṁ yayau
 
 *kapilaḥ*—Lord Kapila; *api*—surely; *mahā-yogī*—the great sage; *bhagavān*—the Supreme Personality of Godhead; *pituḥ*—of His father; *āśramāt*—from the hermitage; *mātaram*—from His mother; *samanujñāpya*—having asked permission; *prāk-udīcīm*—northeast; *diśam*—direction; *yayau*—He went.

@@ -1,13 +1,13 @@
 ### SB 7.11.1
 
-> श्रीशुक उवाच
-> श्रुत्वेहितं साधु सभासभाजितं महत्तमाग्रण्य उरुक्रमात्मनः
+> श्रीशुक उवाच\
+> श्रुत्वेहितं साधु सभासभाजितं महत्तमाग्रण्य उरुक्रमात्मनः\
 > युधिष्ठिरो दैत्यपतेर्मुदान्वितः पप्रच्छ भूयस्तनयं स्वयम्भुवः ॥१॥
 
-> śrī-śuka uvāca
-> śrutvehitaṁ sādhu sabhā-sabhājitaṁ
-> mahattamāgraṇya urukramātmanaḥ
-> yudhiṣṭhiro daitya-pater mudānvitaḥ
+> śrī-śuka uvāca\
+> śrutvehitaṁ sādhu sabhā-sabhājitaṁ\
+> mahattamāgraṇya urukramātmanaḥ\
+> yudhiṣṭhiro daitya-pater mudānvitaḥ\
 > papraccha bhūyas tanayaṁ svayambhuvaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *śrutvā*—escuchar; *īhitam*—la narración; *sādhu sabhā-sabhājitam*—que se comenta en asambleas de grandes devotos como el Señor Brahmā y el Señor Śiva; *mahat-tama-agraṇyaḥ*—la mejor de las personas santas (Yudhiṣṭhira); *urukrama-ātmanaḥ*—de aquel (de Prahlāda Mahārāja), cuya mente está constantemente dedicada a la Suprema Personalidad de Dios, que siempre realiza actividades extraordinarias; *yudhiṣṭhiraḥ*—el rey Yudhiṣṭhira; *daitya-pateḥ*—del señor de los demonios; *mudā-anvitaḥ*—con una actitud alegre; *papraccha*—preguntó; *bhūyaḥ*—de nuevo; *tanayam*—al hijo; *svayambhuvaḥ*—del Señor Brahmā.

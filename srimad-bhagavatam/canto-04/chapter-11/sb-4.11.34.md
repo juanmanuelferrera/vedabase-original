@@ -1,11 +1,11 @@
 ### SB 4.11.34
 
-> तं प्रसादय वत्साशु सन्नत्या प्रश्रयोक्तिभिः ।
+> तं प्रसादय वत्साशु सन्नत्या प्रश्रयोक्तिभिः ।\
 > न यावन्महतां तेजः कुलं नोऽभिभविष्यति ॥३४॥
 
-> taṁ prasādaya vatsāśu
-> sannatyā praśrayoktibhiḥ
-> na yāvan mahatāṁ tejaḥ
+> taṁ prasādaya vatsāśu\
+> sannatyā praśrayoktibhiḥ\
+> na yāvan mahatāṁ tejaḥ\
 > kulaṁ no 'bhibhaviṣyati
 
 *tam*—him; *prasādaya*—pacify; *vatsa*—my son; *āśu*—immediately; *sannatyā*—by offering obeisances; *praśrayā*—by respectful behavior; *uktibhiḥ*—by gentle words; *na yāvat*—before; *mahatām*—of great personalities; *tejaḥ*—wrath; *kulam*—family; *naḥ*—our; *abhibhaviṣyati*—will affect.

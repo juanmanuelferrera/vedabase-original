@@ -1,9 +1,9 @@
 ### CC Madhya 12.212
 
-> প্রফুল্ল-কমল জিনি’নয়ন-যুগল ।
+> প্রফুল্ল-কমল জিনি’নয়ন-যুগল ।\
 > নীলমণি-দর্পণ-কান্তি গণ্ড ঝলমল ॥২১২॥
 
-> praphulla-kamala jini' nayana-yugala
+> praphulla-kamala jini' nayana-yugala\
 > nīlamaṇi-darpaṇa-kānti gaṇḍa jhalamala
 
 *praphulla-kamala*—blossoming lotus flower; *jini'*—conquering; *nayana-yugala*—two eyes; *nīlamaṇi*—sapphire; *darpaṇa*—mirror; *kānti*—luster; *gaṇḍa*—neck; *jhalamala*—bright.

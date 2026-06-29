@@ -1,27 +1,27 @@
 ### SB 6.8.4-6
 
-> श्रीविश्वरूप उवाच
-> धौताङ्घ्रिपाणिराचम्य सपवित्र उदङ्मुखः
-> कृतस्वाङ्गकरन्यासो मन्त्राभ्यां वाग्यतः शुचिः ॥४॥
-> नारायणपरं वर्म सन्नह्येद्भय आगते
-> पादयोर्जानुनोरूर्वोरुदरे हृद्यथोरसि ॥५॥
-> मुखे शिरस्यानुपूर्व्यादोंकारादीनि विन्यसेत
+> श्रीविश्वरूप उवाच\
+> धौताङ्घ्रिपाणिराचम्य सपवित्र उदङ्मुखः\
+> कृतस्वाङ्गकरन्यासो मन्त्राभ्यां वाग्यतः शुचिः ॥४॥\
+> नारायणपरं वर्म सन्नह्येद्भय आगते\
+> पादयोर्जानुनोरूर्वोरुदरे हृद्यथोरसि ॥५॥\
+> मुखे शिरस्यानुपूर्व्यादोंकारादीनि विन्यसेत\
 > ओं नमो नारायणायेति विपर्ययमथापि वा ॥६॥
 
-> śrī-viśvarūpa uvāca
-> dhautāṅghri-pāṇir ācamya
-> sapavitra udaṅ-mukhaḥ
-> kṛta-svāṅga-kara-nyāso
+> śrī-viśvarūpa uvāca\
+> dhautāṅghri-pāṇir ācamya\
+> sapavitra udaṅ-mukhaḥ\
+> kṛta-svāṅga-kara-nyāso\
 > mantrābhyāṁ vāg-yataḥ śuciḥ
 
-> nārāyaṇa-paraṁ varma
-> sannahyed bhaya āgate
-> pādayor jānunor ūrvor
+> nārāyaṇa-paraṁ varma\
+> sannahyed bhaya āgate\
+> pādayor jānunor ūrvor\
 > udare hṛdy athorasi
 
-> mukhe śirasy ānupūrvyād
-> oṁkārādīni vinyaset
-> oṁ namo nārāyaṇāyeti
+> mukhe śirasy ānupūrvyād\
+> oṁkārādīni vinyaset\
+> oṁ namo nārāyaṇāyeti\
 > viparyayam athāpi vā
 
 *śrī-viśvarūpaḥ uvāca*—Śrī Viśvarūpa dijo; *dhauta*—habiendo lavado perfectamente; *aṅghri*—pies; *pāṇiḥ*—manos; *ācamya*—realizar *ācamana* (sorber tres veces un poco de agua tras cantar el *mantra* prescrito); *sa-pavitraḥ*—con sendos anillos de hierba *kuśa* (en el dedo anular de cada mano); *udak-mukhaḥ*—sentarse mirando al norte; *kṛta*—hacer; *sva-anga-kara-nyāsaḥ*—asignación mental de las ocho partes del cuerpo y de las doce partes de las manos; *mantrābhyām*—con los dos *mantras* (*oṁ namo bhagavate vāsudevāya* y *oṁ namo nārāyaṇāya*); *vāk-yataḥ*—guardando silencio; *śuciḥ*—purificado; *nārāyaṇa-param*—perfectamente concentrado en el Señor Nārāyaṇa; *varma*—armadura; *sannahyet*—ponerse; *bhaye*—cuando el temor; *āgate*—haya venido; *pādayoḥ*—en las dos piernas; *jānunoḥ*—en las rodillas; *ūrvoḥ*—en los muslos; *udare*—en el abdomen; *hṛdi*—en el corazón; *atha*—así; *urasi*—en el pecho; *mukhe*—en la boca; *śirasi*—en la cabeza; *ānupūrvyāt*—uno tras otro; *oṁkāra-ādīni*—comenzando con*oṁkāra*; *vinyaset*—se debe situar; *oṁ*—el *praṇava*; *namaḥ*—reverencias; *nārāyaṇāya*—a Nārāyaṇa, la Suprema Personalidad de Dios; *iti*—así; *viparyayam*—el inverso; *atha api*—además; *vā*—o.

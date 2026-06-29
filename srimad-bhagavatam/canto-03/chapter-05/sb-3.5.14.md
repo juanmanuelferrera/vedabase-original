@@ -1,11 +1,11 @@
 ### SB 3.5.14
 
-> ताञ्छोच्यशोच्यानविदोऽनुशोचे हरेः कथायां विमुखानघेन ।
+> ताञ्छोच्यशोच्यानविदोऽनुशोचे हरेः कथायां विमुखानघेन ।\
 > क्षिणोति देवोऽनिमिषस्तु येषामायुर्वृथावादगतिस्मृतीनाम् ॥१४॥
 
-> tāñ chocya-śocyān avido 'nuśoce
-> hareḥ kathāyāṁ vimukhān aghena
-> kṣiṇoti devo 'nimiṣas tu yeṣām
+> tāñ chocya-śocyān avido 'nuśoce\
+> hareḥ kathāyāṁ vimukhān aghena\
+> kṣiṇoti devo 'nimiṣas tu yeṣām\
 > āyur vṛthā-vāda-gati-smṛtīnām
 
 *tān*—all those; *śocya*—pitiable; *śocyān*—of the pitiable; *avidaḥ*—ignorant; *anuśoce*—I pity; *hareḥ*—of the Lord; *kathāyām*—to the topics of; *vimukhān*—adverse; *aghena*—because of sinful activities; *kṣiṇoti*—decaying; *devaḥ*—the Lord; *animiṣaḥ*—eternal time; *tu*—but; *yeṣām*—of whom; *āyuḥ*—duration of life; *vṛthā*—uselessly; *vāda*—philosophical speculations; *gati*—ultimate goal; *smṛtīnām*—of those following different rituals.

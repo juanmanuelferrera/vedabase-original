@@ -1,9 +1,9 @@
 ### CC Madhya 6.256
 
-> এই দুই শ্লোক — ভক্তকন্ঠে রত্নহার ।
+> এই দুই শ্লোক — ভক্তকন্ঠে রত্নহার ।\
 > সার্বভৌমের কীর্তি ঘোষে ঢক্কাবাদ্যাকার ॥২৫৬॥
 
-> ei dui śloka—bhakta-kaṇṭhe ratna-hāra
+> ei dui śloka—bhakta-kaṇṭhe ratna-hāra\
 > sārvabhaumera kīrti ghoṣe ḍhakkā-vādyākāra
 
 *ei dui śloka*—these two verses; *bhakta-kaṇṭhe*—on the necks of the devotees; *ratna-hāra*—pearl necklaces; *sārvabhaumera*—of Sārvabhauma Bhaṭṭācārya; *kīrti*—reputation; *ghoṣe*—declare; *ḍhakkā*—of a drum; *vādya*—of the sound; *ākāra*—in the form.

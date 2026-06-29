@@ -1,11 +1,11 @@
 ### SB 3.12.14
 
-> गृहाणैतानि नामानि स्थानानि च सयोषणः ।
+> गृहाणैतानि नामानि स्थानानि च सयोषणः ।\
 > एभिः सृज प्रजा बह्वीः प्रजानामसि यत्पतिः ॥१४॥
 
-> gṛhāṇaitāni nāmāni
-> sthānāni ca sa-yoṣaṇaḥ
-> ebhiḥ sṛja prajā bahvīḥ
+> gṛhāṇaitāni nāmāni\
+> sthānāni ca sa-yoṣaṇaḥ\
+> ebhiḥ sṛja prajā bahvīḥ\
 > prajānām asi yat patiḥ
 
 *gṛhāṇa*—just accept; *etāni*—all these; *nāmāni*—different names; *sthānāni*—as well as places; *ca*—also; *sa-yoṣaṇaḥ*—along with wives; *ebhiḥ*—with them; *sṛja*—just generate; *prajāḥ*—progeny; *bahvīḥ*—on a large scale; *prajānām*—of the living entities; *asi*—you are; *yat*—since; *patiḥ*—the master.

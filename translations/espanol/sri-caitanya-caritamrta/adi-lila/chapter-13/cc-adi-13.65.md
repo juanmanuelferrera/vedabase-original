@@ -1,9 +1,9 @@
 ### CC Adi 13.65
 
-> সর্বশাস্ত্রে কহে কৃষ্ণভক্তির ব্যাখ্যান ।
+> সর্বশাস্ত্রে কহে কৃষ্ণভক্তির ব্যাখ্যান ।\
 > জ্ঞান, যোগ, তপো-ধর্ম নাহি মানে আন ॥৬৫॥
 
-> sarva-śāstre kahe kṛṣṇa-bhaktira vyākhyāna
+> sarva-śāstre kahe kṛṣṇa-bhaktira vyākhyāna\
 > jñāna, yoga, tapo-dharma nāhi māne āna
 
 *sarva-śāstre*—en todas las Escrituras reveladas; *kahe*—dice; *kṛṣṇa-bhaktira*—del servicio devocional al Señor Kṛṣṇa; *vyākhyāna*—explicación; *jñāna*—especulación filosófica; *yoga*—haṭha-yoga místico; *tapas*—austeridades; *dharma*—procedimientos religiosos; *nāhi*—no; *māne*—acepta; *āna*—otro.

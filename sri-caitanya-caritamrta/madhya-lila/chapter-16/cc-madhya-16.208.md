@@ -1,9 +1,9 @@
 ### CC Madhya 16.208
 
-> মাধবদাস-গৃহে তথা শচীর নন্দন ।
+> মাধবদাস-গৃহে তথা শচীর নন্দন ।\
 > লক্ষ-কোটি লোক তথা পাইল দরশন ॥২০৮॥
 
-> mādhava-dāsa-gṛhe tathā śacīra nandana
+> mādhava-dāsa-gṛhe tathā śacīra nandana\
 > lakṣa-koṭi loka tathā pāila daraśana
 
 *mādhava-dāsa-gṛhe*—at the house of Mādhava dāsa; *tathā*—there; *śacīra nandana*—the son of mother Śacī; *lakṣa-koṭi loka*—many hundreds and thousands of people; *tathā*—there; *pāila daraśana*—got His audience.

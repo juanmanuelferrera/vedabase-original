@@ -1,11 +1,11 @@
 ### SB 9.9.46
 
-> ये विक्षिप्तेन्द्रियधियो देवास्ते स्वहृदि स्थितम
+> ये विक्षिप्तेन्द्रियधियो देवास्ते स्वहृदि स्थितम\
 > न विन्दन्ति प्रियं शश्वदात्मानं किमुतापरे ॥४६॥
 
-> ye vikṣiptendriya-dhiyo
-> devās te sva-hṛdi sthitam
-> na vindanti priyaṁ śaśvad
+> ye vikṣiptendriya-dhiyo\
+> devās te sva-hṛdi sthitam\
+> na vindanti priyaṁ śaśvad\
 > ātmānaṁ kim utāpare
 
 *ye*—personalidades que; *vikṣipta-indriya-dhiyaḥ*—cuyos sentidos, mente e inteligencia están siempre agitados debido a las condiciones materiales; *devāḥ*—como los semidioses; *te*—esas personas; *sva-hṛdi*—en lo más profundo del corazón; *sthitam*—situado; *na*—no; *vindanti*—conocen; *priyam*—a la muy querida Suprema Personalidad de Dios; *śaśvat*—constantemente, eternamente; *ātmānam*—la Suprema Personalidad de Dios; *kim uta*—qué decir de; *apare*—otros (como los seres humanos).

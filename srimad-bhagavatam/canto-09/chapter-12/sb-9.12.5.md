@@ -1,11 +1,11 @@
 ### SB 9.12.5
 
-> पुष्पो हिरण्यनाभस्य ध्रुवसन्धिस्ततोऽभवत
+> पुष्पो हिरण्यनाभस्य ध्रुवसन्धिस्ततोऽभवत\
 > सुदर्शनोऽथाग्निवर्णः शीघ्रस्तस्य मरुः सुतः ॥५॥
 
-> puṣpo hiraṇyanābhasya
-> dhruvasandhis tato 'bhavat
-> sudarśano 'thāgnivarṇaḥ
+> puṣpo hiraṇyanābhasya\
+> dhruvasandhis tato 'bhavat\
+> sudarśano 'thāgnivarṇaḥ\
 > śīghras tasya maruḥ sutaḥ
 
 *puṣpaḥ*—Puṣpa; *hiraṇyanābhasya*—the son of Hiraṇyanābha; *dhruvasandhiḥ*—Dhruvasandhi; *tataḥ*—from him; *abhavat*—was born; *sudarśanaḥ*—from Dhruvasandhi, Sudarśana was born; *atha*—thereafter; *agnivarṇaḥ*—Agnivarṇa, the son of Sudarśana; *śīghraḥ*—Śīghra; *tasya*—his (Agnivarṇa's); *maruḥ*—Maru; *sutaḥ*—son.

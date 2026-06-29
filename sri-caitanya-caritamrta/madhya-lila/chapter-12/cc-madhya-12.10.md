@@ -1,9 +1,9 @@
 ### CC Madhya 12.10
 
-> যদি মোরে কৃপা না করিবে গৌরহরি  ।
+> যদি মোরে কৃপা না করিবে গৌরহরি  ।\
 > রাজ্য ছাড়ি’ যোগী হই’ হইব ভিখারী ॥১০॥
 
-> yadi more kṛpā nā karibe gaurahari
+> yadi more kṛpā nā karibe gaurahari\
 > rājya chāḍi' yogī ha-i' ha-iba bhikhārī
 
 *yadi*—if; *more*—unto me; *kṛpā*—mercy; *nā*—not; *karibe*—will do; *gaurahari*—Śrī Caitanya Mahāprabhu; *rājya chāḍi'*—giving up the kingdom; *yogī*—mendicant; *ha-i'*—becoming; *ha-iba*—I shall become; *bhikhārī*—a beggar.

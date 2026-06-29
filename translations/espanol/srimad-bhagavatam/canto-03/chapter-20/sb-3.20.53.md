@@ -1,11 +1,11 @@
 ### SB 3.20.53
 
-> तेभ्यश्चैकैकशः स्वस्य देहस्यांशमदादजः ।
+> तेभ्यश्चैकैकशः स्वस्य देहस्यांशमदादजः ।\
 > यत्तत्समाधियोगर्द्धि तपोविद्याविरक्तिमत् ॥५३॥
 
-> tebhyaś caikaikaśaḥ svasya
-> dehasyāṁśam adād ajaḥ
-> yat tat samādhi-yogarddhi-
+> tebhyaś caikaikaśaḥ svasya\
+> dehasyāṁśam adād ajaḥ\
+> yat tat samādhi-yogarddhi-\
 > tapo-vidyā-viraktimat
 
 *tebhyaḥ*—a ellos; *ca*—y; *ekaikaśaḥ*—a cada uno; *svasya*—de su propio; *dehasya*—cuerpo; *aṁśam*—parte; *adāt*—dio; *ajaḥ*—Brahmā, el innaciente; *yat*—el cual; *tat*—que; *samādhi*—meditación profunda; *yoga*—concentración de la mente; *ṛddhi*—poder sobrenatural; *tapaḥ*—austeridad; *vidyā*—conocimiento; *virakti*—renunciación; *mat*—poseyendo.

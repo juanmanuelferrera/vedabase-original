@@ -1,9 +1,9 @@
 ### CC Madhya 25.234
 
-> ‘মহাপ্রভু আইলা’ — গ্রামে কোলাহল হৈল ।
+> ‘মহাপ্রভু আইলা’ — গ্রামে কোলাহল হৈল ।\
 > সার্বভৌম, রামানন্দ, বাণীনাথ মিলিল ॥২৩৪॥
 
-> 'mahāprabhu āilā'-grāme kolāhala haila
+> 'mahāprabhu āilā'-grāme kolāhala haila\
 > sārvabhauma, rāmānanda, vāṇīnātha milila
 
 *mahāprabhu āilā*—Śrī Caitanya Mahāprabhu ha llegado; *grāme*—en la ciudad; *kolāhala haila*—se difundió la noticia; *sārvabhauma*—Sārvabhauma; *rāmānanda*—Rāmānanda; *vāṇīnātha*—Vāṇīnātha; *milila*—vinieron a encontrarse con Él.

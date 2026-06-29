@@ -1,11 +1,11 @@
 ### SB 8.8.4
 
-> तत ऐरावतो नाम वारणेन्द्रो विनिर्गतः
+> तत ऐरावतो नाम वारणेन्द्रो विनिर्गतः\
 > दन्तैश्चतुर्भिः श्वेताद्रेर्हरन्भगवतो महिम ॥४॥
 
-> tata airāvato nāma
-> vāraṇendro vinirgataḥ
-> dantaiś caturbhiḥ śvetādrer
+> tata airāvato nāma\
+> vāraṇendro vinirgataḥ\
+> dantaiś caturbhiḥ śvetādrer\
 > haran bhagavato mahim
 
 *tataḥ*—thereafter; *airāvataḥ nāma*—of the name Airāvata; *vāraṇa-indraḥ*—the king of elephants; *vinirgataḥ*—was generated; *dantaiḥ*—with its tusks; *caturbhiḥ*—four; *śveta*—white; *adreḥ*—of the mountain; *haran*—defying; *bhagavataḥ*—of Lord Śiva; *mahim*—the glories.

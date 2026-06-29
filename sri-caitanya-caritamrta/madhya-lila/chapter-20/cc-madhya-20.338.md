@@ -1,11 +1,11 @@
 ### CC Madhya 20.338
 
-> নমস্তে বাসুদেবায় নমঃ সঙ্কর্ষণায় চ ।
+> নমস্তে বাসুদেবায় নমঃ সঙ্কর্ষণায় চ ।\
 > প্রদ্যুম্নায়ানিরুদ্ধায় তুভ্যং ভগবতে নমঃ ॥৩৩৮॥
 
-> namas te vāsudevāya
-> namaḥ saṅkarṣaṇāya ca
-> pradyumnāyāniruddhāya
+> namas te vāsudevāya\
+> namaḥ saṅkarṣaṇāya ca\
+> pradyumnāyāniruddhāya\
 > tubhyaṁ bhagavate namaḥ
 
 *namaḥ*—let me offer my respectful obeisances; *te*—unto You; *vāsudevāya*—Lord Vāsudeva; *namaḥ*—respectful obeisances; *saṅkarṣaṇāya ca*—also to Lord Saṅkarṣaṇa; *pradyumnāya*—to Lord Pradyumna; *aniruddhāya*—unto Aniruddha; *tubhyam*—unto You; *bhagavate*—unto the Supreme Personality of Godhead; *namaḥ*—my respectful obeisances.

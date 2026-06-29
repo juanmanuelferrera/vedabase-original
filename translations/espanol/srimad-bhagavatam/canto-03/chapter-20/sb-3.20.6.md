@@ -1,11 +1,11 @@
 ### SB 3.20.6
 
-> ता नः कीर्तय भद्रं ते कीर्तन्योदारकर्मणः ।
+> ता नः कीर्तय भद्रं ते कीर्तन्योदारकर्मणः ।\
 > रसज्ञः को नु तृप्येत हरिलीलामृतं पिबन् ॥६॥
 
-> tā naḥ kīrtaya bhadraṁ te
-> kīrtanyodāra-karmaṇaḥ
-> rasajñaḥ ko nu tṛpyeta
+> tā naḥ kīrtaya bhadraṁ te\
+> kīrtanyodāra-karmaṇaḥ\
+> rasajñaḥ ko nu tṛpyeta\
 > hari-līlāmṛtaṁ piban
 
 *tāḥ*—esas conversaciones; *naḥ*—a nosotros; *kīrtaya*—narra; *bhadram te*—¡que todo bien caiga sobre ti!; *kīrtanya*—deben cantarse; *udāra*—liberales; *karmaṇaḥ*—actividades; *rasa-jñaḥ*—un devoto que puede apreciar los sabores de la melosidad; *kaḥ*—quién; *nu*—en verdad; *tṛpyeta*—se sentiría satisfecho; *hari-līlā-amṛtam*—el néctar de los pasatiempos del Señor; *piban*—bebiendo.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.366
 
-> প্রভু কহে, — চতুরালি ছাড়, সনাতন ।
+> প্রভু কহে, — চতুরালি ছাড়, সনাতন ।\
 > শক্ত্যাবেশাবতারের শুন বিবরণ ॥৩৬৬॥
 
-> prabhu kahe,—caturāli chāḍa, sanātana
+> prabhu kahe,—caturāli chāḍa, sanātana\
 > śaktyāveśāvatārera śuna vivarana
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu replied; *caturāli*—very intelligent argument; *chāḍa*—give up; *sanātana*—O Sanātana; *śakti-āveśa-avatārera*—of the especially empowered incarnations; *śuna*—hear; *vivaraṇa*—the description.

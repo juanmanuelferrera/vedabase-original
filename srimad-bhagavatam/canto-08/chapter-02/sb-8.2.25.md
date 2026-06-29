@@ -1,11 +1,11 @@
 ### SB 8.2.25
 
-> विगाह्य तस्मिन्नमृताम्बु निर्मलं हेमारविन्दोत्पलरेणुरूषितम
+> विगाह्य तस्मिन्नमृताम्बु निर्मलं हेमारविन्दोत्पलरेणुरूषितम\
 > पपौ निकामं निजपुष्करोद्धृतमात्मानमद्भिः स्नपयन्गतक्लमः ॥२५॥
 
-> vigāhya tasminn amṛtāmbu nirmalaṁ
-> hemāravindotpala-reṇu-rūṣitam
-> papau nikāmaṁ nija-puṣkaroddhṛtam
+> vigāhya tasminn amṛtāmbu nirmalaṁ\
+> hemāravindotpala-reṇu-rūṣitam\
+> papau nikāmaṁ nija-puṣkaroddhṛtam\
 > ātmānam adbhiḥ snapayan gata-klamaḥ
 
 *vigāhya*—entering; *tasmin*—into the lake; *amṛta-ambu*—water as pure as nectar; *nirmalam*—crystal clear; *hema*—very cold; *aravinda-utpala*—from the lilies and lotuses; *reṇu*—with the dust; *rūṣitam*—which was mixed; *papau*—he drank; *nikāmam*—until fully satisfied; *nija*—own; *puṣkara-uddhṛtam*—drawing with his trunk; *ātmānam*—himself; *adbhiḥ*—with water; *snapayan*—bathing thoroughly; *gata-klamaḥ*—was relieved of all fatigue.

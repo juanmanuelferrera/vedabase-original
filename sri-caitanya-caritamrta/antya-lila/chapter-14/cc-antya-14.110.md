@@ -1,9 +1,9 @@
 ### CC Antya 14.110
 
-> হেনকালে তুমি-সব কোলাহল কৈলা ।
+> হেনকালে তুমি-সব কোলাহল কৈলা ।\
 > তাহাঁ হৈতে ধরি’ মোরে ইহাঁ লঞা আইলা ॥১১০॥
 
-> hena-kāle tumi-saba kolāhala kailā
+> hena-kāle tumi-saba kolāhala kailā\
 > tāhāṅ haite dhari' more ihāṅ lañā āilā
 
 *hena-kāle*—at this time; *tumi-saba*—all of you; *kolāhala kailā*—made a tumultuous sound; *tāhāṅ haite*—from there; *dhari'*—catching; *more*—Me; *ihāṅ*—here; *lañā āilā*—you have brought.

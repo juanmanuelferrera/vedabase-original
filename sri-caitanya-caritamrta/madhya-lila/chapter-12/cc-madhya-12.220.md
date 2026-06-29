@@ -1,9 +1,9 @@
 ### CC Madhya 12.220
 
-> প্রাতঃকালে রথযাত্রা হবেক জানিয়া ।
+> প্রাতঃকালে রথযাত্রা হবেক জানিয়া ।\
 > সেবক লাগায় ভোগ দ্বিগুণ করিয়া ॥২২০॥
 
-> prātaḥ-kāle ratha-yātrā habeka jāniyā
+> prātaḥ-kāle ratha-yātrā habeka jāniyā\
 > sevaka lāgāya bhoga dviguṇa kariyā
 
 *prātaḥ-kāle*—in the morning; *ratha-yātrā*—the car festival; *habeka*—would take place; *jāniyā*—knowing; *sevaka*—the priestly servants of the Lord; *lāgāya*—offer; *bhoga*—food; *dvi-guṇa kariyā*—increasing to double.

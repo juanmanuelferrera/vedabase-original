@@ -1,11 +1,11 @@
 ### SB 8.18.22
 
-> ते ऋत्विजो यजमानः सदस्या हतत्विषो वामनतेजसा नृप
+> ते ऋत्विजो यजमानः सदस्या हतत्विषो वामनतेजसा नृप\
 > सूर्यः किलायात्युत वा विभावसुः सनत्कुमारोऽथ दिदृक्षया क्रतोः ॥२२॥
 
-> te ṛtvijo yajamānaḥ sadasyā
-> hata-tviṣo vāmana-tejasā nṛpa
-> sūryaḥ kilāyāty uta vā vibhāvasuḥ
+> te ṛtvijo yajamānaḥ sadasyā\
+> hata-tviṣo vāmana-tejasā nṛpa\
+> sūryaḥ kilāyāty uta vā vibhāvasuḥ\
 > sanat-kumāro 'tha didṛkṣayā kratoḥ
 
 *te*—todos ellos; *ṛtvijaḥ*—los sacerdotes; *yajamānaḥ*—así como Bali Mahārāja, que les había ocupado en la celebración del *yajña*; *sadasyāḥ*—todos los miembros de la asamblea; *hata-tviṣaḥ*—disminuida su refulgencia corporal; *vāmana-tejasā*—por la brillante refulgencia del Señor Vāmana; *nṛpa*—¡oh, rey!; *sūryaḥ*—el Sol; *kila*—si; *āyāti*—está viniendo; *uta vā*—o; *vibhāvasuḥ*—el dios del fuego; *sanat-kumāraḥ*—el *kumāra* llamado Sanat-kumāra; *atha*—o; *didṛkṣayā*—con deseo de observar; *kratoḥ*—la ceremonia de sacrificio.

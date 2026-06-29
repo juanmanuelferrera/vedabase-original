@@ -1,13 +1,13 @@
 ### CC Madhya 4.1
 
-> যস্মৈ দাতুং চোরয়ন্ ক্ষীরভাণ্ডং
-> গোপীনাথঃ ক্ষীরচোরাভিধোঽভূৎ ।
-> শ্রীগোপালঃ প্রাদুরাসীদ্বশঃ সন্
+> যস্মৈ দাতুং চোরয়ন্ ক্ষীরভাণ্ডং\
+> গোপীনাথঃ ক্ষীরচোরাভিধোঽভূৎ ।\
+> শ্রীগোপালঃ প্রাদুরাসীদ্বশঃ সন্\
 > যৎপ্রেম্ণা তং মাধবেন্দ্রং নতোঽস্মি ॥১॥
 
-> yasmai dātuṁ corayan kṣīra-bhāṇḍaṁ
-> gopīnāthaḥ kṣīra-corābhidho 'bhūt
-> śrī-gopālaḥ prādurāsīd vaśaḥ san
+> yasmai dātuṁ corayan kṣīra-bhāṇḍaṁ\
+> gopīnāthaḥ kṣīra-corābhidho 'bhūt\
+> śrī-gopālaḥ prādurāsīd vaśaḥ san\
 > yat-premṇā taṁ mādhavendraṁ nato 'smi
 
 *yasmai*—unto whom; *dātum*—to deliver; *corayan*—stealing; *kṣīra-bhāṇḍam*—the pot of sweet rice; *gopīnāthaḥ*—Gopīnātha; *kṣīra-corā*—stealer of a pot of sweet rice; *abhidhaḥ*—celebrated; *abhūt*—became; *śrī-gopālaḥ*—Śrī Gopāla Deity; *prāduḥrāsīt*—appeared; *vaśaḥ*—captivated; *san*—being; *yat-premṇā*—by his love; *tam*—unto him; *mādhavendram*—Mādhavendra Purī, who was in the Madhva-sampradāya; *nataḥ asmi*—I offer my respectful obeisances.

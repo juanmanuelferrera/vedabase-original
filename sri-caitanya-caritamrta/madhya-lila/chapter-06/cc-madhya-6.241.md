@@ -1,9 +1,9 @@
 ### CC Madhya 6.241
 
-> ভক্তিসাধন-শ্রেষ্ঠ শুনিতে হৈল মন ।
+> ভক্তিসাধন-শ্রেষ্ঠ শুনিতে হৈল মন ।\
 > প্রভু উপদেশ কৈল নাম-সংকীর্তন ॥২৪১॥
 
-> bhakti-sādhana-śreṣṭha śunite haila mana
+> bhakti-sādhana-śreṣṭha śunite haila mana\
 > prabhu upadeśa kaila nāma-saṅkīrtana
 
 *bhakti-sādhana*—in the execution of devotional service; *śreṣṭha*—the most important item; *śunite*—to hear; *haila*—it was; *mana*—the mind; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *upadeśa*—advice; *kaila*—gave; *nāma-saṅkīrtana*—chanting of the holy name of the Lord.

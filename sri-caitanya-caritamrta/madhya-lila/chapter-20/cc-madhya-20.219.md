@@ -1,9 +1,9 @@
 ### CC Madhya 20.219
 
-> সর্বত্র প্রকাশ তাঁর — ভক্তে সুখ দিতে ।
+> সর্বত্র প্রকাশ তাঁর — ভক্তে সুখ দিতে ।\
 > জগতের অধর্ম নাশি’ ধর্ম স্থাপিতে ॥২১৯॥
 
-> sarvatra prakāśa tāṅra—bhakte sukha dite
+> sarvatra prakāśa tāṅra—bhakte sukha dite\
 > jagatera adharma nāśi' dharma sthāpite
 
 *sarvatra*—everywhere; *prakāśa*—manifestations; *tāṅra*—His; *bhakte*—to the devotees; *sukha dite*—to give happiness; *jagatera*—of the material world; *adharma*—irreligious principles; *nāśi'*—destroying; *dharma*—religious principles; *sthāpite*—to establish.

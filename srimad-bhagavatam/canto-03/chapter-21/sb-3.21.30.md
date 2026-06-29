@@ -1,11 +1,11 @@
 ### SB 3.21.30
 
-> त्वं च सम्यगनुष्ठाय निदेशं म उशत्तमः ।
+> त्वं च सम्यगनुष्ठाय निदेशं म उशत्तमः ।\
 > मयि तीर्थीकृताशेष क्रियार्थो मां प्रपत्स्यसे ॥३०॥
 
-> tvaṁ ca samyag anuṣṭhāya
-> nideśaṁ ma uśattamaḥ
-> mayi tīrthī-kṛtāśeṣa-
+> tvaṁ ca samyag anuṣṭhāya\
+> nideśaṁ ma uśattamaḥ\
+> mayi tīrthī-kṛtāśeṣa-\
 > kriyārtho māṁ prapatsyase
 
 *tvam*—you; *ca*—and; *samyak*—properly; *anuṣṭhāya*—having carried out; *nideśam*—command; *me*—My; *uśattamaḥ*—completely cleansed; *mayi*—unto Me; *tīrthī-kṛta*—having resigned; *aśeṣa*—all; *kriyā*—of actions; *arthaḥ*—the fruits; *mām*—to Me; *prapatsyase*—you will attain.

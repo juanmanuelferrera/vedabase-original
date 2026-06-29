@@ -1,11 +1,11 @@
 ### SB 4.29.14
 
-> आसुरी मेढ्रमर्वाग्द्वार्व्यवायो ग्रामिणां रतिः ।
+> आसुरी मेढ्रमर्वाग्द्वार्व्यवायो ग्रामिणां रतिः ।\
 > उपस्थो दुर्मदः प्रोक्तो निरृतिर्गुद उच्यते ॥१४॥
 
-> āsurī meḍhram arvāg-dvār
-> vyavāyo grāmiṇāṁ ratiḥ
-> upastho durmadaḥ prokto
+> āsurī meḍhram arvāg-dvār\
+> vyavāyo grāmiṇāṁ ratiḥ\
+> upastho durmadaḥ prokto\
 > nirṛtir guda ucyate
 
 *āsurī*—called Āsurī; *meḍhram*—the genital; *arvāk*—of the fools and rascals; *dvāḥ*—gate; *vyavāyaḥ*—performing sexual affairs; *grāmiṇām*—of common men; *ratiḥ*—attraction; *upasthaḥ*—the faculty of procreation; *durmadaḥ*—Durmada; *proktaḥ*—is called; *nirṛtiḥ*—Nirṛti; *gudaḥ*—rectum; *ucyate*—is called.

@@ -1,9 +1,9 @@
 ### CC Madhya 21.59
 
-> একদিন দ্বারকাতে কৃষ্ণ দেখিবারে ।
+> একদিন দ্বারকাতে কৃষ্ণ দেখিবারে ।\
 > ব্রহ্মা আইলা, — দ্বারপাল জানাইল কৃষ্ণেরে ॥৫৯॥
 
-> eka-dina dvārakāte kṛṣṇa dekhibāre
+> eka-dina dvārakāte kṛṣṇa dekhibāre\
 > brahmā āilā,--dvāra-pāla jānāila kṛṣṇere
 
 *eka-dina*—un día; *dvārakāte*—en Dvārakā; *kṛṣṇa dekhibāre*—para ver a Kṛṣṇa; *brahmā āilā*—el Señor Brahmā vino; *dvāra-pāla*—el portero; *jānāila*—informó; *kṛṣṇere*—al Señor Kṛṣṇa.

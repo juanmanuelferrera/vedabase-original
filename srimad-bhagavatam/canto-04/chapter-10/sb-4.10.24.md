@@ -1,11 +1,11 @@
 ### SB 4.10.24
 
-> ववृषू रुधिरौघासृक् पूयविण्मूत्रमेदसः ।
+> ववृषू रुधिरौघासृक् पूयविण्मूत्रमेदसः ।\
 > निपेतुर्गगनादस्य कबन्धान्यग्रतोऽनघ ॥२४॥
 
-> vavṛṣū rudhiraughāsṛk-
-> pūya-viṇ-mūtra-medasaḥ
-> nipetur gaganād asya
+> vavṛṣū rudhiraughāsṛk-\
+> pūya-viṇ-mūtra-medasaḥ\
+> nipetur gaganād asya\
 > kabandhāny agrato 'nagha
 
 *vavṛṣuḥ*—showered; *rudhira*—of blood; *ogha*—an inundation; *asṛk*—mucus; *pūya*—pus; *viṭ*—stool; *mūtra*—urine; *medasaḥ*—and marrow; *nipetuḥ*—began to fall; *gaganāt*—from the sky; *asya*—of Dhruva; *kabandhāni*—trunks of bodies; *agrataḥ*—in front; *anagha*—O faultless Vidura.

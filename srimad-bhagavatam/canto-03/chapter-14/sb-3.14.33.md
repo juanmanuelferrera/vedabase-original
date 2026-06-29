@@ -1,11 +1,11 @@
 ### SB 3.14.33
 
-> दितिस्तु व्रीडिता तेन कर्मावद्येन भारत ।
+> दितिस्तु व्रीडिता तेन कर्मावद्येन भारत ।\
 > उपसङ्गम्य विप्रर्षिमधोमुख्यभ्यभाषत ॥३३॥
 
-> ditis tu vrīḍitā tena
-> karmāvadyena bhārata
-> upasaṅgamya viprarṣim
+> ditis tu vrīḍitā tena\
+> karmāvadyena bhārata\
+> upasaṅgamya viprarṣim\
 > adho-mukhy abhyabhāṣata
 
 *ditiḥ*—Diti, the wife of Kaśyapa; *tu*—but; *vrīḍitā*—ashamed; *tena*—by that; *karma*—act; *avadyena*—faulty; *bhārata*—O son of the Bharata family; *upasaṅgamya*—going nearer to; *vipra-ṛṣim*—the *brāhmaṇa*-sage; *adhaḥ-mukhī*—with her face lowered; *abhyabhāṣata*—politely said.

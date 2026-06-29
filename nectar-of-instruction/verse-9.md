@@ -1,13 +1,13 @@
 ### 9
 
-> वैकुण्ठाज्जनितो वरा मधुपुरी तत्रापि रासोत्सवाद्
-> वृन्दारण्यमुदारपाणिरमणात्तत्रापि गोवर्धनः ।
-> राधाकुन्डमिहापि गोकुलापतेः प्रेमामृताप्लावनात्
+> वैकुण्ठाज्जनितो वरा मधुपुरी तत्रापि रासोत्सवाद्\
+> वृन्दारण्यमुदारपाणिरमणात्तत्रापि गोवर्धनः ।\
+> राधाकुन्डमिहापि गोकुलापतेः प्रेमामृताप्लावनात्\
 > कुर्यादस्य विराजतो गिरितटे सेवां विवेकी न् कः ॥९॥
 
-> vaikuṇṭhāj janito varā madhu-purī tatrāpi rāsotsavād
-> vṛndāraṇyam udāra-pāṇi-ramaṇāt tatrāpi govardhanaḥ
-> rādhā-kuṇḍam ihāpi gokula-pateḥ premāmṛtāplāvanāt
+> vaikuṇṭhāj janito varā madhu-purī tatrāpi rāsotsavād\
+> vṛndāraṇyam udāra-pāṇi-ramaṇāt tatrāpi govardhanaḥ\
+> rādhā-kuṇḍam ihāpi gokula-pateḥ premāmṛtāplāvanāt\
 > kuryād asya virājato giri-taṭe sevāṁ vivekī na kaḥ
 
 *vaikuṇṭhāt*—than Vaikuṇṭha, the spiritual world; *janitaḥ*—because of birth; *varā*—better; *madhu-purī*—the transcendental city known as Mathurā; *tatra api*—superior to that; *rāsa-utsavāt*—because of the performance of the *rāsa-līlā*; *vṛndā-araṇyam*—the forest of Vṛndāvana; *udāra-pāṇi*—of Lord Kṛṣṇa; *ramaṇāt*—because of various kinds of loving pastimes; *tatra api*—superior to that; *govardhanaḥ*—Govardhana Hill; *rādhā-kuṇḍam*—a place called Rādhā-kuṇḍa; *iha api*—superior to this; *gokula-pateḥ*—of Kṛṣṇa, the master of Gokula; *prema-amṛta*—with the nectar of divine love; *āplāvanāt*—because of being overflooded; *kuryāt*—would do; *asya*—of this (Rādhā-kuṇḍa); *virājataḥ*—situated; *giri-taṭe*—at the foot of Govardhana Hill; *sevām*—service; *vivekī*—who is intelligent; *na*—not; *kaḥ*—who.

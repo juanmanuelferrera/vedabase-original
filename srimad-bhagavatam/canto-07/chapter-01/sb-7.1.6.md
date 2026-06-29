@@ -1,11 +1,11 @@
 ### SB 7.1.6
 
-> निर्गुणोऽपि ह्यजोऽव्यक्तो भगवान्प्रकृतेः परः
+> निर्गुणोऽपि ह्यजोऽव्यक्तो भगवान्प्रकृतेः परः\
 > स्वमायागुणमाविश्य बाध्यबाधकतां गतः ॥६॥
 
-> nirguṇo 'pi hy ajo 'vyakto
-> bhagavān prakṛteḥ paraḥ
-> sva-māyā-guṇam āviśya
+> nirguṇo 'pi hy ajo 'vyakto\
+> bhagavān prakṛteḥ paraḥ\
+> sva-māyā-guṇam āviśya\
 > bādhya-bādhakatāṁ gataḥ
 
 *nirguṇaḥ*—without material qualities; *api*—although; *hi*—certainly; *ajaḥ*—unborn; *avyaktaḥ*—unmanifest; *bhagavān*—the Supreme Lord; *prakṛteḥ*—to material nature; *paraḥ*—transcendental; *sva-māyā*—of His own energy; *guṇam*—material qualities; *āviśya*—entering; *bādhya*—obligation; *bādhakatām*—the condition of being obliged; *gataḥ*—accepts.

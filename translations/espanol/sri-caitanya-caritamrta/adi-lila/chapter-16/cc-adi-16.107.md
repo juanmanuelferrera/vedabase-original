@@ -1,9 +1,9 @@
 ### CC Adi 16.107
 
-> প্রাতে আসি’ প্রভুপদে লইল শরণ ।
+> প্রাতে আসি’ প্রভুপদে লইল শরণ ।\
 > প্রভু কৃপা কৈল, তাঁর খণ্ডিল বন্ধন ॥১০৭॥
 
-> prāte āsi' prabhu-pade la-ila śaraṇa
+> prāte āsi' prabhu-pade la-ila śaraṇa\
 > prabhu kṛpā kaila, tāṅra khaṇḍila bandhana
 
 *prāte*—por la mañana; *āsi'*—viniendo; *prabhu-pade*—a los pies de loto del Señor; *la-ila*—tomó; *śaraṇa*—refugio; *prabhu*—el Señor; *kṛpā*—misericordia; *kaila*—mostró; *tāṅra*—su; *khaṇḍila*—cortó; *bandhana*—toda esclavitud.

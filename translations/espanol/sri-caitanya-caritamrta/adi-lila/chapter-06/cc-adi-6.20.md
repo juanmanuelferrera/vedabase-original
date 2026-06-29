@@ -1,9 +1,9 @@
 ### CC Adi 6.20
 
-> অদ্বৈতরূপে করে শক্তি-সঞ্চারণ ।
+> অদ্বৈতরূপে করে শক্তি-সঞ্চারণ ।\
 > অতএব অদ্বৈত হয়েন মুখ্য কারণ ॥২০॥
 
-> advaita-rūpe kare śakti-sañcāraṇa
+> advaita-rūpe kare śakti-sañcāraṇa\
 > ataeva advaita hayena mukhya kāraṇa
 
 *advaita-rūpe*—en la forma de Advaita Ācārya; *kare*—realiza; *śakti-sañcāraṇa*—la infusión de la energía; *ataeva*—por lo tanto; *advaita*—Advaita Ācārya; *hayena*—es; *mukhya kāraṇa*—la causa original.

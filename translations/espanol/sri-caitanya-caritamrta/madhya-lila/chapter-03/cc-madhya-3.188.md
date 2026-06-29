@@ -1,9 +1,9 @@
 ### CC Madhya 3.188
 
-> নবদ্বীপ-বাসী আদি যত ভক্তগণ ।
+> নবদ্বীপ-বাসী আদি যত ভক্তগণ ।\
 > সবারে সম্মান করি’ বলিলা বচন ॥১৮৮॥
 
-> navadvīpa-vāsī ādi yata bhakta-gaṇa
+> navadvīpa-vāsī ādi yata bhakta-gaṇa\
 > sabāre sammāna kari' balilā vacana
 
 *navadvīpa-vāsī*—todos los habitantes de Navadvīpa; *ādi*—principalmente; *yata*—todos; *bhakta-gaṇa*—los devotos; *sabāre*—a todos ellos; *sammāna*—respeto; *kari'*—mostrando; *balilā*—dijo; *vacana*—estas palabras.

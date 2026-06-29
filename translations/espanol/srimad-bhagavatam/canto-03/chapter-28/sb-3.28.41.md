@@ -1,11 +1,11 @@
 ### SB 3.28.41
 
-> भूतेन्द्रियान्तःकरणात्प्रधानाज्जीवसंज्ञितात् ।
+> भूतेन्द्रियान्तःकरणात्प्रधानाज्जीवसंज्ञितात् ।\
 > आत्मा तथा पृथग्द्रष्टा भगवान्ब्रह्मसंज्ञितः ॥४१॥
 
-> bhūtendriyāntaḥ-karaṇāt
-> pradhānāj jīva-saṁjñitāt
-> ātmā tathā pṛthag draṣṭā
+> bhūtendriyāntaḥ-karaṇāt\
+> pradhānāj jīva-saṁjñitāt\
+> ātmā tathā pṛthag draṣṭā\
 > bhagavān brahma-saṁjñitaḥ
 
 *bhūta*—los cinco elementos; *indriya*—los sentidos; *antaḥ-karaṇāt*—de la mente; *pradhānāt*—del *pradhāna*; *jīva-saṁjñitāt*—del alma *jīva*; *ātmā*—Paramātmā; *tathā*—también; *pṛthak*—diferente; *draṣṭā*—el observador; *bhagavān*—la Personalidad de Dios; *brahma-saṁjñitaḥ*—que recibe el nombre de Brahman.

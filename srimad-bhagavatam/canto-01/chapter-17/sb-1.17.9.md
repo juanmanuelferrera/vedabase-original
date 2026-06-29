@@ -1,11 +1,11 @@
 ### SB 1.17.9
 
-> मा सौरभेयात्र शुचो व्येतु ते वृषलाद्भयम् ।
+> मा सौरभेयात्र शुचो व्येतु ते वृषलाद्भयम् ।\
 > मा रोदीरम्ब भद्रं ते खलानां मयि शास्तरि ॥९॥
 
-> mā saurabheyātra śuco
-> vyetu te vṛṣalād bhayam
-> mā rodīr amba bhadraṁ te
+> mā saurabheyātra śuco\
+> vyetu te vṛṣalād bhayam\
+> mā rodīr amba bhadraṁ te\
 > khalānāṁ mayi śāstari
 
 *mā*—do not; *saurabheya*—O son of Surabhi; *atra*—in my kingdom; *śucaḥ*—lamentation; *vyetu*—let there be; *te*—your; *vṛṣalāt*—by the *śūdra*; *bhayam*—cause of fear; *mā*—do not; *rodīḥ*—cry; *amba*—mother cow; *bhadram*—all good; *te*—unto you; *khalānām*—of the envious; *mayi*—while I am living; *śāstari*—the ruler or subduer.

@@ -1,11 +1,11 @@
 ### SB 6.11.11
 
-> ऐरावतो वृत्रगदाभिमृष्टो विघूर्णितोऽद्रिः कुलिशाहतो यथा
+> ऐरावतो वृत्रगदाभिमृष्टो विघूर्णितोऽद्रिः कुलिशाहतो यथा\
 > अपासरद्भिन्नमुखः सहेन्द्रो मुञ्चन्नसृक्सप्तधनुर्भृशार्तः ॥११॥
 
-> airāvato vṛtra-gadābhimṛṣṭo
-> vighūrṇito 'driḥ kuliśāhato yathā
-> apāsarad bhinna-mukhaḥ sahendro
+> airāvato vṛtra-gadābhimṛṣṭo\
+> vighūrṇito 'driḥ kuliśāhato yathā\
+> apāsarad bhinna-mukhaḥ sahendro\
 > muñcann asṛk sapta-dhanur bhṛśārtaḥ
 
 *airāvataḥ*—Airāvata, the elephant of King Indra; *vṛtra-gadā-abhimṛṣṭaḥ*—struck by the club in Vṛtrāsura's hand; *vighūrṇitaḥ*—shaken; *adriḥ*—a mountain; *kuliśa*—by a thunderbolt; *āhataḥ*—struck; *yathā*—just like; *apāsarat*—was pushed back; *bhinna-mukhaḥ*—having a broken mouth; *saha-indraḥ*—with King Indra; *muñcan*—spitting; *asṛk*—blood; *sapta-dhanuḥ*—a distance measured by seven bows (approximately fourteen yards); *bhṛśa*—very severely; *ārtaḥ*—aggrieved.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.289
 
-> ‘বিষ্ণু’-রূপ হঞা করে জগৎ পালনে ।
+> ‘বিষ্ণু’-রূপ হঞা করে জগৎ পালনে ।\
 > গুণাতীত বিষ্ণু — স্পর্শ নাহি মায়া-সনে ॥২৮৯॥
 
-> 'viṣṇu'-rūpa hañā kare jagat pālane
+> 'viṣṇu'-rūpa hañā kare jagat pālane\
 > guṇātīta viṣṇu--sparśa nāhi māyā-sane
 
 *viṣṇu-rūpa*—el Señor Kṛṣṇa en Su forma de Viṣṇu; *hañā*—convirtiéndose; *kare*—realiza; *jagat pālane*—el mantenimiento del mundo material; *guṇa-atīta*—más allá de las cualidades materiales, trascendental; *viṣṇu*—el Señor Viṣṇu; *sparśa*—contacto; *nāhi*—no hay; *māyā-sane*—con *māyā*, la energía material.

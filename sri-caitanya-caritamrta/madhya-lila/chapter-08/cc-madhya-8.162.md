@@ -1,9 +1,9 @@
 ### CC Madhya 8.162
 
-> প্রেমের ‘স্বরূপ-দেহ’ — প্রেম-বিভাবিত ।
+> প্রেমের ‘স্বরূপ-দেহ’ — প্রেম-বিভাবিত ।\
 > কৃষ্ণের প্রেয়সী-শ্রেষ্ঠা জগতে বিদিত ॥১৬২॥
 
-> premera 'svarūpa-deha'—prema-vibhāvita
+> premera 'svarūpa-deha'—prema-vibhāvita\
 > kṛṣṇera preyasī-śreṣṭhā jagate vidita
 
 *premera*—love of Godhead; *svarūpa-deha*—actual body; *prema*—by love of Godhead; *vibhāvita*—influence; *kṛṣṇera*—of Lord Kṛṣṇa; *preyasī*—of the dear friends; *śreṣṭhā*—topmost; *jagate*—throughout the whole world; *vidita*—known.

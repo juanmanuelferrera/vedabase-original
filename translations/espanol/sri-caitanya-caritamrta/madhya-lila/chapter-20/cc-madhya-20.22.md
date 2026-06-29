@@ -1,9 +1,9 @@
 ### CC Madhya 20.22
 
-> দুই উপবাসে কৈলা রন্ধন-ভোজনে  ।
+> দুই উপবাসে কৈলা রন্ধন-ভোজনে  ।\
 > রাজমন্ত্রী সনাতন বিচারিলা মনে ॥২২॥
 
-> dui upavāse kailā randhana-bhojane
+> dui upavāse kailā randhana-bhojane\
 > rāja-mantrī sanātana vicārilā mane
 
 *dui upa vāse*—ayuno durante dos días; *kailā*—realizó; *randhana-bhojane*—cocinar y comer; *rāja-mantrī*—el antiguo ministro del Nawab; *sanātana*—Sanātana; *vicārilā*—consideró; *mane*—en la mente.

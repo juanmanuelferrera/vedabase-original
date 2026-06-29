@@ -1,11 +1,11 @@
 ### SB 4.20.8
 
-> य एवं सन्तमात्मानमात्मस्थं वेद पूरुषः ।
+> य एवं सन्तमात्मानमात्मस्थं वेद पूरुषः ।\
 > नाज्यते प्रकृतिस्थोऽपि तद्गुणैः स मयि स्थितः ॥८॥
 
-> ya evaṁ santam ātmānam
-> ātma-sthaṁ veda pūruṣaḥ
-> nājyate prakṛti-stho 'pi
+> ya evaṁ santam ātmānam\
+> ātma-sthaṁ veda pūruṣaḥ\
+> nājyate prakṛti-stho 'pi\
 > tad-guṇaiḥ sa mayi sthitaḥ
 
 *yaḥ*—anyone who; *evam*—thus; *santam*—existing; *ātmānam*—the individual *ātmā* and the Supreme Personality of Godhead, Paramātmā; *ātma-stham*—situated within his body; *veda*—knows; *pūruṣaḥ*—person; *na*—never; *ajyate*—is affected; *prakṛti*—in material nature; *sthaḥ*—situated; *api*—although; *tat-guṇaiḥ*—by the material modes of nature; *saḥ*—such a person; *mayi*—in Me; *sthitaḥ*—situated.

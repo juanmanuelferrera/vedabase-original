@@ -1,9 +1,9 @@
 ### CC Madhya 16.281
 
-> তবু বৃন্দাবন যাহ’ লোক শিখাইতে  ।
+> তবু বৃন্দাবন যাহ’ লোক শিখাইতে  ।\
 > সেইত করিবে, তোমার যেই লয় চিত্তে ॥২৮১॥
 
-> tabu vṛndāvana yāha' loka śikhāite
+> tabu vṛndāvana yāha' loka śikhāite\
 > seita karibe, tomāra yei laya citte
 
 *tabu*—still; *vṛndāvana yāha'*—You go to Vṛndāvana; *loka śikhāite*—to teach the people in general; *seita*—that; *karibe*—You will do; *tomāra*—of You; *yei*—what; *laya*—takes; *citte*—in the mind.

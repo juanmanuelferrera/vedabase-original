@@ -1,9 +1,9 @@
 ### CC Madhya 25.69
 
-> হর্ষ, দৈন্য, চাপল্যাদি ‘সঞ্চারী’ বিকার ।
+> হর্ষ, দৈন্য, চাপল্যাদি ‘সঞ্চারী’ বিকার ।\
 > দেখি’ কাশীবাসী লোকের হৈল চমৎকার ॥৬৯॥
 
-> harṣa, dainya, cāpalyādi 'sañcārī' vikāra
+> harṣa, dainya, cāpalyādi 'sañcārī' vikāra\
 > dekhi' kāśī-vāsī lokera haila camatkāra
 
 *harṣa*—jubilación; *dainya*—humildad; *cāpalya-ādi*—hablar en éxtasis, etc.; *sañcārī vikāra*—las transformaciones transitorias; *dekhi'*—al ver; *kāśī-vāsī*—los habitantes de Benarés; *lokera*—de toda la gente; *haila camatkāra*—hubo asombro.

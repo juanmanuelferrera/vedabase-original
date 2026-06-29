@@ -1,9 +1,9 @@
 ### CC Adi 17.321
 
-> অষ্টমে ‘চৈতন্যলীলা-বর্ণন’-কারণ ।
+> অষ্টমে ‘চৈতন্যলীলা-বর্ণন’-কারণ ।\
 > এক কৃষ্ণনামের মহা-মহিমা-কথন ॥৩২১॥
 
-> aṣṭame 'caitanya-līlā-varṇana'-kāraṇa
+> aṣṭame 'caitanya-līlā-varṇana'-kāraṇa\
 > eka kṛṣṇa-nāmera mahā-mahimā-kathana
 
 *aṣṭame*—in the Eighth Chapter; *caitanya-lilā-varṇana-kāraṇa*—the reason for describing Caitanya Mahāprabhu's pastimes; *eka*—one; *kṛṣṇa-nāmera*—of the holy name of Lord Kṛṣṇa; *mahā-mahimā-kathana*—description of great glories.

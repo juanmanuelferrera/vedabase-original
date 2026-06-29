@@ -1,13 +1,13 @@
 ### SB 4.13.2
 
-> विदुर उवाच
-> के ते प्रचेतसो नाम कस्यापत्यानि सुव्रत ।
+> विदुर उवाच\
+> के ते प्रचेतसो नाम कस्यापत्यानि सुव्रत ।\
 > कस्यान्ववाये प्रख्याताः कुत्र वा सत्रमासत ॥२॥
 
-> vidura uvāca
-> ke te pracetaso nāma
-> kasyāpatyāni suvrata
-> kasyānvavāye prakhyātāḥ
+> vidura uvāca\
+> ke te pracetaso nāma\
+> kasyāpatyāni suvrata\
+> kasyānvavāye prakhyātāḥ\
 > kutra vā satram āsata
 
 *viduraḥ uvāca*—Vidura inquired; *ke*—who were; *te*—they; *pracetasaḥ*—the Pracetās; *nāma*—of the name; *kasya*—whose; *apatyāni*—sons; *su-vrata*—O Maitreya, who have taken an auspicious vow; *kasya*—whose; *anvavāye*—in the family; *prakhyātāḥ*—famous; *kutra*—where; *vā*—also; *satram*—the sacrifice; *āsata*—was performed.

@@ -1,11 +1,11 @@
 ### SB 5.5.16
 
-> लोकः स्वयं श्रेयसि नष्टदृष्टिर्योऽर्थान्समीहेत निकामकामः
+> लोकः स्वयं श्रेयसि नष्टदृष्टिर्योऽर्थान्समीहेत निकामकामः\
 > अन्योन्यवैरः सुखलेशहेतोरनन्तदुःखं च न वेद मूढः ॥१६॥
 
-> lokaḥ svayaṁ śreyasi naṣṭa-dṛṣṭir
-> yo 'rthān samīheta nikāma-kāmaḥ
-> anyonya-vairaḥ sukha-leśa-hetor
+> lokaḥ svayaṁ śreyasi naṣṭa-dṛṣṭir\
+> yo 'rthān samīheta nikāma-kāmaḥ\
+> anyonya-vairaḥ sukha-leśa-hetor\
 > ananta-duḥkhaṁ ca na veda mūḍhaḥ
 
 *lokaḥ*—people; *svayam*—personally; *śreyasi*—of the path of auspiciousness; *naṣṭa-dṛṣṭiḥ*—who have lost sight; *yaḥ*—who; *arthān*—things meant for sense gratification; *samīheta*—desire; *nikāma-kāmaḥ*—having too many lusty desires for sense enjoyment; *anyonya-vairaḥ*—being envious of one another; *sukha-leśa-hetoḥ*—simply for temporary material happiness; *ananta-duḥkham*—unlimited sufferings; *ca*—also; *na*—do not; *veda*—know; *mūḍhaḥ*—foolish.

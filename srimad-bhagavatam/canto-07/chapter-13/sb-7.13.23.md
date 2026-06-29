@@ -1,11 +1,11 @@
 ### SB 7.13.23
 
-> तृष्णया भववाहिन्या योग्यैः कामैरपूर्यया
+> तृष्णया भववाहिन्या योग्यैः कामैरपूर्यया\
 > कर्माणि कार्यमाणोऽहं नानायोनिषु योजितः ॥२३॥
 
-> tathāpi brūmahe praśnāṁs
-> tava rājan yathā-śrutam
-> sambhāṣaṇīyo hi bhavān
+> tathāpi brūmahe praśnāṁs\
+> tava rājan yathā-śrutam\
+> sambhāṣaṇīyo hi bhavān\
 > ātmanaḥ śuddhim icchatā
 
 *tathāpi*—still; *brūmahe*—I shall answer; *praśnān*—all the questions; *tava*—your; *rājan*—O King; *yathā-śrutam*—as I have learned by hearing from the authorities; *sambhāṣaṇīyaḥ*—fit for being addressed; *hi*—indeed; *bhavān*—you; *ātmanaḥ*—of the self; *śuddhim*—purification; *icchatā*—by one who desires.

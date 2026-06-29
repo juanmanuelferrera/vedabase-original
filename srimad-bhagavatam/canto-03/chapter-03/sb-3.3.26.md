@@ -1,11 +1,11 @@
 ### SB 3.3.26
 
-> तत्र स्नात्वा पित्न्देवानृषींश्चैव तदम्भसा ।
+> तत्र स्नात्वा पित्न्देवानृषींश्चैव तदम्भसा ।\
 > तर्पयित्वाथ विप्रेभ्यो गावो बहुगुणा ददुः ॥२६॥
 
-> tatra snātvā pitṝn devān
-> ṛṣīṁś caiva tad-ambhasā
-> tarpayitvātha viprebhyo
+> tatra snātvā pitṝn devān\
+> ṛṣīṁś caiva tad-ambhasā\
+> tarpayitvātha viprebhyo\
 > gāvo bahu-guṇā daduḥ
 
 *tatra*—there; *snātvā*—by taking bath; *pitṝn*—forefathers; *devān*—demigods; *ṛṣīn*—great sages; *ca*—also; *eva*—certainly; *tat*—of that; *ambhasā*—by the water; *tarpayitvā*—by pleasing; *atha*—thereupon; *viprebhyaḥ*—unto the *brāhmaṇas*; *gāvaḥ*—cows; *bahu-guṇāḥ*—greatly useful; *daduḥ*—gave in charity.

@@ -1,13 +1,13 @@
 ### SB 3.9.23
 
-> एष प्रपन्नवरदो रमयात्मशक्त्या
-> यद्यत्करिष्यति गृहीतगुणावतारः ।
-> तस्मिन्स्वविक्रममिदं सृजतोऽपि चेतो
+> एष प्रपन्नवरदो रमयात्मशक्त्या\
+> यद्यत्करिष्यति गृहीतगुणावतारः ।\
+> तस्मिन्स्वविक्रममिदं सृजतोऽपि चेतो\
 > युञ्जीत कर्मशमलं च यथा विजह्याम् ॥२३॥
 
-> eṣa prapanna-varado ramayātma-śaktyā
-> yad yat kariṣyati gṛhīta-guṇāvatāraḥ
-> tasmin sva-vikramam idaṁ sṛjato 'pi ceto
+> eṣa prapanna-varado ramayātma-śaktyā\
+> yad yat kariṣyati gṛhīta-guṇāvatāraḥ\
+> tasmin sva-vikramam idaṁ sṛjato 'pi ceto\
 > yuñjīta karma-śamalaṁ ca yathā vijahyām
 
 *eṣaḥ*—this; *prapanna*—one who is surrendered; *vara-daḥ*—benefactor; *ramayā*—enjoying always with the goddess of fortune (Lakṣmī); *ātma-śaktyā*—with His internal potency; *yat yat*—whatever; *kariṣyati*—He may act; *gṛhīta*—accepting; *guṇa-avatāraḥ*—incarnation of the mode of goodness; *tasmin*—unto Him; *sva-vikramam*—with omnipotency; *idam*—this cosmic manifestation; *sṛjataḥ*—creating; *api*—in spite of; *cetaḥ*—heart; *yuñjīta*—be engaged; *karma*—work; *śamalam*—material affection; *ca*—also; *yathā*—as much as; *vijahyām*—I can give up.

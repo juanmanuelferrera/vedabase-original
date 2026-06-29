@@ -1,13 +1,13 @@
 ### SB 5.2.7
 
-> का त्वं चिकीर्षसि च किं मुनिवर्य शैले
-> मायासि कापि भगवत्परदेवतायाः
-> विज्ये बिभर्षि धनुषी सुहृदात्मनोऽर्थे
+> का त्वं चिकीर्षसि च किं मुनिवर्य शैले\
+> मायासि कापि भगवत्परदेवतायाः\
+> विज्ये बिभर्षि धनुषी सुहृदात्मनोऽर्थे\
 > किं वा मृगान्मृगयसे विपिने प्रमत्तान ॥७॥
 
-> kā tvaṁ cikīrṣasi ca kiṁ muni-varya śaile
-> māyāsi kāpi bhagavat-para-devatāyāḥ
-> vijye bibharṣi dhanuṣī suhṛd-ātmano 'rthe
+> kā tvaṁ cikīrṣasi ca kiṁ muni-varya śaile\
+> māyāsi kāpi bhagavat-para-devatāyāḥ\
+> vijye bibharṣi dhanuṣī suhṛd-ātmano 'rthe\
 > kiṁ vā mṛgān mṛgayase vipine pramattān
 
 *kā*—who; *tvam*—are you; *cikīrṣasi*—are you trying to do; *ca*—also; *kim*—what; *muni-varya*—O best of *munis*; *śaile*—on this hill; *māyā*—illusory potency; *asi*—are you; *kāpi*—some; *bhagavat*—the Supreme Personality of Godhead; *para-devatāyāḥ*—of the transcendental Lord; *vijye*—without strings; *bibharṣi*—you are carrying; *dhanuṣī*—two bows; *suhṛt*—of a friend; *ātmanaḥ*—of yourself; *arthe*—for the sake; *kim vā*—or; *mṛgān*—forest animals; *mṛgayase*—are you trying to hunt; *vipine*—in this forest; *pramattān*—who are materially maddened.

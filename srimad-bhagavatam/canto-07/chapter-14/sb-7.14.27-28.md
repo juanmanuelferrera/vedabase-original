@@ -1,18 +1,18 @@
 ### SB 7.14.27-28
 
-> अथ देशान्प्रवक्ष्यामि धर्मादिश्रेयाअवहान
-> स वै पुण्यतमो देशः सत्पात्रं यत्र लभ्यते ॥२७॥
-> बिम्बं भगवतो यत्र सर्वमेतच्चराचरम
+> अथ देशान्प्रवक्ष्यामि धर्मादिश्रेयाअवहान\
+> स वै पुण्यतमो देशः सत्पात्रं यत्र लभ्यते ॥२७॥\
+> बिम्बं भगवतो यत्र सर्वमेतच्चराचरम\
 > यत्र ह ब्राह्मणकुलं तपोविद्यादयान्वितम ॥२८॥
 
-> atha deśān pravakṣyāmi
-> dharmādi-śreya-āvahān
-> sa vai puṇyatamo deśaḥ
+> atha deśān pravakṣyāmi\
+> dharmādi-śreya-āvahān\
+> sa vai puṇyatamo deśaḥ\
 > sat-pātraṁ yatra labhyate
 
-> bimbaṁ bhagavato yatra
-> sarvam etac carācaram
-> yatra ha brāhmaṇa-kulaṁ
+> bimbaṁ bhagavato yatra\
+> sarvam etac carācaram\
+> yatra ha brāhmaṇa-kulaṁ\
 > tapo-vidyā-dayānvitam
 
 *atha*—thereafter; *deśān*—places; *pravakṣyāmi*—I shall describe; *dharma-ādi*—religious performances, etc.; *śreya*—auspiciousness; *āvahān*—which can bring; *saḥ*—that; *vai*—indeed; *puṇya-tamaḥ*—the most sacred; *deśaḥ*—place; *sat-pātram*—a Vaiṣṇava; *yatra*—wherein; *labhyate*—is available; *bimbam*—the Deity (in the temple); *bhagavataḥ*—of the Supreme Personality of Godhead (who is the support); *yatra*—where; *sarvam etat*—of this entire cosmic manifestation; *cara-acaram*—with all the moving and nonmoving living entities; *yatra*—wherein; *ha*—indeed; *brāhmaṇa-kulam*—association with *brāhmaṇas*; *tapaḥ*—austerities; *vidyā*—education; *dayā*—mercy; *anvitam*—endowed with.

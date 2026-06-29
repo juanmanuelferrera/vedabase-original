@@ -1,9 +1,9 @@
 ### CC Madhya 18.207
 
-> ‘রামদাস’ বলি’ প্রভু তাঁর কৈল নাম ।
+> ‘রামদাস’ বলি’ প্রভু তাঁর কৈল নাম ।\
 > আর এক পাঠান, তাঁর নাম — ‘বিজুলী-খাঁন’ ॥২০৭॥
 
-> 'rāmadāsa' bali' prabhu tāṅra kaila nāma
+> 'rāmadāsa' bali' prabhu tāṅra kaila nāma\
 > āra eka pāṭhāna, tāṅra nāma--'vijulī-khāṅna'
 
 *rāmadāsa bali'*—con el nombre de Rāmadāsa; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅra*—su; *kaila*—hizo; *nāma*—nombre; *āra eka pāṭhāna*—otro musulmán; *tāṅra nāma*—su nombre; *vijulī-khāṅna*—Vijulī Khān.

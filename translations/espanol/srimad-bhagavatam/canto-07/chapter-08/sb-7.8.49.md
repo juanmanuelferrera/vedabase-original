@@ -1,13 +1,13 @@
 ### SB 7.8.49
 
-> श्रीप्रजापतय ऊचुः
-> प्रजेशा वयं ते परेशाभिसृष्टा न येन प्रजा वै सृजामो निषिद्धाः
+> श्रीप्रजापतय ऊचुः\
+> प्रजेशा वयं ते परेशाभिसृष्टा न येन प्रजा वै सृजामो निषिद्धाः\
 > स एष त्वया भिन्नवक्षा नु शेते जगन्मङ्गलं सत्त्वमूर्तेऽवतारः ॥४९॥
 
-> śrī-prajāpataya ūcuḥ
-> prajeśā vayaṁ te pareśābhisṛṣṭā
-> na yena prajā vai sṛjāmo niṣiddhāḥ
-> sa eṣa tvayā bhinna-vakṣā nu śete
+> śrī-prajāpataya ūcuḥ\
+> prajeśā vayaṁ te pareśābhisṛṣṭā\
+> na yena prajā vai sṛjāmo niṣiddhāḥ\
+> sa eṣa tvayā bhinna-vakṣā nu śete\
 > jagan-maṅgalaṁ sattva-mūrte 'vatāraḥ
 
 *śrī-prajāpatayaḥ ūcuḥ*—las grandes personalidades que crearon a los diversos seres vivos ofrecieron sus oraciones diciendo; *prajā-īśāḥ*—los *prajāpatis* creados por el Señor Brahmā, que ha creado generaciones de entidades vivientes; *vayam*—nosotros; *te*—de Ti; *para-īśa*—¡oh, Señor Supremo!; *abhisṛṣṭāḥ*—nacidos; *na*—no; *yena*—por quien (por Hiraṇyakaśipu); *prajāḥ*—entidades vivientes; *vai*—en verdad; *sṛjāmaḥ*—creamos; *niṣiddhāḥ*—que está prohibido; *saḥ*—él (Hiraṇyakaśipu); *eṣaḥ*—este; *tvayā*—por Ti; *bhinna-vakṣāḥ*—cuyo pecho ha sido desgarrado; *nu*—en verdad; *śete*—está tendido; *jagat-maṅgalam*—para buena fortuna del mundo entero; *sattva-mūrte*—en esta forma trascendental de bondad pura; *avatāraḥ*—esta encarnación.

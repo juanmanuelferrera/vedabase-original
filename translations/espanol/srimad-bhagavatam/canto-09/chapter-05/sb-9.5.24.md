@@ -1,11 +1,11 @@
 ### SB 9.5.24
 
-> गतेऽथ दुर्वाससि सोऽम्बरीषो द्विजोपयोगातिपवित्रमाहरत
+> गतेऽथ दुर्वाससि सोऽम्बरीषो द्विजोपयोगातिपवित्रमाहरत\
 > ऋषेर्विमोक्षं व्यसनं च वीक्ष्य मेने स्ववीर्यं च परानुभावम ॥२४॥
 
-> gate 'tha durvāsasi so 'mbarīṣo
-> dvijopayogātipavitram āharat
-> ṛṣer vimokṣaṁ vyasanaṁ ca vīkṣya
+> gate 'tha durvāsasi so 'mbarīṣo\
+> dvijopayogātipavitram āharat\
+> ṛṣer vimokṣaṁ vyasanaṁ ca vīkṣya\
 > mene sva-vīryaṁ ca parānubhāvam
 
 *gate*—a su regreso; *atha*—entonces; *durvāsasi*—el gran *yogī* místico Durvāsā; *saḥ*—él, el rey; *ambarīṣaḥ*—Mahārāja Ambarīṣa; *dvija-upayoga*—los más adecuados para un *brāhmaṇa* puro; *ati-pavitram*—alimentos muy puros; *āharat*—le sirvió para que comiese, y él mismo comió; *ṛṣeḥ*—del gran sabio; *vimokṣam*—liberación; *vyasanam*—del gran peligro de ser quemado por el *cakra* Sudarśana; *ca*—y; *vīkṣya*—al ver; *mene*—consideró; *sva-vīryam*—acerca de su propio poder; *ca*—también; *para-anubhāvam*—debido a su devoción pura por el Señor Supremo.

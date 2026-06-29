@@ -1,11 +1,11 @@
 ### SB 5.10.25
 
-> न विक्रिया विश्वसुहृत्सखस्य साम्येन वीताभिमतेस्तवापि
+> न विक्रिया विश्वसुहृत्सखस्य साम्येन वीताभिमतेस्तवापि\
 > महद्विमानात्स्वकृताद्धि मादृङ्नङ्क्ष्यत्यदूरादपि शूलपाणिः ॥२५॥
 
-> na vikriyā viśva-suhṛt-sakhasya
-> sāmyena vītābhimates tavāpi
-> mahad-vimānāt sva-kṛtād dhi mādṛṅ
+> na vikriyā viśva-suhṛt-sakhasya\
+> sāmyena vītābhimates tavāpi\
+> mahad-vimānāt sva-kṛtād dhi mādṛṅ\
 > naṅkṣyaty adūrād api śūlapāṇiḥ
 
 *na*—no; *vikriyā*—transformación material; *viśva-suhṛt*—de la Suprema Personalidad de Dios, que es el amigo de todos; *sakhasya*—de ti, el amigo; *sāmyena*—debido a tu equilibrio mental; *vīta-abhimateḥ*—que has abandonado por completo el concepto corporal de la vida; *tava*—tu; *api*—en verdad; *mahat-vimānāt*—de insultar a un gran devoto; *sva-kṛtāt*—de mi propia actividad; *hi*—ciertamente; *mādṛk*—una persona como yo; *naṅkṣyati*—será aniquilada; *adūrāt*—muy pronto; *api*—ciertamente; *śūla-pāṇiḥ*—aunque sea tan poderoso como el Señor Śiva (Śūlapāṇi).

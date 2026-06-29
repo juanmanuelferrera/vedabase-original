@@ -1,13 +1,13 @@
 ### SB 9.10.14
 
-> न त्वां वयं जडधियो नु विदाम भूमन
-> कूटस्थमादिपुरुषं जगतामधीशम
-> यत्सत्त्वतः सुरगणा रजसः प्रजेशा
+> न त्वां वयं जडधियो नु विदाम भूमन\
+> कूटस्थमादिपुरुषं जगतामधीशम\
+> यत्सत्त्वतः सुरगणा रजसः प्रजेशा\
 > मन्योश्च भूतपतयः स भवान्गुणेशः ॥१४॥
 
-> na tvāṁ vayaṁ jaḍa-dhiyo nu vidāma bhūman
-> kūṭa-stham ādi-puruṣaṁ jagatām adhīśam
-> yat-sattvataḥ sura-gaṇā rajasaḥ prajeśā
+> na tvāṁ vayaṁ jaḍa-dhiyo nu vidāma bhūman\
+> kūṭa-stham ādi-puruṣaṁ jagatām adhīśam\
+> yat-sattvataḥ sura-gaṇā rajasaḥ prajeśā\
 > manyoś ca bhūta-patayaḥ sa bhavān guṇeśaḥ
 
 *na*—no; *tvām*—a Tu Señoría; *vayam*—nosotros; *jaḍa-dhiyaḥ*—torpes, de inteligencia obtusa; *nu*—en verdad; *vidāmaḥ*—podemos conocer; *bhūman*—¡oh, Supremo!; *kūṭa-stham*—en lo más profundo del corazón; *ādi-puruṣam*—a la Personalidad de Dios original; *jagatām*—de los universos, que continúan progresivamente; *adhīśam*—al amo supremo; *yat*—fijos bajo Tu dirección; *sattvataḥ*—hechizados con *sattva-guṇa*; *sura-gaṇāḥ*—esos semidioses; *rajasaḥ*—hechizados con *rajo-guṇa*; *prajā-īśāḥ*—los *prajāpatis*; *manyoḥ*—bajo la influencia de *tamo-guṇa*; *ca*—y; *bhūta-patayaḥ*—gobernantes de los fantasmas; *saḥ*—esa personalidad; *bhavān*—Tu Señoría; *guṇa-īśaḥ*—el amo de las tres modalidades de la naturaleza material.

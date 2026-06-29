@@ -1,13 +1,13 @@
 ### SB 8.17.1
 
-> श्रीशुक उवाच
-> इत्युक्ता सादिती राजन्स्वभर्त्रा कश्यपेन वै
+> श्रीशुक उवाच\
+> इत्युक्ता सादिती राजन्स्वभर्त्रा कश्यपेन वै\
 > अन्वतिष्ठद्व्रतमिदं द्वादशाहमतन्द्रिता ॥१॥
 
-> śrī-śuka uvāca
-> ity uktā sāditī rājan
-> sva-bhartrā kaśyapena vai
-> anv atiṣṭhad vratam idaṁ
+> śrī-śuka uvāca\
+> ity uktā sāditī rājan\
+> sva-bhartrā kaśyapena vai\
+> anv atiṣṭhad vratam idaṁ\
 > dvādaśāham atandritā
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *iti*—thus; *uktā*—being advised; *sā*—that lady; *aditiḥ*—Aditi; *rājan*—O King; *sva-bhartrā*—by her husband; *kaśyapena*—Kaśyapa Muni; *vai*—indeed; *anu*—similarly; *atiṣṭhat*—executed; *vratam idam*—this *payo-vrata* ritualistic ceremony; *dvādaśa-aham*—for twelve days; *atandritā*—without any laziness.

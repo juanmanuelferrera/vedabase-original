@@ -1,9 +1,9 @@
 ### CC Madhya 3.194
 
-> নীলাচলে যাবে তুমি, মোর কোন্ গতি ।
+> নীলাচলে যাবে তুমি, মোর কোন্ গতি ।\
 > নীলাচলে যাইতে মোর নাহিক শকতি ॥১৯৪॥
 
-> nīlācale yābe tumi, mora kon gati
+> nīlācale yābe tumi, mora kon gati\
 > nīlācale yāite mora nāhika śakati
 
 *nīlācale yābe tumi*—Tú irás a Jagannātha Purī; *mora*—mi; *kon*—cuál; *gati*—destino; *nīlācale*—a Jagannātha Purī; *yāite*—ir; *mora*—mi; *nāhika*—no hay; *śakati*—fuerza.

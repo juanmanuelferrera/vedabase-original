@@ -1,11 +1,11 @@
 ### SB 1.18.17
 
-> तन्नः परं पुण्यमसंवृतार्थमाख्यानमत्यद्भुतयोगनिष्ठम् ।
+> तन्नः परं पुण्यमसंवृतार्थमाख्यानमत्यद्भुतयोगनिष्ठम् ।\
 > आख्याह्यनन्ताचरितोपपन्नं पारीक्षितं भागवताभिरामम् ॥१७॥
 
-> tan naḥ paraṁ puṇyam asaṁvṛtārtham
-> ākhyānam atyadbhuta-yoga-niṣṭham
-> ākhyāhy anantācaritopapannaṁ
+> tan naḥ paraṁ puṇyam asaṁvṛtārtham\
+> ākhyānam atyadbhuta-yoga-niṣṭham\
+> ākhyāhy anantācaritopapannaṁ\
 > pārīkṣitaṁ bhāgavatābhirāmam
 
 *tat*—por lo tanto; *naḥ*—a nosotros; *param*—supremo; *puṇyam*—purificador; *asaṁvṛta-artham*—tal como es; *ākhyānam*—narración; *ati*—muy; *adbhuta*—maravillosa; *yoga-niṣṭham*—lleno de *bhakti-yoga*; *ākhyāhi*—describe; *ananta*—el Ilimitado; *ācarita*—actividades; *upapannam*—lleno de; *pārīkṣitam*—hablado a Mahārāja Parīkṣit; *bhāgavata*—de los devotos puros; *abhirāmam*—muy querido en particular.

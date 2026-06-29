@@ -1,11 +1,11 @@
 ### SB 4.2.16
 
-> तस्मा उन्मादनाथाय नष्टशौचाय दुर्हृदे ।
+> तस्मा उन्मादनाथाय नष्टशौचाय दुर्हृदे ।\
 > दत्ता बत मया साध्वी चोदिते परमेष्ठिना ॥१६॥
 
-> tasmā unmāda-nāthāya
-> naṣṭa-śaucāya durhṛde
-> dattā bata mayā sādhvī
+> tasmā unmāda-nāthāya\
+> naṣṭa-śaucāya durhṛde\
+> dattā bata mayā sādhvī\
 > codite parameṣṭhinā
 
 *tasmai*—to him; *unmāda-nāthāya*—to the lord of ghosts; *naṣṭa-śaucāya*—being devoid of all cleanliness; *durhṛde*—heart filled with nasty things; *dattā*—was given; *bata*—alas; *mayā*—by me; *sādhvī*—Sati; *codite*—being requested; *parameṣṭhinā*—by the supreme teacher (Brahmā).

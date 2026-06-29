@@ -1,13 +1,13 @@
 ### SB 1.3.1
 
-> सूत उवाच
-> जगृहे पौरुषं रूपं भगवान्महदादिभिः ।
+> सूत उवाच\
+> जगृहे पौरुषं रूपं भगवान्महदादिभिः ।\
 > सम्भूतं षोडशकलमादौ लोकसिसृक्षया ॥१॥
 
-> sūta uvāca
-> jagṛhe pauruṣaṁ rūpaṁ
-> bhagavān mahad-ādibhiḥ
-> sambhūtaṁ ṣoḍaśa-kalam
+> sūta uvāca\
+> jagṛhe pauruṣaṁ rūpaṁ\
+> bhagavān mahad-ādibhiḥ\
+> sambhūtaṁ ṣoḍaśa-kalam\
 > ādau loka-sisṛkṣayā
 
 *sūtaḥ uvāca*—Sūta dijo; *jagṛhe*—aceptado; *pauruṣam*—porción plenaria como la encarnación *puruṣa*; *rūpam*—forma; *bhagavān*—la Personalidad de Dios; *mahat-ādibhiḥ*—con los ingredientes del mundo material; *sambhūtam*—así pues, ocurrió la creación de; *ṣoḍaśa-kalam*—dieciséis principios primarios; *ādau*—en el comienzo; *loka*—los universos; *sisṛkṣayā*—con la intención de crear.

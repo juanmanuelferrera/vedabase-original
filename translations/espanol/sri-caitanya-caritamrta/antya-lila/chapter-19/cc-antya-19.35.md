@@ -1,13 +1,13 @@
 ### CC Antya 19.35
 
-> ক্ব নন্দকুলচন্দ্রমাঃ ক্ব শিখিচন্দ্রকালঙ্কৃতিঃ
-> ক্ব মন্দ্রমুরলীরবঃ ক্ব নু সুরেন্দ্রনীলদ্যুতিঃ ।
-> ক্ব রাসরসতাণ্ডবী ক্ব সখি জীবরক্ষৌষধি-
+> ক্ব নন্দকুলচন্দ্রমাঃ ক্ব শিখিচন্দ্রকালঙ্কৃতিঃ\
+> ক্ব মন্দ্রমুরলীরবঃ ক্ব নু সুরেন্দ্রনীলদ্যুতিঃ ।\
+> ক্ব রাসরসতাণ্ডবী ক্ব সখি জীবরক্ষৌষধি-\
 > নিধির্মম সুহৃত্তমঃ ক্ব বত হন্ত হা ধিগ্বিধিম্ ॥৩৫॥
 
-> kva nanda-kula-candramāḥ kva śikhi-candrakālaṅkṛtiḥ
-> kva mandra-muralī-ravaḥ kva nu surendra-nīla-dyutiḥ
-> kva rāsa-rasa-tāṇḍavī kva sakhi jīva-rakṣauṣadhir
+> kva nanda-kula-candramāḥ kva śikhi-candrakālaṅkṛtiḥ\
+> kva mandra-muralī-ravaḥ kva nu surendra-nīla-dyutiḥ\
+> kva rāsa-rasa-tāṇḍavī kva sakhi jīva-rakṣauṣadhir\
 > nidhir mama suhṛttamaḥ kva bata hanta hā dhig-vidhim
 
 *kva*—¿dónde?; *nanda-kula-candramāḥ*—Kṛṣṇa, que ha surgido como la luna en el océano de la dinastía de Nanda Mahārāja; *kva*—¿dónde?; *śikhi-candraka-alaṅkṛtiḥ*—Kṛṣṇa, cuya cabeza está adornada con una pluma de pavo real; *kva*—¿dónde?; *mandra-muralī-ravaḥ*—Kṛṣṇa, cuya flauta produce un sonido grave; *kva*—¿dónde?; *nu*—ciertamente; *surendra-nīla-dyutiḥ*—Kṛṣṇa, cuyo brillo corporal es como la joya llamada indranīla; *kva*—¿dónde?; *rāsa-rasa-tāṇḍavī*—Kṛṣṇa, experto en danzar en la danza del rāsa; *kva*—¿dónde?; *sakhi*—¡oh, Mi querida amiga!; *jīva-rakṣa-auṣadhiḥ*—Kṛṣṇa, que es la medicina que puede salvar la vida; *nidhiḥ*—tesoro; *mama*—Mío; *suhṛt-tamaḥ*—el mejor de los amigos; *kva*—¿dónde?; *bata*—¡qué pena!; *hanta*—¡ay!; *hā*—¡oh!; *dhik-vidhim*—condena al Destino, el hacedor de Mi suerte.

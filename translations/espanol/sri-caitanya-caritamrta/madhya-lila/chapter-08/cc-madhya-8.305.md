@@ -1,9 +1,9 @@
 ### CC Madhya 8.305
 
-> rādhā-kṛṣṇa-līlā—tāte karpūra-milana
+> rādhā-kṛṣṇa-līlā—tāte karpūra-milana\
 > bhāgyavān yei, sei kare āsvādana
 
-> rādhā-kṛṣṇa-līlā--tāte karpūra-milana
+> rādhā-kṛṣṇa-līlā--tāte karpūra-milana\
 > bhāgyavān yei, sei kare āsvādana
 
 *rādhā-kṛṣṇa-līlā*—los pasatiempos de Śrī Rādhā y Kṛṣṇa; *tāte*—en esa composición; *karpūra*—el alcanfor; *milana*—mezcla; *bhāgyavān*—afortunado; *yei*—aquel que; *sei*—esa persona; *kare*—hace; *āsvādana*—saboreo.

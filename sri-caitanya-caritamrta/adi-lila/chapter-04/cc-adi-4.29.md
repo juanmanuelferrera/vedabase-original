@@ -1,9 +1,9 @@
 ### CC Adi 4.29
 
-> মো-বিষয়ে গোপীগণের উপপতি-ভাবে ।
+> মো-বিষয়ে গোপীগণের উপপতি-ভাবে ।\
 > যোগমায়া করিবেক আপনপ্রভাবে ॥২৯॥
 
-> mo-viṣaye gopī-gaṇera upapati-bhāve
+> mo-viṣaye gopī-gaṇera upapati-bhāve\
 > yoga-māyā karibeka āpana-prabhāve
 
 *mo-viṣaye*—on the subject of Me; *gopī-gaṇera*—of the *gopīs*; *upapati*—of a paramour; *bhāve*—in the position; *yoga-māyā*—*yogamāyā,* Lord Kṛṣṇa's internal potency; *karibeka*—will make; *āpana*—her own; *prabhāve*—by the influence.

@@ -1,9 +1,9 @@
 ### CC Madhya 13.162
 
-> নৃত্যকালে সেই ভাবে আবিষ্ট হঞা ।
+> নৃত্যকালে সেই ভাবে আবিষ্ট হঞা ।\
 > শ্লোক পড়ি’ নাচে জগন্নাথ-মুখ চাঞা ॥১৬২॥
 
-> nṛtya-kāle sei bhāve āviṣṭa hañā
+> nṛtya-kāle sei bhāve āviṣṭa hañā\
 > śloka paḍi' nāce jagannātha-mukha cāñā
 
 *nṛtya-kāle*—while dancing; *sei bhāve*—in such ecstasy; *āviṣṭa*—absorbed; *hañā*—becoming; *śloka paḍi'*—reciting these verses; *nāce*—dances; *jagannātha-mukha*—the face of Jagannātha; *cāñā*—looking upon.

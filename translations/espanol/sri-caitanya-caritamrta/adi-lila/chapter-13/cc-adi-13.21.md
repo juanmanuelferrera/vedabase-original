@@ -1,9 +1,9 @@
 ### CC Adi 13.21
 
-> ‘হরি’ ‘হরি’ বলে লোক হরষিত হঞা ।
+> ‘হরি’ ‘হরি’ বলে লোক হরষিত হঞা ।\
 > জন্মিলা চৈতন্যপ্রভু ‘নাম’ জন্মাইয়া ॥২১॥
 
-> 'hari' 'hari' bale loka haraṣita hañā
+> 'hari' 'hari' bale loka haraṣita hañā\
 > janmilā caitanya-prabhu 'nāma' janmāiyā
 
 *hari hari*—los santos nombres del Señor; *bale*—pronuncian; *loka*—las gentes; *haraṣita*—jubilosas; *hañā*—volviéndose; *janmilā*—nació; *caitanya-prabhu*—el Señor Śrī Caitanya Mahāprabhu; *nāma*—el santo nombre; *janmāiyā*—tras hacer aparecer.

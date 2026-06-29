@@ -1,13 +1,13 @@
 ### CC Madhya 25.278
 
-> যে লীলা-অমৃত বিনে, খায় যদি অন্নপানে,
-> তবে ভক্তের দুর্বল জীবন ।
-> যার একবিন্দু-পানে, উৎফুল্লিত তনুমনে,
+> যে লীলা-অমৃত বিনে, খায় যদি অন্নপানে,\
+> তবে ভক্তের দুর্বল জীবন ।\
+> যার একবিন্দু-পানে, উৎফুল্লিত তনুমনে,\
 > হাসে, গায়, করয়ে নর্তন ॥২৭৮॥
 
-> ye līlā-amṛta vine, khāya yadi anna-pāne,
-> tabe bhaktera durbala jīvana
-> yāra eka-bindu-pāne, utphullita tanu-mane,
+> ye līlā-amṛta vine, khāya yadi anna-pāne,\
+> tabe bhaktera durbala jīvana\
+> yāra eka-bindu-pāne, utphullita tanu-mane,\
 > hāse, gāya, karaye nartana
 
 *ye*—aquel que; *līlā*—de los pasatiempos del Señor Kṛṣṇa y Caitanya Mahāprabhu; *amṛta vine*—sin néctar; *khāya yadi anna-pāne*—si come solamente granos ordinarios; *tabe*—entonces; *bhaktera*—de los devotos; *durbala jīvana*—la vida se debilita; *yāra*—del cual; *eka-bindu-pāne*—si bebe una gota; *utphullita tanu-mane*—el cuerpo y la mente se vuelven jubilosos; *hāse*—ríe; *gāya*—canta; *karaye nartana*—danza.

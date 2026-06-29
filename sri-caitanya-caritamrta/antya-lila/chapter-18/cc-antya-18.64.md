@@ -1,9 +1,9 @@
 ### CC Antya 18.64
 
-> স্বরূপ কহে, — “যারে তুমি কর ‘ভূত’-জ্ঞান ।
+> স্বরূপ কহে, — “যারে তুমি কর ‘ভূত’-জ্ঞান ।\
 > ভূত নহে — তেঁহো কৃষ্ণচৈতন্য ভগবান্ ॥৬৪॥
 
-> svarūpa kahe,—"yāṅre tumi kara 'bhūta'-jñāna
+> svarūpa kahe,—"yāṅre tumi kara 'bhūta'-jñāna\
 > bhūta nahe—teṅho kṛṣṇa-caitanya bhagavān
 
 *svarūpa kahe*—Svarūpa Dāmodara Gosvāmī said; *yāṅre*—the person whom; *tumi*—you; *kara bhūta-jñāna*—consider a ghost; *bhūta nahe*—is not a ghost; *teṅho*—He; *kṛṣṇa-caitanya*—Lord Śrī Caitanya Mahāprabhu; *bhagavān*—the Supreme Personality of Godhead.

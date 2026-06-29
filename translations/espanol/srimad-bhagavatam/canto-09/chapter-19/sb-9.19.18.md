@@ -1,11 +1,11 @@
 ### SB 9.19.18
 
-> पूर्णं वर्षसहस्रं मे विषयान्सेवतोऽसकृत
+> पूर्णं वर्षसहस्रं मे विषयान्सेवतोऽसकृत\
 > तथापि चानुसवनं तृष्णा तेषूपजायते ॥१८॥
 
-> pūrṇaṁ varṣa-sahasraṁ me
-> viṣayān sevato 'sakṛt
-> tathāpi cānusavanaṁ
+> pūrṇaṁ varṣa-sahasraṁ me\
+> viṣayān sevato 'sakṛt\
+> tathāpi cānusavanaṁ\
 > tṛṣṇā teṣūpajāyate
 
 *pūrṇam*—completamente; *varṣa-sahasram*—mil años; *me*—míos; *viṣayān*—complacencia de los sentidos; *sevataḥ*—disfrutar; *asakṛt*—sin cesar, continuamente; *tathā api*—aún; *ca*—en verdad; *anusavanam*—cada vez más; *tṛṣṇā*—deseos de disfrute; *teṣu*—en la complacencia de los sentidos; *upajāyate*—han aumentado.

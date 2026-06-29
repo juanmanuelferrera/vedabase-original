@@ -1,9 +1,9 @@
 ### CC Madhya 13.92
 
-> হেনকালে শ্রীনিবাস প্রেমাবিষ্ট-মন ।
+> হেনকালে শ্রীনিবাস প্রেমাবিষ্ট-মন ।\
 > রাজার আগে রহি’ দেখে প্রভুর নর্তন ॥৯২॥
 
-> hena-kāle śrīnivāsa premāviṣṭa-mana
+> hena-kāle śrīnivāsa premāviṣṭa-mana\
 > rājāra āge rahi' dekhe prabhura nartana
 
 *hena-kāle*—en ese momento; *śrīnivāsa*—Śrīvāsa Ṭhākura; *prema-āviṣṭa-mana*—con la mente absorta en gran éxtasis; *rājāra āge*—delante del rey; *rahi'*—situándose; *dekhe*—observa; *prabhura*—de Śrī Caitanya Mahāprabhu; *nartana*—la danza.

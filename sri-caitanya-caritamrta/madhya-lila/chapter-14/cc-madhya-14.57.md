@@ -1,9 +1,9 @@
 ### CC Madhya 14.57
 
-> আনন্দে করয়ে লোক ‘জয়’ ‘জয়’-ধ্বনি ।
+> আনন্দে করয়ে লোক ‘জয়’ ‘জয়’-ধ্বনি ।\
 > ‘জয় জগন্নাথ’ বই আর নাহি শুনি ॥৫৭॥
 
-> ānande karaye loka 'jaya' 'jaya'-dhvani
+> ānande karaye loka 'jaya' 'jaya'-dhvani\
 > 'jaya jagannātha' ba-i āra nāhi śuni
 
 *ānande*—in great pleasure; *karaye*—do; *loka*—all the people; *jaya jaya-dhvani*—the sound of "all glories, all glories"; *jaya jagannātha*—all glories to Lord Jagannātha; *ba-i*—except for this; *āra nāhi śuni*—no one could hear anything else.

@@ -1,11 +1,11 @@
 ### Bg 8.12
 
-> सर्वद्वाराणि संयम्य मनो हृदि निरुध्य च ।
+> सर्वद्वाराणि संयम्य मनो हृदि निरुध्य च ।\
 > मूध्न्या।र्धायात्मनः प्राणमास्थितो योगधारणाम् ॥१२॥
 
-> sarva-dvārāṇi saṁyamya
-> mano hṛdi nirudhya ca
-> mūrdhny ādhāyātmanaḥ prāṇam
+> sarva-dvārāṇi saṁyamya\
+> mano hṛdi nirudhya ca\
+> mūrdhny ādhāyātmanaḥ prāṇam\
 > āsthito yoga-dhāraṇām
 
 *sarva-dvārāṇi*—all the doors of the body; *saṁyamya*—controlling; *manaḥ*—mind; *hṛdi*—in the heart; *nirudhya*—confined; *ca*—also; *mūrdhni*—on the head; *ādhāya*—fixed; *ātmanaḥ*—soul; *prāṇam*—the life air; *āsthitaḥ*—situated; *yoga-dhāraṇām*—the yogic situation.

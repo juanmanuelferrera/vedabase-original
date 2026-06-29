@@ -1,11 +1,11 @@
 ### SB 2.8.14
 
-> यस्मिन्कर्मसमावायो यथा येनोपगृह्यते ।
+> यस्मिन्कर्मसमावायो यथा येनोपगृह्यते ।\
 > गुणानां गुणिनां चैव परिणाममभीप्सताम् ॥१४॥
 
-> yasmin karma-samāvāyo
-> yathā yenopagṛhyate
-> guṇānāṁ guṇināṁ caiva
+> yasmin karma-samāvāyo\
+> yathā yenopagṛhyate\
+> guṇānāṁ guṇināṁ caiva\
 > pariṇāmam abhīpsatām
 
 *yasmin*—en la cual; *karma*—acciones; *samāvāyaḥ*—acumulación; *yathā*—tanto como; *yena*—por la cual; *upagṛhyate*—se apodera; *guṇānām*—de las diferentes modalidades de la naturaleza material; *guṇinām*—de los seres vivientes; *ca*—también; *eva*—ciertamente; *pariṇāmam*—resultantes; *abhīpsatām*—de los deseos.

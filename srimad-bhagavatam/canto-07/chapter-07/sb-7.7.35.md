@@ -1,11 +1,11 @@
 ### SB 7.7.35
 
-> यदा ग्रहग्रस्त इव क्वचिद्धसत्याक्रन्दते ध्यायति वन्दते जनम
+> यदा ग्रहग्रस्त इव क्वचिद्धसत्याक्रन्दते ध्यायति वन्दते जनम\
 > मुहुः श्वसन्वक्ति हरे जगत्पते नारायणेत्यात्ममतिर्गतत्रपः ॥३५॥
 
-> yadā graha-grasta iva kvacid dhasaty
-> ākrandate dhyāyati vandate janam
-> muhuḥ śvasan vakti hare jagat-pate
+> yadā graha-grasta iva kvacid dhasaty\
+> ākrandate dhyāyati vandate janam\
+> muhuḥ śvasan vakti hare jagat-pate\
 > nārāyaṇety ātma-matir gata-trapaḥ
 
 *yadā*—when; *graha-grastaḥ*—haunted by a ghost; *iva*—like; *kvacit*—sometimes; *hasati*—laughs; *ākrandate*—cries loudly (remembering the transcendental qualities of the Lord); *dhyāyati*—meditates; *vandate*—offers respects; *janam*—to all living entities (thinking all of them to be engaged in the service of the Lord); *muhuḥ*—constantly; *śvasan*—breathing heavily; *vakti*—he speaks; *hare*—O my Lord; *jagat-pate*—O master of the whole world; *nārāyaṇa*—O Lord Nārāyaṇa; *iti*—thus; *ātma-matiḥ*—fully absorbed in thoughts of the Supreme Lord; *gata-trapaḥ*—without shame.

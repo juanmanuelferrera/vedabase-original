@@ -1,9 +1,9 @@
 ### CC Madhya 3.107
 
-> তবে ত’ আচার্য সঙ্গে লঞা দুই জনে ।
+> তবে ত’ আচার্য সঙ্গে লঞা দুই জনে ।\
 > করিল ইচ্ছায় ভোজন, যে আছিল মনে ॥১০৭॥
 
-> tabe ta' ācārya saṅge lañā dui jane
+> tabe ta' ācārya saṅge lañā dui jane\
 > karila icchāya bhojana, ye āchila mane
 
 *tabe ta'*—después de esto; *ācārya*—Advaita Ācārya; *saṅge*—con; *lañā*—llevando; *dui jane*—a las dos personas, a saber, Mukunda y Haridāsa; *karila*—hizo; *icchāya*—según el deseo; *bhojana*—comer; *ye āchila mane*—lo que tenían en mente.

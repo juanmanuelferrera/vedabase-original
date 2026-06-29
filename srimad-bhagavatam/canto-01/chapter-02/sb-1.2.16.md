@@ -1,11 +1,11 @@
 ### SB 1.2.16
 
-> शुश्रूषोः श्रद्दधानस्य वासुदेवकथारुचिः ।
+> शुश्रूषोः श्रद्दधानस्य वासुदेवकथारुचिः ।\
 > स्यान्महत्सेवया विप्राः पुण्यतीर्थनिषेवणात् ॥१६॥
 
-> śuśrūṣoḥ śraddadhānasya
-> vāsudeva-kathā-ruciḥ
-> syān mahat-sevayā viprāḥ
+> śuśrūṣoḥ śraddadhānasya\
+> vāsudeva-kathā-ruciḥ\
+> syān mahat-sevayā viprāḥ\
 > puṇya-tīrtha-niṣevaṇāt
 
 *śuśrūṣoḥ*—one who is engaged in hearing; *śraddadhānasya*—with care and attention; *vāsudeva*—in respect to Vāsudeva; *kathā*—the message; *ruciḥ*—affinity; *syāt*—is made possible; *mahat-sevayā*—by service rendered to pure devotees; *viprāḥ*—O twice-born; *puṇya-tīrtha*—those who are cleansed of all vice; *niṣevaṇāt*—by service.

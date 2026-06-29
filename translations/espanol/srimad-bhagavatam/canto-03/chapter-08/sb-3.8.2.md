@@ -1,11 +1,11 @@
 ### SB 3.8.2
 
-> सोऽहं नृणां क्षुल्लसुखाय दुःखं महद्गतानां विरमाय तस्य ।
+> सोऽहं नृणां क्षुल्लसुखाय दुःखं महद्गतानां विरमाय तस्य ।\
 > प्रवर्तये भागवतं पुराणं यदाह साक्षाद्भगवानृषिभ्यः ॥२॥
 
-> so 'haṁ nṛṇāṁ kṣulla-sukhāya duḥkhaṁ
-> mahad gatānāṁ viramāya tasya
-> pravartaye bhāgavataṁ purāṇaṁ
+> so 'haṁ nṛṇāṁ kṣulla-sukhāya duḥkhaṁ\
+> mahad gatānāṁ viramāya tasya\
+> pravartaye bhāgavataṁ purāṇaṁ\
 > yad āha sākṣād bhagavān ṛṣibhyaḥ
 
 *saḥ*—eso; *aham*—yo; *nṛṇām*—del ser humano; *kṣulla*—muy poco; *sukhāya*—para la felicidad; *duḥkham*—aflicción; *mahat*—grande; *gatānām*—entró en; *viramāya*—para mitigar; *tasya*—su; *pravartaye*—para comenzar; *bhāgavatam*—el *Śrīmad-Bhāgavatam*; *purāṇam*—suplemento védico; *yat*—el cual; *āha*—dijo; *sākṣāt*—directamente; *bhagavān*—la Personalidad de Dios; *ṛṣibhyaḥ*—a los sabios.

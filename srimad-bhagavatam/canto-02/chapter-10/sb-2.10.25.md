@@ -1,11 +1,11 @@
 ### SB 2.10.25
 
-> गतिं जिगीषतः पादौ रुरुहातेऽभिकामिकाम् ।
+> गतिं जिगीषतः पादौ रुरुहातेऽभिकामिकाम् ।\
 > पद्भ्यां यज्ञः स्वयं हव्यं कर्मभिः क्रियते नृभिः ॥२५॥
 
-> gatiṁ jigīṣataḥ pādau
-> ruruhāte 'bhikāmikām
-> padbhyāṁ yajñaḥ svayaṁ havyaṁ
+> gatiṁ jigīṣataḥ pādau\
+> ruruhāte 'bhikāmikām\
+> padbhyāṁ yajñaḥ svayaṁ havyaṁ\
 > karmabhiḥ kriyate nṛbhiḥ
 
 *gatim*—movement; *jigīṣataḥ*—so desiring; *pādau*—the legs; *ruruhāte*—being manifested; *abhikāmikām*—purposeful; *padbhyām*—from the legs; *yajñaḥ*—Lord Viṣṇu; *svayam*—personally Himself; *havyam*—the duties; *karmabhiḥ*—by one's occupational duty; *kriyate*—caused to be done; *nṛbhiḥ*—by different human beings.

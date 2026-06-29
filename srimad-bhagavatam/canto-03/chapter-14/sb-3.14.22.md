@@ -1,11 +1,11 @@
 ### SB 3.14.22
 
-> अथापि काममेतं ते प्रजात्यै करवाण्यलम् ।
+> अथापि काममेतं ते प्रजात्यै करवाण्यलम् ।\
 > यथा मां नातिरोचन्ति मुहूर्तं प्रतिपालय ॥२२॥
 
-> athāpi kāmam etaṁ te
-> prajātyai karavāṇy alam
-> yathā māṁ nātirocanti
+> athāpi kāmam etaṁ te\
+> prajātyai karavāṇy alam\
+> yathā māṁ nātirocanti\
 > muhūrtaṁ pratipālaya
 
 *atha api*—even though (it is not possible); *kāmam*—this sex desire; *etam*—as it is; *te*—your; *prajātyai*—for the sake of children; *karavāṇi*—let me do; *alam*—without delay; *yathā*—as; *mām*—unto me; *na*—may not; *atirocanti*—reproach; *muhūrtam*—a few seconds; *pratipālaya*—wait for.

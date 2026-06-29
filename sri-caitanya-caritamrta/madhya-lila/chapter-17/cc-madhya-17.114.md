@@ -1,9 +1,9 @@
 ### CC Madhya 17.114
 
-> দেখিলে সে জানি তাঁর ‘ঈশ্বরের রীতি’ ।
+> দেখিলে সে জানি তাঁর ‘ঈশ্বরের রীতি’ ।\
 > অলৌকিক কথা শুনি’ কে করে প্রতীতি ?” ॥ ১১৪ ॥
 
-> dekhile se jāni tāṅra 'īśvarera rīti'
+> dekhile se jāni tāṅra 'īśvarera rīti'\
 > alaukika kathā śuni' ke kare pratīti?"
 
 *dekhile*—simply by seeing; *se*—Him; *jāni*—I understand; *tāṅra*—His; *īśvarera rīti*—characteristics of the Supreme Personality of Godhead; *alaukika*—uncommon; *kathā*—story; *śuni'*—hearing; *ke*—who; *kare pratīti*—will believe.

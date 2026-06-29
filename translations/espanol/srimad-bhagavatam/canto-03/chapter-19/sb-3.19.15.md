@@ -1,11 +1,11 @@
 ### SB 3.19.15
 
-> वृक्णे स्वशूले बहुधारिणा हरेः प्रत्येत्य विस्तीर्णमुरो विभूतिमत् ।
+> वृक्णे स्वशूले बहुधारिणा हरेः प्रत्येत्य विस्तीर्णमुरो विभूतिमत् ।\
 > प्रवृद्धरोषः स कठोरमुष्टिना नदन्प्रहृत्यान्तरधीयतासुरः ॥१५॥
 
-> vṛkṇe sva-śūle bahudhāriṇā hareḥ
-> pratyetya vistīrṇam uro vibhūtimat
-> pravṛddha-roṣaḥ sa kaṭhora-muṣṭinā
+> vṛkṇe sva-śūle bahudhāriṇā hareḥ\
+> pratyetya vistīrṇam uro vibhūtimat\
+> pravṛddha-roṣaḥ sa kaṭhora-muṣṭinā\
 > nadan prahṛtyāntaradhīyatāsuraḥ
 
 *vṛkṇe*—una vez cortado; *sva-śūle*—su tridente; *bahudhā*—en muchos pedazos; *ariṇā*—por el *cakra* Sudarśana; *hareḥ*—de la Suprema Personalidad de Dios; *pratyetya*—tras abalanzarse contra; *vistīrṇam*—amplio; *uraḥ*—pecho; *vibhūti-mat*—la morada de la diosa de la fortuna; *pravṛddha*—habiendo aumentado; *roṣaḥ*—ira; *saḥ*—Hiraṇyākṣa; *kaṭhora*—duro; *muṣṭinā*—con su puño; *nadan*—rugiendo; *prahṛtya*—tras golpear; *antaradhīyata*—desapareció; *asuraḥ*—el demonio.

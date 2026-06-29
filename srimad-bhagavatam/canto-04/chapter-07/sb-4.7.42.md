@@ -1,15 +1,15 @@
 ### SB 4.7.42
 
-> देवा ऊचुः
-> पुरा कल्पापाये स्वकृतमुदरीकृत्य विकृतं
-> त्वमेवाद्यस्तस्मिन्सलिल उरगेन्द्राधिशयने ।
-> पुमान्शेषे सिद्धैर्हृदि विमृशिताध्यात्मपदविः
+> देवा ऊचुः\
+> पुरा कल्पापाये स्वकृतमुदरीकृत्य विकृतं\
+> त्वमेवाद्यस्तस्मिन्सलिल उरगेन्द्राधिशयने ।\
+> पुमान्शेषे सिद्धैर्हृदि विमृशिताध्यात्मपदविः\
 > स एवाद्याक्ष्णोर्यः पथि चरसि भृत्यानवसि नः ॥४२॥
 
-> devā ūcuḥ
-> purā kalpāpāye sva-kṛtam udarī-kṛtya vikṛtaṁ
-> tvam evādyas tasmin salila uragendrādhiśayane
-> pumān śeṣe siddhair hṛdi vimṛśitādhyātma-padaviḥ
+> devā ūcuḥ\
+> purā kalpāpāye sva-kṛtam udarī-kṛtya vikṛtaṁ\
+> tvam evādyas tasmin salila uragendrādhiśayane\
+> pumān śeṣe siddhair hṛdi vimṛśitādhyātma-padaviḥ\
 > sa evādyākṣṇor yaḥ pathi carasi bhṛtyān avasi naḥ
 
 *devāḥ*—the demigods; *ūcuḥ*—said; *purā*—formerly; *kalpa-apāye*—at the devastation of the *kalpa*; *sva-kṛtam*—self-produced; *udarī-kṛtya*—having drawn within Your abdomen; *vikṛtam*—effect; *tvam*—You; *eva*—certainly; *ādyaḥ*—original; *tasmin*—in that; *salile*—water; *uraga-indra*—on Śeṣa; *adhiśayane*—on the bed; *pumān*—personality; *śeṣe*—taking rest; *siddhaiḥ*—by the liberated souls (like Sanaka, etc.); *hṛdi*—in the heart; *vimṛśita*—meditated on; *adhyātma-padaviḥ*—the path of philosophical speculation; *saḥ*—He; *eva*—certainly; *adya*—now; *akṣṇoḥ*—of both eyes; *yaḥ*—who; *pathi*—on the path; *carasi*—You move; *bhṛtyān*—servants; *avasi*—protect; *naḥ*—us.

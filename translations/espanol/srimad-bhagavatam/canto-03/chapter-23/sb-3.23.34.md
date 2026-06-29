@@ -1,11 +1,11 @@
 ### SB 3.23.34
 
-> यदा सस्मार ऋषभमृषीणां दयितं पतिम् ।
+> यदा सस्मार ऋषभमृषीणां दयितं पतिम् ।\
 > तत्र चास्ते सह स्त्रीभिर्यत्रास्ते स प्रजापतिः ॥३४॥
 
-> yadā sasmāra ṛṣabham
-> ṛṣīṇāṁ dayitaṁ patim
-> tatra cāste saha strībhir
+> yadā sasmāra ṛṣabham\
+> ṛṣīṇāṁ dayitaṁ patim\
+> tatra cāste saha strībhir\
 > yatrāste sa prajāpatiḥ
 
 *yadā*—cuando; *sasmāra*—ella pensó en; *ṛṣabham*—el principal; *ṛṣīṇāṁ*—entre los *ṛṣis*; *dayitam*—querido; *patim*—esposo; *tatra*—allí; *ca*—y; *āste*—ella estaba presente; *saha*—junto con; *strībhiḥ*—las doncellas; *yatra*—donde; *āste*—estaba presente; *saḥ*—él; *prajāpatiḥ*—el *prajāpati* (Kardama).

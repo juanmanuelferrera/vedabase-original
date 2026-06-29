@@ -1,11 +1,11 @@
 ### SB 7.9.53
 
-> मामप्रीणत आयुष्मन्दर्शनं दुर्लभं हि मे
+> मामप्रीणत आयुष्मन्दर्शनं दुर्लभं हि मे\
 > दृष्ट्वा मां न पुनर्जन्तुरात्मानं तप्तुमर्हति ॥५३॥
 
-> mām aprīṇata āyuṣman
-> darśanaṁ durlabhaṁ hi me
-> dṛṣṭvā māṁ na punar jantur
+> mām aprīṇata āyuṣman\
+> darśanaṁ durlabhaṁ hi me\
+> dṛṣṭvā māṁ na punar jantur\
 > ātmānaṁ taptum arhati
 
 *mām*—Me; *aprīṇataḥ*—not pleasing; *āyuṣman*—O long-living Prahlāda; *darśanam*—seeing; *durlabham*—very rare; *hi*—indeed; *me*—of Me; *dṛṣṭvā*—after seeing; *mām*—Me; *na*—not; *punaḥ*—again; *jantuḥ*—the living entity; *ātmānam*—for himself; *taptum*—to lament; *arhati*—deserves.

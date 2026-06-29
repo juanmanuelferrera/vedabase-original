@@ -1,13 +1,13 @@
 ### SB 8.20.2
 
-> श्रीबलिरुवाच
-> सत्यं भगवता प्रोक्तं धर्मोऽयं गृहमेधिनाम
+> श्रीबलिरुवाच\
+> सत्यं भगवता प्रोक्तं धर्मोऽयं गृहमेधिनाम\
 > अर्थं कामं यशो वृत्तिं यो न बाधेत कर्हिचित ॥२॥
 
-> śrī-balir uvāca
-> satyaṁ bhagavatā proktaṁ
-> dharmo 'yaṁ gṛhamedhinām
-> arthaṁ kāmaṁ yaśo vṛttiṁ
+> śrī-balir uvāca\
+> satyaṁ bhagavatā proktaṁ\
+> dharmo 'yaṁ gṛhamedhinām\
+> arthaṁ kāmaṁ yaśo vṛttiṁ\
 > yo na bādheta karhicit
 
 *śrī-baliḥ uvāca*—Bali Mahārāja said; *satyam*—it is truth; *bhagavatā*—by Your Greatness; *proktam*—what has already been spoken; *dharmaḥ*—a religious principle; *ayam*—that is; *gṛhamedhinām*—especially for the householders; *artham*—economic development; *kāmam*—sense gratification; *yaśaḥ vṛttim*—reputation and means of livelihood; *yaḥ*—which religious principle; *na*—not; *bādheta*—hinders; *karhicit*—at any time.

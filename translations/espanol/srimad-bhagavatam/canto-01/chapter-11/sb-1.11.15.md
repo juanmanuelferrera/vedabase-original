@@ -1,11 +1,11 @@
 ### SB 1.11.15
 
-> द्वारि द्वारि गृहाणां च दध्यक्षतफलेक्षुभिः ।
+> द्वारि द्वारि गृहाणां च दध्यक्षतफलेक्षुभिः ।\
 > अलङ्कृतां पूर्णकुम्भैर्बलिभिर्धूपदीपकैः ॥१५॥
 
-> dvāri dvāri gṛhāṇāṁ ca
-> dadhy-akṣata-phalekṣubhiḥ
-> alaṅkṛtāṁ pūrṇa-kumbhair
+> dvāri dvāri gṛhāṇāṁ ca\
+> dadhy-akṣata-phalekṣubhiḥ\
+> alaṅkṛtāṁ pūrṇa-kumbhair\
 > balibhir dhūpa-dīpakaiḥ
 
 *dvāri dvāri*—las puertas de todas las casas; *gṛhāṇām*—de todas las residencias; *ca*—y; *dadhi*—cuajada; *akṣata*—entera; *phala*—fruta; *ikṣubhiḥ*—caña de azúcar; *alaṅkṛtām*—adornados; *pūrṇa-kumbhaiḥ*—vasijas llenas de agua; *balibhiḥ*—junto con artículos para adoración; *dhūpa*—incienso; *dīpakaiḥ*—con lámparas y velas.

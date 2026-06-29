@@ -1,11 +1,11 @@
 ### SB 8.24.7
 
-> आसीदतीतकल्पान्ते ब्राह्मो नैमित्तिको लयः
+> आसीदतीतकल्पान्ते ब्राह्मो नैमित्तिको लयः\
 > समुद्रोपप्लुतास्तत्र लोका भूरादयो नृप ॥७॥
 
-> āsīd atīta-kalpānte
-> brāhmo naimittiko layaḥ
-> samudropaplutās tatra
+> āsīd atīta-kalpānte\
+> brāhmo naimittiko layaḥ\
+> samudropaplutās tatra\
 > lokā bhūr-ādayo nṛpa
 
 *āsīt*—hubo; *atīta*—pasado; *kalpa-ante*—al final del *kalpa*; *brāhmaḥ*—del día del Señor Brahmā; *naimittikaḥ*—debido a eso; *layaḥ*—inundación; *samudra*—en el océano; *upaplutāḥ*—fueron inundados; *tatra*—allí; *lokāḥ*—todos los planetas; *bhūḥ-ādayaḥ*—Bhūḥ, Bhuvaḥ y Svaḥ, los tres *lokas*; *nṛpa*—¡oh, rey!.

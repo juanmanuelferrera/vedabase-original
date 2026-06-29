@@ -1,11 +1,11 @@
 ### SB 2.2.12
 
-> अदीनलीलाहसितेक्षणोल्लसद्भ्रूभङ्गसंसूचितभूर्यनुग्रहम् ।
+> अदीनलीलाहसितेक्षणोल्लसद्भ्रूभङ्गसंसूचितभूर्यनुग्रहम् ।\
 > ईक्षेत चिन्तामयमेनमीश्वरं यावन्मनो धारणयावतिष्ठते ॥१२॥
 
-> adīna-līlā-hasitekṣaṇollasad-
-> bhrū-bhaṅga-saṁsūcita-bhūry-anugraham
-> īkṣeta cintāmayam enam īśvaraṁ
+> adīna-līlā-hasitekṣaṇollasad-\
+> bhrū-bhaṅga-saṁsūcita-bhūry-anugraham\
+> īkṣeta cintāmayam enam īśvaraṁ\
 > yāvan mano dhāraṇayāvatiṣṭhate
 
 *adīna*—very magnanimous; *līlā*—pastimes; *hasita*—smiling; *īkṣaṇa*—by glancing over; *ullasat*—glowing; *bhrū-bhaṅga*—signals of the eyebrow; *saṁsūcita*—indicated; *bhūri*—extensive; *anugraham*—benediction; *īkṣeta*—one must concentrate on; *cintāmayam*—transcendental; *enam*—this particular; *īśvaram*—the Supreme Lord; *yāvat*—as long as; *manaḥ*—the mind; *dhāraṇayā*—by meditation; *avatiṣṭhate*—can be fixed.

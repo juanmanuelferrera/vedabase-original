@@ -1,9 +1,9 @@
 ### CC Madhya 25.99
 
-> যেই সূত্রে যেই ঋক্ — বিষয়-বচন ।
+> যেই সূত্রে যেই ঋক্ — বিষয়-বচন ।\
 > ভাগবতে সেই ঋক্ শ্লোকে নিবন্ধন ॥৯৯॥
 
-> yei sūtre yei ṛk-viṣaya-vacana
+> yei sūtre yei ṛk-viṣaya-vacana\
 > bhāgavate sei ṛk śloke nibandhana
 
 *yei sūtre*—en los códigos del Vedānta-sūtra; *yei*—lo que sea; *ṛk*—mantra Védico; *viṣaya-vacana*—tema a explicar; *bhāgavate*—en el Śrīmad-Bhāgavatam; *sei ṛk*—ese mismo mantra Védico; *śloke*—en dieciocho mil versos; *nibandhana*—compilando.

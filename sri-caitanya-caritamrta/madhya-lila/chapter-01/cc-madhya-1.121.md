@@ -1,9 +1,9 @@
 ### CC Madhya 1.121
 
-> পুনরপি নীলাচলে গমন করিল ।
+> পুনরপি নীলাচলে গমন করিল ।\
 > ভক্তগণে মেলিয়া স্নানযাত্রা দেখিল ॥১২১॥
 
-> punarapi nīlācale gamana karila
+> punarapi nīlācale gamana karila\
 > bhakta-gaṇe meliyā snāna-yātrā dekhila
 
 *punarapi*—again; *nīlācale*—to Jagannātha Purī; *gamana*—going back; *karila*—did; *bhakta-gaṇe*—all the devotees; *meliyā*—meeting; *snāna-yātrā*—the bathing ceremony of Lord Jagannātha; *dekhila*—saw.

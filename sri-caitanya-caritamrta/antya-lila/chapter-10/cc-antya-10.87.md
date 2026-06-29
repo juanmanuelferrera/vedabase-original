@@ -1,9 +1,9 @@
 ### CC Antya 10.87
 
-> বার বার গোবিন্দ কহে একদিক্ হইতে ।
+> বার বার গোবিন্দ কহে একদিক্ হইতে ।\
 > প্রভু কহে, — ‘অঙ্গ আমি নারি চালাইতে ।।’ ॥ ৮৭ ॥
 
-> bāra bāra govinda kahe eka-dik ha-ite
+> bāra bāra govinda kahe eka-dik ha-ite\
 > prabhu kahe,—'aṅga āmi nāri cālāite'
 
 *bāra bāra*—again and again; *govinda*—Govinda; *kahe*—requests; *eka-dik ha-ite*—to turn on one side; *prabhu kahe*—Śrī Caitanya Mahāprabhu replied; *aṅga*—My body; *āmi*—I; *nāri cālāite*—cannot move.

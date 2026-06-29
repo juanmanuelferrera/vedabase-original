@@ -1,11 +1,11 @@
 ### SB 4.20.16
 
-> वरं च मत्कञ्चन मानवेन्द्र वृणीष्व तेऽहं गुणशीलयन्त्रितः ।
+> वरं च मत्कञ्चन मानवेन्द्र वृणीष्व तेऽहं गुणशीलयन्त्रितः ।\
 > नाहं मखैर्वै सुलभस्तपोभिर्योगेन वा यत्समचित्तवर्ती ॥१६॥
 
-> varaṁ ca mat kañcana mānavendra
-> vṛṇīṣva te 'haṁ guṇa-śīla-yantritaḥ
-> nāhaṁ makhair vai sulabhas tapobhir
+> varaṁ ca mat kañcana mānavendra\
+> vṛṇīṣva te 'haṁ guṇa-śīla-yantritaḥ\
+> nāhaṁ makhair vai sulabhas tapobhir\
 > yogena vā yat sama-citta-vartī
 
 *varam*—bendición; *ca*—también; *mat*—de Mí; *kañcana*—la que quieras; *mānava-indra*—¡oh, líder de los seres humanos!; *vṛṇīṣva*—por favor, pide; *te*—tus; *aham*—Yo; *guṇa-śīla*—por cualidades elevadas y comportamiento excelente; *yantritaḥ*—estar cautivado; *na*—no; *aham*—Yo; *makhaiḥ*—con sacrificios; *vai*—ciertamente; *su-labhaḥ*—que se obtiene fácilmente; *tapobhiḥ*—con austeridades; *yogena*—con la práctica del *yoga* místico; *vā*—o; *yat*—por lo cual; *sama-citta*—en la persona equilibrada; *vartī*—estar situado.

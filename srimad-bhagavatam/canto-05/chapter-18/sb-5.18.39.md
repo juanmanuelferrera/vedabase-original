@@ -1,11 +1,11 @@
 ### SB 5.18.39
 
-> प्रमथ्य दैत्यं प्रतिवारणं मृधे यो मां रसाया जगदादिसूकरः
+> प्रमथ्य दैत्यं प्रतिवारणं मृधे यो मां रसाया जगदादिसूकरः\
 > कृत्वाग्रदंष्ट्रे निरगादुदन्वतः क्रीडन्निवेभः प्रणतास्मि तं विभुमिति ॥३९॥
 
-> pramathya daityaṁ prativāraṇaṁ mṛdhe
-> yo māṁ rasāyā jagad-ādi-sūkaraḥ
-> kṛtvāgra-daṁṣṭre niragād udanvataḥ
+> pramathya daityaṁ prativāraṇaṁ mṛdhe\
+> yo māṁ rasāyā jagad-ādi-sūkaraḥ\
+> kṛtvāgra-daṁṣṭre niragād udanvataḥ\
 > krīḍann ivebhaḥ praṇatāsmi taṁ vibhum iti
 
 *pramathya*—after killing; *daityam*—the demon; *prativāraṇam*—most formidable opponent; *mṛdhe*—in the fight; *yaḥ*—He who; *mām*—me (the earth); *rasāyāḥ*—fallen to the bottom of the universe; *jagat*—in this material world; *ādi-sūkaraḥ*—the original form of a boar; *kṛtvā*—keeping it; *agra-daṁṣṭre*—on the end of the tusk; *niragāt*—came out of the water; *udanvataḥ*—from the Garbhodaka Ocean; *krīḍan*—playing; *iva*—like; *ibhaḥ*—elephant; *praṇatā asmi*—I bow down; *tam*—to Him; *vibhum*—the Supreme Lord; *iti*—thus.

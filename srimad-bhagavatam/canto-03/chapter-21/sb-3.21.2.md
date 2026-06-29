@@ -1,11 +1,11 @@
 ### SB 3.21.2
 
-> प्रियव्रतोत्तानपादौ सुतौ स्वायम्भुवस्य वै ।
+> प्रियव्रतोत्तानपादौ सुतौ स्वायम्भुवस्य वै ।\
 > यथाधर्मं जुगुपतुः सप्तद्वीपवतीं महीम् ॥२॥
 
-> priyavratottānapādau
-> sutau svāyambhuvasya vai
-> yathā-dharmaṁ jugupatuḥ
+> priyavratottānapādau\
+> sutau svāyambhuvasya vai\
+> yathā-dharmaṁ jugupatuḥ\
 > sapta-dvīpavatīṁ mahīm
 
 *priyavrata*—Mahārāja Priyavrata; *uttānapādau*—and Mahārāja Uttānapāda; *sutau*—the two sons; *svāyambhuvasya*—of Svāyambhuva Manu; *vai*—indeed; *yathā*—according to; *dharmam*—religious principles; *jugupatuḥ*—ruled; *sapta-dvīpa-vatīm*—consisting of seven islands; *mahīm*—the world.

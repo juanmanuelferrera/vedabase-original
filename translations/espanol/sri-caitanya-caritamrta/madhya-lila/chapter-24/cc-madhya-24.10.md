@@ -1,9 +1,9 @@
 ### CC Madhya 24.10
 
-> একাদশ পদ এই শ্লোকে সুনির্মল ।
+> একাদশ পদ এই শ্লোকে সুনির্মল ।\
 > পৃথক্ নানা অর্থ পদে করে ঝলমল ॥১০॥
 
-> ekādaśa pada ei śloke sunirmala
+> ekādaśa pada ei śloke sunirmala\
 > pṛthak nānā artha pade kare jhalamala
 
 *ekādaśa pada*—once palabras; *ei*—este; *śloke*—en el verso; *su-nirmala*—muy claro; *pṛthak*—por separado; *nānā*—varios; *artha*—significados; *pade*—en cada palabra; *kare jhalamala*—resplandecen.

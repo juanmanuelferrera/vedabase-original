@@ -1,13 +1,13 @@
 ### CC Madhya 13.140
 
-> চিত্ত কাঢ়ি’ তোমা হৈতে, বিষয়ে চাহি লাগাইতে,
-> যত্ন করি, নারি কাঢ়িবারে ।
-> তারে ধ্যান শিক্ষা করাহ, লোক হাসাঞা মার,
+> চিত্ত কাঢ়ি’ তোমা হৈতে, বিষয়ে চাহি লাগাইতে,\
+> যত্ন করি, নারি কাঢ়িবারে ।\
+> তারে ধ্যান শিক্ষা করাহ, লোক হাসাঞা মার,\
 > স্থানাস্থান না কর বিচারে ॥১৪০॥
 
-> citta kāḍhi' tomā haite, viṣaye cāhi lāgāite,
-> yatna kari, nāri kāḍhibāre
-> tāre dhyāna śikṣā karāha, loka hāsāñā māra,
+> citta kāḍhi' tomā haite, viṣaye cāhi lāgāite,\
+> yatna kari, nāri kāḍhibāre\
+> tāre dhyāna śikṣā karāha, loka hāsāñā māra,\
 > sthānāsthāna nā kara vicāre
 
 *citta kāḍhi'*—retirando la conciencia; *tomā haite*—de Ti; *viṣaye*—en asuntos mundanos; *cāhi*—deseo; *lāgāite*—ocupar; *yatna kari*—me esfuerzo; *nāri kāḍhibāre*—no puedo retirarla; *tāre*—a esa servidora; *dhyāna*—de meditación; *śikṣā*—instrucción; *karāha*—Tú das; *loka*—la gente en general; *hāsāñā*—haciendo reír; *māra*—matas; *sthāna-asthāna*—lugar apropiado o inapropiado; *nā kara*—no haces; *vicāre*—consideración.

@@ -1,13 +1,13 @@
 ### SB 4.7.48
 
-> मैत्रेय उवाच
-> इति दक्षः कविर्यज्ञं भद्र रुद्राभिमर्शितम् ।
+> मैत्रेय उवाच\
+> इति दक्षः कविर्यज्ञं भद्र रुद्राभिमर्शितम् ।\
 > कीर्त्यमाने हृषीकेशे सन्निन्ये यज्ञभावने ॥४८॥
 
-> maitreya uvāca
-> iti dakṣaḥ kavir yajñaṁ
-> bhadra rudrābhimarśitam
-> kīrtyamāne hṛṣīkeśe
+> maitreya uvāca\
+> iti dakṣaḥ kavir yajñaṁ\
+> bhadra rudrābhimarśitam\
+> kīrtyamāne hṛṣīkeśe\
 > sanninye yajña-bhāvane
 
 *maitreyaḥ*—Maitreya; *uvāca*—dijo; *iti*—de este modo; *dakṣaḥ*—Dakṣa; *kaviḥ*—con la conciencia purificada; *yajñam*—el sacrificio; *bhadra*—¡oh, Vidura!; *rudra-abhimarśitam*—arrasado por Vīrabhadra; *kīrtyamāne*—siendo glorificado; *hṛṣīkeśe*—Hṛṣīkeśa (el Señor Viṣṇu); *sanninye*—dispuso el reinicio; *yajña-bhāvane*—el protector del sacrificio.

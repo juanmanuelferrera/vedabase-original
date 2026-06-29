@@ -1,11 +1,11 @@
 ### SB 4.1.15
 
-> अत्रेः पत्न्यनसूया त्रीञ्जज्ञे सुयशसः सुतान् ।
+> अत्रेः पत्न्यनसूया त्रीञ्जज्ञे सुयशसः सुतान् ।\
 > दत्तं दुर्वाससं सोममात्मेशब्रह्मसम्भवान् ॥१५॥
 
-> atreḥ patny anasūyā trīñ
-> jajñe suyaśasaḥ sutān
-> dattaṁ durvāsasaṁ somam
+> atreḥ patny anasūyā trīñ\
+> jajñe suyaśasaḥ sutān\
+> dattaṁ durvāsasaṁ somam\
 > ātmeśa-brahma-sambhavān
 
 *atreḥ*—de Atri Muni; *patnī*—esposa; *anasūyā*—llamada Anasūyā; *trīn*—tres; *jajñe*—dio a luz; *su-yaśasaḥ*—muy famosos; *sutān*—hijos; *dattam*—Dattātreya; *durvāsasam*—Durvāsā; *somam*—Soma (el dios de la Luna); *ātma*—la Superalma; *īśa*—el Señor Śiva; *brahma*—el Señor Brahmā; *sambhavān*—encarnaciones de.

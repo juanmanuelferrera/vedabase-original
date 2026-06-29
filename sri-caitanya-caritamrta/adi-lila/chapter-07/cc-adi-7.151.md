@@ -1,9 +1,9 @@
 ### CC Adi 7.151
 
-> তবে সব সন্ন্যাসী মহাপ্রভুকে লৈয়া ।
+> তবে সব সন্ন্যাসী মহাপ্রভুকে লৈয়া ।\
 > ভিক্ষা করিলেন সভে, মধ্যে বসাইয়া ॥১৫১॥
 
-> tabe saba sannyāsī mahāprabhuke laiyā
+> tabe saba sannyāsī mahāprabhuke laiyā\
 > bhikṣā karilena sabhe, madhye vasāiyā
 
 *tabe*—after this; *saba*—all; *sannyāsī*—the Māyāvādī *sannyāsīs*; *mahāprabhuke*—Caitanya Mahāprabhu; *laiyā*—taking Him; *bhikṣā karilena*—took *prasāda,* or took lunch; *sabhe*—all together; *madhye*—in the middle; *vasāiyā*—seating Him.

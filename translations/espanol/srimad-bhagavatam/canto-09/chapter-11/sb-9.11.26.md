@@ -1,11 +1,11 @@
 ### SB 9.11.26
 
-> आसिक्तमार्गां गन्धोदैः करिणां मदशीकरैः
+> आसिक्तमार्गां गन्धोदैः करिणां मदशीकरैः\
 > स्वामिनं प्राप्तमालोक्य मत्तां वा सुतरामिव ॥२६॥
 
-> āsikta-mārgāṁ gandhodaiḥ
-> kariṇāṁ mada-śīkaraiḥ
-> svāminaṁ prāptam ālokya
+> āsikta-mārgāṁ gandhodaiḥ\
+> kariṇāṁ mada-śīkaraiḥ\
+> svāminaṁ prāptam ālokya\
 > mattāṁ vā sutarām iva
 
 *āsikta-mārgām*—las calles eran rociadas; *gandha-udaiḥ*—con agua perfumada; *kariṇām*—de elefantes; *mada-śīkaraiḥ*—con partículas de esencias perfumadas; *svāminam*—al amo o propietario; *prāptam*—presente; *ālokya*—ver personalmente; *mattām*—muy opulenta; *vā*—o; *sutarām*—mucho; *iva*—como si.

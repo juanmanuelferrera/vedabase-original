@@ -1,9 +1,9 @@
 ### CC Madhya 20.237
 
-> হয়শীর্ষ-পঞ্চরাত্রে কহে ষোলজন ।
+> হয়শীর্ষ-পঞ্চরাত্রে কহে ষোলজন ।\
 > তার মতে কহি এবে চক্রাদি-ধারণ ॥২৩৭॥
 
-> hayaśīrṣa-pañcarātre kahe ṣola-jana
+> hayaśīrṣa-pañcarātre kahe ṣola-jana\
 > tāra mate kahi ebe cakrādi-dhāraṇa
 
 *hayaśīrṣa-pañcarātre*—the revealed scripture named the Hayaśīrṣa-pañcarātra; *kahe*—says; *ṣola-jana*—sixteen personalities; *tāra mate*—according to this opinion; *kahi*—I shall describe; *ebe*—now; *cakra-ādi-dhāraṇa*—the holding of weapons, beginning with the disc.

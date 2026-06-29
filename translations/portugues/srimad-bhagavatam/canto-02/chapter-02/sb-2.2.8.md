@@ -1,8 +1,8 @@
 ### SB 2.2.8
 
-> kecit sva-dehāntar-hṛdayāvakāśe
-> prādeśa-mātraṁ puruṣaṁ vasantam
-> catur-bhujaṁ kañja-rathāṅga-śaṅkha-
+> kecit sva-dehāntar-hṛdayāvakāśe\
+> prādeśa-mātraṁ puruṣaṁ vasantam\
+> catur-bhujaṁ kañja-rathāṅga-śaṅkha-\
 > gadā-dharaṁ dhāraṇayā smaranti
 
 *kecit*—outros; *sva-deha-antaḥ*—dentro do corpo; *hṛdaya-avakāśe*—na região do coração; *prādeśa-mātram*—medindo apenas vinte centímetros; *puruṣam*—a Personalidade de Deus; *vasantam*—residindo; *catuḥ-bhujam*—com quatro mãos; *kañja*—lótus; *ratha-aṅga*—a roda de uma quadriga; *śaṅkha*—búzio; *gadā-dharam*—e com uma maça na mão; *dhāraṇayā*—concebendo dessa maneira; *smaranti*—meditam Nele.

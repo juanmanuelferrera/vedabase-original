@@ -1,11 +1,11 @@
 ### SB 8.23.16
 
-> मन्त्रतस्तन्त्रतश्छिद्रं देशकालार्हवस्तुतः
+> मन्त्रतस्तन्त्रतश्छिद्रं देशकालार्हवस्तुतः\
 > सर्वं करोति निश्छिद्रमनुसङ्कीर्तनं तव ॥१६॥
 
-> mantratas tantrataś chidraṁ
-> deśa-kālārha-vastutaḥ
-> sarvaṁ karoti niśchidram
+> mantratas tantrataś chidraṁ\
+> deśa-kālārha-vastutaḥ\
+> sarvaṁ karoti niśchidram\
 > anusaṅkīrtanaṁ tava
 
 *mantrataḥ*—in pronouncing the Vedic *mantras* improperly; *tantrataḥ*—in insufficient knowledge for following regulative principles; *chidram*—discrepancy; *deśa*—in the matter of country; *kāla*—and time; *arha*—and recipient; *vastutaḥ*—and paraphernalia; *sarvam*—all these; *karoti*—makes; *niśchidram*—without discrepancy; *anusaṅkīrtanam*—constantly chanting the holy name; *tava*—of Your Lordship.

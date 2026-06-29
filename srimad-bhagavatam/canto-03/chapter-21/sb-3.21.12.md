@@ -1,11 +1,11 @@
 ### SB 3.21.12
 
-> जातहर्षोऽपतन्मूर्ध्ना क्षितौ लब्धमनोरथः ।
+> जातहर्षोऽपतन्मूर्ध्ना क्षितौ लब्धमनोरथः ।\
 > गीर्भिस्त्वभ्यगृणात्प्रीति स्वभावात्मा कृताञ्जलिः ॥१२॥
 
-> jāta-harṣo 'patan mūrdhnā
-> kṣitau labdha-manorathaḥ
-> gīrbhis tv abhyagṛṇāt prīti-
+> jāta-harṣo 'patan mūrdhnā\
+> kṣitau labdha-manorathaḥ\
+> gīrbhis tv abhyagṛṇāt prīti-\
 > svabhāvātmā kṛtāñjaliḥ
 
 *jāta-harṣaḥ*—naturally jubilant; *apatat*—he fell down; *mūrdhnā*—with his head; *kṣitau*—on the ground; *labdha*—having been achieved; *manaḥ-rathaḥ*—his desire; *gīrbhiḥ*—with prayers; *tu*—and; *abhyagṛṇāt*—he satisfied; *prīti-svabhāva-ātmā*—whose heart is by nature always full of love; *kṛta-añjaliḥ*—with folded hands.

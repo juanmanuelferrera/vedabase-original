@@ -1,11 +1,11 @@
 ### SB 4.15.2
 
-> तद्दृष्ट्वा मिथुनं जातमृषयो ब्रह्मवादिनः ।
+> तद्दृष्ट्वा मिथुनं जातमृषयो ब्रह्मवादिनः ।\
 > ऊचुः परमसन्तुष्टा विदित्वा भगवत्कलाम् ॥२॥
 
-> tad dṛṣṭvā mithunaṁ jātam
-> ṛṣayo brahma-vādinaḥ
-> ūcuḥ parama-santuṣṭā
+> tad dṛṣṭvā mithunaṁ jātam\
+> ṛṣayo brahma-vādinaḥ\
+> ūcuḥ parama-santuṣṭā\
 > viditvā bhagavat-kalām
 
 *tat*—aquella; *dṛṣṭvā*—al ver; *mithunam*—pareja; *jātam*—nacida; *ṛṣayaḥ*—los grandes sabios; *brahma-vādinaḥ*—muy eruditos en el conocimiento védico; *ūcuḥ*—dijeron; *parama*—mucho; *santuṣṭāḥ*—sintiéndose complacidos; *viditvā*—sabiendo; *bhagavat*—de la Suprema Personalidad de Dios; *kalām*—expansión.

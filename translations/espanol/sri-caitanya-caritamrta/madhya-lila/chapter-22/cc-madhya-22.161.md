@@ -1,9 +1,9 @@
 ### CC Madhya 22.161
 
-> দাস-সখা-পিত্রাদি-প্রেয়সীর গণ ।
+> দাস-সখা-পিত্রাদি-প্রেয়সীর গণ ।\
 > রাগমার্গে নিজ-নিজ-ভাবের গণন ॥১৬১॥
 
-> dāsa-sakhā-pitrādi-preyasīra gaṇa
+> dāsa-sakhā-pitrādi-preyasīra gaṇa\
 > rāga-mārge nija-nija-bhāvera gaṇana
 
 *dāsa*—sirvientes; *sakhā*—amigos; *pitṛ-ādi*—padres; *preyasīra gaṇa*—amantes conyugales; *rāga-mārge*—en el sendero del servicio amoroso espontáneo; *nija-nija*—de la propia elección; *bhāvera*—del éxtasis; *gaṇana*—enumeración.

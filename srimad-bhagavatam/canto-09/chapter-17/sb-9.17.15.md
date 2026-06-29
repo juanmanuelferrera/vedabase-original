@@ -1,11 +1,11 @@
 ### SB 9.17.15
 
-> त्रिविष्टपं महेन्द्राय यज्ञअभागान्समाददुः
+> त्रिविष्टपं महेन्द्राय यज्ञअभागान्समाददुः\
 > गुरुणा हूयमानेऽग्नौ बलभित्तनयान्रजेः ॥१५॥
 
-> guruṇā hūyamāne 'gnau
-> balabhit tanayān rajeḥ
-> avadhīd bhraṁśitān mārgān
+> guruṇā hūyamāne 'gnau\
+> balabhit tanayān rajeḥ\
+> avadhīd bhraṁśitān mārgān\
 > na kaścid avaśeṣitaḥ
 
 *guruṇā*—by the spiritual master (Bṛhaspati); *hūyamāne agnau*—while oblations were being offered in the fire of sacrifice; *balabhit*—Indra; *tanayān*—the sons; *rajeḥ*—of Rajī; *avadhīt*—killed; *bhraṁśitān*—fallen; *mārgāt*—from the moral principles; *na*—not; *kaścit*—anyone; *avaśeṣitaḥ*—remained alive.

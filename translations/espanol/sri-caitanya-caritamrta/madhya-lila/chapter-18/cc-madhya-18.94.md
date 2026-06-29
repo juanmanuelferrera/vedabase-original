@@ -1,9 +1,9 @@
 ### CC Madhya 18.94
 
-> লোকে কহে, — কৃষ্ণ প্ৰকট কালীয়দহের জলে !
+> লোকে কহে, — কৃষ্ণ প্ৰকট কালীয়দহের জলে !\
 > কালীয়-শিরে নৃত্য করে, ফণা-রত্ন জ্বলে ॥৯৪॥
 
-> loke kahe,--kṛṣṇa prakaṭa kālīya-dahera jale!
+> loke kahe,--kṛṣṇa prakaṭa kālīya-dahera jale!\
 > kālīya-śire nṛtya kare, phaṇā-ratna jvale
 
 *loke kahe*—toda la gente respondió; *kṛṣṇa prakaṭa*—Kṛṣṇa Se ha manifestado de nuevo; *kālīya-dahera jale*—en las aguas del lago Kālīya; *kālīya-śire*—sobre la cabeza de la serpiente Kālīya; *nṛtya kare*—danza; *phaṇā-ratna jvale*—las joyas de las capuchas resplandecen.

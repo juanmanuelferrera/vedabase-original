@@ -1,11 +1,11 @@
 ### CC Madhya 19.170
 
-> সর্বোপাধিবিনির্মুক্তং তৎপরত্বেন নির্মলম্ ।
+> সর্বোপাধিবিনির্মুক্তং তৎপরত্বেন নির্মলম্ ।\
 > হৃষীকেণ হৃষীকেশ-সেবনং ভক্তিরুচ্যতে ॥১৭০॥
 
-> sarvopādhi-vinirmuktaṁ
-> tat-paratvena nirmalam
-> hṛṣīkeṇa hṛṣīkeśa-
+> sarvopādhi-vinirmuktaṁ\
+> tat-paratvena nirmalam\
+> hṛṣīkeṇa hṛṣīkeśa-\
 > sevanaṁ bhaktir ucyate
 
 *sarva-upādhi-vinirmuktam*—free from all kinds of material designations, or free from all desires except the desire to render service to the Supreme Personality of Godhead; *tat-paratvena*—by the sole purpose of serving the Supreme Personality of Godhead; *nirmalam*—uncontaminated by the effects of speculative philosophical research or fruitive activity; *hṛṣīkeṇa*—by purified senses freed from all designations; *hṛṣīkeśa*—of the master of the senses; *sevanam*—the service to satisfy the senses; *bhaktiḥ*—devotional service; *ucyate*—is called.

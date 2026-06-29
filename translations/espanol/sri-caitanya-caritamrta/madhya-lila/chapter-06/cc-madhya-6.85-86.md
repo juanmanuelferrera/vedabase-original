@@ -1,14 +1,14 @@
 ### CC Madhya 6.85-86
 
-> যদ্যপি জগদ্গুরু তুমি — শাস্ত্র-জ্ঞানবান্ ।
-> পৃথিবীতে নাহি পণ্ডিত তোমার সমান ॥৮৫॥
-> ঈশ্বরের কৃপা-লেশ নাহিক তোমাতে ।
+> যদ্যপি জগদ্গুরু তুমি — শাস্ত্র-জ্ঞানবান্ ।\
+> পৃথিবীতে নাহি পণ্ডিত তোমার সমান ॥৮৫॥\
+> ঈশ্বরের কৃপা-লেশ নাহিক তোমাতে ।\
 > অতএব ঈশ্বরতত্ত্ব না পার জানিতে ॥৮৬॥
 
-> yadyapi jagad-guru tumi—śāstra-jñānavān
+> yadyapi jagad-guru tumi—śāstra-jñānavān\
 > pṛthivīte nāhi paṇḍita tomāra samāna
 
-> īśvarera kṛpā-leśa nāhika tomāte
+> īśvarera kṛpā-leśa nāhika tomāte\
 > ataeva īśvara-tattva nā pāra jānite
 
 *yadyapi*—aunque; *jagat-guru*—maestro de muchos discípulos; *tumi*—tú; *śāstra-jñānavān*—bien versado en el conocimiento védico; *pṛthivīte*—en esta Tierra; *nāhi*—no hay; *paṇḍita*—un sabio erudito; *tomāra*—tuyo; *samāna*—igual; *īśvarera*—de la Suprema Personalidad de Dios; *kṛpā*—de misericordia; *leśa*—un poquito; *nāhika*—no hay; *tomāte*—sobre ti; *ataeva*—por lo tanto; *īśvara-tattva*—la Verdad Absoluta (la Suprema Personalidad de Dios); *nā pāra*—no puedes; *jānite*—conocer.

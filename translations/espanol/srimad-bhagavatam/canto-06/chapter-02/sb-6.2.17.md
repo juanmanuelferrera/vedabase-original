@@ -1,11 +1,11 @@
 ### SB 6.2.17
 
-> तैस्तान्यघानि पूयन्ते तपोदानव्रतादिभिः
+> तैस्तान्यघानि पूयन्ते तपोदानव्रतादिभिः\
 > नाधर्मजं तद्धृदयं तदपीशाङ्घ्रिसेवया ॥१७॥
 
-> tais tāny aghāni pūyante
-> tapo-dāna-vratādibhiḥ
-> nādharmajaṁ tad-dhṛdayaṁ
+> tais tāny aghāni pūyante\
+> tapo-dāna-vratādibhiḥ\
+> nādharmajaṁ tad-dhṛdayaṁ\
 > tad apīśāṅghri-sevayā
 
 *taiḥ*—por esas; *tāni*—todas esas; *aghāni*—actividades pecaminosas y sus resultados; *pūyante*—quedan destruidas; *tapaḥ*—austeridad; *dāna*—caridad; *vrata-ādibhiḥ*—con votos y otras actividades semejantes; *na*—no; *adharma-jam*—producto de los actos irreligiosos; *tat*—de eso; *hṛdayam*—el corazón; *tat*—eso; *api*—también; *īśa-aṅghri*—de los pies de loto del Señor; *sevayā*—por servir.

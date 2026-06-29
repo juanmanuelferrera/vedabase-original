@@ -1,13 +1,13 @@
 ### SB 7.9.23
 
-> दृष्टा मया दिवि विभोऽखिलधिष्ण्यपानाम
-> आयुः श्रियो विभव इच्छति यान्जनोऽयम
-> येऽस्मत्पितुः कुपितहासविजृम्भितभ्रू
+> दृष्टा मया दिवि विभोऽखिलधिष्ण्यपानाम\
+> आयुः श्रियो विभव इच्छति यान्जनोऽयम\
+> येऽस्मत्पितुः कुपितहासविजृम्भितभ्रू\
 > विस्फूर्जितेन लुलिताः स तु ते निरस्तः ॥२३॥
 
-> dṛṣṭā mayā divi vibho 'khila-dhiṣṇya-pānām
-> āyuḥ śriyo vibhava icchati yāñ jano 'yam
-> ye 'smat pituḥ kupita-hāsa-vijṛmbhita-bhrū-
+> dṛṣṭā mayā divi vibho 'khila-dhiṣṇya-pānām\
+> āyuḥ śriyo vibhava icchati yāñ jano 'yam\
+> ye 'smat pituḥ kupita-hāsa-vijṛmbhita-bhrū-\
 > visphūrjitena lulitāḥ sa tu te nirastaḥ
 
 *dṛṣṭāḥ*—visto en la práctica; *mayā*—por mí; *divi*—en los sistemas planetarios superiores; *vibho*—¡oh, mi Señor!; *akhila*—todos; *dhiṣṇya-pānām*—de los dirigentes de distintos estados o planetas; *āyuḥ*—la duración de la vida; *śriyaḥ*—las opulencias; *vibhavaḥ*—las glorias, la influencia; *icchati*—desean; *yān*—todo lo cual; *janaḥ ayam*—la gente en general; *ye*—todo lo cual (duración de la vida, opulencia, etc.); *asmat pituḥ*—de nuestro padre, Hiraṇyakaśipu; *kupita-hāsa*—por su risa sarcástica cuando se enfadaba; *vijṛmbhita*—aumentaba; *bhrū*—de las cejas; *visphūrjitena*—simplemente por el aspecto; *lulitāḥ*—hundidos o acabados; *saḥ*—él (mi padre); *tu*—pero; *te*—por Ti; *nirastaḥ*—completamente vencido.

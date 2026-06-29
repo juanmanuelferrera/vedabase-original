@@ -1,11 +1,11 @@
 ### SB 8.5.5
 
-> वैकुण्ठः कल्पितो येन लोको लोकनमस्कृतः
+> वैकुण्ठः कल्पितो येन लोको लोकनमस्कृतः\
 > रमया प्रार्थ्यमानेन देव्या तत्प्रियकाम्यया ॥५॥
 
-> vaikuṇṭhaḥ kalpito yena
-> loko loka-namaskṛtaḥ
-> ramayā prārthyamānena
+> vaikuṇṭhaḥ kalpito yena\
+> loko loka-namaskṛtaḥ\
+> ramayā prārthyamānena\
 > devyā tat-priya-kāmyayā
 
 *vaikuṇṭhaḥ*—un planeta Vaikuṇṭha; *kalpitaḥ*—fue construido; *yena*—por quien; *lokaḥ*—planeta; *loka-namaskṛtaḥ*—adorado por todos; *ramayā*—de Ramā, la diosa de la fortuna; *prārthyamānena*—ante el ruego; *devyā*—por la diosa; *tat*—a ella; *priya-kāmyayā*—para complacer.

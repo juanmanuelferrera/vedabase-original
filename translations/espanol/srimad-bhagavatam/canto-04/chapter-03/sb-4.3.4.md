@@ -1,11 +1,11 @@
 ### SB 4.3.4
 
-> तस्मिन्ब्रह्मर्षयः सर्वे देवर्षिपितृदेवताः ।
+> तस्मिन्ब्रह्मर्षयः सर्वे देवर्षिपितृदेवताः ।\
 > आसन्कृतस्वस्त्ययनास्तत्पत्न्यश्च सभर्तृकाः ॥४॥
 
-> tasmin brahmarṣayaḥ sarve
-> devarṣi-pitṛ-devatāḥ
-> āsan kṛta-svastyayanās
+> tasmin brahmarṣayaḥ sarve\
+> devarṣi-pitṛ-devatāḥ\
+> āsan kṛta-svastyayanās\
 > tat-patnyaś ca sa-bhartṛkāḥ
 
 *tasmin*—en aquel (sacrificio); *brahma-ṛṣayaḥ*—los *brahmarṣis*; *sarve*—todos; *devarṣi*—los *devarṣis*; *pitṛ*—antepasados; *devatāḥ*—semidioses; *āsan*—estaban; *kṛta-svasti-ayanāḥ*—vestidas con sus mejores galas; *tat-patnyaḥ*—sus esposas; *ca*—y; *sa-bhartṛkāḥ*—junto con sus esposos.

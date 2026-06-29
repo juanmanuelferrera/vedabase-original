@@ -1,9 +1,9 @@
 ### CC Adi 16.98
 
-> তবে শিষ্যগণ সব হাসিতে লাগিল ।
+> তবে শিষ্যগণ সব হাসিতে লাগিল ।\
 > তা’-সবা নিষেধি’ প্রভু কবিরে কহিল ॥৯৮॥
 
-> tabe śiṣya-gaṇa saba hāsite lāgila
+> tabe śiṣya-gaṇa saba hāsite lāgila\
 > tā'-sabā niṣedhi' prabhu kavire kahila
 
 *tabe*—en ese momento; *śiṣya-gaṇa*—los discípulos; *saba*—todos; *hāsite*—a reír; *lāgila*—comenzaron; *tā'-sabā*—a todos ellos; *niṣedhi'*—prohibiendo; *prabhu*—el Señor; *kavire*—al poeta; *kahila*—se dirigió.

@@ -1,25 +1,25 @@
 ### SB 4.29.42-44
 
-> प्रजापतिपतिः साक्षाद्भगवान्गिरिशो मनुः ।
-> दक्षादयः प्रजाध्यक्षा नैष्ठिकाः सनकादयः ॥४२॥
-> मरीचिरत्र्यङ्गिरसौ पुलस्त्यः पुलहः क्रतुः ।
-> भृगुर्वसिष्ठ इत्येते मदन्ता ब्रह्मवादिनः ॥४३॥
-> अद्यापि वाचस्पतयस्तपोविद्यासमाधिभिः ।
+> प्रजापतिपतिः साक्षाद्भगवान्गिरिशो मनुः ।\
+> दक्षादयः प्रजाध्यक्षा नैष्ठिकाः सनकादयः ॥४२॥\
+> मरीचिरत्र्यङ्गिरसौ पुलस्त्यः पुलहः क्रतुः ।\
+> भृगुर्वसिष्ठ इत्येते मदन्ता ब्रह्मवादिनः ॥४३॥\
+> अद्यापि वाचस्पतयस्तपोविद्यासमाधिभिः ।\
 > पश्यन्तोऽपि न पश्यन्ति पश्यन्तं परमेश्वरम् ॥४४॥
 
-> prajāpati-patiḥ sākṣād
-> bhagavān giriśo manuḥ
-> dakṣādayaḥ prajādhyakṣā
+> prajāpati-patiḥ sākṣād\
+> bhagavān giriśo manuḥ\
+> dakṣādayaḥ prajādhyakṣā\
 > naiṣṭhikāḥ sanakādayaḥ
 
-> marīcir atry-aṅgirasau
-> pulastyaḥ pulahaḥ kratuḥ
-> bhṛgur vasiṣṭha ity ete
+> marīcir atry-aṅgirasau\
+> pulastyaḥ pulahaḥ kratuḥ\
+> bhṛgur vasiṣṭha ity ete\
 > mad-antā brahma-vādinaḥ
 
-> adyāpi vācas-patayas
-> tapo-vidyā-samādhibhiḥ
-> paśyanto 'pi na paśyanti
+> adyāpi vācas-patayas\
+> tapo-vidyā-samādhibhiḥ\
+> paśyanto 'pi na paśyanti\
 > paśyantaṁ parameśvaram
 
 *prajāpati-patiḥ*—Brahmā, the father of all progenitors; *sākṣāt*—directly; *bhagavān*—the most powerful; *giriśaḥ*—Lord Śiva; *manuḥ*—Manu; *dakṣa-ādayaḥ*—headed by King Dakṣa; *prajā-adhyakṣāḥ*—the rulers of humankind; *naiṣṭhikāḥ*—the strong *brahmacārīs*; *sanaka-ādayaḥ*—headed by Sanaka; *marīciḥ*—Marīci; *atri-aṅgirasau*—Atri and Aṅgirā; *pulastyaḥ*—Pulastya; *pulahaḥ*—Pulaha; *kratuḥ*—Kratu; *bhṛguḥ*—Bhṛgu; *vasiṣṭhaḥ*—Vasiṣṭha; *iti*—thus; *ete*—all of them; *mat-antāḥ*—ending with me; *brahma-vādinaḥ*—*brāhmaṇas,* speakers on Vedic literature; *adya api*—up to date; *vācaḥ-patayaḥ*—masters of speaking; *tapaḥ*—austerities; *vidyā*—knowledge; *samādhibhiḥ*—and by meditation; *paśyantaḥ*—observing; *api*—although; *na paśyanti*—do not observe; *paśyantam*—the one who sees; *parama-īśvaram*—the Supreme Personality of Godhead.

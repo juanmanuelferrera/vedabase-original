@@ -1,11 +1,11 @@
 ### SB 6.17.14
 
-> नायमर्हति वैकुण्ठ पादमूलोपसर्पणम
+> नायमर्हति वैकुण्ठ पादमूलोपसर्पणम\
 > सम्भावितमतिः स्तब्धः साधुभिः पर्युपासितम ॥१४॥
 
-> nāyam arhati vaikuṇṭha-
-> pāda-mūlopasarpaṇam
-> sambhāvita-matiḥ stabdhaḥ
+> nāyam arhati vaikuṇṭha-\
+> pāda-mūlopasarpaṇam\
+> sambhāvita-matiḥ stabdhaḥ\
 > sādhubhiḥ paryupāsitam
 
 *na*—not; *ayam*—this person; *arhati*—deserves; *vaikuṇṭha-pāda-mūla-upasarpaṇam*—the approaching of the shelter of Lord Viṣṇu's lotus feet; *sambhāvita-matiḥ*—considering himself highly esteemed; *stabdhaḥ*—impudent; *sādhubhiḥ*—by great saintly persons; *paryupāsitam*—worshiped.

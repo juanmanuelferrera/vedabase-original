@@ -1,11 +1,11 @@
 ### SB 3.11.42
 
-> तदाहुरक्षरं ब्रह्म सर्वकारणकारणम् ।
+> तदाहुरक्षरं ब्रह्म सर्वकारणकारणम् ।\
 > विष्णोर्धाम परं साक्षात्पुरुषस्य महात्मनः ॥४२॥
 
-> tad āhur akṣaraṁ brahma
-> sarva-kāraṇa-kāraṇam
-> viṣṇor dhāma paraṁ sākṣāt
+> tad āhur akṣaraṁ brahma\
+> sarva-kāraṇa-kāraṇam\
+> viṣṇor dhāma paraṁ sākṣāt\
 > puruṣasya mahātmanaḥ
 
 *tat*—eso; *āhuḥ*—se dice; *akṣaram*—infalible; *brahma*—el supremo; *sarva-kāraṇa*—toda causa; *kāraṇam*—la causa suprema; *viṣṇoḥ dhāma*—la morada espiritual de Viṣṇu; *param*—el supremo; *sākṣāt*—sin duda; *puruṣasya*—de la encarnación *puruṣa*; *mahātmanaḥ*—de Mahā-Viṣṇu.

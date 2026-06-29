@@ -1,9 +1,9 @@
 ### CC Madhya 3.23
 
-> তাঁরে পাঠাইয়া নিত্যানন্দ মহাশয় ।
+> তাঁরে পাঠাইয়া নিত্যানন্দ মহাশয় ।\
 > মহাপ্রভুর আগে আসি’ দিল পরিচয় ॥২৩॥
 
-> tāṅre pāṭhāiyā nityānanda mahāśaya
+> tāṅre pāṭhāiyā nityānanda mahāśaya\
 > mahāprabhura āge āsi' dila paricaya
 
 *tāṅre*—a él; *pāṭhāiyā*—enviando; *nityānanda*—el Señor Nityānanda; *mahā-āśaya*—la gran personalidad; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *āge*—delante; *āsi'*—viniendo; *dila*—dio; *paricaya*—aviso.

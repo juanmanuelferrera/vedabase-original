@@ -1,9 +1,9 @@
 ### CC Antya 2.99
 
-> জীবাজ্ঞান-কল্পিত ঈশ্বরে, সকলই অজ্ঞান ।
+> জীবাজ্ঞান-কল্পিত ঈশ্বরে, সকলই অজ্ঞান ।\
 > যাহার শ্রবণে ভক্তের ফাটে মন প্রাণ ।।” ॥ ৯৯ ॥
 
-> jīvājñāna-kalpita īśvare, sakala-i ajñāna
+> jīvājñāna-kalpita īśvare, sakala-i ajñāna\
 > yāhāra śravaṇe bhaktera phāṭe mana prāṇa"
 
 *jīva*—la entidad viviente ordinaria; *ajñāna*—por ignorancia; *kalpita*—imaginado; *īśvare*—en el Señor Supremo; *sakala-i ajñāna*—toda ignorancia; *yāhāra śravaṇe*—al escuchar lo cual; *bhaktera*—del devoto; *phāṭe*—se rompe; *mana prāṇa*—la mente y la vida.

@@ -1,9 +1,9 @@
 ### CC Madhya 4.127
 
-> উঠহ, পূজারী, কর দ্বার বিমোচন ।
+> উঠহ, পূজারী, কর দ্বার বিমোচন ।\
 > ক্ষীর এক রাখিয়াছি সন্ন্যাসি-কারণ ॥১২৭॥
 
-> uṭhaha, pūjārī, kara dvāra vimocana
+> uṭhaha, pūjārī, kara dvāra vimocana\
 > kṣīra eka rākhiyāchi sannyāsi-kāraṇa
 
 *uṭhaha*—por favor, levántate; *pūjārī*—¡oh, sacerdote!; *kara*—haz; *dvāra*—la puerta; *vimocana*—abrir; *kṣīra*—arroz con leche dulce; *eka*—una vasija; *rākhiyāchi*—he guardado; *sannyāsi*—del mendicante, Mādhavendra Purī; *kāraṇa*—por razón de.

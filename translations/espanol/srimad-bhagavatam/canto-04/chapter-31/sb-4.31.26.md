@@ -1,13 +1,13 @@
 ### SB 4.31.26
 
-> श्रीशुक उवाच
-> य एष उत्तानपदो मानवस्यानुवर्णितः ।
+> श्रीशुक उवाच\
+> य एष उत्तानपदो मानवस्यानुवर्णितः ।\
 > वंशः प्रियव्रतस्यापि निबोध नृपसत्तम ॥२६॥
 
-> śrī-śuka uvāca
-> ya eṣa uttānapado
-> mānavasyānuvarṇitaḥ
-> vaṁśaḥ priyavratasyāpi
+> śrī-śuka uvāca\
+> ya eṣa uttānapado\
+> mānavasyānuvarṇitaḥ\
+> vaṁśaḥ priyavratasyāpi\
 > nibodha nṛpa-sattama
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *yaḥ*—que; *eṣaḥ*—esta dinastía; *uttānapadaḥ*—del rey Uttānapāda; *mānavasya*—el hijo de Svāyambhuva Manu; *anuvarṇitaḥ*—narrada, siguiendo los pasos de los *ācāryas* anteriores; *vaṁśaḥ*—dinastía; *priyavratasya*—del rey Priyavrata; *api*—también; *nibodha*—trata de entender; *nṛpa-sattama*—¡oh, tú, el mejor entre los reyes!.

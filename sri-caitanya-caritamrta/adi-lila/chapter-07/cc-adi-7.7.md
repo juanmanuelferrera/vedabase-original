@@ -1,9 +1,9 @@
 ### CC Adi 7.7
 
-> স্বয়ং ভগবান্ কৃষ্ণ একলে ঈশ্বর ।
+> স্বয়ং ভগবান্ কৃষ্ণ একলে ঈশ্বর ।\
 > অদ্বিতীয়, নন্দাত্মজ, রসিক-শেখর ॥৭॥
 
-> svayaṁ bhagavān kṛṣṇa ekale īśvara
+> svayaṁ bhagavān kṛṣṇa ekale īśvara\
 > advitīya, nandātmaja, rasika-śekhara
 
 *svayam*—Himself; *bhagavān*—the Supreme Personality of Godhead; *kṛṣṇa*—Lord Kṛṣṇa; *ekale*—the only one; *īśvara*—the supreme controller; *advitīya*—without a second; *nanda-ātmaja*—appeared as the son of Mahārāja Nanda; *rasika*—the most mellow; *śekhara*—summit.

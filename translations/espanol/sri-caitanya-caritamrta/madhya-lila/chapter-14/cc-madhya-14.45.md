@@ -1,9 +1,9 @@
 ### CC Madhya 14.45
 
-> কাঙ্গালের ভোজন-রঙ্গ দেখে গৌরহরি ।
+> কাঙ্গালের ভোজন-রঙ্গ দেখে গৌরহরি ।\
 > ‘হরিবোল’ বলি’ তারে উপদেশ করি ॥৪৫॥
 
-> kāṅgālera bhojana-raṅga dekhe gaurahari
+> kāṅgālera bhojana-raṅga dekhe gaurahari\
 > 'hari-bola' bali' tāre upadeśa kari
 
 *kāṅgālera*—de los mendigos; *bhojana-raṅga*—el proceso de comer; *dekhe*—observa; *gaurahari*—Śrī Caitanya Mahāprabhu; *hari-bola bali'*—cantando «Hari bol»; *tāre*—a ellos; *upadeśa kari*—instruye.

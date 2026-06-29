@@ -1,11 +1,11 @@
 ### SB 4.16.13
 
-> नादण्ड्यं दण्डयत्येष सुतमात्मद्विषामपि ।
+> नादण्ड्यं दण्डयत्येष सुतमात्मद्विषामपि ।\
 > दण्डयत्यात्मजमपि दण्ड्यं धर्मपथे स्थितः ॥१३॥
 
-> nādaṇḍyaṁ daṇḍayaty eṣa
-> sutam ātma-dviṣām api
-> daṇḍayaty ātmajam api
+> nādaṇḍyaṁ daṇḍayaty eṣa\
+> sutam ātma-dviṣām api\
+> daṇḍayaty ātmajam api\
 > daṇḍyaṁ dharma-pathe sthitaḥ
 
 *na*—not; *adaṇḍyam*—not punishable; *daṇḍayati*—punishes; *eṣaḥ*—this King; *sutam*—the son; *ātma-dviṣām*—of his enemies; *api*—even; *daṇḍayati*—he punishes; *ātma-jam*—his own son; *api*—even; *daṇḍyam*—punishable; *dharma-pathe*—on the path of piety; *sthitaḥ*—being situated.

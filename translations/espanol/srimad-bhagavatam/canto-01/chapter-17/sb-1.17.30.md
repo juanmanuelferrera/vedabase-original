@@ -1,11 +1,11 @@
 ### SB 1.17.30
 
-> पतितं पादयोर्वीरः कृपया दीनवत्सलः ।
+> पतितं पादयोर्वीरः कृपया दीनवत्सलः ।\
 > शरण्यो नावधीच्छ्लोक्य आह चेदं हसन्निव ॥३०॥
 
-> patitaṁ pādayor vīraḥ
-> kṛpayā dīna-vatsalaḥ
-> śaraṇyo nāvadhīc chlokya
+> patitaṁ pādayor vīraḥ\
+> kṛpayā dīna-vatsalaḥ\
+> śaraṇyo nāvadhīc chlokya\
 > āha cedaṁ hasann iva
 
 *patitam*—caído; *pādayoḥ*—a los pies; *vīraḥ*—el héroe; *kṛpayā*—por compasión; *dīna-vatsalaḥ*—bueno con el pobre; *śaraṇyaḥ*—aquel que está en capacidad de aceptar la entrega; *na*—no; *avadhīt*—mató; *ślokyaḥ*—aquel de quien es digno cantar; *āha*—dijo; *ca*—también; *idam*—esto; *hasan*—sonriendo; *iva*—como.

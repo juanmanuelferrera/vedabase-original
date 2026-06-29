@@ -1,11 +1,11 @@
 ### SB 4.3.10
 
-> तत्र स्वसॄर्मे ननु भर्तृसम्मिता मातृष्वसॄः क्लिन्नधियं च मातरम् ।
+> तत्र स्वसॄर्मे ननु भर्तृसम्मिता मातृष्वसॄः क्लिन्नधियं च मातरम् ।\
 > द्रक्ष्ये चिरोत्कण्ठमना महर्षिभिरुन्नीयमानं च मृडाध्वरध्वजम् ॥१०॥
 
-> tatra svasṝr me nanu bhartṛ-sammitā
-> mātṛ-ṣvasṝḥ klinna-dhiyaṁ ca mātaram
-> drakṣye cirotkaṇṭha-manā maharṣibhir
+> tatra svasṝr me nanu bhartṛ-sammitā\
+> mātṛ-ṣvasṝḥ klinna-dhiyaṁ ca mātaram\
+> drakṣye cirotkaṇṭha-manā maharṣibhir\
 > unnīyamānaṁ ca mṛḍādhvara-dhvajam
 
 *tatra*—allí; *svasṝḥ*—propias hermanas; *me*—mis; *nanu*—seguramente; *bhartṛ-sammitāḥ*—con sus esposos; *mātṛ-svasṝḥ*—las hermanas de mi madre; *klinna-dhiyam*—afectuosos; *ca*—y; *mātaram*—madre; *drakṣye*—yo veré; *cira-utkaṇṭha-manāḥ*—llevar mucho tiempo ansiosa; *mahā-ṛṣibhiḥ*—por grandes sabios; *unnīyamānam*—siendo izadas; *ca*—y; *mṛḍa*—¡oh, Śiva!; *adhvara*—sacrificio; *dhvajam*—banderas.

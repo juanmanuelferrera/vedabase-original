@@ -1,9 +1,9 @@
 ### CC Madhya 3.74
 
-> প্রভু বলে — এত অন্ন নারিব খাইতে ।
+> প্রভু বলে — এত অন্ন নারিব খাইতে ।\
 > সন্ন্যাসীর ধর্ম নহে উচ্ছিষ্ট রাখিতে ॥৭৪॥
 
-> prabhu bale—eta anna nāriba khāite
+> prabhu bale—eta anna nāriba khāite\
 > sannyāsīra dharma nahe ucchiṣṭa rākhite
 
 *prabhubale*—the Lord said; *eta*—so much; *anna*—eatables; *nāriba*—I will not be able; *khāite*—to eat; *sannyāsīra*—of a *sannyāsī*; *dharma nahe*—it is not the duty; *ucchiṣṭa*—remnants of food; *rākhite*—to keep.

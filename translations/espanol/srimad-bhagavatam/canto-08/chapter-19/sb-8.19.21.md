@@ -1,13 +1,13 @@
 ### SB 8.19.21
 
-> श्रीभगवानुवाच
-> यावन्तो विषयाः प्रेष्ठास्त्रिलोक्यामजितेन्द्रियम
+> श्रीभगवानुवाच\
+> यावन्तो विषयाः प्रेष्ठास्त्रिलोक्यामजितेन्द्रियम\
 > न शक्नुवन्ति ते सर्वे प्रतिपूरयितुं नृप ॥२१॥
 
-> śrī-bhagavān uvāca
-> yāvanto viṣayāḥ preṣṭhās
-> tri-lokyām ajitendriyam
-> na śaknuvanti te sarve
+> śrī-bhagavān uvāca\
+> yāvanto viṣayāḥ preṣṭhās\
+> tri-lokyām ajitendriyam\
+> na śaknuvanti te sarve\
 > pratipūrayituṁ nṛpa
 
 *śrī*—*bhagavān uvāca* —la Suprema Personalidad de Dios dijo; *yāvantaḥ*—en la medida de lo posible; *viṣayāḥ*—los objetos del disfrute de los sentidos; *preṣṭhāḥ*—que agradan a todos; *tri-lokyām*—en los tres mundos; *ajita*—*indriyam* —a una persona sin dominio de sí misma; *na śaknuvanti*—no pueden; *te*—todos esos; *sarve*—en conjunto; *pratipūrayitum*—satisfacer; *nṛpa*—¡oh, rey!.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.152
 
-> তীরে উঠি’ পরেন প্রভু শুষ্ক বসন ।
+> তীরে উঠি’ পরেন প্রভু শুষ্ক বসন ।\
 > নৃসিংহ-দেবে নমস্করি’ গেলা উপবন ॥১৫২॥
 
-> tīre uṭhi' parena prabhu śuṣka vasana
+> tīre uṭhi' parena prabhu śuṣka vasana\
 > nṛsiṁha-deve namaskari' gelā upavana
 
 *tīre uṭhi'*—subiendo a la orilla; *parena*—se pone; *prabhu*—Śrī Caitanya Mahāprabhu; *śuṣka vasana*—ropas secas; *nṛsiṁha-deve*—al Señor Nṛsiṁhadeva; *namaskari'*—ofreciendo reverencias; *gelā upavana*—entró en un jardín.

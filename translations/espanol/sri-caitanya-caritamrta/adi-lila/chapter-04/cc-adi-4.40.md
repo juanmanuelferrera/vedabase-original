@@ -1,9 +1,9 @@
 ### CC Adi 4.40
 
-> সেই দ্বারে আচণ্ডালে কীর্তন সঞ্চারে ।
+> সেই দ্বারে আচণ্ডালে কীর্তন সঞ্চারে ।\
 > নাম-প্রেমমালা গাঁথি’ পরাইল সংসারে ॥৪০॥
 
-> sei dvāre ācaṇḍāle kīrtana sañcāre
+> sei dvāre ācaṇḍāle kīrtana sañcāre\
 > nāma-prema-mālā gāṅthi' parāila saṁsāre
 
 *sei dvāre*—por ese medio; *ā-caṇḍāle*—incluso entre los *caṇḍālas*; *kīrtana*—el canto de los santos nombres; *sañcāre*—infunde; *nāma*—de los santos nombres; *prema*—y del amor por Dios; *mālā*—una guirnalda; *gāṅthi'*—ensartando; *parāila*—colocó; *saṁsāre*—sobre todo el mundo material.

@@ -1,11 +1,11 @@
 ### SB 1.17.40
 
-> अमूनि पञ्च स्थानानि ह्यधर्मप्रभवः कलिः ।
+> अमूनि पञ्च स्थानानि ह्यधर्मप्रभवः कलिः ।\
 > औत्तरेयेण दत्तानि न्यवसत्तन्निदेशकृत् ॥४०॥
 
-> amūni pañca sthānāni
-> hy adharma-prabhavaḥ kaliḥ
-> auttareyeṇa dattāni
+> amūni pañca sthānāni\
+> hy adharma-prabhavaḥ kaliḥ\
+> auttareyeṇa dattāni\
 > nyavasat tan-nideśa-kṛt
 
 *amūni*—all those; *pañca*—five; *sthānāni*—places; *hi*—certainly; *adharma*—irreligious principles; *prabhavaḥ*—encouraging; *kaliḥ*—the age of Kali; *auttareyeṇa*—by the son of Uttarā; *dattāni*—delivered; *nyavasat*—dwelt; *tat*—by him; *nideśa-kṛt*—directed.

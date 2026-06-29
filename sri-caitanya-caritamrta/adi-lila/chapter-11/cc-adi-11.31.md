@@ -1,9 +1,9 @@
 ### CC Adi 11.31
 
-> নিত্যানন্দ-প্রিয়ভৃত্য পণ্ডিত ধনঞ্জয় ।
+> নিত্যানন্দ-প্রিয়ভৃত্য পণ্ডিত ধনঞ্জয় ।\
 > অত্যন্ত বিরক্ত, সদা কৃষ্ণপ্রেমময় ॥৩১॥
 
-> nityānanda-priyabhṛtya paṇḍita dhanañjaya
+> nityānanda-priyabhṛtya paṇḍita dhanañjaya\
 > atyanta virakta, sadā kṛṣṇa-premamaya
 
 *nityānanda-priya-bhṛtya*—another dear servant of Nityānanda Prabhu; *paṇḍita dhanañjaya*—of the name Paṇḍita Dhanañjaya; *atyanta*—very much; *virakta*—renounced; *sadā*—always; *kṛṣṇa-prema-maya*—merged in love of Kṛṣṇa.

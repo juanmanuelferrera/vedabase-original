@@ -1,11 +1,11 @@
 ### SB 4.12.51
 
-> ज्ञानमज्ञाततत्त्वाय यो दद्यात्सत्पथेऽमृतम् ।
+> ज्ञानमज्ञाततत्त्वाय यो दद्यात्सत्पथेऽमृतम् ।\
 > कृपालोर्दीननाथस्य देवास्तस्यानुगृह्णते ॥५१॥
 
-> jñānam ajñāta-tattvāya
-> yo dadyāt sat-pathe 'mṛtam
-> kṛpālor dīna-nāthasya
+> jñānam ajñāta-tattvāya\
+> yo dadyāt sat-pathe 'mṛtam\
+> kṛpālor dīna-nāthasya\
 > devās tasyānugṛhṇate
 
 *jñānam*—conocimiento; *ajñāta-tattvāya*—a los que no son conscientes de la verdad; *yaḥ*—aquel que; *dadyāt*—imparte; *sat-pathe*—en el sendero de la verdad; *amṛtam*—inmortalidad; *kṛpāloḥ*—bondadoso; *dīna-nāthasya*—protector de los pobres; *devāḥ*—los semidioses; *tasya*—a él; *anugṛhṇate*—dan bendiciones.

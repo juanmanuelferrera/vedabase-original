@@ -1,11 +1,11 @@
 ### SB 4.23.13
 
-> एवं स वीरप्रवरः संयोज्यात्मानमात्मनि ।
+> एवं स वीरप्रवरः संयोज्यात्मानमात्मनि ।\
 > ब्रह्मभूतो दृढं काले तत्याज स्वं कलेवरम् ॥१३॥
 
-> evaṁ sa vīra-pravaraḥ
-> saṁyojyātmānam ātmani
-> brahma-bhūto dṛḍhaṁ kāle
+> evaṁ sa vīra-pravaraḥ\
+> saṁyojyātmānam ātmani\
+> brahma-bhūto dṛḍhaṁ kāle\
 > tatyāja svaṁ kalevaram
 
 *evam*—thus; *saḥ*—he; *vīra-pravaraḥ*—the chief of the heroes; *saṁyojya*—applying; *ātmānam*—mind; *ātmani*—unto the Supersoul; *brahma-bhūtaḥ*—being liberated; *dṛḍham*—firmly; *kāle*—in due course of time; *tatyāja*—gave up; *svam*—own; *kalevaram*—body.

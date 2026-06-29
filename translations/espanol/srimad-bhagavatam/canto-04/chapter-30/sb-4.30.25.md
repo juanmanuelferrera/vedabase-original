@@ -1,11 +1,11 @@
 ### SB 4.30.25
 
-> नमः कमलनाभाय नमः कमलमालिने ।
+> नमः कमलनाभाय नमः कमलमालिने ।\
 > नमः कमलपादाय नमस्ते कमलेक्षण ॥२५॥
 
-> namaḥ kamala-nābhāya
-> namaḥ kamala-māline
-> namaḥ kamala-pādāya
+> namaḥ kamala-nābhāya\
+> namaḥ kamala-māline\
+> namaḥ kamala-pādāya\
 > namas te kamalekṣaṇa
 
 *namaḥ*—ofrecemos nuestras respetuosas reverencias; *kamala-nābhāya*—a la Suprema Personalidad de Dios, de cuyo abdomen se originó la flor de loto primigenia; *namaḥ*—reverencias; *kamala-māline*—que siempre Se adorna con un collar de flores de loto; *namaḥ*—reverencias; *kamala-pādāya*—cuyos pies son tan hermosos y fragantes como la flor de loto; *namaḥ te*—reverencias a Ti; *kamala-īkṣaṇa*—cuyos ojos son exactamente como los pétalos de la flor de loto.

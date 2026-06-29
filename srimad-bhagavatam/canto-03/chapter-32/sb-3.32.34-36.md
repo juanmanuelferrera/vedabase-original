@@ -1,25 +1,25 @@
 ### SB 3.32.34-36
 
-> क्रियया क्रतुभिर्दानैस्तपःस्वाध्यायमर्शनैः ।
-> आत्मेन्द्रियजयेनापि सन्न्यासेन च कर्मणाम् ॥३४॥
-> योगेन विविधाङ्गेन भक्तियोगेन चैव हि ।
-> धर्मेणोभयचिह्नेन यः प्रवृत्तिनिवृत्तिमान् ॥३५॥
-> आत्मतत्त्वावबोधेन वैराग्येण दृढेन च ।
+> क्रियया क्रतुभिर्दानैस्तपःस्वाध्यायमर्शनैः ।\
+> आत्मेन्द्रियजयेनापि सन्न्यासेन च कर्मणाम् ॥३४॥\
+> योगेन विविधाङ्गेन भक्तियोगेन चैव हि ।\
+> धर्मेणोभयचिह्नेन यः प्रवृत्तिनिवृत्तिमान् ॥३५॥\
+> आत्मतत्त्वावबोधेन वैराग्येण दृढेन च ।\
 > ईयते भगवानेभिः सगुणो निर्गुणः स्वदृक् ॥३६॥
 
-> kriyayā kratubhir dānais
-> tapaḥ-svādhyāya-marśanaiḥ
-> ātmendriya-jayenāpi
+> kriyayā kratubhir dānais\
+> tapaḥ-svādhyāya-marśanaiḥ\
+> ātmendriya-jayenāpi\
 > sannyāsena ca karmaṇām
 
-> yogena vividhāṅgena
-> bhakti-yogena caiva hi
-> dharmeṇobhaya-cihnena
+> yogena vividhāṅgena\
+> bhakti-yogena caiva hi\
+> dharmeṇobhaya-cihnena\
 > yaḥ pravṛtti-nivṛttimān
 
-> ātma-tattvāvabodhena
-> vairāgyeṇa dṛḍhena ca
-> īyate bhagavān ebhiḥ
+> ātma-tattvāvabodhena\
+> vairāgyeṇa dṛḍhena ca\
+> īyate bhagavān ebhiḥ\
 > saguṇo nirguṇaḥ sva-dṛk
 
 *kriyayā*—by fruitive activities; *kratubhiḥ*—by sacrificial performances; *dānaiḥ*—by charity; *tapaḥ*—austerities; *svādhyāya*—study of Vedic literature; *marśanaiḥ*—and by philosophical research; *ātma-indriya-jayena*—by controlling the mind and senses; *api*—also; *sannyāsena*—by renunciation; *ca*—and; *karmaṇām*—of fruitive activities; *yogena*—by *yoga* practice; *vividha-aṅgena*—of different divisions; *bhakti-yogena*—by devotional service; *ca*—and; *eva*—certainly; *hi*—indeed; *dharmeṇa*—by prescribed duties; *ubhaya-cihnena*—having both symptoms; *yaḥ*—which; *pravṛtti*—attachment; *nivṛtti-mān*—containing detachment; *ātma-tattva*—the science of self-realization; *avabodhena*—by understanding; *vairāgyeṇa*—by detachment; *dṛḍhena*—strong; *ca*—and; *īyate*—is perceived; *bhagavān*—the Supreme Personality of Godhead; *ebhiḥ*—by these; *sa-guṇaḥ*—in the material world; *nirguṇaḥ*—beyond the material modes; *sva-dṛk*—one who sees his constitutional position.

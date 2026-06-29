@@ -1,11 +1,11 @@
 ### SB 4.29.72
 
-> गर्भे बाल्येऽप्यपौष्कल्यादेकादशविधं तदा ।
+> गर्भे बाल्येऽप्यपौष्कल्यादेकादशविधं तदा ।\
 > लिङ्गं न दृश्यते यूनः कुह्वां चन्द्रमसो यथा ॥७२॥
 
-> garbhe bālye 'py apauṣkalyād
-> ekādaśa-vidhaṁ tadā
-> liṅgaṁ na dṛśyate yūnaḥ
+> garbhe bālye 'py apauṣkalyād\
+> ekādaśa-vidhaṁ tadā\
+> liṅgaṁ na dṛśyate yūnaḥ\
 > kuhvāṁ candramaso yathā
 
 *garbhe*—in the womb; *bālye*—in boyhood; *api*—also; *apauṣkalyāt*—because of immaturity; *ekādaśa*—the ten senses and the mind; *vidham*—in the form of; *tadā*—at that time; *liṅgam*—the subtle body or false ego; *na*—not; *dṛśyate*—is visible; *yūnaḥ*—of a youth; *kuhvām*—during the dark-moon night; *candramasaḥ*—the moon; *yathā*—as.

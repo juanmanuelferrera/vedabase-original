@@ -1,13 +1,13 @@
 ### CC Madhya 21.107
 
-> চড়ি’ গোপী-মনোরথে, মন্মথের মন মথে,
-> নাম ধরে ‘মদনমোহন’ ।
-> জিনি’ পঞ্চশর-দর্প, স্বয়ং নবকন্দর্প,
+> চড়ি’ গোপী-মনোরথে, মন্মথের মন মথে,\
+> নাম ধরে ‘মদনমোহন’ ।\
+> জিনি’ পঞ্চশর-দর্প, স্বয়ং নবকন্দর্প,\
 > রাস করে লঞা গোপীগণ ॥১০৭॥
 
-> caḍi' gopī-manorathe, manmathera mana mathe,
-> nāma dhare 'madana-mohana'
-> jini' pañcaśara-darpa, svayaṁ nava-kandarpa,
+> caḍi' gopī-manorathe, manmathera mana mathe,\
+> nāma dhare 'madana-mohana'\
+> jini' pañcaśara-darpa, svayaṁ nava-kandarpa,\
 > rāsa kare lañā gopī-gaṇa
 
 *caḍi'*—riding; *gopī-manaḥ-rathe*—on the chariot of the minds of the *gopīs*; *manmathera*—of Cupid; *mana*—the mind; *mathe*—churns; *nāma*—the name; *dhare*—accepts; *madana-mohana*—Madana-mohana, the deluder of Cupid; *jini'*—conquering; *pañca-śara*—of Cupid, the master of the five arrows of the senses; *darpa*—the pride; *svayam*—personally; *nava*—new; *kandarpa*—Cupid; *rāsa*—*rāsa* dance; *kare*—performs; *lañā*—with; *gopī-gaṇa*—the *gopīs.*

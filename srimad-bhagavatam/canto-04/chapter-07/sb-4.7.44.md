@@ -1,15 +1,15 @@
 ### SB 4.7.44
 
-> विद्याधरा ऊचुः
-> त्वन्माययार्थमभिपद्य कलेवरेऽस्मिन्
-> कृत्वा ममाहमिति दुर्मतिरुत्पथैः स्वैः ।
-> क्षिप्तोऽप्यसद्विषयलालस आत्ममोहं
+> विद्याधरा ऊचुः\
+> त्वन्माययार्थमभिपद्य कलेवरेऽस्मिन्\
+> कृत्वा ममाहमिति दुर्मतिरुत्पथैः स्वैः ।\
+> क्षिप्तोऽप्यसद्विषयलालस आत्ममोहं\
 > युष्मत्कथामृतनिषेवक उद्व्युदस्येत् ॥४४॥
 
-> vidyādharā ūcuḥ
-> tvan-māyayārtham abhipadya kalevare 'smin
-> kṛtvā mamāham iti durmatir utpathaiḥ svaiḥ
-> kṣipto 'py asad-viṣaya-lālasa ātma-mohaṁ
+> vidyādharā ūcuḥ\
+> tvan-māyayārtham abhipadya kalevare 'smin\
+> kṛtvā mamāham iti durmatir utpathaiḥ svaiḥ\
+> kṣipto 'py asad-viṣaya-lālasa ātma-mohaṁ\
 > yuṣmat-kathāmṛta-niṣevaka udvyudasyet
 
 *vidyādharāḥ*—the Vidyādharas; *ūcuḥ*—said; *tvat-māyayā*—by Your external potency; *artham*—the human body; *abhipadya*—after obtaining; *kalevare*—in the body; *asmin*—in this; *kṛtvā*—having misidentified; *mama*—mine; *aham*—I; *iti*—thus; *durmatiḥ*—the ignorant person; *utpathaiḥ*—by wrong roads; *svaiḥ*—by one's own belongings; *kṣiptaḥ*—distracted; *api*—even; *asat*—temporary; *viṣaya-lālasaḥ*—having his happiness in sense objects; *ātma-moham*—the illusion of the body as the self; *yuṣmat*—Your; *kathā*—topics; *amṛta*—nectar; *niṣevakaḥ*—relishing; *ut*—from a long distance; *vyudasyet*—can be delivered.

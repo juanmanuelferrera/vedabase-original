@@ -1,9 +1,9 @@
 ### CC Antya 6.11
 
-> এই দুই জনার সৌভাগ্য কহন না যায় ।
+> এই দুই জনার সৌভাগ্য কহন না যায় ।\
 > প্রভুর ‘অন্তরঙ্গ’ বলি’ যাঁরে লোকে গায় ॥১১॥
 
-> ei dui janāra saubhāgya kahana nā yāya
+> ei dui janāra saubhāgya kahana nā yāya\
 > prabhura 'antaraṅga' bali' yāṅre loke gāya
 
 *ei dui janāra*—de estas dos personalidades; *saubhāgya*—la fortuna; *kahana nā yāya*—no se puede describir; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *antaraṅga*—asociados muy íntimos y confidenciales; *bali'*—como; *yāṅre*—a quienes; *loke*—la gente; *gāya*—dice.

@@ -1,11 +1,11 @@
 ### Bg 3.42
 
-> इन्द्रियाणि पराण्याहुरिन्द्रियेभ्यः परं मनः ।
+> इन्द्रियाणि पराण्याहुरिन्द्रियेभ्यः परं मनः ।\
 > मनसस्तु परा बुद्धिर्यो बुद्धेः परतस्तु सः ॥४२॥
 
-> indriyāṇi parāṇy āhur
-> indriyebhyaḥ paraṁ manaḥ
-> manasas tu parā buddhir
+> indriyāṇi parāṇy āhur\
+> indriyebhyaḥ paraṁ manaḥ\
+> manasas tu parā buddhir\
 > yo buddheḥ paratas tu saḥ
 
 *indriyāṇi*—sentidos; *parāṇi*—superior; *āhuḥ*—se dice; *indriyebhyaḥ*—más que los sentidos; *param*—superior; *manaḥ*—la mente; *manasaḥ*—más que la mente; *tu*—también; *parā*—superior; *buddhiḥ*—inteligencia; *yaḥ*—aquel que; *buddheḥ*—más que la inteligencia; *parataḥ*—superior; *tu*—pero; *saḥ*—él.

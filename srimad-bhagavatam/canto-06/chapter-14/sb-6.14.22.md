@@ -1,11 +1,11 @@
 ### SB 6.14.22
 
-> एवं विकल्पितो राजन्विदुषा मुनिनापि सः
+> एवं विकल्पितो राजन्विदुषा मुनिनापि सः\
 > प्रश्रयावनतोऽभ्याह प्रजाकामस्ततो मुनिम ॥२२॥
 
-> evaṁ vikalpito rājan
-> viduṣā munināpi saḥ
-> praśrayāvanato 'bhyāha
+> evaṁ vikalpito rājan\
+> viduṣā munināpi saḥ\
+> praśrayāvanato 'bhyāha\
 > prajā-kāmas tato munim
 
 *evam*—thus; *vikalpitaḥ*—questioned; *rājan*—O King Parīkṣit; *viduṣā*—greatly learned; *muninā*—by the philosopher; *api*—although; *saḥ*—he (King Citraketu); *praśraya-avanataḥ*—being bent low due to humility; *abhyāha*—replied; *prajā-kāmaḥ*—desiring offspring; *tataḥ*—thereafter; *munim*—to the great sage.

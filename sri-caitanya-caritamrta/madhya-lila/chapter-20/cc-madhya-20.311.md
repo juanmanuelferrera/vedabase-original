@@ -1,9 +1,9 @@
 ### CC Madhya 20.311
 
-> ‘শিব’ — মায়াশক্তিসঙ্গী, তমোগুণাবেশ ।
+> ‘শিব’ — মায়াশক্তিসঙ্গী, তমোগুণাবেশ ।\
 > মায়াতীত, গুণাতীত ‘বিষ্ণু’ — পরমেশ ॥৩১১॥
 
-> 'śiva'—māyā-śakti-saṅgī, tamo-guṇā veśa
+> 'śiva'—māyā-śakti-saṅgī, tamo-guṇā veśa\
 > māyātīta, guṇātīta 'viṣṇu'—parameśa
 
 *śiva*—Lord Śiva; *māyā-śakti-saṅgī*—an associate of the external energy; *tamaḥ-guṇa-āveśa*—absorbed by the quality of ignorance; *māyā-atīta*—transcendental to the external energy; *guṇa-atīta*—transcendental to the qualities of matter; *viṣṇu*—Viṣṇu; *parama-īśa*—the Supreme Lord.

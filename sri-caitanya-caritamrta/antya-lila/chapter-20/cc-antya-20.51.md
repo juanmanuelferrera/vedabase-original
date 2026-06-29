@@ -1,13 +1,13 @@
 ### CC Antya 20.51
 
-> কিবা তেঁহো লম্পট, শঠ, ধৃষ্ট, সকপট,
-> অন্য নারীগণ করি’ সাথ ।
-> মোরে দিতে মনঃপীড়া, মোর আগে করে ক্রীড়া,
+> কিবা তেঁহো লম্পট, শঠ, ধৃষ্ট, সকপট,\
+> অন্য নারীগণ করি’ সাথ ।\
+> মোরে দিতে মনঃপীড়া, মোর আগে করে ক্রীড়া,\
 > তবু তেঁহো — মোর প্রাণনাথ ॥৫১॥
 
-> kibā teṅho lampaṭa, śaṭha, dhṛṣṭa, sakapaṭa,
-> anya nārī-gaṇa kari' sātha
-> more dite manaḥ-pīḍā, mora āge kare krīḍā,
+> kibā teṅho lampaṭa, śaṭha, dhṛṣṭa, sakapaṭa,\
+> anya nārī-gaṇa kari' sātha\
+> more dite manaḥ-pīḍā, mora āge kare krīḍā,\
 > tabu teṅho—mora prāṇa-nātha
 
 *kibā*—or; *teṅho*—He; *lampaṭa*—debauchee; *śaṭha*—deceitful; *dhṛṣṭa*—obstinate; *sakapaṭa*—with a cheating propensity; *anya*—other; *nārī-gaṇa*—women; *kari'*—accepting; *sātha*—as companions; *more*—unto Me; *dite*—to give; *manaḥ-pīḍā*—distress in the mind; *mora āge*—in front of Me; *kare krīḍā*—performs loving affairs; *tabu*—still; *teṅho*—He; *mora prāṇa-nātha*—the Lord of My life.

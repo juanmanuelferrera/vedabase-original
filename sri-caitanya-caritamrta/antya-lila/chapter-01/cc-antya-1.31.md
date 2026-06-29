@@ -1,9 +1,9 @@
 ### CC Antya 1.31
 
-> শিবানন্দ কুক্কুর দেখি’ দণ্ডবৎ কৈলা ।
+> শিবানন্দ কুক্কুর দেখি’ দণ্ডবৎ কৈলা ।\
 > দৈন্য করি’ নিজ অপরাধ ক্ষমাইলা ॥৩১॥
 
-> śivānanda kukkura dekhi' daṇḍavat kailā
+> śivānanda kukkura dekhi' daṇḍavat kailā\
 > dainya kari' nija aparādha kṣamāilā
 
 *śivānanda*—Śivānanda Sena; *kukkura*—the dog; *dekhi'*—seeing there; *daṇḍavat kailā*—offered obeisances; *dainya kari'*—exhibiting humbleness; *nija*—personal; *aparādha*—offenses; *kṣamāilā*—was forgiven.

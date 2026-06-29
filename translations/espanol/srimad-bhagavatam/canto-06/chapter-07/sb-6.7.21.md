@@ -1,13 +1,13 @@
 ### SB 6.7.21
 
-> श्रीब्रह्मोवाच
-> अहो बत सुरश्रेष्ठा ह्यभद्रं वः कृतं महत
+> श्रीब्रह्मोवाच\
+> अहो बत सुरश्रेष्ठा ह्यभद्रं वः कृतं महत\
 > ब्रह्मिष्ठं ब्राह्मणं दान्तमैश्वर्यान्नाभ्यनन्दत ॥२१॥
 
-> śrī-brahmovāca
-> aho bata sura-śreṣṭhā
-> hy abhadraṁ vaḥ kṛtaṁ mahat
-> brahmiṣṭhaṁ brāhmaṇaṁ dāntam
+> śrī-brahmovāca\
+> aho bata sura-śreṣṭhā\
+> hy abhadraṁ vaḥ kṛtaṁ mahat\
+> brahmiṣṭhaṁ brāhmaṇaṁ dāntam\
 > aiśvaryān nābhyanandata
 
 *śrī-brahmā uvāca*—el Señor Brahmā dijo; *aho*—¡ay!; *bata*—es muy sorprendente; *sura-śreṣṭhāḥ*—¡oh, ustedes, los mejores entre los semidioses!; *hi*—en verdad; *abhadram*—injusticia; *vaḥ*—por ustedes; *kṛtam*—hecha; *mahat*—grande; *brahmiṣṭham*—a una persona obediente por completo al Brahman Supremo; *brāhmaṇam*—a un *brāhmaṇa*; *dāntam*—que ha controlado por completo la mente y los sentidos; *aiśvaryāt*—debido a su opulencia material; *na*—no; *abhyanandata*—recibieron como es debido.

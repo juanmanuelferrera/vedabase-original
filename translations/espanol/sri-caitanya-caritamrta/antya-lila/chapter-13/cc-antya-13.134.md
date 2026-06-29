@@ -1,9 +1,9 @@
 ### CC Antya 13.134
 
-> মহাপ্রভুর দত্ত মালা মননের কালে ।
+> মহাপ্রভুর দত্ত মালা মননের কালে ।\
 > প্রসাদ-কড়ার-সহ বান্ধি লেন গলে ॥১৩৪॥
 
-> mahāprabhura datta mālā mananera kāle
+> mahāprabhura datta mālā mananera kāle\
 > prasāda-kaḍāra saha bāndhi lena gale
 
 *mahāprabhura*—por Śrī Caitanya Mahāprabhu; *datta*—dada; *mālā*—guirnalda de tulasī; *mananera*—de recordar; *kāle*—en el momento; *prasāda-kaḍāra*—los remanentes del Señor Jagannātha; *saha*—con; *bāndhi*—atando juntos; *lena*—toma; *gale*—en su cuello.

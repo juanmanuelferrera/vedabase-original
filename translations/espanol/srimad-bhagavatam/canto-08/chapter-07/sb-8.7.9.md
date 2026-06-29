@@ -1,11 +1,11 @@
 ### SB 8.7.9
 
-> विलोक्य विघ्नेशविधिं तदेश्वरो दुरन्तवीर्योऽवितथाभिसन्धिः
+> विलोक्य विघ्नेशविधिं तदेश्वरो दुरन्तवीर्योऽवितथाभिसन्धिः\
 > कृत्वा वपुः कच्छपमद्भुतं महत्प्रविश्य तोयं गिरिमुज्जहार ॥९॥
 
-> tam utthitaṁ vīkṣya kulācalaṁ punaḥ
-> samudyatā nirmathituṁ surāsurāḥ
-> dadhāra pṛṣṭhena sa lakṣa-yojana-
+> tam utthitaṁ vīkṣya kulācalaṁ punaḥ\
+> samudyatā nirmathituṁ surāsurāḥ\
+> dadhāra pṛṣṭhena sa lakṣa-yojana-\
 > prastāriṇā dvīpa ivāparo mahān
 
 *tam*—esa montaña; *utthitam*—levantada; *vīkṣya*—al observar; *kulācalam*—conocida con el nombre de Mandara; *punaḥ*—de nuevo; *samudyatāḥ*—inspirados; *nirmathitum*—a batir el océano de leche; *sura-asurāḥ*—los semidioses y los demonios; *dadhāra*—llevada; *pṛṣṭhena*—por la concha; *saḥ*—el Señor Supremo; *lakṣa-yojana*—cien mil *yojanas* (un millón trescientos mil kilómetros); *prastāriṇā*—de extensión; *dvīpaḥ*—una gran isla; *iva*—como; *aparaḥ*—otra; *mahān*—muy grande.

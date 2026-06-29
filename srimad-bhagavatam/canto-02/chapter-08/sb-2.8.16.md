@@ -1,11 +1,11 @@
 ### SB 2.8.16
 
-> प्रमाणमण्डकोशस्य बाह्याभ्यन्तरभेदतः ।
+> प्रमाणमण्डकोशस्य बाह्याभ्यन्तरभेदतः ।\
 > महतां चानुचरितं वर्णाश्रमविनिश्चयः ॥१६॥
 
-> pramāṇam aṇḍa-kośasya
-> bāhyābhyantara-bhedataḥ
-> mahatāṁ cānucaritaṁ
+> pramāṇam aṇḍa-kośasya\
+> bāhyābhyantara-bhedataḥ\
+> mahatāṁ cānucaritaṁ\
 > varṇāśrama-viniścayaḥ
 
 *pramāṇam*—extent and measurement; *aṇḍa-kośasya*—of the universe; *bāhya*—outer space; *abhyantara*—inner space; *bhedataḥ*—by division of; *mahatām*—of the great souls; *ca*—also; *anucaritam*—character and activities; *varṇa*—castes; *āśrama*—orders of life; *viniścayaḥ*—specifically describe.

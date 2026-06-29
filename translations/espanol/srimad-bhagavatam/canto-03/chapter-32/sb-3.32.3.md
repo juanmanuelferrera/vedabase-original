@@ -1,11 +1,11 @@
 ### SB 3.32.3
 
-> तच्छ्रद्धयाक्रान्तमतिः पितृदेवव्रतः पुमान् ।
+> तच्छ्रद्धयाक्रान्तमतिः पितृदेवव्रतः पुमान् ।\
 > गत्वा चान्द्रमसं लोकं सोमपाः पुनरेष्यति ॥३॥
 
-> tac-chraddhayākrānta-matiḥ
-> pitṛ-deva-vrataḥ pumān
-> gatvā cāndramasaṁ lokaṁ
+> tac-chraddhayākrānta-matiḥ\
+> pitṛ-deva-vrataḥ pumān\
+> gatvā cāndramasaṁ lokaṁ\
 > soma-pāḥ punar eṣyati
 
 *tat*—a los semidioses y antepasados; *śraddhayā*—con reverencia; *ākrānta*—dominada; *matiḥ*—su mente; *pitṛ*—a los antepasados; *deva*—a los semidioses; *vrataḥ*—su voto; *pumān*—la persona; *gatvā*—habiendo ido; *cāndramasam*—a la Luna; *lokam*—planeta; *soma-pāḥ*—beber jugo de *soma*; *punaḥ*—de nuevo; *eṣyati*—regresará.

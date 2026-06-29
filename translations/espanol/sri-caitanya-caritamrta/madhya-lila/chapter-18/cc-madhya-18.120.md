@@ -1,9 +1,9 @@
 ### CC Madhya 18.120
 
-> অলৌকিক ‘প্রকৃতি’ তোমার — বুদ্ধি-অগোচর ।
+> অলৌকিক ‘প্রকৃতি’ তোমার — বুদ্ধি-অগোচর ।\
 > তোমা দেখি’ কৃষ্ণপ্রেমে জগৎ পাগল ॥১২০॥
 
-> alaukika 'prakṛti' tomāra--buddhi-agocara
+> alaukika 'prakṛti' tomāra--buddhi-agocara\
 > tomā dekhi' kṛṣṇa-preme jagat pāgala
 
 *alaukika*—extraordinarias; *prakṛti*—características; *tomāra*—Tuyas; *buddhi-agocara*—más allá de nuestra imaginación; *tomā dekhi'*—al verte; *kṛṣṇa-preme*—en amor extático por Kṛṣṇa; *jagat*—el mundo entero; *pāgala*—enloquecido.

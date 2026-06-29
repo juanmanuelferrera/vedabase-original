@@ -1,13 +1,13 @@
 ### CC Antya 4.63
 
-> যস্যাঙ্ঘ্রিপঙ্কজরজঃস্নপনং মহান্তো
-> বাঞ্ছন্ত্যুমাপতিরিবাত্মতমোঽপহত্যৈ ।
-> যর্হ্যম্বুজাক্ষ ন লভেয় ভবৎপ্রসাদং
+> যস্যাঙ্ঘ্রিপঙ্কজরজঃস্নপনং মহান্তো\
+> বাঞ্ছন্ত্যুমাপতিরিবাত্মতমোঽপহত্যৈ ।\
+> যর্হ্যম্বুজাক্ষ ন লভেয় ভবৎপ্রসাদং\
 > জহ্যামসূন্ ব্রতকৃশাঞ্ছতজন্মভিঃ স্যাৎ ॥৬৩॥
 
-> yasyāṅghri-paṅkaja-rajaḥ-snapanaṁ mahānto
-> vāñchanty umā-patir ivātma-tamo 'pahatyai
-> yarhy ambujākṣa na labheya bhavat-prasādaṁ
+> yasyāṅghri-paṅkaja-rajaḥ-snapanaṁ mahānto\
+> vāñchanty umā-patir ivātma-tamo 'pahatyai\
+> yarhy ambujākṣa na labheya bhavat-prasādaṁ\
 > jahyām asūn vrata-kṛśāñ chata-janmabhiḥ syāt
 
 *yasya*—cuyos; *aṅghri*—de los pies; *paṅka-ja*—loto; *rajaḥ*—en el polvo; *snapanam*—bañarse; *mahāntaḥ*—grandes personalidades; *vāñchanti*—desean; *umāpatiḥ*—el Señor Śiva; *iva*—como; *ātma*—personal; *tamaḥ*—ignorancia; *apahatyai*—para disipar; *yarhi*—cuando; *ambuja-akṣa*—¡oh, Tú de ojos de loto!; *na labheya*—no obtengo; *bhavat-prasādam*—Tu misericordia; *jahyām*—abandonaré; *asūn*—la vida; *vrata-kṛśān*—reducida mediante la observación de votos; *śata-janmabhiḥ*—por cientos de nacimientos; *syāt*—si es posible.

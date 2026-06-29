@@ -1,19 +1,19 @@
 ### SB 9.18.20-21
 
-> तं वीरमाहौशनसी प्रेमनिर्भरया गिरा
-> राजंस्त्वया गृहीतो मे पाणिः परपुरञ्जय ॥२०॥
-> हस्तग्राहोऽपरो मा भूद्गृहीतायास्त्वया हि मे
-> एष ईशकृतो वीर सम्बन्धो नौ न पौरुषः
+> तं वीरमाहौशनसी प्रेमनिर्भरया गिरा\
+> राजंस्त्वया गृहीतो मे पाणिः परपुरञ्जय ॥२०॥\
+> हस्तग्राहोऽपरो मा भूद्गृहीतायास्त्वया हि मे\
+> एष ईशकृतो वीर सम्बन्धो नौ न पौरुषः\
 > यदिदं कूपमग्नाया भवतो दर्शनं मम ॥२१॥
 
-> taṁ vīram āhauśanasī
-> prema-nirbharayā girā
-> rājaṁs tvayā gṛhīto me
+> taṁ vīram āhauśanasī\
+> prema-nirbharayā girā\
+> rājaṁs tvayā gṛhīto me\
 > pāṇiḥ para-purañjaya
 
-> hasta-grāho 'paro mā bhūd
-> gṛhītāyās tvayā hi me
-> eṣa īśa-kṛto vīra
+> hasta-grāho 'paro mā bhūd\
+> gṛhītāyās tvayā hi me\
+> eṣa īśa-kṛto vīra\
 > sambandho nau na pauruṣaḥ
 
 *tam*—a él; *vīram*—a Yayāti; *āha*—dijo; *auśanasī*—la hija de Uśanā Kavi, Śukrācārya; *prema-nirbharayā*—saturadas de amor y amabilidad; *girā*—con esas palabras; *rājan*—¡oh, rey!; *tvayā*—por ti; *gṛhītaḥ*—aceptada; *me*—mi; *pāṇiḥ*—mano; *para-purañjaya*—el conquistador de los reinos de otros; *hasta-grāhaḥ*—el que aceptó mi mano; *aparaḥ*—otro; *mā*—que no; *bhūt*—sea; *gṛhītāyāḥ*—aceptada; *tvayā*—por ti; *hi*—en verdad; *me*—de mí; *eṣaḥ*—esto; *īśa-kṛtaḥ*—dispuesto por la providencia; *vīra*—¡oh, gran héroe!; *sambandhaḥ*—relación; *nau*—nuestra; *na*—no; *pauruṣaḥ*—nada hecho por los hombres.

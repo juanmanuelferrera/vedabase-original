@@ -1,13 +1,13 @@
 ### CC Madhya 21.121
 
-> শ্রী, লজ্জা, দয়া, কীর্তি, ধৈর্য, বৈশারদী মতি,
-> এই সব কৃষ্ণে প্রতিষ্ঠিত ।
-> সুশীল, মৃদু, বদান্য, কৃষ্ণ-সম নাহি অন্য,
+> শ্রী, লজ্জা, দয়া, কীর্তি, ধৈর্য, বৈশারদী মতি,\
+> এই সব কৃষ্ণে প্রতিষ্ঠিত ।\
+> সুশীল, মৃদু, বদান্য, কৃষ্ণ-সম নাহি অন্য,\
 > কৃষ্ণ করে জগতের হিত ॥১২১॥
 
-> śrī, lajjā, dayā, kīrti, dhairya, vaiśāradī mati,
-> ei saba kṛṣṇe pratiṣṭhita
-> suśīla, mṛdu, vadānya, kṛṣṇa-sama nāhi anya,
+> śrī, lajjā, dayā, kīrti, dhairya, vaiśāradī mati,\
+> ei saba kṛṣṇe pratiṣṭhita\
+> suśīla, mṛdu, vadānya, kṛṣṇa-sama nāhi anya,\
 > kṛṣṇa kare jagatera hita
 
 *śrī*—beauty; *lajjā*—humility; *dayā*—mercy; *kīrti*—merit; *dhairya*—patience; *vaiśāradī*—very expert; *mati*—intelligence; *ei saba*—all these; *kṛṣṇe*—in Lord Kṛṣṇa; *pratiṣṭhita*—situated; *su-śīla*—well behaved; *mṛdu*—mild; *vadānya*—magnanimous; *kṛṣṇa-sama*—like Kṛṣṇa; *nāhi*—there is no one; *anya*—else; *kṛṣṇa*—Lord Kṛṣṇa; *kare*—does; *jagatera*—of the world; *hita*—welfare.

@@ -1,9 +1,9 @@
 ### CC Antya 6.291
 
-> গোবর্ধন-শিলা প্রভু হৃদয়ে-নেত্রে ধরে ।
+> গোবর্ধন-শিলা প্রভু হৃদয়ে-নেত্রে ধরে ।\
 > কভু নাসায় ঘ্রাণ লয়, কভু শিরে করে ॥২৯১॥
 
-> govardhana-śilā prabhu hṛdaye-netre dhare
+> govardhana-śilā prabhu hṛdaye-netre dhare\
 > kabhu nāsāya ghrāṇa laya, kabhu śire kare
 
 *govardhana-śilā*—la piedra de la Colina Govardhana; *prabhu*—Śrī Caitanya Mahāprabhu; *hṛdaye*—en el corazón; *netre*—en los ojos; *dhare*—coloca; *kabhu*—a veces; *nāsāya*—con la nariz; *ghrāṇa laya*—huele; *kabhu*—a veces; *śire kare*—la coloca en Su cabeza.

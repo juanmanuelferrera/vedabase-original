@@ -1,9 +1,9 @@
 ### CC Madhya 23.3
 
-> এবে শুন ভক্তিফল ‘প্রেম’-প্রয়োজন ।
+> এবে শুন ভক্তিফল ‘প্রেম’-প্রয়োজন ।\
 > যাহার শ্রবণে হয় ভক্তিরস-জ্ঞান ॥৩॥
 
-> ebe śuna bhakti-phala 'prema'-prayojana
+> ebe śuna bhakti-phala 'prema'-prayojana\
 > yāhāra śravaṇe haya bhakti-rasa-jñāna
 
 *ebe śuna*—ahora escucha; *bhakti-phala*—el resultado de la práctica del servicio devocional; *prema*—amor por Dios; *prayojana*—la meta suprema de la vida; *yāhāra śravaṇe*—al escuchar lo cual; *haya*—hay; *bhakti-rasa-jñāna*—conocimiento trascendental de los rasas del servicio devocional.

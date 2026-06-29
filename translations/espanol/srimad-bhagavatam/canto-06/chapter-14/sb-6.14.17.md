@@ -1,13 +1,13 @@
 ### SB 6.14.17
 
-> अङ्गिरा उवाच
-> अपि तेऽनामयं स्वस्ति प्रकृतीनां तथात्मनः
+> अङ्गिरा उवाच\
+> अपि तेऽनामयं स्वस्ति प्रकृतीनां तथात्मनः\
 > यथा प्रकृतिभिर्गुप्तः पुमान्राजा च सप्तभिः ॥१७॥
 
-> aṅgirā uvāca
-> api te 'nāmayaṁ svasti
-> prakṛtīnāṁ tathātmanaḥ
-> yathā prakṛtibhir guptaḥ
+> aṅgirā uvāca\
+> api te 'nāmayaṁ svasti\
+> prakṛtīnāṁ tathātmanaḥ\
+> yathā prakṛtibhir guptaḥ\
 > pumān rājā ca saptabhiḥ
 
 *aṅgirāḥ uvāca*—el gran sabio Aṅgirā dijo; *api*—si; *te*—de ti; *anāmayam*—salud; *svasti*—prosperidad; *prakṛtīnām*—de los elementos de tu realeza (séquito y atributos); *tathā*—así como; *ātmanaḥ*—de tu cuerpo, tu mente y tu alma; *yathā*—como; *prakṛtibhiḥ*—por los elementos de la naturaleza material; *guptaḥ*—protegida; *pumān*—la entidad viviente; *rājā*—el rey; *ca*—también; *saptabhiḥ*—por siete.

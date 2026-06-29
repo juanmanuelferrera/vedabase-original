@@ -1,11 +1,11 @@
 ### SB 5.18.4
 
-> वदन्ति विश्वं कवयः स्म नश्वरं पश्यन्ति चाध्यात्मविदो विपश्चितः
+> वदन्ति विश्वं कवयः स्म नश्वरं पश्यन्ति चाध्यात्मविदो विपश्चितः\
 > तथापि मुह्यन्ति तवाज मायया सुविस्मितं कृत्यमजं नतोऽस्मि तम ॥४॥
 
-> vadanti viśvaṁ kavayaḥ sma naśvaraṁ
-> paśyanti cādhyātmavido vipaścitaḥ
-> tathāpi muhyanti tavāja māyayā
+> vadanti viśvaṁ kavayaḥ sma naśvaraṁ\
+> paśyanti cādhyātmavido vipaścitaḥ\
+> tathāpi muhyanti tavāja māyayā\
 > suvismitaṁ kṛtyam ajaṁ nato 'smi tam
 
 *vadanti*—they say authoritatively; *viśvam*—the entire material creation; *kavayaḥ*—great learned sages; *sma*—certainly; *naśvaram*—perishable; *paśyanti*—they see in trance; *ca*—also; *adhyātma-vidaḥ*—who have realized spiritual knowledge; *vipaścitaḥ*—very learned scholars; *tathā api*—still; *muhyanti*—become illusioned; *tava*—your; *aja*—O unborn one; *māyayā*—by the illusory energy; *su-vismitam*—most wonderful; *kṛtyam*—activity; *ajam*—unto the supreme unborn one; *nataḥ asmi*—I offer my obeisances; *tam*—unto Him.

@@ -1,11 +1,11 @@
 ### SB 1.5.40
 
-> त्वमप्यदभ्रश्रुत विश्रुतं विभोः समाप्यते येन विदां बुभुत्सितम् ।
+> त्वमप्यदभ्रश्रुत विश्रुतं विभोः समाप्यते येन विदां बुभुत्सितम् ।\
 > प्राख्याहि दुःखैर्मुहुरर्दितात्मनां सङ्क्लेशनिर्वाणमुशन्ति नान्यथा ॥४०॥
 
-> tvam apy adabhra-śruta viśrutaṁ vibhoḥ
-> samāpyate yena vidāṁ bubhutsitam
-> prākhyāhi duḥkhair muhur arditātmanāṁ
+> tvam apy adabhra-śruta viśrutaṁ vibhoḥ\
+> samāpyate yena vidāṁ bubhutsitam\
+> prākhyāhi duḥkhair muhur arditātmanāṁ\
 > saṅkleśa-nirvāṇam uśanti nānyathā
 
 *tvam*—tú, buen alma; *api*—también; *adabhra*—vasto; *śruta*—Escrituras védicas; *viśrutam*—has oído también; *vibhoḥ*—del Todopoderoso; *samāpyate*—satisfecho; *yena*—por el cual; *vidām*—de los eruditos; *bubhutsitam*—que siempre desean adquirir conocimiento trascendental; *prākhyāhi*—describe; *duḥkhaiḥ*—por los sufrimientos; *muhuḥ*—siempre; *ardita-ātmanām*—las masas de gente que sufre; *saṅkleśa*—sufrimientos; *nirvāṇam*—mitigación; *uśanti na*—no se escapan de; *anyathā*—por otros medios.

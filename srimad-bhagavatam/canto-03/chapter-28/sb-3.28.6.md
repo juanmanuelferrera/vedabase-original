@@ -1,11 +1,11 @@
 ### SB 3.28.6
 
-> स्वधिष्ण्यानामेकदेशे मनसा प्राणधारणम् ।
+> स्वधिष्ण्यानामेकदेशे मनसा प्राणधारणम् ।\
 > वैकुण्ठलीलाभिध्यानं समाधानं तथात्मनः ॥६॥
 
-> sva-dhiṣṇyānām eka-deśe
-> manasā prāṇa-dhāraṇam
-> vaikuṇṭha-līlābhidhyānaṁ
+> sva-dhiṣṇyānām eka-deśe\
+> manasā prāṇa-dhāraṇam\
+> vaikuṇṭha-līlābhidhyānaṁ\
 > samādhānaṁ tathātmanaḥ
 
 *sva-dhiṣṇyānām*—within the vital air circles; *eka-deśe*—in one spot; *manasā*—with the mind; *prāṇa*—the vital air; *dhāraṇam*—fixing; *vaikuṇṭha-līlā*—on the pastimes of the Supreme Personality of Godhead; *abhidhyānam*—concentration; *samādhānam*—*samādhi*; *tathā*—thus; *ātmanaḥ*—of the mind.

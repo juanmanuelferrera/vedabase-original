@@ -1,9 +1,9 @@
 ### CC Adi 11.32
 
-> মহেশ পণ্ডিত — ব্রজের উদার গোপাল ।
+> মহেশ পণ্ডিত — ব্রজের উদার গোপাল ।\
 > ঢক্কাবাদ্যে নৃত্য করে প্রেমে মাতোয়াল ॥৩২॥
 
-> maheśa paṇḍita—vrajera udāra gopāla
+> maheśa paṇḍita—vrajera udāra gopāla\
 > ḍhakkā-vādye nṛtya kare preme mātoyāla
 
 *maheśa paṇḍita*—of the name Maheśa Paṇḍita; *vrajera*—of Vṛndāvana; *udāra*—very liberal; *gopāla*—cowherd boy; *ḍhakkā-vādye*—with the beating of a kettledrum; *nṛtya kare*—used to dance; *preme*—in love; *mātoyāla*—as if a madman.

@@ -1,11 +1,11 @@
 ### SB 4.10.6
 
-> दध्मौ शङ्खं बृहद्बाहुः खं दिशश्चानुनादयन् ।
+> दध्मौ शङ्खं बृहद्बाहुः खं दिशश्चानुनादयन् ।\
 > येनोद्विग्नदृशः क्षत्तरुपदेव्योऽत्रसन्भृशम् ॥६॥
 
-> dadhmau śaṅkhaṁ bṛhad-bāhuḥ
-> khaṁ diśaś cānunādayan
-> yenodvigna-dṛśaḥ kṣattar
+> dadhmau śaṅkhaṁ bṛhad-bāhuḥ\
+> khaṁ diśaś cānunādayan\
+> yenodvigna-dṛśaḥ kṣattar\
 > upadevyo 'trasan bhṛśam
 
 *dadhmau*—blew; *śaṅkham*—conchshell; *bṛhat-bāhuḥ*—the mighty-armed; *kham*—the sky; *diśaḥ ca*—and all directions; *anunādayan*—causing to resound; *yena*—by which; *udvigna-dṛśaḥ*—appeared very anxious; *kṣattaḥ*—my dear Vidura; *upadevyaḥ*—the wives of the Yakṣas; *atrasan*—became frightened; *bhṛśam*—greatly.

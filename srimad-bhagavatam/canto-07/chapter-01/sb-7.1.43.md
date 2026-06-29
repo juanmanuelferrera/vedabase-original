@@ -1,11 +1,11 @@
 ### SB 7.1.43
 
-> ततस्तौ राक्षसौ जातौ केशिन्यां विश्रवःसुतौ
+> ततस्तौ राक्षसौ जातौ केशिन्यां विश्रवःसुतौ\
 > रावणः कुम्भकर्णश्च सर्वलोकोपतापनौ ॥४३॥
 
-> taṁ sarva-bhūtātma-bhūtaṁ
-> praśāntaṁ sama-darśanam
-> bhagavat-tejasā spṛṣṭaṁ
+> taṁ sarva-bhūtātma-bhūtaṁ\
+> praśāntaṁ sama-darśanam\
+> bhagavat-tejasā spṛṣṭaṁ\
 > nāśaknod dhantum udyamaiḥ
 
 *tam*—Him; *sarva-bhūta-ātma-bhūtam*—the soul in all entities; *praśāntam*—peaceful and without hatred, etc.; *sama-darśanam*—equal to everyone; *bhagavat-tejasā*—with the power of the Supreme Personality of Godhead; *spṛṣṭam*—protected; *na*—not; *aśaknot*—was able; *hantum*—to kill; *udyamaiḥ*—by great attempts and various weapons.

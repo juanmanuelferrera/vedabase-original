@@ -1,11 +1,11 @@
 ### SB 3.13.11
 
-> स त्वमस्यामपत्यानि सदृशान्यात्मनो गुणैः ।
+> स त्वमस्यामपत्यानि सदृशान्यात्मनो गुणैः ।\
 > उत्पाद्य शास धर्मेण गां यज्ञैः पुरुषं यज ॥११॥
 
-> sa tvam asyām apatyāni
-> sadṛśāny ātmano guṇaiḥ
-> utpādya śāsa dharmeṇa
+> sa tvam asyām apatyāni\
+> sadṛśāny ātmano guṇaiḥ\
+> utpādya śāsa dharmeṇa\
 > gāṁ yajñaiḥ puruṣaṁ yaja
 
 *saḥ*—therefore that obedient son; *tvam*—as you are; *asyām*—in her; *apatyāni*—children; *sadṛśāni*—equally qualified; *ātmanaḥ*—of yourself; *guṇaiḥ*—with the characteristics; *utpādya*—having begotten; *śāsa*—rule; *dharmeṇa*—on the principles of devotional service; *gām*—the world; *yajñaiḥ*—by sacrifices; *puruṣam*—the Supreme Personality of Godhead; *yaja*—worship.

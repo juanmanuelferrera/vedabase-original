@@ -1,13 +1,13 @@
 ### SB 3.14.38
 
-> कश्यप उवाच
-> अप्रायत्यादात्मनस्ते दोषान्मौहूर्तिकादुत ।
+> कश्यप उवाच\
+> अप्रायत्यादात्मनस्ते दोषान्मौहूर्तिकादुत ।\
 > मन्निदेशातिचारेण देवानां चातिहेलनात् ॥३८॥
 
-> kaśyapa uvāca
-> aprāyatyād ātmanas te
-> doṣān mauhūrtikād uta
-> man-nideśāticāreṇa
+> kaśyapa uvāca\
+> aprāyatyād ātmanas te\
+> doṣān mauhūrtikād uta\
+> man-nideśāticāreṇa\
 > devānāṁ cātihelanāt
 
 *kaśyapaḥ uvāca*—the learned *brāhmaṇa* Kaśyapa said; *aprāyatyāt*—because of the pollution; *ātmanaḥ*—of the mind; *te*—your; *doṣāt*—because of defilement; *mauhūrtikāt*—in terms of the moment; *uta*—also; *mat*—my; *nideśa*—direction; *aticāreṇa*—being too neglectful; *devānām*—of the demigods; *ca*—also; *atihelanāt*—being too apathetic.

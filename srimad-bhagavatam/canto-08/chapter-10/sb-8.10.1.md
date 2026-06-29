@@ -1,13 +1,13 @@
 ### SB 8.10.1
 
-> श्रीशुक उवाच
-> इति दानवदैतेया नाविन्दन्नमृतं नृप
+> श्रीशुक उवाच\
+> इति दानवदैतेया नाविन्दन्नमृतं नृप\
 > युक्ताः कर्मणि यत्ताश्च वासुदेवपराङ्मुखाः ॥१॥
 
-> śrī-śuka uvāca
-> iti dānava-daiteyā
-> nāvindann amṛtaṁ nṛpa
-> yuktāḥ karmaṇi yattāś ca
+> śrī-śuka uvāca\
+> iti dānava-daiteyā\
+> nāvindann amṛtaṁ nṛpa\
+> yuktāḥ karmaṇi yattāś ca\
 > vāsudeva-parāṅmukhāḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *iti*—thus; *dānava-daiteyāḥ*—the *asuras* and the demons; *na*—not; *avindan*—achieved (the desired result); *amṛtam*—nectar; *nṛpa*—O King; *yuktāḥ*—all being combined; *karmaṇi*—in the churning; *yattāḥ*—engaged with full attention and effort; *ca*—and; *vāsudeva*—of the Supreme Personality of Godhead, Kṛṣṇa; *parāṅmukhāḥ*—because of being nondevotees.

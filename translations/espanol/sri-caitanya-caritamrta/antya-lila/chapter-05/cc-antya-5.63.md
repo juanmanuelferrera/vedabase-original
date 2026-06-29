@@ -1,9 +1,9 @@
 ### CC Antya 5.63
 
-> তবে রামানন্দ ক্রমে কহিতে লাগিলা ।
+> তবে রামানন্দ ক্রমে কহিতে লাগিলা ।\
 > কৃষ্ণকথা-রসামৃত-সিন্ধু উথলিলা ॥৬৩॥
 
-> tabe rāmānanda krame kahite lāgilā
+> tabe rāmānanda krame kahite lāgilā\
 > kṛṣṇa-kathā-rasāmṛta-sindhu uthalilā
 
 *tabe*—entonces; *rāmānanda*—Rāmānanda Rāya; *krame*—gradualmente; *kahite lāgilā*—comenzó a hablar; *kṛṣṇa-kathā*—de los temas de Kṛṣṇa; *rasāmṛta-sindhu*—el océano de melosidad trascendental; *uthalilā*—se agitó.

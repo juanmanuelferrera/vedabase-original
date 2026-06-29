@@ -1,9 +1,9 @@
 ### CC Adi 10.105
 
-> শ্রীগোপাল ভট্ট এক শাখা সর্বোত্তম ।
+> শ্রীগোপাল ভট্ট এক শাখা সর্বোত্তম ।\
 > রূপ-সনাতন-সঙ্গে যাঁর প্রেম-আলাপন ॥১০৫॥
 
-> śrī-gopāla bhaṭṭa eka śākhā sarvottama
+> śrī-gopāla bhaṭṭa eka śākhā sarvottama\
 > rūpa-sanātana-saṅge yāṅra prema-ālāpana
 
 *śrī-gopāla bhaṭṭa*—de nombre Śrī Gopāla Bhaṭṭa; *eka*—una; *śākhā*—rama; *sarva-uttama*—muy exaltada; *rūpa*—de nombre Rūpa; *sanātana*—de nombre Sanātana; *saṅge*—en compañía; *yāṅra*—cuyo; *prema*—amor por Dios; *ālāpana*—discurso.

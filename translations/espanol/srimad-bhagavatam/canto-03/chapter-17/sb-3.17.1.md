@@ -1,13 +1,13 @@
 ### SB 3.17.1
 
-> मैत्रेय उवाच
-> निशम्यात्मभुवा गीतं कारणं शङ्कयोज्झिताः ।
+> मैत्रेय उवाच\
+> निशम्यात्मभुवा गीतं कारणं शङ्कयोज्झिताः ।\
 > ततः सर्वे न्यवर्तन्त त्रिदिवाय दिवौकसः ॥१॥
 
-> maitreya uvāca
-> niśamyātma-bhuvā gītaṁ
-> kāraṇaṁ śaṅkayojjhitāḥ
-> tataḥ sarve nyavartanta
+> maitreya uvāca\
+> niśamyātma-bhuvā gītaṁ\
+> kāraṇaṁ śaṅkayojjhitāḥ\
+> tataḥ sarve nyavartanta\
 > tridivāya divaukasaḥ
 
 *maitreyaḥ*—el sabio Maitreya; *uvāca*—dijo; *niśamya*—al oír; *ātma-bhuvā*—por Brahmā; *gītam*—explicación; *kāraṇam*—la causa; *śaṅkayā*—de temor; *ujjhitāḥ*—liberados; *tataḥ*—entonces; *sarve*—todos; *nyavartanta*—regresaron; *tri-divāya*—a los planetas celestiales; *diva-okasaḥ*—los semidioses (que habitan los planetas superiores).

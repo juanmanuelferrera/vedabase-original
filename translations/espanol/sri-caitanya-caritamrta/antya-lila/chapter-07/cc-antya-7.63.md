@@ -1,9 +1,9 @@
 ### CC Antya 7.63
 
-> তবে ভট্ট বহু মহাপ্রসাদ আনাইল ।
+> তবে ভট্ট বহু মহাপ্রসাদ আনাইল ।\
 > গণ-সহ মহাপ্রভুরে ভোজন করাইল ॥৬৩॥
 
-> tabe bhaṭṭa bahu mahā-prasāda ānāila
+> tabe bhaṭṭa bahu mahā-prasāda ānāila\
 > gaṇa-saha mahāprabhure bhojana karāila
 
 *tabe*—en ese momento; *bhaṭṭa*—Vallabha Bhaṭṭa; *bahu*—mucho; *mahā-prasāda*—los remanentes del Señor Jagannātha; *ānāila*—trajo; *gaṇa-saha mahāprabhure*—a Śrī Caitanya Mahāprabhu con Sus asociados; *bhojana karāila*—les dio de comer.

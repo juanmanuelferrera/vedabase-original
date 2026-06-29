@@ -1,11 +1,11 @@
 ### SB 3.21.40
 
-> पुण्यद्रुमलताजालैः कूजत्पुण्यमृगद्विजैः ।
+> पुण्यद्रुमलताजालैः कूजत्पुण्यमृगद्विजैः ।\
 > सर्वर्तुफलपुष्पाढ्यं वनराजिश्रियान्वितम् ॥४०॥
 
-> puṇya-druma-latā-jālaiḥ
-> kūjat-puṇya-mṛga-dvijaiḥ
-> sarvartu-phala-puṣpāḍhyaṁ
+> puṇya-druma-latā-jālaiḥ\
+> kūjat-puṇya-mṛga-dvijaiḥ\
+> sarvartu-phala-puṣpāḍhyaṁ\
 > vana-rāji-śriyānvitam
 
 *puṇya*—pious; *druma*—of trees; *latā*—of creepers; *jālaiḥ*—with clusters; *kūjat*—uttering cries; *puṇya*—pious; *mṛga*—animals; *dvijaiḥ*—with birds; *sarva*—in all; *ṛtu*—seasons; *phala*—in fruits; *puṣpa*—in flowers; *āḍhyam*—rich; *vana-rāji*—of groves of trees; *śriyā*—by the beauty; *anvitam*—adorned.

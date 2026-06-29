@@ -1,9 +1,9 @@
 ### CC Madhya 14.56
 
-> ভক্তগণ কাছি হাতে করি’ মাত্র ধায় ।
+> ভক্তগণ কাছি হাতে করি’ মাত্র ধায় ।\
 > আপনে চলিল রথ, টানিতে না পায় ॥৫৬॥
 
-> bhakta-gaṇa kāchi hāte kari' mātra dhāya
+> bhakta-gaṇa kāchi hāte kari' mātra dhāya\
 > āpane calila ratha, ṭānite nā pāya
 
 *bhakta-gaṇa*—all the devotees; *kāchi*—the rope; *hāte*—in the hand; *kari'*—taking; *mātra*—only; *dhāya*—run; *āpane*—automatically; *calila*—moved; *ratha*—the car; *ṭānite*—to pull; *nā pāya*—they had no chance.

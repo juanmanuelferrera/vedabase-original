@@ -1,18 +1,18 @@
 ### SB 6.13.8-9
 
-> ब्रह्महा पितृहा गोघ्नो मातृहाचार्यहाघवान
-> श्वादः पुल्कसको वापि शुद्ध्येरन्यस्य कीर्तनात ॥८॥
-> तमश्वमेधेन महामखेन श्रद्धान्वितोऽस्माभिरनुष्ठितेन
+> ब्रह्महा पितृहा गोघ्नो मातृहाचार्यहाघवान\
+> श्वादः पुल्कसको वापि शुद्ध्येरन्यस्य कीर्तनात ॥८॥\
+> तमश्वमेधेन महामखेन श्रद्धान्वितोऽस्माभिरनुष्ठितेन\
 > हत्वापि सब्रह्मचराचरं त्वं न लिप्यसे किं खलनिग्रहेण ॥९॥
 
-> brahma-hā pitṛ-hā go-ghno
-> mātṛ-hācārya-hāghavān
-> śvādaḥ pulkasako vāpi
+> brahma-hā pitṛ-hā go-ghno\
+> mātṛ-hācārya-hāghavān\
+> śvādaḥ pulkasako vāpi\
 > śuddhyeran yasya kīrtanāt
 
-> tam aśvamedhena mahā-makhena
-> śraddhānvito 'smābhir anuṣṭhitena
-> hatvāpi sabrahma-carācaraṁ tvaṁ
+> tam aśvamedhena mahā-makhena\
+> śraddhānvito 'smābhir anuṣṭhitena\
+> hatvāpi sabrahma-carācaraṁ tvaṁ\
 > na lipyase kiṁ khala-nigraheṇa
 
 *brahma-hā*—la persona que ha matado a un *brāhmaṇa*; *pitṛ-hā*—la persona que ha matado a su padre; *go-ghnaḥ*—la persona que ha matado una vaca; *mātṛ-hā*—la persona que ha matado a su madre; *ācārya-hā*—la persona que ha matado a su maestro espiritual; *agha-vān*—esa persona pecaminosa; *śva-adaḥ*—el que come perros; *pulkasakaḥ*—el *caṇḍāla*, que es menos que un *śūdra*; *vā*—o; *api*—incluso; *śuddhyeran*—puede purificarse; *yasya*—de quien (del Señor Nārāyaṇa); *kīrtanāt*—del canto del santo nombre; *tam*—a Él; *aśvamedhena*—mediante el sacrificio *aśvamedha*; *mahā-makhena*—el más elevado de los sacrificios; *śraddhā-anvitaḥ*—dotado de fe; *asmābhiḥ*—por nosotros; *anuṣṭhitena*—conducido o dirigido; *hatvā*—matar; *api*—incluso; *sa-brahma-cara-acaram*—a todas las entidades vivientes, y entre ellas a los *brāhmaṇas*; *tvam*—tú; *na*—no; *lipyase*—estás contaminado; *kim*—qué entonces; *khala-nigraheṇa*—por matar a un demonio que es causa de perturbación.

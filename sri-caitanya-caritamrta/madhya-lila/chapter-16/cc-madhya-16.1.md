@@ -1,11 +1,11 @@
 ### CC Madhya 16.1
 
-> গৌড়োদ্যানং গৌরমেঘঃ সিঞ্চন্ স্বালোকনামৃতৈঃ ।
+> গৌড়োদ্যানং গৌরমেঘঃ সিঞ্চন্ স্বালোকনামৃতৈঃ ।\
 > ভবাগ্নিদগ্ধজনতা-বীরুধঃ সমজীবয়ৎ ॥১॥
 
-> gauḍodyānaṁ gaura-meghaḥ
-> siñcan svālokanāmṛtaiḥ
-> bhavāgni-dagdha-janatā-
+> gauḍodyānaṁ gaura-meghaḥ\
+> siñcan svālokanāmṛtaiḥ\
+> bhavāgni-dagdha-janatā-\
 > vīrudhaḥ samajīvayat
 
 *gauḍa-udyānam*—upon the garden known as Gauḍa-deśa; *gaura-meghaḥ*—the cloud known as Gaura; *siñcan*—pouring water; *sva*—His own; *ālokana-amṛtaiḥ*—with the nectar of the glance; *bhava-agni*—by the blazing fire of material existence; *dagdha*—having been burnt; *janatā*—the people in general; *vīrudhaḥ*—who are like creepers and plants; *samajīvayat*—revived.

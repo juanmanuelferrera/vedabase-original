@@ -1,9 +1,9 @@
 ### CC Adi 16.21
 
-> প্রভুর বিরহ-সর্প লক্ষ্মীরে দংশিল ।
+> প্রভুর বিরহ-সর্প লক্ষ্মীরে দংশিল ।\
 > বিরহ-সর্প-বিষে তাঁর পরলোক হৈল ॥২১॥
 
-> prabhura viraha-sarpa lakṣmīre daṁśila
+> prabhura viraha-sarpa lakṣmīre daṁśila\
 > viraha-sarpa-viṣe tāṅra paraloka haila
 
 *prabhura*—of the Lord; *viraha-sarpa*—the separation snake; *lakṣmīre*—Lakṣmīdevī; *daṁśila*—bit; *viraha-sarpa*—of the separation snake; *viṣe*—by the poison; *tāṅra*—her; *para-loka*—next world; *haila*—it so happened.

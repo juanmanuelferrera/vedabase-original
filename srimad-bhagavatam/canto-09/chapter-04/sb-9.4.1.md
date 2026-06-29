@@ -1,13 +1,13 @@
 ### SB 9.4.1
 
-> श्रीशुक उवाच
-> नाभागो नभगापत्यं यं ततं भ्रातरः कविम
+> श्रीशुक उवाच\
+> नाभागो नभगापत्यं यं ततं भ्रातरः कविम\
 > यविष्ठं व्यभजन्दायं ब्रह्मचारिणमागतम ॥१॥
 
-> śrī-śuka uvāca
-> nābhāgo nabhagāpatyaṁ
-> yaṁ tataṁ bhrātaraḥ kavim
-> yaviṣṭhaṁ vyabhajan dāyaṁ
+> śrī-śuka uvāca\
+> nābhāgo nabhagāpatyaṁ\
+> yaṁ tataṁ bhrātaraḥ kavim\
+> yaviṣṭhaṁ vyabhajan dāyaṁ\
 > brahmacāriṇam āgatam
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *nābhāgaḥ*—Nābhāga; *nabhaga-apatyam*—was the son of Mahārāja Nabhaga; *yam*—unto whom; *tatam*—the father; *bhrātaraḥ*—the elder brothers; *kavim*—the learned; *yaviṣṭham*—the youngest; *vyabhajan*—divided; *dāyam*—the property; *brahmacāriṇam*—having accepted the life of a *brahmacārī* perpetually (*naiṣṭhika*); *āgatam*—returned.

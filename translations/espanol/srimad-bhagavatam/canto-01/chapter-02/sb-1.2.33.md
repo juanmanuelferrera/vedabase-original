@@ -1,11 +1,11 @@
 ### SB 1.2.33
 
-> असौ गुणमयैर्भावैर्भूतसूक्ष्मेन्द्रियात्मभिः ।
+> असौ गुणमयैर्भावैर्भूतसूक्ष्मेन्द्रियात्मभिः ।\
 > स्वनिर्मितेषु निर्विष्टो भुङ्क्ते भूतेषु तद्गुणान् ॥३३॥
 
-> asau guṇamayair bhāvair
-> bhūta-sūkṣmendriyātmabhiḥ
-> sva-nirmiteṣu nirviṣṭo
+> asau guṇamayair bhāvair\
+> bhūta-sūkṣmendriyātmabhiḥ\
+> sva-nirmiteṣu nirviṣṭo\
 > bhuṅkte bhūteṣu tad-guṇān
 
 *asau*—ese Paramātmā; *guṇa-mayaiḥ*—influenciado por las modalidades de la naturaleza; *bhāvaiḥ*—naturalmente; *bhūta*—creado; *sūkṣma*—sutil; *indriya*—sentidos; *ātmabhiḥ*—por los seres vivientes; *sva-nirmiteṣu*—en Su propia creación; *nirviṣṭaḥ*—entrado; *bhuṅkte*—hace disfrutar; *bhūteṣu*—en las entidades vivientes; *tat-guṇān*—esas modalidades de la naturaleza.

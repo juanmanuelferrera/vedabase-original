@@ -1,9 +1,9 @@
 ### CC Antya 7.116
 
-> এত কহি’ মহাপ্রভু মৌন ধরিলা ।
+> এত কহি’ মহাপ্রভু মৌন ধরিলা ।\
 > শুনিয়া সবার মনে সন্তোষ হইলা ॥১১৬॥
 
-> eta kahi' mahāprabhu mauna dharilā
+> eta kahi' mahāprabhu mauna dharilā\
 > śuniyā sabāra mane santoṣa ha-ilā
 
 *eta kahi'*—saying this; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *mauna dharilā*—became very grave; *śuniyā*—hearing; *sabāra*—of all the devotees; *mane*—in the mind; *santoṣa ha-ilā*—there was great satisfaction.

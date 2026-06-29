@@ -1,11 +1,11 @@
 ### SB 9.15.38
 
-> राम राम महाबाहो भवान्पापमकारषीत
+> राम राम महाबाहो भवान्पापमकारषीत\
 > अवधीन्नरदेवं यत्सर्वदेवमयं वृथा ॥३८॥
 
-> rāma rāma mahābāho
-> bhavān pāpam akāraṣīt
-> avadhīn naradevaṁ yat
+> rāma rāma mahābāho\
+> bhavān pāpam akāraṣīt\
+> avadhīn naradevaṁ yat\
 > sarva-devamayaṁ vṛthā
 
 *rāma rāma*—mi querido hijo Paraśurāma; *mahābāho*—¡oh, gran héroe!; *bhavān*—tú; *pāpam*—actividades pecaminosas; *akāraṣīt*—has realizado; *avadhīt*—has matado; *naradevam*—al rey; *yat*—que es; *sarva-devamayam*—la personificación de todos los semidioses; *vṛthā*—sin necesidad.

@@ -1,11 +1,11 @@
 ### SB 8.7.39
 
-> आसां प्राणपरीप्सूनां विधेयमभयं हि मे
+> आसां प्राणपरीप्सूनां विधेयमभयं हि मे\
 > एतावान्हि प्रभोरर्थो यद्दीनपरिपालनम ॥३९॥
 
-> prāṇaiḥ svaiḥ prāṇinaḥ pānti
-> sādhavaḥ kṣaṇa-bhaṅguraiḥ
-> baddha-vaireṣu bhūteṣu
+> prāṇaiḥ svaiḥ prāṇinaḥ pānti\
+> sādhavaḥ kṣaṇa-bhaṅguraiḥ\
+> baddha-vaireṣu bhūteṣu\
 > mohiteṣv ātma-māyayā
 
 *prāṇaiḥ*—con vidas; *svaiḥ*—sus propias; *prāṇinaḥ*—a otras entidades vivientes; *pānti*—protegen; *sādhavaḥ*—los devotos; *kṣaṇa-bhaṅguraiḥ*—temporales; *baddha-vaireṣu*—innecesariamente ocupados en actos hostiles; *bhūteṣu*—hacia las entidades vivientes; *mohiteṣu*—confundidos; *ātma-māyayā*—por la energía externa del Señor.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.18
 
-> এই সব সাধনের অতি তুচ্ছ বল ।
+> এই সব সাধনের অতি তুচ্ছ বল ।\
 > কৃষ্ণভক্তি বিনা তাহা দিতে নারে ফল ॥১৮॥
 
-> ei saba sādhanera ati tuccha bala
+> ei saba sādhanera ati tuccha bala\
 > kṛṣṇa-bhakti vinā tāhā dite nāre phala
 
 *ei saba*—all these; *sādhanera*—of methods of spiritual activities; *ati*—very; *tuccha*—insignificant; *bala*—strength; *kṛṣṇa-bhakti*—devotional service to Lord Kṛṣṇa; *vinā*—without; *tāhā*—all these; *dite*—to deliver; *nāre*—are not able; *phala*—the desired result.

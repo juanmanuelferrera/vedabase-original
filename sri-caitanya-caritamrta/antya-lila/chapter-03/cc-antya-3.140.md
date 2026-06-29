@@ -1,9 +1,9 @@
 ### CC Antya 3.140
 
-> মাথা মুড়ি’ একবস্ত্রে রহিল সেই ঘরে ।
+> মাথা মুড়ি’ একবস্ত্রে রহিল সেই ঘরে ।\
 > রাত্রি-দিনে তিন-লক্ষ নাম গ্রহণ করে ॥১৪০॥
 
-> māthā muḍi' eka-vastre rahila sei ghare
+> māthā muḍi' eka-vastre rahila sei ghare\
 > rātri-dine tina-lakṣa nāma grahaṇa kare
 
 *māthā muḍi'*—shaving her head; *eka-vastre*—wearing one cloth; *rahila*—remained; *sei ghare*—in that room; *rātri-dine*—throughout the entire day and night; *tina-lakṣa*—300,000; *nāma*—holy names; *grahaṇa kare*—chants.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.315
 
-> স্বরূপ — ঐশ্বর্যপূর্ণ, কৃষ্ণসম প্রায় ।
+> স্বরূপ — ঐশ্বর্যপূর্ণ, কৃষ্ণসম প্রায় ।\
 > কৃষ্ণ অংশী, তেঁহো অংশ, বেদে হেন গায় ॥৩১৫॥
 
-> svarūpa--aiśvarya-pūrṇa, kṛṣṇa-sama prāya
+> svarūpa--aiśvarya-pūrṇa, kṛṣṇa-sama prāya\
 > kṛṣṇa aṁśī, teṅho aṁśa, vede hena gāya
 
 *sva-rūpa*—expansión personal; *aiśvarya-pūrṇa*—pleno de todas las opulencias; *kṛṣṇa-sama*—igual a Kṛṣṇa; *prāya*—casi; *kṛṣṇa aṁśī*—Kṛṣṇa es la Suprema Personalidad de Dios; *teṅho*—el Señor Viṣṇu; *aṁśa*—expansión personal; *vede*—los Vedas; *hena*—así; *gāya*—cantan.

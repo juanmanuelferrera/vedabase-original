@@ -1,9 +1,9 @@
 ### CC Madhya 15.127
 
-> মহাবিদগ্ধ রাজা, সেই সব জানে ৷
+> মহাবিদগ্ধ রাজা, সেই সব জানে ৷\
 > মুকুন্দের হৈল তাঁর ‘মহাসিদ্ধ’-জ্ঞানে ॥১২৭॥
 
-> mahā-vidagdha rājā, sei saba jāne
+> mahā-vidagdha rājā, sei saba jāne\
 > mukundere haila tāṅra 'mahā-siddha'-jñāne
 
 *mahā-vidagdha*—sumamente inteligente; *rājā*—el rey; *sei*—él; *saba jāne*—lo sabe todo; *mukundere*—respecto a Mukunda; *haila*—hubo; *tāṅra*—su; *mahā-siddha-jñāne*—consideración como el devoto más perfecto.

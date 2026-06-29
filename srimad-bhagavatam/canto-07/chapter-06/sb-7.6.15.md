@@ -1,11 +1,11 @@
 ### SB 7.6.15
 
-> वित्तेषु नित्याभिनिविष्टचेता विद्वांश्च दोषं परवित्तहर्तुः
+> वित्तेषु नित्याभिनिविष्टचेता विद्वांश्च दोषं परवित्तहर्तुः\
 > प्रेत्येह वाथाप्यजितेन्द्रियस्तदशान्तकामो हरते कुटुम्बी ॥१५॥
 
-> vitteṣu nityābhiniviṣṭa-cetā
-> vidvāṁś ca doṣaṁ para-vitta-hartuḥ
-> pretyeha vāthāpy ajitendriyas tad
+> vitteṣu nityābhiniviṣṭa-cetā\
+> vidvāṁś ca doṣaṁ para-vitta-hartuḥ\
+> pretyeha vāthāpy ajitendriyas tad\
 > aśānta-kāmo harate kuṭumbī
 
 *vitteṣu*—in material wealth; *nitya-abhiniviṣṭa-cetāḥ*—whose mind is always absorbed; *vidvān*—having learned; *ca*—also; *doṣam*—the fault; *para-vitta-hartuḥ*—of one who steals the money of others by cheating or by transactions on the black market; *pretya*—after dying; *iha*—in this material world; *vā*—or; *athāpi*—still; *ajita-indriyaḥ*—because of being unable to control the senses; *tat*—that; *aśānta-kāmaḥ*—whose desires are unsatiated; *harate*—steals; *kuṭumbī*—too fond of his family.

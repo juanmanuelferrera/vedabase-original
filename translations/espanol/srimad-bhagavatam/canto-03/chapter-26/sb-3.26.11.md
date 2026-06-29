@@ -1,11 +1,11 @@
 ### SB 3.26.11
 
-> पञ्चभिः पञ्चभिर्ब्रह्म चतुर्भिर्दशभिस्तथा ।
+> पञ्चभिः पञ्चभिर्ब्रह्म चतुर्भिर्दशभिस्तथा ।\
 > एतच्चतुर्विंशतिकं गणं प्राधानिकं विदुः ॥११॥
 
-> pañcabhiḥ pañcabhir brahma
-> caturbhir daśabhis tathā
-> etac catur-viṁśatikaṁ
+> pañcabhiḥ pañcabhir brahma\
+> caturbhir daśabhis tathā\
+> etac catur-viṁśatikaṁ\
 > gaṇaṁ prādhānikaṁ viduḥ
 
 *pañcabhiḥ*—con los cinco (elementos densos); *pañcabhiḥ*—los cinco (elementos sutiles); *brahma*—Brahman; *caturbhiḥ*—los cuatro (sentidos internos); *daśabhiḥ*—los diez (cinco sentidos para adquirir conocimiento y cinco órganos de acción); *tathā*—de ese modo; *etat*—este; *catuḥ-viṁśatikam*—que consta de veinticuatro elementos; *gaṇam*—agregado; *prādhānikam*—que componen el *pradhāna*; *viduḥ*—conocen.

@@ -1,14 +1,14 @@
 ### SB 9.6.38
 
-> शशबिन्दोर्दुहितरि बिन्दुमत्यामधान्नृपः
-> पुरुकुत्समम्बरीषं मुचुकुन्दं च योगिनम
+> शशबिन्दोर्दुहितरि बिन्दुमत्यामधान्नृपः\
+> पुरुकुत्समम्बरीषं मुचुकुन्दं च योगिनम\
 > तेषां स्वसारः पञ्चाशत्सौभरिं वव्रिरे पतिम ॥३८॥
 
-> śaśabindor duhitari
-> bindumatyām adhān nṛpaḥ
-> purukutsam ambarīṣaṁ
-> mucukundaṁ ca yoginam
-> teṣāṁ svasāraḥ pañcāśat
+> śaśabindor duhitari\
+> bindumatyām adhān nṛpaḥ\
+> purukutsam ambarīṣaṁ\
+> mucukundaṁ ca yoginam\
+> teṣāṁ svasāraḥ pañcāśat\
 > saubhariṁ vavrire patim
 
 *śaśabindoḥ*—of a king known as Śaśabindu; *duhitari*—unto the daughter; *bindumatyām*—whose name was Bindumatī; *adhāt*—begot; *nṛpaḥ*—the King (Māndhātā); *purukutsam*—Purukutsa; *ambarīṣam*—Ambarīṣa; *mucukundam*—Mucukunda; *ca*—and; *yoginam*—a highly elevated mystic; *teṣām*—of them; *svasāraḥ*—the sisters; *pañcāśat*—fifty; *saubharim*—unto the great sage Saubhari; *vavrire*—accepted; *patim*—as husband.

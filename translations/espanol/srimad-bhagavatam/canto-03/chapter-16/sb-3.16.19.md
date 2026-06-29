@@ -1,11 +1,11 @@
 ### SB 3.16.19
 
-> तरन्ति ह्यञ्जसा मृत्युं निवृत्ता यदनुग्रहात् ।
+> तरन्ति ह्यञ्जसा मृत्युं निवृत्ता यदनुग्रहात् ।\
 > योगिनः स भवान्किं स्विदनुगृह्येत यत्परैः ॥१९॥
 
-> taranti hy añjasā mṛtyuṁ
-> nivṛttā yad-anugrahāt
-> yoginaḥ sa bhavān kiṁ svid
+> taranti hy añjasā mṛtyuṁ\
+> nivṛttā yad-anugrahāt\
+> yoginaḥ sa bhavān kiṁ svid\
 > anugṛhyeta yat paraiḥ
 
 *taranti*—cruzan; *hi*—porque; *añjasā*—fácilmente; *mṛtyum*—nacimiento y muerte; *nivṛttāḥ*—suspendiendo todo deseo material; *yat*—Tuya; *anugrahāt*—mediante misericordia; *yoginaḥ*—trascendentalistas; *saḥ*—el Señor Supremo; *bhavān*—Tú; *kim svit*—nunca posible; *anugṛhyeta*—puedas recibir el favor; *yat*—el cual; *paraiḥ*—por otros.

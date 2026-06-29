@@ -1,11 +1,11 @@
 ### SB 4.6.43
 
-> त्वमेव भगवन्नेतच्छिवशक्त्योः स्वरूपयोः ।
+> त्वमेव भगवन्नेतच्छिवशक्त्योः स्वरूपयोः ।\
 > विश्वं सृजसि पास्यत्सि क्रीडन्नूर्णपटो यथा ॥४३॥
 
-> tvam eva bhagavann etac
-> chiva-śaktyoḥ svarūpayoḥ
-> viśvaṁ sṛjasi pāsy atsi
+> tvam eva bhagavann etac\
+> chiva-śaktyoḥ svarūpayoḥ\
+> viśvaṁ sṛjasi pāsy atsi\
 > krīḍann ūrṇa-paṭo yathā
 
 *tvam*—you; *eva*—certainly; *bhagavan*—O my lord; *etat*—this; *śiva-śaktyoḥ*—being situated in your auspicious energy; *svarūpayoḥ*—by your personal expansion; *viśvam*—this universe; *sṛjasi*—create; *pāsi*—maintain; *atsi*—annihilate; *krīḍan*—working; *ūrṇa-paṭaḥ*—spider's web; *yathā*—just like.

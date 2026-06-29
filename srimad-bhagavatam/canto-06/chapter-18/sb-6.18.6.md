@@ -1,11 +1,11 @@
 ### SB 6.18.6
 
-> रेतः सिषिचतुः कुम्भे उर्वश्याः सन्निधौ द्रुतम
+> रेतः सिषिचतुः कुम्भे उर्वश्याः सन्निधौ द्रुतम\
 > रेवत्यां मित्र उत्सर्गमरिष्टं पिप्पलं व्यधात ॥६॥
 
-> retaḥ siṣicatuḥ kumbhe
-> urvaśyāḥ sannidhau drutam
-> revatyāṁ mitra utsargam
+> retaḥ siṣicatuḥ kumbhe\
+> urvaśyāḥ sannidhau drutam\
+> revatyāṁ mitra utsargam\
 > ariṣṭaṁ pippalaṁ vyadhāt
 
 *retaḥ*—semen; *siṣicatuḥ*—discharged; *kumbhe*—in an earthen pot; *urvaśyāḥ*—of Urvaśī; *sannidhau*—in the presence; *drutam*—flown; *revatyām*—in Revatī; *mitraḥ*—Mitra; *utsargam*—Utsarga; *ariṣṭam*—Ariṣṭa; *pippalam*—Pippala; *vyadhāt*—begot.

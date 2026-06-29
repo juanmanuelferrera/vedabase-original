@@ -1,9 +1,9 @@
 ### CC Madhya 16.93
 
-> দুঁহে কহে, — এবে বর্ষা চলিতে নারিবা ।
+> দুঁহে কহে, — এবে বর্ষা চলিতে নারিবা ।\
 > বিজয়া-দশমী আইলে অবশ্য চলিবা ॥৯৩॥
 
-> duṅhe kahe,--ebe varṣā, calite nāribā
+> duṅhe kahe,--ebe varṣā, calite nāribā\
 > vijayā-daśamī āile avaśya calibā
 
 *duṅhe kahe*—ambos dijeron; *ebe*—ahora; *varṣā*—la estación de lluvias; *calite nāribā*—no podréis viajar; *vijayā-daśamī*—el día de Vijayā-daśamī; *āile*—cuando llegue; *avaśya*—ciertamente; *calibā*—iréis.

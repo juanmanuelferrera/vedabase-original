@@ -1,11 +1,11 @@
 ### Bg 5.3
 
-> ज्ञेयः स नित्यसंन्यासी यो न द्वेष्टि न काङ्क्षति ।
+> ज्ञेयः स नित्यसंन्यासी यो न द्वेष्टि न काङ्क्षति ।\
 > निर्द्वन्द्वो हि महाबाहो सुखं बन्धात्प्रमुच्यते ॥३॥
 
-> jñeyaḥ sa nitya-sannyāsī
-> yo na dveṣṭi na kāṅkṣati
-> nirdvandvo hi mahā-bāho
+> jñeyaḥ sa nitya-sannyāsī\
+> yo na dveṣṭi na kāṅkṣati\
+> nirdvandvo hi mahā-bāho\
 > sukhaṁ bandhāt pramucyate
 
 *jñeyaḥ*—ha de saberse; *saḥ*—él; *nitya*—siempre; *sannyāsī*—renunciante; *yaḥ*—quien; *na*—nunca; *dveṣṭi*—aborrece; *na*—ni; *kāṅkṣati*—desea; *nirdvandvaḥ*—libre de todas las dualidades; *hi*—ciertamente; *mahā-bāho*—¡oh, el de los poderosos brazos!; *sukham*—con alegría; *bandhāt*—del cautiverio; *pramucyate*—se libera por completo.

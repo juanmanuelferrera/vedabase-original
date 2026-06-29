@@ -1,11 +1,11 @@
 ### SB 7.13.25
 
-> तत्रापि दम्पतीनां च सुखायान्यापनुत्तये
+> तत्रापि दम्पतीनां च सुखायान्यापनुत्तये\
 > कर्माणि कुर्वतां दृष्ट्वा निवृत्तोऽस्मि विपर्ययम ॥२५॥
 
-> yadṛcchayā lokam imaṁ
-> prāpitaḥ karmabhir bhraman
-> svargāpavargayor dvāraṁ
+> yadṛcchayā lokam imaṁ\
+> prāpitaḥ karmabhir bhraman\
+> svargāpavargayor dvāraṁ\
 > tiraścāṁ punar asya ca
 
 *yadṛcchayā*—llevado por las olas de la naturaleza material; *lokam*—forma humana; *imam*—esta; *prāpitaḥ*—obtenida; *karmabhiḥ*—por la influencia de diversas actividades fruitivas; *bhraman*—vagar de una forma de vida a otra; *svarga*—a los planetas celestiales; *apavargayoḥ*—de la liberación; *dvāram*—a la puerta; *tiraścām*—a especies de vida inferiores; *punaḥ*—de nuevo; *asya*—de los seres humanos; *ca*—y.

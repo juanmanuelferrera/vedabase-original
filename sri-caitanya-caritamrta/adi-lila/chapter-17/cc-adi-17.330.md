@@ -1,9 +1,9 @@
 ### CC Adi 17.330
 
-> বৃন্দাবনদাস ইহা ‘চৈতন্যমঙ্গলে’ ।
+> বৃন্দাবনদাস ইহা ‘চৈতন্যমঙ্গলে’ ।\
 > বিস্তারি’ বর্ণিলা নিত্যানন্দ-আজ্ঞা-বলে ॥৩৩০॥
 
-> vṛndāvana-dāsa ihā 'caitanya-maṅgale'
+> vṛndāvana-dāsa ihā 'caitanya-maṅgale'\
 > vistāri' varṇilā nityānanda-ājñā-bale
 
 *vṛndāvana-dāsa*—Ṭhākura Vṛndāvana dāsa; *ihā*—this; *caitanya-maṅgale*—in his book *Caitanya-maṅgala*; *vistāri'*—expanding; *varṇilā*—described; *nityānanda*—of Śrī Nityānanda Prabhu; *ājñā*—of the order; *bale*—on the strength.

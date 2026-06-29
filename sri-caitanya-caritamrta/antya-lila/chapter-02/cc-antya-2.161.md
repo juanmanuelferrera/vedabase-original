@@ -1,9 +1,9 @@
 ### CC Antya 2.161
 
-> যৈছে সংকল্প, যৈছে ত্রিবেণী প্রবেশিল ।
+> যৈছে সংকল্প, যৈছে ত্রিবেণী প্রবেশিল ।\
 > শুনি’ শ্রীবাসাদির মনে বিস্ময় হইল ॥১৬১॥
 
-> yaiche saṅkalpa, yaiche triveṇī praveśila
+> yaiche saṅkalpa, yaiche triveṇī praveśila\
 > śuni, śrīvāsādira mane vismaya ha-ila
 
 *yaiche saṅkalpa*—how he was determined; *yaiche*—how; *triveṇī praveśila*—he entered into Triveṇī; *śuni'*—hearing; *śrīvāsa-ādira*—of Śrīvāsa Ṭhākura and others; *mane*—in the minds; *vismaya ha-ila*—there was surprise.

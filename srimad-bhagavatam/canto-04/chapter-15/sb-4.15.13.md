@@ -1,11 +1,11 @@
 ### SB 4.15.13
 
-> सोऽभिषिक्तो महाराजः सुवासाः साध्वलङ्कृतः ।
+> सोऽभिषिक्तो महाराजः सुवासाः साध्वलङ्कृतः ।\
 > पत्न्यार्चिषालङ्कृतया विरेजेऽग्निरिवापरः ॥१३॥
 
-> so 'bhiṣikto mahārājaḥ
-> suvāsāḥ sādhv-alaṅkṛtaḥ
-> patnyārciṣālaṅkṛtayā
+> so 'bhiṣikto mahārājaḥ\
+> suvāsāḥ sādhv-alaṅkṛtaḥ\
+> patnyārciṣālaṅkṛtayā\
 > vireje 'gnir ivāparaḥ
 
 *saḥ*—the King; *abhiṣiktaḥ*—being coronated; *mahārājaḥ*—Mahārāja Pṛthu; *su-vāsāḥ*—exquisitely dressed; *sādhu-alaṅkṛtaḥ*—highly decorated with ornaments; *patnyā*—along with his wife; *arciṣā*—named Arci; *alaṅkṛtayā*—nicely ornamented; *vireje*—appeared; *agniḥ*—fire; *iva*—like; *aparaḥ*—another.

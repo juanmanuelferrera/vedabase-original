@@ -1,9 +1,9 @@
 ### CC Antya 1.182
 
-> রায় কহে, — “লোকের সুখ ইহার শ্রবণে ।
+> রায় কহে, — “লোকের সুখ ইহার শ্রবণে ।\
 > অভীষ্ট-দেবের স্মৃতি মঙ্গলাচরণে ।।” ॥ ১৮২ ॥
 
-> rāya kahe,—"lokera sukha ihāra śravaṇe
+> rāya kahe,—"lokera sukha ihāra śravaṇe\
 > abhīṣṭa-devera smṛti maṅgalācaraṇe"
 
 *rāya kahe*—Rāmānanda Rāya says; *lokera*—of the people in general; *sukha*—happiness; *ihāra śravaṇe*—in hearing such poetic expressions; *abhīṣṭa-devera*—of the worshipable Deity; *smṛti*—remembrance; *maṅgalācaraṇe*—in the performance of auspiciousness in the beginning.

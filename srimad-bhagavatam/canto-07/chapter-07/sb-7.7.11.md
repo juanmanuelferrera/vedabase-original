@@ -1,11 +1,11 @@
 ### SB 7.7.11
 
-> इत्युक्तस्तां विहायेन्द्रो देवर्षेर्मानयन्वचः
+> इत्युक्तस्तां विहायेन्द्रो देवर्षेर्मानयन्वचः\
 > अनन्तप्रियभक्त्यैनां परिक्रम्य दिवं ययौ ॥११॥
 
-> ity uktas tāṁ vihāyendro
-> devarṣer mānayan vacaḥ
-> ananta-priya-bhaktyaināṁ
+> ity uktas tāṁ vihāyendro\
+> devarṣer mānayan vacaḥ\
+> ananta-priya-bhaktyaināṁ\
 > parikramya divaṁ yayau
 
 *iti*—thus; *uktaḥ*—addressed; *tām*—her; *vihāya*—releasing; *indraḥ*—the King of heaven; *deva-ṛṣeḥ*—of the saint Nārada Muni; *mānayan*—honoring; *vacaḥ*—the words; *ananta-priya*—for one who is very dear to the Supreme Personality of Godhead; *bhaktyā*—by devotion; *enām*—this (woman); *parikramya*—circumambulating; *divam*—to the heavenly planets; *yayau*—returned.

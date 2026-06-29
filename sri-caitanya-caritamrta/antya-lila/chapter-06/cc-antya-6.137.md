@@ -1,11 +1,11 @@
 ### CC Antya 6.137
 
-> যো দুস্ত্যজান্ দারসুতান্ সুহৃদ্রাজ্যং হৃদিস্পৃশঃ ।
+> যো দুস্ত্যজান্ দারসুতান্ সুহৃদ্রাজ্যং হৃদিস্পৃশঃ ।\
 > জহৌ যুবৈব মলবদুত্তম-শ্লোকলালসঃ ॥১৩৭॥
 
-> yo dustyajān dāra-sutān
-> suhṛd-rājyaṁ hṛdi-spṛśaḥ
-> jahau yuvaiva malavad
+> yo dustyajān dāra-sutān\
+> suhṛd-rājyaṁ hṛdi-spṛśaḥ\
+> jahau yuvaiva malavad\
 > uttama-śloka-lālasaḥ
 
 *yaḥ*—who (Bharata Mahārāja); *dustyajān*—difficult to give up; *dāra-sutān*—wife and children; *suhṛt*—friends; *rājyam*—kingdom; *hṛdi-spṛśaḥ*—dear to the core of the heart; *jahau*—gave up; *yuvā*—youth; *eva*—at that time; *malavat*—like stool; *uttama-śloka-lālasaḥ*—being captivated by the transcendental qualities, pastimes and association of the Supreme Personality of Godhead.

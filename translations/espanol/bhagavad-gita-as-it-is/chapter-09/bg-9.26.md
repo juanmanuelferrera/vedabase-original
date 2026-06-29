@@ -1,11 +1,11 @@
 ### Bg 9.26
 
-> पत्रं पुष्पं फलं तोयं यो मे भक्त्या प्रयच्छति ।
+> पत्रं पुष्पं फलं तोयं यो मे भक्त्या प्रयच्छति ।\
 > तदहं भक्त्युपहृतमश्नामि प्रयतात्मनः ॥२६॥
 
-> patraṁ puṣpaṁ phalaṁ toyaṁ
-> yo me bhaktyā prayacchati
-> tad ahaṁ bhakty-upahṛtam
+> patraṁ puṣpaṁ phalaṁ toyaṁ\
+> yo me bhaktyā prayacchati\
+> tad ahaṁ bhakty-upahṛtam\
 > aśnāmi prayatātmanaḥ
 
 *patram*—una hoja; *puṣpam*—una flor; *phalam*—una fruta; *toyam*—agua; *yaḥ*—quienquiera; *me*—a Mí; *bhaktyā*—con devoción; *prayacchati*—ofrece; *tat*—eso; *aham*—Yo; *bhakti-upahṛtam*—ofrecido con devoción; *aśnāmi*—acepto; *prayata-ātmanaḥ*—de aquel que está situado en la conciencia pura.

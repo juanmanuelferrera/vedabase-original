@@ -1,11 +1,11 @@
 ### SB 4.30.33
 
-> यावत्ते मायया स्पृष्टा भ्रमाम इह कर्मभिः ।
+> यावत्ते मायया स्पृष्टा भ्रमाम इह कर्मभिः ।\
 > तावद्भवत्प्रसङ्गानां सङ्गः स्यान्नो भवे भवे ॥३३॥
 
-> yāvat te māyayā spṛṣṭā
-> bhramāma iha karmabhiḥ
-> tāvad bhavat-prasaṅgānāṁ
+> yāvat te māyayā spṛṣṭā\
+> bhramāma iha karmabhiḥ\
+> tāvad bhavat-prasaṅgānāṁ\
 > saṅgaḥ syān no bhave bhave
 
 *yāvat*—as long as; *te*—Your; *māyayā*—by the illusory energy; *spṛṣṭāḥ*—contaminated; *bhramāmaḥ*—we wander; *iha*—in this material world; *karmabhiḥ*—by the reaction of fruitive activities; *tāvat*—so long; *bhavat-prasaṅgānām*—of Your loving devotees; *saṅgaḥ*—association; *syāt*—let there be; *naḥ*—our; *bhave bhave*—in every species of life.

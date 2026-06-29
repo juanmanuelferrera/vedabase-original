@@ -1,9 +1,9 @@
 ### SB 5.13.24
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > इत्येवमुत्तरामातः स वै ब्रह्मर्षिसुतः सिन्धुपतय आत्मसतत्त्वं विगणयतःपरानुभावः परमकारुणिकतयोपदिश्य रहूगणेन सकरुणमभिवन्दितचरण आपूर्णार्णव इवनिभृतकरणोर्म्याशयो धरणिमिमां विचचार ॥२४॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > ity evam uttarā-mātaḥ sa vai brahmarṣi-sutaḥ sindhu-pataya ātma-satattvaṁ vigaṇayataḥ parānubhāvaḥ parama-kāruṇikatayopadiśya rahūgaṇena sakaruṇam abhivandita-caraṇa āpūrṇārṇava iva nibhṛta-karaṇormy-āśayo dharaṇim imāṁ vicacāra.
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *iti evam*—de este modo; *uttarā-mātaḥ*—¡oh, Mahārāja Parīkṣit, hijo de madre Uttarā!; *saḥ*—aquel *brāhmaṇa*; *vai*—en verdad; *brahma-ṛṣi-sutaḥ*—Jaḍa Bharata, el hijo de un *brāhmaṇa* de gran educación; *sindhu-pataye*—al rey de la provincia de Sindhu; *ātma-sa-tattvam*—la verdadera posición constitucional del alma; *vigaṇayataḥ*—aunque había insultado a Jaḍa Bharata; *para-anubhāvaḥ*—que era muy excelso en cuanto a iluminación espiritual; *parama-kāruṇikatayā*—por su cualidad de ser muy bondadoso con las almas caídas; *upadiśya*—instruir; *rahūgaṇena*—por el rey Rahūgaṇa; *sa-karuṇam*—lastimosamente; *abhivandita-caraṇaḥ*—cuyos pies de loto eran adorados; *āpūrṇa-arṇavaḥ iva*—como el océano pleno; *nibhṛta*—completamente acalladas; *karaṇa*—de los sentidos; *ūrmi*—las olas; *āśayaḥ*—con un corazón en el cual; *dharaṇim*—la Tierra; *imām*—esta; *vicacāra*—continuó con su vagar.

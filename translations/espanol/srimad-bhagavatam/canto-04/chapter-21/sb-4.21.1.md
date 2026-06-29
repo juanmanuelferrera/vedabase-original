@@ -1,13 +1,13 @@
 ### SB 4.21.1
 
-> मैत्रेय उवाच
-> मौक्तिकैः कुसुमस्रग्भिर्दुकूलैः स्वर्णतोरणैः ।
+> मैत्रेय उवाच\
+> मौक्तिकैः कुसुमस्रग्भिर्दुकूलैः स्वर्णतोरणैः ।\
 > महासुरभिभिर्धूपैर्मण्डितं तत्र तत्र वै ॥१॥
 
-> maitreya uvāca
-> mauktikaiḥ kusuma-sragbhir
-> dukūlaiḥ svarṇa-toraṇaiḥ
-> mahā-surabhibhir dhūpair
+> maitreya uvāca\
+> mauktikaiḥ kusuma-sragbhir\
+> dukūlaiḥ svarṇa-toraṇaiḥ\
+> mahā-surabhibhir dhūpair\
 > maṇḍitaṁ tatra tatra vai
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya continuó hablando; *mauktikaiḥ*—con perlas; *kusuma*—de flores; *sragbhiḥ*—con guirnaldas; *dukūlaiḥ*—telas; *svarṇa*—de oro; *toraṇaiḥ*—con puertas; *mahā-surabhibhiḥ*—muy perfumadas; *dhūpaiḥ*—con incienso; *maṇḍitam*—adornada; *tatra tatra*—aquí y allí; *vai*—ciertamente.

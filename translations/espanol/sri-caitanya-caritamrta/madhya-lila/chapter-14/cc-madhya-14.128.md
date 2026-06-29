@@ -1,9 +1,9 @@
 ### CC Madhya 14.128
 
-> হেনকালে, খচিত যাহে বিবিধ রতন  ।
+> হেনকালে, খচিত যাহে বিবিধ রতন  ।\
 > সুবর্ণের চৌদোলা করি’ আরোহণ ॥১২৮॥
 
-> hena-kāle, khacita yāhe vividha ratana
+> hena-kāle, khacita yāhe vividha ratana\
 > suvarṇera caudolā kari' ārohaṇa
 
 *hena-kāle*—mientras Svarūpa Dāmodara y el Señor Caitanya Mahāprabhu conversaban; *khacita*—estaban engastadas; *yāhe*—en el cual; *vividha*—diversas; *ratana*—gemas; *suvarṇera*—hecho de oro; *caudolā*—un palanquín llevado por cuatro hombres; *kari' ārohaṇa*—montada sobre.

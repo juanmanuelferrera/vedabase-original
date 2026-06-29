@@ -1,11 +1,11 @@
 ### SB 1.17.19
 
-> केचिद्विकल्पवसना आहुरात्मानमात्मनः ।
+> केचिद्विकल्पवसना आहुरात्मानमात्मनः ।\
 > दैवमन्येऽपरे कर्म स्वभावमपरे प्रभुम् ॥१९॥
 
-> kecid vikalpa-vasanā
-> āhur ātmānam ātmanaḥ
-> daivam anye 'pare karma
+> kecid vikalpa-vasanā\
+> āhur ātmānam ātmanaḥ\
+> daivam anye 'pare karma\
 > svabhāvam apare prabhum
 
 *kecit*—algunos de ellos; *vikalpa-vasanāḥ*—aquellos que niegan toda clase de dualidades; *āhuḥ*—declaran; *ātmānam*—el propio yo; *ātmanaḥ*—del yo; *daivam*—sobrehumano; *anye*—otros; *apare*—algún otro; *karma*—actividad; *svabhāvam*—naturaleza material; *apare*—muchas otras; *prabhum*—autoridades.

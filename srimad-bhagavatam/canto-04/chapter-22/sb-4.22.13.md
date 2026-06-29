@@ -1,11 +1,11 @@
 ### SB 4.22.13
 
-> कच्चिन्नः कुशलं नाथा इन्द्रियार्थार्थवेदिनाम् ।
+> कच्चिन्नः कुशलं नाथा इन्द्रियार्थार्थवेदिनाम् ।\
 > व्यसनावाप एतस्मिन्पतितानां स्वकर्मभिः ॥१३॥
 
-> kaccin naḥ kuśalaṁ nāthā
-> indriyārthārtha-vedinām
-> vyasanāvāpa etasmin
+> kaccin naḥ kuśalaṁ nāthā\
+> indriyārthārtha-vedinām\
+> vyasanāvāpa etasmin\
 > patitānāṁ sva-karmabhiḥ
 
 *kaccit*—whether; *naḥ*—our; *kuśalam*—good fortune; *nāthāḥ*—O masters; *indriya-artha*—sense gratification as the ultimate goal of life; *artha-vedinām*—persons who understand only sense gratification; *vyasana*—illness; *āvāpe*—got; *etasmin*—in this material existence; *patitānām*—those who are fallen; *sva-karmabhiḥ*—by their own ability.

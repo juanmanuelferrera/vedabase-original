@@ -1,9 +1,9 @@
 ### CC Madhya 6.167
 
-> শ্রীবিগ্রহ যে না মানে, সেই ত’ পাষণ্ডী ।
+> শ্রীবিগ্রহ যে না মানে, সেই ত’ পাষণ্ডী ।\
 > অদৃশ্য অস্পৃশ্য, সেই হয় যমদণ্ডী ॥১৬৭॥
 
-> śrī-vigraha ye nā māne, sei ta' pāṣaṇḍī
+> śrī-vigraha ye nā māne, sei ta' pāṣaṇḍī\
 > adṛśya aspṛśya, sei haya yama-daṇḍī
 
 *śrī-vigraha*—the form of the Lord; *ye*—anyone who; *nā*—not; *māne*—accepts; *sei*—he; *ta'*—indeed; *pāṣaṇḍī*—agnostic; *adṛśya*—not to be seen; *aspṛśya*—untouchable; *sei*—he; *haya*—is; *yama-daṇḍī*—subject to be punished by Yamarāja.

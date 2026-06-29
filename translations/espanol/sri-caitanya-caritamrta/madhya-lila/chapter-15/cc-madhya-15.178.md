@@ -1,9 +1,9 @@
 ### CC Madhya 15.178
 
-> সব ব্ৰহ্মাণ্ড সহ যদি ‘মায়া’র হয় ক্ষয় ।
+> সব ব্ৰহ্মাণ্ড সহ যদি ‘মায়া’র হয় ক্ষয় ।\
 > তথাপি না মানে কৃষ্ণ কিছু অপচয় ॥১৭৮॥
 
-> saba brahmāṇḍa saha yadi 'māyā'ra haya kṣaya
+> saba brahmāṇḍa saha yadi 'māyā'ra haya kṣaya\
 > tathāpi nā māne kṛṣṇa kichu apacaya
 
 *saba brahmāṇḍa*—todos los universos; *saha*—con; *yadi*—si; *māyāra*—de la energía material; *haya kṣaya*—hay destrucción; *tathāpi*—aun así; *nā*—no; *māne*—considera; *kṛṣṇa*—el Señor Kṛṣṇa; *kichu*—ninguna; *apacaya*—pérdida.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.4
 
-> এবে কহি, শুন, অভিধেয় লক্ষণ ।
+> এবে কহি, শুন, অভিধেয় লক্ষণ ।\
 > যাহা হৈতে পাই — কৃষ্ণ, কৃষ্ণপ্রেমধন ॥৪॥
 
-> ebe kahi, śuna, abhidheya-lakṣaṇa
+> ebe kahi, śuna, abhidheya-lakṣaṇa\
 > yāhā haite pāi—kṛṣṇa, kṛṣṇa-prema-dhana
 
 *ebe*—now; *kahi*—I shall explain; *śuna*—please hear; *abhidheya-lakṣaṇa*—one's prime business (devotional service); *yāhā haite*—from which; *pāi*—one can get; *kṛṣṇa*—Lord Kṛṣṇa; *kṛṣṇa-prema-dhana*—and the wealth of transcendental love for Him.

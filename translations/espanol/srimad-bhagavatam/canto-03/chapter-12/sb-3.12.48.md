@@ -1,11 +1,11 @@
 ### SB 3.12.48
 
-> शब्दब्रह्मात्मनस्तस्य व्यक्ताव्यक्तात्मनः परः ।
+> शब्दब्रह्मात्मनस्तस्य व्यक्ताव्यक्तात्मनः परः ।\
 > ब्रह्मावभाति विततो नानाशक्त्युपबृंहितः ॥४८॥
 
-> śabda-brahmātmanas tasya
-> vyaktāvyaktātmanaḥ paraḥ
-> brahmāvabhāti vitato
+> śabda-brahmātmanas tasya\
+> vyaktāvyaktātmanaḥ paraḥ\
+> brahmāvabhāti vitato\
 > nānā-śakty-upabṛṁhitaḥ
 
 *śabda-brahma*—sonido trascendental; *ātmanaḥ*—del Señor Supremo; *tasya*—Su; *vyakta*—manifestado; *avyakta-ātmanaḥ*—de lo no manifestado; *paraḥ*—trascendental; *brahmā*—el Absoluto; *avabhāti*—completamente manifestado; *vitataḥ*—distribuyendo; *nānā*—múltiples; *śakti*—energías; *upabṛṁhitaḥ*—investido con.

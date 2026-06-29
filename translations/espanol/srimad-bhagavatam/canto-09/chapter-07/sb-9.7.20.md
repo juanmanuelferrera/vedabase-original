@@ -1,13 +1,13 @@
 ### SB 9.7.20
 
-> षष्ठं संवत्सरं तत्र चरित्वा रोहितः पुरीम
+> षष्ठं संवत्सरं तत्र चरित्वा रोहितः पुरीम\
 > उपव्रजन्नजीगर्तादक्रीणान्मध्यमं सुतम ॥२०॥
 
-> ṣaṣṭhaṁ saṁvatsaraṁ tatra
-> caritvā rohitaḥ purīm
-> upavrajann ajīgartād
-> akrīṇān madhyamaṁ sutam
-> śunaḥśephaṁ paśuṁ pitre
+> ṣaṣṭhaṁ saṁvatsaraṁ tatra\
+> caritvā rohitaḥ purīm\
+> upavrajann ajīgartād\
+> akrīṇān madhyamaṁ sutam\
+> śunaḥśephaṁ paśuṁ pitre\
 > pradāya samavandata
 
 *ṣaṣṭham*—el sexto; *saṁvatsaram*—año; *tatra*—en el bosque; *caritvā*—vagar; *rohitaḥ*—el hijo de Hariścandra; *purīm*—en su capital; *upavrajan*—fue allí; *ajīgartāt*—de Ajīgarta; *akrīṇāt*—compró; *madhyamam*—el segundo; *sutam*—hijo; *śunaḥśepham*—cuyo nombre era Śunaḥśepha; *paśum*—para usar como animal de sacrificio; *pitre*—a su padre; *pradāya*—ofreciendo; *samavandata*—ofreció respetuosas reverencias.

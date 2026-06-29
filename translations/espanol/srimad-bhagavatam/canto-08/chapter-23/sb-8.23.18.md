@@ -1,13 +1,13 @@
 ### SB 8.23.18
 
-> श्रीशुक उवाच
-> प्रतिनन्द्य हरेराज्ञआमुशना भगवानिति
+> श्रीशुक उवाच\
+> प्रतिनन्द्य हरेराज्ञआमुशना भगवानिति\
 > यज्ञअच्छिद्रं समाधत्त बलेर्विप्रर्षिभिः सह ॥१८॥
 
-> śrī-śuka uvāca
-> pratinandya harer ājñām
-> uśanā bhagavān iti
-> yajña-cchidraṁ samādhatta
+> śrī-śuka uvāca\
+> pratinandya harer ājñām\
+> uśanā bhagavān iti\
+> yajña-cchidraṁ samādhatta\
 > baler viprarṣibhiḥ saha
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *pratinandya*—ofrecer reverencias; *hareḥ*—de la Personalidad de Dios; *ājñām*—la orden; *uśanāḥ*—Śukrācārya; *bhagavān*—el muy poderoso; *iti*—así; *yajña-chidram*—deficiencias en la celebración de sacrificios; *samādhatta*—se preocupó de completar; *baleḥ*—de Bali Mahārāja; *vipra-ṛṣibhiḥ*—los mejores*brāhmaṇas*; *saha*—junto con.

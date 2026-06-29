@@ -1,9 +1,9 @@
 ### CC Adi 12.37
 
-> দণ্ড শুনি’ ‘বিশ্বাস’ হইল পরম দুঃখিত ।
+> দণ্ড শুনি’ ‘বিশ্বাস’ হইল পরম দুঃখিত ।\
 > শুনিয়া প্রভুর দণ্ড আচার্য হর্ষিত ॥৩৭॥
 
-> daṇḍa śuni' 'viśvāsa' ha-ila parama duḥkhita
+> daṇḍa śuni' 'viśvāsa' ha-ila parama duḥkhita\
 > śuniyā prabhura daṇḍa ācārya harṣita
 
 *daṇḍa*—castigo; *śuni'*—al oír; *viśvāsa*—Kamalākānta Viśvāsa; *ha-ila*—se volvió; *parama*—muy; *duḥkhita*—infeliz; *śuniyā*—al oír; *prabhura*—del Señor Caitanya Mahāprabhu; *daṇḍa*—castigo; *ācārya*—Śrī Advaita Ācārya Prabhu; *harṣita*—muy complacido.

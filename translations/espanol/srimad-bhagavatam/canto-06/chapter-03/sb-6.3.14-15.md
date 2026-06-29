@@ -1,18 +1,18 @@
 ### SB 6.3.14-15
 
-> अहं महेन्द्रो निरृतिः प्रचेताः सोमोऽग्निरीशः पवनो विरिञ्चिः
-> आदित्यविश्वे वसवोऽथ साध्या मरुद्गणा रुद्रगणाः ससिद्धाः ॥१४॥
-> अन्ये च ये विश्वसृजोऽमरेशा भृग्वादयोऽस्पृष्टरजस्तमस्काः
+> अहं महेन्द्रो निरृतिः प्रचेताः सोमोऽग्निरीशः पवनो विरिञ्चिः\
+> आदित्यविश्वे वसवोऽथ साध्या मरुद्गणा रुद्रगणाः ससिद्धाः ॥१४॥\
+> अन्ये च ये विश्वसृजोऽमरेशा भृग्वादयोऽस्पृष्टरजस्तमस्काः\
 > यस्येहितं न विदुः स्पृष्टमायाः सत्त्वप्रधाना अपि किं ततोऽन्ये ॥१५॥
 
-> ahaṁ mahendro nirṛtiḥ pracetāḥ
-> somo 'gnir īśaḥ pavano viriñciḥ
-> āditya-viśve vasavo 'tha sādhyā
+> ahaṁ mahendro nirṛtiḥ pracetāḥ\
+> somo 'gnir īśaḥ pavano viriñciḥ\
+> āditya-viśve vasavo 'tha sādhyā\
 > marud-gaṇā rudra-gaṇāḥ sasiddhāḥ
 
-> anye ca ye viśva-sṛjo 'mareśā
-> bhṛgv-ādayo 'spṛṣṭa-rajas-tamaskāḥ
-> yasyehitaṁ na viduḥ spṛṣṭa-māyāḥ
+> anye ca ye viśva-sṛjo 'mareśā\
+> bhṛgv-ādayo 'spṛṣṭa-rajas-tamaskāḥ\
+> yasyehitaṁ na viduḥ spṛṣṭa-māyāḥ\
 > sattva-pradhānā api kiṁ tato 'nye
 
 *aham*—yo, Yamarāja; *mahendraḥ*—Indra, el rey del cielo; *nirṛtiḥ*—Nirṛti; *pracetāḥ*—Varuṇa, el señor del agua; *somaḥ*—la Luna; *agniḥ*—el fuego; *īśaḥ*—el Señor Śiva; *pavanaḥ*—el semidiós del aire; *viriñciḥ*—el Señor Brahmā; *āditya*—el Sol; *viśve*—Viśvāsu; *vasavaḥ*—los ocho Vasus; *atha*—también; *sādhyāḥ*—los semidioses; *marut-gaṇāḥ*—los señores del viento; *rudra-gaṇāḥ*—las expansiones del Señor Śiva; *sa-siddhāḥ*—con los habitantes de Siddhaloka; *anye*—otros; *ca*—y; *ye*—quien; *viśva-sṛjaḥ*—Marīci y los demás creadores de los asuntos universales; *amara-īśāḥ*—los semidioses como Bṛhaspati; *bhṛgu-ādayaḥ*—los grandes sabios, encabezados por Bhṛgu; *aspṛṣṭa*—que no han sido contaminados; *rajaḥ-tamaskāḥ*—por las modalidades inferiores de la naturaleza material (*rajo-guṇa* y *tamo-guṇa*); *yasya*—de quien; *īhitam*—la actividad; *na viduḥ*—no conocen; *spṛṣṭa-māyāḥ*—que se hallan bajo la influencia de la energía ilusoria; *sattva-pradhānāḥ*—principalmente bajo la modalidad de la bondad; *api*—aunque; *kim*—qué decir de; *tataḥ*—que ellos; *anye*—otros.

@@ -1,9 +1,9 @@
 ### CC Antya 1.117
 
-> তাতে জানি — পূর্বে তোমার পাঞাছে প্রসাদ ।
+> তাতে জানি — পূর্বে তোমার পাঞাছে প্রসাদ ।\
 > তাহা বিনা নহে তোমার হৃদয়ানুবাদ ।।” ॥ ১১৭ ॥
 
-> tāte jāni—pūrve tomāra pāñāche prasāda
+> tāte jāni—pūrve tomāra pāñāche prasāda\
 > tāhā vinā nahe tomāra hṛdayānuvāda"
 
 *tāte*—in such instances; *jāni*—I can understand; *pūrve*—previously; *tomāra*—Your; *pāñāche prasāda*—he has obtained special mercy; *tāhā vinā*—without that; *nahe*—there is not; *tomāra*—Your; *hṛdaya-anuvāda*—expression of feelings.

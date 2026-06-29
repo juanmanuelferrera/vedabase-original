@@ -1,11 +1,11 @@
 ### SB 1.9.26
 
-> पुरुषस्वभावविहितान्यथावर्णं यथाश्रमम् ।
+> पुरुषस्वभावविहितान्यथावर्णं यथाश्रमम् ।\
 > वैराग्यरागोपाधिभ्यामाम्नातोभयलक्षणान् ॥२६॥
 
-> puruṣa-sva-bhāva-vihitān
-> yathā-varṇaṁ yathāśramam
-> vairāgya-rāgopādhibhyām
+> puruṣa-sva-bhāva-vihitān\
+> yathā-varṇaṁ yathāśramam\
+> vairāgya-rāgopādhibhyām\
 > āmnātobhaya-lakṣaṇān
 
 *puruṣa*—el ser humano; *sva-bhāva*—por sus propias cualidades adquiridas; *vihitān*—prescritas; *yathā*—de acuerdo con; *varṇam*—clasificación de las castas; *yathā*—de acuerdo con; *āśramam*—órdenes de vida; *vairāgya*—desapego; *rāga*—apego; *upādhibhyām*—por dichas designaciones; *āmnāta*—sistemáticamente; *ubhaya*—ambos; *lakṣaṇān*—signos.

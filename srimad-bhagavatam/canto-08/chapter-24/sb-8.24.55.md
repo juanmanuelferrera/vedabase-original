@@ -1,11 +1,11 @@
 ### SB 8.24.55
 
-> पुराणसंहितां दिव्यां साङ्ख्ययोगक्रियावतीम
+> पुराणसंहितां दिव्यां साङ्ख्ययोगक्रियावतीम\
 > सत्यव्रतस्य राजर्षेरात्मगुह्यमशेषतः ॥५५॥
 
-> purāṇa-saṁhitāṁ divyāṁ
-> sāṅkhya-yoga-kriyāvatīm
-> satyavratasya rājarṣer
+> purāṇa-saṁhitāṁ divyāṁ\
+> sāṅkhya-yoga-kriyāvatīm\
+> satyavratasya rājarṣer\
 > ātma-guhyam aśeṣataḥ
 
 *purāṇa*—the subject matter explained in *the Purāṇas,* the old histories, especially the *Matsya Purāṇa*; *saṁhitām*—the Vedic instructions contained in *Brahma-saṁhitā* and other *saṁhitās*; *divyām*—all transcendental literatures; *sāṅkhya*—the philosophical way of *sāṅkhya-yoga*; *yoga*—the science of self-realization or *bhakti-yoga*; *kriyāvatīm*—practically applied in life; *satyavratasya*—of King Satyavrata; *rāja-ṛṣeḥ*—the great king and saint; *ātma-guhyam*—all the mysteries of self-realization; *aśeṣataḥ*—including all branches.

@@ -1,9 +1,9 @@
 ### CC Antya 14.108
 
-> বেণুনাদ শুনি’ আইলা রাধা-ঠাকুরাণী ।
+> বেণুনাদ শুনি’ আইলা রাধা-ঠাকুরাণী ।\
 > সব সখীগণ-সঙ্গে করিয়া সাজনি ॥১০৮॥
 
-> veṇu-nāda śuni' āilā rādhā-ṭhākurāṇī
+> veṇu-nāda śuni' āilā rādhā-ṭhākurāṇī\
 > saba sakhī-gaṇa-saṅge kariyā sājani
 
 *veṇu-nāda*—the vibration of the flute; *śuni'*—hearing; *āilā*—came; *rādhā-ṭhākurāṇī*—Śrīmatī Rādhārāṇī; *saba*—all; *sakhī-gaṇa-saṅge*—accompanied by *gopīs*; *kariyā sājani*—nicely dressed.

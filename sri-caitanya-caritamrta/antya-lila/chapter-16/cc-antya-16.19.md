@@ -1,9 +1,9 @@
 ### CC Antya 16.19
 
-> আজ্ঞা দেহ’, — ব্রাহ্মণ-ঘরে অন্ন লঞা দিয়ে ।
+> আজ্ঞা দেহ’, — ব্রাহ্মণ-ঘরে অন্ন লঞা দিয়ে ।\
 > তাহাঁ তুমি প্রসাদ পাও, তবে আমি জীয়ে ।।” ॥ ১৯ ॥
 
-> ājñā deha',—brāhmaṇa-ghare anna lañā diye
+> ājñā deha',—brāhmaṇa-ghare anna lañā diye\
 > tāhāṅ tumi prasāda pāo, tabe āmi jīye"
 
 *ājñā deha'*—permit me; *brāhmaṇa-ghare*—to the house of a *brāhmaṇa*; *anna*—food; *lañā diye*—I shall offer; *tāhāṅ*—there; *tumi*—you; *prasāda pāo*—take *prasāda*; *tabe*—then; *āmi*—I; *jīye*—shall live.

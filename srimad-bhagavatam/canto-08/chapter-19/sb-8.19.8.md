@@ -1,11 +1,11 @@
 ### SB 8.19.8
 
-> तमायान्तं समालोक्य शूलपाणिं कृतान्तवत
+> तमायान्तं समालोक्य शूलपाणिं कृतान्तवत\
 > चिन्तयामास कालज्ञओ विष्णुर्मायाविनां वरः ॥८॥
 
-> tam āyāntaṁ samālokya
-> śūla-pāṇiṁ kṛtāntavat
-> cintayām āsa kāla-jño
+> tam āyāntaṁ samālokya\
+> śūla-pāṇiṁ kṛtāntavat\
+> cintayām āsa kāla-jño\
 > viṣṇur māyāvināṁ varaḥ
 
 *tam*—him (Hiraṇyakaśipu); *āyāntam*—coming forward; *samālokya*—observing minutely; *śūla-pāṇim*—with a trident in his hand; *kṛtānta-vat*—just like death personified; *cintayām āsa*—thought; *kāla-jñaḥ*—who knows the progress of time; *viṣṇuḥ*—Lord Viṣṇu; *māyāvinām*—of all kinds of mystics; *varaḥ*—the chief.

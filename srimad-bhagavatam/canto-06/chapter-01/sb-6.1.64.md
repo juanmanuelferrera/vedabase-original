@@ -1,11 +1,11 @@
 ### SB 6.1.64
 
-> तामेव तोषयामास पित्र्येणार्थेन यावता
+> तामेव तोषयामास पित्र्येणार्थेन यावता\
 > ग्राम्यैर्मनोरमैः कामैः प्रसीदेत यथा तथा ॥६४॥
 
-> tām eva toṣayām āsa
-> pitryeṇārthena yāvatā
-> grāmyair manoramaiḥ kāmaiḥ
+> tām eva toṣayām āsa\
+> pitryeṇārthena yāvatā\
+> grāmyair manoramaiḥ kāmaiḥ\
 > prasīdeta yathā tathā
 
 *tām*—her (the prostitute); *eva*—indeed; *toṣayām āsa*—he tried to please; *pitryeṇa*—he got from his father's hard labor; *arthena*—by the money; *yāvatā*—as long as possible; *grāmyaiḥ*—material; *manaḥ-ramaiḥ*—pleasing to her mind; *kāmaiḥ*—by presentations for sense enjoyment; *prasīdeta*—she would be satisfied; *yathā*—so that; *tathā*—in that way.

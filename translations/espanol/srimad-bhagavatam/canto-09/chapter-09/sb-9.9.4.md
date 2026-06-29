@@ -1,11 +1,11 @@
 ### SB 9.9.4
 
-> कोऽपि धारयिता वेगं पतन्त्या मे महीतले
+> कोऽपि धारयिता वेगं पतन्त्या मे महीतले\
 > अन्यथा भूतलं भित्त्वा नृप यास्ये रसातलम ॥४॥
 
-> ko 'pi dhārayitā vegaṁ
-> patantyā me mahī-tale
-> anyathā bhū-talaṁ bhittvā
+> ko 'pi dhārayitā vegaṁ\
+> patantyā me mahī-tale\
+> anyathā bhū-talaṁ bhittvā\
 > nṛpa yāsye rasātalam
 
 *kaḥ*—quién es la persona; *api*—en verdad; *dhārayitā*—que puede sostener; *vegam*—la fuerza de las olas; *patantyāḥ*—mientras caen; *me*—de mí; *mahī-tale*—sobre la Tierra; *anyathā*—de lo contrario; *bhū-talam*—la superficie de la Tierra; *bhittvā*—atravesando; *nṛpa*—¡oh, rey!; *yāsye*—descenderé; *rasātalam*—a Pātāla, la parte inferior del universo.

@@ -1,9 +1,9 @@
 ### CC Antya 3.108
 
-> বেশ্যা কহে, — “মোর সঙ্গ হউক একবার ।
+> বেশ্যা কহে, — “মোর সঙ্গ হউক একবার ।\
 > দ্বিতীয়বারে ধরিতে পাইক লইমু তোমার ।।” ॥ ১০৮ ॥
 
-> veśyā kahe,—"mora saṅga ha-uka eka-bāra
+> veśyā kahe,—"mora saṅga ha-uka eka-bāra\
 > dvitīya-bāre dharite pāika la-imu tomāra"
 
 *veśyā kahe*—the prostitute said; *mora saṅga*—union with me; *ha-uka*—let there be; *eka-bāra*—one time; *dvitīya-bāre*—the second time; *dharite*—to arrest; *pāika*—constable; *la-imu*—I shall take; *tomāra*—your.

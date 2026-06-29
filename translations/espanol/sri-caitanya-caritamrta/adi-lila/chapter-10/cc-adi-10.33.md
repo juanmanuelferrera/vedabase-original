@@ -1,9 +1,9 @@
 ### CC Adi 10.33
 
-> তাঁহার অনুজ শাখা — শঙ্করপণ্ডিত ।
+> তাঁহার অনুজ শাখা — শঙ্করপণ্ডিত ।\
 > ‘প্রভু-পাদোপাধান’ যাঁর নাম বিদিত ॥৩৩॥
 
-> tāṅhāra anuja śākhā--śaṅkara-paṇḍita
+> tāṅhāra anuja śākhā--śaṅkara-paṇḍita\
 > 'prabhu-pādopādhāna' yāṅra nāma vidita
 
 *tāṅhāra*—su (de Dāmodara Paṇḍita); *anuja*—hermano menor; *śākhā*—la undécima rama; *śaṅkara-paṇḍita*—de nombre Śaṅkara Paṇḍita; *prabhu*—del Señor; *pāda-upadhāna*—sandalias; *yāṅra*—cuyo; *nāma*—nombre; *vidita*—célebre.

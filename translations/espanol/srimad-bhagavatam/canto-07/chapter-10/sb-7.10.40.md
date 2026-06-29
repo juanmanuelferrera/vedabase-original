@@ -1,11 +1,11 @@
 ### SB 7.10.40
 
-> यथा यथा भगवतो भक्त्या परमयाभिदा
+> यथा यथा भगवतो भक्त्या परमयाभिदा\
 > नृपाश्चैद्यादयः सात्म्यं हरेस्तच्चिन्तया ययुः ॥४०॥
 
-> yathā yathā bhagavato
-> bhaktyā paramayābhidā
-> nṛpāś caidyādayaḥ sātmyaṁ
+> yathā yathā bhagavato\
+> bhaktyā paramayābhidā\
+> nṛpāś caidyādayaḥ sātmyaṁ\
 > hares tac-cintayā yayuḥ
 
 *yathā yathā*—tal como; *bhagavataḥ*—de la Suprema Personalidad de Dios; *bhaktyā*—con servicio devocional; *paramayā*—supremo; *abhidā*—pensando sin cesar en esas actividades; *nṛpāḥ*—reyes; *caidya-ādayaḥ*—Śiśupāla, Dantavakra y otros; *sātmyam*—la misma forma; *hareḥ*—de la Suprema Personalidad de Dios; *tat-cintayā*—por pensar constantemente en Él; *yayuḥ*—fueron de regreso al hogar, de vuelta a Dios.

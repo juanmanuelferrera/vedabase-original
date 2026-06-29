@@ -1,11 +1,11 @@
 ### CC Madhya 22.110
 
-> তস্মাদ্ভারত সর্বাত্মা ভগবান্ হরিরীশ্বরঃ ।
+> তস্মাদ্ভারত সর্বাত্মা ভগবান্ হরিরীশ্বরঃ ।\
 > শ্রোতব্যঃ কীর্তিতব্যশ্চ স্মর্তব্যশ্চেচ্ছতাভয়ম্ ॥১১০॥
 
-> tasmād bhārata sarvātmā
-> bhagavān harir īśvaraḥ
-> śrotavyaḥ kīrtitavyaś ca
+> tasmād bhārata sarvātmā\
+> bhagavān harir īśvaraḥ\
+> śrotavyaḥ kīrtitavyaś ca\
 > smartavyaś cecchatābhayam
 
 *tasmāt*—por lo tanto; *bhārata*—¡oh, descendiente de Bharata!; *sarva-ātmā*—el Señor omnipresente, que está situado en el corazón de todos; *bhagavān*—la Suprema Personalidad de Dios; *hariḥ*—el Señor Hari, que disipa todas las condiciones miserables de la existencia material; *īśvaraḥ*—el controlador supremo; *śrotavyaḥ*—se ha de escuchar acerca de Él (de fuentes fidedignas); *kīrtitavyaḥ*—ha de ser glorificado (según se ha escuchado); *ca*—también; *smartavyaḥ*—ha de ser recordado; *ca*—y; *icchatā*—por una persona que desee; *abhayam*—liberarse de la temible condición de la existencia material.

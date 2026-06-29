@@ -1,11 +1,11 @@
 ### SB 4.28.42
 
-> परे ब्रह्मणि चात्मानं परं ब्रह्म तथात्मनि ।
+> परे ब्रह्मणि चात्मानं परं ब्रह्म तथात्मनि ।\
 > वीक्षमाणो विहायेक्षामस्मादुपरराम ह ॥४२॥
 
-> pare brahmaṇi cātmānaṁ
-> paraṁ brahma tathātmani
-> vīkṣamāṇo vihāyekṣām
+> pare brahmaṇi cātmānaṁ\
+> paraṁ brahma tathātmani\
+> vīkṣamāṇo vihāyekṣām\
 > asmād upararāma ha
 
 *pare*—trascendental; *brahmaṇi*—en el Absoluto; *ca*—y; *ātmānam*—el ser; *param*—el Supremo; *brahma*—Absoluto; *tathā*—también; *ātmani*—en sí mismo; *vīkṣamāṇaḥ*—observando entonces; *vihāya*—abandonar; *īkṣām*—reservas; *asmāt*—de ese proceso; *upararāma*—retiró; *ha*—ciertamente.

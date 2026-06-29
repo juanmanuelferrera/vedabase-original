@@ -1,9 +1,9 @@
 ### CC Madhya 6.100
 
-> প্রতিযুগে করেন কৃষ্ণ যুগ-অবতার ।
+> প্রতিযুগে করেন কৃষ্ণ যুগ-অবতার ।\
 > তর্কনিষ্ঠ হৃদয় তোমার নাহিক বিচার ॥১০০॥
 
-> pratiyuge karena kṛṣṇa yuga-avatāra
+> pratiyuge karena kṛṣṇa yuga-avatāra\
 > tarka-niṣṭha hṛdaya tomāra nāhika vicāra
 
 *prati-yuge*—en cada era o milenio; *karena*—hace; *kṛṣṇa*—el Señor Kṛṣṇa; *yuga-avatāra*—encarnación para la era; *tarka-niṣṭha*—endurecido por la argumentación; *hṛdaya*—corazón; *tomāra*—tu; *nāhika*—no hay; *vicāra*—consideración.

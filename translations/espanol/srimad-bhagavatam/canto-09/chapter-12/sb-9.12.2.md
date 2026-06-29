@@ -1,11 +1,11 @@
 ### SB 9.12.2
 
-> देवानीकस्ततोऽनीहः पारियात्रोऽथ तत्सुतः
+> देवानीकस्ततोऽनीहः पारियात्रोऽथ तत्सुतः\
 > ततो बलस्थलस्तस्माद्वज्रनाभोऽर्कसम्भवः ॥२॥
 
-> devānīkas tato 'nīhaḥ
-> pāriyātro 'tha tat-sutaḥ
-> tato balasthalas tasmād
+> devānīkas tato 'nīhaḥ\
+> pāriyātro 'tha tat-sutaḥ\
+> tato balasthalas tasmād\
 > vajranābho 'rka-sambhavaḥ
 
 *devānīkaḥ*—Devānīka; *tataḥ*—de Kṣemadhanvā; *anīhaḥ*—de Devānīka nació Anīha; *pāriyātraḥ*—Pāriyātra; *atha*—a continuación; *tat-sutaḥ*—el hijo de Anīha; *tataḥ*—de Pāriyātra; *balasthalaḥ*—Balasthala; *tasmāt*—de Balasthala; *vajranābhaḥ*—Vajranābha; *arka-sambhavaḥ*—obtenido a partir del dios del Sol.

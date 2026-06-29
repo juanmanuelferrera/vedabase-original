@@ -1,11 +1,11 @@
 ### Īśo 9
 
-> अन्धं तमः प्रविशन्ति येऽविद्यामुपासते।
+> अन्धं तमः प्रविशन्ति येऽविद्यामुपासते।\
 > ततो भूय इव ते तमो य उ विद्यायाँ रताः॥९॥
 
-> andhaṁ tamaḥ praviśanti
-> ye 'vidyām upāsate
-> tato bhūya iva te tamo
+> andhaṁ tamaḥ praviśanti\
+> ye 'vidyām upāsate\
+> tato bhūya iva te tamo\
 > ya u vidyāyām ratāḥ
 
 *andham*—ignorancia burda; *tamaḥ*—oscuridad; *praviśanti*—entran en; *ye*—quienes; *avidyām*—nesciencia; *upāsate*—adoran; *tataḥ*—que eso; *bhūyaḥ*—aún más; *iva*—como; *te*—ellos; *tamaḥ*—oscuridad; *ye*—quienes; *u*—también; *vidyāyām*—en el cultivo del conocimiento; *ratāḥ*—ocupados.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.64
 
-> শ্রদ্ধাবান্ জন হয় ভক্তি-অধিকারী ।
+> শ্রদ্ধাবান্ জন হয় ভক্তি-অধিকারী ।\
 > ‘উত্তম,’ ‘মধ্যম’, ‘কনিষ্ঠ’ — শ্রদ্ধা-অনুসারী ॥৬৪॥
 
-> śraddhāvān jana haya bhakti-adhikārī
+> śraddhāvān jana haya bhakti-adhikārī\
 > 'uttama', 'madhyama', 'kaniṣṭha'—śraddhā-anusārī
 
 *śraddhāvān jana*—a person with faith; *haya*—is; *bhakti-adhikārī*—eligible for discharging transcendental loving service to the Lord; *uttama*—first class; *madhyama*—intermediate; *kaniṣṭha*—the lowest class; *śraddhā-anusārī*—according to the proportion of faith.

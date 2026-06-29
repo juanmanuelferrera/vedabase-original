@@ -1,9 +1,9 @@
 ### CC Adi 1.24
 
-> তৃতীয় শ্লোকেতে করি বস্তুর নির্দেশ ।
+> তৃতীয় শ্লোকেতে করি বস্তুর নির্দেশ ।\
 > যাহা হইতে জানি পরতত্ত্বের উদ্দেশ ॥২৪॥
 
-> tṛtīya ślokete kari vastura nirdeśa
+> tṛtīya ślokete kari vastura nirdeśa\
 > yāhā ha-ite jāni para-tattvera uddeśa
 
 *tṛtīya ślokete*—in the third verse; *kari*—I make; *vastura*—of the object; *nirdeśa*—indication; *yāhā ha-ite*—from which; *jāni*—I understand; *para-tattvera*—of the Absolute Truth; *uddeśa*—identification.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.13
 
-> গোপ-বালক সব প্রভুকে দেখিয়া ।
+> গোপ-বালক সব প্রভুকে দেখিয়া ।\
 > ‘হরি’ ‘হরি’ বলি’ ডাকে উচ্চ করিয়া ॥১৩॥
 
-> gopa-bālaka saba prabhuke dekhiyā
+> gopa-bālaka saba prabhuke dekhiyā\
 > 'hari' 'hari' bali' ḍāke ucca kariyā
 
 *gopa-bālaka saba*—todos los pastorcillos de vacas; *prabhuke dekhiyā*—al ver al Señor; *hari hari bali'*—vibrando los sonidos «Hari, Hari»; *ḍāke*—gritan; *ucca kariyā*—en voz alta.

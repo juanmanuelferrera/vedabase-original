@@ -1,11 +1,11 @@
 ### SB 3.11.23
 
-> निशावसान आरब्धो लोककल्पोऽनुवर्तते ।
+> निशावसान आरब्धो लोककल्पोऽनुवर्तते ।\
 > यावद्दिनं भगवतो मनून्भुञ्जंश्चतुर्दश ॥२३॥
 
-> niśāvasāna ārabdho
-> loka-kalpo 'nuvartate
-> yāvad dinaṁ bhagavato
+> niśāvasāna ārabdho\
+> loka-kalpo 'nuvartate\
+> yāvad dinaṁ bhagavato\
 > manūn bhuñjaṁś catur-daśa
 
 *niśā*—night; *avasāne*—termination; *ārabdhaḥ*—beginning from; *loka-kalpaḥ*—further creation of the three worlds; *anuvartate*—follows; *yāvat*—until; *dinam*—the daytime; *bhagavataḥ*—of the lord (Brahmā); *manūn*—the Manus; *bhuñjan*—existing through; *catuḥ-daśa*—fourteen.

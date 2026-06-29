@@ -1,13 +1,13 @@
 ### 6
 
-> दृष्टैः स्वभावजनितैर्वपुषश्च दोषैर्
-> न प्राकृतत्वमीह भक्तजनस्य पश्येत् ।
-> गङ्गाम्भसां न खलु बुद्बुदफेन पङ्कैः
+> दृष्टैः स्वभावजनितैर्वपुषश्च दोषैर्\
+> न प्राकृतत्वमीह भक्तजनस्य पश्येत् ।\
+> गङ्गाम्भसां न खलु बुद्बुदफेन पङ्कैः\
 > र्ब्रह्मद्रवत्वमपगच्छतिनीरधर्मैः ॥६॥
 
-> dṛṣṭaiḥ svabhāva-janitair vapuṣaś ca doṣair
-> na prākṛtatvam iha bhakta janasya paśyet
-> gaṅgāmbhasāṁ na khalu budbuda-phena-paṅkair
+> dṛṣṭaiḥ svabhāva-janitair vapuṣaś ca doṣair\
+> na prākṛtatvam iha bhakta janasya paśyet\
+> gaṅgāmbhasāṁ na khalu budbuda-phena-paṅkair\
 > brahma-dravatvam apagacchati nīra-dharmaiḥ
 
 *dṛṣṭaiḥ*—vistos con la visión ordinaria; *svabhāva-janitaiḥ*—nacidos de la propia naturaleza; *vapuṣaḥ*—del cuerpo; *ca*—y; *doṣaiḥ*—por los defectos; *na*—no; *prākṛtatvam*—el estado de ser material; *iha*—en este mundo; *bhakta janasya*—de un devoto puro; *paśyet*—uno debería ver; *gaṅgā-ambhasām*—de las aguas del Ganges; *na*—no; *khalu*—ciertamente; *budbuda-phena-paṅkaiḥ*—por las burbujas, la espuma y el lodo; *brahma-dravatvam*—la naturaleza trascendental; *apagacchati*—se deteriora; *nīra-dharmaiḥ*—las características del agua.

@@ -1,11 +1,11 @@
 ### SB 3.11.32
 
-> अन्तः स तस्मिन्सलिल आस्तेऽनन्तासनो हरिः ।
+> अन्तः स तस्मिन्सलिल आस्तेऽनन्तासनो हरिः ।\
 > योगनिद्रानिमीलाक्षः स्तूयमानो जनालयैः ॥३२॥
 
-> antaḥ sa tasmin salila
-> āste 'nantāsano hariḥ
-> yoga-nidrā-nimīlākṣaḥ
+> antaḥ sa tasmin salila\
+> āste 'nantāsano hariḥ\
+> yoga-nidrā-nimīlākṣaḥ\
 > stūyamāno janālayaiḥ
 
 *antaḥ*—dentro; *saḥ*—esa; *tasmin*—en esa; *salile*—agua; *āste*—hay; *ananta*—Ananta; *āsanaḥ*—en el asiento de; *hariḥ*—el Señor; *yoga*—místico; *nidrā*—sueño; *nimīla-akṣaḥ*—ojos cerrados; *stūya-mānaḥ*—siendo glorificado; *jana-ālayaiḥ*—por los habitantes de los planetas Janalokas.

@@ -1,9 +1,9 @@
 ### CC Antya 18.76
 
-> উঠিতেই অস্থি সব লাগিল নিজ-স্থানে ।
+> উঠিতেই অস্থি সব লাগিল নিজ-স্থানে ।\
 > ‘অর্ধবাহ্যে’ ইতি-উতি করেন দরশনে ॥৭৬॥
 
-> uṭhitei asthi saba lāgila nija-sthāne
+> uṭhitei asthi saba lāgila nija-sthāne\
 > 'ardha-bāhye' iti-uti karena daraśane
 
 *uṭhitei*—tan pronto como se levantó; *asthi*—huesos; *saba*—todos; *lāgila*—se contrajeron; *nija-sthāne*—en sus propios lugares; *ardha-bāhye*—en conciencia semiexterna; *iti-uti*—aquí y allá; *karena daraśane*—mira.

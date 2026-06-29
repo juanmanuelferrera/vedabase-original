@@ -1,9 +1,9 @@
 ### SB 5.13.26
 
-> राजोवाच
+> राजोवाच\
 > यो ह वा इह बहुविदा महाभागवत त्वयाभिहितः परोक्षेण वचसा जीवलोकभवाध्वा सह्यार्यमनीषया कल्पितविषयोनाञ्जसाव्युत्पन्नलोकसमधिगमः अथ तदेवैतद्दुरवगमंसमवेतानुकल्पेन निर्दिश्यतामिति ॥२६॥
 
-> rājovāca
+> rājovāca\
 > yo ha vā iha bahu-vidā mahā-bhāgavata tvayābhihitaḥ parokṣeṇa vacasā jīva-loka-bhavādhvā sa hy ārya-manīṣayā kalpita-viṣayo nāñjasāvyutpanna-loka-samadhigamaḥ; atha tad evaitad duravagamaṁ samavetānukalpena nirdiśyatām iti.
 
 *rājā uvāca*—el rey Parīkṣit dijo; *yaḥ*—que; *ha*—ciertamente; *vā*—o; *iha*—en esa narración; *bahu-vidā*—que eres consciente de muchos episodios relacionados con el conocimiento trascendental; *mahā-bhāgavata*—¡oh, gran sabio devoto!; *tvayā*—por ti; *abhihitaḥ*—descrita; *parokṣeṇa*—en sentido figurado; *vacasā*—con palabras; *jīva-loka-bhava-adhvā*—el sendero de la existencia material del alma condicionada; *saḥ*—eso; *hi*—en verdad; *ārya-manīṣayā*—por la inteligencia de devotos avanzados; *kalpita-viṣayaḥ*—el tema es imaginado; *na*—no; *añjasā*—directamente; *avyutpanna-loka*—de las personas no muy expertas o inteligentes; *samadhigamaḥ*—la comprensión completa; *atha*—por lo tanto; *tat eva*—debido a eso; *etat*—este tema; *duravagamam*—que es difícil de entender; *samaveta-anukalpena*—sustituyendo el significado directo de esos incidentes; *nirdiśyatām*—sea explicada; *iti*—así.

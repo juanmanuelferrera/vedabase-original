@@ -1,9 +1,9 @@
 ### CC Madhya 22.148
 
-> বৈধীভক্তি-সাধনের কহিলুঁ বিবরণ ।
+> বৈধীভক্তি-সাধনের কহিলুঁ বিবরণ ।\
 > রাগানুগা-ভক্তির লক্ষণ শুন, সনাতন ॥১৪৮॥
 
-> vaidhī-bhakti-sādhanera kahiluṅ vivaraṇa
+> vaidhī-bhakti-sādhanera kahiluṅ vivaraṇa\
 > rāgānugā-bhaktira lakṣaṇa śuna, sanātana
 
 *vaidhī-bhakti*—of devotional service according to the regulative principles; *sādhanera*—of the execution; *kahiluṅ*—I have made; *vivaraṇa*—description; *rāgānugā-bhaktira*—of spontaneous devotional service; *lakṣaṇa*—the symptoms; *śuna*—please hear; *sanātana*—O Sanātana.

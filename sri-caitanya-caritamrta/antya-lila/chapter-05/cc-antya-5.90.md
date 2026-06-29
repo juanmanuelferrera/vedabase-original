@@ -1,9 +1,9 @@
 ### CC Antya 5.90
 
-> এইমত মহাপ্রভু ভক্তগণ লঞা ।
+> এইমত মহাপ্রভু ভক্তগণ লঞা ।\
 > নীলাচলে বিহরয়ে ভক্তি প্রচারিয়া ॥৯০॥
 
-> ei-mata mahāprabhu bhakta-gaṇa lañā
+> ei-mata mahāprabhu bhakta-gaṇa lañā\
 > nīlācale viharaye bhakti pracāriyā
 
 *ei-mata*—in this way; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *bhakta-gaṇa lañā*—accompanied by His pure devotees; *nīlācale*—at Jagannātha Purī; *viharaye*—enjoys transcendental bliss; *bhakti pracāriyā*—preaching the cult of devotional service.

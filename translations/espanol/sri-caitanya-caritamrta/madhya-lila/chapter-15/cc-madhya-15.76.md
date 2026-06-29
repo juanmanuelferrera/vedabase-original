@@ -1,9 +1,9 @@
 ### CC Madhya 15.76
 
-> জলশূন্য ফল দেখি’ পণ্ডিত — হরষিত ।
+> জলশূন্য ফল দেখি’ পণ্ডিত — হরষিত ।\
 > ফল ভাঙ্গি’ শস্যে করে সৎপাত্র পূরিত ॥৭৬॥
 
-> jala-śūnya phala dekhi' paṇḍita--haraṣita
+> jala-śūnya phala dekhi' paṇḍita--haraṣita\
 > phala bhāṅgi' śasye kare sat-pātra pūrita
 
 *jala-śūnya*—sin agua; *phala*—fruto; *dekhi'*—al ver; *paṇḍita*—Rāghava Paṇḍita; *haraṣita*—muy complacido; *phala bhāṅgi'*—rompiendo el fruto; *śasye*—con la pulpa; *kare*—hace; *sat-pātra*—otro plato; *pūrita*—llenado.

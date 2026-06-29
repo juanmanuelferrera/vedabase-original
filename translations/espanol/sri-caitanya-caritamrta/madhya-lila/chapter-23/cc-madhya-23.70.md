@@ -1,11 +1,11 @@
 ### CC Madhya 23.70
 
-> অয়ং নেতা সুরম্যাঙ্গঃ সর্বসল্লক্ষণান্বিতঃ ।
+> অয়ং নেতা সুরম্যাঙ্গঃ সর্বসল্লক্ষণান্বিতঃ ।\
 > রুচিরস্তেজসা যুক্তো বলীয়ান্ বয়সান্বিতঃ ॥৭০॥
 
-> ayaṁ netā suramyāṅgaḥ
-> sarva-sal-lakṣaṇānvitaḥ
-> ruciras tejasā yukto
+> ayaṁ netā suramyāṅgaḥ\
+> sarva-sal-lakṣaṇānvitaḥ\
+> ruciras tejasā yukto\
 > balīyān vayasānvitaḥ
 
 *ayam*—este (Kṛṣṇa); *netā*—héroe supremo; *suramya-aṅgaḥ*—que posee el cuerpo trascendental más hermoso; *sarva-sat-lakṣaṇa*—todos los signos corporales auspiciosos; *anvitaḥ*—dotado de; *ruciraḥ*—que posee una refulgencia muy agradable a la vista; *tejasā*—con todo poder; *yuktaḥ*—dotado; *balīyān*—muy fuerte; *vayasa-anvitaḥ*—de edad juvenil.

@@ -1,11 +1,11 @@
 ### SB 2.4.17
 
-> तपस्विनो दानपरा यशस्विनो मनस्विनो मन्त्रविदः सुमङ्गलाः ।
+> तपस्विनो दानपरा यशस्विनो मनस्विनो मन्त्रविदः सुमङ्गलाः ।\
 > क्षेमं न विन्दन्ति विना यदर्पणं तस्मै सुभद्रश्रवसे नमो नमः ॥१७॥
 
-> tapasvino dāna-parā yaśasvino
-> manasvino mantra-vidaḥ sumaṅgalāḥ
-> kṣemaṁ na vindanti vinā yad-arpaṇaṁ
+> tapasvino dāna-parā yaśasvino\
+> manasvino mantra-vidaḥ sumaṅgalāḥ\
+> kṣemaṁ na vindanti vinā yad-arpaṇaṁ\
 > tasmai subhadra-śravase namo namaḥ
 
 *tapasvinaḥ*—los grandes sabios eruditos; *dāna-parāḥ*—el gran ejecutor de caridades; *yaśasvinaḥ*—el gran trabajador distinguido; *manasvinaḥ*—los grandes filósofos o místicos; *mantra-vidaḥ*—el gran cantor de himnos védicos; *su-maṅgalāḥ*—estrictos seguidores de los principios védicos; *kṣemam*—resultado provechoso; *na*—jamás; *vindanti*—logran; *vinā*—sin; *yat-arpaṇam*—dedicación; *tasmai*—a Él; *subhadra*—auspicioso; *śravase*—oír hablar de Él; *namaḥ*—mis reverencias; *namaḥ*—una y otra vez.

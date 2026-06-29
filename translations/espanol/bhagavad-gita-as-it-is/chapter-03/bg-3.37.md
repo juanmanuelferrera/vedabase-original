@@ -1,13 +1,13 @@
 ### Bg 3.37
 
-> श्रीभगवानुवाच ।
-> काम एष क्रोध एष रजोगुणसमुद्भवः ।
+> श्रीभगवानुवाच ।\
+> काम एष क्रोध एष रजोगुणसमुद्भवः ।\
 > महाशनो महापाप्मा विद्ध्येनमिह वैरिणम् ॥३७॥
 
-> śrī bhagavān uvāca
-> kāma eṣa krodha eṣa
-> rajoguṇa-samudbhavaḥ
-> mahā-śano mahā-pāpmā
+> śrī bhagavān uvāca\
+> kāma eṣa krodha eṣa\
+> rajoguṇa-samudbhavaḥ\
+> mahā-śano mahā-pāpmā\
 > viddhy enam iha vairiṇam
 
 *śrī bhagavān uvāca*—la Personalidad de Dios dijo; *kāmaḥ*—lujuria; *eṣaḥ*—todo esto; *krodhaḥ*—ira; *eṣaḥ*—todos estos; *rajo-guṇa*—la modalidad de la pasión; *samud-bhavaḥ*—nacida de; *mahā-śanaḥ*—que todo lo devora; *mahā-pāpmā*—sumamente pecaminosa; *viddhi*—sabe; *enam*—esto; *iha*—en el mundo material; *vairiṇam*—el peor enemigo.

@@ -1,9 +1,9 @@
 ### CC Adi 12.82
 
-> ভূগর্ভ গোসাঞি, আর ভাগবতদাস ।
+> ভূগর্ভ গোসাঞি, আর ভাগবতদাস ।\
 > যেই দুই আসি’ কৈল বৃন্দাবনে বাস ॥৮২॥
 
-> bhūgarbha gosāñi, āra bhāgavata-dāsa
+> bhūgarbha gosāñi, āra bhāgavata-dāsa\
 > yei dui āsi' kaila vṛndāvane vāsa
 
 *bhūgarbha gosāñi*—of the name Bhūgarbha Gosāñi; *āra*—and; *bhāgavata-dāsa*—of the name Bhāgavata dāsa; *yei dui*—both of them; *āsi'*—coming; *kaila*—did; *vṛndāvane vāsa*—residing in Vṛndāvana.

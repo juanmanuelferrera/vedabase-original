@@ -1,9 +1,9 @@
 ### CC Madhya 20.16
 
-> গড়দ্বার-পথ ছাড়িলা, নারে তাহাঁ যাইতে ।
+> গড়দ্বার-পথ ছাড়িলা, নারে তাহাঁ যাইতে ।\
 > রাত্রি-দিন চলি’ আইলা পাতড়া-পর্বতে ॥১৬॥
 
-> gaḍa-dvāra-patha chāḍilā, nāre tāhāṅ yāite
+> gaḍa-dvāra-patha chāḍilā, nāre tāhāṅ yāite\
 > rātri-dina cali' āilā pātaḍā-parvate
 
 *gaḍa-dvāra-patha*—el camino de la fortaleza; *chāḍilā*—abandonó; *nāre*—incapaz; *tāhāṅ*—allí; *yāite*—de ir; *rātri-dina*—noche y día; *cali'*—caminando; *āilā*—llegó; *pātaḍā-parvate*—al terreno montañoso conocido como Pātaḍā.

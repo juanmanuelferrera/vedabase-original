@@ -1,11 +1,11 @@
 ### SB 4.8.48
 
-> किरीटिनं कुण्डलिनं केयूरवलयान्वितम् ।
+> किरीटिनं कुण्डलिनं केयूरवलयान्वितम् ।\
 > कौस्तुभाभरणग्रीवं पीतकौशेयवाससम् ॥४८॥
 
-> kirīṭinaṁ kuṇḍalinaṁ
-> keyūra-valayānvitam
-> kaustubhābharaṇa-grīvaṁ
+> kirīṭinaṁ kuṇḍalinaṁ\
+> keyūra-valayānvitam\
+> kaustubhābharaṇa-grīvaṁ\
 > pīta-kauśeya-vāsasam
 
 *kirīṭinam*—the Lord is decorated with a jeweled helmet; *kuṇḍalinam*—with pearl earrings; *keyūra*—jeweled necklace; *valaya-anvitam*—with jeweled bracelets; *kaustubha-ābharaṇa-grīvam*—His neck is decorated by the Kaustubha jewel; *pīta-kauśeya-vāsasam*—and He is dressed with yellow silk garments.

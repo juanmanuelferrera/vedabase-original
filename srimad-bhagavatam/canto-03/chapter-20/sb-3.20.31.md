@@ -1,11 +1,11 @@
 ### SB 3.20.31
 
-> गूहन्तीं व्रीडयात्मानं नीलालकवरूथिनीम् ।
+> गूहन्तीं व्रीडयात्मानं नीलालकवरूथिनीम् ।\
 > उपलभ्यासुरा धर्म सर्वे सम्मुमुहुः स्त्रियम् ॥३१॥
 
-> gūhantīṁ vrīḍayātmānaṁ
-> nīlālaka-varūthinīm
-> upalabhyāsurā dharma
+> gūhantīṁ vrīḍayātmānaṁ\
+> nīlālaka-varūthinīm\
+> upalabhyāsurā dharma\
 > sarve sammumuhuḥ striyam
 
 *gūhantīm*—hiding; *vrīḍayā*—out of shyness; *ātmānam*—herself; *nīla*—dark; *alaka*—hair; *varūthinīm*—a bunch; *upalabhya*—upon imagining; *asurāḥ*—the demons; *dharma*—O Vidura; *sarve*—all; *sammumuhuḥ*—were captivated; *striyam*—woman.

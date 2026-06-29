@@ -1,9 +1,9 @@
 ### CC Adi 17.83
 
-> রক্ত-পীতবর্ণ, — নাহি অষ্ঠি-বল্কল ।
+> রক্ত-পীতবর্ণ, — নাহি অষ্ঠি-বল্কল ।\
 > এক জনের পেট ভরে খাইলে এক ফল ॥৮৩॥
 
-> rakta-pīta-varṇa,—nāhi aṣṭhi-valkala
+> rakta-pīta-varṇa,—nāhi aṣṭhi-valkala\
 > eka janera peṭa bhare khāile eka phala
 
 *rakta-pīta-varṇa*—the mangoes were red and yellow in color; *nāhi*—there was none; *aṣṭhi*—seed; *valkala*—or skin; *eka*—one; *janera*—man's; *peṭa*—belly; *bhare*—filled up; *khāile*—if he would eat; *eka*—one; *phala*—fruit.

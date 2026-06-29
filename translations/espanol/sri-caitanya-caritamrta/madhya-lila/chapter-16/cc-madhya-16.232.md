@@ -1,9 +1,9 @@
 ### CC Madhya 16.232
 
-> “আজ্ঞা দেহ,’ যাঞা দেখি প্রভুর চরণ  ।
+> “আজ্ঞা দেহ,’ যাঞা দেখি প্রভুর চরণ  ।\
 > অন্যথা, না রহে মোর শরীরে জীবন” ॥২৩২॥
 
-> "ājñā deha', yāñā dekhi prabhura caraṇa
+> "ājñā deha', yāñā dekhi prabhura caraṇa\
 > anyathā, nā rahe mora śarīre jīvana"
 
 *ājñā deha'*—por favor, dame permiso; *yāñā*—yendo; *dekhi*—pueda ver; *prabhura caraṇa*—los pies de loto del Señor; *anyathā*—de lo contrario; *nā rahe*—no permanecerá; *mora*—mi; *śarīre*—en el cuerpo; *jīvana*—vida.

@@ -1,13 +1,13 @@
 ### SB 7.9.21
 
-> माया मनः सृजति कर्ममयं बलीयः
-> कालेन चोदितगुणानुमतेन पुंसः
-> छन्दोमयं यदजयार्पितषोडशारं
+> माया मनः सृजति कर्ममयं बलीयः\
+> कालेन चोदितगुणानुमतेन पुंसः\
+> छन्दोमयं यदजयार्पितषोडशारं\
 > संसारचक्रमज कोऽतितरेत्त्वदन्यः ॥२१॥
 
-> māyā manaḥ sṛjati karmamayaṁ balīyaḥ
-> kālena codita-guṇānumatena puṁsaḥ
-> chandomayaṁ yad ajayārpita-ṣoḍaśāraṁ
+> māyā manaḥ sṛjati karmamayaṁ balīyaḥ\
+> kālena codita-guṇānumatena puṁsaḥ\
+> chandomayaṁ yad ajayārpita-ṣoḍaśāraṁ\
 > saṁsāra-cakram aja ko 'titaret tvad-anyaḥ
 
 *māyā*—la energía externa de la Suprema Personalidad de Dios; *manaḥ*—la mente**; *sṛjati*—crea; *karma-mayam*—que produce cientos de miles de deseos y actúa conforme a ellos; *balīyaḥ*—extraordinariamente poderosa, insuperable; *kālena*—por el tiempo; *codita-guṇa*—cuyas tres modalidades de la naturaleza material son agitadas; *anumatena*—permitido por la misericordia de la mirada (el tiempo); *puṁsaḥ*—de la porción plenaria, el Señor Viṣṇu, la expansión del Señor Kṛṣṇa; *chandaḥ-mayam*—influida principalmente por las directrices de los *Vedas*; *yat*—que; *ajayā*—debido a la oscuridad de la ignorancia; *arpita*—ofrecidos; *ṣoḍaśa*—dieciséis; *aram*—los radios; *saṁsāra-cakram*—la rueda del nacimiento y la muerte en diversas especies; *aja*—¡oh, Señor innaciente!; *kaḥ*—quién (existe); *atitaret*—capaz de liberarse; *tvat-anyaḥ*—sin refugiarse en Tus pies de loto.

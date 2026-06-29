@@ -1,11 +1,11 @@
 ### SB 1.13.44
 
-> यन्मन्यसे ध्रुवं लोकमध्रुवं वा न चोभयम् ।
+> यन्मन्यसे ध्रुवं लोकमध्रुवं वा न चोभयम् ।\
 > सर्वथा न हि शोच्यास्ते स्नेहादन्यत्र मोहजात् ॥४४॥
 
-> yan manyase dhruvaṁ lokam
-> adhruvaṁ vā na cobhayam
-> sarvathā na hi śocyās te
+> yan manyase dhruvaṁ lokam\
+> adhruvaṁ vā na cobhayam\
+> sarvathā na hi śocyās te\
 > snehād anyatra mohajāt
 
 *yat*—even though; *manyase*—you think; *dhruvam*—Absolute Truth; *lokam*—persons; *adhruvam*—nonreality; *vā*—either; *na*—or not; *ca*—also; *ubhayam*—or both; *sarvathā*—in all circumstances; *na*—never; *hi*—certainly; *śocyāḥ*—subject for lamentation; *te*—they; *snehāt*—due to affection; *anyatra*—or otherwise; *moha-jāt*—due to bewilderment.

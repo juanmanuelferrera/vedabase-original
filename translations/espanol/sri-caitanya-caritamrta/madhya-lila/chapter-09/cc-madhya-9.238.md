@@ -1,9 +1,9 @@
 ### CC Madhya 9.238
 
-> পুঁথি পাঞা প্রভুর হৈল আনন্দ অপার ৷
+> পুঁথি পাঞা প্রভুর হৈল আনন্দ অপার ৷\
 > কম্পাশ্রু-স্বেদ-স্তম্ভ-পুলক বিকার ৷৷ ২৩৮ ৷৷ ॥২৩৮॥
 
-> puṅthi pāñā prabhura haila ānanda apāra
+> puṅthi pāñā prabhura haila ānanda apāra\
 > kampāśru-sveda-stambha-pulaka vikāra
 
 *puṅthi pāñā*—al obtener esa escritura; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *haila*—hubo; *ānanda*—felicidad; *apāra*—ilimitada; *kampa*—temblor; *aśru*—lágrimas; *sveda*—transpiración; *stambha*—estupefacción; *pulaka*—júbilo; *vikāra*—transformaciones.

@@ -1,9 +1,9 @@
 ### CC Madhya 13.167
 
-> প্ৰভুর ভাবানুরূপ স্বরূপের গান ।
+> প্ৰভুর ভাবানুরূপ স্বরূপের গান ।\
 > যবে যেই রস তাহা করে মূর্তিমান্ ॥১৬৭॥
 
-> prabhura bhāvānurūpa svarūpera gāna
+> prabhura bhāvānurūpa svarūpera gāna\
 > yabe yei rasa tāhā kare mūrtimān
 
 *prabhura*—de Śrī Caitanya Mahāprabhu; *bhāva-anurūpa*—siguiendo las emociones extáticas; *svarūpera*—de Svarūpa Dāmodara; *gāna*—el canto; *yabe*—cuando; *yei*—cualquier; *rasa*—melosidad; *tāhā*—esa; *kare*—hace; *mūrtimān*—personificada.

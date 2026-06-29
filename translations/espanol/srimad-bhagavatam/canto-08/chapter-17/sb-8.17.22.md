@@ -1,11 +1,11 @@
 ### SB 8.17.22
 
-> उपाधावत्पतिं भक्त्या परया कृतकृत्यवत
+> उपाधावत्पतिं भक्त्या परया कृतकृत्यवत\
 > स वै समाधियोगेन कश्यपस्तदबुध्यत ॥२२॥
 
-> sa vai samādhi-yogena
-> kaśyapas tad abudhyata
-> praviṣṭam ātmani harer
+> sa vai samādhi-yogena\
+> kaśyapas tad abudhyata\
+> praviṣṭam ātmani harer\
 > aṁśaṁ hy avitathekṣaṇaḥ
 
 *saḥ*—Kaśyapa Muni; *vai*—en verdad; *samādhi-yogena*—mediante la meditación mística; *kaśyapaḥ*—Kaśyapa Muni; *tat*—entonces; *abudhyata*—supo comprender; *praviṣṭam*—entrado; *ātmani*—dentro de él; *hareḥ*—del Señor Supremo; *aṁśam*—una porción plenaria; *hi*—en verdad; *avitatha-īkṣaṇaḥ*—cuya visión nunca se confunde.

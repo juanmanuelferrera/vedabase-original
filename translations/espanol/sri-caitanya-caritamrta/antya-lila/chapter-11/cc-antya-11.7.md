@@ -1,9 +1,9 @@
 ### CC Antya 11.7
 
-> জয় জয়াদ্বৈতচন্দ্র চৈতন্যের আর্য ।
+> জয় জয়াদ্বৈতচন্দ্র চৈতন্যের আর্য ।\
 > স্বচরণে ভক্তি দেহ’ জয়াদ্বৈতাচার্য ॥৭॥
 
-> jaya jayādvaita-candra caitanyera ārya
+> jaya jayādvaita-candra caitanyera ārya\
 > sva-caraṇe bhakti deha' jayādvaitācārya
 
 *jaya jaya*—todas las glorias; *advaita-candra*—a Advaita Ācārya; *caitanyera ārya*—respetado por el Señor; *sva-caraṇe*—a Tus pies de loto; *bhakti deha'*—por favor concede servicio devocional; *jaya*—todas las glorias; *advaita-ācārya*—a Advaita Ācārya.

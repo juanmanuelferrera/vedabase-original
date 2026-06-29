@@ -1,11 +1,11 @@
 ### CC Adi 4.45
 
-> যথোত্তরমসৌ স্বাদবিশেষোল্লাসময্যপি ।
+> যথোত্তরমসৌ স্বাদবিশেষোল্লাসময্যপি ।\
 > রতির্বাসনয়া স্বাদ্বী ভাসতে কাপি কস্যচিৎ ॥৪৫॥
 
-> yathottaram asau svāda-
-> viśeṣollāsamayy api
-> ratir vāsanayā svādvī
+> yathottaram asau svāda-\
+> viśeṣollāsamayy api\
+> ratir vāsanayā svādvī\
 > bhāsate kāpi kasyacit
 
 *yathā-uttaram*—one after another; *asau*—that; *svāda-viśeṣa*—of particular tastes; *ullāsa-mayī*—consisting of the increase; *api*—although; *ratiḥ*—love; *vāsanayā*—by the different desire; *svādvī*—sweet; *bhāsate*—exists; *kā api*—any; *kasyacit*—of someone (the devotee).

@@ -1,11 +1,11 @@
 ### SB 1.5.22
 
-> इदं हि पुंसस्तपसः श्रुतस्य वा स्विष्टस्य सूक्तस्य च बुद्धिदत्तयोः ।
+> इदं हि पुंसस्तपसः श्रुतस्य वा स्विष्टस्य सूक्तस्य च बुद्धिदत्तयोः ।\
 > अविच्युतोऽर्थः कविभिर्निरूपितो यदुत्तमश्लोकगुणानुवर्णनम् ॥२२॥
 
-> idaṁ hi puṁsas tapasaḥ śrutasya vā
-> sviṣṭasya sūktasya ca buddhi-dattayoḥ
-> avicyuto 'rthaḥ kavibhir nirūpito
+> idaṁ hi puṁsas tapasaḥ śrutasya vā\
+> sviṣṭasya sūktasya ca buddhi-dattayoḥ\
+> avicyuto 'rthaḥ kavibhir nirūpito\
 > yad-uttamaśloka-guṇānuvarṇanam
 
 *idam*—esto; *hi*—indudablemente; *puṁsaḥ*—de todo el mundo; *tapasaḥ*—a fuerza de austeridades; *śrutasya*—a fuerza de estudio de los *Vedas*; *vā*—o; *sviṣṭasya*—sacrificios; *sūktasya*—educación espiritual; *ca*—y; *buddhi*—cultivo de conocimiento; *dattayoḥ*—caridad; *avicyutaḥ*—infalible; *arthaḥ*—interés; *kavibhiḥ*—por la persona erudita reconocida; *nirūpitaḥ*—concluido; *yat*—que; *uttamaśloka*—el Señor, a quien se le describe con poesía selecta; *guṇa-anuvarṇanam*—descripción de las cualidades trascendentales de.

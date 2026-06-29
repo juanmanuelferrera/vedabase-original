@@ -1,13 +1,13 @@
 ### SB 3.24.5
 
-> मैत्रेय उवाच
-> देवहूत्यपि सन्देशं गौरवेण प्रजापतेः ।
+> मैत्रेय उवाच\
+> देवहूत्यपि सन्देशं गौरवेण प्रजापतेः ।\
 > सम्यक्ष्रद्धाय पुरुषं कूटस्थमभजद्गुरुम् ॥५॥
 
-> maitreya uvāca
-> devahūty api sandeśaṁ
-> gauraveṇa prajāpateḥ
-> samyak śraddhāya puruṣaṁ
+> maitreya uvāca\
+> devahūty api sandeśaṁ\
+> gauraveṇa prajāpateḥ\
+> samyak śraddhāya puruṣaṁ\
 > kūṭa-stham abhajad gurum
 
 *maitreyaḥ uvāca*—Maitreya said; *devahūtī*—Devahūti; *api*—also; *sandeśam*—the direction; *gauraveṇa*—with great respect; *prajāpateḥ*—of Kardama; *samyak*—complete; *śraddhāya*—having faith in; *puruṣam*—the Supreme Personality of Godhead; *kūṭa-stham*—situated in everyone's heart; *abhajat*—worshiped; *gurum*—most worshipable.

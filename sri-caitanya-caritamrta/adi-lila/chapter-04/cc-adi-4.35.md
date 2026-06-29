@@ -1,9 +1,9 @@
 ### CC Adi 4.35
 
-> ‘ভবেৎ’ ক্রিয়া বিধিলিঙ্, সেই ইহা কয় ।
+> ‘ভবেৎ’ ক্রিয়া বিধিলিঙ্, সেই ইহা কয় ।\
 > কর্তব্য অবশ্য এই, অন্যথা প্রত্যবায় ॥৩৫॥
 
-> 'bhavet' kriyā vidhiliṅ, sei ihā kaya
+> 'bhavet' kriyā vidhiliṅ, sei ihā kaya\
 > kartavya avaśya ei, anyathā pratyavāya
 
 *bhavet*—*bhavet*; *kriyā*—the verb; *vidhi-liṅ*—an injunction of the imperative mood; *sei*—that; *ihā*—here; *kaya*—says; *kartavya*—to be done; *avaśya*—certainly; *ei*—this; *anyathā*—otherwise; *pratyavāya*—detriment.

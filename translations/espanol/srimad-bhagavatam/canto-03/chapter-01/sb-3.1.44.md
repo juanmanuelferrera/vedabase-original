@@ -1,11 +1,11 @@
 ### SB 3.1.44
 
-> अजस्य जन्मोत्पथनाशनाय कर्माण्यकर्तुर्ग्रहणाय पुंसाम् ।
+> अजस्य जन्मोत्पथनाशनाय कर्माण्यकर्तुर्ग्रहणाय पुंसाम् ।\
 > नन्वन्यथा कोऽर्हति देहयोगं परो गुणानामुत कर्मतन्त्रम् ॥४४॥
 
-> ajasya janmotpatha-nāśanāya
-> karmāṇy akartur grahaṇāya puṁsām
-> nanv anyathā ko 'rhati deha-yogaṁ
+> ajasya janmotpatha-nāśanāya\
+> karmāṇy akartur grahaṇāya puṁsām\
+> nanv anyathā ko 'rhati deha-yogaṁ\
 > paro guṇānām uta karma-tantram
 
 *ajasya*—del innaciente; *janma*—advenimiento; *utpatha-nāśanāya*—con el propósito de aniquilar a los arribistas; *karmāṇi*—obras; *akartuḥ*—de aquel que no está obligado a hacer nada; *grahaṇāya*—ejecutar; *puṁsām*—de todas las personas; *nanu anyathā*—de no ser así; *kaḥ*—quién; *arhati*—puede que merezca; *deha-yogam*—contacto del cuerpo; *paraḥ*—trascendental; *guṇānām*—de las tres modalidades de la naturaleza; *uta*—ni hablar de; *karma-tantram*—la ley de acción y reacción.

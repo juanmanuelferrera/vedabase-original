@@ -1,9 +1,9 @@
 ### CC Madhya 14.46
 
-> ‘হরিবোল’ বলি’ কাঙ্গাল প্রেমে ভাসি’ যায় ।
+> ‘হরিবোল’ বলি’ কাঙ্গাল প্রেমে ভাসি’ যায় ।\
 > ঐছন অদ্ভুত লীলা করে গৌররায় ॥৪৬॥
 
-> 'hari-bola' bali' kāṅgāla preme bhāsi' yāya
+> 'hari-bola' bali' kāṅgāla preme bhāsi' yāya\
 > aichana adbhuta līlā kare gaurarāya
 
 *hari-bola bali'*—by chanting "Hari bol"; *kāṅgāla*—the poor section of people; *preme*—in ecstatic love; *bhāsi' yāya*—began to float; *aichana*—such; *adbhuta*—wonderful; *līlā*—pastimes; *kare*—performs; *gaurarāya*—Śrī Caitanya Mahāprabhu.

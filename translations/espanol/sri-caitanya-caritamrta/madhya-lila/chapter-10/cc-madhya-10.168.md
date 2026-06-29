@@ -1,9 +1,9 @@
 ### CC Madhya 10.168
 
-> 'vyāpya' 'vyāpaka'-bhāve 'jīva'-'brahme' jāni
+> 'vyāpya' 'vyāpaka'-bhāve 'jīva'-'brahme' jāni\
 > jīva-vyāpya, brahma-vyāpaka, śāstrete vākhāni
 
-> 'vyāpya' 'vyāpaka'-bhāve 'jīva'-'brahme' jāni
+> 'vyāpya' 'vyāpaka'-bhāve 'jīva'-'brahme' jāni\
 > jīva-vyāpya, brahma-vyāpaka, śāstrete vākhāni
 
 *vyāpya*—localizado; *vyāpaka*—omnipresente; *bhāve*—de este modo; *jīva*—entidad viviente; *brahme*—el Señor Supremo; *jāni*—conozco; *jīva*—la entidad viviente; *vyāpya*—localizada; *brahma*—el Señor Supremo; *vyāpaka*—omnipresente; *śāstrete*—en las escrituras reveladas; *vākhāni*—descripción.

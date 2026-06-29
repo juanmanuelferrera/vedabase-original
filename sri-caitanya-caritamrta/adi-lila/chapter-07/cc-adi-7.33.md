@@ -1,9 +1,9 @@
 ### CC Adi 7.33
 
-> এত বলি’ মনে কিছু করিয়া বিচার ।
+> এত বলি’ মনে কিছু করিয়া বিচার ।\
 > সন্ন্যাস-আশ্রম প্রভু কৈলা অঙ্গীকার ॥৩৩॥
 
-> eta bali' mane kichu kariyā vicāra
+> eta bali' mane kichu kariyā vicāra\
 > sannyāsa-āśrama prabhu kailā aṅgīkāra
 
 *eta bali'*—saying this; *mane*—within the mind; *kichu*—something; *kariyā*—doing; *vicāra*—consideration; *sannyāsa-āśrama*—the renounced order of life; *prabhu*—the Lord; *kailā*—did; *aṅgīkāra*—accept.

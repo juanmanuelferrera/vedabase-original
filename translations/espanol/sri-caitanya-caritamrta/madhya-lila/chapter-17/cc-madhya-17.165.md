@@ -1,9 +1,9 @@
 ### CC Madhya 17.165
 
-> ‘আর্য, সরল, তুমি — বৃদ্ধ ব্রাহ্মণ  ।
+> ‘আর্য, সরল, তুমি — বৃদ্ধ ব্রাহ্মণ  ।\
 > কাহাঁ হৈতে পাইলে তুমি এই প্রেমধন?’ ॥১৬৫॥
 
-> 'ārya, sarala, tumi--vṛddha brāhmaṇa
+> 'ārya, sarala, tumi--vṛddha brāhmaṇa\
 > kāhāṅ haite pāile tumi ei prema-dhana?'
 
 *ārya*—adelantado en el servicio devocional; *sarala*—sincero; *tumi*—tú; *vṛddha brāhmaṇa*—brāhmaṇa anciano; *kāhāṅ haite*—de dónde; *pāile tumi*—obtuviste; *ei*—esta; *prema-dhana*—opulencia trascendental del amor extático.

@@ -1,9 +1,9 @@
 ### CC Madhya 5.112
 
-> সকল লোকের আগে গোপাল সাক্ষী দিল ।
+> সকল লোকের আগে গোপাল সাক্ষী দিল ।\
 > বড়বিপ্র ছোটবিপ্রে কন্যাদান কৈল ॥১১২॥
 
-> sakala lokera āge gopāla sākṣī dila
+> sakala lokera āge gopāla sākṣī dila\
 > baḍa-vipra choṭa-vipre kanyā-dāna kaila
 
 *sakala*—toda; *lokera*—de la gente; *āge*—en presencia; *gopāla*—el Señor Gopāla; *sākṣī*—testimonio; *dila*—dio; *baḍa-vipra*—el brāhmaṇa anciano; *choṭa-vipre*—al brāhmaṇa joven; *kanyā-dāna*—la entrega de la hija en caridad; *kaila*—hizo.

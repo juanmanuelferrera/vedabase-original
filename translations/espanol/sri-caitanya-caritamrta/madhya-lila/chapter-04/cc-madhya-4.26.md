@@ -1,9 +1,9 @@
 ### CC Madhya 4.26
 
-> বালকের সৌন্দর্যে পুরীর হইল সন্তোষ ।
+> বালকের সৌন্দর্যে পুরীর হইল সন্তোষ ।\
 > তাহার মধুর-বাক্যে গেল ভোক-শোষ ॥২৬॥
 
-> bālakera saundarye purīra ha-ila santoṣa
+> bālakera saundarye purīra ha-ila santoṣa\
 > tāhāra madhura-vākye gela bhoka-śoṣa
 
 *bālakera*—del niño; *saundarye*—en la belleza; *purīra*—de Mādhavendra Purī; *ha-ila*—hubo; *santoṣa*—mucha satisfacción; *tāhāra*—de Él; *madhura-vākye*—por las dulces palabras; *gela*—olvidó; *bhoka-śoṣa*—todo el hambre y la sed.

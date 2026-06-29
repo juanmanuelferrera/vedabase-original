@@ -1,9 +1,9 @@
 ### CC Madhya 22.168
 
-> অভিধেয় সাধনভক্তি শুনে যেই জন ।
+> অভিধেয় সাধনভক্তি শুনে যেই জন ।\
 > অচিরাৎ পায় সেই কৃষ্ণপ্রেমধন ॥১৬৮॥
 
-> abhidheya sādhana-bhakti śune yei jana
+> abhidheya sādhana-bhakti śune yei jana\
 > acirāt pāya sei kṛṣṇa-prema-dhana
 
 *abhidheya*—deber necesario; *sādhana-bhakti*—servicio devocional en la práctica; *śune*—oye; *yei jana*—cualquiera que; *acirāt*—muy pronto; *pāya*—obtiene; *sei*—esa persona; *kṛṣṇa-prema-dhana*—el tesoro del amor por Kṛṣṇa.

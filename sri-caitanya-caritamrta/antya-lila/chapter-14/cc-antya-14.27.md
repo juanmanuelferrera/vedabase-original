@@ -1,9 +1,9 @@
 ### CC Antya 14.27
 
-> আস্তে-ব্যস্তে সেই নারী ভূমেতে নামিলা ।
+> আস্তে-ব্যস্তে সেই নারী ভূমেতে নামিলা ।\
 > মহাপ্রভুরে দেখি’ তাঁর চরণ বন্দিলা ॥২৭॥
 
-> āste-vyaste sei nārī bhūmete nāmilā
+> āste-vyaste sei nārī bhūmete nāmilā\
 > mahāprabhure dekhi' tāṅra caraṇa vandilā
 
 *āste-vyaste*—in great haste; *sei nārī*—that woman; *bhūmete*—on the ground; *nāmilā*—got down; *mahāprabhure dekhi'*—seeing Śrī Caitanya Mahāprabhu; *tāṅra*—His; *caraṇa vandilā*—begged pardon at the lotus feet.

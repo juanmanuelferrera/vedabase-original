@@ -1,9 +1,9 @@
 ### CC Antya 3.149
 
-> প্রেম-প্রচারণ আর পাষণ্ডদলন ।
+> প্রেম-প্রচারণ আর পাষণ্ডদলন ।\
 > দুইকার্যে অবধূত করেন ভ্রমণ ॥১৪৯॥
 
-> prema-pracāraṇa āra pāṣaṇḍa-dalana
+> prema-pracāraṇa āra pāṣaṇḍa-dalana\
 > dui-kārye avadhūta karena bhramaṇa
 
 *prema-pracāraṇa*—predicar el culto del *bhakti*; *āra*—y; *pāṣaṇḍa-dalana*—someter a los hombres ateos; *dui-kārye*—con dos clases de actividades; *avadhūta*—el gran devoto y mendicante; *karena*—hace; *bhramaṇa*—recorrer.

@@ -1,11 +1,11 @@
 ### SB 3.16.5
 
-> यन्नामानि च गृह्णाति लोको भृत्ये कृतागसि ।
+> यन्नामानि च गृह्णाति लोको भृत्ये कृतागसि ।\
 > सोऽसाधुवादस्तत्कीर्तिं हन्ति त्वचमिवामयः ॥५॥
 
-> yan-nāmāni ca gṛhṇāti
-> loko bhṛtye kṛtāgasi
-> so 'sādhu-vādas tat-kīrtiṁ
+> yan-nāmāni ca gṛhṇāti\
+> loko bhṛtye kṛtāgasi\
+> so 'sādhu-vādas tat-kīrtiṁ\
 > hanti tvacam ivāmayaḥ
 
 *yat*—of whom; *nāmāni*—the names; *ca*—and; *gṛhṇāti*—take; *lokaḥ*—people in general; *bhṛtye*—when a servant; *kṛta-āgasi*—has committed something wrong; *saḥ*—that; *asādhu-vādaḥ*—blame; *tat*—of that person; *kīrtim*—the reputation; *hanti*—destroys; *tvacam*—the skin; *iva*—as; *āmayaḥ*—leprosy.

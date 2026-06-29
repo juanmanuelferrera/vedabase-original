@@ -1,11 +1,11 @@
 ### SB 9.11.27
 
-> प्रासादगोपुरसभा चैत्यदेवगृहादिषु
+> प्रासादगोपुरसभा चैत्यदेवगृहादिषु\
 > विन्यस्तहेमकलशैः पताकाभिश्च मण्डिताम ॥२७॥
 
-> prāsāda-gopura-sabhā-
-> caitya-deva-gṛhādiṣu
-> vinyasta-hema-kalaśaiḥ
+> prāsāda-gopura-sabhā-\
+> caitya-deva-gṛhādiṣu\
+> vinyasta-hema-kalaśaiḥ\
 > patākābhiś ca maṇḍitām
 
 *prāsāda*—en palacios; *gopura*—puertas de palacio; *sabhā*—casas de asamblea; *caitya*—estrados; *deva-gṛha*—templos en que se adoran deidades; *ādiṣu*—y demás; *vinyasta*—situadas; *hema-kalaśaiḥ*—con vasijas de oro; *patākābhiḥ*—con banderas; *ca*—también; *maṇḍitām*—adornados.

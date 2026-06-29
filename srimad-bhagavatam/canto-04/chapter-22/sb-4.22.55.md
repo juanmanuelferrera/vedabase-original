@@ -1,11 +1,11 @@
 ### SB 4.22.55
 
-> गोपीथाय जगत्सृष्टेः काले स्वे स्वेऽच्युतात्मकः ।
+> गोपीथाय जगत्सृष्टेः काले स्वे स्वेऽच्युतात्मकः ।\
 > मनोवाग्वृत्तिभिः सौम्यैर्गुणैः संरञ्जयन्प्रजाः ॥५५॥
 
-> gopīthāya jagat-sṛṣṭeḥ
-> kāle sve sve 'cyutātmakaḥ
-> mano-vāg-vṛttibhiḥ saumyair
+> gopīthāya jagat-sṛṣṭeḥ\
+> kāle sve sve 'cyutātmakaḥ\
+> mano-vāg-vṛttibhiḥ saumyair\
 > guṇaiḥ saṁrañjayan prajāḥ
 
 *gopīthāya*—for the protection of; *jagat-sṛṣṭeḥ*—of the supreme creator; *kāle*—in due course of time; *sve sve*—own; *acyuta-ātmakaḥ*—being Kṛṣṇa conscious; *manaḥ*—mind; *vāk*—words; *vṛttibhiḥ*—by occupation; *saumyaiḥ*—very gentle; *guṇaiḥ*—by qualification; *saṁrañjayan*—pleasing; *prajāḥ*—the citizens.

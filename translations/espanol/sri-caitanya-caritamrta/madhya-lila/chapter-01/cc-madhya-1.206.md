@@ -1,13 +1,13 @@
 ### CC Madhya 1.206
 
-> ভবন্তমেবানুচরন্নিরন্তরঃ
-> প্রশান্তনিঃশেষমনোরথান্তরঃ ।
-> কদাহমৈকান্তিকনিত্যকিঙ্করঃ
+> ভবন্তমেবানুচরন্নিরন্তরঃ\
+> প্রশান্তনিঃশেষমনোরথান্তরঃ ।\
+> কদাহমৈকান্তিকনিত্যকিঙ্করঃ\
 > প্রহর্ষয়িষ্যামি সনাথজীবিতম্ ॥২০৬॥
 
-> bhavantam evānucaran nirantaraḥ
-> praśānta-niḥśeṣa-mano-rathāntaraḥ
-> kadāham aikāntika-nitya-kiṅkaraḥ
+> bhavantam evānucaran nirantaraḥ\
+> praśānta-niḥśeṣa-mano-rathāntaraḥ\
+> kadāham aikāntika-nitya-kiṅkaraḥ\
 > praharṣayiṣyāmi sanātha-jīvitam
 
 *bhavantam*—a Ti; *eva*—ciertamente; *anucaran*—sirviendo; *nirantaraḥ*—siempre; *praśānta*—pacificados; *niḥśeṣa*—todos; *manaḥ-ratha*—deseos; *antaraḥ*—otros; *kadā*—cuándo; *aham*—yo; *aikāntika*—exclusivo; *nitya*—eterno; *kiṅkaraḥ*—sirviente; *praharṣayiṣyāmi*—me llenaré de gozo; *sa-nātha*—con un amo adecuado; *jīvitam*—viviendo.

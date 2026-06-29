@@ -1,9 +1,9 @@
 ### CC Madhya 9.137
 
-> অন্য দেহে না পাইয়ে রাসবিলাস ।
+> অন্য দেহে না পাইয়ে রাসবিলাস ।\
 > অতএব ‘নায়ং’ শ্লোক কহে বেদব্যাস ॥১৩৭॥
 
-> anya dehe nā pāiye rāsa-vilāsa
+> anya dehe nā pāiye rāsa-vilāsa\
 > ataeva 'nāyaṁ' śloka kahe veda-vyāsa
 
 *anya dehe*—in a body other than those of the *gopīs*; *nā*—not; *pāiye*—one gets; *rāsa-vilāsa*—the pastimes of the *rāsa* dance; *ataeva*—therefore; *nāyam*—beginning with the word *nāyam*; *śloka*—the Sanskrit verse; *kahe*—says; *veda-vyāsa*—Dvaipāyana Vedavyāsa.

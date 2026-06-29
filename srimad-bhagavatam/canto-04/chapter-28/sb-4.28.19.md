@@ -1,11 +1,11 @@
 ### SB 4.28.19
 
-> न मय्यनाशिते भुङ्क्ते नास्नाते स्नाति मत्परा ।
+> न मय्यनाशिते भुङ्क्ते नास्नाते स्नाति मत्परा ।\
 > मयि रुष्टे सुसन्त्रस्ता भर्त्सिते यतवाग्भयात् ॥१९॥
 
-> na mayy anāśite bhuṅkte
-> nāsnāte snāti mat-parā
-> mayi ruṣṭe susantrastā
+> na mayy anāśite bhuṅkte\
+> nāsnāte snāti mat-parā\
+> mayi ruṣṭe susantrastā\
 > bhartsite yata-vāg bhayāt
 
 *na*—never; *mayi*—when I; *anāśite*—had not eaten; *bhuṅkte*—she would eat; *na*—never; *asnāte*—had not taken bath; *snāti*—she would take her bath; *mat-parā*—always devoted to me; *mayi*—when I; *ruṣṭe*—was angry; *su-santrastā*—very much frightened; *bhartsite*—when I chastised; *yata-vāk*—fully controlled of words; *bhayāt*—out of fear.

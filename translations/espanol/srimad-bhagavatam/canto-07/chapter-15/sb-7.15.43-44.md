@@ -1,18 +1,18 @@
 ### SB 7.15.43-44
 
-> रागो द्वेषश्च लोभश्च शोकमोहौ भयं मदः
-> मानोऽवमानोऽसूया च माया हिंसा च मत्सरः ॥४३॥
-> रजः प्रमादः क्षुन्निद्रा शत्रवस्त्वेवमादयः
+> रागो द्वेषश्च लोभश्च शोकमोहौ भयं मदः\
+> मानोऽवमानोऽसूया च माया हिंसा च मत्सरः ॥४३॥\
+> रजः प्रमादः क्षुन्निद्रा शत्रवस्त्वेवमादयः\
 > रजस्तमःप्रकृतयः सत्त्वप्रकृतयः क्वचित ॥४४॥
 
-> rāgo dveṣaś ca lobhaś ca
-> śoka-mohau bhayaṁ madaḥ
-> māno 'vamāno 'sūyā ca
+> rāgo dveṣaś ca lobhaś ca\
+> śoka-mohau bhayaṁ madaḥ\
+> māno 'vamāno 'sūyā ca\
 > māyā hiṁsā ca matsaraḥ
 
-> rajaḥ pramādaḥ kṣun-nidrā
-> śatravas tv evam ādayaḥ
-> rajas-tamaḥ-prakṛtayaḥ
+> rajaḥ pramādaḥ kṣun-nidrā\
+> śatravas tv evam ādayaḥ\
+> rajas-tamaḥ-prakṛtayaḥ\
 > sattva-prakṛtayaḥ kvacit
 
 *rāgaḥ*—apego; *dveṣaḥ*—hostilidad; *ca*—también; *lobhaḥ*—codicia; *ca*—también; *śoka*—lamentación; *mohau*—ilusión; *bhayam*—miedo; *madaḥ*—locura; *mānaḥ*—prestigio falso; *avamānaḥ*—insulto; *asūyā*—buscar defectos a los demás; *ca*—también; *māyā*—engaño; *hiṁsā*—envidia; *ca*—también; *matsaraḥ*—intolerancia; *rajaḥ*—pasión; *pramādaḥ*—confusión; *kṣut*—hambre; *nidrā*—sueño; *śatravaḥ*—enemigos; *tu*—en verdad; *evam ādayaḥ*—incluso otras concepciones de la vida de este tipo; *rajaḥ-tamaḥ*—debido al concepto basado en la pasión y la ignorancia; *prakṛtayaḥ*—causas; *sattva*—debido al concepto basado en la bondad; *prakṛtayaḥ*—causas; *kvacit*—a veces.

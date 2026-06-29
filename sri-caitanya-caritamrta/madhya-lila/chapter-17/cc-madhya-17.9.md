@@ -1,9 +1,9 @@
 ### CC Madhya 17.9
 
-> কিন্তু আমা-দুঁহার শুন এক নিবেদনে  ।
+> কিন্তু আমা-দুঁহার শুন এক নিবেদনে  ।\
 > ‘তোমার সুখে আমার সুখ’ — কহিলা আপনে ॥৯॥
 
-> kintu āmā-duṅhāra śuna eka nivedane
+> kintu āmā-duṅhāra śuna eka nivedane\
 > 'tomāra sukhe āmāra sukha'—kahilā āpane
 
 *kintu*—but; *āmā-duṅhāra*—of both of us; *śuna*—please hear; *eka nivedane*—one submission; *tomāra sukhe*—by your happiness; *āmāra sukha*—our happiness; *kahilā*—You have already stated; *āpane*—personally.

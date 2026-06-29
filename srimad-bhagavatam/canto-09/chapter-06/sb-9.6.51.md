@@ -1,13 +1,13 @@
 ### SB 9.6.51
 
-> सङ्गं त्यजेत मिथुनव्रतीनां मुमुक्षुः
-> सर्वात्मना न विसृजेद्बहिरिन्द्रियाणि
-> एकश्चरन्रहसि चित्तमनन्त ईशे
+> सङ्गं त्यजेत मिथुनव्रतीनां मुमुक्षुः\
+> सर्वात्मना न विसृजेद्बहिरिन्द्रियाणि\
+> एकश्चरन्रहसि चित्तमनन्त ईशे\
 > युञ्जीत तद्व्रतिषु साधुषु चेत्प्रसङ्गः ॥५१॥
 
-> saṅgaṁ tyajeta mithuna-vratīnāṁ mumukṣuḥ
-> sarvātmanā na visṛjed bahir-indriyāṇi
-> ekaś caran rahasi cittam ananta īśe
+> saṅgaṁ tyajeta mithuna-vratīnāṁ mumukṣuḥ\
+> sarvātmanā na visṛjed bahir-indriyāṇi\
+> ekaś caran rahasi cittam ananta īśe\
 > yuñjīta tad-vratiṣu sādhuṣu cet prasaṅgaḥ
 
 *saṅgam*—association; *tyajeta*—must give up; *mithuna-vratīnām*—of a person engaged in sexual affairs, legal or illegal; *mumukṣuḥ*—persons who desire liberation; *sarva-ātmanā*—in all respects; *na*—do not; *visṛjet*—employ; *bahiḥ-indriyāṇi*—external senses; *ekaḥ*—alone; *caran*—moving; *rahasi*—in a secluded place; *cittam*—the heart; *anante īśe*—fixed at the lotus feet of the unlimited Supreme Personality of Godhead; *yuñjīta*—one can engage himself; *tat-vratiṣu*—with persons of the same category (desiring liberation from material bondage); *sādhuṣu*—such saintly persons; *cet*—if; *prasaṅgaḥ*—one wants association.

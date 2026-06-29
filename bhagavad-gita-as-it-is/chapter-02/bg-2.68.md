@@ -1,11 +1,11 @@
 ### Bg 2.68
 
-> तस्माद्यस्य महाबाहो निगृहीतानि सर्वशः ।
+> तस्माद्यस्य महाबाहो निगृहीतानि सर्वशः ।\
 > इन्द्रियाणीन्द्रियार्थेभ्यस्तस्य प्रज्ञा प्रतिष्ठिता ॥६८॥
 
-> tasmād yasya mahā-bāho
-> nigṛhītāni sarvaśaḥ
-> indriyāṇīndriyārthebhyas
+> tasmād yasya mahā-bāho\
+> nigṛhītāni sarvaśaḥ\
+> indriyāṇīndriyārthebhyas\
 > tasya prajñā pratiṣṭhitā
 
 *tasmāt*—therefore; *yasya*—of one's; *mahā-bāho*—O mighty-armed one; *nigṛhītāni*—so curbed down; *sarvaśaḥ*—all around; *indriyāṇi*—the senses; *indriya-arthebhyaḥ*—for the sake of sense objects; *tasya*—his; *prajñā*—intelligence; *pratiṣṭhitā*—fixed.

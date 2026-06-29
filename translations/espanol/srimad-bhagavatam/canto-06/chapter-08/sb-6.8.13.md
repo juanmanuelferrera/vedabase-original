@@ -1,11 +1,11 @@
 ### SB 6.8.13
 
-> जलेषु मां रक्षतु मत्स्यमूर्तिर्यादोगणेभ्यो वरुणस्य पाशात
+> जलेषु मां रक्षतु मत्स्यमूर्तिर्यादोगणेभ्यो वरुणस्य पाशात\
 > स्थलेषु मायावटुवामनोऽव्यात्त्रिविक्रमः खेऽवतु विश्वरूपः ॥१३॥
 
-> jaleṣu māṁ rakṣatu matsya-mūrtir
-> yādo-gaṇebhyo varuṇasya pāśāt
-> sthaleṣu māyāvaṭu-vāmano 'vyāt
+> jaleṣu māṁ rakṣatu matsya-mūrtir\
+> yādo-gaṇebhyo varuṇasya pāśāt\
+> sthaleṣu māyāvaṭu-vāmano 'vyāt\
 > trivikramaḥ khe 'vatu viśvarūpaḥ
 
 *jaleṣu*—en el agua; *mām*—a mí; *rakṣatu*—proteja; *matsya-mūrtiḥ*—el Señor Supremo en la forma de un gran pez; *yādaḥ-gaṇebhyaḥ*—de feroces animales acuáticos; *varuṇasya*—del semidiós llamado Varuṇa; *pāśāt*—de la cuerda con que apresa; *sthaleṣu*—en el suelo; *māyā-vaṭu*—la misericordiosa forma del Señor como enano; *vāmanaḥ*—llamado Vāmanadeva; *avyāt*—que Él proteja; *trivikramaḥ*—Trivikrama, cuyos tres pasos gigantescos arrebataron a Bali los tres mundos; *khe*—en el cielo; *avatu*—que el Señor proteja; *viśvarūpaḥ*—la gigantesca forma universal.

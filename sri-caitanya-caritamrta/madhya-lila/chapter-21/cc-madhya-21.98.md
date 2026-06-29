@@ -1,9 +1,9 @@
 ### CC Madhya 21.98
 
-> কৃষ্ণের ঐশ্বর্য — অপার অমৃতের সিন্ধু ।
+> কৃষ্ণের ঐশ্বর্য — অপার অমৃতের সিন্ধু ।\
 > অবগাহিতে নারি, তার ছুইলঁ এক বিন্দু ॥৯৮॥
 
-> kṛṣṇera aiśvarya—apāra amṛtera sindhu
+> kṛṣṇera aiśvarya—apāra amṛtera sindhu\
 > avagāhite nāri, tāra chuilaṅ eka bindu
 
 *kṛṣṇera aiśvarya*—the opulence of Kṛṣṇa; *apāra*—unlimited; *amṛtera sindhu*—an ocean of nectar; *avagāhite*—to bathe; *nāri*—I am unable; *tāra*—of that; *chuilaṅ*—I touched; *eka bindu*—only one drop.

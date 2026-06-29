@@ -1,13 +1,13 @@
 ### CC Madhya 24.213
 
-> উদরমুপাসতে য ঋষিবর্ত্মসু কূর্পদৃশঃ
-> পরিসরপদ্ধতিং হৃদয়মারুণয়ো দহরম্ ।
-> তত উদ্গাদনন্ত তব ধাম শিরঃ পরমং
+> উদরমুপাসতে য ঋষিবর্ত্মসু কূর্পদৃশঃ\
+> পরিসরপদ্ধতিং হৃদয়মারুণয়ো দহরম্ ।\
+> তত উদ্গাদনন্ত তব ধাম শিরঃ পরমং\
 > পুনরিহ যৎ সমেত্য ন পতন্তি কৃতান্তমুখে ॥২১৩॥
 
-> udaram upāsate ya ṛṣi-vartmasu kūrpa-dṛśaḥ
-> parisara-paddhatiṁ hṛdayam āruṇayo daharam
-> tata udagād ananta tava dhāma śiraḥ paramaṁ
+> udaram upāsate ya ṛṣi-vartmasu kūrpa-dṛśaḥ\
+> parisara-paddhatiṁ hṛdayam āruṇayo daharam\
+> tata udagād ananta tava dhāma śiraḥ paramaṁ\
 > punar iha yat sametya na patanti kṛtānta-mukhe
 
 *udaram*—the abdomen; *upāsate*—worship; *ye*—those who; *ṛṣi-vartmasu*—on the path marked out by the great saintly persons; *kūrpa-dṛśaḥ*—whose vision is grossly situated in the bodily conception of life; *parisara-paddhatim*—from which the system of the arteries comes; *hṛdayam*—the heart; *āruṇayaḥ*—saintly persons headed by Āruṇa Ṛṣi; *daharam*—the sky within the heart, the subtle conception of the Supersoul within the heart; *tataḥ*—from that; *udagāt*—went up; *ananta*—O unlimited one; *tava*—Your; *dhāma*—place; *śiraḥ*—the top of the head; *paramam*—supreme; *punaḥ*—again; *iha*—in this material world; *yat*—which; *sametya*—having achieved; *na*—not; *patanti*—fall down; *kṛta-anta-mukhe*—in the repetition of birth and death.

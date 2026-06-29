@@ -1,11 +1,11 @@
 ### SB 1.12.13
 
-> तस्य प्रीतमना राजा विप्रैर्धौम्यकृपादिभिः ।
+> तस्य प्रीतमना राजा विप्रैर्धौम्यकृपादिभिः ।\
 > जातकं कारयामास वाचयित्वा च मङ्गलम् ॥१३॥
 
-> tasya prīta-manā rājā
-> viprair dhaumya-kṛpādibhiḥ
-> jātakaṁ kārayām āsa
+> tasya prīta-manā rājā\
+> viprair dhaumya-kṛpādibhiḥ\
+> jātakaṁ kārayām āsa\
 > vācayitvā ca maṅgalam
 
 *tasya*—su; *prīta-manāḥ*—satisfecho; *rājā*—el rey Yudhiṣṭhira; *vipraiḥ*—por los eruditos *brāhmaṇas*; *dhaumya*—Dhaumya; *kṛpa*—Kṛpa; *ādibhiḥ*—y también otros; *jātakam*—uno de los procesos purificatorios que se realizan justo después del nacimiento de un niño; *kārayām āsa*—hizo que se ejecutara; *vācayitvā*—mediante la recitación; *ca*—también; *maṅgalam*—auspiciosos.

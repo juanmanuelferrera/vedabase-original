@@ -1,9 +1,9 @@
 ### CC Madhya 21.48
 
-> অনন্ত বৈকুণ্ঠ যাহাঁ ভাণ্ডার-কোঠরি ।
+> অনন্ত বৈকুণ্ঠ যাহাঁ ভাণ্ডার-কোঠরি ।\
 > পারিষদগণে ষড়ৈশ্বর্যে আছে ভরি’ ॥৪৮॥
 
-> ananta vaikuṇṭha yāhāṅ bhāṇḍāra-koṭhari
+> ananta vaikuṇṭha yāhāṅ bhāṇḍāra-koṭhari\
 > pāriṣada-gaṇe ṣaḍ-aiśvarye āche bhari'
 
 *ananta*—unlimited; *vaikuṇṭha*—Vaikuṇṭha planets; *yāhāṅ*—where; *bhāṇḍāra-koṭhari*—like rooms of a treasure-house; *pāriṣada-gaṇe*—eternal associates; *ṣaṭ-aiśvarye*—with the six opulences; *āche*—are; *bhari'*—filling.

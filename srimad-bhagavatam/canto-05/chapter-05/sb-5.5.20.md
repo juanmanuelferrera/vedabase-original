@@ -1,11 +1,11 @@
 ### SB 5.5.20
 
-> तस्माद्भवन्तो हृदयेन जाताः सर्वे महीयांसममुं सनाभम
+> तस्माद्भवन्तो हृदयेन जाताः सर्वे महीयांसममुं सनाभम\
 > अक्लिष्टबुद्ध्या भरतं भजध्वं शुश्रूषणं तद्भरणं प्रजानाम ॥२०॥
 
-> tasmād bhavanto hṛdayena jātāḥ
-> sarve mahīyāṁsam amuṁ sanābham
-> akliṣṭa-buddhyā bharataṁ bhajadhvaṁ
+> tasmād bhavanto hṛdayena jātāḥ\
+> sarve mahīyāṁsam amuṁ sanābham\
+> akliṣṭa-buddhyā bharataṁ bhajadhvaṁ\
 > śuśrūṣaṇaṁ tad bharaṇaṁ prajānām
 
 *tasmāt*—therefore (because I am the Supreme); *bhavantaḥ*—you; *hṛdayena*—from My heart; *jātāḥ*—born; *sarve*—all; *mahīyāṁsam*—the best; *amum*—that; *sa-nābham*—brother; *akliṣṭa-buddhyā*—with your intelligence, without material contamination; *bharatam*—Bharata; *bhajadhvam*—just try to serve; *śuśrūṣaṇam*—service; *tat*—that; *bharaṇam prajānām*—ruling over the citizens.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.43
 
-> বত্তিশা-আঠিয়া-কলার আঙ্গটিয়া পাতে ।
+> বত্তিশা-আঠিয়া-কলার আঙ্গটিয়া পাতে ।\
 > দুই ঠাঞি ভোগ বাড়াইল ভাল মতে ॥৪৩॥
 
-> battiśā-āṭhiyā-kalāra āṅgaṭiyā pāte
+> battiśā-āṭhiyā-kalāra āṅgaṭiyā pāte\
 > dui ṭhāñi bhoga bāḍāila bhāla mate
 
 *battiśā-āṭhiyā*—que produce treinta y dos racimos; *kalāra*—de un árbol de plátano; *āṅgaṭiyā*—sin dividir; *pāte*—sobre hojas; *dui ṭhāñi*—en dos lugares; *bhoga*—los alimentos; *bāḍāila*—dispuso; *bhāla mate*—muy bien.

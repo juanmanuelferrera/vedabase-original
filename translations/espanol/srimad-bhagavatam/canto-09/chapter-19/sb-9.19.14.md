@@ -1,11 +1,11 @@
 ### SB 9.19.14
 
-> न जातु कामः कामानामुपभोगेन शांयति
+> न जातु कामः कामानामुपभोगेन शांयति\
 > हविषा कृष्णवर्त्मेव भूय एवाभिवर्धते ॥१४॥
 
-> na jātu kāmaḥ kāmānām
-> upabhogena śāṁyati
-> haviṣā kṛṣṇa-vartmeva
+> na jātu kāmaḥ kāmānām\
+> upabhogena śāṁyati\
+> haviṣā kṛṣṇa-vartmeva\
 > bhūya evābhivardhate
 
 *na*—no; *jātu*—en ningún momento; *kāmaḥ*—deseos de disfrute; *kāmānām*—de personas muy lujuriosas; *upabhogena*—mediante el disfrute de los deseos sensuales; *śāṁyati*—pueden calmarse; *haviṣā*—por verter mantequilla; *kṛṣṇa-vartmā*—fuego; *iva*—como; *bhūyaḥ*—una y otra vez; *eva*—en verdad; *abhivardhate*—aumenta cada vez más.

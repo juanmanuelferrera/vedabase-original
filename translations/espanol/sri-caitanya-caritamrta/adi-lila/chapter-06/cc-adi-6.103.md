@@ -1,9 +1,9 @@
 ### CC Adi 6.103
 
-> কৃষ্ণসাম্যে নহে তাঁর মাধুর্যাস্বাদন ।
+> কৃষ্ণসাম্যে নহে তাঁর মাধুর্যাস্বাদন ।\
 > ভক্তভাবে করে তাঁর মাধুর্য চর্বণ ॥১০৩॥
 
-> kṛṣṇa-sāmye nahe tāṅra mādhuryāsvādana
+> kṛṣṇa-sāmye nahe tāṅra mādhuryāsvādana\
 > bhakta-bhāve kare tāṅra mādhurya carvaṇa
 
 *kṛṣṇa-sāmye*—en un nivel de igualdad con Kṛṣṇa; *nahe*—no; *tāṅra*—Su; *mādhurya-āsvādana*—saborear la dulzura; *bhakta-bhāve*—como devoto; *kare*—hace; *tāṅra*—Su; *mādhurya carvaṇa*—paladear la dulzura.

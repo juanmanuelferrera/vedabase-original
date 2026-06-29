@@ -1,9 +1,9 @@
 ### CC Adi 5.146
 
-> অদ্বৈত আচার্য, নিত্যানন্দ, — দুই অঙ্গ ।
+> অদ্বৈত আচার্য, নিত্যানন্দ, — দুই অঙ্গ ।\
 > দুইজন লঞা প্রভুর যত কিছু রঙ্গ ॥১৪৬॥
 
-> advaita ācārya, nityānanda,--dui aṅga
+> advaita ācārya, nityānanda,--dui aṅga\
 > dui-jana lañā prabhura yata kichu raṅga
 
 *advaita ācārya*—Śrī Advaita Ācārya; *nityānanda*—el Señor Nityānanda; *dui aṅga*—dos miembros del Señor; *dui-jana lañā*—tomando a ambos; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *yata*—todas; *kichu*—algunas; *raṅga*—actividades recreativas.

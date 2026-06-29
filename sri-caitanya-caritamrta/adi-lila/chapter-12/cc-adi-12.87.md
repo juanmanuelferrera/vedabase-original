@@ -1,9 +1,9 @@
 ### CC Adi 12.87
 
-> অমোঘ পণ্ডিত, হস্তিগোপাল, চৈতন্যবল্লভ ।
+> অমোঘ পণ্ডিত, হস্তিগোপাল, চৈতন্যবল্লভ ।\
 > যদু গাঙ্গুলি আর মঙ্গল বৈষ্ণব ॥৮৭॥
 
-> amogha paṇḍita, hasti-gopāla, caitanya-vallabha
+> amogha paṇḍita, hasti-gopāla, caitanya-vallabha\
 > yadu gāṅguli āra maṅgala vaiṣṇava
 
 *amogha paṇḍita*—of the name Amogha Paṇḍita; *hasti-gopāla*—of the name Hastigopāla; *caitanya-vallabha*—of the name Caitanya-vallabha; *yadu gāṅguli*—of the name Yadu Gāṅguli; *āra*—and; *maṅgala vaiṣṇava*—of the name Maṅgala Vaiṣṇava.

@@ -1,9 +1,9 @@
 ### CC Adi 11.13
 
-> শ্রীরামদাস আর, গদাধর দাস ।
+> শ্রীরামদাস আর, গদাধর দাস ।\
 > চৈতন্য-গোসাঞির ভক্ত রহে তাঁর পাশ ॥১৩॥
 
-> śrī-rāmadāsa āra, gadādhara dāsa
+> śrī-rāmadāsa āra, gadādhara dāsa\
 > caitanya-gosāñira bhakta rahe tāṅra pāśa
 
 *śrī-rāmadāsa*—de nombre Śrī Rāmadāsa; *āra*—y; *gadādhara dāsa*—de nombre Gadādhara dāsa; *caitanya-gosāñira*—del Señor Śrī Caitanya Mahāprabhu; *bhakta*—devotos; *rahe*—viven; *tāṅra pāśa*—con Él.

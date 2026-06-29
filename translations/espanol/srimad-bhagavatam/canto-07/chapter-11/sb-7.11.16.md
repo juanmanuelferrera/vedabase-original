@@ -1,11 +1,11 @@
 ### SB 7.11.16
 
-> वार्ता विचित्रा शालीन यायावरशिलोञ्छनम
+> वार्ता विचित्रा शालीन यायावरशिलोञ्छनम\
 > विप्रवृत्तिश्चतुर्धेयं श्रेयसी चोत्तरोत्तरा ॥१६॥
 
-> vārtā vicitrā śālīna-
-> yāyāvara-śiloñchanam
-> vipra-vṛttiś caturdheyaṁ
+> vārtā vicitrā śālīna-\
+> yāyāvara-śiloñchanam\
+> vipra-vṛttiś caturdheyaṁ\
 > śreyasī cottarottarā
 
 *vārtā*—los medios de subsistencia prescritos para los *vaiśyas* (la agricultura, la protección de la vaca y el comercio); *vicitrā*—diversos tipos; *śālīna*—sustento que se obtiene sin esfuerzo; *yāyāvara*—ir al campo a mendigar un poco de arroz; *śila*—recoger los granos que su propietario deja en el campo; *uñchanam*—recoger los granos que se caen de los sacos en las tiendas; *vipra-vṛttiḥ*—los medios de sustento para los *brāhmaṇas*; *caturdhā*—cuatro tipos distintos; *iyam*—este; *śreyasī*—mejor; *ca*—también; *uttara-uttarā*—el último comparado con el anterior.

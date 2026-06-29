@@ -1,11 +1,11 @@
 ### SB 4.9.54
 
-> तत्र तत्रोपसङ्कॢप्तैर्लसन्मकरतोरणैः ।
+> तत्र तत्रोपसङ्कॢप्तैर्लसन्मकरतोरणैः ।\
 > सवृन्दैः कदलीस्तम्भैः पूगपोतैश्च तद्विधैः ॥५४॥
 
-> tatra tatropasaṅkḷptair
-> lasan-makara-toraṇaiḥ
-> savṛndaiḥ kadalī-stambhaiḥ
+> tatra tatropasaṅkḷptair\
+> lasan-makara-toraṇaiḥ\
+> savṛndaiḥ kadalī-stambhaiḥ\
 > pūga-potaiś ca tad-vidhaiḥ
 
 *tatra tatra*—aquí y allí; *upasaṅkḷptaiḥ*—dispuestos; *lasat*—brillantes; *makara*—en forma de tiburón; *toraṇaiḥ*—con arcos triunfales; *sa-vṛndaiḥ*—con racimos de frutas y flores; *kadalī*—de bananeros; *stambhaiḥ*—con columnas; *pūga-potaiḥ*—con beteles jóvenes; *ca*—también; *tat-vidhaiḥ*—de esa clase.

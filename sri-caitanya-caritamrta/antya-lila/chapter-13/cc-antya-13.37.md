@@ -1,9 +1,9 @@
 ### CC Antya 13.37
 
-> দূরে রহি’ ভক্তি করিহ সঙ্গে না রহিবা ।
+> দূরে রহি’ ভক্তি করিহ সঙ্গে না রহিবা ।\
 > তাঁ-সবার আচার-চেষ্টা লইতে নারিবা ॥৩৭॥
 
-> dūre rahi' bhakti kariha saṅge nā rahibā
+> dūre rahi' bhakti kariha saṅge nā rahibā\
 > tāṅ-sabāra ācāra-ceṣṭā la-ite nāribā
 
 *dūre rahi'*—keeping apart; *bhakti kariha*—show devotion; *saṅge*—in association; *nā rahibā*—do not stay; *tāṅ-sabāra*—their; *ācāra*—behavior; *ceṣṭā*—endeavors; *la-ite nāribā*—you cannot take up.

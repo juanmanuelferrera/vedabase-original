@@ -1,9 +1,9 @@
 ### CC Antya 18.34
 
-> মনোবেগে গেলা প্রভু, দেখিতে নারিলা ।
+> মনোবেগে গেলা প্রভু, দেখিতে নারিলা ।\
 > প্রভুরে না দেখিয়া সংশয় করিতে লাগিলা ॥৩৪॥
 
-> mano-vege gelā prabhu, dekhite nārilā
+> mano-vege gelā prabhu, dekhite nārilā\
 > prabhure nā dekhiyā saṁśaya karite lāgilā
 
 *manaḥ-vege*—a la velocidad de la mente; *gelā*—se fue; *prabhu*—Śrī Caitanya Mahāprabhu; *dekhite nārilā*—nadie pudo verlo; *prabhure*—al Señor; *nā dekhiyā*—sin verlo; *saṁśaya*—dudas; *karite lāgilā*—comenzaron a sentir.

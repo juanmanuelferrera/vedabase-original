@@ -1,11 +1,11 @@
 ### SB 1.13.49
 
-> सोऽयमद्य महाराज भगवान्भूतभावनः ।
+> सोऽयमद्य महाराज भगवान्भूतभावनः ।\
 > कालरूपोऽवतीर्णोऽस्यामभावाय सुरद्विषाम् ॥४९॥
 
-> so 'yam adya mahārāja
-> bhagavān bhūta-bhāvanaḥ
-> kāla-rūpo 'vatīrṇo 'syām
+> so 'yam adya mahārāja\
+> bhagavān bhūta-bhāvanaḥ\
+> kāla-rūpo 'vatīrṇo 'syām\
 > abhāvāya sura-dviṣām
 
 *saḥ*—that Supreme Lord; *ayam*—the Lord Śrī Kṛṣṇa; *adya*—at present; *mahārāja*—O King; *bhagavān*—the Personality of Godhead; *bhūta-bhāvanaḥ*—the creator or the father of everything created; *kāla-rūpaḥ*—in the disguise of all-devouring time; *avatīrṇaḥ*—descended; *asyām*—upon the world; *abhāvāya*—for eliminating; *sura-dviṣām*—those who are against the will of the Lord.

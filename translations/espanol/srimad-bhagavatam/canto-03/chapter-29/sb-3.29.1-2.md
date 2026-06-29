@@ -1,20 +1,20 @@
 ### SB 3.29.1-2
 
-> देवहूतिरुवाच
-> लक्षणं महदादीनां प्रकृतेः पुरुषस्य च ।
-> स्वरूपं लक्ष्यतेऽमीषां येन तत्पारमार्थिकम् ॥१॥
-> यथा साङ्ख्येषु कथितं यन्मूलं तत्प्रचक्षते ।
+> देवहूतिरुवाच\
+> लक्षणं महदादीनां प्रकृतेः पुरुषस्य च ।\
+> स्वरूपं लक्ष्यतेऽमीषां येन तत्पारमार्थिकम् ॥१॥\
+> यथा साङ्ख्येषु कथितं यन्मूलं तत्प्रचक्षते ।\
 > भक्तियोगस्य मे मार्गं ब्रूहि विस्तरशः प्रभो ॥२॥
 
-> devahūtir uvāca
-> lakṣaṇaṁ mahad-ādīnāṁ
-> prakṛteḥ puruṣasya ca
-> svarūpaṁ lakṣyate 'mīṣāṁ
+> devahūtir uvāca\
+> lakṣaṇaṁ mahad-ādīnāṁ\
+> prakṛteḥ puruṣasya ca\
+> svarūpaṁ lakṣyate 'mīṣāṁ\
 > yena tat-pāramārthikam
 
-> yathā sāṅkhyeṣu kathitaṁ
-> yan-mūlaṁ tat pracakṣate
-> bhakti-yogasya me mārgaṁ
+> yathā sāṅkhyeṣu kathitaṁ\
+> yan-mūlaṁ tat pracakṣate\
+> bhakti-yogasya me mārgaṁ\
 > brūhi vistaraśaḥ prabho
 
 *devahūtiḥ uvāca*—Devahūti dijo; *lakṣaṇam*—características; *mahat-ādīnām*—del *mahat-tattva,* etc.; *prakṛteḥ*—de la naturaleza material; *puruṣasya*—del espíritu; *ca*—y; *svarūpam*—la naturaleza; *lakṣyate*—está explicada; *amīṣām*—de aquellos; *yena*—por los cuales; *tat-pārama-arthikam*—su verdadera naturaleza; *yathā*—como; *sāṅkhyeṣu*—en la filosofía *sāṅkhya*; *kathitam*—está explicada; *yat*—del cual; *mūlam*—fin supremo; *tat*—eso; *pracakṣate*—denominan; *bhakti-yogasya*—del servicio devocional; *me*—a mí; *mārgam*—el sendero; *brūhi*—por favor, explica; *vistaraśaḥ*—extensamente; *prabho*—mi querido Señor Kapila.

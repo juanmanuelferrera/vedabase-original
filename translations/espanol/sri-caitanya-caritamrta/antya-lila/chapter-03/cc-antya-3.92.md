@@ -1,13 +1,13 @@
 ### CC Antya 3.92
 
-> উল্লঙ্ঘিতত্রিবিধসীমসমাতিশায়ি-
-> সম্ভাবনং তব পরিব্রঢ়িমস্বভাবম্ ।
-> মায়াবলেন ভবতাপি নিগুহ্যমানং
+> উল্লঙ্ঘিতত্রিবিধসীমসমাতিশায়ি-\
+> সম্ভাবনং তব পরিব্রঢ়িমস্বভাবম্ ।\
+> মায়াবলেন ভবতাপি নিগুহ্যমানং\
 > পশ্যন্তি কেচিদনিশং ত্বদনন্যভাবাঃ ॥৯২॥
 
-> ullaṅghita-trividha-sīma-samātiśāyi-
-> sambhāvanaṁ tava parivraḍhima-svabhāvam
-> māyā-balena bhavatāpi niguhyamānaṁ
+> ullaṅghita-trividha-sīma-samātiśāyi-\
+> sambhāvanaṁ tava parivraḍhima-svabhāvam\
+> māyā-balena bhavatāpi niguhyamānaṁ\
 > paśyanti kecid aniśaṁ tvad-ananya-bhāvāḥ
 
 *ullaṅghita*—trascendidas; *tri-vidha*—tres clases; *sīma*—las limitaciones; *sama*—de igualdad; *atiśāyi*—y de excelencia; *sambhāvanam*—por las cuales la aptitud; *tava*—Tu; *parivraḍhima*—de supremacía; *sva-bhāvam*—la verdadera naturaleza; *māyā-balena*—por la fuerza de la energía ilusoria; *bhavatā*—Tu; *api*—aunque; *niguhyamānam*—siendo ocultada; *paśyanti*—ven; *kecit*—algunos; *aniśam*—siempre; *tvat*—a Ti; *ananya-bhāvāḥ*—aquellos que están exclusivamente dedicados.

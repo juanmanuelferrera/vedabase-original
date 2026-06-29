@@ -1,11 +1,11 @@
 ### SB 3.3.21
 
-> इमं लोकममुं चैव रमयन्सुतरां यदून् ।
+> इमं लोकममुं चैव रमयन्सुतरां यदून् ।\
 > रेमे क्षणदया दत्त क्षणस्त्रीक्षणसौहृदः ॥२१॥
 
-> imaṁ lokam amuṁ caiva
-> ramayan sutarāṁ yadūn
-> reme kṣaṇadayā datta-
+> imaṁ lokam amuṁ caiva\
+> ramayan sutarāṁ yadūn\
+> reme kṣaṇadayā datta-\
 > kṣaṇa-strī-kṣaṇa-sauhṛdaḥ
 
 *imam*—this; *lokam*—earth; *amum*—and the other worlds; *ca*—also; *eva*—certainly; *ramayan*—pleasing; *sutarām*—specifically; *yadūn*—the Yadus; *reme*—enjoyed; *kṣaṇadayā*—by night; *datta*—given by; *kṣaṇa*—leisure; *strī*—with women; *kṣaṇa*—conjugal love; *sauhṛdaḥ*—friendship.

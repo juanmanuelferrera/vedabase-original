@@ -1,11 +1,11 @@
 ### SB 3.20.20
 
-> क्षुत्तृड्भ्यामुपसृष्टास्ते तं जग्धुमभिदुद्रुवुः ।
+> क्षुत्तृड्भ्यामुपसृष्टास्ते तं जग्धुमभिदुद्रुवुः ।\
 > मा रक्षतैनं जक्षध्वमित्यूचुः क्षुत्तृडर्दिताः ॥२०॥
 
-> kṣut-tṛḍbhyām upasṛṣṭās te
-> taṁ jagdhum abhidudruvuḥ
-> mā rakṣatainaṁ jakṣadhvam
+> kṣut-tṛḍbhyām upasṛṣṭās te\
+> taṁ jagdhum abhidudruvuḥ\
+> mā rakṣatainaṁ jakṣadhvam\
 > ity ūcuḥ kṣut-tṛḍ-arditāḥ
 
 *kṣut-tṛḍbhyām*—by hunger and thirst; *upasṛṣṭāḥ*—were overcome; *te*—the demons (Yakṣas and Rākṣasas); *tam*—Lord Brahmā; *jagdhum*—to eat; *abhidudruvuḥ*—ran toward; *mā*—do not; *rakṣata*—spare; *enam*—him; *jakṣadhvam*—eat; *iti*—thus; *ūcuḥ*—said; *kṣut-tṛṭ-arditāḥ*—afflicted by hunger and thirst.

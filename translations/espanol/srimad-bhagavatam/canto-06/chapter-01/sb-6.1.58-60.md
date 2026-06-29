@@ -1,25 +1,25 @@
 ### SB 6.1.58-60
 
-> एकदासौ वनं यातः पितृसन्देशकृद्द्विजः
-> आदाय तत आवृत्तः फलपुष्पसमित्कुशान ॥५८॥
-> ददर्श कामिनं कञ्चिच्छूद्रं सह भुजिष्यया
-> पीत्वा च मधु मैरेयं मदाघूर्णितनेत्रया ॥५९॥
-> मत्तया विश्लथन्नीव्या व्यपेतं निरपत्रपम
+> एकदासौ वनं यातः पितृसन्देशकृद्द्विजः\
+> आदाय तत आवृत्तः फलपुष्पसमित्कुशान ॥५८॥\
+> ददर्श कामिनं कञ्चिच्छूद्रं सह भुजिष्यया\
+> पीत्वा च मधु मैरेयं मदाघूर्णितनेत्रया ॥५९॥\
+> मत्तया विश्लथन्नीव्या व्यपेतं निरपत्रपम\
 > क्रीडन्तमनुगायन्तं हसन्तमनयान्तिके ॥६०॥
 
-> ekadāsau vanaṁ yātaḥ
-> pitṛ-sandeśa-kṛd dvijaḥ
-> ādāya tata āvṛttaḥ
+> ekadāsau vanaṁ yātaḥ\
+> pitṛ-sandeśa-kṛd dvijaḥ\
+> ādāya tata āvṛttaḥ\
 > phala-puṣpa-samit-kuśān
 
-> dadarśa kāminaṁ kañcic
-> chūdraṁ saha bhujiṣyayā
-> pītvā ca madhu maireyaṁ
+> dadarśa kāminaṁ kañcic\
+> chūdraṁ saha bhujiṣyayā\
+> pītvā ca madhu maireyaṁ\
 > madāghūrṇita-netrayā
 
-> mattayā viślathan-nīvyā
-> vyapetaṁ nirapatrapam
-> krīḍantam anugāyantaṁ
+> mattayā viślathan-nīvyā\
+> vyapetaṁ nirapatrapam\
+> krīḍantam anugāyantaṁ\
 > hasantam anayāntike
 
 *ekadā*—en cierta ocasión; *asau*—este Ajāmila; *vanam yātaḥ*—fue al bosque; *pitṛ*—de su padre; *sandeśa*—la orden; *kṛt*—cumplir; *dvijaḥ*—el *brāhmaṇa*; *ādāya*—** recoger; *tataḥ*—del bosque; *āvṛttaḥ*—regresar; *phala-puṣpa*—frutas y flores; *samit-kuśān*—dos tipos de hierbas, llamadas *samit* y *kuśa*; *dadarśa*—vio; *kāminam*—** muy lujurioso; *kañcit*—alguien; *śūdram*—un hombre de cuarta categoría; *saha*—** junto con; *bhujiṣyayā*—una sirvienta o prostituta común; *pītvā*—después de beber; *ca*—también; *madhu*—néctar; *maireyam*—hecho de la flor *soma*; *mada*—por embriaguez; *āghūrṇita*—moviéndose; *netrayā*—sus ojos; *mattayā*—ebria; *viślathat-nīvyā*—cuyas ropas se habían aflojado; *vyapetam*—que habían perdido la compostura; *nirapatrapam*—sin temor de la opinión pública; *krīḍantam*—** ocupados en disfrutar; *anugāyantam*—cantar; *hasantam*—sonreír; *anayā*—con ella; *antike*—muy cerca.

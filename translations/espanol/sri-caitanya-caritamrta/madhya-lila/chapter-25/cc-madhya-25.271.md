@@ -1,13 +1,13 @@
 ### CC Madhya 25.271
 
-> কৃষ্ণলীলা অমৃত-সার, তার শত শত ধার,
-> দশদিকে বহে যাহা হৈতে ।
-> সে চৈতন্যলীলা হয়, সরোবর অক্ষয়,
+> কৃষ্ণলীলা অমৃত-সার, তার শত শত ধার,\
+> দশদিকে বহে যাহা হৈতে ।\
+> সে চৈতন্যলীলা হয়, সরোবর অক্ষয়,\
 > মনো-হংস চরাহ’ তাহাতে ॥২৭১॥
 
-> kṛṣṇa-līlā amṛta-sāra, tāra śata śata dhāra,
-> daśa-dike vahe yāhā haite
-> se caitanya-līlā haya, sarovara akṣaya,
+> kṛṣṇa-līlā amṛta-sāra, tāra śata śata dhāra,\
+> daśa-dike vahe yāhā haite\
+> se caitanya-līlā haya, sarovara akṣaya,\
 > mano-haṁsa carāha' tāhāte
 
 *kṛṣṇa-līlā amṛta-sāra*—los pasatiempos del Señor Kṛṣṇa son la esencia de toda la bienaventuranza eterna; *tāra śata śata dhāra*—el flujo de esa bienaventuranza eterna corre en cientos de corrientes; *daśa-dike*—en las diez direcciones; *vahe*—fluye; *yāhā haite*—de lo cual; *se*—esos; *caitanya-līlā*—pasatiempos de Śrī Caitanya Mahāprabhu; *haya*—son; *sarovara akṣaya*—un lago trascendental y eterno; *manaḥ-haṁsa*—mi mente, que es como un cisne; *carāha'*—por favor vagad; *tāhāte*—en ese lago.

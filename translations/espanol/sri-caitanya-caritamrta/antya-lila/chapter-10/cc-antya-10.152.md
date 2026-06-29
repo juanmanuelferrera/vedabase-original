@@ -1,9 +1,9 @@
 ### CC Antya 10.152
 
-> চারিমাস এইমত নিমন্ত্রণে যায় ।
+> চারিমাস এইমত নিমন্ত্রণে যায় ।\
 > কোন কোন বৈষ্ণব ‘দিবস’ নাহি পায় ॥১৫২॥
 
-> cāri-māsa ei-mata nimantraṇe yāya
+> cāri-māsa ei-mata nimantraṇe yāya\
 > kona kona vaiṣṇava 'divasa' nāhi pāya
 
 *cāri-māsa*—durante cuatro meses; *ei-mata*—de esta manera; *nimantraṇe yāya*—Śrī Caitanya Mahāprabhu cumple Sus invitaciones; *kona kona vaiṣṇava*—algunos de los devotos vaiṣṇavas; *divasa*—día; *nāhi pāya*—no podían conseguir.

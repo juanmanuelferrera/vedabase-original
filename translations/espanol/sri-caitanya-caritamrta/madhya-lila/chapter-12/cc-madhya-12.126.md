@@ -1,9 +1,9 @@
 ### CC Madhya 12.126
 
-> ঈশ্বরমন্দিরে মোর পদ ধোয়াইল  ।
+> ঈশ্বরমন্দিরে মোর পদ ধোয়াইল  ।\
 > সেই জল আপনি লঞা পান কৈল ॥১২৬॥
 
-> īśvara-mandire mora pada dhoyāila
+> īśvara-mandire mora pada dhoyāila\
 > sei jala āpani lañā pāna kaila
 
 *īśvara-mandire*—en el templo del Señor; *mora*—Mis; *pada*—pies; *dhoyāila*—lavó; *sei jala*—esa agua; *āpani*—personalmente; *lañā*—tomando; *pāna kaila*—bebió.

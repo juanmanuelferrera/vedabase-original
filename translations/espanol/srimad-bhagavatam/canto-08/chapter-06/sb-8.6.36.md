@@ -1,11 +1,11 @@
 ### SB 8.6.36
 
-> तांस्तथा भग्नमनसो भग्नबाहूरुकन्धरान
+> तांस्तथा भग्नमनसो भग्नबाहूरुकन्धरान\
 > विज्ञआय भगवांस्तत्र बभूव गरुडध्वजः ॥३६॥
 
-> tāṁs tathā bhagna-manaso
-> bhagna-bāhūru-kandharān
-> vijñāya bhagavāṁs tatra
+> tāṁs tathā bhagna-manaso\
+> bhagna-bāhūru-kandharān\
+> vijñāya bhagavāṁs tatra\
 > babhūva garuḍa-dhvajaḥ
 
 *tān*—todos los semidioses y demonios; *tathā*—a continuación; *bhagna-manasaḥ*—con el corazón roto; *bhagna-bāhu*—con los brazos rotos; *ūru*—los muslos; *kandharān*—y los hombros; *vijñāya*—conociendo; *bhagavān*—la Suprema Personalidad de Dios, Viṣṇu; *tatra*—allí; *babhūva*—apareció; *garuḍa-dhvajaḥ*—llevado por Garuḍa.

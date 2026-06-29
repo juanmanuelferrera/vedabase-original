@@ -1,9 +1,9 @@
 ### CC Adi 16.82
 
-> অম্বুজমম্বূনি জাতং ক্বচিদপি ন জাতমম্বুজাদম্বু ।
+> অম্বুজমম্বূনি জাতং ক্বচিদপি ন জাতমম্বুজাদম্বু ।\
 > মুরভিদি তদ্বিপরীতং পাদাম্ভোজান্মহানদী জাতা ॥৮২॥
 
-> ambujam ambuni jātaṁ kvacid api na jātam ambujād ambu
+> ambujam ambuni jātaṁ kvacid api na jātam ambujād ambu\
 > mura-bhidi tad-viparītaṁ pādāmbhojān mahā-nadī jātā
 
 *ambujam*—lotus flower; *ambuni*—in the water; *jātam*—is grown; *kvacit*—at any time; *api*—certainly; *na*—not; *jātam*—grown; *ambujāt*—from a lotus flower; *ambu*—water; *mura-bhidi*—in Kṛṣṇa, the killer of Murāsura; *tat-viparītam*—just the opposite of that; *pāda-ambhojāt*—from the lotus flower of His feet; *mahā-nadī*—the great river; *jātā*—has grown.

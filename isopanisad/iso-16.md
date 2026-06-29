@@ -1,12 +1,12 @@
 ### Īśo 16
 
-> पूषन्नेकर्षे यम सूर्य प्राजापत्य व्यूह रश्मीन् समूह तेजः।
-> यत्ते रूपं कल्याणतमं तत्ते
+> पूषन्नेकर्षे यम सूर्य प्राजापत्य व्यूह रश्मीन् समूह तेजः।\
+> यत्ते रूपं कल्याणतमं तत्ते\
 > पश्यामि योऽसावसौ पुरुषः सोऽहमस्मि॥१६॥
 
-> pūṣann ekarṣe yama sūrya prājāpatya
-> vyūha raśmīn samūha
-> tejo yat te rūpaṁ kalyāṇa-tamaṁ
+> pūṣann ekarṣe yama sūrya prājāpatya\
+> vyūha raśmīn samūha\
+> tejo yat te rūpaṁ kalyāṇa-tamaṁ\
 > tat te paśyāmi yo 'sāv asau puruṣaḥ so 'ham asmi
 
 *pūṣan*—O maintainer; *eka-ṛṣe*—the primeval philosopher; *yama*—the regulating principle; *sūrya*—the destination of the sūris (great devotees); *prājāpatya*—the well-wisher of the prajāpatis (progenitors of mankind); *vyūha*—kindly remove; *raśmīn*—the rays; *samūha*—kindly withdraw; *tejaḥ*—effulgence; *yat*—so that; *te*—Your; *rūpam*—form; *kalyāṇa-tamam*—most auspicious; *tat*—that; *te*—Your; *paśyāmi*—I may see; *yaḥ*—one who is; *asau*—like the sun; *asau*—that; *puruṣaḥ*—Personality of Godhead; *saḥ*—myself; *aham*—I; *asmi*—am.

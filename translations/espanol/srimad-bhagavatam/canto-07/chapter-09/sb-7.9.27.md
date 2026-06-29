@@ -1,13 +1,13 @@
 ### SB 7.9.27
 
-> नैषा परावरमतिर्भवतो ननु स्याज
-> जन्तोर्यथात्मसुहृदो जगतस्तथापि
-> संसेवया सुरतरोरिव ते प्रसादः
+> नैषा परावरमतिर्भवतो ननु स्याज\
+> जन्तोर्यथात्मसुहृदो जगतस्तथापि\
+> संसेवया सुरतरोरिव ते प्रसादः\
 > सेवानुरूपमुदयो न परावरत्वम ॥२७॥
 
-> naiṣā parāvara-matir bhavato nanu syāj
-> jantor yathātma-suhṛdo jagatas tathāpi
-> saṁsevayā surataror iva te prasādaḥ
+> naiṣā parāvara-matir bhavato nanu syāj\
+> jantor yathātma-suhṛdo jagatas tathāpi\
+> saṁsevayā surataror iva te prasādaḥ\
 > sevānurūpam udayo na parāvaratvam
 
 *na*—no; *eṣā*—esto; *para-avara*—de superior o inferior; *matiḥ*—esa distinción; *bhavataḥ*—de Tu Señoría; *nanu*—en verdad; *syāt*—puede haber; *jantoḥ*—de entidades vivientes comunes; *yathā*—como; *ātma-suhṛdaḥ*—de quien es el amigo; *jagataḥ*—de todo el mundo material; *tathāpi*—pero aun así (existe esa demostración de intimidad o diferencia); *saṁsevayā*—conforme al nivel del servicio que el devoto ofrece; *surataroḥ iva*—como el del árbol de deseos en Vaikuṇṭhaloka (que ofrece sus frutos conforme al deseo del devoto); *te*—Tuya; *prasādaḥ*—bendición o gracia; *sevā-anurūpam*—conforme a la categoría del servicio que se ofrece al Señor; *udayaḥ*—manifestación; *na*—no; *para-avaratvam*—distinción debida a niveles más o menos elevados.

@@ -1,25 +1,25 @@
 ### SB 6.6.29-31
 
-> अरिष्टायास्तु गन्धर्वाः काष्ठाया द्विशफेतराः
-> सुता दनोरेकषष्टिस्तेषां प्राधानिकाञ्शृणु ॥२९॥
-> द्विमूर्धा शम्बरोऽरिष्टो हयग्रीवो विभावसुः
-> अयोमुखः शङ्कुशिराः स्वर्भानुः कपिलोऽरुणः ॥३०॥
-> पुलोमा वृषपर्वा च एकचक्रोऽनुतापनः
+> अरिष्टायास्तु गन्धर्वाः काष्ठाया द्विशफेतराः\
+> सुता दनोरेकषष्टिस्तेषां प्राधानिकाञ्शृणु ॥२९॥\
+> द्विमूर्धा शम्बरोऽरिष्टो हयग्रीवो विभावसुः\
+> अयोमुखः शङ्कुशिराः स्वर्भानुः कपिलोऽरुणः ॥३०॥\
+> पुलोमा वृषपर्वा च एकचक्रोऽनुतापनः\
 > धूम्रकेशो विरूपाक्षो विप्रचित्तिश्च दुर्जयः ॥३१॥
 
-> ariṣṭāyās tu gandharvāḥ
-> kāṣṭhāyā dviśaphetarāḥ
-> sutā danor eka-ṣaṣṭis
+> ariṣṭāyās tu gandharvāḥ\
+> kāṣṭhāyā dviśaphetarāḥ\
+> sutā danor eka-ṣaṣṭis\
 > teṣāṁ prādhānikāñ śṛṇu
 
-> dvimūrdhā śambaro 'riṣṭo
-> hayagrīvo vibhāvasuḥ
-> ayomukhaḥ śaṅkuśirāḥ
+> dvimūrdhā śambaro 'riṣṭo\
+> hayagrīvo vibhāvasuḥ\
+> ayomukhaḥ śaṅkuśirāḥ\
 > svarbhānuḥ kapilo 'ruṇaḥ
 
-> pulomā vṛṣaparvā ca
-> ekacakro 'nutāpanaḥ
-> dhūmrakeśo virūpākṣo
+> pulomā vṛṣaparvā ca\
+> ekacakro 'nutāpanaḥ\
+> dhūmrakeśo virūpākṣo\
 > vipracittiś ca durjayaḥ
 
 *ariṣṭāyāḥ*—del vientre de Ariṣṭā; *tu*—pero; *gandharvāḥ*—los *gandharvas*; *kāṣṭhāyāḥ*—del vientre de Kāṣṭhā; *dvi-śapha-itarāḥ*—animales como los caballos, cuyas pezuñas no están hendidas; *sutāḥ*—hijos; *danoḥ*—del vientre de Danu; *eka-ṣaṣṭiḥ*—sesenta y uno; *teṣām*—de ellos; *prādhānikān*—los más importantes; *śṛṇu*—escucha; *dvimūrdhā*—Dvimūrdhā; *śambaraḥ*—Śambara; *ariṣṭaḥ*—Ariṣṭa; *hayagrīvaḥ*—Hayagrīva; *vibhāvasuḥ*—Vibhāvasu; *ayomukhaḥ*—Ayomukha; *śaṅkuśirāḥ*—Śaṅkuśirā; *svarbhānuḥ*—Svarbhānu; *kapilaḥ*—Kapila; *aruṇaḥ*—Aruṇa; *pulomā*—Pulomā; *vṛṣaparvā*—Vṛṣaparvā; *ca*—también; *ekacakraḥ*—Ekacakra; *anutāpanaḥ*—Anutāpana; *dhūmrakeśaḥ*—Dhūmrakeśa; *virūpākṣaḥ*—Virūpākṣa; *vipracittiḥ*—Vipracitti; *ca*—y; *durjayaḥ*—Durjaya.

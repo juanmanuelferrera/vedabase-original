@@ -1,9 +1,9 @@
 ### CC Antya 4.164
 
-> আজিহ নহিল মোরে আত্মীয়তা-জ্ঞান !
+> আজিহ নহিল মোরে আত্মীয়তা-জ্ঞান !\
 > মোর অভাগ্য, তুমি — স্বতন্ত্র ভগবান্ !” ॥ ১৬৪ ॥
 
-> ājiha nahila more ātmīyatā-jñāna!
+> ājiha nahila more ātmīyatā-jñāna!\
 > mora abhāgya, tumi—svatantra bhagavān!"
 
 *ājiha*—even until now; *nahila*—there has not been; *more*—unto me; *ātmīyatā-jñāna*—feeling as one of Your relations; *mora abhāgya*—my misfortune; *tumi*—You; *svatantra bhagavān*—the independent Personality of Godhead.

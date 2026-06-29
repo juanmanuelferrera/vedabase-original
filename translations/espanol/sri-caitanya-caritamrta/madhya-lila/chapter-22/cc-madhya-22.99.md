@@ -1,9 +1,9 @@
 ### CC Madhya 22.99
 
-> শরণাগতের, অকিঞ্চনের — একই লক্ষণ ।
+> শরণাগতের, অকিঞ্চনের — একই লক্ষণ ।\
 > তার মধ্যে প্রবেশয়ে ‘আত্মসমর্পণ’ ॥৯৯॥
 
-> śaraṇāgatera, akiñcanera--eka-i lakṣaṇa
+> śaraṇāgatera, akiñcanera--eka-i lakṣaṇa\
 > tāra madhye praveśaye 'ātma-samarpaṇa'
 
 *śaraṇāgatera*—de una persona que se ha refugiado plenamente en Kṛṣṇa; *akiñcanera*—de una persona que está libre de todos los deseos materiales; *eka-i lakṣaṇa*—los síntomas son unos y los mismos; *tāra madhye*—de todos ellos; *praveśaye*—penetra; *ātma-samarpaṇa*—entrega plena.

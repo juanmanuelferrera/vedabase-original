@@ -1,9 +1,9 @@
 ### CC Adi 4.204
 
-> আর শুদ্ধভক্ত কৃষ্ণ-প্রেম-সেবা বিনে ।
+> আর শুদ্ধভক্ত কৃষ্ণ-প্রেম-সেবা বিনে ।\
 > স্বসুখার্থ সালোক্যাদি না করে গ্রহণে ॥২০৪॥
 
-> āra śuddha-bhakta kṛṣṇa-prema-sevā vine
+> āra śuddha-bhakta kṛṣṇa-prema-sevā vine\
 > sva-sukhārtha sālokyādi nā kare grahaṇe
 
 *āra*—y; *śuddha-bhakta*—el devoto puro; *kṛṣṇa-prema*—por amor a Kṛṣṇa; *sevā*—servicio; *vine*—sin; *sva-sukha-artha*—con el propósito de la propia felicidad; *sālokya-ādi*—los cinco tipos de liberación, comenzando por *sālokya* (residir en el mismo planeta espiritual que el Señor); *nā kare*—no hacen; *grahaṇe*—aceptación.

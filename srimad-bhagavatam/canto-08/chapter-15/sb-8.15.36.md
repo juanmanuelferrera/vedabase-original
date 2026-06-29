@@ -1,11 +1,11 @@
 ### SB 8.15.36
 
-> ततस्तदनुभावेन भुवनत्रयविश्रुताम
+> ततस्तदनुभावेन भुवनत्रयविश्रुताम\
 > कीर्तिं दिक्षुवितन्वानः स रेज उडुराडिव ॥३६॥
 
-> bubhuje ca śriyaṁ svṛddhāṁ
-> dvija-devopalambhitām
-> kṛta-kṛtyam ivātmānaṁ
+> bubhuje ca śriyaṁ svṛddhāṁ\
+> dvija-devopalambhitām\
+> kṛta-kṛtyam ivātmānaṁ\
 > manyamāno mahāmanāḥ
 
 *bubhuje*—enjoyed; *ca*—also; *śriyam*—opulence; *su-ṛddhām*—prosperity; *dvija*—of the *brāhmaṇas*; *deva*—as good as the demigods; *upalambhitām*—achieved because of the favor; *kṛta-kṛtyam*—very satisfied by his activities; *iva*—like that; *ātmānam*—himself; *manyamānaḥ*—thinking; *mahā-manāḥ*—the great-minded.

@@ -1,9 +1,9 @@
 ### CC Adi 2.75
 
-> অনুবাদ না কহিয়া না কহি বিধেয় ।
+> অনুবাদ না কহিয়া না কহি বিধেয় ।\
 > আগে অনুবাদ কহি, পশ্চাদ্বিধেয় ॥৭৫॥
 
-> anuvāda nā kahiyā nā kahi vidheya
+> anuvāda nā kahiyā nā kahi vidheya\
 > āge anuvāda kahi, paścād vidheya
 
 *anuvāda*—el sujeto; *nā kahiyā*—sin decir; *nā*—no; *kahi*—digo; *vidheya*—el predicado; *āge*—primero; *anuvāda*—el sujeto; *kahi*—digo; *paścāt*—después; *vidheya*—el predicado.

@@ -1,11 +1,11 @@
 ### SB 7.15.42
 
-> अक्षं दशप्राणमधर्मधर्मौ चक्रेऽभिमानं रथिनं च जीवम
+> अक्षं दशप्राणमधर्मधर्मौ चक्रेऽभिमानं रथिनं च जीवम\
 > धनुर्हि तस्य प्रणवं पठन्ति शरं तु जीवं परमेव लक्ष्यम ॥४२॥
 
-> akṣaṁ daśa-prāṇam adharma-dharmau
-> cakre 'bhimānaṁ rathinaṁ ca jīvam
-> dhanur hi tasya praṇavaṁ paṭhanti
+> akṣaṁ daśa-prāṇam adharma-dharmau\
+> cakre 'bhimānaṁ rathinaṁ ca jīvam\
+> dhanur hi tasya praṇavaṁ paṭhanti\
 > śaraṁ tu jīvaṁ param eva lakṣyam
 
 *akṣam*—the spokes (on the chariot wheel); *daśa*—ten; *prāṇam*—the ten kinds of air flowing within the body; *adharma*—irreligion; *dharmau*—religion (two sides of the wheel, up and down); *cakre*—in the wheel; *abhimānam*—false identification; *rathinam*—the charioteer or master of the body; *ca*—also; *jīvam*—the living entity; *dhanuḥ*—the bow; *hi*—indeed; *tasya*—his; *praṇavam*—the Vedic *mantra oṁkāra*; *paṭhanti*—it is said; *śaram*—an arrow; *tu*—but; *jīvam*—the living entity; *param*—the Supreme Lord; *eva*—indeed; *lakṣyam*—the target.

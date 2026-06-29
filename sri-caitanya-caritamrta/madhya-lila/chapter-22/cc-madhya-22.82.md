@@ -1,13 +1,13 @@
 ### CC Madhya 22.82
 
-> মহৎসেবাং দ্বারমাহুর্বিমুক্তে-
-> স্তমোদ্বারং যোষিতাং সঙ্গিসঙ্গম্ ।
-> মহান্তস্তে সমচিত্তাঃ প্রশান্তা
+> মহৎসেবাং দ্বারমাহুর্বিমুক্তে-\
+> স্তমোদ্বারং যোষিতাং সঙ্গিসঙ্গম্ ।\
+> মহান্তস্তে সমচিত্তাঃ প্রশান্তা\
 > বিমন্যবঃ সুহৃদঃ সাধবো যে ॥৮২॥
 
-> mahat-sevāṁ dvāram āhur vimuktes
-> tamo-dvāraṁ yoṣitāṁ saṅgi-saṅgam
-> mahāntas te sama-cittāḥ praśāntā
+> mahat-sevāṁ dvāram āhur vimuktes\
+> tamo-dvāraṁ yoṣitāṁ saṅgi-saṅgam\
+> mahāntas te sama-cittāḥ praśāntā\
 > vimanyavaḥ suhṛdaḥ sādhavo ye
 
 *mahat-sevām*—the service of the pure devotee spiritual master; *dvāram*—door; *āhuḥ*—they said; *vimukteḥ*—of liberation; *tamaḥ-dvāram*—the door to darkness; *yoṣitām*—of women and money; *saṅgi-saṅgam*—association with those who enjoy the association; *mahāntaḥ*—great souls; *te*—they; *sama-cittāḥ*—equally disposed to all; *praśāntāḥ*—very peaceful; *vimanyavaḥ*—without anger; *suhṛdaḥ*—well-wishers of everyone; *sādhavaḥ*—who are endowed with all good qualities, or who do not look for faults in others; *ye*—those who.

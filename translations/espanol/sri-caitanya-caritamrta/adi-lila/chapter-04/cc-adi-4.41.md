@@ -1,9 +1,9 @@
 ### CC Adi 4.41
 
-> এইমত ভক্তভাব করি’ অঙ্গীকার ।
+> এইমত ভক্তভাব করি’ অঙ্গীকার ।\
 > আপনি আচরি’ ভক্তি করিল প্রচার ॥৪১॥
 
-> ei-mata bhakta-bhāva kari' aṅgīkāra
+> ei-mata bhakta-bhāva kari' aṅgīkāra\
 > āpani ācari' bhakti karila pracāra
 
 *ei-mata*—de este modo; *bhakta-bhāva*—la disposición de un devoto; *kari'*—haciendo; *aṅgīkāra*—aceptación; *āpani*—Él mismo; *ācari'*—practicando; *bhakti*—el servicio devocional; *karila*—hizo; *pracāra*—propagación.

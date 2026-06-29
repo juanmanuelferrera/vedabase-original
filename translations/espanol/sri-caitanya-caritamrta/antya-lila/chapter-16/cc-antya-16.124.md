@@ -1,13 +1,13 @@
 ### CC Antya 16.124
 
-> সচেতন রহু দূরে, অচেতন সচেতন করে,
-> তোমার অধর — বড় বাজিকর ।
-> তোমার বেণু শুষ্কেন্ধন, তার জন্মায় ইন্দ্রিয়-মন,
+> সচেতন রহু দূরে, অচেতন সচেতন করে,\
+> তোমার অধর — বড় বাজিকর ।\
+> তোমার বেণু শুষ্কেন্ধন, তার জন্মায় ইন্দ্রিয়-মন,\
 > তারে আপনা পিয়ায় নিরন্তর ॥১২৪॥
 
-> sacetana rahu dūre, acetana sacetana kare,
-> tomāra adhara--baḍa vājikara
-> tomāra veṇu śuṣkendhana, tāra janmāya indriya-mana,
+> sacetana rahu dūre, acetana sacetana kare,\
+> tomāra adhara--baḍa vājikara\
+> tomāra veṇu śuṣkendhana, tāra janmāya indriya-mana,\
 > tāre āpanā piyāya nirantara
 
 *sa-cetana*—seres vivientes conscientes; *rahu dūre*—dejemos aparte; *acetana*—inconsciente; *sa-cetana*—consciente; *kare*—hacen; *tomāra*—Tus; *adhara*—labios; *baḍa*—muy grandes; *vājikara*—magos; *tomāra*—Tu; *veṇu*—flauta; *śuṣka-indhana*—madera seca; *tāra*—de esa; *janmāya*—crean; *indriya-mana*—los sentidos y la mente; *tāre*—a la flauta; *āpanā*—a sí mismos; *piyāya*—le dan de beber; *nirantara*—constantemente.

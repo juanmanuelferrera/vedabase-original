@@ -1,11 +1,11 @@
 ### SB 8.18.20
 
-> श्रुत्वाश्वमेधैर्यजमानमूर्जितं बलिं भृगूणामुपकल्पितैस्ततः
+> श्रुत्वाश्वमेधैर्यजमानमूर्जितं बलिं भृगूणामुपकल्पितैस्ततः\
 > जगाम तत्राखिलसारसम्भृतो भारेण गां सन्नमयन्पदे पदे ॥२०॥
 
-> śrutvāśvamedhair yajamānam ūrjitaṁ
-> baliṁ bhṛgūṇām upakalpitais tataḥ
-> jagāma tatrākhila-sāra-sambhṛto
+> śrutvāśvamedhair yajamānam ūrjitaṁ\
+> baliṁ bhṛgūṇām upakalpitais tataḥ\
+> jagāma tatrākhila-sāra-sambhṛto\
 > bhāreṇa gāṁ sannamayan pade pade
 
 *śrutvā*—tras escuchar; *aśvamedhaiḥ*—con sacrificios *aśvamedha*; *yajamānam*—el que celebraba; *ūrjitam*—** muy glorioso; *balim*—Bali Mahārāja; *bhṛgūṇām*—bajo la guía de los *brāhmaṇas* nacidos en la dinastía Bhṛgu; *upakalpitaiḥ*—celebrados; *tataḥ*—de ese lugar; *jagāma*—fue; *tatra*—allí; *akhila-sāra-sambhṛtaḥ*—la Suprema Personalidad de Dios, la esencia de toda creación; *bhāreṇa*—con el peso; *gām*—la Tierra; *sannamayan*—se hundía; *pade pade*—a cada paso.

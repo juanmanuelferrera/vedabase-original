@@ -1,9 +1,9 @@
 ### CC Madhya 10.67
 
-> নিত্যানন্দ, জগদানন্দ, মুকুন্দ, দামোদর ।
+> নিত্যানন্দ, জগদানন্দ, মুকুন্দ, দামোদর ।\
 > চারিজনে যুক্তি তবে করিলা অন্তর ॥৬৭॥
 
-> nityānanda, jagadānanda, mukunda, dāmodara
+> nityānanda, jagadānanda, mukunda, dāmodara\
 > cāri-jane yukti tabe karilā antara
 
 *nityānanda*—Lord Nityānanda Prabhu; *jagadānanda*—Jagadānanda; *mukunda*—Mukunda; *dāmodara*—Dāmodara; *cāri-jane*—four persons; *yukti*—plan; *tabe*—thereupon; *karilā*—did; *antara*—within the mind.

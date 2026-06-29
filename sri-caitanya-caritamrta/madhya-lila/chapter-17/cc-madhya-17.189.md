@@ -1,9 +1,9 @@
 ### CC Madhya 17.189
 
-> বাহু তুলি’ বলে প্রভু ‘হরিবোল’-ধ্বনি ।
+> বাহু তুলি’ বলে প্রভু ‘হরিবোল’-ধ্বনি ।\
 > প্রেমে মত্ত নাচে লোক করি’ হরিধ্বনি ॥১৮৯॥
 
-> bāhu tuli' bale prabhu 'hari-bola'-dhvani
+> bāhu tuli' bale prabhu 'hari-bola'-dhvani\
 > preme matta nāce loka kari' hari-dhvani
 
 *bāhu tuli'*—raising the arms; *bale*—says; *prabhu*—Śrī Caitanya Mahāprabhu; *hari-bola-dhvani*—the transcendental sound vibration Hari bol; *preme*—in ecstasy; *matta*—maddened; *nāce*—dance; *loka*—the people; *kari' hari-dhvani*—making the transcendental vibration Hari.

@@ -1,11 +1,11 @@
 ### SB 1.1.19
 
-> वयं तु न वितृप्याम उत्तमश्लोकविक्रमे ।
+> वयं तु न वितृप्याम उत्तमश्लोकविक्रमे ।\
 > यच्छृण्वतां रसज्ञानां स्वादु स्वादु पदे पदे ॥१९॥
 
-> vayaṁ tu na vitṛpyāma
-> uttama-śloka-vikrame
-> yac-chṛṇvatāṁ rasa-jñānāṁ
+> vayaṁ tu na vitṛpyāma\
+> uttama-śloka-vikrame\
+> yac-chṛṇvatāṁ rasa-jñānāṁ\
 > svādu svādu pade pade
 
 *vayam*—nosotros; *tu*—pero; *na*—no; *vitṛpyāmaḥ*—estará descansando; *uttama-śloka*—la Personalidad de Dios, a quien se le glorifica mediante oraciones trascendentales; *vikrame*—aventuras; *yat*—las cuales; *śṛṇvatām*—por oír continuamente; *rasa*—humor; *jñānām*—aquellos que están versados en; *svādu*—saboreando; *svādu*—sabroso; *pade pade*—a cada paso.

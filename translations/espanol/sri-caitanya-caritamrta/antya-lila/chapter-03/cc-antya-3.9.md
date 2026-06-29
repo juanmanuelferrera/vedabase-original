@@ -1,9 +1,9 @@
 ### CC Antya 3.9
 
-> আর দিন সেই বালক প্রভুস্থানে আইলা ।
+> আর দিন সেই বালক প্রভুস্থানে আইলা ।\
 > গোসাঞি তারে প্রীতি করি’ বার্তা পুছিলা ॥৯॥
 
-> āra dina sei bālaka prabhu-sthāne āilā
+> āra dina sei bālaka prabhu-sthāne āilā\
 > gosāñi tāre prīti kari' vārtā puchilā
 
 *āra dina*—un día; *sei bālaka*—ese muchacho; *prabhu-sthāne āilā*—acudió al Señor Śrī Caitanya Mahāprabhu; *gosāñi*—el Señor Śrī Caitanya Mahāprabhu; *tāre*—a él; *prīti kari'*—con gran afecto; *vārtā*—noticias; *puchilā*—preguntó.

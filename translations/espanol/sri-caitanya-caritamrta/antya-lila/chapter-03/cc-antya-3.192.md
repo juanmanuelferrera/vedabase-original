@@ -1,9 +1,9 @@
 ### CC Antya 3.192
 
-> পরম-সুন্দর, পণ্ডিত, নূতন-যৌবন ।
+> পরম-সুন্দর, পণ্ডিত, নূতন-যৌবন ।\
 > নামাভাসে ‘মুক্তি’ শুনি’ না হইল সহন ॥১৯২॥
 
-> parama-sundara, paṇḍita, nūtana-yauvana
+> parama-sundara, paṇḍita, nūtana-yauvana\
 > nāmābhāse 'mukti' śuni' nā ha-ila sahana
 
 *parama-sundara*—muy apuesto; *paṇḍita*—erudito; *nūtana*—nueva; *yauvana*—juventud; *nāma-ābhāse*—por el vislumbre del despertar del canto puro del santo nombre; *mukti*—liberación; *śuni'*—al oír; *nā ha-ila sahana*—no pudo tolerarlo.

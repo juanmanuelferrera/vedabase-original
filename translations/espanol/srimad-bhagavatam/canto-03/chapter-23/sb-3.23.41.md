@@ -1,11 +1,11 @@
 ### SB 3.23.41
 
-> भ्राजिष्णुना विमानेन कामगेन महीयसा ।
+> भ्राजिष्णुना विमानेन कामगेन महीयसा ।\
 > वैमानिकानत्यशेत चरल्लोकान्यथानिलः ॥४१॥
 
-> bhrājiṣṇunā vimānena
-> kāma-gena mahīyasā
-> vaimānikān atyaśeta
+> bhrājiṣṇunā vimānena\
+> kāma-gena mahīyasā\
+> vaimānikān atyaśeta\
 > caraḹ lokān yathānilaḥ
 
 *bhrājiṣṇunā*—espléndido; *vimānena*—con el avión; *kāma-gena*—que volaba según su deseo; *mahīyasā*—muy grande; *vaimānikān*—a los semidioses en sus aviones; *atyaśeta*—sobrepasó; *caran*—viajando; *lokān*—por los planetas; *yathā*—como; *anilaḥ*—el aire.

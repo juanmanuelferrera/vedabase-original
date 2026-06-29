@@ -1,9 +1,9 @@
 ### CC Antya 3.263
 
-> কৃষ্ণনাম লঞা নাচে, প্রেমবন্যায় ভাসে  ।
+> কৃষ্ণনাম লঞা নাচে, প্রেমবন্যায় ভাসে  ।\
 > নারদ-প্রহ্লাদাদি আসে মনুষ্য-প্রকাশে ॥২৬৩॥
 
-> kṛṣṇa-nāma lañā nāce, prema-vanyāya bhāse
+> kṛṣṇa-nāma lañā nāce, prema-vanyāya bhāse\
 > nārada-prahlādādi āse manuṣya-prakāśe
 
 *kṛṣṇa-nāma*—el santo nombre del Señor Kṛṣṇa; *lañā*—cantando; *nāce*—danzan; *prema-vanyāya*—en la inundación del torrente de amor a Dios; *bhāse*—flotan; *nārada*—el sabio Nārada; *prahlāda-ādi*—y devotos como Prahlāda; *āse*—vienen; *manuṣya-prakāśe*—como si fueran seres humanos.

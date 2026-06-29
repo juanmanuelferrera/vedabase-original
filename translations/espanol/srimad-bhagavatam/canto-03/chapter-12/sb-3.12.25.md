@@ -1,11 +1,11 @@
 ### SB 3.12.25
 
-> धर्मः स्तनाद्दक्षिणतो यत्र नारायणः स्वयम् ।
+> धर्मः स्तनाद्दक्षिणतो यत्र नारायणः स्वयम् ।\
 > अधर्मः पृष्ठतो यस्मान्मृत्युर्लोकभयङ्करः ॥२५॥
 
-> dharmaḥ stanād dakṣiṇato
-> yatra nārāyaṇaḥ svayam
-> adharmaḥ pṛṣṭhato yasmān
+> dharmaḥ stanād dakṣiṇato\
+> yatra nārāyaṇaḥ svayam\
+> adharmaḥ pṛṣṭhato yasmān\
 > mṛtyur loka-bhayaṅkaraḥ
 
 *dharmaḥ*—religión; *stanāt*—del pecho; *dakṣiṇataḥ*—del lado derecho; *yatra*—en donde; *nārāyaṇaḥ*—el Señor Supremo; *svayam*—personalmente; *adharmaḥ*—irreligión; *pṛṣṭhataḥ*—de la espalda; *yasmāt*—de la cual; *mṛtyuḥ*—muerte; *loka*—para la entidad viviente; *bhayam-karaḥ*—horrible.

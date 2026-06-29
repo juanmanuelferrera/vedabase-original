@@ -1,11 +1,11 @@
 ### SB 5.10.11
 
-> जीवन्मृतत्वं नियमेन राजनाद्यन्तवद्यद्विकृतस्य दृष्टम
+> जीवन्मृतत्वं नियमेन राजनाद्यन्तवद्यद्विकृतस्य दृष्टम\
 > स्वस्वाम्यभावो ध्रुव ईड्य यत्र तर्ह्युच्यतेऽसौ विधिकृत्ययोगः ॥११॥
 
-> jīvan-mṛtatvaṁ niyamena rājan
-> ādyantavad yad vikṛtasya dṛṣṭam
-> sva-svāmya-bhāvo dhruva īḍya yatra
+> jīvan-mṛtatvaṁ niyamena rājan\
+> ādyantavad yad vikṛtasya dṛṣṭam\
+> sva-svāmya-bhāvo dhruva īḍya yatra\
 > tarhy ucyate 'sau vidhikṛtya-yogaḥ
 
 *jīvat-mṛtatvam*—the quality of being dead while living; *niyamena*—by the laws of nature; *rājan*—O King; *ādi-anta-vat*—everything material has a beginning and an end; *yat*—because; *vikṛtasya*—of things that are transformed, such as the body; *dṛṣṭam*—is seen; *sva-svāmya-bhāvaḥ*—the condition of servanthood and mastership; *dhruvaḥ*—unchangeable; *īḍya*—O you who are worshiped; *yatra*—wherein; *tarhi*—then; *ucyate*—it is said; *asau*—that; *vidhi-kṛtya-yogaḥ*—fitness of order and duty.

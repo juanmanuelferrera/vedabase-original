@@ -1,13 +1,13 @@
 ### CC Antya 17.52
 
-> “এই কৃষ্ণের বিরহে, উদ্বেগে মন স্থির নহে,
-> প্রাপ্ত্যুপায়-চিন্তন না যায় ।
-> যেবা তুমি সখীগণ, বিষাদে বাউল মন,
+> “এই কৃষ্ণের বিরহে, উদ্বেগে মন স্থির নহে,\
+> প্রাপ্ত্যুপায়-চিন্তন না যায় ।\
+> যেবা তুমি সখীগণ, বিষাদে বাউল মন,\
 > কারে পুছোঁ, কে কহে উপায় ? ॥ ৫২ ॥
 
-> "ei kṛṣṇera virahe, udvege mana sthira nahe,
-> prāpty-upāya-cintana nā yāya
-> yebā tumi sakhī-gaṇa, viṣāde bāula mana,
+> "ei kṛṣṇera virahe, udvege mana sthira nahe,\
+> prāpty-upāya-cintana nā yāya\
+> yebā tumi sakhī-gaṇa, viṣāde bāula mana,\
 > kāre puchoṅ, ke kahe upāya?
 
 *ei*—esta; *kṛṣṇera*—de Kṛṣṇa; *virahe*—en separación; *udvege*—en la ansiedad; *mana*—la mente; *sthira*—paciente; *nahe*—no está; *prāpti-upāya*—los medios para obtenerlo; *cintana nā yāya*—no puedo pensar en; *yebā*—todas; *tumi*—vosotras; *sakhī-gaṇa*—amigas; *viṣāde*—en lamentación; *bāula*—enloquecidas; *mana*—las mentes; *kāre*—a quién; *puchoṅ*—preguntaré; *ke*—quién; *kahe*—dirá; *upāya*—los medios.

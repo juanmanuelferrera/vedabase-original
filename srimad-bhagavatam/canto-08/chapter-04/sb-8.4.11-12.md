@@ -1,20 +1,20 @@
 ### SB 8.4.11-12
 
-> श्रीशुक उवाच
-> एवं शप्त्वा गतोऽगस्त्यो भगवान्नृप सानुगः
-> इन्द्रद्युम्नोऽपि राजर्षिर्दिष्टं तदुपधारयन ॥११॥
-> आपन्नः कौञ्जरीं योनिमात्मस्मृतिविनाशिनीम
+> श्रीशुक उवाच\
+> एवं शप्त्वा गतोऽगस्त्यो भगवान्नृप सानुगः\
+> इन्द्रद्युम्नोऽपि राजर्षिर्दिष्टं तदुपधारयन ॥११॥\
+> आपन्नः कौञ्जरीं योनिमात्मस्मृतिविनाशिनीम\
 > हर्यर्चनानुभावेन यद्गजत्वेऽप्यनुस्मृतिः ॥१२॥
 
-> śrī-śuka uvāca
-> evaṁ śaptvā gato 'gastyo
-> bhagavān nṛpa sānugaḥ
-> indradyumno 'pi rājarṣir
+> śrī-śuka uvāca\
+> evaṁ śaptvā gato 'gastyo\
+> bhagavān nṛpa sānugaḥ\
+> indradyumno 'pi rājarṣir\
 > diṣṭaṁ tad upadhārayan
 
-> āpannaḥ kauñjarīṁ yonim
-> ātma-smṛti-vināśinīm
-> hary-arcanānubhāvena
+> āpannaḥ kauñjarīṁ yonim\
+> ātma-smṛti-vināśinīm\
+> hary-arcanānubhāvena\
 > yad-gajatve 'py anusmṛtiḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—thus; *śaptvā*—after cursing; *gataḥ*—left that place; *agastyaḥ*—Agastya Muni; *bhagavān*—so powerful; *nṛpa*—O King; *sa-anugaḥ*—with his associates; *indradyumnaḥ*—King Indradyumna; *api*—also; *rājarṣiḥ*—although he was a *rājarṣi*; *diṣṭam*—because of past deeds; *tat*—that curse; *upadhārayan*—considering; *āpannaḥ*—got; *kauñjarīm*—of an elephant; *yonim*—the species; *ātma-smṛti*—remembrance of one's identity; *vināśinīm*—which destroys; *hari*—the Supreme Personality of Godhead; *arcana-anubhāvena*—because of worshiping; *yat*—that; *gajatve*—in the body of an elephant; *api*—although; *anusmṛtiḥ*—the opportunity to remember his past devotional service.

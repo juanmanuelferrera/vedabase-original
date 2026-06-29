@@ -1,9 +1,9 @@
 ### CC Antya 6.13
 
-> পূর্বে শান্তিপুরে রঘুনাথ যবে আইলা ।
+> পূর্বে শান্তিপুরে রঘুনাথ যবে আইলা ।\
 > মহাপ্রভু কৃপা করি’ তাঁরে শিখাইলা ॥১৩॥
 
-> pūrve śāntipure raghunātha yabe āilā
+> pūrve śāntipure raghunātha yabe āilā\
 > mahāprabhu kṛpā kari' tāṅre śikhāilā
 
 *pūrve*—anteriormente; *śāntipure*—a Śāntipura; *raghunātha*—Raghunātha dāsa; *yabe āilā*—cuando acudió; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *kṛpā kari'*—mostrando misericordia sin causa; *tāṅre śikhāilā*—le dio instrucciones.

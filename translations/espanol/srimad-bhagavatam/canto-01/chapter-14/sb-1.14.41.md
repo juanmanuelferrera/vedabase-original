@@ -1,11 +1,11 @@
 ### SB 1.14.41
 
-> कच्चित्त्वं ब्राह्मणं बालं गां वृद्धं रोगिणं स्त्रियम् ।
+> कच्चित्त्वं ब्राह्मणं बालं गां वृद्धं रोगिणं स्त्रियम् ।\
 > शरणोपसृतं सत्त्वं नात्याक्षीः शरणप्रदः ॥४१॥
 
-> kaccit tvaṁ brāhmaṇaṁ bālaṁ
-> gāṁ vṛddhaṁ rogiṇaṁ striyam
-> śaraṇopasṛtaṁ sattvaṁ
+> kaccit tvaṁ brāhmaṇaṁ bālaṁ\
+> gāṁ vṛddhaṁ rogiṇaṁ striyam\
+> śaraṇopasṛtaṁ sattvaṁ\
 > nātyākṣīḥ śaraṇa-pradaḥ
 
 *kaccit*—si; *tvam*—tú mismo; *brāhmaṇam*—los *brāhmaṇas*; *bālam*—el niño; *gām*—la vaca; *vṛddham*—anciano; *rogiṇam*—los enfermos; *striyam*—la mujer; *śaraṇa-upasṛtam*—habiendo acudido en busca de protección; *sattvam*—cualquier ser viviente; *na*—si; *atyākṣīḥ*—no darle refugio; *śaraṇa-pradaḥ*—que merece protección.

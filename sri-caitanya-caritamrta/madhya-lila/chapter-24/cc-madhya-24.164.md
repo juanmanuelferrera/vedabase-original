@@ -1,9 +1,9 @@
 ### CC Madhya 24.164
 
-> এই সব শান্ত যবে ভজে ভগবান্ ।
+> এই সব শান্ত যবে ভজে ভগবান্ ।\
 > ‘শান্ত’ ভক্ত করি’ তবে কহি তাঁর নাম ॥১৬৪॥
 
-> ei saba śānta yabe bhaje bhagavān
+> ei saba śānta yabe bhaje bhagavān\
 > 'śānta' bhakta kari' tabe kahi tāṅra nāma
 
 *ei saba*—all these; *śānta*—neutral; *yabe*—when; *bhaje*—worship; *bhagavān*—the Supreme Personality of Godhead; *śānta bhakta*—devotees in the neutral stage of devotional service; *kari'*—describing as; *tabe*—that time; *kahi*—I speak; *tāṅra*—their; *nāma*—name.

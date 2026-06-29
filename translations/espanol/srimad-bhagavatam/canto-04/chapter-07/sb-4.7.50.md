@@ -1,13 +1,13 @@
 ### SB 4.7.50
 
-> श्रीभगवानुवाच
-> अहं ब्रह्मा च शर्वश्च जगतः कारणं परम् ।
+> श्रीभगवानुवाच\
+> अहं ब्रह्मा च शर्वश्च जगतः कारणं परम् ।\
 > आत्मेश्वर उपद्रष्टा स्वयन्दृगविशेषणः ॥५०॥
 
-> śrī-bhagavān uvāca
-> ahaṁ brahmā ca śarvaś ca
-> jagataḥ kāraṇaṁ param
-> ātmeśvara upadraṣṭā
+> śrī-bhagavān uvāca\
+> ahaṁ brahmā ca śarvaś ca\
+> jagataḥ kāraṇaṁ param\
+> ātmeśvara upadraṣṭā\
 > svayan-dṛg aviśeṣaṇaḥ
 
 *śrī-bhagavān*—el Señor Viṣṇu; *uvāca*—dijo; *aham*—Yo; *brahmā*—Brahmā; *ca*—y; *śarvaḥ*—el Señor Śiva; *ca*—y; *jagataḥ*—de la manifestación material; *kāraṇam*—causa; *param*—suprema; *ātma-īśvaraḥ*—la Superalma; *upadraṣṭā*—el testigo; *svayam-dṛk*—autosuficiente; *aviśeṣaṇaḥ*—no hay diferencia.

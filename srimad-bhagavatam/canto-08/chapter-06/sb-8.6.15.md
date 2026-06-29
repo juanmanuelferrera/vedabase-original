@@ -1,11 +1,11 @@
 ### SB 8.6.15
 
-> अहं गिरित्रश्च सुरादयो ये दक्षादयोऽग्नेरिव केतवस्ते
+> अहं गिरित्रश्च सुरादयो ये दक्षादयोऽग्नेरिव केतवस्ते\
 > किं वा विदामेश पृथग्विभाता विधत्स्व शं नो द्विजदेवमन्त्रम ॥१५॥
 
-> ahaṁ giritraś ca surādayo ye
-> dakṣādayo 'gner iva ketavas te
-> kiṁ vā vidāmeśa pṛthag-vibhātā
+> ahaṁ giritraś ca surādayo ye\
+> dakṣādayo 'gner iva ketavas te\
+> kiṁ vā vidāmeśa pṛthag-vibhātā\
 > vidhatsva śaṁ no dvija-deva-mantram
 
 *aham*—I (Lord Brahmā); *giritraḥ*—Lord Śiva; *ca*—also; *sura-ādayaḥ*—all the demigods; *ye*—as we are; *dakṣa-ādayaḥ*—headed by Mahārāja Dakṣa; *agneḥ*—of fire; *iva*—like; *ketavaḥ*—sparks; *te*—of You; *kim*—what; *vā*—either; *vidāma*—can we understand; *īśa*—O my Lord; *pṛthak-vibhātāḥ*—independently of You; *vidhatsva*—kindly bestow upon us; *śam*—good fortune; *naḥ*—our; *dvija-deva-mantram*—the means of deliverance suitable for the *brāhmaṇas* and demigods.

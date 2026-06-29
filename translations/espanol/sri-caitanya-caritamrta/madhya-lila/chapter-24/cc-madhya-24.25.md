@@ -1,9 +1,9 @@
 ### CC Madhya 24.25
 
-> ‘কুর্বন্তি’-পদ এই পরস্মৈপদ হয় ।
+> ‘কুর্বন্তি’-পদ এই পরস্মৈপদ হয় ।\
 > কৃষ্ণসুখনিমিত্ত ভজনে তাৎপর্য কহয় ॥২৫॥
 
-> 'kurvanti'-pada ei parasmaipada haya
+> 'kurvanti'-pada ei parasmaipada haya\
 > kṛṣṇa-sukha-nimitta bhajane tātparya kahaya
 
 *kurvanti*—ellos hacen (para otros); *pada*—la palabra; *ei*—esta; *parasmaipada*—una forma verbal que indica cosas hechas para otros; *haya*—es; *kṛṣṇa-sukha-nimitta*—para satisfacer a Kṛṣṇa; *bhajane*—en el servicio devocional; *tātparya*—el significado; *kahaya*—se dice.

@@ -1,11 +1,11 @@
 ### SB 4.4.13
 
-> नाश्चर्यमेतद्यदसत्सु सर्वदा महद्विनिन्दा कुणपात्मवादिषु ।
+> नाश्चर्यमेतद्यदसत्सु सर्वदा महद्विनिन्दा कुणपात्मवादिषु ।\
 > सेर्ष्यं महापूरुषपादपांसुभिर्निरस्ततेजःसु तदेव शोभनम् ॥१३॥
 
-> nāścaryam etad yad asatsu sarvadā
-> mahad-vinindā kuṇapātma-vādiṣu
-> serṣyaṁ mahāpūruṣa-pāda-pāṁsubhir
+> nāścaryam etad yad asatsu sarvadā\
+> mahad-vinindā kuṇapātma-vādiṣu\
+> serṣyaṁ mahāpūruṣa-pāda-pāṁsubhir\
 > nirasta-tejaḥsu tad eva śobhanam
 
 *na*—not; *āścaryam*—wonderful; *etat*—this; *yat*—which; *asatsu*—evil; *sarvadā*—always; *mahat-vinindā*—the deriding of great souls; *kuṇapa-ātma-vādiṣu*—among those who have accepted the dead body as the self; *sa-īrṣyam*—envy; *mahā-pūruṣa*—of great personalities; *pāda-pāṁsubhiḥ*—by the dust of the feet; *nirasta-tejaḥsu*—whose glory is diminished; *tat*—that; *eva*—certainly; *śobhanam*—very good.

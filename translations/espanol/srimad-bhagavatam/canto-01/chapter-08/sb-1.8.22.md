@@ -1,11 +1,11 @@
 ### SB 1.8.22
 
-> नमः पङ्कजनाभाय नमः पङ्कजमालिने ।
+> नमः पङ्कजनाभाय नमः पङ्कजमालिने ।\
 > नमः पङ्कजनेत्राय नमस्ते पङ्कजाङ्घ्रये ॥२२॥
 
-> namaḥ paṅkaja-nābhāya
-> namaḥ paṅkaja-māline
-> namaḥ paṅkaja-netrāya
+> namaḥ paṅkaja-nābhāya\
+> namaḥ paṅkaja-māline\
+> namaḥ paṅkaja-netrāya\
 > namas te paṅkajāṅghraye
 
 *namaḥ*—todas las reverencias respetuosas; *paṅkaja-nābhāya*—al Señor, quien en el centro de Su abdomen tiene una depresión específica que se asemeja a una flor de loto; *namaḥ*—reverencias; *paṅkaja-māline*—aquel que siempre está adornado con una guirnalda de flores de loto; *namaḥ*—reverencias; *paṅkaja-netrāya*—aquel cuya mirada es tan refrescante como una flor de loto; *namaḥ te*—respetuosas reverencias a Ti; *paṅkaja-aṅghraye*—a Ti, cuyas plantas de los pies están grabadas con flores de loto (y de quien, por ello, se dice que posee pies de loto).

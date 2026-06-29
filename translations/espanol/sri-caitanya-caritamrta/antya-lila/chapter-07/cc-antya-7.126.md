@@ -1,9 +1,9 @@
 ### CC Antya 7.126
 
-> “আমি অজ্ঞ জীব, — অজ্ঞোচিত কর্ম কৈলুঁ ।
+> “আমি অজ্ঞ জীব, — অজ্ঞোচিত কর্ম কৈলুঁ ।\
 > তোমার আগে মূর্খ আমি পাণ্ডিত্য প্রকাশিলুঁ ॥১২৬॥
 
-> "āmi ajña jīva,--ajñocita karma kailuṅ
+> "āmi ajña jīva,--ajñocita karma kailuṅ\
 > tomāra āge mūrkha āmi pāṇḍitya prakāśiluṅ
 
 *āmi*—yo; *ajña jīva*—una entidad viviente necia; *ajña-ucita*—propio de un necio; *karma*—actividad; *kailuṅ*—he hecho; *tomāra āge*—ante Ti; *mūrkha*—un necio; *āmi*—yo; *pāṇḍitya prakāśiluṅ*—he tratado de demostrar erudición.

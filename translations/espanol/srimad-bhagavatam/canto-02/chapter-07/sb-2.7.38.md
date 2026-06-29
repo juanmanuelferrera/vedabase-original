@@ -1,13 +1,13 @@
 ### SB 2.7.38
 
-> यर्ह्यालयेष्वपि सतां न हरेः कथाः स्युः
-> पाषण्डिनो द्विजजना वृषला नृदेवाः ।
-> स्वाहा स्वधा वषडिति स्म गिरो न यत्र
+> यर्ह्यालयेष्वपि सतां न हरेः कथाः स्युः\
+> पाषण्डिनो द्विजजना वृषला नृदेवाः ।\
+> स्वाहा स्वधा वषडिति स्म गिरो न यत्र\
 > शास्ता भविष्यति कलेर्भगवान्युगान्ते ॥३८॥
 
-> yarhy ālayeṣv api satāṁ na hareḥ kathāḥ syuḥ
-> pāṣaṇḍino dvija-janā vṛṣalā nṛdevāḥ
-> svāhā svadhā vaṣaḍ iti sma giro na yatra
+> yarhy ālayeṣv api satāṁ na hareḥ kathāḥ syuḥ\
+> pāṣaṇḍino dvija-janā vṛṣalā nṛdevāḥ\
+> svāhā svadhā vaṣaḍ iti sma giro na yatra\
 > śāstā bhaviṣyati kaler bhagavān yugānte
 
 *yarhi*—cuando ocurre; *ālayeṣu*—en la residencia de; *api*—incluso; *satām*—caballeros civilizados; *na*—no; *hareḥ*—de la Personalidad de Dios; *kathāḥ*—temas; *syuḥ*—ocurrirán; *pāṣaṇḍinaḥ*—ateos; *dvija-janāḥ*—personas que declaran ser las tres clases superiores (*brāhmaṇas*, *kṣatriyas* y *vaiśyas*); *vṛṣalāḥ*—los *śūdras* de clase inferior; *nṛ-devāḥ*—ministros del gobierno; *svāhā*—himnos para realizar sacrificios; *svadhā*—los ingredientes para realizar sacrificios; *vaṣaṭ*—el altar del sacrificio; *iti*—todos estos; *sma*—habrán; *giraḥ*—palabras; *na*—nunca; *yatra*—en ninguna parte; *śāstā*—el castigador; *bhaviṣyati*—aparecerá; *kaleḥ*—de la era de Kali; *bhagavān*—la Personalidad de Dios; *yuga-ante*—al final de.

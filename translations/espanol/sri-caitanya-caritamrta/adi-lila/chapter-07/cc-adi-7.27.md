@@ -1,9 +1,9 @@
 ### CC Adi 7.27
 
-> জগৎ ডুবিল, জীবের হৈল বীজ নাশ ।
+> জগৎ ডুবিল, জীবের হৈল বীজ নাশ ।\
 > তাহা দেখি’ পাঁচ জনের পরম উল্লাস ॥২৭॥
 
-> jagat ḍubila, jīvera haila bīja nāśa
+> jagat ḍubila, jīvera haila bīja nāśa\
 > tāhā dekhi' pāṅca janera parama ullāsa
 
 *jagat*—el mundo entero; *ḍubila*—se hundió; *jīvera*—de las entidades vivientes; *haila*—sucedió; *bīja*—la semilla; *nāśa*—completamente acabada; *tāhā*—entonces; *dekhi'*—al ver; *pāñca*—cinco; *janera*—de las personas; *parama*—suprema; *ullāsa*—felicidad.

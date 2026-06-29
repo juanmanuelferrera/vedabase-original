@@ -1,11 +1,11 @@
 ### SB 1.5.20
 
-> इदं हि विश्वं भगवानिवेतरो यतो जगत्स्थाननिरोधसम्भवाः ।
+> इदं हि विश्वं भगवानिवेतरो यतो जगत्स्थाननिरोधसम्भवाः ।\
 > तद्धि स्वयं वेद भवांस्तथापि ते प्रादेशमात्रं भवतः प्रदर्शितम् ॥२०॥
 
-> idaṁ hi viśvaṁ bhagavān ivetaro
-> yato jagat-sthāna-nirodha-sambhavāḥ
-> tad dhi svayaṁ veda bhavāṁs tathāpi te
+> idaṁ hi viśvaṁ bhagavān ivetaro\
+> yato jagat-sthāna-nirodha-sambhavāḥ\
+> tad dhi svayaṁ veda bhavāṁs tathāpi te\
 > prādeśa-mātraṁ bhavataḥ pradarśitam
 
 *idam*—este; *hi*—todo; *viśvam*—cosmos; *bhagavān*—el Señor Supremo; *iva*—prácticamente el mismo; *itaraḥ*—diferente de; *yataḥ*—de quien; *jagat*—los mundos; *sthāna*—existen; *nirodha*—aniquilación; *sambhavāḥ*—creación; *tat hi*—todo acerca de; *svayam*—personalmente; *veda*—sabe; *bhavān*—tu buena persona; *tathā api*—aun así; *te*—a ti; *prādeśa-mātram*—solo una sinopsis; *bhavataḥ*—a ti; *pradarśitam*—explicado.

@@ -1,13 +1,13 @@
 ### SB 6.16.26
 
-> श्रीशुक उवाच
-> भक्तायैतां प्रपन्नाय विद्यामादिश्य नारदः
+> श्रीशुक उवाच\
+> भक्तायैतां प्रपन्नाय विद्यामादिश्य नारदः\
 > ययावङ्गिरसा साकं धाम स्वायम्भुवं प्रभो ॥२६॥
 
-> śrī-śuka uvāca
-> bhaktāyaitāṁ prapannāya
-> vidyām ādiśya nāradaḥ
-> yayāv aṅgirasā sākaṁ
+> śrī-śuka uvāca\
+> bhaktāyaitāṁ prapannāya\
+> vidyām ādiśya nāradaḥ\
+> yayāv aṅgirasā sākaṁ\
 > dhāma svāyambhuvaṁ prabho
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *bhaktāya*—al devoto; *etām*—este; *prapannāya*—a aquel que se ha entregado por completo; *vidyām*—conocimiento trascendental; *ādiśya*—instruir; *nāradaḥ*—el gran sabio Nārada; *yayau*—se fue; *aṅgirasā*—el gran santo Aṅgirā; *sākam*—con; *dhāma*—hacia el planeta más elevado; *svāyambhuvam*—perteneciente al Señor Brahmā; *prabho*—¡oh, rey!.

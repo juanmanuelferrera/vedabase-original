@@ -1,11 +1,11 @@
 ### SB 4.24.57
 
-> क्षणार्धेनापि तुलये न स्वर्गं नापुनर्भवम् ।
+> क्षणार्धेनापि तुलये न स्वर्गं नापुनर्भवम् ।\
 > भगवत्सङ्गिसङ्गस्य मर्त्यानां किमुताशिषः ॥५७॥
 
-> kṣaṇārdhenāpi tulaye
-> na svargaṁ nāpunar-bhavam
-> bhagavat-saṅgi-saṅgasya
+> kṣaṇārdhenāpi tulaye\
+> na svargaṁ nāpunar-bhavam\
+> bhagavat-saṅgi-saṅgasya\
 > martyānāṁ kim utāśiṣaḥ
 
 *kṣaṇa-ardhena*—by half a moment; *api*—even; *tulaye*—compare; *na*—never; *svargam*—heavenly planets; *na*—neither; *apunaḥ-bhavam*—merging into the Supreme; *bhagavat*—the Supreme Personality of Godhead; *saṅgi*—associate; *saṅgasya*—one who takes advantage of associating; *martyānām*—of the conditioned soul; *kim uta*—what is there; *āśiṣaḥ*—blessings.

@@ -1,14 +1,14 @@
 ### CC Antya 10.140-141
 
-> এইমত নিমন্ত্রণ করেন যত্ন করি ।
-> বাসুদেব, গদাধর-দাস, গুপ্ত-মুরারি ॥১৪০॥
-> কুলীনগ্রামী, খণ্ডবাসী, আর যত জন ।
+> এইমত নিমন্ত্রণ করেন যত্ন করি ।\
+> বাসুদেব, গদাধর-দাস, গুপ্ত-মুরারি ॥১৪০॥\
+> কুলীনগ্রামী, খণ্ডবাসী, আর যত জন ।\
 > জগন্নাথের প্রসাদ আনি’ করে নিমন্ত্রণ ॥১৪১॥
 
-> ei-mata nimantraṇa karena yatna kari
+> ei-mata nimantraṇa karena yatna kari\
 > vāsudeva, gadādhara-dāsa, gupta-murāri
 
-> kulīna-grāmī, khaṇḍa-vāsī, āra yata jana
+> kulīna-grāmī, khaṇḍa-vāsī, āra yata jana\
 > jagannāthera prasāda āni' kare nimantraṇa
 
 *ei-mata*—de este modo; *nimantraṇa*—invitación; *karena*—llevan a cabo; *yatna kari*—con devoción; *vāsudeva*—Vāsudeva; *gadādhara-dāsa*—Gadādhara dāsa; *gupta-murāri*—Murāri Gupta; *kulīna-grāmī*—los habitantes de Kulīna-grāma; *khaṇḍa-vāsī*—los habitantes de Khaṇḍa; *āra*—y; *yata jana*—muchas otras personas; *jagannāthera prasāda*—remanentes de la comida de Jagannātha; *āni’*—trayendo; *kare nimantraṇa*—invitan.

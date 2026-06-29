@@ -1,11 +1,11 @@
 ### SB 4.23.16
 
-> खान्याकाशे द्रवं तोये यथास्थानं विभागशः ।
+> खान्याकाशे द्रवं तोये यथास्थानं विभागशः ।\
 > क्षितिमम्भसि तत्तेजस्यदो वायौ नभस्यमुम् ॥१६॥
 
-> khāny ākāśe dravaṁ toye
-> yathā-sthānaṁ vibhāgaśaḥ
-> kṣitim ambhasi tat tejasy
+> khāny ākāśe dravaṁ toye\
+> yathā-sthānaṁ vibhāgaśaḥ\
+> kṣitim ambhasi tat tejasy\
 > ado vāyau nabhasy amum
 
 *khāni*—the different holes in the body for the sense organs; *ākāśe*—in the sky; *dravam*—the liquid substance; *toye*—in the water; *yathā-sthānam*—according to proper situation; *vibhāgaśaḥ*—as they are divided; *kṣitim*—earth; *ambhasi*—in the water; *tat*—that; *tejasi*—in the fire; *adaḥ*—the fire; *vāyau*—in the air; *nabhasi*—in the sky; *amum*—that.

@@ -1,9 +1,9 @@
 ### CC Adi 7.106
 
-> প্রভু কহে, বেদান্ত-সূত্র ঈশ্বর-বচন ।
+> প্রভু কহে, বেদান্ত-সূত্র ঈশ্বর-বচন ।\
 > ব্যাসরূপে কৈল যাহা শ্রীনারায়ণ ॥১০৬॥
 
-> prabhu kahe, vedānta-sūtra īśvara-vacana
+> prabhu kahe, vedānta-sūtra īśvara-vacana\
 > vyāsa-rūpe kaila yāhā śrī-nārāyaṇa
 
 *prabhukahe*—the Lord began to speak; *vedānta-sūtra*—the philosophy of *Vedanta-sūtra*; *īśvara-vacana*—spoken by the Supreme Personality of Godhead; *vyāsa-rūpe*—in the form of Vyāsadeva; *kaila*—He has made; *yāhā*—whatever; *śrī-nārāyaṇa*—the Supreme Personality of Godhead.

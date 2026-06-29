@@ -1,11 +1,11 @@
 ### SB 6.13.17
 
-> ततो गतो ब्रह्मगिरोपहूत ऋतम्भरध्याननिवारिताघः
+> ततो गतो ब्रह्मगिरोपहूत ऋतम्भरध्याननिवारिताघः\
 > पापस्तु दिग्देवतया हतौजास्तं नाभ्यभूदवितं विष्णुपत्न्या ॥१७॥
 
-> tato gato brahma-giropahūta
-> ṛtambhara-dhyāna-nivāritāghaḥ
-> pāpas tu digdevatayā hataujās
+> tato gato brahma-giropahūta\
+> ṛtambhara-dhyāna-nivāritāghaḥ\
+> pāpas tu digdevatayā hataujās\
 > taṁ nābhyabhūd avitaṁ viṣṇu-patnyā
 
 *tataḥ*—thereafter; *gataḥ*—gone; *brahma*—of the *brāhmaṇas*; *girā*—by the words; *upahūtaḥ*—being invited; *ṛtambhara*—on the Supreme Lord, who maintains truth; *dhyāna*—by meditation; *nivārita*—impeded; *aghaḥ*—whose sin; *pāpaḥ*—the sinful activity; *tu*—then; *dik-devatayā*—by the demigod Rudra; *hata-ojāḥ*—with all prowess diminished; *tam*—him (Indra); *na abhyabhūt*—could not overcome; *avitam*—being protected; *viṣṇu-patnyā*—by Lord Viṣṇu's wife, the goddess of fortune.

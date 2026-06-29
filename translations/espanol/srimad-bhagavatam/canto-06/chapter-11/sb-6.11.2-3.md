@@ -1,18 +1,18 @@
 ### SB 6.11.2-3
 
-> विशीर्यमाणां पृतनामासुरीमसुरर्षभः
-> कालानुकूलैस्त्रिदशैः काल्यमानामनाथवत ॥२॥
-> दृष्ट्वातप्यत सङ्क्रुद्ध इन्द्रशत्रुरमर्षितः
+> विशीर्यमाणां पृतनामासुरीमसुरर्षभः\
+> कालानुकूलैस्त्रिदशैः काल्यमानामनाथवत ॥२॥\
+> दृष्ट्वातप्यत सङ्क्रुद्ध इन्द्रशत्रुरमर्षितः\
 > तान्निवार्यौजसा राजन्निर्भर्त्स्येदमुवाच ह ॥३॥
 
-> viśīryamāṇāṁ pṛtanām
-> āsurīm asurarṣabhaḥ
-> kālānukūlais tridaśaiḥ
+> viśīryamāṇāṁ pṛtanām\
+> āsurīm asurarṣabhaḥ\
+> kālānukūlais tridaśaiḥ\
 > kālyamānām anāthavat
 
-> dṛṣṭvātapyata saṅkruddha
-> indra-śatrur amarṣitaḥ
-> tān nivāryaujasā rājan
+> dṛṣṭvātapyata saṅkruddha\
+> indra-śatrur amarṣitaḥ\
+> tān nivāryaujasā rājan\
 > nirbhartsyedam uvāca ha
 
 *viśīryamāṇām*—deshecho; *pṛtanām*—el ejército; *āsurīm*—de los demonios; *asura-ṛṣabhaḥ*—el mejor de los *asuras*, Vṛtrāsura; *kāla-anukūlaiḥ*—aprovechando las circunstancias que el tiempo les brindaba; *tridaśaiḥ*—por los semidioses; *kālyamānām*—perseguidos; *anātha-vat*—como si no hubiese nadie para protegerles; *dṛṣṭvā*—al ver; *atapyata*—sintió dolor; *saṅkruddhaḥ*—muy iracundo; *indra-śatruḥ*—Vṛtrāsura, el enemigo de Indra; *amarṣitaḥ*—incapaz de tolerar; *tān*—a ellos (a los semidioses); *nivārya*—cortando el paso; *ojasā*—con gran fuerza; *rājan*—¡oh, rey Parīkṣit!; *nirbhartsya*—reprender; *idam*—esto; *uvāca*—dijo; *ha*—en verdad.

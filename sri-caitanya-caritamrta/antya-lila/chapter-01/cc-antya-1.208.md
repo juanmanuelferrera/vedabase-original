@@ -1,9 +1,9 @@
 ### CC Antya 1.208
 
-> প্রভু-কৃপা রূপে, আর রূপের সদ্গুণ ।
+> প্রভু-কৃপা রূপে, আর রূপের সদ্গুণ ।\
 > দেখি’ চমৎকার হৈল সবাকার মন ॥২০৮॥
 
-> prabhu-kṛpā rūpe, āra rūpera sad-guṇa
+> prabhu-kṛpā rūpe, āra rūpera sad-guṇa\
 > dekhi' camatkāra haila sabākāra mana
 
 *prabhu-kṛpā*—Lord Caitanya's mercy; *rūpe*—upon Rūpa Gosvāmī; *āra*—and; *rūpera sat-guṇa*—the transcendental qualities of Śrīla Rūpa Gosvāmī; *dekhi'*—seeing; *camatkāra haila*—there was astonishment; *sabākāra*—of all of them; *mana*—in the minds.

@@ -1,9 +1,9 @@
 ### CC Antya 6.161
 
-> বাসুদেব-দত্তের তেঁহ হয় ‘অনুগৃহীত’ ।
+> বাসুদেব-দত্তের তেঁহ হয় ‘অনুগৃহীত’ ।\
 > রঘুনাথের ‘গুরু’ তেঁহো হয় ‘পুরোহিত’ ॥১৬১॥
 
-> vāsudeva-dattera teṅha haya 'anugṛhīta'
+> vāsudeva-dattera teṅha haya 'anugṛhīta'\
 > raghunāthera 'guru' teṅho haya 'purohita'
 
 *vāsudeva-dattera*—of Vāsudeva Datta; *teṅha*—he; *haya anugṛhīta*—was given the mercy; *raghunāthera*—of Raghunātha dāsa; *guru*—the spiritual master; *teṅho*—he; *haya*—was; *purohita*—the priest.

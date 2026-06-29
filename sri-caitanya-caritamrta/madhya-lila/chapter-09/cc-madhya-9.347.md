@@ -1,9 +1,9 @@
 ### CC Madhya 9.347
 
-> বহু নৃত্যগীত কৈল প্রেমাবিষ্ট হঞা ।
+> বহু নৃত্যগীত কৈল প্রেমাবিষ্ট হঞা ।\
 > পাণ্ডাপাল আইল সবে মালা-প্রসাদ লঞা ॥৩৪৭॥
 
-> bahu nṛtya-gīta kaila premāviṣṭa hañā
+> bahu nṛtya-gīta kaila premāviṣṭa hañā\
 > pāṇḍā-pāla āila sabe mālā-prasāda lañā
 
 *bahu*—much; *nṛtya-gīta*—dancing and chanting; *kaila*—performed; *prema-āviṣṭa*—in ecstatic love; *hañā*—being; *pāṇḍā-pāla*—the priests and attendants; *āila*—came; *sabe*—all; *mālā-prasāda*—a garland and remnants of the food of Jagannātha; *lañā*—offering.

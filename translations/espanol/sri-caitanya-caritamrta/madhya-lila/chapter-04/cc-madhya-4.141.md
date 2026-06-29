@@ -1,9 +1,9 @@
 ### CC Madhya 4.141
 
-> ‘ঠাকুর মোরে ক্ষীর দিল — লোক সব শুনি’ ।
+> ‘ঠাকুর মোরে ক্ষীর দিল — লোক সব শুনি’ ।\
 > দিনে লোক-ভিড় হবে মোর প্রতিষ্ঠা জানি’ ॥১৪১॥
 
-> 'ṭhākura more kṣīra dila--loka saba śuni'
+> 'ṭhākura more kṣīra dila--loka saba śuni'\
 > dine loka-bhiḍa habe mora pratiṣṭhā jāni'
 
 *ṭhākura*—el Señor; *more*—a mí; *kṣīra*—arroz con leche; *dila*—ha dado; *loka*—la gente; *saba*—toda; *śuni'*—al oír; *dine*—durante el día; *loka*—de gente; *bhiḍa*—multitud; *habe*—habrá; *mora*—mi; *pratiṣṭhā*—fama; *jāni'*—sabiendo.

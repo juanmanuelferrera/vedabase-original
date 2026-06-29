@@ -1,9 +1,9 @@
 ### CC Madhya 15.290
 
-> প্রভু-পদ ধরি’ ভট্ট কহিতে লাগিলা ।
+> প্রভু-পদ ধরি’ ভট্ট কহিতে লাগিলা ।\
 > মরিত’ অমোঘ, তারে কেনে জীয়াইলা ॥২৯০॥
 
-> prabhu-pada dhari' bhaṭṭa kahite lāgilā
+> prabhu-pada dhari' bhaṭṭa kahite lāgilā\
 > marita' amogha, tāre kene jīyāilā
 
 *prabhu-pada*—los pies de loto de Śrī Caitanya Mahāprabhu; *dhari'*—tomando; *bhaṭṭa*—Sārvabhauma Bhaṭṭācārya; *kahite lāgilā*—comenzó a decir; *marita' amogha*—Amogha habría muerto; *tāre*—a él; *kene*—por qué; *jīyāilā*—lo has devuelto a la vida.

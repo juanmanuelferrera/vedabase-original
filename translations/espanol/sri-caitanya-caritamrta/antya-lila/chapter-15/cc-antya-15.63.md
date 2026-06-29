@@ -1,13 +1,13 @@
 ### CC Antya 15.63
 
-> নবাম্বুদ-লসদ্দ্যুতির্নবতড়িন্মনোজ্ঞাম্বরঃ
-> সুচিত্রমুরলীস্ফুরচ্ছরদমন্দচন্দ্রাননঃ ।
-> ময়ূরদলভূষিতঃ সুভগতারহারপ্রভঃ
+> নবাম্বুদ-লসদ্দ্যুতির্নবতড়িন্মনোজ্ঞাম্বরঃ\
+> সুচিত্রমুরলীস্ফুরচ্ছরদমন্দচন্দ্রাননঃ ।\
+> ময়ূরদলভূষিতঃ সুভগতারহারপ্রভঃ\
 > স মে মদনমোহনঃ সখি তনোতি নেত্রস্পৃহাম্ ॥৬৩॥
 
-> navāmbuda-lasad-dyutir nava-taḍin-manojñāmbaraḥ
-> sucitra-muralī-sphurac-charad-amanda-candrānanaḥ
-> mayūra-dala-bhūṣitaḥ subhaga-tāra-hāra-prabhaḥ
+> navāmbuda-lasad-dyutir nava-taḍin-manojñāmbaraḥ\
+> sucitra-muralī-sphurac-charad-amanda-candrānanaḥ\
+> mayūra-dala-bhūṣitaḥ subhaga-tāra-hāra-prabhaḥ\
 > sa me madana-mohanaḥ sakhi tanoti netra-spṛhām
 
 *nava-ambuda*—una nube recién formada; *lasat*—brillante; *dyutiḥ*—cuyo resplandor; *nava*—nuevo; *taḍit*—relámpago; *manojña*—atractivo; *ambaraḥ*—cuya vestimenta; *su-citra*—muy encantador; *muralī*—con una flauta; *sphurat*—que luce hermoso; *śarat*—otoño; *amanda*—brillante; *candra*—como la luna; *ānanaḥ*—cuyo rostro; *mayūra*—pavo real; *dala*—con una pluma; *bhūṣitaḥ*—decorado; *su-bhaga*—encantador; *tāra*—de perlas; *hāra*—de un collar; *prabhaḥ*—con la refulgencia; *saḥ*—Él; *me*—Mi; *madana-mohanaḥ*—el Señor Kṛṣṇa, el encantador de Cupido; *sakhi*—¡oh, Mi querida amiga!; *tanoti*—acrecienta; *netra-spṛhām*—el deseo de los ojos.

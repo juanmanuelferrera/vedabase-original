@@ -1,9 +1,9 @@
 ### CC Adi 16.24
 
-> শিষ্যগণ লঞা পুনঃ বিদ্যার বিলাস ।
+> শিষ্যগণ লঞা পুনঃ বিদ্যার বিলাস ।\
 > বিদ্যা-বলে সবা জিনি’ ঔদ্ধত্য প্রকাশ ॥২৪॥
 
-> śiṣya-gaṇa lañā punaḥ vidyāra vilāsa
+> śiṣya-gaṇa lañā punaḥ vidyāra vilāsa\
 > vidyā-bale sabā jini' auddhatya prakāśa
 
 *śiṣya-gaṇa*—disciples; *lañā*—taking; *punaḥ*—again; *vidyāra*—of education; *vilāsa*—pastime; *vidyā-bale*—by the strength of education; *saba*—everyone; *jini'*—conquering; *auddhatya*—of pride; *prakāśa*—manifestation.

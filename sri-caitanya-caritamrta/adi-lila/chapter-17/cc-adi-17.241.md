@@ -1,9 +1,9 @@
 ### CC Adi 17.241
 
-> তবে আচার্যের ঘরে কৈল কৃষ্ণলীলা ।
+> তবে আচার্যের ঘরে কৈল কৃষ্ণলীলা ।\
 > রুক্মিণী-স্বরূপ প্রভু আপনে হইলা ॥২৪১॥
 
-> tabe ācāryera ghare kaila kṛṣṇa-līlā
+> tabe ācāryera ghare kaila kṛṣṇa-līlā\
 > rukmiṇī-svarūpa prabhu āpane ha-ilā
 
 *tabe*—thereafter; *ācāryera*—of Advaita Ācārya; *ghare*—in the house; *kaila*—performed; *kṛṣṇa-līlā*—pastimes of Lord Kṛṣṇa; *rukmiṇī*—of Rukmiṇī; *svarūpa*—form; *prabhu*—the Lord; *āpane*—personally; *ha-ilā*—became.

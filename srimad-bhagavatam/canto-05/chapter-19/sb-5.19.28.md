@@ -1,11 +1,11 @@
 ### SB 5.19.28
 
-> यद्यत्र नः स्वर्गसुखावशेषितं स्विष्टस्य सूक्तस्य कृतस्य शोभनम
+> यद्यत्र नः स्वर्गसुखावशेषितं स्विष्टस्य सूक्तस्य कृतस्य शोभनम\
 > तेनाजनाभे स्मृतिमज्जन्म नः स्याद्वर्षे हरिर्यद्भजतां शं तनोति ॥२८॥
 
-> yady atra naḥ svarga-sukhāvaśeṣitaṁ
-> sviṣṭasya sūktasya kṛtasya śobhanam
-> tenājanābhe smṛtimaj janma naḥ syād
+> yady atra naḥ svarga-sukhāvaśeṣitaṁ\
+> sviṣṭasya sūktasya kṛtasya śobhanam\
+> tenājanābhe smṛtimaj janma naḥ syād\
 > varṣe harir yad-bhajatāṁ śaṁ tanoti
 
 *yadi*—if; *atra*—in this heavenly planet; *naḥ*—of us; *svarga-sukha-avaśeṣitam*—whatever remains after the enjoyment of heavenly happiness; *su-iṣṭasya*—of a perfect sacrifice; *su-uktasya*—of diligently studying the Vedic literature; *kṛtasya*—of having performed a kind act; *śobhanam*—the resultant actions; *tena*—by such a resultant action; *ajanābhe*—in the land of Bhārata-varṣa; *smṛti-mat janma*—a birth enabling one to remember the lotus feet of the Lord; *naḥ*—of us; *syāt*—let there be; *varṣe*—in the land; *hariḥ*—the Supreme Personality of Godhead; *yat*—wherein; *bhajatām*—of the devotees; *śam tanoti*—expands the auspiciousness.

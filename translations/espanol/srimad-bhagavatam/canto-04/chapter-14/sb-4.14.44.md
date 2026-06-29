@@ -1,11 +1,11 @@
 ### SB 4.14.44
 
-> काककृष्णोऽतिह्रस्वाङ्गो ह्रस्वबाहुर्महाहनुः ।
+> काककृष्णोऽतिह्रस्वाङ्गो ह्रस्वबाहुर्महाहनुः ।\
 > ह्रस्वपान्निम्ननासाग्रो रक्ताक्षस्ताम्रमूर्धजः ॥४४॥
 
-> kāka-kṛṣṇo 'tihrasvāṅgo
-> hrasva-bāhur mahā-hanuḥ
-> hrasva-pān nimna-nāsāgro
+> kāka-kṛṣṇo 'tihrasvāṅgo\
+> hrasva-bāhur mahā-hanuḥ\
+> hrasva-pān nimna-nāsāgro\
 > raktākṣas tāmra-mūrdhajaḥ
 
 *kāka-kṛṣṇaḥ*—tan negro como un cuervo; *ati-hrasva*—muy cortos; *aṅgaḥ*—sus miembros; *hrasva*—cortos; *bāhuḥ*—brazos; *mahā*—grandes; *hanuḥ*—mandíbulas; *hrasva*—cortas; *pāt*—sus piernas; *nimna*—chata; *nāsa-agraḥ*—la punta de la nariz; *rakta*—rojizos; *akṣaḥ*—sus ojos; *tāmra*—como el cobre; *mūrdha-jaḥ*—su cabello.

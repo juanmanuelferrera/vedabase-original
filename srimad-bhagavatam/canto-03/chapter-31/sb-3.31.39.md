@@ -1,11 +1,11 @@
 ### SB 3.31.39
 
-> सङ्गं न कुर्यात्प्रमदासु जातु योगस्य पारं परमारुरुक्षुः ।
+> सङ्गं न कुर्यात्प्रमदासु जातु योगस्य पारं परमारुरुक्षुः ।\
 > मत्सेवया प्रतिलब्धात्मलाभो वदन्ति या निरयद्वारमस्य ॥३९॥
 
-> saṅgaṁ na kuryāt pramadāsu jātu
-> yogasya pāraṁ param ārurukṣuḥ
-> mat-sevayā pratilabdhātma-lābho
+> saṅgaṁ na kuryāt pramadāsu jātu\
+> yogasya pāraṁ param ārurukṣuḥ\
+> mat-sevayā pratilabdhātma-lābho\
 > vadanti yā niraya-dvāram asya
 
 *saṅgam*—association; *na*—not; *kuryāt*—one should make; *pramadāsu*—with women; *jātu*—ever; *yogasya*—of *yoga*; *pāram*—culmination; *param*—topmost; *ārurukṣuḥ*—one who aspires to reach; *mat-sevayā*—by rendering service unto Me; *pratilabdha*—obtained; *ātma-lābhaḥ*—self-realization; *vadanti*—they say; *yāḥ*—which women; *niraya*—to hell; *dvāram*—the gateway; *asya*—of the advancing devotee.

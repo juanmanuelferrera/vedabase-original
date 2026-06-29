@@ -1,13 +1,13 @@
 ### CC Antya 1.92
 
-> “স্বর্গাপগা-হেমমৃণালিনীনাং
-> নানা-মৃণালাগ্রভুজো ভজামঃ ।
-> অন্নানুরূপাং তনুরূপঋদ্ধিং
+> “স্বর্গাপগা-হেমমৃণালিনীনাং\
+> নানা-মৃণালাগ্রভুজো ভজামঃ ।\
+> অন্নানুরূপাং তনুরূপঋদ্ধিং\
 > কার্যং নিদানাদ্ধি গুণানধীতে ।।” ॥ ৯২ ॥
 
-> svargāpagā-hema-mṛṇālinīnāṁ
-> nānā-mṛṇālāgra-bhujo bhajāmaḥ
-> annānurūpāṁ tanu-rūpa-ṛddhiṁ
+> svargāpagā-hema-mṛṇālinīnāṁ\
+> nānā-mṛṇālāgra-bhujo bhajāmaḥ\
+> annānurūpāṁ tanu-rūpa-ṛddhiṁ\
 > kāryaṁ nidānād dhi guṇān adhīte
 
 *svarga-āpagā*—del agua del Ganges que fluye en los planetas celestiales; *hema*—doradas; *mṛṇālinīnām*—de las flores de loto; *nānā*—diversos; *mṛṇāla-agra-bhujaḥ*—aquellos que comen las puntas de los tallos; *bhajāmaḥ*—obtenemos; *anna-anurūpām*—conforme al alimento; *tanu-rūpa-ṛddhim*—abundancia de belleza corporal; *kāryam*—el efecto; *nidānāt*—de la causa; *hi*—ciertamente; *guṇān*—cualidades; *adhīte*—se obtiene.

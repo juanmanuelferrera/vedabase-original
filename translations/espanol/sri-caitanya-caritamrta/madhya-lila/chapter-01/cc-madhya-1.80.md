@@ -1,9 +1,9 @@
 ### CC Madhya 1.80
 
-> সেই ভাব, সেই কৃষ্ণ, সেই বৃন্দাবন ।
+> সেই ভাব, সেই কৃষ্ণ, সেই বৃন্দাবন ।\
 > যবে পাই, তবে হয় বাঞ্ছিত পূরণ ॥৮০॥
 
-> sei bhāva, sei kṛṣṇa, sei vṛndāvana
+> sei bhāva, sei kṛṣṇa, sei vṛndāvana\
 > yabe pāi, tabe haya vāñchita pūraṇa
 
 *sei bhāva*—esa circunstancia; *sei kṛṣṇa*—ese Kṛṣṇa; *sei vṛndāvana*—ese Vṛndāvana; *yabe pāi*—si obtengo; *tabe*—entonces; *haya*—se cumple; *vāñchita*—el objeto deseado; *pūraṇa*—satisfecho.

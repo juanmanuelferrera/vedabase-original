@@ -1,11 +1,11 @@
 ### SB 4.1.14
 
-> पूर्णिमासूत विरजं विश्वगं च परन्तप ।
+> पूर्णिमासूत विरजं विश्वगं च परन्तप ।\
 > देवकुल्यां हरेः पाद शौचाद्याभूत्सरिद्दिवः ॥१४॥
 
-> pūrṇimāsūta virajaṁ
-> viśvagaṁ ca parantapa
-> devakulyāṁ hareḥ pāda-
+> pūrṇimāsūta virajaṁ\
+> viśvagaṁ ca parantapa\
+> devakulyāṁ hareḥ pāda-\
 > śaucād yābhūt sarid divaḥ
 
 *pūrṇimā*—Pūrṇimā; *asūta*—begot; *virajam*—a son named Viraja; *viśvagam ca*—and named Viśvaga; *param-tapa*—O annihilator of enemies; *devakulyām*—a daughter named Devakulyā; *hareḥ*—of the Supreme Personality of Godhead; *pāda-śaucāt*—by the water which washed His lotus feet; *yā*—she; *abhūt*—became; *sarit divaḥ*—the transcendental water within the banks of the Ganges.

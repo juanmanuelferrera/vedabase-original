@@ -1,13 +1,13 @@
 ### SB 6.15.9
 
-> श्रीशुक उवाच
-> एवमाश्वासितो राजा चित्रकेतुर्द्विजोक्तिभिः
+> श्रीशुक उवाच\
+> एवमाश्वासितो राजा चित्रकेतुर्द्विजोक्तिभिः\
 > विमृज्य पाणिना वक्त्रमाधिम्लानमभाषत ॥९॥
 
-> śrī-śuka uvāca
-> evam āśvāsito rājā
-> citraketur dvijoktibhiḥ
-> vimṛjya pāṇinā vaktram
+> śrī-śuka uvāca\
+> evam āśvāsito rājā\
+> citraketur dvijoktibhiḥ\
+> vimṛjya pāṇinā vaktram\
 > ādhi-mlānam abhāṣata
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *evam*—así; *āśvāsitaḥ*—iluminado, o con nuevas esperanzas; *rājā*—el rey; *citraketuḥ*—Citraketu; *dvija-uktibhiḥ*—por las instrucciones de los grandes *brāhmaṇas* (Nārada y Aṅgirā Ṛṣi); *vimṛjya*—secando; *pāṇinā*—con la mano; *vaktram*—su rostro; *ādhi-mlānam*—marcado por la lamentación; *abhāṣata*—habló con inteligencia.

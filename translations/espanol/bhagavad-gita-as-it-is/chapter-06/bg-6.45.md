@@ -1,11 +1,11 @@
 ### Bg 6.45
 
-> प्रयत्नाद्यतमानस्तु योगी संशुद्धकिल्बिषः ।
+> प्रयत्नाद्यतमानस्तु योगी संशुद्धकिल्बिषः ।\
 > अनेकजन्मसंसिद्धस्ततो याति परां गतिम् ॥४५॥
 
-> prayatnād yatamānas tu
-> yogī saṁśuddha-kilbiṣaḥ
-> aneka-janma-saṁsiddhas
+> prayatnād yatamānas tu\
+> yogī saṁśuddha-kilbiṣaḥ\
+> aneka-janma-saṁsiddhas\
 > tato yāti parāṁ gatim
 
 *prayatnāt*—mediante la práctica rígida; *yatamānaḥ*—aquel que se esfuerza; *tu*—pero; *yogī*—dicho trascendentalista; *saṁśuddha*—limpiado; *kilbiṣaḥ*—toda clase de pecados; *aneka*—muchísimos; *janma*—nacimientos; *saṁsiddhaḥ*—alcanzando así la perfección; *tataḥ*—después de eso; *yāti*—llega; *parām*—la más elevada; *gatim*—destino.

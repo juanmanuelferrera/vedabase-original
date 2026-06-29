@@ -1,9 +1,9 @@
 ### CC Madhya 15.10
 
-> পূজা-পাত্রে পুষ্প-তুলসী শেষ যে আছিল ।
+> পূজা-পাত্রে পুষ্প-তুলসী শেষ যে আছিল ।\
 > সেই সব লঞা প্রভু আচার্যে পূজিল ॥১০॥
 
-> pūjā-pātre puṣpa-tulasī śeṣa ye āchila
+> pūjā-pātre puṣpa-tulasī śeṣa ye āchila\
 > sei saba lañā prabhu ācārye pūjila
 
 *pūjā-pātre*—on the dish that holds flowers and *tulasī*; *puṣpa-tulasī*—flowers and *tulasī*; *śeṣa*—remaining; *ye āchila*—whatever there were; *sei saba*—all of them; *lañā*—taking; *prabhu*—Śrī Caitanya Mahāprabhu; *ācārye pūjila*—worshiped Advaita Ācārya.

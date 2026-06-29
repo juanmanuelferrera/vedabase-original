@@ -1,11 +1,11 @@
 ### SB 3.28.17
 
-> अपीच्यदर्शनं शश्वत्सर्वलोकनमस्कृतम् ।
+> अपीच्यदर्शनं शश्वत्सर्वलोकनमस्कृतम् ।\
 > सन्तं वयसि कैशोरे भृत्यानुग्रहकातरम् ॥१७॥
 
-> apīcya-darśanaṁ śaśvat
-> sarva-loka-namaskṛtam
-> santaṁ vayasi kaiśore
+> apīcya-darśanaṁ śaśvat\
+> sarva-loka-namaskṛtam\
+> santaṁ vayasi kaiśore\
 > bhṛtyānugraha-kātaram
 
 *apīcya-darśanam*—very beautiful to see; *śaśvat*—eternal; *sarva-loka*—by all the inhabitants of every planet; *namaḥ-kṛtam*—worshipable; *santam*—situated; *vayasi*—in youth; *kaiśore*—in boyhood; *bhṛtya*—upon His devotee; *anugraha*—to bestow blessings; *kātaram*—eager.

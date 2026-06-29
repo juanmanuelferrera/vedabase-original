@@ -1,13 +1,13 @@
 ### CC Adi 4.51
 
-> সুরেশানাং দুর্গং গতিরতিশয়েনোপনিষদাং
-> মুনীনাং সর্বস্বং প্রণতপটলীনাং মধুরিমা ।
-> বিনির্যাসঃ প্রেম্ণো নিখিলপশুপালাম্বুজদৃশাং
+> সুরেশানাং দুর্গং গতিরতিশয়েনোপনিষদাং\
+> মুনীনাং সর্বস্বং প্রণতপটলীনাং মধুরিমা ।\
+> বিনির্যাসঃ প্রেম্ণো নিখিলপশুপালাম্বুজদৃশাং\
 > স চৈতন্যঃ কিং মে পুনরপি দৃশোর্যাস্যতি পদম্ ॥৫১॥
 
-> sureśānāṁ durgaṁ gatir atiśayenopaniṣadāṁ
-> munīnāṁ sarva-svaṁ praṇata-paṭalīnāṁ madhurimā
-> viniryāsaḥ premṇo nikhila-paśu-pālāmbuja-dṛśāṁ
+> sureśānāṁ durgaṁ gatir atiśayenopaniṣadāṁ\
+> munīnāṁ sarva-svaṁ praṇata-paṭalīnāṁ madhurimā\
+> viniryāsaḥ premṇo nikhila-paśu-pālāmbuja-dṛśāṁ\
 > sa caitanyaḥ kiṁ me punar api dṛśor yāsyati padam
 
 *sura-īśānām*—de los reyes de los semidioses; *durgam*—la fortaleza; *gatiḥ*—la meta; *atiśayena*—eminentemente; *upaniṣadām*—de los *Upaniṣads*; *munīnām*—de los sabios; *sarva-svam*—el todo en todo; *praṇata-paṭalīnām*—de los grupos de devotos; *madhurimā*—la dulzura; *viniryāsaḥ*—la esencia; *premṇaḥ*—del amor; *nikhila*—de todas; *paśu-pālā*—las pastoras de vacas; *ambuja-dṛśām*—de ojos de loto; *saḥ*—Él; *caitanyaḥ*—el Señor Caitanya; *kim*—acaso; *me*—mis; *punaḥ*—de nuevo; *api*—ciertamente; *dṛśoḥ*—de los dos ojos; *yāsyati*—vendrá; *padam*—a la morada.

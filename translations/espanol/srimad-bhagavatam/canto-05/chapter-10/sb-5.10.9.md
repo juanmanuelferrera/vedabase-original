@@ -1,13 +1,13 @@
 ### SB 5.10.9
 
-> ब्राह्मण उवाच
-> त्वयोदितं व्यक्तमविप्रलब्धं भर्तुः स मे स्याद्यदि वीर भारः
+> ब्राह्मण उवाच\
+> त्वयोदितं व्यक्तमविप्रलब्धं भर्तुः स मे स्याद्यदि वीर भारः\
 > गन्तुर्यदि स्यादधिगम्यमध्वा पीवेति राशौ न विदां प्रवादः ॥९॥
 
-> brāhmaṇa uvāca
-> tvayoditaṁ vyaktam avipralabdhaṁ
-> bhartuḥ sa me syād yadi vīra bhāraḥ
-> gantur yadi syād adhigamyam adhvā
+> brāhmaṇa uvāca\
+> tvayoditaṁ vyaktam avipralabdhaṁ\
+> bhartuḥ sa me syād yadi vīra bhāraḥ\
+> gantur yadi syād adhigamyam adhvā\
 > pīveti rāśau na vidāṁ pravādaḥ
 
 *brāhmaṇaḥ uvāca*—el *brāhmaṇa* erudito (Jaḍa Bharata) habló; *tvayā*—por ti; *uditam*—explicado; *vyaktam*—con gran claridad; *avipralabdham*—sin contradecir la realidad; *bhartuḥ*—del que lleva la carga, el cuerpo; *saḥ*—eso; *me*—mío; *syāt*—habría sido; *yadi*—si; *vīra*—¡oh, gran héroe (Mahārāja Rahūgaṇa)!; *bhāraḥ*—una carga; *gantuḥ*—del que mueve, también el cuerpo; *yadi*—si; *syāt*—había sido; *adhigamyam*—el objeto a obtener; *adhvā*—el sendero; *pīvā*—muy fuerte y robusto; *iti*—así; *rāśau*—en el cuerpo; *na*—no; *vidām*—de las personas autorrealizadas; *pravādaḥ*—tema de conversación.

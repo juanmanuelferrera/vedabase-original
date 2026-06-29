@@ -1,9 +1,9 @@
 ### CC Adi 8.26
 
-> ‘এক’ কৃষ্ণনামে করে সর্বপাপ নাশ ।
+> ‘এক’ কৃষ্ণনামে করে সর্বপাপ নাশ ।\
 > প্রেমের কারণ ভক্তি করেন প্রকাশ ॥২৬॥
 
-> 'eka' kṛṣṇa-nāme kare sarva-pāpa nāśa
+> 'eka' kṛṣṇa-nāme kare sarva-pāpa nāśa\
 > premera kāraṇa bhakti karena prakāśa
 
 *eka*—one; *kṛṣṇa-nāme*—by chanting the holy name of Lord Kṛṣṇa; *kare*—makes; *sarva*—all; *pāpa*—sinful life; *nāśa*—exhausted; *premera*—of love of Godhead; *kāraṇa*—cause; *bhakti*—devotional service; *karena*—becomes; *prakāśa*—manifest.

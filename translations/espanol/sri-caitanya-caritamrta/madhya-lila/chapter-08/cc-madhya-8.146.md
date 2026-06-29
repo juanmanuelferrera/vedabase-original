@@ -1,11 +1,11 @@
 ### CC Madhya 8.146
 
-> দ্বিজাত্মজা মে যুবয়োর্দিদৃক্ষুণা, ময়োপনীতা ভুবি ধর্মগুপ্তয়ে ৷
+> দ্বিজাত্মজা মে যুবয়োর্দিদৃক্ষুণা, ময়োপনীতা ভুবি ধর্মগুপ্তয়ে ৷\
 > কলাবতীর্ণাববনের্ভরাসুরান্, হত্বেহ ভূয়স্ত্বরয়েতমন্তি মে ৷৷ ১৪৬ ৷৷ ॥১৪৬॥
 
-> dvijātmajā me yuvayor didṛkṣuṇā
-> mayopanītā bhuvi dharma-guptaye
-> kalāvatīrṇāv avaner bharāsurān
+> dvijātmajā me yuvayor didṛkṣuṇā\
+> mayopanītā bhuvi dharma-guptaye\
+> kalāvatīrṇāv avaner bharāsurān\
 > hatveha bhūyas tvarayetam anti me
 
 *dvija-ātma-jāḥ*—los hijos del brāhmaṇa; *me*—por Mí; *yuvayoḥ*—de ambos; *didṛkṣuṇā*—deseando verlos; *mayā*—por Mí; *upanītāḥ*—traídos; *bhuvi*—en el mundo; *dharma-guptaye*—para la protección de los principios religiosos; *kalā*—con todas las potencias; *avatīrṇau*—que descendieron; *avaneḥ*—del mundo; *bharā-asurān*—la pesada carga de demonios; *hatvā*—habiendo matado; *iha*—aquí en el mundo espiritual; *bhūyaḥ*—de nuevo; *tvarayā*—muy pronto; *itam*—por favor, regresad; *anti*—cerca; *me*—de Mí.

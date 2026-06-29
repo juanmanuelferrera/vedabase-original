@@ -1,9 +1,9 @@
 ### CC Madhya 1.258
 
-> তবে রূপ-গোসাঞির পুনরাগমন ।
+> তবে রূপ-গোসাঞির পুনরাগমন ।\
 > তাঁহার হৃদয়ে কৈল প্রভু শক্তি-সঞ্চারণ ॥২৫৮॥
 
-> tabe rūpa-gosāñira punar-āgamana
+> tabe rūpa-gosāñira punar-āgamana\
 > tāṅhāra hṛdaye kaila prabhu śakti-sañcāraṇa
 
 *tabe*—después; *rūpa-gosāñira*—de Śrīla Rūpa Gosvāmī; *punaḥ-āgamana*—nuevo regreso allí; *tāṅhāra*—de él; *hṛdaye*—en el corazón; *kaila*—hizo; *prabhu*—el Señor; *śakti-sañcāraṇa*—investidura de poder trascendental.

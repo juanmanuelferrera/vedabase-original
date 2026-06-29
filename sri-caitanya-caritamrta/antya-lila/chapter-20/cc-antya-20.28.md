@@ -1,9 +1,9 @@
 ### CC Antya 20.28
 
-> প্রেমের স্বভাব — যাহাঁ প্রেমের সম্বন্ধ ।
+> প্রেমের স্বভাব — যাহাঁ প্রেমের সম্বন্ধ ।\
 > সেই মানে, — ‘কৃষ্ণে মোর নাহি প্রেম-গন্ধ’ ॥২৮॥
 
-> premera svabhāva—yāhāṅ premera sambandha
+> premera svabhāva—yāhāṅ premera sambandha\
 > sei māne,—'kṛṣṇe mora nāhi prema-gandha'
 
 *premera sva-bhāva*—the nature of love of Godhead; *yāhāṅ*—where; *premera sambandha*—a relationship of love of Godhead; *sei māne*—he recognizes; *kṛṣṇe*—unto Lord Kṛṣṇa; *mora*—my; *nāhi*—there is not; *prema-gandha*—even a scent of love of Godhead.

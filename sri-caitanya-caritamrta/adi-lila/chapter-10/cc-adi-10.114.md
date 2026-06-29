@@ -1,9 +1,9 @@
 ### CC Adi 10.114
 
-> জগন্নাথ তীর্থ, বিপ্র শ্রীজানকীনাথ ।
+> জগন্নাথ তীর্থ, বিপ্র শ্রীজানকীনাথ ।\
 > গোপাল আচার্য, আর বিপ্র বাণীনাথ ॥১১৪॥
 
-> jagannātha tīrtha, vipra śrī-jānakīnātha
+> jagannātha tīrtha, vipra śrī-jānakīnātha\
 > gopāla ācārya, āra vipra vāṇīnātha
 
 *jagannāthatīrtha*—of the name Jagannātha Tīrtha; *vipra*—*brāhmaṇa*; *śrī-jānakīnātha*—of the name Śrī Jānakīnātha; *gopālaācārya*—of the name Gopāla Ācārya; *āra*—and; *vipravāṇīnātha*—the *brāhmaṇa* of the name Vāṇīnātha.

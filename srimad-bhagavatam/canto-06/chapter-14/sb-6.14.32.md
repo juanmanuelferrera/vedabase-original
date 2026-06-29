@@ -1,11 +1,11 @@
 ### SB 6.14.32
 
-> अथ काल उपावृत्ते कुमारः समजायत
+> अथ काल उपावृत्ते कुमारः समजायत\
 > जनयन्शूरसेनानां शृण्वतां परमां मुदम ॥३२॥
 
-> atha kāla upāvṛtte
-> kumāraḥ samajāyata
-> janayan śūrasenānāṁ
+> atha kāla upāvṛtte\
+> kumāraḥ samajāyata\
+> janayan śūrasenānāṁ\
 > śṛṇvatāṁ paramāṁ mudam
 
 *atha*—thereafter; *kāle upāvṛtte*—in due course of time; *kumāraḥ*—the son; *samajāyata*—took birth; *janayan*—creating; *śūrasenānām*—of the inhabitants of Śūrasena; *śṛṇvatām*—hearing; *paramām*—the highest; *mudam*—delight.

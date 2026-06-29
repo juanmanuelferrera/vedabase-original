@@ -1,9 +1,9 @@
 ### CC Madhya 9.281
 
-> কোলাপুরে লক্ষ্মী দেখি’ দেখেন ক্ষীর-ভগবতী ।
+> কোলাপুরে লক্ষ্মী দেখি’ দেখেন ক্ষীর-ভগবতী ।\
 > লাঙ্গ-গণেশ দেখি’ দেখেন চোর-পার্বতী ॥২৮১॥
 
-> kolāpure lakṣmī dekhi' dekhena kṣīra-bhagavatī
+> kolāpure lakṣmī dekhi' dekhena kṣīra-bhagavatī\
 > lāṅga-gaṇeśa dekhi' dekhena cora-pārvatī
 
 *kolāpure*—at Kolāpura; *lakṣmī*—the goddess of fortune; *dekhi'*—seeing; *dekhena*—He visited; *kṣīra-bhagavatī*—the temple of Kṣīra-bhagavatī; *lāṅga-gaṇeśa*—the deity Lāṅga-gaṇeśa; *dekhi'*—seeing; *dekhena*—He sees; *cora-pārvatī*—the goddess Pārvatī, who is known as a thief.

@@ -1,13 +1,13 @@
 ### CC Madhya 11.47
 
-> অদর্শনীয়ানপি নীচজাতীন্
-> সংবীক্ষতে হন্ত তথাপি নো মাম্ ।
-> মদেকবর্জং কৃপয়িষ্যতীতি
+> অদর্শনীয়ানপি নীচজাতীন্\
+> সংবীক্ষতে হন্ত তথাপি নো মাম্ ।\
+> মদেকবর্জং কৃপয়িষ্যতীতি\
 > নির্ণীয় কিং সোঽবততার দেবঃ ॥৪৭॥
 
-> adarśanīyān api nīca-jātīn
-> saṁvīkṣate hanta tathāpi no mām
-> mad-eka-varjaṁ kṛpayiṣyatīti
+> adarśanīyān api nīca-jātīn\
+> saṁvīkṣate hanta tathāpi no mām\
+> mad-eka-varjaṁ kṛpayiṣyatīti\
 > nirṇīya kiṁ so 'vatatāra devaḥ
 
 *adarśanīyān*—upon those who are unfit to be seen; *api*—although; *nīca-jātīn*—the lower class of men; *saṁvīkṣate*—puts His merciful glance; *hanta*—alas; *tathā api*—still; *na u*—not; *mām*—upon me; *mat*—myself; *eka*—alone; *varjam*—rejecting; *kṛpayiṣyati*—He will bestow His mercy; *iti*—thus; *nirṇīya*—deciding; *kim*—whether; *saḥ*—Lord Śrī Caitanya Mahāprabhu; *avatatāra*—has descended; *devaḥ*—the Supreme Personality of Godhead.

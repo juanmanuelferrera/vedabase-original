@@ -1,11 +1,11 @@
 ### SB 6.4.10
 
-> यूयं च पित्रान्वादिष्टा देवदेवेन चानघाः
+> यूयं च पित्रान्वादिष्टा देवदेवेन चानघाः\
 > प्रजासर्गाय हि कथं वृक्षान्निर्दग्धुमर्हथ ॥१०॥
 
-> yūyaṁ ca pitrānvādiṣṭā
-> deva-devena cānaghāḥ
-> prajā-sargāya hi kathaṁ
+> yūyaṁ ca pitrānvādiṣṭā\
+> deva-devena cānaghāḥ\
+> prajā-sargāya hi kathaṁ\
 > vṛkṣān nirdagdhum arhatha
 
 *yūyam*—you; *ca*—also; *pitrā*—by your father; *anvādiṣṭāḥ*—ordered; *deva-devena*—by the Personality of Godhead, the master of the masters; *ca*—also; *anaghāḥ*—O sinless ones; *prajā-sargāya*—for generating the population; *hi*—indeed; *katham*—how; *vṛkṣān*—the trees; *nirdagdhum*—to burn to ashes; *arhatha*—are able.

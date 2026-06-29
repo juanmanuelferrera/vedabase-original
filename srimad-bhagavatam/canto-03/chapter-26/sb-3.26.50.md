@@ -1,11 +1,11 @@
 ### SB 3.26.50
 
-> एतान्यसंहत्य यदा महदादीनि सप्त वै ।
+> एतान्यसंहत्य यदा महदादीनि सप्त वै ।\
 > कालकर्मगुणोपेतो जगदादिरुपाविशत् ॥५०॥
 
-> etāny asaṁhatya yadā
-> mahad-ādīni sapta vai
-> kāla-karma-guṇopeto
+> etāny asaṁhatya yadā\
+> mahad-ādīni sapta vai\
+> kāla-karma-guṇopeto\
 > jagad-ādir upāviśat
 
 *etāni*—these; *asaṁhatya*—being unmixed; *yadā*—when; *mahat-ādīni*—the *mahat-tattva,* false ego and five gross elements; *sapta*—all together seven; *vai*—in fact; *kāla*—time; *karma*—work; *guṇa*—and the three modes of material nature; *upetaḥ*—accompanied by; *jagat-ādiḥ*—the origin of creation; *upāviśat*—entered.

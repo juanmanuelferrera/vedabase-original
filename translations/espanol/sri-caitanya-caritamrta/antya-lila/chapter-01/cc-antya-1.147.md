@@ -1,9 +1,9 @@
 ### CC Antya 1.147
 
-> রায় কহে, — “কহ দেখি ভাবের স্বভাব ?”
+> রায় কহে, — “কহ দেখি ভাবের স্বভাব ?”\
 > রূপ কহে, — “ঐছে হয় কৃষ্ণবিষয়ক ‘ভাব’ ।।” ॥ ১৪৭ ॥
 
-> rāya kahe,--"kaha dekhi bhāvera svabhāva?"
+> rāya kahe,--"kaha dekhi bhāvera svabhāva?"\
 > rūpa kahe,--"aiche haya kṛṣṇa-viṣayaka 'bhāva"
 
 *rāya kahe*—Rāmānanda Rāya dice; *kaha*—por favor recita; *dekhi*—para que pueda ver; *bhāvera svabhāva*—la característica del amor emocional; *rūpa kahe*—Rūpa Gosvāmī responde; *aiche*—tal; *haya*—es; *kṛṣṇa-viṣayaka*—en relación con Kṛṣṇa; *bhāva*—amor emocional.

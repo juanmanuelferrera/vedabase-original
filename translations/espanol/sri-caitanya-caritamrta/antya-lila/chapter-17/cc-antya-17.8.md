@@ -1,9 +1,9 @@
 ### CC Antya 17.8
 
-> এইমতে নানাভাবে অর্ধরাত্রি হৈল ।
+> এইমতে নানাভাবে অর্ধরাত্রি হৈল ।\
 > গোসাঞিরে শয়ন করাই’ দুঁহে ঘরে গেল ॥৮॥
 
-> ei-mate nānā-bhāve ardha-rātri haila
+> ei-mate nānā-bhāve ardha-rātri haila\
 > gosāñire śayana karāi' duṅhe ghare gela
 
 *ei-mate*—de esta manera; *nānā-bhāve*—en diversidad de emociones; *ardha-rātri*—la mitad de la noche; *haila*—pasó; *gosāñire*—a Śrī Caitanya Mahāprabhu; *śayana karāi'*—haciéndolo acostarse; *duṅhe*—ambos; *ghare gela*—fueron a casa.

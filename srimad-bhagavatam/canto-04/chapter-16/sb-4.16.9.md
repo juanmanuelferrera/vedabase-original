@@ -1,11 +1,11 @@
 ### SB 4.16.9
 
-> आप्याययत्यसौ लोकं वदनामृतमूर्तिना ।
+> आप्याययत्यसौ लोकं वदनामृतमूर्तिना ।\
 > सानुरागावलोकेन विशदस्मितचारुणा ॥९॥
 
-> āpyāyayaty asau lokaṁ
-> vadanāmṛta-mūrtinā
-> sānurāgāvalokena
+> āpyāyayaty asau lokaṁ\
+> vadanāmṛta-mūrtinā\
+> sānurāgāvalokena\
 > viśada-smita-cāruṇā
 
 *āpyāyayati*—enhances; *asau*—he; *lokam*—the whole world; *vadana*—by his face; *amṛta-mūrtinā*—moonlike; *sa-anurāga*—affectionate; *avalokena*—with glances; *viśada*—bright; *smita*—smiling; *cāruṇā*—beautiful.

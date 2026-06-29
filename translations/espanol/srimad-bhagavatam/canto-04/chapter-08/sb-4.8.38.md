@@ -1,11 +1,11 @@
 ### SB 4.8.38
 
-> नूनं भवान्भगवतो योऽङ्गजः परमेष्ठिनः ।
+> नूनं भवान्भगवतो योऽङ्गजः परमेष्ठिनः ।\
 > वितुदन्नटते वीणां हिताय जगतोऽर्कवत् ॥३८॥
 
-> nūnaṁ bhavān bhagavato
-> yo 'ṅgajaḥ parameṣṭhinaḥ
-> vitudann aṭate vīṇāṁ
+> nūnaṁ bhavān bhagavato\
+> yo 'ṅgajaḥ parameṣṭhinaḥ\
+> vitudann aṭate vīṇāṁ\
 > hitāya jagato 'rkavat
 
 *nūnam*—ciertamente; *bhavān*—tu señoría; *bhagavataḥ*—del Señor; *yaḥ*—lo que; *aṅga-jaḥ*—nacido del cuerpo; *parameṣṭhinaḥ*—el Señor Brahmā; *vitudan*—haciendo sonar; *aṭate*—viajas por todo; *vīṇām*—un instrumento musical; *hitāya*—para bien; *jagataḥ*—del mundo; *arka-vat*—como el sol.

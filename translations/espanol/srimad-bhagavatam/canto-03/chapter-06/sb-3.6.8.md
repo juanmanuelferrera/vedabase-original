@@ -1,11 +1,11 @@
 ### SB 3.6.8
 
-> एष ह्यशेषसत्त्वानामात्मांशः परमात्मनः ।
+> एष ह्यशेषसत्त्वानामात्मांशः परमात्मनः ।\
 > आद्योऽवतारो यत्रासौ भूतग्रामो विभाव्यते ॥८॥
 
-> eṣa hy aśeṣa-sattvānām
-> ātmāṁśaḥ paramātmanaḥ
-> ādyo 'vatāro yatrāsau
+> eṣa hy aśeṣa-sattvānām\
+> ātmāṁśaḥ paramātmanaḥ\
+> ādyo 'vatāro yatrāsau\
 > bhūta-grāmo vibhāvyate
 
 *eṣaḥ*—esta; *hi*—ciertamente; *aśeṣa*—ilimitado; *sattvānām*—entidades vivientes; *ātmā*—el Yo; *aṁśaḥ*—parte; *parama-ātmanaḥ*—de la Superalma; *ādyaḥ*—la primera; *avatāraḥ*—encarnación; *yatra*—en la que; *asau*—todas esas; *bhūta-grāmaḥ*—las creaciones agregadas; *vibhāvyate*—florecen.

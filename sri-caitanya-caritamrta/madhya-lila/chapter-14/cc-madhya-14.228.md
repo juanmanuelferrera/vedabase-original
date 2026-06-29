@@ -1,13 +1,13 @@
 ### CC Madhya 14.228
 
-> চিন্তামণিশ্চরণভূষণমঙ্গনানাং
-> শৃঙ্গারপুষ্পতরবস্তরবঃ সুরাণাম্ ।
-> বৃন্দাবনে ব্রজধনং ননু কামধেনু-
+> চিন্তামণিশ্চরণভূষণমঙ্গনানাং\
+> শৃঙ্গারপুষ্পতরবস্তরবঃ সুরাণাম্ ।\
+> বৃন্দাবনে ব্রজধনং ননু কামধেনু-\
 > বৃন্দানি চেতি সুখসিন্ধুরহো বিভূতিঃ ॥২২৮॥
 
-> cintāmaṇiś caraṇa-bhūṣaṇam aṅganānāṁ
-> śṛṅgāra-puṣpa-taravas taravaḥ surāṇām
-> vṛndāvane vraja-dhanaṁ nanu kāma-dhenu-
+> cintāmaṇiś caraṇa-bhūṣaṇam aṅganānāṁ\
+> śṛṅgāra-puṣpa-taravas taravaḥ surāṇām\
+> vṛndāvane vraja-dhanaṁ nanu kāma-dhenu-\
 > vṛndāni ceti sukha-sindhur aho vibhūtiḥ
 
 *cintāmaṇiḥ*—transcendental touchstone; *caraṇa*—of the lotus feet; *bhūṣaṇam*—the ornament; *aṅganānām*—of all the women of Vṛndāvana; *śṛṅgāra*—for dressing; *puṣpa-taravaḥ*—the flower trees; *taravaḥ*—the trees; *surāṇām*—of the demigods (desire trees); *vṛndāvane*—at Vṛndāvana; *vraja-dhanam*—the special wealth of the inhabitants of Vraja; *nanu*—certainly; *kāma-dhenu*—of *kāma-dhenu* cows that can deliver unlimited milk; *vṛndāni*—*groups*; *ca*—and; *iti*—thus; *sukha-sindhuḥ*—the ocean of happiness; *aho*—oh, how much; *vibhūtiḥ*—opulence.

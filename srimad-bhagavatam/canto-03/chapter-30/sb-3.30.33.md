@@ -1,11 +1,11 @@
 ### SB 3.30.33
 
-> केवलेन ह्यधर्मेण कुटुम्बभरणोत्सुकः ।
+> केवलेन ह्यधर्मेण कुटुम्बभरणोत्सुकः ।\
 > याति जीवोऽन्धतामिस्रं चरमं तमसः पदम् ॥३३॥
 
-> kevalena hy adharmeṇa
-> kuṭumba-bharaṇotsukaḥ
-> yāti jīvo 'ndha-tāmisraṁ
+> kevalena hy adharmeṇa\
+> kuṭumba-bharaṇotsukaḥ\
+> yāti jīvo 'ndha-tāmisraṁ\
 > caramaṁ tamasaḥ padam
 
 *kevalena*—simply; *hi*—certainly; *adharmeṇa*—by irreligious activities; *kuṭumba*—family; *bharaṇa*—to maintain; *utsukaḥ*—eager; *yāti*—goes; *jīvaḥ*—a person; *andha-tāmisram*—to Andha-tāmisra; *caramam*—ultimate; *tamasaḥ*—of darkness; *padam*—region.

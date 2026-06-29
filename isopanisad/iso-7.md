@@ -1,11 +1,11 @@
 ### Īśo 7
 
-> यस्मिन्सर्वाणि भूतान्यात्मैवाभूद्विजानतः।
+> यस्मिन्सर्वाणि भूतान्यात्मैवाभूद्विजानतः।\
 > तत्र को मोहः कः शोक एकत्वमनुपश्यतः॥७॥
 
-> yasmin sarvāṇi bhūtāny
-> ātmaivābhūd vijānataḥ
-> tatra ko mohaḥ kaḥ śoka
+> yasmin sarvāṇi bhūtāny\
+> ātmaivābhūd vijānataḥ\
+> tatra ko mohaḥ kaḥ śoka\
 > ekatvam anupaśyataḥ
 
 *yasmin*—in the situation; *sarvāṇi*—all; *bhūtāni*—living entities; *ātmā*—the cit-kaṇa, or spiritual spark; *eva*—only; *abhūt*—exist as; *vijānataḥ*—of one who knows; *tatra*—therein; *kaḥ*—what; *mohaḥ*—illusion; *kaḥ*—what; *śokaḥ*—anxiety; *ekatvam*—oneness in quality; *anupaśyataḥ*—of one who sees through authority, or one who sees constantly like that.

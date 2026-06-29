@@ -1,11 +1,11 @@
 ### SB 1.9.10
 
-> कृष्णं च तत्प्रभावज्ञ आसीनं जगदीश्वरम् ।
+> कृष्णं च तत्प्रभावज्ञ आसीनं जगदीश्वरम् ।\
 > हृदिस्थं पूजयामास माययोपात्तविग्रहम् ॥१०॥
 
-> kṛṣṇaṁ ca tat-prabhāva-jña
-> āsīnaṁ jagad-īśvaram
-> hṛdi-sthaṁ pūjayām āsa
+> kṛṣṇaṁ ca tat-prabhāva-jña\
+> āsīnaṁ jagad-īśvaram\
+> hṛdi-sthaṁ pūjayām āsa\
 > māyayopātta-vigraham
 
 *kṛṣṇam*—al Señor Śrī Kṛṣṇa; *ca*—también; *tat*—de Él; *prabhāva-jñaḥ*—el conocedor de las glorias (Bhīṣma); *āsīnam*—sentado; *jagat-īśvaram*—el Señor del universo; *hṛdi-stham*—situado en el corazón; *pūjayām āsa*—adorado; *māyayā*—mediante la potencia interna; *upātta*—manifiesta; *vigraham*—una forma.

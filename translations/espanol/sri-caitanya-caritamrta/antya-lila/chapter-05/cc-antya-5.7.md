@@ -1,9 +1,9 @@
 ### CC Antya 5.7
 
-> প্রভু কহেন, — “কৃষ্ণকথা আমি নাহি জানি ।
+> প্রভু কহেন, — “কৃষ্ণকথা আমি নাহি জানি ।\
 > সবে রামানন্দ জানে, তাঁর মুখে শুনি ॥৭॥
 
-> prabhu kahena,--"kṛṣṇa-kathā āmi nāhi jāni
+> prabhu kahena,--"kṛṣṇa-kathā āmi nāhi jāni\
 > sabe rāmānanda jāne, tāṅra mukhe śuni
 
 *prabhu kahena*—el Señor respondió; *kṛṣṇa-kathā*—charlas acerca del Señor Kṛṣṇa; *āmi*—yo; *nāhi jāni*—no sé; *sabe*—solo; *rāmānanda jāne*—Rāmānanda Rāya sabe; *tāṅra mukhe*—de su boca; *śuni*—escucho.

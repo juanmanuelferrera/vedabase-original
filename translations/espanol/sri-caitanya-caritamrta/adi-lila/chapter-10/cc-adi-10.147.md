@@ -1,9 +1,9 @@
 ### CC Adi 10.147
 
-> বড় হরিদাস, আর ছোট হরিদাস ।
+> বড় হরিদাস, আর ছোট হরিদাস ।\
 > দুই কীর্তনীয়া রহে মহাপ্রভুর পাশ ॥১৪৭॥
 
-> baḍa haridāsa, āra choṭa haridāsa
+> baḍa haridāsa, āra choṭa haridāsa\
 > dui kīrtanīyā rahe mahāprabhura pāśa
 
 *baḍa haridāsa*—de nombre Baḍa Haridāsa; *āra*—y; *choṭa haridāsa*—de nombre Choṭa Haridāsa; *dui kīrtanīyā*—ambos eran buenos cantantes; *rahe*—permanecen; *mahāprabhura*—del Señor Caitanya Mahāprabhu; *pāśa*—con.

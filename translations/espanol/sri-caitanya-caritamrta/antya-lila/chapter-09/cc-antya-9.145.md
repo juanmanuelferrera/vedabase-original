@@ -1,9 +1,9 @@
 ### CC Antya 9.145
 
-> রায়ের ঘরে প্রভুর ‘কৃপা-বিবর্ত’ কহিল ।
+> রায়ের ঘরে প্রভুর ‘কৃপা-বিবর্ত’ কহিল ।\
 > ভক্তবাৎসল্য-গুণ যাতে ব্যক্ত হৈল ॥১৪৫॥
 
-> rāyera ghare prabhura 'kṛpā-vivarta' kahila
+> rāyera ghare prabhura 'kṛpā-vivarta' kahila\
 > bhakta-vātsalya-guṇa yāte vyakta haila
 
 *rāyera*—de Bhavānanda Rāya; *ghare*—en el hogar; *prabhura*—de Śrī Caitanya Mahāprabhu; *kṛpā-vivarta*—misericordia que aparece como algo distinto; *kahila*—habló; *bhakta-vātsalya-guṇa*—la cualidad de ser muy afectuoso con los devotos; *yāte*—en la cual; *vyakta haila*—se manifestó.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.284
 
-> তাঁর আজ্ঞা লঞা গেলা প্রভুর চরণে ।
+> তাঁর আজ্ঞা লঞা গেলা প্রভুর চরণে ।\
 > প্রভু তাঁরে সমর্পিলা স্বরূপের স্থানে ॥২৮৪॥
 
-> tāṅra ājñā lañā gelā prabhura caraṇe
+> tāṅra ājñā lañā gelā prabhura caraṇe\
 > tāṅra prabhu tāṅre samarpilā svarūpera sthāne
 
 *tāṅra*—His; *ājñā*—order; *lañā*—taking; *gelā*—approached; *prabhura*—of Caitanya Mahāprabhu; *caraṇe*—the lotus feet; *prabhu*—the Lord; *tāṅre*—him; *samarpilā*—handed over; *svarūpera*—of Svarūpa Dāmodara; *sthāne*—to the place.

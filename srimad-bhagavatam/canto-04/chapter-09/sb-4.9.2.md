@@ -1,11 +1,11 @@
 ### SB 4.9.2
 
-> स वै धिया योगविपाकतीव्रया हृत्पद्मकोशे स्फुरितं तडित्प्रभम् ।
+> स वै धिया योगविपाकतीव्रया हृत्पद्मकोशे स्फुरितं तडित्प्रभम् ।\
 > तिरोहितं सहसैवोपलक्ष्य बहिःस्थितं तदवस्थं ददर्श ॥२॥
 
-> sa vai dhiyā yoga-vipāka-tīvrayā
-> hṛt-padma-kośe sphuritaṁ taḍit-prabham
-> tirohitaṁ sahasaivopalakṣya
+> sa vai dhiyā yoga-vipāka-tīvrayā\
+> hṛt-padma-kośe sphuritaṁ taḍit-prabham\
+> tirohitaṁ sahasaivopalakṣya\
 > bahiḥ-sthitaṁ tad-avasthaṁ dadarśa
 
 *saḥ*—Dhruva Mahārāja; *vai*—also; *dhiyā*—by meditation; *yoga-vipāka-tīvrayā*—on account of mature realization of the yogic process; *hṛt*—the heart; *padma-kośe*—on the lotus of; *sphuritam*—manifested; *taḍit-prabham*—brilliant like lightning; *tirohitam*—having disappeared; *sahasā*—all of a sudden; *eva*—also; *upalakṣya*—by observing; *bahiḥ-sthitam*—externally situated; *tat-avastham*—in the same posture; *dadarśa*—was able to see.

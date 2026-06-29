@@ -1,11 +1,11 @@
 ### SB 9.14.23
 
-> अहो रूपमहो भावो नरलोकविमोहनम
+> अहो रूपमहो भावो नरलोकविमोहनम\
 > को न सेवेत मनुजो देवीं त्वां स्वयमागताम ॥२३॥
 
-> aho rūpam aho bhāvo
-> nara-loka-vimohanam
-> ko na seveta manujo
+> aho rūpam aho bhāvo\
+> nara-loka-vimohanam\
+> ko na seveta manujo\
 > devīṁ tvāṁ svayam āgatām
 
 *aho*—maravillosa; *rūpam*—belleza; *aho*—maravillosas; *bhāvaḥ*—posturas; *nara-loka*—en la sociedad humana o en el planeta Tierra; *vimohanam*—tan atractiva; *kaḥ*—quién; *na*—no; *seveta*—aceptaría; *manujaḥ*—entre los seres humanos; *devīm*—a una semidiosa; *tvām*—como tú; *svayam āgatām*—que has venido en persona.

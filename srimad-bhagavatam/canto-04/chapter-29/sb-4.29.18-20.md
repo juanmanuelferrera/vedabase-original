@@ -1,25 +1,25 @@
 ### SB 4.29.18-20
 
-> देहो रथस्त्विन्द्रियाश्वः संवत्सररयोऽगतिः ।
-> द्विकर्मचक्रस्त्रिगुण ध्वजः पञ्चासुबन्धुरः ॥१८॥
-> मनोरश्मिर्बुद्धिसूतो हृन्नीडो द्वन्द्वकूबरः ।
-> पञ्चेन्द्रियार्थप्रक्षेपः सप्तधातुवरूथकः ॥१९॥
-> आकूतिर्विक्रमो बाह्यो मृगतृष्णां प्रधावति ।
+> देहो रथस्त्विन्द्रियाश्वः संवत्सररयोऽगतिः ।\
+> द्विकर्मचक्रस्त्रिगुण ध्वजः पञ्चासुबन्धुरः ॥१८॥\
+> मनोरश्मिर्बुद्धिसूतो हृन्नीडो द्वन्द्वकूबरः ।\
+> पञ्चेन्द्रियार्थप्रक्षेपः सप्तधातुवरूथकः ॥१९॥\
+> आकूतिर्विक्रमो बाह्यो मृगतृष्णां प्रधावति ।\
 > एकादशेन्द्रियचमूः पञ्चसूनाविनोदकृत् ॥२०॥
 
-> deho rathas tv indriyāśvaḥ
-> saṁvatsara-rayo 'gatiḥ
-> dvi-karma-cakras tri-guṇa-
+> deho rathas tv indriyāśvaḥ\
+> saṁvatsara-rayo 'gatiḥ\
+> dvi-karma-cakras tri-guṇa-\
 > dhvajaḥ pañcāsu-bandhuraḥ
 
-> mano-raśmir buddhi-sūto
-> hṛn-nīḍo dvandva-kūbaraḥ
-> pañcendriyārtha-prakṣepaḥ
+> mano-raśmir buddhi-sūto\
+> hṛn-nīḍo dvandva-kūbaraḥ\
+> pañcendriyārtha-prakṣepaḥ\
 > sapta-dhātu-varūthakaḥ
 
-> ākūtir vikramo bāhyo
-> mṛga-tṛṣṇāṁ pradhāvati
-> ekādaśendriya-camūḥ
+> ākūtir vikramo bāhyo\
+> mṛga-tṛṣṇāṁ pradhāvati\
+> ekādaśendriya-camūḥ\
 > pañca-sūnā-vinoda-kṛt
 
 *dehaḥ*—body; *rathaḥ*—chariot; *tu*—but; *indriya*—the knowledge-acquiring senses; *aśvaḥ*—the horses; *saṁvatsara*—total years; *rayaḥ*—duration of life; *agatiḥ*—without advancing; *dvi*—two; *karma*—activities; *cakraḥ*—wheels; *tri*—three; *guṇa*—modes of nature; *dhvajaḥ*—flags; *pañca*—five; *asu*—life airs; *bandhuraḥ*—bondage; *manaḥ*—the mind; *raśmiḥ*—rope; *buddhi*—intelligence; *sūtaḥ*—chariot driver; *hṛt*—heart; *nīḍaḥ*—sitting place; *dvandva*—duality; *kūbaraḥ*—the posts for the harness; *pañca*—five; *indriya-artha*—sense objects; *prakṣepaḥ*—weapons; *sapta*—seven; *dhātu*—elements; *varūthakaḥ*—coverings; *ākūtiḥ*—attempts of the five working senses; *vikramaḥ*—prowess or processes; *bāhyaḥ*—external; *mṛga-tṛṣṇām*—false aspiration; *pradhāvati*—runs after; *ekādaśa*—eleven; *indriya*—senses; *camūḥ*—soldiers; *pañca*—five; *sūnā*—envy; *vinoda*—pleasure; *kṛt*—doing.

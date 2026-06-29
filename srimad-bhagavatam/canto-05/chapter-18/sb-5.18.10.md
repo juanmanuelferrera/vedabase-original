@@ -1,11 +1,11 @@
 ### SB 5.18.10
 
-> मागारदारात्मजवित्तबन्धुषु सङ्गो यदि स्याद्भगवत्प्रियेषु नः
+> मागारदारात्मजवित्तबन्धुषु सङ्गो यदि स्याद्भगवत्प्रियेषु नः\
 > यः प्राणवृत्त्या परितुष्ट आत्मवान्सिद्ध्यत्यदूरान्न तथेन्द्रियप्रियः ॥१०॥
 
-> māgāra-dārātmaja-vitta-bandhuṣu
-> saṅgo yadi syād bhagavat-priyeṣu naḥ
-> yaḥ prāṇa-vṛttyā parituṣṭa ātmavān
+> māgāra-dārātmaja-vitta-bandhuṣu\
+> saṅgo yadi syād bhagavat-priyeṣu naḥ\
+> yaḥ prāṇa-vṛttyā parituṣṭa ātmavān\
 > siddhyaty adūrān na tathendriya-priyaḥ
 
 *mā*—not; *agāra*—house; *dāra*—wife; *ātma-ja*—children; *vitta*—bank balance; *bandhuṣu*—among friends and relatives; *saṅgaḥ*—association or attachment; *yadi*—if; *syāt*—there must be; *bhagavat-priyeṣu*—among persons to whom the Supreme Personality of Godhead is very dear; *naḥ*—of us; *yaḥ*—anyone who; *prāṇa-vṛttyā*—by the bare necessities of life; *parituṣṭaḥ*—satisfied; *ātma-vān*—who has controlled his mind and realized his self; *siddhyati*—becomes successful; *adūrāt*—very soon; *na*—not; *tathā*—so much; *indriya-priyaḥ*—a person attached to sense gratification.

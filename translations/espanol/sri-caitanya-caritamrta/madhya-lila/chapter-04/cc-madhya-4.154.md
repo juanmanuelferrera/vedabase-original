@@ -1,9 +1,9 @@
 ### CC Madhya 4.154
 
-> চলিল মাধবপুরী চন্দন লঞা ।
+> চলিল মাধবপুরী চন্দন লঞা ।\
 > কতদিনে রেমুণাতে উত্তরিল গিয়া ॥১৫৪॥
 
-> calila mādhava-purī candana lañā
+> calila mādhava-purī candana lañā\
 > kata-dine remuṇāte uttarila giyā
 
 *calila*—partió; *mādhava-purī*—Mādhavendra Purī; *candana lañā*—llevando el sándalo; *kata-dine*—después de algunos días; *remuṇāte*—al mismo templo de Remuṇā; *uttarila*—llegó; *giyā*—yendo.

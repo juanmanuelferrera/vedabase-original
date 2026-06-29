@@ -1,13 +1,13 @@
 ### SB 3.21.13
 
-> ऋषिरुवाच
-> जुष्टं बताद्याखिलसत्त्वराशेः सांसिद्ध्यमक्ष्णोस्तव दर्शनान्नः ।
+> ऋषिरुवाच\
+> जुष्टं बताद्याखिलसत्त्वराशेः सांसिद्ध्यमक्ष्णोस्तव दर्शनान्नः ।\
 > यद्दर्शनं जन्मभिरीड्य सद्भिराशासते योगिनो रूढयोगाः ॥१३॥
 
-> ṛṣir uvāca
-> juṣṭaṁ batādyākhila-sattva-rāśeḥ
-> sāṁsiddhyam akṣṇos tava darśanān naḥ
-> yad-darśanaṁ janmabhir īḍya sadbhir
+> ṛṣir uvāca\
+> juṣṭaṁ batādyākhila-sattva-rāśeḥ\
+> sāṁsiddhyam akṣṇos tava darśanān naḥ\
+> yad-darśanaṁ janmabhir īḍya sadbhir\
 > āśāsate yogino rūḍha-yogāḥ
 
 *ṛṣiḥ uvāca*—el gran sabio dijo; *juṣṭam*—se consigue; *bata*—¡ah!; *adya*—ahora; *akhila*—todo; *sattva*—de bondad; *rāśeḥ*—que eres el receptáculo; *sāṁsiddhyam*—el éxito completo; *akṣṇoḥ*—de los ojos; *tava*—de Ti; *darśanāt*—de la vista; *naḥ*—por nosotros; *yat*—de quien; *darśanam*—vista; *janmabhiḥ*—pasando por nacimientos; *īḍya*—¡oh, Señor adorable!; *sadbhiḥ*—de posición gradualmente elevada; *āśāsate*—aspiran; *yoginaḥ*—*yogīs*; *rūḍha-yogāḥ*—habiendo conseguido la perfección en el *yoga.*.

@@ -1,13 +1,13 @@
 ### SB 4.29.2
 
-> नारद उवाच
-> पुरुषं पुरञ्जनं विद्याद्यद्व्यनक्त्यात्मनः पुरम् ।
+> नारद उवाच\
+> पुरुषं पुरञ्जनं विद्याद्यद्व्यनक्त्यात्मनः पुरम् ।\
 > एकद्वित्रिचतुष्पादं बहुपादमपादकम् ॥२॥
 
-> nārada uvāca
-> puruṣaṁ purañjanaṁ vidyād
-> yad vyanakty ātmanaḥ puram
-> eka-dvi-tri-catuṣ-pādaṁ
+> nārada uvāca\
+> puruṣaṁ purañjanaṁ vidyād\
+> yad vyanakty ātmanaḥ puram\
+> eka-dvi-tri-catuṣ-pādaṁ\
 > bahu-pādam apādakam
 
 *nāradaḥ uvāca*—Nārada dijo; *puruṣam*—la entidad viviente, el disfrutador; *purañjanam*—el rey Purañjana; *vidyāt*—se debe saber; *yat*—en la medida en que; *vyanakti*—produce; *ātmanaḥ*—de sí mismo; *puram*—morada; *eka*—una; *dvi*—dos; *tri*—tres; *catuḥ-pādam*—con cuatro piernas; *bahu-pādam*—con muchas piernas; *apādakam*—sin piernas.

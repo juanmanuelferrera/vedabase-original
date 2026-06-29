@@ -1,9 +1,9 @@
 ### CC Madhya 9.164
 
-> সঙ্গেতে চলিলা ভট্ট, না যায় ভবনে ৷
+> সঙ্গেতে চলিলা ভট্ট, না যায় ভবনে ৷\
 > তাঁরে বিদায় দিলা প্রভু অনেক যতনে ৷৷ ১৬৪ ৷৷ ॥১৬৪॥
 
-> saṅgete calilā bhaṭṭa, nā yāya bhavane
+> saṅgete calilā bhaṭṭa, nā yāya bhavane\
 > tāṅre vidāya dilā prabhu aneka yatane
 
 *saṅgete*—junto con Él; *calilā*—comenzó a ir; *bhaṭṭa*—Veṅkaṭa Bhaṭṭa; *nā yāya bhavane*—no regresa a su hogar; *tāṅre*—a él; *vidāya dilā*—dio despedida; *prabhu*—Śrī Caitanya Mahāprabhu; *aneka yatane*—con gran esfuerzo.

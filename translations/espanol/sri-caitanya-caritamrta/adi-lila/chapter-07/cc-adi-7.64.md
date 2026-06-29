@@ -1,9 +1,9 @@
 ### CC Adi 7.64
 
-> প্রভু কহে, — আমি হই হীন-সম্প্রদায় ।
+> প্রভু কহে, — আমি হই হীন-সম্প্রদায় ।\
 > তোমা-সবার সভায় বসিতে না যুয়ায় ॥৬৪॥
 
-> prabhu kahe,--āmi ha-i hīna-sampradāya
+> prabhu kahe,--āmi ha-i hīna-sampradāya\
 > tomā-sabāra sabhāya vasite nā yuyāya
 
 *prabhu kahe*—el Señor respondió; *āmi*—Yo; *ha-i*—soy; *hīna-sampradāya*—perteneciente a una escuela espiritual inferior; *tomā-sabāra*—de todos vosotros; *sabhāya*—en la asamblea; *vasite*—sentarme; *nā*—nunca; *yuyāya*—me atrevería.

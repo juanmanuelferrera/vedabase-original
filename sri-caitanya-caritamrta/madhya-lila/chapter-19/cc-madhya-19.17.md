@@ -1,9 +1,9 @@
 ### CC Madhya 19.17
 
-> ভট্টাচার্য পণ্ডিত বিশ ত্রিশ লঞা ।
+> ভট্টাচার্য পণ্ডিত বিশ ত্রিশ লঞা ।\
 > ভাগবত বিচার করেন সভাতে বসিয়া ॥১৭॥
 
-> bhaṭṭācārya paṇḍita biśa triśa lañā
+> bhaṭṭācārya paṇḍita biśa triśa lañā\
 > bhāgavata vicāra karena sabhāte vasiyā
 
 *bhaṭṭācārya paṇḍita*—learned scholars known as *bhaṭṭācāryas*; *biśa triśa*—twenty or thirty; *lañā*—taking with him; *bhāgavata vicāra*—discussion of *Śrīmad-Bhāgavatam*; *karena*—does; *sabhāte vasiyā*—sitting in an assembly.

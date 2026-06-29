@@ -1,9 +1,9 @@
 ### CC Madhya 6.32
 
-> সবা সহিত যথাযোগ্য করিল মিলন ।
+> সবা সহিত যথাযোগ্য করিল মিলন ।\
 > প্রভু দেখি’ সবার হৈল হরষিত মন ॥৩২॥
 
-> sabā sahita yathā-yogya karila milana
+> sabā sahita yathā-yogya karila milana\
 > prabhu dekhi' sabāra haila haraṣita mana
 
 *sabā sahita*—with all of them; *yathā-yogya*—as it was befitting; *karila*—did; *milana*—meeting; *prabhu dekhi'*—seeing the Lord; *sabāra*—of all; *haila*—became; *haraṣita*—pleased; *mana*—the minds.

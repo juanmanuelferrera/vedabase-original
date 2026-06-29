@@ -1,9 +1,9 @@
 ### CC Adi 7.50
 
-> কতেক শুনিব প্রভু তোমার নিন্দন ।
+> কতেক শুনিব প্রভু তোমার নিন্দন ।\
 > না পারি সহিতে, এবে ছাড়িব জীবন ॥৫০॥
 
-> kateka śuniba prabhu tomāra nindana
+> kateka śuniba prabhu tomāra nindana\
 > nā pāri sahite, ebe chāḍiba jīvana
 
 *kateka*—cuánto; *śuniba*—hemos de oír; *prabhu*—¡oh, Señor!; *tomāra*—Tu; *nindana*—blasfemia; *nā pāri*—no somos capaces; *sahite*—de tolerar; *ebe*—ahora; *chāḍiba*—abandonaremos; *jīvana*—la vida.

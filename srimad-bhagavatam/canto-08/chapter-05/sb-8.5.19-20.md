@@ -1,18 +1,18 @@
 ### SB 8.5.19-20
 
-> स विलोक्येन्द्रवाय्वादीन्निःसत्त्वान्विगतप्रभान
-> लोकानमङ्गलप्रायानसुरानयथा विभुः ॥१९॥
-> समाहितेन मनसा संस्मरन्पुरुषं परम
+> स विलोक्येन्द्रवाय्वादीन्निःसत्त्वान्विगतप्रभान\
+> लोकानमङ्गलप्रायानसुरानयथा विभुः ॥१९॥\
+> समाहितेन मनसा संस्मरन्पुरुषं परम\
 > उवाचोत्फुल्लवदनो देवान्स भगवान्परः ॥२०॥
 
-> sa vilokyendra-vāyv-ādīn
-> niḥsattvān vigata-prabhān
-> lokān amaṅgala-prāyān
+> sa vilokyendra-vāyv-ādīn\
+> niḥsattvān vigata-prabhān\
+> lokān amaṅgala-prāyān\
 > asurān ayathā vibhuḥ
 
-> samāhitena manasā
-> saṁsmaran puruṣaṁ param
-> uvācotphulla-vadano
+> samāhitena manasā\
+> saṁsmaran puruṣaṁ param\
+> uvācotphulla-vadano\
 > devān sa bhagavān paraḥ
 
 *saḥ*—Lord Brahmā; *vilokya*—looking over; *indra-vāyu-ādīn*—all the demigods, headed by Lord Indra and Vāyu; *niḥsattvān*—bereft of all spiritual potency; *vigata-prabhān*—bereft of all effulgence; *lokān*—all the three worlds; *amaṅgala-prāyān*—merged into misfortune; *asurān*—all the demons; *ayathāḥ*—flourishing; *vibhuḥ*—Lord Brahmā, the supreme within this material world; *samāhitena*—by full adjustment; *manasā*—of the mind; *saṁsmaran*—remembering again and again; *puruṣam*—the Supreme Person; *param*—transcendental; *uvāca*—said; *utphulla-vadanaḥ*—bright-faced; *devān*—unto the demigods; *saḥ*—he; *bhagavān*—the most powerful; *paraḥ*—of the demigods.

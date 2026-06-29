@@ -1,13 +1,13 @@
 ### SB 3.20.1
 
-> शौनक उवाच
-> महीं प्रतिष्ठामध्यस्य सौते स्वायम्भुवो मनुः ।
+> शौनक उवाच\
+> महीं प्रतिष्ठामध्यस्य सौते स्वायम्भुवो मनुः ।\
 > कान्यन्वतिष्ठद्द्वाराणि मार्गायावरजन्मनाम् ॥१॥
 
-> śaunaka uvāca
-> mahīṁ pratiṣṭhām adhyasya
-> saute svāyambhuvo manuḥ
-> kāny anvatiṣṭhad dvārāṇi
+> śaunaka uvāca\
+> mahīṁ pratiṣṭhām adhyasya\
+> saute svāyambhuvo manuḥ\
+> kāny anvatiṣṭhad dvārāṇi\
 > mārgāyāvara-janmanām
 
 *śaunakaḥ*—Śaunaka; *uvāca*—dijo; *mahīm*—la Tierra; *pratiṣṭhām*—puesta; *adhyasya*—habiendo colocado; *saute*—¡oh, Sūta Gosvāmī!; *svāyambhuvaḥ*—Svāyambhuva; *manuḥ*—Manu; *kāni*—¿cuáles?; *anvatiṣṭhat*—puso en práctica; *dvārāṇi*—medios; *mārgāya*—para liberarse; *avara*—después; *janmanām*—de aquellos que habrían de nacer.

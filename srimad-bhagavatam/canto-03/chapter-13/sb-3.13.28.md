@@ -1,11 +1,11 @@
 ### SB 3.13.28
 
-> घ्राणेन पृथ्व्याः पदवीं विजिघ्रन्क्रोडापदेशः स्वयमध्वराङ्गः ।
+> घ्राणेन पृथ्व्याः पदवीं विजिघ्रन्क्रोडापदेशः स्वयमध्वराङ्गः ।\
 > करालदंष्ट्रोऽप्यकरालदृग्भ्यामुद्वीक्ष्य विप्रान्गृणतोऽविशत्कम् ॥२८॥
 
-> ghrāṇena pṛthvyāḥ padavīṁ vijighran
-> kroḍāpadeśaḥ svayam adhvarāṅgaḥ
-> karāla-daṁṣṭro 'py akarāla-dṛgbhyām
+> ghrāṇena pṛthvyāḥ padavīṁ vijighran\
+> kroḍāpadeśaḥ svayam adhvarāṅgaḥ\
+> karāla-daṁṣṭro 'py akarāla-dṛgbhyām\
 > udvīkṣya viprān gṛṇato 'viśat kam
 
 *ghrāṇena*—by smelling; *pṛthvyāḥ*—of the earth; *padavīm*—situation; *vijighran*—searching after the earth; *kroḍa-apadeśaḥ*—assuming the body of a hog; *svayam*—personally; *adhvara*—transcendental; *aṅgaḥ*—body; *karāla*—fearful; *daṁṣṭraḥ*—teeth (tusks); *api*—in spite of; *akarāla*—not fearful; *dṛgbhyām*—by His glance; *udvīkṣya*—glancing over; *viprān*—all the *brāhmaṇa*-devotees; *gṛṇataḥ*—who were engaged in prayers; *aviśat*—entered; *kam*—the water.

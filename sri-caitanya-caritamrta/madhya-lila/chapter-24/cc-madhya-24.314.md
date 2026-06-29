@@ -1,9 +1,9 @@
 ### CC Madhya 24.314
 
-> অর্থ শুনি’ সনাতন বিস্মিত হঞা ।
+> অর্থ শুনি’ সনাতন বিস্মিত হঞা ।\
 > স্তুতি করে মহাপ্রভুর চরণে ধরিয়া ॥৩১৪॥
 
-> artha śuni' sanātana vismita hañā
+> artha śuni' sanātana vismita hañā\
 > stuti kare mahāprabhura caraṇe dhariyā
 
 *artha śuni'*—by hearing the meaning (of the *ātmārāma* verse); *sanātana*—Sanātana Gosvāmī; *vismita hañā*—becoming struck with wonder; *stuti kare*—offers prayers; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *caraṇe dhariyā*—touching the lotus feet.

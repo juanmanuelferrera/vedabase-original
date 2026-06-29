@@ -1,11 +1,11 @@
 ### SB 4.26.14
 
-> अन्तःपुरस्त्रियोऽपृच्छद्विमना इव वेदिषत् ।
+> अन्तःपुरस्त्रियोऽपृच्छद्विमना इव वेदिषत् ।\
 > अपि वः कुशलं रामाः सेश्वरीणां यथा पुरा ॥१४॥
 
-> antaḥpura-striyo 'pṛcchad
-> vimanā iva vediṣat
-> api vaḥ kuśalaṁ rāmāḥ
+> antaḥpura-striyo 'pṛcchad\
+> vimanā iva vediṣat\
+> api vaḥ kuśalaṁ rāmāḥ\
 > seśvarīṇāṁ yathā purā
 
 *antaḥ-pura*—household; *striyaḥ*—women; *apṛcchat*—he asked; *vimanāḥ*—being very much anxious; *iva*—like; *vediṣat*—O King Prācīnabarhi; *api*—whether; *vaḥ*—your; *kuśalam*—good fortune; *rāmāḥ*—O you beautiful women; *sa-īśvarīṇām*—with your mistress; *yathā*—as; *purā*—before.

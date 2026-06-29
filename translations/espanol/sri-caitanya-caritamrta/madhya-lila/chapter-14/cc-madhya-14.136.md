@@ -1,9 +1,9 @@
 ### CC Madhya 14.136
 
-> দামোদর কহে, — ঐছে মানের প্রকার ।
+> দামোদর কহে, — ঐছে মানের প্রকার ।\
 > ত্রিজগতে কাহাঁ নাহি দেখি শুনি আর ॥১৩৬॥
 
-> dāmodara kahe,-aiche mānera prakāra
+> dāmodara kahe,-aiche mānera prakāra\
 > trijagate kāhāṅ nāhi dekhi śuni āra
 
 *dāmodara kahe*—Svarūpa Dāmodara Gosvāmī dijo; *aiche*—tal; *mānera*—de orgullo egoísta; *prakāra*—clase; *tri-jagate*—dentro de los tres mundos; *kāhāṅ*—en ningún lugar; *nāhi*—no; *dekhi*—veo; *śuni*—oigo; *āra*—otra.

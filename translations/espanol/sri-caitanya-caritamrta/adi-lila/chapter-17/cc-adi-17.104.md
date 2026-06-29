@@ -1,9 +1,9 @@
 ### CC Adi 17.104
 
-> কে আছিলুঁ আমি পূর্বজন্মে কহ গণি’ ।
+> কে আছিলুঁ আমি পূর্বজন্মে কহ গণি’ ।\
 > গণিতে লাগিলা সর্বজ্ঞ প্রভুবাক্য শুনি’ ॥১০৪॥
 
-> ke āchiluṅ āmi pūrva janme kaha gaṇi'
+> ke āchiluṅ āmi pūrva janme kaha gaṇi'\
 > gaṇite lāgilā sarva-jña prabhu-vākya śuni'
 
 *ke āchiluṅ āmi*—quién era Yo; *pūrva janme*—en Mi nacimiento anterior; *kaha*—por favor dime; *gaṇi'*—mediante tu cálculo astrológico; *gaṇite*—a calcular; *lāgilā*—comenzó; *sarva-jña*—un hombre que conoce pasado, presente y futuro; *prabhu-vākya*—las palabras del Señor Caitanya; *śuni'*—al escuchar.

@@ -1,13 +1,13 @@
 ### SB 3.16.37
 
-> विश्वस्य यः स्थितिलयोद्भवहेतुराद्यो
-> योगेश्वरैरपि दुरत्यययोगमायः ।
-> क्षेमं विधास्यति स नो भगवांस्त्र्यधीशस्
+> विश्वस्य यः स्थितिलयोद्भवहेतुराद्यो\
+> योगेश्वरैरपि दुरत्यययोगमायः ।\
+> क्षेमं विधास्यति स नो भगवांस्त्र्यधीशस्\
 > तत्रास्मदीयविमृशेन कियानिहार्थः ॥३७॥
 
-> viśvasya yaḥ sthiti-layodbhava-hetur ādyo
-> yogeśvarair api duratyaya-yogamāyaḥ
-> kṣemaṁ vidhāsyati sa no bhagavāṁs tryadhīśas
+> viśvasya yaḥ sthiti-layodbhava-hetur ādyo\
+> yogeśvarair api duratyaya-yogamāyaḥ\
+> kṣemaṁ vidhāsyati sa no bhagavāṁs tryadhīśas\
 > tatrāsmadīya-vimṛśena kiyān ihārthaḥ
 
 *viśvasya*—del universo; *yaḥ*—quien; *sthiti*—mantenimiento; *laya*—destrucción; *udbhava*—creación; *hetuḥ*—la causa; *ādyaḥ*—la persona más antigua; *yoga-īśvaraiḥ*—por los maestros del *yoga*; *api*—incluso; *duratyaya*—no puede ser entendido fácilmente; *yoga-māyaḥ*—Su potencia *yoga-māyā*; *kṣemam*—bien; *vidhāsyati*—hará; *saḥ*—Él; *naḥ*—de nosotros; *bhagavān*—la Suprema Personalidad de Dios; *tri-adhīśaḥ*—el controlador de las tres modalidades de la naturaleza material; *tatra*—allí; *asmadīya*—mediante nuestra; *vimṛśena*—deliberación; *kiyān*—qué; *iha*—sobre este tema; *arthaḥ*—propósito.

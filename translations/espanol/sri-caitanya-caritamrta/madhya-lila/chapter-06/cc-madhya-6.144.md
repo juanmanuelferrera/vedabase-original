@@ -1,9 +1,9 @@
 ### CC Madhya 6.144
 
-> ‘অপাদান’, ‘করণ’ এবং ‘অধিকরণ’-কারক তিন ৷
+> ‘অপাদান’, ‘করণ’ এবং ‘অধিকরণ’-কারক তিন ৷\
 > ভগবানের সবিশেষে এই তিন চিহ্ন ॥১৪৪॥
 
-> 'apādāna,' 'karaṇa,' 'adhikaraṇa'-kāraka tina
+> 'apādāna,' 'karaṇa,' 'adhikaraṇa'-kāraka tina\
 > bhagavānera saviśeṣe ei tina cihna
 
 *apādāna*—ablativo; *karaṇa*—instrumental; *adhikaraṇa*—locativo; *kāraka*—casos; *tina*—tres; *bhagavānera*—de la Suprema Personalidad de Dios; *sa-viśeṣa*—en la personalidad; *ei*—estos; *tina*—tres; *cihna*—síntomas.

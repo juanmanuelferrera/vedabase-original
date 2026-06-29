@@ -1,9 +1,9 @@
 ### CC Adi 3.44
 
-> আজানুলম্বিতভুজ কমললোচন ।
+> আজানুলম্বিতভুজ কমললোচন ।\
 > তিলফুল-জিনি-নাসা, সুধাংশু-বদন ॥৪৪॥
 
-> ājānulambita-bhuja kamala-locana
+> ājānulambita-bhuja kamala-locana\
 > tilaphula-jini-nāsā, sudhāṁśu-vadana
 
 *ā-jānu-lambita-bhuja*—arms that reach the knees; *kamala-locana*—with lotus eyes; *tila-phula*—the blossom of the sesame plant; *jini*—conquering; *nāsā*—whose nose; *sudhā-aṁśu-vadana*—whose face is like the moon.

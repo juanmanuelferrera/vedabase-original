@@ -1,11 +1,11 @@
 ### SB 3.20.30
 
-> अन्योन्यश्लेषयोत्तुङ्ग निरन्तरपयोधराम् ।
+> अन्योन्यश्लेषयोत्तुङ्ग निरन्तरपयोधराम् ।\
 > सुनासां सुद्विजां स्निग्ध हासलीलावलोकनाम् ॥३०॥
 
-> anyonya-śleṣayottuṅga-
-> nirantara-payodharām
-> sunāsāṁ sudvijāṁ snigdha-
+> anyonya-śleṣayottuṅga-\
+> nirantara-payodharām\
+> sunāsāṁ sudvijāṁ snigdha-\
 > hāsa-līlāvalokanām
 
 *anyonya*—uno al otro; *śleṣayā*—por la apretura; *uttuṅga*—erguidos; *nirantara*—sin espacio intermedio; *payaḥ-dharām*—pechos; *su-nāsām*—nariz bien perfilada; *su-dvijām*—hermosos dientes; *snigdha*—encantadora; *hāsa*—sonrisa; *līlā-avalokanām*—mirada juguetona.

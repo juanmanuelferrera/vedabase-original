@@ -1,9 +1,9 @@
 ### CC Adi 13.48
 
-> চৈতন্য-লীলার ব্যাস, — দাস বৃন্দাবন ।
+> চৈতন্য-লীলার ব্যাস, — দাস বৃন্দাবন ।\
 > মধুর করিয়া লীলা করিলা রচন ॥৪৮॥
 
-> caitanya-līlāra vyāsa,--dāsa vṛndāvana
+> caitanya-līlāra vyāsa,--dāsa vṛndāvana\
 > madhura kariyā līlā karilā racana
 
 *caitanya-līlāra*—de los pasatiempos del Señor Caitanya; *vyāsa*—el escritor autorizado, Vyāsadeva; *dāsa vṛndāvana*—Vṛndāvana dāsa Ṭhākura; *madhura*—dulce; *kariyā*—haciéndolo; *līlā*—pasatiempos; *karilā*—hizo; *racana*—compilación.

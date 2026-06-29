@@ -1,9 +1,9 @@
 ### CC Adi 8.20
 
-> হেন প্রেম শ্রীচৈতন্য দিলা যথা তথা ।
+> হেন প্রেম শ্রীচৈতন্য দিলা যথা তথা ।\
 > জগাই মাধাই পর্যন্ত — অন্যের কা কথা ॥২০॥
 
-> hena prema śrī-caitanya dilā yathā tathā
+> hena prema śrī-caitanya dilā yathā tathā\
 > jagāi mādhāi paryanta—anyera kā kathā
 
 *hena*—such; *prema*—love of Godhead; *śrī-caitanya*—Lord Śrī Caitanya Mahāprabhu; *dilā*—has given; *yathā*—anywhere; *tathā*—everywhere; *jagāi*—of the name Jagāi; *mādhāi*—of the name Mādhāi; *paryanta*—up to them; *anyera*—of others; *kā*—what to speak; *kathā*—words.

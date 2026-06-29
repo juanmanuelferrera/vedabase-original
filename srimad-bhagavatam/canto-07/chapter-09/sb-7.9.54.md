@@ -1,11 +1,11 @@
 ### SB 7.9.54
 
-> प्रीणन्ति ह्यथ मां धीराः सर्वभावेन साधवः
+> प्रीणन्ति ह्यथ मां धीराः सर्वभावेन साधवः\
 > श्रेयस्कामा महाभाग सर्वासामाशिषां पतिम ॥५४॥
 
-> prīṇanti hy atha māṁ dhīrāḥ
-> sarva-bhāvena sādhavaḥ
-> śreyas-kāmā mahā-bhāga
+> prīṇanti hy atha māṁ dhīrāḥ\
+> sarva-bhāvena sādhavaḥ\
+> śreyas-kāmā mahā-bhāga\
 > sarvāsām āśiṣāṁ patim
 
 *prīṇanti*—try to please; *hi*—indeed; *atha*—because of this; *mām*—Me; *dhīrāḥ*—those who are sober and most intelligent; *sarva-bhāvena*—in all respects, in different modes of devotional service; *sādhavaḥ*—persons who are very well behaved (perfect in all respects); *śreyas-kāmāḥ*—desiring the best benefit in life; *mahā-bhāga*—O you who are so fortunate; *sarvāsām*—of all; *āśiṣām*—kinds of benedictions; *patim*—the master (Me).

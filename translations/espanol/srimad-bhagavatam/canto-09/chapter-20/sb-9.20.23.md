@@ -1,11 +1,11 @@
 ### SB 9.20.23
 
-> पितर्युपरते सोऽपि चक्रवर्ती महायशाः
+> पितर्युपरते सोऽपि चक्रवर्ती महायशाः\
 > महिमा गीयते तस्य हरेरंशभुवो भुवि ॥२३॥
 
-> pitary uparate so 'pi
-> cakravartī mahā-yaśāḥ
-> mahimā gīyate tasya
+> pitary uparate so 'pi\
+> cakravartī mahā-yaśāḥ\
+> mahimā gīyate tasya\
 > harer aṁśa-bhuvo bhuvi
 
 *pitari*—después de que su padre; *uparate*—muriera; *saḥ*—el hijo del rey; *api*—también; *cakravartī*—el emperador; *mahā-yaśāḥ*—muy famoso; *mahimā*—glorias; *gīyate*—son glorificadas; *tasya*—sus; *hareḥ*—de la Suprema Personalidad de Dios; *aṁśa-bhuvaḥ*—una representación parcial; *bhuvi*—sobre la Tierra.

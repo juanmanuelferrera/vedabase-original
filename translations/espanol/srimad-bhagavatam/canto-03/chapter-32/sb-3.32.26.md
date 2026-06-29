@@ -1,11 +1,11 @@
 ### SB 3.32.26
 
-> ज्ञानमात्रं परं ब्रह्म परमात्मेश्वरः पुमान् ।
+> ज्ञानमात्रं परं ब्रह्म परमात्मेश्वरः पुमान् ।\
 > दृश्यादिभिः पृथग्भावैर्भगवानेक ईयते ॥२६॥
 
-> jñāna-mātraṁ paraṁ brahma
-> paramātmeśvaraḥ pumān
-> dṛśy-ādibhiḥ pṛthag bhāvair
+> jñāna-mātraṁ paraṁ brahma\
+> paramātmeśvaraḥ pumān\
+> dṛśy-ādibhiḥ pṛthag bhāvair\
 > bhagavān eka īyate
 
 *jñāna*—conocimiento; *mātram*—solamente; *param*—trascendental; *brahma*—Brahman; *parama-ātmā*—Paramātmā; *īśvaraḥ*—el controlador; *pumān*—Superalma; *dṛśi-ādibhiḥ*—mediante la investigación filosófica y otros procesos; *pṛthak bhāvaiḥ*—según distintos procesos de comprensión; *bhagavān*—la Suprema Personalidad de Dios; *ekaḥ*—única; *īyate*—se percibe.

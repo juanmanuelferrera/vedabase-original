@@ -1,11 +1,11 @@
 ### Bg 2.31
 
-> स्वधर्ममपि चावेक्ष्य न विकम्पितुमर्हसि ।
+> स्वधर्ममपि चावेक्ष्य न विकम्पितुमर्हसि ।\
 > धर्म्याद्धि युद्धाच्छ्रेयोऽन्यत्क्षत्रियस्य न विद्यते ॥३१॥
 
-> sva-dharmam api cāvekṣya
-> na vikampitum arhasi
-> dharmyād dhi yuddhāc chreyo 'nyat
+> sva-dharmam api cāvekṣya\
+> na vikampitum arhasi\
+> dharmyād dhi yuddhāc chreyo 'nyat\
 > kṣatriyasya na vidyate
 
 *svadharmam*—one's own religious principles; *api*—also; *ca*—indeed; *avekṣya*—considering; *na*—never; *vikampitum*—to hesitate; *arhasi*—you deserve; *dharmyāt*—from religious principles; *hi*—indeed; *yuddhāt*—of fighting; *śreyaḥ*—better engagements; *anyat*—anything else; *kṣatriyasya*—of the *kṣatriya*; *na*—does not; *vidyate*—exist.

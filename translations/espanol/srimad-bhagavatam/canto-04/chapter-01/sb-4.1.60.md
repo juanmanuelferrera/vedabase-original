@@ -1,11 +1,11 @@
 ### SB 4.1.60
 
-> स्वाहाभिमानिनश्चाग्नेरात्मजांस्त्रीनजीजनत् ।
+> स्वाहाभिमानिनश्चाग्नेरात्मजांस्त्रीनजीजनत् ।\
 > पावकं पवमानं च शुचिं च हुतभोजनम् ॥६०॥
 
-> svāhābhimāninaś cāgner
-> ātmajāṁs trīn ajījanat
-> pāvakaṁ pavamānaṁ ca
+> svāhābhimāninaś cāgner\
+> ātmajāṁs trīn ajījanat\
+> pāvakaṁ pavamānaṁ ca\
 > śuciṁ ca huta-bhojanam
 
 *svāhā*—Svāhā, la esposa de Agni; *abhimāninaḥ*—la deidad regente del fuego; *ca*—y; *agneḥ*—de Agni; *ātmajān*—hijos; *trīn*—tres; *ajījanat*—dio a luz; *pāvakam*—Pāvaka; *pavamānam ca*—Pavamāna; *śucim ca*—y Śuci; *huta-bhojanam*—comer las oblaciones del sacrificio.

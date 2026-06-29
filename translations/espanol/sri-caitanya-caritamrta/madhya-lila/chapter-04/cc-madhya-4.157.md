@@ -1,9 +1,9 @@
 ### CC Madhya 4.157
 
-> সেই রাত্রে দেবালয়ে করিল শয়ন ।
+> সেই রাত্রে দেবালয়ে করিল শয়ন ।\
 > শেষরাত্রি হৈলে পুরী দেখিল স্বপন ॥১৫৭॥
 
-> sei rātre devālaye karila śayana
+> sei rātre devālaye karila śayana\
 > śeṣa-rātri haile purī dekhila svapana
 
 *sei rātre*—esa noche; *deva-ālaye*—en el templo; *karila*—hizo; *śayana*—dormir; *śeṣa-rātri*—al final de la noche; *haile*—cuando fue; *purī*—Mādhavendra Purī; *dekhila*—vio; *svapana*—un sueño.

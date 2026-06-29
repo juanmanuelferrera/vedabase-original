@@ -1,11 +1,11 @@
 ### SB 3.32.42
 
-> बहिर्जातविरागाय शान्तचित्ताय दीयताम् ।
+> बहिर्जातविरागाय शान्तचित्ताय दीयताम् ।\
 > निर्मत्सराय शुचये यस्याहं प्रेयसां प्रियः ॥४२॥
 
-> bahir-jāta-virāgāya
-> śānta-cittāya dīyatām
-> nirmatsarāya śucaye
+> bahir-jāta-virāgāya\
+> śānta-cittāya dīyatām\
+> nirmatsarāya śucaye\
 > yasyāhaṁ preyasāṁ priyaḥ
 
 *bahiḥ*—por lo que está fuera; *jāta-virāgāya*—a aquel que ha cultivado desapego; *śānta-cittāya*—cuya mente es pacífica; *dīyatām*—que se instruya; *nirmatsarāya*—que no tiene envidia; *śucaye*—perfectamente limpio; *yasya*—de quien; *aham*—Yo; *preyasām*—de todo lo que es muy querido; *priyaḥ*—el más querido.

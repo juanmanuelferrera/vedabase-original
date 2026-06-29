@@ -1,9 +1,9 @@
 ### CC Madhya 10.82
 
-> ācāryaratna, āra paṇḍita vakreśvara
+> ācāryaratna, āra paṇḍita vakreśvara\
 > ācāryanidhi, āra paṇḍita gadādhara
 
-> ācāryaratna, āra paṇḍita vakreśvara
+> ācāryaratna, āra paṇḍita vakreśvara\
 > ācāryanidhi, āra paṇḍita gadādhara
 
 *ācāryaratna*—Ācāryaratna; *āra*—y; *paṇḍita vakreśvara*—Vakreśvara Paṇḍita; *ācāryanidhi*—Ācāryanidhi; *āra*—también; *paṇḍita gadādhara*—Gadādhara Paṇḍita.

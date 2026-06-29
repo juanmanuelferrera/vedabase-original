@@ -1,11 +1,11 @@
 ### SB 6.9.55
 
-> तस्मिन्विनिहते यूयं तेजोऽस्त्रायुधसम्पदः
+> तस्मिन्विनिहते यूयं तेजोऽस्त्रायुधसम्पदः\
 > भूयः प्राप्स्यथ भद्रं वो न हिंसन्ति च मत्परान ॥५५॥
 
-> tasmin vinihate yūyaṁ
-> tejo-'strāyudha-sampadaḥ
-> bhūyaḥ prāpsyatha bhadraṁ vo
+> tasmin vinihate yūyaṁ\
+> tejo-'strāyudha-sampadaḥ\
+> bhūyaḥ prāpsyatha bhadraṁ vo\
 > na hiṁsanti ca mat-parān
 
 *tasmin*—cuando él (Vṛtrāsura); *vinihate*—sea matado; *yūyam*—todos ustedes; *tejaḥ*—poder; *astra*—flechas; *āyudha*—otras armas; *sampadaḥ*—y opulencia; *bhūyaḥ*—de nuevo; *prāpsyatha*—obtendrán; *bhadram*—toda buena fortuna; *vaḥ*—a ustedes; *na*—no; *hiṁsanti*—daño; *ca*—también; *mat-parān*—Mis devotos.

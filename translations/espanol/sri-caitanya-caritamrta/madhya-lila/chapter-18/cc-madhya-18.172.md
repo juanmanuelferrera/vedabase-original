@@ -1,9 +1,9 @@
 ### CC Madhya 18.172
 
-> পাঠান কহে, — তুমি পশ্চিমা মাথুর দুইজন ।
+> পাঠান কহে, — তুমি পশ্চিমা মাথুর দুইজন ।\
 > ‘গৌড়িয়া’ ঠক্ এই কাঁপে দুইজন ॥১৭২॥
 
-> pāṭhāna kahe,--tumi paścimā māthura dui-jana
+> pāṭhāna kahe,--tumi paścimā māthura dui-jana\
 > 'gauḍiyā' ṭhak ei kāṅpe dui-jana
 
 *pāṭhāna kahe*—los soldados dijeron; *tumi*—tú; *paścimā*—indios occidentales; *māthura*—pertenecientes al distrito de Mathurā; *dui-jana*—ustedes dos; *gauḍiyā*—bengalíes; *ṭhak*—bribones; *ei*—estos; *kāṅpe*—están temblando; *dui-jana*—dos personas.

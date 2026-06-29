@@ -1,9 +1,9 @@
 ### CC Antya 16.101
 
-> এত বলি’ প্রভু তা-সবারে বিদায় দিলা ।
+> এত বলি’ প্রভু তা-সবারে বিদায় দিলা ।\
 > উপল-ভোগ দেখিয়া প্রভু নিজ-বাসা আইলা ॥১০১॥
 
-> eta bali' prabhu tā-sabāre vidāya dilā
+> eta bali' prabhu tā-sabāre vidāya dilā\
 > upala-bhoga dekhiyā prabhu nija-vāsā āilā
 
 *eta bali'*—saying this; *prabhu*—Śrī Caitanya Mahāprabhu; *tā-sabāre*—unto all of them; *vidāya dilā*—bade farewell; *upala-bhoga*—the next offering of food; *dekhiyā*—seeing; *prabhu*—Śrī Caitanya Mahāprabhu; *nija-vāsā*—to His place; *āilā*—returned.

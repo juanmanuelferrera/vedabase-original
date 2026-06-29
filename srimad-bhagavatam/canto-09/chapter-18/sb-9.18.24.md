@@ -1,11 +1,11 @@
 ### SB 9.18.24
 
-> गते राजनि सा धीरे तत्र स्म रुदती पितुः
+> गते राजनि सा धीरे तत्र स्म रुदती पितुः\
 > न्यवेदयत्ततः सर्वमुक्तं शर्मिष्ठया कृतम ॥२४॥
 
-> gate rājani sā dhīre
-> tatra sma rudatī pituḥ
-> nyavedayat tataḥ sarvam
+> gate rājani sā dhīre\
+> tatra sma rudatī pituḥ\
+> nyavedayat tataḥ sarvam\
 > uktaṁ śarmiṣṭhayā kṛtam
 
 *gate rājani*—after the departure of the King; *sā*—she (Devayānī); *dhīre*—learned; *tatra sma*—returning to her home; *rudatī*—crying; *pituḥ*—before her father; *nyavedayat*—submitted; *tataḥ*—thereafter; *sarvam*—all; *uktam*—mentioned; *śarmiṣṭhayā*—by Śarmiṣṭhā; *kṛtam*—done.

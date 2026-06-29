@@ -1,9 +1,9 @@
 ### CC Antya 5.76
 
-> হেন ‘রস’ পান মোরে করাইলা তুমি ।
+> হেন ‘রস’ পান মোরে করাইলা তুমি ।\
 > জন্মে জন্মে তোমার পায় বিকাইলাঙ আমি ।।” ॥ ৭৬ ॥
 
-> hena 'rasa' pāna more karāilā tumi
+> hena 'rasa' pāna more karāilā tumi\
 > janme janme tomāra pāya vikāilāṅa āmi
 
 *hena rasa*—tales melosidades trascendentales; *pāna*—beber; *more*—a mí; *karāilā tumi*—Tú me has hecho; *janme janme*—vida tras vida; *tomāra pāya*—a Tus pies; *vikāilāṅa āmi*—me he vendido.

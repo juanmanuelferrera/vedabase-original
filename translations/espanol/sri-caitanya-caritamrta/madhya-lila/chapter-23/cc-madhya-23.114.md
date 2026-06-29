@@ -1,13 +1,13 @@
 ### CC Madhya 23.114
 
-> চীরাণি কিং পথি ন সন্তি দিশন্তি ভিক্ষাং
-> নৈবাঙ্ঘ্রিপাঃ পরভৃতঃ সরিতোঽপ্যশুষ্যন্ ।
-> রুদ্ধা গুহাঃ কিমজিতোঽবতি নোপসন্নান্
+> চীরাণি কিং পথি ন সন্তি দিশন্তি ভিক্ষাং\
+> নৈবাঙ্ঘ্রিপাঃ পরভৃতঃ সরিতোঽপ্যশুষ্যন্ ।\
+> রুদ্ধা গুহাঃ কিমজিতোঽবতি নোপসন্নান্\
 > কস্মাদ্ভজন্তি কবয়ো ধনদুর্মদান্ধান্ ॥১১৪॥
 
-> cīrāṇi kiṁ pathi na santi diśanti bhikṣāṁ
-> naivāṅghri-pāḥ parabhṛtaḥ sarito 'py aśuṣyan
-> ruddhā guhāḥ kim ajito 'vati nopasannān
+> cīrāṇi kiṁ pathi na santi diśanti bhikṣāṁ\
+> naivāṅghri-pāḥ parabhṛtaḥ sarito 'py aśuṣyan\
+> ruddhā guhāḥ kim ajito 'vati nopasannān\
 > kasmād bhajanti kavayo dhana-durmadāndhān
 
 *cīrāṇi*—ropas viejas desgarradas; *kim*—acaso; *pathi*—en el camino; *na*—no; *santi*—están; *diśanti*—dan; *bhikṣām*—limosnas; *na*—no; *eva*—ciertamente; *aṅghri-pāḥ*—los árboles; *parabhṛtaḥ*—sustentadores de los demás; *saritaḥ*—los ríos; *api*—también; *aśuṣyan*—se han secado; *ruddhāḥ*—cerradas; *guhāḥ*—las cuevas; *kim*—acaso; *ajitaḥ*—la Suprema Personalidad de Dios, quien es invencible; *avati*—protege; *na*—no; *upasannān*—a los que se entregan; *kasmāt*—por qué razón, por lo tanto; *bhajanti*—adulan; *kavayaḥ*—los devotos; *dhana-durmada-andhān*—a personas engreídas por sus posesiones materiales.

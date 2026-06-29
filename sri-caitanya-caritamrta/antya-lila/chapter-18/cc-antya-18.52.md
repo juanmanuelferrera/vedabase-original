@@ -1,9 +1,9 @@
 ### CC Antya 18.52
 
-> শরীর দীঘল তার — হাত পাঁচ-সাত ।
+> শরীর দীঘল তার — হাত পাঁচ-সাত ।\
 > একেক-হস্ত-পদ তার, তিন তিন হাত ॥৫২॥
 
-> śarīra dīghala tāra—hāta pāṅca-sāta
+> śarīra dīghala tāra—hāta pāṅca-sāta\
 > ekeka-hasta-pada tāra, tina tina hāta
 
 *śarīra*—body; *dīghala*—long; *tāra*—his; *hāta*—cubits (one cubit approximately equals a foot and a half); *pāṅca-sāta*—five to seven; *ekeka*—each and every; *hasta-pada*—arm and leg; *tāra*—of that; *tina*—three; *tina*—three; *hāta*—cubits.

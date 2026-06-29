@@ -1,9 +1,9 @@
 ### CC Madhya 19.182
 
-> যৈছে দধি, সিতা, ঘৃত, মরীচ, কর্পূর  ।
+> যৈছে দধি, সিতা, ঘৃত, মরীচ, কর্পূর  ।\
 > মিলনে ‘রসালা’ হয় অমৃত মধুর ॥১৮২॥
 
-> yaiche dadhi, sitā, ghṛta, marīca, karpūra
+> yaiche dadhi, sitā, ghṛta, marīca, karpūra\
 > milane,rasālā' haya amṛta madhura
 
 *yaiche*—tal como; *dadhi*—yogur; *sitā*—caramelo de azúcar; *ghṛta*—mantequilla clarificada; *marīca*—pimienta negra; *karpūra*—alcanfor; *milane*—al mezclarlos; *rasālā*—muy sabroso; *haya*—se vuelve; *amṛta*—nectáreo; *madhura*—y dulce.

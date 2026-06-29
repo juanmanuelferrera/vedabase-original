@@ -1,11 +1,11 @@
 ### CC Madhya 24.172
 
-> সাধনৌঘৈরনাসঙ্গৈরলভ্যা সুচিরাদপি ।
+> সাধনৌঘৈরনাসঙ্গৈরলভ্যা সুচিরাদপি ।\
 > হরিণা চাশ্বদেয়েতি দ্বিধা সা স্যাৎ সুদুর্লভা ॥১৭২॥
 
-> sādhanaughair anāsaṅgair
-> alabhyā sucirād api
-> hariṇā cāśv adeyeti
+> sādhanaughair anāsaṅgair\
+> alabhyā sucirād api\
+> hariṇā cāśv adeyeti\
 > dvidhā sā syāt sudurlabhā
 
 *sādhana*—actividades del servicio devocional; *aughaiḥ*—por masas de; *anāsaṅgaiḥ*—sin apego; *alabhyā*—muy difícil de alcanzar; *su-cirāt api*—incluso después de un período de tiempo considerable; *hariṇā*—por el Señor Supremo; *ca*—también; *āśu*—muy pronto; *adeyā*—que no ha de concederse; *iti*—así; *dvidhā*—de dos maneras; *sā*—esa; *syāt*—es; *su-durlabhā*—muy difícil de obtener.

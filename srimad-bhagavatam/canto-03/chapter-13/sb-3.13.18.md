@@ -1,11 +1,11 @@
 ### SB 3.13.18
 
-> इत्यभिध्यायतो नासा विवरात्सहसानघ ।
+> इत्यभिध्यायतो नासा विवरात्सहसानघ ।\
 > वराहतोको निरगादङ्गुष्ठपरिमाणकः ॥१८॥
 
-> ity abhidhyāyato nāsā-
-> vivarāt sahasānagha
-> varāha-toko niragād
+> ity abhidhyāyato nāsā-\
+> vivarāt sahasānagha\
+> varāha-toko niragād\
 > aṅguṣṭha-parimāṇakaḥ
 
 *iti*—thus; *abhidhyāyataḥ*—while thinking; *nāsā-vivarāt*—from the nostrils; *sahasā*—all of a sudden; *anagha*—O sinless one; *varāha-tokaḥ*—a minute form of Varāha (a boar); *niragāt*—came out; *aṅguṣṭha*—the upper portion of the thumb; *parimāṇakaḥ*—of the measurement.

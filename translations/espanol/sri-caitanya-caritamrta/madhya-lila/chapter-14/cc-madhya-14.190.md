@@ -1,9 +1,9 @@
 ### CC Madhya 14.190
 
-> কৃষ্ণ-আগে রাধা যদি রহে দাণ্ডাঞা ।
+> কৃষ্ণ-আগে রাধা যদি রহে দাণ্ডাঞা ।\
 > তিন-অঙ্গ-ভঙ্গে রহে ভ্রূ নাচাঞা ॥১৯০॥
 
-> kṛṣṇa-āge rādhā yadi rahe dāṇḍāñā
+> kṛṣṇa-āge rādhā yadi rahe dāṇḍāñā\
 > tina-aṅga-bhaṅge rahe bhrū nācāñā
 
 *kṛṣṇa-āge*—delante de Kṛṣṇa; *rādhā*—Śrīmatī Rādhārāṇī; *yadi*—si; *rahe*—permanece; *dāṇḍāñā*—de pie; *tina-aṅga-bhaṅge*—con tres curvaturas del cuerpo; *rahe*—permanece; *bhrū*—cejas; *nācāñā*—danzando.

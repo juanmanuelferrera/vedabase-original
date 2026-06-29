@@ -1,9 +1,9 @@
 ### CC Madhya 24.12
 
-> “আত্মা দেহমনোব্রহ্মস্বভাবধৃতিবুদ্ধিষু  ।
+> “আত্মা দেহমনোব্রহ্মস্বভাবধৃতিবুদ্ধিষু  ।\
 > প্রযত্নে চ” ইতি ॥১২॥
 
-> "ātmā deha-mano-brahma-svabhāva-dhṛti-buddhiṣu
+> "ātmā deha-mano-brahma-svabhāva-dhṛti-buddhiṣu\
 > prayatne ca" iti xxx
 
 *ātmā*—la palabra ātmā; *deha*—el cuerpo; *manaḥ*—la mente; *brahma*—la Verdad Absoluta; *sva-bhāva*—naturaleza; *dhṛti*—firmeza; *buddhiṣu*—en el sentido de inteligencia; *prayatne*—en el esfuerzo; *ca*—y; *iti*—así.

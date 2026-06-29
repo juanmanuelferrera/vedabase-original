@@ -1,11 +1,11 @@
 ### SB 7.5.47
 
-> अप्रमेयानुभावोऽयमकुतश्चिद्भयोऽमरः
+> अप्रमेयानुभावोऽयमकुतश्चिद्भयोऽमरः\
 > नूनमेतद्विरोधेन मृत्युर्मे भविता न वा ॥४७॥
 
-> aprameyānubhāvo 'yam
-> akutaścid-bhayo 'maraḥ
-> nūnam etad-virodhena
+> aprameyānubhāvo 'yam\
+> akutaścid-bhayo 'maraḥ\
+> nūnam etad-virodhena\
 > mṛtyur me bhavitā na vā
 
 *aprameya*—ilimitada; *anubhāvaḥ*—gloria; *ayam*—este; *akutaścit-bhayaḥ*—sin temor de nada; *amaraḥ*—inmortal; *nūnam*—definitivamente; *etat-virodhena*—por ir en contra de él; *mṛtyuḥ*—muerte; *me*—mía; *bhavitā*—puede que sea; *na*—no; *vā*—o.

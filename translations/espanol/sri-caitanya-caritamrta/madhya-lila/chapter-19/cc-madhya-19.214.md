@@ -1,9 +1,9 @@
 ### CC Madhya 19.214
 
-> কৃষ্ণ বিনা তৃষ্ণা-ত্যাগ — তার কার্য মানি ।
+> কৃষ্ণ বিনা তৃষ্ণা-ত্যাগ — তার কার্য মানি ।\
 > অতএব ‘শান্ত’ কৃষ্ণভক্ত এক জানি ॥২১৪॥
 
-> kṛṣṇa vinā tṛṣṇā-tyāga--tāra kārya māni
+> kṛṣṇa vinā tṛṣṇā-tyāga--tāra kārya māni\
 > ataeva 'śānta' kṛṣṇa-bhakta eka jāni
 
 *kṛṣṇa vinā*—sin Kṛṣṇa; *tṛṣṇā-tyāga*—abandonar todos los deseos; *tāra*—del *śānta-rasa*; *kārya*—el asunto; *māni*—acepto; *ataeva*—por lo tanto; *śānta*—la posición de equilibrio; *kṛṣṇa-bhakta*—un devoto de Kṛṣṇa; *eka*—solo; *jāni*—sé.

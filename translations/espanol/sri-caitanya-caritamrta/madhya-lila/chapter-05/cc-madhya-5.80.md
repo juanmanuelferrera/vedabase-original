@@ -1,9 +1,9 @@
 ### CC Madhya 5.80
 
-> পুত্রের মনে, — ‘প্রতিমা না আসিবে সাক্ষী দিতে ।’
+> পুত্রের মনে, — ‘প্রতিমা না আসিবে সাক্ষী দিতে ।’\
 > এই বুদ্ধ্যে দুইজন হইলা সম্মতে ॥৮০॥
 
-> putrera mane,--'pratimā nā āsibe sākṣī dite'
+> putrera mane,--'pratimā nā āsibe sākṣī dite'\
 > ei buddhye dui-jana ha-ilā sammate
 
 *putrera mane*—en la mente del hijo; *pratimā*—la Deidad; *nā*—no; *āsibe*—vendrá; *sākṣī dite*—a dar testimonio; *ei*—esta; *buddhye*—en la consideración; *dui-jana*—tanto el padre como el hijo; *ha-ilā sammate*—estuvieron de acuerdo.

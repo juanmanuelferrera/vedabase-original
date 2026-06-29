@@ -1,9 +1,9 @@
 ### CC Antya 6.223
 
-> বৈরাগী করিবে সদা নাম-সঙ্কীর্তন  ।
+> বৈরাগী করিবে সদা নাম-সঙ্কীর্তন  ।\
 > মাগিয়া খাঞা করে জীবন রক্ষণ ॥২২৩॥
 
-> vairāgī karibe sadā nāma-saṅkīrtana
+> vairāgī karibe sadā nāma-saṅkīrtana\
 > māgiyā khāñā kare jīvana rakṣaṇa
 
 *vairāgī*—una persona en la orden de renuncia; *karibe*—hará; *sadā*—siempre; *nāma-saṅkīrtana*—canto del santo nombre del Señor; *māgiyā*—pidiendo limosna; *khāñā*—comiendo; *kare jīvana rakṣaṇa*—sustenta su vida.

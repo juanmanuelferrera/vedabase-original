@@ -1,11 +1,11 @@
 ### Īśo 5
 
-> तदेजति तन्नैजति तद्दूरे तद्वन्तिके।
+> तदेजति तन्नैजति तद्दूरे तद्वन्तिके।\
 > तदन्तरस्य सर्वस्य तदु सर्वस्यास्य बाह्यतः॥५॥
 
-> tad ejati tan naijati
-> tad dūre tad v antike
-> tad antar asya sarvasya
+> tad ejati tan naijati\
+> tad dūre tad v antike\
+> tad antar asya sarvasya\
 > tad u sarvasyāsya bāhyataḥ
 
 *tat*—this Supreme Lord; *ejati*—walks; *tat*—He; *na*—not; *ejati*—walks; *tat*—He; *dūre*—far away; *tat*—He; *u*—also; *antike*—very near; *tat*—He; *antaḥ*—within; *asya*—of this; *sarvasya*—of all; *tat*—He; *u*—also; *sarvasya*—of all; *asya*—of this; *bāhyataḥ*—external to.

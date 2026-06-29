@@ -1,11 +1,11 @@
 ### SB 4.30.9
 
-> योऽनुस्मरति सन्ध्यायां युष्माननुदिनं नरः ।
+> योऽनुस्मरति सन्ध्यायां युष्माननुदिनं नरः ।\
 > तस्य भ्रातृष्वात्मसाम्यं तथा भूतेषु सौहृदम् ॥९॥
 
-> yo 'nusmarati sandhyāyāṁ
-> yuṣmān anudinaṁ naraḥ
-> tasya bhrātṛṣv ātma-sāmyaṁ
+> yo 'nusmarati sandhyāyāṁ\
+> yuṣmān anudinaṁ naraḥ\
+> tasya bhrātṛṣv ātma-sāmyaṁ\
 > tathā bhūteṣu sauhṛdam
 
 *yaḥ*—one who; *anusmarati*—always remembers; *sandhyāyām*—in the evening; *yuṣmān*—you; *anudinam*—every day; *naraḥ*—human being; *tasya bhrātṛṣu*—with his brothers; *ātma-sāmyam*—personal equality; *tathā*—as also; *bhūteṣu*—with all living beings; *sauhṛdam*—friendship.

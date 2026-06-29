@@ -1,9 +1,9 @@
 ### CC Madhya 16.176
 
-> এত বলি’ বিশ্বাসেরে কহিল বচন ।
+> এত বলি’ বিশ্বাসেরে কহিল বচন ।\
 > “ভাগ্য তাঁর — আসি’ করুক প্রভু দরশন ॥১৭৬॥
 
-> eta bali' viśvāsere kahila vacana
+> eta bali' viśvāsere kahila vacana\
 > "bhāgya tāṅra--āsi' karuka prabhu daraśana
 
 *eta bali'*—habiendo dicho esto; *viśvāsere*—al secretario del gobernador mahometano; *kahila vacana*—pronunció las siguientes palabras; *bhāgya*—gran fortuna; *tāṅra*—su; *āsi'*—viniendo; *karuka*—que haga; *prabhu daraśana*—visitar a Śrī Caitanya Mahāprabhu.

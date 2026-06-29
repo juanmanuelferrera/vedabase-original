@@ -1,9 +1,9 @@
 ### CC Adi 3.31
 
-> সেই সিংহ বসুক্ জীবের হৃদয়-কন্দরে ।
+> সেই সিংহ বসুক্ জীবের হৃদয়-কন্দরে ।\
 > কল্মষ-দ্বিরদ নাশে যাঁহার হুঙ্কারে ॥৩১॥
 
-> sei siṁha vasuk jīvera hṛdaya-kandare
+> sei siṁha vasuk jīvera hṛdaya-kandare\
 > kalmaṣa-dvirada nāśe yāṅhāra huṅkāre
 
 *sei*—that; *siṁha*—lion; *vasuk*—let Him sit; *jīvera*—of the living entities; *hṛdaya*—of the heart; *kandare*—in the cavern; *kalmaṣa*—of sins; *dvi-rada*—the elephant; *nāśe*—destroys; *yāṅhāra*—of whom; *huṅkāre*—the roar.

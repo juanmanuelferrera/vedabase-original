@@ -1,9 +1,9 @@
 ### CC Adi 5.69
 
-> পুনরপি শ্বাস যবে প্রবেশে অন্তরে ।
+> পুনরপি শ্বাস যবে প্রবেশে অন্তরে ।\
 > শ্বাস-সহ ব্রহ্মাণ্ড পৈশে পুরুষ-শরীরে ॥৬৯॥
 
-> punarapi śvāsa yabe praveśe antare
+> punarapi śvāsa yabe praveśe antare\
 > śvāsa-saha brahmāṇḍa paiśe puruṣa-śarīre
 
 *punarapi*—después; *śvāsa*—aliento; *yabe*—cuando; *praveśe*—entra; *antare*—adentro; *śvāsa-saha*—con el aliento inhalado; *brahmāṇḍa*—los universos; *paiśe*—entran; *puruṣa-śarīre*—dentro del cuerpo del Señor.

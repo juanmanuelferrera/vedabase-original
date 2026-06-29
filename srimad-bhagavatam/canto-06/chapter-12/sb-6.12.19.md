@@ -1,13 +1,13 @@
 ### SB 6.12.19
 
-> इन्द्र उवाच
-> अहो दानव सिद्धोऽसि यस्य ते मतिरीदृशी
+> इन्द्र उवाच\
+> अहो दानव सिद्धोऽसि यस्य ते मतिरीदृशी\
 > भक्तः सर्वात्मनात्मानं सुहृदं जगदीश्वरम ॥१९॥
 
-> indra uvāca
-> aho dānava siddho 'si
-> yasya te matir īdṛśī
-> bhaktaḥ sarvātmanātmānaṁ
+> indra uvāca\
+> aho dānava siddho 'si\
+> yasya te matir īdṛśī\
+> bhaktaḥ sarvātmanātmānaṁ\
 > suhṛdaṁ jagad-īśvaram
 
 *indraḥ uvāca*—Indra said; *aho*—hello; *dānava*—O demon; *siddhaḥ asi*—you are now perfect; *yasya*—whose; *te*—your; *matiḥ*—consciousness; *īdṛśī*—such as this; *bhaktaḥ*—a great devotee; *sarva-ātmanā*—without diversion; *ātmānam*—to the Supersoul; *suhṛdam*—the greatest friend; *jagat-īśvaram*—to the Supreme Personality of Godhead.

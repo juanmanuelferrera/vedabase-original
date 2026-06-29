@@ -1,9 +1,9 @@
 ### CC Madhya 25.170
 
-> আমি বোঝা বহিমু, তোমা-সবার দুঃখ হৈল ।
+> আমি বোঝা বহিমু, তোমা-সবার দুঃখ হৈল ।\
 > তোমা-সবার ইচ্ছায় বিনামূল্যে বিলাইল ॥১৭০॥
 
-> āmi bojhā vahimu, tomā-sabāra duḥkha haila
+> āmi bojhā vahimu, tomā-sabāra duḥkha haila\
 > tomā-sabāra icchāya vinā-mūlye bilāila
 
 *āmi*—I; *bojhā*—burden; *vahimu*—shall carry; *tomā-sabāra duḥkha haila*—all of you became very unhappy; *tomā-sabāra icchāya*—only by your will; *vinā-mūlye bilāila*—I distributed without a price.

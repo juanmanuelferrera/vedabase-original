@@ -1,11 +1,11 @@
 ### SB 1.17.42
 
-> वृषस्य नष्टांस्त्रीन्पादान्तपः शौचं दयामिति ।
+> वृषस्य नष्टांस्त्रीन्पादान्तपः शौचं दयामिति ।\
 > प्रतिसन्दध आश्वास्य महीं च समवर्धयत् ॥४२॥
 
-> vṛṣasya naṣṭāṁs trīn pādān
-> tapaḥ śaucaṁ dayām iti
-> pratisandadha āśvāsya
+> vṛṣasya naṣṭāṁs trīn pādān\
+> tapaḥ śaucaṁ dayām iti\
+> pratisandadha āśvāsya\
 > mahīṁ ca samavardhayat
 
 *vṛṣasya*—of the bull (the personality of religion); *naṣṭān*—lost; *trīn*—three; *pādān*—legs; *tapaḥ*—austerity; *śaucam*—cleanliness; *dayām*—mercy; *iti*—thus; *pratisandadhe*—reestablished; *āśvāsya*—by encouraging activities; *mahīm*—the earth; *ca*—and; *samavardhayat*—perfectly improved.

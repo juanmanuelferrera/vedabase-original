@@ -1,11 +1,11 @@
 ### SB 3.26.20
 
-> विश्वमात्मगतं व्यञ्जन्कूटस्थो जगदङ्कुरः ।
+> विश्वमात्मगतं व्यञ्जन्कूटस्थो जगदङ्कुरः ।\
 > स्वतेजसापिबत्तीव्रमात्मप्रस्वापनं तमः ॥२०॥
 
-> viśvam ātma-gataṁ vyañjan
-> kūṭa-stho jagad-aṅkuraḥ
-> sva-tejasāpibat tīvram
+> viśvam ātma-gataṁ vyañjan\
+> kūṭa-stho jagad-aṅkuraḥ\
+> sva-tejasāpibat tīvram\
 > ātma-prasvāpanaṁ tamaḥ
 
 *viśvam*—el universo; *ātma-gatam*—contenido en su interior; *vyañjan*—manifestando; *kūṭa-sthaḥ*—inmutable; *jagat-aṅkuraḥ*—la raíz de todas las manifestaciones cósmicas; *sva-tejasā*—por su propia refulgencia; *apibat*—absorbió; *tīvram*—densa; *ātma-prasvāpanam*—que había cubierto al *mahat-tattva*; *tamaḥ*—oscuridad.

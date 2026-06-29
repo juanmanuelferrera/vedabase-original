@@ -1,13 +1,13 @@
 ### SB 2.7.30
 
-> गृह्णीत यद्यदुपबन्धममुष्य माता
-> शुल्बं सुतस्य न तु तत्तदमुष्य माति ।
-> यज्जृम्भतोऽस्य वदने भुवनानि गोपी
+> गृह्णीत यद्यदुपबन्धममुष्य माता\
+> शुल्बं सुतस्य न तु तत्तदमुष्य माति ।\
+> यज्जृम्भतोऽस्य वदने भुवनानि गोपी\
 > संवीक्ष्य शङ्कितमनाः प्रतिबोधितासीत् ॥३०॥
 
-> gṛhṇīta yad yad upabandham amuṣya mātā
-> śulbaṁ sutasya na tu tat tad amuṣya māti
-> yaj jṛmbhato 'sya vadane bhuvanāni gopī
+> gṛhṇīta yad yad upabandham amuṣya mātā\
+> śulbaṁ sutasya na tu tat tad amuṣya māti\
+> yaj jṛmbhato 'sya vadane bhuvanāni gopī\
 > saṁvīkṣya śaṅkita-manāḥ pratibodhitāsīt
 
 *gṛhṇīta*—al recoger; *yat yat*—toda la que; *upabandham*—sogas para atar; *amuṣya*—Su; *mātā*—madre; *śulbam*—sogas; *sutasya*—del hijo de ella; *na*—o; *tu*—sin embargo; *tat tat*—poco tiempo después; *amuṣya*—Su; *māti*—era suficiente; *yat*—aquello que; *jṛmbhataḥ*—abriendo la boca; *asya*—de Él; *vadane*—en la boca; *bhuvanāni*—los mundos; *gopī*—la pastora de vacas; *saṁvīkṣya*—viéndolo así; *śaṅkita-manāḥ*—dudas en la mente; *pratibodhitā*—convencida de una manera diferente; *āsīt*—se hizo así.

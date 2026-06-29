@@ -1,11 +1,11 @@
 ### SB 3.24.15
 
-> अतस्त्वमृषिमुख्येभ्यो यथाशीलं यथारुचि ।
+> अतस्त्वमृषिमुख्येभ्यो यथाशीलं यथारुचि ।\
 > आत्मजाः परिदेह्यद्य विस्तृणीहि यशो भुवि ॥१५॥
 
-> atas tvam ṛṣi-mukhyebhyo
-> yathā-śīlaṁ yathā-ruci
-> ātmajāḥ paridehy adya
+> atas tvam ṛṣi-mukhyebhyo\
+> yathā-śīlaṁ yathā-ruci\
+> ātmajāḥ paridehy adya\
 > vistṛṇīhi yaśo bhuvi
 
 *ataḥ*—así pues; *tvam*—tú; *ṛṣi-mukhyebhyaḥ*—a los sabios más eminentes; *yathā-śīlam*—según el temperamento; *yathā-ruci*—según el gusto; *ātma-jāḥ*—tus hijas; *paridehi*—entrega, por favor; *adya*—hoy; *vistṛṇīhi*—difunde; *yaśaḥ*—fama; *bhuvi*—por el universo.

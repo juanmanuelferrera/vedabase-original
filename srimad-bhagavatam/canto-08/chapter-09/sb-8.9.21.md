@@ -1,11 +1,11 @@
 ### SB 8.9.21
 
-> दैत्यान्गृहीतकलसो वञ्चयन्नुपसञ्चरैः
+> दैत्यान्गृहीतकलसो वञ्चयन्नुपसञ्चरैः\
 > दूरस्थान्पाययामासजरामृत्युहरां सुधाम ॥२१॥
 
-> daityān gṛhīta-kalaso
-> vañcayann upasañcaraiḥ
-> dūra-sthān pāyayām āsa
+> daityān gṛhīta-kalaso\
+> vañcayann upasañcaraiḥ\
+> dūra-sthān pāyayām āsa\
 > jarā-mṛtyu-harāṁ sudhām
 
 *daityān*—the demons; *gṛhīta-kalasaḥ*—the Lord, who bore the container of nectar; *vañcayan*—by cheating; *upasañcaraiḥ*—with sweet words; *dūra-sthān*—the demigods, who were sitting at a distant place; *pāyayām āsa*—made them drink; *jarā-mṛtyu-harām*—which can counteract invalidity, old age and death; *sudhām*—such nectar.

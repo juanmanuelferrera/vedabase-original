@@ -1,11 +1,11 @@
 ### CC Madhya 22.81
 
-> তিতিক্ষবঃ কারুণিকাঃ সুহৃদঃ সর্বদেহিনাম্ ।
+> তিতিক্ষবঃ কারুণিকাঃ সুহৃদঃ সর্বদেহিনাম্ ।\
 > অজাতশত্রবঃ শান্তাঃ সাধবঃ সাধুভূষণাঃ ॥৮১॥
 
-> titikṣavaḥ kāruṇikāḥ
-> suhṛdaḥ sarva-dehinām
-> ajāta-śatravaḥ śāntāḥ
+> titikṣavaḥ kāruṇikāḥ\
+> suhṛdaḥ sarva-dehinām\
+> ajāta-śatravaḥ śāntāḥ\
 > sādhavaḥ sādhu-bhūṣaṇāḥ
 
 *titikṣavaḥ*—muy tolerantes; *kāruṇikāḥ*—misericordiosos; *suhṛdaḥ*—que son bienhechores; *sarva-dehinām*—de todas las entidades vivientes; *ajāta-śatravaḥ*—sin enemigos; *śāntāḥ*—pacíficos; *sādhavaḥ*—que siguen los mandatos de los *śāstras*; *sādhu-bhūṣaṇāḥ*—adornados con buen carácter.

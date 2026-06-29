@@ -1,11 +1,11 @@
 ### SB 1.8.28
 
-> मन्ये त्वां कालमीशानमनादिनिधनं विभुम् ।
+> मन्ये त्वां कालमीशानमनादिनिधनं विभुम् ।\
 > समं चरन्तं सर्वत्र भूतानां यन्मिथः कलिः ॥२८॥
 
-> manye tvāṁ kālam īśānam
-> anādi-nidhanaṁ vibhum
-> samaṁ carantaṁ sarvatra
+> manye tvāṁ kālam īśānam\
+> anādi-nidhanaṁ vibhum\
+> samaṁ carantaṁ sarvatra\
 > bhūtānāṁ yan mithaḥ kaliḥ
 
 *manye*—I consider; *tvām*—Your Lordship; *kālam*—the eternal time; *īśānam*—the Supreme Lord; *anādi-nidhanam*—without beginning and end; *vibhum*—all-pervading; *samam*—equally merciful; *carantam*—distributing; *sarvatra*—everywhere; *bhūtānām*—of the living beings; *yat mithaḥ*—by intercourse; *kaliḥ*—dissension.

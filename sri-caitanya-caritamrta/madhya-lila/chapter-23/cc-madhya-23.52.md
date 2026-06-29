@@ -1,9 +1,9 @@
 ### CC Madhya 23.52
 
-> নির্বেদ-হর্ষাদি — তেত্রিশ ‘ব্যভিচারী’ ।
+> নির্বেদ-হর্ষাদি — তেত্রিশ ‘ব্যভিচারী’ ।\
 > সব মিলি’ ‘রস’ হয় চমৎকারকারী ॥৫২॥
 
-> nirveda-harṣādi—tetriśa 'vyabhicārī'
+> nirveda-harṣādi—tetriśa 'vyabhicārī'\
 > saba mili' 'rasa' haya camatkārakārī
 
 *nirveda-harṣa-ādi*—complete despondency, jubilation and so on; *tetriśa*—thirty-three; *vyabhicārī*—transitory elements; *saba mili'*—all meeting together; *rasa*—the mellows; *haya*—becomes; *camatkārakārī*—a cause of wonder.

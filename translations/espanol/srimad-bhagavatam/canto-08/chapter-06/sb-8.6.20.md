@@ -1,11 +1,11 @@
 ### SB 8.6.20
 
-> अरयोऽपि हि सन्धेयाः सति कार्यार्थगौरवे
+> अरयोऽपि हि सन्धेयाः सति कार्यार्थगौरवे\
 > अहिमूषिकवद्देवा ह्यर्थस्य पदवीं गतैः ॥२०॥
 
-> arayo 'pi hi sandheyāḥ
-> sati kāryārtha-gaurave
-> ahi-mūṣikavad devā
+> arayo 'pi hi sandheyāḥ\
+> sati kāryārtha-gaurave\
+> ahi-mūṣikavad devā\
 > hy arthasya padavīṁ gataiḥ
 
 *arayaḥ*—enemigos; *api*—aunque; *hi*—en verdad; *sandheyāḥ*—aptos para una tregua; *sati*—siendo así; *kārya-artha-gaurave*—en lo que se refiere a un deber importante; *ahi*—la serpiente; *mūṣika*—el ratón; *vat*—como; *devāḥ*—¡oh, semidioses!; *hi*—en verdad; *arthasya*—de intereses; *padavīm*—posición; *gataiḥ*—siendo así.

@@ -1,11 +1,11 @@
 ### SB 3.22.24
 
-> प्रत्तां दुहितरं सम्राट्सदृक्षाय गतव्यथः ।
+> प्रत्तां दुहितरं सम्राट्सदृक्षाय गतव्यथः ।\
 > उपगुह्य च बाहुभ्यामौत्कण्ठ्योन्मथिताशयः ॥२४॥
 
-> prattāṁ duhitaraṁ samrāṭ
-> sadṛkṣāya gata-vyathaḥ
-> upaguhya ca bāhubhyām
+> prattāṁ duhitaraṁ samrāṭ\
+> sadṛkṣāya gata-vyathaḥ\
+> upaguhya ca bāhubhyām\
 > autkaṇṭhyonmathitāśayaḥ
 
 *prattām*—que fue dada; *duhitaram*—hija; *samrāṭ*—el emperador (Manu); *sadṛkṣāya*—a una persona apropiada; *gata-vyathaḥ*—liberado de su responsabilidad; *upaguhya*—abrazando; *ca*—y; *bāhubhyām*—con los dos brazos; *autkaṇṭhya-unmathita-āśayaḥ*—teniendo una mente agitada y llena de ansiedad.

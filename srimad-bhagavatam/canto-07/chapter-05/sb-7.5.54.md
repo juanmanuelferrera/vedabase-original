@@ -1,11 +1,11 @@
 ### SB 7.5.54
 
-> यदाचार्यः परावृत्तो गृहमेधीयकर्मसु
+> यदाचार्यः परावृत्तो गृहमेधीयकर्मसु\
 > वयस्यैर्बालकैस्तत्र सोपहूतः कृतक्षणैः ॥५४॥
 
-> yadācāryaḥ parāvṛtto
-> gṛhamedhīya-karmasu
-> vayasyair bālakais tatra
+> yadācāryaḥ parāvṛtto\
+> gṛhamedhīya-karmasu\
+> vayasyair bālakais tatra\
 > sopahūtaḥ kṛta-kṣaṇaiḥ
 
 *yadā*—when; *ācāryaḥ*—the teachers; *parāvṛttaḥ*—became engaged; *gṛha-medhīya*—of household life; *karmasu*—in duties; *vayasyaiḥ*—by his friends of the same age; *bālakaiḥ*—boys; *tatra*—there; *saḥ*—he (Prahlāda Mahārāja); *apahūtaḥ*—called; *kṛta-kṣaṇaiḥ*—obtaining an opportune moment.

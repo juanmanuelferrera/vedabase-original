@@ -1,9 +1,9 @@
 ### CC Antya 15.8
 
-> একবারে স্ফুরে প্রভুর কৃষ্ণের পঞ্চগুণ ।
+> একবারে স্ফুরে প্রভুর কৃষ্ণের পঞ্চগুণ ।\
 > পঞ্চগুণে করে পঞ্চেন্দ্রিয় আকর্ষণ ॥৮॥
 
-> eka-bāre sphure prabhura kṛṣṇera pañca-guṇa
+> eka-bāre sphure prabhura kṛṣṇera pañca-guṇa\
 > pañca-guṇe kare pañcendriya ākarṣaṇa
 
 *eka-bāre*—de una vez; *sphure*—se manifiestan; *prabhura*—de Śrī Caitanya Mahāprabhu; *kṛṣṇera*—del Señor Kṛṣṇa; *pañca-guṇa*—cinco atributos; *pañca-guṇe*—cinco atributos; *kare*—producen; *pañca-indriya*—de los cinco sentidos; *ākarṣaṇa*—la atracción.

@@ -1,11 +1,11 @@
 ### SB 7.2.51
 
-> कुलिङ्गमिथुनं तत्र विचरत्समदृश्यत
+> कुलिङ्गमिथुनं तत्र विचरत्समदृश्यत\
 > तयोः कुलिङ्गी सहसा लुब्धकेन प्रलोभिता ॥५१॥
 
-> kuliṅga-mithunaṁ tatra
-> vicarat samadṛśyata
-> tayoḥ kuliṅgī sahasā
+> kuliṅga-mithunaṁ tatra\
+> vicarat samadṛśyata\
+> tayoḥ kuliṅgī sahasā\
 > lubdhakena pralobhitā
 
 *kuliṅga-mithunam*—a pair of (male and female) birds known as *kuliṅga*; *tatra*—there (where the hunter was hunting); *vicarat*—wandering; *samadṛśyata*—he saw; *tayoḥ*—of the pair; *kuliṅgī*—the female bird; *sahasā*—suddenly; *lubdhakena*—by the hunter; *pralobhitā*—allured.

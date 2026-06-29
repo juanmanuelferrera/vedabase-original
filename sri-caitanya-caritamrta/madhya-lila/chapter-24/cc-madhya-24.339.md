@@ -1,9 +1,9 @@
 ### CC Madhya 24.339
 
-> সাধুলক্ষণ, সাধুসঙ্গ, সাধুসেবন ।
+> সাধুলক্ষণ, সাধুসঙ্গ, সাধুসেবন ।\
 > অসৎসঙ্গ-ত্যাগ, শ্রীভাগবত-শ্রবণ ॥৩৩৯॥
 
-> sādhu-lakṣaṇa, sādhu-saṅga, sādhu-sevana
+> sādhu-lakṣaṇa, sādhu-saṅga, sādhu-sevana\
 > asatsaṅga-tyāga, śrī-bhāgavata-śravaṇa
 
 *sādhu-lakṣaṇa*—the symptoms of a devotee; *sādhu-saṅga*—association with devotees; *sādhu-sevana*—offering service to devotees; *asat-saṅga-tyāga*—giving up the company of nondevotees; *śrī-bhāgavata-śravaṇa*—regularly hearing the recitation of *Śrīmad-Bhāgavatam.*

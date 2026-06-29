@@ -1,11 +1,11 @@
 ### SB 1.7.39
 
-> तदसौ वध्यतां पाप आतताय्यात्मबन्धुहा ।
+> तदसौ वध्यतां पाप आतताय्यात्मबन्धुहा ।\
 > भर्तुश्च विप्रियं वीर कृतवान्कुलपांसनः ॥३९॥
 
-> tad asau vadhyatāṁ pāpa
-> ātatāyy ātma-bandhu-hā
-> bhartuś ca vipriyaṁ vīra
+> tad asau vadhyatāṁ pāpa\
+> ātatāyy ātma-bandhu-hā\
+> bhartuś ca vipriyaṁ vīra\
 > kṛtavān kula-pāṁsanaḥ
 
 *tat*—por lo tanto; *asau*—este hombre; *vadhyatām*—será matado; *pāpaḥ*—el pecador; *ātatāyī*—asaltante; *ātma*—propio; *bandhu-hā*—asesino de hijos; *bhartuḥ*—del amo; *ca*—también; *vipriyam*—no habiendo satisfecho; *vīra*—¡oh, guerrero!; *kṛtavān*—aquel que lo ha hecho; *kula-pāṁsanaḥ*—los quemados residuos de su familia.

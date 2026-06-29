@@ -1,9 +1,9 @@
 ### CC Madhya 15.11
 
-> “যোঽসি সোঽসি নমোঽস্তু তে” এই মন্ত্র পড়ে ।
+> “যোঽসি সোঽসি নমোঽস্তু তে” এই মন্ত্র পড়ে ।\
 > মুখবাদ্য করি’ প্রভু হাসায় আচার্যেরে ॥১১॥
 
-> "yo 'si so 'si namo 'stu te" ei mantra paḍe
+> "yo 'si so 'si namo 'stu te" ei mantra paḍe\
 > mukha-vādya kari' prabhu hāsāya ācāryere
 
 *yaḥ asi*—whatever You are; *saḥ asi*—so You are; *namaḥ astu te*—I offer My respects unto You; *ei mantra paḍe*—chants this *mantra*; *mukha-vādya kari'*—making a sound within the mouth; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *hāsāya*—causes to laugh; *ācāryere*—Advaita Ācārya.

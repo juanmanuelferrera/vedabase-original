@@ -1,11 +1,11 @@
 ### Bg 7.25
 
-> नाहं प्रकाशः सर्वस्य योगमायासमावृतः ।
+> नाहं प्रकाशः सर्वस्य योगमायासमावृतः ।\
 > मूढोऽयं नाभिजानाति लोको मामजमव्ययम् ॥२५॥
 
-> nāhaṁ prakāśaḥ sarvasya
-> yoga-māyā-samāvṛtaḥ
-> mūḍho 'yaṁ nābhijānāti
+> nāhaṁ prakāśaḥ sarvasya\
+> yoga-māyā-samāvṛtaḥ\
+> mūḍho 'yaṁ nābhijānāti\
 > loko mām ajam avyayam
 
 *na*—nor; *aham*—I; *prakāśaḥ*—manifest; *sarvasya*—to everyone; *yoga-māyā*—internal potency; *samāvṛtaḥ*—covered; *mūḍhaḥ*—foolish; *ayam*—this; *na*—not; *abhijānāti*—can understand; *lokaḥ*—such less intelligent persons; *mām*—Me; *ajam*—unborn; *avyayam*—inexhaustible.

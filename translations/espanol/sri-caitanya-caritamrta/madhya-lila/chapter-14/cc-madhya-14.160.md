@@ -1,9 +1,9 @@
 ### CC Madhya 14.160
 
-> গোপীগণ-মধ্যে শ্রেষ্ঠা রাধা-ঠাকুরাণী ৷
+> গোপীগণ-মধ্যে শ্রেষ্ঠা রাধা-ঠাকুরাণী ৷\
 > নির্মল-উজ্জ্বল-রস-প্রেম-রত্নখনি ॥১৬০॥
 
-> gopī-gaṇa-madhye śreṣṭhā rādhā-ṭhākurāṇī
+> gopī-gaṇa-madhye śreṣṭhā rādhā-ṭhākurāṇī\
 > nirmala-ujjvala-rasa-prema-ratna-khani
 
 *gopī-gaṇa-madhye*—de todas las gopīs; *śreṣṭhā*—la principal; *rādhā-ṭhākurāṇī*—Śrīmatī Rādhārāṇī; *nirmala*—purificada; *ujjvala*—brillante; *rasa*—en melosidades; *prema*—de amor extático; *ratna-khani*—la mina de joyas.

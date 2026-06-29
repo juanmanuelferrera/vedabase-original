@@ -1,9 +1,9 @@
 ### CC Madhya 12.189
 
-> অদ্বৈত কহে, — অবধূতের সঙ্গে এক পংক্তি  ।
+> অদ্বৈত কহে, — অবধূতের সঙ্গে এক পংক্তি  ।\
 > ভোজন করিলুঁ, না জানি হবে কোন্ গতি ॥১৮৯॥
 
-> advaita kahe,-avadhūtera saṅge eka paṅkti
+> advaita kahe,-avadhūtera saṅge eka paṅkti\
 > bhojana kariluṅ, nā jāni habe kon gati
 
 *advaita kahe*—Advaita Ācārya dijo; *avadhūtera saṅge*—con un mendicante; *eka paṅkti*—en una fila; *bhojana kariluṅ*—estoy tomando Mi alimento; *nā jāni*—no sé; *habe*—será; *kon*—cuál; *gati*—destino.

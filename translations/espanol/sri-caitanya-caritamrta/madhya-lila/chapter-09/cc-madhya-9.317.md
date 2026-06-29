@@ -1,9 +1,9 @@
 ### CC Madhya 9.317
 
-> নাসিকে ত্র্যম্বক দেখি’ গেলা ব্রহ্মগিরি ৷
+> নাসিকে ত্র্যম্বক দেখি’ গেলা ব্রহ্মগিরি ৷\
 > কুশাবর্তে আইলা যাহাঁ জন্মিলা গোদাবরী ৷৷ ৩১৭ ৷৷ ॥৩১৭॥
 
-> nāsike tryambaka dekhi' gelā brahmagiri
+> nāsike tryambaka dekhi' gelā brahmagiri\
 > kuśāvarte āilā yāhāṅ janmilā godāvarī
 
 *nāsike*—en el lugar santo de Nāsika; *tryambaka*—una deidad del Señor Śiva; *dekhi'*—tras ver; *gelā*—fue; *brahmagiri*—al lugar conocido como Brahmagiri; *kuśāvarte āilā*—después acudió al lugar santo conocido como Kuśāvarta; *yāhāṅ*—donde; *janmilā*—nació; *godāvarī*—el río Godāvarī.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.245
 
-> রাত্রে তেঁহো স্বপ্ন দেখে, — প্রভু আইলা ঘরে ।
+> রাত্রে তেঁহো স্বপ্ন দেখে, — প্রভু আইলা ঘরে ।\
 > প্রাতঃকালে আসি’ রহে গ্রামের বাহিরে ॥২৪৫॥
 
-> rātre teṅho svapna dekhe,--prabhu āilā ghare
+> rātre teṅho svapna dekhe,--prabhu āilā ghare\
 > prātaḥ-kāle āsi' rahe grāmera bāhire
 
 *rātre*—por la noche; *teṅho*—él (Candraśekhara); *svapna*—un sueño; *dekhe*—vio; *prabhu*—Śrī Caitanya Mahāprabhu; *āilā*—ha venido; *ghare*—a su hogar; *prātaḥ-kāle*—por la mañana; *āsi'*—viniendo; *rahe*—permaneció; *grāmera bāhire*—fuera de la ciudad.

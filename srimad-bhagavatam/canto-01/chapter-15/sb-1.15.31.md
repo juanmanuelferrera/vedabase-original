@@ -1,11 +1,11 @@
 ### SB 1.15.31
 
-> विशोको ब्रह्मसम्पत्त्या सञ्छिन्नद्वैतसंशयः ।
+> विशोको ब्रह्मसम्पत्त्या सञ्छिन्नद्वैतसंशयः ।\
 > लीनप्रकृतिनैर्गुण्यादलिङ्गत्वादसम्भवः ॥३१॥
 
-> viśoko brahma-sampattyā
-> sañchinna-dvaita-saṁśayaḥ
-> līna-prakṛti-nairguṇyād
+> viśoko brahma-sampattyā\
+> sañchinna-dvaita-saṁśayaḥ\
+> līna-prakṛti-nairguṇyād\
 > aliṅgatvād asambhavaḥ
 
 *viśokaḥ*—free from bereavement; *brahma-sampattyā*—by possession of spiritual assets; *sañchinna*—being completely cut off; *dvaita-saṁśayaḥ*—from the doubts of relativity; *līna*—merged in; *prakṛti*—material nature; *nairguṇyāt*—due to being in transcendence; *aliṅgatvāt*—because of being devoid of a material body; *asambhavaḥ*—free from birth and death.

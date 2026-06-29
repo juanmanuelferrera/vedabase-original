@@ -1,9 +1,9 @@
 ### CC Adi 17.250
 
-> শুনি’ প্রভু ক্রোধে কৈল কৃষ্ণে দোষোদ্গার ।
+> শুনি’ প্রভু ক্রোধে কৈল কৃষ্ণে দোষোদ্গার ।\
 > ঠেঙ্গা লঞা উঠিলা প্রভু পড়ুয়া মারিবার ॥২৫০॥
 
-> śuni' prabhu krodhe kaila kṛṣṇe doṣodgāra
+> śuni' prabhu krodhe kaila kṛṣṇe doṣodgāra\
 > ṭheṅgā lañā uṭhilā prabhu paḍuyā māribāra
 
 *śuni'*—hearing; *prabhu*—the Lord; *krodhe*—in anger; *kaila*—did; *kṛṣṇe*—unto Lord Kṛṣṇa; *doṣa-udgāra*—many accusations; *ṭheṅgā*—stick; *lañā*—taking; *uṭhilā*—got up; *prabhu*—the Lord; *paḍuyā*—the student; *māribāra*—to strike.

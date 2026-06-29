@@ -1,11 +1,11 @@
 ### SB 6.15.16
 
-> तस्माद्युवां ग्राम्यपशोर्मम मूढधियः प्रभू
+> तस्माद्युवां ग्राम्यपशोर्मम मूढधियः प्रभू\
 > अन्धे तमसि मग्नस्य ज्ञआनदीप उदीर्यताम ॥१६॥
 
-> tasmād yuvāṁ grāmya-paśor
-> mama mūḍha-dhiyaḥ prabhū
-> andhe tamasi magnasya
+> tasmād yuvāṁ grāmya-paśor\
+> mama mūḍha-dhiyaḥ prabhū\
+> andhe tamasi magnasya\
 > jñāna-dīpa udīryatām
 
 *tasmāt*—therefore; *yuvām*—both of you; *grāmya-paśoḥ*—of an animal like a hog, pig or dog; *mama*—me; *mūḍha-dhiyaḥ*—who am very foolish (due to having no spiritual knowledge); *prabhū*—O my two lords; *andhe*—in blind; *tamasi*—darkness; *magnasya*—of one who is absorbed; *jñāna-dīpaḥ*—the torchlight of knowledge; *udīryatām*—let it be ignited.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.147
 
-> ব্রহ্ম-শব্দে কহে পূর্ণ স্বয়ং ভগবান্ ।
+> ব্রহ্ম-শব্দে কহে পূর্ণ স্বয়ং ভগবান্ ।\
 > স্বয়ং ভগবান্ কৃষ্ণ, — শাস্ত্রের প্রমাণ ॥১৪৭॥
 
-> brahma-śabde kahe pūrṇa svayaṁ bhagavān
+> brahma-śabde kahe pūrṇa svayaṁ bhagavān\
 > svayaṁ bhagavān kṛṣṇa,—śāstrera pramāṇa
 
 *brahma-śabde*—by the word "Brahman"; *kahe*—it is said; *pūrṇa*—complete; *svayam*—personally; *bhagavān*—the Supreme Personality of Godhead; *svayam*—personally; *bhagavān*—the Supreme Personality of Godhead; *kṛṣṇa*—Lord Kṛṣṇa; *śāstrera pramāṇa*—the verdict of all Vedic literature.

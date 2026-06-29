@@ -1,9 +1,9 @@
 ### CC Madhya 18.63
 
-> সব দিন প্রেমাবেশে নৃত্য-গীত কৈলা ।
+> সব দিন প্রেমাবেশে নৃত্য-গীত কৈলা ।\
 > তাহাঁ হৈতে মহাপ্রভু ‘খদির-বন’ আইলা ॥৬৩॥
 
-> saba dina premāveśe nṛtya-gīta kailā
+> saba dina premāveśe nṛtya-gīta kailā\
 > tāhāṅ haite mahāprabhu 'khadira-vana, āilā
 
 *saba dina*—todos los días; *prema-āveśe*—en amor extático; *nṛtya-gīta kailā*—danzó y cantó; *tāhāṅ haite*—desde allí; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *khadira-vana āilā*—fue al lugar conocido como Khadiravana.

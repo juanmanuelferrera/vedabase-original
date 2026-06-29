@@ -1,9 +1,9 @@
 ### CC Madhya 4.144
 
-> প্রেমাবেশে উঠে, পড়ে, হাসে, নাচে, গায় ।
+> প্রেমাবেশে উঠে, পড়ে, হাসে, নাচে, গায় ।\
 > জগন্নাথ-দরশনে মহাসুখ পায় ॥১৪৪॥
 
-> premāveśe uṭhe, paḍe, hāse, nāce, gāya
+> premāveśe uṭhe, paḍe, hāse, nāce, gāya\
 > jagannātha-daraśane mahā-sukha pāya
 
 *prema-āveśe*—en éxtasis amoroso; *uṭhe*—a veces se levanta; *paḍe*—a veces cae al suelo; *hāse*—ríe; *nāce*—danza; *gāya*—canta; *jagannātha daraśane*—al ver al Señor Jagannātha en el templo; *mahā-sukha*—felicidad trascendental; *pāya*—sintió.

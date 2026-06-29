@@ -1,13 +1,13 @@
 ### SB 7.15.45
 
-> यावन्नृकायरथमात्मवशोपकल्पं
-> धत्ते गरिष्ठचरणार्चनया निशातम
-> ज्ञआनासिमच्युतबलो दधदस्तशत्रुः
+> यावन्नृकायरथमात्मवशोपकल्पं\
+> धत्ते गरिष्ठचरणार्चनया निशातम\
+> ज्ञआनासिमच्युतबलो दधदस्तशत्रुः\
 > स्वानन्दतुष्ट उपशान्त इदं विजह्यात ॥४५॥
 
-> yāvan nṛ-kāya-ratham ātma-vaśopakalpaṁ
-> dhatte gariṣṭha-caraṇārcanayā niśātam
-> jñānāsim acyuta-balo dadhad asta-śatruḥ
+> yāvan nṛ-kāya-ratham ātma-vaśopakalpaṁ\
+> dhatte gariṣṭha-caraṇārcanayā niśātam\
+> jñānāsim acyuta-balo dadhad asta-śatruḥ\
 > svānanda-tuṣṭa upaśānta idaṁ vijahyāt
 
 *yāvat*—as long as; *nṛ-kāya*—this human form of body; *ratham*—considered to be a chariot; *ātma-vaśa*—dependent upon one's own control; *upakalpam*—in which there are many other subordinate parts; *dhatte*—one possesses; *gariṣṭha-caraṇa*—the lotus feet of the superiors (namely the spiritual master and his predecessors); *arcanayā*—by serving; *niśātam*—sharpened; *jñāna-asim*—the sword or weapon of knowledge; *acyuta-balaḥ*—by the transcendental strength of Kṛṣṇa; *dadhat*—holding; *asta-śatruḥ*—until the enemy is defeated; *sva-ānanda-tuṣṭaḥ*—being fully self-satisfied by transcendental bliss; *upaśāntaḥ*—the consciousness being cleansed of all material contamination; *idam*—this body; *vijahyāt*—one should give up.

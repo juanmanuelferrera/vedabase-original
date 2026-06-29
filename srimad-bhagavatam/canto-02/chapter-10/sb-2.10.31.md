@@ -1,11 +1,11 @@
 ### SB 2.10.31
 
-> त्वक्चर्ममांसरुधिर मेदोमज्जास्थिधातवः ।
+> त्वक्चर्ममांसरुधिर मेदोमज्जास्थिधातवः ।\
 > भूम्यप्तेजोमयाः सप्त प्राणो व्योमाम्बुवायुभिः ॥३१॥
 
-> tvak-carma-māṁsa-rudhira-
-> medo-majjāsthi-dhātavaḥ
-> bhūmy-ap-tejomayāḥ sapta
+> tvak-carma-māṁsa-rudhira-\
+> medo-majjāsthi-dhātavaḥ\
+> bhūmy-ap-tejomayāḥ sapta\
 > prāṇo vyomāmbu-vāyubhiḥ
 
 *tvak*—the thin layer on the skin; *carma*—skin; *māṁsa*—flesh; *rudhira*—blood; *medaḥ*—fat; *majjā*—marrow; *asthi*—bone; *dhātavaḥ*—elements; *bhūmi*—earth; *ap*—water; *tejaḥ*—fire; *mayāḥ*—predominating; *sapta*—seven; *prāṇaḥ*—breathing air; *vyoma*—sky; *ambu*—water; *vāyubhiḥ*—by the air.

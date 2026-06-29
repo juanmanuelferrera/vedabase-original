@@ -1,9 +1,9 @@
 ### CC Antya 6.309
 
-> অনন্ত গুণ রঘুনাথের কে করিবে লেখা ?
+> অনন্ত গুণ রঘুনাথের কে করিবে লেখা ?\
 > রঘুনাথের নিয়ম, — যেন পাষাণের রেখা ॥৩০৯॥
 
-> ananta guṇa raghunāthera ke karibe lekhā?
+> ananta guṇa raghunāthera ke karibe lekhā?\
 > raghunāthera niyama,--yena pāṣāṇera rekhā
 
 *ananta guṇa*—atributos trascendentales ilimitados; *raghunāthera*—de Raghunātha dāsa; *ke*—quién; *karibe lekhā*—puede enumerar; *raghunāthera*—de Raghunātha dāsa; *niyama*—los estrictos principios regulativos; *yena*—como; *pāṣāṇera rekhā*—líneas en una piedra.

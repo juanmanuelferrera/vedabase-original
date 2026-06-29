@@ -1,11 +1,11 @@
 ### SB 9.6.8
 
-> शेषं निवेदयामास पित्रे तेन च तद्गुरुः
+> शेषं निवेदयामास पित्रे तेन च तद्गुरुः\
 > चोदितः प्रोक्षणायाह दुष्टमेतदकर्मकम ॥८॥
 
-> śeṣaṁ nivedayām āsa
-> pitre tena ca tad-guruḥ
-> coditaḥ prokṣaṇāyāha
+> śeṣaṁ nivedayām āsa\
+> pitre tena ca tad-guruḥ\
+> coditaḥ prokṣaṇāyāha\
 > duṣṭam etad akarmakam
 
 *śeṣam*—los remanentes; *nivedayām āsa*—ofreció; *pitre*—a su padre; *tena*—por él; *ca*—también; *tat-guruḥ*—su sacerdote o maestro espiritual; *coditaḥ*—ante el ruego; *prokṣaṇāya*—para purificar; *āha*—dijo; *duṣṭam*—contaminada; *etat*—toda esta carne; *akarmakam*—no apta para ser ofrecida en la ceremonia *śrāddha*.

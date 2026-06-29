@@ -1,11 +1,11 @@
 ### Bg 6.34
 
-> चञ्चलं हि मनः कृष्ण प्रमाथि बलवद् दृढम् ।
+> चञ्चलं हि मनः कृष्ण प्रमाथि बलवद् दृढम् ।\
 > तस्याहं निग्रहं मन्ये वायोरिव सुदुष्करम् ॥३४॥
 
-> cañcalaṁ hi manaḥ kṛṣṇa
-> pramāthi balavad dṛḍham
-> tasyāhaṁ nigrahaṁ manye
+> cañcalaṁ hi manaḥ kṛṣṇa\
+> pramāthi balavad dṛḍham\
+> tasyāhaṁ nigrahaṁ manye\
 > vāyor iva suduṣkaram
 
 *cañcalam*—fluctuante; *hi*—ciertamente; *manaḥ*—la mente; *kṛṣṇa*—¡oh, Kṛṣṇa!; *pramāthi*—agitando; *balavat*—fuerte; *dṛḍham*—obstinada; *tasya*—su; *aham*—yo; *nigraham*—sometiendo; *manye*—pienso; *vāyoḥ*—del viento; *iva*—como; *suduṣkaram*—difícil.

@@ -1,11 +1,11 @@
 ### SB 4.13.27
 
-> राजन्हवींष्यदुष्टानि श्रद्धयासादितानि ते ।
+> राजन्हवींष्यदुष्टानि श्रद्धयासादितानि ते ।\
 > छन्दांस्ययातयामानि योजितानि धृतव्रतैः ॥२७॥
 
-> rājan havīṁṣy aduṣṭāni
-> śraddhayāsāditāni te
-> chandāṁsy ayāta-yāmāni
+> rājan havīṁṣy aduṣṭāni\
+> śraddhayāsāditāni te\
+> chandāṁsy ayāta-yāmāni\
 > yojitāni dhṛta-vrataiḥ
 
 *rājan*—O King; *havīṁṣi*—sacrificial offerings; *aduṣṭāni*—not polluted; *śraddhayā*—with great faith and care; *āsāditāni*—collected; *te*—your; *chandāṁsi*—the *mantras*; *ayāta-yāmāni*—not deficient; *yojitāni*—properly executed; *dhṛta-vrataiḥ*—by qualified *brāhmaṇas.*

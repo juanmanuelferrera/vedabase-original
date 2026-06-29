@@ -1,9 +1,9 @@
 ### CC Adi 14.32
 
-> মাটির বিকার ঘটে পানি ভরি’ আনি ।
+> মাটির বিকার ঘটে পানি ভরি’ আনি ।\
 > মাটি-পিণ্ডে ধরি যবে, শোষি’ যায় পানি ।।” ॥ ৩২ ॥
 
-> māṭira vikāra ghaṭe pāni bhari' āni
+> māṭira vikāra ghaṭe pāni bhari' āni\
 > māṭi-piṇḍe dhari yabe, śoṣi' yāya pāni"
 
 *māṭira*—de la tierra; *vikāra*—transformación; *ghaṭe*—en el cántaro; *pāni*—agua; *bhari'*—llenando; *āni*—puedo traer; *māṭi*—de tierra; *piṇḍe*—sobre el terrón; *dhari*—sostengo; *yabe*—cuando; *śoṣi'*—absorbiendo; *yāya*—se va; *pāni*—el agua.

@@ -1,11 +1,11 @@
 ### SB 9.22.9
 
-> ततश्च सहदेवोऽभूत्सोमापिर्यच्छ्रुतश्रवाः
+> ततश्च सहदेवोऽभूत्सोमापिर्यच्छ्रुतश्रवाः\
 > परीक्षिरनपत्योऽभूत्सुरथो नाम जाह्नवः ॥९॥
 
-> tataś ca sahadevo 'bhūt
-> somāpir yac chrutaśravāḥ
-> parīkṣir anapatyo 'bhūt
+> tataś ca sahadevo 'bhūt\
+> somāpir yac chrutaśravāḥ\
+> parīkṣir anapatyo 'bhūt\
 > suratho nāma jāhnavaḥ
 
 *tataḥ ca*—y de él (de Jarāsandha); *sahadevaḥ*—Sahadeva; *abhūt*—nació; *somāpiḥ*—Somāpi; *yat*—de él (de Somāpi); *śrutaśravāḥ*—un hijo llamado Śrutaśravā; *parīkṣiḥ*—el hijo de Kuru llamado Parīkṣi; *anapatyaḥ*—sin hijos; *abhūt*—fue; *surathaḥ*—Suratha; *nāma*—llamado; *jāhnavaḥ*—fue el hijo de Jahnu.

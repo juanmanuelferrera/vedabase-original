@@ -1,9 +1,9 @@
 ### CC Madhya 1.170
 
-> কাজী, যবন ইহার না করিহ হিংসন ।
+> কাজী, যবন ইহার না করিহ হিংসন ।\
 > আপন-ইচ্ছায় বুলুন, যাহাঁ উঁহার মন ॥১৭০॥
 
-> kājī, yavana ihāra nā kariha hiṁsana
+> kājī, yavana ihāra nā kariha hiṁsana\
 > āpana-icchāya buluna, yāhāṅ uṅhāra mana
 
 *kājī*—magistrate; *yavana*—Muslim; *ihāra*—of Him; *nā*—do not; *kariha*—make; *hiṁsana*—jealousy; *āpana-icchāya*—at His own will; *buluna*—let Him go; *yāhāṅ*—wherever; *uṅhāra*—of Him; *mana*—mind.

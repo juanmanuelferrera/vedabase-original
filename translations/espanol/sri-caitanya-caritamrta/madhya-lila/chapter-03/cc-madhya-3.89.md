@@ -1,9 +1,9 @@
 ### CC Madhya 3.89
 
-> সেই ব্যঞ্জন আচার্য পুনঃ করেন পূরণ ৷
+> সেই ব্যঞ্জন আচার্য পুনঃ করেন পূরণ ৷\
 > এই মত পুনঃ পুনঃ পরিবেশে ব্যঞ্জন ॥৮৯॥
 
-> sei vyañjana ācārya punaḥ karena pūraṇa
+> sei vyañjana ācārya punaḥ karena pūraṇa\
 > ei mata punaḥ punaḥ pariveśe vyañjana
 
 *sei vyañjana*—esa verdura a medio terminar; *ācārya*—Advaita Ācārya; *punaḥ*—de nuevo; *karena*—hace; *pūraṇa*—rellenar; *ei mata*—de esta manera; *punaḥ punaḥ*—una y otra vez; *pariveśe*—distribuye; *vyañjana*—verduras.

@@ -1,9 +1,9 @@
 ### CC Adi 10.37
 
-> শ্রীমান্পণ্ডিত শাখা — প্রভুর নিজ ভৃত্য ।
+> শ্রীমান্পণ্ডিত শাখা — প্রভুর নিজ ভৃত্য ।\
 > দেউটি ধরেন, যবে প্রভু করেন নৃত্য ॥৩৭॥
 
-> śrīmān-paṇḍita śākhā—prabhura nija bhṛtya
+> śrīmān-paṇḍita śākhā—prabhura nija bhṛtya\
 > deuṭi dharena, yabe prabhu karena nṛtya
 
 *śrīmān-paṇḍita*—of the name Śrīmān Paṇḍita; *śākhā*—branch; *prabhura*—of the Lord; *nija*—own; *bhṛtya*—servant; *deuṭi*—torch light; *dharena*—carries; *yabe*—while; *prabhu*—Lord Caitanya; *karena*—does; *nṛtya*—dance.

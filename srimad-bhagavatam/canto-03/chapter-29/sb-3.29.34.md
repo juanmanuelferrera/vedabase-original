@@ -1,11 +1,11 @@
 ### SB 3.29.34
 
-> मनसैतानि भूतानि प्रणमेद्बहुमानयन् ।
+> मनसैतानि भूतानि प्रणमेद्बहुमानयन् ।\
 > ईश्वरो जीवकलया प्रविष्टो भगवानिति ॥३४॥
 
-> manasaitāni bhūtāni
-> praṇamed bahu-mānayan
-> īśvaro jīva-kalayā
+> manasaitāni bhūtāni\
+> praṇamed bahu-mānayan\
+> īśvaro jīva-kalayā\
 > praviṣṭo bhagavān iti
 
 *manasā*—with the mind; *etāni*—to these; *bhūtāni*—living entities; *praṇamet*—he offers respects; *bahu-mānayan*—showing regard; *īśvaraḥ*—the controller; *jīva*—of the living entities; *kalayā*—by His expansion as the Supersoul; *praviṣṭaḥ*—has entered; *bhagavān*—the Supreme Personality of Godhead; *iti*—thus.

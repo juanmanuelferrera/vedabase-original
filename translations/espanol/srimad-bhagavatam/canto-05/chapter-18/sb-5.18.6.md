@@ -1,11 +1,11 @@
 ### SB 5.18.6
 
-> वेदान्युगान्ते तमसा तिरस्कृतान्रसातलाद्यो नृतुरङ्गविग्रहः
+> वेदान्युगान्ते तमसा तिरस्कृतान्रसातलाद्यो नृतुरङ्गविग्रहः\
 > प्रत्याददे वै कवयेऽभियाचते तस्मै नमस्तेऽवितथेहिताय इति ॥६॥
 
-> vedān yugānte tamasā tiraskṛtān
-> rasātalād yo nṛ-turaṅga-vigrahaḥ
-> pratyādade vai kavaye 'bhiyācate
+> vedān yugānte tamasā tiraskṛtān\
+> rasātalād yo nṛ-turaṅga-vigrahaḥ\
+> pratyādade vai kavaye 'bhiyācate\
 > tasmai namas te 'vitathehitāya iti
 
 *vedān*—los cuatro *Vedas*; *yuga-ante*—al final del milenio; *tamasā*—por el demonio de la personificación de la ignorancia; *tiraskṛtān*—robados; *rasātalāt*—del sistema planetario más bajo (Rasātala); *yaḥ*—quien (la Suprema Personalidad de Dios); *nṛ-turaṅga-vigrahaḥ*—adoptando la forma mitad caballo, mitad hombre; *pratyādade*—devolvió; *vai*—en verdad; *kavaye*—al poeta supremo (el Señor Brahmā); *abhiyā-cate*—cuando él Se los pidió; *tasmai*—a Él (la forma de Hayagrīva); *namaḥ*—respetuosas reverencias; *te*—a Ti; *avitatha-īhitāya*—cuya resolución nunca fracasa; *iti*—así.

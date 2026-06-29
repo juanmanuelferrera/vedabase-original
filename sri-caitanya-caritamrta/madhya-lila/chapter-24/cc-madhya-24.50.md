@@ -1,13 +1,13 @@
 ### CC Madhya 24.50
 
-> বীক্ষ্যালকাবৃতমুখং তব কুণ্ডলশ্রী-
-> গণ্ডস্থলাধরসুধং হসিতাবলোকম্ ।
-> দত্তাভয়ঞ্চ ভুজদণ্ডযুগং বিলোক্য
+> বীক্ষ্যালকাবৃতমুখং তব কুণ্ডলশ্রী-\
+> গণ্ডস্থলাধরসুধং হসিতাবলোকম্ ।\
+> দত্তাভয়ঞ্চ ভুজদণ্ডযুগং বিলোক্য\
 > বক্ষঃ শ্রিয়ৈকরমণঞ্চ ভবাম দাস্যঃ ॥৫০॥
 
-> vīkṣyālakāvṛta-mukhaṁ tava kuṇḍala-śrī-
-> gaṇḍa-sthalādhara-sudhaṁ hasitāvalokam
-> dattābhayaṁ ca bhuja-daṇḍa-yugaṁ vilokya
+> vīkṣyālakāvṛta-mukhaṁ tava kuṇḍala-śrī-\
+> gaṇḍa-sthalādhara-sudhaṁ hasitāvalokam\
+> dattābhayaṁ ca bhuja-daṇḍa-yugaṁ vilokya\
 > vakṣaḥ śriyaika-ramaṇaṁ ca bhavāma dāsyaḥ
 
 *vīkṣya*—seeing; *alaka-āvṛta-mukham*—face decorated with curling tresses of hair; *tava*—Your; *kuṇḍala-śrī*—beauty of earrings; *gaṇḍa-sthala*—falling on Your cheeks; *adhara-sudham*—and the nectar from Your lips; *hasita-avalokam*—Your smiling glance; *datta-abhayam*—which assure fearlessness; *ca*—and; *bhuja-daṇḍa-yugam*—the two arms; *vilokya*—by seeing; *vakṣaḥ*—chest; *śriyā*—by the beauty; *eka-ramaṇam*—chiefly producing conjugal attraction; *ca*—and; *bhavāma*—we have become; *dāsyaḥ*—Your maidservants.

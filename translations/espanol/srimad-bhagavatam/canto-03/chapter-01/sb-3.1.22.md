@@ -1,11 +1,11 @@
 ### SB 3.1.22
 
-> तस्यां त्रितस्योशनसो मनोश्च पृथोरथाग्नेरसितस्य वायोः ।
+> तस्यां त्रितस्योशनसो मनोश्च पृथोरथाग्नेरसितस्य वायोः ।\
 > तीर्थं सुदासस्य गवां गुहस्य यच्छ्राद्धदेवस्य स आसिषेवे ॥२२॥
 
-> tasyāṁ tritasyośanaso manoś ca
-> pṛthor athāgner asitasya vāyoḥ
-> tīrthaṁ sudāsasya gavāṁ guhasya
+> tasyāṁ tritasyośanaso manoś ca\
+> pṛthor athāgner asitasya vāyoḥ\
+> tīrthaṁ sudāsasya gavāṁ guhasya\
 > yac chrāddhadevasya sa āsiṣeve
 
 *tasyām*—en la ribera del río Sarasvatī; *tritasya*—el lugar de peregrinaje llamado Trita; *uśanasaḥ*—el lugar de peregrinaje llamado Uśanā; *manoḥ ca*—así como también del lugar de peregrinaje llamado Manu; *pṛthoḥ*—el de Pṛthu; *atha*—luego; *agneḥ*—el de Agni; *asitasya*—el de Asita; *vāyoḥ*—el de Vāyu; *tīrtham*—lugares de peregrinajes; *sudāsasya*—de nombre Sudāsa; *gavām*—el de Go; *guhasya*—el de Guha; *yat*—después de eso; *śrāddhadevasya*—de nombre Śrāddhadeva; *saḥ*—Vidura; *āsiṣeve*—visitó y ejecutó los rituales debidamente.

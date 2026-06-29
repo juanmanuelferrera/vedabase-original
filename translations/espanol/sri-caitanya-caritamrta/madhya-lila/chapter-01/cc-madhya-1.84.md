@@ -1,13 +1,13 @@
 ### CC Madhya 1.84
 
-> যা তে লীলারসপরিমলোদ্গারিবন্যাপরীতা
-> ধন্যা ক্ষৌণী বিলসতি বৃতা মাধুরী মাধুরীভিঃ ।
-> তত্রাস্মাভিশ্চটুলপশুপীভাবমুগ্ধান্তরাভিঃ
+> যা তে লীলারসপরিমলোদ্গারিবন্যাপরীতা\
+> ধন্যা ক্ষৌণী বিলসতি বৃতা মাধুরী মাধুরীভিঃ ।\
+> তত্রাস্মাভিশ্চটুলপশুপীভাবমুগ্ধান্তরাভিঃ\
 > সম্বীতস্ত্বং কলয় বদনোল্লাসি-বেণুর্বিহারম্ ॥৮৪॥
 
-> yā te līlā-rasa-parimalodgāri-vanyāparītā
-> dhanyā kṣauṇī vilasati vṛtā māthurī mādhurībhiḥ
-> tatrāsmābhiś caṭula-paśupī-bhāva-mugdhāntarābhiḥ
+> yā te līlā-rasa-parimalodgāri-vanyāparītā\
+> dhanyā kṣauṇī vilasati vṛtā māthurī mādhurībhiḥ\
+> tatrāsmābhiś caṭula-paśupī-bhāva-mugdhāntarābhiḥ\
 > saṁvītas tvaṁ kalaya vadanollāsi-veṇur vihāram
 
 *yā*—que; *te*—Tus; *līlā-rasa*—de las melosidades saboreadas en los pasatiempos; *parimala*—la fragancia; *udgāri*—expandiendo; *vanya-āparītā*—llena de bosques; *dhanyā*—gloriosa; *kṣauṇī*—la tierra; *vilasati*—disfruta; *vṛtā*—rodeada; *māthurī*—el distrito de Mathurā; *mādhurībhiḥ*—por las bellezas; *tatra*—allí; *asmābhiḥ*—por nosotras; *caṭula*—vacilante; *paśupī-bhāva*—con goce extático como gopīs; *mugdha-antarābhiḥ*—por aquellas cuyos corazones están hechizados; *saṁvītaḥ*—rodeado; *tvam*—Tú; *kalaya*—ten a bien realizar; *vadana*—en la boca; *ullāsi*—tocando; *veṇuḥ*—con la flauta; *vihāram*—pasatiempos lúdicos.

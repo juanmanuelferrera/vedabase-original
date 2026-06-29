@@ -1,9 +1,9 @@
 ### CC Madhya 16.75
 
-> ক্রম করি’ কহে প্রভু ‘বৈষ্ণব’-লক্ষণ ।
+> ক্রম করি’ কহে প্রভু ‘বৈষ্ণব’-লক্ষণ ।\
 > ‘বৈষ্ণব’, ‘বৈষ্ণবতর’, আর ‘বৈষ্ণবতম’ ॥৭৫॥
 
-> krama kari' kahe prabhu 'vaiṣṇava'-lakṣaṇa
+> krama kari' kahe prabhu 'vaiṣṇava'-lakṣaṇa\
 > 'vaiṣṇava', 'vaiṣṇavatara', āra 'vaiṣṇavatama'
 
 *krama kari'*—dividiendo según grados; *kahe prabhu*—Śrī Caitanya Mahāprabhu habló; *vaiṣṇava-lakṣaṇa*—los síntomas de los vaiṣṇavas; *vaiṣṇava*—el vaiṣṇava ordinario (grado positivo); *vaiṣṇava-tara*—el mejor vaiṣṇava (grado comparativo); *āra*—y; *vaiṣṇava-tama*—el más excelso vaiṣṇava (grado superlativo).

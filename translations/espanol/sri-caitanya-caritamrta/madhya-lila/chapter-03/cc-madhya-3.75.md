@@ -1,9 +1,9 @@
 ### CC Madhya 3.75
 
-> আচার্য বলে — নীলাচলে খাও চৌয়ান্নবার ।
+> আচার্য বলে — নীলাচলে খাও চৌয়ান্নবার ।\
 > একবারে অন্ন খাও শত শত ভার ॥৭৫॥
 
-> ācārya bale--nīlācale khāo cauyānna-bāra
+> ācārya bale--nīlācale khāo cauyānna-bāra\
 > eka-bāre anna khāo śata śata bhāra
 
 *ācārya bale*—Advaita Ācārya responde; *nīlācale*—en Jagannātha Purī; *khāo*—Tú comes; *cauyānna-bāra*—cincuenta y cuatro veces; *eka-bāre*—de una vez; *anna*—alimentos; *khāo*—Tú comes; *śata śata bhāra*—cientos de vasijas.

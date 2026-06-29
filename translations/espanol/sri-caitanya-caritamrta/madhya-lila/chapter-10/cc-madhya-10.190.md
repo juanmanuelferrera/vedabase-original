@@ -1,9 +1,9 @@
 ### CC Madhya 10.190
 
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ৷
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ৷\
 > চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ৷৷ ১৯০ ৷৷ ॥১৯০॥
 
-> śrī-rūpa-raghunātha-pade yāra āśa
+> śrī-rūpa-raghunātha-pade yāra āśa\
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
 
 *śrī-rūpa*—Śrīla Rūpa Gosvāmī; *raghunātha*—Śrīla Raghunātha dāsa Gosvāmī; *pade*—a los pies de loto; *yāra*—cuya; *āśa*—esperanza; *caitanya-caritāmṛta*—el libro llamado Caitanya-caritāmṛta; *kahe*—describe; *kṛṣṇadāsa*—Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī.

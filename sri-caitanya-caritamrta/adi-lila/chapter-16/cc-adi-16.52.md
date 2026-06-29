@@ -1,9 +1,9 @@
 ### CC Adi 16.52
 
-> নাহি পড়ি অলঙ্কার, করিয়াছি শ্রবণ ।
+> নাহি পড়ি অলঙ্কার, করিয়াছি শ্রবণ ।\
 > তাতে এই শ্লোকে দেখি বহু দোষ-গুণ ॥৫২॥
 
-> nāhi paḍi alaṅkāra, kariyāchi śravaṇa
+> nāhi paḍi alaṅkāra, kariyāchi śravaṇa\
 > tāte ei śloke dekhi bahu doṣa-guna
 
 *nāhi paḍi*—I do not study; *alaṅkāra*—the art of literary embellishment; *kariyāchi*—I have done; *śravaṇa*—hearing; *tāte*—by that; *ei śloke*—in this verse; *dekhi*—I see; *bahu*—many; *doṣa*—faults; *guṇa*—good qualities.

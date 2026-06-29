@@ -1,9 +1,9 @@
 ### CC Madhya 20.31
 
-> সন্তুষ্ট হইলাঙ আমি, মোহর না লইব ।
+> সন্তুষ্ট হইলাঙ আমি, মোহর না লইব ।\
 > পুণ্য লাগি’ পর্বত তোমা’ পার করি’ দিব ।।” ॥ ৩১ ॥
 
-> santuṣṭa ha-ilāṅa āmi, mohara nā la-iba
+> santuṣṭa ha-ilāṅa āmi, mohara nā la-iba\
 > puṇya lāgi' parvata tomā' pāra kari' diba"
 
 *santuṣṭa*—satisfecho; *ha-ilāṅa*—he quedado; *āmi*—yo; *mohara*—las monedas de oro; *nā la-iba*—no las tomaré; *puṇya lāgi'*—simplemente como actividad piadosa; *parvata*—la zona montañosa; *tomā'*—a vos; *pāra kari' diba*—os haré cruzar.

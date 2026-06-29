@@ -1,9 +1,9 @@
 ### CC Madhya 18.23
 
-> ‘গোবর্ধন-উপরে আমি কভু না চড়িব  ।
+> ‘গোবর্ধন-উপরে আমি কভু না চড়িব  ।\
 > গোপাল-রায়ের দরশন কেমনে পাইব ?’ ২৩ ॥২৩॥
 
-> 'govardhana-upare āmi kabhu nā caḍiba
+> 'govardhana-upare āmi kabhu nā caḍiba\
 > gopāla-rāyera daraśana kemane pāiba?'
 
 *govardhana-upare*—upon the hill known as Govardhana; *āmi*—I; *kabhu*—at any time; *nā*—not; *caḍiba*—shall climb; *gopāla-rāyera*—of Lord Gopāla; *daraśana*—visit; *kemane*—how; *pāiba*—I shall get.

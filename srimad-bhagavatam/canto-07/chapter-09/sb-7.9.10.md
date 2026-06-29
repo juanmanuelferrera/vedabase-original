@@ -1,13 +1,13 @@
 ### SB 7.9.10
 
-> विप्राद्द्विषड्गुणयुतादरविन्दनाभ
-> पादारविन्दविमुखात्श्वपचं वरिष्ठम
-> मन्ये तदर्पितमनोवचनेहितार्थ
+> विप्राद्द्विषड्गुणयुतादरविन्दनाभ\
+> पादारविन्दविमुखात्श्वपचं वरिष्ठम\
+> मन्ये तदर्पितमनोवचनेहितार्थ\
 > प्राणं पुनाति स कुलं न तु भूरिमानः ॥१०॥
 
-> viprād dvi-ṣaḍ-guṇa-yutād aravinda-nābha-
-> pādāravinda-vimukhāt śvapacaṁ variṣṭham
-> manye tad-arpita-mano-vacanehitārtha-
+> viprād dvi-ṣaḍ-guṇa-yutād aravinda-nābha-\
+> pādāravinda-vimukhāt śvapacaṁ variṣṭham\
+> manye tad-arpita-mano-vacanehitārtha-\
 > prāṇaṁ punāti sa kulaṁ na tu bhūrimānaḥ
 
 *viprāt*—than a *brāhmaṇa*; *dvi-ṣaṭ-guṇa-yutāt*—qualified with twelve brahminical qualities; *aravinda-nābha*—Lord Viṣṇu, who has a lotus growing from His navel; *pāda-aravinda*—to the lotus feet of the Lord; *vimukhāt*—not interested in devotional service; *śva-pacam*—one born in a low family, or a dog-eater; *variṣṭham*—more glorious; *manye*—I consider; *tat-arpita*—surrendered unto the lotus feet of the Lord; *manaḥ*—his mind; *vacana*—words; *īhita*—every endeavor; *artha*—wealth; *prāṇam*—and life; *punāti*—purifies; *saḥ*—he (the devotee); *kulam*—his family; *na*—not; *tu*—but; *bhūrimānaḥ*—one who falsely thinks himself to be in a prestigious position.

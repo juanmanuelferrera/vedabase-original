@@ -1,9 +1,9 @@
 ### CC Antya 2.97
 
-> আচার্য কহে, — ‘আমা সবার কৃষ্ণনিষ্ঠ-চিত্তে ।
+> আচার্য কহে, — ‘আমা সবার কৃষ্ণনিষ্ঠ-চিত্তে ।\
 > আমা সবার মন ভাষ্য নারে ফিরাইতে ।।’ ॥ ৯৭ ॥
 
-> ācārya kahe,—'āmā sabāra kṛṣṇa-niṣṭha-citte
+> ācārya kahe,—'āmā sabāra kṛṣṇa-niṣṭha-citte\
 > āmā sabāra mana bhāṣya nāre phirāite'
 
 *ācārya kahe*—Bhagavān Ācārya replied; *āmā sabāra*—of all of us; *kṛṣṇa-niṣṭha*—devoted to Kṛṣṇa; *citte*—hearts; *āmā sabāra*—of all of us; *mana*—minds; *bhāṣya*—*Śārīraka-bhāṣya*; *nāre phirāite*—cannot change.

@@ -1,13 +1,13 @@
 ### SB 3.31.1
 
-> श्रीभगवानुवाच
-> कर्मणा दैवनेत्रेण जन्तुर्देहोपपत्तये ।
+> श्रीभगवानुवाच\
+> कर्मणा दैवनेत्रेण जन्तुर्देहोपपत्तये ।\
 > स्त्रियाः प्रविष्ट उदरं पुंसो रेतःकणाश्रयः ॥१॥
 
-> śrī-bhagavān uvāca
-> karmaṇā daiva-netreṇa
-> jantur dehopapattaye
-> striyāḥ praviṣṭa udaraṁ
+> śrī-bhagavān uvāca\
+> karmaṇā daiva-netreṇa\
+> jantur dehopapattaye\
+> striyāḥ praviṣṭa udaraṁ\
 > puṁso retaḥ-kaṇāśrayaḥ
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *karmaṇā*—por el resultado del trabajo; *daiva-netreṇa*—bajo la supervisión del Señor; *jantuḥ*—la entidad viviente; *deha*—un cuerpo; *upapattaye*—para obtener; *striyāḥ*—de una mujer; *praviṣṭaḥ*—entra; *udaram*—el vientre; *puṁsaḥ*—de un hombre; *retaḥ*—de semen; *kaṇa*—una partícula; *āśrayaḥ*—morando en.

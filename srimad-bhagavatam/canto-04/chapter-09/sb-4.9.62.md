@@ -1,11 +1,11 @@
 ### SB 4.9.62
 
-> यत्र स्फटिककुड्येषु महामारकतेषु च ।
+> यत्र स्फटिककुड्येषु महामारकतेषु च ।\
 > मणिप्रदीपा आभान्ति ललनारत्नसंयुताः ॥६२॥
 
-> yatra sphaṭika-kuḍyeṣu
-> mahā-mārakateṣu ca
-> maṇi-pradīpā ābhānti
+> yatra sphaṭika-kuḍyeṣu\
+> mahā-mārakateṣu ca\
+> maṇi-pradīpā ābhānti\
 > lalanā-ratna-saṁyutāḥ
 
 *yatra*—where; *sphaṭika*—made of marble; *kuḍyeṣu*—on walls; *mahā-mārakateṣu*—bedecked with valuable jewels like sapphires; *ca*—also; *maṇi-pradīpāḥ*—lamps made of jewels; *ābhānti*—shone; *lalanā*—female figures; *ratna*—made of jewels; *saṁyutāḥ*—held by.

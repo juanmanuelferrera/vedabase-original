@@ -1,9 +1,9 @@
 ### CC Madhya 7.74
 
-> নিত্যানন্দপ্রভু ভট্টাচার্যে উঠাইল ।
+> নিত্যানন্দপ্রভু ভট্টাচার্যে উঠাইল ।\
 > তাঁর লোকসঙ্গে তাঁরে ঘরে পাঠাইল ॥৭৪॥
 
-> nityānanda prabhu bhaṭṭācārye uṭhāila
+> nityānanda prabhu bhaṭṭācārye uṭhāila\
 > tāṅra loka-saṅge tāṅre ghare pāṭhāila
 
 *nityānandaprabhu*—Lord Śrī Nityānanda Prabhu; *bhaṭṭācārye*—Sārvabhauma Bhaṭṭācārya; *uṭhāila*—raised; *tāṅra*—His; *loka-saṅge*—along with associates; *tāṅre*—him (the Bhaṭṭācārya); *ghare*—to his home; *pāṭhāila*—sent.

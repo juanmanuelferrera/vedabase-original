@@ -1,11 +1,11 @@
 ### SB 1.8.15
 
-> यद्यप्यस्त्रं ब्रह्मशिरस्त्वमोघं चाप्रतिक्रियम् ।
+> यद्यप्यस्त्रं ब्रह्मशिरस्त्वमोघं चाप्रतिक्रियम् ।\
 > वैष्णवं तेज आसाद्य समशाम्यद्भृगूद्वह ॥१५॥
 
-> yadyapy astraṁ brahma-śiras
-> tv amoghaṁ cāpratikriyam
-> vaiṣṇavaṁ teja āsādya
+> yadyapy astraṁ brahma-śiras\
+> tv amoghaṁ cāpratikriyam\
+> vaiṣṇavaṁ teja āsādya\
 > samaśāmyad bhṛgūdvaha
 
 *yadyapi*—although; *astram*—weapon; *brahma-śiraḥ*—supreme; *tu*—but; *amogham*—without check; *ca*—and; *apratikriyam*—not to be counteracted; *vaiṣṇavam*—in relation with Viṣṇu; *tejaḥ*—strength; *āsādya*—being confronted with; *samaśāmyat*—was neutralized; *bhṛgu-udvaha*—O glory of the family of Bhṛgu.

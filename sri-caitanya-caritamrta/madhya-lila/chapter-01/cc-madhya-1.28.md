@@ -1,9 +1,9 @@
 ### CC Madhya 1.28
 
-> যদ্যপি আপনি হয়ে প্রভু বলরাম ।
+> যদ্যপি আপনি হয়ে প্রভু বলরাম ।\
 > তথাপি চৈতন্যের করে দাস-অভিমান ॥২৮॥
 
-> yadyapi āpani haye prabhu balarāma
+> yadyapi āpani haye prabhu balarāma\
 > tathāpi caitanyera kare dāsa-abhimāna
 
 *yadyapi*—although; *āpani*—personally; *haye*—is; *prabhu*—Lord; *balarāma*—Balarāma; *tathāpi*—still; *caitanyera*—of Lord Śrī Caitanya Mahāprabhu; *kare*—accepts; *dāsa-abhimāna*—conception as the eternal servant.

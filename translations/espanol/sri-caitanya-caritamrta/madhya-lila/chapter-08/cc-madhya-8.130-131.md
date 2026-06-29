@@ -1,12 +1,12 @@
 ### CC Madhya 8.130-131
 
-> yadyapi rāya—premī, mahā-bhāgavate
+> yadyapi rāya—premī, mahā-bhāgavate\
 > tāṅra mana kṛṣṇa-māyā nāre ācchādite
 
-> yadyapi rāya—premī, mahā-bhāgavate
+> yadyapi rāya—premī, mahā-bhāgavate\
 > tāṅra mana kṛṣṇa-māyā nāre ācchādite
 
-> tathāpi prabhura icchā—parama prabala
+> tathāpi prabhura icchā—parama prabala\
 > jānileha rāyera mana haila ṭalamala
 
 *yadyapi*—aunque; *rāya*—Rāmānanda Rāya; *premī*—un gran amante de Kṛṣṇa; *mahā-bhāgavate*—un devoto sumamente elevado; *tāṅra*—suya; *mana*—mente; *kṛṣṇa-māyā*—la energía ilusoria de Kṛṣṇa; *nāre*—no puede; *ācchādite*—cubrir; *tathāpi*—aun así; *prabhura icchā*—el deseo del Señor; *parama prabala*—muy intenso; *jānileha*—aunque era conocido; *rāyera mana*—la mente de Rāmānanda Rāya; *haila*—había; *ṭalamala*—agitación.

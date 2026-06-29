@@ -1,11 +1,11 @@
 ### SB 4.28.21
 
-> कथं नु दारका दीना दारकीर्वापरायणाः ।
+> कथं नु दारका दीना दारकीर्वापरायणाः ।\
 > वर्तिष्यन्ते मयि गते भिन्ननाव इवोदधौ ॥२१॥
 
-> kathaṁ nu dārakā dīnā
-> dārakīr vāparāyaṇāḥ
-> vartiṣyante mayi gate
+> kathaṁ nu dārakā dīnā\
+> dārakīr vāparāyaṇāḥ\
+> vartiṣyante mayi gate\
 > bhinna-nāva ivodadhau
 
 *katham*—how; *nu*—indeed; *dārakāḥ*—sons; *dīnāḥ*—poor; *dārakīḥ*—daughters; *vā*—or; *aparāyaṇāḥ*—having no one else to depend on; *vartiṣyante*—will live; *mayi*—when 1; *gate*—gone from this world; *bhinna*—broken; *nāvaḥ*—boat; *iva*—like; *udadhau*—in the ocean.

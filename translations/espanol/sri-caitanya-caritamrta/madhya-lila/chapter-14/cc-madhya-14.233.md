@@ -1,9 +1,9 @@
 ### CC Madhya 14.233
 
-> লক্ষ্মী-দেবী যথাকালে গেলা নিজ-ঘর ৷
+> লক্ষ্মী-দেবী যথাকালে গেলা নিজ-ঘর ৷\
 > প্রভু নৃত্য করে, হৈল তৃতীয় প্ৰহর ॥২৩৩॥
 
-> lakṣmī-devī yathā-kāle gelā nija-ghara
+> lakṣmī-devī yathā-kāle gelā nija-ghara\
 > prabhu nṛtya kare, haila tṛtīya prahara
 
 *lakṣmī-devī*—la diosa de la fortuna; *yathā-kāle*—a su debido tiempo; *gelā*—regresó; *nija-ghara*—a sus aposentos; *prabhu*—Śrī Caitanya Mahāprabhu; *nṛtya kare*—danza; *haila*—llegó; *tṛtīya prahara*—el tercer período del día, la tarde.

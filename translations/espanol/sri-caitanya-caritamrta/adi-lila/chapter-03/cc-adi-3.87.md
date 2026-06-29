@@ -1,13 +1,13 @@
 ### CC Adi 3.87
 
-> ত্বাং শীলরূপচরিতৈঃ পরমপ্রকৃষ্টৈঃ
-> সত্ত্বেন সাত্ত্বিকতয়া প্রবলৈশ্চ শাস্ত্রৈঃ ।
-> প্রখ্যাতদৈবপরমার্থবিদাং মতৈশ্চ
+> ত্বাং শীলরূপচরিতৈঃ পরমপ্রকৃষ্টৈঃ\
+> সত্ত্বেন সাত্ত্বিকতয়া প্রবলৈশ্চ শাস্ত্রৈঃ ।\
+> প্রখ্যাতদৈবপরমার্থবিদাং মতৈশ্চ\
 > নৈবাসুরপ্রকৃতয়ঃ প্রভবন্তি বোদ্ধুম্ ॥৮৭॥
 
-> tvāṁ śīla-rūpa-caritaiḥ parama-prakṛṣṭaiḥ
-> sattvena sāttvikatayā prabalaiś ca śāstraiḥ
-> prakhyāta-daiva-paramārtha-vidāṁ mataiś ca
+> tvāṁ śīla-rūpa-caritaiḥ parama-prakṛṣṭaiḥ\
+> sattvena sāttvikatayā prabalaiś ca śāstraiḥ\
+> prakhyāta-daiva-paramārtha-vidāṁ mataiś ca\
 > naivāsura-prakṛtayaḥ prabhavanti boddhum
 
 *tvām*—a Ti; *śīla*—carácter; *rūpa*—formas; *caritaiḥ*—por los actos; *parama*—sumamente; *prakṛṣṭaiḥ*—eminentes; *sattvena*—por poder extraordinario; *sāttvikatayā*—con la cualidad de la bondad predominante; *prabalaiḥ*—grandes; *ca*—y; *śāstraiḥ*—por las Escrituras; *prakhyāta*—renombrados; *daiva*—divinos; *parama-artha-vidām*—de aquellos que conocen la meta suprema; *mataiḥ*—por las opiniones; *ca*—y; *na*—no; *eva*—ciertamente; *āsura-prakṛtayaḥ*—aquellos cuya disposición es demoníaca; *prabhavanti*—son capaces; *boddhum*—de conocer.

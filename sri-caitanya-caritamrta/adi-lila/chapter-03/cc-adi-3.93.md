@@ -1,9 +1,9 @@
 ### CC Adi 3.93
 
-> কৃষ্ণ যদি পৃথিবীতে করেন অবতার ।
+> কৃষ্ণ যদি পৃথিবীতে করেন অবতার ।\
 > প্রথমে করেন গুরুবর্গের সঞ্চার ॥৯৩॥
 
-> kṛṣṇa yadi pṛthivīte karena avatāra
+> kṛṣṇa yadi pṛthivīte karena avatāra\
 > prathame karena guru-vargera sañcāra
 
 *kṛṣṇa*—Lord Kṛṣṇa; *yadi*—if; *pṛthivīte*—on the earth; *karena*—makes; *avatāra*—incarnation; *prathame*—first; *karena*—makes; *guru-vargera*—of the group of respectable predecessors; *sañcāra*—the advent.

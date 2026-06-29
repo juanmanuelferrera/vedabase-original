@@ -1,11 +1,11 @@
 ### SB 1.8.47
 
-> आह राजा धर्मसुतश्चिन्तयन्सुहृदां वधम् ।
+> आह राजा धर्मसुतश्चिन्तयन्सुहृदां वधम् ।\
 > प्राकृतेनात्मना विप्राः स्नेहमोहवशं गतः ॥४७॥
 
-> āha rājā dharma-sutaś
-> cintayan suhṛdāṁ vadham
-> prākṛtenātmanā viprāḥ
+> āha rājā dharma-sutaś\
+> cintayan suhṛdāṁ vadham\
+> prākṛtenātmanā viprāḥ\
 > sneha-moha-vaśaṁ gataḥ
 
 *āha*—dijo; *rājā*—el rey Yudhiṣṭhira; *dharma-sutaḥ*—el hijo de Dharma (Yamarāja); *cintayan*—pensando en; *suhṛdām*—de los amigos; *vadham*—matando; *prākṛtena*—mediante el concepto material únicamente; *ātmanā*—por el ser; *viprāḥ*—¡oh, *brāhmaṇa*!; *sneha*—afecto; *moha*—engaño; *vaśam*—siendo llevado por; *gataḥ*—habiendo ido.

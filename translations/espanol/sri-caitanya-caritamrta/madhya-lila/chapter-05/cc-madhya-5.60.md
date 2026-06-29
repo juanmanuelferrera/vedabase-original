@@ -1,9 +1,9 @@
 ### CC Madhya 5.60
 
-> আর কেহ সঙ্গে নাহি, এই সঙ্গে একল ।
+> আর কেহ সঙ্গে নাহি, এই সঙ্গে একল ।\
 > ধুতুরা খাওয়াঞা বাপে করিল পাগল ॥৬০॥
 
-> āra keha saṅge nāhi, ei saṅge ekala
+> āra keha saṅge nāhi, ei saṅge ekala\
 > dhuturā khāoyāñā bāpe karila pāgala
 
 *āra*—ningún otro; *keha*—nadie; *saṅge*—en compañía; *nāhi*—no había; *ei*—este brāhmaṇa; *saṅge*—en compañía; *ekala*—solo; *dhuturā*—un intoxicante; *khāoyāñā*—haciéndole comer; *bāpe*—a mi padre; *karila*—hizo; *pāgala*—loco.

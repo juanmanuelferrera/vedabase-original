@@ -1,11 +1,11 @@
 ### SB 6.19.24
 
-> आचार्यमग्रतः कृत्वा वाग्यतः सह बन्धुभिः
+> आचार्यमग्रतः कृत्वा वाग्यतः सह बन्धुभिः\
 > दद्यात्पत्न्यै चरोः शेषं सुप्रजास्त्वं सुसौभगम ॥२४॥
 
-> ācāryam agrataḥ kṛtvā
-> vāg-yataḥ saha bandhubhiḥ
-> dadyāt patnyai caroḥ śeṣaṁ
+> ācāryam agrataḥ kṛtvā\
+> vāg-yataḥ saha bandhubhiḥ\
+> dadyāt patnyai caroḥ śeṣaṁ\
 > suprajāstvaṁ susaubhagam
 
 *ācāryam*—the *ācārya*; *agrataḥ*—first of all; *kṛtvā*—receiving properly; *vāk-yataḥ*—controlling speech; *saha*—with; *bandhubhiḥ*—friends and relatives; *dadyāt*—he should give; *patnyai*—to the wife; *caroḥ*—of the oblation of sweet rice; *śeṣam*—the remnant; *su-prajāstvam*—which insures good progeny; *su-saubhagam*—which insures good fortune.

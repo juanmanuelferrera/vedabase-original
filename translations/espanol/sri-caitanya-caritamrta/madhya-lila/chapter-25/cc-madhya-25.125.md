@@ -1,9 +1,9 @@
 ### CC Madhya 25.125
 
-> পঞ্চভূত যৈছে ভূতের ভিতরে-বাহিরে ।
+> পঞ্চভূত যৈছে ভূতের ভিতরে-বাহিরে ।\
 > ভক্তগণে স্ফুরি আমি বাহিরে-অন্তরে ॥১২৫॥
 
-> pañca-bhūta yaiche bhūtera bhitare-bāhire
+> pañca-bhūta yaiche bhūtera bhitare-bāhire\
 > bhakta-gaṇe sphuri āmi bāhire-antare
 
 *pañca-bhūta*—los cinco elementos materiales; *yaiche*—tal como; *bhūtera*—de las entidades vivientes; *bhitare*—dentro; *bāhire*—y fuera; *bhakta-gaṇe*—para los devotos; *sphuri*—manifestándose; *āmi*—Yo; *bāhire-antare*—externa e internamente.

@@ -1,9 +1,9 @@
 ### CC Madhya 13.202
 
-> প্রেমাবেশে মহাপ্রভু উপবন পাঞা ।
+> প্রেমাবেশে মহাপ্রভু উপবন পাঞা ।\
 > পুষ্পোদ্যানে গৃহপিণ্ডায় রহিলা পড়িয়া ॥২০২॥
 
-> premāveśe mahāprabhu upavana pāñā
+> premāveśe mahāprabhu upavana pāñā\
 > puṣpodyāne gṛha-piṇḍāya rahilā paḍiyā
 
 *prema-āveśe*—absorto en amor extático; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *upavana pāñā*—al llegar a un hermoso jardín cercano; *puṣpa-udyāne*—en aquel jardín de flores; *gṛha-piṇḍāya*—sobre la plataforma elevada; *rahilā*—permaneció; *paḍiyā*—cayendo de bruces.

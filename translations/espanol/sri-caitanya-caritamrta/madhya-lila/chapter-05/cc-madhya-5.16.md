@@ -1,9 +1,9 @@
 ### CC Madhya 5.16
 
-> দুইবিপ্ৰ-মধ্যে এক বিপ্ৰ — বৃদ্ধপ্রায় ।
+> দুইবিপ্ৰ-মধ্যে এক বিপ্ৰ — বৃদ্ধপ্রায় ।\
 > আর বিপ্র — যুবা, তাঁর করেন সহায় ॥১৬॥
 
-> dui-vipra-madhye eka vipra--vṛddha-prāya
+> dui-vipra-madhye eka vipra--vṛddha-prāya\
 > āra vipra--yuvā, tāṅra karena sahāya
 
 *dui-vipra-madhye*—entre los dos brāhmaṇas; *eka vipra*—un brāhmaṇa; *vṛddha-prāya*—hombre anciano; *āra vipra*—el segundo brāhmaṇa; *yuvā*—hombre joven; *tāṅra*—del brāhmaṇa mayor; *karena*—presta; *sahāya*—asistencia.

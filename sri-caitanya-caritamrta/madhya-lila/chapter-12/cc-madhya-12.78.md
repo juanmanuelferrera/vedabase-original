@@ -1,9 +1,9 @@
 ### CC Madhya 12.78
 
-> নূতন একশত ঘট, শত সংমার্জনী ।
+> নূতন একশত ঘট, শত সংমার্জনী ।\
 > পড়িছা আনিয়া দিল প্রভুর ইচ্ছা জানি’ ॥৭৮॥
 
-> nūtana eka-śata ghaṭa, śata sammārjanī
+> nūtana eka-śata ghaṭa, śata sammārjanī\
 > paḍichā āniyā dila prabhura icchā jāni'
 
 *nūtana*—new; *eka-śata*—one hundred; *ghaṭa*—waterpots; *śata*—hundred; *sammārjanī*—brooms; *paḍichā*—the superintendent; *āniyā*—bringing; *dila*—delivered; *prabhura*—of the Lord; *icchā*—the desire; *jāni'*—knowing.

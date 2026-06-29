@@ -1,10 +1,10 @@
 ### CC Madhya 24.294
 
-> বত্রিশে ছাব্বিশে মিলি’ অষ্টপঞ্চাশ ।
+> বত্রিশে ছাব্বিশে মিলি’ অষ্টপঞ্চাশ ।\
 > আর এক ভেদ শুন অর্থের প্রকাশ ॥২৯৪॥
 
-> batriśe chābbiśe mili, aṣṭa-pañcāśa
-> āra eka bheda śuna arthera prakāśa
+> batriśe chābbiśe mili, aṣṭa-pañcāśa\
+> āra eka bheda śuna arthera prakāśa\
 > SYNONYMS
 
 *batriśe*—estas treinta y dos variedades; *chābbiśe*—las veintiséis variedades descritas anteriormente; *mili'*—sumadas; *aṣṭa-pañcāśa*—se convierten en cincuenta y ocho; *āra*—otra; *eka*—una; *bheda*—diferencia; *śuna*—por favor escuchad; *arthera prakāśa*—manifestación de significado.

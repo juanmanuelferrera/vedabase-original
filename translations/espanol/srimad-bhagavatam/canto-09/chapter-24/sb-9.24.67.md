@@ -1,11 +1,11 @@
 ### SB 9.24.67
 
-> पृथ्व्याः स वै गुरुभरं क्षपयन्कुरूणामन्तःसमुत्थकलिना युधि भूपचम्वः
+> पृथ्व्याः स वै गुरुभरं क्षपयन्कुरूणामन्तःसमुत्थकलिना युधि भूपचम्वः\
 > दृष्ट्या विधूय विजये जयमुद्विघोष्य प्रोच्योद्धवाय च परं समगात्स्वधाम ॥६७॥
 
-> pṛthvyāḥ sa vai guru-bharaṁ kṣapayan kurūṇām
-> antaḥ-samuttha-kalinā yudhi bhūpa-camvaḥ
-> dṛṣṭyā vidhūya vijaye jayam udvighoṣya
+> pṛthvyāḥ sa vai guru-bharaṁ kṣapayan kurūṇām\
+> antaḥ-samuttha-kalinā yudhi bhūpa-camvaḥ\
+> dṛṣṭyā vidhūya vijaye jayam udvighoṣya\
 > procyoddhavāya ca paraṁ samagāt sva-dhāma
 
 *pṛthvyāḥ*—en la Tierra; *saḥ*—Él (el Señor Kṛṣṇa); *vai*—en verdad; *guru-bharam*—una gran carga; *kṣapayan*—terminar por completo; *kurūṇām*—de las personalidades nacidas en la dinastía Kuru; *antaḥ-samuttha-kalinā*—por suscitar enemistad y desavenencia entre los hermanos; *yudhi*—en la batalla de Kurukṣetra; *bhūpa-camvaḥ*—todos los reyes demoníacos; *dṛṣṭyā*—con Su mirada; *vidhūya*—limpiar sus actividades pecaminosas; *vijaye*—con victoria; *jayam*—victoria; *udvighoṣya*—proclamar (la victoria de Arjuna); *procya*—dar instrucciones; *uddhavāya*—a Uddhava; *ca*—también; *param*—trascendental; *samagāt*—regresó; *sva-dhāma*—a Su propia morada.

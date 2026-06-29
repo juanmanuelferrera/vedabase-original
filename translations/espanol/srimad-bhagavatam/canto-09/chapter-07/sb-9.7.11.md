@@ -1,11 +1,11 @@
 ### SB 9.7.11
 
-> निर्दशे च स आगत्य यजस्वेत्याह सोऽब्रवीत
+> निर्दशे च स आगत्य यजस्वेत्याह सोऽब्रवीत\
 > दन्ताः पशोर्यज्जायेरन्नथ मेध्यो भवेदिति ॥११॥
 
-> nirdaśe ca sa āgatya
-> yajasvety āha so 'bravīt
-> dantāḥ paśor yaj jāyerann
+> nirdaśe ca sa āgatya\
+> yajasvety āha so 'bravīt\
+> dantāḥ paśor yaj jāyerann\
 > atha medhyo bhaved iti
 
 *nirdaśe*—pasados diez días; *ca*—también; *saḥ*—él, Varuṇa; *āgatya*—venir; *yajasva*—ahora sacrifica; *iti*—así; *āha*—dijo; *saḥ*—él, Hariścandra; *abravīt*—contestó; *dantāḥ*—los dientes; *paśoḥ*—del animal; *yat*—cuando; *jāyeran*—hayan aparecido; *atha*—entonces; *medhyaḥ*—apto para ser sacrificado; *bhavet*—se volverá; *iti*—así.

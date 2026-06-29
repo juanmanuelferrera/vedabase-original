@@ -1,13 +1,13 @@
 ### SB 9.10.10
 
-> सीताकथाश्रवणदीपितहृच्छयेन
-> सृष्टं विलोक्य नृपते दशकन्धरेण
-> जघ्नेऽद्भुतैणवपुषाश्रमतोऽपकृष्टो
+> सीताकथाश्रवणदीपितहृच्छयेन\
+> सृष्टं विलोक्य नृपते दशकन्धरेण\
+> जघ्नेऽद्भुतैणवपुषाश्रमतोऽपकृष्टो\
 > मारीचमाशु विशिखेन यथा कमुग्रः ॥१०॥
 
-> sītā-kathā-śravaṇa-dīpita-hṛc-chayena
-> sṛṣṭaṁ vilokya nṛpate daśa-kandhareṇa
-> jaghne 'dbhutaiṇa-vapuṣāśramato 'pakṛṣṭo
+> sītā-kathā-śravaṇa-dīpita-hṛc-chayena\
+> sṛṣṭaṁ vilokya nṛpate daśa-kandhareṇa\
+> jaghne 'dbhutaiṇa-vapuṣāśramato 'pakṛṣṭo\
 > mārīcam āśu viśikhena yathā kam ugraḥ
 
 *sītā-kathā*—topics about Sītādevī; *śravaṇa*—by hearing; *dīpita*—agitated; *hṛt-śayena*—lusty desires within the mind of Rāvaṇa; *sṛṣṭam*—created; *vilokya*—seeing that; *nṛpate*—O King Parīkṣit; *daśa-kandhareṇa*—by Rāvaṇa, who had ten heads; *jaghne*—the Lord killed; *adbhuta-eṇa-vapuṣā*—by a deer made of gold; *āśramataḥ*—from His residence; *apakṛṣṭaḥ*—distracted to a distance; *mārīcam*—the demon Mārīca, who assumed the form of a golden deer; *āśu*—immediately; *viśikhena*—by a sharp arrow; *yathā*—as; *kam*—Dakṣa; *ugraḥ*—Lord Śiva.

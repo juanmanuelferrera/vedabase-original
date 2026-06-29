@@ -1,9 +1,9 @@
 ### CC Madhya 22.142
 
-> বিধি-ধর্ম ছাড়ি’ ভজে কৃষ্ণের চরণ ।
+> বিধি-ধর্ম ছাড়ি’ ভজে কৃষ্ণের চরণ ।\
 > নিষিদ্ধ পাপাচারে তার কভু নহে মন ॥১৪২॥
 
-> vidhi-dharma chāḍi' bhaje kṛṣṇera caraṇa
+> vidhi-dharma chāḍi' bhaje kṛṣṇera caraṇa\
 > niṣiddha pāpācāre tāra kabhu nahe mana
 
 *vidhi-dharma chāḍi'*—abandonando todos los principios regulativos de la institución del varṇa y el āśrama; *bhaje*—adora; *kṛṣṇera caraṇa*—los pies de loto del Señor Kṛṣṇa; *niṣiddha*—prohibidas; *pāpa-ācāre*—en actividades pecaminosas; *tāra*—su; *kabhu*—en ningún momento; *nahe*—no; *mana*—la mente.

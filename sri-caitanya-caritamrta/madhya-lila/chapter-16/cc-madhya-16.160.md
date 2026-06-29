@@ -1,9 +1,9 @@
 ### CC Madhya 16.160
 
-> দিন কত রহ, সন্ধি করি’ তাঁর সনে ।
+> দিন কত রহ, সন্ধি করি’ তাঁর সনে ।\
 > তবে সুখে নৌকাতে করাইব গমনে ॥১৬০॥
 
-> dina kata raha—sandhi kari' tāṅra sane
+> dina kata raha—sandhi kari' tāṅra sane\
 > tabe sukhe naukāte karāiba gamane
 
 *dina kata raha*—stay here for a few days; *sandhi kari'*—making peaceful negotiations; *tāṅra sane*—with him; *tabe*—then; *sukhe*—in happiness; *naukāte*—on the boat; *karāiba gamane*—I will help You start.

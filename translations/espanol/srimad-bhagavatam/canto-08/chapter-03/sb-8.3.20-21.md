@@ -1,18 +1,18 @@
 ### SB 8.3.20-21
 
-> एकान्तिनो यस्य न कञ्चनार्थं वाञ्छन्ति ये वै भगवत्प्रपन्नाः
-> अत्यद्भुतं तच्चरितं सुमङ्गलं गायन्त आनन्दसमुद्रमग्नाः ॥२०॥
-> तमक्षरं ब्रह्म परं परेशमव्यक्तमाध्यात्मिकयोगगम्यम
+> एकान्तिनो यस्य न कञ्चनार्थं वाञ्छन्ति ये वै भगवत्प्रपन्नाः\
+> अत्यद्भुतं तच्चरितं सुमङ्गलं गायन्त आनन्दसमुद्रमग्नाः ॥२०॥\
+> तमक्षरं ब्रह्म परं परेशमव्यक्तमाध्यात्मिकयोगगम्यम\
 > अतीन्द्रियं सूक्ष्ममिवातिदूरमनन्तमाद्यं परिपूर्णमीडे ॥२१॥
 
-> ekāntino yasya na kañcanārthaṁ
-> vāñchanti ye vai bhagavat-prapannāḥ
-> aty-adbhutaṁ tac-caritaṁ sumaṅgalaṁ
+> ekāntino yasya na kañcanārthaṁ\
+> vāñchanti ye vai bhagavat-prapannāḥ\
+> aty-adbhutaṁ tac-caritaṁ sumaṅgalaṁ\
 > gāyanta ānanda-samudra-magnāḥ
 
-> tam akṣaraṁ brahma paraṁ pareśam
-> avyaktam ādhyātmika-yoga-gamyam
-> atīndriyaṁ sūkṣmam ivātidūram
+> tam akṣaraṁ brahma paraṁ pareśam\
+> avyaktam ādhyātmika-yoga-gamyam\
+> atīndriyaṁ sūkṣmam ivātidūram\
 > anantam ādyaṁ paripūrṇam īḍe
 
 *ekāntinaḥ*—los devotos puros (cuyo único deseo es ser conscientes de Kṛṣṇa); *yasya*—el Señor, de quien; *na*—no; *kañcana*—alguna; *artham*—bendición; *vāñchanti*—desean; *ye*—aquellos devotos que; *vai*—en verdad; *bhagavat-prapannāḥ*—completamente entregados a los pies de loto del Señor; *ati-adbhutam*—que son maravillosas; *tat-caritam*—las actividades del Señor; *su-maṅgalam*—y muy auspicioso (el hecho de escuchar); *gāyantaḥ*—por cantar y escuchar; *ānanda*—de bienaventuranza trascendental; *samudra*—en el océano; *magnāḥ*—que están inmersos; *tam*—a Él; *akṣaram*—que existe eternamente; *brahma*—el Supremo; *param*—trascendental; *para-īśam*—el Señor de las personalidades supremas; *avyaktam*—invisible o que no puede ser percibido por la mente y los sentidos; *ādhyātmika*—trascendental; *yoga*—mediante el *bhakti-yoga*, el servicio devocional; *gamyam*—que puede obtenerse (*bhaktyā mām abhijānāti*); *ati-indriyam*—más allá de la percepción de los sentidos materiales; *sūkṣmam*—diminuta; *iva*—como; *ati-dūram*—muy lejos; *anantam*—ilimitada; *ādyam*—la causa original de todo; *paripūrṇam*—plenamente perfecto; *īḍe*—ofrezco mis reverencias.

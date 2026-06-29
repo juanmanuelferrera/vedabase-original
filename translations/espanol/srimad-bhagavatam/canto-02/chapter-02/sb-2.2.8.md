@@ -1,11 +1,11 @@
 ### SB 2.2.8
 
-> केचित्स्वदेहान्तर्हृदयावकाशे प्रादेशमात्रं पुरुषं वसन्तम् ।
+> केचित्स्वदेहान्तर्हृदयावकाशे प्रादेशमात्रं पुरुषं वसन्तम् ।\
 > चतुर्भुजं कञ्जरथाङ्गशङ्ख गदाधरं धारणया स्मरन्ति ॥८॥
 
-> kecit sva-dehāntar-hṛdayāvakāśe
-> prādeśa-mātraṁ puruṣaṁ vasantam
-> catur-bhujaṁ kañja-rathāṅga-śaṅkha-
+> kecit sva-dehāntar-hṛdayāvakāśe\
+> prādeśa-mātraṁ puruṣaṁ vasantam\
+> catur-bhujaṁ kañja-rathāṅga-śaṅkha-\
 > gadā-dharaṁ dhāraṇayā smaranti
 
 *kecit*—otros; *sva-deha-antaḥ*—dentro del cuerpo; *hṛdaya-avakāśe*—en la región del corazón; *prādeśa-mātram*—que mide solo veinte centímetros; *puruṣam*—la Personalidad de Dios; *vasantam*—que reside; *catuḥ-bhujam*—con cuatro manos; *kañja*—loto; *ratha-aṅga*—la rueda de una cuadriga; *śaṅkha*—caracola; *gadā-dharam*—y con una maza en la mano; *dhāraṇayā*—concibiendo de ese modo; *smaranti*—meditan en Él.

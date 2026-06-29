@@ -1,11 +1,11 @@
 ### SB 4.30.36
 
-> यत्र नारायणः साक्षाद्भगवान्न्यासिनां गतिः ।
+> यत्र नारायणः साक्षाद्भगवान्न्यासिनां गतिः ।\
 > संस्तूयते सत्कथासु मुक्तसङ्गैः पुनः पुनः ॥३६॥
 
-> yatra nārāyaṇaḥ sākṣād
-> bhagavān nyāsināṁ gatiḥ
-> saṁstūyate sat-kathāsu
+> yatra nārāyaṇaḥ sākṣād\
+> bhagavān nyāsināṁ gatiḥ\
+> saṁstūyate sat-kathāsu\
 > mukta-saṅgaiḥ punaḥ punaḥ
 
 *yatra*—where; *nārāyaṇaḥ*—Lord Nārāyaṇa; *sākṣāt*—directly; *bhagavān*—the Supreme Personality of Godhead; *nyāsinām*—of persons in the renounced order of life; *gatiḥ*—the ultimate goal; *saṁstūyate*—is worshiped; *sat-kathāsu*—by discussing the transcendental vibration; *mukta-saṅgaiḥ*—by those who are liberated from material contamination; *punaḥ punaḥ*—again and again.

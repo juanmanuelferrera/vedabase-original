@@ -1,9 +1,9 @@
 ### CC Antya 4.138
 
-> নিষেধিতে প্রভু আলিঙ্গন করেন মোরে ।
+> নিষেধিতে প্রভু আলিঙ্গন করেন মোরে ।\
 > মোর কণ্ডুরসা লাগে প্রভুর শরীরে ॥১৩৮॥
 
-> niṣedhite prabhu āliṅgana karena more
+> niṣedhite prabhu āliṅgana karena more\
 > mora kaṇḍu-rasā lāge prabhura śarīre
 
 *niṣedhite*—although I forbid; *prabhu*—Śrī Caitanya Mahāprabhu; *āliṅgana*—embracing; *karena*—does; *more*—unto me; *mora kaṇḍu-rasā*—my wet sores; *lāge*—touches; *prabhura*—of Śrī Caitanya Mahāprabhu; *śarīre*—on the body.

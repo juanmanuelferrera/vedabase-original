@@ -1,11 +1,11 @@
 ### SB 4.25.18
 
-> हिमनिर्झरविप्रुष्मत् कुसुमाकरवायुना ।
+> हिमनिर्झरविप्रुष्मत् कुसुमाकरवायुना ।\
 > चलत्प्रवालविटप नलिनीतटसम्पदि ॥१८॥
 
-> hima-nirjhara-vipruṣmat-
-> kusumākara-vāyunā
-> calat-pravāla-viṭapa-
+> hima-nirjhara-vipruṣmat-\
+> kusumākara-vāyunā\
+> calat-pravāla-viṭapa-\
 > nalinī-taṭa-sampadi
 
 *hima-nirjhara*—de la cascada de la helada montaña; *vipruṭ-mat*—transportar partículas de agua; *kusuma-ākara*—primavera; *vāyunā*—por el aire; *calat*—móviles; *pravāla*—ramas; *viṭapa*—árboles; *nalinī-taṭa*—en la orilla del lago con flores de loto; *sampadi*—opulento.

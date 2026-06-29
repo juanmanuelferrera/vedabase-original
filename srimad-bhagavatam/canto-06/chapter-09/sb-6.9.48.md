@@ -1,11 +1,11 @@
 ### SB 6.9.48
 
-> किं दुरापं मयि प्रीते तथापि विबुधर्षभाः
+> किं दुरापं मयि प्रीते तथापि विबुधर्षभाः\
 > मय्येकान्तमतिर्नान्यन्मत्तो वाञ्छति तत्त्ववित ॥४८॥
 
-> kiṁ durāpaṁ mayi prīte
-> tathāpi vibudharṣabhāḥ
-> mayy ekānta-matir nānyan
+> kiṁ durāpaṁ mayi prīte\
+> tathāpi vibudharṣabhāḥ\
+> mayy ekānta-matir nānyan\
 > matto vāñchati tattva-vit
 
 *kim*—what; *durāpam*—difficult to obtain; *mayi*—when I; *prīte*—satisfied; *tathāpi*—still; *vibudha-ṛṣabhāḥ*—O best of the intelligent demigods; *mayi*—in Me; *ekānta*—exclusively fixed; *matiḥ*—whose attention; *na anyat*—not anything other; *mattaḥ*—than Me; *vāñchati*—desires; *tattva-vit*—one who knows the truth.

@@ -1,13 +1,13 @@
 ### SB 4.24.33
 
-> श्रीरुद्र उवाच
-> जितं त आत्मविद्वर्य स्वस्तये स्वस्तिरस्तु मे ।
+> श्रीरुद्र उवाच\
+> जितं त आत्मविद्वर्य स्वस्तये स्वस्तिरस्तु मे ।\
 > भवताराधसा राद्धं सर्वस्मा आत्मने नमः ॥३३॥
 
-> śrī-rudra uvāca
-> jitaṁ ta ātma-vid-varya-
-> svastaye svastir astu me
-> bhavatārādhasā rāddhaṁ
+> śrī-rudra uvāca\
+> jitaṁ ta ātma-vid-varya-\
+> svastaye svastir astu me\
+> bhavatārādhasā rāddhaṁ\
 > sarvasmā ātmane namaḥ
 
 *śrī-rudraḥ uvāca*—el Señor Śiva comenzó a hablar; *jitam*—¡toda gloria!; *te*—a Ti; *ātma-vit*—autorrealizado; *varya*—el mejor; *svastaye*—al auspicioso; *svastiḥ*—lo auspicioso; *astu*—que haya; *me*—de mí; *bhavatā*—por Ti; *ārādhasā*—por el completamente perfecto; *rāddham*—digno de adoración; *sarvasmai*—el Alma Suprema; *ātmane*—al Alma Suprema; *namaḥ*—reverencias.

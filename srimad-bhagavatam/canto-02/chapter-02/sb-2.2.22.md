@@ -1,11 +1,11 @@
 ### SB 2.2.22
 
-> यदि प्रयास्यन्नृप पारमेष्ठ्यं वैहायसानामुत यद्विहारम् ।
+> यदि प्रयास्यन्नृप पारमेष्ठ्यं वैहायसानामुत यद्विहारम् ।\
 > अष्टाधिपत्यं गुणसन्निवाये सहैव गच्छेन्मनसेन्द्रियैश्च ॥२२॥
 
-> yadi prayāsyan nṛpa pārameṣṭhyaṁ
-> vaihāyasānām uta yad vihāram
-> aṣṭādhipatyaṁ guṇa-sannivāye
+> yadi prayāsyan nṛpa pārameṣṭhyaṁ\
+> vaihāyasānām uta yad vihāram\
+> aṣṭādhipatyaṁ guṇa-sannivāye\
 > sahaiva gacchen manasendriyaiś ca
 
 *yadi*—however; *prayāsyan*—maintaining a desire; *nṛpa*—O King; *pārameṣṭhyam*—the governing planet of the material world; *vaihāyasānām*—of the beings known as the Vaihāyasas; *uta*—it is said; *yat*—what is; *vihāram*—place of enjoyment; *aṣṭa-ādhipatyam*—lording it over with eightfold achievements; *guṇa-sannivāye*—in the world of three modes of nature; *saha*—along with; *eva*—certainly; *gacchet*—should go; *manasā*—accompanied by the mind; *indriyaiḥ*—and the senses; *ca*—also.

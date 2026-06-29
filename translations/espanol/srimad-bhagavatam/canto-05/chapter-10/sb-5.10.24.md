@@ -1,11 +1,11 @@
 ### SB 5.10.24
 
-> तन्मे भवान्नरदेवाभिमान मदेन तुच्छीकृतसत्तमस्य
+> तन्मे भवान्नरदेवाभिमान मदेन तुच्छीकृतसत्तमस्य\
 > कृषीष्ट मैत्रीदृशमार्तबन्धो यथा तरे सदवध्यानमंहः ॥२४॥
 
-> tan me bhavān nara-devābhimāna-
-> madena tucchīkṛta-sattamasya
-> kṛṣīṣṭa maitrī-dṛśam ārta-bandho
+> tan me bhavān nara-devābhimāna-\
+> madena tucchīkṛta-sattamasya\
+> kṛṣīṣṭa maitrī-dṛśam ārta-bandho\
 > yathā tare sad-avadhyānam aṁhaḥ
 
 *tat*—por lo tanto; *me*—a mí; *bhavān*—Tu Gracia; *nara-deva-abhimāna-madena*—por la locura debida a tener un cuerpo de rey y estar orgulloso de ello; *tucchīkṛta*—que ha insultado; *sat-tamasya*—tú, que eres el mejor de los seres humanos; *kṛṣīṣṭa*—por favor, concede; *maitrī-dṛśam*—tu misericordia sin causa a mí como un amigo; *ārta-bandho*—¡oh, amigo de todos los afligidos!; *yathā*—de manera que; *tare*—pueda liberarme de; *sat-avadhyānam*—ofender a una gran personalidad como tú; *aṁhaḥ*—el pecado.

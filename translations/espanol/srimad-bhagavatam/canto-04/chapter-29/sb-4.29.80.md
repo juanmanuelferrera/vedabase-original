@@ -1,13 +1,13 @@
 ### SB 4.29.80
 
-> मैत्रेय उवाच
-> भागवतमुख्यो भगवान्नारदो हंसयोर्गतिम् ।
+> मैत्रेय उवाच\
+> भागवतमुख्यो भगवान्नारदो हंसयोर्गतिम् ।\
 > प्रदर्श्य ह्यमुमामन्त्र्य सिद्धलोकं ततोऽगमत् ॥८०॥
 
-> maitreya uvāca
-> bhāgavata-mukhyo bhagavān
-> nārado haṁsayor gatim
-> pradarśya hy amum āmantrya
+> maitreya uvāca\
+> bhāgavata-mukhyo bhagavān\
+> nārado haṁsayor gatim\
+> pradarśya hy amum āmantrya\
 > siddha-lokaṁ tato 'gamat
 
 *maitreyaḥ uvāca*—Maitreya dijo; *bhāgavata*—de los devotos; *mukhyaḥ*—el principal; *bhagavān*—el más poderoso; *nāradaḥ*—Nārada Muni; *haṁsayoḥ*—de la entidad viviente y del Señor; *gatim*—posición constitucional; *pradarśya*—habiendo mostrado; *hi*—ciertamente; *amum*—a él (al rey); *āmantrya*—después de invitar; *siddha-lokam*—a Siddhaloka; *tataḥ*—a continuación; *agamat*—partió.

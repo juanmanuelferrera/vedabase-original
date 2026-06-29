@@ -1,9 +1,9 @@
 ### CC Madhya 7.68
 
-> অঙ্গীকার করি’ প্রভু তাঁহার বচন ৷
+> অঙ্গীকার করি’ প্রভু তাঁহার বচন ৷\
 > তাঁরে বিদায় দিতে তাঁরে কৈল আলিঙ্গন ৷৷ ৬৮ ৷৷ ॥৬৮॥
 
-> aṅgīkāra kari' prabhu tāṅhāra vacana
+> aṅgīkāra kari' prabhu tāṅhāra vacana\
 > tāṅre vidāya dite tāṅre kaila āliṅgana
 
 *aṅgīkāra kari'*—aceptando esta propuesta; *prabhu*—el Señor Caitanya Mahāprabhu; *tāṅhāra*—de él (Sārvabhauma Bhaṭṭācārya); *vacana*—la petición; *tāṅre*—a él; *vidāya dite*—para ofrecerle la despedida; *tāṅre*—a él; *kaila*—hizo; *āliṅgana*—abrazar.

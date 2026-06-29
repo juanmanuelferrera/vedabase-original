@@ -1,9 +1,9 @@
 ### CC Adi 2.84
 
-> কৃষ্ণ যদি অংশ হৈত, অংশী নারায়ণ ।
+> কৃষ্ণ যদি অংশ হৈত, অংশী নারায়ণ ।\
 > তবে বিপরীত হৈত সূতের বচন ॥৮৪॥
 
-> kṛṣṇa yadi aṁśa haita, aṁśī nārāyaṇa
+> kṛṣṇa yadi aṁśa haita, aṁśī nārāyaṇa\
 > tabe viparīta haita sūtera vacana
 
 *kṛṣṇa*—Lord Kṛṣṇa; *yadi*—if; *aṁśa*—plenary portion; *haita*—were; *aṁśī*—the source of all expansions; *nārāyaṇa*—Lord Nārāyaṇa; *tabe*—then; *viparīta*—the reverse; *haita*—would have been; *sūtera*—of Sūta Gosvāmī; *vacana*—the statement.

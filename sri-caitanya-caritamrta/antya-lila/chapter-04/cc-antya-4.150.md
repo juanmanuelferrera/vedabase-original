@@ -1,9 +1,9 @@
 ### CC Antya 4.150
 
-> দুই জন লঞা প্রভু বসিলা পিণ্ডাতে  ।
+> দুই জন লঞা প্রভু বসিলা পিণ্ডাতে  ।\
 > নির্বিণ্ণ সনাতন লাগিলা কহিতে ॥১৫০॥
 
-> dui jana lañā prabhu vasilā piṇḍāte
+> dui jana lañā prabhu vasilā piṇḍāte\
 > nirviṇṇa sanātana lāgilā kahite
 
 *dui jana lañā*—taking the two of them; *prabhu*—Śrī Caitanya Mahāprabhu; *vasilā*—sat down; *piṇḍāte*—on the altar; *nirviṇṇa*—advanced in renunciation; *sanātana*—Sanātana Gosvāmī; *lāgilā kahite*—began to speak.

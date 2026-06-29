@@ -1,11 +1,11 @@
 ### SB 4.18.13
 
-> तथापरे च सर्वत्र सारमाददते बुधाः ।
+> तथापरे च सर्वत्र सारमाददते बुधाः ।\
 > ततोऽन्ये च यथाकामं दुदुहुः पृथुभाविताम् ॥१३॥
 
-> tathāpare ca sarvatra
-> sāram ādadate budhāḥ
-> tato 'nye ca yathā-kāmaṁ
+> tathāpare ca sarvatra\
+> sāram ādadate budhāḥ\
+> tato 'nye ca yathā-kāmaṁ\
 > duduhuḥ pṛthu-bhāvitām
 
 *tathā*—so; *apare*—others; *ca*—also; *sarvatra*—everywhere; *sāram*—the essence; *ādadate*—took; *budhāḥ*—the intelligent class of men; *tataḥ*—thereafter; *anye*—others; *ca*—also; *yathā-kāmam*—as much as they desired; *duduhuḥ*—milked; *pṛthu-bhāvitām*—the planet earth, controlled by Pṛthu Mahārāja.

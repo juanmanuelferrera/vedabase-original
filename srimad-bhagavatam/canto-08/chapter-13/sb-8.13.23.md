@@ -1,11 +1,11 @@
 ### SB 8.13.23
 
-> विष्वक्सेनो विषूच्यां तु शम्भोः सख्यं करिष्यति
+> विष्वक्सेनो विषूच्यां तु शम्भोः सख्यं करिष्यति\
 > जातः स्वांशेन भगवान्गृहे विश्वसृजो विभुः ॥२३॥
 
-> viṣvakseno viṣūcyāṁ tu
-> śambhoḥ sakhyaṁ kariṣyati
-> jātaḥ svāṁśena bhagavān
+> viṣvakseno viṣūcyāṁ tu\
+> śambhoḥ sakhyaṁ kariṣyati\
+> jātaḥ svāṁśena bhagavān\
 > gṛhe viśvasṛjo vibhuḥ
 
 *viṣvaksenaḥ*—Viṣvaksena; *viṣūcyām*—in the womb of Viṣūcī; *tu*—then; *śambhoḥ*—of Śambhu; *sakhyam*—friendship; *kariṣyati*—will create; *jātaḥ*—being born; *sva-aṁśena*—by a plenary portion; *bhagavān*—the Supreme Personality of Godhead; *gṛhe*—in the home; *viśvasṛjaḥ*—of Viśvasraṣṭā; *vibhuḥ*—the supremely powerful Lord.

@@ -1,11 +1,11 @@
 ### SB 4.27.25
 
-> द्वाविमावनुशोचन्ति बालावसदवग्रहौ ।
+> द्वाविमावनुशोचन्ति बालावसदवग्रहौ ।\
 > यल्लोकशास्त्रोपनतं न राति न तदिच्छति ॥२५॥
 
-> dvāv imāv anuśocanti
-> bālāv asad-avagrahau
-> yal loka-śāstropanataṁ
+> dvāv imāv anuśocanti\
+> bālāv asad-avagrahau\
+> yal loka-śāstropanataṁ\
 > na rāti na tad icchati
 
 *dvau*—dos clases; *imau*—estas; *anuśocanti*—se lamentan; *bālau*—ignorantes; *asat*—los necios; *avagrahau*—siguen el sendero de; *yat*—el cual; *loka*—por costumbre; *śāstra*—por Escrituras; *upanatam*—presentado; *na*—nunca; *rāti*—sigue; *na*—ni; *tat*—eso; *icchati*—desea.

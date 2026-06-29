@@ -1,11 +1,11 @@
 ### SB 6.8.42
 
-> एतां विद्यामधिगतो विश्वरूपाच्छतक्रतुः
+> एतां विद्यामधिगतो विश्वरूपाच्छतक्रतुः\
 > त्रैलोक्यलक्ष्मीं बुभुजे विनिर्जित्य मृधेऽसुरान ॥४२॥
 
-> etāṁ vidyām adhigato
-> viśvarūpāc chatakratuḥ
-> trailokya-lakṣmīṁ bubhuje
+> etāṁ vidyām adhigato\
+> viśvarūpāc chatakratuḥ\
+> trailokya-lakṣmīṁ bubhuje\
 > vinirjitya mṛdhe 'surān
 
 *etām*—esta; *vidyām*—oración; *adhigataḥ*—recibió; *viśvarūpāt*—del *brāhmaṇa* Viśvarūpa; *śata-kratuḥ*—Indra, el rey del cielo; *trailokya-lakṣmīm*—de toda la opulencia de los tres mundos; *bubhuje*—disfrutó; *vinirjitya*—conquistar; *mṛdhe*—en la batalla; *asurān*—a todos los demonios.

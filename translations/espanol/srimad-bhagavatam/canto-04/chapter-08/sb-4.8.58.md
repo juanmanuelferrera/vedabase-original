@@ -1,11 +1,11 @@
 ### SB 4.8.58
 
-> परिचर्या भगवतो यावत्यः पूर्वसेविताः ।
+> परिचर्या भगवतो यावत्यः पूर्वसेविताः ।\
 > ता मन्त्रहृदयेनैव प्रयुञ्ज्यान्मन्त्रमूर्तये ॥५८॥
 
-> paricaryā bhagavato
-> yāvatyaḥ pūrva-sevitāḥ
-> tā mantra-hṛdayenaiva
+> paricaryā bhagavato\
+> yāvatyaḥ pūrva-sevitāḥ\
+> tā mantra-hṛdayenaiva\
 > prayuñjyān mantra-mūrtaye
 
 *paricaryāḥ*—servicio; *bhagavataḥ*—de la Personalidad de Dios; *yāvatyaḥ*—como se prescriben (como antes se mencionó); *pūrva-sevitāḥ*—recomendado o hecho por *ācāryas* anteriores; *tāḥ*—ese; *mantra*—himnos; *hṛdayena*—en el corazón; *eva*—ciertamente; *prayuñjyāt*—se debe adorar; *mantra-mūrtaye*—que no es diferente del *mantra.*.

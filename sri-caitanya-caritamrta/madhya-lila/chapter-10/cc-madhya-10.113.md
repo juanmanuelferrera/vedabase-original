@@ -1,9 +1,9 @@
 ### CC Madhya 10.113
 
-> ভক্তিসিদ্ধান্ত-বিরুদ্ধ, আর রসাভাস ।
+> ভক্তিসিদ্ধান্ত-বিরুদ্ধ, আর রসাভাস ।\
 > শুনিতে না হয় প্রভুর চিত্তের উল্লাস ॥১১৩॥
 
-> bhakti-siddhānta-viruddha, āra rasābhāsa
+> bhakti-siddhānta-viruddha, āra rasābhāsa\
 > śunite nā haya prabhura cittera ullāsa
 
 *bhakti-siddhānta*—conclusive statements about the science of devotional service; *viruddha*—opposing; *āra*—and; *rasa-ābhāsa*—overlapping of transcendental mellows; *śunite*—to hear; *nā*—not; *haya*—becomes; *prabhura*—of Śrī Caitanya Mahāprabhu; *cittera*—of the heart; *ullāsa*—jubilation.

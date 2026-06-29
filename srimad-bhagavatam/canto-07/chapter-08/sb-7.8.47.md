@@ -1,13 +1,13 @@
 ### SB 7.8.47
 
-> श्रीनागा ऊचुः
-> येन पापेन रत्नानि स्त्रीरत्नानि हृतानि नः
+> श्रीनागा ऊचुः\
+> येन पापेन रत्नानि स्त्रीरत्नानि हृतानि नः\
 > तद्वक्षःपाटनेनासां दत्तानन्द नमोऽस्तु ते ॥४७॥
 
-> śrī-nāgā ūcuḥ
-> yena pāpena ratnāni
-> strī-ratnāni hṛtāni naḥ
-> tad-vakṣaḥ-pāṭanenāsāṁ
+> śrī-nāgā ūcuḥ\
+> yena pāpena ratnāni\
+> strī-ratnāni hṛtāni naḥ\
+> tad-vakṣaḥ-pāṭanenāsāṁ\
 > dattānanda namo 'stu te
 
 *śrī-nāgāḥ ūcuḥ*—the inhabitants of Nāgaloka, who look like serpents, said; *yena*—by which person; *pāpena*—the most sinful (Hiraṇyakaśipu); *ratnāni*—the jewels on our heads; *strī-ratnāni*—beautiful wives; *hṛtāni*—taken away; *naḥ*—our; *tat*—his; *vakṣaḥ-pāṭanena*—by the piercing of the chest; *āsām*—of all the women (who were kidnapped); *datta-ānanda*—O Lord, You are the source of the pleasure; *namaḥ*—our respectful obeisances; *astu*—let there be; *te*—unto You.

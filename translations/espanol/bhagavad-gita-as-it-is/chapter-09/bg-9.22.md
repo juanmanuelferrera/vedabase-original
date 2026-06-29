@@ -1,11 +1,11 @@
 ### Bg 9.22
 
-> अनन्याश्चिन्तयन्तो मां ये जनाः पर्युपासते ।
+> अनन्याश्चिन्तयन्तो मां ये जनाः पर्युपासते ।\
 > तेषां नित्याभियुक्तानां योगक्षेमं वहाम्यहम् ॥२२॥
 
-> ananyāś cintayanto māṁ
-> ye janāḥ paryupāsate
-> teṣāṁ nityābhiyuktānāṁ
+> ananyāś cintayanto māṁ\
+> ye janāḥ paryupāsate\
+> teṣāṁ nityābhiyuktānāṁ\
 > yoga-kṣemaṁ vahāmy aham
 
 *ananyāḥ*—ningún otro; *cintayantaḥ*—concentrándose; *mām*—en Mí; *ye*—quien; *janāḥ*—personas; *paryupāsate*—adoran debidamente; *teṣām*—ellos; *nitya*—siempre; *abhiyuktānām*—fijo en la devoción; *yoga-kṣemam*—requisitos; *vahāmi*—llevo; *aham*—Yo.

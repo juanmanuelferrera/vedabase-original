@@ -1,11 +1,11 @@
 ### SB 8.14.10
 
-> स्तूयमानो जनैरेभिर्मायया नामरूपया
+> स्तूयमानो जनैरेभिर्मायया नामरूपया\
 > विमोहितात्मभिर्नाना दर्शनैर्न च दृश्यते ॥१०॥
 
-> stūyamāno janair ebhir
-> māyayā nāma-rūpayā
-> vimohitātmabhir nānā-
+> stūyamāno janair ebhir\
+> māyayā nāma-rūpayā\
+> vimohitātmabhir nānā-\
 > darśanair na ca dṛśyate
 
 *stūyamānaḥ*—being sought; *janaiḥ*—by people in general; *ebhiḥ*—by all of them; *māyayā*—under the influence of *māyā*; *nāma-rūpayā*—possessing different names and forms; *vimohita*—bewildered; *ātmabhiḥ*—by illusion; *nānā*—various; *darśanaiḥ*—by philosophical approaches; *na*—not; *ca*—and; *dṛśyate*—the Supreme Personality of Godhead can be found.

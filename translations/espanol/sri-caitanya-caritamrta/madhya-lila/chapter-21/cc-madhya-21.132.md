@@ -1,13 +1,13 @@
 ### CC Madhya 21.132
 
-> যাঁর পুণ্যপুঞ্জফলে, সে-মুখ-দর্শন মিলে,
-> দুই আঁখি কি করিবে পানে ?
-> দ্বিগুণ বাড়ে তৃষ্ণা-লোভ, পিতে নারে — মনঃক্ষোভ,
+> যাঁর পুণ্যপুঞ্জফলে, সে-মুখ-দর্শন মিলে,\
+> দুই আঁখি কি করিবে পানে ?\
+> দ্বিগুণ বাড়ে তৃষ্ণা-লোভ, পিতে নারে — মনঃক্ষোভ,\
 > দুঃখে করে বিধির নিন্দনে ॥১৩২॥
 
-> yāṅra puṇya-puñja-phale, se-mukha-darśana mile,
-> dui āṅkhi ki karibe pāne?
-> dviguṇa bāḍe tṛṣṇā-lobha, pite nāre--manaḥ-kṣobha,
+> yāṅra puṇya-puñja-phale, se-mukha-darśana mile,\
+> dui āṅkhi ki karibe pāne?\
+> dviguṇa bāḍe tṛṣṇā-lobha, pite nāre--manaḥ-kṣobha,\
 > duḥkhe kare vidhira nindane
 
 *yāṅra*—cuyo; *puṇya-puñja-phale*—por el resultado de muchas actividades piadosas; *se-mukha*—de ese rostro; *darśana*—ver; *mile*—si uno logra hacerlo; *dui āṅkhi*—dos ojos; *ki*—cómo; *karibe*—harán; *pāne*—bebiendo; *dvi-guṇa*—el doble; *bāḍe*—aumenta; *tṛṣṇā-lobha*—avidez y sed; *pite*—para beber; *nāre*—incapaz; *manaḥ-kṣobha*—agitación de la mente; *duḥkhe*—con gran angustia; *kare*—hace; *vidhira*—del creador; *nindane*—criticando.

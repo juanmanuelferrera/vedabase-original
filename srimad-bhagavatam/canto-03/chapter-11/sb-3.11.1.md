@@ -1,13 +1,13 @@
 ### SB 3.11.1
 
-> मैत्रेय उवाच
-> चरमः सद्विशेषाणामनेकोऽसंयुतः सदा ।
+> मैत्रेय उवाच\
+> चरमः सद्विशेषाणामनेकोऽसंयुतः सदा ।\
 > परमाणुः स विज्ञेयो नृणामैक्यभ्रमो यतः ॥१॥
 
-> maitreya uvāca
-> caramaḥ sad-viśeṣāṇām
-> aneko 'saṁyutaḥ sadā
-> paramāṇuḥ sa vijñeyo
+> maitreya uvāca\
+> caramaḥ sad-viśeṣāṇām\
+> aneko 'saṁyutaḥ sadā\
+> paramāṇuḥ sa vijñeyo\
 > nṛṇām aikya-bhramo yataḥ
 
 *maitreyaḥ uvāca*—Maitreya said; *caramaḥ*—ultimate; *sat*—effect; *viśeṣāṇām*—symptoms; *anekaḥ*—innumerable; *asaṁyutaḥ*—unmixed; *sadā*—always; *parama-aṇuḥ*—atoms; *saḥ*—that; *vijñeyaḥ*—should be understood; *nṛṇām*—of men; *aikya*—oneness; *bhramaḥ*—mistaken; *yataḥ*—from which.

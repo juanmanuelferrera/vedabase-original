@@ -1,9 +1,9 @@
 ### CC Adi 14.9
 
-> মিশ্র কহে, — বালগোপাল আছে শিলা-সঙ্গে ।
+> মিশ্র কহে, — বালগোপাল আছে শিলা-সঙ্গে ।\
 > তেঁহো মূর্তি হঞা ঘরে খেলে, জানি, রঙ্গে ॥৯॥
 
-> miśra kahe,—bālagopāla āche śilā-saṅge
+> miśra kahe,—bālagopāla āche śilā-saṅge\
 > teṅho mūrti hañā ghare khele, jāni, raṅge
 
 *miśra kahe*—Jagannātha Miśra said; *bāla-gopāla*—Lord Kṛṣṇa as a child; *āche*—there is; *śilā-saṅge*—along with the *śālagrāma-śilā*; *teṅho*—He; *mūrtihañā*—taking His transcendental form; *ghare*—within the room; *khele*—plays; *jāni*—I understand; *raṅge*—in curiosity.

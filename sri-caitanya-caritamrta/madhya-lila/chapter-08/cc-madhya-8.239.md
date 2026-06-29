@@ -1,9 +1,9 @@
 ### CC Madhya 8.239
 
-> যৈছে শুনিলুঁ, তৈছে দেখিলুঁ তোমার মহিমা ।
+> যৈছে শুনিলুঁ, তৈছে দেখিলুঁ তোমার মহিমা ।\
 > রাধাকৃষ্ণ-প্রেমরস-জ্ঞানের তুমি সীমা ॥২৩৯॥
 
-> yaiche śuniluṅ, taiche dekhiluṅ tomāra mahimā
+> yaiche śuniluṅ, taiche dekhiluṅ tomāra mahimā\
 > rādhā-kṛṣṇa-premarasa-jñānera tumi sīmā
 
 *yaiche*—as much; *śuniluṅ*—as I have heard; *taiche*—that much; *dekhiluṅ*—I have seen; *tomāra mahimā*—your glories; *rādhā-kṛṣṇa-prema-rasa-jñānera*—of transcendental knowledge about the loving affairs of Rādhā and Kṛṣṇa; *tumi*—you; *sīmā*—the ultimate goal.

@@ -1,11 +1,11 @@
 ### SB 3.21.31
 
-> कृत्वा दयां च जीवेषु दत्त्वा चाभयमात्मवान् ।
+> कृत्वा दयां च जीवेषु दत्त्वा चाभयमात्मवान् ।\
 > मय्यात्मानं सह जगद्द्रक्ष्यस्यात्मनि चापि माम् ॥३१॥
 
-> kṛtvā dayāṁ ca jīveṣu
-> dattvā cābhayam ātmavān
-> mayy ātmānaṁ saha jagad
+> kṛtvā dayāṁ ca jīveṣu\
+> dattvā cābhayam ātmavān\
+> mayy ātmānaṁ saha jagad\
 > drakṣyasy ātmani cāpi mām
 
 *kṛtvā*—having shown; *dayām*—compassion; *ca*—and; *jīveṣu*—toward living beings; *dattvā*—having given; *ca*—and; *abhayam*—assurance of safety; *ātma-vān*—self-realized; *mayi*—in Me; *ātmānam*—yourself; *saha jagat*—along with the universe; *drakṣyasi*—you will perceive; *ātmani*—in yourself; *ca*—and; *api*—also; *mām*—Me.

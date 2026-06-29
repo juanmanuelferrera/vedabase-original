@@ -1,9 +1,9 @@
 ### CC Madhya 1.245
 
-> মথুরা পাঠাইলা তাঁরে দিয়া ভক্তিবল ।
+> মথুরা পাঠাইলা তাঁরে দিয়া ভক্তিবল ।\
 > সন্ন্যাসীরে কৃপা করি’ গেলা নীলাচল ॥২৪৫॥
 
-> mathurā pāṭhāilā tāṅre diyā bhakti-bala
+> mathurā pāṭhāilā tāṅre diyā bhakti-bala\
 > sannyāsīre kṛpā kari' gelā nīlācala
 
 *mathurā*—a Mathurā; *pāṭhāilā*—envió; *tāṅre*—a él; *diyā*—dar; *bhakti-bala*—la fuerza de la devoción; *sannyāsīre*—a los *sannyāsīs māyāvādīs*; *kṛpā*—misericordia; *kari’*—dar; *gelā*—regresó; *nīlācala*—a Jagannātha Purī.

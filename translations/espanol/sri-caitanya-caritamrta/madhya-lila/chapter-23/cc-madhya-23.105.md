@@ -1,9 +1,9 @@
 ### CC Madhya 23.105
 
-> যুক্তবৈরাগ্য-স্থিতি সব শিখাইল ।
+> যুক্তবৈরাগ্য-স্থিতি সব শিখাইল ।\
 > শুষ্কবৈরাগ্য-জ্ঞান সব নিষেধিল ॥১০৫॥
 
-> yukta-vairāgya-sthiti saba śikhāila
+> yukta-vairāgya-sthiti saba śikhāila\
 > śuṣka-vairāgya-jñāna saba niṣedhila
 
 *yukta-vairāgya*—de la renunciación apropiada; *sthiti*—la situación; *saba*—todo; *śikhāila*—instruyó; *śuṣka-vairāgya*—renunciación seca; *jñāna*—conocimiento especulativo; *saba*—todo; *niṣedhila*—prohibió.

@@ -1,11 +1,11 @@
 ### SB 1.19.17
 
-> इति स्म राजाध्यवसाययुक्तः प्राचीनमूलेषु कुशेषु धीरः ।
+> इति स्म राजाध्यवसाययुक्तः प्राचीनमूलेषु कुशेषु धीरः ।\
 > उदङ्मुखो दक्षिणकूल आस्ते समुद्रपत्न्याः स्वसुतन्यस्तभारः ॥१७॥
 
-> iti sma rājādhyavasāya-yuktaḥ
-> prācīna-mūleṣu kuśeṣu dhīraḥ
-> udaṅ-mukho dakṣiṇa-kūla āste
+> iti sma rājādhyavasāya-yuktaḥ\
+> prācīna-mūleṣu kuśeṣu dhīraḥ\
+> udaṅ-mukho dakṣiṇa-kūla āste\
 > samudra-patnyāḥ sva-suta-nyasta-bhāraḥ
 
 *iti*—thus; *sma*—as in the past; *rājā*—the King; *adhyavasāya*—perseverance; *yuktaḥ*—being engaged; *prācīna*—eastern; *mūleṣu*—with the root; *kuśeṣu*—on a seat made of *kuśa* straw; *dhīraḥ*—self-controlled; *udaṅ-mukhaḥ*—facing the northern side; *dakṣiṇa*—on the southern; *kūle*—bank; *āste*—situated; *samudra*—the sea; *patnyāḥ*—wife of (the Ganges); *sva*—own; *suta*—son; *nyasta*—given over; *bhāraḥ*—the charge of administration.

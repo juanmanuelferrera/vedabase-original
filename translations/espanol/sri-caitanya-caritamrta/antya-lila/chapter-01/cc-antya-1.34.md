@@ -1,9 +1,9 @@
 ### CC Antya 1.34
 
-> এথা প্রভু-আজ্ঞায় রূপ আইলা বৃন্দাবন ।
+> এথা প্রভু-আজ্ঞায় রূপ আইলা বৃন্দাবন ।\
 > কৃষ্ণলীলা-নাটক করিতে হৈল মন ॥৩৪॥
 
-> ethā prabhu-ājñāya rūpa āilā vṛndāvana
+> ethā prabhu-ājñāya rūpa āilā vṛndāvana\
 > kṛṣṇa-līlā-nāṭaka karite haila mana
 
 *ethā*—por otro lado; *prabhu-ājñāya*—por orden de Śrī Caitanya Mahāprabhu; *rūpa*—Rūpa Gosvāmī; *āilā*—fue; *vṛndāvana*—a Vṛndāvana; *kṛṣṇa-līlā-nāṭaka*—un drama sobre los pasatiempos del Señor Kṛṣṇa; *karite*—componer; *haila*—fue; *mana*—la mente.

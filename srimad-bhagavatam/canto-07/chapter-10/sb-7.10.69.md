@@ -1,11 +1,11 @@
 ### SB 7.10.69
 
-> देवर्षिपितृसिद्धेशा जयेति कुसुमोत्करैः
+> देवर्षिपितृसिद्धेशा जयेति कुसुमोत्करैः\
 > अवाकिरन्जगुर्हृष्टा ननृतुश्चाप्सरोगणाः ॥६९॥
 
-> evaṁ dagdhvā puras tisro
-> bhagavān pura-hā nṛpa
-> brahmādibhiḥ stūyamānaḥ
+> evaṁ dagdhvā puras tisro\
+> bhagavān pura-hā nṛpa\
+> brahmādibhiḥ stūyamānaḥ\
 > svaṁ dhāma pratyapadyata
 
 *evam*—thus; *dagdhvā*—burning to ashes; *puraḥ tisraḥ*—the three residences of the demons; *bhagavān*—the supreme powerful; *pura-hā*—who annihilated the residences of the *asuras*; *nṛpa*—O King Yudhiṣṭhira; *brahma-ādibhiḥ*—by Lord Brahmā and other demigods; *stūyamānaḥ*—being worshiped; *svam*—to his own; *dhāma*—abode; *pratyapadyata*—returned.

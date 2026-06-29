@@ -1,9 +1,9 @@
 ### CC Antya 3.150
 
-> সর্বজ্ঞ নিত্যানন্দ আইলা তার ঘরে ।
+> সর্বজ্ঞ নিত্যানন্দ আইলা তার ঘরে ।\
 > আসিয়া বসিলা দুর্গামণ্ডপ-উপরে ॥১৫০॥
 
-> sarvajña nityānanda āilā tāra ghare
+> sarvajña nityānanda āilā tāra ghare\
 > āsiyā vasilā durgā-maṇḍapa-upare
 
 *sarva-jña*—omniscient; *nityānanda*—Lord Nityānanda; *āilā*—*came*; *tāra ghare*—at his house; *āsiyā*—coming; *vasilā*—sat down; *durgā-maṇḍapa-upare*—on the altar of the Durgā-maṇḍapa.

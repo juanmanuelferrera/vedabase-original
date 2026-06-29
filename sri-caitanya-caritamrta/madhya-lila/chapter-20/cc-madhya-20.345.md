@@ -1,11 +1,11 @@
 ### CC Madhya 20.345
 
-> কৃতে যদ্ধ্যায়তো বিষ্ণুং ত্রেতায়াং যজতো মখৈঃ ।
+> কৃতে যদ্ধ্যায়তো বিষ্ণুং ত্রেতায়াং যজতো মখৈঃ ।\
 > দ্বাপরে পরিচর্যায়াং কলৌ তদ্ধরিকীর্তনাৎ ॥৩৪৫॥
 
-> kṛte yad dhyāyato viṣṇuṁ
-> tretāyāṁ yajato makhaiḥ
-> dvāpare paricaryāyāṁ
+> kṛte yad dhyāyato viṣṇuṁ\
+> tretāyāṁ yajato makhaiḥ\
+> dvāpare paricaryāyāṁ\
 > kalau tad dhari-kīrtanāt
 
 *kṛte*—in the Satya-yuga; *yat*—which; *dhyāyataḥ*—from meditation; *viṣṇum*—on Lord Viṣṇu; *tretāyām*—in the Tretā-yuga; *yajataḥ*—from worshiping; *makhaiḥ*—by performing sacrifices; *dvāpare*—in the age of Dvāpara; *paricaryāyām*—by worshiping the lotus feet of Kṛṣṇa; *kalau*—in the Age of Kali; *tat*—that same result (can be achieved); *hari-kīrtanāt*—simply by chanting the Hare Kṛṣṇa mahā-mantra.

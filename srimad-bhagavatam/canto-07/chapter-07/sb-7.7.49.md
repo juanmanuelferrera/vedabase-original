@@ -1,11 +1,11 @@
 ### SB 7.7.49
 
-> सर्वेषामपि भूतानां हरिरात्मेश्वरः प्रियः
+> सर्वेषामपि भूतानां हरिरात्मेश्वरः प्रियः\
 > भूतैर्महद्भिः स्वकृतैः कृतानां जीवसंज्ञइतः ॥४९॥
 
-> sarveṣām api bhūtānāṁ
-> harir ātmeśvaraḥ priyaḥ
-> bhūtair mahadbhiḥ sva-kṛtaiḥ
+> sarveṣām api bhūtānāṁ\
+> harir ātmeśvaraḥ priyaḥ\
+> bhūtair mahadbhiḥ sva-kṛtaiḥ\
 > kṛtānāṁ jīva-saṁjñitaḥ
 
 *sarveṣām*—of all; *api*—certainly; *bhūtānām*—living entities; *hariḥ*—the Lord, who mitigates all the miseries of the living entity; *ātmā*—the original source of life; *īśvaraḥ*—the complete controller; *priyaḥ*—the dear; *bhūtaiḥ*—by the separated energies, the five material elements; *mahadbhiḥ*—emanating from the total material energy, the *mahat-tattva*; *sva-kṛtaiḥ*—which are manifested by Himself; *kṛtānām*—created; *jīva-saṁjñitaḥ*—who is also known as the living entity, since the living entities are expansions of His marginal energy.

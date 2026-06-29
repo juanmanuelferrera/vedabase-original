@@ -1,13 +1,13 @@
 ### SB 2.4.12
 
-> श्रीशुक उवाच
-> नमः परस्मै पुरुषाय भूयसे सदुद्भवस्थाननिरोधलीलया ।
+> श्रीशुक उवाच\
+> नमः परस्मै पुरुषाय भूयसे सदुद्भवस्थाननिरोधलीलया ।\
 > गृहीतशक्तित्रितयाय देहिनामन्तर्भवायानुपलक्ष्यवर्त्मने ॥१२॥
 
-> śrī-śuka uvāca
-> namaḥ parasmai puruṣāya bhūyase
-> sad-udbhava-sthāna-nirodha-līlayā
-> gṛhīta-śakti-tritayāya dehinām
+> śrī-śuka uvāca\
+> namaḥ parasmai puruṣāya bhūyase\
+> sad-udbhava-sthāna-nirodha-līlayā\
+> gṛhīta-śakti-tritayāya dehinām\
 > antarbhavāyānupalakṣya-vartmane
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *namaḥ*—offering obeisances; *parasmai*—the Supreme; *puruṣāya*—Personality of Godhead; *bhūyase*—unto the complete whole; *sad-udbhava*—the creation of the material world; *sthāna*—its maintenance; *nirodha*—and its winding up; *līlayā*—by the pastime of; *gṛhīta*—having accepted; *śakti*—power; *tritayāya*—three modes; *dehinām*—of all who possess material bodies; *antaḥ-bhavāya*—unto Him who resides within; *anupalakṣya*—inconceivable; *vartmane*—one who has such ways.

@@ -1,11 +1,11 @@
 ### SB 6.12.21
 
-> खल्विदं महदाश्चर्यं यद्रजःप्रकृतेस्तव
+> खल्विदं महदाश्चर्यं यद्रजःप्रकृतेस्तव\
 > वासुदेवे भगवति सत्त्वात्मनि दृढा मतिः ॥२१॥
 
-> khalv idaṁ mahad āścaryaṁ
-> yad rajaḥ-prakṛtes tava
-> vāsudeve bhagavati
+> khalv idaṁ mahad āścaryaṁ\
+> yad rajaḥ-prakṛtes tava\
+> vāsudeve bhagavati\
 > sattvātmani dṛḍhā matiḥ
 
 *khalu*—indeed; *idam*—this; *mahat āścaryam*—great wonder; *yat*—which; *rajaḥ*—influenced by the mode of passion; *prakṛteḥ*—whose nature; *tava*—of you; *vāsudeve*—in Lord Kṛṣṇa; *bhagavati*—the Supreme Personality of Godhead; *sattva-ātmani*—who is situated in pure goodness; *dṛḍhā*—firm; *matiḥ*—consciousness.

@@ -1,11 +1,11 @@
 ### SB 7.15.71
 
-> एकदा देवसत्रे तु गन्धर्वाप्सरसां गणाः
+> एकदा देवसत्रे तु गन्धर्वाप्सरसां गणाः\
 > उपहूता विश्वसृग्भिर्हरिगाथोपगायने ॥७१॥
 
-> ekadā deva-satre tu
-> gandharvāpsarasāṁ gaṇāḥ
-> upahūtā viśva-sṛgbhir
+> ekadā deva-satre tu\
+> gandharvāpsarasāṁ gaṇāḥ\
+> upahūtā viśva-sṛgbhir\
 > hari-gāthopagāyane
 
 *ekadā*—en cierta ocasión; *deva-satre*—en una asamblea de los semidioses; *tu*—en verdad; *gandharva*—de los habitantes de Gandharvaloka; *apsarasām*—y las habitantes de Apsaraloka; *gaṇāḥ*—todos; *upahūtāḥ*—fuimos invitados; *viśva-sṛgbhiḥ*—por los grandes semidioses denominados *prajāpatis*; *hari-gātha-upagāyane*—con ocasión de un *kīrtana* para glorificar al Señor.

@@ -1,9 +1,9 @@
 ### CC Adi 1.108-109
 
-> śrī-caitanya-nityānanda-advaita-mahattva
+> śrī-caitanya-nityānanda-advaita-mahattva\
 > tāṅra bhakta-bhakti-nāma-prema-rasa-tattva
 
-> bhinna bhinna likhiyāchi kariyā vicāra
+> bhinna bhinna likhiyāchi kariyā vicāra\
 > śunile jānibe saba vastu-tattva-sāra
 
 *śrī-caitanya*—do Senhor Caitanya Mahāprabhu; *nityānanda*—do Senhor Nityānanda; *advaita*—de Śrī Advaita; *mahattva*—grandeza; *tāṅra*—Seus; *bhakta*—devotos; *bhakti*—devoção; *nāma*—nomes; *prema*—amor; *rasa*—doçuras; *tattva*—natureza real; *bhinna bhinna*—diferentes; *likhiyāchi*—escrevi; *kariyā*—fazendo; *vicāra*—consideração; *śunile*—ao ouvir; *jānibe*—conhecerá; *saba*—toda; *vastu-tattva-sāra*—a essência da Verdade Absoluta.

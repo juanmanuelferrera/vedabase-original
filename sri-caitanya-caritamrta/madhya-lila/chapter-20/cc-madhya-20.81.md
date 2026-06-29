@@ -1,9 +1,9 @@
 ### CC Madhya 20.81
 
-> সনাতন কহে, — “আমি মাধুকরী করিব ।
+> সনাতন কহে, — “আমি মাধুকরী করিব ।\
 > ব্রাহ্মণের ঘরে কেনে একত্র ভিক্ষা লব ?” ॥ ৮১ ॥
 
-> sanātana kahe,—"āmi mādhukarī kariba
+> sanātana kahe,—"āmi mādhukarī kariba\
 > brāhmaṇera ghare kene ekatra bhikṣā laba?"
 
 *sanātana kahe*—Sanātana replied; *āmi*—I; *mādhukarī kariba*—shall practice acceptance of food by mādhukarī means; *brāhmaṇera ghare*—in the house of a brāhmaṇa; *kene*—why; *ekatra*—in one place; *bhikṣā laba*—I should accept lunch.

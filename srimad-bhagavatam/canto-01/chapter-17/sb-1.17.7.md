@@ -1,11 +1,11 @@
 ### SB 1.17.7
 
-> त्वं वा मृणालधवलः पादैर्न्यूनः पदा चरन् ।
+> त्वं वा मृणालधवलः पादैर्न्यूनः पदा चरन् ।\
 > वृषरूपेण किं कश्चिद्देवो नः परिखेदयन् ॥७॥
 
-> tvaṁ vā mṛṇāla-dhavalaḥ
-> pādair nyūnaḥ padā caran
-> vṛṣa-rūpeṇa kiṁ kaścid
+> tvaṁ vā mṛṇāla-dhavalaḥ\
+> pādair nyūnaḥ padā caran\
+> vṛṣa-rūpeṇa kiṁ kaścid\
 > devo naḥ parikhedayan
 
 *tvam*—you; *vā*—either; *mṛṇāla-dhavalaḥ*—as white as a lotus; *pādaiḥ*—of three legs; *nyūnaḥ*—being deprived; *padā*—on one leg; *caran*—moving; *vṛṣa*—bull; *rūpeṇa*—in the form of; *kim*—whether; *kaścit*—someone; *devaḥ*—demigod; *naḥ*—us; *parikhedayan*—causing grief.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.321
 
-> চৌদ্দ এক দিনে, মাসে চারিশত বিশ ।
+> চৌদ্দ এক দিনে, মাসে চারিশত বিশ ।\
 > ব্রহ্মার বৎসরে পঞ্চসহস্র চল্লিশ ॥৩২১॥
 
-> caudda eka dine, māse cāri-śata biśa
+> caudda eka dine, māse cāri-śata biśa\
 > brahmāra vatsare pañca-sahasra calliśa
 
 *caudda*—14; *eka dine*—en un día; *māse*—en un mes; *cāri-śata biśa*—420; *brahmāra vatsare*—en un año de Brahmā; *pañca-sahasra calliśa*—5.040 avatāras.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.218
 
-> অদ্বৈত-গৃহে প্রভুর বিলাস শুনে যেই জন ।
+> অদ্বৈত-গৃহে প্রভুর বিলাস শুনে যেই জন ।\
 > অচিরে মিলয়ে তাঁরে কৃষ্ণপ্রেম-ধন ॥২১৮॥
 
-> advaita-gṛhe prabhura vilāsa śune yei jana
+> advaita-gṛhe prabhura vilāsa śune yei jana\
 > acire milaye tāṅre kṛṣṇa-prema-dhana
 
 *advaita-gṛhe*—at the house of Advaita Ācārya; *prabhura*—of the Lord; *vilāsa*—the pastimes; *śune*—hears; *yei*—one who; *jana*—person; *acire*—very soon; *milaye*—meets; *tāṅre*—him; *kṛṣṇa-prema-dhana*—the riches of love of Godhead.

@@ -1,13 +1,13 @@
 ### SB 2.3.1
 
-> श्रीशुक उवाच
-> एवमेतन्निगदितं पृष्टवान्यद्भवान्मम ।
+> श्रीशुक उवाच\
+> एवमेतन्निगदितं पृष्टवान्यद्भवान्मम ।\
 > नृणां यन्म्रियमाणानां मनुष्येषु मनीषिणाम् ॥१॥
 
-> śrī-śuka uvāca
-> evam etan nigaditaṁ
-> pṛṣṭavān yad bhavān mama
-> nṛṇāṁ yan mriyamāṇānāṁ
+> śrī-śuka uvāca\
+> evam etan nigaditaṁ\
+> pṛṣṭavān yad bhavān mama\
+> nṛṇāṁ yan mriyamāṇānāṁ\
 > manuṣyeṣu manīṣiṇām
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—so; *etat*—all these; *nigaditam*—answered; *pṛṣṭavān*—as you inquired; *yat*—what; *bhavān*—your good self; *mama*—unto me; *nṛṇām*—of the human being; *yat*—one; *mriyamāṇānām*—on the threshold of death; *manuṣyeṣu*—amongst the human beings; *manīṣiṇām*—of the intelligent men.

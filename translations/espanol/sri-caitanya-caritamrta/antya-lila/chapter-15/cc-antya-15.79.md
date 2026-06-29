@@ -1,9 +1,9 @@
 ### CC Antya 15.79
 
-> প্রভু কহে, — “কৃষ্ণ মুঞি এখনই পাইনু ।
+> প্রভু কহে, — “কৃষ্ণ মুঞি এখনই পাইনু ।\
 > আপনার দুর্দৈবে পুনঃ হারাইনু ॥৭৯॥
 
-> prabhu kahe,--"kṛṣṇa muñi ekhana-i pāinu
+> prabhu kahe,--"kṛṣṇa muñi ekhana-i pāinu\
 > āpanāra durdaive punaḥ hārāinu
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *kṛṣṇa*—el Señor Kṛṣṇa; *muñi*—Yo; *ekhana-i*—justo ahora; *pāinu*—tenía; *āpanāra*—Mi propio; *durdaive*—por infortunio; *punaḥ*—de nuevo; *hārāinu*—lo he perdido.

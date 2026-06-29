@@ -1,13 +1,13 @@
 ### SB 6.16.48
 
-> यं वै श्वसन्तमनु विश्वसृजः श्वसन्ति
-> यं चेकितानमनु चित्तय उच्चकन्ति
-> भूमण्डलं सर्षपायति यस्य मूर्ध्नि
+> यं वै श्वसन्तमनु विश्वसृजः श्वसन्ति\
+> यं चेकितानमनु चित्तय उच्चकन्ति\
+> भूमण्डलं सर्षपायति यस्य मूर्ध्नि\
 > तस्मै नमो भगवतेऽस्तु सहस्रमूर्ध्ने ॥४८॥
 
-> yaṁ vai śvasantam anu viśva-sṛjaḥ śvasanti
-> yaṁ cekitānam anu cittaya uccakanti
-> bhū-maṇḍalaṁ sarṣapāyati yasya mūrdhni
+> yaṁ vai śvasantam anu viśva-sṛjaḥ śvasanti\
+> yaṁ cekitānam anu cittaya uccakanti\
+> bhū-maṇḍalaṁ sarṣapāyati yasya mūrdhni\
 > tasmai namo bhagavate 'stu sahasra-mūrdhne
 
 *yam*—whom; *vai*—indeed; *śvasantam*—endeavoring; *anu*—after; *viśva-sṛjaḥ*—the directors of the cosmic creation; *śvasanti*—also endeavor; *yam*—whom; *cekitānam*—perceiving; *anu*—after; *cittayaḥ*—all the knowledge-gathering senses; *uccakanti*—perceive; *bhū-maṇḍalam*—the huge universe; *sarṣapāyati*—become like seeds of mustard; *yasya*—of whom; *mūrdhni*—on the head; *tasmai*—unto Him; *namaḥ*—obeisances; *bhagavate*—the Supreme Personality of Godhead, full with six opulences; *astu*—may there be; *sahasra-mūrdhne*—who has thousands of hoods.

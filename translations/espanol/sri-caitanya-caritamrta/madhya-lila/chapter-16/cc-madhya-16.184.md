@@ -1,9 +1,9 @@
 ### CC Madhya 16.184
 
-> ‘চণ্ডাল — পবিত্র যাঁর শ্রীনাম-শ্রবণে ।
+> ‘চণ্ডাল — পবিত্র যাঁর শ্রীনাম-শ্রবণে ।\
 > হেন-তোমার এই জীব পাইল দরশনে ॥১৮৪॥
 
-> 'caṇḍāla--pavitra yāṅra śrī-nāma-śravaṇe
+> 'caṇḍāla--pavitra yāṅra śrī-nāma-śravaṇe\
 > hena-tomāra ei jīva pāila daraśane
 
 *caṇḍāla*—el comedor de perros, el más bajo de la humanidad; *pavitra*—purificado; *yāṅra*—de quien; *śrī-nāma-śravaṇe*—por oír el santo nombre; *hena-tomāra*—de alguien como Vos; *ei jīva*—esta entidad viviente condicionada; *pāila*—ha obtenido; *daraśane*—la visita personal.

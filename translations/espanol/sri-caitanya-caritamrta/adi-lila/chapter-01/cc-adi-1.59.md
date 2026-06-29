@@ -1,11 +1,11 @@
 ### CC Adi 1.59
 
-> ততো দুঃসঙ্গমুৎসৃজ্য সৎসু সজ্জেত বুদ্ধিমান্ ।
+> ততো দুঃসঙ্গমুৎসৃজ্য সৎসু সজ্জেত বুদ্ধিমান্ ।\
 > সন্ত এবাস্য ছিন্দন্তি মনোব্যাসঙ্গমুক্তিভিঃ ॥৫৯॥
 
-> tato duḥsaṅgam utsṛjya
-> satsu sajjeta buddhi-mān
-> santa evāsya chindanti
+> tato duḥsaṅgam utsṛjya\
+> satsu sajjeta buddhi-mān\
+> santa evāsya chindanti\
 > mano-vyāsaṅgam uktibhiḥ
 
 *tataḥ*—por consiguiente; *duḥsaṅgam*—mala compañía; *utsṛjya*—abandonando; *satsu*—con los devotos; *sajjeta*—se debe asociar; *buddhi-mān*—una persona inteligente; *santaḥ*—los devotos; *eva*—ciertamente; *asya*—de uno; *chindanti*—cortan; *manaḥ-vyāsaṅgam*—apegos desfavorables; *uktibhiḥ*—mediante sus instrucciones.

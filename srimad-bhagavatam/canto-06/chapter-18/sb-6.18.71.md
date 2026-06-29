@@ -1,13 +1,13 @@
 ### SB 6.18.71
 
-> इन्द्र उवाच
-> अम्ब तेऽहं व्यवसितमुपधार्यागतोऽन्तिकम
+> इन्द्र उवाच\
+> अम्ब तेऽहं व्यवसितमुपधार्यागतोऽन्तिकम\
 > लब्धान्तरोऽच्छिदं गर्भमर्थबुद्धिर्न धर्मदृक ॥७१॥
 
-> indra uvāca
-> amba te 'haṁ vyavasitam
-> upadhāryāgato 'ntikam
-> labdhāntaro 'cchidaṁ garbham
+> indra uvāca\
+> amba te 'haṁ vyavasitam\
+> upadhāryāgato 'ntikam\
+> labdhāntaro 'cchidaṁ garbham\
 > artha-buddhir na dharma-dṛk
 
 *indraḥ uvāca*—Indra said; *amba*—O mother; *te*—your; *aham*—I; *vyavasitam*—vow; *upadhārya*—understanding; *āgataḥ*—came; *antikam*—nearby; *labdha*—having found; *antaraḥ*—a fault; *acchidam*—I cut; *garbham*—the embryo; *artha-buddhiḥ*—being self-interested; *na*—not; *dharma-dṛk*—possessing vision of religion.

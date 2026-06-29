@@ -1,11 +1,11 @@
 ### SB 7.2.36
 
-> तत्र ह प्रेतबन्धूनामाश्रुत्य परिदेवितम
+> तत्र ह प्रेतबन्धूनामाश्रुत्य परिदेवितम\
 > आह तान्बालको भूत्वा यमः स्वयमुपागतः ॥३६॥
 
-> tatra ha preta-bandhūnām
-> āśrutya paridevitam
-> āha tān bālako bhūtvā
+> tatra ha preta-bandhūnām\
+> āśrutya paridevitam\
+> āha tān bālako bhūtvā\
 > yamaḥ svayam upāgataḥ
 
 *tatra*—ahí; *ha*—ciertamente; *preta-bandhūnām*—de los amigos y parientes del rey muerto; *āśrutya*—escuchar; *paridevitam*—los lamentos en voz alta (tan alta que se podían oír desde el planeta de Yamarāja); *āha*—dijo; *tān*—a ellas (las reinas que se lamentaban); *bālakaḥ*—un niño; *bhūtvā*—volviéndose; *yamaḥ*—Yama-rāja, el superintendente de la muerte; *svayam*—en persona; *upāgataḥ*—después de ir.

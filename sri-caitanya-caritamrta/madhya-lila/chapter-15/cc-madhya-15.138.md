@@ -1,9 +1,9 @@
 ### CC Madhya 15.138
 
-> পূর্বে আমি ইঁহারে লোভাইল বার বার  ।
+> পূর্বে আমি ইঁহারে লোভাইল বার বার  ।\
 > পরম মধুর, গুপ্ত, ব্রজেন্দ্রকুমার ॥১৩৮॥
 
-> pūrve āmi iṅhāre lobhāila bāra bāra
+> pūrve āmi iṅhāre lobhāila bāra bāra\
 > parama madhura, gupta, vrajendra-kumāra
 
 *pūrve*—previously; *āmi*—I; *iṅhāre*—him; *lobhāila*—induced to be allured; *bāra bāra*—again and again; *parama madhura*—very sweet; *gupta*—O Gupta; *vrajendra-kumāra*—Lord Kṛṣṇa, the son of Nanda Mahārāja.

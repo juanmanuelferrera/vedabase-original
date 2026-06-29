@@ -1,11 +1,11 @@
 ### SB 3.27.9
 
-> सानुबन्धे च देहेऽस्मिन्नकुर्वन्नसदाग्रहम् ।
+> सानुबन्धे च देहेऽस्मिन्नकुर्वन्नसदाग्रहम् ।\
 > ज्ञानेन दृष्टतत्त्वेन प्रकृतेः पुरुषस्य च ॥९॥
 
-> sānubandhe ca dehe 'sminn
-> akurvann asad-āgraham
-> jñānena dṛṣṭa-tattvena
+> sānubandhe ca dehe 'sminn\
+> akurvann asad-āgraham\
+> jñānena dṛṣṭa-tattvena\
 > prakṛteḥ puruṣasya ca
 
 *sa-anubandhe*—with bodily relationships; *ca*—and; *dehe*—towards the body; *asmin*—this; *akurvan*—not doing; *asat-āgraham*—bodily concept of life; *jñānena*—through knowledge; *dṛṣṭa*—having seen; *tattvena*—the reality; *prakṛteḥ*—of matter; *puruṣasya*—of spirit; *ca*—and.

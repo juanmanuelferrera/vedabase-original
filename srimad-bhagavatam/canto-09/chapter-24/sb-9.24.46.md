@@ -1,11 +1,11 @@
 ### SB 9.24.46
 
-> बलं गदं सारणं च दुर्मदं विपुलं ध्रुवम
+> बलं गदं सारणं च दुर्मदं विपुलं ध्रुवम\
 > वसुदेवस्तु रोहिण्यां कृतादीनुदपादयत ॥४६॥
 
-> balaṁ gadaṁ sāraṇaṁ ca
-> durmadaṁ vipulaṁ dhruvam
-> vasudevas tu rohiṇyāṁ
+> balaṁ gadaṁ sāraṇaṁ ca\
+> durmadaṁ vipulaṁ dhruvam\
+> vasudevas tu rohiṇyāṁ\
 > kṛtādīn udapādayat
 
 *balam*—Bala; *gadam*—Gada; *sāraṇam*—Sāraṇa; *ca*—also; *durmadam*—Durmada; *vipulam*—Vipula; *dhruvam*—Dhruva; *vasudevaḥ*—Vasudeva (the father of Kṛṣṇa); *tu*—indeed; *rohiṇyām*—in the wife named Rohiṇī; *kṛta-ādīn*—the sons headed by Kṛta; *udapādayat*—begot.

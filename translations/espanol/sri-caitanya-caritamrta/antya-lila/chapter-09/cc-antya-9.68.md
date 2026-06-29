@@ -1,9 +1,9 @@
 ### CC Antya 9.68
 
-> সন্ন্যাসী বিরক্ত তোমার কা-সনে সম্বন্ধ ?
+> সন্ন্যাসী বিরক্ত তোমার কা-সনে সম্বন্ধ ?\
 > ব্যবহার লাগি’ তোমা ভজে, সেই জ্ঞান-অন্ধ ॥৬৮॥
 
-> sannyāsī virakta tomāra kā-sane sambandha?
+> sannyāsī virakta tomāra kā-sane sambandha?\
 > vyavahāra lāgi' tomā bhaje, sei jñāna-andha
 
 *sannyāsī*—un *sannyāsī*; *virakta*—alguien que ha renunciado a toda conexión con todos; *tomāra*—Tu; *kā-sane*—con quién; *sambandha*—relación; *vyavahāra lāgi'*—con algún propósito material; *tomā bhaje*—Te adora; *sei*—él; *jñāna-andha*—ciego ante todo conocimiento.

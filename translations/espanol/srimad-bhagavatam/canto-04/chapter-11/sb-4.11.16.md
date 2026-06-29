@@ -1,11 +1,11 @@
 ### SB 4.11.16
 
-> एवं प्रवर्तते सर्गः स्थितिः संयम एव च ।
+> एवं प्रवर्तते सर्गः स्थितिः संयम एव च ।\
 > गुणव्यतिकराद्राजन्मायया परमात्मनः ॥१६॥
 
-> evaṁ pravartate sargaḥ
-> sthitiḥ saṁyama eva ca
-> guṇa-vyatikarād rājan
+> evaṁ pravartate sargaḥ\
+> sthitiḥ saṁyama eva ca\
+> guṇa-vyatikarād rājan\
 > māyayā paramātmanaḥ
 
 *evam*—de este modo; *pravartate*—ocurre; *sargaḥ*—creación; *sthitiḥ*—mantenimiento; *saṁyamaḥ*—aniquilación; *eva*—ciertamente; *ca*—y; *guṇa*—de las modalidades; *vyatikarāt*—por interacción; *rājan*—¡oh, rey!; *māyayā*—por la energía ilusoria; *parama-ātmanaḥ*—de la Suprema Personalidad de Dios.

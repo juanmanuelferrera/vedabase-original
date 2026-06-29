@@ -1,20 +1,20 @@
 ### SB 5.12.5-6
 
-> ब्राह्मण उवाच
-> अयं जनो नाम चलन्पृथिव्यां यः पार्थिवः पार्थिव कस्य हेतोः
-> तस्यापि चाङ्घ्र्योरधि गुल्फजङ्घा जानूरुमध्योरशिरोधरांसाः ॥५॥
-> अंसेऽधि दार्वी शिबिका च यस्यां सौवीरराजेत्यपदेश आस्ते
+> ब्राह्मण उवाच\
+> अयं जनो नाम चलन्पृथिव्यां यः पार्थिवः पार्थिव कस्य हेतोः\
+> तस्यापि चाङ्घ्र्योरधि गुल्फजङ्घा जानूरुमध्योरशिरोधरांसाः ॥५॥\
+> अंसेऽधि दार्वी शिबिका च यस्यां सौवीरराजेत्यपदेश आस्ते\
 > यस्मिन्भवान्रूढनिजाभिमानो राजास्मि सिन्धुष्विति दुर्मदान्धः ॥६॥
 
-> brāhmaṇa uvāca
-> ayaṁ jano nāma calan pṛthivyāṁ
-> yaḥ pārthivaḥ pārthiva kasya hetoḥ
-> tasyāpi cāṅghryor adhi gulpha-jaṅghā-
+> brāhmaṇa uvāca\
+> ayaṁ jano nāma calan pṛthivyāṁ\
+> yaḥ pārthivaḥ pārthiva kasya hetoḥ\
+> tasyāpi cāṅghryor adhi gulpha-jaṅghā-\
 > jānūru-madhyora-śirodharāṁsāḥ
 
-> aṁse 'dhi dārvī śibikā ca yasyāṁ
-> sauvīra-rājety apadeśa āste
-> yasmin bhavān rūḍha-nijābhimāno
+> aṁse 'dhi dārvī śibikā ca yasyāṁ\
+> sauvīra-rājety apadeśa āste\
+> yasmin bhavān rūḍha-nijābhimāno\
 > rājāsmi sindhuṣv iti durmadāndhaḥ
 
 *brāhmaṇaḥ uvāca*—the *brāhmaṇa* said; *ayam*—this; *janaḥ*—person; *nāma*—celebrated as such; *calan*—moving; *pṛthivyām*—on the earth; *yaḥ*—who; *pārthivaḥ*—a transformation of the earth; *pārthiva*—O King, who possesses a similar earthly body; *kasya*—for what; *hetoḥ*—reason; *tasya api*—of him also; *ca*—and; *aṅghryoḥ*—feet; *adhi*—above; *gulpha*—ankles; *jaṅghā*—calves; *jānu*—knees; *uru*—thighs; *madhyora*—waist; *śiraḥ-dhara*—neck; *aṁsāḥ*—shoulders; *aṁse*—shoulder; *adhi*—upon; *dārvī*—made of wood; *śibikā*—palanquin; *ca*—and; *yasyām*—on which; *sauvīra-rājā*—the King of Sauvīra; *iti*—thus; *apadeśaḥ*—known as; *āste*—there is; *yasmin*—in which; *bhavān*—Your Lordship; *rūḍha*—imposed upon; *nija-abhimānaḥ*—having a conception of false prestige; *rājā asmi*—I am the King; *sindhuṣu*—in the state of Sindhu; *iti*—thus; *durmada-andhaḥ*—captivated by false prestige.

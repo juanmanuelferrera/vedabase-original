@@ -1,11 +1,11 @@
 ### SB 4.17.34
 
-> स वै भवानात्मविनिर्मितं जगद्भूतेन्द्रियान्तःकरणात्मकं विभो ।
+> स वै भवानात्मविनिर्मितं जगद्भूतेन्द्रियान्तःकरणात्मकं विभो ।\
 > संस्थापयिष्यन्नज मां रसातलादभ्युज्जहाराम्भस आदिसूकरः ॥३४॥
 
-> sa vai bhavān ātma-vinirmitaṁ jagad
-> bhūtendriyāntaḥ-karaṇātmakaṁ vibho
-> saṁsthāpayiṣyann aja māṁ rasātalād
+> sa vai bhavān ātma-vinirmitaṁ jagad\
+> bhūtendriyāntaḥ-karaṇātmakaṁ vibho\
+> saṁsthāpayiṣyann aja māṁ rasātalād\
 > abhyujjahārāmbhasa ādi-sūkaraḥ
 
 *saḥ*—He; *vai*—certainly; *bhavān*—Yourself; *ātma*—by Yourself; *vinirmitam*—manufactured; *jagat*—this world; *bhūta*—the physical elements; *indriya*—senses; *antaḥ-karaṇa*—mind, heart; *ātmakam*—consisting of; *vibho*—O Lord; *saṁsthāpayiṣyan*—maintaining; *aja*—O unborn; *mām*—me; *rasātalāt*—from the plutonic region; *abhyujjahāra*—took out; *ambhasaḥ*—from the water; *ādi*—original; *sūkaraḥ*—the boar.

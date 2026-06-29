@@ -1,11 +1,11 @@
 ### SB 8.22.3
 
-> बिभेमि नाहं निरयात्पदच्युतो न पाशबन्धाद्व्यसनाद्दुरत्ययात
+> बिभेमि नाहं निरयात्पदच्युतो न पाशबन्धाद्व्यसनाद्दुरत्ययात\
 > नैवार्थकृच्छ्राद्भवतो विनिग्रहादसाधुवादाद्भृशमुद्विजे यथा ॥३॥
 
-> bibhemi nāhaṁ nirayāt pada-cyuto
-> na pāśa-bandhād vyasanād duratyayāt
-> naivārtha-kṛcchrād bhavato vinigrahād
+> bibhemi nāhaṁ nirayāt pada-cyuto\
+> na pāśa-bandhād vyasanād duratyayāt\
+> naivārtha-kṛcchrād bhavato vinigrahād\
 > asādhu-vādād bhṛśam udvije yathā
 
 *bibhemi*—tengo miedo; *na*—no; *aham*—yo; *nirayāt*—de una posición en el infierno; *pada-cyutaḥ*—ni temo verme privado de mi posición; *na*—ni; *pāśa-bandhāt*—de ser apresado con las cuerdas de Varuṇa; *vyasanāt*—ni del sufrimiento; *duratyayāt*—que me era insoportable; *na*—ni; *eva*—ciertamente; *artha-kṛcchrāt*—por la pobreza, la falta de dinero; *bhavataḥ*—de Tu Señoría; *vinigrahāt*—del castigo que estoy sufriendo; *asādhu-vādāt*—de perder el buen nombre; *bhṛśam*—mucho; *udvije*—siento ansiedad; *yathā*—como.

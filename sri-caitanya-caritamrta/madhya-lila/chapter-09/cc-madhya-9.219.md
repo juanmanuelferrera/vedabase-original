@@ -1,9 +1,9 @@
 ### CC Madhya 9.219
 
-> তাম্রপর্ণী স্নান করি’ তাম্রপর্ণী-তীরে ।
+> তাম্রপর্ণী স্নান করি’ তাম্রপর্ণী-তীরে ।\
 > নয় ত্রিপতি দেখি’ বুলে কুতূহলে ॥২১৯॥
 
-> tāmraparṇī snāna kari' tāmraparṇī-tīre
+> tāmraparṇī snāna kari' tāmraparṇī-tīre\
 > naya tripati dekhi' bule kutūhale
 
 *tāmraparṇī*—in the Tāmraparṇī River; *snāna kari'*—taking a bath; *tāmraparṇī-tīre*—on the bank of the Tāmraparṇī River; *naya tripati*—the Deity named Naya-tripati; *dekhi'*—after seeing; *bule*—wandered on; *kutūhale*—in great curiosity.

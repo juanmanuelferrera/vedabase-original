@@ -1,11 +1,11 @@
 ### Bg 3.32
 
-> ये त्वेतदभ्यसूयन्तो नानुतिष्ठन्ति मे मतम् ।
+> ये त्वेतदभ्यसूयन्तो नानुतिष्ठन्ति मे मतम् ।\
 > सर्वज्ञानविमूढांस्तान्विद्धि नष्टानचेतसः ॥३२॥
 
-> ye tv etad abhyasūyanto
-> nānutiṣṭhanti me matam
-> sarva-jñāna-vimūḍhāṁs tān
+> ye tv etad abhyasūyanto\
+> nānutiṣṭhanti me matam\
+> sarva-jñāna-vimūḍhāṁs tān\
 > viddhi naṣṭān acetasaḥ
 
 *ye*—aquellos; *tu*—sin embargo; *etat*—esto; *abhyasūyantaḥ*—por envidia; *na*—no; *anutiṣṭhanti*—realizan regularmente; *me*—Mí; *matam*—mandato; *sarva-jñāna*—todo tipo de conocimiento; *vimūḍhān*—perfectamente engañados; *tān*—ellos son; *viddhi*—sábelo bien; *naṣṭān*—totalmente arruinado; *acetasaḥ*—sin conciencia de Kṛṣṇa.

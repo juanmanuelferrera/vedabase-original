@@ -1,11 +1,11 @@
 ### SB 3.18.12
 
-> त्वं पद्रथानां किल यूथपाधिपो घटस्व नोऽस्वस्तय आश्वनूहः ।
+> त्वं पद्रथानां किल यूथपाधिपो घटस्व नोऽस्वस्तय आश्वनूहः ।\
 > संस्थाप्य चास्मान्प्रमृजाश्रु स्वकानां यः स्वां प्रतिज्ञां नातिपिपर्त्यसभ्यः ॥१२॥
 
-> tvaṁ pad-rathānāṁ kila yūthapādhipo
-> ghaṭasva no 'svastaya āśv anūhaḥ
-> saṁsthāpya cāsmān pramṛjāśru svakānāṁ
+> tvaṁ pad-rathānāṁ kila yūthapādhipo\
+> ghaṭasva no 'svastaya āśv anūhaḥ\
+> saṁsthāpya cāsmān pramṛjāśru svakānāṁ\
 > yaḥ svāṁ pratijñāṁ nātipiparty asabhyaḥ
 
 *tvam*—you; *pad-rathānām*—of foot soldiers; *kila*—indeed; *yūthapa*—of the leaders; *adhipaḥ*—the commander; *ghaṭasva*—take steps; *naḥ*—Our; *asvastaye*—for defeat; *āśu*—promptly; *anūhaḥ*—without consideration; *saṁsthāpya*—having killed; *ca*—and; *asmān*—Us; *pramṛja*—wipe away; *aśru*—tears; *svakānām*—of your kith and kin; *yaḥ*—he who; *svām*—his own; *pratijñām*—promised word; *na*—not; *atipiparti*—fulfills; *asabhyaḥ*—not fit to sit in an assembly.

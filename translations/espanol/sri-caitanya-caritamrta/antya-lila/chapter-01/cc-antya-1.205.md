@@ -1,9 +1,9 @@
 ### CC Antya 1.205
 
-> ভক্তে কৃপা-হেতু প্রকাশিতে চাহ ব্রজ-রস ।
+> ভক্তে কৃপা-হেতু প্রকাশিতে চাহ ব্রজ-রস ।\
 > যারে করাও, সেই করিবে জগৎ তোমার বশ ॥২০৫॥
 
-> bhakte kṛpā-hetu prakāśite cāha vraja-rasa
+> bhakte kṛpā-hetu prakāśite cāha vraja-rasa\
 > yāre karāo, sei karibe jagat tomāra vaśa
 
 *bhakte*—a los devotos; *kṛpā-hetu*—debido a la misericordia; *prakāśite*—para mostrar; *cāha*—Tú deseas; *vraja-rasa*—los deleites trascendentales de Vṛndāvana; *yāre*—a quienquiera; *karāo*—Tú puedas facultar; *sei*—él; *karibe*—hará; *jagat*—el mundo entero; *tomāra vaśa*—bajo Tu control.

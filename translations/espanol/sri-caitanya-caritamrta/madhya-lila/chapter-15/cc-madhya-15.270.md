@@ -1,11 +1,11 @@
 ### CC Madhya 15.270
 
-> আয়ুঃ শ্রিয়ং যশো ধর্মং লোকানাশিষ এব চ ৷
+> আয়ুঃ শ্রিয়ং যশো ধর্মং লোকানাশিষ এব চ ৷\
 > হন্তি শ্রেয়াংসি সর্বাণি পুংসো মহদতিক্রমঃ ॥২৭০॥
 
-> āyuḥ śriyaṁ yaśo dharmaṁ
-> lokān āśiṣa eva ca
-> hanti śreyāṁsi sarvāṇi
+> āyuḥ śriyaṁ yaśo dharmaṁ\
+> lokān āśiṣa eva ca\
+> hanti śreyāṁsi sarvāṇi\
 > puṁso mahad-atikramaḥ
 
 *āyuḥ*—duración de la vida; *śriyam*—opulencia; *yaśaḥ*—reputación; *dharmam*—religión; *lokān*—posesiones; *āśiṣaḥ*—bendiciones; *eva*—ciertamente; *ca*—y; *hanti*—destruye; *śreyāṁsi*—buena fortuna; *sarvāṇi*—toda; *puṁsaḥ*—de una persona; *mahat*—de las grandes almas; *atikramaḥ*—transgresión.

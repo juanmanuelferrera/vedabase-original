@@ -1,9 +1,9 @@
 ### CC Madhya 6.6
 
-> প্রভুর সৌন্দর্য আর প্রেমের বিকার ।
+> প্রভুর সৌন্দর্য আর প্রেমের বিকার ।\
 > দেখি’ সার্বভৌম হৈলা বিস্মিত অপার ॥৬॥
 
-> prabhura saundarya āra premera vikāra
+> prabhura saundarya āra premera vikāra\
 > dekhi' sārvabhauma hailā vismita apāra
 
 *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *saundarya*—the beauty; *āra*—and; *premera vikāra*—ecstatic transformations; *dekhi'*—seeing; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *hailā*—became; *vismita*—surprised; *apāra*—very much.

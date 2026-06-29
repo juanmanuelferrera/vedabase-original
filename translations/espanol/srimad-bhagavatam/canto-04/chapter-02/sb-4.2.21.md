@@ -1,11 +1,11 @@
 ### SB 4.2.21
 
-> य एतन्मर्त्यमुद्दिश्य भगवत्यप्रतिद्रुहि ।
+> य एतन्मर्त्यमुद्दिश्य भगवत्यप्रतिद्रुहि ।\
 > द्रुह्यत्यज्ञः पृथग्दृष्टिस्तत्त्वतो विमुखो भवेत् ॥२१॥
 
-> ya etan martyam uddiśya
-> bhagavaty apratidruhi
-> druhyaty ajñaḥ pṛthag-dṛṣṭis
+> ya etan martyam uddiśya\
+> bhagavaty apratidruhi\
+> druhyaty ajñaḥ pṛthag-dṛṣṭis\
 > tattvato vimukho bhavet
 
 *yaḥ*—quien (Dakṣa); *etat martyam*—el cuerpo; *uddiśya*—con respecto a; *bhagavati*—a Śiva; *apratidruhi*—quien no es envidioso; *druhyati*—tiene envidia; *ajñaḥ*—personas poco inteligentes; *pṛthak-dṛṣṭiḥ*—la visión dual; *tattvataḥ*—de conocimiento trascendental; *vimukhaḥ*—privado; *bhavet*—que quede.

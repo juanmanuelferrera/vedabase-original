@@ -1,13 +1,13 @@
 ### SB 4.25.1
 
-> मैत्रेय उवाच
-> इति सन्दिश्य भगवान्बार्हिषदैरभिपूजितः ।
+> मैत्रेय उवाच\
+> इति सन्दिश्य भगवान्बार्हिषदैरभिपूजितः ।\
 > पश्यतां राजपुत्राणां तत्रैवान्तर्दधे हरः ॥१॥
 
-> maitreya uvāca
-> iti sandiśya bhagavān
-> bārhiṣadair abhipūjitaḥ
-> paśyatāṁ rāja-putrāṇāṁ
+> maitreya uvāca\
+> iti sandiśya bhagavān\
+> bārhiṣadair abhipūjitaḥ\
+> paśyatāṁ rāja-putrāṇāṁ\
 > tatraivāntardadhe haraḥ
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya continuó hablando; *iti*—de este modo; *sandiśya*—instruir; *bhagavān*—el muy poderoso señor; *bārhiṣadaiḥ*—por los hijos del rey Barhiṣat; *abhipūjitaḥ*—ser adorado; *paśyatām*—mientras miraban; *rāja-putrāṇām*—los hijos del rey; *tatra*—allí; *eva*—ciertamente; *antardadhe*—se hizo invisible; *haraḥ*—el Señor Śiva.

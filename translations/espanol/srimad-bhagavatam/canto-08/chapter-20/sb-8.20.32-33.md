@@ -1,18 +1,18 @@
 ### SB 8.20.32-33
 
-> सुनन्दमुख्या उपतस्थुरीशं पार्षदमुख्याः सहलोकपालाः
-> स्फुरत्किरीटाङ्गदमीनकुण्डलः श्रीवत्सरत्नोत्तममेखलाम्बरैः ॥३२॥
-> मधुव्रतस्रग्वनमालयावृतो रराज राजन्भगवानुरुक्रमः
+> सुनन्दमुख्या उपतस्थुरीशं पार्षदमुख्याः सहलोकपालाः\
+> स्फुरत्किरीटाङ्गदमीनकुण्डलः श्रीवत्सरत्नोत्तममेखलाम्बरैः ॥३२॥\
+> मधुव्रतस्रग्वनमालयावृतो रराज राजन्भगवानुरुक्रमः\
 > क्षितिं पदैकेन बलेर्विचक्रमे नभः शरीरेण दिशश्च बाहुभिः ॥३३॥
 
-> sunanda-mukhyā upatasthur īśaṁ
-> pārṣada-mukhyāḥ saha-loka-pālāḥ
-> sphurat-kirīṭāṅgada-mīna-kuṇḍalaḥ
+> sunanda-mukhyā upatasthur īśaṁ\
+> pārṣada-mukhyāḥ saha-loka-pālāḥ\
+> sphurat-kirīṭāṅgada-mīna-kuṇḍalaḥ\
 > śrīvatsa-ratnottama-mekhalāmbaraiḥ
 
-> madhuvrata-srag-vanamālayāvṛto
-> rarāja rājan bhagavān urukramaḥ
-> kṣitiṁ padaikena baler vicakrame
+> madhuvrata-srag-vanamālayāvṛto\
+> rarāja rājan bhagavān urukramaḥ\
+> kṣitiṁ padaikena baler vicakrame\
 > nabhaḥ śarīreṇa diśaś ca bāhubhiḥ
 
 *sunanda-mukhyāḥ*—los sirvientes del Señor encabezados por Sunanda; *upatasthuḥ*—comenzaron a ofrecer oraciones; *īśam*—a la Suprema Personalidad de Dios; *pārṣada-mukhyāḥ*—otros jefes de los acompañantes; *saha-loka-pālāḥ*—con las deidades regentes de todos los planetas; *sphurat-kirīṭa*—con un yelmo brillante; *aṅgada*—brazaletes; *mīna-kuṇḍalaḥ*—y pendientes con forma de pez; *śrīvatsa*—el mechón de Śrīvatsa en el pecho; *ratna-uttama*—la mejor de las joyas (Kaustubha); *mekhalā*—cinturón; *ambaraiḥ*—con ropas amarillas; *madhu-vrata*—de abejas; *srak*—en el que había un collar de flores; *vanamālayā*—con un collar de flores; *āvṛtaḥ*—cubierto; *rarāja*—manifestado en forma predominante; *rājan*—¡oh, rey!; *bhagavān*—la Suprema Personalidad de Dios; *urukramaḥ*—que destaca por Sus maravillosas actividades; *kṣitim*—toda la superficie del mundo; *padā ekena*—con un paso; *baleḥ*—de Bali Mahārāja; *vicakrame*—cubrió; *nabhaḥ*—el cielo; *śarīreṇa*—con Su cuerpo; *diśaḥ ca*—y todas las direcciones; *bāhubhiḥ*—con Sus brazos.

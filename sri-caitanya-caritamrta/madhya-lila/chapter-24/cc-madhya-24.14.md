@@ -1,9 +1,9 @@
 ### CC Madhya 24.14
 
-> ‘মুনি’-আদি শব্দের অর্থ শুন, সনাতন ।
+> ‘মুনি’-আদি শব্দের অর্থ শুন, সনাতন ।\
 > পৃথক্ পৃথক্ অর্থ পাছে করিব মিলন ॥১৪॥
 
-> 'muni'-ādi śabdera artha śuna, sanātana
+> 'muni'-ādi śabdera artha śuna, sanātana\
 > pṛthak pṛthak artha pāche kariba milana
 
 *muni*—the word *muni*; *ādi*—and the other; *śabdera*—of the words; *artha*—the meaning; *śuna*—hear; *sanātana*—My dear Sanātana; *pṛthak pṛthak*—separately; *artha*—meaning; *pāche*—after; *kariba milana*—I shall combine.

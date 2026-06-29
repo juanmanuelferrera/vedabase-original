@@ -1,9 +1,9 @@
 ### CC Madhya 24.150
 
-> এক ‘আত্মারাম’-শব্দ অবশেষ রহে ।
+> এক ‘আত্মারাম’-শব্দ অবশেষ রহে ।\
 > এক ‘আত্মারাম’-শব্দে ছয় জন কহে ॥১৫০॥
 
-> eka 'ātmārāma'-śabda avaśeṣa rahe
+> eka 'ātmārāma'-śabda avaśeṣa rahe\
 > eka 'ātmārāma'-śabde chaya-jana kahe
 
 *eka*—one; *ātmārāma*—*ātmārāma*; *śabda*—vibration; *avaśeṣa rahe*—remains at last; *eka ātmārāma*—one *ātmārāma*; *śabde*—by vibrating; *chaya-jana*—six persons; *kahe*—are indicated.

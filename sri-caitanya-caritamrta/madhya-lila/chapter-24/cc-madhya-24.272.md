@@ -1,9 +1,9 @@
 ### CC Madhya 24.272
 
-> নারদ কহে, — “ব্যাধ, এই না হয় আশ্চর্য ।
+> নারদ কহে, — “ব্যাধ, এই না হয় আশ্চর্য ।\
 > হরিভক্ত্যে হিংসা-শূন্য হয় সাধুবর্য ॥২৭২॥
 
-> nārada kahe,—"vyādha, ei nā haya āścarya
+> nārada kahe,—"vyādha, ei nā haya āścarya\
 > hari-bhaktye hiṁsā-śūnya haya sādhu-varya
 
 *nārada kahe*—Nārada Muni said; *vyādha*—my dear hunter; *ei nā āścarya*—this is not wonderful for you; *hari-bhaktye*—by advancement in devotional service; *hiṁsā-śūnya haya*—one becomes nonviolent and nonenvious; *sādhu-varya*—thus one becomes the best of honest gentlemen.

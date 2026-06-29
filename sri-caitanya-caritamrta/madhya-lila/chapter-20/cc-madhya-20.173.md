@@ -1,11 +1,11 @@
 ### CC Madhya 20.173
 
-> অন্যে চ সংস্কৃতাত্মানো বিধিনাভিহিতেন তে ।
+> অন্যে চ সংস্কৃতাত্মানো বিধিনাভিহিতেন তে ।\
 > যজন্তি ত্বন্ময়াস্ত্বাং বৈ বহুমূর্ত্যেকমূর্তিকম্ ॥১৭৩॥
 
-> anye ca saṁskṛtātmāno
-> vidhinābhihitena te
-> yajanti tvan-mayās tvāṁ vai
+> anye ca saṁskṛtātmāno\
+> vidhinābhihitena te\
+> yajanti tvan-mayās tvāṁ vai\
 > bahu-mūrtyeka-mūrtikam
 
 *anye*—different persons; *ca*—also; *saṁskṛta-ātmānaḥ*—persons who are purified; *vidhinā*—by the regulative principles; *abhihitena*—stated in the revealed scriptures; *te*—such persons; *yajanti*—worship; *tvat-mayāḥ*—being absorbed in You; *tvām*—You; *vai*—certainly; *bahu-mūrti*—having many forms; *eka-mūrtikam*—although one.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.85
 
-> প্রেমোল্লাসে শোধেন, লয়েন কৃষ্ণনাম ।
+> প্রেমোল্লাসে শোধেন, লয়েন কৃষ্ণনাম ।\
 > ভক্তগণ ‘কৃষ্ণ’ কহে, করে নিজ-কাম ॥৮৫॥
 
-> premollāse śodhena, layena kṛṣṇa-nāma
+> premollāse śodhena, layena kṛṣṇa-nāma\
 > bhakta-gaṇa 'kṛṣṇa' kahe, kare nija-kāma
 
 *prema-ullāse*—con gran júbilo; *śodhena*—limpia; *layena*—canta; *kṛṣṇa*—Hare Kṛṣṇa; *nāma*—nombre; *bhakta-gaṇa*—los devotos; *kṛṣṇa kahe*—cantan Kṛṣṇa; *kare*—hacen; *nija-kāma*—su propio deber.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.66
 
-> দুইভাই দূর হৈতে ভূমিতে পড়িয়া ।
+> দুইভাই দূর হৈতে ভূমিতে পড়িয়া ।\
 > ভট্টে দণ্ডবৎ কৈলা অতি দীন হঞা ॥৬৬॥
 
-> dui-bhāi dūra haite bhūmite paḍiyā
+> dui-bhāi dūra haite bhūmite paḍiyā\
 > bhaṭṭe daṇḍavat kailā ati dīna hañā
 
 *dui-bhāi*—los dos hermanos; *dūra haite*—desde la distancia; *bhūmite*—en el suelo; *paḍiyā*—postrándose; *bhaṭṭe*—a Vallabha Bhaṭṭa; *daṇḍavat kailā*—ofrecieron reverencias; *ati dīna hañā*—con gran humildad.

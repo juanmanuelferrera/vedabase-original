@@ -1,11 +1,11 @@
 ### SB 5.1.18
 
-> यः षट्सपत्नान्विजिगीषमाणो गृहेषु निर्विश्य यतेत पूर्वम
+> यः षट्सपत्नान्विजिगीषमाणो गृहेषु निर्विश्य यतेत पूर्वम\
 > अत्येति दुर्गाश्रित ऊर्जितारीन्क्षीणेषु कामं विचरेद्विपश्चित ॥१८॥
 
-> yaḥ ṣaṭ sapatnān vijigīṣamāṇo
-> gṛheṣu nirviśya yateta pūrvam
-> atyeti durgāśrita ūrjitārīn
+> yaḥ ṣaṭ sapatnān vijigīṣamāṇo\
+> gṛheṣu nirviśya yateta pūrvam\
+> atyeti durgāśrita ūrjitārīn\
 > kṣīṇeṣu kāmaṁ vicared vipaścit
 
 *yaḥ*—anyone who; *ṣaṭ*—six; *sapatnān*—adversaries; *vijigīṣamāṇaḥ*—desiring to conquer; *gṛheṣu*—in household life; *nirviśya*—having entered; *yateta*—must try; *pūrvam*—first; *atyeti*—conquers; *durga-āśritaḥ*—being in a fortified place; *ūrjita-arīn*—very strong enemies; *kṣīṇeṣu*—decreased; *kāmam*—lusty desires; *vicaret*—can go; *vipaścit*—the most experienced, learned.

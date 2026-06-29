@@ -1,11 +1,11 @@
 ### SB 3.32.23
 
-> वासुदेवे भगवति भक्तियोगः प्रयोजितः ।
+> वासुदेवे भगवति भक्तियोगः प्रयोजितः ।\
 > जनयत्याशु वैराग्यं ज्ञानं यद्ब्रह्मदर्शनम् ॥२३॥
 
-> vāsudeve bhagavati
-> bhakti-yogaḥ prayojitaḥ
-> janayaty āśu vairāgyaṁ
+> vāsudeve bhagavati\
+> bhakti-yogaḥ prayojitaḥ\
+> janayaty āśu vairāgyaṁ\
 > jñānaṁ yad brahma-darśanam
 
 *vāsudeve*—unto Kṛṣṇa; *bhagavati*—the Personality of Godhead; *bhakti-yogaḥ*—devotional service; *prayojitaḥ*—discharged; *janayati*—produces; *āśu*—very soon; *vairāgyam*—detachment; *jñānam*—knowledge; *yat*—which; *brahma-darśanam*—self-realization.

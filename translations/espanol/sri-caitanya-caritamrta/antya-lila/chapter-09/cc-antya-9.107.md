@@ -1,9 +1,9 @@
 ### CC Antya 9.107
 
-> এত বলি’ ‘নেতধটী’ তারে পরাইল ।
+> এত বলি’ ‘নেতধটী’ তারে পরাইল ।\
 > “প্রভু-আজ্ঞা লঞা যাহ, বিদায় তোমা দিল” ॥১০৭॥
 
-> eta bali' 'neta-dhaṭī' tāre parāila
+> eta bali' 'neta-dhaṭī' tāre parāila\
 > "prabhu-ājñā lañā yāha, vidāya tomā dila"
 
 *eta bali'*—diciendo esto; *neta-dhaṭī*—manto de seda; *tāre parāila*—le colocó; *prabhu-ājñā lañā*—tras recibir el permiso de Śrī Caitanya Mahāprabhu; *yāha*—vete; *vidāya*—despedida; *tomā*—a ti; *dila*—te doy.

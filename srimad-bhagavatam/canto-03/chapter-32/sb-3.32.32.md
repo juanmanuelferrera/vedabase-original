@@ -1,11 +1,11 @@
 ### SB 3.32.32
 
-> ज्ञानयोगश्च मन्निष्ठो नैर्गुण्यो भक्तिलक्षणः ।
+> ज्ञानयोगश्च मन्निष्ठो नैर्गुण्यो भक्तिलक्षणः ।\
 > द्वयोरप्येक एवार्थो भगवच्छब्दलक्षणः ॥३२॥
 
-> jñāna-yogaś ca man-niṣṭho
-> nairguṇyo bhakti-lakṣaṇaḥ
-> dvayor apy eka evārtho
+> jñāna-yogaś ca man-niṣṭho\
+> nairguṇyo bhakti-lakṣaṇaḥ\
+> dvayor apy eka evārtho\
 > bhagavac-chabda-lakṣaṇaḥ
 
 *jñāna-yogaḥ*—philosophical research; *ca*—and; *mat-niṣṭhaḥ*—directed towards Me; *nairguṇyaḥ*—free from the material modes of nature; *bhakti*—devotional service; *lakṣaṇaḥ*—named; *dvayoḥ*—of both; *api*—moreover; *ekaḥ*—one; *eva*—certainly; *arthaḥ*—purpose; *bhagavat*—the Supreme Personality of Godhead; *śabda*—by the word; *lakṣaṇaḥ*—signified.

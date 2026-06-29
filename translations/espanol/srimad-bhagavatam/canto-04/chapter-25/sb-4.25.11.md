@@ -1,11 +1,11 @@
 ### SB 4.25.11
 
-> सोऽन्वेषमाणः शरणं बभ्राम पृथिवीं प्रभुः ।
+> सोऽन्वेषमाणः शरणं बभ्राम पृथिवीं प्रभुः ।\
 > नानुरूपं यदाविन्ददभूत्स विमना इव ॥११॥
 
-> so 'nveṣamāṇaḥ śaraṇaṁ
-> babhrāma pṛthivīṁ prabhuḥ
-> nānurūpaṁ yadāvindad
+> so 'nveṣamāṇaḥ śaraṇaṁ\
+> babhrāma pṛthivīṁ prabhuḥ\
+> nānurūpaṁ yadāvindad\
 > abhūt sa vimanā iva
 
 *saḥ*—ese rey Purañjana; *anveṣamāṇaḥ*—en busca de; *śaraṇam*—refugio; *babhrāma*—viajó por; *pṛthivīm*—todo el planeta Tierra; *prabhuḥ*—para ser un amo independiente; *na*—nunca; *anurūpam*—de su gusto; *yadā*—cuando; *avindat*—pudo encontrar; *abhūt*—se puso; *saḥ*—él; *vimanāḥ*—triste; *iva*—como.

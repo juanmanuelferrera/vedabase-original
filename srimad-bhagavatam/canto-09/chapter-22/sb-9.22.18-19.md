@@ -1,18 +1,18 @@
 ### SB 9.22.18-19
 
-> सोमवंशे कलौ नष्टे कृतादौ स्थापयिष्यति
-> बाह्लीकात्सोमदत्तोऽभूद्भूरिर्भूरिश्रवास्ततः ॥१८॥
-> शलश्च शान्तनोरासीद्गङ्गायां भीष्म आत्मवान
+> सोमवंशे कलौ नष्टे कृतादौ स्थापयिष्यति\
+> बाह्लीकात्सोमदत्तोऽभूद्भूरिर्भूरिश्रवास्ततः ॥१८॥\
+> शलश्च शान्तनोरासीद्गङ्गायां भीष्म आत्मवान\
 > सर्वधर्मविदां श्रेष्ठो महाभागवतः कविः ॥१९॥
 
-> soma-vaṁśe kalau naṣṭe
-> kṛtādau sthāpayiṣyati
-> bāhlīkāt somadatto 'bhūd
+> soma-vaṁśe kalau naṣṭe\
+> kṛtādau sthāpayiṣyati\
+> bāhlīkāt somadatto 'bhūd\
 > bhūrir bhūriśravās tataḥ
 
-> śalaś ca śāntanor āsīd
-> gaṅgāyāṁ bhīṣma ātmavān
-> sarva-dharma-vidāṁ śreṣṭho
+> śalaś ca śāntanor āsīd\
+> gaṅgāyāṁ bhīṣma ātmavān\
+> sarva-dharma-vidāṁ śreṣṭho\
 > mahā-bhāgavataḥ kaviḥ
 
 *soma-vaṁśe*—when the dynasty of the moon-god; *kalau*—in this age of Kali; *naṣṭe*—being lost; *kṛta-ādau*—at the beginning of the next Satya-yuga; *sthāpayiṣyati*—will reestablish; *bāhlīkāt*—from Bāhlīka; *somadattaḥ*—Somadatta; *abhūt*—generated; *bhūriḥ*—Bhūri; *bhūri-śravāḥ*—Bhūriśravā; *tataḥ*—thereafter; *śalaḥ ca*—a son named Śala; *śāntanoḥ*—from Śāntanu; *āsīt*—generated; *gaṅgāyām*—in the womb of Gaṅgā, the wife of Śāntanu; *bhīṣmaḥ*—a son named Bhīṣma; *ātmavān*—self-realized; *sarva-dharma-vidām*—of all religious persons; *śreṣṭhaḥ*—the best; *mahā-bhāgavataḥ*—an exalted devotee; *kaviḥ*—and a learned scholar.

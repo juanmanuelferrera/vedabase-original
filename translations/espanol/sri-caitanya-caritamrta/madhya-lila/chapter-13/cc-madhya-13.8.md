@@ -1,9 +1,9 @@
 ### CC Madhya 13.8
 
-> বলিষ্ঠ দয়িতা’গণ — যেন মত্ত হাতী ।
+> বলিষ্ঠ দয়িতা’গণ — যেন মত্ত হাতী ।\
 > জগন্নাথ বিজয় করায় করি’ হাতাহাতি ॥৮॥
 
-> baliṣṭha dayitā' gaṇa-yena matta hātī
+> baliṣṭha dayitā' gaṇa-yena matta hātī\
 > jagannātha vijaya karāya kari' hātāhāti
 
 *baliṣṭha dayitā' gaṇa*—los dayitās o cargadores de Jagannātha, muy fuertes; *yena*—como si fuesen; *matta hātī*—elefantes embriagados; *jagannātha*—del Señor Jagannātha; *vijaya*—partida; *karāya*—llevan a cabo; *kari'*—realizando; *hātāhāti*—mano a mano.

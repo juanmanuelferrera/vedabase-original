@@ -1,11 +1,11 @@
 ### SB 3.11.35
 
-> पूर्वस्यादौ परार्धस्य ब्राह्मो नाम महानभूत् ।
+> पूर्वस्यादौ परार्धस्य ब्राह्मो नाम महानभूत् ।\
 > कल्पो यत्राभवद्ब्रह्मा शब्दब्रह्मेति यं विदुः ॥३५॥
 
-> pūrvasyādau parārdhasya
-> brāhmo nāma mahān abhūt
-> kalpo yatrābhavad brahmā
+> pūrvasyādau parārdhasya\
+> brāhmo nāma mahān abhūt\
+> kalpo yatrābhavad brahmā\
 > śabda-brahmeti yaṁ viduḥ
 
 *pūrvasya*—of the first half; *ādau*—in the beginning; *para-ardhasya*—of the superior half; *brāhmaḥ*—Brāhma-kalpa; *nāma*—of the name; *mahān*—very great; *abhūt*—was manifest; *kalpaḥ*—millennium; *yatra*—whereupon; *abhavat*—appeared; *brahmā*—Lord Brahmā; *śabda-brahma iti*—the sounds of the *Vedas*; *yam*—which; *viduḥ*—they know.

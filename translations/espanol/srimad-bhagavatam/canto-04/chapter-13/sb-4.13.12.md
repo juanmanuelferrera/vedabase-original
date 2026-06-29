@@ -1,11 +1,11 @@
 ### SB 4.13.12
 
-> स्वर्वीथिर्वत्सरस्येष्टा भार्यासूत षडात्मजान् ।
+> स्वर्वीथिर्वत्सरस्येष्टा भार्यासूत षडात्मजान् ।\
 > पुष्पार्णं तिग्मकेतुं च इषमूर्जं वसुं जयम् ॥१२॥
 
-> svarvīthir vatsarasyeṣṭā
-> bhāryāsūta ṣaḍ-ātmajān
-> puṣpārṇaṁ tigmaketuṁ ca
+> svarvīthir vatsarasyeṣṭā\
+> bhāryāsūta ṣaḍ-ātmajān\
+> puṣpārṇaṁ tigmaketuṁ ca\
 > iṣam ūrjaṁ vasuṁ jayam
 
 *svarvīthiḥ*—Svarvīthi; *vatsarasya*—del rey Vatsara; *iṣṭā*—muy querida; *bhāryā*—esposa; *asūta*—fue madre de; *ṣaṭ*—seis; *ātmajān*—hijos; *puṣpārṇam*—Puṣpārṇa; *tigmaketum*—Tigmaketu; *ca*—también; *iṣam*—Iṣa; *ūrjam*—Ūrja; *vasum*—Vasu; *jayam*—Jaya.

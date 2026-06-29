@@ -1,9 +1,9 @@
 ### CC Antya 12.154
 
-> জগদানন্দের ‘প্রেমবিবর্ত’ শুনে যেই জন ।
+> জগদানন্দের ‘প্রেমবিবর্ত’ শুনে যেই জন ।\
 > প্রেমের ‘স্বরূপ’ জানে, পায় প্রেমধন ॥১৫৪॥
 
-> jagadānandera 'prema-vivarta' śune yei jana
+> jagadānandera 'prema-vivarta' śune yei jana\
 > premera 'svarūpa' jāne, pāya prema-dhana
 
 *jagadānandera*—of Jagadānanda; *prema-vivarta*—loving exchange; *śune*—hears; *yei jana*—any person who; *premera*—of love; *svarūpa*—identity; *jāne*—he knows; *pāya*—gets; *prema-dhana*—the wealth of ecstatic love of Kṛṣṇa.

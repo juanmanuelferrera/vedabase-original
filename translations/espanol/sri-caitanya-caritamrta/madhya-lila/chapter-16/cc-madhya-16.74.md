@@ -1,9 +1,9 @@
 ### CC Madhya 16.74
 
-> যাঁহার দর্শনে মুখে আইসে কৃষ্ণনাম ।
+> যাঁহার দর্শনে মুখে আইসে কৃষ্ণনাম ।\
 > তাঁহারে জানিহ তুমি ‘বৈষ্ণব-প্রধান’ ॥৭৪॥
 
-> yāṅhāra darśane mukhe āise kṛṣṇa-nāma
+> yāṅhāra darśane mukhe āise kṛṣṇa-nāma\
 > tāṅhāre jāniha tumi 'vaiṣṇava-pradhāna'
 
 *yāṅhāra darśane*—ante cuya presencia; *mukhe*—en la boca; *āise*—surge espontáneamente; *kṛṣṇa-nāma*—el santo nombre de Kṛṣṇa; *tāṅhāre*—a él; *jāniha*—debes saber; *tumi*—tú; *vaiṣṇava-pradhāna*—el vaiṣṇava de primera clase.

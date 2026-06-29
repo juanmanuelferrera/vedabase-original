@@ -1,9 +1,9 @@
 ### CC Adi 11.25
 
-> সূর্যদাস সরখেল, তাঁর ভাই কৃষ্ণদাস ।
+> সূর্যদাস সরখেল, তাঁর ভাই কৃষ্ণদাস ।\
 > নিত্যানন্দে দৃঢ় বিশ্বাস, প্রেমের নিবাস ॥২৫॥
 
-> sūryadāsa sarakhela, tāṅra bhāi kṛṣṇadāsa
+> sūryadāsa sarakhela, tāṅra bhāi kṛṣṇadāsa\
 > nityānande dṛḍha viśvāsa, premera nivāsa
 
 *sūryadāsa sarakhela*—de nombre Sūryadāsa Sarakhela; *tāṅra bhāi*—su hermano; *kṛṣṇadāsa*—de nombre Kṛṣṇadāsa; *nityānande*—en el Señor Nityānanda; *dṛḍha viśvāsa*—fe firme; *premera nivāsa*—el depósito de todo amor por Dios.

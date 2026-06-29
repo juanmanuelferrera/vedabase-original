@@ -1,13 +1,13 @@
 ### CC Antya 16.130
 
-> অধরের এই রীতি, আর শুন কুনীতি,
-> সে অধর-সনে যার মেলা ।
-> সেই ভক্ষ্য-ভোজ্য-পান, হয় অমৃত-সমান,
+> অধরের এই রীতি, আর শুন কুনীতি,\
+> সে অধর-সনে যার মেলা ।\
+> সেই ভক্ষ্য-ভোজ্য-পান, হয় অমৃত-সমান,\
 > নাম তার হয় ‘কৃষ্ণ-ফেলা’ ॥১৩০॥
 
-> adharera ei rīti, āra śuna kunīti,
-> se adhara-sane yāra melā
-> sei bhakṣya-bhojya-pāna, haya amṛta-samāna,
+> adharera ei rīti, āra śuna kunīti,\
+> se adhara-sane yāra melā\
+> sei bhakṣya-bhojya-pāna, haya amṛta-samāna,\
 > nāma tāra haya 'kṛṣṇa-phelā'
 
 *adharera*—de los labios; *ei*—esta; *rīti*—política; *āra*—otra; *śuna*—escuchad; *kunīti*—injusticias; *se*—esos; *adhara*—labios; *sane*—con; *yāra*—de lo que; *melā*—contacto; *sei*—esos; *bhakṣya*—comestibles; *bhojya*—alimentos; *pāna*—bebida o betel; *haya*—se vuelven; *amṛta-samāna*—como el néctar; *nāma*—el nombre; *tāra*—de ello; *haya*—es; *kṛṣṇa-phelā*—los remanentes de Kṛṣṇa.

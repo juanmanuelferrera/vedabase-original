@@ -1,15 +1,15 @@
 ### SB 7.9.8
 
-> श्रीप्रह्राद उवाच
-> ब्रह्मादयः सुरगणा मुनयोऽथ सिद्धाः
-> सत्त्वैकतानगतयो वचसां प्रवाहैः
-> नाराधितुं पुरुगुणैरधुनापि पिप्रुः
+> श्रीप्रह्राद उवाच\
+> ब्रह्मादयः सुरगणा मुनयोऽथ सिद्धाः\
+> सत्त्वैकतानगतयो वचसां प्रवाहैः\
+> नाराधितुं पुरुगुणैरधुनापि पिप्रुः\
 > किं तोष्टुमर्हति स मे हरिरुग्रजातेः ॥८॥
 
-> śrī-prahrāda uvāca
-> brahmādayaḥ sura-gaṇā munayo 'tha siddhāḥ
-> sattvaikatāna-gatayo vacasāṁ pravāhaiḥ
-> nārādhituṁ puru-guṇair adhunāpi pipruḥ
+> śrī-prahrāda uvāca\
+> brahmādayaḥ sura-gaṇā munayo 'tha siddhāḥ\
+> sattvaikatāna-gatayo vacasāṁ pravāhaiḥ\
+> nārādhituṁ puru-guṇair adhunāpi pipruḥ\
 > kiṁ toṣṭum arhati sa me harir ugra-jāteḥ
 
 *śrī-prahrādaḥ uvāca*—Prahlāda Mahārāja oró; *brahma-ādayaḥ*—encabezados por el Señor Brahmā; *sura-gaṇāḥ*—los habitantes de los sistemas planetarios superiores; *munayaḥ*—las grandes personas santas; *atha*—además (como los cuatro Kumāras y otros); *siddhāḥ*—que han alcanzado la perfección o el conocimiento completo; *sattva*—a la existencia espiritual; *ekatāna-gatayaḥ*—que han emprendido sin distraerse con ninguna actividad material; *vacasām*—de descripciones o palabras; *pravāhaiḥ*—con torrentes; *na*—no; *ārādhitum*—para satisfacer; *puru-guṇaiḥ*—aunque perfectamente cualificados; *adhunā*—hasta ahora; *api*—incluso; *pipruḥ*—fueron capaces; *kim*—si; *toṣṭum*—sentirse complacido; *arhati*—puede; *saḥ*—Él (el Señor); *me*—mi; *hariḥ*—la Suprema Personalidad de Dios; *ugra-jāteḥ*—que he nacido en una familia de *asuras*.

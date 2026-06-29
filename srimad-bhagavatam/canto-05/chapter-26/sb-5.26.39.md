@@ -1,11 +1,11 @@
 ### SB 5.26.39
 
-> श्रुत्वा स्थूलं तथा सूक्ष्मं रूपं भगवतो यतिः
+> श्रुत्वा स्थूलं तथा सूक्ष्मं रूपं भगवतो यतिः\
 > स्थूले निर्जितमात्मानं शनैः सूक्ष्मं धिया नयेदिति ॥३८॥
 
-> śrutvā sthūlaṁ tathā sūkṣmaṁ
-> rūpaṁ bhagavato yatiḥ
-> sthūle nirjitam ātmānaṁ
+> śrutvā sthūlaṁ tathā sūkṣmaṁ\
+> rūpaṁ bhagavato yatiḥ\
+> sthūle nirjitam ātmānaṁ\
 > śanaiḥ sūkṣmaṁ dhiyā nayed iti
 
 *śrutvā*—after hearing of (from the disciplic succession); *sthūlam*—gross; *tathā*—as well as; *sūkṣmam*—subtle; *rūpam*—form; *bhagavataḥ*—of the Supreme Personality of Godhead; *yatiḥ*—a *sannyāsī* or devotee; *sthūle*—the gross form; *nirjitam*—conquered; *ātmānam*—the mind; *śanaiḥ*—gradually; *sūkṣmam*—the subtle. spiritual form of the Lord; *dhiyā*—by intelligence; *nayet*—one should lead it to; *iti*—thus.

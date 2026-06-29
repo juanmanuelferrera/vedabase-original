@@ -1,9 +1,9 @@
 ### SB 5.3.17
 
-> श्रीभगवानुवाच
+> श्रीभगवानुवाच\
 > अहो बताहमृषयो भवद्भिरवितथगीर्भिर्वरमसुलभमभियाचितो यदमुष्यात्मजो मयासदृशो भूयादिति ममाहमेवाभिरूपः कैवल्यादथापि ब्रह्मवादो न मृषा भवितुमर्हति ममैव हिमुखं यद्द्विजदेवकुलम ॥१६॥
 
-> śrī-bhagavān uvāca
+> śrī-bhagavān uvāca\
 > aho batāham ṛṣayo bhavadbhir avitatha-gīrbhir varam asulabham abhiyācito yad amuṣyātmajo mayā sadṛśo bhūyād iti mamāham evābhirūpaḥ kaivalyād athāpi brahma-vādo na mṛṣā bhavitum arhati mamaiva hi mukhaṁ yad dvija-deva-kulam.
 
 *śrī-bhagavān uvāca*—the Supreme Personality of Godhead said; *aho*—alas; *bata*—certainly I am pleased; *aham*—I; *ṛṣayaḥ*—O great sages; *bhavadbhiḥ*—by you; *avitatha-gīrbhiḥ*—whose words are all true; *varam*—for a benediction; *asulabham*—very difficult to achieve; *abhiyācitaḥ*—have been requested; *yat*—that; *amuṣya*—of King Nābhi; *ātma-jaḥ*—a son; *mayā sadṛśaḥ*—like Me; *bhūyāt*—there may be; *iti*—thus; *mama*—My; *aham*—I; *eva*—only; *abhirūpaḥ*—equal; *kaivalyāt*—because of being without a second; *athāpi*—nevertheless; *brahma-vādaḥ*—the words spoken by exalted *brāhmaṇas*; *na*—not; *mṛṣā*—false; *bhavitum*—to become; *arhati*—ought; *mama*—My; *eva*—certainly; *hi*—because; *mukham*—mouth; *yat*—that; *dvija-deva-kulam*—the class of pure *brāhmaṇas.*

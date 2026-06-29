@@ -1,11 +1,11 @@
 ### SB 1.14.10
 
-> पश्योत्पातान्नरव्याघ्र दिव्यान्भौमान्सदैहिकान् ।
+> पश्योत्पातान्नरव्याघ्र दिव्यान्भौमान्सदैहिकान् ।\
 > दारुणान्शंसतोऽदूराद्भयं नो बुद्धिमोहनम् ॥१०॥
 
-> paśyotpātān nara-vyāghra
-> divyān bhaumān sadaihikān
-> dāruṇān śaṁsato 'dūrād
+> paśyotpātān nara-vyāghra\
+> divyān bhaumān sadaihikān\
+> dāruṇān śaṁsato 'dūrād\
 > bhayaṁ no buddhi-mohanam
 
 *paśya*—just see; *utpātān*—disturbances; *nara-vyāghra*—O man of tigerlike strength; *divyān*—happenings in the sky or by planetary influence; *bhaumān*—happenings on the earth; *sa-daihikān*—happenings of the body and the mind; *dāruṇān*—awfully dangerous; *śaṁsataḥ*—indicating; *adūrāt*—in the near future; *bhayam*—danger; *naḥ*—our; *buddhi*—intelligence; *mohanam*—deluding.

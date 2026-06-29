@@ -1,11 +1,11 @@
 ### SB 3.2.33
 
-> वर्षतीन्द्रे व्रजः कोपाद्भग्नमानेऽतिविह्वलः ।
+> वर्षतीन्द्रे व्रजः कोपाद्भग्नमानेऽतिविह्वलः ।\
 > गोत्रलीलातपत्रेण त्रातो भद्रानुगृह्णता ॥३३॥
 
-> varṣatīndre vrajaḥ kopād
-> bhagnamāne 'tivihvalaḥ
-> gotra-līlātapatreṇa
+> varṣatīndre vrajaḥ kopād\
+> bhagnamāne 'tivihvalaḥ\
+> gotra-līlātapatreṇa\
 > trāto bhadrānugṛhṇatā
 
 *varṣati*—al verter agua; *indre*—por el rey del cielo, Indra; *vrajaḥ*—la tierra de las vacas (Vṛndāvana); *kopāt bhagnamāne*—habiéndose enfurecido por haber sido insultado; *ati*—muy; *vihvalaḥ*—perturbado; *gotra*—la colina para las vacas; *līlā-ātapatreṇa*—mediante el paraguas de pasatiempo; *trātaḥ*—fueron protegidos; *bhadra*—¡oh, tú, el ecuánime!; *anugṛhṇatā*—por el misericordioso Señor.

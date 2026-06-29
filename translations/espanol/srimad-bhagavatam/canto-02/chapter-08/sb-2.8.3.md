@@ -1,11 +1,11 @@
 ### SB 2.8.3
 
-> कथयस्व महाभाग यथाहमखिलात्मनि ।
+> कथयस्व महाभाग यथाहमखिलात्मनि ।\
 > कृष्णे निवेश्य निःसङ्गं मनस्त्यक्ष्ये कलेवरम् ॥३॥
 
-> kathayasva mahābhāga
-> yathāham akhilātmani
-> kṛṣṇe niveśya niḥsaṅgaṁ
+> kathayasva mahābhāga\
+> yathāham akhilātmani\
+> kṛṣṇe niveśya niḥsaṅgaṁ\
 > manas tyakṣye kalevaram
 
 *kathayasva*—por favor continúa hablando; *mahābhāga*—¡oh, muy afortunado!; *yathā*—tanto como; *aham*—yo; *akhila-ātmani*—al Alma Suprema; *kṛṣṇe*—al Señor Śrī Kṛṣṇa; *niveśya*—habiendo colocado; *nihsaṅgam*—estando libre de las cualidades materiales; *manaḥ*—mente; *tyakṣye*—pueda abandonar; *kalevaram*—cuerpo.

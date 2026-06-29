@@ -1,11 +1,11 @@
 ### SB 5.10.19
 
-> अहं च योगेश्वरमात्मतत्त्व विदां मुनीनां परमं गुरुं वै
+> अहं च योगेश्वरमात्मतत्त्व विदां मुनीनां परमं गुरुं वै\
 > प्रष्टुं प्रवृत्तः किमिहारणं तत्साक्षाद्धरिं ज्ञआनकलावतीर्णम ॥१९॥
 
-> ahaṁ ca yogeśvaram ātma-tattva-
-> vidāṁ munīnāṁ paramaṁ guruṁ vai
-> praṣṭuṁ pravṛttaḥ kim ihāraṇaṁ tat
+> ahaṁ ca yogeśvaram ātma-tattva-\
+> vidāṁ munīnāṁ paramaṁ guruṁ vai\
+> praṣṭuṁ pravṛttaḥ kim ihāraṇaṁ tat\
 > sākṣād dhariṁ jñāna-kalāvatīrṇam
 
 *aham*—I; *ca*—and; *yoga-īśvaram*—the master of all mystic power; *ātma-tattva-vidām*—of the learned scholars who are aware of the spiritual science; *munīnām*—of such saintly persons; *paramam*—the best; *gurum*—the preceptor; *vai*—indeed; *praṣṭum*—to inquire; *pravṛttaḥ*—engaged; *kim*—what; *iha*—in this world; *araṇam*—the most secure shelter; *tat*—that which; *sākṣāt harim*—directly the Supreme Personality of Godhead; *jñāna-kalā-avatīrṇam*—who has descended as the incarnation of complete knowledge in His plenary portion known as Kapiladeva.

@@ -1,11 +1,11 @@
 ### SB 7.4.33
 
-> नोद्विग्नचित्तो व्यसनेषु निःस्पृहः श्रुतेषु दृष्टेषु गुणेष्ववस्तुदृक
+> नोद्विग्नचित्तो व्यसनेषु निःस्पृहः श्रुतेषु दृष्टेषु गुणेष्ववस्तुदृक\
 > दान्तेन्द्रियप्राणशरीरधीः सदा प्रशान्तकामो रहितासुरोऽसुरः ॥३३॥
 
-> nodvigna-citto vyasaneṣu niḥspṛhaḥ
-> śruteṣu dṛṣṭeṣu guṇeṣv avastu-dṛk
-> dāntendriya-prāṇa-śarīra-dhīḥ sadā
+> nodvigna-citto vyasaneṣu niḥspṛhaḥ\
+> śruteṣu dṛṣṭeṣu guṇeṣv avastu-dṛk\
+> dāntendriya-prāṇa-śarīra-dhīḥ sadā\
 > praśānta-kāmo rahitāsuro 'suraḥ
 
 *na*—no; *udvigna*—agitada; *cittaḥ*—cuya conciencia; *vyasaneṣu*—en situaciones de peligro; *niḥspṛhaḥ*—sin deseo; *śruteṣu*—en lo que había escuchado (y en especial la elevación a los planetas celestiales mediante actividades piadosas); *dṛṣṭeṣu*—así como en las cosas temporales que había visto; *guṇeṣu*—los objetos del placer de los sentidos bajo las modalidades de la naturaleza material; *avastu-dṛk*—considerando insustanciales; *dānta*—controlando; *indriya*—los sentidos; *prāṇa*—la fuerza viviente; *śarīra*—el cuerpo; *dhīḥ*—y la inteligencia; *sadā*—siempre; *praśānta*—calmados; *kāmaḥ*—cuyos deseos materiales; *rahita*—completamente libre de; *asuraḥ*—naturaleza demoníaca; *asuraḥ*—aunque nacido en una familia demoníaca.

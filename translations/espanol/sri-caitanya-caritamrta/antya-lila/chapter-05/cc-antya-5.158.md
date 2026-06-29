@@ -1,9 +1,9 @@
 ### CC Antya 5.158
 
-> সেই কবি সর্ব ত্যজি’ রহিলা নীলাচলে ।
+> সেই কবি সর্ব ত্যজি’ রহিলা নীলাচলে ।\
 > গৌরভক্তগণের কৃপা কে কহিতে পারে ? ॥ ১৫৮ ॥
 
-> sei kavi sarva tyaji' rahilā nīlācale
+> sei kavi sarva tyaji' rahilā nīlācale\
 > gaura-bhakta-gaṇera kṛpā ke kahite pāre?
 
 *sei kavi*—ese poeta; *sarva tyaji'*—abandonando todas las actividades absurdas; *rahilā*—permaneció; *nīlācale*—en Jagannātha Purī; *gaura-bhakta-gaṇera*—de los devotos del Señor Śrī Caitanya Mahāprabhu; *kṛpā*—la misericordia; *ke*—quién; *kahite pāre*—puede explicar.

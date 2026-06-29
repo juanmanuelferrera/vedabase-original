@@ -1,11 +1,11 @@
 ### SB 8.24.43
 
-> तमूचुर्मुनयः प्रीता राजन्ध्यायस्व केशवम
+> तमूचुर्मुनयः प्रीता राजन्ध्यायस्व केशवम\
 > स वै नः सङ्कटादस्मादविता शं विधास्यति ॥४३॥
 
-> tam ūcur munayaḥ prītā
-> rājan dhyāyasva keśavam
-> sa vai naḥ saṅkaṭād asmād
+> tam ūcur munayaḥ prītā\
+> rājan dhyāyasva keśavam\
+> sa vai naḥ saṅkaṭād asmād\
 > avitā śaṁ vidhāsyati
 
 *tam*—al rey; *ūcuḥ*—dijeron; *munayaḥ*—todos los *brāhmaṇas* santos; *prītāḥ*—complacidos; *rājan*—¡oh, rey!; *dhyāyasva*—medita; *keśavam*—en el Señor Supremo, Keśava; *saḥ*—Su Señoría; *vai*—en verdad; *naḥ*—a nosotros; *saṅkaṭāt*—del gran peligro; *asmāt*—que ahora es visible; *avitā*—salvará; *śam*—lo auspicioso; *vidhāsyati*—Él dispondrá.

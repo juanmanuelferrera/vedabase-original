@@ -1,9 +1,9 @@
 ### CC Antya 3.141
 
-> তুলসী সেবন করে, চর্বণ, উপবাস ।
+> তুলসী সেবন করে, চর্বণ, উপবাস ।\
 > ইন্দ্রিয়-দমন হৈল, প্রেমের প্রকাশ ॥১৪১॥
 
-> tulasī sevana kare, carvaṇa, upavāsa
+> tulasī sevana kare, carvaṇa, upavāsa\
 > indriya-damana haila, premera prakāśa
 
 *tulasī*—la planta de tulasī; *sevana kare*—adoraba; *carvaṇa*—mascando; *upavāsa*—ayunando; *indriya-damana*—control de los sentidos; *haila*—hubo; *premera prakāśa*—manifestaciones que indican amor por Dios.

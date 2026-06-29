@@ -1,9 +1,9 @@
 ### CC Madhya 23.123
 
-> ‘মুঞি যে শিখালুঁ তোরে স্ফুরুক সকল’  ।
+> ‘মুঞি যে শিখালুঁ তোরে স্ফুরুক সকল’  ।\
 > এই তোমার বর হৈতে হবে মোর বল ।।” ১২৩ ॥১২৩॥
 
-> 'muñi ye śikhāluṅ tore sphuruka sakala'
+> 'muñi ye śikhāluṅ tore sphuruka sakala'\
 > ei tomāra vara haite habe mora bala"
 
 *muñi*—I; *ye*—whatever; *śikhāluṅ*—have instructed; *tore*—unto you; *sphuruka sakala*—let it be manifested; *ei*—this; *tomāra vara*—Your benediction; *haite*—from; *habe*—there will be; *mora bala*—my strength.

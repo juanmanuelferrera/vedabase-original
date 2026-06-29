@@ -1,11 +1,11 @@
 ### SB 1.13.50
 
-> निष्पादितं देवकृत्यमवशेषं प्रतीक्षते ।
+> निष्पादितं देवकृत्यमवशेषं प्रतीक्षते ।\
 > तावद्यूयमवेक्षध्वं भवेद्यावदिहेश्वरः ॥५०॥
 
-> niṣpāditaṁ deva-kṛtyam
-> avaśeṣaṁ pratīkṣate
-> tāvad yūyam avekṣadhvaṁ
+> niṣpāditaṁ deva-kṛtyam\
+> avaśeṣaṁ pratīkṣate\
+> tāvad yūyam avekṣadhvaṁ\
 > bhaved yāvad iheśvaraḥ
 
 *niṣpāditam*—realizado; *deva-kṛtyam*—lo que había de hacerse en el nombre de los semidioses; *avaśeṣam*—el resto; *pratīkṣate*—siendo esperado; *tāvat*—hasta ese momento; *yūyam*—ustedes, todos los Pāṇḍavas; *avekṣadhvam*—observen y aguarden; *bhavet*—han de; *yāvat*—mientras; *iha*—en este mundo; *īśvaraḥ*—el Señor Supremo.

@@ -1,11 +1,11 @@
 ### SB 3.6.18
 
-> त्वचमस्य विनिर्भिन्नां विविशुर्धिष्ण्यमोषधीः ।
+> त्वचमस्य विनिर्भिन्नां विविशुर्धिष्ण्यमोषधीः ।\
 > अंशेन रोमभिः कण्डूं यैरसौ प्रतिपद्यते ॥१८॥
 
-> tvacam asya vinirbhinnāṁ
-> viviśur dhiṣṇyam oṣadhīḥ
-> aṁśena romabhiḥ kaṇḍūṁ
+> tvacam asya vinirbhinnāṁ\
+> viviśur dhiṣṇyam oṣadhīḥ\
+> aṁśena romabhiḥ kaṇḍūṁ\
 > yair asau pratipadyate
 
 *tvacam*—skin; *asya*—of the gigantic form; *vinirbhinnām*—being separately manifested; *viviśuḥ*—entered; *dhiṣṇyam*—the controlling deity; *oṣadhīḥ*—sensations; *aṁśena*—with parts; *romabhiḥ*—through the hairs on the body; *kaṇḍūm*—itching; *yaiḥ*—by which; *asau*—the living entity; *pratipadyate*—experiences.

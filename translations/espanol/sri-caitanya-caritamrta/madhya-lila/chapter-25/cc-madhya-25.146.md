@@ -1,11 +1,11 @@
 ### CC Madhya 25.146
 
-> সর্ববেদান্তসারং হি শ্রীমদ্ভাগবতমিষ্যতে ৷
+> সর্ববেদান্তসারং হি শ্রীমদ্ভাগবতমিষ্যতে ৷\
 > তদ্রসামৃততৃপ্তস্য নান্যত্র স্যাদ্রতিঃ ক্বচিৎ ৷৷ ১৪৬ ৷৷ ॥১৪৬॥
 
-> sarva-vedānta-sāraṁ hi
-> śrīmad-bhāgavatam iṣyate
-> tad-rasāmṛta-tṛptasya
+> sarva-vedānta-sāraṁ hi\
+> śrīmad-bhāgavatam iṣyate\
+> tad-rasāmṛta-tṛptasya\
 > nānyatra syād ratiḥ kvacit
 
 *sarva-vedānta-sāram*—la mejor parte de todo el Vedānta; *hi*—ciertamente; *śrīmad-bhāgavatam*—la gran literatura acerca del Bhagavān; *iṣyate*—se acepta; *tat-rasa-amṛta*—por el néctar trascendental derivado de esa gran literatura; *tṛptasya*—de aquel que está satisfecho; *na*—nunca; *anyatra*—en ningún otro lugar; *syāt*—hay; *ratiḥ*—atracción; *kvacit*—en ningún momento.

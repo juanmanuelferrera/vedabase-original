@@ -1,9 +1,9 @@
 ### CC Madhya 19.135
 
-> এইমত দশদিন প্রয়াগে রহিয়া ।
+> এইমত দশদিন প্রয়াগে রহিয়া ।\
 > শ্রীরূপে শিক্ষা দিল শক্তি সঞ্চারিয়া ॥১৩৫॥
 
-> ei-mata daśa-dina prayāge rahiyā
+> ei-mata daśa-dina prayāge rahiyā\
 > śrī-rūpe śikṣā dila śakti sañcāriyā
 
 *ei-mata*—de esta manera; *daśa-dina*—durante diez días; *prayāge*—en Prayāga; *rahiyā*—permaneciendo; *śrī-rūpe*—a Śrīla Rūpa Gosvāmī; *śikṣā*—instrucciones; *dila*—impartió; *śakti sañcāriyā*—confiriéndole la potencia necesaria.

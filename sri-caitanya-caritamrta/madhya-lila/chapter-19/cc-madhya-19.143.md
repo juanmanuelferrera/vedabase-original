@@ -1,13 +1,13 @@
 ### CC Madhya 19.143
 
-> অপরিমিতা ধ্রুবাস্তনুভৃতো যদি সর্বগতা-
-> স্তর্হি ন শাস্যতেতি নিয়মো ধ্রুব নেতরথা ।
-> অজনি চ যন্ময়ং তদবিমুচ্য নিয়ন্তৃ ভবেত্
+> অপরিমিতা ধ্রুবাস্তনুভৃতো যদি সর্বগতা-\
+> স্তর্হি ন শাস্যতেতি নিয়মো ধ্রুব নেতরথা ।\
+> অজনি চ যন্ময়ং তদবিমুচ্য নিয়ন্তৃ ভবেত্\
 > সমমনুজানতাং যদমতং মতদুষ্টতয়া ॥১৪৩॥
 
-> aparimitā dhruvās tanu-bhṛto yadi sarva-gatās
-> tarhi na śāsyateti niyamo dhruva netarathā
-> ajani ca yan-mayaṁ tad avimucya niyantṛ bhavet
+> aparimitā dhruvās tanu-bhṛto yadi sarva-gatās\
+> tarhi na śāsyateti niyamo dhruva netarathā\
+> ajani ca yan-mayaṁ tad avimucya niyantṛ bhavet\
 > samam anujānatāṁ yad amataṁ mata-duṣṭatayā
 
 *aparimitāḥ*—unlimited in number; *dhruvāḥ*—eternals; *tanu-bhṛtaḥ*—who have accepted material bodies; *yadi*—if; *sarva-gatāḥ*—all-pervading; *tarhi*—then; *na*—not; *śāsyatā*—controllable; *iti*—thus; *niyamaḥ*—regulation; *dhruva*—O Supreme Truth; *na*—not; *itarathā*—in another manner; *ajani*—have been born; *ca*—and; *yat-mayam*—consisting of which; *tat*—that; *avimucya*—without giving up; *niyantṛ*—controller; *bhavet*—may become; *samam*—equal in all respects; *anu-jānatām*—of those who follow this philosophical calculation; *yat*—that; *amatam*—not conclusive; *mata-duṣṭatayā*—by faulty calculations.

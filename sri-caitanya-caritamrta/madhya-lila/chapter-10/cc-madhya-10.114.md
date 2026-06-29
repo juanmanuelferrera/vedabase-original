@@ -1,9 +1,9 @@
 ### CC Madhya 10.114
 
-> অতএব স্বরূপ আগে করে পরীক্ষণ ।
+> অতএব স্বরূপ আগে করে পরীক্ষণ ।\
 > শুদ্ধ হয় যদি, প্রভুরে করা’ন শ্রবণ ॥১১৪॥
 
-> ataeva svarūpa āge kare parīkṣaṇa
+> ataeva svarūpa āge kare parīkṣaṇa\
 > śuddha haya yadi, prabhure karā'na śravaṇa
 
 *ataeva*—therefore; *svarūpa*—Svarūpa Dāmodara; *āge*—at first; *kare*—does; *parīkṣaṇa*—examination; *śuddha*—pure; *haya*—is; *yadi*—if; *prabhure*—unto Lord Śrī Caitanya Mahāprabhu; *karā'na*—causes; *śravaṇa*—hearing.

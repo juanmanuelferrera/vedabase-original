@@ -1,11 +1,11 @@
 ### SB 8.2.26
 
-> स पुष्करेणोद्धृतशीकराम्बुभिर्निपाययन्संस्नपयन्यथा गृही
+> स पुष्करेणोद्धृतशीकराम्बुभिर्निपाययन्संस्नपयन्यथा गृही\
 > घृणी करेणुः करभांश्च दुर्मदो नाचष्ट कृच्छ्रं कृपणोऽजमायया ॥२६॥
 
-> sa puṣkareṇoddhṛta-śīkarāmbubhir
-> nipāyayan saṁsnapayan yathā gṛhī
-> ghṛṇī kareṇuḥ karabhāṁś ca durmado
+> sa puṣkareṇoddhṛta-śīkarāmbubhir\
+> nipāyayan saṁsnapayan yathā gṛhī\
+> ghṛṇī kareṇuḥ karabhāṁś ca durmado\
 > nācaṣṭa kṛcchraṁ kṛpaṇo 'ja-māyayā
 
 *saḥ*—he (the leader of the elephants); *puṣkareṇa*—with his trunk; *uddhṛta*—by drawing out; *śīkara-ambubhiḥ*—and sprinkling the water; *nipāyayan*—causing them to drink; *saṁsnapayan*—and bathing them; *yathā*—as; *gṛhī*—a householder; *ghṛṇī*—always kind (to the members of his family); *kareṇuḥ*—to his wives, the female elephants; *karabhān*—to the children; *ca*—as well as; *durmadaḥ*—who is too attached to the members of his family; *na*—not; *ācaṣṭa*—considered; *kṛcchram*—hardship; *kṛpaṇaḥ*—being without spiritual knowledge; *aja-māyayā*—because of the influence of the external, illusory energy of the Supreme Personality of Godhead.

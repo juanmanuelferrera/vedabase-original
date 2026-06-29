@@ -1,11 +1,11 @@
 ### SB 8.11.42
 
-> अन्येऽप्येवं प्रतिद्वन्द्वान्वाय्वग्निवरुणादयः
+> अन्येऽप्येवं प्रतिद्वन्द्वान्वाय्वग्निवरुणादयः\
 > सूदयामासुरसुरान्मृगान्केसरिणो यथा ॥४२॥
 
-> anye 'py evaṁ pratidvandvān
-> vāyv-agni-varuṇādayaḥ
-> sūdayām āsur asurān
+> anye 'py evaṁ pratidvandvān\
+> vāyv-agni-varuṇādayaḥ\
+> sūdayām āsur asurān\
 > mṛgān kesariṇo yathā
 
 *anye*—otros; *api*—también; *evam*—de este modo; *pratidvandvān*—al bando opuesto de los enfrentados; *vāyu*—el semidiós llamado Vāyu; *agni*—el semidiós Agni; *varuṇa-ādayaḥ*—el semidiós Varuṇa y otros; *sūdayām āsuḥ*—se dedicaron a matar vigorosamente; *asurān*—a todos los demonios; *mṛgān*—ciervos; *kesariṇaḥ*—leones; *yathā*—tal y como.

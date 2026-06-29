@@ -1,9 +1,9 @@
 ### CC Madhya 8.74
 
-> প্রভু কহে, — “এহো হয়, কিছু আগে আর ।”
+> প্রভু কহে, — “এহো হয়, কিছু আগে আর ।”\
 > রায় কহে, — “সখ্য-প্রেম — সর্বসাধ্যসার ।।” ॥৭৪॥
 
-> prabhu kahe, "eho haya, kichu āge āra"
+> prabhu kahe, "eho haya, kichu āge āra"\
 > rāya kahe, "sakhya-prema—sarva-sādhya-sāra"
 
 *prabhu kahe*—the Lord said; *eho haya*—this is also right; *kichu*—something; *āge*—ahead; *āra*—more; *rāya kahe*—Rāmānanda Rāya replied; *sakhya-prema*—transcendental loving service in fraternity; *sarva-sādhya-sāra*—the highest perfectional stage.

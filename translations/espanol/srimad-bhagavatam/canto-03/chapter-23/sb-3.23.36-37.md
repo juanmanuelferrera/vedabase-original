@@ -1,18 +1,18 @@
 ### SB 3.23.36-37
 
-> स तां कृतमलस्नानां विभ्राजन्तीमपूर्ववत् ।
-> आत्मनो बिभ्रतीं रूपं संवीतरुचिरस्तनीम् ॥३६॥
-> विद्याधरीसहस्रेण सेव्यमानां सुवाससम् ।
+> स तां कृतमलस्नानां विभ्राजन्तीमपूर्ववत् ।\
+> आत्मनो बिभ्रतीं रूपं संवीतरुचिरस्तनीम् ॥३६॥\
+> विद्याधरीसहस्रेण सेव्यमानां सुवाससम् ।\
 > जातभावो विमानं तदारोहयदमित्रहन् ॥३७॥
 
-> sa tāṁ kṛta-mala-snānāṁ
-> vibhrājantīm apūrvavat
-> ātmano bibhratīṁ rūpaṁ
+> sa tāṁ kṛta-mala-snānāṁ\
+> vibhrājantīm apūrvavat\
+> ātmano bibhratīṁ rūpaṁ\
 > saṁvīta-rucira-stanīm
 
-> vidyādharī-sahasreṇa
-> sevyamānāṁ suvāsasam
-> jāta-bhāvo vimānaṁ tad
+> vidyādharī-sahasreṇa\
+> sevyamānāṁ suvāsasam\
+> jāta-bhāvo vimānaṁ tad\
 > ārohayad amitra-han
 
 *saḥ*—el sabio; *tām*—a ella (Devahūti); *kṛta-mala-snānām*—aseada mediante el baño; *vibhrājantīm*—brillando; *apūrva-vat*—sin precedentes; *ātmanaḥ*—su propia; *bibhratīm*—poseyendo; *rūpam*—belleza; *saṁvīta*—ceñidos; *rucira*—atractivos; *stanīm*—con senos; *vidyādharī*—de muchachas *gandharvas*; *sahasreṇa*—por un millar; *sevyamānām*—servida por; *su-vāsasam*—vestida con ropas excelentes; *jāta-bhāvaḥ*—lleno de cariño; *vimānam*—avión en forma de palacio; *tat*—aquel; *ārohayat*—la subió a bordo; *amitra-han*—¡oh, destructor del enemigo!.

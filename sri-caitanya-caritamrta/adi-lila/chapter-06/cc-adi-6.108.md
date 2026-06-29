@@ -1,9 +1,9 @@
 ### CC Adi 6.108
 
-> স্বমাধুর্য আস্বাদিতে করেন যতন ।
+> স্বমাধুর্য আস্বাদিতে করেন যতন ।\
 > ভক্তভাব বিনু নহে তাহা আস্বাদন ॥১০৮॥
 
-> svā-mādhurya āsvādite karena yatana
+> svā-mādhurya āsvādite karena yatana\
 > bhakta-bhāva vinu nahe tāhā āsvādana
 
 *svā-mādhurya*—the sweetness of Himself; *āsvādite*—to taste; *karena yatana*—makes endeavors; *bhakta-bhāva*—the emotion of being a devotee; *vinu*—without; *nahe*—there is not; *tāhā*—that; *āsvādana*—tasting.

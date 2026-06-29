@@ -1,11 +1,11 @@
 ### SB 3.33.19
 
-> यत्र प्रविष्टमात्मानं विबुधानुचरा जगुः ।
+> यत्र प्रविष्टमात्मानं विबुधानुचरा जगुः ।\
 > वाप्यामुत्पलगन्धिन्यां कर्दमेनोपलालितम् ॥१९॥
 
-> yatra praviṣṭam ātmānaṁ
-> vibudhānucarā jaguḥ
-> vāpyām utpala-gandhinyāṁ
+> yatra praviṣṭam ātmānaṁ\
+> vibudhānucarā jaguḥ\
+> vāpyām utpala-gandhinyāṁ\
 > kardamenopalālitam
 
 *yatra*—donde; *praviṣṭam*—habiendo entrado; *ātmānam*—a ella; *vibudha-anucarāḥ*—los acompañantes de los habitantes del cielo; *jaguḥ*—cantaban; *vāpyām*—en el estanque; *utpala*—de lotos; *gandhinyām*—con la fragancia; *kardamena*—por Kardama; *upalālitam*—tratada con gran cuidado.

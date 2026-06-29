@@ -1,9 +1,9 @@
 ### CC Madhya 1.154
 
-> পাষণ্ডী নিন্দক আসি’ পড়িলা চরণে ।
+> পাষণ্ডী নিন্দক আসি’ পড়িলা চরণে ।\
 > অপরাধ ক্ষমি’ তারে দিল কৃষ্ণপ্রেমে ॥১৫৪॥
 
-> pāṣaṇḍī nindaka āsi' paḍilā caraṇe
+> pāṣaṇḍī nindaka āsi' paḍilā caraṇe\
 > aparādha kṣami' tāre dila kṛṣṇa-preme
 
 *pāṣaṇḍī*—atheists; *nindaka*—blasphemers; *āsi'*—coming there; *paḍilā*—fell down; *caraṇe*—at the lotus feet of the Lord; *aparādha kṣami'*—excusing them of their offenses; *tāre*—unto them; *dila*—gave; *kṛṣṇa-preme*—love of Kṛṣṇa.

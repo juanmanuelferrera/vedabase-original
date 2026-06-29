@@ -1,13 +1,13 @@
 ### SB 4.7.45
 
-> ब्राह्मणा ऊचुः
-> त्वं क्रतुस्त्वं हविस्त्वं हुताशः स्वयं त्वं हि मन्त्रः समिद्दर्भपात्राणि च ।
+> ब्राह्मणा ऊचुः\
+> त्वं क्रतुस्त्वं हविस्त्वं हुताशः स्वयं त्वं हि मन्त्रः समिद्दर्भपात्राणि च ।\
 > त्वं सदस्यर्त्विजो दम्पती देवता अग्निहोत्रं स्वधा सोम आज्यं पशुः ॥४५॥
 
-> brāhmaṇā ūcuḥ
-> tvaṁ kratus tvaṁ havis tvaṁ hutāśaḥ svayaṁ
-> tvaṁ hi mantraḥ samid-darbha-pātrāṇi ca
-> tvaṁ sadasyartvijo dampatī devatā
+> brāhmaṇā ūcuḥ\
+> tvaṁ kratus tvaṁ havis tvaṁ hutāśaḥ svayaṁ\
+> tvaṁ hi mantraḥ samid-darbha-pātrāṇi ca\
+> tvaṁ sadasyartvijo dampatī devatā\
 > agnihotraṁ svadhā soma ājyaṁ paśuḥ
 
 *brāhmaṇāḥ*—the *brāhmaṇas*; *ūcuḥ*—said; *tvam*—You; *kratuḥ*—sacrifice; *tvam*—You; *haviḥ*—offering of clarified butter; *tvam*—You; *huta-āśaḥ*—fire; *svayam*—personified; *tvam*—You; *hi*—for; *mantraḥ*—the Vedic hymns; *samit-darbha-pātrāṇi*—the fuel, the *kuśa* grass and the sacrificial pots; *ca*—and; *tvam*—You; *sadasya*—the members of the assembly; *ṛtvijaḥ*—the priests; *dampatī*—the chief person of the sacrifice and his wife; *devatā*—demigods; *agni-hotram*—the sacred fire ceremony; *svadhā*—the offering to the forefathers; *somaḥ*—the *soma* plant; *ājyam*—the clarified butter; *paśuḥ*—the sacrificial animal.

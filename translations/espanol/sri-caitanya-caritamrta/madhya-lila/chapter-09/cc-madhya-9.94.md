@@ -1,9 +1,9 @@
 ### CC Madhya 9.94
 
-> অষ্টাদশাধ্যায় পড়ে আনন্দ-আবেশে ৷
+> অষ্টাদশাধ্যায় পড়ে আনন্দ-আবেশে ৷\
 > অশুদ্ধ পড়েন, লোক করে উপহাসে ৷৷ ৯৪ ৷৷ ॥৯৪॥
 
-> aṣṭādaśādhyāya paḍe ānanda-āveśe
+> aṣṭādaśādhyāya paḍe ānanda-āveśe\
 > aśuddha paḍena, loka kare upahāse
 
 *aṣṭādaśa-adhyāya*—dieciocho capítulos; *paḍe*—lee; *ānanda-āveśe*—con gran éxtasis; *aśuddha paḍena*—no podía pronunciar el texto correctamente; *loka*—la gente en general; *kare*—hace; *upahāse*—burla.

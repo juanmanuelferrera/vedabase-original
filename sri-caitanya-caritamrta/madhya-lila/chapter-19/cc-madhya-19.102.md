@@ -1,9 +1,9 @@
 ### CC Madhya 19.102
 
-> শ্যাম-রূপের বাসস্থান শ্রেষ্ঠ মান’ কায় ?
+> শ্যাম-রূপের বাসস্থান শ্রেষ্ঠ মান’ কায় ?\
 > ‘পুরী মধুপুরী বরা’ — কহে উপাধ্যায় ॥১০২॥
 
-> śyāma-rūpera vāsa-sthāna śreṣṭha māna' kāya?
+> śyāma-rūpera vāsa-sthāna śreṣṭha māna' kāya?\
 > 'purī madhu-purī varā'—kahe upādhyāya
 
 *śyāma-rūpera*—of the supreme form, Śyāmasundara; *vāsa-sthāna*—residence; *śreṣṭha*—the supreme; *māna'*—you accept; *kāya*—which; *purī*—the city; *madhu-purī*—Mathurā; *varā*—best; *kahe*—said; *upādhyāya*—Raghupati Upādhyāya.

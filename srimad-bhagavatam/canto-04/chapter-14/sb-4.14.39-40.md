@@ -1,18 +1,18 @@
 ### SB 4.14.39-40
 
-> तदुपद्रवमाज्ञाय लोकस्य वसु लुम्पताम् ।
-> भर्तर्युपरते तस्मिन्नन्योन्यं च जिघांसताम् ॥३९॥
-> चोरप्रायं जनपदं हीनसत्त्वमराजकम् ।
+> तदुपद्रवमाज्ञाय लोकस्य वसु लुम्पताम् ।\
+> भर्तर्युपरते तस्मिन्नन्योन्यं च जिघांसताम् ॥३९॥\
+> चोरप्रायं जनपदं हीनसत्त्वमराजकम् ।\
 > लोकान्नावारयञ्छक्ता अपि तद्दोषदर्शिनः ॥४०॥
 
-> tad upadravam ājñāya
-> lokasya vasu lumpatām
-> bhartary uparate tasminn
+> tad upadravam ājñāya\
+> lokasya vasu lumpatām\
+> bhartary uparate tasminn\
 > anyonyaṁ ca jighāṁsatām
 
-> cora-prāyaṁ jana-padaṁ
-> hīna-sattvam arājakam
-> lokān nāvārayañ chaktā
+> cora-prāyaṁ jana-padaṁ\
+> hīna-sattvam arājakam\
+> lokān nāvārayañ chaktā\
 > api tad-doṣa-darśinaḥ
 
 *tat*—at that time; *upadravam*—the disturbance; *ājñāya*—understanding; *lokasya*—of the people in general; *vasu*—riches; *lumpatām*—by those who were plundering; *bhartari*—the protector; *uparate*—being dead; *tasmin*—King Vena; *anyonyam*—one another; *ca*—also; *jighāṁ-satām*—desiring to kill; *cora-prāyam*—full of thieves; *jana-padam*—the state; *hīna*—bereft of; *sattvam*—regulation; *arājakam*—without a king; *lokān*—the thieves and rogues; *na*—not; *avārayan*—they subdued; *śaktāḥ*—able to do so; *api*—although; *tat-doṣa*—the fault of that; *darśinaḥ*—considering.

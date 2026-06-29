@@ -1,13 +1,13 @@
 ### SB 3.16.10
 
-> ये मे तनूर्द्विजवरान्दुहतीर्मदीया
-> भूतान्यलब्धशरणानि च भेदबुद्ध्या ।
-> द्रक्ष्यन्त्यघक्षतदृशो ह्यहिमन्यवस्तान्
+> ये मे तनूर्द्विजवरान्दुहतीर्मदीया\
+> भूतान्यलब्धशरणानि च भेदबुद्ध्या ।\
+> द्रक्ष्यन्त्यघक्षतदृशो ह्यहिमन्यवस्तान्\
 > गृध्रा रुषा मम कुषन्त्यधिदण्डनेतुः ॥१०॥
 
-> ye me tanūr dvija-varān duhatīr madīyā
-> bhūtāny alabdha-śaraṇāni ca bheda-buddhyā
-> drakṣyanty agha-kṣata-dṛśo hy ahi-manyavas tān
+> ye me tanūr dvija-varān duhatīr madīyā\
+> bhūtāny alabdha-śaraṇāni ca bheda-buddhyā\
+> drakṣyanty agha-kṣata-dṛśo hy ahi-manyavas tān\
 > gṛdhrā ruṣā mama kuṣanty adhidaṇḍa-netuḥ
 
 *ye*—which persons; *me*—My; *tanūḥ*—body; *dvija-varān*—the best of the *brāhmaṇas*; *duhatīḥ*—cows; *madīyāḥ*—relating to Me; *bhūtāni*—living entities; *alabdha-śaraṇāni*—defenseless; *ca*—and; *bheda-buddhyā*—considering as different; *drakṣyanti*—see; *agha*—by sin; *kṣata*—is impaired; *dṛśaḥ*—whose faculty of judgment; *hi*—because; *ahi*—like a snake; *manyavaḥ*—angry; *tān*—those same persons; *gṛdhrāḥ*—the vulturelike messengers; *ruṣā*—angrily; *mama*—My; *kuṣanti*—tear; *adhidaṇḍa-netuḥ*—of the superintendent of punishment, Yamarāja.

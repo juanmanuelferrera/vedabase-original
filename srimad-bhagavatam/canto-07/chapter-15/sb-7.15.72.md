@@ -1,14 +1,14 @@
 ### SB 7.15.72
 
-> अहं च गायंस्तद्विद्वान्स्त्रीभिः परिवृतो गतः
-> ज्ञआत्वा विश्वसृजस्तन्मे हेलनं शेपुरोजसा
+> अहं च गायंस्तद्विद्वान्स्त्रीभिः परिवृतो गतः\
+> ज्ञआत्वा विश्वसृजस्तन्मे हेलनं शेपुरोजसा\
 > याहि त्वं शूद्रतामाशु नष्टश्रीः कृतहेलनः ॥७२॥
 
-> ahaṁ ca gāyaṁs tad-vidvān
-> strībhiḥ parivṛto gataḥ
-> jñātvā viśva-sṛjas tan me
-> helanaṁ śepur ojasā
-> yāhi tvaṁ śūdratām āśu
+> ahaṁ ca gāyaṁs tad-vidvān\
+> strībhiḥ parivṛto gataḥ\
+> jñātvā viśva-sṛjas tan me\
+> helanaṁ śepur ojasā\
+> yāhi tvaṁ śūdratām āśu\
 > naṣṭa-śrīḥ kṛta-helanaḥ
 
 *aham*—I myself; *ca*—and; *gāyan*—singing the glories of other demigods rather than those of the Lord; *tat-vidvān*—knowing very well the art of singing; *strībhiḥ*—by women; *parivṛtaḥ*—being surrounded; *gataḥ*—went there; *jñātvā*—knowing well; *viśva-sṛjaḥ*—the *prajāpatis,* to whom the management of universal affairs was entrusted; *tat*—the attitude of my singing; *me*—my; *helanam*—negligence; *śepuḥ*—cursed; *ojasā*—with great force; *yāhi*—become; *tvam*—you; *śūdratām*—a *śūdra*; *āśu*—immediately; *naṣṭa*—devoid of; *śrīḥ*—beauty; *kṛta-helanaḥ*—because of transgressing the etiquette.

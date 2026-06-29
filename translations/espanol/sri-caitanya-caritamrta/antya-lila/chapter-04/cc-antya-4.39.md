@@ -1,9 +1,9 @@
 ### CC Antya 4.39
 
-> সব রাত্রি ক্রন্দন করি’ কৈল জাগরণ  ।
+> সব রাত্রি ক্রন্দন করি’ কৈল জাগরণ  ।\
 > প্রাতঃকালে আমা-দুঁহায় কৈল নিবেদন ॥৩৯॥
 
-> saba rātri krandana kari' kaila jāgaraṇa
+> saba rātri krandana kari' kaila jāgaraṇa\
 > prātaḥ-kāle āmā-duṅhāya kaila nivedana
 
 *saba rātri*—toda la noche; *krandana*—llorando; *kari'*—haciendo; *kaila jāgaraṇa*—permaneció despierto; *prātaḥ-kāle*—por la mañana; *āmā-duṅhāya*—a nosotros dos; *kaila*—hizo; *nivedana*—súplica.

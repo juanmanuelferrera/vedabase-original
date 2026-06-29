@@ -1,9 +1,9 @@
 ### CC Madhya 24.58
 
-> পক্ষী, মৃগ, বৃক্ষ, লতা, চেতনাচেতন ।
+> পক্ষী, মৃগ, বৃক্ষ, লতা, চেতনাচেতন ।\
 > প্রেমে মত্ত করি’ আকর্ষয়ে কৃষ্ণগুণ ॥৫৮॥
 
-> pakṣī, mṛga, vṛkṣa, latā, cetanācetana
+> pakṣī, mṛga, vṛkṣa, latā, cetanācetana\
 > preme matta kari' ākarṣaye kṛṣṇa-guṇa
 
 *pakṣī*—aves; *mṛga*—animales; *vṛkṣa*—árboles; *latā*—enredaderas; *cetana-acetana*—entidades vivientes e incluso las piedras y la madera; *preme*—en amor extático; *matta*—cautivados; *kari'*—haciendo; *ākarṣaye*—atraen; *kṛṣṇa-guṇa*—las cualidades de Kṛṣṇa.

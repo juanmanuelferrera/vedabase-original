@@ -1,9 +1,9 @@
 ### CC Madhya 12.100
 
-> ভক্তগণ করে গৃহ-মধ্য প্রক্ষালন ।
+> ভক্তগণ করে গৃহ-মধ্য প্রক্ষালন ।\
 > নিজ নিজ হস্তে করে মন্দির মার্জন ॥১০০॥
 
-> bhakta-gaṇa kare gṛha-madhya prakṣālana
+> bhakta-gaṇa kare gṛha-madhya prakṣālana\
 > nija nija haste kare mandira mārjana
 
 *bhakta-gaṇa*—devotees; *kare*—do; *gṛha-madhya*—within the room; *prakṣālana*—washing; *nija nija*—each one of them; *haste*—in the hand; *kare*—does; *mandira mārjana*—cleansing of the temple.

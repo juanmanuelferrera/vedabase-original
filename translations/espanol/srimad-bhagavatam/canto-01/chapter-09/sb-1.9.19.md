@@ -1,11 +1,11 @@
 ### SB 1.9.19
 
-> अस्यानुभावं भगवान्वेद गुह्यतमं शिवः ।
+> अस्यानुभावं भगवान्वेद गुह्यतमं शिवः ।\
 > देवर्षिर्नारदः साक्षाद्भगवान्कपिलो नृप ॥१९॥
 
-> asyānubhāvaṁ bhagavān
-> veda guhyatamaṁ śivaḥ
-> devarṣir nāradaḥ sākṣād
+> asyānubhāvaṁ bhagavān\
+> veda guhyatamaṁ śivaḥ\
+> devarṣir nāradaḥ sākṣād\
 > bhagavān kapilo nṛpa
 
 *asya*—de Él; *anubhāvam*—glorias; *bhagavān*—el más poderoso; *veda*—conoce; *guhya-tamam*—muy confidencial; *śivaḥ*—el Señor Śiva; *deva-ṛṣiḥ*—el gran sabio entre los semidioses; *nāradaḥ*—Nārada; *sākṣāt*—directamente; *bhagavān*—la Personalidad de Dios; *kapilaḥ*—Kapila; *nṛpa*—¡oh, rey!.

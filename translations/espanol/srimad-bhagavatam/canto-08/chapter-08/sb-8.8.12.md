@@ -1,11 +1,11 @@
 ### SB 8.8.12
 
-> आभिषेचनिका भूमिराहरत्सकलौषधीः
+> आभिषेचनिका भूमिराहरत्सकलौषधीः\
 > गावः पञ्च पवित्राणि वसन्तो मधुमाधवौ ॥१२॥
 
-> ṛṣayaḥ kalpayāṁ cakrur
-> ābhiṣekaṁ yathā-vidhi
-> jagur bhadrāṇi gandharvā
+> ṛṣayaḥ kalpayāṁ cakrur\
+> ābhiṣekaṁ yathā-vidhi\
+> jagur bhadrāṇi gandharvā\
 > naṭyaś ca nanṛtur jaguḥ
 
 *ṛṣayaḥ*—los grandes sabios; *kalpayām cakruḥ*—realizaron; *ābhiṣekam*—la ceremonia del *abhiṣeka*, que se requiere durante la instalación de la Deidad; *yathā-vidhi*—como indican las Escrituras autorizadas; *jaguḥ*—cantaron *mantras* védicos; *bhadrāṇi*—toda buena fortuna; *gandharvāḥ*—y los habitantes de Gandharvaloka; *naṭyaḥ*—las mujeres que eran bailarinas profesionales; *ca*—también; *nanṛtuḥ*—danzaron muy bien en la ocasión; *jaguḥ*—y cantaron las canciones autorizadas prescritas en los *Vedas*.

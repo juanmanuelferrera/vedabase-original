@@ -1,13 +1,13 @@
 ### SB 1.9.25
 
-> सूत उवाच
-> युधिष्ठिरस्तदाकर्ण्य शयानं शरपञ्जरे ।
+> सूत उवाच\
+> युधिष्ठिरस्तदाकर्ण्य शयानं शरपञ्जरे ।\
 > अपृच्छद्विविधान्धर्मानृषीणां चानुशृण्वताम् ॥२५॥
 
-> sūta uvāca
-> yudhiṣṭhiras tad ākarṇya
-> śayānaṁ śara-pañjare
-> apṛcchad vividhān dharmān
+> sūta uvāca\
+> yudhiṣṭhiras tad ākarṇya\
+> śayānaṁ śara-pañjare\
+> apṛcchad vividhān dharmān\
 > ṛṣīṇāṁ cānuśṛṇvatām
 
 *sūtaḥ uvāca*—Śrī Sūta Gosvāmī dijo; *yudhiṣṭhiraḥ*—el rey Yudhiṣṭhira; *tat*—eso; *ākarṇya*—oyendo; *śayānam*—yaciendo; *śara-pañjare*—en el lecho de flechas; *apṛcchat*—pregunto; *vividhān*—múltiples; *dharmān*—deberes; *ṛṣīṇām*—de los *ṛṣis*; *ca*—y; *anuśṛṇvatām*—oyendo después.

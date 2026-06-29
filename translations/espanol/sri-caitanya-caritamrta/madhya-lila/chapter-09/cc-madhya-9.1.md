@@ -1,11 +1,11 @@
 ### CC Madhya 9.1
 
-> নানামতগ্রাহগ্রস্তান্ দাক্ষিণাত্যজনদ্বিপান্ ৷
+> নানামতগ্রাহগ্রস্তান্ দাক্ষিণাত্যজনদ্বিপান্ ৷\
 > কৃপারিণা বিমুচ্যৈতান্ গৌরশ্চক্রে স বৈষ্ণবান্ ৷৷ ১ ৷৷ ॥১॥
 
-> nānā-mata-grāha-grastān
-> dākṣiṇātya-jana-dvipān
-> kṛpāriṇā vimucyaitān
+> nānā-mata-grāha-grastān\
+> dākṣiṇātya-jana-dvipān\
+> kṛpāriṇā vimucyaitān\
 > gauraś cakre sa vaiṣṇavān
 
 *nānā-mata*—por diversas filosofías; *grāha*—como cocodrilos; *grastān*—atrapados; *dākṣiṇātya-jana*—los habitantes del sur de la India; *dvipān*—como elefantes; *kṛpā-ariṇā*—por Su disco de misericordia; *vimucya*—liberando; *etān*—a todos ellos; *gauraḥ*—Śrī Caitanya Mahāprabhu; *cakre*—convirtió; *saḥ*—Él; *vaiṣṇavān*—al culto vaiṣṇava.

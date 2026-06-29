@@ -1,11 +1,11 @@
 ### SB 3.9.39
 
-> प्रीतोऽहमस्तु भद्रं ते लोकानां विजयेच्छया ।
+> प्रीतोऽहमस्तु भद्रं ते लोकानां विजयेच्छया ।\
 > यदस्तौषीर्गुणमयं निर्गुणं मानुवर्णयन् ॥३९॥
 
-> prīto 'ham astu bhadraṁ te
-> lokānāṁ vijayecchayā
-> yad astauṣīr guṇamayaṁ
+> prīto 'ham astu bhadraṁ te\
+> lokānāṁ vijayecchayā\
+> yad astauṣīr guṇamayaṁ\
 > nirguṇaṁ mānuvarṇayan
 
 *prītaḥ*—complacido; *aham*—Yo; *astu*—que así sea; *bhadram*—toda bendición; *te*—a ti; *lokānām*—de los planetas; *vijaya*—para glorificación; *icchayā*—por tu deseo; *yat*—aquello que; *astauṣīḥ*—por lo que tú oraste; *guṇa-mayam*—describiendo todas las cualidades trascendentales; *nirguṇam*—aunque estoy libre de todas las cualidades materiales; *mā*—a Mí; *anuvarṇayan*—describiendo hermosamente.

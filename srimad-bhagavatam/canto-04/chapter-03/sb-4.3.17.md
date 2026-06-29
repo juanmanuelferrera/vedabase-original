@@ -1,11 +1,11 @@
 ### SB 4.3.17
 
-> विद्यातपोवित्तवपुर्वयःकुलैः सतां गुणैः षड्भिरसत्तमेतरैः ।
+> विद्यातपोवित्तवपुर्वयःकुलैः सतां गुणैः षड्भिरसत्तमेतरैः ।\
 > स्मृतौ हतायां भृतमानदुर्दृशः स्तब्धा न पश्यन्ति हि धाम भूयसाम् ॥१७॥
 
-> vidyā-tapo-vitta-vapur-vayaḥ-kulaiḥ
-> satāṁ guṇaiḥ ṣaḍbhir asattametaraiḥ
-> smṛtau hatāyāṁ bhṛta-māna-durdṛśaḥ
+> vidyā-tapo-vitta-vapur-vayaḥ-kulaiḥ\
+> satāṁ guṇaiḥ ṣaḍbhir asattametaraiḥ\
+> smṛtau hatāyāṁ bhṛta-māna-durdṛśaḥ\
 > stabdhā na paśyanti hi dhāma bhūyasām
 
 *vidyā*—education; *tapaḥ*—austerity; *vitta*—wealth; *vapuḥ*—beauty of body, etc.; *vayaḥ*—youth; *kulaiḥ*—with heritage; *satām*—of the pious; *guṇaiḥ*—by such qualities; *ṣaḍbhiḥ*—six; *asattama-itaraiḥ*—having the opposite result to those who are not great souls; *smṛtau*—good sense; *hatāyām*—being lost; *bhṛta-māna-durdṛśaḥ*—blind due to pride; *stabdhāḥ*—being proud; *na*—not; *paśyanti*—see; *hi*—for; *dhāma*—the glories; *bhūyasām*—of the great souls.

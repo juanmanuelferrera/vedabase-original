@@ -1,14 +1,14 @@
 ### CC Adi 17.37-38
 
-> একদিন বিপ্র, নাম — ‘গোপাল চাপাল’ ।
-> পাষণ্ডি-প্রধান সেই দুর্মুখ, বাচাল ॥৩৭॥
-> ভবানী-পূজার সব সামগ্রী লঞা ।
+> একদিন বিপ্র, নাম — ‘গোপাল চাপাল’ ।\
+> পাষণ্ডি-প্রধান সেই দুর্মুখ, বাচাল ॥৩৭॥\
+> ভবানী-পূজার সব সামগ্রী লঞা ।\
 > রাত্রে শ্রীবাসের দ্বারে স্থান লেপাঞা ॥৩৮॥
 
-> eka-dina vipra, nāma—'gopāla cāpāla'
+> eka-dina vipra, nāma—'gopāla cāpāla'\
 > pāṣaṇḍī-pradhāna sei durmukha, vācāla
 
-> bhavānī-pūjāra saba sāmagrī lañā
+> bhavānī-pūjāra saba sāmagrī lañā\
 > rātre śrīvāsera dvāre sthāna lepāñā
 
 *eka-dina*—un día; *vipra*—un *brāhmaṇa*; *nāma*—llamado; *gopāla cāpāla*—Gopāla Cāpāla; *pāṣaṇdi-pradhāna*—el cabecilla de los no creyentes; *sei*—él; *durmukha*—fiero, que utiliza palabras fuertes; *vācāla*—hablador; *bhavānī-pūjāra*—para adorar a la diosa Bhavānī; *saba*—todos; *sāmagrī*—ingredientes, artículos; *laña*—tomando; *rātre*—por la noche; *śrīvāsera*—de Śrīvāsa Ṭhākura; *dvāre*—en la puerta; *sthāna*—el lugar; *lepāñā*—untando.

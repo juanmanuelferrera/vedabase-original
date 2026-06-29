@@ -1,9 +1,9 @@
 ### CC Antya 11.21
 
-> আর দিন মহাপ্রভু তাঁর ঠাঞি আইলা ।
+> আর দিন মহাপ্রভু তাঁর ঠাঞি আইলা ।\
 > সুস্থ হও, হরিদাস — বলি’ তাঁরে পুছিলা ॥২১॥
 
-> āra dina mahāprabhu tāṅra ṭhāñi āilā
+> āra dina mahāprabhu tāṅra ṭhāñi āilā\
 > sustha hao, haridāsa—bali' tāṅre puchilā
 
 *āra dina*—the next day; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅra ṭhāñi*—to his place; *āilā*—came; *su-stha hao*—are you all right; *haridāsa*—O Haridāsa; *bali'*—saying; *tāṅre*—unto him; *puchilā*—inquired.

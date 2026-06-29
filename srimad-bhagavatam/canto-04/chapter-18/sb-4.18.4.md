@@ -1,11 +1,11 @@
 ### SB 4.18.4
 
-> तानातिष्ठति यः सम्यगुपायान्पूर्वदर्शितान् ।
+> तानातिष्ठति यः सम्यगुपायान्पूर्वदर्शितान् ।\
 > अवरः श्रद्धयोपेत उपेयान्विन्दतेऽञ्जसा ॥४॥
 
-> tān ātiṣṭhati yaḥ samyag
-> upāyān pūrva-darśitān
-> avaraḥ śraddhayopeta
+> tān ātiṣṭhati yaḥ samyag\
+> upāyān pūrva-darśitān\
+> avaraḥ śraddhayopeta\
 > upeyān vindate 'ñjasā
 
 *tān*—those; *ātiṣṭhati*—follows; *yaḥ*—anyone who; *samyak*—completely; *upāyān*—principles; *pūrva*—formerly; *darśitān*—instructed; *avaraḥ*—inexperienced; *śraddhayā*—with faith; *upetaḥ*—being situated; *upeyān*—the fruits of activities; *vindate*—enjoys; *añjasā*—very easily.

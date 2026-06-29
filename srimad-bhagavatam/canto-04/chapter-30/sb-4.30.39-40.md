@@ -1,18 +1,18 @@
 ### SB 4.30.39-40
 
-> यन्नः स्वधीतं गुरवः प्रसादिता विप्राश्च वृद्धाश्च सदानुवृत्त्या ।
-> आर्या नताः सुहृदो भ्रातरश्च सर्वाणि भूतान्यनसूययैव ॥३९॥
-> यन्नः सुतप्तं तप एतदीश निरन्धसां कालमदभ्रमप्सु ।
+> यन्नः स्वधीतं गुरवः प्रसादिता विप्राश्च वृद्धाश्च सदानुवृत्त्या ।\
+> आर्या नताः सुहृदो भ्रातरश्च सर्वाणि भूतान्यनसूययैव ॥३९॥\
+> यन्नः सुतप्तं तप एतदीश निरन्धसां कालमदभ्रमप्सु ।\
 > सर्वं तदेतत्पुरुषस्य भूम्नो वृणीमहे ते परितोषणाय ॥४०॥
 
-> yan naḥ svadhītaṁ guravaḥ prasāditā
-> viprāś ca vṛddhāś ca sad-ānuvṛttyā
-> āryā natāḥ suhṛdo bhrātaraś ca
+> yan naḥ svadhītaṁ guravaḥ prasāditā\
+> viprāś ca vṛddhāś ca sad-ānuvṛttyā\
+> āryā natāḥ suhṛdo bhrātaraś ca\
 > sarvāṇi bhūtāny anasūyayaiva
 
-> yan naḥ sutaptaṁ tapa etad īśa
-> nirandhasāṁ kālam adabhram apsu
-> sarvaṁ tad etat puruṣasya bhūmno
+> yan naḥ sutaptaṁ tapa etad īśa\
+> nirandhasāṁ kālam adabhram apsu\
+> sarvaṁ tad etat puruṣasya bhūmno\
 > vṛṇīmahe te paritoṣaṇāya
 
 *yat*—what; *naḥ*—by us; *svadhītam*—studied; *guravaḥ*—superior persons, spiritual masters; *prasāditāḥ*—satisfied; *viprāḥ*—the *brāhmaṇas*; *ca*—and; *vṛddhāḥ*—those who are elderly; *ca*—and; *sat-ānuvṛttyā*—by our gentle behavior; *āryāḥ*—those who are advanced in spiritual knowledge; *natāḥ*—were offered obeisances; *su-hṛdaḥ*—friends; *bhrātaraḥ*—brothers; *ca*—and; *sarvāṇi*—all; *bhūtāni*—living entities; *anasūyayā*—without envy; *eva*—certainly; *yat*—what; *naḥ*—of us; *su-taptam*—severe; *tapaḥ*—penance; *etat*—this; *īśa*—O Lord; *nirandhasām*—without taking any food; *kālam*—time; *adabhram*—for a long duration; *apsu*—within the water; *sarvam*—all; *tat*—that; *etat*—this; *puruṣasya*—of the Supreme Personality of Godhead; *bhūmnaḥ*—the most exalted; *vṛṇīmahe*—we want this benediction; *te*—of You; *paritoṣaṇāya*—for the satisfaction.

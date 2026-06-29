@@ -1,11 +1,11 @@
 ### SB 4.1.25
 
-> कृपावलोकेन हसद् वदनेनोपलम्भितान् ।
+> कृपावलोकेन हसद् वदनेनोपलम्भितान् ।\
 > तद्रोचिषा प्रतिहते निमील्य मुनिरक्षिणी ॥२५॥
 
-> kṛpāvalokena hasad-
-> vadanenopalambhitān
-> tad-rociṣā pratihate
+> kṛpāvalokena hasad-\
+> vadanenopalambhitān\
+> tad-rociṣā pratihate\
 > nimīlya munir akṣiṇī
 
 *kṛpā-avalokena*—mirando con misericordia; *hasat*—sonriendo; *vadanena*—con rostros; *upalambhitān*—que parecían muy satisfechos; *tat*—sus; *rociṣā*—por la refulgencia resplandeciente; *pratihate*—deslumbrado; *nimīlya*—cerrando; *muniḥ*—el sabio; *akṣiṇī*—los ojos.

@@ -1,11 +1,11 @@
 ### SB 4.10.5
 
-> गत्वोदीचीं दिशं राजा रुद्रानुचरसेविताम् ।
+> गत्वोदीचीं दिशं राजा रुद्रानुचरसेविताम् ।\
 > ददर्श हिमवद्द्रोण्यां पुरीं गुह्यकसङ्कुलाम् ॥५॥
 
-> gatvodīcīṁ diśaṁ rājā
-> rudrānucara-sevitām
-> dadarśa himavad-droṇyāṁ
+> gatvodīcīṁ diśaṁ rājā\
+> rudrānucara-sevitām\
+> dadarśa himavad-droṇyāṁ\
 > purīṁ guhyaka-saṅkulām
 
 *gatvā*—yendo; *udīcīm*—norte; *diśam*—en dirección; *rājā*—el rey Dhruva; *rudra-anucara*—por seguidores de Rudra, el Señor Śiva; *sevitām*—habitada; *dadarśa*—vio; *himavat*—de los Himālayas; *droṇyām*—en un valle; *purīm*—una ciudad; *guhyaka*—personas fantasmales; *saṅkulām*—llena de.

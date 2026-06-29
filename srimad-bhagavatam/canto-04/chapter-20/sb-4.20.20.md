@@ -1,11 +1,11 @@
 ### SB 4.20.20
 
-> प्रस्थानाभिमुखोऽप्येनमनुग्रहविलम्बितः ।
+> प्रस्थानाभिमुखोऽप्येनमनुग्रहविलम्बितः ।\
 > पश्यन्पद्मपलाशाक्षो न प्रतस्थे सुहृत्सताम् ॥२०॥
 
-> prasthānābhimukho 'py enam
-> anugraha-vilambitaḥ
-> paśyan padma-palāśākṣo
+> prasthānābhimukho 'py enam\
+> anugraha-vilambitaḥ\
+> paśyan padma-palāśākṣo\
 > na pratasthe suhṛt satām
 
 *prasthāna*—to leave; *abhimukhaḥ*—ready; *api*—although; *enam*—him (Pṛthu); *anugraha*—by kindness; *vilambitaḥ*—detained; *paśyan*—seeing; *padma-palāśa-akṣaḥ*—the Lord, whose eyes are like the petals of a lotus flower; *na*—not; *pratasthe*—departed; *suhṛt*—the well-wisher; *satām*—of the devotees.

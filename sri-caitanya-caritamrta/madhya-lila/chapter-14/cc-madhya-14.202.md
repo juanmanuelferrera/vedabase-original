@@ -1,9 +1,9 @@
 ### CC Madhya 14.202
 
-> অনন্ত কৃষ্ণের লীলা না যায় বর্ণন ।
+> অনন্ত কৃষ্ণের লীলা না যায় বর্ণন ।\
 > আপনে বর্ণেন যদি ‘সহস্রবদন’ ॥২০২॥
 
-> ananta kṛṣṇera līlā nā yāya varṇana
+> ananta kṛṣṇera līlā nā yāya varṇana\
 > āpane varṇena yadi 'sahasra-vadana'
 
 *ananta*—unlimited; *kṛṣṇera*—of Lord Kṛṣṇa; *līlā*—pastimes; *nā*—not; *yāya*—is possible; *varṇana*—description; *āpane*—personally; *varṇena*—describes; *yadi*—if; *sahasra-vadana*—the thousand-mouthed Śeṣa.

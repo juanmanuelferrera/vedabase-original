@@ -1,11 +1,11 @@
 ### SB 5.18.37
 
-> द्रव्यक्रियाहेत्वयनेशकर्तृभिर्मायागुणैर्वस्तुनिरीक्षितात्मने
+> द्रव्यक्रियाहेत्वयनेशकर्तृभिर्मायागुणैर्वस्तुनिरीक्षितात्मने\
 > अन्वीक्षयाङ्गातिशयात्मबुद्धिभिर्निरस्तमायाकृतये नमो नमः ॥३७॥
 
-> dravya-kriyā-hetv-ayaneśa-kartṛbhir
-> māyā-guṇair vastu-nirīkṣitātmane
-> anvīkṣayāṅgātiśayātma-buddhibhir
+> dravya-kriyā-hetv-ayaneśa-kartṛbhir\
+> māyā-guṇair vastu-nirīkṣitātmane\
+> anvīkṣayāṅgātiśayātma-buddhibhir\
 > nirasta-māyākṛtaye namo namaḥ
 
 *dravya*—by the objects of sense enjoyment; *kriyā*—the activities of the senses; *hetu*—the predominating deities of sensory activities; *ayana*—the body; *īśa*—the predominating time; *kartṛbhiḥ*—by false egotism; *māyā-guṇaiḥ*—by the modes of material nature; *vastu*—as a fact; *nirīkṣita*—being observed; *ātmane*—unto the Supreme Soul; *anvīkṣayā*—by careful consideration; *aṅga*—by the limbs of yogic practice; *atiśaya-ātma-buddhibhiḥ*—by those whose intelligence has become fixed; *nirasta*—completely freed from; *māyā*—the illusory energy; *ākṛtaye*—whose form; *namaḥ*—all respectful obeisances; *namaḥ*—respectful obeisances.

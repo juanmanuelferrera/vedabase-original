@@ -1,9 +1,9 @@
 ### CC Madhya 20.201
 
-> আশ্বিনে — পদ্মনাভ, কার্তিকে — দামোদর ।
+> আশ্বিনে — পদ্মনাভ, কার্তিকে — দামোদর ।\
 > ‘রাধা-দামোদর’ অন্য ব্রজেন্দ্র-কোঙর ॥২০১॥
 
-> āśvine—padmanābha, kārtike dāmodara
+> āśvine—padmanābha, kārtike dāmodara\
 > 'rādhā-dāmodara' anya vrajendra-koṅara
 
 *āśvine*—in the month of Āśvina (September-October); *padma-nābha*—Padmanābha; *kārtike*—in the month of Kārttika (October-November); *dāmodara*—Dāmodara; *rādhā-dāmodara*—the Dāmodara of Śrīmatī Rādhārāṇī; *anya*—another; *vrajendra-koṅara*—the son of Mahārāja Nanda.

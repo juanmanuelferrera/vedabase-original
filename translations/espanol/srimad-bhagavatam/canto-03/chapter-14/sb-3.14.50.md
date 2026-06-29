@@ -1,11 +1,11 @@
 ### SB 3.14.50
 
-> अन्तर्बहिश्चामलमब्जनेत्रं स्वपूरुषेच्छानुगृहीतरूपम् ।
+> अन्तर्बहिश्चामलमब्जनेत्रं स्वपूरुषेच्छानुगृहीतरूपम् ।\
 > पौत्रस्तव श्रीललनाललामं द्रष्टा स्फुरत्कुण्डलमण्डिताननम् ॥५०॥
 
-> antar bahiś cāmalam abja-netraṁ
-> sva-pūruṣecchānugṛhīta-rūpam
-> pautras tava śrī-lalanā-lalāmaṁ
+> antar bahiś cāmalam abja-netraṁ\
+> sva-pūruṣecchānugṛhīta-rūpam\
+> pautras tava śrī-lalanā-lalāmaṁ\
 > draṣṭā sphurat-kuṇḍala-maṇḍitānanam
 
 *antaḥ*—dentro; *bahiḥ*—fuera; *ca*—también; *amalam*—inmaculados; *abja-netram*—ojos de loto; *sva-pūruṣa*—propio devoto; *icchā-anugṛhīta-rūpam*—aceptando una forma de acuerdo con el deseo; *pautraḥ*—nieto; *tava*—tuyo; *śrī-lalanā*—hermosa diosa de la fortuna; *lalāmam*—adornado; *draṣṭā*—verá; *sphurat-kuṇḍala*—con brillantes pendientes; *maṇḍita*—adornado; *ānanam*—rostro.

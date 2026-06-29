@@ -1,11 +1,11 @@
 ### SB 9.22.43
 
-> तिमेर्बृहद्रथस्तस्माच्छतानीकः सुदासजः
+> तिमेर्बृहद्रथस्तस्माच्छतानीकः सुदासजः\
 > शतानीकाद्दुर्दमनस्तस्यापत्यं महीनरः ॥४३॥
 
-> timer bṛhadrathas tasmāc
-> chatānīkaḥ sudāsajaḥ
-> śatānīkād durdamanas
+> timer bṛhadrathas tasmāc\
+> chatānīkaḥ sudāsajaḥ\
+> śatānīkād durdamanas\
 > tasyāpatyaṁ mahīnaraḥ
 
 *timeḥ*—de Timi; *bṛhadrathaḥ*—Bṛhadratha; *tasmāt*—de él (de Bṛhadratha); *śatānīkaḥ*—Śatānīka; *sudāsa-jaḥ*—el hijo de Sudāsa; *śatānīkāt*—de Śatānīka; *durdamanaḥ*—un hijo llamado Durdamana; *tasya apatyam*—su hijo; *mahīnaraḥ*—Mahīnara.

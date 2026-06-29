@@ -1,9 +1,9 @@
 ### CC Madhya 4.97
 
-> আশ-পাশ ব্রজভূমের যত গ্রাম সব ।
+> আশ-পাশ ব্রজভূমের যত গ্রাম সব ।\
 > এক এক দিন সবে করে মহোৎসব ॥৯৭॥
 
-> āśa-pāśa vraja-bhūmera yata grāma saba
+> āśa-pāśa vraja-bhūmera yata grāma saba\
 > eka eka dina sabe kare mahotsava
 
 *āśa-pāśa*—neighboring; *vraja-bhūmera*—of Vrajabhūmi; *yata*—all; *grāma*—villages; *saba*—all; *eka eka*—one after another; *dina*—days; *sabe*—all; *kare*—perform; *mahā-utsava*—festivals.

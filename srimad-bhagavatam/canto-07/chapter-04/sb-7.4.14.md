@@ -1,11 +1,11 @@
 ### SB 7.4.14
 
-> जगुर्महेन्द्रासनमोजसा स्थितं विश्वावसुस्तुम्बुरुरस्मदादयः
+> जगुर्महेन्द्रासनमोजसा स्थितं विश्वावसुस्तुम्बुरुरस्मदादयः\
 > गन्धर्वसिद्धा ऋषयोऽस्तुवन्मुहुर्विद्याधराश्चाप्सरसश्च पाण्डव ॥१४॥
 
-> jagur mahendrāsanam ojasā sthitaṁ
-> viśvāvasus tumburur asmad-ādayaḥ
-> gandharva-siddhā ṛṣayo 'stuvan muhur
+> jagur mahendrāsanam ojasā sthitaṁ\
+> viśvāvasus tumburur asmad-ādayaḥ\
+> gandharva-siddhā ṛṣayo 'stuvan muhur\
 > vidyādharāś cāpsarasaś ca pāṇḍava
 
 *jaguḥ*—sung of the glories; *mahendra-āsanam*—the throne of King Indra; *ojasā*—by personal power; *sthitam*—situated on; *viśvāvasuḥ*—the chief singer of the Gandharvas; *tumburuḥ*—another Gandharva singer; *asmat-ādayaḥ*—including ourselves (Nārada and others also glorified Hiraṇyakaśipu); *gandharva*—the inhabitants of Gandharva-loka; *siddhāḥ*—the inhabitants of Siddhaloka; *ṛṣayaḥ*—the great sages and saintly persons; *astuvan*—offered prayers; *muhuḥ*—again and again; *vidyādharāḥ*—the inhabitants of Vidyādhara-loka; *ca*—and; *apsarasaḥ*—the inhabitants of Apsaroloka; *ca*—and; *pāṇḍava*—O descendant of Pāṇḍu.

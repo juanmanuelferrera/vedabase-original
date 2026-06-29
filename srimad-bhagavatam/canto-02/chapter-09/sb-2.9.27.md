@@ -1,11 +1,11 @@
 ### SB 2.9.27
 
-> यथात्ममायायोगेन नानाशक्त्युपबृंहितम् ।
+> यथात्ममायायोगेन नानाशक्त्युपबृंहितम् ।\
 > विलुम्पन्विसृजन्गृह्णन्बिभ्रदात्मानमात्मना ॥२७॥
 
-> yathātma-māyā-yogena
-> nānā-śakty-upabṛṁhitam
-> vilumpan visṛjan gṛhṇan
+> yathātma-māyā-yogena\
+> nānā-śakty-upabṛṁhitam\
+> vilumpan visṛjan gṛhṇan\
 > bibhrad ātmānam ātmanā
 
 *yathā*—as much as; *ātma*—own; *māyā*—potency; *yogena*—by combination; *nānā*—various; *śakti*—energy; *upabṛṁhitam*—by combination and permutation; *vilumpan*—in the matter of annihilation; *visṛjan*—in the matter of generation; *gṛhṇan*—in the matter of acceptance; *bibhrat*—in the matter of maintenance; *ātmānam*—own self; *ātmanā*—by the self.

@@ -1,11 +1,11 @@
 ### SB 7.5.51
 
-> तथेति गुरुपुत्रोक्तमनुज्ञआयेदमब्रवीत
+> तथेति गुरुपुत्रोक्तमनुज्ञआयेदमब्रवीत\
 > धर्मो ह्यस्योपदेष्टव्यो राज्ञआं यो गृहमेधिनाम ॥५१॥
 
-> tatheti guru-putroktam
-> anujñāyedam abravīt
-> dharmo hy asyopadeṣṭavyo
+> tatheti guru-putroktam\
+> anujñāyedam abravīt\
+> dharmo hy asyopadeṣṭavyo\
 > rājñāṁ yo gṛha-medhinām
 
 *tathā*—in this way; *iti*—thus; *guru-putra-uktam*—advised by Ṣaṇḍa and Amarka, the sons of Śukrācārya; *anujñāya*—accepting; *idam*—this; *abravīt*—said; *dharmaḥ*—the duty; *hi*—indeed; *asya*—unto Prahlāda; *upadeṣṭavyaḥ*—to be instructed; *rājñām*—of the kings; *yaḥ*—which; *gṛha-medhinām*—who are interested in householder life.

@@ -1,9 +1,9 @@
 ### CC Adi 12.56
 
-> শ্রীযদুনন্দনাচার্য — অদ্বৈতের শাখা ।
+> শ্রীযদুনন্দনাচার্য — অদ্বৈতের শাখা ।\
 > তাঁর শাখা-উপশাখার নাহি হয় লেখা ॥৫৬॥
 
-> śrī-yadunandanācārya—advaitera śākhā
+> śrī-yadunandanācārya—advaitera śākhā\
 > tāṅra śākhā-upaśākhāra nāhi haya lekhā
 
 *śrī-yadunandana-ācārya*—of the name Śrī Yadunandana Ācārya; *advaitera*—of Advaita Ācārya; *śākhā*—branch; *tāṅra*—his; *śākhā*—branches; *upaśākhāra*—subbranches; *nāhi*—not; *haya*—there is; *lekhā*—writing.

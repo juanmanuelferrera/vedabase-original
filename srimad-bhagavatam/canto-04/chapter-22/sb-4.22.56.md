@@ -1,11 +1,11 @@
 ### SB 4.22.56
 
-> राजेत्यधान्नामधेयं सोमराज इवापरः ।
+> राजेत्यधान्नामधेयं सोमराज इवापरः ।\
 > सूर्यवद्विसृजन्गृह्णन्प्रतपंश्च भुवो वसु ॥५६॥
 
-> rājety adhān nāmadheyaṁ
-> soma-rāja ivāparaḥ
-> sūryavad visṛjan gṛhṇan
+> rājety adhān nāmadheyaṁ\
+> soma-rāja ivāparaḥ\
+> sūryavad visṛjan gṛhṇan\
 > pratapaṁś ca bhuvo vasu
 
 *rājā*—the King; *iti*—thus; *adhāt*—took up; *nāmadheyam*—of the name; *soma-rājaḥ*—the king of the moon planet; *iva*—like; *aparaḥ*—on the other hand; *sūrya-vat*—like the sun-god; *visṛjan*—distributing; *gṛhṇan*—exacting; *pratapan*—by strong ruling; *ca*—also; *bhuvaḥ*—of the world; *vasu*—revenue.

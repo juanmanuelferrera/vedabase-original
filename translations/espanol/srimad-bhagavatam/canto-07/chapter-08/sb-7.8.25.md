@@ -1,11 +1,11 @@
 ### SB 7.8.25
 
-> न तद्विचित्रं खलु सत्त्वधामनि स्वतेजसा यो नु पुरापिबत्तमः
+> न तद्विचित्रं खलु सत्त्वधामनि स्वतेजसा यो नु पुरापिबत्तमः\
 > ततोऽभिपद्याभ्यहनन्महासुरो रुषा नृसिंहं गदयोरुवेगया ॥२५॥
 
-> tato 'bhipadyābhyahanan mahāsuro
-> ruṣā nṛsiṁhaṁ gadayoruvegayā
-> taṁ vikramantaṁ sagadaṁ gadādharo
+> tato 'bhipadyābhyahanan mahāsuro\
+> ruṣā nṛsiṁhaṁ gadayoruvegayā\
+> taṁ vikramantaṁ sagadaṁ gadādharo\
 > mahoragaṁ tārkṣya-suto yathāgrahīt
 
 *tataḥ*—a continuación; *abhipadya*—atacando; *abhyahanat*—golpeó; *mahā-asuraḥ*—el gran demonio (Hiraṇyakaśipu); *ruṣā*—con ira; *nṛsiṁham*—al Señor Nṛsiṁhadeva; *gadayā*—con su maza; *uru-vegayā*—moviendo con gran fuerza; *tam*—a él (a Hiraṇyakaśipu); *vikramantam*—mostrando su poder; *sa-gadam*—con su maza; *gadā-dharaḥ*—el Señor Nṛsiṁhadeva, que también lleva una maza en la mano; *mahā-uragam*—a una gran serpiente; *tārkṣya-sutaḥ*—Garuḍa, el hijo de Tārkṣya; *yathā*—tal como; *agrahīt*—capturó.

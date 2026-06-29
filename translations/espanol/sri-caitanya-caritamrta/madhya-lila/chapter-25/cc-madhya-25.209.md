@@ -1,9 +1,9 @@
 ### CC Madhya 25.209
 
-> গঙ্গাতীর-পথে প্রভু প্রয়াগেরে আইলা ।
+> গঙ্গাতীর-পথে প্রভু প্রয়াগেরে আইলা ।\
 > তাহা শুনি’ দুইভাই সে পথে চলিলা ॥২০৯॥
 
-> gaṅgā-tīra-pathe prabhu prayāgere āilā
+> gaṅgā-tīra-pathe prabhu prayāgere āilā\
 > tāhā śuni' dui-bhāi se pathe calilā
 
 *gaṅgā-tīra-pathe*—por el camino a orillas del Ganges; *prabhu*—Śrī Caitanya Mahāprabhu; *prayāgere āilā*—llegó a Prayāga; *tāhā śuni'*—al oír esta noticia; *dui-bhāi*—los dos hermanos llamados Rūpa y Anupama; *se pathe calilā*—viajaron por ese camino.

@@ -1,9 +1,9 @@
 ### CC Adi 8.79
 
-> সেই লিখি, মদনগোপাল যে লিখায় ।
+> সেই লিখি, মদনগোপাল যে লিখায় ।\
 > কাষ্ঠের পুত্তলী যেন কুহকে নাচায় ॥৭৯॥
 
-> sei likhi, madana-gopāla ye likhāya
+> sei likhi, madana-gopāla ye likhāya\
 > kāṣṭhera puttalī yena kuhake nācāya
 
 *sei likhi*—escribo aquello; *madana-gopāla*—la Deidad Madana-gopāla; *ye*—lo que sea que; *likhāya*—me dicte; *kāṣṭhera*—de madera; *puttalī*—un muñeco; *yena*—como; *kuhake*—el encantador; *nācāya*—hace bailar.

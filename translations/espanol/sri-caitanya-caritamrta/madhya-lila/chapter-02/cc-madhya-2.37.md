@@ -1,13 +1,13 @@
 ### CC Madhya 2.37
 
-> যে কালে বা স্বপনে, দেখিনু বংশীবদনে,
-> সেই কালে আইলা দুই বৈরি ।
-> ‘আনন্দ’ আর ‘মদন’, হরি’ নিল মোর মন,
+> যে কালে বা স্বপনে, দেখিনু বংশীবদনে,\
+> সেই কালে আইলা দুই বৈরি ।\
+> ‘আনন্দ’ আর ‘মদন’, হরি’ নিল মোর মন,\
 > দেখিতে না পাইনু নেত্র ভরি’ ॥৩৭॥
 
-> ye kāle vā svapane, dekhinu vaṁśī-vadane,
-> sei kāle āilā dui vairi
-> 'ānanda' āra 'madana', hari' nila mora mana,
+> ye kāle vā svapane, dekhinu vaṁśī-vadane,\
+> sei kāle āilā dui vairi\
+> 'ānanda' āra 'madana', hari' nila mora mana,\
 > dekhite nā pāinu netra bhari'
 
 *ye kāle*—en el momento; *vā svapane*—o en sueños; *dekhinu*—vi; *vaṁśī-vadane*—el rostro del Señor Kṛṣṇa con Su flauta; *sei kāle*—en ese momento; *āilā*—aparecieron; *dui*—dos; *vairi*—enemigos; *ānanda*—placer; *āra*—y; *madana*—Cupido; *hari'*—robando; *nila*—se llevaron; *mora*—Mi; *mana*—mente; *dekhite*—ver; *nā*—no; *pāinu*—pude; *netra*—ojos; *bhari'*—satisfaciendo.

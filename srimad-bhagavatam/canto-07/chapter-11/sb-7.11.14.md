@@ -1,11 +1,11 @@
 ### SB 7.11.14
 
-> विप्रस्याध्ययनादीनि षडन्यस्याप्रतिग्रहः
+> विप्रस्याध्ययनादीनि षडन्यस्याप्रतिग्रहः\
 > राज्ञओ वृत्तिः प्रजागोप्तुरविप्राद्वा करादिभिः ॥१४॥
 
-> viprasyādhyayanādīni
-> ṣaḍ-anyasyāpratigrahaḥ
-> rājño vṛttiḥ prajā-goptur
+> viprasyādhyayanādīni\
+> ṣaḍ-anyasyāpratigrahaḥ\
+> rājño vṛttiḥ prajā-goptur\
 > aviprād vā karādibhiḥ
 
 *viprasya*—of the *brāhmaṇa*; *adhyayana-ādīni*—reading the *Vedas,* etc; *ṣaṭ*—six (to study the *Vedas,* to teach the *Vedas,* to worship the Deity, to teach others how to worship, to accept charity and to give charity); *anyasya*—of those other than the *brāhmaṇas* (the *kṣatriyas*); *apratigrahaḥ*—without accepting charity from others (the *kṣatriyas* may execute the five other occupational duties prescribed for the *brāhmaṇas*); *rājñaḥ*—of the *kṣatriya*; *vṛttiḥ*—the means of livelihood; *prajā-goptuḥ*—who maintain the subjects; *aviprāt*—from those who are not *brāhmaṇas*; *vā*—or; *kara-ādibhiḥ*—by levying revenue taxes, customs duties, fines for punishment, etc.

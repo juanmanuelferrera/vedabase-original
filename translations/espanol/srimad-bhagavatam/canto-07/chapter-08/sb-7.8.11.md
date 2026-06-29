@@ -1,12 +1,12 @@
 ### SB 7.8.11
 
-> दस्यून्पुरा षण्न विजित्य लुम्पतो मन्यन्त एके स्वजिता दिशो दश
+> दस्यून्पुरा षण्न विजित्य लुम्पतो मन्यन्त एके स्वजिता दिशो दश\
 > जितात्मनो ज्ञअस्य समस्य देहिनां साधोः स्वमोहप्रभवाः कुतः परे ॥११॥
 
-> śrī-hiraṇyakaśipur uvāca
-> vyaktaṁ tvaṁ martu-kāmo 'si
-> yo 'timātraṁ vikatthase
-> mumūrṣūṇāṁ hi mandātman
+> śrī-hiraṇyakaśipur uvāca\
+> vyaktaṁ tvaṁ martu-kāmo 'si\
+> yo 'timātraṁ vikatthase\
+> mumūrṣūṇāṁ hi mandātman\
 > nanu syur viklavā giraḥ
 
 *śrī-hiraṇyakaśipuḥ uvāca*—el bendito Hiraṇyakaśipu dijo; *vyaktam*—evidentemente; *tvam*—tú; *martu-kāmaḥ*—deseoso de morir; *asi*—estás; *yaḥ*—aquel que; *atimātram*—sin límite; *vikatthase*—presumes (como si hubieras conquistado tus sentidos, mientras que tu padre no hubiera sido capaz); *mumūrṣūṇāṁ*—de personas que están a punto de encontrarse con la muerte; *hi*—en verdad; *manda-ātman*—¡oh, sinvergüenza sin inteligencia!; *nanu*—ciertamente; *syuḥ*—se vuelven; *viklavāḥ*—confusas; *giraḥ*—las palabras.

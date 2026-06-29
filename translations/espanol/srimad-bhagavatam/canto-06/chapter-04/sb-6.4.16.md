@@ -1,11 +1,11 @@
 ### SB 6.4.16
 
-> इत्यामन्त्र्य वरारोहां कन्यामाप्सरसीं नृप
+> इत्यामन्त्र्य वरारोहां कन्यामाप्सरसीं नृप\
 > सोमो राजा ययौ दत्त्वा ते धर्मेणोपयेमिरे ॥१६॥
 
-> ity āmantrya varārohāṁ
-> kanyām āpsarasīṁ nṛpa
-> somo rājā yayau dattvā
+> ity āmantrya varārohāṁ\
+> kanyām āpsarasīṁ nṛpa\
+> somo rājā yayau dattvā\
 > te dharmeṇopayemire
 
 *iti*—de este modo; *āmantrya*—dirigirse; *vara-ārohām*—con caderas altas y hermosas; *kanyām*—la muchacha; *āpsarasīm*—nacida de una *apsarā*; *nṛpa*—¡oh, rey!; *somaḥ*—Soma, la deidad regente de la Luna; *rājā*—el rey; *yayau*—regresó; *dattvā*—entregar; *te*—ellos; *dharmeṇa*—conforme a los principios religiosos; *upayemire*—se casaron.

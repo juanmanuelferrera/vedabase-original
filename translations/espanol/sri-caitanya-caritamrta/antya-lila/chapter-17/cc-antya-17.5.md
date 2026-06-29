@@ -1,9 +1,9 @@
 ### CC Antya 17.5
 
-> যবে যেই ভাব প্রভুর করয়ে উদয় ।
+> যবে যেই ভাব প্রভুর করয়ে উদয় ।\
 > ভাবানুরূপ গীত গায় স্বরূপ-মহাশয় ॥৫॥
 
-> yabe yei bhāva prabhura karaye udaya
+> yabe yei bhāva prabhura karaye udaya\
 > bhāvānurūpa gīta gāya svarūpa-mahāśaya
 
 *yabe*—siempre que; *yei*—cualquier; *bhāva*—éxtasis; *prabhura*—de Śrī Caitanya Mahāprabhu; *karaye udaya*—surge; *bhāva-anurūpa*—acorde con la emoción; *gīta*—canción; *gāya*—canta; *svarūpa*—Svarūpa Dāmodara; *mahāśaya*—la gran personalidad.

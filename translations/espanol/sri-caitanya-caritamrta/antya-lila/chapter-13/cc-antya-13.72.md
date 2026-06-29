@@ -1,9 +1,9 @@
 ### CC Antya 13.72
 
-> প্রভুর চরণ বন্দি’ সবারে মিলিলা ।
+> প্রভুর চরণ বন্দি’ সবারে মিলিলা ।\
 > মহাপ্রভু তাঁরে দৃঢ় আলিঙ্গন কৈলা ॥৭২॥
 
-> prabhura caraṇa vandi' sabāre mililā
+> prabhura caraṇa vandi' sabāre mililā\
 > mahāprabhu tāṅre dṛḍha āliṅgana kailā
 
 *prabhura*—de Śrī Caitanya Mahāprabhu; *caraṇa*—pies de loto; *vandi'*—ofreciendo oraciones; *sabāre mililā*—se encontró con todos; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a él; *dṛḍha*—muy fuerte; *āliṅgana*—abrazo; *kailā*—dio.

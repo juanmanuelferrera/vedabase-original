@@ -1,9 +1,9 @@
 ### CC Madhya 23.59
 
-> ‘মাদনে’ — চুম্বনাদি হয় অনন্ত বিভেদ ।
+> ‘মাদনে’ — চুম্বনাদি হয় অনন্ত বিভেদ ।\
 > ‘উদঘূর্ণা’, ‘চিত্রজল্প’ — ‘মোহনে’ দুই ভেদ ॥৫৯॥
 
-> 'mādane' cumbanādi haya ananta vibheda
+> 'mādane' cumbanādi haya ananta vibheda\
 > 'udghūrṇā', 'citra-jalpa' 'mohane' dui bheda
 
 *mādane*—en la etapa de mādana; *cumbana-ādi*—besos y actividades similares; *haya*—hay; *ananta vibheda*—divisiones ilimitadas; *udghūrṇā*—inestabilidad; *citra-jalpa*—diversas hablas dementes; *mohane*—la etapa de mohana; *dui bheda*—dos divisiones.

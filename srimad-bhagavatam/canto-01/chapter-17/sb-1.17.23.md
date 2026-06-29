@@ -1,11 +1,11 @@
 ### SB 1.17.23
 
-> अथवा देवमायाया नूनं गतिरगोचरा ।
+> अथवा देवमायाया नूनं गतिरगोचरा ।\
 > चेतसो वचसश्चापि भूतानामिति निश्चयः ॥२३॥
 
-> athavā deva-māyāyā
-> nūnaṁ gatir agocarā
-> cetaso vacasaś cāpi
+> athavā deva-māyāyā\
+> nūnaṁ gatir agocarā\
+> cetaso vacasaś cāpi\
 > bhūtānām iti niścayaḥ
 
 *athavā*—alternatively; *deva*—the Lord; *māyāyāḥ*—energies; *nūnam*—very little; *gatiḥ*—movement; *agocarā*—inconceivable; *cetasaḥ*—either by the mind; *vacasaḥ*—by words; *ca*—or; *api*—also; *bhūtānām*—of all living beings; *iti*—thus; *niścayaḥ*—concluded.

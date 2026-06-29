@@ -1,9 +1,9 @@
 ### CC Adi 5.4
 
-> সর্ব-অবতারী কৃষ্ণ স্বয়ং ভগবান্ ।
+> সর্ব-অবতারী কৃষ্ণ স্বয়ং ভগবান্ ।\
 > তাঁহার দ্বিতীয় দেহ শ্রীবলরাম ॥৪॥
 
-> sarva-avatārī kṛṣṇa svayaṁ bhagavān
+> sarva-avatārī kṛṣṇa svayaṁ bhagavān\
 > tāṅhāra dvitīya deha śrī-balarāma
 
 *sarva-avatārī*—the source of all incarnations; *kṛṣṇa*—Lord Kṛṣṇa; *svayam*—personally; *bhagavān*—the Supreme Personality of Godhead; *tāṅhāra*—His; *dvitīya*—second; *deha*—expansion of the body; *śrī-balarāma*—Lord Balarāma.

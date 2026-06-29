@@ -1,11 +1,11 @@
 ### SB 2.9.24
 
-> सृजामि तपसैवेदं ग्रसामि तपसा पुनः ।
+> सृजामि तपसैवेदं ग्रसामि तपसा पुनः ।\
 > बिभर्मि तपसा विश्वं वीर्यं मे दुश्चरं तपः ॥२४॥
 
-> sṛjāmi tapasaivedaṁ
-> grasāmi tapasā punaḥ
-> bibharmi tapasā viśvaṁ
+> sṛjāmi tapasaivedaṁ\
+> grasāmi tapasā punaḥ\
+> bibharmi tapasā viśvaṁ\
 > vīryaṁ me duścaraṁ tapaḥ
 
 *sṛjāmi*—Yo creo; *tapasā*—mediante la misma energía de la penitencia; *eva*—ciertamente; *idam*—este; *grasāmi tapasā*—Yo también retiro mediante la misma energía; *punaḥ*—otra vez; *bibharmi*—mantengo; *tapasā*—mediante la penitencia; *viśvam*—el cosmos; *vīryam*—potencia; *me*—Mi; *duścaram*—severa; *tapaḥ*—penitencia.

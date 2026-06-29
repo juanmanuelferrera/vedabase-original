@@ -1,9 +1,9 @@
 ### CC Madhya 11.72
 
-> āmi kāho nāhi cini, cinite mana haya
+> āmi kāho nāhi cini, cinite mana haya\
 > gopīnāthācārya sabāre karā'be paricaya
 
-> āmi kāho nāhi cini, cinite mana haya
+> āmi kāho nāhi cini, cinite mana haya\
 > gopīnāthācārya sabāre karā'be paricaya
 
 *āmi*—yo; *kāho*—a nadie; *nāhi*—no; *cini*—conozco; *cinite mana haya*—deseo conocerlos; *gopīnātha-ācārya*—Gopīnātha Ācārya; *sabāre*—a todos ellos; *karā'be paricaya*—los identificará.

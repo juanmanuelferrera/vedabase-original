@@ -1,11 +1,11 @@
 ### SB 7.2.39
 
-> य इच्छयेशः सृजतीदमव्ययो य एव रक्षत्यवलुम्पते च यः
+> य इच्छयेशः सृजतीदमव्ययो य एव रक्षत्यवलुम्पते च यः\
 > तस्याबलाः क्रीडनमाहुरीशितुश्चराचरं निग्रहसङ्ग्रहे प्रभुः ॥३९॥
 
-> ya icchayeśaḥ sṛjatīdam avyayo
-> ya eva rakṣaty avalumpate ca yaḥ
-> tasyābalāḥ krīḍanam āhur īśituś
+> ya icchayeśaḥ sṛjatīdam avyayo\
+> ya eva rakṣaty avalumpate ca yaḥ\
+> tasyābalāḥ krīḍanam āhur īśituś\
 > carācaraṁ nigraha-saṅgrahe prabhuḥ
 
 *yaḥ*—who; *icchayā*—by His will (without being forced by anyone); *īśaḥ*—the supreme controller; *sṛjati*—creates; *idam*—this (material world); *avyayaḥ*—remaining as He is (not having lost His own existence because of having created so many material manifestations); *yaḥ*—who; *eva*—indeed; *rakṣati*—maintains; *avalumpate*—annihilates; *ca*—also; *yaḥ*—who; *tasya*—of Him; *abalāḥ*—O poor women; *krīḍanam*—the playing; *āhuḥ*—they say; *īśituḥ*—of the Supreme Personality of Godhead; *cara-acaram*—moving and not moving; *nigraha*—in destruction; *saṅgrahe*—or in protection; *prabhuḥ*—fully able.

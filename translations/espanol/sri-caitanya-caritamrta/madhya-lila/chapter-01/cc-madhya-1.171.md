@@ -1,9 +1,9 @@
 ### CC Madhya 1.171
 
-> কেশব-ছত্রীরে রাজা বার্তা পুছিল ।
+> কেশব-ছত্রীরে রাজা বার্তা পুছিল ।\
 > প্রভুর মহিমা ছত্রী উড়াইয়া দিল ॥১৭১॥
 
-> keśava-chatrīre rājā vārtā puchila
+> keśava-chatrīre rājā vārtā puchila\
 > prabhura mahimā chatrī uḍāiyā dila
 
 *keśava-chatrīre*—de la persona llamada Keśava Chatrī; *rājā*—el rey; *vārtā*—noticias; *puchila*—preguntó; *prabhura*—del Señor; *mahimā*—las glorias; *chatrī*—Keśava Chatrī; *uḍāiyā*—sin darle importancia; *dila*—dio.

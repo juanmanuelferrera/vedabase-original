@@ -1,11 +1,11 @@
 ### SB 3.2.12
 
-> यन्मर्त्यलीलौपयिकं स्वयोग मायाबलं दर्शयता गृहीतम् ।
+> यन्मर्त्यलीलौपयिकं स्वयोग मायाबलं दर्शयता गृहीतम् ।\
 > विस्मापनं स्वस्य च सौभगर्द्धेः परं पदं भूषणभूषणाङ्गम् ॥१२॥
 
-> yan martya-līlaupayikaṁ sva-yoga-
-> māyā-balaṁ darśayatā gṛhītam
-> vismāpanaṁ svasya ca saubhagarddheḥ
+> yan martya-līlaupayikaṁ sva-yoga-\
+> māyā-balaṁ darśayatā gṛhītam\
+> vismāpanaṁ svasya ca saubhagarddheḥ\
 > paraṁ padaṁ bhūṣaṇa-bhūṣaṇāṅgam
 
 *yat*—Su forma eterna, la cual; *martya*—mundo mortal; *līlā-upayikam*—precisamente idónea para los pasatiempos; *sva-yoga-māyā-balam*—la potencia de la energía interna; *darśayatā*—para la manifestación; *gṛhītam*—descubierta; *vismāpanam*—maravilloso; *svasya*—de Su propio; *ca*—y; *saubhaga-ṛddheḥ*—del opulento; *param*—suprema; *padam*—posición máxima; *bhūṣaṇa*—adorno; *bhūṣaṇa-aṅgam*—de los adornos.

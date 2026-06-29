@@ -1,11 +1,11 @@
 ### SB 6.8.22
 
-> श्रीवत्सधामापररात्र ईशः प्रत्यूष ईशोऽसिधरो जनार्दनः
+> श्रीवत्सधामापररात्र ईशः प्रत्यूष ईशोऽसिधरो जनार्दनः\
 > दामोदरोऽव्यादनुसन्ध्यं प्रभाते विश्वेश्वरो भगवान्कालमूर्तिः ॥२२॥
 
-> śrīvatsa-dhāmāpara-rātra īśaḥ
-> pratyūṣa īśo 'si-dharo janārdanaḥ
-> dāmodaro 'vyād anusandhyaṁ prabhāte
+> śrīvatsa-dhāmāpara-rātra īśaḥ\
+> pratyūṣa īśo 'si-dharo janārdanaḥ\
+> dāmodaro 'vyād anusandhyaṁ prabhāte\
 > viśveśvaro bhagavān kāla-mūrtiḥ
 
 *śrīvatsa-dhāmā*—the Lord, on whose chest the mark of Śrīvatsa is resting; *apara-rātre*—in the fourth part of the night; *īśaḥ*—the Supreme Lord; *pratyūṣe*—in the end of the night; *īśaḥ*—the Supreme Lord; *asi-dharaḥ*—carrying a sword in the hand; *janārdanaḥ*—Lord Janārdana; *dāmodaraḥ*—Lord Dāmodara; *avyāt*—may He protect; *anusandhyam*—during each junction or twilight; *prabhāte*—in the early morning (the sixth part of the night); *viśva-īśvaraḥ*—the Lord of the whole universe; *bhagavān*—the Supreme Personality of Godhead; *kāla-mūrtiḥ*—the personification of time.

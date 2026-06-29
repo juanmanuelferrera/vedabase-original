@@ -1,25 +1,25 @@
 ### SB 9.21.31-33
 
-> शान्तेः सुशान्तिस्तत्पुत्रः पुरुजोऽर्कस्ततोऽभवत
-> भर्म्याश्वस्तनयस्तस्य पञ्चासन्मुद्गलादयः ॥३१॥
-> यवीनरो बृहद्विश्वः काम्पिल्लः सञ्जयः सुताः
-> भर्म्याश्वः प्राह पुत्रा मे पञ्चानां रक्षणाय हि ॥३२॥
-> विषयाणामलमिमे इति पञ्चालसंज्ञइताः
+> शान्तेः सुशान्तिस्तत्पुत्रः पुरुजोऽर्कस्ततोऽभवत\
+> भर्म्याश्वस्तनयस्तस्य पञ्चासन्मुद्गलादयः ॥३१॥\
+> यवीनरो बृहद्विश्वः काम्पिल्लः सञ्जयः सुताः\
+> भर्म्याश्वः प्राह पुत्रा मे पञ्चानां रक्षणाय हि ॥३२॥\
+> विषयाणामलमिमे इति पञ्चालसंज्ञइताः\
 > मुद्गलाद्ब्रह्मनिर्वृत्तं गोत्रं मौद्गल्यसंज्ञइतम ॥३३॥
 
-> śānteḥ suśāntis tat-putraḥ
-> purujo 'rkas tato 'bhavat
-> bharmyāśvas tanayas tasya
+> śānteḥ suśāntis tat-putraḥ\
+> purujo 'rkas tato 'bhavat\
+> bharmyāśvas tanayas tasya\
 > pañcāsan mudgalādayaḥ
 
-> yavīnaro bṛhadviśvaḥ
-> kāmpillaḥ sañjayaḥ sutāḥ
-> bharmyāśvaḥ prāha putrā me
+> yavīnaro bṛhadviśvaḥ\
+> kāmpillaḥ sañjayaḥ sutāḥ\
+> bharmyāśvaḥ prāha putrā me\
 > pañcānāṁ rakṣaṇāya hi
 
-> viṣayāṇām alam ime
-> iti pañcāla-saṁjñitāḥ
-> mudgalād brahma-nirvṛttaṁ
+> viṣayāṇām alam ime\
+> iti pañcāla-saṁjñitāḥ\
+> mudgalād brahma-nirvṛttaṁ\
 > gotraṁ maudgalya-saṁjñitam
 
 *śānteḥ*—de Śānti; *suśāntiḥ*—Suśānti; *tat-putraḥ*—su hijo; *purujaḥ*—Puruja; *arkaḥ*—Arka; *tataḥ*—de él; *abhavat*—generado; *bharmyāśvaḥ*—Bharmyāśva; *tanayaḥ*—hijo; *tasya*—de él; *pañca*—cinco hijos; *āsan*—hubo; *mudgala-ādayaḥ*—encabezados por Mudgala; *yavīnaraḥ*—Yavīnara; *bṛhadviśvaḥ*—Bṛhadviśva; *kāmpillaḥ*—Kāmpilla; *sañjayaḥ*—Sañjaya; *sutāḥ*—hijos; *bharmyāśvaḥ*—Bharmyāśva; *prāha*—dijo; *putrāḥ*—hijos; *me*—míos; *pañcānām*—de cinco; *rakṣaṇāya*—para proteger; *hi*—en verdad; *viṣayāṇām*—de diversos estados; *alam*—capacitados; *ime*—todos ellos; *iti*—así; *pañcāla*—Pañcāla; *saṁjñitāḥ*—llamados; *mudgalāt*—de Mudgala; *brahma-nirvṛttam*—compuesta por *brāhmaṇas*; *gotram*—una dinastía; *maudgalya*—Maudgalya; *saṁjñitam*—con ese nombre.

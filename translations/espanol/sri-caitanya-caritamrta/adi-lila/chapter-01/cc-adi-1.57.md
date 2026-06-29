@@ -1,13 +1,13 @@
 ### CC Adi 1.57
 
-> চিন্তামণির্জয়তি সোমগিরির্গুরুর্মে
-> শিক্ষাগুরুশ্চ ভগবান্ শিখিপিঞ্ছমৌলিঃ ।
-> যৎপাদকল্পতরুপল্লবশেখরেষু
+> চিন্তামণির্জয়তি সোমগিরির্গুরুর্মে\
+> শিক্ষাগুরুশ্চ ভগবান্ শিখিপিঞ্ছমৌলিঃ ।\
+> যৎপাদকল্পতরুপল্লবশেখরেষু\
 > লীলাস্বয়ম্বররসং লভতে জয়শ্রীঃ ॥৫৭॥
 
-> cintāmaṇir jayati somagirir gurur me
-> śikṣā-guruś ca bhagavān śikhi-piñcha-mauliḥ
-> yat-pāda-kalpataru-pallava-śekhareṣu
+> cintāmaṇir jayati somagirir gurur me\
+> śikṣā-guruś ca bhagavān śikhi-piñcha-mauliḥ\
+> yat-pāda-kalpataru-pallava-śekhareṣu\
 > līlā-svayaṁvara-rasaṁ labhate jayaśrīḥ
 
 *cintāmaṇiḥ jayati*—¡toda la gloria a Cintāmaṇi!; *soma-giriḥ*—Somagiri (el guru iniciador); *guruḥ*—maestro espiritual; *me*—mío; *śikṣā-guruḥ*—maestro espiritual instructor; *ca*—y; *bhagavān*—la Suprema Personalidad de Dios; *śikhi-piñcha*—con plumas de pavo real; *mauliḥ*—cuya cabeza; *yat*—cuyos; *pāda*—de los pies de loto; *kalpa-taru*—como árboles de deseos; *pallava*—como hojas nuevas; *śekhareṣu*—en las uñas de los pies; *līlā-svayam-vara*—de pasatiempos conyugales; *rasam*—la melosidad; *labhate*—obtiene; *jaya-śrīḥ*—Śrīmatī Rādhārāṇī.

@@ -1,9 +1,9 @@
 ### CC Adi 17.77
 
-> মুরারিকে কহে তুমি কৃষ্ণ বশ কৈলা ।
+> মুরারিকে কহে তুমি কৃষ্ণ বশ কৈলা ।\
 > শুনিয়া মুরারি শ্লোক কহিতে লাগিলা ॥৭৭॥
 
-> murārike kahe tumi kṛṣṇa vaśa kailā
+> murārike kahe tumi kṛṣṇa vaśa kailā\
 > śuniyā murāri śloka kahite lāgilā
 
 *murārike*—a Murāri; *kahe*—dice; *tumi*—tú; *kṛṣṇa*—el Señor Kṛṣṇa; *vaśa*—satisfecho; *kailā*—has hecho; *śuniyā*—al oír; *murāri*—de nombre Murāri; *śloka*—verso; *kahite*—a recitar; *lāgilā*—comenzó.

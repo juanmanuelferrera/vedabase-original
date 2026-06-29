@@ -1,9 +1,9 @@
 ### CC Madhya 15.114
 
-> কিবা রঘুনন্দন — পিতা, তুমি — তার তনয় ?
+> কিবা রঘুনন্দন — পিতা, তুমি — তার তনয় ?\
 > নিশ্চয় করিয়া কহ, যাউক সংশয় ।।’ ॥ ১১৪ ॥
 
-> kibā raghunandana--pitā, tumi--tāra tanaya?
+> kibā raghunandana--pitā, tumi--tāra tanaya?\
 > niścaya kariyā kaha, yāuka saṁśaya'
 
 *kibā*—o; *raghunandana*—Raghunandana; *pitā*—padre; *tumi*—tú; *tāra*—su; *tanaya*—hijo; *niścaya kariyā*—determinando con certeza; *kaha*—di; *yāuka saṁśaya*—que se disipen Mis dudas.

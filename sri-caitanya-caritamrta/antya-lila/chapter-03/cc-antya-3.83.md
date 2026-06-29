@@ -1,9 +1,9 @@
 ### CC Antya 3.83
 
-> পূর্বে যেন ব্রজে কৃষ্ণ করি’ অবতার ।
+> পূর্বে যেন ব্রজে কৃষ্ণ করি’ অবতার ।\
 > সকল ব্রহ্মাণ্ড-জীবের খণ্ডাইলা সংসার ॥৮৩॥
 
-> pūrve yena vraje kṛṣṇa kari' avatāra
+> pūrve yena vraje kṛṣṇa kari' avatāra\
 > sakala brahmāṇḍa-jīvera khaṇḍāilā saṁsāra
 
 *pūrve*—previously; *yena*—as; *vraje*—in Vṛndāvana; *kṛṣṇa*—Lord Kṛṣṇa; *kari' avatāra*—descending as an incarnation; *sakala*—all; *brahmāṇḍa-jīvera*—of living entities within this universe; *khaṇḍāilā*—destroyed; *saṁsāra*—the material existence.

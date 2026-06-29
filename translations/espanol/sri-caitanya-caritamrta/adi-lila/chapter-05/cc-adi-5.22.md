@@ -1,13 +1,13 @@
 ### CC Adi 5.22
 
-> চিন্তামণিপ্রকরসদ্মসু কল্পবৃক্ষ-
-> লক্ষাবৃতেষু সুরভীরভিপালয়ন্তম্ ।
-> লক্ষ্মীসহস্রশতসম্ভ্রমসেব্যমানং
+> চিন্তামণিপ্রকরসদ্মসু কল্পবৃক্ষ-\
+> লক্ষাবৃতেষু সুরভীরভিপালয়ন্তম্ ।\
+> লক্ষ্মীসহস্রশতসম্ভ্রমসেব্যমানং\
 > গোবিন্দমাদিপুরুষং তমহং ভজামি ॥২২॥
 
-> cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa-
-> lakṣāvṛteṣu surabhīr abhipālayantam
-> lakṣmī-sahasra-śata-sambhrama-sevyamānaṁ
+> cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa-\
+> lakṣāvṛteṣu surabhīr abhipālayantam\
+> lakṣmī-sahasra-śata-sambhrama-sevyamānaṁ\
 > govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 *cintāmaṇi*—piedra de toque; *prakara*—grupos hechos de; *sadmasu*—en moradas; *kalpa-vṛkṣa*—de árboles de deseos; *lakṣa*—por millones; *āvṛteṣu*—rodeadas; *surabhīḥ*—vacas surabhi; *abhipālayantam*—pastoreando; *lakṣmī*—de diosas de la fortuna; *sahasra*—de miles; *śata*—por cientos; *sambhrama*—con gran respeto; *sevyamānam*—siendo servido; *govindam*—Govinda; *ādi-puruṣam*—la persona original; *tam*—a Él; *aham*—yo; *bhajāmi*—adoro.

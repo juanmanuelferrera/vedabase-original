@@ -1,11 +1,11 @@
 ### SB 2.5.14
 
-> द्रव्यं कर्म च कालश्च स्वभावो जीव एव च ।
+> द्रव्यं कर्म च कालश्च स्वभावो जीव एव च ।\
 > वासुदेवात्परो ब्रह्मन्न चान्योऽर्थोऽस्ति तत्त्वतः ॥१४॥
 
-> dravyaṁ karma ca kālaś ca
-> svabhāvo jīva eva ca
-> vāsudevāt paro brahman
+> dravyaṁ karma ca kālaś ca\
+> svabhāvo jīva eva ca\
+> vāsudevāt paro brahman\
 > na cānyo 'rtho 'sti tattvataḥ
 
 *dravyam*—the ingredients (earth, water, fire, air and sky); *karma*—the interaction; *ca*—and; *kālaḥ*—eternal time; *ca*—also; *sva-bhāvaḥ*—intuition or nature; *jīvaḥ*—the living being; *eva*—certainly; *ca*—and; *vāsudevāt*—from Vāsudeva; *paraḥ*—differentiated parts; *brahman*—O *brāhmaṇa*; *na*—never; *ca*—also; *anyaḥ*—separate; *arthaḥ*—value; *asti*—there is; *tattvataḥ*—in truth.

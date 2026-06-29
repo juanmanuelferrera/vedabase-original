@@ -1,9 +1,9 @@
 ### CC Madhya 19.30
 
-> তবে তাঁরে বান্ধি’ রাখি’ করিলা গমন ।
+> তবে তাঁরে বান্ধি’ রাখি’ করিলা গমন ।\
 > এথা নীলাচল হৈতে প্রভু চলিলা বৃন্দাবন ॥৩০॥
 
-> tabe tāṅre bāndhi' rākhi' karilā gamana
+> tabe tāṅre bāndhi' rākhi' karilā gamana\
 > ethā nīlācala haite prabhu calilā vṛndāvana
 
 *tabe*—después; *tāṅre*—a él; *bāndhi'*—arrestando; *rākhi'*—reteniendo; *karilā gamana*—se marchó; *ethā*—en ese momento; *nīlācala haite*—desde Jagannātha Purī; *prabhu*—Śrī Caitanya Mahāprabhu; *calilā vṛndāvana*—partió hacia Vṛndāvana.

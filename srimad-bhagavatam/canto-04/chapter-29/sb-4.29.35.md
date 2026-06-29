@@ -1,11 +1,11 @@
 ### SB 4.29.35
 
-> अर्थे ह्यविद्यमानेऽपि संसृतिर्न निवर्तते ।
+> अर्थे ह्यविद्यमानेऽपि संसृतिर्न निवर्तते ।\
 > मनसा लिङ्गरूपेण स्वप्ने विचरतो यथा ॥३५॥
 
-> arthe hy avidyamāne 'pi
-> saṁsṛtir na nivartate
-> manasā liṅga-rūpeṇa
+> arthe hy avidyamāne 'pi\
+> saṁsṛtir na nivartate\
+> manasā liṅga-rūpeṇa\
 > svapne vicarato yathā
 
 *arthe*—factual cause; *hi*—certainly; *avidyamāne*—not existing; *api*—although; *saṁsṛtiḥ*—material existence; *na*—not; *nivartate*—ceases; *manasā*—by the mind; *liṅga-rūpeṇa*—by subtle form; *svapne*—in a dream; *vicarataḥ*—acting; *yathā*—as.

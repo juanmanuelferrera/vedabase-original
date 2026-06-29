@@ -1,11 +1,11 @@
 ### SB 4.22.3
 
-> तद्दर्शनोद्गतान्प्राणान्प्रत्यादित्सुरिवोत्थितः ।
+> तद्दर्शनोद्गतान्प्राणान्प्रत्यादित्सुरिवोत्थितः ।\
 > ससदस्यानुगो वैन्य इन्द्रियेशो गुणानिव ॥३॥
 
-> tad-darśanodgatān prāṇān
-> pratyāditsur ivotthitaḥ
-> sa-sadasyānugo vainya
+> tad-darśanodgatān prāṇān\
+> pratyāditsur ivotthitaḥ\
+> sa-sadasyānugo vainya\
 > indriyeśo guṇān iva
 
 *tat*—him; *darśana*—seeing; *udgatān*—being greatly desired; *prāṇān*—life; *pratyāditsuḥ*—peacefully going; *iva*—like; *utthitaḥ*—got up; *sa*—with; *sadasya*—associates or followers; *anugaḥ*—officers; *vainyaḥ*—King Pṛthu; *indriya-īśaḥ*—a living entity; *guṇān iva*—as influenced by the modes of material nature.

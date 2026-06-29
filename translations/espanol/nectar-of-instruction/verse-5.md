@@ -1,13 +1,13 @@
 ### 5
 
-> कृष्णेति यस्य गिरि तं मनसाद्रियेत
-> दीक्षास्ति चेत प्रणतिभिश्च भजन्तमीशम् ।
-> शुश्रूषया भजनविज्ञमनन्यमन्य-
+> कृष्णेति यस्य गिरि तं मनसाद्रियेत\
+> दीक्षास्ति चेत प्रणतिभिश्च भजन्तमीशम् ।\
+> शुश्रूषया भजनविज्ञमनन्यमन्य-\
 > निन्दादिशून्यहृदमीप्सितसङ्गलब्ध्या ॥५॥
 
-> kṛṣṇeti yasya giri taṁ manasādriyeta
-> dīkṣāsti cet praṇatibhiś ca bhajantam īśam
-> śuśrūṣayā bhajana-vijñam ananyam anya-
+> kṛṣṇeti yasya giri taṁ manasādriyeta\
+> dīkṣāsti cet praṇatibhiś ca bhajantam īśam\
+> śuśrūṣayā bhajana-vijñam ananyam anya-\
 > nindādi-śūnya-hṛdam īpsita-saṅga-labdhyā
 
 *kṛṣṇa*—el santo nombre del Señor Kṛṣṇa; *iti*—así; *yasya*—de quien; *giri*—en las palabras o el habla; *tam*—a él; *manasā*—con la mente; *ādriyeta*—uno debe honrar; *dīkṣā*—iniciación; *asti*—hay; *cet*—si; *praṇatibhiḥ*—con reverencias; *ca*—también; *bhajantam*—ocupado en el servicio devocional; *īśam*—a la Suprema Personalidad de Dios; *śuśrūṣayā*—con servicio práctico; *bhajana-vijñam*—quien es avanzado en el servicio devocional; *ananyam*—sin desviación; *anya-nindā-ādi*—de la blasfemia contra otros, etc.; *śūnya*—completamente desprovisto; *hṛdam*—cuyo corazón; *īpsita*—deseable; *saṅga*—asociación; *labdhyā*—obteniendo.

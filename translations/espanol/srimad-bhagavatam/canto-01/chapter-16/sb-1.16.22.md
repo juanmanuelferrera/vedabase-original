@@ -1,11 +1,11 @@
 ### SB 1.16.22
 
-> किं क्षत्रबन्धून्कलिनोपसृष्टान्राष्ट्राणि वा तैरवरोपितानि ।
+> किं क्षत्रबन्धून्कलिनोपसृष्टान्राष्ट्राणि वा तैरवरोपितानि ।\
 > इतस्ततो वाशनपानवासः स्नानव्यवायोन्मुखजीवलोकम् ॥२२॥
 
-> kiṁ kṣatra-bandhūn kalinopasṛṣṭān
-> rāṣṭrāṇi vā tair avaropitāni
-> itas tato vāśana-pāna-vāsaḥ-
+> kiṁ kṣatra-bandhūn kalinopasṛṣṭān\
+> rāṣṭrāṇi vā tair avaropitāni\
+> itas tato vāśana-pāna-vāsaḥ-\
 > snāna-vyavāyonmukha-jīva-lokam
 
 *kim*—si; *kṣatra-bandhūn*—los administradores indignos; *kalinā*—por influencia de la era de Kali; *upasṛṣṭān*—confundidos; *rāṣṭrāṇi*—asuntos estatales; *vā*—o; *taiḥ*—por ellos; *avaropitāni*—puestos en desorden; *itaḥ*—aquí; *tataḥ*—ahí; *vā*—o; *aśana*—aceptando comida; *pāna*—bebida; *vāsaḥ*—residencia; *snāna*—baño; *vyavāya*—relación sexual; *unmukha*—inclinada; *jīva-lokam*—la sociedad humana.

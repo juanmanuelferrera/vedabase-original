@@ -1,11 +1,11 @@
 ### SB 3.20.16
 
-> तस्य नाभेरभूत्पद्मं सहस्रार्कोरुदीधिति ।
+> तस्य नाभेरभूत्पद्मं सहस्रार्कोरुदीधिति ।\
 > सर्वजीवनिकायौको यत्र स्वयमभूत्स्वराट् ॥१६॥
 
-> tasya nābher abhūt padmaṁ
-> sahasrārkoru-dīdhiti
-> sarva-jīvanikāyauko
+> tasya nābher abhūt padmaṁ\
+> sahasrārkoru-dīdhiti\
+> sarva-jīvanikāyauko\
 > yatra svayam abhūt svarāṭ
 
 *tasya*—del Señor; *nābheḥ*—del ombligo; *abhūt*—brotó; *padmam*—un loto; *sahasra-arka*—mil soles; *uru*—más; *dīdhiti*—con un resplandor deslumbrante; *sarva*—todas; *jīva-nikāya*—donde están en suspenso las almas condicionadas; *okaḥ*—lugar; *yatra*—donde; *svayam*—él mismo; *abhūt*—se manifestó; *sva-rāṭ*—el todopoderoso (el Señor Brahmā).

@@ -1,9 +1,9 @@
 ### CC Madhya 6.161
 
-> ষড়্বিধ ঐশ্বর্য — প্রভুর চিচ্ছক্তি-বিলাস ।
+> ষড়্বিধ ঐশ্বর্য — প্রভুর চিচ্ছক্তি-বিলাস ।\
 > হেন শক্তি নাহি মান, — পরম সাহস ॥১৬১॥
 
-> ṣaḍ-vidha aiśvarya—prabhura cic-chakti-vilāsa
+> ṣaḍ-vidha aiśvarya—prabhura cic-chakti-vilāsa\
 > hena śakti nāhi māna,—parama sāhasa
 
 *ṣaṭ-vidha*—six kinds; *aiśvarya*—of opulences; *prabhura*—of the Lord; *cit-śakti-vilāsa*—enjoyment in the spiritual potency; *hena śakti*—such sublime potencies; *nāhi*—not; *māna*—you accept; *parama sāhasa*—great impudence.

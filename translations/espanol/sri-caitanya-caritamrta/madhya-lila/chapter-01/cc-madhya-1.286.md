@@ -1,9 +1,9 @@
 ### CC Madhya 1.286
 
-> এই ত’ কহিল মধ্যলীলার সূত্রগণ ।
+> এই ত’ কহিল মধ্যলীলার সূত্রগণ ।\
 > শেষ দ্বাদশ বৎসরের শুন বিবরণ ॥২৮৬॥
 
-> ei ta' kahila madhya-līlāra sūtra-gaṇa
+> ei ta' kahila madhya-līlāra sūtra-gaṇa\
 > śeṣa dvādaśa vatsarera śuna vivaraṇa
 
 *ei ta'*—así; *kahila*—expliqué; *madhya-līlāra*—de los pasatiempos intermedios; *sūtra-gaṇa*—un resumen; *śeṣa*—los últimos; *dvādaśa*—doce; *vatsarera*—de los años; *śuna*—escuchen; *vivaraṇa*—la descripción.

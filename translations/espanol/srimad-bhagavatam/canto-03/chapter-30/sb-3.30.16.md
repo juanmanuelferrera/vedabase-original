@@ -1,11 +1,11 @@
 ### SB 3.30.16
 
-> वायुनोत्क्रमतोत्तारः कफसंरुद्धनाडिकः ।
+> वायुनोत्क्रमतोत्तारः कफसंरुद्धनाडिकः ।\
 > कासश्वासकृतायासः कण्ठे घुरघुरायते ॥१६॥
 
-> vāyunotkramatottāraḥ
-> kapha-saṁruddha-nāḍikaḥ
-> kāsa-śvāsa-kṛtāyāsaḥ
+> vāyunotkramatottāraḥ\
+> kapha-saṁruddha-nāḍikaḥ\
+> kāsa-śvāsa-kṛtāyāsaḥ\
 > kaṇṭhe ghura-ghurāyate
 
 *vāyunā*—por el aire; *utkramatā*—saliéndosele; *uttāraḥ*—los ojos; *kapha*—con moco; *saṁruddha*—congestionada; *nāḍikaḥ*—su tráquea; *kāsa*—tosiendo; *śvāsa*—respiración; *kṛta*—hecha; *āyāsaḥ*—dificultad; *kaṇṭhe*—en la garganta; *ghura-ghurāyate*—produce un sonido como *«ghura-ghura».*.

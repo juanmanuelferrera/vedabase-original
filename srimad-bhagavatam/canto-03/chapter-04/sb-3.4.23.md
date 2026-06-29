@@ -1,13 +1,13 @@
 ### SB 3.4.23
 
-> श्रीशुक उवाच
-> इत्युद्धवादुपाकर्ण्य सुहृदां दुःसहं वधम् ।
+> श्रीशुक उवाच\
+> इत्युद्धवादुपाकर्ण्य सुहृदां दुःसहं वधम् ।\
 > ज्ञानेनाशमयत्क्षत्ता शोकमुत्पतितं बुधः ॥२३॥
 
-> śrī-śuka uvāca
-> ity uddhavād upākarṇya
-> suhṛdāṁ duḥsahaṁ vadham
-> jñānenāśamayat kṣattā
+> śrī-śuka uvāca\
+> ity uddhavād upākarṇya\
+> suhṛdāṁ duḥsahaṁ vadham\
+> jñānenāśamayat kṣattā\
 > śokam utpatitaṁ budhaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śuka Gosvāmī said; *iti*—thus; *uddhavāt*—from Uddhava; *upākarṇya*—hearing; *suhṛdām*—of friends and relatives; *duḥsaham*—unbearable; *vadham*—annihilation; *jñānena*—by transcendental knowledge; *aśamayat*—pacified himself; *kṣattā*—Vidura; *śokam*—bereavement; *utpatitam*—arisen; *budhaḥ*—the learned.

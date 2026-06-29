@@ -1,11 +1,11 @@
 ### SB 3.12.3
 
-> दृष्ट्वा पापीयसीं सृष्टिं नात्मानं बह्वमन्यत ।
+> दृष्ट्वा पापीयसीं सृष्टिं नात्मानं बह्वमन्यत ।\
 > भगवद्ध्यानपूतेन मनसान्यां ततोऽसृजत् ॥३॥
 
-> dṛṣṭvā pāpīyasīṁ sṛṣṭiṁ
-> nātmānaṁ bahv amanyata
-> bhagavad-dhyāna-pūtena
+> dṛṣṭvā pāpīyasīṁ sṛṣṭiṁ\
+> nātmānaṁ bahv amanyata\
+> bhagavad-dhyāna-pūtena\
 > manasānyāṁ tato 'sṛjat
 
 *dṛṣṭvā*—al ver; *pāpīyasīm*—pecaminosa; *sṛṣṭim*—creación; *na*—no; *ātmānam*—en sí mismo; *bahu*—mucho placer; *amanyata*—sintió; *bhagavat*—en la Personalidad de Dios; *dhyāna*—meditación; *pūtena*—purificado con esa; *manasā*—con esa mentalidad; *anyām*—otra; *tataḥ*—a continuación; *asṛjat*—creó.

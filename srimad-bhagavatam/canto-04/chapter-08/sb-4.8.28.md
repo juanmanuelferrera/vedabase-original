@@ -1,11 +1,11 @@
 ### SB 4.8.28
 
-> विकल्पे विद्यमानेऽपि न ह्यसन्तोषहेतवः ।
+> विकल्पे विद्यमानेऽपि न ह्यसन्तोषहेतवः ।\
 > पुंसो मोहमृते भिन्ना यल्लोके निजकर्मभिः ॥२८॥
 
-> vikalpe vidyamāne 'pi
-> na hy asantoṣa-hetavaḥ
-> puṁso moham ṛte bhinnā
+> vikalpe vidyamāne 'pi\
+> na hy asantoṣa-hetavaḥ\
+> puṁso moham ṛte bhinnā\
 > yal loke nija-karmabhiḥ
 
 *vikalpe*—alternation; *vidyamāne api*—although there is; *na*—not; *hi*—certainly; *asantoṣa*—dissatisfaction; *hetavaḥ*—causes; *puṁsaḥ*—of the persons; *moham ṛte*—without being illusioned; *bhinnāḥ*—separated; *yat loke*—within this world; *nija-karmabhiḥ*—by his own work.

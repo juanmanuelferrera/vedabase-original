@@ -1,11 +1,11 @@
 ### SB 6.6.43
 
-> पूषानपत्यः पिष्टादो भग्नदन्तोऽभवत्पुरा
+> पूषानपत्यः पिष्टादो भग्नदन्तोऽभवत्पुरा\
 > योऽसौ दक्षाय कुपितं जहास विवृतद्विजः ॥४३॥
 
-> pūṣānapatyaḥ piṣṭādo
-> bhagna-danto 'bhavat purā
-> yo 'sau dakṣāya kupitaṁ
+> pūṣānapatyaḥ piṣṭādo\
+> bhagna-danto 'bhavat purā\
+> yo 'sau dakṣāya kupitaṁ\
 > jahāsa vivṛta-dvijaḥ
 
 *pūṣā*—Pūṣā; *anapatyaḥ*—without children; *piṣṭa-adaḥ*—who lives by eating flour; *bhagna-dantaḥ*—with broken teeth; *abhavat*—became; *purā*—formerly; *yaḥ*—who; *asau*—that; *dakṣāya*—at Dakṣa; *kupitam*—very angry; *jahāsa*—laughed; *vivṛta-dvijaḥ*—uncovering his teeth.

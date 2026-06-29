@@ -1,13 +1,13 @@
 ### SB 5.14.45
 
-> यज्ञआय धर्मपतये विधिनैपुणाय
-> योगाय साङ्ख्यशिरसे प्रकृतीश्वराय
-> नारायणाय हरये नम इत्युदारं
+> यज्ञआय धर्मपतये विधिनैपुणाय\
+> योगाय साङ्ख्यशिरसे प्रकृतीश्वराय\
+> नारायणाय हरये नम इत्युदारं\
 > हास्यन्मृगत्वमपि यः समुदाजहार ॥४५॥
 
-> yajñāya dharma-pataye vidhi-naipuṇāya
-> yogāya sāṅkhya-śirase prakṛtīśvarāya
-> nārāyaṇāya haraye nama ity udāraṁ
+> yajñāya dharma-pataye vidhi-naipuṇāya\
+> yogāya sāṅkhya-śirase prakṛtīśvarāya\
+> nārāyaṇāya haraye nama ity udāraṁ\
 > hāsyan mṛgatvam api yaḥ samudājahāra
 
 *yajñāya*—unto the Supreme Personality of Godhead, who enjoys the results of all great sacrifices; *dharma-pataye*—unto the master or propounder of religious principles; *vidhi-naipuṇāya*—who gives the devotee the intelligence to follow the regulative principles expertly; *yogāya*—the personification of mystic *yoga*; *sāṅkhya-śirase*—who taught the Sāṅkhya philosophy or who actually gives knowledge of Sāṅkhya to the people of the world; *prakṛti-īśvarāya*—the supreme controller of this cosmic manifestation; *nārāyaṇāya*—the resting place of the innumerable living entities (*nara* means the living entities, and *ayana* means the shelter); *haraye*—unto the Supreme Personality of Godhead, known as Hari; *namaḥ*—respectful obeisances; *iti*—thus; *udāram*—very loudly; *hāsyan*—smiling; *mṛgatvam api*—although in the body of a deer; *yaḥ*—who; *samudājahāra*—chanted.

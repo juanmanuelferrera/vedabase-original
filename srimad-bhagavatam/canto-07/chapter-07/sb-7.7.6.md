@@ -1,11 +1,11 @@
 ### SB 7.7.6
 
-> व्यलुम्पन्राजशिबिरममरा जयकाङ्क्षिणः
+> व्यलुम्पन्राजशिबिरममरा जयकाङ्क्षिणः\
 > इन्द्रस्तु राजमहिषीं मातरं मम चाग्रहीत ॥६॥
 
-> vyalumpan rāja-śibiram
-> amarā jaya-kāṅkṣiṇaḥ
-> indras tu rāja-mahiṣīṁ
+> vyalumpan rāja-śibiram\
+> amarā jaya-kāṅkṣiṇaḥ\
+> indras tu rāja-mahiṣīṁ\
 > mātaraṁ mama cāgrahīt
 
 *vyalumpan*—plundered; *rāja-śibiram*—the palace of my father. Hiraṇyakaśipu; *amarāḥ*—the demigods; *jaya-kāṅkṣiṇaḥ*—eager to be victorious; *indraḥ*—the head of the demigods, King Indra; *tu*—but; *rāja-mahiṣīm*—the Queen; *mātaram*—mother; *mama*—my; *ca*—also; *agrahīt*—captured.

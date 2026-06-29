@@ -1,9 +1,9 @@
 ### CC Madhya 9.133
 
-> শ্রুতিগণ গোপীগণের অনুগত হঞা ৷
+> শ্রুতিগণ গোপীগণের অনুগত হঞা ৷\
 > ব্রজেশ্বরীসুত ভজে গোপীভাব লঞা ৷৷ ১৩৩ ৷৷ ॥১৩৩॥
 
-> śruti-gaṇa gopī-gaṇera anugata hañā
+> śruti-gaṇa gopī-gaṇera anugata hañā\
 > vrajeśvarī-suta bhaje gopī-bhāva lañā
 
 *śruti-gaṇa*—las autoridades de los himnos Védicos; *gopī-gaṇera*—de las gopīs; *anugata hañā*—siguiendo los pasos; *vrajeśvarī-suta*—el hijo de madre Yaśodā; *bhaje*—adoran; *gopī-bhāva*—el éxtasis de las gopīs; *lañā*—aceptando.

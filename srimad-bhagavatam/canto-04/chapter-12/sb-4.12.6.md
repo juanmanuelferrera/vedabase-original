@@ -1,11 +1,11 @@
 ### SB 4.12.6
 
-> भजस्व भजनीयाङ्घ्रिमभवाय भवच्छिदम् ।
+> भजस्व भजनीयाङ्घ्रिमभवाय भवच्छिदम् ।\
 > युक्तं विरहितं शक्त्या गुणमय्यात्ममायया ॥६॥
 
-> bhajasva bhajanīyāṅghrim
-> abhavāya bhava-cchidam
-> yuktaṁ virahitaṁ śaktyā
+> bhajasva bhajanīyāṅghrim\
+> abhavāya bhava-cchidam\
+> yuktaṁ virahitaṁ śaktyā\
 > guṇa-mayyātma-māyayā
 
 *bhajasva*—engage in devotional service; *bhajanīya*—worthy to be worshiped; *aṅghrim*—unto Him whose lotus feet; *abhavāya*—for deliverance from material existence; *bhava-chidam*—who cuts the knot of material entanglement; *yuktam*—attached; *virahitam*—aloof; *śaktyā*—to His potency; *guṇa-mayyā*—consisting of the modes of material nature; *ātma-māyayā*—by His inconceivable potency.

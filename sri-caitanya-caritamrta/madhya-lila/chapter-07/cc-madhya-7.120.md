@@ -1,9 +1,9 @@
 ### CC Madhya 7.120
 
-> যেই গ্রামে যায় তাহাঁ এই ব্যবহার ।
+> যেই গ্রামে যায় তাহাঁ এই ব্যবহার ।\
 > এক ঠাঞি কহিল, না কহিব আর বার ॥১২০॥
 
-> yei grāme yāya tāhāṅ ei vyavahāra
+> yei grāme yāya tāhāṅ ei vyavahāra\
 > eka ṭhāñi kahila, nā kahiba āra bāra
 
 *yei grāme*—to whichever village; *yāya*—He goes; *tāhāṅ*—*there*; *ei*—this; *vyavahāra*—behavior; *eka ṭhāñi*—one place; *kahila*—described; *nā*—not; *kahiba*—shall describe; *āra*—another; *bāra*—time.

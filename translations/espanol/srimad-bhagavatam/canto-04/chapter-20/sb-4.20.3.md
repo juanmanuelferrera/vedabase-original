@@ -1,11 +1,11 @@
 ### SB 4.20.3
 
-> सुधियः साधवो लोके नरदेव नरोत्तमाः ।
+> सुधियः साधवो लोके नरदेव नरोत्तमाः ।\
 > नाभिद्रुह्यन्ति भूतेभ्यो यर्हि नात्मा कलेवरम् ॥३॥
 
-> sudhiyaḥ sādhavo loke
-> naradeva narottamāḥ
-> nābhidruhyanti bhūtebhyo
+> sudhiyaḥ sādhavo loke\
+> naradeva narottamāḥ\
+> nābhidruhyanti bhūtebhyo\
 > yarhi nātmā kalevaram
 
 *su-dhiyaḥ*—las personas más inteligentes; *sādhavaḥ*—con inclinación a realizar actividades benéficas; *loke*—en este mundo; *nara-deva*—¡oh, rey!; *nara-uttamāḥ*—el mejor de los seres humanos; *na abhidruhyanti*—nunca desean el mal; *bhūtebhyaḥ*—a otras entidades vivientes; *yarhi*—porque; *na*—nunca; *ātmā*—el ser o alma; *kalevaram*—este cuerpo.

@@ -1,11 +1,11 @@
 ### SB 6.14.55
 
-> न हि क्रमश्चेदिह मृत्युजन्मनोः शरीरिणामस्तु तदात्मकर्मभिः
+> न हि क्रमश्चेदिह मृत्युजन्मनोः शरीरिणामस्तु तदात्मकर्मभिः\
 > यः स्नेहपाशो निजसर्गवृद्धये स्वयं कृतस्ते तमिमं विवृश्चसि ॥५५॥
 
-> na hi kramaś ced iha mṛtyu-janmanoḥ
-> śarīriṇām astu tad ātma-karmabhiḥ
-> yaḥ sneha-pāśo nija-sarga-vṛddhaye
+> na hi kramaś ced iha mṛtyu-janmanoḥ\
+> śarīriṇām astu tad ātma-karmabhiḥ\
+> yaḥ sneha-pāśo nija-sarga-vṛddhaye\
 > svayaṁ kṛtas te tam imaṁ vivṛścasi
 
 *na*—not; *hi*—indeed; *kramaḥ*—chronological order; *cet*—if; *iha*—in this material world; *mṛtyu*—of death; *janmanoḥ*—and of birth; *śarīriṇām*—of the conditioned souls, who have accepted material bodies; *astu*—let it be; *tat*—that; *ātma-karmabhiḥ*—by the results of one's *karma* (fruitive activities); *yaḥ*—that which; *sneha-pāśaḥ*—bondage of affection; *nija-sarga*—Your own creation; *vṛddhaye*—to increase; *svayam*—personally; *kṛtaḥ*—made; *te*—by You; *tam*—that; *imam*—this; *vivṛścasi*—you are cutting.

@@ -1,9 +1,9 @@
 ### CC Antya 5.109
 
-> ভগবান্-আচার্য কহে, — ‘শুন একবার ।
+> ভগবান্-আচার্য কহে, — ‘শুন একবার ।\
 > তুমি শুনিলে ভাল-মন্দ জানিবে বিচার ।।’ ॥ ১০৯ ॥
 
-> bhagavān-ācārya kahe,—'śuna eka-bāra
+> bhagavān-ācārya kahe,—'śuna eka-bāra\
 > tumi śunile bhāla-manda jānibe vicāra'
 
 *bhagavān-ācārya*—Bhagavān Ācārya; *kahe*—says; *śuna*—please hear; *eka-bāra*—once; *tumi śunile*—if you hear; *bhāla-manda*—good or bad; *jānibe vicāra*—will be able to understand.

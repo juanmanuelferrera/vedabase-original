@@ -1,11 +1,11 @@
 ### SB 4.23.21
 
-> देहं विपन्नाखिलचेतनादिकं पत्युः पृथिव्या दयितस्य चात्मनः ।
+> देहं विपन्नाखिलचेतनादिकं पत्युः पृथिव्या दयितस्य चात्मनः ।\
 > आलक्ष्य किञ्चिच्च विलप्य सा सती चितामथारोपयदद्रिसानुनि ॥२१॥
 
-> dehaṁ vipannākhila-cetanādikaṁ
-> patyuḥ pṛthivyā dayitasya cātmanaḥ
-> ālakṣya kiñcic ca vilapya sā satī
+> dehaṁ vipannākhila-cetanādikaṁ\
+> patyuḥ pṛthivyā dayitasya cātmanaḥ\
+> ālakṣya kiñcic ca vilapya sā satī\
 > citām athāropayad adri-sānuni
 
 *deham*—body; *vipanna*—completely failing; *akhila*—all; *cetana*—feeling; *ādikam*—symptoms; *patyuḥ*—of her husband; *pṛthivyāḥ*—the world; *dayitasya*—of the merciful; *ca ātmanaḥ*—also of herself; *ālakṣya*—by seeing; *kiñcit*—very little; *ca*—and; *vilapya*—lamenting; *sā*—she; *satī*—the chaste; *citām*—unto the fire; *atha*—now; *āropayat*—placed; *adri*—hill; *sānuni*—on the top.

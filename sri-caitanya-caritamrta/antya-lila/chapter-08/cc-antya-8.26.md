@@ -1,9 +1,9 @@
 ### CC Antya 8.26
 
-> এই যে শ্রীমাধবেন্দ্র শ্রীপাদ উপেক্ষা করিল ।
+> এই যে শ্রীমাধবেন্দ্র শ্রীপাদ উপেক্ষা করিল ।\
 > সেই অপরাধে ইঁহার ‘বাসনা’ জন্মিল ॥২৬॥
 
-> ei ye śrī-mādhavendra śrī-pāda upekṣā karila
+> ei ye śrī-mādhavendra śrī-pāda upekṣā karila\
 > sei aparādhe iṅhāra 'vāsanā, janmila
 
 *ei*—this; *ye*—that; *śrī-mādhavendra śrī-pāda*—His Lordship Mādhavendra Purī; *upekṣā karila*—neglected or denounced; *sei aparādhe*—because of the offense; *iṅhāra*—of Rāmacandra Purī; *vāsanā*—material desire; *janmila*—arose.

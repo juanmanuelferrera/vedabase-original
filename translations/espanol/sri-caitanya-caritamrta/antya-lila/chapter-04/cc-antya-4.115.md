@@ -1,9 +1,9 @@
 ### CC Antya 4.115
 
-> পূর্বে বৈশাখ-মাসে সনাতন যবে আইলা ।
+> পূর্বে বৈশাখ-মাসে সনাতন যবে আইলা ।\
 > জ্যৈষ্ঠমাসে প্রভু তাঁরে পরীক্ষা করিলা ॥১১৫॥
 
-> pūrve vaiśākha-māse sanātana yabe āilā
+> pūrve vaiśākha-māse sanātana yabe āilā\
 > jyaiṣṭha-māse prabhu tāṅre parīkṣā karilā
 
 *pūrve*—anteriormente; *vaiśākha-māse*—durante el mes de abril-mayo; *sanātana*—Sanātana Gosvāmī; *yabe*—cuando; *āilā*—llegó; *jyaiṣṭha-māse*—en el mes de mayo-junio; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a él; *parīkṣā karilā*—lo puso a prueba.

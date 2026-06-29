@@ -1,11 +1,11 @@
 ### SB 1.5.37
 
-> ओं नमो भगवते तुभ्यं वासुदेवाय धीमहि ।
+> ओं नमो भगवते तुभ्यं वासुदेवाय धीमहि ।\
 > प्रद्युम्नायानिरुद्धाय नमः सङ्कर्षणाय च ॥३७॥
 
-> oṁ namo bhagavate tubhyaṁ
-> vāsudevāya dhīmahi
-> pradyumnāyāniruddhāya
+> oṁ namo bhagavate tubhyaṁ\
+> vāsudevāya dhīmahi\
+> pradyumnāyāniruddhāya\
 > namaḥ saṅkarṣaṇāya ca
 
 *oṁ*—the sign of chanting the transcendental glory of the Lord; *namaḥ*—offering obeisances unto the Lord; *bhagavate*—unto the Personality of Godhead; *tubhyam*—unto You; *vāsudevāya*—unto the Lord, the son of Vasudeva; *dhīmahi*—let us chant; *pradyumnāya, aniruddhāya* and *saṅkarṣaṇāya*—all plenary expansions of Vāsudeva; *namaḥ*—respectful obeisances; *ca*—and.

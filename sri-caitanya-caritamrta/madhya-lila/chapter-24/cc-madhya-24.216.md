@@ -1,9 +1,9 @@
 ### CC Madhya 24.216
 
-> ‘তপস্বী’ প্রভৃতি যত দেহারামী হয় ।
+> ‘তপস্বী’ প্রভৃতি যত দেহারামী হয় ।\
 > সাধুসঙ্গে তপ ছাড়ি’ শ্রীকৃষ্ণ ভজয় ॥২১৬॥
 
-> 'tapasvī' prabhṛti yata dehārāmī haya
+> 'tapasvī' prabhṛti yata dehārāmī haya\
 > sādhu-saṅge tapa chāḍi' śrī-kṛṣṇa bhajaya
 
 *tapasvī*—persons who undergo severe penances; *prabhṛti*—and so on; *yata*—all; *dehārāmī haya*—are within the category of the bodily concept of life; *sādhu-saṅge*—in the association of devotees; *tapa chāḍi'*—giving up all such processes of penance and austerity; *śrī-kṛṣṇa bhajaya*—engage themselves in the service of Lord Kṛṣṇa.

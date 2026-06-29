@@ -1,25 +1,25 @@
 ### CC Madhya 23.79-81
 
-> সদা স্বরূপসংপ্রাপ্তঃ সর্বজ্ঞো নিত্যনূতনঃ ।
-> সচ্চিদানন্দসান্দ্রাঙ্গঃ সর্বসিদ্ধিনিষেবিতঃ ॥৭৯॥
-> অথোচ্যন্তে গুণাঃ পঞ্চ যে লক্ষ্মীশাদি-বর্তিনঃ ।
-> অবিচিন্ত্যমহাশক্তিঃ কোটিব্রহ্মাণ্ডবিগ্রহঃ ॥৮০॥
-> অবতারাবলীবীজং হতারিগতিদায়কঃ ।
+> সদা স্বরূপসংপ্রাপ্তঃ সর্বজ্ঞো নিত্যনূতনঃ ।\
+> সচ্চিদানন্দসান্দ্রাঙ্গঃ সর্বসিদ্ধিনিষেবিতঃ ॥৭৯॥\
+> অথোচ্যন্তে গুণাঃ পঞ্চ যে লক্ষ্মীশাদি-বর্তিনঃ ।\
+> অবিচিন্ত্যমহাশক্তিঃ কোটিব্রহ্মাণ্ডবিগ্রহঃ ॥৮০॥\
+> অবতারাবলীবীজং হতারিগতিদায়কঃ ।\
 > আত্মারামগণাকর্ষীত্যমী কৃষ্ণে কিলাদ্ভুতাঃ ॥৮১॥
 
-> sadā svarūpa-saṁprāptaḥ
-> sarva-jño nity-nūtanaḥ
-> sac-cid-ānanda-sāndrāṅgaḥ
+> sadā svarūpa-saṁprāptaḥ\
+> sarva-jño nity-nūtanaḥ\
+> sac-cid-ānanda-sāndrāṅgaḥ\
 > sarva-siddhi-niṣevitaḥ
 
-> athocyante guṇāḥ pañca
-> ye lakṣmīśādi-vartinaḥ
-> avicintya-mahā-śaktiḥ
+> athocyante guṇāḥ pañca\
+> ye lakṣmīśādi-vartinaḥ\
+> avicintya-mahā-śaktiḥ\
 > koṭi-brahmāṇḍa-vigrahaḥ
 
-> avatārāvalī-bījaṁ
-> hatāri-gati-dāyakaḥ
-> ātmārāma-gaṇākarṣīty
+> avatārāvalī-bījaṁ\
+> hatāri-gati-dāyakaḥ\
+> ātmārāma-gaṇākarṣīty\
 > amī kṛṣṇe kilādbhutāḥ
 
 *sadā*—always; *svarūpa-saṁprāptaḥ*—situated in one's eternal nature; *sarva-jñaḥ*—omniscient; *nitya-nūtanaḥ*—ever-fresh; *sat-cit-ānanda-sāndra-aṅgaḥ*—the concentrated form of eternity, knowledge, bliss; *sarva-siddhi-niṣevitaḥ*—attended by all mystic perfections; *atha*—now; *ucyante*—are said; *guṇāḥ*—qualities; *pañca*—five; *ye*—which; *lakṣmī-īśa*—in the proprietor of the goddess of fortune; *ādi*—etc.; *vartinaḥ*—represented; *avicintya*—inconceivable; *mahā-śaktiḥ*—possessing supreme energy; *koṭi-brahmāṇḍa*—consisting of innumerable universes; *vigrahaḥ*—having a body; *avatāra*—of incarnations; *āvalī*—of groups; *bījam*—the source; *hata-ari*—to enemies killed by Him; *gati-dāyakaḥ*—giving liberation; *ātmārāma-gaṇa*—of those fully satisfied in themselves; *ākarṣī*—attracting; *iti*—thus; *amī*—these; *kṛṣṇe*—in Kṛṣṇa; *kila*—certainly; *adbhutāḥ*—very wonderful.

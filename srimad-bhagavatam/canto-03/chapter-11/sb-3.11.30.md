@@ -1,11 +1,11 @@
 ### SB 3.11.30
 
-> त्रिलोक्यां दह्यमानायां शक्त्या सङ्कर्षणाग्निना ।
+> त्रिलोक्यां दह्यमानायां शक्त्या सङ्कर्षणाग्निना ।\
 > यान्त्यूष्मणा महर्लोकाज्जनं भृग्वादयोऽर्दिताः ॥३०॥
 
-> tri-lokyāṁ dahyamānāyāṁ
-> śaktyā saṅkarṣaṇāgninā
-> yānty ūṣmaṇā maharlokāj
+> tri-lokyāṁ dahyamānāyāṁ\
+> śaktyā saṅkarṣaṇāgninā\
+> yānty ūṣmaṇā maharlokāj\
 > janaṁ bhṛgv-ādayo 'rditāḥ
 
 *tri-lokyām*—when the spheres of the three worlds; *dahyamānāyām*—being set ablaze; *śaktyā*—by the potency; *saṅkarṣaṇa*—from the mouth of Saṅkarṣaṇa; *agninā*—by the fire; *yānti*—they go; *ūṣmaṇā*—heated by the warmth; *mahaḥ-lokāt*—from Maharloka; *janam*—to Janaloka; *bhṛgu*—the sage Bhṛgu; *ādayaḥ*—and others; *arditāḥ*—being so distressed.

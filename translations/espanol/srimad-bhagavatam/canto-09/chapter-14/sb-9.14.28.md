@@ -1,11 +1,11 @@
 ### SB 9.14.28
 
-> निशम्याक्रन्दितं देवी पुत्रयोर्नीयमानयोः
+> निशम्याक्रन्दितं देवी पुत्रयोर्नीयमानयोः\
 > हतास्म्यहं कुनाथेन नपुंसा वीरमानिना ॥२८॥
 
-> niśamyākranditaṁ devī
-> putrayor nīyamānayoḥ
-> hatāsmy ahaṁ kunāthena
+> niśamyākranditaṁ devī\
+> putrayor nīyamānayoḥ\
+> hatāsmy ahaṁ kunāthena\
 > napuṁsā vīra-māninā
 
 *niśamya*—al escuchar; *ākranditam*—el llanto (por ser robados); *devī*—Urvaśī; *putrayoḥ*—de aquellos dos corderos, que ella trataba como a hijos; *nīyamānayoḥ*—cuando los robaban; *hatā*—matada; *asmi*—soy; *aham*—yo; *ku-nāthena*—bajo la protección de un mal marido; *na-puṁsā*—por el eunuco; *vīra-māninā*—aunque se cree un héroe.

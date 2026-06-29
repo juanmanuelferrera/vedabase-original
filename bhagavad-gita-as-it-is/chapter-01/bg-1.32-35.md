@@ -1,32 +1,32 @@
 ### Bg 1.32-35
 
-> किं नो राज्येन गोविन्द किं भोगैर्जीवितेन वा ।
-> येषामर्थे काङ्क्षितं नो राज्यं भोगाः सुखानि च ॥३२॥
-> त इमेऽवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च ।
-> आचार्याः पितरः पुत्रास्तथैव च पितामहाः ॥३३॥
-> मातुलाः श्वशुराः पौत्राः श्यालाः सम्बन्धिनस्तथा ।
-> एतान्न हन्तुमिच्छामि घ्नतोऽपि मधुसूदन ॥३४॥
-> अपि त्रैलोक्यराज्यस्य हेतोः किं नु महीकृते ।
+> किं नो राज्येन गोविन्द किं भोगैर्जीवितेन वा ।\
+> येषामर्थे काङ्क्षितं नो राज्यं भोगाः सुखानि च ॥३२॥\
+> त इमेऽवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च ।\
+> आचार्याः पितरः पुत्रास्तथैव च पितामहाः ॥३३॥\
+> मातुलाः श्वशुराः पौत्राः श्यालाः सम्बन्धिनस्तथा ।\
+> एतान्न हन्तुमिच्छामि घ्नतोऽपि मधुसूदन ॥३४॥\
+> अपि त्रैलोक्यराज्यस्य हेतोः किं नु महीकृते ।\
 > निहत्य धार्तराष्ट्रान्नः का प्रीतिः स्याज्जनार्दन ॥३५॥
 
-> kiṁ no rājyena govinda
-> kiṁ bhogair jīvitena vā
-> yeṣām arthe kāṅkṣitaṁ no
+> kiṁ no rājyena govinda\
+> kiṁ bhogair jīvitena vā\
+> yeṣām arthe kāṅkṣitaṁ no\
 > rājyaṁ bhogāḥ sukhāni ca
 
-> ta ime ’vasthitā yuddhe
-> prāṇāṁs tyaktvā dhanāni ca
-> ācāryāḥ pitaraḥ putrās
+> ta ime ’vasthitā yuddhe\
+> prāṇāṁs tyaktvā dhanāni ca\
+> ācāryāḥ pitaraḥ putrās\
 > tathaiva ca pitāmahāḥ
 
-> mātulāḥ śvaśurāḥ pautrāḥ
-> śyālāḥ sambandhinas tathā
-> etān na hantum icchāmi
+> mātulāḥ śvaśurāḥ pautrāḥ\
+> śyālāḥ sambandhinas tathā\
+> etān na hantum icchāmi\
 > ghnato ’pi madhusūdana
 
-> api trailokya-rājyasya
-> hetoḥ kiṁ nu mahī-kṛte
-> nihatya dhārtarāṣṭrān naḥ
+> api trailokya-rājyasya\
+> hetoḥ kiṁ nu mahī-kṛte\
+> nihatya dhārtarāṣṭrān naḥ\
 > kā prītiḥ syāj janārdana
 
 *kim*—what use; *naḥ*—to us; *rājyena*—is the kingdom; *govinda*—O Kṛṣṇa; *kim*—what; *bhogaiḥ*—enjoyment; *jīvitena*—by living; *vā*—either; *yeṣām*—for whom; *arthe*—for the matter of; *kāṅkṣitam*—desired; *naḥ*—our; *rājyam*—kingdom; *bhogāḥ*—material enjoyment; *sukhāni*—all happiness; *ca*—also; *te*—all of them; *ime*—these; *avasthitāḥ*—situated; *yuddhe*—in this battlefield; *prāṇān*—lives; *tyaktvā*—giving up; *dhanāni*—riches; *ca*—also; *ācāryāḥ*—teachers; *pitaraḥ*—fathers; *putrāḥ*—sons; *tathā*—as well as; *eva*—certainly; *ca*—also; *pitāmahāḥ*—grandfathers; *mātulāḥ*—maternal uncles; *śvaśurāḥ*—fathers-in-law; *pautrāḥ*—grandsons; *śyālāḥ*—brothers-in-law; *sambandhinaḥ*—relatives; *tathā*—as well as; *etān*—all these; *na*—never; *hantum*—for killing; *icchāmi*—do I wish; *ghnataḥ*—being killed; *api*—even; *madhusūdana*—O killer of the demon Madhu (Kṛṣṇa); *api*—even if; *trailokya*—of the three worlds; *rājyasya*—of the kingdoms; *hetoḥ*—in exchange; *kim*—what to speak of; *nu*—only; *mahī-kṛte*—for the sake of earth; *nihatya*—by killing; *dhārtarāṣṭrān*—the sons of Dhṛtarāṣṭra; *naḥ*—our; *kā*—what; *prītiḥ*—pleasure; *syāt*—will there be; *janārdana*—O maintainer of all living entities.

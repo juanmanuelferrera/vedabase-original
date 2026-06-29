@@ -1,11 +1,11 @@
 ### SB 5.1.14
 
-> यद्वाचि तन्त्यां गुणकर्मदामभिः सुदुस्तरैर्वत्स वयं सुयोजिताः
+> यद्वाचि तन्त्यां गुणकर्मदामभिः सुदुस्तरैर्वत्स वयं सुयोजिताः\
 > सर्वे वहामो बलिमीश्वराय प्रोता नसीव द्विपदे चतुष्पदः ॥१४॥
 
-> yad-vāci tantyāṁ guṇa-karma-dāmabhiḥ
-> sudustarair vatsa vayaṁ suyojitāḥ
-> sarve vahāmo balim īśvarāya
+> yad-vāci tantyāṁ guṇa-karma-dāmabhiḥ\
+> sudustarair vatsa vayaṁ suyojitāḥ\
+> sarve vahāmo balim īśvarāya\
 > protā nasīva dvi-pade catuṣ-padaḥ
 
 *yat*—of whom; *vāci*—in the form of Vedic instruction; *tantyām*—to a long rope; *guṇa*—of quality; *karma*—and work; *dāmabhiḥ*—by the ropes; *su-dustaraiḥ*—very difficult to avoid; *vatsa*—my dear boy; *vayam*—we; *su-yojitāḥ*—are engaged; *sarve*—all; *vahāmaḥ*—carry out; *balim*—orders to please Him; *īśvarāya*—unto the Supreme Personality of Godhead; *protāḥ*—being bound; *nasi*—in the nose; *iva*—like; *dvi-pade*—to the two-legged (driver); *catuḥ-padaḥ*—the four-legged (bulls).

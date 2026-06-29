@@ -1,9 +1,9 @@
 ### CC Madhya 22.62
 
-> ‘শ্রদ্ধা’-শব্দে — বিশ্বাস কহে সুদৃঢ় নিশ্চয় ।
+> ‘শ্রদ্ধা’-শব্দে — বিশ্বাস কহে সুদৃঢ় নিশ্চয় ।\
 > কৃষ্ণে ভক্তি কৈলে সর্বকর্ম কৃত হয় ॥৬২॥
 
-> 'śraddhā'-śabde—viśvāsa kahe sudṛḍha niścaya
+> 'śraddhā'-śabde—viśvāsa kahe sudṛḍha niścaya\
 > kṛṣṇe bhakti kaile sarva-karma kṛta haya
 
 *śraddhā-śabde*—by the word *śraddhā*; *viśvāsa*—faith; *kahe*—is said; *sudṛḍha*—firm; *niścaya*—certain; *kṛṣṇe*—unto Lord Kṛṣṇa; *bhakti*—devotional service; *kaile*—by executing; *sarva-karma*—all activities; *kṛta*—completed; *haya*—are.

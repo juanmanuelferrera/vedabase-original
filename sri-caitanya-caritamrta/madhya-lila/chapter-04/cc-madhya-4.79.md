@@ -1,9 +1,9 @@
 ### CC Madhya 4.79
 
-> একদিনের উদ্যোগে ঐছে মহোত্সব কৈল ।
+> একদিনের উদ্যোগে ঐছে মহোত্সব কৈল ।\
 > গোপাল-প্রভাবে হয়, অন্যে না জানিল ॥৭৯॥
 
-> eka-dinera udyoge aiche mahotsava kaila
+> eka-dinera udyoge aiche mahotsava kaila\
 > gopāla-prabhāve haya, anye nā jānila
 
 *eka-dinera udyoge*—by one day's attempt; *aiche*—such; *mahotsava*—festival; *kaila*—performed; *gopāla*—of Gopāla; *prabhāve*—by the potency; *haya*—is possible; *anye*—others; *nā*—not; *jānila*—know.

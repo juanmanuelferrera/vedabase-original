@@ -1,9 +1,9 @@
 ### CC Madhya 5.29
 
-> বড়বিপ্র কহে, — “কন্যা মোর নিজ-ধন ।
+> বড়বিপ্র কহে, — “কন্যা মোর নিজ-ধন ।\
 > নিজ-ধন দিতে নিষেধিবে কোন্ জন ॥২৯॥
 
-> baḍa-vipra kahe,--"kanyā mora nija-dhana
+> baḍa-vipra kahe,--"kanyā mora nija-dhana\
 > nija-dhana dite niṣedhibe kon jana
 
 *baḍa-vipra kahe*—el brāhmaṇa anciano dice; *kanyā*—la hija; *mora*—mi; *nija-dhana*—propia propiedad; *nija-dhana*—la propia propiedad; *dite*—dar; *niṣedhibe*—se opondrá; *kon*—qué; *jana*—persona.

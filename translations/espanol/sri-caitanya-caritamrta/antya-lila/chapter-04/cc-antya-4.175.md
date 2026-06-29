@@ -1,11 +1,11 @@
 ### CC Antya 4.175
 
-> কিং ভদ্রং কিমভদ্রং বা দ্বৈতস্যাবস্তুনঃ কিয়ৎ ।
+> কিং ভদ্রং কিমভদ্রং বা দ্বৈতস্যাবস্তুনঃ কিয়ৎ ।\
 > বাচোদিতং তদনৃতং মনসা ধ্যাতমেব চ ॥১৭৫॥
 
-> kiṁ bhadraṁ kim abhadraṁ vā
-> dvaitasyāvastunaḥ kiyat
-> vācoditaṁ tad anṛtaṁ
+> kiṁ bhadraṁ kim abhadraṁ vā\
+> dvaitasyāvastunaḥ kiyat\
+> vācoditaṁ tad anṛtaṁ\
 > manasā dhyātam eva ca
 
 *kim*—qué; *bhadram*—bueno; *kim*—qué; *abhadram*—malo; *vā*—o; *dvaitasya*—de este mundo material; *avastunaḥ*—aquello que tiene existencia temporal; *kiyat*—cuánto; *vācā*—mediante palabras; *uditam*—vibrado; *tat*—eso; *anṛtam*—sin existencia permanente; *manasā*—por la mente; *dhyātam*—concebido; *eva*—ciertamente; *ca*—y.

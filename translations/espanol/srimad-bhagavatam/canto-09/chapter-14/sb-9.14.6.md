@@ -1,11 +1,11 @@
 ### SB 9.14.6
 
-> शुक्रो बृहस्पतेर्द्वेषादग्रहीत्सासुरोडुपम
+> शुक्रो बृहस्पतेर्द्वेषादग्रहीत्सासुरोडुपम\
 > हरो गुरुसुतं स्नेहात्सर्वभूतगणावृतः ॥६॥
 
-> śukro bṛhaspater dveṣād
-> agrahīt sāsuroḍupam
-> haro guru-sutaṁ snehāt
+> śukro bṛhaspater dveṣād\
+> agrahīt sāsuroḍupam\
+> haro guru-sutaṁ snehāt\
 > sarva-bhūta-gaṇāvṛtaḥ
 
 *śukraḥ*—el semidiós llamado Śukra; *bṛhaspateḥ*—hacia Bṛhaspati; *dveṣāt*—por enemistad; *agrahīt*—se puso; *sa-asura*—con los demonios; *uḍupam*—del lado del dios de la Luna; *haraḥ*—el Señor Śiva; *guru-sutam*—el bando del hijo de su maestro espiritual; *snehāt*—por afecto; *sarva-bhūta-gaṇa-āvṛtaḥ*—acompañado por toda clase de fantasmas y duendes.

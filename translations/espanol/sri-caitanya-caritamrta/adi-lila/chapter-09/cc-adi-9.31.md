@@ -1,9 +1,9 @@
 ### CC Adi 9.31
 
-> মালাকার কহে, — শুন, বৃক্ষ-পরিবার ।
+> মালাকার কহে, — শুন, বৃক্ষ-পরিবার ।\
 > মূলশাখা-উপশাখা যতেক প্রকার ॥৩১॥
 
-> mālākāra kahe,--śuna, vṛkṣa-parivāra
+> mālākāra kahe,--śuna, vṛkṣa-parivāra\
 > mūlaśākhā-upaśākhā yateka prakāra
 
 *mālā-kāra*—el jardinero; *kahe*—dijo; *śuna*—escuchad; *vṛkṣa-parivāra*—la familia de este árbol trascendental del servicio devocional; *mūla-śākhā*—ramas principales; *upaśākhā*—subramas; *yateka*—cuantas; *prakāra*—variedades.

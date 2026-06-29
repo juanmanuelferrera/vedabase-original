@@ -1,11 +1,11 @@
 ### SB 1.8.38
 
-> के वयं नामरूपाभ्यां यदुभिः सह पाण्डवाः ।
+> के वयं नामरूपाभ्यां यदुभिः सह पाण्डवाः ।\
 > भवतोऽदर्शनं यर्हि हृषीकाणामिवेशितुः ॥३८॥
 
-> ke vayaṁ nāma-rūpābhyāṁ
-> yadubhiḥ saha pāṇḍavāḥ
-> bhavato 'darśanaṁ yarhi
+> ke vayaṁ nāma-rūpābhyāṁ\
+> yadubhiḥ saha pāṇḍavāḥ\
+> bhavato 'darśanaṁ yarhi\
 > hṛṣīkāṇām iveśituḥ
 
 *ke*—quienes somos; *vayam*—nosotros; *nāma-rūpābhyām*—sin fama ni habilidad; *yadubhiḥ*—con los Yadus; *saha*—junto con; *pāṇḍavāḥ*—y los Pāṇḍavas; *bhavataḥ*—Tu; *adarśanam*—ausencia; *yarhi*—como si; *hṛṣīkāṇām*—de los sentidos; *iva*—como; *īśituḥ*—del ser viviente.

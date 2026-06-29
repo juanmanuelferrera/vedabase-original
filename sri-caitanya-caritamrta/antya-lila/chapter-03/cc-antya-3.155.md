@@ -1,9 +1,9 @@
 ### CC Antya 3.155
 
-> “সত্য কহে, — এই ঘর মোর যোগ্য নয়  ।
+> “সত্য কহে, — এই ঘর মোর যোগ্য নয়  ।\
 > ম্লেচ্ছ গো-বধ করে, তার যোগ্য হয় ।।” ১৫৫ ॥১৫৫॥
 
-> "satya kahe,—ei ghara mora yogya naya
+> "satya kahe,—ei ghara mora yogya naya\
 > mleccha go-vadha kare, tāra yogya haya"
 
 *satya kahe*—Rāmacandra Khān says rightly; *ei ghara*—this house; *mora*—for Me; *yogya naya*—is not fit; *mleccha*—the meateaters; *go-vadha kare*—who kill cows; *tāra*—for them; *yogya haya*—it is fit.

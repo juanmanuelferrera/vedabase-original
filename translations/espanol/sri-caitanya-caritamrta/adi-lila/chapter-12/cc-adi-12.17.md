@@ -1,9 +1,9 @@
 ### CC Adi 12.17
 
-> পঞ্চম বর্ষের বালক কহে সিদ্ধান্তের সার ।
+> পঞ্চম বর্ষের বালক কহে সিদ্ধান্তের সার ।\
 > শুনিয়া পাইলা আচার্য সন্তোষ অপার ॥১৭॥
 
-> pañcama varṣera bālaka kahe siddhāntera sāra
+> pañcama varṣera bālaka kahe siddhāntera sāra\
 > śuniyā pāilā ācārya santoṣa apāra
 
 *pañcama*—cinco; *varṣera*—años; *bālaka*—niño pequeño; *kahe*—dice; *siddhāntera*—conclusiva; *sāra*—esencia; *śuniyā*—al escuchar; *pāilā*—obtuvo; *ācārya*—Advaita Ācārya; *santoṣa*—satisfacción; *apāra*—inmensa.

@@ -1,18 +1,18 @@
 ### SB 7.15.48-49
 
-> हिंस्रं द्रव्यमयं काम्यमग्निहोत्राद्यशान्तिदम
-> दर्शश्च पूर्णमासश्च चातुर्मास्यं पशुः सुतः ॥४८॥
-> एतदिष्टं प्रवृत्ताख्यं हुतं प्रहुतमेव च
+> हिंस्रं द्रव्यमयं काम्यमग्निहोत्राद्यशान्तिदम\
+> दर्शश्च पूर्णमासश्च चातुर्मास्यं पशुः सुतः ॥४८॥\
+> एतदिष्टं प्रवृत्ताख्यं हुतं प्रहुतमेव च\
 > पूर्तं सुरालयाराम कूपाजीव्यादिलक्षणम ॥४९॥
 
-> hiṁsraṁ dravyamayaṁ kāmyam
-> agni-hotrādy-aśāntidam
-> darśaś ca pūrṇamāsaś ca
+> hiṁsraṁ dravyamayaṁ kāmyam\
+> agni-hotrādy-aśāntidam\
+> darśaś ca pūrṇamāsaś ca\
 > cāturmāsyaṁ paśuḥ sutaḥ
 
-> etad iṣṭaṁ pravṛttākhyaṁ
-> hutaṁ prahutam eva ca
-> pūrtaṁ surālayārāma-
+> etad iṣṭaṁ pravṛttākhyaṁ\
+> hutaṁ prahutam eva ca\
+> pūrtaṁ surālayārāma-\
 > kūpājīvyādi-lakṣaṇam
 
 *hiṁsram*—a system of killing and sacrificing animals; *dravya-mayam*—requiring much paraphernalia; *kāmyam*—full of unlimited material desires; *agni-hotra-ādi*—ritualistic ceremonies such as the *agni-hotra-yajña*; *aśānti-dam*—causing anxieties; *darśaḥ*—the *darśa* ritualistic ceremony; *ca*—and; *pūrṇamāsaḥ*—the *pūrṇamāsa* ritualistic ceremony; *ca*—also; *cāturmāsyam*—observing four months of regulative principles; *paśuḥ*—the ceremony of sacrificing animals or *paśu-yajña*; *sutaḥ*—the *soma-yajña*; *etat*—of all this; *iṣṭam*—the goal; *pravṛtta-ākhyam*—known as material attachment; *hutam*—Vaiśvadeva, an incarnation of the Supreme Personality of Godhead; *prahutam*—a ceremony called Baliharaṇa; *eva*—indeed; *ca*—also; *pūrtam*—for the benefit of the public; *sura-ālaya*—constructing temples for demigods; *ārāma*—resting houses and gardens; *kūpa*—digging wells; *ājīvya-ādi*—activities like distributing food and water; *lakṣaṇam*—symptoms.

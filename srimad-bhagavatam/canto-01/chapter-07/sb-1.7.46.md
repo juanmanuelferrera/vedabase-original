@@ -1,11 +1,11 @@
 ### SB 1.7.46
 
-> तद्धर्मज्ञ महाभाग भवद्भिर्गौरवं कुलम् ।
+> तद्धर्मज्ञ महाभाग भवद्भिर्गौरवं कुलम् ।\
 > वृजिनं नार्हति प्राप्तुं पूज्यं वन्द्यमभीक्ष्णशः ॥४६॥
 
-> tad dharmajña mahā-bhāga
-> bhavadbhir gauravaṁ kulam
-> vṛjinaṁ nārhati prāptuṁ
+> tad dharmajña mahā-bhāga\
+> bhavadbhir gauravaṁ kulam\
+> vṛjinaṁ nārhati prāptuṁ\
 > pūjyaṁ vandyam abhīkṣṇaśaḥ
 
 *tat*—therefore; *dharma-jña*—one who is aware of the principles of religion; *mahā-bhāga*—the most fortunate; *bhavadbhiḥ*—by your good self; *gauravam*—glorified; *kulam*—the family; *vṛjinam*—that which is painful; *na*—not; *arhati*—does deserve; *prāptum*—for obtaining; *pūjyam*—the worshipable; *vandyam*—respectable; *abhīkṣṇaśaḥ*—constantly.

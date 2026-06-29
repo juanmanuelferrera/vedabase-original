@@ -1,11 +1,11 @@
 ### SB 2.6.3
 
-> रूपाणां तेजसां चक्षुर्दिवः सूर्यस्य चाक्षिणी ।
+> रूपाणां तेजसां चक्षुर्दिवः सूर्यस्य चाक्षिणी ।\
 > कर्णौ दिशां च तीर्थानां श्रोत्रमाकाशशब्दयोः ॥३॥
 
-> rūpāṇāṁ tejasāṁ cakṣur
-> divaḥ sūryasya cākṣiṇī
-> karṇau diśāṁ ca tīrthānāṁ
+> rūpāṇāṁ tejasāṁ cakṣur\
+> divaḥ sūryasya cākṣiṇī\
+> karṇau diśāṁ ca tīrthānāṁ\
 > śrotram ākāśa-śabdayoḥ
 
 *rūpāṇām*—de todas las clases de formas; *tejasām*—de todo lo que es iluminador; *cakṣuḥ*—los ojos; *divaḥ*—aquello que brilla; *sūryasya*—del Sol; *ca*—también; *akṣiṇī*—los globos oculares; *karṇau*—los oídos; *diśāṁ*—de todas las direcciones; *ca*—y; *tīrthanām*—de todos los *Vedas*; *śrotram*—el sentido de la audición; *ākāśa*—el cielo; *śabdayoḥ*—de todo sonido.

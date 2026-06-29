@@ -1,11 +1,11 @@
 ### SB 1.4.20
 
-> ऋग्यजुःसामाथर्वाख्या वेदाश्चत्वार उद्धृताः ।
+> ऋग्यजुःसामाथर्वाख्या वेदाश्चत्वार उद्धृताः ।\
 > इतिहासपुराणं च पञ्चमो वेद उच्यते ॥२०॥
 
-> ṛg-yajuḥ-sāmātharvākhyā
-> vedāś catvāra uddhṛtāḥ
-> itihāsa-purāṇaṁ ca
+> ṛg-yajuḥ-sāmātharvākhyā\
+> vedāś catvāra uddhṛtāḥ\
+> itihāsa-purāṇaṁ ca\
 > pañcamo veda ucyate
 
 *ṛg-yajuḥ-sāma-atharva-ākhyāḥ*—the names of the four *Vedas*; *vedāḥ*—the *Vedas*; *catvāraḥ*—four; *uddhṛtāḥ*—made into separate parts; *itihāsa*—historical records (*Mahābhārata*); *purāṇam ca*—and the *Purāṇas*; *pañcamaḥ*—the fifth; *vedaḥ*—the original source of knowledge; *ucyate*—is said to be.

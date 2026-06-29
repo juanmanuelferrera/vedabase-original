@@ -1,9 +1,9 @@
 ### CC Madhya 11.107
 
-> আগে তাঁরে মিলি’ সবে তাঁরে সঙ্গে লঞা ।
+> আগে তাঁরে মিলি’ সবে তাঁরে সঙ্গে লঞা ।\
 > তাঁর সঙ্গে জগন্নাথ দেখিবেন গিয়া ॥১০৭॥
 
-> āge tāṅre mili' sabe tāṅre saṅge lañā
+> āge tāṅre mili' sabe tāṅre saṅge lañā\
 > tāṅra saṅge jagannātha dekhibena giyā
 
 *āge*—first; *tāṅre*—Śrī Caitanya Mahāprabhu; *mili'*—meeting; *sabe*—all the devotees; *tāṅre*—Him; *saṅge*—with them; *lañā*—taking; *tāṅra saṅge*—with Him; *jagannātha*—Lord Jagannātha; *dekhibena*—they will see; *giyā*—going.

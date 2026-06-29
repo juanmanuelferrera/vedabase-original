@@ -1,13 +1,13 @@
 ### SB 2.7.33
 
-> क्रीडन्वने निशि निशाकररश्मिगौर्यां
-> रासोन्मुखः कलपदायतमूर्च्छितेन ।
-> उद्दीपितस्मररुजां व्रजभृद्वधूनां
+> क्रीडन्वने निशि निशाकररश्मिगौर्यां\
+> रासोन्मुखः कलपदायतमूर्च्छितेन ।\
+> उद्दीपितस्मररुजां व्रजभृद्वधूनां\
 > हर्तुर्हरिष्यति शिरो धनदानुगस्य ॥३३॥
 
-> krīḍan vane niśi niśākara-raśmi-gauryāṁ
-> rāsonmukhaḥ kala-padāyata-mūrcchitena
-> uddīpita-smara-rujāṁ vraja-bhṛd-vadhūnāṁ
+> krīḍan vane niśi niśākara-raśmi-gauryāṁ\
+> rāsonmukhaḥ kala-padāyata-mūrcchitena\
+> uddīpita-smara-rujāṁ vraja-bhṛd-vadhūnāṁ\
 > hartur hariṣyati śiro dhanadānugasya
 
 *krīḍan*—mientras estaba dedicado a Sus pasatiempos; *vane*—en el bosque de Vṛndāvana; *niśi*—nocturnos; *niśākara*—la luna; *raśmi-gauryām*—blanca luz de la luna; *rāsa-unmukhaḥ*—deseando bailar con; *kala-padāyata*—acompañado por dulces canciones; *mūrcchitena*—y música deliciosa; *uddīpita*—despertó; *smara-rujām*—deseos sexuales; *vraja-bhṛt*—los habitantes de Vrajabhūmi; *vadhūnām*—de las esposas; *hartuḥ*—de los raptores; *hariṣyati*—habrá de derrotar; *śiraḥ*—la cabeza; *dhanada-anugasya*—del seguidor del rico Kuvera.

@@ -1,11 +1,11 @@
 ### SB 4.21.52
 
-> नमो विवृद्धसत्त्वाय पुरुषाय महीयसे ।
+> नमो विवृद्धसत्त्वाय पुरुषाय महीयसे ।\
 > यो ब्रह्म क्षत्रमाविश्य बिभर्तीदं स्वतेजसा ॥५२॥
 
-> namo vivṛddha-sattvāya
-> puruṣāya mahīyase
-> yo brahma kṣatram āviśya
+> namo vivṛddha-sattvāya\
+> puruṣāya mahīyase\
+> yo brahma kṣatram āviśya\
 > bibhartīdaṁ sva-tejasā
 
 *namaḥ*—toda reverencia; *vivṛddha*—muy elevada; *sattvāya*—a la existencia; *puruṣāya*—a la persona; *mahīyase*—a aquel a quien se glorifica de esa forma; *yaḥ*—quien; *brahma*—cultura brahmínica; *kṣatram*—deber administrativo; *āviśya*—entrar; *bibharti*—mantener; *idam*—esto; *sva-tejasā*—por su propio poder.

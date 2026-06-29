@@ -1,11 +1,11 @@
 ### SB 8.20.31
 
-> पर्जन्यघोषो जलजः पाञ्चजन्यः कौमोदकी विष्णुगदा तरस्विनी
+> पर्जन्यघोषो जलजः पाञ्चजन्यः कौमोदकी विष्णुगदा तरस्विनी\
 > विद्याधरोऽसिः शतचन्द्रयुक्तस्तूणोत्तमावक्षयसायकौ च ॥३१॥
 
-> parjanya-ghoṣo jalajaḥ pāñcajanyaḥ
-> kaumodakī viṣṇu-gadā tarasvinī
-> vidyādharo 'siḥ śata-candra-yuktas
+> parjanya-ghoṣo jalajaḥ pāñcajanyaḥ\
+> kaumodakī viṣṇu-gadā tarasvinī\
+> vidyādharo 'siḥ śata-candra-yuktas\
 > tūṇottamāv akṣayasāyakau ca
 
 *parjanya-ghoṣaḥ*—having a sound vibration like that of the clouds; *jalajaḥ*—the Lord's conchshell; *pāñcajanyaḥ*—which is known as Pāñcajanya; *kaumodakī*—known by the name Kaumodakī; *viṣṇu-gadā*—the club of Lord Viṣṇu; *tarasvinī*—with great force; *vidyādharaḥ*—named Vidyādhara; *asiḥ*—the sword; *śata-candra-yuktaḥ*—with a shield decorated with hundreds of moons; *tūṇa-uttamau*—the best of quivers; *akṣayasāyakau*—named Akṣayasāyaka; *ca*—also.

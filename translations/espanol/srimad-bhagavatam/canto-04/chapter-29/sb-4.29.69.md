@@ -1,11 +1,11 @@
 ### SB 4.29.69
 
-> सत्त्वैकनिष्ठे मनसि भगवत्पार्श्ववर्तिनि ।
+> सत्त्वैकनिष्ठे मनसि भगवत्पार्श्ववर्तिनि ।\
 > तमश्चन्द्रमसीवेदमुपरज्यावभासते ॥६९॥
 
-> sattvaika-niṣṭhe manasi
-> bhagavat-pārśva-vartini
-> tamaś candramasīvedam
+> sattvaika-niṣṭhe manasi\
+> bhagavat-pārśva-vartini\
+> tamaś candramasīvedam\
 > uparajyāvabhāsate
 
 *sattva-eka-niṣṭhe*—en plenitud de conciencia de Kṛṣṇa; *manasi*—en una mente; *bhagavat*—con la Suprema Personalidad de Dios; *pārśva-vartini*—en constante contacto; *tamaḥ*—el planeta oscuro; *candramasi*—en la Luna; *iva*—como; *idam*—esa manifestación; *uparajya*—en relación con; *avabhāsate*—se manifiesta.

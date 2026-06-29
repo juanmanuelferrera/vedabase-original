@@ -1,11 +1,11 @@
 ### SB 4.12.14
 
-> एवं बहुसवं कालं महात्माविचलेन्द्रियः ।
+> एवं बहुसवं कालं महात्माविचलेन्द्रियः ।\
 > त्रिवर्गौपयिकं नीत्वा पुत्रायादान्नृपासनम् ॥१४॥
 
-> evaṁ bahu-savaṁ kālaṁ
-> mahātmāvicalendriyaḥ
-> tri-vargaupayikaṁ nītvā
+> evaṁ bahu-savaṁ kālaṁ\
+> mahātmāvicalendriyaḥ\
+> tri-vargaupayikaṁ nītvā\
 > putrāyādān nṛpāsanam
 
 *evam*—thus; *bahu*—many; *savam*—years; *kālam*—time; *mahā-ātmā*—great soul; *avicala-indriyaḥ*—without being disturbed by sense agitation; *tri-varga*—three kinds of worldly activities; *aupayikam*—favorable for executing; *nītvā*—having passed; *putrāya*—to his son; *adāt*—he handed over; *nṛpa-āsanam*—the royal throne.

@@ -1,11 +1,11 @@
 ### SB 1.8.32
 
-> केचिदाहुरजं जातं पुण्यश्लोकस्य कीर्तये ।
+> केचिदाहुरजं जातं पुण्यश्लोकस्य कीर्तये ।\
 > यदोः प्रियस्यान्ववाये मलयस्येव चन्दनम् ॥३२॥
 
-> kecid āhur ajaṁ jātaṁ
-> puṇya-ślokasya kīrtaye
-> yadoḥ priyasyānvavāye
+> kecid āhur ajaṁ jātaṁ\
+> puṇya-ślokasya kīrtaye\
+> yadoḥ priyasyānvavāye\
 > malayasyeva candanam
 
 *kecit*—alguien; *āhuḥ*—dice; *ajam*—el innaciente; *jātam*—nacido; *puṇya-ślokasya*—del gran rey piadoso; *kīrtaye*—para glorificar; *yadoḥ*—del rey Yadu; *priyasya*—del querido; *anvavāye*—en la familia de; *malayasya*—las colinas de Malaya; *iva*—como; *candanam*—sándalo.

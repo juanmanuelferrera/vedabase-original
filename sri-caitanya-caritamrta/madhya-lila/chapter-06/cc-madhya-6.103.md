@@ -1,11 +1,11 @@
 ### CC Madhya 6.103
 
-> কৃষ্ণবর্ণং ত্বিষাঽকৃষ্ণং সাঙ্গোপাঙ্গাস্ত্রপার্ষদম্ ।
+> কৃষ্ণবর্ণং ত্বিষাঽকৃষ্ণং সাঙ্গোপাঙ্গাস্ত্রপার্ষদম্ ।\
 > যজ্ঞৈঃ সংকীর্তনপ্রায়ৈর্যজন্তি হি সুমেধসঃ ॥১০৩॥
 
-> kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ
-> sāṅgopāṅgāstra-pārṣadam
-> yajñaiḥ saṅkīrtana-prāyair
+> kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ\
+> sāṅgopāṅgāstra-pārṣadam\
+> yajñaiḥ saṅkīrtana-prāyair\
 > yajanti hi su-medhasaḥ
 
 *kṛṣṇa-varṇam*—chanting the two syllables *kṛṣ* and *ṇa*; *tviṣā*—by complexion; *akṛṣṇam*—not blackish; *sa-aṅga*—accompanied by personal expansions; *upa-aṅga*—devotees; *astra*—the weapon of chanting the Hare Kṛṣṇa mantra; *pārṣadam*—and associates like Gadādhara, Svarūpa Dāmodara, etc.; *yajñaiḥ*—by sacrifice; *saṅkīrtana*—congregational chanting of the Hare Kṛṣṇa *mantra*; *prāyaiḥ*—chiefly consisting of; *yajanti*—worship; *hi*—indeed; *su-medhasaḥ*—those who are intelligent.

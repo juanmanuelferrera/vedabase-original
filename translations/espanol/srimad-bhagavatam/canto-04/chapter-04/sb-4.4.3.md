@@ -1,11 +1,11 @@
 ### SB 4.4.3
 
-> ततो विनिःश्वस्य सती विहाय तं शोकेन रोषेण च दूयता हृदा ।
+> ततो विनिःश्वस्य सती विहाय तं शोकेन रोषेण च दूयता हृदा ।\
 > पित्रोरगात्स्त्रैणविमूढधीर्गृहान्प्रेम्णात्मनो योऽर्धमदात्सतां प्रियः ॥३॥
 
-> tato viniḥśvasya satī vihāya taṁ
-> śokena roṣeṇa ca dūyatā hṛdā
-> pitror agāt straiṇa-vimūḍha-dhīr gṛhān
+> tato viniḥśvasya satī vihāya taṁ\
+> śokena roṣeṇa ca dūyatā hṛdā\
+> pitror agāt straiṇa-vimūḍha-dhīr gṛhān\
 > premṇātmano yo 'rdham adāt satāṁ priyaḥ
 
 *tataḥ*—entonces; *viniḥśvasya*—resollando; *satī*—Satī; *vihāya*—dejar; *tam*—a él (el Señor Śiva); *śokena*—por desconsuelo; *roṣeṇa*—por ira; *ca*—y; *dūyatā*—afligida; *hṛdā*—con el corazón; *pitroḥ*—de su padre; *agāt*—se marchó; *straiṇa*—por su naturaleza femenina; *vimūḍha*—confundida; *dhīḥ*—inteligencia; *gṛhān*—a la casa; *premṇā*—por afecto; *ātmanaḥ*—de su cuerpo; *yaḥ*—quien; *ardham*—la mitad; *adāt*—dio; *satām*—al santo; *priyaḥ*—querida.

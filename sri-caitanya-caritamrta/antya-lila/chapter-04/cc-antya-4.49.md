@@ -1,9 +1,9 @@
 ### CC Antya 4.49
 
-> কৃষ্ণভক্তিরসে দুঁহে পরম প্রধান ।
+> কৃষ্ণভক্তিরসে দুঁহে পরম প্রধান ।\
 > কৃষ্ণরস আস্বাদন কর, লহ কৃষ্ণনাম ।।” ॥ ৪৯ ॥
 
-> kṛṣṇa-bhakti-rase duṅhe parama pradhāna
+> kṛṣṇa-bhakti-rase duṅhe parama pradhāna\
 > kṛṣṇa-rasa āsvādana kara, laha kṛṣṇa-nāma"
 
 *kṛṣṇa*—of Lord Kṛṣṇa; *bhakti-rase*—in the transcendental mellow of devotional service; *duṅhe*—both of you; *parama pradhāna*—highly expert; *kṛṣṇa-rasa*—the transcendental taste of Kṛṣṇa; *āsvādana*—relishing; *kara*—do; *laha kṛṣṇa-nāma*—chanting the holy name of Kṛṣṇa.

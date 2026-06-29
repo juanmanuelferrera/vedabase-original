@@ -1,11 +1,11 @@
 ### SB 3.6.4
 
-> प्रबुद्धकर्म दैवेन त्रयोविंशतिको गणः ।
+> प्रबुद्धकर्म दैवेन त्रयोविंशतिको गणः ।\
 > प्रेरितोऽजनयत्स्वाभिर्मात्राभिरधिपूरुषम् ॥४॥
 
-> prabuddha-karmā daivena
-> trayoviṁśatiko gaṇaḥ
-> prerito 'janayat svābhir
+> prabuddha-karmā daivena\
+> trayoviṁśatiko gaṇaḥ\
+> prerito 'janayat svābhir\
 > mātrābhir adhipūruṣam
 
 *prabuddha*—despertadas; *karmā*—actividades; *daivena*—por la voluntad del Supremo; *trayaḥ-viṁśatikaḥ*—por los veintitrés componentes principales; *gaṇaḥ*—la combinación; *preritaḥ*—inducida por; *ajanayat*—manifestada; *svābhiḥ*—mediante Su personal; *mātrābhiḥ*—expansión plenaria; *adhipūruṣam*—la gigantesca forma universal *(viśva-rūpa).*.

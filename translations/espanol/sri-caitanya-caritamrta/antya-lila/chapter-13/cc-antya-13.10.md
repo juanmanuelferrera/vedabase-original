@@ -1,9 +1,9 @@
 ### CC Antya 13.10
 
-> শয়নের কালে স্বরূপ তাহাঁই রহিলা ।
+> শয়নের কালে স্বরূপ তাহাঁই রহিলা ।\
 > তূলী-বালিস দেখি’ প্রভু ক্রোধাবিষ্ট হইলা ॥১০॥
 
-> śayanera kāle svarūpa tāhāṅi rahilā
+> śayanera kāle svarūpa tāhāṅi rahilā\
 > tulī-bālisa dekhi' prabhu krodhāviṣṭa ha-ilā
 
 *śayanera kāle*—a la hora de acostarse; *svarūpa*—Svarūpa Dāmodara Gosvāmī; *tāhāṅi rahilā*—permaneció allí; *tulī*—colcha; *bālisa*—almohada; *dekhi'*—al ver; *prabhu*—Śrī Caitanya Mahāprabhu; *krodha-āviṣṭa ha-ilā*—se enfadó mucho.

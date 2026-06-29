@@ -1,9 +1,9 @@
 ### CC Antya 6.78
 
-> মহাপ্রভু আইলা দেখি’ নিতাই উঠিলা ।
+> মহাপ্রভু আইলা দেখি’ নিতাই উঠিলা ।\
 > তাঁরে লঞা সবার চিড়া দেখিতে লাগিলা ॥৭৮॥
 
-> mahāprabhu āilā dekhi' nitāi uṭhilā
+> mahāprabhu āilā dekhi' nitāi uṭhilā\
 > tāṅre lañā sabāra ciḍā dekhite lāgilā
 
 *mahāprabhu*—Śrī Caitanya Mahāprabhu; *āilā*—llegó; *dekhi'*—al ver; *nitāi*—el Señor Nityānanda; *uṭhilā*—se puso de pie; *tāṅre lañā*—con Él; *sabāra*—de todos; *ciḍā*—arroz inflado; *dekhite lāgilā*—comenzó a observar.

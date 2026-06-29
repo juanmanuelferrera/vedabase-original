@@ -1,11 +1,11 @@
 ### CC Madhya 22.73
 
-> ঈশ্বরে তদধীনেষু বালিশেষু দ্বিষৎসু চ ।
+> ঈশ্বরে তদধীনেষু বালিশেষু দ্বিষৎসু চ ।\
 > প্রেম-মৈত্রী-কৃপোপেক্ষা যঃ করোতি স মধ্যমঃ ॥৭৩॥
 
-> īśvare tad-adhīneṣu
-> bāliśeṣu dviṣatsu ca
-> prema-maitrī-kṛpopekṣā
+> īśvare tad-adhīneṣu\
+> bāliśeṣu dviṣatsu ca\
+> prema-maitrī-kṛpopekṣā\
 > yaḥ karoti sa madhyamaḥ
 
 *īśvare*—unto the Supreme Personality of Godhead; *tat-adhīneṣu*—to persons who have taken fully to Kṛṣṇa consciousness; *bāliśeṣu*—unto the neophytes or the ignorant; *dviṣatsu*—to persons envious of Kṛṣṇa and the devotees of Kṛṣṇa; *prema*—love; *maitrī*—friendship; *kṛpā*—mercy; *upekṣā*—negligence; *yaḥ*—anyone who; *karoti*—does; *saḥ*—he; *madhyamaḥ*—a second-class devotee.

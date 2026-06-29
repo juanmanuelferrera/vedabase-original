@@ -1,11 +1,11 @@
 ### SB 1.3.36
 
-> स वा इदं विश्वममोघलीलः सृजत्यवत्यत्ति न सज्जतेऽस्मिन् ।
+> स वा इदं विश्वममोघलीलः सृजत्यवत्यत्ति न सज्जतेऽस्मिन् ।\
 > भूतेषु चान्तर्हित आत्मतन्त्रः षाड्वर्गिकं जिघ्रति षड्गुणेशः ॥३६॥
 
-> sa vā idaṁ viśvam amogha-līlaḥ
-> sṛjaty avaty atti na sajjate 'smin
-> bhūteṣu cāntarhita ātma-tantraḥ
+> sa vā idaṁ viśvam amogha-līlaḥ\
+> sṛjaty avaty atti na sajjate 'smin\
+> bhūteṣu cāntarhita ātma-tantraḥ\
 > ṣāḍ-vargikaṁ jighrati ṣaḍ-guṇeśaḥ
 
 *saḥ*—el Señor Supremo; *vā*—alternadamente; *idam*—esto; *viśvam*—universos manifestados; *amogha-līlaḥ*—aquel cuyas actividades son inmaculadas; *sṛjati*—crea; *avati atti*—mantiene y aniquila; *na*—no; *sajjate*—es afectado por; *asmin*—en ellos; *bhūteṣu*—en todos los seres vivientes; *ca*—también; *antarhitaḥ*—viviendo dentro; *ātma-tantraḥ*—que depende solo de sí mismo; *ṣāṭ-vargikam*—dotado de todas las potencias de Sus opulencias; *jighrati*—apegado superficialmente, como oler la fragancia; *ṣaṭ-guṇa-īśaḥ*—amo de los seis sentidos.

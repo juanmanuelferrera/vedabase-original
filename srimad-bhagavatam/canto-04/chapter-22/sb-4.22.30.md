@@ -1,11 +1,11 @@
 ### SB 4.22.30
 
-> इन्द्रियैर्विषयाकृष्टैराक्षिप्तं ध्यायतां मनः ।
+> इन्द्रियैर्विषयाकृष्टैराक्षिप्तं ध्यायतां मनः ।\
 > चेतनां हरते बुद्धेः स्तम्बस्तोयमिव ह्रदात् ॥३०॥
 
-> indriyair viṣayākṛṣṭair
-> ākṣiptaṁ dhyāyatāṁ manaḥ
-> cetanāṁ harate buddheḥ
+> indriyair viṣayākṛṣṭair\
+> ākṣiptaṁ dhyāyatāṁ manaḥ\
+> cetanāṁ harate buddheḥ\
 > stambas toyam iva hradāt
 
 *indriyaiḥ*—by the senses; *viṣaya*—the sense objects; *ākṛṣṭaiḥ*—being attracted; *ākṣiptam*—agitated; *dhyāyatām*—always thinking of; *manaḥ*—mind; *cetanām*—consciousness; *harate*—becomes lost; *buddheḥ*—of intelligence; *stambaḥ*—big straws; *toyam*—water; *iva*—like; *hradāt*—from the lake.

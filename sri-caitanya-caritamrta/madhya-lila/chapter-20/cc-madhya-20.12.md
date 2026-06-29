@@ -1,9 +1,9 @@
 ### CC Madhya 20.12
 
-> অনেক দেখিল, তার লাগ্ না পাইল ।
+> অনেক দেখিল, তার লাগ্ না পাইল ।\
 > দাড়ুকা-সহিত ডুবি কাহাঁ বহি’ গেল ॥১২॥
 
-> aneka dekhila, tāra lāg nā pāila
+> aneka dekhila, tāra lāg nā pāila\
 > dāḍukā-sahita ḍubi kāhāṅ vahi' gela
 
 *aneka*—for a long time; *dekhila*—I looked; *tāra*—of him; *lāg*—contact; *nā pāila*—could not obtain; *dāḍukā-sahita*—with the shackles; *ḍubi*—drowning; *kāhāṅ*—somewhere; *vahi' gela*—washed away.

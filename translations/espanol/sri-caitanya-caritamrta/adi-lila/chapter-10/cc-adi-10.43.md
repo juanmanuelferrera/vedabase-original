@@ -1,9 +1,9 @@
 ### CC Adi 10.43
 
-> হরিদাসঠাকুর শাখার অদ্ভুত চরিত ।
+> হরিদাসঠাকুর শাখার অদ্ভুত চরিত ।\
 > তিন লক্ষ নাম তেঁহো লয়েন অপতিত ॥৪৩॥
 
-> haridāsa-ṭhākura śākhāra adbhuta carita
+> haridāsa-ṭhākura śākhāra adbhuta carita\
 > tina lakṣa nāma teṅho layena apatita
 
 *haridāsa-ṭhākura*—de nombre Haridāsa Ṭhākura; *śākhāra*—de la rama; *adbhuta*—maravilloso; *carita*—carácter; *tina*—tres; *lakṣa*—cien mil; *nāma*—nombres; *teṅho*—él; *layena*—cantaba; *apatita*—sin falta.

@@ -1,9 +1,9 @@
 ### CC Antya 14.23
 
-> যাবৎ কাল দর্শন করেন গরুড়ের পাছে ।
+> যাবৎ কাল দর্শন করেন গরুড়ের পাছে ।\
 > প্রভুর আগে দর্শন করে লোক লাখে লাখে ॥২৩॥
 
-> yāvat kāla darśana karena garuḍera pāche
+> yāvat kāla darśana karena garuḍera pāche\
 > prabhura āge darśana kare loka lākhe lākhe
 
 *yāvat kāla*—as long as; *darśana*—seeing; *karena*—performs; *garuḍera pāche*—from the back of the Garuḍa column; *prabhura āge*—in front of Śrī Caitanya Mahāprabhu; *darśana kare*—see; *loka*—people; *lākhe lākhe*—in hundreds of thousands.

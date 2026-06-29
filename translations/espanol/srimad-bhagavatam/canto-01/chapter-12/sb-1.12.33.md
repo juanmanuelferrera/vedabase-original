@@ -1,11 +1,11 @@
 ### SB 1.12.33
 
-> तदभिप्रेतमालक्ष्य भ्रातरो ञ्च्युतचोदिताः ।
+> तदभिप्रेतमालक्ष्य भ्रातरो ञ्च्युतचोदिताः ।\
 > धनं प्रहीणमाजह्रुरुदीच्यां दिशि भूरिशः ॥३३॥
 
-> tad abhipretam ālakṣya
-> bhrātaro 'cyuta-coditāḥ
-> dhanaṁ prahīṇam ājahrur
+> tad abhipretam ālakṣya\
+> bhrātaro 'cyuta-coditāḥ\
+> dhanaṁ prahīṇam ājahrur\
 > udīcyāṁ diśi bhūriśaḥ
 
 *tat*—sus; *abhipretam*—deseos de la mente; *ālakṣya*—observando; *bhrātaraḥ*—sus hermanos; *acyuta*—el infalible (el Señor Śrī Kṛṣṇa); *coditāḥ*—siendo aconsejado por; *dhanam*—riquezas; *prahīṇam*—reunir; *ājahruḥ*—efectuado; *udīcyām*—norte; *diśi*—dirección; *bhūriśaḥ*—suficiente.

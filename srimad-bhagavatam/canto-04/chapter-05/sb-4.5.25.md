@@ -1,11 +1,11 @@
 ### SB 4.5.25
 
-> साधुवादस्तदा तेषां कर्म तत्तस्य पश्यताम् ।
+> साधुवादस्तदा तेषां कर्म तत्तस्य पश्यताम् ।\
 > भूतप्रेतपिशाचानां अन्येषां तद्विपर्ययः ॥२५॥
 
-> sādhu-vādas tadā teṣāṁ
-> karma tat tasya paśyatām
-> bhūta-preta-piśācānāṁ
+> sādhu-vādas tadā teṣāṁ\
+> karma tat tasya paśyatām\
+> bhūta-preta-piśācānāṁ\
 > anyeṣāṁ tad-viparyayaḥ
 
 *sādhu-vādaḥ*—joyful exclamation; *tadā*—at that time; *teṣām*—of those (followers of Lord Śiva); *karma*—action; *tat*—that; *tasya*—of him (Vīrabhadra); *paśyatām*—seeing; *bhūta-preta-piśācānām*—of the *bhūtas* (ghosts), *pretas* and *piśācas*; *anyeṣām*—of the others (in the party of Dakṣa); *tat-viparyayaḥ*—the opposite of that (an exclamation of grief).

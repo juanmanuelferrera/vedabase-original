@@ -1,9 +1,9 @@
 ### CC Adi 7.69
 
-> বেদান্ত-পঠন, ধ্যান, — সন্ন্যাসীর ধর্ম ।
+> বেদান্ত-পঠন, ধ্যান, — সন্ন্যাসীর ধর্ম ।\
 > তাহা ছাড়ি’ কর কেনে ভাবুকের কর্ম ॥৬৯॥
 
-> vedānta-paṭhana, dhyāna,--sannyāsīra dharma
+> vedānta-paṭhana, dhyāna,--sannyāsīra dharma\
 > tāhā chāḍi' kara kene bhāvukera karma
 
 *vedānta-paṭhana*—estudiar la filosofía del Vedānta; *dhyāna*—meditación; *sannyāsīra*—de un *sannyāsī*; *dharma*—deberes; *tāhā chāḍi'*—abandonándolos; *kara*—haces; *kene*—por qué; *bhāvukera*—de los fanáticos; *karma*—actividades.

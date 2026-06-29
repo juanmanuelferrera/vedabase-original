@@ -1,11 +1,11 @@
 ### Bg 6.7
 
-> जितात्मनः प्रशान्तस्य परमात्मा समाहितः ।
+> जितात्मनः प्रशान्तस्य परमात्मा समाहितः ।\
 > शीतोष्णसुखदुःखेषु तथा मानापमानयोः ॥७॥
 
-> jitātmanaḥ praśāntasya
-> paramātmā samāhitaḥ
-> śītoṣṇa-sukha-duḥkheṣu
+> jitātmanaḥ praśāntasya\
+> paramātmā samāhitaḥ\
+> śītoṣṇa-sukha-duḥkheṣu\
 > tathā mānāpamānayoḥ
 
 *jita-ātmanaḥ*—de aquel que ha conquistado la mente; *praśāntasya*—de aquel que ha conseguido la tranquilidad mediante dicho control de la mente; *paramātmā*—la Superalma; *samāhitaḥ*—completamente alcanzado; *śīta*—frío; *uṣṇa*—calor; *sukha*—en la felicidad; *duḥkheṣu*—en la aflicción; *tathā*—además; *māna*—honra; *apamānayoḥ*—en la deshonra.

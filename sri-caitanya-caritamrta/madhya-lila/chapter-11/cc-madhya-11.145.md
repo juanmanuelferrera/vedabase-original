@@ -1,9 +1,9 @@
 ### CC Madhya 11.145
 
-> শ্রীবাস কহেন, — কেনে কহ বিপরীত ।
+> শ্রীবাস কহেন, — কেনে কহ বিপরীত ।\
 > কৃপা-মূল্যে চারি ভাই হই তোমার ক্রীত ॥১৪৫॥
 
-> śrīvāsa kahena,-kene kaha viparīta
+> śrīvāsa kahena,-kene kaha viparīta\
 > kṛpā-mūlye cāri bhāi ha-i tomāra krīta
 
 *śrīvāsa kahena*—Śrīvāsa Ṭhākura replied; *kene*—why; *kaha viparīta*—do You speak just the opposite; *kṛpā-mūlye*—by the price of Your mercy; *cāri bhāi*—we four brothers; *ha-i*—become; *tomāra*—of You; *krīta*—purchased.

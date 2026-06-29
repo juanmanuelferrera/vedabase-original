@@ -1,11 +1,11 @@
 ### SB 4.12.24
 
-> तस्याखिलजगद्धातुरावां देवस्य शार्ङ्गिणः ।
+> तस्याखिलजगद्धातुरावां देवस्य शार्ङ्गिणः ।\
 > पार्षदाविह सम्प्राप्तौ नेतुं त्वां भगवत्पदम् ॥२४॥
 
-> tasyākhila-jagad-dhātur
-> āvāṁ devasya śārṅgiṇaḥ
-> pārṣadāv iha samprāptau
+> tasyākhila-jagad-dhātur\
+> āvāṁ devasya śārṅgiṇaḥ\
+> pārṣadāv iha samprāptau\
 > netuṁ tvāṁ bhagavat-padam
 
 *tasya*—His; *akhila*—entire; *jagat*—universe; *dhātuḥ*—creator; *āvām*—we; *devasya*—of the Supreme Personality of Godhead; *śārṅgiṇaḥ*—who has the bow named Śārṅga; *pārṣadau*—associates; *iha*—now; *samprāptau*—approached; *netum*—to take; *tvām*—you; *bhagavat-padam*—to the position of the Supreme Personality of Godhead.

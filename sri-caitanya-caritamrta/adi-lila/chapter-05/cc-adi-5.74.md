@@ -1,9 +1,9 @@
 ### CC Adi 5.74
 
-> তাঁর এক স্বরূপ — শ্রীমহাসঙ্কর্ষণ ।
+> তাঁর এক স্বরূপ — শ্রীমহাসঙ্কর্ষণ ।\
 > তাঁর অংশ ‘পুরুষ’ হয় কলাতে গণন ॥৭৪॥
 
-> tāṅra eka svarūpa—śrī-mahā-saṅkarṣaṇa
+> tāṅra eka svarūpa—śrī-mahā-saṅkarṣaṇa\
 > tāṅra aṁśa 'puruṣa' haya kalāte gaṇana
 
 *tāṅra*—His; *eka*—one; *svarūpa*—manifestation; *śrī-mahā-saṅkarṣaṇa*—the great Lord Mahā-saṅkarṣaṇa; *tāṅra*—His; *aṁśa*—part; *puruṣa*—the Mahā-Viṣṇu incarnation; *haya*—is; *kalāte gaṇana*—counted as a *kalā.*

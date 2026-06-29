@@ -1,9 +1,9 @@
 ### CC Antya 11.64
 
-> হরিদাসে সমুদ্র-জলে স্নান করাইলা ।
+> হরিদাসে সমুদ্র-জলে স্নান করাইলা ।\
 > প্রভু কহে, — “সমুদ্র এই ‘মহাতীর্থ’ হইলা” ॥৬৪॥
 
-> haridāse samudra-jale snāna karāilā
+> haridāse samudra-jale snāna karāilā\
 > prabhu kahe,—"samudra ei 'mahā-tīrtha' ha-ilā"
 
 *haridāse*—the body of Haridāsa; *samudra-jale*—in the water of the sea; *snāna karāilā*—bathed; *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *samudra*—sea; *ei*—this; *mahā-tīrtha ha-ilā*—has become a great place of pilgrimage.

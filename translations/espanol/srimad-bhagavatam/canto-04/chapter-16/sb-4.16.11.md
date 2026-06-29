@@ -1,11 +1,11 @@
 ### SB 4.16.11
 
-> दुरासदो दुर्विषह आसन्नोऽपि विदूरवत् ।
+> दुरासदो दुर्विषह आसन्नोऽपि विदूरवत् ।\
 > नैवाभिभवितुं शक्यो वेनारण्युत्थितोऽनलः ॥११॥
 
-> durāsado durviṣaha
-> āsanno 'pi vidūravat
-> naivābhibhavituṁ śakyo
+> durāsado durviṣaha\
+> āsanno 'pi vidūravat\
+> naivābhibhavituṁ śakyo\
 > venāraṇy-utthito 'nalaḥ
 
 *durāsadaḥ*—inaccesible; *durviṣahaḥ*—insoportable; *āsannaḥ*—habiéndose acercado; *api*—aunque; *vidūra-vat*—como si estuviesen muy lejos; *na*—nunca; *eva*—ciertamente; *abhibhavitum*—ser vencido; *śakyaḥ*—capaz; *vena*—el rey Vena; *araṇi*—la madera que produce fuego; *utthitaḥ*—habiendo nacido; *analaḥ*—fuego.

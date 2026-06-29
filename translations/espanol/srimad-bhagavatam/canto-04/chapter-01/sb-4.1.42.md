@@ -1,11 +1,11 @@
 ### SB 4.1.42
 
-> चित्तिस्त्वथर्वणः पत्नी लेभे पुत्रं धृतव्रतम् ।
+> चित्तिस्त्वथर्वणः पत्नी लेभे पुत्रं धृतव्रतम् ।\
 > दध्यञ्चमश्वशिरसं भृगोर्वंशं निबोध मे ॥४२॥
 
-> cittis tv atharvaṇaḥ patnī
-> lebhe putraṁ dhṛta-vratam
-> dadhyañcam aśvaśirasaṁ
+> cittis tv atharvaṇaḥ patnī\
+> lebhe putraṁ dhṛta-vratam\
+> dadhyañcam aśvaśirasaṁ\
 > bhṛgor vaṁśaṁ nibodha me
 
 *cittiḥ*—Citti; *tu*—también; *atharvaṇaḥ*—de Atharvā; *patnī*—esposa; *lebhe*—tuvo; *putram*—hijo; *dhṛta-vratam*—completamente dedicado a un voto; *dadhyañcam*—*dadhyañca*; *aśvaśirasam*—Aśvaśirā; *bhṛgoḥ vaṁśam*—generaciones de Bhṛgu; *nibodha*—trata de entender; *me*—de mí.

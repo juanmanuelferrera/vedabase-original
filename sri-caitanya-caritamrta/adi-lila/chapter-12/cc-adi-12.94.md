@@ -1,9 +1,9 @@
 ### CC Adi 12.94
 
-> গৌরলীলামৃতসিন্ধু — অপার অগাধ ।
+> গৌরলীলামৃতসিন্ধু — অপার অগাধ ।\
 > কে করিতে পারে তাহাঁ অবগাহ-সাধ ॥৯৪॥
 
-> gaura-līlāmṛta-sindhu—apāra agādha
+> gaura-līlāmṛta-sindhu—apāra agādha\
 > ke karite pāre tāhāṅ avagāha-sādha
 
 *gaura-līlāmṛta-sindhu*—the ocean of the pastimes of Lord Caitanya; *apāra*—immeasurable; *agādha*—unfathomable; *ke*—who; *karite*—to do; *pāre*—is able; *tāhāṅ*—in that ocean; *avagāha*—taking a dip; *sādha*—execution.

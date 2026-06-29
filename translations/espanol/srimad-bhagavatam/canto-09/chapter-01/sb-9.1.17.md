@@ -1,11 +1,11 @@
 ### SB 9.1.17
 
-> भगवन्किमिदं जातं कर्म वो ब्रह्मवादिनाम
+> भगवन्किमिदं जातं कर्म वो ब्रह्मवादिनाम\
 > विपर्ययमहो कष्टं मैवं स्याद्ब्रह्मविक्रिया ॥१७॥
 
-> bhagavan kim idaṁ jātaṁ
-> karma vo brahma-vādinām
-> viparyayam aho kaṣṭaṁ
+> bhagavan kim idaṁ jātaṁ\
+> karma vo brahma-vādinām\
+> viparyayam aho kaṣṭaṁ\
 > maivaṁ syād brahma-vikriyā
 
 *bhagavan*—¡oh, mi señor!; *kim idam*—qué es esto; *jātam*—nacida; *karma*—actividades fruitivas; *vaḥ*—de todos ustedes; *brahma-vādinām*—de ustedes, que son expertos en el canto de los *mantras* védicos; *viparyayam*—desviación; *aho*—¡ay!; *kaṣṭam*—dolorosa; *mā evam syāt*—no debería haber sido así; *brahma-vikriyā*—este efecto contrario de los *mantras* védicos.

@@ -1,13 +1,13 @@
 ### CC Adi 2.5
 
-> যদদ্বৈতং ব্রহ্মোপনিষদি তদপ্যস্য তনুভা
-> য আত্মান্তর্যামী পুরুষ ইতি সোঽস্যাংশবিভবঃ ।
-> ষড়ৈশ্বর্যৈঃ পূর্ণো য ইহ ভগবান্ স স্বয়ময়ং
+> যদদ্বৈতং ব্রহ্মোপনিষদি তদপ্যস্য তনুভা\
+> য আত্মান্তর্যামী পুরুষ ইতি সোঽস্যাংশবিভবঃ ।\
+> ষড়ৈশ্বর্যৈঃ পূর্ণো য ইহ ভগবান্ স স্বয়ময়ং\
 > ন চৈতন্যাৎ কৃষ্ণাজ্জগতি পরতত্ত্বং পরমিহ ॥৫॥
 
-> yad advaitaṁ brahmopaniṣadi tad apy asya tanu-bhā
-> ya ātmāntar-yāmī puruṣa iti so 'syāṁśa-vibhavaḥ
-> ṣaḍ-aiśvaryaiḥ pūrṇo ya iha bhagavān sa svayam ayaṁ
+> yad advaitaṁ brahmopaniṣadi tad apy asya tanu-bhā\
+> ya ātmāntar-yāmī puruṣa iti so 'syāṁśa-vibhavaḥ\
+> ṣaḍ-aiśvaryaiḥ pūrṇo ya iha bhagavān sa svayam ayaṁ\
 > na caitanyāt krṣṇāj jagati para-tattvaṁ param iha
 
 *yat*—that which; *advaitam*—without a second; *brahma*—the impersonal Brahman; *upaniṣadi*—in the *Upaniṣads*; *tat*—that; *api*—certainly; *asya*—His; *tanu-bhā*—the effulgence of His transcendental body; *yaḥ*—who; *ātmā*—the Supersoul; *antaḥ-yāmī*—indwelling Lord; *puruṣaḥ*—the supreme enjoyer; *iti*—thus; *saḥ*—He; *asya*—His; *aṁśa-vibhavaḥ*—expansion of a plenary portion; *ṣaṭ-aiśvaryaiḥ*—with the six opulences; *pūrṇaḥ*—full; *yaḥ*—who; *iha*—here; *bhagavān*—the Supreme Personality of Godhead; *saḥ*—He; *svayam*—Himself; *ayam*—this one; *na*—not; *caitanyāt*—than Lord Caitanya; *kṛṣṇāt*—than Lord Kṛṣṇa; *jagati*—in the world; *para*—higher; *tattvam*—truth; *param*—another; *iha*—here.

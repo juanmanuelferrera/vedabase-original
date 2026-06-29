@@ -1,9 +1,9 @@
 ### CC Antya 12.104
 
-> গোবিন্দের ঠাঞি তৈল ধরিয়া রাখিলা ।
+> গোবিন্দের ঠাঞি তৈল ধরিয়া রাখিলা ।\
 > “প্রভু-অঙ্গে দিহ’ তৈল” গোবিন্দে কহিলা ॥১০৪॥
 
-> govindera ṭhāñi taila dhariyā rākhilā
+> govindera ṭhāñi taila dhariyā rākhilā\
 > "prabhu-aṅge diha' taila" govinde kahilā
 
 *govindera ṭhāñi*—in the care of Govinda; *taila*—the oil; *dhariyā rākhilā*—was kept; *prabhu-aṅge*—over the body of Śrī Caitanya Mahāprabhu; *diha'*—put; *taila*—oil; *govinde kahilā*—he advised Govinda.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.53
 
-> অপবিত্র অন্ন এক থালিতে ভরিয়া ।
+> অপবিত্র অন্ন এক থালিতে ভরিয়া ।\
 > প্রভু-আগে নিল ‘মহাপ্রসাদ’ বলিয়া ॥৫৩॥
 
-> apavitra anna eka thālite bhariyā
+> apavitra anna eka thālite bhariyā\
 > prabhu-āge nila 'mahā-prasāda' baliyā
 
 *apavitra*—polluted; *anna*—food; *eka*—one; *thālite*—plate; *bhariyā*—filling; *prabhu-āge*—in front of Lord Śrī Caitanya Mahāprabhu; *nila*—brought; *mahā-prasāda baliyā*—calling it *mahā-prasāda.*

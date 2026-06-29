@@ -1,13 +1,13 @@
 ### SB 1.5.8
 
-> श्रीनारद उवाच
-> भवतानुदितप्रायं यशो भगवतोऽमलम् ।
+> श्रीनारद उवाच\
+> भवतानुदितप्रायं यशो भगवतोऽमलम् ।\
 > येनैवासौ न तुष्येत मन्ये तद्दर्शनं खिलम् ॥८॥
 
-> śrī-nārada uvāca
-> bhavatānudita-prāyaṁ
-> yaśo bhagavato 'malam
-> yenaivāsau na tuṣyeta
+> śrī-nārada uvāca\
+> bhavatānudita-prāyaṁ\
+> yaśo bhagavato 'malam\
+> yenaivāsau na tuṣyeta\
 > manye tad darśanaṁ khilam
 
 *śrī-nāradaḥ*—Śrī Nārada; *uvāca*—dijo; *bhavatā*—por ti; *anudita-prāyam*—apenas elogiado; *yaśaḥ*—glorias; *bhagavataḥ*—de la Personalidad de Dios; *amalam*—inmaculado; *yena*—mediante el cual; *eva*—indudablemente; *asau*—Él (la Personalidad de Dios); *na*—no; *tuṣyeta*—estar complacido; *manye*—yo creo; *tat*—esa; *darśanam*—filosofía; *khilam*—inferior.

@@ -1,11 +1,11 @@
 ### SB 3.3.20
 
-> स्निग्धस्मितावलोकेन वाचा पीयूषकल्पया ।
+> स्निग्धस्मितावलोकेन वाचा पीयूषकल्पया ।\
 > चरित्रेणानवद्येन श्रीनिकेतेन चात्मना ॥२०॥
 
-> snigdha-smitāvalokena
-> vācā pīyūṣa-kalpayā
-> caritreṇānavadyena
+> snigdha-smitāvalokena\
+> vācā pīyūṣa-kalpayā\
+> caritreṇānavadyena\
 > śrī-niketena cātmanā
 
 *snigdha*—gentle; *smita-avalokena*—by a glance with a sweet smile; *vācā*—by words; *pīyūṣa-kalpayā*—compared to nectar; *caritreṇa*—by character; *anavadyena*—without flaw; *śrī*—fortune; *niketena*—residence; *ca*—and; *ātmanā*—by His transcendental body.

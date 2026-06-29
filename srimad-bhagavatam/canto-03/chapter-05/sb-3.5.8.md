@@ -1,11 +1,11 @@
 ### SB 3.5.8
 
-> यैस्तत्त्वभेदैरधिलोकनाथो लोकानलोकान्सह लोकपालान् ।
+> यैस्तत्त्वभेदैरधिलोकनाथो लोकानलोकान्सह लोकपालान् ।\
 > अचीकॢपद्यत्र हि सर्वसत्त्व निकायभेदोऽधिकृतः प्रतीतः ॥८॥
 
-> yais tattva-bhedair adhiloka-nātho
-> lokān alokān saha lokapālān
-> acīkḷpad yatra hi sarva-sattva-
+> yais tattva-bhedair adhiloka-nātho\
+> lokān alokān saha lokapālān\
+> acīkḷpad yatra hi sarva-sattva-\
 > nikāya-bhedo 'dhikṛtaḥ pratītaḥ
 
 *yaiḥ*—by whom; *tattva*—truth; *bhedaiḥ*—by differentiation; *adhiloka-nāthaḥ*—the King of the kings; *lokān*—planets; *alokān*—planets of the lower region; *saha*—along with; *loka-pālān*—respective kings; *acīkḷpat*—planned; *yatra*—wherein; *hi*—certainly; *sarva*—all; *sattva*—existence; *nikāya*—living entities; *bhedaḥ*—difference; *adhikṛtaḥ*—occupied; *pratītaḥ*—it so appears.

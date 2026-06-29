@@ -1,11 +1,11 @@
 ### SB 8.3.25
 
-> जिजीविषे नाहमिहामुया किमन्तर्बहिश्चावृतयेभयोन्या
+> जिजीविषे नाहमिहामुया किमन्तर्बहिश्चावृतयेभयोन्या\
 > इच्छामि कालेन न यस्य विप्लवस्तस्यात्मलोकावरणस्य मोक्षम ॥२५॥
 
-> jijīviṣe nāham ihāmuyā kim
-> antar bahiś cāvṛtayebha-yonyā
-> icchāmi kālena na yasya viplavas
+> jijīviṣe nāham ihāmuyā kim\
+> antar bahiś cāvṛtayebha-yonyā\
+> icchāmi kālena na yasya viplavas\
 > tasyātma-lokāvaraṇasya mokṣam
 
 *jijīviṣe*—wish to live long; *na*—not; *aham*—I; *iha*—in this life; *amuyā*—or in the next life (I do not wish to live upon being saved from this dangerous position); *kim*—what is the value; *antaḥ*—internally; *bahiḥ*—externally; *ca*—and; *āvṛtayā*—covered by ignorance; *ibha-yonyā*—in this birth as an elephant; *icchāmi*—I desire; *kālena*—because of the influence of time; *na*—there is not; *yasya*—of which; *viplavaḥ*—annihilation; *tasya*—that; *ātma-loka-āvaraṇasya*—from the covering of self-realization; *mokṣam*—liberation.

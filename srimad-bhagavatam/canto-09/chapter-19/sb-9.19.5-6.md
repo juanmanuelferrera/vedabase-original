@@ -1,21 +1,21 @@
 ### SB 9.19.5-6
 
-> सोत्तीर्य कूपात्सुश्रोणी तमेव चकमे किल
-> तया वृतं समुद्वीक्ष्य बह्व्योऽजाः कान्तकामिनीः ॥५॥
-> पीवानं श्मश्रुलं प्रेष्ठं मीढ्वांसं याभकोविदम
-> स एकोऽजवृषस्तासां बह्वीनां रतिवर्धनः
+> सोत्तीर्य कूपात्सुश्रोणी तमेव चकमे किल\
+> तया वृतं समुद्वीक्ष्य बह्व्योऽजाः कान्तकामिनीः ॥५॥\
+> पीवानं श्मश्रुलं प्रेष्ठं मीढ्वांसं याभकोविदम\
+> स एकोऽजवृषस्तासां बह्वीनां रतिवर्धनः\
 > रेमे कामग्रहग्रस्त आत्मानं नावबुध्यत ॥६॥
 
-> sottīrya kūpāt suśroṇī
-> tam eva cakame kila
-> tayā vṛtaṁ samudvīkṣya
+> sottīrya kūpāt suśroṇī\
+> tam eva cakame kila\
+> tayā vṛtaṁ samudvīkṣya\
 > bahvyo 'jāḥ kānta-kāminīḥ
 
-> pīvānaṁ śmaśrulaṁ preṣṭhaṁ
-> mīḍhvāṁsaṁ yābha-kovidam
-> sa eko 'javṛṣas tāsāṁ
-> bahvīnāṁ rati-vardhanaḥ
-> reme kāma-graha-grasta
+> pīvānaṁ śmaśrulaṁ preṣṭhaṁ\
+> mīḍhvāṁsaṁ yābha-kovidam\
+> sa eko 'javṛṣas tāsāṁ\
+> bahvīnāṁ rati-vardhanaḥ\
+> reme kāma-graha-grasta\
 > ātmānaṁ nāvabudhyata
 
 *sā*—the she-goat; *uttīrya*—getting out; *kūpāt*—from the well; *su-śroṇī*—possessing very nice hips; *tam*—unto the he-goat; *eva*—indeed; *cakame*—desired to get as her husband; *kila*—indeed; *tayā*—by her; *vṛtam*—accepted; *samudvīkṣya*—seeing; *bahvyaḥ*—many others; *ajāḥ*—she-goats; *kānta-kāminīḥ*—desiring to get the he-goat as their husband; *pīvānam*—very stout and strong; *śmaśrulam*—having a very nice mustache and beard; *preṣṭham*—first-class; *mīḍhvāṁsam*—expert in discharging semen; *yābha-kovidam*—expert in the art of sexual intercourse; *saḥ*—that he-goat; *ekaḥ*—alone; *aja-vṛṣaḥ*—the hero of the goats; *tāsām*—of all the she-goats; *bahvīnām*—a great number; *rati-vardhanaḥ*—could increase the lusty desire; *reme*—he enjoyed; *kāma-graha-grastaḥ*—being haunted by the ghost of lusty desire; *ātmānam*—his own self; *na*—not; *avabudhyata*—could understand.

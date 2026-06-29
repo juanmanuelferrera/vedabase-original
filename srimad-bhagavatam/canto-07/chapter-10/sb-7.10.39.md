@@ -1,11 +1,11 @@
 ### SB 7.10.39
 
-> एनः पूर्वकृतं यत्तद्राजानः कृष्णवैरिणः
+> एनः पूर्वकृतं यत्तद्राजानः कृष्णवैरिणः\
 > जहुस्तेऽन्ते तदात्मानः कीटः पेशस्कृतो यथा ॥३९॥
 
-> enaḥ pūrva-kṛtaṁ yat tad
-> rājānaḥ kṛṣṇa-vairiṇaḥ
-> jahus te 'nte tad-ātmānaḥ
+> enaḥ pūrva-kṛtaṁ yat tad\
+> rājānaḥ kṛṣṇa-vairiṇaḥ\
+> jahus te 'nte tad-ātmānaḥ\
 > kīṭaḥ peśaskṛto yathā
 
 *enaḥ*—this sinful activity (of blaspheming the Supreme Lord); *pūrva-kṛtam*—executed in previous births; *yat*—which; *tat*—that; *rājānaḥ*—kings; *kṛṣṇa-vairiṇaḥ*—always acting as enemies of Kṛṣṇa; *jahuḥ*—gave up; *te*—all of them; *ante*—at the time of death; *tat-ātmānaḥ*—attaining the same spiritual body and form; *kīṭaḥ*—a worm; *peśaskṛtaḥ*—(captured by) a black drone; *yathā*—just like.

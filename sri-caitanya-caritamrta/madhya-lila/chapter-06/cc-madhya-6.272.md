@@ -1,9 +1,9 @@
 ### CC Madhya 6.272
 
-> মুক্তি পদে যাঁর, সেই ‘মুক্তিপদ’ হয় ।
+> মুক্তি পদে যাঁর, সেই ‘মুক্তিপদ’ হয় ।\
 > কিম্বা নবম পদার্থ ‘মুক্তির’ সমাশ্রয় ॥২৭২॥
 
-> mukti pade yāṅra, sei 'mukti-pada' haya
+> mukti pade yāṅra, sei 'mukti-pada' haya\
 > kimvā navama padārtha 'muktira' samāśraya
 
 *mukti*—liberation; *pade*—at the lotus feet; *yāṅra*—of whom; *sei*—such a person; *mukti-pada haya*—is known as *mukti-pada*; *kimvā*—or; *navama*—ninth; *pada-artha*—subject matter; *muktira*—of liberation; *samāśraya*—shelter.

@@ -1,9 +1,9 @@
 ### CC Antya 11.19
 
-> সংখ্যা-কীর্তন পূরে নাহি, কেমতে খাইব ?
+> সংখ্যা-কীর্তন পূরে নাহি, কেমতে খাইব ?\
 > মহাপ্রসাদ আনিয়াছ, কেমতে উপেক্ষিব ?” ॥ ১৯ ॥
 
-> saṅkhyā-kīrtana pūre nāhi, ke-mate khāiba?
+> saṅkhyā-kīrtana pūre nāhi, ke-mate khāiba?\
 > mahā-prasāda āniyācha, ke-mate upekṣiba?
 
 *saṅkhyā-kīrtana*—the fixed amount of chanting; *pūre nāhi*—is not complete; *ke-mate khāiba*—how shall I eat; *mahā-prasāda āniyācha*—you have brought the *mahā-prasāda*; *ke-mate upekṣiba*—how shall I neglect.

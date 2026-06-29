@@ -1,9 +1,9 @@
 ### CC Antya 6.310
 
-> সাড়ে সাত প্রহর যায় কীর্তন-স্মরণে ।
+> সাড়ে সাত প্রহর যায় কীর্তন-স্মরণে ।\
 > আহার-নিদ্রা চারি দণ্ড সেহ নহে কোন দিনে ॥৩১০॥
 
-> sāḍe sāta prahara yāya kīrtana-smaraṇe
+> sāḍe sāta prahara yāya kīrtana-smaraṇe\
 > āhāra-nidrā cāri daṇḍa seha nahe kona dine
 
 *sāḍe sāta prahara*—7,5 praharas (un prahara equivale a tres horas); *yāya*—se dedicaba; *kīrtana-smaraṇe*—a cantar el Hare Kṛṣṇa mahā-mantra y recordar los pies de loto de Kṛṣṇa; *āhāra-nidrā*—comer y dormir; *cāri daṇḍa*—cuatro daṇḍas (un daṇḍa equivale a veinticuatro minutos); *seha*—eso; *nahe*—no; *kona dine*—algunos días.

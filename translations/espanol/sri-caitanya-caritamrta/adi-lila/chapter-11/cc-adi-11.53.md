@@ -1,9 +1,9 @@
 ### CC Adi 11.53
 
-> নর্তক গোপাল, রামভদ্র, গৌরাঙ্গদাস ।
+> নর্তক গোপাল, রামভদ্র, গৌরাঙ্গদাস ।\
 > নৃসিংহচৈতন্য, মীনকেতন রামদাস ॥৫৩॥
 
-> nartaka gopāla, rāmabhadra, gaurāṅga-dāsa
+> nartaka gopāla, rāmabhadra, gaurāṅga-dāsa\
 > nṛsiṁha-caitanya, mīnaketana rāmadāsa
 
 *nartaka gopāla*—el danzante Gopāla; *rāmabhadra*—de nombre Rāmabhadra; *gaurāṅga-dāsa*—de nombre Gaurāṅga dāsa; *nṛsiṁha-caitanya*—de nombre Nṛsiṁha-caitanya; *mīnaketana rāma-dāsa*—de nombre Mīnaketana Rāmadāsa.

@@ -1,9 +1,9 @@
 ### CC Antya 3.68
 
-> হরিদাস কহে, — “প্রভু, সে কৃপা তোমার ।
+> হরিদাস কহে, — “প্রভু, সে কৃপা তোমার ।\
 > স্থাবর-জঙ্গম আগে করিয়াছ নিস্তার ॥৬৮॥
 
-> haridāsa kahe,—"prabhu, se kṛpā tomāra
+> haridāsa kahe,—"prabhu, se kṛpā tomāra\
 > sthāvara-jaṅgama āge kariyācha nistāra
 
 *haridāsa kahe*—Haridāsa replied; *prabhu*—my dear Lord; *se*—that; *kṛpā*—mercy; *tomāra*—Your; *sthāvara-jaṅgama*—nonmoving and moving living entities; *āge*—previously; *kariyācha nistāra*—You have delivered.

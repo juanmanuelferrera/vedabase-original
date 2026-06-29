@@ -1,9 +1,9 @@
 ### CC Madhya 7.65
 
-> পাণ্ডিত্য আর ভক্তিরস, — দুঁহের তেঁহো সীমা ।
+> পাণ্ডিত্য আর ভক্তিরস, — দুঁহের তেঁহো সীমা ।\
 > সম্ভাষিলে জানিবে তুমি তাঁহার মহিমা ॥৬৫॥
 
-> pāṇḍitya āra bhakti-rasa,—duṅhera teṅho sīmā
+> pāṇḍitya āra bhakti-rasa,—duṅhera teṅho sīmā\
 > sambhāṣile jānibe tumi tāṅhāra mahimā
 
 *pāṇḍitya*—learning; *āra*—and; *bhakti-rasa*—the mellows of devotional service; *duṅhera*—of these two; *teṅho*—he; *sīmā*—the limit; *sambhāṣile*—when You talk with him; *jānibe*—will know; *tumi*—You; *tāṅhāra*—his; *mahimā*—glories.

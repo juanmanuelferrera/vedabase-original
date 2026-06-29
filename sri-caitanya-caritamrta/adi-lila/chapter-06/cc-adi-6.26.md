@@ -1,9 +1,9 @@
 ### CC Adi 6.26
 
-> মহাবিষ্ণুর অংশ — অদ্বৈত গুণধাম ।
+> মহাবিষ্ণুর অংশ — অদ্বৈত গুণধাম ।\
 > ঈশ্বরে অভেদ, তেঞি ‘অদ্বৈত’ পূর্ণ নাম ॥২৬॥
 
-> mahā-viṣṇura aṁśa—advaita guṇa-dhāma
+> mahā-viṣṇura aṁśa—advaita guṇa-dhāma\
 > īśvare abheda, teñi 'advaita' pūrṇa nāma
 
 *mahā-viṣṇura*—of Lord Mahā-Viṣṇu; *aṁśa*—part; *advaita*—Advaita Ācārya; *guṇa-dhāma*—reservoir of all attributes; *īśvare*—from the Lord; *abheda*—nondifferent; *teñi*—therefore; *advaita*—nondifferent; *pūrṇa nāma*—full name.

@@ -1,11 +1,11 @@
 ### Bg 8.26
 
-> शुक्लकृष्णे गती ह्येते जगतः शाश्वते मते ।
+> शुक्लकृष्णे गती ह्येते जगतः शाश्वते मते ।\
 > एकया यात्यनावृत्तिमन्ययावर्तते पुनः ॥२६॥
 
-> śukla-kṛṣṇe gatī hy ete
-> jagataḥ śāśvate mate
-> ekayā yāty anāvṛttim
+> śukla-kṛṣṇe gatī hy ete\
+> jagataḥ śāśvate mate\
+> ekayā yāty anāvṛttim\
 > anyayāvartate punaḥ
 
 *śukla*—luz; *kṛṣṇe*—oscuridad; *gatī*—muriendo; *hi*—ciertamente; *ete*—todas estas; *jagataḥ*—del mundo material; *śāśvate*—los Vedas; *mate*—en opinión de; *ekayā*—por una; *yāti*—va; *anārvṛttim*—no regresa; *anyayā*—por la otra; *āvartate*—regresa; *punaḥ*—de nuevo.

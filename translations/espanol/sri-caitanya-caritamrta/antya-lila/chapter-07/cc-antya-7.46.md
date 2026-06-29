@@ -1,9 +1,9 @@
 ### CC Antya 7.46
 
-> তেঁহ যাঁর পদধূলি করেন প্রার্থন  ।
+> তেঁহ যাঁর পদধূলি করেন প্রার্থন  ।\
 > স্বরূপের সঙ্গে পাইলুঁ এ সব শিক্ষণ ॥৪৬॥
 
-> teṅha yāṅra pada-dhūli karena prārthana
+> teṅha yāṅra pada-dhūli karena prārthana\
 > svarūpera saṅge pāiluṅ e saba śikṣaṇa
 
 *teṅha*—él; *yāṅra*—cuyo; *pada-dhūli*—polvo de los pies de loto; *karena prārthana*—desea; *svarūpera saṅge*—de Svarūpa Dāmodara; *pāiluṅ*—he recibido; *e saba*—todas estas; *śikṣaṇa*—instrucciones.

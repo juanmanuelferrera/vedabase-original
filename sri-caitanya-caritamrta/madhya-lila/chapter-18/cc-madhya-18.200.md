@@ -1,9 +1,9 @@
 ### CC Madhya 18.200
 
-> ‘নির্বিশেষ-গোসাঞি’ লঞা করেন ব্যাখ্যান ।
+> ‘নির্বিশেষ-গোসাঞি’ লঞা করেন ব্যাখ্যান ।\
 > ‘সাকার-গোসাঞি’ — সেব্য, কারো নাহি জ্ঞান ॥২০০॥
 
-> 'nirviśeṣa-gosāñi' lañā karena vyākhyāna
+> 'nirviśeṣa-gosāñi' lañā karena vyākhyāna\
 > 'sākāra-gosāñi'—sevya, kāro nāhi jñāna
 
 *nirviśeṣa-gosāñi*—the Supreme Personality of Godhead as impersonal; *lañā*—taking; *karena vyākhyāna*—they describe; *sa-ākāra-gosāñi*—the personal feature of the Lord; *sevya*—worshipable; *kāro nāhi jñāna*—no one has this knowledge.

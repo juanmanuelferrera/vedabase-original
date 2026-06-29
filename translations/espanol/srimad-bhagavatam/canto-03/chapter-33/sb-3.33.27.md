@@ -1,11 +1,11 @@
 ### SB 3.33.27
 
-> नित्यारूढसमाधित्वात्परावृत्तगुणभ्रमा ।
+> नित्यारूढसमाधित्वात्परावृत्तगुणभ्रमा ।\
 > न सस्मार तदात्मानं स्वप्ने दृष्टमिवोत्थितः ॥२७॥
 
-> nityārūḍha-samādhitvāt
-> parāvṛtta-guṇa-bhramā
-> na sasmāra tadātmānaṁ
+> nityārūḍha-samādhitvāt\
+> parāvṛtta-guṇa-bhramā\
+> na sasmāra tadātmānaṁ\
 > svapne dṛṣṭam ivotthitaḥ
 
 *nitya*—eterno; *ārūḍha*—situada en; *samādhitvāt*—del trance; *parāvṛtta*—liberada de; *guṇa*—de las modalidades de la naturaleza material; *bhramā*—ilusión; *na sasmāra*—ella no recordó; *tadā*—entonces; *ātmānam*—su cuerpo material; *svapne*—en un sueño; *dṛṣṭam*—visto; *iva*—tal como; *utthitaḥ*—aquel que ha surgido.

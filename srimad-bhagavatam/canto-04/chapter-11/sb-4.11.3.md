@@ -1,11 +1,11 @@
 ### SB 4.11.3
 
-> तस्यार्षास्त्रं धनुषि प्रयुञ्जतः सुवर्णपुङ्खाः कलहंसवाससः ।
+> तस्यार्षास्त्रं धनुषि प्रयुञ्जतः सुवर्णपुङ्खाः कलहंसवाससः ।\
 > विनिःसृता आविविशुर्द्विषद्बलं यथा वनं भीमरवाः शिखण्डिनः ॥३॥
 
-> tasyārṣāstraṁ dhanuṣi prayuñjataḥ
-> suvarṇa-puṅkhāḥ kalahaṁsa-vāsasaḥ
-> viniḥsṛtā āviviśur dviṣad-balaṁ
+> tasyārṣāstraṁ dhanuṣi prayuñjataḥ\
+> suvarṇa-puṅkhāḥ kalahaṁsa-vāsasaḥ\
+> viniḥsṛtā āviviśur dviṣad-balaṁ\
 > yathā vanaṁ bhīma-ravāḥ śikhaṇḍinaḥ
 
 *tasya*—while Dhruva; *ārṣa-astram*—the weapon given by Nārāyaṇa Ṛṣi; *dhanuṣi*—on his bow; *prayuñjataḥ*—fixed; *suvarṇa-puṅkhāḥ*—(arrows) with golden shafts; *kalahaṁsa-vāsasaḥ*—with feathers like the wings of a swan; *viniḥsṛtāḥ*—sprang out; *āviviśuḥ*—entered; *dviṣat-balam*—the soldiers of the enemy; *yathā*—just as; *vanam*—into a forest; *bhīma-ravāḥ*—making a tumultuous sound; *śikhaṇḍinaḥ*—peacocks.

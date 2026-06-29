@@ -1,9 +1,9 @@
 ### CC Madhya 21.69
 
-> দেখি’ চতুর্মুখ ব্রহ্মা ফাঁপর হইলা ।
+> দেখি’ চতুর্মুখ ব্রহ্মা ফাঁপর হইলা ।\
 > হস্তিগণ-মধ্যে যেন শশক রহিলা ॥৬৯॥
 
-> dekhi' caturmukha brahmā phāṅpara ha-ilā
+> dekhi' caturmukha brahmā phāṅpara ha-ilā\
 > hasti-gaṇa-madhye yena śaśaka rahilā
 
 *dekhi'*—seeing; *catuḥ-mukha brahmā*—the four-faced Lord Brahmā of this universe; *phāṅpara ha-ilā*—became bewildered; *hasti-gaṇa-madhye*—in the midst of many elephants; *yena*—like; *śaśaka*—a rabbit; *rahilā*—remained.

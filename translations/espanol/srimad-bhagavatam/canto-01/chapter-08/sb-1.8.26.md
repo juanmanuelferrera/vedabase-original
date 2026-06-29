@@ -1,11 +1,11 @@
 ### SB 1.8.26
 
-> जन्मैश्वर्यश्रुतश्रीभिरेधमानमदः पुमान् ।
+> जन्मैश्वर्यश्रुतश्रीभिरेधमानमदः पुमान् ।\
 > नैवार्हत्यभिधातुं वै त्वामकिञ्चनगोचरम् ॥२६॥
 
-> janmaiśvarya-śruta-śrībhir
-> edhamāna-madaḥ pumān
-> naivārhaty abhidhātuṁ vai
+> janmaiśvarya-śruta-śrībhir\
+> edhamāna-madaḥ pumān\
+> naivārhaty abhidhātuṁ vai\
 > tvām akiñcana-gocaram
 
 *janma*—nacimiento; *aiśvarya*—opulencia; *śruta*—educación; *śrībhiḥ*—por la posesión de belleza; *edhamāna*—aumentando progresivamente; *madaḥ*—embriaguez; *pumān*—el ser humano; *na*—nunca; *eva*—jamás; *arhati*—merece; *abhidhātum*—dirigirse con sentimiento; *vai*—indudablemente; *tvām*—Tú; *akiñcana-gocaram*—aquel a quien el hombre exhausto de lo material puede acercársele fácilmente.

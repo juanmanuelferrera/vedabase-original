@@ -1,11 +1,11 @@
 ### SB 2.6.24
 
-> तेषु यज्ञस्य पशवः सवनस्पतयः कुशाः ।
+> तेषु यज्ञस्य पशवः सवनस्पतयः कुशाः ।\
 > इदं च देवयजनं कालश्चोरुगुणान्वितः ॥२४॥
 
-> teṣu yajñasya paśavaḥ
-> savanaspatayaḥ kuśāḥ
-> idaṁ ca deva-yajanaṁ
+> teṣu yajñasya paśavaḥ\
+> savanaspatayaḥ kuśāḥ\
+> idaṁ ca deva-yajanaṁ\
 > kālaś coru-guṇānvitaḥ
 
 *teṣu*—en esos sacrificios; *yajñasya*—de la ejecución del sacrificio; *paśavaḥ*—los animales o los ingredientes del sacrificio; *sa-vanaspatayaḥ*—juntamente con flores y hojas; *kuśaḥ*—paja; *idam*—todos estos; *ca*—así como también; *deva-yajanam*—el altar del sacrificio; *kālaḥ*—un momento adecuado; *ca*—así como también; *uru*—grande; *guṇa-anvitaḥ*—capacitado.

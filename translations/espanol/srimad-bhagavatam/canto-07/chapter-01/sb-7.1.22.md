@@ -1,13 +1,13 @@
 ### SB 7.1.22
 
-> श्रीनारद उवाच
-> निन्दनस्तवसत्कार न्यक्कारार्थं कलेवरम
+> श्रीनारद उवाच\
+> निन्दनस्तवसत्कार न्यक्कारार्थं कलेवरम\
 > प्रधानपरयो राजन्नविवेकेन कल्पितम ॥२२॥
 
-> śrī-bādarāyaṇir uvāca
-> rājñas tad vaca ākarṇya
-> nārado bhagavān ṛṣiḥ
-> tuṣṭaḥ prāha tam ābhāṣya
+> śrī-bādarāyaṇir uvāca\
+> rājñas tad vaca ākarṇya\
+> nārado bhagavān ṛṣiḥ\
+> tuṣṭaḥ prāha tam ābhāṣya\
 > śṛṇvatyās tat-sadaḥ kathāḥ
 
 *śṛī-bādarāyaṇīḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *rājñaḥ*—del rey (Yudhiṣṭhira); *tat*—aquella; *vacaḥ*—palabras; *ākarṇya*—al escuchar; *nāradaḥ*—Nārada Muni; *bhagavān*—poderoso; *ṛṣiḥ*—sabio; *tuṣṭaḥ*—sintiéndose satisfecho; *prāha*—habló; *tam*—a él; *ābhāṣya*—tras dirigirse; *śṛṇvatyāḥ tat-sadaḥ*—en presencia de los miembros de la asamblea; *kathāḥ*—los temas.

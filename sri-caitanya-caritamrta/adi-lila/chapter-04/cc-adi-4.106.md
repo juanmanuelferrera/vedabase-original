@@ -1,9 +1,9 @@
 ### CC Adi 4.106
 
-> রাধিকার ভাব-মূর্তি প্রভুর অন্তর ।
+> রাধিকার ভাব-মূর্তি প্রভুর অন্তর ।\
 > সেই ভাবে সুখ-দুঃখ উঠে নিরন্তর ॥১০৬॥
 
-> rādhikāra bhāva-mūrti prabhura antara
+> rādhikāra bhāva-mūrti prabhura antara\
 > sei bhāve sukha-duḥkha uṭhe nirantara
 
 *rādhikāra*—of Śrīmatī Rādhārāṇī; *bhāva-mūrti*—the form of the emotions; *prabhura*—of Lord Caitanya Mahāprabhu; *antara*—the heart; *sei*—that; *bhāve*—in the condition; *sukha-duḥkha*—happiness and distress; *uṭhe*—arise; *nirantara*—constantly.

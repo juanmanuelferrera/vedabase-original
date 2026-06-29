@@ -1,9 +1,9 @@
 ### CC Madhya 20.30
 
-> তোমা মারি’ মোহর লইতাম আজিকার রাত্র্যে  ।
+> তোমা মারি’ মোহর লইতাম আজিকার রাত্র্যে  ।\
 > ভাল হৈল, কহিলা তুমি, ছুটিলাঙ পাপ হৈতে ॥৩০॥
 
-> tomā māri' mohara la-itāma ājikāra rātrye
+> tomā māri' mohara la-itāma ājikāra rātrye\
 > bhāla haila, kahilā tumi, chuṭilāṅa pāpa haite
 
 *tomā māri'*—killing you; *mohara*—golden coins; *la-itāma*—I would have taken; *ājikāra rātrye*—on this night; *bhāla haila*—it was very good; *kahilā tumi*—you have spoken; *chuṭilāṅa*—I am relieved; *pāpa haite*—from such a sin.

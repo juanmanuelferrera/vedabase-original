@@ -1,9 +1,9 @@
 ### CC Madhya 9.317
 
-> নাসিকে ত্র্যম্বক দেখি’ গেলা ব্রহ্মগিরি ।
+> নাসিকে ত্র্যম্বক দেখি’ গেলা ব্রহ্মগিরি ।\
 > কুশাবর্তে আইলা যাহাঁ জন্মিলা গোদাবরী ॥৩১৭॥
 
-> nāsike tryambaka dekhi' gelā brahmagiri
+> nāsike tryambaka dekhi' gelā brahmagiri\
 > kuśāvarte āilā yāhāṅ janmilā godāvarī
 
 *nāsike*—at the holy place Nāsika; *tryambaka*—a deity of Lord Śiva; *dekhi'*—after seeing; *gelā*—went; *brahmagiri*—to the place known as Brahmagiri; *kuśāvarte āilā*—then He came to the holy place known as Kuśāvarta; *yāhāṅ*—where; *janmilā*—took birth; *godāvarī*—the river Godāvarī.

@@ -1,11 +1,11 @@
 ### SB 4.8.52
 
-> एवं भगवतो रूपं सुभद्रं ध्यायतो मनः ।
+> एवं भगवतो रूपं सुभद्रं ध्यायतो मनः ।\
 > निर्वृत्या परया तूर्णं सम्पन्नं न निवर्तते ॥५२॥
 
-> evaṁ bhagavato rūpaṁ
-> subhadraṁ dhyāyato manaḥ
-> nirvṛtyā parayā tūrṇaṁ
+> evaṁ bhagavato rūpaṁ\
+> subhadraṁ dhyāyato manaḥ\
+> nirvṛtyā parayā tūrṇaṁ\
 > sampannaṁ na nivartate
 
 *evam*—de esta manera; *bhagavataḥ*—de la Suprema Personalidad de Dios; *rūpam*—forma; *su-bhadram*—muy auspiciosa; *dhyāyataḥ*—meditando; *manaḥ*—la mente; *nirvṛtyā*—liberada de toda contaminación material; *parayā*—trascendental; *tūrṇam*—muy pronto; *sampannam*—enriquecido; *na*—nunca; *nivartate*—desciende.

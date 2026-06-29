@@ -1,10 +1,10 @@
 ### SB 7.1.11
 
-> कालं चरन्तं सृजतीश आश्रयं प्रधानपुम्भ्यां नरदेव सत्यकृत
-> य एष राजन्नपि काल ईशिता सत्त्वं सुरानीकमिवैधयत्यतः
+> कालं चरन्तं सृजतीश आश्रयं प्रधानपुम्भ्यां नरदेव सत्यकृत\
+> य एष राजन्नपि काल ईशिता सत्त्वं सुरानीकमिवैधयत्यतः\
 > तत्प्रत्यनीकानसुरान्सुरप्रियो रजस्तमस्कान्प्रमिणोत्युरुश्रवाः ॥११॥
 
-> kālaṁ carantaṁ sṛjatīśa āśrayaṁ
+> kālaṁ carantaṁ sṛjatīśa āśrayaṁ\
 > pradhāna-pumbhyāṁ nara-deva satya-kṛt
 
 *kālam*—time; *carantam*—moving; *sṛjati*—creates; *īśaḥ*—the Supreme Personality of Godhead; *āśrayam*—shelter; *pradhāna*—for the material energy; *pumbhyām*—and the living entity; *nara-deva*—O ruler of men; *satya*—true; *kṛt*—creator.

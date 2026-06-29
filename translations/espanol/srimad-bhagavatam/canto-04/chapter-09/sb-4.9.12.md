@@ -1,13 +1,13 @@
 ### SB 4.9.12
 
-> ते न स्मरन्त्यतितरां प्रियमीश मर्त्यं
-> ये चान्वदः सुतसुहृद्गृहवित्तदाराः ।
-> ये त्वब्जनाभ भवदीयपदारविन्द
+> ते न स्मरन्त्यतितरां प्रियमीश मर्त्यं\
+> ये चान्वदः सुतसुहृद्गृहवित्तदाराः ।\
+> ये त्वब्जनाभ भवदीयपदारविन्द\
 > सौगन्ध्यलुब्धहृदयेषु कृतप्रसङ्गाः ॥१२॥
 
-> te na smaranty atitarāṁ priyam īśa martyaṁ
-> ye cānv adaḥ suta-suhṛd-gṛha-vitta-dārāḥ
-> ye tv abja-nābha bhavadīya-padāravinda-
+> te na smaranty atitarāṁ priyam īśa martyaṁ\
+> ye cānv adaḥ suta-suhṛd-gṛha-vitta-dārāḥ\
+> ye tv abja-nābha bhavadīya-padāravinda-\
 > saugandhya-lubdha-hṛdayeṣu kṛta-prasaṅgāḥ
 
 *te*—ellos; *na*—nunca; *smaranti*—recuerdan; *atitarām*—muy; *priyam*—queridos; *īśa*—¡oh, Señor!; *martyam*—cuerpo material; *ye*—los que; *ca*—también; *anu*—en relación con; *adaḥ*—eso; *suta*—hijos; *suhṛt*—amigos; *gṛha*—hogar; *vitta*—riqueza; *dārāḥ*—y esposa; *ye*—aquellos que; *tu*—entonces; *abja-nābha*—¡oh, Señor que tienes un ombligo de loto!; *bhavadīya*—de Tus; *pada-aravinda*—pies de loto; *saugandhya*—la fragancia; *lubdha*—han obtenido; *hṛdayeṣu*—con devotos cuyos corazones; *kṛta-prasaṅgāḥ*—tienen relación.

@@ -1,9 +1,9 @@
 ### CC Antya 20.128
 
-> ষোড়শে — কালিদাসে প্রভু কৃপা করিলা ।
+> ষোড়শে — কালিদাসে প্রভু কৃপা করিলা ।\
 > বৈষ্ণবোচ্ছিষ্ট খাইবার ফল দেখাইলা ॥১২৮॥
 
-> ṣoḍaśe—kālidāse prabhu kṛpā karilā
+> ṣoḍaśe—kālidāse prabhu kṛpā karilā\
 > vaiṣṇavocchiṣṭa khāibāra phala dekhāilā
 
 *ṣoḍaśe*—in the Sixteenth Chapter; *kāli-dāse*—unto Kālidāsa; *prabhu*—Śrī Caitanya Mahāprabhu; *kṛpā karilā*—showed favor; *vaiṣṇava-ucchiṣṭa khāibāra*—of eating the remnants of food left by Vaiṣṇavas; *phala dekhāilā*—showed the result.

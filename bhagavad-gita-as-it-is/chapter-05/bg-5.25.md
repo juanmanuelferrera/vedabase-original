@@ -1,11 +1,11 @@
 ### Bg 5.25
 
-> लभन्ते ब्रह्मनिर्वाणमृषयः क्षीणकल्मषाः ।
+> लभन्ते ब्रह्मनिर्वाणमृषयः क्षीणकल्मषाः ।\
 > छिन्नद्वैधा यतात्मानः सर्वभूतहिते रताः ॥२५॥
 
-> labhante brahma-nirvāṇam
-> ṛṣayaḥ kṣīṇa-kalmaṣāḥ
-> chinna-dvaidhā yatātmānaḥ
+> labhante brahma-nirvāṇam\
+> ṛṣayaḥ kṣīṇa-kalmaṣāḥ\
+> chinna-dvaidhā yatātmānaḥ\
 > sarva-bhūta-hite ratāḥ
 
 *labhante*—achieve; *brahma-nirvāṇam*—liberation in the Supreme; *ṛṣayaḥ*—those who are active within; *kṣīṇa-kalmaṣāḥ*—who are devoid of all sins; *chinna*—torn off; *dvaidhāḥ*—duality; *yata-ātmānaḥ*—engaged in self-realization; *sarva-bhūta*—in all living entities; *hite*—in welfare work; *ratāḥ*—engaged.

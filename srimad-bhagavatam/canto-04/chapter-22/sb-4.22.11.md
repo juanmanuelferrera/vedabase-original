@@ -1,11 +1,11 @@
 ### SB 4.22.11
 
-> व्यालालयद्रुमा वै तेष्वरिक्ताखिलसम्पदः ।
+> व्यालालयद्रुमा वै तेष्वरिक्ताखिलसम्पदः ।\
 > यद्गृहास्तीर्थपादीय पादतीर्थविवर्जिताः ॥११॥
 
-> vyālālaya-drumā vai teṣv
-> ariktākhila-sampadaḥ
-> yad-gṛhās tīrtha-pādīya-
+> vyālālaya-drumā vai teṣv\
+> ariktākhila-sampadaḥ\
+> yad-gṛhās tīrtha-pādīya-\
 > pādatīrtha-vivarjitāḥ
 
 *vyāla*—venomous serpents; *ālaya*—home; *drumāḥ*—tree; *vai*—certainly; *teṣu*—in those houses; *arikta*—abundantly; *akhila*—all; *sampadaḥ*—opulences; *yat*—that; *gṛhāḥ*—houses; *tīrtha-pādīya*—in relation with the feet of great saintly persons; *pāda-tīrtha*—the water which washed their feet; *vivarjitāḥ*—without.

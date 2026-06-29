@@ -1,11 +1,11 @@
 ### SB 9.6.26
 
-> भार्याशतेन निर्विण्ण ऋषयोऽस्य कृपालवः
+> भार्याशतेन निर्विण्ण ऋषयोऽस्य कृपालवः\
 > इष्टिं स्म वर्तयां चक्रुरैन्द्रीं ते सुसमाहिताः ॥२६॥
 
-> bhāryā-śatena nirviṇṇa
-> ṛṣayo 'sya kṛpālavaḥ
-> iṣṭiṁ sma vartayāṁ cakrur
+> bhāryā-śatena nirviṇṇa\
+> ṛṣayo 'sya kṛpālavaḥ\
+> iṣṭiṁ sma vartayāṁ cakrur\
 > aindrīṁ te susamāhitāḥ
 
 *bhāryā-śatena*—with one hundred wives; *nirviṇṇaḥ*—very morose; *ṛṣayaḥ*—the sages (in the forest); *asya*—upon him; *kṛpālavaḥ*—very merciful; *iṣṭim*—a ritualistic ceremony; *sma*—in the past; *vartayām cakruḥ*—began to execute; *aindrīm*—known as an Indra-yajña; *te*—all of them; *su-samāhitāḥ*—being very careful and attentive.

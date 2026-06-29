@@ -1,9 +1,9 @@
 ### CC Madhya 5.114
 
-> দুঁহার সত্যে তুষ্ট হইলাঙ, দুঁহে মাগ’ বর ।”
+> দুঁহার সত্যে তুষ্ট হইলাঙ, দুঁহে মাগ’ বর ।”\
 > দুইবিপ্র বর মাগে আনন্দ-অন্তর ॥১১৪॥
 
-> duṅhāra satye tuṣṭa ha-ilāṅ, duṅhe māga' vara"
+> duṅhāra satye tuṣṭa ha-ilāṅ, duṅhe māga' vara"\
 > dui-vipra vara māge ānanda-antara
 
 *duṅhāra satye*—in the truthfulness of both of you; *tuṣṭa ha-ilāṅ*—I have be come satisfied; *duṅhe*—both of you; *māga'*—ask; *vara*—some benediction; *dui-vipra*—both the *brāhmaṇas*; *vara*—a benediction; *māge*—beg; *ānanda*—pleased; *antara*—within.

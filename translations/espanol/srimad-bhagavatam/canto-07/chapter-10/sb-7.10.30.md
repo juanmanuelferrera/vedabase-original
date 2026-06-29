@@ -1,13 +1,13 @@
 ### SB 7.10.30
 
-> श्रीभगवानुवाच
-> मैवं विभोऽसुराणां ते प्रदेयः पद्मसम्भव
+> श्रीभगवानुवाच\
+> मैवं विभोऽसुराणां ते प्रदेयः पद्मसम्भव\
 > वरः क्रूरनिसर्गाणामहीनाममृतं यथा ॥३०॥
 
-> śrī-bhagavān uvāca
-> maivaṁ vibho 'surāṇāṁ te
-> pradeyaḥ padma-sambhava
-> varaḥ krūra-nisargāṇām
+> śrī-bhagavān uvāca\
+> maivaṁ vibho 'surāṇāṁ te\
+> pradeyaḥ padma-sambhava\
+> varaḥ krūra-nisargāṇām\
 > ahīnām amṛtaṁ yathā
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios contestó (a Brahmā); *mā*—no; *evam*—así; *vibho*—¡oh, gran personalidad!; *asurāṇām*—a los demonios; *te*—por ti; *pradeyaḥ*—conceder bendiciones; *padma-sambhava*—¡oh, Señor Brahmā, nacido de la flor de loto!; *varaḥ*—bendición; *krūra-nisargāṇām*—a personas que son muy crueles y envidiosas por naturaleza; *ahīnām*—a serpientes; *amṛtam*—néctar o leche; *yathā*—tal como.

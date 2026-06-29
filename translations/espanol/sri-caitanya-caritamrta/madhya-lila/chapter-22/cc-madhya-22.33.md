@@ -1,9 +1,9 @@
 ### CC Madhya 22.33
 
-> ‘কৃষ্ণ, তোমার হঙ’ যদি বলে একবার ।
+> ‘কৃষ্ণ, তোমার হঙ’ যদি বলে একবার ।\
 > মায়াবন্ধ হৈতে কৃষ্ণ তারে করে পার ॥৩৩॥
 
-> 'kṛṣṇa, tomāra haṅa' yadi bale eka-bāra
+> 'kṛṣṇa, tomāra haṅa' yadi bale eka-bāra\
 > māyā-bandha haite kṛṣṇa tāre kare pāra
 
 *kṛṣṇa*—¡oh, mi Señor Kṛṣṇa!; *tomāra haṅa*—soy Tuyo; *yadi*—si; *bale*—alguien dice; *eka-bāra*—una vez; *māyā-bandha haite*—de la esclavitud de la vida condicionada; *kṛṣṇa*—el Señor Kṛṣṇa; *tāre*—a él; *kare pāra*—libera.

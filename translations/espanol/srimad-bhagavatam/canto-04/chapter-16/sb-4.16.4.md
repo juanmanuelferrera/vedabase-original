@@ -1,11 +1,11 @@
 ### SB 4.16.4
 
-> एष धर्मभृतां श्रेष्ठो लोकं धर्मेऽनुवर्तयन् ।
+> एष धर्मभृतां श्रेष्ठो लोकं धर्मेऽनुवर्तयन् ।\
 > गोप्ता च धर्मसेतूनां शास्ता तत्परिपन्थिनाम् ॥४॥
 
-> eṣa dharma-bhṛtāṁ śreṣṭho
-> lokaṁ dharme 'nuvartayan
-> goptā ca dharma-setūnāṁ
+> eṣa dharma-bhṛtāṁ śreṣṭho\
+> lokaṁ dharme 'nuvartayan\
+> goptā ca dharma-setūnāṁ\
 > śāstā tat-paripanthinām
 
 *eṣaḥ*—este rey Pṛthu; *dharma-bhṛtām*—de las personas que observan prácticas religiosas; *śreṣṭhaḥ*—el mejor; *lokam*—al mundo entero; *dharme*—en actividades religiosas; *anuvartayan*—ocupándoles convenientemente; *goptā*—el protector; *ca*—también; *dharma-setūnām*—de los principios de la religión; *śāstā*—el castigador; *tat-paripanthinām*—de los que están en contra de los principios religiosos.

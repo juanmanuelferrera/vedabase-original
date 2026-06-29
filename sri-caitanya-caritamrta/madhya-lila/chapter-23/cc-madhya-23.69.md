@@ -1,9 +1,9 @@
 ### CC Madhya 23.69
 
-> অনন্ত কৃষ্ণের গুণ, চৌষট্টি — প্রধান ।
+> অনন্ত কৃষ্ণের গুণ, চৌষট্টি — প্রধান ।\
 > এক এক গুণ শুনি’ জুড়ায় ভক্ত-কাণ ॥৬৯॥
 
-> ananta kṛṣṇera guṇa, cauṣaṭṭi—pradhāna
+> ananta kṛṣṇera guṇa, cauṣaṭṭi—pradhāna\
 > eka eka guṇa śuni' juḍāya bhakta-kāṇa
 
 *ananta*—unlimited; *kṛṣṇera*—of Lord Kṛṣṇa; *guṇa*—qualities; *cauṣaṭṭi*—sixty-four; *pradhāna*—chief ones; *eka eka*—one by one; *guṇa*—qualities; *śuni'*—hearing; *juḍāya*—satisfies; *bhakta-kāṇa*—the ears of the devotees.

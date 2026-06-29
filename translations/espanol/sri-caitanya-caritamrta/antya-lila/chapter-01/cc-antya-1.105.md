@@ -1,9 +1,9 @@
 ### CC Antya 1.105
 
-> দুই শ্লোক কহি’ প্রভুর হৈল মহাসুখ ।
+> দুই শ্লোক কহি’ প্রভুর হৈল মহাসুখ ।\
 > নিজ-ভক্তের গুণ কহে হঞা পঞ্চমুখ ॥১০৫॥
 
-> dui śloka kahi' prabhura haila mahā-sukha
+> dui śloka kahi' prabhura haila mahā-sukha\
 > nija-bhaktera guna kahe hañā pañca-mukha
 
 *dui śloka kahi'*—recitando dos versos; *prabhura*—de Śrī Caitanya Mahāprabhu; *haila*—hubo; *mahā-sukha*—gran placer; *nija-bhaktera*—de Su propio devoto; *guṇa*—las cualidades; *kahe*—describe; *hañā*—como si se volviera; *pañca-mukha*—con cinco bocas.

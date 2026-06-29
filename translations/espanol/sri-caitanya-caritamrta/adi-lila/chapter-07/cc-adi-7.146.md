@@ -1,9 +1,9 @@
 ### CC Adi 7.146
 
-> সম্বন্ধ, অভিধেয়, প্রয়োজন নাম ।
+> সম্বন্ধ, অভিধেয়, প্রয়োজন নাম ।\
 > এই তিন অর্থ সর্বসূত্রে পর্যবসান ॥১৪৬॥
 
-> sambandha, abhidheya, prayojana nāma
+> sambandha, abhidheya, prayojana nāma\
 > ei tina artha sarva-sūtre paryavasāna
 
 *sambandha*—relación; *abhidheya*—deberes funcionales; *prayojana*—la meta de la vida; *nāma*—nombre; *ei*—ahí; *tina*—tres; *artha*—significado; *sarva*—todos; *sūtre*—en los aforismos del Vedānta; *paryavasāna*—culminación.

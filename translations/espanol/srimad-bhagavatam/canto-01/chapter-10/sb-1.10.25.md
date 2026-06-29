@@ -1,11 +1,11 @@
 ### SB 1.10.25
 
-> यदा ह्यधर्मेण तमोधियो नृपा जीवन्ति तत्रैष हि सत्त्वतः किल ।
+> यदा ह्यधर्मेण तमोधियो नृपा जीवन्ति तत्रैष हि सत्त्वतः किल ।\
 > धत्ते भगं सत्यमृतं दयां यशो भवाय रूपाणि दधद्युगे युगे ॥२५॥
 
-> yadā hy adharmeṇa tamo-dhiyo nṛpā
-> jīvanti tatraiṣa hi sattvataḥ kila
-> dhatte bhagaṁ satyam ṛtaṁ dayāṁ yaśo
+> yadā hy adharmeṇa tamo-dhiyo nṛpā\
+> jīvanti tatraiṣa hi sattvataḥ kila\
+> dhatte bhagaṁ satyam ṛtaṁ dayāṁ yaśo\
 > bhavāya rūpāṇi dadhad yuge yuge
 
 *yadā*—cuando quiera; *hi*—con certeza; *adharmeṇa*—en contra de los principios de la voluntad de Dios; *tamaḥ-dhiyaḥ*—personas que están bajo la influencia de las más bajas modalidades materiales; *nṛpāḥ*—reyes y administradores; *jīvanti*—vivan como animales; *tatra*—en consecuencia; *eṣaḥ*—Él; *hi*—solamente; *sattvataḥ*—trascendental; *kila*—indudablemente; *dhatte*—se manifiesta; *bhagam*—poder supremo; *satyam*—verdad; *ṛtam*—positiva; *dayām*—misericordia; *yaśaḥ*—actividades maravillosas; *bhavāya*—para el mantenimiento; *rūpāṇi*—de diversas formas; *dadhat*—manifestadas; *yuge*—diferentes períodos; *yuge*—y eras.

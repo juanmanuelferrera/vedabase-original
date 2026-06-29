@@ -1,13 +1,13 @@
 ### SB 3.28.33
 
-> ध्यानायनं प्रहसितं बहुलाधरोष्ठ
-> भासारुणायिततनुद्विजकुन्दपङ्क्ति ।
-> ध्यायेत्स्वदेहकुहरेऽवसितस्य विष्णोर्
+> ध्यानायनं प्रहसितं बहुलाधरोष्ठ\
+> भासारुणायिततनुद्विजकुन्दपङ्क्ति ।\
+> ध्यायेत्स्वदेहकुहरेऽवसितस्य विष्णोर्\
 > भक्त्यार्द्रयार्पितमना न पृथग्दिदृक्षेत् ॥३३॥
 
-> dhyānāyanaṁ prahasitaṁ bahulādharoṣṭha-
-> bhāsāruṇāyita-tanu-dvija-kunda-paṅkti
-> dhyāyet svadeha-kuhare 'vasitasya viṣṇor
+> dhyānāyanaṁ prahasitaṁ bahulādharoṣṭha-\
+> bhāsāruṇāyita-tanu-dvija-kunda-paṅkti\
+> dhyāyet svadeha-kuhare 'vasitasya viṣṇor\
 > bhaktyārdrayārpita-manā na pṛthag didṛkṣet
 
 *dhyāna-ayanam*—que es fácil para la meditación; *prahasitam*—la risa; *bahula*—abundante; *adhara-oṣṭha*—de Sus labios; *bhāsa*—por el esplendor; *aruṇāyita*—sonrosados; *tanu*—pequeños; *dvija*—dientes; *kunda-paṅkti*—como una hilera de capullos de jazmín; *dhyāyet*—debe meditar en; *sva-deha-kuhare*—en lo profundo de su corazón; *avasitasya*—que reside; *viṣṇoḥ*—de Viṣṇu; *bhaktyā*—con devoción; *ārdrayā*—empapada de amor; *arpita-manāḥ*—con su mente fija; *na*—no; *pṛthak*—nada más; *didṛkṣet*—debe desear ver.

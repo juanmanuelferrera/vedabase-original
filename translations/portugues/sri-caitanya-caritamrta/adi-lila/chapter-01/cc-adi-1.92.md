@@ -1,6 +1,6 @@
 ### CC Adi 1.92
 
-> tāra madhye mokṣa-vāñchā kaitava-pradhāna
+> tāra madhye mokṣa-vāñchā kaitava-pradhāna\
 > yāhā haite kṛṣṇa-bhakti haya antardhāna
 
 *tāra*—deles; *madhye*—no meio; *mokṣa-vāñchā*—o desejo de fundir-se no Supremo; *kaitava*—dos processos enganosos; *pradhāna*—o principal; *yāhā haite*—do qual; *kṛṣṇa-bhakti*—a devoção ao Senhor Kṛṣṇa; *haya*—torna-se; *antardhāna*—desaparecimento.

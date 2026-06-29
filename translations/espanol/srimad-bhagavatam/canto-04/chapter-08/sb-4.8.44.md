@@ -1,11 +1,11 @@
 ### SB 4.8.44
 
-> प्राणायामेन त्रिवृता प्राणेन्द्रियमनोमलम् ।
+> प्राणायामेन त्रिवृता प्राणेन्द्रियमनोमलम् ।\
 > शनैर्व्युदस्याभिध्यायेन्मनसा गुरुणा गुरुम् ॥४४॥
 
-> prāṇāyāmena tri-vṛtā
-> prāṇendriya-mano-malam
-> śanair vyudasyābhidhyāyen
+> prāṇāyāmena tri-vṛtā\
+> prāṇendriya-mano-malam\
+> śanair vyudasyābhidhyāyen\
 > manasā guruṇā gurum
 
 *prāṇāyāmena*—con ejercicios respiratorios; *tri-vṛtā*—con los tres métodos recomendados; *prāṇa-indriya*—el aire vital y los sentidos; *manaḥ*—mente; *malam*—impureza; *śanaiḥ*—poco a poco; *vyudasya*—abandonar; *abhidhyāyet*—meditar en; *manasā*—con la mente; *guruṇā*—sin perturbación; *gurum*—el maestro espiritual supremo, Kṛṣṇa.

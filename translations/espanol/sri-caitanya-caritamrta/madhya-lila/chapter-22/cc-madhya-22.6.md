@@ -1,13 +1,13 @@
 ### CC Madhya 22.6
 
-> শ্রুতির্মাতা-পৃষ্টা দিশতি ভবদারাধনবিধিং
-> যথা মাতুর্বাণী স্মৃতিরপি তথা বক্তি ভগিনী ।
-> পুরাণাদ্যা যে বা সহজনিবহাস্তে তদনুগা
+> শ্রুতির্মাতা-পৃষ্টা দিশতি ভবদারাধনবিধিং\
+> যথা মাতুর্বাণী স্মৃতিরপি তথা বক্তি ভগিনী ।\
+> পুরাণাদ্যা যে বা সহজনিবহাস্তে তদনুগা\
 > অতঃ সত্যং জ্ঞাতং মুরহর ভবানেব শরণম্ ॥৬॥
 
-> śrutir mātā pṛṣṭā diśati bhavad-ārādhana-vidhiṁ
-> yathā mātur vāṇī smṛtir api tathā vakti bhaginī
-> purāṇādyā ye vā sahaja-nivahās te tad-anugā
+> śrutir mātā pṛṣṭā diśati bhavad-ārādhana-vidhiṁ\
+> yathā mātur vāṇī smṛtir api tathā vakti bhaginī\
+> purāṇādyā ye vā sahaja-nivahās te tad-anugā\
 > ataḥ satyaṁ jñātaṁ murahara bhavān eva śaraṇam
 
 *śrutiḥ*—el conocimiento Védico; *mātā*—como una madre que es afectuosa con sus hijos; *pṛṣṭā*—cuando se le pregunta; *diśati*—ella dirige; *bhavat*—de Ti; *ārādhana*—adoración; *vidhim*—el proceso; *yathā*—tal como; *mātuḥ vāṇī*—las instrucciones de la madre; *smṛtiḥ*—los *smṛti-śāstras*, que explican las literaturas Védicas; *api*—también; *tathā*—de forma similar; *vakti*—expresan; *bhaginī*—como una hermana; *purāṇa-ādyāḥ*—encabezados por los *Purāṇas*; *ye*—los cuales; *vā*—o; *sahaja-nivahāḥ*—como hermanos; *te*—todos ellos; *tat*—de la madre; *anugāḥ*—seguidores; *ataḥ*—por lo tanto; *satyam*—la verdad; *jñātam*—conocida; *mura-hara*—¡oh, matador del demonio Mura!; *bhavān*—Su Señoría; *eva*—solo; *śaraṇam*—el refugio.

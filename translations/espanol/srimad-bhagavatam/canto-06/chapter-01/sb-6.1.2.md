@@ -1,11 +1,11 @@
 ### SB 6.1.2
 
-> प्रवृत्तिलक्षणश्चैव त्रैगुण्यविषयो मुने
+> प्रवृत्तिलक्षणश्चैव त्रैगुण्यविषयो मुने\
 > योऽसावलीनप्रकृतेर्गुणसर्गः पुनः पुनः ॥२॥
 
-> pravṛtti-lakṣaṇaś caiva
-> traiguṇya-viṣayo mune
-> yo 'sāv alīna-prakṛter
+> pravṛtti-lakṣaṇaś caiva\
+> traiguṇya-viṣayo mune\
+> yo 'sāv alīna-prakṛter\
 > guṇa-sargaḥ punaḥ punaḥ
 
 *pravṛtti*—por inclinación; *lakṣaṇaḥ*—caracterizado; *ca*—también; *eva*—en verdad; *trai-guṇya*—la tres modalidades de la naturaleza; *viṣayaḥ*—teniendo por objetivos; *mune*—¡oh, gran sabio!; *yaḥ*—el cual; *asau*—esa; *alīna-prakṛteḥ*—del que no está libre de las garras de *māyā*; *guṇa-sargaḥ*—en las cuales se crean cuerpos materiales; *punaḥ punaḥ*—una y otra vez.

@@ -1,11 +1,11 @@
 ### SB 1.5.27
 
-> तस्मिंस्तदा लब्धरुचेर्महामते प्रियश्रवस्यस्खलिता मतिर्मम ।
+> तस्मिंस्तदा लब्धरुचेर्महामते प्रियश्रवस्यस्खलिता मतिर्मम ।\
 > ययाहमेतत्सदसत्स्वमायया पश्ये मयि ब्रह्मणि कल्पितं परे ॥२७॥
 
-> tasmiṁs tadā labdha-rucer mahā-mate
-> priyaśravasy askhalitā matir mama
-> yayāham etat sad-asat sva-māyayā
+> tasmiṁs tadā labdha-rucer mahā-mate\
+> priyaśravasy askhalitā matir mama\
+> yayāham etat sad-asat sva-māyayā\
 > paśye mayi brahmaṇi kalpitaṁ pare
 
 *tasmin*—siendo así; *tadā*—en ese momento; *labdha*—obtuve; *ruceḥ*—gusto; *mahā-mate*—¡oh, gran sabio!; *priyaśravasi*—en el Señor; *askhalitā matiḥ*—atención ininterrumpida; *mama*—mía; *yayā*—mediante la cual; *aham*—yo; *etat*—todos esos; *sat-asat*—burdo y sutil; *sva-māyayā*—nuestra propia ignorancia; *paśye*—ve; *mayi*—en mí; *brahmaṇi*—el Supremo; *kalpitam*—es aceptado; *pare*—en la Trascendencia.

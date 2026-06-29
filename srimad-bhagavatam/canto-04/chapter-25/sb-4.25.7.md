@@ -1,13 +1,13 @@
 ### SB 4.25.7
 
-> नारद उवाच
-> भो भोः प्रजापते राजन्पशून्पश्य त्वयाध्वरे ।
+> नारद उवाच\
+> भो भोः प्रजापते राजन्पशून्पश्य त्वयाध्वरे ।\
 > संज्ञापिताञ्जीवसङ्घान्निर्घृणेन सहस्रशः ॥७॥
 
-> nārada uvāca
-> bho bhoḥ prajāpate rājan
-> paśūn paśya tvayādhvare
-> saṁjñāpitāñ jīva-saṅghān
+> nārada uvāca\
+> bho bhoḥ prajāpate rājan\
+> paśūn paśya tvayādhvare\
+> saṁjñāpitāñ jīva-saṅghān\
 > nirghṛṇena sahasraśaḥ
 
 *nāradaḥ uvāca*—the great sage Nārada replied; *bhoḥ bhoḥ*—hello; *prajā-pate*—O ruler of the citizens; *rājan*—O King; *paśūn*—animals; *paśya*—please see; *tvayā*—by you; *adhvare*—in the sacrifice; *saṁjñāpitān*—killed; *jīva-saṅghān*—groups of animals; *nirghṛṇena*—without pity; *sahasraśaḥ*—in thousands.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.7
 
-> বহুক্ষণে চৈতন্য নহে, ভোগের কাল হৈল ।
+> বহুক্ষণে চৈতন্য নহে, ভোগের কাল হৈল ।\
 > সার্বভৌম মনে তবে উপায় চিন্তিল ॥৭॥
 
-> bahu-kṣaṇe caitanya nahe, bhogera kāla haila
+> bahu-kṣaṇe caitanya nahe, bhogera kāla haila\
 > sārvabhauma mane tabe upāya cintila
 
 *bahu-kṣaṇe*—for a long time; *caitanya*—consciousness; *nahe*—there was not; *bhogera*—of offering food; *kāla*—the time; *haila*—it became; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *mane*—in the mind; *tabe*—at that time; *upāya*—remedy; *cintila*—thought.

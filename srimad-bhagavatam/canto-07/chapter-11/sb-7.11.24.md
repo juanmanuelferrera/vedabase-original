@@ -1,11 +1,11 @@
 ### SB 7.11.24
 
-> शूद्रस्य सन्नतिः शौचं सेवा स्वामिन्यमायया
+> शूद्रस्य सन्नतिः शौचं सेवा स्वामिन्यमायया\
 > अमन्त्रयज्ञओ ह्यस्तेयं सत्यं गोविप्ररक्षणम ॥२४॥
 
-> śūdrasya sannatiḥ śaucaṁ
-> sevā svāminy amāyayā
-> amantra-yajño hy asteyaṁ
+> śūdrasya sannatiḥ śaucaṁ\
+> sevā svāminy amāyayā\
+> amantra-yajño hy asteyaṁ\
 > satyaṁ go-vipra-rakṣaṇam
 
 *śūdrasya*—of the *śūdra* (the fourth grade of man in society, the worker); *sannatiḥ*—obedience to the higher classes (the *brāhmaṇas, kṣatriyas* and *vaiśyas*); *śaucam*—cleanliness; *sevā*—service; *svāmini*—to the master who maintains him; *amāyayā*—without duplicity; *amantra-yajñaḥ*—performance of sacrifices simply by offering obeisances (without *mantras*); *hi*—certainly; *asteyam*—practicing not to steal; *satyam*—truthfulness; *go*—cows; *vipra*—*brahmaṇas*; *rakṣaṇam*—protecting.

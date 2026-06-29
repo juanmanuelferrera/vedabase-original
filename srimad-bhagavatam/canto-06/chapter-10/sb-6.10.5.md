@@ -1,13 +1,13 @@
 ### SB 6.10.5
 
-> श्रीदेवा ऊचुः
-> किं नु तद्दुस्त्यजं ब्रह्मन्पुंसां भूतानुकम्पिनाम
+> श्रीदेवा ऊचुः\
+> किं नु तद्दुस्त्यजं ब्रह्मन्पुंसां भूतानुकम्पिनाम\
 > भवद्विधानां महतां पुण्यश्लोकेड्यकर्मणाम ॥५॥
 
-> śrī-devā ūcuḥ
-> kiṁ nu tad dustyajaṁ brahman
-> puṁsāṁ bhūtānukampinām
-> bhavad-vidhānāṁ mahatāṁ
+> śrī-devā ūcuḥ\
+> kiṁ nu tad dustyajaṁ brahman\
+> puṁsāṁ bhūtānukampinām\
+> bhavad-vidhānāṁ mahatāṁ\
 > puṇya-ślokeḍya-karmaṇām
 
 *śrī-devāḥ ūcuḥ*—the demigods said; *kim*—what; *nu*—indeed; *tat*—that; *dustyajam*—difficult to give up; *brahman*—O exalted *brāhmaṇa*; *puṁsām*—of persons; *bhūta-anukampinām*—who are very sympathetic toward the suffering living entities; *bhavat-vidhānām*—like Your Lordship; *mahatām*—who are very great; *puṇya-śloka-īḍya-karmaṇām*—whose pious activities are praised by all great souls.

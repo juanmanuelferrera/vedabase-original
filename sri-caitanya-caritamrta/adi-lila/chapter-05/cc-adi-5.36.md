@@ -1,11 +1,11 @@
 ### CC Adi 5.36
 
-> যদরীণাং প্রিয়াণাঞ্চ প্রাপ্যমেকমিবোদিতম্ ।
+> যদরীণাং প্রিয়াণাঞ্চ প্রাপ্যমেকমিবোদিতম্ ।\
 > তদ্ব্রহ্মকৃষ্ণয়োরৈক্যাৎ কিরণার্কোপমাজুষোঃ ॥৩৬॥
 
-> yad arīṇāṁ priyāṇāṁ ca
-> prāpyam ekam ivoditam
-> tad brahma-kṛṣṇayor aikyāt
+> yad arīṇāṁ priyāṇāṁ ca\
+> prāpyam ekam ivoditam\
+> tad brahma-kṛṣṇayor aikyāt\
 > kiraṇārkopamā-juṣoḥ
 
 *yat*—that; *arīṇām*—of the enemies of the Supreme Personality of Godhead; *priyāṇām*—of the devotees, who are very dear to the Supreme Personality of Godhead; *ca*—and; *prāpyam*—destination; *ekam*—one only; *iva*—thus; *uditam*—said; *tat*—that; *brahma*—of impersonal Brahman; *kṛṣṇayoḥ*—and of Kṛṣṇa, the Supreme Personality of Godhead; *aikyāt*—due to the oneness; *kiraṇa*—the sunshine; *arka*—and the sun; *upamā*—the comparison; *juṣoḥ*—which is understood by.

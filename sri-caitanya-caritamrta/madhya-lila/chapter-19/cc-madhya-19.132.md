@@ -1,9 +1,9 @@
 ### CC Madhya 19.132
 
-> এইকথা শুনি’ মহান্তের মহাসুখ হয় ।
+> এইকথা শুনি’ মহান্তের মহাসুখ হয় ।\
 > চৈতন্যের কৃপা যাঁহে, তাঁহে কি বিস্ময় ? ॥ ১৩২ ॥
 
-> ei-kathā śuni' mahāntera mahā-sukha haya
+> ei-kathā śuni' mahāntera mahā-sukha haya\
 > caitanyera kṛpā yāṅhe, tāṅhe ki vismaya?
 
 *ei-kathā śuni'*—hearing this news; *mahāntera*—of all the devotees; *mahā-sukha*—great pleasure; *haya*—was; *caitanyera*—of Lord Caitanya Mahāprabhu; *kṛpā*—mercy; *yāṅhe*—on whom; *tāṅhe*—in him; *ki*—what; *vismaya*—wonderful.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.214
 
-> তর্ক-শাস্ত্রে জড় আমি, যৈছে লৌহপিণ্ড ।
+> তর্ক-শাস্ত্রে জড় আমি, যৈছে লৌহপিণ্ড ।\
 > আমা দ্রবাইলে তুমি, প্রতাপ প্রচণ্ড ।।’ ॥ ২১৪ ॥
 
-> tarka-śāstre jaḍa āmi, yaiche lauha-piṇḍa
+> tarka-śāstre jaḍa āmi, yaiche lauha-piṇḍa\
 > āmā dravāile tumi, pratāpa pracaṇḍa'
 
 *tarka-śāstre*—debido a las escrituras lógicas; *jaḍa*—obtuso; *āmi*—yo; *yaiche*—tal como; *lauha-piṇḍa*—una barra de hierro; *āmā*—a mí; *dravāile*—fundiste; *tumi*—Tú; *pratāpa*—poder; *pracaṇḍa*—formidable.

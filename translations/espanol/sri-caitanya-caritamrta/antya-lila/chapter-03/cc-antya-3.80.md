@@ -1,9 +1,9 @@
 ### CC Antya 3.80
 
-> সেই জীব হবে ইহাঁ স্থাবর-জঙ্গম  ।
+> সেই জীব হবে ইহাঁ স্থাবর-জঙ্গম  ।\
 > তাহাতে ভরিবে ব্রহ্মাণ্ড যেন পূর্ব-সম ॥৮০॥
 
-> sei jīva habe ihāṅ sthāvara-jaṅgama
+> sei jīva habe ihāṅ sthāvara-jaṅgama\
 > tāhāte bharibe brahmāṇḍa yena pūrva-sama
 
 *sei jīva*—tales entidades vivientes; *habe*—serán; *ihāṅ*—en este mundo material; *sthāvara-jaṅgama*—entidades vivientes inmóviles y móviles; *tāhāte*—de ese modo; *bharibe*—llenarás; *brahmāṇḍa*—el universo entero; *yena*—como; *pūrva-sama*—igual que antes.

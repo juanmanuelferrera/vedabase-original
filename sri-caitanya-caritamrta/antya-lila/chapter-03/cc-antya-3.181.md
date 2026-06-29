@@ -1,11 +1,11 @@
 ### CC Antya 3.181
 
-> অংহঃ সংহরদখিলং সকৃদুদয়াদেব সকল-লোকস্য ।
+> অংহঃ সংহরদখিলং সকৃদুদয়াদেব সকল-লোকস্য ।\
 > তরণিরিব তিমিরজলধিং জয়তি জগন্মঙ্গলং হরের্নাম ॥১৮১॥
 
-> aṁhaḥ saṁharad akhilaṁ sakṛd
-> udayād eva sakala-lokasya
-> taraṇir iva timira-jaladhiṁ
+> aṁhaḥ saṁharad akhilaṁ sakṛd\
+> udayād eva sakala-lokasya\
+> taraṇir iva timira-jaladhiṁ\
 > jayati jagan-maṅgalaṁ harer nāma
 
 *aṁhaḥ*—the resultant action of sinful life, which causes material bondage; *saṁharat*—completely eradicating; *akhilam*—all; *sakṛt*—once only; *udayāt*—by rising; *eva*—certainly; *sakala*—all; *lokasya*—of the people of the world; *taraṇiḥ*—the sun; *iva*—like; *timira*—of darkness; *jala-dhim*—the ocean; *jayati*—all glories to; *jagat-maṅgalam*—auspicious for the whole world; *hareḥ nāma*—the holy name of the Lord. name of the Lord.

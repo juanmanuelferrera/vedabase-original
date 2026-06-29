@@ -1,11 +1,11 @@
 ### SB 9.17.7
 
-> षष्टिं वर्षसहस्राणि षष्टिं वर्षशतानि च
+> षष्टिं वर्षसहस्राणि षष्टिं वर्षशतानि च\
 > नालर्कादपरो राजन्बुभुजे मेदिनीं युवा ॥७॥
 
-> ṣaṣṭiṁ varṣa-sahasrāṇi
-> ṣaṣṭiṁ varṣa-śatāni ca
-> nālarkād aparo rājan
+> ṣaṣṭiṁ varṣa-sahasrāṇi\
+> ṣaṣṭiṁ varṣa-śatāni ca\
+> nālarkād aparo rājan\
 > bubhuje medinīṁ yuvā
 
 *ṣaṣṭim*—sesenta; *varṣa-sahasrāṇi*—esos miles de años; *ṣaṣṭim*—sesenta; *varṣa-śatāni*—cientos de años; *ca*—también; *na*—no; *alarkāt*—excepto Alarka; *aparaḥ*—nadie más; *rājan*—¡oh, rey Parīkṣit!; *bubhuje*—disfrutó; *medinīm*—de la superficie del mundo; *yuvā*—como hombre joven.

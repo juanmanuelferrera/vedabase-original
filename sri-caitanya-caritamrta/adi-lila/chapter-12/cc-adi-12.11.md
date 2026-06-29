@@ -1,9 +1,9 @@
 ### CC Adi 12.11
 
-> অসারের নামে ইহাঁ নাহি প্রয়োজন ।
+> অসারের নামে ইহাঁ নাহি প্রয়োজন ।\
 > ভেদ জানিবারে করি একত্র গণন ॥১১॥
 
-> asārera nāme ihāṅ nāhi prayojana
+> asārera nāme ihāṅ nāhi prayojana\
 > bheda jānibāre kari ekatra gaṇana
 
 *asārera*—of the useless persons; *nāme*—in their name; *ihāṅ*—in this connection; *nāhi*—there is no; *prayojana*—use; *bheda*—differences; *jānibāre*—to know; *kari*—I do; *ekatra*—in one list; *gaṇana*—counting.

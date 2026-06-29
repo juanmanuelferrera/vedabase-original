@@ -1,13 +1,13 @@
 ### Bg 2.8
 
-> न हि प्रपश्यामि ममापनुद्याद्
-> यच्छोकमुच्छोषणमिन्द्रियाणाम् ।
-> अवाप्य भूमावसपत्नमृद्धं
+> न हि प्रपश्यामि ममापनुद्याद्\
+> यच्छोकमुच्छोषणमिन्द्रियाणाम् ।\
+> अवाप्य भूमावसपत्नमृद्धं\
 > राज्यं सुराणामपि चाधिपत्यम् ॥८॥
 
-> na hi prapaśyāmi mamāpanudyād
-> yac chokam ucchoṣaṇam indriyāṇām
-> avāpya bhūmāv asapatnam ṛddhaṁ
+> na hi prapaśyāmi mamāpanudyād\
+> yac chokam ucchoṣaṇam indriyāṇām\
+> avāpya bhūmāv asapatnam ṛddhaṁ\
 > rājyaṁ surāṇām api cādhipatyam
 
 *na*—no; *hi*—ciertamente; *prapaśyāmi*—veo; *mama*—mi; *apanudyāt*—ellos pueden apartar; *yat*—aquello; *śokam*—lamentación; *ucchoṣaṇam*—secando; *indriyāṇām*—de los sentidos; *avāpya*—logrando; *bhūmau*—en la Tierra; *asapatnam*—sin rival; *ṛddham*—próspero; *rājyam*—reino; *surāṇām*—de los semidioses; *api*—incluso; *ca*—también; *ādhipatyam*—supremacía.

@@ -1,11 +1,11 @@
 ### SB 7.14.14
 
-> सिद्धैर्यज्ञआवशिष्टार्थैः कल्पयेद्वृत्तिमात्मनः
+> सिद्धैर्यज्ञआवशिष्टार्थैः कल्पयेद्वृत्तिमात्मनः\
 > शेषे स्वत्वं त्यजन्प्राज्ञअः पदवीं महतामियात ॥१४॥
 
-> siddhair yajñāvaśiṣṭārthaiḥ
-> kalpayed vṛttim ātmanaḥ
-> śeṣe svatvaṁ tyajan prājñaḥ
+> siddhair yajñāvaśiṣṭārthaiḥ\
+> kalpayed vṛttim ātmanaḥ\
+> śeṣe svatvaṁ tyajan prājñaḥ\
 > padavīṁ mahatām iyāt
 
 *siddhaiḥ*—things obtained by the grace of the Lord; *yajñā-avaśiṣṭa-arthaiḥ*—things obtained after a sacrifice is offered to the Lord or after the recommended *pañca-sūnā yajña* is performed; *kalpayet*—one should consider; *vṛttim*—the means of livelihood; *ātmanaḥ*—for the self; *śeṣe*—at the end; *svatvam*—so-called proprietorship over one's wife, children, home, business and so on; *tyajan*—giving up; *prājñaḥ*—those who are wise; *padavīm*—the position; *mahatām*—of the great personalities who are fully satisfied in spiritual consciousness; *iyāt*—should achieve.

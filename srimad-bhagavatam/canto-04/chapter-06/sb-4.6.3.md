@@ -1,11 +1,11 @@
 ### SB 4.6.3
 
-> उपलभ्य पुरैवैतद्भगवानब्जसम्भवः ।
+> उपलभ्य पुरैवैतद्भगवानब्जसम्भवः ।\
 > नारायणश्च विश्वात्मा न कस्याध्वरमीयतुः ॥३॥
 
-> upalabhya puraivaitad
-> bhagavān abja-sambhavaḥ
-> nārāyaṇaś ca viśvātmā
+> upalabhya puraivaitad\
+> bhagavān abja-sambhavaḥ\
+> nārāyaṇaś ca viśvātmā\
 > na kasyādhvaram īyatuḥ
 
 *upalabhya*—knowing; *purā*—beforehand; *eva*—certainly; *etat*—all these events of Dakṣa's sacrifice; *bhagavān*—the possessor of all opulences; *abja-sambhavaḥ*—born from a lotus flower (Lord Brahmā); *nārāyaṇaḥ*—Nārāyaṇa; *ca*—and; *viśva-ātmā*—the Supersoul of the entire universe; *na*—not; *kasya*—of Dakṣa; *adhvaram*—to the sacrifice; *īyatuḥ*—did go.

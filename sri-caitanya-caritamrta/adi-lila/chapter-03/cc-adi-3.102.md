@@ -1,9 +1,9 @@
 ### CC Adi 3.102
 
-> আনিয়া কৃষ্ণেরে করোঁ কীর্তন সঞ্চার ।
+> আনিয়া কৃষ্ণেরে করোঁ কীর্তন সঞ্চার ।\
 > তবে সে ‘অদ্বৈত’ নাম সফল আমার ॥১০২॥
 
-> āniyā kṛṣṇere karoṅ kīrtana sañcāra
+> āniyā kṛṣṇere karoṅ kīrtana sañcāra\
 > tabe se 'advaita' nāma saphala āmāra
 
 *āniyā*—bringing; *kṛṣṇere*—Lord Kṛṣṇa; *karoṅ*—I make; *kīrtana*—chanting of the holy name; *sañcāra*—advent; *tabe*—then; *se*—this; *advaita*—nondual; *nāma*—name; *sa-phala*—fulfilled; *āmāra*—My.

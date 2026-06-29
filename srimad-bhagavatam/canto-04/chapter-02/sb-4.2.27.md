@@ -1,11 +1,11 @@
 ### SB 4.2.27
 
-> तस्यैवं वदतः शापं श्रुत्वा द्विजकुलाय वै ।
+> तस्यैवं वदतः शापं श्रुत्वा द्विजकुलाय वै ।\
 > भृगुः प्रत्यसृजच्छापं ब्रह्मदण्डं दुरत्ययम् ॥२७॥
 
-> tasyaivaṁ vadataḥ śāpaṁ
-> śrutvā dvija-kulāya vai
-> bhṛguḥ pratyasṛjac chāpaṁ
+> tasyaivaṁ vadataḥ śāpaṁ\
+> śrutvā dvija-kulāya vai\
+> bhṛguḥ pratyasṛjac chāpaṁ\
 > brahma-daṇḍaṁ duratyayam
 
 *tasya*—his (Nandīśvara's); *evam*—thus; *vadataḥ*—words; *śāpam*—the curse; *śrutvā*—hearing; *dvija-kulāya*—unto the *brāhmaṇas*; *vai*—indeed; *bhṛguḥ*—Bhṛgu; *pratyasṛjat*—made; *śāpam*—a curse; *brahma-daṇḍam*—the punishment of a *brāhmaṇa*; *duratyayam*—insurmountable.

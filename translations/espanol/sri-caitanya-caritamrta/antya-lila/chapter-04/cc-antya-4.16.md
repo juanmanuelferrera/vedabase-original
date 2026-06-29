@@ -1,9 +1,9 @@
 ### CC Antya 4.16
 
-> হেনকালে প্রভু ‘উপলভোগ’ দেখিয়া ।
+> হেনকালে প্রভু ‘উপলভোগ’ দেখিয়া ।\
 > হরিদাসে মিলিতে আইলা ভক্তগণ লঞা ॥১৬॥
 
-> hena-kāle prabhu 'upala-bhoga' dekhiyā
+> hena-kāle prabhu 'upala-bhoga' dekhiyā\
 > haridāse milite āilā bhakta-gaṇa lañā
 
 *hena-kāle*—en ese momento; *prabhu*—Śrī Caitanya Mahāprabhu; *upala-bhoga*—la ofrenda de upala-bhoga al Señor Jagannātha; *dekhiyā*—después de ver; *haridāse*—a Haridāsa; *milite*—para encontrarse; *āilā*—vino; *bhakta-gaṇa lañā*—con otros devotos.

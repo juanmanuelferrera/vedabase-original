@@ -1,11 +1,11 @@
 ### SB 8.5.25
 
-> तत्रादृष्टस्वरूपाय श्रुतपूर्वाय वै प्रभुः
+> तत्रादृष्टस्वरूपाय श्रुतपूर्वाय वै प्रभुः\
 > स्तुतिमब्रूत दैवीभिर्गीर्भिस्त्ववहितेन्द्रियः ॥२५॥
 
-> tatrādṛṣṭa-svarūpāya
-> śruta-pūrvāya vai prabhuḥ
-> stutim abrūta daivībhir
+> tatrādṛṣṭa-svarūpāya\
+> śruta-pūrvāya vai prabhuḥ\
+> stutim abrūta daivībhir\
 > gīrbhis tv avahitendriyaḥ
 
 *tatra*—there (at the Lord's abode known as Śvetadvīpa); *adṛṣṭa-svarūpāya*—unto the Supreme Personality of Godhead, who was not seen even by Lord Brahmā; *śruta-pūrvāya*—but who was heard about from the *Vedas*; *vai*—indeed; *prabhuḥ*—Lord Brahmā; *stutim*—prayers derived from Vedic literature; *abrūta*—performed; *daivībhiḥ*—by prayers mentioned in the Vedic literature or offered by persons strictly following Vedic principles; *gīrbhiḥ*—by such sound vibrations or songs; *tu*—then; *avahita-indriyaḥ*—fixed in mind, without deviation.

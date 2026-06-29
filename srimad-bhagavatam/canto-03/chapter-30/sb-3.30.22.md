@@ -1,11 +1,11 @@
 ### SB 3.30.22
 
-> क्षुत्तृट्परीतोऽर्कदवानलानिलैः सन्तप्यमानः पथि तप्तवालुके ।
+> क्षुत्तृट्परीतोऽर्कदवानलानिलैः सन्तप्यमानः पथि तप्तवालुके ।\
 > कृच्छ्रेण पृष्ठे कशया च ताडितश्चलत्यशक्तोऽपि निराश्रमोदके ॥२२॥
 
-> kṣut-tṛṭ-parīto 'rka-davānalānilaiḥ
-> santapyamānaḥ pathi tapta-vāluke
-> kṛcchreṇa pṛṣṭhe kaśayā ca tāḍitaś
+> kṣut-tṛṭ-parīto 'rka-davānalānilaiḥ\
+> santapyamānaḥ pathi tapta-vāluke\
+> kṛcchreṇa pṛṣṭhe kaśayā ca tāḍitaś\
 > calaty aśakto 'pi nirāśramodake
 
 *kṣut-tṛṭ*—by hunger and thirst; *parītaḥ*—afflicted; *arka*—sun; *dava-anala*—forest fires; *anilaiḥ*—by winds; *santapyamānaḥ*—being scorched; *pathi*—on a road; *tapta-vāluke*—of hot sand; *kṛcchreṇa*—painfully; *pṛṣṭhe*—on the back; *kaśayā*—with a whip; *ca*—and; *tāḍitaḥ*—beaten; *calati*—he moves; *aśaktaḥ*—unable; *api*—although; *nirāśrama-udake*—without shelter or water.

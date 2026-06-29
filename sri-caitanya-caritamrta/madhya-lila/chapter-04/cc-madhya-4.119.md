@@ -1,9 +1,9 @@
 ### CC Madhya 4.119
 
-> হেনকালে সেই ভোগ ঠাকুরে লাগিল ।
+> হেনকালে সেই ভোগ ঠাকুরে লাগিল ।\
 > শুনি’ পুরী-গোসাঞি কিছু মনে বিচারিল ॥১১৯॥
 
-> hena-kāle sei bhoga ṭhākure lāgila
+> hena-kāle sei bhoga ṭhākure lāgila\
 > śuni' purī-gosāñi kichu mane vicārila
 
 *hena-kāle*—at this time; *sei bhoga*—that wonderful food; *ṭhākure*—in front of the Deity; *lāgila*—was placed; *śuni'*—hearing; *purī-gosāñi*—Mādhavendra Purī; *kichu*—something; *mane*—within the mind; *vicārila*—considered.

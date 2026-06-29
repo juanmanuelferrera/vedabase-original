@@ -1,11 +1,11 @@
 ### SB 1.18.33
 
-> अहो अधर्मः पालानां पीव्नां बलिभुजामिव ।
+> अहो अधर्मः पालानां पीव्नां बलिभुजामिव ।\
 > स्वामिन्यघं यद्दासानां द्वारपानां शुनामिव ॥३३॥
 
-> aho adharmaḥ pālānāṁ
-> pīvnāṁ bali-bhujām iva
-> svāminy aghaṁ yad dāsānāṁ
+> aho adharmaḥ pālānāṁ\
+> pīvnāṁ bali-bhujām iva\
+> svāminy aghaṁ yad dāsānāṁ\
 > dvāra-pānāṁ śunām iva
 
 *aho*—just look at; *adharmaḥ*—irreligion; *pālānām*—of the rulers; *pīvnām*—of one who is brought up; *bali-bhujām*—like the crows; *iva*—like; *svāmini*—unto the master; *agham*—sin; *yat*—what is; *dāsānām*—of the servants; *dvāra-pānām*—keeping watch at the door; *śunām*—of the dogs; *iva*—like.

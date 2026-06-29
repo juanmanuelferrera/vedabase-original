@@ -1,9 +1,9 @@
 ### CC Antya 14.15
 
-> দিব্যোন্মাদে ঐছে হয়, কি ইহা বিস্ময় ?
+> দিব্যোন্মাদে ঐছে হয়, কি ইহা বিস্ময় ?\
 > অধিরূঢ়-ভাবে দিব্যোন্মাদ-প্রলাপ হয় ॥১৫॥
 
-> divyonmāde aiche haya, ki ihā vismaya?
+> divyonmāde aiche haya, ki ihā vismaya?\
 > adhirūḍha-bhāve divyonmāda-pralāpa haya
 
 *divya-unmāde*—in transcendental madness; *aiche*—such; *haya*—is; *ki ihā vismaya*—what is the wonder; *adhirūḍha-bhāve*—in highly elevated love of Kṛṣṇa; *divya-unmāda*—in transcendental madness; *pralāpa*—talking; *haya*—there is.

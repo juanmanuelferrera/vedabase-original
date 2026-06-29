@@ -1,9 +1,9 @@
 ### CC Adi 17.272
 
-> এত বলি’ ভারতী গোসাঞি কাটোয়াতে গেলা ।
+> এত বলি’ ভারতী গোসাঞি কাটোয়াতে গেলা ।\
 > মহাপ্রভু তাহা যাই’ সন্ন্যাস করিলা ॥২৭২॥
 
-> eta bali' bhāratī gosāñi kāṭoyāte gelā
+> eta bali' bhāratī gosāñi kāṭoyāte gelā\
 > mahāprabhu tāhā yāi' sannyāsa karilā
 
 *eta bali'*—diciendo esto; *bhāratī*—Keśava Bhāratī; *gosāñi*—el maestro espiritual; *kāṭoyāte*—a Katwa; *gelā*—fue; *mahāprabhu*—el Señor Caitanya Mahāprabhu; *tāhā*—allí; *yāi'*—yendo; *sannyāsa*—la orden de vida de renuncia; *karilā*—aceptó.

@@ -1,13 +1,13 @@
 ### SB 3.15.49
 
-> कामं भवः स्ववृजिनैर्निरयेषु नः स्ताच्
-> चेतोऽलिवद्यदि नु ते पदयो रमेत ।
-> वाचश्च नस्तुलसिवद्यदि तेऽङ्घ्रिशोभाः
+> कामं भवः स्ववृजिनैर्निरयेषु नः स्ताच्\
+> चेतोऽलिवद्यदि नु ते पदयो रमेत ।\
+> वाचश्च नस्तुलसिवद्यदि तेऽङ्घ्रिशोभाः\
 > पूर्येत ते गुणगणैर्यदि कर्णरन्ध्रः ॥४९॥
 
-> kāmaṁ bhavaḥ sva-vṛjinair nirayeṣu naḥ stāc
-> ceto 'livad yadi nu te padayo rameta
-> vācaś ca nas tulasivad yadi te 'ṅghri-śobhāḥ
+> kāmaṁ bhavaḥ sva-vṛjinair nirayeṣu naḥ stāc\
+> ceto 'livad yadi nu te padayo rameta\
+> vācaś ca nas tulasivad yadi te 'ṅghri-śobhāḥ\
 > pūryeta te guṇa-gaṇair yadi karṇa-randhraḥ
 
 *kāmam*—as much as deserved; *bhavaḥ*—birth; *sva-vṛjinaiḥ*—by our own sinful activities; *nirayeṣu*—in low births; *naḥ*—our; *stāt*—let it be; *cetaḥ*—minds; *ali-vat*—like bees; *yadi*—if; *nu*—may be; *te*—Your; *padayoḥ*—at Your lotus feet; *rameta*—are engaged; *vācaḥ*—words; *ca*—and; *naḥ*—our; *tulasi-vat*—like the *tulasī* leaves; *yadi*—if; *te*—Your; *aṅghri*—at Your lotus feet; *śobhāḥ*—beautified; *pūryeta*—are filled; *te*—Your; *guṇa-gaṇaiḥ*—by transcendental qualities; *yadi*—if; *karṇa-randhraḥ*—the holes of the ears.

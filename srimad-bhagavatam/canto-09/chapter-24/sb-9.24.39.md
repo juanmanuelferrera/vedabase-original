@@ -1,11 +1,11 @@
 ### SB 9.24.39
 
-> राजाधिदेव्यामावन्त्यौ जयसेनोऽजनिष्ट ह
+> राजाधिदेव्यामावन्त्यौ जयसेनोऽजनिष्ट ह\
 > दमघोषश्चेदिराजः श्रुतश्रवसमग्रहीत ॥३९॥
 
-> rājādhidevyām āvantyau
-> jayaseno 'janiṣṭa ha
-> damaghoṣaś cedi-rājaḥ
+> rājādhidevyām āvantyau\
+> jayaseno 'janiṣṭa ha\
+> damaghoṣaś cedi-rājaḥ\
 > śrutaśravasam agrahīt
 
 *rājādhidevyām*—through Rājādhidevī, another sister of Kuntī's; *āvantyau*—the sons (named Vinda and Anuvinda); *jayasenaḥ*—King Jayasena; *ajaniṣṭa*—gave birth to; *ha*—in the past; *damaghoṣaḥ*—Damaghoṣa; *cedi-rājaḥ*—the king of the state of Cedi; *śrutaśravasam*—Śrutaśravā, another sister; *agrahīt*—married.

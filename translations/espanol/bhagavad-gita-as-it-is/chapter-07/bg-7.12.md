@@ -1,11 +1,11 @@
 ### Bg 7.12
 
-> ये चैव सात्त्विका भावा राजसास्तामसाश्च ये ।
+> ये चैव सात्त्विका भावा राजसास्तामसाश्च ये ।\
 > मत्त एवेति तान्विद्धि न त्वहं तेषु ते मयि ॥१२॥
 
-> ye caiva sāttvikā bhāvā
-> rājasās tāmasāś ca ye
-> matta eveti tān viddhi
+> ye caiva sāttvikā bhāvā\
+> rājasās tāmasāś ca ye\
+> matta eveti tān viddhi\
 > na tv ahaṁ teṣu te mayi
 
 *ye*—todos los cuales; *ca*—y; *eva*—ciertamente; *sāttvikāḥ*—en la bondad; *bhāvāḥ*—estados de existencia; *rājasāḥ*—en la modalidad de la pasión; *tāmasāḥ*—en la modalidad de la ignorancia; *ca*—también; *ye*—aunque; *mattaḥ*—de Mí; *eva*—ciertamente; *iti*—así; *tān*—ésos; *viddhi*—trata de saber; *na*—no; *tu*—pero; *aham*—Yo; *teṣu*—en ellos; *te*—ellos; *mayi*—en Mí.

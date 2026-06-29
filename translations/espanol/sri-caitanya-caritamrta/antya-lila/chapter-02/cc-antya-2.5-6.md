@@ -1,14 +1,14 @@
 ### CC Antya 2.5-6
 
-> ‘সাক্ষাৎ-দর্শনে’ প্রায় সব নিস্তারিলা ।
-> নকুল-ব্রহ্মচারীর দেহে ‘আবিষ্ট’ হইলা ॥৫॥
-> প্রদ্যুম্ন-নৃসিংহানন্দ আগে কৈলা ‘আবির্ভাব’ ।
+> ‘সাক্ষাৎ-দর্শনে’ প্রায় সব নিস্তারিলা ।\
+> নকুল-ব্রহ্মচারীর দেহে ‘আবিষ্ট’ হইলা ॥৫॥\
+> প্রদ্যুম্ন-নৃসিংহানন্দ আগে কৈলা ‘আবির্ভাব’ ।\
 > ‘লোক নিস্তারিব,’ — এই ঈশ্বর-স্বভাব ॥৬॥
 
-> 'sākṣāt-darśane' prāya saba nistārilā
+> 'sākṣāt-darśane' prāya saba nistārilā\
 > nakula-brahmacārīra dehe 'āviṣṭa' ha-ilā
 
-> pradyumna-nṛsiṁhānanda āge kailā 'āvirbhāva'
+> pradyumna-nṛsiṁhānanda āge kailā 'āvirbhāva'\
 > 'loka nistāriba',—ei īśvara-svabhāva
 
 *sākṣāt-darśane*—mediante el encuentro directo; *prāya*—casi; *saba*—todos; *nistārilā*—liberó; *nakula-brahmacārīra*—de un *brahmacārī* llamado Nakula; *dehe*—en el cuerpo; *āviṣṭa ha-ilā*—entró; *pradyumna-nṛsiṁhānanda*—Pradyumna Nṛsiṁhānanda; *āge*—frente a; *kailā*—hizo; *āvirbhāva*—aparición; *loka nistāriba*—Yo liberaré a todas las almas caídas; *ei*—ésta; *īśvara-svabhāva*—la característica de la Suprema Personalidad de Dios.

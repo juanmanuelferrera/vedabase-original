@@ -1,9 +1,9 @@
 ### CC Madhya 24.229
 
-> এক ভক্ত-ব্যাধের কথা শুন সাবধানে ।
+> এক ভক্ত-ব্যাধের কথা শুন সাবধানে ।\
 > যাহা হৈতে হয় সৎসঙ্গ-মহিমার জ্ঞানে ॥২২৯॥
 
-> eka bhakta-vyādhera kathā śuna sāvadhāne
+> eka bhakta-vyādhera kathā śuna sāvadhāne\
 > yāhā haite haya sat-saṅga-mahimāra jñāne
 
 *eka bhakta-vyādhera*—one devotee who was a hunter; *kathā*—narration; *śuna*—please hear; *sāvadhāne*—with attention; *yāhā haite*—from which; *haya*—there is; *sat-saṅga-mahimāra jñāne*—knowledge of the greatness of association with a great devotee.

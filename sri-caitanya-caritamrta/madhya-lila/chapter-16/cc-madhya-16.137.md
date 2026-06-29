@@ -1,9 +1,9 @@
 ### CC Madhya 16.137
 
-> পণ্ডিতের গৌরাঙ্গ-প্রেম বুঝন না যায় ।
+> পণ্ডিতের গৌরাঙ্গ-প্রেম বুঝন না যায় ।\
 > ‘প্রতিজ্ঞা’, ‘শ্রীকৃষ্ণ-সেবা’ ছাড়িল তৃণপ্রায় ॥১৩৭॥
 
-> paṇḍitera gaurāṅga-prema bujhana nā yāya
+> paṇḍitera gaurāṅga-prema bujhana nā yāya\
 > 'pratijñā', 'śrī-kṛṣṇa-sevā' chāḍila tṛṇa-prāya
 
 *paṇḍitera*—of Gadādhara Paṇḍita; *gaurāṅga-prema*—the love for Śrī Caitanya Mahāprabhu; *bujhana*—understanding; *nā yāya*—is not possible; *pratijñā*—a vow; *śrī-kṛṣṇa-sevā*—the service of the Lord; *chāḍila*—gave up; *tṛṇa-prāya*—almost like straw.

@@ -1,9 +1,9 @@
 ### SB 5.15.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > भरतस्यात्मजः सुमतिर्नामाभिहितो यमु ह वाव केचित्पाखण्डिन ऋषभपदवीमनुवर्तमानं चानार्या अवेदसमाम्नातां देवतां स्वमनीषया पापीयस्या कलौ कल्पयिष्यन्ति ॥१॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > bharatasyātmajaḥ sumatir nāmābhihito yam u ha vāva kecit pākhaṇḍina ṛṣabha-padavīm anuvartamānaṁ cānāryā aveda-samāmnātāṁ devatāṁ sva-manīṣayā pāpīyasyā kalau kalpayiṣyanti.
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī continuó hablando; *bharatasya*—de Bharata Mahārāja; *ātma-jaḥ*—el hijo; *sumatiḥ nāma-abhihitaḥ*—llamado Sumati; *yam*—a quien; *u ha vāva*—en verdad; *kecit*—algunos; *pākhaṇḍinaḥ*—ateos, hombres sin conocimiento védico; *ṛṣabha-padavīm*—la senda del rey Ṛṣabhadeva; *anuvartamānam*—siguiendo; *ca*—y; *anāryāḥ*—no pertenecientes a los *āryas* que siguen estrictamente los principios védicos; *aveda-samāmnātām*—no enumerados en los *Vedas*; *devatām*—ser el Señor Buddha o deidad budista equivalente; *sva-manīṣayā*—por su propia especulación mental; *pāpīyasyā*—muy pecaminosos; *kalau*—en la era de Kali; *kalpayiṣyanti*—imaginarán.

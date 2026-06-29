@@ -1,13 +1,13 @@
 ### SB 4.2.33
 
-> मैत्रेय उवाच
-> तस्यैवं वदतः शापं भृगोः स भगवान्भवः ।
+> मैत्रेय उवाच\
+> तस्यैवं वदतः शापं भृगोः स भगवान्भवः ।\
 > निश्चक्राम ततः किञ्चिद्विमना इव सानुगः ॥३३॥
 
-> maitreya uvāca
-> tasyaivaṁ vadataḥ śāpaṁ
-> bhṛgoḥ sa bhagavān bhavaḥ
-> niścakrāma tataḥ kiñcid
+> maitreya uvāca\
+> tasyaivaṁ vadataḥ śāpaṁ\
+> bhṛgoḥ sa bhagavān bhavaḥ\
+> niścakrāma tataḥ kiñcid\
 > vimanā iva sānugaḥ
 
 *maitreyaḥ uvāca*—Maitreya said; *tasya*—of him; *evam*—thus; *vadataḥ*—being spoken; *śāpam*—curse; *bhṛgoḥ*—of Bhṛgu; *saḥ*—he; *bhagavān*—the possessor of all opulences; *bhavaḥ*—Lord Śiva; *niścakrāma*—went; *tataḥ*—from there; *kiñcit*—somewhat; *vimanāḥ*—morose; *iva*—as; *sa-anugaḥ*—followed by his disciples.

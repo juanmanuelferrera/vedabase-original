@@ -1,13 +1,13 @@
 ### CC Madhya 15.110
 
-> আকৃষ্টিঃ কৃতচেতসাং সুমনসামুচ্চাটনং চাংহসা-
-> মাচণ্ডালমমূকলোকসুলভো বশ্যশ্চ মুক্তিশ্রিয়ঃ ।
-> নো দীক্ষাং ন চ সৎক্রিয়াং ন চ পুরশ্চর্যাং মনাগীক্ষতে
+> আকৃষ্টিঃ কৃতচেতসাং সুমনসামুচ্চাটনং চাংহসা-\
+> মাচণ্ডালমমূকলোকসুলভো বশ্যশ্চ মুক্তিশ্রিয়ঃ ।\
+> নো দীক্ষাং ন চ সৎক্রিয়াং ন চ পুরশ্চর্যাং মনাগীক্ষতে\
 > মন্ত্রোঽয়ং রসনাস্পৃগেব ফলতি শ্রীকৃষ্ণ-নামাত্মকঃ ॥১১০॥
 
-> ākṛṣṭiḥ kṛta-cetasāṁ sumanasām uccāṭanaṁ cāṁhasām
-> ācaṇḍālam amūka-loka-sulabho vaśyaś ca mukti-śriyaḥ
-> no dīkṣāṁ na ca sat-kriyāṁ na ca puraścaryāṁ manāg īkṣate
+> ākṛṣṭiḥ kṛta-cetasāṁ sumanasām uccāṭanaṁ cāṁhasām\
+> ācaṇḍālam amūka-loka-sulabho vaśyaś ca mukti-śriyaḥ\
+> no dīkṣāṁ na ca sat-kriyāṁ na ca puraścaryāṁ manāg īkṣate\
 > mantro 'yaṁ rasanā-spṛg eva phalati śrī-kṛṣṇa-nāmātmakaḥ
 
 *ākṛṣṭiḥ*—atracción; *kṛta-cetasām*—de las personas santas; *su-manasām*—de las más generosas; *uccāṭanam*—aniquilador; *ca*—también; *aṁhasām*—de las reacciones pecaminosas; *ā-caṇḍālam*—incluso a los caṇḍālas; *amūka*—excepto los mudos; *loka-sulabhaḥ*—muy fácil de alcanzar por todas las personas; *vaśyaḥ*—controlador pleno; *ca*—y; *mukti-śriyaḥ*—de la opulencia de la liberación; *no*—no; *dīkṣām*—iniciación; *na*—no; *ca*—también; *sat-kriyām*—actividades piadosas; *na*—no; *ca*—también; *puraścaryām*—principios regulativos previos a la iniciación; *manāk*—en lo más mínimo; *īkṣate*—depende de; *mantraḥ*—mantra; *ayam*—este; *rasanā*—lengua; *spṛk*—al tocar; *eva*—simplemente; *phalati*—da fruto; *śrī-kṛṣṇa-nāma-ātmakaḥ*—que consiste en el santo nombre del Señor Kṛṣṇa.

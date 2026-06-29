@@ -1,13 +1,13 @@
 ### SB 4.15.1
 
-> मैत्रेय उवाच
-> अथ तस्य पुनर्विप्रैरपुत्रस्य महीपतेः ।
+> मैत्रेय उवाच\
+> अथ तस्य पुनर्विप्रैरपुत्रस्य महीपतेः ।\
 > बाहुभ्यां मथ्यमानाभ्यां मिथुनं समपद्यत ॥१॥
 
-> maitreya uvāca
-> atha tasya punar viprair
-> aputrasya mahīpateḥ
-> bāhubhyāṁ mathyamānābhyāṁ
+> maitreya uvāca\
+> atha tasya punar viprair\
+> aputrasya mahīpateḥ\
+> bāhubhyāṁ mathyamānābhyāṁ\
 > mithunaṁ samapadyata
 
 *maitreyaḥ uvāca*—Maitreya continuó hablando; *atha*—así; *tasya*—su; *punaḥ*—de nuevo; *vipraiḥ*—por los *brāhmaṇas*; *aputrasya*—sin hijo; *mahīpateḥ*—del rey; *bāhubhyām*—de los brazos; *mathyamānābhyām*—al ser agitados; *mithunam*—una pareja; *samapadyata*—nació.

@@ -1,11 +1,11 @@
 ### SB 1.13.58
 
-> दह्यमानेऽग्निभिर्देहे पत्युः पत्नी सहोटजे ।
+> दह्यमानेऽग्निभिर्देहे पत्युः पत्नी सहोटजे ।\
 > बहिः स्थिता पतिं साध्वी तमग्निमनु वेक्ष्यति ॥५८॥
 
-> dahyamāne 'gnibhir dehe
-> patyuḥ patnī sahoṭaje
-> bahiḥ sthitā patiṁ sādhvī
+> dahyamāne 'gnibhir dehe\
+> patyuḥ patnī sahoṭaje\
+> bahiḥ sthitā patiṁ sādhvī\
 > tam agnim anu vekṣyati
 
 *dahyamāne*—mientras se quema; *agnibhiḥ*—mediante el fuego; *dehe*—el cuerpo; *patyuḥ*—del esposo; *patnī*—la esposa; *saha-uṭaje*—junto con la choza de paja; *bahiḥ*—afuera; *sthitā*—situada; *patim*—al esposo; *sādhvī*—la casta dama; *tam*—ese; *agnim*—fuego; *anu vekṣyati*—mirando con gran atención, entrará en el fuego.

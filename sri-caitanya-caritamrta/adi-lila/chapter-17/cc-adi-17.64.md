@@ -1,9 +1,9 @@
 ### CC Adi 17.64
 
-> প্রভুর শাপ-বার্তা যেই শুনে শ্রদ্ধাবান্ ।
+> প্রভুর শাপ-বার্তা যেই শুনে শ্রদ্ধাবান্ ।\
 > ব্রহ্মশাপ হৈতে তার হয় পরিত্রাণ ॥৬৪॥
 
-> prabhura śāpa-vārtā yei śune śraddhāvān
+> prabhura śāpa-vārtā yei śune śraddhāvān\
 > brahma-śāpa haite tāra haya paritrāṇa
 
 *prabhura*—of the Lord; *śāpa-vārtā*—the incident of the curse; *yei*—anyone who; *śune*—hears; *śraddhāvān*—with affection; *brahma-śāpa*—cursing by a *brāhmaṇa*; *haite*—from; *tāra*—his; *haya*—becomes; *paritrāṇa*—deliverance.

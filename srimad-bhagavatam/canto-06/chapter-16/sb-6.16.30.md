@@ -1,11 +1,11 @@
 ### SB 6.16.30
 
-> मृणालगौरं शितिवाससं स्फुरत्किरीटकेयूरकटित्रकङ्कणम
+> मृणालगौरं शितिवाससं स्फुरत्किरीटकेयूरकटित्रकङ्कणम\
 > प्रसन्नवक्त्रारुणलोचनं वृतं ददर्श सिद्धेश्वरमण्डलैः प्रभुम ॥३०॥
 
-> mṛṇāla-gauraṁ śiti-vāsasaṁ sphurat-
-> kirīṭa-keyūra-kaṭitra-kaṅkaṇam
-> prasanna-vaktrāruṇa-locanaṁ vṛtaṁ
+> mṛṇāla-gauraṁ śiti-vāsasaṁ sphurat-\
+> kirīṭa-keyūra-kaṭitra-kaṅkaṇam\
+> prasanna-vaktrāruṇa-locanaṁ vṛtaṁ\
 > dadarśa siddheśvara-maṇḍalaiḥ prabhum
 
 *mṛṇāla-gauram*—white like the fibers of a lotus; *śiti-vāsasam*—wearing garments of blue silk; *sphurat*—glittering; *kirīṭa*—helmet; *keyūra*—armlets; *kaṭitra*—belt; *kaṅkaṇam*—whose bangles; *prasanna-vaktra*—smiling face; *aruṇa-locanam*—having reddish eyes; *vṛtam*—surrounded; *dadarśa*—he saw; *siddha-īśvara-maṇḍalaiḥ*—by the most perfect devotees; *prabhum*—the Supreme Personality of Godhead.

@@ -1,11 +1,11 @@
 ### SB 8.7.19
 
-> निर्मथ्यमानादुदधेरभूद्विषं महोल्बणं हालहलाह्वमग्रतः
+> निर्मथ्यमानादुदधेरभूद्विषं महोल्बणं हालहलाह्वमग्रतः\
 > सम्भ्रान्तमीनोन्मकराहिकच्छपात्तिमिद्विपग्राहतिमिङ्गिलाकुलात ॥१९॥
 
-> tad ugra-vegaṁ diśi diśy upary adho
-> visarpad utsarpad asahyam aprati
-> bhītāḥ prajā dudruvur aṅga seśvarā
+> tad ugra-vegaṁ diśi diśy upary adho\
+> visarpad utsarpad asahyam aprati\
+> bhītāḥ prajā dudruvur aṅga seśvarā\
 > arakṣyamāṇāḥ śaraṇaṁ sadāśivam
 
 Peces, tiburones, tortugas y serpientes estaban muy agitados y perturbados. Todo el océano estaba revuelto, e incluso los animales acuáticos más grandes, como las ballenas, los elefantes marinos, los cocodrilos y los peces timiṅgila [enormes ballenas que pueden tragarse otras ballenas más pequeñas], salieron a la superficie. Al ser batido de este modo, lo primero que el océano produjo fue un peligrosísimo y mortífero veneno llamado hālahala.

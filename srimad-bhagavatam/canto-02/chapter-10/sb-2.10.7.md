@@ -1,11 +1,11 @@
 ### SB 2.10.7
 
-> आभासश्च निरोधश्च यतोऽस्त्यध्यवसीयते ।
+> आभासश्च निरोधश्च यतोऽस्त्यध्यवसीयते ।\
 > स आश्रयः परं ब्रह्म परमात्मेति शब्द्यते ॥७॥
 
-> ābhāsaś ca nirodhaś ca
-> yato 'sty adhyavasīyate
-> sa āśrayaḥ paraṁ brahma
+> ābhāsaś ca nirodhaś ca\
+> yato 'sty adhyavasīyate\
+> sa āśrayaḥ paraṁ brahma\
 > paramātmeti śabdyate
 
 *ābhāsaḥ*—the cosmic manifestation; *ca*—and; *nirodhaḥ*—and its winding up; *ca*—also; *yataḥ*—from the source; *asti*—is; *adhyavasīyate*—become manifested; *saḥ*—He; *āśrayaḥ*—reservoir; *param*—the Supreme; *brahma*—Being; *paramātmā*—the Supersoul; *iti*—thus; *śabdyate*—called.

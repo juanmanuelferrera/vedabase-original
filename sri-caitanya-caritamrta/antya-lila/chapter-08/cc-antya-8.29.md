@@ -1,9 +1,9 @@
 ### CC Antya 8.29
 
-> নিরন্তর কৃষ্ণনাম করায় স্মরণ ।
+> নিরন্তর কৃষ্ণনাম করায় স্মরণ ।\
 > কৃষ্ণনাম, কৃষ্ণলীলা শুনায় অনুক্ষণ ॥২৯॥
 
-> nirantara kṛṣṇa-nāma karāya smaraṇa
+> nirantara kṛṣṇa-nāma karāya smaraṇa\
 > kṛṣṇa-nāma, kṛṣṇa-līlā śunāya anukṣaṇa
 
 *nirantara*—always; *kṛṣṇa-nāma*—the name of Lord Kṛṣṇa; *karāya smaraṇa*—was reminding; *kṛṣṇa-nāma*—the holy name of Kṛṣṇa; *kṛṣṇa-līlā*—pastimes of Kṛṣṇa; *śunāya anukṣaṇa*—was always causing to hear.

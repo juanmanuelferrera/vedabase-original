@@ -1,11 +1,11 @@
 ### SB 9.4.64
 
-> नाहमात्मानमाशासे मद्भक्तैः साधुभिर्विना
+> नाहमात्मानमाशासे मद्भक्तैः साधुभिर्विना\
 > श्रियं चात्यन्तिकीं ब्रह्मन्येषां गतिरहं परा ॥६४॥
 
-> nāham ātmānam āśāse
-> mad-bhaktaiḥ sādhubhir vinā
-> śriyaṁ cātyantikīṁ brahman
+> nāham ātmānam āśāse\
+> mad-bhaktaiḥ sādhubhir vinā\
+> śriyaṁ cātyantikīṁ brahman\
 > yeṣāṁ gatir ahaṁ parā
 
 *na*—no; *aham*—Yo; *ātmānam*—felicidad trascendental; *āśāse*—deseo; *mat-bhaktaiḥ*—con Mis devotos; *sādhubhiḥ*—con las personas santas; *vinā*—sin ellos; *śriyam*—Mis seis opulencias; *ca*—también; *ātyantikīm*—el supremo; *brahman*—¡oh, *brāhmaṇa*!; *yeṣām*—de quien; *gatiḥ*—destino; *aham*—Yo soy; *parā*—el supremo.

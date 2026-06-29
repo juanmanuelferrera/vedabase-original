@@ -1,12 +1,12 @@
 ### SB 8.7.22
 
-> श्रीप्रजापतय ऊचुः
-> देवदेव महादेव भूतात्मन्भूतभावन
+> श्रीप्रजापतय ऊचुः\
+> देवदेव महादेव भूतात्मन्भूतभावन\
 > त्राहि नः शरणापन्नांस्त्रैलोक्यदहनाद्विषात ॥२२॥
 
-> tvam ekaḥ sarva-jagata
-> īśvaro bandha-mokṣayoḥ
-> taṁ tvām arcanti kuśalāḥ
+> tvam ekaḥ sarva-jagata\
+> īśvaro bandha-mokṣayoḥ\
+> taṁ tvām arcanti kuśalāḥ\
 > prapannārti-haraṁ gurum
 
 *tvam ekaḥ*—Tu Señoría es en verdad; *sarva-jagataḥ*—de los tres mundos; *īśvaraḥ*—a ese controlador; *bandha-mokṣayoḥ*—tanto del cautiverio como de la liberación; *tam*—ese controlador; *tvām arcanti*—te adoran; *kuśalāḥ*—personas que desean buena fortuna; *prapanna-ārti-haram*—que puedes aliviar todos los sufrimientos del devoto que se refugia en tí; *gurum*—tú, que actúas como buen consejero de todas las almas caídas.

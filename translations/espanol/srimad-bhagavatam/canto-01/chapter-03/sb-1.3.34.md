@@ -1,11 +1,11 @@
 ### SB 1.3.34
 
-> यद्येषोपरता देवी माया वैशारदी मतिः ।
+> यद्येषोपरता देवी माया वैशारदी मतिः ।\
 > सम्पन्न एवेति विदुर्महिम्नि स्वे महीयते ॥३४॥
 
-> yady eṣoparatā devī
-> māyā vaiśāradī matiḥ
-> sampanna eveti vidur
+> yady eṣoparatā devī\
+> māyā vaiśāradī matiḥ\
+> sampanna eveti vidur\
 > mahimni sve mahīyate
 
 *yadi*—si, sin embargo; *eṣā*—ellos; *uparatā*—apaciguado; *devī māyā*—energía ilusoria; *vaiśāradī*—colmado de conocimiento; *matiḥ*—iluminación; *sampannaḥ*—enriquecido con; *eva*—indudablemente; *iti*—de esa manera; *viduḥ*—estando consciente de; *mahimni*—en las glorias; *sve*—del ser; *mahīyate*—estando situado en.

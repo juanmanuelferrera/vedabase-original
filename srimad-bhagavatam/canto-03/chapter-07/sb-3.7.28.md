@@ -1,11 +1,11 @@
 ### SB 3.7.28
 
-> गुणावतारैर्विश्वस्य सर्गस्थित्यप्ययाश्रयम् ।
+> गुणावतारैर्विश्वस्य सर्गस्थित्यप्ययाश्रयम् ।\
 > सृजतः श्रीनिवासस्य व्याचक्ष्वोदारविक्रमम् ॥२८॥
 
-> guṇāvatārair viśvasya
-> sarga-sthity-apyayāśrayam
-> sṛjataḥ śrīnivāsasya
+> guṇāvatārair viśvasya\
+> sarga-sthity-apyayāśrayam\
+> sṛjataḥ śrīnivāsasya\
 > vyācakṣvodāra-vikramam
 
 *guṇa*—modes of material nature; *avatāraiḥ*—of the incarnations; *viśvasya*—of the universe; *sarga*—creation; *sthiti*—maintenance; *apyaya*—destruction; *āśrayam*—and ultimate rest; *sṛjataḥ*—of the one who creates; *śrīnivāsasya*—of the Personality of Godhead; *vyācakṣva*—kindly describe; *udāra*—magnanimous; *vikramam*—specific activities.

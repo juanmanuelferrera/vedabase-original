@@ -1,11 +1,11 @@
 ### SB 3.3.3
 
-> समाहुता भीष्मककन्यया ये श्रियः सवर्णेन बुभूषयैषाम् ।
+> समाहुता भीष्मककन्यया ये श्रियः सवर्णेन बुभूषयैषाम् ।\
 > गान्धर्ववृत्त्या मिषतां स्वभागं जह्रे पदं मूर्ध्नि दधत्सुपर्णः ॥३॥
 
-> samāhutā bhīṣmaka-kanyayā ye
-> śriyaḥ savarṇena bubhūṣayaiṣām
-> gāndharva-vṛttyā miṣatāṁ sva-bhāgaṁ
+> samāhutā bhīṣmaka-kanyayā ye\
+> śriyaḥ savarṇena bubhūṣayaiṣām\
+> gāndharva-vṛttyā miṣatāṁ sva-bhāgaṁ\
 > jahre padaṁ mūrdhni dadhat suparṇaḥ
 
 *samāhutāḥ*—invitados; *bhīṣmaka*—del rey Bhīṣmaka; *kanyayā*—por la hija; *ye*—todos esos; *śriyaḥ*—fortuna; *sa-varṇena*—mediante una secuencia similar; *bubhūṣayā*—esperando que así fuera; *eṣām*—de ellos; *gāndharva*—al casarse; *vṛttyā*—por semejante costumbre; *miṣatām*—llevando así; *sva-bhāgam*—su propia parte; *jahre*—se llevó; *padam*—pies; *mūrdhni*—en la cabeza; *dadhat*—colocó; *suparṇaḥ*—Garuḍa.

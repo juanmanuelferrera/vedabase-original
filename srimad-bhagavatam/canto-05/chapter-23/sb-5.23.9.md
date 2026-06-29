@@ -1,11 +1,11 @@
 ### SB 5.23.9
 
-> ग्रहर्क्षतारामयमाधिदैविकं पापापहं मन्त्रकृतां त्रिकालम
+> ग्रहर्क्षतारामयमाधिदैविकं पापापहं मन्त्रकृतां त्रिकालम\
 > नमस्यतः स्मरतो वा त्रिकालं नश्येत तत्कालजमाशु पापम ॥९॥
 
-> graharkṣatārāmayam ādhidaivikaṁ
-> pāpāpahaṁ mantra-kṛtāṁ tri-kālam
-> namasyataḥ smarato vā tri-kālaṁ
+> graharkṣatārāmayam ādhidaivikaṁ\
+> pāpāpahaṁ mantra-kṛtāṁ tri-kālam\
+> namasyataḥ smarato vā tri-kālaṁ\
 > naśyeta tat-kālajam āśu pāpam
 
 *graha-ṛkṣa-tārā-mayam*—consisting of all the planets and stars; *ādhidaivikam*—the leader of all the demigods; *pāpa-apaham*—the killer of sinful reactions; *mantra-kṛtām*—of those who chant the *mantra* mentioned above; *tri-kālam*—three times; *namasyataḥ*—offering obeisances; *smarataḥ*—meditating; *vā*—or; *tri-kālam*—three times; *naśyeta*—destroys; *tat-kāla-jam*—born at that time; *āśu*—very quickly; *pāpam*—all sinful reactions.

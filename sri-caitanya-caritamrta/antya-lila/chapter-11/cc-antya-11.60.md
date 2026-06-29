@@ -1,9 +1,9 @@
 ### CC Antya 11.60
 
-> প্রভুর আবেশে অবশ সর্বভক্তগণ ।
+> প্রভুর আবেশে অবশ সর্বভক্তগণ ।\
 > প্রেমাবেশে সবে নাচে, করেন কীর্তন ॥৬০॥
 
-> prabhura āveśe avaśa sarva-bhakta-gaṇa
+> prabhura āveśe avaśa sarva-bhakta-gaṇa\
 > premāveśe sabe nāce, karena kīrtana
 
 *prabhura āveśe*—because of the ecstatic emotions of Śrī Caitanya Mahāprabhu; *avaśa*—helpless; *sarva-bhakta-gaṇa*—all the devotees; *prema-āveśe*—in great ecstatic love; *sabe*—all of them; *nāce*—dance; *karena kīrtana*—and perform congregational chanting.

@@ -1,11 +1,11 @@
 ### SB 3.11.6
 
-> त्रसरेणुत्रिकं भुङ्क्ते यः कालः स त्रुटिः स्मृतः ।
+> त्रसरेणुत्रिकं भुङ्क्ते यः कालः स त्रुटिः स्मृतः ।\
 > शतभागस्तु वेधः स्यात्तैस्त्रिभिस्तु लवः स्मृतः ॥६॥
 
-> trasareṇu-trikaṁ bhuṅkte
-> yaḥ kālaḥ sa truṭiḥ smṛtaḥ
-> śata-bhāgas tu vedhaḥ syāt
+> trasareṇu-trikaṁ bhuṅkte\
+> yaḥ kālaḥ sa truṭiḥ smṛtaḥ\
+> śata-bhāgas tu vedhaḥ syāt\
 > tais tribhis tu lavaḥ smṛtaḥ
 
 *trasareṇu-trikam*—combinación de tres hexátomos; *bhuṅkte*—tiempo que tardan en integrarse; *yaḥ*—aquello que; *kālaḥ*—duración del tiempo; *saḥ*—ese; *truṭiḥ*—con el nombre de *truṭi*; *smṛtaḥ*—se denomina; *śata-bhāgaḥ*—cien *truṭis*; *tu*—pero; *vedhaḥ*—denominado *vedha*; *syāt*—así ocurre; *taiḥ*—por ellos; *tribhiḥ*—tres veces; *tu*—pero; *lavaḥ*—*lava*; *smṛtaḥ*—así llamado.

@@ -1,9 +1,9 @@
 ### CC Antya 20.69
 
-> দ্বাদশ বৎসর ঐছে দশা — রাত্রি-দিনে ।
+> দ্বাদশ বৎসর ঐছে দশা — রাত্রি-দিনে ।\
 > কৃষ্ণরস আস্বাদয়ে দুইবন্ধু-সনে ॥৬৯॥
 
-> dvādaśa vatsara aiche daśā--rātri-dine
+> dvādaśa vatsara aiche daśā--rātri-dine\
 > kṛṣṇa-rasa āsvādaye dui-bandhu-sane
 
 *dvādaśa vatsara*—durante doce años; *aiche daśā*—tal condición; *rātri-dine*—día y noche; *kṛṣṇa-rasa*—bienaventuranza trascendental y melosidades en relación con Kṛṣṇa; *āsvādaye*—Él saborea; *dui-bandhu-sane*—con dos amigos, a saber, Rāmānanda Rāya y Svarūpa Dāmodara Gosvāmī.

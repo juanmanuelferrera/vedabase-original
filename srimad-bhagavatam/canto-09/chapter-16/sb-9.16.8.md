@@ -1,11 +1,11 @@
 ### SB 9.16.8
 
-> उत्तस्थुस्ते कुशलिनो निद्रापाय इवाञ्जसा
+> उत्तस्थुस्ते कुशलिनो निद्रापाय इवाञ्जसा\
 > पितुर्विद्वांस्तपोवीर्यं रामश्चक्रे सुहृद्वधम ॥८॥
 
-> uttasthus te kuśalino
-> nidrāpāya ivāñjasā
-> pitur vidvāṁs tapo-vīryaṁ
+> uttasthus te kuśalino\
+> nidrāpāya ivāñjasā\
+> pitur vidvāṁs tapo-vīryaṁ\
 > rāmaś cakre suhṛd-vadham
 
 *uttasthuḥ*—got up immediately; *te*—Lord Paraśurāma's mother and brothers; *kuśalinaḥ*—being happily alive; *nidrā-apāye*—at the end of sound sleep; *iva*—like; *añjasā*—very soon; *pituḥ*—of his father; *vidvān*—being aware of; *tapaḥ*—austerity; *vīryam*—power; *rāmaḥ*—Lord Paraśurāma; *cakre*—executed; *suhṛt-vadham*—killing of his family members.

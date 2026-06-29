@@ -1,13 +1,13 @@
 ### CC Madhya 2.47
 
-> যাতে বংশীধ্বনি-সুখ, না দেখি’ সে চাঁদ মুখ,
-> যদ্যপি নাহিক ‘আলম্বন’ ।
-> নিজ-দেহে করি প্রীতি, কেবল কামের রীতি,
+> যাতে বংশীধ্বনি-সুখ, না দেখি’ সে চাঁদ মুখ,\
+> যদ্যপি নাহিক ‘আলম্বন’ ।\
+> নিজ-দেহে করি প্রীতি, কেবল কামের রীতি,\
 > প্রাণ-কীটের করিয়ে ধারণ ॥৪৭॥
 
-> yāte vaṁśī-dhvani-sukha, nā dekhi' se cāṅda mukha,
-> yadyapi nāhika 'ālambana'
-> nija-dehe kari prīti, kevala kāmera rīti,
+> yāte vaṁśī-dhvani-sukha, nā dekhi' se cāṅda mukha,\
+> yadyapi nāhika 'ālambana'\
+> nija-dehe kari prīti, kevala kāmera rīti,\
 > prāṇa-kīṭera kariye dhāraṇa
 
 *yāte*—en lo cual; *vaṁśī-dhvani-sukha*—la felicidad de escuchar el sonido de la flauta; *nā dekhi'*—sin ver; *se*—ese; *cāṅda mukha*—rostro de luna; *yadyapi*—aunque; *nāhika*—no hay; *'ālambana'*—el encuentro del amante y la amada; *nija*—propio; *dehe*—por el cuerpo; *kari*—siento; *prīti*—afecto; *kevala*—solamente; *kāmera*—de la lujuria; *rīti*—el modo; *prāṇa*—de la vida; *kīṭera*—de la mosca; *kariye*—realizo; *dhāraṇa*—mantenimiento.

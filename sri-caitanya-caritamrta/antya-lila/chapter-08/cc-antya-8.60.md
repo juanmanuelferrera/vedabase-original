@@ -1,9 +1,9 @@
 ### CC Antya 8.60
 
-> অর্ধাশন করেন প্রভু, গোবিন্দ অর্ধাশন ।
+> অর্ধাশন করেন প্রভু, গোবিন্দ অর্ধাশন ।\
 > সব ভক্তগণ তবে ছাড়িল ভোজন ॥৬০॥
 
-> ardhāśana karena prabhu, govinda ardhāśana
+> ardhāśana karena prabhu, govinda ardhāśana\
 > saba bhakta-gaṇa tabe chāḍila bhojana
 
 *ardha-aśana karena*—eats half; *prabhu*—Śrī Caitanya Mahāprabhu; *govinda*—Govinda; *ardha-aśana*—eats half; *saba bhakta-gaṇa*—all the devotees; *tabe*—at that time; *chāḍila bhojana*—gave up eating.

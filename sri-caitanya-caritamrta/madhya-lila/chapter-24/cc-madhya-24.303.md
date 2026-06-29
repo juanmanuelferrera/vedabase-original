@@ -1,9 +1,9 @@
 ### CC Madhya 24.303
 
-> সর্বসমুচ্চয়ে আর এক অর্থ হয় ।
+> সর্বসমুচ্চয়ে আর এক অর্থ হয় ।\
 > ‘আত্মারামাশ্চ মুনয়শ্চ নির্গ্রন্থাশ্চ’ ভজয় ॥৩০৩॥
 
-> sarva-samuccaye āra eka artha haya
+> sarva-samuccaye āra eka artha haya\
 > 'ātmārāmāś ca munayaś ca nirgranthāś ca' bhajaya
 
 *sarva-samuccaye*—taking all of them together; *āra*—another; *eka*—one; *artha*—import; *haya*—there is; *ātmārāmāḥ ca munayaḥ ca nirgranthāḥ ca bhajaya*—the *ātmārāmas,* great sages and *nirgranthas* (the learned and the fools) are all eligible to engage in the transcendental loving service of the Lord.

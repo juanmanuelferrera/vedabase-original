@@ -1,9 +1,9 @@
 ### CC Antya 13.29
 
-> সহজেই মোর তাহাঁ যাইতে মন হয় ।
+> সহজেই মোর তাহাঁ যাইতে মন হয় ।\
 > প্রভু-আজ্ঞা লঞা দেহ’, করিয়ে বিনয় ।।” ॥ ২৯ ॥
 
-> sahajei mora tāhāṅ yāite mana haya
+> sahajei mora tāhāṅ yāite mana haya\
 > prabhu-ājñā lañā deha', kariye vinaya"
 
 *sahejei*—naturalmente; *mora*—mi; *tāhāṅ*—allí; *yāite*—ir; *mana*—mente; *haya*—está; *prabhu-ājñā*—permiso de Śrī Caitanya Mahāprabhu; *lañā deha'*—por favor obtén; *kariye vinaya*—pidiendo humildemente.

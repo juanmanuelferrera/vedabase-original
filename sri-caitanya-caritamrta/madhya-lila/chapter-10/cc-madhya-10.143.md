@@ -1,9 +1,9 @@
 ### CC Madhya 10.143
 
-> তাঁহারে আপন-সেবা করাইতে না ষুয়ায় ।
+> তাঁহারে আপন-সেবা করাইতে না ষুয়ায় ।\
 > গুরু আজ্ঞা দিয়াছেন, কি করি উপায় ॥১৪৩॥
 
-> tāṅhāre āpana-sevā karāite nā yuyāya
+> tāṅhāre āpana-sevā karāite nā yuyāya\
 > guru ājñā diyāchena, ki kari upāya
 
 *tāṅhāre*—him; *āpana-sevā*—personal service; *karāite*—to engage to do; *nā yuyāya*—is not befitting; *guru*—the spiritual master; *ājñā*—order; *diyāchena*—has given; *ki*—what; *kari*—can I do; *upāya*—remedy.

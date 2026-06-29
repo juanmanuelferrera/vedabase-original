@@ -1,11 +1,11 @@
 ### SB 1.4.7
 
-> कथं वा पाण्डवेयस्य राजर्षेर्मुनिना सह ।
+> कथं वा पाण्डवेयस्य राजर्षेर्मुनिना सह ।\
 > संवादः समभूत्तात यत्रैषा सात्वती श्रुतिः ॥७॥
 
-> kathaṁ vā pāṇḍaveyasya
-> rājarṣer muninā saha
-> saṁvādaḥ samabhūt tāta
+> kathaṁ vā pāṇḍaveyasya\
+> rājarṣer muninā saha\
+> saṁvādaḥ samabhūt tāta\
 > yatraiṣā sātvatī śrutiḥ
 
 *katham*—cómo es que; *vā*—también; *pāṇḍaveyasya*—del descendiente de Pāṇḍu (Parīkṣit); *rājarṣeḥ*—del rey que era un sabio; *muninā*—con el *muni*; *saha*—con; *saṁvādaḥ*—discusión; *samabhūt*—se llevó a cabo; *tāta*—¡oh, querido!; *yatra*—después de lo cual; *eṣā*—como esta; *sātvatī*—trascendental; *śrutiḥ*—esencia de los *Vedas*.

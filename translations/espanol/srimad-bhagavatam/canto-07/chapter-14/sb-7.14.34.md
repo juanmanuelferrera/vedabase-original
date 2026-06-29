@@ -1,11 +1,11 @@
 ### SB 7.14.34
 
-> पात्रं त्वत्र निरुक्तं वै कविभिः पात्रवित्तमैः
+> पात्रं त्वत्र निरुक्तं वै कविभिः पात्रवित्तमैः\
 > हरिरेवैक उर्वीश यन्मयं वै चराचरम ॥३४॥
 
-> pātraṁ tv atra niruktaṁ vai
-> kavibhiḥ pātra-vittamaiḥ
-> harir evaika urvīśa
+> pātraṁ tv atra niruktaṁ vai\
+> kavibhiḥ pātra-vittamaiḥ\
+> harir evaika urvīśa\
 > yan-mayaṁ vai carācaram
 
 *pātram*—la verdadera persona a quien se debe ofrecer caridad; *tu*—pero; *atra*—en el mundo; *niruktam*—establecido; *vai*—en verdad; *kavibhiḥ*—por sabios eruditos; *pātra-vittamaiḥ*—con experiencia en cuanto a hallar a la verdadera persona a quien se debe dar caridad; *hariḥ*—la Suprema Personalidad de Dios; *eva*—en verdad; *ekaḥ*—solo uno; *urvī-īśa*—¡oh, rey de la Tierra!; *yat-mayam*—en quien todo reposa; *vai*—de quien todo emana; *cara-acaram*—todo lo móvil y lo inmóvil del universo.

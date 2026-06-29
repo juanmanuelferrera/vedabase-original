@@ -1,18 +1,18 @@
 ### SB 1.10.9-10
 
-> सुभद्रा द्रौपदी कुन्ती विराटतनया तथा ।
-> गान्धारी धृतराष्ट्रश्च युयुत्सुर्गौतमो यमौ ॥९॥
-> वृकोदरश्च धौम्यश्च स्त्रियो मत्स्यसुतादयः ।
+> सुभद्रा द्रौपदी कुन्ती विराटतनया तथा ।\
+> गान्धारी धृतराष्ट्रश्च युयुत्सुर्गौतमो यमौ ॥९॥\
+> वृकोदरश्च धौम्यश्च स्त्रियो मत्स्यसुतादयः ।\
 > न सेहिरे विमुह्यन्तो विरहं शार्ङ्गधन्वनः ॥१०॥
 
-> subhadrā draupadī kuntī
-> virāṭa-tanayā tathā
-> gāndhārī dhṛtarāṣṭraś ca
+> subhadrā draupadī kuntī\
+> virāṭa-tanayā tathā\
+> gāndhārī dhṛtarāṣṭraś ca\
 > yuyutsur gautamo yamau
 
-> vṛkodaraś ca dhaumyaś ca
-> striyo matsya-sutādayaḥ
-> na sehire vimuhyanto
+> vṛkodaraś ca dhaumyaś ca\
+> striyo matsya-sutādayaḥ\
+> na sehire vimuhyanto\
 > virahaṁ śārṅga-dhanvanaḥ
 
 *subhadrā*—the sister of Kṛṣṇa; *draupadī*—the wife of the Pāṇḍavas; *kuntī*—the mother of the Pāṇḍavas; *virāṭa-tanayā*—the daughter of Virāṭa (Uttarā); *tathā*—also; *gāndhārī*—the mother of Duryodhana; *dhṛtarāṣṭraḥ*—the father of Duryodhana; *ca*—and; *yuyutsuḥ*—the son of Dhṛtarāṣṭra by his *vaiśya* wife; *gautamaḥ*—Kṛpācārya; *yamau*—the twin brothers Nakula and Sahadeva; *vṛkodaraḥ*—Bhīma; *ca*—and; *dhaumyaḥ*—Dhaumya; *ca*—and; *striyaḥ*—also other ladies of the palace; *matsya-sutā-ādayaḥ*—the daughter of a fisherman (Satyavatī, Bhīṣma's stepmother); *na*—could not; *sehire*—tolerate; *vimuhyantaḥ*—almost fainting; *viraham*—separation; *śārṅga-dhanvanaḥ*—of Śrī Kṛṣṇa, who bears a conch in His hand.

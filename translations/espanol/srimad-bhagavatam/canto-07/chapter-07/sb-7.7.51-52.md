@@ -1,18 +1,18 @@
 ### SB 7.7.51-52
 
-> नालं द्विजत्वं देवत्वमृषित्वं वासुरात्मजाः
-> प्रीणनाय मुकुन्दस्य न वृत्तं न बहुज्ञअता ॥५१॥
-> न दानं न तपो नेज्या न शौचं न व्रतानि च
+> नालं द्विजत्वं देवत्वमृषित्वं वासुरात्मजाः\
+> प्रीणनाय मुकुन्दस्य न वृत्तं न बहुज्ञअता ॥५१॥\
+> न दानं न तपो नेज्या न शौचं न व्रतानि च\
 > प्रीयतेऽमलया भक्त्या हरिरन्यद्विडम्बनम ॥५२॥
 
-> nālaṁ dvijatvaṁ devatvam
-> ṛṣitvaṁ vāsurātmajāḥ
-> prīṇanāya mukundasya
+> nālaṁ dvijatvaṁ devatvam\
+> ṛṣitvaṁ vāsurātmajāḥ\
+> prīṇanāya mukundasya\
 > na vṛttaṁ na bahu-jñatā
 
-> na dānaṁ na tapo nejyā
-> na śaucaṁ na vratāni ca
-> prīyate 'malayā bhaktyā
+> na dānaṁ na tapo nejyā\
+> na śaucaṁ na vratāni ca\
+> prīyate 'malayā bhaktyā\
 > harir anyad viḍambanam
 
 *na*—no; *alam*—suficiente; *dvijatvam*—ser un *brāhmaṇa* perfecto, de grandes cualidades; *devatvam*—ser un semidiós; *ṛṣitvam*—ser una persona santa; *vā*—o; *asura-ātma-jāḥ*—¡oh, descendientes de *asuras*!; *prīṇanāya*—para complacer; *mukundasya*—de Mukunda, la Suprema Personalidad de Dios; *na vṛttam*—ni buena conducta; *na*—no; *bahu-jñatā*—amplia erudición; *na*—ni; *dānam*—caridad; *na tapaḥ*—ni austeridad; *na*—ni; *ijyā*—adoración; *na*—ni; *śaucam*—limpieza; *na vratāni*—ni la ejecución de grandes votos; *ca*—también; *prīyate*—se satisface; *amalayā*—con inmaculado; *bhaktyā*—servicio devocional; *hariḥ*—el Señor Supremo; *anyat*—servicio devocional; *viḍambanam*—pura pantomima.

@@ -1,11 +1,11 @@
 ### SB 4.17.25
 
-> अमूषां क्षुत्परीतानामार्तानां परिदेवितम् ।
+> अमूषां क्षुत्परीतानामार्तानां परिदेवितम् ।\
 > शमयिष्यामि मद्बाणैर्भिन्नायास्तव मेदसा ॥२५॥
 
-> amūṣāṁ kṣut-parītānām
-> ārtānāṁ paridevitam
-> śamayiṣyāmi mad-bāṇair
+> amūṣāṁ kṣut-parītānām\
+> ārtānāṁ paridevitam\
+> śamayiṣyāmi mad-bāṇair\
 > bhinnāyās tava medasā
 
 *amūṣām*—of all of them; *kṣut-parītānām*—suffering from hunger; *ārtānām*—of the distressed; *paridevitam*—the lamentation; *śamayiṣyāmi*—I shall pacify; *mat-bāṇaiḥ*—by my arrows; *bhinnāyāḥ*—being cut to pieces; *tava*—of you; *medasā*—by the flesh.

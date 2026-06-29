@@ -1,9 +1,9 @@
 ### CC Antya 10.131
 
-> বৎসরেক তরে আর রাখিলা ধরিয়া ।
+> বৎসরেক তরে আর রাখিলা ধরিয়া ।\
 > ভোজন-কালে স্বরূপ পরিবেশে খসাঞা ॥১৩১॥
 
-> vatsareka tare āra rākhilā dhariyā
+> vatsareka tare āra rākhilā dhariyā\
 > bhojana-kāle svarūpa pariveśe khasāñā
 
 *vatsareka*—one year; *tare*—for; *āra*—balance; *rākhilā dhariyā*—kept in stock; *bhojana-kāle*—at the time of lunch; *svarūpa*—Svarūpa Dāmodara Gosvāmī; *pariveśe*—administered; *khasāñā*—taking out little by little.

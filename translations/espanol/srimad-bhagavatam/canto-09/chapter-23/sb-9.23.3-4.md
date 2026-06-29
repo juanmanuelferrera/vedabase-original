@@ -1,18 +1,18 @@
 ### SB 9.23.3-4
 
-> शिबिर्वरः कृमिर्दक्षश्चत्वारोशीनरात्मजाः
-> वृषादर्भः सुधीरश्च मद्रः केकय आत्मवान ॥३॥
-> शिबेश्चत्वार एवासंस्तितिक्षोश्च रुषद्रथः
+> शिबिर्वरः कृमिर्दक्षश्चत्वारोशीनरात्मजाः\
+> वृषादर्भः सुधीरश्च मद्रः केकय आत्मवान ॥३॥\
+> शिबेश्चत्वार एवासंस्तितिक्षोश्च रुषद्रथः\
 > ततो होमोऽथ सुतपा बलिः सुतपसोऽभवत ॥४॥
 
-> śibir varaḥ kṛmir dakṣaś
-> catvārośīnarātmajāḥ
-> vṛṣādarbhaḥ sudhīraś ca
+> śibir varaḥ kṛmir dakṣaś\
+> catvārośīnarātmajāḥ\
+> vṛṣādarbhaḥ sudhīraś ca\
 > madraḥ kekaya ātmavān
 
-> śibeś catvāra evāsaṁs
-> titikṣoś ca ruṣadrathaḥ
-> tato homo 'tha sutapā
+> śibeś catvāra evāsaṁs\
+> titikṣoś ca ruṣadrathaḥ\
+> tato homo 'tha sutapā\
 > baliḥ sutapaso 'bhavat
 
 *śibiḥ*—Śibi; *varaḥ*—Vara; *kṛmiḥ*—Kṛmi; *dakṣaḥ*—Dakṣa; *catvāraḥ*—cuatro; *uśīnara-ātmajāḥ*—los hijos de Uśīnara; *vṛṣādarbhaḥ*—Vṛṣādarbha; *sudhīraḥ ca*—así como Sudhīra; *madraḥ*—Madra; *kekayaḥ*—Kekaya; *ātmavān*—autorrealizado; *śibeḥ*—de Śibi; *catvāraḥ*—cuatro; *eva*—en verdad; *āsan*—hubo; *titikṣoḥ*—de Titikṣu; *ca*—también; *ruṣadrathaḥ*—un hijo llamado Ruṣadratha; *tataḥ*—de él (de Ruṣadratha); *homaḥ*—Homa; *atha*—de él (de Homa); *sutapāḥ*—Sutapā; *baliḥ*—Bali; *sutapasaḥ*—de Sutapā; *abhavat*—hubo.

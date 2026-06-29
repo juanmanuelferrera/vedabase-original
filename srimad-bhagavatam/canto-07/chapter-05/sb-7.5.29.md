@@ -1,13 +1,13 @@
 ### SB 7.5.29
 
-> श्रीनारद उवाच
-> गुरुणैवं प्रतिप्रोक्तो भूय आहासुरः सुतम
+> श्रीनारद उवाच\
+> गुरुणैवं प्रतिप्रोक्तो भूय आहासुरः सुतम\
 > न चेद्गुरुमुखीयं ते कुतोऽभद्रासती मतिः ॥२९॥
 
-> śrī-nārada uvāca
-> guruṇaivaṁ pratiprokto
-> bhūya āhāsuraḥ sutam
-> na ced guru-mukhīyaṁ te
+> śrī-nārada uvāca\
+> guruṇaivaṁ pratiprokto\
+> bhūya āhāsuraḥ sutam\
+> na ced guru-mukhīyaṁ te\
 > kuto 'bhadrāsatī matiḥ
 
 *śrī-nāradaḥ uvāca*—Nārada Muni said; *guruṇā*—by the teacher; *evam*—thus; *pratiproktaḥ*—being answered; *bhūyaḥ*—again; *āha*—said; *asuraḥ*—the great demon, Hiraṇyakaśipu; *sutam*—unto his son; *na*—not; *cet*—if; *guru-mukhī*—issued from the mouth of your teacher; *iyam*—this; *te*—your; *kutaḥ*—from where; *abhadra*—O inauspicious one; *asatī*—very bad; *matiḥ*—inclination.

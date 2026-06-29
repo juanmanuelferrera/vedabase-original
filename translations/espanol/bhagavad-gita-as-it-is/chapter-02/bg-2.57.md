@@ -1,11 +1,11 @@
 ### Bg 2.57
 
-> यः सर्वत्रानभिस्नेहस्तत्तत्प्राप्य शुभाशुभम् ।
+> यः सर्वत्रानभिस्नेहस्तत्तत्प्राप्य शुभाशुभम् ।\
 > नाभिनन्दति न द्वेष्टि तस्य प्रज्ञा प्रतिष्ठिता ॥५७॥
 
-> yaḥ sarvatrānabhisnehas
-> tat tat prāpya śubhāśubham
-> nābhinandati na dveṣṭi
+> yaḥ sarvatrānabhisnehas\
+> tat tat prāpya śubhāśubham\
+> nābhinandati na dveṣṭi\
 > tasya prajñā pratiṣṭhitā
 
 *yaḥ*—aquel que; *sarvatra*—en todas partes; *anabhisnehaḥ*—sin afecto; *tat*—eso; *tat*—eso; *prāpya*—logrando; *śubha*—bien; *aśubham*—mal; *na*—nunca; *abhinandati*—elogia; *na*—nunca; *dveṣṭi*—envidia; *tasya*—su; *prajñā*—conocimiento perfecto; *pratiṣṭhitā*—fijo.

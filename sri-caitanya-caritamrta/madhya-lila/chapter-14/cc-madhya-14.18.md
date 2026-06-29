@@ -1,9 +1,9 @@
 ### CC Madhya 14.18
 
-> রাজা কহে, — আমি তোমার দাসের অনুদাস ।
+> রাজা কহে, — আমি তোমার দাসের অনুদাস ।\
 > ভৃত্যের ভৃত্য কর, — এই মোর আশ ॥১৮॥
 
-> rājā kahe,-āmi tomāra dāsera anudāsa
+> rājā kahe,-āmi tomāra dāsera anudāsa\
 > bhṛtyera bhṛtya kara,-ei mora āśa
 
 *rājā kahe*—the King said; *āmi*—I; *tomāra*—Your; *dāsera anudāsa*—most obedient servant of Your servant; *bhṛtyera bhṛtya*—servant of the servant; *kara*—make (me); *ei*—this; *mora āśa*—my desire.

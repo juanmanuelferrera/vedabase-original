@@ -1,13 +1,13 @@
 ### SB 3.31.13
 
-> यस्त्वत्र बद्ध इव कर्मभिरावृतात्मा
-> भूतेन्द्रियाशयमयीमवलम्ब्य मायाम् ।
-> आस्ते विशुद्धमविकारमखण्डबोधम्
+> यस्त्वत्र बद्ध इव कर्मभिरावृतात्मा\
+> भूतेन्द्रियाशयमयीमवलम्ब्य मायाम् ।\
+> आस्ते विशुद्धमविकारमखण्डबोधम्\
 > आतप्यमानहृदयेऽवसितं नमामि ॥१३॥
 
-> yas tv atra baddha iva karmabhir āvṛtātmā
-> bhūtendriyāśayamayīm avalambya māyām
-> āste viśuddham avikāram akhaṇḍa-bodham
+> yas tv atra baddha iva karmabhir āvṛtātmā\
+> bhūtendriyāśayamayīm avalambya māyām\
+> āste viśuddham avikāram akhaṇḍa-bodham\
 > ātapyamāna-hṛdaye 'vasitaṁ namāmi
 
 *yaḥ*—quien; *tu*—también; *atra*—aquí; *baddhaḥ*—atada; *iva*—como si; *karmabhiḥ*—por actividades; *āvṛta*—cubierta; *ātmā*—el alma pura; *bhūta*—los elementos densos; *indriya*—los sentidos; *āśaya*—la mente; *mayīm*—está compuesta de; *avalambya*—habiendo caído; *māyām*—en *māyā*; *āste*—permanece; *viśuddham*—completamente puro; *avikāram*—inmutable; *akhaṇḍa-bodham*—que posee conocimiento ilimitado; *ātapyamāna*—arrepentido; *hṛdaye*—en el corazón; *avasitam*—residir; *namāmi*—ofrezco mis reverencias respetuosas.

@@ -1,11 +1,11 @@
 ### SB 1.8.17
 
-> ब्रह्मतेजोविनिर्मुक्तैरात्मजैः सह कृष्णया ।
+> ब्रह्मतेजोविनिर्मुक्तैरात्मजैः सह कृष्णया ।\
 > प्रयाणाभिमुखं कृष्णमिदमाह पृथा सती ॥१७॥
 
-> brahma-tejo-vinirmuktair
-> ātmajaiḥ saha kṛṣṇayā
-> prayāṇābhimukhaṁ kṛṣṇam
+> brahma-tejo-vinirmuktair\
+> ātmajaiḥ saha kṛṣṇayā\
+> prayāṇābhimukhaṁ kṛṣṇam\
 > idam āha pṛthā satī
 
 *brahma-tejaḥ*—la radiación del *brahmāstra*; *vinirmuktaiḥ*—siendo salvados de; *ātma-jaiḥ*—junto con sus hijos; *saha*—con; *kṛṣṇayā*—Draupadī; *prayāṇa*—salida; *abhimukham*—hacia; *kṛṣṇam*—al Señor Kṛṣṇa; *idam*—este; *āha*—dijo; *pṛthā*—Kuntī; *satī*—casta, consagrada al Señor.

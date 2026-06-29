@@ -1,9 +1,9 @@
 ### CC Antya 3.101
 
-> ব্রাহ্মণের ঘরে করে ভিক্ষা নির্বাহণ ।
+> ব্রাহ্মণের ঘরে করে ভিক্ষা নির্বাহণ ।\
 > প্রভাবে সকল লোক করয়ে পূজন ॥১০১॥
 
-> brāhmaṇera ghare kare bhikṣā nirvāhaṇa
+> brāhmaṇera ghare kare bhikṣā nirvāhaṇa\
 > prabhāve sakala loka karaye pūjana
 
 *brāhmaṇera ghare*—in the house of a *brāhmaṇa*; *kare*—does; *bhikṣā nirvāhaṇa*—asking alms of food; *prabhāve*—by spiritual potency; *sakala loka*—all people; *karaye pūjana*—worship.

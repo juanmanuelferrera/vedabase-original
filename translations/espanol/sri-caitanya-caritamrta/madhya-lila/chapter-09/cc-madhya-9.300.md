@@ -1,9 +1,9 @@
 ### CC Madhya 9.300
 
-> এই তীর্থে শঙ্করারণ্যের সিদ্ধিপ্রাপ্তি হৈল ৷
+> এই তীর্থে শঙ্করারণ্যের সিদ্ধিপ্রাপ্তি হৈল ৷\
 > প্রস্তাবে শ্রীরঙ্গ-পুরী এতেক কহিল ৷৷ ৩০০ ৷৷ ॥৩০০॥
 
-> ei tīrthe śaṅkarāraṇyera siddhi-prāpti haila
+> ei tīrthe śaṅkarāraṇyera siddhi-prāpti haila\
 > prastāve śrī-raṅga-purī eteka kahila
 
 *ei tīrthe*—en este lugar santo; *śaṅkarāraṇyera*—de Śaṅkarāraṇya; *siddhi-prāpti*—logro de la perfección; *haila*—se cumplió; *prastāve*—en el curso de la conversación; *śrī-raṅga-purī*—Śrī Raṅga Purī; *eteka*—así; *kahila*—habló.

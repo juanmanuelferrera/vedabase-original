@@ -1,11 +1,11 @@
 ### SB 3.11.21
 
-> धर्मश्चतुष्पान्मनुजान्कृते समनुवर्तते ।
+> धर्मश्चतुष्पान्मनुजान्कृते समनुवर्तते ।\
 > स एवान्येष्वधर्मेण व्येति पादेन वर्धता ॥२१॥
 
-> dharmaś catuṣ-pān manujān
-> kṛte samanuvartate
-> sa evānyeṣv adharmeṇa
+> dharmaś catuṣ-pān manujān\
+> kṛte samanuvartate\
+> sa evānyeṣv adharmeṇa\
 > vyeti pādena vardhatā
 
 *dharmaḥ*—religión; *catuḥ-pāt*—cuatro dimensiones completas; *manujān*—humanidad; *kṛte*—en el Satya-yuga; *samanuvartate*—apropiadamente mantenida; *saḥ*—esa; *eva*—ciertamente; *anyeṣu*—en otros; *adharmeṇa*—por la influencia de la irreligión; *vyeti*—decayó; *pādena*—en una parte; *vardhatā*—aumentando gradual y proporcionalmente.

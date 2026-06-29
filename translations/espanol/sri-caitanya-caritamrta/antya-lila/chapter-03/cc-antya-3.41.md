@@ -1,9 +1,9 @@
 ### CC Antya 3.41
 
-> এত কহি’ জগন্নাথের প্রসাদ আনাইল ।
+> এত কহি’ জগন্নাথের প্রসাদ আনাইল ।\
 > মাতাকে বৈষ্ণবে দিতে পৃথক্ পৃথক্ দিল ॥৪১॥
 
-> eta kahi' jagannāthera prasāda ānāila
+> eta kahi' jagannāthera prasāda ānāila\
 > mātāke vaiṣṇave dite pṛthak pṛthak dila
 
 *eta kahi'*—diciendo esto; *jagannāthera*—de Jagannātha; *prasāda*—restos de alimentos; *ānāila*—ordenó que se trajeran; *mātāke*—a Su madre; *vaiṣṇave*—y a todos los vaiṣṇavas; *dite*—para entregar; *pṛthak pṛthak*—por separado; *dila*—dio.

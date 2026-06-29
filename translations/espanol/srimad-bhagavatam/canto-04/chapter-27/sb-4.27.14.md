@@ -1,11 +1,11 @@
 ### SB 4.27.14
 
-> गन्धर्व्यस्तादृशीरस्य मैथुन्यश्च सितासिताः ।
+> गन्धर्व्यस्तादृशीरस्य मैथुन्यश्च सितासिताः ।\
 > परिवृत्त्या विलुम्पन्ति सर्वकामविनिर्मिताम् ॥१४॥
 
-> gandharvyas tādṛśīr asya
-> maithunyaś ca sitāsitāḥ
-> parivṛttyā vilumpanti
+> gandharvyas tādṛśīr asya\
+> maithunyaś ca sitāsitāḥ\
+> parivṛttyā vilumpanti\
 > sarva-kāma-vinirmitām
 
 *gandharvyaḥ*—*gandharvīs*; *tādṛśīḥ*—de la misma manera; *asya*—de Caṇḍavega; *maithunyaḥ*—compañeras para la relación sexual; *ca*—también; *sita*—blancos; *asitāḥ*—negros; *parivṛttyā*—rodeando; *vilumpanti*—saqueaban; *sarva-kāma*—todo tipo de objetos deseables; *vinirmitām*—fabricados.

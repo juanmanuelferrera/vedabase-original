@@ -1,19 +1,19 @@
 ### CC Adi 10.152-154
 
-> বারাণসী-মধ্যে প্রভুর ভক্ত তিন জন ।
-> চন্দ্রশেখর বৈদ্য, আর মিশ্র তপন ॥১৫২॥
-> রঘুনাথ ভট্টাচার্য — মিশ্রের নন্দন ।
-> প্রভু যবে কাশী আইলা দেখি’ বৃন্দাবন ॥১৫৩॥
-> চন্দ্রশেখর-গৃহে কৈল দুই মাস বাস ।
+> বারাণসী-মধ্যে প্রভুর ভক্ত তিন জন ।\
+> চন্দ্রশেখর বৈদ্য, আর মিশ্র তপন ॥১৫২॥\
+> রঘুনাথ ভট্টাচার্য — মিশ্রের নন্দন ।\
+> প্রভু যবে কাশী আইলা দেখি’ বৃন্দাবন ॥১৫৩॥\
+> চন্দ্রশেখর-গৃহে কৈল দুই মাস বাস ।\
 > তপন-মিশ্রের ঘরে ভিক্ষা দুই মাস ॥১৫৪॥
 
-> vārāṇasī-madhye prabhura bhakta tina jana
+> vārāṇasī-madhye prabhura bhakta tina jana\
 > candraśekhara vaidya, āra miśra tapana
 
-> raghunātha bhaṭṭācārya—miśrera nandana
+> raghunātha bhaṭṭācārya—miśrera nandana\
 > prabhu yabe kāśī āilā dekhi' vṛndāvana
 
-> candraśekhara-gṛhe kaila dui māsa vāsa
+> candraśekhara-gṛhe kaila dui māsa vāsa\
 > tapana-miśrera ghare bhikṣā dui māsa
 
 *vārāṇasī-madhye*—at Vārāṇasī; *prabhura*—of Lord Caitanya Mahāprabhu; *bhakta*—devotees; *tinajana*—three persons; *candraśekhara vaidya*—the clerk of the name Candraśekhara; *āra*—and; *miśra tapana*—Tapana Miśra; *raghunātha bhaṭṭācārya*—of the name Raghunātha Bhaṭṭācārya; *miśrera nandana*—the son of Tapana Miśra; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *yabe*—when; *kāśī*—Vārāṇasī; *āilā*—came; *dekhi'*—after visiting; *vṛndāvana*—the holy place known as Vṛndāvana; *candraśekhara gṛhe*—in the house of Candraśekhara Vaidya; *kaila*—did; *duimāsa*—for two months; *vāsa*—reside; *tapana-miśrera*—of Tapana Miśra; *ghare*—in the house; *bhikṣā*—accepted *prasāda*; *duimāsa*—for two months.

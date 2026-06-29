@@ -1,11 +1,11 @@
 ### SB 7.2.24
 
-> एवं गुणैर्भ्राम्यमाणे मनस्यविकलः पुमान
+> एवं गुणैर्भ्राम्यमाणे मनस्यविकलः पुमान\
 > याति तत्साम्यतां भद्रे ह्यलिङ्गो लिङ्गवानिव ॥२४॥
 
-> evaṁ guṇair bhrāmyamāṇe
-> manasy avikalaḥ pumān
-> yāti tat-sāmyatāṁ bhadre
+> evaṁ guṇair bhrāmyamāṇe\
+> manasy avikalaḥ pumān\
+> yāti tat-sāmyatāṁ bhadre\
 > hy aliṅgo liṅgavān iva
 
 *evam*—in this way; *guṇaiḥ*—by the modes of material nature; *bhrāmyamāṇe*—when shaken; *manasi*—the mind; *avikalaḥ*—changeless; *pumān*—the living entity; *yāti*—approaches; *tat-sāmyatām*—the same condition of agitation as the mind; *bhadre*—O my gentle mother; *hi*—indeed; *aliṅgaḥ*—without a subtle or gross body; *liṅga-vān*—possessing a material body; *iva*—as if.

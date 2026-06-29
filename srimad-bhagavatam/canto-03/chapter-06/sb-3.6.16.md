@@ -1,11 +1,11 @@
 ### SB 3.6.16
 
-> निर्भिन्नान्यस्य चर्माणि लोकपालोऽनिलोऽविशत् ।
+> निर्भिन्नान्यस्य चर्माणि लोकपालोऽनिलोऽविशत् ।\
 > प्राणेनांशेन संस्पर्शं येनासौ प्रतिपद्यते ॥१६॥
 
-> nirbhinnāny asya carmāṇi
-> loka-pālo 'nilo 'viśat
-> prāṇenāṁśena saṁsparśaṁ
+> nirbhinnāny asya carmāṇi\
+> loka-pālo 'nilo 'viśat\
+> prāṇenāṁśena saṁsparśaṁ\
 > yenāsau pratipadyate
 
 *nirbhinnāni*—being separated; *asya*—of the gigantic form; *carmāṇi*—skin; *loka-pālaḥ*—the director; *anilaḥ*—air; *aviśat*—entered; *prāṇena aṁśena*—the part of the breathing; *saṁsparśam*—touch; *yena*—by which; *asau*—the living entity; *pratipadyate*—can experience.

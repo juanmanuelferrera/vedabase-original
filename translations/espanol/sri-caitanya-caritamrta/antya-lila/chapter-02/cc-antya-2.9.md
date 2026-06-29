@@ -1,9 +1,9 @@
 ### CC Antya 2.9
 
-> আর নানা-দেশের লোক আসি’ জগন্নাথ ।
+> আর নানা-দেশের লোক আসি’ জগন্নাথ ।\
 > চৈতন্য-চরণ দেখি’ হইল কৃতার্থ ॥৯॥
 
-> āra nānā-deśera loka āsi' jagannātha
+> āra nānā-deśera loka āsi' jagannātha\
 > caitanya-caraṇa dekhi' ha-ila kṛtārtha
 
 *āra*—también; *nānā-deśera*—de distintas provincias; *loka*—la gente; *āsi'*—acudiendo; *jagannātha*—a Jagannātha Purī; *caitanya-caraṇa*—los pies de loto de Śrī Caitanya Mahāprabhu; *dekhi'*—contemplando; *ha-ila*—quedó; *kṛta-artha*—plenamente satisfecha.

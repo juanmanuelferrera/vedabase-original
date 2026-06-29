@@ -1,9 +1,9 @@
 ### CC Antya 20.81
 
-> যাবৎ বুদ্ধির গতি, ততেক বর্ণিলুঁ ।
+> যাবৎ বুদ্ধির গতি, ততেক বর্ণিলুঁ ।\
 > সমুদ্রের মধ্যে যেন এক কণ ছুঁইলুঁ ॥৮১॥
 
-> yāvat buddhira gati, tateka varṇiluṅ
+> yāvat buddhira gati, tateka varṇiluṅ\
 > samudrera madhye yena eka kaṇa chuṅiluṅ
 
 *yāvat*—hasta donde; *buddhira gati*—el límite de mi inteligencia; *tateka*—hasta ahí; *varṇiluṅ*—he descrito; *samudrera madhye*—en medio del gran océano; *yena*—tal como; *eka kaṇa*—una partícula; *chuṅiluṅ*—he tocado.

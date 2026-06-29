@@ -1,11 +1,11 @@
 ### CC Madhya 24.159
 
-> আরুরুক্ষোর্মুনের্যোগং কর্ম কারণমুচ্যতে ।
+> আরুরুক্ষোর্মুনের্যোগং কর্ম কারণমুচ্যতে ।\
 > যোগারূঢ়স্য তস্যৈব শমঃ কারণমুচ্যতে ॥১৫৯॥
 
-> ārurukṣor muner yogaṁ
-> karma kāraṇam ucyate
-> yogārūḍhasya tasyaiva
+> ārurukṣor muner yogaṁ\
+> karma kāraṇam ucyate\
+> yogārūḍhasya tasyaiva\
 > śamaḥ kāraṇam ucyate
 
 *ārurukṣoḥ*—de una persona que desea elevarse a la plataforma de la perfección yóguica; *muneḥ*—de una persona santa; *yogam*—conocimiento espiritual; *karma*—trabajo; *kāraṇam*—la causa; *ucyate*—se dice; *yoga-ārūḍhasya*—de aquel que ha alcanzado ese conocimiento perfecto; *tasya*—para él; *eva*—ciertamente; *śamaḥ*—controlar la mente sin ser perturbado; *kāraṇam*—causa; *ucyate*—se dice.

@@ -1,11 +1,11 @@
 ### SB 4.4.21
 
-> मा वः पदव्यः पितरस्मदास्थिता या यज्ञशालासु न धूमवर्त्मभिः ।
+> मा वः पदव्यः पितरस्मदास्थिता या यज्ञशालासु न धूमवर्त्मभिः ।\
 > तदन्नतृप्तैरसुभृद्भिरीडिता अव्यक्तलिङ्गा अवधूतसेविताः ॥२१॥
 
-> mā vaḥ padavyaḥ pitar asmad-āsthitā
-> yā yajña-śālāsu na dhūma-vartmabhiḥ
-> tad-anna-tṛptair asu-bhṛdbhir īḍitā
+> mā vaḥ padavyaḥ pitar asmad-āsthitā\
+> yā yajña-śālāsu na dhūma-vartmabhiḥ\
+> tad-anna-tṛptair asu-bhṛdbhir īḍitā\
 > avyakta-liṅgā avadhūta-sevitāḥ
 
 *mā*—are not; *vaḥ*—yours; *padavyaḥ*—opulences; *pitaḥ*—O father; *asmat-āsthitāḥ*—possessed by us; *yāḥ*—which (opulences); *yajña-śālāsu*—in the sacrificial fire; *na*—not; *dhūma-vartmabhiḥ*—by the path of sacrifices; *tat-anna-tṛptaiḥ*—satisfied by the foodstuff of the sacrifice; *asu-bhṛdbhiḥ*—satisfying bodily necessities; *īḍitāḥ*—praised; *avyakta-liṅgāḥ*—whose cause is unmanifested; *avadhūta-sevitāḥ*—achieved by the self-realized souls.

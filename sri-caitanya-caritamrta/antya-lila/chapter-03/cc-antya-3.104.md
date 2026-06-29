@@ -1,9 +1,9 @@
 ### CC Antya 3.104
 
-> কোন প্রকারে হরিদাসের ছিদ্র নাহি পায় ।
+> কোন প্রকারে হরিদাসের ছিদ্র নাহি পায় ।\
 > বেশ্যাগণে আনি’ করে ছিদ্রের উপায় ॥১০৪॥
 
-> kona-prakāre haridāsera chidra nāhi pāya
+> kona-prakāre haridāsera chidra nāhi pāya\
 > veśyā-gaṇe āni' kare chidrera upāya
 
 *kona-prakāre*—by any means; *haridāsera*—of Haridāsa Ṭhākura; *chidra*—fault; *nāhi*—not; *pāya*—gets; *veśyā-gaṇe*—prostitutes; *āni'*—bringing; *kare*—makes; *chidrera upāya*—a means to find some fault.

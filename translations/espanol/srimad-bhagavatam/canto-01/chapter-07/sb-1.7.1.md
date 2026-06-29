@@ -1,13 +1,13 @@
 ### SB 1.7.1
 
-> शौनक उवाच
-> निर्गते नारदे सूत भगवान्बादरायणः ।
+> शौनक उवाच\
+> निर्गते नारदे सूत भगवान्बादरायणः ।\
 > श्रुतवांस्तदभिप्रेतं ततः किमकरोद्विभुः ॥१॥
 
-> śaunaka uvāca
-> nirgate nārade sūta
-> bhagavān bādarāyaṇaḥ
-> śrutavāṁs tad-abhipretaṁ
+> śaunaka uvāca\
+> nirgate nārade sūta\
+> bhagavān bādarāyaṇaḥ\
+> śrutavāṁs tad-abhipretaṁ\
 > tataḥ kim akarod vibhuḥ
 
 *śaunakaḥ*—Śrī Śaunaka; *uvāca*—dijo; *nirgate*—habiéndose ido; *nārade*—Nārada Muni; *sūta*—¡oh, Sūta!; *bhagavān*—el trascendentalmente poderoso; *bādarāyaṇaḥ*—Vedavyāsa; *śrutavān*—quien oyó; *tat*—su; *abhipretam*—deseo de la mente; *tataḥ*—después; *kim*—qué; *akarot*—hizo; *vibhuḥ*—el grande.

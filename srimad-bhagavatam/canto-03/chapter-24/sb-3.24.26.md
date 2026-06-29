@@ -1,11 +1,11 @@
 ### SB 3.24.26
 
-> स चावतीर्णं त्रियुगमाज्ञाय विबुधर्षभम् ।
+> स चावतीर्णं त्रियुगमाज्ञाय विबुधर्षभम् ।\
 > विविक्त उपसङ्गम्य प्रणम्य समभाषत ॥२६॥
 
-> sa cāvatīrṇaṁ tri-yugam
-> ājñāya vibudharṣabham
-> vivikta upasaṅgamya
+> sa cāvatīrṇaṁ tri-yugam\
+> ājñāya vibudharṣabham\
+> vivikta upasaṅgamya\
 > praṇamya samabhāṣata
 
 *saḥ*—the sage Kardama; *ca*—and; *avatīrṇam*—descended; *tri-yugam*—Viṣṇu; *ājñāya*—having understood; *vibudha-ṛṣabham*—the chief of the demigods; *vivikte*—in a secluded place; *upasaṅgamya*—having approached; *praṇamya*—offering obeisances; *samabhāṣata*—he spoke.

@@ -1,9 +1,9 @@
 ### CC Adi 1.41
 
-> গদাধরপণ্ডিতাদি — প্রভুর নিজশক্তি ।
+> গদাধরপণ্ডিতাদি — প্রভুর নিজশক্তি ।\
 > তাঁ’সবার চরণে মোর সহস্র প্রণতি ॥৪১॥
 
-> gadādhara-paṇḍitādi--prabhura nija-śakti
+> gadādhara-paṇḍitādi--prabhura nija-śakti\
 > tāṅ'-sabāra caraṇe mora sahasra praṇati
 
 *gadādhara-paṇḍita-ādi*—encabezados por Śrī Gadādhara Paṇḍita; *prabhura*—del Señor Supremo; *nija-śakti*—potencias internas; *tāṅ'-sabāra*—de todos ellos; *caraṇe*—a los pies de loto; *mora*—mis; *sahasra*—miles; *praṇati*—respetuosas reverencias.

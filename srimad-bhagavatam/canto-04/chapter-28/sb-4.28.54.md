@@ -1,11 +1,11 @@
 ### SB 4.28.54
 
-> हंसावहं च त्वं चार्य सखायौ मानसायनौ ।
+> हंसावहं च त्वं चार्य सखायौ मानसायनौ ।\
 > अभूतामन्तरा वौकः सहस्रपरिवत्सरान् ॥५४॥
 
-> haṁsāv ahaṁ ca tvaṁ cārya
-> sakhāyau mānasāyanau
-> abhūtām antarā vaukaḥ
+> haṁsāv ahaṁ ca tvaṁ cārya\
+> sakhāyau mānasāyanau\
+> abhūtām antarā vaukaḥ\
 > sahasra-parivatsarān
 
 *haṁsau*—two swans; *aham*—I; *ca*—and; *tvam*—you; *ca*—also; *ārya*—O great soul; *sakhāyau*—friends; *mānasa-ayanau*—together in the Mānasa Lake; *abhūtām*—became; *antarā*—separated; *vā*—indeed; *okaḥ*—from the original home; *sahasra*—thousands; *pari*—successively; *vatsarān*—years.

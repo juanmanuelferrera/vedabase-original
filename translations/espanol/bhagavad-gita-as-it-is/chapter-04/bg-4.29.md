@@ -1,14 +1,14 @@
 ### Bg 4.29
 
-> अपाने जुह्वति प्राणं प्राणेऽपानं तथापरे ।
-> प्राणापानगती रुद्ध्वा प्राणायामपरायणाः ।
+> अपाने जुह्वति प्राणं प्राणेऽपानं तथापरे ।\
+> प्राणापानगती रुद्ध्वा प्राणायामपरायणाः ।\
 > अपरे नियताहाराः प्राणान्प्राणेषु जुह्वति ॥२९॥
 
-> apāne juhvati prāṇaṁ
-> prāṇe'pānaṁ tathāpare
-> prāṇāpāna-gatī ruddhvā
-> prāṇāyāma-parāyaṇāḥ
-> apare niyatāhārāḥ
+> apāne juhvati prāṇaṁ\
+> prāṇe'pānaṁ tathāpare\
+> prāṇāpāna-gatī ruddhvā\
+> prāṇāyāma-parāyaṇāḥ\
+> apare niyatāhārāḥ\
 > prāṇān prāṇeṣu juhvati
 
 *apāne*—en el aire que actúa hacia abajo; *juhvati*—ofrecen; *prāṇam*—el aire que actúa hacia afuera; *prāṇe*—en el aire que sale; *apānam*—el aire que desciende; *tathā*—así como también; *apare*—otros; *prāṇa*—aire que sale; *apāna*—el aire que desciende; *gatī*—el movimiento; *ruddhvā*—impidiendo; *prāṇāyāma*—trance inducido al interrumpir la respiración por completo; *parāyaṇāḥ*—inclinado así; *apare*—otros; *niyata*—controlado; *āhārāḥ*—comiendo; *prāṇān*—el aire exhalado; *prāṇeṣu*—en el aire exhalado; *juhvati*—sacrifica.

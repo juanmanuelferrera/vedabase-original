@@ -1,9 +1,9 @@
 ### CC Adi 10.91
 
-> মহাপ্রভুর প্রিয় ভৃত্য — রঘুনাথদাস  ।
+> মহাপ্রভুর প্রিয় ভৃত্য — রঘুনাথদাস  ।\
 > ॥৯১॥
 
-> mahāprabhura priya bhṛtya—raghunātha-dāsa
+> mahāprabhura priya bhṛtya—raghunātha-dāsa\
 > sarva tyaji' kaila prabhura pada-tale vāsa
 
 *mahāprabhura*—of Lord Caitanya Mahāprabhu; *priya*—very dear; *bhṛtya*—servant; *raghunātha-dāsa*—Raghunātha dāsa Gosvāmī; *sarva tyaji'*—renouncing everything; *kaila*—did; *prabhura*—of the Lord; *pada-tale*—under the shelter of the lotus feet; *vāsa*—habitation.

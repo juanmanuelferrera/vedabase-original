@@ -1,11 +1,11 @@
 ### CC Madhya 9.268
 
-> সালোক্য-সার্ষ্টি-সামীপ্য-সারূপ্যৈকত্বমপ্যুত ।
+> সালোক্য-সার্ষ্টি-সামীপ্য-সারূপ্যৈকত্বমপ্যুত ।\
 > দীয়মানং ন গৃহ্ণন্তি বিনা মৎসেবনং জনাঃ ॥২৬৮॥
 
-> sālokya-sārṣṭi-sāmīpya-
-> sārūpyaikatvam apy uta
-> dīyamānaṁ na gṛhṇanti
+> sālokya-sārṣṭi-sāmīpya-\
+> sārūpyaikatvam apy uta\
+> dīyamānaṁ na gṛhṇanti\
 > vinā mat-sevanaṁ janāḥ
 
 *sālokya*—to live on the same planet as the Supreme Personality of Godhead; *sārṣṭi*—to possess opulence equal to the Lord's; *sāmīpya*—to always associate with the Supreme Personality of Godhead; *sārūpya*—to possessing bodily features equal to the Lord's; *ekatvam*—to merge into the body of the Supreme Personality of Godhead; *api*—even; *uta*—certainly; *dīyamānam*—being offered; *na*—never; *gṛhṇanti*—accept; *vinā*—without; *mat*—My; *sevanam*—devotional service; *janāḥ*—devotees.

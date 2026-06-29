@@ -1,9 +1,9 @@
 ### CC Antya 1.196
 
-> তোমার শক্তি বিনা জীবের নহে এই বাণী ।
+> তোমার শক্তি বিনা জীবের নহে এই বাণী ।\
 > তুমি শক্তি দিয়া কহাও, — হেন অনুমানি ।।” ॥ ১৯৬ ॥
 
-> tomāra śakti vinā jīvera nahe ei vāṇī
+> tomāra śakti vinā jīvera nahe ei vāṇī\
 > tumi śakti diyā kahāo,—hena anumāni"
 
 *tomāra śakti vinā*—without Your special power; *jīvera*—of an ordinary living being; *nahe*—there is not; *ei vāṇī*—these words; *tumi*—You; *śakti diyā*—giving power; *kahāo*—make him say; *hena*—such; *anumāni*—I guess.

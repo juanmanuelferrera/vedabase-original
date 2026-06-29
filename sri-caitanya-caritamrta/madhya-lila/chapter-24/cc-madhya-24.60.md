@@ -1,9 +1,9 @@
 ### CC Madhya 24.60
 
-> যৈছে তৈছে যোহি কোহি করয়ে স্মরণ ।
+> যৈছে তৈছে যোহি কোহি করয়ে স্মরণ ।\
 > চারিবিধ তাপ তার করে সংহরণ ॥৬০॥
 
-> yaiche taiche yohi kohi karaye smaraṇa
+> yaiche taiche yohi kohi karaye smaraṇa\
 > cāri-vidha tāpa tāra kare saṁharaṇa
 
 *yaiche taiche*—somehow or other; *yohi kohi*—anywhere and everywhere; *karaye smaraṇa*—remembers; *cāri-vidha*—the four kinds; *tāpa*—miserable conditions of life; *tāra*—of the devotee; *kare saṁharaṇa*—He takes away.

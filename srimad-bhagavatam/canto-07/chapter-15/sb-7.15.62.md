@@ -1,11 +1,11 @@
 ### SB 7.15.62
 
-> भावाद्वैतं क्रियाद्वैतं द्रव्याद्वैतं तथात्मनः
+> भावाद्वैतं क्रियाद्वैतं द्रव्याद्वैतं तथात्मनः\
 > वर्तयन्स्वानुभूत्येह त्रीन्स्वप्नान्धुनुते मुनिः ॥६२॥
 
-> bhāvādvaitaṁ kriyādvaitaṁ
-> dravyādvaitaṁ tathātmanaḥ
-> vartayan svānubhūtyeha
+> bhāvādvaitaṁ kriyādvaitaṁ\
+> dravyādvaitaṁ tathātmanaḥ\
+> vartayan svānubhūtyeha\
 > trīn svapnān dhunute muniḥ
 
 *bhāva-advaitam*—oneness in one's conception of life; *kriyā-advaitam*—oneness in activities; *dravya-advaitam*—oneness in different paraphernalia; *tathā*—as well as; *ātmanaḥ*—of the soul; *vartayan*—considering; *sva*—one's own; *anubhūtyā*—according to realization; *iha*—in this material world; *trīn*—the three; *svapnān*—living conditions (wakefulness, dreaming and sleep); *dhunute*—gives up; *muniḥ*—the philosopher or speculator.

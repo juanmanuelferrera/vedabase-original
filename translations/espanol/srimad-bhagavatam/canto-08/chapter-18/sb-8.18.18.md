@@ -1,11 +1,11 @@
 ### SB 8.18.18
 
-> स ब्रह्मवर्चसेनैवं सभां सम्भावितो वटुः
+> स ब्रह्मवर्चसेनैवं सभां सम्भावितो वटुः\
 > ब्रह्मर्षिगणसञ्जुष्टामत्यरोचत मारिषः ॥१८॥
 
-> sa brahma-varcasenaivaṁ
-> sabhāṁ sambhāvito vaṭuḥ
-> brahmarṣi-gaṇa-sañjuṣṭām
+> sa brahma-varcasenaivaṁ\
+> sabhāṁ sambhāvito vaṭuḥ\
+> brahmarṣi-gaṇa-sañjuṣṭām\
 > atyarocata māriṣaḥ
 
 *saḥ*—Él (Vāmanadeva); *brahma-varcasena*—con Su refulgencia Brahman; *evam*—de ese modo; *sabhām*—la sala de asambleas; *sambhāvitaḥ*—tras recibir la bienvenida de todos; *vaṭuḥ*—el *brahmacārī*; *brahma-ṛṣi-gaṇa-sañjuṣṭām*—llena de grandes sabios *brāhmaṇas*; *ati-arocata*—superando, mostró Su belleza; *māriṣaḥ*—el mejor de los *brahmacārīs*.

@@ -1,9 +1,9 @@
 ### CC Adi 13.29
 
-> সূত্র-বৃত্তি-পাঁজি-টীকা কৃষ্ণেতে তাৎপর্য ।
+> সূত্র-বৃত্তি-পাঁজি-টীকা কৃষ্ণেতে তাৎপর্য ।\
 > শিষ্যের প্রতীত হয়, — প্রভাব আশ্চর্য ॥২৯॥
 
-> sūtra-vṛtti-pāṅji-ṭīkā kṛṣṇete tātparya
+> sūtra-vṛtti-pāṅji-ṭīkā kṛṣṇete tātparya\
 > śiṣyera pratīta haya,—prabhāva āścarya
 
 *sūtra*—aphorisms; *vṛtti*—explanation; *pāṅji*—application; *ṭīkā*—notes; *kṛṣṇete*—unto Kṛṣṇa; *tātparya*—culmination; *śiṣyera*—of the disciple; *pratīta*—realization; *haya*—becomes; *prabhāva*—influence; *āścarya*—wonderful.

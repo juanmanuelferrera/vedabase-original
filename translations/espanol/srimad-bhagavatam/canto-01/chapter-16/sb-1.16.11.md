@@ -1,11 +1,11 @@
 ### SB 1.16.11
 
-> स्वलङ्कृतं श्यामतुरङ्गयोजितं रथं मृगेन्द्रध्वजमाश्रितः पुरात् ।
+> स्वलङ्कृतं श्यामतुरङ्गयोजितं रथं मृगेन्द्रध्वजमाश्रितः पुरात् ।\
 > वृतो रथाश्वद्विपपत्तियुक्तया स्वसेनया दिग्विजयाय निर्गतः ॥११॥
 
-> svalaṅkṛtaṁ śyāma-turaṅga-yojitaṁ
-> rathaṁ mṛgendra-dhvajam āśritaḥ purāt
-> vṛto rathāśva-dvipa-patti-yuktayā
+> svalaṅkṛtaṁ śyāma-turaṅga-yojitaṁ\
+> rathaṁ mṛgendra-dhvajam āśritaḥ purāt\
+> vṛto rathāśva-dvipa-patti-yuktayā\
 > sva-senayā digvijayāya nirgataḥ
 
 *su-alaṅkṛtam*—muy bien adornado; *śyāma*—negro; *turaṅga*—caballos; *yojitam*—aparejados; *ratham*—cuadriga; *mṛga-indra*—león; *dhvajam*—embanderada; *āśritaḥ*—bajo la protección; *purāt*—de la capital; *vṛtaḥ*—rodeado por; *ratha*—aurigas; *aśva*—caballería; *dvipapatti*—elefantes; *yuktayā*—equipado así; *sva-senayā*—junto con infantería; *digvijayāya*—con el fin de conquistar; *nirgataḥ*—salió.

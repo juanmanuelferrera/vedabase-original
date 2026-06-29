@@ -1,11 +1,11 @@
 ### SB 3.20.38
 
-> प्रहस्य भावगम्भीरं जिघ्रन्त्यात्मानमात्मना ।
+> प्रहस्य भावगम्भीरं जिघ्रन्त्यात्मानमात्मना ।\
 > कान्त्या ससर्ज भगवान्गन्धर्वाप्सरसां गणान् ॥३८॥
 
-> prahasya bhāva-gambhīraṁ
-> jighrantyātmānam ātmanā
-> kāntyā sasarja bhagavān
+> prahasya bhāva-gambhīraṁ\
+> jighrantyātmānam ātmanā\
+> kāntyā sasarja bhagavān\
 > gandharvāpsarasāṁ gaṇān
 
 *prahasya*—smiling; *bhāva-gambhīram*—with a deep purpose; *jighrantyā*—understanding; *ātmānam*—himself; *ātmanā*—by himself; *kāntyā*—by his loveliness; *sasarja*—created; *bhagavān*—the worshipful Lord Brahmā; *gandharva*—the celestial musicians; *apsarasām*—and of the heavenly dancing girls; *gaṇān*—the hosts of.

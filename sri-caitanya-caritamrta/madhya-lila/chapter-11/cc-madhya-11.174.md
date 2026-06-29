@@ -1,9 +1,9 @@
 ### CC Madhya 11.174
 
-> মহাপ্রসাদান্ন দেহ বাণীনাথ-স্থানে ।
+> মহাপ্রসাদান্ন দেহ বাণীনাথ-স্থানে ।\
 > সর্ব বৈষ্ণবের ইঁহো করিবে সমাধানে ॥১৭৪॥
 
-> mahā-prasādānna deha vāṇīnātha-sthāne
+> mahā-prasādānna deha vāṇīnātha-sthāne\
 > sarva-vaiṣṇavera iṅho karibe samādhāne
 
 *mahā-prasāda-anna*—the remnants of food; *deha*—deliver; *vāṇīnātha-sthāne*—unto Vāṇīnātha; *sarva-vaiṣṇavera*—unto all the Vaiṣṇavas; *iṅho*—he; *karibe*—will do; *samādhāne*—distribution.

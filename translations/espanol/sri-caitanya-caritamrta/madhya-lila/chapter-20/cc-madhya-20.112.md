@@ -1,11 +1,11 @@
 ### CC Madhya 20.112
 
-> বিষ্ণুশক্তিঃ পরা প্রোক্তা ক্ষেত্রজ্ঞাখ্যা তথাপরা ।
+> বিষ্ণুশক্তিঃ পরা প্রোক্তা ক্ষেত্রজ্ঞাখ্যা তথাপরা ।\
 > অবিদ্যা-কর্মসংজ্ঞান্যা তৃতীয়া শক্তিরিষ্যতে ॥১১২॥
 
-> viṣṇu-śaktiḥ parā proktā
-> kṣetrajñākhyā tathā parā
-> avidyā-karma-saṁjñān yā
+> viṣṇu-śaktiḥ parā proktā\
+> kṣetrajñākhyā tathā parā\
+> avidyā-karma-saṁjñān yā\
 > tṛtīyā śaktir iṣyate
 
 *viṣṇu-śaktiḥ*—la potencia del Señor Viṣṇu; *parā*—espiritual; *proktā*—se dice; *kṣetra-jña-ākhyā*—la potencia conocida como kṣetrajña; *tathā*—así como; *parā*—espiritual; *avidyā*—ignorancia; *karma*—actividades fruitivas; *saṁjñā*—conocida como; *anyā*—otra; *tṛtīyā*—tercera; *śaktiḥ*—potencia; *iṣyate*—se conoce así.

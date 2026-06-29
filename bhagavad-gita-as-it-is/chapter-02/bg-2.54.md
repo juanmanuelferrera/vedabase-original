@@ -1,13 +1,13 @@
 ### Bg 2.54
 
-> अर्जुन उवाच ।
-> स्थितप्रज्ञस्य का भाषा समाधिस्थस्य केशव ।
+> अर्जुन उवाच ।\
+> स्थितप्रज्ञस्य का भाषा समाधिस्थस्य केशव ।\
 > स्थितधीः किं प्रभाषेत किमासीत व्रजेत किम् ॥५४॥
 
-> arjuna uvāca
-> sthita-prajñasya kā bhāṣā
-> samādhi-sthasya keśava
-> sthita-dhīḥ kiṁ prabhāṣeta
+> arjuna uvāca\
+> sthita-prajñasya kā bhāṣā\
+> samādhi-sthasya keśava\
+> sthita-dhīḥ kiṁ prabhāṣeta\
 > kim āsīta vrajeta kim
 
 *arjuna uvāca*—Arjuna said; *sthita-prajñasya*—of one who is situated in fixed Kṛṣṇa consciousness; *kā*—what; *bhāṣā*—language; *samādhi-sthasya*—of one situated in trance; *keśava*—O Kṛṣṇa; *sthita-dhīḥ*—one fixed in Kṛṣṇa consciousness; *kim*—what; *prabhāṣeta*—speak; *kim*—how; *āsīta*—does remain; *vrajeta*—walk; *kim*—how.

@@ -1,11 +1,11 @@
 ### SB 4.16.19
 
-> अयं तु साक्षाद्भगवांस्त्र्यधीशः कूटस्थ आत्मा कलयावतीर्णः ।
+> अयं तु साक्षाद्भगवांस्त्र्यधीशः कूटस्थ आत्मा कलयावतीर्णः ।\
 > यस्मिन्नविद्यारचितं निरर्थकं पश्यन्ति नानात्वमपि प्रतीतम् ॥१९॥
 
-> ayaṁ tu sākṣād bhagavāṁs try-adhīśaḥ
-> kūṭa-stha ātmā kalayāvatīrṇaḥ
-> yasminn avidyā-racitaṁ nirarthakaṁ
+> ayaṁ tu sākṣād bhagavāṁs try-adhīśaḥ\
+> kūṭa-stha ātmā kalayāvatīrṇaḥ\
+> yasminn avidyā-racitaṁ nirarthakaṁ\
 > paśyanti nānātvam api pratītam
 
 *ayam*—this King; *tu*—then; *sākṣāt*—directly; *bhagavān*—the Supreme Personality of Godhead; *tri-adhīśaḥ*—the master of the three planetary systems; *kūṭa-sthaḥ*—without any change; *ātmā*—the Supersoul; *kalayā*—by a partial plenary expansion; *avatīrṇaḥ*—descended; *yasmin*—in whom; *avidyā-racitam*—created by nescience; *nirarthakam*—without meaning; *paśyanti*—they see; *nānātvam*—material variegatedness; *api*—certainly; *pratītam*—understood.

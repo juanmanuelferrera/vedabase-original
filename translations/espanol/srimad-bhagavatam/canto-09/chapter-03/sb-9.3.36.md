@@ -1,11 +1,11 @@
 ### SB 9.3.36
 
-> सुतां दत्त्वानवद्याङ्गीं बलाय बलशालिने
+> सुतां दत्त्वानवद्याङ्गीं बलाय बलशालिने\
 > बदर्याख्यं गतो राजा तप्तुं नारायणाश्रमम ॥३६॥
 
-> sutāṁ dattvānavadyāṅgīṁ
-> balāya bala-śāline
-> badary-ākhyaṁ gato rājā
+> sutāṁ dattvānavadyāṅgīṁ\
+> balāya bala-śāline\
+> badary-ākhyaṁ gato rājā\
 > taptuṁ nārāyaṇāśramam
 
 *sutām*—su hija; *dattvā*—tras entregar; *anavadya-aṅgīm*—de cuerpo perfecto; *balāya*—al Señor Baladeva; *bala-śāline*—al muy poderoso, el poderoso supremo; *badarī-ākhyam*—llamada Badarikāśrama; *gataḥ*—fue; *rājā*—el rey; *taptum*—para realizar austeridades; *nārāyaṇa-āśramam*—a la morada de Nara-Nārāyaṇa.

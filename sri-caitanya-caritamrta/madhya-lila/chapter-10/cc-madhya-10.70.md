@@ -1,9 +1,9 @@
 ### CC Madhya 10.70
 
-> এই কৃষ্ণদাসে দিব গৌড়ে পাঠাঞা ।
+> এই কৃষ্ণদাসে দিব গৌড়ে পাঠাঞা ।\
 > এত কহি’ তারে রাখিলেন আশ্বাসিয়া ॥৭০॥
 
-> ei kṛṣṇadāse diba gauḍe pāṭhāñā
+> ei kṛṣṇadāse diba gauḍe pāṭhāñā\
 > eta kahi' tāre rākhilena āśvāsiyā
 
 *ei*—this; *kṛṣṇadāse*—Kālā Kṛṣṇadāsa; *diba*—away; *gauḍe*—to Bengal; *pāṭhāñā*—let us send; *eta kahi'*—saying this; *tāre*—him; *rākhilena*—they kept; *āśvāsiyā*—giving assurance.

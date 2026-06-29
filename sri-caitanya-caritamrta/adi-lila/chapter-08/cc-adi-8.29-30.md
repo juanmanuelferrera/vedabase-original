@@ -1,14 +1,14 @@
 ### CC Adi 8.29-30
 
-> হেন কৃষ্ণনাম যদি লয় বহুবার ।
-> তবু যদি প্রেম নহে, নহে অশ্রুধার ॥২৯॥
-> তবে জানি, অপরাধ তাহাতে প্রচুর ।
+> হেন কৃষ্ণনাম যদি লয় বহুবার ।\
+> তবু যদি প্রেম নহে, নহে অশ্রুধার ॥২৯॥\
+> তবে জানি, অপরাধ তাহাতে প্রচুর ।\
 > কৃষ্ণনাম-বীজ তাহে না করে অঙ্কুর ॥৩০॥
 
-> hena kṛṣṇa-nāma yadi laya bahu-bāra
+> hena kṛṣṇa-nāma yadi laya bahu-bāra\
 > tabu yadi prema nahe, nahe aśrudhāra
 
-> tabe jāni, aparādha tāhāte pracura
+> tabe jāni, aparādha tāhāte pracura\
 > kṛṣṇa-nāma-bīja tāhe nā kare aṅkura
 
 *hena*—such; *kṛṣṇa-nāma*—holy name of the Lord; *yadi*—if; *laya*—one takes; *bahu-bāra*—again and again; *tabu*—still; *yadi*—if; *prema*—love of Godhead; *nahe*—is not visible; *naheaśru-dhāra*—there are no tears in the eyes; *tabe*—then; *jāni*—I understand; *aparādha*—offense; *tāhāte*—there (in that process); *pracura*—enough; *kṛṣṇa-nāma*—the holy name of Kṛṣṇa; *bīja*—seed; *tāhe*—in those activities; *nā*—does not; *kare*—do; *aṅkura*—sprout.

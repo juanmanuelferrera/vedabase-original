@@ -1,11 +1,11 @@
 ### Bg 2.63
 
-> क्रोधाद्भवति सम्मोहः सम्मोहात्स्मृतिविभ्रमः ।
+> क्रोधाद्भवति सम्मोहः सम्मोहात्स्मृतिविभ्रमः ।\
 > स्मृतिभ्रंशाद् बुद्धिनाशो बुद्धिनाशात्प्रणश्यति ॥६३॥
 
-> krodhād bhavati sammohaḥ
-> sammohāt smṛti-vibhramaḥ
-> smṛti-bhraṁśād buddhi-nāśo
+> krodhād bhavati sammohaḥ\
+> sammohāt smṛti-vibhramaḥ\
+> smṛti-bhraṁśād buddhi-nāśo\
 > buddhi-nāśāt praṇaśyati
 
 *krodhāt*—from anger; *bhavati*—takes place; *saṁmohaḥ*—perfect illusion; *saṁmohāt*—from illusion; *smṛti*—of memory; *vibhramaḥ*—bewilderment; *smṛti-bhraṁśāt*—after bewilderment of memory; *buddhi-nāśaḥ*—loss of intelligence; *buddhi-nāśāt*—and from loss of intelligence; *praṇaśyati*—falls down.

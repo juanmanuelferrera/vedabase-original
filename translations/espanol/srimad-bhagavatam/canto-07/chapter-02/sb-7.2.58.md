@@ -1,13 +1,13 @@
 ### SB 7.2.58
 
-> श्रीहिरण्यकशिपुरुवाच
-> बाल एवं प्रवदति सर्वे विस्मितचेतसः
+> श्रीहिरण्यकशिपुरुवाच\
+> बाल एवं प्रवदति सर्वे विस्मितचेतसः\
 > ज्ञआतयो मेनिरे सर्वमनित्यमयथोत्थितम ॥५८॥
 
-> śrī-hiraṇyakaśipur uvāca
-> bāla evaṁ pravadati
-> sarve vismita-cetasaḥ
-> jñātayo menire sarvam
+> śrī-hiraṇyakaśipur uvāca\
+> bāla evaṁ pravadati\
+> sarve vismita-cetasaḥ\
+> jñātayo menire sarvam\
 > anityam ayathotthitam
 
 *śrī-hiraṇyakaśipuḥ uvāca*—Śrī Hiraṇyakaśipu dijo; *bāle*—mientras Yamarāja en forma de niño; *evam*—así; *pravadati*—hablaba de un modo muy filosófico; *sarve*—todos; *vismita*—llenos de asombro; *cetasaḥ*—sus corazones; *jñātayaḥ*—los familiares; *menire*—ellos pensaron; *sarvam*—todo lo material; *anityam*—temporal; *ayathā-utthitam*—que surge de fenómenos temporales.

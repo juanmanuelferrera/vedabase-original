@@ -1,9 +1,9 @@
 ### CC Madhya 1.135
 
-> প্ৰতাপরুদ্রেরে কৃপা কৈল সেই স্থানে ।
+> প্ৰতাপরুদ্রেরে কৃপা কৈল সেই স্থানে ।\
 > গৌড়ীয়াভক্তে আজ্ঞা দিল বিদায়ের দিনে ॥১৩৫॥
 
-> pratāparudrere kṛpā kaila sei sthāne
+> pratāparudrere kṛpā kaila sei sthāne\
 > gauḍīyā-bhakte ājñā dila vidāyera dine
 
 *pratāparudrere*—unto King Pratāparudra; *kṛpā*—mercy; *kaila*—did; *seisthāne*—in that garden; *gauḍīyā-bhakte*—to all the devotees of Bengal; *ājñā*—the order; *dila*—gave; *vidāyera*—of departure; *dine*—on the day.

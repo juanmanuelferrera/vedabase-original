@@ -1,9 +1,9 @@
 ### CC Antya 9.142
 
-> কিন্তু মোর করিহ এক ‘আজ্ঞা’ পালন ।
+> কিন্তু মোর করিহ এক ‘আজ্ঞা’ পালন ।\
 > ‘ব্যয় না করিহ কিছু রাজার মূলধন’ ॥১৪২॥
 
-> kintu mora kariha eka 'ājñā' pālana
+> kintu mora kariha eka 'ājñā' pālana\
 > 'vyaya nā kariha kichu rājāra mūla-dhana'
 
 *kintu*—but; *mora*—My; *kariha*—just carry out; *eka*—one; *ājñā*—order; *pālana*—obedience to; *vyaya nā kariha*—never spend; *kichu*—any; *rājāra mūla-dhana*—capital of the King.

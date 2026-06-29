@@ -1,9 +1,9 @@
 ### CC Madhya 19.136
 
-> প্রভু কহে, — শুন, রূপ, ভক্তিরসের লক্ষণ ।
+> প্রভু কহে, — শুন, রূপ, ভক্তিরসের লক্ষণ ।\
 > সূত্ররূপে কহি, বিস্তার না যায় বর্ণন ॥১৩৬॥
 
-> prabhu kahe,—śuna, rūpa, bhakti-rasera lakṣaṇa
+> prabhu kahe,—śuna, rūpa, bhakti-rasera lakṣaṇa\
 > sūtra-rūpe kahi, vistāra nā yāya varṇana
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu spoke; *śuna*—please listen; *rūpa*—My dear Rūpa; *bhakti-rasera*—of the transcendental mellows in devotional service; *lakṣaṇa*—the symptoms; *sūtra-rūpe*—in the form of a synopsis; *kahi*—I shall explain; *vistāra*—the whole breadth; *nā*—not; *yāya*—is possible; *varṇana*—description.

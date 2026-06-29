@@ -1,13 +1,13 @@
 ### SB 9.10.12
 
-> दग्ध्वात्मकृत्यहतकृत्यमहन्कबन्धं
-> सख्यं विधाय कपिभिर्दयितागतिं तैः
-> बुद्ध्वाथ वालिनि हते प्लवगेन्द्रसैन्यैर
+> दग्ध्वात्मकृत्यहतकृत्यमहन्कबन्धं\
+> सख्यं विधाय कपिभिर्दयितागतिं तैः\
+> बुद्ध्वाथ वालिनि हते प्लवगेन्द्रसैन्यैर\
 > वेलामगात्स मनुजोऽजभवार्चिताङ्घ्रिः ॥१२॥
 
-> dagdhvātma-kṛtya-hata-kṛtyam ahan kabandhaṁ
-> sakhyaṁ vidhāya kapibhir dayitā-gatiṁ taiḥ
-> buddhvātha vālini hate plavagendra-sainyair
+> dagdhvātma-kṛtya-hata-kṛtyam ahan kabandhaṁ\
+> sakhyaṁ vidhāya kapibhir dayitā-gatiṁ taiḥ\
+> buddhvātha vālini hate plavagendra-sainyair\
 > velām agāt sa manujo 'ja-bhavārcitāṅghriḥ
 
 *dagdhvā*—by burning; *ātma-kṛtya-hata-kṛtyam*—after performing religious rituals required after the death of Jaṭāyu, who died for the Lord's cause; *ahan*—killed; *kabandham*—the demon Kabandha; *sakhyam*—friendship; *vidhāya*—after creating; *kapibhiḥ*—with the monkey chiefs; *dayitā-gatim*—the arrangement for delivering Sītā; *taiḥ*—by them; *buddhvā*—knowing; *atha*—thereafter; *vālini hate*—when Vāli had been killed; *plavaga-indra-sainyaiḥ*—with the help of the soldiers of the monkeys; *velām*—to the beach of the ocean; *agāt*—went; *saḥ*—He, Lord Rāmacandra; *manu-jaḥ*—appearing as a human being; *aja*—by Lord Brahmā; *bhava*—and by Lord Śiva; *arcita-aṅghriḥ*—whose lotus feet are worshiped.

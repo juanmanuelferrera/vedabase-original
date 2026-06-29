@@ -1,13 +1,13 @@
 ### SB 4.9.10
 
-> या निर्वृतिस्तनुभृतां तव पादपद्म
-> ध्यानाद्भवज्जनकथाश्रवणेन वा स्यात् ।
-> सा ब्रह्मणि स्वमहिमन्यपि नाथ मा भूत्
+> या निर्वृतिस्तनुभृतां तव पादपद्म\
+> ध्यानाद्भवज्जनकथाश्रवणेन वा स्यात् ।\
+> सा ब्रह्मणि स्वमहिमन्यपि नाथ मा भूत्\
 > किं त्वन्तकासिलुलितात्पततां विमानात् ॥१०॥
 
-> yā nirvṛtis tanu-bhṛtāṁ tava pāda-padma-
-> dhyānād bhavaj-jana-kathā-śravaṇena vā syāt
-> sā brahmaṇi sva-mahimany api nātha mā bhūt
+> yā nirvṛtis tanu-bhṛtāṁ tava pāda-padma-\
+> dhyānād bhavaj-jana-kathā-śravaṇena vā syāt\
+> sā brahmaṇi sva-mahimany api nātha mā bhūt\
 > kiṁ tv antakāsi-lulitāt patatāṁ vimānāt
 
 *yā*—la que; *nirvṛtiḥ*—bienaventuranza; *tanu-bhṛtām*—de los corporificados; *tava*—Tus; *pāda-padma*—pies de loto; *dhyānāt*—de meditar en; *bhavat-jana*—de Tus devotos íntimos; *kathā*—temas; *śravaṇena*—escuchando; *vā*—o; *syāt*—se produce; *sā*—esa felicidad; *brahmaṇi*—en el Brahman impersonal; *sva-mahimani*—Tu propia magnificencia; *api*—incluso; *nātha*—¡oh, Señor!; *mā*—nunca; *bhūt*—existe; *kim*—qué puede decirse; *tu*—entonces; *antaka-asi*—por la espada de la muerte; *lulitāt*—siendo destruidos; *patatām*—de los que caen; *vimānāt*—de sus aviones.

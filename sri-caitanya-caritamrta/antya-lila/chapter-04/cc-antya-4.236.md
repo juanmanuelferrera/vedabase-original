@@ -1,9 +1,9 @@
 ### CC Antya 4.236
 
-> এই তিনগুরু, আর রঘুনাথদাস ।
+> এই তিনগুরু, আর রঘুনাথদাস ।\
 > ইঁহা-সবার চরণ বন্দোঁ, যাঁর মুঞি ‘দাস’ ॥২৩৬॥
 
-> ei tina-guru, āra raghunātha-dāsa
+> ei tina-guru, āra raghunātha-dāsa\
 > iṅhā-sabāra caraṇa vandoṅ, yāṅra muñi 'dāsa'
 
 *ei*—these; *tina-guru*—three spiritual masters; *āra*—also; *raghunātha-dāsa*—Raghunātha dāsa Gosvāmī; *iṅhā-sabāra*—of all of them; *caraṇa*—the lotus feet; *vandoṅ*—I worship; *yāṅra*—of whom; *muñi*—I; *dāsa*—the servant.

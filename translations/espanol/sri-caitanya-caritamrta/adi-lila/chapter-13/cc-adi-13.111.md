@@ -1,13 +1,13 @@
 ### CC Adi 13.111
 
-> অদ্বৈত-আচার্য-ভার্যা, জগৎপূজিতা আর্যা,
-> নাম তাঁর ‘সীতা ঠাকুরাণী’ ।
-> আচার্যের আজ্ঞা পাঞা, গেল উপহার লঞা,
+> অদ্বৈত-আচার্য-ভার্যা, জগৎপূজিতা আর্যা,\
+> নাম তাঁর ‘সীতা ঠাকুরাণী’ ।\
+> আচার্যের আজ্ঞা পাঞা, গেল উপহার লঞা,\
 > দেখিতে বালক-শিরোমণি ॥১১১॥
 
-> advaita-ācārya-bhāryā, jagat-pūjitā āryā,
-> nāma tāṅra 'sītā ṭhākurāṇī'
-> ācāryera ājñā pāñā, gela upahāra lañā,
+> advaita-ācārya-bhāryā, jagat-pūjitā āryā,\
+> nāma tāṅra 'sītā ṭhākurāṇī'\
+> ācāryera ājñā pāñā, gela upahāra lañā,\
 > dekhite bālaka-śiromaṇi
 
 *advaita-ācārya-bhāryā*—la esposa de Advaita Ācārya; *jagat-pūjitā*—adorada por todo el mundo; *āryā*—la más avanzada de las damas cultas; *nāma*—nombre; *tāṅra*—de ella; *sītā ṭhākurāṇī*—madre Sītā; *ācāryera ājñā pāñā*—recibiendo la orden de Advaita Ācārya; *gela*—fue; *upahāra*—presente; *lañā*—llevando; *dekhite*—a ver; *bālaka*—al niño; *śiromaṇi*—el más excelso.

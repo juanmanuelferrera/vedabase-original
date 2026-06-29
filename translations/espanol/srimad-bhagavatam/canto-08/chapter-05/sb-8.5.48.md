@@ -1,11 +1,11 @@
 ### SB 8.5.48
 
-> नावमः कर्मकल्पोऽपि विफलायेश्वरार्पितः
+> नावमः कर्मकल्पोऽपि विफलायेश्वरार्पितः\
 > कल्पते पुरुषस्यैव स ह्यात्मा दयितो हितः ॥४८॥
 
-> nāvamaḥ karma-kalpo 'pi
-> viphalāyeśvarārpitaḥ
-> kalpate puruṣasyaiva
+> nāvamaḥ karma-kalpo 'pi\
+> viphalāyeśvarārpitaḥ\
+> kalpate puruṣasyaiva\
 > sa hy ātmā dayito hitaḥ
 
 *na*—no; *avamaḥ*—muy pocas, o insignificantes; *karma*—actividades; *kalpaḥ*—realizadas correctamente; *api*—incluso; *viphalāya*—son en vano; *īśvara-arpitaḥ*—por estar dedicadas a la Suprema Personalidad de Dios; *kalpate*—así lo aceptan; *puruṣasya*—de todas las personas; *eva*—en verdad; *saḥ*—la Suprema Personalidad de Dios; *hi*—ciertamente; *ātmā*—la Superalma, el padre supremo; *dayitaḥ*—sumamente querido; *hitaḥ*—beneficioso.

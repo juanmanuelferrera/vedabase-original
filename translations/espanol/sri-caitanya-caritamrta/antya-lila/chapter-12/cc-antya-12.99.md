@@ -1,9 +1,9 @@
 ### CC Antya 12.99
 
-> চৈতন্যের মর্মকথা শুনে তাঁর মুখে ।
+> চৈতন্যের মর্মকথা শুনে তাঁর মুখে ।\
 > আপনা পাসরে সবে চৈতন্য-কথা-সুখে ॥৯৯॥
 
-> caitanyera marma-kathā śune tāṅra mukhe
+> caitanyera marma-kathā śune tāṅra mukhe\
 > āpanā pāsare sabe caitanya-kathā-sukhe
 
 *caitanyera*—del Señor Caitanya Mahāprabhu; *marma-kathā*—conversaciones confidenciales; *śune*—escuchan; *tāṅra mukhe*—de su boca; *āpanā pāsare*—se olvidan de sí mismos; *sabe*—todos ellos; *caitanya-kathā-sukhe*—en la felicidad de las conversaciones sobre el Señor Caitanya.

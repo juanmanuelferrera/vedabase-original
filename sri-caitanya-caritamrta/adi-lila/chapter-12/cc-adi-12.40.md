@@ -1,9 +1,9 @@
 ### CC Adi 12.40
 
-> মুক্তি — শ্রেষ্ঠ করি’ কৈনু বাশিষ্ঠ ব্যাখ্যান ।
+> মুক্তি — শ্রেষ্ঠ করি’ কৈনু বাশিষ্ঠ ব্যাখ্যান ।\
 > ক্রুদ্ধ হঞা প্রভু মোরে কৈল অপমান ॥৪০॥
 
-> mukti—śreṣṭha kari' kainu vāśiṣṭha vyākhyāna
+> mukti—śreṣṭha kari' kainu vāśiṣṭha vyākhyāna\
 > kruddha hañā prabhu more kaila apamāna
 
 *mukti*—liberation; *śreṣṭha*—the topmost; *kari'*—accepting; *kainu*—I did; *vāśiṣṭha*—the book known as *Yoga-vāśiṣṭha*; *vyākhyāna*—explanation; *kruddha*—angry; *hañā*—becoming; *prabhu*—the Lord; *more*—unto Me; *kaila*—did; *apamāna*—disrespect.

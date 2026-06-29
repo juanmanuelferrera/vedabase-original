@@ -1,11 +1,11 @@
 ### SB 4.24.79
 
-> गीतं मयेदं नरदेवनन्दनाः परस्य पुंसः परमात्मनः स्तवम् ।
+> गीतं मयेदं नरदेवनन्दनाः परस्य पुंसः परमात्मनः स्तवम् ।\
 > जपन्त एकाग्रधियस्तपो महत्चरध्वमन्ते तत आप्स्यथेप्सितम् ॥७९॥
 
-> gītaṁ mayedaṁ naradeva-nandanāḥ
-> parasya puṁsaḥ paramātmanaḥ stavam
-> japanta ekāgra-dhiyas tapo mahat
+> gītaṁ mayedaṁ naradeva-nandanāḥ\
+> parasya puṁsaḥ paramātmanaḥ stavam\
+> japanta ekāgra-dhiyas tapo mahat\
 > caradhvam ante tata āpsyathepsitam
 
 *gītam*—canción; *mayā*—por mí; *idam*—esta; *naradeva-nandanāḥ*—¡oh, hijos del rey!; *parasya*—de la Suprema; *puṁsaḥ*—Personalidad de Dios; *parama-ātmanaḥ*—la Superalma de todos; *stavam*—oración; *japantaḥ*—cantar; *eka-agra*—atención perfecta; *dhiyaḥ*—inteligencia; *tapaḥ*—austeridades; *mahat*—grandes; *caradhvam*—practiquen; *ante*—al final; *tataḥ*—a continuación; *āpsyatha*—obtendrán; *īpsitam*—el resultado deseado.

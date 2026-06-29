@@ -1,11 +1,11 @@
 ### CC Madhya 8.95
 
-> তত্রাতিশুশুভে তাভির্ভগবান্ দেবকীসুতঃ ৷
+> তত্রাতিশুশুভে তাভির্ভগবান্ দেবকীসুতঃ ৷\
 > মধ্যে মণীনাং হৈমানাং মহামরকতো যথা ৷৷ ৯৫ ৷৷ ॥৯৫॥
 
-> tatrātiśuśubhe tābhir
-> bhagavān devakī-sutaḥ
-> madhye maṇīnāṁ haimānāṁ
+> tatrātiśuśubhe tābhir\
+> bhagavān devakī-sutaḥ\
+> madhye maṇīnāṁ haimānāṁ\
 > mahā-marakato yathā
 
 *tatra*—allí; *ati-śuśubhe*—lucía sumamente hermoso; *tābhiḥ*—por ellas; *bhagavān*—la Suprema Personalidad de Dios; *devakī-sutaḥ*—el hijo de Devakī; *madhye*—en medio; *maṇīnām*—de joyas preciosas; *haimānām*—engarzadas en oro; *mahā-marakataḥ*—la joya llamada marakata; *yathā*—como.

@@ -1,11 +1,11 @@
 ### SB 8.7.23
 
-> त्वमेकः सर्वजगत ईश्वरो बन्धमोक्षयोः
+> त्वमेकः सर्वजगत ईश्वरो बन्धमोक्षयोः\
 > तं त्वामर्चन्ति कुशलाः प्रपन्नार्तिहरं गुरुम ॥२३॥
 
-> guṇa-mayyā sva-śaktyāsya
-> sarga-sthity-apyayān vibho
-> dhatse yadā sva-dṛg bhūman
+> guṇa-mayyā sva-śaktyāsya\
+> sarga-sthity-apyayān vibho\
+> dhatse yadā sva-dṛg bhūman\
 > brahma-viṣṇu-śivābhidhām
 
 *guṇa-mayyā*—actuando en tres modalidades de actividad; *sva-śaktyā*—por la energía externa de Tu Señoría; *asya*—del mundo material; *sarga-sthiti-apyayān*—creación, mantenimiento y aniquilación; *vibho*—¡oh, señor!; *dhatse*—realizas; *yadā*—cuando; *sva-dṛk*—te manifiestas; *bhūman*—¡oh, grande!; *brahma-viṣṇu-śiva-abhidhām*—como el Señor Brahmā, el Señor Viṣṇu o el Señor Śiva.

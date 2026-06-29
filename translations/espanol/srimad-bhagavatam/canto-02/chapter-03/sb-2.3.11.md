@@ -1,11 +1,11 @@
 ### SB 2.3.11
 
-> एतावानेव यजतामिह निःश्रेयसोदयः ।
+> एतावानेव यजतामिह निःश्रेयसोदयः ।\
 > भगवत्यचलो भावो यद्भागवतसङ्गतः ॥११॥
 
-> etāvān eva yajatām
-> iha niḥśreyasodayaḥ
-> bhagavaty acalo bhāvo
+> etāvān eva yajatām\
+> iha niḥśreyasodayaḥ\
+> bhagavaty acalo bhāvo\
 > yad bhāgavata-saṅgataḥ
 
 *etāvān*—todas esas diferentes clases de adoradores; *eva*—ciertamente; *yajatām*—mientras adoran; *iha*—en esta vida; *niḥśreyasa*—la bendición máxima; *udayaḥ*—desarrollo; *bhagavati*—a la Suprema Personalidad de Dios; *acalaḥ*—resuelta; *bhāvaḥ*—atracción espontánea; *yat*—la cual; *bhāgavata*—el devoto puro del Señor; *saṅgataḥ*—compañía.

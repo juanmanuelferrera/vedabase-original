@@ -1,9 +1,9 @@
 ### CC Madhya 14.133
 
-> বান্ধিয়া আনিয়া পাড়ে লক্ষ্মীর চরণে ।
+> বান্ধিয়া আনিয়া পাড়ে লক্ষ্মীর চরণে ।\
 > চোরে যেন দণ্ড করি’ লয় নানা-ধনে ॥১৩৩॥
 
-> bāndhiyā āniyā pāḍe lakṣmīra caraṇe
+> bāndhiyā āniyā pāḍe lakṣmīra caraṇe\
 > core yena daṇḍa kari' laya nānā-dhane
 
 *bāndhiyā*—tras atar; *āniyā*—trayendo; *pāḍe*—hacen caer; *lakṣmīra caraṇe*—a los pies de loto de la diosa de la fortuna; *core*—un ladrón; *yena*—como si; *daṇḍa kari'*—tras castigar; *laya*—toman; *nānā-dhane*—toda clase de riquezas.

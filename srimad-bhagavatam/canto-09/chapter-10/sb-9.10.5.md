@@ -1,11 +1,11 @@
 ### SB 9.10.5
 
-> विश्वामित्राध्वरे येन मारीचाद्या निशाचराः
+> विश्वामित्राध्वरे येन मारीचाद्या निशाचराः\
 > पश्यतो लक्ष्मणस्यैव हता नैरृतपुङ्गवाः ॥५॥
 
-> viśvāmitrādhvare yena
-> mārīcādyā niśā-carāḥ
-> paśyato lakṣmaṇasyaiva
+> viśvāmitrādhvare yena\
+> mārīcādyā niśā-carāḥ\
+> paśyato lakṣmaṇasyaiva\
 > hatā nairṛta-puṅgavāḥ
 
 *viśvāmitra-adhvare*—in the sacrificial arena of the great sage Viśvāmitra; *yena*—by whom (Lord Rāmacandra); *mārīca-ādyāḥ*—headed by Mārīca; *niśā-carāḥ*—the uncivilized persons wandering at night in the darkness of ignorance; *paśyataḥ lakṣmaṇasya*—being seen by Lakṣmaṇa; *eva*—indeed; *hatāḥ*—were killed; *nairṛta-puṅgavāḥ*—the great chiefs of the Rākṣasas.

@@ -1,9 +1,9 @@
 ### SB 5.4.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > अथ ह तमुत्पत्त्यैवाभिव्यज्यमानभगवल्लक्षणं साम्योपशमवैराग्यैश्वर्यमहाविभूतिभिरनुदिनमेधमानानुभावं प्रकृतयः प्रजा ब्राह्मणा देवताश्चावनितलसमवनायातितरांजगृधुः ॥१॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > atha ha tam utpattyaivābhivyajyamāna-bhagaval-lakṣaṇaṁ sāmyopaśama-vairāgyaiśvarya-mahā-vibhūtibhir anudinam edhamānānubhāvaṁ prakṛtayaḥ prajā brāhmaṇā devatāś cāvani-tala-samavanāyātitarāṁ jagṛdhuḥ.
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *atha ha*—de este modo (después del advenimiento de la Suprema Personalidad de Dios); *tam*—a Él; *utpattyā*—desde el principio de Su aparición; *eva*—incluso; *abhivyajyamāna*—claramente manifestadas; *bhagavat-lakṣaṇam*—con las características de la Suprema Personalidad de Dios; *sāmya*—ecuánime con todos; *upaśama*—completamente pacífico, con los sentidos y la mente controlados; *vairāgya*—renunciación; *aiśvarya*—opulencias; *mahā-vibhūtibhiḥ*—con grandes atributos; *anudinam*—día tras día; *edhamāna*—en aumento; *anubhāvam*—Su poder; *prakṛtayaḥ*—los ministros; *prajāḥ*—los ciudadanos; *brāhmaṇāḥ*—los sabios eruditos, con conocimiento completo del Brahman; *devatāḥ*—los semidioses; *ca*—y; *avani-tala*—la superficie del globo; *samavanāya*—para gobernar; *atitarām*—muy; *jagṛdhuḥ*—deseado.

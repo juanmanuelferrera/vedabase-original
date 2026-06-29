@@ -1,18 +1,18 @@
 ### SB 9.23.20-21
 
-> यत्रावतीर्णो भगवान्परमात्मा नराकृतिः
-> यदोः सहस्रजित्क्रोष्टा नलो रिपुरिति श्रुताः ॥२०॥
-> चत्वारः सूनवस्तत्र शतजित्प्रथमात्मजः
+> यत्रावतीर्णो भगवान्परमात्मा नराकृतिः\
+> यदोः सहस्रजित्क्रोष्टा नलो रिपुरिति श्रुताः ॥२०॥\
+> चत्वारः सूनवस्तत्र शतजित्प्रथमात्मजः\
 > महाहयो रेणुहयो हैहयश्चेति तत्सुताः ॥२१॥
 
-> yatrāvatīrṇo bhagavān
-> paramātmā narākṛtiḥ
-> yadoḥ sahasrajit kroṣṭā
+> yatrāvatīrṇo bhagavān\
+> paramātmā narākṛtiḥ\
+> yadoḥ sahasrajit kroṣṭā\
 > nalo ripur iti śrutāḥ
 
-> catvāraḥ sūnavas tatra
-> śatajit prathamātmajaḥ
-> mahāhayo reṇuhayo
+> catvāraḥ sūnavas tatra\
+> śatajit prathamātmajaḥ\
+> mahāhayo reṇuhayo\
 > haihayaś ceti tat-sutāḥ
 
 *yatra*—donde, dinastía en la cual; *avatīrṇaḥ*—descendió; *bhagavān*—la Suprema Personalidad de Dios, Kṛṣṇa; *paramātmā*—que es la Superalma de todas las entidades vivientes; *nara-ākṛtiḥ*—una persona, con todo el aspecto de un ser humano; *yadoḥ*—de Yadu; *sahasrajit*—Sahasrajit; *kroṣṭā*—Kroṣṭā; *nalaḥ*—Nala; *ripuḥ*—Ripu; *iti śrutāḥ*—así conocidos; *catvāraḥ*—cuatro; *sūnavaḥ*—hijos; *tatra*—allí; *śatajit*—Śatajit; *prathama-ātmajaḥ*—de los primeros hijos; *mahāhayaḥ*—Mahāhaya; *reṇuhayaḥ*—Reṇuhaya; *haihayaḥ*—Haihaya; *ca*—y; *iti*—así; *tat-sutāḥ*—sus hijos (los hijos de Śatajit).

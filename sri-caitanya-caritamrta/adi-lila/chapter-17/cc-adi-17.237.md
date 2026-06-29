@@ -1,9 +1,9 @@
 ### CC Adi 17.237
 
-> বংশীবাদ্যে গোপীগণের বনে আকর্ষণ ।
+> বংশীবাদ্যে গোপীগণের বনে আকর্ষণ ।\
 > তাঁ-সবার সঙ্গে যৈছে বন-বিহরণ ॥২৩৭॥
 
-> vaṁśī-vādye gopī-gaṇera vane ākarṣaṇa
+> vaṁśī-vādye gopī-gaṇera vane ākarṣaṇa\
 > tāṅ-sabāra saṅge yaiche vana-viharaṇa
 
 *vaṁśī-vādye*—on hearing the sound of the flute; *gopī-gaṇera*—of all the gopīs; *vane*—in the forest; *ākarṣaṇa*—the attraction; *tāṅ-sabāra*—of all of them; *saṅge*—in the company; *yaiche*—in what way; *vana*—in the forest; *viharaṇa*—wandering.

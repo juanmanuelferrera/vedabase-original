@@ -1,13 +1,13 @@
 ### SB 4.29.60
 
-> नारद उवाच
-> येनैवारभते कर्म तेनैवामुत्र तत्पुमान् ।
+> नारद उवाच\
+> येनैवारभते कर्म तेनैवामुत्र तत्पुमान् ।\
 > भुङ्क्ते ह्यव्यवधानेन लिङ्गेन मनसा स्वयम् ॥६०॥
 
-> nārada uvāca
-> yenaivārabhate karma
-> tenaivāmutra tat pumān
-> bhuṅkte hy avyavadhānena
+> nārada uvāca\
+> yenaivārabhate karma\
+> tenaivāmutra tat pumān\
+> bhuṅkte hy avyavadhānena\
 > liṅgena manasā svayam
 
 *nāradaḥ uvāca*—Nārada dijo; *yena*—por el cual; *eva*—ciertamente; *ārabhate*—comienza; *karma*—actividades fruitivas; *tena*—por ese cuerpo; *eva*—ciertamente; *amutra*—en la siguiente vida; *tat*—esa; *pumān*—la entidad viviente; *bhuṅkte*—disfruta; *hi*—debido a; *avyavadhānena*—sin cambio alguno; *liṅgena*—con el cuerpo sutil; *manasā*—con la mente; *svayam*—personalmente.

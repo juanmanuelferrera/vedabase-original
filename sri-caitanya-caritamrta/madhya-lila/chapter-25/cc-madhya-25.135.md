@@ -1,9 +1,9 @@
 ### CC Madhya 25.135
 
-> এইত’ ‘সম্বন্ধ’, শুন ‘অভিধেয়’ ভক্তি ।
+> এইত’ ‘সম্বন্ধ’, শুন ‘অভিধেয়’ ভক্তি ।\
 > ভাগবতে প্রতি-শ্লোকে ব্যাপে যার স্থিতি ॥১৩৫॥
 
-> eita' 'sambandha', śuna 'abhidheya' bhakti
+> eita' 'sambandha', śuna 'abhidheya' bhakti\
 > bhāgavate prati-śloke vyāpe yāra sthiti
 
 *eita'*—this; *sambandha*—relationship; *śuna*—please hear; *abhidheya*—the function; *bhakti*—known as devotional service; *bhāgavate*—in *Śrīmad-Bhāgavatam*; *prati-śloke*—in each and every verse; *vyāpe*—pervades; *yāra*—of which; *sthiti*—the situation.

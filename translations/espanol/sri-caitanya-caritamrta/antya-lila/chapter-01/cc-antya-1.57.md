@@ -1,9 +1,9 @@
 ### CC Antya 1.57
 
-> তোমা-দুঁহার কৃপাতে ইহাঁর হউ তৈছে শক্তি  ।
+> তোমা-দুঁহার কৃপাতে ইহাঁর হউ তৈছে শক্তি  ।\
 > যাতে বিবরিতে পারেন কৃষ্ণরসভক্তি ॥৫৭॥
 
-> tomā-duṅhāra kṛpāte iṅhāra ha-u taiche śakti
+> tomā-duṅhāra kṛpāte iṅhāra ha-u taiche śakti\
 > yāte vivarite pārena kṛṣṇa-rasa-bhakti
 
 *tomā-duṅhāra kṛpāte*—por la misericordia de Ustedes dos; *iṅhāra*—de Rūpa Gosvāmī; *ha-u*—que haya; *taiche*—tal; *śakti*—poder; *yāte*—por el cual; *vivarite*—describir; *pārena*—sea capaz; *kṛṣṇa-rasa-bhakti*—los melosidades trascendentales del servicio devocional.

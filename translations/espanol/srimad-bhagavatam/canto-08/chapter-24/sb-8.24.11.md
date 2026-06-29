@@ -1,11 +1,11 @@
 ### SB 8.24.11
 
-> योऽसावस्मिन्महाकल्पे तनयः स विवस्वतः
+> योऽसावस्मिन्महाकल्पे तनयः स विवस्वतः\
 > श्राद्धदेव इति ख्यातो मनुत्वे हरिणार्पितः ॥११॥
 
-> yo 'sāv asmin mahā-kalpe
-> tanayaḥ sa vivasvataḥ
-> śrāddhadeva iti khyāto
+> yo 'sāv asmin mahā-kalpe\
+> tanayaḥ sa vivasvataḥ\
+> śrāddhadeva iti khyāto\
 > manutve hariṇārpitaḥ
 
 *yaḥ*—aquel que; *asau*—Él (la Persona Suprema); *asmin*—en este; *mahā-kalpe*—gran milenio; *tanayaḥ*—hijo; *saḥ*—él; *vivasvataḥ*—del dios del Sol; *śrāddhadevaḥ*—con el nombre de Śrāddhadeva; *iti*—así; *khyātaḥ*—famoso; *manutve*—en la posición de *manu*; *hariṇā*—por la Suprema Personalidad de Dios; *arpitaḥ*—fue situado.

@@ -1,9 +1,9 @@
 ### CC Adi 7.51
 
-> তোমারে নিন্দয়ে যত সন্ন্যাসীর গণ ।
+> তোমারে নিন্দয়ে যত সন্ন্যাসীর গণ ।\
 > শুনিতে না পারি, ফাটে হৃদয়-শ্রবণ ॥৫১॥
 
-> tomāre nindaye yata sannyāsīra gaṇa
+> tomāre nindaye yata sannyāsīra gaṇa\
 > śunite nā pāri, phāṭe hṛdaya-śravaṇa
 
 *tomāre*—a Ti; *nindaye*—blasfeman; *yata*—todos; *sannyāsīra gaṇa*—los *sannyāsīs* māyāvādīs; *śunite*—oír; *nā*—no; *pāri*—podemos; *phāṭe*—se rompe; *hṛdaya*—nuestros corazones; *śravaṇa*—al escuchar tal blasfemia.

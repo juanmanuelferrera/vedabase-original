@@ -1,11 +1,11 @@
 ### SB 1.13.38
 
-> अथाजगाम भगवान्नारदः सहतुम्बुरुः ।
+> अथाजगाम भगवान्नारदः सहतुम्बुरुः ।\
 > प्रत्युत्थायाभिवाद्याह सानुजोऽभ्यर्चयन्मुनिम् ॥३८॥
 
-> athājagāma bhagavān
-> nāradaḥ saha-tumburuḥ
-> pratyutthāyābhivādyāha
+> athājagāma bhagavān\
+> nāradaḥ saha-tumburuḥ\
+> pratyutthāyābhivādyāha\
 > sānujo 'bhyarcayan munim
 
 *atha*—thereafter; *ājagāma*—arrived; *bhagavān*—the godly personality; *nāradaḥ*—Nārada; *saha-tumburuḥ*—along with his *tumburu* (musical instrument); *pratyutthāya*—having gotten up from their seats; *abhivādya*—offering their due obeisances; *āha*—said; *sa-anujaḥ*—along with younger brothers; *abhyarcayan*—thus while receiving in a proper mood; *munim*—the sage.

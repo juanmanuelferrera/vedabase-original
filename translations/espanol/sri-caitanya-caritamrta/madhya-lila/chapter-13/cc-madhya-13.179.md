@@ -1,9 +1,9 @@
 ### CC Madhya 13.179
 
-> কভু সুখে নৃত্যরঙ্গ দেখে রথ রাখি’ ।
+> কভু সুখে নৃত্যরঙ্গ দেখে রথ রাখি’ ।\
 > সে কৌতুক যে দেখিল, সেই তার সাক্ষী ॥১৭৯॥
 
-> kabhu sukhe nṛtya-raṅga dekhe ratha rākhi'
+> kabhu sukhe nṛtya-raṅga dekhe ratha rākhi'\
 > se kautuka ye dekhila, sei tāra sākṣī
 
 *kabhu*—a veces; *sukhe*—con gran felicidad; *nṛtya-raṅga*—la diversión de la danza; *dekhe*—observan; *ratha*—el carro; *rākhi'*—deteniendo; *se kautuka*—esa diversión; *ye*—quienquiera que; *dekhila*—vio; *sei*—esa persona; *tāra*—de eso; *sākṣī*—testigo.

@@ -1,13 +1,13 @@
 ### CC Madhya 21.131
 
-> বিপুলায়তারুণ, মদন-মদ-ঘূর্ণন,
-> মন্ত্রী যার এ দুই নয়ন ।
-> লাবণ্যকেলি-সদন, জন-নেত্র-রসায়ন,
+> বিপুলায়তারুণ, মদন-মদ-ঘূর্ণন,\
+> মন্ত্রী যার এ দুই নয়ন ।\
+> লাবণ্যকেলি-সদন, জন-নেত্র-রসায়ন,\
 > সুখময় গোবিন্দ-বদন ॥১৩১॥
 
-> vipulāyatāruṇa, madana-mada-ghūrṇana,
-> mantrī yāra e dui nayana
-> lāvaṇya-keli-sadana, jana-netra-rasāyana,
+> vipulāyatāruṇa, madana-mada-ghūrṇana,\
+> mantrī yāra e dui nayana\
+> lāvaṇya-keli-sadana, jana-netra-rasāyana,\
 > sukhamaya govinda-vadana
 
 *vipula-āyata*—broad and spread; *aruṇa*—reddish; *madana-mada*—the pride of Cupid; *ghūrṇana*—bewildering; *mantrī*—ministers; *yāra*—whose; *e*—these; *dui*—two; *nayana*—eyes; *lāvaṇya-keli*—of pastimes of beauty; *sadana*—home; *jana-netra-rasa-āyana*—very pleasing to the eyes of everyone; *sukha-maya*—full of happiness; *govinda-vadana*—the face of Lord Kṛṣṇa.

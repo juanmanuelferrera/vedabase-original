@@ -1,9 +1,9 @@
 ### CC Madhya 15.117
 
-> শুনি’ হর্ষে কহে প্রভু — “কহিলে নিশ্চয় ।
+> শুনি’ হর্ষে কহে প্রভু — “কহিলে নিশ্চয় ।\
 > যাঁহা হৈতে কৃষ্ণভক্তি সেই গুরু হয়” ॥১১৭॥
 
-> śuni' harṣe kahe prabhu—"kahile niścaya
+> śuni' harṣe kahe prabhu—"kahile niścaya\
 > yāṅhā haite kṛṣṇa-bhakti sei guru haya"
 
 *śuni'*—hearing; *harṣe*—in great jubilation; *kahe prabhu*—Śrī Caitanya Mahāprabhu said; *kahile niścaya*—you have spoken correctly; *yāṅhā haite*—from whom; *kṛṣṇa-bhakti*—devotion to Kṛṣṇa; *sei*—that person; *guru haya*—is the spiritual master.

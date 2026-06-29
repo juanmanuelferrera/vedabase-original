@@ -1,11 +1,11 @@
 ### SB 4.25.16
 
-> सभाचत्वररथ्याभिराक्रीडायतनापणैः ।
+> सभाचत्वररथ्याभिराक्रीडायतनापणैः ।\
 > चैत्यध्वजपताकाभिर्युक्तां विद्रुमवेदिभिः ॥१६॥
 
-> sabhā-catvara-rathyābhir
-> ākrīḍāyatanāpaṇaiḥ
-> caitya-dhvaja-patākābhir
+> sabhā-catvara-rathyābhir\
+> ākrīḍāyatanāpaṇaiḥ\
+> caitya-dhvaja-patākābhir\
 > yuktāṁ vidruma-vedibhiḥ
 
 *sabhā*—centros de reunión; *catvara*—plazas; *rathyābhiḥ*—con calles; *ākrīḍa-āyatana*—casinos; *āpaṇaiḥ*—tiendas; *caitya*—lugares de reposo; *dhvaja-patākābhiḥ*—con banderas y festones; *yuktām*—decorados; *vidruma*—sin árboles; *vedibhiḥ*—con plataformas.

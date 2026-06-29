@@ -1,11 +1,11 @@
 ### SB 3.5.24
 
-> स वा एष तदा द्रष्टा नापश्यद्दृश्यमेकराट् ।
+> स वा एष तदा द्रष्टा नापश्यद्दृश्यमेकराट् ।\
 > मेनेऽसन्तमिवात्मानं सुप्तशक्तिरसुप्तदृक् ॥२४॥
 
-> sa vā eṣa tadā draṣṭā
-> nāpaśyad dṛśyam ekarāṭ
-> mene 'santam ivātmānaṁ
+> sa vā eṣa tadā draṣṭā\
+> nāpaśyad dṛśyam ekarāṭ\
+> mene 'santam ivātmānaṁ\
 > supta-śaktir asupta-dṛk
 
 *saḥ*—the Personality of Godhead; *vā*—either; *eṣaḥ*—all these; *tadā*—at that time; *draṣṭā*—the seer; *na*—did not; *apaśyat*—see; *dṛśyam*—the cosmic creation; *eka-rāṭ*—undisputed proprietor; *mene*—thought like this; *asantam*—nonexistent; *iva*—like that; *ātmānam*—plenary manifestations; *supta*—unmanifested; *śaktiḥ*—material energy; *asupta*—manifested; *dṛk*—internal potency.

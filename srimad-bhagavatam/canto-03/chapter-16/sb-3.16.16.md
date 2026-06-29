@@ -1,13 +1,13 @@
 ### SB 3.16.16
 
-> ऋषय ऊचुः
-> न वयं भगवन्विद्मस्तव देव चिकीर्षितम् ।
+> ऋषय ऊचुः\
+> न वयं भगवन्विद्मस्तव देव चिकीर्षितम् ।\
 > कृतो मेऽनुग्रहश्चेति यदध्यक्षः प्रभाषसे ॥१६॥
 
-> ṛṣaya ūcuḥ
-> na vayaṁ bhagavan vidmas
-> tava deva cikīrṣitam
-> kṛto me 'nugrahaś ceti
+> ṛṣaya ūcuḥ\
+> na vayaṁ bhagavan vidmas\
+> tava deva cikīrṣitam\
+> kṛto me 'nugrahaś ceti\
 > yad adhyakṣaḥ prabhāṣase
 
 *ṛṣayaḥ*—the sages; *ūcuḥ*—said; *na*—not; *vayam*—we; *bhagavan*—O Supreme Personality of Godhead; *vidmaḥ*—did know; *tava*—Your; *deva*—O Lord; *cikīrṣitam*—wish for us to do; *kṛtaḥ*—has been done; *me*—unto Me; *anugrahaḥ*—favor; *ca*—and; *iti*—thus; *yat*—which; *adhyakṣaḥ*—the supreme ruler; *prabhāṣase*—You say.

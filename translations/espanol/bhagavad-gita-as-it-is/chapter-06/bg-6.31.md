@@ -1,11 +1,11 @@
 ### Bg 6.31
 
-> सर्वभूतस्थितं यो मां भजत्येकत्वमास्थितः ।
+> सर्वभूतस्थितं यो मां भजत्येकत्वमास्थितः ।\
 > सर्वथा वर्तमानोऽपि स योगी मयि वर्तते ॥३१॥
 
-> sarva-bhūta-sthitaṁ yo māṁ
-> bhajaty ekatvam āsthitaḥ
-> sarvathā vartamāno'pi
+> sarva-bhūta-sthitaṁ yo māṁ\
+> bhajaty ekatvam āsthitaḥ\
+> sarvathā vartamāno'pi\
 > sa yogī mayi vartate
 
 *sarva-bhūta-sthitam*—situado en el corazón de todos; *yaḥ*—aquel que; *mām*—a Mí; *bhajati*—sirve en el servicio devocional; *ekatvam*—unidad; *āsthitaḥ*—situado así; *sarvathā*—en todos los aspectos; *vartamānaḥ*—estando situado; *api*—a pesar de; *saḥ*—él; *yogī*—el trascendentalista; *mayi*—a Mí; *vartate*—permanece.

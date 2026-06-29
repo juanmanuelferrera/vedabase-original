@@ -1,9 +1,9 @@
 ### CC Antya 7.161
 
-> “আমি চালাইলুঁ তোমা, তুমি না চলিলা  ।
+> “আমি চালাইলুঁ তোমা, তুমি না চলিলা  ।\
 > ক্রোধে কিছু না কহিলা, সকল সহিলা ॥১৬১॥
 
-> "āmi cālāiluṅ tomā, tumi nā calilā
+> "āmi cālāiluṅ tomā, tumi nā calilā\
 > krodhe kichu nā kahilā, sakala sahilā
 
 *āmi*—I; *cālāiluṅ*—tried to agitate; *tomā*—you; *tumi*—you; *nā calilā*—did not become agitated; *krodhe*—in anger; *kichu*—anything; *nā kahilā*—you did not say; *sakala*—everything; *sahilā*—you tolerated.

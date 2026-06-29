@@ -1,11 +1,11 @@
 ### SB 6.1.54
 
-> लब्ध्वा निमित्तमव्यक्तं व्यक्ताव्यक्तं भवत्युत
+> लब्ध्वा निमित्तमव्यक्तं व्यक्ताव्यक्तं भवत्युत\
 > यथायोनि यथाबीजं स्वभावेन बलीयसा ॥५४॥
 
-> labdhvā nimittam avyaktaṁ
-> vyaktāvyaktaṁ bhavaty uta
-> yathā-yoni yathā-bījaṁ
+> labdhvā nimittam avyaktaṁ\
+> vyaktāvyaktaṁ bhavaty uta\
+> yathā-yoni yathā-bījaṁ\
 > svabhāvena balīyasā
 
 *labdhvā*—habiendo recibido; *nimittam*—la causa; *avyaktam*—invisible o desconocida para la persona; *vyakta-avyaktam*—manifestado y no manifestado, o los cuerpos denso y sutil; *bhavati*—llega a ser; *uta*—ciertamente; *yathā-yoni*—semejante a la madre; *yathā-bījam*—semejante al padre; *sva-bhāvena*—por la tendencia natural; *balīyasā*—que es muy poderosa.

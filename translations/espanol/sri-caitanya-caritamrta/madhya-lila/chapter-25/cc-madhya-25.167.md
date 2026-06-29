@@ -1,9 +1,9 @@
 ### CC Madhya 25.167
 
-> নিজ-লোক লঞা প্রভু আইলা বাসাঘর ৷
+> নিজ-লোক লঞা প্রভু আইলা বাসাঘর ৷\
 > বারাণসী হৈল দ্বিতীয় নদীয়া-নগর ৷৷ ১৬৭ ৷৷ ॥১৬৭॥
 
-> nija-loka lañā prabhu āilā vāsāghara
+> nija-loka lañā prabhu āilā vāsāghara\
 > vārāṇasī haila dvitīya nadīyā-nagara
 
 *nija-loka lañā*—con Sus asociados personales; *prabhu*—Śrī Caitanya Mahāprabhu; *āilā vāsa-aghara*—llegó a Su lugar de residencia; *vārāṇasī*—la ciudad de Vārāṇasī; *haila*—se convirtió; *dvitīya*—en una segunda; *nadīyā-nagara*—Navadvīpa (Nadia).

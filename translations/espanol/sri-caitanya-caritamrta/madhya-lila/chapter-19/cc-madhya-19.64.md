@@ -1,9 +1,9 @@
 ### CC Madhya 19.64
 
-> অন্তরে গর-গর প্রেম, নহে সম্বরণ ।
+> অন্তরে গর-গর প্রেম, নহে সম্বরণ ।\
 > দেখি’ চমৎকার হৈল বল্লভ-ভট্টের মন ॥৬৪॥
 
-> antare gara-gara prema, nahe samvaraṇa
+> antare gara-gara prema, nahe samvaraṇa\
 > dekhi' camatkāra haila vallabha-bhaṭṭera mana
 
 *antare*—en el interior; *gara-gara*—ardía; *prema*—amor extático; *nahe*—no había; *samvaraṇa*—contención; *dekhi'*—al percibir; *camatkāra*—asombro; *haila*—hubo; *vallabha-bhaṭṭera mana*—en la mente de Vallabha Bhaṭṭa.

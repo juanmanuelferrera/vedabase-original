@@ -1,9 +1,9 @@
 ### CC Madhya 5.113
 
-> তবে সেই দুই বিপ্রে কহিল ঈশ্বর ।
+> তবে সেই দুই বিপ্রে কহিল ঈশ্বর ।\
 > “তুমি-দুই — জন্মে জন্মে আমার কিঙ্কর ॥১১৩॥
 
-> tabe sei dui vipre kahila īśvara
+> tabe sei dui vipre kahila īśvara\
 > "tumi-dui--janme-janme āmāra kiṅkara
 
 *tabe*—después; *sei*—aquellos; *dui*—dos; *vipre*—a los brāhmaṇas; *kahila*—habló; *īśvara*—el Señor; *tumi-dui*—ambos; *janme-janme*—nacimiento tras nacimiento; *āmāra*—Mis; *kiṅkara*—servidores.

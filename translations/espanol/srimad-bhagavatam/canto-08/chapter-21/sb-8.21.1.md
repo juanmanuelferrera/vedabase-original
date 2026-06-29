@@ -1,13 +1,13 @@
 ### SB 8.21.1
 
-> श्रीशुक उवाच
-> सत्यं समीक्ष्याब्जभवो नखेन्दुभिर्हतस्वधामद्युतिरावृतोऽभ्यगात
+> श्रीशुक उवाच\
+> सत्यं समीक्ष्याब्जभवो नखेन्दुभिर्हतस्वधामद्युतिरावृतोऽभ्यगात\
 > मरीचिमिश्रा ऋषयो बृहद्व्रताः सनन्दनाद्या नरदेव योगिनः ॥१॥
 
-> śrī-śuka uvāca
-> satyaṁ samīkṣyābja-bhavo nakhendubhir
-> hata-svadhāma-dyutir āvṛto 'bhyagāt
-> marīci-miśrā ṛṣayo bṛhad-vratāḥ
+> śrī-śuka uvāca\
+> satyaṁ samīkṣyābja-bhavo nakhendubhir\
+> hata-svadhāma-dyutir āvṛto 'bhyagāt\
+> marīci-miśrā ṛṣayo bṛhad-vratāḥ\
 > sanandanādyā nara-deva yoginaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *satyam*—el planeta Satyaloka; *samīkṣya*—por observar; *abja-bhavaḥ*—el Señor Brahmā, que nació en la flor de loto; *nakha-indubhiḥ*—por la refulgencia de las uñas; *hata*—quedar disminuida; *sva-dhāma-dyutiḥ*—la iluminación de su propia morada; *āvṛtaḥ*—cubierta; *abhyagāt*—fue; *marīci-miśrāḥ*—con sabios como Marīci; *ṛṣayaḥ*—grandes personas santas; *bṛhat-vratāḥ*—todos ellos *brahmacārīs* perfectos; *sanandana-ādyāḥ*—como Sanaka, Sanātana, Sananda y Sanat-kumāra; *nara-deva*—¡oh, rey!; *yoginaḥ*—místicos de gran poder.

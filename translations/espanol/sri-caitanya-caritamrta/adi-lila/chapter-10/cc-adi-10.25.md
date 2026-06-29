@@ -1,9 +1,9 @@
 ### CC Adi 10.25
 
-> তাঁহার ভগিনী দময়ন্তী প্রভুর প্রিয় দাসী ।
+> তাঁহার ভগিনী দময়ন্তী প্রভুর প্রিয় দাসী ।\
 > প্রভুর ভোগসামগ্রী যে করে বারমাসি ॥২৫॥
 
-> tāṅhāra bhaginī damayantī prabhura priya dāsī
+> tāṅhāra bhaginī damayantī prabhura priya dāsī\
 > prabhura bhoga-sāmagrī ye kare vāra-māsi
 
 *tāṅhāra*—su; *bhaginī*—hermana; *damayantī*—de nombre Damayantī; *prabhura*—del Señor; *priya*—querida; *dāsī*—sirvienta; *prabhura*—del Señor; *bhoga-sāmagrī*—ingredientes para cocinar; *ye*—quien; *kare*—hace; *vāra-māsi*—durante todo el año.

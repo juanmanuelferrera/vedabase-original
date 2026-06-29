@@ -1,9 +1,9 @@
 ### CC Antya 20.99
 
-> শ্রীমদনগোপাল মোরে লেখায় আজ্ঞা করি’ ।
+> শ্রীমদনগোপাল মোরে লেখায় আজ্ঞা করি’ ।\
 > কহিতে না যুয়ায়, তবু রহিতে না পারি ॥৯৯॥
 
-> śrī-madana-gopāla more lekhāya ājñā kari'
+> śrī-madana-gopāla more lekhāya ājñā kari'\
 > kahite nā yuyāya, tabu rahite nā pāri
 
 *śrī-madana-gopāla*—la Deidad Madana-mohana de Vṛndāvana; *more*—a mí; *lekhāya*—hace escribir; *ājñā kari'*—dando la orden; *kahite*—decir; *nā yuyāya*—no es apropiado; *tabu*—aun así; *rahite*—permanecer en silencio; *nā pāri*—no soy capaz.

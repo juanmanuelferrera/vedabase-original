@@ -1,9 +1,9 @@
 ### CC Antya 2.3
 
-> সর্ব-লোক উদ্ধারিতে গৌর-অবতার ।
+> সর্ব-লোক উদ্ধারিতে গৌর-অবতার ।\
 > নিস্তারের হেতু তার ত্রিবিধ প্রকার ॥৩॥
 
-> sarva-loka uddhārite gaura-avatāra
+> sarva-loka uddhārite gaura-avatāra\
 > nistārera hetu tāra trividha prakāra
 
 *sarva-loka*—todos los mundos; *uddhārite*—para liberar; *gaura-avatāra*—la encarnación del Señor Śrī Caitanya Mahāprabhu; *nistārera hetu*—las causas de la liberación de todas las personas; *tāra*—Su; *tri-vidha prakāra*—tres clases.

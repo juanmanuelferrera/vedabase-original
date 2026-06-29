@@ -1,9 +1,9 @@
 ### CC Madhya 20.246
 
-> গুণাবতার, আর মন্বন্তরাবতার  ।
+> গুণাবতার, আর মন্বন্তরাবতার  ।\
 > যুগাবতার, আর শক্ত্যাবেশাবতার ॥২৪৬॥
 
-> guṇāvatāra, āra manvantarāvatāra
+> guṇāvatāra, āra manvantarāvatāra\
 > yugāvatāra, āra śaktyāveśāvatāra
 
 *guṇa-avatāra*—the incarnations to control the material qualities; *āra*—also; *manu-antara-avatāra*—the incarnations of the Manus; *yuga-avatāra*—the incarnations according to different yugas; *āra*—and; *śakti-āveśa-avatāra*—empowered incarnations.

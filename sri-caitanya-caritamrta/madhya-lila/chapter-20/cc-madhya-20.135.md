@@ -1,9 +1,9 @@
 ### CC Madhya 20.135
 
-> পূর্বদিকে তাতে মাটী অল্প খুদিতে ।
+> পূর্বদিকে তাতে মাটী অল্প খুদিতে ।\
 > ধনের ঝারি পড়িবেক তোমার হাতেতে ॥১৩৫॥
 
-> pūrva-dike tāte māṭī alpa khudite
+> pūrva-dike tāte māṭī alpa khudite\
 > dhanera jhāri paḍibeka tomāra hātete
 
 *pūrva-dike*—on the eastern side; *tāte*—there; *māṭī*—the dirt; *alpa*—small quantity; *khudite*—digging; *dhanera*—of the treasure; *jhāri*—the pot; *paḍibeka*—you will get; *tomāra*—your; *hātete*—in the hands.

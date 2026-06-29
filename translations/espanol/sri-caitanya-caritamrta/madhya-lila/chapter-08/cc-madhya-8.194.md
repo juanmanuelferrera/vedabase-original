@@ -1,25 +1,25 @@
 ### CC Madhya 8.194
 
-> পহিলেহি রাগ নয়নভঙ্গে ভেল ৷
-> অনুদিন বাঢ়ল, অবধি না গেল ৷৷
-> না সো রমণ, না হাম রমণী ৷
-> দুঁহু-মন মনোভব পেষল জানি’ ৷৷
-> এ সখি, সে-সব প্রেমকাহিনী ৷
-> কানুঠামে কহবি বিছুরল জানি’ ৷৷
-> না খোঁজলুঁ দূতী, না খোঁজলুঁ আন্ ৷
-> দুঁহুকেরি মিলনে মধ্য ত পাঁচবাণ ৷৷
-> অব্ সোহি বিরাগ, তুঁহু ভেলি দূতী ৷
+> পহিলেহি রাগ নয়নভঙ্গে ভেল ৷\
+> অনুদিন বাঢ়ল, অবধি না গেল ৷৷\
+> না সো রমণ, না হাম রমণী ৷\
+> দুঁহু-মন মনোভব পেষল জানি’ ৷৷\
+> এ সখি, সে-সব প্রেমকাহিনী ৷\
+> কানুঠামে কহবি বিছুরল জানি’ ৷৷\
+> না খোঁজলুঁ দূতী, না খোঁজলুঁ আন্ ৷\
+> দুঁহুকেরি মিলনে মধ্য ত পাঁচবাণ ৷৷\
+> অব্ সোহি বিরাগ, তুঁহু ভেলি দূতী ৷\
 > সু-পুরুখ-প্রেমকি ঐছন রীতি ৷৷ ১৯৪ ৷৷ ॥১৯৪॥
 
-> pahilehi rāga nayana-bhaṅge bhela
-> anudina bāḍhala, avadhi nā gela
-> nā so ramaṇa, nā hāma ramaṇī
-> duṅhu-mana manobhava peṣala jāni'
-> e sakhī, se-saba prema-kāhinī
-> kānu-ṭhāme kahabi vichurala jāni'
-> nā khoṅjaluṅ dūtī, nā khoṅjaluṅ ān
-> duṅhukeri milane madhya ta pāṅca-bāṇa
-> ab sohi virāga, tuṅhu bheli dūtī
+> pahilehi rāga nayana-bhaṅge bhela\
+> anudina bāḍhala, avadhi nā gela\
+> nā so ramaṇa, nā hāma ramaṇī\
+> duṅhu-mana manobhava peṣala jāni'\
+> e sakhī, se-saba prema-kāhinī\
+> kānu-ṭhāme kahabi vichurala jāni'\
+> nā khoṅjaluṅ dūtī, nā khoṅjaluṅ ān\
+> duṅhukeri milane madhya ta pāṅca-bāṇa\
+> ab sohi virāga, tuṅhu bheli dūtī\
 > su-purukha-premaki aichana rīti
 
 *pahilehi*—al principio; *rāga*—atracción; *nayana-bhaṅge*—mediante actividades de los ojos; *bhela*—hubo; *anu-dina*—gradualmente, día tras día; *bāḍhala*—aumentó; *avadhi*—límite; *nā*—no; *gela*—alcanzó; *nā*—no; *so*—Él; *ramaṇa*—el disfrutador; *nā*—no; *hāma*—Yo; *ramaṇī*—la disfrutada; *duṅhu-mana*—ambas mentes; *manaḥ-bhava*—la situación mental; *peṣala*—se fundieron; *jāni'*—sabiendo; *e*—esta; *sakhī*—Mi querida amiga; *se-saba*—todos esos; *prema-kāhinī*—asuntos amorosos; *kānu-ṭhāme*—ante Kṛṣṇa; *kahabi*—dirás; *vichurala*—Él ha olvidado; *jāni'*—sabiendo; *nā*—no; *khoṅjaluṅ*—busqué; *dūtī*—una mensajera; *nā*—no; *khoṅjaluṅ*—busqué; *ān*—a nadie más; *duṅhukeri*—de ambos; *milane*—por el encuentro; *madhya*—en medio; *ta*—ciertamente; *pāṅca-bāṇa*—cinco flechas de Cupido; *ab*—ahora; *sohi*—esa; *virāga*—separación; *tuṅhu*—tú; *bheli*—te convertiste; *dūtī*—la mensajera; *su-purukha*—de una persona hermosa; *premaki*—de los asuntos amorosos; *aichana*—tal; *rīti*—la consecuencia.

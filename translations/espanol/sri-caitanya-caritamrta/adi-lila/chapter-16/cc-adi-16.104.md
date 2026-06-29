@@ -1,9 +1,9 @@
 ### CC Adi 16.104
 
-> আজি বাসা’ যাহ, কালি মিলিব আবার ।
+> আজি বাসা’ যাহ, কালি মিলিব আবার ।\
 > শুনিব তোমার মুখে শাস্ত্রের বিচার ॥১০৪॥
 
-> āji vāsā' yāha, kāli miliba ābāra
+> āji vāsā' yāha, kāli miliba ābāra\
 > śuniba tomāra mukhe śāstrera vicāra
 
 *āji*—hoy; *vāsā'*—lugar de descanso; *yāha*—regresa; *kāli*—mañana; *miliba*—nos encontraremos; *ābāra*—de nuevo; *śuniba*—escucharé; *tomāra mukhe*—de tu boca; *śāstrera*—sobre los śāstras; *vicāra*—discusión.

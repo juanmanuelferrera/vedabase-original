@@ -1,11 +1,11 @@
 ### CC Adi 5.138
 
-> বৃষায়মাণৌ নর্দন্তৌ যুযুধাতে পরস্পরম্ ।
+> বৃষায়মাণৌ নর্দন্তৌ যুযুধাতে পরস্পরম্ ।\
 > অনুকৃত্য রুতৈর্জন্তূংশ্চেরতুঃ প্রাকৃতৌ যথা ॥১৩৮॥
 
-> vṛṣāyamāṇau nardantau
-> yuyudhāte parasparam
-> anukṛtya rutair jantūṁś
+> vṛṣāyamāṇau nardantau\
+> yuyudhāte parasparam\
+> anukṛtya rutair jantūṁś\
 > ceratuḥ prākṛtau yathā
 
 *vṛṣāyamāṇau*—becoming like bulls; *nardantau*—making roaring sounds; *yuyudhāte*—both used to fight; *parasparam*—each other; *anukṛtya*—imitating; *rutaiḥ*—with cries; *jantūn*—the animals; *ceratuḥ*—used to play; *prākṛtau*—ordinary boys; *yathā*—just like.

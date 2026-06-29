@@ -1,11 +1,11 @@
 ### SB 9.24.44
 
-> सुमित्रार्जुनपालादीन्समीकात्तु सुदामनी
+> सुमित्रार्जुनपालादीन्समीकात्तु सुदामनी\
 > आनकः कर्णिकायां वै ऋतधामाजयावपि ॥४४॥
 
-> sumitrārjunapālādīn
-> samīkāt tu sudāmanī
-> ānakaḥ karṇikāyāṁ vai
+> sumitrārjunapālādīn\
+> samīkāt tu sudāmanī\
+> ānakaḥ karṇikāyāṁ vai\
 > ṛtadhāmā-jayāv api
 
 *sumitra*—Sumitra; *arjunapāla*—Arjunapāla; *ādīn*—y otros; *samīkāt*—del rey Samīka; *tu*—en verdad; *sudāmanī*—en el vientre de Sudāmanī, su esposa; *ānakaḥ*—el rey Ānaka; *karṇikāyām*—en el vientre de su esposa Karṇikā; *vai*—en verdad; *ṛtadhāmā*—Ṛtadhāmā; *jayau*—y Jaya; *api*—en verdad.

@@ -1,9 +1,9 @@
 ### CC Antya 16.6
 
-> মহাভাগবত তেঁহো সরল উদার ।
+> মহাভাগবত তেঁহো সরল উদার ।\
 > কৃষ্ণনাম-‘সঙ্কেতে’ চালায় ব্যবহার ॥৬॥
 
-> mahā-bhāgavata teṅho sarala udāra
+> mahā-bhāgavata teṅho sarala udāra\
 > kṛṣṇa-nāma-'saṅkete' cālāya vyavahāra
 
 *mahā-bhāgavata*—a highly advanced devotee; *teṅho*—he; *sarala udāra*—very simple and liberal; *kṛṣṇa-nāma-saṅkete*—with chanting of the holy name of Kṛṣṇa; *cālāya*—performs; *vyavahāra*—ordinary dealings.

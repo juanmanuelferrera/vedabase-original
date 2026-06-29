@@ -1,9 +1,9 @@
 ### CC Madhya 12.28
 
-> রাজা তোমারে স্নেহ করে, তুমি — স্নেহবশ ।
+> রাজা তোমারে স্নেহ করে, তুমি — স্নেহবশ ।\
 > তাঁর স্নেহে করাবে তাঁরে তোমার পরশ ॥২৮॥
 
-> rājā tomāre sneha kare, tumi-sneha-vaśa
+> rājā tomāre sneha kare, tumi-sneha-vaśa\
 > tāṅra snehe karābe tāṅre tomāra paraśa
 
 *rājā*—the King; *tomāre*—You; *sneha kare*—loves; *tumi*—You; *sneha-vaśa*—controlled by love and affection; *tāṅra*—his; *snehe*—by love; *karābe*—will do; *tāṅre*—unto him; *tomāra*—Your; *paraśa*—touching.

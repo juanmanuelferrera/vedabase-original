@@ -1,11 +1,11 @@
 ### CC Adi 5.35
 
-> কামাদ্দ্বেষাদ্ ভয়াৎ স্নেহাদ্ যথা ভক্ত্যেশ্বরে মনঃ ।
+> কামাদ্দ্বেষাদ্ ভয়াৎ স্নেহাদ্ যথা ভক্ত্যেশ্বরে মনঃ ।\
 > আবেশ্য তদঘং হিত্বা বহবস্তদ্গতিং গতাঃ ॥৩৫॥
 
-> kāmād dveṣād bhayāt snehād
-> yathā bhaktyeśvare manaḥ
-> āveśya tad aghaṁ hitvā
+> kāmād dveṣād bhayāt snehād\
+> yathā bhaktyeśvare manaḥ\
+> āveśya tad aghaṁ hitvā\
 > bahavas tad gatiṁ gatāḥ
 
 *kāmāt*—influenced by lusty desire; *dveṣāt*—by envy; *bhayāt*—by fear; *snehāt*—or by affection; *yathā*—as; *bhaktyā*—by devotion; *īśvare*—in the Supreme Personality of Godhead; *manaḥ*—the mind; *āveśya*—fully absorbing; *tat*—that; *agham*—sinful activity; *hitvā*—giving up; *bahavaḥ*—many; *tat*—that; *gatim*—destination; *gatāḥ*—achieved.

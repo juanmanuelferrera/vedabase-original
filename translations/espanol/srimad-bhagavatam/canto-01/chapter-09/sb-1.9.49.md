@@ -1,11 +1,11 @@
 ### SB 1.9.49
 
-> पित्रा चानुमतो राजा वासुदेवानुमोदितः ।
+> पित्रा चानुमतो राजा वासुदेवानुमोदितः ।\
 > चकार राज्यं धर्मेण पितृपैतामहं विभुः ॥४९॥
 
-> pitrā cānumato rājā
-> vāsudevānumoditaḥ
-> cakāra rājyaṁ dharmeṇa
+> pitrā cānumato rājā\
+> vāsudevānumoditaḥ\
+> cakāra rājyaṁ dharmeṇa\
 > pitṛ-paitāmahaṁ vibhuḥ
 
 *pitrā*—por su tío, Dhṛtarāṣṭra; *ca*—y; *anumataḥ*—con su aprobación; *rājā*—el rey Yudhiṣṭhira; *vāsudeva-anumoditaḥ*—confirmado por el Señor Śrī Kṛṣṇa; *cakāra*—ejecutó; *rājyam*—el reino; *dharmeṇa*—de acuerdo con los códigos de los principios reales; *pitṛ*—padre; *paitāmaham*—antepasado; *vibhuḥ*—tan grande como.

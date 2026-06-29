@@ -1,11 +1,11 @@
 ### SB 4.1.62
 
-> वैतानिके कर्मणि यन् नामभिर्ब्रह्मवादिभिः ।
+> वैतानिके कर्मणि यन् नामभिर्ब्रह्मवादिभिः ।\
 > आग्नेय्य इष्टयो यज्ञे निरूप्यन्तेऽग्नयस्तु ते ॥६२॥
 
-> vaitānike karmaṇi yan-
-> nāmabhir brahma-vādibhiḥ
-> āgneyya iṣṭayo yajñe
+> vaitānike karmaṇi yan-\
+> nāmabhir brahma-vādibhiḥ\
+> āgneyya iṣṭayo yajñe\
 > nirūpyante 'gnayas tu te
 
 *vaitānike*—ofrenda de oblaciones; *karmaṇi*—la actividad; *yat*—de los dioses del fuego; *nāmabhiḥ*—con los nombres; *brahma-vādibhiḥ*—por *brāhmaṇas* impersonalistas; *āgneyyaḥ*—para Agni; *iṣṭayaḥ*—sacrificios; *yajñe*—en el sacrificio; *nirūpyante*—son el objetivo; *agnayaḥ*—los cuarenta y nueve dioses del fuego; *tu*—pero; *te*—aquellos.

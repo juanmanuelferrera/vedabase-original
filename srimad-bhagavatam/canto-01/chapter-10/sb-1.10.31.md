@@ -1,11 +1,11 @@
 ### SB 1.10.31
 
-> एवंविधा गदन्तीनां स गिरः पुरयोषिताम् ।
+> एवंविधा गदन्तीनां स गिरः पुरयोषिताम् ।\
 > निरीक्षणेनाभिनन्दन्सस्मितेन ययौ हरिः ॥३१॥
 
-> evaṁvidhā gadantīnāṁ
-> sa giraḥ pura-yoṣitām
-> nirīkṣaṇenābhinandan
+> evaṁvidhā gadantīnāṁ\
+> sa giraḥ pura-yoṣitām\
+> nirīkṣaṇenābhinandan\
 > sasmitena yayau hariḥ
 
 *evaṁvidhāḥ*—in this way; *gadantīnām*—thus praying and talking about Him; *saḥ*—He (the Lord); *giraḥ*—of words; *pura-yoṣitām*—of the ladies of the capital; *nirīkṣaṇena*—by His grace of glancing over them; *abhinandan*—and greeting them; *sa-smitena*—with a smiling face; *yayau*—departed; *hariḥ*—the Personality of Godhead.

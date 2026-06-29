@@ -1,11 +1,11 @@
 ### SB 3.23.13
 
-> सर्वकामदुघं दिव्यं सर्वरत्नसमन्वितम् ।
+> सर्वकामदुघं दिव्यं सर्वरत्नसमन्वितम् ।\
 > सर्वर्द्ध्युपचयोदर्कं मणिस्तम्भैरुपस्कृतम् ॥१३॥
 
-> sarva-kāma-dughaṁ divyaṁ
-> sarva-ratna-samanvitam
-> sarvarddhy-upacayodarkaṁ
+> sarva-kāma-dughaṁ divyaṁ\
+> sarva-ratna-samanvitam\
+> sarvarddhy-upacayodarkaṁ\
 > maṇi-stambhair upaskṛtam
 
 *sarva*—all; *kāma*—desires; *dugham*—yielding; *divyam*—wonderful; *sarva-ratna*—all sorts of jewels; *samanvitam*—bedecked with; *sarva*—all; *ṛddhi*—of wealth; *upacaya*—increase; *udarkam*—gradual; *maṇi*—of precious stones; *stambhaiḥ*—with pillars; *upaskṛtam*—adorned.

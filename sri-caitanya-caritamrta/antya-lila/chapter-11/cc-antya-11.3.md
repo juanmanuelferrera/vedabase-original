@@ -1,9 +1,9 @@
 ### CC Antya 11.3
 
-> জয় শ্রীনিবাসেশ্বর হরিদাসনাথ ।
+> জয় শ্রীনিবাসেশ্বর হরিদাসনাথ ।\
 > জয় গদাধরপ্রিয় স্বরূপ-প্রাণনাথ ॥৩॥
 
-> jaya śrīnivāseśvara haridāsa-nātha
+> jaya śrīnivāseśvara haridāsa-nātha\
 > jaya gadādhara-priya svarūpa-prāṇa-nātha
 
 *jaya*—all glories; *śrīnivāsa-īśvara*—to the master of Śrīnivāsa; *haridāsa-nātha*—the master of Haridāsa Ṭhākura; *jaya*—all glories; *gadādhara-priya*—to the dear master of Gadādhara; *svarūpa-prāṇa-nātha*—the master of the life of Svarūpa Dāmodara.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.37
 
-> একদিন মহাপ্রভু নিত্যানন্দে লঞা ।
+> একদিন মহাপ্রভু নিত্যানন্দে লঞা ।\
 > দুই ভাই যুক্তি কৈল নিভৃতে বসিয়া ॥৩৭॥
 
-> eka-dina mahāprabhu nityānande lañā
+> eka-dina mahāprabhu nityānande lañā\
 > dui bhāi yukti kaila nibhṛte vasiyā
 
 *eka-dina*—one day; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *nityānandelañā*—taking Lord Nityānanda Prabhu; *dui bhāi*—two brothers; *yukti kaila*—consulted; *nibhṛte vasiyā*—sitting in a solitary place.

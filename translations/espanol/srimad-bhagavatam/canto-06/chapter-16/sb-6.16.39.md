@@ -1,11 +1,11 @@
 ### SB 6.16.39
 
-> कामधियस्त्वयि रचिता न परम रोहन्ति यथा करम्भबीजानि
+> कामधियस्त्वयि रचिता न परम रोहन्ति यथा करम्भबीजानि\
 > ज्ञआनात्मन्यगुणमये गुणगणतोऽस्य द्वन्द्वजालानि ॥३९॥
 
-> kāma-dhiyas tvayi racitā
-> na parama rohanti yathā karambha-bījāni
-> jñānātmany aguṇamaye
+> kāma-dhiyas tvayi racitā\
+> na parama rohanti yathā karambha-bījāni\
+> jñānātmany aguṇamaye\
 > guṇa-gaṇato 'sya dvandva-jālāni
 
 *kāma-dhiyaḥ*—deseos de complacer los sentidos; *tvayi*—en Ti; *racitāḥ*—realizados; *na*—no; *parama*—¡oh, Suprema Personalidad de Dios!; *rohanti*—crecen (producen otros cuerpos); *yathā*—tal y como; *karambha-bījāni*—semillas esterilizadas o fritas; *jñāna-ātmani*—en Ti, cuya existencia se da en pleno conocimiento; *aguṇa-maye*—que no se ve afectada por las cualidades materiales; *guṇa-gaṇataḥ*—de las cualidades materiales; *asya*—de una persona; *dvandva-jālāni*—las redes de la dualidad.

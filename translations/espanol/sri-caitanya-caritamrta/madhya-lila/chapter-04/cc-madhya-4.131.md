@@ -1,9 +1,9 @@
 ### CC Madhya 4.131
 
-> ধড়ার আঁচলতলে পাইল সেই ক্ষীর ।
+> ধড়ার আঁচলতলে পাইল সেই ক্ষীর ।\
 > স্থান লেপি’ ক্ষীর লঞা হইল বাহির ॥১৩১॥
 
-> dhaḍāra āṅcala-tale pāila sei kṣīra
+> dhaḍāra āṅcala-tale pāila sei kṣīra\
 > sthāna lepi' kṣīra lañā ha-ila bāhira
 
 *dhaḍāra*—del manto; *āṅcala-tale*—en el borde; *pāila*—encontró; *sei*—esa; *kṣīra*—vasija de arroz con leche; *sthāna lepi'*—limpiando aquel lugar; *kṣīra*—la vasija de arroz con leche; *lañā*—llevando; *ha-ila*—salió; *bāhira*—fuera del templo.

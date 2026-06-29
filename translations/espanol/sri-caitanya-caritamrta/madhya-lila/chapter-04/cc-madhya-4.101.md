@@ -1,9 +1,9 @@
 ### CC Madhya 4.101
 
-> এক মহাধনী ক্ষত্রিয় করাইল মন্দির ।
+> এক মহাধনী ক্ষত্রিয় করাইল মন্দির ।\
 > কেহ পাক-ভাণ্ডার কৈল, কেহ ত’ প্রাচীর ॥১০১॥
 
-> eka mahā-dhanī kṣatriya karāila mandira
+> eka mahā-dhanī kṣatriya karāila mandira\
 > keha pāka-bhāṇḍāra kaila, keha ta' prācīra
 
 *eka*—un; *mahā-dhanī*—hombre muy acaudalado; *kṣatriya*—de la orden real; *karāila*—construyó; *mandira*—un templo; *keha*—alguien; *pāka-bhāṇḍāra*—utensilios de barro para cocinar; *kaila*—hizo; *keha*—alguien; *ta'*—ciertamente; *prācīra*—los muros del recinto.

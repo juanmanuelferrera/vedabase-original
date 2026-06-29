@@ -1,9 +1,9 @@
 ### CC Adi 12.84
 
-> শ্রীনাথ চক্রবর্তী, আর উদ্ধব দাস ।
+> শ্রীনাথ চক্রবর্তী, আর উদ্ধব দাস ।\
 > জিতামিত্র, কাষ্ঠকাটা-জগন্নাথদাস ॥৮৪॥
 
-> śrīnātha cakravartī, āra uddhava dāsa
+> śrīnātha cakravartī, āra uddhava dāsa\
 > jitāmitra, kāṣṭhakāṭā-jagannātha-dāsa
 
 *śrīnātha cakravartī*—de nombre Śrīnātha Cakravartī; *āra*—y; *uddhava dāsa*—de nombre Uddhava dāsa; *jitāmitra*—de nombre Jitāmitra; *kāṣṭhakāṭā jagannātha-dāsa*—de nombre Kāṣṭhakāṭā Jagannātha dāsa.

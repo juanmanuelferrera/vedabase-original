@@ -1,9 +1,9 @@
 ### CC Madhya 4.82
 
-> তৃণ-টাটি দিয়া চারিদিক্ আবরিল ।
+> তৃণ-টাটি দিয়া চারিদিক্ আবরিল ।\
 > উপরেতে এক টাটি দিয়া আচ্ছাদিল ॥৮২॥
 
-> tṛṇa-ṭāṭi diyā cāri-dik āvarila
+> tṛṇa-ṭāṭi diyā cāri-dik āvarila\
 > uparete eka ṭāṭi diyā ācchādila
 
 *tṛṇa-ṭāṭi*—estera de paja; *diyā*—con; *cāri-dik*—por los cuatro lados; *āvarila*—cubrió; *uparete*—por encima; *eka*—una; *ṭāṭi*—estera similar de paja; *diyā*—con; *ācchādila*—cubrió.

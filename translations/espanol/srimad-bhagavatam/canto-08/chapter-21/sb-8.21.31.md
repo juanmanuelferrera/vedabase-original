@@ -1,11 +1,11 @@
 ### SB 8.21.31
 
-> पदैकेन मयाक्रान्तो भूर्लोकः खं दिशस्तनोः
+> पदैकेन मयाक्रान्तो भूर्लोकः खं दिशस्तनोः\
 > स्वर्लोकस्ते द्वितीयेन पश्यतस्ते स्वमात्मना ॥३१॥
 
-> padaikena mayākrānto
-> bhūrlokaḥ khaṁ diśas tanoḥ
-> svarlokas te dvitīyena
+> padaikena mayākrānto\
+> bhūrlokaḥ khaṁ diśas tanoḥ\
+> svarlokas te dvitīyena\
 > paśyatas te svam ātmanā
 
 *padā ekena*—con un solo paso; *mayā*—por Mí; *ākrāntaḥ*—ha sido cubierto; *bhūrlokaḥ*—todo el sistema planetario conocido con el nombre de Bhūrloka; *kham*—el cielo; *diśaḥ*—y todas las direcciones; *tanoḥ*—con Mi cuerpo; *svarlokaḥ*—el sistema planetario superior; *te*—propiedad tuya; *dvitīyena*—con el segundo paso; *paśyataḥ te*—mientras tú estabas viéndolo; *svam*—tu propio; *ātmanā*—por Mí.

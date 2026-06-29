@@ -1,18 +1,18 @@
 ### SB 4.24.24-25
 
-> तर्ह्येव सरसस्तस्मान्निष्क्रामन्तं सहानुगम् ।
-> उपगीयमानममर प्रवरं विबुधानुगैः ॥२४॥
-> तप्तहेमनिकायाभं शितिकण्ठं त्रिलोचनम् ।
+> तर्ह्येव सरसस्तस्मान्निष्क्रामन्तं सहानुगम् ।\
+> उपगीयमानममर प्रवरं विबुधानुगैः ॥२४॥\
+> तप्तहेमनिकायाभं शितिकण्ठं त्रिलोचनम् ।\
 > प्रसादसुमुखं वीक्ष्य प्रणेमुर्जातकौतुकाः ॥२५॥
 
-> tarhy eva sarasas tasmān
-> niṣkrāmantaṁ sahānugam
-> upagīyamānam amara-
+> tarhy eva sarasas tasmān\
+> niṣkrāmantaṁ sahānugam\
+> upagīyamānam amara-\
 > pravaraṁ vibudhānugaiḥ
 
-> tapta-hema-nikāyābhaṁ
-> śiti-kaṇṭhaṁ tri-locanam
-> prasāda-sumukhaṁ vīkṣya
+> tapta-hema-nikāyābhaṁ\
+> śiti-kaṇṭhaṁ tri-locanam\
+> prasāda-sumukhaṁ vīkṣya\
 > praṇemur jāta-kautukāḥ
 
 *tarhi*—en aquel preciso instante; *eva*—ciertamente; *sarasaḥ*—del agua; *tasmāt*—de allí; *niṣkrāmantam*—saliendo; *saha-anugam*—en compañía de grandes almas; *upagīyamānam*—glorificado por los seguidores; *amara-pravaram*—el principal de los semidioses; *vibudha-anugaiḥ*—seguido de su séquito; *tapta-hema*—oro fundido; *nikāya-ābham*—aspecto físico; *śiti-kaṇṭham*—garganta azul; *tri-locanam*—con tres ojos; *prasāda*—misericordioso; *su-mukham*—rostro hermoso; *vīkṣya*—viendo; *praṇemuḥ*—ofrecieron reverencias; *jāta*—se levantaron; *kautukāḥ*—asombrados de la situación.

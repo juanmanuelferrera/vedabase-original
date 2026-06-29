@@ -1,9 +1,9 @@
 ### CC Madhya 16.13
 
-> সবে মেলি’ গেলা অদ্বৈত আচার্যের পাশে ।
+> সবে মেলি’ গেলা অদ্বৈত আচার্যের পাশে ।\
 > প্রভু দেখিতে আচার্য চলিলা উল্লাসে ॥১৩॥
 
-> sabe meli' gelā advaita ācāryera pāśe
+> sabe meli' gelā advaita ācāryera pāśe\
 > prabhu dekhite ācārya calilā ullāse
 
 *sabe*—todos; *meli'*—tras reunirse; *gelā*—fueron; *advaita*—Advaita; *ācāryera*—del líder de Navadvīpa; *pāśe*—ante la presencia; *prabhu dekhite*—para ver al Señor Śrī Caitanya Mahāprabhu; *ācārya*—Advaita Ācārya; *calilā*—partió; *ullāse*—con gran júbilo.

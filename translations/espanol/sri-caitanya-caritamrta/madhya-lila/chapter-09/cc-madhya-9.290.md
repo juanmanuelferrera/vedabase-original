@@ -1,9 +1,9 @@
 ### CC Madhya 9.290
 
-> এত বলি’ প্রভুকে উঠাঞা কৈল আলিঙ্গন ৷
+> এত বলি’ প্রভুকে উঠাঞা কৈল আলিঙ্গন ৷\
 > গলাগলি করি’ দুঁহে করেন ক্রন্দন ৷৷ ২৯০ ৷৷ ॥২৯০॥
 
-> eta bali' prabhuke uthāñā kaila āliṅgana
+> eta bali' prabhuke uthāñā kaila āliṅgana\
 > galāgali kari' duṅhe karena krandana
 
 *eta bali'*—diciendo esto; *prabhuke*—al Señor Śrī Caitanya Mahāprabhu; *uthāñā*—levantando; *kaila*—hizo; *āliṅgana*—abrazo; *galāgali*—hombro con hombro; *kari'*—haciendo; *duṅhe*—ambos; *karena*—hacen; *krandana*—llanto.

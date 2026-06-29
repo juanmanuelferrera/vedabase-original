@@ -1,13 +1,13 @@
 ### SB 9.10.21
 
-> रक्षःपतिः स्वबलनष्टिमवेक्ष्य रुष्ट
-> आरुह्य यानकमथाभिससार रामम
-> स्वःस्यन्दने द्युमति मातलिनोपनीते
+> रक्षःपतिः स्वबलनष्टिमवेक्ष्य रुष्ट\
+> आरुह्य यानकमथाभिससार रामम\
+> स्वःस्यन्दने द्युमति मातलिनोपनीते\
 > विभ्राजमानमहनन्निशितैः क्षुरप्रैः ॥२१॥
 
-> rakṣaḥ-patiḥ sva-bala-naṣṭim avekṣya ruṣṭa
-> āruhya yānakam athābhisasāra rāmam
-> svaḥ-syandane dyumati mātalinopanīte
+> rakṣaḥ-patiḥ sva-bala-naṣṭim avekṣya ruṣṭa\
+> āruhya yānakam athābhisasāra rāmam\
+> svaḥ-syandane dyumati mātalinopanīte\
 > vibhrājamānam ahanan niśitaiḥ kṣurapraiḥ
 
 *rakṣaḥ-patiḥ*—the leader of the Rākṣasas, Rāvaṇa; *sva-bala-naṣṭim*—the destruction of his own soldiers; *avekṣya*—after observing; *ruṣṭaḥ*—became very angry; *āruhya*—riding on; *yānakam*—his beautiful airplane decorated with flowers; *atha*—thereafter; *abhisasāra*—proceeded toward; *rāmam*—Lord Rāmacandra; *svaḥ-syandane*—in the celestial chariot of Indra; *dyumati*—glittering; *mātalinā*—by Mātali, the chariot driver of Indra; *upanīte*—having been brought; *vibhrājamānam*—Lord Rāmacandra, as if brilliantly illuminating; *ahanat*—Rāvaṇa struck him; *niśitaiḥ*—very sharp; *kṣurapraiḥ*—with arrows.

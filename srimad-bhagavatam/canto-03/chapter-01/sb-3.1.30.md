@@ -1,11 +1,11 @@
 ### SB 3.1.30
 
-> कच्चिद्धरेः सौम्य सुतः सदृक्ष आस्तेऽग्रणी रथिनां साधु साम्बः ।
+> कच्चिद्धरेः सौम्य सुतः सदृक्ष आस्तेऽग्रणी रथिनां साधु साम्बः ।\
 > असूत यं जाम्बवती व्रताढ्या देवं गुहं योऽम्बिकया धृतोऽग्रे ॥३०॥
 
-> kaccid dhareḥ saumya sutaḥ sadṛkṣa
-> āste 'graṇī rathināṁ sādhu sāmbaḥ
-> asūta yaṁ jāmbavatī vratāḍhyā
+> kaccid dhareḥ saumya sutaḥ sadṛkṣa\
+> āste 'graṇī rathināṁ sādhu sāmbaḥ\
+> asūta yaṁ jāmbavatī vratāḍhyā\
 > devaṁ guhaṁ yo 'mbikayā dhṛto 'gre
 
 *kaccit*—whether; *hareḥ*—of the Personality of Godhead; *saumya*—O grave one; *sutaḥ*—son; *sadṛkṣaḥ*—similar; *āste*—fares well; *agraṇīḥ*—foremost; *rathinām*—of the warriors; *sādhu*—well behaved; *sāmbaḥ*—Sāmba; *asūta*—gave birth; *yam*—whom; *jāmbavatī*—Jāmbavatī, a queen of Lord Kṛṣṇa's; *vratāḍhyā*—enriched by vows; *devam*—the demigod; *guham*—of the name Kārttikeya; *yaḥ*—whom; *ambikayā*—unto the wife of Śiva; *dhṛtaḥ*—born; *agre*—in the previous birth.

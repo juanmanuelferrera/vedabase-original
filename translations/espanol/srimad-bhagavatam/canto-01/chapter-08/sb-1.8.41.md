@@ -1,11 +1,11 @@
 ### SB 1.8.41
 
-> अथ विश्वेश विश्वात्मन्विश्वमूर्ते स्वकेषु मे ।
+> अथ विश्वेश विश्वात्मन्विश्वमूर्ते स्वकेषु मे ।\
 > स्नेहपाशमिमं छिन्धि दृढं पाण्डुषु वृष्णिषु ॥४१॥
 
-> atha viśveśa viśvātman
-> viśva-mūrte svakeṣu me
-> sneha-pāśam imaṁ chindhi
+> atha viśveśa viśvātman\
+> viśva-mūrte svakeṣu me\
+> sneha-pāśam imaṁ chindhi\
 > dṛḍhaṁ pāṇḍuṣu vṛṣṇiṣu
 
 *atha*—por lo tanto; *viśva-īśa*—¡oh, Señor del universo!; *viśva-ātman*—¡oh, alma del universo!; *viśva-mūrte*—¡oh, personalidad de la forma universal!; *svakeṣu*—a mis propios parientes; *me*—mi; *sneha-pāśam*—lazo de afecto; *imam*—este; *chindhi*—corta; *dṛḍham*—profundo; *pāṇḍuṣu*—por los Pāṇḍavas; *vṛṣṇiṣu*—por los Vṛṣṇis también.

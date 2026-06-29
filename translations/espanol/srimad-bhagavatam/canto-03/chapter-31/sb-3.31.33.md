@@ -1,11 +1,11 @@
 ### SB 3.31.33
 
-> सत्यं शौचं दया मौनं बुद्धिः श्रीर्ह्रीर्यशः क्षमा ।
+> सत्यं शौचं दया मौनं बुद्धिः श्रीर्ह्रीर्यशः क्षमा ।\
 > शमो दमो भगश्चेति यत्सङ्गाद्याति सङ्क्षयम् ॥३३॥
 
-> satyaṁ śaucaṁ dayā maunaṁ
-> buddhiḥ śrīr hrīr yaśaḥ kṣamā
-> śamo damo bhagaś ceti
+> satyaṁ śaucaṁ dayā maunaṁ\
+> buddhiḥ śrīr hrīr yaśaḥ kṣamā\
+> śamo damo bhagaś ceti\
 > yat-saṅgād yāti saṅkṣayam
 
 *satyam*—veracidad; *śaucam*—limpieza; *dayā*—misericordia; *maunam*—seriedad; *buddhiḥ*—inteligencia; *śrīḥ*—prosperidad; *hrīḥ*—decencia; *yaśaḥ*—fama; *kṣamā*—clemencia; *śamaḥ*—control de la mente; *damaḥ*—control de los sentidos; *bhagaḥ*—fortuna; *ca*—y; *iti*—de este modo; *yat-saṅgāt*—de la relación con quienes; *yāti saṅkṣayam*—se destruyen.

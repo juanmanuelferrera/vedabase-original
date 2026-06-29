@@ -1,13 +1,13 @@
 ### CC Adi 13.113
 
-> ব্যাঘ্রনখ হেমজড়ি, কটি-পট্টসূত্র-ডোরী,
-> হস্ত-পদের যত আভরণ ।
-> চিত্রবর্ণ পট্টসাড়ী, বুনি ফোতো পট্টপাড়ী,
+> ব্যাঘ্রনখ হেমজড়ি, কটি-পট্টসূত্র-ডোরী,\
+> হস্ত-পদের যত আভরণ ।\
+> চিত্রবর্ণ পট্টসাড়ী, বুনি ফোতো পট্টপাড়ী,\
 > স্বর্ণ-রৌপ্য-মুদ্রা বহুধন ॥১১৩॥
 
-> vyāghra-nakha hema-jaḍi, kaṭi-paṭṭasūtra-ḍorī
-> hasta-padera yata ābharaṇa
-> citra-varṇa paṭṭa-sāḍī, buni photo paṭṭapāḍī,
+> vyāghra-nakha hema-jaḍi, kaṭi-paṭṭasūtra-ḍorī\
+> hasta-padera yata ābharaṇa\
+> citra-varṇa paṭṭa-sāḍī, buni photo paṭṭapāḍī,\
 > svarṇa-raupya-mudrā bahu-dhana
 
 *vyāghra-nakha*—tiger nails; *hema-jaḍi*—set in gold; *kaṭi-paṭṭasūtra-ḍorī*—silken thread for the waist; *hasta-padera*—of the hands and legs; *yata*—all kinds of; *ābharaṇa*—ornaments; *citra-varṇa*—printed with varieties of colors; *paṭṭa-sāḍī*—silken *sārīs*; *buni*—woven; *photo*—small jackets for children; *paṭṭa-pāḍī*—with embroidery of silk; *svarṇa*—gold; *raupya*—silver; *mudrā*—coins; *bahu-dhana*—all kinds of riches.

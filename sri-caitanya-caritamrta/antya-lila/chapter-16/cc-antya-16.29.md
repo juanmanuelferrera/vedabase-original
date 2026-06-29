@@ -1,9 +1,9 @@
 ### CC Antya 16.29
 
-> আমি — নীচজাতি, আমার নাহি কৃষ্ণ ভক্তি ।
+> আমি — নীচজাতি, আমার নাহি কৃষ্ণ ভক্তি ।\
 > অন্য ঐছে হয়, আমায় নাহি ঐছে শক্তি ।।” ॥ ২৯ ॥
 
-> āmi—nīca-jāti, āmāra nāhi kṛṣṇa-bhakti
+> āmi—nīca-jāti, āmāra nāhi kṛṣṇa-bhakti\
 > anya aiche haya, āmāya nāhi aiche śakti"
 
 *āmi*—I; *nīca-jāti*—belonging to a lower caste; *āmāra*—my; *nāhi*—there is not; *kṛṣṇa-bhakti*—devotion to Kṛṣṇa; *anya*—others; *aiche haya*—may be such; *āmāya*—unto me; *nāhi*—there is not; *aiche śakti*—such power.

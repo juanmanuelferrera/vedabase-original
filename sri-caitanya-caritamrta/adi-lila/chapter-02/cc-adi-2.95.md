@@ -1,11 +1,11 @@
 ### CC Adi 2.95
 
-> দশমে দশমং লক্ষ্যমাশ্রিতাশ্রয়বিগ্রহম্ ।
+> দশমে দশমং লক্ষ্যমাশ্রিতাশ্রয়বিগ্রহম্ ।\
 > শ্রীকৃষ্ণাখ্যং পরং ধাম জগদ্ধাম নমামি তৎ ॥৯৫॥
 
-> daśame daśamaṁ lakṣyam
-> āśritāśraya-vigraham
-> śrī-kṛṣṇākhyaṁ paraṁ dhāma
+> daśame daśamaṁ lakṣyam\
+> āśritāśraya-vigraham\
+> śrī-kṛṣṇākhyaṁ paraṁ dhāma\
 > jagad-dhāma namāmi tat
 
 *daśame*—in the Tenth Canto; *daśamam*—the tenth subject matter; *lakṣyam*—to be seen; *āśrita*—of the sheltered; *āśraya*—of the shelter; *vigraham*—who is the form; *śrī-kṛṣṇa-ākhyam*—known as Lord Śrī Kṛṣṇa; *param*—supreme; *dhāma*—abode; *jagat-dhāma*—the abode of the universes; *namāmi*—I offer my obeisances; *tat*—to Him.

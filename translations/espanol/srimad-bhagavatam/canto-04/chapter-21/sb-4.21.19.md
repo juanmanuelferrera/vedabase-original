@@ -1,11 +1,11 @@
 ### SB 4.21.19
 
-> शिशिरस्निग्धताराक्षः समैक्षत समन्ततः ।
+> शिशिरस्निग्धताराक्षः समैक्षत समन्ततः ।\
 > ऊचिवानिदमुर्वीशः सदः संहर्षयन्निव ॥१९॥
 
-> śiśira-snigdha-tārākṣaḥ
-> samaikṣata samantataḥ
-> ūcivān idam urvīśaḥ
+> śiśira-snigdha-tārākṣaḥ\
+> samaikṣata samantataḥ\
+> ūcivān idam urvīśaḥ\
 > sadaḥ saṁharṣayann iva
 
 *śiśira*—rocío; *snigdha*—húmedo; *tārā*—estrellas; *akṣaḥ*—ojos; *samaikṣata*—miró a; *samantataḥ*—alrededor; *ūcivān*—comenzó a hablar; *idam*—este; *urvīśaḥ*—muy elevados; *sadaḥ*—entre los miembros de la asamblea; *saṁharṣayan*—realzando su placer; *iva*—como.

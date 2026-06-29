@@ -1,9 +1,9 @@
 ### CC Madhya 4.6
 
-> অতএব তাহা বর্ণিলে হয় পুনরুক্তি ।
+> অতএব তাহা বর্ণিলে হয় পুনরুক্তি ।\
 > দম্ভ করি’ বর্ণি যদি তৈছে নাহি শক্তি ॥৬॥
 
-> ataeva tāhā varṇile haya punarukti
+> ataeva tāhā varṇile haya punarukti\
 > dambha kari' varṇi yadi taiche nāhi śakti
 
 *ataeva*—therefore; *tāhā*—such activities; *varṇile*—if describing; *haya*—there is; *punarukti*—repetition; *dambha kari'*—being proud; *varṇi*—I describe; *yadi*—if; *taiche*—such; *nāhi*—there is not; *śakti*—power.

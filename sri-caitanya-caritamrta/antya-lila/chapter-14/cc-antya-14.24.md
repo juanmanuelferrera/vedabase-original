@@ -1,9 +1,9 @@
 ### CC Antya 14.24
 
-> উড়িয়া এক স্ত্রী ভীড়ে দর্শন না পাঞা ।
+> উড়িয়া এক স্ত্রী ভীড়ে দর্শন না পাঞা ।\
 > গরুড়ে চড়ি’ দেখে প্রভুর স্কন্ধে পদ দিয়া ॥২৪॥
 
-> uḍiyā eka strī bhīḍe darśana nā pāñā
+> uḍiyā eka strī bhīḍe darśana nā pāñā\
 > garuḍe caḍi' dekhe prabhura skandhe pada diyā
 
 *uḍiyā*—a native of Orissa; *eka*—one; *strī*—woman; *bhīḍe*—in the crowd; *darśana nā pāñā*—being unable to see; *garuḍe caḍi'*—climbing up the column of Garuḍa; *dekhe*—sees; *prabhura*—of Śrī Caitanya Mahāprabhu; *skandhe*—on the shoulder; *pada*—her foot; *diyā*—placing.

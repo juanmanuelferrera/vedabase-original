@@ -1,11 +1,11 @@
 ### SB 1.2.27
 
-> रजस्तमःप्रकृतयः समशीला भजन्ति वै ।
+> रजस्तमःप्रकृतयः समशीला भजन्ति वै ।\
 > पितृभूतप्रजेशादीन्श्रियैश्वर्यप्रजेप्सवः ॥२७॥
 
-> rajas-tamaḥ-prakṛtayaḥ
-> sama-śīlā bhajanti vai
-> pitṛ-bhūta-prajeśādīn
+> rajas-tamaḥ-prakṛtayaḥ\
+> sama-śīlā bhajanti vai\
+> pitṛ-bhūta-prajeśādīn\
 > śriyaiśvarya-prajepsavaḥ
 
 *rajaḥ*—the mode of passion; *tamaḥ*—the mode of ignorance; *prakṛtayaḥ*—of that mentality; *sama-śīlāḥ*—of the same categories; *bhajanti*—do worship; *vai*—actually; *pitṛ*—the forefathers; *bhūta*—other living beings; *prajeśa-ādīn*—controllers of cosmic administration; *śriyā*—enrichment; *aiśvarya*—wealth and power; *prajā*—progeny; *īpsavaḥ*—so desiring.

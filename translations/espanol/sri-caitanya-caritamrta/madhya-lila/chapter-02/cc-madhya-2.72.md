@@ -1,13 +1,13 @@
 ### CC Madhya 2.72
 
-> স্তম্ভ, কম্প, প্রস্বেদ, বৈবর্ণ্য, অশ্রু, স্বরভেদ,
-> দেহ হৈল পুলকে ব্যাপিত ৷
-> হাসে, কান্দে, নাচে, গায়, উঠি’ ইতি উতি ধায়,
+> স্তম্ভ, কম্প, প্রস্বেদ, বৈবর্ণ্য, অশ্রু, স্বরভেদ,\
+> দেহ হৈল পুলকে ব্যাপিত ৷\
+> হাসে, কান্দে, নাচে, গায়, উঠি’ ইতি উতি ধায়,\
 > ক্ষণে ভূমে পড়িয়া মূর্চ্ছিত ৷৷ ৭২ ৷৷ ॥৭২॥
 
-> stambha, kampa, prasveda, vaivarṇya, aśru, svara-bheda,
-> deha haila pulake vyāpita
-> hāse, kānde, nāce, gāya, uṭhi' iti uti dhāya,
+> stambha, kampa, prasveda, vaivarṇya, aśru, svara-bheda,\
+> deha haila pulake vyāpita\
+> hāse, kānde, nāce, gāya, uṭhi' iti uti dhāya,\
 > kṣaṇe bhūme paḍiyā mūrcchita
 
 *stambha*—estar atónito; *kampa*—temblor; *prasveda*—transpiración; *vaivarṇya*—pérdida del color; *aśru*—lágrimas; *svara-bheda*—ahogamiento de la voz; *deha*—cuerpo; *haila*—estaba; *pulake*—en gozo; *vyāpita*—impregnado; *hāse*—ríe; *kānde*—llora; *nāce*—baila; *gāya*—canta; *uṭhi'*—levantándose; *iti uti*—de aquí para allá; *dhāya*—corre; *kṣaṇe*—a veces; *bhūme*—en el suelo; *paḍiyā*—cayendo; *mūrcchita*—inconsciente.

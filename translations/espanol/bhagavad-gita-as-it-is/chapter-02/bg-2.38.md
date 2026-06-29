@@ -1,11 +1,11 @@
 ### Bg 2.38
 
-> सुखदुःखे समे कृत्वा लाभालाभौ जयाजयौ ।
+> सुखदुःखे समे कृत्वा लाभालाभौ जयाजयौ ।\
 > ततो युद्धाय युज्यस्व नैवं पापमवाप्स्यसि ॥३८॥
 
-> sukha-duḥkhe same kṛtvā
-> lābhālābhau jayājayau
-> tato yuddhāya yujyasva
+> sukha-duḥkhe same kṛtvā\
+> lābhālābhau jayājayau\
+> tato yuddhāya yujyasva\
 > naivaṁ pāpam avāpsyasi
 
 *sukha*—felicidad; *duḥkhe*—en la aflicción; *same*—en la ecuanimidad; *kṛtvā*—haciéndolo; *lābhalābhau*—tanto en la pérdida como en la ganancia; *jayājayau*—tanto en la derrota como en la victoria; *tataḥ*—en lo sucesivo; *yuddhāya*—por luchar; *yujyasva*—lucha; *na*—nunca; *evam*—de esta manera; *pāpam*—reacción pecaminosa; *avāpsyasi*—obtendrás.

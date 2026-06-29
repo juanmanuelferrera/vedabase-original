@@ -1,11 +1,11 @@
 ### SB 7.1.3
 
-> इति नः सुमहाभाग नारायणगुणान्प्रति
+> इति नः सुमहाभाग नारायणगुणान्प्रति\
 > संशयः सुमहान्जातस्तद्भवांश्छेत्तुमर्हति ॥३॥
 
-> iti naḥ sumahā-bhāga
-> nārāyaṇa-guṇān prati
-> saṁśayaḥ sumahāñ jātas
+> iti naḥ sumahā-bhāga\
+> nārāyaṇa-guṇān prati\
+> saṁśayaḥ sumahāñ jātas\
 > tad bhavāṁś chettum arhati
 
 *iti*—thus; *naḥ*—our; *su-mahā-bhāga*—O glorious one; *nārāyaṇa-guṇān*—the qualities of Nārāyaṇa; *prati*—toward; *saṁśayaḥ*—doubt; *su-mahān*—very great; *jātaḥ*—born; *tat*—that; *bhavān*—Your Lordship; *chettum arhati*—please dispel.

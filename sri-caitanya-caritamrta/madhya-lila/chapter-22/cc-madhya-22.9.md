@@ -1,9 +1,9 @@
 ### CC Madhya 22.9
 
-> স্বাংশ-বিস্তার — চতুর্ব্যূহ, অবতারগণ ।
+> স্বাংশ-বিস্তার — চতুর্ব্যূহ, অবতারগণ ।\
 > বিভিন্নাংশ জীব — তাঁর শক্তিতে গণন ॥৯॥
 
-> svāṁśa-vistāra—catur-vyūha, avatāra-gaṇa
+> svāṁśa-vistāra—catur-vyūha, avatāra-gaṇa\
 > vibhinnāṁśa jīva—tāṅra śaktite gaṇana
 
 *sva-aṁśa-vistāra*—the expansion of His personal forms; *catuḥ-vyūha*—His quadruple form; *avatāra-gaṇa*—the incarnations; *vibhinna-aṁśa*—His separated forms; *jīva*—the living entities; *tāṅra*—His; *śaktite*—in the category of potency; *gaṇana*—calculating.

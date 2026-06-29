@@ -1,11 +1,11 @@
 ### CC Adi 1.1
 
-> বন্দে গুরূনীশভক্তানীশমীশাবতারকান্ ।
+> বন্দে গুরূনীশভক্তানীশমীশাবতারকান্ ।\
 > তৎপ্রকাশাংশ্চ তচ্ছক্তীঃ কৃষ্ণচৈতন্যসংজ্ঞকম্ ॥১॥
 
-> vande gurūn īśa-bhaktān
-> īśam īśāvatārakān
-> tat-prakāśāṁś ca tac-chaktīḥ
+> vande gurūn īśa-bhaktān\
+> īśam īśāvatārakān\
+> tat-prakāśāṁś ca tac-chaktīḥ\
 > kṛṣṇa-caitanya-saṁjñakam
 
 *vande*—I offer respectful obeisances; *gurūn*—unto the spiritual masters; *īśa-bhaktān*—unto the devotees of the Supreme Lord; *īśam*—unto the Supreme Lord; *īśa-avatārakān*—unto the incarnations of the Supreme Lord; *tat*—of the Supreme Lord; *prakāśān*—unto the manifestations; *ca*—and; *tat*—of the Supreme Lord; *śaktīḥ*—unto the potencies; *kṛṣṇa-caitanya*—Śrī Kṛṣṇa Caitanya; *saṁjñakam*—named.

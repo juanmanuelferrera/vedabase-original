@@ -1,13 +1,13 @@
 ### SB 7.9.31
 
-> त्वम्वा इदं सदसदीश भवांस्ततोऽन्यो
-> माया यदात्मपरबुद्धिरियं ह्यपार्था
-> यद्यस्य जन्म निधनं स्थितिरीक्षणं च
+> त्वम्वा इदं सदसदीश भवांस्ततोऽन्यो\
+> माया यदात्मपरबुद्धिरियं ह्यपार्था\
+> यद्यस्य जन्म निधनं स्थितिरीक्षणं च\
 > तद्वैतदेव वसुकालवदष्टितर्वोः ॥३१॥
 
-> tvaṁ vā idaṁ sad-asad īśa bhavāṁs tato 'nyo
-> māyā yad ātma-para-buddhir iyaṁ hy apārthā
-> yad yasya janma nidhanaṁ sthitir īkṣaṇaṁ ca
+> tvaṁ vā idaṁ sad-asad īśa bhavāṁs tato 'nyo\
+> māyā yad ātma-para-buddhir iyaṁ hy apārthā\
+> yad yasya janma nidhanaṁ sthitir īkṣaṇaṁ ca\
 > tad vaitad eva vasukālavad aṣṭi-tarvoḥ
 
 *tvam*—You; *vā*—either; *idam*—the whole universe; *sat-asat*—consisting of cause and effect (You are the cause, and Your energy is the effect); *īśa*—O my Lord, the supreme controller; *bhavān*—Yourself; *tataḥ*—from the universe; *anyaḥ*—separately situated (the creation is made by the Lord, yet He remains separate from the creation); *māyā*—the energy that appears as a separate creation; *yat*—of which; *ātma-para-buddhiḥ*—the conception of one's own and another's; *iyam*—this; *hi*—indeed; *apārthā*—has no meaning (everything is Your Lordship, and therefore there is no hope for understanding "my" and "your"); *yat*—the substance from which; *yasya*—of which; *janma*—creation; *nidhanam*—annihilation; *sthitiḥ*—maintenance; *īkṣaṇam*—manifestation; *ca*—and; *tat*—that; *vā*—or; *etat*—this; *eva*—certainly; *vasukāla-vat*—like the quality of being the earth and, beyond that, the subtle element of the earth (smell); *aṣṭi-tarvoḥ*—the seed (the cause) and the tree (the effect of the cause).

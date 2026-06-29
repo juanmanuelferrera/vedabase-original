@@ -1,11 +1,11 @@
 ### CC Madhya 23.113
 
-> যে তু ধর্মামৃতমিদং যথোক্তং পর্যুপাসতে ।
+> যে তু ধর্মামৃতমিদং যথোক্তং পর্যুপাসতে ।\
 > শ্রদ্দধানা মৎপরমা ভক্তাস্তেঽতীব মে প্রিয়াঃ ॥১১৩॥
 
-> ye tu dharmāmṛtam idaṁ
-> yathoktaṁ paryupāsate
-> śraddadhānā mat-paramā
+> ye tu dharmāmṛtam idaṁ\
+> yathoktaṁ paryupāsate\
+> śraddadhānā mat-paramā\
 > bhaktās te 'tīva me priyāḥ
 
 *ye*—los devotos que; *tu*—pero; *dharma-amṛtam*—el principio religioso eterno de la conciencia de Kṛṣṇa; *idam*—este; *yathā-uktam*—como se ha mencionado anteriormente; *paryupāsate*—adoran; *śraddadhānāḥ*—con fe y devoción; *mat-paramāḥ*—aceptándome como el Supremo o la meta última de la vida; *bhaktāḥ*—tales devotos; *te*—ellos; *atīva*—muchísimo; *me*—Mis; *priyāḥ*—queridos.

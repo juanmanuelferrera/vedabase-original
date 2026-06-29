@@ -1,11 +1,11 @@
 ### SB 6.8.30
 
-> सर्वापद्भ्यो हरेर्नाम रूपयानायुधानि नः
+> सर्वापद्भ्यो हरेर्नाम रूपयानायुधानि नः\
 > बुद्धीन्द्रियमनःप्राणान्पान्तु पार्षदभूषणाः ॥३०॥
 
-> sarvāpadbhyo harer nāma-
-> rūpa-yānāyudhāni naḥ
-> buddhīndriya-manaḥ-prāṇān
+> sarvāpadbhyo harer nāma-\
+> rūpa-yānāyudhāni naḥ\
+> buddhīndriya-manaḥ-prāṇān\
 > pāntu pārṣada-bhūṣaṇāḥ
 
 *sarva-āpadbhyaḥ*—from all kinds of danger; *hareḥ*—of the Supreme Personality of Godhead; *nāma*—the holy name; *rūpa*—the transcendental form; *yāna*—the carriers; *āyudhāni*—and all the weapons; *naḥ*—our; *buddhi*—intelligence; *indriya*—senses; *manaḥ*—mind; *prāṇān*—life air; *pāntu*—may they protect and maintain; *pārṣada-bhūṣaṇāḥ*—the decorations who are personal associates.

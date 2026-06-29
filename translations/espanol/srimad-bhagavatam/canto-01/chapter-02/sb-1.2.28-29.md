@@ -1,18 +1,18 @@
 ### SB 1.2.28-29
 
-> वासुदेवपरा वेदा वासुदेवपरा मखाः ।
-> वासुदेवपरा योग वासुदेवपराः क्रियाः ॥२८॥
-> वासुदेवपरं ज्ञानं वासुदेवपरं तपः ।
+> वासुदेवपरा वेदा वासुदेवपरा मखाः ।\
+> वासुदेवपरा योग वासुदेवपराः क्रियाः ॥२८॥\
+> वासुदेवपरं ज्ञानं वासुदेवपरं तपः ।\
 > वासुदेवपरो धर्मो वासुदेवपरा गतिः ॥२९॥
 
-> vāsudeva-parā vedā
-> vāsudeva-parā makhāḥ
-> vāsudeva-parā yogā
+> vāsudeva-parā vedā\
+> vāsudeva-parā makhāḥ\
+> vāsudeva-parā yogā\
 > vāsudeva-parāḥ kriyāḥ
 
-> vāsudeva-paraṁ jñānaṁ
-> vāsudeva-paraṁ tapaḥ
-> vāsudeva-paro dharmo
+> vāsudeva-paraṁ jñānaṁ\
+> vāsudeva-paraṁ tapaḥ\
+> vāsudeva-paro dharmo\
 > vāsudeva-parā gatiḥ
 
 *vāsudeva*—la Personalidad de Dios; *parāḥ*—la meta última; *vedāḥ*—Escrituras reveladas; *vāsudeva*—la Personalidad de Dios; *parāḥ*—para adorar; *makhāḥ*—sacrificios; *vāsudeva*—la Personalidad de Dios; *parāḥ*—los medios de conseguir; *yogāḥ*—enseres místicos; *vāsudeva*—la Personalidad de Dios; *parāḥ*—bajo Su control; *kriyāḥ*—actividades fruitivas; *vāsudeva*—la Personalidad de Dios; *param*—el supremo; *jñānam*—conocimiento; *vāsudeva*—la Personalidad de Dios; *param*—mejor; *tapaḥ*—austeridad; *vāsudeva*—la Personalidad de Dios; *paraḥ*—calidad superior; *dharmaḥ*—religión; *vāsudeva*—la Personalidad de Dios; *parāḥ*—máxima; *gatiḥ*—meta de la vida.

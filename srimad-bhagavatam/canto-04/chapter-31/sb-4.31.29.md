@@ -1,13 +1,13 @@
 ### SB 4.31.29
 
-> विदुर उवाच
-> सोऽयमद्य महायोगिन्भवता करुणात्मना ।
+> विदुर उवाच\
+> सोऽयमद्य महायोगिन्भवता करुणात्मना ।\
 > दर्शितस्तमसः पारो यत्राकिञ्चनगो हरिः ॥२९॥
 
-> vidura uvāca
-> so 'yam adya mahā-yogin
-> bhavatā karuṇātmanā
-> darśitas tamasaḥ pāro
+> vidura uvāca\
+> so 'yam adya mahā-yogin\
+> bhavatā karuṇātmanā\
+> darśitas tamasaḥ pāro\
 > yatrākiñcana-go hariḥ
 
 *viduraḥ uvāca*—Vidura said; *saḥ*—that; *ayam*—this; *adya*—today; *mahā-yogin*—O great mystic; *bhavatā*—by you; *karuṇa-ātmanā*—most merciful; *darśitaḥ*—I have been shown; *tamasaḥ*—of the darkness; *pāraḥ*—the other side; *yatra*—where; *akiñcana-gaḥ*—approachable by the materially free; *hariḥ*—the Supreme Personality of Godhead.

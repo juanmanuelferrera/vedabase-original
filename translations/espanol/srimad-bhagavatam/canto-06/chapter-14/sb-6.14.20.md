@@ -1,11 +1,11 @@
 ### SB 6.14.20
 
-> यस्यात्मानुवशश्चेत्स्यात्सर्वे तद्वशगा इमे
+> यस्यात्मानुवशश्चेत्स्यात्सर्वे तद्वशगा इमे\
 > लोकाः सपाला यच्छन्ति सर्वे बलिमतन्द्रिताः ॥२०॥
 
-> yasyātmānuvaśaś cet syāt
-> sarve tad-vaśagā ime
-> lokāḥ sapālā yacchanti
+> yasyātmānuvaśaś cet syāt\
+> sarve tad-vaśagā ime\
+> lokāḥ sapālā yacchanti\
 > sarve balim atandritāḥ
 
 *yasya*—de quien; *ātmā*—mente; *anuvaśaḥ*—bajo control; *cet*—si; *syāt*—pueda ser; *sarve*—todos; *tat-vaśa-gāḥ*—bajo su control; *ime*—esos; *lokāḥ*—los mundos; *sa-pālāḥ*—con sus gobernadores; *yacchanti*—ofrecen; *sarve*—todos; *balim*—tributos; *atandritāḥ*—liberándose de la pereza.

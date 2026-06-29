@@ -1,11 +1,11 @@
 ### SB 1.15.49
 
-> विदुरोऽपि परित्यज्य प्रभासे देहमात्मनः ।
+> विदुरोऽपि परित्यज्य प्रभासे देहमात्मनः ।\
 > कृष्णावेशेन तच्चित्तः पितृभिः स्वक्षयं ययौ ॥४९॥
 
-> viduro 'pi parityajya
-> prabhāse deham ātmanaḥ
-> kṛṣṇāveśena tac-cittaḥ
+> viduro 'pi parityajya\
+> prabhāse deham ātmanaḥ\
+> kṛṣṇāveśena tac-cittaḥ\
 > pitṛbhiḥ sva-kṣayaṁ yayau
 
 *viduraḥ*—Vidura (the uncle of Mahārāja Yudhiṣṭhira); *api*—also; *parityajya*—after quitting the body; *prabhāse*—in the place of pilgrimage at Prabhāsa; *deham ātmanaḥ*—his body; *kṛṣṇa*—the Personality of Godhead; *āveśena*—being absorbed in that thought; *tat*—his; *cittaḥ*—thoughts and actions; *pitṛbhiḥ*—along with the residents of Pitṛloka; *sva-kṣayam*—his own abode; *yayau*—departed.

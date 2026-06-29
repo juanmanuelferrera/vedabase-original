@@ -1,11 +1,11 @@
 ### Bg 3.17
 
-> यस्त्वात्मरतिरेव स्यादात्मतृप्तश्च मानवः ।
+> यस्त्वात्मरतिरेव स्यादात्मतृप्तश्च मानवः ।\
 > आत्मन्येव च सन्तुष्टस्तस्य कार्यं न विद्यते ॥१७॥
 
-> yas tv ātma-ratir eva syād
-> ātma-tṛptaś ca mānavaḥ
-> ātmany eva ca santuṣṭas
+> yas tv ātma-ratir eva syād\
+> ātma-tṛptaś ca mānavaḥ\
+> ātmany eva ca santuṣṭas\
 > tasya kāryaṁ na vidyate
 
 *yaḥ*—aquel que; *tu*—pero; *ātma-ratiḥ*—complaciéndose; *eva*—ciertamente; *syāt*—permanece; *ātma-tṛptaḥ*—autoiluminado; *ca*—y; *mānavaḥ*—un hombre; *ātmani*—en sí mismo; *eva*—únicamente; *ca*—y; *santuṣṭaḥ*—perfectamente saciado; *tasya*—su; *kāryam*—deber; *na*—no; *vidyate*—existe.

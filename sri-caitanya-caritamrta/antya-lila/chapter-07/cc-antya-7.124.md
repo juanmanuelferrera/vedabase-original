@@ -1,9 +1,9 @@
 ### CC Antya 7.124
 
-> আমার ‘হিত’ করেন, — ইহো আমি মানি ‘দুঃখ’ ।
+> আমার ‘হিত’ করেন, — ইহো আমি মানি ‘দুঃখ’ ।\
 > কৃষ্ণের উপরে কৈল যেন ইন্দ্র মহামূর্খ ।।” ॥ ১২৪ ॥
 
-> āmāra 'hita' karena,—iho āmi māni 'duḥkha'
+> āmāra 'hita' karena,—iho āmi māni 'duḥkha'\
 > kṛṣṇera upare kaila yena indra mahā-mūrkha"
 
 *āmāra*—my; *hita*—benefit; *karena*—He is doing; *iho*—this; *āmi*—I; *māni*—consider; *duḥkha*—unhappiness; *kṛṣṇeraupare*—upon Kṛṣṇa; *kaila*—did; *yena*—as; *indra*—Indra; *mahā-mūrkha*—the great fool.

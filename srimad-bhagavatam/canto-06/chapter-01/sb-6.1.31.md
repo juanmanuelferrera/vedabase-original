@@ -1,11 +1,11 @@
 ### SB 6.1.31
 
-> विकर्षतोऽन्तर्हृदयाद्दासीपतिमजामिलम
+> विकर्षतोऽन्तर्हृदयाद्दासीपतिमजामिलम\
 > यमप्रेष्यान्विष्णुदूता वारयामासुरोजसा ॥३१॥
 
-> vikarṣato 'ntar hṛdayād
-> dāsī-patim ajāmilam
-> yama-preṣyān viṣṇudūtā
+> vikarṣato 'ntar hṛdayād\
+> dāsī-patim ajāmilam\
+> yama-preṣyān viṣṇudūtā\
 > vārayām āsur ojasā
 
 *vikarṣataḥ*—snatching; *antaḥ hṛdayāt*—from within the heart; *dāsī-patim*—the husband of the prostitute; *ajāmilam*—Ajāmila; *yama-preṣyān*—the messengers of Yamarāja; *viṣṇu-dūtāḥ*—the order carriers of Lord Viṣṇu; *vārayām āsuḥ*—forbade; *ojasā*—with resounding voices.

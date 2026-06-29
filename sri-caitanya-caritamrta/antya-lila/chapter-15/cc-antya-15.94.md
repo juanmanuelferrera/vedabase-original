@@ -1,9 +1,9 @@
 ### CC Antya 15.94
 
-> ভোজন করাঞা প্রভুরে করাইলা শয়ন ।
+> ভোজন করাঞা প্রভুরে করাইলা শয়ন ।\
 > রামানন্দ-আদি সবে গেলা নিজ-স্থান ॥৯৪॥
 
-> bhojana karāñā prabhure karāilā śayana
+> bhojana karāñā prabhure karāilā śayana\
 > rāmānanda-ādi sabe gelā nija-sthāna
 
 *bhojana karāñā*—feeding; *prabhure*—Śrī Caitanya Mahāprabhu; *karāilā śayana*—made to lie down; *rāmānanda-ādi*—headed by Rāmānanda Rāya; *sabe*—all of them; *gelā*—went; *nija-sthāna*—to their homes.

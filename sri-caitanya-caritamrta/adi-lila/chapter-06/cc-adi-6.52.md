@@ -1,9 +1,9 @@
 ### CC Adi 6.52
 
-> চৈতন্যগোসাঞি মোরে করে গুরু-জ্ঞান ।
+> চৈতন্যগোসাঞি মোরে করে গুরু-জ্ঞান ।\
 > তথাপিহ মোর হয় দাস-অভিমান ॥৫২॥
 
-> caitanya-gosāñi more kare guru jñāna
+> caitanya-gosāñi more kare guru jñāna\
 > tathāpiha mora haya dāsa-abhimāna
 
 *caitanya-gosāñi*—Lord Śrī Caitanya Mahāprabhu; *more*—unto Me; *kare*—does; *guru-jñāna*—consideration as a spiritual master; *tathāpiha*—still; *mora*—My; *haya*—there is; *dāsa-abhimāna*—the conception of being His servant.

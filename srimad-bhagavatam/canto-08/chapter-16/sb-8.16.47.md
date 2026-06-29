@@ -1,11 +1,11 @@
 ### SB 8.16.47
 
-> एवं त्वहरहः कुर्याद्द्वादशाहं पयोव्रतम
+> एवं त्वहरहः कुर्याद्द्वादशाहं पयोव्रतम\
 > हरेराराधनं होममर्हणं द्विजतर्पणम ॥४७॥
 
-> evaṁ tv ahar ahaḥ kuryād
-> dvādaśāhaṁ payo-vratam
-> harer ārādhanaṁ homam
+> evaṁ tv ahar ahaḥ kuryād\
+> dvādaśāhaṁ payo-vratam\
+> harer ārādhanaṁ homam\
 > arhaṇaṁ dvija-tarpaṇam
 
 *evam*—in this way; *tu*—indeed; *ahaḥ ahaḥ*—day after day; *kuryāt*—should execute; *dvādaśa-aham*—until twelve days; *payaḥ-vratam*—the observance of the *vrata* known as *payo-vrata*; *hareḥ ārādhanam*—worshiping the Supreme Personality of Godhead; *homam*—by executing a fire sacrifice; *arhaṇam*—worshiping the Deity; *dvija-tarpaṇam*—and satisfying the *brāhmaṇas* by feeding them.

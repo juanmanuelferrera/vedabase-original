@@ -1,9 +1,9 @@
 ### CC Madhya 11.180
 
-> গোপীনাথে দেখাইল সব বাসা-ঘর ৷
+> গোপীনাথে দেখাইল সব বাসা-ঘর ৷\
 > বাণীনাথ-ঠাঞি দিল প্রসাদ বিস্তর ৷৷ ১৮০ ৷৷ ॥১৮০॥
 
-> gopīnāthe dekhāila saba vāsā-ghara
+> gopīnāthe dekhāila saba vāsā-ghara\
 > vāṇīnātha-ṭhāñi dila prasāda vistara
 
 *gopīnāthe*—a Gopīnātha Ācārya; *dekhāila*—mostró; *saba*—todos; *vāsā-ghara*—lugares de residencia; *vāṇīnātha-ṭhāñi*—a Vāṇīnātha Rāya; *dila*—entregó; *prasāda vistara*—remanentes de comida en grandes cantidades.

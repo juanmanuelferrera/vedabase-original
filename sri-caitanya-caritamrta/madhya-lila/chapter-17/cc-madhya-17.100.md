@@ -1,9 +1,9 @@
 ### CC Madhya 17.100
 
-> এইমত মহাপ্রভু দুই ভৃত্যের বশে ।
+> এইমত মহাপ্রভু দুই ভৃত্যের বশে ।\
 > ইচ্ছা নাহি, তবু তথা রহিলা দিন-দশে ॥১০০॥
 
-> ei-mata mahāprabhu dui bhṛtyera vaśe
+> ei-mata mahāprabhu dui bhṛtyera vaśe\
 > icchā nāhi, tabu tathā rahilā dina-daśe
 
 *ei-mata*—in this way; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *dui*—two; *bhṛtyera*—by servants; *vaśe*—being obliged; *icchā nāhi*—there was no such desire; *tabu*—still; *tathā*—there; *rahilā*—remained; *dina-daśe*—for ten days.

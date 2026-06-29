@@ -1,9 +1,9 @@
 ### CC Madhya 19.31
 
-> তবে সেই দুই চর রূপ-ঠাঞি আইল ।
+> তবে সেই দুই চর রূপ-ঠাঞি আইল ।\
 > ‘বৃন্দাবন চলিলা প্রভু’ — আসিয়া কহিল ॥৩১॥
 
-> tabe sei dui cara rūpa-ṭhāñi āila
+> tabe sei dui cara rūpa-ṭhāñi āila\
 > 'vṛndāvana calilā prabhu'—āsiyā kahila
 
 *tabe*—at that time; *sei*—those; *dui*—two; *cara*—messengers; *rūpa-ṭhāñi*—to the presence of Rūpa Gosvāmī; *āila*—came back; *vṛndāvana calilā prabhu*—Śrī Caitanya Mahāprabhu has departed for Vṛndāvana; *āsiyā*—coming; *kahila*—they informed.

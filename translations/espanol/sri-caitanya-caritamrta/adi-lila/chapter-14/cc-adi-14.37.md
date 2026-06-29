@@ -1,9 +1,9 @@
 ### CC Adi 14.37
 
-> অতিথি-বিপ্রের অন্ন খাইল তিনবার ।
+> অতিথি-বিপ্রের অন্ন খাইল তিনবার ।\
 > পাছে গুপ্তে সেই বিপ্রে করিল নিস্তার ॥৩৭॥
 
-> atithi-viprera anna khāila tina-bāra
+> atithi-viprera anna khāila tina-bāra\
 > pāche gupte sei vipre karila nistāra
 
 *atithi*—huésped; *viprera*—de un brāhmaṇa; *anna*—alimento; *khāila*—comió; *tina-bāra*—tres veces; *pāche*—después; *gupte*—en privado; *sei*—a ese; *vipre*—brāhmaṇa; *karila*—dio; *nistāra*—liberación.

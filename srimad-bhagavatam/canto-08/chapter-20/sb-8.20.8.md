@@ -1,11 +1,11 @@
 ### SB 8.20.8
 
-> यैरियं बुभुजे ब्रह्मन्दैत्येन्द्रैरनिवर्तिभिः
+> यैरियं बुभुजे ब्रह्मन्दैत्येन्द्रैरनिवर्तिभिः\
 > तेषां कालोऽग्रसील्लोकान्न यशोऽधिगतं भुवि ॥८॥
 
-> yair iyaṁ bubhuje brahman
-> daityendrair anivartibhiḥ
-> teṣāṁ kālo 'grasīl lokān
+> yair iyaṁ bubhuje brahman\
+> daityendrair anivartibhiḥ\
+> teṣāṁ kālo 'grasīl lokān\
 > na yaśo 'dhigataṁ bhuvi
 
 *yaiḥ*—by whom; *iyam*—this world; *bubhuje*—was enjoyed; *brahman*—O best of the *brāhmaṇas*; *daitya-indraiḥ*—by great heroes and kings born in demoniac families; *anivartibhiḥ*—by those who were determined to fight, either to lay down their lives or to win victory; *teṣām*—of such persons; *kālaḥ*—the time factor; *agrasīt*—took away; *lokān*—all possessions, all objects of enjoyment; *na*—not; *yaśaḥ*—the reputation; *adhigatam*—achieved; *bhuvi*—in this world.

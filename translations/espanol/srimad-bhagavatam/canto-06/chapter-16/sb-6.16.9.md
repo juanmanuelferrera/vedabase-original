@@ -1,11 +1,11 @@
 ### SB 6.16.9
 
-> एष नित्योऽव्ययः सूक्ष्म एष सर्वाश्रयः स्वदृक
+> एष नित्योऽव्ययः सूक्ष्म एष सर्वाश्रयः स्वदृक\
 > आत्ममायागुणैर्विश्वमात्मानं सृजते प्रभुः ॥९॥
 
-> eṣa nityo 'vyayaḥ sūkṣma
-> eṣa sarvāśrayaḥ svadṛk
-> ātmamāyā-guṇair viśvam
+> eṣa nityo 'vyayaḥ sūkṣma\
+> eṣa sarvāśrayaḥ svadṛk\
+> ātmamāyā-guṇair viśvam\
 > ātmānaṁ sṛjate prabhuḥ
 
 *eṣaḥ*—esa entidad viviente; *nityaḥ*—eterna; *avyayaḥ*—imperecedera; *sūkṣmaḥ*—muy sutil (no visible para los ojos materiales); *eṣaḥ*—esa entidad viviente; *sarva-āśrayaḥ*—la causa de distintos tipos de cuerpos; *sva-dṛk*—con refulgencia propia; *ātma-māyā-guṇaiḥ*—por las modalidades de la naturaleza material de la Suprema Personalidad de Dios; *viśvam*—este mundo material; *ātmānam*—a sí mismo; *sṛjate*—aparece; *prabhuḥ*—el amo.

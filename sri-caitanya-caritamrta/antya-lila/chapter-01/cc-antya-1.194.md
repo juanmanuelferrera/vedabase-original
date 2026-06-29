@@ -1,9 +1,9 @@
 ### CC Antya 1.194
 
-> প্রেম-পরিপাটী এই অদ্ভুত বর্ণন ।
+> প্রেম-পরিপাটী এই অদ্ভুত বর্ণন ।\
 > শুনি’ চিত্ত-কর্ণের হয় আনন্দ-ঘূর্ণন ॥১৯৪॥
 
-> prema-paripāṭī ei adbhuta varṇana
+> prema-paripāṭī ei adbhuta varṇana\
 > śuni' citta-karṇera haya ānanda-ghūrṇana
 
 *prema-paripāṭī*—a first-class arrangement to express loving affairs; *ei*—this; *adbhuta varṇana*—wonderful description; *śuni'*—hearing; *citta-karṇera*—of the heart and the ear; *haya*—there is; *ānanda-ghūrṇana*—a whirlpool of transcendental bliss.

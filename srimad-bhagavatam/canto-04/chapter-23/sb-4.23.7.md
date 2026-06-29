@@ -1,11 +1,11 @@
 ### SB 4.23.7
 
-> तितिक्षुर्यतवाग्दान्त ऊर्ध्वरेता जितानिलः ।
+> तितिक्षुर्यतवाग्दान्त ऊर्ध्वरेता जितानिलः ।\
 > आरिराधयिषुः कृष्णमचरत्तप उत्तमम् ॥७॥
 
-> titikṣur yata-vāg dānta
-> ūrdhva-retā jitānilaḥ
-> ārirādhayiṣuḥ kṛṣṇam
+> titikṣur yata-vāg dānta\
+> ūrdhva-retā jitānilaḥ\
+> ārirādhayiṣuḥ kṛṣṇam\
 > acarat tapa uttamam
 
 *titikṣuḥ*—tolerating; *yata*—controlling; *vāk*—words; *dāntaḥ*—controlling the senses; *ūrdhva-retāḥ*—without discharge of semen; *jita-anilaḥ*—controlling the life air; *ārirādhayiṣuḥ*—simply desiring; *kṛṣṇam*—Lord Kṛṣṇa; *acarat*—practice; *tapaḥ*—austerities; *uttamam*—the best.

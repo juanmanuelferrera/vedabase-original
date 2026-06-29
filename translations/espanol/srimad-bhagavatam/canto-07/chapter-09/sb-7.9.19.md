@@ -1,13 +1,13 @@
 ### SB 7.9.19
 
-> बालस्य नेह शरणं पितरौ नृसिंह
-> नार्तस्य चागदमुदन्वति मज्जतो नौः
-> तप्तस्य तत्प्रतिविधिर्य इहाञ्जसेष्टस
+> बालस्य नेह शरणं पितरौ नृसिंह\
+> नार्तस्य चागदमुदन्वति मज्जतो नौः\
+> तप्तस्य तत्प्रतिविधिर्य इहाञ्जसेष्टस\
 > तावद्विभो तनुभृतां त्वदुपेक्षितानाम ॥१९॥
 
-> bālasya neha śaraṇaṁ pitarau nṛsiṁha
-> nārtasya cāgadam udanvati majjato nauḥ
-> taptasya tat-pratividhir ya ihāñjaseṣṭas
+> bālasya neha śaraṇaṁ pitarau nṛsiṁha\
+> nārtasya cāgadam udanvati majjato nauḥ\
+> taptasya tat-pratividhir ya ihāñjaseṣṭas\
 > tāvad vibho tanu-bhṛtāṁ tvad-upekṣitānām
 
 *bālasya*—de un niño pequeño; *na*—no; *iha*—en este mundo; *śaraṇam*—refugio (protección); *pitarau*—los padres; *nṛsiṁha*—¡oh, mi Señor Nṛsiṁhadeva!; *na*—ni; *ārtasya*—de una persona que padece alguna enfermedad; *ca*—también; *agadam*—medicina; *udanvati*—en el agua del océano; *majjataḥ*—de una persona que se ahoga; *nauḥ*—el barco; *taptasya*—de una persona que sufre en condiciones materiales miserables; *tat-pratividhiḥ*—la neutralización (inventada para detener el sufrimiento de la existencia material); *yaḥ*—lo que; *iha*—en el mundo material; *añjasā*—con gran facilidad; *iṣṭaḥ*—aceptado (como remedio); *tāvat*—de manera similar; *vibho*—¡oh, mi Señor!, ¡oh, Supremo!; *tanu-bhṛtām*—de las entidades vivientes que han recibido cuerpos materiales; *tvat-upekṣitānām*—dejadas de lado y no aceptadas por Ti.

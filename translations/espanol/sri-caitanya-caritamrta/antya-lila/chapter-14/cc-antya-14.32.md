@@ -1,9 +1,9 @@
 ### CC Antya 14.32
 
-> স্বপ্নের দর্শনাবেশে তদ্রূপ হৈল মন ।
+> স্বপ্নের দর্শনাবেশে তদ্রূপ হৈল মন ।\
 > যাহাঁ তাহাঁ দেখে সর্বত্র মুরলী-বদন ॥৩২॥
 
-> svapnera darśanāveśe tad-rūpa haila mana
+> svapnera darśanāveśe tad-rūpa haila mana\
 > yāhāṅ tāhāṅ dekhe sarvatra muralī-vadana
 
 *svapnera*—del sueño; *darśana-āveśe*—al estar plenamente absorto en la visión; *tat-rūpa*—de esa misma manera; *haila mana*—la mente se volvió; *yāhāṅ tāhāṅ*—dondequiera; *dekhe*—ve; *sarvatra*—por todas partes; *muralī-vadana*—Kṛṣṇa con Su flauta en los labios.

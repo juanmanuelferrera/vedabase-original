@@ -1,13 +1,13 @@
 ### SB 2.7.17
 
-> ज्यायान्गुणैरवरजोऽप्यदितेः सुतानां
-> लोकान्विचक्रम इमान्यदथाधियज्ञः ।
-> क्ष्मां वामनेन जगृहे त्रिपदच्छलेन
+> ज्यायान्गुणैरवरजोऽप्यदितेः सुतानां\
+> लोकान्विचक्रम इमान्यदथाधियज्ञः ।\
+> क्ष्मां वामनेन जगृहे त्रिपदच्छलेन\
 > याच्ञामृते पथि चरन्प्रभुभिर्न चाल्यः ॥१७॥
 
-> jyāyān guṇair avarajo 'py aditeḥ sutānāṁ
-> lokān vicakrama imān yad athādhiyajñaḥ
-> kṣmāṁ vāmanena jagṛhe tripada-cchalena
+> jyāyān guṇair avarajo 'py aditeḥ sutānāṁ\
+> lokān vicakrama imān yad athādhiyajñaḥ\
+> kṣmāṁ vāmanena jagṛhe tripada-cchalena\
 > yācñām ṛte pathi caran prabhubhir na cālyaḥ
 
 *jyāyān*—the greatest; *guṇaiḥ*—by qualities; *avarajaḥ*—transcendental; *api*—although He is so; *aditeḥ*—of Aditi; *sutānām*—of all the sons (known as Ādityas); *lokān*—all the planets; *vicakrame*—surpassed; *imān*—in this universe; *yat*—one who; *atha*—therefore; *adhiyajñaḥ*—the Supreme Personality of Godhead; *kṣmām*—all the lands; *vāmanena*—in the incarnation of Vāmana; *jagṛhe*—accepted; *tripada*—three steps; *chalena*—by pretension; *yācñām*—begging; *ṛte*—without; *pathi caran*—passing over the right path; *prabhubhiḥ*—by authorities; *na*—never to be; *cālyaḥ*—to be bereft of.

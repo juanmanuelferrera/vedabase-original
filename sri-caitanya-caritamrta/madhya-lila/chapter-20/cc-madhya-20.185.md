@@ -1,9 +1,9 @@
 ### CC Madhya 20.185
 
-> প্রাভব-বৈভব-ভেদে বিলাস — দ্বিধাকার ।
+> প্রাভব-বৈভব-ভেদে বিলাস — দ্বিধাকার ।\
 > বিলাসের বিলাস-ভেদ — অনন্ত প্রকার ॥১৮৫॥
 
-> prābhava-vaibhava-bhede vilāsa—dvidhākāra
+> prābhava-vaibhava-bhede vilāsa—dvidhākāra\
 > vilāsera vilāsa-bheda—ananta prakāra
 
 *prābhava-vaibhava-bhede*—by the differences between *prābhava* and *vaibhava,*; *vilāsa*—pastime expansion; *dvidhā-ākāra*—twofold; *vilāsera*—of pastime forms; *vilāsa-bheda*—by the different pastimes; *ananta prakāra*—unlimited varieties.

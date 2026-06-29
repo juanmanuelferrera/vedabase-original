@@ -1,9 +1,9 @@
 ### CC Antya 13.39
 
-> শীঘ্র আসিহ, তাঁহা না রহিহ চিরকাল ।
+> শীঘ্র আসিহ, তাঁহা না রহিহ চিরকাল ।\
 > গোবর্ধনে না চড়িহ দেখিতে ‘গোপাল’ ॥৩৯॥
 
-> śīghra āsiha, tāhāṅ nā rahiha cira-kāla
+> śīghra āsiha, tāhāṅ nā rahiha cira-kāla\
 > govardhane nā caḍiha dekhite 'gopāla'
 
 *śīghra*—lo antes posible; *āsiha*—regresa; *tāhāṅ*—allí; *nā rahiha*—no permanezcas; *cira-kāla*—mucho tiempo; *govardhane*—a la colina Govardhana; *nā caḍiha*—no subas; *dekhite gopāla*—para ver a la Deidad Gopāla.

@@ -1,11 +1,11 @@
 ### CC Madhya 21.126
 
-> সখি হে, কৃষ্ণমুখ — দ্বিজরাজ-রাজ ।
-> কৃষ্ণবপু-সিংহাসনে, বসি’ রাজ্য-শাসনে,
+> সখি হে, কৃষ্ণমুখ — দ্বিজরাজ-রাজ ।\
+> কৃষ্ণবপু-সিংহাসনে, বসি’ রাজ্য-শাসনে,\
 > করে সঙ্গে চন্দ্রের সমাজ ।। ১২৬ ।। ধ্রু ।। ॥১২৬॥
 
-> sakhī he, kṛṣṇa-mukha—dvija-rāja-rāja
-> kṛṣṇa-vapu-siṁhāsane, vasi' rājya-śāsane,
+> sakhī he, kṛṣṇa-mukha—dvija-rāja-rāja\
+> kṛṣṇa-vapu-siṁhāsane, vasi' rājya-śāsane,\
 > kare saṅge candrera samāja
 
 *sakhī he*—O dear friend; *kṛṣṇa-mukha*—the face of Lord Kṛṣṇa; *dvija-rāja-rāja*—the king of moons; *kṛṣṇa-vapu*—of the transcendental body of Kṛṣṇa; *siṁhāsane*—on the throne; *vasi'*—sitting; *rājya-śāsane*—ruling of the kingdom; *kare*—does; *saṅge*—in the company of; *candrera samāja*—the society of moons.

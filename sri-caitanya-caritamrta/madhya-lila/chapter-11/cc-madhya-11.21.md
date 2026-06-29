@@ -1,9 +1,9 @@
 ### CC Madhya 11.21
 
-> তোমার নাম শুনি’ হৈল মহা-প্রেমাবেশ ।
+> তোমার নাম শুনি’ হৈল মহা-প্রেমাবেশ ।\
 > মোর হাতে ধরি’ করে পিরীতি বিশেষ ॥২১॥
 
-> tomāra nāma śuni' haila mahā-premāveśa
+> tomāra nāma śuni' haila mahā-premāveśa\
 > mora hāte dhari' kare pirīti viśeṣa
 
 *tomāra*—Your; *nāma*—name; *śuni'*—hearing; *haila*—became; *mahā*—great; *prema-āveśa*—ecstasy of love; *mora hāte*—my hand; *dhari'*—catching; *kare*—does; *pirīti*—loving symptoms; *viśeṣa*—specific.

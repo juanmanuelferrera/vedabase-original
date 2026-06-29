@@ -1,9 +1,9 @@
 ### CC Madhya 7.121
 
-> ‘কূর্ম’-নামে সেই গ্রামে বৈদিক ব্রাহ্মণ ।
+> ‘কূর্ম’-নামে সেই গ্রামে বৈদিক ব্রাহ্মণ ।\
 > বহু শ্রদ্ধা-ভক্ত্যে কৈল প্রভুর নিমন্ত্রণ ॥১২১॥
 
-> 'kūrma'-nāme sei grāme vaidika brāhmaṇa
+> 'kūrma'-nāme sei grāme vaidika brāhmaṇa\
 > bahu śraddhā-bhaktye kaila prabhura nimantraṇa
 
 *kūrma-nāme*—of the name Kūrma; *sei*—that; *grāme*—in the village; *vaidika brāhmaṇa*—a Vedic *brāhmaṇa*; *bahu*—much; *śraddhā-bhaktye*—with faith and devotion; *kaila*—made; *prabhura*—of Śrī Caitanya Mahāprabhu; *nimantraṇa*—invitation.

@@ -1,11 +1,11 @@
 ### SB 4.28.53
 
-> अपि स्मरसि चात्मानमविज्ञातसखं सखे ।
+> अपि स्मरसि चात्मानमविज्ञातसखं सखे ।\
 > हित्वा मां पदमन्विच्छन्भौमभोगरतो गतः ॥५३॥
 
-> api smarasi cātmānam
-> avijñāta-sakhaṁ sakhe
-> hitvā māṁ padam anvicchan
+> api smarasi cātmānam\
+> avijñāta-sakhaṁ sakhe\
+> hitvā māṁ padam anvicchan\
 > bhauma-bhoga-rato gataḥ
 
 *api smarasi*—recuerdas; *ca*—también; *ātmānam*—a la Superalma; *avijñāta*—desconocido; *sakham*—amigo; *sakhe*—¡oh, amigo!; *hitvā*—abandonar; *mām*—a Mí; *padam*—posición; *anvicchan*—desear; *bhauma*—material; *bhoga*—disfrute; *rataḥ*—apegada a; *gataḥ*—tú estuviste.

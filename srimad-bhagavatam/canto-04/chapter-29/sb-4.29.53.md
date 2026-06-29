@@ -1,13 +1,13 @@
 ### SB 4.29.53
 
-> क्षुद्रं चरं सुमनसां शरणे मिथित्वा
-> रक्तं षडङ्घ्रिगणसामसु लुब्धकर्णम् ।
-> अग्रे वृकानसुतृपोऽविगणय्य यान्तं
+> क्षुद्रं चरं सुमनसां शरणे मिथित्वा\
+> रक्तं षडङ्घ्रिगणसामसु लुब्धकर्णम् ।\
+> अग्रे वृकानसुतृपोऽविगणय्य यान्तं\
 > पृष्ठे मृगं मृगय लुब्धकबाणभिन्नम् ॥५३॥
 
-> kṣudraṁ caraṁ sumanasāṁ śaraṇe mithitvā
-> raktaṁ ṣaḍaṅghri-gaṇa-sāmasu lubdha-karṇam
-> agre vṛkān asu-tṛpo 'vigaṇayya yāntaṁ
+> kṣudraṁ caraṁ sumanasāṁ śaraṇe mithitvā\
+> raktaṁ ṣaḍaṅghri-gaṇa-sāmasu lubdha-karṇam\
+> agre vṛkān asu-tṛpo 'vigaṇayya yāntaṁ\
 > pṛṣṭhe mṛgaṁ mṛgaya lubdhaka-bāṇa-bhinnam
 
 *kṣudram*—on grass; *caram*—grazing; *sumanasām*—of a beautiful flower garden; *śaraṇe*—under the protection; *mithitvā*—being united with a woman; *raktam*—attached; *ṣaṭ-aṅghri*—of bumblebees; *gaṇa*—of groups; *sāmasu*—to the singing; *lubdha-karṇam*—whose ear is attracted; *agre*—in front; *vṛkān*—tigers; *asu-tṛpaḥ*—who live at the cost of another's life; *avigaṇayya*—neglecting; *yāntam*—moving; *pṛṣṭhe*—behind; *mṛgam*—the deer; *mṛgaya*—search out; *lubdhaka*—of a hunter; *bāṇa*—by the arrows; *bhinnam*—liable to be pierced.

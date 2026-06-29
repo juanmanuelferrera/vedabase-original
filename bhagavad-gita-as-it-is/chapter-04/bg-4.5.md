@@ -1,13 +1,13 @@
 ### Bg 4.5
 
-> श्रीभगवानुवाच ।
-> बहूनि मे व्यतीतानि जन्मानि तव चार्जुन ।
+> श्रीभगवानुवाच ।\
+> बहूनि मे व्यतीतानि जन्मानि तव चार्जुन ।\
 > तान्यहं वेद सर्वाणि न त्वं वेत्थ परन्तप ॥५॥
 
-> śrī-bhagavān uvāca
-> bahūni me vyatītāni
-> janmāni tava cārjuna
-> tāny ahaṁ veda sarvāṇi
+> śrī-bhagavān uvāca\
+> bahūni me vyatītāni\
+> janmāni tava cārjuna\
+> tāny ahaṁ veda sarvāṇi\
 > na tvaṁ vettha parantapa
 
 *śrī bhagavān uvāca*—the Personality of Godhead said; *bahūni*—many; *me*—of Mine; *vyatītāni*—have passed; *janmāni*—births; *tava*—of yours; *ca*—and also; *arjuna*—O Arjuna; *tāni*—all those; *aham*—I; *veda*—do know; *sarvāṇi*—all; *na*—not; *tvam*—yourself; *vettha*—know; *parantapa*—O subduer of the enemy.

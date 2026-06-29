@@ -1,11 +1,11 @@
 ### SB 5.18.9
 
-> स्वस्त्यस्तु विश्वस्य खलः प्रसीदतां ध्यायन्तु भूतानि शिवं मिथो धिया
+> स्वस्त्यस्तु विश्वस्य खलः प्रसीदतां ध्यायन्तु भूतानि शिवं मिथो धिया\
 > मनश्च भद्रं भजतादधोक्षजे आवेश्यतां नो मतिरप्यहैतुकी ॥९॥
 
-> svasty astu viśvasya khalaḥ prasīdatāṁ
-> dhyāyantu bhūtāni śivaṁ mitho dhiyā
-> manaś ca bhadraṁ bhajatād adhokṣaje
+> svasty astu viśvasya khalaḥ prasīdatāṁ\
+> dhyāyantu bhūtāni śivaṁ mitho dhiyā\
+> manaś ca bhadraṁ bhajatād adhokṣaje\
 > āveśyatāṁ no matir apy ahaitukī
 
 *svasti*—lo auspicioso; *astu*—que sea; *viśvasya*—del universo entero; *khalaḥ*—los envidiosos (prácticamente todos); *prasīdatām*—que se apacigüen; *dhyāyantu*—que consideren; *bhūtāni*—todas las entidades vivientes; *śivam*—lo auspicioso; *mithaḥ*—mutuo; *dhiyā*—con la inteligencia; *manaḥ*—la mente; *ca*—y; *bhadram*—calma; *bhajatāt*—que experimenten; *adhokṣaje*—en la Suprema Personalidad de Dios, que está más allá de la percepción de la mente, la inteligencia y los sentidos; *āveśyatām*—que se absorba; *naḥ*—nuestra; *matiḥ*—inteligencia; *api*—en verdad; *ahaitukī*—sin ninguna motivación.

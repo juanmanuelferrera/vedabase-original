@@ -1,13 +1,13 @@
 ### SB 6.9.21
 
-> श्रीदेवा ऊचुः
-> वाय्वम्बराग्न्यप्क्षितयस्त्रिलोका ब्रह्मादयो ये वयमुद्विजन्तः
+> श्रीदेवा ऊचुः\
+> वाय्वम्बराग्न्यप्क्षितयस्त्रिलोका ब्रह्मादयो ये वयमुद्विजन्तः\
 > हराम यस्मै बलिमन्तकोऽसौ बिभेति यस्मादरणं ततो नः ॥२१॥
 
-> śrī-devā ūcuḥ
-> vāyv-ambarāgny-ap-kṣitayas tri-lokā
-> brahmādayo ye vayam udvijantaḥ
-> harāma yasmai balim antako 'sau
+> śrī-devā ūcuḥ\
+> vāyv-ambarāgny-ap-kṣitayas tri-lokā\
+> brahmādayo ye vayam udvijantaḥ\
+> harāma yasmai balim antako 'sau\
 > bibheti yasmād araṇaṁ tato naḥ
 
 *śrī-devāḥ ūcuḥ*—the demigods said; *vāyu*—composed of air; *ambara*—sky; *agni*—fire; *ap*—water; *kṣitayaḥ*—and land; *tri-lokāḥ*—the three worlds; *brahma-ādayaḥ*—beginning from Lord Brahmā; *ye*—who; *vayam*—we; *udvijantaḥ*—being very much afraid; *harāma*—offer; *yasmai*—unto whom; *balim*—presentation; *antakaḥ*—the destroyer, death; *asau*—that; *bibheti*—fears; *yasmāt*—from whom; *araṇam*—shelter; *tataḥ*—therefore; *naḥ*—our.

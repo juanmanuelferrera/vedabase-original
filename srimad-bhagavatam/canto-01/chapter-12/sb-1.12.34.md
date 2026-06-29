@@ -1,11 +1,11 @@
 ### SB 1.12.34
 
-> तेन सम्भृतसम्भारो धर्मपुत्रो युधिष्ठिरः ।
+> तेन सम्भृतसम्भारो धर्मपुत्रो युधिष्ठिरः ।\
 > वाजिमेधैस्त्रिभिर्भीतो यज्ञैः समयजद्धरिम् ॥३४॥
 
-> tena sambhṛta-sambhāro
-> dharma-putro yudhiṣṭhiraḥ
-> vājimedhais tribhir bhīto
+> tena sambhṛta-sambhāro\
+> dharma-putro yudhiṣṭhiraḥ\
+> vājimedhais tribhir bhīto\
 > yajñaiḥ samayajad dharim
 
 *tena*—with that wealth; *sambhṛta*—collected; *sambhāraḥ*—ingredients; *dharma-putraḥ*—the pious king; *yudhiṣṭhiraḥ*—Yudhiṣṭhira; *vājimedhaiḥ*—by horse sacrifices; *tribhiḥ*—three times; *bhītaḥ*—being greatly afraid after the Battle of Kurukṣetra; *yajñaiḥ*—sacrifices; *samayajat*—perfectly worshiped; *harim*—the Personality of Godhead.

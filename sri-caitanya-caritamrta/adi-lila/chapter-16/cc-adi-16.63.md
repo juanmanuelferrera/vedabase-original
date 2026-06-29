@@ -1,9 +1,9 @@
 ### CC Adi 16.63
 
-> ভবানী-শব্দে কহে মহাদেবের গৃহিণী ।
+> ভবানী-শব্দে কহে মহাদেবের গৃহিণী ।\
 > তাঁর ভর্তা কহিলে দ্বিতীয় ভর্তা জানি ॥৬৩॥
 
-> bhavānī-śabde kahe mahādevera gṛhiṇī
+> bhavānī-śabde kahe mahādevera gṛhiṇī\
 > tāṅra bhartā kahile dvitīya bhartā jāni
 
 *bhavānī śabde*—by the word *bhavānī* ("the wife of Lord Śiva"); *kahe*—is mentioned; *mahādevera*—of Lord Śiva; *gṛhiṇī*—the wife; *tāṅra*—her; *bhartā*—husband; *kahile*—if we say; *dvitīya*—second; *bhartā*—husband; *jāni*—we understand.

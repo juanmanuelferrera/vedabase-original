@@ -1,11 +1,11 @@
 ### SB 7.6.10
 
-> को न्वर्थतृष्णां विसृजेत्प्राणेभ्योऽपि य ईप्सितः
+> को न्वर्थतृष्णां विसृजेत्प्राणेभ्योऽपि य ईप्सितः\
 > यं क्रीणात्यसुभिः प्रेष्ठैस्तस्करः सेवको वणिक ॥१०॥
 
-> ko nv artha-tṛṣṇāṁ visṛjet
-> prāṇebhyo 'pi ya īpsitaḥ
-> yaṁ krīṇāty asubhiḥ preṣṭhais
+> ko nv artha-tṛṣṇāṁ visṛjet\
+> prāṇebhyo 'pi ya īpsitaḥ\
+> yaṁ krīṇāty asubhiḥ preṣṭhais\
 > taskaraḥ sevako vaṇik
 
 *kaḥ*—quién; *nu*—en verdad; *artha-tṛṣṇām*—un fuerte deseo de conseguir dinero; *visṛjet*—puede abandonar; *prāṇebhyaḥ*—que la vida; *api*—en verdad; *yaḥ*—el cual; *īpsitaḥ*—más deseado; *yam*—el cual; *krīṇāti*—trata de conseguir; *asubhiḥ*—con su propia vida; *preṣṭhaiḥ*—muy querido; *taskaraḥ*—un ladrón; *sevakaḥ*—un sirviente profesional; *vaṇik*—un mercader.

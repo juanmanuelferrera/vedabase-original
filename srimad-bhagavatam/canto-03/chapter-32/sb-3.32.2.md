@@ -1,11 +1,11 @@
 ### SB 3.32.2
 
-> स चापि भगवद्धर्मात्काममूढः पराङ्मुखः ।
+> स चापि भगवद्धर्मात्काममूढः पराङ्मुखः ।\
 > यजते क्रतुभिर्देवान्पित्ंश्च श्रद्धयान्वितः ॥२॥
 
-> sa cāpi bhagavad-dharmāt
-> kāma-mūḍhaḥ parāṅ-mukhaḥ
-> yajate kratubhir devān
+> sa cāpi bhagavad-dharmāt\
+> kāma-mūḍhaḥ parāṅ-mukhaḥ\
+> yajate kratubhir devān\
 > pitṝṁś ca śraddhayānvitaḥ
 
 *saḥ*—he; *ca api*—moreover; *bhagavat-dharmāt*—from devotional service; *kāma-mūḍhaḥ*—infatuated by lust; *parāk-mukhaḥ*—having the face turned away; *yajate*—worships; *kratubhiḥ*—with sacrificial ceremonies; *devān*—the demigods; *pitṝn*—the forefathers; *ca*—and; *śraddhayā*—with faith; *anvitaḥ*—endowed.

@@ -1,11 +1,11 @@
 ### SB 4.29.3
 
-> योऽविज्ञाताहृतस्तस्य पुरुषस्य सखेश्वरः ।
+> योऽविज्ञाताहृतस्तस्य पुरुषस्य सखेश्वरः ।\
 > यन्न विज्ञायते पुम्भिर्नामभिर्वा क्रियागुणैः ॥३॥
 
-> yo 'vijñātāhṛtas tasya
-> puruṣasya sakheśvaraḥ
-> yan na vijñāyate pumbhir
+> yo 'vijñātāhṛtas tasya\
+> puruṣasya sakheśvaraḥ\
+> yan na vijñāyate pumbhir\
 > nāmabhir vā kriyā-guṇaiḥ
 
 *yaḥ*—aquel que; *avijñāta*—desconocido; *āhṛtaḥ*—descrito; *tasya*—de él; *puruṣasya*—de la entidad viviente; *sakhā*—el amigo eterno; *īśvaraḥ*—el amo; *yat*—porque; *na*—nunca; *vijñāyate*—se considera; *pumbhiḥ*—por las entidades vivientes; *nāmabhiḥ*—con nombres; *vā*—o; *kriyā-guṇaiḥ*—con actividades o cualidades.

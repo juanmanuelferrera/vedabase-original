@@ -1,14 +1,14 @@
 ### CC Adi 4.227-228
 
-> অদ্বৈত আচার্য, নিত্যানন্দ, শ্রীনিবাস ।
-> গদাধর, দামোদর, মুরারি, হরিদাস ॥২২৭॥
-> আর যত চৈতন্য-কৃষ্ণের ভক্তগণ ।
+> অদ্বৈত আচার্য, নিত্যানন্দ, শ্রীনিবাস ।\
+> গদাধর, দামোদর, মুরারি, হরিদাস ॥২২৭॥\
+> আর যত চৈতন্য-কৃষ্ণের ভক্তগণ ।\
 > ভক্তিভাবে শিরে ধরি সবার চরণ ॥২২৮॥
 
-> advaita ācārya, nityānanda, śrīnivāsa
+> advaita ācārya, nityānanda, śrīnivāsa\
 > gadādhara, dāmodara, murāri, haridāsa
 
-> āra yata caitanya-kṛṣṇera bhakta-gaṇa
+> āra yata caitanya-kṛṣṇera bhakta-gaṇa\
 > bhakti-bhāve śire dhari sabāra caraṇa
 
 *advaita ācārya*—Advaita Ācārya; *nityānanda*—Śrī Nityānanda; *śrīnivāsa*—Śrīvāsa Paṇḍita; *gadādhara*—Gadādhara Paṇḍita; *dāmodara*—Svarūpa Dāmodara; *murāri*—Murāri Gupta; *haridāsa*—Haridāsa Ṭhākura; *āra*—otros; *yata*—todos; *caitanya-kṛṣṇera*—de Śrī Kṛṣṇa Caitanya; *bhakta-gaṇa*—devotos; *bhakti-bhāve*—con una actitud devocional; *śire*—sobre mi cabeza; *dhari*—yo tomo; *sabāra*—de todos ellos; *caraṇa*—los pies de loto.

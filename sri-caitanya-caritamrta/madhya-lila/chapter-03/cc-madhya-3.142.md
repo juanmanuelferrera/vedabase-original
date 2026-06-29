@@ -1,9 +1,9 @@
 ### CC Madhya 3.142
 
-> অঙ্গ মুছে, মুখ চুম্বে, করে নিরীক্ষণ ।
+> অঙ্গ মুছে, মুখ চুম্বে, করে নিরীক্ষণ ।\
 > দেখিতে না পায়, — অশ্রু ভরিল নয়ন ॥১৪২॥
 
-> aṅga muche, mukha cumbe, kare nirīkṣaṇa
+> aṅga muche, mukha cumbe, kare nirīkṣaṇa\
 > dekhite nā pāya,—aśru bharila nayana
 
 *aṅga*—the body; *muche*—caresses; *mukha*—face; *cumbe*—kisses; *kare*—does; *nirīkṣaṇa*—observing; *dekhite*—to see; *nā pāya*—not able; *aśru*—tears; *bharila*—filled; *nayana*—the eyes.

@@ -1,11 +1,11 @@
 ### SB 3.14.35
 
-> नमो रुद्राय महते देवायोग्राय मीढुषे ।
+> नमो रुद्राय महते देवायोग्राय मीढुषे ।\
 > शिवाय न्यस्तदण्डाय धृतदण्डाय मन्यवे ॥३५॥
 
-> namo rudrāya mahate
-> devāyogrāya mīḍhuṣe
-> śivāya nyasta-daṇḍāya
+> namo rudrāya mahate\
+> devāyogrāya mīḍhuṣe\
+> śivāya nyasta-daṇḍāya\
 > dhṛta-daṇḍāya manyave
 
 *namaḥ*—all obeisances unto; *rudrāya*—unto the angry Lord Śiva; *mahate*—unto the great; *devāya*—unto the demigod; *ugrāya*—unto the ferocious; *mīḍhuṣe*—unto the fulfiller of all material desires; *śivāya*—unto the all-auspicious; *nyasta-daṇḍāya*—unto the forgiving; *dhṛta-daṇḍāya*—unto the immediate chastiser; *manyave*—unto the angry.

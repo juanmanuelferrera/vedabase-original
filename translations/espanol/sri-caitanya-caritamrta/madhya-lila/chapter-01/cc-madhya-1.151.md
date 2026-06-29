@@ -1,9 +1,9 @@
 ### CC Madhya 1.151
 
-> পঞ্চদিন দেখে লোক নাহিক বিশ্রাম ।
+> পঞ্চদিন দেখে লোক নাহিক বিশ্রাম ।\
 > লোকভয়ে রাত্রে প্রভু আইলা কুলিয়া-গ্রাম ॥১৫১॥
 
-> pañca-dina dekhe loka nāhika viśrāma
+> pañca-dina dekhe loka nāhika viśrāma\
 > loka-bhaye rātre prabhu āilā kuliyā-grāma
 
 *pañca-dina*—durante cinco días consecutivos; *dekhe*—ven; *loka*—las personas; *nāhika*—no hay; *viśrāma*—descanso; *loka-bhaye*—por temor a las multitudes; *rātre*—de noche; *prabhu*—el Señor; *āilā*—se marchó; *kuliyā-grāma*—al lugar conocido como Kuliyā.

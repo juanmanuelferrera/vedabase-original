@@ -1,9 +1,9 @@
 ### CC Madhya 9.186
 
-> প্রভু কহে, — বিপ্র কাঁহে কর উপবাস ।
+> প্রভু কহে, — বিপ্র কাঁহে কর উপবাস ।\
 > কেনে এত দুঃখ, কেনে করহ হুতাশ ॥১৮৬॥
 
-> prabhu kahe,—vipra kāṅhe kara upavāsa
+> prabhu kahe,—vipra kāṅhe kara upavāsa\
 > kene eta duḥkha, kene karaha hutāśa
 
 *prabhukahe*—Lord Śrī Caitanya Mahāprabhu said; *vipra*—My dear *brāhmaṇa*; *kāṅhe*—why; *kara upavāsa*—you are fasting; *kene*—why; *eta*—so much; *duḥkha*—unhappiness; *kene*—why; *karaha hutāśa*—you express so much worry.

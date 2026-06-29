@@ -1,11 +1,11 @@
 ### Bg 5.4
 
-> साङ्ख्ययोगौ पृथग्बालाः प्रवदन्ति न पण्डिताः ।
+> साङ्ख्ययोगौ पृथग्बालाः प्रवदन्ति न पण्डिताः ।\
 > एकमप्यास्थितः सम्यगुभयोर्विन्दते फलम् ॥४॥
 
-> sāṅkhya-yogau pṛthag bālāḥ
-> pravadanti na paṇḍitāḥ
-> ekam apy āsthitaḥ samyag
+> sāṅkhya-yogau pṛthag bālāḥ\
+> pravadanti na paṇḍitāḥ\
+> ekam apy āsthitaḥ samyag\
 > ubhayor vindate phalam
 
 *sāṅkhya*—estudio analítico del mundo material; *yogau*—trabajo que se hace como servicio devocional; *pṛthak*—diferente; *bālāḥ*—los poco inteligentes; *pravadanti*—dicen; *na*—nunca; *paṇḍitāḥ*—los eruditos; *ekam*—en uno; *api*—aunque; *āsthitaḥ*—estando situado; *samyak*—completo; *ubhayoḥ*—de ambos; *vindate*—disfruta; *phalam*—el resultado.

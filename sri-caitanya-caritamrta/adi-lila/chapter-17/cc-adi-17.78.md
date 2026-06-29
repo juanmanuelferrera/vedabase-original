@@ -1,11 +1,11 @@
 ### CC Adi 17.78
 
-> ক্বাহং দরিদ্রঃ পাপীয়ান্ ক্ব কৃষ্ণঃ শ্রীনিকেতনঃ ।
+> ক্বাহং দরিদ্রঃ পাপীয়ান্ ক্ব কৃষ্ণঃ শ্রীনিকেতনঃ ।\
 > ব্রহ্মবন্ধুরিতি স্মাহং বাহুভ্যাং পরিরম্ভিতঃ ॥৭৮॥
 
-> kvāhaṁ daridraḥ pāpīyān
-> kva kṛṣṇaḥ śrī-niketanaḥ
-> brahma-bandhur iti smāhaṁ
+> kvāhaṁ daridraḥ pāpīyān\
+> kva kṛṣṇaḥ śrī-niketanaḥ\
+> brahma-bandhur iti smāhaṁ\
 > bāhubhyāṁ parirambhitaḥ
 
 *kva*—whereas; *aham*—I (am); *daridraḥ*—very poor; *pāpīyān*—sinful; *kva*—whereas; *kṛṣṇaḥ*—the Supreme Personality of Godhead; *śrī-niketanaḥ*—the shelter of the goddess of fortune; *brahma-bandhuḥ*—a caste *brāhmaṇa* without brahminical qualifications; *iti*—thus; *sma*—certainly; *aham*—I (am); *bāhubhyām*—by the arms; *parirambhitaḥ*—embraced.

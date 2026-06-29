@@ -1,9 +1,9 @@
 ### CC Madhya 13.12
 
-> প্ৰভু-পদাঘাতে তুলী হয় খণ্ড খণ্ড ।
+> প্ৰভু-পদাঘাতে তুলী হয় খণ্ড খণ্ড ।\
 > তুলা সব উড়ি’ যায়, শব্দ হয় প্রচণ্ড ॥১২॥
 
-> prabhu-padāghāte tulī haya khaṇḍa khaṇḍa
+> prabhu-padāghāte tulī haya khaṇḍa khaṇḍa\
 > tulā saba uḍi' yāya, śabda haya pracaṇḍa
 
 *prabhu-pada-āghāte*—por las patadas del Señor Jagannātha; *tulī*—los almohadones; *haya*—se vuelven; *khaṇḍa khaṇḍa*—hechos pedazos; *tulā*—el algodón de su interior; *saba*—todo; *uḍi' yāya*—se eleva; *śabda*—sonido; *haya*—hay; *pracaṇḍa*—muy fuerte.

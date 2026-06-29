@@ -1,11 +1,11 @@
 ### SB 6.9.53
 
-> दध्यङ्ङ्आथर्वणस्त्वष्ट्रे वर्माभेद्यं मदात्मकम
+> दध्यङ्ङ्आथर्वणस्त्वष्ट्रे वर्माभेद्यं मदात्मकम\
 > विश्वरूपाय यत्प्रादात्त्वष्टा यत्त्वमधास्ततः ॥५३॥
 
-> dadhyaṅṅ ātharvaṇas tvaṣṭre
-> varmābhedyaṁ mad-ātmakam
-> viśvarūpāya yat prādāt
+> dadhyaṅṅ ātharvaṇas tvaṣṭre\
+> varmābhedyaṁ mad-ātmakam\
+> viśvarūpāya yat prādāt\
 > tvaṣṭā yat tvam adhās tataḥ
 
 *dadhyaṅ*—Dadhyañca; *ātharvaṇaḥ*—the son of Atharvā; *tvaṣṭre*—unto Tvaṣṭā; *varma*—the protective covering known as Nārāyaṇa-kavaca; *abhedyam*—invincible; *mat-ātmakam*—consisting of Myself; *viśvarūpāya*—unto Viśvarūpa; *yat*—which; *prādāt*—delivered; *tvaṣṭā*—Tvaṣṭā; *yat*—which; *tvam*—you; *adhāḥ*—received; *tataḥ*—from him.

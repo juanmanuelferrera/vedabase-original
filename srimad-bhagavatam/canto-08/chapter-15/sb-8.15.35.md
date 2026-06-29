@@ -1,11 +1,11 @@
 ### SB 8.15.35
 
-> तं विश्वजयिनं शिष्यं भृगवः शिष्यवत्सलाः
+> तं विश्वजयिनं शिष्यं भृगवः शिष्यवत्सलाः\
 > शतेन हयमेधानामनुव्रतमयाजयन ॥३५॥
 
-> tatas tad-anubhāvena
-> bhuvana-traya-viśrutām
-> kīrtiṁ dikṣu-vitanvānaḥ
+> tatas tad-anubhāvena\
+> bhuvana-traya-viśrutām\
+> kīrtiṁ dikṣu-vitanvānaḥ\
 > sa reja uḍurāḍ iva
 
 *tataḥ*—thereafter; *tat-anubhāvena*—because of performing such great sacrifices; *bhuvana-traya*—throughout the three worlds; *viśrutām*—celebrated; *kīrtim*—reputation; *dikṣu*—in all directions; *vitanvānaḥ*—spreading; *saḥ*—he (Bali Mahārāja); *reje*—became effulgent; *uḍurāṭ*—the moon; *iva*—like.

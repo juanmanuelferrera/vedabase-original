@@ -1,20 +1,20 @@
 ### SB 8.15.1-2
 
-> श्रीराजोवाच
-> बलेः पदत्रयं भूमेः कस्माद्धरिरयाचत
-> भूतेश्वरः कृपणवल्लब्धार्थोऽपि बबन्ध तम ॥१॥
-> एतद्वेदितुमिच्छामो महत्कौतूहलं हि नः
+> श्रीराजोवाच\
+> बलेः पदत्रयं भूमेः कस्माद्धरिरयाचत\
+> भूतेश्वरः कृपणवल्लब्धार्थोऽपि बबन्ध तम ॥१॥\
+> एतद्वेदितुमिच्छामो महत्कौतूहलं हि नः\
 > यज्ञएश्वरस्य पूर्णस्य बन्धनं चाप्यनागसः ॥२॥
 
-> śrī-rājovāca
-> baleḥ pada-trayaṁ bhūmeḥ
-> kasmād dharir ayācata
-> bhūteśvaraḥ kṛpaṇa-val
+> śrī-rājovāca\
+> baleḥ pada-trayaṁ bhūmeḥ\
+> kasmād dharir ayācata\
+> bhūteśvaraḥ kṛpaṇa-val\
 > labdhārtho 'pi babandha tam
 
-> etad veditum icchāmo
-> mahat kautūhalaṁ hi naḥ
-> yācñeśvarasya pūrṇasya
+> etad veditum icchāmo\
+> mahat kautūhalaṁ hi naḥ\
+> yācñeśvarasya pūrṇasya\
 > bandhanaṁ cāpy anāgasaḥ
 
 *śrī-rājā uvāca*—el rey dijo; *baleḥ*—de Bali Mahārāja; *pada-trayam*—tres pasos; *bhūmeḥ*—de tierra; *kasmāt*—por qué; *hariḥ*—la Suprema Personalidad de Dios (en la forma de Vāmana); *ayācata*—pidió; *bhūtva-īśvaraḥ*—el propietario de todo el universo; *kṛpaṇa-vat*—como un hombre pobre; *labdha-arthaḥ*—obtuvo el don; *api*—aunque; *babandha*—arrestó; *tam*—a él (a Bali); *etat*—todo esto; *veditum*—entender; *icchāmaḥ*—deseamos; *mahat*—muy grande; *kautūhalam*—deseo; *hi*—en verdad; *naḥ*—nuestro; *yācñā*—súplica; *īśvarasya*—de la Suprema Personalidad de Dios; *pūrṇasya*—que goza de plenitud en todo; *bandhanam*—arrestar; *ca*—también; *api*—aunque; *anāgasaḥ*—del que estaba libre de culpa.

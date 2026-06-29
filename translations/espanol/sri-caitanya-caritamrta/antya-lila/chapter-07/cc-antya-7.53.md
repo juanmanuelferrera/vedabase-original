@@ -1,9 +1,9 @@
 ### CC Antya 7.53
 
-> ভট্টের হৃদয়ে দৃঢ় অভিমান জানি’ ।
+> ভট্টের হৃদয়ে দৃঢ় অভিমান জানি’ ।\
 > ভঙ্গী করি’ মহাপ্রভু কহে এত বাণী ॥৫৩॥
 
-> bhaṭṭera hṛdaye dṛḍha abhimāna jāni'
+> bhaṭṭera hṛdaye dṛḍha abhimāna jāni'\
 > bhaṅgī kari' mahāprabhu kahe eta vāṇī
 
 *bhaṭṭera hṛdaye*—en el corazón de Vallabha Bhaṭṭa; *dṛḍha*—firme; *abhimāna*—orgullo; *jāni'*—comprendiendo; *bhaṅgī kari'*—dando una indirecta; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *kahe*—habló; *eta vāṇī*—estas palabras.

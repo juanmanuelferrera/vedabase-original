@@ -1,11 +1,11 @@
 ### SB 3.29.22
 
-> यो मां सर्वेषु भूतेषु सन्तमात्मानमीश्वरम् ।
+> यो मां सर्वेषु भूतेषु सन्तमात्मानमीश्वरम् ।\
 > हित्वार्चां भजते मौढ्याद्भस्मन्येव जुहोति सः ॥२२॥
 
-> yo māṁ sarveṣu bhūteṣu
-> santam ātmānam īśvaram
-> hitvārcāṁ bhajate mauḍhyād
+> yo māṁ sarveṣu bhūteṣu\
+> santam ātmānam īśvaram\
+> hitvārcāṁ bhajate mauḍhyād\
 > bhasmany eva juhoti saḥ
 
 *yaḥ*—one who; *mām*—Me; *sarveṣu*—in all; *bhūteṣu*—living entities; *santam*—being present; *ātmānam*—the Paramātmā; *īśvaram*—the Supreme Lord; *hitvā*—disregarding; *arcām*—the Deity; *bhajate*—worships; *mauḍhyāt*—because of ignorance; *bhasmani*—into ashes; *eva*—only; *juhoti*—offers oblations; *saḥ*—he.

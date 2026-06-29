@@ -1,9 +1,9 @@
 ### CC Adi 16.80
 
-> ‘ইহাঁ বিষ্ণুপাদপদ্মে গঙ্গার উৎপত্তি’ ।
+> ‘ইহাঁ বিষ্ণুপাদপদ্মে গঙ্গার উৎপত্তি’ ।\
 > বিরোধালঙ্কার ইহা মহা-চমৎকৃতি ॥৮০॥
 
-> 'ihāṅ viṣṇu-pāda-padme gaṅgāra utpatti'
+> 'ihāṅ viṣṇu-pāda-padme gaṅgāra utpatti'\
 > virodhālaṅkāra ihā mahā-camatkṛti
 
 *ihāṅ*—in this connection; *viṣṇu-pāda-padme*—in the lotus feet of Lord Viṣṇu; *gaṅgāra*—of mother Ganges; *utpatti*—beginning; *virodha*—contradiction; *alaṅkāra*—literary decoration; *iha*—it; *mahā*—very great; *camatkṛti*—wonder.

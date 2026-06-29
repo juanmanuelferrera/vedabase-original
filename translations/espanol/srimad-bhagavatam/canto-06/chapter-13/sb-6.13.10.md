@@ -1,13 +1,13 @@
 ### SB 6.13.10
 
-> श्रीशुक उवाच
-> एवं सञ्चोदितो विप्रैर्मरुत्वानहनद्रिपुम
+> श्रीशुक उवाच\
+> एवं सञ्चोदितो विप्रैर्मरुत्वानहनद्रिपुम\
 > ब्रह्महत्या हते तस्मिन्नाससाद वृषाकपिम ॥१०॥
 
-> śrī-śuka uvāca
-> evaṁ sañcodito viprair
-> marutvān ahanad ripum
-> brahma-hatyā hate tasminn
+> śrī-śuka uvāca\
+> evaṁ sañcodito viprair\
+> marutvān ahanad ripum\
+> brahma-hatyā hate tasminn\
 > āsasāda vṛṣākapim
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *evam*—así; *sañcoditaḥ*—animado; *vipraiḥ*—por los *brāhmaṇas*; *marutvān*—Indra; *ahanat*—mató; *ripum*—a su enemigo, Vṛtrāsura; *brahma-hatyā*—la reacción del pecado de matar a un *brāhmaṇa*; *hate*—fue matado; *tasmin*—cuando él (Vṛtrāsura); *āsasāda*—se acercó; *vṛṣākapim*—a Indra, que también recibe el nombre de Vṛṣākapi.

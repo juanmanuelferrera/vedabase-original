@@ -1,13 +1,13 @@
 ### SB 7.5.5
 
-> श्रीप्रह्लाद उवाच
-> तत्साधु मन्येऽसुरवर्य देहिनां सदा समुद्विग्नधियामसद्ग्रहात
+> श्रीप्रह्लाद उवाच\
+> तत्साधु मन्येऽसुरवर्य देहिनां सदा समुद्विग्नधियामसद्ग्रहात\
 > हित्वात्मपातं गृहमन्धकूपं वनं गतो यद्धरिमाश्रयेत ॥५॥
 
-> śrī-prahlāda uvāca
-> tat sādhu manye 'sura-varya dehināṁ
-> sadā samudvigna-dhiyām asad-grahāt
-> hitvātma-pātaṁ gṛham andha-kūpaṁ
+> śrī-prahlāda uvāca\
+> tat sādhu manye 'sura-varya dehināṁ\
+> sadā samudvigna-dhiyām asad-grahāt\
+> hitvātma-pātaṁ gṛham andha-kūpaṁ\
 > vanaṁ gato yad dharim āśrayeta
 
 *śrī-prahlādaḥ uvāca*—Prahlāda Mahārāja replied; *tat*—that; *sādhu*—very good, or the best part of life; *manye*—I think; *asura-varya*—O King of the *asuras*; *dehinām*—of persons who have accepted the material body; *sadā*—always; *samudvigna*—full of anxieties; *dhiyām*—whose intelligence; *asat-grahāt*—because of accepting the temporary body or bodily relations as real (thinking "I am this body, and everything belonging to this body is mine"); *hitvā*—giving up; *ātma-pātam*—the place where spiritual culture or self-realization is stopped; *gṛham*—the bodily concept of life, or household life; *andha-kūpam*—which is nothing but a blind well (where there is no water but one nonetheless searches for water); *vanam*—to the forest; *gataḥ*—going; *yat*—which; *harim*—the Supreme Personality of Godhead; *āśrayeta*—may take shelter of.

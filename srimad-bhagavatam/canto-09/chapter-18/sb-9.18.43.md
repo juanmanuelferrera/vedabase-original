@@ -1,13 +1,13 @@
 ### SB 9.18.43
 
-> श्रीपूरुरुवाच
-> को नु लोके मनुष्येन्द्र पितुरात्मकृतः पुमान
+> श्रीपूरुरुवाच\
+> को नु लोके मनुष्येन्द्र पितुरात्मकृतः पुमान\
 > प्रतिकर्तुं क्षमो यस्य प्रसादाद्विन्दते परम ॥४३॥
 
-> śrī-pūrur uvāca
-> ko nu loke manuṣyendra
-> pitur ātma-kṛtaḥ pumān
-> pratikartuṁ kṣamo yasya
+> śrī-pūrur uvāca\
+> ko nu loke manuṣyendra\
+> pitur ātma-kṛtaḥ pumān\
+> pratikartuṁ kṣamo yasya\
 > prasādād vindate param
 
 *śrī-pūruḥ uvāca*—Pūru said; *kaḥ*—what; *nu*—indeed; *loke*—in this world; *manuṣya-indra*—O Your Majesty, best of human beings; *pituḥ*—the father; *ātma-kṛtaḥ*—who has given this body; *pumān*—a person; *pratikartum*—to repay; *kṣamaḥ*—is able; *yasya*—of whom; *prasādāt*—by the mercy; *vindate*—one enjoys; *param*—superior life.

@@ -1,11 +1,11 @@
 ### SB 4.13.32
 
-> तथा साधय भद्रं ते आत्मानं सुप्रजं नृप ।
+> तथा साधय भद्रं ते आत्मानं सुप्रजं नृप ।\
 > इष्टस्ते पुत्रकामस्य पुत्रं दास्यति यज्ञभुक् ॥३२॥
 
-> tathā sādhaya bhadraṁ te
-> ātmānaṁ suprajaṁ nṛpa
-> iṣṭas te putra-kāmasya
+> tathā sādhaya bhadraṁ te\
+> ātmānaṁ suprajaṁ nṛpa\
+> iṣṭas te putra-kāmasya\
 > putraṁ dāsyati yajña-bhuk
 
 *tathā*—por lo tanto; *sādhaya*—ejecuta el sacrificio para tener; *bhadram*—buena fortuna; *te*—a ti; *ātmānam*—tu propio; *su-prajam*—buen hijo; *nṛpa*—¡oh, rey!; *iṣṭaḥ*—siendo adorado; *te*—por ti; *putra-kāmasya*—deseando tener un hijo; *putram*—un hijo; *dāsyati*—te dará; *yajña-bhuk*—el Señor, el disfrutador del sacrificio.

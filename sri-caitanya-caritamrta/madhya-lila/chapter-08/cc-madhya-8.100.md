@@ -1,11 +1,11 @@
 ### CC Madhya 8.100
 
-> অনয়ারাধিতো নূনং ভগবান্ হরিরীশ্বরঃ ।
+> অনয়ারাধিতো নূনং ভগবান্ হরিরীশ্বরঃ ।\
 > যন্নো বিহায় গোবিন্দঃ প্রীতো যামনয়দ্রহঃ ॥১০০॥
 
-> anayārādhito nūnaṁ
-> bhagavān harir īśvaraḥ
-> yan no vihāya govindaḥ
+> anayārādhito nūnaṁ\
+> bhagavān harir īśvaraḥ\
+> yan no vihāya govindaḥ\
 > prīto yām anayad rahaḥ
 
 *anayā*—by Her; *ārādhitaḥ*—worshiped; *nūnam*—indeed; *bhagavān*—the Supreme Personality of Godhead; *hariḥ*—Kṛṣṇa; *īśvaraḥ*—the Lord; *yat*—from which; *naḥ*—us; *vihāya*—rejecting; *govindaḥ*—Lord Śrī Kṛṣṇa; *prītaḥ*—satisfied; *yām*—whom; *anayat*—brought; *rahaḥ*—a secluded place.

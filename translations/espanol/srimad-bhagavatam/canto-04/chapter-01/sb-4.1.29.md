@@ -1,13 +1,13 @@
 ### SB 4.1.29
 
-> मैत्रेय उवाच
-> इति तस्य वचः श्रुत्वा त्रयस्ते विबुधर्षभाः ।
+> मैत्रेय उवाच\
+> इति तस्य वचः श्रुत्वा त्रयस्ते विबुधर्षभाः ।\
 > प्रत्याहुः श्लक्ष्णया वाचा प्रहस्य तमृषिं प्रभो ॥२९॥
 
-> maitreya uvāca
-> iti tasya vacaḥ śrutvā
-> trayas te vibudharṣabhāḥ
-> pratyāhuḥ ślakṣṇayā vācā
+> maitreya uvāca\
+> iti tasya vacaḥ śrutvā\
+> trayas te vibudharṣabhāḥ\
+> pratyāhuḥ ślakṣṇayā vācā\
 > prahasya tam ṛṣiṁ prabho
 
 *maitreyaḥ uvāca*—el sabio Maitreya dijo; *iti*—así; *tasya*—sus; *vacaḥ*—palabras; *śrutvā*—después de escuchar; *trayaḥ te*—los tres; *vibudha*—semidioses; *ṛṣabhāḥ*—principales; *pratyāhuḥ*—contestaron; *ślakṣṇayā*—amables; *vācā*—palabras; *prahasya*—sonriendo; *tam*—a él; *ṛṣim*—al gran sabio; *prabho*—¡oh, poderoso!.

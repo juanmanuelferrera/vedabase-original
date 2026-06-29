@@ -1,9 +1,9 @@
 ### CC Madhya 1.6
 
-> জয় জয় গৌরচন্দ্র জয় কৃপাসিন্ধু ।
+> জয় জয় গৌরচন্দ্র জয় কৃপাসিন্ধু ।\
 > জয় জয় শচীসুত জয় দীনবন্ধু ॥৬॥
 
-> jaya jaya gauracandra jaya kṛpā-sindhu
+> jaya jaya gauracandra jaya kṛpā-sindhu\
 > jaya jaya śacī-suta jaya dīna-bandhu
 
 *jayajaya*—all glories; *gauracandra*—to Śrī Caitanya Mahāprabhu; *jaya*—all glories; *kṛpā-sindhu*—to the ocean of mercy; *jayajaya*—all glories unto You; *śacī-suta*—the son of Śacī; *jaya*—all glories unto You; *dīna-bandhu*—the friend of the fallen.

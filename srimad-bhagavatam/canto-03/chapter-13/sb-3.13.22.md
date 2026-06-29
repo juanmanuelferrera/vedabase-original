@@ -1,11 +1,11 @@
 ### SB 3.13.22
 
-> दृष्टोऽङ्गुष्ठशिरोमात्रः क्षणाद्गण्डशिलासमः ।
+> दृष्टोऽङ्गुष्ठशिरोमात्रः क्षणाद्गण्डशिलासमः ।\
 > अपि स्विद्भगवानेष यज्ञो मे खेदयन्मनः ॥२२॥
 
-> dṛṣṭo 'ṅguṣṭha-śiro-mātraḥ
-> kṣaṇād gaṇḍa-śilā-samaḥ
-> api svid bhagavān eṣa
+> dṛṣṭo 'ṅguṣṭha-śiro-mātraḥ\
+> kṣaṇād gaṇḍa-śilā-samaḥ\
+> api svid bhagavān eṣa\
 > yajño me khedayan manaḥ
 
 *dṛṣṭaḥ*—just seen; *aṅguṣṭha*—thumb; *śiraḥ*—tip; *mātraḥ*—only; *kṣaṇāt*—immediately; *gaṇḍa-śilā*—large stone; *samaḥ*—like; *api svit*—whether; *bhagavān*—the Personality of Godhead; *eṣaḥ*—this; *yajñaḥ*—Viṣṇu; *me*—my; *khedayan*—perturbing; *manaḥ*—mind.

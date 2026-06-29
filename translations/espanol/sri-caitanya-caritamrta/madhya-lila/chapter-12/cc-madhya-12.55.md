@@ -1,9 +1,9 @@
 ### CC Madhya 12.55
 
-> তথাপি তোমার যদি মহাগ্রহ হয় ।
+> তথাপি তোমার যদি মহাগ্রহ হয় ।\
 > তবে আনি’ মিলাহ তুমি তাঁহার তনয় ॥৫৫॥
 
-> tathāpi tomāra yadi mahāgraha haya
+> tathāpi tomāra yadi mahāgraha haya\
 > tabe āni' milāha tumi tāṅhāra tanaya
 
 *tathāpi*—aun así; *tomāra*—tu; *yadi*—si; *mahā-āgraha*—gran anhelo; *haya*—hay; *tabe*—entonces; *āni'*—trayendo; *milāha*—haz que se encuentre; *tumi*—tú; *tāṅhāra*—su; *tanaya*—hijo.

@@ -1,11 +1,11 @@
 ### SB 3.17.19
 
-> चक्रे हिरण्यकशिपुर्दोर्भ्यां ब्रह्मवरेण च ।
+> चक्रे हिरण्यकशिपुर्दोर्भ्यां ब्रह्मवरेण च ।\
 > वशे सपालान्लोकांस्त्रीनकुतोमृत्युरुद्धतः ॥१९॥
 
-> cakre hiraṇyakaśipur
-> dorbhyāṁ brahma-vareṇa ca
-> vaśe sa-pālāḹ lokāṁs trīn
+> cakre hiraṇyakaśipur\
+> dorbhyāṁ brahma-vareṇa ca\
+> vaśe sa-pālāḹ lokāṁs trīn\
 > akuto-mṛtyur uddhataḥ
 
 *cakre*—made; *hiraṇyakaśipuḥ*—Hiraṇyakaśipu; *dorbhyām*—by his two arms; *brahma-vareṇa*—by the benediction of Brahmā; *ca*—and; *vaśe*—under his control; *sa-pālān*—along with their protectors; *lokān*—the worlds; *trīn*—three; *akutaḥ-mṛtyuḥ*—fearing death from no one; *uddhataḥ*—puffed up.

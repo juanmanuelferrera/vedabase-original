@@ -1,11 +1,11 @@
 ### SB 2.1.29
 
-> इन्द्रादयो बाहव आहुरुस्राः कर्णौ दिशः श्रोत्रममुष्य शब्दः ।
+> इन्द्रादयो बाहव आहुरुस्राः कर्णौ दिशः श्रोत्रममुष्य शब्दः ।\
 > नासत्यदस्रौ परमस्य नासे घ्राणोऽस्य गन्धो मुखमग्निरिद्धः ॥२९॥
 
-> indrādayo bāhava āhur usrāḥ
-> karṇau diśaḥ śrotram amuṣya śabdaḥ
-> nāsatya-dasrau paramasya nāse
+> indrādayo bāhava āhur usrāḥ\
+> karṇau diśaḥ śrotram amuṣya śabdaḥ\
+> nāsatya-dasrau paramasya nāse\
 > ghrāṇo 'sya gandho mukham agnir iddhaḥ
 
 *indra-ādayaḥ*—demigods headed by the heavenly king, Indra; *bāhavaḥ*—arms; *āhuḥ*—are called; *usrāḥ*—the demigods; *karṇau*—the ears; *diśaḥ*—the four directions; *śrotram*—the sense of hearing; *amuṣya*—of the Lord; *śabdaḥ*—sound; *nāsatya-dasrau*—the demigods known as the Aśvinī-kumāras; *paramasya*—of the Supreme; *nāse*—nostrils; *ghrāṇaḥ*—the sense of smell; *asya*—of Him; *gandhaḥ*—fragrance; *mukham*—the mouth; *agniḥ*—fire; *iddhaḥ*—blazing.

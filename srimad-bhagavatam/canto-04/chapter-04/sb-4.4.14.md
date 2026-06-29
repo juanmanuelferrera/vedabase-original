@@ -1,11 +1,11 @@
 ### SB 4.4.14
 
-> यद्द्व्यक्षरं नाम गिरेरितं नृणां सकृत्प्रसङ्गादघमाशु हन्ति तत् ।
+> यद्द्व्यक्षरं नाम गिरेरितं नृणां सकृत्प्रसङ्गादघमाशु हन्ति तत् ।\
 > पवित्रकीर्तिं तमलङ्घ्यशासनं भवानहो द्वेष्टि शिवं शिवेतरः ॥१४॥
 
-> yad dvy-akṣaraṁ nāma gireritaṁ nṛṇāṁ
-> sakṛt prasaṅgād agham āśu hanti tat
-> pavitra-kīrtiṁ tam alaṅghya-śāsanaṁ
+> yad dvy-akṣaraṁ nāma gireritaṁ nṛṇāṁ\
+> sakṛt prasaṅgād agham āśu hanti tat\
+> pavitra-kīrtiṁ tam alaṅghya-śāsanaṁ\
 > bhavān aho dveṣṭi śivaṁ śivetaraḥ
 
 *yat*—which; *dvi-akṣaram*—consisting of two letters; *nāma*—named; *girā īritam*—merely being pronounced by the tongue; *nṛṇām*—persons; *sakṛt*—once; *prasaṅgāt*—from the heart; *agham*—sinful activities; *āśu*—immediately; *hanti*—destroys; *tat*—that; *pavitra-kīrtim*—whose fame is pure; *tam*—him; *alaṅghya-śāsanam*—whose order is never neglected; *bhavān*—you; *aho*—oh; *dveṣṭi*—envy; *śivam*—Lord Śiva; *śiva-itaraḥ*—who are inauspicious.

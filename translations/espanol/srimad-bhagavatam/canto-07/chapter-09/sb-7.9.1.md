@@ -1,13 +1,13 @@
 ### SB 7.9.1
 
-> श्रीनारद उवाच
-> एवं सुरादयः सर्वे ब्रह्मरुद्रपुरः सराः
+> श्रीनारद उवाच\
+> एवं सुरादयः सर्वे ब्रह्मरुद्रपुरः सराः\
 > नोपैतुमशकन्मन्यु संरम्भं सुदुरासदम ॥१॥
 
-> śrī-nārada uvāca
-> evaṁ surādayaḥ sarve
-> brahma-rudra-puraḥ sarāḥ
-> nopaitum aśakan manyu-
+> śrī-nārada uvāca\
+> evaṁ surādayaḥ sarve\
+> brahma-rudra-puraḥ sarāḥ\
+> nopaitum aśakan manyu-\
 > saṁrambhaṁ sudurāsadam
 
 *śrī-nārada uvāca*—el gran sabio santo Nārada Muni dijo; *evam*—así; *sura-ādayaḥ*—los grupos de semidioses; *sarve*—todos; *brahma-rudra-puraḥ sarāḥ*—representados por el Señor Brahmā y el Señor Śiva; *na*—no; *upaitum*—ir ante el Señor; *aśakan*—capaces; *manyu-saṁrambham*—con una actitud de completa ira; *su-durāsadam*—al que era muy difícil acercarse (el Señor Nṛsiṁhadeva).

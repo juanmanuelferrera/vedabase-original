@@ -1,9 +1,9 @@
 ### CC Madhya 20.317
 
-> ব্রহ্মা, শিব — আজ্ঞাকারী ভক্ত-অবতার ।
+> ব্রহ্মা, শিব — আজ্ঞাকারী ভক্ত-অবতার ।\
 > পালনার্থে বিষ্ণু — কৃষ্ণের স্বরূপ-আকার ॥৩১৭॥
 
-> brahmā, śiva--ājñā-kārī bhakta-avatāra
+> brahmā, śiva--ājñā-kārī bhakta-avatāra\
 > pālanārthe viṣṇu--kṛṣṇera svarūpa-ākāra
 
 *brahmā*—el Señor Brahmā; *śiva*—el Señor Śiva; *ājñā-kārī*—ejecutores de órdenes; *bhakta-avatāra*—encarnaciones de devotos; *pālana-arthe*—para el mantenimiento; *viṣṇu*—el Señor Viṣṇu; *kṛṣṇera*—del Señor Kṛṣṇa; *svarūpa-ākāra*—en la forma de un rasgo personal.

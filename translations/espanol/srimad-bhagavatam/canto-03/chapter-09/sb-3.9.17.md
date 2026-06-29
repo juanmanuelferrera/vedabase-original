@@ -1,13 +1,13 @@
 ### SB 3.9.17
 
-> लोको विकर्मनिरतः कुशले प्रमत्तः
-> कर्मण्ययं त्वदुदिते भवदर्चने स्वे ।
-> यस्तावदस्य बलवानिह जीविताशां
+> लोको विकर्मनिरतः कुशले प्रमत्तः\
+> कर्मण्ययं त्वदुदिते भवदर्चने स्वे ।\
+> यस्तावदस्य बलवानिह जीविताशां\
 > सद्यश्छिनत्त्यनिमिषाय नमोऽस्तु तस्मै ॥१७॥
 
-> loko vikarma-nirataḥ kuśale pramattaḥ
-> karmaṇy ayaṁ tvad-udite bhavad-arcane sve
-> yas tāvad asya balavān iha jīvitāśāṁ
+> loko vikarma-nirataḥ kuśale pramattaḥ\
+> karmaṇy ayaṁ tvad-udite bhavad-arcane sve\
+> yas tāvad asya balavān iha jīvitāśāṁ\
 > sadyaś chinatty animiṣāya namo 'stu tasmai
 
 *lokaḥ*—gente en general; *vikarma*—trabajo sin sentido; *nirataḥ*—dedicado a; *kuśale*—en actividad beneficiosa; *pramattaḥ*—negligente; *karmaṇi*—en actividad; *ayam*—esto; *tvat*—por Ti; *udite*—enunciado; *bhavat*—de Ti; *arcane*—en la adoración; *sve*—su propia; *yaḥ*—quienes; *tāvat*—mientras; *asya*—de la gente en general; *balavān*—muy fuerte; *iha*—esta; *jīvita-āśām*—lucha por la existencia; *sadyaḥ*—directamente; *chinatti*—es cortada en pedazos; *animiṣāya*—por el tiempo eterno; *namaḥ*—mis reverencias; *astu*—que hayan; *tasmai*—a Él.

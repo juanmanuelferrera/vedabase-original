@@ -1,11 +1,11 @@
 ### SB 8.9.19
 
-> असुराणां सुधादानं सर्पाणामिव दुर्नयम
+> असुराणां सुधादानं सर्पाणामिव दुर्नयम\
 > मत्वा जातिनृशंसानां न तां व्यभजदच्युतः ॥१९॥
 
-> asurāṇāṁ sudhā-dānaṁ
-> sarpāṇām iva durnayam
-> matvā jāti-nṛśaṁsānāṁ
+> asurāṇāṁ sudhā-dānaṁ\
+> sarpāṇām iva durnayam\
+> matvā jāti-nṛśaṁsānāṁ\
 > na tāṁ vyabhajad acyutaḥ
 
 *asurāṇām*—of the demons; *sudhā-dānam*—giving of the nectar; *sarpāṇām*—of snakes; *iva*—like; *durnayam*—miscalculation; *matvā*—thinking like that; *jāti-nṛśaṁsānām*—of those who are by nature very envious; *na*—not; *tām*—the nectar; *vyabhajat*—delivered the share; *acyutaḥ*—the Supreme Personality of Godhead, who never falls down.

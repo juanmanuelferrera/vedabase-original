@@ -1,9 +1,9 @@
 ### CC Madhya 3.143
 
-> কান্দিয়া কহেন শচী, বাছারে নিমাঞি ৷
+> কান্দিয়া কহেন শচী, বাছারে নিমাঞি ৷\
 > বিশ্বরূপ-সম না করিহ নিঠুরাই ॥১৪৩॥
 
-> kāndiyā kahena śacī, bāchāre nimāñi
+> kāndiyā kahena śacī, bāchāre nimāñi\
 > viśvarūpa-sama nā kariha niṭhurāi
 
 *kāndiyā*—llorando; *kahena*—dice; *śacī*—madre Śacī; *bāchāre*—mi querido; *nimāñi*—¡oh, Nimāi!; *viśvarūpa*—Viśvarūpa; *sama*—como; *nā kariha*—no hagas; *niṭhurāi*—crueldad.

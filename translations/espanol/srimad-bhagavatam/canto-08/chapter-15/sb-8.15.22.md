@@ -1,11 +1,11 @@
 ### SB 8.15.22
 
-> यां न व्रजन्त्यधर्मिष्ठाः खला भूतद्रुहः शठाः
+> यां न व्रजन्त्यधर्मिष्ठाः खला भूतद्रुहः शठाः\
 > मानिनः कामिनो लुब्धा एभिर्हीना व्रजन्ति यत ॥२२॥
 
-> yāṁ na vrajanty adharmiṣṭhāḥ
-> khalā bhūta-druhaḥ śaṭhāḥ
-> māninaḥ kāmino lubdhā
+> yāṁ na vrajanty adharmiṣṭhāḥ\
+> khalā bhūta-druhaḥ śaṭhāḥ\
+> māninaḥ kāmino lubdhā\
 > ebhir hīnā vrajanti yat
 
 *yām*—en las calles de la ciudad; *na*—no; *vrajanti*—pasaban; *adharmiṣṭhāḥ*—personas irreligiosas; *khalāḥ*—personas envidiosas; *bhūta-druhaḥ*—personas violentas hacia otras entidades vivientes; *śaṭhāḥ*—engañadores; *māninaḥ*—con prestigio falso; *kāminaḥ*—lujuriosas; *lubdhāḥ*—codiciosas; *ebhiḥ*—esas; *hīnāḥ*—completamente libre de; *vrajanti*—caminaban; *yat*—por la calle.

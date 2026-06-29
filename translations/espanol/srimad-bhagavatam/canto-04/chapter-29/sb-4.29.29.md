@@ -1,11 +1,11 @@
 ### SB 4.29.29
 
-> क्वचित्पुमान्क्वचिच्च स्त्री क्वचिन्नोभयमन्धधीः ।
+> क्वचित्पुमान्क्वचिच्च स्त्री क्वचिन्नोभयमन्धधीः ।\
 > देवो मनुष्यस्तिर्यग्वा यथाकर्मगुणं भवः ॥२९॥
 
-> kvacit pumān kvacic ca strī
-> kvacin nobhayam andha-dhīḥ
-> devo manuṣyas tiryag vā
+> kvacit pumān kvacic ca strī\
+> kvacin nobhayam andha-dhīḥ\
+> devo manuṣyas tiryag vā\
 > yathā-karma-guṇaṁ bhavaḥ
 
 *kvacit*—a veces; *pumān*—varón; *kvacit*—a veces; *ca*—también; *strī*—mujer; *kvacit*—a veces; *na*—no; *ubhayam*—ambos; *andha*—ciega; *dhīḥ*—aquel cuya inteligencia; *devaḥ*—semidiós; *manuṣyaḥ*—ser humano; *tiryak*—animal, ave, fiera; *vā*—o; *yathā*—conforme a; *karma*—de actividades; *guṇam*—las cualidades; *bhavaḥ*—nacimiento.

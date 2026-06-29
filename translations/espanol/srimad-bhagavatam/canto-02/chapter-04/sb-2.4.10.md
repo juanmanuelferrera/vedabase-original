@@ -1,11 +1,11 @@
 ### SB 2.4.10
 
-> विचिकित्सितमेतन्मे ब्रवीतु भगवान्यथा ।
+> विचिकित्सितमेतन्मे ब्रवीतु भगवान्यथा ।\
 > शाब्दे ब्रह्मणि निष्णातः परस्मिंश्च भवान्खलु ॥१०॥
 
-> vicikitsitam etan me
-> bravītu bhagavān yathā
-> śābde brahmaṇi niṣṇātaḥ
+> vicikitsitam etan me\
+> bravītu bhagavān yathā\
+> śābde brahmaṇi niṣṇātaḥ\
 > parasmiṁś ca bhavān khalu
 
 *vicikitsitam*—pregunta producto de la duda; *etat*—esta; *me*—de mí; *bravītu*—tan solo aclara; *bhagavān*—poderoso como el Señor; *yathā*—tanto como; *śābde*—sonido trascendental; *brahmaṇi*—la literatura védica; *niṣṇātaḥ*—plenamente iluminado; *parasmin*—en la trascendencia; *ca*—también; *bhavān*—tu buena persona; *khalu*—en realidad.

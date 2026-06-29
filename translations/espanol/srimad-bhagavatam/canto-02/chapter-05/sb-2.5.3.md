@@ -1,11 +1,11 @@
 ### SB 2.5.3
 
-> सर्वं ह्येतद्भवान्वेद भूतभव्यभवत्प्रभुः ।
+> सर्वं ह्येतद्भवान्वेद भूतभव्यभवत्प्रभुः ।\
 > करामलकवद्विश्वं विज्ञानावसितं तव ॥३॥
 
-> sarvaṁ hy etad bhavān veda
-> bhūta-bhavya-bhavat-prabhuḥ
-> karāmalaka-vad viśvaṁ
+> sarvaṁ hy etad bhavān veda\
+> bhūta-bhavya-bhavat-prabhuḥ\
+> karāmalaka-vad viśvaṁ\
 > vijñānāvasitaṁ tava
 
 *sarvam*—absolutamente todo; *hi*—ciertamente; *etat*—esto; *bhavān*—tu buena persona; *veda*—conoces; *bhūta*—todo lo que se crea o nace; *bhavya*—todo lo que se creará o nacerá; *bhavat*—todo lo que se está creando; *prabhuḥ*—tú, el amo de todo; *kara-āmalaka-vat*—tal como una nuez que se encuentre en tu puño; *viśvam*—el universo; *vijñāna-avasitam*—científicamente, en tu conocimiento; *tava*—tu.

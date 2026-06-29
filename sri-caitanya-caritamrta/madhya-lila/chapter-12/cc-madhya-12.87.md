@@ -1,9 +1,9 @@
 ### CC Madhya 12.87
 
-> ভোগমন্দির শোধন করি’ শোধিল প্রাঙ্গন ।
+> ভোগমন্দির শোধন করি’ শোধিল প্রাঙ্গন ।\
 > সকল আবাস ক্রমে করিল শোধন ॥৮৭॥
 
-> bhoga-mandira śodhana kari' śodhila prāṅgaṇa
+> bhoga-mandira śodhana kari' śodhila prāṅgaṇa\
 > sakala āvāsa krame karila śodhana
 
 *bhoga-mandira*—the place where food is placed; *śodhana kari'*—cleansing; *śodhila prāṅgaṇa*—cleansed the yard; *sakala*—all; *āvāsa*—residential places; *krame*—one after another; *karila śodhana*—cleansed.

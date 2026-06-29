@@ -1,11 +1,11 @@
 ### SB 1.9.16
 
-> न ह्यस्य कर्हिचिद्राजन्पुमान्वेद विधित्सितम् ।
+> न ह्यस्य कर्हिचिद्राजन्पुमान्वेद विधित्सितम् ।\
 > यद्विजिज्ञासया युक्ता मुह्यन्ति कवयोऽपि हि ॥१६॥
 
-> na hy asya karhicid rājan
-> pumān veda vidhitsitam
-> yad vijijñāsayā yuktā
+> na hy asya karhicid rājan\
+> pumān veda vidhitsitam\
+> yad vijijñāsayā yuktā\
 > muhyanti kavayo 'pi hi
 
 *na*—never; *hi*—certainly; *asya*—His; *karhicit*—whatsoever; *rājan*—O King; *pumān*—anyone; *veda*—knows; *vidhitsitam*—plan; *yat*—which; *vijijñāsayā*—with exhaustive inquiries; *yuktāḥ*—being engaged; *muhyanti*—bewildered; *kavayaḥ*—great philosophers; *api*—even; *hi*—certainly.

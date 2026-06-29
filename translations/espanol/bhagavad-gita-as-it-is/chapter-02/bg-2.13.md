@@ -1,11 +1,11 @@
 ### Bg 2.13
 
-> देहिनोऽस्मिन्यथा देहे कौमारं यौवनं जरा ।
+> देहिनोऽस्मिन्यथा देहे कौमारं यौवनं जरा ।\
 > तथा देहान्तरप्राप्तिर्धीरस्तत्र न मुह्यति ॥१३॥
 
-> dehino'smin yathā dehe
-> kaumāraṁ yauvanaṁ jarā
-> tathā dehāntara-prāptir
+> dehino'smin yathā dehe\
+> kaumāraṁ yauvanaṁ jarā\
+> tathā dehāntara-prāptir\
 > dhīras tatra na muhyati
 
 *dehinaḥ*—del ser corporificado; *asmin*—en este; *yathā*—como; *dehe*—en el cuerpo; *kaumāram*—niñez; *yauvanam*—juventud; *jarā*—vejez; *tathā*—similarmente; *dehāntara*—transferencia de cuerpo; *prāptiḥ*—logro; *dhīraḥ*—el sobrio; *tatra*—entonces; *na*—nunca; *muhyati*—confundido.

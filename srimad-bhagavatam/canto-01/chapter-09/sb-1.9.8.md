@@ -1,11 +1,11 @@
 ### SB 1.9.8
 
-> अन्ये च मुनयो ब्रह्मन्ब्रह्मरातादयोऽमलाः ।
+> अन्ये च मुनयो ब्रह्मन्ब्रह्मरातादयोऽमलाः ।\
 > शिष्यैरुपेता आजग्मुः कश्यपाङ्गिरसादयः ॥८॥
 
-> anye ca munayo brahman
-> brahmarātādayo 'malāḥ
-> śiṣyair upetā ājagmuḥ
+> anye ca munayo brahman\
+> brahmarātādayo 'malāḥ\
+> śiṣyair upetā ājagmuḥ\
 > kaśyapāṅgirasādayaḥ
 
 *anye*—many others; *ca*—also; *munayaḥ*—sages; *brahman*—O *brāhmaṇas*; *brahmarāta*—Śukadeva Gosvāmī; *ādayaḥ*—and such others; *amalāḥ*—completely purified; *śiṣyaiḥ*—by the disciples; *upetāḥ*—accompanied; *ājagmuḥ*—arrived; *kaśyapa*—Kaśyapa; *āṅgirasa*—Āṅgirasa; *ādayaḥ*—others.

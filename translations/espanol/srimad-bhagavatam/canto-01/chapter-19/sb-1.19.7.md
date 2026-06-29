@@ -1,11 +1,11 @@
 ### SB 1.19.7
 
-> इति व्यवच्छिद्य स पाण्डवेयः प्रायोपवेशं प्रति विष्णुपद्याम् ।
+> इति व्यवच्छिद्य स पाण्डवेयः प्रायोपवेशं प्रति विष्णुपद्याम् ।\
 > दधौ मुकुन्दाङ्घ्रिमनन्यभावो मुनिव्रतो मुक्तसमस्तसङ्गः ॥७॥
 
-> iti vyavacchidya sa pāṇḍaveyaḥ
-> prāyopaveśaṁ prati viṣṇu-padyām
-> dadhau mukundāṅghrim ananya-bhāvo
+> iti vyavacchidya sa pāṇḍaveyaḥ\
+> prāyopaveśaṁ prati viṣṇu-padyām\
+> dadhau mukundāṅghrim ananya-bhāvo\
 > muni-vrato mukta-samasta-saṅgaḥ
 
 *iti*—así pues; *vyavacchidya*—habiendo decidido; *saḥ*—el rey; *pāṇḍaveyaḥ*—digno descendiente de los Pāṇḍavas; *prāya-upaveśam*—para ayunar hasta la muerte; *prati*—hacia; *viṣṇu-padyām*—en la ribera del Ganges (que emana de los pies de loto del Señor Viṣṇu); *dadhau*—se entregó; *mukunda-aṅghrim*—a los pies de loto del Señor Kṛṣṇa; *ananya*—sin desviación; *bhāvaḥ*—espíritu; *muni-vrataḥ*—con los votos de un sabio; *mukta*—liberado de; *samasta*—toda clase de; *saṅgaḥ*—relaciones.

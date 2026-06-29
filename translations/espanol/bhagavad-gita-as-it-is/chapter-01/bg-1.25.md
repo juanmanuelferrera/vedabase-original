@@ -1,11 +1,11 @@
 ### Bg 1.25
 
-> भीष्मद्रोणप्रमुखतः सर्वेषां च महीक्षिताम् ।
+> भीष्मद्रोणप्रमुखतः सर्वेषां च महीक्षिताम् ।\
 > उवाच पार्थ पश्यैतान्समवेतान्कुरूनिति ॥२५॥
 
-> bhīṣma-droṇa-pramukhataḥ
-> sarveṣāṁ ca mahīkṣitām
-> uvāca pārtha paśyaitān
+> bhīṣma-droṇa-pramukhataḥ\
+> sarveṣāṁ ca mahīkṣitām\
+> uvāca pārtha paśyaitān\
 > samavetān kurūn iti
 
 *bhīṣma*—el abuelo Bhīṣma; *droṇa*—el maestro Droṇa; *pramukhataḥ*—en frente de; *sarveṣām*—todos; *ca*—también; *mahīkṣitām*—jefes del mundo; *uvāca*—dijo; *pārtha*—¡oh Pārtha, hijo de Pṛthā!; *paśya*—tan solo contempla; *etān*—todos ellos; *samavetān*—reunidos; *kurūn*—todos los miembros de la dinastía Kuru; *iti*—así pues.

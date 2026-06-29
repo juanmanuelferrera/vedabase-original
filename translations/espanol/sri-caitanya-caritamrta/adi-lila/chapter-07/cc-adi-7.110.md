@@ -1,9 +1,9 @@
 ### CC Adi 7.110
 
-> তাঁহার নাহিক দোষ, ঈশ্বর-আজ্ঞা পাঞা ।
+> তাঁহার নাহিক দোষ, ঈশ্বর-আজ্ঞা পাঞা ।\
 > গৌণার্থ করিল মুখ্য অর্থ আচ্ছাদিয়া ॥১১০॥
 
-> tāṅhāra nāhika doṣa, īśvara-ājñā pāñā
+> tāṅhāra nāhika doṣa, īśvara-ājñā pāñā\
 > gauṇārtha karila mukhya artha ācchādiyā
 
 *tāṅhāra*—de Śrī Śaṅkarācārya; *nāhika*—no hay; *doṣa*—falta; *īśvara*—el Señor Supremo; *ājñā*—orden; *pāñā*—recibiendo; *gauṇa-artha*—significado indirecto; *karila*—hizo; *mukhya*—directo; *artha*—significado; *ācchādiyā*—cubriendo.

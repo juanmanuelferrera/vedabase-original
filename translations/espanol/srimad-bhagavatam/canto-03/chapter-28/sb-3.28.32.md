@@ -1,13 +1,13 @@
 ### SB 3.28.32
 
-> हासं हरेरवनताखिललोकतीव्र
-> शोकाश्रुसागरविशोषणमत्युदारम् ।
-> सम्मोहनाय रचितं निजमाययास्य
+> हासं हरेरवनताखिललोकतीव्र\
+> शोकाश्रुसागरविशोषणमत्युदारम् ।\
+> सम्मोहनाय रचितं निजमाययास्य\
 > भ्रूमण्डलं मुनिकृते मकरध्वजस्य ॥३२॥
 
-> hāsaṁ harer avanatākhila-loka-tīvra-
-> śokāśru-sāgara-viśoṣaṇam atyudāram
-> sammohanāya racitaṁ nija-māyayāsya
+> hāsaṁ harer avanatākhila-loka-tīvra-\
+> śokāśru-sāgara-viśoṣaṇam atyudāram\
+> sammohanāya racitaṁ nija-māyayāsya\
 > bhrū-maṇḍalaṁ muni-kṛte makara-dhvajasya
 
 *hāsam*—la sonrisa; *hareḥ*—del Señor Śrī Hari; *avanata*—postradas; *akhila*—todas; *loka*—para las personas; *tīvra-śoka*—causadas por el intenso dolor; *aśru-sāgara*—el océano de lágrimas; *viśoṣaṇam*—secando; *ati-udāram*—muy benévola; *sammohanāya*—para hechizar; *racitam*—manifestada; *nija-māyayā*—por Su potencia interna; *asya*—Su; *bhrū-maṇḍalam*—cejas arqueadas; *muni-kṛte*—para bien de los sabios; *makara-dhvajasya*—del dios del sexo.

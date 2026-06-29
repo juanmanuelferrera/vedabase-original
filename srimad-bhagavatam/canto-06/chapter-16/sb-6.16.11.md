@@ -1,11 +1,11 @@
 ### SB 6.16.11
 
-> नादत्त आत्मा हि गुणं न दोषं न क्रियाफलम
+> नादत्त आत्मा हि गुणं न दोषं न क्रियाफलम\
 > उदासीनवदासीनः परावरदृगीश्वरः ॥११॥
 
-> nādatta ātmā hi guṇaṁ
-> na doṣaṁ na kriyā-phalam
-> udāsīnavad āsīnaḥ
+> nādatta ātmā hi guṇaṁ\
+> na doṣaṁ na kriyā-phalam\
+> udāsīnavad āsīnaḥ\
 > parāvara-dṛg īśvaraḥ
 
 *na*—not; *ādatte*—accepts; *ātmā*—the Supreme Lord; *hi*—indeed; *guṇam*—happiness; *na*—not; *doṣam*—unhappiness; *na*—nor; *kriyā-phalam*—the result of any fruitive activity; *udāsīna-vat*—exactly like a neutral man; *āsīnaḥ*—sitting (in the core of the heart); *para-avara-dṛk*—seeing the cause and effect; *īśvaraḥ*—the Supreme Lord.

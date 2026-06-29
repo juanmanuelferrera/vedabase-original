@@ -1,11 +1,11 @@
 ### SB 2.1.3
 
-> निद्रया ह्रियते नक्तं व्यवायेन च वा वयः ।
+> निद्रया ह्रियते नक्तं व्यवायेन च वा वयः ।\
 > दिवा चार्थेहया राजन्कुटुम्बभरणेन वा ॥३॥
 
-> nidrayā hriyate naktaṁ
-> vyavāyena ca vā vayaḥ
-> divā cārthehayā rājan
+> nidrayā hriyate naktaṁ\
+> vyavāyena ca vā vayaḥ\
+> divā cārthehayā rājan\
 > kuṭumba-bharaṇena vā
 
 *nidrayā*—by sleeping; *hriyate*—wastes; *naktam*—night; *vyavāyena*—sex indulgence; *ca*—also; *vā*—either; *vayaḥ*—duration of life; *divā*—days; *ca*—and; *artha*—economic; *īhayā*—development; *rājan*—O King; *kuṭumba*—family members; *bharaṇena*—maintaining; *vā*—either.

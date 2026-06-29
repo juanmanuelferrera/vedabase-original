@@ -1,9 +1,9 @@
 ### CC Madhya 9.294
 
-> কৌতুকে পুরী তাঁরে পুছিল জন্মস্থান
+> কৌতুকে পুরী তাঁরে পুছিল জন্মস্থান\
 > গোসাঞি কৌতুকে কহেন ‘নবদ্বীপ’ নাম ৷৷ ২৯৪ ৷৷ ॥২৯৪॥
 
-> kautuke purī tāṅre puchila janma-sthāna
+> kautuke purī tāṅre puchila janma-sthāna\
 > gosāñi kautuke kahena 'navadvīpa' nāma
 
 *kautuke*—por curiosidad; *purī*—Śrī Raṅga Purī; *tāṅre*—a Él; *puchila*—preguntó; *janma-sthāna*—lugar de nacimiento; *gosāñi*—Śrī Caitanya Mahāprabhu; *kautuke*—de forma natural; *kahena*—dijo; *navadvīpa*—Navadvīpa; *nāma*—nombre.

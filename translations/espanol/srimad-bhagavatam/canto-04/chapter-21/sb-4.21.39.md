@@ -1,11 +1,11 @@
 ### SB 4.21.39
 
-> यत्सेवयाशेषगुहाशयः स्वराड्विप्रप्रियस्तुष्यति काममीश्वरः ।
+> यत्सेवयाशेषगुहाशयः स्वराड्विप्रप्रियस्तुष्यति काममीश्वरः ।\
 > तदेव तद्धर्मपरैर्विनीतैः सर्वात्मना ब्रह्मकुलं निषेव्यताम् ॥३९॥
 
-> yat-sevayāśeṣa-guhāśayaḥ sva-rāḍ
-> vipra-priyas tuṣyati kāmam īśvaraḥ
-> tad eva tad-dharma-parair vinītaiḥ
+> yat-sevayāśeṣa-guhāśayaḥ sva-rāḍ\
+> vipra-priyas tuṣyati kāmam īśvaraḥ\
+> tad eva tad-dharma-parair vinītaiḥ\
 > sarvātmanā brahma-kulaṁ niṣevyatām
 
 *yat*—cuyos; *sevayā*—por servir; *aśeṣa*—ilimitados; *guhā-āśayaḥ*—que mora en el corazón de todos; *sva-rāṭ*—aun así, con plena independencia; *vipra-priyaḥ*—muy querido a los *brāhmaṇas* y *vaiṣṇavas*; *tuṣyati*—Se siente satisfecho; *kāmam*—de deseos; *īśvaraḥ*—la Suprema Personalidad de Dios; *tat*—eso; *eva*—ciertamente; *tat-dharma-paraiḥ*—por seguir los pasos del Señor; *vinītaiḥ*—por humildad; *sarva-ātmanā*—en todo aspecto; *brahma-kulam*—los descendientes de los *brāhmaṇas* y *vaiṣṇavas*; *niṣevyatām*—estando siempre ocupados en su servicio.

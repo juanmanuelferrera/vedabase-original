@@ -1,13 +1,13 @@
 ### Bg 1.24
 
-> सञ्जय उवाच ।
-> एवमुक्तो हृषीकेशो गुडाकेशेन भारत ।
+> सञ्जय उवाच ।\
+> एवमुक्तो हृषीकेशो गुडाकेशेन भारत ।\
 > सेनयोरुभयोर्मध्ये स्थापयित्वा रथोत्तमम् ॥२४॥
 
-> sañjaya uvāca
-> evam ukto hṛṣīkeśo
-> guḍākeśena bhārata
-> senayor ubhayor madhye
+> sañjaya uvāca\
+> evam ukto hṛṣīkeśo\
+> guḍākeśena bhārata\
+> senayor ubhayor madhye\
 > sthāpayitvā rathottamam
 
 *sañjayaḥ*—Sañjaya; *uvāca*—dijo; *evam*—así pues; *uktaḥ*—se dirigió; *hṛṣīkeśaḥ*—el Señor Kṛṣṇa; *guḍākeśena*—por Arjuna; *bhārata*—¡oh, descendiente de Bharata!; *senayoḥ*—de los ejércitos; *ubhayoḥ*—de ambos; *madhye*—en medio de; *stāpayitvā*—situando; *rathottamam*—la cuadriga más excelente.

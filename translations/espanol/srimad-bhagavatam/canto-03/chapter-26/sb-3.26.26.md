@@ -1,11 +1,11 @@
 ### SB 3.26.26
 
-> कर्तृत्वं करणत्वं च कार्यत्वं चेति लक्षणम् ।
+> कर्तृत्वं करणत्वं च कार्यत्वं चेति लक्षणम् ।\
 > शान्तघोरविमूढत्वमिति वा स्यादहङ्कृतेः ॥२६॥
 
-> kartṛtvaṁ karaṇatvaṁ ca
-> kāryatvaṁ ceti lakṣaṇam
-> śānta-ghora-vimūḍhatvam
+> kartṛtvaṁ karaṇatvaṁ ca\
+> kāryatvaṁ ceti lakṣaṇam\
+> śānta-ghora-vimūḍhatvam\
 > iti vā syād ahaṅkṛteḥ
 
 *kartṛtvam*—siendo el hacedor; *karaṇatvam*—siendo el instrumento; *ca*—y; *kāryatvam*—siendo el efecto; *ca*—también; *iti*—de este modo; *lakṣaṇam*—característico; *śānta*—sereno; *ghora*—activo; *vimūḍhatvam*—siendo torpe; *iti*—de ese modo; *vā*—o; *syāt*—pueda ser; *ahaṅkṛteḥ*—del ego falso.

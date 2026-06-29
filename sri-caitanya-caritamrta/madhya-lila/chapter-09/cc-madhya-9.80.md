@@ -1,9 +1,9 @@
 ### CC Madhya 9.80
 
-> কাবেরীতে স্নান করি’ দেখি’ রঙ্গনাথ ।
+> কাবেরীতে স্নান করি’ দেখি’ রঙ্গনাথ ।\
 > স্তুতি-প্রণতি করি’ মানিলা কৃতার্থ ॥৮০॥
 
-> kāverīte snāna kari' dekhi' raṅganātha
+> kāverīte snāna kari' dekhi' raṅganātha\
 > stuti-praṇati kari' mānilā kṛtārtha
 
 *kāverīte*—in the river known as Kāverī; *snāna kari'*—after bathing; *dekhi'*—visiting; *raṅga-nātha*—the Raṅganātha temple; *stuti*—prayers; *praṇati*—obeisances; *kari'*—offering; *mānilā*—thought Himself; *kṛta-artha*—very successful.

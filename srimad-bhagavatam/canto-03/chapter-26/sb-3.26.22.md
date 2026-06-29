@@ -1,11 +1,11 @@
 ### SB 3.26.22
 
-> स्वच्छत्वमविकारित्वं शान्तत्वमिति चेतसः ।
+> स्वच्छत्वमविकारित्वं शान्तत्वमिति चेतसः ।\
 > वृत्तिभिर्लक्षणं प्रोक्तं यथापां प्रकृतिः परा ॥२२॥
 
-> svacchatvam avikāritvaṁ
-> śāntatvam iti cetasaḥ
-> vṛttibhir lakṣaṇaṁ proktaṁ
+> svacchatvam avikāritvaṁ\
+> śāntatvam iti cetasaḥ\
+> vṛttibhir lakṣaṇaṁ proktaṁ\
 > yathāpāṁ prakṛtiḥ parā
 
 *svacchatvam*—clarity; *avikāritvam*—freedom from all distraction; *śāntatvam*—serenity; *iti*—thus; *cetasaḥ*—of consciousness; *vṛttibhiḥ*—by characteristics; *lakṣaṇam*—traits; *proktam*—called; *yathā*—as; *apām*—of water; *prakṛtiḥ*—natural state; *parā*—pure.

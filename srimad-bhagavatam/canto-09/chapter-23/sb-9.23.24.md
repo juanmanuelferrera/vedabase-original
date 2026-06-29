@@ -1,11 +1,11 @@
 ### SB 9.23.24
 
-> अर्जुनः कृतवीर्यस्य सप्तद्वीपेश्वरोऽभवत
+> अर्जुनः कृतवीर्यस्य सप्तद्वीपेश्वरोऽभवत\
 > दत्तात्रेयाद्धरेरंशात्प्राप्तयोगमहागुणः ॥२४॥
 
-> arjunaḥ kṛtavīryasya
-> sapta-dvīpeśvaro 'bhavat
-> dattātreyād dharer aṁśāt
+> arjunaḥ kṛtavīryasya\
+> sapta-dvīpeśvaro 'bhavat\
+> dattātreyād dharer aṁśāt\
 > prāpta-yoga-mahāguṇaḥ
 
 *arjunaḥ*—Arjuna; *kṛtavīryasya*—of Kṛtavīrya; *sapta-dvīpa*—of the seven islands (the whole world); *īśvaraḥ abhavat*—became the emperor; *dattātreyāt*—from Dattātreya; *hareḥ aṁśāt*—from he who was the incarnation of the Supreme Personality of Godhead; *prāpta*—obtained; *yoga-mahāguṇaḥ*—the quality of mystic power.

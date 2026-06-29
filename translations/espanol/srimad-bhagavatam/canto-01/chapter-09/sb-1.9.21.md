@@ -1,11 +1,11 @@
 ### SB 1.9.21
 
-> सर्वात्मनः समदृशो ह्यद्वयस्यानहङ्कृतेः ।
+> सर्वात्मनः समदृशो ह्यद्वयस्यानहङ्कृतेः ।\
 > तत्कृतं मतिवैषम्यं निरवद्यस्य न क्वचित् ॥२१॥
 
-> sarvātmanaḥ sama-dṛśo
-> hy advayasyānahaṅkṛteḥ
-> tat-kṛtaṁ mati-vaiṣamyaṁ
+> sarvātmanaḥ sama-dṛśo\
+> hy advayasyānahaṅkṛteḥ\
+> tat-kṛtaṁ mati-vaiṣamyaṁ\
 > niravadyasya na kvacit
 
 *sarva-ātmanaḥ*—de aquel que está presente en el corazón de todos; *sama-dṛśaḥ*—de aquel que es igualmente bondadoso con absolutamente todos; *hi*—ciertamente; *advayasya*—del Absoluto; *anahaṅkṛteḥ*—libre de toda identidad material producto del ego falso; *tat-kṛtam*—todo hecho por Él; *mati*—conciencia; *vaiṣamyam*—diferenciación; *niravadyasya*—libre de todo apego; *na*—nunca; *kvacit*—en ninguna etapa.

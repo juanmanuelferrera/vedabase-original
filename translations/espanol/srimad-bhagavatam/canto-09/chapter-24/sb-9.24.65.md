@@ -1,11 +1,11 @@
 ### SB 9.24.65
 
-> यस्याननं मकरकुण्डलचारुकर्ण भ्राजत्कपोलसुभगं सविलासहासम
+> यस्याननं मकरकुण्डलचारुकर्ण भ्राजत्कपोलसुभगं सविलासहासम\
 > नित्योत्सवं न ततृपुर्दृशिभिः पिबन्त्यो नार्यो नराश्च मुदिताः कुपिता निमेश्च ॥६५॥
 
-> yasyānanaṁ makara-kuṇḍala-cāru-karṇa-
-> bhrājat-kapola-subhagaṁ savilāsa-hāsam
-> nityotsavaṁ na tatṛpur dṛśibhiḥ pibantyo
+> yasyānanaṁ makara-kuṇḍala-cāru-karṇa-\
+> bhrājat-kapola-subhagaṁ savilāsa-hāsam\
+> nityotsavaṁ na tatṛpur dṛśibhiḥ pibantyo\
 > nāryo narāś ca muditāḥ kupitā nimeś ca
 
 *yasya*—cuyo; *ānanam*—rostro; *makara-kuṇḍala-cāru-karṇa*—adornado con pendientes en forma de tiburón y con hermosas orejas; *bhrājat*—brillante y adornada; *kapola*—frente; *subhagam*—proclamando toda opulencia; *sa-vilāsa-hāsam*—con sonrisas de disfrute; *nitya-utsavam*—siempre que se Le ve, es como una fiesta; *na tatṛpuḥ*—no podían hallar satisfacción; *dṛśibhiḥ*—por ver la forma del Señor; *pibantyaḥ*—como si bebiesen con los ojos; *nāryaḥ*—todas las mujeres de Vṛndāvana; *narāḥ*—todos los devotos varones; *ca*—también; *muditāḥ*—plenamente satisfechos; *kupitāḥ*—enfadados; *nimeḥ*—el momento en que el parpadeo de los ojos les molesta; *ca*—también.

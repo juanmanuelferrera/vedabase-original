@@ -1,11 +1,11 @@
 ### SB 7.2.46
 
-> भूतेन्द्रियमनोलिङ्गान्देहानुच्चावचान्विभुः
+> भूतेन्द्रियमनोलिङ्गान्देहानुच्चावचान्विभुः\
 > भजत्युत्सृजति ह्यन्यस्तच्चापि स्वेन तेजसा ॥४६॥
 
-> bhūtendriya-mano-liṅgān
-> dehān uccāvacān vibhuḥ
-> bhajaty utsṛjati hy anyas
+> bhūtendriya-mano-liṅgān\
+> dehān uccāvacān vibhuḥ\
+> bhajaty utsṛjati hy anyas\
 > tac cāpi svena tejasā
 
 *bhūta*—by the five material elements; *indriya*—the ten senses; *manaḥ*—and the mind; *liṅgān*—characterized; *dehān*—gross material bodies; *ucca-avacān*—high class and low class; *vibhuḥ*—the individual soul, which is the lord of the body and senses; *bhajati*—achieves; *utsṛjati*—gives up; *hi*—indeed; *anyaḥ*—being different; *tat*—that; *ca*—also; *api*—indeed; *svena*—by his own; *tejasā*—power of advanced knowledge.

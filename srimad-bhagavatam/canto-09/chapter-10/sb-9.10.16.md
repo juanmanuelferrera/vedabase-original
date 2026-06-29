@@ -1,13 +1,13 @@
 ### SB 9.10.16
 
-> बद्ध्वोदधौ रघुपतिर्विविधाद्रिकूटैः
-> सेतुं कपीन्द्रकरकम्पितभूरुहाङ्गैः
-> सुग्रीवनीलहनुमत्प्रमुखैरनीकैर
+> बद्ध्वोदधौ रघुपतिर्विविधाद्रिकूटैः\
+> सेतुं कपीन्द्रकरकम्पितभूरुहाङ्गैः\
+> सुग्रीवनीलहनुमत्प्रमुखैरनीकैर\
 > लङ्कां विभीषणदृशाविशदग्रदग्धाम ॥१६॥
 
-> baddhvodadhau raghu-patir vividhādri-kūṭaiḥ
-> setuṁ kapīndra-kara-kampita-bhūruhāṅgaiḥ
-> sugrīva-nīla-hanumat-pramukhair anīkair
+> baddhvodadhau raghu-patir vividhādri-kūṭaiḥ\
+> setuṁ kapīndra-kara-kampita-bhūruhāṅgaiḥ\
+> sugrīva-nīla-hanumat-pramukhair anīkair\
 > laṅkāṁ vibhīṣaṇa-dṛśāviśad agra-dagdhām
 
 *baddhvā*—after constructing; *udadhau*—in the water of the ocean; *raghu-patiḥ*—Lord Rāmacandra; *vividha*—varieties of; *adri-kūṭaiḥ*—with peaks of great mountains; *setum*—a bridge; *kapi-indra*—of powerful monkeys; *kara-kampita*—moved by the great hands; *bhūruha-aṅgaiḥ*—with the trees and plants; *sugrīva*—Sugrīva; *nīla*—Nīla; *hanumat*—Hanumān; *pramukhaiḥ*—led by; *anīkaiḥ*—with such soldiers; *laṅkām*—Laṅkā, the kingdom of Rāvaṇa; *vibhīṣaṇa-dṛśā*—by the direction of Vibhīṣaṇa, the brother of Rāvaṇa; *āviśat*—entered; *agra-dagdhām*—which was previously burnt (by the monkey soldier Hanumān).

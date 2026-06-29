@@ -1,11 +1,11 @@
 ### SB 4.14.20
 
-> तस्मिंस्तुष्टे किमप्राप्यंजगतामीश्वरेश्वरे ।
+> तस्मिंस्तुष्टे किमप्राप्यंजगतामीश्वरेश्वरे ।\
 > लोकाः सपाला ह्येतस्मै हरन्ति बलिमादृताः ॥२०॥
 
-> tasmiṁs tuṣṭe kim aprāpyaṁ
-> jagatām īśvareśvare
-> lokāḥ sapālā hy etasmai
+> tasmiṁs tuṣṭe kim aprāpyaṁ\
+> jagatām īśvareśvare\
+> lokāḥ sapālā hy etasmai\
 > haranti balim ādṛtāḥ
 
 *tasmin*—when He; *tuṣṭe*—is satisfied; *kim*—what; *aprāpyam*—impossible to achieve; *jagatām*—of the universe; *īśvara-īśvare*—the controller of the controllers; *lokāḥ*—the inhabitants of the planets; *sapālāḥ*—with their presiding deities; *hi*—for this reason; *etasmai*—unto Him; *haranti*—offer; *balim*—paraphernalia for worship; *ādṛtāḥ*—with great pleasure.

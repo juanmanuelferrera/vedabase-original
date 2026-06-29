@@ -1,11 +1,11 @@
 ### SB 9.22.3
 
-> धृष्टद्युम्नाद्धृष्टकेतुर्भार्म्याः पाञ्चालका इमे
+> धृष्टद्युम्नाद्धृष्टकेतुर्भार्म्याः पाञ्चालका इमे\
 > योऽजमीढसुतो ह्यन्य ऋक्षः संवरणस्ततः ॥३॥
 
-> drupadād draupadī tasya
-> dhṛṣṭadyumnādayaḥ sutāḥ
-> dhṛṣṭadyumnād dhṛṣṭaketur
+> drupadād draupadī tasya\
+> dhṛṣṭadyumnādayaḥ sutāḥ\
+> dhṛṣṭadyumnād dhṛṣṭaketur\
 > bhārmyāḥ pāñcālakā ime
 
 *drupadāt*—de Drupada; *draupadī*—Draupadī, la famosa esposa de los Pāṇḍavas; *tasya*—de él (de Drupada); *dhṛṣṭadyumna-ādayaḥ*—encabezados por Dhṛṣṭadyumna; *sutāḥ*—hijos; *dhṛṣṭadyumnāt*—de Dhṛṣṭadyumna; *dhṛṣṭaketuḥ*—el hijo llamado Dhṛṣṭaketu; *bhārmyāḥ*—descendientes todos ellos de Bharmyāśva; *pāñcālakāḥ*—reciben el nombre de *pāñcālakas*; *ime*—todos ellos.

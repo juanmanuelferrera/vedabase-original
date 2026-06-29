@@ -1,9 +1,9 @@
 ### CC Madhya 15.106
 
-> প্রভু কহে, — “যাঁর মুখে শুনি একবার ।
+> প্রভু কহে, — “যাঁর মুখে শুনি একবার ।\
 > কৃষ্ণনাম, সেই পূজ্য, — শ্রেষ্ঠ সবাকার ।।” ॥ ১০৬ ॥
 
-> prabhu kahe,--"yāṅra mukhe śuni eka-bāra
+> prabhu kahe,--"yāṅra mukhe śuni eka-bāra\
 > kṛṣṇa-nāma, sei pūjya,--śreṣṭha sabākāra"
 
 *prabhu kahe*—el Señor Śrī Caitanya Mahāprabhu respondió; *yāṅra mukhe*—de cuya boca; *śuni*—escucho; *eka-bāra*—una vez; *kṛṣṇa-nāma*—el santo nombre del Señor Kṛṣṇa; *sei pūjya*—él es adorable; *śreṣṭha sabākāra*—el mejor de todos los seres humanos.

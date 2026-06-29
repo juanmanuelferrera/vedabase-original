@@ -1,11 +1,11 @@
 ### SB 9.5.7
 
-> त्वत्तेजसा धर्ममयेन संहृतं तमः प्रकाशश्च दृशो महात्मनाम
+> त्वत्तेजसा धर्ममयेन संहृतं तमः प्रकाशश्च दृशो महात्मनाम\
 > दुरत्ययस्ते महिमा गिरां पते त्वद्रूपमेतत्सदसत्परावरम ॥७॥
 
-> tvat-tejasā dharma-mayena saṁhṛtaṁ
-> tamaḥ prakāśaś ca dṛśo mahātmanām
-> duratyayas te mahimā girāṁ pate
+> tvat-tejasā dharma-mayena saṁhṛtaṁ\
+> tamaḥ prakāśaś ca dṛśo mahātmanām\
+> duratyayas te mahimā girāṁ pate\
 > tvad-rūpam etat sad-asat parāvaram
 
 *tvat-tejasā*—por tu refulgencia; *dharma-mayena*—plena de principios religiosos; *saṁhṛtam*—disipada; *tamaḥ*—la oscuridad; *prakāśaḥ ca*—iluminación también; *dṛśaḥ*—de todas las direcciones; *mahā-ātmanām*—de grandes personalidades eruditas; *duratyayaḥ*—insuperables; *te*—tus; *mahimā*—glorias; *girām pate*—¡oh, señor de la palabra!; *tvat-rūpam*—tu manifestación; *etat*—esta; *sat-asat*—manifestados y no manifestados; *para-avaram*—superiores e inferiores.

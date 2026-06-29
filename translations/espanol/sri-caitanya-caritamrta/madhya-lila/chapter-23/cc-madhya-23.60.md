@@ -1,9 +1,9 @@
 ### CC Madhya 23.60
 
-> চিত্রজল্পের দশ অঙ্গ — প্রজল্পাদি-নাম ।
+> চিত্রজল্পের দশ অঙ্গ — প্রজল্পাদি-নাম ।\
 > ‘ভ্রমর-গীতা’র দশ শ্লোক তাহাতে প্রমাণ ॥৬০॥
 
-> citra-jalpera daśa aṅga--prajalpādi-nāma
+> citra-jalpera daśa aṅga--prajalpādi-nāma\
 > 'bhramara-gītā'ra daśa śloka tāhāte pramāṇa
 
 *citra-jalpera*—de las hablas dementes; *daśa*—diez; *aṅga*—partes; *prajalpa-ādi-nāma*—denominadas prajalpa y demás; *bhramara-gītāra*—de las conversaciones de Rādhārāṇī con el abejorro (Śrīmad-Bhāgavatam, Canto Diez, Capítulo Cuarenta y siete); *daśa śloka*—diez versos; *tāhāte*—en ese asunto; *pramāṇa*—la evidencia.

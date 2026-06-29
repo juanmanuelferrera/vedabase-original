@@ -1,9 +1,9 @@
 ### CC Antya 5.21
 
-> মহাপ্রভুর ভক্তগণের দুর্গম মহিমা ।
+> মহাপ্রভুর ভক্তগণের দুর্গম মহিমা ।\
 > তাহে রামানন্দের ভাবভক্তি-প্রেম-সীমা ॥২১॥
 
-> mahāprabhura bhakta-gaṇera durgama mahimā
+> mahāprabhura bhakta-gaṇera durgama mahimā\
 > tāhe rāmānandera bhāva-bhakti-prema-sīmā
 
 *mahāprabhura*—of Lord Śrī Caitanya Mahāprabhu; *bhakta-gaṇera*—of the devotees; *durgama*—difficult *to understand*; *mahimā*—greatness; *tāhe*—in that connection; *rāmānandera*—of Śrī Rāmānanda Rāya; *bhāva-bhakti*—of ecstatic devotion; *prema-sīmā*—the limit of love of Kṛṣṇa.

@@ -1,11 +1,11 @@
 ### SB 1.6.10
 
-> तदा तदहमीशस्य भक्तानां शमभीप्सतः ।
+> तदा तदहमीशस्य भक्तानां शमभीप्सतः ।\
 > अनुग्रहं मन्यमानः प्रातिष्ठं दिशमुत्तराम् ॥१०॥
 
-> tadā tad aham īśasya
-> bhaktānāṁ śam abhīpsataḥ
-> anugrahaṁ manyamānaḥ
+> tadā tad aham īśasya\
+> bhaktānāṁ śam abhīpsataḥ\
+> anugrahaṁ manyamānaḥ\
 > prātiṣṭhaṁ diśam uttarām
 
 *tadā*—en ese entonces; *tat*—eso; *aham*—yo; *īśasya*—del Señor; *bhaktānām*—de los devotos; *śam*—misericordia; *abhīpsataḥ*—deseando; *anugraham*—bendición especial; *manyamānaḥ*—pensando de esa manera; *prātiṣṭham*—partí; *diśam uttarām*—en dirección al norte.

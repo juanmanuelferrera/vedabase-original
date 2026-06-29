@@ -1,9 +1,9 @@
 ### CC Antya 16.76
 
-> চৈতন্যপ্রভুর এই কৃপার মহিমা ।
+> চৈতন্যপ্রভুর এই কৃপার মহিমা ।\
 > ব্রহ্মাদি দেব যার নাহি পায় সীমা ॥৭৬॥
 
-> caitanya-prabhura ei kṛpāra mahimā
+> caitanya-prabhura ei kṛpāra mahimā\
 > brahmādi deva yāra nāhi pāya sīmā
 
 *caitanya-prabhura*—del Señor Śrī Caitanya Mahāprabhu; *ei*—esta; *kṛpāra mahimā*—la gloria de la misericordia; *brahmā-ādi*—encabezados por el Señor Brahmā; *deva*—los semidioses; *yāra*—de la cual; *nāhi pāya*—no alcanzan; *sīmā*—el límite.

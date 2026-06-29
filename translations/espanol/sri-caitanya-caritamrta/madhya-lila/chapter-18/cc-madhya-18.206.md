@@ -1,9 +1,9 @@
 ### CC Madhya 18.206
 
-> ‘কৃষ্ণ’ কহ, ‘কৃষ্ণ’ কহ, — কৈলা উপদেশ ।
+> ‘কৃষ্ণ’ কহ, ‘কৃষ্ণ’ কহ, — কৈলা উপদেশ ।\
 > সবে ‘কৃষ্ণ’ কহে, সবার হৈল প্রেমাবেশ ॥২০৬॥
 
-> 'kṛṣṇa' kaha, 'kṛṣṇa' kaha,--kailā upadeśa
+> 'kṛṣṇa' kaha, 'kṛṣṇa' kaha,--kailā upadeśa\
 > sabe'kṛṣṇa' kahe, sabāra haila premāveśa
 
 *kṛṣṇa kaha*—simplemente cantad «Kṛṣṇa»; *kṛṣṇa kaha*—simplemente cantad «Kṛṣṇa»; *kailā upadeśa*—Śrī Caitanya Mahāprabhu instruyó; *sabe*—todos; *kṛṣṇa kahe*—cantan el santo nombre de Kṛṣṇa; *sabāra*—de todos ellos; *haila*—hubo; *prema-āveśa*—amor extático.

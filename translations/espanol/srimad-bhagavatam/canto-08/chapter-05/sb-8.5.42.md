@@ -1,11 +1,11 @@
 ### SB 8.5.42
 
-> लोभोऽधरात्प्रीतिरुपर्यभूद्द्युतिर्नस्तः पशव्यः स्पर्शेन कामः
+> लोभोऽधरात्प्रीतिरुपर्यभूद्द्युतिर्नस्तः पशव्यः स्पर्शेन कामः\
 > भ्रुवोर्यमः पक्ष्मभवस्तु कालः प्रसीदतां नः स महाविभूतिः ॥४२॥
 
-> lobho 'dharāt prītir upary abhūd dyutir
-> nastaḥ paśavyaḥ sparśena kāmaḥ
-> bhruvor yamaḥ pakṣma-bhavas tu kālaḥ
+> lobho 'dharāt prītir upary abhūd dyutir\
+> nastaḥ paśavyaḥ sparśena kāmaḥ\
+> bhruvor yamaḥ pakṣma-bhavas tu kālaḥ\
 > prasīdatāṁ naḥ sa mahā-vibhūtiḥ
 
 *lobhaḥ*—la codicia; *adharāt*—del labio inferior; *prītiḥ*—el afecto; *upari*—del labio superior; *abhūt*—fueron posibles; *dyutiḥ*—el brillo corporal; *nastaḥ*—de la nariz; *paśavyaḥ*—propios de animales; *sparśena*—por el tacto; *kāmaḥ*—deseos de disfrute; *bhruvoḥ*—de las cejas; *yamaḥ*—fue posible Yamarāja; *pakṣma-bhavaḥ*—de las pestañas; *tu*—pero; *kālaḥ*—el tiempo eterno, que trae la muerte; *prasīdatām*—Se complazca; *naḥ*—con nosotros; *saḥ*—Él; *mahā-vibhūtiḥ*—la Suprema Personalidad de Dios, que posee gran poder.

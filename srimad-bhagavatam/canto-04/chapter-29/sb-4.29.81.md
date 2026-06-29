@@ -1,11 +1,11 @@
 ### SB 4.29.81
 
-> प्राचीनबर्ही राजर्षिः प्रजासर्गाभिरक्षणे ।
+> प्राचीनबर्ही राजर्षिः प्रजासर्गाभिरक्षणे ।\
 > आदिश्य पुत्रानगमत्तपसे कपिलाश्रमम् ॥८१॥
 
-> prācīnabarhī rājarṣiḥ
-> prajā-sargābhirakṣaṇe
-> ādiśya putrān agamat
+> prācīnabarhī rājarṣiḥ\
+> prajā-sargābhirakṣaṇe\
+> ādiśya putrān agamat\
 > tapase kapilāśramam
 
 *prācīnabarhiḥ*—King Prācīnabarhi; *rāja-ṛṣiḥ*—the saintly King; *prajā-sarga*—the mass of citizens; *abhirakṣaṇe*—to protect; *ādiśya*—after ordering; *putrān*—his sons; *agamat*—departed; *tapase*—for undergoing austerities; *kapila-āśramam*—to the holy place known as Kapilāśrama.

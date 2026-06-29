@@ -1,11 +1,11 @@
 ### SB 4.8.32
 
-> अतो निवर्ततामेष निर्बन्धस्तव निष्फलः ।
+> अतो निवर्ततामेष निर्बन्धस्तव निष्फलः ।\
 > यतिष्यति भवान्काले श्रेयसां समुपस्थिते ॥३२॥
 
-> ato nivartatām eṣa
-> nirbandhas tava niṣphalaḥ
-> yatiṣyati bhavān kāle
+> ato nivartatām eṣa\
+> nirbandhas tava niṣphalaḥ\
+> yatiṣyati bhavān kāle\
 > śreyasāṁ samupasthite
 
 *ataḥ*—en adelante; *nivartatām*—deténte; *eṣaḥ*—esa; *nirbandhaḥ*—determinación; *tava*—tuya; *niṣphalaḥ*—sin ningún resultado; *yatiṣyati*—en el futuro debes intentar; *bhavān*—tú mismo; *kāle*—con el paso del tiempo; *śreyasām*—oportunidades; *samupasthite*—estando presentes.

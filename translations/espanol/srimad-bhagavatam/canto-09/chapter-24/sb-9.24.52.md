@@ -1,11 +1,11 @@
 ### SB 9.24.52
 
-> देवरक्षितया लब्धा नव चात्र गदादयः
+> देवरक्षितया लब्धा नव चात्र गदादयः\
 > वसुदेवः सुतानष्टावादधे सहदेवया ॥५२॥
 
-> devarakṣitayā labdhā
-> nava cātra gadādayaḥ
-> vasudevaḥ sutān aṣṭāv
+> devarakṣitayā labdhā\
+> nava cātra gadādayaḥ\
+> vasudevaḥ sutān aṣṭāv\
 > ādadhe sahadevayā
 
 *devarakṣitayā*—con la esposa llamada Devarakṣitā; *labdhāḥ*—obtuvo; *nava*—nueve; *ca*—también; *atra*—aquí; *gadā-ādayaḥ*—hijos, comenzando con Gadā; *vasudevaḥ*—Śrīla Vasudeva; *sutān*—hijos; *aṣṭau*—ocho; *ādadhe*—engendró; *sahadevayā*—en la esposa llamada Sahadevā.

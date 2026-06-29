@@ -1,13 +1,13 @@
 ### SB 3.10.1
 
-> विदुर उवाच
-> अन्तर्हिते भगवति ब्रह्मा लोकपितामहः ।
+> विदुर उवाच\
+> अन्तर्हिते भगवति ब्रह्मा लोकपितामहः ।\
 > प्रजाः ससर्ज कतिधा दैहिकीर्मानसीर्विभुः ॥१॥
 
-> vidura uvāca
-> antarhite bhagavati
-> brahmā loka-pitāmahaḥ
-> prajāḥ sasarja katidhā
+> vidura uvāca\
+> antarhite bhagavati\
+> brahmā loka-pitāmahaḥ\
+> prajāḥ sasarja katidhā\
 > daihikīr mānasīr vibhuḥ
 
 *viduraḥ uvāca*—Śrī Vidura said; *antarhite*—after the disappearance; *bhagavati*—of the Personality of Godhead; *brahmā*—the first created living being; *loka-pitāmahaḥ*—the grandfather of all planetary inhabitants; *prajāḥ*—generations; *sasarja*—created; *katidhāḥ*—how many; *daihikīḥ*—from his body; *mānasīḥ*—from his mind; *vibhuḥ*—the great.

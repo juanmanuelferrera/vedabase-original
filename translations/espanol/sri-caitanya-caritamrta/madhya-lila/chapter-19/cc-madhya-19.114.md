@@ -1,9 +1,9 @@
 ### CC Madhya 19.114
 
-> লোক-ভিড়-ভয়ে প্রভু ‘দশাশ্বমেধে’ যাঞা ।
+> লোক-ভিড়-ভয়ে প্রভু ‘দশাশ্বমেধে’ যাঞা ।\
 > রূপ গোসাঞিরে শিক্ষা করা’ন শক্তি সঞ্চারিয়া ॥১১৪॥
 
-> loka-bhiḍa-bhaye prabhu 'daśāśvamedhe' yāñā
+> loka-bhiḍa-bhaye prabhu 'daśāśvamedhe' yāñā\
 > rūpa-gosāñire śikṣā karā'na śakti sañcāriyā
 
 *loka-bhiḍa-bhaye*—por temor a la gran multitud; *prabhu*—Śrī Caitanya Mahāprabhu; *daśāśvamedhe*—al Daśāśvamedha-ghāṭa; *yāñā*—yendo; *rūpa-gosāñire*—a Rūpa Gosvāmī; *śikṣā karā'na*—instruye; *śakti sañcāriyā*—dotándole de potencia.

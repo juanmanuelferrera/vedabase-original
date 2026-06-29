@@ -1,9 +1,9 @@
 ### CC Adi 14.20
 
-> শুনি’ শচী-মিশ্রের মনে আনন্দ বাড়িল ।
+> শুনি’ শচী-মিশ্রের মনে আনন্দ বাড়িল ।\
 > ব্রাহ্মণ-ব্রাহ্মণী আনি’ মহোৎসব কৈল ॥২০॥
 
-> śuni' śacī-miśrera mane ānanda bāḍila
+> śuni' śacī-miśrera mane ānanda bāḍila\
 > brāhmaṇa-brāhmaṇī āni' mahotsava kaila
 
 *śuni'*—hearing this; *śacī*—of mother Śacī; *miśrera*—and of Jagannātha Miśra; *mane*—within the minds; *ānanda*—pleasure; *bāḍila*—increased; *brāhmaṇa*—the *brāhmaṇas*; *brāhmaṇī*—and their wives; *āni'*—inviting them; *mahotsava*—a festival; *kaila*—observed.

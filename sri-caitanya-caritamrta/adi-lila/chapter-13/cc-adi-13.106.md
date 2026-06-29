@@ -1,13 +1,13 @@
 ### CC Adi 13.106
 
-> অন্তরীক্ষে দেবগণ, গন্ধর্ব, সিদ্ধ, চারণ,
-> স্তুতি-নৃত্য করে বাদ্য-গীত ।
-> নর্তক, বাদক, ভাট, নবদ্বীপে যার নাট,
+> অন্তরীক্ষে দেবগণ, গন্ধর্ব, সিদ্ধ, চারণ,\
+> স্তুতি-নৃত্য করে বাদ্য-গীত ।\
+> নর্তক, বাদক, ভাট, নবদ্বীপে যার নাট,\
 > সবে আসি’ নাচে পাঞা প্রীত ॥১০৬॥
 
-> antarīkṣe deva-gaṇa, gandharva, siddha, cāraṇa,
-> stuti-nṛtya kare vādya-gīta
-> nartaka, vādaka, bhāṭa, navadvīpe yāra nāṭa,
+> antarīkṣe deva-gaṇa, gandharva, siddha, cāraṇa,\
+> stuti-nṛtya kare vādya-gīta\
+> nartaka, vādaka, bhāṭa, navadvīpe yāra nāṭa,\
 > sabe āsi' nāce pāñā prīta
 
 *antarīkṣe*—in outer space; *deva-gaṇa*—the demigods; *gandharva*—the inhabitants of Gandharvaloka; *siddha*—the inhabitants of Siddhaloka; *cāraṇa*—the professional singers of the heavenly planets; *stuti*—prayers; *nṛtya*—dancing; *kare*—do; *vādya*—music; *gīta*—song; *nartaka*—dancers; *vādaka*—professional drummers; *bhāṭa*—professional blessers; *navadvīpe*—in the city of Navadvīpa; *yāra*—of whom; *nāṭa*—stage; *sabe*—all of them; *āsi'*—coming; *nāce*—began to dance; *pāñā*—achieving; *prīta*—happiness.

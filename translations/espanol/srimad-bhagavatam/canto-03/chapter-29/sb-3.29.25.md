@@ -1,11 +1,11 @@
 ### SB 3.29.25
 
-> अर्चादावर्चयेत्तावदीश्वरं मां स्वकर्मकृत् ।
+> अर्चादावर्चयेत्तावदीश्वरं मां स्वकर्मकृत् ।\
 > यावन्न वेद स्वहृदि सर्वभूतेष्ववस्थितम् ॥२५॥
 
-> arcādāv arcayet tāvad
-> īśvaraṁ māṁ sva-karma-kṛt
-> yāvan na veda sva-hṛdi
+> arcādāv arcayet tāvad\
+> īśvaraṁ māṁ sva-karma-kṛt\
+> yāvan na veda sva-hṛdi\
 > sarva-bhūteṣv avasthitam
 
 *arcā-ādau*—empezando con la adoración de la Deidad; *arcayet*—debe adorar; *tāvat*—hasta que; *īśvaram*—a la Suprema Personalidad de Dios; *mām*—a Mí; *sva*—sus propios; *karma*—deberes prescritos; *kṛt*—ejecutando; *yāvat*—en tanto que; *na*—no; *veda*—descubra; *sva-hṛdi*—en su propio corazón; *sarva-bhūteṣu*—en todas las entidades vivientes; *avasthitam*—situado.

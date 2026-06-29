@@ -1,11 +1,11 @@
 ### SB 3.29.15
 
-> निषेवितेनानिमित्तेन स्वधर्मेण महीयसा ।
+> निषेवितेनानिमित्तेन स्वधर्मेण महीयसा ।\
 > क्रियायोगेन शस्तेन नातिहिंस्रेण नित्यशः ॥१५॥
 
-> niṣevitenānimittena
-> sva-dharmeṇa mahīyasā
-> kriyā-yogena śastena
+> niṣevitenānimittena\
+> sva-dharmeṇa mahīyasā\
+> kriyā-yogena śastena\
 > nātihiṁsreṇa nityaśaḥ
 
 *niṣevitena*—executed; *animittena*—without attachment to the result; *sva-dharmeṇa*—by one's prescribed duties; *mahīyasā*—glorious; *kriyā-yogena*—by devotional activities; *śastena*—auspicious; *na*—without; *atihiṁsreṇa*—excessive violence; *nityaśaḥ*—regularly.

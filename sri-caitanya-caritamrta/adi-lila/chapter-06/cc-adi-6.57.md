@@ -1,9 +1,9 @@
 ### CC Adi 6.57
 
-> তেঁহো রতি-মতি মাগে কৃষ্ণের চরণে ।
+> তেঁহো রতি-মতি মাগে কৃষ্ণের চরণে ।\
 > তাহার শ্রীমুখবাণী তাহাতে প্রমাণে ॥৫৭॥
 
-> teṅho rati-mati māge kṛṣṇera caraṇe
+> teṅho rati-mati māge kṛṣṇera caraṇe\
 > tāhāra śrī-mukha-vāṇī tāhāte pramāṇe
 
 *teṅho*—he also; *rati-mati*—affection and attraction; *māge*—begs; *kṛṣṇera caraṇe*—unto the lotus feet of Kṛṣṇa; *tāhāra*—his; *śrī-mukha-vāṇī*—words from his mouth; *tāhāte*—in that; *pramāṇe*—evidence.

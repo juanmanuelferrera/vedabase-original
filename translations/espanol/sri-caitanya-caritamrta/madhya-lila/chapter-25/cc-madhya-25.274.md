@@ -1,13 +1,13 @@
 ### CC Madhya 25.274
 
-> নানা-ভাবের ভক্তজন, হংস-চক্রবাকগণ,
-> যাতে সবে’ করেন বিহার ।
-> কৃষ্ণকেলি সুমৃণাল, যাহা পাই সর্বকাল,
+> নানা-ভাবের ভক্তজন, হংস-চক্রবাকগণ,\
+> যাতে সবে’ করেন বিহার ।\
+> কৃষ্ণকেলি সুমৃণাল, যাহা পাই সর্বকাল,\
 > ভক্ত-হংস করয়ে আহার ॥২৭৪॥
 
-> nānā-bhāvera bhakta-jana, haṁsa-cakravāka-gaṇa,
-> yāte sabe' karena vihāra
-> kṛṣṇa-keli sumṛṇāla, yāhā pāi sarva-kāla,
+> nānā-bhāvera bhakta-jana, haṁsa-cakravāka-gaṇa,\
+> yāte sabe' karena vihāra\
+> kṛṣṇa-keli sumṛṇāla, yāhā pāi sarva-kāla,\
 > bhakta-haṁsa karaye āhāra
 
 *nānā-bhāvera bhakta-jana*—devotos que saborean relaciones con Kṛṣṇa en diferentes éxtasis; *haṁsa-cakravāka-gaṇa*—comparados con cisnes y aves cakravāka; *yāte*—en ese lugar; *sabe'*—todos; *karena vihāra*—disfrutan la vida; *kṛṣṇa-keli*—los pasatiempos de Kṛṣṇa; *su-mṛṇāla*—dulces brotes; *yāhā pāi*—los cuales se pueden obtener; *sarva-kāla*—eternamente; *bhakta-haṁsa*—los devotos, que son como cisnes; *karaye*—hacen; *āhāra*—comer.

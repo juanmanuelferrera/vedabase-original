@@ -1,11 +1,11 @@
 ### SB 7.12.15
 
-> अग्नौ गुरावात्मनि च सर्वभूतेष्वधोक्षजम
+> अग्नौ गुरावात्मनि च सर्वभूतेष्वधोक्षजम\
 > भूतैः स्वधामभिः पश्येदप्रविष्टं प्रविष्टवत ॥१५॥
 
-> agnau gurāv ātmani ca
-> sarva-bhūteṣv adhokṣajam
-> bhūtaiḥ sva-dhāmabhiḥ paśyed
+> agnau gurāv ātmani ca\
+> sarva-bhūteṣv adhokṣajam\
+> bhūtaiḥ sva-dhāmabhiḥ paśyed\
 > apraviṣṭaṁ praviṣṭavat
 
 *agnau*—in the fire; *gurau*—in the spiritual master; *ātmani*—in one's self; *ca*—also; *sarva-bhūteṣu*—in every living entity; *adhokṣajam*—the Supreme Personality of Godhead, who cannot be seen or perceived with the material eyes or other material senses; *bhūtaiḥ*—with all living entities; *sva-dhāmabhiḥ*—along with His Lordship's paraphernalia; *paśyet*—one should see; *apraviṣṭam*—not entered; *praviṣṭa-vat*—also entered.

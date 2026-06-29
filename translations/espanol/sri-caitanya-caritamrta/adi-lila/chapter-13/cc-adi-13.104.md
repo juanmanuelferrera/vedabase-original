@@ -1,13 +1,13 @@
 ### CC Adi 13.104
 
-> ব্রাহ্মণ-সজ্জন-নারী, নানা-দ্রব্যে থালী ভরি’
-> আইলা সবে যৌতুক লইয়া ।
-> যেন কাঁচা-সোণা-দ্যুতি, দেখি’ বালকের মূর্তি,
+> ব্রাহ্মণ-সজ্জন-নারী, নানা-দ্রব্যে থালী ভরি’\
+> আইলা সবে যৌতুক লইয়া ।\
+> যেন কাঁচা-সোণা-দ্যুতি, দেখি’ বালকের মূর্তি,\
 > আশীর্বাদ করে সুখ পাঞা ॥১০৪॥
 
-> brāhmaṇa-sajjana-nārī, nānā-dravye thālī bhari'
-> āilā sabe yautuka la-iyā
-> yena kāṅcā-soṇā-dyuti, dekhi' bālakera mūrti,
+> brāhmaṇa-sajjana-nārī, nānā-dravye thālī bhari'\
+> āilā sabe yautuka la-iyā\
+> yena kāṅcā-soṇā-dyuti, dekhi' bālakera mūrti,\
 > āśīrvāda kare sukha pāñā
 
 *brāhmaṇa*—los respetables *brāhmaṇas*; *sat-jana*—caballeros; *nārī*—damas; *nānā*—diversidad; *dravye*—de obsequios; *thālī*—bandejas; *bhari'*—colmadas; *āilā*—vinieron; *sabe*—todos; *yautuka*—presentes; *la-iyā*—llevando; *yena*—como; *kāṅcā*—sin refinar; *soṇā*—oro; *dyuti*—resplandor; *dekhi'*—al ver; *bālakera*—del niño; *mūrti*—la forma; *āśīrvāda*—bendiciones; *kare*—ofrecieron; *sukha*—felicidad; *pāñā*—obteniendo.

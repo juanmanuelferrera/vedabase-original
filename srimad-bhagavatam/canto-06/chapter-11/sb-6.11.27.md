@@ -1,11 +1,11 @@
 ### SB 6.11.27
 
-> ममोत्तमश्लोकजनेषु सख्यं संसारचक्रे भ्रमतः स्वकर्मभिः
+> ममोत्तमश्लोकजनेषु सख्यं संसारचक्रे भ्रमतः स्वकर्मभिः\
 > त्वन्माययात्मात्मजदारगेहेष्वासक्तचित्तस्य न नाथ भूयात ॥२७॥
 
-> mamottamaśloka-janeṣu sakhyaṁ
-> saṁsāra-cakre bhramataḥ sva-karmabhiḥ
-> tvan-māyayātmātmaja-dāra-geheṣv
+> mamottamaśloka-janeṣu sakhyaṁ\
+> saṁsāra-cakre bhramataḥ sva-karmabhiḥ\
+> tvan-māyayātmātmaja-dāra-geheṣv\
 > āsakta-cittasya na nātha bhūyāt
 
 *mama*—my; *uttama-śloka-janeṣu*—among devotees who are simply attached to the Supreme Personality of Godhead; *sakhyam*—friendship; *saṁsāra-cakre*—in the cycle of birth and death; *bhramataḥ*—who am wandering; *sva-karmabhiḥ*—by the results of my own fruitive activities; *tvat-māyayā*—by Your external energy; *ātma*—to the body; *ātma-ja*—children; *dāra*—wife; *geheṣu*—and home; *āsakta*—attached; *cittasya*—whose mind; *na*—not; *nātha*—O my Lord; *bhūyāt*—may there be.

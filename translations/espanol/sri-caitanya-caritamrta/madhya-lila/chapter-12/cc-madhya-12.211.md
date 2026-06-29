@@ -1,9 +1,9 @@
 ### CC Madhya 12.211
 
-> তৃষার্ত প্ৰভুর নেত্র — ভ্রমর-যুগল ৷
+> তৃষার্ত প্ৰভুর নেত্র — ভ্রমর-যুগল ৷\
 > গাঢ় তৃষ্ণায় পিয়ে কৃষ্ণের বদন-কমল ॥২১১॥
 
-> tṛṣārta prabhura netra-bhramara-yugala
+> tṛṣārta prabhura netra-bhramara-yugala\
 > gāḍha tṛṣṇāya piye kṛṣṇera vadana-kamala
 
 *tṛṣā-ārta*—sedientos; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *netra*—los ojos; *bhramara-yugala*—como dos abejorros; *gāḍha*—profunda; *tṛṣṇāya*—con sed; *piye*—beben; *kṛṣṇera*—del Señor Kṛṣṇa; *vadana-kamala*—el rostro de loto.

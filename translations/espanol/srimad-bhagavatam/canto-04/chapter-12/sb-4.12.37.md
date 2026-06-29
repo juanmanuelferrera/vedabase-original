@@ -1,11 +1,11 @@
 ### SB 4.12.37
 
-> शान्ताः समदृशः शुद्धाः सर्वभूतानुरञ्जनाः ।
+> शान्ताः समदृशः शुद्धाः सर्वभूतानुरञ्जनाः ।\
 > यान्त्यञ्जसाच्युतपदमच्युतप्रियबान्धवाः ॥३७॥
 
-> śāntāḥ sama-dṛśaḥ śuddhāḥ
-> sarva-bhūtānurañjanāḥ
-> yānty añjasācyuta-padam
+> śāntāḥ sama-dṛśaḥ śuddhāḥ\
+> sarva-bhūtānurañjanāḥ\
+> yānty añjasācyuta-padam\
 > acyuta-priya-bāndhavāḥ
 
 *śāntāḥ*—pacíficas; *sama-dṛśaḥ*—equilibradas; *śuddhāḥ*—limpias, puras; *sarva*—todas; *bhūta*—entidades vivientes; *anurañjanāḥ*—complacer; *yānti*—van; *añjasā*—fácilmente; *acyuta*—del Señor; *padam*—a la morada; *acyuta-priya*—de los devotos del Señor; *bāndhavāḥ*—amigos.

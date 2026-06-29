@@ -1,9 +1,9 @@
 ### CC Madhya 24.230
 
-> এক দিন শ্রীনারদ দেখি’ নারায়ণ ।
+> এক দিন শ্রীনারদ দেখি’ নারায়ণ ।\
 > ত্রিবেণী-স্নানে প্রয়াগ করিলা গমন ॥২৩০॥
 
-> eka dina śrī-nārada dekhi' nārāyaṇa
+> eka dina śrī-nārada dekhi' nārāyaṇa\
 > triveṇī-snāne prayāga karilā gamana
 
 *eka dina*—one day; *śrī-nārada*—the great saintly person Nārada; *dekhi' nārāyaṇa*—after visiting Lord Nārāyaṇa; *tri-veṇī-snāne*—to bathe at the confluence of the Ganges, Yamunā and Sarasvatī rivers; *prayāga*—to Prayāga; *karilā gamana*—went.

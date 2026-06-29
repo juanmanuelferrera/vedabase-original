@@ -1,11 +1,11 @@
 ### SB 3.8.29
 
-> परार्ध्यकेयूरमणिप्रवेक पर्यस्तदोर्दण्डसहस्रशाखम् ।
+> परार्ध्यकेयूरमणिप्रवेक पर्यस्तदोर्दण्डसहस्रशाखम् ।\
 > अव्यक्तमूलं भुवनाङ्घ्रिपेन्द्रमहीन्द्रभोगैरधिवीतवल्शम् ॥२९॥
 
-> parārdhya-keyūra-maṇi-praveka-
-> paryasta-dordaṇḍa-sahasra-śākham
-> avyakta-mūlaṁ bhuvanāṅghripendram
+> parārdhya-keyūra-maṇi-praveka-\
+> paryasta-dordaṇḍa-sahasra-śākham\
+> avyakta-mūlaṁ bhuvanāṅghripendram\
 > ahīndra-bhogair adhivīta-valśam
 
 *parārdhya*—very valuable; *keyūra*—ornaments; *maṇi-praveka*—highly valuable jewels; *paryasta*—disseminating; *dordaṇḍa*—arms; *sahasra-śākham*—with thousands of branches; *avyakta-mūlam*—self-situated; *bhuvana*—universal; *aṅghripa*—trees; *indram*—the Lord; *ahi-indra*—Anantadeva; *bhogaiḥ*—by hoods; *adhivīta*—surrounded; *valśam*—shoulders.

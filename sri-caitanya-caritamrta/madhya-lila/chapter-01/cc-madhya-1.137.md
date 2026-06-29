@@ -1,9 +1,9 @@
 ### CC Madhya 1.137
 
-> সার্বভৌম-ঘরে প্রভুর ভিক্ষা-পরিপাটী ।
+> সার্বভৌম-ঘরে প্রভুর ভিক্ষা-পরিপাটী ।\
 > ষাঠীর মাতা কহে, যাতে রাণ্ডী হউক্ ষাঠী ॥১৩৭॥
 
-> sārvabhauma-ghare prabhura bhikṣā-paripāṭī
+> sārvabhauma-ghare prabhura bhikṣā-paripāṭī\
 > ṣāṭhīra mātā kahe, yāte rāṇḍī ha-uk ṣāṭhī
 
 *sārvabhauma-ghare*—at the house of Sārvabhauma Bhaṭṭācārya; *prabhura*—of the Lord; *bhikṣā*—eating; *paripāṭī*—sumptuously; *ṣāṭhīra mātā*—the mother of Ṣāṭhī, who was the daughter of Sārvabhauma Bhaṭṭācārya; *kahe*—says; *yāte*—by which; *rāṇḍī*—widow; *ha-uk*—let her become; *ṣāṭhī*—Ṣāṭhī, the daughter.

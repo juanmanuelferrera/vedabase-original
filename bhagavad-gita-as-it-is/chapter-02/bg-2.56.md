@@ -1,11 +1,11 @@
 ### Bg 2.56
 
-> दुःखेष्वनुद्विग्नमनाः सुखेषु विगतस्पृहः ।
+> दुःखेष्वनुद्विग्नमनाः सुखेषु विगतस्पृहः ।\
 > वीतरागभयक्रोधः स्थितधीर्मुनिरुच्यते ॥५६॥
 
-> duḥkheṣv anudvigna-manāḥ
-> sukheṣu vigata-spṛhaḥ
-> vīta-rāga-bhaya-krodhaḥ
+> duḥkheṣv anudvigna-manāḥ\
+> sukheṣu vigata-spṛhaḥ\
+> vīta-rāga-bhaya-krodhaḥ\
 > sthita-dhīr munir ucyate
 
 *duḥkheṣu*—in the threefold miseries; *anudvigna-manāḥ*—without being agitated in mind; *sukheṣu*—in happiness; *vigata-spṛhaḥ*—without being too interested; *vīta*—free from; *rāga*—attachment; *bhaya*—fear; *krodhaḥ*—anger; *sthita-dhīḥ*—one who is steady; *muniḥ*—sage; *ucyate*—is called.

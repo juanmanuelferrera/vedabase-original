@@ -1,11 +1,11 @@
 ### SB 6.4.14
 
-> यः समुत्पतितं देह आकाशान्मन्युमुल्बणम
+> यः समुत्पतितं देह आकाशान्मन्युमुल्बणम\
 > आत्मजिज्ञआसया यच्छेत्स गुणानतिवर्तते ॥१४॥
 
-> yaḥ samutpatitaṁ deha
-> ākāśān manyum ulbaṇam
-> ātma-jijñāsayā yacchet
+> yaḥ samutpatitaṁ deha\
+> ākāśān manyum ulbaṇam\
+> ātma-jijñāsayā yacchet\
 > sa guṇān ativartate
 
 *yaḥ*—todo aquel que; *samutpatitam*—que despierta repentinamente; *dehe*—en el cuerpo; *ākāśāt*—del cielo; *manyum*—ira; *ulbaṇam*—poderosa; *ātma-jijñāsayā*—por investigar acerca de la iluminación espiritual o autorrealización; *yacchet*—subyuga; *saḥ*—esa persona; *guṇān*—las modalidades de la naturaleza material; *ativartate*—trasciende.

@@ -1,12 +1,12 @@
 ### CC Madhya 8.51-52
 
-> rāya kahe, āilā yadi pāmara śodhite
+> rāya kahe, āilā yadi pāmara śodhite\
 > darśana-mātre śuddha nahe mora duṣṭa citte
 
-> rāya kahe, āilā yadi pāmara śodhite
+> rāya kahe, āilā yadi pāmara śodhite\
 > darśana-mātre śuddha nahe mora duṣṭa citte
 
-> dina pāṅca-sāta rahi' karaha mārjana
+> dina pāṅca-sāta rahi' karaha mārjana\
 > tabe śuddha haya mora ei duṣṭa mana
 
 *rāya kahe*—Rāmānanda Rāya contestó; *āilā*—Tú has venido; *yadi*—aunque; *pāmara*—a un alma caída; *śodhite*—para corregir; *darśana-mātre*—por el simple hecho de verte; *śuddha nahe*—no purificada; *mora*—mía; *duṣṭa*—contaminada; *citte*—conciencia; *dina*—días; *pāṅca-sāta*—cinco o siete; *rahi’*—quedándote; *karaha*—por favor, haz; *mārjana*—limpiar; *tabe*—entonces; *śuddha*—pura; *haya*—es; *mora*—mía; *ei*—esta; *duṣṭa*—contaminada; *mana*—mente.

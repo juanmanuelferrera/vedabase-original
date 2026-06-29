@@ -1,9 +1,9 @@
 ### CC Madhya 12.139
 
-> চারিদিকে ভক্ত-অঙ্গ কৈল প্রক্ষালন ।
+> চারিদিকে ভক্ত-অঙ্গ কৈল প্রক্ষালন ।\
 > শ্রাবণের মেঘ যেন করে বরিষণ ॥১৩৯॥
 
-> cāri-dike bhakta-aṅga kaila prakṣālana
+> cāri-dike bhakta-aṅga kaila prakṣālana\
 > śrāvaṇera megha yena kare variṣaṇa
 
 *cāri-dike*—por todos lados; *bhakta-aṅga*—los cuerpos de los devotos; *kaila*—hizo; *prakṣālana*—lavar; *śrāvaṇera megha*—como una nube en el mes de Śrāvaṇa (julio-agosto); *yena*—como si; *kare variṣaṇa*—vertiera lluvia.

@@ -1,11 +1,11 @@
 ### Bg 9.28
 
-> शुभाशुभफलैरेवं मोक्ष्यसे कर्मबन्धनैः ।
+> शुभाशुभफलैरेवं मोक्ष्यसे कर्मबन्धनैः ।\
 > संन्यासयोगयुक्तात्मा विमुक्तो मामुपैष्यसि ॥२८॥
 
-> śubhāśubha-phalair evaṁ
-> mokṣyase karma-bandhanaiḥ
-> sannyāsa-yoga-yuktātmā
+> śubhāśubha-phalair evaṁ\
+> mokṣyase karma-bandhanaiḥ\
+> sannyāsa-yoga-yuktātmā\
 > vimukto mām upaiṣyasi
 
 *śubha*—bien; *aśubha*—mal; *phalaiḥ*—resultados; *evam*—así; *mokṣyase*—libre; *karma*—acción; *bandhanaiḥ*—cautiverio; *sannyāsa*—de la renunciación; *yoga*—el yoga; *yukta-ātmā*—teniendo la mente puesta firmemente en; *vimuktaḥ*—liberado; *mām*—a Mí; *upaiṣyasi*—llegarás.

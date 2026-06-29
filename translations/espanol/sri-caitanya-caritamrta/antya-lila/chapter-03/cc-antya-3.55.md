@@ -1,9 +1,9 @@
 ### CC Antya 3.55
 
-> যদ্যপি অন্য সঙ্কেতে অন্য হয় নামাভাস ।
+> যদ্যপি অন্য সঙ্কেতে অন্য হয় নামাভাস ।\
 > তথাপি নামের তেজ না হয় বিনাশ ॥৫৫॥
 
-> yadyapi anya saṅkete anya haya nāmābhāsa
+> yadyapi anya saṅkete anya haya nāmābhāsa\
 > tathāpi nāmera teja nā haya vināśa
 
 *yadyapi*—aunque; *anya*—otro; *saṅkete*—por indicación; *anya*—ese otro; *haya*—es; *nāma-ābhāsa*—casi igual al santo nombre; *tathāpi*—aun así; *nāmera teja*—el poder trascendental del santo nombre; *nā haya vināśa*—no se destruye.

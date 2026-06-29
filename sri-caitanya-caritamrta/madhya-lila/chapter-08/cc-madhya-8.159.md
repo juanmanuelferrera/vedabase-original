@@ -1,9 +1,9 @@
 ### CC Madhya 8.159
 
-> হ্লাদিনীর সার অংশ, তার ‘প্রেম’ নাম ।
+> হ্লাদিনীর সার অংশ, তার ‘প্রেম’ নাম ।\
 > আনন্দচিন্ময়রস প্রেমের আখ্যান ॥১৫৯॥
 
-> hlādinīra sāra aṁśa, tāra 'prema' nāma
+> hlādinīra sāra aṁśa, tāra 'prema' nāma\
 > ānanda-cinmaya-rasa premera ākhyāna
 
 *hlādinīra*—of this pleasure potency; *sāra*—the essential; *aṁśa*—part; *tāra*—its; *prema*—love of God; *nāma*—name; *ānanda*—full of pleasure; *cit-maya-rasa*—the platform of spiritual mellows; *premera*—of love of Godhead; *ākhyāna*—the explanation.

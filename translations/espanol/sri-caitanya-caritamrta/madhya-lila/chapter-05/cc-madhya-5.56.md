@@ -1,9 +1,9 @@
 ### CC Madhya 5.56
 
-> তবে সেই বিপ্রেরে পুছিল সর্বজন ।
+> তবে সেই বিপ্রেরে পুছিল সর্বজন ।\
 > ‘কন্যা কেনে না দেহ, যদি দিয়াছ বচন ।।’ ॥ ৫৬ ॥
 
-> tabe sei viprere puchila sarva-jana
+> tabe sei viprere puchila sarva-jana\
 > 'kanyā kene nā deha, yadi diyācha vacana'
 
 *tabe*—entonces; *sei*—ese; *viprere*—brāhmaṇa; *puchila*—preguntaron; *sarva-jana*—toda la gente; *kanyā*—hija; *kene*—por qué; *nā deha*—no entregas en caridad; *yadi*—si; *diyācha*—has dado; *vacana*—palabra de honor.

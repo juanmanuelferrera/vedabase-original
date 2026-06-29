@@ -1,9 +1,9 @@
 ### CC Madhya 1.27
 
-> চৈতন্য গোসাঞি যাঁরে বলে ‘বড় ভাই’ ।
+> চৈতন্য গোসাঞি যাঁরে বলে ‘বড় ভাই’ ।\
 > তেঁহো কহে, মোর প্রভু — চৈতন্য-গোসাঞি ॥২৭॥
 
-> caitanya-gosāñi yāṅre bale 'baḍa bhāi'
+> caitanya-gosāñi yāṅre bale 'baḍa bhāi'\
 > teṅho kahe, mora prabhu—caitanya-gosāñi
 
 *caitanya-gosāñi*—Lord Śrī Caitanya Mahāprabhu; *yāṅre*—unto whom; *bale*—says; *baḍa bhāi*—elder brother; *teṅho*—He; *kahe*—says; *moraprabhu*—My Lord; *caitanya-gosāñi*—the supreme master, Lord Caitanya Mahāprabhu.

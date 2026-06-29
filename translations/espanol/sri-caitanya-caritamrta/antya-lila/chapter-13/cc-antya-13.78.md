@@ -1,9 +1,9 @@
 ### CC Antya 13.78
 
-> একদিন প্রভু যমেশ্বর-টোটা যাইতে ।
+> একদিন প্রভু যমেশ্বর-টোটা যাইতে ।\
 > সেইকালে দেবদাসী লাগিলা গাইতে ॥৭৮॥
 
-> eka-dina prabhu yameśvara-ṭoṭā yāite
+> eka-dina prabhu yameśvara-ṭoṭā yāite\
 > sei-kāle deva-dāsī lāgilā gāite
 
 *eka-dina*—un día; *prabhu*—Śrī Caitanya Mahāprabhu; *yameśvara-ṭoṭā*—al templo de Yameśvara-ṭoṭā; *yāite*—cuando iba; *sei-kāle*—en ese momento; *deva-dāsī*—una cantante del templo de Jagannātha; *lāgilā*—comenzó; *gāite*—a cantar.

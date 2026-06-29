@@ -1,9 +1,9 @@
 ### CC Madhya 14.28
 
-> মনোহরা-লাড়ু আদি শতেক প্রকার ।
+> মনোহরা-লাড়ু আদি শতেক প্রকার ।\
 > অমৃতগুটিকা-আদি, ক্ষীরসা অপার ॥২৮॥
 
-> manoharā-lāḍu ādi śateka prakāra
+> manoharā-lāḍu ādi śateka prakāra\
 > amṛta-guṭikā-ādi, kṣīrasā apāra
 
 *manoharā-lāḍu*—a kind of *sandeśa*; *ādi*—and others; *śateka prakāra*—hundreds of varieties; *amṛta-guṭikā*—round sweetmeats; *ādi*—and others; *kṣīrasā*—condensed milk; *apāra*—of various qualities.

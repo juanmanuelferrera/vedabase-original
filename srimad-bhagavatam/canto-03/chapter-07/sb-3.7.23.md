@@ -1,11 +1,11 @@
 ### SB 3.7.23
 
-> यस्मिन्दशविधः प्राणः सेन्द्रियार्थेन्द्रियस्त्रिवृत् ।
+> यस्मिन्दशविधः प्राणः सेन्द्रियार्थेन्द्रियस्त्रिवृत् ।\
 > त्वयेरितो यतो वर्णास्तद्विभूतीर्वदस्व नः ॥२३॥
 
-> yasmin daśa-vidhaḥ prāṇaḥ
-> sendriyārthendriyas tri-vṛt
-> tvayerito yato varṇās
+> yasmin daśa-vidhaḥ prāṇaḥ\
+> sendriyārthendriyas tri-vṛt\
+> tvayerito yato varṇās\
 > tad-vibhūtīr vadasva naḥ
 
 *yasmin*—in which; *daśa-vidhaḥ*—ten kinds of; *prāṇaḥ*—air of life; *sa*—with; *indriya*—senses; *artha*—interest; *indriyaḥ*—of the senses; *tri-vṛt*—three kinds of life vigor; *tvayā*—by you; *īritaḥ*—explained; *yataḥ*—wherefrom; *varṇāḥ*—four specific divisions; *tat-vibhūtīḥ*—prowess; *vadasva*—please describe; *naḥ*—unto me.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.173
 
-> যবনে তোমার ঠাঞি করয়ে লাগানি ।
+> যবনে তোমার ঠাঞি করয়ে লাগানি ।\
 > তাঁর হিংসায় লাভ নাহি, হয় আর হানি ॥১৭৩॥
 
-> yavane tomāra ṭhāñi karaye lāgāni
+> yavane tomāra ṭhāñi karaye lāgāni\
 > tāṅra hiṁsāya lābha nāhi, haya āra hāni
 
 *yavane*—your Muslim servant; *tomāra*—your; *ṭhāñi*—place; *karaye*—does; *lāgāni*—instigation; *tāṅra*—of Him; *hiṁsāya*—to become jealous; *lābha nāhi*—there is no profit; *haya*—there is; *āra*—rather; *hāni*—loss.

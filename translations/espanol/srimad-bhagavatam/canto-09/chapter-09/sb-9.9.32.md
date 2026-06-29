@@ -1,11 +1,11 @@
 ### SB 9.9.32
 
-> यद्ययं क्रियते भक्ष्यस्तर्हि मां खाद पूर्वतः
+> यद्ययं क्रियते भक्ष्यस्तर्हि मां खाद पूर्वतः\
 > न जीविष्ये विना येन क्षणं च मृतकं यथा ॥३२॥
 
-> yady ayaṁ kriyate bhakṣyas
-> tarhi māṁ khāda pūrvataḥ
-> na jīviṣye vinā yena
+> yady ayaṁ kriyate bhakṣyas\
+> tarhi māṁ khāda pūrvataḥ\
+> na jīviṣye vinā yena\
 > kṣaṇaṁ ca mṛtakaṁ yathā
 
 *yadi*—si; *ayam*—este *brāhmaṇa*; *kriyate*—es considerado; *bhakṣyaḥ*—comestible; *tarhi*—entonces; *mām*—a mí; *khāda*—come; *pūrvataḥ*—antes; *na*—no; *jīviṣye*—viviré; *vinā*—sin; *yena*—quien (mi esposo); *kṣaṇam ca*—ni por un momento; *mṛtakam*—un cadáver; *yathā*—como.

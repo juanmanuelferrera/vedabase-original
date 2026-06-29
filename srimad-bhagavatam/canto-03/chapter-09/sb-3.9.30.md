@@ -1,11 +1,11 @@
 ### SB 3.9.30
 
-> भूयस्त्वं तप आतिष्ठ विद्यां चैव मदाश्रयाम् ।
+> भूयस्त्वं तप आतिष्ठ विद्यां चैव मदाश्रयाम् ।\
 > ताभ्यामन्तर्हृदि ब्रह्मन्लोकान्द्रक्ष्यस्यपावृतान् ॥३०॥
 
-> bhūyas tvaṁ tapa ātiṣṭha
-> vidyāṁ caiva mad-āśrayām
-> tābhyām antar-hṛdi brahman
+> bhūyas tvaṁ tapa ātiṣṭha\
+> vidyāṁ caiva mad-āśrayām\
+> tābhyām antar-hṛdi brahman\
 > lokān drakṣyasy apāvṛtān
 
 *bhūyaḥ*—again; *tvam*—yourself; *tapaḥ*—penance; *ātiṣṭha*—be situated; *vidyām*—in the knowledge; *ca*—also; *eva*—certainly; *mat*—My; *āśrayām*—under the protection; *tābhyām*—by those qualifications; *antaḥ*—within; *hṛdi*—in the heart; *brahman*—O *brāhmaṇa*; *lokān*—all the worlds; *drakṣyasi*—you will see; *apāvṛtān*—all disclosed.

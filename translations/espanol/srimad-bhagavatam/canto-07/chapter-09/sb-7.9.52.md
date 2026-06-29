@@ -1,13 +1,13 @@
 ### SB 7.9.52
 
-> श्रीभगवानुवाच
-> प्रह्राद भद्र भद्रं ते प्रीतोऽहं तेऽसुरोत्तम
+> श्रीभगवानुवाच\
+> प्रह्राद भद्र भद्रं ते प्रीतोऽहं तेऽसुरोत्तम\
 > वरं वृणीष्वाभिमतं कामपूरोऽस्म्यहं नृणाम ॥५२॥
 
-> śrī-bhagavān uvāca
-> prahrāda bhadra bhadraṁ te
-> prīto 'haṁ te 'surottama
-> varaṁ vṛṇīṣvābhimataṁ
+> śrī-bhagavān uvāca\
+> prahrāda bhadra bhadraṁ te\
+> prīto 'haṁ te 'surottama\
+> varaṁ vṛṇīṣvābhimataṁ\
 > kāma-pūro 'smy ahaṁ nṛṇām
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *prahrāda*—¡oh, mi querido Prahlāda!; *bhadra*—eres tan noble; *bhadram*—toda buena fortuna; *te*—a ti; *prītaḥ*—complacido; *aham*—Yo (estoy); *te*—a ti; *asura-uttama*—¡oh, tú, que eres el mejor devoto en la familia de los *asuras* (ateos)!; *varam*—bendición; *vṛṇīṣva*—simplemente pide (a Mí); *abhimatam*—deseada; *kāma-pūraḥ*—que satisfaces el deseo de todos; *asmi*—soy; *aham*—Yo; *nṛṇām*—de todos los hombres.

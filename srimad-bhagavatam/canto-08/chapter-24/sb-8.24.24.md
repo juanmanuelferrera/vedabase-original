@@ -1,11 +1,11 @@
 ### SB 8.24.24
 
-> क्षिप्यमाणस्तमाहेदमिह मां मकरादयः
+> क्षिप्यमाणस्तमाहेदमिह मां मकरादयः\
 > अदन्त्यतिबला वीर मां नेहोत्स्रष्टुमर्हसि ॥२४॥
 
-> kṣipyamāṇas tam āhedam
-> iha māṁ makarādayaḥ
-> adanty atibalā vīra
+> kṣipyamāṇas tam āhedam\
+> iha māṁ makarādayaḥ\
+> adanty atibalā vīra\
 > māṁ nehotsraṣṭum arhasi
 
 *kṣipyamāṇaḥ*—being thrown in the ocean; *tam*—unto the King; *āha*—the fish said; *idam*—this; *iha*—in this place; *mām*—Me; *makara-ādayaḥ*—dangerous aquatics like sharks; *adanti*—will eat; *ati-balāḥ*—because of being too powerful; *vīra*—O heroic King; *mām*—Me; *na*—not; *iha*—in this water; *utsraṣṭum*—to throw; *arhasi*—you deserve.

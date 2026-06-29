@@ -1,11 +1,11 @@
 ### SB 1.17.25
 
-> इदानीं धर्म पादस्ते सत्यं निर्वर्तयेद्यतः ।
+> इदानीं धर्म पादस्ते सत्यं निर्वर्तयेद्यतः ।\
 > तं जिघृक्षत्यधर्मोऽयमनृतेनैधितः कलिः ॥२५॥
 
-> idānīṁ dharma pādas te
-> satyaṁ nirvartayed yataḥ
-> taṁ jighṛkṣaty adharmo 'yam
+> idānīṁ dharma pādas te\
+> satyaṁ nirvartayed yataḥ\
+> taṁ jighṛkṣaty adharmo 'yam\
 > anṛtenaidhitaḥ kaliḥ
 
 *idānīm*—en los actuales momentos; *dharma*—¡oh, personalidad de la religión!; *pādaḥ*—pata; *te*—de ti; *satyam*—veracidad; *nirvartayet*—cojeando de una forma u otra; *yataḥ*—por lo cual; *tam*—eso; *jighṛkṣati*—tratando de destruir; *adharmaḥ*—la personalidad de la irreligión; *ayam*—esto; *anṛtena*—mediante el engaño; *edhitaḥ*—floreciendo; *kaliḥ*—la personificación de la riña.

@@ -1,11 +1,11 @@
 ### SB 3.14.6
 
-> ययोत्तानपदः पुत्रो मुनिना गीतयार्भकः ।
+> ययोत्तानपदः पुत्रो मुनिना गीतयार्भकः ।\
 > मृत्योः कृत्वैव मूर्ध्न्यङ्घ्रिमारुरोह हरेः पदम् ॥६॥
 
-> yayottānapadaḥ putro
-> muninā gītayārbhakaḥ
-> mṛtyoḥ kṛtvaiva mūrdhny aṅghrim
+> yayottānapadaḥ putro\
+> muninā gītayārbhakaḥ\
+> mṛtyoḥ kṛtvaiva mūrdhny aṅghrim\
 > āruroha hareḥ padam
 
 *yayā*—by which; *uttānapadaḥ*—of King Uttānapāda; *putraḥ*—son; *muninā*—by the sage; *gītayā*—being sung; *arbhakaḥ*—a child; *mṛtyoḥ*—of death; *kṛtvā*—placing; *eva*—certainly; *mūrdhni*—on the head; *aṅghrim*—feet; *āruroha*—ascended; *hareḥ*—of the Personality of Godhead; *padam*—to the abode.

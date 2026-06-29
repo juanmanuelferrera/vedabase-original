@@ -1,13 +1,13 @@
 ### SB 4.8.68
 
-> नारद उवाच
-> मा मा शुचः स्वतनयं देवगुप्तं विशाम्पते ।
+> नारद उवाच\
+> मा मा शुचः स्वतनयं देवगुप्तं विशाम्पते ।\
 > तत्प्रभावमविज्ञाय प्रावृङ्क्ते यद्यशो जगत् ॥६८॥
 
-> nārada uvāca
-> mā mā śucaḥ sva-tanayaṁ
-> deva-guptaṁ viśāmpate
-> tat-prabhāvam avijñāya
+> nārada uvāca\
+> mā mā śucaḥ sva-tanayaṁ\
+> deva-guptaṁ viśāmpate\
+> tat-prabhāvam avijñāya\
 > prāvṛṅkte yad-yaśo jagat
 
 *nāradaḥ uvāca*—the great sage Nārada said; *mā*—do not; *mā*—do not; *śucaḥ*—be aggrieved; *sva-tanayam*—of your own son; *deva-guptam*—he is well protected by the Lord; *viśām-pate*—O master of human society; *tat*—his; *prabhāvam*—influence; *avijñāya*—without knowing; *prāvṛṅkte*—widespread; *yat*—whose; *yaśaḥ*—reputation; *jagat*—all over the world.

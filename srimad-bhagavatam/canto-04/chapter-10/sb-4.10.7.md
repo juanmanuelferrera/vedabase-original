@@ -1,11 +1,11 @@
 ### SB 4.10.7
 
-> ततो निष्क्रम्य बलिन उपदेवमहाभटाः ।
+> ततो निष्क्रम्य बलिन उपदेवमहाभटाः ।\
 > असहन्तस्तन्निनादमभिपेतुरुदायुधाः ॥७॥
 
-> tato niṣkramya balina
-> upadeva-mahā-bhaṭāḥ
-> asahantas tan-ninādam
+> tato niṣkramya balina\
+> upadeva-mahā-bhaṭāḥ\
+> asahantas tan-ninādam\
 > abhipetur udāyudhāḥ
 
 *tataḥ*—thereafter; *niṣkramya*—coming out; *balinaḥ*—very powerful; *upadeva*—of Kuvera; *mahā-bhaṭāḥ*—great soldiers; *asahantaḥ*—unable to tolerate; *tat*—of the conchshell; *ninādam*—sound; *abhipetuḥ*—attacked; *udāyudhāḥ*—equipped with various weapons.

@@ -1,11 +1,11 @@
 ### Bg 6.15
 
-> युञ्जन्नेवं सदात्मानं योगी नियतमानसः ।
+> युञ्जन्नेवं सदात्मानं योगी नियतमानसः ।\
 > शान्तिं निर्वाणपरमां मत्संस्थामधिगच्छति ॥१५॥
 
-> yuñjann evaṁ sadātmānaṁ
-> yogī niyata-mānasaḥ
-> śāntiṁ nirvāṇa-paramāṁ
+> yuñjann evaṁ sadātmānaṁ\
+> yogī niyata-mānasaḥ\
+> śāntiṁ nirvāṇa-paramāṁ\
 > mat-saṁsthām adhigacchati
 
 *yuñjan*—practicing like this; *evam*—as mentioned above; *sadā*—constantly; *ātmānam*—body, mind and soul; *yogī*—the mystic transcendentalist; *niyata-mānasaḥ*—regulated mind; *śāntim*—peace; *nirvāṇa-paramām*—cessation of material existence; *mat-saṁsthām*—in the spiritual sky (the kingdom of God); *adhigacchati*—does attain.

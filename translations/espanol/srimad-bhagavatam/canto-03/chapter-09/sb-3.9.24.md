@@ -1,13 +1,13 @@
 ### SB 3.9.24
 
-> नाभिह्रदादिह सतोऽम्भसि यस्य पुंसो
-> विज्ञानशक्तिरहमासमनन्तशक्तेः ।
-> रूपं विचित्रमिदमस्य विवृण्वतो मे
+> नाभिह्रदादिह सतोऽम्भसि यस्य पुंसो\
+> विज्ञानशक्तिरहमासमनन्तशक्तेः ।\
+> रूपं विचित्रमिदमस्य विवृण्वतो मे\
 > मा रीरिषीष्ट निगमस्य गिरां विसर्गः ॥२४॥
 
-> nābhi-hradād iha sato 'mbhasi yasya puṁso
-> vijñāna-śaktir aham āsam ananta-śakteḥ
-> rūpaṁ vicitram idam asya vivṛṇvato me
+> nābhi-hradād iha sato 'mbhasi yasya puṁso\
+> vijñāna-śaktir aham āsam ananta-śakteḥ\
+> rūpaṁ vicitram idam asya vivṛṇvato me\
 > mā rīriṣīṣṭa nigamasya girāṁ visargaḥ
 
 *nābhi-hradāt*—del lago umbilical; *iha*—en este milenio; *sataḥ*—yaciendo; *ambhasi*—en el agua; *yasya*—aquel cuyo; *puṁsaḥ*—de la Personalidad de Dios; *vijñāna*—del universo total; *śaktiḥ*—energía; *aham*—yo; *āsam*—nací; *ananta*—ilimitado; *śakteḥ*—del poderoso; *rūpam*—forma; *vicitram*—variada; *idam*—esta; *asya*—Suya; *vivṛṇvataḥ*—manifestando; *me*—a mí; *mā*—que no; *rīriṣīṣṭa*—desaparezca; *nigamasya*—de los *Vedas*; *girām*—de los sonidos; *visargaḥ*—vibración.

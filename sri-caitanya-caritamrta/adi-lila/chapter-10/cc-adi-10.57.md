@@ -1,9 +1,9 @@
 ### CC Adi 10.57
 
-> ‘সাক্ষাতে’ সকল ভক্ত দেখে নির্বিশেষ ।
+> ‘সাক্ষাতে’ সকল ভক্ত দেখে নির্বিশেষ ।\
 > নকুল ব্রহ্মচারি-দেহে প্রভুর ‘আবেশ’ ॥৫৭॥
 
-> 'sākṣāte' sakala bhakta dekhe nirviśeṣa
+> 'sākṣāte' sakala bhakta dekhe nirviśeṣa\
 > nakula brahmacāri-dehe prabhura 'āveśa'
 
 *sākṣāte*—directly; *sakala*—all; *bhakta*—devotees; *dekhe*—see; *nirviśeṣa*—nothing peculiar but as He is; *nakulabrahmacārī*—of the name Nakula Brahmacārī; *dehe*—in the body; *prabhura*—the Lord's; *āveśa*—symptoms of power.

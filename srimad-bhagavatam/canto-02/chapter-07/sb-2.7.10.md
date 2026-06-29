@@ -1,13 +1,13 @@
 ### SB 2.7.10
 
-> नाभेरसावृषभ आस सुदेविसूनुर्
-> यो वै चचार समदृग्जडयोगचर्याम् ।
-> यत्पारमहंस्यमृषयः पदमामनन्ति
+> नाभेरसावृषभ आस सुदेविसूनुर्\
+> यो वै चचार समदृग्जडयोगचर्याम् ।\
+> यत्पारमहंस्यमृषयः पदमामनन्ति\
 > स्वस्थः प्रशान्तकरणः परिमुक्तसङ्गः ॥१०॥
 
-> nābher asāv ṛṣabha āsa sudevi-sūnur
-> yo vai cacāra sama-dṛg jaḍa-yoga-caryām
-> yat pāramahaṁsyam ṛṣayaḥ padam āmananti
+> nābher asāv ṛṣabha āsa sudevi-sūnur\
+> yo vai cacāra sama-dṛg jaḍa-yoga-caryām\
+> yat pāramahaṁsyam ṛṣayaḥ padam āmananti\
 > svasthaḥ praśānta-karaṇaḥ parimukta-saṅgaḥ
 
 *nābheḥ*—by Mahārāja Nābhi; *asau*—the Personality of Godhead; *ṛṣabhaḥ*—Ṛṣabha; *āsa*—became; *sudevi*—Sudevī; *sūnuḥ*—the son of; *yaḥ*—who; *vai*—certainly; *cacāra*—performed; *sama-dṛk*—equibalanced; *jaḍa*—material; *yoga-caryām*—performance of *yoga*; *yat*—which; *pāramahaṁsyam*—the highest stage of perfection; *ṛṣayaḥ*—the learned sages; *padam*—situation; *āmananti*—do accept; *svasthaḥ*—self-reposed; *praśānta*—suspended; *karaṇaḥ*—the material senses; *parimukta*—perfectly liberated; *saṅgaḥ*—material contamination.

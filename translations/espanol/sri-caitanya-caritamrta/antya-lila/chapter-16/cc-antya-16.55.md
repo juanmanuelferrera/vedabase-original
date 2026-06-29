@@ -1,9 +1,9 @@
 ### CC Antya 16.55
 
-> বহির্দ্বারে আছে কালিদাস প্রত্যাশা করিয়া ।
+> বহির্দ্বারে আছে কালিদাস প্রত্যাশা করিয়া ।\
 > গোবিন্দেরে ঠারে প্রভু কহেন জানিয়া ॥৫৫॥
 
-> bahir-dvāre āche kālidāsa pratyāśā kariyā
+> bahir-dvāre āche kālidāsa pratyāśā kariyā\
 > govindere ṭhāre prabhu kahena jāniyā
 
 *bahiḥ-dvāre*—fuera de la puerta; *āche*—estaba; *kālidāsa*—Kālidāsa; *pratyāśā kariyā*—con la esperanza; *govindere*—a Govinda; *ṭhāre*—mediante señas; *prabhu*—Śrī Caitanya Mahāprabhu; *kahena*—habla; *jāniyā*—sabiendo.

@@ -1,11 +1,11 @@
 ### CC Madhya 8.81
 
-> তাসামাবিরভূচ্ছৌরিঃ স্ময়মানমুখাম্বুজঃ ৷
+> তাসামাবিরভূচ্ছৌরিঃ স্ময়মানমুখাম্বুজঃ ৷\
 > পীতাম্বরধরঃ স্রগ্বী সাক্ষান্মন্মথমন্মথঃ ৷৷ ৮১ ৷৷ ॥৮১॥
 
-> tāsām āvirabhūc chauriḥ
-> smayamāna-mukhāmbujaḥ
-> pītāmbara-dharaḥ sragvī
+> tāsām āvirabhūc chauriḥ\
+> smayamāna-mukhāmbujaḥ\
+> pītāmbara-dharaḥ sragvī\
 > sākṣān manmatha-manmathaḥ
 
 *tāsām*—entre ellas; *āvirabhūt*—apareció; *śauriḥ*—el Señor Kṛṣṇa; *smayamāna*—sonriente; *mukha-ambujaḥ*—con un rostro como una flor de loto; *pīta-ambara-dharaḥ*—vestido con ropas amarillas; *sragvī*—engalanado con una guirnalda de flores; *sākṣāt*—directamente; *manmatha*—de Cupido; *manmathaḥ*—el cautivador.

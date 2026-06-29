@@ -1,13 +1,13 @@
 ### SB 3.15.18
 
-> पारावतान्यभृतसारसचक्रवाक
-> दात्यूहहंसशुकतित्तिरिबर्हिणां यः ।
-> कोलाहलो विरमतेऽचिरमात्रमुच्चैर्
+> पारावतान्यभृतसारसचक्रवाक\
+> दात्यूहहंसशुकतित्तिरिबर्हिणां यः ।\
+> कोलाहलो विरमतेऽचिरमात्रमुच्चैर्\
 > भृङ्गाधिपे हरिकथामिव गायमाने ॥१८॥
 
-> pārāvatānyabhṛta-sārasa-cakravāka-
-> dātyūha-haṁsa-śuka-tittiri-barhiṇāṁ yaḥ
-> kolāhalo viramate 'cira-mātram uccair
+> pārāvatānyabhṛta-sārasa-cakravāka-\
+> dātyūha-haṁsa-śuka-tittiri-barhiṇāṁ yaḥ\
+> kolāhalo viramate 'cira-mātram uccair\
 > bhṛṅgādhipe hari-kathām iva gāyamāne
 
 *pārāvata*—paloma; *anyabhṛta*—cuco; *sārasa*—grulla; *cakravāka*—*cakravāka*; *dātyūha*—gallineta; *haṁsa*—cisne; *śuka*—papagayo; *tittiri*—perdiz; *barhiṇām*—del pavo real; *yaḥ*—cuyo; *kolāhalaḥ*—bullicio; *viramate*—detiene; *acira-mātram*—por un tiempo; *uccaiḥ*—en voz alta; *bhṛṅga-adhipe*—rey de las abejas; *hari-kathām*—las glorias del Señor; *iva*—como; *gāyamāne*—mientras canta.

@@ -1,11 +1,11 @@
 ### SB 6.4.20
 
-> तमबृंहितमालोक्य प्रजासर्गं प्रजापतिः
+> तमबृंहितमालोक्य प्रजासर्गं प्रजापतिः\
 > विन्ध्यपादानुपव्रज्य सोऽचरद्दुष्करं तपः ॥२०॥
 
-> tam abṛṁhitam ālokya
-> prajā-sargaṁ prajāpatiḥ
-> vindhya-pādān upavrajya
+> tam abṛṁhitam ālokya\
+> prajā-sargaṁ prajāpatiḥ\
+> vindhya-pādān upavrajya\
 > so 'carad duṣkaraṁ tapaḥ
 
 *tam*—eso; *abṛṁhitam*—no aumentar; *ālokya*—viendo; *prajā-sargam*—la creación de las entidades vivientes; *prajāpatiḥ*—Dakṣa, el progenitor de entidades vivientes; *vindhya-pādān*—las montañas próximas a la cordillera Vindhya; *upavrajya*—yendo a; *saḥ*—él; *acarat*—ejecutó; *duṣkaram*—muy difíciles; *tapaḥ*—austeridades.

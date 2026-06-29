@@ -1,9 +1,9 @@
 ### CC Madhya 20.261
 
-> ঈশ্বরের শক্ত্যে সৃষ্টি করয়ে প্রকৃতি ।
+> ঈশ্বরের শক্ত্যে সৃষ্টি করয়ে প্রকৃতি ।\
 > লৌহ যেন অগ্নিশক্ত্যে পায় দাহ-শক্তি ॥২৬১॥
 
-> īśvarera śaktye sṛṣṭi karaye prakṛti
+> īśvarera śaktye sṛṣṭi karaye prakṛti\
 > lauha yena agni-śaktye pāya dāha-śakti
 
 *īśvarera śaktye*—by the energy of the Supreme Personality of Godhead; *sṛṣṭi*—creation; *kara ye*—does; *prakṛti*—material energy; *lauha*—iron; *yena*—as; *agni-śaktye*—by the power of fire; *pāya*—gets; *dāha-śakti*—the power to burn.

@@ -1,11 +1,11 @@
 ### SB 6.16.47
 
-> नमस्तुभ्यं भगवते सकलजगत्स्थितिलयोदयेशाय
+> नमस्तुभ्यं भगवते सकलजगत्स्थितिलयोदयेशाय\
 > दुरवसितात्मगतये कुयोगिनां भिदा परमहंसाय ॥४७॥
 
-> namas tubhyaṁ bhagavate
-> sakala-jagat-sthiti-layodayeśāya
-> duravasitātma-gataye
+> namas tubhyaṁ bhagavate\
+> sakala-jagat-sthiti-layodayeśāya\
+> duravasitātma-gataye\
 > kuyogināṁ bhidā paramahaṁsāya
 
 *namaḥ*—toda reverencia; *tubhyam*—a Ti; *bhagavate*—Tu Señoría; *sakala*—toda; *jagat*—de la manifestación cósmica; *sthiti*—del sustento; *laya*—disolución; *udaya*—y creación; *īśāya*—al Señor Supremo; *duravasita*—imposible de entender; *ātma-gataye*—cuya propia posición; *ku-yoginām*—de aquellos que están apegados a los objetos de los sentidos; *bhidā*—por el erróneo concepto del separatismo; *parama-haṁsāya*—al supremo puro.

@@ -1,13 +1,13 @@
 ### SB 3.10.10
 
-> विदुर उवाच
-> यथात्थ बहुरूपस्य हरेरद्भुतकर्मणः ।
+> विदुर उवाच\
+> यथात्थ बहुरूपस्य हरेरद्भुतकर्मणः ।\
 > कालाख्यं लक्षणं ब्रह्मन्यथा वर्णय नः प्रभो ॥१०॥
 
-> vidura uvāca
-> yathāttha bahu-rūpasya
-> harer adbhuta-karmaṇaḥ
-> kālākhyaṁ lakṣaṇaṁ brahman
+> vidura uvāca\
+> yathāttha bahu-rūpasya\
+> harer adbhuta-karmaṇaḥ\
+> kālākhyaṁ lakṣaṇaṁ brahman\
 > yathā varṇaya naḥ prabho
 
 *viduraḥ uvāca*—Vidura dijo; *yathā*—como; *āttha*—tú has dicho; *bahu-rūpasya*—teniendo variedades de formas; *hareḥ*—del Señor; *adbhuta*—maravilloso; *karmaṇaḥ*—del actor; *kāla*—tiempo; *ākhyam*—de nombre; *lakṣaṇam*—señales; *brahman*—¡oh, erudito *brāhmaṇa*!; *yathā*—tal como es; *varṇaya*—por favor, describe; *naḥ*—a nosotros; *prabho*—¡oh, señor!.

@@ -1,11 +1,11 @@
 ### SB 1.14.16
 
-> वायुर्वाति खरस्पर्शो रजसा विसृजंस्तमः ।
+> वायुर्वाति खरस्पर्शो रजसा विसृजंस्तमः ।\
 > असृग्वर्षन्ति जलदा बीभत्समिव सर्वतः ॥१६॥
 
-> vāyur vāti khara-sparśo
-> rajasā visṛjaṁs tamaḥ
-> asṛg varṣanti jaladā
+> vāyur vāti khara-sparśo\
+> rajasā visṛjaṁs tamaḥ\
+> asṛg varṣanti jaladā\
 > bībhatsam iva sarvataḥ
 
 *vāyuḥ*—wind; *vāti*—blowing; *khara-sparśaḥ*—sharply; *rajasā*—by the dust; *visṛjan*—creating; *tamaḥ*—darkness; *asṛk*—blood; *varṣanti*—are raining; *jaladāḥ*—the clouds; *bībhatsam*—disastrous; *iva*—like; *sarvataḥ*—everywhere.

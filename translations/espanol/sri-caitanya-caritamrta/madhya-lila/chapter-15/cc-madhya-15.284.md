@@ -1,9 +1,9 @@
 ### CC Madhya 15.284
 
-> সার্বভৌম-গৃহে দাস-দাসী, যে কুক্কুর ।
+> সার্বভৌম-গৃহে দাস-দাসী, যে কুক্কুর ।\
 > সেহ মোর প্রিয়, অন্য জন রহু দূর ॥২৮৪॥
 
-> sārvabhauma-gṛhe dāsa-dāsī, ye kukkura
+> sārvabhauma-gṛhe dāsa-dāsī, ye kukkura\
 > seha mora priya, anya jana rahu dūra
 
 *sārvabhauma-gṛhe*—en la casa de Sārvabhauma Bhaṭṭācārya; *dāsa-dāsī*—siervos y siervas; *ye kukkura*—incluso un perro; *seha*—todos ellos; *mora*—para Mí; *priya*—muy queridos; *anya jana*—los demás; *rahu dūra*—qué decir de.

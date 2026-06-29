@@ -1,11 +1,11 @@
 ### SB 4.26.26
 
-> तन्मे प्रसीद सुहृदः कृतकिल्बिषस्य स्वैरं गतस्य मृगयां व्यसनातुरस्य ।
+> तन्मे प्रसीद सुहृदः कृतकिल्बिषस्य स्वैरं गतस्य मृगयां व्यसनातुरस्य ।\
 > का देवरं वशगतं कुसुमास्त्रवेग विस्रस्तपौंस्नमुशती न भजेत कृत्ये ॥२६॥
 
-> tan me prasīda suhṛdaḥ kṛta-kilbiṣasya
-> svairaṁ gatasya mṛgayāṁ vyasanāturasya
-> kā devaraṁ vaśa-gataṁ kusumāstra-vega-
+> tan me prasīda suhṛdaḥ kṛta-kilbiṣasya\
+> svairaṁ gatasya mṛgayāṁ vyasanāturasya\
+> kā devaraṁ vaśa-gataṁ kusumāstra-vega-\
 > visrasta-pauṁsnam uśatī na bhajeta kṛtye
 
 *tat*—therefore; *me*—unto me; *prasīda*—be kind; *su-hṛdaḥ*—intimate friend; *kṛta-kilbiṣasya*—having committed sinful activities; *svairam*—independently; *gatasya*—who went; *mṛgayām*—hunting; *vyasana-āturasya*—being influenced by sinful desire; *kā*—what woman; *devaram*—the husband; *vaśa-gatam*—under her control; *kusuma-astra-vega*—pierced by the arrow of Cupid; *visrasta*—scattered; *pauṁsnam*—his patience; *uśatī*—very beautiful; *na*—never; *bhajeta*—would embrace; *kṛtye*—in proper duty.

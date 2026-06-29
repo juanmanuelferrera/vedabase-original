@@ -1,9 +1,9 @@
 ### CC Antya 11.58
 
-> ‘হরি’ ‘কৃষ্ণ’-শব্দে সবে করে কোলাহল ।
+> ‘হরি’ ‘কৃষ্ণ’-শব্দে সবে করে কোলাহল ।\
 > প্রেমানন্দে মহাপ্রভু হইলা বিহ্বল ॥৫৮॥
 
-> 'hari' 'kṛṣṇa'-śabde sabe kare kolāhala
+> 'hari' 'kṛṣṇa'-śabde sabe kare kolāhala\
 > premānande mahāprabhu ha-ilā vihvala
 
 *hari*—el santo nombre de Hari; *kṛṣṇa*—el santo nombre de Kṛṣṇa; *śabde*—con la vibración sonora; *sabe*—todos ellos; *kare*—hacen; *kolāhala*—gran clamor; *prema-ānande*—en amor extático; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *ha-ilā vihvala*—quedó abrumado.

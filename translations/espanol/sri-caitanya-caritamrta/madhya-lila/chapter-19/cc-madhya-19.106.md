@@ -1,11 +1,11 @@
 ### CC Madhya 19.106
 
-> শ্যামমেব পরং রূপং পুরী মধুপুরী বরা ।
+> শ্যামমেব পরং রূপং পুরী মধুপুরী বরা ।\
 > বয়ঃ কৈশোরকং ধ্যেয়মাদ্য এব পরো রসঃ ॥১০৬॥
 
-> śyāmam eva paraṁ rūpaṁ
-> purī madhu-purī varā
-> vayaḥ kaiśorakaṁ dhyeyam
+> śyāmam eva paraṁ rūpaṁ\
+> purī madhu-purī varā\
+> vayaḥ kaiśorakaṁ dhyeyam\
 > ādya eva paro rasaḥ
 
 *śyāmam*—la forma de Śyāmasundara; *eva*—ciertamente; *param*—suprema; *rūpam*—forma; *purī*—el lugar; *madhu-purī*—Mathurā; *varā*—la mejor; *vayaḥ*—la edad; *kaiśorakam*—juventud fresca; *dhyeyam*—en la que siempre se ha de meditar; *ādyaḥ*—el *rasa* trascendental original, o amor conyugal; *eva*—ciertamente; *paraḥ*—el supremo; *rasaḥ*—*rasa*.

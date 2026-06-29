@@ -1,9 +1,9 @@
 ### CC Madhya 13.60
 
-> রাজার তুচ্ছ সেবা দেখি’ প্রভুর তুষ্ট মন ।
+> রাজার তুচ্ছ সেবা দেখি’ প্রভুর তুষ্ট মন ।\
 > সেই ত’ প্রসাদে পাইল ‘রহস্য-দর্শন’ ॥৬০॥
 
-> rājāra tuccha sevā dekhi' prabhura tuṣṭa mana
+> rājāra tuccha sevā dekhi' prabhura tuṣṭa mana\
 > sei ta' prasāde pāila 'rahasya-darśana'
 
 *rājāra*—of the King; *tuccha*—insignificant, menial; *sevā*—service; *dekhi'*—seeing; *prabhura*—of Śrī Caitanya Mahāprabhu; *tuṣṭa*—satisfied; *mana*—mind; *sei*—that; *ta'*—indeed; *prasāde*—by mercy; *pāila*—got; *rahasya-darśana*—seeing of the mystery of the activities.

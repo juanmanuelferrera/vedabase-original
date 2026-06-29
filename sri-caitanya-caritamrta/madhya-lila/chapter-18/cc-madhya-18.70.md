@@ -1,9 +1,9 @@
 ### CC Madhya 18.70
 
-> লোকের সংঘট্ট দেখি মথুরা ছাড়িয়া ।
+> লোকের সংঘট্ট দেখি মথুরা ছাড়িয়া ।\
 > একান্তে ‘অক্রূর তীর্থে’ রহিলা আসিয়া ॥৭০॥
 
-> lokera saṅghaṭṭa dekhi mathurā chāḍiyā
+> lokera saṅghaṭṭa dekhi mathurā chāḍiyā\
 > ekānte 'akrūra-tīrthe' rahilā āsiyā
 
 *lokera*—of people; *saṅghaṭṭa*—crowd; *dekhi*—seeing; *mathurā*—the city of Mathurā; *chāḍiyā*—leaving; *ekānte*—in a solitary place; *akrūra-tīrthe*—at Akrūra-tīrtha; *rahilā*—stayed; *āsiyā*—coming.

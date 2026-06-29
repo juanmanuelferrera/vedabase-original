@@ -1,11 +1,11 @@
 ### SB 7.15.24
 
-> कृपया भूतजं दुःखं दैवं जह्यात्समाधिना
+> कृपया भूतजं दुःखं दैवं जह्यात्समाधिना\
 > आत्मजं योगवीर्येण निद्रां सत्त्वनिषेवया ॥२४॥
 
-> kṛpayā bhūtajaṁ duḥkhaṁ
-> daivaṁ jahyāt samādhinā
-> ātmajaṁ yoga-vīryeṇa
+> kṛpayā bhūtajaṁ duḥkhaṁ\
+> daivaṁ jahyāt samādhinā\
+> ātmajaṁ yoga-vīryeṇa\
 > nidrāṁ sattva-niṣevayā
 
 *kṛpayā*—by being merciful to all other living entities; *bhūta-jam*—because of other living entities; *duḥkham*—suffering; *daivam*—sufferings imposed by providence; *jahyāt*—one should give up; *samādhinā*—by trance or meditation; *ātma-jam*—sufferings due to the body and mind; *yoga-vīryeṇa*—by practicing *haṭha-yoga, prāṇāyāma* and so forth; *nidrām*—sleeping; *sattva-niṣevayā*—by developing brahminical qualifications or the mode of goodness.

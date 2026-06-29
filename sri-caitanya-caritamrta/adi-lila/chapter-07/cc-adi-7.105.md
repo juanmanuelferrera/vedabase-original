@@ -1,9 +1,9 @@
 ### CC Adi 7.105
 
-> তোমার প্রভাবে সবার আনন্দিত মন ।
+> তোমার প্রভাবে সবার আনন্দিত মন ।\
 > কভু অসঙ্গত নহে তোমার বচন ॥১০৫॥
 
-> tomāra prabhāve sabāra ānandita mana
+> tomāra prabhāve sabāra ānandita mana\
 > kabhu asaṅgata nahe tomāra vacana
 
 *tomāra*—Your; *prabhāve*—by influence; *sabāra*—of everyone; *ānandita*—joyful; *mana*—mind; *kabhu*—at anytime; *asaṅgata*—unreasonable; *nahe*—does not; *tomāra*—Your; *vacana*—speeches.

@@ -1,11 +1,11 @@
 ### SB 4.12.19
 
-> स ददर्श विमानाग्र्यं नभसोऽवतरद्ध्रुवः ।
+> स ददर्श विमानाग्र्यं नभसोऽवतरद्ध्रुवः ।\
 > विभ्राजयद्दश दिशो राकापतिमिवोदितम् ॥१९॥
 
-> sa dadarśa vimānāgryaṁ
-> nabhaso 'vatarad dhruvaḥ
-> vibhrājayad daśa diśo
+> sa dadarśa vimānāgryaṁ\
+> nabhaso 'vatarad dhruvaḥ\
+> vibhrājayad daśa diśo\
 > rākāpatim ivoditam
 
 *saḥ*—he; *dadarśa*—saw; *vimāna*—an airplane; *agryam*—very beautiful; *nabhasaḥ*—from the sky; *avatarat*—descending; *dhruvaḥ*—Dhruva Mahārāja; *vibhrājayat*—illuminating; *daśa*—ten; *diśaḥ*—directions; *rākā-patim*—the full moon; *iva*—like; *uditam*—visible.

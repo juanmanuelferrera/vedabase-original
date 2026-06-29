@@ -1,11 +1,11 @@
 ### SB 4.4.26
 
-> एवं स्वदेहं महतां महीयसा मुहुः समारोपितमङ्कमादरात् ।
+> एवं स्वदेहं महतां महीयसा मुहुः समारोपितमङ्कमादरात् ।\
 > जिहासती दक्षरुषा मनस्विनी दधार गात्रेष्वनिलाग्निधारणाम् ॥२६॥
 
-> evaṁ sva-dehaṁ mahatāṁ mahīyasā
-> muhuḥ samāropitam aṅkam ādarāt
-> jihāsatī dakṣa-ruṣā manasvinī
+> evaṁ sva-dehaṁ mahatāṁ mahīyasā\
+> muhuḥ samāropitam aṅkam ādarāt\
+> jihāsatī dakṣa-ruṣā manasvinī\
 > dadhāra gātreṣv anilāgni-dhāraṇām
 
 *evam*—thus; *sva-deham*—her own body; *mahatām*—of the great saints; *mahīyasā*—most worshipful; *muhuḥ*—again and again; *samāropitam*—seated; *aṅkam*—on the lap; *ādarāt*—respectfully; *jihāsatī*—wishing to give up; *dakṣa-ruṣā*—due to anger towards Dakṣa; *manasvinī*—voluntarily; *dadhāra*—placed; *gātreṣu*—on the limbs of the body; *anila-agni-dhāraṇām*—meditation on the fire and air.

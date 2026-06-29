@@ -1,9 +1,9 @@
 ### CC Madhya 25.56
 
-> তাতে ছয় দর্শন হৈতে ‘তত্ত্ব’ নাহি জানি ।
+> তাতে ছয় দর্শন হৈতে ‘তত্ত্ব’ নাহি জানি ।\
 > ‘মহাজন’ যেই কহে, সেই ‘সত্য’ মানি ॥৫৬॥
 
-> tāte chaya darśana haite 'tattva' nāhi jāni
+> tāte chaya darśana haite 'tattva' nāhi jāni\
 > 'mahājana' yei kahe, sei 'satya' māni
 
 *tāte*—therefore; *chaya darśana haite*—from the six philosophical principles; *tat-tva nāhi jāni*—we cannot understand the actual truth; *mahājana*—the great authorities; *yei kahe*—whatever they say; *sei*—that; *satya māni*—we can accept as truth.

@@ -1,9 +1,9 @@
 ### CC Adi 10.94
 
-> বৃন্দাবনে দুই ভাইর চরণ দেখিয়া ।
+> বৃন্দাবনে দুই ভাইর চরণ দেখিয়া ।\
 > গোবর্ধনে ত্যজিব দেহ ভৃগুপাত করিয়া ॥৯৪॥
 
-> vṛndāvane dui bhāira caraṇa dekhiyā
+> vṛndāvane dui bhāira caraṇa dekhiyā\
 > govardhane tyajiba deha bhṛgupāta kariyā
 
 *vṛndāvane*—at Vṛndāvana; *dui bhāira*—the two brothers (Rūpa and Sanātana); *caraṇa*—feet; *dekhiyā*—after seeing; *govardhane*—on the hill of Govardhana; *tyajiba*—will give up; *deha*—this body; *bhṛgupāta*—falling down; *kariyā*—doing so.

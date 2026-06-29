@@ -1,9 +1,9 @@
 ### CC Madhya 9.351
 
-> দিব্য মহাপ্রসাদ অনেক আনাইল ৷
+> দিব্য মহাপ্রসাদ অনেক আনাইল ৷\
 > পীঠা-পানা আদি জগন্নাথ যে খাইল ৷৷ ৩৫১ ৷৷ ॥৩৫১॥
 
-> divya mahā-prasāda aneka ānāila
+> divya mahā-prasāda aneka ānāila\
 > pīṭhā-pānā ādi jagannātha ye khāila
 
 *divya*—muy hermoso; *mahā-prasāda*—remanentes de alimentos de Jagannātha; *aneka*—diversos; *ānāila*—trajo; *pīṭhā-pānā ādi*—tales como pasteles y leche condensada; *jagannātha*—el Señor Jagannātha; *ye*—que; *khāila*—comió.

@@ -1,11 +1,11 @@
 ### SB 4.13.36
 
-> तस्मात्पुरुष उत्तस्थौ हेममाल्यमलाम्बरः ।
+> तस्मात्पुरुष उत्तस्थौ हेममाल्यमलाम्बरः ।\
 > हिरण्मयेन पात्रेण सिद्धमादाय पायसम् ॥३६॥
 
-> tasmāt puruṣa uttasthau
-> hema-māly amalāmbaraḥ
-> hiraṇmayena pātreṇa
+> tasmāt puruṣa uttasthau\
+> hema-māly amalāmbaraḥ\
+> hiraṇmayena pātreṇa\
 > siddham ādāya pāyasam
 
 *tasmāt*—from that fire; *puruṣaḥ*—a person; *uttasthau*—appeared; *hema-mālī*—with a golden garland; *amala-ambaraḥ*—in white garments; *hiraṇmayena*—golden; *pātreṇa*—with a pot; *siddham*—cooked; *ādāya*—carrying; *pāyasam*—rice boiled in milk.

@@ -1,9 +1,9 @@
 ### CC Madhya 4.208
 
-> গোপীনাথ-রূপে যদি করিয়াছেন ভোজন ।
+> গোপীনাথ-রূপে যদি করিয়াছেন ভোজন ।\
 > ভক্তি দেখাইতে কৈল প্রসাদ ভক্ষণ ॥২০৮॥
 
-> gopīnātha-rūpe yadi kariyāchena bhojana
+> gopīnātha-rūpe yadi kariyāchena bhojana\
 > bhakti dekhāite kaila prasāda bhakṣaṇa
 
 *gopīnātha-rūpe*—en Su encarnación arcā como Gopīnātha; *yadi*—aunque; *kariyāchena*—ha hecho; *bhojana*—comer; *bhakti*—servicio devocional; *dekhāite*—para mostrar; *kaila*—hizo; *prasāda bhakṣaṇa*—comer.

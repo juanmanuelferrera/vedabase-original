@@ -1,11 +1,11 @@
 ### SB 8.16.31
 
-> नमो द्विशीर्ष्णे त्रिपदे चतुःशृङ्गाय तन्तवे
+> नमो द्विशीर्ष्णे त्रिपदे चतुःशृङ्गाय तन्तवे\
 > सप्तहस्ताय यज्ञआय त्रयीविद्यात्मने नमः ॥३१॥
 
-> namo dvi-śīrṣṇe tri-pade
-> catuḥ-śṛṅgāya tantave
-> sapta-hastāya yajñāya
+> namo dvi-śīrṣṇe tri-pade\
+> catuḥ-śṛṅgāya tantave\
+> sapta-hastāya yajñāya\
 > trayī-vidyātmane namaḥ
 
 *namaḥ*—I offer my respectful obeisances unto You; *dvi-śīrṣṇe*—who have two heads; *tri-pade*—who have three legs; *catuḥ-śṛṅgāya*—who have four horns; *tantave*—who expand; *sapta-hastāya*—who have seven hands; *yajñāya*—unto the *yajña-puruṣa,* the supreme enjoyer; *trayī*—the three modes of Vedic ritualistic ceremonies; *vidyā-ātmane*—the Personality of Godhead, the embodiment of all knowledge; *namaḥ*—I offer my respectful obeisances unto You.

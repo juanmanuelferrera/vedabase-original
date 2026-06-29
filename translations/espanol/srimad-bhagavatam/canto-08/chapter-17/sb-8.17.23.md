@@ -1,12 +1,12 @@
 ### SB 8.17.23
 
-> प्रविष्टमात्मनि हरेरंशं ह्यवितथेक्षणः
-> सोऽदित्यां वीर्यमाधत्त तपसा चिरसम्भृतम
+> प्रविष्टमात्मनि हरेरंशं ह्यवितथेक्षणः\
+> सोऽदित्यां वीर्यमाधत्त तपसा चिरसम्भृतम\
 > अमाहितमना राजन्दारुण्यग्निं यथानिलः ॥२३॥
 
-> so 'dityāṁ vīryam ādhatta
-> tapasā cira-sambhṛtam
-> samāhita-manā rājan
+> so 'dityāṁ vīryam ādhatta\
+> tapasā cira-sambhṛtam\
+> samāhita-manā rājan\
 > dāruṇy agniṁ yathānilaḥ
 
 *saḥ*—Kaśyapa; *adityām*—en Aditi; *vīryam*—semen; *ādhatta*—puso; *tapasā*—con austeridad; *cira-sambhṛtam*—contenido durante muchísimos años; *samāhita-manāḥ*—en perfecto trance de meditación en la Suprema Personalidad de Dios; *rājan*—¡oh, rey!; *dāruṇi*—como en la leña; *agnim*—fuego; *yathā*—como; *anilaḥ*—el viento.

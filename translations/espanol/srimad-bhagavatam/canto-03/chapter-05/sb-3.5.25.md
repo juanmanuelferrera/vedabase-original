@@ -1,11 +1,11 @@
 ### SB 3.5.25
 
-> सा वा एतस्य संद्रष्टुः शक्तिः सदसदात्मिका ।
+> सा वा एतस्य संद्रष्टुः शक्तिः सदसदात्मिका ।\
 > माया नाम महाभाग ययेदं निर्ममे विभुः ॥२५॥
 
-> sā vā etasya saṁdraṣṭuḥ
-> śaktiḥ sad-asad-ātmikā
-> māyā nāma mahā-bhāga
+> sā vā etasya saṁdraṣṭuḥ\
+> śaktiḥ sad-asad-ātmikā\
+> māyā nāma mahā-bhāga\
 > yayedaṁ nirmame vibhuḥ
 
 *sā*—esa energía externa; *vā*—es, o bien; *etasya*—del Señor; *saṁdraṣṭuḥ*—del observador perfecto; *śaktiḥ*—energía; *sat-asat-ātmikā*—tanto la causa como el efecto; *māyā nāma*—conocida con el nombre de *māyā*; *mahā-bhāga*—¡oh, tú, el afortunado!; *yayā*—mediante la cual; *idam*—este mundo material; *nirmame*—construyó; *vibhuḥ*—el Todopoderoso.

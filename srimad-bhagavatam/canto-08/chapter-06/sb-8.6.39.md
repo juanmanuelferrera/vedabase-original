@@ -1,11 +1,11 @@
 ### SB 8.6.39
 
-> अवरोप्य गिरिं स्कन्धात्सुपर्णः पततां वरः
+> अवरोप्य गिरिं स्कन्धात्सुपर्णः पततां वरः\
 > ययौ जलान्त उत्सृज्य हरिणा स विसर्जितः ॥३९॥
 
-> avaropya giriṁ skandhāt
-> suparṇaḥ patatāṁ varaḥ
-> yayau jalānta utsṛjya
+> avaropya giriṁ skandhāt\
+> suparṇaḥ patatāṁ varaḥ\
+> yayau jalānta utsṛjya\
 > hariṇā sa visarjitaḥ
 
 *avaropya*—unloading; *girim*—the mountain; *skandhāt*—from his shoulder; *suparṇaḥ*—Garuḍa; *patatām*—of all the birds; *varaḥ*—the biggest or most powerful; *yayau*—went; *jala-ante*—where the water is; *utsṛjya*—placing; *hariṇā*—by the Supreme Personality of Godhead; *saḥ*—he (Garuḍa); *visarjitaḥ*—discharged from that place.

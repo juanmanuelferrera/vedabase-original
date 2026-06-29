@@ -1,11 +1,11 @@
 ### SB 6.2.19
 
-> यथागदं वीर्यतममुपयुक्तं यदृच्छया
+> यथागदं वीर्यतममुपयुक्तं यदृच्छया\
 > अजानतोऽप्यात्मगुणं कुर्यान्मन्त्रोऽप्युदाहृतः ॥१९॥
 
-> yathāgadaṁ vīryatamam
-> upayuktaṁ yadṛcchayā
-> ajānato 'py ātma-guṇaṁ
+> yathāgadaṁ vīryatamam\
+> upayuktaṁ yadṛcchayā\
+> ajānato 'py ātma-guṇaṁ\
 > kuryān mantro 'py udāhṛtaḥ
 
 *yathā*—just like; *agadam*—medicine; *vīrya-tamam*—very powerful; *upayuktam*—properly taken; *yadṛcchayā*—somehow or other; *ajānataḥ*—by a person without knowledge; *api*—even; *ātma-guṇam*—its own potency; *kuryāt*—manifests; *mantraḥ*—the Hare Kṛṣṇa *mantra*; *api*—also; *udāhṛtaḥ*—chanted.

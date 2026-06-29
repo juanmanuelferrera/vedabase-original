@@ -1,18 +1,18 @@
 ### SB 7.3.15-16
 
-> न ददर्श प्रतिच्छन्नं वल्मीकतृणकीचकैः
-> पिपीलिकाभिराचीर्णं मेदस्त्वङ्मांसशोणितम ॥१५॥
-> तपन्तं तपसा लोकान्यथाभ्रापिहितं रविम
+> न ददर्श प्रतिच्छन्नं वल्मीकतृणकीचकैः\
+> पिपीलिकाभिराचीर्णं मेदस्त्वङ्मांसशोणितम ॥१५॥\
+> तपन्तं तपसा लोकान्यथाभ्रापिहितं रविम\
 > विलक्ष्य विस्मितः प्राह हसंस्तं हंसवाहनः ॥१६॥
 
-> na dadarśa praticchannaṁ
-> valmīka-tṛṇa-kīcakaiḥ
-> pipīlikābhir ācīrṇaṁ
+> na dadarśa praticchannaṁ\
+> valmīka-tṛṇa-kīcakaiḥ\
+> pipīlikābhir ācīrṇaṁ\
 > medas-tvaṅ-māṁsa-śoṇitam
 
-> tapantaṁ tapasā lokān
-> yathābhrāpihitaṁ ravim
-> vilakṣya vismitaḥ prāha
+> tapantaṁ tapasā lokān\
+> yathābhrāpihitaṁ ravim\
+> vilakṣya vismitaḥ prāha\
 > hasaṁs taṁ haṁsa-vāhanaḥ
 
 *na*—not; *dadarśa*—saw; *praticchannam*—covered; *valmīka*—by an anthill; *tṛṇa*—grass; *kīcakaiḥ*—and bamboo sticks; *pipīlikābhiḥ*—by the ants; *ācīrṇam*—eaten all around; *medaḥ*—whose fat; *tvak*—skin; *māṁsa*—the flesh; *śoṇitam*—and blood; *tapantam*—heating; *tapasā*—by a severe type of penance; *lokān*—all the three worlds; *yathā*—just as; *abhra*—by clouds; *apihitam*—covered; *ravim*—the sun; *vilakṣya*—seeing; *vismitaḥ*—struck with wonder; *prāha*—said; *hasan*—smiling; *tam*—to him; *haṁsa-vāhanaḥ*—Lord Brahmā, who rides a swan airplane.

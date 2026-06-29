@@ -1,11 +1,11 @@
 ### SB 4.7.39
 
-> जगदुद्भवस्थितिलयेषु दैवतो बहुभिद्यमानगुणयात्ममायया ।
+> जगदुद्भवस्थितिलयेषु दैवतो बहुभिद्यमानगुणयात्ममायया ।\
 > रचितात्मभेदमतये स्वसंस्थया विनिवर्तितभ्रमगुणात्मने नमः ॥३९॥
 
-> jagad-udbhava-sthiti-layeṣu daivato
-> bahu-bhidyamāna-guṇayātma-māyayā
-> racitātma-bheda-mataye sva-saṁsthayā
+> jagad-udbhava-sthiti-layeṣu daivato\
+> bahu-bhidyamāna-guṇayātma-māyayā\
+> racitātma-bheda-mataye sva-saṁsthayā\
 > vinivartita-bhrama-guṇātmane namaḥ
 
 *jagat*—el mundo material; *udbhava*—creación; *sthiti*—mantenimiento; *layeṣu*—en aniquilación; *daivataḥ*—destino; *bahu*—muchas; *bhidyamāna*—diversificada; *guṇayā*—por cualidades materiales; *ātma-māyayā*—por Su energía material; *racita*—producida; *ātma*—en las entidades vivientes; *bheda-mataye*—que produjeron distintas inclinaciones; *sva-saṁsthayā*—por Su potencia interna; *vinivartita*—detenida; *bhrama*—interacción; *guṇa*—de modalidades materiales; *ātmane*—a Él en Su forma personal; *namaḥ*—reverencias.

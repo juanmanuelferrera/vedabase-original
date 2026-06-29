@@ -1,9 +1,9 @@
 ### CC Madhya 22.87
 
-> অসৎসঙ্গত্যাগ, — এই বৈষ্ণব-আচার ।
+> অসৎসঙ্গত্যাগ, — এই বৈষ্ণব-আচার ।\
 > ‘স্ত্রীসঙ্গী’ — এক অসাধু, ‘কৃষ্ণাভক্ত’ আর ॥৮৭॥
 
-> asat-saṅga-tyāga,--ei vaiṣṇava-ācāra
+> asat-saṅga-tyāga,--ei vaiṣṇava-ācāra\
 > 'strī-saṅgī'--eka asādhu, 'kṛṣṇābhakta' āra
 
 *asat-saṅga-tyāga*—rechazo de la asociación con no devotos; *ei*—esta; *vaiṣṇava-ācāra*—la conducta de un vaiṣṇava; *strī-saṅgī*—quien se asocia con mujeres para la complacencia de los sentidos; *eka*—uno; *asādhu*—persona impía; *kṛṣṇa-abhakta*—aquel que no es devoto del Señor Kṛṣṇa; *āra*—otro.

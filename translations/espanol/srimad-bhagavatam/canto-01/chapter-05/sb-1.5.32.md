@@ -1,11 +1,11 @@
 ### SB 1.5.32
 
-> एतत्संसूचितं ब्रह्मंस्तापत्रयचिकित्सितम् ।
+> एतत्संसूचितं ब्रह्मंस्तापत्रयचिकित्सितम् ।\
 > यदीश्वरे भगवति कर्म ब्रह्मणि भावितम् ॥३२॥
 
-> etat saṁsūcitaṁ brahmaṁs
-> tāpa-traya-cikitsitam
-> yad īśvare bhagavati
+> etat saṁsūcitaṁ brahmaṁs\
+> tāpa-traya-cikitsitam\
+> yad īśvare bhagavati\
 > karma brahmaṇi bhāvitam
 
 *etat*—este tanto; *saṁsūcitam*—decidido por los eruditos; *brahman*—¡oh, *brāhmaṇa* Vyāsa!; *tāpa-traya*—tres clases de sufrimientos; *cikitsitam*—remedios; *yat*—que; *īśvare*—el supremo controlador; *bhagavati*—a la Personalidad de Dios; *karma*—nuestras actividades prescritas; *brahmaṇi*—al gran; *bhāvitam*—dedicadas.

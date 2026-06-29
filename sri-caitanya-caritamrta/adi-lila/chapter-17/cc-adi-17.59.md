@@ -1,9 +1,9 @@
 ### CC Adi 17.59
 
-> তবে বিপ্র লইল আসি শ্রীবাস শরণ ।
+> তবে বিপ্র লইল আসি শ্রীবাস শরণ ।\
 > তাঁহার কৃপায় হৈল পাপ-বিমোচন ॥৫৯॥
 
-> tabe vipra la-ila āsi śrīvāsa śaraṇa
+> tabe vipra la-ila āsi śrīvāsa śaraṇa\
 > tāṅhāra kṛpāya haila pāpa-vimocana
 
 *tabe*—after that; *vipra*—the *brāhmaṇa* (Gopāla Cāpāla); *la-ila*—took shelter; *āsi*—coming; *śrīvāsa*—Śrīvāsa Ṭhākura; *śaraṇa*—shelter of his lotus feet; *tāṅhāra kṛpāya*—by his mercy; *haila*—became; *pāpa-vimocana*—free from all sinful reaction.

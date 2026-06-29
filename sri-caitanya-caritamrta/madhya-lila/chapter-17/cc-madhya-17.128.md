@@ -1,9 +1,9 @@
 ### CC Madhya 17.128
 
-> ইহার কারণ মোরে কহ কৃপা করি’ ।
+> ইহার কারণ মোরে কহ কৃপা করি’ ।\
 > তোমা দেখি’ মুখ মোর বলে ‘কৃষ্ণ’ ‘হরি’ ।।” ॥ ১২৮ ॥
 
-> ihāra kāraṇa more kaha kṛpā kari'
+> ihāra kāraṇa more kaha kṛpā kari'\
 > tomā dekhi' mukha mora bale 'kṛṣṇa' 'hari"
 
 *ihāra*—of this; *kāraṇa*—cause; *more*—unto me; *kaha*—please speak; *kṛpā kari'*—by Your causeless mercy; *tomā dekhi'*—seeing You; *mukha*—mouth; *mora*—my; *bale*—says; *kṛṣṇa hari*—the holy names of Kṛṣṇa and Hari.

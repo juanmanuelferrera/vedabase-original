@@ -1,11 +1,11 @@
 ### SB 6.9.8
 
-> तुर्यं छेदविरोहेण वरेण जगृहुर्द्रुमाः
+> तुर्यं छेदविरोहेण वरेण जगृहुर्द्रुमाः\
 > तेषां निर्यासरूपेण ब्रह्महत्या प्रदृश्यते ॥८॥
 
-> turyaṁ cheda-viroheṇa
-> vareṇa jagṛhur drumāḥ
-> teṣāṁ niryāsa-rūpeṇa
+> turyaṁ cheda-viroheṇa\
+> vareṇa jagṛhur drumāḥ\
+> teṣāṁ niryāsa-rūpeṇa\
 > brahma-hatyā pradṛśyate
 
 *turyam*—una cuarta parte; *cheda*—aunque sean cortados; *viroheṇa*—de volver a crecer; *vareṇa*—debido a la bendición; *jagṛhuḥ*—aceptaron; *drumāḥ*—los árboles; *teṣām*—de ellos; *niryāsa-rūpeṇa*—por el líquido que rezuma de los árboles; *brahma-hatyā*—la reacción por matar a un *brāhmaṇa*; *pradṛśyate*—es visible.

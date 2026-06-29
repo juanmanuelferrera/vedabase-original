@@ -1,9 +1,9 @@
 ### CC Adi 4.82
 
-> গোবিন্দানন্দিনী, রাধা, গোবিন্দমোহিনী ।
+> গোবিন্দানন্দিনী, রাধা, গোবিন্দমোহিনী ।\
 > গোবিন্দসর্বস্ব, সর্বকান্তা-শিরোমণি ॥৮২॥
 
-> govindānandinī rādhā, govinda-mohinī
+> govindānandinī rādhā, govinda-mohinī\
 > govinda-sarvasva, sarva-kāntā-śiromaṇi
 
 *govinda-ānandinī*—She who gives pleasure to Govinda; *rādhā*—Śrīmatī Rādhārāṇī; *govinda-mohinī*—She who mystifies Govinda; *govinda-sarvasva*—the be-all and end-all of Lord Govinda; *sarva-kāntā*—of all the Lord's lovers; *śiromaṇi*—the crown jewel.

@@ -1,11 +1,11 @@
 ### SB 8.10.8
 
-> रथिनो रथिभिस्तत्र पत्तिभिः सह पत्तयः
+> रथिनो रथिभिस्तत्र पत्तिभिः सह पत्तयः\
 > हया हयैरिभाश्चेभैः समसज्जन्त संयुगे ॥८॥
 
-> rathino rathibhis tatra
-> pattibhiḥ saha pattayaḥ
-> hayā hayair ibhāś cebhaiḥ
+> rathino rathibhis tatra\
+> pattibhiḥ saha pattayaḥ\
+> hayā hayair ibhāś cebhaiḥ\
 > samasajjanta saṁyuge
 
 *rathinaḥ*—combatientes en cuadrigas; *rathibhiḥ*—con los aurigas del enemigo; *tatra*—en el campo de batalla; *pattibhiḥ*—con los soldados de infantería; *saha*—con; *pattayaḥ*—la infantería de los soldados enemigos; *hayāḥ*—los caballos; *hayaiḥ*—con los soldados del enemigo; *ibhāḥ*—los soldados montados en elefantes; *ca*—y; *ibhaiḥ*—con los soldados enemigos que montaban elefantes; *samasajjanta*—comenzaron a luchar en el mismo nivel; *saṁyuge*—en el campo de batalla.

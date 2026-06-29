@@ -1,9 +1,9 @@
 ### CC Adi 6.107
 
-> অন্যের আছুক্ কার্য, আপনে শ্রীকৃষ্ণ ।
+> অন্যের আছুক্ কার্য, আপনে শ্রীকৃষ্ণ ।\
 > আপন-মাধুর্য-পানে হইলা সতৃষ্ণ ॥১০৭॥
 
-> anyera āchuk kārya, āpane śrī-kṛṣṇa
+> anyera āchuk kārya, āpane śrī-kṛṣṇa\
 > āpana-mādhurya-pāne ha-ilā satṛṣṇa
 
 *anyera*—de otros; *āchuk*—dejemos de lado; *kārya*—el asunto; *āpane*—personalmente; *śrī-kṛṣṇa*—el Señor Śrī Kṛṣṇa; *āpana-mādhurya*—dulzura personal; *pāne*—en beber; *ha-ilā*—se volvió; *sa-tṛṣṇa*—muy ansioso.

@@ -1,11 +1,11 @@
 ### SB 4.21.14
 
-> तस्मिन्नर्हत्सु सर्वेषु स्वर्चितेषु यथार्हतः ।
+> तस्मिन्नर्हत्सु सर्वेषु स्वर्चितेषु यथार्हतः ।\
 > उत्थितः सदसो मध्ये ताराणामुडुराडिव ॥१४॥
 
-> tasminn arhatsu sarveṣu
-> sv-arciteṣu yathārhataḥ
-> utthitaḥ sadaso madhye
+> tasminn arhatsu sarveṣu\
+> sv-arciteṣu yathārhataḥ\
+> utthitaḥ sadaso madhye\
 > tārāṇām uḍurāḍ iva
 
 *tasmin*—in that great meeting; *arhatsu*—of all those who are worshipable; *sarveṣu*—all of them; *su-arciteṣu*—being worshiped according to their respective positions; *yathā-arhataḥ*—as they deserved; *utthitaḥ*—stood up; *sadasaḥ*—amongst the assembly members; *madhye*—within the midst; *tārāṇām*—of the stars; *uḍu-rāṭ*—the moon; *iva*—like.

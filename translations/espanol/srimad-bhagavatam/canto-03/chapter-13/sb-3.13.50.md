@@ -1,11 +1,11 @@
 ### SB 3.13.50
 
-> को नाम लोके पुरुषार्थसारवित्पुराकथानां भगवत्कथासुधाम् ।
+> को नाम लोके पुरुषार्थसारवित्पुराकथानां भगवत्कथासुधाम् ।\
 > आपीय कर्णाञ्जलिभिर्भवापहामहो विरज्येत विना नरेतरम् ॥५०॥
 
-> ko nāma loke puruṣārtha-sāravit
-> purā-kathānāṁ bhagavat-kathā-sudhām
-> āpīya karṇāñjalibhir bhavāpahām
+> ko nāma loke puruṣārtha-sāravit\
+> purā-kathānāṁ bhagavat-kathā-sudhām\
+> āpīya karṇāñjalibhir bhavāpahām\
 > aho virajyeta vinā naretaram
 
 *kaḥ*—quién; *nāma*—en verdad; *loke*—en el mundo; *puruṣa-artha*—meta de la vida; *sāra-vit*—aquel que conoce la esencia de; *purā-kathānām*—de todas las historias pasadas; *bhagavat*—en relación con la Personalidad de Dios; *kathā-sudhām*—el néctar de las narraciones sobre la Personalidad de Dios; *āpīya*—bebiendo; *karṇa-añjalibhiḥ*—mediante la recepción auditiva; *bhava-apahām*—aquello que extingue los sufrimientos materiales; *aho*—¡ay!; *virajyeta*—podría rechazar; *vinā*—excepto; *nara-itaram*—aparte del ser humano.

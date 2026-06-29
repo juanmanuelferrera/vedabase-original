@@ -1,11 +1,11 @@
 ### SB 2.9.34
 
-> ऋतेऽर्थं यत्प्रतीयेत न प्रतीयेत चात्मनि ।
+> ऋतेऽर्थं यत्प्रतीयेत न प्रतीयेत चात्मनि ।\
 > तद्विद्यादात्मनो मायां यथाभासो यथा तमः ॥३४॥
 
-> ṛte 'rthaṁ yat pratīyeta
-> na pratīyeta cātmani
-> tad vidyād ātmano māyāṁ
+> ṛte 'rthaṁ yat pratīyeta\
+> na pratīyeta cātmani\
+> tad vidyād ātmano māyāṁ\
 > yathābhāso yathā tamaḥ
 
 *ṛte*—without; *artham*—value; *yat*—that which; *pratīyeta*—appears to be; *na*—not; *pratīyeta*—appears to be; *ca*—and; *ātmani*—in relation to Me; *tat*—that; *vidyāt*—you must know; *ātmanaḥ*—My; *māyām*—illusory energy; *yathā*—just as; *ābhāsaḥ*—the reflection; *yathā*—as; *tamaḥ*—the darkness.

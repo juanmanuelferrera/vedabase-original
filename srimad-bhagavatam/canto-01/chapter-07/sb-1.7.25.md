@@ -1,11 +1,11 @@
 ### SB 1.7.25
 
-> तथायं चावतारस्ते भुवो भारजिहीर्षया ।
+> तथायं चावतारस्ते भुवो भारजिहीर्षया ।\
 > स्वानां चानन्यभावानामनुध्यानाय चासकृत् ॥२५॥
 
-> tathāyaṁ cāvatāras te
-> bhuvo bhāra-jihīrṣayā
-> svānāṁ cānanya-bhāvānām
+> tathāyaṁ cāvatāras te\
+> bhuvo bhāra-jihīrṣayā\
+> svānāṁ cānanya-bhāvānām\
 > anudhyānāya cāsakṛt
 
 *tathā*—thus; *ayam*—this; *ca*—and; *avatāraḥ*—incarnation; *te*—Your; *bhuvaḥ*—of the material world; *bhāra*—burden; *jihīrṣayā*—for removing; *svānām*—of the friends; *ca ananya-bhāvānām*—and of the exclusive devotees; *anudhyānāya*—for remembering repeatedly; *ca*—and; *asakṛt*—fully satisfied.

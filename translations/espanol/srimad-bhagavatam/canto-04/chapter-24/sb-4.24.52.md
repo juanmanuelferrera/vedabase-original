@@ -1,11 +1,11 @@
 ### SB 4.24.52
 
-> पदा शरत्पद्मपलाशरोचिषा नखद्युभिर्नोऽन्तरघं विधुन्वता ।
+> पदा शरत्पद्मपलाशरोचिषा नखद्युभिर्नोऽन्तरघं विधुन्वता ।\
 > प्रदर्शय स्वीयमपास्तसाध्वसं पदं गुरो मार्गगुरुस्तमोजुषाम् ॥५२॥
 
-> padā śarat-padma-palāśa-rociṣā
-> nakha-dyubhir no 'ntar-aghaṁ vidhunvatā
-> pradarśaya svīyam apāsta-sādhvasaṁ
+> padā śarat-padma-palāśa-rociṣā\
+> nakha-dyubhir no 'ntar-aghaṁ vidhunvatā\
+> pradarśaya svīyam apāsta-sādhvasaṁ\
 > padaṁ guro mārga-gurus tamo-juṣām
 
 *padā*—por los pies de loto; *śarat*—otoño; *padma*—flor de loto; *palāśa*—pétalos; *rociṣā*—muy agradables; *nakha*—uñas; *dyubhiḥ*—por la refulgencia; *naḥ*—nuestras; *antaḥ-agham*—cosas sucias; *vidhunvatā*—que puede limpiar; *pradarśaya*—muestra, por favor; *svīyam*—Tu propia; *apāsta*—disminuir; *sādhvasam*—los problemas del mundo material; *padam*—pies de loto; *guro*—¡oh, maestro espiritual supremo!; *mārga*—el sendero; *guruḥ*—maestro espiritual; *tamaḥ-juṣām*—de las personas que sufren bajo la influencia de la ignorancia.

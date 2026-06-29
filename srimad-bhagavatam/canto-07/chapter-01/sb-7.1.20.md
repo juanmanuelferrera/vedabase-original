@@ -1,11 +1,11 @@
 ### SB 7.1.20
 
-> एतद्भ्राम्यति मे बुद्धिर्दीपार्चिरिव वायुना
+> एतद्भ्राम्यति मे बुद्धिर्दीपार्चिरिव वायुना\
 > ब्रूह्येतदद्भुततमं भगवान्ह्यत्र कारणम ॥२०॥
 
-> kathaṁ tasmin bhagavati
-> duravagrāhya-dhāmani
-> paśyatāṁ sarva-lokānāṁ
+> kathaṁ tasmin bhagavati\
+> duravagrāhya-dhāmani\
+> paśyatāṁ sarva-lokānāṁ\
 > layam īyatur añjasā
 
 *katham*—how; *tasmin*—that; *bhagavati*—in the Supreme Personality of Godhead; *duravagrāhya*—difficult to attain; *dhāmani*—whose nature; *paśyatām*—looked on; *sarva-lokānām*—while all the people; *layam īyatuḥ*—became absorbed; *añjasā*—easily.

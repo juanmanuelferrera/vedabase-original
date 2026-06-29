@@ -1,11 +1,11 @@
 ### SB 3.10.16
 
-> भूतसर्गस्तृतीयस्तु तन्मात्रो द्रव्यशक्तिमान् ।
+> भूतसर्गस्तृतीयस्तु तन्मात्रो द्रव्यशक्तिमान् ।\
 > चतुर्थ ऐन्द्रियः सर्गो यस्तु ज्ञानक्रियात्मकः ॥१६॥
 
-> bhūta-sargas tṛtīyas tu
-> tan-mātro dravya-śaktimān
-> caturtha aindriyaḥ sargo
+> bhūta-sargas tṛtīyas tu\
+> tan-mātro dravya-śaktimān\
+> caturtha aindriyaḥ sargo\
 > yas tu jñāna-kriyātmakaḥ
 
 *bhūta-sargaḥ*—creación de la materia; *tṛtīyaḥ*—es la tercera; *tu*—pero; *tat-mātraḥ*—percepción sensorial; *dravya*—de los elementos; *śaktimān*—generador; *caturthaḥ*—la cuarta; *aindriyaḥ*—en lo referente a los sentidos; *sargaḥ*—creación; *yaḥ*—aquello que; *tu*—pero; *jñāna*—de adquisición de conocimiento; *kriyā*—trabajando; *ātmakaḥ*—básicamente.

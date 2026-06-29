@@ -1,11 +1,11 @@
 ### SB 4.28.3
 
-> कालकन्यापि बुभुजे पुरञ्जनपुरं बलात् ।
+> कालकन्यापि बुभुजे पुरञ्जनपुरं बलात् ।\
 > ययाभिभूतः पुरुषः सद्यो निःसारतामियात् ॥३॥
 
-> kāla-kanyāpi bubhuje
-> purañjana-puraṁ balāt
-> yayābhibhūtaḥ puruṣaḥ
+> kāla-kanyāpi bubhuje\
+> purañjana-puraṁ balāt\
+> yayābhibhūtaḥ puruṣaḥ\
 > sadyo niḥsāratām iyāt
 
 *kāla-kanyā*—the daughter of Kāla; *api*—also; *bubhuje*—took possession of; *purañjana-puram*—the city of Purañjana; *balāt*—by force; *yayā*—by whom; *abhibhūtaḥ*—being overwhelmed; *puruṣaḥ*—a person; *sadyaḥ*—immediately; *niḥsāratām*—uselessness; *iyāt*—gets.

@@ -1,9 +1,9 @@
 ### CC Adi 2.115
 
-> কেহো কহে, পরব্যোমে নারায়ণ হরি ।
+> কেহো কহে, পরব্যোমে নারায়ণ হরি ।\
 > সকল সম্ভবে কৃষ্ণে, যাতে অবতারী ॥১১৫॥
 
-> keho kahe, para-vyome nārāyaṇa hari
+> keho kahe, para-vyome nārāyaṇa hari\
 > sakala sambhave kṛṣṇe, yāte avatārī
 
 *keho*—someone; *kahe*—says; *para-vyome*—in the transcendental world; *nārāyaṇa*—Lord Nārāyaṇa; *hari*—the Supreme Personality of Godhead; *sakalasambhave*—all possibilities; *kṛṣṇe*—in Lord Kṛṣṇa; *yāte*—since; *avatārī*—the source of all incarnations.

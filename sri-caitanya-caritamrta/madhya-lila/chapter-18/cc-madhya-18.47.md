@@ -1,9 +1,9 @@
 ### CC Madhya 18.47
 
-> ম্লেচ্ছভয়ে আইলা গোপাল মথুরা-নগরে  ।
+> ম্লেচ্ছভয়ে আইলা গোপাল মথুরা-নগরে  ।\
 > একমাস রহিল বিঠ্ঠলেশ্বর-ঘরে ॥৪৭॥
 
-> mleccha-bhaye āilā gopāla mathurā-nagare
+> mleccha-bhaye āilā gopāla mathurā-nagare\
 > eka-māsa rahila viṭhṭhaleśvara-ghare
 
 *mleccha-bhaye*—because of fear of the Muslims; *āilā*—came; *gopāla*—the Deity Gopāla; *mathurā-nagare*—to the city of Mathurā; *eka-māsa*—one month; *rahila*—stayed; *viṭhṭhaleśvara-ghare*—in the temple of Viṭhṭhaleśvara.

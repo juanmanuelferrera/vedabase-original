@@ -1,13 +1,13 @@
 ### SB 7.9.19
 
-> बालस्य नेह शरणं पितरौ नृसिंह
-> नार्तस्य चागदमुदन्वति मज्जतो नौः
-> तप्तस्य तत्प्रतिविधिर्य इहाञ्जसेष्टस
+> बालस्य नेह शरणं पितरौ नृसिंह\
+> नार्तस्य चागदमुदन्वति मज्जतो नौः\
+> तप्तस्य तत्प्रतिविधिर्य इहाञ्जसेष्टस\
 > तावद्विभो तनुभृतां त्वदुपेक्षितानाम ॥१९॥
 
-> bālasya neha śaraṇaṁ pitarau nṛsiṁha
-> nārtasya cāgadam udanvati majjato nauḥ
-> taptasya tat-pratividhir ya ihāñjaseṣṭas
+> bālasya neha śaraṇaṁ pitarau nṛsiṁha\
+> nārtasya cāgadam udanvati majjato nauḥ\
+> taptasya tat-pratividhir ya ihāñjaseṣṭas\
 > tāvad vibho tanu-bhṛtāṁ tvad-upekṣitānām
 
 *bālasya*—of a little child; *na*—not; *iha*—in this world; *śaraṇam*—shelter (protection); *pitarau*—the father and mother; *nṛsiṁha*—O my Lord Nṛsiṁhadeva; *na*—neither; *ārtasya*—of a person suffering from some disease; *ca*—also; *agadam*—medicine; *udanvati*—in the water of the ocean; *majjataḥ*—of a person who is drowning; *nauḥ*—the boat; *taptasya*—of a person suffering from a condition of material misery; *tat-pratividhiḥ*—the counteraction (invented for stopping the suffering of material existence); *yaḥ*—that which; *iha*—in this material world; *añjasā*—very easily; *iṣṭaḥ*—accepted (as a remedy); *tāvat*—similarly; *vibho*—O my Lord, O Supreme; *tanu-bhṛtām*—of the living entities who have accepted material bodies; *tvat-upekṣitānām*—who are neglected by You and not accepted by You.

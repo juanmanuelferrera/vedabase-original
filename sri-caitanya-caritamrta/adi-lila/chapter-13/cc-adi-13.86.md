@@ -1,9 +1,9 @@
 ### CC Adi 13.86
 
-> এত বলি’ দুঁহে রহে হরষিত হঞা ।
+> এত বলি’ দুঁহে রহে হরষিত হঞা ।\
 > শালগ্রাম সেবা করে বিশেষ করিয়া ॥৮৬॥
 
-> eta bali' duṅhe rahe haraṣita hañā
+> eta bali' duṅhe rahe haraṣita hañā\
 > śālagrāma sevā kare viśeṣa kariyā
 
 *eta bali'*—after this conversation; *duṅhe*—both of them; *rahe*—remained; *haraṣita*—jubilant; *hañā*—becoming; *śālagrāma*—*śālagrāma-nārāyaṇa-śilā*; *sevā*—service; *kare*—rendered; *viśeṣa*—with special attention; *kariyā*—giving it.

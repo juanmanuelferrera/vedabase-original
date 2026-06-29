@@ -1,11 +1,11 @@
 ### SB 3.3.8
 
-> आसां मुहूर्त एकस्मिन्नानागारेषु योषिताम् ।
+> आसां मुहूर्त एकस्मिन्नानागारेषु योषिताम् ।\
 > सविधं जगृहे पाणीननुरूपः स्वमायया ॥८॥
 
-> āsāṁ muhūrta ekasmin
-> nānāgāreṣu yoṣitām
-> sa-vidhaṁ jagṛhe pāṇīn
+> āsāṁ muhūrta ekasmin\
+> nānāgāreṣu yoṣitām\
+> sa-vidhaṁ jagṛhe pāṇīn\
 > anurūpaḥ sva-māyayā
 
 *āsām*—all those; *muhūrte*—at one time; *ekasmin*—simultaneously; *nānā-āgāreṣu*—in different compartments; *yoṣitām*—of the women; *sa-vidham*—with perfect rituals; *jagṛhe*—accepted; *pāṇīn*—hands; *anurūpaḥ*—exactly to match; *sva-māyayā*—by His internal potency.

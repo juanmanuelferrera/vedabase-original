@@ -1,17 +1,17 @@
 ### Bg 1.37-38
 
-> यद्यप्येते न पश्यन्ति लोभोपहतचेतसः ।
-> कुलक्षयकृतं दोषं मित्रद्रोहे च पातकम् ॥३७॥
-> कथं न ज्ञेयमस्माभिः पापादस्मान्निवर्तितुम् ।
+> यद्यप्येते न पश्यन्ति लोभोपहतचेतसः ।\
+> कुलक्षयकृतं दोषं मित्रद्रोहे च पातकम् ॥३७॥\
+> कथं न ज्ञेयमस्माभिः पापादस्मान्निवर्तितुम् ।\
 > कुलक्षयकृतं दोषं प्रपश्यद्भिर्जनार्दन ॥३८॥
 
-> yadyapy ete na paśyanti
-> lobhopahata-cetasaḥ
-> kula-kṣaya-kṛtaṁ doṣaṁ
-> mitra-drohe ca pātakam
-> kathaṁ na jñeyam asmābhiḥ
-> pāpād asmān nivartitum
-> kula-kṣaya-kṛtaṁ doṣaṁ
+> yadyapy ete na paśyanti\
+> lobhopahata-cetasaḥ\
+> kula-kṣaya-kṛtaṁ doṣaṁ\
+> mitra-drohe ca pātakam\
+> kathaṁ na jñeyam asmābhiḥ\
+> pāpād asmān nivartitum\
+> kula-kṣaya-kṛtaṁ doṣaṁ\
 > prapaśyadbhir janārdana
 
 *yadi*—si; *api*—ciertamente; *ete*—ellos; *na*—no; *paśyanti*—ven; *lobha*—codicia; *upahata*—dominados; *cetasaḥ*—los corazones; *kula-kṣaya*—en matar a la familia; *kṛtam*—hecho; *doṣam*—falta; *mitra-drohe*—reñir con amigos; *ca*—también; *pātakam*—reacciones pecaminosas; *katham*—por qué; *na*—no debería; *jñeyam*—conoce esto; *asmābhiḥ*—por nosotros; *pāpāt*—de pecados; *asmāt*—nosotros; *nivartitum*—cesar; *kula-kṣaya*—en la destrucción de una dinastía; *kṛtam*—haciéndolo así; *doṣam*—crimen; *prapaśyadbhiḥ*—por aquellos que pueden ver; *janārdana*—¡oh, Kṛṣṇa!

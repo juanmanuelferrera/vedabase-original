@@ -1,9 +1,9 @@
 ### CC Adi 2.100
 
-> এই ছয়-রূপে হয় অনন্ত বিভেদ ।
+> এই ছয়-রূপে হয় অনন্ত বিভেদ ।\
 > অনন্তরূপে একরূপ, নাহি কিছু ভেদ ॥১০০॥
 
-> ei chaya-rūpe haya ananta vibheda
+> ei chaya-rūpe haya ananta vibheda\
 > ananta-rūpe eka-rūpa, nāhi kichu bheda
 
 *ei*—estas; *chaya-rūpe*—en seis formas; *haya*—hay; *ananta*—ilimitadas; *vibheda*—variedades; *ananta-rūpe*—en formas ilimitadas; *eka-rūpa*—una sola forma; *nāhi*—no hay; *kichu*—ninguna; *bheda*—diferencia.

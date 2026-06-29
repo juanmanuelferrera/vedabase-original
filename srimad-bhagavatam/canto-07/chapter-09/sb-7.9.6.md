@@ -1,11 +1,11 @@
 ### SB 7.9.6
 
-> स तत्करस्पर्शधुताखिलाशुभः सपद्यभिव्यक्तपरात्मदर्शनः
+> स तत्करस्पर्शधुताखिलाशुभः सपद्यभिव्यक्तपरात्मदर्शनः\
 > तत्पादपद्मं हृदि निर्वृतो दधौ हृष्यत्तनुः क्लिन्नहृदश्रुलोचनः ॥६॥
 
-> sa tat-kara-sparśa-dhutākhilāśubhaḥ
-> sapady abhivyakta-parātma-darśanaḥ
-> tat-pāda-padmaṁ hṛdi nirvṛto dadhau
+> sa tat-kara-sparśa-dhutākhilāśubhaḥ\
+> sapady abhivyakta-parātma-darśanaḥ\
+> tat-pāda-padmaṁ hṛdi nirvṛto dadhau\
 > hṛṣyat-tanuḥ klinna-hṛd-aśru-locanaḥ
 
 *saḥ*—he (Prahlāda Mahārāja); *tat-kara-sparśa*—because of being touched on the head by the lotus hand of Nṛsiṁhadeva; *dhuta*—being cleansed; *akhila*—all; *aśubhaḥ*—inauspiciousness or material desires; *sapadi*—immediately; *abhivyakta*—manifested; *para-ātma-darśanaḥ*—realization of the Supreme Soul (spiritual knowledge); *tat-pāda-padmam*—Lord Nṛsiṁhadeva's lotus feet; *hṛdi*—within the core of the heart; *nirvṛtaḥ*—full of transcendental bliss; *dadhau*—captured; *hṛṣyat-tanuḥ*—having transcendental ecstatic bliss manifested in the body; *klinna-hṛt*—whose heart was softened due to transcendental ecstasy; *aśru-locanaḥ*—with tears in his eyes.

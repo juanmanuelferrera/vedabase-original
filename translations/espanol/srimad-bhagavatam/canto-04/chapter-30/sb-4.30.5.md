@@ -1,11 +1,11 @@
 ### SB 4.30.5
 
-> सुपर्णस्कन्धमारूढो मेरुशृङ्गमिवाम्बुदः ।
+> सुपर्णस्कन्धमारूढो मेरुशृङ्गमिवाम्बुदः ।\
 > पीतवासा मणिग्रीवः कुर्वन्वितिमिरा दिशः ॥५॥
 
-> suparṇa-skandham ārūḍho
-> meru-śṛṅgam ivāmbudaḥ
-> pīta-vāsā maṇi-grīvaḥ
+> suparṇa-skandham ārūḍho\
+> meru-śṛṅgam ivāmbudaḥ\
+> pīta-vāsā maṇi-grīvaḥ\
 > kurvan vitimirā diśaḥ
 
 *suparṇa*—de Garuḍa, el portador del Señor Viṣṇu; *skandham*—el lomo; *ārūḍhaḥ*—sentado sobre; *meru*—de la montaña llamada Meru; *śṛṅgam*—en la cima; *iva*—como; *ambudaḥ*—una nube; *pīta-vāsāḥ*—vestido con ropas amarillas; *maṇi-grīvaḥ*—con Su cuello adornado con la joya Kaustubha; *kurvan*—hacer; *vitimirāḥ*—libre de oscuridad; *diśaḥ*—en todas direcciones.

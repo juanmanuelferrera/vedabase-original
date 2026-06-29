@@ -1,11 +1,11 @@
 ### CC Madhya 9.30
 
-> কৃষির্ভূবাচকঃ শব্দো ণশ্চ নির্বৃতিবাচকঃ ।
+> কৃষির্ভূবাচকঃ শব্দো ণশ্চ নির্বৃতিবাচকঃ ।\
 > তয়োরৈক্যং পরং ব্রহ্ম কৃষ্ণ ইত্যভিধীয়তে ॥৩০॥
 
-> kṛṣir bhū-vācakaḥ śabdo
-> ṇaś ca nirvṛti-vācakaḥ
-> tayor aikyaṁ paraṁ brahma
+> kṛṣir bhū-vācakaḥ śabdo\
+> ṇaś ca nirvṛti-vācakaḥ\
+> tayor aikyaṁ paraṁ brahma\
 > kṛṣṇa ity abhidhīyate
 
 *kṛṣiḥ*—the verbal root *kṛṣ*; *bhū*—attractive existence; *vācakaḥ*—signifying; *śabdaḥ*—word; *ṇaḥ*—the syllable *ṇa*; *ca*—and; *nirvṛti*—spiritual pleasure; *vācakaḥ*—indicating; *tayoḥ*—of both; *aikyam*—amalgamation; *param*—supreme; *brahma*—Absolute Truth; *kṛṣṇaḥ*—Lord Kṛṣṇa; *iti*—thus; *abhidhīyate*—is called.

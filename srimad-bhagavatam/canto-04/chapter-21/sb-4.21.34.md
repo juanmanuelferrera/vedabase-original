@@ -1,11 +1,11 @@
 ### SB 4.21.34
 
-> असाविहानेकगुणोऽगुणोऽध्वरः पृथग्विधद्रव्यगुणक्रियोक्तिभिः ।
+> असाविहानेकगुणोऽगुणोऽध्वरः पृथग्विधद्रव्यगुणक्रियोक्तिभिः ।\
 > सम्पद्यतेऽर्थाशयलिङ्गनामभिर्विशुद्धविज्ञानघनः स्वरूपतः ॥३४॥
 
-> asāv ihāneka-guṇo 'guṇo 'dhvaraḥ
-> pṛthag-vidha-dravya-guṇa-kriyoktibhiḥ
-> sampadyate 'rthāśaya-liṅga-nāmabhir
+> asāv ihāneka-guṇo 'guṇo 'dhvaraḥ\
+> pṛthag-vidha-dravya-guṇa-kriyoktibhiḥ\
+> sampadyate 'rthāśaya-liṅga-nāmabhir\
 > viśuddha-vijñāna-ghanaḥ svarūpataḥ
 
 *asau*—the Supreme Personality of Godhead; *iha*—in this material world; *aneka*—various; *guṇaḥ*—qualities; *aguṇaḥ*—transcendental; *adhvaraḥ*—*yajña*; *pṛthak-vidha*—varieties; *dravya*—physical elements; *guṇa*—ingredients; *kriyā*—performances; *uktibhiḥ*—by chanting different *mantras*; *sampadyate*—is worshiped; *artha*—interest; *āśaya*—purpose; *liṅga*—form; *nāmabhiḥ*—name; *viśuddha*—without contamination; *vijñāna*—science; *ghanaḥ*—concentrated; *sva-rūpataḥ*—in His own form.

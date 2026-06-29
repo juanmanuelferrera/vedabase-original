@@ -1,9 +1,9 @@
 ### CC Madhya 3.180
 
-> প্রভুর নিবেদন তাঁরে সকল কহিল ।
+> প্রভুর নিবেদন তাঁরে সকল কহিল ।\
 > শুনি’ শচী জগন্মাতা কহিতে লাগিল ॥১৮০॥
 
-> prabhura nivedana tāṅre sakala kahila
+> prabhura nivedana tāṅre sakala kahila\
 > śuni' śacī jagan-mātā kahite lāgila
 
 *prabhura*—del Señor; *nivedana*—petición; *tāṅre*—a ella; *sakala*—toda; *kahila*—contaron; *śuni'*—al oír esto; *śacī*—la madre Śacī; *jagat-mātā*—la madre del universo; *kahite*—a decir; *lāgila*—comenzó.

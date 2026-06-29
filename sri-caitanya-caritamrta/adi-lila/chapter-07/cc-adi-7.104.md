@@ -1,9 +1,9 @@
 ### CC Adi 7.104
 
-> তোমার বচন শুনি’ জুড়ায় শ্রবণ ।
+> তোমার বচন শুনি’ জুড়ায় শ্রবণ ।\
 > তোমার মাধুরী দেখি’ জুড়ায় নয়ন ॥১০৪॥
 
-> tomāra vacana śuni' juḍāya śravaṇa
+> tomāra vacana śuni' juḍāya śravaṇa\
 > tomāra mādhurī dekhi' juḍāya nayana
 
 *tomāra*—Your; *vacana*—speeches; *śuni'*—hearing; *juḍāya*—very much satisfied; *śravaṇa*—aural reception; *tomāra*—Your; *mādhurī*—nectar; *dekhi'*—seeing; *juḍāya*—satisfies; *nayana*—our eyes.

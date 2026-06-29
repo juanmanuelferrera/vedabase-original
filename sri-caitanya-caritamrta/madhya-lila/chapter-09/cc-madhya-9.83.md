@@ -1,9 +1,9 @@
 ### CC Madhya 9.83
 
-> নিজ-ঘরে লঞা কৈল পাদপ্রক্ষালন ।
+> নিজ-ঘরে লঞা কৈল পাদপ্রক্ষালন ।\
 > সেই জল লঞা কৈল সবংশে ভক্ষণ ॥৮৩॥
 
-> nija-ghare lañā kaila pāda-prakṣālana
+> nija-ghare lañā kaila pāda-prakṣālana\
 > sei jala lañā kaila sa-vaṁśe bhakṣaṇa
 
 *nija-ghare*—to his own home; *lañā*—bringing; *kaila*—did; *pāda-prakṣālana*—washing of the feet; *sei jala*—that water; *lañā*—taking; *kaila*—did; *sa-vaṁśe*—with all the family members; *bhakṣaṇa*—drinking.

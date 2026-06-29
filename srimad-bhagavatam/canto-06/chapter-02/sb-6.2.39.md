@@ -1,12 +1,12 @@
 ### SB 6.2.39
 
-> श्रीशुक उवाच
-> इति जातसुनिर्वेदः क्षणसङ्गेन साधुषु
+> श्रीशुक उवाच\
+> इति जातसुनिर्वेदः क्षणसङ्गेन साधुषु\
 > गङ्गाद्वारमुपेयाय मुक्तसर्वानुबन्धनः ॥३९॥
 
-> iti jāta-sunirvedaḥ
-> kṣaṇa-saṅgena sādhuṣu
-> gaṅgā-dvāram upeyāya
+> iti jāta-sunirvedaḥ\
+> kṣaṇa-saṅgena sādhuṣu\
+> gaṅgā-dvāram upeyāya\
 > mukta-sarvānubandhanaḥ
 
 *iti*—thus; *jāta-sunirvedaḥ*—(Ajāmila) who had become detached from the material conception of life; *kṣaṇa-saṅgena*—by a moment's association; *sādhuṣu*—with devotees; *gaṅgā-dvāram*—to Hardwar (*hari-dvāra*), the doorway to Hari (because the Ganges begins there, Hardwar is also called *gaṅgā-dvāra*); *upeyāya*—went; *mukta*—being freed from; *sarva-anubandhanaḥ*—all kinds of material bondage.

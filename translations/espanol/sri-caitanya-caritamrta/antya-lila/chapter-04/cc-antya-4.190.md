@@ -1,9 +1,9 @@
 ### CC Antya 4.190
 
-> আলিঙ্গিয়া কৈলা তার কন্দর্প-সম অঙ্গ ।
+> আলিঙ্গিয়া কৈলা তার কন্দর্প-সম অঙ্গ ।\
 > বুঝিতে না পারি তোমার কৃপার তরঙ্গ ।।” ॥ ১৯০ ॥
 
-> āliṅgiyā kailā tāra kandarpa-sama aṅga
+> āliṅgiyā kailā tāra kandarpa-sama aṅga\
 > bujhite nā pāri tomāra kṛpāra taraṅga"
 
 *āliṅgiyā*—al abrazar; *kailā*—hiciste; *tāra*—su; *kandarpa-sama*—tan hermoso como Cupido; *aṅga*—cuerpo; *bujhite nā pāri*—no podemos comprender; *tomāra*—Tus; *kṛpāra taraṅga*—olas de misericordia.

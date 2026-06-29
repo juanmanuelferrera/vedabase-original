@@ -1,9 +1,9 @@
 ### CC Antya 11.27
 
-> হীন-জাতি জন্ম মোর নিন্দ্য-কলেবর ।
+> হীন-জাতি জন্ম মোর নিন্দ্য-কলেবর ।\
 > হীনকর্মে রত মুঞি অধম পামর ॥২৭॥
 
-> hīna-jāti janma mora nindya-kalevara
+> hīna-jāti janma mora nindya-kalevara\
 > hīna-karme rata muñi adhama pāmara
 
 *hīna-jāti*—en una familia baja; *janma mora*—mi nacimiento; *nindya*—abominable; *kalevara*—cuerpo; *hīna-karme*—en actividades bajas; *rata muñi*—estoy plenamente ocupado; *adhama*—el más bajo de los hombres; *pāmara*—el más condenado.

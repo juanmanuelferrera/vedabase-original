@@ -1,6 +1,6 @@
-> oṁ pūrṇam adaḥ pūrṇam idaṁ
-> pūrṇāt pūrṇam udacyate
-> pūrṇasya pūrṇam ādāya
+> oṁ pūrṇam adaḥ pūrṇam idaṁ\
+> pūrṇāt pūrṇam udacyate\
+> pūrṇasya pūrṇam ādāya\
 > pūrṇam evāvaśiṣyate
 
 *oṁ*—el Todo Completo; *pūrṇam*—perfectamente completo; *adaḥ*—aquello; *pūrṇam*—perfectamente completo; *idam*—este mundo fenoménico; *pūrṇāt*—del todo perfecto; *pūrṇam*—unidad completa; *udacyate*—se produce; *pūrṇasya*—del Todo Completo; *pūrṇam*—completamente, todo; *ādāya*—habiendo sido sustraído; *pūrṇam*—el equilibrio completo; *eva*—incluso; *avaśiṣyate*—permanece.

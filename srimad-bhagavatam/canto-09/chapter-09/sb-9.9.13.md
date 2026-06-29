@@ -1,11 +1,11 @@
 ### SB 9.9.13
 
-> भस्मीभूताङ्गसङ्गेन स्वर्याताः सगरात्मजाः
+> भस्मीभूताङ्गसङ्गेन स्वर्याताः सगरात्मजाः\
 > किं पुनः श्रद्धया देवीं सेवन्ते ये धृतव्रताः ॥१३॥
 
-> bhasmībhūtāṅga-saṅgena
-> svar yātāḥ sagarātmajāḥ
-> kiṁ punaḥ śraddhayā devīṁ
+> bhasmībhūtāṅga-saṅgena\
+> svar yātāḥ sagarātmajāḥ\
+> kiṁ punaḥ śraddhayā devīṁ\
 > sevante ye dhṛta-vratāḥ
 
 *bhasmībhūta-aṅga*—by the body which had been burnt to ashes; *saṅgena*—by contacting the water of the Ganges; *svaḥ yātāḥ*—went to the heavenly planets; *sagara-ātmajāḥ*—the sons of Sagara; *kim*—what to speak of; *punaḥ*—again; *śraddhayā*—with faith and devotion; *devīm*—unto mother Ganges; *sevante*—worship; *ye*—those persons who; *dhṛta-vratāḥ*—with vows of determination.

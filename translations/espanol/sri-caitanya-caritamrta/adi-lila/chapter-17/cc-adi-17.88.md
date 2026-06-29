@@ -1,9 +1,9 @@
 ### CC Adi 17.88
 
-> এই মত বারমাস কীর্তন-অবসানে ।
+> এই মত বারমাস কীর্তন-অবসানে ।\
 > আম্রমহোৎসব প্রভু করে দিনে দিনে ॥৮৮॥
 
-> ei mata bāra-māsa kīrtana-avasāne
+> ei mata bāra-māsa kīrtana-avasāne\
 > āmra-mahotsava prabhu kare dine dine
 
 *ei mata*—de esta manera; *bāra-māsa*—durante doce meses; *kīrtana*—canto del mantra Hare Kṛṣṇa; *avasāne*—al final; *āmra-mahā-utsava*—festival de comer mangos; *prabhu*—el Señor; *kare*—celebra; *dine dine*—cada día.

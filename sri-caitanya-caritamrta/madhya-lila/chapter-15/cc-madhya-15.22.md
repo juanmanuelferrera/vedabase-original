@@ -1,9 +1,9 @@
 ### CC Madhya 15.22
 
-> অদ্বৈত কহে, — সত্য কহি, না করিহ কোপ ।
+> অদ্বৈত কহে, — সত্য কহি, না করিহ কোপ ।\
 > লগুড় ফিরাইতে পার, তবে জানি গোপ ॥২২॥
 
-> advaita kahe,—satya kahi, nā kariha kopa
+> advaita kahe,—satya kahi, nā kariha kopa\
 > laguḍa phirāite pāra, tabe jāni gopa
 
 *advaita kahe*—Advaita Ācārya says; *satya kahi*—I speak the truth; *nā kariha kopa*—please do not be angry; *laguḍa*—stick, staff; *phirāite pāra*—if You can wheel around; *tabe jāni*—then I shall understand; *gopa*—cowherd boy.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.185
 
-> প্রভু কহে, — পূর্বে সিদ্ধ কৃষ্ণে তোমার প্রীতি ।
+> প্রভু কহে, — পূর্বে সিদ্ধ কৃষ্ণে তোমার প্রীতি ।\
 > তোমা-সঙ্গে আমা-সবার হৈল কৃষ্ণে মতি ॥১৮৫॥
 
-> prabhu kahe,-pūrve siddha kṛṣṇe tomāra prīti
+> prabhu kahe,-pūrve siddha kṛṣṇe tomāra prīti\
 > tomā-saṅge āmā-sabāra haila kṛṣṇe mati
 
 *prabhu kahe*—el Señor dijo; *pūrve*—anteriormente; *siddha*—perfeccionado; *kṛṣṇe*—en la conciencia de Kṛṣṇa; *tomāra*—tu; *prīti*—amor por Kṛṣṇa; *tomā-saṅge*—por tu asociación; *āmā-sabāra*—de todos nosotros; *haila*—hubo; *kṛṣṇe*—hacia Kṛṣṇa; *mati*—conciencia.

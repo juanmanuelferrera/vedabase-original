@@ -1,9 +1,9 @@
 ### CC Antya 9.92
 
-> রাজ-কড়ি না দেয়, আমারে ফুকারে ।
+> রাজ-কড়ি না দেয়, আমারে ফুকারে ।\
 > এই মহাদুঃখ ইঁহা কে সহিতে পারে ? ॥ ৯২ ॥
 
-> rājā-kaḍi nā deya, āmāre phukāre
+> rājā-kaḍi nā deya, āmāre phukāre\
 > ei mahā-duḥkha ihāṅ ke sahite pāre?
 
 *rājā-kaḍi*—the revenue of the King; *nā deya*—does not pay; *āmāre*—to Me; *phu-kāre*—cries; *ei*—this; *mahā-duḥkha*—great unhappiness; *ihāṅ*—here; *ke sahite pāre*—who can tolerate.

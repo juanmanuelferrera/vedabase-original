@@ -1,11 +1,11 @@
 ### SB 9.5.4
 
-> सुदर्शन नमस्तुभ्यं सहस्राराच्युतप्रिय
+> सुदर्शन नमस्तुभ्यं सहस्राराच्युतप्रिय\
 > सर्वास्त्रघातिन्विप्राय स्वस्ति भूया इडस्पते ॥४॥
 
-> sudarśana namas tubhyaṁ
-> sahasrārācyuta-priya
-> sarvāstra-ghātin viprāya
+> sudarśana namas tubhyaṁ\
+> sahasrārācyuta-priya\
+> sarvāstra-ghātin viprāya\
 > svasti bhūyā iḍaspate
 
 *sudarśana*—¡oh, visión original de la Suprema Personalidad de Dios!; *namaḥ*—reverencias respetuosas; *tubhyam*—a ti; *sahasra-ara*—¡oh, tú, que tienes miles de radios!; *acyuta-priya*—¡oh, predilecto de la Suprema Personalidad de Dios!; *sarva-astra-ghātin*—¡oh, destructor de todas las armas!; *viprāya*—con este *brāhmaṇa*; *svasti*—muy auspicioso; *bhūyāḥ*—sé; *iḍaspate*—¡oh, señor del mundo material!.

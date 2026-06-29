@@ -1,9 +1,9 @@
 ### CC Antya 17.69
 
-> সর্বভাবে ভজ, লোক, চৈতন্য-চরণ ।
+> সর্বভাবে ভজ, লোক, চৈতন্য-চরণ ।\
 > যাহা হৈতে পাইবা কৃষ্ণপ্রেমামৃত-ধন ॥৬৯॥
 
-> sarva-bhāve bhaja, loka, caitanya-caraṇa
+> sarva-bhāve bhaja, loka, caitanya-caraṇa\
 > yāhā haite pāibā kṛṣṇa-premāmṛta-dhana
 
 *sarva-bhāve*—en todos los aspectos; *bhaja*—adorad; *loka*—¡oh, mundo entero!; *caitanya-caraṇa*—los pies de loto de Śrī Caitanya Mahāprabhu; *yāhā haite*—por lo cual; *pāibā*—obtendréis; *kṛṣṇa-prema*—del amor por Kṛṣṇa; *amṛta*—del néctar; *dhana*—el tesoro.

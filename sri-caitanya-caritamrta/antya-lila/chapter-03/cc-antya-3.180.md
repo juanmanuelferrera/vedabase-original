@@ -1,9 +1,9 @@
 ### CC Antya 3.180
 
-> আনুষঙ্গিক ফল নামের — ‘মুক্তি’, ‘পাপনাশ’ ।
+> আনুষঙ্গিক ফল নামের — ‘মুক্তি’, ‘পাপনাশ’ ।\
 > তাহার দৃষ্টান্ত যৈছে সূর্যের প্রকাশ ॥১৮০॥
 
-> ānuṣaṅgika phala nāmera—'mukti', 'pāpa-nāśa'
+> ānuṣaṅgika phala nāmera—'mukti', 'pāpa-nāśa'\
 > tāhāra dṛṣṭānta yaiche sūryera prakāśa
 
 *ānuṣaṅgika*—concomitant; *phala*—result; *nāmera*—of the holy name; *mukti*—liberation; *pāpa-nāśa*—extinction of the resultant actions of sinful life; *tāhāra*—of that; *dṛṣṭānta*—example; *yaiche*—as; *sūryera prakāśa*—light of the sun.

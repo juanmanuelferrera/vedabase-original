@@ -1,11 +1,11 @@
 ### SB 3.20.22
 
-> देवताः प्रभया या या दीव्यन्प्रमुखतोऽसृजत् ।
+> देवताः प्रभया या या दीव्यन्प्रमुखतोऽसृजत् ।\
 > ते अहार्षुर्देवयन्तो विसृष्टां तां प्रभामहः ॥२२॥
 
-> devatāḥ prabhayā yā yā
-> dīvyan pramukhato 'sṛjat
-> te ahārṣur devayanto
+> devatāḥ prabhayā yā yā\
+> dīvyan pramukhato 'sṛjat\
+> te ahārṣur devayanto\
 > visṛṣṭāṁ tāṁ prabhām ahaḥ
 
 *devatāḥ*—the demigods; *prabhayā*—with the glory of light; *yāḥ yāḥ*—those who; *dīvyan*—shining; *pramukhataḥ*—chiefly; *asṛjat*—created; *te*—they; *ahārṣuḥ*—took possession of; *devayantaḥ*—being active; *visṛṣṭām*—separated; *tām*—that; *prabhām*—effulgent form; *ahaḥ*—daytime.

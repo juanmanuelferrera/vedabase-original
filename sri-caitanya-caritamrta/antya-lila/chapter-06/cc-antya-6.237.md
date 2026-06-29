@@ -1,9 +1,9 @@
 ### CC Antya 6.237
 
-> অমানী মানদ হঞা কৃষ্ণনাম সদা ল’বে  ।
+> অমানী মানদ হঞা কৃষ্ণনাম সদা ল’বে  ।\
 > ব্রজে রাধাকৃষ্ণ-সেবা মানসে করিবে ॥২৩৭॥
 
-> amānī mānada hañā kṛṣṇa-nāma sadā la'be
+> amānī mānada hañā kṛṣṇa-nāma sadā la'be\
 > vraje rādhā-kṛṣṇa-sevā mānase karibe
 
 *amānī*—not expecting any respect; *māna-da*—offering respect to others; *hañā*—becoming; *kṛṣṇa-nāma*—the holy name of the Lord; *sadā*—always; *la'be*—you should chant; *vraje*—in Vṛndāvana; *rādhā-kṛṣṇa-sevā*—service to Rādhā and Kṛṣṇa; *mānase*—within the mind; *karibe*—you should do.

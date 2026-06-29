@@ -1,9 +1,9 @@
 ### CC Antya 6.71
 
-> হেনকালে আইলা তথা রাঘব পণ্ডিত ।
+> হেনকালে আইলা তথা রাঘব পণ্ডিত ।\
 > হাসিতে লাগিলা দেখি’ হঞা বিস্মিত ॥৭১॥
 
-> hena-kāle āilā tathā rāghava paṇḍita
+> hena-kāle āilā tathā rāghava paṇḍita\
 > hāsite lāgilā dekhi' hañā vismita
 
 *hena-kāle*—at this time; *āilā*—arrived; *tathā*—there; *rāghava paṇḍita*—the great scholar named Rāghava paṇḍita; *hāsite lāgilā*—began to laugh; *dekhi'*—seeing; *hañā vismita*—being astonished.

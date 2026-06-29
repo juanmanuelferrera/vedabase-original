@@ -1,11 +1,11 @@
 ### Bg 4.25
 
-> दैवमेवापरे यज्ञं योगिनः पर्युपासते ।
+> दैवमेवापरे यज्ञं योगिनः पर्युपासते ।\
 > ब्रह्माग्नावपरे यज्ञं यज्ञेनैवोपजुह्वति ॥२५॥
 
-> daivam evāpare yajñaṁ
-> yoginaḥ paryupāsate
-> brahmāgnāv apare yajñaṁ
+> daivam evāpare yajñaṁ\
+> yoginaḥ paryupāsate\
+> brahmāgnāv apare yajñaṁ\
 > yajñenaivopajuhvati
 
 *daivam*—en la adoración a los semidioses; *eva*—así; *apare*—algunos; *yajñam*—sacrificios; *yoginaḥ*—los místicos; *paryupāsate*—adoran perfectamente; *brahma*—la Verdad Absoluta; *agnau*—en el fuego de; *apare*—otros; *yajñam*—sacrificio; *yajñena*—mediante el sacrificio; *eva*—así; *upajuhvati*—adoran.

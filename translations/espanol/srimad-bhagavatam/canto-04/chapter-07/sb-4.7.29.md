@@ -1,15 +1,15 @@
 ### SB 4.7.29
 
-> रुद्र उवाच
-> तव वरद वराङ्घ्रावाशिषेहाखिलार्थे
-> ह्यपि मुनिभिरसक्तैरादरेणार्हणीये ।
-> यदि रचितधियं माविद्यलोकोऽपविद्धं
+> रुद्र उवाच\
+> तव वरद वराङ्घ्रावाशिषेहाखिलार्थे\
+> ह्यपि मुनिभिरसक्तैरादरेणार्हणीये ।\
+> यदि रचितधियं माविद्यलोकोऽपविद्धं\
 > जपति न गणये तत्त्वत्परानुग्रहेण ॥२९॥
 
-> rudra uvāca
-> tava varada varāṅghrāv āśiṣehākhilārthe
-> hy api munibhir asaktair ādareṇārhaṇīye
-> yadi racita-dhiyaṁ māvidya-loko 'paviddhaṁ
+> rudra uvāca\
+> tava varada varāṅghrāv āśiṣehākhilārthe\
+> hy api munibhir asaktair ādareṇārhaṇīye\
+> yadi racita-dhiyaṁ māvidya-loko 'paviddhaṁ\
 > japati na gaṇaye tat tvat-parānugraheṇa
 
 *rudraḥ uvāca*—el Señor Śiva dijo; *tava*—Tus; *vara-da*—¡oh, benefactor supremo!; *vara-aṅghrau*—preciosos pies de loto; *āśiṣā*—con deseo; *iha*—en el mundo material; *akhila-arthe*—para satisfacción; *hi api*—ciertamente; *munibhiḥ*—por los sabios; *asaktaiḥ*—liberados; *ādareṇa*—con cuidado; *arhaṇīye*—dignos de adoración; *yadi*—si; *racita-dhiyam*—mente fija; *mā*—yo; *avidya-lokaḥ*—las personas ignorantes; *apaviddham*—actividad impura; *japati*—pronuncia; *na gaṇaye*—no doy valor; *tat*—a eso; *tvat-para-anugraheṇa*—por una compasión como la Tuya.

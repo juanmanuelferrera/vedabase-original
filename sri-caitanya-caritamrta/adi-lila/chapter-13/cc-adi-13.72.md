@@ -1,9 +1,9 @@
 ### CC Adi 13.72
 
-> জগন্নাথমিশ্র-পত্নী শচীর উদরে ।
+> জগন্নাথমিশ্র-পত্নী শচীর উদরে ।\
 > অষ্ট কন্যা ক্রমে হৈল, জন্মি’ জন্মি’ মরে ॥৭২॥
 
-> jagannāthamiśra-patnī śacīra udare
+> jagannāthamiśra-patnī śacīra udare\
 > aṣṭa kanyā krame haila, janmi' janmi' mare
 
 *jagannātha-miśra*—of the name Jagannātha Miśra; *patnī*—his wife; *śacīra*—of Śacīmātā; *udare*—within the womb; *aṣṭa*—eight; *kanyā*—daughters; *krame*—one after another; *haila*—appeared; *janmi'*—after taking birth; *janmi'*—after taking birth; *mare*—all died.

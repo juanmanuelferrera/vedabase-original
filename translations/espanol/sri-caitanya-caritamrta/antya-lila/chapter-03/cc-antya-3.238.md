@@ -1,9 +1,9 @@
 ### CC Antya 3.238
 
-> এত বলি’ নানা-ভাব করয়ে প্রকাশ ।
+> এত বলি’ নানা-ভাব করয়ে প্রকাশ ।\
 > যাহার দর্শনে মুনির হয় ধৈর্যনাশ ॥২৩৮॥
 
-> eta bali' nānā-bhāva karaye prakāśa
+> eta bali' nānā-bhāva karaye prakāśa\
 > yāhāra darśane munira haya dhairya-nāśa
 
 *eta bali'*—al decir esto; *nānā-bhāva*—diversas posturas; *karaye prakāśa*—comenzó a manifestar; *yāhāra darśane*—al contemplar las cuales; *munira*—incluso de los grandes filósofos; *haya*—hay; *dhairya-nāśa*—pérdida de la paciencia.

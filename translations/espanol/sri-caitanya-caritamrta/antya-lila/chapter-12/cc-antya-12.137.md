@@ -1,9 +1,9 @@
 ### CC Antya 12.137
 
-> বার বার প্রভু উঠিতে করেন মন ।
+> বার বার প্রভু উঠিতে করেন মন ।\
 > সেইকালে পণ্ডিত পরিবেশে ব্যঞ্জন ॥১৩৭॥
 
-> bāra-bāra prabhu uṭhite karena mana
+> bāra-bāra prabhu uṭhite karena mana\
 > sei-kāle paṇḍita pariveśe vyañjana
 
 *bāra-bāra*—una y otra vez; *prabhu*—Śrī Caitanya Mahāprabhu; *uṭhite*—levantarse; *karena mana*—deseaba; *sei-kāle*—en ese momento; *paṇḍita*—Jagadānanda Paṇḍita; *pariveśe*—sirve; *vyañjana*—verduras.

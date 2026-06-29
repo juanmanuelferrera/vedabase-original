@@ -1,9 +1,9 @@
 ### CC Madhya 17.180
 
-> তথাপি পুরী দেখি’ তাঁর ‘বৈষ্ণব’-আচার ।
+> তথাপি পুরী দেখি’ তাঁর ‘বৈষ্ণব’-আচার ।\
 > ‘শিষ্য’ করি’ তাঁর ভিক্ষা কৈল অঙ্গীকার ॥১৮০॥
 
-> tathāpi purī dekhi' tāṅra 'vaiṣṇava,-ācāra
+> tathāpi purī dekhi' tāṅra 'vaiṣṇava,-ācāra\
 > 'śiṣya' kari' tāṅra bhikṣā kaila aṅgīkāra
 
 *tathāpi*—aun así; *purī*—Mādhavendra Purī; *dekhi'*—tras ver; *tāṅra*—del brāhmaṇa; *vaiṣṇava-ācāra*—comportamiento propio de un vaiṣṇava; *śiṣya kari'*—aceptándolo como su discípulo; *tāṅra bhikṣā*—el alimento ofrecido por él; *kaila aṅgīkāra*—aceptó.

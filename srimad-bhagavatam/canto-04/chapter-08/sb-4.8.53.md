@@ -1,11 +1,11 @@
 ### SB 4.8.53
 
-> जपश्च परमो गुह्यः श्रूयतां मे नृपात्मज ।
+> जपश्च परमो गुह्यः श्रूयतां मे नृपात्मज ।\
 > यं सप्तरात्रं प्रपठन्पुमान्पश्यति खेचरान् ॥५३॥
 
-> japaś ca paramo guhyaḥ
-> śrūyatāṁ me nṛpātmaja
-> yaṁ sapta-rātraṁ prapaṭhan
+> japaś ca paramo guhyaḥ\
+> śrūyatāṁ me nṛpātmaja\
+> yaṁ sapta-rātraṁ prapaṭhan\
 > pumān paśyati khecarān
 
 *japaḥ ca*—the chanting *mantra* in this connection; *paramaḥ*—very, very; *guhyaḥ*—confidential; *śrūyatām*—please hear; *me*—from me; *nṛpa-ātmaja*—O son of the King; *yam*—which; *sapta-rātram*—seven nights; *prapaṭhan*—chanting; *pumān*—a person; *paśyati*—can see; *khe-carān*—human beings who travel in space.

@@ -1,11 +1,11 @@
 ### SB 8.11.47
 
-> तत्राविनष्टावयवान्विद्यमानशिरोधरान
+> तत्राविनष्टावयवान्विद्यमानशिरोधरान\
 > उशना जीवयामास संजीवन्या स्वविद्यया ॥४७॥
 
-> tatrāvinaṣṭāvayavān
-> vidyamāna-śirodharān
-> uśanā jīvayām āsa
+> tatrāvinaṣṭāvayavān\
+> vidyamāna-śirodharān\
+> uśanā jīvayām āsa\
 > saṁjīvanyā sva-vidyayā
 
 *tatra*—on that hill; *avinaṣṭa-avayavān*—the demons who had been killed but whose bodily parts had not been lost; *vidyamāna-śirodharān*—whose heads were still existing on their bodies; *uśanāḥ*—Śukrācārya; *jīvayām āsa*—brought to life; *saṁjīvanyā*—by the Saṁjīvanī *mantra*; *sva-vidyayā*—by his own achievement.

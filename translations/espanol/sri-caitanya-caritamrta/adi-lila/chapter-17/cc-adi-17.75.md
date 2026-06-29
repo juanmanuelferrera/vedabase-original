@@ -1,9 +1,9 @@
 ### CC Adi 17.75
 
-> জ্ঞান-কর্ম-যোগ-ধর্মে নহে কৃষ্ণ বশ ।
+> জ্ঞান-কর্ম-যোগ-ধর্মে নহে কৃষ্ণ বশ ।\
 > কৃষ্ণবশ-হেতু এক — প্রেমভক্তি-রস ॥৭৫॥
 
-> jñāna-karma-yoga-dharme nahe kṛṣṇa vaśa
+> jñāna-karma-yoga-dharme nahe kṛṣṇa vaśa\
 > kṛṣṇa-vaśa-hetu eka--prema-bhakti-rasa
 
 *jñāna*—el sendero del conocimiento especulativo; *karma*—actividades fruitivas; *yoga*—el proceso de controlar los sentidos; *dharme*—en las actividades, en tal ocupación; *nahe*—no está; *kṛṣṇa*—el Señor Kṛṣṇa; *vaśa*—complacido; *kṛṣṇa*—del Señor Kṛṣṇa; *vaśa*—para la satisfacción; *hetu*—razón; *eka*—una; *prema*—amor; *bhakti*—servicio devocional; *rasa*—tal melosidad.

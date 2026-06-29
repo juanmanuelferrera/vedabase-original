@@ -1,9 +1,9 @@
 ### CC Madhya 9.359
 
-> অনন্ত চৈতন্যলীলা কহিতে না জানি ৷
+> অনন্ত চৈতন্যলীলা কহিতে না জানি ৷\
 > লোভে লজ্জা খাঞা তার করি টানাটানি ৷৷ ৩৫৯ ৷৷ ॥৩৫৯॥
 
-> ananta caitanya-līlā kahite nā jāni
+> ananta caitanya-līlā kahite nā jāni\
 > lobhe lajjā khāñā tāra kari ṭānāṭāni
 
 *ananta*—ilimitados; *caitanya-līlā*—pasatiempos del Señor Caitanya; *kahite*—relatar; *nā jāni*—no sé; *lobhe*—por codicia; *lajjā khāñā*—volviéndome desvergonzado; *tāra*—de ellos; *kari*—hago; *ṭānāṭāni*—tan solo un intento.

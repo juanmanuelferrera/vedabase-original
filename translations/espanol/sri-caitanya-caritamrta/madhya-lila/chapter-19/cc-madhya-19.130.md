@@ -1,9 +1,9 @@
 ### CC Madhya 19.130
 
-> অষ্টপ্রহর কৃষ্ণভজন, চারি দণ্ড শয়নে ৷
+> অষ্টপ্রহর কৃষ্ণভজন, চারি দণ্ড শয়নে ৷\
 > নাম-সঙ্কীর্তনে সেহ নহে কোন দিনে ।।” ॥ ১৩০ ॥
 
-> aṣṭa-prahara kṛṣṇa-bhajana, cāri daṇḍa śayane
+> aṣṭa-prahara kṛṣṇa-bhajana, cāri daṇḍa śayane\
 > nāma-saṅkīrtane seha nahe kona dine
 
 *aṣṭa-prahara*—veinticuatro horas; *kṛṣṇa-bhajana*—adoración del Señor Kṛṣṇa; *cāri daṇḍa*—cuatro *daṇḍas* (un *daṇḍa* equivale a veinticuatro minutos); *śayane*—para dormir; *nāma-saṅkīrtane*—por cantar el santo nombre del Señor; *seha*—tanto tiempo; *nahe*—no; *kona dine*—algunos días.

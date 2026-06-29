@@ -1,9 +1,9 @@
 ### CC Adi 8.5
 
-> মূক কবিত্ব করে যাঁ-সবার স্মরণে ।
+> মূক কবিত্ব করে যাঁ-সবার স্মরণে ।\
 > পঙ্গু গিরি লঙ্ঘে, অন্ধ দেখে তারাগণে ॥৫॥
 
-> mūka kavitva kare yāṅ-sabāra smaraṇe
+> mūka kavitva kare yāṅ-sabāra smaraṇe\
 > paṅgu giri laṅghe, andha dekhe tārā-gaṇe
 
 *mūka*—mudo; *kavitva*—poeta; *kare*—se vuelve; *yāṅ*—de quienes; *sabāra*—de todos; *smaraṇe*—al recordar; *paṅgu*—el cojo; *giri*—montañas; *laṅghe*—cruza; *andha*—el ciego; *dekhe*—ve; *tārā-gaṇe*—las estrellas.

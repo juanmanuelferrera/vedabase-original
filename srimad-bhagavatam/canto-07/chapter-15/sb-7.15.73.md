@@ -1,11 +1,11 @@
 ### SB 7.15.73
 
-> तावद्दास्यामहं जज्ञए तत्रापि ब्रह्मवादिनाम
+> तावद्दास्यामहं जज्ञए तत्रापि ब्रह्मवादिनाम\
 > शुश्रूषयानुषङ्गेण प्राप्तोऽहं ब्रह्मपुत्रताम ॥७३॥
 
-> tāvad dāsyām ahaṁ jajñe
-> tatrāpi brahma-vādinām
-> śuśrūṣayānuṣaṅgeṇa
+> tāvad dāsyām ahaṁ jajñe\
+> tatrāpi brahma-vādinām\
+> śuśrūṣayānuṣaṅgeṇa\
 > prāpto 'haṁ brahma-putratām
 
 *tāvat*—since being cursed; *dāsyām*—in the womb of a maidservant; *aham*—I; *jajñe*—took birth; *tatrāpi*—although (being a *śūdra*); *brahma-vādinām*—unto persons well conversant with the Vedic knowledge; *śuśrūṣayā*—by rendering service; *anuṣaṅgeṇa*—simultaneously; *prāptaḥ*—obtained; *aham*—I; *brahma-putratām*—a birth as the son of Lord Brahmā (in this life).

@@ -1,11 +1,11 @@
 ### SB 4.18.32
 
-> प्राक्पृथोरिह नैवैषा पुरग्रामादिकल्पना ।
+> प्राक्पृथोरिह नैवैषा पुरग्रामादिकल्पना ।\
 > यथासुखं वसन्ति स्म तत्र तत्राकुतोभयाः ॥३२॥
 
-> prāk pṛthor iha naivaiṣā
-> pura-grāmādi-kalpanā
-> yathā-sukhaṁ vasanti sma
+> prāk pṛthor iha naivaiṣā\
+> pura-grāmādi-kalpanā\
+> yathā-sukhaṁ vasanti sma\
 > tatra tatrākutobhayāḥ
 
 *prāk*—antes; *pṛthoḥ*—del rey Pṛthu; *iha*—en este planeta; *na*—nunca; *eva*—ciertamente; *eṣā*—esta; *pura*—de ciudades; *grāma-ādi*—de pueblos, etc.; *kalpanā*—planificación organizada; *yathā*—como; *sukham*—conveniente; *vasanti sma*—vivían; *tatra tatra*—aquí y allá; *akutaḥ-bhayāḥ*—sin titubeos.

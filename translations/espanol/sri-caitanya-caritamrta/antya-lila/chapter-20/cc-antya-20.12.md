@@ -1,13 +1,13 @@
 ### CC Antya 20.12
 
-> চেতোদর্পণমার্জনং ভবমহাদাবাগ্নিনির্বাপণং
-> শ্রেয়ঃকৈরবচন্দ্রিকাবিতরণং বিদ্যাবধূজীবনম্ ।
-> আনন্দাম্বুধিবর্ধনং প্রতিপদং পূর্ণামৃতাস্বাদনং
+> চেতোদর্পণমার্জনং ভবমহাদাবাগ্নিনির্বাপণং\
+> শ্রেয়ঃকৈরবচন্দ্রিকাবিতরণং বিদ্যাবধূজীবনম্ ।\
+> আনন্দাম্বুধিবর্ধনং প্রতিপদং পূর্ণামৃতাস্বাদনং\
 > সর্বাত্মস্নপনং পরং বিজয়তে শ্রীকৃষ্ণসঙ্কীর্তনম্ ॥১২॥
 
-> ceto-darpaṇa-mārjanaṁ bhava-mahā-dāvāgni-nirvāpaṇaṁ
-> śreyaḥ-kairava-candrikā-vitaraṇaṁ vidyā-vadhū-jīvanam
-> ānandāmbudhi-vardhanaṁ prati-padaṁ pūrṇāmṛtāsvādanaṁ
+> ceto-darpaṇa-mārjanaṁ bhava-mahā-dāvāgni-nirvāpaṇaṁ\
+> śreyaḥ-kairava-candrikā-vitaraṇaṁ vidyā-vadhū-jīvanam\
+> ānandāmbudhi-vardhanaṁ prati-padaṁ pūrṇāmṛtāsvādanaṁ\
 > sarvātma-snapanaṁ paraṁ vijayate śrī-kṛṣṇa-saṅkīrtanam
 
 *cetaḥ*—del corazón; *darpaṇa*—el espejo; *mārjanam*—limpieza; *bhava*—de la existencia material; *mahā-dāvāgni*—el ardiente incendio forestal; *nirvāpaṇam*—extinción; *śreyaḥ*—de la buena fortuna; *kairava*—el loto blanco; *candrikā*—el resplandor de la luna; *vitaraṇam*—difusión; *vidyā*—de toda educación; *vadhū*—esposa; *jīvanam*—la vida; *ānanda*—de la bienaventuranza; *ambudhi*—el océano; *vardhanam*—aumento; *prati-padam*—a cada paso; *pūrṇa-amṛta*—del néctar pleno; *āsvādanam*—dar un sabor; *sarva*—para todos; *ātma-snapanam*—baño del ser; *param*—trascendental; *vijayate*—que haya victoria; *śrī-kṛṣṇa-saṅkīrtanam*—para el canto congregacional del santo nombre de Kṛṣṇa.

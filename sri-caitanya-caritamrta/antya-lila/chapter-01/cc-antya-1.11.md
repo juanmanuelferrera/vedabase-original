@@ -1,9 +1,9 @@
 ### CC Antya 1.11
 
-> আমি জরাগ্রস্ত, নিকটে জানিয়া মরণ ।
+> আমি জরাগ্রস্ত, নিকটে জানিয়া মরণ ।\
 > অন্ত্য কোনো কোনো লীলা করিয়াছি বর্ণন ॥১১॥
 
-> āmi jarā-grasta, nikaṭe jāniyā maraṇa
+> āmi jarā-grasta, nikaṭe jāniyā maraṇa\
 > antya kono kono līlā kariyāchi varṇana
 
 *āmi jarā-grasta*—I am invalid because of old age; *nikaṭe*—very near; *jāniyā*—knowing; *maraṇa*—death; *antya*—final; *kono kono*—some; *līlā*—pastimes; *kariyāchi varṇana*—I have described

@@ -1,11 +1,11 @@
 ### SB 8.22.33
 
-> इन्द्रसेन महाराज याहि भो भद्रमस्तु ते
+> इन्द्रसेन महाराज याहि भो भद्रमस्तु ते\
 > सुतलं स्वर्गिभिः प्रार्थ्यं ज्ञआतिभिः परिवारितः ॥३३॥
 
-> indrasena mahārāja
-> yāhi bho bhadram astu te
-> sutalaṁ svargibhiḥ prārthyaṁ
+> indrasena mahārāja\
+> yāhi bho bhadram astu te\
+> sutalaṁ svargibhiḥ prārthyaṁ\
 > jñātibhiḥ parivāritaḥ
 
 *indrasena*—O Mahārāja Bali; *mahārāja*—O King; *yāhi*—better go; *bhoḥ*—O King; *bhadram*—all auspiciousness; *astu*—let there be; *te*—unto you; *sutalam*—in the planet known as Sutala; *svargibhiḥ*—by the demigods; *prārthyam*—desirable; *jñātibhiḥ*—by your family members; *parivāritaḥ*—surrounded.

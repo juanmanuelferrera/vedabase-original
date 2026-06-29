@@ -1,9 +1,9 @@
 ### CC Antya 11.50
 
-> রামানন্দ, সার্বভৌম, সবার অগ্রেতে ।
+> রামানন্দ, সার্বভৌম, সবার অগ্রেতে ।\
 > হরিদাসের গুণ প্রভু লাগিলা কহিতে ॥৫০॥
 
-> rāmānanda, sārvabhauma, sabāra agrete
+> rāmānanda, sārvabhauma, sabāra agrete\
 > haridāsera guṇa prabhu lāgilā kahite
 
 *rāmānanda*—Rāmānanda Rāya; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *sabāra*—of all; *agrete*—in front; *haridāsera*—of Haridāsa Ṭhākura; *guṇa*—attributes; *prabhu*—Śrī Caitanya Mahāprabhu; *lāgilā kahite*—began to describe.

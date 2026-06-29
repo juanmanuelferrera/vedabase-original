@@ -1,13 +1,13 @@
 ### SB 4.24.19
 
-> मैत्रेय उवाच
-> प्रचेतसः पितुर्वाक्यं शिरसादाय साधवः ।
+> मैत्रेय उवाच\
+> प्रचेतसः पितुर्वाक्यं शिरसादाय साधवः ।\
 > दिशं प्रतीचीं प्रययुस्तपस्यादृतचेतसः ॥१९॥
 
-> maitreya uvāca
-> pracetasaḥ pitur vākyaṁ
-> śirasādāya sādhavaḥ
-> diśaṁ pratīcīṁ prayayus
+> maitreya uvāca\
+> pracetasaḥ pitur vākyaṁ\
+> śirasādāya sādhavaḥ\
+> diśaṁ pratīcīṁ prayayus\
 > tapasy ādṛta-cetasaḥ
 
 *maitreyaḥ uvāca*—the great sage Maitreya continued to speak; *pracetasaḥ*—all the sons of King Prācīnabarhi; *pituḥ*—of the father; *vākyam*—words; *śirasā*—on the head; *ādāya*—accepting; *sādhavaḥ*—all pious; *diśam*—direction; *pratīcīm*—western; *prayayuḥ*—went away; *tapasi*—in austerities; *ādṛta*—accepting seriously; *cetasaḥ*—in the heart.

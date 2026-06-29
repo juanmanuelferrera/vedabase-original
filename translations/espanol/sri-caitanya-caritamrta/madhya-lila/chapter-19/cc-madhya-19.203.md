@@ -1,9 +1,9 @@
 ### CC Madhya 19.203
 
-> ‘কেবলা’র শুদ্ধপ্রেম ‘ঐশ্বর্য’ না জানে ।
+> ‘কেবলা’র শুদ্ধপ্রেম ‘ঐশ্বর্য’ না জানে ।\
 > ঐশ্বর্য দেখিলেও নিজ-সম্বন্ধ সে মানে ॥২০৩॥
 
-> 'kevalā'ra śuddha-prema 'aiśvarya' nā jāne
+> 'kevalā'ra śuddha-prema 'aiśvarya' nā jāne\
 > aiśvarya dekhileo nija-sambandha se māne
 
 *kevalāra*—de la atracción pura por Kṛṣṇa; *śuddha-prema*—amor inmaculado; *aiśvarya*—opulencia; *nā jāne*—no conoce; *aiśvarya*—opulencia; *dekhileo*—a pesar de experimentar; *nija-sambandha*—la propia relación con Kṛṣṇa; *se māne*—toma muy en serio.

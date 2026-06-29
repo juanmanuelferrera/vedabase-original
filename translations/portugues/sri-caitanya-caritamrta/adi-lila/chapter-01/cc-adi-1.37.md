@@ -1,6 +1,6 @@
 ### CC Adi 1.37
 
-> ei chaya guru—śikṣā-guru ye āmāra
+> ei chaya guru—śikṣā-guru ye āmāra\
 > tāṅ'-sabāra pāda-padme koṭi namaskāra
 
 *ei*—estes; *chaya*—seis; *guru*—mestres espirituais; *śikṣā-guru*—mestres espirituais instrutores; *ye*—que são; *āmāra*—meus; *tāṅ'-sabāra*—de todos eles; *pāda-padme*—aos pés de lótus; *koṭi*—dez milhões; *namaskāra*—respeitosas reverências.

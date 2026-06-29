@@ -1,11 +1,11 @@
 ### SB 4.27.30
 
-> प्रज्वारोऽयं मम भ्राता त्वं च मे भगिनी भव ।
+> प्रज्वारोऽयं मम भ्राता त्वं च मे भगिनी भव ।\
 > चराम्युभाभ्यां लोकेऽस्मिन्नव्यक्तो भीमसैनिकः ॥३०॥
 
-> prajvāro 'yaṁ mama bhrātā
-> tvaṁ ca me bhaginī bhava
-> carāmy ubhābhyāṁ loke 'sminn
+> prajvāro 'yaṁ mama bhrātā\
+> tvaṁ ca me bhaginī bhava\
+> carāmy ubhābhyāṁ loke 'sminn\
 > avyakto bhīma-sainikaḥ
 
 *prajvāraḥ*—named Prajvāra; *ayam*—this; *mama*—my; *bhrātā*—brother; *tvam*—you; *ca*—also; *me*—my; *bhaginī*—sister; *bhava*—become; *carāmi*—I shall go about; *ubhābhyām*—by both of you; *loke*—in the world; *asmin*—this; *avyaktaḥ*—without being manifest; *bhīma*—dangerous; *sainikaḥ*—with soldiers.

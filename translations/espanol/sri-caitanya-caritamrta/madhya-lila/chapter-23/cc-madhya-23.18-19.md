@@ -1,18 +1,18 @@
 ### CC Madhya 23.18-19
 
-> ক্ষান্তিরব্যর্থকালত্বং বিরক্তির্মানশূন্যতা ।
-> আশাবন্ধঃ সমুৎকণ্ঠা নামগানে সদা রুচিঃ ॥১৮॥
-> আসক্তিস্তদ্গুণাখ্যানে প্রীতিস্তদ্বসতিস্থলে ।
+> ক্ষান্তিরব্যর্থকালত্বং বিরক্তির্মানশূন্যতা ।\
+> আশাবন্ধঃ সমুৎকণ্ঠা নামগানে সদা রুচিঃ ॥১৮॥\
+> আসক্তিস্তদ্গুণাখ্যানে প্রীতিস্তদ্বসতিস্থলে ।\
 > ইত্যাদয়োঽনুভাবাঃ স্যু র্জাতভাবাঙ্কুরে জনে ॥১৯॥
 
-> kṣāntir avyartha-kālatvaṁ
-> viraktir māna-śūnyatā
-> āśā-bandhaḥ samutkaṇṭhā
+> kṣāntir avyartha-kālatvaṁ\
+> viraktir māna-śūnyatā\
+> āśā-bandhaḥ samutkaṇṭhā\
 > nāma-gāne sadā ruciḥ
 
-> āsaktis tad-guṇākhyāne
-> prītis tad-vasati-sthale
-> ity ādayo 'nubhāvāḥ syur
+> āsaktis tad-guṇākhyāne\
+> prītis tad-vasati-sthale\
+> ity ādayo 'nubhāvāḥ syur\
 > jāta-bhāvāṅkure jane
 
 *kṣāntiḥ*—perdón; *avyartha-kālatvam*—estar libre de perder el tiempo; *viraktiḥ*—desapego; *māna-śūnyatā*—ausencia de prestigio falso; *āśā-bandhaḥ*—esperanza; *samutkaṇṭhā*—deseo intenso; *nāma-gāne*—en cantar los santos nombres; *sadā*—siempre; *ruciḥ*—gusto; *āsaktiḥ*—apego; *tat*—del Señor Kṛṣṇa; *guṇa-ākhyāne*—en describir las cualidades trascendentales; *prītiḥ*—afecto; *tat*—Suyos; *vasati-sthale*—por lugares de residencia (el templo o lugares sagrados); *iti*—así; *ādayaḥ*—y demás; *anubhāvāḥ*—los signos; *syuḥ*—son; *jāta*—se ha desarrollado; *bhāva-aṅkure*—cuya semilla de emoción extática; *jane*—en una persona.

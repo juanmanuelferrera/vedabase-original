@@ -1,11 +1,11 @@
 ### SB 3.1.34
 
-> अपिस्विदास्ते भगवान्सुखं वो यः सात्वतां कामदुघोऽनिरुद्धः ।
+> अपिस्विदास्ते भगवान्सुखं वो यः सात्वतां कामदुघोऽनिरुद्धः ।\
 > यमामनन्ति स्म हि शब्दयोनिं मनोमयं सत्त्वतुरीयतत्त्वम् ॥३४॥
 
-> apisvid āste bhagavān sukhaṁ vo
-> yaḥ sātvatāṁ kāma-dugho 'niruddhaḥ
-> yam āmananti sma hi śabda-yoniṁ
+> apisvid āste bhagavān sukhaṁ vo\
+> yaḥ sātvatāṁ kāma-dugho 'niruddhaḥ\
+> yam āmananti sma hi śabda-yoniṁ\
 > mano-mayaṁ sattva-turīya-tattvam
 
 *api*—as also; *svit*—whether; *āste*—does He; *bhagavān*—the Personality of Godhead; *sukham*—all happiness; *vaḥ*—of you; *yaḥ*—one who; *sātvatām*—of the devotees; *kāma-dughaḥ*—source of all desires; *aniruddhaḥ*—the plenary expansion Aniruddha; *yam*—whom; *āmananti*—they accept; *sma*—from yore; *hi*—certainly; *śabda-yonim*—the cause of the *Ṛg Veda*; *manaḥ-mayam*—creator of the mind; *sattva*—transcendental; *turīya*—the fourth expansion; *tattvam*—principle.

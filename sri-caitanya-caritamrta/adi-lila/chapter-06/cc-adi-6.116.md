@@ -1,9 +1,9 @@
 ### CC Adi 6.116
 
-> আচার্য-চরণে মোর কোটি নমস্কার ।
+> আচার্য-চরণে মোর কোটি নমস্কার ।\
 > ইথে কিছু অপরাধ না লবে আমার ॥১১৬॥
 
-> ācārya-caraṇe mora koṭi namaskāra
+> ācārya-caraṇe mora koṭi namaskāra\
 > ithe kichu aparādha nā labe āmāra
 
 *ācārya-caraṇe*—at the lotus feet of Advaita Ācārya; *mora*—my; *koṭi namaskāra*—offering obeisances ten million times; *ithe*—in this connection; *kichu*—some; *aparādha*—offense; *nā labe*—please do not take; *āmāra*—my.

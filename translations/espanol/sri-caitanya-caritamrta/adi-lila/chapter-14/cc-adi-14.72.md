@@ -1,9 +1,9 @@
 ### CC Adi 14.72
 
-> একদিন শচী-দেবী পুত্রেরে ভর্ৎসিয়া ।
+> একদিন শচী-দেবী পুত্রেরে ভর্ৎসিয়া ।\
 > ধরিবারে গেলা, পুত্র গেলা পলাইয়া ॥৭২॥
 
-> ekadina śacī-devī putrere bhartsiyā
+> ekadina śacī-devī putrere bhartsiyā\
 > dharibāre gelā, putra gelā palāiyā
 
 *eka-dina*—un día; *śacī-devī*—la madre Śacī; *putrere*—al hijo; *bhartsiyā*—regañando; *dharibāre*—para atraparlo; *gelā*—fue; *putra*—el hijo; *gelā*—se fue; *palāiyā*—corriendo.

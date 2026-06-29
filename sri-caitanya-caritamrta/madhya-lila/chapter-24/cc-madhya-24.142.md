@@ -1,11 +1,11 @@
 ### CC Madhya 24.142
 
-> য এষাং পুরুষং সাক্ষাদাত্মপ্রভবমীশ্বরম্ ।
+> য এষাং পুরুষং সাক্ষাদাত্মপ্রভবমীশ্বরম্ ।\
 > ন ভজন্ত্যবজানন্তি স্থানাদ্ভ্রষ্টাঃ পতন্ত্যধঃ ॥১৪২॥
 
-> ya eṣāṁ puruṣaṁ sākṣād
-> ātma-prabhavam īśvaram
-> na bhajanty avajānanti
+> ya eṣāṁ puruṣaṁ sākṣād\
+> ātma-prabhavam īśvaram\
+> na bhajanty avajānanti\
 > sthānād bhraṣṭāḥ patanty adhaḥ
 
 *ye*—those who; *eṣām*—of those divisions of social and spiritual orders; *puruṣam*—the Supreme Personality of Godhead; *sākṣāt*—directly; *ātma-prabhavam*—the source of everyone; *īśvaram*—the supreme controller; *na*—do not; *bhajanti*—worship; *avajānanti*—or who neglect; *sthānāt*—from their proper place; *bhraṣṭāḥ*—being fallen; *patanti*—fall; *adhaḥ*—downward into hellish conditions.

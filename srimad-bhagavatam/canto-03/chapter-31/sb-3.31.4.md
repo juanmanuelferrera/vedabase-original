@@ -1,11 +1,11 @@
 ### SB 3.31.4
 
-> चतुर्भिर्धातवः सप्त पञ्चभिः क्षुत्तृडुद्भवः ।
+> चतुर्भिर्धातवः सप्त पञ्चभिः क्षुत्तृडुद्भवः ।\
 > षड्भिर्जरायुणा वीतः कुक्षौ भ्राम्यति दक्षिणे ॥४॥
 
-> caturbhir dhātavaḥ sapta
-> pañcabhiḥ kṣut-tṛḍ-udbhavaḥ
-> ṣaḍbhir jarāyuṇā vītaḥ
+> caturbhir dhātavaḥ sapta\
+> pañcabhiḥ kṣut-tṛḍ-udbhavaḥ\
+> ṣaḍbhir jarāyuṇā vītaḥ\
 > kukṣau bhrāmyati dakṣiṇe
 
 *caturbhiḥ*—within four months; *dhātavaḥ*—ingredients; *sapta*—seven; *pañcabhiḥ*—within five months; *kṣut-tṛṭ*—of hunger and thirst; *udbhavaḥ*—appearance; *ṣaḍbhiḥ*—within six months; *jarāyuṇā*—by the amnion; *vītaḥ*—enclosed; *kukṣau*—in the abdomen; *bhrāmyati*—moves; *dakṣiṇe*—on the right side.

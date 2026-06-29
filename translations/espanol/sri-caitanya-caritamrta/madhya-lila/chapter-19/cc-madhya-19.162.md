@@ -1,9 +1,9 @@
 ### CC Madhya 19.162
 
-> ‘প্রেমফল’ পাকি’ পড়ে, মালী আস্বাদয় ।
+> ‘প্রেমফল’ পাকি’ পড়ে, মালী আস্বাদয় ।\
 > লতা অবলম্বি’ মালী ‘কল্পবৃক্ষ’ পায় ॥১৬২॥
 
-> 'prema-phala' pāki' paḍe, mālī āsvādaya
+> 'prema-phala' pāki' paḍe, mālī āsvādaya\
 > latā avalambi' mālī 'kalpa-vṛkṣa' pāya
 
 *prema-phala*—el fruto del amor por Dios; *pāki'*—madurando; *paḍe*—cae; *mālī*—el jardinero; *āsvādaya*—saborea; *latā avalambi'*—aprovechando la enredadera de *bhakti-latā* que crece; *mālī*—el jardinero; *kalpa-vṛkṣa pāya*—alcanza el árbol de los deseos en Goloka Vṛndāvana.

@@ -1,14 +1,14 @@
 ### SB 1.13.33
 
-> अम्बा च हतपुत्रार्ता पितृव्यः क्व गतः सुहृत् ।
-> अपि मय्यकृतप्रज्ञे हतबन्धुः स भार्यया ।
+> अम्बा च हतपुत्रार्ता पितृव्यः क्व गतः सुहृत् ।\
+> अपि मय्यकृतप्रज्ञे हतबन्धुः स भार्यया ।\
 > आशंसमानः शमलं गङ्गायां दुःखितोऽपतत् ॥३३॥
 
-> ambā ca hata-putrārtā
-> pitṛvyaḥ kva gataḥ suhṛt
-> api mayy akṛta-prajñe
-> hata-bandhuḥ sa bhāryayā
-> āśaṁsamānaḥ śamalaṁ
+> ambā ca hata-putrārtā\
+> pitṛvyaḥ kva gataḥ suhṛt\
+> api mayy akṛta-prajñe\
+> hata-bandhuḥ sa bhāryayā\
+> āśaṁsamānaḥ śamalaṁ\
 > gaṅgāyāṁ duḥkhito 'patat
 
 *ambā*—mother aunt; *ca*—and; *hata-putrā*—who had lost all her sons; *ārtā*—in a sorry plight; *pitṛvyaḥ*—uncle Vidura; *kva*—where; *gataḥ*—gone; *suhṛt*—well-wisher; *api*—whether; *mayi*—unto me; *akṛta-prajñe*—ungrateful; *hata-bandhuḥ*—one who has lost all his sons; *saḥ*—Dhṛtarāṣṭra; *bhāryayā*—with his wife; *āśaṁsamānaḥ*—in doubtful mind; *śamalam*—offenses; *gaṅgāyām*—in the Ganges water; *duḥkhitaḥ*—in distressed mind; *apatat*—fell down.

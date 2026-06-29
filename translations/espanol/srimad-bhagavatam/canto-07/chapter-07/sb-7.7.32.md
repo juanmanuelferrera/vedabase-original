@@ -1,11 +1,11 @@
 ### SB 7.7.32
 
-> हरिः सर्वेषु भूतेषु भगवानास्त ईश्वरः
+> हरिः सर्वेषु भूतेषु भगवानास्त ईश्वरः\
 > इति भूतानि मनसा कामैस्तैः साधु मानयेत ॥३२॥
 
-> hariḥ sarveṣu bhūteṣu
-> bhagavān āsta īśvaraḥ
-> iti bhūtāni manasā
+> hariḥ sarveṣu bhūteṣu\
+> bhagavān āsta īśvaraḥ\
+> iti bhūtāni manasā\
 > kāmais taiḥ sādhu mānayet
 
 *hariḥ*—la Suprema Personalidad de Dios; *sarveṣu*—en todas; *bhūteṣu*—las entidades vivientes; *bhagavān*—la personalidad suprema; *āste*—está situado; *īśvaraḥ*—el controlador supremo; *iti*—así; *bhūtāni*—todas las entidades vivientes; *manasā*—con esa comprensión; *kāmaiḥ*—por deseos; *taiḥ*—esos; *sādhu mānayet*—debemos tener en alta estima.

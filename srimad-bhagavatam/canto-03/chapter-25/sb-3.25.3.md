@@ -1,11 +1,11 @@
 ### SB 3.25.3
 
-> यद्यद्विधत्ते भगवान्स्वच्छन्दात्मात्ममायया ।
+> यद्यद्विधत्ते भगवान्स्वच्छन्दात्मात्ममायया ।\
 > तानि मे श्रद्दधानस्य कीर्तन्यान्यनुकीर्तय ॥३॥
 
-> yad yad vidhatte bhagavān
-> svacchandātmātma-māyayā
-> tāni me śraddadhānasya
+> yad yad vidhatte bhagavān\
+> svacchandātmātma-māyayā\
+> tāni me śraddadhānasya\
 > kīrtanyāny anukīrtaya
 
 *yat yat*—whatever; *vidhatte*—He performs; *bhagavān*—the Personality of Godhead; *sva-chanda-ātmā*—full of self-desire; *ātma-māyayā*—by His internal potency; *tāni*—all of them; *me*—to me; *śraddadhānasya*—faithful; *kīrtanyāni*—worthy of praise; *anukīrtaya*—please describe.

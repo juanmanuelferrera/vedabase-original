@@ -1,11 +1,11 @@
 ### SB 4.25.51
 
-> देवहूर्नाम पुर्या द्वा उत्तरेण पुरञ्जनः ।
+> देवहूर्नाम पुर्या द्वा उत्तरेण पुरञ्जनः ।\
 > राष्ट्रमुत्तरपञ्चालं याति श्रुतधरान्वितः ॥५१॥
 
-> devahūr nāma puryā dvā
-> uttareṇa purañjanaḥ
-> rāṣṭram uttara-pañcālaṁ
+> devahūr nāma puryā dvā\
+> uttareṇa purañjanaḥ\
+> rāṣṭram uttara-pañcālaṁ\
 > yāti śrutadharānvitaḥ
 
 *devahūḥ*—of the name Devahū; *nāma*—as it was called; *puryāḥ*—of the city; *dvāḥ*—gate; *uttareṇa*—on the northern side; *purañjanaḥ*—King Purañjana; *rāṣṭram*—country; *uttara*—northern; *pañcālam*—of the name Pañcāla; *yāti*—used to go; *śruta-dhara-anvitaḥ*—with his friend Śrutadhara.

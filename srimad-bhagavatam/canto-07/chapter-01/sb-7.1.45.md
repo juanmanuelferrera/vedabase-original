@@ -1,11 +1,11 @@
 ### SB 7.1.45
 
-> तावत्र क्षत्रियौ जातौ मातृष्वस्रात्मजौ तव
+> तावत्र क्षत्रियौ जातौ मातृष्वस्रात्मजौ तव\
 > अधुना शापनिर्मुक्तौ कृष्णचक्रहतांहसौ ॥४५॥
 
-> tatrāpi rāghavo bhūtvā
-> nyahanac chāpa-muktaye
-> rāma-vīryaṁ śroṣyasi tvaṁ
+> tatrāpi rāghavo bhūtvā\
+> nyahanac chāpa-muktaye\
+> rāma-vīryaṁ śroṣyasi tvaṁ\
 > mārkaṇḍeya-mukhāt prabho
 
 *tatra api*—thereupon; *rāghavaḥ*—as Lord Rāmacandra; *bhūtvā*—manifesting; *nyahanat*—killed; *śāpa-muktaye*—for freedom from the curse; *rāma-vīryam*—the prowess of Lord Rāma; *śroṣyasi*—will hear; *tvam*—you; *mārkaṇḍeya-mukhāt*—from the lips of the sage Mārkaṇḍeya; *prabho*—O lord.

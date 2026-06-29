@@ -1,13 +1,13 @@
 ### SB 3.15.17
 
-> वैमानिकाः सललनाश्चरितानि शश्वद्
-> गायन्ति यत्र शमलक्षपणानि भर्तुः ।
-> अन्तर्जलेऽनुविकसन्मधुमाधवीनां
+> वैमानिकाः सललनाश्चरितानि शश्वद्\
+> गायन्ति यत्र शमलक्षपणानि भर्तुः ।\
+> अन्तर्जलेऽनुविकसन्मधुमाधवीनां\
 > गन्धेन खण्डितधियोऽप्यनिलं क्षिपन्तः ॥१७॥
 
-> vaimānikāḥ sa-lalanāś caritāni śaśvad
-> gāyanti yatra śamala-kṣapaṇāni bhartuḥ
-> antar-jale 'nuvikasan-madhu-mādhavīnāṁ
+> vaimānikāḥ sa-lalanāś caritāni śaśvad\
+> gāyanti yatra śamala-kṣapaṇāni bhartuḥ\
+> antar-jale 'nuvikasan-madhu-mādhavīnāṁ\
 > gandhena khaṇḍita-dhiyo 'py anilaṁ kṣipantaḥ
 
 *vaimānikāḥ*—flying in their airplanes; *sa-lalanāḥ*—along with their wives; *caritāni*—activities; *śaśvat*—eternally; *gāyanti*—sing; *yatra*—in those Vaikuṇṭha planets; *śamala*—all inauspicious qualities; *kṣapaṇāni*—devoid of; *bhartuḥ*—of the Supreme Lord; *antaḥ-jale*—in the midst of the water; *anuvikasat*—blossoming; *madhu*—fragrant, laden with honey; *mādhavīnām*—of the *mādhavī* flowers; *gandhena*—by the fragrance; *khaṇḍita*—disturbed; *dhiyaḥ*—minds; *api*—even though; *anilam*—breeze; *kṣipantaḥ*—deriding.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.109
 
-> প্রভু দেখিবারে গ্রামের সব-লোক আইল ।
+> প্রভু দেখিবারে গ্রামের সব-লোক আইল ।\
 > প্রভু-দরশনে সবে ‘কৃষ্ণভক্ত’ হইল ॥১০৯॥
 
-> prabhu dekhibāre grāmera saba-loka āila
+> prabhu dekhibāre grāmera saba-loka āila\
 > prabhu-daraśane sabe 'kṛṣṇa-bhakta' ha-ila
 
 *prabhu dekhibāre*—to see Śrī Caitanya Mahāprabhu; *grāmera*—of the village; *saba-loka*—all the people; *āila*—came; *prabhu-daraśane*—simply by seeing Śrī Caitanya Mahāprabhu; *sabe*—all of them; *kṛṣṇa-bhakta ha-ila*—became devotees of Lord Kṛṣṇa.

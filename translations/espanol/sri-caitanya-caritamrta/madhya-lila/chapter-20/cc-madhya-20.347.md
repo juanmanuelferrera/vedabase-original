@@ -1,11 +1,11 @@
 ### CC Madhya 20.347
 
-> কলিং সভাজয়ন্ত্যার্যা গুণজ্ঞাঃ সারভাগিনঃ ।
+> কলিং সভাজয়ন্ত্যার্যা গুণজ্ঞাঃ সারভাগিনঃ ।\
 > যত্র সঙ্কীর্তনেনৈব সর্বস্বার্থোঽভিলভ্যতে ॥৩৪৭॥
 
-> kaliṁ sabhājayanty āryā
-> guṇa-jñāḥ sāra-bhāginaḥ
-> yatra saṅkīrtanenaiva
+> kaliṁ sabhājayanty āryā\
+> guṇa-jñāḥ sāra-bhāginaḥ\
+> yatra saṅkīrtanenaiva\
 > sarva-svārtho 'bhilabhyate
 
 *kalim*—el Kali-yuga; *sabhājayanti*—glorifican; *āryāḥ*—las personas avanzadas; *guṇa-jñāḥ*—que aprecian esta buena cualidad del Kali-yuga; *sāra-bhāginaḥ*—personas que aceptan la esencia de la vida; *yatra*—en la cual era; *saṅkīrtanena*—simplemente realizando el saṅkīrtana-yajña, el canto del mantra Hare Kṛṣṇa; *eva*—ciertamente; *sarva-sva-arthaḥ*—todos los intereses de la vida; *abhilabhyate*—se alcanzan.

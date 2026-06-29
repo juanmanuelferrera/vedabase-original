@@ -1,13 +1,13 @@
 ### SB 6.18.46
 
-> दितिरुवाच
-> धारयिष्ये व्रतं ब्रह्मन्ब्रूहि कार्याणि यानि मे
+> दितिरुवाच\
+> धारयिष्ये व्रतं ब्रह्मन्ब्रूहि कार्याणि यानि मे\
 > यानि चेह निषिद्धानि न व्रतं घ्नन्ति यान्युत ॥४६॥
 
-> ditir uvāca
-> dhārayiṣye vrataṁ brahman
-> brūhi kāryāṇi yāni me
-> yāni ceha niṣiddhāni
+> ditir uvāca\
+> dhārayiṣye vrataṁ brahman\
+> brūhi kāryāṇi yāni me\
+> yāni ceha niṣiddhāni\
 > na vrataṁ ghnanti yāny uta
 
 *ditiḥ uvāca*—Diti dijo; *dhārayiṣye*—aceptaré; *vratam*—el voto; *brahman*—mi querido *brāhmaṇa*; *brūhi*—por favor, expón; *kāryāṇi*—debe hacerse; *yāni*—lo que; *me*—a mí; *yāni*—lo que; *ca*—y; *iha*—aquí; *niṣiddhāni*—está prohibido; *na*—no; *vratam*—el voto; *ghnanti*—romper; *yāni*—lo que; *uta*—también.

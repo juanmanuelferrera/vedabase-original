@@ -1,9 +1,9 @@
 ### CC Madhya 25.185
 
-> কতক্ষণে উঠি’ সবে দুঃখে ঘরে আইলা ৷
+> কতক্ষণে উঠি’ সবে দুঃখে ঘরে আইলা ৷\
 > সনাতন-গোসাঞি বৃন্দাবনেরে চলিলা ৷৷ ১৮৫ ৷৷ ॥১৮৫॥
 
-> kata-kṣaṇe uṭhi' sabe duḥkhe ghare āilā
+> kata-kṣaṇe uṭhi' sabe duḥkhe ghare āilā\
 > sanātana-gosāñi vṛndāvanere calilā
 
 *kata-kṣaṇe*—después de un tiempo; *uṭhi'*—levantándose; *sabe*—todos ellos; *duḥkhe*—con gran infelicidad; *ghare āilā*—regresaron a sus hogares; *sanātana-gosāñi*—Sanātana Gosvāmī; *vṛndāvanere calilā*—partió hacia Vṛndāvana.

@@ -1,8 +1,8 @@
 ### SB 2.2.4
 
-> satyāṁ kṣitau kiṁ kaśipoḥ prayāsair
-> bāhau svasiddhe hy upabarhaṇaiḥ kim
-> saty añjalau kiṁ purudhānna-pātryā
+> satyāṁ kṣitau kiṁ kaśipoḥ prayāsair\
+> bāhau svasiddhe hy upabarhaṇaiḥ kim\
+> saty añjalau kiṁ purudhānna-pātryā\
 > dig-valkalādau sati kiṁ dukūlaiḥ
 
 *satyām*—estando em posse; *kṣitau*—planícies de terra; *kim*—onde está a necessidade; *kaśipoḥ*—de leitos e catres; *prayāsaiḥ*—esforçando-se por; *bāhau*—os braços; *sva-siddhe*—sendo autossuficientes; *hi*—certamente; *upabarhaṇaiḥ*—cama e estrado; *kim*—qual é a utilidade; *sati*—estando presentes; *añjalau*—as palmas das mãos; *kim*—qual é a utilidade; *purudhā*—variedades de; *anna*—comestíveis; *pātryā*—pelos utensílios; *dik*—espaço aberto; *valkala-ādau*—cascas das árvores; *sati*—existindo; *kim*—qual a utilidade de; *dukūlaiḥ*—roupas.

@@ -1,9 +1,9 @@
 ### CC Madhya 23.104
 
-> বৃন্দাবনে কৃষ্ণসেবা, বৈষ্ণব-আচার ।
+> বৃন্দাবনে কৃষ্ণসেবা, বৈষ্ণব-আচার ।\
 > ভক্তিস্মৃতিশাস্ত্র করি’ করিহ প্রচার ॥১০৪॥
 
-> vṛndāvane kṛṣṇa-sevā, vaiṣṇava-ācāra
+> vṛndāvane kṛṣṇa-sevā, vaiṣṇava-ācāra\
 > bhakti-smṛti-śāstra kari' kariha pracāra
 
 *vṛndāvane*—en Vṛndāvana; *kṛṣṇa-sevā*—el servicio al Señor Kṛṣṇa; *vaiṣṇava-ācāra*—la conducta de los vaiṣṇavas; *bhakti-smṛti-śāstra*—los libros de referencia del servicio devocional; *kari'*—compilando; *kariha*—lleva a cabo; *pracāra*—la prédica.

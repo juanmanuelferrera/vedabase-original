@@ -1,18 +1,18 @@
 ### SB 8.22.6-7
 
-> यस्मिन्वैरानुबन्धेन व्यूढेन विबुधेतराः
-> बहवो लेभिरे सिद्धिं यामु हैकान्तयोगिनः ॥६॥
-> तेनाहं निगृहीतोऽस्मि भवता भूरिकर्मणा
+> यस्मिन्वैरानुबन्धेन व्यूढेन विबुधेतराः\
+> बहवो लेभिरे सिद्धिं यामु हैकान्तयोगिनः ॥६॥\
+> तेनाहं निगृहीतोऽस्मि भवता भूरिकर्मणा\
 > बद्धश्च वारुणैः पाशैर्नातिव्रीडे न च व्यथे ॥७॥
 
-> yasmin vairānubandhena
-> vyūḍhena vibudhetarāḥ
-> bahavo lebhire siddhiṁ
+> yasmin vairānubandhena\
+> vyūḍhena vibudhetarāḥ\
+> bahavo lebhire siddhiṁ\
 > yām u haikānta-yoginaḥ
 
-> tenāhaṁ nigṛhīto 'smi
-> bhavatā bhūri-karmaṇā
-> baddhaś ca vāruṇaiḥ pāśair
+> tenāhaṁ nigṛhīto 'smi\
+> bhavatā bhūri-karmaṇā\
+> baddhaś ca vāruṇaiḥ pāśair\
 > nātivrīḍe na ca vyathe
 
 *yasmin*—unto You; *vaira-anubandhena*—by continuously treating as an enemy; *vyūḍhena*—firmly fixed by such intelligence; *vibudha-itarāḥ*—the demons (those other than the demigods); *bahavaḥ*—many of them; *lebhire*—achieved; *siddhim*—perfection; *yām*—which; *u ha*—it is well known; *ekānta-yoginaḥ*—equal to the achievements of the greatly successful mystic *yogīs*; *tena*—therefore; *aham*—I; *nigṛhītaḥ asmi*—although I am being punished; *bhavatā*—by Your Lordship; *bhūri-karmaṇā*—who can do many wonderful things; *baddhaḥ ca*—I am arrested and bound; *vāruṇaiḥ pāśaiḥ*—by the ropes of Varuṇa; *na ati-vrīḍe*—I am not at all ashamed of this; *na ca vyathe*—nor am I suffering very much.

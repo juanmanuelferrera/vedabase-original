@@ -1,11 +1,11 @@
 ### SB 4.23.8
 
-> तेन क्रमानुसिद्धेन ध्वस्तकर्ममलाशयः ।
+> तेन क्रमानुसिद्धेन ध्वस्तकर्ममलाशयः ।\
 > प्राणायामैः सन्निरुद्ध षड्वर्गश्छिन्नबन्धनः ॥८॥
 
-> tena kramānusiddhena
-> dhvasta-karma-malāśayaḥ
-> prāṇāyāmaiḥ sanniruddha-
+> tena kramānusiddhena\
+> dhvasta-karma-malāśayaḥ\
+> prāṇāyāmaiḥ sanniruddha-\
 > ṣaḍ-vargaś chinna-bandhanaḥ
 
 *tena*—thus by practicing such austerities; *krama*—gradually; *anu*—constantly; *siddhena*—by perfection; *dhvasta*—smashed; *karma*—fruitive activities; *mala*—dirty things; *āśayaḥ*—desire; *prāṇa-āyāmaiḥ*—by practice of *prāṇāyāma-yoga,* breathing exercises; *san*—being; *niruddha*—stopped; *ṣaṭ-vargaḥ*—the mind and the senses; *chinna-bandhanaḥ*—completely cut off from all bondage.

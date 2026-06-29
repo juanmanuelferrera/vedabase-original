@@ -1,11 +1,11 @@
 ### SB 7.14.12
 
-> जह्याद्यदर्थे स्वान्प्राणान्हन्याद्वा पितरं गुरुम
+> जह्याद्यदर्थे स्वान्प्राणान्हन्याद्वा पितरं गुरुम\
 > तस्यां स्वत्वं स्त्रियां जह्याद्यस्तेन ह्यजितो जितः ॥१२॥
 
-> jahyād yad-arthe svān prāṇān
-> hanyād vā pitaraṁ gurum
-> tasyāṁ svatvaṁ striyāṁ jahyād
+> jahyād yad-arthe svān prāṇān\
+> hanyād vā pitaraṁ gurum\
+> tasyāṁ svatvaṁ striyāṁ jahyād\
 > yas tena hy ajito jitaḥ
 
 *jahyāt*—one may give up; *yat-arthe*—for whom; *svān*—one's own; *prāṇān*—life; *hanyāt*—one may kill; *vā*—or; *pitaram*—the father; *gurum*—the teacher or spiritual master; *tasyām*—unto her; *svatvam*—ownership; *striyām*—unto the wife; *jahyāt*—one must give up; *yaḥ*—one who (the Supreme Personality of Godhead); *tena*—by him; *hi*—indeed; *ajitaḥ*—cannot be conquered; *jitaḥ*—conquered.

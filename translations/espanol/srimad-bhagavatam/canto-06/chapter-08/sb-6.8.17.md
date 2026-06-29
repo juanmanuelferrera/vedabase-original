@@ -1,11 +1,11 @@
 ### SB 6.8.17
 
-> सनत्कुमारोऽवतु कामदेवाद्धयशीर्षा मां पथि देवहेलनात
+> सनत्कुमारोऽवतु कामदेवाद्धयशीर्षा मां पथि देवहेलनात\
 > देवर्षिवर्यः पुरुषार्चनान्तरात्कूर्मो हरिर्मां निरयादशेषात ॥१७॥
 
-> sanat-kumāro 'vatu kāmadevād
-> dhayaśīrṣā māṁ pathi deva-helanāt
-> devarṣi-varyaḥ puruṣārcanāntarāt
+> sanat-kumāro 'vatu kāmadevād\
+> dhayaśīrṣā māṁ pathi deva-helanāt\
+> devarṣi-varyaḥ puruṣārcanāntarāt\
 > kūrmo harir māṁ nirayād aśeṣāt
 
 *sanat-kumāraḥ*—el gran *brahmacārī* llamado Sanat-kumāra; *avatu*—que él proteja; *kāma-devāt*—de las manos de Cupido, o del deseo lujurioso; *haya-śīrṣā*—el Señor Hayagrīva, la encarnación del Señor con cabeza de caballo; *mām*—a mí; *pathi*—en la senda; *deva-helanāt*—de no ofrecer reverencias respetuosas a los*brāhmaṇas*, los *vaiṣṇavas* y el Señor Supremo; *devarṣi-varyaḥ*—Nārada, el mejor de los sabios santos; *puruṣa-arcana-antarāt*—de las ofensas en la adoración de la Deidad; *kūrmaḥ*—el Señor Kūrma, la tortuga; *hariḥ*—la Suprema Personalidad de Dios; *mām*—a mí; *nirayāt*—del infierno; *aśeṣāt*—ilimitado.

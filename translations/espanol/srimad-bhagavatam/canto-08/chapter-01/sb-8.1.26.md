@@ -1,11 +1,11 @@
 ### SB 8.1.26
 
-> सोऽनृतव्रतदुःशीलानसतो यक्षराक्षसान
+> सोऽनृतव्रतदुःशीलानसतो यक्षराक्षसान\
 > भूतद्रुहो भूतगणांश्चावधीत्सत्यजित्सखः ॥२६॥
 
-> so 'nṛta-vrata-duḥśīlān
-> asato yakṣa-rākṣasān
-> bhūta-druho bhūta-gaṇāṁś
+> so 'nṛta-vrata-duḥśīlān\
+> asato yakṣa-rākṣasān\
+> bhūta-druho bhūta-gaṇāṁś\
 > cāvadhīt satyajit-sakhaḥ
 
 *saḥ*—Él (Satyasena); *anṛta-vrata*—a quienes gusta decir mentiras; *duḥśīlān*—de mala conducta; *asataḥ*—malvados; *yakṣa-rākṣasān*—a los *yakṣas* y*rākṣasas*; *bhūta-druhaḥ*—que siempre se oponen al progreso de las demás entidades vivientes; *bhūta-gaṇān*—a las entidades vivientes fantasmales; *ca*—también; *avadhīt*—mató; *satyajit-sakhaḥ*—con Su amigo Satyajit.

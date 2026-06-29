@@ -1,9 +1,9 @@
 ### CC Adi 7.81
 
-> কিবা মন্ত্র দিলা, গোসাঞি, কিবা তার বল ।
+> কিবা মন্ত্র দিলা, গোসাঞি, কিবা তার বল ।\
 > জপিতে জপিতে মন্ত্র করিল পাগল ॥৮১॥
 
-> kibā mantra dilā, gosāñi, kibā tāra bala
+> kibā mantra dilā, gosāñi, kibā tāra bala\
 > japite japite mantra karila pāgala
 
 *kibā*—what kind of; *mantra*—hymn; *dilā*—you have given; *gosāñi*—My lord; *kibā*—what is; *tāra*—its; *bala*—strength; *japite*—chanting; *japite*—chanting; *mantra*—the hymn; *karila*—has made Me; *pāgala*—madman.

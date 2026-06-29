@@ -1,11 +1,11 @@
 ### SB 4.22.49
 
-> वैन्यस्तु धुर्यो महतां संस्थित्याध्यात्मशिक्षया ।
+> वैन्यस्तु धुर्यो महतां संस्थित्याध्यात्मशिक्षया ।\
 > आप्तकाममिवात्मानं मेन आत्मन्यवस्थितः ॥४९॥
 
-> vainyas tu dhuryo mahatāṁ
-> saṁsthityādhyātma-śikṣayā
-> āpta-kāmam ivātmānaṁ
+> vainyas tu dhuryo mahatāṁ\
+> saṁsthityādhyātma-śikṣayā\
+> āpta-kāmam ivātmānaṁ\
 > mena ātmany avasthitaḥ
 
 *vainyaḥ*—the son of Vena Mahārāja (Pṛthu); *tu*—of course; *dhuryaḥ*—the chief; *mahatām*—of great personalities; *saṁsthityā*—being completely fixed; *ādhyātma-śikṣayā*—in the matter of self-realization; *āpta*—achieved; *kāmam*—desires; *iva*—like; *ātmānam*—in self-satisfaction; *mene*—considered; *ātmani*—in the self; *avasthitaḥ*—situated.

@@ -1,9 +1,9 @@
 ### CC Adi 11.28
 
-> নিত্যানন্দ প্রভুর প্রিয় — পণ্ডিত পুরন্দর ।
+> নিত্যানন্দ প্রভুর প্রিয় — পণ্ডিত পুরন্দর ।\
 > প্রেমার্ণব-মধ্যে ফিরে যৈছন মন্দর ॥২৮॥
 
-> nityānanda prabhura priya--paṇḍita purandara
+> nityānanda prabhura priya--paṇḍita purandara\
 > premārṇava-madhye phire yaichana mandara
 
 *nityānanda*—el Señor Nityānanda Prabhu; *prabhura*—del Señor; *priya*—muy querido; *paṇḍita purandara*—de nombre Paṇḍita Purandara; *prema-arṇava-madhye*—en el océano de amor por Dios; *phire*—se movía; *yaichana*—exactamente como; *mandara*—la colina Mandara.

@@ -1,11 +1,11 @@
 ### SB 4.7.7
 
-> ततो मीढ्वांसमामन्त्र्य शुनासीराः सहर्षिभिः ।
+> ततो मीढ्वांसमामन्त्र्य शुनासीराः सहर्षिभिः ।\
 > भूयस्तद्देवयजनं समीढ्वद्वेधसो ययुः ॥७॥
 
-> tato mīḍhvāṁsam āmantrya
-> śunāsīrāḥ saharṣibhiḥ
-> bhūyas tad deva-yajanaṁ
+> tato mīḍhvāṁsam āmantrya\
+> śunāsīrāḥ saharṣibhiḥ\
+> bhūyas tad deva-yajanaṁ\
 > sa-mīḍhvad-vedhaso yayuḥ
 
 *tataḥ*—a continuación; *mīḍhvāṁsam*—al Señor Śiva; *āmantrya*—invitar; *śunāsīrāḥ*—los semidioses encabezados por el rey Indra; *saha ṛṣibhiḥ*—con todos los grandes sabios, encabezados por Bhṛgu; *bhūyaḥ*—de nuevo; *tat*—aquel; *deva-yajanam*—lugar donde se adora a los semidioses; *sa-mīḍhvat*—con el Señor Śiva; *vedhasaḥ*—con el Señor Brahmā; *yayuḥ*—fueron.

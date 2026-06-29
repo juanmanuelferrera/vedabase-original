@@ -1,13 +1,13 @@
 ### SB 7.13.46
 
-> श्रीनारद उवाच
-> धर्मं पारमहंस्यं वै मुनेः श्रुत्वासुरेश्वरः
+> श्रीनारद उवाच\
+> धर्मं पारमहंस्यं वै मुनेः श्रुत्वासुरेश्वरः\
 > पूजयित्वा ततः प्रीत आमन्त्र्य प्रययौ गृहम ॥४६॥
 
-> śrī-nārada uvāca
-> dharmaṁ pāramahaṁsyaṁ vai
-> muneḥ śrutvāsureśvaraḥ
-> pūjayitvā tataḥ prīta
+> śrī-nārada uvāca\
+> dharmaṁ pāramahaṁsyaṁ vai\
+> muneḥ śrutvāsureśvaraḥ\
+> pūjayitvā tataḥ prīta\
 > āmantrya prayayau gṛham
 
 *śrī-nāradaḥ uvāca*—Śrī Nārada Muni said; *dharmam*—the occupational duty; *pāramahaṁsyam*—of the *paramahaṁsas,* the most perfect human beings; *vai*—indeed; *muneḥ*—from the saintly person; *śrutvā*—thus hearing; *asura-īśvaraḥ*—the King of the *asuras,* Prahlāda Mahārāja; *pūjayitvā*—by worshiping the saintly person; *tataḥ*—thereafter; *prītaḥ*—being very pleased; *āmantrya*—taking permission; *prayayau*—left that place; *gṛham*—for his home.

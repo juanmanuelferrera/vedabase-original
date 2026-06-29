@@ -1,9 +1,9 @@
 ### CC Madhya 11.176
 
-> sei ghara āmāke deha'-āche prayojana
+> sei ghara āmāke deha'-āche prayojana\
 > nibhṛte vasiyā tāhāṅ kariba smaraṇa
 
-> sei ghara āmāke deha'-āche prayojana
+> sei ghara āmāke deha'-āche prayojana\
 > nibhṛte vasiyā tāhāṅ kariba smaraṇa
 
 *sei ghara*—esa habitación; *āmāke deha'*—por favor dádmela; *āche prayojana*—hay necesidad; *nibhṛte*—en el lugar solitario; *vasiyā*—sentándose; *tāhāṅ*—allí; *kariba smaraṇa*—recordaré los pies de loto del Señor.

@@ -1,9 +1,9 @@
 ### CC Madhya 14.96
 
-> ভক্তগণ-সঙ্গে প্রভু উদ্যানে আসিয়া ।
+> ভক্তগণ-সঙ্গে প্রভু উদ্যানে আসিয়া ।\
 > বৃন্দাবন-বিহার করে ভক্তগণ লঞা ॥৯৬॥
 
-> bhakta-gaṇa-saṅge prabhu udyāne āsiyā
+> bhakta-gaṇa-saṅge prabhu udyāne āsiyā\
 > vṛndāvana-vihāra kare bhakta-gaṇa lañā
 
 *bhakta-gaṇa-saṅge*—with the devotees; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *udyāne*—in the garden; *āsiyā*—coming; *vṛndāvana-vihāra*—the pastimes of Vṛndāvana; *kare*—performs; *bhakta-gaṇa lañā*—with all the devotees.

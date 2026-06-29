@@ -1,9 +1,9 @@
 ### CC Adi 12.83
 
-> বাণীনাথ ব্রহ্মচারী — বড় মহাশয় ।
+> বাণীনাথ ব্রহ্মচারী — বড় মহাশয় ।\
 > বল্লভচৈতন্যদাস — কৃষ্ণপ্রেমময় ॥৮৩॥
 
-> vāṇīnātha brahmacārī—baḍa mahāśaya
+> vāṇīnātha brahmacārī—baḍa mahāśaya\
 > vallabha-caitanya-dāsa—kṛṣṇa-premamaya
 
 *vāṇīnātha brahmacārī*—of the name Vāṇīnātha Brahmacārī; *baḍa mahāśaya*—very great personality; *vallabha-caitanya-dāsa*—of the name Vallabha-caitanya dāsa; *kṛṣṇa-prema-maya*—always filled with love of Kṛṣṇa.

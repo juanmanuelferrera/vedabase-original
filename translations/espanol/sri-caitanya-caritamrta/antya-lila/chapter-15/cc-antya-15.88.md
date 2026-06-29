@@ -1,9 +1,9 @@
 ### CC Antya 15.88
 
-> সেই পদ পুনঃ পুনঃ করায় গায়ন ।
+> সেই পদ পুনঃ পুনঃ করায় গায়ন ।\
 > পুনঃ পুনঃ আস্বাদয়ে, করেন নর্তন ॥৮৮॥
 
-> sei pada punaḥ punaḥ karāya gāyana
+> sei pada punaḥ punaḥ karāya gāyana\
 > punaḥ punaḥ āsvādaye, karena nartana
 
 *sei pada*—ese verso; *punaḥ punaḥ*—una y otra vez; *karāya gāyana*—hizo cantar; *punaḥ punaḥ*—una y otra vez; *āsvādaye*—saborea; *karena nartana*—danza.

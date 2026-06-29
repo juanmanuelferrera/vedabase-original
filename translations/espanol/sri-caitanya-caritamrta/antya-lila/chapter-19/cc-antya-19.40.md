@@ -1,13 +1,13 @@
 ### CC Antya 19.40
 
-> একবার যার নয়নে লাগে, সদা তার হৃদয়ে জাগে,
-> কৃষ্ণতনু — যেন আম্র-আঠা ।
-> নারী-মনে পৈশে হায়, যত্নে নাহি বাহিরায়,
+> একবার যার নয়নে লাগে, সদা তার হৃদয়ে জাগে,\
+> কৃষ্ণতনু — যেন আম্র-আঠা ।\
+> নারী-মনে পৈশে হায়, যত্নে নাহি বাহিরায়,\
 > তনু নহে, — সেয়াকুলের কাঁটা ॥৪০॥
 
-> eka-bāra yāra nayane lāge, sadā tāra hṛdaye jāge,
-> kṛṣṇa-tanu--yena āmra-āṭhā
-> nārī-mane paiśe hāya, yatne nāhi bāhirāya,
+> eka-bāra yāra nayane lāge, sadā tāra hṛdaye jāge,\
+> kṛṣṇa-tanu--yena āmra-āṭhā\
+> nārī-mane paiśe hāya, yatne nāhi bāhirāya,\
 > tanu nahe,--seyā-kulera kāṅṭā
 
 *eka-bāra*—una vez; *yāra*—cuyos; *nayane*—ojos; *lāge*—captura; *sadā*—siempre; *tāra*—de esa persona; *hṛdaye*—en el corazón; *jāge*—permanece vivo; *kṛṣṇa-tanu*—el cuerpo de Kṛṣṇa; *yena*—como; *āmra-āṭhā*—la savia del mango; *nārī-mane*—en la mente de las mujeres; *paiśe*—entra; *hāya*—¡ay!; *yatne*—incluso con gran esfuerzo; *nāhi*—no; *bāhirāya*—sale; *tanu nahe*—no es un cuerpo ordinario; *seyā-kulera kāṅṭā*—es como la espina del árbol de la baya seyā.

@@ -1,9 +1,9 @@
 ### CC Madhya 17.139
 
-> ব্রহ্মানন্দ হৈতে পূর্ণানন্দ কৃষ্ণগুণ ।
+> ব্রহ্মানন্দ হৈতে পূর্ণানন্দ কৃষ্ণগুণ ।\
 > অতএব আকর্ষয়ে আত্মারামের মন ॥১৩৯॥
 
-> brahmānanda haite pūrṇānanda kṛṣṇa-guṇa
+> brahmānanda haite pūrṇānanda kṛṣṇa-guṇa\
 > ataeva ākarṣaye ātmā-rāmera mana
 
 *brahma-ānanda*—the pleasure of Brahman realization; *haite*—from; *pūrṇa-ānanda*—complete bliss; *kṛṣṇa-guṇa*—the qualities of Lord Kṛṣṇa; *ataeva*—therefore; *ākarṣaye*—attract; *ātmā-rāmera mana*—the minds of self-realized persons.

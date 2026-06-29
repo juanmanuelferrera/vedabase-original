@@ -1,11 +1,11 @@
 ### SB 5.13.15
 
-> मनस्विनो निर्जितदिग्गजेन्द्रा ममेति सर्वे भुवि बद्धवैराः
+> मनस्विनो निर्जितदिग्गजेन्द्रा ममेति सर्वे भुवि बद्धवैराः\
 > मृधे शयीरन्न तु तद्व्रजन्ति यन्न्यस्तदण्डो गतवैरोऽभियाति ॥१५॥
 
-> manasvino nirjita-dig-gajendrā
-> mameti sarve bhuvi baddha-vairāḥ
-> mṛdhe śayīran na tu tad vrajanti
+> manasvino nirjita-dig-gajendrā\
+> mameti sarve bhuvi baddha-vairāḥ\
+> mṛdhe śayīran na tu tad vrajanti\
 > yan nyasta-daṇḍo gata-vairo 'bhiyāti
 
 *manasvinaḥ*—muy grandes héroes (especuladores mentales); *nirjita-dik-gajendrāḥ*—que han vencido a muchos otros héroes tan poderosos como elefantes; *mama*—mío (mi tierra, mi país, mi familia, mi comunidad, mi religión); *iti*—así; *sarve*—todos (grandes líderes políticos, sociales y religiosos); *bhuvi*—en este mundo; *baddha-vairāḥ*—que han creado enemistad entre sí; *mṛdhe*—en la batalla; *śayīran*—caídos en el campo de batalla; *na*—no; *tu*—pero; *tat*—a la morada de la Suprema Personalidad de Dios; *vrajanti*—se acercan; *yat*—que; *nyasta-daṇḍaḥ*—un *sannyāsī*; *gata-vairaḥ*—que no tiene enemigos en ninguna parte del mundo; *abhiyāti*—alcanza esa perfección.

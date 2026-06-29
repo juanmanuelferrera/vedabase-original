@@ -1,9 +1,9 @@
 ### CC Madhya 1.82
 
-> তোমার চরণ মোর ব্রজপুরঘরে ।
+> তোমার চরণ মোর ব্রজপুরঘরে ।\
 > উদয় করয়ে যদি, তবে বাঞ্ছা পূরে ॥৮২॥
 
-> tomāra caraṇa mora vraja-pura-ghare
+> tomāra caraṇa mora vraja-pura-ghare\
 > udaya karaye yadi, tabe vāñchā pūre
 
 *tomāra*—Your; *caraṇa*—lotus feet; *mora*—my; *vraja-pura-ghare*—at the home in Vṛndāvana; *udaya*—awaken; *karaye*—I do; *yadi*—if; *tabe*—then; *vāñchā*—desires; *pūre*—are fulfilled.

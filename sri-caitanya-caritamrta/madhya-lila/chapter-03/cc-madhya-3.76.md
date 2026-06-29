@@ -1,9 +1,9 @@
 ### CC Madhya 3.76
 
-> তিন জনার ভক্ষ্যপিণ্ড — তোমার এক গ্রাস ।
+> তিন জনার ভক্ষ্যপিণ্ড — তোমার এক গ্রাস ।\
 > তার লেখায় এই অন্ন নহে পঞ্চগ্রাস ॥৭৬॥
 
-> tina janāra bhakṣya-piṇḍa—tomāra eka grāsa
+> tina janāra bhakṣya-piṇḍa—tomāra eka grāsa\
 > tāra lekhāya ei anna nahe pañca-grāsa
 
 *tinajanāra*—of three persons; *bhakṣya-piṇḍa*—the stack of eatables; *tomāra*—of You; *eka grāsa*—one morsel; *tāra*—to that; *lekhāya*—in proportion; *ei anna*—this food; *nahe*—is not; *pañca-grāsa*—five morsels.

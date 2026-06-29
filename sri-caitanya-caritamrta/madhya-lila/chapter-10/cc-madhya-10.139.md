@@ -1,9 +1,9 @@
 ### CC Madhya 10.139
 
-> স্নেহ-লেশাপেক্ষা মাত্র শ্রীকৃষ্ণ-কৃপার ।
+> স্নেহ-লেশাপেক্ষা মাত্র শ্রীকৃষ্ণ-কৃপার ।\
 > স্নেহবশ হঞা করে স্বতন্ত্র আচার ॥১৩৯॥
 
-> sneha-leśāpekṣā mātra śrī-kṛṣṇa-kṛpāra
+> sneha-leśāpekṣā mātra śrī-kṛṣṇa-kṛpāra\
 > sneha-vaśa hañā kare svatantra ācāra
 
 *sneha*—of affection; *leśa*—on a trace; *apekṣā*—reliance; *mātra*—only; *śrī-kṛṣṇa*—of Lord Śrī Kṛṣṇa; *kṛpāra*—of the mercy; *sneha-vaśa*—obliged by affection; *hañā*—being; *kare*—does; *svatantra*—independent; *ācāra*—behavior.

@@ -1,13 +1,13 @@
 ### CC Madhya 6.235
 
-> যেষাং স এষ ভগবান্ দয়য়েদনন্তঃ
-> সর্বাত্মনাশ্রিতপদো যদি নির্ব্যলীকম্ ।
-> তে দুস্তরামতিতরন্তি চ দেবমায়াং
+> যেষাং স এষ ভগবান্ দয়য়েদনন্তঃ\
+> সর্বাত্মনাশ্রিতপদো যদি নির্ব্যলীকম্ ।\
+> তে দুস্তরামতিতরন্তি চ দেবমায়াং\
 > নৈষাং মমাহমিতিধীঃ শ্বশৃগালভক্ষ্যে ॥২৩৫॥
 
-> yeṣāṁ sa eṣa bhagavān dayayed anantaḥ
-> sarvātmanāśrita-pado yadi nirvyalīkam
-> te dustarām atitaranti ca deva-māyāṁ
+> yeṣāṁ sa eṣa bhagavān dayayed anantaḥ\
+> sarvātmanāśrita-pado yadi nirvyalīkam\
+> te dustarām atitaranti ca deva-māyāṁ\
 > naiṣāṁ mamāham iti dhīḥ śva-śṛgāla-bhakṣye
 
 *yeṣām*—a quienes son almas plenamente entregadas; *saḥ*—Él; *eṣaḥ*—esta; *bhagavān*—la Suprema Personalidad de Dios; *dayayet*—pueda mostrar misericordia; *anantaḥ*—el ilimitado; *sarva-ātmanā*—plenamente, sin reserva; *āśrita-padaḥ*—quienes se han refugiado en el Señor; *yadi*—si; *nirvyalīkam*—sin duplicidad; *te*—tales personas; *dustarām*—insuperable; *atitaranti*—trascienden; *ca*—también; *deva-māyām*—la energía material ilusoria; *na*—no; *eṣām*—esta; *mama aham*—«mío» y «yo»; *iti*—tal; *dhīḥ*—inteligencia; *śva-śṛgāla-bhakṣye*—en el cuerpo, que ha de ser devorado por perros y chacales.

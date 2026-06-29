@@ -2,7 +2,7 @@
 
 > तामसो भूतसूक्ष्मादिर्यतः खं लिङ्गमात्मन ॥३२॥
 
-> tāmaso bhūta-sūkṣmādir
+> tāmaso bhūta-sūkṣmādir\
 > yataḥ khaṁ liṅgam ātmanaḥ
 
 *tāmasaḥ*—de la modalidad de la pasión; *bhūta-sūkṣma-ādiḥ*—objetos sutiles de los sentidos; *yataḥ*—del cual; *kham*—el cielo; *liṅgam*—representación simbólica; *ātmanaḥ*—del Alma Suprema.

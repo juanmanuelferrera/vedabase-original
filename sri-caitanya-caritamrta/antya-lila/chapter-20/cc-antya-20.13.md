@@ -1,9 +1,9 @@
 ### CC Antya 20.13
 
-> সঙ্কীর্তন হৈতে পাপ-সংসার-নাশন ।
+> সঙ্কীর্তন হৈতে পাপ-সংসার-নাশন ।\
 > চিত্তশুদ্ধি, সর্বভক্তিসাধন-উদ্গম ॥১৩॥
 
-> saṅkīrtana haite pāpa-saṁsāra-nāśana
+> saṅkīrtana haite pāpa-saṁsāra-nāśana\
 > citta-śuddhi, sarva-bhakti-sādhana-udgama
 
 *saṅkīrtana haite*—from the process of chanting the holy name; *pāpa-saṁsāra-nāśana*—annihilation of materialistic life resulting from sins; *citta-śuddhi*—cleansing of the heart; *sarva-bhakti*—all kinds of devotional service; *sādhana*—of the performances; *udgama*—awakening.

@@ -1,11 +1,11 @@
 ### SB 7.13.24
 
-> यदृच्छया लोकमिमं प्रापितः कर्मभिर्भ्रमन
+> यदृच्छया लोकमिमं प्रापितः कर्मभिर्भ्रमन\
 > स्वर्गापवर्गयोर्द्वारं तिरश्चां पुनरस्य च ॥२४॥
 
-> tṛṣṇayā bhava-vāhinyā
-> yogyaiḥ kāmair apūryayā
-> karmāṇi kāryamāṇo 'haṁ
+> tṛṣṇayā bhava-vāhinyā\
+> yogyaiḥ kāmair apūryayā\
+> karmāṇi kāryamāṇo 'haṁ\
 > nānā-yoniṣu yojitaḥ
 
 *tṛṣṇayā*—debido a deseos materiales; *bhava-vāhinyā*—llevado por el vaivén de las leyes materiales de la naturaleza; *yogyaiḥ*—como corresponde; *kāmaiḥ*—por deseos materiales; *apūryayā*—sin fin, uno tras otro; *karmāṇi*—actividades; *kāryamāṇaḥ*—constantemente empujado a realizar; *aham*—yo; *nānā-yoniṣu*—en distintas formas de vida; *yojitaḥ*—ocupado en la lucha por la existencia.

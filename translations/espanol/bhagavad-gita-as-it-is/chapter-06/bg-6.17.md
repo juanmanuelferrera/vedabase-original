@@ -1,11 +1,11 @@
 ### Bg 6.17
 
-> युक्ताहारविहारस्य  युक्तचेष्टस्य कर्मसु ।
+> युक्ताहारविहारस्य  युक्तचेष्टस्य कर्मसु ।\
 > युक्तस्वप्नावबोधस्य योगो भवति दुःखहा ॥१७॥
 
-> yuktāhāra-vihārasya
-> yukta-ceṣṭasya karmasu
-> yukta-svapnāvabodhasya
+> yuktāhāra-vihārasya\
+> yukta-ceṣṭasya karmasu\
+> yukta-svapnāvabodhasya\
 > yogo bhavati duḥkha-hā
 
 *yukta*—regulado; *āhāra*—comer; *vihārasya*—recreación; *yukta*—regulado; *ceṣṭasya*—de aquel que trabaja para mantenerse; *karmasu*—en el desempeño de deberes; *yukta*—regulado; *svapna-avabodhasya*—sueño y vela regulados; *yogaḥ*—práctica del yoga; *bhavati*—se vuelve; *duḥkha-hā*—disminuyendo los sufrimientos.

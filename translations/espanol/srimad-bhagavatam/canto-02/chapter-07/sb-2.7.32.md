@@ -1,13 +1,13 @@
 ### SB 2.7.32
 
-> गोपैर्मखे प्रतिहते व्रजविप्लवाय
-> देवेऽभिवर्षति पशून्कृपया रिरक्षुः ।
-> धर्तोच्छिलीन्ध्रमिव सप्तदिनानि सप्त
+> गोपैर्मखे प्रतिहते व्रजविप्लवाय\
+> देवेऽभिवर्षति पशून्कृपया रिरक्षुः ।\
+> धर्तोच्छिलीन्ध्रमिव सप्तदिनानि सप्त\
 > वर्षो महीध्रमनघैककरे सलीलम् ॥३२॥
 
-> gopair makhe pratihate vraja-viplavāya
-> deve 'bhivarṣati paśūn kṛpayā rirakṣuḥ
-> dhartocchilīndhram iva sapta-dināni sapta-
+> gopair makhe pratihate vraja-viplavāya\
+> deve 'bhivarṣati paśūn kṛpayā rirakṣuḥ\
+> dhartocchilīndhram iva sapta-dināni sapta-\
 > varṣo mahīdhram anaghaika-kare salīlam
 
 *gopaiḥ*—por los pastores de vacas; *makhe*—al ofrecer el sacrificio al rey del cielo; *pratihate*—siendo impedido; *vraja-viplavāya*—para devastar toda la existencia de Vrajabhūmi, la tierra de los pasatiempos de Kṛṣṇa; *deve*—por el rey del cielo; *abhivarṣati*—habiendo derramado una fuerte lluvia; *paśūn*—los animales; *kṛpayā*—por misericordia sin causa para con ellos; *rirakṣuḥ*—deseó protegerlos; *dharta*—sostuvo; *ucchilīndhram*—arrancada como un paraguas; *iva*—exactamente así; *sapta-dināni*—continuamente durante siete días; *sapta-varṣaḥ*—si bien Él tenía solo siete años de edad; *mahīdhram*—la colina Govardhana; *anagha*—sin estar cansado; *eka-kare*—solo en una mano; *salīlam*—juguetonamente.

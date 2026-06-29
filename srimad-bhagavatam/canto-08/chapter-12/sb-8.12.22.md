@@ -1,11 +1,11 @@
 ### SB 8.12.22
 
-> तां वीक्ष्य देव इति कन्दुकलीलयेषद्व्रीडास्फुटस्मितविसृष्टकटाक्षमुष्टः
+> तां वीक्ष्य देव इति कन्दुकलीलयेषद्व्रीडास्फुटस्मितविसृष्टकटाक्षमुष्टः\
 > स्त्रीप्रेक्षणप्रतिसमीक्षणविह्वलात्मा नात्मानमन्तिक उमां स्वगणांश्च वेद ॥२२॥
 
-> tāṁ vīkṣya deva iti kanduka-līlayeṣad-
-> vrīḍāsphuṭa-smita-visṛṣṭa-kaṭākṣa-muṣṭaḥ
-> strī-prekṣaṇa-pratisamīkṣaṇa-vihvalātmā
+> tāṁ vīkṣya deva iti kanduka-līlayeṣad-\
+> vrīḍāsphuṭa-smita-visṛṣṭa-kaṭākṣa-muṣṭaḥ\
+> strī-prekṣaṇa-pratisamīkṣaṇa-vihvalātmā\
 > nātmānam antika umāṁ sva-gaṇāṁś ca veda
 
 *tām*—Her; *vīkṣya*—after observing; *devaḥ*—Lord Śambhu; *iti*—in this way; *kanduka-līlayā*—by playing with the ball; *īṣat*—slight; *vrīḍā*—by bashfulness; *asphuṭa*—not very distinct; *smita*—with smiling; *visṛṣṭa*—sent; *kaṭākṣa-muṣṭaḥ*—defeated by the glances; *strī-prekṣaṇa*—by glancing at that beautiful woman; *pratisamīkṣaṇa*—and by constantly being watched by Her; *vihvala-ātmā*—whose mind was agitated; *na*—not; *ātmānam*—himself; *antike*—(situated) nearby; *umām*—his wife, mother Umā; *sva-gaṇān ca*—and his associates; *veda*—Lord Śiva could understand.

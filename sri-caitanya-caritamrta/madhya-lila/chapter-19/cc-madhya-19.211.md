@@ -1,9 +1,9 @@
 ### CC Madhya 19.211
 
-> শান্তরসে — ‘স্বরূপবুদ্ধ্যে কৃষ্ণৈকনিষ্ঠতা’ ।
+> শান্তরসে — ‘স্বরূপবুদ্ধ্যে কৃষ্ণৈকনিষ্ঠতা’ ।\
 > “শমো মন্নিষ্ঠতা বুদ্ধেঃ” ইতি শ্ৰীমুখ-গাথা ॥২১১॥
 
-> śānta-rase—'svarūpa-buddhye kṛṣṇaika-niṣṭhatā'
+> śānta-rase—'svarūpa-buddhye kṛṣṇaika-niṣṭhatā'\
 > "śamo man-niṣṭhatā buddheḥ" iti śrī-mukha-gāthā
 
 *śānta-rase*—on the stage of *śānta-rasa,* or neutrality; *svarūpa-buddhye*—by self-realization; *kṛṣṇa-eka-niṣṭhatā*—fully devoted to the lotus feet of Kṛṣṇa; *śamaḥ*—equilibrium; *mat*—to Me; *niṣṭhatā*—the quality of attachment; *buddheḥ*—of the mind; *iti*—thus; *śrī-mukha*—from the mouth of the Supreme Lord; *gāthā*—a verse.

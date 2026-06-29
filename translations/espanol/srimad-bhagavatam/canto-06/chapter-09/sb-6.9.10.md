@@ -1,11 +1,11 @@
 ### SB 6.9.10
 
-> द्रव्यभूयोवरेणापस्तुरीयं जगृहुर्मलम
+> द्रव्यभूयोवरेणापस्तुरीयं जगृहुर्मलम\
 > तासु बुद्बुदफेनाभ्यां दृष्टं तद्धरति क्षिपन ॥१०॥
 
-> dravya-bhūyo-vareṇāpas
-> turīyaṁ jagṛhur malam
-> tāsu budbuda-phenābhyāṁ
+> dravya-bhūyo-vareṇāpas\
+> turīyaṁ jagṛhur malam\
+> tāsu budbuda-phenābhyāṁ\
 > dṛṣṭaṁ tad dharati kṣipan
 
 *dravya*—otras cosas; *bhūyaḥ*—de aumentar; *vareṇa*—por la bendición; *āpaḥ*—el agua; *turīyam*—una cuarta parte; *jagṛhuḥ*—aceptó; *malam*—la reacción pecaminosa; *tāsu*—en el agua; *budbuda-phenābhyām*—con burbujas y espuma; *dṛṣṭam*—visible; *tat*—esa; *harati*—se recoge; *kṣipan*—tirando.

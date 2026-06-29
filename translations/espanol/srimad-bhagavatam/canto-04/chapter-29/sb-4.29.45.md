@@ -1,11 +1,11 @@
 ### SB 4.29.45
 
-> शब्दब्रह्मणि दुष्पारे चरन्त उरुविस्तरे ।
+> शब्दब्रह्मणि दुष्पारे चरन्त उरुविस्तरे ।\
 > मन्त्रलिङ्गैर्व्यवच्छिन्नं भजन्तो न विदुः परम् ॥४५॥
 
-> śabda-brahmaṇi duṣpāre
-> caranta uru-vistare
-> mantra-liṅgair vyavacchinnaṁ
+> śabda-brahmaṇi duṣpāre\
+> caranta uru-vistare\
+> mantra-liṅgair vyavacchinnaṁ\
 > bhajanto na viduḥ param
 
 *śabda-brahmaṇi*—en las Escrituras védicas; *duṣpāre*—ilimitadas; *carantaḥ*—ocupados en; *uru*—mucho; *vistare*—amplio; *mantra*—de himnos védicos; *liṅgaiḥ*—con las características; *vyavacchinnam*—parcialmente poderosos (los semidioses); *bhajantaḥ*—adorar; *na viduḥ*—no conocen; *param*—al Supremo.

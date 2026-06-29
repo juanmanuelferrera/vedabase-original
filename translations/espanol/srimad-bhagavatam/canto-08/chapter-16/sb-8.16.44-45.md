@@ -1,18 +1,18 @@
 ### SB 8.16.44-45
 
-> भुञ्जीत तैरनुज्ञआतः सेष्टः शेषं सभाजितैः
-> ब्रह्मचार्यथ तद्रात्र्यां श्वो भूते प्रथमेऽहनि ॥४४॥
-> स्नातः शुचिर्यथोक्तेन विधिना सुसमाहितः
+> भुञ्जीत तैरनुज्ञआतः सेष्टः शेषं सभाजितैः\
+> ब्रह्मचार्यथ तद्रात्र्यां श्वो भूते प्रथमेऽहनि ॥४४॥\
+> स्नातः शुचिर्यथोक्तेन विधिना सुसमाहितः\
 > पयसा स्नापयित्वार्चेद्यावद्व्रतसमापनम ॥४५॥
 
-> bhuñjīta tair anujñātaḥ
-> seṣṭaḥ śeṣaṁ sabhājitaiḥ
-> brahmacāry atha tad-rātryāṁ
+> bhuñjīta tair anujñātaḥ\
+> seṣṭaḥ śeṣaṁ sabhājitaiḥ\
+> brahmacāry atha tad-rātryāṁ\
 > śvo bhūte prathame 'hani
 
-> snātaḥ śucir yathoktena
-> vidhinā susamāhitaḥ
-> payasā snāpayitvārced
+> snātaḥ śucir yathoktena\
+> vidhinā susamāhitaḥ\
+> payasā snāpayitvārced\
 > yāvad vrata-samāpanam
 
 *bhuñjīta*—debe tomar el *prasāda*; *taiḥ*—por los *brāhmaṇas*; *anujñātaḥ*—recibiendo permiso; *sa-iṣṭaḥ*—con los amigos y familiares; *śeṣam*—los remanentes; *sabhājitaiḥ*—honrados como es debido; *brahmacārī*—observancia de celibato; *atha*—por supuesto; *tat-rātryām*—por la noche; *śvaḥ bhūte*—al final de la noche, cuando llega la mañana; *prathame ahani*—el primer día; *snātaḥ*—bañarse; *śuciḥ*—purificarse; *yathā-uktena*—como antes se explicó; *vidhinā*—siguiendo los principios regulativos; *su-samāhitaḥ*—con gran atención; *payasā*—con leche; *snāpayitvā*—bañar a la Deidad; *arcet*—debe ofrecer adoración; *yāvat*—mientras que; *vrata-samāpanam*—no se completa el período de adoración.

@@ -1,13 +1,13 @@
 ### SB 5.25.11
 
-> यन्नाम श्रुतमनुकीर्तयेदकस्माद
-> आर्तो वा यदि पतितः प्रलम्भनाद्वा
-> हन्त्यंहः सपदि नृणामशेषमन्यं
+> यन्नाम श्रुतमनुकीर्तयेदकस्माद\
+> आर्तो वा यदि पतितः प्रलम्भनाद्वा\
+> हन्त्यंहः सपदि नृणामशेषमन्यं\
 > कं शेषाद्भगवत आश्रयेन्मुमुक्षुः ॥११॥
 
-> yan-nāma śrutam anukīrtayed akasmād
-> ārto vā yadi patitaḥ pralambhanād vā
-> hanty aṁhaḥ sapadi nṛṇām aśeṣam anyaṁ
+> yan-nāma śrutam anukīrtayed akasmād\
+> ārto vā yadi patitaḥ pralambhanād vā\
+> hanty aṁhaḥ sapadi nṛṇām aśeṣam anyaṁ\
 > kaṁ śeṣād bhagavata āśrayen mumukṣuḥ
 
 *yat*—of whom; *nāma*—the holy name; *śrutam*—heard; *anukīrtayet*—may chant or repeat; *akasmāt*—by accident; *ārtaḥ*—a distressed person; *vā*—or; *yadi*—if; *patitaḥ*—a fallen person; *pralambhanāt*—out of joking; *vā*—or; *hanti*—destroys; *aṁhaḥ*—sinful; *sapadi*—that instant; *nṛṇām*—of human society; *aśeṣam*—unlimited; *anyam*—of other; *kam*—what; *śeṣāt*—than Lord Śeṣa; *bhagavataḥ*—the Supreme Personality of Godhead; *āśrayet*—should take shelter of; *mumukṣuḥ*—anyone desiring liberation.

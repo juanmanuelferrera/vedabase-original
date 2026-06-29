@@ -1,11 +1,11 @@
 ### SB 8.22.9
 
-> किमात्मनानेन जहाति योऽन्ततः किं रिक्थहारैः स्वजनाख्यदस्युभिः
+> किमात्मनानेन जहाति योऽन्ततः किं रिक्थहारैः स्वजनाख्यदस्युभिः\
 > किं जायया संसृतिहेतुभूतया मर्त्यस्य गेहैः किमिहायुषो व्ययः ॥९॥
 
-> kim ātmanānena jahāti yo 'ntataḥ
-> kiṁ riktha-hāraiḥ svajanākhya-dasyubhiḥ
-> kiṁ jāyayā saṁsṛti-hetu-bhūtayā
+> kim ātmanānena jahāti yo 'ntataḥ\
+> kiṁ riktha-hāraiḥ svajanākhya-dasyubhiḥ\
+> kiṁ jāyayā saṁsṛti-hetu-bhūtayā\
 > martyasya gehaiḥ kim ihāyuṣo vyayaḥ
 
 *kim*—de qué sirve; *ātmanā anena*—el cuerpo; *jahāti*—abandona; *yaḥ*—el cual (cuerpo); *antataḥ*—al final de la vida; *kim*—de qué sirven; *riktha-hāraiḥ*—los saqueadores de riquezas; *svajana-ākhya-dasyubhiḥ*—quienes en realidad son bandidos pero se hacen pasar por familiares; *kim*—de qué sirve; *jāyayā*—una esposa; *saṁsṛti-hetu-bhūtayā*—que es causa de que aumenten las necesidades materiales; *martyasya*—de una persona con la muerte asegurada; *gehaiḥ*—las casas, la familia y la comunidad; *kim*—de qué sirven; *iha*—en la cual casa; *āyuṣaḥ*—de la duración de la vida; *vyayaḥ*—que simplemente desperdicia.

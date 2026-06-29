@@ -1,11 +1,11 @@
 ### SB 1.15.39
 
-> मथुरायां तथा वज्रं शूरसेनपतिं ततः ।
+> मथुरायां तथा वज्रं शूरसेनपतिं ततः ।\
 > प्राजापत्यां निरूप्येष्टिमग्नीनपिबदीश्वरः ॥३९॥
 
-> mathurāyāṁ tathā vajraṁ
-> śūrasena-patiṁ tataḥ
-> prājāpatyāṁ nirūpyeṣṭim
+> mathurāyāṁ tathā vajraṁ\
+> śūrasena-patiṁ tataḥ\
+> prājāpatyāṁ nirūpyeṣṭim\
 > agnīn apibad īśvaraḥ
 
 *mathurāyām*—en Mathurā; *tathā*—también; *vajram*—Vajra; *śūrasena-patim*—el rey de los Śūrasenas; *tataḥ*—luego; *prājāpatyām*—sacrificio *prājāpatya*; *nirūpya*—habiendo celebrado; *iṣṭim*—meta; *agnīn*—fuego; *apibat*—puesto en sí mismo; *īśvaraḥ*—capaz.

@@ -1,11 +1,11 @@
 ### SB 8.12.34
 
-> सरित्सरःसु शैलेषु वनेषूपवनेषु च
+> सरित्सरःसु शैलेषु वनेषूपवनेषु च\
 > यत्र क्व चासन्नृषयस्तत्र सन्निहितो हरः ॥३४॥
 
-> sarit-saraḥsu śaileṣu
-> vaneṣūpavaneṣu ca
-> yatra kva cāsann ṛṣayas
+> sarit-saraḥsu śaileṣu\
+> vaneṣūpavaneṣu ca\
+> yatra kva cāsann ṛṣayas\
 > tatra sannihito haraḥ
 
 *sarit*—cerca de las orillas de los ríos; *saraḥsu*—y cerca de los lagos; *śaileṣu*—cerca de las montañas; *vaneṣu*—en los bosques; *upavaneṣu*—en los jardines o bosquecillos; *ca*—también; *yatra*—allí donde; *kva*—en todo lugar; *ca*—también; *āsan*—existían; *ṛṣayaḥ*—grandes sabios; *tatra*—allí; *sannihitaḥ*—estuvo; *haraḥ*—el Señor Śiva.

@@ -1,9 +1,9 @@
 ### CC Antya 13.122
 
-> এত বলি’ প্রভু তাঁরে আলিঙ্গন কৈলা ।
+> এত বলি’ প্রভু তাঁরে আলিঙ্গন কৈলা ।\
 > প্রভুর কৃপাতে কৃষ্ণপ্রেমে মত্ত হৈলা ॥১২২॥
 
-> eta bali' prabhu tāṅre āliṅgana kailā
+> eta bali' prabhu tāṅre āliṅgana kailā\
 > prabhura kṛpāte kṛṣṇa-preme matta hailā
 
 *eta bali'*—saying this; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—Raghunātha Bhaṭṭa; *āliṅgana kailā*—embraced; *prabhura*—of Śrī Caitanya Mahāprabhu; *kṛpāte*—by the mercy; *kṛṣṇa-preme*—in love of Kṛṣṇa; *matta hailā*—became enlivened.

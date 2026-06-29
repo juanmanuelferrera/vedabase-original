@@ -1,14 +1,14 @@
 ### CC Madhya 20.251
 
-> বিষ্ণোস্তু ত্রীণি রূপাণি পুরুষাখ্যান্যথো বিদুঃ ।
-> একন্তু মহতঃ স্রষ্টৃ দ্বিতীয়ং ত্বণ্ডসংস্থিতম্ ।
+> বিষ্ণোস্তু ত্রীণি রূপাণি পুরুষাখ্যান্যথো বিদুঃ ।\
+> একন্তু মহতঃ স্রষ্টৃ দ্বিতীয়ং ত্বণ্ডসংস্থিতম্ ।\
 > তৃতীয়ং সর্বভূতস্থং তানি জ্ঞাত্বা বিমুচ্যতে ॥২৫১॥
 
-> viṣṇos tu trīṇi rūpāṇi
-> puruṣākhyāny atho viduḥ
-> ekaṁ tu mahataḥ sraṣṭṛ
-> dvitīyaṁ tv aṇḍa-saṁsthitam
-> tṛtīyaṁ sarva-bhūta-sthaṁ
+> viṣṇos tu trīṇi rūpāṇi\
+> puruṣākhyāny atho viduḥ\
+> ekaṁ tu mahataḥ sraṣṭṛ\
+> dvitīyaṁ tv aṇḍa-saṁsthitam\
+> tṛtīyaṁ sarva-bhūta-sthaṁ\
 > tāni jñātvā vimucyate
 
 *viṣṇoḥ*—del Señor Viṣṇu; *tu*—ciertamente; *trīṇi*—tres; *rūpāṇi*—formas; *puruṣa-ākhyāni*—celebradas como el puruṣa; *atho*—cómo; *viduḥ*—ellos saben; *ekam*—una de ellas; *tu*—pero; *mahataḥ sraṣṭṛ*—el creador de la energía material total; *dvitīyam*—la segunda; *tu*—pero; *aṇḍa-saṁsthitam*—situada dentro del universo; *tṛtīyam*—la tercera; *sarva-bhūta-stham*—dentro de los corazones de todas las entidades vivientes; *tāni*—estas tres; *jñātvā*—al conocer; *vimucyate*—uno se libera.

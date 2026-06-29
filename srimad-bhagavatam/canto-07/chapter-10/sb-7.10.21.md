@@ -1,11 +1,11 @@
 ### SB 7.10.21
 
-> भवन्ति पुरुषा लोके मद्भक्तास्त्वामनुव्रताः
+> भवन्ति पुरुषा लोके मद्भक्तास्त्वामनुव्रताः\
 > भवान्मे खलु भक्तानां सर्वेषां प्रतिरूपधृक ॥२१॥
 
-> bhavanti puruṣā loke
-> mad-bhaktās tvām anuvratāḥ
-> bhavān me khalu bhaktānāṁ
+> bhavanti puruṣā loke\
+> mad-bhaktās tvām anuvratāḥ\
+> bhavān me khalu bhaktānāṁ\
 > sarveṣāṁ pratirūpa-dhṛk
 
 *bhavanti*—become; *puruṣāḥ*—persons; *loke*—in this world; *mat-bhaktāḥ*—My pure devotees; *tvām*—you; *anuvratāḥ*—following in your footsteps; *bhavān*—you; *me*—My; *khalu*—indeed; *bhaktānām*—of all devotees; *sarveṣām*—in different mellows; *pratirūpa-dhṛk*—tangible example.

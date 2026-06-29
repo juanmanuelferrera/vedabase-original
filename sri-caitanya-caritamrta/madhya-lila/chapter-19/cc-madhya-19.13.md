@@ -1,9 +1,9 @@
 ### CC Madhya 19.13
 
-> এথা সনাতন-গোসাঞি ভাবে মনে মন ।
+> এথা সনাতন-গোসাঞি ভাবে মনে মন ।\
 > রাজা মোরে প্রীতি করে, সে — মোর বন্ধন ॥১৩॥
 
-> ethā sanātana-gosāñi bhāve mane mana
+> ethā sanātana-gosāñi bhāve mane mana\
 > rājā more prīti kare, se—mora bandhana
 
 *ethā*—here (in Gauḍa-deśa); *sanātana-gosāñi*—the elder brother, Sanātana Gosvāmī; *bhāve*—considers; *mane mana*—in the mind; *rājā*—the Nawab; *more*—me; *prīti kare*—loves very much; *se*—that; *mora*—my; *bandhana*—great obligation.

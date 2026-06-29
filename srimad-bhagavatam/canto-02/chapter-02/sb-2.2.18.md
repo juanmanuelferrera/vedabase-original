@@ -1,11 +1,11 @@
 ### SB 2.2.18
 
-> परं पदं वैष्णवमामनन्ति तद्यन्नेति नेतीत्यतदुत्सिसृक्षवः ।
+> परं पदं वैष्णवमामनन्ति तद्यन्नेति नेतीत्यतदुत्सिसृक्षवः ।\
 > विसृज्य दौरात्म्यमनन्यसौहृदा हृदोपगुह्यार्हपदं पदे पदे ॥१८॥
 
-> paraṁ padaṁ vaiṣṇavam āmananti tad
-> yan neti netīty atad utsisṛkṣavaḥ
-> visṛjya daurātmyam ananya-sauhṛdā
+> paraṁ padaṁ vaiṣṇavam āmananti tad\
+> yan neti netīty atad utsisṛkṣavaḥ\
+> visṛjya daurātmyam ananya-sauhṛdā\
 > hṛdopaguhyārha-padaṁ pade pade
 
 *param*—the supreme; *padam*—situation; *vaiṣṇavam*—in relation with the Personality of Godhead; *āmananti*—do they know; *tat*—that; *yat*—which; *na iti*—not this; *na iti*—not this; *iti*—thus; *atat*—godless; *utsisṛkṣavaḥ*—those who desire to avoid; *visṛjya*—giving it up completely; *daurātmyam*—perplexities; *ananya*—absolutely; *sauhṛdāḥ*—in good will; *hṛdā upaguhya*—taking them into his heart; *arha*—that which is only worshipable; *padam*—lotus feet; *pade pade*—at every moment.

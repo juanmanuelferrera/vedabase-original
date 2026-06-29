@@ -1,13 +1,13 @@
 ### SB 3.19.33
 
-> सूत उवाच
-> इति कौषारवाख्यातामाश्रुत्य भगवत्कथाम् ।
+> सूत उवाच\
+> इति कौषारवाख्यातामाश्रुत्य भगवत्कथाम् ।\
 > क्षत्तानन्दं परं लेभे महाभागवतो द्विज ॥३३॥
 
-> sūta uvāca
-> iti kauṣāravākhyātām
-> āśrutya bhagavat-kathām
-> kṣattānandaṁ paraṁ lebhe
+> sūta uvāca\
+> iti kauṣāravākhyātām\
+> āśrutya bhagavat-kathām\
+> kṣattānandaṁ paraṁ lebhe\
 > mahā-bhāgavato dvija
 
 *sūtaḥ*—Sūta Gosvāmī; *uvāca*—dijo; *iti*—así pues; *kauṣārava*—de Maitreya (hijo de Kuṣāru); *ākhyātām*—dijo; *āśrutya*—habiendo oído; *bhagavat-kathām*—la narración acerca del Señor; *kṣattā*—Vidura; *ānandam*—bienaventuranza; *param*—trascendental; *lebhe*—consiguió; *mahā-bhāgavataḥ*—el gran devoto; *dvija*—¡oh, *brāhmaṇa* (Śaunaka)!.

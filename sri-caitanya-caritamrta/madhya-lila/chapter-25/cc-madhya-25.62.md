@@ -1,9 +1,9 @@
 ### CC Madhya 25.62
 
-> মাধব-সৌন্দর্য দেখি’ আবিষ্ট হইলা ।
+> মাধব-সৌন্দর্য দেখি’ আবিষ্ট হইলা ।\
 > অঙ্গনেতে আসি’ প্রেমে নাচিতে লাগিলা ॥৬২॥
 
-> mādhava-saundarya dekhi' āviṣṭa ha-ilā
+> mādhava-saundarya dekhi' āviṣṭa ha-ilā\
 > aṅganete āsi' preme nācite lāgilā
 
 *mādhava-saundarya dekhi'*—after seeing the beauty of Lord Bindu Mādhava; *āviṣṭa ha-ilā*—became ecstatic in love; *aṅganete āsi'*—coming to the courtyard; *preme*—in great love; *nācite lāgilā*—began to dance.

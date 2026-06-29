@@ -1,11 +1,11 @@
 ### SB 3.12.34
 
-> कदाचिद्ध्यायतः स्रष्टुर्वेदा आसंश्चतुर्मुखात् ।
+> कदाचिद्ध्यायतः स्रष्टुर्वेदा आसंश्चतुर्मुखात् ।\
 > कथं स्रक्ष्याम्यहं लोकान्समवेतान्यथा पुरा ॥३४॥
 
-> kadācid dhyāyataḥ sraṣṭur
-> vedā āsaṁś catur-mukhāt
-> kathaṁ srakṣyāmy ahaṁ lokān
+> kadācid dhyāyataḥ sraṣṭur\
+> vedā āsaṁś catur-mukhāt\
+> kathaṁ srakṣyāmy ahaṁ lokān\
 > samavetān yathā purā
 
 *kadācit*—en cierta ocasión; *dhyāyataḥ*—mientras contemplaba; *sraṣṭuḥ*—de Brahmā; *vedāḥ*—las Escrituras védicas; *āsan*—se manifestaron; *catuḥ-mukhāt*—de las cuatro bocas; *katham srakṣyāmi*—¿cómo voy a crear?; *aham*—yo mismo; *lokān*—todos estos mundos; *samavetān*—juntos; *yathā*—tal como eran; *purā*—en el pasado.

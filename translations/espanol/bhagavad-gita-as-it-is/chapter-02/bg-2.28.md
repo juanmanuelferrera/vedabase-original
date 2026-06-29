@@ -1,11 +1,11 @@
 ### Bg 2.28
 
-> अव्यक्तादीनि भूतानि व्यक्तमध्यानि भारत ।
+> अव्यक्तादीनि भूतानि व्यक्तमध्यानि भारत ।\
 > अव्यक्तनिधनान्येव तत्र का परिदेवना ॥२८॥
 
-> avyaktādīni bhūtāni
-> vyakta-madhyāni bhārata
-> avyakta-nidhanāny eva
+> avyaktādīni bhūtāni\
+> vyakta-madhyāni bhārata\
+> avyakta-nidhanāny eva\
 > tatra kā paridevanā
 
 *avyaktādīni*—no manifestado al principio; *bhūtāni*—todos los que son creados; *vyakta*—manifestados; *madhyāni*—en el medio; *bhārata*—¡oh, descendiente de Bharata!; *avyakta*—no manifestado; *nidhanāni*—todos los que son aniquilados; *eva*—todo es así; *tatra*—por lo tanto; *kā*—qué; *paridevanā*—lamentación.

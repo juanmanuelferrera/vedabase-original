@@ -1,11 +1,11 @@
 ### SB 6.8.29
 
-> गरुडो भगवान्स्तोत्र स्तोभश्छन्दोमयः प्रभुः
+> गरुडो भगवान्स्तोत्र स्तोभश्छन्दोमयः प्रभुः\
 > रक्षत्वशेषकृच्छ्रेभ्यो विष्वक्सेनः स्वनामभिः ॥२९॥
 
-> garuḍo bhagavān stotra-
-> stobhaś chandomayaḥ prabhuḥ
-> rakṣatv aśeṣa-kṛcchrebhyo
+> garuḍo bhagavān stotra-\
+> stobhaś chandomayaḥ prabhuḥ\
+> rakṣatv aśeṣa-kṛcchrebhyo\
 > viṣvaksenaḥ sva-nāmabhiḥ
 
 *garuḍaḥ*—Su Santidad Garuḍa, la montura del Señor Viṣṇu; *bhagavān*—tan poderoso como la Suprema Personalidad de Dios; *stotra-stobhaḥ*—a quien se glorifica con canciones y versos selectos; *chandaḥ-mayaḥ*—la personificación de los *Vedas*; *prabhuḥ*—el señor; *rakṣatu*—que Él proteja; *aśeṣa-kṛcchrebhyaḥ*—de ilimitadas miserias; *viṣvaksenaḥ*—el Señor Viṣvaksena; *sva-nāmabhiḥ*—por medio de Sus santos nombres.

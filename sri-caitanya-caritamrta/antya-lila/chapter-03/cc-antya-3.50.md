@@ -1,9 +1,9 @@
 ### CC Antya 3.50
 
-> “হরিদাস, কলিকালে যবন অপার  ।
+> “হরিদাস, কলিকালে যবন অপার  ।\
 > গো-ব্রাহ্মণে হিংসা করে মহা দুরাচার ॥৫০॥
 
-> "haridāsa, kali-kāle yavana apāra
+> "haridāsa, kali-kāle yavana apāra\
 > go-brāhmaṇe hiṁsā kare mahā durācāra
 
 *haridāsa*—My dear Haridāsa; *kali-kāle*—in this age of Kali; *yavana*—demons against the Vedic principles; *apāra*—unlimited; *go-brāhmaṇe*—cows and brahminical culture; *hiṁsā kare*—do violence against; *mahā durācāra*—extremely fallen.

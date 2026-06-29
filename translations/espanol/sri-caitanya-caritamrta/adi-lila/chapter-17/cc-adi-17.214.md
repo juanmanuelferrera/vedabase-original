@@ -1,9 +1,9 @@
 ### CC Adi 17.214
 
-> তবে আমি প্রীতিবাক্য কহিল সবারে ।
+> তবে আমি প্রীতিবাক্য কহিল সবারে ।\
 > সবে ঘরে যাহ, আমি নিষেধিব তারে ॥২১৪॥
 
-> tabe āmi prīti-vākya kahila sabāre
+> tabe āmi prīti-vākya kahila sabāre\
 > sabe ghare yāha, āmi niṣedhiba tāre
 
 *tabe*—después; *āmi*—yo; *prīti-vākya*—palabras dulces; *kahila*—dije; *sabāre*—a todos ellos; *sabe*—todos vosotros; *ghare*—a casa; *yāha*—id; *āmi*—yo; *niṣedhiba*—prohibiré; *tāre*—a Él (Nimāi Paṇḍita).

@@ -1,18 +1,18 @@
 ### SB 9.16.18-19
 
-> तद्रक्तेन नदीं घोरामब्रह्मण्यभयावहाम
-> हेतुं कृत्वा पितृवधं क्षत्रेऽमङ्गलकारिणि ॥१८॥
-> त्रिःसप्तकृत्वः पृथिवीं कृत्वा निःक्षत्रियां प्रभुः
+> तद्रक्तेन नदीं घोरामब्रह्मण्यभयावहाम\
+> हेतुं कृत्वा पितृवधं क्षत्रेऽमङ्गलकारिणि ॥१८॥\
+> त्रिःसप्तकृत्वः पृथिवीं कृत्वा निःक्षत्रियां प्रभुः\
 > समन्तपञ्चके चक्रे शोणितोदान्ह्रदान्नव ॥१९॥
 
-> tad-raktena nadīṁ ghorām
-> abrahmaṇya-bhayāvahām
-> hetuṁ kṛtvā pitṛ-vadhaṁ
+> tad-raktena nadīṁ ghorām\
+> abrahmaṇya-bhayāvahām\
+> hetuṁ kṛtvā pitṛ-vadhaṁ\
 > kṣatre 'maṅgala-kāriṇi
 
-> triḥ-sapta-kṛtvaḥ pṛthivīṁ
-> kṛtvā niḥkṣatriyāṁ prabhuḥ
-> samanta-pañcake cakre
+> triḥ-sapta-kṛtvaḥ pṛthivīṁ\
+> kṛtvā niḥkṣatriyāṁ prabhuḥ\
+> samanta-pañcake cakre\
 > śoṇitodān hradān nava
 
 *tat-raktena*—con la sangre de los hijos de Kārtavīryārjuna; *nadīm*—un río; *ghorām*—espantoso; *abrahmaṇya-bhaya-āvahām*—que llenó de terror a los reyes que no sentían respeto por la cultura brahmínica; *hetum*—causa; *kṛtvā*—aceptar; *pitṛ-vadham*—el asesinato de su padre; *kṣatre*—cuando toda la clase real; *amaṇgala-kāriṇi*—actuaba de forma muy desfavorable; *triḥ-sapta-kṛtvaḥ*—veintiuna veces; *pṛthivīm*—el mundo entero; *kṛtvā*—hacer; *niḥkṣatriyām*—sin una sola dinastía *kṣatriya*; *prabhuḥ*—el Señor Supremo, Paraśurāma; *samanta-pañcake*—en el lugar denominado Samanta-pañcaka; *cakre*—hizo; *śoṇita-udān*—llenos de sangre en lugar de agua; *hradān*—lagos; *nava*—nueve.

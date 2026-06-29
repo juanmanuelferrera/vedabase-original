@@ -1,11 +1,11 @@
 ### SB 4.17.21
 
-> मां विपाट्याजरां नावं यत्र विश्वं प्रतिष्ठितम् ।
+> मां विपाट्याजरां नावं यत्र विश्वं प्रतिष्ठितम् ।\
 > आत्मानं च प्रजाश्चेमाः कथमम्भसि धास्यसि ॥२१॥
 
-> māṁ vipāṭyājarāṁ nāvaṁ
-> yatra viśvaṁ pratiṣṭhitam
-> ātmānaṁ ca prajāś cemāḥ
+> māṁ vipāṭyājarāṁ nāvaṁ\
+> yatra viśvaṁ pratiṣṭhitam\
+> ātmānaṁ ca prajāś cemāḥ\
 > katham ambhasi dhāsyasi
 
 *mām*—a mí; *vipāṭya*—haciendo pedazos; *ajarām*—muy sólida; *nāvam*—barca; *yatra*—donde; *viśvam*—todo lo que existe en el mundo; *pratiṣṭhitam*—se sostiene; *ātmānam*—tú mismo; *ca*—y; *prajāḥ*—tus súbditos; *ca*—también; *imāḥ*—todos esos; *katham*—cómo; *ambhasi*—en el agua; *dhāsyasi*—sostendrás.

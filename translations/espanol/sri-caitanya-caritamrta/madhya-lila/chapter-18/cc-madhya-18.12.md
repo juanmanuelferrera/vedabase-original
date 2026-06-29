@@ -1,13 +1,13 @@
 ### CC Madhya 18.12
 
-> শ্রীরাধেব হরেস্তদীয়সরসী প্রেষ্ঠাদ্ভুতৈঃ স্বৈর্গুণৈ-
-> র্যস্যাং শ্রীযুত-মাধববেন্দুরনিশং প্রীত্যা তয়া ক্রীড়তি ৷
-> প্রেমাস্মিন্ বত রাধিকেব লভতে যস্যাং সকৃৎ স্নানকৃৎ
+> শ্রীরাধেব হরেস্তদীয়সরসী প্রেষ্ঠাদ্ভুতৈঃ স্বৈর্গুণৈ-\
+> র্যস্যাং শ্রীযুত-মাধববেন্দুরনিশং প্রীত্যা তয়া ক্রীড়তি ৷\
+> প্রেমাস্মিন্ বত রাধিকেব লভতে যস্যাং সকৃৎ স্নানকৃৎ\
 > তস্যা বৈ মহিমা তথা মধুরিমা কেনাস্তু বর্ণ্যঃ ক্ষিতৌ ॥১২॥
 
-> śrī-rādheva hares tadīya-sarasī preṣṭhādbhutaiḥ svair guṇair
-> yasyāṁ śrī-yuta-mādhavendur aniśaṁ prītyā tayā krīḍati
-> premāsmin bata rādhikeva labhate yasyāṁ sakṛt snāna-kṛt
+> śrī-rādheva hares tadīya-sarasī preṣṭhādbhutaiḥ svair guṇair\
+> yasyāṁ śrī-yuta-mādhavendur aniśaṁ prītyā tayā krīḍati\
+> premāsmin bata rādhikeva labhate yasyāṁ sakṛt snāna-kṛt\
 > tasyā vai mahimā tathā madhurimā kenāstu varṇyaḥ kṣitau
 
 *śrī-rādhā*—Śrīmatī Rādhārāṇī; *iva*—como; *hareḥ*—de Kṛṣṇa; *tadīya*—de Ella; *sarasī*—lago; *preṣṭhā*—muy querido; *adbhutaiḥ*—por maravillosas; *svaiḥ*—propias; *guṇaiḥ*—cualidades trascendentales; *yasyām*—en el cual; *śrī-yuta*—plenamente opulento; *mādhava*—Śrī Kṛṣṇa; *induḥ*—como la luna; *aniśam*—incesantemente; *prītyā*—con gran afecto; *tayā*—en compañía de Śrīmatī Rādhārāṇī; *krīḍati*—realiza pasatiempos; *premā*—amor; *asmin*—por el Señor Kṛṣṇa; *bata*—ciertamente; *rādhikā iva*—exactamente como el de Śrīmatī Rādhārāṇī; *labhate*—obtiene; *yasyām*—en el cual; *sakṛt*—una vez; *snāna-kṛt*—aquel que se baña; *tasyāḥ*—del lago; *vai*—ciertamente; *mahimā*—glorias; *tathā*—así como; *madhurimā*—dulzura; *kena*—por quién; *astu*—puede ser; *varṇyaḥ*—descrita; *kṣitau*—en esta tierra.

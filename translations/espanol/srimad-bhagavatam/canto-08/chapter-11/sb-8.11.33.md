@@ -1,11 +1,11 @@
 ### SB 8.11.33
 
-> तस्मादिन्द्रोऽबिभेच्छत्रोर्वज्रः प्रतिहतो यतः
+> तस्मादिन्द्रोऽबिभेच्छत्रोर्वज्रः प्रतिहतो यतः\
 > किमिदं दैवयोगेन भूतं लोकविमोहनम ॥३३॥
 
-> tasmād indro 'bibhec chatror
-> vajraḥ pratihato yataḥ
-> kim idaṁ daiva-yogena
+> tasmād indro 'bibhec chatror\
+> vajraḥ pratihato yataḥ\
+> kim idaṁ daiva-yogena\
 > bhūtaṁ loka-vimohanam
 
 *tasmāt*—por lo tanto; *indraḥ*—el rey del cielo; *abibhet*—sintió mucho miedo; *śatroḥ*—del enemigo (Namuci); *vajraḥ*—el rayo; *pratihataḥ*—regresó sin haber logrado herir; *yataḥ*—debido a que; *kim idam*—qué es esto; *daiva-yogena*—por alguna fuerza superior; *bhūtam*—había ocurrido; *loka-vimohanam*—tan asombroso para la gente común.

@@ -1,11 +1,11 @@
 ### SB 1.3.37
 
-> न चास्य कश्चिन्निपुणेन धातुरवैति जन्तुः कुमनीष ऊतीः ।
+> न चास्य कश्चिन्निपुणेन धातुरवैति जन्तुः कुमनीष ऊतीः ।\
 > नामानि रूपाणि मनोवचोभिः सन्तन्वतो नटचर्यामिवाज्ञः ॥३७॥
 
-> na cāsya kaścin nipuṇena dhātur
-> avaiti jantuḥ kumanīṣa ūtīḥ
-> nāmāni rūpāṇi mano-vacobhiḥ
+> na cāsya kaścin nipuṇena dhātur\
+> avaiti jantuḥ kumanīṣa ūtīḥ\
+> nāmāni rūpāṇi mano-vacobhiḥ\
 > santanvato naṭa-caryām ivājñaḥ
 
 *na*—not; *ca*—and; *asya*—of Him; *kaścit*—anyone; *nipuṇena*—by dexterity; *dhātuḥ*—of the creator; *avaiti*—can know; *jantuḥ*—the living being; *kumanīṣaḥ*—with a poor fund of knowledge; *ūtīḥ*—activities of the Lord; *nāmāni*—His names; *rūpāṇi*—His forms; *manaḥ-vacobhiḥ*—by dint of mental speculation or deliverance of speeches; *santanvataḥ*—displaying; *naṭa-caryām*—a dramatic action; *iva*—like; *ajñaḥ*—the foolish.

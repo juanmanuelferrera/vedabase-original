@@ -1,9 +1,9 @@
 ### CC Madhya 16.10
 
-> আজি-কালি করি’ উঠায় বিবিধ উপায় ।
+> আজি-কালি করি’ উঠায় বিবিধ উপায় ।\
 > যাইতে সম্মতি না দেয় বিচ্ছেদের ভয় ॥১০॥
 
-> āji-kāli kari' uṭhāya vividha upāya
+> āji-kāli kari' uṭhāya vividha upāya\
 > yāite sammati nā deya vicchedera bhaya
 
 *āji-kāli kari'*—delaying today and tomorrow; *uṭhāya*—they put forward; *vividha upāya*—many devices; *yāite*—to go; *sammati*—permission; *nā deya*—did not give; *vicchedera bhaya*—because of fearing separation.

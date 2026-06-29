@@ -1,13 +1,13 @@
 ### SB 9.1.29
 
-> श्रीशुक उवाच
-> एकदा गिरिशं द्रष्टुमृषयस्तत्र सुव्रताः
+> श्रीशुक उवाच\
+> एकदा गिरिशं द्रष्टुमृषयस्तत्र सुव्रताः\
 > दिशो वितिमिराभासाः कुर्वन्तः समुपागमन ॥२९॥
 
-> śrī-śuka uvāca
-> ekadā giriśaṁ draṣṭum
-> ṛṣayas tatra suvratāḥ
-> diśo vitimirābhāsāḥ
+> śrī-śuka uvāca\
+> ekadā giriśaṁ draṣṭum\
+> ṛṣayas tatra suvratāḥ\
+> diśo vitimirābhāsāḥ\
 > kurvantaḥ samupāgaman
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *ekadā*—once upon a time; *giriśam*—Lord Śiva; *draṣṭum*—to see; *ṛṣayaḥ*—very saintly persons; *tatra*—in that forest; *su-vratāḥ*—highly elevated in spiritual power; *diśaḥ*—all directions; *vitimira-ābhāsāḥ*—having been cleared of all darkness whatsoever; *kurvantaḥ*—doing so; *samupāgaman*—arrived.

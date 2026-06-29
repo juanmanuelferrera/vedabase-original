@@ -1,11 +1,11 @@
 ### CC Antya 15.72
 
-> বান্ধব কৃষ্ণ করে ব্যাধের আচার ।
-> নাহি মানে ধর্মাধর্ম, হরে নারী-মৃগী-মর্ম,
+> বান্ধব কৃষ্ণ করে ব্যাধের আচার ।\
+> নাহি মানে ধর্মাধর্ম, হরে নারী-মৃগী-মর্ম,\
 > করে নানা উপায় তাহার ।। ৭২ ।। ধ্রু ।। ॥৭২॥
 
-> bāndhava kṛṣṇa kare vyādhera ācāra
-> nāhi māne dharmādharma, hare nārī-mṛgī-marma,
+> bāndhava kṛṣṇa kare vyādhera ācāra\
+> nāhi māne dharmādharma, hare nārī-mṛgī-marma,\
 > kare nānā upāya tāhāra
 
 *bāndhava*—¡oh, amiga!; *kṛṣṇa*—el Señor Kṛṣṇa; *kare*—actúa; *vyādhera ācāra*—como un cazador; *nāhi*—no; *māne*—se preocupa por; *dharma-adharma*—piedad e impiedad; *hare*—atrae; *nārī*—de una mujer; *mṛgī*—cervatilla; *marma*—lo más recóndito del corazón; *kare*—emplea; *nānā*—diversas; *upāya*—artimañas; *tāhāra*—para ese fin.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.203
 
-> ‘প্ৰভু আইলা’ বলি’ লোকে হৈল কোলাহল ।
+> ‘প্ৰভু আইলা’ বলি’ লোকে হৈল কোলাহল ।\
 > মনুষ্য ভরিল সব, কিবা জল, স্থল ॥২০৩॥
 
-> 'prabhu āilā' bali' loke haila kolāhala
+> 'prabhu āilā' bali' loke haila kolāhala\
 > manuṣya bharila saba, kibā jala, sthala
 
 *prabhu āilā*—el Señor ha llegado; *bali'*—diciendo; *loke*—entre los habitantes; *haila*—hubo; *kolāhala*—gran conmoción; *manuṣya*—todo tipo de personas; *bharila*—llenaron; *saba*—todo; *kibā jala*—ya fuera en el agua; *sthala*—o en tierra.

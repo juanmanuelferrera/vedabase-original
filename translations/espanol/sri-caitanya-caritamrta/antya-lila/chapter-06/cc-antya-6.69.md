@@ -1,9 +1,9 @@
 ### CC Antya 6.69
 
-> তীরে স্থান না পাঞা আর কত জন ।
+> তীরে স্থান না পাঞা আর কত জন ।\
 > জলে নামি’ দধি-চিড়া করয়ে ভক্ষণ ॥৬৯॥
 
-> tīre sthāna nā pāñā āra kata jana
+> tīre sthāna nā pāñā āra kata jana\
 > jale nāmi' dadhi-ciḍā karaye bhakṣaṇa
 
 *tīre*—en la orilla; *sthāna*—lugar; *nā pāñā*—al no haber conseguido; *āra*—otros; *kata*—algunos; *jana*—personas; *jale nāmi'*—bajando al agua; *dadhi-ciḍā*—yogur y arroz inflado; *karaye bhakṣaṇa*—comenzaron a comer.

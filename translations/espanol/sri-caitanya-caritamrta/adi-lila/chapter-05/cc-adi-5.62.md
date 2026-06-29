@@ -1,9 +1,9 @@
 ### CC Adi 5.62
 
-> মায়া-অংশে কহি তারে নিমিত্ত-কারণ ।
+> মায়া-অংশে কহি তারে নিমিত্ত-কারণ ।\
 > সেহ নহে, যাতে কর্তা-হেতু — নারায়ণ ॥৬২॥
 
-> māyā-aṁśe kahi tāre nimitta-kāraṇa
+> māyā-aṁśe kahi tāre nimitta-kāraṇa\
 > seha nahe, yāte kartā-hetu--nārāyaṇa
 
 *māyā-aṁśe*—a la otra porción de la naturaleza material; *kahi*—digo; *tāre*—a ella; *nimitta-kāraṇa*—causa inmediata; *seha nahe*—eso no puede ser; *yāte*—porque; *kartā-hetu*—la causa original; *nārāyaṇa*—el Señor Nārāyaṇa.

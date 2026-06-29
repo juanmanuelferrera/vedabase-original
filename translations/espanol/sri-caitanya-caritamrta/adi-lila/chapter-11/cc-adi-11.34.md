@@ -1,9 +1,9 @@
 ### CC Adi 11.34
 
-> বলরাম দাস — কৃষ্ণপ্রেমরসাস্বাদী ।
+> বলরাম দাস — কৃষ্ণপ্রেমরসাস্বাদী ।\
 > নিত্যানন্দ-নামে হয় পরম উন্মাদী ॥৩৪॥
 
-> balarāma dāsa--kṛṣṇa-prema-rasāsvādī
+> balarāma dāsa--kṛṣṇa-prema-rasāsvādī\
 > nityānanda-nāme haya parama unmādī
 
 *balarāma-dāsa*—de nombre Balarāma dāsa; *kṛṣṇa-prema-rasa*—el néctar de estar siempre sumergido en amor por Kṛṣṇa; *āsvādī*—que saborea plenamente; *nityānanda-nāme*—al oír el nombre de Śrī Nityānanda Prabhu; *haya*—se vuelve; *parama*—sumamente; *unmādī*—enloquecido.

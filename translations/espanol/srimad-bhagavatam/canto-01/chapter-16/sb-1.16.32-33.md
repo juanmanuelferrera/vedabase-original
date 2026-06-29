@@ -1,22 +1,22 @@
 ### SB 1.16.32-33
 
-> ब्रह्मादयो बहुतिथं यदपाङ्गमोक्ष
-> कामास्तपः समचरन्भगवत्प्रपन्नाः ।
-> सा श्रीः स्ववासमरविन्दवनं विहाय
-> यत्पादसौभगमलं भजतेऽनुरक्ता ॥३२॥
-> तस्याहमब्जकुलिशाङ्कुशकेतुकेतैः
-> श्रीमत्पदैर्भगवतः समलङ्कृताङ्गी ।
-> त्रीनत्यरोच उपलभ्य ततो विभूतिं
+> ब्रह्मादयो बहुतिथं यदपाङ्गमोक्ष\
+> कामास्तपः समचरन्भगवत्प्रपन्नाः ।\
+> सा श्रीः स्ववासमरविन्दवनं विहाय\
+> यत्पादसौभगमलं भजतेऽनुरक्ता ॥३२॥\
+> तस्याहमब्जकुलिशाङ्कुशकेतुकेतैः\
+> श्रीमत्पदैर्भगवतः समलङ्कृताङ्गी ।\
+> त्रीनत्यरोच उपलभ्य ततो विभूतिं\
 > लोकान्स मां व्यसृजदुत्स्मयतीं तदन्ते ॥३३॥
 
-> brahmādayo bahu-tithaṁ yad-apāṅga-mokṣa-
-> kāmās tapaḥ samacaran bhagavat-prapannāḥ
-> sā śrīḥ sva-vāsam aravinda-vanaṁ vihāya
+> brahmādayo bahu-tithaṁ yad-apāṅga-mokṣa-\
+> kāmās tapaḥ samacaran bhagavat-prapannāḥ\
+> sā śrīḥ sva-vāsam aravinda-vanaṁ vihāya\
 > yat-pāda-saubhagam alaṁ bhajate 'nuraktā
 
-> tasyāham abja-kuliśāṅkuśa-ketu-ketaiḥ
-> śrīmat-padair bhagavataḥ samalaṅkṛtāṅgī
-> trīn atyaroca upalabhya tato vibhūtiṁ
+> tasyāham abja-kuliśāṅkuśa-ketu-ketaiḥ\
+> śrīmat-padair bhagavataḥ samalaṅkṛtāṅgī\
+> trīn atyaroca upalabhya tato vibhūtiṁ\
 > lokān sa māṁ vyasṛjad utsmayatīṁ tad-ante
 
 *brahma-ādayaḥ*—semidioses tales como Brahmā; *bahu-titham*—por muchos días; *yat*—de Lakṣmī, la diosa de la fortuna; *apāṅga-mokṣa*—vistazo de gracia; *kāmāḥ*—estando deseoso de; *tapaḥ*—penitencias; *samacaran*—ejecutando; *bhagavat*—a la Personalidad de Dios; *prapannāḥ*—entregado; *sā*—ella (la diosa de la fortuna); *śrīḥ*—Lakṣmījī; *sva-vāsam*—su propia morada; *aravinda-vanam*—el bosque de flores de loto; *vihāya*—dejando a un lado; *yat*—cuyos; *pāda*—pies; *saubhagam*—supremamente bienaventurados; *alam*—sin vacilación; *bhajate*—adora; *anuraktā*—estando apegada; *tasya*—Su; *aham*—yo misma; *abja*—flor de loto; *kuliśa*—relámpago; *aṅkuśa*—vara para conducir elefantes; *ketu*—bandera; *ketaiḥ*—impresiones; *śrīmat*—el dueño de toda opulencia; *padaiḥ*—por las plantas de los pies; *bhagavataḥ*—de la Personalidad de Dios; *samalaṅkṛta-aṅgī*—aquel cuyo cuerpo está adornado de ese modo; *trīn*—tres; *ati*—reemplazando; *aroce*—hermosamente adornado; *upalabhya*—habiendo logrado; *tataḥ*—después; *vibhūtim*—poderes específicos; *lokān*—sistemas planetarios; *saḥ*—Él; *mām*—a mí; *vyasṛjat*—abandonó; *utsmayatīm*—mientras me sentía orgullosa; *tat-ante*—al final.

@@ -1,9 +1,9 @@
 ### CC Adi 7.99
 
-> প্রভুর মিষ্টবাক্য শুনি’ সন্ন্যাসীর গণ ।
+> প্রভুর মিষ্টবাক্য শুনি’ সন্ন্যাসীর গণ ।\
 > চিত্ত ফিরি’ গেল, কহে মধুর বচন ॥৯৯॥
 
-> prabhura miṣṭa-vākya śuni' sannyāsīra gaṇa
+> prabhura miṣṭa-vākya śuni' sannyāsīra gaṇa\
 > citta phiri' gela, kahe madhura vacana
 
 *prabhura*—of the Lord; *miṣṭa-vākya*—sweet words; *śuni'*—after hearing; *sannyāsīra gaṇa*—all the groups of *sannyāsīs*; *citta*—consciousness; *phiri'*—moved; *gela*—went; *kahe*—said; *madhura*—pleasing; *vacana*—words.

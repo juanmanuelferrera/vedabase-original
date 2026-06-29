@@ -1,13 +1,13 @@
 ### SB 9.23.1
 
-> श्रीशुक उवाच
-> अनोः सभानरश्चक्षुः परेष्णुश्च त्रयः सुताः
+> श्रीशुक उवाच\
+> अनोः सभानरश्चक्षुः परेष्णुश्च त्रयः सुताः\
 > सभानरात्कालनरः सृञ्जयस्तत्सुतस्ततः ॥१॥
 
-> śrī-śuka uvāca
-> anoḥ sabhānaraś cakṣuḥ
-> pareṣṇuś ca trayaḥ sutāḥ
-> sabhānarāt kālanaraḥ
+> śrī-śuka uvāca\
+> anoḥ sabhānaraś cakṣuḥ\
+> pareṣṇuś ca trayaḥ sutāḥ\
+> sabhānarāt kālanaraḥ\
 > sṛñjayas tat-sutas tataḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *anoḥ*—of Anu, the fourth of the four sons of Yayāti; *sabhānaraḥ*—Sabhānara; *cakṣuḥ*—Cakṣu; *pareṣṇuḥ*—Pareṣṇu; *ca*—also; *trayaḥ*—three; *sutāḥ*—sons; *sabhānarāt*—from Sabhānara; *kālanaraḥ*—Kālanara; *sṛñjayaḥ*—Sṛñjaya; *tat-sutaḥ*—son of Kālanara; *tataḥ*—thereafter.

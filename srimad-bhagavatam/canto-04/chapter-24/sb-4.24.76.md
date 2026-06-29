@@ -1,11 +1,11 @@
 ### SB 4.24.76
 
-> य इमं श्रद्धया युक्तो मद्गीतं भगवत्स्तवम् ।
+> य इमं श्रद्धया युक्तो मद्गीतं भगवत्स्तवम् ।\
 > अधीयानो दुराराध्यं हरिमाराधयत्यसौ ॥७६॥
 
-> ya imaṁ śraddhayā yukto
-> mad-gītaṁ bhagavat-stavam
-> adhīyāno durārādhyaṁ
+> ya imaṁ śraddhayā yukto\
+> mad-gītaṁ bhagavat-stavam\
+> adhīyāno durārādhyaṁ\
 > harim ārādhayaty asau
 
 *yaḥ*—anyone; *imam*—this; *śraddhayā*—with great faith; *yuktaḥ*—devoutly attached; *mat-gītam*—the song composed by me or sung by me; *bhagavat-stavam*—a prayer offered to the Supreme Personality of Godhead; *adhīyānaḥ*—by regular study; *durārādhyam*—very difficult to worship; *harim*—the Supreme Personality of Godhead; *ārādhayati*—he can, however, worship Him; *asau*—such a person.

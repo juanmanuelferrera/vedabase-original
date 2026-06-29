@@ -1,9 +1,9 @@
 ### CC Adi 14.54
 
-> প্রভু কহে, — “তোমা সবাকে দিল এই বর ।
+> প্রভু কহে, — “তোমা সবাকে দিল এই বর ।\
 > তোমা সবার ভর্তা হবে পরম সুন্দর ॥৫৪॥
 
-> prabhu kahe,—"tomā sabāke dila ei vara
+> prabhu kahe,—"tomā sabāke dila ei vara\
 > tomā sabāra bhartā habe parama sundara
 
 *prabhukahe*—the Lord replied; *tomā*—you; *sabāke*—to all; *dila*—I give; *ei*—this; *vara*—benediction; *tomāsabāra*—of all of you; *bhartā*—the husbands; *habe*—will be; *parama*—very; *sundara*—beautiful.

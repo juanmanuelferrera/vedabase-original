@@ -1,11 +1,11 @@
 ### SB 2.9.10
 
-> प्रवर्तते यत्र रजस्तमस्तयोः सत्त्वं च मिश्रं न च कालविक्रमः ।
+> प्रवर्तते यत्र रजस्तमस्तयोः सत्त्वं च मिश्रं न च कालविक्रमः ।\
 > न यत्र माया किमुतापरे हरेरनुव्रता यत्र सुरासुरार्चिताः ॥१०॥
 
-> pravartate yatra rajas tamas tayoḥ
-> sattvaṁ ca miśraṁ na ca kāla-vikramaḥ
-> na yatra māyā kim utāpare harer
+> pravartate yatra rajas tamas tayoḥ\
+> sattvaṁ ca miśraṁ na ca kāla-vikramaḥ\
+> na yatra māyā kim utāpare harer\
 > anuvratā yatra surāsurārcitāḥ
 
 *pravartate*—prevalecen; *yatra*—en el cual; *rajaḥ tamaḥ*—las modalidades de la pasión y la ignorancia; *tayoḥ*—de ambas; *sattvam*—la modalidad de la bondad; *ca*—y; *miśram*—mezcla; *na*—nunca; *ca*—y; *kāla*—tiempo; *vikramaḥ*—influencia; *na*—ni; *yatra*—ahí; *māyā*—energía externa e ilusoria; *kim*—qué; *uta*—hay; *apare*—otros; *hareḥ*—de la Personalidad de Dios; *anuvratāḥ*—devotos; *yatra*—en el cual; *sura*—por los semidioses; *asura*—y los demonios; *arcitāḥ*—adorado.

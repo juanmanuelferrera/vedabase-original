@@ -1,11 +1,11 @@
 ### SB 1.1.4
 
-> नैमिषेऽनिमिषक्षेत्रे ईशयः शौनकादयः ।
+> नैमिषेऽनिमिषक्षेत्रे ईशयः शौनकादयः ।\
 > सत्रं स्वर्गाय लोकाय सहस्रसममासत ॥४॥
 
-> naimiṣe 'nimiṣa-kṣetre
-> ṛṣayaḥ śaunakādayaḥ
-> satraṁ svargāya lokāya
+> naimiṣe 'nimiṣa-kṣetre\
+> ṛṣayaḥ śaunakādayaḥ\
+> satraṁ svargāya lokāya\
 > sahasra-samam āsata
 
 *naimiṣe*—in the forest known as Naimiṣāraṇya; *animiṣa-kṣetre*—the spot which is especially a favorite of Viṣṇu (who does not close His eyelids); *ṛṣayaḥ*—sages; *śaunaka-ādayaḥ*—headed by the sage Śaunaka; *satram*—sacrifice; *svargāya*—the Lord who is glorified in heaven; *lokāya*—and for the devotees who are always in touch with the Lord; *sahasra*—one thousand; *samam*—years; *āsata*—performed.

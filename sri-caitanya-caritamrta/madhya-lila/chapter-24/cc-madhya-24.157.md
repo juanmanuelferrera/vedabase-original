@@ -1,13 +1,13 @@
 ### CC Madhya 24.157
 
-> এবং হরৌ ভগবতি প্রতিলব্ধভাবো
-> ভক্ত্যা দ্রবদ্ধৃদয় উৎপুলকঃ প্রমোদাত্ ।
-> ঔৎকণ্ঠ্যবাষ্পকলয়া মুহুরর্দ্যমান-
+> এবং হরৌ ভগবতি প্রতিলব্ধভাবো\
+> ভক্ত্যা দ্রবদ্ধৃদয় উৎপুলকঃ প্রমোদাত্ ।\
+> ঔৎকণ্ঠ্যবাষ্পকলয়া মুহুরর্দ্যমান-\
 > স্তচ্চাপি চিত্তবড়িশং শনকৈর্বিযুঙ্ক্তে ॥১৫৭॥
 
-> evaṁ harau bhagavati pratilabdha-bhāvo
-> bhaktyā dravad-dhṛdaya utpulakaḥ pramodāt
-> autkaṇṭhya-bāṣpa-kalayā muhur ardyamānas
+> evaṁ harau bhagavati pratilabdha-bhāvo\
+> bhaktyā dravad-dhṛdaya utpulakaḥ pramodāt\
+> autkaṇṭhya-bāṣpa-kalayā muhur ardyamānas\
 > tac cāpi citta-baḍiśaṁ śanakair viyuṅkte
 
 *evam*—thus; *harau*—unto the Supreme Personality of Godhead; *bhagavati*—the Lord; *pratilabdha-bhāvaḥ*—one who has awakened a sense of ecstatic love; *bhaktyā*—by devotional service; *dravat*—melting; *hṛdayaḥ*—the heart; *utpulakaḥ*—very pleased; *pramodāt*—because of happiness; *autkaṇṭhya*—with eagerness; *bāṣpa-kalayā*—with tears in the eyes; *muhuḥ*—always; *ardyamānaḥ*—merged in spiritual bliss; *tat ca api*—that also; *citta-baḍiśam*—with the heart like a fishing hook; *śanakaiḥ*—gradually; *viyuṅkte*—separates.

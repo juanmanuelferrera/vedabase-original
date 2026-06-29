@@ -1,11 +1,11 @@
 ### SB 6.11.13
 
-> स तं नृपेन्द्राहवकाम्यया रिपुं वज्रायुधं भ्रातृहणं विलोक्य
+> स तं नृपेन्द्राहवकाम्यया रिपुं वज्रायुधं भ्रातृहणं विलोक्य\
 > स्मरंश्च तत्कर्म नृशंसमंहः शोकेन मोहेन हसन्जगाद ॥१३॥
 
-> sa taṁ nṛpendrāhava-kāmyayā ripuṁ
-> vajrāyudhaṁ bhrātṛ-haṇaṁ vilokya
-> smaraṁś ca tat-karma nṛ-śaṁsam aṁhaḥ
+> sa taṁ nṛpendrāhava-kāmyayā ripuṁ\
+> vajrāyudhaṁ bhrātṛ-haṇaṁ vilokya\
+> smaraṁś ca tat-karma nṛ-śaṁsam aṁhaḥ\
 > śokena mohena hasañ jagāda
 
 *saḥ*—él (Vṛtrāsura); *tam*—a él (al rey del cielo, Indra); *nṛpa-indra*—¡oh, rey Parīkṣit!; *āhava-kāmyayā*—con deseo de luchar; *ripum*—a su enemigo; *vajra-āyudham*—cuya arma era el rayo (hecho con los huesos de Dadhīci); *bhrātṛ-haṇam*—que era el asesino de su hermano; *vilokya*—al ver; *smaran*—recordar; *ca*—y; *tat-karma*—sus actividades; *nṛ-śaṁsam*—crueles; *aṁhaḥ*—un gran pecado; *śokena*—con lamentación; *mohena*—por el desconcierto; *hasan*—riendo; *jagāda*—dijo.

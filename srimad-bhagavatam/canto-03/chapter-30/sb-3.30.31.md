@@ -1,11 +1,11 @@
 ### SB 3.30.31
 
-> एकः प्रपद्यते ध्वान्तं हित्वेदं स्वकलेवरम् ।
+> एकः प्रपद्यते ध्वान्तं हित्वेदं स्वकलेवरम् ।\
 > कुशलेतरपाथेयो भूतद्रोहेण यद्भृतम् ॥३१॥
 
-> ekaḥ prapadyate dhvāntaṁ
-> hitvedaṁ sva-kalevaram
-> kuśaletara-pātheyo
+> ekaḥ prapadyate dhvāntaṁ\
+> hitvedaṁ sva-kalevaram\
+> kuśaletara-pātheyo\
 > bhūta-droheṇa yad bhṛtam
 
 *ekaḥ*—alone; *prapadyate*—he enters; *dhvāntam*—darkness; *hitvā*—after quitting; *idam*—this; *sva*—his; *kalevaram*—body; *kuśala-itara*—sin; *pātheyaḥ*—his passage money; *bhūta*—to other living entities; *droheṇa*—by injury; *yat*—which body; *bhṛtam*—was maintained.

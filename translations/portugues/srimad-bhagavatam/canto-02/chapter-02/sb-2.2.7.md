@@ -1,8 +1,8 @@
 ### SB 2.2.7
 
-> kas tāṁ tv anādṛtya parānucintām
-> ṛte paśūn asatīṁ nāma kuryāt
-> paśyañ janaṁ patitaṁ vaitaraṇyāṁ
+> kas tāṁ tv anādṛtya parānucintām\
+> ṛte paśūn asatīṁ nāma kuryāt\
+> paśyañ janaṁ patitaṁ vaitaraṇyāṁ\
 > sva-karmajān paritāpāñ juṣāṇam
 
 *kaḥ*—quem mais; *tām*—esse; *tu*—mas; *anādṛtya*—negligenciando; *para-anucintām*—pensamentos transcendentais; *ṛte*—sem; *paśūn*—os materialistas; *asatīm*—no não-permanente; *nāma*—nome; *kuryāt*—adotará; *paśyan*—vendo definitivamente; *janam*—a massa geral de pessoas; *patitam*—caída; *vaitaraṇyām*—no Vaitaraṇī, o rio do sofrimento; *sva-karma-jān*—produzidos a partir do próprio trabalho; *paritāpān*—sofrimentos; *juṣāṇam*—sendo dominada por.

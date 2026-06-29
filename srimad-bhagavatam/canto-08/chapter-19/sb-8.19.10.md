@@ -1,11 +1,11 @@
 ### SB 8.19.10
 
-> एवं स निश्चित्य रिपोः शरीरमाधावतो निर्विविशेऽसुरेन्द्र
+> एवं स निश्चित्य रिपोः शरीरमाधावतो निर्विविशेऽसुरेन्द्र\
 > श्वासानिलान्तर्हितसूक्ष्मदेहस्तत्प्राणरन्ध्रेण विविग्नचेताः ॥१०॥
 
-> evaṁ sa niścitya ripoḥ śarīram
-> ādhāvato nirviviśe 'surendra
-> śvāsānilāntarhita-sūkṣma-dehas
+> evaṁ sa niścitya ripoḥ śarīram\
+> ādhāvato nirviviśe 'surendra\
+> śvāsānilāntarhita-sūkṣma-dehas\
 > tat-prāṇa-randhreṇa vivigna-cetāḥ
 
 *evam*—in this way; *saḥ*—He (Lord Viṣṇu); *niścitya*—deciding; *ripoḥ*—of the enemy; *śarīram*—the body; *ādhāvataḥ*—who was running after Him with great force; *nirviviśe*—entered; *asura-indra*—O King of the demons (Mahārāja Bali); *śvāsa-anila*—through the breathing; *antarhita*—invisible; *sūkṣma-dehaḥ*—in his finer body; *tat-prāṇa-randhreṇa*—through the hole of the nostril; *vivigna-cetāḥ*—being very anxious.

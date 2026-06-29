@@ -1,11 +1,11 @@
 ### SB 3.32.4
 
-> यदा चाहीन्द्रशय्यायां शेतेऽनन्तासनो हरिः ।
+> यदा चाहीन्द्रशय्यायां शेतेऽनन्तासनो हरिः ।\
 > तदा लोका लयं यान्ति त एते गृहमेधिनाम् ॥४॥
 
-> yadā cāhīndra-śayyāyāṁ
-> śete 'nantāsano hariḥ
-> tadā lokā layaṁ yānti
+> yadā cāhīndra-śayyāyāṁ\
+> śete 'nantāsano hariḥ\
+> tadā lokā layaṁ yānti\
 > ta ete gṛha-medhinām
 
 *yadā*—cuando; *ca*—y; *ahi-indra*—del rey de las serpientes; *śayyāyām*—en la cama; *śete*—Se acuesta; *ananta-āsanaḥ*—aquel cuyo asiento es Ananta Śeṣa; *hariḥ*—el Señor Hari; *tadā*—entonces; *lokāḥ*—los planetas; *layam*—hacia la disolución; *yānti*—van; *te ete*—aquellos mismos; *gṛha-medhinām*—de los jefes de familia materialistas.

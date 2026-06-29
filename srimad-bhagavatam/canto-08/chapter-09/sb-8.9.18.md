@@ -1,11 +1,11 @@
 ### SB 8.9.18
 
-> तां श्रीसखीं कनककुण्डलचारुकर्ण नासाकपोलवदनां परदेवताख्याम
+> तां श्रीसखीं कनककुण्डलचारुकर्ण नासाकपोलवदनां परदेवताख्याम\
 > संवीक्ष्य सम्मुमुहुरुत्स्मितवीक्षणेन देवासुरा विगलितस्तनपट्टिकान्ताम ॥१८॥
 
-> tāṁ śrī-sakhīṁ kanaka-kuṇḍala-cāru-karṇa-
-> nāsā-kapola-vadanāṁ para-devatākhyām
-> saṁvīkṣya sammumuhur utsmita-vīkṣaṇena
+> tāṁ śrī-sakhīṁ kanaka-kuṇḍala-cāru-karṇa-\
+> nāsā-kapola-vadanāṁ para-devatākhyām\
+> saṁvīkṣya sammumuhur utsmita-vīkṣaṇena\
 > devāsurā vigalita-stana-paṭṭikāntām
 
 *tām*—unto Her; *śrī-sakhīm*—appearing like a personal associate of the goddess of fortune; *kanaka-kuṇḍala*—with golden earrings; *cāru*—very beautiful; *karṇa*—ears; *nāsā*—nose; *kapola*—cheeks; *vadanām*—face; *para-devatā-ākhyām*—the Supreme Lord, the Personality of Godhead, appearing in that form; *saṁvīkṣya*—looking at Her; *sammumuhuḥ*—all of them became enchanted; *utsmita*—slightly smiling; *vīkṣaṇena*—glancing over them; *deva-asurāḥ*—all the demigods and demons; *vigalita-stana-paṭṭika-antām*—the border of the sari on the breasts moved slightly.

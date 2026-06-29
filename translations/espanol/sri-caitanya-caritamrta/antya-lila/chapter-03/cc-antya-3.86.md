@@ -1,9 +1,9 @@
 ### CC Antya 3.86
 
-> তৈছে তুমি নবদ্বীপে করি’ অবতার ।
+> তৈছে তুমি নবদ্বীপে করি’ অবতার ।\
 > সকল-ব্রহ্মাণ্ড-জীবের করিলা নিস্তার ॥৮৬॥
 
-> taiche tumi navadvīpe kari' avatāra
+> taiche tumi navadvīpe kari' avatāra\
 > sakala-brahmāṇḍa-jīvera karilā nistāra
 
 *taiche*—de esa manera; *tumi*—Tú; *navadvīpe*—en Navadvīpa; *kari' avatāra*—descendiendo como encarnación; *sakala*—todas; *brahmāṇḍa*—del universo; *jīvera*—las entidades vivientes; *karilā nistāra*—has liberado.

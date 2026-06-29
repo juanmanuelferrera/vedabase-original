@@ -1,9 +1,9 @@
 ### CC Adi 10.131
 
-> কাশীমিশ্র, প্রদ্যুম্নমিশ্র, রায় ভবানন্দ ।
+> কাশীমিশ্র, প্রদ্যুম্নমিশ্র, রায় ভবানন্দ ।\
 > যাঁহার মিলনে প্রভু পাইলা আনন্দ ॥১৩১॥
 
-> kāśī-miśra, pradyumna-miśra, rāya bhavānanda
+> kāśī-miśra, pradyumna-miśra, rāya bhavānanda\
 > yāṅhāra milane prabhu pāilā ānanda
 
 *kāśī-miśra*—of the name Kāśī Miśra; *pradyumna-miśra*—of the name Pradyumna Miśra; *rāyabhavānanda*—of the name Bhavānanda Rāya; *yāṅhāra*—of whom; *milane*—meeting; *prabhu*—the Lord; *pāilā*—got; *ānanda*—great pleasure.

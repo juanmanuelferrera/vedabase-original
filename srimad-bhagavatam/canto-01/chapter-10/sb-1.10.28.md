@@ -1,11 +1,11 @@
 ### SB 1.10.28
 
-> नूनं व्रतस्नानहुतादिनेश्वरः समर्चितो ह्यस्य गृहीतपाणिभिः ।
+> नूनं व्रतस्नानहुतादिनेश्वरः समर्चितो ह्यस्य गृहीतपाणिभिः ।\
 > पिबन्ति याः सख्यधरामृतं मुहुर्व्रजस्त्रियः सम्मुमुहुर्यदाशयाः ॥२८॥
 
-> nūnaṁ vrata-snāna-hutādineśvaraḥ
-> samarcito hy asya gṛhīta-pāṇibhiḥ
-> pibanti yāḥ sakhy adharāmṛtaṁ muhur
+> nūnaṁ vrata-snāna-hutādineśvaraḥ\
+> samarcito hy asya gṛhīta-pāṇibhiḥ\
+> pibanti yāḥ sakhy adharāmṛtaṁ muhur\
 > vraja-striyaḥ sammumuhur yad-āśayāḥ
 
 *nūnam*—certainly in the previous birth; *vrata*—vow; *snāna*—bath; *huta*—sacrifice in the fire; *ādinā*—by all these; *īśvaraḥ*—the Personality of Godhead; *samarcitaḥ*—perfectly worshiped; *hi*—certainly; *asya*—His; *gṛhīta-pāṇibhiḥ*—by the married wives; *pibanti*—relishes; *yāḥ*—those who; *sakhi*—O friend; *adhara-amṛtam*—the nectar from His lips; *muhuḥ*—again and again; *vraja-striyaḥ*—the damsels of Vrajabhūmi; *sammumuhuḥ*—often fainted; *yat-āśayāḥ*—expecting to be favored in that way.

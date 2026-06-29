@@ -1,9 +1,9 @@
 ### CC Madhya 18.31
 
-> ঐছে ম্লেচ্ছভয়ে গোপাল ভাগে বারে-বারে ।
+> ঐছে ম্লেচ্ছভয়ে গোপাল ভাগে বারে-বারে ।\
 > মন্দির ছাড়ি’ কুঞ্জে রহে, কিবা গ্রামান্তরে ॥৩১॥
 
-> aiche mleccha-bhaye gopāla bhāge bāre-bāre
+> aiche mleccha-bhaye gopāla bhāge bāre-bāre\
 > mandira chāḍi' kuñje rahe, kibā grāmāntare
 
 *aiche*—de ese modo; *mleccha-bhaye*—por temor a los mahometanos; *gopāla*—la Deidad de Gopāla Rāya; *bhāge*—huye; *bāre-bāre*—una y otra vez; *mandira chāḍi'*—abandonando el templo; *kuñje*—en la maleza; *rahe*—permanece; *kibā*—o; *grāma-antare*—en una aldea diferente.

@@ -1,11 +1,11 @@
 ### SB 3.24.31
 
-> तान्येव तेऽभिरूपाणि रूपाणि भगवंस्तव ।
+> तान्येव तेऽभिरूपाणि रूपाणि भगवंस्तव ।\
 > यानि यानि च रोचन्ते स्वजनानामरूपिणः ॥३१॥
 
-> tāny eva te 'bhirūpāṇi
-> rūpāṇi bhagavaṁs tava
-> yāni yāni ca rocante
+> tāny eva te 'bhirūpāṇi\
+> rūpāṇi bhagavaṁs tava\
+> yāni yāni ca rocante\
 > sva-janānām arūpiṇaḥ
 
 *tāni*—those; *eva*—truly; *te*—Your; *abhirūpāṇi*—suitable; *rūpāṇi*—forms; *bhagavan*—O Lord; *tava*—Your; *yāni yāni*—whichever; *ca*—and; *rocante*—are pleasing; *sva-janānām*—to Your own devotees; *arūpiṇaḥ*—of one with no material form.

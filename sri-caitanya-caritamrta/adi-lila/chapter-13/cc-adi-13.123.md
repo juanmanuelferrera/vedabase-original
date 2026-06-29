@@ -1,13 +1,13 @@
 ### CC Adi 13.123
 
-> পাইয়া মানুষ জন্ম, যে না শুনে গৌরগুণ,
-> হেন জন্ম তার ব্যর্থ হৈল ।
-> পাইয়া অমৃতধুনী, পিয়ে বিষগর্ত-পানি,
+> পাইয়া মানুষ জন্ম, যে না শুনে গৌরগুণ,\
+> হেন জন্ম তার ব্যর্থ হৈল ।\
+> পাইয়া অমৃতধুনী, পিয়ে বিষগর্ত-পানি,\
 > জন্মিয়া সে কেনে নাহি মৈল ॥১২৩॥
 
-> pāiyā mānuṣa janma, ye nā śune gaura-guṇa,
-> hena janma tāra vyartha haila
-> pāiyā amṛtadhunī, piye viṣa-garta-pāni,
+> pāiyā mānuṣa janma, ye nā śune gaura-guṇa,\
+> hena janma tāra vyartha haila\
+> pāiyā amṛtadhunī, piye viṣa-garta-pāni,\
 > janmiyā se kene nāhi maila
 
 *pāiyā mānuṣa janma*—anyone who has gotten the form of a human body; *ye*—who; *nā*—does not; *śune*—hear; *gaura-guṇa*—the qualities of Lord Caitanya Mahāprabhu; *henajanma*—such a birth; *tāra*—his; *vyarthahaila*—becomes useless; *pāiyā*—getting the opportunity; *amṛtadhunī*—of the river of nectar; *piye*—drinks; *viṣa-garta-pāni*—water in a poison pit of material happiness; *janmiyā*—taking birth as a human being; *se*—he; *kene*—why; *nāhi*—did not; *maila*—die.

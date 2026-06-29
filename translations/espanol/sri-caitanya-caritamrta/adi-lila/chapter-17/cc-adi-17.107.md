@@ -1,9 +1,9 @@
 ### CC Adi 17.107
 
-> বলিতে না পারে কিছু, মৌন হইল ।
+> বলিতে না পারে কিছু, মৌন হইল ।\
 > প্রভু পুনঃ প্রশ্ন কৈল, কহিতে লাগিল ॥১০৭॥
 
-> balite nā pāre kichu, mauna ha-ila
+> balite nā pāre kichu, mauna ha-ila\
 > prabhu punaḥ praśna kaila, kahite lāgila
 
 *balite*—decir; *nā pāre*—no puede; *kichu*—nada; *mauna*—silencioso; *ha-ila*—se quedó; *prabhu*—el Señor; *punaḥ*—de nuevo; *praśna*—pregunta; *kaila*—formuló; *kahite*—hablar; *lāgila*—comenzó.

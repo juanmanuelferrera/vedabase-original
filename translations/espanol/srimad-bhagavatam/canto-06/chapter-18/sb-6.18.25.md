@@ -1,11 +1,11 @@
 ### SB 6.18.25
 
-> कृमिविड्भस्मसंज्ञआसीद्यस्येशाभिहितस्य च
+> कृमिविड्भस्मसंज्ञआसीद्यस्येशाभिहितस्य च\
 > भूतध्रुक्तत्कृते स्वार्थं किं वेद निरयो यतः ॥२५॥
 
-> kṛmi-viḍ-bhasma-saṁjñāsīd
-> yasyeśābhihitasya ca
-> bhūta-dhruk tat-kṛte svārthaṁ
+> kṛmi-viḍ-bhasma-saṁjñāsīd\
+> yasyeśābhihitasya ca\
+> bhūta-dhruk tat-kṛte svārthaṁ\
 > kiṁ veda nirayo yataḥ
 
 *kṛmi*—gusanos; *viṭ*—excremento; *bhasma*—cenizas; *saṁjñā*—nombre; *āsīt*—se vuelve; *yasya*—del cual (cuerpo); *īśa-abhihitasya*—aunque ostente el título de rey; *ca*—también; *bhūta-dhruk*—aquel que hace daño a otros; *tat-kṛte*—con ese fin; *sva-artham*—su propio interés; *kim veda*—conoce acaso; *nirayaḥ*—castigo en el infierno; *yataḥ*—del cual.

@@ -1,11 +1,11 @@
 ### Bg 2.45
 
-> त्रैगुण्यविषया वेदा निस्त्रैगुण्यो भवार्जुन ।
+> त्रैगुण्यविषया वेदा निस्त्रैगुण्यो भवार्जुन ।\
 > निर्द्वन्द्वो नित्यसत्त्वस्थो निर्योगक्षेम आत्मवान् ॥४५॥
 
-> traiguṇya-viṣayā vedā
-> nistraiguṇyo bhavārjuna
-> nirdvandvo nitya-sattva-stho
+> traiguṇya-viṣayā vedā\
+> nistraiguṇyo bhavārjuna\
+> nirdvandvo nitya-sattva-stho\
 > niryoga-kṣema ātmavān
 
 *traiguṇya*—en relación con las tres modalidades de la naturaleza material; *viṣayāḥ*—en lo referente a; *vedāḥ*—escrituras Védicas; *nistraiguṇyaḥ*—en un estado puro de existencia espiritual; *bhava*—sé; *arjuna*—¡oh, Arjuna!; *nirdvandvaḥ*—libre del dolor causado por la dualidad; *nitya-sattva-sthaḥ*—estando siempre en sattva (bondad); *niryoga-kṣemaḥ*—libre (de ideas) de ganancia y conservacion; *ātmavān*—establecido en el Yo.

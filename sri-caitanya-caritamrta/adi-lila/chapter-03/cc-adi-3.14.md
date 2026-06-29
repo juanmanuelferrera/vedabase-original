@@ -1,9 +1,9 @@
 ### CC Adi 3.14
 
-> চিরকাল নাহি করি প্রেমভক্তি দান ।
+> চিরকাল নাহি করি প্রেমভক্তি দান ।\
 > ভক্তিবিনা জগতের নাহি অবস্থান ॥১৪॥
 
-> cira-kāla nāhi kari prema-bhakti dāna
+> cira-kāla nāhi kari prema-bhakti dāna\
 > bhakti vinā jagatera nāhi avasthāna
 
 *cira-kāla*—for a long time; *nāhi kari*—I have not done; *prema-bhakti*—loving devotional service; *dāna*—giving; *bhakti*—devotional service; *vinā*—without; *jagatera*—of the universe; *nāhi*—not; *avasthāna*—existence.

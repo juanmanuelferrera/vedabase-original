@@ -1,11 +1,11 @@
 ### SB 9.2.18
 
-> वसोः प्रतीकस्तत्पुत्र ओघवानोघवत्पिता
+> वसोः प्रतीकस्तत्पुत्र ओघवानोघवत्पिता\
 > कन्या चौघवती नाम सुदर्शन उवाह ताम ॥१८॥
 
-> vasoḥ pratīkas tat-putra
-> oghavān oghavat-pitā
-> kanyā caughavatī nāma
+> vasoḥ pratīkas tat-putra\
+> oghavān oghavat-pitā\
+> kanyā caughavatī nāma\
 > sudarśana uvāha tām
 
 *vasoḥ*—of Vasu; *pratīkaḥ*—named Pratīka; *tat-putraḥ*—his son; *oghavān*—named Oghavān; *oghavat-pitā*—who was the father of Oghavān; *kanyā*—his daughter; *ca*—also; *oghavatī*—Oghavatī; *nāma*—by the name; *sudarśanaḥ*—Sudarśana; *uvāha*—married; *tām*—that daughter (Oghavatī).

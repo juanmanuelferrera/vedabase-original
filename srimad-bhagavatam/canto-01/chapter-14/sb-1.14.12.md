@@ -1,11 +1,11 @@
 ### SB 1.14.12
 
-> शिवैषोद्यन्तमादित्यमभिरौत्यनलानना ।
+> शिवैषोद्यन्तमादित्यमभिरौत्यनलानना ।\
 > मामङ्ग सारमेयोऽयमभिरेभत्यभीरुवत् ॥१२॥
 
-> śivaiṣodyantam ādityam
-> abhirauty analānanā
-> mām aṅga sārameyo 'yam
+> śivaiṣodyantam ādityam\
+> abhirauty analānanā\
+> mām aṅga sārameyo 'yam\
 > abhirebhaty abhīruvat
 
 *śivā*—jackal; *eṣā*—this; *udyantam*—rising; *ādityam*—unto the sun; *abhi*—towards; *rauti*—crying; *anala*—fire; *ānanā*—face; *mām*—unto me; *aṅga*—O Bhīma; *sārameyaḥ*—dog; *ayam*—this; *abhirebhati*—barks towards; *abhīru-vat*—without fear.

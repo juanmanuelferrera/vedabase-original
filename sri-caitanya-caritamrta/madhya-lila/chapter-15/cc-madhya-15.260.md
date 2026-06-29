@@ -1,9 +1,9 @@
 ### CC Madhya 15.260
 
-> ঘরে আসি’ ভট্টাচার্য ষাঠীর মাতা-সনে  ।
+> ঘরে আসি’ ভট্টাচার্য ষাঠীর মাতা-সনে  ।\
 > আপনা নিন্দিয়া কিছু বলেন বচনে ॥২৬০॥
 
-> ghare āsi' bhaṭṭācārya ṣāṭhīra mātā-sane
+> ghare āsi' bhaṭṭācārya ṣāṭhīra mātā-sane\
 > āpanā nindiyā kichu balena vacane
 
 *ghare āsi'*—returning home; *bhaṭṭācārya*—Sārvabhauma Bhaṭṭācārya; *ṣāṭhīra mātā-sane*—with the mother of Ṣāṭhī; *āpanā nindiyā*—condemning himself; *kichu*—some; *balena vacane*—speaks words.

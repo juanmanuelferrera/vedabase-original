@@ -1,11 +1,11 @@
 ### SB 4.6.50
 
-> कुर्वध्वरस्योद्धरणं हतस्य भोः त्वयासमाप्तस्य मनो प्रजापतेः ।
+> कुर्वध्वरस्योद्धरणं हतस्य भोः त्वयासमाप्तस्य मनो प्रजापतेः ।\
 > न यत्र भागं तव भागिनो ददुः कुयाजिनो येन मखो निनीयते ॥५०॥
 
-> kurv adhvarasyoddharaṇaṁ hatasya bhoḥ
-> tvayāsamāptasya mano prajāpateḥ
-> na yatra bhāgaṁ tava bhāgino daduḥ
+> kurv adhvarasyoddharaṇaṁ hatasya bhoḥ\
+> tvayāsamāptasya mano prajāpateḥ\
+> na yatra bhāgaṁ tava bhāgino daduḥ\
 > kuyājino yena makho ninīyate
 
 *kuru*—just execute; *adhvarasya*—of the sacrifice; *uddharaṇam*—complete regularly; *hatasya*—killed; *bhoḥ*—O; *tvayā*—by you; *asamāptasya*—of the unfinished sacrifice; *mano*—O Lord Śiva; *prajāpateḥ*—of Mahārāja Dakṣa; *na*—not; *yatra*—where; *bhāgam*—share; *tava*—your; *bhāginaḥ*—deserving to take the share; *daduḥ*—did not give; *ku-yājinaḥ*—bad priests; *yena*—by the bestower; *makhaḥ*—sacrifice; *ninīyate*—gets the result.

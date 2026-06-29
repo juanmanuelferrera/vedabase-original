@@ -1,9 +1,9 @@
 ### CC Adi 6.31
 
-> কমল-নয়নের তেঁহো, যাতে ‘অঙ্গ’, ‘অংশ’ ।
+> কমল-নয়নের তেঁহো, যাতে ‘অঙ্গ’, ‘অংশ’ ।\
 > ‘কমলাক্ষ’ করি ধরে নাম অবতংস ॥৩১॥
 
-> kamala-nayanera teṅho, yāte 'aṅga' 'aṁśa'
+> kamala-nayanera teṅho, yāte 'aṅga' 'aṁśa'\
 > 'kamalākṣa' kari dhare nāma avataṁsa
 
 *kamala-nayanera*—del de ojos de loto; *teṅho*—Él; *yāte*—puesto que; *aṅga*—miembro; *aṁśa*—parte; *kamala-akṣa*—el de ojos de loto; *kari'*—aceptando eso; *dhare*—porta; *nāma*—el nombre; *avataṁsa*—expansión parcial.

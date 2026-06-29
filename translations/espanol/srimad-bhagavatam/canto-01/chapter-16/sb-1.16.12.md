@@ -1,11 +1,11 @@
 ### SB 1.16.12
 
-> भद्राश्वं केतुमालं च भारतं चोत्तरान्कुरून् ।
+> भद्राश्वं केतुमालं च भारतं चोत्तरान्कुरून् ।\
 > किम्पुरुषादीनि वर्षाणि विजित्य जगृहे बलिम् ॥१२॥
 
-> bhadrāśvaṁ ketumālaṁ ca
-> bhārataṁ cottarān kurūn
-> kimpuruṣādīni varṣāṇi
+> bhadrāśvaṁ ketumālaṁ ca\
+> bhārataṁ cottarān kurūn\
+> kimpuruṣādīni varṣāṇi\
 > vijitya jagṛhe balim
 
 *bhadrāśvam*—Bhadrāśva; *ketumālam*—Ketumāla; *ca*—también; *bhāratam*—Bhārata; *ca*—y; *uttarān*—los países del norte; *kurūn*—el reino de la dinastía Kuru; *kimpuruṣa-ādīni*—un país que está más allá del lado norte de los Himālayas; *varṣāṇi*—partes del planeta Tierra; *vijitya*—conquistando; *jagṛhe*—exigió; *balim*—fuerza.

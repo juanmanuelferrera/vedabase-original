@@ -1,9 +1,9 @@
 ### CC Antya 6.328
 
-> এই ত’ কহিলুঁ রঘুনাথের মিলন ।
+> এই ত’ কহিলুঁ রঘুনাথের মিলন ।\
 > ইহা যেই শুনে পায় চৈতন্যচরণ ॥৩২৮॥
 
-> ei ta' kahiluṅ raghunāthera milana
+> ei ta' kahiluṅ raghunāthera milana\
 > ihā yei śune pāya caitanya-caraṇa
 
 *ei*—esto; *ta'*—ciertamente; *kahiluṅ*—he descrito; *raghunāthera milana*—el encuentro de Raghunātha dāsa; *ihā*—esto; *yei*—cualquiera que; *śune*—oiga; *pāya*—obtiene; *caitanya-caraṇa*—los pies de loto de Śrī Caitanya Mahāprabhu.

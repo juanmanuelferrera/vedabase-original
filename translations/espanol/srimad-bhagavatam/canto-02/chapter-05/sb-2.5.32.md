@@ -1,11 +1,11 @@
 ### SB 2.5.32
 
-> यदैतेऽसङ्गता भावा भूतेन्द्रियमनोगुणाः ।
+> यदैतेऽसङ्गता भावा भूतेन्द्रियमनोगुणाः ।\
 > यदायतननिर्माणे न शेकुर्ब्रह्मवित्तम ॥३२॥
 
-> yadaite 'saṅgatā bhāvā
-> bhūtendriya-mano-guṇāḥ
-> yadāyatana-nirmāṇe
+> yadaite 'saṅgatā bhāvā\
+> bhūtendriya-mano-guṇāḥ\
+> yadāyatana-nirmāṇe\
 > na śekur brahma-vittama
 
 *yadā*—mientras que; *ete*—todos estos; *asaṅgatāḥ*—sin ensamblarse; *bhāvāḥ*—permanecieron situados así; *bhūta*—elementos; *indriya*—sentidos; *manaḥ*—mente; *guṇāh*—modalidades de la naturaleza; *yadā*—mientras que; *ayatana*—el cuerpo; *nirmāṇe*—al ser formado; *na śekuḥ*—no fue posible; *brahma-vit-tama*—¡oh, Nārada, el mejor conocedor de conocimiento trascendental!.

@@ -1,11 +1,11 @@
 ### SB 4.11.26
 
-> एष भूतानि भूतात्मा भूतेशो भूतभावनः ।
+> एष भूतानि भूतात्मा भूतेशो भूतभावनः ।\
 > स्वशक्त्या मायया युक्तः सृजत्यत्ति च पाति च ॥२६॥
 
-> eṣa bhūtāni bhūtātmā
-> bhūteśo bhūta-bhāvanaḥ
-> sva-śaktyā māyayā yuktaḥ
+> eṣa bhūtāni bhūtātmā\
+> bhūteśo bhūta-bhāvanaḥ\
+> sva-śaktyā māyayā yuktaḥ\
 > sṛjaty atti ca pāti ca
 
 *eṣaḥ*—este; *bhūtāni*—todos los seres creados; *bhūta-ātmā*—la Superalma de todas las entidades vivientes; *bhūta-īśaḥ*—el controlador de todos; *bhūta-bhāvanaḥ*—el mantenedor de todos; *sva-śaktyā*—mediante Su energía; *māyayā*—la energía externa; *yuktaḥ*—por medio de esa energía; *sṛjati*—crea; *atti*—aniquila; *ca*—y; *pāti*—mantiene; *ca*—y.

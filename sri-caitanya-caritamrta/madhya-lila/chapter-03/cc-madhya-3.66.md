@@ -1,9 +1,9 @@
 ### CC Madhya 3.66
 
-> প্রভু জানে তিনভোগ — কৃষ্ণের নৈবেদ্য ।
+> প্রভু জানে তিনভোগ — কৃষ্ণের নৈবেদ্য ।\
 > আচার্যের মনঃকথা নহে প্ৰভুর বেদ্য ॥৬৬॥
 
-> prabhu jāne tina bhoga—kṛṣṇera naivedya
+> prabhu jāne tina bhoga—kṛṣṇera naivedya\
 > ācāryera manaḥ-kathā nahe prabhura vedya
 
 *prabhujāne*—the Lord knows; *tina bhoga*—three divisions of *bhoga*; *kṛṣṇera naivedya*—offerings to Lord Kṛṣṇa; *ācāryera*—of Advaita Ācārya; *manaḥ-kathā*—the intentions; *nahe*—not; *prabhura*—to the Lord; *vedya*—understandable.

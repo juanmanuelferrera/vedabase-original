@@ -1,9 +1,9 @@
 ### CC Antya 2.127
 
-> মহাপ্রভু মধ্যাহ্ন করিতে চলি’ গেলা ।
+> মহাপ্রভু মধ্যাহ্ন করিতে চলি’ গেলা ।\
 > বুঝন না যায় এই মহাপ্রভুর লীলা ॥১২৭॥
 
-> mahāprabhu madhyāhna karite cali, gelā
+> mahāprabhu madhyāhna karite cali, gelā\
 > bujhana nā yāya ei mahāprabhura līlā
 
 *mahāprabhu*—Śrī Caitanya Mahāprabhu; *madhyāhna karite*—para llevar a cabo Sus actividades del mediodía; *cali*—caminando; *gelā*—se fue; *bujhana nā yāya*—nadie podía entender; *ei*—este; *mahāprabhura līlā*—pasatiempo de Śrī Caitanya Mahāprabhu.

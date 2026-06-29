@@ -1,9 +1,9 @@
 ### CC Adi 7.78
 
-> ধৈর্য ধরিতে নারি, হৈলাম উন্মত্ত ।
+> ধৈর্য ধরিতে নারি, হৈলাম উন্মত্ত ।\
 > হাসি, কান্দি, নাচি, গাই, যৈছে মদমত্ত ॥৭৮॥
 
-> dhairya dharite nāri, hailāma unmatta
+> dhairya dharite nāri, hailāma unmatta\
 > hāsi, kāndi, nāci, gāi, yaiche madamatta
 
 *dhairya*—paciencia; *dharite*—captar; *nāri*—incapaz de tener; *hailāma*—Me he vuelto; *unmatta*—enloquecido por ello; *hāsi*—río; *kāndi*—lloro; *nāci*—danzo; *gāi*—canto; *yaiche*—como si fuera; *madamatta*—un loco.

@@ -1,9 +1,9 @@
 ### CC Antya 9.122
 
-> রাজমহিন্দার ‘রাজা’ কৈনু রাম-রায় ।
+> রাজমহিন্দার ‘রাজা’ কৈনু রাম-রায় ।\
 > যে খাইল, যেবা দিল, নাহি লেখা-দায় ॥১২২॥
 
-> rājamahindāra 'rājā' kainu rāma-rāya
+> rājamahindāra 'rājā' kainu rāma-rāya\
 > ye khāila, yebā dila, nāhi lekhā-dāya
 
 *rājamahindāra*—of the place known as Rājamahendrī; *rājā*—governor; *kainu*—I made; *rāma-rāya*—Rāmānanda Rāya; *ye khāila*—whatever money he took; *yebā*—whatever; *dila*—distributed; *nāhi lekhā-dāya*—there is no account.

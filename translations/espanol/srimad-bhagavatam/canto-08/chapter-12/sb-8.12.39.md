@@ -1,11 +1,11 @@
 ### SB 8.12.39
 
-> को नु मेऽतितरेन्मायां विषक्तस्त्वदृते पुमान
+> को नु मेऽतितरेन्मायां विषक्तस्त्वदृते पुमान\
 > तांस्तान्विसृजतीं भावान्दुस्तरामकृतात्मभिः ॥३९॥
 
-> ko nu me 'titaren māyāṁ
-> viṣaktas tvad-ṛte pumān
-> tāṁs tān visṛjatīṁ bhāvān
+> ko nu me 'titaren māyāṁ\
+> viṣaktas tvad-ṛte pumān\
+> tāṁs tān visṛjatīṁ bhāvān\
 > dustarām akṛtātmabhiḥ
 
 *kaḥ*—qué; *nu*—en verdad; *me*—Mía; *atitaret*—puede superar; *māyām*—energía ilusoria; *viṣaktaḥ*—apegada al disfrute material de los sentidos; *tvat-ṛte*—excepto tú; *pumān*—persona; *tān*—esas condiciones; *tān*—a las personas materialmente apegadas; *visṛjatīm*—en superar; *bhāvān*—reacciones de actividades materiales; *dustarām*—muy difíciles de superar; *akṛta-ātmabhiḥ*—por personas que no pueden controlar sus sentidos.

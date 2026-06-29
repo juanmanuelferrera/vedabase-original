@@ -1,9 +1,9 @@
 ### CC Antya 18.46
 
-> “কহ, জালিয়া, এই দিকে দেখিলা একজন ?
+> “কহ, জালিয়া, এই দিকে দেখিলা একজন ?\
 > তোমার এই দশা কেনে, — কহত’ কারণ?” ॥৪৬॥
 
-> "kaha, jāliyā, ei dike dekhilā eka-jana?
+> "kaha, jāliyā, ei dike dekhilā eka-jana?\
 > tomāra ei daśā kene,—kahata' kāraṇa?"
 
 *kaha*—please say; *jāliyā*—O fisherman; *ei dike*—in this direction; *dekhilā*—did you see; *eka-jana*—someone; *tomāra*—your; *ei*—this; *daśā*—condition; *kene*—why; *kahata'*—kindly speak; *kāraṇa*—the cause.

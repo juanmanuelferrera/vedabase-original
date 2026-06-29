@@ -1,9 +1,9 @@
 ### CC Antya 3.178
 
-> হরিদাস কহেন, — “নামের এই দুই ফল নয় ।
+> হরিদাস কহেন, — “নামের এই দুই ফল নয় ।\
 > নামের ফলে কৃষ্ণপদে প্রেম উপজয় ॥১৭৮॥
 
-> haridāsa kahena,--"nāmera ei dui phala naya
+> haridāsa kahena,--"nāmera ei dui phala naya\
 > nāmera phale kṛṣṇa-pade prema upajaya
 
 *haridāsa kahena*—Haridāsa Ṭhākura respondió; *nāmera*—de cantar el santo nombre del Señor; *ei*—estos; *dui*—dos; *phala*—resultados; *naya*—no son; *nāmera phale*—por el resultado de cantar el santo nombre; *kṛṣṇa-pade*—a los pies de loto de Kṛṣṇa; *prema upajaya*—despertar del amor extático.

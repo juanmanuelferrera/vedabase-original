@@ -1,11 +1,11 @@
 ### SB 4.6.34
 
-> सनन्दनाद्यैर्महासिद्धैः शान्तैः संशान्तविग्रहम् ।
+> सनन्दनाद्यैर्महासिद्धैः शान्तैः संशान्तविग्रहम् ।\
 > उपास्यमानं सख्या च भर्त्रा गुह्यकरक्षसाम् ॥३४॥
 
-> sanandanādyair mahā-siddhaiḥ
-> śāntaiḥ saṁśānta-vigraham
-> upāsyamānaṁ sakhyā ca
+> sanandanādyair mahā-siddhaiḥ\
+> śāntaiḥ saṁśānta-vigraham\
+> upāsyamānaṁ sakhyā ca\
 > bhartrā guhyaka-rakṣasām
 
 *sanandana-ādyaiḥ*—the four Kumāras, headed by Sanandana; *mahā-siddhaiḥ*—liberated souls; *śāntaiḥ*—saintly; *saṁśānta-vigraham*—the grave and saintly Lord Śiva; *upāsyamānam*—was being praised; *sakhyā*—by Kuvera; *ca*—and; *bhartrā*—by the master; *guhyaka-rakṣasām*—of the Guhyakas and the Rākṣasas.

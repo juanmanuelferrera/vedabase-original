@@ -1,11 +1,11 @@
 ### SB 3.21.25
 
-> प्रजापतिसुतः सम्राण्मनुर्विख्यातमङ्गलः ।
+> प्रजापतिसुतः सम्राण्मनुर्विख्यातमङ्गलः ।\
 > ब्रह्मावर्तं योऽधिवसन्शास्ति सप्तार्णवां महीम् ॥२५॥
 
-> prajāpati-sutaḥ samrāṇ
-> manur vikhyāta-maṅgalaḥ
-> brahmāvartaṁ yo 'dhivasan
+> prajāpati-sutaḥ samrāṇ\
+> manur vikhyāta-maṅgalaḥ\
+> brahmāvartaṁ yo 'dhivasan\
 > śāsti saptārṇavāṁ mahīm
 
 *prajāpati-sutaḥ*—el hijo del Señor Brahmā; *samrāṭ*—el emperador; *manuḥ*—Svāyambhuva Manu; *vikhyāta*—bien conocida; *maṅgalaḥ*—la rectitud de cuyos actos; *brahmāvartam*—Brahmāvarta; *yaḥ*—aquel que; *adhivasan*—viviendo en; *śāsti*—gobierna; *sapta*—siete; *arṇavām*—océanos; *mahīm*—la Tierra.

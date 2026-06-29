@@ -1,11 +1,11 @@
 ### CC Adi 4.20
 
-> যে যথা মাং প্রপদ্যন্তে তাংস্তথৈব ভজাম্যহম্ ।
+> যে যথা মাং প্রপদ্যন্তে তাংস্তথৈব ভজাম্যহম্ ।\
 > মম বর্ত্মানুবর্তন্তে মনুষ্যাঃ পার্থ সর্বশঃ ॥২০॥
 
-> ye yathā māṁ prapadyante
-> tāṁs tathaiva bhajāmy aham
-> mama vartmānuvartante
+> ye yathā māṁ prapadyante\
+> tāṁs tathaiva bhajāmy aham\
+> mama vartmānuvartante\
 > manuṣyāḥ pārtha sarvaśaḥ
 
 *ye*—all who; *yathā*—as; *mām*—unto Me; *prapadyante*—surrender; *tān*—them; *tathā*—so; *eva*—certainly; *bhajāmi*—reward; *aham*—I; *mama*—My; *vartma*—path; *anuvartante*—follow; *manuṣyāḥ*—all men; *pārtha*—O son of Pṛthā; *sarvaśaḥ*—in all respects.

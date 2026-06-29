@@ -1,13 +1,13 @@
 ### CC Antya 19.39
 
-> কাহাঁ সে চূড়ার ঠাম, শিখিপিঞ্ছের উড়ান,
-> নব-মেঘে যেন ইন্দ্রধনু ।
-> পীতাম্বর — তড়িদ্দ্যুতি, মুক্তামালা — বকপাঁতি,
+> কাহাঁ সে চূড়ার ঠাম, শিখিপিঞ্ছের উড়ান,\
+> নব-মেঘে যেন ইন্দ্রধনু ।\
+> পীতাম্বর — তড়িদ্দ্যুতি, মুক্তামালা — বকপাঁতি,\
 > নবাম্বুদ জিনি’ শ্যামতনু ॥৩৯॥
 
-> kāhāṅ se cūḍāra ṭhāma, śikhi-piñchera uḍāna,
-> nava-meghe yena indra-dhanu
-> pītāmbara—taḍid-dyuti, muktā-mālā—baka-pāṅti,
+> kāhāṅ se cūḍāra ṭhāma, śikhi-piñchera uḍāna,\
+> nava-meghe yena indra-dhanu\
+> pītāmbara—taḍid-dyuti, muktā-mālā—baka-pāṅti,\
 > navāmbuda jini' śyāma-tanu
 
 *kāhāṅ*—where; *se*—that; *cūḍāra ṭhāma*—beauty of the helmet; *śikhi-piñchera uḍāna*—upon which there is a peacock feather; *nava-meghe*—in a new cloud; *yena*—just like; *indra-dhanu*—the rainbow; *pīta-ambara*—yellow garments; *taḍit-dyuti*—like the illumination of lightning; *muktā-mālā*—pearl necklace; *baka-pāṅti*—like rows of ducks; *nava-ambuda*—a new rain cloud; *jini'*—conquering; *śyāma-tanu*—the blackish body.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.206
 
-> শত শ্লোক কৈল এক দণ্ড না যাইতে ।
+> শত শ্লোক কৈল এক দণ্ড না যাইতে ।\
 > বৃহস্পতি তৈছে শ্লোক না পারে করিতে ॥২০৬॥
 
-> śata śloka kaila eka daṇḍa nā yāite
+> śata śloka kaila eka daṇḍa nā yāite\
 > bṛhaspati taiche śloka nā pāre karite
 
 *śata*—one hundred; *śloka*—verses; *kaila*—composed; *eka*—one; *daṇḍa*—a duration of twenty-four minutes; *nā*—not; *yāite*—passing; *bṛhaspati*—Bṛhaspati, the priest of the heavenly planets; *taiche*—such; *śloka*—verses; *nā*—not; *pāre*—able; *karite*—to compose.

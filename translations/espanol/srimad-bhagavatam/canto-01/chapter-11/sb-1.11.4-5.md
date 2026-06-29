@@ -1,18 +1,18 @@
 ### SB 1.11.4-5
 
-> तत्रोपनीतबलयो रवेर्दीपमिवादृताः ।
-> आत्मारामं पूर्णकामं निजलाभेन नित्यदा ॥४॥
-> प्रीत्युत्फुल्लमुखाः प्रोचुर्हर्षगद्गदया गिरा ।
+> तत्रोपनीतबलयो रवेर्दीपमिवादृताः ।\
+> आत्मारामं पूर्णकामं निजलाभेन नित्यदा ॥४॥\
+> प्रीत्युत्फुल्लमुखाः प्रोचुर्हर्षगद्गदया गिरा ।\
 > पितरं सर्वसुहृदमवितारमिवार्भकाः ॥५॥
 
-> tatropanīta-balayo
-> raver dīpam ivādṛtāḥ
-> ātmārāmaṁ pūrṇa-kāmaṁ
+> tatropanīta-balayo\
+> raver dīpam ivādṛtāḥ\
+> ātmārāmaṁ pūrṇa-kāmaṁ\
 > nija-lābhena nityadā
 
-> prīty-utphulla-mukhāḥ procur
-> harṣa-gadgadayā girā
-> pitaraṁ sarva-suhṛdam
+> prīty-utphulla-mukhāḥ procur\
+> harṣa-gadgadayā girā\
+> pitaraṁ sarva-suhṛdam\
 > avitāram ivārbhakāḥ
 
 *tatra*—después; *upanīta*—habiendo ofrecido; *balayaḥ*—obsequios; *raveḥ*—hacia el sol; *dīpam*—lámpara; *iva*—como; *ādṛtāḥ*—siendo evaluado; *ātma-ārāmam*—al autosuficiente; *pūrṇa-kāmam*—plenamente satisfecho; *nija-lābhena*—por Sus propias potencias; *nitya-dā*—aquel que provee incesantemente; *prīti*—afecto; *utphulla-mukhāḥ*—caras alegres; *procuḥ*—dijeron; *harṣa*—contentos; *gadgadayā*—extáticos; *girā*—conversaciones; *pitaram*—al padre; *sarva*—todos; *suhṛdam*—amigos; *avitāram*—el tutor; *iva*—como; *arbhakāḥ*—pupilos.

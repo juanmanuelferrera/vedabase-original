@@ -1,11 +1,11 @@
 ### SB 3.29.23
 
-> द्विषतः परकाये मां मानिनो भिन्नदर्शिनः ।
+> द्विषतः परकाये मां मानिनो भिन्नदर्शिनः ।\
 > भूतेषु बद्धवैरस्य न मनः शान्तिमृच्छति ॥२३॥
 
-> dviṣataḥ para-kāye māṁ
-> mānino bhinna-darśinaḥ
-> bhūteṣu baddha-vairasya
+> dviṣataḥ para-kāye māṁ\
+> mānino bhinna-darśinaḥ\
+> bhūteṣu baddha-vairasya\
 > na manaḥ śāntim ṛcchati
 
 *dviṣataḥ*—of one who is envious; *para-kāye*—towards the body of another; *mām*—unto Me; *māninaḥ*—offering respect; *bhinna-darśinaḥ*—of a separatist; *bhūteṣu*—towards living entities; *baddha-vairasya*—of one who is inimical; *na*—not; *manaḥ*—the mind; *śāntim*—peace; *ṛcchati*—attains.

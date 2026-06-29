@@ -1,11 +1,11 @@
 ### SB 3.28.11
 
-> प्राणायामैर्दहेद्दोषान्धारणाभिश्च किल्बिषान् ।
+> प्राणायामैर्दहेद्दोषान्धारणाभिश्च किल्बिषान् ।\
 > प्रत्याहारेण संसर्गान्ध्यानेनानीश्वरान्गुणान् ॥११॥
 
-> prāṇāyāmair dahed doṣān
-> dhāraṇābhiś ca kilbiṣān
-> pratyāhāreṇa saṁsargān
+> prāṇāyāmair dahed doṣān\
+> dhāraṇābhiś ca kilbiṣān\
+> pratyāhāreṇa saṁsargān\
 > dhyānenānīśvarān guṇān
 
 *prāṇāyāmaiḥ*—by practice of *prāṇāyāma*; *dahet*—one can eradicate; *doṣān*—contaminations; *dhāraṇābhiḥ*—by concentrating the mind; *ca*—and; *kilbiṣān*—sinful activities; *pratyāhāreṇa*—by restraining the senses; *saṁsargān*—material association; *dhyānena*—by meditating; *anīśvarān guṇān*—the modes of material nature.

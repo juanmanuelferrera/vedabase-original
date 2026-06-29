@@ -1,9 +1,9 @@
 ### CC Adi 17.26
 
-> তৃণ হৈতে নীচ হঞা সদা লবে নাম ।
+> তৃণ হৈতে নীচ হঞা সদা লবে নাম ।\
 > আপনি নিরভিমানী, অন্যে দিবে মান ॥২৬॥
 
-> tṛṇa haite nīca hañā sadā labe nāma
+> tṛṇa haite nīca hañā sadā labe nāma\
 > āpani nirabhimānī, anye dibe māna
 
 *tṛṇa*—hierba; *haite*—que; *nīca*—más bajo; *hañā*—volviéndose; *sadā*—siempre; *labe*—cantar; *nāma*—el santo nombre; *āpani*—personalmente; *nirabhimānī*—sin honor; *anye*—a los demás; *dibe*—debes dar; *māna*—todo respeto.

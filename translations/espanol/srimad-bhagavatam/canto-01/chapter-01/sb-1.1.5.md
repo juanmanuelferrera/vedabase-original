@@ -1,11 +1,11 @@
 ### SB 1.1.5
 
-> त एकदा तु मुनयः प्रातर्हुतहुताग्नयः ।
+> त एकदा तु मुनयः प्रातर्हुतहुताग्नयः ।\
 > सत्कृतं सूतमासीनं पप्रच्छुरिदमादरात् ॥५॥
 
-> ta ekadā tu munayaḥ
-> prātar huta-hutāgnayaḥ
-> sat-kṛtaṁ sūtam āsīnaṁ
+> ta ekadā tu munayaḥ\
+> prātar huta-hutāgnayaḥ\
+> sat-kṛtaṁ sūtam āsīnaṁ\
 > papracchur idam ādarāt
 
 *te*—los sabios; *ekadā*—un día; *tu*—pero; *munayaḥ*—sabios; *prātaḥ*—la mañana; *huta*—ardiendo; *huta-agnayaḥ*—el fuego de sacrificio; *sat-kṛtam*—los debidos respetos; *sūtam*—Śrī Sūta Gosvāmī; *āsīnam*—sentado en; *papracchuḥ*—hicieron preguntas; *idam*—acerca de esto (lo siguiente); *ādarāt*—con la debida consideración.

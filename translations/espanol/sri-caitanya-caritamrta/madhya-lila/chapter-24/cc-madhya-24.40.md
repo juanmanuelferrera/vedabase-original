@@ -1,9 +1,9 @@
 ### CC Madhya 24.40
 
-> শাস্ত্রযুক্তি নাহি ইহাঁ সিদ্ধান্ত-বিচার ।
+> শাস্ত্রযুক্তি নাহি ইহাঁ সিদ্ধান্ত-বিচার ।\
 > এই স্বভাব-গুণে, যাতে মাধুর্যের সার ॥৪০॥
 
-> śāstra-yukti nāhi ihāṅ siddhānta-vicāra
+> śāstra-yukti nāhi ihāṅ siddhānta-vicāra\
 > ei svabhāva-guṇe, yāte mādhuryera sāra
 
 *śāstra-yukti*—lógica basada en las Escrituras reveladas; *nāhi*—no hay; *ihāṅ*—aquí; *siddhānta-vicāra*—consideración de conclusiones lógicas; *ei*—esta; *svabhāva-guṇe*—una cualidad natural; *yāte*—en la cual; *mādhuryera sāra*—la esencia de toda bienaventuranza trascendental.

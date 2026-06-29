@@ -1,9 +1,9 @@
 ### CC Madhya 9.144
 
-> নারায়ণ হৈতে কৃষ্ণের অসাধারণ গুণ ।
+> নারায়ণ হৈতে কৃষ্ণের অসাধারণ গুণ ।\
 > অতএব লক্ষ্মীর কৃষ্ণে তৃষ্ণা অনুক্ষণ ॥১৪৪॥
 
-> nārāyaṇa haite kṛṣṇera asādhāraṇa guṇa
+> nārāyaṇa haite kṛṣṇera asādhāraṇa guṇa\
 > ataeva lakṣmīra kṛṣṇe tṛṣṇā anukṣaṇa
 
 *nārāyaṇa haite*—over and above Nārāyaṇa; *kṛṣṇera*—of Lord Kṛṣṇa; *asādhāraṇa guṇa*—uncommon qualities; *ataeva*—therefore; *lakṣmīra*—of the goddess of fortune; *kṛṣṇe*—unto Kṛṣṇa; *tṛṣṇā*—desire; *anukṣaṇa*—always.

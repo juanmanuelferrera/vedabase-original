@@ -1,11 +1,11 @@
 ### CC Madhya 11.100
 
-> কৃষ্ণবর্ণং ত্বিষাঽকৃষ্ণং সাঙ্গোপাঙ্গাস্ত্রপার্ষদম্ ।
+> কৃষ্ণবর্ণং ত্বিষাঽকৃষ্ণং সাঙ্গোপাঙ্গাস্ত্রপার্ষদম্ ।\
 > যজ্ঞৈঃ সংকীর্তনপ্রায়ৈর্যজন্তি হি সুমেধসঃ ॥১০০॥
 
-> kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ
-> sāṅgopāṅgāstra-pārṣadam
-> yajñaiḥ saṅkīrtana-prāyair
+> kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ\
+> sāṅgopāṅgāstra-pārṣadam\
+> yajñaiḥ saṅkīrtana-prāyair\
 > yajanti hi su-medhasaḥ
 
 *kṛṣṇa-varṇam*—repeating the syllables *kṛṣ-ṇa*; *tviṣā*—with a luster; *akṛṣṇam*—not black (golden); *sa-aṅga*—along with associates; *upāṅga*—servitors; *astra*—weapons; *pārṣadam*—confidential companions; *yajñaiḥ*—by sacrifice; *saṅkīrtana-prāyaiḥ*—consisting chiefly of congregational chanting; *yajanti*—they worship; *hi*—certainly; *su-medhasaḥ*—intelligent persons.

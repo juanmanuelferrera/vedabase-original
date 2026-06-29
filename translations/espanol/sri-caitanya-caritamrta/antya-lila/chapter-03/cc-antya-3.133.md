@@ -1,9 +1,9 @@
 ### CC Antya 3.133
 
-> ঠাকুর কহে, — খাঁনের কথা সব আমি জানি ।
+> ঠাকুর কহে, — খাঁনের কথা সব আমি জানি ।\
 > অজ্ঞ মূর্খ সেই, তারে দুঃখ নাহি মানি ॥১৩৩॥
 
-> ṭhākura kahe,--khāṅnera kathā saba āmi jāni
+> ṭhākura kahe,--khāṅnera kathā saba āmi jāni\
 > ajña mūrkha sei, tāre duḥkha nāhi māni
 
 *ṭhākura kahe*—Haridāsa Ṭhākura dijo; *khāṅnera kathā*—los planes de Rāmacandra Khān; *saba*—todos; *āmi jāni*—yo los conozco; *ajña mūrkha sei*—él es un necio ignorante; *tāre*—por eso; *duḥkha nāhi māni*—no siento infelicidad.

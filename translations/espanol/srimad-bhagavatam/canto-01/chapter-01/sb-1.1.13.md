@@ -1,11 +1,11 @@
 ### SB 1.1.13
 
-> तन्नः शुष्रूषमाणानामर्हस्यङ्गानुवर्णितुम् ।
+> तन्नः शुष्रूषमाणानामर्हस्यङ्गानुवर्णितुम् ।\
 > यस्यावतारो भूतानां क्षेमाय च भवाय च ॥१३॥
 
-> tan naḥ śuśrūṣamāṇānām
-> arhasy aṅgānuvarṇitum
-> yasyāvatāro bhūtānāṁ
+> tan naḥ śuśrūṣamāṇānām\
+> arhasy aṅgānuvarṇitum\
+> yasyāvatāro bhūtānāṁ\
 > kṣemāya ca bhavāya ca
 
 *tat*—esos; *naḥ*—a nosotros; *śuśrūṣamāṇānām*—aquellos que se están esforzando por; *arhasi*—debe hacerlo; *aṅga*—¡oh, Sūta Gosvāmī!; *anuvarṇitum*—explicar mediante el hecho de seguir los pasos de los *ācāryas* anteriores; *yasya*—cuya; *avatāraḥ*—encarnación; *bhūtānām*—de los seres vivientes; *kṣemāya*—por el bien; *ca*—y; *bhavāya*—elevación; *ca*—y.

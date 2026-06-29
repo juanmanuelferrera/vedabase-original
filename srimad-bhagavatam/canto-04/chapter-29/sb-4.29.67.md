@@ -1,11 +1,11 @@
 ### SB 4.29.67
 
-> अदृष्टमश्रुतं चात्र क्वचिन्मनसि दृश्यते ।
+> अदृष्टमश्रुतं चात्र क्वचिन्मनसि दृश्यते ।\
 > यथा तथानुमन्तव्यं देशकालक्रियाश्रयम् ॥६७॥
 
-> adṛṣṭam aśrutaṁ cātra
-> kvacin manasi dṛśyate
-> yathā tathānumantavyaṁ
+> adṛṣṭam aśrutaṁ cātra\
+> kvacin manasi dṛśyate\
+> yathā tathānumantavyaṁ\
 > deśa-kāla-kriyāśrayam
 
 *adṛṣṭam*—never experienced; *aśrutam*—never heard; *ca*—and; *atra*—in this life; *kvacit*—at some time; *manasi*—in the mind; *dṛśyate*—is visible; *yathā*—as; *tathā*—accordingly; *anumantavyam*—to be understood; *deśa*—place; *kāla*—time; *kriyā*—activity; *āśrayam*—depending on.

@@ -1,11 +1,11 @@
 ### CC Madhya 18.114
 
-> হ্লাদিন্যা সংবিদাশ্লিষ্টঃ সচ্চিদানন্দ ঈশ্বরঃ ।
+> হ্লাদিন্যা সংবিদাশ্লিষ্টঃ সচ্চিদানন্দ ঈশ্বরঃ ।\
 > স্বাবিদ্যা-সংবৃতো জীবঃ সংক্লেশনিকরাকরঃ ॥১১৪॥
 
-> hlādinyā saṁvid-āśliṣṭaḥ
-> sac-cid-ānanda īśvaraḥ
-> svāvidyā-saṁvṛto jīvaḥ
+> hlādinyā saṁvid-āśliṣṭaḥ\
+> sac-cid-ānanda īśvaraḥ\
+> svāvidyā-saṁvṛto jīvaḥ\
 > saṅkleśa-nikarākaraḥ
 
 *hlādinyā*—por la potencia *hlādinī*; *saṁvit*—por la potencia *saṁvit*; *āśliṣṭaḥ*—rodeado; *sat-cit-ānandaḥ*—siempre trascendentalmente bienaventurado; *īśvaraḥ*—el controlador supremo; *sva*—propia; *avidyā*—por la ignorancia; *saṁvṛtaḥ*—cubierto; *jīvaḥ*—la entidad viviente; *saṅkleśa*—de las tres miserias; *nikara*—de la multitud; *ākaraḥ*—la mina.

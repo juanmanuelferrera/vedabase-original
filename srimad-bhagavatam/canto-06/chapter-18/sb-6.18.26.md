@@ -1,11 +1,11 @@
 ### SB 6.18.26
 
-> आशासानस्य तस्येदं ध्रुवमुन्नद्धचेतसः
+> आशासानस्य तस्येदं ध्रुवमुन्नद्धचेतसः\
 > मदशोषक इन्द्रस्य भूयाद्येन सुतो हि मे ॥२६॥
 
-> āśāsānasya tasyedaṁ
-> dhruvam unnaddha-cetasaḥ
-> mada-śoṣaka indrasya
+> āśāsānasya tasyedaṁ\
+> dhruvam unnaddha-cetasaḥ\
+> mada-śoṣaka indrasya\
 > bhūyād yena suto hi me
 
 *āśāsānasya*—thinking; *tasya*—of him; *idam*—this (body); *dhruvam*—eternal; *unnaddha-cetasaḥ*—whose mind is unrestrained; *mada-śoṣakaḥ*—who can remove the madness; *indrasya*—of Indra; *bhūyāt*—may there be; *yena*—by which; *sutaḥ*—a son; *hi*—certainly; *me*—of me.

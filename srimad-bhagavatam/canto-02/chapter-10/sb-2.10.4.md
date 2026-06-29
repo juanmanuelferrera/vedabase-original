@@ -1,11 +1,11 @@
 ### SB 2.10.4
 
-> स्थितिर्वैकुण्ठविजयः पोषणं तदनुग्रहः ।
+> स्थितिर्वैकुण्ठविजयः पोषणं तदनुग्रहः ।\
 > मन्वन्तराणि सद्धर्म ऊतयः कर्मवासनाः ॥४॥
 
-> sthitir vaikuṇṭha-vijayaḥ
-> poṣaṇaṁ tad-anugrahaḥ
-> manvantarāṇi sad-dharma
+> sthitir vaikuṇṭha-vijayaḥ\
+> poṣaṇaṁ tad-anugrahaḥ\
+> manvantarāṇi sad-dharma\
 > ūtayaḥ karma-vāsanāḥ
 
 *sthitiḥ*—the right situation; *vaikuṇṭha-vijayaḥ*—the victory of the Lord of Vaikuṇṭha; *poṣaṇam*—maintenance; *tat-anugrahaḥ*—His causeless mercy; *manvantarāṇi*—the reign of the Manus; *sat-dharmaḥ*—perfect occupational duty; *ūtayaḥ*—impetus to work; *karma-vāsanāḥ*—desire for fruitive work.

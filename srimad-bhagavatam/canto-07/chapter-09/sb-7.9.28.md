@@ -1,13 +1,13 @@
 ### SB 7.9.28
 
-> एवं जनं निपतितं प्रभवाहिकूपे
-> कामाभिकाममनु यः प्रपतन्प्रसङ्गात
-> कृत्वात्मसात्सुरर्षिणा भगवन्गृहीतः
+> एवं जनं निपतितं प्रभवाहिकूपे\
+> कामाभिकाममनु यः प्रपतन्प्रसङ्गात\
+> कृत्वात्मसात्सुरर्षिणा भगवन्गृहीतः\
 > सोऽहं कथं नु विसृजे तव भृत्यसेवाम ॥२८॥
 
-> evaṁ janaṁ nipatitaṁ prabhavāhi-kūpe
-> kāmābhikāmam anu yaḥ prapatan prasaṅgāt
-> kṛtvātmasāt surarṣiṇā bhagavan gṛhītaḥ
+> evaṁ janaṁ nipatitaṁ prabhavāhi-kūpe\
+> kāmābhikāmam anu yaḥ prapatan prasaṅgāt\
+> kṛtvātmasāt surarṣiṇā bhagavan gṛhītaḥ\
 > so 'haṁ kathaṁ nu visṛje tava bhṛtya-sevām
 
 *evam*—thus; *janam*—people in general; *nipatitam*—fallen; *prabhava*—of material existence; *ahi-kūpe*—in a blind well full of snakes; *kāma-abhikāmam*—desiring the sense objects; *anu*—following; *yaḥ*—the person who; *prapatan*—falling down (in this condition); *prasaṅgāt*—because of bad association or increased association with material desires; *kṛtvā ātmasāt*—causing me (to acquire spiritual qualities like himself, Śrī Nārada); *sura-ṛṣiṇā*—by the great saintly person (Nārada); *bhagavan*—O my Lord; *gṛhītaḥ*—accepted; *saḥ*—that person; *aham*—I; *katham*—how; *nu*—indeed; *visṛje*—can give up; *tava*—Your; *bhṛtya-sevām*—the service of Your pure devotee.

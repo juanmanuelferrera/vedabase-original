@@ -1,11 +1,11 @@
 ### SB 1.2.31
 
-> तया विलसितेष्वेषु गुणेषु गुणवानिव ।
+> तया विलसितेष्वेषु गुणेषु गुणवानिव ।\
 > अन्तःप्रविष्ट आभाति विज्ञानेन विजृम्भितः ॥३१॥
 
-> tayā vilasiteṣv eṣu
-> guṇeṣu guṇavān iva
-> antaḥ-praviṣṭa ābhāti
+> tayā vilasiteṣv eṣu\
+> guṇeṣu guṇavān iva\
+> antaḥ-praviṣṭa ābhāti\
 > vijñānena vijṛmbhitaḥ
 
 *tayā*—by them; *vilasiteṣu*—although in the function; *eṣu*—these; *guṇeṣu*—the modes of material nature; *guṇavān*—affected by the modes; *iva*—as if; *antaḥ*—within; *praviṣṭaḥ*—entered into; *ābhāti*—appears to be; *vijñānena*—by transcendental consciousness; *vijṛmbhitaḥ*—fully enlightened.

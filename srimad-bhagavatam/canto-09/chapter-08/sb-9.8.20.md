@@ -1,11 +1,11 @@
 ### SB 9.8.20
 
-> अंशुमांश्चोदितो राज्ञआ तुरगान्वेषणे ययौ
+> अंशुमांश्चोदितो राज्ञआ तुरगान्वेषणे ययौ\
 > पितृव्यखातानुपथं भस्मान्ति ददृशे हयम ॥२०॥
 
-> tatrāsīnaṁ muniṁ vīkṣya
-> kapilākhyam adhokṣajam
-> astaut samāhita-manāḥ
+> tatrāsīnaṁ muniṁ vīkṣya\
+> kapilākhyam adhokṣajam\
+> astaut samāhita-manāḥ\
 > prāñjaliḥ praṇato mahān
 
 *tatra*—there; *āsīnam*—seated; *munim*—the great sage; *vīkṣya*—seeing; *kapila-ākhyam*—known as Kapila Muni; *adhokṣajam*—the incarnation of Viṣṇu; *astaut*—offered prayers; *samāhita-manāḥ*—with great attention; *prāñjaliḥ*—with folded hands; *praṇataḥ*—falling down, offered obeisances; *mahān*—Aṁśumān, the great personality.

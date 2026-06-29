@@ -1,11 +1,11 @@
 ### SB 9.10.53
 
-> वनानि नद्यो गिरयो वर्षाणि द्वीपसिन्धवः
+> वनानि नद्यो गिरयो वर्षाणि द्वीपसिन्धवः\
 > सर्वे कामदुघा आसन्प्रजानां भरतर्षभ ॥५३॥
 
-> nādhi-vyādhi-jarā-glāni-
-> duḥkha-śoka-bhaya-klamāḥ
-> mṛtyuś cānicchatāṁ nāsīd
+> nādhi-vyādhi-jarā-glāni-\
+> duḥkha-śoka-bhaya-klamāḥ\
+> mṛtyuś cānicchatāṁ nāsīd\
 > rāme rājany adhokṣaje
 
 *na*—no; *ādhi*—los sufrimientos *adhyātmika, adhibhautika* y *adhidaivika* (es decir, los sufrimientos que vienen del cuerpo y la mente, de otras entidades vivientes y de la naturaleza); *vyādhi*—enfermedades; *jarā*—vejez; *glāni*—desconsuelo; *duḥkha*—pesar; *śoka*—lamentación; *bhaya*—miedo; *klamāḥ*—y fatiga; *mṛtyuḥ*—muerte; *ca*—también; *anicchatām*—de aquellos que no la querían; *na āsīt*—no había; *rāme*—durante el reinado del Señor Rāmacandra; *rājani*—debido a que Él era el rey; *adhokṣaje*—la Suprema Personalidad de Dios, que está más allá del mundo material.

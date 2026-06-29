@@ -1,11 +1,11 @@
 ### SB 3.9.37
 
-> तुभ्यं मद्विचिकित्सायामात्मा मे दर्शितोऽबहिः ।
+> तुभ्यं मद्विचिकित्सायामात्मा मे दर्शितोऽबहिः ।\
 > नालेन सलिले मूलं पुष्करस्य विचिन्वतः ॥३७॥
 
-> tubhyaṁ mad-vicikitsāyām
-> ātmā me darśito 'bahiḥ
-> nālena salile mūlaṁ
+> tubhyaṁ mad-vicikitsāyām\
+> ātmā me darśito 'bahiḥ\
+> nālena salile mūlaṁ\
 > puṣkarasya vicinvataḥ
 
 *tubhyam*—unto you; *mat*—Me; *vicikitsāyām*—on your trying to know; *ātmā*—self; *me*—of Myself; *darśitaḥ*—exhibited; *abahiḥ*—from within; *nālena*—through the stem; *salile*—in the water; *mūlam*—root; *puṣkarasya*—of the lotus, the primeval source; *vicinvataḥ*—contemplating.

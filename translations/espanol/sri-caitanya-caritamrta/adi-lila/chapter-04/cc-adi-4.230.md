@@ -1,13 +1,13 @@
 ### CC Adi 4.230
 
-> শ্রীরাধায়াঃ প্রণয়মহিমা কীদৃশো বানয়ৈবা-
-> স্বাদ্যো যেনাদ্ভুতমধুরিমা কীদৃশো বা মদীয়ঃ ।
-> সৌখ্যঞ্চাস্যা মদনুভবতঃ কীদৃশং বেতি লোভা-
+> শ্রীরাধায়াঃ প্রণয়মহিমা কীদৃশো বানয়ৈবা-\
+> স্বাদ্যো যেনাদ্ভুতমধুরিমা কীদৃশো বা মদীয়ঃ ।\
+> সৌখ্যঞ্চাস্যা মদনুভবতঃ কীদৃশং বেতি লোভা-\
 > ত্তদ্ভাবাঢ্যঃ সমজনি শচীগর্ভসিন্ধৌ হরীন্দুঃ ॥২৩০॥
 
-> śrī-rādhāyāḥ praṇaya-mahimā kīdṛśo vānayaivā-
-> svādyo yenādbhuta-madhurimā kīdṛśo vā madīyaḥ
-> saukhyaṁ cāsyā mad-anubhavataḥ kīdṛśaṁ veti lobhāt
+> śrī-rādhāyāḥ praṇaya-mahimā kīdṛśo vānayaivā-\
+> svādyo yenādbhuta-madhurimā kīdṛśo vā madīyaḥ\
+> saukhyaṁ cāsyā mad-anubhavataḥ kīdṛśaṁ veti lobhāt\
 > tad-bhāvāḍhyaḥ samajani śacī-garbha-sindhau harīnduḥ
 
 *śrī-rādhāyāḥ*—de Śrīmatī Rādhārāṇī; *praṇaya-mahimā*—la grandeza del amor; *kīdṛśaḥ*—de qué clase; *vā*—o; *anayā*—por ella (Rādhā); *eva*—sola; *āsvādyaḥ*—para ser saboreado; *yena*—por ese amor; *adbhuta-madhurimā*—la maravillosa dulzura; *kīdṛśaḥ*—de qué clase; *vā*—o; *madīyaḥ*—Mía; *saukhyam*—la felicidad; *ca*—y; *asyāḥ*—de Ella; *mat-anubhavataḥ*—por la comprensión de Mi dulzura; *kīdṛśam*—de qué clase; *vā*—o; *iti*—así; *lobhāt*—por el deseo; *tat*—de Ella; *bhāva-āḍhyaḥ*—ricamente dotado de las emociones; *samajani*—nació; *śacī-garbha*—del vientre de Śacīdevī; *sindhau*—en el océano; *hari*—el Señor Kṛṣṇa; *induḥ*—como la luna.

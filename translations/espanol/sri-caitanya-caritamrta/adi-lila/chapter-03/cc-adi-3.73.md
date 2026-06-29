@@ -1,9 +1,9 @@
 ### CC Adi 3.73
 
-> অঙ্গোপাঙ্গ তীক্ষ্ণ অস্ত্র প্রভুর সহিতে ।
+> অঙ্গোপাঙ্গ তীক্ষ্ণ অস্ত্র প্রভুর সহিতে ।\
 > সেই সব অস্ত্র হয় পাষণ্ড দলিতে ॥৭৩॥
 
-> aṅgopāṅga tīkṣṇa astra prabhura sahite
+> aṅgopāṅga tīkṣṇa astra prabhura sahite\
 > sei saba astra haya pāṣaṇḍa dalite
 
 *aṅga-upāṅga*—porciones plenarias y partes; *tīkṣṇa*—afiladas; *astra*—armas; *prabhura sahite*—junto con el Señor Caitanya Mahāprabhu; *sei*—estas; *saba*—todas; *astra*—armas; *haya*—son; *pāṣaṇḍa*—los ateos; *dalite*—para aplastar.

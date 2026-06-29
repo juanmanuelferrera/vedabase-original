@@ -1,9 +1,9 @@
 ### CC Madhya 9.224
 
-> আম্লিতলায় দেখি’ শ্রীরাম গৌরহরি ।
+> আম্লিতলায় দেখি’ শ্রীরাম গৌরহরি ।\
 > মল্লার-দেশেতে আইলা যথা ভট্টথারি ॥২২৪॥
 
-> āmlitalāya dekhi' śrī-rāma gaurahari
+> āmlitalāya dekhi' śrī-rāma gaurahari\
 > mallāra-deśete āilā yathā bhaṭṭathāri
 
 *āmlitalāya*—at Āmlitalā; *dekhi'*—seeing; *śrī-rāma*—the Deity of Rāmacandra; *gaurahari*—Śrī Caitanya Mahāprabhu; *mallāra-deśete*—to Mallāra-deśa; *āilā*—came; *yathā*—where; *bhaṭṭathāri*—the Bhaṭṭathāri community.

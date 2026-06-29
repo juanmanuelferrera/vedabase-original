@@ -1,11 +1,11 @@
 ### SB 4.1.13
 
-> पत्नी मरीचेस्तु कला सुषुवे कर्दमात्मजा ।
+> पत्नी मरीचेस्तु कला सुषुवे कर्दमात्मजा ।\
 > कश्यपं पूर्णिमानं च ययोरापूरितं जगत् ॥१३॥
 
-> patnī marīces tu kalā
-> suṣuve kardamātmajā
-> kaśyapaṁ pūrṇimānaṁ ca
+> patnī marīces tu kalā\
+> suṣuve kardamātmajā\
+> kaśyapaṁ pūrṇimānaṁ ca\
 > yayor āpūritaṁ jagat
 
 *patnī*—esposa; *marīceḥ*—del sabio llamado Marīci; *tu*—también; *kalā*—llamada Kalā; *suṣuve*—dio a luz; *kardama-ātmajā*—hija de Kardama Muni; *kaśyapam*—de nombre Kaśyapa; *pūrṇimānam ca*—y de nombre Pūrṇimā; *yayoḥ*—por quien; *āpūritam*—se extendieron por todas partes; *jagat*—el mundo.

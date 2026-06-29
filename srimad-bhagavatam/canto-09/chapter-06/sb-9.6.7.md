@@ -1,11 +1,11 @@
 ### SB 9.6.7
 
-> तथेति स वनं गत्वा मृगान्हत्वा क्रियार्हणान
+> तथेति स वनं गत्वा मृगान्हत्वा क्रियार्हणान\
 > श्रान्तो बुभुक्षितो वीरः शशं चाददपस्मृतिः ॥७॥
 
-> tatheti sa vanaṁ gatvā
-> mṛgān hatvā kriyārhaṇān
-> śrānto bubhukṣito vīraḥ
+> tatheti sa vanaṁ gatvā\
+> mṛgān hatvā kriyārhaṇān\
+> śrānto bubhukṣito vīraḥ\
 > śaśaṁ cādad apasmṛtiḥ
 
 *tathā*—according to the direction; *iti*—thus; *saḥ*—Vikukṣi; *vanam*—to the forest; *gatvā*—going; *mṛgān*—animals; *hatvā*—killing; *kriyā-arhaṇān*—suitable for offering to the *yajña* in the *śrāddha* ceremony; *śrāntaḥ*—when he was fatigued; *bubhukṣitaḥ*—and hungry; *vīraḥ*—the hero; *śaśam*—a rabbit; *ca*—also; *ādat*—he ate; *apasmṛtiḥ*—forgetting (that the flesh was meant for offering in the *śrāddha*).

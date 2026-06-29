@@ -1,11 +1,11 @@
 ### SB 1.6.3
 
-> स्वायम्भुव कया वृत्त्या वर्तितं ते परं वयः ।
+> स्वायम्भुव कया वृत्त्या वर्तितं ते परं वयः ।\
 > कथं चेदमुदस्राक्षीः काले प्राप्ते कलेवरम् ॥३॥
 
-> svāyambhuva kayā vṛttyā
-> vartitaṁ te paraṁ vayaḥ
-> kathaṁ cedam udasrākṣīḥ
+> svāyambhuva kayā vṛttyā\
+> vartitaṁ te paraṁ vayaḥ\
+> kathaṁ cedam udasrākṣīḥ\
 > kāle prāpte kalevaram
 
 *svāyambhuva*—O son of Brahmā; *kayā*—under what condition; *vṛttyā*—occupation; *vartitam*—was spent; *te*—you; *param*—after the initiation; *vayaḥ*—duration of life; *katham*—how; *ca*—and; *idam*—this; *udasrākṣīḥ*—did you quit; *kāle*—in due course; *prāpte*—having attained; *kalevaram*—body.

@@ -1,11 +1,11 @@
 ### SB 1.2.5
 
-> मुनयः साधु पृष्टोऽहं भवद्भिर्लोकमङ्गलम् ।
+> मुनयः साधु पृष्टोऽहं भवद्भिर्लोकमङ्गलम् ।\
 > यत्कृतः कृष्णसम्प्रश्नो येनात्मा सुप्रसीदति ॥५॥
 
-> munayaḥ sādhu pṛṣṭo 'haṁ
-> bhavadbhir loka-maṅgalam
-> yat kṛtaḥ kṛṣṇa-sampraśno
+> munayaḥ sādhu pṛṣṭo 'haṁ\
+> bhavadbhir loka-maṅgalam\
+> yat kṛtaḥ kṛṣṇa-sampraśno\
 > yenātmā suprasīdati
 
 *munayaḥ*—O sages; *sādhu*—this is relevant; *pṛṣṭaḥ*—questioned; *aham*—myself; *bhavadbhiḥ*—by all of you; *loka*—the world; *maṅgalam*—welfare; *yat*—because; *kṛtaḥ*—made; *kṛṣṇa*—the Personality of Godhead; *sampraśnaḥ*—relevant question; *yena*—by which; *ātmā*—self; *suprasīdati*—completely pleased.

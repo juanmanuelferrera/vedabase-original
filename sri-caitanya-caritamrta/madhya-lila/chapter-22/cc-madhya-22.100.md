@@ -1,14 +1,14 @@
 ### CC Madhya 22.100
 
-> আনুকূল্যস্য সঙ্কল্পঃ প্রাতিকূল্যস্য বর্জনম্ ।
-> রক্ষিষ্যতীতি বিশ্বাসো গোপ্তৃত্বে বরণং তথা ।
+> আনুকূল্যস্য সঙ্কল্পঃ প্রাতিকূল্যস্য বর্জনম্ ।\
+> রক্ষিষ্যতীতি বিশ্বাসো গোপ্তৃত্বে বরণং তথা ।\
 > আত্মনিক্ষেপ-কার্পণ্যে ষড়্বিধা শরণাগতিঃ ॥১০০॥
 
-> ānukūlyasya saṅkalpaḥ
-> prātikūlyasya varjanam
-> rakṣiṣyatīti viśvāso
-> goptṛtve varaṇaṁ tathā
-> ātma-nikṣepa-kārpaṇye
+> ānukūlyasya saṅkalpaḥ\
+> prātikūlyasya varjanam\
+> rakṣiṣyatīti viśvāso\
+> goptṛtve varaṇaṁ tathā\
+> ātma-nikṣepa-kārpaṇye\
 > ṣaḍ-vidhā śaraṇāgatiḥ
 
 *ānukūlyasya*—of anything that assists devotional service to the Lord; *saṅkalpaḥ*—acceptance; *prātikūlyasya*—of anything that hinders devotional service; *varjanam*—complete rejection; *rakṣiṣyati*—He will protect; *iti*—thus; *viśvāsaḥ*—strong conviction; *goptṛtve*—in being the guardian, like the father or husband, master or maintainer; *varaṇam*—acceptance; *tathā*—as well as; *ātma-nikṣepa*—full self-surrender; *kārpaṇye*—humility; *ṣaṭ-vidhā*—sixfold; *śaraṇa-āgatiḥ*—process of surrender.

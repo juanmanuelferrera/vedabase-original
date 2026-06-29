@@ -1,11 +1,11 @@
 ### SB 9.10.28
 
-> कृतैषा विधवा लङ्का वयं च कुलनन्दन
+> कृतैषा विधवा लङ्का वयं च कुलनन्दन\
 > देहः कृतोऽन्नं गृध्राणामात्मा नरकहेतवे ॥२८॥
 
-> kṛtaiṣā vidhavā laṅkā
-> vayaṁ ca kula-nandana
-> dehaḥ kṛto 'nnaṁ gṛdhrāṇām
+> kṛtaiṣā vidhavā laṅkā\
+> vayaṁ ca kula-nandana\
+> dehaḥ kṛto 'nnaṁ gṛdhrāṇām\
 > ātmā naraka-hetave
 
 *kṛtā*—hecho por ti; *eṣā*—todo esto; *vidhavā*—sin protector; *laṅkā*—el estado de Laṅkā; *vayam ca*—y nosotras; *kula-nandana*—¡oh, placer de los *rākṣasas*!; *dehaḥ*—el cuerpo; *kṛtaḥ*—hecho por ti; *annam*—comida; *gṛdhrāṇām*—de los buitres; *ātmā*—y tu alma; *naraka-hetave*—para ir al infierno.

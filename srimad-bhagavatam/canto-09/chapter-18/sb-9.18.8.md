@@ -1,11 +1,11 @@
 ### SB 9.18.8
 
-> ता जलाशयमासाद्य कन्याः कमललोचनाः
+> ता जलाशयमासाद्य कन्याः कमललोचनाः\
 > तीरे न्यस्य दुकूलानि विजह्रुः सिञ्चतीर्मिथः ॥८॥
 
-> tā jalāśayam āsādya
-> kanyāḥ kamala-locanāḥ
-> tīre nyasya dukūlāni
+> tā jalāśayam āsādya\
+> kanyāḥ kamala-locanāḥ\
+> tīre nyasya dukūlāni\
 > vijahruḥ siñcatīr mithaḥ
 
 *tāḥ*—they; *jala-āśayam*—to the lakeside; *āsādya*—coming; *kanyāḥ*—all the girls; *kamala-locanāḥ*—with eyes like lotus petals; *tīre*—on the bank; *nyasya*—giving up; *dukūlāni*—their dresses; *vijahruḥ*—began to sport; *siñcatīḥ*—throwing water; *mithaḥ*—on one another.

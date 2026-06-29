@@ -1,11 +1,11 @@
 ### SB 1.13.46
 
-> कालकर्मगुणाधीनो देहोऽयं पाञ्चभौतिकः ।
+> कालकर्मगुणाधीनो देहोऽयं पाञ्चभौतिकः ।\
 > कथमन्यांस्तु गोपायेत्सर्पग्रस्तो यथा परम् ॥४६॥
 
-> kāla-karma-guṇādhīno
-> deho 'yaṁ pāñca-bhautikaḥ
-> katham anyāṁs tu gopāyet
+> kāla-karma-guṇādhīno\
+> deho 'yaṁ pāñca-bhautikaḥ\
+> katham anyāṁs tu gopāyet\
 > sarpa-grasto yathā param
 
 *kāla*—eternal time; *karma*—action; *guṇa*—modes of nature; *adhīnaḥ*—under the control of; *dehaḥ*—material body and mind; *ayam*—this; *pāñca-bhautikaḥ*—made of the five elements; *katham*—how; *anyān*—others; *tu*—but; *gopāyet*—give protection; *sarpa-grastaḥ*—one who is bitten by the snake; *yathā*—as much as; *param*—others.

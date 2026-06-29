@@ -1,9 +1,9 @@
 ### CC Adi 7.122
 
-> পরিণাম-বাদে ঈশ্বর হয়েন বিকারী ।
+> পরিণাম-বাদে ঈশ্বর হয়েন বিকারী ।\
 > এত কহি’ ‘বিবর্ত’-বাদ স্থাপনা যে করি ॥১২২॥
 
-> pariṇāma-vāde īśvara hayena vikārī
+> pariṇāma-vāde īśvara hayena vikārī\
 > eta kahi' 'vivarta'-vāda sthāpanā ye kari
 
 *pariṇāma-vāde*—al aceptar la teoría de la transformación de la energía; *īśvara*—el Señor Supremo; *hayena*—se convierte; *vikārī*—transformado; *eta kahi'*—diciendo esto; *vivarta*—ilusión; *vāda*—teoría; *sthāpanā*—estableciendo; *ye*—lo que; *kari*—hace.

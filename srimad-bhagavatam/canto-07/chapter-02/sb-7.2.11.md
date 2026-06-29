@@ -1,11 +1,11 @@
 ### SB 7.2.11
 
-> विष्णुर्द्विजक्रियामूलो यज्ञओ धर्ममयः पुमान
+> विष्णुर्द्विजक्रियामूलो यज्ञओ धर्ममयः पुमान\
 > देवर्षिपितृभूतानां धर्मस्य च परायणम ॥११॥
 
-> viṣṇur dvija-kriyā-mūlo
-> yajño dharmamayaḥ pumān
-> devarṣi-pitṛ-bhūtānāṁ
+> viṣṇur dvija-kriyā-mūlo\
+> yajño dharmamayaḥ pumān\
+> devarṣi-pitṛ-bhūtānāṁ\
 > dharmasya ca parāyaṇam
 
 *viṣṇuḥ*—Lord Viṣṇu, the Supreme Personality of Godhead; *dvija*—of the *brāhmaṇas* and *kṣatriyas*; *kriyā-mūlaḥ*—whose root is the performance of *yajña* and the ritualistic ceremonies mentioned in the *Vedas*; *yajñaḥ*—personified *yajña* (Lord Viṣṇu, who is known as the *yajña-puruṣa*); *dharma-mayaḥ*—full of religious principles; *pumān*—the Supreme Person; *deva-ṛṣi*—of the demigods and great *ṛṣis* like Vyāsadeva and Nārada; *pitṛ*—of the forefathers; *bhūtānām*—and of all other living entities; *dharmasya*—of the religious principles; *ca*—also; *parāyaṇam*—the shelter.

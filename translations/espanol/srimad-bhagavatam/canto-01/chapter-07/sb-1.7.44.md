@@ -1,11 +1,11 @@
 ### SB 1.7.44
 
-> सरहस्यो धनुर्वेदः सविसर्गोपसंयमः ।
+> सरहस्यो धनुर्वेदः सविसर्गोपसंयमः ।\
 > अस्त्रग्रामश्च भवता शिक्षितो यदनुग्रहात् ॥४४॥
 
-> sarahasyo dhanur-vedaḥ
-> savisargopasaṁyamaḥ
-> astra-grāmaś ca bhavatā
+> sarahasyo dhanur-vedaḥ\
+> savisargopasaṁyamaḥ\
+> astra-grāmaś ca bhavatā\
 > śikṣito yad-anugrahāt
 
 *sa-rahasyaḥ*—confidencial; *dhanuḥ-vedaḥ*—conocimiento del arte de manipular arcos y flechas; *sa-visarga*—lanzando; *upasaṁyamaḥ*—controlando; *astra*—armas; *grāmaḥ*—toda clase de; *ca*—y; *bhavatā*—por ti mismo; *śikṣitaḥ*—aprendido; *yat*—por cuya; *anugrahāt*—misericordia de.

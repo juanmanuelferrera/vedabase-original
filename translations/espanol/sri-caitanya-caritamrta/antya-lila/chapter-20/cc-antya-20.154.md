@@ -1,13 +1,13 @@
 ### CC Antya 20.154
 
-> চরিতমমৃতমেতচ্ছ্রীলচৈতন্যবিষ্ণোঃ
-> শুভদমশুভনাশি শ্রদ্ধয়াস্বাদয়েদ্যঃ ।
-> তদমলপদপদ্মে ভৃঙ্গতামেত্য সোঽয়ং
+> চরিতমমৃতমেতচ্ছ্রীলচৈতন্যবিষ্ণোঃ\
+> শুভদমশুভনাশি শ্রদ্ধয়াস্বাদয়েদ্যঃ ।\
+> তদমলপদপদ্মে ভৃঙ্গতামেত্য সোঽয়ং\
 > রসয়তি রসমুচ্চৈঃ প্রেমমাধ্বীকপূরম্ ॥১৫৪॥
 
-> caritam amṛtam etac chrīla-caitanya-viṣṇoḥ
-> śubhadam aśubhanāśi śraddhayāsvādayed yaḥ
-> tad-amala-pada-padme bhṛṅgatām etya so 'yaṁ
+> caritam amṛtam etac chrīla-caitanya-viṣṇoḥ\
+> śubhadam aśubhanāśi śraddhayāsvādayed yaḥ\
+> tad-amala-pada-padme bhṛṅgatām etya so 'yaṁ\
 > rasayati rasam uccaiḥ prema-mādhvīka-pūram
 
 *caritam*—el carácter; *amṛtam*—nectáreo; *etat*—este; *śrīla*—el más opulento; *caitanya*—el Señor Caitanya Mahāprabhu; *viṣṇoḥ*—de Aquel que es el propio Señor Viṣṇu, la Suprema Personalidad de Dios; *śubhadam*—que otorga buena fortuna; *aśubha-nāśi*—que destruye todo lo desfavorable; *śraddhayā*—con fe y amor; *āsvādayet*—debe saborear; *yaḥ*—cualquiera que; *tat-amala-pada-padme*—a los inmaculados pies de loto de la Suprema Personalidad de Dios; *bhṛṅgatām etya*—volviéndose como un abejorro; *saḥ*—esa persona; *ayam*—esta; *rasayati*—saborea; *rasam*—melosidad trascendental; *uccaiḥ*—una gran cantidad; *prema-mādhvīka*—del vino del amor extático; *pūram*—lleno.

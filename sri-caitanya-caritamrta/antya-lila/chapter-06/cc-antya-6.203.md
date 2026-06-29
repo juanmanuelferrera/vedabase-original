@@ -1,9 +1,9 @@
 ### CC Antya 6.203
 
-> তিন ‘রঘুনাথ’-নাম হয় আমার গণে  ।
+> তিন ‘রঘুনাথ’-নাম হয় আমার গণে  ।\
 > ‘স্বরূপের রঘু’ — আজি হৈতে ইহার নামে ।।” ২০৩ ॥২০৩॥
 
-> tina 'raghunātha'-nāma haya āmāra gaṇe
+> tina 'raghunātha'-nāma haya āmāra gaṇe\
 > 'svarūpera raghu'—āji haite ihāra nāme"
 
 *tina raghunātha*—three Raghunāthas; *nāma*—named; *haya*—are; *āmāra gaṇe*—among My associates; *svarūpera raghu*—the Raghunātha of Svarūpa Dāmodara; *āji haite*—from this day; *ihāra*—of this one; *nāme*—the name.

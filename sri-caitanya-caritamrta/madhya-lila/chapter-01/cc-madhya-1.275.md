@@ -1,9 +1,9 @@
 ### CC Madhya 1.275
 
-> শুনিয়া লোকের দৈন্য দ্রবিলা হৃদয় ।
+> শুনিয়া লোকের দৈন্য দ্রবিলা হৃদয় ।\
 > বাহিরে আসি’ দরশন দিলা দয়াময় ॥২৭৫॥
 
-> śuniyā lokera dainya dravilā hṛdaya
+> śuniyā lokera dainya dravilā hṛdaya\
 > bāhire āsi' daraśana dilā dayā-maya
 
 *śuniyā*—hearing; *lokera*—of the people; *dainya*—humility; *dravilā*—became softened; *hṛdaya*—the heart; *bāhire*—outside; *āsi'*—coming; *daraśana*—audience; *dilā*—gave; *dayā-maya*—the merciful.

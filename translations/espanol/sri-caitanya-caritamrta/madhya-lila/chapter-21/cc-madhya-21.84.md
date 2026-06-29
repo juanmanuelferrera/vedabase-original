@@ -1,9 +1,9 @@
 ### CC Madhya 21.84
 
-> কৃষ্ণ কহে, “এই ব্রহ্মাণ্ড পঞ্চাশৎ কোটি যোজন ।
+> কৃষ্ণ কহে, “এই ব্রহ্মাণ্ড পঞ্চাশৎ কোটি যোজন ।\
 > অতি ক্ষুদ্র, তাতে তোমার চারি বদন ॥৮৪॥
 
-> kṛṣṇa kahe, "ei brahmāṇḍa pañcāśat koṭi yojana
+> kṛṣṇa kahe, "ei brahmāṇḍa pañcāśat koṭi yojana\
 > ati kṣudra, tāte tomāra cāri vadana
 
 *kṛṣṇa kahe*—Kṛṣṇa dijo; *ei brahmāṇḍa*—este universo; *pañcāśat koṭi yojana*—cuatro mil millones de millas; *ati kṣudra*—muy pequeño; *tāte*—por lo tanto; *tomāra*—tu; *cāri vadana*—cuatro caras.

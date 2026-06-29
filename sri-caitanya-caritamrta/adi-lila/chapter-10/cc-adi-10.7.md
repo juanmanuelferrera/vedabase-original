@@ -1,11 +1,11 @@
 ### CC Adi 10.7
 
-> বন্দে শ্রীকৃষ্ণচৈতন্য-প্রেমামরতরোঃ প্রিয়ান্ ।
+> বন্দে শ্রীকৃষ্ণচৈতন্য-প্রেমামরতরোঃ প্রিয়ান্ ।\
 > শাখারূপান্ ভক্তগণান্ কৃষ্ণপ্রেমফলপ্রদান্ ॥৭॥
 
-> vande śrī-kṛṣṇa-caitanya-
-> premāmara-taroḥ priyān
-> śākhā-rūpān bhakta-gaṇān
+> vande śrī-kṛṣṇa-caitanya-\
+> premāmara-taroḥ priyān\
+> śākhā-rūpān bhakta-gaṇān\
 > kṛṣṇa-prema-phala-pradān
 
 *vande*—I offer my obeisances; *śrī-kṛṣṇa-caitanya*—to Lord Śrī Caitanya Mahāprabhu; *prema-amara-taroḥ*—of the eternal tree full of love of Godhead; *priyān*—those who are devotees; *śākhā-rūpān*—represented as branches; *bhakta-gaṇān*—all the devotees; *kṛṣṇa-prema*—of love of Kṛṣṇa; *phala*—of the fruit; *pradān*—the givers.

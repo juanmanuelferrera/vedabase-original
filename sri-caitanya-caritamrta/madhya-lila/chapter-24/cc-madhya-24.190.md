@@ -1,13 +1,13 @@
 ### CC Madhya 24.190
 
-> তে বৈ বিদন্ত্যতিতরন্তি চ দেবমায়াং
-> স্ত্রীশূদ্রহূনশবরা অপি পাপজীবাঃ ।
-> যদ্যদ্ভুতক্রমপরায়ণ-শীল-শিক্ষা-
+> তে বৈ বিদন্ত্যতিতরন্তি চ দেবমায়াং\
+> স্ত্রীশূদ্রহূনশবরা অপি পাপজীবাঃ ।\
+> যদ্যদ্ভুতক্রমপরায়ণ-শীল-শিক্ষা-\
 > স্তির্যগ্জনা অপি কিমু শ্রুতধারণা যে ॥১৯০॥
 
-> te vai vidanty atitaranti ca deva-māyāṁ
-> strī-śūdra-hūna-śabarā api pāpa-jīvāḥ
-> yady adbhuta-krama-parāyaṇa-śīla-śikṣās
+> te vai vidanty atitaranti ca deva-māyāṁ\
+> strī-śūdra-hūna-śabarā api pāpa-jīvāḥ\
+> yady adbhuta-krama-parāyaṇa-śīla-śikṣās\
 > tiryag-janā api kimu śruta-dhāraṇā ye
 
 *te*—all of them; *vai*—certainly; *vidanti*—understand; *atitaranti*—cross over; *ca*—also; *deva-māyām*—the influence of the external illusory energy; *strī*—women; *śūdra*—fourth-class men; *hūna*—uncivilized hill tribes; *śabarāḥ*—and hunters; *api*—even; *pāpa-jīvāḥ*—sinful creatures; *yadi*—if; *adbhuta-krama*—of the performer of wonderful activities; *parāyaṇa*—of the devotees; *śīla-śikṣāḥ*—characteristics and education; *tiryak-janāḥ*—birds and beasts; *api*—even; *kimu*—what to speak of; *śruta-dhāraṇāḥ ye*—persons advanced in the education of Vedic knowledge.

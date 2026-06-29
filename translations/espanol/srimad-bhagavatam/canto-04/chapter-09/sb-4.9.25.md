@@ -1,11 +1,11 @@
 ### SB 4.9.25
 
-> ततो गन्तासि मत्स्थानं सर्वलोकनमस्कृतम् ।
+> ततो गन्तासि मत्स्थानं सर्वलोकनमस्कृतम् ।\
 > उपरिष्टादृषिभ्यस्त्वं यतो नावर्तते गतः ॥२५॥
 
-> tato gantāsi mat-sthānaṁ
-> sarva-loka-namaskṛtam
-> upariṣṭād ṛṣibhyas tvaṁ
+> tato gantāsi mat-sthānaṁ\
+> sarva-loka-namaskṛtam\
+> upariṣṭād ṛṣibhyas tvaṁ\
 > yato nāvartate gataḥ
 
 *tataḥ*—después de; *gantā asi*—irás; *mat-sthānam*—a Mi morada; *sarva-loka*—por todos los sistemas planetarios; *namaḥ-kṛtam*—reverenciado; *upariṣṭāt*—situado por encima; *ṛṣibhyaḥ*—de los sistemas planetarios de los *ṛṣis*; *tvam*—tú; *yataḥ*—de donde; *na*—nunca; *āvartate*—regresarás; *gataḥ*—habiendo llegado allí.

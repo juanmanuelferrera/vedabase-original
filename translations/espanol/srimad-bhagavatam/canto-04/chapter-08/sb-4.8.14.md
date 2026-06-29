@@ -1,13 +1,13 @@
 ### SB 4.8.14
 
-> मैत्रेय उवाच
-> मातुः सपत्न्याः स दुरुक्तिविद्धः श्वसन्रुषा दण्डहतो यथाहिः ।
+> मैत्रेय उवाच\
+> मातुः सपत्न्याः स दुरुक्तिविद्धः श्वसन्रुषा दण्डहतो यथाहिः ।\
 > हित्वा मिषन्तं पितरं सन्नवाचं जगाम मातुः प्ररुदन्सकाशम् ॥१४॥
 
-> maitreya uvāca
-> mātuḥ sapatnyāḥ sa durukti-viddhaḥ
-> śvasan ruṣā daṇḍa-hato yathāhiḥ
-> hitvā miṣantaṁ pitaraṁ sanna-vācaṁ
+> maitreya uvāca\
+> mātuḥ sapatnyāḥ sa durukti-viddhaḥ\
+> śvasan ruṣā daṇḍa-hato yathāhiḥ\
+> hitvā miṣantaṁ pitaraṁ sanna-vācaṁ\
 > jagāma mātuḥ prarudan sakāśam
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya dijo; *mātuḥ*—de su madre; *sa-patnyāḥ*—de la coesposa; *saḥ*—él; *durukti*—palabras ásperas; *viddhaḥ*—herido por; *śvasan*—resollar; *ruṣā*—de ira; *daṇḍa-hataḥ*—golpeada por un palo; *yathā*—como; *ahiḥ*—una serpiente; *hitvā*—abandonar; *miṣantam*—simplemente con una mirada a; *pitaram*—su padre; *sanna-vācam*—callado; *jagāma*—fue; *mātuḥ*—a su madre; *prarudan*—sollozando; *sakāśam*—cerca.

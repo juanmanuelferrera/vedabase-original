@@ -1,11 +1,11 @@
 ### SB 3.14.41
 
-> तदा विश्वेश्वरः क्रुद्धो भगवाल्लोकभावनः ।
+> तदा विश्वेश्वरः क्रुद्धो भगवाल्लोकभावनः ।\
 > हनिष्यत्यवतीर्यासौ यथाद्रीन्शतपर्वधृक् ॥४१॥
 
-> tadā viśveśvaraḥ kruddho
-> bhagavāl loka-bhāvanaḥ
-> haniṣyaty avatīryāsau
+> tadā viśveśvaraḥ kruddho\
+> bhagavāl loka-bhāvanaḥ\
+> haniṣyaty avatīryāsau\
 > yathādrīn śataparva-dhṛk
 
 *tadā*—en ese momento; *viśva-īśvaraḥ*—el Señor del universo; *kruddhaḥ*—con gran ira; *bhagavān*—la Suprema Personalidad de Dios; *loka-bhāvanaḥ*—deseando el bienestar de la gente en general; *haniṣyati*—matará; *avatīrya*—descendiendo Él mismo; *asau*—Él; *yathā*—como si; *adrīn*—las montañas; *śata-parva-dhṛk*—el controlador del rayo (Indra).

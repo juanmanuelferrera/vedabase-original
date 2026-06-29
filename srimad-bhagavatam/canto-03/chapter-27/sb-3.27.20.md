@@ -1,11 +1,11 @@
 ### SB 3.27.20
 
-> क्वचित्तत्त्वावमर्शेन निवृत्तं भयमुल्बणम् ।
+> क्वचित्तत्त्वावमर्शेन निवृत्तं भयमुल्बणम् ।\
 > अनिवृत्तनिमित्तत्वात्पुनः प्रत्यवतिष्ठते ॥२०॥
 
-> kvacit tattvāvamarśena
-> nivṛttaṁ bhayam ulbaṇam
-> anivṛtta-nimittatvāt
+> kvacit tattvāvamarśena\
+> nivṛttaṁ bhayam ulbaṇam\
+> anivṛtta-nimittatvāt\
 > punaḥ pratyavatiṣṭhate
 
 *kvacit*—in a certain case; *tattva*—the fundamental principles; *avamarśena*—by reflecting upon; *nivṛttam*—avoided; *bhayam*—fear; *ulbaṇam*—great; *anivṛtta*—not ceased; *nimittatvāt*—since the cause; *punaḥ*—again; *pratyavatiṣṭhate*—it appears.

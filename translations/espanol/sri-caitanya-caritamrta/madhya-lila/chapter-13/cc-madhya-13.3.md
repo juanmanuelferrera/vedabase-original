@@ -1,9 +1,9 @@
 ### CC Madhya 13.3
 
-> জয় শ্রোতাগণ, শুন, করি’ এক মন ।
+> জয় শ্রোতাগণ, শুন, করি’ এক মন ।\
 > রথযাত্রায় নৃত্য প্রভুর পরম মোহন ॥৩॥
 
-> jaya śrotā-gaṇa, śuna, kari' eka mana
+> jaya śrotā-gaṇa, śuna, kari' eka mana\
 > ratha-yātrāya nṛtya prabhura parama mohana
 
 *jaya*—todas las glorias; *śrotā-gaṇa*—a los oyentes; *śuna*—por favor, escuchen; *kari'*—manteniéndose; *eka mana*—con plena atención; *ratha-yātrāya*—en el festival del carro; *nṛtya*—baile; *prabhura*—de Śrī Caitanya Mahāprabhu; *parama*—sumamente; *mohana*—cautivador.

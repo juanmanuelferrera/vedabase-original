@@ -1,13 +1,13 @@
 ### SB 4.27.1
 
-> नारद उवाच
-> इत्थं पुरञ्जनं सध्र्यग्वशमानीय विभ्रमैः ।
+> नारद उवाच\
+> इत्थं पुरञ्जनं सध्र्यग्वशमानीय विभ्रमैः ।\
 > पुरञ्जनी महाराज रेमे रमयती पतिम् ॥१॥
 
-> nārada uvāca
-> itthaṁ purañjanaṁ sadhryag
-> vaśamānīya vibhramaiḥ
-> purañjanī mahārāja
+> nārada uvāca\
+> itthaṁ purañjanaṁ sadhryag\
+> vaśamānīya vibhramaiḥ\
+> purañjanī mahārāja\
 > reme ramayatī patim
 
 *nāradaḥ uvāca*—Nārada dijo; *ittham*—de este modo; *purañjanam*—al rey Purañjana; *sadhryak*—completamente; *vaśamānīya*—poner bajo control; *vibhramaiḥ*—con sus encantos; *purañjanī*—la esposa del rey Purañjana; *mahā-rāja*—¡oh, rey!; *reme*—disfrutó; *ramayatī*—dar plena satisfacción; *patim*—a su esposo.

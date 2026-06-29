@@ -1,11 +1,11 @@
 ### SB 9.24.58
 
-> यन्मायाचेष्टितं पुंसः स्थित्युत्पत्त्यप्ययाय हि
+> यन्मायाचेष्टितं पुंसः स्थित्युत्पत्त्यप्ययाय हि\
 > अनुग्रहस्तन्निवृत्तेरात्मलाभाय चेष्यते ॥५८॥
 
-> yan māyā-ceṣṭitaṁ puṁsaḥ
-> sthity-utpatty-apyayāya hi
-> anugrahas tan-nivṛtter
+> yan māyā-ceṣṭitaṁ puṁsaḥ\
+> sthity-utpatty-apyayāya hi\
+> anugrahas tan-nivṛtter\
 > ātma-lābhāya ceṣyate
 
 *yat*—whatever; *māyā-ceṣṭitam*—the laws of material nature enacted by the Supreme Personality of Godhead; *puṁsaḥ*—of the living entities; *sthiti*—duration of life; *utpatti*—birth; *apyayāya*—annihilation; *hi*—indeed; *anugrahaḥ*—compassion; *tat-nivṛtteḥ*—the creation and manifestation of cosmic energy to stop the repetition of birth and death; *ātma-lābhāya*—thus going home, back to Godhead; *ca*—indeed; *iṣyate*—for this purpose the creation is there.

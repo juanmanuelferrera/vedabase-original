@@ -1,9 +1,9 @@
 ### CC Madhya 4.202
 
-> কম্প, স্বেদ, পুলকাশ্রু, স্তম্ভ, বৈবর্ণ্য ।
+> কম্প, স্বেদ, পুলকাশ্রু, স্তম্ভ, বৈবর্ণ্য ।\
 > নির্বেদ, বিষাদ, জাড্য, গর্ব, হর্ষ, দৈন্য ॥২০২॥
 
-> kampa, sveda, pulakāśru, stambha, vaivarṇya
+> kampa, sveda, pulakāśru, stambha, vaivarṇya\
 > nirveda, viṣāda, jāḍya, garva, harṣa, dainya
 
 *kampa*—trembling; *sveda*—perspiration; *pulaka-aśru*—jubilation and tears; *stambha*—shock; *vaivarṇya*—loss of color; *nirveda*—disappointment; *viṣāda*—moroseness; *jāḍya*—loss of memory; *garva*—pride; *harṣa*—joy; *dainya*—humility.

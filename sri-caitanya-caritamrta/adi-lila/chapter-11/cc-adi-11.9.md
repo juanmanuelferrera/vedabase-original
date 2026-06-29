@@ -1,9 +1,9 @@
 ### CC Adi 11.9
 
-> ঈশ্বর হইয়া কহায় মহা-ভাগবত ।
+> ঈশ্বর হইয়া কহায় মহা-ভাগবত ।\
 > বেদধর্মাতীত হঞা বেদধর্মে রত ॥৯॥
 
-> īśvara ha-iyā kahāya mahā-bhāgavata
+> īśvara ha-iyā kahāya mahā-bhāgavata\
 > veda-dharmātīta hañā veda-dharme rata
 
 *īśvara*—the Supreme Personality of Godhead; *ha-iyā*—being; *kahāya*—calls Himself; *mahā-bhāgavata*—great devotee; *veda-dharma*—the principles of Vedic religion; *atīta*—transcendental; *hañā*—being; *veda-dharme*—in the Vedic system; *rata*—engaged.

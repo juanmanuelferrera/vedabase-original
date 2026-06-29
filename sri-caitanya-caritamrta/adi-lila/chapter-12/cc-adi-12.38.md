@@ -1,9 +1,9 @@
 ### CC Adi 12.38
 
-> বিশ্বাসেরে কহে, — তুমি বড় ভাগ্যবান্ ।
+> বিশ্বাসেরে কহে, — তুমি বড় ভাগ্যবান্ ।\
 > তোমারে করিল দণ্ড প্রভু ভগবান্ ॥৩৮॥
 
-> viśvāsere kahe,—tumi baḍa bhāgyavān
+> viśvāsere kahe,—tumi baḍa bhāgyavān\
 > tomāre karila daṇḍa prabhu bhagavān
 
 *viśvāsere*—unto Kamalākānta Viśvāsa; *kahe*—said; *tumi*—you; *baḍa*—very; *bhāgyavān*—fortunate; *tomāre*—unto you; *karila*—did; *daṇḍa*—punishment; *prabhu*—the Lord; *bhagavān*—the Supreme Personality of Godhead.

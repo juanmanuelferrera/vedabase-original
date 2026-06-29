@@ -1,18 +1,18 @@
 ### SB 8.13.2-3
 
-> इक्ष्वाकुर्नभगश्चैव धृष्टः शर्यातिरेव च
-> नरिष्यन्तोऽथ नाभागः सप्तमो दिष्ट उच्यते ॥२॥
-> तरूषश्च पृषध्रश्च दशमो वसुमान्स्मृतः
+> इक्ष्वाकुर्नभगश्चैव धृष्टः शर्यातिरेव च\
+> नरिष्यन्तोऽथ नाभागः सप्तमो दिष्ट उच्यते ॥२॥\
+> तरूषश्च पृषध्रश्च दशमो वसुमान्स्मृतः\
 > मनोर्वैवस्वतस्यैते दशपुत्राः परन्तप ॥३॥
 
-> ikṣvākur nabhagaś caiva
-> dhṛṣṭaḥ śaryātir eva ca
-> nariṣyanto 'tha nābhāgaḥ
+> ikṣvākur nabhagaś caiva\
+> dhṛṣṭaḥ śaryātir eva ca\
+> nariṣyanto 'tha nābhāgaḥ\
 > saptamo diṣṭa ucyate
 
-> tarūṣaś ca pṛṣadhraś ca
-> daśamo vasumān smṛtaḥ
-> manor vaivasvatasyaite
+> tarūṣaś ca pṛṣadhraś ca\
+> daśamo vasumān smṛtaḥ\
+> manor vaivasvatasyaite\
 > daśa-putrāḥ parantapa
 
 *ikṣvākuḥ*—Ikṣvāku; *nabhagaḥ*—Nabhaga; *ca*—también; *eva*—en verdad; *dhṛṣṭaḥ*—Dhṛṣṭa; *śaryātiḥ*—Śaryāti; *eva*—ciertamente; *ca*—también; *nariṣyantaḥ*—Nariṣyanta; *atha*—así como; *nābhāgaḥ*—Nābhāga; *saptamaḥ*—el séptimo; *diṣṭaḥ*—Diṣṭa; *ucyate*—así llamado; *tarūṣaḥ ca*—y Tarūṣa; *pṛṣadhraḥ ca*—y Pṛṣadhra; *daśamaḥ*—el décimo; *vasumān*—Vasumān; *smṛtaḥ*—conocido; *manoḥ*—de Manu; *vaivasvatasya*—de Vaivasvata; *ete*—todos estos; *daśa-putrāḥ*—diez hijos; *parantapa*—¡oh, rey!.

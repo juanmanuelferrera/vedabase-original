@@ -1,11 +1,11 @@
 ### SB 3.27.11
 
-> मुक्तलिङ्गं सदाभासमसति प्रतिपद्यते ।
+> मुक्तलिङ्गं सदाभासमसति प्रतिपद्यते ।\
 > सतो बन्धुमसच्चक्षुः सर्वानुस्यूतमद्वयम् ॥११॥
 
-> mukta-liṅgaṁ sad-ābhāsam
-> asati pratipadyate
-> sato bandhum asac-cakṣuḥ
+> mukta-liṅgaṁ sad-ābhāsam\
+> asati pratipadyate\
+> sato bandhum asac-cakṣuḥ\
 > sarvānusyūtam advayam
 
 *mukta-liṅgam*—transcendental; *sat-ābhāsam*—manifest as a reflection; *asati*—in the false ego; *pratipadyate*—he realizes; *sataḥ bandhum*—the support of the material cause; *asat-cakṣuḥ*—the eye (revealer) of the illusory energy; *sarva-anusyūtam*—entered into everything; *advayam*—without a second.

@@ -1,11 +1,11 @@
 ### SB 1.9.22
 
-> तथाप्येकान्तभक्तेषु पश्य भूपानुकम्पितम् ।
+> तथाप्येकान्तभक्तेषु पश्य भूपानुकम्पितम् ।\
 > यन्मेऽसूंस्त्यजतः साक्षात्कृष्णो दर्शनमागतः ॥२२॥
 
-> tathāpy ekānta-bhakteṣu
-> paśya bhūpānukampitam
-> yan me 'sūṁs tyajataḥ sākṣāt
+> tathāpy ekānta-bhakteṣu\
+> paśya bhūpānukampitam\
+> yan me 'sūṁs tyajataḥ sākṣāt\
 > kṛṣṇo darśanam āgataḥ
 
 *tathāpi*—still; *ekānta*—unflinching; *bhakteṣu*—unto the devotees; *paśya*—see here; *bhū-pa*—O King; *anukampitam*—how sympathetic; *yat*—for which; *me*—my; *asūn*—life; *tyajataḥ*—ending; *sākṣāt*—directly; *kṛṣṇaḥ*—the Personality of Godhead; *darśanam*—in my view; *āgataḥ*—has kindly come.

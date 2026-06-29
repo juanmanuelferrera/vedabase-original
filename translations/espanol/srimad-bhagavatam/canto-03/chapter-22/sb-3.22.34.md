@@ -1,11 +1,11 @@
 ### SB 3.22.34
 
-> निष्णातं योगमायासु मुनिं स्वायम्भुवं मनुम् ।
+> निष्णातं योगमायासु मुनिं स्वायम्भुवं मनुम् ।\
 > यदाभ्रंशयितुं भोगा न शेकुर्भगवत्परम् ॥३४॥
 
-> niṣṇātaṁ yogamāyāsu
-> muniṁ svāyambhuvaṁ manum
-> yad ābhraṁśayituṁ bhogā
+> niṣṇātaṁ yogamāyāsu\
+> muniṁ svāyambhuvaṁ manum\
+> yad ābhraṁśayituṁ bhogā\
 > na śekur bhagavat-param
 
 *niṣṇātam*—absorto; *yoga-māyāsu*—en disfrute temporal; *munim*—que era igual a un santo; *svāyambhuvam*—Svāyambhuva; *manum*—Manu; *yat*—del cual; *ābhraṁśayitum*—hacer que se desviase; *bhogāḥ*—disfrutes materiales; *na*—no; *śekuḥ*—pudieron; *bhagavat- param*—que era un gran devoto de la Suprema Personalidad de Dios.

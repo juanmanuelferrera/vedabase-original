@@ -1,11 +1,11 @@
 ### SB 4.10.13
 
-> औत्तानपादिः स तदा शस्त्रवर्षेण भूरिणा ।
+> औत्तानपादिः स तदा शस्त्रवर्षेण भूरिणा ।\
 > न एवादृश्यताच्छन्न आसारेण यथा गिरिः ॥१३॥
 
-> auttānapādiḥ sa tadā
-> śastra-varṣeṇa bhūriṇā
-> na evādṛśyatācchanna
+> auttānapādiḥ sa tadā\
+> śastra-varṣeṇa bhūriṇā\
+> na evādṛśyatācchanna\
 > āsāreṇa yathā giriḥ
 
 *auttānapādiḥ*—Dhruva Mahārāja; *saḥ*—he; *tadā*—at that time; *śastra-varṣeṇa*—by a shower of weapons; *bhūriṇā*—incessant; *na*—not; *eva*—certainly; *adṛśyata*—was visible; *ācchannaḥ*—being covered; *āsāreṇa*—by constant rainfall; *yathā*—as; *giriḥ*—a mountain.

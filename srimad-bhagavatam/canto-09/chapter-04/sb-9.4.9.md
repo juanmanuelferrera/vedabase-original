@@ -1,11 +1,11 @@
 ### SB 9.4.9
 
-> नाभागस्तं प्रणम्याह तवेश किल वास्तुकम
+> नाभागस्तं प्रणम्याह तवेश किल वास्तुकम\
 > इत्याह मे पिता ब्रह्मञ्छिरसा त्वां प्रसादये ॥९॥
 
-> nābhāgas taṁ praṇamyāha
-> taveśa kila vāstukam
-> ity āha me pitā brahmañ
+> nābhāgas taṁ praṇamyāha\
+> taveśa kila vāstukam\
+> ity āha me pitā brahmañ\
 > chirasā tvāṁ prasādaye
 
 *nābhāgaḥ*—Nābhāga; *tam*—unto him (Lord Śiva); *praṇamya*—offering obeisances; *āha*—said; *tava*—yours; *īśa*—O lord; *kila*—certainly; *vāstukam*—everything in the arena of sacrifice; *iti*—thus; *āha*—said; *me*—my; *pitā*—father; *brahman*—O *brāhmaṇa*; *śirasā*—bowing my head; *tvām*—unto you; *prasādaye*—I am begging your mercy.

@@ -1,11 +1,11 @@
 ### CC Adi 1.12
 
-> মহাবিষ্ণুর্জগৎকর্তা মায়য়া যঃ সৃজত্যদঃ ।
+> মহাবিষ্ণুর্জগৎকর্তা মায়য়া যঃ সৃজত্যদঃ ।\
 > তস্যাবতার এবায়মদ্বৈতাচার্য ঈশ্বরঃ ॥১২॥
 
-> mahā-viṣṇur jagat-kartā
-> māyayā yaḥ sṛjaty adaḥ
-> tasyāvatāra evāyam
+> mahā-viṣṇur jagat-kartā\
+> māyayā yaḥ sṛjaty adaḥ\
+> tasyāvatāra evāyam\
 > advaitācārya īśvaraḥ
 
 *mahā-viṣṇuḥ*—Mahā-Viṣṇu, the resting place of the efficient cause; *jagat-kartā*—the creator of the cosmic world; *māyayā*—by the illusory energy; *yaḥ*—who; *sṛjati*—creates; *adaḥ*—that universe; *tasya*—His; *avatāraḥ*—incarnation; *eva*—certainly; *ayam*—this; *advaita-ācāryaḥ*—of the name Advaita Ācārya; *īśvaraḥ*—the Supreme Lord, the resting place of the material cause.

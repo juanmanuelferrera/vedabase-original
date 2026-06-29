@@ -1,13 +1,13 @@
 ### CC Antya 1.160
 
-> ক্বচিদ্ভৃঙ্গীগীতং ক্বচিদনিলভঙ্গী-শিশিরতা
-> ক্বচিদ্বল্লীলাস্যং ক্বচিদমলমল্লীপরিমলঃ ।
-> ক্বচিদ্ধারাশালী করকফলপালী-রসভরো
+> ক্বচিদ্ভৃঙ্গীগীতং ক্বচিদনিলভঙ্গী-শিশিরতা\
+> ক্বচিদ্বল্লীলাস্যং ক্বচিদমলমল্লীপরিমলঃ ।\
+> ক্বচিদ্ধারাশালী করকফলপালী-রসভরো\
 > হৃষীকাণাং বৃন্দং প্রমদয়তি বৃন্দাবনমিদম্ ॥১৬০॥
 
-> kvacid bhṛṅgī-gītaṁ kvacid anila-bhaṅgī-śiśiratā
-> kvacid vallī-lāsyaṁ kvacid amala-mallī-parimalaḥ
-> kvacid dhārā-śālī karaka-phala-pālī-rasa-bharo
+> kvacid bhṛṅgī-gītaṁ kvacid anila-bhaṅgī-śiśiratā\
+> kvacid vallī-lāsyaṁ kvacid amala-mallī-parimalaḥ\
+> kvacid dhārā-śālī karaka-phala-pālī-rasa-bharo\
 > hṛṣīkāṇāṁ vṛndaṁ pramadayati vṛndāvanam idam
 
 *kvacit*—en algún lugar; *bhṛṅgī-gītam*—los cantos zumbantes de los abejorros; *kvacit*—en algún lugar; *anila-bhaṅgī-śiśiratā*—frescor procedente de las olas de las suaves brisas; *kvacit*—en algún lugar; *vallī-lāsyam*—la danza de las enredaderas; *kvacit*—en algún lugar; *amala-mallī-parimalaḥ*—la fragancia pura de las flores de mallikā; *kvacit*—en algún lugar; *dhārā-śālī*—abundante en lluvias; *karaka-phala-pālī*—de los frutos de granada; *rasa-bharaḥ*—sobreabundancia de jugo; *hṛṣīkāṇām*—de los sentidos; *vṛndam*—al grupo; *pramadayati*—complace; *vṛndāvanam*—el bosque de Vṛndāvana; *idam*—este.

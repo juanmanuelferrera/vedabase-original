@@ -1,9 +1,9 @@
 ### CC Madhya 20.181
 
-> মথুরায় যৈছে গন্ধর্বনৃত্য-দরশনে ।
+> মথুরায় যৈছে গন্ধর্বনৃত্য-দরশনে ।\
 > পুনঃ দ্বারকাতে যৈছে চিত্র-বিলোকনে ॥১৮১॥
 
-> mathurāya yaiche gandharva-nṛtya-daraśane
+> mathurāya yaiche gandharva-nṛtya-daraśane\
 > punaḥ dvārakāte yaiche citra-vilokane
 
 *mathurāya*—at Mathurā; *yaiche*—just as; *gandharva-nṛtya*—the dance of the Gandharvas; *daraśane*—by seeing; *punaḥ*—again; *dvārakāte*—at Dvārakā; *yaiche*—just as; *citra-vilokane*—by seeing a picture of Kṛṣṇa.

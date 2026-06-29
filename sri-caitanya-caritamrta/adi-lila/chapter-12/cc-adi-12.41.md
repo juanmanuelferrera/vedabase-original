@@ -1,9 +1,9 @@
 ### CC Adi 12.41
 
-> দণ্ড পাঞা হৈল মোর পরম আনন্দ ।
+> দণ্ড পাঞা হৈল মোর পরম আনন্দ ।\
 > যে দণ্ড পাইল ভাগ্যবান্ শ্রীমুকুন্দ ॥৪১॥
 
-> daṇḍa pāñā haila mora parama ānanda
+> daṇḍa pāñā haila mora parama ānanda\
 > ye daṇḍa pāila bhāgyavān śrī-mukunda
 
 *daṇḍa pāñā*—receiving the punishment; *haila*—became; *mora*—My; *parama*—very great; *ānanda*—happiness; *ye daṇḍa*—the punishment; *pāila*—got; *bhāgyavān*—the most fortunate; *śrī-mukunda*—of the name Śrī Mukunda.

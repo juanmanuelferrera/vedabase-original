@@ -1,13 +1,13 @@
 ### SB 4.21.21
 
-> राजोवाच
-> सभ्याः शृणुत भद्रं वः साधवो य इहागताः ।
+> राजोवाच\
+> सभ्याः शृणुत भद्रं वः साधवो य इहागताः ।\
 > सत्सु जिज्ञासुभिर्धर्ममावेद्यं स्वमनीषितम् ॥२१॥
 
-> rājovāca
-> sabhyāḥ śṛṇuta bhadraṁ vaḥ
-> sādhavo ya ihāgatāḥ
-> satsu jijñāsubhir dharmam
+> rājovāca\
+> sabhyāḥ śṛṇuta bhadraṁ vaḥ\
+> sādhavo ya ihāgatāḥ\
+> satsu jijñāsubhir dharmam\
 > āvedyaṁ sva-manīṣitam
 
 *rājā uvāca*—the King began to speak; *sabhyāḥ*—addressing the ladies and gentlemen; *śṛṇuta*—kindly hear; *bhadram*—good fortune; *vaḥ*—your; *sādhavaḥ*—all great souls; *ye*—who; *iha*—here; *āgatāḥ*—present; *satsu*—unto the noble men; *jijñāsubhiḥ*—one who is inquisitive; *dharmam*—religious principles; *āvedyam*—must be presented; *sva-manīṣitam*—concluded by someone.

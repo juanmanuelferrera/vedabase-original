@@ -1,11 +1,11 @@
 ### SB 7.3.36
 
-> नान्तर्बहिर्दिवा नक्तमन्यस्मादपि चायुधैः
+> नान्तर्बहिर्दिवा नक्तमन्यस्मादपि चायुधैः\
 > न भूमौ नाम्बरे मृत्युर्न नरैर्न मृगैरपि ॥३६॥
 
-> nāntar bahir divā naktam
-> anyasmād api cāyudhaiḥ
-> na bhūmau nāmbare mṛtyur
+> nāntar bahir divā naktam\
+> anyasmād api cāyudhaiḥ\
+> na bhūmau nāmbare mṛtyur\
 > na narair na mṛgair api
 
 *na*—not; *antaḥ*—inside (the palace or home); *bahiḥ*—outside the home; *divā*—during the daytime; *naktam*—during the night; *anyasmāt*—from any others beyond Lord Brahmā; *api*—even; *ca*—also; *ayudhaiḥ*—by any weapons used within this material world; *na*—nor; *bhūmau*—on the ground; *na*—not; *ambare*—in the sky; *mṛtyuḥ*—death; *na*—not; *naraiḥ*—by any men; *na*—nor; *mṛgaiḥ*—by any animal; *api*—also.

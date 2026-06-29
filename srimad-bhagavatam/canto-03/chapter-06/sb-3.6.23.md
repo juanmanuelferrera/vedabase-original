@@ -1,11 +1,11 @@
 ### SB 3.6.23
 
-> बुद्धिं चास्य विनिर्भिन्नां वागीशो धिष्ण्यमाविशत् ।
+> बुद्धिं चास्य विनिर्भिन्नां वागीशो धिष्ण्यमाविशत् ।\
 > बोधेनांशेन बोद्धव्यम्प्रतिपत्तिर्यतो भवेत् ॥२३॥
 
-> buddhiṁ cāsya vinirbhinnāṁ
-> vāg-īśo dhiṣṇyam āviśat
-> bodhenāṁśena boddhavyam
+> buddhiṁ cāsya vinirbhinnāṁ\
+> vāg-īśo dhiṣṇyam āviśat\
+> bodhenāṁśena boddhavyam\
 > pratipattir yato bhavet
 
 *buddhim*—intelligence; *ca*—also; *asya*—of the gigantic form; *vinirbhinnām*—being separately manifested; *vāk-īśaḥ*—Brahmā, lord of the *Vedas*; *dhiṣṇyam*—the controlling power; *āviśat*—entered in; *bodhena aṁśena*—with his part of intelligence; *boddhavyam*—the matter of understanding; *pratipattiḥ*—understood; *yataḥ*—by which; *bhavet*—so becomes.

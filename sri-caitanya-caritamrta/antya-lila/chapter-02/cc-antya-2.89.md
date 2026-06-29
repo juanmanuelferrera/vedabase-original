@@ -1,9 +1,9 @@
 ### CC Antya 2.89
 
-> ‘গোপাল-ভট্টাচার্য’ নাম তাঁর ছোট-ভাই ।
+> ‘গোপাল-ভট্টাচার্য’ নাম তাঁর ছোট-ভাই ।\
 > কাশীতে বেদান্ত পড়ি’ গেলা তাঁর ঠাঞি ॥৮৯॥
 
-> 'gopāla-bhaṭṭācārya' nāma tāṅra choṭa-bhāi
+> 'gopāla-bhaṭṭācārya' nāma tāṅra choṭa-bhāi\
 > kāśīte vedānta paḍi' gelā tāṅra ṭhāñi
 
 *gopāla-bhaṭṭācārya*—Gopāla Bhaṭṭācārya; *nāma*—named; *tāṅra*—his; *choṭa-bhāi*—younger brother; *kāśīte*—at Benares; *vedānta paḍi'*—studying Vedānta philosophy; *gelā*—went; *tāṅra ṭhāñi*—to his place.

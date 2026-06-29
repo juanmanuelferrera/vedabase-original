@@ -1,11 +1,11 @@
 ### SB 7.13.22
 
-> तथापि ब्रूमहे प्रश्नांस्तव राजन्यथाश्रुतम
+> तथापि ब्रूमहे प्रश्नांस्तव राजन्यथाश्रुतम\
 > सम्भाषणीयो हि भवानात्मनः शुद्धिमिच्छता ॥२२॥
 
-> yasya nārāyaṇo devo
-> bhagavān hṛd-gataḥ sadā
-> bhaktyā kevalayājñānaṁ
+> yasya nārāyaṇo devo\
+> bhagavān hṛd-gataḥ sadā\
+> bhaktyā kevalayājñānaṁ\
 > dhunoti dhvāntam arkavat
 
 *yasya*—de quien; *nārāyaṇaḥ devaḥ*—la Suprema Personalidad de Dios, Nārāyaṇa; *bhagavān*—el Señor; *hṛt-gataḥ*—en lo profundo del corazón; *sadā*—siempre; *bhaktyā*—con servicio devocional; *kevalayā*—solo; *ajñānam*—ignorancia; *dhunoti*—limpia; *dhvāntam*—oscuridad; *arka-vat*—como el Sol.

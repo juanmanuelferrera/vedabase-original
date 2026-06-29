@@ -1,11 +1,11 @@
 ### SB 9.24.33
 
-> तदैवोपागतं देवं वीक्ष्य विस्मितमानसा
+> तदैवोपागतं देवं वीक्ष्य विस्मितमानसा\
 > प्रत्ययार्थं प्रयुक्ता मे याहि देव क्षमस्व मे ॥३३॥
 
-> tadaivopāgataṁ devaṁ
-> vīkṣya vismita-mānasā
-> pratyayārthaṁ prayuktā me
+> tadaivopāgataṁ devaṁ\
+> vīkṣya vismita-mānasā\
+> pratyayārthaṁ prayuktā me\
 > yāhi deva kṣamasva me
 
 *tadā*—en ese momento; *eva*—en verdad; *upāgatam*—apareció (ante ella); *devam*—el dios del Sol; *vīkṣya*—al ver; *vismita-mānasā*—muy sorprendida; *pratyaya-artham*—solo para ver la potencia del poder místico; *prayuktā*—lo he utilizado; *me*—a mí; *yāhi*—por favor, regrese; *deva*—¡oh, semidiós!; *kṣamasva*—perdone; *me*—a mí.

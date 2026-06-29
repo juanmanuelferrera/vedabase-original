@@ -1,9 +1,9 @@
 ### CC Antya 2.122
 
-> আর দিনে সবে মেলি’ প্রভুর চরণে  ।
+> আর দিনে সবে মেলি’ প্রভুর চরণে  ।\
 > হরিদাস লাগি, কিছু কৈলা নিবেদনে ॥১২২॥
 
-> āra dine sabe meli' prabhura caraṇe
+> āra dine sabe meli' prabhura caraṇe\
 > haridāsa lāgi, kichu kailā nivedane
 
 *āra dine*—al día siguiente; *sabe meli'*—todos los devotos, reunidos; *prabhura caraṇe*—a los pies de loto de Śrī Caitanya Mahāprabhu; *haridāsa lāgi*—en nombre de Haridāsa el menor; *kichu*—alguna; *kailā nivedane*—presentaron una petición.

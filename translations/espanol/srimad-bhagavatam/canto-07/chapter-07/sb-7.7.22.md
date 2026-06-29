@@ -1,11 +1,11 @@
 ### SB 7.7.22
 
-> अष्टौ प्रकृतयः प्रोक्तास्त्रय एव हि तद्गुणाः
+> अष्टौ प्रकृतयः प्रोक्तास्त्रय एव हि तद्गुणाः\
 > विकाराः षोडशाचार्यैः पुमानेकः समन्वयात ॥२२॥
 
-> aṣṭau prakṛtayaḥ proktās
-> traya eva hi tad-guṇāḥ
-> vikārāḥ ṣoḍaśācāryaiḥ
+> aṣṭau prakṛtayaḥ proktās\
+> traya eva hi tad-guṇāḥ\
+> vikārāḥ ṣoḍaśācāryaiḥ\
 > pumān ekaḥ samanvayāt
 
 *aṣṭau*—ocho; *prakṛtayaḥ*—energías materiales; *proktāḥ*—se dice; *trayaḥ*—tres; *eva*—ciertamente; *hi*—en verdad; *tat-guṇāḥ*—las modalidades de la energía material; *vikārāḥ*—transformaciones; *ṣoḍaśa*—dieciséis; *ācāryaiḥ*—por las autoridades; *pumān*—la entidad viviente; *ekaḥ*—una; *samanvayāt*—de la unión.

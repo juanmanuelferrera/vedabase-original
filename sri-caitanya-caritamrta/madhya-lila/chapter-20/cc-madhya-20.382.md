@@ -1,9 +1,9 @@
 ### CC Madhya 20.382
 
-> অনন্ত ব্ৰহ্মাণ্ড, তার নাহিক গণন ।
+> অনন্ত ব্ৰহ্মাণ্ড, তার নাহিক গণন ।\
 > কোন লীলা কোন ব্ৰহ্মাণ্ডে হয় প্রকটন ॥৩৮২॥
 
-> ananta brahmāṇḍa, tāra nāhika gaṇana
+> ananta brahmāṇḍa, tāra nāhika gaṇana\
 > kona līlā kona brahmāṇḍe haya prakaṭana
 
 *ananta brahmāṇḍa*—innumerable universes; *tāra*—of which; *nāhika gaṇana*—there is no counting; *kona līlā*—some pastimes; *kona brahmāṇḍe*—in some universe; *haya*—there is; *prakaṭana*—manifestation.

@@ -1,14 +1,14 @@
 ### CC Adi 4.21-22
 
-> মোর পুত্র, মোর সখা, মোর প্রাণপতি ।
-> এইভাবে যেই মোরে করে শুদ্ধভক্তি ॥২১॥
-> আপনাকে বড় মানে, আমারে সম-হীন ।
+> মোর পুত্র, মোর সখা, মোর প্রাণপতি ।\
+> এইভাবে যেই মোরে করে শুদ্ধভক্তি ॥২১॥\
+> আপনাকে বড় মানে, আমারে সম-হীন ।\
 > সেই ভাবে হই আমি তাহার অধীন ॥২২॥
 
-> mora putra, mora sakhā, mora prāṇa-pati
+> mora putra, mora sakhā, mora prāṇa-pati\
 > ei-bhāve yei more kare śuddha-bhakti
 
-> āpanāke baḍa māne, āmāre sama-hīna
+> āpanāke baḍa māne, āmāre sama-hīna\
 > sei bhāve ha-i āmi tāhāra adhīna
 
 *mora*—mi; *putra*—hijo; *mora*—mi; *sakhā*—amigo; *mora*—mi; *prāṇa-pati*—señor de la vida; *ei-bhāve*—de este modo; *yei*—aquellos que; *more*—a Mí; *kare*—hacen; *śuddha-bhakti*—devoción pura; *āpanāke*—él mismo; *baḍa*—grande; *māne*—él ve; *āmāre*—a Mí; *sama*—igual; *hīna*—o menor; *sei bhāve*—en esa forma; *ha-i*—soy; *āmi*—Yo; *tāhāra*—a él; *adhīna*—subordinado.

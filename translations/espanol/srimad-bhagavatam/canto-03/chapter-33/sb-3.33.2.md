@@ -1,13 +1,13 @@
 ### SB 3.33.2
 
-> देवहूतिरुवाच
-> अथाप्यजोऽन्तःसलिले शयानं भूतेन्द्रियार्थात्ममयं वपुस्ते ।
+> देवहूतिरुवाच\
+> अथाप्यजोऽन्तःसलिले शयानं भूतेन्द्रियार्थात्ममयं वपुस्ते ।\
 > गुणप्रवाहं सदशेषबीजं दध्यौ स्वयं यज्जठराब्जजातः ॥२॥
 
-> devahūtir uvāca
-> athāpy ajo 'ntaḥ-salile śayānaṁ
-> bhūtendriyārthātma-mayaṁ vapus te
-> guṇa-pravāhaṁ sad-aśeṣa-bījaṁ
+> devahūtir uvāca\
+> athāpy ajo 'ntaḥ-salile śayānaṁ\
+> bhūtendriyārthātma-mayaṁ vapus te\
+> guṇa-pravāhaṁ sad-aśeṣa-bījaṁ\
 > dadhyau svayaṁ yaj-jaṭharābja-jātaḥ
 
 *devahūtiḥ uvāca*—Devahūti dijo; *atha api*—además; *ajaḥ*—el Señor Brahmā; *antaḥ-salile*—en el agua; *śayānam*—acostado; *bhūta*—los elementos materiales; *indriya*—los sentidos; *artha*—los objetos de los sentidos; *ātma*—la mente; *mayam*—impregnado de; *vapuḥ*—cuerpo; *te*—Tu; *guṇa-pravāham*—la fuente del torrente de la tres modalidades de la naturaleza material; *sat*—manifiesta; *aśeṣa*—de todas; *bījam*—la semilla; *dadhyau*—meditó en; *svayam*—él mismo; *yat*—de quien; *jaṭhara*—del abdomen; *abja*—de la flor de loto; *jātaḥ*—nacido.

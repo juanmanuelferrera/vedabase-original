@@ -1,11 +1,11 @@
 ### Bg 4.42
 
-> तस्मादज्ञानसम्भूतं हृत्स्थं ज्ञानासिनात्मनः ।
+> तस्मादज्ञानसम्भूतं हृत्स्थं ज्ञानासिनात्मनः ।\
 > छित्त्वैनं संशयं योगमातिष्ठोत्तिष्ठ भारत ॥४२॥
 
-> tasmād ajñāna-sambhūtaṁ
-> hṛt-sthaṁ jñānāsinātmanaḥ
-> chittvainaṁ saṁśayaṁ yogam
+> tasmād ajñāna-sambhūtaṁ\
+> hṛt-sthaṁ jñānāsinātmanaḥ\
+> chittvainaṁ saṁśayaṁ yogam\
 > ātiṣṭhottiṣṭha bhārata
 
 *tasmāt*—por lo tanto; *ajñāna-sambhūtam*—resultado de ignorancia; *hṛt-stham*—situado en el corazón; *jñāna*—conocimiento; *asinā*—con el arma de; *ātmanaḥ*—del yo; *chittvā*—cortando; *enam*—esta; *saṁśayam*—duda; *yogam*—en el yoga; *ātiṣṭha*—sitúate; *uttiṣṭha*—levántate a luchar; *bhārata*—¡oh, descendiente de Bharata!

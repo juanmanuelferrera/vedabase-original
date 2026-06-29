@@ -1,9 +1,9 @@
 ### CC Madhya 16.240
 
-> বৃন্দাবন দেখি’ যবে আসিব নীলাচলে ।
+> বৃন্দাবন দেখি’ যবে আসিব নীলাচলে ।\
 > তবে তুমি আমা-পাশ আসিহ কোন ছলে ॥২৪০॥
 
-> vṛndāvana dekhi' yabe āsiba nīlācale
+> vṛndāvana dekhi' yabe āsiba nīlācale\
 > tabe tumi āmā-pāśa āsiha kona chale
 
 *vṛndāvana dekhi'*—después de visitar Vṛndāvana; *yabe*—cuando; *āsiba*—regrese; *nīlācale*—a Jagannātha Purī; *tabe*—en ese momento; *tumi*—tú; *āmā-pāśa*—adonde Mí; *āsiha*—por favor, ven; *kona chale*—con algún pretexto.

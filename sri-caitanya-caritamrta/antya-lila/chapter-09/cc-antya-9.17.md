@@ -1,9 +1,9 @@
 ### CC Antya 9.17
 
-> “গোপীনাথ-পট্টনায়ক — রামানন্দ-ভাই ।
+> “গোপীনাথ-পট্টনায়ক — রামানন্দ-ভাই ।\
 > সর্বকাল হয় তেঁহ রাজবিষয়ী ॥১৭॥
 
-> "gopīnātha-paṭṭanāyaka—rāmānanda-bhāi
+> "gopīnātha-paṭṭanāyaka—rāmānanda-bhāi\
 > sarva-kāla haya teṅha rāja-viṣayī
 
 *gopīnātha-paṭṭanāyaka*—Gopīnātha Paṭṭanāyaka; *rāmānanda-bhāi*—a brother of Rāmānanda Rāya; *sarva-kāla*—always; *haya*—is; *teṅha*—he; *rāja-viṣayī*—treasurer of the King.

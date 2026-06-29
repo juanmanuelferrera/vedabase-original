@@ -1,11 +1,11 @@
 ### SB 3.32.6
 
-> निवृत्तिधर्मनिरता निर्ममा निरहङ्कृताः ।
+> निवृत्तिधर्मनिरता निर्ममा निरहङ्कृताः ।\
 > स्वधर्माप्तेन सत्त्वेन परिशुद्धेन चेतसा ॥६॥
 
-> nivṛtti-dharma-niratā
-> nirmamā nirahaṅkṛtāḥ
-> sva-dharmāptena sattvena
+> nivṛtti-dharma-niratā\
+> nirmamā nirahaṅkṛtāḥ\
+> sva-dharmāptena sattvena\
 > pariśuddhena cetasā
 
 *nivṛtti-dharma*—in religious activities for detachment; *niratāḥ*—constantly engaged; *nirmamāḥ*—without a sense of proprietorship; *nirahaṅkṛtāḥ*—without false egoism; *sva-dharma*—by one's own occupational duties; *āptena*—executed; *sattvena*—by goodness; *pariśuddhena*—completely purified; *cetasā*—by consciousness.

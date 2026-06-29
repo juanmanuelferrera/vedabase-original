@@ -1,9 +1,9 @@
 ### CC Madhya 10.54
 
-> রায় কহে, — আমি শূদ্র, বিষয়ী, অধম ৷
+> রায় কহে, — আমি শূদ্র, বিষয়ী, অধম ৷\
 > তবু তুমি স্পর্শ, — এই ঈশ্বর-লক্ষণ ৷৷ ৫৪ ৷৷ ॥৫৪॥
 
-> rāya kahe,—āmi śūdra, viṣayī, adhama
+> rāya kahe,—āmi śūdra, viṣayī, adhama\
 > tabu tumi sparśa,—ei īśvara-lakṣaṇa
 
 *rāya kahe*—Bhavānanda Rāya respondió; *āmi śūdra*—pertenezco a la cuarta clase de las divisiones sociales; *viṣayī*—dedicado a asuntos mundanos; *adhama*—muy caído; *tabu*—aun así; *tumi*—Tú; *sparśa*—tocas; *ei*—esto; *īśvara-lakṣaṇa*—signo de la Suprema Personalidad de Dios.

@@ -1,13 +1,13 @@
 ### SB 6.14.27
 
-> श्रीशुक उवाच
-> इत्यर्थितः स भगवान्कृपालुर्ब्रह्मणः सुतः
+> श्रीशुक उवाच\
+> इत्यर्थितः स भगवान्कृपालुर्ब्रह्मणः सुतः\
 > श्रपयित्वा चरुं त्वाष्ट्रं त्वष्टारमयजद्विभुः ॥२७॥
 
-> śrī-śuka uvāca
-> ity arthitaḥ sa bhagavān
-> kṛpālur brahmaṇaḥ sutaḥ
-> śrapayitvā caruṁ tvāṣṭraṁ
+> śrī-śuka uvāca\
+> ity arthitaḥ sa bhagavān\
+> kṛpālur brahmaṇaḥ sutaḥ\
+> śrapayitvā caruṁ tvāṣṭraṁ\
 > tvaṣṭāram ayajad vibhuḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *iti*—así; *arthitaḥ*—ante el ruego; *saḥ*—él (Aṅgirā Ṛṣi); *bhagavān*—el muy poderoso; *kṛpāluḥ*—que era muy misericordioso; *brahmaṇaḥ*—del Señor Brahmā; *sutaḥ*—hijo (nacido de la mente del Señor Brahmā); *śrapayitvā*—tras hacer cocinar; *carum*—una oblación concreta de arroz dulce; *tvāṣṭram*—dirigida al semidiós llamado Tvaṣṭā; *tvaṣṭāram*—a Tvaṣṭā; *ayajat*—adoró; *vibhuḥ*—el gran sabio.

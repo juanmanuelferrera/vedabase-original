@@ -1,9 +1,9 @@
 ### CC Madhya 14.69
 
-> এক দিন নিমন্ত্রণ করে দুই-তিনে মিলি’ ।
+> এক দিন নিমন্ত্রণ করে দুই-তিনে মিলি’ ।\
 > এইমত মহাপ্রভুর নিমন্ত্রণ-কেলি ॥৬৯॥
 
-> eka dina nimantraṇa kare dui-tine mili'
+> eka dina nimantraṇa kare dui-tine mili'\
 > ei-mata mahāprabhura nimantraṇa-keli
 
 *eka dina*—un día; *nimantraṇa*—invitación; *kare*—hacen; *dui-tine*—dos o tres personas; *mili'*—uniéndose; *ei-mata*—de esta manera; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *nimantraṇa*—invitación; *keli*—pasatiempos.

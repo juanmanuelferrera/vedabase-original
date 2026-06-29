@@ -1,11 +1,11 @@
 ### SB 1.19.11
 
-> अन्ये च देवर्षिब्रह्मर्षिवर्या राजर्षिवर्या अरुणादयश्च ।
+> अन्ये च देवर्षिब्रह्मर्षिवर्या राजर्षिवर्या अरुणादयश्च ।\
 > नानार्षेयप्रवरान्समेतानभ्यर्च्य राजा शिरसा ववन्दे ॥११॥
 
-> anye ca devarṣi-brahmarṣi-varyā
-> rājarṣi-varyā aruṇādayaś ca
-> nānārṣeya-pravarān sametān
+> anye ca devarṣi-brahmarṣi-varyā\
+> rājarṣi-varyā aruṇādayaś ca\
+> nānārṣeya-pravarān sametān\
 > abhyarcya rājā śirasā vavande
 
 *anye*—muchos otros; *ca*—también; *devarṣi*—santos semidioses; *brahmarṣi*—santos *brāhmaṇas*; *varyāḥ*—los principales; *rājarṣi-varyāḥ*—los principales reyes santos; *aruṇa-ādayaḥ*—una categoría especial de *rajārṣis*; *ca*—y; *nānā*—muchos otros; *ārṣeya-pravarān*—los principales de la dinastía de los sabios; *sametān*—se reunieron; *abhyarcya*—por adorar; *rājā*—el emperador; *śirasā*—postró la cabeza en el suelo; *vavande*—dio la bienvenida.

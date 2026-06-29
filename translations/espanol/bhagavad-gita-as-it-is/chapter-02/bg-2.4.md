@@ -1,13 +1,13 @@
 ### Bg 2.4
 
-> अर्जुन उवाच ।
-> कथं भीष्ममहं सङ्ख्ये द्रोणं च मधुसूदन ।
+> अर्जुन उवाच ।\
+> कथं भीष्ममहं सङ्ख्ये द्रोणं च मधुसूदन ।\
 > इषुभिः प्रतियोत्स्यामि पूजार्हावरिसूदन ॥४॥
 
-> arjuna uvāca
-> kaṭhaṁ bhīṣmam ahaṁ saṅkhye
-> droṇaṁ ca madhusūdana
-> iṣubhiḥ pratiyotsyāmi
+> arjuna uvāca\
+> kaṭhaṁ bhīṣmam ahaṁ saṅkhye\
+> droṇaṁ ca madhusūdana\
+> iṣubhiḥ pratiyotsyāmi\
 > pūjārhāv arisūdana
 
 *arjunaḥ uvāca*—Arjuna dijo; *katham*—cómo; *bhīṣmam*—a Bhīṣma; *aham*—yo; *saṅkhye*—en la lucha; *droṇam*—a Droṇa; *ca*—también; *madhusūdana*—¡oh, destructor de Madhu!; *iṣubhiḥ*—con flechas; *pratiyotsyāmi*—he de contraatacar; *pūjā-arhau*—aquellos que son dignos de ser adorados; *arisūdana*—¡oh, destructor de los enemigos!

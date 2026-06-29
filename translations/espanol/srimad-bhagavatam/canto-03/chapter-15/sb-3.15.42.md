@@ -1,13 +1,13 @@
 ### SB 3.15.42
 
-> अत्रोपसृष्टमिति चोत्स्मितमिन्दिरायाः
-> स्वानां धिया विरचितं बहुसौष्ठवाढ्यम् ।
-> मह्यं भवस्य भवतां च भजन्तमङ्गं
+> अत्रोपसृष्टमिति चोत्स्मितमिन्दिरायाः\
+> स्वानां धिया विरचितं बहुसौष्ठवाढ्यम् ।\
+> मह्यं भवस्य भवतां च भजन्तमङ्गं\
 > नेमुर्निरीक्ष्य न वितृप्तदृशो मुदा कैः ॥४२॥
 
-> atropasṛṣṭam iti cotsmitam indirāyāḥ
-> svānāṁ dhiyā viracitaṁ bahu-sauṣṭhavāḍhyam
-> mahyaṁ bhavasya bhavatāṁ ca bhajantam aṅgaṁ
+> atropasṛṣṭam iti cotsmitam indirāyāḥ\
+> svānāṁ dhiyā viracitaṁ bahu-sauṣṭhavāḍhyam\
+> mahyaṁ bhavasya bhavatāṁ ca bhajantam aṅgaṁ\
 > nemur nirīkṣya na vitṛpta-dṛśo mudā kaiḥ
 
 *atra*—aquí, en cuestión de belleza; *upasṛṣṭam*—doblegado; *iti*—así; *ca*—y; *utsmitam*—el orgullo por su belleza; *indirāyāḥ*—de la diosa de la fortuna; *svānām*—de Sus propios devotos; *dhiyā*—por la inteligencia; *viracitam*—meditado en; *bahu-sauṣṭhava-āḍhyam*—muy hermosamente adornada; *mahyam*—de mí; *bhavasya*—de Śiva; *bhavatām*—de todos ustedes; *ca*—y; *bhajantam*—adorado; *aṅgam*—la imagen; *nemuḥ*—postrados; *nirīkṣya*—tras ver; *na*—no; *vitṛpta*—saciados; *dṛśaḥ*—ojos; *mudā*—llenos de júbilo; *kaiḥ*—mediante sus cabezas.

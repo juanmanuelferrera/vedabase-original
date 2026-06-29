@@ -1,9 +1,9 @@
 ### CC Antya 11.12
 
-> দিনে নৃত্য-কীর্তন, ঈশ্বর-দরশন ।
+> দিনে নৃত্য-কীর্তন, ঈশ্বর-দরশন ।\
 > রাত্র্যে রায়-স্বরূপ-সনে রস-আস্বাদন ॥১২॥
 
-> dine nṛtya-kīrtana, īśvara-daraśana
+> dine nṛtya-kīrtana, īśvara-daraśana\
 > rātrye rāya-svarūpa-sane rasa-āsvādana
 
 *dine*—durante el día; *nṛtya-kīrtana*—danza y canto; *īśvara daraśana*—visitar el templo del Señor Jagannātha; *rātrye*—por la noche; *rāya*—Rāmānanda Rāya; *svarūpa*—Svarūpa Dāmodara Gosvāmī; *sane*—con; *rasa-āsvādana*—saborear los melosidades trascendentales.

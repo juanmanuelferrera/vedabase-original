@@ -1,11 +1,11 @@
 ### SB 4.1.66
 
-> पितर्यप्रतिरूपे स्वे भवायानागसे रुषा ।
+> पितर्यप्रतिरूपे स्वे भवायानागसे रुषा ।\
 > अप्रौढैवात्मनात्मानमजहाद्योगसंयुता ॥६६॥
 
-> pitary apratirūpe sve
-> bhavāyānāgase ruṣā
-> aprauḍhaivātmanātmānam
+> pitary apratirūpe sve\
+> bhavāyānāgase ruṣā\
+> aprauḍhaivātmanātmānam\
 > ajahād yoga-saṁyutā
 
 *pitari*—como padre; *apratirūpe*—desfavorable; *sve*—su propio; *bhavāya*—al Señor Śiva; *anāgase*—intachable; *ruṣā*—con ira; *aprauḍhā*—antes de llegar a la madurez; *eva*—incluso; *ātmanā*—por sí misma; *ātmānam*—el cuerpo; *ajahāt*—abandonó; *yoga-saṁyutā*—por medio del *yoga* místico.

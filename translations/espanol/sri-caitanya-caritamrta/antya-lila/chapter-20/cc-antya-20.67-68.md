@@ -1,14 +1,14 @@
 ### CC Antya 20.67-68
 
-> যেই যেই শ্লোক জয়দেব, ভাগবতে ।
-> রায়ের নাটকে, যেই আর কর্ণামৃতে ॥৬৭॥
-> সেই সেই ভাবে শ্লোক করিয়া পঠনে ।
+> যেই যেই শ্লোক জয়দেব, ভাগবতে ।\
+> রায়ের নাটকে, যেই আর কর্ণামৃতে ॥৬৭॥\
+> সেই সেই ভাবে শ্লোক করিয়া পঠনে ।\
 > সেই সেই ভাবাবেশে করেন আস্বাদনে ॥৬৮॥
 
-> yei yei śloka jayadeva, bhāgavate
+> yei yei śloka jayadeva, bhāgavate\
 > rāyera nāṭake, yei āra karṇāmṛte
 
-> sei sei bhāve śloka kariyā paṭhane
+> sei sei bhāve śloka kariyā paṭhane\
 > sei sei bhāvāveśe karena āsvādane
 
 *yei yei*—cualesquiera; *śloka*—versos; *jayadeva*—Jayadeva Gosvāmī; *bhāgavate*—en el *Śrīmad-Bhāgavatam*; *rāyera nāṭake*—en la obra teatral compuesta por Rāmānanda Rāya; *yei*—cualesquiera; *āra*—también; *karṇāmṛte*—en el libro titulado *Kṛṣṇa-karṇāmṛta,* de Bilvamaṅgala Ṭhākura; *sei sei bhāve*—en esas emociones extáticas; *śloka*—versos; *kariyā paṭhane*—al leer regularmente; *sei sei*—en ese particular; *bhāva-āveśe*—amor extático; *karena āsvādane*—Él saborea.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.176
 
-> যে-কালে দ্বিভুজ, নাম — বৈভবপ্রকাশ ।
+> যে-কালে দ্বিভুজ, নাম — বৈভবপ্রকাশ ।\
 > চতুর্ভুজ হৈলে, নাম — প্রাভবপ্রকাশ ॥১৭৬॥
 
-> ye-kāle dvibhuja, nāma—vaibhava-prakāśa
+> ye-kāle dvibhuja, nāma—vaibhava-prakāśa\
 > caturbhuja haile, nāma—prābhava-prakāśa
 
 *ye-kāle dvi-bhuja*—when the Lord appears as two-handed; *nāma*—named; *vaibhava-prakāśa*—*vaibhava-prakāśa*; *catuḥ-bhuja haile*—when He becomes four-handed; *nāma*—named; *prābhava-prakāśa*—*prābhava-prakāśa.*

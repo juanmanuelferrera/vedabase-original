@@ -1,13 +1,13 @@
 ### SB 1.17.36
 
-> कलिरुवाच
-> यत्र क्व वाथ वत्स्यामि सार्वभौम तवाज्ञया ।
+> कलिरुवाच\
+> यत्र क्व वाथ वत्स्यामि सार्वभौम तवाज्ञया ।\
 > लक्षये तत्र तत्रापि त्वामात्तेषुशरासनम् ॥३६॥
 
-> kalir uvāca
-> yatra kva vātha vatsyāmi
-> sārva-bhauma tavājñayā
-> lakṣaye tatra tatrāpi
+> kalir uvāca\
+> yatra kva vātha vatsyāmi\
+> sārva-bhauma tavājñayā\
+> lakṣaye tatra tatrāpi\
 > tvām ātteṣu-śarāsanam
 
 *kaliḥ uvāca*—the personality of Kali said; *yatra*—anywhere; *kva*—and everywhere; *vā*—either; *atha*—thereof; *vatsyāmi*—I shall reside; *sārva-bhauma*—O lord (or emperor) of the earth; *tava*—your; *ājñayā*—by the order; *lakṣaye*—I see; *tatra tatra*—anywhere and everywhere; *api*—also; *tvām*—Your Majesty; *ātta*—taken over; *iṣu*—arrows; *śarāsanam*—bows.

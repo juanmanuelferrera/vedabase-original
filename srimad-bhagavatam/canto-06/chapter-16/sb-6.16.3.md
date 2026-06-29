@@ -1,11 +1,11 @@
 ### SB 6.16.3
 
-> कलेवरं स्वमाविश्य शेषमायुः सुहृद्वृतः
+> कलेवरं स्वमाविश्य शेषमायुः सुहृद्वृतः\
 > भुङ्क्ष्व भोगान्पितृप्रत्तानधितिष्ठ नृपासनम ॥३॥
 
-> kalevaraṁ svam āviśya
-> śeṣam āyuḥ suhṛd-vṛtaḥ
-> bhuṅkṣva bhogān pitṛ-prattān
+> kalevaraṁ svam āviśya\
+> śeṣam āyuḥ suhṛd-vṛtaḥ\
+> bhuṅkṣva bhogān pitṛ-prattān\
 > adhitiṣṭha nṛpāsanam
 
 *kalevaram*—body; *svam*—your own; *āviśya*—entering; *śeṣam*—the balance; *āyuḥ*—duration of life; *suhṛt-vṛtaḥ*—surrounded by your friends and relatives; *bhuṅkṣva*—just enjoy; *bhogān*—all enjoyable opulences; *pitṛ*—by your father; *prattān*—awarded; *adhitiṣṭha*—accept; *nṛpa-āsanam*—the throne of the king.

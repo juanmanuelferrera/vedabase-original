@@ -1,13 +1,13 @@
 ### SB 3.29.6
 
-> मैत्रेय उवाच
-> इति मातुर्वचः श्लक्ष्णं प्रतिनन्द्य महामुनिः ।
+> मैत्रेय उवाच\
+> इति मातुर्वचः श्लक्ष्णं प्रतिनन्द्य महामुनिः ।\
 > आबभाषे कुरुश्रेष्ठ प्रीतस्तां करुणार्दितः ॥६॥
 
-> maitreya uvāca
-> iti mātur vacaḥ ślakṣṇaṁ
-> pratinandya mahā-muniḥ
-> ābabhāṣe kuru-śreṣṭha
+> maitreya uvāca\
+> iti mātur vacaḥ ślakṣṇaṁ\
+> pratinandya mahā-muniḥ\
+> ābabhāṣe kuru-śreṣṭha\
 > prītas tāṁ karuṇārditaḥ
 
 *maitreyaḥ uvāca*—Maitreya said; *iti*—thus; *mātuḥ*—of His mother; *vacaḥ*—the words; *ślakṣṇam*—gentle; *pratinandya*—welcoming; *mahā-muniḥ*—the great sage Kapila; *ābabhāṣe*—spoke; *kuru-śreṣṭha*—O best among the Kurus, Vidura; *prītaḥ*—pleased; *tām*—to her; *karuṇā*—with compassion; *arditaḥ*—moved.

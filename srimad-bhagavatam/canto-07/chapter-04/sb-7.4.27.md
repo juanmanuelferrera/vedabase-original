@@ -1,11 +1,11 @@
 ### SB 7.4.27
 
-> यदा देवेषु वेदेषु गोषु विप्रेषु साधुषु
+> यदा देवेषु वेदेषु गोषु विप्रेषु साधुषु\
 > धर्मे मयि च विद्वेषः स वा आशु विनश्यति ॥२७॥
 
-> yadā deveṣu vedeṣu
-> goṣu vipreṣu sādhuṣu
-> dharme mayi ca vidveṣaḥ
+> yadā deveṣu vedeṣu\
+> goṣu vipreṣu sādhuṣu\
+> dharme mayi ca vidveṣaḥ\
 > sa vā āśu vinaśyati
 
 *yadā*—when; *deveṣu*—unto the demigods; *vedeṣu*—unto the Vedic scriptures; *goṣu*—unto the cows; *vipreṣu*—unto the *brāhmaṇas*; *sādhuṣu*—unto the saintly persons; *dharme*—unto religious principles; *mayi*—unto Me, the Supreme Personality of Godhead; *ca*—and; *vidveṣaḥ*—envious; *saḥ*—such a person; *vai*—indeed; *āśu*—very soon; *vinaśyati*—is vanquished.

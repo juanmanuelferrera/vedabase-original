@@ -1,9 +1,9 @@
 ### CC Madhya 20.260
 
-> জড় হৈতে সৃষ্টি নহে ঈশ্বরশক্তি বিনে ।
+> জড় হৈতে সৃষ্টি নহে ঈশ্বরশক্তি বিনে ।\
 > তাহাতেই সঙ্কর্ষণ করে শক্তির আধানে ॥২৬০॥
 
-> jaḍa haite sṛṣṭi nahe īśvara-śakti vine
+> jaḍa haite sṛṣṭi nahe īśvara-śakti vine\
 > tāhātei saṅkarṣaṇa kare śaktira ādhāne
 
 *jaḍa haite*—de la inerte energía material; *sṛṣṭi nahe*—la manifestación cósmica no es posible; *īśvara-śakti vine*—sin la ayuda de la energía del Señor Supremo, la Personalidad de Dios; *tāhātei*—en la energía material; *saṅkarṣaṇa*—el Señor Saṅkarṣaṇa; *kare*—realiza; *śaktira*—de la energía espiritual; *ādhāne*—investidura de poder.

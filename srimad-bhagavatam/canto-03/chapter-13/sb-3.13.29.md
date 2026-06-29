@@ -1,11 +1,11 @@
 ### SB 3.13.29
 
-> स वज्रकूटाङ्गनिपातवेग विशीर्णकुक्षिः स्तनयन्नुदन्वान् ।
+> स वज्रकूटाङ्गनिपातवेग विशीर्णकुक्षिः स्तनयन्नुदन्वान् ।\
 > उत्सृष्टदीर्घोर्मिभुजैरिवार्तश्चुक्रोश यज्ञेश्वर पाहि मेति ॥२९॥
 
-> sa vajra-kūṭāṅga-nipāta-vega-
-> viśīrṇa-kukṣiḥ stanayann udanvān
-> utsṛṣṭa-dīrghormi-bhujair ivārtaś
+> sa vajra-kūṭāṅga-nipāta-vega-\
+> viśīrṇa-kukṣiḥ stanayann udanvān\
+> utsṛṣṭa-dīrghormi-bhujair ivārtaś\
 > cukrośa yajñeśvara pāhi meti
 
 *saḥ*—that; *vajra-kūṭa-aṅga*—body like a great mountain; *nipāta-vega*—the force of diving; *viśīrṇa*—bifurcating; *kukṣiḥ*—the middle portion; *stanayan*—resounding like; *udanvān*—the ocean; *utsṛṣṭa*—creating; *dīrgha*—high; *ūrmi*—waves; *bhujaiḥ*—by the arms; *iva ārtaḥ*—like a distressed person; *cukrośa*—prayed loudly; *yajña-īśvara*—O master of all sacrifices; *pāhi*—please protect; *mā*—unto me; *iti*—thus.

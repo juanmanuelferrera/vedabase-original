@@ -1,11 +1,11 @@
 ### SB 4.24.77
 
-> विन्दते पुरुषोऽमुष्माद्यद्यदिच्छत्यसत्वरम् ।
+> विन्दते पुरुषोऽमुष्माद्यद्यदिच्छत्यसत्वरम् ।\
 > मद्गीतगीतात्सुप्रीताच्छ्रेयसामेकवल्लभात् ॥७७॥
 
-> vindate puruṣo 'muṣmād
-> yad yad icchaty asatvaram
-> mad-gīta-gītāt suprītāc
+> vindate puruṣo 'muṣmād\
+> yad yad icchaty asatvaram\
+> mad-gīta-gītāt suprītāc\
 > chreyasām eka-vallabhāt
 
 *vindate*—achieves; *puruṣaḥ*—a devotee; *amuṣmāt*—from the Personality of Godhead; *yat yat*—that which; *icchati*—desires; *asatvaram*—being fixed; *mat-gīta*—sung by me; *gītāt*—by the song; *su-prītāt*—from the Lord, who is very pleased; *śreyasām*—of all benediction; *eka*—one; *vallabhāt*—from the dearmost.

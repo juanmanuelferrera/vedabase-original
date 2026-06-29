@@ -1,11 +1,11 @@
 ### SB 2.10.26
 
-> निरभिद्यत शिश्नो वै प्रजानन्दामृतार्थिनः ।
+> निरभिद्यत शिश्नो वै प्रजानन्दामृतार्थिनः ।\
 > उपस्थ आसीत्कामानां प्रियं तदुभयाश्रयम् ॥२६॥
 
-> nirabhidyata śiśno vai
-> prajānandāmṛtārthinaḥ
-> upastha āsīt kāmānāṁ
+> nirabhidyata śiśno vai\
+> prajānandāmṛtārthinaḥ\
+> upastha āsīt kāmānāṁ\
 > priyaṁ tad-ubhayāśrayam
 
 *nirabhidyata*—came out; *śiśnaḥ*—the genitals; *vai*—certainly; *prajā-ānanda*—sex pleasure; *amṛta-arthinaḥ*—aspiring to taste the nectar; *upasthaḥ*—the male or female organ; *āsīt*—came into existence; *kāmānām*—of the lustful; *priyam*—very dear; *tat*—that; *ubhaya-āśrayam*—shelter for both.

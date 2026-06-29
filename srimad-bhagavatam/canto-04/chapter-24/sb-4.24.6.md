@@ -1,11 +1,11 @@
 ### SB 4.24.6
 
-> राज्ञां वृत्तिं करादान दण्डशुल्कादिदारुणाम् ।
+> राज्ञां वृत्तिं करादान दण्डशुल्कादिदारुणाम् ।\
 > मन्यमानो दीर्घसत्त्र व्याजेन विससर्ज ह ॥६॥
 
-> rājñāṁ vṛttiṁ karādāna-
-> daṇḍa-śulkādi-dāruṇām
-> manyamāno dīrgha-sattra-
+> rājñāṁ vṛttiṁ karādāna-\
+> daṇḍa-śulkādi-dāruṇām\
+> manyamāno dīrgha-sattra-\
 > vyājena visasarja ha
 
 *rājñām*—of the kings; *vṛttim*—source of livelihood; *kara*—taxes; *ādāna*—realization; *daṇḍa*—punishment; *śulka*—fines; *ādi*—etc.; *dāruṇām*—which are very severe; *manyamānaḥ*—thinking like that; *dīrgha*—long; *sattra*—sacrifice; *vyājena*—on the plea; *visasarja*—gave up; *ha*—in the past.

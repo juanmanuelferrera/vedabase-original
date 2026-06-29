@@ -1,13 +1,13 @@
 ### CC Madhya 2.48
 
-> কৃষ্ণপ্রেমা সুনির্মল, যেন শুদ্ধগঙ্গাজল,
-> সেই প্রেমা — অমৃতের সিন্ধু ৷
-> নির্মল সে অনুরাগে, না লুকায় অন্য দাগে,
+> কৃষ্ণপ্রেমা সুনির্মল, যেন শুদ্ধগঙ্গাজল,\
+> সেই প্রেমা — অমৃতের সিন্ধু ৷\
+> নির্মল সে অনুরাগে, না লুকায় অন্য দাগে,\
 > শুক্লবস্ত্রে যৈছে মসীবিন্দু ৷৷ ৪৮ ৷৷ ॥৪৮॥
 
-> kṛṣṇa-premā sunirmala, yena śuddha-gaṅgā-jala,
-> sei premā--amṛtera sindhu
-> nirmala se anurāge, nā lukāya anya dāge,
+> kṛṣṇa-premā sunirmala, yena śuddha-gaṅgā-jala,\
+> sei premā--amṛtera sindhu\
+> nirmala se anurāge, nā lukāya anya dāge,\
 > śukla-vastre yaiche masī-bindu
 
 *kṛṣṇa-premā*—amor por Kṛṣṇa; *su-nirmala*—sin contaminación material; *yena*—exactamente como; *śuddha-gaṅgā-jala*—el agua pura del Ganges; *sei premā*—ese amor; *amṛtera sindhu*—el océano de néctar; *nirmala*—puro; *se*—ese; *anurāge*—apego; *nā lukāya*—no oculta; *anya*—otra; *dāge*—mancha; *śukla-vastre*—sobre tela blanca; *yaiche*—como; *masī-bindu*—una gota de tinta.

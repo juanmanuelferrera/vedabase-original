@@ -1,13 +1,13 @@
 ### SB 3.5.18
 
-> मैत्रेय उवाच
-> साधु पृष्टं त्वया साधो लोकान्साध्वनुगृह्णता ।
+> मैत्रेय उवाच\
+> साधु पृष्टं त्वया साधो लोकान्साध्वनुगृह्णता ।\
 > कीर्तिं वितन्वता लोके आत्मनोऽधोक्षजात्मनः ॥१८॥
 
-> maitreya uvāca
-> sādhu pṛṣṭaṁ tvayā sādho
-> lokān sādhv anugṛhṇatā
-> kīrtiṁ vitanvatā loke
+> maitreya uvāca\
+> sādhu pṛṣṭaṁ tvayā sādho\
+> lokān sādhv anugṛhṇatā\
+> kīrtiṁ vitanvatā loke\
 > ātmano 'dhokṣajātmanaḥ
 
 *maitreyaḥ uvāca*—Śrī Maitreya dijo; *sādhu*—todo lo bueno; *pṛṣṭam*—me has preguntado; *tvayā*—tú; *sādho*—¡oh, tú, el bondadoso!; *lokān*—toda la gente; *sādhu anugṛhṇatā*—siendo misericordioso con bondad; *kīrtim*—glorias; *vitanvatā*—difundiendo; *loke*—en el mundo; *ātmanaḥ*—acerca del yo; *adhokṣaja*—la Realidad Trascendental; *ātmanaḥ*—mente.

@@ -1,9 +1,9 @@
 ### CC Antya 4.221
 
-> ‘হরিভক্তিবিলাস’-গ্রন্থ কৈলা বৈষ্ণব-আচার ।
+> ‘হরিভক্তিবিলাস’-গ্রন্থ কৈলা বৈষ্ণব-আচার ।\
 > বৈষ্ণবের কর্তব্য যাহাঁ পাইয়ে পার ॥২২১॥
 
-> 'hari-bhakti-vilāsa'-grantha kailā vaiṣṇava-ācāra
+> 'hari-bhakti-vilāsa'-grantha kailā vaiṣṇava-ācāra\
 > vaiṣṇavera kartavya yāhāṅ pāiye pāra
 
 *hari-bhakti-vilāsa*—of the name *Hari-bhakti-vilāsa*; *grantha*—book; *kailā*—compiled; *vaiṣṇava-ācāra*—the standard behavior of a Vaiṣṇava; *vaiṣṇavera*—of a devotee; *kartavya*—duty; *yāhāṅ*—in which; *pāiye pāra*—one can understand up to the extreme limit.

@@ -1,11 +1,11 @@
 ### SB 1.8.39
 
-> नेयं शोभिष्यते तत्र यथेदानीं गदाधर ।
+> नेयं शोभिष्यते तत्र यथेदानीं गदाधर ।\
 > त्वत्पदैरङ्किता भाति स्वलक्षणविलक्षितैः ॥३९॥
 
-> neyaṁ śobhiṣyate tatra
-> yathedānīṁ gadādhara
-> tvat-padair aṅkitā bhāti
+> neyaṁ śobhiṣyate tatra\
+> yathedānīṁ gadādhara\
+> tvat-padair aṅkitā bhāti\
 > sva-lakṣaṇa-vilakṣitaiḥ
 
 *na*—no; *iyam*—esta tierra de nuestro reino; *śobhiṣyate*—lucirá hermosa; *tatra*—entonces; *yathā*—como es ahora; *idānīm*—como; *gadādhara*—¡oh, Kṛṣṇa!; *tvat*—Tus; *padaiḥ*—por los pies; *aṅkitā*—marcada; *bhāti*—deslumbra; *sva-lakṣaṇa*—Tus propias señales; *vilakṣitaiḥ*—por las huellas.

@@ -1,9 +1,9 @@
 ### CC Antya 15.98
 
-> অনন্ত চৈতন্যলীলা না যায় লিখন ।
+> অনন্ত চৈতন্যলীলা না যায় লিখন ।\
 > দিঙ্মাত্র দেখাঞা তাহা করিয়ে সূচন ॥৯৮॥
 
-> ananta caitanya-līlā nā yāya likhana
+> ananta caitanya-līlā nā yāya likhana\
 > diṅ-mātra dekhāñā tāhā kariye sūcana
 
 *ananta*—endless; *caitanya-līlā*—the pastimes of Śrī Caitanya Mahāprabhu; *nā yāya likhana*—it is impossible to write; *dik-mātra*—only a direction; *dekhāñā*—showing; *tāhā*—them; *kariye sūcana*—I introduce.

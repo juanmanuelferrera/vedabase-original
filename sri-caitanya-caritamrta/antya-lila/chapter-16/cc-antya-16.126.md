@@ -1,13 +1,13 @@
 ### CC Antya 16.126
 
-> তবে মোরে ক্রোধ করি’, লজ্জা, ভয়, ধর্ম, ছাড়ি’,
-> ছাড়ি’ দিমু, কর আসি’ পান ।
-> নহে পিমু নিরন্তর, তোমায় মোর নাহিক ডর,
+> তবে মোরে ক্রোধ করি’, লজ্জা, ভয়, ধর্ম, ছাড়ি’,\
+> ছাড়ি’ দিমু, কর আসি’ পান ।\
+> নহে পিমু নিরন্তর, তোমায় মোর নাহিক ডর,\
 > অন্যে দেখোঁ তৃণের সমান ॥১২৬॥
 
-> tabe more krodha kari;, lajjā bhaya, dharma, chāḍi',
-> chāḍi' dimu, kara āsi' pāna
-> nahe pimu nirantara, tomāya mora nāhika ḍara,
+> tabe more krodha kari;, lajjā bhaya, dharma, chāḍi',\
+> chāḍi' dimu, kara āsi' pāna\
+> nahe pimu nirantara, tomāya mora nāhika ḍara,\
 > anye dekhoṅ tṛṇera samāna
 
 *tabe*—thereupon; *more*—at Me; *krodha kari'*—becoming angry; *lajjā*—shame; *bhaya*—fear; *dharma*—religion; *chāḍi'*—giving up; *chāḍi'*—giving up; *dimu*—I shall give; *kara āsi' pāna*—come drink; *nahe*—not; *pimu*—I shall drink; *nirantara*—continuously; *tomāya*—of You; *mora*—my; *nāhika*—there is not; *ḍara*—fear; *anye*—others; *dekhoṅ*—I see; *tṛṇera samāna*—equal to straw.

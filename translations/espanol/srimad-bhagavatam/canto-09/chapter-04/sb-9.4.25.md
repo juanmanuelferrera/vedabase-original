@@ -1,11 +1,11 @@
 ### SB 9.4.25
 
-> संवर्धयन्ति यत्कामाः स्वाराज्यपरिभाविताः
+> संवर्धयन्ति यत्कामाः स्वाराज्यपरिभाविताः\
 > दुर्लभा नापि सिद्धानां मुकुन्दं हृदि पश्यतः ॥२५॥
 
-> saṁvardhayanti yat kāmāḥ
-> svārājya-paribhāvitāḥ
-> durlabhā nāpi siddhānāṁ
+> saṁvardhayanti yat kāmāḥ\
+> svārājya-paribhāvitāḥ\
+> durlabhā nāpi siddhānāṁ\
 > mukundaṁ hṛdi paśyataḥ
 
 *saṁvardhayanti*—aumentan la felicidad; *yat*—puesto que; *kāmāḥ*—esas aspiraciones; *svā-rājya*—situado en su propia posición constitucional de ofrecer servicio al Señor; *paribhāvitāḥ*—saciados con esas aspiraciones; *durlabhāḥ*—que muy rara vez se obtiene; *na*—no; *api*—también; *siddhānām*—de los grandes místicos; *mukundam*—Kṛṣṇa, la Suprema Personalidad de Dios; *hṛdi*—en lo más profundo del corazón; *paśyataḥ*—personas acostumbradas a verle siempre.

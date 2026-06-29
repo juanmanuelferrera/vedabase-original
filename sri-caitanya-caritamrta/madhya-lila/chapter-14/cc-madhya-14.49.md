@@ -1,9 +1,9 @@
 ### CC Madhya 14.49
 
-> মহামল্লগণে দিল রথ চালাইতে ।
+> মহামল্লগণে দিল রথ চালাইতে ।\
 > আপনে লাগিলা রথ, না পারে টানিতে ॥৪৯॥
 
-> mahā-malla-gaṇe dila ratha cālāite
+> mahā-malla-gaṇe dila ratha cālāite\
 > āpane lāgilā ratha, nā pāre ṭānite
 
 *mahā-malla-gaṇe*—unto the big wrestlers; *dila*—gave; *ratha*—the car; *cālāite*—to pull out; *āpane*—personally; *lāgilā*—engaged; *ratha*—the car; *nā pāre ṭānite*—could not move.

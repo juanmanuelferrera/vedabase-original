@@ -1,18 +1,18 @@
 ### SB 6.5.27-28
 
-> अब्भक्षाः कतिचिन्मासान्कतिचिद्वायुभोजनाः
-> आराधयन्मन्त्रमिममभ्यस्यन्त इडस्पतिम ॥२७॥
-> ओं नमो नारायणाय पुरुषाय महात्मने
+> अब्भक्षाः कतिचिन्मासान्कतिचिद्वायुभोजनाः\
+> आराधयन्मन्त्रमिममभ्यस्यन्त इडस्पतिम ॥२७॥\
+> ओं नमो नारायणाय पुरुषाय महात्मने\
 > विशुद्धसत्त्वधिष्ण्याय महाहंसाय धीमहि ॥२८॥
 
-> ab-bhakṣāḥ katicin māsān
-> katicid vāyu-bhojanāḥ
-> ārādhayan mantram imam
+> ab-bhakṣāḥ katicin māsān\
+> katicid vāyu-bhojanāḥ\
+> ārādhayan mantram imam\
 > abhyasyanta iḍaspatim
 
-> oṁ namo nārāyaṇāya
-> puruṣāya mahātmane
-> viśuddha-sattva-dhiṣṇyāya
+> oṁ namo nārāyaṇāya\
+> puruṣāya mahātmane\
+> viśuddha-sattva-dhiṣṇyāya\
 > mahā-haṁsāya dhīmahi
 
 *ap-bhakṣāḥ*—beber solo agua; *katicit māsān*—durante unos meses; *katicit*—** durante algunos; *vāyu-bhojanāḥ*—con solo respirar, o comer aire; *ārādhayan*—adoraron; *mantram imam*—este *mantra*, que no es diferente de Nārāyaṇa; *abhyasyantaḥ*—practicando; *iḍaḥ-patim*—el amo de todos los *mantras*, el Señor Viṣṇu; *oṁ*—¡oh, Señor!; *namaḥ*—respetuosas reverencias; *nārāyaṇāya*—al Señor Nārāyaṇa; *puruṣāya*—la Persona Suprema; *mahā-ātmane*—la excelsa Superalma; *viśuddha-sattva-dhiṣṇyāya*—que siempre está situado en la morada trascendental; *mahā-haṁsāya*—la gran Personalidad de Dios, que es como un cisne; *dhīmahi*—siempre ofrecemos.

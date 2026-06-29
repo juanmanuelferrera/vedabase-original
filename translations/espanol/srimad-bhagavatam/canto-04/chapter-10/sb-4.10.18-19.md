@@ -1,18 +1,18 @@
 ### SB 4.10.18-19
 
-> भल्लैः सञ्छिद्यमानानां शिरोभिश्चारुकुण्डलैः ।
-> ऊरुभिर्हेमतालाभैर्दोर्भिर्वलयवल्गुभिः ॥१८॥
-> हारकेयूरमुकुटैरुष्णीषैश्च महाधनैः ।
+> भल्लैः सञ्छिद्यमानानां शिरोभिश्चारुकुण्डलैः ।\
+> ऊरुभिर्हेमतालाभैर्दोर्भिर्वलयवल्गुभिः ॥१८॥\
+> हारकेयूरमुकुटैरुष्णीषैश्च महाधनैः ।\
 > आस्तृतास्ता रणभुवो रेजुर्वीरमनोहराः ॥१९॥
 
-> bhallaiḥ sañchidyamānānāṁ
-> śirobhiś cāru-kuṇḍalaiḥ
-> ūrubhir hema-tālābhair
+> bhallaiḥ sañchidyamānānāṁ\
+> śirobhiś cāru-kuṇḍalaiḥ\
+> ūrubhir hema-tālābhair\
 > dorbhir valaya-valgubhiḥ
 
-> hāra-keyūra-mukuṭair
-> uṣṇīṣaiś ca mahā-dhanaiḥ
-> āstṛtās tā raṇa-bhuvo
+> hāra-keyūra-mukuṭair\
+> uṣṇīṣaiś ca mahā-dhanaiḥ\
+> āstṛtās tā raṇa-bhuvo\
 > rejur vīra-mano-harāḥ
 
 *bhallaiḥ*—por sus flechas; *sañchidyamānānām*—de los *yakṣas* despedazados; *śirobhiḥ*—con cabezas; *cāru*—hermosos; *kuṇḍalaiḥ*—con pendientes; *ūrubhiḥ*—con muslos; *hema-tālābhaiḥ*—como palmeras doradas; *dorbhiḥ*—con brazos; *valaya-valgubhiḥ*—con hermosos brazaletes; *hāra*—con collares de flores; *keyūra*—pulseras; *mukuṭaiḥ*—y yelmos; *uṣṇīṣaiḥ*—con turbantes; *ca*—también; *mahā-dhanaiḥ*—muy valiosos; *āstṛtāḥ*—cubierto; *tāḥ*—aquellos; *raṇa-bhuvaḥ*—campo de batalla; *rejuḥ*—emitían destellos; *vīra*—de los héroes; *manaḥ-harāḥ*—confundiendo la mente.

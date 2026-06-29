@@ -1,9 +1,9 @@
 ### CC Madhya 13.88
 
-> লোক নিবারিতে হৈল তিন মণ্ডল ।
+> লোক নিবারিতে হৈল তিন মণ্ডল ।\
 > প্রথম-মণ্ডলে নিত্যানন্দ মহাবল ॥৮৮॥
 
-> loka nivārite haila tina maṇḍala
+> loka nivārite haila tina maṇḍala\
 > prathama-maṇḍale nityānanda mahā-bala
 
 *loka*—la gente; *nivārite*—para contener; *haila*—hubo; *tina*—tres; *maṇḍala*—círculos; *prathama-maṇḍale*—en el primer círculo; *nityānanda*—el Señor Nityānanda; *mahā-bala*—de gran fuerza.

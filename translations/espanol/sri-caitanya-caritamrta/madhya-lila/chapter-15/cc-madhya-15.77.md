@@ -1,9 +1,9 @@
 ### CC Madhya 15.77
 
-> শস্য সমর্পণ করি’ বাহিরে ধেয়ান ৷
+> শস্য সমর্পণ করি’ বাহিরে ধেয়ান ৷\
 > শস্য খাঞা কৃষ্ণ করে শূন্য ভাজন ॥৭৭॥
 
-> śasya samarpaṇa kari' bāhire dheyāna
+> śasya samarpaṇa kari' bāhire dheyāna\
 > śasya khāñā kṛṣṇa kare śūnya bhājana
 
 *śasya*—la pulpa; *samarpaṇa kari'*—ofreciendo; *bāhire*—fuera de la sala del templo; *dheyāna*—medita; *śasya khāñā*—comiendo la pulpa; *kṛṣṇa*—el Señor Kṛṣṇa; *kare*—hace; *śūnya*—vacío; *bhājana*—el plato.

@@ -1,11 +1,11 @@
 ### SB 6.17.33
 
-> न ह्यस्यास्ति प्रियः कश्चिन्नाप्रियः स्वः परोऽपि वा
+> न ह्यस्यास्ति प्रियः कश्चिन्नाप्रियः स्वः परोऽपि वा\
 > आत्मत्वात्सर्वभूतानां सर्वभूतप्रियो हरिः ॥३३॥
 
-> na hy asyāsti priyaḥ kaścin
-> nāpriyaḥ svaḥ paro 'pi vā
-> ātmatvāt sarva-bhūtānāṁ
+> na hy asyāsti priyaḥ kaścin\
+> nāpriyaḥ svaḥ paro 'pi vā\
+> ātmatvāt sarva-bhūtānāṁ\
 > sarva-bhūta-priyo hariḥ
 
 *na*—not; *hi*—indeed; *asya*—of the Lord; *asti*—there is; *priyaḥ*—very dear; *kaścit*—anyone; *na*—nor; *apriyaḥ*—not dear; *svaḥ*—own; *paraḥ*—other; *api*—even; *vā*—or; *ātmatvāt*—due to being the soul of the soul; *sarva-bhūtānām*—of all living entities; *sarva-bhūta*—to all living entities; *priyaḥ*—very, very dear; *hariḥ*—Lord Hari.

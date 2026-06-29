@@ -1,13 +1,13 @@
 ### CC Madhya 8.195
 
-> রাধায়া ভবতশ্চ চিত্তজতুনী স্বেদৈর্বিলাপ্য ক্রমাদ্
-> যুঞ্জন্নদ্রি-নিকুঞ্জ-কুঞ্জরপতে নির্ধূত-ভেদভ্রমম্ ৷
-> চিত্রায় স্বয়মন্বরঞ্জয়দিহ ব্রহ্মাণ্ডঽর্ম্যোদরে
+> রাধায়া ভবতশ্চ চিত্তজতুনী স্বেদৈর্বিলাপ্য ক্রমাদ্\
+> যুঞ্জন্নদ্রি-নিকুঞ্জ-কুঞ্জরপতে নির্ধূত-ভেদভ্রমম্ ৷\
+> চিত্রায় স্বয়মন্বরঞ্জয়দিহ ব্রহ্মাণ্ডঽর্ম্যোদরে\
 > ভূয়োভির্নব-রাগ-হিঙ্গুলভরৈঃ শৃঙ্গার-কারুঃ কৃতী ৷৷ ১৯৫ ৷৷ ॥১৯৫॥
 
-> rādhāyā bhavataś ca citta-jatunī svedair vilāpya kramād
-> yuñjann adri-nikuñja-kuñjara-pate nirdhūta-bheda-bhramam
-> citrāya svayam anvarañjayad iha brahmāṇḍa-harmyodare
+> rādhāyā bhavataś ca citta-jatunī svedair vilāpya kramād\
+> yuñjann adri-nikuñja-kuñjara-pate nirdhūta-bheda-bhramam\
+> citrāya svayam anvarañjayad iha brahmāṇḍa-harmyodare\
 > bhūyobhir nava-rāga-hiṅgula-bharaiḥ śṛṅgāra-kāruḥ kṛtī
 
 *rādhāyāḥ*—de Śrīmatī Rādhārāṇī; *bhavataḥ ca*—y de Ti; *citta-jatunī*—las dos mentes como laca; *svedaiḥ*—mediante la transpiración; *vilāpya*—derritiendo; *kramāt*—gradualmente; *yuñjan*—uniendo; *adri*—de la colina Govardhana; *nikuñja*—en un lugar solitario para el disfrute; *kuñjara-pate*—¡oh, rey de los elefantes!; *nirdhūta*—completamente eliminado; *bheda-bhramam*—el malentendido de la diferenciación; *citrāya*—para acrecentar el asombro; *svayam*—personalmente; *anvarañjayat*—coloreó; *iha*—en este mundo; *brahmāṇḍa*—del universo; *harmya-udare*—dentro del palacio; *bhūyobhiḥ*—mediante variados medios; *nava-rāga*—de nueva atracción; *hiṅgula-bharaiḥ*—con el bermellón; *śṛṅgāra*—de asuntos amorosos; *kāruḥ*—el artesano; *kṛtī*—muy experto.

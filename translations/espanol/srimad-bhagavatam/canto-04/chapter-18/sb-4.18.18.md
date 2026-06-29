@@ -1,11 +1,11 @@
 ### SB 4.18.18
 
-> वत्सेन पितरोऽर्यम्णा कव्यं क्षीरमधुक्षत ।
+> वत्सेन पितरोऽर्यम्णा कव्यं क्षीरमधुक्षत ।\
 > आमपात्रे महाभागाः श्रद्धया श्राद्धदेवताः ॥१८॥
 
-> vatsena pitaro 'ryamṇā
-> kavyaṁ kṣīram adhukṣata
-> āma-pātre mahā-bhāgāḥ
+> vatsena pitaro 'ryamṇā\
+> kavyaṁ kṣīram adhukṣata\
+> āma-pātre mahā-bhāgāḥ\
 > śraddhayā śrāddha-devatāḥ
 
 *vatsena*—con el ternero; *pitaraḥ*—los habitantes de Pitṛloka; *aryamṇā*—con Aryamā, el dios de Pitṛloka; *kavyam*—ofrendas de alimento a los antepasados; *kṣīram*—leche; *adhukṣata*—extrajeron; *āma-pātre*—en un recipiente de barro sin cocer; *mahā-bhāgāḥ*—los muy afortunados; *śraddhayā*—con gran fe; *śrāddha-devatāḥ*—los semidioses que rigen las ceremonias *śrāddha* en honor de los familiares fallecidos.

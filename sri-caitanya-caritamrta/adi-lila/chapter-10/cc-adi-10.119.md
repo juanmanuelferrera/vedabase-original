@@ -1,9 +1,9 @@
 ### CC Adi 10.119
 
-> ভাগবতাচার্য, চিরঞ্জীব, শ্রীরঘুনন্দন ।
+> ভাগবতাচার্য, চিরঞ্জীব, শ্রীরঘুনন্দন ।\
 > মাধবাচার্য কমলাকান্ত, শ্রীযদুনন্দন ॥১১৯॥
 
-> bhāgavatācārya, cirañjīva śrī-raghunandana
+> bhāgavatācārya, cirañjīva śrī-raghunandana\
 > mādhavācārya, kamalākānta, śrī-yadunandana
 
 *bhāgavatācārya*—of the name Bhāgavatācārya; *cirañjīva*—of the name Cirañjīva; *śrī-raghunandana*—of the name Śrī Raghunandana; *mādhavācārya*—of the name Mādhavācārya; *kamalākānta*—of the name Kamalākānta; *śrī-yadunandana*—of the name Śrī Yadunandana.

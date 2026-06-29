@@ -1,11 +1,11 @@
 ### SB 3.8.13
 
-> तस्यार्थसूक्ष्माभिनिविष्टदृष्टेरन्तर्गतोऽर्थो रजसा तनीयान् ।
+> तस्यार्थसूक्ष्माभिनिविष्टदृष्टेरन्तर्गतोऽर्थो रजसा तनीयान् ।\
 > गुणेन कालानुगतेन विद्धः सूष्यंस्तदाभिद्यत नाभिदेशात् ॥१३॥
 
-> tasyārtha-sūkṣmābhiniviṣṭa-dṛṣṭer
-> antar-gato 'rtho rajasā tanīyān
-> guṇena kālānugatena viddhaḥ
+> tasyārtha-sūkṣmābhiniviṣṭa-dṛṣṭer\
+> antar-gato 'rtho rajasā tanīyān\
+> guṇena kālānugatena viddhaḥ\
 > sūṣyaṁs tadābhidyata nābhi-deśāt
 
 *tasya*—Su; *artha*—tema; *sūkṣma*—sutil; *abhiniviṣṭa-dṛṣṭeḥ*—de aquel cuya atención estaba fija; *antaḥ-gataḥ*—interno; *arthaḥ*—propósito; *rajasā*—por la modalidad de la pasión de la naturaleza material; *tanīyān*—muy sutil; *guṇena*—por las cualidades; *kāla-anugatena*—en el debido transcurso del tiempo; *viddhaḥ*—agitado; *sūṣyan*—generando; *tadā*—entonces; *abhidyata*—brotó; *nābhi-deśāt*—del abdomen.

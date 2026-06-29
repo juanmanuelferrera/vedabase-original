@@ -1,9 +1,9 @@
 ### CC Madhya 24.338
 
-> পুরশ্চরণ-বিধি, কৃষ্ণপ্রসাদ-ভোজন ।
+> পুরশ্চরণ-বিধি, কৃষ্ণপ্রসাদ-ভোজন ।\
 > অনিবেদিত-ত্যাগ, বৈষ্ণবনিন্দাদি-বর্জন ॥৩৩৮॥
 
-> puraścaraṇa-vidhi, kṛṣṇa-prasāda-bhojana
+> puraścaraṇa-vidhi, kṛṣṇa-prasāda-bhojana\
 > anivedita-tyāga, vaiṣṇava-nindādi-varjana
 
 *puraścaraṇa-vidhi*—ritualistic ceremonies; *kṛṣṇa-prasāda-bhojana*—eating the remnants of food offered to the Lord; *anivedita-tyāga*—not touching anything not offered to the Lord; *vaiṣṇava-nindā-ādi-varjana*—completely avoiding blaspheming a Vaiṣṇava.

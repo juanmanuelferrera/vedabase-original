@@ -1,11 +1,11 @@
 ### SB 3.21.56
 
-> अथापि पृच्छे त्वां वीर यदर्थं त्वमिहागतः ।
+> अथापि पृच्छे त्वां वीर यदर्थं त्वमिहागतः ।\
 > तद्वयं निर्व्यलीकेन प्रतिपद्यामहे हृदा ॥५६॥
 
-> athāpi pṛcche tvāṁ vīra
-> yad-arthaṁ tvam ihāgataḥ
-> tad vayaṁ nirvyalīkena
+> athāpi pṛcche tvāṁ vīra\
+> yad-arthaṁ tvam ihāgataḥ\
+> tad vayaṁ nirvyalīkena\
 > pratipadyāmahe hṛdā
 
 *atha api*—a pesar de todo esto; *pṛcche*—yo pregunto; *tvām*—a ti; *vīra*—¡oh, valiente rey!; *yat-artham*—el propósito; *tvam*—tú; *iha*—aquí; *āgataḥ*—hayas venido; *tat*—eso; *vayam*—nosotros; *nirvyalīkena*—sin ahorrar esfuerzos; *pratipadyāmahe*—cumpliremos; *hṛdā*—de todo corazón.

@@ -1,11 +1,11 @@
 ### SB 4.27.11
 
-> ईजे च क्रतुभिर्घोरैर्दीक्षितः पशुमारकैः ।
+> ईजे च क्रतुभिर्घोरैर्दीक्षितः पशुमारकैः ।\
 > देवान्पितॄन्भूतपतीन्नानाकामो यथा भवान् ॥११॥
 
-> īje ca kratubhir ghorair
-> dīkṣitaḥ paśu-mārakaiḥ
-> devān pitṝn bhūta-patīn
+> īje ca kratubhir ghorair\
+> dīkṣitaḥ paśu-mārakaiḥ\
+> devān pitṝn bhūta-patīn\
 > nānā-kāmo yathā bhavān
 
 *īje*—he worshiped; *ca*—also; *kratubhiḥ*—by sacrifices; *ghoraiḥ*—ghastly; *dīkṣitaḥ*—inspired; *paśu-mārakaiḥ*—wherein poor animals are killed; *devān*—the demigods; *pitṝn*—forefathers; *bhūta-patīn*—great leaders of human society; *nānā*—various; *kāmaḥ*—having desires; *yathā*—like; *bhavān*—you.

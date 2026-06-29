@@ -1,11 +1,11 @@
 ### SB 3.24.44
 
-> निरहङ्कृतिर्निर्ममश्च निर्द्वन्द्वः समदृक्स्वदृक् ।
+> निरहङ्कृतिर्निर्ममश्च निर्द्वन्द्वः समदृक्स्वदृक् ।\
 > प्रत्यक्प्रशान्तधीर्धीरः प्रशान्तोर्मिरिवोदधिः ॥४४॥
 
-> nirahaṅkṛtir nirmamaś ca
-> nirdvandvaḥ sama-dṛk sva-dṛk
-> pratyak-praśānta-dhīr dhīraḥ
+> nirahaṅkṛtir nirmamaś ca\
+> nirdvandvaḥ sama-dṛk sva-dṛk\
+> pratyak-praśānta-dhīr dhīraḥ\
 > praśāntormir ivodadhiḥ
 
 *nirahaṅkṛtiḥ*—without false ego; *nirmamaḥ*—without material affection; *ca*—and; *nirdvandvaḥ*—without duality; *sama-dṛk*—seeing equality; *sva-dṛk*—seeing himself; *pratyak*—turned inward; *praśānta*—perfectly composed; *dhīḥ*—mind; *dhīraḥ*—sober, not disturbed; *praśānta*—calmed; *ūrmiḥ*—whose waves; *iva*—like; *udadhiḥ*—the ocean.

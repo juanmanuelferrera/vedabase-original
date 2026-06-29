@@ -1,11 +1,11 @@
 ### SB 9.19.3
 
-> बस्त एको वने कश्चिद्विचिन्वन्प्रियमात्मनः
+> बस्त एको वने कश्चिद्विचिन्वन्प्रियमात्मनः\
 > ददर्श कूपे पतितां स्वकर्मवशगामजाम ॥३॥
 
-> basta eko vane kaścid
-> vicinvan priyam ātmanaḥ
-> dadarśa kūpe patitāṁ
+> basta eko vane kaścid\
+> vicinvan priyam ātmanaḥ\
+> dadarśa kūpe patitāṁ\
 > sva-karma-vaśagām ajām
 
 *bastaḥ*—macho cabrío; *ekaḥ*—un; *vane*—en un bosque; *kaścit*—alguna; *vicinvan*—buscando comida; *priyam*—muy querida; *ātmanaḥ*—para él mismo; *dadarśa*—vio por casualidad; *kūpe*—dentro de un pozo; *patitām*—caída; *sva-karma-vaśa-gām*—bajo la influencia de los resultados de sus actividades fruitivas; *ajām*—a una cabra.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.126
 
-> কৃষ্ণার্থে অখিল-চেষ্টা, তত্কৃপাবলোকন ।
+> কৃষ্ণার্থে অখিল-চেষ্টা, তত্কৃপাবলোকন ।\
 > জন্ম-দিনাদি-মহোৎসব লঞা ভক্তগণ ॥১২৬॥
 
-> kṛṣṇārthe akhila-ceṣṭā, tat-kṛpāvalokana
+> kṛṣṇārthe akhila-ceṣṭā, tat-kṛpāvalokana\
 > janma-dinādi-mahotsava lañā bhakta-gaṇa
 
 *kṛṣṇa-arthe*—for the sake of Kṛṣṇa; *akhila-ceṣṭā*—all activity; *tat-kṛpa-avalokana*—looking for His mercy; *janma-dina-ādi*—the appearance day and so on; *mahotsava*—festivals; *lañā bhakta-gaṇa*—with devotees.

@@ -1,9 +1,9 @@
 ### CC Antya 5.115
 
-> সহজে জড়জগতের চেতন করাইতে ।
+> সহজে জড়জগতের চেতন করাইতে ।\
 > নীলাচলে মহাপ্রভু হৈলা আবির্ভূতে ।।” ॥ ১১৫ ॥
 
-> sahaje jaḍa-jagatera cetana karāite
+> sahaje jaḍa-jagatera cetana karāite\
 > nīlācale mahāprabhu hailā āvirbhute
 
 *sahaje*—naturally; *jaḍa-jagatera*—the dull material world; *cetana karāite*—to inspire to spiritual consciousness; *nīlācale*—at Jagannātha Purī; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *hailā āvirbhute*—has appeared.

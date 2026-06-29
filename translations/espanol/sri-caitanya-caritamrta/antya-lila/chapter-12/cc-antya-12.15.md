@@ -1,9 +1,9 @@
 ### CC Antya 12.15
 
-> শিবানন্দ-সেন করে ঘাটী-সমাধান ।
+> শিবানন্দ-সেন করে ঘাটী-সমাধান ।\
 > সবারে পালন করি’ সুখে লঞা যান ॥১৫॥
 
-> śivānanda-sena kare ghāṭī-samādhāna
+> śivānanda-sena kare ghāṭī-samādhāna\
 > sabāre pālana kari' sukhe lañā yāna
 
 *śivānanda-sena*—Śivānanda Sena; *kare*—se encarga de; *ghāṭī-samādhāna*—la gestión del pago de los peajes; *sabāre pālana kari'*—manteniendo a todos; *sukhe*—con felicidad; *lañā*—llevando; *yāna*—va.

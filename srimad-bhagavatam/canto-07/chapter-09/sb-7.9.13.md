@@ -1,13 +1,13 @@
 ### SB 7.9.13
 
-> सर्वे ह्यमी विधिकरास्तव सत्त्वधाम्नो
-> ब्रह्मादयो वयमिवेश न चोद्विजन्तः
-> क्षेमाय भूतय उतात्मसुखाय चास्य
+> सर्वे ह्यमी विधिकरास्तव सत्त्वधाम्नो\
+> ब्रह्मादयो वयमिवेश न चोद्विजन्तः\
+> क्षेमाय भूतय उतात्मसुखाय चास्य\
 > विक्रीडितं भगवतो रुचिरावतारैः ॥१३॥
 
-> sarve hy amī vidhi-karās tava sattva-dhāmno
-> brahmādayo vayam iveśa na codvijantaḥ
-> kṣemāya bhūtaya utātma-sukhāya cāsya
+> sarve hy amī vidhi-karās tava sattva-dhāmno\
+> brahmādayo vayam iveśa na codvijantaḥ\
+> kṣemāya bhūtaya utātma-sukhāya cāsya\
 > vikrīḍitaṁ bhagavato rucirāvatāraiḥ
 
 *sarve*—all; *hi*—certainly; *amī*—these; *vidhi-karāḥ*—executors of orders; *tava*—Your; *sattva-dhāmnaḥ*—being always situated in the transcendental world; *brahma-ādayaḥ*—the demigods, headed by Lord Brahmā; *vayam*—we; *iva*—like; *īśa*—O my Lord; *na*—not; *ca*—and; *udvijantaḥ*—who are afraid (of Your fearful appearance); *kṣemāya*—for the protection; *bhūtaye*—for the increase; *uta*—it is said; *ātma-sukhāya*—for personal satisfaction by such pastimes; *ca*—also; *asya*—of this (material world); *vikrīḍitam*—manifested; *bhagavataḥ*—of Your Lordship; *rucira*—very pleasing; *avatāraiḥ*—by Your incarnations.

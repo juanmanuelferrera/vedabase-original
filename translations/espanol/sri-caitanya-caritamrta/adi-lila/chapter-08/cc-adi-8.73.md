@@ -1,9 +1,9 @@
 ### CC Adi 8.73
 
-> বৈষ্ণবের আজ্ঞা পাঞা চিন্তিত-অন্তরে ।
+> বৈষ্ণবের আজ্ঞা পাঞা চিন্তিত-অন্তরে ।\
 > মদনগোপালে গেলাঙ আজ্ঞা মাগিবারে ॥৭৩॥
 
-> vaiṣṇavera ājñā pāñā cintita-antare
+> vaiṣṇavera ājñā pāñā cintita-antare\
 > madana-gopāle gelāṅ ājñā māgibāre
 
 *vaiṣṇavera*—de todos los devotos vaiṣṇavas; *ājñā*—orden; *pāñā*—recibiendo; *cintita-antare*—ansiedad dentro de mí; *madana-gopāle*—al templo de Śrī Madana-mohana; *gelāṅ*—fui; *ājñā*—orden; *māgibāre*—para recibir.

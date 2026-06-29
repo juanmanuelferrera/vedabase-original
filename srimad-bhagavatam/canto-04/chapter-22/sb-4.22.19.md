@@ -1,11 +1,11 @@
 ### SB 4.22.19
 
-> सङ्गमः खलु साधूनामुभयेषां च सम्मतः ।
+> सङ्गमः खलु साधूनामुभयेषां च सम्मतः ।\
 > यत्सम्भाषणसम्प्रश्नः सर्वेषां वितनोति शम् ॥१९॥
 
-> saṅgamaḥ khalu sādhūnām
-> ubhayeṣāṁ ca sammataḥ
-> yat-sambhāṣaṇa-sampraśnaḥ
+> saṅgamaḥ khalu sādhūnām\
+> ubhayeṣāṁ ca sammataḥ\
+> yat-sambhāṣaṇa-sampraśnaḥ\
 > sarveṣāṁ vitanoti śam
 
 *saṅgamaḥ*—association; *khalu*—certainly; *sādhūnām*—of devotees; *ubhayeṣām*—for both; *ca*—also; *sammataḥ*—conclusive; *yat*—which; *sambhāṣaṇa*—discussion; *sampraśnaḥ*—question and answer; *sarveṣām*—of all; *vitanoti*—expands; *śam*—real happiness.

@@ -1,11 +1,11 @@
 ### SB 9.5.17
 
-> राजन्ननुगृहीतोऽहं त्वयातिकरुणात्मना
+> राजन्ननुगृहीतोऽहं त्वयातिकरुणात्मना\
 > मदघं पृष्ठतः कृत्वा प्राणा यन्मेऽभिरक्षिताः ॥१७॥
 
-> rājann anugṛhīto 'haṁ
-> tvayātikaruṇātmanā
-> mad-aghaṁ pṛṣṭhataḥ kṛtvā
+> rājann anugṛhīto 'haṁ\
+> tvayātikaruṇātmanā\
+> mad-aghaṁ pṛṣṭhataḥ kṛtvā\
 > prāṇā yan me 'bhirakṣitāḥ
 
 *rājan*—O King; *anugṛhītaḥ*—very much favored; *aham*—I (am); *tvayā*—by you; *ati-karuṇa-ātmanā*—because of your being extremely merciful; *mat-agham*—my offenses; *pṛṣṭhataḥ*—to the back; *kṛtvā*—doing so; *prāṇāḥ*—life; *yat*—that; *me*—my; *abhirakṣitāḥ*—saved.

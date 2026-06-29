@@ -1,11 +1,11 @@
 ### SB 9.4.8
 
-> यज्ञअवास्तुगतं सर्वमुच्छिष्टमृषयः क्वचित
+> यज्ञअवास्तुगतं सर्वमुच्छिष्टमृषयः क्वचित\
 > चक्रुर्हि भागं रुद्राय स देवः सर्वमर्हति ॥८॥
 
-> yajña-vāstu-gataṁ sarvam
-> ucchiṣṭam ṛṣayaḥ kvacit
-> cakrur hi bhāgaṁ rudrāya
+> yajña-vāstu-gataṁ sarvam\
+> ucchiṣṭam ṛṣayaḥ kvacit\
+> cakrur hi bhāgaṁ rudrāya\
 > sa devaḥ sarvam arhati
 
 *yajña-vāstu-gatam*—las cosas pertenecientes al recinto de sacrificios; *sarvam*—todas; *ucchiṣṭam*—remanentes; *ṛṣayaḥ*—los grandes sabios; *kvacit*—a veces, en el *dakṣa-yajña*; *cakruḥ*—hicieron; *hi*—en verdad; *bhāgam*—parte; *rudrāya*—al Señor Śiva; *saḥ*—ese; *devaḥ*—semidiós; *sarvam*—todo; *arhati*—merece.

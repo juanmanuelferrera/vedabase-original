@@ -1,11 +1,11 @@
 ### SB 3.2.30
 
-> प्रयुक्तान्भोजराजेन मायिनः कामरूपिणः ।
+> प्रयुक्तान्भोजराजेन मायिनः कामरूपिणः ।\
 > लीलया व्यनुदत्तांस्तान्बालः क्रीडनकानिव ॥३०॥
 
-> prayuktān bhoja-rājena
-> māyinaḥ kāma-rūpiṇaḥ
-> līlayā vyanudat tāṁs tān
+> prayuktān bhoja-rājena\
+> māyinaḥ kāma-rūpiṇaḥ\
+> līlayā vyanudat tāṁs tān\
 > bālaḥ krīḍanakān iva
 
 *prayuktān*—contratados; *bhoja-rājena*—por el rey Kaṁsa; *māyinaḥ*—grandes brujos; *kāma-rūpiṇaḥ*—que podían adoptar cualquier forma que quisieran; *līlayā*—en el transcurso de los pasatiempos; *vyanudat*—mató; *tān*—a ellos; *tān*—a medida que llegaban ahí; *bālaḥ*—el niño; *krīḍanakān*—muñecos; *iva*—de esa manera.

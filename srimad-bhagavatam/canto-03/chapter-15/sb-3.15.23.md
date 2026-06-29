@@ -1,13 +1,13 @@
 ### SB 3.15.23
 
-> यन्न व्रजन्त्यघभिदो रचनानुवादाच्
-> छृण्वन्ति येऽन्यविषयाः कुकथा मतिघ्नीः ।
-> यास्तु श्रुता हतभगैर्नृभिरात्तसारास्
+> यन्न व्रजन्त्यघभिदो रचनानुवादाच्\
+> छृण्वन्ति येऽन्यविषयाः कुकथा मतिघ्नीः ।\
+> यास्तु श्रुता हतभगैर्नृभिरात्तसारास्\
 > तांस्तान्क्षिपन्त्यशरणेषु तमःसु हन्त ॥२३॥
 
-> yan na vrajanty agha-bhido racanānuvādāc
-> chṛṇvanti ye 'nya-viṣayāḥ kukathā mati-ghnīḥ
-> yās tu śrutā hata-bhagair nṛbhir ātta-sārās
+> yan na vrajanty agha-bhido racanānuvādāc\
+> chṛṇvanti ye 'nya-viṣayāḥ kukathā mati-ghnīḥ\
+> yās tu śrutā hata-bhagair nṛbhir ātta-sārās\
 > tāṁs tān kṣipanty aśaraṇeṣu tamaḥsu hanta
 
 *yat*—Vaikuṇṭha; *na*—never; *vrajanti*—approach; *agha-bhidaḥ*—of the vanquisher of all kinds of sins; *racanā*—of the creation; *anuvādāt*—than narrations; *śṛṇvanti*—hear; *ye*—those who; *anya*—other; *viṣayāḥ*—subject matter; *ku-kathāḥ*—bad words; *mati-ghnīḥ*—killing intelligence; *yāḥ*—which; *tu*—but; *śrutāḥ*—are heard; *hata-bhagaiḥ*—unfortunate; *nṛbhiḥ*—by men; *ātta*—taken away; *sārāḥ*—values of life; *tān tān*—such persons; *kṣipanti*—are thrown; *aśaraṇeṣu*—devoid of all shelter; *tamaḥsu*—in the darkest part of material existence; *hanta*—alas.

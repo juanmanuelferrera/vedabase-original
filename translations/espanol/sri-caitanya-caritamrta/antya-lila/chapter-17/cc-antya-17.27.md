@@ -1,9 +1,9 @@
 ### CC Antya 17.27
 
-> হেনকালে তুমি-সব কোলাহল করি’ ।
+> হেনকালে তুমি-সব কোলাহল করি’ ।\
 > আমা ইঁহা লঞা আইলা বলাৎকার করি’ ॥২৭॥
 
-> hena-kāle tumi-saba kolāhala kari'
+> hena-kāle tumi-saba kolāhala kari'\
 > āmā iṅhā lañā āilā balātkāra kari'
 
 *hena-kāle*—en ese momento; *tumi-saba*—todos vosotros; *kolāhala kari'*—haciendo un sonido tumultuoso; *āmā*—a Mí; *iṅhā*—aquí; *lañā āilā*—Me trajisteis de vuelta; *balātkāra kari'*—a la fuerza.

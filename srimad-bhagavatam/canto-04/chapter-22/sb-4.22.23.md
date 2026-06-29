@@ -1,11 +1,11 @@
 ### SB 4.22.23
 
-> अर्थेन्द्रियारामसगोष्ठ्यतृष्णया तत्सम्मतानामपरिग्रहेण च ।
+> अर्थेन्द्रियारामसगोष्ठ्यतृष्णया तत्सम्मतानामपरिग्रहेण च ।\
 > विविक्तरुच्या परितोष आत्मनि विना हरेर्गुणपीयूषपानात् ॥२३॥
 
-> arthendriyārāma-sagoṣṭhy-atṛṣṇayā
-> tat-sammatānām aparigraheṇa ca
-> vivikta-rucyā paritoṣa ātmani
+> arthendriyārāma-sagoṣṭhy-atṛṣṇayā\
+> tat-sammatānām aparigraheṇa ca\
+> vivikta-rucyā paritoṣa ātmani\
 > vinā harer guṇa-pīyūṣa-pānāt
 
 *artha*—riches; *indriya*—senses; *ārāma*—gratification; *sa-goṣṭhī*—with their companion; *atṛṣṇayā*—by reluctance; *tat*—that; *sammatānām*—since approved by them; *aparigraheṇa*—by nonacceptance; *ca*—also; *vivikta-rucyā*—disgusted taste; *paritoṣe*—happiness; *ātmani*—self; *vinā*—without; *hareḥ*—of the Supreme Personality of Godhead; *guṇa*—qualities; *pīyūṣa*—nectar; *pānāt*—drinking.

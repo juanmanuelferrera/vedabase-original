@@ -1,9 +1,9 @@
 ### CC Adi 8.24
 
-> ‘কৃষ্ণনাম’ করে অপরাধের বিচার ।
+> ‘কৃষ্ণনাম’ করে অপরাধের বিচার ।\
 > কৃষ্ণ বলিলে অপরাধীর না হয় বিকার ॥২৪॥
 
-> 'kṛṣṇa-nāma' kare aparādhera vicāra
+> 'kṛṣṇa-nāma' kare aparādhera vicāra\
 > kṛṣṇa balile aparādhīra nā haya vikāra
 
 *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *kare*—takes; *aparādhera*—of offenses; *vicāra*—consideration; *kṛṣṇa*—Lord Kṛṣṇa; *balile*—if one chants; *aparādhīra*—of the offenders; *nā*—never; *haya*—becomes; *vikāra*—changed.

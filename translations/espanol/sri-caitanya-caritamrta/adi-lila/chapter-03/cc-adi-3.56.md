@@ -1,9 +1,9 @@
 ### CC Adi 3.56
 
-> কেহ তাঁরে বলে যদি কৃষ্ণ-বরণ ।
+> কেহ তাঁরে বলে যদি কৃষ্ণ-বরণ ।\
 > আর বিশেষণে তার করে নিবারণ ॥৫৬॥
 
-> keha tāṅre bale yadi kṛṣṇa-varaṇa
+> keha tāṅre bale yadi kṛṣṇa-varaṇa\
 > āra viśeṣaṇe tāra kare nivāraṇa
 
 *keha*—alguien; *tāṅre*—a Él; *bale*—atribuye; *yadi*—si; *kṛṣṇa*—negra; *varaṇa*—la tez; *āra*—otro; *viśeṣaṇe*—en el adjetivo; *tāra*—de eso; *kare*—hace; *nivāraṇa*—prevención.

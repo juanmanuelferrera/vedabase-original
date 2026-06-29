@@ -1,18 +1,18 @@
 ### SB 7.15.50-51
 
-> द्रव्यसूक्ष्मविपाकश्च धूमो रात्रिरपक्षयः
-> अयनं दक्षिणं सोमो दर्श ओषधिवीरुधः ॥५०॥
-> अन्नं रेत इति क्ष्मेश पितृयानं पुनर्भवः
+> द्रव्यसूक्ष्मविपाकश्च धूमो रात्रिरपक्षयः\
+> अयनं दक्षिणं सोमो दर्श ओषधिवीरुधः ॥५०॥\
+> अन्नं रेत इति क्ष्मेश पितृयानं पुनर्भवः\
 > एकैकश्येनानुपूर्वं भूत्वा भूत्वेह जायते ॥५१॥
 
-> dravya-sūkṣma-vipākaś ca
-> dhūmo rātrir apakṣayaḥ
-> ayanaṁ dakṣiṇaṁ somo
+> dravya-sūkṣma-vipākaś ca\
+> dhūmo rātrir apakṣayaḥ\
+> ayanaṁ dakṣiṇaṁ somo\
 > darśa oṣadhi-vīrudhaḥ
 
-> annaṁ reta iti kṣmeśa
-> pitṛ-yānaṁ punar-bhavaḥ
-> ekaikaśyenānupūrvaṁ
+> annaṁ reta iti kṣmeśa\
+> pitṛ-yānaṁ punar-bhavaḥ\
+> ekaikaśyenānupūrvaṁ\
 > bhūtvā bhūtveha jāyate
 
 *dravya-sūkṣma-vipākaḥ*—the paraphernalia offered as oblations in the fire, such as food grains mixed with ghee; *ca*—and; *dhūmaḥ*—turned to smoke, or the demigod in charge of smoke; *rātriḥ*—the demigod in charge of night; *apakṣayaḥ*—in the dark fortnight of the moon; *ayanam*—the demigod in charge of the passing of the sun; *dakṣiṇam*—in the southern zone; *somaḥ*—the moon; *darśaḥ*—returning; *oṣadhi*—plant life (on the surface of the earth); *vīrudhaḥ*—vegetation in general (the birth of lamentation); *annam*—food grains; *retaḥ*—semen; *iti*—in this way; *kṣma-īśa*—O King Yudhiṣṭhira, lord of the earth; *pitṛ-yānam*—the way of taking birth from the father's semen; *punaḥ-bhavaḥ*—again and again; *eka-ekaśyena*—one after another; *anupūrvam*—successively, according to the gradation; *bhūtvā*—taking birth; *bhūtvā*—again taking birth; *iha*—in this material world; *jāyate*—one exists in the materialistic way of life.

@@ -1,11 +1,11 @@
 ### SB 4.23.22
 
-> विधाय कृत्यं ह्रदिनीजलाप्लुता दत्त्वोदकं भर्तुरुदारकर्मणः ।
+> विधाय कृत्यं ह्रदिनीजलाप्लुता दत्त्वोदकं भर्तुरुदारकर्मणः ।\
 > नत्वा दिविस्थांस्त्रिदशांस्त्रिः परीत्य विवेश वह्निं ध्यायती भर्तृपादौ ॥२२॥
 
-> vidhāya kṛtyaṁ hradinī-jalāplutā
-> dattvodakaṁ bhartur udāra-karmaṇaḥ
-> natvā divi-sthāṁs tridaśāṁs triḥ parītya
+> vidhāya kṛtyaṁ hradinī-jalāplutā\
+> dattvodakaṁ bhartur udāra-karmaṇaḥ\
+> natvā divi-sthāṁs tridaśāṁs triḥ parītya\
 > viveśa vahniṁ dhyāyatī bhartṛ-pādau
 
 *vidhāya*—executing; *kṛtyam*—the regulative function; *hradinī*—in the water of the river; *jala-āplutā*—taking bath completely; *dattvā udakam*—offering oblations of water; *bhartuḥ*—of her husband; *udāra-karmaṇaḥ*—who was so liberal; *natvā*—offering obeisances; *divi-sthān*—situated in the sky; *tri-daśān*—the thirty million demigods; *triḥ*—three times; *parītya*—circumambulating; *viveśa*—entered; *vahnim*—the fire; *dhyāyatī*—while thinking of; *bhartṛ*—of her husband; *pādau*—the two lotus feet.

@@ -1,9 +1,9 @@
 ### CC Adi 7.54
 
-> সকল সন্ন্যাসী মুঞি কৈনু নিমন্ত্রণ ।
+> সকল সন্ন্যাসী মুঞি কৈনু নিমন্ত্রণ ।\
 > তুমি যদি আইস, পূর্ণ হয় মোর মন ॥৫৪॥
 
-> sakala sannyāsī muñi kainu nimantraṇa
+> sakala sannyāsī muñi kainu nimantraṇa\
 > tumi yadi āisa, pūrṇa haya mora mana
 
 *sakala*—todos; *sannyāsī*—renunciantes; *muñi*—yo; *kainu*—hice; *nimantraṇa*—invité; *tumi*—Su buena persona; *yadi*—si; *āisa*—viene; *pūrṇa*—plenitud; *haya*—se vuelve; *mora*—mi; *mana*—mente.

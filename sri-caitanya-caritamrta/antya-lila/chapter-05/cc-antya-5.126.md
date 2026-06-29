@@ -1,9 +1,9 @@
 ### CC Antya 5.126
 
-> কাহাঁ ‘পূর্ণানন্দৈশ্বর্য’ কৃষ্ণ ‘মায়েশ্বর’ !
+> কাহাঁ ‘পূর্ণানন্দৈশ্বর্য’ কৃষ্ণ ‘মায়েশ্বর’ !\
 > কাহাঁ ‘ক্ষুদ্র’ জীব ‘দুঃখী’, ‘মায়ার কিঙ্কর’ !! ॥ ১২৬ ॥
 
-> kāhāṅ 'pūrṇānandaiśvarya' kṛṣṇa 'māyeśvara'!
+> kāhāṅ 'pūrṇānandaiśvarya' kṛṣṇa 'māyeśvara'!\
 > kāhāṅ'kṣudra' jīva 'duḥkhī', 'māyāra kiṅkara'!
 
 *kāhāṅ*—whereas; *pūrṇa*—full; *ānanda*—bliss; *aiśvarya*—opulences; *kṛṣṇa*—Lord Kṛṣṇa; *māyā-īśvara*—the master of the material energy; *kāhāṅ*—whereas; *kṣudra jīva*—the little conditioned soul; *duḥkhī*—unhappy; *māyāra kiṅkara*—the servant of the material energy.

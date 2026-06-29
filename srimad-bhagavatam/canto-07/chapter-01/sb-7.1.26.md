@@ -1,11 +1,11 @@
 ### SB 7.1.26
 
-> यथा वैरानुबन्धेन मर्त्यस्तन्मयतामियात
+> यथा वैरानुबन्धेन मर्त्यस्तन्मयतामियात\
 > न तथा भक्तियोगेन इति मे निश्चिता मतिः ॥२६॥
 
-> tasmād vairānubandhena
-> nirvaireṇa bhayena vā
-> snehāt kāmena vā yuñjyāt
+> tasmād vairānubandhena\
+> nirvaireṇa bhayena vā\
+> snehāt kāmena vā yuñjyāt\
 > kathañcin nekṣate pṛthak
 
 *tasmāt*—therefore; *vaira-anubandhena*—by constant enmity; *nirvaireṇa*—by devotion; *bhayena*—by fear; *vā*—or; *snehāt*—from affection; *kāmena*—by lusty desires; *vā*—or; *yuñjyāt*—one should concentrate; *kathañcit*—somehow or other; *na*—not; *īkṣate*—sees; *pṛthak*—something else.

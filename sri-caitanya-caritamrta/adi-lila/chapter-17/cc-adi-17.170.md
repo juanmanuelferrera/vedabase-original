@@ -1,9 +1,9 @@
 ### CC Adi 17.170
 
-> কল্পিত আমার শাস্ত্র, — আমি সব জানি ।
+> কল্পিত আমার শাস্ত্র, — আমি সব জানি ।\
 > জাতি-অনুরোধে তবু সেই শাস্ত্র মানি ॥১৭০॥
 
-> kalpita āmāra śāstra,—āmi saba jāni
+> kalpita āmāra śāstra,—āmi saba jāni\
 > jāti-anurodhe tabu sei śāstra māni
 
 *kalpita*—imagined; *āmāra*—our; *śāstra*—scripture; *āmi*—I; *saba*—everything; *jāni*—know; *jāti*—by community; *anurodhe*—being obliged; *tabu*—still; *sei*—that; *śāstra*—scripture; *māni*—I accept.

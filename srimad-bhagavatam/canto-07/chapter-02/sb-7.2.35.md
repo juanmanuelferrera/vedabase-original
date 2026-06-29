@@ -1,11 +1,11 @@
 ### SB 7.2.35
 
-> एवं विलपतीनां वै परिगृह्य मृतं पतिम
+> एवं विलपतीनां वै परिगृह्य मृतं पतिम\
 > अनिच्छतीनां निर्हारमर्कोऽस्तं सन्न्यवर्तत ॥३५॥
 
-> evaṁ vilapatīnāṁ vai
-> parigṛhya mṛtaṁ patim
-> anicchatīnāṁ nirhāram
+> evaṁ vilapatīnāṁ vai\
+> parigṛhya mṛtaṁ patim\
+> anicchatīnāṁ nirhāram\
 > arko 'staṁ sannyavartata
 
 *evam*—thus; *vilapatīnām*—of the lamenting queens; *vai*—indeed; *parigṛhya*—taking on their laps; *mṛtam*—the dead; *patim*—husband; *anicchatīnām*—not desiring; *nirhāram*—the carrying out of the body for the funeral ceremony; *arkaḥ*—the sun; *astam*—the setting position; *sannyavartata*—passed away.

@@ -1,13 +1,13 @@
 ### CC Madhya 2.86
 
-> নাহি কাহাঁ সবিরোধ, নাহি কাহাঁ অনুরোধ,
-> সহজ বস্তু করি বিবরণ ।
-> যদি হয় রাগোদ্দেশ, তাহাঁ হয়ে আবেশ,
+> নাহি কাহাঁ সবিরোধ, নাহি কাহাঁ অনুরোধ,\
+> সহজ বস্তু করি বিবরণ ।\
+> যদি হয় রাগোদ্দেশ, তাহাঁ হয়ে আবেশ,\
 > সহজ বস্তু না যায় লিখন ॥৮৬॥
 
-> nāhi kāhāṅ savirodha, nāhi kāhāṅ anurodha,
-> sahaja vastu kari vivaraṇa
-> yadi haya rāgoddeśa, tāhāṅ haye āveśa,
+> nāhi kāhāṅ savirodha, nāhi kāhāṅ anurodha,\
+> sahaja vastu kari vivaraṇa\
+> yadi haya rāgoddeśa, tāhāṅ haye āveśa,\
 > sahaja vastu nā yāya likhana
 
 *nāhi*—there is not; *kāhāṅ*—anywhere; *sa-virodha*—opposing element; *nāhi*—there is not; *kāhāṅ*—anywhere; *anurodha*—acceptance of someone's opinion; *sahaja*—simple; *vastu*—substance; *kari*—I do; *vivaraṇa*—description; *yadi*—if; *haya*—there is; *rāga-uddeśa*—someone's attraction or obstruction; *tāhāṅ*—there; *haye*—becoming; *āveśa*—involved; *sahaja*—simple; *vastu*—substance; *nā yāya*—is not possible; *likhana*—the writing.

@@ -1,9 +1,9 @@
 ### CC Adi 17.325
 
-> ত্রয়োদশে মহাপ্রভুর ‘জন্ম-বিবরণ’ ।
+> ত্রয়োদশে মহাপ্রভুর ‘জন্ম-বিবরণ’ ।\
 > কৃষ্ণনাম-সহ যৈছে প্রভুর জনম ॥৩২৫॥
 
-> trayodaśe mahāprabhura 'janma-vivaraṇa'
+> trayodaśe mahāprabhura 'janma-vivaraṇa'\
 > kṛṣṇa-nāma-saha yaiche prabhura janama
 
 *trayodaśe*—en el decimotercer capítulo; *mahāprabhura*—del Señor Śrī Caitanya Mahāprabhu; *janma*—del nacimiento; *vivaraṇa*—la descripción; *kṛṣṇa-nāma-saha*—junto con el santo nombre del Señor Kṛṣṇa; *yaiche*—de qué manera; *prabhura*—del Señor; *janama*—el nacimiento.

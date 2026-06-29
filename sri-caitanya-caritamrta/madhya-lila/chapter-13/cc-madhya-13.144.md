@@ -1,13 +1,13 @@
 ### CC Madhya 13.144
 
-> বিদগ্ধ, মৃদু, সদ্গুণ, সুশীল, স্নিগ্ধ, করুণ,
-> তুমি, তোমার নাহি দোষাভাস ।
-> তবে যে তোমার মন, নাহি স্মরে ব্রজজন,
+> বিদগ্ধ, মৃদু, সদ্গুণ, সুশীল, স্নিগ্ধ, করুণ,\
+> তুমি, তোমার নাহি দোষাভাস ।\
+> তবে যে তোমার মন, নাহি স্মরে ব্রজজন,\
 > সে — আমার দুর্দৈব-বিলাস ॥১৪৪॥
 
-> vidagdha, mṛdu, sad-guṇa, suśīla, snigdha, karuṇa,
-> tumi, tomāra nāhi doṣābhāsa
-> tabe ye tomāra mana, nāhi smare vraja-jana,
+> vidagdha, mṛdu, sad-guṇa, suśīla, snigdha, karuṇa,\
+> tumi, tomāra nāhi doṣābhāsa\
+> tabe ye tomāra mana, nāhi smare vraja-jana,\
 > se-āmāra durdaiva-vilāsa
 
 *vidagdha*—most refined; *mṛdu*—gentle; *sat-guṇa*—endowed with all good qualities; *su-śīla*—well-behaved; *snigdha*—softhearted; *karuṇa*—merciful; *tumi*—You; *tomāra*—Your; *nāhi*—there is not; *doṣa-ābhāsa*—even a tinge of fault; *tabe*—still; *ye*—indeed; *tomāra*—Your; *mana*—mind; *nāhi*—does not; *smare*—remember; *vraja-jana*—the inhabitants of Vṛndāvana; *se*—that; *āmāra*—My; *durdaiva-vilāsa*—suffering of past misdeeds.

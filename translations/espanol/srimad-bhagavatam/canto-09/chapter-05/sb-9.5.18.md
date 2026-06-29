@@ -1,11 +1,11 @@
 ### SB 9.5.18
 
-> राजा तमकृताहारः प्रत्यागमनकाङ्क्षया
+> राजा तमकृताहारः प्रत्यागमनकाङ्क्षया\
 > चरणावुपसङ्गृह्य प्रसाद्य समभोजयत ॥१८॥
 
-> rājā tam akṛtāhāraḥ
-> pratyāgamana-kāṅkṣayā
-> caraṇāv upasaṅgṛhya
+> rājā tam akṛtāhāraḥ\
+> pratyāgamana-kāṅkṣayā\
+> caraṇāv upasaṅgṛhya\
 > prasādya samabhojayat
 
 *rājā*—el rey; *tam*—a él, Durvāsā Muni; *akṛta-āhāraḥ*—que se abstuvo de comer; *pratyāgamana*—regresar; *kāṅkṣayā*—desear; *caraṇau*—los pies; *upasaṅgṛhya*—llegar; *prasādya*—complacer en todo; *samabhojayat*—dio de comer suntuosamente.

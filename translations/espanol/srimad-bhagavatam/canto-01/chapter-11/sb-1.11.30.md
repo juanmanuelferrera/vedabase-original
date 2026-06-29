@@ -1,11 +1,11 @@
 ### SB 1.11.30
 
-> अथाविशत्स्वभवनं सर्वकाममनुत्तमम् ।
+> अथाविशत्स्वभवनं सर्वकाममनुत्तमम् ।\
 > प्रासादा यत्र पत्नीनां सहस्राणि च षोडश ॥३०॥
 
-> athāviśat sva-bhavanaṁ
-> sarva-kāmam anuttamam
-> prāsādā yatra patnīnāṁ
+> athāviśat sva-bhavanaṁ\
+> sarva-kāmam anuttamam\
+> prāsādā yatra patnīnāṁ\
 > sahasrāṇi ca ṣoḍaśa
 
 *atha*—después; *aviśat*—entró; *sva-bhavanam*—palacios personales; *sarva*—todos; *kāmam*—deseos; *anuttamam*—perfecto en grado sumo; *prāsādāḥ*—palacios; *yatra*—donde; *patnīnām*—de las esposas cuyo número ascendía a; *sahasrāṇi*—miles; *ca*—más de; *ṣoḍaśa*—dieciséis.

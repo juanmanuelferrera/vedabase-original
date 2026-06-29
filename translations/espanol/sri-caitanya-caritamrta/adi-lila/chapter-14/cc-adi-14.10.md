@@ -1,9 +1,9 @@
 ### CC Adi 14.10
 
-> সেই ক্ষণে জাগি’ নিমাই করয়ে ক্রন্দন ।
+> সেই ক্ষণে জাগি’ নিমাই করয়ে ক্রন্দন ।\
 > অঙ্কে লঞা শচী তাঁরে পিয়াইল স্তন ॥১০॥
 
-> sei kṣaṇe jāgi' nimāi karaye krandana
+> sei kṣaṇe jāgi' nimāi karaye krandana\
 > aṅke lañā śacī tāṅre piyāila stana
 
 *sei kṣaṇe*—de inmediato; *jāgi'*—al despertar; *nimāi*—el Señor de nombre Nimāi; *karaye*—hizo; *krandana*—llanto; *aṅke*—en el regazo; *lañā*—tomándolo; *śacī*—la madre Śacī; *tāṅre*—a Él; *piyāila*—Le hizo mamar; *stana*—su pecho.

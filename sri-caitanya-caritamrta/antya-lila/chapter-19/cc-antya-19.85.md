@@ -1,9 +1,9 @@
 ### CC Antya 19.85
 
-> প্রতিবৃক্ষবল্লী ঐছে ভ্রমিতে ভ্রমিতে ।
+> প্রতিবৃক্ষবল্লী ঐছে ভ্রমিতে ভ্রমিতে ।\
 > অশোকের তলে কৃষ্ণে দেখেন আচম্বিতে ॥৮৫॥
 
-> prati-vṛkṣa-vallī aiche bhramite bhramite
+> prati-vṛkṣa-vallī aiche bhramite bhramite\
 > aśokera tale kṛṣṇe dekhena ācambite
 
 *prati-vṛkṣa-vallī*—around each and every tree and creeper; *aiche*—in that way; *bhramite bhramite*—wandering; *aśokera tale*—underneath an *aśoka* tree; *kṛṣṇe*—Lord Kṛṣṇa; *dekhena*—He sees; *ācambite*—suddenly.

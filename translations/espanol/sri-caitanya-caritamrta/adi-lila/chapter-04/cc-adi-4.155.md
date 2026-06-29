@@ -1,13 +1,13 @@
 ### CC Adi 4.155
 
-> অক্ষণ্বতাং ফলমিদং ন পরং বিদামঃ
-> সখ্যঃ পশূননুবিবেশয়তোর্বয়স্যৈঃ ।
-> বক্ত্রং ব্রজেশসুতয়োরনুবেণুজুষ্টং
+> অক্ষণ্বতাং ফলমিদং ন পরং বিদামঃ\
+> সখ্যঃ পশূননুবিবেশয়তোর্বয়স্যৈঃ ।\
+> বক্ত্রং ব্রজেশসুতয়োরনুবেণুজুষ্টং\
 > যৈর্বা নিপীতমনুরক্তকটাক্ষমোক্ষম্ ॥১৫৫॥
 
-> akṣaṇvatāṁ phalam idaṁ na paraṁ vidāmaḥ
-> sakhyaḥ paśūn anuviveśayator vayasyaiḥ
-> vaktraṁ vrajeśa-sutayor anuveṇu-juṣṭaṁ
+> akṣaṇvatāṁ phalam idaṁ na paraṁ vidāmaḥ\
+> sakhyaḥ paśūn anuviveśayator vayasyaiḥ\
+> vaktraṁ vrajeśa-sutayor anuveṇu-juṣṭaṁ\
 > yair vā nipītam anurakta-kaṭākṣa-mokṣam
 
 *akṣaṇvatām*—de quienes tienen ojos; *phalam*—el fruto; *idam*—este; *na*—no; *param*—otro; *vidāmaḥ*—conocemos; *sakhyaḥ*—¡oh, amigas!; *paśūn*—las vacas; *anuviveśayatoḥ*—que conducen de un bosque a otro; *vayasyaiḥ*—con Sus amigos de la misma edad; *vaktram*—los rostros; *vraja-īśa*—de Mahārāja Nanda; *sutayoḥ*—de los dos hijos; *anuveṇu-juṣṭam*—adornados con flautas; *yaiḥ*—por los cuales; *vā*—o; *nipītam*—bebido; *anurakta*—amorosas; *kaṭa-akṣa*—miradas; *mokṣam*—que lanzan.

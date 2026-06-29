@@ -1,11 +1,11 @@
 ### SB 9.19.25
 
-> स तत्र निर्मुक्तसमस्तसङ्ग आत्मानुभूत्या विधुतत्रिलिङ्गः
+> स तत्र निर्मुक्तसमस्तसङ्ग आत्मानुभूत्या विधुतत्रिलिङ्गः\
 > परेऽमले ब्रह्मणि वासुदेवे लेभे गतिं भागवतीं प्रतीतः ॥२५॥
 
-> sa tatra nirmukta-samasta-saṅga
-> ātmānubhūtyā vidhuta-triliṅgaḥ
-> pare 'male brahmaṇi vāsudeve
+> sa tatra nirmukta-samasta-saṅga\
+> ātmānubhūtyā vidhuta-triliṅgaḥ\
+> pare 'male brahmaṇi vāsudeve\
 > lebhe gatiṁ bhāgavatīṁ pratītaḥ
 
 *saḥ*—Mahārāja Yayāti; *tatra*—al hacer esto; *nirmukta*—se liberó inmediatamente de; *samasta-saṅgaḥ*—toda contaminación; *ātma-anubhūtyā*—por el simple hecho de entender su posición constitucional; *vidhuta*—se purificó de; *tri-liṅgaḥ*—la contaminación debida a las tres modalidades de la naturaleza material *(sattva-guṇa, rajo-guṇa* y *tamo-guṇa)*; *pare*—a la Realidad Trascendental; *amale*—sin contacto con la materia; *brahmaṇi*—el Señor Supremo; *vāsudeve*—Vāsudeva, Kṛṣṇa, la Verdad Absoluta, Bhagavān; *lebhe*—alcanzó; *gatim*—el destino; *bhāgavatīm*—como sirviente personal de la Suprema Personalidad de Dios; *pratītaḥ*—famoso.

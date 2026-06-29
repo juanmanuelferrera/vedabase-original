@@ -2,7 +2,7 @@
 
 > রাধা বসি’ আছে, কিবা বৃন্দাবনে যায় ৷ তাহাঁ যদি আচম্বিতে কৃষ্ণ-দরশন পায় ॥১৮৫॥
 
-> rādhā vasi' āche, kibā vṛndāvane yāya
+> rādhā vasi' āche, kibā vṛndāvane yāya\
 > tāhāṅ yadi ācambite kṛṣṇa-daraśana pāya
 
 *rādhā vasi' āche*—Śrīmatī Rādhārāṇī está sentada; *kibā*—o; *vṛndāvane yāya*—se dirige a Vṛndāvana; *tāhāṅ*—allí; *yadi*—si; *ācambite*—de repente; *kṛṣṇa-daraśana pāya*—tiene la oportunidad de ver a Kṛṣṇa.

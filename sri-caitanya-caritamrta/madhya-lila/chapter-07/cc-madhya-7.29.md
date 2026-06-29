@@ -1,9 +1,9 @@
 ### CC Madhya 7.29
 
-> ইঁহা-সবার বশ প্রভু হয়ে যে যে গুণে ।
+> ইঁহা-সবার বশ প্রভু হয়ে যে যে গুণে ।\
 > দোষারোপ-চ্ছলে করে গুণ আস্বাদনে ॥২৯॥
 
-> iṅhā-sabāra vaśa prabhu haye ye ye guṇe
+> iṅhā-sabāra vaśa prabhu haye ye ye guṇe\
 > doṣāropa-cchale kare guṇa āsvādane
 
 *iṅhā-sabāra*—of all the devotees; *vaśa*—controlled; *prabhu*—the Lord; *haye*—is; *ye ye*—whatever; *guṇe*—by the qualities; *doṣa-āropa-chale*—on the plea of attributing faults; *kare*—does; *guṇa*—high qualities; *āsvādane*—tasting.

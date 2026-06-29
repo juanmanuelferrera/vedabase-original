@@ -1,12 +1,12 @@
 ### SB 7.1.47
 
-> श्रीयुधिष्ठिर उवाच
-> विद्वेषो दयिते पुत्रे कथमासीन्महात्मनि
+> श्रीयुधिष्ठिर उवाच\
+> विद्वेषो दयिते पुत्रे कथमासीन्महात्मनि\
 > ब्रूहि मे भगवन्येन प्रह्लादस्याच्युतात्मता ॥४७॥
 
-> vairānubandha-tīvreṇa
-> dhyānenācyuta-sātmatām
-> nītau punar hareḥ pārśvaṁ
+> vairānubandha-tīvreṇa\
+> dhyānenācyuta-sātmatām\
+> nītau punar hareḥ pārśvaṁ\
 > jagmatur viṣṇu-pārṣadau
 
 *vaira-anubandha*—bond of hatred; *tīvreṇa*—consisting of acute; *dhyānena*—by meditation; *acyuta-sātmatām*—to the effulgence of the infallible Lord; *nītau*—attained; *punaḥ*—again; *hareḥ*—of Hari; *pārśvam*—the proximity; *jagmatuḥ*—they reached; *viṣṇu-pārṣadau*—the gatekeeper associates of Viṣṇu.

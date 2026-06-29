@@ -1,11 +1,11 @@
 ### SB 3.29.36
 
-> एतद्भगवतो रूपं ब्रह्मणः परमात्मनः ।
+> एतद्भगवतो रूपं ब्रह्मणः परमात्मनः ।\
 > परं प्रधानं पुरुषं दैवं कर्मविचेष्टितम् ॥३६॥
 
-> etad bhagavato rūpaṁ
-> brahmaṇaḥ paramātmanaḥ
-> paraṁ pradhānaṁ puruṣaṁ
+> etad bhagavato rūpaṁ\
+> brahmaṇaḥ paramātmanaḥ\
+> paraṁ pradhānaṁ puruṣaṁ\
 > daivaṁ karma-viceṣṭitam
 
 *etat*—esta; *bhagavataḥ*—de la Suprema Personalidad de Dios; *rūpam*—forma; *brahmaṇaḥ*—de Brahman; *parama-ātmanaḥ*—de Paramātmā; *param*—trascendental; *pradhānam*—principal; *puruṣam*—persona; *daivam*—espiritual; *karma-viceṣṭitam*—cuyas actividades.

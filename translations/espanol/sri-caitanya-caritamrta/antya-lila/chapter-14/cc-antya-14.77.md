@@ -1,9 +1,9 @@
 ### CC Antya 14.77
 
-> শুনি’ মহাপ্রভু বড় হৈলা চমৎকার ।
+> শুনি’ মহাপ্রভু বড় হৈলা চমৎকার ।\
 > প্রভু কহে, — ‘কিছু স্মৃতি নাহিক আমার ! ॥ ৭৭ ॥
 
-> śuni' mahāprabhu baḍa hailā camatkāra
+> śuni' mahāprabhu baḍa hailā camatkāra\
 > prabhu kahe,--'kichu smṛti nāhika āmāra
 
 *śuni'*—al escuchar; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *baḍa*—muy; *hailā camatkāra*—se asombró; *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *kichu*—algún; *smṛti*—recuerdo; *nāhika*—no hay; *āmāra*—Mío.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.134
 
-> ‘উত্তরে’ খুদিলে আছে কৃষ্ণ ‘অজগরে’ ।
+> ‘উত্তরে’ খুদিলে আছে কৃষ্ণ ‘অজগরে’ ।\
 > ধন নাহি পাবে, খুদিতে গিলিবে সবারে ॥১৩৪॥
 
-> 'uttare' khudile āche kṛṣṇa 'ajagare'
+> 'uttare' khudile āche kṛṣṇa 'ajagare'\
 > dhana nāhi pābe, khudite gilibe sabāre
 
 *uttare*—on the northern side; *khudile*—if you dig; *āche*—there is; *kṛṣṇa*—black; *ajagare*—snake; *dhana*—treasure; *nāhi*—not; *pābe*—you will get; *khudite*—digging; *gilibe*—will devour; *sabāre*—everyone.

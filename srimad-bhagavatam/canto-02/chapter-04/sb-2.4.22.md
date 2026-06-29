@@ -1,11 +1,11 @@
 ### SB 2.4.22
 
-> प्रचोदिता येन पुरा सरस्वती वितन्वताजस्य सतीं स्मृतिं हृदि ।
+> प्रचोदिता येन पुरा सरस्वती वितन्वताजस्य सतीं स्मृतिं हृदि ।\
 > स्वलक्षणा प्रादुरभूत्किलास्यतः स मे ऋषीणामृषभः प्रसीदताम् ॥२२॥
 
-> pracoditā yena purā sarasvatī
-> vitanvatājasya satīṁ smṛtiṁ hṛdi
-> sva-lakṣaṇā prādurabhūt kilāsyataḥ
+> pracoditā yena purā sarasvatī\
+> vitanvatājasya satīṁ smṛtiṁ hṛdi\
+> sva-lakṣaṇā prādurabhūt kilāsyataḥ\
 > sa me ṛṣīṇām ṛṣabhaḥ prasīdatām
 
 *pracoditā*—inspired; *yena*—by whom; *purā*—in the beginning of creation; *sarasvatī*—the goddess of learning; *vitanvatā*—amplified; *ajasya*—of Brahmā, the first created living being; *satīm smṛtim*—potent memory; *hṛdi*—in the heart; *sva*—in his own; *lakṣaṇā*—aiming at; *prādurabhūt*—was generated; *kila*—as if; *āsyataḥ*—from the mouth; *saḥ*—he; *me*—unto me; *ṛṣīṇām*—of the teachers; *ṛṣabhaḥ*—the chief; *prasīdatām*—be pleased.

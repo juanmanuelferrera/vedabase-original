@@ -1,11 +1,11 @@
 ### SB 8.13.34
 
-> पवित्राश्चाक्षुषा देवाः शुचिरिन्द्रो भविष्यति
+> पवित्राश्चाक्षुषा देवाः शुचिरिन्द्रो भविष्यति\
 > अग्निर्बाहुः शुचिः शुद्धो मागधाद्यास्तपस्विनः ॥३४॥
 
-> pavitrāś cākṣuṣā devāḥ
-> śucir indro bhaviṣyati
-> agnir bāhuḥ śuciḥ śuddho
+> pavitrāś cākṣuṣā devāḥ\
+> śucir indro bhaviṣyati\
+> agnir bāhuḥ śuciḥ śuddho\
 > māgadhādyās tapasvinaḥ
 
 *pavitrāḥ*—the Pavitras; *cākṣuṣāḥ*—the Cākṣuṣas; *devāḥ*—the demigods; *śuciḥ*—Śuci; *indraḥ*—the king of heaven; *bhaviṣyati*—will become; *agniḥ*—Agni; *bāhuḥ*—Bāhu; *śuciḥ*—Śuci; *śuddhaḥ*—Śuddha; *māgadha*—Māgadha; *ādyāḥ*—and so on; *tapasvinaḥ*—the sages.

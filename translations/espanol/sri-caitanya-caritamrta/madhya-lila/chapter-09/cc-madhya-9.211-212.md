@@ -1,18 +1,18 @@
 ### CC Madhya 9.211-212
 
-> sītayārādhito vahniś
-> chāyā-sītām ajījanat
-> tāṁ jahāra daśa-grīvaḥ
+> sītayārādhito vahniś\
+> chāyā-sītām ajījanat\
+> tāṁ jahāra daśa-grīvaḥ\
 > sītā vahni-puraṁ gatā
 
-> sītayārādhito vahniś
-> chāyā-sītām ajījanat
-> tāṁ jahāra daśa-grīvaḥ
+> sītayārādhito vahniś\
+> chāyā-sītām ajījanat\
+> tāṁ jahāra daśa-grīvaḥ\
 > sītā vahni-puraṁ gatā
 
-> parīkṣā-samaye vahniṁ
-> chāyā-sītā viveśa sā
-> vahniḥ sītāṁ samānīya
+> parīkṣā-samaye vahniṁ\
+> chāyā-sītā viveśa sā\
+> vahniḥ sītāṁ samānīya\
 > tat-purastād anīnayat
 
 *sītayā*—por madre Sītā; *ārādhitaḥ*—siendo llamado; *vahniḥ*—el dios del fuego; *chāyā-sītām*—la forma ilusoria de madre Sītā; *ajījanat*—creó; *tām*—a ella; *jahāra*—raptó; *daśa-grīvaḥ*—Rāvaṇa, el de las diez cabezas; *sītā*—madre Sītā; *vahni-puram*—a la morada del dios del fuego; *gatā*—partió; *parīkṣā-samaye*—en el momento de la prueba; *vahnim*—en el fuego; *chāyā-sītā*—la forma ilusoria de Sītā; *viveśa*—entró; *sā*—ella; *vahniḥ*—el dios del fuego; *sītām*—a la madre Sītā original; *samānīya*—trayendo de vuelta; *tat-purastāt*—ante Su presencia; *anīnayat*—trajo de vuelta.

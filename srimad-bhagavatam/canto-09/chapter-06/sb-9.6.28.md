@@ -1,11 +1,11 @@
 ### SB 9.6.28
 
-> उत्थितास्ते निशम्याथ व्युदकं कलशं प्रभो
+> उत्थितास्ते निशम्याथ व्युदकं कलशं प्रभो\
 > पप्रच्छुः कस्य कर्मेदं पीतं पुंसवनं जलम ॥२८॥
 
-> utthitās te niśamyātha
-> vyudakaṁ kalaśaṁ prabho
-> papracchuḥ kasya karmedaṁ
+> utthitās te niśamyātha\
+> vyudakaṁ kalaśaṁ prabho\
+> papracchuḥ kasya karmedaṁ\
 > pītaṁ puṁsavanaṁ jalam
 
 *utthitāḥ*—after awakening; *te*—all of them; *niśamya*—seeing; *atha*—thereafter; *vyudakam*—empty; *kalaśam*—the waterpot; *prabho*—O King Parīkṣit; *papracchuḥ*—inquired; *kasya*—whose; *karma*—act; *idam*—this; *pītam*—drunk; *puṁsavanam*—which was to cause the birth of a child; *jalam*—water.

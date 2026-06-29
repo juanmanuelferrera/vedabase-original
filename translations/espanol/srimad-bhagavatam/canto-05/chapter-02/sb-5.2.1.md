@@ -1,9 +1,9 @@
 ### SB 5.2.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > एवं पितरि सम्प्रवृत्ते तदनुशासने वर्तमान आग्नीध्रो जम्बूद्वीपौकसः प्रजाऔरसवद्धर्मावेक्षमाणः पर्यगोपायत ॥१॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > evaṁ pitari sampravṛtte tad-anuśāsane vartamāna āgnīdhro jambūdvīpaukasaḥ prajā aurasavad dharmāvekṣamāṇaḥ paryagopāyat.
 
 *śrī-śukaḥ*—Śrī Śukadeva Gosvāmī; *uvāca*—dijo; *evam*—así; *pitari*—cuando su padre; *sampravṛtte*—emprendió el sendero de la liberación; *tat-anuśāsane*—conforme a su orden; *vartamānaḥ*—situado; *āgnīdhraḥ*—el rey Āgnīdhra; *jambū-dvīpa-okasaḥ*—los habitantes de Jambūdvīpa; *prajāḥ*—ciudadanos; *aurasa-vat*—como si fuesen sus hijos; *dharma*—principios religiosos; *avekṣamāṇaḥ*—seguir estrictamente; *paryagopāyat*—completamente protegidos.

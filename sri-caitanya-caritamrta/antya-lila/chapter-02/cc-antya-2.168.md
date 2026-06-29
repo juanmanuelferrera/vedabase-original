@@ -1,9 +1,9 @@
 ### CC Antya 2.168
 
-> আপন কারুণ্য, লোকে বৈরাগ্য-শিক্ষণ ।
+> আপন কারুণ্য, লোকে বৈরাগ্য-শিক্ষণ ।\
 > স্বভক্তের গাঢ়-অনুরাগ-প্রকটীকরণ ॥১৬৮॥
 
-> āpana kāruṇya, loke vairāgya-śikṣaṇa
+> āpana kāruṇya, loke vairāgya-śikṣaṇa\
 > sva-bhaktera gāḍha-anurāga-prakaṭī-karaṇa
 
 *āpana*—personal; *kāruṇya*—favor; *loke*—to the people in general; *vairāgya-śikṣaṇa*—teaching about the order of renunciation; *sva-bhaktera*—of His devotees; *gāḍha*—deep; *anurāga*—of attachment; *prakaṭī*—manifestation; *karaṇa*—causing.

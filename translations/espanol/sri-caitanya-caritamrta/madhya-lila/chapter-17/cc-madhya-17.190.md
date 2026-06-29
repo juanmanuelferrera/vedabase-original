@@ -1,9 +1,9 @@
 ### CC Madhya 17.190
 
-> যমুনার ‘চব্বিশ ঘাটে’ প্রভু কৈল স্নান ।
+> যমুনার ‘চব্বিশ ঘাটে’ প্রভু কৈল স্নান ।\
 > সেই বিপ্র প্রভুকে দেখায় তীর্থস্থান ॥১৯০॥
 
-> yamunāra 'cabbiśa ghāṭe' prabhu kaila snāna
+> yamunāra 'cabbiśa ghāṭe' prabhu kaila snāna\
 > sei vipra prabhuke dekhāya tīrtha-sthāna
 
 *yamunāra*—del río Yamunā; *cabbiśa ghāṭe*—en los veinticuatro ghats, o lugares de baño; *prabhu*—Śrī Caitanya Mahāprabhu; *kaila*—realizó; *snāna*—baño; *sei vipra*—aquel brāhmaṇa; *prabhuke*—a Śrī Caitanya Mahāprabhu; *dekhāya*—muestra; *tīrtha-sthāna*—los lugares sagrados de peregrinaje.

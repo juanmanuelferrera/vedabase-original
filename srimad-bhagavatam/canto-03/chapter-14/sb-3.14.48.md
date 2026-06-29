@@ -1,11 +1,11 @@
 ### SB 3.14.48
 
-> स वै महाभागवतो महात्मा महानुभावो महतां महिष्ठः ।
+> स वै महाभागवतो महात्मा महानुभावो महतां महिष्ठः ।\
 > प्रवृद्धभक्त्या ह्यनुभाविताशये निवेश्य वैकुण्ठमिमं विहास्यति ॥४८॥
 
-> sa vai mahā-bhāgavato mahātmā
-> mahānubhāvo mahatāṁ mahiṣṭhaḥ
-> pravṛddha-bhaktyā hy anubhāvitāśaye
+> sa vai mahā-bhāgavato mahātmā\
+> mahānubhāvo mahatāṁ mahiṣṭhaḥ\
+> pravṛddha-bhaktyā hy anubhāvitāśaye\
 > niveśya vaikuṇṭham imaṁ vihāsyati
 
 *saḥ*—he; *vai*—certainly; *mahā-bhāgavataḥ*—the topmost devotee; *mahā-ātmā*—expanded intelligence; *mahā-anubhāvaḥ*—expanded influence; *mahatām*—of the great souls; *mahiṣṭhaḥ*—the greatest; *pravṛddha*—well matured; *bhaktyā*—by devotional service; *hi*—certainly; *anubhāvita*—being situated in the *anubhāva* stage of ecstasy; *āśaye*—in the mind; *niveśya*—entering; *vaikuṇṭham*—in the spiritual sky; *imam*—this (material world); *vihāsyati*—will quit.

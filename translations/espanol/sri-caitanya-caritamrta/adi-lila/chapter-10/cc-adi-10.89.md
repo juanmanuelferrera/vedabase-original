@@ -1,9 +1,9 @@
 ### CC Adi 10.89
 
-> পশ্চিমের লোক সব মূঢ় অনাচার ।
+> পশ্চিমের লোক সব মূঢ় অনাচার ।\
 > তাহাঁ প্রচারিল দোঁহে ভক্তি-সদাচার ॥৮৯॥
 
-> paścimera loka saba mūḍha anācāra
+> paścimera loka saba mūḍha anācāra\
 > tāhāṅ pracārila doṅhe bhakti-sadācāra
 
 *paścimera*—en el lado occidental; *loka*—la gente en general; *saba*—todos; *mūḍha*—menos inteligentes; *anācāra*—de mal comportamiento; *tāhāṅ*—allí; *pracārila*—predicaron; *doṅhe*—Śrīla Rūpa Gosvāmī y Sanātana Gosvāmī; *bhakti*—servicio devocional; *sad-ācāra*—buen comportamiento.

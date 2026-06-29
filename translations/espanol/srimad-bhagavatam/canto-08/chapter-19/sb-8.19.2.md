@@ -1,13 +1,13 @@
 ### SB 8.19.2
 
-> श्रीभगवानुवाच
-> वचस्तवैतज्जनदेव सूनृतं कुलोचितं धर्मयुतं यशस्करम
+> श्रीभगवानुवाच\
+> वचस्तवैतज्जनदेव सूनृतं कुलोचितं धर्मयुतं यशस्करम\
 > यस्य प्रमाणं भृगवः साम्पराये पितामहः कुलवृद्धः प्रशान्तः ॥२॥
 
-> śrī-bhagavān uvāca
-> vacas tavaitaj jana-deva sūnṛtaṁ
-> kulocitaṁ dharma-yutaṁ yaśas-karam
-> yasya pramāṇaṁ bhṛgavaḥ sāmparāye
+> śrī-bhagavān uvāca\
+> vacas tavaitaj jana-deva sūnṛtaṁ\
+> kulocitaṁ dharma-yutaṁ yaśas-karam\
+> yasya pramāṇaṁ bhṛgavaḥ sāmparāye\
 > pitāmahaḥ kula-vṛddhaḥ praśāntaḥ
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *vacaḥ*—palabras; *tava*—tuyas; *etat*—esta clase de; *jana-deva*—¡oh, rey del pueblo!; *sū-nṛtam*—muy ciertas; *kula-ucitam*—las más apropiadas para tu dinastía; *dharma-yutam*—en perfecto acuerdo con los principios de la religión; *yaśaḥ-karam*—adecuadas para aumentar tu buena reputación; *yasya*—de quien; *pramāṇam*—el testimonio; *bhṛgavaḥ*—los *brāhmaṇas* de la dinastía Bhṛgu; *sāmparāye*—en el próximo mundo; *pitāmahaḥ*—tu abuelo; *kula-vṛddhaḥ*—el mayor de la familia; *praśāntaḥ*—muy pacífico (Prahlāda Mahārāja).

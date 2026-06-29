@@ -1,13 +1,13 @@
 ### SB 1.16.1
 
-> सूत उवाच
-> ततः परीक्षिद्द्विजवर्यशिक्षया महीं महाभागवतः शशास ह ।
+> सूत उवाच\
+> ततः परीक्षिद्द्विजवर्यशिक्षया महीं महाभागवतः शशास ह ।\
 > यथा हि सूत्यामभिजातकोविदाः समादिशन्विप्र महद्गुणस्तथा ॥१॥
 
-> sūta uvāca
-> tataḥ parīkṣid dvija-varya-śikṣayā
-> mahīṁ mahā-bhāgavataḥ śaśāsa ha
-> yathā hi sūtyām abhijāta-kovidāḥ
+> sūta uvāca\
+> tataḥ parīkṣid dvija-varya-śikṣayā\
+> mahīṁ mahā-bhāgavataḥ śaśāsa ha\
+> yathā hi sūtyām abhijāta-kovidāḥ\
 > samādiśan vipra mahad-guṇas tathā
 
 *sūtaḥ uvāca*—Sūta Gosvāmī said; *tataḥ*—thereafter; *parīkṣit*—Mahārāja Parīkṣit; *dvija-varya*—the great twice-born *brāhmaṇas*; *śikṣayā*—by their instructions; *mahīm*—the earth; *mahā-bhāgavataḥ*—the great devotee; *śaśāsa*—ruled; *ha*—in the past; *yathā*—as they told it; *hi*—certainly; *sūtyām*—at the time of his birth; *abhijāta-kovidāḥ*—expert astrologers at the time of birth; *samādiśan*—gave their opinions; *vipra*—O *brāhmaṇas*; *mahat-guṇaḥ*—great qualities; *tathā*—true to that.

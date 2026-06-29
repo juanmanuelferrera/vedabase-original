@@ -1,13 +1,13 @@
 ### SB 4.31.9
 
-> नारद उवाच
-> तज्जन्म तानि कर्माणि तदायुस्तन्मनो वचः ।
+> नारद उवाच\
+> तज्जन्म तानि कर्माणि तदायुस्तन्मनो वचः ।\
 > नृणां येन हि विश्वात्मा सेव्यते हरिरीश्वरः ॥९॥
 
-> nārada uvāca
-> taj janma tāni karmāṇi
-> tad āyus tan mano vacaḥ
-> nṛṇāṁ yena hi viśvātmā
+> nārada uvāca\
+> taj janma tāni karmāṇi\
+> tad āyus tan mano vacaḥ\
+> nṛṇāṁ yena hi viśvātmā\
 > sevyate harir īśvaraḥ
 
 *nāradaḥ uvāca*—Nārada said; *tat janma*—that birth; *tāni*—those; *karmāṇi*—fruitive activities; *tat*—that; *āyuḥ*—span of life; *tat*—that; *manaḥ*—mind; *vacaḥ*—words; *nṛṇām*—of human beings; *yena*—by which; *hi*—certainly; *viśva-ātmā*—the Supersoul; *sevyate*—is served; *hariḥ*—the Supreme Personality of Godhead; *īśvaraḥ*—the supreme controller.

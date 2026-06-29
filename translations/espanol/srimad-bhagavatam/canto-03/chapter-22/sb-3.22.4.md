@@ -1,11 +1,11 @@
 ### SB 3.22.4
 
-> अतो ह्यन्योन्यमात्मानं ब्रह्म क्षत्रं च रक्षतः ।
+> अतो ह्यन्योन्यमात्मानं ब्रह्म क्षत्रं च रक्षतः ।\
 > रक्षति स्माव्ययो देवः स यः सदसदात्मकः ॥४॥
 
-> ato hy anyonyam ātmānaṁ
-> brahma kṣatraṁ ca rakṣataḥ
-> rakṣati smāvyayo devaḥ
+> ato hy anyonyam ātmānaṁ\
+> brahma kṣatraṁ ca rakṣataḥ\
+> rakṣati smāvyayo devaḥ\
 > sa yaḥ sad-asad-ātmakaḥ
 
 *ataḥ*—desde entonces; *hi*—ciertamente; *anyonyam*—los unos a los otros; *ātmānam*—el yo; *brahma*—los *brāhmaṇas*; *kṣatram*—los *kṣatriyas*; *ca*—y; *rakṣataḥ*—proteger; *rakṣati sma*—protege; *avyayaḥ*—inmutable; *devaḥ*—el Señor; *saḥ*—Él; *yaḥ*—quien; *sat-asat-ātmakaḥ*—la forma de la causa y el efecto.

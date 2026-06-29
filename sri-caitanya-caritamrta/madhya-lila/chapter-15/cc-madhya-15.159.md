@@ -2,7 +2,7 @@
 
 > নিজ-গুণ শুনি’ দত্ত মনে লজ্জা পাঞা । নিবেদন করে প্রভুর চরণে ধরিয়া ॥১৫৯॥
 
-> nija-guṇa śuni' datta mane lajjā pāñā
+> nija-guṇa śuni' datta mane lajjā pāñā\
 > nivedana kare prabhura caraṇe dhariyā
 
 *nija-guṇa*—his personal qualities; *śuni'*—hearing; *datta*—Vāsudeva Datta; *mane*—in the mind; *lajjā pāñā*—being ashamed; *nivedana kare*—submits; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *caraṇe dhariyā*—catching the lotus feet.

@@ -1,11 +1,11 @@
 ### SB 9.16.16
 
-> विलप्यैवं पितुर्देहं निधाय भ्रातृषु स्वयम
+> विलप्यैवं पितुर्देहं निधाय भ्रातृषु स्वयम\
 > प्रगृह्य परशुं रामः क्षत्रान्ताय मनो दधे ॥१६॥
 
-> vilapyaivaṁ pitur dehaṁ
-> nidhāya bhrātṛṣu svayam
-> pragṛhya paraśuṁ rāmaḥ
+> vilapyaivaṁ pitur dehaṁ\
+> nidhāya bhrātṛṣu svayam\
+> pragṛhya paraśuṁ rāmaḥ\
 > kṣatrāntāya mano dadhe
 
 *vilapya*—lamenting; *evam*—like this; *pituḥ*—of his father; *deham*—the body; *nidhāya*—entrusting; *bhrātṛṣu*—to his brothers; *svayam*—personally; *pragṛhya*—taking; *paraśum*—the axe; *rāmaḥ*—Lord Paraśurāma; *kṣatra-antāya*—to put an end to all the *kṣatriyas*; *manaḥ*—the mind; *dadhe*—fixed.

@@ -1,11 +1,11 @@
 ### SB 8.8.10
 
-> तस्यां चक्रुः स्पृहां सर्वे ससुरासुरमानवाः
+> तस्यां चक्रुः स्पृहां सर्वे ससुरासुरमानवाः\
 > रूपौदार्यवयोवर्ण महिमाक्षिप्तचेतसः ॥१०॥
 
-> tasyā āsanam āninye
-> mahendro mahad-adbhutam
-> mūrtimatyaḥ saric-chreṣṭhā
+> tasyā āsanam āninye\
+> mahendro mahad-adbhutam\
+> mūrtimatyaḥ saric-chreṣṭhā\
 > hema-kumbhair jalaṁ śuci
 
 *tasyāḥ*—for her; *āsanam*—a sitting place; *āninye*—brought; *mahā-indraḥ*—the King of heaven, Indra; *mahat*—glorious; *adbhutam*—wonderful; *mūrti-matyaḥ*—accepting forms; *sarit-śreṣṭhāḥ*—the best of various sacred waters; *hema*—golden; *kumbhaiḥ*—with waterpots; *jalam*—water; *śuci*—pure.

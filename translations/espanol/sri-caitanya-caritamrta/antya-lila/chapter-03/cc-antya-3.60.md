@@ -1,13 +1,13 @@
 ### CC Antya 3.60
 
-> নামৈকং যস্য বাচি স্মরণ পথগতং শ্রোত্রমূলং গতং বা
-> শুদ্ধং বাশুদ্ধবর্ণং ব্যবহিত-রহিতং তারয়ত্যেব সত্যম্ ।
-> তচ্চেদ্দেহ-দ্রবিণ-জনতা-লোভ-পাষণ্ড-মধ্যে
+> নামৈকং যস্য বাচি স্মরণ পথগতং শ্রোত্রমূলং গতং বা\
+> শুদ্ধং বাশুদ্ধবর্ণং ব্যবহিত-রহিতং তারয়ত্যেব সত্যম্ ।\
+> তচ্চেদ্দেহ-দ্রবিণ-জনতা-লোভ-পাষণ্ড-মধ্যে\
 > নিক্ষিপ্তং স্যান্ন ফলজনকং শীঘ্রমেবাত্র বিপ্র ॥৬০॥
 
-> nāmaikaṁ yasya vāci smaraṇa-patha-gataṁ śrotra-mūlaṁ gataṁ vā
-> śuddhaṁ vāśuddha-varṇaṁ vyavahita-rahitaṁ tārayaty eva satyam
-> tac ced deha-draviṇa-janatā-lobha-pāṣaṇḍa-madhye
+> nāmaikaṁ yasya vāci smaraṇa-patha-gataṁ śrotra-mūlaṁ gataṁ vā\
+> śuddhaṁ vāśuddha-varṇaṁ vyavahita-rahitaṁ tārayaty eva satyam\
+> tac ced deha-draviṇa-janatā-lobha-pāṣaṇḍa-madhye\
 > nikṣiptaṁ syān na phala-janakaṁ śīghram evātra vipra
 
 *nāma*—el santo nombre; *ekam*—una vez; *yasya*—de quien; *vāci*—en la boca; *smaraṇa-patha-gatam*—que ha entrado en el sendero del recuerdo; *śrotra-mūlam gatam*—que ha entrado en la raíz de los oídos; *vā*—o; *śuddham*—puro; *vā*—o; *aśuddha-varṇam*—pronunciado impuramente; *vyavahita-rahitam*—sin ofensas o sin estar separado; *tārayati*—libera; *eva*—ciertamente; *satyam*—verdaderamente; *tat*—ese nombre; *cet*—si; *deha*—el cuerpo material; *draviṇa*—opulencia material; *janatā*—apoyo público; *lobha*—codicia; *pāṣaṇḍa*—ateísmo; *madhye*—hacia; *nikṣiptam*—dirigido; *syāt*—puede ser; *na*—no; *phala-janakam*—que produce los resultados; *śīghram*—rápidamente; *eva*—ciertamente; *atra*—en este asunto; *vipra*—¡oh, *brāhmaṇa*!.

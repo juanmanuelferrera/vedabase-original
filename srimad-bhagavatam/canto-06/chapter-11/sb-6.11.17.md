@@ -1,11 +1,11 @@
 ### SB 6.11.17
 
-> अन्येऽनु ये त्वेह नृशंसमज्ञआ यदुद्यतास्त्राः प्रहरन्ति मह्यम
+> अन्येऽनु ये त्वेह नृशंसमज्ञआ यदुद्यतास्त्राः प्रहरन्ति मह्यम\
 > तैर्भूतनाथान्सगणान्निशात त्रिशूलनिर्भिन्नगलैर्यजामि ॥१७॥
 
-> anye 'nu ye tveha nṛ-śaṁsam ajñā
-> yad udyatāstrāḥ praharanti mahyam
-> tair bhūta-nāthān sagaṇān niśāta-
+> anye 'nu ye tveha nṛ-śaṁsam ajñā\
+> yad udyatāstrāḥ praharanti mahyam\
+> tair bhūta-nāthān sagaṇān niśāta-\
 > triśūla-nirbhinna-galair yajāmi
 
 *anye*—others; *anu*—follow; *ye*—who; *tvā*—you; *iha*—in this connection; *nṛ-śaṁsam*—very cruel; *ajñāḥ*—persons unaware of my prowess; *yat*—if; *udyata-astrāḥ*—with their swords raised; *praharanti*—attack; *mahyam*—me; *taiḥ*—with those; *bhūta-nāthān*—to such leaders of the ghosts as Bhairava; *sa-gaṇān*—with their hordes; *niśāta*—sharpened; *tri-śūla*—by the trident; *nirbhinna*—separated or pierced; *galaiḥ*—having their necks; *yajāmi*—I shall offer sacrifices.

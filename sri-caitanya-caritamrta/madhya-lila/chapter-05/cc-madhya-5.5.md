@@ -1,9 +1,9 @@
 ### CC Madhya 5.5
 
-> কটকে আইলা সাক্ষিগোপাল দেখিতে ।
+> কটকে আইলা সাক্ষিগোপাল দেখিতে ।\
 > গোপাল-সৌন্দর্য দেখি’ হৈলা আনন্দিতে ॥৫॥
 
-> kaṭake āilā sākṣi-gopāla dekhite
+> kaṭake āilā sākṣi-gopāla dekhite\
 > gopāla-saundarya dekhi' hailā ānandite
 
 *kaṭake*—in the town of Kaṭaka (Cuttak); *āilā*—arrived; *sākṣi-gopāla*—the witness Gopāla; *dekhite*—to see; *gopāla*—of the Deity of Gopāla; *saundarya*—the beauty; *dekhi'*—seeing; *hailā*—became; *ānandite*—very pleased.

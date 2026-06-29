@@ -1,11 +1,11 @@
 ### SB 8.21.13
 
-> तस्मादस्य वधो धर्मो भर्तुः शुश्रूषणं च नः
+> तस्मादस्य वधो धर्मो भर्तुः शुश्रूषणं च नः\
 > इत्यायुधानि जगृहुर्बलेरनुचरासुराः ॥१३॥
 
-> tasmād asya vadho dharmo
-> bhartuḥ śuśrūṣaṇaṁ ca naḥ
-> ity āyudhāni jagṛhur
+> tasmād asya vadho dharmo\
+> bhartuḥ śuśrūṣaṇaṁ ca naḥ\
+> ity āyudhāni jagṛhur\
 > baler anucarāsurāḥ
 
 *tasmāt*—therefore; *asya*—of this *brahmacārī* Vāmana; *vadhaḥ*—the killing; *dharmaḥ*—is our duty; *bhartuḥ*—of our master; *śuśrūṣaṇam ca*—and it is the way of serving; *naḥ*—our; *iti*—thus; *āyudhāni*—all kinds of weapons; *jagṛhuḥ*—they took up; *baleḥ*—of Bali Mahārāja; *anucara*—followers; *asurāḥ*—all the demons.

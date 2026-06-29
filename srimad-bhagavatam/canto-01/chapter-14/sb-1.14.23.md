@@ -1,11 +1,11 @@
 ### SB 1.14.23
 
-> तं पादयोर्निपतितमयथापूर्वमातुरम् ।
+> तं पादयोर्निपतितमयथापूर्वमातुरम् ।\
 > अधोवदनमब्बिन्दून्सृजन्तं नयनाब्जयोः ॥२३॥
 
-> taṁ pādayor nipatitam
-> ayathā-pūrvam āturam
-> adho-vadanam ab-bindūn
+> taṁ pādayor nipatitam\
+> ayathā-pūrvam āturam\
+> adho-vadanam ab-bindūn\
 > sṛjantaṁ nayanābjayoḥ
 
 *tam*—him (Arjuna); *pādayoḥ*—at the feet; *nipatitam*—bowing down; *ayathā-pūrvam*—unprecedented; *āturam*—dejected; *adhaḥ-vadanam*—downward face; *ap-bindūn*—drops of water; *sṛjantam*—creating; *nayana-abjayoḥ*—from the lotuslike eyes.

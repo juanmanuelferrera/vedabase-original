@@ -1,11 +1,11 @@
 ### SB 3.4.33
 
-> विदुरोऽप्युद्धवाच्छ्रुत्वा कृष्णस्य परमात्मनः ।
+> विदुरोऽप्युद्धवाच्छ्रुत्वा कृष्णस्य परमात्मनः ।\
 > क्रीडयोपात्तदेहस्य कर्माणि श्लाघितानि च ॥३३॥
 
-> viduro 'py uddhavāc chrutvā
-> kṛṣṇasya paramātmanaḥ
-> krīḍayopātta-dehasya
+> viduro 'py uddhavāc chrutvā\
+> kṛṣṇasya paramātmanaḥ\
+> krīḍayopātta-dehasya\
 > karmāṇi ślāghitāni ca
 
 *viduraḥ*—Vidura; *api*—también; *uddhavāt*—de la fuente de Uddhava; *śrutvā*—habiendo oído; *kṛṣṇasya*—de Śrī Kṛṣṇa; *parama-ātmanaḥ*—de la Superalma; *krīḍayā*—para los pasatiempos en el mundo mortal; *upātta*—aceptado de manera extraordinaria; *dehasya*—del cuerpo; *karmāṇi*—actividades trascendentales; *ślāghitāni*—sumamente gloriosas; *ca*—también.

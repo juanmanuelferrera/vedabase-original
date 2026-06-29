@@ -1,11 +1,11 @@
 ### CC Madhya 20.312
 
-> শিবঃ শক্তিযুক্তঃ শশ্বৎ ত্রিলিঙ্গো গুণসংবৃতঃ ।
+> শিবঃ শক্তিযুক্তঃ শশ্বৎ ত্রিলিঙ্গো গুণসংবৃতঃ ।\
 > বৈকারিকস্তৈজসশ্চ তামসশ্চেত্যহং ত্রিধা ॥৩১২॥
 
-> śivaḥ śakti-yuktaḥ śaśvat
-> triliṅgo guṇa-saṁvṛtaḥ
-> vaikārikas taijasaś ca
+> śivaḥ śakti-yuktaḥ śaśvat\
+> triliṅgo guṇa-saṁvṛtaḥ\
+> vaikārikas taijasaś ca\
 > tāmasaś cety ahaṁ tridhā
 
 *śivaḥ*—el Señor Śiva; *śakti-yuktaḥ*—asociado con la naturaleza material; *śaśvat*—eternamente; *tri-liṅgaḥ*—en tres aspectos; *guṇa-saṁvṛtaḥ*—cubierto por las modalidades de la naturaleza; *vaikārikaḥ*—uno se denomina vaikārika; *taijasaḥ ca*—otro se denomina taijasa; *tāmasaḥ ca*—así como tāmasa; *iti*—así; *aham*—egotismo; *tri-dhā*—tres clases.

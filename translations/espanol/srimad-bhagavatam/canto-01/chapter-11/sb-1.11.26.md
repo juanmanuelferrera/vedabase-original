@@ -1,11 +1,11 @@
 ### SB 1.11.26
 
-> श्रियो निवासो यस्योरः पानपात्रं मुखं दृशाम् ।
+> श्रियो निवासो यस्योरः पानपात्रं मुखं दृशाम् ।\
 > बाहवो लोकपालानां सारङ्गाणां पदाम्बुजम् ॥२६॥
 
-> śriyo nivāso yasyoraḥ
-> pāna-pātraṁ mukhaṁ dṛśām
-> bāhavo loka-pālānāṁ
+> śriyo nivāso yasyoraḥ\
+> pāna-pātraṁ mukhaṁ dṛśām\
+> bāhavo loka-pālānāṁ\
 > sāraṅgāṇāṁ padāmbujam
 
 *śriyaḥ*—de la diosa de la fortuna; *nivāsaḥ*—residencia; *yasya*—aquel cuyo; *uraḥ*—pecho; *pāna-pātram*—la vasija de beber; *mukham*—cara; *dṛśām*—de ojos; *bāhavaḥ*—los brazos; *loka-pālānām*—los semidioses administradores; *sāraṅgāṇām*—de los devotos que hablan y cantan acerca de la esencia o sustancia; *pada-ambujam*—los pies de loto.

@@ -1,9 +1,9 @@
 ### CC Antya 5.67
 
-> বহুসম্মান করি’ মিশ্রে বিদায় দিলা ।
+> বহুসম্মান করি’ মিশ্রে বিদায় দিলা ।\
 > ‘কৃতার্থ হইলাঙ’ বলি’ মিশ্র নাচিতে লাগিলা ॥৬৭॥
 
-> bahu-sammāna kari' miśre vidāya dilā
+> bahu-sammāna kari' miśre vidāya dilā\
 > 'kṛtārtha ha-ilāṅa' bali' miśra nācite lāgilā
 
 *bahu-sammāna*—mucho comportamiento respetuoso; *kari'*—haciendo; *miśre*—a Pradyumna Miśra; *vidāya dilā*—se despidió; *kṛtārtha ha-ilāṅa*—he quedado muy satisfecho; *bali'*—diciendo; *miśra*—Pradyumna Miśra; *nācite lāgilā*—comenzó a danzar.

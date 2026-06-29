@@ -1,11 +1,11 @@
 ### SB 4.9.49
 
-> सुनीतिरस्य जननी प्राणेभ्योऽपि प्रियं सुतम् ।
+> सुनीतिरस्य जननी प्राणेभ्योऽपि प्रियं सुतम् ।\
 > उपगुह्य जहावाधिं तदङ्गस्पर्शनिर्वृता ॥४९॥
 
-> sunītir asya jananī
-> prāṇebhyo 'pi priyaṁ sutam
-> upaguhya jahāv ādhiṁ
+> sunītir asya jananī\
+> prāṇebhyo 'pi priyaṁ sutam\
+> upaguhya jahāv ādhiṁ\
 > tad-aṅga-sparśa-nirvṛtā
 
 *sunītiḥ*—Sunīti, la verdadera madre de Dhruva Mahārāja; *asya*—su; *jananī*—madre; *prāṇebhyaḥ*—más que el aire de la vida; *api*—incluso; *priyam*—querido; *sutam*—hijo; *upaguhya*—abrazando; *jahau*—abandonó; *ādhim*—todo pesar; *tat-aṅga*—su cuerpo; *sparśa*—tocando; *nirvṛtā*—estando satisfecha.

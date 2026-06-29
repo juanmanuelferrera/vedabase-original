@@ -1,13 +1,13 @@
 ### SB 6.1.9
 
-> श्रीराजोवाच
-> दृष्टश्रुताभ्यां यत्पापं जानन्नप्यात्मनोऽहितम
+> श्रीराजोवाच\
+> दृष्टश्रुताभ्यां यत्पापं जानन्नप्यात्मनोऽहितम\
 > करोति भूयो विवशः प्रायश्चित्तमथो कथम ॥९॥
 
-> śrī-rājovāca
-> dṛṣṭa-śrutābhyāṁ yat pāpaṁ
-> jānann apy ātmano 'hitam
-> karoti bhūyo vivaśaḥ
+> śrī-rājovāca\
+> dṛṣṭa-śrutābhyāṁ yat pāpaṁ\
+> jānann apy ātmano 'hitam\
+> karoti bhūyo vivaśaḥ\
 > prāyaścittam atho katham
 
 *śrī-rājā uvāca*—Parīkṣit Mahārāja contestó; *dṛṣṭa*—por ver; *śrutābhyām*—también por escuchar (de las Escrituras o libros de leyes); *at*—puesto que; *pāpam*—acto criminal, pecaminoso; *jānan*—conociendo; *api*—aunque; *ātmanaḥ*—de su ser; *ahitam*—dañino; *karoti*—actúa; *bhūyaḥ*—una y otra vez; *vivaśaḥ*—sin poder controlarse; *prāyaścittam*—expiación; *atho*—por lo tanto; *katham*—de qué sirve.

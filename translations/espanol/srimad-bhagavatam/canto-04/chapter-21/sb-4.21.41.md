@@ -1,11 +1,11 @@
 ### SB 4.21.41
 
-> अश्नात्यनन्तः खलु तत्त्वकोविदैः श्रद्धाहुतं यन्मुख इज्यनामभिः ।
+> अश्नात्यनन्तः खलु तत्त्वकोविदैः श्रद्धाहुतं यन्मुख इज्यनामभिः ।\
 > न वै तथा चेतनया बहिष्कृते हुताशने पारमहंस्यपर्यगुः ॥४१॥
 
-> aśnāty anantaḥ khalu tattva-kovidaiḥ
-> śraddhā-hutaṁ yan-mukha ijya-nāmabhiḥ
-> na vai tathā cetanayā bahiṣ-kṛte
+> aśnāty anantaḥ khalu tattva-kovidaiḥ\
+> śraddhā-hutaṁ yan-mukha ijya-nāmabhiḥ\
+> na vai tathā cetanayā bahiṣ-kṛte\
 > hutāśane pāramahaṁsya-paryaguḥ
 
 *aśnāti*—come; *anantaḥ*—la Suprema Personalidad de Dios; *khalu*—sin embargo; *tattva-kovidaiḥ*—personas conocedoras de la Verdad Absoluta; *śraddhā*—fe; *hutam*—ofrecer fuegos de sacrificio; *yat-mukhe*—cuyas bocas; *ijya-nāmabhiḥ*—con nombres de distintos semidioses; *na*—nunca; *vai*—ciertamente; *tathā*—tanto como; *cetanayā*—por fuerza viviente; *bahiḥ-kṛte*—privado de; *huta-aśane*—en el fuego de sacrificio; *pāramahaṁsya*—con respecto a los devotos; *paryaguḥ*—nunca se va.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.217
 
-> ‘চৈতন্যমঙ্গলে’ প্ৰভুর নীলাদ্রি-গমন ।
+> ‘চৈতন্যমঙ্গলে’ প্ৰভুর নীলাদ্রি-গমন ।\
 > বিস্তারি বর্ণিয়াছেন দাস-বৃন্দাবন ॥২১৭॥
 
-> 'caitanya-maṅgale' prabhura nīlādri-gamana
+> 'caitanya-maṅgale' prabhura nīlādri-gamana\
 > vistāri varṇiyāchena dāsa-vṛndāvana
 
 *caitanya-maṅgale*—in the book named *Caitanya-maṅgala*; *prabhura*—of the Lord; *nīlādri-gamana*—going to Jagannātha Purī; *vistāri*—elaborating; *varṇiyāchena*—has described; *dāsa-vṛndāvana*—Vṛndāvana dāsa Ṭhākura.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.73
 
-> পাদপ্রক্ষালন করি’ ভিক্ষাতে বসিলা ।
+> পাদপ্রক্ষালন করি’ ভিক্ষাতে বসিলা ।\
 > ‘সনাতনে ভিক্ষা দেহ’ — মিশ্রেরে কহিলা ॥৭৩॥
 
-> pāda-prakṣālana kari' bhikṣāte vasilā
+> pāda-prakṣālana kari' bhikṣāte vasilā\
 > 'sanātane bhikṣā deha'—miśrere kahilā
 
 *pāda-prakṣālana*—washing the feet; *kari'*—doing; *bhikṣāte*—to lunch; *vasilā*—sat down; *sanātane bhikṣā deha*—give Sanātana also lunch; *miśrere kahilā*—He asked Tapana Miśra.

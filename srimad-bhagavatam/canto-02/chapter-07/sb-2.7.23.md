@@ -1,13 +1,13 @@
 ### SB 2.7.23
 
-> अस्मत्प्रसादसुमुखः कलया कलेश
-> इक्ष्वाकुवंश अवतीर्य गुरोर्निदेशे ।
-> तिष्ठन्वनं सदयितानुज आविवेश
+> अस्मत्प्रसादसुमुखः कलया कलेश\
+> इक्ष्वाकुवंश अवतीर्य गुरोर्निदेशे ।\
+> तिष्ठन्वनं सदयितानुज आविवेश\
 > यस्मिन्विरुध्य दशकन्धर आर्तिमार्च्छत् ॥२३॥
 
-> asmat-prasāda-sumukhaḥ kalayā kaleśa
-> ikṣvāku-vaṁśa avatīrya guror nideśe
-> tiṣṭhan vanaṁ sa-dayitānuja āviveśa
+> asmat-prasāda-sumukhaḥ kalayā kaleśa\
+> ikṣvāku-vaṁśa avatīrya guror nideśe\
+> tiṣṭhan vanaṁ sa-dayitānuja āviveśa\
 > yasmin virudhya daśa-kandhara ārtim ārcchat
 
 *asmat*—unto us, beginning from Brahmā down to the insignificant ant; *prasāda*—causeless mercy; *sumukhaḥ*—so inclined; *kalayā*—with His plenary extensions; *kaleśaḥ*—the Lord of all potencies; *ikṣvāku*—Mahārāja Ikṣvāku, in the dynasty of the sun; *vaṁśe*—family; *avatīrya*—by descending in; *guroḥ*—of the father or spiritual master; *nideśe*—under the order of; *tiṣṭhan*—being situated in; *vanam*—in the forest; *sa-dayitā-anujaḥ*—along with His wife and younger brother; *āviveśa*—entered; *yasmin*—unto whom; *virudhya*—being rebellious; *daśa-kandharaḥ*—Rāvaṇa, who had ten heads; *ārtim*—great distress; *ārcchat*—achieved.

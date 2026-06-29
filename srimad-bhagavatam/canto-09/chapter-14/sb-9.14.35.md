@@ -1,11 +1,11 @@
 ### SB 9.14.35
 
-> सुदेहोऽयं पतत्यत्र देवि दूरं हृतस्त्वया
+> सुदेहोऽयं पतत्यत्र देवि दूरं हृतस्त्वया\
 > खादन्त्येनं वृका गृध्रास्त्वत्प्रसादस्य नास्पदम ॥३५॥
 
-> sudeho 'yaṁ pataty atra
-> devi dūraṁ hṛtas tvayā
-> khādanty enaṁ vṛkā gṛdhrās
+> sudeho 'yaṁ pataty atra\
+> devi dūraṁ hṛtas tvayā\
+> khādanty enaṁ vṛkā gṛdhrās\
 > tvat-prasādasya nāspadam
 
 *su-dehaḥ*—very beautiful body; *ayam*—this; *patati*—will now fall down; *atra*—on the spot; *devi*—O Urvaśī; *dūram*—far, far away from home; *hṛtaḥ*—taken away; *tvayā*—by you; *khādanti*—they will eat; *enam*—this (body); *vṛkāḥ*—foxes; *gṛdhrāḥ*—vultures; *tvat*—your; *prasādasya*—in mercy; *na*—not; *āspadam*—suitable.

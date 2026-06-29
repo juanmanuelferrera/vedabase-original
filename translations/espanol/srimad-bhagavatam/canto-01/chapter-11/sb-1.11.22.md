@@ -1,11 +1,11 @@
 ### SB 1.11.22
 
-> प्रह्वाभिवादनाश्लेषकरस्पर्शस्मितेक्षणैः ।
+> प्रह्वाभिवादनाश्लेषकरस्पर्शस्मितेक्षणैः ।\
 > आश्वास्य चाश्वपाकेभ्यो वरैश्चाभिमतैर्विभुः ॥२२॥
 
-> prahvābhivādanāśleṣa-
-> kara-sparśa-smitekṣaṇaiḥ
-> āśvāsya cāśvapākebhyo
+> prahvābhivādanāśleṣa-\
+> kara-sparśa-smitekṣaṇaiḥ\
+> āśvāsya cāśvapākebhyo\
 > varaiś cābhimatair vibhuḥ
 
 *prahvā*—inclinando la cabeza; *abhivādana*—saludando con palabras; *āśleṣa*—abrazando; *kara-sparśa*—estrechando manos; *smita-īkṣaṇaiḥ*—mediante una mirada sonriente; *āśvāsya*—entusiasmando; *ca*—y; *āśvapākebhyaḥ*—hasta el más bajo rango (los comeperros); *varaiḥ*—mediante bendiciones; *ca*—también; *abhimataiḥ*—como lo deseó; *vibhuḥ*—el Todopoderoso.

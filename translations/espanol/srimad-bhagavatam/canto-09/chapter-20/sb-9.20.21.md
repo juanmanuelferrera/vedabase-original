@@ -1,11 +1,11 @@
 ### SB 9.20.21
 
-> माता भस्त्रा पितुः पुत्रो येन जातः स एव सः
+> माता भस्त्रा पितुः पुत्रो येन जातः स एव सः\
 > भरस्व पुत्रं दुष्मन्त मावमंस्थाः शकुन्तलाम ॥२१॥
 
-> mātā bhastrā pituḥ putro
-> yena jātaḥ sa eva saḥ
-> bharasva putraṁ duṣmanta
+> mātā bhastrā pituḥ putro\
+> yena jātaḥ sa eva saḥ\
+> bharasva putraṁ duṣmanta\
 > māvamaṁsthāḥ śakuntalām
 
 *mātā*—la madre; *bhastrā*—como el cuero de un fuelle que contiene aire; *pituḥ*—del padre; *putraḥ*—el hijo; *yena*—por quien; *jātaḥ*—nace; *saḥ*—el padre; *eva*—en verdad; *saḥ*—el hijo; *bharasva*—cuida; *putram*—a tu hijo; *duṣmanta*—Duṣmanta; *mā*—no; *avamaṁsthāḥ*—insultes; *śakuntalām*—a Śakuntalā.

@@ -1,11 +1,11 @@
 ### Bg 5.16
 
-> ज्ञानेन तु तदज्ञानं येषां नाशितमात्मनः ।
+> ज्ञानेन तु तदज्ञानं येषां नाशितमात्मनः ।\
 > तेषामादित्यवज्ज्ञानं प्रकाशयति तत्परम् ॥१६॥
 
-> jñānena tu tad ajñānaṁ
-> yeṣāṁ nāśitam ātmanaḥ
-> teṣām āditya-vaj jñānaṁ
+> jñānena tu tad ajñānaṁ\
+> yeṣāṁ nāśitam ātmanaḥ\
+> teṣām āditya-vaj jñānaṁ\
 > prakāśayati tat param
 
 *jñānena*—by knowledge; *tu*—but; *tat*—that; *ajñānam*—nescience; *yeṣām*—of those; *nāśitam*—is destroyed; *ātmanaḥ*—of the living entity; *teṣām*—of their; *ādityavat*—like the rising sun; *jñānam*—knowledge; *prakāśayati*—discloses; *tat param*—in Kṛṣṇa consciousness.

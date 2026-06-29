@@ -1,11 +1,11 @@
 ### SB 6.2.49
 
-> म्रियमाणो हरेर्नाम गृणन्पुत्रोपचारितम
+> म्रियमाणो हरेर्नाम गृणन्पुत्रोपचारितम\
 > अजामिलोऽप्यगाद्धाम किमुत श्रद्धया गृणन ॥४९॥
 
-> mriyamāṇo harer nāma
-> gṛṇan putropacāritam
-> ajāmilo 'py agād dhāma
+> mriyamāṇo harer nāma\
+> gṛṇan putropacāritam\
+> ajāmilo 'py agād dhāma\
 > kim uta śraddhayā gṛṇan
 
 *mriyamāṇaḥ*—en el momento de la muerte; *hareḥ nāma*—el santo nombre de Hari; *gṛṇan*—cantar; *putra-upacāritam*—referido a su hijo; *ajāmilaḥ*—Ajāmila; *api*—incluso; *agāt*—fue; *dhāma*—al mundo espiritual; *kim uta*—qué decir de; *śraddhayā*—con fe y amor; *gṛṇan*—cantar.

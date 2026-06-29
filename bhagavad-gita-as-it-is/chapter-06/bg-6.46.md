@@ -1,11 +1,11 @@
 ### Bg 6.46
 
-> तपस्विभ्योऽधिको योगी ज्ञानिभ्योऽपि मतोऽधिकः ।
+> तपस्विभ्योऽधिको योगी ज्ञानिभ्योऽपि मतोऽधिकः ।\
 > कर्मिभ्यश्चाधिको योगी तस्माद्योगी भवार्जुन ॥४६॥
 
-> tapasvibhyo 'dhiko yogī
-> jñānibhyo 'pi mato 'dhikaḥ
-> karmibhyaś cādhiko yogī
+> tapasvibhyo 'dhiko yogī\
+> jñānibhyo 'pi mato 'dhikaḥ\
+> karmibhyaś cādhiko yogī\
 > tasmād yogī bhavārjuna
 
 *tapasvibhyaḥ*—than the ascetic; *adhikaḥ*—greater; *yogī*—the *yogī*; *jñānibhyaḥ*—than the wise; *api*—also; *mataḥ*—considered; *adhikaḥ*—greater than; *karmibhyaḥ*—than the fruitive worker; *ca*—also; *adhikaḥ*—greater than; *yogī*—the *yogī*; *tasmāt*—therefore; *yogī*—a transcendentalist; *bhava*—just become; *arjuna*—O Arjuna.

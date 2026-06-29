@@ -1,11 +1,11 @@
 ### SB 1.19.27
 
-> निगूढजत्रुं पृथुतुङ्गवक्षसमावर्तनाभिं वलिवल्गूदरं च ।
+> निगूढजत्रुं पृथुतुङ्गवक्षसमावर्तनाभिं वलिवल्गूदरं च ।\
 > दिगम्बरं वक्त्रविकीर्णकेशं प्रलम्बबाहुं स्वमरोत्तमाभम् ॥२७॥
 
-> nigūḍha-jatruṁ pṛthu-tuṅga-vakṣasam
-> āvarta-nābhiṁ vali-valgūdaraṁ ca
-> dig-ambaraṁ vaktra-vikīrṇa-keśaṁ
+> nigūḍha-jatruṁ pṛthu-tuṅga-vakṣasam\
+> āvarta-nābhiṁ vali-valgūdaraṁ ca\
+> dig-ambaraṁ vaktra-vikīrṇa-keśaṁ\
 > pralamba-bāhuṁ svamarottamābham
 
 *nigūḍha*—covered; *jatrum*—collarbone; *pṛthu*—broad; *tuṅga*—swollen; *vakṣasam*—chest; *āvarta*—whirled; *nābhim*—navel; *vali-valgu*—striped; *udaram*—abdomen; *ca*—also; *dik-ambaram*—dressed by all directions (naked); *vaktra*—curled; *vikīrṇa*—scattered; *keśam*—hair; *pralamba*—elongated; *bāhum*—hands; *su-amara-uttama*—the best among the gods (Kṛṣṇa); *ābham*—hue.

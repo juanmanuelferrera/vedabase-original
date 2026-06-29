@@ -1,11 +1,11 @@
 ### SB 5.20.45
 
-> सूर्येण हि विभज्यन्ते दिशः खं द्यौर्मही भिदा
+> सूर्येण हि विभज्यन्ते दिशः खं द्यौर्मही भिदा\
 > स्वर्गापवर्गौ नरका रसौकांसि च सर्वशः ॥४५॥
 
-> sūryeṇa hi vibhajyante
-> diśaḥ khaṁ dyaur mahī bhidā
-> svargāpavargau narakā
+> sūryeṇa hi vibhajyante\
+> diśaḥ khaṁ dyaur mahī bhidā\
+> svargāpavargau narakā\
 > rasaukāṁsi ca sarvaśaḥ
 
 *sūryeṇa*—by the sun-god within the sun planet; *hi*—indeed; *vibhajyante*—are divided; *diśaḥ*—the directions; *kham*—the sky; *dyauḥ*—the heavenly planets; *mahī*—the earthly planets; *bhidā*—other divisions; *svarga*—the heavenly planets; *apavargau*—and the places for liberation; *narakāḥ*—the hellish planets; *rasaukāṁsi*—such as Atala; *ca*—also; *sarvaśaḥ*—all.

@@ -1,9 +1,9 @@
 ### CC Adi 14.4
 
-> সংক্ষেপে কহিল জন্মলীলা-অনুক্রম ।
+> সংক্ষেপে কহিল জন্মলীলা-অনুক্রম ।\
 > এবে কহি বাল্যলীলা-সূত্রের গণন ॥৪॥
 
-> saṅkṣepe kahila janmalīlā-anukrama
+> saṅkṣepe kahila janmalīlā-anukrama\
 > ebe kahi bālyalīlā-sūtrera gaṇana
 
 *saṅkṣepe*—brevemente; *kahila*—he relatado; *janma-līlā*—los pasatiempos del nacimiento; *anukrama*—en orden cronológico; *ebe*—ahora; *kahi*—hablaré; *bālya-līlā*—los pasatiempos de la infancia; *sūtrera*—de los sūtras; *gaṇana*—enumeración.

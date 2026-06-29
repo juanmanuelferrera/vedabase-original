@@ -1,9 +1,9 @@
 ### CC Adi 7.10
 
-> একলে ঈশ্বর-তত্ত্ব চৈতন্য-ঈশ্বর ।
+> একলে ঈশ্বর-তত্ত্ব চৈতন্য-ঈশ্বর ।\
 > ভক্তভাবময় তাঁর শুদ্ধ কলেবর ॥১০॥
 
-> ekale īśvara-tattva caitanya-īśvara
+> ekale īśvara-tattva caitanya-īśvara\
 > bhakta-bhāvamaya tāṅra śuddha kalevara
 
 *ekale*—solo una persona; *īśvara-tattva*—el controlador supremo; *caitanya*—la fuerza viviente suprema; *īśvara*—controlador; *bhakta-bhāva-maya*—en el éxtasis de un devoto; *tāṅra*—Su; *śuddha*—trascendental; *kalevara*—cuerpo.

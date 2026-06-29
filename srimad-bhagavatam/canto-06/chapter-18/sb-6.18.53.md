@@ -1,11 +1,11 @@
 ### SB 6.18.53
 
-> स्त्रियो वीरवतीश्चार्चेत्स्रग्गन्धबलिमण्डनैः
+> स्त्रियो वीरवतीश्चार्चेत्स्रग्गन्धबलिमण्डनैः\
 > पतिं चार्च्योपतिष्ठेत ध्यायेत्कोष्ठगतं च तम ॥५३॥
 
-> striyo vīravatīś cārcet
-> srag-gandha-bali-maṇḍanaiḥ
-> patiṁ cārcyopatiṣṭheta
+> striyo vīravatīś cārcet\
+> srag-gandha-bali-maṇḍanaiḥ\
+> patiṁ cārcyopatiṣṭheta\
 > dhyāyet koṣṭha-gataṁ ca tam
 
 *striyaḥ*—women; *vīra-vatīḥ*—possessing husbands and sons; *ca*—and; *arcet*—she should worship; *srak*—with garlands; *gandha*—sandalwood; *bali*—presentations; *maṇḍanaiḥ*—and with ornaments; *patim*—the husband; *ca*—and; *ārcya*—worshiping; *upatiṣṭheta*—should offer prayers; *dhyāyet*—should meditate; *koṣṭha-gatam*—situated in the womb; *ca*—also; *tam*—upon him.

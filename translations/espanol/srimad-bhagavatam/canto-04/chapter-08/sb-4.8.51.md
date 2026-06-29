@@ -1,11 +1,11 @@
 ### SB 4.8.51
 
-> स्मयमानमभिध्यायेत्सानुरागावलोकनम् ।
+> स्मयमानमभिध्यायेत्सानुरागावलोकनम् ।\
 > नियतेनैकभूतेन मनसा वरदर्षभम् ॥५१॥
 
-> smayamānam abhidhyāyet
-> sānurāgāvalokanam
-> niyatenaika-bhūtena
+> smayamānam abhidhyāyet\
+> sānurāgāvalokanam\
+> niyatenaika-bhūtena\
 > manasā varadarṣabham
 
 *smayamānam*—la sonrisa del Señor; *abhidhyāyet*—se debe meditar en Él; *sa-anurāga-avalokanam*—el que está mirando hacia los devotos con gran afecto; *niyatena*—de esta manera, regularmente; *eka-bhūtena*—con gran atención; *manasā*—con la mente; *vara-da-ṛṣabham*—se debe meditar en el más grande de los que otorgan bendiciones.

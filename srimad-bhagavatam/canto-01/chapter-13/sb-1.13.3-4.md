@@ -1,18 +1,18 @@
 ### SB 1.13.3-4
 
-> तं बन्धुमागतं दृष्ट्वा धर्मपुत्रः सहानुजः ।
-> धृतराष्ट्रो युयुत्सुश्च सूतः शारद्वतः पृथा ॥३॥
-> गान्धारी द्रौपदी ब्रह्मन्सुभद्रा चोत्तरा कृपी ।
+> तं बन्धुमागतं दृष्ट्वा धर्मपुत्रः सहानुजः ।\
+> धृतराष्ट्रो युयुत्सुश्च सूतः शारद्वतः पृथा ॥३॥\
+> गान्धारी द्रौपदी ब्रह्मन्सुभद्रा चोत्तरा कृपी ।\
 > अन्याश्च जामयः पाण्डोर्ज्ञातयः ससुताः स्त्रियः ॥४॥
 
-> taṁ bandhum āgataṁ dṛṣṭvā
-> dharma-putraḥ sahānujaḥ
-> dhṛtarāṣṭro yuyutsuś ca
+> taṁ bandhum āgataṁ dṛṣṭvā\
+> dharma-putraḥ sahānujaḥ\
+> dhṛtarāṣṭro yuyutsuś ca\
 > sūtaḥ śāradvataḥ pṛthā
 
-> gāndhārī draupadī brahman
-> subhadrā cottarā kṛpī
-> anyāś ca jāmayaḥ pāṇḍor
+> gāndhārī draupadī brahman\
+> subhadrā cottarā kṛpī\
+> anyāś ca jāmayaḥ pāṇḍor\
 > jñātayaḥ sasutāḥ striyaḥ
 
 *tam*—him; *bandhum*—relative; *āgatam*—having arrived there; *dṛṣṭvā*—by seeing it; *dharma-putraḥ*—Yudhiṣṭhira; *saha-anujaḥ*—along with his younger brothers; *dhṛtarāṣṭraḥ*—Dhṛtarāṣṭra; *yuyutsuḥ*—Sātyaki; *ca*—and; *sūtaḥ*—Sañjaya; *śāradvataḥ*—Kṛpācārya; *pṛthā*—Kuntī; *gāndhārī*—Gāndhārī; *draupadī*—Draupadī; *brahman*—O *brāhmaṇas*; *subhadrā*—Subhadrā; *ca*—and; *uttarā*—Uttarā; *kṛpī*—Kṛpī; *anyāḥ*—others; *ca*—and; *jāmayaḥ*—wives of other family members; *pāṇḍoḥ*—of the Pāṇḍavas; *jñātayaḥ*—family members; *sa-sutāḥ*—along with their sons; *striyaḥ*—the ladies.

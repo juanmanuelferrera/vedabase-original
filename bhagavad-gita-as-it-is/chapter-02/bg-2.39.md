@@ -1,11 +1,11 @@
 ### Bg 2.39
 
-> एषा तेऽभिहिता साङ्ख्ये बुद्धिर्योगे त्विमां शृणु ।
+> एषा तेऽभिहिता साङ्ख्ये बुद्धिर्योगे त्विमां शृणु ।\
 > बुद्ध्या युक्तो यया पार्थ कर्मबन्धं प्रहास्यसि ॥३९॥
 
-> eṣā te 'bhihitā sāṅkhye
-> buddhir yoge tv imāṁ śṛṇu
-> buddhyā yukto yayā pārtha
+> eṣā te 'bhihitā sāṅkhye\
+> buddhir yoge tv imāṁ śṛṇu\
+> buddhyā yukto yayā pārtha\
 > karma-bandhaṁ prahāsyasi
 
 *eṣā*—all these; *te*—unto you; *abhihitā*—described; *śāṅkhye*—by analytical study; *buddhiḥ*—intelligence; *yoge*—work without fruitive result; *tu*—but; *imām*—this; *śṛṇu*—just hear; *buddhyā*—by intelligence; *yuktaḥ*—dovetailed; *yayā*—by which; *pārtha*—O son of Pṛthā; *karma-bandham*—bondage of reaction; *prahāsyasi*—you can be released from.

@@ -1,9 +1,9 @@
 ### CC Adi 2.119
 
-> চৈতন্যপ্রভুর মহিমা কহিবার তরে ।
+> চৈতন্যপ্রভুর মহিমা কহিবার তরে ।\
 > কৃষ্ণের মহিমা কহি করিয়া বিস্তারে ॥১১৯॥
 
-> caitanya-prabhura mahimā kahibāra tare
+> caitanya-prabhura mahimā kahibāra tare\
 > kṛṣṇera mahimā kahi kariyā vistāre
 
 *caitanya-prabhura*—del Señor Caitanya Mahāprabhu; *mahimā*—las glorias; *kahibāra tare*—con el propósito de hablar; *kṛṣṇera*—del Señor Kṛṣṇa; *mahimā*—las glorias; *kahi*—hablo; *kariyā*—haciendo; *vistāre*—en extensión.

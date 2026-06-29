@@ -1,9 +1,9 @@
 ### CC Madhya 24.255
 
-> নারদ কহে, — ‘যদি ধর আমার বচন ।
+> নারদ কহে, — ‘যদি ধর আমার বচন ।\
 > তবে সে করিতে পারি তোমার মোচন ।।’ ॥ ২৫৫ ॥
 
-> nārada kahe,--'yadi dhara āmāra vacana
+> nārada kahe,--'yadi dhara āmāra vacana\
 > tabe se karite pāri tomāra mocana'
 
 *nārada kahe*—Nārada Muni respondió; *yadi dhara*—si aceptas; *āmāra vacana*—mi instrucción; *tabe*—entonces; *se*—esto; *karite pāri*—puedo hacer; *tomāra*—tu; *mocana*—liberación.

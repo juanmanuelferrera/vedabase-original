@@ -1,11 +1,11 @@
 ### SB 1.18.31
 
-> एष किं निभृताशेष करणो मीलितेक्षणः ।
+> एष किं निभृताशेष करणो मीलितेक्षणः ।\
 > मृषासमाधिराहोस्वित्किं नु स्यात्क्षत्रबन्धुभिः ॥३१॥
 
-> eṣa kiṁ nibhṛtāśeṣa-
-> karaṇo mīlitekṣaṇaḥ
-> mṛṣā-samādhir āhosvit
+> eṣa kiṁ nibhṛtāśeṣa-\
+> karaṇo mīlitekṣaṇaḥ\
+> mṛṣā-samādhir āhosvit\
 > kiṁ nu syāt kṣatra-bandhubhiḥ
 
 *eṣaḥ*—this; *kim*—whether; *nibhṛta-aśeṣa*—meditative mood; *karaṇaḥ*—senses; *mīlita*—closed; *īkṣaṇaḥ*—eyes; *mṛṣā*—false; *samādhiḥ*—trance; *āho*—remains; *svit*—if it is so; *kim*—either; *nu*—but; *syāt*—may be; *kṣatra-bandhubhiḥ*—by the lower *kṣatriya.*

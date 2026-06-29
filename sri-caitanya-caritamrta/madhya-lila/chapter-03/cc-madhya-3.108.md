@@ -1,9 +1,9 @@
 ### CC Madhya 3.108
 
-> শান্তিপুরের লোক শুনি’ প্রভুর আগমন ।
+> শান্তিপুরের লোক শুনি’ প্রভুর আগমন ।\
 > দেখিতে আইলা লোক প্রভুর চরণ ॥১০৮॥
 
-> śāntipurera loka śuni' prabhura āgamana
+> śāntipurera loka śuni' prabhura āgamana\
 > dekhite āilā loka prabhura caraṇa
 
 *śāntipurera loka*—all the people of Śāntipura; *śuni'*—hearing; *prabhura āgamana*—the arrival of Śrī Caitanya Mahāprabhu; *dekhite āilā*—came to see; *loka*—all the people; *prabhura caraṇa*—the lotus feet of the Lord.

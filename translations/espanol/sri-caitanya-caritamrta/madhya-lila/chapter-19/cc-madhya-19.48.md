@@ -1,9 +1,9 @@
 ### CC Madhya 19.48
 
-> শ্রীরূপে দেখিয়া প্রভুর প্রসন্ন হৈল মন ।
+> শ্রীরূপে দেখিয়া প্রভুর প্রসন্ন হৈল মন ।\
 > ‘উঠ, উঠ, রূপ, আইস’, বলিলা বচন ॥৪৮॥
 
-> śrī-rūpe dekhiyā prabhura prasanna haila mana
+> śrī-rūpe dekhiyā prabhura prasanna haila mana\
 > 'uṭha, uṭha, rūpa, āisa', balilā vacana
 
 *śrī-rūpe dekhiyā*—al ver a Śrīla Rūpa Gosvāmī; *prabhura*—de Śrī Caitanya Mahāprabhu; *prasanna*—muy complacida; *haila*—se puso; *mana*—la mente; *uṭha*—por favor, levántate; *uṭha*—por favor, levántate; *rūpa*—Mi querido Rūpa; *āisa*—ven; *balilā*—dijo; *vacana*—las palabras.

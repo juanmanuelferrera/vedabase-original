@@ -1,18 +1,18 @@
 ### SB 1.11.16-17
 
-> निशम्य प्रेष्ठमायान्तं वसुदेवो महामनाः ।
-> अक्रूरश्चोग्रसेनश्च रामश्चाद्भुतविक्रमः ॥१६॥
-> प्रद्युम्नश्चारुदेष्णश्च साम्बो जाम्बवतीसुतः ।
+> निशम्य प्रेष्ठमायान्तं वसुदेवो महामनाः ।\
+> अक्रूरश्चोग्रसेनश्च रामश्चाद्भुतविक्रमः ॥१६॥\
+> प्रद्युम्नश्चारुदेष्णश्च साम्बो जाम्बवतीसुतः ।\
 > प्रहर्षवेगोच्छशितशयनासनभोजनाः ॥१७॥
 
-> niśamya preṣṭham āyāntaṁ
-> vasudevo mahā-manāḥ
-> akrūraś cograsenaś ca
+> niśamya preṣṭham āyāntaṁ\
+> vasudevo mahā-manāḥ\
+> akrūraś cograsenaś ca\
 > rāmaś cādbhuta-vikramaḥ
 
-> pradyumnaś cārudeṣṇaś ca
-> sāmbo jāmbavatī-sutaḥ
-> praharṣa-vegocchaśita-
+> pradyumnaś cārudeṣṇaś ca\
+> sāmbo jāmbavatī-sutaḥ\
+> praharṣa-vegocchaśita-\
 > śayanāsana-bhojanāḥ
 
 *niśamya*—just hearing; *preṣṭham*—the dearmost; *āyāntam*—coming home; *vasudevaḥ*—Vasudeva (the father of Kṛṣṇa); *mahā-manāḥ*—the magnanimous; *akrūraḥ*—Akrūra; *ca*—and; *ugrasenaḥ*—Ugrasena; *ca*—and; *rāmaḥ*—Balarāma (the elder brother of Kṛṣṇa); *ca*—and; *adbhuta*—superhuman; *vikramaḥ*—prowess; *pradyumnaḥ*—Pradyumna; *cārudeṣṇaḥ*—Cārudeṣṇa; *ca*—and; *sāmbaḥ*—Sāmba; *jāmbavatī-sutaḥ*—the son of Jāmbavatī; *praharṣa*—extreme happiness; *vega*—force; *ucchaśita*—being influenced by; *śayana*—lying down; *āsana*—sitting on; *bhojanāḥ*—dining.

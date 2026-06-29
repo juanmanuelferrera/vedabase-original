@@ -1,13 +1,13 @@
 ### SB 8.9.11
 
-> श्रीशुक उवाच
-> इति ते क्ष्वेलितैस्तस्या आश्वस्तमनसोऽसुराः
+> श्रीशुक उवाच\
+> इति ते क्ष्वेलितैस्तस्या आश्वस्तमनसोऽसुराः\
 > जहसुर्भावगम्भीरं ददुश्चामृतभाजनम ॥११॥
 
-> śrī-śuka uvāca
-> iti te kṣvelitais tasyā
-> āśvasta-manaso 'surāḥ
-> jahasur bhāva-gambhīraṁ
+> śrī-śuka uvāca\
+> iti te kṣvelitais tasyā\
+> āśvasta-manaso 'surāḥ\
+> jahasur bhāva-gambhīraṁ\
 > daduś cāmṛta-bhājanam
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *iti*—thus; *te*—those demons; *kṣvelitaiḥ*—by speaking as if jokingly; *tasyāḥ*—of Mohinī-mūrti; *āśvasta*—grateful, with faith; *manasaḥ*—their minds; *asurāḥ*—all the demons; *jahasuḥ*—laughed; *bhāva-gambhīram*—although Mohinī-mūrti was full of gravity; *daduḥ*—delivered; *ca*—also; *amṛta-bhājanam*—the container of nectar.

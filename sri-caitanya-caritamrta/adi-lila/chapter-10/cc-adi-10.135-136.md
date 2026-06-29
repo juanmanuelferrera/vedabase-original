@@ -1,14 +1,14 @@
 ### CC Adi 10.135-136
 
-> প্রতাপরুদ্র রাজা, আর ওঢ্র কৃষ্ণানন্দ ।
-> পরমানন্দ মহাপাত্র, ওঢ্র শিবানন্দ ॥১৩৫॥
-> ভগবান্ আচার্য, ব্রহ্মানন্দাখ্য ভারতী ।
+> প্রতাপরুদ্র রাজা, আর ওঢ্র কৃষ্ণানন্দ ।\
+> পরমানন্দ মহাপাত্র, ওঢ্র শিবানন্দ ॥১৩৫॥\
+> ভগবান্ আচার্য, ব্রহ্মানন্দাখ্য ভারতী ।\
 > শ্রীশিখি মাহিতি, আর মুরারি মাহিতি ॥১৩৬॥
 
-> pratāparudra rājā, āra oḍhra kṛṣṇānanda
+> pratāparudra rājā, āra oḍhra kṛṣṇānanda\
 > paramānanda mahāpātra, oḍhra śivānanda
 
-> bhagavān ācārya, brahmānandākhya bhāratī
+> bhagavān ācārya, brahmānandākhya bhāratī\
 > śrī-śikhi māhiti, āra murāri māhiti
 
 *pratāparudra rājā*—King Pratāparudra of Orissa; *āra*—and; *oḍhra kṛṣṇānanda*—Kṛṣṇānanda, an Oriya devotee; *paramānandamahāpātra*—of the name Paramānanda Mahāpātra; *oḍhra śivānanda*—the Oriya Śivānanda; *bhagavānācārya*—of the name Bhagavān Ācārya; *brahmānanda-ākhya bhāratī*—of the name Brahmānanda Bhāratī; *śrī-śikhi māhiti*—of the name Śrī Śikhi Māhiti; *āra*—and; *murārimāhiti*—of the name Murāri Māhiti.

@@ -1,11 +1,11 @@
 ### SB 6.2.14
 
-> साङ्केत्यं पारिहास्यं वा स्तोभं हेलनमेव वा
+> साङ्केत्यं पारिहास्यं वा स्तोभं हेलनमेव वा\
 > वैकुण्ठनामग्रहणमशेषाघहरं विदुः ॥१४॥
 
-> sāṅketyaṁ pārihāsyaṁ vā
-> stobhaṁ helanam eva vā
-> vaikuṇṭha-nāma-grahaṇam
+> sāṅketyaṁ pārihāsyaṁ vā\
+> stobhaṁ helanam eva vā\
+> vaikuṇṭha-nāma-grahaṇam\
 > aśeṣāgha-haraṁ viduḥ
 
 *sāṅketyam*—as an assignation; *pārihāsyam*—jokingly; *vā*—or; *stobham*—as musical entertainment; *helanam*—neglectfully; *eva*—certainly; *vā*—or; *vaikuṇṭha*—of the Lord; *nāma-grahaṇam*—chanting the holy name; *aśeṣa*—unlimited; *agha-haram*—neutralizing the effect of sinful life; *viduḥ*—advanced transcendentalists know.

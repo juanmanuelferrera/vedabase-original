@@ -1,11 +1,11 @@
 ### SB 5.11.5
 
-> स वासनात्मा विषयोपरक्तो गुणप्रवाहो विकृतः षोडशात्मा
+> स वासनात्मा विषयोपरक्तो गुणप्रवाहो विकृतः षोडशात्मा\
 > बिभ्रत्पृथङ्नामभि रूपभेदमन्तर्बहिष्ट्वं च पुरैस्तनोति ॥५॥
 
-> sa vāsanātmā viṣayoparakto
-> guṇa-pravāho vikṛtaḥ ṣoḍaśātmā
-> bibhrat pṛthaṅ-nāmabhi rūpa-bhedam
+> sa vāsanātmā viṣayoparakto\
+> guṇa-pravāho vikṛtaḥ ṣoḍaśātmā\
+> bibhrat pṛthaṅ-nāmabhi rūpa-bhedam\
 > antar-bahiṣṭvaṁ ca purais tanoti
 
 *saḥ*—that; *vāsanā*—endowed with many desires; *ātmā*—the mind; *viṣaya-uparaktaḥ*—attached to material happiness, sense gratification; *guṇa-pravāhaḥ*—driven by the force of either *sattva-guṇa, rajo-guṇa* or *tamo-guṇa*; *vikṛtaḥ*—transformed by lust and so on; *ṣoḍaśa-ātmā*—the chief of the sixteen material elements (the five gross elements, the ten senses and the mind); *bibhrat*—wandering; *pṛthak-nāmabhiḥ*—with separate names; *rūpa-bhedam*—assuming different forms; *antaḥ-bahiṣṭvam*—the quality of being first-class or last-class; *ca*—and; *puraiḥ*—with different bodily forms; *tanoti*—manifests.

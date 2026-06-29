@@ -1,9 +1,9 @@
 ### CC Madhya 20.117
 
-> কৃষ্ণ ভুলি’ সেই জীব অনাদি-বহির্মুখ ৷
+> কৃষ্ণ ভুলি’ সেই জীব অনাদি-বহির্মুখ ৷\
 > অতএব মায়া তারে দেয় সংসার-দুঃখ ॥১১৭॥
 
-> kṛṣṇa bhuli' sei jīva anādi-bahirmukha
+> kṛṣṇa bhuli' sei jīva anādi-bahirmukha\
 > ataeva māyā tāre deya saṁsāra-duḥkha
 
 *kṛṣṇa bhuli'*—olvidando a Kṛṣṇa; *sei jīva*—esa entidad viviente; *anādi*—desde tiempo inmemorial; *bahiḥ-mukha*—atraída por el aspecto externo; *ataeva*—por lo tanto; *māyā*—la energía ilusoria; *tāre*—a ella; *deya*—da; *saṁsāra-duḥkha*—las miserias de la existencia material.

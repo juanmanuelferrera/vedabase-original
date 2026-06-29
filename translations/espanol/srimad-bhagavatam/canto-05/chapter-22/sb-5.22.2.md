@@ -1,9 +1,9 @@
 ### SB 5.22.2
 
-> स होवाच
+> स होवाच\
 > यथा कुलालचक्रेण भ्रमता सह भ्रमतां तदाश्रयाणां पिपीलिकादीनां गतिरन्यैवप्रदेशान्तरेष्वप्युपलभ्यमानत्वादेवं नक्षत्रराशिभिरुपलक्षितेन कालचक्रेण ध्रुवं मेरुं चप्रदक्षिणेन परिधावता सह परिधावमानानां तदाश्रयाणां सूर्यादीनां ग्रहाणां गतिरन्यैवनक्षत्रान्तरे राश्यन्तरे चोपलभ्यमानत्वात ॥२॥
 
-> sa hovāca
+> sa hovāca\
 > yathā kulāla-cakreṇa bhramatā saha bhramatāṁ tad-āśrayāṇāṁ pipīlikādīnāṁ gatir anyaiva pradeśāntareṣv apy upalabhyamānatvād evaṁ nakṣatra-rāśibhir upalakṣitena kāla-cakreṇa dhruvaṁ meruṁ ca pradakṣiṇena paridhāvatā saha paridhāvamānānāṁ tad-āśrayāṇāṁ sūryādīnāṁ grahāṇāṁ gatir anyaiva nakṣatrāntare rāśy-antare copalabhyamānatvāt.
 
 *saḥ*—Śukadeva Gosvāmī; *ha*—con gran claridad; *uvāca*—respondió; *yathā*—tal como; *kulāla-cakreṇa*—una rueda de alfarero; *bhramatā*—girando alrededor; *saha*—con; *bhramatām*—de las que giran alrededor; *tat-āśrayāṇām*—situadas sobre esa (rueda); *pipīlika-ādīnām*—de diminutas hormigas; *gatiḥ*—el movimiento; *anyā*—otro; *eva*—ciertamente; *pradeśa-antareṣu*—en distintas posiciones; *api*—también; *upalabhyamānatvāt*—debido a ser percibidas; *evam*—de manera similar; *nakṣatra-rāśibhiḥ*—por las estrellas y signos; *upalakṣitena*—vistos; *kāla-cakreṇa*—con la gran rueda del tiempo; *dhruvam*—la estrella conocida con el nombre de Dhruvaloka; *merum*—la montaña conocida con el nombre de Sumeru; *ca*—y; *pradakṣiṇena*—a la derecha; *paridhāvatā*—girando en torno; *saha*—con; *paridhāvamānānām*—de aquellos que giran en torno; *tat-āśrayāṇām*—cuyo refugio es esa rueda del tiempo; *sūrya-ādīnām*—encabezados por el Sol; *grahāṇām*—de los planetas; *gatiḥ*—el movimiento; *anyā*—otro; *eva*—ciertamente; *nakṣatra-antare*—en distintas estrellas; *rāśi-antare*—en distintos signos; *ca*—y; *upalabhyamānatvāt*—debido a que se observa.

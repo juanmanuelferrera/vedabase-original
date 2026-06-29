@@ -1,9 +1,9 @@
 ### CC Adi 2.65
 
-> অদ্বয়জ্ঞান তত্ত্ববস্তু কৃষ্ণের স্বরূপ ।
+> অদ্বয়জ্ঞান তত্ত্ববস্তু কৃষ্ণের স্বরূপ ।\
 > ব্রহ্ম, আত্মা, ভগবান্ — তিন তাঁর রূপ ॥৬৫॥
 
-> advaya-jñāna tattva-vastu kṛṣṇera svarūpa
+> advaya-jñāna tattva-vastu kṛṣṇera svarūpa\
 > brahma, ātmā, bhagavān--tina tāṅra rūpa
 
 *advaya-jñāna*—conocimiento sin dualidad; *tattva-vastu*—la Verdad Absoluta; *kṛṣṇera*—del Señor Kṛṣṇa; *sva-rūpa*—naturaleza propia; *brahma*—Brahman; *ātmā*—Paramātmā; *bhagavān*—la Suprema Personalidad de Dios; *tina*—tres; *tāṅra*—Sus; *rūpa*—formas.

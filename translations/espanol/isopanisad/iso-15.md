@@ -1,11 +1,11 @@
 ### Īśo 15
 
-> हिरण्मयेन पात्रेण सत्यस्यापिहितं मुखम्।
+> हिरण्मयेन पात्रेण सत्यस्यापिहितं मुखम्।\
 > तत्त्वं पूषन्नपावृणु सत्यधर्माय दृष्टये॥१५॥
 
-> hiraṇmayena pātreṇa
-> satyasyāpihitaṁ mukham
-> tat tvaṁ pūṣann apāvṛṇu
+> hiraṇmayena pātreṇa\
+> satyasyāpihitaṁ mukham\
+> tat tvaṁ pūṣann apāvṛṇu\
 > satya-dharmāya dṛṣṭaye
 
 *hiraṇmayena*—por una refulgencia dorada; *pātreṇa*—por una cubierta deslumbrante; *satyasya*—de la Verdad Suprema; *apihitam*—cubierto; *mukham*—el rostro; *tat*—esa cubierta; *tvam*—Tú mismo; *pūṣan*—¡oh sustentador!; *apāvṛṇu*—dígnate retirar; *satya*—puro; *dharmāya*—al devoto; *dṛṣṭaye*—para mostrar.

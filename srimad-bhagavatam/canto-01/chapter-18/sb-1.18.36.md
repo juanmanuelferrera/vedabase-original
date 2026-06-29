@@ -1,11 +1,11 @@
 ### SB 1.18.36
 
-> इत्युक्त्वा रोषताम्राक्षो वयस्यानृषिबालकः ।
+> इत्युक्त्वा रोषताम्राक्षो वयस्यानृषिबालकः ।\
 > कौशिक्याप उपस्पृश्य वाग्वज्रं विससर्ज ह ॥३६॥
 
-> ity uktvā roṣa-tāmrākṣo
-> vayasyān ṛṣi-bālakaḥ
-> kauśiky-āpa upaspṛśya
+> ity uktvā roṣa-tāmrākṣo\
+> vayasyān ṛṣi-bālakaḥ\
+> kauśiky-āpa upaspṛśya\
 > vāg-vajraṁ visasarja ha
 
 *iti*—thus; *uktvā*—saying; *roṣa-tāmra-akṣaḥ*—with red-hot eyes due to being angry; *vayasyān*—unto the playmates; *ṛṣi-bālakaḥ*—the son of a *ṛṣi*; *kauśikī*—the River Kauśika; *āpaḥ*—water; *upaspṛśya*—by touching; *vāk*—words; *vajram*—thunderbolt; *visasarja*—threw; *ha*—in the past.

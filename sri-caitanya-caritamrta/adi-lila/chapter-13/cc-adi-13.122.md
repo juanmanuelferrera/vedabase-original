@@ -1,13 +1,13 @@
 ### CC Adi 13.122
 
-> ঐছে প্রভু শচী-ঘরে, কৃপায় কৈল অবতারে,
-> যেই ইহা করয়ে শ্রবণ ।
-> গৌরপ্রভু দয়াময়, তাঁরে হয়েন সদয়,
+> ঐছে প্রভু শচী-ঘরে, কৃপায় কৈল অবতারে,\
+> যেই ইহা করয়ে শ্রবণ ।\
+> গৌরপ্রভু দয়াময়, তাঁরে হয়েন সদয়,\
 > সেই পায় তাঁহার চরণ ॥১২২॥
 
-> aiche prabhu śacī-ghare, kṛpāya kaila avatāre,
-> yei ihā karaye śravaṇa
-> gaura-prabhu dayāmaya, tāṅre hayena sadaya,
+> aiche prabhu śacī-ghare, kṛpāya kaila avatāre,\
+> yei ihā karaye śravaṇa\
+> gaura-prabhu dayāmaya, tāṅre hayena sadaya,\
 > sei pāya tāṅhāra caraṇa
 
 *aiche*—in this way; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *śacī-ghare*—in the home of Śacīdevī; *kṛpāya*—by His causeless mercy; *kaila*—made; *avatāre*—advent; *yei*—anyone who; *ihā*—this; *karaye*—does; *śravaṇa*—hear; *gaura-prabhu*—Lord Caitanya Mahāprabhu; *dayā-maya*—being very merciful; *tāṅre*—upon him; *hayena*—becomes; *sa-daya*—merciful; *sei*—that person; *pāya*—gets; *tāṅhāra*—His; *caraṇa*—lotus feet.

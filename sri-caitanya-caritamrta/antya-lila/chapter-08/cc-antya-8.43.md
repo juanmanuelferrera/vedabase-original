@@ -1,9 +1,9 @@
 ### CC Antya 8.43
 
-> প্রভুর যতেক গুণ স্পর্শিতে নারিল ।
+> প্রভুর যতেক গুণ স্পর্শিতে নারিল ।\
 > ছিদ্র চাহি’ বুলে, কাঁহা ছিদ্র না পাইল ॥৪৩॥
 
-> prabhura yateka guṇa sparśite nārila
+> prabhura yateka guṇa sparśite nārila\
 > chidra cāhi' bule, kāṅhā chidra nā pāila
 
 *prabhura*—of Śrī Caitanya Mahāprabhu; *yateka guṇa*—all the transcendental attributes; *sparśite nārila*—could not touch or understand; *chidra cāhi'*—looking for faults; *bule*—he goes about; *kāṅhā*—anywhere; *chidra*—fault; *nā pāila*—he could not find.

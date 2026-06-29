@@ -1,11 +1,11 @@
 ### SB 4.13.10
 
-> जडान्धबधिरोन्मत्त मूकाकृतिरतन्मतिः ।
+> जडान्धबधिरोन्मत्त मूकाकृतिरतन्मतिः ।\
 > लक्षितः पथि बालानां प्रशान्तार्चिरिवानलः ॥१०॥
 
-> jaḍāndha-badhironmatta-
-> mūkākṛtir atan-matiḥ
-> lakṣitaḥ pathi bālānāṁ
+> jaḍāndha-badhironmatta-\
+> mūkākṛtir atan-matiḥ\
+> lakṣitaḥ pathi bālānāṁ\
 > praśāntārcir ivānalaḥ
 
 *jaḍa*—foolish; *andha*—blind; *badhira*—deaf; *unmatta*—mad; *mūka*—dumb; *ākṛtiḥ*—appearance; *a-tat*—not like that; *matiḥ*—his intelligence; *lakṣitaḥ*—he was seen; *pathi*—on the road; *bālānām*—by the less intelligent; *praśānta*—calmed; *arciḥ*—with flames; *iva*—like; *analaḥ*—fire.

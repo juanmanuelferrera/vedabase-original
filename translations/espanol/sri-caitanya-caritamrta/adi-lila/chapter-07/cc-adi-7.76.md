@@ -1,11 +1,11 @@
 ### CC Adi 7.76
 
-> হরের্নাম হরের্নাম হরের্নামৈব কেবলম্ ।
+> হরের্নাম হরের্নাম হরের্নামৈব কেবলম্ ।\
 > কলৌ নাস্ত্যেব নাস্ত্যেব নাস্ত্যেব গতিরন্যথা ॥৭৬॥
 
-> harer nāma harer nāma
-> harer nāmaiva kevalam
-> kalau nāsty eva nāsty eva
+> harer nāma harer nāma\
+> harer nāmaiva kevalam\
+> kalau nāsty eva nāsty eva\
 > nāsty eva gatir anyathā
 
 *hareḥ nāma*—el santo nombre del Señor; *hareḥ nāma*—el santo nombre del Señor; *hareḥ nāma*—el santo nombre del Señor; *eva*—ciertamente; *kevalam*—solo; *kalau*—en esta era de Kali; *na asti*—no hay; *eva*—ciertamente; *na asti*—no hay; *eva*—ciertamente; *na asti*—no hay; *eva*—ciertamente; *gatiḥ*—progreso; *anyathā*—de otro modo.

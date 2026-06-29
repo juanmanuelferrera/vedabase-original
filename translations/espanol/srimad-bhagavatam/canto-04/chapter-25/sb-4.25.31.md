@@ -1,11 +1,11 @@
 ### SB 4.25.31
 
-> त्वदाननं सुभ्रु सुतारलोचनं व्यालम्बिनीलालकवृन्दसंवृतम् ।
+> त्वदाननं सुभ्रु सुतारलोचनं व्यालम्बिनीलालकवृन्दसंवृतम् ।\
 > उन्नीय मे दर्शय वल्गुवाचकं यद्व्रीडया नाभिमुखं शुचिस्मिते ॥३१॥
 
-> tvad-ānanaṁ subhru sutāra-locanaṁ
-> vyālambi-nīlālaka-vṛnda-saṁvṛtam
-> unnīya me darśaya valgu-vācakaṁ
+> tvad-ānanaṁ subhru sutāra-locanaṁ\
+> vyālambi-nīlālaka-vṛnda-saṁvṛtam\
+> unnīya me darśaya valgu-vācakaṁ\
 > yad vrīḍayā nābhimukhaṁ śuci-smite
 
 *tvat*—tu; *ānanam*—cara; *su-bhru*—de hermosas cejas; *su-tāra*—con hermosas pupilas; *locanam*—ojos; *vyālambi*—suelto; *nīla*—con reflejos azules; *alaka-vṛnda*—con mechones de cabello; *saṁvṛtam*—rodeada; *unnīya*—habiendo levantado; *me*—hacia mí; *darśaya*—muestra; *valgu-vācakam*—con palabras muy dulces para el oído; *yat*—cuyo rostro; *vrīḍayā*—por timidez; *na*—no; *abhimukham*—a los ojos; *śuci-smite*—¡oh, mujer de encantadoras sonrisas!.

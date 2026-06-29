@@ -1,9 +1,9 @@
 ### CC Adi 13.47
 
-> সেই, অনুসারে লিখি লীলা-সূত্রগণ ।
+> সেই, অনুসারে লিখি লীলা-সূত্রগণ ।\
 > বিস্তারি’ বর্ণিয়াছেন তাহা দাস-বৃন্দাবন ॥৪৭॥
 
-> sei, anusāre likhi līlā-sūtragaṇa
+> sei, anusāre likhi līlā-sūtragaṇa\
 > vistāri' varṇiāchena tāhā dāsa-vṛndāvana
 
 *sei*—that; *anusāre*—following; *likhi*—I write; *līlā*—pastimes; *sūtra-gaṇa*—notes; *vistāri'*—very explicitly; *varṇiyāchena*—has described; *tāhā*—that; *dāsa-vṛndāvana*—Vṛndāvana dāsa Ṭhākura.

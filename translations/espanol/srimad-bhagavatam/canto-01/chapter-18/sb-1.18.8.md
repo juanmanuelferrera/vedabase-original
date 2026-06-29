@@ -1,11 +1,11 @@
 ### SB 1.18.8
 
-> किं नु बालेषु शूरेण कलिना धीरभीरुणा ।
+> किं नु बालेषु शूरेण कलिना धीरभीरुणा ।\
 > अप्रमत्तः प्रमत्तेषु यो वृको नृषु वर्तते ॥८॥
 
-> kiṁ nu bāleṣu śūreṇa
-> kalinā dhīra-bhīruṇā
-> apramattaḥ pramatteṣu
+> kiṁ nu bāleṣu śūreṇa\
+> kalinā dhīra-bhīruṇā\
+> apramattaḥ pramatteṣu\
 > yo vṛko nṛṣu vartate
 
 *kim*—qué; *nu*—puede ser; *bāleṣu*—entre las personas poco inteligentes; *śūreṇa*—por el poderoso; *kalinā*—por la personalidad de Kali; *dhīra*—autocontrolado; *bhīruṇā*—por alguien que le teme a; *apramattaḥ*—aquel que es cuidadoso; *pramatteṣu*—entre los descuidados; *yaḥ*—aquel que; *vṛkaḥ*—tigre; *nṛṣu*—entre los hombres; *vartate*—existe.

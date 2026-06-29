@@ -1,9 +1,9 @@
 ### CC Madhya 14.10
 
-> “তব কথামৃতং” শ্লোক রাজা যে পড়িল ।
+> “তব কথামৃতং” শ্লোক রাজা যে পড়িল ।\
 > উঠি’ প্রেমাবেশে প্রভু আলিঙ্গন কৈল ॥১০॥
 
-> "tava kathāmṛtaṁ" śloka rājā ye paḍila
+> "tava kathāmṛtaṁ" śloka rājā ye paḍila\
 > uṭhi' premāveśe prabhu āliṅgana kaila
 
 *tava kathāmṛtam*—que comienza con las palabras tava kathāmṛtam; *śloka*—el verso; *rājā*—el rey; *ye paḍila*—cuando recitó; *uṭhi'*—levantándose; *prema-āveśe*—en éxtasis de amor; *prabhu*—Śrī Caitanya Mahāprabhu; *āliṅgana kaila*—abrazó.

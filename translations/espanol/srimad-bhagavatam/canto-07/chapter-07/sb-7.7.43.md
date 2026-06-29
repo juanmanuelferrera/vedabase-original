@@ -1,11 +1,11 @@
 ### SB 7.7.43
 
-> कामान्कामयते काम्यैर्यदर्थमिह पूरुषः
+> कामान्कामयते काम्यैर्यदर्थमिह पूरुषः\
 > स वै देहस्तु पारक्यो भङ्गुरो यात्युपैति च ॥४३॥
 
-> kāmān kāmayate kāmyair
-> yad-artham iha pūruṣaḥ
-> sa vai dehas tu pārakyo
+> kāmān kāmayate kāmyair\
+> yad-artham iha pūruṣaḥ\
+> sa vai dehas tu pārakyo\
 > bhaṅguro yāty upaiti ca
 
 *kāmān*—objetos para la complacencia de los sentidos; *kāmayate*—uno desea; *kāmyaiḥ*—con distintas acciones deseables; *yat*—de las cuales; *artham*—a fin de; *iha*—en el mundo material; *pūruṣaḥ*—la entidad viviente; *saḥ*—ese; *vai*—en verdad; *dehaḥ*—cuerpo; *tu*—pero; *pārakyaḥ*—pertenece a otros (a los perros, buitres, etc.); *bhaṅguraḥ*—perecedero; *yāti*—se va; *upaiti*—abraza al alma espiritual; *ca*—y.

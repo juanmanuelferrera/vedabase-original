@@ -1,13 +1,13 @@
 ### CC Antya 20.57
 
-> কুষ্ঠী-বিপ্রের রমণী, পতিব্রতা-শিরোমণি,
-> পতি লাগি’ কৈলা বেশ্যার সেবা ।
-> স্তম্ভিল সূর্যের গতি, জীয়াইল মৃত পতি,
+> কুষ্ঠী-বিপ্রের রমণী, পতিব্রতা-শিরোমণি,\
+> পতি লাগি’ কৈলা বেশ্যার সেবা ।\
+> স্তম্ভিল সূর্যের গতি, জীয়াইল মৃত পতি,\
 > তুষ্ট কৈল মুখ্য তিন-দেবা ॥৫৭॥
 
-> kuṣṭhī-viprera ramaṇī, pativratā-śiromaṇi,
-> pati lāgi' kailā veśyāra sevā
-> stambhila sūryera gati, jīyāila mṛta pati,
+> kuṣṭhī-viprera ramaṇī, pativratā-śiromaṇi,\
+> pati lāgi' kailā veśyāra sevā\
+> stambhila sūryera gati, jīyāila mṛta pati,\
 > tuṣṭa kaila mukhya tina-devā
 
 *kuṣṭhī-viprera*—of the *brāhmaṇa* who suffered from leprosy; *ramaṇī*—the wife; *pati-vratā-śiromaṇi*—the topmost of chaste women; *pati lāgi'*—for the satisfaction of her husband; *kailā*—performed; *veśyāra sevā*—service to a prostitute; *stambhila*—stopped; *sūryera gati*—the movement of the sun; *jīyāila*—revived; *mṛta pati*—the dead husband; *tuṣṭa kaila*—satisfied; *mukhya*—the principal; *tina-devā*—three deities or demigods.

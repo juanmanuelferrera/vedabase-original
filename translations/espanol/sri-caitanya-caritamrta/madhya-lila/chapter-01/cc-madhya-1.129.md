@@ -1,9 +1,9 @@
 ### CC Madhya 1.129
 
-> কাশীমিশ্রে কৃপা, প্রদ্যুম্ন মিশ্রাদি-মিলন ।
+> কাশীমিশ্রে কৃপা, প্রদ্যুম্ন মিশ্রাদি-মিলন ।\
 > পরমানন্দপুরী-গোবিন্দ-কাশীশ্বরাগমন ॥১২৯॥
 
-> kāśī-miśre kṛpā, pradyumna miśrādi-milana
+> kāśī-miśre kṛpā, pradyumna miśrādi-milana\
 > paramānanda-purī-govinda-kāśīśvarāgamana
 
 *kāśī-miśre kṛpā*—Su misericordia hacia Kāśī Miśra; *pradyumna miśra-ādi-milana*—el encuentro con Pradyumna Miśra y otros; *paramānanda-purī*—de nombre Paramānanda Purī; *govinda*—de nombre Govinda; *kāśīśvara*—de nombre Kāśīśvara; *āgamana*—llegada.

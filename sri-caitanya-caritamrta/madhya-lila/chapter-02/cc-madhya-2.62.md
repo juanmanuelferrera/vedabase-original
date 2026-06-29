@@ -1,13 +1,13 @@
 ### CC Madhya 2.62
 
-> তোমার মাধুরী-বল, তাতে মোর চাপল,
-> এই দুই, তুমি আমি জানি ।
-> কাহাঁ করোঁ কাহাঁ যাঙ, কাহাঁ গেলে তোমা পাঙ,
+> তোমার মাধুরী-বল, তাতে মোর চাপল,\
+> এই দুই, তুমি আমি জানি ।\
+> কাহাঁ করোঁ কাহাঁ যাঙ, কাহাঁ গেলে তোমা পাঙ,\
 > তাহা মোরে কহ ত’ আপনি ॥৬২॥
 
-> tomāra mādhurī-bala, tāte mora cāpala,
-> ei dui, tumi āmi jāni
-> kāhāṅ karoṅ kāhāṅ yāṅ, kāhāṅ gele tomā pāṅ,
+> tomāra mādhurī-bala, tāte mora cāpala,\
+> ei dui, tumi āmi jāni\
+> kāhāṅ karoṅ kāhāṅ yāṅ, kāhāṅ gele tomā pāṅ,\
 > tāhā more kaha ta' āpani
 
 *tomāra*—Your; *mādhurī-bala*—strength of sweetness; *tāte*—in that; *mora*—My; *cāpala*—impotence; *ei*—these; *dui*—two; *tumi*—You; *āmi*—I; *jāni*—know; *kāhāṅ*—where; *karoṅ*—I do; *kāhāṅ*—where; *yāṅ*—I go; *kāhāṅ*—where; *gele*—by going; *tomā*—You; *pāṅ*—I can get; *tāhā*—that; *more*—unto Me; *kaha*—please speak; *ta' āpani*—You.

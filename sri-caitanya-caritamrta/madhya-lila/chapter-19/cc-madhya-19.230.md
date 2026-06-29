@@ -1,13 +1,13 @@
 ### CC Madhya 19.230
 
-> ইতীদৃক্স্বলীলাভিরানন্দকুণ্ডে
-> স্বঘোষং নিমজ্জন্তমাখ্যাপয়ন্তম্ ।
-> তদীয়েশিতজ্ঞেষু ভক্তৈর্জিতত্বং
+> ইতীদৃক্স্বলীলাভিরানন্দকুণ্ডে\
+> স্বঘোষং নিমজ্জন্তমাখ্যাপয়ন্তম্ ।\
+> তদীয়েশিতজ্ঞেষু ভক্তৈর্জিতত্বং\
 > পুনঃ প্রেমতস্তং শতাবৃত্তি বন্দে ॥২৩০॥
 
-> itīdṛk-svalīlābhir ānanda-kuṇḍe
-> svaghoṣaṁ nimajjantam ākhyāpayantam
-> tadīyeśita-jñeṣu bhaktair jitatvaṁ
+> itīdṛk-svalīlābhir ānanda-kuṇḍe\
+> svaghoṣaṁ nimajjantam ākhyāpayantam\
+> tadīyeśita-jñeṣu bhaktair jitatvaṁ\
 > punaḥ prematās taṁ śatāvṛtti vande
 
 *iti*—thus; *īdṛk-sva-līlābhiḥ*—by this Dāmodara in His transcendental pastimes; *ānanda-kuṇḍe*—in the ocean of transcendental bliss; *sva-ghoṣam*—His personal associates; *nimajjantam*—plunging; *ākhyāpayantam*—declaring; *tadīya*—of the Supreme Personality of Godhead; *īśita-jñeṣu*—among learned scholars expert in the knowledge of the opulences; *bhaktaiḥ*—by the devotees; *jitatvam*—the subjugation; *punaḥ*—again; *prematāḥ*—with love; *tam*—unto Him; *śata-āvṛtti*—hundreds of times; *vande*—I offer my respectful obeisances.

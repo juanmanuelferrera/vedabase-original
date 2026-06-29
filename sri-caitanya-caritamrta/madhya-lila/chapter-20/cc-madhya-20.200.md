@@ -1,9 +1,9 @@
 ### CC Madhya 20.200
 
-> জ্যৈষ্ঠে — ত্রিবিক্রম, আষাঢ়ে — বামন দেবেশ ।
+> জ্যৈষ্ঠে — ত্রিবিক্রম, আষাঢ়ে — বামন দেবেশ ।\
 > শ্রাবণে — শ্রীধর, ভাদ্রে — দেব হৃষীকেশ ॥২০০॥
 
-> jyaiṣṭhe—trivikrama, āṣāḍhe—vāmana deveśa
+> jyaiṣṭhe—trivikrama, āṣāḍhe—vāmana deveśa\
 > śrāvaṇe—śrīdhara, bhādre—deva hṛṣīkeśa
 
 *jyaiṣṭhe*—in the month of Jyaiṣṭha (May-June); *trivikrama*—Trivikrama; *āṣāḍhe*—in the month of Āṣāḍha (June-July); *vāmana deva-īśa*—Lord Vāmana; *śrāvaṇe*—in the month of Śrāvaṇa (July-August); *śrīdhara*—Śrīdhara; *bhādre*—in the month of Bhādra (August-September); *deva hṛṣīkeśa*—Lord Hṛṣīkeśa.

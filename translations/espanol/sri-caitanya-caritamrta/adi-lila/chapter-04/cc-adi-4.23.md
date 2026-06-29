@@ -1,11 +1,11 @@
 ### CC Adi 4.23
 
-> ময়ি ভক্তির্হি ভূতানামমৃতত্বায় কল্পতে ।
+> ময়ি ভক্তির্হি ভূতানামমৃতত্বায় কল্পতে ।\
 > দিষ্ট্যা যদাসীন্মৎস্নেহো ভবতীনাং মদাপনঃ ॥২৩॥
 
-> mayi bhaktir hi bhūtānām
-> amṛtatvāya kalpate
-> diṣṭyā yad āsīn mat-sneho
+> mayi bhaktir hi bhūtānām\
+> amṛtatvāya kalpate\
+> diṣṭyā yad āsīn mat-sneho\
 > bhavatīnāṁ mad-āpanaḥ
 
 *mayi*—a Mí; *bhaktiḥ*—servicio devocional; *hi*—ciertamente; *bhūtānām*—de los seres vivientes; *amṛtatvāya*—la vida eterna; *kalpate*—produce; *diṣṭyā*—por buena fortuna; *yat*—que; *āsīt*—hubo; *mat*—por Mí; *snehaḥ*—el afecto; *bhavatīnām*—de todas vosotras; *mat*—de Mí; *āpanaḥ*—la obtención.

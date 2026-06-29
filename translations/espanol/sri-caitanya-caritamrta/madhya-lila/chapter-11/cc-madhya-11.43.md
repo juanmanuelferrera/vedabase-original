@@ -1,9 +1,9 @@
 ### CC Madhya 11.43
 
-> tathāpi nā kare teṅha rāja-daraśana
+> tathāpi nā kare teṅha rāja-daraśana\
 > kṣetra chāḍi' yābena punaḥ yadi kari nivedana
 
-> tathāpi nā kare teṅha rāja-daraśana
+> tathāpi nā kare teṅha rāja-daraśana\
 > kṣetra chāḍi' yābena punaḥ yadi kari nivedana
 
 *tathāpi*—aun así; *nā kare*—no acepta; *teṅha*—Él; *rāja-daraśana*—visitar a un rey; *kṣetra chāḍi'*—abandonando Jagannātha-kṣetra; *yābena*—se irá; *punaḥ*—de nuevo; *yadi*—si; *kari nivedana*—Le hago la petición.

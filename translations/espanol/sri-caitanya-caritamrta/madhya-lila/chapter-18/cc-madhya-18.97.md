@@ -1,9 +1,9 @@
 ### CC Madhya 18.97
 
-> প্রভু-আগে কহে লোক, — শ্রীকৃষ্ণ দেখিল ৷
+> প্রভু-আগে কহে লোক, — শ্রীকৃষ্ণ দেখিল ৷\
 > ‘সরস্বতী’ এই বাক্যে ‘সত্য’ কহাইল ॥৯৭॥
 
-> prabhu-āge kahe loka,--śrī-kṛṣṇa dekhila
+> prabhu-āge kahe loka,--śrī-kṛṣṇa dekhila\
 > 'sarasvatī' ei vākye 'satya' kahāila
 
 *prabhu-āge*—ante Śrī Caitanya Mahāprabhu; *kahe loka*—toda la gente comenzó a decir; *śrī-kṛṣṇa dekhila*—que habían visto al Señor Kṛṣṇa; *sarasvatī*—la diosa del saber; *ei vākye*—esta afirmación; *satya*—verdadera; *kahāila*—les hizo decir.

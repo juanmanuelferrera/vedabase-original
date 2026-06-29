@@ -1,11 +1,11 @@
 ### SB 3.2.21
 
-> स्वयं त्वसाम्यातिशयस्त्र्यधीशः स्वाराज्यलक्ष्म्याप्तसमस्तकामः ।
+> स्वयं त्वसाम्यातिशयस्त्र्यधीशः स्वाराज्यलक्ष्म्याप्तसमस्तकामः ।\
 > बलिं हरद्भिश्चिरलोकपालैः किरीटकोट्येडितपादपीठः ॥२१॥
 
-> svayaṁ tv asāmyātiśayas tryadhīśaḥ
-> svārājya-lakṣmy-āpta-samasta-kāmaḥ
-> baliṁ haradbhiś cira-loka-pālaiḥ
+> svayaṁ tv asāmyātiśayas tryadhīśaḥ\
+> svārājya-lakṣmy-āpta-samasta-kāmaḥ\
+> baliṁ haradbhiś cira-loka-pālaiḥ\
 > kirīṭa-koṭy-eḍita-pāda-pīṭhaḥ
 
 *svayam*—Él mismo; *tu*—pero; *asāmya*—único; *atiśayaḥ*—más grande; *tri-adhīśaḥ*—Señor de los tres; *svārājya*—supremacía independiente; *lakṣmī*—fortuna; *āpta*—lograda; *samasta-kāmaḥ*—todos los deseos; *balim*—artículos de adoración; *haradbhiḥ*—ofrecidos por; *cira-loka-pālaiḥ*—por los sustentadores eternos del orden de la creación; *kirīṭa-koṭyā*—millones de yelmos; *iḍita-pāda-pīṭhaḥ*—pies honrados mediante oraciones.

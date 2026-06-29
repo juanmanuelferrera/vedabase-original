@@ -1,11 +1,11 @@
 ### SB 6.11.16
 
-> श्रीह्रीदयाकीर्तिभिरुज्झितं त्वां स्वकर्मणा पुरुषादैश्च गर्ह्यम
+> श्रीह्रीदयाकीर्तिभिरुज्झितं त्वां स्वकर्मणा पुरुषादैश्च गर्ह्यम\
 > कृच्छ्रेण मच्छूलविभिन्नदेहमस्पृष्टवह्निं समदन्ति गृध्राः ॥१६॥
 
-> śrī-hrī-dayā-kīrtibhir ujjhitaṁ tvāṁ
-> sva-karmaṇā puruṣādaiś ca garhyam
-> kṛcchreṇa mac-chūla-vibhinna-deham
+> śrī-hrī-dayā-kīrtibhir ujjhitaṁ tvāṁ\
+> sva-karmaṇā puruṣādaiś ca garhyam\
+> kṛcchreṇa mac-chūla-vibhinna-deham\
 > aspṛṣṭa-vahniṁ samadanti gṛdhrāḥ
 
 *śrī*—opulence or beauty; *hrī*—shame; *dayā*—mercy; *kīrtibhiḥ*—and glory; *ujjhitam*—bereft of; *tvām*—you; *sva-karmaṇā*—by your own activities; *puruṣa-adaiḥ*—by the Rākṣasas (man-eaters); *ca*—and; *garhyam*—condemnable; *kṛcchreṇa*—with great difficulty; *mat-śūla*—by my trident; *vibhinna*—pierced; *deham*—your body; *aspṛṣṭa-vahnim*—not even touched by fire; *samadanti*—will eat; *gṛdhrāḥ*—the vultures.

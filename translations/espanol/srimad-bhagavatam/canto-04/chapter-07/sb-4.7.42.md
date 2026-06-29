@@ -1,15 +1,15 @@
 ### SB 4.7.42
 
-> देवा ऊचुः
-> पुरा कल्पापाये स्वकृतमुदरीकृत्य विकृतं
-> त्वमेवाद्यस्तस्मिन्सलिल उरगेन्द्राधिशयने ।
-> पुमान्शेषे सिद्धैर्हृदि विमृशिताध्यात्मपदविः
+> देवा ऊचुः\
+> पुरा कल्पापाये स्वकृतमुदरीकृत्य विकृतं\
+> त्वमेवाद्यस्तस्मिन्सलिल उरगेन्द्राधिशयने ।\
+> पुमान्शेषे सिद्धैर्हृदि विमृशिताध्यात्मपदविः\
 > स एवाद्याक्ष्णोर्यः पथि चरसि भृत्यानवसि नः ॥४२॥
 
-> devā ūcuḥ
-> purā kalpāpāye sva-kṛtam udarī-kṛtya vikṛtaṁ
-> tvam evādyas tasmin salila uragendrādhiśayane
-> pumān śeṣe siddhair hṛdi vimṛśitādhyātma-padaviḥ
+> devā ūcuḥ\
+> purā kalpāpāye sva-kṛtam udarī-kṛtya vikṛtaṁ\
+> tvam evādyas tasmin salila uragendrādhiśayane\
+> pumān śeṣe siddhair hṛdi vimṛśitādhyātma-padaviḥ\
 > sa evādyākṣṇor yaḥ pathi carasi bhṛtyān avasi naḥ
 
 *devāḥ*—los semidioses; *ūcuḥ*—dijeron; *purā*—en el pasado; *kalpa-apāye*—a la hora de la devastación del *kalpa*; *sva-kṛtam*—producido de sí mismo; *udarī-kṛtya*—habiendo retraído en Tu abdomen; *vikṛtam*—efecto; *tvam*—Tú; *eva*—ciertamente; *ādyaḥ*—original; *tasmin*—en esa; *salile*—agua; *uraga-indra*—sobre Śeṣa; *adhiśayane*—en la cama; *pumān*—personalidad; *śeṣe*—reposando; *siddhaiḥ*—por las almas liberadas (como Sanaka, etc.); *hṛdi*—en el corazón; *vimṛśita*—meditando en; *adhyātma-padaviḥ*—el sendero de la especulación filosófica; *saḥ*—Él; *eva*—ciertamente; *adya*—ahora; *akṣṇoḥ*—de los ojos; *yaḥ*—quien; *pathi*—en el sendero; *carasi*—Tú mueves; *bhṛtyān*—sirvientes; *avasi*—protege; *naḥ*—a nosotros.

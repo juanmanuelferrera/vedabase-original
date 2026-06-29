@@ -1,9 +1,9 @@
 ### CC Adi 5.113
 
-> যুগ-মন্বন্তরে ধরি’ নানা অবতার ।
+> যুগ-মন্বন্তরে ধরি’ নানা অবতার ।\
 > ধর্ম সংস্থাপন করে, অধর্ম সংহার ॥১১৩॥
 
-> yuga-manvantare dhari' nānā avatāra
+> yuga-manvantare dhari' nānā avatāra\
 > dharma saṁsthāpana kare, adharma saṁhāra
 
 *yuga-manu-antare*—en las eras y milenios de Manu; *dhari'*—aceptando; *nānā*—diversas; *avatāra*—encarnaciones; *dharma saṁsthāpana kare*—establece los principios de la religión; *adharma saṁhāra*—destruyendo los principios irreligiosos.

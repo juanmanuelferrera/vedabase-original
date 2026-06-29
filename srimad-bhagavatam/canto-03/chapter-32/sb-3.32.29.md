@@ -1,11 +1,11 @@
 ### SB 3.32.29
 
-> यथा महानहंरूपस्त्रिवृत्पञ्चविधः स्वराट् ।
+> यथा महानहंरूपस्त्रिवृत्पञ्चविधः स्वराट् ।\
 > एकादशविधस्तस्य वपुरण्डं जगद्यतः ॥२९॥
 
-> yathā mahān ahaṁ-rūpas
-> tri-vṛt pañca-vidhaḥ svarāṭ
-> ekādaśa-vidhas tasya
+> yathā mahān ahaṁ-rūpas\
+> tri-vṛt pañca-vidhaḥ svarāṭ\
+> ekādaśa-vidhas tasya\
 > vapur aṇḍaṁ jagad yataḥ
 
 *yathā*—as; *mahān*—the *mahat-tattva*; *aham-rūpaḥ*—the false ego; *tri-vṛt*—the three modes of material nature; *pañca-vidhaḥ*—the five material elements; *sva-rāṭ*—the individual consciousness; *ekādaśa-vidhaḥ*—the eleven senses; *tasya*—of the living entity; *vapuḥ*—the material body; *aṇḍam*—the *brahmāṇḍa*; *jagat*—the universe; *yataḥ*—from which or from whom.

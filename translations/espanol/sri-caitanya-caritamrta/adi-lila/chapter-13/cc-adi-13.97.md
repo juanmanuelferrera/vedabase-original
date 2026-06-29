@@ -1,9 +1,9 @@
 ### CC Adi 13.97
 
-> প্রসন্ন হৈল দশ দিক্, প্রসন্ন নদীজল ।
+> প্রসন্ন হৈল দশ দিক্, প্রসন্ন নদীজল ।\
 > স্থাবর-জঙ্গম হৈল আনন্দে বিহ্বল ॥৯৭॥
 
-> prasanna haila daśa dik, prasanna nadījala
+> prasanna haila daśa dik, prasanna nadījala\
 > sthāvara-jaṅgama haila ānande vihvala
 
 *prasanna*—jubilosas; *haila*—se pusieron; *daśa*—diez; *dik*—direcciones; *prasanna*—satisfechas; *nadī-jala*—las aguas de los ríos; *sthāvara*—inmóviles; *jaṅgama*—móviles; *haila*—quedaron; *ānande*—de gozo; *vihvala*—sobrecogidos.

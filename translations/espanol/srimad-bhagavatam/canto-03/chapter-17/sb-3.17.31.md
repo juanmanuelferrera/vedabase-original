@@ -1,11 +1,11 @@
 ### SB 3.17.31
 
-> तं वीरमारादभिपद्य विस्मयः शयिष्यसे वीरशये श्वभिर्वृतः ।
+> तं वीरमारादभिपद्य विस्मयः शयिष्यसे वीरशये श्वभिर्वृतः ।\
 > यस्त्वद्विधानामसतां प्रशान्तये रूपाणि धत्ते सदनुग्रहेच्छया ॥३१॥
 
-> taṁ vīram ārād abhipadya vismayaḥ
-> śayiṣyase vīra-śaye śvabhir vṛtaḥ
-> yas tvad-vidhānām asatāṁ praśāntaye
+> taṁ vīram ārād abhipadya vismayaḥ\
+> śayiṣyase vīra-śaye śvabhir vṛtaḥ\
+> yas tvad-vidhānām asatāṁ praśāntaye\
 > rūpāṇi dhatte sad-anugrahecchayā
 
 *tam*—a Él; *vīram*—el gran héroe; *ārāt*—rápidamente; *abhipadya*—al encontrar; *vismayaḥ*—libre del orgullo; *śayiṣyase*—yacerás; *vīraśaye*—en el campo de batalla; *śvabhiḥ*—por perros; *vṛtaḥ*—rodeado; *yaḥ*—aquel que; *tvat-vidhānām*—como tú; *asatām*—de personas malvadas; *praśāntaye*—para el exterminio; *rūpāṇi*—formas; *dhatte*—Él asume; *sat*—a los virtuosos; *anugraha*—para mostrar Su gracia; *icchayā*—con un deseo.

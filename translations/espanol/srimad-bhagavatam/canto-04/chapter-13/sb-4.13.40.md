@@ -1,11 +1,11 @@
 ### SB 4.13.40
 
-> स शरासनमुद्यम्य मृगयुर्वनगोचरः ।
+> स शरासनमुद्यम्य मृगयुर्वनगोचरः ।\
 > हन्त्यसाधुर्मृगान्दीनान्वेनोऽसावित्यरौज्जनः ॥४०॥
 
-> sa śarāsanam udyamya
-> mṛgayur vana-gocaraḥ
-> hanty asādhur mṛgān dīnān
+> sa śarāsanam udyamya\
+> mṛgayur vana-gocaraḥ\
+> hanty asādhur mṛgān dīnān\
 > veno 'sāv ity arauj janaḥ
 
 *saḥ*—aquel niño llamado Vena; *śarāsanam*—su arco; *udyamya*—llevando; *mṛgayuḥ*—el cazador; *vana-gocaraḥ*—ir al bosque; *hanti*—solía matar; *asādhuḥ*—siendo muy cruel; *mṛgān*—ciervos; *dīnān*—pobres; *venaḥ*—Vena; *asau*—ahí está; *iti*—de este modo; *araut*—gritaba; *janaḥ*—toda la gente.

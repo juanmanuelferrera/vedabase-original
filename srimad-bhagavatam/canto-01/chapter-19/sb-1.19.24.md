@@ -1,11 +1,11 @@
 ### SB 1.19.24
 
-> ततश्च वः पृच्छ्यमिमं विपृच्छे विश्रभ्य विप्रा इति कृत्यतायाम् ।
+> ततश्च वः पृच्छ्यमिमं विपृच्छे विश्रभ्य विप्रा इति कृत्यतायाम् ।\
 > सर्वात्मना म्रियमाणैश्च कृत्यं शुद्धं च तत्रामृशताभियुक्ताः ॥२४॥
 
-> tataś ca vaḥ pṛcchyam imaṁ vipṛcche
-> viśrabhya viprā iti kṛtyatāyām
-> sarvātmanā mriyamāṇaiś ca kṛtyaṁ
+> tataś ca vaḥ pṛcchyam imaṁ vipṛcche\
+> viśrabhya viprā iti kṛtyatāyām\
+> sarvātmanā mriyamāṇaiś ca kṛtyaṁ\
 > śuddhaṁ ca tatrāmṛśatābhiyuktāḥ
 
 *tataḥ*—as such; *ca*—and; *vaḥ*—unto you; *pṛcchyam*—that which is to be asked; *imam*—this; *vipṛcche*—beg to ask you; *viśrabhya*—trustworthy; *viprāḥ*—*brāhmaṇas*; *iti*—thus; *kṛtyatāyām*—out of all different duties; *sarva-ātmanā*—by everyone; *mriyamāṇaiḥ*—especially those who are just about to die; *ca*—and; *kṛtyam*—dutiful; *śuddham*—perfectly correct; *ca*—and; *tatra*—therein; *āmṛśata*—by complete deliberation; *abhiyuktāḥ*—just befitting.

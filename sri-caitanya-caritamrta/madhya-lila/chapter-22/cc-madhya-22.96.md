@@ -1,13 +1,13 @@
 ### CC Madhya 22.96
 
-> কঃ পণ্ডিতস্ত্বদপরং শরণং সমীয়া-
-> দ্ভক্তপ্রিয়াদৃতগিরঃ সুহৃদঃ কৃতজ্ঞাৎ ।
-> সর্বান্ দদাতি সুহৃদো ভজতোঽভিকামা-
+> কঃ পণ্ডিতস্ত্বদপরং শরণং সমীয়া-\
+> দ্ভক্তপ্রিয়াদৃতগিরঃ সুহৃদঃ কৃতজ্ঞাৎ ।\
+> সর্বান্ দদাতি সুহৃদো ভজতোঽভিকামা-\
 > নাত্মানমপ্যুপচয়াপচয়ৌ ন যস্য ॥৯৬॥
 
-> kaḥ paṇḍitas tvad-aparaṁ śaraṇaṁ samīyād
-> bhakta-priyād ṛta-giraḥ suhṛdaḥ kṛtajñāt
-> sarvān dadāti suhṛdo bhajato 'bhikāmān
+> kaḥ paṇḍitas tvad-aparaṁ śaraṇaṁ samīyād\
+> bhakta-priyād ṛta-giraḥ suhṛdaḥ kṛtajñāt\
+> sarvān dadāti suhṛdo bhajato 'bhikāmān\
 > ātmānam apy upacayāpacayau na yasya
 
 *kaḥ*—what; *paṇḍitaḥ*—learned man; *tvat-aparam*—other than Your Lordship; *śaraṇam*—shelter; *samīyāt*—would take; *bhakta-priyāt*—who are affectionate to Your devotees; *ṛta-giraḥ*—who are truthful to the devotees; *suhṛdaḥ*—who are the friend of the devotees; *kṛta-jñāt*—who are grateful to the devotees; *sarvān*—all; *dadāti*—gives; *suhṛdaḥ*—to Your well-wishers; *bhajataḥ*—who worship You by devotional service; *abhikāmān*—desires; *ātmānam*—Yourself; *api*—even; *upacaya*—increase; *apacayau*—and diminution; *na*—*not*; *yasya*—of whom.

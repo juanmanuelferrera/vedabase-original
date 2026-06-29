@@ -1,9 +1,9 @@
 ### CC Madhya 24.259
 
-> “ঘরে গিয়া ব্রাহ্মণে দেহ’ যত আছে ধন ।
+> “ঘরে গিয়া ব্রাহ্মণে দেহ’ যত আছে ধন ।\
 > এক এক বস্ত্র পরি’ বাহির হও দুইজন ॥২৫৯॥
 
-> "ghare giyā brāhmaṇe deha' yata āche dhana
+> "ghare giyā brāhmaṇe deha' yata āche dhana\
 > eka eka vastra pari' bāhira hao dui-jana
 
 *ghare giyā*—returning home; *brāhmaṇe*—to the *brāhmaṇas,* the most intelligent men in spiritual understanding; *deha'*—give; *yata*—whatever; *āche*—you have; *dhana*—riches; *eka eka*—each of you; *vastra pari'*—just one cloth; *bāhira hao*—leave home; *dui-jana*—both of you.

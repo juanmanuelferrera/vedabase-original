@@ -1,13 +1,13 @@
 ### SB 8.12.15
 
-> श्रीभगवानुवाच
-> कौतूहलाय दैत्यानां योषिद्वेषो मया धृतः
+> श्रीभगवानुवाच\
+> कौतूहलाय दैत्यानां योषिद्वेषो मया धृतः\
 > पश्यता सुरकार्याणि गते पीयूषभाजने ॥१५॥
 
-> śrī-bhagavān uvāca
-> kautūhalāya daityānāṁ
-> yoṣid-veṣo mayā dhṛtaḥ
-> paśyatā sura-kāryāṇi
+> śrī-bhagavān uvāca\
+> kautūhalāya daityānāṁ\
+> yoṣid-veṣo mayā dhṛtaḥ\
+> paśyatā sura-kāryāṇi\
 > gate pīyūṣa-bhājane
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *kautūhalāya*—para confundir; *daityānām*—a los demonios; *yoṣit-veṣaḥ*—la forma de una hermosa mujer; *mayā*—por Mí; *dhṛtaḥ*—adoptada; *paśyatā*—viendo lo que Me es necesario; *sura-kāryāṇi*—para satisfacer los intereses de los semidioses; *gate*—que había sido robada; *pīyūṣa-bhājane*—la vasija de néctar.

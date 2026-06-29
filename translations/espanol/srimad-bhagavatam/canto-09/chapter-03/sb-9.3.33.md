@@ -1,11 +1,11 @@
 ### SB 9.3.33
 
-> कालोऽभियातस्त्रिणव चतुर्युगविकल्पितः
+> कालोऽभियातस्त्रिणव चतुर्युगविकल्पितः\
 > तद्गच्छ देवदेवांशो बलदेवो महाबलः ॥३३॥
 
-> tad gaccha deva-devāṁśo
-> baladevo mahā-balaḥ
-> kanyā-ratnam idaṁ rājan
+> tad gaccha deva-devāṁśo\
+> baladevo mahā-balaḥ\
+> kanyā-ratnam idaṁ rājan\
 > nara-ratnāya dehi bhoḥ
 
 *tat*—por lo tanto; *gaccha*—debes ir; *deva-deva-aṁśaḥ*—cuya porción plenaria es el Señor Viṣṇu; *baladevaḥ*—conocido con el nombre de Baladeva; *mahā-balaḥ*—el poderoso supremo; *kanyā-ratnam*—tu hermosa hija; *idam*—esta; *rājan*—¡oh, rey!; *nara-ratnāya*—a la Suprema Personalidad de Dios, que es siempre joven; *dehi*—entrégale (en caridad); *bhoḥ*—¡oh, rey!.

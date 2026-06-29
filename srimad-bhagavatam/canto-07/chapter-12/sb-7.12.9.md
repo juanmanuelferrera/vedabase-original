@@ -1,11 +1,11 @@
 ### SB 7.12.9
 
-> नन्वग्निः प्रमदा नाम घृतकुम्भसमः पुमान
+> नन्वग्निः प्रमदा नाम घृतकुम्भसमः पुमान\
 > सुतामपि रहो जह्यादन्यदा यावदर्थकृत ॥९॥
 
-> nanv agniḥ pramadā nāma
-> ghṛta-kumbha-samaḥ pumān
-> sutām api raho jahyād
+> nanv agniḥ pramadā nāma\
+> ghṛta-kumbha-samaḥ pumān\
+> sutām api raho jahyād\
 > anyadā yāvad-artha-kṛt
 
 *nanu*—certainly; *agniḥ*—the fire; *pramadā*—the woman (one who bewilders the mind of man); *nāma*—the very name; *ghṛta-kumbha*—a pot of butter; *samaḥ*—like; *pumān*—a man; *sutām api*—even one's daughter; *rahaḥ*—in a secluded place; *jahyāt*—one must not associate with; *anyadā*—with other women also; *yāvat*—as much as; *artha-kṛt*—required.

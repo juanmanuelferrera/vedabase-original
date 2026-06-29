@@ -1,9 +1,9 @@
 ### CC Antya 9.67
 
-> কাশীমিশ্র কহে প্রভুর ধরিয়া চরণে ।
+> কাশীমিশ্র কহে প্রভুর ধরিয়া চরণে ।\
 > “তুমি কেনে এই বাতে ক্ষোভ কর মনে ? ॥ ৬৭ ॥
 
-> kāśī-miśra kahe prabhura dhariyā caraṇe
+> kāśī-miśra kahe prabhura dhariyā caraṇe\
 > "tumi kene ei vāte kṣobha kara mane?
 
 *kāśī-miśra kahe*—Kāśī Miśra dijo; *prabhura*—de Śrī Caitanya Mahāprabhu; *dhariyā caraṇe*—tomando los pies de loto; *tumi*—Tú; *kene*—por qué; *ei vāte*—por estas conversaciones; *kṣobha kara*—te agitas; *mane*—en la mente.

@@ -1,11 +1,11 @@
 ### SB 9.19.9
 
-> सोऽपि चानुगतः स्त्रैणः कृपणस्तां प्रसादितुम
+> सोऽपि चानुगतः स्त्रैणः कृपणस्तां प्रसादितुम\
 > कुर्वन्निडविडाकारं नाशक्नोत्पथि सन्धितुम ॥९॥
 
-> so 'pi cānugataḥ straiṇaḥ
-> kṛpaṇas tāṁ prasāditum
-> kurvann iḍaviḍā-kāraṁ
+> so 'pi cānugataḥ straiṇaḥ\
+> kṛpaṇas tāṁ prasāditum\
+> kurvann iḍaviḍā-kāraṁ\
 > nāśaknot pathi sandhitum
 
 *saḥ*—that he-goat; *api*—also; *ca*—also; *anugataḥ*—following the she-goat; *straiṇaḥ*—hen pecked; *kṛpaṇaḥ*—very poor; *tām*—her; *prasāditum*—to satisfy; *kurvan*—making; *iḍaviḍā-kāram*—an utterance in the language of the goats; *na*—not; *aśaknot*—was able; *pathi*—on the road; *sandhitum*—to satisfy.

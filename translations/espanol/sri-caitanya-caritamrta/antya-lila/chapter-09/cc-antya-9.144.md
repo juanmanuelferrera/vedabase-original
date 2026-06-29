@@ -1,9 +1,9 @@
 ### CC Antya 9.144
 
-> অসদ্ব্যয় না করিহ, — যাতে দুইলোক যায় ।”
+> অসদ্ব্যয় না করিহ, — যাতে দুইলোক যায় ।”\
 > এত বলি’ সবাকারে দিলেন বিদায় ॥১৪৪॥
 
-> asad-vyaya nā kariha,--yāte dui-loka yāya"
+> asad-vyaya nā kariha,--yāte dui-loka yāya"\
 > eta bali' sabākāre dilena vidāya
 
 *asat-vyaya nā kariha*—no gastes en actividades pecaminosas; *yāte*—por lo cual; *dui-loka yāya*—uno pierde esta vida y la siguiente; *eta bali'*—diciendo esto; *sabākāre*—a todos ellos; *dilena vidāya*—les dio despedida.

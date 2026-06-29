@@ -1,18 +1,18 @@
 ### SB 8.17.2-3
 
-> चिन्तयन्त्येकया बुद्ध्या महापुरुषमीश्वरम
-> प्रगृह्येन्द्रियदुष्टाश्वान्मनसा बुद्धिसारथिः ॥२॥
-> मनश्चैकाग्रया बुद्ध्या भगवत्यखिलात्मनि
+> चिन्तयन्त्येकया बुद्ध्या महापुरुषमीश्वरम\
+> प्रगृह्येन्द्रियदुष्टाश्वान्मनसा बुद्धिसारथिः ॥२॥\
+> मनश्चैकाग्रया बुद्ध्या भगवत्यखिलात्मनि\
 > वासुदेवे समाधाय चचार ह पयोव्रतम ॥३॥
 
-> cintayanty ekayā buddhyā
-> mahā-puruṣam īśvaram
-> pragṛhyendriya-duṣṭāśvān
+> cintayanty ekayā buddhyā\
+> mahā-puruṣam īśvaram\
+> pragṛhyendriya-duṣṭāśvān\
 > manasā buddhi-sārathiḥ
 
-> manaś caikāgrayā buddhyā
-> bhagavaty akhilātmani
-> vāsudeve samādhāya
+> manaś caikāgrayā buddhyā\
+> bhagavaty akhilātmani\
+> vāsudeve samādhāya\
 > cacāra ha payo-vratam
 
 *cintayanti*—pensando constantemente; *ekayā*—con la atención centrada; *buddhyā*—y la inteligencia; *mahā-puruṣam*—en la Suprema Personalidad de Dios; *īśvaram*—el controlador supremo, el Señor Viṣṇu; *pragṛhya*—controlar perfectamente; *indriya*—los sentidos; *duṣṭa*—formidables, poderosos; *aśvān*—caballos; *manasā*—con la mente; *buddhi-sārathiḥ*—con la ayuda de la inteligencia, el auriga; *manaḥ*—la mente; *ca*—también; *eka-agrayā*—con plena atención; *buddhyā*—con la inteligencia; *bhagavati*—a la Suprema Personalidad de Dios; *akhila-ātmani*—el Alma Suprema, la Superalma de todas las entidades vivientes; *vāsudeve*—en el Señor Vāsudeva; *samādhāya*—centrando toda la atención; *cacāra*—llevó a cabo; *ha*—así; *payaḥ-vratam*—la ceremonia ritual denominada *payo-vrata*.

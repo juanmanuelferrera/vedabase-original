@@ -1,11 +1,11 @@
 ### SB 3.2.14
 
-> यस्यानुरागप्लुतहासरास लीलावलोकप्रतिलब्धमानाः ।
+> यस्यानुरागप्लुतहासरास लीलावलोकप्रतिलब्धमानाः ।\
 > व्रजस्त्रियो दृग्भिरनुप्रवृत्त धियोऽवतस्थुः किल कृत्यशेषाः ॥१४॥
 
-> yasyānurāga-pluta-hāsa-rāsa-
-> līlāvaloka-pratilabdha-mānāḥ
-> vraja-striyo dṛgbhir anupravṛtta-
+> yasyānurāga-pluta-hāsa-rāsa-\
+> līlāvaloka-pratilabdha-mānāḥ\
+> vraja-striyo dṛgbhir anupravṛtta-\
 > dhiyo 'vatasthuḥ kila kṛtya-śeṣāḥ
 
 *yasya*—cuyo; *anurāga*—apego; *pluta*—realzado por; *hāsa*—risa; *rāsa*—dulces sentimientos; *līlā*—pasatiempos; *avaloka*—echando una mirada; *pratilabdha*—obtenido de eso; *mānāḥ*—angustiadas; *vraja-striyaḥ*—doncellas de Vraja; *dṛgbhiḥ*—con los ojos; *anupravṛtta*—siguiendo; *dhiyaḥ*—mediante la inteligencia; *avatasthuḥ*—se sentaron en silencio; *kila*—en verdad; *kṛtya-śeṣāḥ*—sin terminar los deberes hogareños.

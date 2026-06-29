@@ -1,11 +1,11 @@
 ### Bg 4.15
 
-> एवं ज्ञात्वा कृतं कर्म पूर्वैरपि मुमुक्षुभिः ।
+> एवं ज्ञात्वा कृतं कर्म पूर्वैरपि मुमुक्षुभिः ।\
 > कुरु कर्मैव तस्मात्त्वं पूर्वैः पूर्वतरं कृतम् ॥१५॥
 
-> evaṁ jñātvā kṛtaṁ karma
-> pūrvair api mumukṣubhiḥ
-> kuru karmaiva tasmāt tvaṁ
+> evaṁ jñātvā kṛtaṁ karma\
+> pūrvair api mumukṣubhiḥ\
+> kuru karmaiva tasmāt tvaṁ\
 > pūrvaiḥ pūrvataraṁ kṛtam
 
 *evam*—thus; *jñātvā*—knowing well; *kṛtam*—performed; *karma*—work; *pūrvaiḥ*—by past authorities; *api*—although; *mumukṣubhiḥ*—who attained liberation; *kuru*—just perform; *karma*—prescribed duty; *eva*—certainly; *tasmāt*—therefore; *tvam*—you; *pūrvaiḥ*—by the predecessors; *pūrvataram*—ancient predecessors; *kṛtam*—as performed.

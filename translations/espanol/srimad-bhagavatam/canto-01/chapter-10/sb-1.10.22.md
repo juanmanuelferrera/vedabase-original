@@ -1,11 +1,11 @@
 ### SB 1.10.22
 
-> स एव भूयो निजवीर्यचोदितां स्वजीवमायां प्रकृतिं सिसृक्षतीम् ।
+> स एव भूयो निजवीर्यचोदितां स्वजीवमायां प्रकृतिं सिसृक्षतीम् ।\
 > अनामरूपात्मनि रूपनामनी विधित्समानोऽनुससार शास्त्रकृत् ॥२२॥
 
-> sa eva bhūyo nija-vīrya-coditāṁ
-> sva-jīva-māyāṁ prakṛtiṁ sisṛkṣatīm
-> anāma-rūpātmani rūpa-nāmanī
+> sa eva bhūyo nija-vīrya-coditāṁ\
+> sva-jīva-māyāṁ prakṛtiṁ sisṛkṣatīm\
+> anāma-rūpātmani rūpa-nāmanī\
 > vidhitsamāno 'nusasāra śāstra-kṛt
 
 *saḥ*—Él; *eva*—así pues; *bhūyaḥ*—de nuevo; *nija*—propia y personal; *vīrya*—potencia; *coditām*—ejecución de; *sva*—propio; *jīva*—ser viviente; *māyām*—energía externa; *prakṛtim*—a la naturaleza material; *sisṛkṣatīm*—mientras creaba de nuevo; *anāma*—sin designación mundana; *rūpa-ātmani*—formas del alma; *rūpa-nāmanī*—formas y nombres; *vidhitsamānaḥ*—deseando otorgar; *anusasāra*—le confió a; *śāstra-kṛt*—el recopilador de las Escrituras reveladas.

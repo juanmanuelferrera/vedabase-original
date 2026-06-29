@@ -1,11 +1,11 @@
 ### CC Madhya 10.12
 
-> ভবদ্বিধা ভাগবতাস্তীর্থীভূতাঃ স্বয়ং বিভো ৷
+> ভবদ্বিধা ভাগবতাস্তীর্থীভূতাঃ স্বয়ং বিভো ৷\
 > তীর্থীকুর্বন্তি তীর্থানি স্বান্তঃস্থেন গদাভৃতা ৷৷ ১২ ৷৷ ॥১২॥
 
-> bhavad-vidhā bhāgavatās
-> tīrthī-bhūtāḥ svayaṁ vibho
-> tīrthī-kurvanti tīrthāni
+> bhavad-vidhā bhāgavatās\
+> tīrthī-bhūtāḥ svayaṁ vibho\
+> tīrthī-kurvanti tīrthāni\
 > svāntaḥ-sthena gadā-bhṛtā
 
 *bhavat*—Su Excelencia; *vidhāḥ*—como; *bhāgavatāḥ*—devotos; *tīrthī*—como lugares sagrados de peregrinaje; *bhūtāḥ*—que existen; *svayam*—ellos mismos; *vibho*—¡oh, todopoderoso!; *tīrthī-kurvanti*—convierten en lugares sagrados de peregrinaje; *tīrthāni*—los lugares sagrados; *sva-antaḥ-sthena*—porque está situado en sus corazones; *gadā-bhṛtā*—por la Personalidad de Dios.

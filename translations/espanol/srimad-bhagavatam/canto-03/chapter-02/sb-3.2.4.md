@@ -1,11 +1,11 @@
 ### SB 3.2.4
 
-> स मुहूर्तमभूत्तूष्णीं कृष्णाङ्घ्रिसुधया भृशम् ।
+> स मुहूर्तमभूत्तूष्णीं कृष्णाङ्घ्रिसुधया भृशम् ।\
 > तीव्रेण भक्तियोगेन निमग्नः साधु निर्वृतः ॥४॥
 
-> sa muhūrtam abhūt tūṣṇīṁ
-> kṛṣṇāṅghri-sudhayā bhṛśam
-> tīvreṇa bhakti-yogena
+> sa muhūrtam abhūt tūṣṇīṁ\
+> kṛṣṇāṅghri-sudhayā bhṛśam\
+> tīvreṇa bhakti-yogena\
 > nimagnaḥ sādhu nirvṛtaḥ
 
 *saḥ*—Uddhava; *muhūrtam*—por un momento; *abhūt*—se quedó; *tūṣṇīm*—en silencio absoluto; *kṛṣṇa-aṅghri*—los pies de loto del Señor; *sudhayā*—por el néctar; *bhṛśam*—bien maduro; *tīvreṇa*—mediante un muy fuerte; *bhakti-yogena*—servicio devocional; *nimagnaḥ*—absorto en; *sādhu*—bueno; *nirvṛtaḥ*—lleno de amor.

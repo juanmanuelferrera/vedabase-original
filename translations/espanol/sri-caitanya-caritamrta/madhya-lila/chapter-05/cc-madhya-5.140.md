@@ -1,9 +1,9 @@
 ### CC Madhya 5.140
 
-> ভুবনেশ্বর-পথে যৈছে কৈল দরশন ।
+> ভুবনেশ্বর-পথে যৈছে কৈল দরশন ।\
 > বিস্তারি’ বর্ণিয়াছেন দাস-বৃন্দাবন ॥১৪০॥
 
-> bhuvaneśvara-pathe yaiche kaila daraśana
+> bhuvaneśvara-pathe yaiche kaila daraśana\
 > vistāri' varṇiyāchena dāsa-vṛndāvana
 
 *bhuvaneśvara-pathe*—en el camino a Bhuvaneśvara; *yaiche*—como; *kaila*—hizo; *daraśana*—visitar; *vistāri'*—vívidamente; *varṇiyāchena*—ha descrito; *dāsa-vṛndāvana*—Vṛndāvana dāsa Ṭhākura.

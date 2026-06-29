@@ -1,11 +1,11 @@
 ### SB 6.10.2
 
-> तथाभियाचितो देवैरृषिराथर्वणो महान
+> तथाभियाचितो देवैरृषिराथर्वणो महान\
 > मोदमान उवाचेदं प्रहसन्निव भारत ॥२॥
 
-> tathābhiyācito devair
-> ṛṣir ātharvaṇo mahān
-> modamāna uvācedaṁ
+> tathābhiyācito devair\
+> ṛṣir ātharvaṇo mahān\
+> modamāna uvācedaṁ\
 > prahasann iva bhārata
 
 *tathā*—in that manner; *abhiyācitaḥ*—being begged; *devaiḥ*—by the demigods; *ṛṣiḥ*—the great saintly person; *ātharvaṇaḥ*—Dadhīci, the son of Atharvā; *mahān*—the great personality; *modamānaḥ*—being merry; *uvāca*—said; *idam*—this; *prahasan*—smiling; *iva*—somewhat; *bhārata*—O Mahārāja Parīkṣit.

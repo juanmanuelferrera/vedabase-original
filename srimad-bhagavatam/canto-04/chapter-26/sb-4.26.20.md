@@ -1,11 +1,11 @@
 ### SB 4.26.20
 
-> अनुनिन्येऽथ शनकैर्वीरोऽनुनयकोविदः ।
+> अनुनिन्येऽथ शनकैर्वीरोऽनुनयकोविदः ।\
 > पस्पर्श पादयुगलमाह चोत्सङ्गलालिताम् ॥२०॥
 
-> anuninye 'tha śanakair
-> vīro 'nunaya-kovidaḥ
-> pasparśa pāda-yugalam
+> anuninye 'tha śanakair\
+> vīro 'nunaya-kovidaḥ\
+> pasparśa pāda-yugalam\
 > āha cotsaṅga-lālitām
 
 *anuninye*—began to flatter; *atha*—thus; *śanakaiḥ*—gradually; *vīraḥ*—the hero; *anunaya-kovidaḥ*—one who is very expert in flattery; *pasparśa*—touched; *pāda-yugalam*—both the feet; *āha*—he said; *ca*—also; *utsaṅga*—on his lap; *lālitām*—thus being embraced.

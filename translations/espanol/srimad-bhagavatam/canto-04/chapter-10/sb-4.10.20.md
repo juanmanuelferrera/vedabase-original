@@ -1,11 +1,11 @@
 ### SB 4.10.20
 
-> हतावशिष्टा इतरे रणाजिराद्रक्षोगणाः क्षत्रियवर्यसायकैः ।
+> हतावशिष्टा इतरे रणाजिराद्रक्षोगणाः क्षत्रियवर्यसायकैः ।\
 > प्रायो विवृक्णावयवा विदुद्रुवुर्मृगेन्द्रविक्रीडितयूथपा इव ॥२०॥
 
-> hatāvaśiṣṭā itare raṇājirād
-> rakṣo-gaṇāḥ kṣatriya-varya-sāyakaiḥ
-> prāyo vivṛkṇāvayavā vidudruvur
+> hatāvaśiṣṭā itare raṇājirād\
+> rakṣo-gaṇāḥ kṣatriya-varya-sāyakaiḥ\
+> prāyo vivṛkṇāvayavā vidudruvur\
 > mṛgendra-vikrīḍita-yūthapā iva
 
 *hata-avaśiṣṭāḥ*—el resto de los soldados, los que no murieron; *itare*—otros; *raṇa-ajirāt*—del campo de batalla; *rakṣaḥ-gaṇāḥ*—los *yakṣas*; *kṣatriya-varya*—del más grande de los *kṣatriyas* (guerreros); *sāyakaiḥ*—por las flechas; *prāyaḥ*—en su mayor parte; *vivṛkṇa*—despedazados; *avayavāḥ*—los miembros de sus cuerpos; *vidudruvuḥ*—huyeron; *mṛgendra*—por un león; *vikrīḍita*—derrotados; *yūthapāḥ*—elefantes; *iva*—como.

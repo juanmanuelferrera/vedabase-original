@@ -1,11 +1,11 @@
 ### SB 6.5.43
 
-> तन्तुकृन्तन यन्नस्त्वमभद्रमचरः पुनः
+> तन्तुकृन्तन यन्नस्त्वमभद्रमचरः पुनः\
 > तस्माल्लोकेषु ते मूढ न भवेद्भ्रमतः पदम ॥४३॥
 
-> tantu-kṛntana yan nas tvam
-> abhadram acaraḥ punaḥ
-> tasmāl lokeṣu te mūḍha
+> tantu-kṛntana yan nas tvam\
+> abhadram acaraḥ punaḥ\
+> tasmāl lokeṣu te mūḍha\
 > na bhaved bhramataḥ padam
 
 *tantu-kṛntana*—O mischief-monger who have mercilessly separated my sons from me; *yat*—which; *naḥ*—unto us; *tvam*—you; *abhadram*—an inauspicious thing; *acaraḥ*—have done; *punaḥ*—again; *tasmāt*—therefore; *lokeṣu*—in all the planetary systems within the universe; *te*—of you; *mūḍha*—O rascal not knowing how to act; *na*—not; *bhavet*—there may be; *bhramataḥ*—who are wandering; *padam*—an abode.

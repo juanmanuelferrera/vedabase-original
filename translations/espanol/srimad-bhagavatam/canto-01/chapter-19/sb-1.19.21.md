@@ -1,11 +1,11 @@
 ### SB 1.19.21
 
-> सर्वे वयं तावदिहास्महेऽथ कलेवरं यावदसौ विहाय ।
+> सर्वे वयं तावदिहास्महेऽथ कलेवरं यावदसौ विहाय ।\
 > लोकं परं विरजस्कं विशोकं यास्यत्ययं भागवतप्रधानः ॥२१॥
 
-> sarve vayaṁ tāvad ihāsmahe 'tha
-> kalevaraṁ yāvad asau vihāya
-> lokaṁ paraṁ virajaskaṁ viśokaṁ
+> sarve vayaṁ tāvad ihāsmahe 'tha\
+> kalevaraṁ yāvad asau vihāya\
+> lokaṁ paraṁ virajaskaṁ viśokaṁ\
 > yāsyaty ayaṁ bhāgavata-pradhānaḥ
 
 *sarve*—todos; *vayam*—nosotros; *tāvat*—mientras; *iha*—en este lugar; *āsmahe*—permaneceremos; *atha*—luego; *kalevaram*—el cuerpo; *yāvat*—mientras; *asau*—el rey; *vihāya*—abandonando; *lokam*—el planeta; *param*—el supremo; *virajaskam*—completamente libre de contaminación mundana; *viśokam*—completamente libre de toda clase de lamentos; *yāsyati*—regresa; *ayam*—este; *bhāgavata*—devoto; *pradhānaḥ*—el principal.

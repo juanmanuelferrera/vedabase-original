@@ -1,9 +1,9 @@
 ### CC Madhya 23.6
 
-> এই দুই, — ভাবের ‘স্বরূপ’, ‘তটস্থ’ লক্ষণ ।
+> এই দুই, — ভাবের ‘স্বরূপ’, ‘তটস্থ’ লক্ষণ ।\
 > প্রেমের লক্ষণ এবে শুন, সনাতন ॥৬॥
 
-> e dui,--bhāvera 'svarūpa', 'taṭastha' lakṣaṇa
+> e dui,--bhāvera 'svarūpa', 'taṭastha' lakṣaṇa\
 > premera lakṣaṇa ebe śuna, sanātana
 
 *ei dui*—estos dos; *bhāvera*—de la emoción; *sva-rūpa*—constitucionales; *taṭastha*—marginales; *lakṣaṇa*—síntomas; *premera*—del amor; *lakṣaṇa*—los síntomas; *ebe*—ahora; *śuna*—escucha; *sanātana*—¡oh, Sanātana!.

@@ -1,9 +1,9 @@
 ### CC Adi 17.306
 
-> অচিন্ত্য, অদ্ভুত কৃষ্ণচৈতন্য-বিহার ।
+> অচিন্ত্য, অদ্ভুত কৃষ্ণচৈতন্য-বিহার ।\
 > চিত্র ভাব, চিত্র গুণ, চিত্র ব্যবহার ॥৩০৬॥
 
-> acintya, adbhuta kṛṣṇa-caitanya-vihāra
+> acintya, adbhuta kṛṣṇa-caitanya-vihāra\
 > citra bhāva, citra guṇa, citra vyavahāra
 
 *acintya*—inconcebibles; *adbhuta*—maravillosos; *kṛṣṇa-caitanya*—del Señor Śrī Kṛṣṇa Caitanya Mahāprabhu; *vihāra*—pasatiempos; *citra*—maravilloso; *bhāva*—éxtasis; *citra*—maravillosas; *guṇa*—cualidades; *citra*—maravilloso; *vyavahāra*—comportamiento.

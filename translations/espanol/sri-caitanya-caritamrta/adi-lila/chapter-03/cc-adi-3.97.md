@@ -1,9 +1,9 @@
 ### CC Adi 3.97
 
-> কেহ পাপে, কেহ পুণ্যে করে বিষয়-ভোগ ।
+> কেহ পাপে, কেহ পুণ্যে করে বিষয়-ভোগ ।\
 > ভক্তিগন্ধ নাহি, যাতে যায় ভবরোগ ॥৯৭॥
 
-> keha pāpe, keha puṇye kare viṣaya-bhoga
+> keha pāpe, keha puṇye kare viṣaya-bhoga\
 > bhakti-gandha nāhi, yāte yāya bhava-roga
 
 *keha*—alguien; *pāpe*—en actividades pecaminosas; *keha*—alguien; *puṇye*—en actividades piadosas; *kare*—hacen; *viṣaya*—de los objetos de los sentidos; *bhoga*—disfrute; *bhakti-gandha*—un rastro de servicio devocional; *nāhi*—no hay; *yāte*—por el cual; *yāya*—se desvanece; *bhava-roga*—la enfermedad de la existencia material.

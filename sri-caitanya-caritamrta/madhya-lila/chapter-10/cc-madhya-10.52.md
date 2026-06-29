@@ -1,9 +1,9 @@
 ### CC Madhya 10.52
 
-> রামানন্দ-হেন রত্ন যাঁহার তনয় ।
+> রামানন্দ-হেন রত্ন যাঁহার তনয় ।\
 > তাঁহার মহিমা লোকে কহন না যায় ॥৫২॥
 
-> rāmānanda-hena ratna yāṅhāra tanaya
+> rāmānanda-hena ratna yāṅhāra tanaya\
 > tāṅhāra mahimā loke kahana nā yāya
 
 *rāmānanda-hena*—like Rāmānanda Rāya; *ratna*—jewel; *yāṅhāra*—whose; *tanaya*—son; *tāṅhāra*—his; *mahimā*—glorification; *loke*—within this world; *kahana*—to describe; *nā*—not; *yāya*—is possible.

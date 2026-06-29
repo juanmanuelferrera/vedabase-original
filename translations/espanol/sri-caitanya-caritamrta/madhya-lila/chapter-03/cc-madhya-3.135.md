@@ -1,9 +1,9 @@
 ### CC Madhya 3.135
 
-> আচার্য-গোসাঞি তবে রাখিল কীর্তন ।
+> আচার্য-গোসাঞি তবে রাখিল কীর্তন ।\
 > নানা সেবা করি’ প্রভুকে করাইল শয়ন ॥১৩৫॥
 
-> ācārya-gosāñi tabe rākhila kīrtana
+> ācārya-gosāñi tabe rākhila kīrtana\
 > nānā sevā kari' prabhuke karāila śayana
 
 *ācārya-gosāñi*—Advaita Ācārya; *tabe*—entonces; *rākhila*—suspendió; *kīrtana*—el canto; *nānā*—diversos; *sevā*—servicios; *kari'*—ejecutando; *prabhuke*—al Señor; *karāila*—hizo; *śayana*—acostarse.

@@ -1,11 +1,11 @@
 ### SB 1.19.15
 
-> तं मोपयातं प्रतियन्तु विप्रा गङ्गा च देवी धृतचित्तमीशे ।
+> तं मोपयातं प्रतियन्तु विप्रा गङ्गा च देवी धृतचित्तमीशे ।\
 > द्विजोपसृष्टः कुहकस्तक्षको वा दशत्वलं गायत विष्णुगाथाः ॥१५॥
 
-> taṁ mopayātaṁ pratiyantu viprā
-> gaṅgā ca devī dhṛta-cittam īśe
-> dvijopasṛṣṭaḥ kuhakas takṣako vā
+> taṁ mopayātaṁ pratiyantu viprā\
+> gaṅgā ca devī dhṛta-cittam īśe\
+> dvijopasṛṣṭaḥ kuhakas takṣako vā\
 > daśatv alaṁ gāyata viṣṇu-gāthāḥ
 
 *tam*—por esa razón; *mā*—a mí; *upayātam*—refugiado en; *pratiyantu*—tan solo acéptenme; *viprāḥ*—¡oh, *brāhmaṇas*!; *gaṅgā*—madre Ganges; *ca*—también; *devī*—la representante directa del Señor; *dhṛta*—llevado dentro; *cittam*—corazón; *īśe*—al Señor; *dvija-upasṛṣṭaḥ*—creado por el *brāhmaṇa*; *kuhakaḥ*—algo mágico; *takṣakaḥ*—la serpiente alada; *vā*—o; *daśatu*—que muerda; *alam*—sin mayor demora; *gāyata*—por favor continúen cantando; *viṣṇu-gāthāḥ*—narración acerca de los actos de Viṣṇu.

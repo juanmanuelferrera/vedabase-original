@@ -1,13 +1,13 @@
 ### SB 7.9.44
 
-> प्रायेण देव मुनयः स्वविमुक्तिकामा
-> मौनं चरन्ति विजने न परार्थनिष्ठाः
-> नैतान्विहाय कृपणान्विमुमुक्ष एको
+> प्रायेण देव मुनयः स्वविमुक्तिकामा\
+> मौनं चरन्ति विजने न परार्थनिष्ठाः\
+> नैतान्विहाय कृपणान्विमुमुक्ष एको\
 > नान्यं त्वदस्य शरणं भ्रमतोऽनुपश्ये ॥४४॥
 
-> prāyeṇa deva munayaḥ sva-vimukti-kāmā
-> maunaṁ caranti vijane na parārtha-niṣṭhāḥ
-> naitān vihāya kṛpaṇān vimumukṣa eko
+> prāyeṇa deva munayaḥ sva-vimukti-kāmā\
+> maunaṁ caranti vijane na parārtha-niṣṭhāḥ\
+> naitān vihāya kṛpaṇān vimumukṣa eko\
 > nānyaṁ tvad asya śaraṇaṁ bhramato 'nupaśye
 
 *prāyeṇa*—por lo general, en prácticamente todos los casos; *deva*—¡oh, mi Señor!; *munayaḥ*—las grandes personas santas; *sva*—personal, propia; *vimukti-kāmāḥ*—con la ambición de liberarse del mundo material; *maunam*—en silencio; *caranti*—vagan (por lugares como los bosques de los Himālayas, donde no tienen contacto alguno con las actividades de los materialistas); *vijane*—en lugares solitarios; *na*—** no; *para-artha-niṣṭhāḥ*—interesados en trabajar para otros llevándoles el beneficio del movimiento para la conciencia de Kṛṣṇa, iluminándoles con conciencia de Kṛṣṇa; *na*—no; *etān*—a estos; *vihāya*—dejar de lado; *kṛpaṇān*—necios y sinvergüenzas (ocupados en actividades materialistas sin conocer el beneficio de la forma humana de vida); *vimumukṣe*—yo deseo que se liberen y vayan de regreso al hogar, de vuelta a Dios; *ekaḥ*—solo; *na*—no; *anyam*—otro; *tvat*—sino Tú; *asya*—de este; *śaraṇam*—refugio; *bhramataḥ*—del vagar de la entidad viviente que recorre una y otra vez los universos materiales; *anupaśye*—yo veo.

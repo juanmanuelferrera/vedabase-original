@@ -1,9 +1,9 @@
 ### CC Madhya 25.266
 
-> শ্রীভাগবত-তত্ত্বরস করিলা প্রচারে ।
+> শ্রীভাগবত-তত্ত্বরস করিলা প্রচারে ।\
 > কৃষ্ণতুল্য ভাগবত, জানাইলা সংসারে ॥২৬৬॥
 
-> śrī-bhāgavata-tattva-rasa karilā pracāre
+> śrī-bhāgavata-tattva-rasa karilā pracāre\
 > kṛṣṇa-tulya bhāgavata, jānāilā saṁsāre
 
 *śrī-bhāgavata-tattva-rasa*—la verdad y el sabor trascendental del *Śrīmad-Bhāgavatam*; *karilā pracāre*—Caitanya Mahāprabhu lo predicó ampliamente; *kṛṣṇa-tulya*—idéntico a Kṛṣṇa; *bhāgavata*—el *Śrīmad-Bhāgavatam*; *jānāilā saṁsāre*—lo ha predicado en este mundo.

@@ -1,9 +1,9 @@
 ### CC Madhya 24.240
 
-> পথে যে শূকর-মৃগ, জানি তোমার হয় ।”
+> পথে যে শূকর-মৃগ, জানি তোমার হয় ।”\
 > ব্যাধ কহে, — “যেই কহ, সেই ত’ নিশ্চয়” ॥২৪০॥
 
-> pathe ye śūkara-mṛga, jāni tomāra haya"
+> pathe ye śūkara-mṛga, jāni tomāra haya"\
 > vyādha kahe,--"yei kaha, sei ta' niścaya"
 
 *pathe*—en el sendero; *ye*—aquellos; *śūkara-mṛga*—jabalíes y otros animales; *jāni*—puedo comprender; *tomāra haya*—todos te pertenecen; *vyādha kahe*—el cazador respondió; *yei kaha*—lo que decís; *sei ta' niścaya*—es un hecho.

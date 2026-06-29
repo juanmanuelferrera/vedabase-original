@@ -1,11 +1,11 @@
 ### SB 8.12.35
 
-> स्कन्ने रेतसि सोऽपश्यदात्मानं देवमायया
+> स्कन्ने रेतसि सोऽपश्यदात्मानं देवमायया\
 > जडीकृतं नृपश्रेष्ठ सन्न्यवर्तत कश्मलात ॥३५॥
 
-> skanne retasi so 'paśyad
-> ātmānaṁ deva-māyayā
-> jaḍīkṛtaṁ nṛpa-śreṣṭha
+> skanne retasi so 'paśyad\
+> ātmānaṁ deva-māyayā\
+> jaḍīkṛtaṁ nṛpa-śreṣṭha\
 > sannyavartata kaśmalāt
 
 *skanne*—when fully discharged; *retasi*—the semen; *saḥ*—Lord Śiva; *apaśyat*—saw; *ātmānam*—his own self; *deva-māyayā*—by the *māyā* of the Supreme Personality of Godhead; *jaḍīkṛtam*—had become victimized as a fool; *nṛpa-śreṣṭha*—O best of kings (Mahārāja Parīkṣit); *sannyavartata*—restrained himself further; *kaśmalāt*—from illusion.

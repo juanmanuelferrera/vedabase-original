@@ -1,9 +1,9 @@
 ### CC Antya 12.89
 
-> জগদানন্দে পাঞা মাতা আনন্দিত মনে ।
+> জগদানন্দে পাঞা মাতা আনন্দিত মনে ।\
 > তেঁহো প্রভুর কথা কহে, শুনে রাত্রি-দিনে ॥৮৯॥
 
-> jagadānande pāñā mātā ānandita mane
+> jagadānande pāñā mātā ānandita mane\
 > teṅho prabhura kathā kahe, śune rātri-dine
 
 *jagadānande*—Jagadānanda; *pāñā*—getting; *mātā*—Śacīmātā; *ānandita mane*—in great satisfaction; *teṅho*—he; *prabhura kathā*—the pastimes of Śrī Caitanya Mahāprabhu; *kahe*—speaks; *śune*—listens; *rātri-dine*—day and night.

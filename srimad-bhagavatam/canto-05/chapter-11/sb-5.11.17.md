@@ -1,11 +1,11 @@
 ### SB 5.11.17
 
-> भ्रातृव्यमेनं तददभ्रवीर्यमुपेक्षयाध्येधितमप्रमत्तः
+> भ्रातृव्यमेनं तददभ्रवीर्यमुपेक्षयाध्येधितमप्रमत्तः\
 > गुरोर्हरेश्चरणोपासनास्त्रो जहि व्यलीकं स्वयमात्ममोषम ॥१७॥
 
-> bhrātṛvyam enaṁ tad adabhra-vīryam
-> upekṣayādhyedhitam apramattaḥ
-> guror hareś caraṇopāsanāstro
+> bhrātṛvyam enaṁ tad adabhra-vīryam\
+> upekṣayādhyedhitam apramattaḥ\
+> guror hareś caraṇopāsanāstro\
 > jahi vyalīkaṁ svayam ātma-moṣam
 
 *bhrātṛvyam*—the formidable enemy; *enam*—this mind; *tat*—that; *adabhra-vīryam*—very, very powerful; *upekṣayā*—by neglecting; *adhyedhitam*—unnecessarily increased in power; *apramattaḥ*—one who is without illusion; *guroḥ*—of the spiritual master; *hareḥ*—of the Supreme Personality of Godhead; *caraṇa*—of the lotus feet; *upāsanā-astraḥ*—applying the weapon of worshiping; *jahi*—conquer; *vyalīkam*—false; *svayam*—personally; *ātma-moṣam*—which covers the constitutional position of the living entity.

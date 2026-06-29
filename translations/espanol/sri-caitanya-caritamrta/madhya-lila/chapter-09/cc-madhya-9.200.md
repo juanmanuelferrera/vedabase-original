@@ -1,9 +1,9 @@
 ### CC Madhya 9.200
 
-> বিপ্র-সভায় শুনে তাঁহা কূর্ম-পুরাণ ৷
+> বিপ্র-সভায় শুনে তাঁহা কূর্ম-পুরাণ ৷\
 > তার মধ্যে আইলা পতিব্রতা-উপাখ্যান ৷৷ ২০০ ৷৷ ॥২০০॥
 
-> vipra-sabhāya śune tāṅhā kūrma-purāṇa
+> vipra-sabhāya śune tāṅhā kūrma-purāṇa\
 > tāra madhye āilā pativratā-upākhyāna
 
 *vipra-sabhāya*—entre la asamblea de brāhmaṇas; *śune*—escucha; *tāṅhā*—allí; *kūrma-purāṇa*—el Kūrma Purāṇa; *tāra madhye*—dentro de ese libro; *āilā*—hubo; *pati-vratā*—de la mujer casta; *upākhyāna*—narración.

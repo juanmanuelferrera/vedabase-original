@@ -1,9 +1,9 @@
 ### CC Antya 19.34
 
-> পূর্বে যেন বিশাখারে রাধিকা পুছিলা ।
+> পূর্বে যেন বিশাখারে রাধিকা পুছিলা ।\
 > সেই শ্লোক পড়ি’ প্রলাপ করিতে লাগিলা ॥৩৪॥
 
-> pūrve yena viśākhāre rādhikā puchilā
+> pūrve yena viśākhāre rādhikā puchilā\
 > sei śloka paḍi' pralāpa karite lāgilā
 
 *pūrve*—formerly; *yena*—as; *viśākhāre*—unto Viśākhā; *rādhikā*—Śrīmatī Rādhārāṇī; *puchilā*—inquired; *sei śloka*—that verse; *paḍi'*—reading; *pralāpa*—talking like a crazy man; *karite lāgilā*—began to do.

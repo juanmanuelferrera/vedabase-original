@@ -1,9 +1,9 @@
 ### CC Madhya 8.297
 
-> viṣaya chāḍiyā tumi yāha nīlācale
+> viṣaya chāḍiyā tumi yāha nīlācale\
 > āmi tīrtha kari' tāṅhā āsiba alpa-kāle
 
-> viṣaya chāḍiyā tumi yāha nīlācale
+> viṣaya chāḍiyā tumi yāha nīlācale\
 > āmi tīrtha kari' tāṅhā āsiba alpa-kāle
 
 *viṣaya*—ocupaciones materiales; *chāḍiyā*—abandonando; *tumi*—tú; *yāha*—ve; *nīlācale*—a Jagannātha Purī; *āmi*—Yo; *tīrtha kari'*—terminando Mi gira y peregrinaje; *tāṅhā*—allí; *āsiba*—regresaré; *alpa-kāle*—muy pronto.

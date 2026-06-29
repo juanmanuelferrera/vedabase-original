@@ -1,18 +1,18 @@
 ### SB 9.4.39-40
 
-> ब्राह्मणातिक्रमे दोषो द्वादश्यां यदपारणे
-> यत्कृत्वा साधु मे भूयादधर्मो वा न मां स्पृशेत ॥३९॥
-> अम्भसा केवलेनाथ करिष्ये व्रतपारणम
+> ब्राह्मणातिक्रमे दोषो द्वादश्यां यदपारणे\
+> यत्कृत्वा साधु मे भूयादधर्मो वा न मां स्पृशेत ॥३९॥\
+> अम्भसा केवलेनाथ करिष्ये व्रतपारणम\
 > आहुरब्भक्षणं विप्रा ह्यशितं नाशितं च तत ॥४०॥
 
-> brāhmaṇātikrame doṣo
-> dvādaśyāṁ yad apāraṇe
-> yat kṛtvā sādhu me bhūyād
+> brāhmaṇātikrame doṣo\
+> dvādaśyāṁ yad apāraṇe\
+> yat kṛtvā sādhu me bhūyād\
 > adharmo vā na māṁ spṛśet
 
-> ambhasā kevalenātha
-> kariṣye vrata-pāraṇam
-> āhur ab-bhakṣaṇaṁ viprā
+> ambhasā kevalenātha\
+> kariṣye vrata-pāraṇam\
+> āhur ab-bhakṣaṇaṁ viprā\
 > hy aśitaṁ nāśitaṁ ca tat
 
 *brāhmaṇa-atikrame*—in surpassing the rules of respect to the *brāhmaṇas*; *doṣaḥ*—there is a fault; *dvādaśyām*—on the Dvādaśī day; *yat*—because; *apāraṇe*—in not breaking the fast in due time; *yat kṛtvā*—after doing which action; *sādhu*—what is auspicious; *me*—unto me; *bhūyāt*—may so become; *adharmaḥ*—what is irreligious; *vā*—either; *na*—not; *mām*—unto me; *spṛśet*—may touch; *ambhasā*—by water; *kevalena*—only; *atha*—therefore; *kariṣye*—I shall execute; *vrata-pāraṇam*—the completion of the vow; *āhuḥ*—said; *ap-bhakṣaṇam*—drinking water; *viprāḥ*—O *brāhmaṇas*; *hi*—indeed; *aśitam*—eating; *na aśitam ca*—as well as not eating; *tat*—such an action.

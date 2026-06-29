@@ -1,9 +1,9 @@
 ### CC Antya 2.31
 
-> ‘গৌরগোপাল মন্ত্র’ তোমার চারি অক্ষর  ।
+> ‘গৌরগোপাল মন্ত্র’ তোমার চারি অক্ষর  ।\
 > অবিশ্বাস ছাড়, যেই করিয়াছ অন্তর ।।” ৩১ ॥৩১॥
 
-> 'gaura-gopāla mantra' tomāra cāri akṣara
+> 'gaura-gopāla mantra' tomāra cāri akṣara\
 > aviśvāsa chāḍa, yei kariyācha antara"
 
 *gaura-gopāla mantra*—el mantra Gaura-gopāla; *tomāra*—tu; *cāri akṣara*—compuesto de cuatro sílabas; *aviśvāsa chāḍa*—abandona tus dudas; *yei*—las cuales; *kariyācha antara*—has guardado en tu mente.

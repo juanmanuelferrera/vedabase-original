@@ -1,9 +1,9 @@
 ### CC Antya 5.3
 
-> জয়াদ্বৈত কৃপাসিন্ধু জয় ভক্তগণ ।
+> জয়াদ্বৈত কৃপাসিন্ধু জয় ভক্তগণ ।\
 > জয় স্বরূপ, গদাধর, রূপ, সনাতন ॥৩॥
 
-> jayādvaita kṛpā-sindhu jaya bhakta-gaṇa
+> jayādvaita kṛpā-sindhu jaya bhakta-gaṇa\
 > jaya svarūpa, gadādhara, rūpa, sanātana
 
 *jaya advaita*—todas las glorias a Advaita Prabhu; *kṛpā-sindhu*—el océano de misericordia; *jaya bhakta-gaṇa*—todas las glorias a los devotos; *jaya svarūpa*—todas las glorias a Svarūpa Dāmodara; *gadādhara*—Gadādhara Paṇḍita; *rūpa*—Śrīla Rūpa; *sanātana*—Sanātana Gosvāmī.

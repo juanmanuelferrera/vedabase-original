@@ -1,11 +1,11 @@
 ### SB 1.11.35
 
-> स एष नरलोकेऽस्मिन्नवतीर्णः स्वमायया ।
+> स एष नरलोकेऽस्मिन्नवतीर्णः स्वमायया ।\
 > रेमे स्त्रीरत्नकूटस्थो भगवान्प्राकृतो यथा ॥३५॥
 
-> sa eṣa nara-loke 'sminn
-> avatīrṇaḥ sva-māyayā
-> reme strī-ratna-kūṭastho
+> sa eṣa nara-loke 'sminn\
+> avatīrṇaḥ sva-māyayā\
+> reme strī-ratna-kūṭastho\
 > bhagavān prākṛto yathā
 
 *saḥ*—Él (la Suprema Personalidad de Dios); *eṣaḥ*—todos estos; *nara-loke*—en este planeta de seres humanos; *asmin*—en este; *avatīrṇaḥ*—habiendo aparecido; *sva*—personal interno; *māyayā*—misericordia sin causa; *reme*—disfrutó; *strī-ratna*—mujer que es apta para convertirse en esposa del Señor; *kūṭasthaḥ*—entre; *bhagavān*—la Personalidad de Dios; *prākṛtaḥ*—mundano; *yathā*—como si fuera.

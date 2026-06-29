@@ -1,9 +1,9 @@
 ### CC Adi 17.141
 
-> কীর্তনের ধ্বনিতে কাজী লুকাইল ঘরে ।
+> কীর্তনের ধ্বনিতে কাজী লুকাইল ঘরে ।\
 > তর্জন গর্জন শুনি’ না হয় বাহিরে ॥১৪১॥
 
-> kīrtanera dhvanite kājī lukāila ghare
+> kīrtanera dhvanite kājī lukāila ghare\
 > tarjana garjana śuni' nā haya bāhire
 
 *kīrtanera*—of the *saṅkīrtana* movement; *dhvanite*—by the sound; *kājī*—the Chand Kazi; *lukāila*—hid himself; *ghare*—in the room; *tarjana*—murmuring; *garjana*—protesting; *śuni'*—hearing; *nā*—does not; *haya*—come out; *bāhire*—outside.

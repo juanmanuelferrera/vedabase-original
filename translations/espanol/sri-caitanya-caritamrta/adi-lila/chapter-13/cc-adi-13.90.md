@@ -1,9 +1,9 @@
 ### CC Adi 13.90
 
-> siṁha-rāśi, siṁha-lagna, ucca graha-gaṇa
+> siṁha-rāśi, siṁha-lagna, ucca graha-gaṇa\
 > ṣaḍ-varga, aṣṭa-varga, sarva sulakṣaṇa
 
-> siṁha-rāśi, siṁha-lagna, ucca graha-gaṇa
+> siṁha-rāśi, siṁha-lagna, ucca graha-gaṇa\
 > ṣaḍ-varga, aṣṭa-varga, sarva sulakṣaṇa
 
 *siṁha*—el león; *rāśi*—signo del zodíaco; *siṁha*—el león; *lagna*—momento del nacimiento; *ucca*—elevados; *graha-gaṇa*—todos los planetas; *ṣaṭ-varga*—seis áreas; *aṣṭa-varga*—ocho áreas; *sarva*—todo; *su-lakṣaṇa*—propicio.

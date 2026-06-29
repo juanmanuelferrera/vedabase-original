@@ -1,9 +1,9 @@
 ### CC Adi 17.213
 
-> গ্রামের ঠাকুর তুমি, সব তোমার জন ।
+> গ্রামের ঠাকুর তুমি, সব তোমার জন ।\
 > নিমাই বোলাইয়া তারে করহ বর্জন ॥২১৩॥
 
-> grāmera ṭhākura tumi, saba tomāra jana
+> grāmera ṭhākura tumi, saba tomāra jana\
 > nimāi bolāiyā tāre karaha varjana
 
 *grāmera*—de esta ciudad; *ṭhākura*—el gobernante; *tumi*—tú; *saba*—todos; *tomāra*—tus; *jana*—súbditos; *nimāi*—Nimāi Paṇḍita; *bolāiyā*—llamando; *tāre*—a Él; *karaha*—hazle; *varjana*—el castigo de hacerle abandonar la ciudad.

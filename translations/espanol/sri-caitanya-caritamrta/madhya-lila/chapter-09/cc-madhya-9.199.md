@@ -1,9 +1,9 @@
 ### CC Madhya 9.199
 
-> সেতুবন্ধে আসি’ কৈল ধনুস্তীর্থে স্নান ৷
+> সেতুবন্ধে আসি’ কৈল ধনুস্তীর্থে স্নান ৷\
 > রামেশ্বর দেখি’ তাহাঁ করিল বিশ্রাম ৷৷ ১৯৯ ৷৷ ॥১৯৯॥
 
-> setubandhe āsi' kaila dhanustīrthe snāna
+> setubandhe āsi' kaila dhanustīrthe snāna\
 > rāmeśvara dekhi' tāhāṅ karila viśrāma
 
 *setubandhe āsi'*—llegando a Setubandha; *kaila*—hizo; *dhanuḥ-tīrthe snāna*—bañarse en el lugar sagrado conocido como Dhanustīrtha; *rāmeśvara dekhi'*—visitando el lugar sagrado de Rāmeśvara; *tāhāṅ*—allí; *karila viśrāma*—descansó.

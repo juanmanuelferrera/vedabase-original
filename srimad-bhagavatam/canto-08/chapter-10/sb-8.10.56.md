@@ -1,11 +1,11 @@
 ### SB 8.10.56
 
-> दृष्ट्वा मृधे गरुडवाहमिभारिवाह आविध्य शूलमहिनोदथ कालनेमिः
+> दृष्ट्वा मृधे गरुडवाहमिभारिवाह आविध्य शूलमहिनोदथ कालनेमिः\
 > तल्लीलया गरुडमूर्ध्नि पतद्गृहीत्वा तेनाहनन्नृप सवाहमरिं त्र्यधीशः ॥५६॥
 
-> dṛṣṭvā mṛdhe garuḍa-vāham ibhāri-vāha
-> āvidhya śūlam ahinod atha kālanemiḥ
-> tal līlayā garuḍa-mūrdhni patad gṛhītvā
+> dṛṣṭvā mṛdhe garuḍa-vāham ibhāri-vāha\
+> āvidhya śūlam ahinod atha kālanemiḥ\
+> tal līlayā garuḍa-mūrdhni patad gṛhītvā\
 > tenāhanan nṛpa savāham ariṁ tryadhīśaḥ
 
 *dṛṣṭvā*—seeing; *mṛdhe*—on the battlefield; *garuḍa-vāham*—the Supreme Personality of Godhead, carried by Garuḍa; *ibhāri-vāhaḥ*—the demon, who was carried by a big lion; *āvidhya*—whirling around; *śūlam*—trident; *ahinot*—discharged at him; *atha*—thus; *kālanemiḥ*—the demon Kālanemi; *tat*—such an attack by the demon against the Supreme Lord; *līlayā*—very easily; *garuḍa-mūrdhni*—on the head of His carrier, Garuḍa; *patat*—while falling down; *gṛhītvā*—after taking it immediately, without difficulty; *tena*—and by the same weapon; *ahanat*—killed; *nṛpa*—O King; *sa-vāham*—with his carrier; *arim*—the enemy; *tri-adhīśaḥ*—the Supreme Personality of Godhead, the proprietor of the three worlds.

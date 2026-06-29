@@ -1,11 +1,11 @@
 ### SB 3.26.25
 
-> सहस्रशिरसं साक्षाद्यमनन्तं प्रचक्षते ।
+> सहस्रशिरसं साक्षाद्यमनन्तं प्रचक्षते ।\
 > सङ्कर्षणाख्यं पुरुषं भूतेन्द्रियमनोमयम् ॥२५॥
 
-> sahasra-śirasaṁ sākṣād
-> yam anantaṁ pracakṣate
-> saṅkarṣaṇākhyaṁ puruṣaṁ
+> sahasra-śirasaṁ sākṣād\
+> yam anantaṁ pracakṣate\
+> saṅkarṣaṇākhyaṁ puruṣaṁ\
 > bhūtendriya-manomayam
 
 *sahasra-śirasam*—with a thousand heads; *sākṣāt*—directly; *yam*—whom; *anantam*—Ananta; *pracakṣate*—they all; *saṅkarṣaṇa-ākhyam*—Saṅkarṣaṇa by name; *puruṣam*—the Supreme Personality of Godhead; *bhūta*—the gross elements; *indriya*—the senses; *manaḥ-mayam*—consisting of the mind.

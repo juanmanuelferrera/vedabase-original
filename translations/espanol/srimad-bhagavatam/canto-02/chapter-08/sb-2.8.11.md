@@ -1,11 +1,11 @@
 ### SB 2.8.11
 
-> पुरुषावयवैर्लोकाः सपालाः पूर्वकल्पिताः ।
+> पुरुषावयवैर्लोकाः सपालाः पूर्वकल्पिताः ।\
 > लोकैरमुष्यावयवाः सपालैरिति शुश्रुम ॥११॥
 
-> puruṣāvayavair lokāḥ
-> sapālāḥ pūrva-kalpitāḥ
-> lokair amuṣyāvayavāḥ
+> puruṣāvayavair lokāḥ\
+> sapālāḥ pūrva-kalpitāḥ\
+> lokair amuṣyāvayavāḥ\
 > sa-pālair iti śuśruma
 
 *puruṣa*—la forma universal del Señor (*virāt-puruṣaḥ*); *avayavaiḥ*—por diferentes partes del cuerpo; *lokāḥ*—el sistema planetario; *sa-pālāḥ*—con gobernadores respectivos; *pūrva*—anteriormente; *kalpitāḥ*—se discutió; *lokaiḥ*—por los diferentes sistemas planetarios; *amuṣya*—Su; *avayavāḥ*—diferentes partes del cuerpo; *sa-pālaiḥ*—con los gobernadores; *iti*—así; *śuśruma*—yo oí.

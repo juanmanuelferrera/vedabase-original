@@ -1,9 +1,9 @@
 ### CC Madhya 20.52
 
-> প্রভুস্পর্শে প্রেমাবিষ্ট হইলা সনাতন ।
+> প্রভুস্পর্শে প্রেমাবিষ্ট হইলা সনাতন ।\
 > ‘মোরে না ছুঁইহ’ — কহে গদ্গদ-বচন ॥৫২॥
 
-> prabhu-sparśe premāviṣṭa ha-ilā sanātana
+> prabhu-sparśe premāviṣṭa ha-ilā sanātana\
 > 'more nā chuṅiha'—kahe gadgada-vacana
 
 *prabhu-sparśe*—by the touch of Śrī Caitanya Mahāprabhu; *prema-āviṣṭa*—overwhelmed with ecstatic love; *ha-ilā*—became; *sanātana*—Sanātana Gosvāmī; *more*—me; *nā*—do not; *chuṅiha*—touch; *kahe*—says; *gadgada-vacana*—in a faltering voice.

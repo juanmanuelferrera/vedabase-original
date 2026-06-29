@@ -1,11 +1,11 @@
 ### SB 1.17.37
 
-> तन्मे धर्मभृतां श्रेष्ठ स्थानं निर्देष्टुमर्हसि ।
+> तन्मे धर्मभृतां श्रेष्ठ स्थानं निर्देष्टुमर्हसि ।\
 > यत्रैव नियतो वत्स्य आतिष्ठंस्तेऽनुशासनम् ॥३७॥
 
-> tan me dharma-bhṛtāṁ śreṣṭha
-> sthānaṁ nirdeṣṭum arhasi
-> yatraiva niyato vatsya
+> tan me dharma-bhṛtāṁ śreṣṭha\
+> sthānaṁ nirdeṣṭum arhasi\
+> yatraiva niyato vatsya\
 > ātiṣṭhaṁs te 'nuśāsanam
 
 *tat*—por lo tanto; *me*—a mí; *dharma-bhṛtām*—de todos los protectores de la religión; *śreṣṭha*—¡oh, tú, el principal!; *sthānam*—lugar; *nirdeṣṭum*—señala; *arhasi*—que así lo hagas; *yatra*—donde; *eva*—ciertamente; *niyataḥ*—siempre; *vatsye*—pueda residir; *ātiṣṭhan*—situado permanentemente; *te*—tu; *anuśāsanam*—bajo tu gobierno.

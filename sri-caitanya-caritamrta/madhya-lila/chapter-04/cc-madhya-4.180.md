@@ -1,9 +1,9 @@
 ### CC Madhya 4.180
 
-> হেন-জন গোপালের আজ্ঞামৃত পাঞা ।
+> হেন-জন গোপালের আজ্ঞামৃত পাঞা ।\
 > সহস্র ক্রোশ আসি’ বুলে চন্দন মাগিঞা ॥১৮০॥
 
-> hena-jana gopālera ājñāmṛta pāñā
+> hena-jana gopālera ājñāmṛta pāñā\
 > sahasra krośa āsi' bule candana māgiñā
 
 *hena-jana*—such a personality; *gopālera*—of the Gopāla Deity; *ājñā-amṛta*—the nectarean order; *pāñā*—getting; *sahasra*—a thousand; *krośa*—a distance of two miles; *āsi'*—coming; *bule*—walks; *candana*—sandalwood; *māgiñā*—begging.

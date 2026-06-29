@@ -1,11 +1,11 @@
 ### SB 7.14.16
 
-> यर्ह्यात्मनोऽधिकाराद्याः सर्वाः स्युर्यज्ञअसम्पदः
+> यर्ह्यात्मनोऽधिकाराद्याः सर्वाः स्युर्यज्ञअसम्पदः\
 > वैतानिकेन विधिना अग्निहोत्रादिना यजेत ॥१६॥
 
-> yarhy ātmano 'dhikārādyāḥ
-> sarvāḥ syur yajña-sampadaḥ
-> vaitānikena vidhinā
+> yarhy ātmano 'dhikārādyāḥ\
+> sarvāḥ syur yajña-sampadaḥ\
+> vaitānikena vidhinā\
 > agni-hotrādinā yajet
 
 *yarhi*—cuando; *ātmanaḥ*—del propio ser; *adhikāra-ādyāḥ*—cosas poseídas por él con plena potestad; *sarvāḥ*—todo; *syuḥ*—se vuelve; *yajña-sampadaḥ*—artículos para la celebración de *yajña*, o medios para complacer a la Suprema Personalidad de Dios; *vaitānikena*—con libros autorizados que dirigen la celebración de *yajña*; *vidhinā*—conforme a los principios regulativos; *agni-hotra-ādinā*—ofreciendo sacrificios al fuego, etc.; *yajet*—se debe adorar a la Suprema Personalidad de Dios.

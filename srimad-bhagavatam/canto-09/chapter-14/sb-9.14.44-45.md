@@ -1,18 +1,18 @@
 ### SB 9.14.44-45
 
-> स्थालीस्थानं गतोऽश्वत्थं शमीगर्भं विलक्ष्य सः
-> तेन द्वे अरणी कृत्वा उर्वशीलोककाम्यया ॥४४॥
-> उर्वशीं मन्त्रतो ध्यायन्नधरारणिमुत्तराम
+> स्थालीस्थानं गतोऽश्वत्थं शमीगर्भं विलक्ष्य सः\
+> तेन द्वे अरणी कृत्वा उर्वशीलोककाम्यया ॥४४॥\
+> उर्वशीं मन्त्रतो ध्यायन्नधरारणिमुत्तराम\
 > आत्मानमुभयोर्मध्ये यत्तत्प्रजननं प्रभुः ॥४५॥
 
-> sthālī-sthānaṁ gato 'śvatthaṁ
-> śamī-garbhaṁ vilakṣya saḥ
-> tena dve araṇī kṛtvā
+> sthālī-sthānaṁ gato 'śvatthaṁ\
+> śamī-garbhaṁ vilakṣya saḥ\
+> tena dve araṇī kṛtvā\
 > urvaśī-loka-kāmyayā
 
-> urvaśīṁ mantrato dhyāyann
-> adharāraṇim uttarām
-> ātmānam ubhayor madhye
+> urvaśīṁ mantrato dhyāyann\
+> adharāraṇim uttarām\
+> ātmānam ubhayor madhye\
 > yat tat prajananaṁ prabhuḥ
 
 *sthālī-sthānam*—the place where Agnisthālī was left; *gataḥ*—going there; *aśvattham*—an *aśvattha* tree; *śamī-garbham*—produced from the womb of the *śamī* tree; *vilakṣya*—seeing; *saḥ*—he, Purūravā; *tena*—from that; *dve*—two; *araṇī*—pieces of wood required for igniting a fire for sacrifice; *kṛtvā*—making; *urvaśī-loka-kāmyayā*—desiring to go to the planet where Urvaśī was present; *urvaśīm*—Urvaśī; *mantrataḥ*—by chanting the required *mantra*; *dhyāyan*—meditating upon; *adhara*—lower; *araṇim*—*araṇi* wood; *uttarām*—and the upper one; *ātmānam*—himself; *ubhayoḥ madhye*—in between the two; *yat tat*—that which (he meditated upon); *prajananam*—as a son; *prabhuḥ*—the King.

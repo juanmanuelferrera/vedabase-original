@@ -1,11 +1,11 @@
 ### SB 1.16.17
 
-> तस्यैवं वर्तमानस्य पूर्वेषां वृत्तिमन्वहम् ।
+> तस्यैवं वर्तमानस्य पूर्वेषां वृत्तिमन्वहम् ।\
 > नातिदूरे किलाश्चर्यं यदासीत्तन्निबोध मे ॥१७॥
 
-> tasyaivaṁ vartamānasya
-> pūrveṣāṁ vṛttim anvaham
-> nātidūre kilāścaryaṁ
+> tasyaivaṁ vartamānasya\
+> pūrveṣāṁ vṛttim anvaham\
+> nātidūre kilāścaryaṁ\
 > yad āsīt tan nibodha me
 
 *tasya*—of Mahārāja Parīkṣit; *evam*—thus; *vartamānasya*—remaining absorbed in such thought; *pūrveṣām*—of his forefathers; *vṛttim*—good engagement; *anvaham*—day after day; *na*—not; *ati-dūre*—far off; *kila*—verily; *āścaryam*—astonishing; *yat*—that; *āsīt*—was; *tat*—which; *nibodha*—know it; *me*—from me.

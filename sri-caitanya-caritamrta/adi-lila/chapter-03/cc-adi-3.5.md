@@ -1,9 +1,9 @@
 ### CC Adi 3.5
 
-> পূর্ণ ভগবান্ কৃষ্ণ ব্রজেন্দ্রকুমার ।
+> পূর্ণ ভগবান্ কৃষ্ণ ব্রজেন্দ্রকুমার ।\
 > গোলোকে ব্রজের সহ নিত্য বিহার ॥৫॥
 
-> pūrṇa bhagavān kṛṣṇa vrajendra-kumāra
+> pūrṇa bhagavān kṛṣṇa vrajendra-kumāra\
 > goloke vrajera saha nitya vihāra
 
 *pūrṇa*—full; *bhagavān*—the Supreme Personality of Godhead; *kṛṣṇa*—Lord Kṛṣṇa; *vrajendra-kumāra*—the son of the King of Vraja; *goloke*—in Goloka; *vrajerasaha*—along with Vrajadhāma; *nitya*—eternal; *vihāra*—pastimes.

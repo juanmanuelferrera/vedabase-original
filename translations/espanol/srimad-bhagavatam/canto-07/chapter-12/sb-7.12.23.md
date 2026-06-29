@@ -1,11 +1,11 @@
 ### SB 7.12.23
 
-> यदाकल्पः स्वक्रियायां व्याधिभिर्जरयाथवा
+> यदाकल्पः स्वक्रियायां व्याधिभिर्जरयाथवा\
 > आन्वीक्षिक्यां वा विद्यायां कुर्यादनशनादिकम ॥२३॥
 
-> yadākalpaḥ sva-kriyāyāṁ
-> vyādhibhir jarayāthavā
-> ānvīkṣikyāṁ vā vidyāyāṁ
+> yadākalpaḥ sva-kriyāyāṁ\
+> vyādhibhir jarayāthavā\
+> ānvīkṣikyāṁ vā vidyāyāṁ\
 > kuryād anaśanādikam
 
 *yadā*—cuando; *akalpaḥ*—incapaz de actuar; *sva-kriyāyām*—en los propios deberes prescritos; *vyādhibhiḥ*—debido a la enfermedad; *jarayā*—o debido a la vejez; *athavā*—o; *ānvīkṣikyām*—en el avance espiritual; *vā*—o; *vidyāyām*—en el avance en el conocimiento; *kuryāt*—debe hacer; *anaśana-ādikam*—no tomar suficiente alimento.

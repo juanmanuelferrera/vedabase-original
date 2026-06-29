@@ -1,11 +1,11 @@
 ### SB 5.18.36
 
-> यस्य स्वरूपं कवयो विपश्चितो गुणेषु दारुष्विव जातवेदसम
+> यस्य स्वरूपं कवयो विपश्चितो गुणेषु दारुष्विव जातवेदसम\
 > मथ्नन्ति मथ्ना मनसा दिदृक्षवो गूढं क्रियार्थैर्नम ईरितात्मने ॥३६॥
 
-> yasya svarūpaṁ kavayo vipaścito
-> guṇeṣu dāruṣv iva jāta-vedasam
-> mathnanti mathnā manasā didṛkṣavo
+> yasya svarūpaṁ kavayo vipaścito\
+> guṇeṣu dāruṣv iva jāta-vedasam\
+> mathnanti mathnā manasā didṛkṣavo\
 > gūḍhaṁ kriyārthair nama īritātmane
 
 *yasya*—whose; *sva-rūpam*—form; *kavayaḥ*—the greatly learned sages; *vipaścitaḥ*—expert in ascertaining the Absolute Truth; *guṇeṣu*—in the material manifestation, consisting of the three modes of nature; *dāruṣu*—in wood; *iva*—like; *jāta*—manifested; *vedasam*—fire; *mathnanti*—stir; *mathnā*—with a piece of wood used for producing fire; *manasā*—by the mind; *didṛkṣavaḥ*—who are inquisitive; *gūḍham*—hidden; *kriyā-arthaiḥ*—by fruitive activities and their results; *namaḥ*—respectful obeisances; *īrita-ātmane*—unto the Lord, who is manifested.

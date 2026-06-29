@@ -1,11 +1,11 @@
 ### Bg 4.30
 
-> सर्वेऽप्येते यज्ञविदो यज्ञक्षपितकल्मषाः ।
+> सर्वेऽप्येते यज्ञविदो यज्ञक्षपितकल्मषाः ।\
 > यज्ञशिष्टामृत भुजो यान्ति ब्रह्मा सनातनम् ॥३०॥
 
-> sarve'py ete yajña-vido
-> yajña-kṣapita-kalmaṣāḥ
-> yajña-śiṣṭāmṛta-bhujo
+> sarve'py ete yajña-vido\
+> yajña-kṣapita-kalmaṣāḥ\
+> yajña-śiṣṭāmṛta-bhujo\
 > yānti brahma sanātanam
 
 *sarve*—todos; *api*—aunque aparentemente diferentes; *ete*—todos estos; *yajña-vidaḥ*—versados en el propósito de la ejecución; *yajña*—sacrificios; *kṣapita*—estando limpios del resultado de dichas ejecuciones; *kalmaṣāḥ*—reacciones pecaminosas; *yajña-śiṣṭa*—como resultado de dichas ejecuciones de yajña; *amṛta-bhujaḥ*—aquellos que han probado ese néctar; *yānti*—se acercan; *brahma*—la suprema; *sanātanam*—atmósfera eterna.

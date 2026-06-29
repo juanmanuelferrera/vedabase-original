@@ -1,11 +1,11 @@
 ### CC Antya 19.70
 
-> ইতি-ব্রুবাণং বিদুরং বিনীতং সহস্রশীর্ষ্ণশ্চরণোপধানম্ ।
+> ইতি-ব্রুবাণং বিদুরং বিনীতং সহস্রশীর্ষ্ণশ্চরণোপধানম্ ।\
 > প্রহৃষ্টরোমা ভগবৎকথায়াং প্রণীয়মানো মুনিরভ্যচষ্ট ॥৭০॥
 
-> iti bruvāṇaṁ viduraṁ vinītaṁ
-> sahasra-śīrṣṇaś caraṇopadhānam
-> prahṛṣṭa-romā bhagavat-kathāyāṁ
+> iti bruvāṇaṁ viduraṁ vinītaṁ\
+> sahasra-śīrṣṇaś caraṇopadhānam\
+> prahṛṣṭa-romā bhagavat-kathāyāṁ\
 > praṇīyamāno munir abhyacaṣṭa
 
 *iti*—así; *bruvāṇam*—hablando; *viduram*—a Vidura; *vinītam*—sumiso; *sahasra-śīrṣṇaḥ*—del Señor Kṛṣṇa; *caraṇa-upadhānam*—la almohada para descansar las piernas; *prahṛṣṭa-romā*—cuyos vellos del cuerpo se erizaron; *bhagavat-kathāyām*—en temas acerca de la Suprema Personalidad de Dios; *praṇīyamānaḥ*—siendo inducido; *muniḥ*—el gran sabio Maitreya; *abhyacaṣṭa*—comenzó a hablar.

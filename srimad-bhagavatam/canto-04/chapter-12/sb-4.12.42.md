@@ -1,11 +1,11 @@
 ### SB 4.12.42
 
-> यः पञ्चवर्षो गुरुदारवाक्षरैर्भिन्नेन यातो हृदयेन दूयता ।
+> यः पञ्चवर्षो गुरुदारवाक्षरैर्भिन्नेन यातो हृदयेन दूयता ।\
 > वनं मदादेशकरोऽजितं प्रभुं जिगाय तद्भक्तगुणैः पराजितम् ॥४२॥
 
-> yaḥ pañca-varṣo guru-dāra-vāk-śarair
-> bhinnena yāto hṛdayena dūyatā
-> vanaṁ mad-ādeśa-karo 'jitaṁ prabhuṁ
+> yaḥ pañca-varṣo guru-dāra-vāk-śarair\
+> bhinnena yāto hṛdayena dūyatā\
+> vanaṁ mad-ādeśa-karo 'jitaṁ prabhuṁ\
 > jigāya tad-bhakta-guṇaiḥ parājitam
 
 *yaḥ*—he who; *pañca-varṣaḥ*—at the age of five years; *guru-dāra*—of the wife of his father; *vāk-śaraiḥ*—by the harsh words; *bhinnena*—being very much aggrieved; *yātaḥ*—went; *hṛdayena*—because his heart; *dūyatā*—very much pained; *vanam*—to the forest; *mat-ādeśa*—according to my instruction; *karaḥ*—acting; *ajitam*—unconquerable; *prabhum*—the Supreme Personality of Godhead; *jigāya*—he defeated; *tat*—His; *bhakta*—of devotees; *guṇaiḥ*—with the qualities; *parājitam*—conquered.

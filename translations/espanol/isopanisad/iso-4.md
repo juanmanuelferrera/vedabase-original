@@ -1,11 +1,11 @@
 ### Īśo 4
 
-> अनेजदेकं मनसो जवीयो नैनद्देवा आप्नुवन्पूर्वमर्षत्।
+> अनेजदेकं मनसो जवीयो नैनद्देवा आप्नुवन्पूर्वमर्षत्।\
 > तद्धावतोऽन्यानत्येति तिष्ठत्तस्मिन्नपो मातरिश्वा दधाति॥४॥
 
-> anejad ekaṁ manaso javīyo
-> nainad devā āpnuvan pūrvam arṣat
-> tad dhāvato 'nyān atyeti tiṣṭhat
+> anejad ekaṁ manaso javīyo\
+> nainad devā āpnuvan pūrvam arṣat\
+> tad dhāvato 'nyān atyeti tiṣṭhat\
 > tasminn apo mātariśvā dadhāti
 
 *anejat*—fijo; *ekam*—uno; *manasaḥ*—que la mente; *javīyaḥ*—más veloz; *na*—no; *enat*—este Señor Supremo; *devāḥ*—los semidioses como Indra, etc.; *āpnuvan*—pueden aproximarse; *pūrvam*—delante; *arṣat*—moviéndose rápidamente; *tat*—Él; *dhāvataḥ*—los que corren; *anyān*—a otros; *atyeti*—sobrepasa; *tiṣṭhat*—permaneciendo en un lugar; *tasmin*—en Él; *apaḥ*—la lluvia; *mātariśvā*—los dioses que controlan el viento y la lluvia; *dadhāti*—suministran.

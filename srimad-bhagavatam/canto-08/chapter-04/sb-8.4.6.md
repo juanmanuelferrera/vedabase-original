@@ -1,11 +1,11 @@
 ### SB 8.4.6
 
-> गजेन्द्रो भगवत्स्पर्शाद्विमुक्तोऽज्ञआनबन्धनात
+> गजेन्द्रो भगवत्स्पर्शाद्विमुक्तोऽज्ञआनबन्धनात\
 > प्राप्तो भगवतो रूपं पीतवासाश्चतुर्भुजः ॥६॥
 
-> gajendro bhagavat-sparśād
-> vimukto 'jñāna-bandhanāt
-> prāpto bhagavato rūpaṁ
+> gajendro bhagavat-sparśād\
+> vimukto 'jñāna-bandhanāt\
+> prāpto bhagavato rūpaṁ\
 > pīta-vāsāś catur-bhujaḥ
 
 *gajendraḥ*—the King of the elephants, Gajendra; *bhagavat-sparśāt*—because of being touched by the hand of the Supreme Personality of Godhead; *vimuktaḥ*—was immediately freed; *ajñāna-bandhanāt*—from all kinds of ignorance, especially the bodily concept of life; *prāptaḥ*—achieved; *bhagavataḥ*—of the Supreme Personality of Godhead; *rūpam*—the same bodily features; *pīta-vāsāḥ*—wearing yellow garments; *catuḥ-bhujaḥ*—and four-handed, with conchshell, disc, club and lotus.

@@ -1,9 +1,9 @@
 ### CC Madhya 23.46
 
-> এই পঞ্চ স্থায়ী ভাব হয় পঞ্চ ‘রস’ ।
+> এই পঞ্চ স্থায়ী ভাব হয় পঞ্চ ‘রস’ ।\
 > যে-রসে ভক্ত ‘সুখী’, কৃষ্ণ হয় ‘বশ’ ॥৪৬॥
 
-> ei pañca sthāyī bhāva haya pañca 'rasa'
+> ei pañca sthāyī bhāva haya pañca 'rasa'\
 > ye-rase bhakta 'sukhī', kṛṣṇa haya 'vaśa'
 
 *ei pañca*—these five kinds of transcendental mellow; *sthāyī bhāva*—permanent ecstatic moods; *haya*—become; *pañca rasa*—five kinds of transcendental mellow; *ye-rase*—in a particular mellow; *bhakta sukhī*—a devotee becomes happy; *kṛṣṇa*—Lord Kṛṣṇa; *haya*—becomes; *vaśa*—under the control.

@@ -1,13 +1,13 @@
 ### SB 2.9.31
 
-> श्रीभगवानुवाच
-> ज्ञानं परमगुह्यं मे यद्विज्ञानसमन्वितम् ।
+> श्रीभगवानुवाच\
+> ज्ञानं परमगुह्यं मे यद्विज्ञानसमन्वितम् ।\
 > सरहस्यं तदङ्गं च गृहाण गदितं मया ॥३१॥
 
-> śrī-bhagavān uvāca
-> jñānaṁ parama-guhyaṁ me
-> yad vijñāna-samanvitam
-> sarahasyaṁ tad-aṅgaṁ ca
+> śrī-bhagavān uvāca\
+> jñānaṁ parama-guhyaṁ me\
+> yad vijñāna-samanvitam\
+> sarahasyaṁ tad-aṅgaṁ ca\
 > gṛhāṇa gaditaṁ mayā
 
 *śrī-bhagavān uvāca*—the Personality of Godhead said; *jñānam*—knowledge acquired; *parama*—extremely; *guhyam*—confidential; *me*—of Me; *yat*—which is; *vijñāna*—realization; *samanvitam*—coordinated; *sa-rahasyam*—with devotional service; *tat*—of that; *aṅgam ca*—necessary paraphernalia; *gṛhāṇa*—just try to take up; *gaditam*—explained; *mayā*—by Me.

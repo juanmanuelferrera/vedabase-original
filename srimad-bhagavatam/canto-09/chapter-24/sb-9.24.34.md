@@ -1,11 +1,11 @@
 ### SB 9.24.34
 
-> अमोघं देवसन्दर्शमादधे त्वयि चात्मजम
+> अमोघं देवसन्दर्शमादधे त्वयि चात्मजम\
 > योनिर्यथा न दुष्येत कर्ताहं ते सुमध्यमे ॥३४॥
 
-> amoghaṁ deva-sandarśam
-> ādadhe tvayi cātmajam
-> yonir yathā na duṣyeta
+> amoghaṁ deva-sandarśam\
+> ādadhe tvayi cātmajam\
+> yonir yathā na duṣyeta\
 > kartāhaṁ te sumadhyame
 
 *amogham*—without failure; *deva-sandarśam*—meeting with the demigods; *ādadhe*—I shall give (my semen); *tvayi*—unto you; *ca*—also; *ātmajam*—a son; *yoniḥ*—the source of birth; *yathā*—as; *na*—not; *duṣyeta*—becomes polluted; *kartā*—shall arrange; *aham*—I; *te*—unto you; *sumadhyame*—O beautiful girl.

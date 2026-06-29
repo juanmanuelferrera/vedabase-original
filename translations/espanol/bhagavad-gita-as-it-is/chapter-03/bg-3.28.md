@@ -1,11 +1,11 @@
 ### Bg 3.28
 
-> तत्त्ववित्तु महाबाहो गुणकर्मविभागयोः ।
+> तत्त्ववित्तु महाबाहो गुणकर्मविभागयोः ।\
 > गुणा गुणेषु वर्तन्त इति मत्वा न सज्जते ॥२८॥
 
-> tattvavit tu mahā-bāho
-> guṇa-karma-vibhāgayoḥ
-> guṇā guṇeṣu vartanta
+> tattvavit tu mahā-bāho\
+> guṇa-karma-vibhāgayoḥ\
+> guṇā guṇeṣu vartanta\
 > iti matvā na sajjate
 
 *tattvavit*—el conocedor de la Verdad Absoluta; *tu*—pero; *mahā-bāho*—¡oh, el de los poderosos brazos!; *guṇa-karma*—trabajos que están bajo la influencia material; *vibhāgayoḥ*—diferencias; *guṇāḥ*—sentidos; *guṇeṣu*—en la gratificación de los sentidos; *vartante*—siendo ocupados; *iti*—así pues; *matvā*—pensando; *na*—nunca; *sajjate*—se apega.

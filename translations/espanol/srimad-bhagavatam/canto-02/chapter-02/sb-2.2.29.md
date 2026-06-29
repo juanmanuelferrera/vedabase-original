@@ -1,11 +1,11 @@
 ### SB 2.2.29
 
-> घ्राणेन गन्धं रसनेन वै रसं रूपं च दृष्ट्या श्वसनं त्वचैव ।
+> घ्राणेन गन्धं रसनेन वै रसं रूपं च दृष्ट्या श्वसनं त्वचैव ।\
 > श्रोत्रेण चोपेत्य नभोगुणत्वं प्राणेन चाकूतिमुपैति योगी ॥२९॥
 
-> ghrāṇena gandhaṁ rasanena vai rasaṁ
-> rūpaṁ ca dṛṣṭyā śvasanaṁ tvacaiva
-> śrotreṇa copetya nabho-guṇatvaṁ
+> ghrāṇena gandhaṁ rasanena vai rasaṁ\
+> rūpaṁ ca dṛṣṭyā śvasanaṁ tvacaiva\
+> śrotreṇa copetya nabho-guṇatvaṁ\
 > prāṇena cākūtim upaiti yogī
 
 *ghrāṇena*—oliendo; *gandham*—aroma; *rasanena*—mediante el sabor; *vai*—exactamente; *rasam*—paladar; *rūpam*—formas; *ca*—también; *dṛṣṭyā*—mediante la visión; *śvasanam*—contacto; *tvacā*—tacto; *eva*—como si fuera; *śrotreṇa*—mediante la vibración del oído; *ca*—también; *upetya*—logrando; *nabhaḥ-guṇatvam*—identificación del éter; *prāṇena*—mediante los órganos de los sentidos; *ca*—también; *ākūtim*—actividades materiales; *upaiti*—consigue; *yogī*—el devoto.

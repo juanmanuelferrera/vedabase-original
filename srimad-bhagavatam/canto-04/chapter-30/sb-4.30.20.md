@@ -1,11 +1,11 @@
 ### SB 4.30.20
 
-> नव्यवद्धृदये यज्ज्ञो ब्रह्मैतद्ब्रह्मवादिभिः ।
+> नव्यवद्धृदये यज्ज्ञो ब्रह्मैतद्ब्रह्मवादिभिः ।\
 > न मुह्यन्ति न शोचन्ति न हृष्यन्ति यतो गताः ॥२०॥
 
-> navyavad dhṛdaye yaj jño
-> brahmaitad brahma-vādibhiḥ
-> na muhyanti na śocanti
+> navyavad dhṛdaye yaj jño\
+> brahmaitad brahma-vādibhiḥ\
+> na muhyanti na śocanti\
 > na hṛṣyanti yato gatāḥ
 
 *navya-vat*—ever-increasingly fresh; *hṛdaye*—in the heart; *yat*—as; *jñaḥ*—the supreme knower, Paramātmā; *brahma*—Brahman; *etat*—this; *brahma-vādibhiḥ*—by the advocates of the Absolute Truth; *na*—never; *muhyanti*—are bewildered; *na*—never; *śocanti*—lament; *na*—never; *hṛṣyanti*—are jubilant; *yataḥ*—when; *gatāḥ*—have attained.

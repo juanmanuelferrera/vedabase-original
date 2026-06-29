@@ -1,11 +1,11 @@
 ### SB 4.31.28
 
-> इमां तु कौषारविणोपवर्णितां क्षत्ता निशम्याजितवादसत्कथाम् ।
+> इमां तु कौषारविणोपवर्णितां क्षत्ता निशम्याजितवादसत्कथाम् ।\
 > प्रवृद्धभावोऽश्रुकलाकुलो मुनेर्दधार मूर्ध्ना चरणं हृदा हरेः ॥२८॥
 
-> imāṁ tu kauṣāraviṇopavarṇitāṁ
-> kṣattā niśamyājita-vāda-sat-kathām
-> pravṛddha-bhāvo 'śru-kalākulo muner
+> imāṁ tu kauṣāraviṇopavarṇitāṁ\
+> kṣattā niśamyājita-vāda-sat-kathām\
+> pravṛddha-bhāvo 'śru-kalākulo muner\
 > dadhāra mūrdhnā caraṇaṁ hṛdā hareḥ
 
 *imām*—todo esto; *tu*—entonces; *kauṣāraviṇā*—por Maitreya; *upavarṇitām*—narrado; *kṣattā*—Vidura; *niśamya*—después de escuchar; *ajita-vāda*—glorificación del Señor Supremo; *sat-kathām*—el mensaje trascendental; *pravṛddha*—elevado; *bhāvaḥ*—éxtasis; *aśru*—de lágrimas; *kalā*—con partículas; *ākulaḥ*—desbordado; *muneḥ*—del gran sabio; *dadhāra*—capturó; *mūrdhnā*—con la cabeza; *caraṇam*—los pies de loto; *hṛdā*—con el corazón; *hareḥ*—de la Suprema Personalidad de Dios.

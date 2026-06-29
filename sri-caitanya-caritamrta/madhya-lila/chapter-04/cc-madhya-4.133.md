@@ -1,9 +1,9 @@
 ### CC Madhya 4.133
 
-> ক্ষীর লহ এই, যার নাম ‘মাধবপুরী’ ।
+> ক্ষীর লহ এই, যার নাম ‘মাধবপুরী’ ।\
 > তোমা লাগি’ গোপীনাথ ক্ষীর কৈল চুরি ॥১৩৩॥
 
-> kṣīra laha ei, yāra nāma 'mādhava-purī'
+> kṣīra laha ei, yāra nāma 'mādhava-purī'\
 > tomā lāgi' gopīnātha kṣīra kaila curi
 
 *kṣīra laha*—take the pot of sweet rice; *ei*—this; *yāra*—whose; *nāma*—name; *mādhava-purī*—Mādhavendra Purī; *tomā lāgi'*—for you only; *gopīnātha*—the Deity of Lord Gopīnātha; *kṣīra*—the pot of sweet rice; *kaila*—did; *curi*—steal.

@@ -1,11 +1,11 @@
 ### SB 6.16.7
 
-> नित्यस्यार्थस्य सम्बन्धो ह्यनित्यो दृश्यते नृषु
+> नित्यस्यार्थस्य सम्बन्धो ह्यनित्यो दृश्यते नृषु\
 > यावद्यस्य हि सम्बन्धो ममत्वं तावदेव हि ॥७॥
 
-> nityasyārthasya sambandho
-> hy anityo dṛśyate nṛṣu
-> yāvad yasya hi sambandho
+> nityasyārthasya sambandho\
+> hy anityo dṛśyate nṛṣu\
+> yāvad yasya hi sambandho\
 > mamatvaṁ tāvad eva hi
 
 *nityasya*—de la eterna; *arthasya*—cosa; *sambandhaḥ*—relación; *hi*—en verdad; *anityaḥ*—temporal; *dṛśyate*—se ve; *nṛṣu*—en la sociedad humana; *yāvat*—mientras que; *yasya*—de quien; *hi*—en verdad; *sambandhaḥ*—relación; *mamatvam*—propiedad; *tāvat*—mientras tanto; *eva*—en verdad; *hi*—ciertamente.

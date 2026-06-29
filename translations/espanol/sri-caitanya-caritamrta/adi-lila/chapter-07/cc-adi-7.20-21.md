@@ -1,14 +1,14 @@
 ### CC Adi 7.20-21
 
-> সেই পঞ্চতত্ত্ব মিলি’ পৃথিবী আসিয়া ।
-> পূর্ব-প্রেমভাণ্ডারের মুদ্রা উঘাড়িয়া ॥২০॥
-> পাঁচে মিলি’ লুটে প্রেম, করে আস্বাদন ।
+> সেই পঞ্চতত্ত্ব মিলি’ পৃথিবী আসিয়া ।\
+> পূর্ব-প্রেমভাণ্ডারের মুদ্রা উঘাড়িয়া ॥২০॥\
+> পাঁচে মিলি’ লুটে প্রেম, করে আস্বাদন ।\
 > যত যত পিয়ে, তৃষ্ণা বাঢ়ে অনুক্ষণ ॥২১॥
 
-> sei pañca-tattva mili' pṛthivī āsiyā
+> sei pañca-tattva mili' pṛthivī āsiyā\
 > pūrva-premabhāṇḍārera mudrā ughāḍiyā
 
-> pāṅce mili' luṭe prema, kare āsvādana
+> pāṅce mili' luṭe prema, kare āsvādana\
 > yata yata piye, tṛṣṇā bāḍhe anukṣaṇa
 
 *sei*—esas; *pañca-tattva*—cinco verdades; *mili’*—combinadas juntas; *pṛthivī*—en esta Tierra; *āsiyā*—descendiendo; *pūrva*—original; *prema-bhāṇḍārera*—el almacén de amor trascendental; *mudrā*—precinto; *ughāḍiyā*—abriendo; *pāṅce mili’*—combinando estas cinco; *luṭe*—saqueo; *prema*—amor por Dios; *kare āsvādana*—saborean; *yata yata*—tanto como; *piye*—beben; *tṛṣṇā*—sed; *bāḍhe*—aumenta; *anukṣaṇa*—una y otra vez.

@@ -1,11 +1,11 @@
 ### SB 3.21.48
 
-> अथोटजमुपायातं नृदेवं प्रणतं पुरः ।
+> अथोटजमुपायातं नृदेवं प्रणतं पुरः ।\
 > सपर्यया पर्यगृह्णात्प्रतिनन्द्यानुरूपया ॥४८॥
 
-> athoṭajam upāyātaṁ
-> nṛdevaṁ praṇataṁ puraḥ
-> saparyayā paryagṛhṇāt
+> athoṭajam upāyātaṁ\
+> nṛdevaṁ praṇataṁ puraḥ\
+> saparyayā paryagṛhṇāt\
 > pratinandyānurūpayā
 
 *atha*—then; *uṭajam*—the hermitage; *upāyātam*—approached; *nṛdevam*—the monarch; *praṇatam*—bowed down; *puraḥ*—in front; *saparyayā*—with honor; *paryagṛhṇāt*—received him; *pratinandya*—greeting him; *anurūpayā*—befitting the King's position.

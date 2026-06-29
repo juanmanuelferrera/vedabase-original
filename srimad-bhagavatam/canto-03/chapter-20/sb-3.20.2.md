@@ -1,11 +1,11 @@
 ### SB 3.20.2
 
-> क्षत्ता महाभागवतः कृष्णस्यैकान्तिकः सुहृत् ।
+> क्षत्ता महाभागवतः कृष्णस्यैकान्तिकः सुहृत् ।\
 > यस्तत्याजाग्रजं कृष्णे सापत्यमघवानिति ॥२॥
 
-> kṣattā mahā-bhāgavataḥ
-> kṛṣṇasyaikāntikaḥ suhṛt
-> yas tatyājāgrajaṁ kṛṣṇe
+> kṣattā mahā-bhāgavataḥ\
+> kṛṣṇasyaikāntikaḥ suhṛt\
+> yas tatyājāgrajaṁ kṛṣṇe\
 > sāpatyam aghavān iti
 
 *kṣattā*—Vidura; *mahā-bhāgavataḥ*—a great devotee of the Lord; *kṛṣṇasya*—of Lord Kṛṣṇa; *ekāntikaḥ*—unalloyed devotee; *suhṛt*—intimate friend; *yaḥ*—he who; *tatyāja*—abandoned; *agra-jam*—his elder brother (King Dhṛtarāṣṭra); *kṛṣṇe*—toward Kṛṣṇa; *sa-apatyam*—along with his one hundred sons; *agha-vān*—offender; *iti*—thus.

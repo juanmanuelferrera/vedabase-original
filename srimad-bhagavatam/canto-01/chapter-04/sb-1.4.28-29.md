@@ -1,18 +1,18 @@
 ### SB 1.4.28-29
 
-> धृतव्रतेन हि मया छन्दांसि गुरवोऽग्नयः ।
-> मानिता निर्व्यलीकेन गृहीतं चानुशासनम् ॥२८॥
-> भारतव्यपदेशेन ह्याम्नायार्थश्च प्रदर्शितः ।
+> धृतव्रतेन हि मया छन्दांसि गुरवोऽग्नयः ।\
+> मानिता निर्व्यलीकेन गृहीतं चानुशासनम् ॥२८॥\
+> भारतव्यपदेशेन ह्याम्नायार्थश्च प्रदर्शितः ।\
 > दृश्यते यत्र धर्मादि स्त्रीशूद्रादिभिरप्युत ॥२९॥
 
-> dhṛta-vratena hi mayā
-> chandāṁsi guravo 'gnayaḥ
-> mānitā nirvyalīkena
+> dhṛta-vratena hi mayā\
+> chandāṁsi guravo 'gnayaḥ\
+> mānitā nirvyalīkena\
 > gṛhītaṁ cānuśāsanam
 
-> bhārata-vyapadeśena
-> hy āmnāyārthaś ca pradarśitaḥ
-> dṛśyate yatra dharmādi
+> bhārata-vyapadeśena\
+> hy āmnāyārthaś ca pradarśitaḥ\
+> dṛśyate yatra dharmādi\
 > strī-śūdrādibhir apy uta
 
 *dhṛta-vratena*—under a strict disciplinary vow; *hi*—certainly; *mayā*—by me; *chandāṁsi*—the Vedic hymns; *guravaḥ*—the spiritual masters; *agnayaḥ*—the sacrificial fire; *mānitāḥ*—properly worshiped; *nirvyalīkena*—without pretense; *gṛhītam ca*—also accepted; *anuśāsanam*—traditional discipline; *bhārata*—the *Mahābhārata*; *vyapadeśena*—by compilation of; *hi*—certainly; *āmnāya-arthaḥ*—import of disciplic succession; *ca*—and; *pradarśitaḥ*—properly explained; *dṛśyate*—by what is necessary; *yatra*—where; *dharma-ādiḥ*—the path of religion; *strī-śūdra-ādibhiḥ api*—even by women, *śūdras,* etc.; *uta*—spoken.

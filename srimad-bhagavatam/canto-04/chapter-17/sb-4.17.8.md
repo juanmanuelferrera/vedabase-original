@@ -1,13 +1,13 @@
 ### SB 4.17.8
 
-> सूत उवाच
-> चोदितो विदुरेणैवं वासुदेवकथां प्रति ।
+> सूत उवाच\
+> चोदितो विदुरेणैवं वासुदेवकथां प्रति ।\
 > प्रशस्य तं प्रीतमना मैत्रेयः प्रत्यभाषत ॥८॥
 
-> sūta uvāca
-> codito vidureṇaivaṁ
-> vāsudeva-kathāṁ prati
-> praśasya taṁ prīta-manā
+> sūta uvāca\
+> codito vidureṇaivaṁ\
+> vāsudeva-kathāṁ prati\
+> praśasya taṁ prīta-manā\
 > maitreyaḥ pratyabhāṣata
 
 *sūtaḥ uvāca*—Sūta Gosvāmī said; *coditaḥ*—inspired; *vidureṇa*—by Vidura; *evam*—thus; *vāsudeva*—of Lord Kṛṣṇa; *kathām*—narration; *prati*—about; *praśasya*—praising; *tam*—him; *prīta-manāḥ*—being very pleased; *maitreyaḥ*—the saint Maitreya; *pratyabhāṣata*—replied.

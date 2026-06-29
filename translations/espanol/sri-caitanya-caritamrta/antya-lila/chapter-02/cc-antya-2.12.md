@@ -1,9 +1,9 @@
 ### CC Antya 2.12
 
-> এইমত দর্শনে ত্রিজগৎ নিস্তারি  ।
+> এইমত দর্শনে ত্রিজগৎ নিস্তারি  ।\
 > যে কেহ আসিতে নারে অনেক সংসারী ॥১২॥
 
-> ei-mata darśane trijagat nistāri
+> ei-mata darśane trijagat nistāri\
 > ye keha āsite nāre aneka saṁsārī
 
 *ei-mata*—de esta manera; *darśane*—mediante visitas directas; *tri-jagat*—los tres mundos; *nistāri*—liberando; *ye keha*—algunos que; *āsite nāre*—no podían acudir; *aneka*—muchas; *saṁsārī*—personas enredadas en este mundo material.

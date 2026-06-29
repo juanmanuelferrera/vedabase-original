@@ -1,11 +1,11 @@
 ### SB 7.4.28
 
-> निर्वैराय प्रशान्ताय स्वसुताय महात्मने
+> निर्वैराय प्रशान्ताय स्वसुताय महात्मने\
 > प्रह्रादाय यदा द्रुह्येद्धनिष्येऽपि वरोर्जितम ॥२८॥
 
-> nirvairāya praśāntāya
-> sva-sutāya mahātmane
-> prahrādāya yadā druhyed
+> nirvairāya praśāntāya\
+> sva-sutāya mahātmane\
+> prahrādāya yadā druhyed\
 > dhaniṣye 'pi varorjitam
 
 *nirvairāya*—que no tiene enemigos; *praśāntāya*—muy sobrio y pacífico; *sva-sutāya*—a su propio hijo; *mahā-ātmane*—que es un gran devoto; *prahrādāya*—Prahlāda Mahārāja; *yadā*—cuando; *druhyet*—cometa violencia; *haniṣye*—Yo mataré; *api*—aunque; *vara-ūrjitam*—bendecido por los dones del Señor Brahmā.

@@ -1,9 +1,9 @@
 ### CC Madhya 12.20
 
-> কাণে মুদ্রা লই’ মুঞি হইব ভিখারী ।
+> কাণে মুদ্রা লই’ মুঞি হইব ভিখারী ।\
 > রাজ্যভোগ নহে চিত্তে বিনা গৌরহরি ॥২০॥
 
-> kāṇe mudrā la-i' muñi ha-iba bhikhārī
+> kāṇe mudrā la-i' muñi ha-iba bhikhārī\
 > rājya-bhoga nahe citte vinā gaurahari
 
 *kāṇe mudrā*—un tipo de pendiente; *la-i'*—tomando; *muñi*—yo; *ha-iba*—me convertiré; *bhikhārī*—en un mendigo; *rājya-bhoga*—el disfrute del reino; *nahe*—no; *citte*—en la mente; *vinā*—sin; *gaurahari*—Śrī Caitanya Mahāprabhu.

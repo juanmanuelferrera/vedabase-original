@@ -1,9 +1,9 @@
 ### CC Antya 1.156
 
-> রায় কহে, — “বৃন্দাবন, মুরলী-নিঃস্বন ।
+> রায় কহে, — “বৃন্দাবন, মুরলী-নিঃস্বন ।\
 > কৃষ্ণ, রাধিকার কৈছে করিয়াছে বর্ণন ? ॥ ১৫৬ ॥
 
-> rāya kahe,—"vṛndāvana, muralī-niḥsvana
+> rāya kahe,—"vṛndāvana, muralī-niḥsvana\
 > kṛṣṇa, rādhikāra kaiche kariyācha varṇana
 
 *rāya kahe*—Rāmānanda Rāya says; *vṛndāvana*—the place named Vṛndāvana; *muralī-niḥsvana*—the vibration of Kṛṣṇa's flute; *kṛṣṇa*—Lord Kṛṣṇa; *rādhikāra*—of Śrīmatī Rādhārāṇī; *kaiche*—how; *kariyācha varṇana*—you have described.

@@ -1,11 +1,11 @@
 ### SB 3.26.35
 
-> नभसः शब्दतन्मात्रात्कालगत्या विकुर्वतः ।
+> नभसः शब्दतन्मात्रात्कालगत्या विकुर्वतः ।\
 > स्पर्शोऽभवत्ततो वायुस्त्वक्स्पर्शस्य च सङ्ग्रहः ॥३५॥
 
-> nabhasaḥ śabda-tanmātrāt
-> kāla-gatyā vikurvataḥ
-> sparśo 'bhavat tato vāyus
+> nabhasaḥ śabda-tanmātrāt\
+> kāla-gatyā vikurvataḥ\
+> sparśo 'bhavat tato vāyus\
 > tvak sparśasya ca saṅgrahaḥ
 
 *nabhasaḥ*—from ether; *śabda-tanmātrāt*—which evolves from the subtle element sound; *kāla-gatyā*—under the impulse of time; *vikurvataḥ*—undergoing transformation; *sparśaḥ*—the subtle element touch; *abhavat*—evolved; *tataḥ*—thence; *vāyuḥ*—air; *tvak*—the sense of touch; *sparśasya*—of touch; *ca*—and; *saṅgrahaḥ*—perception.

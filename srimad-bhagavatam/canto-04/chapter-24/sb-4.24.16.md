@@ -1,13 +1,13 @@
 ### SB 4.24.16
 
-> विदुर उवाच
-> प्रचेतसां गिरित्रेण यथासीत्पथि सङ्गमः ।
+> विदुर उवाच\
+> प्रचेतसां गिरित्रेण यथासीत्पथि सङ्गमः ।\
 > यदुताह हरः प्रीतस्तन्नो ब्रह्मन्वदार्थवत् ॥१६॥
 
-> vidura uvāca
-> pracetasāṁ giritreṇa
-> yathāsīt pathi saṅgamaḥ
-> yad utāha haraḥ prītas
+> vidura uvāca\
+> pracetasāṁ giritreṇa\
+> yathāsīt pathi saṅgamaḥ\
+> yad utāha haraḥ prītas\
 > tan no brahman vadārthavat
 
 *viduraḥ uvāca*—Vidura inquired; *pracetasām*—of all the Pracetās; *giritreṇa*—by Lord Śiva; *yathā*—just as; *āsīt*—it was; *pathi*—on the road; *saṅgamaḥ*—meeting; *yat*—which; *uta āha*—said; *haraḥ*—Lord Śiva; *prītaḥ*—being pleased; *tat*—that; *naḥ*—unto us; *brahman*—O great *brāhmaṇa*; *vada*—speak; *artha-vat*—with clear meaning.

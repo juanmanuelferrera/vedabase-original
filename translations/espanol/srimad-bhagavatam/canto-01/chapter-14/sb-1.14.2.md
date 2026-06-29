@@ -1,11 +1,11 @@
 ### SB 1.14.2
 
-> व्यतीताः कतिचिन्मासास्तदा नायात्ततोऽर्जुनः ।
+> व्यतीताः कतिचिन्मासास्तदा नायात्ततोऽर्जुनः ।\
 > ददर्श घोररूपाणि निमित्तानि कुरूद्वहः ॥२॥
 
-> vyatītāḥ katicin māsās
-> tadā nāyāt tato 'rjunaḥ
-> dadarśa ghora-rūpāṇi
+> vyatītāḥ katicin māsās\
+> tadā nāyāt tato 'rjunaḥ\
+> dadarśa ghora-rūpāṇi\
 > nimittāni kurūdvahaḥ
 
 *vyatītāḥ*—después de pasar; *katicit*—unos cuantos; *māsāḥ*—meses; *tadā*—en ese entonces; *na āyāt*—no regresó; *tataḥ*—de ahí; *arjunaḥ*—Arjuna; *dadarśa*—observó; *ghora*—amedrentador; *rūpāṇi*—manifestaciones; *nimittāni*—varias causas; *kuru-udvahaḥ*—Mahārāja Yudhiṣṭhira.

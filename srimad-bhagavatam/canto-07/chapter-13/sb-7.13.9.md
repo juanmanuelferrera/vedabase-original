@@ -1,11 +1,11 @@
 ### SB 7.13.9
 
-> न यतेराश्रमः प्रायो धर्महेतुर्महात्मनः
+> न यतेराश्रमः प्रायो धर्महेतुर्महात्मनः\
 > शान्तस्य समचित्तस्य बिभृयादुत वा त्यजेत ॥९॥
 
-> na yater āśramaḥ prāyo
-> dharma-hetur mahātmanaḥ
-> śāntasya sama-cittasya
+> na yater āśramaḥ prāyo\
+> dharma-hetur mahātmanaḥ\
+> śāntasya sama-cittasya\
 > bibhṛyād uta vā tyajet
 
 *na*—not; *yateḥ*—of the *sannyāsī*; *āśramaḥ*—the symbolic dress (with *daṇḍa* and *kamaṇḍalu*); *prāyaḥ*—almost always; *dharma-hetuḥ*—the cause of advancement in spiritual life; *mahā-ātmanaḥ*—who is factually exalted and advanced; *śāntasya*—who is peaceful; *sama-cittasya*—who has attained the stage of being equipoised; *bibhṛyāt*—one may accept (such symbolic signs); *uta*—indeed; *vā*—or; *tyajet*—one may give up.

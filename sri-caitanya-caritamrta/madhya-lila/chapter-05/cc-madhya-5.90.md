@@ -1,9 +1,9 @@
 ### CC Madhya 5.90
 
-> এত জানি’ তুমি সাক্ষী দেহ, দয়াময় ।
+> এত জানি’ তুমি সাক্ষী দেহ, দয়াময় ।\
 > জানি’ সাক্ষী নাহি দেয়, তার পাপ হয় ॥৯০॥
 
-> eta jāni' tumi sākṣī deha, dayā-maya
+> eta jāni' tumi sākṣī deha, dayā-maya\
 > jāni' sākṣī nāhi deya, tāra pāpa haya
 
 *eta jāni'*—knowing this; *tumi*—You; *sākṣī*—witness; *deha*—please give; *dayā-maya*—O most merciful one; *jāni'*—knowing; *sākṣī*—witness; *nāhi deya*—does not give; *tāra*—for him; *pāpa*—sin; *haya*—there is.

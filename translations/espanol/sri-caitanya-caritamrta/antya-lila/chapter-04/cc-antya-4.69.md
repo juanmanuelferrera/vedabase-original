@@ -1,13 +1,13 @@
 ### CC Antya 4.69
 
-> বিপ্রাদ্দ্বিষড়্গুণযুতাদরবিন্দনাভ-
-> পাদারবিন্দবিমুখাৎ শ্বপচং বরিষ্ঠম্ ।
-> মন্যে তদর্পিতমনোবচনেহিতার্থ-
+> বিপ্রাদ্দ্বিষড়্গুণযুতাদরবিন্দনাভ-\
+> পাদারবিন্দবিমুখাৎ শ্বপচং বরিষ্ঠম্ ।\
+> মন্যে তদর্পিতমনোবচনেহিতার্থ-\
 > প্রাণং পুনাতি স কুলং ন তু ভূরিমানঃ ॥৬৯॥
 
-> viprād dviṣaḍ-guṇa-yutād aravinda-nābha-
-> pādāravinda-vimukhāt śvapacaṁ variṣṭham
-> manye tad-arpita-mano-vacane 'hitārtha-
+> viprād dviṣaḍ-guṇa-yutād aravinda-nābha-\
+> pādāravinda-vimukhāt śvapacaṁ variṣṭham\
+> manye tad-arpita-mano-vacane 'hitārtha-\
 > prāṇaṁ punāti sa kulaṁ na tu bhūrimānaḥ
 
 *viprāt*—que un *brāhmaṇa*; *dvi-ṣaṭ-guṇa-yutāt*—que posee las doce cualidades brahminicas; *aravinda-nābha*—del Señor Viṣṇu, cuyo ombligo tiene forma de loto; *pāda-aravinda*—a los pies de loto; *vimukhāt*—que una persona carente de devoción; *śva-pacam*—un *caṇḍāla*, o persona acostumbrada a comer perros; *variṣṭham*—más glorificado; *manye*—considero; *tat-arpita*—dedicados a Él; *manaḥ*—mente; *vacane*—palabras; *ahita*—actividades; *artha*—riqueza; *prāṇam*—vida; *punāti*—purifica; *saḥ*—él; *kulam*—su familia; *na tu*—pero no; *bhūri-mānaḥ*—un *brāhmaṇa* orgulloso de poseer tales cualidades.

@@ -1,11 +1,11 @@
 ### SB 1.1.12
 
-> सूत जानासि भद्रं ते भगवान्सात्वतां पतिः ।
+> सूत जानासि भद्रं ते भगवान्सात्वतां पतिः ।\
 > देवक्यां वसुदेवस्य जातो यस्य चिकीर्षया ॥१२॥
 
-> sūta jānāsi bhadraṁ te
-> bhagavān sātvatāṁ patiḥ
-> devakyāṁ vasudevasya
+> sūta jānāsi bhadraṁ te\
+> bhagavān sātvatāṁ patiḥ\
+> devakyāṁ vasudevasya\
 > jāto yasya cikīrṣayā
 
 *sūta*—O Sūta Gosvāmī; *jānāsi*—you know; *bhadram te*—all blessings upon you; *bhagavān*—the Personality of Godhead; *sātvatām*—of the pure devotees; *patiḥ*—the protector; *devakyām*—in the womb of Devakī; *vasudevasya*—by Vasudeva; *jātaḥ*—born of; *yasya*—for the purpose of; *cikīrṣayā*—executing.

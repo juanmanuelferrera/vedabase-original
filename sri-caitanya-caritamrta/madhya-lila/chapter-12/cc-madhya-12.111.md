@@ -1,9 +1,9 @@
 ### CC Madhya 12.111
 
-> জল ভরে, ঘর ধোয়, করে হরিধ্বনি ।
+> জল ভরে, ঘর ধোয়, করে হরিধ্বনি ।\
 > ‘কৃষ্ণ’ ‘হরি’ ধ্বনি বিনা আর নাহি শুনি ॥১১১॥
 
-> jala bhare, ghara dhoya, kare hari-dhvani
+> jala bhare, ghara dhoya, kare hari-dhvani\
 > 'kṛṣṇa' 'hari' dhvani vinā āra nāhi śuni
 
 *jala bhare*—they were drawing water; *ghara dhoya*—washing the rooms; *kare hari-dhvani*—chanting the holy name of Hari; *kṛṣṇa*—Lord Kṛṣṇa; *hari*—the holy name of Hari; *dhvani*—vibration; *vinā*—except; *āra*—anything else; *nāhi*—there was not; *śuni*—hearing.

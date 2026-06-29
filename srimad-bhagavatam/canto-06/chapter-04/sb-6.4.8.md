@@ -1,11 +1,11 @@
 ### SB 6.4.8
 
-> अहो प्रजापतिपतिर्भगवान्हरिरव्ययः
+> अहो प्रजापतिपतिर्भगवान्हरिरव्ययः\
 > वनस्पतीनोषधीश्च ससर्जोर्जमिषं विभुः ॥८॥
 
-> aho prajāpati-patir
-> bhagavān harir avyayaḥ
-> vanaspatīn oṣadhīś ca
+> aho prajāpati-patir\
+> bhagavān harir avyayaḥ\
+> vanaspatīn oṣadhīś ca\
 > sasarjorjam iṣaṁ vibhuḥ
 
 *aho*—alas; *prajāpati-patiḥ*—the Lord of all the lords of created beings; *bhagavān hariḥ*—the Supreme Personality of Godhead, Hari; *avyayaḥ*—indestructible; *vanaspatīn*—the trees and plants; *oṣadhīḥ*—the herbs; *ca*—and; *sasarja*—created; *ūrjam*—invigorating; *iṣam*—food; *vibhuḥ*—the Supreme Being.

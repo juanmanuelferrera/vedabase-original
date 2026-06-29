@@ -1,9 +1,9 @@
 ### CC Antya 14.63
 
-> দেখি’ স্বরূপ-গোসাঞি-আদি আনন্দিত হৈলা ।
+> দেখি’ স্বরূপ-গোসাঞি-আদি আনন্দিত হৈলা ।\
 > প্রভুর দশা দেখি’ পুনঃ চিন্তিতে লাগিলা ॥৬৩॥
 
-> dekhi' svarūpa-gosāñi-ādi ānandita hailā
+> dekhi' svarūpa-gosāñi-ādi ānandita hailā\
 > prabhura daśā dekhi' punaḥ cintite lāgilā
 
 *dekhi'*—al ver; *svarūpa-gosāñi-ādi*—todos los devotos, encabezados por Svarūpa Dāmodara Gosvāmī; *ānandita hailā*—se pusieron muy contentos; *prabhura*—de Śrī Caitanya Mahāprabhu; *daśā*—la condición; *dekhi'*—al ver; *punaḥ*—de nuevo; *cintite lāgilā*—comenzaron a sentir ansiedad.

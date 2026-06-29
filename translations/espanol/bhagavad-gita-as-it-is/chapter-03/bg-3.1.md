@@ -1,13 +1,13 @@
 ### Bg 3.1
 
-> अर्जुन उवाच ।
-> ज्यायसी चेत्कर्मणस्ते मता बुद्धिर्जनार्दन ।
+> अर्जुन उवाच ।\
+> ज्यायसी चेत्कर्मणस्ते मता बुद्धिर्जनार्दन ।\
 > तत्किं कर्मणि घोरे मां नियोजयसि केशव ॥१॥
 
-> arjuna uvāca
-> jyāyasī cet karmaṇas te
-> matā buddhir janārdana
-> tat kiṁ karmaṇi ghore māṁ
+> arjuna uvāca\
+> jyāyasī cet karmaṇas te\
+> matā buddhir janārdana\
+> tat kiṁ karmaṇi ghore māṁ\
 > niyojayasi keśava
 
 *arjunaḥ*—Arjuna; *uvāca*—dijo; *jyāyasī*—ensalzando; *cet*—aunque; *karmaṇaḥ*—que la acción fruitiva; *te*—por Ti; *matā*—opinión; *buddhiḥ*—inteligencia; *janārdana*—¡oh, Kṛṣṇa!; *tat*—por lo tanto; *kim*—por qué; *karmaṇi*—en acción; *ghore*—horrible; *mām*—mí; *niyojayasi*—ocupándome; *keśava*—¡oh, Kṛṣṇa!

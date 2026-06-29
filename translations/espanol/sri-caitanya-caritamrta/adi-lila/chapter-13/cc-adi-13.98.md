@@ -1,13 +1,13 @@
 ### CC Adi 13.98
 
-> নদীয়া-উদয়গিরি, পূর্ণচন্দ্র গৌরহরি,
-> কৃপা করি’ হইল উদয় ।
-> পাপ-তমঃ হৈল নাশ, ত্রিজগতের উল্লাস,
+> নদীয়া-উদয়গিরি, পূর্ণচন্দ্র গৌরহরি,\
+> কৃপা করি’ হইল উদয় ।\
+> পাপ-তমঃ হৈল নাশ, ত্রিজগতের উল্লাস,\
 > জগভরি’ হরিধ্বনি হয় ॥৯৮॥
 
-> nadīyā-udayagiri, pūrṇacandra gaurahari,
-> kṛpā kari' ha-ila udaya
-> pāpa-tamaḥ haila nāśa, tri-jagatera ullāsa,
+> nadīyā-udayagiri, pūrṇacandra gaurahari,\
+> kṛpā kari' ha-ila udaya\
+> pāpa-tamaḥ haila nāśa, tri-jagatera ullāsa,\
 > jagabhari' hari-dhvani haya
 
 *nadīyā*—el lugar conocido como Nadīyā; *udayagiri*—es el lugar de aparición; *pūrṇa-candra*—la luna llena; *gaurahari*—el Señor Śrī Caitanya Mahāprabhu; *kṛpā*—por misericordia; *kari'*—haciéndolo; *ha-ila*—surgió; *udaya*—salida; *pāpa*—pecaminosa; *tamaḥ*—oscuridad; *haila*—quedó; *nāśa*—disipada; *tri-jagatera*—de los tres mundos; *ullāsa*—felicidad; *jaga-bhari'*—llenando el mundo entero; *hari-dhvani*—la vibración trascendental de Hari; *haya*—resonó.

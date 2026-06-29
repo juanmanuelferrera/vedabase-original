@@ -1,11 +1,11 @@
 ### SB 5.7.14
 
-> परोरजः सवितुर्जातवेदो देवस्य भर्गो मनसेदं जजान
+> परोरजः सवितुर्जातवेदो देवस्य भर्गो मनसेदं जजान\
 > सुरेतसादः पुनराविश्य चष्टे हंसं गृध्राणं नृषद्रिङ्गिरामिमः ॥१४॥
 
-> paro-rajaḥ savitur jāta-vedo
-> devasya bhargo manasedaṁ jajāna
-> suretasādaḥ punar āviśya caṣṭe
+> paro-rajaḥ savitur jāta-vedo\
+> devasya bhargo manasedaṁ jajāna\
+> suretasādaḥ punar āviśya caṣṭe\
 > haṁsaṁ gṛdhrāṇaṁ nṛṣad-riṅgirām imaḥ
 
 *paraḥ-rajaḥ*—beyond the mode of passion (situated in the pure mode of goodness); *savituḥ*—of the one who illuminates the whole universe; *jāta-vedaḥ*—from which all the devotee's desires are fulfilled; *devasya*—of the Lord; *bhargaḥ*—the self-effulgence; *manasā*—simply by contemplating; *idam*—this universe; *jajāna*—created; *su-retasā*—by spiritual potency; *adaḥ*—this created world; *punaḥ*—again; *āviśya*—entering; *caṣṭe*—sees or maintains; *haṁsam*—the living entity; *gṛdhrāṇam*—desiring for material enjoyment; *nṛṣat*—to the intelligence; *riṅgirām*—to one who gives motion; *imaḥ*—let me offer my obeisances.

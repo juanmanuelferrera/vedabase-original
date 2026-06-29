@@ -1,11 +1,11 @@
 ### SB 5.13.5
 
-> अदृश्यझिल्लीस्वनकर्णशूल उलूकवाग्भिर्व्यथितान्तरात्मा
+> अदृश्यझिल्लीस्वनकर्णशूल उलूकवाग्भिर्व्यथितान्तरात्मा\
 > अपुण्यवृक्षान्श्रयते क्षुधार्दितो मरीचितोयान्यभिधावति क्वचित ॥५॥
 
-> adṛśya-jhillī-svana-karṇa-śūla
-> ulūka-vāgbhir vyathitāntarātmā
-> apuṇya-vṛkṣān śrayate kṣudhārdito
+> adṛśya-jhillī-svana-karṇa-śūla\
+> ulūka-vāgbhir vyathitāntarātmā\
+> apuṇya-vṛkṣān śrayate kṣudhārdito\
 > marīci-toyāny abhidhāvati kvacit
 
 *adṛśya*—invisibles; *jhillī*—de grillos o de una clase de abejas; *svana*—por los sonidos; *karṇa-śūla*—cuyos oídos son perturbados; *ulūka*—de los búhos; *vāgbhiḥ*—por las vibraciones sonoras; *vyathita*—muy perturbados; *antaḥ-ātmā*—cuya mente y cuyo corazón; *apuṇya-vṛkṣān*—árboles impíos, que no dan frutas ni flores; *śrayate*—se refugia en; *kṣudha*—del hambre; *arditaḥ*—sufriendo; *marīci-toyāni*—las aguas de un espejismo en el desierto; *abhidhāvati*—corre tras; *kvacit*—a veces.

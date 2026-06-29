@@ -1,13 +1,13 @@
 ### Bg 6.1
 
-> श्रीभगवानुवाच ।
-> अनाश्रितः कर्मफलं कार्यं कर्म करोति यः ।
+> श्रीभगवानुवाच ।\
+> अनाश्रितः कर्मफलं कार्यं कर्म करोति यः ।\
 > स संन्यासी च योगी च न निरग्निर्न चाक्रियः ॥१॥
 
-> śrī-bhagavān uvāca
-> anāśritaḥ karma-phalaṁ
-> kāryaṁ karma karoti yaḥ
-> sa sannyāsī ca yogī ca
+> śrī-bhagavān uvāca\
+> anāśritaḥ karma-phalaṁ\
+> kāryaṁ karma karoti yaḥ\
+> sa sannyāsī ca yogī ca\
 > na niragnir na cākriyaḥ
 
 *śrī bhagavān uvāca*—the Lord said; *anāśritaḥ*—without shelter; *karma-phalam*—the result of work; *kāryam*—obligatory; *karma*—work; *karoti*—performs; *yaḥ*—one who; *saḥ*—he; *sannyāsī*—in the renounced order; *ca*—also; *yogī*—mystic; *ca*—also; *na*—not; *nir*—without; *agniḥ*—fire; *na*—nor; *ca*—also; *akriyaḥ*—without duty.

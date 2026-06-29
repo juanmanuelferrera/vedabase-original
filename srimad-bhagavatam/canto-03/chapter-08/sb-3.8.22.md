@@ -1,11 +1,11 @@
 ### SB 3.8.22
 
-> कालेन सोऽजः पुरुषायुषाभि प्रवृत्तयोगेन विरूढबोधः ।
+> कालेन सोऽजः पुरुषायुषाभि प्रवृत्तयोगेन विरूढबोधः ।\
 > स्वयं तदन्तर्हृदयेऽवभातमपश्यतापश्यत यन्न पूर्वम् ॥२२॥
 
-> kālena so 'jaḥ puruṣāyuṣābhi-
-> pravṛtta-yogena virūḍha-bodhaḥ
-> svayaṁ tad antar-hṛdaye 'vabhātam
+> kālena so 'jaḥ puruṣāyuṣābhi-\
+> pravṛtta-yogena virūḍha-bodhaḥ\
+> svayaṁ tad antar-hṛdaye 'vabhātam\
 > apaśyatāpaśyata yan na pūrvam
 
 *kālena*—in due course of time; *saḥ*—he; *ajaḥ*—the self-born Brahmā; *puruṣa-āyuṣā*—by the duration of his age; *abhipravṛtta*—being engaged; *yogena*—in meditation; *virūḍha*—developed; *bodhaḥ*—intelligence; *svayam*—automatically; *tat antaḥ-hṛdaye*—in the heart; *avabhātam*—manifested; *apaśyata*—saw; *apaśyata*—did see; *yat*—which; *na*—not; *pūrvam*—before.

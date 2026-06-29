@@ -1,9 +1,9 @@
 ### CC Madhya 11.16
 
-> রায় প্রণতি কৈল, প্রভু কৈল আলিঙ্গন ৷
+> রায় প্রণতি কৈল, প্রভু কৈল আলিঙ্গন ৷\
 > দুই জনে প্রেমাবেশে করেন ক্রন্দন ৷৷ ১৬ ৷৷ ॥১৬॥
 
-> rāya praṇati kaila, prabhu kaila āliṅgana
+> rāya praṇati kaila, prabhu kaila āliṅgana\
 > dui jane premāveśe karena krandana
 
 *rāya praṇati kaila*—Rāmānanda Rāya ofreció sus reverencias; *prabhu*—el Señor; *kaila*—hizo; *āliṅgana*—abrazar; *dui jane*—ambos; *prema-āveśe*—en éxtasis de amor; *karena*—hicieron; *krandana*—llorar.

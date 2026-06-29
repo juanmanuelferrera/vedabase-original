@@ -1,9 +1,9 @@
 ### CC Madhya 18.66
 
-> তবে ‘খেলা-তীর্থ’ দেখি’ ‘ভাণ্ডীরবন’ আইলা ।
+> তবে ‘খেলা-তীর্থ’ দেখি’ ‘ভাণ্ডীরবন’ আইলা ।\
 > যমুনা পার হঞা ‘ভদ্র-বন’ গেলা ॥৬৬॥
 
-> tabe 'khelā-tīrtha' dekhi' 'bhāṇḍīravana, āilā
+> tabe 'khelā-tīrtha' dekhi' 'bhāṇḍīravana, āilā\
 > yamunā pāra hañā 'bhadra-vana' gelā
 
 *tabe*—después; *khelā-tīrtha*—Khelā-tīrtha; *dekhi'*—viendo; *bhāṇḍīravana*—Bhāṇḍīravana; *āilā*—llegó a; *yamunā pāra hañā*—cruzando el río Yamunā; *bhadra-vana*—a Bhadravana; *gelā*—fue.

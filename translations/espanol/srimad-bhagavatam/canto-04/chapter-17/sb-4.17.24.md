@@ -1,11 +1,11 @@
 ### SB 4.17.24
 
-> त्वं खल्वोषधिबीजानि प्राक्सृष्टानि स्वयम्भुवा ।
+> त्वं खल्वोषधिबीजानि प्राक्सृष्टानि स्वयम्भुवा ।\
 > न मुञ्चस्यात्मरुद्धानि मामवज्ञाय मन्दधीः ॥२४॥
 
-> tvaṁ khalv oṣadhi-bījāni
-> prāk sṛṣṭāni svayambhuvā
-> na muñcasy ātma-ruddhāni
+> tvaṁ khalv oṣadhi-bījāni\
+> prāk sṛṣṭāni svayambhuvā\
+> na muñcasy ātma-ruddhāni\
 > mām avajñāya manda-dhīḥ
 
 *tvam*—tú; *khalu*—ciertamente; *oṣadhi*—de hierbas, plantas y cereales; *bījāni*—las semillas; *prāk*—en el pasado; *sṛṣṭāni*—creadas; *svayambhuvā*—por el Señor Brahmā; *na*—no; *muñcasi*—entregas; *ātma-ruddhāni*—ocultas en tu interior; *mām*—a mí; *avajñāya*—desobedeciendo; *manda-dhīḥ*—poco inteligente.

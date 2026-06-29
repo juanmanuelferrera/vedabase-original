@@ -1,11 +1,11 @@
 ### SB 4.17.5
 
-> सनत्कुमाराद्भगवतो ब्रह्मन्ब्रह्मविदुत्तमात् ।
+> सनत्कुमाराद्भगवतो ब्रह्मन्ब्रह्मविदुत्तमात् ।\
 > लब्ध्वा ज्ञानं सविज्ञानं राजर्षिः कां गतिं गतः ॥५॥
 
-> sanat-kumārād bhagavato
-> brahman brahma-vid-uttamāt
-> labdhvā jñānaṁ sa-vijñānaṁ
+> sanat-kumārād bhagavato\
+> brahman brahma-vid-uttamāt\
+> labdhvā jñānaṁ sa-vijñānaṁ\
 > rājarṣiḥ kāṁ gatiṁ gataḥ
 
 *sanat-kumārāt*—from Sanat-kumāra; *bhagavataḥ*—the most powerful; *brahman*—my dear *brāhmaṇa*; *brahma-vit-uttamāt*—well versed in the Vedic knowledge; *labdhvā*—after achieving; *jñānam*—knowledge; *sa-vijñānam*—for practical application; *rāja-ṛṣiḥ*—the great saintly King; *kām*—which; *gatim*—destination; *gataḥ*—achieved.

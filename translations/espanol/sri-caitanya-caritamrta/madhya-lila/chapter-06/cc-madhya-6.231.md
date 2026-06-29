@@ -1,9 +1,9 @@
 ### CC Madhya 6.231
 
-> আজি মোর পূর্ণ হৈল সর্ব অভিলাষ ।
+> আজি মোর পূর্ণ হৈল সর্ব অভিলাষ ।\
 > সার্বভৌমের হৈল মহাপ্রসাদে বিশ্বাস ॥২৩১॥
 
-> āji mora pūrṇa haila sarva abhilāṣa
+> āji mora pūrṇa haila sarva abhilāṣa\
 > sārvabhaumera haila mahā-prasāde viśvāsa
 
 *āji*—hoy; *mora*—Mis; *pūrṇa*—satisfechos; *haila*—se volvieron; *sarva*—todos; *abhilāṣa*—deseos; *sārvabhaumera*—de Sārvabhauma Bhaṭṭācārya; *haila*—hubo; *mahā-prasāde*—en los remanentes de la comida del Señor; *viśvāsa*—fe.

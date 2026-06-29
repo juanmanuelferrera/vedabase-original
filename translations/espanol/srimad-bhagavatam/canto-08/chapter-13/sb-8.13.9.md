@@ -1,11 +1,11 @@
 ### SB 8.13.9
 
-> तृतीयां वडवामेके तासां संज्ञआसुतास्त्रयः
+> तृतीयां वडवामेके तासां संज्ञआसुतास्त्रयः\
 > यमो यमी श्राद्धदेवश्छायायाश्च सुतान्छृणु ॥९॥
 
-> tṛtīyāṁ vaḍavām eke
-> tāsāṁ saṁjñā-sutās trayaḥ
-> yamo yamī śrāddhadevaś
+> tṛtīyāṁ vaḍavām eke\
+> tāsāṁ saṁjñā-sutās trayaḥ\
+> yamo yamī śrāddhadevaś\
 > chāyāyāś ca sutāñ chṛṇu
 
 *tṛtīyām*—la tercera esposa; *vaḍavām*—Vaḍavā; *eke*—algunas personas; *tāsām*—de las tres esposas; *saṁjñā-sutāḥ trayaḥ*—tres descendientes de Saṁjñā; *yamaḥ*—un hijo llamado Yama; *yamī*—Yamī, una hija; *śrāddhadevaḥ*—** Śrāddhadeva, otro hijo; *chāyāyāḥ*—de Chāyā; *ca*—y; *sutān*—los hijos; *śṛṇu*—escucha ahora acerca de.

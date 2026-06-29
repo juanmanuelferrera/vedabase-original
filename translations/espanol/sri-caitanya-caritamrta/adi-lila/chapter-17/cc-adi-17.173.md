@@ -1,9 +1,9 @@
 ### CC Adi 17.173
 
-> তোমার নগরে হয় সদা সংকীর্তন ।
+> তোমার নগরে হয় সদা সংকীর্তন ।\
 > বাদ্যগীত-কোলাহল, সঙ্গীত, নর্তন ॥১৭৩॥
 
-> tomāra nagare haya sadā saṅkīrtana
+> tomāra nagare haya sadā saṅkīrtana\
 > vādya-gīta-kolāhala, saṅgīta, nartana
 
 *tomāra nagare*—en tu ciudad; *haya*—hay; *sadā*—siempre; *saṅkīrtana*—canto congregacional del santo nombre del Señor; *vādya*—sonidos musicales; *gīta*—canción; *kolāhala*—estruendo tumultuoso; *saṅgīta*—canto; *nartana*—danza.

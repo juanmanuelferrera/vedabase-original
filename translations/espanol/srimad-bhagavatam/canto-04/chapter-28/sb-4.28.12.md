@@ -1,11 +1,11 @@
 ### SB 4.28.12
 
-> तस्यां सन्दह्यमानायां सपौरः सपरिच्छदः ।
+> तस्यां सन्दह्यमानायां सपौरः सपरिच्छदः ।\
 > कौटुम्बिकः कुटुम्बिन्या उपातप्यत सान्वयः ॥१२॥
 
-> tasyāṁ sandahyamānāyāṁ
-> sapauraḥ saparicchadaḥ
-> kauṭumbikaḥ kuṭumbinyā
+> tasyāṁ sandahyamānāyāṁ\
+> sapauraḥ saparicchadaḥ\
+> kauṭumbikaḥ kuṭumbinyā\
 > upātapyata sānvayaḥ
 
 *tasyām*—cuando aquella ciudad; *sandahyamānāyām*—estaba ardiendo; *sa-pauraḥ*—junto con todos los ciudadanos; *sa-paricchadaḥ*—junto con todos los sirvientes y seguidores; *kauṭumbikaḥ*—el rey, que tenía muchos parientes; *kuṭumbinyā*—junto con su esposa; *upātapyata*—comenzó a sufrir el calor del fuego; *sa-anvayaḥ*—junto con los descendientes.

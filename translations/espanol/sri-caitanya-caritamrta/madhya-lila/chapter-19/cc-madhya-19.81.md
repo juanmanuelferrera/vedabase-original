@@ -1,9 +1,9 @@
 ### CC Madhya 19.81
 
-> মহাপ্রভুর ভরে নৌকা করে টলমল ।
+> মহাপ্রভুর ভরে নৌকা করে টলমল ।\
 > ডুবিতে লাগিল নৌকা, ঝলকে ভরে জল ॥৮১॥
 
-> mahāprabhura bhare naukā kare ṭalamala
+> mahāprabhura bhare naukā kare ṭalamala\
 > ḍubite lāgila naukā, jhalake bhare jala
 
 *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *bhare*—debido al peso; *naukā*—el bote; *kare*—hace; *ṭalamala*—balanceo; *ḍubite*—a hundirse; *lāgila*—comenzó; *naukā*—el bote; *jhalake*—a borbotones; *bhare*—se llena; *jala*—agua.

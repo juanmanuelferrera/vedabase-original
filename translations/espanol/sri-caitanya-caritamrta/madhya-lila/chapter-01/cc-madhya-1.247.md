@@ -1,9 +1,9 @@
 ### CC Madhya 1.247
 
-> আনন্দে ভক্ত-সঙ্গে সদা কীর্তন-বিলাস ।
+> আনন্দে ভক্ত-সঙ্গে সদা কীর্তন-বিলাস ।\
 > জগন্নাথ-দরশন, প্রেমের বিলাস ॥২৪৭॥
 
-> ānande bhakta-saṅge sadā kīrtana-vilāsa
+> ānande bhakta-saṅge sadā kīrtana-vilāsa\
 > jagannātha-daraśana, premera vilāsa
 
 *ānande*—con gran gozo; *bhakta-saṅge*—con los devotos; *sadā*—siempre; *kīrtana*—del canto; *vilāsa*—disfrute; *jagannātha*—el Señor Jagannātha; *daraśana*—visita; *premera*—del éxtasis; *vilāsa*—pasatiempos.

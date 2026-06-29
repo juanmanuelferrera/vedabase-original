@@ -1,9 +1,9 @@
 ### CC Antya 1.211
 
-> শ্রীরূপ কহেন, — “আমি কিছুই না জানি ।
+> শ্রীরূপ কহেন, — “আমি কিছুই না জানি ।\
 > যেই মহাপ্রভু কহান, সেই কহি বাণী ।।” ॥ ২১১ ॥
 
-> śrī-rūpa kahena,—āmi kichui nā jāni
+> śrī-rūpa kahena,—āmi kichui nā jāni\
 > yei mahāprabhu kahāna, sei kahi vāṇī
 
 *śrī-rūpa kahena*—Śrīla Rūpa Gosvāmī replies; *āmi*—I; *kichui*—anything; *nā jani*—do not know; *yei*—whatever; *mahāprabhu kahāna*—Śrī Caitanya Mahāprabhu makes me say or write; *sei*—hat; *kahi*—I speak; *vāṇī*—transcendental words.

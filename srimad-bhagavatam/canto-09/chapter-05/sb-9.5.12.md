@@ -1,13 +1,13 @@
 ### SB 9.5.12
 
-> श्रीशुक उवाच
-> इति संस्तुवतो राज्ञओ विष्णुचक्रं सुदर्शनम
+> श्रीशुक उवाच\
+> इति संस्तुवतो राज्ञओ विष्णुचक्रं सुदर्शनम\
 > अशाम्यत्सर्वतो विप्रं प्रदहद्राजयाचञ्अया ॥१२॥
 
-> śrī-śuka uvāca
-> iti saṁstuvato rājño
-> viṣṇu-cakraṁ sudarśanam
-> aśāmyat sarvato vipraṁ
+> śrī-śuka uvāca\
+> iti saṁstuvato rājño\
+> viṣṇu-cakraṁ sudarśanam\
+> aśāmyat sarvato vipraṁ\
 > pradahad rāja-yācñayā
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *iti*—thus; *saṁstuvataḥ*—being prayed to; *rājñaḥ*—by the King; *viṣṇu-cakram*—the disc weapon of Lord Viṣṇu; *sudarśanam*—of the name Sudarśana *cakra*; *aśāmyat*—became no longer disturbing; *sarvataḥ*—in every respect; *vipram*—unto the *brāhmaṇa*; *pradahat*—causing to burn; *rāja*—of the King; *yācñayā*—by the begging.

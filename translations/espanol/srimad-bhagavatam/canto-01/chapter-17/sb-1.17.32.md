@@ -1,11 +1,11 @@
 ### SB 1.17.32
 
-> त्वां वर्तमानं नरदेवदेहेष्वनुप्रवृत्तोऽयमधर्मपूगः ।
+> त्वां वर्तमानं नरदेवदेहेष्वनुप्रवृत्तोऽयमधर्मपूगः ।\
 > लोभोऽनृतं चौर्यमनार्यमंहो ज्येष्ठा च माया कलहश्च दम्भः ॥३२॥
 
-> tvāṁ vartamānaṁ nara-deva-deheṣv
-> anupravṛtto 'yam adharma-pūgaḥ
-> lobho 'nṛtaṁ cauryam anāryam aṁho
+> tvāṁ vartamānaṁ nara-deva-deheṣv\
+> anupravṛtto 'yam adharma-pūgaḥ\
+> lobho 'nṛtaṁ cauryam anāryam aṁho\
 > jyeṣṭhā ca māyā kalahaś ca dambhaḥ
 
 *tvām*—tú; *vartamānam*—mientras estás presente; *nara-deva*—un hombre dios, o un rey; *deheṣu*—en el cuerpo; *anupravṛttaḥ*—ocurriendo en todas partes; *ayam*—todos estos; *adharma*—principios irreligiosos; *pūgaḥ*—en las masas; *lobhaḥ*—codicia; *anṛtam*—falsedad; *cauryam*—robo; *anāryam*—incultura; *aṁhaḥ*—traición; *jyeṣṭhā*—mala fortuna; *ca*—y; *māyā*—engaño; *kalahaḥ*—riña; *ca*—y; *dambhaḥ*—vanidad.

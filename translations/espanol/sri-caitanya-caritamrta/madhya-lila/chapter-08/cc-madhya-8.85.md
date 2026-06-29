@@ -1,9 +1,9 @@
 ### CC Madhya 8.85
 
-> পূর্ব-পূর্ব-রসের গুণ — পরে পরে হয় ৷
+> পূর্ব-পূর্ব-রসের গুণ — পরে পরে হয় ৷\
 > দুই-তিন গণনে পঞ্চ পর্যন্ত বাড়য় ৷৷ ৮৫ ৷৷ ॥৮৫॥
 
-> pūrva-pūrva-rasera guṇa--pare pare haya
+> pūrva-pūrva-rasera guṇa--pare pare haya\
 > dui-tina gaṇane pañca paryanta bāḍaya
 
 *pūrva-pūrva*—de cada una anterior; *rasera*—de la melosidad; *guṇa*—las cualidades; *pare pare*—en cada subsiguiente; *haya*—hay; *dui-tina*—dos y luego tres; *gaṇane*—al contar; *pañca*—cinco; *paryanta*—hasta; *bāḍaya*—aumenta.

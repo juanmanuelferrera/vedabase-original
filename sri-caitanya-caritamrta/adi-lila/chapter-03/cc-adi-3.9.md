@@ -1,9 +1,9 @@
 ### CC Adi 3.9
 
-> ‘বৈবস্বত’-নাম এই সপ্তম মন্বন্তর ।
+> ‘বৈবস্বত’-নাম এই সপ্তম মন্বন্তর ।\
 > সাতাইশ চতুর্যুগ তাহার অন্তর ॥৯॥
 
-> 'vaivasvata'-nāma ei saptama manv-antara
+> 'vaivasvata'-nāma ei saptama manv-antara\
 > sātāiśa catur-yuga tāhāra antara
 
 *vaivasvata-nāma*—named Vaivasvata; *ei*—this; *saptama*—seventh; *manu-antara*—period of Manu; *sātāiśa*—twenty-seven; *catuḥ-yuga*—cycles of four ages; *tāhāra*—of that; *antara*—period.

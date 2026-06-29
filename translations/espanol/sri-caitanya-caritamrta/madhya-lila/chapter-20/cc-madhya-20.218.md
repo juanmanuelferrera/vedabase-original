@@ -1,9 +1,9 @@
 ### CC Madhya 20.218
 
-> এইমত ব্রহ্মাণ্ড-মধ্যে সবার ‘পরকাশ’ ।
+> এইমত ব্রহ্মাণ্ড-মধ্যে সবার ‘পরকাশ’ ।\
 > সপ্তদ্বীপে নবখণ্ডে যাঁহার বিলাস ॥২১৮॥
 
-> ei-mata brahmāṇḍa-madhye sabāra 'parakāśa'
+> ei-mata brahmāṇḍa-madhye sabāra 'parakāśa'\
 > sapta-dvīpe nava-khaṇḍe yāṅhāra vilāsa
 
 *ei-mata*—de esta manera; *brahmāṇḍa-madhye*—dentro de este universo; *sabāra*—de todos Ellos; *parakāśa*—manifestaciones; *sapta-dvīpe*—en siete islas; *nava-khaṇḍe*—en diferentes secciones, nueve en número; *yāṅhāra vilāsa*—los pasatiempos de quienes.

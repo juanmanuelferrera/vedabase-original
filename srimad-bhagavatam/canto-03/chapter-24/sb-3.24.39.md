@@ -1,11 +1,11 @@
 ### SB 3.24.39
 
-> मामात्मानं स्वयंज्योतिः सर्वभूतगुहाशयम् ।
+> मामात्मानं स्वयंज्योतिः सर्वभूतगुहाशयम् ।\
 > आत्मन्येवात्मना वीक्ष्य विशोकोऽभयमृच्छसि ॥३९॥
 
-> mām ātmānaṁ svayaṁ-jyotiḥ
-> sarva-bhūta-guhāśayam
-> ātmany evātmanā vīkṣya
+> mām ātmānaṁ svayaṁ-jyotiḥ\
+> sarva-bhūta-guhāśayam\
+> ātmany evātmanā vīkṣya\
 > viśoko 'bhayam ṛcchasi
 
 *mām*—Me; *ātmānam*—the Supreme Soul, or Paramātmā; *svayam-jyotiḥ*—self-effulgent; *sarva-bhūta*—of all beings; *guhā*—in the hearts; *āśayam*—dwelling; *ātmani*—in your own heart; *eva*—indeed; *ātmanā*—through your intellect; *vīkṣya*—always seeing, always thinking; *viśokaḥ*—free from lamentation; *abhayam*—fearlessness; *ṛcchasi*—you will achieve.

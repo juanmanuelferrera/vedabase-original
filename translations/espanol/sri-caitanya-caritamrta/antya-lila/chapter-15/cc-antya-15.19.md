@@ -1,13 +1,13 @@
 ### CC Antya 15.19
 
-> কৃষ্ণরূপামৃতসিন্ধু, তাহার তরঙ্গ-বিন্দু,
-> একবিন্দু জগৎ ডুবায় ।
-> ত্রিজগতে যত নারী, তার চিত্ত-উচ্চগিরি,
+> কৃষ্ণরূপামৃতসিন্ধু, তাহার তরঙ্গ-বিন্দু,\
+> একবিন্দু জগৎ ডুবায় ।\
+> ত্রিজগতে যত নারী, তার চিত্ত-উচ্চগিরি,\
 > তাহা ডুবাই আগে উঠি’ ধায় ॥১৯॥
 
-> kṛṣṇa-rūpāmṛta-sindhu, tāhāra taraṅga-bindu,
-> eka-bindu jagat ḍubāya
-> trijagate yata nārī, tāra citta-ucca-giri,
+> kṛṣṇa-rūpāmṛta-sindhu, tāhāra taraṅga-bindu,\
+> eka-bindu jagat ḍubāya\
+> trijagate yata nārī, tāra citta-ucca-giri,\
 > tāhā ḍubāi āge uṭhi' dhāya
 
 *kṛṣṇa-rūpa*—de la belleza trascendental de Kṛṣṇa; *amṛta-sindhu*—el océano de néctar; *tāhāra*—de este; *taraṅga-bindu*—una gota de una ola; *eka-bindu*—una gota; *jagat*—el mundo entero; *ḍubāya*—puede inundar; *tri-jagate*—en los tres mundos; *yata nārī*—todas las mujeres; *tāra citta*—su conciencia; *ucca-giri*—altas colinas; *tāhā*—aquello; *ḍubāi*—inundando; *āge*—hacia adelante; *uṭhi'*—alzándose; *dhāya*—corre.

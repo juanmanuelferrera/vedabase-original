@@ -1,9 +1,9 @@
 ### CC Madhya 7.114
 
-> প্রেমাবেশে হাসি’ কান্দি’ নৃত্য-গীত কৈল ৷
+> প্রেমাবেশে হাসি’ কান্দি’ নৃত্য-গীত কৈল ৷\
 > দেখি’ সর্ব লোকের চিত্তে চমৎকার হৈল ৷৷ ১১৪ ৷৷ ॥১১৪॥
 
-> premāveśe hāsi' kāndi' nṛtya-gīta kaila
+> premāveśe hāsi' kāndi' nṛtya-gīta kaila\
 > dekhi' sarva lokera citte camatkāra haila
 
 *prema-āveśe*—en gran éxtasis de amor por Dios; *hāsi'*—riendo; *kāndi'*—llorando; *nṛtya-gīta*—danzando y cantando; *kaila*—realizó; *dekhi'*—al ver; *sarva lokera*—de todas las personas allí presentes; *citte*—en los corazones; *camatkāra*—asombro; *haila*—hubo.

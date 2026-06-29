@@ -1,9 +1,9 @@
 ### CC Madhya 6.72
 
-> সার্বভৌম কহে, — ‘ইঁহার নাম সর্বোত্তম ।
+> সার্বভৌম কহে, — ‘ইঁহার নাম সর্বোত্তম ।\
 > ভারতী সম্প্রদায় ইঁহো — হয়েন মধ্যম ।।’ ॥ ৭২ ॥
 
-> sārvabhauma kahe,—'iṅhāra nāma sarvottama
+> sārvabhauma kahe,—'iṅhāra nāma sarvottama\
 > bhāratī-sampradāya iṅho—hayena madhyama'
 
 *sārvabhauma kahe*—Sārvabhauma Bhaṭṭācārya replied; *iṅhāra*—His; *nāma*—name; *sarva-uttama*—first-class; *bhāratī-sampradāya*—the community of the Bhāratī *sannyāsīs*; *iṅho*—He; *hayena*—becomes; *madhyama*—middle-class.

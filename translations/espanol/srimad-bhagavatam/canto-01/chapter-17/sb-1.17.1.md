@@ -1,13 +1,13 @@
 ### SB 1.17.1
 
-> सूत उवाच
-> तत्र गोमिथुनं राजा हन्यमानमनाथवत् ।
+> सूत उवाच\
+> तत्र गोमिथुनं राजा हन्यमानमनाथवत् ।\
 > दण्डहस्तं च वृषलं ददृशे नृपलाञ्छनम् ॥१॥
 
-> sūta uvāca
-> tatra go-mithunaṁ rājā
-> hanyamānam anāthavat
-> daṇḍa-hastaṁ ca vṛṣalaṁ
+> sūta uvāca\
+> tatra go-mithunaṁ rājā\
+> hanyamānam anāthavat\
+> daṇḍa-hastaṁ ca vṛṣalaṁ\
 > dadṛśe nṛpa-lāñchanam
 
 *sūtaḥ uvāca*—Śrī Sūta Gosvāmī dijo; *tatra*—después; *go-mithunam*—una vaca y un toro; *rājā*—el rey; *hanyamānam*—siendo golpeados; *anātha-vat*—pareciendo haber quedado sin amo; *daṇḍa-hastam*—con una maza en la mano; *ca*—también; *vṛṣalam*—un *śūdra* de clase baja; *dadṛśe*—observó; *nṛpa*—un rey; *lāñchanam*—vestido como.

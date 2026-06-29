@@ -1,9 +1,9 @@
 ### CC Antya 18.71
 
-> ভূমিতে পড়ি’ আছে প্রভু দীর্ঘ সব কায় ।
+> ভূমিতে পড়ি’ আছে প্রভু দীর্ঘ সব কায় ।\
 > জলে শ্বেত-তনু, বালু লাগিয়াছে গায় ॥৭১॥
 
-> bhūmite paḍi' āche prabhu dīrgha saba kāya
+> bhūmite paḍi' āche prabhu dīrgha saba kāya\
 > jale śveta-tanu, vālu lāgiyāche gāya
 
 *bhūmite*—en el suelo; *paḍi'*—tendido; *āche*—estaba; *prabhu*—Śrī Caitanya Mahāprabhu; *dīrgha*—alargado; *saba kāya*—todo el cuerpo; *jale*—por el agua; *śveta-tanu*—cuerpo blanco; *vālu*—arena; *lāgiyāche gāya*—tenía el cuerpo cubierto.

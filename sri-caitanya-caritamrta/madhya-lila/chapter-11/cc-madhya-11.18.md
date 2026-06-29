@@ -1,9 +1,9 @@
 ### CC Madhya 11.18
 
-> রায় কহে, — তোমার আজ্ঞা রাজাকে কহিল ।
+> রায় কহে, — তোমার আজ্ঞা রাজাকে কহিল ।\
 > তোমার ইচ্ছায় রাজা মোর বিষয় ছাড়াইল ॥১৮॥
 
-> rāya kahe,-tomāra ājñā rājāke kahila
+> rāya kahe,-tomāra ājñā rājāke kahila\
 > tomāra icchāya rājā mora viṣaya chāḍāila
 
 *rāya kahe*—Rāmānanda Rāya said; *tomāra ājñā*—Your order; *rājāke kahila*—I informed the King; *tomāra icchāya*—by Your grace; *rājā*—the King; *mora*—my; *viṣaya*—material activities; *chāḍāila*—gave me relief from.

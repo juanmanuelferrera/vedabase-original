@@ -1,11 +1,11 @@
 ### SB 9.15.41
 
-> राज्ञओ मूर्धाभिषिक्तस्य वधो ब्रह्मवधाद्गुरुः
+> राज्ञओ मूर्धाभिषिक्तस्य वधो ब्रह्मवधाद्गुरुः\
 > तीर्थसंसेवया चांहो जह्यङ्गाच्युतचेतनः ॥४१॥
 
-> rājño mūrdhābhiṣiktasya
-> vadho brahma-vadhād guruḥ
-> tīrtha-saṁsevayā cāṁho
+> rājño mūrdhābhiṣiktasya\
+> vadho brahma-vadhād guruḥ\
+> tīrtha-saṁsevayā cāṁho\
 > jahy aṅgācyuta-cetanaḥ
 
 *rājñaḥ*—of the king; *mūrdha-abhiṣiktasya*—who is noted as the emperor; *vadhaḥ*—the killing; *brahma-vadhāt*—than killing a *brāhmaṇa*; *guruḥ*—more severe; *tīrtha-saṁsevayā*—by worshiping the holy places; *ca*—also; *aṁhaḥ*—the sinful act; *jahi*—wash out; *aṅga*—O my dear son; *acyuta-cetanaḥ*—being fully Kṛṣṇa conscious.

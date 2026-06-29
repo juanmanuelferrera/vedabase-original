@@ -1,9 +1,9 @@
 ### CC Madhya 20.368
 
-> শক্ত্যাবেশ দুইরূপ — ‘মুখ্য’, ‘গৌণ’ দেখি ।
+> শক্ত্যাবেশ দুইরূপ — ‘মুখ্য’, ‘গৌণ’ দেখি ।\
 > সাক্ষাৎশক্ত্যে ‘অবতার’, আভাসে ‘বিভূতি’ লিখি ॥৩৬৮॥
 
-> śaktyāveśa dui-rūpa--'mukhya', 'gauṇa' dekhi
+> śaktyāveśa dui-rūpa--'mukhya', 'gauṇa' dekhi\
 > sākṣāt-śaktye 'avatāra', ābhāse 'vibhūti' likhi
 
 *śakti-āveśa*—encarnaciones investidas de poder; *dui-rūpa*—dos categorías; *mukhya*—primaria; *gauṇa*—secundaria; *dekhi*—veo; *sākṣāt-śaktye*—cuando hay poder directo; *avatāra*—se les llama encarnaciones; *ābhāse*—cuando hay indicación; *vibhūti likhi*—se les llama vibhūti, o poseedoras de un favor especial.

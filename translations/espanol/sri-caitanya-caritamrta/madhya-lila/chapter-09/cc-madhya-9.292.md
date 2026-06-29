@@ -1,9 +1,9 @@
 ### CC Madhya 9.292
 
-> অদ্ভুত প্রেমের বন্যা দুঁহার উথলিল ৷
+> অদ্ভুত প্রেমের বন্যা দুঁহার উথলিল ৷\
 > দুঁহে মান্য করি’ দুঁহে আনন্দে বসিল ৷৷ ২৯২ ৷৷ ॥২৯২॥
 
-> adbhuta premera vanyā duṅhāra uthalila
+> adbhuta premera vanyā duṅhāra uthalila\
 > duṅhe mānya kari' duṅhe ānande vasila
 
 *adbhuta*—maravilloso; *premera*—de amor a Dios; *vanyā*—inundación; *duṅhāra*—de ambos; *uthalila*—surgió; *duṅhe*—ambos; *mānya kari'*—ofreciendo respeto; *duṅhe*—ambos; *ānande*—con gran felicidad; *vasila*—se sentaron.

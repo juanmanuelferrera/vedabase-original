@@ -1,11 +1,11 @@
 ### Bg 4.13
 
-> चातुर्वर्ण्यं मया सृष्टं गुणकर्मविभागशः ।
+> चातुर्वर्ण्यं मया सृष्टं गुणकर्मविभागशः ।\
 > तस्य कर्तारमपि मां विद्ध्यकर्तारमव्ययम् ॥१३॥
 
-> cātur-varṇyaṁ mayā sṛṣṭaṁ
-> guṇa-karma-vibhāgaśaḥ
-> tasya kartāram api māṁ
+> cātur-varṇyaṁ mayā sṛṣṭaṁ\
+> guṇa-karma-vibhāgaśaḥ\
+> tasya kartāram api māṁ\
 > viddhy akartāram avyayam
 
 *cātur-varṇyam*—the four divisions of human society; *mayā*—by Me; *sṛṣṭam*—created; *guṇa*—quality; *karma*—work; *vibhāgaśaḥ*—in terms of division; *tasya*—of that; *kartāram*—the father; *api*—although; *mām*—Me; *viddhi*—you may know; *akartāram*—as the non-doer; *avyayam*—being unchangeable.

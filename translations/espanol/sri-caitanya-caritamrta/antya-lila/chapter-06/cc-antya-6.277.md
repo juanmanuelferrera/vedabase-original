@@ -1,9 +1,9 @@
 ### CC Antya 6.277
 
-> এত বিচারিয়া নিমন্ত্রণ ছাড়ি’ দিল”  ।
+> এত বিচারিয়া নিমন্ত্রণ ছাড়ি’ দিল”  ।\
 > শুনি’ মহাপ্রভু হাসি’ বলিতে লাগিল ॥২৭৭॥
 
-> eta vicāriyā nimantraṇa chāḍi' dila"
+> eta vicāriyā nimantraṇa chāḍi' dila"\
 > śuni' mahāprabhu hāsi' balite lāgila
 
 *eta vicāriyā*—considerando esto; *nimantraṇa*—invitación; *chāḍi' dila*—ha dejado de hacer; *śuni'*—al oír; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *hāsi'*—sonriendo; *balite lāgila*—comenzó a decir.

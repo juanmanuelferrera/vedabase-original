@@ -1,11 +1,11 @@
 ### SB 6.17.29
 
-> देहिनां देहसंयोगाद्द्वन्द्वानीश्वरलीलया
+> देहिनां देहसंयोगाद्द्वन्द्वानीश्वरलीलया\
 > सुखं दुःखं मृतिर्जन्म शापोऽनुग्रह एव च ॥२९॥
 
-> dehināṁ deha-saṁyogād
-> dvandvānīśvara-līlayā
-> sukhaṁ duḥkhaṁ mṛtir janma
+> dehināṁ deha-saṁyogād\
+> dvandvānīśvara-līlayā\
+> sukhaṁ duḥkhaṁ mṛtir janma\
 > śāpo 'nugraha eva ca
 
 *dehinām*—de todos aquellos que han recibido cuerpos materiales; *deha-saṁyogāt*—debido al contacto con el cuerpo material; *dvandvāni*—dualidades; *īśvara-līlayā*—por la voluntad suprema del Señor; *sukham*—felicidad; *duḥkham*—aflicción; *mṛtiḥ*—muerte; *janma*—nacimiento; *śāpaḥ*—maldición; *anugrahaḥ*—bendición; *eva*—ciertamente; *ca*—y.

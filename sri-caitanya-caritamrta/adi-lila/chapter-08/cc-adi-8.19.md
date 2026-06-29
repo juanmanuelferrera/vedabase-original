@@ -1,13 +1,13 @@
 ### CC Adi 8.19
 
-> রাজন্ পতির্গুরুরলং ভবতাং যদূনাং
-> দৈবং প্রিয়ঃ কুলপতিঃ ক্ব চ কিঙ্করো বঃ ।
-> অস্ত্বেবমঙ্গ ভগবান্ ভজতাং মুকুন্দো
+> রাজন্ পতির্গুরুরলং ভবতাং যদূনাং\
+> দৈবং প্রিয়ঃ কুলপতিঃ ক্ব চ কিঙ্করো বঃ ।\
+> অস্ত্বেবমঙ্গ ভগবান্ ভজতাং মুকুন্দো\
 > মুক্তিং দদাতি কর্হিচিৎ স্ম ন ভক্তিযোগম্ ॥১৯॥
 
-> rājan patir gurur alaṁ bhavatāṁ yadūnāṁ
-> daivaṁ priyaḥ kula-patiḥ kva ca kiṅkaro vaḥ
-> astv evam aṅga bhagavān bhajatāṁ mukundo
+> rājan patir gurur alaṁ bhavatāṁ yadūnāṁ\
+> daivaṁ priyaḥ kula-patiḥ kva ca kiṅkaro vaḥ\
+> astv evam aṅga bhagavān bhajatāṁ mukundo\
 > muktiṁ dadāti karhicit sma na bhakti-yogam
 
 *rājan*—O King; *patiḥ*—master; *guruḥ*—spiritual master; *alam*—certainly; *bhavatām*—of your; *yadūnām*—of the Yadus; *daivam*—God; *priyaḥ*—very dear; *kula-patiḥ*—head of the family; *kva*—even sometimes; *ca*—also; *kiṅkaraḥ*—order carrier; *vaḥ*—you; *astu*—there is; *evam*—thus; *aṅga*—however; *bhagavān*—the Supreme Personality of Godhead; *bhajatām*—those who are in devotional service; *mukundaḥ*—Lord Kṛṣṇa; *muktim*—liberation; *dadāti*—gives; *karhicit*—sometimes; *sma*—certainly; *na*—not; *bhakti-yogam*—devotional service.

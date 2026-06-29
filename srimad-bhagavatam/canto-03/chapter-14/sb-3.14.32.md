@@ -1,11 +1,11 @@
 ### SB 3.14.32
 
-> अथोपस्पृश्य सलिलं प्राणानायम्य वाग्यतः ।
+> अथोपस्पृश्य सलिलं प्राणानायम्य वाग्यतः ।\
 > ध्यायञ्जजाप विरजं ब्रह्म ज्योतिः सनातनम् ॥३२॥
 
-> athopaspṛśya salilaṁ
-> prāṇān āyamya vāg-yataḥ
-> dhyāyañ jajāpa virajaṁ
+> athopaspṛśya salilaṁ\
+> prāṇān āyamya vāg-yataḥ\
+> dhyāyañ jajāpa virajaṁ\
 > brahma jyotiḥ sanātanam
 
 *atha*—thereafter; *upaspṛśya*—touching or taking bath in water; *salilam*—water; *prāṇān āyamya*—practicing trance; *vāk-yataḥ*—controlling speech; *dhyāyan*—meditating; *jajāpa*—chanted within the mouth; *virajam*—pure; *brahma*—Gāyatrī hymns; *jyotiḥ*—effulgence; *sanātanam*—eternal.

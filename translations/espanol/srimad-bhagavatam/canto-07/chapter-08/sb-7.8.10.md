@@ -1,11 +1,11 @@
 ### SB 7.8.10
 
-> जह्यासुरं भावमिमं त्वमात्मनः समं मनो धत्स्व न सन्ति विद्विषः
+> जह्यासुरं भावमिमं त्वमात्मनः समं मनो धत्स्व न सन्ति विद्विषः\
 > ऋतेऽजितादात्मन उत्पथे स्थितात्तद्धि ह्यनन्तस्य महत्समर्हणम ॥१०॥
 
-> dasyūn purā ṣaṇ na vijitya lumpato
-> manyanta eke sva-jitā diśo daśa
-> jitātmano jñasya samasya dehināṁ
+> dasyūn purā ṣaṇ na vijitya lumpato\
+> manyanta eke sva-jitā diśo daśa\
+> jitātmano jñasya samasya dehināṁ\
 > sādhoḥ sva-moha-prabhavāḥ kutaḥ pare
 
 *dasyūn*—bandidos; *purā*—en el principio; *ṣaṭ*—seis; *na*—no; *vijitya*—venciendo; *lumpataḥ*—que roban todas nuestras posesiones; *manyante*—consideran; *eke*—algunos; *sva-jitāḥ*—conquistadas; *diśaḥ daśa*—las diez direcciones; *jita-ātmanaḥ*—aquel que ha conquistado los sentidos; *jñasya*—erudito; *samasya*—ecuánime; *dehinām*—con todas las entidades vivientes; *sādhoḥ*—de esa persona santa; *sva-moha-prabhavāḥ*—creados por nuestra propia ilusión; *kutaḥ*—donde; *pare*—enemigos o elementos contrarios.

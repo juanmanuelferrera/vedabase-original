@@ -1,11 +1,11 @@
 ### CC Antya 18.84
 
-> সখি হে, দেখ কৃষ্ণের জলকেলি-রঙ্গে ।
-> কৃষ্ণ মত্ত করিবর, চঞ্চল কর-পুষ্কর,
+> সখি হে, দেখ কৃষ্ণের জলকেলি-রঙ্গে ।\
+> কৃষ্ণ মত্ত করিবর, চঞ্চল কর-পুষ্কর,\
 > গোপীগণ করিণীর সঙ্গে ।। ৮৪ ।। ধ্রু ।। ॥৮৪॥
 
-> sakhi he, dekha kṛṣṇera jala-keli-raṅge
-> kṛṣṇa matta kari-vara, cañcala kara-puṣkara,
+> sakhi he, dekha kṛṣṇera jala-keli-raṅge\
+> kṛṣṇa matta kari-vara, cañcala kara-puṣkara,\
 > gopī-gaṇa kariṇīra saṅge
 
 *sakhi he*—¡oh, queridas amigas!; *dekha*—solo contemplad; *kṛṣṇera*—del Señor Kṛṣṇa; *jala-keli*—de los pasatiempos en el agua; *raṅge*—el ánimo festivo; *kṛṣṇa*—el Señor Kṛṣṇa; *matta*—enloquecido; *kari-vara*—elefante principal; *cañcala*—inquietas; *kara-puṣkara*—palmas de loto; *gopī-gaṇa*—las gopīs; *kariṇīra*—de las elefantas; *saṅge*—en compañía.

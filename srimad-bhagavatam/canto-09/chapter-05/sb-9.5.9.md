@@ -1,11 +1,11 @@
 ### SB 9.5.9
 
-> स त्वं जगत्त्राण खलप्रहाणये निरूपितः सर्वसहो गदाभृता
+> स त्वं जगत्त्राण खलप्रहाणये निरूपितः सर्वसहो गदाभृता\
 > विप्रस्य चास्मत्कुलदैवहेतवे विधेहि भद्रं तदनुग्रहो हि नः ॥९॥
 
-> sa tvaṁ jagat-trāṇa khala-prahāṇaye
-> nirūpitaḥ sarva-saho gadā-bhṛtā
-> viprasya cāsmat-kula-daiva-hetave
+> sa tvaṁ jagat-trāṇa khala-prahāṇaye\
+> nirūpitaḥ sarva-saho gadā-bhṛtā\
+> viprasya cāsmat-kula-daiva-hetave\
 > vidhehi bhadraṁ tad anugraho hi naḥ
 
 *saḥ*—that person; *tvam*—your good self; *jagat-trāṇa*—O protector of the whole universe; *khala-prahāṇaye*—in killing the envious enemies; *nirūpitaḥ*—are engaged; *sarva-sahaḥ*—all-powerful; *gadā-bhṛtā*—by the Supreme Personality of Godhead; *viprasya*—of this *brāhmaṇa*; *ca*—also; *asmat*—our; *kula-daiva-hetave*—for the good fortune of the dynasty; *vidhehi*—kindly do; *bhadram*—all-good; *tat*—that; *anugrahaḥ*—favor; *hi*—indeed; *naḥ*—our.

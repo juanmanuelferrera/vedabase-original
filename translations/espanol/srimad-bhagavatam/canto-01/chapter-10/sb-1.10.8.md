@@ -1,11 +1,11 @@
 ### SB 1.10.8
 
-> आमन्त्र्य चाभ्यनुज्ञातः परिष्वज्याभिवाद्य तम् ।
+> आमन्त्र्य चाभ्यनुज्ञातः परिष्वज्याभिवाद्य तम् ।\
 > आरुरोह रथं कैश्चित्परिष्वक्तोऽभिवादितः ॥८॥
 
-> āmantrya cābhyanujñātaḥ
-> pariṣvajyābhivādya tam
-> āruroha rathaṁ kaiścit
+> āmantrya cābhyanujñātaḥ\
+> pariṣvajyābhivādya tam\
+> āruroha rathaṁ kaiścit\
 > pariṣvakto 'bhivāditaḥ
 
 *āmantrya*—pidiendo permiso; *ca*—y; *abhyanujñātaḥ*—permitiéndosele; *pariṣvajya*—abrazando; *abhivādya*—postrándose a los pies; *tam*—a Mahārāja Yudhiṣṭhira; *āruroha*—se subió; *ratham*—la cuadriga; *kaiścit*—por alguien; *pariṣvaktaḥ*—abrazado; *abhivāditaḥ*—ofreciéndosele reverencias.

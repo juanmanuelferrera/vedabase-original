@@ -1,9 +1,9 @@
 ### CC Adi 10.14
 
-> পুণ্ডরীক বিদ্যানিধি — বড়শাখা জানি ।
+> পুণ্ডরীক বিদ্যানিধি — বড়শাখা জানি ।\
 > যাঁর নাম লঞা প্রভু কান্দিলা আপনি ॥১৪॥
 
-> puṇḍarīka vidyānidhi—baḍa-śākhā jāni
+> puṇḍarīka vidyānidhi—baḍa-śākhā jāni\
 > yāṅra nāma lañā prabhu kāndilā āpani
 
 *puṇḍarīka vidyānidhi*—of the name Puṇḍarīka Vidyānidhi; *baḍa-śākhā*—another big branch; *jāni*—I know; *yāṅra nāma*—whose name; *lañā*—taking; *prabhu*—the Lord; *kāndilā*—cried; *āpani*—Himself.

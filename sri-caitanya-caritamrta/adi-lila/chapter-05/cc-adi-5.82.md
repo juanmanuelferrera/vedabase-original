@@ -1,9 +1,9 @@
 ### CC Adi 5.82
 
-> আদ্যাবতার, মহাপুরুষ, ভগবান্ ।
+> আদ্যাবতার, মহাপুরুষ, ভগবান্ ।\
 > সর্ব-অবতার-বীজ, সর্বাশ্রয়-ধাম ॥৮২॥
 
-> ādyāvatāra, mahā-puruṣa, bhagavān
+> ādyāvatāra, mahā-puruṣa, bhagavān\
 > sarva-avatāra-bīja, sarvāśraya-dhāma
 
 *ādya-avatāra*—the original incarnation; *mahā-puruṣa*—Lord Mahā-Viṣṇu; *bhagavān*—the Personality of Godhead; *sarva-avatāra-bīja*—the seed of all different kinds of incarnations; *sarva-āśraya-dhāma*—the shelter of everything.

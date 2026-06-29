@@ -1,14 +1,14 @@
 ### CC Madhya 22.144
 
-> স্বপাদমূলং ভজতঃ প্রিয়স্য
-> ত্যক্তান্যভাবস্য হরিঃ পরেশঃ ।
-> বিকর্ম যচ্চোৎপতিতং কথঞ্চিদ্
+> স্বপাদমূলং ভজতঃ প্রিয়স্য\
+> ত্যক্তান্যভাবস্য হরিঃ পরেশঃ ।\
+> বিকর্ম যচ্চোৎপতিতং কথঞ্চিদ্\
 > ধুনোতি সর্বং হৃদি সন্নিবিষ্টঃ ॥১৪৪॥
 
-> svapāda-mūlaṁ bhajataḥ priyasya
+> svapāda-mūlaṁ bhajataḥ priyasya\
 > tyaktānya-bhāvasya hariḥ pareśaḥ
 
-> vikarma yac cotpatitaṁ kathañcit
+> vikarma yac cotpatitaṁ kathañcit\
 > dhunoti sarvaṁ hṛdi sanniviṣṭaḥ
 
 *sva-pāda-mūlam*—the lotus feet of Kṛṣṇa, the shelter of the devotees; *bhajataḥ*—who is engaged in worshiping; *priyasya*—who is very dear to Kṛṣṇa; *tyakta*—given up; *anya*—for others; *bhāvasya*—of one whose disposition or inclination; *hariḥ*—the Supreme Personality of Godhead; *para-īśaḥ*—the Supreme Lord; *vikarma*—sinful activities; *yat*—whatever; *ca*—and; *utpatitam*—occurred; *kathañcit*—somehow; *dhunoti*—removes; *sarvam*—everything; *hṛdi*—in the heart; *sanniviṣṭaḥ*—entered.

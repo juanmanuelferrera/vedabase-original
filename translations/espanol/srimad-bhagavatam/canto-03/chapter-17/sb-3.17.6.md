@@ -1,11 +1,11 @@
 ### SB 3.17.6
 
-> उद्धसत्तडिदम्भोद घटया नष्टभागणे ।
+> उद्धसत्तडिदम्भोद घटया नष्टभागणे ।\
 > व्योम्नि प्रविष्टतमसा न स्म व्यादृश्यते पदम् ॥६॥
 
-> uddhasat-taḍid-ambhoda-
-> ghaṭayā naṣṭa-bhāgaṇe
-> vyomni praviṣṭa-tamasā
+> uddhasat-taḍid-ambhoda-\
+> ghaṭayā naṣṭa-bhāgaṇe\
+> vyomni praviṣṭa-tamasā\
 > na sma vyādṛśyate padam
 
 *uddhasat*—riendo en voz alta; *taḍit*—relámpagos; *ambhoda*—de nubes; *ghaṭayā*—por masas; *naṣṭa*—perdidos; *bhā-gaṇe*—los astros luminosos; *vyomni*—en el cielo; *praviṣṭa*—envuelto; *tamasā*—por la oscuridad; *na*—no; *sma vyādṛśyate*—se podía ver; *padam*—ningún sitio.

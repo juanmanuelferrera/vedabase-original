@@ -1,11 +1,11 @@
 ### SB 6.1.21
 
-> कान्यकुब्जे द्विजः कश्चिद्दासीपतिरजामिलः
+> कान्यकुब्जे द्विजः कश्चिद्दासीपतिरजामिलः\
 > नाम्ना नष्टसदाचारो दास्याः संसर्गदूषितः ॥२१॥
 
-> kānyakubje dvijaḥ kaścid
-> dāsī-patir ajāmilaḥ
-> nāmnā naṣṭa-sadācāro
+> kānyakubje dvijaḥ kaścid\
+> dāsī-patir ajāmilaḥ\
+> nāmnā naṣṭa-sadācāro\
 > dāsyāḥ saṁsarga-dūṣitaḥ
 
 *kānya-kubje*—en la ciudad de Kānyakubja (Kanauj, una ciudad cercana a Kanpur); *dvijaḥ*—*brāhmaṇa*; *kaścit*—cierto; *dāsī-patiḥ*—el esposo de una prostituta o mujer de baja clase; *ajāmilaḥ*—Ajāmila; *nāmnā*—de nombre; *naṣṭa-sat-ācāraḥ*—que perdió todas las cualidades brahmínicas; *dāsyāḥ*—de la prostituta o sirvienta; *saṁsarga-dūṣitaḥ*—contaminado por la relación.

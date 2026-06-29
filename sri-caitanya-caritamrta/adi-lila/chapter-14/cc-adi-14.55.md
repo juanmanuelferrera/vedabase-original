@@ -1,9 +1,9 @@
 ### CC Adi 14.55
 
-> পণ্ডিত, বিদগ্ধ, যুবা, ধনধান্যবান্ ।
+> পণ্ডিত, বিদগ্ধ, যুবা, ধনধান্যবান্ ।\
 > সাত সাত পুত্র হবে — চিরায়ু, মতিমান্ ।।” ॥ ৫৫ ॥
 
-> paṇḍita, vidagdha, yuvā, dhana-dhānyavān
+> paṇḍita, vidagdha, yuvā, dhana-dhānyavān\
 > sāta sāta putra habe—cirāyu, matimān"
 
 *paṇḍita*—learned; *vidagdha*—expert and humorous; *yuvā*—young man; *dhana-dhānyavān*—very rich, possessing wealth and rice; *sāta sāta*—seven each; *putra*—sons; *habe*—you will have; *cirāyu*—born with a long life; *matimān*—and intelligent.

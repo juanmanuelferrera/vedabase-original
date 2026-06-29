@@ -1,11 +1,11 @@
 ### SB 9.16.37
 
-> एवं कौशिकगोत्रं तु विश्वामित्रैः पृथग्विधम
+> एवं कौशिकगोत्रं तु विश्वामित्रैः पृथग्विधम\
 > प्रवरान्तरमापन्नं तद्धि चैवं प्रकल्पितम ॥३७॥
 
-> evaṁ kauśika-gotraṁ tu
-> viśvāmitraiḥ pṛthag-vidham
-> pravarāntaram āpannaṁ
+> evaṁ kauśika-gotraṁ tu\
+> viśvāmitraiḥ pṛthag-vidham\
+> pravarāntaram āpannaṁ\
 > tad dhi caivaṁ prakalpitam
 
 *evam*—de este modo (algunos hijos maldecidos y otros bendecidos); *kauśika-gotram*—la dinastía de Kauśika; *tu*—en verdad; *viśvāmitraiḥ*—por los hijos de Viśvāmitra; *pṛthak-vidham*—en diversidad; *pravara-antaram*—diferencias entre unos y otros; *āpannam*—obtenidas; *tat*—eso; *hi*—en verdad; *ca*—también; *evam*—así; *prakalpitam*—definido.

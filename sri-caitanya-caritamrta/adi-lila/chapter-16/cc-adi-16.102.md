@@ -1,9 +1,9 @@
 ### CC Adi 16.102
 
-> দোষ-গুণ-বিচার — এই অল্প করি’ মানি ।
+> দোষ-গুণ-বিচার — এই অল্প করি’ মানি ।\
 > কবিত্ব-করণে শক্তি, তাঁহা সে বাখানি ॥১০২॥
 
-> doṣa-guṇa-vicāra—ei alpa kari' māni
+> doṣa-guṇa-vicāra—ei alpa kari' māni\
 > kavitva-karaṇe śakti, tāṅhā se vākhāni
 
 *doṣa-guṇa-vicāra*—therefore to criticize one's poetry as good or bad; *ei*—this; *alpa*—negligible; *kari'*—making; *māni*—I consider; *kavitva*—poetic ingenuity; *karaṇe*—in performing; *śakti*—power; *tāṅhā*—that; *se*—we; *vākhāni*—describe.

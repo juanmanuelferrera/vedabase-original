@@ -1,11 +1,11 @@
 ### SB 9.16.34
 
-> स होवाच मधुच्छन्दाः सार्धं पञ्चाशता ततः
+> स होवाच मधुच्छन्दाः सार्धं पञ्चाशता ततः\
 > यन्नो भवान्सञ्जानीते तस्मिंस्तिष्ठामहे वयम ॥३४॥
 
-> sa hovāca madhucchandāḥ
-> sārdhaṁ pañcāśatā tataḥ
-> yan no bhavān sañjānīte
+> sa hovāca madhucchandāḥ\
+> sārdhaṁ pañcāśatā tataḥ\
+> yan no bhavān sañjānīte\
 > tasmiṁs tiṣṭhāmahe vayam
 
 *saḥ*—the middle son of Viśvāmitra; *ha*—indeed; *uvāca*—said; *madhucchandāḥ*—Madhucchandā; *sārdham*—with; *pañcāśatā*—the second fifty of the sons known as the Madhucchandās; *tataḥ*—then, after the first half were thus cursed; *yat*—what; *naḥ*—unto us; *bhavān*—O father; *sañjānīte*—as you please; *tasmin*—in that; *tiṣṭhāmahe*—shall remain; *vayam*—all of us.

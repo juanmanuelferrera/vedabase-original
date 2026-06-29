@@ -1,11 +1,11 @@
 ### SB 4.23.9
 
-> सनत्कुमारो भगवान्यदाहाध्यात्मिकं परम् ।
+> सनत्कुमारो भगवान्यदाहाध्यात्मिकं परम् ।\
 > योगं तेनैव पुरुषमभजत्पुरुषर्षभः ॥९॥
 
-> sanat-kumāro bhagavān
-> yad āhādhyātmikaṁ param
-> yogaṁ tenaiva puruṣam
+> sanat-kumāro bhagavān\
+> yad āhādhyātmikaṁ param\
+> yogaṁ tenaiva puruṣam\
 > abhajat puruṣarṣabhaḥ
 
 *sanat-kumāraḥ*—Sanat-kumāra; *bhagavān*—most powerful; *yat*—that which; *āha*—said; *ādhyātmikam*—spiritual advancement of life; *param*—ultimate; *yogam*—mysticism; *tena*—by that; *eva*—certainly; *puruṣam*—the Supreme Person; *abhajat*—worshiped; *puruṣa-ṛṣabhaḥ*—the best of human beings.

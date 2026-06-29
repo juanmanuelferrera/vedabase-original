@@ -1,11 +1,11 @@
 ### SB 8.15.30
 
-> विजेष्यति न कोऽप्येनं ब्रह्मतेजःसमेधितम
+> विजेष्यति न कोऽप्येनं ब्रह्मतेजःसमेधितम\
 > नास्य शक्तः पुरः स्थातुं कृतान्तस्य यथा जनाः ॥३०॥
 
-> tasmān nilayam utsṛjya
-> yūyaṁ sarve tri-viṣṭapam
-> yāta kālaṁ pratīkṣanto
+> tasmān nilayam utsṛjya\
+> yūyaṁ sarve tri-viṣṭapam\
+> yāta kālaṁ pratīkṣanto\
 > yataḥ śatror viparyayaḥ
 
 *tasmāt*—therefore; *nilayam*—not visible; *utsṛjya*—giving up; *yūyam*—you; *sarve*—all; *tri-viṣṭapam*—the heavenly kingdom; *yāta*—go somewhere else; *kālam*—time; *pratīkṣantaḥ*—waiting for; *yataḥ*—whereof; *śatroḥ*—of your enemy; *viparyayaḥ*—the reverse condition arrives.

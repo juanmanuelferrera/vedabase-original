@@ -1,9 +1,9 @@
 ### CC Antya 12.88
 
-> প্রভুর নামে মাতারে দণ্ডবৎ কৈলা ।
+> প্রভুর নামে মাতারে দণ্ডবৎ কৈলা ।\
 > প্রভুর বিনতি-স্তুতি মাতারে কহিলা ॥৮৮॥
 
-> prabhura nāme mātāre daṇḍavat kailā
+> prabhura nāme mātāre daṇḍavat kailā\
 > prabhura vinati-stuti mātāre kahilā
 
 *prabhura nāme*—en nombre de Śrī Caitanya Mahāprabhu; *mātāre*—a Su madre; *daṇḍavat kailā*—ofreció reverencias; *prabhura*—de Śrī Caitanya Mahāprabhu; *vinati-stuti*—oraciones muy sumisas; *mātāre*—a Su madre; *kahilā*—le informó.

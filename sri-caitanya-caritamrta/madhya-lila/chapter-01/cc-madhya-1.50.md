@@ -1,9 +1,9 @@
 ### CC Madhya 1.50
 
-> বিংশতি বৎসর ঐছে কৈলা গতাগতি ।
+> বিংশতি বৎসর ঐছে কৈলা গতাগতি ।\
 > অন্যোঽন্যে দুঁহার দুঁহা বিনা নাহি স্থিতি ॥৫০॥
 
-> viṁśati vatsara aiche kailā gatāgati
+> viṁśati vatsara aiche kailā gatāgati\
 > anyonye duṅhāra duṅhā vinā nāhi sthiti
 
 *viṁśati*—twenty; *vatsara*—years; *aiche*—thus; *kailā*—did; *gata-āgati*—going and coming; *anyonye*—mutually; *duṅhāra*—of Lord Caitanya and the devotees; *duṅhā*—the two; *vinā*—without; *nāhi*—there is not; *sthiti*—peace.

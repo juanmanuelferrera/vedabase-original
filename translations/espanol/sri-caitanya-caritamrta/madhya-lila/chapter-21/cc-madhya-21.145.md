@@ -1,13 +1,13 @@
 ### CC Madhya 21.145
 
-> পুনঃ কহে বাহ্যজ্ঞানে, আন কহিতে কহিলুঁ আনে,
-> কৃষ্ণ-কৃপা তোমার উপরে ।
-> মোর চিত্ত-ভ্রম করি’, নিজৈশ্বর্য-মাধুরী,
+> পুনঃ কহে বাহ্যজ্ঞানে, আন কহিতে কহিলুঁ আনে,\
+> কৃষ্ণ-কৃপা তোমার উপরে ।\
+> মোর চিত্ত-ভ্রম করি’, নিজৈশ্বর্য-মাধুরী,\
 > মোর মুখে শুনায় তোমারে ॥১৪৫॥
 
-> punaḥ kahe bāhya-jñāne, āna kahite kahiluṅ āne,
-> kṛṣṇa-kṛpā tomāra upare
-> mora citta-bhrama kari', nijaiśvarya-mādhurī,
+> punaḥ kahe bāhya-jñāne, āna kahite kahiluṅ āne,\
+> kṛṣṇa-kṛpā tomāra upare\
+> mora citta-bhrama kari', nijaiśvarya-mādhurī,\
 > mora mukhe śunāya tomāre
 
 *punaḥ*—de nuevo; *kahe*—dice; *bāhya-jñāne*—en conciencia externa; *āna*—otra cosa; *kahite*—para decir; *kahiluṅ*—he dicho; *āne*—otra cosa; *kṛṣṇa-kṛpā*—la misericordia del Señor Kṛṣṇa; *tomāra*—tú; *upare*—sobre; *mora*—Mi; *citta-bhrama*—confusión mental; *kari'*—haciendo; *nija-aiśvarya*—Su opulencia personal; *mādhurī*—dulzura; *mora mukhe*—a través de Mi boca; *śunāya*—hace oír; *tomāre*—a ti.

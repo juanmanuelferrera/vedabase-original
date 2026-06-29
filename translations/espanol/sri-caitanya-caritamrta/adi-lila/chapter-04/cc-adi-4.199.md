@@ -1,9 +1,9 @@
 ### CC Adi 4.199
 
-> প্রীতিবিষয়ানন্দে তদাশ্রয়ানন্দ ।
+> প্রীতিবিষয়ানন্দে তদাশ্রয়ানন্দ ।\
 > তাঁহা নাহি নিজসুখবাঞ্ছার সম্বন্ধ ॥১৯৯॥
 
-> prīti-viṣayānande tad-āśrayānanda
+> prīti-viṣayānande tad-āśrayānanda\
 > tāṅhā nāhi nija-sukha-vāñchāra sambandha
 
 *prīti-viṣaya-ānande*—en la dicha del objeto del amor; *tat*—de ese amor; *āśraya-ānanda*—la dicha del receptáculo; *tāṅhā*—eso; *nāhi*—no; *nija-sukha-vāñchāra*—de deseo de felicidad propia; *sambandha*—relación.

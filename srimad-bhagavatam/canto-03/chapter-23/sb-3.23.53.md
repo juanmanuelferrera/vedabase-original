@@ -1,11 +1,11 @@
 ### SB 3.23.53
 
-> एतावतालं कालेन व्यतिक्रान्तेन मे प्रभो ।
+> एतावतालं कालेन व्यतिक्रान्तेन मे प्रभो ।\
 > इन्द्रियार्थप्रसङ्गेन परित्यक्तपरात्मनः ॥५३॥
 
-> etāvatālaṁ kālena
-> vyatikrāntena me prabho
-> indriyārtha-prasaṅgena
+> etāvatālaṁ kālena\
+> vyatikrāntena me prabho\
+> indriyārtha-prasaṅgena\
 > parityakta-parātmanaḥ
 
 *etāvatā*—so much; *alam*—for nothing; *kālena*—time; *vyatikrāntena*—passed by; *me*—my; *prabho*—O my lord; *indriya-artha*—sense gratification; *prasaṅgena*—in the matter of indulging; *parityakta*—disregarding; *para-ātmanaḥ*—knowledge of the Supreme Lord.

@@ -1,13 +1,13 @@
 ### CC Madhya 2.24
 
-> ‘কৃষ্ণ — কৃপা-পারাবার, কভু করিবেন অঙ্গীকার’,
-> সখি, তোর এ ব্যর্থ বচন ।
-> জীবের জীবন চঞ্চল, যেন পদ্মপত্রের জল,
+> ‘কৃষ্ণ — কৃপা-পারাবার, কভু করিবেন অঙ্গীকার’,\
+> সখি, তোর এ ব্যর্থ বচন ।\
+> জীবের জীবন চঞ্চল, যেন পদ্মপত্রের জল,\
 > তত দিন জীবে কোন্ জন ॥২৪॥
 
-> 'kṛṣṇa—kṛpā-pārāvāra, kabhu karibena aṅgīkāra'
-> sakhī, tora e vyartha vacana
-> jīvera jīvana cañcala, yena padma-patrera jala,
+> 'kṛṣṇa—kṛpā-pārāvāra, kabhu karibena aṅgīkāra'\
+> sakhī, tora e vyartha vacana\
+> jīvera jīvana cañcala, yena padma-patrera jala,\
 > tata dina jīve kon jana
 
 *kṛṣṇa*—Lord Kṛṣṇa; *kṛpā-pārāvāra*—an ocean of mercy; *kabhu*—sometimes; *karibena*—will make; *aṅgīkāra*—acceptance; *sakhī*—My dear friend; *tora*—your; *e*—these; *vyartha*—untruthful; *vacana*—complimentary words; *jīvera*—of the living entity; *jīvana*—life; *cañcala*—flickering; *yena*—like; *padma-patrera*—of the leaf of the lotus flower; *jala*—the water; *tata*—so many; *dina*—days; *jīve*—lives; *kon*—what; *jana*—person.

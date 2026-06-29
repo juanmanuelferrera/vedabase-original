@@ -1,13 +1,13 @@
 ### CC Antya 19.94
 
-> নেত্র-নাভি, বদন, কর-যুগ চরণ,
-> এই অষ্টপদ্ম কৃষ্ণ-অঙ্গে ।
-> কর্পূর-লিপ্ত কমল, তার যৈছে পরিমল,
+> নেত্র-নাভি, বদন, কর-যুগ চরণ,\
+> এই অষ্টপদ্ম কৃষ্ণ-অঙ্গে ।\
+> কর্পূর-লিপ্ত কমল, তার যৈছে পরিমল,\
 > সেই গন্ধ অষ্টপদ্ম-সঙ্গে ॥৯৪॥
 
-> netra-nābhi, vadana, kara-yuga caraṇa,
-> ei aṣṭa-padma kṛṣṇa-aṅge
-> karpūra-lipta kamala, tāra yaiche parimala,
+> netra-nābhi, vadana, kara-yuga caraṇa,\
+> ei aṣṭa-padma kṛṣṇa-aṅge\
+> karpūra-lipta kamala, tāra yaiche parimala,\
 > sei gandha aṣṭa-padma-saṅge
 
 *netra*—los ojos; *nābhi*—el ombligo; *vadana*—el rostro; *kara-yuga*—las palmas de las manos; *caraṇa*—los pies; *ei*—estos; *aṣṭa*—ocho; *padma*—flores de loto; *kṛṣṇa-aṅge*—en el cuerpo de Kṛṣṇa; *karpūra*—con alcanfor; *lipta*—untada; *kamala*—la flor de loto; *tāra*—de ella; *yaiche*—como; *parimala*—la fragancia; *sei gandha*—esa fragancia; *aṣṭa-padma-saṅge*—está asociada con las ocho flores de loto.

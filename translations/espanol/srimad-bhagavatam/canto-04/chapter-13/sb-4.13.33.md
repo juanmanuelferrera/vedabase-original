@@ -1,11 +1,11 @@
 ### SB 4.13.33
 
-> तथा स्वभागधेयानि ग्रहीष्यन्ति दिवौकसः ।
+> तथा स्वभागधेयानि ग्रहीष्यन्ति दिवौकसः ।\
 > यद्यज्ञपुरुषः साक्षादपत्याय हरिर्वृतः ॥३३॥
 
-> tathā sva-bhāgadheyāni
-> grahīṣyanti divaukasaḥ
-> yad yajña-puruṣaḥ sākṣād
+> tathā sva-bhāgadheyāni\
+> grahīṣyanti divaukasaḥ\
+> yad yajña-puruṣaḥ sākṣād\
 > apatyāya harir vṛtaḥ
 
 *tathā*—como consecuencia; *sva-bhāga-dheyāni*—las partes que les correspondan del sacrificio; *grahīṣyanti*—recogerán; *diva-okasaḥ*—todos los semidioses; *yat*—porque; *yajña-puruṣaḥ*—el disfrutador de todos los sacrificios; *sākṣāt*—directamente; *apatyāya*—para tener un hijo; *hariḥ*—la Suprema Personalidad de Dios; *vṛtaḥ*—sea invitado.

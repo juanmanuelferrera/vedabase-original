@@ -1,9 +1,9 @@
 ### CC Madhya 20.396
 
-> গোলোক, গোকুল-ধাম — ‘বিভু’ কৃষ্ণসম ।
+> গোলোক, গোকুল-ধাম — ‘বিভু’ কৃষ্ণসম ।\
 > কৃষ্ণেচ্ছায় ব্রহ্মাণ্ডগণে তাহার সংক্রম ॥৩৯৬॥
 
-> goloka, gokula-dhāma--'vibhu' kṛṣṇa-sama
+> goloka, gokula-dhāma--'vibhu' kṛṣṇa-sama\
 > kṛṣṇecchāya brahmāṇḍa-gaṇe tāhāra saṅkrama
 
 *goloka*—el planeta conocido como Goloka; *gokula-dhāma*—la tierra espiritual, los campos de pastoreo de las vacas surabhi; *vibhu*—opulenta y poderosa; *kṛṣṇa-sama*—tanto como Kṛṣṇa; *kṛṣṇa-icchāya*—por la voluntad suprema de Kṛṣṇa; *brahmāṇḍa-gaṇe*—en cada uno de los universos; *tāhāra*—de los dhāmas de Goloka y Gokula; *saṅkrama*—aparición.

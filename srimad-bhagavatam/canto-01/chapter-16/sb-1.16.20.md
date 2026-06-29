@@ -1,11 +1,11 @@
 ### SB 1.16.20
 
-> पादैर्न्यूनं शोचसि मैकपादमात्मानं वा वृषलैर्भोक्ष्यमाणम् ।
+> पादैर्न्यूनं शोचसि मैकपादमात्मानं वा वृषलैर्भोक्ष्यमाणम् ।\
 > आहो सुरादीन्हृतयज्ञभागान्प्रजा उत स्विन्मघवत्यवर्षति ॥२०॥
 
-> pādair nyūnaṁ śocasi maika-pādam
-> ātmānaṁ vā vṛṣalair bhokṣyamāṇam
-> āho surādīn hṛta-yajña-bhāgān
+> pādair nyūnaṁ śocasi maika-pādam\
+> ātmānaṁ vā vṛṣalair bhokṣyamāṇam\
+> āho surādīn hṛta-yajña-bhāgān\
 > prajā uta svin maghavaty avarṣati
 
 *pādaiḥ*—by three legs; *nyūnam*—diminished; *śocasi*—if you are lamenting for that; *mā*—my; *eka-pādam*—only one leg; *ātmānam*—own body; *vā*—or; *vṛṣalaiḥ*—by the unlawful meat-eaters; *bhokṣyamāṇam*—to be exploited; *āhoḥ*—in sacrifice; *sura-ādīn*—the authorized demigods; *hṛta-yajña*—devoid of sacrificial; *bhāgān*—share; *prajāḥ*—the living beings; *uta*—increasing; *svit*—whether; *maghavati*—in famine and scarcity; *avarṣati*—because of rainlessness.

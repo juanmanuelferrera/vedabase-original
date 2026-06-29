@@ -1,11 +1,11 @@
 ### SB 3.23.56
 
-> नेह यत्कर्म धर्माय न विरागाय कल्पते ।
+> नेह यत्कर्म धर्माय न विरागाय कल्पते ।\
 > न तीर्थपदसेवायै जीवन्नपि मृतो हि सः ॥५६॥
 
-> neha yat karma dharmāya
-> na virāgāya kalpate
-> na tīrtha-pada-sevāyai
+> neha yat karma dharmāya\
+> na virāgāya kalpate\
+> na tīrtha-pada-sevāyai\
 > jīvann api mṛto hi saḥ
 
 *na*—no; *iha*—aquí; *yat*—que; *karma*—trabaja; *dharmāya*—para la perfección de la vida religiosa; *na*—no; *virāgāya*—para el desapego; *kalpate*—lleva; *na*—no; *tīrtha-pada*—de los pies de loto del Señor; *sevāyai*—al servicio devocional; *jīvan*—viviendo; *api*—aunque; *mṛtaḥ*—muerto; *hi*—en verdad; *saḥ*—él.

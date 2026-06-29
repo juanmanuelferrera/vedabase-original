@@ -1,11 +1,11 @@
 ### SB 3.1.31
 
-> क्षेमं स कच्चिद्युयुधान आस्ते यः फाल्गुनाल्लब्धधनूरहस्यः ।
+> क्षेमं स कच्चिद्युयुधान आस्ते यः फाल्गुनाल्लब्धधनूरहस्यः ।\
 > लेभेऽञ्जसाधोक्षजसेवयैव गतिं तदीयां यतिभिर्दुरापाम् ॥३१॥
 
-> kṣemaṁ sa kaccid yuyudhāna āste
-> yaḥ phālgunāl labdha-dhanū-rahasyaḥ
-> lebhe 'ñjasādhokṣaja-sevayaiva
+> kṣemaṁ sa kaccid yuyudhāna āste\
+> yaḥ phālgunāl labdha-dhanū-rahasyaḥ\
+> lebhe 'ñjasādhokṣaja-sevayaiva\
 > gatiṁ tadīyāṁ yatibhir durāpām
 
 *kṣemam*—todo bien; *saḥ*—él; *kaccit*—si; *yuyudhānaḥ*—Sātyaki; *āste*—está allí; *yaḥ*—aquel que; *phālgunāt*—de Arjuna; *labdha*—ha logrado; *dhanuḥ-rahasyaḥ*—aquel que entiende las complejidades del arte militar; *lebhe*—también logró; *añjasā*—rápidamente; *adhokṣaja*—de la Realidad Trascendental; *sevayā*—mediante el servicio; *eva*—ciertamente; *gatim*—destino; *tadīyām*—trascendental; *yatibhiḥ*—por grandes renunciantes; *durāpām*—muy difícil de lograr.

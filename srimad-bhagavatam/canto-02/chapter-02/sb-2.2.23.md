@@ -1,11 +1,11 @@
 ### SB 2.2.23
 
-> योगेश्वराणां गतिमाहुरन्तर्बहिस्त्रिलोक्याः पवनान्तरात्मनाम् ।
+> योगेश्वराणां गतिमाहुरन्तर्बहिस्त्रिलोक्याः पवनान्तरात्मनाम् ।\
 > न कर्मभिस्तां गतिमाप्नुवन्ति विद्यातपोयोगसमाधिभाजाम् ॥२३॥
 
-> yogeśvarāṇāṁ gatim āhur antar-
-> bahis-tri-lokyāḥ pavanāntar-ātmanām
-> na karmabhis tāṁ gatim āpnuvanti
+> yogeśvarāṇāṁ gatim āhur antar-\
+> bahis-tri-lokyāḥ pavanāntar-ātmanām\
+> na karmabhis tāṁ gatim āpnuvanti\
 > vidyā-tapo-yoga-samādhi-bhājām
 
 *yoga-īśvarāṇām*—of the great saints and devotees; *gatim*—destination; *āhuḥ*—it is said; *antaḥ*—within; *bahiḥ*—without; *tri-lokyāḥ*—of the three planetary systems; *pavana-antaḥ*—within the air; *ātmanām*—of the subtle body; *na*—never; *karmabhiḥ*—by fruitive activities; *tām*—that; *gatim*—speed; *āpnuvanti*—achieve; *vidyā*—devotional service; *tapaḥ*—austerities; *yoga*—mystic power; *samādhi*—knowledge; *bhājām*—of those who entertain.

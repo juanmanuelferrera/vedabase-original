@@ -1,9 +1,9 @@
 ### CC Adi 17.212
 
-> হিন্দুশাস্ত্রে ‘ঈশ্বর’ নাম — মহামন্ত্র জানি ।
+> হিন্দুশাস্ত্রে ‘ঈশ্বর’ নাম — মহামন্ত্র জানি ।\
 > সর্বলোক শুনিলে মন্ত্রের বীর্য হয় হানি ॥২১২॥
 
-> hindu-śāstre 'īśvara' nāma--mahā-mantra jāni
+> hindu-śāstre 'īśvara' nāma--mahā-mantra jāni\
 > sarva-loka śunile mantrera vīrya haya hāni
 
 *hindu-śāstre*—en las escrituras de los hindúes; *īśvara*—Dios; *nāma*—el santo nombre; *mahā-mantra*—himno supremo; *jāni*—sabemos; *sarva-loka*—todo el mundo; *śunile*—si escucha; *mantrera*—del mantra; *vīrya*—potencia; *haya*—se vuelve; *hāni*—destruida.

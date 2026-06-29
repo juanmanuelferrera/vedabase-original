@@ -1,11 +1,11 @@
 ### SB 7.5.17
 
-> दैतेयचन्दनवने जातोऽयं कण्टकद्रुमः
+> दैतेयचन्दनवने जातोऽयं कण्टकद्रुमः\
 > यन्मूलोन्मूलपरशोर्विष्णोर्नालायितोऽर्भकः ॥१७॥
 
-> daiteya-candana-vane
-> jāto 'yaṁ kaṇṭaka-drumaḥ
-> yan-mūlonmūla-paraśor
+> daiteya-candana-vane\
+> jāto 'yaṁ kaṇṭaka-drumaḥ\
+> yan-mūlonmūla-paraśor\
 > viṣṇor nālāyito 'rbhakaḥ
 
 *daiteya*—of the demoniac family; *candana-vane*—in the sandalwood forest; *jātaḥ*—born; *ayam*—this; *kaṇṭaka-drumaḥ*—thorn tree; *yat*—of which; *mūla*—of the roots; *unmūla*—in the cutting; *paraśoḥ*—who is like an axe; *viṣṇoḥ*—of Lord Viṣṇu; *nālāyitaḥ*—the handle; *arbhakaḥ*—boy.

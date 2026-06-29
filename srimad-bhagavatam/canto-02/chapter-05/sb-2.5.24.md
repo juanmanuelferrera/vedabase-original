@@ -1,14 +1,14 @@
 ### SB 2.5.24
 
-> सोऽहङ्कार इति प्रोक्तो विकुर्वन्समभूत्त्रिधा ।
-> वैकारिकस्तैजसश्च तामसश्चेति यद्भिदा ।
+> सोऽहङ्कार इति प्रोक्तो विकुर्वन्समभूत्त्रिधा ।\
+> वैकारिकस्तैजसश्च तामसश्चेति यद्भिदा ।\
 > द्रव्यशक्तिः क्रियाशक्तिर्ज्ञानशक्तिरिति प्रभो ॥२४॥
 
-> so 'haṅkāra iti prokto
-> vikurvan samabhūt tridhā
-> vaikārikas taijasaś ca
-> tāmasaś ceti yad-bhidā
-> dravya-śaktiḥ kriyā-śaktir
+> so 'haṅkāra iti prokto\
+> vikurvan samabhūt tridhā\
+> vaikārikas taijasaś ca\
+> tāmasaś ceti yad-bhidā\
+> dravya-śaktiḥ kriyā-śaktir\
 > jñāna-śaktir iti prabho
 
 *saḥ*—the very same thing; *ahaṅkāraḥ*—ego; *iti*—thus; *proktaḥ*—said; *vikurvan*—being transformed; *samabhūt*—became manifested; *tridhā*—in three features; *vaikārikaḥ*—in the mode of goodness; *taijasaḥ*—in the mode of passion; *ca*—and; *tāmasaḥ*—in the mode of ignorance; *ca*—also; *iti*—thus; *yat*—what is; *bhidā*—divided; *dravya-śaktiḥ*—powers that evolve matter; *kriyā-śaktiḥ*—initiation that creates; *jñāna-śaktiḥ*—intelligence that guides; *iti*—thus; *prabho*—O master.

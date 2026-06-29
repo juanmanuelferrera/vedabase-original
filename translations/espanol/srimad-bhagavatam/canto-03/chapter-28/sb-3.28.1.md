@@ -1,13 +1,13 @@
 ### SB 3.28.1
 
-> श्रीभगवानुवाच
-> योगस्य लक्षणं वक्ष्ये सबीजस्य नृपात्मजे ।
+> श्रीभगवानुवाच\
+> योगस्य लक्षणं वक्ष्ये सबीजस्य नृपात्मजे ।\
 > मनो येनैव विधिना प्रसन्नं याति सत्पथम् ॥१॥
 
-> śrī-bhagavān uvāca
-> yogasya lakṣaṇaṁ vakṣye
-> sabījasya nṛpātmaje
-> mano yenaiva vidhinā
+> śrī-bhagavān uvāca\
+> yogasya lakṣaṇaṁ vakṣye\
+> sabījasya nṛpātmaje\
+> mano yenaiva vidhinā\
 > prasannaṁ yāti sat-patham
 
 *śrī-bhagavān uvāca*—la Personalidad de Dios dijo; *yogasya*—del sistema de *yoga*; *lakṣaṇam*—explicación; *vakṣye*—voy a explicar; *sabījasya*—autorizada; *nṛpa-ātma-je*—¡oh, hija del rey!; *manaḥ*—la mente; *yena*—por el cual; *eva*—ciertamente; *vidhinā*—por la práctica; *prasannam*—dichoso; *yāti*—alcanza; *sat-patham*—el sendero de la Verdad Absoluta.

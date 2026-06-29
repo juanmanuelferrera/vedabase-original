@@ -1,11 +1,11 @@
 ### SB 1.13.28
 
-> अथोदीचीं दिशं यातु स्वैरज्ञातगतिर्भवान् ।
+> अथोदीचीं दिशं यातु स्वैरज्ञातगतिर्भवान् ।\
 > इतोऽर्वाक्प्रायशः कालः पुंसां गुणविकर्षणः ॥२८॥
 
-> athodīcīṁ diśaṁ yātu
-> svair ajñāta-gatir bhavān
-> ito 'rvāk prāyaśaḥ kālaḥ
+> athodīcīṁ diśaṁ yātu\
+> svair ajñāta-gatir bhavān\
+> ito 'rvāk prāyaśaḥ kālaḥ\
 > puṁsāṁ guṇa-vikarṣaṇaḥ
 
 *atha*—por consiguiente; *udīcīm*—por el norte; *diśam*—dirección; *yātu*—por favor vete; *svaiḥ*—por tus familiares; *ajñāta*—sin que lo sepan; *gatiḥ*—movimientos; *bhavān*—de ti; *itaḥ*—después de eso; *arvāk*—anunciará; *prāyaśaḥ*—generalmente; *kālaḥ*—tiempo; *puṁsām*—de los hombres; *guṇa*—cualidades; *vikarṣaṇaḥ*—disminuyendo.

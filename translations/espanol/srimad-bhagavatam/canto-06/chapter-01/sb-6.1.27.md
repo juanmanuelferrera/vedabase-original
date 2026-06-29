@@ -1,11 +1,11 @@
 ### SB 6.1.27
 
-> स एवं वर्तमानोऽज्ञओ मृत्युकाल उपस्थिते
+> स एवं वर्तमानोऽज्ञओ मृत्युकाल उपस्थिते\
 > मतिं चकार तनये बाले नारायणाह्वये ॥२७॥
 
-> sa evaṁ vartamāno 'jño
-> mṛtyu-kāla upasthite
-> matiṁ cakāra tanaye
+> sa evaṁ vartamāno 'jño\
+> mṛtyu-kāla upasthite\
+> matiṁ cakāra tanaye\
 > bāle nārāyaṇāhvaye
 
 *saḥ*—ese Ajāmila; *evam*—así; *vartamānaḥ*—vivir; *ajñaḥ*—necio; *mṛtyu-kāle*—en la hora de la muerte; *upasthite*—llegó; *matim cakāra*—concentró su mente; *tanaye*—en su hijo; *bāle*—el niño; *nārāyaṇa-āhvaye*—cuyo nombre era Nārāyaṇa.

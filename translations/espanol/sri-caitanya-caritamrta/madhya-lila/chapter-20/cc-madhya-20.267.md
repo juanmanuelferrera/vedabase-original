@@ -1,11 +1,11 @@
 ### CC Madhya 20.267
 
-> আদ্যোঽবতারঃ পুরুষঃ পরস্য কালঃ স্বভাবঃ সদসন্মনশ্চ ।
+> আদ্যোঽবতারঃ পুরুষঃ পরস্য কালঃ স্বভাবঃ সদসন্মনশ্চ ।\
 > দ্রব্যং বিকারো গুণ ইন্দ্রিয়াণি বিরাট্ স্বরাট্ স্থাস্নু চরিষ্ণু ভূম্নঃ ॥২৬৭॥
 
-> ādyo 'vatāraḥ puruṣaḥ parasya
-> kālaḥ svabhāvaḥ sad-asan-manaś ca
-> dravyaṁ vikāro guṇa indriyāṇi
+> ādyo 'vatāraḥ puruṣaḥ parasya\
+> kālaḥ svabhāvaḥ sad-asan-manaś ca\
+> dravyaṁ vikāro guṇa indriyāṇi\
 > virāṭ svarāṭ sthāsnu cariṣṇu bhūmnaḥ
 
 *ādyaḥ avatāraḥ*—la encarnación original; *puruṣaḥ*—el Señor; *parasya*—del Supremo; *kālaḥ*—el tiempo; *svabhāvaḥ*—la naturaleza; *sat-asat*—la causa y el efecto; *manaḥ ca*—así como la mente; *dravyam*—los cinco elementos; *vikāraḥ*—la transformación o el ego falso; *guṇaḥ*—las modalidades de la naturaleza; *indriyāṇi*—los sentidos; *virāṭ*—la forma universal; *svarāṭ*—la independencia completa; *sthāsnu*—lo inmóvil; *cariṣṇu*—lo móvil; *bhūmnaḥ*—de la Suprema Personalidad de Dios.

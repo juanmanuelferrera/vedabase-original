@@ -1,11 +1,11 @@
 ### SB 6.3.35
 
-> इतिहासमिमं गुह्यं भगवान्कुम्भसम्भवः
+> इतिहासमिमं गुह्यं भगवान्कुम्भसम्भवः\
 > कथयामास मलय आसीनो हरिमर्चयन ॥३५॥
 
-> itihāsam imaṁ guhyaṁ
-> bhagavān kumbha-sambhavaḥ
-> kathayām āsa malaya
+> itihāsam imaṁ guhyaṁ\
+> bhagavān kumbha-sambhavaḥ\
+> kathayām āsa malaya\
 > āsīno harim arcayan
 
 *itihāsam*—history; *imam*—this; *guhyam*—very confidential; *bhagavān*—the most powerful; *kumbha-sambhavaḥ*—Agastya Muni, the son of Kumbha; *kathayām āsa*—explained; *malaye*—in the Malaya Hills; *āsīnaḥ*—residing; *harim arcayan*—worshiping the Supreme Personality of Godhead.

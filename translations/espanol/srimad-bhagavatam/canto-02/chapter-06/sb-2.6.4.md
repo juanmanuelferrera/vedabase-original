@@ -1,11 +1,11 @@
 ### SB 2.6.4
 
-> तद्गात्रं वस्तुसाराणां सौभगस्य च भाजनम् ।
+> तद्गात्रं वस्तुसाराणां सौभगस्य च भाजनम् ।\
 > त्वगस्य स्पर्शवायोश्च सर्वमेधस्य चैव हि ॥४॥
 
-> tad-gātraṁ vastu-sārāṇāṁ
-> saubhagasya ca bhājanam
-> tvag asya sparśa-vāyoś ca
+> tad-gātraṁ vastu-sārāṇāṁ\
+> saubhagasya ca bhājanam\
+> tvag asya sparśa-vāyoś ca\
 > sarva-medhasya caiva hi
 
 *tat*—Su; *gātram*—superficie corporal; *vastu-sārāṇāṁ*—de los principios activos de todas las cosas; *saubhagasya*—de todas las oportunidades auspiciosas; *ca*—y; *bhājanam*—el campo de producción; *tvak*—la piel; *asya*—Su; *sparśa*—tacto; *vāyoḥ*—de los aires móviles; *ca*—también; *sarva*—toda clase de; *medhasya*—de sacrificios; *ca*—también; *eva*—ciertamente; *hi*—exactamente.

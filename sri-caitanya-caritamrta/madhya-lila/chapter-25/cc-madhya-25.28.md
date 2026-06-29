@@ -1,9 +1,9 @@
 ### CC Madhya 25.28
 
-> শ্রীকৃষ্ণচৈতন্য-বাক্য দৃঢ় সত্য মানি ।
+> শ্রীকৃষ্ণচৈতন্য-বাক্য দৃঢ় সত্য মানি ।\
 > কলিকালে সন্ন্যাসে ‘সংসার’ নাহি জিনি ॥২৮॥
 
-> śrī-kṛṣṇa-caitanya-vākya dṛḍha satya māni
+> śrī-kṛṣṇa-caitanya-vākya dṛḍha satya māni\
 > kali-kāle sannyāse 'saṁsāra' nāhi jini
 
 *śrī-kṛṣṇa-caitanya-vākya*—the words of Śrī Caitanya Mahāprabhu; *dṛḍha*—very firm and convincing; *satya māni*—I admit as truth; *kali-kāle*—in this Age of Kali; *sannyāse*—simply by accepting the renounced order of life; *saṁsāra nāhi jini*—one cannot escape the material clutches.

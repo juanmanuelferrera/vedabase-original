@@ -1,9 +1,9 @@
 ### CC Adi 17.33
 
-> প্রভু-আজ্ঞায় কর এই শ্লোক আচরণ ।
+> প্রভু-আজ্ঞায় কর এই শ্লোক আচরণ ।\
 > অবশ্য পাইবে তবে শ্রীকৃষ্ণ-চরণ ॥৩৩॥
 
-> prabhu-ājñāya kara ei śloka ācaraṇa
+> prabhu-ājñāya kara ei śloka ācaraṇa\
 > avaśya pāibe tabe śrī-kṛṣṇa-caraṇa
 
 *prabhu*—del Señor; *ājñāya*—por la orden; *kara*—haced; *ei śloka*—de este verso; *ācaraṇa*—la práctica; *avaśya*—ciertamente; *pāibe*—obtendrá; *tabe*—después; *śrī-kṛṣṇa-caraṇa*—los pies de loto del Señor Kṛṣṇa.

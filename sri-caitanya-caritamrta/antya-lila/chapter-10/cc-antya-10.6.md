@@ -1,9 +1,9 @@
 ### CC Antya 10.6
 
-> অনুরাগের লক্ষণ এই, — ‘বিধি’ নাহি মানে ।
+> অনুরাগের লক্ষণ এই, — ‘বিধি’ নাহি মানে ।\
 > তাঁর আজ্ঞা ভাঙ্গে তাঁর সঙ্গের কারণে ॥৬॥
 
-> anurāgera lakṣaṇa ei,—'vidhi' nāhi māne
+> anurāgera lakṣaṇa ei,—'vidhi' nāhi māne\
 > tāṅra ājñā bhāṅge tāṅra saṅgera kāraṇe
 
 *anurāgera*—of real affection; *lakṣaṇa*—symptom; *ei*—this; *vidhi*—the regulation; *nāhi māne*—does not care for; *tāṅra*—His; *ājñā*—order; *bhāṅge*—neglects; *tāṅra*—His; *saṅgera*—association; *kāraṇe*—for the purpose of.

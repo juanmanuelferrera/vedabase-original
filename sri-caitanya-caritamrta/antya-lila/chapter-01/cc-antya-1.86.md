@@ -2,7 +2,7 @@
 
 > ‘মোর অন্তর-বার্তা রূপ জানিল কেমনে ?’ স্বরূপ কহে — “জানি, কৃপা করিয়াছ আপনে ॥৮৬॥
 
-> 'mora antara-vārtā rūpa jānila kemane?'
+> 'mora antara-vārtā rūpa jānila kemane?'\
 > svarūpa kahe—'jāni, kṛpā kariyācha āpane
 
 *mora antara-vārtā*—My internal intentions; *rūpa*—Rūpa Gosvāmī; *jānila*—knew; *kemane*—how; *svarūpa kahe*—Svarūpa replied; *jāni*—I can understand; *kṛpā kariyācha*—You have bestowed Your mercy; *āpane*—personally.

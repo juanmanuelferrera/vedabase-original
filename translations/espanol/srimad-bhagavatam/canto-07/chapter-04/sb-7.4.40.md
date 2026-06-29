@@ -1,11 +1,11 @@
 ### SB 7.4.40
 
-> नदति क्वचिदुत्कण्ठो विलज्जो नृत्यति क्वचित
+> नदति क्वचिदुत्कण्ठो विलज्जो नृत्यति क्वचित\
 > क्वचित्तद्भावनायुक्तस्तन्मयोऽनुचकार ह ॥४०॥
 
-> nadati kvacid utkaṇṭho
-> vilajjo nṛtyati kvacit
-> kvacit tad-bhāvanā-yuktas
+> nadati kvacid utkaṇṭho\
+> vilajjo nṛtyati kvacit\
+> kvacit tad-bhāvanā-yuktas\
 > tanmayo 'nucakāra ha
 
 *nadati*—exclama en voz alta (dirigiéndose al Señor: «¡Oh, Kṛṣṇa!»); *kvacit*—a veces; *utkaṇṭhaḥ*—ansioso; *vilajjaḥ*—sin vergüenza; *nṛtyati*—baila; *kvacit*—a veces; *kvacit*—a veces; *tat-bhāvanā*—pensando en Kṛṣṇa; *yuktaḥ*—absorto; *tat-mayaḥ*—pensando que se había vuelto Kṛṣṇa; *anucakāra*—imitaba; *ha*—en verdad.

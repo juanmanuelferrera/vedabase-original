@@ -1,11 +1,11 @@
 ### SB 3.28.10
 
-> मनोऽचिरात्स्याद्विरजं जितश्वासस्य योगिनः ।
+> मनोऽचिरात्स्याद्विरजं जितश्वासस्य योगिनः ।\
 > वाय्वग्निभ्यां यथा लोहं ध्मातं त्यजति वै मलम् ॥१०॥
 
-> mano 'cirāt syād virajaṁ
-> jita-śvāsasya yoginaḥ
-> vāyv-agnibhyāṁ yathā lohaṁ
+> mano 'cirāt syād virajaṁ\
+> jita-śvāsasya yoginaḥ\
+> vāyv-agnibhyāṁ yathā lohaṁ\
 > dhmātaṁ tyajati vai malam
 
 *manaḥ*—the mind; *acirāt*—soon; *syāt*—can be; *virajam*—free from disturbances; *jita-śvāsasya*—whose breathing is controlled; *yoginaḥ*—of the *yogī*; *vāyu-agnibhyām*—by air and fire; *yathā*—just as; *loham*—gold; *dhmātam*—fanned; *tyajati*—becomes freed from; *vai*—certainly; *malam*—impurity.

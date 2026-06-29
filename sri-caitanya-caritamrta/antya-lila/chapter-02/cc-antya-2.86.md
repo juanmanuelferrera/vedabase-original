@@ -1,9 +1,9 @@
 ### CC Antya 2.86
 
-> একান্তভাবে আশ্রিয়াছেন চৈতন্যচরণ ।
+> একান্তভাবে আশ্রিয়াছেন চৈতন্যচরণ ।\
 > মধ্যে মধ্যে প্রভুর তেঁহো করেন নিমন্ত্রণ ॥৮৬॥
 
-> ekānta-bhāve āśriyāchena caitanya-caraṇa
+> ekānta-bhāve āśriyāchena caitanya-caraṇa\
 > madhye madhye prabhura teṅho karena nimantraṇa
 
 *ekānta-bhāve*—with full attention; *āśriyāchena*—has taken shelter of; *caitanya-caraṇa*—the lotus feet of Lord Caitanya; *madhye madhye*—sometimes; *prabhura*—of Śrī Caitanya Mahāprabhu; *teṅho*—he; *karena*—does; *nimantraṇa*—invitation.

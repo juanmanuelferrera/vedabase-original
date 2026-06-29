@@ -1,11 +1,11 @@
 ### CC Madhya 22.146
 
-> তস্মান্মদ্ভক্তিযুক্তস্য যোগিনো বৈ মদাত্মনঃ ।
+> তস্মান্মদ্ভক্তিযুক্তস্য যোগিনো বৈ মদাত্মনঃ ।\
 > ন জ্ঞানং ন চ বৈরাগ্যং প্রায়ঃ শ্রেয়ো ভবেদিহ ॥১৪৬॥
 
-> tasmān mad-bhakti-yuktasya
-> yogino vai mad-ātmanaḥ
-> na jñānaṁ na ca vairāgyaṁ
+> tasmān mad-bhakti-yuktasya\
+> yogino vai mad-ātmanaḥ\
+> na jñānaṁ na ca vairāgyaṁ\
 > prāyaḥ śreyo bhaved iha
 
 *tasmāt*—therefore; *mat-bhakti*—in My devotional service; *yuktasya*—of one who is engaged; *yoginaḥ*—the first-class *yogī* or mystic; *vai*—certainly; *mat-ātmanaḥ*—whose mind is always engaged in Me; *na*—*not*; *jñānam*—speculative knowledge; *na*—not; *ca*—also; *vairāgyam*—dry renunciation; *prāyaḥ*—for the most part; *śreyaḥ*—beneficial; *bhavet*—would be; *iha*—in this world.

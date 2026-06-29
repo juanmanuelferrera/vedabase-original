@@ -1,11 +1,11 @@
 ### SB 3.13.45
 
-> स वै बत भ्रष्टमतिस्तवैषते यः कर्मणां पारमपारकर्मणः ।
+> स वै बत भ्रष्टमतिस्तवैषते यः कर्मणां पारमपारकर्मणः ।\
 > यद्योगमायागुणयोगमोहितं विश्वं समस्तं भगवन्विधेहि शम् ॥४५॥
 
-> sa vai bata bhraṣṭa-matis tavaiṣate
-> yaḥ karmaṇāṁ pāram apāra-karmaṇaḥ
-> yad-yogamāyā-guṇa-yoga-mohitaṁ
+> sa vai bata bhraṣṭa-matis tavaiṣate\
+> yaḥ karmaṇāṁ pāram apāra-karmaṇaḥ\
+> yad-yogamāyā-guṇa-yoga-mohitaṁ\
 > viśvaṁ samastaṁ bhagavan vidhehi śam
 
 *saḥ*—él; *vai*—en verdad; *bata*—¡ay!; *bhraṣṭa-matiḥ*—tonto; *tava*—Tus; *eṣate*—desea; *yaḥ*—aquel que; *karmaṇām*—de actividades; *pāram*—límite; *apāra-karmaṇaḥ*—de aquel que tiene actividades sin límite; *yat*—por quien; *yoga*—poder místico; *māyā*—potencia; *guṇa*—modalidades de la naturaleza material; *yoga*—poder místico; *mohitam*—confundido; *viśvam*—el universo; *samastam*—en conjunto; *bhagavan*—¡oh, Suprema Personalidad de Dios!; *vidhehi*—dígnate otorgar; *śam*—buena fortuna.

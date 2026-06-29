@@ -1,13 +1,13 @@
 ### SB 3.7.9
 
-> मैत्रेय उवाच
-> सेयं भगवतो माया यन्नयेन विरुध्यते ।
+> मैत्रेय उवाच\
+> सेयं भगवतो माया यन्नयेन विरुध्यते ।\
 > ईश्वरस्य विमुक्तस्य कार्पण्यमुत बन्धनम् ॥९॥
 
-> maitreya uvāca
-> seyaṁ bhagavato māyā
-> yan nayena virudhyate
-> īśvarasya vimuktasya
+> maitreya uvāca\
+> seyaṁ bhagavato māyā\
+> yan nayena virudhyate\
+> īśvarasya vimuktasya\
 > kārpaṇyam uta bandhanam
 
 *maitreyaḥ uvāca*—Maitreya said; *sā iyam*—such a statement; *bhagavataḥ*—of the Personality of Godhead; *māyā*—illusion; *yat*—that which; *nayena*—by logic; *virudhyate*—becomes contradictory; *īśvarasya*—of the Supreme Personality of Godhead; *vimuktasya*—of the ever liberated; *kārpaṇyam*—insufficiency; *uta*—as also, what to speak of; *bandhanam*—bondage.

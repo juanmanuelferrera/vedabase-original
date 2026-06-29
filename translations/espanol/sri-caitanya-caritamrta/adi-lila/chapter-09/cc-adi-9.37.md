@@ -1,9 +1,9 @@
 ### CC Adi 9.37
 
-> একলা মালাকার আমি কত ফল খাব ।
+> একলা মালাকার আমি কত ফল খাব ।\
 > না দিয়া বা এই ফল আর কি করিব ॥৩৭॥
 
-> ekalā mālākāra āmi kata phala khāba
+> ekalā mālākāra āmi kata phala khāba\
 > nā diyā vā ei phala āra ki kariba
 
 *ekalā*—solo; *mālā-kāra*—jardinero; *āmi*—Yo; *kata*—cuántos; *phala*—frutos; *khāba*—comeré; *nā*—sin; *diyā*—dar; *vā*—o; *ei*—estos; *phala*—frutos; *āra*—qué otra cosa; *ki*—qué; *kariba*—haré.

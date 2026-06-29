@@ -1,11 +1,11 @@
 ### SB 3.10.9
 
-> एतावाञ्जीवलोकस्य संस्थाभेदः समाहृतः ।
+> एतावाञ्जीवलोकस्य संस्थाभेदः समाहृतः ।\
 > धर्मस्य ह्यनिमित्तस्य विपाकः परमेष्ठ्यसौ ॥९॥
 
-> etāvāñ jīva-lokasya
-> saṁsthā-bhedaḥ samāhṛtaḥ
-> dharmasya hy animittasya
+> etāvāñ jīva-lokasya\
+> saṁsthā-bhedaḥ samāhṛtaḥ\
+> dharmasya hy animittasya\
 > vipākaḥ parameṣṭhy asau
 
 *etāvān*—up to this; *jīva-lokasya*—of the planets inhabited by the living entities; *saṁsthā-bhedaḥ*—different situations of habitation; *samāhṛtaḥ*—performed completely; *dharmasya*—of religion; *hi*—certainly; *animittasya*—of causelessness; *vipākaḥ*—mature stage; *parameṣṭhī*—the highest personality in the universe; *asau*—that.

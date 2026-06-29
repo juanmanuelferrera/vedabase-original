@@ -1,11 +1,11 @@
 ### SB 8.21.5
 
-> ब्रह्मादयो लोकनाथाः स्वनाथाय समादृताः
+> ब्रह्मादयो लोकनाथाः स्वनाथाय समादृताः\
 > सानुगा बलिमाजह्रुः सङ्क्षिप्तात्मविभूतये ॥५॥
 
-> brahmādayo loka-nāthāḥ
-> sva-nāthāya samādṛtāḥ
-> sānugā balim ājahruḥ
+> brahmādayo loka-nāthāḥ\
+> sva-nāthāya samādṛtāḥ\
+> sānugā balim ājahruḥ\
 > saṅkṣiptātma-vibhūtaye
 
 *brahma-ādayaḥ*—great personalities, headed by Lord Brahmā; *loka-nāthāḥ*—the predominating deities of various planets; *sva-nāthāya*—unto their supreme master; *samādṛtāḥ*—with great respect; *sa-anugāḥ*—with their respective followers; *balim*—different paraphernalia of worship; *ājahruḥ*—collected; *saṅkṣipta-ātma-vibhūtaye*—unto the Lord, who had expanded His personal opulence but had now reduced His size to the Vāmana form.

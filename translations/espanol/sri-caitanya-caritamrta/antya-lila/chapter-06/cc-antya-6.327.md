@@ -1,13 +1,13 @@
 ### CC Antya 6.327
 
-> মহাসম্পদ্দাবাদপি পতিতমুদ্ধৃত্য কৃপয়া
-> স্বরূপে যঃ স্বীয়ে কুজনমপি মাং ন্যস্য মুদিতঃ ।
-> উরোগুঞ্জাহারং প্রিয়মপি চ গোবর্ধনশিলাং
+> মহাসম্পদ্দাবাদপি পতিতমুদ্ধৃত্য কৃপয়া\
+> স্বরূপে যঃ স্বীয়ে কুজনমপি মাং ন্যস্য মুদিতঃ ।\
+> উরোগুঞ্জাহারং প্রিয়মপি চ গোবর্ধনশিলাং\
 > দদৌ মে গৌরাঙ্গো হৃদয় উদয়ন্মাং মদয়তি ॥৩২৭॥
 
-> mahā-sampad-dāvād api patitam uddhṛtya kṛpayā
-> svarūpe yaḥ svīye kujanam api māṁ nyasya muditaḥ
-> uro-guñjā-hāraṁ priyam api ca govardhana-śilāṁ
+> mahā-sampad-dāvād api patitam uddhṛtya kṛpayā\
+> svarūpe yaḥ svīye kujanam api māṁ nyasya muditaḥ\
+> uro-guñjā-hāraṁ priyam api ca govardhana-śilāṁ\
 > dadau me gaurāṅgo hṛdaya udayan māṁ madayati
 
 *mahā-sampat*—de profusa opulencia material; *dāvāt*—de un incendio forestal; *api*—aunque; *patitam*—caído; *uddhṛtya*—liberando; *kṛpayā*—por misericordia; *svarūpe*—a Svarūpa Dāmodara Gosvāmī; *yaḥ*—Aquel que (el Señor Śrī Caitanya Mahāprabhu); *svīye*—Su asociado personal; *ku-janam*—persona baja; *api*—aunque; *mām*—a mí; *nyasya*—habiendo entregado; *muditaḥ*—complacido; *uraḥ*—del pecho; *guñjā-hāram*—la guirnalda de caracolas; *priyam*—querida; *api*—aunque; *ca*—y; *govardhana-śilām*—una piedra de la colina Govardhana; *dadau*—entregó; *me*—a mí; *gaurāṅgaḥ*—el Señor Gaurāṅga; *hṛdaye*—en mi corazón; *udayan*—al manifestarse; *mām*—a mí; *madayati*—enloquece.

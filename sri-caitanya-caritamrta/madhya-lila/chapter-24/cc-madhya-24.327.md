@@ -1,9 +1,9 @@
 ### CC Madhya 24.327
 
-> তবে তার দিশা স্ফুরে মো-নীচের হৃদয় ।
+> তবে তার দিশা স্ফুরে মো-নীচের হৃদয় ।\
 > ঈশ্বর তুমি, — যে করাহ, সেই সিদ্ধ হয় ।।” ॥৩২৭॥
 
-> tabe tāra diśā sphure mo-nīcera hṛdaya
+> tabe tāra diśā sphure mo-nīcera hṛdaya\
 > īśvara tumi,—ye karāha, sei siddha haya"
 
 *tabe*—if you do so; *tāra*—of that; *diśā*—the process of writing; *sphure*—manifests; *mo-nīcera*—of someone lowborn like me; *hṛdaya*—in the heart; *īśvara tumi*—You are the Supreme Personality of Godhead; *ye karāha*—whatever You cause to do; *sei siddha haya*—that is perfectly done.

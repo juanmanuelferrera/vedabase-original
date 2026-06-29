@@ -1,11 +1,11 @@
 ### SB 3.22.12
 
-> उद्यतस्य हि कामस्य प्रतिवादो न शस्यते ।
+> उद्यतस्य हि कामस्य प्रतिवादो न शस्यते ।\
 > अपि निर्मुक्तसङ्गस्य कामरक्तस्य किं पुनः ॥१२॥
 
-> udyatasya hi kāmasya
-> prativādo na śasyate
-> api nirmukta-saṅgasya
+> udyatasya hi kāmasya\
+> prativādo na śasyate\
+> api nirmukta-saṅgasya\
 > kāma-raktasya kiṁ punaḥ
 
 *udyatasya*—que ha venido por sí misma; *hi*—de hecho; *kāmasya*—de deseo material; *prativādaḥ*—el rechazo; *na*—no; *śasyate*—para ser alabado; *api*—incluso; *nirmukta*—de aquel que está libre; *saṅgasya*—del apego; *kāma*—a placeres sensuales; *raktasya*—de alguien adicto por; *kim punaḥ*—cuánto menos.

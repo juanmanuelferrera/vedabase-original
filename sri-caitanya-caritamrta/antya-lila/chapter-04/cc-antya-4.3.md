@@ -1,9 +1,9 @@
 ### CC Antya 4.3
 
-> নীলাচল হৈতে রূপ গৌড়ে যবে গেলা ।
+> নীলাচল হৈতে রূপ গৌড়ে যবে গেলা ।\
 > মথুরা হৈতে সনাতন নীলাচল আইলা ॥৩॥
 
-> nīlācala haite rūpa gauḍe yabe gelā
+> nīlācala haite rūpa gauḍe yabe gelā\
 > mathurā haite sanātana nīlācala āilā
 
 *nīlācala haite*—from Nīlācala (Jagannātha Purī); *rūpa*—Śrīla Rūpa Gosvāmī; *gauḍe*—to Bengal; *yabe*—when; *gelā*—went; *mathurā haite*—from Mathurā; *sanātana*—Sanātana Gosvāmī; *nīlācala āilā*—came to Jagannātha Purī.

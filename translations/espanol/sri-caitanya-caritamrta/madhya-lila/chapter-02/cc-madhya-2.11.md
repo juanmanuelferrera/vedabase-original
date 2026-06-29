@@ -1,9 +1,9 @@
 ### CC Madhya 2.11
 
-> কাহাঁ নাহি শুনি যেই ভাবের বিকার ।
+> কাহাঁ নাহি শুনি যেই ভাবের বিকার ।\
 > সেই ভাব হয় প্রভুর শরীরে প্রচার ॥১১॥
 
-> kāhāṅ nāhi śuni yei bhāvera vikāra
+> kāhāṅ nāhi śuni yei bhāvera vikāra\
 > sei bhāva haya prabhura śarīre pracāra
 
 *kāhāṅ*—en ninguna parte; *nāhi*—no; *śuni*—oímos; *yei*—esas; *bhāvera*—del éxtasis; *vikāra*—transformaciones; *sei*—esas; *bhāva*—éxtasis; *haya*—es; *prabhura*—del Señor; *śarīre*—en el cuerpo; *pracāra*—manifiesto.

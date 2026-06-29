@@ -1,11 +1,11 @@
 ### SB 1.6.36
 
-> सर्वं तदिदमाख्यातं यत्पृष्टोऽहं त्वयानघ ।
+> सर्वं तदिदमाख्यातं यत्पृष्टोऽहं त्वयानघ ।\
 > जन्मकर्मरहस्यं मे भवतश्चात्मतोषणम् ॥३६॥
 
-> sarvaṁ tad idam ākhyātaṁ
-> yat pṛṣṭo 'haṁ tvayānagha
-> janma-karma-rahasyaṁ me
+> sarvaṁ tad idam ākhyātaṁ\
+> yat pṛṣṭo 'haṁ tvayānagha\
+> janma-karma-rahasyaṁ me\
 > bhavataś cātma-toṣaṇam
 
 *sarvam*—all; *tat*—that; *idam*—this; *ākhyātam*—described; *yat*—whatever; *pṛṣṭaḥ*—asked by; *aham*—me; *tvayā*—by you; *anagha*—without any sins; *janma*—birth; *karma*—activities; *rahasyam*—mysteries; *me*—mine; *bhavataḥ*—your; *ca*—and; *ātma*—self; *toṣaṇam*—satisfaction.

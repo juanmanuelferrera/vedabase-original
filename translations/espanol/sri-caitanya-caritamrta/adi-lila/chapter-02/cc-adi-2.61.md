@@ -1,9 +1,9 @@
 ### CC Adi 2.61
 
-> অবতারী নারায়ণ, কৃষ্ণ অবতার ।
+> অবতারী নারায়ণ, কৃষ্ণ অবতার ।\
 > তেঁহ চতুর্ভুজ, ইঁহ মনুষ্য-আকার ॥৬১॥
 
-> avatārī nārāyaṇa, kṛṣṇa avatāra
+> avatārī nārāyaṇa, kṛṣṇa avatāra\
 > teṅha catur-bhuja, iṅha manuṣya-ākāra
 
 *avatārī*—fuente de las encarnaciones; *nārāyaṇa*—el Señor Nārāyaṇa; *kṛṣṇa*—el Señor Kṛṣṇa; *avatāra*—encarnación; *teṅha*—aquel; *catuḥ-bhuja*—cuatro brazos; *iṅha*—este; *manuṣya*—como un hombre; *ākāra*—forma.

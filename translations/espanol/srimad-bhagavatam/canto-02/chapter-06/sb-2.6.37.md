@@ -1,11 +1,11 @@
 ### SB 2.6.37
 
-> नाहं न यूयं यदृतां गतिं विदुर्न वामदेवः किमुतापरे सुराः ।
+> नाहं न यूयं यदृतां गतिं विदुर्न वामदेवः किमुतापरे सुराः ।\
 > तन्मायया मोहितबुद्धयस्त्विदं विनिर्मितं चात्मसमं विचक्ष्महे ॥३७॥
 
-> nāhaṁ na yūyaṁ yad-ṛtāṁ gatiṁ vidur
-> na vāmadevaḥ kim utāpare surāḥ
-> tan-māyayā mohita-buddhayas tv idaṁ
+> nāhaṁ na yūyaṁ yad-ṛtāṁ gatiṁ vidur\
+> na vāmadevaḥ kim utāpare surāḥ\
+> tan-māyayā mohita-buddhayas tv idaṁ\
 > vinirmitaṁ cātma-samaṁ vicakṣmahe
 
 *na*—ni; *aham*—yo; *yūyam*—todos ustedes, hijos; *yat*—cuyos; *ṛtām*—verdaderos; *gatim*—movimientos; *viduḥ*—conocemos; *na*—ni; *vāmadevaḥ*—el Señor Śiva; *kim*—qué; *uta*—más; *apare*—otros; *surāḥ*—semidioses; *tat*—por Su; *māyayā*—por la energía ilusoria; *mohita*—confundidos; *buddhayaḥ*—con una inteligencia así; *tu*—pero; *idam*—esto; *vinirmitam*—lo que es creado; *ca*—también; *ātma-samam*—en virtud de la habilidad personal de uno; *vicakṣmahe*—observar.

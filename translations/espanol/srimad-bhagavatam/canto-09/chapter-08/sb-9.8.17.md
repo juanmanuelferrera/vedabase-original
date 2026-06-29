@@ -1,11 +1,11 @@
 ### SB 9.8.17
 
-> आचरन्गर्हितं लोके ज्ञआतीनां कर्म विप्रियम
+> आचरन्गर्हितं लोके ज्ञआतीनां कर्म विप्रियम\
 > सरय्वां क्रीडतो बालान्प्रास्यदुद्वेजयन्जनम ॥१७॥
 
-> evaṁ vṛttaḥ parityaktaḥ
-> pitrā sneham apohya vai
-> yogaiśvaryeṇa bālāṁs tān
+> evaṁ vṛttaḥ parityaktaḥ\
+> pitrā sneham apohya vai\
+> yogaiśvaryeṇa bālāṁs tān\
 > darśayitvā tato yayau
 
 *evam vṛttaḥ*—así ocupado (en actividades abominables); *parityaktaḥ*—condenado; *pitrā*—por su padre; *sneham*—afecto; *apohya*—abandonar; *vai*—en verdad; *yoga-aiśvaryeṇa*—con poder místico; *bālān tān*—a todos aquellos niños (arrojados al agua y matados); *darśayitvā*—después de mostrárselos de nuevo a sus padres; *tataḥ yayau*—se fue del lugar.

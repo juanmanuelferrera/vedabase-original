@@ -1,13 +1,13 @@
 ### CC Madhya 21.120
 
-> সেইরূপ ব্রজাশ্রয়, ঐশ্বর্য-মাধুর্যময়,
-> দিব্যগুণগণ-রত্নালয় ।
-> আনের বৈভব-সত্তা, কৃষ্ণদত্ত ভগবত্তা,
+> সেইরূপ ব্রজাশ্রয়, ঐশ্বর্য-মাধুর্যময়,\
+> দিব্যগুণগণ-রত্নালয় ।\
+> আনের বৈভব-সত্তা, কৃষ্ণদত্ত ভগবত্তা,\
 > কৃষ্ণ — সর্ব-অংশী, সর্বাশ্রয় ॥১২০॥
 
-> sei-rūpa vrajāśraya, aiśvarya-mādhuryamaya,
-> divya-guṇa-gaṇa-ratnālaya
-> ānera vaibhava-sattā, kṛṣṇa-datta bhagavattā,
+> sei-rūpa vrajāśraya, aiśvarya-mādhuryamaya,\
+> divya-guṇa-gaṇa-ratnālaya\
+> ānera vaibhava-sattā, kṛṣṇa-datta bhagavattā,\
 > kṛṣṇa—sarva-aṁśī, sarvāśraya
 
 *sei-rūpa*—that supernatural beauty; *vraja-āśraya*—whose abode is in Vṛndāvana; *aiśvarya-mādhurya-maya*—full of opulence and the sweetness of love; *divya-guṇa-gaṇa*—of transcendental qualities; *ratna-ālaya*—the source of all the gems; *ānera*—of others; *vaibhava-sattā*—the presence of opulences; *kṛṣṇa-datta*—all bestowed by Kṛṣṇa; *bhagavattā*—qualities of the Supreme Personality of Godhead; *kṛṣṇa*—Lord Kṛṣṇa; *sarva-aṁśī*—the original source of all of them; *sarva-āśraya*—the shelter of all of them.

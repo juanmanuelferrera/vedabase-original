@@ -1,9 +1,9 @@
 ### CC Madhya 6.247
 
-> বিনয় শুনি’ তুষ্ট্যে প্রভু কৈল আলিঙ্গন ।
+> বিনয় শুনি’ তুষ্ট্যে প্রভু কৈল আলিঙ্গন ।\
 > কহিল, — যাঞা করহ ঈশ্বর দরশন ॥২৪৭॥
 
-> vinaya śuni' tuṣṭye prabhu kaila āliṅgana
+> vinaya śuni' tuṣṭye prabhu kaila āliṅgana\
 > kahila,—yāñā karaha īśvara daraśana
 
 *vinaya śuni'*—upon hearing this humbleness of Sārvabhauma Bhaṭṭācārya; *tuṣṭye*—in satisfaction; *prabhu*—the Lord; *kaila*—did; *āliṅgana*—embracing; *kahila*—said; *yāñā*—going; *karaha*—do; *īśvara daraśana*—visiting the temple of Lord Jagannātha.

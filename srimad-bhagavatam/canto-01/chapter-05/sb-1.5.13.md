@@ -1,11 +1,11 @@
 ### SB 1.5.13
 
-> अथो महाभाग भवानमोघदृक्षुचिश्रवाः सत्यरतो धृतव्रतः ।
+> अथो महाभाग भवानमोघदृक्षुचिश्रवाः सत्यरतो धृतव्रतः ।\
 > उरुक्रमस्याखिलबन्धमुक्तये समाधिनानुस्मर तद्विचेष्टितम् ॥१३॥
 
-> atho mahā-bhāga bhavān amogha-dṛk
-> śuci-śravāḥ satya-rato dhṛta-vrataḥ
-> urukramasyākhila-bandha-muktaye
+> atho mahā-bhāga bhavān amogha-dṛk\
+> śuci-śravāḥ satya-rato dhṛta-vrataḥ\
+> urukramasyākhila-bandha-muktaye\
 > samādhinānusmara tad-viceṣṭitam
 
 *atho*—therefore; *mahā-bhāga*—highly fortunate; *bhavān*—yourself; *amogha-dṛk*—the perfect seer; *śuci*—spotless; *śravāḥ*—famous; *satya-rataḥ*—having taken the vow of truthfulness; *dhṛta-vrataḥ*—fixed in spiritual qualities; *urukramasya*—of the one who performs supernatural activities (God); *akhila*—universal; *bandha*—bondage; *muktaye*—for liberation from; *samādhinā*—by trance; *anusmara*—think repeatedly and then describe them; *tat-viceṣṭitam*—various pastimes of the Lord.

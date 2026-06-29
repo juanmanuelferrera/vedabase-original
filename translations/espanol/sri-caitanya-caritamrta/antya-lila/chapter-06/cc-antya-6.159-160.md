@@ -1,14 +1,14 @@
 ### CC Antya 6.159-160
 
-> এইমত চিন্তিতে দৈবে একদিনে ।
-> বাহিরে দেবীমণ্ডপে করিয়াছেন শয়নে ॥১৫৯॥
-> দণ্ড-চারি রাত্রি যবে আছে অবশেষ ।
+> এইমত চিন্তিতে দৈবে একদিনে ।\
+> বাহিরে দেবীমণ্ডপে করিয়াছেন শয়নে ॥১৫৯॥\
+> দণ্ড-চারি রাত্রি যবে আছে অবশেষ ।\
 > যদুনন্দন-আচার্য তবে করিলা প্রবেশ ॥১৬০॥
 
-> ei-mata cintite daive eka-dine
+> ei-mata cintite daive eka-dine\
 > bāhire devī-maṇḍape kariyāchena śayane
 
-> daṇḍa-cāri rātri yabe āche avaśeṣa
+> daṇḍa-cāri rātri yabe āche avaśeṣa\
 > yadunandana-ācārya tabe karilā praveśa
 
 *ei-mata*—de ese modo; *cintite*—mientras pensaba; *daive*—por casualidad; *eka-dine*—un día; *bāhire*—fuera de la casa; *devī-maṇḍape*—en la plataforma de Durgā; *kariyāchena śayane*—estaba durmiendo; *daṇḍa-cāri*—cuatro *daṇḍas* (noventa y seis minutos); *rātri*—noche; *yabe*—cuando; *āche avaśeṣa*—faltaban; *yadunandana-ācārya*—el sacerdote llamado Yadunandana Ācārya; *tabe*—entonces; *karilā praveśa*—entró.

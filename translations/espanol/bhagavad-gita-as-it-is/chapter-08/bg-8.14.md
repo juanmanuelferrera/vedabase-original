@@ -1,11 +1,11 @@
 ### Bg 8.14
 
-> अनन्यचेताः सततं यो मां स्मरति नित्यशः ।
+> अनन्यचेताः सततं यो मां स्मरति नित्यशः ।\
 > तस्याहं सुलभः पार्थ नित्ययुक्तस्य योगिनः ॥१४॥
 
-> ananya-cetāḥ satataṁ
-> yo māṁ smarati nityaśaḥ
-> tasyāhaṁ sulabhaḥ pārtha
+> ananya-cetāḥ satataṁ\
+> yo māṁ smarati nityaśaḥ\
+> tasyāhaṁ sulabhaḥ pārtha\
 > nitya-yuktasya yoginaḥ
 
 *ananya-cetāḥ*—sin desviación; *satatam*—siempre; *yaḥ*—todo aquel; *mām*—a Mí (Kṛṣṇa); *smarati*—recuerda; *nityaśaḥ*—regularmente; *tasya*—a él; *aham*—Yo soy; *sulabhaḥ*—muy fácil de conseguir; *pārtha*—¡oh, hijo de Pṛthā!; *nitya*—regularmente; *yuktasya*—ocupado; *yoginaḥ*—del devoto.

@@ -1,9 +1,9 @@
 ### CC Adi 7.171
 
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।\
 > চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥১৭১॥
 
-> śrī-rūpa-raghunātha-pade yāra āśa
+> śrī-rūpa-raghunātha-pade yāra āśa\
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
 
 *śrī-rūpa*—Śrīla Rūpa Gosvāmī; *raghunātha*—Śrīla Raghunātha dāsa Gosvāmī; *pade*—at the lotus feet; *yāra*—whose; *āśa*—expectation; *caitanya-caritāmṛta*—the book named *Caitanya-caritāmṛta*; *kahe*—describes; *kṛṣṇa-dāsa*—Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī.

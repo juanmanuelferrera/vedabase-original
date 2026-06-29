@@ -1,11 +1,11 @@
 ### SB 1.18.4
 
-> नोत्तमश्लोकवार्तानां जुषतां तत्कथामृतम् ।
+> नोत्तमश्लोकवार्तानां जुषतां तत्कथामृतम् ।\
 > स्यात्सम्भ्रमोऽन्तकालेऽपि स्मरतां तत्पदाम्बुजम् ॥४॥
 
-> nottamaśloka-vārtānāṁ
-> juṣatāṁ tat-kathāmṛtam
-> syāt sambhramo 'nta-kāle 'pi
+> nottamaśloka-vārtānāṁ\
+> juṣatāṁ tat-kathāmṛtam\
+> syāt sambhramo 'nta-kāle 'pi\
 > smaratāṁ tat-padāmbujam
 
 *na*—nunca; *uttama-śloka*—la Personalidad de Dios, de quien cantan los himnos védicos; *vārtānām*—de aquellos que viven de ellos; *juṣatām*—de aquellos que están dedicados a; *tat*—Su; *kathā-amṛtam*—temas trascendentales acerca de Él; *syāt*—así ocurre; *sambhramaḥ*—concepto erróneo; *anta*—al final; *kāle*—con el tiempo; *api*—además; *smaratām*—recordando; *tat*—Su; *pada-ambujam*—pies de loto.

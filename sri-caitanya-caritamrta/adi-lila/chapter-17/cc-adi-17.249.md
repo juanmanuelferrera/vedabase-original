@@ -1,9 +1,9 @@
 ### CC Adi 17.249
 
-> কৃষ্ণনাম না লও কেনে, কৃষ্ণনাম — ধন্য ।
+> কৃষ্ণনাম না লও কেনে, কৃষ্ণনাম — ধন্য ।\
 > ‘গোপী’ ‘গোপী’ বলিলে বা কিবা হয় পুণ্য ॥২৪৯॥
 
-> kṛṣṇa-nāma nā lao kene, kṛṣṇa-nāma—dhanya
+> kṛṣṇa-nāma nā lao kene, kṛṣṇa-nāma—dhanya\
 > 'gopī' 'gopī' balile vā kibā haya puṇya
 
 *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *nā*—not; *lao*—You take; *kene*—why; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *dhanya*—glorious; *gopīgopī*—the names "Gopī, Gopī"; *balile*—on saying; *vā*—or; *kibā*—what; *haya*—there is; *puṇya*—piety.

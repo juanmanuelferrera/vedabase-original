@@ -1,11 +1,11 @@
 ### SB 2.7.51
 
-> इदं भागवतं नाम यन्मे भगवतोदितम् ।
+> इदं भागवतं नाम यन्मे भगवतोदितम् ।\
 > सङ्ग्रहोऽयं विभूतीनां त्वमेतद्विपुली कुरु ॥५१॥
 
-> idaṁ bhāgavataṁ nāma
-> yan me bhagavatoditam
-> saṅgraho 'yaṁ vibhūtīnāṁ
+> idaṁ bhāgavataṁ nāma\
+> yan me bhagavatoditam\
+> saṅgraho 'yaṁ vibhūtīnāṁ\
 > tvam etad vipulī kuru
 
 *idam*—this; *bhāgavatam*—the science of Godhead; *nāma*—of the name; *yat*—that which; *me*—unto me; *bhagavatā*—by the Personality of Godhead; *uditam*—enlightened; *saṅgrahaḥ*—is the accumulation of; *ayam*—His; *vibhūtīnām*—of the diverse potencies; *tvam*—your good self; *etat*—this science of Godhead; *vipulī*—expand; *kuru*—do it.

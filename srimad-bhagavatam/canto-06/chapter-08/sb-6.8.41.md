@@ -1,13 +1,13 @@
 ### SB 6.8.41
 
-> श्रीशुक उवाच
-> य इदं शृणुयात्काले यो धारयति चादृतः
+> श्रीशुक उवाच\
+> य इदं शृणुयात्काले यो धारयति चादृतः\
 > तं नमस्यन्ति भूतानि मुच्यते सर्वतो भयात ॥४१॥
 
-> śrī-śuka uvāca
-> ya idaṁ śṛṇuyāt kāle
-> yo dhārayati cādṛtaḥ
-> taṁ namasyanti bhūtāni
+> śrī-śuka uvāca\
+> ya idaṁ śṛṇuyāt kāle\
+> yo dhārayati cādṛtaḥ\
+> taṁ namasyanti bhūtāni\
 > mucyate sarvato bhayāt
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *yaḥ*—anyone who; *idam*—this; *śṛṇuyāt*—may hear; *kāle*—at a time of fear; *yaḥ*—anyone who; *dhārayati*—employs this prayer; *ca*—also; *ādṛtaḥ*—with faith and adoration; *tam*—unto him; *namasyanti*—offer respectful obeisances; *bhūtāni*—all living beings; *mucyate*—is released; *sarvataḥ*—from all; *bhayāt*—fearful conditions.

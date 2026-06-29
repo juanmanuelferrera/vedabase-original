@@ -1,13 +1,13 @@
 ### SB 4.19.39
 
-> मैत्रेय उवाच
-> इत्थं स लोकगुरुणा समादिष्टो विशाम्पतिः ।
+> मैत्रेय उवाच\
+> इत्थं स लोकगुरुणा समादिष्टो विशाम्पतिः ।\
 > तथा च कृत्वा वात्सल्यं मघोनापि च सन्दधे ॥३९॥
 
-> maitreya uvāca
-> itthaṁ sa loka-guruṇā
-> samādiṣṭo viśāmpatiḥ
-> tathā ca kṛtvā vātsalyaṁ
+> maitreya uvāca\
+> itthaṁ sa loka-guruṇā\
+> samādiṣṭo viśāmpatiḥ\
+> tathā ca kṛtvā vātsalyaṁ\
 > maghonāpi ca sandadhe
 
 *maitreyaḥ uvāca*—the great sage Maitreya continued to speak; *ittham*—thus; *saḥ*—King Pṛthu; *loka-guruṇā*—by the original teacher of all people, Lord Brahmā; *samādiṣṭaḥ*—being advised; *viśām-patiḥ*—the king, master of the people; *tathā*—in that way; *ca*—also; *kṛtvā*—having done; *vātsalyam*—affection; *maghonā*—with Indra; *api*—even; *ca*—also; *sandadhe*—concluded peace.

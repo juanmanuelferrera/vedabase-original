@@ -1,13 +1,13 @@
 ### SB 2.7.24
 
-> यस्मा अदादुदधिरूढभयाङ्गवेपो
-> मार्गं सपद्यरिपुरं हरवद्दिधक्षोः ।
-> दूरे सुहृन्मथितरोषसुशोणदृष्ट्या
+> यस्मा अदादुदधिरूढभयाङ्गवेपो\
+> मार्गं सपद्यरिपुरं हरवद्दिधक्षोः ।\
+> दूरे सुहृन्मथितरोषसुशोणदृष्ट्या\
 > तातप्यमानमकरोरगनक्रचक्रः ॥२४॥
 
-> yasmā adād udadhir ūḍha-bhayāṅga-vepo
-> mārgaṁ sapady ari-puraṁ haravad didhakṣoḥ
-> dūre suhṛn-mathita-roṣa-suśoṇa-dṛṣṭyā
+> yasmā adād udadhir ūḍha-bhayāṅga-vepo\
+> mārgaṁ sapady ari-puraṁ haravad didhakṣoḥ\
+> dūre suhṛn-mathita-roṣa-suśoṇa-dṛṣṭyā\
 > tātapyamāna-makaroraga-nakra-cakraḥ
 
 *yasmai*—a quien; *adāt*—dio; *udadhiḥ*—el gran océano Índico; *ūḍha-bhaya*—afectado por temor; *aṅga-vepaḥ*—temblor corporal; *mārgam*—sendero; *sapadi*—rápidamente; *ari-puram*—la ciudad del enemigo; *hara-vat*—como aquella de Hara (Mahādeva); *didhakṣoḥ*—deseando volver cenizas; *dūre*—en una larga distancia; *su-hṛt*—amiga íntima; *mathita*—encontrándose afligido por; *roṣa*—con ira; *su-śoṇa*—rojo vivo; *dṛṣṭyā*—por esa mirada; *tātapyamāna*—ardiendo de calor; *makara*—tiburones; *uraga*—serpientes; *nakra*—cocodrilos; *cakraḥ*—círculo.

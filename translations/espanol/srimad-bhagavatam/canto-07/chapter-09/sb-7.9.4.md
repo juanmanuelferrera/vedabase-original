@@ -1,11 +1,11 @@
 ### SB 7.9.4
 
-> तथेति शनकै राजन्महाभागवतोऽर्भकः
+> तथेति शनकै राजन्महाभागवतोऽर्भकः\
 > उपेत्य भुवि कायेन ननाम विधृताञ्जलिः ॥४॥
 
-> tatheti śanakai rājan
-> mahā-bhāgavato 'rbhakaḥ
-> upetya bhuvi kāyena
+> tatheti śanakai rājan\
+> mahā-bhāgavato 'rbhakaḥ\
+> upetya bhuvi kāyena\
 > nanāma vidhṛtāñjaliḥ
 
 *tathā*—que así sea; *iti*—asintiendo a las palabras del Señor Brahmā; *śanakaiḥ*—muy despacio; *rājan*—¡oh, rey (Yudhiṣṭhira)!; *mahā-bhāgavataḥ*—el devoto grande y excelso (Prahlāda Mahārāja); *arbhakaḥ*—aunque no era más que un niño; *upetya*—acercándose poco a poco; *bhuvi*—en el suelo; *kāyena*—con el cuerpo; *nanāma*—ofreció respetuosas reverencias; *vidhṛta-añjaliḥ*—juntando las manos.

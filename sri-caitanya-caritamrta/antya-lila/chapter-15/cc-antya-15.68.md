@@ -1,13 +1,13 @@
 ### CC Antya 15.68
 
-> লীলামৃত-বরিষণে, সিঞ্চে চৌদ্দ ভুবনে,
-> হেন মেঘ যবে দেখা দিল ।
-> দুর্দৈব-ঝঞ্ঝাপবনে, মেঘে নিল অন্যস্থানে,
+> লীলামৃত-বরিষণে, সিঞ্চে চৌদ্দ ভুবনে,\
+> হেন মেঘ যবে দেখা দিল ।\
+> দুর্দৈব-ঝঞ্ঝাপবনে, মেঘে নিল অন্যস্থানে,\
 > মরে চাতক, পিতে না পাইল ॥৬৮॥
 
-> līlāmṛta-variṣaṇe, siñce caudda bhuvane'
-> hena megha yabe dekhā dila
-> durdaiva-jhañjhā-pavane, meghe nila anya-sthāne,
+> līlāmṛta-variṣaṇe, siñce caudda bhuvane'\
+> hena megha yabe dekhā dila\
+> durdaiva-jhañjhā-pavane, meghe nila anya-sthāne,\
 > mare cātaka, pite nā pāila
 
 *līlā*—of the pastimes of Kṛṣṇa; *amṛta*—of nectar; *variṣaṇe*—the shower; *siñce*—drenches; *caudda bhuvane*—the fourteen worlds; *hena megha*—such a cloud; *yabe*—when; *dekhā dila*—was visible; *durdaiva*—misfortune; *jhañjhā-pavane*—a high wind; *meghe*—the cloud; *nila*—brought; *anya-sthāne*—to another place; *mare*—dies; *cātaka*—the *cātaka* bird; *pite nā pāila*—could not drink.

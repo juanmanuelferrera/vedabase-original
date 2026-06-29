@@ -1,11 +1,11 @@
 ### SB 4.23.19
 
-> अर्चिर्नाम महाराज्ञी तत्पत्न्यनुगता वनम् ।
+> अर्चिर्नाम महाराज्ञी तत्पत्न्यनुगता वनम् ।\
 > सुकुमार्यतदर्हा च यत्पद्भ्यां स्पर्शनं भुवः ॥१९॥
 
-> arcir nāma mahā-rājñī
-> tat-patny anugatā vanam
-> sukumāry atad-arhā ca
+> arcir nāma mahā-rājñī\
+> tat-patny anugatā vanam\
+> sukumāry atad-arhā ca\
 > yat-padbhyāṁ sparśanaṁ bhuvaḥ
 
 *arciḥ nāma*—of the name Arci; *mahā-rājñī*—the Queen; *tat-patnī*—the wife of Mahārāja Pṛthu; *anugatā*—who followed her husband; *vanam*—in the forest; *su-kumārī*—very delicate body; *a-tat-arhā*—who did not deserve; *ca*—also; *yat-padbhyām*—by the touch of whose feet; *sparśanam*—touching; *bhuvaḥ*—on the earth.

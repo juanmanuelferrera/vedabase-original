@@ -1,9 +1,9 @@
 ### CC Antya 12.9
 
-> কুলীনগ্রামবাসী আর যত খণ্ডবাসী ।
+> কুলীনগ্রামবাসী আর যত খণ্ডবাসী ।\
 > একত্র মিলিলা সব নবদ্বীপে আসি’ ॥৯॥
 
-> kulīna-grāma-vāsī āra yata khaṇḍa-vāsī
+> kulīna-grāma-vāsī āra yata khaṇḍa-vāsī\
 > ekatra mililā saba navadvīpe āsi'
 
 *kulīna-grāma-vāsī*—los habitantes de Kulīna-grāma; *āra*—así como; *yata*—todos; *khaṇḍa-vāsī*—los habitantes de Khaṇḍa; *ekatra*—en un lugar; *mililā*—se encontraron; *saba*—todos ellos; *navadvīpe āsi'*—al llegar a Navadvīpa.

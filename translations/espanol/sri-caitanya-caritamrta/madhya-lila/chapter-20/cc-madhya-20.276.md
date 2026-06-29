@@ -1,9 +1,9 @@
 ### CC Madhya 20.276
 
-> তবে মহত্তত্ত্ব হৈতে ত্রিবিধ অহঙ্কার ।
+> তবে মহত্তত্ত্ব হৈতে ত্রিবিধ অহঙ্কার ।\
 > যাহা হৈতে দেবতেন্দ্রিয়ভূতের প্রচার ॥২৭৬॥
 
-> tabe mahat-tattva haite trividha ahaṅkāra
+> tabe mahat-tattva haite trividha ahaṅkāra\
 > yāhā haite devatendriya-bhūtera pracāra
 
 *tabe*—después; *mahat-tattva haite*—de la energía material total; *tri-vidha*—tres clases de; *ahaṅkāra*—egotismo; *yāhā haite*—del cual; *devatā*—de las deidades regentes; *indriya*—de los sentidos; *bhūtera*—y de los elementos materiales; *pracāra*—expansión.

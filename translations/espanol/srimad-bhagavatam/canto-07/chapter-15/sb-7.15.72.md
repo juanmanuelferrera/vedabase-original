@@ -1,14 +1,14 @@
 ### SB 7.15.72
 
-> अहं च गायंस्तद्विद्वान्स्त्रीभिः परिवृतो गतः
-> ज्ञआत्वा विश्वसृजस्तन्मे हेलनं शेपुरोजसा
+> अहं च गायंस्तद्विद्वान्स्त्रीभिः परिवृतो गतः\
+> ज्ञआत्वा विश्वसृजस्तन्मे हेलनं शेपुरोजसा\
 > याहि त्वं शूद्रतामाशु नष्टश्रीः कृतहेलनः ॥७२॥
 
-> ahaṁ ca gāyaṁs tad-vidvān
-> strībhiḥ parivṛto gataḥ
-> jñātvā viśva-sṛjas tan me
-> helanaṁ śepur ojasā
-> yāhi tvaṁ śūdratām āśu
+> ahaṁ ca gāyaṁs tad-vidvān\
+> strībhiḥ parivṛto gataḥ\
+> jñātvā viśva-sṛjas tan me\
+> helanaṁ śepur ojasā\
+> yāhi tvaṁ śūdratām āśu\
 > naṣṭa-śrīḥ kṛta-helanaḥ
 
 *aham*—yo mismo; *ca*—y; *gāyan*—cantando las glorias de algunos semidioses en lugar de cantar las glorias del Señor; *tat-vidvān*—conociendo perfectamente el arte de cantar; *strībhiḥ*—por mujeres; *parivṛtaḥ*—rodeado; *gataḥ*—fui allí; *jñātvā*—sabiendo bien; *viśva-sṛjaḥ*—los *prajāpatis* a quienes se había confiado la administración de los asuntos del universo; *tat*—la actitud de mi canción; *me*—mío; *helanam*—descuido; *śepuḥ*—maldijeron; *ojasā*—con gran fuerza; *yāhi*—vuélvete; *tvam*—tú; *śūdratām*—un *śūdra*; *āśu*—inmediatamente; *naṣṭa*—carente de; *śrīḥ*—belleza; *kṛta-helanaḥ*—por haber roto las reglas de etiqueta.

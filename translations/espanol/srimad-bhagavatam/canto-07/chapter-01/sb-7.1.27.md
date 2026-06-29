@@ -1,11 +1,11 @@
 ### SB 7.1.27
 
-> कीटः पेशस्कृता रुद्धः कुड्यायां तमनुस्मरन
+> कीटः पेशस्कृता रुद्धः कुड्यायां तमनुस्मरन\
 > संरम्भभययोगेन विन्दते तत्स्वरूपताम ॥२७॥
 
-> yathā vairānubandhena
-> martyas tan-mayatām iyāt
-> na tathā bhakti-yogena
+> yathā vairānubandhena\
+> martyas tan-mayatām iyāt\
+> na tathā bhakti-yogena\
 > iti me niścitā matiḥ
 
 *yathā*—como; *vaira-anubandhena*—con enemistad constante; *martyaḥ*—una persona; *tat-mayatām*—absorción en Él; *iyāt*—puede alcanzar; *na*—no; *tathā*—de manera semejante; *bhakti-yogena*—con servicio devocional; *iti*—así; *me*—mía; *niścitā*—definitiva; *matiḥ*—opinión.

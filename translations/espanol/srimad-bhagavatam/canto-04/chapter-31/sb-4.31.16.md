@@ -1,11 +1,11 @@
 ### SB 4.31.16
 
-> एतत्पदं तज्जगदात्मनः परं सकृद्विभातं सवितुर्यथा प्रभा ।
+> एतत्पदं तज्जगदात्मनः परं सकृद्विभातं सवितुर्यथा प्रभा ।\
 > यथासवो जाग्रति सुप्तशक्तयो द्रव्यक्रियाज्ञानभिदाभ्रमात्ययः ॥१६॥
 
-> etat padaṁ taj jagad-ātmanaḥ paraṁ
-> sakṛd vibhātaṁ savitur yathā prabhā
-> yathāsavo jāgrati supta-śaktayo
+> etat padaṁ taj jagad-ātmanaḥ paraṁ\
+> sakṛd vibhātaṁ savitur yathā prabhā\
+> yathāsavo jāgrati supta-śaktayo\
 > dravya-kriyā-jñāna-bhidā-bhramātyayaḥ
 
 *etat*—esta manifestación cósmica; *padam*—lugar de residencia; *tat*—esa; *jagat-ātmanaḥ*—de la Suprema Personalidad de Dios; *param*—trascendental; *sakṛt*—a veces; *vibhātam*—manifestada; *savituḥ*—del Sol; *yathā*—como; *prabhā*—la luz del Sol; *yathā*—como; *asavaḥ*—los sentidos; *jāgrati*—se manifiestan; *supta*—inactivas; *śaktayaḥ*—energías; *dravya*—elementos físicos; *kriyā*—actividades; *jñāna*—conocimiento; *bhidā-bhrama*—diferencias debidas a una comprensión errónea; *atyayaḥ*—desaparecer.

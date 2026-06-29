@@ -1,11 +1,11 @@
 ### SB 4.31.20
 
-> अपहतसकलैषणामलात्मन्यविरतमेधितभावनोपहूतः ।
+> अपहतसकलैषणामलात्मन्यविरतमेधितभावनोपहूतः ।\
 > निजजनवशगत्वमात्मनोऽयन्न सरति छिद्रवदक्षरः सतां हि ॥२०॥
 
-> apahata-sakalaiṣaṇāmalātmany
-> aviratam edhita-bhāvanopahūtaḥ
-> nija-jana-vaśa-gatvam ātmano 'yan
+> apahata-sakalaiṣaṇāmalātmany\
+> aviratam edhita-bhāvanopahūtaḥ\
+> nija-jana-vaśa-gatvam ātmano 'yan\
 > na sarati chidravad akṣaraḥ satāṁ hi
 
 *apahata*—superados; *sakala*—todos; *eṣaṇa*—los deseos; *amala*—inmaculada; *ātmani*—para la mente; *aviratam*—de modo constante; *edhita*—aumentando; *bhāvanā*—con sentimiento; *upahūtaḥ*—ser llamado; *nija-jana*—de Sus devotos; *vaśa*—bajo el control; *gatvam*—ir; *ātmanaḥ*—Sus; *ayan*—saber; *na*—nunca; *sarati*—Se va; *chidra-vat*—como el cielo; *akṣaraḥ*—la Suprema Personalidad de Dios; *satām*—de los devotos; *hi*—ciertamente.

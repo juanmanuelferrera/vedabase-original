@@ -1,11 +1,11 @@
 ### CC Madhya 20.373
 
-> জ্ঞানশক্ত্যাদিকলয়া যত্রাবিষ্টো জনার্দনঃ ।
+> জ্ঞানশক্ত্যাদিকলয়া যত্রাবিষ্টো জনার্দনঃ ।\
 > ত আবেশা নিগদ্যন্তে জীবা এব মহত্তমাঃ ॥৩৭৩॥
 
-> jñāna-śakty-ādi-kala yā
-> yatrāviṣṭo janārdanaḥ
-> ta āveśā nigadyante
+> jñāna-śakty-ādi-kala yā\
+> yatrāviṣṭo janārdanaḥ\
+> ta āveśā nigadyante\
 > jīvā eva mahattamāḥ
 
 *jñāna-śakti-ādi-kalayā*—by portions of the potencies of knowledge, devotional service, creation, personal service, ruling over the material world, carrying the different planets, and killing the rogues and miscreants; *yatra*—wherever; *āviṣṭaḥ*—is entered; *janārdanaḥ*—the Supreme Personality of Godhead, Viṣṇu; *te*—they; *āveśāḥ*—empowered; *nigadyante*—are called; *jīvāḥ*—living entities; *eva*—although; *mahat-tamāḥ*—most exalted devotees.

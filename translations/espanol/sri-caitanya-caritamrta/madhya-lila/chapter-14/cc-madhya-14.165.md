@@ -1,9 +1,9 @@
 ### CC Madhya 14.165
 
-> ‘অধিরূঢ় মহাভাব’ — রাধিকার প্রেম ৷
+> ‘অধিরূঢ় মহাভাব’ — রাধিকার প্রেম ৷\
 > বিশুদ্ধ, নির্মল, যৈছে দশবাণ হেম ॥১৬৫॥
 
-> 'adhirūḍha mahābhāva'-rādhikāra prema
+> 'adhirūḍha mahābhāva'-rādhikāra prema\
 > viśuddha, nirmala, yaiche daśa-vāṇa hema
 
 *adhirūḍha mahā-bhāva*—amor extático sumamente elevado; *rādhikāra prema*—los asuntos amorosos de Śrīmatī Rādhārāṇī; *viśuddha*—completamente incontaminado; *nirmala*—purificado; *yaiche*—como si fuera; *daśa-vāṇa*—diez veces purificado; *hema*—oro.

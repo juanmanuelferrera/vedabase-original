@@ -1,9 +1,9 @@
 ### CC Adi 3.107
 
-> তবে আত্মা বেচি’ করে ঋণের শোধন ।
+> তবে আত্মা বেচি’ করে ঋণের শোধন ।\
 > এত ভাবি’ আচার্য করেন আরাধন ॥১০৭॥
 
-> tabe ātmā veci' kare ṛṇera śodhana
+> tabe ātmā veci' kare ṛṇera śodhana\
 > eta bhāvi' ācārya karena ārādhana
 
 *tabe*—then; *ātmā*—Himself; *veci'*—selling; *kare*—does; *ṛṇera*—of the debt; *śodhana*—payment; *eta*—thus; *bhāvi'*—thinking; *ācārya*—Advaita Ācārya; *karena*—does; *ārādhana*—worshiping.

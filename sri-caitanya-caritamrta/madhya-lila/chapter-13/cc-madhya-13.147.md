@@ -1,13 +1,13 @@
 ### CC Madhya 13.147
 
-> তুমি — ব্রজের জীবন, ব্রজরাজের প্রাণধন,
-> তুমি ব্রজের সকল সম্পদ্ ।
-> কৃপার্দ্র তোমার মন, আসি’ জীয়াও ব্রজজন,
+> তুমি — ব্রজের জীবন, ব্রজরাজের প্রাণধন,\
+> তুমি ব্রজের সকল সম্পদ্ ।\
+> কৃপার্দ্র তোমার মন, আসি’ জীয়াও ব্রজজন,\
 > ব্রজে উদয় করাও নিজ-পদ ॥১৪৭॥
 
-> tumi-vrajera jīvana, vraja-rājera prāṇa-dhana,
-> tumi vrajera sakala sampad
-> kṛpārdra tomāra mana, āsi' jīyāo vraja-jana,
+> tumi-vrajera jīvana, vraja-rājera prāṇa-dhana,\
+> tumi vrajera sakala sampad\
+> kṛpārdra tomāra mana, āsi' jīyāo vraja-jana,\
 > vraje udaya karāo nija-pada
 
 *tumi*—You; *vrajera jīvana*—the life and soul of Vṛndāvana; *vraja-rājera*—and of the King of Vraja, Nanda Mahārāja; *prāṇa-dhana*—the only life; *tumi*—You; *vrajera*—of Vṛndāvana; *sakala sampad*—all opulence; *kṛpā-ardra*—melting with kindness; *tomāra mana*—Your mind; *āsi'*—coming; *jīyāo*—give life; *vraja-jana*—to all the inhabitants of Vṛndāvana; *vraje*—in Vṛndāvana; *udaya karāo*—cause to appear; *nija-pada*—Your lotus feet.

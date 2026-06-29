@@ -1,9 +1,9 @@
 ### CC Madhya 11.19
 
-> আমি কহি, — আমা হৈতে না হয় ‘বিষয়’ ৷
+> আমি কহি, — আমা হৈতে না হয় ‘বিষয়’ ৷\
 > চৈতন্যচরণে রহোঁ, যদি আজ্ঞা হয় ৷৷ ১৯ ৷৷ ॥১৯॥
 
-> āmi kahi,-āmā haite nā haya 'viṣaya'
+> āmi kahi,-āmā haite nā haya 'viṣaya'\
 > caitanya-caraṇe rahoṅ, yadi ājñā haya
 
 *āmi kahi*—yo dije; *āmā haite*—por mí; *nā*—no; *haya*—es posible; *viṣaya*—servicio gubernamental; *caitanya-caraṇe*—a los pies de loto de Śrī Caitanya Mahāprabhu; *rahoṅ*—puedo quedarme; *yadi ājñā haya*—si bondadosamente me concedéis permiso.

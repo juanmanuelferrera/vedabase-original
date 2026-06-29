@@ -1,11 +1,11 @@
 ### SB 8.19.27
 
-> तस्मात्त्रीणि पदान्येव वृणे त्वद्वरदर्षभात
+> तस्मात्त्रीणि पदान्येव वृणे त्वद्वरदर्षभात\
 > एतावतैव सिद्धोऽहं वित्तं यावत्प्रयोजनम ॥२७॥
 
-> tasmāt trīṇi padāny eva
-> vṛṇe tvad varadarṣabhāt
-> etāvataiva siddho 'haṁ
+> tasmāt trīṇi padāny eva\
+> vṛṇe tvad varadarṣabhāt\
+> etāvataiva siddho 'haṁ\
 > vittaṁ yāvat prayojanam
 
 *tasmāt*—because of being satisfied by things easily obtained; *trīṇi*—three; *padāni*—steps; *eva*—indeed; *vṛṇe*—I ask; *tvat*—from your good self; *varada-ṛṣabhāt*—who are a munificent benedictor; *etāvatā eva*—merely by such an endowment; *siddhaḥ aham*—I shall feel full satisfaction; *vittam*—achievement; *yāvat*—as far as; *prayojanam*—is needed.

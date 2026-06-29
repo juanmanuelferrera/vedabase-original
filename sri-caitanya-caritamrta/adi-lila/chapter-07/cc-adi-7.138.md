@@ -1,9 +1,9 @@
 ### CC Adi 7.138
 
-> বৃহদ্বস্তু ‘ব্রহ্ম’ কহি — ‘শ্রীভগবান্’ ।
+> বৃহদ্বস্তু ‘ব্রহ্ম’ কহি — ‘শ্রীভগবান্’ ।\
 > ষড়্বিধৈশ্বর্যপূর্ণ, পরতত্ত্বধাম ॥১৩৮॥
 
-> bṛhad-vastu 'brahma' kahi—'śrī-bhagavān'
+> bṛhad-vastu 'brahma' kahi—'śrī-bhagavān'\
 > ṣaḍ-vidhaiśvarya-pūrṇa, para-tattva-dhāma
 
 *bṛhat-vastu*—the substance, which is greater than the greatest; *brahma*—called by the name Brahman; *kahi*—we call; *śrī-bhagavān*—the Supreme Personality of Godhead; *ṣaṭ*—six; *vidha*—varieties; *aiśvarya*—opulences; *pūrṇa*—full; *para-tattva*—Absolute Truth; *dhāma*—reservoir.

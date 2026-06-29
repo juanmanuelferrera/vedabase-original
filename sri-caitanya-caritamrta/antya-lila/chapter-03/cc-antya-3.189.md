@@ -1,11 +1,11 @@
 ### CC Antya 3.189
 
-> সালোক্য-সার্ষ্টি-সারূপ্য-সামীপ্যৈকত্বমপ্যুত ।
+> সালোক্য-সার্ষ্টি-সারূপ্য-সামীপ্যৈকত্বমপ্যুত ।\
 > দীয়মানং ন গৃহ্ণন্তি বিনা মৎসেবনং জনাঃ ॥১৮৯॥
 
-> sālokya-sārṣṭi-sārūpya-
-> sāmīpyaikatvam apy uta
-> dīyamānaṁ na gṛhṇanti
+> sālokya-sārṣṭi-sārūpya-\
+> sāmīpyaikatvam apy uta\
+> dīyamānaṁ na gṛhṇanti\
 > vinā mat-sevanaṁ janāḥ
 
 *sālokya*—to live on the same planet; *sārṣṭi*—to acquire the same opulence; *sārūpya*—to achieve the same bodily features; *sāmīpya*—to live always near the Supreme Lord; *ekatvam*—to merge into the existence of the Lord; *api*—even; *uta*—certainly; *dīyamānam*—being offered; *na gṛhṇanti*—do not take; *vinā*—without; *mat-sevanam*—My service; *janāḥ*—the devotees.

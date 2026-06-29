@@ -1,9 +1,9 @@
 ### CC Antya 3.151
 
-> অনেক লোকজন সঙ্গে অঙ্গন ভরিল ।
+> অনেক লোকজন সঙ্গে অঙ্গন ভরিল ।\
 > ভিতর হৈতে রামচন্দ্র সেবক পাঠাইল ॥১৫১॥
 
-> aneka loka-jana saṅge aṅgana bharila
+> aneka loka-jana saṅge aṅgana bharila\
 > bhitara haite rāmacandra sevaka pāṭhāila
 
 *aneka*—muchos; *loka-jana*—multitudes de personas; *saṅge*—acompañado por; *aṅgana*—el patio; *bharila*—se llenó; *bhitara haite*—desde el interior; *rāmacandra*—Rāmacandra Khān; *sevaka*—sirviente; *pāṭhāila*—envió.

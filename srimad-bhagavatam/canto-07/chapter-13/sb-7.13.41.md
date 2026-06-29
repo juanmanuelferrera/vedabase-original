@@ -1,11 +1,11 @@
 ### SB 7.13.41
 
-> क्वचित्स्नातोऽनुलिप्ताङ्गः सुवासाः स्रग्व्यलङ्कृतः
+> क्वचित्स्नातोऽनुलिप्ताङ्गः सुवासाः स्रग्व्यलङ्कृतः\
 > रथेभाश्वैश्चरे क्वापि दिग्वासा ग्रहवद्विभो ॥४१॥
 
-> kvacit snāto 'nuliptāṅgaḥ
-> suvāsāḥ sragvy alaṅkṛtaḥ
-> rathebhāśvaiś care kvāpi
+> kvacit snāto 'nuliptāṅgaḥ\
+> suvāsāḥ sragvy alaṅkṛtaḥ\
+> rathebhāśvaiś care kvāpi\
 > dig-vāsā grahavad vibho
 
 *kvacit*—sometimes; *snātaḥ*—bathing very nicely; *anulipta-aṅgaḥ*—with sandalwood pulp smeared all over the body; *su-vāsāḥ*—dressing with very nice garments; *sragvī*—decorated with garlands of flowers; *alaṅkṛtaḥ*—bedecked with various types of ornaments; *ratha*—on a chariot; *ibha*—on an elephant; *aśvaiḥ*—or on the back of a horse; *care*—I wander; *kvāpi*—sometimes; *dik-vāsāḥ*—completely naked; *graha-vat*—as if haunted by a ghost; *vibho*—O lord.

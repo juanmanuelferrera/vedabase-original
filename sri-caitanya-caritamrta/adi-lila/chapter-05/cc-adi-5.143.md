@@ -1,9 +1,9 @@
 ### CC Adi 5.143
 
-> এই মত চৈতন্যগোসাঞি একলে ঈশ্বর ।
+> এই মত চৈতন্যগোসাঞি একলে ঈশ্বর ।\
 > আর সব পারিষদ, কেহ বা কিঙ্কর ॥১৪৩॥
 
-> ei mata caitanya-gosāñi ekale īśvara
+> ei mata caitanya-gosāñi ekale īśvara\
 > āra saba pāriṣada, keha vā kiṅkara
 
 *ei mata*—in this way; *caitanya-gosāñi*—Lord Śrī Caitanya Mahāprabhu; *ekale*—alone; *īśvara*—the Supreme Personality of Godhead; *āra saba*—all others; *pāriṣada*—associates; *keha*—someone; *vā*—or; *kiṅkara*—servants.

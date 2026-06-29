@@ -1,11 +1,11 @@
 ### SB 8.6.2
 
-> तेनैव सहसा सर्वे देवाः प्रतिहतेक्षणाः
+> तेनैव सहसा सर्वे देवाः प्रतिहतेक्षणाः\
 > नापश्यन्खं दिशः क्षौणीमात्मानं च कुतो विभुम ॥२॥
 
-> tenaiva sahasā sarve
-> devāḥ pratihatekṣaṇāḥ
-> nāpaśyan khaṁ diśaḥ kṣauṇīm
+> tenaiva sahasā sarve\
+> devāḥ pratihatekṣaṇāḥ\
+> nāpaśyan khaṁ diśaḥ kṣauṇīm\
 > ātmānaṁ ca kuto vibhum
 
 *tena eva*—because of this; *sahasā*—all of a sudden; *sarve*—all; *devāḥ*—the demigods; *pratihata-īkṣaṇāḥ*—their vision being blocked; *na*—not; *apaśyan*—could see; *kham*—the sky; *diśaḥ*—the directions; *kṣauṇīm*—land; *ātmānam ca*—also themselves; *kutaḥ*—and where is the question of seeing; *vibhum*—the Supreme Lord.

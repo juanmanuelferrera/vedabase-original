@@ -1,15 +1,15 @@
 ### SB 8.3.30
 
-> श्रीशुक उवाच
-> एवं गजेन्द्रमुपवर्णितनिर्विशेषं
-> ब्रह्मादयो विविधलिङ्गभिदाभिमानाः
-> नैते यदोपससृपुर्निखिलात्मकत्वात
+> श्रीशुक उवाच\
+> एवं गजेन्द्रमुपवर्णितनिर्विशेषं\
+> ब्रह्मादयो विविधलिङ्गभिदाभिमानाः\
+> नैते यदोपससृपुर्निखिलात्मकत्वात\
 > तत्राखिलामरमयो हरिराविरासीत ॥३०॥
 
-> śrī-śuka uvāca
-> evaṁ gajendram upavarṇita-nirviśeṣaṁ
-> brahmādayo vividha-liṅga-bhidābhimānāḥ
-> naite yadopasasṛpur nikhilātmakatvāt
+> śrī-śuka uvāca\
+> evaṁ gajendram upavarṇita-nirviśeṣaṁ\
+> brahmādayo vividha-liṅga-bhidābhimānāḥ\
+> naite yadopasasṛpur nikhilātmakatvāt\
 > tatrākhilāmara-mayo harir āvirāsīt
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—in this way; *gajendram*—unto the King of the elephants, Gajendra; *upavarṇita*—whose description; *nirviśeṣam*—not directed to any particular person (but to the Supreme, although he did not know who the Supreme is); *brahmā-ādayaḥ*—the demigods, beginning with Brahmā, Śiva, Indra and Candra; *vividha*—varieties; *liṅga-bhidā*—with separate forms; *abhimānāḥ*—considering themselves separate authorities; *na*—not; *ete*—all of them; *yadā*—when; *upasasṛpuḥ*—approached; *nikhila-ātmakatvāt*—because the Supreme Personality of Godhead is the Supersoul of everyone; *tatra*—there; *akhila*—of the universe; *amara-mayaḥ*—consisting of the demigods (who are only external parts of the body); *hariḥ*—the Supreme Personality of Godhead, who can take away everything; *āvirāsīt*—appeared (before the elephant).

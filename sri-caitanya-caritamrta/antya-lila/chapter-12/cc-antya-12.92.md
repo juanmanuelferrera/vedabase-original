@@ -1,9 +1,9 @@
 ### CC Antya 12.92
 
-> আমি যাই’ ভোজন করি — মাতা নাহি জানে ।
+> আমি যাই’ ভোজন করি — মাতা নাহি জানে ।\
 > সাক্ষাতে খাই আমি’ তেঁহো ‘স্বপ্ন’ হেন মানে ।।” ॥ ৯২ ॥
 
-> āmi yāi' bhojana kari—mātā nāhi jāne
+> āmi yāi' bhojana kari—mātā nāhi jāne\
 > sākṣāte khāi āmi' teṅho 'svapna' hena māne"
 
 *āmi*—I; *yāi'*—going; *bhojana kari*—eat; *mātā*—mother; *nāhi jāne*—cannot understand; *sākṣāte*—directly; *khāi āmi'*—I eat; *teṅho*—she; *svapna*—a dream; *hena*—as; *māne*—thinks.

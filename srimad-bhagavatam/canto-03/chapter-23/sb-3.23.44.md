@@ -1,11 +1,11 @@
 ### SB 3.23.44
 
-> विभज्य नवधात्मानं मानवीं सुरतोत्सुकाम् ।
+> विभज्य नवधात्मानं मानवीं सुरतोत्सुकाम् ।\
 > रामां निरमयन्रेमे वर्षपूगान्मुहूर्तवत् ॥४४॥
 
-> vibhajya navadhātmānaṁ
-> mānavīṁ suratotsukām
-> rāmāṁ niramayan reme
+> vibhajya navadhātmānaṁ\
+> mānavīṁ suratotsukām\
+> rāmāṁ niramayan reme\
 > varṣa-pūgān muhūrtavat
 
 *vibhajya*—having divided; *nava-dhā*—into nine; *ātmānam*—himself; *mānavīm*—the daughter of Manu (Devahūti); *surata*—for sex life; *utsukām*—who was eager; *rāmām*—to his wife; *niramayan*—giving pleasure; *reme*—he enjoyed; *varṣa-pūgān*—for many years; *muhūrtavat*—like a moment.

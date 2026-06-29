@@ -1,11 +1,11 @@
 ### SB 8.16.62
 
-> तस्मादेतद्व्रतं भद्रे प्रयता श्रद्धयाचर
+> तस्मादेतद्व्रतं भद्रे प्रयता श्रद्धयाचर\
 > भगवान्परितुष्टस्ते वरानाशु विधास्यति ॥६२॥
 
-> tasmād etad vrataṁ bhadre
-> prayatā śraddhayācara
-> bhagavān parituṣṭas te
+> tasmād etad vrataṁ bhadre\
+> prayatā śraddhayācara\
+> bhagavān parituṣṭas te\
 > varān āśu vidhāsyati
 
 *tasmāt*—therefore; *etat*—this; *vratam*—observance of a *vrata* ceremony; *bhadre*—my dear gentle lady; *prayatā*—by observing rules and regulations; *śraddhayā*—with faith; *ācara*—execute; *bhagavān*—the Supreme Personality of Godhead; *parituṣṭaḥ*—being very satisfied; *te*—unto you; *varān*—benedictions; *āśu*—very soon; *vidhāsyati*—will bestow.

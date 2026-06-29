@@ -1,11 +1,11 @@
 ### SB 8.9.7
 
-> वयं कश्यपदायादा भ्रातरः कृतपौरुषाः
+> वयं कश्यपदायादा भ्रातरः कृतपौरुषाः\
 > विभजस्व यथान्यायं नैव भेदो यथा भवेत ॥७॥
 
-> vayaṁ kaśyapa-dāyādā
-> bhrātaraḥ kṛta-pauruṣāḥ
-> vibhajasva yathā-nyāyaṁ
+> vayaṁ kaśyapa-dāyādā\
+> bhrātaraḥ kṛta-pauruṣāḥ\
+> vibhajasva yathā-nyāyaṁ\
 > naiva bhedo yathā bhavet
 
 *vayam*—all of us; *kaśyapa-dāyādāḥ*—descendants of Kaśyapa Muni; *bhrātaraḥ*—we are all brothers; *kṛta-pauruṣāḥ*—who are all able and competent; *vibhajasva*—just divide; *yathā-nyāyam*—according to law; *na*—not; *eva*—certainly; *bhedaḥ*—partiality; *yathā*—as; *bhavet*—should so become.

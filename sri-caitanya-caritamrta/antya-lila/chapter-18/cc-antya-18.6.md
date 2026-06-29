@@ -1,9 +1,9 @@
 ### CC Antya 18.6
 
-> প্রভু প্রেমাবেশে করেন গান, নর্তন ।
+> প্রভু প্রেমাবেশে করেন গান, নর্তন ।\
 > কভু ভাবাবেশে রাসলীলানুকরণ ॥৬॥
 
-> prabhu premāveśe karena gāna, nartana
+> prabhu premāveśe karena gāna, nartana\
 > kabhu bhāvāveśe rāsa-līlānukaraṇa
 
 *prabhu*—Śrī Caitanya Mahāprabhu; *prema-āveśe*—in ecstatic love; *karena*—does; *gāna*—singing; *nartana*—dancing; *kabhu*—sometimes; *bhāva-āveśe*—in ecstatic emotion; *rāsa-līlā*—the *rāsa-līlā* dance; *anukaraṇa*—imitating.

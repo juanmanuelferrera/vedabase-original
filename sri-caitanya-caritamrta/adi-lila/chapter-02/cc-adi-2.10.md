@@ -1,9 +1,9 @@
 ### CC Adi 2.10
 
-> প্রকাশবিশেষে তেঁহ ধরে তিন নাম ।
+> প্রকাশবিশেষে তেঁহ ধরে তিন নাম ।\
 > ব্রহ্ম, পরমাত্মা আর স্বয়ং-ভগবান্ ॥১০॥
 
-> prakāśa-viśeṣe teṅha dhare tina nāma
+> prakāśa-viśeṣe teṅha dhare tina nāma\
 > brahma, paramātmā āra svayaṁ-bhagavān
 
 *prakāśa*—of manifestation; *viśeṣe*—in variety; *teṅha*—He; *dhare*—holds; *tina*—three; *nāma*—names; *brahma*—Brahman; *paramātmā*—Paramātmā (Supersoul); *āra*—and; *svayam*—Himself; *bhagavān*—the Supreme Personality of Godhead.

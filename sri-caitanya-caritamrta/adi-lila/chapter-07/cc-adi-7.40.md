@@ -1,9 +1,9 @@
 ### CC Adi 7.40
 
-> বৃন্দাবন যাইতে প্রভু রহিলা কাশীতে ।
+> বৃন্দাবন যাইতে প্রভু রহিলা কাশীতে ।\
 > মায়াবাদিগণ তাঁরে লাগিল নিন্দিতে ॥৪০॥
 
-> vṛndāvana yāite prabhu rahilā kāśīte
+> vṛndāvana yāite prabhu rahilā kāśīte\
 > māyāvādi-gaṇa tāṅre lāgila nindite
 
 *vṛndāvana*—the holy place called Vṛndāvana; *yāite*—while going there; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *rahilā*—remained; *kāśīte*—at Vārāṇasī; *māyāvādi-gaṇa*—the Māyāvādī philosophers; *tāṅre*—unto Him; *lagila*—began; *nindite*—to speak against Him.

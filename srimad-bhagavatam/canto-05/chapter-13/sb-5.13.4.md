@@ -1,11 +1,11 @@
 ### SB 5.13.4
 
-> निवासतोयद्रविणात्मबुद्धिस्ततस्ततो धावति भो अटव्याम
+> निवासतोयद्रविणात्मबुद्धिस्ततस्ततो धावति भो अटव्याम\
 > क्वचिच्च वात्योत्थितपांसुधूम्रा दिशो न जानाति रजस्वलाक्षः ॥४॥
 
-> nivāsa-toya-draviṇātma-buddhis
-> tatas tato dhāvati bho aṭavyām
-> kvacic ca vātyotthita-pāṁsu-dhūmrā
+> nivāsa-toya-draviṇātma-buddhis\
+> tatas tato dhāvati bho aṭavyām\
+> kvacic ca vātyotthita-pāṁsu-dhūmrā\
 > diśo na jānāti rajas-valākṣaḥ
 
 *nivāsa*—residential place; *toya*—water; *draviṇa*—wealth; *ātma-buddhiḥ*—who considers these material things the *ātma,* or self; *tataḥ tataḥ*—here and there; *dhāvati*—he runs; *bhoḥ*—O King; *aṭavyām*—on that forest path of material existence; *kvacit ca*—and sometimes; *vātyā*—by the whirlwind; *utthita*—raised; *pāṁsu*—by dust; *dhūmrāḥ*—appear smoke-colored; *diśaḥ*—the directions; *na*—not; *jānāti*—knows; *rajaḥ-vala-akṣaḥ*—whose eyes are covered by the dust of the wind or who is captivated by his wife during her menstrual period.

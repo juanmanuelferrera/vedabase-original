@@ -1,13 +1,13 @@
 ### CC Madhya 21.106
 
-> ব্রহ্মাণ্ডোপরি পরব্যোম, তাহাঁ যে স্বরূপগণ,
-> তাঁ-সবার বলে হরে মন ।
-> পতিব্রতা-শিরোমণি, যাঁরে কহে বেদবাণী,
+> ব্রহ্মাণ্ডোপরি পরব্যোম, তাহাঁ যে স্বরূপগণ,\
+> তাঁ-সবার বলে হরে মন ।\
+> পতিব্রতা-শিরোমণি, যাঁরে কহে বেদবাণী,\
 > আকর্ষয়ে সেই লক্ষ্মীগণ ॥১০৬॥
 
-> brahmāṇḍopari paravyoma, tāhāṅ ye svarūpa-gaṇa,
-> tāṅ-sabāra bale hare mana
-> pati-vratā-śiromaṇi, yāṅre kahe veda-vāṇī,
+> brahmāṇḍopari paravyoma, tāhāṅ ye svarūpa-gaṇa,\
+> tāṅ-sabāra bale hare mana\
+> pati-vratā-śiromaṇi, yāṅre kahe veda-vāṇī,\
 > ākarṣaye sei lakṣmī-gaṇa
 
 *brahmāṇḍa-upari*—above all the universes; *para-vyoma*—the spiritual sky; *tāhāṅ*—there; *ye*—all those; *svarūpa-gaṇa*—transcendental personal expansions; *tāṅ-sabāra*—of all of Them; *bale*—by force; *hare mana*—it enchants the minds; *pati-vratā*—of those who are chaste and devoted to the husband; *śiromaṇi*—topmost; *yāṅre*—unto whom; *kahe*—describe; *veda-vāṇī*—hymns of the *Vedas*; *ākarṣaye*—it attracts; *sei*—those; *lakṣmī-gaṇa*—all the goddesses of fortune.

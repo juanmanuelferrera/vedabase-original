@@ -1,9 +1,9 @@
 ### CC Madhya 25.79
 
-> জীবে ‘বিষ্ণু’ বুদ্ধি দূরে — যেই ব্রহ্ম-রুদ্র-সম ।
+> জীবে ‘বিষ্ণু’ বুদ্ধি দূরে — যেই ব্রহ্ম-রুদ্র-সম ।\
 > নারায়ণে মানে তারে ‘পাষণ্ডীতে’ গণন ॥৭৯॥
 
-> jīve 'viṣṇu' buddhi dūre-yei brahma-rudra-sama
+> jīve 'viṣṇu' buddhi dūre-yei brahma-rudra-sama\
 > nārāyaṇe māne tāre 'pāṣaṇḍīte' gaṇana
 
 *jīve*—an ordinary living being; *viṣṇu*—as Lord Viṣṇu; *buddhi*—acceptance; *dūre*—let alone; *yei*—anyone who; *brahma-rudra-sama*—equal to personalities like Lord Brahmā and Lord Śiva; *nārāyaṇe*—Lord Nārāyaṇa, Viṣṇu; *māne*—accepts; *tāre*—such a person; *pāṣaṇḍīte gaṇana*—is grouped among the *pāṣaṇḍīs,* atheistic offenders.

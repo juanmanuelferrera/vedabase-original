@@ -1,9 +1,9 @@
 ### CC Madhya 9.153
 
-> কৃষ্ণ-নারায়ণ, যৈছে একই স্বরূপ ।
+> কৃষ্ণ-নারায়ণ, যৈছে একই স্বরূপ ।\
 > গোপী-লক্ষ্মী-ভেদ নাহি হয় একরূপ ॥১৫৩॥
 
-> kṛṣṇa-nārāyaṇa, yaiche eka-i svarūpa
+> kṛṣṇa-nārāyaṇa, yaiche eka-i svarūpa\
 > gopī-lakṣmī-bheda nāhi haya eka-rūpa
 
 *kṛṣṇa-nārāyaṇa*—Lord Kṛṣṇa and Lord Nārāyaṇa; *yaiche*—as; *eka-i*—one; *svarūpa*—form; *gopī*—the *gopīs*; *lakṣmī*—the goddess of fortune; *bheda*—difference; *nāhi*—there is not; *haya*—there is; *eka-rūpa*—one form.

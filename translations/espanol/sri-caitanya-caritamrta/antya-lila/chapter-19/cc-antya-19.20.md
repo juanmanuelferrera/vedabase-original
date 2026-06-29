@@ -1,9 +1,9 @@
 ### CC Antya 19.20
 
-> বাউলকে কহিহ, — লোক হইল বাউল  ।
+> বাউলকে কহিহ, — লোক হইল বাউল  ।\
 > বাউলকে কহিহ, — হাটে না বিকায় চাউল ॥২০॥
 
-> bāulake kahiha,--loka ha-ila bāula
+> bāulake kahiha,--loka ha-ila bāula\
 > bāulake kahiha,--hāṭe nā vikāya cāula
 
 *bāulake kahiha*—por favor, informa a Śrī Caitanya Mahāprabhu, que está haciendo el papel de un loco en amor extático; *loka*—la gente en general; *ha-ila*—se ha vuelto; *bāula*—también loca de amor extático; *bāulake kahiha*—informa de nuevo al Señor Śrī Caitanya Mahāprabhu, el *bāula*; *hāṭe*—en el mercado; *nā*—no; *vikāya*—se vende; *cāula*—arroz.

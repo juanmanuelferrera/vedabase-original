@@ -1,11 +1,11 @@
 ### SB 4.8.71
 
-> तत्राभिषिक्तः प्रयतस्तामुपोष्य विभावरीम् ।
+> तत्राभिषिक्तः प्रयतस्तामुपोष्य विभावरीम् ।\
 > समाहितः पर्यचरदृष्यादेशेन पूरुषम् ॥७१॥
 
-> tatrābhiṣiktaḥ prayatas
-> tām upoṣya vibhāvarīm
-> samāhitaḥ paryacarad
+> tatrābhiṣiktaḥ prayatas\
+> tām upoṣya vibhāvarīm\
+> samāhitaḥ paryacarad\
 > ṛṣy-ādeśena pūruṣam
 
 *tatra*—a continuación; *abhiṣiktaḥ*—después de bañarse; *prayataḥ*—con gran atención; *tām*—esa; *upoṣya*—ayunar; *vibhāvarīm*—noche; *samāhitaḥ*—atención perfecta; *paryacarat*—adoró; *ṛṣi*—por el gran sabio Nārada; *ādeśena*—como había sido aconsejado; *pūruṣam*—a la Suprema Personalidad de Dios.

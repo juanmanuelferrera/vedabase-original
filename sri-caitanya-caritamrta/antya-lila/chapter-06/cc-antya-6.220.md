@@ -1,9 +1,9 @@
 ### CC Antya 6.220
 
-> মহাপ্রভুর ভক্তগণের বৈরাগ্য প্রধান ।
+> মহাপ্রভুর ভক্তগণের বৈরাগ্য প্রধান ।\
 > যাহা দেখি’ প্রীত হন গৌর-ভগবান্ ॥২২০॥
 
-> mahāprabhura bhakta-gaṇera vairāgya pradhāna
+> mahāprabhura bhakta-gaṇera vairāgya pradhāna\
 > yāhā dekhi' prīta hana gaura-bhagavān
 
 *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *bhakta-gaṇera*—of the devotees; *vairāgya*—renunciation; *pradhāna*—the basic principle; *yāhā dekhi'*—seeing which; *prīta hana*—becomes satisfied; *gaura-bhagavān*—Śrī Caitanya Mahāprabhu, the Supreme Personality of Godhead.

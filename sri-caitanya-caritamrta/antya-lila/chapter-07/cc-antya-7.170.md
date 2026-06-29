@@ -1,9 +1,9 @@
 ### CC Antya 7.170
 
-> দিনান্তরে পণ্ডিত কৈল প্রভুর নিমন্ত্রণ ।
+> দিনান্তরে পণ্ডিত কৈল প্রভুর নিমন্ত্রণ ।\
 > প্রভু তাহাঁ ভিক্ষা কৈল লঞা নিজগণ ॥১৭০॥
 
-> dināntare paṇḍita kaila prabhura nimantraṇa
+> dināntare paṇḍita kaila prabhura nimantraṇa\
 > prabhu tāhāṅ bhikṣā kaila lañā nija-gaṇa
 
 *dina-antare*—another day; *paṇḍita*—Gadādhara Paṇḍita; *kaila prabhura nimantraṇa*—invited Śrī Caitanya Mahāprabhu; *prabhu*—Śrī Caitanya Mahāprabhu; *tāhāṅ*—there; *bhikṣā kaila*—took *prasāda*; *lañā nija-gaṇa*—with His personal associates.

@@ -1,11 +1,11 @@
 ### SB 9.4.45
 
-> यो मामतिथिमायातमातिथ्येन निमन्त्र्य च
+> यो मामतिथिमायातमातिथ्येन निमन्त्र्य च\
 > अदत्त्वा भुक्तवांस्तस्य सद्यस्ते दर्शये फलम ॥४५॥
 
-> yo mām atithim āyātam
-> ātithyena nimantrya ca
-> adattvā bhuktavāṁs tasya
+> yo mām atithim āyātam\
+> ātithyena nimantrya ca\
+> adattvā bhuktavāṁs tasya\
 > sadyas te darśaye phalam
 
 *yaḥ*—este hombre que; *mām*—a mí; *atithim*—que, como huésped e invitado; *āyātam*—había venido aquí; *ātithyena*—con el recibimiento de una visita; *nimantrya*—después de invitarme; *ca*—también; *adattvā*—sin dar (comida); *bhuktavān*—ha comido él mismo; *tasya*—de él; *sadyaḥ*—inmediatamente; *te*—de ti; *darśaye*—voy a mostrarte; *phalam*—el resultado.

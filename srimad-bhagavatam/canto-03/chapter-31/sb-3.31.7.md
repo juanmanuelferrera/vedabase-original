@@ -1,11 +1,11 @@
 ### SB 3.31.7
 
-> कटुतीक्ष्णोष्णलवण रूक्षाम्लादिभिरुल्बणैः ।
+> कटुतीक्ष्णोष्णलवण रूक्षाम्लादिभिरुल्बणैः ।\
 > मातृभुक्तैरुपस्पृष्टः सर्वाङ्गोत्थितवेदनः ॥७॥
 
-> kaṭu-tīkṣṇoṣṇa-lavaṇa-
-> rūkṣāmlādibhir ulbaṇaiḥ
-> mātṛ-bhuktair upaspṛṣṭaḥ
+> kaṭu-tīkṣṇoṣṇa-lavaṇa-\
+> rūkṣāmlādibhir ulbaṇaiḥ\
+> mātṛ-bhuktair upaspṛṣṭaḥ\
 > sarvāṅgotthita-vedanaḥ
 
 *kaṭu*—bitter; *tīkṣṇa*—pungent; *uṣṇa*—hot; *lavaṇa*—salty; *rūkṣa*—dry; *amla*—sour; *ādibhiḥ*—and so on; *ulbaṇaiḥ*—excessive; *mātṛ-bhuktaiḥ*—by foods eaten by the mother; *upaspṛṣṭaḥ*—affected; *sarva-aṅga*—all over the body; *utthita*—arisen; *vedanaḥ*—pain.

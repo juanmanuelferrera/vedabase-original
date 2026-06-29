@@ -1,9 +1,9 @@
 ### CC Adi 4.96
 
-> রাধা — পূর্ণশক্তি, কৃষ্ণ — পূর্ণশক্তিমান্ ।
+> রাধা — পূর্ণশক্তি, কৃষ্ণ — পূর্ণশক্তিমান্ ।\
 > দুই বস্তু ভেদ নাই, শাস্ত্র-পরমাণ ॥৯৬॥
 
-> rādhā—pūrṇa-śakti, kṛṣṇa—pūrṇa-śaktimān
+> rādhā—pūrṇa-śakti, kṛṣṇa—pūrṇa-śaktimān\
 > dui vastu bheda nāi, śāstra-paramāṇa
 
 *rādhā*—Śrīmatī Rādhārāṇī; *pūrṇa-śakti*—the complete energy; *kṛṣṇa*—Lord Kṛṣṇa; *pūrṇa-śaktimān*—the complete possessor of energy; *dui*—two; *vastu*—things; *bheda*—difference; *nāi*—there is not; *śāstra-paramāṇa*—the evidence of revealed scripture.

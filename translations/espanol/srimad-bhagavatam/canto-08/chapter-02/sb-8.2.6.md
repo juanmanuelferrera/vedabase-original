@@ -1,11 +1,11 @@
 ### SB 8.2.6
 
-> यत्र सङ्गीतसन्नादैर्नदद्गुहममर्षया
+> यत्र सङ्गीतसन्नादैर्नदद्गुहममर्षया\
 > अभिगर्जन्ति हरयः श्लाघिनः परशङ्कया ॥६॥
 
-> yatra saṅgīta-sannādair
-> nadad-guham amarṣayā
-> abhigarjanti harayaḥ
+> yatra saṅgīta-sannādair\
+> nadad-guham amarṣayā\
+> abhigarjanti harayaḥ\
 > ślāghinaḥ para-śaṅkayā
 
 *yatra*—en esa montaña (Trikūṭa); *saṅgīta*—del canto; *sannādaiḥ*—con las vibraciones; *nadat*—resonando; *guham*—las cuevas; *amarṣayā*—debido a una ira o envidia incontenibles; *abhigarjanti*—rugen; *harayaḥ*—los leones; *ślāghinaḥ*—muy orgullosos de su fuerza; *para-śaṅkayā*—sospechando la existencia de otro león.

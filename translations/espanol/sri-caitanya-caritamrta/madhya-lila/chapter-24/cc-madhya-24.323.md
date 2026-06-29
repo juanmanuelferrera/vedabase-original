@@ -1,9 +1,9 @@
 ### CC Madhya 24.323
 
-> আমা-হেন যেবা কেহ ‘বাতুল’ হয় ।
+> আমা-হেন যেবা কেহ ‘বাতুল’ হয় ।\
 > এইদৃষ্টে ভাগবতের অর্থ জানয় ।।” ॥ ৩২৩ ॥
 
-> āmā-hena yebā keha 'vātula' haya
+> āmā-hena yebā keha 'vātula' haya\
 > ei-dṛṣṭe bhāgavatera artha jānaya"
 
 *āmā-hena*—exactamente como Yo; *yebā*—cualquiera que; *keha*—una persona; *vātula haya*—se vuelve un loco; *ei-dṛṣṭe*—según este proceso; *bhāgavatera*—del Śrīmad-Bhāgavatam; *artha*—significado; *jānaya*—puede comprender.

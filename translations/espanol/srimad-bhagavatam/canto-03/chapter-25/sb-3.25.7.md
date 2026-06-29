@@ -1,13 +1,13 @@
 ### SB 3.25.7
 
-> देवहूतिरुवाच
-> निर्विण्णा नितरां भूमन्नसदिन्द्रियतर्षणात् ।
+> देवहूतिरुवाच\
+> निर्विण्णा नितरां भूमन्नसदिन्द्रियतर्षणात् ।\
 > येन सम्भाव्यमानेन प्रपन्नान्धं तमः प्रभो ॥७॥
 
-> devahūtir uvāca
-> nirviṇṇā nitarāṁ bhūmann
-> asad-indriya-tarṣaṇāt
-> yena sambhāvyamānena
+> devahūtir uvāca\
+> nirviṇṇā nitarāṁ bhūmann\
+> asad-indriya-tarṣaṇāt\
+> yena sambhāvyamānena\
 > prapannāndhaṁ tamaḥ prabho
 
 *devahūtiḥ uvāca*—Devahūti dijo; *nirviṇṇā*—hastiada; *nitarām*—mucho; *bhūman*—¡oh, mi Señor!; *asat*—no permanentes; *indriya*—sentidos; *tarṣaṇāt*—de la agitación; *yena*—debido a la cual; *sambhāvyamānena*—siendo prevaleciente; *prapannā*—yo he caído; *andham tamaḥ*—en el abismo de la ignorancia; *prabho*—¡oh, mi Señor!.

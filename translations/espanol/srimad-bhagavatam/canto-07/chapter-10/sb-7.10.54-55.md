@@ -1,18 +1,18 @@
 ### SB 7.10.54-55
 
-> स निर्माय पुरस्तिस्रो हैमीरौप्यायसीर्विभुः
-> दुर्लक्ष्यापायसंयोगा दुर्वितर्क्यपरिच्छदाः ॥५४॥
-> ताभिस्तेऽसुरसेनान्यो लोकांस्त्रीन्सेश्वरान्नृप
+> स निर्माय पुरस्तिस्रो हैमीरौप्यायसीर्विभुः\
+> दुर्लक्ष्यापायसंयोगा दुर्वितर्क्यपरिच्छदाः ॥५४॥\
+> ताभिस्तेऽसुरसेनान्यो लोकांस्त्रीन्सेश्वरान्नृप\
 > स्मरन्तो नाशयां चक्रुः पूर्ववैरमलक्षिताः ॥५५॥
 
-> sa nirmāya puras tisro
-> haimī-raupyāyasīr vibhuḥ
-> durlakṣyāpāya-saṁyogā
+> sa nirmāya puras tisro\
+> haimī-raupyāyasīr vibhuḥ\
+> durlakṣyāpāya-saṁyogā\
 > durvitarkya-paricchadāḥ
 
-> tābhis te 'sura-senānyo
-> lokāṁs trīn seśvarān nṛpa
-> smaranto nāśayāṁ cakruḥ
+> tābhis te 'sura-senānyo\
+> lokāṁs trīn seśvarān nṛpa\
+> smaranto nāśayāṁ cakruḥ\
 > pūrva-vairam alakṣitāḥ
 
 *saḥ*—ese (gran demonio Maya Dānava); *nirmāya*—construir; *puraḥ*—grandes residencias; *tisraḥ*—tres; *haimī*—hecha de oro; *raupyā*—hecha de plata; *āyasīḥ*—hecha de hierro; *vibhuḥ*—muy grandes, poderosas; *durlakṣya*—inconmensurables; *apāya-saṁyogāḥ*—cuyos movimientos al ir y venir; *durvitarkya*—extraordinarios; *paricchadāḥ*—con unos recursos; *tābhiḥ*—por todas ellas (las tres residencias, que parecían aviones); *te*—ellos; *asura-senā-anyaḥ*—los generales de los *asuras*; *lokān trīn*—los tres mundos; *sa-īśvarān*—con sus principales gobernantes; *nṛpa*—mi querido rey Yudhiṣṭhira; *smarantaḥ*—recordando; *nāśayām cakruḥ*—comenzaron a destruir; *pūrva*—anterior; *vairam*—enemistad; *alakṣitāḥ*—invisibles a todos.

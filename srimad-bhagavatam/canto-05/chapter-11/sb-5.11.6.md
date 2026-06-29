@@ -1,11 +1,11 @@
 ### SB 5.11.6
 
-> दुःखं सुखं व्यतिरिक्तं च तीव्रं कालोपपन्नं फलमाव्यनक्ति
+> दुःखं सुखं व्यतिरिक्तं च तीव्रं कालोपपन्नं फलमाव्यनक्ति\
 > आलिङ्ग्य मायारचितान्तरात्मा स्वदेहिनं संसृतिचक्रकूटः ॥६॥
 
-> duḥkhaṁ sukhaṁ vyatiriktaṁ ca tīvraṁ
-> kālopapannaṁ phalam āvyanakti
-> āliṅgya māyā-racitāntarātmā
+> duḥkhaṁ sukhaṁ vyatiriktaṁ ca tīvraṁ\
+> kālopapannaṁ phalam āvyanakti\
+> āliṅgya māyā-racitāntarātmā\
 > sva-dehinaṁ saṁsṛti-cakra-kūṭaḥ
 
 *duḥkham*—unhappiness due to impious activities; *sukham*—happiness due to pious activities; *vyatiriktam*—illusion; *ca*—also; *tīvram*—very severe; *kāla-upapannam*—obtained in the course of time; *phalam*—the resultant action; *āvyanakti*—creates; *āliṅgya*—embracing; *māyā-racita*—created by material nature; *antaḥ-ātmā*—the mind; *sva-dehinam*—the living being himself; *saṁsṛti*—of the actions and reactions of material existence; *cakra-kūṭaḥ*—which deceives the living entity into the wheel.

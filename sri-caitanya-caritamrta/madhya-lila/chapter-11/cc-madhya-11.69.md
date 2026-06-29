@@ -1,9 +1,9 @@
 ### CC Madhya 11.69
 
-> রাজা কহে, — পড়িছাকে আমি আজ্ঞা দিব ।
+> রাজা কহে, — পড়িছাকে আমি আজ্ঞা দিব ।\
 > বাসা আদি যে চাহিয়ে, — পড়িছা সব দিব ॥৬৯॥
 
-> rājā kahe,-paḍichāke āmi ājñā diba
+> rājā kahe,-paḍichāke āmi ājñā diba\
 > vāsā ādi ye cāhiye,-paḍichā saba diba
 
 *rājā kahe*—the King said; *paḍichāke*—unto the attendant; *āmi*—I; *ājñā diba*—shall give orders; *vāsā*—residential quarters; *ādi*—and other arrangements; *ye cāhiye*—whatever you want; *paḍichā*—the attendant; *saba*—everything; *diba*—will supply.

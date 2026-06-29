@@ -1,11 +1,11 @@
 ### SB 7.15.41
 
-> आहुः शरीरं रथमिन्द्रियाणि हयानभीषून्मन इन्द्रियेशम
+> आहुः शरीरं रथमिन्द्रियाणि हयानभीषून्मन इन्द्रियेशम\
 > वर्त्मानि मात्रा धिषणां च सूतं सत्त्वं बृहद्बन्धुरमीशसृष्टम ॥४१॥
 
-> āhuḥ śarīraṁ ratham indriyāṇi
-> hayān abhīṣūn mana indriyeśam
-> vartmāni mātrā dhiṣaṇāṁ ca sūtaṁ
+> āhuḥ śarīraṁ ratham indriyāṇi\
+> hayān abhīṣūn mana indriyeśam\
+> vartmāni mātrā dhiṣaṇāṁ ca sūtaṁ\
 > sattvaṁ bṛhad bandhuram īśa-sṛṣṭam
 
 *āhuḥ*—it is said; *śarīram*—the body; *ratham*—the chariot; *indriyāṇi*—the senses; *hayān*—the horses; *abhīṣūn*—the reins; *manaḥ*—the mind; *indriya*—of the senses; *īśam*—the master; *vartmāni*—the destinations; *mātrāḥ*—the sense objects; *dhiṣaṇām*—the intelligence; *ca*—and; *sūtam*—the chariot driver; *sattvam*—consciousness; *bṛhat*—great; *bandhuram*—bondage; *īśa*—by the Supreme Personality of Godhead; *sṛṣṭam*—created.

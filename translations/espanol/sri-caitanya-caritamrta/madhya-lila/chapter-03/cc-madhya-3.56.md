@@ -1,9 +1,9 @@
 ### CC Madhya 3.56
 
-> অন্ন-ব্যঞ্জন-উপরি দিল তুলসীমঞ্জরী ।
+> অন্ন-ব্যঞ্জন-উপরি দিল তুলসীমঞ্জরী ।\
 > তিন জলপাত্রে সুবাসিত জল ভরি’ ॥৫৬॥
 
-> anna-vyañjana-upari dila tulasī-mañjarī
+> anna-vyañjana-upari dila tulasī-mañjarī\
 > tina jala-pātre suvāsita jala bhari'
 
 *anna-vyañjana-upari*—encima del arroz hervido y las verduras; *dila*—se colocaron; *tulasī-mañjarī*—flores de *tulasī*; *tina*—tres; *jala-pātre*—jarras de agua; *su-vāsita*—perfumada; *jala*—agua; *bhari'*—llenando.

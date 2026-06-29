@@ -1,11 +1,11 @@
 ### SB 1.15.7
 
-> यत्संश्रयाद्द्रुपदगेहमुपागतानां राज्ञां स्वयंवरमुखे स्मरदुर्मदानाम् ।
+> यत्संश्रयाद्द्रुपदगेहमुपागतानां राज्ञां स्वयंवरमुखे स्मरदुर्मदानाम् ।\
 > तेजो हृतं खलु मयाभिहतश्च मत्स्यः सज्जीकृतेन धनुषाधिगता च कृष्णा ॥७॥
 
-> yat-saṁśrayād drupada-geham upāgatānāṁ
-> rājñāṁ svayaṁvara-mukhe smara-durmadānām
-> tejo hṛtaṁ khalu mayābhihataś ca matsyaḥ
+> yat-saṁśrayād drupada-geham upāgatānāṁ\
+> rājñāṁ svayaṁvara-mukhe smara-durmadānām\
+> tejo hṛtaṁ khalu mayābhihataś ca matsyaḥ\
 > sajjīkṛtena dhanuṣādhigatā ca kṛṣṇā
 
 *yat*—por cuya misericordia; *saṁśrayāt*—por la fuerza; *drupada-geham*—en el palacio del rey Drupada; *upāgatānām*—todos los reunidos; *rājñām*—de los príncipes; *svayaṁvara-mukhe*—en la ocasión de la selección de novio; *smara-durmadānām*—todos de pensamiento lujurioso; *tejaḥ*—poder; *hṛtam*—venció; *khalu*—como era; *mayā*—por mí; *abhihataḥ*—atravesado; *ca*—también; *matsyaḥ*—el pez que servía de blanco; *sajjī-kṛtena*—equipando el arco; *dhanuṣā*—también mediante ese arco; *adhigatā*—gané; *ca*—también; *kṛṣṇā*—a Draupadī.

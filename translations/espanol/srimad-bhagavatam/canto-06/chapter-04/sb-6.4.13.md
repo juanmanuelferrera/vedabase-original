@@ -1,11 +1,11 @@
 ### SB 6.4.13
 
-> अन्तर्देहेषु भूतानामात्मास्ते हरिरीश्वरः
+> अन्तर्देहेषु भूतानामात्मास्ते हरिरीश्वरः\
 > सर्वं तद्धिष्ण्यमीक्षध्वमेवं वस्तोषितो ह्यसौ ॥१३॥
 
-> antar deheṣu bhūtānām
-> ātmāste harir īśvaraḥ
-> sarvaṁ tad-dhiṣṇyam īkṣadhvam
+> antar deheṣu bhūtānām\
+> ātmāste harir īśvaraḥ\
+> sarvaṁ tad-dhiṣṇyam īkṣadhvam\
 > evaṁ vas toṣito hy asau
 
 *antaḥ deheṣu*—dentro de los cuerpos (en lo más profundo de los corazones); *bhūtānām*—de todas las entidades vivientes; *ātmā*—la Superalma; *āste*—reside; *hariḥ*—la Suprema Personalidad de Dios; *īśvaraḥ*—el Señor o director; *sarvam*—todos; *tat-dhiṣṇyam*—Su lugar de residencia; *īkṣadhvam*—traten de ver; *evam*—de este modo; *vaḥ*—con ustedes; *toṣitaḥ*—satisfecho; *hi*—en verdad; *asau*—esa Suprema Personalidad de Dios.

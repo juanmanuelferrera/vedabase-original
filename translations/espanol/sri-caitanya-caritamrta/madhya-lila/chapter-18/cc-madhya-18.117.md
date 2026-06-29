@@ -1,9 +1,9 @@
 ### CC Madhya 18.117
 
-> লোক কহে, — তোমাতে কভু নহে ‘জীব’-মতি  ।
+> লোক কহে, — তোমাতে কভু নহে ‘জীব’-মতি  ।\
 > কৃষ্ণের সদৃশ তোমার আকৃতি-প্রকৃতি ॥১১৭॥
 
-> loka kahe,--tomāte kabhu nahe jīva'-mati
+> loka kahe,--tomāte kabhu nahe jīva'-mati\
 > kṛṣṇera sadṛśa tomāra ākṛti-prakṛti
 
 *loka kahe*—la gente dijo; *tomāte*—a Ti; *kabhu*—en ningún momento; *nahe*—no hay; *jīva-mati*—consideración de entidad viviente ordinaria; *kṛṣṇera sadṛśa*—como el Señor Kṛṣṇa; *tomāra*—Tus; *ākṛti*—rasgos corporales; *prakṛti*—características.

@@ -1,9 +1,9 @@
 ### CC Adi 4.81
 
-> তার মধ্যে ব্রজে নানা ভাব-রস-ভেদে ।
+> তার মধ্যে ব্রজে নানা ভাব-রস-ভেদে ।\
 > কৃষ্ণকে করায় রাসাদিক-লীলাস্বাদে ॥৮১॥
 
-> tāra madhye vraje nānā bhāva-rasa-bhede
+> tāra madhye vraje nānā bhāva-rasa-bhede\
 > kṛṣṇake karāya rāsādika-līlāsvāde
 
 *tāra madhye*—entre ellas; *vraje*—en Vraja; *nānā*—diversos; *bhāva*—de estados de ánimo; *rasa*—y de sabores trascendentales; *bhede*—por las diferencias; *kṛṣṇake*—al Señor Kṛṣṇa; *karāya*—hacen; *rāsa-ādika*—comenzando por la danza del rāsa; *līlā*—de los pasatiempos; *āsvāde*—saborear.

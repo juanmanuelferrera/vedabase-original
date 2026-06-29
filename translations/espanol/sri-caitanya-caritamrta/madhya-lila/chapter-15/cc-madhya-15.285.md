@@ -1,9 +1,9 @@
 ### CC Madhya 15.285
 
-> অপরাধ’ নাহি, সদা লও কৃষ্ণনাম ।
+> অপরাধ’ নাহি, সদা লও কৃষ্ণনাম ।\
 > এত বলি’ প্রভু আইলা সার্বভৌম-স্থান ॥২৮৫॥
 
-> aparādha' nāhi, sadā lao kṛṣṇa-nāma
+> aparādha' nāhi, sadā lao kṛṣṇa-nāma\
 > eta bali' prabhu āilā sārvabhauma-sthāna
 
 *aparādha' nāhi*—no cometas ofensas; *sadā*—siempre; *lao*—canta; *kṛṣṇa-nāma*—el mahā-mantra Hare Kṛṣṇa; *eta bali'*—diciendo esto; *prabhu*—Śrī Caitanya Mahāprabhu; *āilā*—fue; *sārvabhauma-sthāna*—a la residencia de Sārvabhauma Bhaṭṭācārya.

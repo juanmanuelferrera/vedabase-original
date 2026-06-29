@@ -1,9 +1,9 @@
 ### CC Madhya 8.312
 
-> দামোদর-স্বরূপের কড়চা-অনুসারে ।
+> দামোদর-স্বরূপের কড়চা-অনুসারে ।\
 > রামানন্দ-মিলন-লীলা করিল প্রচারে ॥৩১২॥
 
-> dāmodara-svarūpera kaḍacā-anusāre
+> dāmodara-svarūpera kaḍacā-anusāre\
 > rāmānanda-milana-līlā karila pracāre
 
 *dāmodara-svarūpera*—of Svarūpa Dāmodara Gosvāmī; *kaḍacā*—with the notebooks; *anusāre*—in accordance; *rāmānanda-milana-līlā*—the pastimes of the meeting with Rāmānanda; *karila*—have done; *pracāre*—distribution.

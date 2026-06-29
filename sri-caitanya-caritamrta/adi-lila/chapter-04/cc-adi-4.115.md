@@ -1,9 +1,9 @@
 ### CC Adi 4.115
 
-> কৈশোর-বয়সে কাম, জগৎসকল ।
+> কৈশোর-বয়সে কাম, জগৎসকল ।\
 > রাসাদি-লীলায় তিন করিল সফল ॥১১৫॥
 
-> kaiśora-vayase kāma, jagat-sakala
+> kaiśora-vayase kāma, jagat-sakala\
 > rāsādi-līlāya tina karila saphala
 
 *kaiśora-vayase*—in the adolescent age; *kāma*—amorous love; *jagat-sakala*—the entire universe; *rāsa-ādi*—such as the *rāsa* dance; *līlāya*—by pastimes; *tina*—three; *karila*—made; *sa-phala*—successful.

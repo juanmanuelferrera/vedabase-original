@@ -1,9 +1,9 @@
 ### CC Madhya 19.8
 
-> দণ্ডবন্ধ লাগি’ চৌঠি সঞ্চয় করিলা ।
+> দণ্ডবন্ধ লাগি’ চৌঠি সঞ্চয় করিলা ।\
 > ভাল-ভাল বিপ্র-স্থানে স্থাপ্য রাখিলা ॥৮॥
 
-> daṇḍa-bandha lāgi' cauṭhi sañcaya karilā
+> daṇḍa-bandha lāgi' cauṭhi sañcaya karilā\
 > bhāla-bhāla vipra-sthāne sthāpya rākhilā
 
 *daṇḍa-bandha lāgi'*—in case of legal implications; *cauṭhi*—one-fourth; *sañcaya karilā*—he collected; *bhāla-bhāla*—very respectable; *vipra-sthāne*—in the custody of a *brāhmaṇa*; *sthāpya rākhilā*—kept deposited.

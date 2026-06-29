@@ -1,11 +1,11 @@
 ### SB 4.12.29
 
-> परीत्याभ्यर्च्य धिष्ण्याग्र्यं पार्षदावभिवन्द्य च ।
+> परीत्याभ्यर्च्य धिष्ण्याग्र्यं पार्षदावभिवन्द्य च ।\
 > इयेष तदधिष्ठातुं बिभ्रद्रूपं हिरण्मयम् ॥२९॥
 
-> parītyābhyarcya dhiṣṇyāgryaṁ
-> pārṣadāv abhivandya ca
-> iyeṣa tad adhiṣṭhātuṁ
+> parītyābhyarcya dhiṣṇyāgryaṁ\
+> pārṣadāv abhivandya ca\
+> iyeṣa tad adhiṣṭhātuṁ\
 > bibhrad rūpaṁ hiraṇmayam
 
 *parītya*—having circumambulated; *abhyarcya*—having worshiped; *dhiṣṇya-agryam*—the transcendental airplane; *pārṣadau*—unto the two associates; *abhivandya*—having offered obeisances; *ca*—also; *iyeṣa*—he attempted; *tat*—that plane; *adhiṣṭhātum*—to board; *bibhrat*—illuminating; *rūpam*—his form; *hiraṇmayam*—golden.

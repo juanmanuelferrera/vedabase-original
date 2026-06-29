@@ -1,9 +1,9 @@
 ### CC Madhya 20.48
 
-> ‘দ্বারেতে বৈষ্ণব নাহি’ — প্রভুরে কহিল ।
+> ‘দ্বারেতে বৈষ্ণব নাহি’ — প্রভুরে কহিল ।\
 > ‘কেহ হয়’ করি’ প্রভু তাহারে পুছিল ॥৪৮॥
 
-> 'dvārete vaiṣṇava nāhi'—prabhure kahila
+> 'dvārete vaiṣṇava nāhi'—prabhure kahila\
 > 'keha haya' kari' prabhu tāhāre puchila
 
 *dvārete*—at my door; *vaiṣṇava nāhi*—there is no Vaiṣṇava; *prabhure kahila*—he informed Śrī Caitanya Mahāprabhu; *keha haya*—is there anyone; *kari'*—in this way; *prabhu*—Śrī Caitanya Mahāprabhu; *tāhāre puchila*—inquired from him.

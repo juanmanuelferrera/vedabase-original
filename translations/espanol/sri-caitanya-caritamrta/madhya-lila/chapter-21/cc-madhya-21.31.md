@@ -1,9 +1,9 @@
 ### CC Madhya 21.31
 
-> ঐশ্বর্য কহিতে স্ফুরিল ঐশ্বর্য-সাগর ।
+> ঐশ্বর্য কহিতে স্ফুরিল ঐশ্বর্য-সাগর ।\
 > মনেন্দ্রিয় ডুবিলা, প্রভু হইলা ফাঁপর ॥৩১॥
 
-> aiśvarya kahite sphurila aiśvarya-sāgara
+> aiśvarya kahite sphurila aiśvarya-sāgara\
 > manendriya ḍubilā, prabhu ha-ilā phāṅpara
 
 *aiśvarya*—opulencia; *kahite*—al describir; *sphurila*—se manifestó; *aiśvarya-sāgara*—un océano de opulencia; *mana-indriya*—el sentido principal, es decir, la mente; *ḍubilā*—se sumergió; *prabhu*—Śrī Caitanya Mahāprabhu; *ha-ilā*—quedó; *phāṅpara*—perplejo.

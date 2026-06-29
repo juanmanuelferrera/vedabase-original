@@ -2,7 +2,7 @@
 
 > তথাপি আপন-গণে করিতে সাবধান ৷ বাহ্যে কিছু রোষাভাস কৈলা ভগবান্ ॥১৮৫॥
 
-> tathāpi āpana-gaṇe karite sāvadhāna
+> tathāpi āpana-gaṇe karite sāvadhāna\
 > bāhye kichu roṣābhāsa kailā bhagavān
 
 *tathāpi*—aun así; *āpana-gaṇe*—a Sus asociados personales; *karite*—hacer; *sāvadhāna*—una advertencia; *bāhye*—externamente; *kichu*—algo de; *roṣa-ābhāsa*—apariencia de enojo; *kailā*—mostró; *bhagavān*—la Suprema Personalidad de Dios.

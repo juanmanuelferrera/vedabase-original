@@ -1,13 +1,13 @@
 ### SB 3.9.25
 
-> सोऽसावदभ्रकरुणो भगवान्विवृद्ध
-> प्रेमस्मितेन नयनाम्बुरुहं विजृम्भन् ।
-> उत्थाय विश्वविजयाय च नो विषादं
+> सोऽसावदभ्रकरुणो भगवान्विवृद्ध\
+> प्रेमस्मितेन नयनाम्बुरुहं विजृम्भन् ।\
+> उत्थाय विश्वविजयाय च नो विषादं\
 > माध्व्या गिरापनयतात्पुरुषः पुराणः ॥२५॥
 
-> so 'sāv adabhra-karuṇo bhagavān vivṛddha-
-> prema-smitena nayanāmburuhaṁ vijṛmbhan
-> utthāya viśva-vijayāya ca no viṣādaṁ
+> so 'sāv adabhra-karuṇo bhagavān vivṛddha-\
+> prema-smitena nayanāmburuhaṁ vijṛmbhan\
+> utthāya viśva-vijayāya ca no viṣādaṁ\
 > mādhvyā girāpanayatāt puruṣaḥ purāṇaḥ
 
 *saḥ*—He (the Lord); *asau*—that; *adabhra*—unlimited; *karuṇaḥ*—merciful; *bhagavān*—the Personality of Godhead; *vivṛddha*—excessive; *prema*—love; *smitena*—by smiling; *nayana-amburuham*—the lotus eyes; *vijṛmbhan*—by opening; *utthāya*—for flourishing; *viśva-vijayāya*—for glorifying the cosmic creation; *ca*—as also; *naḥ*—our; *viṣādam*—dejection; *mādhvyā*—by sweet; *girā*—words; *apanayatāt*—let Him kindly remove; *puruṣaḥ*—the Supreme; *purāṇaḥ*—oldest.

@@ -1,13 +1,13 @@
 ### CC Antya 14.51
 
-> মন কৃষ্ণবিয়োগী, দুঃখে মন হৈল যোগী,
-> সে বিয়োগে দশ দশা হয় ।
-> সে দশায় ব্যাকুল হঞা, মন গেল পলাঞা,
+> মন কৃষ্ণবিয়োগী, দুঃখে মন হৈল যোগী,\
+> সে বিয়োগে দশ দশা হয় ।\
+> সে দশায় ব্যাকুল হঞা, মন গেল পলাঞা,\
 > শূন্য মোর শরীর আলয় ।।” ॥ ৫১ ॥
 
-> mana kṛṣṇa-viyogī, duḥkhe mana haila yogī,
-> se viyoge daśa daśā haya
-> se daśāya vyākula hañā, mana gela palāñā,
+> mana kṛṣṇa-viyogī, duḥkhe mana haila yogī,\
+> se viyoge daśa daśā haya\
+> se daśāya vyākula hañā, mana gela palāñā,\
 > śūnya mora śarīra ālaya"
 
 *mana*—la mente; *kṛṣṇa-viyogī*—privada de la asociación de Kṛṣṇa; *duḥkhe*—en la infelicidad; *mana*—la mente; *haila*—se volvió; *yogī*—un yogī místico; *se viyoge*—por ese sentimiento de separación; *daśa*—diez; *daśā*—transformaciones trascendentales; *haya*—hay; *se daśāya*—por esas transformaciones trascendentales; *vyākula hañā*—estando muy agitada; *mana*—la mente; *gela*—se fue; *palāñā*—huyendo; *śūnya*—vacío; *mora*—Mi; *śarīra*—cuerpo; *ālaya*—lugar de residencia.

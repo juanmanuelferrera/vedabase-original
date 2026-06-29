@@ -1,9 +1,9 @@
 ### CC Madhya 20.301
 
-> ব্রহ্মা, বিষ্ণু, শিব, — তিন গুণ অবতার ।
+> ব্রহ্মা, বিষ্ণু, শিব, — তিন গুণ অবতার ।\
 > ত্রিগুণ অঙ্গীকরি’ করে সৃষ্ট্যাদি-ব্যবহার ॥৩০১॥
 
-> brahmā, viṣṇu, śiva,--tina guṇa avatāra
+> brahmā, viṣṇu, śiva,--tina guṇa avatāra\
 > tri-guṇa aṅgīkari' kare sṛṣṭy-ādi-vyavahāra
 
 *brahmā, viṣṇu, śiva*—el Señor Brahmā, el Señor Viṣṇu y el Señor Śiva; *tina*—tres; *guṇa avatāra*—las encarnaciones de las cualidades materiales; *tri-guṇa*—las tres cualidades de la naturaleza material; *aṅgīkari'*—aceptando; *kare*—llevan a cabo; *sṛṣṭi-ādi-vyavahāra*—las actividades relacionadas con la creación, el mantenimiento y la disolución.

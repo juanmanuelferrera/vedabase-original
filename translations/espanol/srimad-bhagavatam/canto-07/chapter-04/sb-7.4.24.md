@@ -1,11 +1,11 @@
 ### SB 7.4.24
 
-> तेषामाविरभूद्वाणी अरूपा मेघनिःस्वना
+> तेषामाविरभूद्वाणी अरूपा मेघनिःस्वना\
 > सन्नादयन्ती ककुभः साधूनामभयङ्करी ॥२४॥
 
-> teṣām āvirabhūd vāṇī
-> arūpā megha-niḥsvanā
-> sannādayantī kakubhaḥ
+> teṣām āvirabhūd vāṇī\
+> arūpā megha-niḥsvanā\
+> sannādayantī kakubhaḥ\
 > sādhūnām abhayaṅkarī
 
 *teṣām*—frente a todos ellos; *āvirabhūt*—apareció; *vāṇī*—una voz; *arūpā*—sin forma; *megha-niḥsvanā*—resonante como el sonido de las nubes; *sannādayantī*—haciendo vibrar; *kakubhaḥ*—todas las direcciones; *sādhūnām*—de las personas santas; *abhayaṅkarī*—disipando la temible situación.

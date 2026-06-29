@@ -1,9 +1,9 @@
 ### CC Adi 7.87
 
-> প্রেমার স্বভাবে করে চিত্ত-তনু ক্ষোভ ।
+> প্রেমার স্বভাবে করে চিত্ত-তনু ক্ষোভ ।\
 > কৃষ্ণের চরণ-প্রাপ্ত্যে উপজায় লোভ ॥৮৭॥
 
-> premāra svabhāve kare citta-tanu kṣobha
+> premāra svabhāve kare citta-tanu kṣobha\
 > kṛṣṇera caraṇa-prāptye upajāya lobha
 
 *premāra*—out of love of Godhead; *svabhāve*—by nature; *kare*—it induces; *citta*—the consciousness; *tanu*—the body; *kṣobha*—agitated; *kṛṣṇera*—of Lord Kṛṣṇa; *caraṇa*—lotus feet; *prāptye*—to obtain; *upajāya*—it so becomes; *lobha*—aspiration.

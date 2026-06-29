@@ -1,9 +1,9 @@
 ### CC Madhya 1.71
 
-> স্বরূপে পুছেন প্রভু হইয়া বিস্মিতে ।
+> স্বরূপে পুছেন প্রভু হইয়া বিস্মিতে ।\
 > মোর মনের কথা রূপ জানিল কেমতে ॥৭১॥
 
-> svarūpe puchena prabhu ha-iyā vismite
+> svarūpe puchena prabhu ha-iyā vismite\
 > mora manera kathā rūpa jānila kemate
 
 *svarūpe*—unto Svarūpa Gosvāmī; *puchena*—inquired; *prabhu*—the Lord; *ha-iyā*—becoming; *vismite*—struck with wonder; *mora*—My; *manera*—of the mind; *kathā*—intention; *rūpa*—Rūpa Gosvāmī; *jānila*—understand; *kemate*—how.

@@ -1,18 +1,18 @@
 ### SB 7.4.22-23
 
-> तस्यै नमोऽस्तु काष्ठायै यत्रात्मा हरिरीश्वरः
-> यद्गत्वा न निवर्तन्ते शान्ताः सन्न्यासिनोऽमलाः ॥२२॥
-> इति ते संयतात्मानः समाहितधियोऽमलाः
+> तस्यै नमोऽस्तु काष्ठायै यत्रात्मा हरिरीश्वरः\
+> यद्गत्वा न निवर्तन्ते शान्ताः सन्न्यासिनोऽमलाः ॥२२॥\
+> इति ते संयतात्मानः समाहितधियोऽमलाः\
 > उपतस्थुर्हृषीकेशं विनिद्रा वायुभोजनाः ॥२३॥
 
-> tasyai namo 'stu kāṣṭhāyai
-> yatrātmā harir īśvaraḥ
-> yad gatvā na nivartante
+> tasyai namo 'stu kāṣṭhāyai\
+> yatrātmā harir īśvaraḥ\
+> yad gatvā na nivartante\
 > śāntāḥ sannyāsino 'malāḥ
 
-> iti te saṁyatātmānaḥ
-> samāhita-dhiyo 'malāḥ
-> upatasthur hṛṣīkeśaṁ
+> iti te saṁyatātmānaḥ\
+> samāhita-dhiyo 'malāḥ\
+> upatasthur hṛṣīkeśaṁ\
 > vinidrā vāyu-bhojanāḥ
 
 *tasyai*—unto that; *namaḥ*—our respectful obeisances; *astu*—let there be; *kāṣṭhāyai*—direction; *yatra*—wherein; *ātmā*—the Supersoul; *hariḥ*—the Supreme Personality of Godhead; *īśvaraḥ*—the supreme controller; *yat*—which; *gatvā*—approaching; *na*—never; *nivartante*—return; *śāntāḥ*—peaceful; *sannyāsinaḥ*—saintly persons in the renounced order of life; *amalāḥ*—pure; *iti*—thus; *te*—they; *saṁyata-ātmānaḥ*—having controlled minds; *samāhita*—steadied; *dhiyaḥ*—intelligences; *amalāḥ*—purified; *upatasthuḥ*—worshiped; *hṛṣīkeśam*—the master of the senses; *vinidrāḥ*—without sleeping; *vāyu-bhojanāḥ*—eating only air.

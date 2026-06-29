@@ -1,11 +1,11 @@
 ### SB 3.4.12
 
-> स एष साधो चरमो भवानामासादितस्ते मदनुग्रहो यत् ।
+> स एष साधो चरमो भवानामासादितस्ते मदनुग्रहो यत् ।\
 > यन्मां नृलोकान्रह उत्सृजन्तं दिष्ट्या ददृश्वान्विशदानुवृत्त्या ॥१२॥
 
-> sa eṣa sādho caramo bhavānām
-> āsāditas te mad-anugraho yat
-> yan māṁ nṛlokān raha utsṛjantaṁ
+> sa eṣa sādho caramo bhavānām\
+> āsāditas te mad-anugraho yat\
+> yan māṁ nṛlokān raha utsṛjantaṁ\
 > diṣṭyā dadṛśvān viśadānuvṛttyā
 
 *saḥ*—esa; *eṣaḥ*—de aquellas; *sādho*—¡oh, tú, el honesto!; *caramaḥ*—la última; *bhavānām*—de todas tus encarnaciones (como Vasu); *āsāditaḥ*—ahora logrado; *te*—a ti; *mat*—Mi; *anugrahaḥ*—misericordia; *yat*—tal y como es; *yat*—debido a; *mām*—a Mí; *nṛ-lokān*—los planetas de las almas condicionadas; *rahaḥ*—recluido; *utsṛjantam*—mientras abandonas; *diṣṭyā*—viendo; *dadṛśvān*—lo que tú has visto; *viśada-anuvṛttyā*—mediante devoción resuelta.

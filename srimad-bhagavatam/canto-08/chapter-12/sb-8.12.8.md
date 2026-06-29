@@ -1,13 +1,13 @@
 ### SB 8.12.8
 
-> एकस्त्वमेव सदसद्द्वयमद्वयं च
-> स्वर्णं कृताकृतमिवेह न वस्तुभेदः
-> अज्ञआनतस्त्वयि जनैर्विहितो विकल्पो
+> एकस्त्वमेव सदसद्द्वयमद्वयं च\
+> स्वर्णं कृताकृतमिवेह न वस्तुभेदः\
+> अज्ञआनतस्त्वयि जनैर्विहितो विकल्पो\
 > यस्माद्गुणव्यतिकरो निरुपाधिकस्य ॥८॥
 
-> ekas tvam eva sad asad dvayam advayaṁ ca
-> svarṇaṁ kṛtākṛtam iveha na vastu-bhedaḥ
-> ajñānatas tvayi janair vihito vikalpo
+> ekas tvam eva sad asad dvayam advayaṁ ca\
+> svarṇaṁ kṛtākṛtam iveha na vastu-bhedaḥ\
+> ajñānatas tvayi janair vihito vikalpo\
 > yasmād guṇa-vyatikaro nirupādhikasya
 
 *ekaḥ*—the only one; *tvam*—Your Lordship; *eva*—indeed; *sat*—which is existing, as the effect; *asat*—which is nonexistent, as the cause; *dvayam*—both of them; *advayam*—without duality; *ca*—and; *svarṇam*—gold; *kṛta*—manufactured into different forms; *ākṛtam*—the original source of gold (the gold mine); *iva*—like; *iha*—in this world; *na*—not; *vastu-bhedaḥ*—difference in the substance; *ajñānataḥ*—only because of ignorance; *tvayi*—unto You; *janaiḥ*—by the general mass of people; *vihitaḥ*—it should be done; *vikalpaḥ*—differentiation; *yasmāt*—because of; *guṇa-vyatikaraḥ*—free from the differences created by the material modes of nature; *nirupādhikasya*—without any material designation.

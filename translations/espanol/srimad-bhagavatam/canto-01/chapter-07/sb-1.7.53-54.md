@@ -1,20 +1,20 @@
 ### SB 1.7.53-54
 
-> श्रीभगवानुवाच
-> ब्रह्मबन्धुर्न हन्तव्य आततायी वधार्हणः ।
-> मयैवोभयमाम्नातं परिपाह्यनुशासनम् ॥५३॥
-> कुरु प्रतिश्रुतं सत्यं यत्तत्सान्त्वयता प्रियाम् ।
+> श्रीभगवानुवाच\
+> ब्रह्मबन्धुर्न हन्तव्य आततायी वधार्हणः ।\
+> मयैवोभयमाम्नातं परिपाह्यनुशासनम् ॥५३॥\
+> कुरु प्रतिश्रुतं सत्यं यत्तत्सान्त्वयता प्रियाम् ।\
 > प्रियं च भीमसेनस्य पाञ्चाल्या मह्यमेव च ॥५४॥
 
-> śrī-bhagavān uvāca
-> brahma-bandhur na hantavya
-> ātatāyī vadhārhaṇaḥ
-> mayaivobhayam āmnātaṁ
+> śrī-bhagavān uvāca\
+> brahma-bandhur na hantavya\
+> ātatāyī vadhārhaṇaḥ\
+> mayaivobhayam āmnātaṁ\
 > paripāhy anuśāsanam
 
-> kuru pratiśrutaṁ satyaṁ
-> yat tat sāntvayatā priyām
-> priyaṁ ca bhīmasenasya
+> kuru pratiśrutaṁ satyaṁ\
+> yat tat sāntvayatā priyām\
+> priyaṁ ca bhīmasenasya\
 > pāñcālyā mahyam eva ca
 
 *śrī-bhagavān*—la Personalidad de Dios; *uvāca*—dijo; *brahma-bandhuḥ*—el pariente de un *brāhmaṇa*; *na*—no; *hantavyaḥ*—ser matado; *ātatāyī*—el agresor; *vadha-arhaṇaḥ*—debe ser matado; *mayā*—por Mí; *eva*—indudablemente; *ubhayam*—ambos; *āmnātam*—descrito conforme al veredicto de la autoridad; *paripāhi*—ejecuta; *anuśāsanam*—veredictos; *kuru*—acata; *pratiśrutam*—como lo prometió; *satyam*—verdad; *yat tat*—aquello que; *sāntvayatā*—mientras apaciguaba; *priyām*—querida esposa; *priyam*—satisfacción; *ca*—también; *bhīmasenasya*—de Śrī Bhīmasena; *pāñcālyāḥ*—de Draupadī; *mahyam*—a Mí también; *eva*—indudablemente; *ca*—y.

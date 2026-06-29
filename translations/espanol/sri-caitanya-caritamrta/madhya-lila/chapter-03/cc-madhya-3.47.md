@@ -1,9 +1,9 @@
 ### CC Madhya 3.47
 
-> কোমল নিম্বপত্র সহ ভাজা বার্তাকী ।
+> কোমল নিম্বপত্র সহ ভাজা বার্তাকী ।\
 > পটোল-ফুলবড়ি-ভাজা, কুষ্মাণ্ড-মানচাকি ॥৪৭॥
 
-> komala nimba-patra saha bhājā vārtākī
+> komala nimba-patra saha bhājā vārtākī\
 > paṭola-phula-baḍi-bhājā, kuṣmāṇḍa-mānacāki
 
 *komala*—recién brotadas; *nimba-patra*—hojas de *nimba*; *saha*—con; *bhājā*—fritas; *vārtākī*—berenjena; *paṭola*—con la fruta *paṭola*; *phula-baḍi*—una preparación de dāl; *bhājā*—frita; *kuṣmāṇḍa*—calabazas; *mānacāki*—la comida llamada *mānacāki*.

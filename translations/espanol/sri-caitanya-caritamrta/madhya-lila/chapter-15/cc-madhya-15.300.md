@@ -1,9 +1,9 @@
 ### CC Madhya 15.300
 
-> ষাঠীর মাতার প্রেম, আর প্রভুর প্রসাদ ।
+> ষাঠীর মাতার প্রেম, আর প্রভুর প্রসাদ ।\
 > ভক্ত-সম্বন্ধে যাহা ক্ষমিল অপরাধ ॥৩০০॥
 
-> ṣāṭhīra mātāra prema, āra prabhura prasāda
+> ṣāṭhīra mātāra prema, āra prabhura prasāda\
 > bhakta-sambandhe yāhā kṣamila aparādha
 
 *ṣāṭhīra mātāra prema*—el amor de la madre de Ṣāṭhī; *āra*—y; *prabhura prasāda*—la misericordia de Śrī Caitanya Mahāprabhu; *bhakta-sambandhe*—por tener relación con un devoto; *yāhā*—donde; *kṣamila aparādha*—Śrī Caitanya Mahāprabhu perdonó la ofensa.

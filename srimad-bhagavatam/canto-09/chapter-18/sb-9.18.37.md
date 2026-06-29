@@ -1,13 +1,13 @@
 ### SB 9.18.37
 
-> श्रीययातिरुवाच
-> अतृप्तोऽस्म्यद्य कामानां ब्रह्मन्दुहितरि स्म ते
+> श्रीययातिरुवाच\
+> अतृप्तोऽस्म्यद्य कामानां ब्रह्मन्दुहितरि स्म ते\
 > व्यत्यस्यतां यथाकामं वयसा योऽभिधास्यति ॥३७॥
 
-> śrī-yayātir uvāca
-> atṛpto 'smy adya kāmānāṁ
-> brahman duhitari sma te
-> vyatyasyatāṁ yathā-kāmaṁ
+> śrī-yayātir uvāca\
+> atṛpto 'smy adya kāmānāṁ\
+> brahman duhitari sma te\
+> vyatyasyatāṁ yathā-kāmaṁ\
 > vayasā yo 'bhidhāsyati
 
 *śrī-yayātiḥ uvāca*—King Yayāti said; *atṛptaḥ*—unsatisfied; *asmi*—I am; *adya*—till now; *kāmānām*—to satisfy my lusty desires; *brahman*—O learned *brāhmaṇa*; *duhitari*—in connection with the daughter; *sma*—in the past; *te*—your; *vyatyasyatām*—just exchange; *yathā-kāmam*—as long as you are lusty; *vayasā*—with youth; *yaḥ abhidhāsyati*—of one who agrees to exchange your old age for his youth.

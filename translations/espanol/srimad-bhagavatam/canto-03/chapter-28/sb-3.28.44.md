@@ -1,11 +1,11 @@
 ### SB 3.28.44
 
-> तस्मादिमां स्वां प्रकृतिं दैवीं सदसदात्मिकाम् ।
+> तस्मादिमां स्वां प्रकृतिं दैवीं सदसदात्मिकाम् ।\
 > दुर्विभाव्यां पराभाव्य स्वरूपेणावतिष्ठते ॥४४॥
 
-> tasmād imāṁ svāṁ prakṛtiṁ
-> daivīṁ sad-asad-ātmikām
-> durvibhāvyāṁ parābhāvya
+> tasmād imāṁ svāṁ prakṛtiṁ\
+> daivīṁ sad-asad-ātmikām\
+> durvibhāvyāṁ parābhāvya\
 > svarūpeṇāvatiṣṭhate
 
 *tasmāt*—de este modo; *imām*—esta; *svām*—propia; *prakṛtim*—energía material; *daivīm*—divina; *sat-asat-ātmikām*—que consiste en causa y efecto; *durvibhāvyām*—difícil de entender; *parābhāvya*—tras conquistar; *sva-rūpeṇa*—en la autorrealización; *avatiṣṭhate*—permanece.

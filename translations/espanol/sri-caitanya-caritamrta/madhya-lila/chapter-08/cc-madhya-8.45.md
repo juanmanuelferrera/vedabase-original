@@ -1,9 +1,9 @@
 ### CC Madhya 8.45
 
-> অন্যের কি কথা, আমি — ‘মায়াবাদী সন্ন্যাসী’ ৷
+> অন্যের কি কথা, আমি — ‘মায়াবাদী সন্ন্যাসী’ ৷\
 > আমিহ তোমার স্পর্শে কৃষ্ণ-প্রেমে ভাসি ৷৷ ৪৫ ৷৷ ॥৪৫॥
 
-> anyera ki kathā, āmi--'māyāvādī sannyāsī'
+> anyera ki kathā, āmi--'māyāvādī sannyāsī'\
 > āmiha tomāra sparśe kṛṣṇa-preme bhāsi
 
 *anyera*—de otros; *ki kathā*—qué decir; *āmi*—Yo; *māyāvādī sannyāsī*—un *sannyāsī* de la secta māyāvādī; *āmiha*—Yo; *tomāra*—de ti; *sparśe*—por el contacto; *kṛṣṇa*—de Kṛṣṇa; *preme*—en amor; *bhāsi*—floto.

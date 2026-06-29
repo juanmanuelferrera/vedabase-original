@@ -1,9 +1,9 @@
 ### CC Madhya 9.69
 
-> বিষ্ণুকাঞ্চী আসি’ দেখিল লক্ষ্মী-নারায়ণ ।
+> বিষ্ণুকাঞ্চী আসি’ দেখিল লক্ষ্মী-নারায়ণ ।\
 > প্রণাম করিয়া কৈল বহুত স্তবন ॥৬৯॥
 
-> viṣṇu-kāñcī āsi' dekhila lakṣmī-nārāyaṇa
+> viṣṇu-kāñcī āsi' dekhila lakṣmī-nārāyaṇa\
 > praṇāma kariyā kaila bahuta stavana
 
 *viṣṇu-kāñcī*—to the holy place named Viṣṇu-kāñcī; *āsi'*—coming; *dekhila*—the Lord saw; *lakṣmī-nārāyaṇa*—the Deity of Lord Nārāyaṇa with mother Lakṣmī, the goddess of fortune; *praṇāma kariyā*—after offering obeisances; *kaila*—made; *bahutastavana*—many prayers.

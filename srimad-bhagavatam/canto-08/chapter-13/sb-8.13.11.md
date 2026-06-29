@@ -1,11 +1,11 @@
 ### SB 8.13.11
 
-> अष्टमेऽन्तर आयाते सावर्णिर्भविता मनुः
+> अष्टमेऽन्तर आयाते सावर्णिर्भविता मनुः\
 > निर्मोकविरजस्काद्याः सावर्णितनया नृप ॥११॥
 
-> aṣṭame 'ntara āyāte
-> sāvarṇir bhavitā manuḥ
-> nirmoka-virajaskādyāḥ
+> aṣṭame 'ntara āyāte\
+> sāvarṇir bhavitā manuḥ\
+> nirmoka-virajaskādyāḥ\
 > sāvarṇi-tanayā nṛpa
 
 *aṣṭame*—the eighth; *antare*—Manu's period; *āyāte*—when arrived; *sāvarṇiḥ*—Sāvarṇi; *bhavitā*—will become; *manuḥ*—the eighth Manu; *nirmoka*—Nirmoka; *virajaska-ādyāḥ*—Virajaska and others; *sāvarṇi*—of Sāvarṇi; *tanayāḥ*—the sons; *nṛpa*—O King.

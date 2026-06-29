@@ -1,11 +1,11 @@
 ### SB 7.13.29
 
-> देहादिभिर्दैवतन्त्रैरात्मनः सुखमीहतः
+> देहादिभिर्दैवतन्त्रैरात्मनः सुखमीहतः\
 > दुःखात्ययं चानीशस्य क्रिया मोघाः कृताः कृताः ॥२९॥
 
-> jalaṁ tad-udbhavaiś channaṁ
-> hitvājño jala-kāmyayā
-> mṛgatṛṣṇām upādhāvet
+> jalaṁ tad-udbhavaiś channaṁ\
+> hitvājño jala-kāmyayā\
+> mṛgatṛṣṇām upādhāvet\
 > tathānyatrārtha-dṛk svataḥ
 
 *jalam*—agua; *tat-udbhavaiḥ*—por las hierbas que han crecido dentro del agua; *channam*—cubierta; *hitvā*—abandonar; *ajñaḥ*—un animal necio; *jala-kāmyayā*—deseoso de beber agua; *mṛgatṛṣṇām*—un espejismo; *upādhāvet*—corre tras; *tathā*—de manera similar; *anyatra*—hacia otro lugar; *artha-dṛk*—con intereses personales; *svataḥ*—en sí mismo.

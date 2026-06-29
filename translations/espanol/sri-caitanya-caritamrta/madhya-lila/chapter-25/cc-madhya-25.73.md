@@ -1,9 +1,9 @@
 ### CC Madhya 25.73
 
-> শ্রেষ্ঠ হঞা কেনে কর হীনের বন্দন ।
+> শ্রেষ্ঠ হঞা কেনে কর হীনের বন্দন ।\
 > আমার সর্বনাশ হয়, তুমি ব্ৰহ্ম-সম ॥৭৩॥
 
-> śreṣṭha hañā kene kara hīnera vandana
+> śreṣṭha hañā kene kara hīnera vandana\
 > āmāra sarva-nāśa haya, tumi brahma-sama
 
 *śreṣṭha hañā*—siendo una persona más honorable; *kene*—¿por qué?; *kara*—haces; *hīnera*—de una persona inferior; *vandana*—adoración; *āmāra sarva-nāśa haya*—Mi potencia se reduce; *tumi brahma-sama*—tú eres igual al Brahman impersonal.

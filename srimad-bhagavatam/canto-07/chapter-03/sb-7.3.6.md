@@ -1,13 +1,13 @@
 ### SB 7.3.6
 
-> तेन तप्ता दिवं त्यक्त्वा ब्रह्मलोकं ययुः सुराः
+> तेन तप्ता दिवं त्यक्त्वा ब्रह्मलोकं ययुः सुराः\
 > धात्रे विज्ञआपयामासुर्देवदेव जगत्पते ॥६॥
 
-> tena taptā divaṁ tyaktvā
-> brahmalokaṁ yayuḥ surāḥ
-> dhātre vijñāpayām āsur
-> deva-deva jagat-pate
-> daityendra-tapasā taptā
+> tena taptā divaṁ tyaktvā\
+> brahmalokaṁ yayuḥ surāḥ\
+> dhātre vijñāpayām āsur\
+> deva-deva jagat-pate\
+> daityendra-tapasā taptā\
 > divi sthātuṁ na śaknumaḥ
 
 *tena*—by that (fire of austerity); *taptāḥ*—burned; *divam*—their residential quarters in the upper planets; *tyaktvā*—giving up; *brahma-lokam*—to the planet where Lord Brahmā lives; *yayuḥ*—went; *surāḥ*—the demigods; *dhātre*—unto the chief of this universe, Lord Brahmā; *vijñāpayām āsuḥ*—submitted; *deva-deva*—O chief of the demigods; *jagat-pate*—O master of the universe; *daitya-indra-tapasā*—by the severe austerity performed by the King of the Daityas, Hiraṇyakaśipu; *taptāḥ*—roasted; *divi*—on the heavenly planets; *sthātum*—to stay; *na*—not; *śaknumaḥ*—we are able.

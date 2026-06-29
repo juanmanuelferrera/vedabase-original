@@ -1,11 +1,11 @@
 ### SB 4.27.21
 
-> कदाचिदटमाना सा ब्रह्मलोकान्महीं गतम् ।
+> कदाचिदटमाना सा ब्रह्मलोकान्महीं गतम् ।\
 > वव्रे बृहद्व्रतं मां तु जानती काममोहिता ॥२१॥
 
-> kadācid aṭamānā sā
-> brahma-lokān mahīṁ gatam
-> vavre bṛhad-vrataṁ māṁ tu
+> kadācid aṭamānā sā\
+> brahma-lokān mahīṁ gatam\
+> vavre bṛhad-vrataṁ māṁ tu\
 > jānatī kāma-mohitā
 
 *kadācit*—en cierta ocasión; *aṭamānā*—viajar; *sā*—ella; *brahma-lokāt*—desde Brahmaloka, el planeta más elevado; *mahīm*—a la Tierra; *gatam*—haber venido; *vavre*—ella propuso; *bṛhat-vratam*—con voto de *brahmacārī*; *mām*—a mí; *tu*—entonces; *jānatī*—saber; *kāma-mohitā*—bajo la ilusión de la lujuria.

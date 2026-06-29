@@ -1,11 +1,11 @@
 ### SB 3.5.49
 
-> यावद्बलिं तेऽज हराम काले यथा वयं चान्नमदाम यत्र ।
+> यावद्बलिं तेऽज हराम काले यथा वयं चान्नमदाम यत्र ।\
 > यथोभयेषां त इमे हि लोका बलिं हरन्तोऽन्नमदन्त्यनूहाः ॥४९॥
 
-> yāvad baliṁ te 'ja harāma kāle
-> yathā vayaṁ cānnam adāma yatra
-> yathobhayeṣāṁ ta ime hi lokā
+> yāvad baliṁ te 'ja harāma kāle\
+> yathā vayaṁ cānnam adāma yatra\
+> yathobhayeṣāṁ ta ime hi lokā\
 > baliṁ haranto 'nnam adanty anūhāḥ
 
 *yāvat*—as it may be; *balim*—offerings; *te*—Your; *aja*—O unborn one; *harāma*—shall offer; *kāle*—at the right time; *yathā*—as much as; *vayam*—we; *ca*—also; *annam*—food grains; *adāma*—shall partake; *yatra*—whereupon; *yathā*—as much as; *ubhayeṣām*—both for You and for us; *te*—all; *ime*—these; *hi*—certainly; *lokāḥ*—living entities; *balim*—offerings; *harantaḥ*—while offering; *annam*—grains; *adanti*—eat; *anūhāḥ*—without disturbance.

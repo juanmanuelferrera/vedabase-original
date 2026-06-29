@@ -1,9 +1,9 @@
 ### CC Madhya 3.123
 
-> অশ্রু, কম্প, পুলক, স্বেদ, গদ্গদ বচন ।
+> অশ্রু, কম্প, পুলক, স্বেদ, গদ্গদ বচন ।\
 > ক্ষণে উঠে, ক্ষণে পড়ে, ক্ষণেক রোদন ॥১২৩॥
 
-> aśru, kampa, pulaka, sveda, gadgada vacana
+> aśru, kampa, pulaka, sveda, gadgada vacana\
 > kṣaṇe uṭhe, kṣaṇe paḍe, kṣaṇeka rodana
 
 *aśru*—lágrimas; *kampa*—temblor; *pulaka*—erizamiento del vello corporal en éxtasis; *sveda*—transpiración; *gadgada*—entrecortadas; *vacana*—palabras; *kṣaṇe*—a veces; *uṭhe*—se pone de pie; *kṣaṇe*—a veces; *paḍe*—cae; *kṣaṇeka*—a veces; *rodana*—llanto.

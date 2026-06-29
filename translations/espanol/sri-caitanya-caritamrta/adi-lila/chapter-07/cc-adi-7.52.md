@@ -1,9 +1,9 @@
 ### CC Adi 7.52
 
-> ইহা শুনি রহে প্রভু ঈষত্ হাসিয়া ।
+> ইহা শুনি রহে প্রভু ঈষত্ হাসিয়া ।\
 > সেই কালে এক বিপ্র মিলিল আসিয়া ॥৫২॥
 
-> ihā śuni rahe prabhu īṣat hāsiyā
+> ihā śuni rahe prabhu īṣat hāsiyā\
 > sei kāle eka vipra milila āsiyā
 
 *ihā*—esto; *śuni*—oyendo; *rahe*—permaneció; *prabhu*—el Señor Caitanya Mahāprabhu; *īṣat*—levemente; *hāsiyā*—sonriendo; *sei kāle*—en aquel momento; *eka*—un; *vipra*—*brāhmaṇa*; *milila*—se encontró; *āsiyā*—acudiendo allí.

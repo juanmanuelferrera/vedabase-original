@@ -1,9 +1,9 @@
 ### CC Antya 4.224
 
-> ‘উজ্জ্বলনীলমণি’-নাম গ্রন্থ কৈল আর  ।
+> ‘উজ্জ্বলনীলমণি’-নাম গ্রন্থ কৈল আর  ।\
 > রাধাকৃষ্ণ-লীলারস তাহাঁ পাইয়ে পার ॥২২৪॥
 
-> 'ujjvala-nīlamaṇi'-nāma grantha kaila āra
+> 'ujjvala-nīlamaṇi'-nāma grantha kaila āra\
 > rādhā-kṛṣṇa-līlā-rasa tāhāṅ pāiye pāra
 
 *ujjvala-nīla-maṇi*—Ujjvala-nīlamaṇi; *nāma*—de nombre; *grantha*—escritura; *kaila*—compiló; *āra*—también; *rādhā-kṛṣṇa-līlā-rasa*—la melosidad trascendental de los pasatiempos de Rādhā y Kṛṣṇa; *tāhāṅ*—allí; *pāiye*—obtenemos; *pāra*—el límite extremo.

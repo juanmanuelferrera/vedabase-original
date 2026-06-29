@@ -1,11 +1,11 @@
 ### SB 2.3.14
 
-> एतच्छुश्रूषतां विद्वन्सूत नोऽर्हसि भाषितुम् ।
+> एतच्छुश्रूषतां विद्वन्सूत नोऽर्हसि भाषितुम् ।\
 > कथा हरिकथोदर्काः सतां स्युः सदसि ध्रुवम् ॥१४॥
 
-> etac chuśrūṣatāṁ vidvan
-> sūta no 'rhasi bhāṣitum
-> kathā hari-kathodarkāḥ
+> etac chuśrūṣatāṁ vidvan\
+> sūta no 'rhasi bhāṣitum\
+> kathā hari-kathodarkāḥ\
 > satāṁ syuḥ sadasi dhruvam
 
 *etat*—esto; *śuśrūṣatām*—de aquellos que están ansiosos de oír; *vidvan*—¡oh, eruditos!; *sūta*—Sūta Gosvāmī; *naḥ*—a nosotros; *arhasi*—que lo hagas; *bhāṣitum*—solo para explicarlo; *kathāḥ*—temas; *hari-kathā-udarkāḥ*—que da como resultado los temas acerca del Señor; *satām*—de los devotos; *syuḥ*—pueda ser; *sadasi*—en la asamblea de; *dhruvam*—ciertamente.

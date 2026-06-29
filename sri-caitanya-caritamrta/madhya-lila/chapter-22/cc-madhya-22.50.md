@@ -1,11 +1,11 @@
 ### CC Madhya 22.50
 
-> যদৃচ্ছয়া মৎকথাদৌ জাতশ্রদ্ধস্তু যঃ পুমান্ ।
+> যদৃচ্ছয়া মৎকথাদৌ জাতশ্রদ্ধস্তু যঃ পুমান্ ।\
 > ন নির্বিণ্ণো নাতিসক্তো ভক্তিযোগোঽস্য সিদ্ধিদঃ ॥৫০॥
 
-> yadṛcchayā mat-kathādau
-> jāta-śraddhas tu yaḥ pumān
-> na nirviṇṇo nātisakto
+> yadṛcchayā mat-kathādau\
+> jāta-śraddhas tu yaḥ pumān\
+> na nirviṇṇo nātisakto\
 > bhakti-yogo 'sya siddhidaḥ
 
 *yadṛcchayā*—by some good fortune; *mat-kathā-ādau*—in talk about Me; *jāta-śraddhaḥ*—has awakened his attraction; *tu*—but; *yaḥ pumān*—a person who; *na nirviṇṇaḥ*—not falsely detached; *na atisaktaḥ*—not attached to material existence; *bhakti-yogaḥ*—the process of devotional service; *asya*—for such a person; *siddhi-daḥ*—bestowing perfection.

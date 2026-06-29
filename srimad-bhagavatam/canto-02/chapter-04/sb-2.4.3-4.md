@@ -1,18 +1,18 @@
 ### SB 2.4.3-4
 
-> पप्रच्छ चेममेवार्थं यन्मां पृच्छथ सत्तमाः ।
-> कृष्णानुभावश्रवणे श्रद्दधानो महामनाः ॥३॥
-> संस्थां विज्ञाय सन्न्यस्य कर्म त्रैवर्गिकं च यत् ।
+> पप्रच्छ चेममेवार्थं यन्मां पृच्छथ सत्तमाः ।\
+> कृष्णानुभावश्रवणे श्रद्दधानो महामनाः ॥३॥\
+> संस्थां विज्ञाय सन्न्यस्य कर्म त्रैवर्गिकं च यत् ।\
 > वासुदेवे भगवति आत्मभावं दृढं गतः ॥४॥
 
-> papraccha cemam evārthaṁ
-> yan māṁ pṛcchatha sattamāḥ
-> kṛṣṇānubhāva-śravaṇe
+> papraccha cemam evārthaṁ\
+> yan māṁ pṛcchatha sattamāḥ\
+> kṛṣṇānubhāva-śravaṇe\
 > śraddadhāno mahā-manāḥ
 
-> saṁsthāṁ vijñāya sannyasya
-> karma trai-vargikaṁ ca yat
-> vāsudeve bhagavati
+> saṁsthāṁ vijñāya sannyasya\
+> karma trai-vargikaṁ ca yat\
+> vāsudeve bhagavati\
 > ātma-bhāvaṁ dṛḍhaṁ gataḥ
 
 *papraccha*—asked; *ca*—also; *imam*—this; *eva*—exactly like; *artham*—purpose; *yat*—that; *mām*—unto me; *pṛcchatha*—you are asking; *sattamāḥ*—O great sages; *kṛṣṇa-anubhāva*—rapt in thought of Kṛṣṇa; *śravaṇe*—in hearing; *śraddadhānaḥ*—full of faith; *mahā-manāḥ*—the great soul; *saṁsthām*—death; *vijñāya*—being informed; *sannyasya*—renouncing; *karma*—fruitive activities; *trai-vargikam*—the three principles religion, economic development and sense gratification; *ca*—also; *yat*—what it may be; *vāsudeve*—unto Lord Kṛṣṇa; *bhagavati*—the Personality of Godhead; *ātma-bhāvam*—attraction of love; *dṛḍham*—firmly fixed; *gataḥ*—achieved.

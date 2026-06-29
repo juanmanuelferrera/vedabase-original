@@ -1,11 +1,11 @@
 ### SB 1.5.18
 
-> तस्यैव हेतोः प्रयतेत कोविदो न लभ्यते यद्भ्रमतामुपर्यधः ।
+> तस्यैव हेतोः प्रयतेत कोविदो न लभ्यते यद्भ्रमतामुपर्यधः ।\
 > तल्लभ्यते दुःखवदन्यतः सुखं कालेन सर्वत्र गभीररंहसा ॥१८॥
 
-> tasyaiva hetoḥ prayateta kovido
-> na labhyate yad bhramatām upary adhaḥ
-> tal labhyate duḥkhavad anyataḥ sukhaṁ
+> tasyaiva hetoḥ prayateta kovido\
+> na labhyate yad bhramatām upary adhaḥ\
+> tal labhyate duḥkhavad anyataḥ sukhaṁ\
 > kālena sarvatra gabhīra-raṁhasā
 
 *tasya*—for that purpose; *eva*—only; *hetoḥ*—reason; *prayateta*—should endeavor; *kovidaḥ*—one who is philosophically inclined; *na labhyate*—is not obtained; *yat*—what; *bhramatām*—wandering; *upari adhaḥ*—from top to bottom; *tat*—that; *labhyate*—can be obtained; *duḥkhavat*—like the miseries; *anyataḥ*—as a result of previous work; *sukham*—sense enjoyment; *kālena*—in course of time; *sarvatra*—everywhere; *gabhīra*—subtle; *raṁhasā*—progress.

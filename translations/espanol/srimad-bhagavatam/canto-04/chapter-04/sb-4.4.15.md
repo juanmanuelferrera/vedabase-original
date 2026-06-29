@@ -1,11 +1,11 @@
 ### SB 4.4.15
 
-> यत्पादपद्मं महतां मनोऽलिभिर्निषेवितं ब्रह्मरसासवार्थिभिः ।
+> यत्पादपद्मं महतां मनोऽलिभिर्निषेवितं ब्रह्मरसासवार्थिभिः ।\
 > लोकस्य यद्वर्षति चाशिषोऽर्थिनस्तस्मै भवान्द्रुह्यति विश्वबन्धवे ॥१५॥
 
-> yat-pāda-padmaṁ mahatāṁ mano-'libhir
-> niṣevitaṁ brahma-rasāsavārthibhiḥ
-> lokasya yad varṣati cāśiṣo 'rthinas
+> yat-pāda-padmaṁ mahatāṁ mano-'libhir\
+> niṣevitaṁ brahma-rasāsavārthibhiḥ\
+> lokasya yad varṣati cāśiṣo 'rthinas\
 > tasmai bhavān druhyati viśva-bandhave
 
 *yat-pāda-padmam*—los pies de loto de quien; *mahatām*—de las personalidades elevadas; *manaḥ-alibhiḥ*—por las abejas de la mente; *niṣevitam*—estando ocupadas en; *brahma-rasa*—de felicidad trascendental *(brahmānanda)*; *āsava-arthibhiḥ*—buscando el néctar; *lokasya*—del hombre común; *yat*—que; *varṣati*—cumple; *ca*—y; *āśiṣaḥ*—deseos; *arthinaḥ*—buscando; *tasmai*—hacia él (el Señor Śiva); *bhavān*—tú; *druhyati*—tienes envidia; *viśva-bandhave*—del amigo de todas las entidades vivientes que pueblan los tres mundos.

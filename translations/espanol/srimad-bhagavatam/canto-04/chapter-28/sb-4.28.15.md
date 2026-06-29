@@ -1,11 +1,11 @@
 ### SB 4.28.15
 
-> शिथिलावयवो यर्हि गन्धर्वैर्हृतपौरुषः ।
+> शिथिलावयवो यर्हि गन्धर्वैर्हृतपौरुषः ।\
 > यवनैररिभी राजन्नुपरुद्धो रुरोद ह ॥१५॥
 
-> śithilāvayavo yarhi
-> gandharvair hṛta-pauruṣaḥ
-> yavanair aribhī rājann
+> śithilāvayavo yarhi\
+> gandharvair hṛta-pauruṣaḥ\
+> yavanair aribhī rājann\
 > uparuddho ruroda ha
 
 *śithila*—debilitado; *avayavaḥ*—sus miembros; *yarhi*—cuando; *gandharvaiḥ*—por los *gandharvas*; *hṛta*—vencida; *pauruṣaḥ*—su fuerza física; *yavanaiḥ*—por los *yavanas*; *aribhiḥ*—por los enemigos; *rājan*—¡oh, rey Prācīnabarhiṣat!; *uparuddhaḥ*—al ser detenido; *ruroda*—gritaba lamentándose; *ha*—en verdad.

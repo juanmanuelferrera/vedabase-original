@@ -1,9 +1,9 @@
 ### CC Madhya 15.240
 
-> দ্বারকাতে ষোল-সহস্র মহিষী-মন্দিরে  ।
+> দ্বারকাতে ষোল-সহস্র মহিষী-মন্দিরে  ।\
 > অষ্টাদশ মাতা, আর যাদবের ঘরে ॥২৪০॥
 
-> dvārakāte ṣola-sahasra mahiṣī-mandire
+> dvārakāte ṣola-sahasra mahiṣī-mandire\
 > aṣṭādaśa mātā, āra yādavera ghare
 
 *dvārakāte*—at Dvārakā-dhāma; *ṣola-sahasra*—sixteen thousand; *mahiṣī*—queens; *mandire*—palaces; *aṣṭādaśa mātā*—eighteen mothers; *āra*—and; *yādavera ghare*—in the house of the Yadu dynasty.

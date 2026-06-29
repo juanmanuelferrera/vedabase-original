@@ -1,11 +1,11 @@
 ### SB 3.29.38
 
-> योऽन्तः प्रविश्य भूतानि भूतैरत्त्यखिलाश्रयः ।
+> योऽन्तः प्रविश्य भूतानि भूतैरत्त्यखिलाश्रयः ।\
 > स विष्ण्वाख्योऽधियज्ञोऽसौ कालः कलयतां प्रभुः ॥३८॥
 
-> yo 'ntaḥ praviśya bhūtāni
-> bhūtair atty akhilāśrayaḥ
-> sa viṣṇv-ākhyo 'dhiyajño 'sau
+> yo 'ntaḥ praviśya bhūtāni\
+> bhūtair atty akhilāśrayaḥ\
+> sa viṣṇv-ākhyo 'dhiyajño 'sau\
 > kālaḥ kalayatāṁ prabhuḥ
 
 *yaḥ*—He who; *antaḥ*—within; *praviśya*—entering; *bhūtāni*—living entities; *bhūtaiḥ*—by living entities; *atti*—annihilates; *akhila*—of everyone; *āśrayaḥ*—the support; *saḥ*—He; *viṣṇu*—Viṣṇu; *ākhyaḥ*—named; *adhiyajñaḥ*—the enjoyer of all sacrifices; *asau*—that; *kālaḥ*—time factor; *kalayatām*—of all masters; *prabhuḥ*—the master.

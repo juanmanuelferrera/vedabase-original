@@ -1,11 +1,11 @@
 ### SB 2.7.52
 
-> यथा हरौ भगवति नृणां भक्तिर्भविष्यति ।
+> यथा हरौ भगवति नृणां भक्तिर्भविष्यति ।\
 > सर्वात्मन्यखिलाधारे इति सङ्कल्प्य वर्णय ॥५२॥
 
-> yathā harau bhagavati
-> nṛṇāṁ bhaktir bhaviṣyati
-> sarvātmany akhilādhāre
+> yathā harau bhagavati\
+> nṛṇāṁ bhaktir bhaviṣyati\
+> sarvātmany akhilādhāre\
 > iti saṅkalpya varṇaya
 
 *yathā*—tanto como; *harau*—a la Personalidad de Dios; *bhagavati*—al Señor; *nṛṇām*—para seres humanos; *bhaktiḥ*—servicio devocional; *bhaviṣyati*—volverse iluminados; *sarva-ātmani*—el Todo Absoluto; *akhila-ādhāre*—al *summum bonum*; *iti*—así pues; *saṅkalpya*—por determinación; *varṇaya*—describe.

@@ -1,11 +1,11 @@
 ### SB 6.18.56
 
-> मातृष्वसुरभिप्रायमिन्द्र आज्ञआय मानद
+> मातृष्वसुरभिप्रायमिन्द्र आज्ञआय मानद\
 > शुश्रूषणेनाश्रमस्थां दितिं पर्यचरत्कविः ॥५६॥
 
-> mātṛ-ṣvasur abhiprāyam
-> indra ājñāya mānada
-> śuśrūṣaṇenāśrama-sthāṁ
+> mātṛ-ṣvasur abhiprāyam\
+> indra ājñāya mānada\
+> śuśrūṣaṇenāśrama-sthāṁ\
 > ditiṁ paryacarat kaviḥ
 
 *mātṛ-svasuḥ*—of his mother's sister; *abhiprāyam*—the intention; *indraḥ*—Indra; *ājñāya*—understanding; *māna-da*—O King Parīkṣit, who give respect to everyone; *śuśrūṣaṇena*—with service; *āśrama-sthām*—residing in an *āśrama*; *ditim*—Diti; *paryacarat*—attended upon; *kaviḥ*—seeing his own interest.

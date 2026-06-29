@@ -1,13 +1,13 @@
 ### SB 7.3.1
 
-> श्रीनारद उवाच
-> हिरण्यकशिपू राजन्नजेयमजरामरम
+> श्रीनारद उवाच\
+> हिरण्यकशिपू राजन्नजेयमजरामरम\
 > आत्मानमप्रतिद्वन्द्वमेकराजं व्यधित्सत ॥१॥
 
-> śrī-nārada uvāca
-> hiraṇyakaśipū rājann
-> ajeyam ajarāmaram
-> ātmānam apratidvandvam
+> śrī-nārada uvāca\
+> hiraṇyakaśipū rājann\
+> ajeyam ajarāmaram\
+> ātmānam apratidvandvam\
 > eka-rājaṁ vyadhitsata
 
 *śrī-nāradaḥ uvāca*—Nārada Muni said; *hiraṇyakaśipuḥ*—the demoniac king Hiraṇyakaśipu; *rājan*—O King Yudhiṣṭhira; *ajeyam*—unconquerable by any enemy; *ajara*—without old age or disease; *amaram*—immortal; *ātmānam*—himself; *apratidvandvam*—without any rival or opponent; *eka-rājam*—the one king of the universe; *vyadhitsata*—desired to become.

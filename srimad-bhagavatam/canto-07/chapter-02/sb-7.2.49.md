@@ -1,11 +1,11 @@
 ### SB 7.2.49
 
-> अथ नित्यमनित्यं वा नेह शोचन्ति तद्विदः
+> अथ नित्यमनित्यं वा नेह शोचन्ति तद्विदः\
 > नान्यथा शक्यते कर्तुं स्वभावः शोचतामिति ॥४९॥
 
-> atha nityam anityaṁ vā
-> neha śocanti tad-vidaḥ
-> nānyathā śakyate kartuṁ
+> atha nityam anityaṁ vā\
+> neha śocanti tad-vidaḥ\
+> nānyathā śakyate kartuṁ\
 > sva-bhāvaḥ śocatām iti
 
 *atha*—therefore; *nityam*—the eternal spirit soul; *anityam*—the temporary material body; *vā*—or; *na*—not; *iha*—in this world; *śocanti*—they lament for; *tat-vidaḥ*—those who are advanced in knowledge of the body and soul; *na*—not; *anyathā*—otherwise; *śakyate*—is able; *kartum*—to do; *sva-bhāvaḥ*—the nature; *śocatām*—of those prone to lamentation; *iti*—thus.

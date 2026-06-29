@@ -1,9 +1,9 @@
 ### CC Madhya 18.64
 
-> লীলাস্থল দেখি’ তাহাঁ গেলা ‘শেষশায়ী’ ।
+> লীলাস্থল দেখি’ তাহাঁ গেলা ‘শেষশায়ী’ ।\
 > ‘লক্ষ্মী’ দেখি’ এই শ্লোক পড়েন গোসাঞি ॥৬৪॥
 
-> līlā-sthala dekhi' tāhāṅ gelā 'śeṣaśāyī'
+> līlā-sthala dekhi' tāhāṅ gelā 'śeṣaśāyī'\
 > 'lakṣmī' dekhi' ei śloka paḍena gosāñi
 
 *līlā-sthala dekhi'*—seeing the places of pastimes; *tāhāṅ*—there; *gelā*—departed; *śeṣa-śāyī*—for seeing Śeṣaśāyī; *lakṣmī*—the goddess of fortune; *dekhi'*—seeing; *ei*—this; *śloka*—verse; *paḍena*—recites; *gosāñi*—Śrī Caitanya Mahāprabhu.

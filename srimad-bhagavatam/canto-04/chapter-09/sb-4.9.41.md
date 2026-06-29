@@ -1,11 +1,11 @@
 ### SB 4.9.41
 
-> सुनीतिः सुरुचिश्चास्य महिष्यौ रुक्मभूषिते ।
+> सुनीतिः सुरुचिश्चास्य महिष्यौ रुक्मभूषिते ।\
 > आरुह्य शिबिकां सार्धमुत्तमेनाभिजग्मतुः ॥४१॥
 
-> sunītiḥ suruciś cāsya
-> mahiṣyau rukma-bhūṣite
-> āruhya śibikāṁ sārdham
+> sunītiḥ suruciś cāsya\
+> mahiṣyau rukma-bhūṣite\
+> āruhya śibikāṁ sārdham\
 > uttamenābhijagmatuḥ
 
 *sunītiḥ*—Queen Sunīti; *suruciḥ*—Queen Suruci; *ca*—also; *asya*—of the King; *mahiṣyau*—queens; *rukma-bhūṣite*—being decorated with golden ornaments; *āruhya*—getting on; *śibikām*—a palanquin; *sārdham*—along with; *uttamena*—the King's other son, Uttama; *abhijagmatuḥ*—all proceeded along.

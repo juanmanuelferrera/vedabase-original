@@ -1,11 +1,11 @@
 ### SB 4.24.14
 
-> पित्रादिष्टाः प्रजासर्गे तपसेऽर्णवमाविशन् ।
+> पित्रादिष्टाः प्रजासर्गे तपसेऽर्णवमाविशन् ।\
 > दशवर्षसहस्राणि तपसार्चंस्तपस्पतिम् ॥१४॥
 
-> pitrādiṣṭāḥ prajā-sarge
-> tapase 'rṇavam āviśan
-> daśa-varṣa-sahasrāṇi
+> pitrādiṣṭāḥ prajā-sarge\
+> tapase 'rṇavam āviśan\
+> daśa-varṣa-sahasrāṇi\
 > tapasārcaṁs tapas-patim
 
 *pitrā*—by the father; *ādiṣṭāḥ*—being ordered by; *prajā-sarge*—in the matter of begetting children; *tapase*—for executing austerity; *arṇavam*—in the ocean; *āviśan*—entered; *daśa-varṣa*—ten years; *sahasrāṇi*—such thousands; *tapasā*—by their austerity; *ārcan*—worshiped; *tapaḥ*—of austerity; *patim*—the master.

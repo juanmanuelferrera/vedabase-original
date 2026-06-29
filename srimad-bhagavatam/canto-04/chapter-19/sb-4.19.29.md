@@ -1,11 +1,11 @@
 ### SB 4.19.29
 
-> इत्यामन्त्र्य क्रतुपतिं विदुरास्यर्त्विजो रुषा ।
+> इत्यामन्त्र्य क्रतुपतिं विदुरास्यर्त्विजो रुषा ।\
 > स्रुग्घस्तान्जुह्वतोऽभ्येत्य स्वयम्भूः प्रत्यषेधत ॥२९॥
 
-> ity āmantrya kratu-patiṁ
-> vidurāsyartvijo ruṣā
-> srug-ghastāñ juhvato 'bhyetya
+> ity āmantrya kratu-patiṁ\
+> vidurāsyartvijo ruṣā\
+> srug-ghastāñ juhvato 'bhyetya\
 > svayambhūḥ pratyaṣedhata
 
 *iti*—thus; *āmantrya*—after informing; *kratu-patim*—King Pṛthu, the master of the sacrifice; *vidura*—O Vidura; *asya*—of Pṛthu; *ṛtvijaḥ*—the priests; *ruṣā*—in great anger; *sruk-hastān*—with the sacrificial ladle in hand; *juhvataḥ*—performing the fire sacrifice; *abhyetya*—having begun; *svayambhūḥ*—Lord Brahmā; *pratyaṣedhata*—asked them to stop.

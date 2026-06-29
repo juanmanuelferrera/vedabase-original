@@ -1,11 +1,11 @@
 ### Bg 3.24
 
-> उत्सीदेयुरिमे लोका न कुर्यां कर्म चेदहम् ।
+> उत्सीदेयुरिमे लोका न कुर्यां कर्म चेदहम् ।\
 > सङ्करस्य च कर्ता स्यामुपहन्यामिमाः प्रजाः ॥२४॥
 
-> utsīdeyur ime lokā
-> na kuryāṁ karma ced aham
-> saṅkarasya ca kartā syām
+> utsīdeyur ime lokā\
+> na kuryāṁ karma ced aham\
+> saṅkarasya ca kartā syām\
 > upahanyām imāḥ prajāḥ
 
 *utsīdeyuḥ*—put into ruin; *ime*—all these; *lokāḥ*—worlds; *na*—do not; *kuryām*—perform; *karma*—prescribed duties; *cet*—if; *aham*—I; *saṅkarasya*—of unwanted population; *ca*—and; *kartā*—creator; *syām*—shall be; *upahanyām*—destroy; *imāḥ*—all these; *prajāḥ*—living entities.

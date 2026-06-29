@@ -1,13 +1,13 @@
 ### CC Antya 18.25
 
-> তাভির্যুতঃ শ্রমমপোহিতুমঙ্গসঙ্গ-
-> ঘৃষ্টস্রজঃ স কুচকুঙ্কুমরঞ্জিতায়াঃ ।
-> গন্ধর্বপালিভিরনুদ্রুত আবিশদ্বাঃ
+> তাভির্যুতঃ শ্রমমপোহিতুমঙ্গসঙ্গ-\
+> ঘৃষ্টস্রজঃ স কুচকুঙ্কুমরঞ্জিতায়াঃ ।\
+> গন্ধর্বপালিভিরনুদ্রুত আবিশদ্বাঃ\
 > শ্রান্তো গজীভিরিভরাড়িব ভিন্নসেতুঃ ॥২৫॥
 
-> tābhir yutaḥ śramam apohitum aṅga-saṅga-
-> ghṛṣṭa-srajaḥ sa kuca-kuṅkuma-rañjitāyāḥ
-> gandharva-pālibhir anudruta āviśad vāḥ
+> tābhir yutaḥ śramam apohitum aṅga-saṅga-\
+> ghṛṣṭa-srajaḥ sa kuca-kuṅkuma-rañjitāyāḥ\
+> gandharva-pālibhir anudruta āviśad vāḥ\
 > śrānto gajībhir ibha-rāḍ iva bhinna-setuḥ
 
 *tābhiḥ*—por ellas (las gopīs); *yutaḥ*—acompañado; *śramam*—fatiga; *apohitum*—eliminar; *aṅga-saṅga*—por el contacto de los cuerpos; *ghṛṣṭa*—aplastada; *srajaḥ*—de la guirnalda de flores; *saḥ*—Él; *kuca-kuṅkuma*—por el kuṅkuma de los pechos; *rañjitāyāḥ*—teñida; *gandharva-pa*—como seres celestiales de Gandharvaloka; *alibhiḥ*—por abejas; *anudrutaḥ*—seguido; *āviśat*—entró; *vāḥ*—el agua; *śrāntaḥ*—estando fatigado; *gajībhiḥ*—por las elefantas; *ibha*—de los elefantes; *rāṭ*—el rey; *iva*—como; *bhinna-setuḥ*—más allá de los principios Védicos de moralidad.

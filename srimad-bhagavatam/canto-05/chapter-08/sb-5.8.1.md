@@ -1,9 +1,9 @@
 ### SB 5.8.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > एकदा तु महानद्यां कृताभिषेकनैयमिकावश्यको ब्रह्माक्षरमभिगृणानो मुहूर्तत्रयमुदकान्त उपविवेश ॥१॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > ekadā tu mahā-nadyāṁ kṛtābhiṣeka-naiyamikāvaśyako brahmākṣaram abhigṛṇāno muhūrta-trayam udakānta upaviveśa.
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *ekadā*—once upon a time; *tu*—but; *mahā-nadyām*—in the great river known as Gaṇḍakī; *kṛta-abhiṣeka-naiyamika-avaśyakaḥ*—having taken a bath after finishing the daily external duties such as passing stool and urine and brushing the teeth; *brahma-akṣaram*—the *praṇava-mantra* (*oṁ*); *abhigṛṇānaḥ*—chanting; *muhūrta-trayam*—for three minutes; *udaka-ante*—on the bank of the river; *upaviveśa*—he sat down.

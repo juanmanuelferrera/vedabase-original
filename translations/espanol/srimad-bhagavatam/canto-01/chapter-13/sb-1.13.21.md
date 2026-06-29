@@ -1,11 +1,11 @@
 ### SB 1.13.21
 
-> पितृभ्रातृसुहृत्पुत्रा हतास्ते विगतं वयम् ।
+> पितृभ्रातृसुहृत्पुत्रा हतास्ते विगतं वयम् ।\
 > आत्मा च जरया ग्रस्तः परगेहमुपाससे ॥२१॥
 
-> pitṛ-bhrātṛ-suhṛt-putrā
-> hatās te vigataṁ vayam
-> ātmā ca jarayā grastaḥ
+> pitṛ-bhrātṛ-suhṛt-putrā\
+> hatās te vigataṁ vayam\
+> ātmā ca jarayā grastaḥ\
 > para-geham upāsase
 
 *pitṛ*—padre; *bhrātṛ*—hermano; *suhṛt*—bienquerientes; *putrāḥ*—hijos; *hatāḥ*—todos muertos; *te*—tuyos; *vigatam*—gastado; *vayam*—edad; *ātmā*—el cuerpo; *ca*—también; *jarayā*—por invalidez; *grastaḥ*—dominado; *para-geham*—la casa de otro; *upāsase*—vives.

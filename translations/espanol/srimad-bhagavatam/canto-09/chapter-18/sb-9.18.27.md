@@ -1,11 +1,11 @@
 ### SB 9.18.27
 
-> क्षणार्धमन्युर्भगवान्शिष्यं व्याचष्ट भार्गवः
+> क्षणार्धमन्युर्भगवान्शिष्यं व्याचष्ट भार्गवः\
 > कामोऽस्याः क्रियतां राजन्नैनां त्यक्तुमिहोत्सहे ॥२७॥
 
-> kṣaṇārdha-manyur bhagavān
-> śiṣyaṁ vyācaṣṭa bhārgavaḥ
-> kāmo 'syāḥ kriyatāṁ rājan
+> kṣaṇārdha-manyur bhagavān\
+> śiṣyaṁ vyācaṣṭa bhārgavaḥ\
+> kāmo 'syāḥ kriyatāṁ rājan\
 > naināṁ tyaktum ihotsahe
 
 *kṣaṇa-ardha*—que solo duró unos momentos; *manyuḥ*—cuya ira; *bhagavān*—el muy poderoso; *śiṣyam*—a su discípulo, Vṛṣaparvā; *vyācaṣṭa*—dijo; *bhārgavaḥ*—Śukrācārya, el descendiente de Bhṛgu; *kāmaḥ*—el deseo; *asyāḥ*—de Devayānī; *kriyatām*—satisface, por favor; *rājan*—¡oh, rey!; *na*—no; *enām*—a esta muchacha; *tyaktum*—abandonar; *iha*—en este mundo; *utsahe*—puedo.

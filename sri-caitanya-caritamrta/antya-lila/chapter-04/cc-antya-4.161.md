@@ -1,9 +1,9 @@
 ### CC Antya 4.161
 
-> শুনি’ সনাতন পায়ে ধরি’ প্রভুরে কহিল  ।
+> শুনি’ সনাতন পায়ে ধরি’ প্রভুরে কহিল  ।\
 > “জগদানন্দের সৌভাগ্য আজি সে জানিল ॥১৬১॥
 
-> śuni' sanātana pāye dhari' prabhure kahila
+> śuni' sanātana pāye dhari' prabhure kahila\
 > 'jagadānandera saubhāgya āji se jānila
 
 *śuni'*—hearing; *sanātana*—Sanātana Gosvāmī; *pāye dhari'*—capturing the feet; *prabhure kahila*—began to say to Śrī Caitanya Mahāprabhu; *jagadānandera*—of Jagadānanda Paṇḍita; *saubhāgya*—fortune; *āji*—now; *se*—that; *jānila*—I understand.

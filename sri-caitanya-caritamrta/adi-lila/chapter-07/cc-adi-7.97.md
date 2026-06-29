@@ -1,9 +1,9 @@
 ### CC Adi 7.97
 
-> কৃষ্ণনামে যে আনন্দসিন্ধু-আস্বাদন ।
+> কৃষ্ণনামে যে আনন্দসিন্ধু-আস্বাদন ।\
 > ব্রহ্মানন্দ তার আগে খাতোদক-সম ॥৯৭॥
 
-> kṛṣṇa-nāme ye ānanda-sindhu-āsvādana
+> kṛṣṇa-nāme ye ānanda-sindhu-āsvādana\
 > brahmānanda tāra āge khātodaka-sama
 
 *kṛṣṇa-nāme*—in the holy name of the Lord; *ye*—which; *ānanda*—transcendental bliss; *sindhu*—ocean; *āsvādana*—tasting; *brahma-ānanda*—the transcendental bliss of impersonal understanding; *tāra*—its; *āge*—in front; *khāta-udaka*—shallow water in the canals; *sama*—like.

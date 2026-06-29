@@ -1,11 +1,11 @@
 ### SB 3.5.41
 
-> मार्गन्ति यत्ते मुखपद्मनीडैश्छन्दःसुपर्णैरृषयो विविक्ते ।
+> मार्गन्ति यत्ते मुखपद्मनीडैश्छन्दःसुपर्णैरृषयो विविक्ते ।\
 > यस्याघमर्षोदसरिद्वरायाः पदं पदं तीर्थपदः प्रपन्नाः ॥४१॥
 
-> mārganti yat te mukha-padma-nīḍaiś
-> chandaḥ-suparṇair ṛṣayo vivikte
-> yasyāgha-marṣoda-sarid-varāyāḥ
+> mārganti yat te mukha-padma-nīḍaiś\
+> chandaḥ-suparṇair ṛṣayo vivikte\
+> yasyāgha-marṣoda-sarid-varāyāḥ\
 > padaṁ padaṁ tīrtha-padaḥ prapannāḥ
 
 *mārganti*—searching after; *yat*—as; *te*—Your; *mukha-padma*—lotuslike face; *nīḍaiḥ*—by those who have taken shelter of such a lotus flower; *chandaḥ*—Vedic hymns; *suparṇaiḥ*—by the wings; *ṛṣayaḥ*—the sages; *vivikte*—in clear mind; *yasya*—whose; *agha-marṣa-uda*—that which offers freedom from all reactions to sin; *sarit*—rivers; *varāyāḥ*—in the best; *padam padam*—in every step; *tīrtha-padaḥ*—one whose lotus feet are as good as a place of pilgrimage; *prapannāḥ*—taking shelter.

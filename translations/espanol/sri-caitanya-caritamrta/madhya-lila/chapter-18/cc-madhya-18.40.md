@@ -1,9 +1,9 @@
 ### CC Madhya 18.40
 
-> গোপাল সঙ্গে চলি’ আইলা নৃত্য-গীত করি ।
+> গোপাল সঙ্গে চলি’ আইলা নৃত্য-গীত করি ।\
 > আনন্দ-কোলাহলে লোক বলে ‘হরি’ ‘হরি’ ॥৪০॥
 
-> gopāla saṅge cali' āilā nṛtya-gīta kari
+> gopāla saṅge cali' āilā nṛtya-gīta kari\
 > ānanda-kolāhale loka bale 'hari' 'hari'
 
 *gopāla saṅge*—con Gopāla; *cali'*—caminando; *āilā*—vino; *nṛtya-gīta kari*—cantando y danzando; *ānanda-kolāhale*—con gran júbilo; *loka*—la gente; *bale*—dice; *hari hari*—Hari, Hari.

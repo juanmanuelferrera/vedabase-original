@@ -1,14 +1,14 @@
 ### CC Adi 4.27-28
 
-> এই শুদ্ধভক্ত লইয়া করিমু অবতার ।
-> করিব বিবিধবিধ অদ্ভুত বিহার ॥২৭॥
-> বৈকুণ্ঠাদ্যে নাহি যে যে লীলার প্রচার ।
+> এই শুদ্ধভক্ত লইয়া করিমু অবতার ।\
+> করিব বিবিধবিধ অদ্ভুত বিহার ॥২৭॥\
+> বৈকুণ্ঠাদ্যে নাহি যে যে লীলার প্রচার ।\
 > সে সে লীলা করিব, যাতে মোর চমৎকার ॥২৮॥
 
-> ei śuddha-bhakta lañā karimu avatāra
+> ei śuddha-bhakta lañā karimu avatāra\
 > kariba vividha-vidha adbhuta vihāra
 
-> vaikuṇṭhādye nāhi ye ye līlāra pracāra
+> vaikuṇṭhādye nāhi ye ye līlāra pracāra\
 > se se līlā kariba, yāte mora camatkāra
 
 *ei*—estos; *śuddha-bhakta*—devotos puros; *lañā*—tomando; *karimu*—Yo haré; *avatāra*—encarnación; *kariba*—Yo haré; *vividha-vidha*—varias clases; *adbhuta*—maravillosos; *vihāra*—pasatiempos; *vaikuṇṭha-ādye*—en los planetas Vaikuṇṭhas, etc.; *nāhi*—no; *ye ye*—cualquier cosa; *līlāra*—de los pasatiempos; *pracāra*—propagación; *se se*—esos; *līlā*—pasatiempos; *kariba*—ejecutaré; *yāte*—en los cuales; *mora*—Mi; *camatkāra*—maravilla.

@@ -1,13 +1,13 @@
 ### SB 8.7.34
 
-> ये त्वात्मरामगुरुभिर्हृदि चिन्तिताङ्घ्रि
-> द्वन्द्वं चरन्तमुमया तपसाभितप्तम
-> कत्थन्त उग्रपरुषं निरतं श्मशाने
+> ये त्वात्मरामगुरुभिर्हृदि चिन्तिताङ्घ्रि\
+> द्वन्द्वं चरन्तमुमया तपसाभितप्तम\
+> कत्थन्त उग्रपरुषं निरतं श्मशाने\
 > ते नूनमूतिमविदंस्तव हातलज्जाः ॥३४॥
 
-> tat tasya te sad-asatoḥ parataḥ parasya
-> nāñjaḥ svarūpa-gamane prabhavanti bhūmnaḥ
-> brahmādayaḥ kim uta saṁstavane vayaṁ tu
+> tat tasya te sad-asatoḥ parataḥ parasya\
+> nāñjaḥ svarūpa-gamane prabhavanti bhūmnaḥ\
+> brahmādayaḥ kim uta saṁstavane vayaṁ tu\
 > tat-sarga-sarga-viṣayā api śakti-mātram
 
 *tat*—por lo tanto; *tasya*—de eso; *te*—de Tu Señoría; *sat-asatoḥ*—de las entidades vivientes, móviles e inmóviles; *parataḥ*—situado en el plano trascendental; *parasya*—muy difícil de entender; *na*—ni; *añjaḥ*—tal y como es; *svarūpa-gamane*—aproximarse a tu realidad; *prabhavanti*—es posible; *bhūmnaḥ*—¡oh, grande!; *brahma-ādayaḥ*—incluso personas de la talla del Señor Brahmā; *kim uta*—qué decir de otros; *saṁstavane*—en ofrecer oraciones; *vayam tu*—en lo que a nosotros respecta; *tat*—de ti; *sarga-sarga-viṣayāḥ*—creaciones de la creación; *api*—aunque; *śakti-mātram*—para nuestra capacidad.

@@ -1,13 +1,13 @@
 ### CC Madhya 21.115
 
-> যে মাধুরীর ঊর্ধ্ব আন, নাহি যার সমান,
-> পরব্যোমে স্বরূপের গণে ।
-> যেঁহো সব-অবতারী, পরব্যোম-অধিকারী,
+> যে মাধুরীর ঊর্ধ্ব আন, নাহি যার সমান,\
+> পরব্যোমে স্বরূপের গণে ।\
+> যেঁহো সব-অবতারী, পরব্যোম-অধিকারী,\
 > এ মাধুর্য নাহি নারায়ণে ॥১১৫॥
 
-> ye mādhurīra ūrdhva āna, nāhi yāra samāna,
-> paravyome svarūpera gaṇe
-> yeṅho saba-avatārī, paravyoma-adhikārī,
+> ye mādhurīra ūrdhva āna, nāhi yāra samāna,\
+> paravyome svarūpera gaṇe\
+> yeṅho saba-avatārī, paravyoma-adhikārī,\
 > e mādhurya nāhi nārāyaṇe
 
 *ye mādhurīra*—that sweetness; *ūrdhva*—higher; *āna*—another; *nāhi*—there is not; *yāra samāna*—equal to which; *para-vyome*—the spiritual sky; *sva-rūpera gaṇe*—among the expansions of Kṛṣṇa's personality; *yeṅho*—who; *saba-avatāri*—the source of all the incarnations; *para-vyoma-adhikārī*—the predominating Deity of the Vaikuṇṭha planets; *e mādhurya*—this ecstatic sweetness; *nāhi*—is not; *nārāyaṇe*—even in Lord Nārāyaṇa.

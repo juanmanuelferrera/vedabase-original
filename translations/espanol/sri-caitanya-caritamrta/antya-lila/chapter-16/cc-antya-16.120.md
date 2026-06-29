@@ -1,9 +1,9 @@
 ### CC Antya 16.120
 
-> এত কহি’ গৌরপ্রভু ভাবাবিষ্ট হঞা ।
+> এত কহি’ গৌরপ্রভু ভাবাবিষ্ট হঞা ।\
 > দুই শ্লোকের অর্থ করে প্রলাপ করিয়া ॥১২০॥
 
-> eta kahi' gaura-prabhu bhāvāviṣṭa hañā
+> eta kahi' gaura-prabhu bhāvāviṣṭa hañā\
 > dui ślokera artha kare pralāpa kariyā
 
 *eta kahi'*—habiendo dicho esto; *gaura-prabhu*—Śrī Caitanya Mahāprabhu; *bhāva-āviṣṭa*—arrebatado por emociones amorosas extáticas; *hañā*—quedando; *dui ślokera*—de los dos versos; *artha*—el significado; *kare*—expone; *pralāpa kariyā*—hablando como un loco.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.210
 
-> ‘শান্তিপুরাচার্য’-গৃহে ঐছে আইলা ।
+> ‘শান্তিপুরাচার্য’-গৃহে ঐছে আইলা ।\
 > শচী-মাতা মিলি’ তাঁর দুঃখ খণ্ডাইলা ॥২১০॥
 
-> 'śāntipurācārya'-gṛhe aiche āilā
+> 'śāntipurācārya'-gṛhe aiche āilā\
 > śacī-mātā mili' tāṅra duḥkha khaṇḍāilā
 
 *śāntipura-ācārya*—of Advaita Ācārya; *gṛhe*—to the house; *aiche*—similarly; *āilā*—went; *śacī-mātā*—mother Śacī; *mili'*—meeting; *tāṅra*—her; *duḥkha*—unhappiness; *khaṇḍāilā*—pacified.

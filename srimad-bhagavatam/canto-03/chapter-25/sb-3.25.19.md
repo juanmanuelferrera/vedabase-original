@@ -1,11 +1,11 @@
 ### SB 3.25.19
 
-> न युज्यमानया भक्त्या भगवत्यखिलात्मनि ।
+> न युज्यमानया भक्त्या भगवत्यखिलात्मनि ।\
 > सदृशोऽस्ति शिवः पन्था योगिनां ब्रह्मसिद्धये ॥१९॥
 
-> na yujyamānayā bhaktyā
-> bhagavaty akhilātmani
-> sadṛśo 'sti śivaḥ panthā
+> na yujyamānayā bhaktyā\
+> bhagavaty akhilātmani\
+> sadṛśo 'sti śivaḥ panthā\
 > yogināṁ brahma-siddhaye
 
 *na*—not; *yujyamānayā*—being performed; *bhaktyā*—devotional service; *bhagavati*—towards the Supreme Personality of Godhead; *akhila-ātmani*—the Supersoul; *sadṛśaḥ*—like; *asti*—there is; *śivaḥ*—auspicious; *panthāḥ*—path; *yoginām*—of the *yogīs*; *brahma-siddhaye*—for perfection in self-realization.

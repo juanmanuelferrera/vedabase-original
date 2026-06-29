@@ -1,11 +1,11 @@
 ### SB 7.7.37
 
-> अधोक्षजालम्भमिहाशुभात्मनः शरीरिणः संसृतिचक्रशातनम
+> अधोक्षजालम्भमिहाशुभात्मनः शरीरिणः संसृतिचक्रशातनम\
 > तद्ब्रह्मनिर्वाणसुखं विदुर्बुधास्ततो भजध्वं हृदये हृदीश्वरम ॥३७॥
 
-> adhokṣajālambham ihāśubhātmanaḥ
-> śarīriṇaḥ saṁsṛti-cakra-śātanam
-> tad brahma-nirvāṇa-sukhaṁ vidur budhās
+> adhokṣajālambham ihāśubhātmanaḥ\
+> śarīriṇaḥ saṁsṛti-cakra-śātanam\
+> tad brahma-nirvāṇa-sukhaṁ vidur budhās\
 > tato bhajadhvaṁ hṛdaye hṛd-īśvaram
 
 *adhokṣaja*—con la Suprema Personalidad de Dios, que está fuera del alcance de la mente materialista y del conocimiento experimental; *ālambham*—constantemente en contacto; *iha*—en el mundo material; *aśubha-ātmanaḥ*—cuya mente está materialmente contaminada; *śarīriṇaḥ*—de la entidad viviente que ha recibido un cuerpo material; *saṁsṛti*—de la existencia material; *cakra*—el ciclo; *śātanam*—detener por completo; *tat*—esa; *brahma-nirvāṇa*—en contacto con el Brahman Supremo, la Verdad Absoluta; *sukham*—felicidad trascendental; *viduḥ*—entienden; *budhāḥ*—aquellos que son espiritualmente avanzados; *tataḥ*—por lo tanto; *bhajadhvam*—ocúpense en servicio devocional; *hṛdaye*—en lo profundo del corazón; *hṛt-īśvaram*—a la Suprema Personalidad de Dios, la Superalma que está dentro del corazón.

@@ -1,11 +1,11 @@
 ### Bg 8.25
 
-> धूमो रात्रिस्तथा कृष्णः षण्मासा दक्षिणायनम् ।
+> धूमो रात्रिस्तथा कृष्णः षण्मासा दक्षिणायनम् ।\
 > तत्र चान्द्रमसं ज्योतिर्योगी प्राप्य निवर्तते ॥२५॥
 
-> dhūmo rātris tathā kṛṣṇaḥ
-> ṣaṇ-māsā dakṣiṇāyanam
-> tatra cāndramasaṁ jyotir
+> dhūmo rātris tathā kṛṣṇaḥ\
+> ṣaṇ-māsā dakṣiṇāyanam\
+> tatra cāndramasaṁ jyotir\
 > yogī prāpya nivartate
 
 *dhūmaḥ*—humo; *rātriḥ*—noche; *tathā*—también; *kṛṣṇaḥ*—la quincena de la luna menguante; *ṣaṭ-māsāḥ*—los seis meses; *dakṣiṇa-ayanam*—cuando el sol pasa por el lado Sur; *tatra*—allí; *cāndramasam*—el planeta lunar; *jyotiḥ*—luz; *yogī*—el místico; *prāpya*—alcanza; *nivartate*—regresa.

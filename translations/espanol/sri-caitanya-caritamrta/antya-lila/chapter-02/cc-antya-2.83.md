@@ -1,9 +1,9 @@
 ### CC Antya 2.83
 
-> এই ত’ কহিলু গৌরের ‘আবির্ভাব’ ।
+> এই ত’ কহিলু গৌরের ‘আবির্ভাব’ ।\
 > ইহা যেই শুনে, জানে চৈতন্য-প্রভাব ॥৮৩॥
 
-> ei ta' kahilu gaurera 'āvirbhāva'
+> ei ta' kahilu gaurera 'āvirbhāva'\
 > ihā yei śune, jāne caitanya-prabhāva
 
 *ei ta'*—así; *kahilu*—he descrito; *gaurera*—de Śrī Caitanya Mahāprabhu; *āvirbhāva*—aparición; *ihā*—este suceso; *yei śune*—quienquiera que lo escuche; *jāne*—conoce; *caitanya-prabhāva*—la opulencia de Śrī Caitanya Mahāprabhu.

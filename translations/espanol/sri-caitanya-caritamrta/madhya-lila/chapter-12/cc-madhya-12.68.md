@@ -1,9 +1,9 @@
 ### CC Madhya 12.68
 
-> সেই হৈতে ভাগ্যবান্ রাজার নন্দন ।
+> সেই হৈতে ভাগ্যবান্ রাজার নন্দন ।\
 > প্রভুভক্তগণ-মধ্যে হৈলা একজন ॥৬৮॥
 
-> sei haite bhāgyavān rājāra nandana
+> sei haite bhāgyavān rājāra nandana\
 > prabhu-bhakta-gaṇa-madhye hailā eka-jana
 
 *sei haite*—desde ese día; *bhāgyavān*—el más afortunado; *rājāra nandana*—el hijo del rey; *prabhu-bhakta-gaṇa-madhye*—entre los devotos íntimos del Señor; *hailā*—se convirtió en; *eka-jana*—uno de ellos.

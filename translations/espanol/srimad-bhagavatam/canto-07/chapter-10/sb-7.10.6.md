@@ -1,11 +1,11 @@
 ### SB 7.10.6
 
-> अहं त्वकामस्त्वद्भक्तस्त्वं च स्वाम्यनपाश्रयः
+> अहं त्वकामस्त्वद्भक्तस्त्वं च स्वाम्यनपाश्रयः\
 > नान्यथेहावयोरर्थो राजसेवकयोरिव ॥६॥
 
-> ahaṁ tv akāmas tvad-bhaktas
-> tvaṁ ca svāmy anapāśrayaḥ
-> nānyathehāvayor artho
+> ahaṁ tv akāmas tvad-bhaktas\
+> tvaṁ ca svāmy anapāśrayaḥ\
+> nānyathehāvayor artho\
 > rāja-sevakayor iva
 
 *aham*—en lo que a mí respecta; *tu*—en verdad; *akāmaḥ*—sin deseo material; *tvat-bhaktaḥ*—completamente apegado a Ti libre de motivaciones; *tvam ca*—Tu Señoría también; *svāmī*—el verdadero amo; *anapāśrayaḥ*—sin motivación (Tú no actúas como amo llevado por alguna motivación); *na*—no; *anyathā*—sin tener esa relación de amo y sirviente; *iha*—aquí; *āvayoḥ*—nuestra; *arthaḥ*—toda motivación (el Señor es el amo puro, y Prahlāda Mahārāja es el devoto puro sin motivaciones materialistas); *rāja*—de un rey; *sevakayoḥ*—y el servidor; *iva*—como (del mismo modo que el rey recauda impuestos para beneficio de sus súbditos, o los súbditos pagan impuestos para beneficio del rey).

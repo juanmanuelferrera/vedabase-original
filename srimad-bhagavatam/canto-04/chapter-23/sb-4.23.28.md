@@ -1,11 +1,11 @@
 ### SB 4.23.28
 
-> स वञ्चितो बतात्मध्रुक्कृच्छ्रेण महता भुवि ।
+> स वञ्चितो बतात्मध्रुक्कृच्छ्रेण महता भुवि ।\
 > लब्ध्वापवर्ग्यं मानुष्यं विषयेषु विषज्जते ॥२८॥
 
-> sa vañcito batātma-dhruk
-> kṛcchreṇa mahatā bhuvi
-> labdhvāpavargyaṁ mānuṣyaṁ
+> sa vañcito batātma-dhruk\
+> kṛcchreṇa mahatā bhuvi\
+> labdhvāpavargyaṁ mānuṣyaṁ\
 > viṣayeṣu viṣajjate
 
 *saḥ*—he; *vañcitaḥ*—cheated; *bata*—certainly; *ātma-dhruk*—envious of himself; *kṛcchreṇa*—with great difficulty; *mahatā*—by great activities; *bhuvi*—in this world; *labdhvā*—by achieving; *āpavargyam*—the path of liberation; *mānuṣyam*—in the human form of life; *viṣayeṣu*—in the matter of sense gratification; *viṣajjate*—becomes engaged.

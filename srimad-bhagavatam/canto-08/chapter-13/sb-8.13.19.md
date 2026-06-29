@@ -1,11 +1,11 @@
 ### SB 8.13.19
 
-> पारामरीचिगर्भाद्या देवा इन्द्रोऽद्भुतः स्मृतः
+> पारामरीचिगर्भाद्या देवा इन्द्रोऽद्भुतः स्मृतः\
 > द्युतिमत्प्रमुखास्तत्र भविष्यन्त्यृषयस्ततः ॥१९॥
 
-> pārā-marīcigarbhādyā
-> devā indro 'dbhutaḥ smṛtaḥ
-> dyutimat-pramukhās tatra
+> pārā-marīcigarbhādyā\
+> devā indro 'dbhutaḥ smṛtaḥ\
+> dyutimat-pramukhās tatra\
 > bhaviṣyanty ṛṣayas tataḥ
 
 *pārā*—the Pāras; *marīcigarbha*—the Marīcigarbhas; *ādyāḥ*—like that; *devāḥ*—the demigods; *indraḥ*—the king of heaven; *adbhutaḥ*—Adbhuta; *smṛtaḥ*—known; *dyutimat*—Dyutimān; *pramukhāḥ*—headed by; *tatra*—in that ninth period of Manu; *bhaviṣyanti*—will become; *ṛṣayaḥ*—the seven *ṛṣis*; *tataḥ*—then.

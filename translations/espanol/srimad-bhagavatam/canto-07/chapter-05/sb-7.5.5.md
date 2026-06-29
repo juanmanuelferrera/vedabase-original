@@ -1,13 +1,13 @@
 ### SB 7.5.5
 
-> श्रीप्रह्लाद उवाच
-> तत्साधु मन्येऽसुरवर्य देहिनां सदा समुद्विग्नधियामसद्ग्रहात
+> श्रीप्रह्लाद उवाच\
+> तत्साधु मन्येऽसुरवर्य देहिनां सदा समुद्विग्नधियामसद्ग्रहात\
 > हित्वात्मपातं गृहमन्धकूपं वनं गतो यद्धरिमाश्रयेत ॥५॥
 
-> śrī-prahlāda uvāca
-> tat sādhu manye 'sura-varya dehināṁ
-> sadā samudvigna-dhiyām asad-grahāt
-> hitvātma-pātaṁ gṛham andha-kūpaṁ
+> śrī-prahlāda uvāca\
+> tat sādhu manye 'sura-varya dehināṁ\
+> sadā samudvigna-dhiyām asad-grahāt\
+> hitvātma-pātaṁ gṛham andha-kūpaṁ\
 > vanaṁ gato yad dharim āśrayeta
 
 Kṛṣṇa, que está en el corazón de todos en forma de Superalma, disipa toda la ignorancia del corazón del devoto. Como una gracia especial, ilumina al devoto con conocimiento completo, poniendo ante él la antorcha de la luz. Así pues, Prahlāda Mahārāja tenía lo mejor del conocimiento, y, cuando su padre le preguntó, Prahlāda se lo dio. Prahlāda Mahārāja, debido a su avanzada conciencia de Kṛṣṇa, podía resolver los mayores problemas. Por todo ello, respondió con las siguientes palabras.

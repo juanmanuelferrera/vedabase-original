@@ -1,13 +1,13 @@
 ### SB 3.28.37
 
-> देहं च तं न चरमः स्थितमुत्थितं वा
-> सिद्धो विपश्यति यतोऽध्यगमत्स्वरूपम् ।
-> दैवादुपेतमथ दैववशादपेतं
+> देहं च तं न चरमः स्थितमुत्थितं वा\
+> सिद्धो विपश्यति यतोऽध्यगमत्स्वरूपम् ।\
+> दैवादुपेतमथ दैववशादपेतं\
 > वासो यथा परिकृतं मदिरामदान्धः ॥३७॥
 
-> dehaṁ ca taṁ na caramaḥ sthitam utthitaṁ vā
-> siddho vipaśyati yato 'dhyagamat svarūpam
-> daivād upetam atha daiva-vaśād apetaṁ
+> dehaṁ ca taṁ na caramaḥ sthitam utthitaṁ vā\
+> siddho vipaśyati yato 'dhyagamat svarūpam\
+> daivād upetam atha daiva-vaśād apetaṁ\
 > vāso yathā parikṛtaṁ madirā-madāndhaḥ
 
 *deham*—material body; *ca*—and; *tam*—that; *na*—not; *caramaḥ*—last; *sthitam*—sitting; *utthitam*—rising; *vā*—or; *siddhaḥ*—the realized soul; *vipaśyati*—can conceive; *yataḥ*—because; *adhyagamat*—he has achieved; *sva-rūpam*—his real identity; *daivāt*—according to destiny; *upetam*—arrived; *atha*—moreover; *daiva-vaśāt*—according to destiny; *apetam*—departed; *vāsaḥ*—clothing; *yathā*—as; *parikṛtam*—put on; *madirā-mada-andhaḥ*—one who is blinded by intoxication.

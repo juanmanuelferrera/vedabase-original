@@ -1,11 +1,11 @@
 ### Bg 3.27
 
-> प्रकृतेः क्रियमाणानि गुणैः कर्माणि सर्वशः ।
+> प्रकृतेः क्रियमाणानि गुणैः कर्माणि सर्वशः ।\
 > अहङ्कारविमूढात्मा कर्ताहमिति मन्यते ॥२७॥
 
-> prakṛteḥ kriyamāṇāni
-> guṇaiḥ karmāṇi sarvaśaḥ
-> ahaṅkāra-vimūḍhātmā
+> prakṛteḥ kriyamāṇāni\
+> guṇaiḥ karmāṇi sarvaśaḥ\
+> ahaṅkāra-vimūḍhātmā\
 > kartāham iti manyate
 
 *prakṛteḥ*—of material nature; *kriyamāṇāni*—all being done; *guṇaiḥ*—by the modes; *karmāṇi*—activities; *sarvaśaḥ*—all kinds of; *ahaṅkāra-vimūḍha*—bewildered by false ego; *ātmā*—the spirit soul; *kartā*—doer; *aham*—I; *iti*—thus; *manyate*—thinks.

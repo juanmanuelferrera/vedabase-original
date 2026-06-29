@@ -1,13 +1,13 @@
 ### SB 5.6.3
 
-> तथा चोक्तम
-> न कुर्यात्कर्हिचित्सख्यं मनसि ह्यनवस्थिते
+> तथा चोक्तम\
+> न कुर्यात्कर्हिचित्सख्यं मनसि ह्यनवस्थिते\
 > यद्विश्रम्भाच्चिराच्चीर्णं चस्कन्द तप ऐश्वरम ॥३॥
 
-> tathā coktam—
-> na kuryāt karhicit sakhyaṁ
-> manasi hy anavasthite
-> yad-viśrambhāc cirāc cīrṇaṁ
+> tathā coktam—\
+> na kuryāt karhicit sakhyaṁ\
+> manasi hy anavasthite\
+> yad-viśrambhāc cirāc cīrṇaṁ\
 > caskanda tapa aiśvaram
 
 *tathā*—so; *ca*—and; *uktam*—it is said; *na*—never; *kuryāt*—should do; *karhicit*—at any time or with anyone; *sakhyam*—friendship; *manasi*—in the mind; *hi*—certainly; *anavasthite*—which is very restless; *yat*—in which; *viśrambhāt*—from placing too much faith; *cirāt*—for a long time; *cīrṇam*—practiced; *caskanda*—became disturbed; *tapaḥ*—the austerity; *aiśvaram*—of great personalities like Lord Śiva and the great sage Saubhari.

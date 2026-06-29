@@ -1,9 +1,9 @@
 ### CC Madhya 11.201
 
-> প্রভু না খাইলে কেহ না করে ভোজন ৷
+> প্রভু না খাইলে কেহ না করে ভোজন ৷\
 > ঊর্ধ্ব-হস্তে বসি’ রহে সর্ব ভক্তগণ ৷৷ ২০১ ৷৷ ॥২০১॥
 
-> prabhu nā khāile keha nā kare bhojana
+> prabhu nā khāile keha nā kare bhojana\
 > ūrdhva-haste vasi' rahe sarva bhakta-gaṇa
 
 *prabhu*—Śrī Caitanya Mahāprabhu; *nā khāile*—sin comer; *keha*—alguien; *nā*—no; *kare*—hace; *bhojana*—comer; *ūrdhva-haste*—alzando la mano; *vasi'*—sentados; *rahe*—permanecen; *sarva*—todos; *bhakta-gaṇa*—los devotos.

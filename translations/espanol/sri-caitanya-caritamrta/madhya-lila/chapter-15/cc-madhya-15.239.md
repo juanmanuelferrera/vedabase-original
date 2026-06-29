@@ -1,9 +1,9 @@
 ### CC Madhya 15.239
 
-> নীলাচলে ভোজন তুমি কর বায়ান্ন বার ।
+> নীলাচলে ভোজন তুমি কর বায়ান্ন বার ।\
 > এক এক ভোগের অন্ন শত শত ভার ॥২৩৯॥
 
-> nīlācale bhojana tumi kara bāyānna bāra
+> nīlācale bhojana tumi kara bāyānna bāra\
 > eka eka bhogera anna śata śata bhāra
 
 *nīlācale*—en Jagannātha Purī; *bhojana*—aceptar el almuerzo; *tumi*—Tú; *kara*—haces; *bāyānna bāra*—cincuenta y dos veces; *eka eka bhogera*—de cada una de las ofrendas; *anna*—comestibles; *śata śata bhāra*—cientos de cubetas.

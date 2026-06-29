@@ -1,9 +1,9 @@
 ### CC Madhya 20.129
 
-> সর্বজ্ঞের বাক্যে করে ধনের উদ্দেশে ৷
+> সর্বজ্ঞের বাক্যে করে ধনের উদ্দেশে ৷\
 > ঐছে বেদ-পুরাণ জীবে ‘কৃষ্ণ’ উপদেশে ৷৷ ১২৯ ৷৷ ॥১২৯॥
 
-> sarvajñera vākye kare dhanera uddeśe
+> sarvajñera vākye kare dhanera uddeśe\
 > aiche veda-purāṇa jīve 'kṛṣṇa' upadeśe
 
 *sarvajñera*—del astrólogo; *vākye*—las palabras; *kare*—dan; *dhanera*—de las riquezas; *uddeśe*—noticia; *aiche*—de manera similar; *veda-purāṇa*—las literaturas Védicas; *jīve*—a la entidad viviente, el alma condicionada; *kṛṣṇa*—del Señor Kṛṣṇa; *upadeśe*—instruye.

@@ -1,14 +1,14 @@
 ### CC Adi 4.36-37
 
-> এই বাঞ্চা যৈছে কৃষ্ণপ্রাকট্য-কারণ ।
-> অসুরসংহার — আনুষঙ্গ প্রয়োজন ॥৩৬॥
-> এই মত চৈতন্য-কৃষ্ণ পূর্ণ ভগবান্ ।
+> এই বাঞ্চা যৈছে কৃষ্ণপ্রাকট্য-কারণ ।\
+> অসুরসংহার — আনুষঙ্গ প্রয়োজন ॥৩৬॥\
+> এই মত চৈতন্য-কৃষ্ণ পূর্ণ ভগবান্ ।\
 > যুগধর্মপ্রবর্তন নহে তাঁর কাম ॥৩৭॥
 
-> ei vāñchā yaiche kṛṣṇa-prākaṭya-kāraṇa
+> ei vāñchā yaiche kṛṣṇa-prākaṭya-kāraṇa\
 > asura-saṁhāra—ānuṣaṅga prayojana
 
-> ei mata caitanya-kṛṣṇa pūrṇa bhagavān
+> ei mata caitanya-kṛṣṇa pūrṇa bhagavān\
 > yuga-dharma-pravartana nahe tāṅra kāma
 
 *ei*—este; *vāñchā*—deseo; *yaiche*—así como; *kṛṣṇa*—de Śrī Kṛṣṇa; *prākaṭya*—para la manifestación; *kāraṇa*—razón; *asura-saṁhāra*—matanza de demonios; *ānuṣaṅga*—secundaria; *prayojana*—razón; *ei mata*—como esto; *caitanya*—como Śrī Caitanya Mahāprabhu; *kṛṣṇa*—Śrī Kṛṣṇa; *pūrṇa*—pleno; *bhagavān*—la Suprema Personalidad de Dios; *yuga-dharma*—la religión de esta era; *pravartana*—iniciando; *nahe*—no es; *tāṅra*—de Él; *kāma*—el deseo.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.97
 
-> তোরে নিমন্ত্রণ করি’ পাইনু তার ফল ।
+> তোরে নিমন্ত্রণ করি’ পাইনু তার ফল ।\
 > তোর জাতি-কুল নাহি, সহজে পাগল ॥৯৭॥
 
-> tore nimantraṇa kari' pāinu tāra phala
+> tore nimantraṇa kari' pāinu tāra phala\
 > tora jāti-kula nāhi, sahaje pāgala
 
 *tore*—a Ti; *nimantraṇa*—invitación; *kari'*—haciendo; *pāinu*—he recibido a cambio; *tāra*—de ello; *phala*—el resultado; *tora*—Tu; *jāti-kula nāhi*—no hay indicación de Tu casta ni familia; *sahaje*—por naturaleza; *pāgala*—eres un loco.

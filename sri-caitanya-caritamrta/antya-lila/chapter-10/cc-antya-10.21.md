@@ -1,13 +1,13 @@
 ### CC Antya 10.21
 
-> প্রিয়েণ সংগ্রথ্য বিপক্ষ-সন্নিধা-
-> বুপাহিতাং বক্ষসি পীবরস্তনী ।
-> স্রজং ন কাচিদ্বিজহৌ জলাবিলাং
+> প্রিয়েণ সংগ্রথ্য বিপক্ষ-সন্নিধা-\
+> বুপাহিতাং বক্ষসি পীবরস্তনী ।\
+> স্রজং ন কাচিদ্বিজহৌ জলাবিলাং\
 > বসন্তি হি প্রেম্ণি গুণা ন বস্তুনি ॥২১॥
 
-> priyeṇa saṅgrathya vipakṣa-sannidhāv
-> upāhitāṁ vakṣasi pīvara-stanī
-> srajaṁ na kācid vijahau jalāvilāṁ
+> priyeṇa saṅgrathya vipakṣa-sannidhāv\
+> upāhitāṁ vakṣasi pīvara-stanī\
+> srajaṁ na kācid vijahau jalāvilāṁ\
 > vasanti hi premṇi guṇā na vastuni
 
 *priyeṇa*—by the lover; *saṅgrathya*—after stringing; *vipakṣa-sannidhau*—in the presence of an opposite party; *upāhitām*—placed; *vakṣasi*—on the chest; *pīvara-stanī*—having raised breasts; *srajam*—a garland; *na*—not; *kācit*—some beloved; *vijahau*—rejected; *jala-āvilām*—muddy; *vasanti*—reside; *hi*—because; *premṇi*—in love; *guṇāḥ*—attributes; *na*—not; *vastuni*—in the material things.

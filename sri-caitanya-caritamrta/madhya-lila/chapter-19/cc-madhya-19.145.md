@@ -1,9 +1,9 @@
 ### CC Madhya 19.145
 
-> তার মধ্যে মনুষ্য-জাতি অতি অল্পতর ।
+> তার মধ্যে মনুষ্য-জাতি অতি অল্পতর ।\
 > তার মধ্যে ম্লেচ্ছ, পুলিন্দ, বৌদ্ধ, শবর ॥১৪৫॥
 
-> tāra madhye manuṣya-jāti ati alpatara
+> tāra madhye manuṣya-jāti ati alpatara\
 > tāra madhye mleccha, pulinda, bauddha, śabara
 
 *tāra madhye*—among all such living entities; *manuṣya-jāti*—entities born as human beings; *ati*—very; *alpatara*—small in quantity; *tāra madhye*—among the small quantity of human beings; *mleccha*—uncivilized men who cannot follow the Vedic principles; *pulinda*—unregulated; *bauddha*—followers of Buddhist philosophy; *śabara*—the lowest of men (the hunter class).

@@ -1,9 +1,9 @@
 ### CC Madhya 11.15
 
-> রামানন্দ রায় আইলা গজপতি-সঙ্গে ।
+> রামানন্দ রায় আইলা গজপতি-সঙ্গে ।\
 > প্রথমেই প্রভুরে আসি’ মিলিলা বহুরঙ্গে ॥১৫॥
 
-> rāmānanda rāya āilā gajapati-saṅge
+> rāmānanda rāya āilā gajapati-saṅge\
 > prathamei prabhure āsi' mililā bahu-raṅge
 
 *rāmānanda rāya*—Rāmānanda Rāya; *āilā*—came; *gajapati-saṅge*—with the King; *prathamei*—in the first instance; *prabhure*—unto Lord Caitanya Mahāprabhu; *āsi'*—coming; *mililā*—met; *bahu-raṅge*—with great pleasure.

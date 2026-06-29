@@ -1,11 +1,11 @@
 ### SB 9.6.54
 
-> तत्र तप्त्वा तपस्तीक्ष्णमात्मदर्शनमात्मवान
+> तत्र तप्त्वा तपस्तीक्ष्णमात्मदर्शनमात्मवान\
 > सहैवाग्निभिरात्मानं युयोज परमात्मनि ॥५४॥
 
-> tatra taptvā tapas tīkṣṇam
-> ātma-darśanam ātmavān
-> sahaivāgnibhir ātmānaṁ
+> tatra taptvā tapas tīkṣṇam\
+> ātma-darśanam ātmavān\
+> sahaivāgnibhir ātmānaṁ\
 > yuyoja paramātmani
 
 *tatra*—in the forest; *taptvā*—executing austerity; *tapaḥ*—the regulative principles of austerity; *tīkṣṇam*—very severely; *ātma-darśanam*—which helps self-realization; *ātmavān*—conversant with the self; *saha*—with; *eva*—certainly; *agnibhiḥ*—fires; *ātmānam*—the personal self; *yuyoja*—he engaged; *parama-ātmani*—dealing with the Supreme Soul.

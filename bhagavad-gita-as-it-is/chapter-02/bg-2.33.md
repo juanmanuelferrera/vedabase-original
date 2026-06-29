@@ -1,11 +1,11 @@
 ### Bg 2.33
 
-> अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि ।
+> अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि ।\
 > ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि ॥३३॥
 
-> atha cet tvam imaṁ dharmyaṁ
-> saṅgrāmaṁ na kariṣyasi
-> tataḥ sva-dharmaṁ kīrtiṁ ca
+> atha cet tvam imaṁ dharmyaṁ\
+> saṅgrāmaṁ na kariṣyasi\
+> tataḥ sva-dharmaṁ kīrtiṁ ca\
 > hitvā pāpam avāpsyasi
 
 *atha*—therefore; *cet*—if; *tvam*—you; *imam*—this; *dharmyam*—religious duty; *saṅgrāmam*—fighting; *na*—do not; *kariṣyasi*—perform; *tataḥ*—then; *svadharmam*—your religious duty; *kīrtim*—reputation; *ca*—also; *hitvā*—losing; *pāpam*—sinful reaction; *avāpsyasi*—do gain.

@@ -2,7 +2,7 @@
 
 > तैजसानीन्द्रियाण्येव ज्ञानकर्ममयानि च् ॥३१॥
 
-> taijasānīndriyāṇy eva
+> taijasānīndriyāṇy eva\
 > jñāna-karma-mayāni ca
 
 *taijasāni*—la modalidad de la pasión; *indriyāṇi*—los sentidos; *eva*—ciertamente; *jñāna*—conocimiento, especulaciones filosóficas; *karma*—actividades fruitivas; *mayāni*—predominante; *ca*—también.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.264
 
-> eta tattva mora citte kaile prakāśana
+> eta tattva mora citte kaile prakāśana\
 > brahmāke veda yena paḍāila nārāyaṇa
 
-> eta tattva mora citte kaile prakāśana
+> eta tattva mora citte kaile prakāśana\
 > brahmāke veda yena paḍāila nārāyaṇa
 
 *eta tattva*—todas estas variedades de verdad; *mora citte*—en mi corazón; *kaile*—hiciste; *prakāśana*—manifestar; *brahmāke*—al Señor Brahmā; *veda*—el conocimiento Védico; *yena*—como; *paḍāila*—enseñó; *nārāyaṇa*—el Señor Supremo.

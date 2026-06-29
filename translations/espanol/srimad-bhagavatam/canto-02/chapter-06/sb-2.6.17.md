@@ -1,11 +1,11 @@
 ### SB 2.6.17
 
-> स्वधिष्ण्यं प्रतपन्प्राणो बहिश्च प्रतपत्यसौ ।
+> स्वधिष्ण्यं प्रतपन्प्राणो बहिश्च प्रतपत्यसौ ।\
 > एवं विराजं प्रतपंस्तपत्यन्तर्बहिः पुमान् ॥१७॥
 
-> sva-dhiṣṇyaṁ pratapan prāṇo
-> bahiś ca pratapaty asau
-> evaṁ virājaṁ pratapaṁs
+> sva-dhiṣṇyaṁ pratapan prāṇo\
+> bahiś ca pratapaty asau\
+> evaṁ virājaṁ pratapaṁs\
 > tapaty antar bahiḥ pumān
 
 *sva-dhiṣṇyam*—radiación; *pratapan*—por expansión; *prāṇaḥ*—energía viviente; *bahiḥ*—externa; *ca*—también; *pratapati*—iluminado; *asau*—el Sol; *evam*—de la misma manera; *virājam*—la forma universal; *pratapan*—por expansión de; *tapati*—anima; *antaḥ*—internamente; *bahiḥ*—externamente; *pumān*—la Personalidad Suprema.

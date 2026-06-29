@@ -1,9 +1,9 @@
 ### CC Antya 9.110
 
-> কাহাঁ চাঙ্গে চড়াঞা লয় ধন-প্রাণ !
+> কাহাঁ চাঙ্গে চড়াঞা লয় ধন-প্রাণ !\
 > কাহাঁ সব ছাড়ি’ সেই রাজ্যাদি-প্রদান ! ॥ ১১০ ॥
 
-> kāhāṅ cāṅge caḍāñā laya dhana-prāṇa!
+> kāhāṅ cāṅge caḍāñā laya dhana-prāṇa!\
 > kāhāṅ saba chāḍi' sei rājyādi-pradāna!
 
 *kāhāṅ*—on one hand; *cāṅge*—on the cāṅga; *caḍāñā*—raising; *laya*—takes; *dhana*—wealth; *prāṇa*—life; *kāhāṅ*—on the other hand; *saba*—all; *chāḍi'*—excusing; *sei*—he; *rājya-ādi-pradāna*—awarding the same government post and so on.

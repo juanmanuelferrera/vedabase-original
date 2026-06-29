@@ -1,9 +1,9 @@
 ### CC Adi 4.50
 
-> অতএব সেই ভাব অঙ্গীকার করি’ ।
+> অতএব সেই ভাব অঙ্গীকার করি’ ।\
 > সাধিলেন নিজ বাঞ্ছা গৌরাঙ্গ-শ্রীহরি ॥৫০॥
 
-> ataeva sei bhāva aṅgīkāra kari'
+> ataeva sei bhāva aṅgīkāra kari'\
 > sādhilena nija vāñchā gaurāṅga-śrī-hari
 
 *ataeva*—therefore; *sei bhāva*—that mood; *aṅgīkāra kari'*—accepting; *sādhilena*—fulfilled; *nija*—His own; *vāñchā*—desire; *gaurāṅga*—Lord Caitanya Mahāprabhu; *śrī-hari*—the Supreme Personality of Godhead.

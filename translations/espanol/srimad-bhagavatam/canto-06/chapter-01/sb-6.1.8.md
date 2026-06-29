@@ -1,11 +1,11 @@
 ### SB 6.1.8
 
-> तस्मात्पुरैवाश्विह पापनिष्कृतौ यतेत मृत्योरविपद्यतात्मना
+> तस्मात्पुरैवाश्विह पापनिष्कृतौ यतेत मृत्योरविपद्यतात्मना\
 > दोषस्य दृष्ट्वा गुरुलाघवं यथा भिषक्चिकित्सेत रुजां निदानवित ॥८॥
 
-> tasmāt puraivāśv iha pāpa-niṣkṛtau
-> yateta mṛtyor avipadyatātmanā
-> doṣasya dṛṣṭvā guru-lāghavaṁ yathā
+> tasmāt puraivāśv iha pāpa-niṣkṛtau\
+> yateta mṛtyor avipadyatātmanā\
+> doṣasya dṛṣṭvā guru-lāghavaṁ yathā\
 > bhiṣak cikitseta rujāṁ nidānavit
 
 *tasmāt*—por lo tanto; *purā*—antes; *eva*—en verdad; *āśu*—con gran rapidez; *iha*—en esta vida; *pāpa-niṣkṛtau*—para liberarnos de las reacciones de las actividades pecaminosas; *yateta*—debemos esforzarnos; *mṛtyoḥ*—muerte; *avipadyata*—no afectado por las enfermedades y la vejez; *ātmanā*—con un cuerpo; *doṣasya*—de las actividades pecaminosas; *dṛṣṭvā*—considerando; *guru-lāghavam*—la pesadez o ligereza; *yathā*—tal como; *bhiṣak*—un médico; *cikitseta*—trataría; *rujām*—de enfermedad; *nidāna-vit*—del experto en diagnosticar.

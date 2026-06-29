@@ -1,8 +1,8 @@
 ### CC Antya 6.285
 
-> তথাহি — কিমর্থময়মাগচ্ছতি,
-> অয়ং দাস্যতি, অনেন দত্তময়-মপরঃ ।
-> সমেত্যয়ং দাস্যতি, অনেনাপি ন
+> তথাহি — কিমর্থময়মাগচ্ছতি,\
+> অয়ং দাস্যতি, অনেন দত্তময়-মপরঃ ।\
+> সমেত্যয়ং দাস্যতি, অনেনাপি ন\
 > দত্তমন্যঃ সমেষ্যতি, স দাস্যতি ইত্যাদি ॥২৮৫॥
 
 > kim artham ayam āgacchati, ayaṁ dāsyati, anena dattam ayam aparaḥ. samety ayaṁ dāsyati, anenāpi na dattam anyaḥ sameṣyati, sa dāsyati ity ādi.

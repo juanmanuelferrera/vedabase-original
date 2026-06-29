@@ -1,11 +1,11 @@
 ### SB 9.10.55
 
-> एकपत्नीव्रतधरो राजर्षिचरितः शुचिः
+> एकपत्नीव्रतधरो राजर्षिचरितः शुचिः\
 > स्वधर्मं गृहमेधीयं शिक्षयन्स्वयमाचरत ॥५५॥
 
-> premṇānuvṛttyā śīlena
-> praśrayāvanatā satī
-> bhiyā hriyā ca bhāva-jñā
+> premṇānuvṛttyā śīlena\
+> praśrayāvanatā satī\
+> bhiyā hriyā ca bhāva-jñā\
 > bhartuḥ sītāharan manaḥ
 
 *premṇā anuvṛttyā*—because of service rendered to the husband with love and faith; *śīlena*—by such good character; *praśraya-avanatā*—always very submissive and ready to satisfy the husband; *satī*—chaste; *bhiyā*—by being afraid; *hriyā*—by shyness; *ca*—also; *bhāva-jñā*—understanding the attitude (of the husband); *bhartuḥ*—of her husband, Lord Rāmacandra; *sītā*—mother Sītā; *aharat*—simply captivated; *manaḥ*—the mind.

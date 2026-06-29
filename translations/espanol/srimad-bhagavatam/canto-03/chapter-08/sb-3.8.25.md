@@ -1,11 +1,11 @@
 ### SB 3.8.25
 
-> आयामतो विस्तरतः स्वमान देहेन लोकत्रयसङ्ग्रहेण ।
+> आयामतो विस्तरतः स्वमान देहेन लोकत्रयसङ्ग्रहेण ।\
 > विचित्रदिव्याभरणांशुकानां कृतश्रियापाश्रितवेषदेहम् ॥२५॥
 
-> āyāmato vistarataḥ sva-māna-
-> dehena loka-traya-saṅgraheṇa
-> vicitra-divyābharaṇāṁśukānāṁ
+> āyāmato vistarataḥ sva-māna-\
+> dehena loka-traya-saṅgraheṇa\
+> vicitra-divyābharaṇāṁśukānāṁ\
 > kṛta-śriyāpāśrita-veṣa-deham
 
 *āyāmataḥ*—a lo largo; *vistarataḥ*—a lo ancho; *sva-māna*—por Su propia medida; *dehena*—por el cuerpo trascendental; *loka-traya*—los tres sistemas planetarios (superior, medio e inferior); *saṅgraheṇa*—mediante la absorción total; *vicitra*—variado; *divya*—trascendental; *ābharaṇa-aṁśukānām*—rayos de los adornos; *kṛta-śriyā apāśrita*—belleza creada por esas ropas y adornos; *veṣa*—vestido; *deham*—cuerpo trascendental.

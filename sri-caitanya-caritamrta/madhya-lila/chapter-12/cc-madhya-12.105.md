@@ -1,9 +1,9 @@
 ### CC Madhya 12.105
 
-> শত ঘট জলে হৈল মন্দির মার্জন  ।
+> শত ঘট জলে হৈল মন্দির মার্জন  ।\
 > মন্দির শোধিয়া কৈল — যেন নিজ মন ॥১০৫॥
 
-> śata ghaṭa jale haila mandira mārjana
+> śata ghaṭa jale haila mandira mārjana\
 > mandira śodhiyā kaila-yena nija mana
 
 *śata*—one hundred; *ghaṭa*—of waterpots; *jale*—by the water; *haila*—became; *mandira*—the temple; *mārjana*—cleansed; *mandira*—the temple; *śodhiyā*—cleansing; *kaila*—did; *yena*—as if; *nija mana*—his own mind.

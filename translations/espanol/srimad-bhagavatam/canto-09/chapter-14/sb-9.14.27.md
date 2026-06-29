@@ -1,11 +1,11 @@
 ### SB 9.14.27
 
-> ते उपेत्य महारात्रे तमसि प्रत्युपस्थिते
+> ते उपेत्य महारात्रे तमसि प्रत्युपस्थिते\
 > उर्वश्या उरणौ जह्रुर्न्यस्तौ राजनि जायया ॥२७॥
 
-> te upetya mahā-rātre
-> tamasi pratyupasthite
-> urvaśyā uraṇau jahrur
+> te upetya mahā-rātre\
+> tamasi pratyupasthite\
+> urvaśyā uraṇau jahrur\
 > nyastau rājani jāyayā
 
 *te*—ellos, los *gandharvas*; *upetya*—llegando allí; *mahā-rātre*—en lo más oscuro de la noche; *tamasi*—cuando la oscuridad; *pratyupasthite*—apareció; *urvaśyā*—por Urvaśī; *uraṇau*—dos corderos; *jahruḥ*—robaron; *nyastau*—confiados; *rājani*—al rey; *jāyayā*—por su esposa, Urvaśī.

@@ -1,11 +1,11 @@
 ### SB 7.14.36
 
-> जीवराशिभिराकीर्ण अण्डकोशाङ्घ्रिपो महान
+> जीवराशिभिराकीर्ण अण्डकोशाङ्घ्रिपो महान\
 > तन्मूलत्वादच्युतेज्या सर्वजीवात्मतर्पणम ॥३६॥
 
-> jīva-rāśibhir ākīrṇa
-> aṇḍa-kośāṅghripo mahān
-> tan-mūlatvād acyutejyā
+> jīva-rāśibhir ākīrṇa\
+> aṇḍa-kośāṅghripo mahān\
+> tan-mūlatvād acyutejyā\
 > sarva-jīvātma-tarpaṇam
 
 *jīva-rāśibhiḥ*—por millones de millones de entidades vivientes; *ākīrṇaḥ*—lleno o poblado; *aṇḍa-kośa*—el universo entero; *aṅghripaḥ*—como un árbol; *mahān*—grandísimo; *tat-mūlatvāt*—por ser la raíz de ese árbol; *acyuta-ijyā*—adoración de la Suprema Personalidad de Dios; *sarva*—de todas; *jīva-ātma*—las entidades vivientes; *tarpaṇam*—satisfacción.

@@ -1,11 +1,11 @@
 ### SB 6.5.25
 
-> ते च पित्रा समादिष्टाः प्रजासर्गे धृतव्रताः
+> ते च पित्रा समादिष्टाः प्रजासर्गे धृतव्रताः\
 > नारायणसरो जग्मुर्यत्र सिद्धाः स्वपूर्वजाः ॥२५॥
 
-> te ca pitrā samādiṣṭāḥ
-> prajā-sarge dhṛta-vratāḥ
-> nārāyaṇa-saro jagmur
+> te ca pitrā samādiṣṭāḥ\
+> prajā-sarge dhṛta-vratāḥ\
+> nārāyaṇa-saro jagmur\
 > yatra siddhāḥ sva-pūrvajāḥ
 
 *te*—these sons (the Savalāśvas); *ca*—and; *pitrā*—by their father; *samādiṣṭāḥ*—being ordered; *prajā-sarge*—in increasing progeny or population; *dhṛta-vratāḥ*—accepted vows; *nārāyaṇa-saraḥ*—the holy lake named Nārāyaṇa-saras; *jagmuḥ*—went to; *yatra*—where; *siddhāḥ*—perfected; *sva-pūrva-jāḥ*—their older brothers, who had previously gone there.

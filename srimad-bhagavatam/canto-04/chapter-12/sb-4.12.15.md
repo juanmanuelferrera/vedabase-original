@@ -1,11 +1,11 @@
 ### SB 4.12.15
 
-> मन्यमान इदं विश्वं मायारचितमात्मनि ।
+> मन्यमान इदं विश्वं मायारचितमात्मनि ।\
 > अविद्यारचितस्वप्नगन्धर्वनगरोपमम् ॥१५॥
 
-> manyamāna idaṁ viśvaṁ
-> māyā-racitam ātmani
-> avidyā-racita-svapna-
+> manyamāna idaṁ viśvaṁ\
+> māyā-racitam ātmani\
+> avidyā-racita-svapna-\
 > gandharva-nagaropamam
 
 *manyamānaḥ*—realizing; *idam*—this; *viśvam*—universe; *māyā*—by the external energy; *racitam*—manufactured; *ātmani*—unto the living entity; *avidyā*—by illusion; *racita*—manufactured; *svapna*—a dream; *gandharva-nagara*—phantasmagoria; *upamam*—like.

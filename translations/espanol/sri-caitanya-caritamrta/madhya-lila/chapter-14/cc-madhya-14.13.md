@@ -1,11 +1,11 @@
 ### CC Madhya 14.13
 
-> তব কথামৃতং তপ্তজীবনং, কবিভিরীড়িতং কল্মষাপহম্ ।
+> তব কথামৃতং তপ্তজীবনং, কবিভিরীড়িতং কল্মষাপহম্ ।\
 > শ্রবণমঙ্গলং শ্রীমদাততং, ভুবি গৃণন্তি যে ভূরিদা জনাঃ ॥১৩॥
 
-> tava kathāmṛtaṁ tapta-jīvanaṁ
-> kavibhir īḍitaṁ kalmaṣāpaham
-> śravaṇa-maṅgalaṁ śrīmad-ātataṁ
+> tava kathāmṛtaṁ tapta-jīvanaṁ\
+> kavibhir īḍitaṁ kalmaṣāpaham\
+> śravaṇa-maṅgalaṁ śrīmad-ātataṁ\
 > bhuvi gṛṇanti ye bhūridā janāḥ
 
 *tava*—Tus; *kathā-amṛtam*—el néctar de las palabras; *tapta-jīvanam*—vida para las personas muy afligidas en el mundo material; *kavibhiḥ*—por personalidades grandemente exaltadas; *īḍitam*—descrito; *kalmaṣa-apaham*—aquello que disipa toda clase de reacciones pecaminosas; *śravaṇa-maṅgalam*—que otorga toda clase de beneficio espiritual a quien lo escucha; *śrī-mat*—colmado de toda potencia espiritual; *ātatam*—difundido por todo el mundo; *bhuvi*—en el mundo material; *gṛṇanti*—cantan y difunden; *ye*—aquellos que; *bhūri-dāḥ*—los más benefactores; *janāḥ*—personas.

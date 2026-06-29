@@ -1,9 +1,9 @@
 ### CC Madhya 15.209
 
-> কেয়াপত্র-কলাখোলা-ডোঙ্গা সারি সারি ।
+> কেয়াপত্র-কলাখোলা-ডোঙ্গা সারি সারি ।\
 > চারিদিকে ধরিয়াছে নানা ব্যঞ্জন ভরি’ ॥২০৯॥
 
-> keyāpatra-kalākholā-ḍoṅgā sāri sāri
+> keyāpatra-kalākholā-ḍoṅgā sāri sāri\
 > cāri-dike dhariyāche nānā vyañjana bhari'
 
 *keyā-patra*—la hoja de la planta keyā; *kalā-kholā*—la corteza del banano; *ḍoṅgā*—recipientes; *sāri sāri*—uno tras otro; *cāri-dike*—por todos los lados; *dhariyāche*—sostenían; *nānā*—diversas; *vyañjana*—verduras cocidas; *bhari'*—llenos.

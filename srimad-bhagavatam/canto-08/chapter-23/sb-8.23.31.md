@@ -1,11 +1,11 @@
 ### SB 8.23.31
 
-> क्रियमाणे कर्मणीदं दैवे पित्र्येऽथ मानुषे
+> क्रियमाणे कर्मणीदं दैवे पित्र्येऽथ मानुषे\
 > यत्र यत्रानुकीर्त्येत तत्तेषां सुकृतं विदुः ॥३१॥
 
-> kriyamāṇe karmaṇīdaṁ
-> daive pitrye 'tha mānuṣe
-> yatra yatrānukīrtyeta
+> kriyamāṇe karmaṇīdaṁ\
+> daive pitrye 'tha mānuṣe\
+> yatra yatrānukīrtyeta\
 > tat teṣāṁ sukṛtaṁ viduḥ
 
 *kriyamāṇe*—upon the performance; *karmaṇi*—of a ritualistic ceremony; *idam*—this description of the characteristics of Vāmanadeva; *daive*—to please the demigods; *pitrye*—or to please the forefathers, as in a *śrāddha* ceremony; *atha*—either; *mānuṣe*—for the pleasure of human society, as in marriages; *yatra*—wherever; *yatra*—whenever; *anukīrtyeta*—is described; *tat*—that; *teṣām*—for them; *sukṛtam*—auspicious; *viduḥ*—everyone should understand.

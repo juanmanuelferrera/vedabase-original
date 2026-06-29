@@ -1,11 +1,11 @@
 ### SB 1.1.18
 
-> अथाख्याहि हरेर्धीमन्नवतारकथाः शुभाः ।
+> अथाख्याहि हरेर्धीमन्नवतारकथाः शुभाः ।\
 > ईला विदधतः स्वैरमीश्वरस्यात्ममायया ॥१८॥
 
-> athākhyāhi harer dhīmann
-> avatāra-kathāḥ śubhāḥ
-> līlā vidadhataḥ svairam
+> athākhyāhi harer dhīmann\
+> avatāra-kathāḥ śubhāḥ\
+> līlā vidadhataḥ svairam\
 > īśvarasyātma-māyayā
 
 *atha*—therefore; *ākhyāhi*—describe; *hareḥ*—of the Lord; *dhīman*—O sagacious one; *avatāra*—incarnations; *kathāḥ*—narratives; *śubhāḥ*—auspicious; *līlā*—adventures; *vidadhataḥ*—performed; *svairam*—pastimes; *īśvarasya*—of the supreme controller; *ātma*—personal; *māyayā*—energies.

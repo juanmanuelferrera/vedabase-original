@@ -1,13 +1,13 @@
 ### CC Madhya 21.15
 
-> দ্যুপতয় এব তে ন যযুরন্তমনন্ততয়া
-> ত্বমপি যদন্তরাণ্ডনিচয়া ননু সাবরণাঃ ।
-> খ ইব রজাংসি বান্তি বয়সা সহ যচ্ছ্রুতয়-
+> দ্যুপতয় এব তে ন যযুরন্তমনন্ততয়া\
+> ত্বমপি যদন্তরাণ্ডনিচয়া ননু সাবরণাঃ ।\
+> খ ইব রজাংসি বান্তি বয়সা সহ যচ্ছ্রুতয়-\
 > স্ত্বয়ি হি ফলন্ত্যতন্নিরসনেন ভবন্নিধনাঃ ॥১৫॥
 
-> dyu-pataya eva te na yayur antam anantatayā
-> tvam api yad antarāṇḍa-nicayā nanu sāvaraṇāḥ
-> kha iva rajāṁsi vānti vayasā saha yac chrutayas
+> dyu-pataya eva te na yayur antam anantatayā\
+> tvam api yad antarāṇḍa-nicayā nanu sāvaraṇāḥ\
+> kha iva rajāṁsi vānti vayasā saha yac chrutayas\
 > tvayi hi phalanty atannirasanena bhavan-nidhanāḥ
 
 *dyu-patayaḥ*—las deidades predominantes de los sistemas planetarios superiores (el Señor Brahmā y otros); *eva*—también; *te*—Tus; *na*—no; *yayuḥ*—pudieron alcanzar; *antam*—el límite de las cualidades trascendentales; *anantatayā*—por ser ilimitadas; *tvam api*—Tú también; *yat*—puesto que; *antara*—dentro de Ti; *aṇḍa-nicayāḥ*—los grupos de universos; *nanu*—oh, señor; *sāvaraṇāḥ*—con sus diferentes coberturas; *khe*—en el cielo; *iva*—como; *rajāṁsi*—átomos; *vānti*—rotan; *vayasā*—el curso del tiempo; *saha*—con; *yat*—lo que; *śrutayaḥ*—grandes personalidades que comprenden los Vedas; *tvayi*—en Ti; *hi*—ciertamente; *phalanti*—concluyen en; *atannirasanena*—refutando los elementos inferiores; *bhavat-nidhanāḥ*—cuya conclusión se halla en Ti.

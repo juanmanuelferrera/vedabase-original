@@ -1,9 +1,9 @@
 ### CC Adi 4.172
 
-> অতএব গোপীগণের নাহি কামগন্ধ ।
+> অতএব গোপীগণের নাহি কামগন্ধ ।\
 > কৃষ্ণসুখ লাগি মাত্র, কৃষ্ণ সে সম্বন্ধ ॥১৭২॥
 
-> ataeva gopī-gaṇera nāhi kāma-gandha
+> ataeva gopī-gaṇera nāhi kāma-gandha\
 > kṛṣṇa-sukha lāgi mātra, kṛṣṇa se sambandha
 
 *ataeva*—therefore; *gopī-gaṇera*—of the *gopīs*; *nāhi*—not; *kāma-gandha*—the slightest bit of lust; *kṛṣṇa-sukha*—the happiness of Lord Kṛṣṇa; *lāgi*—for; *mātra*—only; *kṛṣṇa*—Lord Kṛṣṇa; *se*—that; *sambandha*—the relationship.

@@ -1,18 +1,18 @@
 ### SB 9.24.63-64
 
-> भोजवृष्ण्यन्धकमधु शूरसेनदशार्हकैः
-> श्लाघनीयेहितः शश्वत्कुरुसृञ्जयपाण्डुभिः ॥६३॥
-> स्निग्धस्मितेक्षितोदारैर्वाक्यैर्विक्रमलीलया
+> भोजवृष्ण्यन्धकमधु शूरसेनदशार्हकैः\
+> श्लाघनीयेहितः शश्वत्कुरुसृञ्जयपाण्डुभिः ॥६३॥\
+> स्निग्धस्मितेक्षितोदारैर्वाक्यैर्विक्रमलीलया\
 > नृलोकं रमयामास मूर्त्या सर्वाङ्गरम्यया ॥६४॥
 
-> bhoja-vṛṣṇy-andhaka-madhu-
-> śūrasena-daśārhakaiḥ
-> ślāghanīyehitaḥ śaśvat
+> bhoja-vṛṣṇy-andhaka-madhu-\
+> śūrasena-daśārhakaiḥ\
+> ślāghanīyehitaḥ śaśvat\
 > kuru-sṛñjaya-pāṇḍubhiḥ
 
-> snigdha-smitekṣitodārair
-> vākyair vikrama-līlayā
-> nṛlokaṁ ramayām āsa
+> snigdha-smitekṣitodārair\
+> vākyair vikrama-līlayā\
+> nṛlokaṁ ramayām āsa\
 > mūrtyā sarvāṅga-ramyayā
 
 *bhoja*—asistido por la dinastía Bhoja; *vṛṣṇi*—y por los Vṛṣṇis; *andhaka*—y por los Andhakas; *madhu*—y por los Madhus; *śūrasena*—y por los Śūrasenas; *daśārhakaiḥ*—y por los Daśārhakas; *ślāghanīya*—por los dignos de alabanza; *īhitaḥ*—esforzarse; *śaśvat*—siempre; *kuru-sṛñjaya-pāṇḍubhiḥ*—asistido por los Pāṇḍavas, Kurus y Sṛñjayas; *snigdha*—cariñoso; *smita*—sonrisa; *īkṣita*—ser considerado; *udāraiḥ*—magnánimas; *vākyaiḥ*—las instrucciones; *vikrama-līlayā*—los pasatiempos heroicos; *nṛ-lokam*—a la sociedad humana; *ramayām āsa*—complació; *mūrtyā*—con Su forma personal; *sarva-aṅga-ramyayā*—la forma que complace a todos con todas las partes del cuerpo.

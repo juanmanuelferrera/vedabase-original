@@ -1,11 +1,11 @@
 ### SB 7.11.6
 
-> योऽवतीर्यात्मनोऽंशेन दाक्षायण्यां तु धर्मतः
+> योऽवतीर्यात्मनोऽंशेन दाक्षायण्यां तु धर्मतः\
 > लोकानां स्वस्तयेऽध्यास्ते तपो बदरिकाश्रमे ॥६॥
 
-> yo 'vatīryātmano 'ṁśena
-> dākṣāyaṇyāṁ tu dharmataḥ
-> lokānāṁ svastaye 'dhyāste
+> yo 'vatīryātmano 'ṁśena\
+> dākṣāyaṇyāṁ tu dharmataḥ\
+> lokānāṁ svastaye 'dhyāste\
 > tapo badarikāśrame
 
 *yaḥ*—He who (Lord Nārāyaṇa); *avatīrya*—adventing; *ātmanaḥ*—of Himself; *aṁśena*—with a part (Nara); *dākṣāyaṇyām*—in the womb of Dākṣāyaṇī, the daughter of Mahārāja Dakṣa; *tu*—indeed; *dharmataḥ*—from Dharma Mahārāja; *lokānām*—of all people; *svastaye*—for the benefit of; *adhyāste*—executes; *tapaḥ*—austerity; *badarikāśrame*—in the place known as Badarikāśrama.

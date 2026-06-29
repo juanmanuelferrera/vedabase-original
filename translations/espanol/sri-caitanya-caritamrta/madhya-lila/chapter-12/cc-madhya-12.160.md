@@ -1,9 +1,9 @@
 ### CC Madhya 12.160
 
-> ‘হরিদাস’ বলি’ প্রভু ডাকে ঘনে ঘন  ।
+> ‘হরিদাস’ বলি’ প্রভু ডাকে ঘনে ঘন  ।\
 > দূরে রহি’ হরিদাস করে নিবেদন ॥১৬০॥
 
-> 'haridāsa' bali' prabhu ḍāke ghane ghana
+> 'haridāsa' bali' prabhu ḍāke ghane ghana\
 > dūre rahi' haridāsa kare nivedana
 
 *haridāsa bali'*—llamando a Haridāsa; *prabhu*—Śrī Caitanya Mahāprabhu; *ḍāke*—llama; *ghane ghana*—repetidamente; *dūre rahi'*—manteniéndose a distancia; *haridāsa*—Ṭhākura Haridāsa; *kare nivedana*—presentó una súplica.

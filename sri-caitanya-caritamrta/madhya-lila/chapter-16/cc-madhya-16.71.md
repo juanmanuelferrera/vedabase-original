@@ -1,9 +1,9 @@
 ### CC Madhya 16.71
 
-> তেঁহো কহে, — “কে বৈষ্ণব, কি তাঁর লক্ষণ ?”
+> তেঁহো কহে, — “কে বৈষ্ণব, কি তাঁর লক্ষণ ?”\
 > তবে হাসি’ কহে প্রভু জানি’ তাঁর মন ॥৭১॥
 
-> teṅho kahe,—"ke vaiṣṇava, ki tāṅra lakṣaṇa?"
+> teṅho kahe,—"ke vaiṣṇava, ki tāṅra lakṣaṇa?"\
 > tabe hāsi' kahe prabhu jāni' tāṅra mana
 
 *teṅho kahe*—he said; *ke*—who; *vaiṣṇava*—a Vaiṣṇava; *ki*—what; *tāṅra*—of him; *lakṣaṇa*—the symptoms; *tabe*—thereafter; *hāsi'*—smiling; *kahe*—says; *prabhu*—Śrī Caitanya Mahāprabhu; *jāni'*—knowing; *tāṅra mana*—his mind.

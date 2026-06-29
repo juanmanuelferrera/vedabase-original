@@ -1,9 +1,9 @@
 ### CC Adi 10.62
 
-> চৈতন্যদাস, রামদাস, আর কর্ণপূর ।
+> চৈতন্যদাস, রামদাস, আর কর্ণপূর ।\
 > তিন পুত্র শিবানন্দের প্রভুর ভক্তশূর ॥৬২॥
 
-> caitanya-dāsa, rāmadāsa, āra karṇapūra
+> caitanya-dāsa, rāmadāsa, āra karṇapūra\
 > tina putra śivānandera prabhura bhakta-śūra
 
 *caitanya-dāsa*—de nombre Caitanya dāsa; *rāmadāsa*—de nombre Rāmadāsa; *āra*—y; *karṇapūra*—de nombre Karṇapūra; *tina putra*—tres hijos; *śivānandera*—de Śivānanda Sena; *prabhura*—del Señor; *bhakta-śūra*—de los devotos heroicos.

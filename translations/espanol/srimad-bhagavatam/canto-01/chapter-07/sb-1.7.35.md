@@ -1,11 +1,11 @@
 ### SB 1.7.35
 
-> मैनं पार्थार्हसि त्रातुं ब्रह्मबन्धुमिमं जहि ।
+> मैनं पार्थार्हसि त्रातुं ब्रह्मबन्धुमिमं जहि ।\
 > योऽसावनागसः सुप्तानवधीन्निशि बालकान् ॥३५॥
 
-> mainaṁ pārthārhasi trātuṁ
-> brahma-bandhum imaṁ jahi
-> yo 'sāv anāgasaḥ suptān
+> mainaṁ pārthārhasi trātuṁ\
+> brahma-bandhum imaṁ jahi\
+> yo 'sāv anāgasaḥ suptān\
 > avadhīn niśi bālakān
 
 *mā enam*—nunca a él; *pārtha*—¡oh, Arjuna!; *arhasi*—has de; *trātum*—liberar; *brahma-bandhum*—un pariente de un *brāhmaṇa*; *imam*—él; *jahi*—mata; *yaḥ*—él (quien ha); *asau*—esos; *anāgasaḥ*—sin culpa; *suptān*—mientras dormían; *avadhīt*—mató; *niśi*—de noche; *bālakān*—los niños.

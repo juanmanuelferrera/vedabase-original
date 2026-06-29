@@ -1,11 +1,11 @@
 ### SB 3.26.57
 
-> रेतस्तस्मादाप आसन्निरभिद्यत वै गुदम् ।
+> रेतस्तस्मादाप आसन्निरभिद्यत वै गुदम् ।\
 > गुदादपानोऽपानाच्च मृत्युर्लोकभयङ्करः ॥५७॥
 
-> retas tasmād āpa āsan
-> nirabhidyata vai gudam
-> gudād apāno 'pānāc ca
+> retas tasmād āpa āsan\
+> nirabhidyata vai gudam\
+> gudād apāno 'pānāc ca\
 > mṛtyur loka-bhayaṅkaraḥ
 
 *retaḥ*—semen; *tasmāt*—de ese; *āpaḥ*—el dios que rige las aguas; *āsan*—apareció; *nirabhidyata*—se manifestó; *vai*—ciertamente; *gudam*—un ano; *gudāt*—del ano; *apānāḥ*—el órgano de defecación; *apānāt*—del órgano de defecación; *ca*—y; *mṛtyuḥ*—la muerte; *loka-bhayam-karaḥ*—causando temor en todo el universo.

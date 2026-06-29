@@ -1,18 +1,18 @@
 ### SB 1.17.10-11
 
-> यस्य राष्ट्रे प्रजाः सर्वास्त्रस्यन्ते साध्व्यसाधुभिः ।
-> तस्य मत्तस्य नश्यन्ति कीर्तिरायुर्भगो गतिः ॥१०॥
-> एष राज्ञां परो धर्मो ह्यार्तानामार्तिनिग्रहः ।
+> यस्य राष्ट्रे प्रजाः सर्वास्त्रस्यन्ते साध्व्यसाधुभिः ।\
+> तस्य मत्तस्य नश्यन्ति कीर्तिरायुर्भगो गतिः ॥१०॥\
+> एष राज्ञां परो धर्मो ह्यार्तानामार्तिनिग्रहः ।\
 > अत एनं वधिष्यामि भूतद्रुहमसत्तमम् ॥११॥
 
-> yasya rāṣṭre prajāḥ sarvās
-> trasyante sādhvy asādhubhiḥ
-> tasya mattasya naśyanti
+> yasya rāṣṭre prajāḥ sarvās\
+> trasyante sādhvy asādhubhiḥ\
+> tasya mattasya naśyanti\
 > kīrtir āyur bhago gatiḥ
 
-> eṣa rājñāṁ paro dharmo
-> hy ārtānām ārti-nigrahaḥ
-> ata enaṁ vadhiṣyāmi
+> eṣa rājñāṁ paro dharmo\
+> hy ārtānām ārti-nigrahaḥ\
+> ata enaṁ vadhiṣyāmi\
 > bhūta-druham asattamam
 
 *yasya*—aquel que; *rāṣṭre*—en el Estado; *prajāḥ*—seres vivientes; *sarvāḥ*—absolutamente todos; *trasyante*—están aterrados; *sādhvi*—¡oh, tú, que eres casta!; *asādhubhiḥ*—por los herejes; *tasya*—su; *mattasya*—de los engañados; *naśyanti*—desaparece; *kīrtiḥ*—fama; *āyuḥ*—la duración de la vida; *bhagaḥ*—fortuna; *gatiḥ*—buen nacimiento; *eṣaḥ*—estos son; *rājñām*—de los reyes; *paraḥ*—superior; *dharmaḥ*—ocupación; *hi*—ciertamente; *ārtānām*—de los que sufren; *ārti*—sufrimientos; *nigrahaḥ*—subyugando; *ataḥ*—por lo tanto; *enam*—este hombre; *vadhiṣyāmi*—he de matar; *bhūta-druham*—insurrecto que se opone a otros seres vivos; *asat-tamam*—el muy despreciable.

@@ -1,11 +1,11 @@
 ### SB 6.1.66
 
-> यतस्ततश्चोपनिन्ये न्यायतोऽन्यायतो धनम
+> यतस्ततश्चोपनिन्ये न्यायतोऽन्यायतो धनम\
 > बभारास्याः कुटुम्बिन्याः कुटुम्बं मन्दधीरयम ॥६६॥
 
-> yatas tataś copaninye
-> nyāyato 'nyāyato dhanam
-> babhārāsyāḥ kuṭumbinyāḥ
+> yatas tataś copaninye\
+> nyāyato 'nyāyato dhanam\
+> babhārāsyāḥ kuṭumbinyāḥ\
 > kuṭumbaṁ manda-dhīr ayam
 
 *yataḥ tataḥ*—siempre y cuando fuese posible; *ca*—y; *upaninye*—obtuvo; *nyāyataḥ*—del modo correcto; *anyāyataḥ*—incorrectamente; *dhanam*—dinero; *babhāra*—mantuvo; *asyāḥ*—de ella; *kuṭum-binyāḥ*—que tenía muchos hijos e hijas; *kuṭumbam*—a la familia; *manda-dhīḥ*—privado por completo de inteligencia; *ayam*—esa persona (Ajāmila).

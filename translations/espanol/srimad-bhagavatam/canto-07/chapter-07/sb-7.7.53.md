@@ -1,11 +1,11 @@
 ### SB 7.7.53
 
-> ततो हरौ भगवति भक्तिं कुरुत दानवाः
+> ततो हरौ भगवति भक्तिं कुरुत दानवाः\
 > आत्मौपम्येन सर्वत्र सर्वभूतात्मनीश्वरे ॥५३॥
 
-> tato harau bhagavati
-> bhaktiṁ kuruta dānavāḥ
-> ātmaupamyena sarvatra
+> tato harau bhagavati\
+> bhaktiṁ kuruta dānavāḥ\
+> ātmaupamyena sarvatra\
 > sarva-bhūtātmanīśvare
 
 *tataḥ*—por lo tanto; *harau*—al Señor Hari; *bhagavati*—la Suprema Personalidad de Dios; *bhaktim*—servicio devocional; *kuruta*—practiquen; *dānavāḥ*—¡oh, queridos amigos!, ¡oh, hijos de demonios!; *ātma-aupamyena*—como al propio ser; *sarvatra*—en todas partes; *sarva-bhūta-ātmani*—que está situado como alma y Superalma de todas las entidades vivientes; *īśvare*—al Señor Supremo, el controlador.

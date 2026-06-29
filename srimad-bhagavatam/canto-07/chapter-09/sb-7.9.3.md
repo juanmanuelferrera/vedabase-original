@@ -1,11 +1,11 @@
 ### SB 7.9.3
 
-> प्रह्रादं प्रेषयामास ब्रह्मावस्थितमन्तिके
+> प्रह्रादं प्रेषयामास ब्रह्मावस्थितमन्तिके\
 > तात प्रशमयोपेहि स्वपित्रे कुपितं प्रभुम ॥३॥
 
-> prahrādaṁ preṣayām āsa
-> brahmāvasthitam antike
-> tāta praśamayopehi
+> prahrādaṁ preṣayām āsa\
+> brahmāvasthitam antike\
+> tāta praśamayopehi\
 > sva-pitre kupitaṁ prabhum
 
 *prahrādam*—Prahlāda Mahārāja; *preṣayām āsa*—requested; *brahmā*—Lord Brahmā; *avasthitam*—being situated; *antike*—very near; *tāta*—my dear son; *praśamaya*—just try to appease; *upehi*—go near; *sva-pitre*—because of your father's demoniac activities; *kupitam*—greatly angered; *prabhum*—the Lord.

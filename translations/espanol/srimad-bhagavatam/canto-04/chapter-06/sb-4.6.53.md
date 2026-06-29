@@ -1,11 +1,11 @@
 ### SB 4.6.53
 
-> एष ते रुद्र भागोऽस्तु यदुच्छिष्टोऽध्वरस्य वै ।
+> एष ते रुद्र भागोऽस्तु यदुच्छिष्टोऽध्वरस्य वै ।\
 > यज्ञस्ते रुद्र भागेन कल्पतामद्य यज्ञहन् ॥५३॥
 
-> eṣa te rudra bhāgo 'stu
-> yad-ucchiṣṭo 'dhvarasya vai
-> yajñas te rudra bhāgena
+> eṣa te rudra bhāgo 'stu\
+> yad-ucchiṣṭo 'dhvarasya vai\
+> yajñas te rudra bhāgena\
 > kalpatām adya yajña-han
 
 *eṣaḥ*—esta; *te*—tu; *rudra*—¡oh, Señor Śiva!; *bhāgaḥ*—porción; *astu*—que haya; *yat*—lo que; *ucchiṣṭaḥ*—que haya quedado; *adhvarasya*—del sacrificio; *vai*—ciertamente; *yajñaḥ*—el sacrificio; *te*—tu; *rudra*—¡oh, Rudra!; *bhāgena*—por la porción; *kalpatām*—se complete; *adya*—hoy; *yajña-han*—¡oh, destructor del sacrificio!.

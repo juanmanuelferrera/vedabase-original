@@ -1,11 +1,11 @@
 ### SB 6.3.17
 
-> तस्यात्मतन्त्रस्य हरेरधीशितुः परस्य मायाधिपतेर्महात्मनः
+> तस्यात्मतन्त्रस्य हरेरधीशितुः परस्य मायाधिपतेर्महात्मनः\
 > प्रायेण दूता इह वै मनोहराश्चरन्ति तद्रूपगुणस्वभावाः ॥१७॥
 
-> tasyātma-tantrasya harer adhīśituḥ
-> parasya māyādhipater mahātmanaḥ
-> prāyeṇa dūtā iha vai manoharāś
+> tasyātma-tantrasya harer adhīśituḥ\
+> parasya māyādhipater mahātmanaḥ\
+> prāyeṇa dūtā iha vai manoharāś\
 > caranti tad-rūpa-guṇa-svabhāvāḥ
 
 *tasya*—de Él; *ātma-tantrasya*—ser autosuficiente, sin depender de ninguna otra persona; *hareḥ*—la Suprema Personalidad de Dios; *adhīśituḥ*—que es el amo de todo; *parasya*—la Realidad Trascendental; *māyā-adhipateḥ*—el amo de la energía ilusoria; *mahā-ātmanaḥ*—del Alma Suprema; *prāyeṇa*—casi; *dūtāḥ*—los sirvientes; *iha*—en este mundo; *vai*—en verdad; *manoharāḥ*—de trato y rasgos corporales agradables; *caranti*—se mueven; *tat*—de Él; *rūpa*—con el aspecto físico; *guṇa*—las cualidades trascendentales; *svabhāvāḥ*—y naturaleza.

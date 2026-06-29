@@ -1,9 +1,9 @@
 ### CC Antya 3.142
 
-> প্রসিদ্ধা বৈষ্ণবী হৈল পরম-মহান্তী ।
+> প্রসিদ্ধা বৈষ্ণবী হৈল পরম-মহান্তী ।\
 > বড় বড় বৈষ্ণব তাঁর দর্শনেতে যান্তি ॥১৪২॥
 
-> prasiddhā vaiṣṇavī haila parama-mahāntī
+> prasiddhā vaiṣṇavī haila parama-mahāntī\
 > baḍa baḍa vaiṣṇava tāṅra darśanete yānti
 
 *prasiddhā*—célebre; *vaiṣṇavī*—devota del Señor; *haila*—se volvió; *parama-mahāntī*—muy avanzada; *baḍa baḍa vaiṣṇava*—muchos devotos reconocidos y altamente situados; *tāṅra*—a ella; *darśanete*—a ver; *yānti*—acudían.

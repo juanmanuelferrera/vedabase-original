@@ -1,11 +1,11 @@
 ### SB 4.26.22
 
-> परमोऽनुग्रहो दण्डो भृत्येषु प्रभुणार्पितः ।
+> परमोऽनुग्रहो दण्डो भृत्येषु प्रभुणार्पितः ।\
 > बालो न वेद तत्तन्वि बन्धुकृत्यममर्षणः ॥२२॥
 
-> paramo 'nugraho daṇḍo
-> bhṛtyeṣu prabhuṇārpitaḥ
-> bālo na veda tat tanvi
+> paramo 'nugraho daṇḍo\
+> bhṛtyeṣu prabhuṇārpitaḥ\
+> bālo na veda tat tanvi\
 > bandhu-kṛtyam amarṣaṇaḥ
 
 *paramaḥ*—supreme; *anugrahaḥ*—mercy; *daṇḍaḥ*—punishment; *bhṛtyeṣu*—upon the servants; *prabhuṇā*—by the master; *arpitaḥ*—awarded; *bālaḥ*—foolish; *na*—does not; *veda*—know; *tat*—that; *tanvi*—O slender maiden; *bandhu-kṛtyam*—the duty of a friend; *amarṣaṇaḥ*—angry.

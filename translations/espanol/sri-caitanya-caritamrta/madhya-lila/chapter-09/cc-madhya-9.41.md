@@ -1,9 +1,9 @@
 ### CC Madhya 9.41
 
-> গোসাঞির সৌন্দর্য দেখি’ তাতে প্রেমাবেশ ৷
+> গোসাঞির সৌন্দর্য দেখি’ তাতে প্রেমাবেশ ৷\
 > সবে ‘কৃষ্ণ’ কহে, ‘বৈষ্ণব’ হৈল সর্বদেশ ৷৷ ৪১ ৷৷ ॥৪১॥
 
-> gosāñira saundarya dekhi' tāte premāveśa
+> gosāñira saundarya dekhi' tāte premāveśa\
 > sabe 'kṛṣṇa' kahe, 'vaiṣṇava' haila sarva-deśa
 
 *gosāñira*—del Señor; *saundarya*—la belleza; *dekhi'*—viendo; *tāte*—en eso; *prema-āveśa*—amor extático; *sabe*—todos; *kṛṣṇa kahe*—pronunciaron el santo nombre de Kṛṣṇa; *vaiṣṇava*—devotos vaiṣṇavas; *haila*—se convirtieron; *sarva-deśa*—todos.

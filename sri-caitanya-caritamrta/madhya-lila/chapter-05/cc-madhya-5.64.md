@@ -1,9 +1,9 @@
 ### CC Madhya 5.64
 
-> তবে ছোটবিপ্র কহে, — “শুন, মহাজন ।
+> তবে ছোটবিপ্র কহে, — “শুন, মহাজন ।\
 > ন্যায় জিনিবারে কহে অসত্য-বচন ॥৬৪॥
 
-> tabe choṭa-vipra kahe, "śuna, mahājana
+> tabe choṭa-vipra kahe, "śuna, mahājana\
 > nyāya jinibāre kahe asatya-vacana
 
 *tabe*—at that time; *choṭa-vipra*—the young *brāhmaṇa*; *kahe*—says; *śuna*—please hear; *mahā-jana*—all gentlemen; *nyāya*—the argument; *jinibāre*—to win; *kahe*—he says; *asatya-vacana*—untruthful statements.

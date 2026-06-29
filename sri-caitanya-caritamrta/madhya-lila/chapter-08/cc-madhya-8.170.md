@@ -1,9 +1,9 @@
 ### CC Madhya 8.170
 
-> সৌন্দর্য — কুঙ্কুম, সখী-প্রণয় চন্দন ।
+> সৌন্দর্য — কুঙ্কুম, সখী-প্রণয় চন্দন ।\
 > স্মিতকান্তি — কর্পূর, তিনে — অঙ্গে বিলেপন ॥১৭০॥
 
-> saundarya—kuṅkuma, sakhī-praṇaya—candana
+> saundarya—kuṅkuma, sakhī-praṇaya—candana\
 > smita-kānti—karpūra, tine—aṅge vilepana
 
 *saundarya*—Her personal beauty; *kuṅkuma*—a red powder known as *kuṅkuma*; *sakhī-praṇaya*—Her love for Her associates; *candana*—the sandalwood pulp; *smita-kānti*—the sweetness of Her smile; *karpūra*—camphor; *tine*—by these three things; *aṅge*—on the body; *vilepana*—smearing.

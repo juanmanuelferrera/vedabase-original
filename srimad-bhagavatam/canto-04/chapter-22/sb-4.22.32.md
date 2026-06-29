@@ -1,11 +1,11 @@
 ### SB 4.22.32
 
-> नातः परतरो लोके पुंसः स्वार्थव्यतिक्रमः ।
+> नातः परतरो लोके पुंसः स्वार्थव्यतिक्रमः ।\
 > यदध्यन्यस्य प्रेयस्त्वमात्मनः स्वव्यतिक्रमात् ॥३२॥
 
-> nātaḥ parataro loke
-> puṁsaḥ svārtha-vyatikramaḥ
-> yad-adhy anyasya preyastvam
+> nātaḥ parataro loke\
+> puṁsaḥ svārtha-vyatikramaḥ\
+> yad-adhy anyasya preyastvam\
 > ātmanaḥ sva-vyatikramāt
 
 *na*—not; *ataḥ*—after this; *parataraḥ*—greater; *loke*—in this world; *puṁsaḥ*—of the living entities; *sva-artha*—interest; *vyatikramaḥ*—obstruction; *yat-adhi*—beyond that; *anyasya*—of others; *preyastvam*—to be more interesting; *ātmanaḥ*—for the self; *sva*—own; *vyatikramāt*—by obstruction.

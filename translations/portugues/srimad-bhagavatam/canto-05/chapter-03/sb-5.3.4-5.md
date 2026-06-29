@@ -1,6 +1,6 @@
 ### SB 5.3.4-5
 
-> ṛtvija ūcuḥ
+> ṛtvija ūcuḥ\
 > arhasi muhur arhattamārhaṇam asmākam anupathānāṁ namo nama ity etāvat sad-upaśikṣitaṁ ko 'rhati pumān prakṛti-guṇa-vyatikara-matir anīśa īśvarasya parasya prakṛti-puruṣayor arvāktanābhir nāma-rūpākṛtibhī rūpa-nirūpaṇam; sakala-jana-nikāya-vṛjina-nirasana-śivatama-pravara-guṇa-gaṇaika-deśa-kathanād ṛte.
 
 *ṛtvijaḥ ūcuḥ*—os sacerdotes disseram; *arhasi*—por favor (aceita); *muhuḥ*—repetidas vezes; *arhat-tama*—ó pessoa mais elevada e digna de adoração; *arhaṇam*—oferenda de adoração; *asmākam*—de nós; *anupathānām*—que somos Teus servos; *namaḥ*—respeitosas reverências; *namaḥ*—respeitosas reverências; *iti*—assim; *etāvat*—até aqui; *sat*—por personalidades elevadas; *upaśikṣitam*—instruído; *kaḥ*—que; *arhati*—é capaz (de fazer); *pumān*—homem; *prakṛti*—da natureza material; *guṇa*—dos modos; *vyatikara*—nas transformações; *matiḥ*—cuja mente (está absorta); *anīśaḥ*—que é totalmente incapaz; *īśvarasya*—da Suprema Personalidade de Deus; *parasya*—além; *prakṛti-puruṣayoḥ*—da jurisdição dos três modos da natureza material; *arvāktanābhiḥ*—que não alcançam, ou que pertencem a este mundo material; *nāma-rūpa-ākṛtibhiḥ*—por nomes, formas e qualidades; *rūpa*—de Tua natureza ou posição; *nirūpaṇam*—averiguação, percepção; *sakala*—toda; *jana-nikāya*—da humanidade; *vṛjina*—ações pecaminosas; *nirasana*—que eliminam; *śivatama*—mais auspiciosas; *pravara*—excelentes; *guṇa-gaṇa*—das qualidades transcendentais; *eka-deśa*—uma parte; *kathanāt*—por falar; *ṛte*—exceto.

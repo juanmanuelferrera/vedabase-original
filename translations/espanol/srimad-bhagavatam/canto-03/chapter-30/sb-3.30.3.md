@@ -1,11 +1,11 @@
 ### SB 3.30.3
 
-> यदध्रुवस्य देहस्य सानुबन्धस्य दुर्मतिः ।
+> यदध्रुवस्य देहस्य सानुबन्धस्य दुर्मतिः ।\
 > ध्रुवाणि मन्यते मोहाद्गृहक्षेत्रवसूनि च ॥३॥
 
-> yad adhruvasya dehasya
-> sānubandhasya durmatiḥ
-> dhruvāṇi manyate mohād
+> yad adhruvasya dehasya\
+> sānubandhasya durmatiḥ\
+> dhruvāṇi manyate mohād\
 > gṛha-kṣetra-vasūni ca
 
 *yat*—debido a; *adhruvasya*—temporal; *dehasya*—del cuerpo; *sa-anubandhasya*—con lo que se relaciona; *durmatiḥ*—una persona desorientada; *dhruvāṇi*—permanente; *manyate*—cree; *mohāt*—debido a la ignorancia; *gṛha*—hogar; *kṣetra*—tierra; *vasūni*—riqueza; *ca*—y.

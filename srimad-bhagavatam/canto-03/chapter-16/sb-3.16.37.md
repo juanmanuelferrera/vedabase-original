@@ -1,13 +1,13 @@
 ### SB 3.16.37
 
-> विश्वस्य यः स्थितिलयोद्भवहेतुराद्यो
-> योगेश्वरैरपि दुरत्यययोगमायः ।
-> क्षेमं विधास्यति स नो भगवांस्त्र्यधीशस्
+> विश्वस्य यः स्थितिलयोद्भवहेतुराद्यो\
+> योगेश्वरैरपि दुरत्यययोगमायः ।\
+> क्षेमं विधास्यति स नो भगवांस्त्र्यधीशस्\
 > तत्रास्मदीयविमृशेन कियानिहार्थः ॥३७॥
 
-> viśvasya yaḥ sthiti-layodbhava-hetur ādyo
-> yogeśvarair api duratyaya-yogamāyaḥ
-> kṣemaṁ vidhāsyati sa no bhagavāṁs tryadhīśas
+> viśvasya yaḥ sthiti-layodbhava-hetur ādyo\
+> yogeśvarair api duratyaya-yogamāyaḥ\
+> kṣemaṁ vidhāsyati sa no bhagavāṁs tryadhīśas\
 > tatrāsmadīya-vimṛśena kiyān ihārthaḥ
 
 *viśvasya*—of the universe; *yaḥ*—who; *sthiti*—maintenance; *laya*—destruction; *udbhava*—creation; *hetuḥ*—the cause; *ādyaḥ*—the most ancient person; *yoga-īśvaraiḥ*—by the masters of *yoga*; *api*—even; *duratyaya*—cannot be easily understood; *yoga-māyaḥ*—His *yogamāyā* potency; *kṣemam*—good; *vidhāsyati*—will do; *saḥ*—He; *naḥ*—of us; *bhagavān*—the Supreme Personality of Godhead; *tri-adhīśaḥ*—the controller of the three modes of material nature; *tatra*—there; *asmadīya*—by our; *vimṛśena*—deliberation; *kiyān*—what; *iha*—on this subject; *arthaḥ*—purpose.

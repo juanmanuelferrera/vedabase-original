@@ -1,9 +1,9 @@
 ### CC Adi 1.43
 
-> সাবরণে প্রভুরে করিয়া নমস্কার ।
+> সাবরণে প্রভুরে করিয়া নমস্কার ।\
 > এই ছয় তেঁহো যৈছে — করিয়ে বিচার ॥৪৩॥
 
-> sāvaraṇe prabhure kariyā namaskāra
+> sāvaraṇe prabhure kariyā namaskāra\
 > ei chaya teṅho yaiche—kariye vicāra
 
 *sa-āvaraṇe*—along with His associates; *prabhure*—unto Lord Śrī Caitanya Mahāprabhu; *kariyā*—having made; *namaskāra*—respectful obeisances; *ei*—these; *chaya*—six; *teṅho*—He; *yaiche*—what they are like; *kariye*—I make; *vicāra*—discussion.

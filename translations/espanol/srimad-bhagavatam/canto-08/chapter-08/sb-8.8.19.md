@@ -1,11 +1,11 @@
 ### SB 8.8.19
 
-> स्तनद्वयं चातिकृशोदरी समं निरन्तरं चन्दनकुङ्कुमोक्षितम
+> स्तनद्वयं चातिकृशोदरी समं निरन्तरं चन्दनकुङ्कुमोक्षितम\
 > ततस्ततो नूपुरवल्गु शिञ्जितैर्विसर्पती हेमलतेव सा बभौ ॥१९॥
 
-> vilokayantī niravadyam ātmanaḥ
-> padaṁ dhruvaṁ cāvyabhicāri-sad-guṇam
-> gandharva-siddhāsura-yakṣa-cāraṇa-
+> vilokayantī niravadyam ātmanaḥ\
+> padaṁ dhruvaṁ cāvyabhicāri-sad-guṇam\
+> gandharva-siddhāsura-yakṣa-cāraṇa-\
 > traipiṣṭapeyādiṣu nānvavindata
 
 *vilokayantī*—observar, examinar; *niravadyam*—sin ningún defecto; *ātmanaḥ*—para ella misma; *padam*—posición; *dhruvam*—eterna; *ca*—también; *avyabhicāri-sat-guṇam*—sin ningún cambio de cualidades; *gandharva*—entre los habitantes de Gandharvaloka; *siddha*—los habitantes de Siddhaloka; *asura*—los demonios; *yakṣa*—los *yakṣas*; *cāraṇa*—los habitantes de Cāraṇaloka; *traipiṣṭapeya-ādiṣu*—y entre los semidioses; *na*—no; *anvavindata*—pudo aceptar a ninguno de ellos.

@@ -1,9 +1,9 @@
 ### CC Antya 16.35
 
-> চূষি’ চূষি’ চোষা আঁঠি ফেলিলা পাটুয়াতে ।
+> চূষি’ চূষি’ চোষা আঁঠি ফেলিলা পাটুয়াতে ।\
 > তারে খাওয়াঞা তাঁর পত্নী খায় পশ্চাতে ॥৩৫॥
 
-> cūṣi, cūṣi, coṣā āṅṭhi phelilā pāṭuyāte
+> cūṣi, cūṣi, coṣā āṅṭhi phelilā pāṭuyāte\
 > tāre khāoyāñā tāṅra patnī khāya paścāte
 
 *cūṣi' cūṣi'*—chupando y chupando; *coṣā*—chupadas; *āṅṭhi*—las semillas; *phelilā*—dejó; *pāṭuyāte*—sobre la hoja de plátano; *tāre*—a él; *khāoyāñā*—después de alimentar; *tāṅra patnī*—su esposa; *khāya*—come; *paścāte*—después.

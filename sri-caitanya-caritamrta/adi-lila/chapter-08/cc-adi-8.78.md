@@ -1,9 +1,9 @@
 ### CC Adi 8.78
 
-> এই গ্রন্থ লেখায় মোরে ‘মদনমোহন’ ।
+> এই গ্রন্থ লেখায় মোরে ‘মদনমোহন’ ।\
 > আমার লিখন যেন শুকের পঠন ॥৭৮॥
 
-> ei grantha lekhāya more 'madana-mohana'
+> ei grantha lekhāya more 'madana-mohana'\
 > āmāra likhana yena śukera paṭhana
 
 *ei*—this; *grantha*—great scripture; *lekhāya*—causes me to write; *more*—unto me; *madana-mohana*—the Deity; *āmāra*—my; *likhana*—writing; *yena*—like; *śukera*—of the parrot; *paṭhana*—responding.

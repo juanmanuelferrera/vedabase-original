@@ -1,11 +1,11 @@
 ### Bg 4.40
 
-> अज्ञश्चाश्रद्दधानश्च संशयात्मा विनश्यति ।
+> अज्ञश्चाश्रद्दधानश्च संशयात्मा विनश्यति ।\
 > नायं लोकोऽस्ति न परो न सुखं संशयात्मनः ॥४०॥
 
-> ajñaś cāśraddadhānaś ca
-> saṁśayātmā vinaśyati
-> nāyaṁ loko 'sti na paro
+> ajñaś cāśraddadhānaś ca\
+> saṁśayātmā vinaśyati\
+> nāyaṁ loko 'sti na paro\
 > na sukhaṁ saṁśayātmanaḥ
 
 *ajñaḥ*—fools who have no knowledge in standard scriptures; *ca*—and; *aśraddadhānaḥ*—without faith in revealed scriptures; *ca*—also; *saṁśaya*—doubts; *ātmā*—person; *vinaśyati*—falls back; *na*—never; *ayam*—this; *lokaḥ*—world; *asti*—there is; *na*—neither; *paraḥ*—next life; *na*—not; *sukham*—happiness; *saṁśaya*—doubtful; *ātmanaḥ*—of the person.

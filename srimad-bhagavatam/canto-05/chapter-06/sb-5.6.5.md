@@ -1,11 +1,11 @@
 ### SB 5.6.5
 
-> कामो मन्युर्मदो लोभः शोकमोहभयादयः
+> कामो मन्युर्मदो लोभः शोकमोहभयादयः\
 > कर्मबन्धश्च यन्मूलः स्वीकुर्यात्को नु तद्बुधः ॥५॥
 
-> kāmo manyur mado lobhaḥ
-> śoka-moha-bhayādayaḥ
-> karma-bandhaś ca yan-mūlaḥ
+> kāmo manyur mado lobhaḥ\
+> śoka-moha-bhayādayaḥ\
+> karma-bandhaś ca yan-mūlaḥ\
 > svīkuryāt ko nu tad budhaḥ
 
 *kāmaḥ*—lust; *manyuḥ*—anger; *madaḥ*—pride; *lobhaḥ*—greed; *śoka*—lamentation; *moha*—illusion; *bhaya*—fear; *ādayaḥ*—all these together; *karma-bandhaḥ*—bondage to fruitive activities; *ca*—and; *yat-mūlaḥ*—the origin of which; *svīkuryāt*—would accept; *kaḥ*—who; *nu*—indeed; *tat*—that mind; *budhaḥ*—if one is learned.

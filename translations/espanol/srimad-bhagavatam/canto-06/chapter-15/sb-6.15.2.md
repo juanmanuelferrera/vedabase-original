@@ -1,11 +1,11 @@
 ### SB 6.15.2
 
-> कोऽयं स्यात्तव राजेन्द्र भवान्यमनुशोचति
+> कोऽयं स्यात्तव राजेन्द्र भवान्यमनुशोचति\
 > त्वं चास्य कतमः सृष्टौ पुरेदानीमतः परम ॥२॥
 
-> ko 'yaṁ syāt tava rājendra
-> bhavān yam anuśocati
-> tvaṁ cāsya katamaḥ sṛṣṭau
+> ko 'yaṁ syāt tava rājendra\
+> bhavān yam anuśocati\
+> tvaṁ cāsya katamaḥ sṛṣṭau\
 > puredānīm ataḥ param
 
 *kaḥ*—quién; *ayam*—este; *syāt*—es; *tava*—a ti; *rāja-indra*—¡oh, el mejor de los reyes!; *bhavān*—Tu Señoría; *yam*—a quien; *anuśocati*—se lamenta por; *tvam*—tú; *ca*—y; *asya*—a él (el cuerpo muerto); *katamaḥ*—quién; *sṛṣṭau*—en el nacimiento; *purā*—antes; *idānīm*—en este momento, en el presente; *ataḥ param*—y de aquí en adelante, en el futuro.

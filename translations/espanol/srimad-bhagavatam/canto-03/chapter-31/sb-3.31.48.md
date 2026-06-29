@@ -1,11 +1,11 @@
 ### SB 3.31.48
 
-> सम्यग्दर्शनया बुद्ध्या योगवैराग्ययुक्तया ।
+> सम्यग्दर्शनया बुद्ध्या योगवैराग्ययुक्तया ।\
 > मायाविरचिते लोके चरेन्न्यस्य कलेवरम् ॥४८॥
 
-> samyag-darśanayā buddhyā
-> yoga-vairāgya-yuktayā
-> māyā-viracite loke
+> samyag-darśanayā buddhyā\
+> yoga-vairāgya-yuktayā\
+> māyā-viracite loke\
 > caren nyasya kalevaram
 
 *samyak-darśanayā*—dotado de visión correcta; *buddhyā*—por medio de la razón; *yoga*—mediante el servicio devocional; *vairāgya*—mediante el desapego; *yuktayā*—fortalecido; *māyā-viracite*—dispuesto por *māyā*; *loke*—a este mundo; *caret*—debe marchar; *nyasya*—relegando; *kalevaram*—el cuerpo.

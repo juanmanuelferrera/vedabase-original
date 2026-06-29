@@ -1,11 +1,11 @@
 ### SB 4.31.15
 
-> यथैव सूर्यात्प्रभवन्ति वारः पुनश्च तस्मिन्प्रविशन्ति काले ।
+> यथैव सूर्यात्प्रभवन्ति वारः पुनश्च तस्मिन्प्रविशन्ति काले ।\
 > भूतानि भूमौ स्थिरजङ्गमानि तथा हरावेव गुणप्रवाहः ॥१५॥
 
-> yathaiva sūryāt prabhavanti vāraḥ
-> punaś ca tasmin praviśanti kāle
-> bhūtāni bhūmau sthira-jaṅgamāni
+> yathaiva sūryāt prabhavanti vāraḥ\
+> punaś ca tasmin praviśanti kāle\
+> bhūtāni bhūmau sthira-jaṅgamāni\
 > tathā harāv eva guṇa-pravāhaḥ
 
 *yathā*—como; *eva*—ciertamente; *sūryāt*—del Sol; *prabhavanti*—se genera; *vāraḥ*—agua; *punaḥ*—de nuevo; *ca*—y; *tasmin*—a él; *praviśanti*—entra; *kāle*—a su debido tiempo; *bhūtāni*—todas las entidades vivientes; *bhūmau*—a la Tierra; *sthira*—inmóviles; *jaṅgamāni*—y móviles; *tathā*—de manera similar; *harau*—a la Suprema Personalidad de Dios; *eva*—ciertamente; *guṇa-pravāhaḥ*—emanación de naturaleza material.

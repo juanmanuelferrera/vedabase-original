@@ -1,9 +1,9 @@
 ### CC Madhya 16.70
 
-> প্রভু কহে, — “বৈষ্ণব-সেবা, নাম-সংকীর্তন ।
+> প্রভু কহে, — “বৈষ্ণব-সেবা, নাম-সংকীর্তন ।\
 > দুই কর, শীঘ্র পাবে শ্রীকৃষ্ণ-চরণ ।।” ॥ ৭০ ॥
 
-> prabhu kahe,—"vaiṣṇava-sevā, nāma-saṅkīrtana
+> prabhu kahe,—"vaiṣṇava-sevā, nāma-saṅkīrtana\
 > dui kara, śīghra pābe śrī-kṛṣṇa-caraṇa"
 
 *prabhukahe*—the Lord replied; *vaiṣṇava-sevā*—service to the Vaiṣṇavas; *nāma-saṅkīrtana*—chanting the holy name of the Lord; *dui kara*—you perform these two things; *śīghra*—very soon; *pābe*—you will get; *śrī-kṛṣṇa-caraṇa*—shelter at the lotus feet of the Lord, Śrī Kṛṣṇa.

@@ -1,9 +1,9 @@
 ### CC Adi 8.4
 
-> জয় জয় শ্রীবাসাদি যত ভক্তগণ ।
+> জয় জয় শ্রীবাসাদি যত ভক্তগণ ।\
 > প্রণত হইয়া বন্দোঁ সবার চরণ ॥৪॥
 
-> jaya jaya śrīvāsādi yata bhakta-gaṇa
+> jaya jaya śrīvāsādi yata bhakta-gaṇa\
 > praṇata ha-iyā vandoṅ sabāra caraṇa
 
 *jayajaya*—all glories; *śrīvāsa-ādi*—unto Śrīvāsa Ṭhākura, etc.; *yata*—all; *bhakta-gaṇa*—devotees; *praṇata*—offering obeisances; *ha-iyā*—doing so; *vandoṅ*—I pray; *sabāra*—all; *caraṇa*—lotus feet.

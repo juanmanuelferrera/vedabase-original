@@ -1,11 +1,11 @@
 ### SB 4.7.22
 
-> तमुपागतमालक्ष्य सर्वे सुरगणादयः ।
+> तमुपागतमालक्ष्य सर्वे सुरगणादयः ।\
 > प्रणेमुः सहसोत्थाय ब्रह्मेन्द्रत्र्यक्षनायकाः ॥२२॥
 
-> tam upāgatam ālakṣya
-> sarve sura-gaṇādayaḥ
-> praṇemuḥ sahasotthāya
+> tam upāgatam ālakṣya\
+> sarve sura-gaṇādayaḥ\
+> praṇemuḥ sahasotthāya\
 > brahmendra-tryakṣa-nāyakāḥ
 
 *tam*—Él; *upāgatam*—llegó; *ālakṣya*—después de ver; *sarve*—todos; *sura-gaṇa-ādayaḥ*—los semidioses y demás; *praṇemuḥ*—reverencias; *sahasā*—de inmediato; *utthāya*—después de levantarse; *brahma*—el Señor Brahmā; *indra*—el Señor Indra; *tri-akṣa*—el Señor Śiva (que tiene tres ojos); *nāyakāḥ*—guiados por.

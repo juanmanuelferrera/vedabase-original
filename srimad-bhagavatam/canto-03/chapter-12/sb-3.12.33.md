@@ -1,14 +1,14 @@
 ### SB 3.12.33
 
-> स इत्थं गृणतः पुत्रान्पुरो दृष्ट्वा प्रजापतीन् ।
-> प्रजापतिपतिस्तन्वं तत्याज व्रीडितस्तदा ।
+> स इत्थं गृणतः पुत्रान्पुरो दृष्ट्वा प्रजापतीन् ।\
+> प्रजापतिपतिस्तन्वं तत्याज व्रीडितस्तदा ।\
 > तां दिशो जगृहुर्घोरां नीहारं यद्विदुस्तमः ॥३३॥
 
-> sa itthaṁ gṛṇataḥ putrān
-> puro dṛṣṭvā prajāpatīn
-> prajāpati-patis tanvaṁ
-> tatyāja vrīḍitas tadā
-> tāṁ diśo jagṛhur ghorāṁ
+> sa itthaṁ gṛṇataḥ putrān\
+> puro dṛṣṭvā prajāpatīn\
+> prajāpati-patis tanvaṁ\
+> tatyāja vrīḍitas tadā\
+> tāṁ diśo jagṛhur ghorāṁ\
 > nīhāraṁ yad vidus tamaḥ
 
 *saḥ*—he (Brahmā); *ittham*—thus; *gṛṇataḥ*—speaking; *putrān*—sons; *puraḥ*—before; *dṛṣṭvā*—seeing; *prajā-patīn*—all the progenitors of living entities; *prajāpati-patiḥ*—the father of them (Brahmā); *tanvam*—body; *tatyāja*—quit; *vrīḍitaḥ*—ashamed; *tadā*—at that time; *tām*—that body; *diśaḥ*—all directions; *jagṛhuḥ*—accepted; *ghorām*—blamable; *nīhāram*—fog; *yat*—which; *viduḥ*—they know as; *tamaḥ*—darkness.

@@ -1,11 +1,11 @@
 ### SB 1.9.5
 
-> तत्र ब्रह्मर्षयः सर्वे देवर्षयश्च सत्तम ।
+> तत्र ब्रह्मर्षयः सर्वे देवर्षयश्च सत्तम ।\
 > राजर्षयश्च तत्रासन्द्रष्टुं भरतपुङ्गवम् ॥५॥
 
-> tatra brahmarṣayaḥ sarve
-> devarṣayaś ca sattama
-> rājarṣayaś ca tatrāsan
+> tatra brahmarṣayaḥ sarve\
+> devarṣayaś ca sattama\
+> rājarṣayaś ca tatrāsan\
 > draṣṭuṁ bharata-puṅgavam
 
 *tatra*—there; *brahma-ṛṣayaḥ*—*ṛṣis* among the *brāhmaṇas*; *sarve*—all; *deva-ṛṣayaḥ*—*ṛṣis* among the demigods; *ca*—and; *sattama*—situated in the quality of goodness; *rāja-ṛṣayaḥ*—*ṛṣis* among the kings; *ca*—and; *tatra*—in that place; *āsan*—were present; *draṣṭum*—just to see; *bharata*—the descendants of King Bharata; *puṅgavam*—the chief of.

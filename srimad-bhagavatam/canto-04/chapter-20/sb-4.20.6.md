@@ -1,11 +1,11 @@
 ### SB 4.20.6
 
-> असंसक्तः शरीरेऽस्मिन्नमुनोत्पादिते गृहे ।
+> असंसक्तः शरीरेऽस्मिन्नमुनोत्पादिते गृहे ।\
 > अपत्ये द्रविणे वापि कः कुर्यान्ममतां बुधः ॥६॥
 
-> asaṁsaktaḥ śarīre 'sminn
-> amunotpādite gṛhe
-> apatye draviṇe vāpi
+> asaṁsaktaḥ śarīre 'sminn\
+> amunotpādite gṛhe\
+> apatye draviṇe vāpi\
 > kaḥ kuryān mamatāṁ budhaḥ
 
 *asaṁsaktaḥ*—being unattached; *śarīre*—to the body; *asmin*—this; *amunā*—by such a bodily conception; *utpādite*—produced; *gṛhe*—house; *apatye*—children; *draviṇe*—wealth; *vā*—or; *api*—also; *kaḥ*—who; *kuryāt*—would do; *mamatām*—affinity; *budhaḥ*—learned person.

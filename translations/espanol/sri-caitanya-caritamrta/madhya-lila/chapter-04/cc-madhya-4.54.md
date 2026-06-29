@@ -1,9 +1,9 @@
 ### CC Madhya 4.54
 
-> পাথরের সিংহাসনে ঠাকুর বসাইল ৷
+> পাথরের সিংহাসনে ঠাকুর বসাইল ৷\
 > বড় এক পাথর পৃষ্ঠে অবলম্ব দিল ॥৫৪॥
 
-> pātharera siṁhāsane ṭhākura vasāila
+> pātharera siṁhāsane ṭhākura vasāila\
 > baḍa eka pāthara pṛṣṭhe avalamba dila
 
 *pātharera*—de piedra; *siṁha-āsane*—sobre un trono; *ṭhākura*—la Deidad; *vasāila*—fue instalada; *baḍa*—grande; *eka*—una; *pāthara*—piedra; *pṛṣṭhe*—detrás; *avalamba*—soporte; *dila*—dio.

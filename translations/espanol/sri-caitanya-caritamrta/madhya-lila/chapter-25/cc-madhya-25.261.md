@@ -1,9 +1,9 @@
 ### CC Madhya 25.261
 
-> পঞ্চবিংশে — কাশীবাসীরে বৈষ্ণবকরণ ।
+> পঞ্চবিংশে — কাশীবাসীরে বৈষ্ণবকরণ ।\
 > কাশী হৈতে পুনঃ নীলাচলে আগমন ॥২৬১॥
 
-> pañcaviṁśe-kāśī-vāsīre vaiṣṇava-karaṇa
+> pañcaviṁśe-kāśī-vāsīre vaiṣṇava-karaṇa\
 > kāśī haite punaḥ nīlācale āgamana
 
 *pañca-viṁśe*—en el Vigesimoquinto Capítulo; *kāśī-vāsīre*—los residentes de Vārāṇasī (Kāśī); *vaiṣṇava-karaṇa*—conversión al vaiṣṇavismo; *kāśī haite*—desde Kāśī; *punaḥ*—de nuevo; *nīlācale āgamana*—regreso a Jagannātha Purī (Nīlācala).

@@ -1,11 +1,11 @@
 ### SB 2.8.4
 
-> शृण्वतः श्रद्धया नित्यं गृणतश्च स्वचेष्टितम् ।
+> शृण्वतः श्रद्धया नित्यं गृणतश्च स्वचेष्टितम् ।\
 > कालेन नातिदीर्घेण भगवान्विशते हृदि ॥४॥
 
-> śṛṇvataḥ śraddhayā nityaṁ
-> gṛṇataś ca sva-ceṣṭitam
-> kālena nātidīrgheṇa
+> śṛṇvataḥ śraddhayā nityaṁ\
+> gṛṇataś ca sva-ceṣṭitam\
+> kālena nātidīrgheṇa\
 > bhagavān viśate hṛdi
 
 *śṛṇvataḥ*—de aquellos que oyen; *śraddhayā*—sinceramente; *nityam*—regularmente, siempre; *gṛṇataḥ*—tomando el asunto; *ca*—también; *sva-ceṣṭitam*—seriamente, mediante el esfuerzo de uno; *kālena*—duración; *na*—no; *ati-dīrgheṇa*—tiempo muy prolongado; *bhagavān*—la Personalidad de Dios, Śrī Kṛṣṇa; *viśate*—se manifiesta; *hṛdi*—en el corazón de uno.

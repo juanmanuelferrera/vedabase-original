@@ -1,11 +1,11 @@
 ### SB 4.6.39
 
-> तं ब्रह्मनिर्वाणसमाधिमाश्रितं व्युपाश्रितं गिरिशं योगकक्षाम् ।
+> तं ब्रह्मनिर्वाणसमाधिमाश्रितं व्युपाश्रितं गिरिशं योगकक्षाम् ।\
 > सलोकपाला मुनयो मनूनामाद्यं मनुं प्राञ्जलयः प्रणेमुः ॥३९॥
 
-> taṁ brahma-nirvāṇa-samādhim āśritaṁ
-> vyupāśritaṁ giriśaṁ yoga-kakṣām
-> sa-loka-pālā munayo manūnām
+> taṁ brahma-nirvāṇa-samādhim āśritaṁ\
+> vyupāśritaṁ giriśaṁ yoga-kakṣām\
+> sa-loka-pālā munayo manūnām\
 > ādyaṁ manuṁ prāñjalayaḥ praṇemuḥ
 
 *tam*—him (Lord Śiva); *brahma-nirvāṇa*—in *brahmānanda*; *samādhim*—in trance; *āśritam*—absorbed; *vyupāśritam*—leaning on; *giriśam*—Lord Śiva; *yoga-kakṣām*—having his left knee firmly fixed with a knotted cloth; *sa-loka-pālāḥ*—along with the demigods (headed by Indra); *munayaḥ*—the sages; *manūnām*—of all thinkers; *ādyam*—the chief; *manum*—thinker; *prāñjalayaḥ*—with folded palms; *praṇemuḥ*—offered respectful obeisances.

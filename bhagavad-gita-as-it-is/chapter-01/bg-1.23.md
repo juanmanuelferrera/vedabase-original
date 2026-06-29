@@ -1,11 +1,11 @@
 ### Bg 1.23
 
-> योत्स्यमानानवेक्षेऽहं य एतेऽत्र समागताः ।
+> योत्स्यमानानवेक्षेऽहं य एतेऽत्र समागताः ।\
 > धार्तराष्ट्रस्य दुर्बुद्धेर्युद्धे प्रियचिकीर्षवः ॥२३॥
 
-> yotsyamānān avekṣe ’haṁ
-> ya ete ’tra samāgatāḥ
-> dhārtarāṣṭrasya durbuddher
+> yotsyamānān avekṣe ’haṁ\
+> ya ete ’tra samāgatāḥ\
+> dhārtarāṣṭrasya durbuddher\
 > yuddhe priya-cikīrṣavaḥ
 
 *yotsyamānān*—those who will be fighting; *avekṣe*—let me see; *aham*—I; *ye*—who; *ete*—those; *atra*—here; *samāgatāḥ*—assembled; *dhārtarāṣṭrasya*—the son of Dhṛtarāṣṭra; *durbuddheḥ*—evil-minded; *yuddhe*—in the fight; *priya*—well; *cikīrṣavaḥ*—wishing.

@@ -1,11 +1,11 @@
 ### SB 3.28.12
 
-> यदा मनः स्वं विरजं योगेन सुसमाहितम् ।
+> यदा मनः स्वं विरजं योगेन सुसमाहितम् ।\
 > काष्ठां भगवतो ध्यायेत्स्वनासाग्रावलोकनः ॥१२॥
 
-> yadā manaḥ svaṁ virajaṁ
-> yogena susamāhitam
-> kāṣṭhāṁ bhagavato dhyāyet
+> yadā manaḥ svaṁ virajaṁ\
+> yogena susamāhitam\
+> kāṣṭhāṁ bhagavato dhyāyet\
 > sva-nāsāgrāvalokanaḥ
 
 *yadā*—when; *manaḥ*—the mind; *svam*—own; *virajam*—purified; *yogena*—by *yoga* practice; *su-samāhitam*—controlled; *kāṣṭhām*—the plenary expansion; *bhagavataḥ*—of the Supreme Personality of Godhead; *dhyāyet*—one should meditate upon; *sva-nāsā-agra*—the tip of one's nose; *avalokanaḥ*—looking at.

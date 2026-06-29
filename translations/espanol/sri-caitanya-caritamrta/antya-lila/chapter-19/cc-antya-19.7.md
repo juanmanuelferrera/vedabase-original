@@ -1,9 +1,9 @@
 ### CC Antya 19.7
 
-> কহিহ তাঁহারে — ‘তুমি করহ স্মরণ ।
+> কহিহ তাঁহারে — ‘তুমি করহ স্মরণ ।\
 > নিত্য আসি’ আমি তোমার বন্দিয়ে চরণ ॥৭॥
 
-> kahiha tāṅhāre--'tumi karaha smaraṇa
+> kahiha tāṅhāre--'tumi karaha smaraṇa\
 > nitya āsi' āmi tomāra vandiye caraṇa
 
 *kahiha tāṅhāre*—infórmale; *tumi karaha smaraṇa*—por favor, recuerda; *nitya āsi'*—viniendo cada día; *āmi*—Yo; *tomāra*—tus; *vandiye caraṇa*—ofrezco respeto a los pies de loto.

@@ -1,11 +1,11 @@
 ### SB 4.28.47
 
-> आत्मानं शोचती दीनमबन्धुं विक्लवाश्रुभिः ।
+> आत्मानं शोचती दीनमबन्धुं विक्लवाश्रुभिः ।\
 > स्तनावासिच्य विपिने सुस्वरं प्ररुरोद सा ॥४७॥
 
-> ātmānaṁ śocatī dīnam
-> abandhuṁ viklavāśrubhiḥ
-> stanāv āsicya vipine
+> ātmānaṁ śocatī dīnam\
+> abandhuṁ viklavāśrubhiḥ\
+> stanāv āsicya vipine\
 > susvaraṁ praruroda sā
 
 *ātmānam*—about herself; *śocatī*—lamenting; *dīnam*—wretched; *abandhum*—without a friend; *viklava*—brokenhearted; *aśrubhiḥ*—by tears; *stanau*—her breasts; *āsicya*—wetting; *vipine*—in the forest; *susvaram*—loudly; *praruroda*—began to cry; *sā*—she.

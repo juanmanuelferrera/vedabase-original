@@ -1,11 +1,11 @@
 ### SB 3.24.10
 
-> भगवन्तं परं ब्रह्म सत्त्वेनांशेन शत्रुहन् ।
+> भगवन्तं परं ब्रह्म सत्त्वेनांशेन शत्रुहन् ।\
 > तत्त्वसङ्ख्यानविज्ञप्त्यै जातं विद्वानजः स्वराट् ॥१०॥
 
-> bhagavantaṁ paraṁ brahma
-> sattvenāṁśena śatru-han
-> tattva-saṅkhyāna-vijñaptyai
+> bhagavantaṁ paraṁ brahma\
+> sattvenāṁśena śatru-han\
+> tattva-saṅkhyāna-vijñaptyai\
 > jātaṁ vidvān ajaḥ svarāṭ
 
 *bhagavantam*—el Señor; *param*—supremo; *brahma*—Brahman; *sattvena*—con existencia pura; *aṁśena*—por una porción plenaria; *śatru-han*—¡oh, matador del enemigo, Vidura!; *tattva-saṅkhyāna*—la filosofía de los veinticuatro elementos materiales; *vijñaptyai*—para explicar; *jātam*—apareció; *vidvān*—conociendo; *ajaḥ*—el innaciente (el Señor Brahmā); *sva-rāṭ*—independiente.

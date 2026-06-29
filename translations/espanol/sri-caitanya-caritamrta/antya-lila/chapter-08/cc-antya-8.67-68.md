@@ -1,18 +1,18 @@
 ### CC Antya 8.67-68
 
-> নাত্যশ্নতোঽপি যোগোঽস্তি ন চৈকান্তমনশ্নতঃ ।
-> ন চাতিস্বপ্নশীলস্য জাগ্রতো নৈব চার্জুন ॥৬৭॥
-> যুক্তাহারবিহারস্য যুক্তচেষ্টস্য কর্মসু ।
+> নাত্যশ্নতোঽপি যোগোঽস্তি ন চৈকান্তমনশ্নতঃ ।\
+> ন চাতিস্বপ্নশীলস্য জাগ্রতো নৈব চার্জুন ॥৬৭॥\
+> যুক্তাহারবিহারস্য যুক্তচেষ্টস্য কর্মসু ।\
 > যুক্তস্বপ্নাববোধস্য যোগো ভবতি দুঃখহা ।।” ৬৮ ॥৬৮॥
 
-> nātyaśnato 'pi yogo 'sti
-> na caikāntam anaśnataḥ
-> na cāti-svapna-śīlasya
+> nātyaśnato 'pi yogo 'sti\
+> na caikāntam anaśnataḥ\
+> na cāti-svapna-śīlasya\
 > jāgrato naiva cārjuna
 
-> yuktāhāra-vihārasya
-> yukta-ceṣṭasya karmasu
-> yukta-svapnāvabodhasya
+> yuktāhāra-vihārasya\
+> yukta-ceṣṭasya karmasu\
+> yukta-svapnāvabodhasya\
 > yogo bhavati duḥkha-hā"
 
 *na*—no; *ati-aśnataḥ*—de quien come demasiado; *api*—ciertamente; *yogaḥ*—vincularse con el Supremo; *asti*—hay; *na*—no; *ca*—también; *ekāntam*—solamente; *anaśnataḥ*—de quien se abstiene de comer; *na*—no; *ca*—también; *ati-svapna-śīlasya*—de quien sueña demasiado mientras duerme; *jāgrataḥ*—de quien se mantiene despierto; *na*—no; *eva*—ciertamente; *ca*—también; *arjuna*—¡oh, Arjuna!; *yukta*—lo necesario; *āhāra*—comer; *vihārasya*—de alguien cuyo disfrute de los sentidos; *yukta*—adecuado; *ceṣṭasya*—de alguien cuyo esfuerzo; *karmasu*—en cumplir deberes; *yukta*—lo necesario; *svapna*—soñar mientras se duerme; *avabodhasya*—de alguien cuyo estar despierto; *yogaḥ*—la práctica del *yoga*; *bhavati*—es; *duḥkha-hā*—disminuir los sufrimientos.

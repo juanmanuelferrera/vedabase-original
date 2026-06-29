@@ -1,11 +1,11 @@
 ### SB 9.22.41
 
-> तस्माच्च वृष्टिमांस्तस्य सुषेणोऽथ महीपतिः
+> तस्माच्च वृष्टिमांस्तस्य सुषेणोऽथ महीपतिः\
 > सुनीथस्तस्य भविता नृचक्षुर्यत्सुखीनलः ॥४१॥
 
-> tasmāc ca vṛṣṭimāṁs tasya
-> suṣeṇo 'tha mahīpatiḥ
-> sunīthas tasya bhavitā
+> tasmāc ca vṛṣṭimāṁs tasya\
+> suṣeṇo 'tha mahīpatiḥ\
+> sunīthas tasya bhavitā\
 > nṛcakṣur yat sukhīnalaḥ
 
 *tasmāt*—from him (Śuciratha); *ca*—also; *vṛṣṭimān*—the son known as Vṛṣṭimān; *tasya*—his (son); *suṣeṇaḥ*—Suṣeṇa; *atha*—thereafter; *mahī-patiḥ*—the emperor of the whole world; *sunīthaḥ*—Sunītha; *tasya*—his; *bhavitā*—will be; *nṛcakṣuḥ*—his son, Nṛcakṣu; *yat*—from him; *sukhīnalaḥ*—Sukhīnala.

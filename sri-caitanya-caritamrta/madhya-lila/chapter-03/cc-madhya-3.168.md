@@ -1,9 +1,9 @@
 ### CC Madhya 3.168
 
-> শ্রীবাসাদি যত প্রভুর বিপ্র ভক্তগণ ।
+> শ্রীবাসাদি যত প্রভুর বিপ্র ভক্তগণ ।\
 > প্রভুকে ভিক্ষা দিতে হৈল সবাকার মন ॥১৬৮॥
 
-> śrīvāsādi yata prabhura vipra bhakta-gaṇa
+> śrīvāsādi yata prabhura vipra bhakta-gaṇa\
 > prabhuke bhikṣā dite haila sabākāra mana
 
 *śrīvāsa-ādi*—the devotees, headed by Śrīvāsa Ṭhākura; *yata*—all; *prabhura*—of the Lord; *vipra*—especially the *brāhmaṇas*; *bhakta-gaṇa*—devotees; *prabhuke*—unto the Lord; *bhikṣā*—lunch; *dite*—to give; *haila*—there was; *sabākāra*—of all of them; *mana*—the mind.

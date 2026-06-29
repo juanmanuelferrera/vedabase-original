@@ -1,9 +1,9 @@
 ### CC Madhya 18.194
 
-> তাঁর সেবা বিনা জীবের না যায় ‘সংসার’ ।
+> তাঁর সেবা বিনা জীবের না যায় ‘সংসার’ ।\
 > তাঁহার চরণে প্রীতি — ‘পুরুষার্থ-সার’ ॥১৯৪॥
 
-> tāṅra sevā vinā jīvera nā yāya 'saṁsāra'
+> tāṅra sevā vinā jīvera nā yāya 'saṁsāra'\
 > tāṅhāra caraṇe prīti—'puruṣārtha-sāra'
 
 *tāṅra*—His; *sevā*—service; *vinā*—without; *jīvera*—of the conditioned soul; *nā*—not; *yāya*—finishes; *saṁsāra*—material bondage; *tāṅhāra*—His; *caraṇe*—at the lotus feet; *prīti*—love; *puruṣārtha-sāra*—the ultimate goal of life.

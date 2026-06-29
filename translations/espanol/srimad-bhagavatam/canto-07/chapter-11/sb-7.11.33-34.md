@@ -1,18 +1,18 @@
 ### SB 7.11.33-34
 
-> उप्यमानं मुहुः क्षेत्रं स्वयं निर्वीर्यतामियात
-> न कल्पते पुनः सूत्यै उप्तं बीजं च नश्यति ॥३३॥
-> एवं कामाशयं चित्तं कामानामतिसेवया
+> उप्यमानं मुहुः क्षेत्रं स्वयं निर्वीर्यतामियात\
+> न कल्पते पुनः सूत्यै उप्तं बीजं च नश्यति ॥३३॥\
+> एवं कामाशयं चित्तं कामानामतिसेवया\
 > विरज्येत यथा राजन्नग्निवत्कामबिन्दुभिः ॥३४॥
 
-> upyamānaṁ muhuḥ kṣetraṁ
-> svayaṁ nirvīryatām iyāt
-> na kalpate punaḥ sūtyai
+> upyamānaṁ muhuḥ kṣetraṁ\
+> svayaṁ nirvīryatām iyāt\
+> na kalpate punaḥ sūtyai\
 > uptaṁ bījaṁ ca naśyati
 
-> evaṁ kāmāśayaṁ cittaṁ
-> kāmānām atisevayā
-> virajyeta yathā rājann
+> evaṁ kāmāśayaṁ cittaṁ\
+> kāmānām atisevayā\
+> virajyeta yathā rājann\
 > agnivat kāma-bindubhiḥ
 
 *upyamānam*—cultivado; *muhuḥ*—una y otra vez; *kṣetram*—un campo; *svayam*—él mismo; *nirvīryatām*—esterilidad; *iyāt*—puede obtener; *na kalpate*—no es adecuado; *punaḥ*—de nuevo; *sūtyai*—para dar nuevas cosechas; *uptam*—sembrada; *bījam*—la semilla; *ca*—y; *naśyati*—se echa a perder; *evam*—de este modo; *kāma-āśayam*—lleno de deseos de disfrute; *cittam*—lo más hondo del corazón; *kāmānām*—de los objetos deseables; *ati-sevayā*—por la excesiva repetición del disfrute; *virajyeta*—puede llegar a desapegarse; *yathā*—tal como; *rājan*—¡oh, rey!; *agni-vat*—un fuego; *kāma-bindubhiḥ*—con gotitas de mantequilla clarificada.

@@ -1,11 +1,11 @@
 ### SB 4.16.23
 
-> विस्फूर्जयन्नाजगवं धनुः स्वयं यदाचरत्क्ष्मामविषह्यमाजौ ।
+> विस्फूर्जयन्नाजगवं धनुः स्वयं यदाचरत्क्ष्मामविषह्यमाजौ ।\
 > तदा निलिल्युर्दिशि दिश्यसन्तो लाङ्गूलमुद्यम्य यथा मृगेन्द्रः ॥२३॥
 
-> visphūrjayann āja-gavaṁ dhanuḥ svayaṁ
-> yadācarat kṣmām aviṣahyam ājau
-> tadā nililyur diśi diśy asanto
+> visphūrjayann āja-gavaṁ dhanuḥ svayaṁ\
+> yadācarat kṣmām aviṣahyam ājau\
+> tadā nililyur diśi diśy asanto\
 > lāṅgūlam udyamya yathā mṛgendraḥ
 
 *visphūrjayan*—vibrating; *āja-gavam*—made of the horns of goats and bulls; *dhanuḥ*—his bow; *svayam*—personally; *yadā*—when; *acarat*—will travel; *kṣmām*—on the earth; *aviṣahyam*—irresistible; *ājau*—in battle; *tadā*—at that time; *nililyuḥ*—will hide themselves; *diśi diśi*—in all directions; *asantaḥ*—demoniac men; *lāṅgūlam*—tail; *udyamya*—keeping high; *yathā*—as; *mṛgendraḥ*—the lion.

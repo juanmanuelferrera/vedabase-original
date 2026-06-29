@@ -1,18 +1,18 @@
 ### SB 7.3.9-10
 
-> सृष्ट्वा चराचरमिदं तपोयोगसमाधिना
-> अध्यास्ते सर्वधिष्ण्येभ्यः परमेष्ठी निजासनम ॥९॥
-> तदहं वर्धमानेन तपोयोगसमाधिना
+> सृष्ट्वा चराचरमिदं तपोयोगसमाधिना\
+> अध्यास्ते सर्वधिष्ण्येभ्यः परमेष्ठी निजासनम ॥९॥\
+> तदहं वर्धमानेन तपोयोगसमाधिना\
 > कालात्मनोश्च नित्यत्वात्साधयिष्ये तथात्मनः ॥१०॥
 
-> sṛṣṭvā carācaram idaṁ
-> tapo-yoga-samādhinā
-> adhyāste sarva-dhiṣṇyebhyaḥ
+> sṛṣṭvā carācaram idaṁ\
+> tapo-yoga-samādhinā\
+> adhyāste sarva-dhiṣṇyebhyaḥ\
 > parameṣṭhī nijāsanam
 
-> tad ahaṁ vardhamānena
-> tapo-yoga-samādhinā
-> kālātmanoś ca nityatvāt
+> tad ahaṁ vardhamānena\
+> tapo-yoga-samādhinā\
+> kālātmanoś ca nityatvāt\
 > sādhayiṣye tathātmanaḥ
 
 *sṛṣṭvā*—crear; *cara*—móviles; *acaram*—inmóviles; *idam*—esto; *tapaḥ*—de austeridad; *yoga*—y poder místico; *samādhinā*—con la práctica del trance; *adhyāste*—está situado en; *sarva-dhiṣṇyebhyaḥ*—que todos los planetas, incluyendo los planetas celestiales; *parameṣṭhī*—el Señor Brahmā; *nija-āsanam*—su propio trono; *tat*—por lo tanto; *aham*—yo; *vardhamānena*—mediante el aumento; *tapaḥ*—austeridad; *yoga*—poderes místicos; *samādhinā*—y trance; *kāla*—del tiempo; *ātmanoḥ*—y del alma; *ca*—y; *nityatvāt*—de la eternidad; *sādhayiṣye*—obtendré; *tathā*—tanto; *ātmanaḥ*—para mí.
